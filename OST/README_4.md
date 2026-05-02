@@ -1,3 +1,58 @@
+###  Публикация: 186871   (878432) от 27.03.2010
+
+V.A. - The Matrix (Full OST Collection) (1999..2004) [MP3|192, 320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878432.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 09:20:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106359   (873516) от 19.02.2017
+
+VA - Притяжение (Официальный Саундтрек) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ирина Старшенбаум - Когда я была маленькая (00:38)
+02. Иван Бурляев - Intro (01:26)
+03. Ирина Старшенбаум, Александр Петров - Готов вызволить принцессу из башни (00:17)
+04. L'One feat. Влади, Баста - Ракета (feat. Влади & Баста) (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF19EF67D8466DBABF4C51ECF729B1E05595E034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106771   (871220) от 20.02.2017
 
 VA - Ёлки 5 (Музыка к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -708,65 +763,6 @@ Inon Zur - Syberia 3 (Original Soundtrack) (2017) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB15EBE195C1F66A3DEFAD103C82DD55B50D8134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381165   (829743) от 05.05.2020
-
-Terry Scott Taylor - Neverhood Songs (1996) [MP3|192 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klayman Shuffle
-02. Olley Oxen Free
-03. Everybody Way Oh
-04. Rock'n'Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E6C3377A2FD3DA8294985027BC93EF7E193FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005754   (828801) от 11.04.2016
-
-Аквариум и Борис Гребенщиков - Live "Весенний концерт" БГ60, Самара, КРЦ "Звезда", (2014) [AC3 5.1|448 кб/с] <Рок>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828801.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче аудио-дорожка (с потрековой разбивкой) от видеозаписи концерта, состоявшегося 25.05.2014г. в Самаре. Запись из зала "с воздуха".
-Видео можно найти >здесь< и >здесь<.01. Intro
-02. Губернатор
-03. Праздник Урожая Во Дворце Труда
-04. Не Было Такой И Не Будет(   Читать дальше...   )Жанр: РокПродолжительность: 02:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F65ACCCE8764770469A5088B085C02CDD2CB72
 ```
 
 https://mybot314.ru/tekegram_catalog/

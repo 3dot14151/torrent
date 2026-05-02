@@ -1,3 +1,119 @@
+###  Публикация: 1830918   (205740) от 27.10.2025
+
+Romantic Dreams - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Let Him Go
+ 02 - Better for You
+ 03 - Our Love Song
+ 04 - Diamond in the Dust(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B25FC1C35ACAFD5448E6D8E9F48A4C820F758DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1584295   (205126) от 18.10.2022
+
+VA - Pop 2 Remix NNM (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lizzo - 2 Be Loved (Am I Ready) (PNAU Remix) (3:42)
+02. Sam Smith - Unholy (feat. Kim Petras) (Disclosure Remix) (5:02)
+03. Elton John - Hold Me Closer (Joel Corry Remix) (4:08)
+04. James Hype - Ferrari - Oliver Heldens Remix (3:08)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1617CFF83DC9D22DB6DD8E4F18436B6C2A1705F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602521   (204404) от 06.01.2023
+
+VA - Зима на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Красавцы Love Radio - Танцуем! (3:11)
+02. TSOY - Покажу Паранойю (3:06)
+03. Anna Asti - Ночью На Кухне (3:52)
+04. Alma - Summer Really Hurt Us (2:48)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03778C83F5CD52240B91744E378F2CEAE1294A46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599683   (203930) от 17.01.2023
+
+VA - Новогодние песни Vol.1 (2022) MP3 [320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wham - Last Christmas (04:23)
+02. Верка Сердючка - Новогодняя (02:22)
+03. София Ротару  - Белая Зима (03:37)
+04. Abba - Happy New Year (Ayur Tsyrenov Remix) (04:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 17:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE0F49F8B1734AEE55334F8461A56D27FEF1B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615636   (202187) от 26.02.2023
 
 VA - Fantastic 90s (2023) 3CD, Compilation, Box Set [MP3|320 Kbps] <Dance, Disco, New Wave, Synthpop>
@@ -629,121 +745,6 @@ VA - Halloween Party 2022 (Powered By Xtreme Sound) (2022) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7FB537634CB2A9A0BD24DBEF593CF5989B00C13D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588036   (192003) от 02.11.2022
-
-VA - In Mood Styles Dance (2022) [MP3|320 Kbps] <Electropop, Synthpop, Hands Up, Dancecore>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anektшde Meets Morten Lind - I Lost (Radio Edit) 2:24
-02. Dj Gollum X Empyre One X Darius & Finlay - Paranormal 2:35
-03. Armin Van Buuren Feat. Simon Ward - Hey (I Miss You) 3:20
-04. David Yarrow - Light Of Love (Original Mix) 6:06(   Читать дальше...   )Жанр: Electropop, Synthpop, Hands Up, DancecoreПродолжительность: 03:22:14 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:606CE648109DB5B496AC3358226FD479F50DC2C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548265   (191893) от 02.11.2022
-
-GAYAZOVS BROTHERS - Синглы и ремиксы (2015 - 2022) [MP3|320 Kbps] <Pop, Deep-House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191893.jpg" />
-</div>
-
-
-###  Подробнее
-
-GAYAZOV$ BROTHER$ (Братья Гаязовы) — дуэт братьев Тимура и Ильяса Гаязовых, исполняющих музыкальные композиции в стиле рэп, хип-хоп и дип-хаус. Группа известна хитами «Кредо», «До встречи на танцполе», «Пьяный туман» и «Малиновая Лада». Завоевала популярность через интернет, без поддержки лейблов и СМИ.
-⠀2015-2022 - Синглы
-2019-2022 - РемиксыЖанр: Pop, Deep-HouseПродолжительность: 02:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C0747ED6E4D7AC3A7AE781520BC0564E5ADB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658342   (191093) от 08.09.2023
-
-VA - The Best Songs of All Time - Greatest Hits (2023) [MP3|320 Kbps] <Dance, Pop, R&B, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191093.jpg" />
-</div>
-
-
-###  Подробнее
-
-   01. Ava Max - Sweet but Psycho
-   02. Linkin Park - Numb
-   03. GAYLE - abcdefu (angrier)
-   04. Flo Rida, T-Pain - Low (feat. T-Pain)(   Читать дальше...   )Жанр: Dance, Pop, R&B, RockПродолжительность: 03:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564856260D0B2A06116D5017C7F09BFD775C9AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588748   (191024) от 06.11.2022
-
-VA - Dance Remixes 2022 Formentera Edition (2022) [MP3|320 Kbps] <Euro Dance, Club, House, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kate Project - Sail Away (CP Mix)
-02. DJ Space'c - Do It To It (CP Mix)
-03. Housecream - Words (CP Mix)
-04. D'Mixmasters - In The Dark (CP Mix)(   Читать дальше...   )Жанр: Euro Dance, Club, House, SynthpopПродолжительность: 01:10:24 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F04833F57BC7F64981D21AD99D60917B07CC09D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

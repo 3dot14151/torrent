@@ -1,3 +1,118 @@
+###  Публикация: 1500377   (841076) от 06.10.2021
+
+Chris Rea - Blue Guitars VI - Chicago Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Moving Up (4:33)
+02. Maxwell Street (4:39)
+03. Bob Taylor (5:15)
+04. She's a Whole Heap of Trouble (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D80BF40A4D62413EF6F10C2C91DED705660483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309893   (840796) от 16.03.2011
+
+Joe Bonamassa - Dust Bowl (2011) [FLAC|Lossless]<Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Train (6:49)
+02. Dust Bowl (4:32)
+03. Tennessee PlatesЖанр: Blues, Blues-RockПродолжительность: 01:02:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113144   (840104) от 10.03.2017
+
+Danny Del Toro - Bad Beat (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic Blues, Harmonica>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Down To Brownsville (Feat. Little G Weebil) (3:37)
+02. That's Alright (Feat. Marco Cinelli) (3:17)
+03. Spoonful (Feat. Fast Eddie Nelson) (3:43)
+04. Blues Before Sunrise (Feat. Big Mama Montse) (3:55)(   Читать дальше...   )Жанр: Acoustic Blues, HarmonicaПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:057E64C2C16EAE4734D85D2E189C7F6F1E426802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500940   (839826) от 07.10.2021
+
+Chris Rea - Blues Guitars VIII - Gospel Soul Blues & Motown (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Love (4:12)
+02. Break Another Piece of My Heart (4:19)
+03. Ball and Chain (4:55)
+04. Gospel Trail (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24C4505611E17EAC450EFACA257B9E96FE50C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500807   (839581) от 07.10.2021
 
 Chris Rea - Blue Guitars VII - Blues Ballads (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -626,122 +741,6 @@ VA - NOW Soul Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:326F07C474B910766F0DD6A5A5E5B77D87BC5FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114571   (832149) от 15.03.2017
-
-Big Black Bible Blues Band - Holy Roller Woman (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дебютный альбом христианских блюз-рокеров из Луизианы. Если абстрагироваться от содержания, то в общем совсем не плохо. Или не совсем уж и плохо. ИМХО. Решайте сами)))01. Holy Roller Woman (3:29)
-02. Sho Shuda Stay'd (Rollin' Like A Train) (3:48)
-03. Forever You Remain (3:23)
-04. Capsized (4:03)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8EE1540DEBEEB3CC3780C6B1C6B69E4CC66E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114644   (831685) от 15.03.2017
-
-Nick Earle & Joe Coffin - Wood Wire Blood & Bone (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Someday  (03:43) 
-02| Born Under A Bad Sign  (03:27) 
-03| Who Were You With Last Night  (03:26) 
-04| Hypnotizing  (03:12) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4288DA65B73AE55E2C17CF28DD37680DFC4125A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115014   (830072) от 16.03.2017
-
-Pete Cowley - No Place to Land (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Funky Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| License to Drive  (05:20) 
-02| The Other Side  (05:29) 
-03| Shake It Like That  (03:38) 
-04| No Place to Land  (05:04) (   Читать дальше...   )Жанр: Blues, Funky BluesПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5B0231B815969557CD89F55E3976999D611B336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 312373   (830051) от 22.03.2011
-
-Peter Green - The Anthology (2008) 4CD Deluxe Box Set [WavPack|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Change Is Gonna Come (With Splinter Group)  (5:06)
-02. I'm A Steady Rollin' Man Ft. Otis Rush (With Nigel Watson&Splinter Group) (3:32)
-03. It Takes Time (With Splinter Group) (5:09)
-04. Don't Walk Away (With Splinter Group) (4:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 04:30:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

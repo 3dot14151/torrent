@@ -1,3 +1,119 @@
+###  Публикация: 1852366   (1055821) от 07.02.2026
+
+Supralunar - Dead Come To Dance (2026) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bit By The Bug
+02. Dead Come To Dance
+03. Whispers In The Wind
+04. Leviathan (Power To Reason)(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550751A174390BFB29B30364237DBEED7F7863FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850970   (1054904) от 30.01.2026
+
+Uriah Heep - Demons And Wizards (1972) 2XCD, Japanese Edition, SHM-CD, Remastered, 2026, BELLE [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. The Wizard
+02. Traveller In Time
+03. Easy Livin'(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 01:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4059787DBB86931D74AA10C3CBC0FC235D009A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850787   (1054700) от 29.01.2026
+
+Uriah Heep - Salisbury (1971) 2XCD, Japanese Edition, SHM-CD, Remastered, 2026, BELLE [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Bird Of Prey
+02. The Park
+03. Time To Live(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 02:20:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB19732C84EB814302BB1DDCCFE105A39297CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850861   (1054663) от 30.01.2026
+
+Uriah Heep - Look At Yourself (1971) 2XCD, Japanese Edition, SHM-CD, Remastered, 2026, BELLE [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1:
+01. Look at Yourself
+02. I Wanna Be Free
+03. July Morning(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 02:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17ECF9B26DF3935B4B30F2AAD223AE5C45842BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850703   (1054498) от 29.01.2026
 
 WildHard - Love N' Lies (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -629,122 +745,6 @@ Hilljack - Hilljack (1997) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66C69058F3174B59E39C8E5475A2BD2B48C960A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602151   (1046216) от 04.01.2023
-
-Beggars & Thieves - Beggars & Thieves (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No More Broken Dreams
-02. Billy Knows Better
-03. Waitin' For The Man
-04. Your Love Is In Vain(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF7F8EC3D000FD01E068A288815A162E2C9AC71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602143   (1046215) от 04.01.2023
-
-Falcon - Mystery (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Away
-02. Addiction
-03. Takin' It Over
-04. Motorcycle(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B328ED40556D76A46BC346E6B2D67339F89C14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602430   (1046149) от 05.01.2023
-
-Legend - Legend (1992) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friendly Fire
-02. Don't Believe It
-03. Angela
-04. After The Fall(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941CA50BEEEA820FF7DB412F32910C415E91DD4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602350   (1046145) от 05.01.2023
-
-Ignition - Ignition (2003) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down on My Luck
-02. Tell Me Your Mine
-03. Father (Save Me)
-04. Fire With Fire(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A3B21825F858DC8A8FFF0D35D6D8CCE73290794
 ```
 
 https://mybot314.ru/tekegram_catalog/

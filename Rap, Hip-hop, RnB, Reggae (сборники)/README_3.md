@@ -1,3 +1,32 @@
+###  Публикация: 1281219   (753372) от 07.02.2019
+
+VA - RnB Soul Mix: Hit Channel (2019) [MP3|320 Kbps] <R&B, Soul>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753372.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jão - Vou Morrer Sozinho
+002. Dj Omega - Can't Wait
+003. Nicki Minaj & Murda Beatz - Fefe
+004. Four Of Diamonds - Stupid Things(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739C0CE94B8B0069B54280129282570A75AAA845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281252   (753360) от 07.02.2019
 
 VA - 150 Best Songs RnB Nation (2019) [MP3|320 Kbps] <RnB, Soul>
@@ -720,35 +749,6 @@ VA - Sing A New Song (2019) [MP3|320 Kbps] <Reggae, Dub Ska, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AAA32A3BA5695F0428B6A7E577C4CC510974217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288180   (697640) от 10.03.2019
-
-VA - German Top 40 DBC Deutsche Black Charts 08.03.2019 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, R&B>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyga - Girls Have Fun
-02. Chris Brown - Undecided
-03. Mustard - Pure Water
-04. Chaka Khan - Hello Happiness(   Читать дальше...   )Жанр: Rap, Hip-Hop, R&BПродолжительность: 02:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7A91D9C56A5DA70573BCCBC5E802B493A77B75
 ```
 
 https://mybot314.ru/tekegram_catalog/

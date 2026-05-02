@@ -1,3 +1,92 @@
+###  Публикация: 547618   (471095) от 16.09.2012
+
+ZAZ - Sans Tsu Tsou (Live) (2012) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полноценный концерт «Sans Tsu Tsou», уже знаменитой ZAZ (Изабелла Жоффруа), транслировавшийся каналом M6 HD (Франция) 04.08.2012г., записан в ходе европейского тура 2011 года певицы и включает в себя свыше полутора часов музыки.01. Les passants
+02. J'aime à nouveau
+03. Le long de la routeЖанр: Jazz, ChansonПродолжительность: 01:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E72E232DFEE514D38C2084CC2B87040637C4473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940056   (470597) от 23.09.2015
+
+Aerosmith - Rocks Donington (2014/2015) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт «Aerosmith Rocks Donington 2014» снимался в Донингтон-парке в Лестершире, Великобритания, в июне 2014 года в рамках концертного тура «Let Rock Rule». Aerosmith были хэдлайнерами на Download festival в Донингтон Парке 15 июня 2014 года. Музыканты выступили с набором своих лучших хитов перед 80-тысячной толпой. Aerosmith остаются одними из самых динамичных (   Читать дальше...   )Жанр: Rock, Hard Rock, Blues Rock, Heavy Metal, Glam MetalРежиссер: Dick Carruthers & Jeff ClaireПродолжительность: 01:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E5A3D1146541A340C3C27A59CA7FDD56138C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 548478   (468866) от 17.09.2012
+
+Red Hot Chili Peppers — Live At Bonnaroo Festival (2012)
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monarchy of Roses
+02. Can't Stop
+03. Dani California
+04. Scar Tissue
+05. Look Around
+06. Throw Away Your Television
+07. Charlie
+08. The Adventures of Rain Dance Maggie
+09. Right on Time
+10. If You Have to Ask(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548007   (468547) от 17.09.2012
 
 Sade - Bring Me Home - Live 2011 (2012) [1080p] BDRip
@@ -642,90 +731,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15E7E010729BB43618257D5B7C3EAF767226E27A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408650   (453283) от 13.09.2020
-
-Квартирник НТВ у Маргулиса. Александр Розенбаум (12.09.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453283.jpg" />
-</div>
-
-
-###  Подробнее
-
-В качестве сольного артиста Александр Розенбаум вышел на большую сцену в первой половине 80-х. Известность ему принес так называемый «одесский цикл» песен – с тех пор популярность артиста не снижается, его песни известны как его ровесникам, так и современной молодежи, а такие композиции как, например, «Вальс-бостон» и «Ау» по праву можно назвать вечными. В гостях (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90E050B39E5B03068364C94886BFCF9A9A63CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942631   (453100) от 01.10.2015
-
-Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легендарный бирмингемский музыкант Джефф Линн совершил триумфальный камбэк в виде первого полноценного шоу на британской земле впервые почти за 30 лет. Сопровождаемый BBC Concert Orchestra и штатным клавишником ELO Ричардом Тэнди, Джефф порадовал своих поклонников великолепным 80-минутным концертом, состоявшимся 14 сентября 2014 года в лондонском Гайд-Парке в рамках (   Читать дальше...   )Треклист:
-01. All Over the World
-02. Evil Woman
-03. Ma-Ma-Ma Belle(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7CE9F828C06B729686F641DAD0FF8A2E820630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942985   (451185) от 02.10.2015
-
-Deep Purple - ...To The Rising Sun (In Tokyo) (2015) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep Purple объявили о выпуске двух концертных фильмов, снятых на Wacken и в Японии. To The Rising Sun (в Wacken) был снят на девять HD камер и отмечается что в первый раз Deep Purple выпустит 3D-фильм.01. Apres Vous
-02. Into The Fire
-03. Hard Lovin‘ Man
-04. Strange Kind Of Woman(   Читать дальше...   )Жанр: Rock,  Hard RockПродолжительность: 01:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CBA7C6DD11DF4FD5CC662251ABFFDD187097003
 ```
 
 https://mybot314.ru/tekegram_catalog/

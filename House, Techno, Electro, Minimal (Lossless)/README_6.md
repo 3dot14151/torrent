@@ -1,3 +1,30 @@
+###  Публикация: 1477787   (1010849) от 16.06.2021
+
+El Perro De La Noche - Discography 11 Releases (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Dub Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Perro 11 A (06:40)
+ 02. El Perro 11 B (06:31)Тип издания: WebЖанр: Techno, Tech House, Dub Techno, Deep House •Продолжительность: 02:41:26 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90D76FB53D5D4853E9D258BE0AD15DE034644C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477960   (1010499) от 18.06.2021
 
 Ofenbach - Ofenbach (2019) EP [FLAC|Lossless|tracks + .cue] <EDM, House, Nu Disco>
@@ -707,35 +734,6 @@ Wet Basement - Electromagnetic (2021) Drift Deeper Recordings [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D142EDE32F574B5559CBAF694AE98FCBC50DF2A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483856   (1006518) от 16.07.2021
-
-Faserklang - Focus On Distraction (2021) Drift Deeper Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Ambient, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equilibrium (07:24)
- 02. Diffusion (07:44)
- 03. Automotif (06:02)
- 04. Mood Swing (06:57)(   Читать дальше...   )Жанр: Deep Techno, Ambient, Dub TechnoПродолжительность: 01:04:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A23C1B0DF903E135CD1B27CFEBF138E113239EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

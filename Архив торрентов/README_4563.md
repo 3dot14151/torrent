@@ -1,3 +1,249 @@
+###  Публикация: 467121   (96506) от 13.03.2012
+
+One Year Later - The Sound of a Broken World (2012) [MP3|320 кб/с]<Metalcore, Post-Hardcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96506.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Absolution (3:17)
+2. Paths (3:02)
+3. Shapeshifter (3:45)
+4. Deliverance (2:53)
+5. Memories (3:35)
+6. This Road (3:46)
+7. Interlude (2:31)
+8. The Sound of a Broken World (2:49)
+9. The Cursed (3:07)
+10. Lay In This Earth (4:16)2012Жанр: Metalcore, Post-HardcoreПродолжительность: 00:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8F11E2E1EADAAAAFB6F912A7F09949F2A218122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467517   (96504) от 13.03.2012
+
+VA - Plexus Relax Sector - Bleak Winter Wailing 2 (tracks + mix) (2012) [MP3|320 кб/с]<Ambient, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dissapocrifia - Algor Prelude c-moll (2:47)
+ 02. jdoblom - Грибной Суп (7:39)
+ 03. Simiram - Hinokio (5:54)
+ 04. NOVA ILLUSION & Fibres - DOT (6:18)
+ 05. sir cond - The Soul Labyrinth (3:28)
+ 06. DJ Ger-Man - Before A Choice (5:07)
+ 07. Eguana - On Ruins Of Mind (Easy Drums Version) (6:48)
+ 08. Radio Silence - Easy Snowfalling Will Happen At This Night (5:33)
+ 09. Index-1 - Love Story (4:20)
+ 10. Романтик - Прощание С Людмилой (2:42)(   Читать дальше...   )Жанр: Ambient, DowntempoПродолжительность: 01:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B6E2D3EA4452F70627BA1AE6510EAD9CD4DFD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467000   (96500) от 13.03.2012
+
+VA - 538 Dance Smash 2011 Vol.4 (2011) [MP3|320 кб/с]<Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lucenzo feat. Don Omar - Danza Kuduro
+02 - Elena - Midnight Sun
+03 - Pitbull feat. Ne-Yo,Afrojack & Nayer - Give Me Everything
+04 - Alexandra Stan - Get Back (asap)
+05 - R.I.O. - Miss Sunshine
+06 - Avicii - Fade Into Darkness
+07 - Sak Noel - Loca People
+08 - Nicky Romero & Mitch Crown - Schizophrenic
+09 - Inna feat. Flo Rida - Club Rocker
+10 - Benny Benassi feat. Gary Go - Cinema2011Жанр: DanceПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D53EF58A0D3E61A11C7F6FC45FA0A4E173BD71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466563   (96499) от 13.03.2012
+
+Arminstel - Trance Evolution vol.71 (11.03.2012) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Alwacker - Sunrise (Emotional Mix)
+ 02. Marasin Sanya - The Beautiful Melody Of The Night (Original Mix)
+ 03. Rene Ablaze & Tech Trek - Naranja (Original Mix)
+ 04. Ehren Stowers - Desire (Original Mix)
+ 05. Starline - Perfect Spring (Uplifting Trance 2012)
+ 06. Azima - Mousewille (Original Mix)
+ 07. Azima - The Saturn (Original Mix)
+ 08. N-Gate - Be Fire (Original Mix)
+ 09. MAXIMA - Solar Unity (Original Mix)
+ 10. Perfect Sound - The Cloudless (Original Mix)(   Читать дальше...   )11.03.2012Жанр: Uplifting TranceПродолжительность: 02:00:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D013BFE333FF7BE5EF9AB4D5EA6705F581718A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467253   (96497) от 13.03.2012
+
+Sumatra PDF 2.0.5876 (x86/x64) + Portable [Multi/Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF - легкий просмотрщик PDF, DjVu, XPS, CBR, CBZ -файлов. Программа быстро работает, имеет очень простой дизайн, не загружает систему, может запускаться с внешних USB-карт. Минималистский дизайн программы с лихвой искупается ее очень шустрой работой, что выгодно отличает Sumatra PDF от того же Adobe Reader. В этой версии улучшена обработка документов, добавлен (   Читать дальше...   )Язык интерфейса: Multi/Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466560   (96494) от 12.03.2012
+
+Прощальное дело / L'affaire Farewell (2009) DVD9
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва начала 80-х. Полковник КГБ Сергей Григорьев, разочарованный советским режимом, решает разрушить систему. Он налаживает контакты с французским инженером Пьером Фроманом. И не столько его информация, сколько его деятельность вообще вызывает жгучий интерес у западных спецслужб. Обеспокоенный президент Франции Франсуа Миттерран решается проинформировать коллегу из США Рональда Рейгана: «Благодаря невероятной шпионской системе Советский Союз добывает на Западе информацию о последних исследованиях в области науки и вооружений, включая оборонную систему США».
+
+В итоге главы правительств решают сделать продажного москвича своим информатором через Фромана. Свой источник секретных данных французы величают «Farewell», и инженер невольно становится участником самого громкого шпионажа XX века, подвергая опасности свою жизнь и жизнь своих близких.Жанр: Триллер, ДрамаРежиссер: Кристиан КарионАктеры: Эмир Кустурица, Уиллем Дефо, Гийом Кане, Александра Мария Лара, Ингеборга Дапкунайте, Алексей Горбунов, Дина Корзун, Филипп Маньян, Нильс Ареструп, Фред Уорд, Дэвид СоулПеревод: Многоголосый закадровыйПродолжительность: 01:48:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466517   (96491) от 12.03.2012
+
+Биатлон. Чемпионат Мира 2012. Рупольдинг (Германия). Женщины. Масс-старт 12,5 км (2012) IPTV
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Женская гонка с масс-старта на ЧМ по биатлону в Рупольдинге (Германия)Жанр: СпортПеревод: Одноголосый закадровый, профессиональный (Губерниев)Формат: MPGПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B20DD6AF071DF65AD117AAC52605053EF850141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466139   (96489) от 12.03.2012
+
+Фрост против Никсона / Frost/Nixon (2008) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96489.jpg" />
+</div>
+
+
+###  Подробнее
+
+США, 1977 год. Спустя три года после своей бесславной отставки, последовавшей после Уотергейтского скандала, экс-президент США Ричард Никсон нарушил молчание и дал эксклюзивное интервью британскому телеведущему Дэвиду Фросту. Но исповедь одиозного политика, на которую все рассчитывали, внезапно вылилась в захватывающую интеллектуальную баталию, вошедшую в золотые анналы американской тележурналистики.Жанр: Драма, историяРежиссер: Рон ХовардАктеры: Фрэнк Ланджелла, Майкл Шин, Сэм Рокуэлл, Кевин Бейкон, Мэтью Макфейден, Оливер Плэтт, Ребекка Холл, Тоби Джонс, Энди Милдер, Кейт Дженнингс ГрантПеревод: ДублированныйПродолжительность: 02:01:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466693   (96487) от 12.03.2012
 
 Когда низвергнутся небеса / When the Sky Falls (2000) DVDRip
@@ -545,261 +791,6 @@ VA - House Vip (10.03.12) [MP3|320 кб/с]<Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:734BC679AC0865E1FF57A03C333154DE731C7EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466643   (96415) от 12.03.2012
-
-Газета | Ждём гостей №3 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие кулинарные рецепты к торжествам и праздникам. Газета поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B05217B0709E862823FB0F25DCCC81EB75902DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466625   (96412) от 12.03.2012
-
-Exhumed - All Guts, No Glory (2011) [FLAC|Lossless]<Death Metal, Grindcore>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Guts, No Glory (instrumental) 01:48
-02. As Hammer to Anvil 03:38
-03. Your Funeral, My Feast 03:27
-04. Through Cadaver Eyes 04:08
-05. Death Knell 03:48
-06. Distorted and Twisted to Form 02:40
-07. I Rot Within 03:44
-08. Dis-assembly Line 03:00
-09. Necrotized 03:39
-10. Funereality 03:01(   Читать дальше...   )2011Жанр: Death Metal, GrindcoreПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466494   (96410) от 12.03.2012
-
-Восстановление Японии / Rebuilding Japan. Пилотный выпуск (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы увидите, как инженеры и ученые неустанно работают для того, чтобы улучшить жизнь людей, пострадавших от землетрясения.Жанр: ДокументальныйПродюсер: Shiro Toma, Yuji TodaПеревод: Профессиональный (одноголосый)Продолжительность: ~ 00:22:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DDAD143511E483184D3A07EAAEDD5B4B129B148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465504   (96407) от 12.03.2012
-
-VA - House Vip (09.03.12)[MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96407.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gerra G. - Humanize (Original Mix) (7:33)
- 2. Armin Van Buuren feat Jan Vayne - Serenity (Dj Amor Remix)
- 3. Amy B & W.arehouse - You And Me Tonight (Danny Merx Instrumental) (6:52)
- 4. A Virtual Friend - Sorry (Neon Stereo Club Remix) (5:55)
- 5. Kitsch 2.0 - Tonight Is the Night (Sunlight Remix) (5:42)
- 6. Mylo - Drop The Pressure (Dada Life Guerilla Fart) (5:40)
- 7. Harris & Ford – Ich Habe Lust (Club Mix) (5:35)
- 8. BAZEDA, Custom Drops - Love To Party (Original Mix) (5:16)
- 9. Hot Pink Delorean - Move It (Original Mix) (5:06)
-10. Gotye feat. Kimbra - Somebody I Used To Know (NE!TAN Bootleg) (4:57)2012Жанр: Electro HouseПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AA976E0F3AF34C06CCA9897FE25801DBB6C632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466621   (96403) от 12.03.2012
-
-Edge Of Sanity - Kur-Nu-Gi-A (2012) [MP3|~259 кб/с (V0)]<Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96403.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Decepted By The Cross 03:47
-2. Maze Of Existence 04:47
-3. Beyond The Unknown 03:48
-4. The Day Of Maturity 03:41
-5. Immortal Souls 03:50
-6. Serenade For The Dead 00:55
-Bonus Tracks:
-7. Decepted By The Cross (Live) 03:40
-8. Immortal Souls (Live) 04:12
-9. Maze Of Existence (Roughmix) 04:082012Жанр: Death MetalПродолжительность: 00:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519EAA3BCA2185D83952882E939DC8C9D9604A0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466312   (96401) от 12.03.2012
-
-Аферисты. Выпуск 22-25 (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Граждане! Будьте осторожны - в городе орудует банда опасных преступников. Сначала они обманут Вас и заберут последнее, а потом еще и покажут по телевизору, как это было!
-Вы и моргнуть глазом не успеете, как эта четверка доберется до Вашего кошелька, присвоит себе только что купленный Вами телефон, а кроме этого сможет посидеть в ресторане на круглую сумму за Ваш счет!
-Приветливая и обаятельная Елена-Кристина Лебедь, двое харизматичных мужчин - Дмитрий Суммар и Денис Розгон, а также главарь банды Анастасия Касилова уже готовы втянуть Вас в аферу только для того, чтобы потом Вас больше никогда не смогли обмануть! Вы узнаете психологические приемы настоящих аферистов и увидите на практике, как действуют самые невероятные мошеннические схемы. Вам станет известно, как можно получить новенькую видеокамеру за... чашку кофе. Или как можно украсть из ювелирного бутика платиновое колье просто на глазах у продавцов.Жанр: ТелепередачаПродолжительность: 00:43:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6682943ED1033F9E06513C54D89E64C0372628C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466607   (96397) от 12.03.2012
-
-VA - House Vip (11.03.2012) [MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96397.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 9Five - Dental (Original Mix) (7:02)
- 2. Chris Brown - Turn Up The Music (Alessio Silvestro Remix) (5:58)
- 3. Distorted Frequency, Teslatronik - Rocket Knight Adventures (NewtonE Remix) (4:35)
- 4. G-Lontra - The Time Is Now feat. Rachel Kramer (Alex Guerrero Remix) (6:43)
- 5. Irrenhouse - Party On & On (Original Mix) (4:51)
- 6. Jeany Kiss & Sunray feat. Gemma B - My Heart Beats Like A Drum (Nick Austin Remix) (6:37)
- 7. Savage - Dont Cry Tonight 2012 ( Alexandra D Extended Mix) (5:02)
- 8. Tejl - Boing (HAS Remix) (6:45)
- 9. Under Construction - Yourself Tonight (Scarytoys Remix) (6:00)
- 10. Uppermost - Life Is A Fight (Original Mix) (6:30)11.03.2012Жанр: Electro HouseПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FEC392BB3A64052ACE64393F9C32D4E6CCBD9A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466672   (96395) от 12.03.2012
-
-VA - Попсовый всесезонный хит (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96395.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Света - Пятый Элемент (Andrey S.P.L.A.S.H. Radio Remix)
- 002. Алина Кабаева - Верьте В Себя
- 003. Vilana - Море
- 004. MMDance - Мой Босс
- 005. Neoclubber - Только Я и ты
- 006. Таша - Ищи Меня В Своих Снах
- 007. Виктория Дайнеко & Корни - Многоточие
- 008. Ирина Нельсон - Тёплое Солнце (Dark City Remix)
- 009. Марина Журавлева - Небо плакало
- 010. Сhris Parker Feat. Катя Старикова - Не Уходи (Radio Edit)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7FF6CFAAB51A37FD0A0D338BF14D2D17B621B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

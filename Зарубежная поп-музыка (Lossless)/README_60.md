@@ -1,3 +1,235 @@
+###  Публикация: 718401   (389260) от 03.11.2013
+
+Katy Perry - Prism (Deluxe Edition) (2013) Capitol Records [FLAC 2.0 44.1/24|WEB-DL]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roar (03:43)
+ 02. Legendary Lovers (03:44)
+ 03. Birthday (03:35)
+ 04. Walking on Air (03:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2235A9C1DE285870F81937B58BD892B2FA3E1F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173945   (388804) от 13.10.2017
+
+Pink (P!nk) - Beautiful Trauma (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388804.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beautiful Trauma (4:10)
+2. Revenge (3:46)
+3. Whatever You Want (4:03)
+4. What About Us (4:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EF9C53B1E07CBEF76A60B3D8E6884AC52F2568A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252718   (388020) от 07.10.2018
+
+Vicki Brown - Lady Of Time (1989) [FLAC|Lossless|image + .cue] <Pop,  Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388020.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Just For You. Music By – Brahms
+2.	To Me You Are So Beautiful Written-By – A. Lee, J. Brown
+3.	Sunflower. Written-By – Smith , Chappelle , Taylor
+4.	Jesu, Joy Of Man's Desiring.   Music By – Bach(   Читать дальше...   )Жанр: Pop,  ClassicalПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D0FB9840A19A7813D7B50068EF9ACC0E1C8FF85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252732   (387907) от 07.10.2018
+
+Vicki Brown - Vicki Brown (1987) [FLAC|Lossless|image + .cue] <Pop,  Classical>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387907.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Look At Me
+2.	Once Again
+3.	Can't Let Go
+4.	Plaisir D'Amour(   Читать дальше...   )Жанр: Pop,  ClassicalПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:223A4325BF877F2D181DF49D010AB045E001EB11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067613   (387379) от 29.10.2016
+
+Madness - Can’t Touch Us Now (2016) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Touch Us Now 04:13
+02. Good Times 02:54
+03. Mr. Apples 03:39
+04. I Believe 03:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50836888C1582F81F460859F7E4D107DFC86CD95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067705   (387377) от 29.10.2016
+
+Andy Williams - Reflections (1977) Compilation [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387377.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Moon River
+2. Sad
+3. Both Sides Now
+4. Home Lovin' Man(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10332C3F7ECBF3EC3904A85703C3E337CEE5AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326261   (387303) от 19.09.2019
+
+Mabel - High Expectations (2019) [FLAC|Lossless|tracks + .cue] <Pop, R&B, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387303.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 High Expectations (Intro) 1:29
+2 Bad Behaviour 3:26
+3 Don't Call Me Up 2:58
+4 FML 3:13(   Читать дальше...   )Жанр: Pop, R&B, DanceПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EF6779B6D10FAC2BDB586BE0FF7D02CC4A8C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067459   (387128) от 29.10.2016
+
+Empire Of The Sun - Two Vines (2016) [FLAC|Lossless|tracks] <Electropop, Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before
+02. High and Low
+03. Two Vines
+04. Friends(   Читать дальше...   )Жанр: Electropop, Indie PopПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45497817D5451C603D6AB9CB6163D02B5907AC56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1414185   (385381) от 08.10.2020
 
 Ruelle - Collection (2014-2020) [FLAC|Lossless|WEB-DL|tracks] <Electro-Pop>
@@ -504,238 +736,6 @@ VA - 1980 The Collection (Time Life) (1994) 2CD[FLAC|Lossless]<Pop, Rock, Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62386A6E0EDA77AE362F3C43CEF063D76EC1CBEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949202   (379467) от 22.10.2015
-
-Al Bano & Romina Power - Felicita (1985) Gold Serie [FLAC|image + .cue]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Felicita (1983) [3:14]
-02. Prima notte d'amore (Enlaces sur le sable) (1983) [2:54]
-03. Sharazan (1983) [4:25]
-04. L' amore e (1983) [3:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3101CE00F90F20267A4635DC7D0399DA4DC072AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575090   (379221) от 08.09.2022
-
-VA - Now Yearbook '80 Extra (2022) 3xCD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul ...>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379221.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Queen – Flash
-02. Blondie – Call Me
-03. Kate Bush –	Army Dreamers(   Читать дальше...   )Жанр: Pop, Funk, Soul ...Продолжительность: 03:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11C73C703E62B56DE86E3C28029BA5623B6E590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949286   (377585) от 23.10.2015
-
-The Beloved - The Sun Rising (2005) [FLAC|image+.cue]<House, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sun Rising
- 02. Your Love Takes Me Higher
- 03. Wake Up Soon
- 04. Up, Up and Away(   Читать дальше...   )Жанр: House, PopПродолжительность: 1:03'00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20E24D3F0A46DB1BDB50CE84F125482904FF9176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949509   (377575) от 23.10.2015
-
-The Beloved - Conscience (1993) [FLAC|image+.cue]<House,Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit (4:46)
-02. Sweet Harmony (5:04)
-03. Outerspace Girl (4:49)
-04. Lose Yourself In Me (4:33)(   Читать дальше...   )Жанр: House,PopПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E5877CE01DEFD888CC9E514F3DDF072FB64771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254146   (377520) от 12.10.2018
-
-General Lafayette - Jester (1993) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377520.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Oh My Beloved Father
-2.	The Power Of Music
-3.	Love In The Eyes Of A Child
-4.	Blow The Trumpet At The New Moon(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D7F5807719B1A47C4AD26CD25B25B9DC036607D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254165   (377519) от 12.10.2018
-
-General Lafayette - King Of The Broken Hearts (1999) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377519.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	King Of The Broken Hearts
-2.	True Love Will Never Die
-3.	Like A Story You Read In A Book
-4.	Country Blues(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48020EDF4B913031BE0477200569577599BBFE24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254135   (377517) от 12.10.2018
-
-General Lafayette - Love Is A Rhapsody (1992) [FLAC|Lossless|image + .cue] <Pop, Ballad, Instrumental>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377517.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Angel In Blue
-2.	For The Girl Who Couldn't Find Love
-3.	Melody For You
-4.	Angelitos(   Читать дальше...   )Жанр: Pop, Ballad, InstrumentalПродолжительность: 00:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CECAF8B8748D7EED7407770DDDE7EA7A33EF4E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253934   (377386) от 12.10.2018
-
-St. Vincent - MassEducation (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Baroque Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Disco
-02. Savior
-03. Masseduction
-04. Sugarboy(   Читать дальше...   )Жанр: Indie Pop, Baroque PopПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F0FDF7C497159AAAF4704D8ECF939D2C21C995
 ```
 
 https://mybot314.ru/tekegram_catalog/

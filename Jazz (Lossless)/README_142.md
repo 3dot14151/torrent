@@ -1,3 +1,61 @@
+###  Публикация: 919857   (581861) от 20.07.2015
+
+Paul Hardcastle - The Chill Lounge Volume 3 (2015) [FLAC|Lossless]<Nu Jazz, Lounge, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desire
+02. Unlimited Love
+03. Don't You Know
+04. Exploring the Deep(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChilloutПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B4899A0C91F2C0E1E95B888AF201297DB8D336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 810964   (581614) от 07.08.2014
+
+Count Basie and his orchestra - Breakfast Dance And Barbecue (2001) [FLAC|Lossless]<Jazz, Swing, Big Band, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Deacon [05:52]
+02. Cute [04:09]
+03. In a Mellow Tone [06:53]
+04. No Moon at All [02:57](   Читать дальше...   )Жанр: Jazz, Swing, Big Band, Vocal JazzПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B6FA6D147B037A124A5E34C2E7EA2B9E33EBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041809   (581569) от 10.08.2016
 
 Art Blakey - Dig That Beat (1959,1960,1961) 3CD, 2012, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
@@ -696,64 +754,6 @@ Jimmie Lunceford - 1939 - 1940 (1991) Classics [FLAC|Lossless|tracks + .cue] <Sw
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE8777D25FE5E745A0B51E8725757B121693CD34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233739   (578169) от 01.07.2018
-
-V.A. - The Smooth Jazz Cruise: The Greatest Party At Sea (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter White - Smile
-02. Rick Braun - Kisses in the Rain
-03. Richard Elliot - License To Chill
-04. Marcus Miller - Blast!(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B99151A370F1E0E9B37B03135959AF7A817D3838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150908   (578148) от 16.07.2017
-
-Nat Adderley Sextet - Work Song: Live at Sweet Basil (1990) 1993, Sweet Basil Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Work Song [10:43]
-02. High Fly [13:06]
-03. In a Sentimental Mood [10:52]
-04. Jive Samba [11:00]Жанр: Hard BopПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4935EAA28AEB01777E35D72625BD5EE11C5F1550
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1139570   (659291) от 03.06.2017
+
+VA - Empire Records - Retromania 2 (2017) [MP3|320 Kbps] <House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Leandro Da Silva - I Love House Music (Club Mix) 5:58
+02.  Funk The Beat & Bruno V - Six Years (Original Mix) 6:08
+03.  Televisor Danyka Nadeau - Odyssey (Highway Superstar Remix) 3:43
+04.  Dimitri From Paris & DJ Rocca - Disco Shake (Jkriv Remix) 6:41(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86498BBBF2580210D0CF77BDD6B103D736A61F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903325   (659141) от 30.05.2015
+
+VA - Sexy Trance #86 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659141.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Running Man - Turn Back Time (Original Mix) (08:24)
+002. Santerna feat. Vadim K - The Maze Of Ice (Club Mix) (07:25)
+003. Snatt & Vix & Denise Rivera - Here For The Rush (Tomas Heredia Uplifting Mix) (07:55)
+004. Solarstone with Aly & Fila - Fireisland (Extended Mix) (07:42)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE0E9D0EEBE2FE407C20DA2D861EBECF47AD1A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539371   (658207) от 25.03.2022
 
 VA - Urban Glow: March Techno Set (2022) [MP3|320 Kbps] <Techno, Minimal, Electro>
@@ -693,64 +751,6 @@ VA - Trance. Vocal Fascination 26 (2012) [MP3|320 кб/с]<Uplifting Trance, Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5813435640D7A7656F09514047DB221B7B30566C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226528   (654706) от 21.05.2018
-
-VA - Synthetic Prototype (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Современную синтетическую популярную музыку от зарубежных исполнителей уже язык не поворачивается назвать просто попсой. Новые технологии, свежие идеи и многолетний опыт позволяет восходящим звездам и знаменитостям создавать настоящую музыку для всех меломанов, даже с самыми специфичными вкусами.001. Erasure - Love You To The Sky
-002. Loewenhertz - Irgendwann
-003. Run Vaylor - Disco Cross
-004. Retouch - Earthquake(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 08:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A9CE943B33732D1858097B50A4136684563D53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226533   (654698) от 21.05.2018
-
-VA - Deep House Collection Vol.171 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654698.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Distance & Riddick - Where Did U Go (Original Mix)
-002. Lucas Keizer - Toxic Desire (Original Mix)
-003. Dassler - Orion Choir (Original Mix)
-004. Barratt - Collider (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3025C281AB38E6DFBF287376A722870E548BA958
 ```
 
 https://mybot314.ru/tekegram_catalog/

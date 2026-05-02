@@ -1,3 +1,32 @@
+###  Публикация: 1429703   (175294) от 08.12.2020
+
+Morreale - Appunti Di Viaggio (2020) [MP3|320 Kbps] <Progressive Rock, Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sehnsucht (01:04)
+ 02. Cronache Per La Fine Di Un'Infanzia (07:13)
+ 03. Gestalt (05:47)
+ 04. Il Tempo Vola (01:46)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:003EB83DFBF6180DAFA271D6DAAD244B7C44348A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1430483   (173888) от 10.12.2020
 
 Sproingg - Clam (2020) [MP3|320 Kbps] <Progressive Rock, Eclectic Prog, Instrumental>
@@ -715,35 +744,6 @@ Pink Floyd - Amsterdamse Bos, Free Concert, Live, 26 June 1971 (2021) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E4A949E406F3A7E0123C6C1D53AAFD02EC89087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516417   (166048) от 11.12.2021
-
-Pink Floyd - Live In Montreux 18 & 19 Sept 1971 (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoes (Live In Montreux 18 & 19 Sept 1971)
-02. Careful With That Axe, Eugene (Live In Montreux 18 & 19 Sept 1971)
-03. Set The Controls For The Heart Of The Sun (Live In Montreux 18 & 19 Sept 1971)
-04. Cymbaline (Live In Montreux 18 & 19 Sept 1971)(   Читать дальше...   )Жанр: RockПродолжительность: 01:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C61CC0108F46FD0B0A93B87AC202B94E777B6C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

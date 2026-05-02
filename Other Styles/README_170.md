@@ -1,3 +1,233 @@
+###  Публикация: 459899   (79120) от 29.02.2012
+
+VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Asher - Red desert (05:39)
+02. Prem Joshua - New kafi (06:17)
+03. Prem Joshua - Mango rain (07:10)
+04. James Asher - Further east (05:25)
+05. Chinmaya Dunster & Vidroha Jamie - Wandering way (04:24)
+06. Music from the World of Osho - Namaste (03:45)
+07. Al Gromer Khan - Agori dance (07:07)
+08. Ustad Usman Khan - Raga hansadhwani (08:57)
+09. Hariprasad Chaurasia - Indian folklore (10:03)
+10. Namaste - Gayatri mantra (09:01)(   Читать дальше...   )2001Жанр: New Age, Meditative, RelaxПродолжительность: 01:11:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:957E9BDA6E72E8F9167CBCA522E1FC083802AB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458848   (78964) от 28.02.2012
+
+Монстр в Париже - Un monstre a Paris (2011) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philippe Peythieu - Interlude: " Les Actualites "
+02. Patrice Renson - La Valse De Paris
+03. Vanessa Paradis - La Seine (Cabaret)
+04. M / Patrice Renson - Emile Et Raoul
+05. Patrice Renson - Sur Les Toits
+06. Patrice Renson - Maynott
+07. Patrice Renson - La Rencontre
+08. M - Un Monstre a Paris
+09. Vanessa Paradis - Interlude: Lucille " Le Baptme "
+10. Patrice Renson / M - Francoeur / Lucille(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:37:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC64889D8DD132C31C37325ACE74750731F0ED27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457463   (78208) от 24.02.2012
+
+Fleur (Flёur) - Пробуждение (2012) [MP3|320 кб/с]<Cardiowave, Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (00:47)
+02. Живое (04:04)
+03. Тридцать семь (04:59)
+04. Шиповник (04:59)
+05. Это будет моим ответом (03:52)
+06. Великое ничто (06:08)
+07. Спасти (03:16)
+08. Вальсаутро (02:00)
+09. Дикое сердце (03:39)
+10. Маятник вечности (06:47)(   Читать дальше...   )2012Жанр: Cardiowave, RockПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:078BE8753E29CA93716E61022643134D995E9186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457061   (77954) от 23.02.2012
+
+Ronan Hardiman - Michael Flatley's Lord Of The Dance (1996) [MP3|320 кб/с]<Celtic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry of the Celts - 4.27
+02. Suil A Ruin - 3.18
+03. Celtic Dream - 5.40
+04. Warriors - 3.08
+05. Gypsy - 2.10
+06. Breakout - 3.49
+07. The Lord of the Dance - 4.47
+08. Spirit in the New World - 1.33
+09. Fiery Nights - 3.10
+10. Lament - 3.24(   Читать дальше...   )1996Жанр: CelticПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCBDCBB5B6CD339B2712147DAE47825DA23A7FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453023   (77829) от 22.02.2012
+
+Future World Music - Дискография (2004-2007) [MP3|192-320 kbps]<Trailer Music>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Trailer MusicПродолжительность: 14:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3E442AB25D063BAF3DA295369560D21AAC7A63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 451460   (75868) от 13.02.2012
+
+Alan Silvestri & VA - Назад в будущее / Back To The Future (1985) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75868.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Huey Lewis & The News - The Power Of Love (3:57)
+2. Lindsey Buckingham - Time Bomb Town (2:47)
+3. Alan Silvestri - Back To The Future (3:20)
+4. Eric Clapton - Heaven Is One Step Away (4:13)
+5. Huey Lewis And The News - Back In Time (4:21)
+6. Alan Silvestri - Back To The Future Overture (8:19)
+7. Etta James - The Wallflower (2:44)
+8. Marvin Berry & The Starlighters - Night Train (2:17)
+9. Marvin Berry & The Starlighters - Earth Angel (Will You Be Mine) (3:01)
+10. Marty McFly With The Starlighters - Johnny B. Goode (3:08)1985Жанр: SoundtrackПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF8A00815EFC3C2FD952FB82F3E8D345049A03AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771370   (71902) от 06.01.2025
+
+VA - The Orient Collective: Sacred Nomads (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yuluka - Bounce Bazar (5:24)
+02. Paolo Lofrè - Doa (7:32)
+03. DaDa Sound Project - Trakia (5:00)
+04. 4Moon Music - Terra (6:12)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABEB259BFC3DC7E4870D521DD28DF1EC35066342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770366   (71805) от 08.01.2025
 
 Амбер (Ambehr) - Бездна (2012) [FLAC|Lossless|image + .cue] <Folk, Power Metal>
@@ -544,209 +774,6 @@ VA - Lost in Thoughts: Sentimental Rock Folk Soundtrack (2025) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C61F3F1AC3B90D5B4722D72B84CCFB5D6E41AFFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791925   (67544) от 23.04.2025
-
-Светлана Калачёва, Александр Ганичев - Песни русской души (2025) [MP3|320 Kbps] <Фолк>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Песни русской души [00:04:01]
-02 - Сердце матери [00:03:56]
-03 - Земля и люди [00:03:42]
-04 - Дочки матери [00:03:36](   Читать дальше...   )Жанр: ФолкПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8845381C81404F61255A48B4FEB21CCC9BC8665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798459   (66626) от 22.05.2025
-
-VA - The Wedding Singer: Music From the Motion Picture (1997) CD, Compilation [FLAC|Lossless|tracks + .cue] <New Wave, Electro, Pop Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Presidents of the United States of America / Video Killed the Radio Star    [0:03:21.30]
-02. Culture Club / Do You Really Want to Hurt Me    [0:04:19.60]
-03. The Police / Every Little Thing She Does Is Magic    [0:04:18.55]
-04. The Smiths / How Soon Is Now?    [0:06:41.73](   Читать дальше...   )Жанр: New Wave, Electro, Pop RockПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111B29578A100FE43C253C185513C9D19400B5DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797565   (66609) от 22.05.2025
-
-Willie Nelson - Oh What A Beautiful World (2025) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66609.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. What Kind of Love (3:42)
-2. Banks of the Old Bandera (3:26)
-3. The Fly Boy & The Kid (3:51)
-4. Forty Miles from Nowhere (4:27)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1FB5FB1D06118D027170D17A2F462D37D2FCEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799064   (66430) от 29.05.2025
-
-Gandharva Loka Orchestra (Оркестр "Гандхарва Лока", Sri Chinmoy, Шри Чинмой) - Gratitude (2014) [FLAC|Lossless|tracks + .cue] <New Age, World, Orchestral>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sundara Hate
-02. Purna Kariya
-03. Sonali Jyotir, Mishe Phulla Dale, Oi Akashe, Sukhero Lagiya, Chitta Dolai
-04. I Can Lift Up 240 Pounds(   Читать дальше...   )Жанр: New Age, World, OrchestralПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D877FBB8B566AFC58C89FBA4333ACC77ACC8FC98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799469   (66386) от 29.05.2025
-
-George Strait - One Step at a Time (1998) CD, HDCD, Album [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Want to Dance With You    [0:03:30.65]
-02. One Step at a Time    [0:04:06.30]
-03. True    [0:03:34.00]
-04. Remember the Alamo    [0:04:31.17](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA8FF7FDB0C0B37E361F9BD62B643A96369F0BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801427   (66208) от 11.06.2025
-
-Hank Williams Sr. - Lonesome Blues (1992) [FLAC|Lossless|tracks + .cue] <Folk, World & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Ain’t Got Nothin’ but Times    [0:02:43.55]
-02. Cold, Cold Heart    [0:02:45.10]
-03. Jambalaya (on the Bayou)    [0:02:54.58]
-04. I’m So Lonesome I Could Cry    [0:02:48.20](   Читать дальше...   )Жанр: Folk, World & CountryПродолжительность: 00:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6F717A16A18A56A1A775687511389A14D208C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802082   (66086) от 15.06.2025
-
-Van Morrison & The Chieftains - Irish Heartbeat (1988) CD, Album [FLAC|Lossless|tracks] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star of the County Down    [0:02:42.15]
-02. Irish Heartbeat    [0:03:51.65]
-03. Tá Mo Chleamhnas Déanta    [0:03:31.35]
-04. Raglan Road    [0:04:56.25](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2689FFC7BFC786A5832CCD905593CE567ED7490E
 ```
 
 https://mybot314.ru/tekegram_catalog/

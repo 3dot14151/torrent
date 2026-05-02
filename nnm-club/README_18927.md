@@ -1,59 +1,25 @@
-###  Публикация: 503354   (259864) от 31.05.2012
+###  Публикация: 1193309   (262151) от 21.12.2017
 
-VA - The Official UK Top 40 Singles Chart (27.05.2012) [MP3|320 кб/с]<Рop, Rok, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Fun Feat Janelle Monбe - We Are Young
-02 The Wanted - Chasing The Sun
-03 Carly Rae Jepsen - Call Me Maybe
-04 Rita Ora Feat Tinie Tempah - R.I.P
-05 Alex Clare - Too Close
-06 Rihanna - Where Have You Been
-07 Paloma Faith - Picking Up The Pieces
-08 Train - Drive By
-09 Gotye Feat Kimbra - Somebody That I Used To Know
-10 Tulisa - Young(   Читать дальше...   )Жанр: Рop, Rok, R&B
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F399606FBA455C987AE7F83FB2E9573EDD579E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503883   (259862) от 31.05.2012
-
-Николай Асанов, Юрий Стуритис | Янтарное море [1964] [RTF, FB2, DOC]
+Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Четверки (10.12.2017) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259862.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Янтарное море - советский шпионский роман.
-Несколько лет назад английская разведка высадила с морского судна на территорию Советского Союза группу своих шпионов. Английские разведчики были убеждены, что они выполнят ряд заданий.
-Два года шпионы жили на советской земле. Англичане праздновали победу. Еще бы, они доказали, что английская разведывательная служба по-прежнему является лучшей в мире!..1964Жанр: ДетективФормат: RTF, FB2, DOC
+10 декабря 2017 года, воскресенье. 13:30 МСК
+4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
+Бобслей. Мужчины-Четверки
+Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E7E3071101AD570A31EA507E8ACE86E5C1D0581
+magnet:?xt=urn:btih:553685EF81111A84F2B014E3F379543461C14C6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -61,53 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503976   (259861) от 31.05.2012
+###  Публикация: 1193332   (262150) от 21.12.2017
 
-Журнал | Сантехника. Отопление. Кондиционирование №3 [2012 март] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ведущее российское ежемесячное, полноцветное, cпециализированное издание в области сантехники, отопления и кондиционирования. Главная миссия журнала - объективно отображать тенденции рынка, доносить до читателей российский и мировой опыт внедрения новых технологий, знакомить с оборудованием и практикой его применения, с современными техническими решениями и инновациями в отрасли.2012 мартФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C550C87BC0E78DF899723F7C3B9DF30BEDA95D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501229   (259860) от 31.05.2012
-
-Larry Coryell Live From Bahia (1992) DVD5
+Горные лыжи. Кубок мира 2017–2018. Альта-Бадия (Италия). Мужчины. Гигантский слалом (17.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Музыкального Видео
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259860.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Larry Coryell родился 2-апреля 1943 года в Техасе. Как водится у многих джазовых музыкантов, музыкой Ларри начал заниматься с раннего детства.
-Он играл как на пианино, так и на гитаре (акустической, а позже и на электро). После окончания факультета журналистики в Вашингтонском университете в 1965 году музыкант переезжает в Нью-Йорк, где знакомится с ударником Chico Hamilton, который приглашает Ларри работать в его джазовом квинтете.
-Годом позже музыкант принимает участие в записи винилового альбома Chico Hamilton s jazz quintet, которая становится для него дебютной. В том же1966 году Ларри становится одним из основателей джаз роковой команды Free Spirit.,brЖанр: Музыка, Latin Jazz, FusionПродолжительность: 00:56:40
+17 декабря 2017 года, воскресенье. 11:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Альта-Бадия (Италия).
+Мужчины. Гигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:54
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B2B43D2C89C204E59AC1AC6EF4A05CF830495609
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -115,29 +56,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838215   (259858) от 21.11.2025
+###  Публикация: 1193308   (262149) от 21.12.2017
 
-Papa Roach - Сollection (1997 - 2022) 17 CD [FLAC|Lossless|tracks + .cue] <Alternative Rock, Nu Metal>
+Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Двойки. 2-я попытка (09.12.2017) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262149.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 декабря 2017 года, суббота. 17:00 МСК
+4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
+Бобслей. Мужчины-Двойки. 2-я попытка
+Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:517C08FC53C1D840F13A6E7199FD6D11AE3234FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193374   (262148) от 21.12.2017
+
+Warfect - Depicting The Macabre (2009) [APE|Lossless|image + .cue] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259858.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262148.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Papa Roach — американская рок-группа из города Вакавилль, штат Калифорния, образованная в 1993 году.
-Обрела мировую известность благодаря своему второму альбому Infest (2000).Альбомы:
-1997 - Old Friends From Young Years
-2000 - Infest
-2002 - Lovehatetragedy(   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 13:13:45
+01. Creation 03:38
+02. Heathen Reigns 04:19
+03. Depicting the Macabre 03:39
+04. Symbol of Submission 03:32(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:40:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFCB0EA693B91F02D89CBB24867D635730A2D732
+magnet:?xt=urn:btih:ECC8A22FDD39CCE1C434985F9DC1535863217210
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -145,185 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503830   (259857) от 31.05.2012
+###  Публикация: 1193424   (262147) от 21.12.2017
 
-Журнал | Т3. Техника третьего тысячелетия №5 (Россия) [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259857.jpg" />
-</div>
-
-
-###  Подробнее
-
-"T3. Техника третьего тысячелетия" - ведущее европейское издание, ориентирующее потребителя в мире последних достижений в области аудио/видео техники, компьютеров и Интернета, мобильной связи, фотографии, техники для отдыха и развлечений. Находящийся на стыке Lifestyle и техно-сегментов, журнал ориентирован на успешных людей, которые стремятся всегда быть на острие прогресса.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC63A007F2A02DB00C2D3A2D40792C2557EC17F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 501769   (259855) от 31.05.2012
-
-CIFRAmagazine.com | Электронный журнал CIFRAmagazine №04 [2012] Screencast
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259855.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео уроки по различным полезным программам, плагинам и скриптам.Жанр: обучающее видеоПродолжительность: ~ 5-10 минут (общее 0:49:14)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F03DF61330C8987ED0A7EB9DA26D8674BCB0A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838267   (259854) от 21.11.2025
-
-Однажды в России (2025.11.21) IPTV [H.264/1080p]
-
->>Юмор (ТВ)
->>ПостКВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259854.jpg" />
-</div>
-
-
-###  Подробнее
-
-Россия - богатейшая страна, в которой много нефти, газа и проблем. ТВ-Шоу на ТНТ "Однажды в России" не решает ни одной из них. Оно над ними смеется. Участники шоу разыгрывают скетчи на сцене перед зрителями. Их снимают камеры. Это шоу - реальное театральное действие, совмещенное с кинопроизводством.Телекомпания: ТНТЖанр: ЮморУчастники: Азамат Мусагалиев, Екатерина Моргунова, Тимур Тания, Ольга Картункова, Александр Пташенчук, Максим Киселёв, Денис Дорохов, Заур Байцаев, Давид Цаллаев, Яна Кошкина и др.Субтитры: ОтсутствуютПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179C10D249E440BD195F78B156DBBAD4AA68EF41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838269   (259851) от 21.11.2025
-
-Microsoft Visual Studio 2026 Enterprise 18.0.1 (Offline Cache) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Встреча Visual Studio 2026 - это один из самых амбициозных шагов вперед, которые мы предприняли в отношении IDE. В этом выпуске искусственный интеллект напрямую интегрирован в рабочий процесс разработчика, улучшена производительность, которая меняет ожидания относительно скорости в масштабах предприятия, а современный дизайн делает рабочую среду более легкой и целенаправленной. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4192B64C71CE4B22566D70B075AD82B9B10F399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838270   (259849) от 21.11.2025
-
-Process Lasso Pro 17.0.0.47 Beta RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3192F90AFF3BF6091A48400852B38D0FD5417857
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503749   (259846) от 31.05.2012
-
-Contraption Zack [En] (RePack) 1992 | RG Games (Pilotus)
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259846.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом необычном изометрическом паззле вам предстоит побыть в роли новичка на заводе по имени Зак. В первый же день ваши сослуживцы решили поприкалываться и спрятали все ваши инструменты в разных местах. А тут босс к себе вызывает. Что делать, придется собирать инструменты по дороге. Сразу хочу сказать, что хотя место действия - завод, мрачных однообразных цехов, непонятных машин, труб и конвейеров вы не увидите. Вместо всей этой скукоты глазам предстанут все цвета радуги - разноцветные кнопки, разнообразные покрытия полов, уж не говоря о красивейших рисованных заставочках!
-Игра делится на весьма объемные уровни, в каждом из которых необходимо выполнить задание, которое выдает босс (например, заполнить резервуар водой). Уровни же состоят из отдельных экранов, между которыми можно ходить. На каждом экране множество кнопок, рычагов и других объектов. Так что основная деятельность Зака состоит в бегании по этим экранам. Правда, после того, как он с вашей помощью найдет свои инструменты, то сможет чинить протекающие (   Читать дальше...   )Тип издания: RePackЖанр: Аркада, стратегия, логикаЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838262   (259845) от 21.11.2025
-
-VA - The Orient Collective: Journey Within (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+VA - Best of Afterworld (2017) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
-02. Inessa, Tibetania - Kalahari (Original Mix) (5:45)
-03. Ildar Bik, Tibetania - Kids (Original Mix) (6:08)
-04. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:39
+01. Men-D - Vine napoi (Original Mix)
+02. Eric Maes - Circular Time (Original Mix)
+03. Zirenz, Men-D - Valhalla (Original Mix)
+04. NRGFactory - Behind the Light (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:27:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E0D8C488C54DCFA41954CB15A26D4B1BA3B96D2
+magnet:?xt=urn:btih:DCAD17359A3EFB3621687EDEDC2BF658A701BE71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,25 +143,460 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504098   (259844) от 31.05.2012
+###  Публикация: 1193604   (262146) от 21.12.2017
 
-Журнал | Вяжем для детей. Спицы. № 3/С [2012] [PDF]
+VA - Subculture - The Singles (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Denton – Curtain Call (Original Mix)
+02. Bryan Kearney – Adrenaline (Original Mix)
+03. Craig Connelly & Jessica Lawrence – How Can I (John O'Callaghan Extended Remix)
+04. Cold Blue – Once in Time (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B367CC838795F3C17E4F07C1BEFD36F781BF608C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193390   (262145) от 21.12.2017
+
+Hellwitch - Syzygial Miscreancy (1990) Remastered, 2017 [FLAC|Lossless|image + .cue] <Technical Death Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ascent
+02. Nosferatu
+03. Viral Exogence
+04. Sentient Transmography(   Читать дальше...   )Жанр: Technical Death Metal, Thrash MetalПродолжительность: 01:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4772CBA5298481479B7F4C099303BC2F7895013A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193612   (262144) от 21.12.2017
+
+VA - The Best Of Suanda Base (Mixed by Ahmed Helmy) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mantra, Ruslan Radriges & Lucid Blue – Take Me Higher (Club Mix)
+02. Nathia Kate, Robin Vane & Russian Dolls – Always (Ruslan Radriges Remix)
+03. Twin View – Bubblegun (Ruslan Radriges Remix)
+04. UltraNova – V1! Rotate! (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C223810CDFFECA6125D47B5DAAC1A8D40FDBF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193586   (262143) от 21.12.2017
+
+VA - DJ Box - Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Oakenfold – Deep Space (Original Mix)
+02. Freejak & Martay M'Kenzy – Out of Breath feat. Martay M'Kenzy (Extended Mix)
+03. Tilt & Ruby Turner – Deeper in Love feat. Ruby Turner (Original Mix)
+04. Cory Enemy & Chris Bushnell – Keep It Coming (Club Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA806BED85E36EE1E14667D0CAFF560A8017577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193311   (262142) от 21.12.2017
+
+Warfect - Exoneration Denied (2013) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exoneration Denied
+02. Drone Wars
+03. Filled with Hate
+04. Inflammatory(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D97880F7600466AF09ED3A7ADB2FDAB14F27D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193432   (262141) от 21.12.2017
+
+VA - Christmas Trance 2018 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Numark - Story of A Little Elf (Original Mix)
+02. CJ Stereogun - Margarita's Heart (Original Mix)
+03. Dreaman - Justice (Original Mix)
+04. Emotion Love - Secrets of Life (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6962085561412A43B360AD64B89966EC5CA9CBD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193430   (262140) от 21.12.2017
+
+afarOne - Lucen (2012) Karlrecords [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, Modern Classical, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apart (05:10)
+02. Due (06:07)
+03. Naked Icon (06:55)
+04. El Sueno De La Razon (05:47)(   Читать дальше...   )Жанр: IDM, Leftfield, Modern Classical, AmbientПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC13E3EB1162345F338F9CE9A97DD9EC058DEBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193428   (262139) от 21.12.2017
+
+Andrea Belfi - Ore (2017) Float [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Minimal, Contemporary Jazz, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anticline (10:01)
+ 02. Iso (05:58)
+ 03. Lead (05:54)
+ 04. Ton (12:21)(   Читать дальше...   )Жанр: Ambient, Experimental, Minimal, Contemporary Jazz, DowntempoПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79477BC85C7EF4497A0C80E451F4508FF1B17651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193377   (262138) от 21.12.2017
+
+Warfect - Scavengers (2016) [FLAC|Lossless|image + .cue] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Purveyors of Cadavers
+02. Reptile
+03. Anatomy of Evil
+04. Watchtowers(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB85A2C4F69E41EE21748AE7E19E990072FF281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193409   (262137) от 21.12.2017
+
+B.E.N.T. - Eleven (2001) [FLAC|Lossless|image + .cue] <Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hit The Road
+02. Evil Greazer
+03. Brain Trust
+04. Nightscape(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04E921B630489EC5C0B1E52F7F7F97304070B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193425   (262136) от 21.12.2017
+
+Marcus & Martinus - Moments (2017) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make You Believe In Love (03:33)
+02. Please Don't Go (03:23)
+03. Next To Me (03:00)
+04. One Flight Away (03:23)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8CA82D49E75404ADD82A2D0A0554EA3279648E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193444   (262135) от 21.12.2017
+
+Broken Thoughts - Keju Luo (昆明市) - Discography 8 Releases (2011-2017) [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Modern Classical, Ambient, Drone, Minimal>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subatomic Days (05:00)
+ 02. Losslessness (05:00)
+ 03. Douglas Firs (05:00)
+ 04. The Primal Forces Of Nature (05:00)(   Читать дальше...   )Тип издания: WEBЖанр: IDM, Experimental, Modern Classical, Ambient, Drone, Minimal •Продолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9527964DBDC05DFBA26031B0C70535C34C0D52AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193455   (262134) от 21.12.2017
+
+Brunori Sas - A Casa Tutto Bene (2017) [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Verità (05:02)
+02. Luomo Nero (04:28)
+03. Canzone Contro La Paura (03:44)
+04. Lamezia Milano (03:53)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4ACB198147C457E1AFB24F337D5B511C425599C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193297   (262133) от 21.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.22 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Al Bano & Romina Power  -  Il Ballo Del Qua Qua  2:50
+02.  Pupo  -  Vita Da Artista  3:19
+03.  Toto Cutugno  -  Solo Noi  4:07
+04.  Umberto Tozzi  -  Tu Piccolo  4:44(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBE19C4C8B4815332E7B3D826AEA34CBF8C7DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193338   (262132) от 21.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.24 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tony Dallara  -  Come Prima  2:05
+02.  Schola Cantorum  -  Il Calendario  2:31
+03.  Pupo  -  La Vita E Molto Di Piu  3:15
+04.  Riccardo Fogli  -  Malinconia  4:01(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AA5A56E4AC0F06439C86160EA3DA701214177CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193396   (262131) от 21.12.2017
+
+Журнал | Жилая среда №10 (142) (ноябрь 2017) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Спецвыпуск журнала по вязанию спицами посвящен весенне-летней одежде для детей в возрасте до 12 лет. Жакеты, джемперы, пончо, топы, шапочки и другие аксессуары – нарядно, романтично, воздушно, удобно!2012Формат: PDF
+Все об интерьерном дизайне: от международных выставок до реализованных проектов петербургских архитекторов. Средства реализации идей: товары, материалы, технологии.Жанр: Дизайн интерьеровФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BE1E31961D9A72427D6DC51E84ED24394C30142
+magnet:?xt=urn:btih:498749DBF897C4418A8E67788A0232EF5683C23E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,34 +604,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 503713   (259843) от 31.05.2012
+###  Публикация: 1193466   (262130) от 21.12.2017
 
-John Chen - Songs From Within (1999) [MP3|320 кб/с]<Instrumental, Guitar>
+Сергий Нилус | Святыня под спудом (2005) [FB2, EPUB, PDF]
 
->>East Asian Music
->>Other Asian
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(4:48) 01. Reposedly
-(4:48) 02. Autumn Water
-(5:18) 03. Five Elements
-(4:57) 04. From Within
-(4:20) 05. Thoughts of Zen
-(5:07) 06. Essence
-(5:40) 07. Without Intent
-(2:57) 08. Destiny
-(5:00) 09. Quietly
-(5:08) 10. From Within(   Читать дальше...   )1999Жанр: Instrumental, GuitarПродолжительность: 00:52:49
+Жанр: ПравославиеФормат: FB2, EPUB, PDF (для Букридеров Amazon Kindle, Sony Reader и др.)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FDE015CCA7171393D3D9E2B8960F8A714B28E66
+magnet:?xt=urn:btih:B10D52B4966D2DDFE85944DD52E27530D4F8BEA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,28 +630,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838275   (259842) от 21.11.2025
+###  Публикация: 1193531   (262129) от 21.12.2017
 
-Def Leppard - Diamond Star Heroes Live From Sheffield (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+Beegie Adair & Friends - Christmas & Cocktails (2011) Green Hill Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Vocal Jazz, Christmas>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. This Guitar (Live) (5:57)
-02. When Love And Hate Collide (Live) (3:01)
-03. Take What You Want (Live) (4:42)
-04. Lets Get Rocked (Live) (4:47)(   Читать дальше...   )Жанр: RockПродолжительность: 01:26:02
+01. Beegie Adair - Let It Snow, Let It Snow, Let It Snow (2:57)
+02. Denis Solee - Winter Wonderland (3:58)
+03. Beegie Adair & Jaimee Paul - Jingle Bells/Jolly Old St. Nicholas (3:22)
+04. Lori Mechem (feat. Jack Jezzro) - White Christmas (4:04)(   Читать дальше...   )Жанр: Mainstream Jazz, Vocal Jazz, ChristmasПродолжительность: 00:56:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30DC5CE984D6DFA6DCB42D43DBAD9C2DC494A6B0
+magnet:?xt=urn:btih:C2B72F823BDCCF57BB43E73EB1A87AAC2363C003
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,297 +659,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 504065   (259841) от 31.05.2012
+###  Публикация: 1193324   (262128) от 21.12.2017
 
-Mato Grosso - Native Indian's Music (2006) [MP3|320 кб/с]<Native American, Panflute, Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day's Beginning
-02. Night Song
-03. In The Midst Of The Path
-04. The Caller
-05. Dancing Under The Moon
-06. Ghost Dance
-07. Buffalo Trail
-08. Spot Song
-09. The Last Of The Mohicans
-10. Return Jornet(   Читать дальше...   )Жанр: Native American, Panflute, Instrumental, New AgeПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743D14347AD3E09C04738C19586263EAA04D521E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838272   (259840) от 21.11.2025
-
-Microsoft Visual Studio 2022 Enterprise 17.14.21 (Offline Cache) [Ru/En]
-
->>Софт и оболочки для специалистов, Прочее
->>Разработка ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio — это мощное средство разработчика, которое можно использовать для выполнения всего цикла разработки в одном месте. Это комплексная интегрированная среда разработки (IDE), которую можно использовать для записи, редактирования, отладки и сборки кода, а затем развертывания приложения. Visual Studio включает компиляторы, средства завершения кода, управление (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E6CD7043E60B9D609A1EC9B8A74BAFC77C4C80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 439398   (259838) от 21.11.2025
-
-Фарт (2005) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отставной офицер Петр приезжает в сибирскую тайгу искать золото. Приезжает, ни на что особо не надеясь и искренне считая себя неудачником. Ему удается найти золото и отбиться от непрошенных гостей. И вот уже вертолёт должен забрать его и соседей — артельщиков на Большую землю, но в ночь перед вылетом на подгулявшую в честь окончания сезона артель нападают бандиты. (   Читать дальше...   )Жанр: Приключения, БоевикРежиссер: Роман Хрущ, Игорь Андрейчук, Юлия ПокровскаяАктеры: Евгений Цыганов, Яна Есипович, Сергей Цепов, Сергей Ступников, Вадим Александров, Александр Голубев, Борис Каморзин, Олег Жуков, Петр ЗайченкоСубтитры: отсутствуютПродолжительность: 01:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE7EF923419007FF526BD3DDAE280E1CFD26CD38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838278   (259837) от 21.11.2025
-
-Коба / Koba (2025) WEBRip [H.265/2160p] [4K, SDR, 8-bit] (сезон 1, серии 1-4 из 8) (обновляемая)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коба, одержимый поиском правды о гибели своей девушки Алии, возглавляет межведомственную оперативную группу. Вместе с коллегами — Батыром, Аблаем и стажёром Олжасом — он погружается в опасный мир криминальных разборок, где оружие и торговля людьми тесно переплетены с коррупцией в высших эшелонах власти. В ходе расследования команда вскрывает связь между могущественным (   Читать дальше...   )Производство: Казахстан / Qulaqsal Creative StudioЖанр: драма, триллер, криминалРежиссер: Нуржан ЕркинулыАктеры: Кобыланды Болат, Аблай Салимханов, Жалгас Жангазин, Базил Султангазы, Азиз Бейшеналиев, Асан Мажит, Кайрат Адилгерей, Назар Шархан, Бахтияр Кожа, Мурат ЖарылкасиновЯзык озвучки: Русский, казахскийСубтитры: Русские (forced, full)Продолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554F8905A8A49948EDA07B248F337F9A868B49F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838273   (259836) от 21.11.2025
-
-MAX Desktop 25.17.0 [Ru]
-
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259836.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрое и лёгкое приложение для общения и решения повседневных задач. Общайтесь в удовольствие благодаря высокому качеству связи и быстрому соединению даже в сетях со слабым сигналом. Анимированные стикеры, реакции в чатах, возможность отправки файлов до 4 ГБ – все необходимое для того, чтобы делиться настроением и важной информацией. В MAX можно войти сразу с нескольких (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91823C2087281F7B5663F04400D04AE545CB2FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838279   (259834) от 21.11.2025
-
-Коба / Koba (2025) WEBRip [H.264/1080p] (сезон 1, серии 1-4 из 8) (обновляемая)
-
->>Зарубежные сериалы
->>Сериалы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259834.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коба, одержимый поиском правды о гибели своей девушки Алии, возглавляет межведомственную оперативную группу. Вместе с коллегами — Батыром, Аблаем и стажёром Олжасом — он погружается в опасный мир криминальных разборок, где оружие и торговля людьми тесно переплетены с коррупцией в высших эшелонах власти. В ходе расследования команда вскрывает связь между могущественным (   Читать дальше...   )Производство: Казахстан / Qulaqsal Creative StudioЖанр: драма, триллер, криминалРежиссер: Нуржан ЕркинулыАктеры: Кобыланды Болат, Аблай Салимханов, Жалгас Жангазин, Базил Султангазы, Азиз Бейшеналиев, Асан Мажит, Кайрат Адилгерей, Назар Шархан, Бахтияр Кожа, Мурат ЖарылкасиновЯзык озвучки: Русский, казахскийСубтитры: Русские (forced, full)Продолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667601DBA6203F61657D6F807C6767935CB36EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 556905   (259831) от 21.11.2025
-
-Оазис любви (2012) DVD5
-
->>Отечественное кино
->>Отечественные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259831.jpg" />
-</div>
-
-
-###  Подробнее
-
-Светлана — мать-одиночка, живущая с дочерью-студенткой Лерой. Отец ее дочери оставил семью еще до рождения девочки. Но основные жизненные трудности Светланы уже позади, и, наконец, она на седьмом небе от счастья. После долгих лет одиночества давно ухаживавший за Светланой сослуживец предложил ей выйти замуж. Но дочь Лера вовсе не в восторге от предстоящего родства (   Читать дальше...   )Производство: Россия, Грин-фильмЖанр: МелодрамаРежиссер: Артем НасыбулинАктеры: Дарья Бондаренко, Алена Хмельницкая, Алексей Красноцветов, Олег Алмазов, Лариса Игнатенко, Жанат (Жан) Байжанбаев, Дастен Шакиров, Торгын ТасыбековаСубтитры: ОтсутствуютПродолжительность: 01:35:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB761DEE0B22E010E43858DCD7A63CB9B64DB800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838283   (259828) от 21.11.2025
-
-Oxygen Not Included (2019) [Ru/Multi] (700386/dlc) Repack Necros [Complete Bundle]
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259828.jpg" />
-</div>
-
-
-###  Подробнее
-
-В игре-симуляторе космических колоний «Кислород не включен» вы обнаружите, что недостаток кислорода, тепла и средств к существованию является постоянной угрозой выживанию вашей колонии. Проведите колонистов через опасности подземной жизни астероидов и наблюдайте, как их население растет, пока они станут не просто выживать, но процветать. И убедитесь, что вы не забыли (   Читать дальше...   )Тип издания: RepackРазработчик: Klei EntertainmentЖанр: Инди, СимуляторыЯзык озвучки: Русский, Английский, Китайский (упрощенный), КорейскийЯзык интерфейса: Русский, Английский, Китайский (упрощенный), Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C7B17CBABB28CA0E8D615473C1A7DB1C00080A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838197   (259826) от 21.11.2025
-
-Шрифты - Behance - Maria Mamonova - BLOCKY CIRCLE - 238446325 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259826.jpg" />
-</div>
-
-
-###  Подробнее
-
-BLOCKY CIRCLE - это шрифт, созданный на базе самых простых форм по принципу простого конструктора. Он подойдет для ярких заголовков или плакатов.Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB193B2D10B8DE822DC4B69CA1CD4FC225ADEF95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838289   (259824) от 21.11.2025
-
-Сергей Козлов | Как Львёнок и Черепаха отправились в путешествие (2020) [MP3, Александр Бордуков]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259824.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Любимые сказки.
-«Как львёнок и черепаха отправились в путешествие»  волшебная сказка классика детской литературы.
-В этой истории черепаха так любила своего друга, маленького львёнка, что после долгой разлуки крепко обняла его и даже заплакала. Мир сказок Сергея Козлова наполнен невероятно искренними и теплыми чувствами, а отношения между его персонажами (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: ООО «Вимбо»Продолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54AEAC6E183F9DF53745DFBF0F177B14546A5657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503558   (259823) от 31.05.2012
-
-С.Н. Семанов | Памятник  "Тысячелетие России" [1974] [PDF]
+VA - Capriccio All’italiana: Italian Hit Parade Vol.23 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Памятник  «Тысячелетие России» был открыт 8 сентября 1862 года. Своими очертаниями он напоминает гигантский колокол, опущенный на землю. Вот уже около ста пятидесяти лет этот памятник украшает центральную площадь Новгородского кремля.
- Автор монумента – замечательный русский художник Михаил Осипович Микешин.1974Формат: PDF
+01.  Al Bano & Romina Power  -  Libertа  4:21
+02.  Patrizio Puanne  -  You're My World (il Mio Mondo)  3:06
+03.  Bobby Solo  -  Zingara  2:43
+04.  Fausto Leali  -  Ci Sei Solo Tu (I've Been Loving You Too Long)  3:50(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B542245E963FEB8013CF5DA5851DE6E5906470D0
+magnet:?xt=urn:btih:09D51E1F7EEE9797741ABF596E0D54ED740F0386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193304   (262127) от 21.12.2017
+
+Radiation Romeos - Radiation Romeos (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radiation Romeos
+02. Ocean Drive
+03. Bad Bad Company
+04. Mystic Mountain(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F18DE7175418F436C92BC743B2FB7770CD3DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193457   (262126) от 21.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.26 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Raffaella Carra'  -  A Far L'Amore Comincia Tu  2:42
+02.  Carmelo Pagano  -  L'Amore Se Ne Va  2:52
+03.  Umberto Tozzi  -  Notte Chiara  4:15
+04.  Gianni Morandi  -  Se Non Avessi Piu Di Te  2:55(   Читать дальше...   )Жанр: PopПродолжительность: 02:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:644F8D2EF2ABFFE4711051AAE71EDB12BAD4C3C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

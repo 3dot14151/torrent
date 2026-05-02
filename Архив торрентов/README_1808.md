@@ -1,3 +1,250 @@
+###  Публикация: 1141931   (644172) от 13.06.2017
+
+Красавица и чудовище / Beauty and the Beast (2017) BDRip [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обозлённая Волшебница превратила принца Адама в отвратительное чудовище за то, что тот был злым, самовлюблённым и грубым. Чтобы снять чары с себя и слуг своего замка, ему необходимо научиться быть добрым, любить и быть любимым. Произойти это должно до того, как с розы, подаренной Волшебницей, упадёт последний лепесток.
+
+В далёкой деревушке живёт красивая девушка (   Читать дальше...   )Производство: СШАЖанр: Мюзикл, Фэнтези, Мелодрама, СемейныйРежиссер: Билл КондонАктеры: Эмма Уотсон, Дэн Стивенс, Люк Эванс, Джош Гэд, Кевин Клайн, Хэтти Морахэн, Хейдн Гвин, Джерард Хоран, Рэй Фиарон, Эван МакГрегорПеревод: Дублированный (iTunes)Субтитры: Русские, английские (full, SDH Colored)Продолжительность: 02:09:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2306D862264456462C2547F246C6501C1A043AFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142264   (644170) от 13.06.2017
+
+DAEMON Tools Lite 10.5.1.232 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Daemon Tools - маленький по размеру, но мощный по возможностям эмулятор CD/DVD-драйвов - позволяет "подцепить" любой образ диска, сделанный какой-нибудь утилитой для копирования дисков (например, CloneCD), т.е. может работать с какими угодно "дисками" - даже с PlayStation. Точно также в этот эмулятор можно "вставить" скопированные на (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A11C2C4CBB7269B3A234F81C090A29E1BCE4DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031887   (644120) от 08.07.2016
+
+Баскетбол. НБА. Плей-офф 2016. Финал. 6-я игра. Кливленд Кавальерс (Кливленд) - Голден Стэйт Уорриорз (Окленд) (16.06.2016) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644120.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 июня 2016, пятница. 04:00 МСК
+Финал. 6-й матч
+Стадион:  Куикен Лоанс-Арена (Кливленд, США) , 20562 зрителя (100 % при вместимости 20562)
+Судьи:  Скотт Фостер (Силвер Спринг, США); Кен Мауэр (Сент-Пол, США); Джейсон Филлипс (Визерфорд, США)(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: Русский (Игорь Знаменский, агент Тимофея Мозгова Максим Шарифьянов)Продолжительность: 02:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA746D90C91BA2C835BE462D6669A47DDD90248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032636   (644117) от 08.07.2016
+
+VA - Levitated Vol. 1 (Mixed by Manuel Rocca) (2016) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen Belg - Hammamet (Original Mix) (6:31)
+02. Alex Wright - Galactica (Original Mix) (7:06)
+03. Cyre & DJ T.H. - Ibiza Calling (Mhammed El Alami & Manuel Rocca Remix) (6:17)
+04. Blue5even - Island Paradise (Original Mix) (6:22)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BB4ADD1DE3DD0EBF478BACBB831102B028CB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346973   (644063) от 06.06.2011
+
+Paradox - Ramifications (2011) /PMLPCD 02/ [MP3|320 kbps]<Drum'n'Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_644063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Drum'n'BassПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0041D103AF7DCA23B15AF161B9591593040A84F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 752220   (644056) от 27.06.2014
+
+Подшивка журналов | Знаменитые династии России №1-20 (2014) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Уникальная коллекция журналов, посвященная прославленным российским фамилиям, оставившим неизгладимый след в истории нашего государства. Серия рассказывает о людях, которые управляли страной в дни мира и войн, которые одерживали блестящие победы, открывали новые земли, делали открытия в науке и технике, добивались невероятных успехов в литературе и искусстве.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520FB36BBC83EB07EDA390C345D336217BEDDA6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 680143   (644035) от 16.07.2013
+
+Policenauts [PS1] [En, Ja] (1996)
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Культовая игра про поездку детектива на космическую колонию для расследования убийства его бывшей жены и внезапного исчезновения её нового мужа.
+
+В раздаче также имеется руководство по игре.Разработчик: KonamiЖанр: КвестЯзык озвучки: ЯпонскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87E0D30EF03016F9A00A6C681275F9E04FC1738A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032368   (644025) от 08.07.2016
+
+XMedia Recode 3.3.3.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644025.jpg" />
+</div>
+
+
+###  Подробнее
+
+XMedia Recode - отличная утилита, цель которой - помочь Вам преобразовать видео почти любого формата в видео, совместимое с мобильными телефонами, плеерами, портативными носителями, игровыми приставками. Дружественный интерфейс позволит Вам сориентироваться в функционале и возможностях программы. XMedia Recode способна производить изменение размеров кадра видео, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4FE2BFF29EBDB72818D7452368198A334DC5532
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032765   (644019) от 08.07.2016
+
+Paws for Trello 1.0.11 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paws for Trello красивый Trello клиент для Mac.
+Trello уже полон полезных ярлыков и опций. В том числе сочетания клавиш, drag & drop и многое другое.
+
+- Красивый минимальный интерфейс, который позволяет Вам оставаться продуктивным.(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 июля 2016Разработчик: Milosz FalinskiПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83DB8B674A0F91754821AD79649CB040AD3509B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032681   (644015) от 08.07.2016
 
 Нина Роуэн | Страсть к удовольствию (2016) [FB2]
@@ -496,278 +743,6 @@ Josh Turner - Punching Bag. Deluxe Edition (2012) [MP3|320 кб/с]<Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36C085D6FF14215D45D7D913BDC5627459EC0775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518174   (643871) от 03.07.2012
-
-Oliver/Dawson Saxon - Motorbiker (2012) [MP3|320 кб/с]<Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chemical Romance
-02. Motorbiker
-03. Whippin' Boy
-04. No Way Out
-05. Just Another Suicide
-06. Sinternet
-07. Ghost
-08. Nevada Beach
-09. Screaming Eagles
-10. World's Gone Crazy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8007F7AA9EBD62909B6AD08C046911C796AD87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518279   (643870) от 03.07.2012
-
-VA - Dance Club Party Vol.5 (2012) [MP3|256 кб/с]<Dance, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643870.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Young Rebels & Francesco Diaz - Timbuktu (Original Mix) (6:15)
-2. Victoria Aitken - Weekend Lover (Sean Finn Radio Edit) (3:58)
-3. Voxxmore feat. Starla Edney - Zero21 (Never Let You Go) (Radio Mix) (4:35)
-4. Darius & Finlay feat. Carlprit & Nicco - Do It All Night 2k12 (CK Stone Mix Edit) (2:59)
-5. Scooter & Lavelle & Sue Cho - Beats Inside My Head (Minero Remix) (5:48)
-6. Pryda - You (Original Mix) (6:58)
-7. Mike - D Feat. Nensi - All I Want (Infected Culture Radio Edit) (3:26)
-8. Andrea Verona Feat. Jama - La Pasion (Ratatouille Radio Edit) (3:22)
-9. Picco & Pleasurekraft - Mi Cafe (Stanislav Shik & Denis Rook Mashup) (5:39)
-10. Medina - Forever (DJ Tonka True House Mix) (4:32)Жанр: Dance, ClubПродолжительность: 08:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95AB753E0C46FA7DEA43B12DEC2341280B4E2EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518503   (643869) от 03.07.2012
-
-Black Messiah - The Final Journey (2012) [MP3|320 кб/с]<Symphonic Black/Power/Folk/Viking Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643869.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Windloni
-2. Der Ring Mit Dem Kreuz
-3. To Become A Man
-4. Into The Unfathomed Tower (A Tribute To Candlemass)
-5. Feld Der Ehre
-6. Lindisfarne
-7. The Naglfar Saga: Prologue - The Final Journey
-8. The Naglfar Saga: Mother Hel
-9. The Naglfar Saga: On Board
-10. The Naglfar Saga: Sailing Into EternityЖанр: Symphonic Black/Power/Folk/Viking MetalПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E584D7F1DC6740DCC5E53A8410E75AF7C16B5D43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 346766   (643859) от 06.06.2011
-
-NHL 10/11, SC: Финал, матч №2: Boston Bruins vs Vancouver Canucks (04.06.2011) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. NHL. Кубок Стэнли, финал, 2-й матч, Boston Bruins против Vancouver Canucks.Жанр: Спорт, хоккейТелекомпания: Формат: MPEG-4Продолжительность: 01:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739666AFD4FBEFA611F51A2F6CC4BE2621C2146D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 346216   (643847) от 06.06.2011
-
-Очная ставка. Мать - убийца (2011) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_643847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Они забеременели, чтобы удержать своих любовников.
-А когда план не сработал, дети им оказались не нужны…
-Почему ребенок превращается в средство шантажа и как матери становятся безжалостными убийцами?Жанр: ДокументальныйПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CF1ACF8FB5AC40441D8CB646BABCC569C6EA1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906756   (643817) от 09.06.2015
-
-Специальный репортаж. Приговор долгу (2015.06.08) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643817.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 июля в Литве будет оглашён заочный приговор бывшим командирам вильнюсского ОМОНа, которые в начале 1991 года отказались подчиниться новым республиканским властям. Тогда во время политического двоевластия погибли 14 человек.Телекомпания: ТВЦЖанр: ДокументальныйПродолжительность: ~ 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF298FA09592714ACB28D38C7943981299FA99C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906486   (643816) от 09.06.2015
-
-Noturnall - Back to F*ck You Up! (2015) [MP3|320 кб/с]<Progressive Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enquanto a Tregua Nao Vem... 00:40
-02. Back to Fuck You Up! 03:28
-03. Zombies (The Holy Trinity) 06:03
-04. Fight the System 04:31(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F95762EDD88523465CE454C0992F847C2909796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032676   (643813) от 08.07.2016
-
-SiteSucker 2.8.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643813.jpg" />
-</div>
-
-
-###  Подробнее
-
-SiteSucker. Альтернативный менеджер загрузки сайтов
-SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
-
-SiteSucker умеет загружать сайт (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июля 2016Разработчик: Richard CraniskyПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Испанский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08A4D6C27A37218E78C09BA20A316CDF9FF0DDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032573   (643810) от 08.07.2016
-
-Ivy Sole - Eden (2016) LP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost Without You (2:35)
-02. All Mine (3:46)
-03. The Vow (2:58)
-04. You Don't Know My Name (4:09)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599F3B7122C3E79ED843417507753CBF599F52B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

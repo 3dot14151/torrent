@@ -1,3 +1,119 @@
+###  Публикация: 1502638   (826939) от 15.10.2021
+
+Frank Marino - Full Circle (1986) [FLAC|Lossless|tracks + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826939.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Breakin' Away
+2. Imagine
+3. When Love Is Lost
+4. Razor's Edge(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3A16B4900C0B6944EB03254B3B0AD8F6288BDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115837   (824967) от 19.03.2017
+
+Scarlet Rain - Eleventh Hour (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fall (4:38)
+02. Beyond The Sky (5:56)
+03. Nameless (5:30)
+04. Adamante (4:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49CC6FE0D58DCE8CCB704181628CD85457F4CA2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502574   (824942) от 16.10.2021
+
+Wicked Smile - Wait For The Night (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Date With The Devil
+02. Wait For The Night
+03. We Fall
+04. Sign Of Times(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E871543A997528B18107B8E36DA6F3E3D4BD569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502609   (824940) от 16.10.2021
+
+Alcatrazz - V (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guardian Angel
+02. Nightwatch
+03. Sword Of Deliverance
+04. Turn Of The Wheel(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830178860AA6A584D84ED2C907EAB637CC014EDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116392   (824781) от 19.03.2017
 
 Black Star Riders - Heavy Fire (2017) Limited Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -632,124 +748,6 @@ ZZ Top — американская блюз-рок-группа, основан
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F7F472F46D6016F7F9FECD022E599F2A7DD5A00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505200   (806512) от 26.10.2021
-
-Winter Rose - Winter Rose (1989) Japanese Edition, Reissue, 1997, Victor [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806512.jpg" />
-</div>
-
-
-###  Подробнее
-
-Winter Rose (в переводе с англ. — «зимняя роза») — канадская хард-рок-группа, образованная в Монреале. Группа выпустила лишь одноимённый альбом в 1989 году, вскоре после чего развалилась. В 1997 году альбом был переиздан немецким лейблом InsideOut Music.
-
-Группа появилась в середине 1980-х и называлась Hope. В её состав входили гитарист Ричард Чики и (   Читать дальше...   )01. Asylum City (3:34)
-02. I'll Never Fall In Love Again (3:49)
-03. Rough Boys (4:26)
-04. Dianna (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4E63D8DF8044C34DA5BCA9136FC9ED801B3AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009747   (805558) от 23.04.2016
-
-Rainbow - The Singles Box Set 1975-1986 (2014) 19CD, Compilation, Limited Edition, ReMastered [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Girl (4:53)
-02. Spotlight Kid (Live At Budokan, Tokyo) (6:02)
-03. Man On The Silver Mountain (Live) (8:17)Жанр: Hard RockПродолжительность: 03:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6825ECF6EAFAB4D5648165FEC75BF21D370993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505257   (804555) от 27.10.2021
-
-Say Never - Lies! (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Giving Up (00:03:36)
-02 - You Lied (00:03:56)
-03 - Breathe Again (00:03:57)
-04 - Do You Remember (00:04:12)(   Читать дальше...   )Жанр: Hard Rock
-Страна: USA, Atlanta, GeorgiaПродолжительность: 00:34:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9608966E14C2A84CFB976555A7F67829E56EDCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505382   (804465) от 27.10.2021
-
-Ottoman - Heretic (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn The Witch 03:46
-02. Don Ivi 04:15
-03. Fire In The Hole 03:28
-04. Glory Days 05:00(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AFA7DC7CA4E9628B411971BF99632DEAB3C96FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

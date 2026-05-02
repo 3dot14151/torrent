@@ -1,3 +1,38 @@
+###  Публикация: 493005   (248421) от 07.05.2012
+
+John Lindberg Trio - Hell Of A Ride (2012) [MP3|~245 кб/с (V0)]<Rockabilly, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honey Hush
+02. A Kiss Like This
+03. Dont Bug Me Baby
+04. Deep In The Dirt
+05. Hearts On Fire
+06. California
+07. Muddy Water
+08. Got Some Loving
+09. Ready Now
+10. Light Up My Fire(   Читать дальше...   )2012Жанр: Rockabilly, Rock & RollПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24299BFC6F23FA6A1D76ACF5832E429CACF932F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 492916   (248170) от 06.05.2012
 
 Russ Diapper - Kingsnake (2012) [MP3|~225 кб/с (V1)]<Hard Blues Rock>
@@ -725,35 +760,6 @@ Cosmos - 4 Albums (1994 - 2012) [MP3|320 Kbps] <Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10BD1972D8620D7F4AC156A2C0F0D4E7D079BDB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622821   (243998) от 30.03.2023
-
-Ted Nugent - Spirit of the Wild (1995) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thighraceous [03:53]
-02. Wrong Side of Town [05:33]
-03. I Shoot Back [03:55]
-04. Tooth, Fang & Claw [06:52](   Читать дальше...   )Жанр: RockПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02749A4E1468FCDA12E364C7A656F6CB50BFBE63
 ```
 
 https://mybot314.ru/tekegram_catalog/

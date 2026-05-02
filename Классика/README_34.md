@@ -1,3 +1,32 @@
+###  Публикация: 1167546   (416639) от 20.09.2017
+
+David Garrett - Rock Revolution (2017) Deluxe Edition [MP3|320 Kbps] <Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Air Tonight
+02. Born In the USA
+03. Stairway To Heaven
+04. Superstition(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ED2D51761324C319CB4A6E5EFFB02736ACCF391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 146803   (416526) от 18.10.2009
 
 Nicolo Paganini (1782-1840) The 6 Violin Concertos (3CD) [MP3|320 kb/s]<Classical>
@@ -719,41 +748,6 @@ Anna Netrebko - 3 альбома (2006-2009) [FLAC|Lossless]<Classical, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8E001D7E5633F381BF5BCC5E280DD861DD87DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561828   (405504) от 19.10.2012
-
-Antonio Lucio Vivaldi Johann Sebastian Bach-Baroque Guitar Favourites: Camerata Cassovia, guitar Gerald Garcia Peter Breiner (1990)/1994, NAXOS /[FLAC|Lossles]<Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405504.jpg" />
-</div>
-
-
-###  Подробнее
-
-ANTONIO VIVALDI (1678-1741)
-Violin Concerto in E minor, RV 277, Op. 11 No. 2 "Il Favorito"
-1. I. Allegro
-2. II. Andante
-3. III. Allegro
-Trio Sonata in C major, RV 82
-4. I. Allegro non molto
-5. II. Larghetto. Lento
-6. III. Allegro
-Trio Sonata in G minor, RV 85(   Читать дальше...   )Жанр: Baroque/guitarПродолжительность: 01:15:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D09D211DBCF4F82D8364703B1C2C30D5516BACC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,87 @@
+###  Публикация: 364065   (562765) от 17.07.2011
+
+Караоке СССР (2010) DVDRip
+
+>>Театр и Музыкальное видео
+>>Караоке
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562765.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник популярных песен СССР и нашего времени01. Белые розы
+02. Вологда
+03. Вот какая беда
+04. Всё что есть у меня(   Читать дальше...   )Жанр: Караоке, музыкальное видеоПродолжительность: 02:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D22DE528892DB0D5A90205F7109AEDBEB8A221B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 923585   (562616) от 01.08.2015
+
+Lynyrd Skynyrd - One More For The Fans (2015) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562616.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Lynyrd Skynyrd в Fox Theatre города Атланты (США) 12 ноября 2014 года.01. Whiskey Rock A Roller – performed by Randy Houser
+02. You Got That Right – performed by Robert Randolph & Jimmy Hall
+03. Saturday Night Special – performed by Aaron Lewis
+04. Working For MCA – performed by Blackberry Smoke(   Читать дальше...   )Жанр: Rock, Blues Rock, Southern RockПродолжительность: 01:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365FBDF516C818DCEB385C01305A0C6D42957A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234860   (562042) от 10.07.2018
+
+Концерт Андрея Макаревича. Программа «ПРО…» / Andrej Makarevic, Vladimir Tarasov - live at "Lituanika" (17 сентября 2017 года Дворец Конгрессов, Вильнюс) DVB
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда в начале XXI века лидер "Машины Времени" увлекся джазовой музыкой, никто в него особенно не верил. Сложно даже сказать, верил ли он в этот момент сам в себя: легко заходить на чужую поляну и начинать там все сначала в двадцать, а каково это, когда тебе под пятьдесят? Но появился "Оркестр Креольского Танго", потом "Джазовые трансформации", (   Читать дальше...   )Производство: Литва / Фестиваль “Lituanika”Жанр: Музыка, ДжазРежиссер: Андрей Макаревич, Владимир ТарасовАктеры: Андрей Макаревич, Владимир Тарасов, при участии: Людас Моцкунас (саксофон), Евгений Борец (клавишные), Сергей Хутас (контрабас)Перевод: Отсутствует, не требуетсяСубтитры: английские, вшитые, неотключаемыеПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26FFCF98EA886730CF79ED8FB4DD0D3225FDD5D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235022   (561921) от 10.07.2018
 
 Rammstein - In Amerika (2015) BDRip [H.264/1080p-LQ]
@@ -634,90 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A2DCD1798C1527B294C3AF637AD17865E06AA5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924684   (557402) от 04.08.2015
-
-Aerosmith - Rock For The Rising Sun (2011) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557402.jpg" />
-</div>
-
-
-###  Подробнее
-
-После землетресения в 2011году на Фукусиме, Япония. Рок - группа Aerosmith дала ряд концертов в Японии в 2011году, об этом туре Eagle Rock Entertainment выпустил в 2013году фильм - концерт Aerosmith - Rock For The Rising Sun.01. Draw the Line
-02. Love in an Elevator
-03. Livin' on the Edge
-04. Hangman Jury(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C97D161FE845994026EDE91F57F7B209A16E966B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924681   (557234) от 04.08.2015
-
-VA - Летний марафон № 179 / Видеоклипы (Зарубежные Клипы) (2015) HDTVRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Летние (04.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent ft. Meriem - Dilemma (00:03:30)
-2. Alexandra Stan - Cherry Pop (00:03:19)
-3. Alexandra Stan - Dance (00:03:41)
-4. Andreea Balan - Baila (Spanish Version) (00:04:04)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Soul, RapПродолжительность: 01:22:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C810D66EA261F957758585E7CE1D062D89CB8B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153467   (556875) от 28.07.2017
-
-The Cure - In Orange (1987) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт британской рок-группы The Cure . Был снят в античном театре  d'Orange во французской деревне VaucluseПроизводство: США, FictionЖанр: МузыкаРежиссер: Tim PopeПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669531DFA043F047292E20BC10B2D93D93C5335D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1405647   (483383) от 30.08.2020
+
+Bobby Rush - Rawer Than Raw (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down in Mississippi (03:23)
+ 02. Hard Times (03:51)
+ 03. Let Me in Your House (05:17)
+ 04. Smokestack Lightning (04:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10C0D5E01C775B9DCFC96A0FB82730F60E04BF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405653   (483373) от 30.08.2020
 
 Walter Trout - Ordinary Madness (2020) [MP3|320 Kbps] <Blues Rock>
@@ -717,41 +746,6 @@ Thorbjorn Risager & The Black Tornado - Songs From The Road (2015) [MP3|320 кб
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B76104E923219D49EF7557C1DBE16BC6EF005194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 388531   (458917) от 17.09.2011
-
-Venom Blues - Recoil (2007) [MP3|320 kbps]<Electric blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458917.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sneak Attack
- 2. Sweet Home Chicago
- 3. Cold Women
- 4. Playin' in the Dirt
- 5. Shake Your Money Maker
- 6. Down to the Still
- 7. Blues Highway
- 8. Rollin' and Tumbillin'
- 9. Further on up the Road
- 10. Dust my Broom(   Читать дальше...   )Жанр: Electric bluesПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D99775CB947AC7B60611A33CCC953D09B90679A
 ```
 
 https://mybot314.ru/tekegram_catalog/

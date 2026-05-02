@@ -1,3 +1,32 @@
+###  Публикация: 985835   (934115) от 12.02.2016
+
+Blues Dimension - 2 Original Albums (2014) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Get Ready (2:11)
+02.  Wonderland (3:12)
+03.  The One And Only Man (3:36)
+04.  Things I Remember (2:45)(   Читать дальше...   )Жанр: Rock|Продолжительность: 01:08:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FF7D19A06C96F064341FB9CA3424D149ECDBB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093594   (933968) от 15.01.2017
 
 Platonick Dive - Overflow (2015) [MP3|320 Kbps] <Post Rock>
@@ -728,35 +757,6 @@ Walpurgis - Queen Of Saba (1972) [MP3|320 кб/с] <Krautrock, Psych-Prog Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:116508E4ECC2CE5AB5DDADCD1941CF81CC27A04D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988867   (919195) от 21.02.2016
-
-Dark Circus - Lipstick Party Killer (2016) [MP3|320 кб/с] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thirty Seconds (04:07)
-02. How Long (03:23)
-03. The Hunter (03:55)
-04. Time (04:37)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D117E5D6495FF2194CAEA1037597DFA32BF6EAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

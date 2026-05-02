@@ -1,3 +1,119 @@
+###  Публикация: 1773183   (31005) от 14.01.2025
+
+VA - Luxury Soul 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cornell C.C. Carter - Everyday (4:20)
+02.  Natalie Duncan - I Love You (4:18)
+03.  Randy Bowland - The Power Of Love (4:18)
+04.  Debby Bracknell - What The Heart Wants (4:13)(   Читать дальше...   )Жанр: Funk, Soul, R&BПродолжительность: 02:29:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEBA1006E2B5809A2F585E34E71A6010CE119DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373728   (27803) от 13.02.2025
+
+Taj Mahal - 39 Albums, 2 Box Set (1968 - 2024) 62 CD [FLAC|Lossless|tracks + .cue|image + .cue] <Electric Country Blues, Folk, Contemporary Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Henry Saint Clair Fredericks, который использует сценическое имя Taj Mahal, является американским блюзовым музыкантом, певцом, автором песен и композитором к фильмам, играет на гитаре, фортепиано, банджо, губной гармонике и многих других инструментах. Он родился в Нью-Йорке 17 мая 1942. По отцу потомок выходцев из Вест-Индии (он подчёркивал это обстоятельство в связи (   Читать дальше...   )Список альбомов:
+1968 - Taj Mahal
+1968 - The Natch'l Blues
+1969 - Giant Step, De Ole Folks At HomeЖанр: Electric Country Blues, Folk, Contemporary BluesПродолжительность: 52:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9B2B39963700BDC03122009654ED142A721D161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270324   (27562) от 15.02.2025
+
+Shemekia Copeland - 11 Albums (1998 - 2024) [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Soul-Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шемекия Коупленд (англ. Shemekia Copeland; р. 10 апреля 1979, Гарлем, Манхэттен, Нью-Йорк) - американская певица, обладательница многочисленных премий, номинированная на Грэмми и названная журналом "Billboard" настоящей дивой блюза. Обладательницу глубокого сильного голоса часто сравнивают с величайшими Аретой Франклин (Aretha Franklin) и Рут Браун (Ruth (   Читать дальше...   )Список альбомов:
+1998 - Turn the Heat Up (ALCD 4857)
+2000 - Wicked (ALCD 4875)
+2002 - Talking To Strangers (ALCD 4887)Жанр: Modern Electric, Soul-BluesПродолжительность: 09:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E9D726204C435C9BAFFB9D7DD6581116029FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260248   (27487) от 16.02.2025
+
+Muddy Waters - 63 Albums, 3 Box Set (1955 - 2021) 91 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мадди Уотерс (Muddy Waters, наст. имя McKinley Morganfield, 4 апреля 1915 - 30 апреля 1983 г.) - влиятельный американский блюзмен, который считается основоположником чикагской школы блюза. Его визитной карточкой стала выпущенная в 1950 году композиция "Mannish Boy", а песня "Rollin' Stone" станет настоящим символом зарождающейся рок-музыки, дав (   Читать дальше...   )Список альбомов:
+1958 - The Best Of Muddy Waters
+1960 - Muddy Waters Sings Big Bill Broonzy
+1964 - Folk Singer(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 83:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C6D1C88B8AE3F2E5276692B0A06635C36C4417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1780235   (27311) от 17.02.2025
 
 Trautner & Becker - The Tunes & Blues Art Band (Dark Is the Night) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -630,122 +746,6 @@ Chris Vincent - Good Crook (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AB776756BD51455CE2AF1238573516C6D5CFD3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811016   (16685) от 07.08.2025
-
-Christopher James - Psilocide blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Heavy boots (6:32)
-02.  Heavy boots again (Remix) (7:58)
-03.  Heavy boots once more (Radio Edit) (6:11)
-04.  Heavy boots reworn (Remix) (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7612319B56B16A71DB80833CD06A75B880C8CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811018   (16682) от 07.08.2025
-
-Debbie Bond - Live at the Song Theater (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  That Thing Called Love (Live) (3:52)
-02.  Road Song (Live) (3:39)
-03.  Watch out for Your Heart (Live) (3:01)
-04.  Let Me Be (Live) (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:382CC1EF9BA2E5522A2ECA08E2BFF0C49D20DB21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811019   (16681) от 07.08.2025
-
-Felipe Renfro - Love, Hope and Misery (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Love, Hope and Misery (3:36)
-02.  Fever Talks in Silence (2:59)
-03.  Sweat on My Name (3:37)
-04.  No One Texts Back (2:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57186431C707CDA1CC2492FEF0DD7BC61DD11DC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811020   (16680) от 07.08.2025
-
-Interstate Blues - Lone Wolf (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eulogy of Hope (4:50)
-02.  The Depths of Perception (5:37)
-03.  What the Funk (4:39)
-04.  Lone Wolf (6:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E27EB8BB3F591185E80AA03BAEAC0ADD65F5B241
 ```
 
 https://mybot314.ru/tekegram_catalog/

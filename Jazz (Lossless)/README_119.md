@@ -1,3 +1,67 @@
+###  Публикация: 515696   (655927) от 26.06.2012
+
+Cleo Laine & Johnny Dankworth - The Collection (2002) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look Of Love [02:58]
+02. O Mistress Mine [03:08]
+03. The Complete Works [01:25]
+04. Perdido [02:52]
+05. Fear No More [03:14]
+06. Riding High [03:12]
+07. The Lady Sings The Blues [03:31]
+08. If Music Be The Food Of Love [02:39]
+09. Tea For Two [03:43]
+10. My Love Is As A Fever [02:26](   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140615   (655880) от 06.06.2017
+
+Nina Simone - The Real... Nina Simone (2013) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Soul, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. Ain't Got No / I Got Life
+02. In the Dark
+03. Do I Move You?(   Читать дальше...   )Жанр: Jazz, Soul, BluesПродолжительность: 03:35:19 (01:07:17 + 01:10:19 + 01:17:43)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91A9CBCEE439C2E5AD6159DBADE0CA11876B1B4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904166   (655690) от 02.06.2015
 
 Mimi Terris - Flytta Hemifran (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
@@ -716,64 +780,6 @@ Al Cohn, Bill Perkins, Richie Kamuca - The Brothers! (2011) [FLAC|tracks+.cue]<M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CACE7B4661FF5C7D3F0F6D9DFD5BDC4099E7FEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904943   (653548) от 04.06.2015
-
-Renato Sellani - Chopin (2010) [FLAC|Lossless]<Jazz, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank You, Chopin (D.Brubeck) [04:37]
-02. Preludio OP.28 N.4 [03:20]
-03. Valzer OP.34 N.2 [04:29]
-04. Notturno OP.9 N.2 [06:14](   Читать дальше...   )Жанр: Jazz, Cool, Piano JazzПродолжительность: 00:57:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D08A0E70BA03A853B378AF071056F0EBAC2FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904753   (653546) от 04.06.2015
-
-Don Byas Quartet - The Complete (1946-1954) 3 CD Remastered /2011, Solid Jazz Recordings/ [FLAC|tracks+.cue]<Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time On My Hands (2:28)
-02. Blues For Don Carlos (3:52)
-03. Sweet Lorraine (3:36)
-04. April In Paris (2:53)(   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EE866EFB2279A6E58A0DD357FD7A5B6973A131
 ```
 
 https://mybot314.ru/tekegram_catalog/

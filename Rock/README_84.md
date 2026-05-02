@@ -1,3 +1,32 @@
+###  Публикация: 1646061   (209118) от 12.07.2023
+
+Don Henley [ex. Eagles] - 6 Albums (1982-2015) Collection [MP3|320 Kbps] <Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209118.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дональд (Дон) Хью Хенли (англ. Donald Hugh Henley; 22 июля 1947, Гилмер, Техас) - американский рок-музыкант (автор песен, вокалист, ударник), среди многочисленных музыкальных и общественных проектов которого первое место занимает группа The Eagles. В 2008 году журнал Rolling Stone назвал Хенли одним из 100 лучших певцов всех времён (№ 87 в 100 Greatest Singers)Список альбомов:
+1982 - I Can't Stand Still
+1984 - Building The Perfect Beast
+1989 - The End Of The Innocence(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 05:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF5247F4292DA58325E245958406977871E95522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607126   (209009) от 26.01.2023
 
 Uriah Heep - Chaos & Colour (2023) [MP3|320 Kbps] <Classic Hard Rock>
@@ -710,35 +739,6 @@ John Bongiovi - John Bongiovi (2000) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C97FF534AA8B2A147C8000CAC265E158BF5771FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587426   (192709) от 31.10.2022
-
-John Bongiovi - The Power Station Sessions 1980-1983 (2001) Reissue [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Said It Would Last Forever
-02. Open Your Heart
-03. Stringin' A Line
-04. Don't Leave Me Tonight(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1082A9B3277BAA91ADAE0AA79C6E3A1E37B0C3B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

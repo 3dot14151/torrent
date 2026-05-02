@@ -1,3 +1,204 @@
+###  Публикация: 1274819   (791120) от 10.01.2019
+
+Philip Wesley - Hope Endures (2012) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Unknown (5:06)
+ 02. Leaving The Darkness Behind (4:47)
+ 03. Amazing Grace (4:54)
+ 04. Second Chances (3:00)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0812B98000FB701D0FC89039620AB235A11EAF74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275215   (791117) от 10.01.2019
+
+Anaamaly - Fields of Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Centering Meditation
+02. Morning Air
+03. A Peaceful Drift
+04. Cosmic Waters(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF09B49903541118B8A2DE5F5508EB244DB66C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275133   (791096) от 10.01.2019
+
+Greg Maroney - Secrets of the Sea (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secrets of the Sea
+02. Reverence
+03. River of Dreams
+04. Distant Shores(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8BDC8DCC0AFB527325C3A884523DE043A1C1AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201949   (790970) от 27.01.2018
+
+Ernesto Cortazar - Memories Of The Fall (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories Of The Fall (3:37)
+ 02. Lady (4:11)
+ 03. Living A Dream (3:43)
+ 04. Falling Leaves (3:15)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD54449724C3E90FEC289DCEB8D7EAE430F5CAFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202049   (790969) от 27.01.2018
+
+Neil Davidge - BRITANNIA (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Amends (04:01)
+02. The Sun Will Not Rise Tomorrow (03:10)
+03. You Spoke (02:25)
+04. The Scariest Thing (02:26)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD49EE35723E09C929A2B3973375E350C99249F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201908   (790939) от 27.01.2018
+
+Noorvik - Noorvik (2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790939.jpg" />
+</div>
+
+
+###  Подробнее
+
+[10:20] 01. Denali
+[08:06] 02. Shishaldin
+[08:35] 03. Malaspina
+[07:29] 04. Chugach(   Читать дальше...   )Жанр: Post-Rock, Post-Metal, InstrumentalПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1F51C42B92237B46B287A42A5C20416149F020
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510460   (790799) от 17.11.2021
+
+Dr. Jeffrey Thompson - Brainwave Suite: Insight & Intuition (2003) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insight
+02. IntuitionЖанр: Ambient, Relax, HealingПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85338CCAB87ECB692ADB79B3C521DD000B2BAB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386829   (790672) от 03.06.2020
 
 Merle Haggard and The Strangers - I'm A Lonesome Fugitive (1967) Remastered 2001 [FLAC|Lossless|tracks + .cue] <Country>
@@ -543,209 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC432D9FC5DF1079CF890E09C1675043A0689EEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202309   (788166) от 02.02.2018
-
-Pentangle - Reflection (1971) [FLAC|Lossless|tracks + .cue] <Folk Rock, Jazz>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788166.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wedding Dress – 2:48
-2. Omie Wise – 4:23
-3. Will the Circle be Unbroken? – 4:06
-4. When I Get Home – 4:55(   Читать дальше...   )Жанр: Folk Rock, JazzПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF328A7DDB84508BD8D770001D0B7212350A5351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203047   (788164) от 02.02.2018
-
-Marika Takeuchi - Colors In The Diary (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frozen Lake
-02. Green Field
-03. Blue Falls
-04. White Mountains(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A082171CE9AE98ADBFF706D8133513D34B6F9E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203543   (788160) от 02.02.2018
-
-Llewellyn - Return to the Temple (Re-Recorded) (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temple Base Chakra
-02. Temple Spleen Chakra
-03. Temple Solar Plexus Chakra
-04. Temple Heart Chakra(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FB78FF01243C28EA0196197DF902108144F3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203275   (788122) от 02.02.2018
-
-Cousin Harley - Blue Smoke - the Music of Merle Travis (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Divorce Me C.O.D.
-2. Deep South
-3. Blue Smoke
-4. So Round, So Firm, So Fully Packe(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D976318DDDFA61E510B8C29CEB16D7753CD21534
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511915   (787835) от 23.11.2021
-
-Variations & Gary Ryan - Romantic Guitar (2006) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Albatross (2:58)
-02. Bilitis (3:22)
-03. Lara's Theme (2:22)
-04. Everything I Do (I Do It For You) (4:09)(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08A6A83BEDC0FED3E192BC0CD18269900F0547EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276736   (787614) от 17.01.2019
-
-VA - Yoga Chill Out 2019 [MP3|320 Kbps] <New Age, Ambient, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. California Sunshine - Alala (Intro Chill Mix)
-02. Illegal Substances - Lost Civillization (Edit)
-03. Ufomatka - Sunrise On Venus
-04. The Same Old Souls - Strange Light Anomalies(   Читать дальше...   )Жанр: New Age, Ambient, DowntempoПродолжительность: 03:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5EF0BA8E934DB69AFD18A8263A2D394BFF6DA9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203643   (787600) от 03.02.2018
-
-Ray Conniff - Музыка хорошего настроения (2005) [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подмосковные вечера
-02. Кто-то скажет, что мы влюблены
-03. Освобожденная мелодия
-04. Странник в раю(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997C36A8B8094EA3441BC69822879D65A9DC704B
 ```
 
 https://mybot314.ru/tekegram_catalog/

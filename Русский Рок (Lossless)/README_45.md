@@ -1,3 +1,32 @@
+###  Публикация: 1640035   (237728) от 16.06.2023
+
+Autumn Rain Melancholy - Одиночество (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Doom Metal, Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прелюдия [00:02:01]
+02. Звезда [00:04:14]
+03. Два Крыла (Remastered) [00:05:23]
+04. Одиночество [00:05:30](   Читать дальше...   )Жанр: Symphonic Doom Metal, Symphonic Black MetalПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:857241ABCF9DB0FBE5D0C4A50317D1B0A1DBBEAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627280   (237462) от 18.04.2023
 
 Your Best Adornment - Инфант (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Doom, Death Metal>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:425B5F1E046302D0D39E3E59684EBFD0BFC4B426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639147   (234899) от 12.06.2023
-
-Concrete Age - Bardo Thodol (2023) [FLAC|Lossless|image + .cue] <Thrash, Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hex
-02. Purity
-03. True Believer
-04. Threads Of Fate(   Читать дальше...   )Жанр: Thrash, Death Metal, Folk MetalПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E6A6B5EB73A9E721CFD76B397708E2D4009385
 ```
 
 https://mybot314.ru/tekegram_catalog/

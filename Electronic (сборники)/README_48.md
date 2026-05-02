@@ -1,3 +1,61 @@
+###  Публикация: 1008409   (816116) от 18.04.2016
+
+VA - Uplifting Spring Addiction (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gateway 88 - Dark Brotherhood (Aldo Henrycho Remix) 07:21
+02. Toby Hedges - Images (Johan Vilborg Remix) 07:34
+03. Ather - Evelyn (O.B.M Notion Rmx) 07:44
+04. Dreamy - Know Thy Self (Original Mix) 08:46(   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B363BB0B69AD49EF50F90F8358EDFA090AB6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008427   (816036) от 18.04.2016
+
+VA - Resident Advisor Top 50 Charted Tracks March (2016) [MP3|320 кб/с] <Tech House, Nu-Disco, Electronica, Minimal, Tribal, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon Emerson - The Frontier (Original Mix) [07:35]
+02. ANNA - Odd Concept (Original Mix) [07:19]
+03. Antigone - Hiraeth (Original Mix) [06:36]
+04. Basti Grub, Natch & Dothen - Oh Baby Dance (Original Mix) [06:49](   Читать дальше...   )Жанр: Tech House, Nu-Disco, Electronica, Minimal, Tribal, TechnoПродолжительность: 05:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBC7CD469E82F5B114114637733B18327D4A1B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1503924   (815860) от 21.10.2021
 
 VA - Лучшие диджеи мира (2021) [MP3|320 Kbps] <Club House, Dance, Other>
@@ -687,64 +745,6 @@ VA - The Stars Align: EDM October Mixtape (2021) [MP3|320 Kbps] <Electro, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0513745C061BFC6182143B2DB7C7BBAABF4BEF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504826   (810351) от 24.10.2021
-
-VA - Record Super Chart 23.10.2021 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
-02. Calvin Harris feat. Tom Grennan - By Your Side (3:09)
-03. Minelli - Rampampam (3:20)
-04. Tiesto & KAROL G - Don't Be Shy (2:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:079254DCF7C7A088A4A71611AFEDEEED9DBC015D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009547   (810173) от 21.04.2016
-
-VA - Beatport Trancce 100 April (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810173.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2nd Phase - Short Circuit (Original Mix) 07:23
-002. Above & Beyond - A.I. (OM) 06:29
-003. Airbase - Lachrymose (Original Mix) 06:59
-004. Alan Morris - Elation (Extended Mix) 07:04(   Читать дальше...   )Жанр: TranceПродолжительность: 11:09:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1577722C83E6D6ADE0489D680CACE69E04C16376
 ```
 
 https://mybot314.ru/tekegram_catalog/

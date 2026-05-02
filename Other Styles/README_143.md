@@ -1,3 +1,206 @@
+###  Публикация: 1190497   (267572) от 09.12.2017
+
+VA - Latin Hits 2018 - 60 Super Exitos Latinos - Club Edition (2017) [MP3|320 Kbps] <Reggaeton, Salsa, Bachata>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chiquito Team Band - Abreme Los Caminos 3:21
+02. Raulin Rodriguez - Corazon Con Candado 4:23
+03. Osmani Garcia "La Voz", Dayami La Musa - Bumper 3:16
+04. El Chacal - Las Balas 3:50(   Читать дальше...   )Жанр: Reggaeton, Salsa, BachataПродолжительность: 03:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277E56BBE42033FC921C698377A92040F68E68AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 219410   (267474) от 05.12.2018
+
+Leonhardt North - The Spirit Of Pandora (2010) [MP3|256 kbps] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pandora
+02. Dreaming Under Branches
+03. Na Vi
+04. Forest Dance(   Читать дальше...   )Жанр: New age, AmbientПродолжительность: 01:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCB555B0F19330C789E7BCBD58DBAA78281636A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 80962   (267387) от 05.12.2018
+
+Kartsy Hatakka & Kimmo Kajasto - Max Payne 2: The Fall Of Max Payne (Original Soundtrack) (2003) [MP3|186 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Payne Theme (3:59)
+02. Max's Duty Corrupted / Winterson (3:15)
+03. Max's Passion / Mona (3:38)
+04. Max's Choice / Duty vs. Passion (3:42)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:46:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F6B104ABBD96124AA08870AA2E5FD9D63C703B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 299337   (267383) от 05.12.2018
+
+Gregorian - Best Of 1990-2010 (2011) [FLAC (Image+.CUE), lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Sad
+02. Nothing Else Matters
+03. Moment Of Peace
+04. Voyage Voyage(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAC844C1BDF61496FB5426A2B382104CD888BB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 182179   (267334) от 05.12.2018
+
+Магический Дудук - Инструментальные хиты Востока (2004) [FLAC|Lossless]<Инструментальная>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267334.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sev Mout Amber - (05:34)
+   2. Eshkhemet - (04:29)
+   3. Caravan, Kni Im Balig - (04:43)
+   4. Hovi Ganche - (06:10)(   Читать дальше...   )Жанр: ИнструментальнаяПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA446ADE69F864E36E3B266FD80EB1B55250D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339196   (267007) от 18.11.2019
+
+Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motion Picture Soundtrack) (2019) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christophe Beck - Introduction (01:00)
+02. Christophe Beck - The Northuldra (02:36)
+03. Christophe Beck - Sisters (01:06)
+04. Christophe Beck - Exodus (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94A2371348A7EC9921E4B6B100A89896FBF54EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189449   (266983) от 10.12.2017
+
+Kronos Quartet & Trio Da Kali - Ladilikan (2017) [FLAC|Lossless|tracks + .cue] <Mande Music, Chamber Music>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tita (06:54)
+02. Kanimba (04:39)
+03. Eh Ya Ye (04:51)
+04. Garaba Mama (03:02)(   Читать дальше...   )Жанр: Mande Music, Chamber MusicПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:475C6494CC704769578CD300E060B3EC9F7AD2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1339195   (266942) от 18.11.2019
 
 Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motion Picture Soundtrack) (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -540,209 +743,6 @@ Kokhe - Blue World (2019) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDFC523F97C804A5F24AA72736052C275A8978F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338799   (264265) от 22.11.2019
-
-Shadow Tactics: Blades of the Shogun - Soundtrack (2016) [FLAC|Lossless|tracks] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Theme
-02. Preparing for battle
-03. The Siege of Osaka
-04. Trouble on the Nakasendo(   Читать дальше...   )Жанр: OSTПродолжительность: 01:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA3C78C43132CC7D584B9CA855014B9873F33DB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339819   (264210) от 22.11.2019
-
-The Chill Out Orchestra - Another Brick in the Wall (The Pink Floyd Cover Versions) (2019) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Brick in the Wall (Original Mix) (03:57)
-02. The Other Side of the Moon (Original Mix) (05:17)
-03. Wish You Were Here (Original Mix) (04:33)
-04. Mother (Original Mix) (03:19)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6F7029A209F6BE60C65139C7244889E60BE35C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339885   (264008) от 23.11.2019
-
-VA - Pacific Moon: Summer Collection (2001) [FLAC|Lossless|tracks + .cue] <New Age, Folk, Modern Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jalan Jalan - Sekar (Spirit of Plants) (6:20)
-02. Hae - Sunset Island (2:17)
-03. Hae - Chikinu Kaishiya (4:10)
-04. Jalan Jalan - Hug With the Wind (5:25)(   Читать дальше...   )Жанр: New Age, Folk, Modern ClassicalПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:387C9707801599DE2D2BC8700C7EE77D7FB0ECDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339935   (263993) от 23.11.2019
-
-Musica Relajante - Spa for Yoga (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263993.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aruyde 03:22
-2. Calm Meditation Sounds 03:28
-3. Aum 02:23
-4. Aum Mantra Part Two 02:24(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 04:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D709A039665ABBCCA8C02AA56CD9A0A7296C7D15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191717   (263819) от 15.12.2017
-
-Jozef Van Wissem - Nobody Living Can Ever Make Me Turn Back (2017) [MP3|320 Kbps] <Dark Folk, Experimental>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Virium Illarum
-02. Golden Bells Ring In The Ears Of Earths Inhabitants
-03. Your Days Gone Like A Shadow
-04. The Empty Cup Of Suffering(   Читать дальше...   )Жанр: Dark Folk, ExperimentalПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE7EAD49B9D5C1ED6AFF53D294D6CDB4D429227B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191682   (263706) от 15.12.2017
-
-John Williams - Звездные войны: Последние джедаи / Star Wars: The Last Jedi / Soundtrack (2017) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title and Escape
-02. Ahch-To Island
-03. Revisiting Snoke
-04. The Supremacy(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052AFE195708ADEF8A024705613CC1E26AD47764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191501   (263457) от 16.12.2017
-
-Lisa Stanley - Heart and Soul (2017) [FLAC|Lossless|WEB-DL|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Precious Memories
-02. Second Violin
-03. When You Say Nothing at All
-04. Looking for a Girl Looking for a Boy feat Max T. Barnes(   Читать дальше...   )Жанр: CountryПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6713A967C239FD6E899C96E9993DD7943DECD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,351 @@
+###  Публикация: 1793394   (67471) от 25.04.2025
+
+Marco Maurizi - A Book of Prog Prayers (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Out You (00:03:20)
+02 - Freep (00:05:34)
+03 - All in the Golden Afternoon (00:06:13)
+04 - The Little Crocodile (00:02:59)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:29:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29DABA971859BCC03A7E3E94D46E162CC7FB54C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794863   (67206) от 01.05.2025
+
+The Cult - Electric Peace (2013) 2xCD, Reissue, Compilation [FLAC|Lossless|image + .cue] <Alternative Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67206.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Electric:
+1-1 Wild Flower 3:37
+1-2 Peace Dog 3:34
+1-3 Lil' Devil 2:44(   Читать дальше...   )Жанр: Alternative Rock, Psychedelic RockПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CC7DB0CDA346EC239753AD5D9BA36BA9EA82FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794753   (67202) от 01.05.2025
+
+Three Dog Night - Joy To The World - Their Greatest Hits (1974) MCA Records -1997 Repress, Cinram, Richmond Pressing [FLAC|Lossless|tracks + .cue] <Classic Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy To The World    [0:03:38.50]
+02. One    [0:03:05.20]
+03. Sure As I'm Sitting Here    [0:03:08.07]
+04. Old Fashioned Love Song    [0:03:24.45](   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9044040CDA1A687B6CEA00906BFF612EF1E272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795188   (67163) от 03.05.2025
+
+VA - Mittelalter Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lara Loft - The Dragonborn Comes (3:22)
+02.  In Extremo - Wolkenschieber (3:01)
+03.  Subway To Sally - IX (5:04)
+04.  Santiano - Tanz mit mir (3:04)(   Читать дальше...   )Жанр: RockПродолжительность: 02:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1E05884828BFBBBD5ECE34E729505D87016154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795620   (67062) от 05.05.2025
+
+Finch - Galleons Of Passion (1977) Japanese Edition, Reissue, Remastered, 2007, Belle Antique [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unspoken Is the Word
+02. Remembering the Future
+03. As One
+04. With Love as the Motive: Impulse / Reaching / Sinful Delight(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65A3EA9A691988D7BDD5FB44858D0737DBF3CFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796859   (66916) от 12.05.2025
+
+Sandy Denny - Gold Dust (The Final Concert) (1998) Japanese Edition, SHM-CD, Reissue, 2009, Island Records [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish I Was a Fool for You (For Shame of Doing Wrong)
+02. Stranger to Himself
+03. I’m a Dreamer
+04. Take Me Away(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8933762B03F0765C7120E8D922051CA97EED9A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797195   (66845) от 15.05.2025
+
+Elleven - 8030 (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contact (14:35)
+ 02. Persuasiveness (06:56)
+ 03. Attraction (03:02)
+ 04. Uncertainty (02:27)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C3BC78D3E73489639C7E4D4FC1EDC1860B0F935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797594   (66778) от 17.05.2025
+
+Twink - Think Pink (1970) Japanese Edition, Reissue, 2000, Akarma [FLAC|Lossless|image + .cue] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Coming Of The One
+02. Ten Thousand Words In A Cardboard Box
+03. Dawn Of Magic
+04. Tiptoe On The Highest Hill(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8419DA595DFAE23E1D512E33B7C4B32D77FEBDF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798071   (66616) от 22.05.2025
+
+Grails - Miracle Music (2025) [FLAC|Lossless|tracks + .cue] <Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Bells (5:10)
+ 02. Primeval Lite I-III (6:35)
+ 03. Earthly Life (4:44)
+ 04. Homemade Crucifix (3:19)(   Читать дальше...   )Жанр: Post RockПродолжительность: 00:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:641879210C51A84805BDF4B694CAF9BEBD2B0946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798300   (66614) от 22.05.2025
+
+VA - EZ Ridin’ (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steppenwolf - Born to Be Wild    [0:03:29.72]
+02. Lynyrd Skynyrd - Call Me the Breeze    [0:05:08.68]
+03. Elvin Bishop - Rollin’ Home  [0:04:58.07]
+04. Bachman–Turner Overdrive - Free Wheelin’ (instrumental)    [0:03:46.38](   Читать дальше...   )Жанр: Pop Rock, RockПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7614EFD7ED7BCF4F23B5BA964EAEA21FD9621B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798165   (66576) от 24.05.2025
+
+Queens of the Stone Age - Queens of the Stone Age (1998) Remaster, 2024 Matador [FLAC|Lossless|tracks + .cue] <Stoner Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Regular John (4:38)
+ 02. Avon (3:25)
+ 03. If Only (3:23)
+ 04. Walkin on the Sidewalks (5:02)(   Читать дальше...   )Жанр: Stoner Rock, Alternative RockПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD24F9FCCF9D068D9FA412F421B9B22AA528F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799047   (66536) от 25.05.2025
+
+Jon Allen - Seven Dials (2025) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadow (04:00)
+ 02. Seven Dials (03:46)
+ 03. White Gold (04:19)
+ 04. The Glass Moon (03:34)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457B8303D0947C353D199CF7C224D0E11F2C964F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798724   (66493) от 26.05.2025
 
 Oresund Space Collective - Alotta Hella Down in Estrela (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
@@ -396,354 +744,6 @@ Russell Morris - The Very Best of Russell Morris (2013) CD, Compilation [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B49D821DB73CF381A2CB492C60D930A3FBE33624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804409   (65665) от 29.06.2025
-
-Rod Stewart - Ultimate Hits (2025) 2CD [FLAC|Lossless|WEB-DL|tracks] <Rock, Classic Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65665.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Handbags & Gladrags
-02. Maggie May
-03. In a Broken Dream(   Читать дальше...   )Жанр: Rock, Classic Rock, Pop Rock |Продолжительность: 02:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D83588765E15BB30DF71D7EF9B14EC9BBAB64B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804418   (65639) от 29.06.2025
-
-Nemra - The End of the Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Indie, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock n Rollers [00:05:04]
-02. Out of This Shit [00:04:16]
-03. Help Me Forget [00:04:16]
-04. She's Beautiful [00:05:01](   Читать дальше...   )Жанр: Indie, Alternative RockПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26A273DF5A30A189FE98127F37F419A1F3698C68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804416   (65631) от 29.06.2025
-
-Paralyzed - Rumble & Roar (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Psychedelic Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machine With A Soul [00:04:29]
-02. Railroad [00:05:25]
-03. Rosies Town [00:03:49]
-04. Heavy Blues [00:04:34](   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Stoner RockПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5282C273E4D7B1A5B22DBA77DB85AF4F6E328BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804454   (65615) от 29.06.2025
-
-Avkrvst - Waving At The Sky (2025) [FLAC|Lossless|image + .cue] <Prog Rock, Progressive Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65615.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Preceding 3:14
-2. The Trauma 5:17
-3. Families Are Forever 7:49
-4. Conflating Memories 6:59(   Читать дальше...   )Жанр: Prog Rock, Progressive Metal, Melodic Death MetalПродолжительность: 00:45:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CC5CE9FBEC556E96E692F4C32E5EB85EBF94015
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804678   (65563) от 01.07.2025
-
-Avkrvst - The Approbation (2023) [FLAC|Lossless|image + .cue] <Prog Rock, Progressive Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65563.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Østerdalen 0:26
-2. The Pale Moon 6:15
-3. Isolation 5:40
-4. The Great White River 6:30(   Читать дальше...   )Жанр: Prog Rock, Progressive Metal, Melodic Death MetalПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC11A69BEFD63B944ABA8EA3CF91381472BF61A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804921   (65540) от 03.07.2025
-
-Neil Young And The Chrome Hearts - Talkin to the Trees (2025) [FLAC|Lossless|tracks + .cue] <Rock, Country Rock, Roots Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Family Life [2:50]
-02 - Dark Mirage [5:40]
-03 - First Fire of Winter [4:44]
-04 - Silver Eagle [3:18](   Читать дальше...   )Жанр: Rock, Country Rock, Roots Rock, Folk RockПродолжительность: 00:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B7E49D9F876A4CCA5870B1CF6BCC7446A2D3ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805569   (65431) от 06.07.2025
-
-Apotheus - Ergo Atlas (2023) [FLAC|Lossless|image + .cue] <Art Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shape And Geometry
-02. The Unification Project
-03. Firewall
-04. Cogito(   Читать дальше...   )Жанр: Art Rock, Progressive MetalПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E9FA59A6F57B00924838AFECE0B3679ECFD2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806588   (65349) от 13.07.2025
-
-Mighty Dead Rabbits - Fly High Again (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way We Live [00:03:01]
-02. Voices in My Head [00:02:17]
-03. Burning Skys [00:02:56]
-04. Strumming at the Sunset [00:02:04](   Читать дальше...   )Жанр: RockПродолжительность: 00:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADC500BF6D8F33DBA60F52CEED9B5AE44A326FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807328   (65277) от 18.07.2025
-
-Daron Malakian and Scars On Broadway - Addicted To The Violence (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Killing Spree [2:47]
-02 - Satan Hussein [3:07]
-03 - Done Me Wrong [3:02]
-04 - The Shame Game [5:17](   Читать дальше...   )Жанр: Alternative Metal, Alternative RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCA66FF658C05C7846829BA28CD4A6BF74CDFC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807490   (65244) от 19.07.2025
-
-VA - Rock Rarities - Cover Versions (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Halestorm - Get Lucky (3:09)
-02.  Nickelback - We Will Rock You (2020 Remaster) (2:00)
-03.  Dick Brave & The Backbeats - Walk This Way (2:49)
-04.  Junkie XL - Come Together (3:14)(   Читать дальше...   )Жанр: RockПродолжительность: 02:03:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74F773AB16076485A8A60008F438F8CCC29EC269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807471   (65229) от 19.07.2025
-
-VA - Classic Dad Rock (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Green Day - American Idiot (2:54)
-02.  LINKIN PARK - In the End (3:37)
-03.  Blur - Song 2 (2:02)
-04.  Red Hot Chili Peppers - Californication (5:30)(   Читать дальше...   )Жанр: RockПродолжительность: 02:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B426DC7EA00D2D3F6931025DEFDBD010A74188C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807488   (65225) от 19.07.2025
-
-VA - Rock Music - Perfect Blend (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Green Day - Boulevard of Broken Dreams (4:21)
-02.  Linkin Park - In the End (3:37)
-03.  Simple Plan - Welcome to My Life (3:27)
-04.  Halestorm - Get Lucky (3:09)(   Читать дальше...   )Жанр: RockПродолжительность: 01:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E7D258DB022A277A5163A9F749458D33B93D473
 ```
 
 https://mybot314.ru/tekegram_catalog/

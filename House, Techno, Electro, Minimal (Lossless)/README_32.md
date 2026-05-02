@@ -1,3 +1,32 @@
+###  Публикация: 1139799   (659289) от 03.06.2017
+
+Adam Jay - Maxia Zeta (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maxia Zeta (06:17)
+02. Distant Origin (06:41)
+03. Dynaform (06:46)
+04. Locating The Ecosphere (05:51)(   Читать дальше...   )Жанр: Electro, IDM, TechnoПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768D7BE3838A5C145F8F016286656DC2074F03DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140089   (658020) от 04.06.2017
 
 Rodriguez Jr. - Baobab (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House>
@@ -722,35 +751,6 @@ Robin Schulz & David Guetta & Cheat Codes - Shed A Light (The Remixes Part 2) (2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BCF7BDE845A9B7289224BE8898E95EACDE367E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 137923   (644397) от 03.04.2022
-
-Freeland - Cope™ (Jun-08-2009) [FLAC|Lossless]<Electronic, Rock, Electro, Breaks>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You 3:31
-02. Under Control 4:04
-03. Strange Things 4:16
-04. Bring It 5:40(   Читать дальше...   )Жанр: Electronic, Rock, Electro, BreaksПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1380C4FBDD727D1314947C7905342EDDF102EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 809895   (584483) от 04.08.2014
+
+Bobby Caldwell - Timeline (1998) [FLAC|Lossless|WEB-DL]<Smooth Jazz, R&B, Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Flame ( 04:12 )
+02. Coming Down From Love ( 04:02 )
+03. Loving You ( 03:38 )
+04. Jamaica ( 05:00 )
+05. Real Thing ( 05:34 )
+06. Even Now ( 05:07 )
+07. Don't Lead Me On ( 05:11 )
+08. Show Me Your Devotion ( 04:57 )
+09. Once Upon A Time ( 03:47 )
+10. I Give In ( 04:07 )(   Читать дальше...   )Жанр: Smooth Jazz, R&B, VocalПродолжительность: 01:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDCBAFC1EC0214F7C82AD88C3A301BD2D772FF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 256300   (584411) от 04.08.2014
+
+Nina Simone - Jazz Masters 17 (Verve Records) (1993) [APE|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот сборник с 16 треками от Verve Records превосходный обзор творчества Nina Simone с середины 60-х и до 1978 года, которые представляют Симон в самом её расцвете, как универсальную джазовую певицу, уверенно владеющую своим голосом. Здесь охвачен поистине весь диапазон джаза: традиционный народный ("Черный Цвет Волос Моей Настоящей любви"), R&B (ее (   Читать дальше...   )01. Black is the Colour of my True Love's Hair  (3:29)
+02. I Put a Spell on You  (2:36)
+03. Love Me or Leave Me  (4:07)
+04. Little Girl Blue  (4:21)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:01:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4719125F524EC3758A67D32F6EC88DA0A709DED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301622   (584292) от 12.05.2019
 
 Mats Eilertsen Trio - And Then Comes the Night (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
@@ -687,64 +751,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D8A04ED718FDC3554DABE8865FE90BA68B9C4DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919857   (581861) от 20.07.2015
-
-Paul Hardcastle - The Chill Lounge Volume 3 (2015) [FLAC|Lossless]<Nu Jazz, Lounge, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desire
-02. Unlimited Love
-03. Don't You Know
-04. Exploring the Deep(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChilloutПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B4899A0C91F2C0E1E95B888AF201297DB8D336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 810964   (581614) от 07.08.2014
-
-Count Basie and his orchestra - Breakfast Dance And Barbecue (2001) [FLAC|Lossless]<Jazz, Swing, Big Band, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Deacon [05:52]
-02. Cute [04:09]
-03. In a Mellow Tone [06:53]
-04. No Moon at All [02:57](   Читать дальше...   )Жанр: Jazz, Swing, Big Band, Vocal JazzПродолжительность: 01:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6B6FA6D147B037A124A5E34C2E7EA2B9E33EBBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

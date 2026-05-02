@@ -1,3 +1,117 @@
+###  Публикация: 1103149   (887701) от 11.02.2017
+
+Thunder - Wonder Days (2015) Limited Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предтечей "Thunder" был проект "Nuthing Fancy", появившийся в Лондоне в конце 70-х, в котором играли вокалист Дэнни Боус, гитарист Люк Морли, басист Мак Маккензи и ударник Крис Хасси. Эта формация выпустила один сингл и в начале 80-х сменила вывеску на "Terraplane". Под новым названием коллектив оказался более плодовитым и выпустил ряд (   Читать дальше...   )CD 1 - Wonder Days
+CD 2 - Live At Waken 2013Жанр: Melodic Hard RockПродолжительность: 01:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3F071BE9DEB3979625FA78B1B0494C14C2E01A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103161   (887643) от 11.02.2017
+
+Jack Russell’s Great White - He Saw it Comin' (2017) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sign Of The Times (03:37)
+02. She Moves Me (03:34)
+03. Crazy (03:40)
+04. Love Don't Live Here (03:38)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D05706E5054911FF7D2D616036394B99DCBE5972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372040   (887085) от 02.04.2020
+
+Hollywood Monsters - 3 Albums (2014-2019) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hollywood Monsters является детищем французского эмигранта, вокалиста, гитариста и композитора Стефана «Steph» Хонде, живущего в Калифорнии с 2012 года. Впервые музыкант обратил на себя внимание в составе Mamooth, где получил репутацию виртуозного гитариста. В 2004 году он присоединился к французской рок-группе Café Bertrand, которые нередко играли на многотысячных (   Читать дальше...   )--------------------------
+
+01. A Scream Looking For A Mouth (2:51)
+02. Speak Of The Evil (3:52)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'Heavy |Продолжительность: 02:20:19 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFDABA8D2D15FEE3AF03D0527D6ACFE1F5F7F334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995077   (886318) от 10.03.2016
+
+Guns N’ Roses - Live Era '87 - '93 (1999) Japan [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Out ta Get Me
+02 Pretty Tied Up
+03 Yesterdays
+04 Move to the City(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:24:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2848A21FD56B45D0873DBE407CE6064F4A7D508F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372397   (885305) от 03.04.2020
 
 Bonfire - Fistful of Fire (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +743,6 @@ Vega - Anarchy And Unity (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B0E958860AF4FD80E774CF5CB264AC27164F2F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496393   (873366) от 17.09.2021
-
-Robin Red - Robin Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t Leave Me (With A Broken Heart)
-02. (I’m A) Bad Habit
-03. Everlyn
-04. Freedom(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B410EB84E61BD89F8A5F34F62DB07EFC08711A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496383   (873358) от 17.09.2021
-
-Spitfire - Do Or Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride It Like You Stole It
-02. Like A Lady
-03. Writings On The Wall
-04. Do Or Die(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040F5C1C253B8BB81A8A3CE4BF18AB44544518A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374234   (872691) от 10.04.2020
-
-One Desire - Midnight Empire (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadowman
-02. After You’re Gone
-03. Down And Dirty
-04. Godsent Extasy(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7EABE7DF0783DED014BA43F5D03DD1AB145995
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591036   (872454) от 10.04.2020
-
-Brazen Abbot - Guilty As Sin (2003) [FLAC|Lossless]<Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Life to Live [04:57]
-02. Eyes on the Horizon [04:34]
-03. I'll Be Free [03:58]
-04. Slip Away [04:53](   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36EC466840804BBD120F194A8A88CA41E6A91870
 ```
 
 https://mybot314.ru/tekegram_catalog/

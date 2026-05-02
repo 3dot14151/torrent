@@ -1,3 +1,175 @@
+###  Публикация: 1817107   (3338) от 11.09.2025
+
+twenty one pilots - Breach (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop, Pop Rock, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – City Walls
+02 – RAWFEAR
+03 – Drum Show
+04 – Garbage(   Читать дальше...   )Жанр: Indie Pop, Pop Rock, ElectronicПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62637FA51AB916342B71AC0F92F17789C0A89F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817573   (3308) от 11.09.2025
+
+Ashen - Chimera (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt Metal, Modern Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - You were always here (00:36)
+ 02 - Meet Again (04:04)
+ 03 - Chimera (03:33)
+ 04 - Crystal Tears (03:54)(   Читать дальше...   )Жанр: Alt Metal, Modern MetalПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A8037EF0BC4BB9231E37A8F349793334185EB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817601   (3300) от 11.09.2025
+
+Hypocrisy - Virus (Remaster 2025) (2005) Remastered, 2025, Nuclear Blast [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. XVI (Remaster 2025) (00:15)
+ 02. Warpath (Remaster 2025) (04:24)
+ 03. Scrutinized (Remaster 2025) (04:25)
+ 04. Fearless (Remaster 2025) (04:22)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE96FE0C93290B22C39F8B0F61539D9BB134B3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817539   (3291) от 11.09.2025
+
+Pharoah Sanders - Karma (1969) SHM-SACD, Japanese Edition, Reissue, Remastered, 2025, Impulse!  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Soul-Jazz, Modal>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Creator Has A Master Plan - 32:41
+02. Colors - 5:36Жанр: Soul-Jazz, ModalПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3689D61FD3B408DD354A3596498D0C82CB95FA3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670652   (3201) от 12.09.2025
+
+Antimatter - Studio Albums (11 releases) (2001-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Antimatter — группа, образованная в 1998 году бывшим басистом Anathema Дунканом Паттерсоном и его старым другом Миком Моссом.2001 - Saviour
+2003 - Lights Out
+2005 - Planetary Confinement
+2007 - Leaving EdenЖанр: Progressive RockПродолжительность: 12:27:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:753D371EC243A53626F0D8851ACDA89BAC6BB9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817602   (3183) от 12.09.2025
+
+ILWT - Наполовину полон. Сорокалетним посвящается (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Hip-Hop, Punk, Ska, Drum & Bass>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кривые руки (Интро) [00:02:21]
+02. Гастрольная [00:03:07]
+03. Золотые пески [00:03:23]
+04. Поясница [00:04:40](   Читать дальше...   )Жанр: Alternative, Hip-Hop, Punk, Ska, Drum & BassПродолжительность: 00:55:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69FF24D340825EAA8C4726D72992957E0651C737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817683   (3172) от 12.09.2025
 
 Foreigner - 4 (1981) 2025 4CD Deluxe Edition [FLAC 24/96, 16/44.1|Lossless|WEB-DL|tracks] <Rock, Melodic Rock>
@@ -567,180 +739,6 @@ I See Stars - The Wheel (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2B579B07278B932BA5F46512A2563B41BA1FA2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818113   (2757) от 14.09.2025
-
-Not Enough Space - Weaponize Your Rage (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Alternative Metal, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weaponize Your Rage [00:02:56]
-02. Devil Left Me On Read [00:02:38]
-03. New Age Cannibal [00:02:42]
-04. Waiting 4 U [00:03:01](   Читать дальше...   )Жанр: Metalcore, Alternative Metal, ElectronicПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E81E5C372D7E59FF9EE2835B6328CD216E61429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818106   (2752) от 14.09.2025
-
-Crucible - Hail To The Force (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Speed Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deathdealer [00:02:49]
-02. Embrace Of Steele [00:03:27]
-03. Redwing [00:05:11]
-04. Far Beyond The Grave [00:04:39](   Читать дальше...   )Жанр: Speed Metal, Heavy MetalПродолжительность: 00:37:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5901A359B1AB3F06AE45C9A804219DD085DFBA75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818114   (2746) от 14.09.2025
-
-Speed Queen - ... With a Bang! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5678 [00:00:59]
-02. Showdown [00:04:38]
-03. I Want It [00:04:28]
-04. Eye to Eye [00:04:11](   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E4C5EFC316314B4B9A88E569709A35DB74BD16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818107   (2734) от 14.09.2025
-
-Nicolas Cage Fighter - I Watched You Burn (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Watched You Burn [00:03:48]
-02. Valley Of Agony [00:04:16]
-03. Godforsaken Silence [00:03:43]
-04. The Executioner [00:04:09](   Читать дальше...   )Жанр: Hardcore, MetalcoreПродолжительность: 00:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF028BFB17B2F9F60751DCD35C866EA873F03A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818023   (2732) от 14.09.2025
-
-Shame - Cutthroat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie, Post-Punk, Britpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cutthroat [00:03:14]
-02. Cowards Around [00:02:21]
-03. Quiet Life [00:03:16]
-04. Nothing Better [00:02:47](   Читать дальше...   )Жанр: Indie, Post-Punk, BritpopПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FC8BBCAF0447A5E664CBBB58C99D87C115DBB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818015   (2731) от 14.09.2025
-
-Starset - Silos (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative-Metal, Alternative-Rock, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Praesens [00:02:00]
-02. Degenerate [00:03:36]
-03. Silos [00:04:20]
-04. Rise Of Messenger [00:02:14](   Читать дальше...   )Жанр: Alternative-Metal, Alternative-Rock, ElectronicПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A7BE33477199CB22687F2189CC789F1FC96CE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

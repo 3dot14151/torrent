@@ -1,3 +1,119 @@
+###  Публикация: 1325748   (410234) от 16.09.2019
+
+VA - Jazz Sensation Lounge (Chillout Your Mind) (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Pearson - A Dream in Your Eyes (Original Mix)
+02. Michael E - After the Storm (Original Mix)
+03. Mission Brown - Starting Over (Original Mix)
+04. Marga Sol - Imagine Me (Original Mix)(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E0EBBE8C5553439FAB405CD67B8FD1452F4356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325833   (408630) от 17.09.2019
+
+VA - Beach Bar Lounge Chillout Your Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Deep House>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marga Sol, Darles Flow - Feelings for Free (Soulful Mix)
+02. Pep Llado - Demaramar (Original Mix)
+03. The Smooth Commander - Beauty Secrets (Bluestar Mix)
+04. Airstream - Salida Del Sol (Dos Caballeros Mix)(   Читать дальше...   )Жанр: Lounge, Chillout, Deep HouseПродолжительность: 01:38:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8688EFD1D708B10878F4F2B607E4D8D543F61D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413576   (408350) от 04.10.2020
+
+Thme - That's what it will be like (2020) Whitelabrecs [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Electroacoustic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408350.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Axis matters 05:16
+2. Moving, so slowly 05:08
+3. Obsolete form of beauty 04:49
+4. Odd memory 04:06(   Читать дальше...   )Жанр: Ambient, Drone, ElectroacousticПродолжительность: 00:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD108ADD56B131B3C433102C4DFB5C8DE80359B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413606   (408198) от 04.10.2020
+
+Weber & Weber - Frozen in Time (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Nu Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Finally (5:50)
+ 02. Wake up, Get up (5:14)
+ 03. Getting Signals (4:16)
+ 04. Fly on Wings (4:51)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Nu JazzПродолжительность: 01:13:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E1D3EB5B94513807BE953A640CA16EEF211E20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574022   (407508) от 03.09.2022
 
 VA - Floating Leaves: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -626,122 +742,6 @@ Schiller - Die Einlassmusik 17 (2019) [FLAC|Lossless|image + .cue] <Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD2969303BB9327D4E7E7A54B272C56DA1F5BDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327939   (369494) от 27.09.2019
-
-Schiller - Morgenstund (2019) Super Deluxe Edition [FLAC|Lossless|tracks + .cue] <Ambient , Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schiller - Willkommen (0:37)
-02. Schiller - Harmonia (5:46)
-03. Schiller & Tricia McTeague - Universe (7:22)
-04. Schiller & Jhyve - Dreamcatcher (4:07)(   Читать дальше...   )Жанр: Ambient , DowntempoПродолжительность: 02:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83077FA5CD628BC0505297475E9A31E5CC0F623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328250   (366222) от 29.09.2019
-
-Schiller - Die Einlassmusik 15 (2019) [FLAC|Lossless|image + .cue] <Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teil I (11:16)
-02. Teil II (15:20)
-03. Teil III (9:36)
-04. Teil IV (3:55)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4BD7ECBD7F4EBC8E0296441C6424C9CB397831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328252   (366031) от 29.09.2019
-
-Schiller - Die Einlassmusik 16 (2019) [FLAC|Lossless|image + .cue] <Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Teil I (8:53)
-02. Teil II (9:49)
-03. Teil III (1:55)
-04. Teil IV (12:48)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:02:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49FBE31B64C676B4C2EA014C64ED3D3F05EEB312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416645   (365111) от 17.10.2020
-
-VA - Calm Evening Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Sundowner (Original Mix) (3:41)
-02. Michael E - Where the River Flows (Original Mix) (5:33)
-03. The Soul Crusaders - When the Night Falls (4:15)
-04. Chillson, Marc Hartman - New Beginnings (4:58)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1577CCB19A340B04DE80DD3AC91377450D6EE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

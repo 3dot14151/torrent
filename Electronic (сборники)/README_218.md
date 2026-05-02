@@ -1,3 +1,61 @@
+###  Публикация: 1713976   (60343) от 08.04.2024
+
+VA - Electronic compilation part 68 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dnb - Alisa
+02. Hamidshax - Amelia
+03. Rodle - Amore
+04. Arsh - Aurora(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:12:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AC61B08D30A6D16A5A8475686470E0D46A42333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714099   (60258) от 09.04.2024
+
+VA - 60 minutes. Old School Dance Music vol.24 (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Dancecore, Hard Trance, Euro Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bomfunk Mc's - Uprocking Beats (Js16 Sound Design)
+02. Copycat - Clap Ya Hands (Irrestible Storm Mix)
+03. Camisra - Let Me Show You (Klubbheads Mix)
+04. Groovaholics - Wake Up The Funk (Club Caviar Remix)(   Читать дальше...   )Жанр: Club House, Dancecore, Hard Trance, Euro TranceПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:034380B39E9D0CA40F611DC3421D5B2A4FA5BEEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714915   (60020) от 11.04.2024
 
 DJ Lava - Compilation (2024) [MP3|320 Kbps] <Electronic>
@@ -687,64 +745,6 @@ VA - Electronic compilation part 84 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18F6E1BE6202C8B6837241E6F74F22C58B412ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729697   (53519) от 12.06.2024
-
-VA - Electronic compilation part 86 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Davit Barqaia - Bring Me Back
-02. Muvi - Depression
-03. Davbo - Dreams
-04. Davbo - Endless Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:20:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC042A0C4B954635FDBC37FEBFC29C7FA4E4EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730437   (53125) от 16.06.2024
-
-VA - Electronic compilation part 87 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Menda - Believe
-02. Kasimoff - Cold Without You
-03. Afrasiab - Don't Let Go
-04. Hamidshax - Drama(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3434CF92291D8D7BD18E25523365FFB011669333
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 173688   (948628) от 08.02.2010
+
+Pink Floyd - Wish You Were Here (1975) [AC3 5.1|448kbps]<Psychedelic Rock / Art Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948628.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shine on You Crazy Diamond (Part 1) — 13:32
+2. Welcome to the Machine — 7:33
+3. Have a Cigar — 5:24
+4. Wish You Were Here — 5:17
+5. Shine on You Crazy Diamond (Part 2) — 12:29Жанр: Psychedelic Rock / Art Rock
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089737   (948627) от 05.01.2017
+
+Холодное сердце (2016) HDTV [H.264/1080i] (серии 1-2 из 2)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна и Михаил - счастливые родители, их дочке Юле уже десять лет. Девочка родилась с пороком сердца и едва не умерла сразу после рождения. Родители окружили Юлю заботой, любовью и привыкли исполнять любые ее пожелания. После трагической гибели мужа Аня полностью посвящает себя дочери, работает сиделкой и даже не помышляет о личной жизни. Тем временем из капризного (   Читать дальше...   )Производство: РоссияЖанр: МелодрамаРежиссер: Екатерина ДвигубскаяАктеры: Ксения Алферова, Мария Лисовая, Андрей Фролов, Виталий Кудрявцев, Екатерина Соломатина, Сергей Греков, Светлана Виноградова, Наталия АринбасароваПродолжительность: ~ 01:29:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4A305ECC628EAEFBE32E8C9E1024F297333D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088904   (948617) от 05.01.2017
 
 Юмор года 2016 (2017.01.01-03) SATRip (части 1-2 из 2)
@@ -640,61 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBC2A79403D33FD8DA61B77BA3068EC36D30FCAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362724   (948419) от 24.02.2020
-
-Серия Кубков NASCAR 2020. 2-й Этап. Пеннзоил 400 / Nascar Cup 2020. Pennzoil 400 presented by Jiffy Lube (23.02.2020) WEB-DL [H.264/720p-LQ] (2020)
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948419.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 этап Nascar Cup, Pennzoil 400 presented by Jiffy Lube, Las Vegas Motor Speedway (267 laps, 400 miles).Телекомпания: A21 NetworkЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Продолжительность: 03:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:981F66393D62D859A8584662C33027C575E95FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362484   (948418) от 24.02.2020
-
-Gabriel Garrido Garcia - Etherborn (Original Game Soundtrack) (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948418.jpg" />
-</div>
-
-
-###  Подробнее
-
-|01:15| 01. Main Title
-|01:38| 02. Birth
-|01:36| 03. The Endless Tree - First Vision
-|01:36| 04. The Endless Tree - Second Vision(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B204DF75D1F079C526345BF72116423F429D2095
 ```
 
 https://mybot314.ru/tekegram_catalog/

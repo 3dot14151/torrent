@@ -1,3 +1,61 @@
+###  Публикация: 1384041   (805732) от 18.05.2020
+
+VA - Beatport Tech House: Sound Pack #81 (2020) [MP3|320 Kbps] <Tech, Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805732.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Subground - North Side
+002. Dave Allister - Panorama (Original Mix)
+003. Thomas Fehlmann - Triggerism
+004. Jack Liberto - Red Circle (Original Mix)(   Читать дальше...   )Жанр: Tech, Deep House, ElectroПродолжительность: 09:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D555723393D90A99A60E33E1B0928024F5F232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119777   (805605) от 29.03.2017
+
+VA - Best of Chill House 2017. Volume 1. Leave The Past [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Chill House, Deep-House, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lamliki - La Renaissance (4:51)
+02. Dr. Feelx - Deep Is Love (Alex Barattini Sunset Mix) (5:55)
+03. Maxim Buldakov - Sunset (6:28)
+04. Solanos - Infinite Fields (5:24)(   Читать дальше...   )Жанр: Chill House, Deep-House, LoungeПродолжительность: 04:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7CAD27CDC3B25C4A3E072773F8B372F58984E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198884   (804510) от 13.01.2018
 
 VA - The Best Of Trance 64 (2018) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Synth of Waves 7 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34B10DD881C4C5E21288781059AC8AC6734F7F27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505577   (802743) от 28.10.2021
-
-VA - The Delicate Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802743.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Darren Studholme - Pieces
-002. Juno Valdez - This Is Your Life
-003. Alex Poet feat. Michelle Weeks - Where Do I Begin
-004. Rony Seikaly - Frontin'(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3248BA494717F50B779F3EF74729CC38F62A352A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505541   (802729) от 28.10.2021
-
-VA - Agoraphobia: Techno Electronic Party (2021) [MP3|320 Kbps] <Techno, Electronic, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802729.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Serenace - Reflex Dub
-002. Rewach - Tronic
-003. Fruhwerk - Walking Robot
-004. Oscar Sanchez - Gumede(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 11:11:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9FA10F75F0074BD1969C85E0A65E8C73E11257E
 ```
 
 https://mybot314.ru/tekegram_catalog/

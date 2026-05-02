@@ -1,3 +1,119 @@
+###  Публикация: 1532595   (712578) от 20.02.2022
+
+Brandon Reeves - There's No Going Back (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Until It Takes a Hold (3:57)
+02. Good News (4:25)
+03. There's No Going Back (4:04)
+04. Room (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4C45C3867A620CD228ADBC33EC6A750B09F4B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025282   (712215) от 11.06.2016
+
+Big Mike Griffin - Sittin' Here With Nothing (1995) [FLAC|Lossless|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody's Been Talkin'    04:12
+02. Satisfied    02:43
+03. Love is Growing Cold    04:24
+04. Sittin' Here With Nothing    03:53(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F7A8757CDA2203ACF15B199279BCE5062FD3AF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025095   (712211) от 11.06.2016
+
+Kees Dusink - Forever Blue (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues / Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Blue
+02. Harbor Swing
+03. Albatross
+04. Blues To The Bone(   Читать дальше...   )Жанр: Modern Electric Blues / InstrumentalПродолжительность: 01:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F932F88958245CEBD036680132D013979555819A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025306   (712201) от 11.06.2016
+
+Adrian Galysh - Into The Blue (2016) [FLAC|Lossless|image + .cue] <Blues-rock, Instrumental-guitar-rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Your Hammer Ring (4:12)
+02. Barstool Monarchy (3:27)
+03. Unloveable Me (3:35)
+04. Messin' with the Kid (5:09)(   Читать дальше...   )Жанр: Blues-rock, Instrumental-guitar-rockПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4076D591770CDFFB1D66BB5BA8CE3A3616A5EA15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025085   (712141) от 11.06.2016
 
 Johnny Winter with Dr. John - Live in Sweden 1987 (2016) [FLAC|Lossless|tracks + .cue] <Blues, Blues-Rock>
@@ -629,122 +745,6 @@ Llorca - The Garden (2017) [FLAC|Lossless|tracks] <Soul, Funk, Nu Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89F489B47056DB828FFA4CD5CC98AC4D16B41FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026448   (704156) от 15.06.2016
-
-Tom Killner - Hard Road (2015) [FLAC|Lossless|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming Home    02:46
-02. Ain't No Rest for the Wicked    04:56
-03. Feeling Good    05:31
-04. Fake It    02:49(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA91D035E56C3968E107315F1EA161A747C46D40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402125   (703944) от 13.08.2020
-
-Al Basile - B's Hot House (2019) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So-Called Storyteller (04:49)
-02. Five Roads (03:51)
-03. Razor Wire (04:30)
-04. Try One (02:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCE3DC4D1E050CC03EC0078E515EF18F0B62851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026778   (702424) от 16.06.2016
-
-Thomas David Gibson - The Way She Change (2016) [FLAC|Lossless|tracks] <Blues-Rock, Soft Rock, Acoustic>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way She Change    04:33
-02. House of Cards    02:36
-03. Soul Shine    03:23
-04. Let Me Sleep    03:16(   Читать дальше...   )Жанр: Blues-Rock, Soft Rock, AcousticПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEBF0985583F69DCFF393076FC29B4BD918E1076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026704   (702422) от 16.06.2016
-
-Albert King With Stevie Ray Vaughan - In Session (1999) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call It Stormy Monday
-02. "Old Times"
-03. Pride And Joy
-04. Ask Me No Questions(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C91C73AC9DF150750FD6FCD8E8CF27B7ED3D4327
 ```
 
 https://mybot314.ru/tekegram_catalog/

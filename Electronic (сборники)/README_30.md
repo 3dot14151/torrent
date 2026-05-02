@@ -1,3 +1,61 @@
+###  Публикация: 989192   (913172) от 24.02.2016
+
+VA - Лучшая клубная музыка ANDRS vol.34 (2016) [MP3|320 кб/с] <Club, Dance, Electro, House, Electro-House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unknown - Unknown
+02. Dan Farber - Don't Touch (Original Mix)
+03. SOTL - Deep House Mix vol.24 (June 2015) - Track 3
+04. Puka - Hey Sister Go (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, Electro, House, Electro-House, Deep HouseПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30AED4A196221F6A64F3C5B634CC0005938CA8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096730   (912579) от 28.01.2017
+
+VA - Club Dance Ambience Vol.99 (2017) [MP3|320 Kbps] <Dance, Club, Club House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_912579.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2Elements x Crew 7 - California Dreamin' (DJ Miller x DJ Alex Milano Bootymix) 4:14
+002. Aaron North - I Wanna Be (Original Mix) 5:33
+003. Agent Smith - Завалю Снегом (Kosmos) (A-Mase 2X17 Remix) 5:38
+004. Alan Walker - Alone (Extended Mix) 3:55(   Читать дальше...   )Жанр: Dance, Club, Club House, HouseПродолжительность: 07:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110C763CDFB0139FC3C5262B72CED6DC89609320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990378   (912336) от 25.02.2016
 
 VA - Pure Wellness 1 (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ VA - Super Dance Party vol.6 (2016) [MP3|320 кб/с] <Club , Dance , House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70520EF0DD95782352EFBC7E84EDD18B45F158E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991166   (907810) от 27.02.2016
-
-VA - Nude Mix #1 (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam F - Circles (dRamatic & dbAudio Unofficial Remix V2) (06:45)
-02. Crush & NYD feat. Jordan Howell - Conscious (04:19)
-03. Desh - Polaris (04:16)
-04. Bad Company UK - Equilibrium (04:43)(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7737B75BA67700818EEF842C370C1F81D4BA9A75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099173   (907350) от 31.01.2017
-
-VA - Trance Traveling 85 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  UCast & Magnus - Echo (Extended Mix)  5:34
-02.  Chris Metcalfe - Orbit (Extended Mix)  4:52
-03.  ReOrder - Spirit Of Ecstasy (Extended Mix)  5:23
-04.  Fabio XB & Marell feat. Christina Novelli - Can't Let Go (Extended Mix)  4:09(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, VocalПродолжительность: 04:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E50F9BC6799809C06C67175EE66CFC1C3AF6692
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,212 @@
+###  Публикация: 966171   (219992) от 17.12.2015
+
+Enigma - MCMXC a.D. (1990) [FLAC|Lossless|tracks + .cue] <Abstract, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voice of Enigma (2:21)
+02. Principles of Lust: Sadeness / Find Love / Sadeness (reprise) (11:43)
+03. Callas Went Away (4:29)
+04. Mea Culpa (5:01)(   Читать дальше...   )Жанр: Abstract, AmbientПродолжительность: 00:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B62C5966E26E515A6CB632A033389372217245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269518   (219897) от 15.12.2018
+
+Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hostage, Pt. 1 (07:29)
+02. Will & Sarah (03:56)
+03. Welcome To Heaven (02:40)
+04. Botha (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47619DFC3AEE548A6EF1EA4B617180FAAA8ACFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269519   (219871) от 15.12.2018
+
+Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hostage, Pt. 1 (07:29)
+02. Will & Sarah (03:56)
+03. Welcome To Heaven (02:40)
+04. Botha (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB2CD312B9DE8C95BFC8B9A4CC010853457D98D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269466   (219716) от 15.12.2018
+
+Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных городов (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Suite in C Major (08:56)
+02. No-One You Know (02:53)
+03. The Chase (01:08)
+04. Welcome to London (02:40)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE002060B6E230601DC27E24400FE8441010DB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587892   (219712) от 11.12.2012
+
+KamaSutra - Kama Sutra Erotic Massage (2011) [MP3|320 кб/с]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kamasutra (Erotic Massage Music)
+02. Tantramassage
+03. Massage Music
+04. Natural White Noise Sleep Music and Crickets (Amazon Rainforest)
+05. Chakra Balancing
+06. Erotic
+07. Musictherapy
+08. Hotgirls
+09. Ave Maria Classical Sleep Music with Nature Sounds Thunder Sound
+10. Thaimassage(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 02:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6D4ACFEDC4839F21A3E6A5927C731807AC439B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269514   (219693) от 15.12.2018
+
+Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skylar Grey - Everything I Need (Film Version) (03:16)
+02. Rupert Gregson-Williams - Arthur (04:41)
+03. Rupert Gregson-Williams - Kingdom of Atlantis (03:26)
+04. Rupert Gregson-Williams - It Wasn't Meant to Be (03:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FC2CA5BEA282F7B31F708536E17D782AA6BD885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269468   (219619) от 15.12.2018
+
+Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных городов (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Suite in C Major (08:56)
+02. No-One You Know (02:53)
+03. The Chase (01:08)
+04. Welcome to London (02:40)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0DEBE8CB2B5D123B78F4EFB9C0FA1D1414543B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269515   (219577) от 15.12.2018
 
 Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -546,212 +755,6 @@ Dr. Jeffrey Thompson - 2 albums (1995, 2001) [MP3|320 кб/с]<Ambient, Relax, H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC52E2BF5D87EACB5D5392AD05C9C9F57B15ADF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966419   (217736) от 18.12.2015
-
-John Williams - Звёздные войны: Пробуждение силы / Star Wars: The Force Awakens (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title and the Attack on the Jakku Village (06:26)
-02. The Scavenger (03:40)
-03. I Can Fly Anything (03:11)
-04. Rey Meets BB-8 (01:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C331E234D0E7C22C1009578E8C26F5837522DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514466   (217439) от 03.12.2021
-
-Музыкальные композиции Александра Морозова в исполнении Гасана Багирова - Мелодии для души (2007) [FLAC|Lossless|tracks + .cue]<Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Горница
-02. Душа болит
-03. Малиновый звон
-04. Остановите землю(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3133FBC00FBEFF99E7C13E983E42D3AF9C4B613E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084832   (216991) от 20.12.2016
-
-Frank Squillante - Take Me There (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Take Me There [00:04:29]
-02 -  American Image [00:03:05]
-03 -  I Was Told Otherwise [00:02:34]
-04 -  If You Think of It [00:02:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FB564614F31D253E0DF982138A7EAD13CA2050
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084941   (216795) от 20.12.2016
-
-Amy Lynne Johnson - Piano Poetry, Vol. 2: Music to Calm the Mind and Lift the Heart (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset Shimmer [00:01:45]
-02. Memory Lane [00:01:55]
-03. Baby's Bliss [00:02:20]
-04. Falling in Love [00:01:52](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CC3278BB5A3E45B82288328B785694CBFD115B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 69832   (216732) от 12.12.2012
-
-Tony O'Connor - 26 albums (1989-2007)[MP3|192-320 kbps]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horizon Blue (9:19)
-02. Cascade (7:33)
-03. Lilypond (7:06)
-04. Quietude (6:00)
-05. Somewhere (6:53)
-06. Perido a Tiempo (7:42)
-07. When We Sail Away (9:16)Жанр: New AgeПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084967   (216353) от 20.12.2016
-
-Meditative Mind - 7 Chakras Healing Music (Tibetan Singing Bowl Edition) (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Root Chakra Meditation (Tibetan Singing Bowl Edition) [00:31:22]
-02 -  Sacral Chakra Meditation (Tibetan Singing Bowl Edition) [00:30:00]
-03 -  Solar Plexus Chakra Meditation (Tibetan Singing Bowl Edition) [00:30:36]
-04 -  Heart Chakra Meditation (Tibetan Singing Bowl Edition) [00:30:56](   Читать дальше...   )Жанр: New AgeПродолжительность: 03:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0B6598C811A7C522F3E105115EE57E2E3FE6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084697   (216168) от 20.12.2016
-
-VA - Christmas Cafe (2016) [FLAC|Lossless|tracks] <Pop, Soul, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pentatonix – The Christmas Song (Chestnuts Roasting on an Open Fire) [00:03:43]
- 02. Tom Odell – Real Love [00:02:21]
- 03. Joshua Radin – Winter [00:03:23]
- 04. Katy Perry – White Christmas [00:03:20](   Читать дальше...   )Жанр: Pop, Soul, FolkПродолжительность: 02:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9481DE3B44914BD429C5C34819616492352E0170
 ```
 
 https://mybot314.ru/tekegram_catalog/

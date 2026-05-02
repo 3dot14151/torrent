@@ -1,3 +1,32 @@
+###  Публикация: 1169850   (401516) от 29.09.2017
+
+Stephanie Quayle - Love The Way You See Me (2017) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Drinking With Dolly (3:16)
+02 - Winnebago (3:22)
+03 - Selfish (3:47)
+04 - Ugly (3:47)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF94E6C0A558AAF9D0521FDDDAC31FDBA9B9AE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171133   (397607) от 03.10.2017
 
 Fleur (Flёur) - Волшебство (2003) [FLAC|Lossless|tracks] <Folk, Cardiowave>
@@ -722,35 +751,6 @@ Guilhem Desq - Visions (2017) Les Jeudis Du Rock, 2018 [FLAC|Lossless|Web-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:257EA170167EC721BAD64480689CBEA5F4D3CF03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081844   (278632) от 12.12.2016
-
-Leonard Cohen - The Essential Leonard Cohen (2002) 2CD, Compilation [FLAC|Lossless|image + .cue] <Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't No Cure for Love (4:52)
-02. Take This Waltz (5:59)
-03. First We Take Manhattan (5:52)
-04. Dance Me to the End of Love (live) (6:06)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 02:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578B3A6A9E6C0E62E19BF8FBD76F18ACF81EF88F
 ```
 
 https://mybot314.ru/tekegram_catalog/

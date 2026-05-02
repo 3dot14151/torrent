@@ -1,3 +1,205 @@
+###  Публикация: 983232   (945217) от 05.02.2016
+
+Tom Holkenborg aka Junkie XL - Deadpool (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Of The Morning (By Juice Newton)
+02. Maximum Effort
+03. Small Disruption
+04. Shoop (By Salt-N-Pepa)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1A634E62484CEDB7F2058DB68FA89837E179C4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090323   (944765) от 08.01.2017
+
+Arcade Messiah - II (2015) [MP3|320 кб/с]<Instrumental Post-Metal, Progressive Metal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944765.jpg" />
+</div>
+
+
+###  Подробнее
+
+[07:17] 01. Moon Signal
+[06:47] 02. Red Widow
+[08:33] 03. Black Dice Maze
+[03:07] 04. Gallows Way(   Читать дальше...   )Жанр: Instrumental Post-Metal, Progressive MetalПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F9388B30B8FFCD95B91A2F758783ED8B4AF0A8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090354   (944704) от 08.01.2017
+
+Arcade Messiah - III (2016) [FLAC|tracks|WEB-DL]<Instrumental Post-Metal, Progressive Metal>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944704.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:05] 01. Revolver
+[07:15] 02. Citadel
+[10:27] 03. Deliverance
+[06:49] 04. Life Clock(   Читать дальше...   )Жанр: Instrumental Post-Metal, Progressive MetalПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E62BF7BC3283DB47FB5D94C68A9491F75314601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090444   (944646) от 08.01.2017
+
+Arcade Messiah - Arcade Messiah (2014) [FLAC|tracks|WEB-DL]<Instrumental Post-Metal, Progressive Metal>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944646.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:35] 01. Sun Exile
+[06:48] 02. Your Best Line Of Defence Is Obscurity
+[05:23] 03. Traumascope
+[02:52] 04. Aftermath(   Читать дальше...   )Жанр: Instrumental Post-Metal, Progressive MetalПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3AC86D24BEF3CAF99704C8AD381E97D1F385E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090338   (944638) от 08.01.2017
+
+Arcade Messiah - III (2016) [MP3|320 кб/с]<Instrumental Post-Metal, Progressive Metal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944638.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:05] 01. Revolver
+[07:15] 02. Citadel
+[10:27] 03. Deliverance
+[06:49] 04. Life Clock(   Читать дальше...   )Жанр: Instrumental Post-Metal, Progressive MetalПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE661B20EA4F294C4565495FA3A322BC5E4DEDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090939   (944548) от 08.01.2017
+
+Sally-Ann Taylor - Beginners Guide to Meditation & Visualisation (2012) [FLAC|Lossless|WEB-DL|tracks] <Spoken Word>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Counting (feat. Llewellyn) [00:05:18]
+02. Visualisation [00:16:09]
+03. Colour Healing (feat. Llewellyn) [00:32:49]Жанр: Spoken WordПродолжительность: 00:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A540C3682AE1640C595DF30AE835A31709A604C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983524   (943937) от 06.02.2016
+
+John Adorney - Beckoning (1998) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Gift [04:41]
+02. Beckoning [04:29]
+03. The Gathering [06:07]
+04. Solace	[04:09](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40306704EA7F27B2FE06C89D16303B0B835E7077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983138   (943609) от 06.02.2016
 
 Simon and Garfunkel - Greatest Hits (1972) [FLAC|Lossless|tracks + .cue] <Folk Rock>
@@ -543,206 +745,6 @@ Anuvida & Nik Tyndall - Reiki Healing Hands (1995) [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68771BAF3CDC22297D5DDBA118A12CB8466D99F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984104   (938472) от 09.02.2016
-
-Clint Mansell & Kronos Quartet - Noah (2014) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Beginning, There Was Nothing (04:08)
-02. The World Was Filled With Violence (01:29)
-03. The End Of All Flesh Is Before Me (02:14)
-04. Sweet Savor (04:27)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:18:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1182EC22CF0A589BE156DBFF7B7CF72847A13352
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983901   (938232) от 09.02.2016
-
-M83 - Suburra (2015) Original Motion Picture Soundtrack [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight City (4:04)
-02. By The Kiss (4:03)
-03. On A White Lake, Near A Green Mountain (4:43)
-04. We Own The Sky (5:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59906ECD663AEAE63A82DD23D9057BEDF583B3A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363170   (937962) от 02.03.2020
-
-Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937962.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:08| 01. Mortal
-|03:15| 02. Ecce Eric
-|04:12| 03. The Interrogation Scene
-|03:44| 04. Christine's Introduction(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A7EE883A40BC2625A803878036C15F9F7A0FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363968   (937950) от 02.03.2020
-
-Keegan DeWitt - All the Bright Places / Все радостные места (Music from the Netflix Film) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937950.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:51| 01. All The Bright Places I
-|03:53| 02. All The Bright Places II
-|04:02| 03. All The Bright Places III
-|02:03| 04. Hey Violet(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BF1A88B73145A30100B8BFD78935743E44CDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362836   (937905) от 02.03.2020
-
-Justin E. Bell - The Outer Worlds (Original Soundtrack) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937905.jpg" />
-</div>
-
-
-###  Подробнее
-
-|07:45| 01. Hope (Title Theme)
-|02:00| 02. Hope, Forever
-|04:19| 03. Left Adrift (Character Creation)
-|01:07| 04. Phineas Escapes(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C691606503CE3EBE984A8D572B57B0876A102C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363969   (937901) от 02.03.2020
-
-Keegan DeWitt - All the Bright Places / Все радостные места (Music from the Netflix Film) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937901.jpg" />
-</div>
-
-
-###  Подробнее
-
-|02:51| 01. All The Bright Places I
-|03:53| 02. All The Bright Places II
-|04:02| 03. All The Bright Places III
-|02:03| 04. Hey Violet(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A51AB29778E6B9FE11A5D58223B810AD462FEC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362854   (937739) от 02.03.2020
-
-Dreamstate Logic - 6 Compilations (2015-2020) [MP3|320 Kbps] <Ambient, Downtempo, Futurewave>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937739.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Ambient, Downtempo, FuturewaveПродолжительность: 08:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04094F65A6C918E0C7E3D4A20C7DDBE2B55F8085
 ```
 
 https://mybot314.ru/tekegram_catalog/

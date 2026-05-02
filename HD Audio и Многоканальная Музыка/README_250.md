@@ -1,3 +1,177 @@
+###  Публикация: 1802410   (14407) от 16.06.2025
+
+Girls Aloud - The Girls Aloud Show (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Untouchable (Live) [00:04:56]
+02. The Show (Live) [00:03:42]
+03. Something New (Live) [00:04:47]
+04. Love Machine (Live) [00:03:24](   Читать дальше...   )Жанр: PopПродолжительность: 01:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BC74E61E471745CFB5D10093C02AAF36E3FB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802406   (14406) от 16.06.2025
+
+Brandee Younger - Gadabout Season (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz, Harp>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reckoning [00:02:05]
+02. End Means [00:04:12]
+03. Gadabout Season [00:04:45]
+04. Breaking Point [00:02:43](   Читать дальше...   )Жанр: Contemporary Jazz, HarpПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45CAAF7C4B53FF096B0DE3D4E3F9153340D16621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802404   (14399) от 16.06.2025
+
+The Blue Stones - METRO (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Blues Rock, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Metro 47 [00:00:50]
+02. Your Master [00:03:03]
+03. Scared of the Dark [00:03:07]
+04. Come Apart [00:03:02](   Читать дальше...   )Жанр: Rock, Blues Rock, SoulПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFC9E5DFFC23A1526E7D651A0A4A6A8A0D6B8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702422   (14222) от 18.06.2025
+
+Paul McCartney (Пол Маккартни) - Снова в СССР (1989) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Kansas City (Jerry Leiber / Mike Stoller)
+02. Twenty Flight Rock (Eddie Cochran / Ned Fairchild)
+03. Lawdy Miss Clawdy (Lloyd Price)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50CC9DA2A3D60A720C56D60F0BA3E89F9EAF1B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802999   (13990) от 20.06.2025
+
+Manowar - Kings of Metal (1988)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Wheels Of Fire (04:11)
+02 - Kings Of Metal (03:44)
+03 - Heart Of Steel (05:12)
+04 - Sting Of The Bumblebee (02:49)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52DB2772D1ED42A8E523CA506A0F3D2838866EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803110   (13890) от 21.06.2025
+
+Joe Bonamassa - Trigger Finger (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trigger Finger
+02. Breakthrough
+03. Shake This Ground
+04. Drive By The Exit SignЖанр: Blues RockПродолжительность: 00:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD783B489C606E1758AF41E27CDA53844E3E52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637929   (13718) от 23.06.2025
 
 Alestorm - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk/Power Metal>
@@ -571,178 +745,6 @@ Warkings - австрийская пауэр-метал/хэви-метал гр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC843D52C0EFCBF0CFBE4110AC37BE23A0C64BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805150   (12438) от 05.07.2025
-
-Night Tempo - Showa Idol's Groove. Rare Groove From 80's (2019) (Night Tempo Self-released) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Vaporwave, Nu-Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12438.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Intro
-02. Iyo
-03. Akemi(   Читать дальше...   )Жанр: Electronic, Vaporwave, Nu-DiscoПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455290FFBE9DA7993E990CDA59335B32BD3D213E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804961   (12418) от 05.07.2025
-
-Studio Ghibli - Studio Ghibli Songs (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. My Neighbor Totoro (Captured Near Me 1988 Kazuto)
-02. Carrying You: A Fatty Call (Azure Sky Castle - 1986)
-03. Valley of the Wind Oinoya (Iriinoya - 1984)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7F131B968D96B719760A18DCDED3DE1FC0687B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723409   (12236) от 07.07.2025
-
-Big Wreck (& Thornley) - Studio Albums (11 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Wreck — канадско-американская рок-группа, созданная Яном Торнли в Бостоне, штат Массачусетс, в 1994 году. Группа распалась в 2002 году, и Ян Торнли продолжил сольную карьеру в своей собственной группе Thornley. В 2010 году Ян Торнли и Брайан Доэрти воссоединились для тура по Канаде, исполнив песни Big Wreck и Thornley.
-Big Wreck снова начали выпускать новую музыку (   Читать дальше...   )1997 - In Loving Memory Of...
-2001 - The Pleasure and the Greed
-2012 - Albatross
-2014 - GhostsЖанр: Progressive RockПродолжительность: 11:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1DB891FAFCBDBF5BB5438068941DB9FC9B593D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805632   (12118) от 08.07.2025
-
-Dropkick Murphys - For The People (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Celtic Punk, Rock, Oi! Punk band from Boston>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who'll Stand With Us? [00:03:51]
-02. Longshot (feat. The Scratch) [00:03:27]
-03. The Big Man [00:02:53]
-04. Chesterfields and Aftershave [00:04:30](   Читать дальше...   )Жанр: Celtic Punk, Rock, Oi! Punk band from BostonПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96393E0E2F38B087FCCBD3307620B412D7C46F5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805804   (12111) от 08.07.2025
-
-Station Echo - What Should Have Been but Never Will (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12111.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Blown Away (6:58)
-• 02. Mess Around (4:14)
-• 03. Mysterious (2025 Remastered Version) (4:41)
-• 04. Alone (4:57)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFD58FB1EF15E7F2E9ED354807D5F0016DD92D23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805762   (12066) от 09.07.2025
-
-VA - Rock Ballads Volume 1&2 (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12066.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A17B8B0F50F991395096614B7BF544291753A28
 ```
 
 https://mybot314.ru/tekegram_catalog/

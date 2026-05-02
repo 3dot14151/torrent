@@ -1,3 +1,204 @@
+###  Публикация: 1204037   (785360) от 04.02.2018
+
+Stephen Rhodes - Relax II: Your Essential Spa Music (2013) [FLAC|Lossless|image + .cue] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discovery
+02. Voices From The Past
+03. Air of Tenderness
+04. Love Remembered(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89BF26A12FD4AB1C0D565FAFA0AD583705E0F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204024   (785350) от 04.02.2018
+
+The Romantic Strings and Twin Pianos - Full Moon & Empty Arms (1993) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laura (3:32)
+ 02. I'm Always Chasing Rainbows (3:44)
+ 03. Hey There (3:46)
+ 04. Moon Love (4:36)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD62E0AFCCFBD47B37DA17F17D74951370F868B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276824   (785332) от 20.01.2019
+
+VA - Virtually Surrounded (Headphone Demo) (2018) [FLAC|Lossless|tracks + .cue] <Demonstration & test>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Botti - Lisa (5:06)
+02. Roxy Music - Avalon (4:17)
+03. Nirvana - Come As You Are (Live) (4:00)
+04. Dire Straits - Brothers In Arms (6:52)(   Читать дальше...   )Жанр: Demonstration & testПродолжительность: 01:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62C07F587149A7CA2A8D0EA7CA7566AE53F7028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202735   (785302) от 04.02.2018
+
+Sagor Som Leder Mot Slutet - 2 Альбома (2016-2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785302.jpg" />
+</div>
+
+
+###  Подробнее
+
+2016 - Sagor Som Leder Mot Slutet
+2018 - IIЖанр: Post-Rock, Post-Metal, InstrumentalПродолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E46F460A72B5BDAD61CB726E57C0EF103E1867C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203876   (785196) от 04.02.2018
+
+ДиДюЛя - Пещерный город Inkerman (2006) [FLAC|Lossless|tracks + .cue] <Flamenco, Ballad>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайна скал, ветров туман
+02. Пещерный город Инкерман
+03. Таял звук по капле где-то
+04. Винил крутил времён вендетту(   Читать дальше...   )Жанр: Flamenco, BalladПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCD46E8C0F86EE47A08037105A83F3711084D256
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204613   (784350) от 07.02.2018
+
+Armik - Romantic Spanish Guitar Vol. 3 (2016) [FLAC|Lossless|image + .cue] <Instrumental, Nuevo Flamenco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sol De Sevilla (04:33)
+02. Noche De Romance (04:42)
+03. For Every Kiss (04:38)
+04. Only for You (04:37)(   Читать дальше...   )Жанр: Instrumental, Nuevo FlamencoПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9AA334D91C5B083D8351229911421CE189317E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204538   (784342) от 07.02.2018
+
+Armik - Pacifica (2018) [MP3|320 Kbps] <Nuevo Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pacifica (4:20)
+02. Forever In Love (5:10)
+03. Caribbean Dreams (4:28)
+04. Heaven In Your Eyes (4:33)(   Читать дальше...   )Жанр: Nuevo FlamencoПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36675BFFC0ADBFB12D573992BE0A8CA781E769FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389293   (784247) от 11.06.2020
 
 Cris Velasco & Sascha Dikiciyan - The Long Dark Soundtrack 2 (2020) [MP3|320 Kbps] <Soundtrack>
@@ -536,209 +737,6 @@ Ken Verheecke - Consider the Moon & Stars (2018) [MP3|320 Kbps] <Electronic, New
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E473264C99B5DBACB564DF250043A0891E555BDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207596   (780391) от 19.02.2018
-
-Maria Rita - Amor E Musica (2018) [MP3|320 Kbps] <Latin Music, Samba>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chama De Saudade 4:36
-02. Nos Passos Da Emocao 2:55
-03. Saudade Louca 4:41
-04. Cara E Coragem 4:01(   Читать дальше...   )Жанр: Latin Music, SambaПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FACDD9148A271FB26FE86928AE6AF22A3CC49D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207859   (780245) от 20.02.2018
-
-VA - New Age Style - Greatest New Age Hits, Vol. 18 (2018) [MP3|320 Kbps] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Haiku Project feat. Sara Grabow - Earth (4:41)
-02. Leo Rojas feat. Chantelle Barry - Wolf's Heart (3:25)
-03. Terry Oldfield & Carlos Garo - Orbital (3:57)
-04. The Sound Of Love - My Sweet Dream (4:48)(   Читать дальше...   )Жанр: New ageПродолжительность: 02:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F138DAD248D95D90D3D7C49426A838FD9AACA64C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207669   (780242) от 20.02.2018
-
-Brandi Carlile - By the Way, I Forgive You (2018) [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Time I Hear That Song 4:01
-02. The Joke 4:39
-03. Hold Out Your Hand 4:23
-04. The Mother 3:17(   Читать дальше...   )Жанр: FolkПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F015A25286819CBEB3708EB70D2FE06A2EAD2ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208188   (780097) от 21.02.2018
-
-Guido Negraszus - Night Cafe III (Freedom Travellers) (2012) Guido Negraszus Music [MP3|320 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Guido Negraszus - немецкий композитор, музыкант, продюсер и аудио-инженер в одном лице, живет в красивом предместье на юго-западе города Busselton в Западной Австралии. Изначально начинал как музыкант электронной музыки, но постепенно пришел к своему собственному стилю: универсальному многожанровому звуку. С 1990 года он выпустил много студийных альбомов в жанрах (   Читать дальше...   )01. The Glory 4:27
-02. Travellers of the Skies 5:37
-03. Kiting Dreamers 4:48
-04. Young Heroes (Olympic Dreams) 3:25(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E555511FFBBBA9D81C2421CB7B477918AFD915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207995   (780078) от 21.02.2018
-
-David Wahler - Mosaic (2018) [MP3|320 Kbps] <New age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mosaic (5:56)
-02. Afterain (4:19)
-03. A Promise to Keep (5:47)
-04. Child of the Universe (5:51)(   Читать дальше...   )Жанр: New age, Relax, InstrumentalПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671D9086F190FCC92F3097B07DE42F0776A2320A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201235   (780042) от 21.02.2018
-
-Поль Мориа - Музыка хорошего настроения (2005) [APE|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прости мне этот детский каприз
-02. Мой дом и река
-03. Девушка в бикини
-04. Глупышка(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:12:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13387109394679395F6965A69F09655CEC857DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208649   (779804) от 23.02.2018
-
-Greg Butler - Whispering Piano (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raein (2:37)
- 02. Kiss the Rain (3:59)
- 03. Le Matin (2:10)
- 04. I Giorni (7:00)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0C0AC7219A9D2116F68EF74DEB0456D078A897C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 1785250   (69365) от 15.03.2025
+###  Публикация: 1778202   (70911) от 08.02.2025
 
-Дарья Воронова | Слышу тебя насквозь (2024) [MP3, Дарья Воронова]
+Газета | Загадки истории №1-2 (628) (2025) [PDF]
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как быстро окружающие составят о вас мнение? С первого взгляда. Как быстро они поймут, какой вы человек? С первого звука. Книга Дарьи Вороновой «Слышу тебя насквозь» предлагает новую неожиданную точку зрения на привычную часть личности – нашу речь. Голос хранит информацию о вас и невольно раскрывает душевные травмы. Помогает завоевать внимание слушателей – или разрушает (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 04:28:35
+«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AE4AF735EAEA225287E33D947F905F006AFFDD3D
+magnet:?xt=urn:btih:1F98D7CDFB86DA811C9B426B16B29340A4BAF181
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785269   (69364) от 15.03.2025
+###  Публикация: 1778288   (70910) от 08.02.2025
 
-TrackChecker Mobile v2.28.1 Mod by Alex.Strannik [Ru/Multi]
+Louis Armstrong - Wonderful World: The Best Of Louis Armstrong (2024) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69364.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение для отслеживания перемещений посылок и подобных почтовых отправлений. Поддержка сканирования штрихкода. Проверка статусов. Сортировка.Тип издания: PremiumРелиз состоялся: 14.03.2025Разработчик: MetalSoftПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+01. A Kiss to Build a Dream On [3:05]
+02. Hello, Dolly! [2:27]
+03. Dream a Little Dream of Me (feat. Ella Fitzgerald) [3:08]
+04. La Vie en Rose [3:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:448DF21798362D4B17EBF622E10D96565B8F446B
+magnet:?xt=urn:btih:E392E6B5ED79219EEB85239EA2DB23C9B7107785
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784866   (69363) от 15.03.2025
+###  Публикация: 1778207   (70909) от 08.02.2025
 
-Операция Рааван / Operation Raavan (2024) WEBRip [H.265/1080p] [RU Sub] [AD]
+Энн Файн | Дневник кота-убийцы. Все истории (2024) [MP3, Алексей Золотовицкий]
 
->>Остальное
->>Фильмы с Рекламой
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69363.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серийный убийца выбирает невест в качестве жертв, а сын магната внедряется в новостной канал, что приводит к напряжённой игре в кошки-мышки.Производство: Индия, Sudhas MediaЖанр: БоевикРежиссер: Венката СатьяАктеры: Ракшит Атлури, Чаранрадж, Дивья Декате, Мурти ДевагуптхапуПеревод: ОтсутствуетЯзык озвучки: ХиндиСубтитры: Русские (hardsub)Продолжительность: 02:18:35Реклама: присутствуют вставки рекламных видео баннеров
+Любите котиков? Этих милых, ласковых, невинных пушистиков? Сейчас проверим вашу любовь на прочность! Дневник кота Таффи — честный и откровенный, полный сарказма монолог о том, как коты на самом деле относятся к жизни и к своим хозяевам. Нежным натурам обещаем много откровений об их питомцах! Всем остальным — очень много смеха, ведь злоключений и чувства юмора коту-убийце (   Читать дальше...   )Жанр: детские приключения, зарубежные детские книги, сказки о животныхПеревод: Дина КрупскаяИздательство: СамокатПродолжительность: 05:32:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CBCE10AF47ED798C50DFAF9F9B366A54D8DAB3A9
+magnet:?xt=urn:btih:656178CAC05365127C804AC6EB60ED78D67DB78B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785329   (69362) от 15.03.2025
+###  Публикация: 1778364   (70908) от 08.02.2025
 
-Чудеса случаются / Горчичное семя / The Girl Who Believes in Miracles (2021) BDRip [H.264/720p]
+Tape Five - Fizzy Far Niente (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Electro Swing>
 
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69362.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70908.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12-летняя Сара Хопкинс самый обычный ребёнок. Но однажды во время поездки к своему дедушке она заявляет, что видела Иисуса на берегу реки. После этого видения Сара способна исцелять животных и людей. Вскоре все местные жители и даже пресса хотят узнать как можно больше об этой маленькой девочке, которая может творить чудеса...Производство: США / 120dB Films, Gerson Productions, The Mustard Seed ProductionЖанр: драма, семейныйРежиссер: Рич КорреллАктеры: Мира Сорвино, Остин Джонсон, Кевин Сорбо, Питер Койот, Бёрджесс Дженкинс, Томми Роуз, Стефани Куд, Пол-Микель Уильямс, Люк Хармон, Коллин ПлэйсПеревод: дублированный (Moygolos)Язык озвучки: русский, английскийСубтитры: русские (на места без перевода), английскиеПродолжительность: 01:39:40
+01. Bandit Town
+02. Bad Boy Good Man (Rmx 2023)
+03. Crazy Little Thing Called Swing (Fizzy Far Niente Edit)
+04. The Hepcats Blues(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:30:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46D504E2D5B70BB1971B0B7FA425BD2745A5EB20
+magnet:?xt=urn:btih:1F267AE64045CFD2ECB2D88355438D5C62F3748D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,26 +108,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785370   (69361) от 15.03.2025
+###  Публикация: 1778577   (70907) от 08.02.2025
 
-Daff Moon Phase (Фазы Луны) v3.45 Mod by shv7net [Ru/En]
+MusicBrainz Picard 2.13.2 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение показывает текущую фазу Луны, фазы Луны на любой месяц, и другую информацию о Луне, Солнце и восьми планетах солнечной системы в реальном времени. Программа позволяет посмотреть положение светил на простейшей небесной сфере, которую можно поворачивать на произвольный угол!
-Изображение фазы Луны с высокой точностью соответствует реальному для данного момента (   Читать дальше...   )Тип издания: ModРелиз состоялся: 15.03.2025Разработчик: Evgeny FedorischenkoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+MusicBrainz Picard - простая в использовании программа для редактирования тегов аудио файлов, которая поддерживает большое количество разнообразных форматов, включая MP3, Ogg Vorbis, FLAC, MP4 (AAC), Musepack, WavPack, Speex и пр.
+Приложение анализирует музыкальный трэк и ищет его в онлайн базе MusicBrainz, если совпадение найдено, то программа скачивает всю информацию (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E4DCC7122E049B6660C7C18F0BB9A7354CED6B1
+magnet:?xt=urn:btih:A74C47B7BF6449305666C2809F33827E4A5D49A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,26 +135,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785226   (69360) от 15.03.2025
+###  Публикация: 1778357   (70906) от 08.02.2025
 
-Шрифты - Pepper Type - MyFonts - Ruberoid [OTF]
+VA - The Best Of Italo Disco Vol. 10 (1988) [AAC|320 Kbps] <Electronic, Pop, Italo-Disco>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт c кириллицей 19 стилей.
-Разработчик: Pepper TypeФормат: OTF
+01. Scotch - Man To Man
+02. Linda Jo Rizzo - Perfect Lover
+03. Chester - Hold The Line
+04. Chip Chip - So Close To Heaven(   Читать дальше...   )Жанр: Electronic, Pop, Italo-DiscoПродолжительность: 01:09:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AB44E16676E2B18711C484EA18A1B4C9570F024
+magnet:?xt=urn:btih:86D4081794AD0EA4B384B7D2E92C5912B7187408
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,78 +164,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785289   (69359) от 15.03.2025
+###  Публикация: 1778097   (70905) от 08.02.2025
 
-Picture Bird - Bird Identifier v2.9.32 Mod by youarefinished [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Picture Bird позволяет легко распознать птиц вокруг вас по фото. Загрузите или сделайте фото птицы, и распознайте ее в считанные секунды. Узнайте названия разных птиц, информацию о каждом виде и многое другое!Тип издания: PremiumРелиз состоялся: 13.03.2025Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C636EBC5C9B29C7DA4027AC6F1C31C313FC0143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785230   (69358) от 15.03.2025
-
-Шрифты - Pepper Type - MyFonts - Mazzard Soft [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей 54 стиля.
-Разработчик: Pepper TypeФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6F9FCD30803CED0DEC34804CAD93EEED09D990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785409   (69357) от 15.03.2025
-
-Роберт Шекли | Безымянная гора (2020) [MP3, Puffin Сafe]
+Олег Куваев | Территория (1976) [MP3, Алексей Эйбоженко, Евгений Евстигнеев, Никита Подгорный и др.]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69357.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Несколько тысяч рабочих и сотни единиц тяжелой техники занимается терраформингом очередной безымянной планеты, предназначенной для осврения. На их пути гигантская гора, судьба которой — стать портом или заливом согласно проекта. Но уже который день странные совпадения не позволяют приступить к сносу горы. Может быть в этом виноваты погодные условия, а может быть (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:36:00
+Главный инженер Северного геологического управления Чинков вопреки сомнениям окружающих утверждает, что на территории, где он работает, есть залежи промышленного золота. Он просит выделить ему средства и людей, чтобы пойти на разведку месторождения. Пройдя через тяжелые испытания, проявив упорство, мужество, беззаветную преданность делу, Чинков и его единомышленники (   Читать дальше...   )Жанр: СпектакльИздательство: ГостелерадиофондПродолжительность: 01:35:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B850CCA5944ECF4A4ABB4BBC270B2804C859F406
+magnet:?xt=urn:btih:50DCBCE31927319AC9CBB683AE373485163A650B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -235,199 +190,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785149   (69356) от 15.03.2025
+###  Публикация: 1778317   (70904) от 08.02.2025
 
-VA - The World Series Of Trance, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaron Inc. vs. Wavetraxx - Summerbreeze (Jaron Inc. Mix) [3:43]
-02. Marc Dawn - Expander (Flutlicht Remix) [6:52]
-03. Green Court feat. De/Vision - Shining (Tiësto Mix) [9:23]
-04. Human Force - Sun Rising High (Reysan Khan Vocal Trance Mix) [5:49](   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89FD22999CCDAB528CF8240A6F170A594A8856B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785257   (69355) от 15.03.2025
-
-Шрифты - Creative Market - Trend Polaroid - Font Duo - 290816968 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trend Polaroid — это современный дуэтный шрифт, сочетающий в себе элегантность утонченного шрифта с засечками и смелый, резкий стиль классического шрифта. Вечный шрифт с засечками и мягкий, насыщенный символами шрифт.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B3AB18DDCE896BD1D04E047C931A50D74FE46C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785202   (69354) от 15.03.2025
-
-Jon Anderson - Perpetual Change (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yours Is No Disgrace (Live) [00:09:56]
-02. Perpetual Change (Live) [00:09:31]
-03. Close To The Edge (Live) [00:18:23]
-04. Heart Of The Sunrise (Live) [00:11:43](   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:04:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AAAC46320638E53AF00E081617FB95B6CEE730E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785399   (69353) от 15.03.2025
-
-Шрифты - Creative Market - Romantic History - 288202552 [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Romantic History — это вневременной шрифт, черпающий вдохновение в классическом римском стиле, зародившемся в эпоху Древнего Рима между I и IV веками нашей эры. Этот созданный вручную шрифт демонстрирует красоту традиционной типографики с ее естественными формами засечек и изящными изгибами, напоминающими каллиграфию плоским пером.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877BF38BFD664526123889D48F6C84487F385082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785433   (69352) от 15.03.2025
-
-Opeth - Pale Communion (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternal Rains Will Come
-02. Cusp Of Eternity
-03. Moon Above, Sun Below
-04. Elysian Woes(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73294D495F94F4F9FF190B6CFDBA342543D35C9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785363   (69351) от 15.03.2025
-
-Шрифты - Creative Market - Podrich - Timeless Logo Font - 290897290 [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Podrich — элегантный вневременной шрифт с засечками для логотипа, вызывающий утонченность, классику и чувство изысканной роскоши. Он отличается значительным контрастом между толстыми и тонкими штрихами, что повышает читаемость и придает роскошный вид.
-
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68F24E4A67F7C3EC10C054364EF6D74B1711CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785216   (69350) от 15.03.2025
-
-Sub Zero Project - Tomorrowland Friendship Mix (2025-03-13) [MP3|320 Kbps] <Hard Dance>
+Korolova - Live @ Tulum, Mexico (2025-02-07) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sub Zero Project ft. Bryant Powell - Refuse To Speak
-02. Brennan Heart & Wildstylez - Lose My Mind (Sub Zero Project Remix)
-03. Sub Zero Project & Rebelion - Save Me
-04. Max Enforcer - Lost In Paradise(   Читать дальше...   )Жанр: Hard DanceПродолжительность: 00:59:39
+01. Rivo - Last Night (Korolova Remix)
+02. ID - ID
+03. Korolova & EYNKA vs. Signum ft. Scott Mac - Coming On Strong
+04. Deep Dish - Say Hello (Korolova Remix)(   Читать дальше...   )Жанр: Progressive House, Melodic House, TechnoПродолжительность: 00:54:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B592E1D0EAE6844597201E051F2DCF2E1A0E462
+magnet:?xt=urn:btih:390B5BA4A03AEA1A434536B1168731E12EDF6DEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -435,28 +219,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785294   (69349) от 15.03.2025
+###  Публикация: 1778204   (70903) от 08.02.2025
 
-Death Angel - The Enigma Years (1987 - 1990) (2020) Box Set, Compilation, Reissue, Remastered [FLAC|Lossless|image + .cue] <Thrash Metal>
+FolderSync Pro v4.2.0 Mod by youarefinished [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70903.jpg" />
+</div>
+
+
+###  Подробнее
+
+FolderSync обеспечивает простую синхронизацию файлов в облачным хранилище и в локальных папках на SD-картах устройства. Он поддерживает широкий спектр различных облачных провайдеров и файловых протоколов и постоянно добавляется множество новых платформ. Доступ к корневому файлу поддерживается на рутированных устройствах.Тип издания: Premium / ModРелиз состоялся: 07.02.2024Разработчик: Tacit DynamicsПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE90CF08B403FD2CE71DDB0CEE86457B919C4C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778302   (70902) от 08.02.2025
+
+Dream Theater - Parasomnia (2025) [MP3|320 Kbps] <Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70902.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disc 1 - The Ultra-Violence:
-01. Thrashers
-02. Evil Priest
-03. Voracious Souls(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 04:10:52
+01. In The Arms Of Morpheus (05:22)
+ 02. Night Terror (09:55)
+ 03. A Broken Man (08:30)
+ 04. Dead Asleep (11:06)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:11:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B86FEE6F2B16650715A1ABA6B9ED51CBF78D5AAB
+magnet:?xt=urn:btih:F9C9829356F92E8CDA4BFACCF5675064D4F2C058
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -464,27 +274,220 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785274   (69348) от 15.03.2025
+###  Публикация: 1778241   (70901) от 08.02.2025
 
-Шрифты - Creative Market - Klase - Cyberpunk Font - 286313411 [OTF, TTF]
+Richard Montag - Blues Bird (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70901.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт Klase Cyberpunk содержит более 250 глифов. Альтернативные символы были разделены на несколько функций Open Type, таких как Swash, Stylistic Sets, Stylistic Alternates и Ligature.
+01.  Aimlessly (3:12)
+02.  Back Against The Wall (3:20)
+03.  Broken Mess (2:41)
+04.  The Crossroads (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE63BF1EBEA482A5581B0E2695751BDBBF339D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778236   (70900) от 08.02.2025
+
+Сара Пеннипакер | Пакс (2021) [MP3, Иван Писоцкий]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Питер и Пакс, мальчик и его лис, лис и его мальчик — в этой жизни они помогают друг другу пережить горе, которое у каждого — своё. Родители Пакса погибли, когда тот был лисёнком, а Питер, недавно потерявший маму, спас его от смерти. Они не друзья и не братья, они не хозяин и питомец. Они — одно целое. Но Питер осознаёт это, только когда ему приходится расстаться (   Читать дальше...   )Жанр: детская проза, зарубежные детские книги, книги о животныхПеревод: Наталья Калошина, Евгения КанищеваИздательство: СамокатПродолжительность: 07:11:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:898EEA126383144EDEA0BD75958132EF072E4FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778211   (70899) от 08.02.2025
+
+Nino Grandi - I've Been Waiting (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I've Been Waiting (4:06)
+02.  Sympathy (5:30)
+03.  Enjoy the Ride (4:45)
+04.  Swinging in the Blues (6:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDBC62EE45CF11E89DCA314583FB4E3F64AE41D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778540   (70898) от 08.02.2025
+
+Невеста Нила / La sposa del Nilo / Bride of the Nile (1911) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жрецы провозгласили, что богиня Изида требует Великую жертву, чтобы позволить Нилу разлиться и оросить поля. Для выбора достойной в Храме собираются девственницы со всего царства, но жребий падает на невесту фараона Рамзеса Амеби. Молодой правитель пытается спасти свою возлюбленную, но даже правитель Египта обязан подчиняться воле богов...
+Качество картинки может (   Читать дальше...   )Производство: Италия / Società Italiana CinesЖанр: короткометражный, драма, пеплум, немое киноРежиссер: Энрико ГуаццониАктеры: Бруто Кастеллани, Этторе Маццанти, Гастоне Мональди, Фернанда Негри Пугет, Орландо РиччиПеревод: немой с интертитрами (chayka2)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A87C25E9BA693B93928123D1FBAFB897EF69BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778315   (70897) от 08.02.2025
+
+Дино Буццати | Невероятное нашествие медведей на Сицилию (2023) [MP3, Данила Чванов]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70897.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такую сказку можно и нужно читать даже взрослым. Она о том, как на Сицилии голодные медведи спустились с гор в долину и начали воевать с людьми. Или так: эта сказка о том, как, сталкиваясь с человеком, даже медведь не может устоять перед искушением властью, обманом и наживой.
+Эту книгу-аллегорию, одновременно политическую и поэтическую, написал больше 70 лет назад (   Читать дальше...   )Жанр: зарубежные детские книги, сказки, сказки-притчи, современные сказкиПеревод: Геннадий Киселёв, Мария Иванова-АннинскаяИздательство: СамокатПродолжительность: 01:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6F45363D95A3AD791F2ED16C80B1504ED949B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778269   (70896) от 08.02.2025
+
+Slinky Vagabond - The Eternal Return (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ava Cherry - Lady Bump Discotheque (3:58)
+02.  Mike Garson - Ad Astra (3:50)
+03.  Icarus Falls (4:48)
+04.  Roller Coaster Ride (3:32)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0124C16EA21F99FA83392A08F663020BF3F13F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778135   (70895) от 08.02.2025
+
+Пятеро на одного (08.02.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70895.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263B1E179B58DD055B8484A7E326F80DAF18217D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778221   (70894) от 08.02.2025
+
+Гудрун Мебс | Бабушка! – кричит Фридер. 42 истории из жизни проказников (2023) [MP3, Сергей Друзьяк]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фридер и его бабушка — отличная команда! Для них вся жизнь — сплошное приключение. И для этого совсем необязательно куда-то ехать: приключения повсюду — в саду, на кухне и даже на остановке трамвая.
 
-Кириллица не поддерживается.Формат: OTF, TTF
+42 истории из жизни пятилетнего неугомонного любопытного  мальчишки, непоседы и проказника теперь собраны в одной аудиокниге. И в каждой истории стоит бабушке заняться (   Читать дальше...   )Жанр: детская проза, детские приключенияПеревод: Вера КомароваИздательство: СамокатПродолжительность: 06:13:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3232F88A34A77EC1CD8F24E50007ED03BE35BF5E
+magnet:?xt=urn:btih:96FFF77D08410F096426D6FFFD648ABF29FE75A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,26 +495,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785209   (69347) от 15.03.2025
+###  Публикация: 1778282   (70893) от 08.02.2025
 
-Шрифты - Christoph Ulherr - MyFonts - Flacon [OTF]
+Soultide - Midnight Rhythm (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт без кириллицы.
-Разработчик: Christoph UlherrФормат: OTF
+01.  Gravel Road Blues (3:08)
+02.  Silent Whispers (2:27)
+03.  Heavy Shadows (3:02)
+04.  Shattered Summit (3:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B96C514918535AF567F1229F01AA8823DE24D601
+magnet:?xt=urn:btih:7A10C6DF7BFB6AC4A384AF1E4AB6F0B5E074B5EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,82 +524,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785259   (69346) от 15.03.2025
+###  Публикация: 1778504   (70892) от 08.02.2025
 
-Шрифты - Ergibi - WAVE BLOCK [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69346.jpg" />
-</div>
-
-
-###  Подробнее
-
-WAVE BLOCK — это сырой и энергичный шрифт, созданный с помощью реалистичных мазков кисти, которые придают вашим проектам грубый, нарисованный вручную вид.
-
-Кириллица не поддерживается.Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D851241CADE5BC0796EA488D368308797C611FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785316   (69345) от 15.03.2025
-
-Чудеса случаются / Горчичное семя / The Girl Who Believes in Miracles (2021) BDRip [H.264]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69345.jpg" />
-</div>
-
-
-###  Подробнее
-
-12-летняя Сара Хопкинс самый обычный ребёнок. Но однажды во время поездки к своему дедушке она заявляет, что видела Иисуса на берегу реки. После этого видения Сара способна исцелять животных и людей. Вскоре все местные жители и даже пресса хотят узнать как можно больше об этой маленькой девочке, которая может творить чудеса...Производство: США / 120dB Films, Gerson Productions, The Mustard Seed ProductionЖанр: драма, семейныйРежиссер: Рич КорреллАктеры: Мира Сорвино, Остин Джонсон, Кевин Сорбо, Питер Койот, Бёрджесс Дженкинс, Томми Роуз, Стефани Куд, Пол-Микель Уильямс, Люк Хармон, Коллин ПлэйсПеревод: дублированный (Moygolos)Язык озвучки: русский, английскийСубтитры: русские (на места без перевода), английскиеПродолжительность: 01:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1DCA4FF617CAEC8F48243FA569631FF862AFE67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785413   (69344) от 15.03.2025
-
-VA - Exx Underground Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+A-Mase - Indian Journey (Extended) (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69344.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. RoelBeat & Max & Dana - Voice Of Stress (Extended Mix) [6:04]
-02. Steve Levi - DoomTak (Original Mix) [6:45]
-03. Airsand & TuraniQa - Ahora (Extended Mix) [5:26]
-04. Lakshmi & YARDi - Ritual (Original Mix) [6:03](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 04:17:56
+01. A-Mase & Natune - My Way (Extended Mix) [6:29]
+02. A-Mase & Vika Grand - Fever (Melodic Techno Mix) [5:18]
+03. A-Mase - Only In Dreams (Original New Mix) [7:31]
+04. A-Mase - Under Rain (Original Mix) [6:45](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 01:09:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB7D94DC4A98AF14BA74C82F5849253164E60A23
+magnet:?xt=urn:btih:D68C98DE1E43D2927E2B0499B4F2E91D338D8604
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,28 +553,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785424   (69343) от 15.03.2025
+###  Публикация: 1778525   (70891) от 08.02.2025
 
-VA - Exx Boundless Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+Тест-драйв Hyundai Elantra 2018 — Минтранс (08.02.2025) WEBRip [H.264/720p]
 
->>Electronic
->>House
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69343.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sander Wilder - Wanderlust (Original Mix) [5:28]
-02. Monolythe & This Confussion - The Grid (Original Mix) [6:06]
-03. Bromo - Net Krasiva (Original Mix) [2:36]
-04. Sergio T & Otherview feat. Jimbo - The World Is Mine (Original Mix) [2:59](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 03:56:18
+🔸 Запрет на совершение регистрационных действий. Можно ли на такой машине выезжать за пределы России?
+🔸 Простое и популярное тест-драйв Hyundai Elantra 2018.
+🔸 Проверка автосервис. Как узнать, что время ремонта машины вместо новых деталей не поставили старые.
+🔸 Это надо знать. Что означают красные метки на спидометре возле рисок 30 (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:375887B68B301E8500206B87210D4502E77B9E65
+magnet:?xt=urn:btih:10296EC38F1DC0586C63E8875C9AC3F3A755FE0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,28 +582,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785328   (69342) от 15.03.2025
+###  Публикация: 1778495   (70890) от 08.02.2025
 
-Karen Cheryl - Etonnamment Romantique  Best Of (2025) Remastered [FLAC 24/96|Lossless|WEB-DL|tracks] <Disco, Electronic, Pop>
+Москва: нетривиальные маршруты по столице | «Поедем, поедим!» (08.02.2024) WEBRip [H.264/720p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69342.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. La marche des machos (04:17)
-02. Chante pour nous Mama (03:17)
-03. Les nouveaux romantiques (03:23)
-04. Oh ! Cheri Cheri... (03:31)(   Читать дальше...   )Жанр: Disco, Electronic, PopПродолжительность: 03:50:53
+Федерико Арнальди исследует Москву! Путешественник выбрал необычный маршрут по центру, очутился в советском прошлом, поужинал в секретном бункере Сталина и перекусил в психиатрической больнице. А еще ведущий поплавал в бассейне под открытым небом, нашел модный фастфуд и попробовал оригинальные шмаки, а также приготовил авторский форшмак, судака в сливочно-грибном (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF41D47F9DD122827C62176FDA7D4D592D7EEC95
+magnet:?xt=urn:btih:032C444BA34BC13F108C2D3BE3A1D03DD76919B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,28 +608,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785206   (69341) от 15.03.2025
+###  Публикация: 1778208   (70889) от 08.02.2025
 
-Manntra - Titans (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks] <Industrial Metal, Folk Metal>
+Mick Clarke - Bad Whisky Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69341.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Ceremony [0:57]
-02 - Titans [2:53]
-03 - Teuta [3:33]
-04 - The Heart Of The Storm [4:24](   Читать дальше...   )Жанр: Industrial Metal, Folk MetalПродолжительность: 00:37:47
+01.  Bad Bad Whisky (4:33)
+02.  Help Me (4:49)
+03.  Killing Floor (5:06)
+04.  Watch Your Step (5:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9C1991D820A8A03B4BE8F621CAAE3F58D65095E
+magnet:?xt=urn:btih:D4BD75B39E77F2663112280E1CF9D8CFFBBAE2BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,25 +637,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785174   (69340) от 15.03.2025
+###  Публикация: 1778200   (70888) от 08.02.2025
 
-Журнал | Делаем сами №5 (578) (март 2025) [PDF]
+John Tho - Truth Be Told (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Журналы
->>Домоводство (журналы)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69340.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Делаем сами» — журнал для мастеров и мастериц, находящихся в постоянном поиске свежих творческих идей и решений. Уникальность издания в том, что оно состоит главным образом из писем читателей. В каждом номере: схемы популярных вышивок, идеи для детского творчества, советы по ремонту, оформление дачного участка и дома, секреты рыбалки, новые техники рукоделия, мастер-классы (   Читать дальше...   )Жанр: ДомоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Изначально электронное (ebook)
+01.  Wake Me up Before I Die (4:09)
+02.  Truth Be Told (4:14)
+03.  Ya Gotta Be Mine (5:11)
+04.  Road to My Heart (4:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FDE9368555C67226031EA7E4A562D367EF92410
+magnet:?xt=urn:btih:5C41C4F3E749C9F2331644DCA4C5B5040517DEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778522   (70887) от 08.02.2025
+
+Своя игра (08.02.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70887.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5899914599DEC6CBBF2CD965B324A9BB688FD240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778372   (70886) от 08.02.2025
+
+Живая еда с Сергеем Малозёмовым (08.02.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снег и лед в кулинарии: кто зарабатывает на замерзшей воде? Кто худеет на ледяной диете и есть ли эффект? Можно ли есть сосульки и чем еще кроме замороженной воды можно охлаждать напитки?
+ Рейтинг продуктов с высоким содержанием соли. Сколько вредного натрия в хлебе, как снизить вред от соленых консервов и почему селедку с картошкой одобряют диетологи?
+ Сколько можно (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82E8F136AD371228BDFDA62C10057B81EBA9DFF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

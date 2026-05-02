@@ -1,3 +1,32 @@
+###  Публикация: 1204651   (784395) от 07.02.2018
+
+Big Boy Bloater & The Limits - Big Boy Bloater And The Limits (2011) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Ugly Way Of Thinking 3:08
+02. I Heard Those Voices Again 3:11
+03. Fumble Fisted Fool 3:19
+04. Sweet & Brown 2:34(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:31:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A54F926C4E7BDE0CBA90B1A4049D0675B5067F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1204658   (784393) от 07.02.2018
 
 Big Boy Bloater - Loopy (2014) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
@@ -713,35 +742,6 @@ Reloaded - My Longest Mile (2018) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEB3E2325BAC9DA4D6D17196ED9E644B201B5EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014259   (776572) от 07.05.2016
-
-Aidan - Chapter One (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Hail for Brian Setzer (02:25)
-02. A Road to Knowhere (04:09)
-03. Last Call (03:37)
-04. I Got the Blues (05:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:480D082C6E87400895FA9558386F01DB2758CB62
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 997660   (869954) от 19.03.2016
+
+Maurice Ravel - The Complete Piano Works / Walter Gieseking (1954) [FLAC 2.0|96/24|Lossless|tracks] <Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Menuet antique, for piano (or orchestra)
+02 Pavane pour une infante défunte, for piano (or orchestra)
+03 Jeux d'eau (Très doux), for piano
+Sonatine for piano in F sharp minor(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9FDB05CB6C0E3F8FE5F7BB2D573413D12E1D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996822   (869810) от 19.03.2016
 
 Maria Callas - Callas at La Scala (2014) [FLAC 2.0|96/24|Lossless|WEB-DL|tracks] <Classical, Opera>
@@ -714,35 +743,6 @@ Teresa Berganza, Plácido Domingo, London Symphony Orchestra - Georges Bizet: Ca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:419D1D4C5FAB06311FE53612EEE78ECFDBE100EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000215   (860708) от 24.03.2016
-
-VA - Magical World Of Melodies. The Most Beautiful Romantic Symphonies (1995) 3CD
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Royal Philharmonic Orchestra, Massimo Freccia 
-01. Berlioz- Symphony Fantastique op. 14a, I. Reveries - Passions (12:20)
-02. Berlioz- Symphony Fantastique op. 14a, II. Un bal (Valse, Allegretto non troppo) (5:51)
-03. Berlioz- Symphony Fantastique op. 14a, III. Scene aux champs (15:02)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:36:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9590CBFFFD54354FF1152F4BD820689593CDC6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

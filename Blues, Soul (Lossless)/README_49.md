@@ -1,3 +1,119 @@
+###  Публикация: 1223659   (671528) от 06.05.2018
+
+Marcia Ball - Shine Bright (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine Bright
+ 02. I Got To Find Somebody
+ 03. They Don't Make 'Em Like That
+ 04. Life Of The Party(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABF53D8279FCD577BA35858D91849FDDAFEC926F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537050   (670616) от 14.03.2022
+
+Dom Cours & Company - Dom Cours & Co. Live At DUP Studio (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue  (4:40)
+02. Canyon  (3:58)
+03. Six String Gun  (3:46)
+04. Michael Malone (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B190D06DBF332F97F2083A5982E3B0A0E4C4F3FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030837   (670476) от 02.07.2016
+
+Delta Generators - Hipshakers And Heartbreakers (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Day That I Met You    02:48
+02.  Elephant In The Room    04:23
+03.  Two Headed Snake    02:18
+04.  Feel No Pain    02:47(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75656254CD6E2BF2333E24C15A509CD283806920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030515   (670473) от 02.07.2016
+
+The Rockin Daddies - Rev It (2016) [FLAC|Lossless|tracks] <Blues, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't Run Away    03:31
+02.  Paralyzed    02:49
+03.  Alpo Diablo    03:44
+04.  One and Only    03:00(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6780F6E5685772F4362659294F07451E22C1AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031057   (670472) от 02.07.2016
 
 Ben Poole - Let’s Go Upstairs (2012) [FLAC|Lossless|tracks] <Blues Rock>
@@ -630,122 +746,6 @@ Howlin' Wolf - Chicago Blue (1995) [WavPack|Lossless|image + .cue] <Blues, Chica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD129DAC68AEEEE37A36D6367A6343DD6CECF65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138882   (662416) от 31.05.2017
-
-Howlin' Wolf - Who Will Be Next? (1992) Charly Blues Masterworks, Vol.30 [WavPack|Lossless|image + .cue] <Blues, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Will Be Next? (2:34)
-02. I Have A Little Girl (2:36)
-03. Come To Me Baby (2:25)
-04. Don't Mess With Me Baby (2:38)(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C144443BCF2EB457497EA7CCFBA0F02E2677689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538509   (662406) от 21.03.2022
-
-Peter Veteska & Blues Train - So Far so Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Done with Bad Luck (4:28)
-02. I've Got the Blues This Morning (4:25)
-03. I Miss You So (5:16)
-04. My One and Only Muse (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E10E09EA13D2824331522AFE764D33F4C916D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538506   (662405) от 21.03.2022
-
-Open Investigation - Open Investigation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raidho (4:16)
-02. Poison Man (3:16)
-03. Left is the Blues (4:28)
-04. Scoundrel (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5FCEE181443F3943B4FB3E558BC4B267575E13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538516   (662401) от 21.03.2022
-
-Rune Robert Friis - Built for Comfort, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Comin' Down (3:39)
-02. Summertime Ghost (3:03)
-03. Cold Water (3:27)
-04. Truth Don't Rhyme (5:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E88BA4B808FA171CAA366418EA52D07C67D843
 ```
 
 https://mybot314.ru/tekegram_catalog/

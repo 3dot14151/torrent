@@ -1,3 +1,119 @@
+###  Публикация: 987974   (922793) от 19.02.2016
+
+VA - Under The Same Sun: Privacy Music (2016) [MP3|320 kbps] <Pop Lyric>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922793.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bolland & Bolland - Blue Velvet
+002. Thomas David - Searching For
+003. Milky Chance - Stolen Dance
+004. Negative - Still Alive(   Читать дальше...   )Жанр: Pop LyricПродолжительность: 06:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:510152505F76E8A17B03587E805EFAB72D74B277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095789   (922784) от 22.01.2017
+
+VA - Дискотека зимних дорог. Индустрия поп музыки Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922784.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анастасия Спиридонова - Колыбельная Медведицы 2:06
+002. Alex Milano Feat. Денис Раско - Двигай 2:40
+003. Лайк.А - Красиво 3:30
+004. Анилла - Во Сне 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC6469181F0CECB77569ACC257F173FC4613E48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095835   (922719) от 22.01.2017
+
+VA - Radio Italia Love (2017) [MP3|320 Kbps] <Italy Pop, Vocal>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922719.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+ 1. Ho creduto a me - Laura Pausini
+ 2. Potremmo ritornare - Tiziano Ferro
+ 3. Assenzio - J-AX & Fedez feat. Stash & Levante(   Читать дальше...   )Жанр: Italy Pop, VocalПродолжительность: 01:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5227922951567EEE5C5292D48D30E1A2B2A757D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988257   (922455) от 19.02.2016
+
+VA - Музыка Хорошего Настроения (2016) [MP3|256 kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922455.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Elton John - Blue Wonderful
+002. Ольга Романовская - Держи Меня Крепче
+003. Bloc Cu Doddy Si Ela Rose - Daca Tu Ai Pleca
+004. Макsим - Хорошо(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216264893EEAFA0192E14C4BF5F798759FF791EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288507   (922426) от 29.01.2011
 
 VA - Танцевальная тусовка (2011) [MP3|256 kbps]<Pop>
@@ -617,122 +733,6 @@ VA - Звездная вечеринка. Зарядись хитами Выпу
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1E278567440682E8A03707481B68066E1D01FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096691   (917375) от 25.01.2017
-
-VA - Автозвук. Отборный зимний хит. Часть № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917375.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Макс Барских - Пьяная Луна 3:20
-002. The Weeknd - Love To Lay 3:44
-003. Вик - Вдыхаю Твой Холод 4:23
-004. Delerium Feat. Phildel - Zero 4:51(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8013F283B0C9EA67EA0733E95995E85E7BEB8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367378   (917301) от 15.03.2020
-
-VA - Radio MFM: Dance Hit Radio [14.03] (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey
-02. The Weeknd - Blinding Lights
-03. Ally Brooke - No Good
-04. Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B85048B13A602EBCCF51283AE99B0211C97F460
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367384   (916696) от 15.03.2020
-
-VA - Radio DFM: Top D-Chart [14.03] (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artik & Asti - Девочка танцуй (DJ Prezzplay & Kolya Dark Remix) 4:10
-02. Billie Eilish - Everything I Wanted (Kolya Dark & Alex Shik Radio Edit) 3:59
-03. The Weeknd - Blinding Lights 3:22
-04. Макс Барских - Лей не жалей (Lavrushkin & Max Roven Remix) 3:43(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F35AA85FB97ED5E083391B91FDC51AFE952D647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096699   (916676) от 25.01.2017
-
-VA - Танцевальная зима. Снежная 100-ка. Версия № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916676.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michael Buble Feat. Meghan Trainor - Someday 3:24
-002. Илья Гуров - Геолокация 3:14
-003. Глаза - Это Он Мама 3:29
-004. Sons Of Maria Feat. Angelika Vee - Sweet Madness 3:12(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECDEAD8C172F71862EC83FBB703D3DDC1792E22
 ```
 
 https://mybot314.ru/tekegram_catalog/

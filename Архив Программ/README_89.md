@@ -1,3 +1,29 @@
+###  Публикация: 1455898   (1025218) от 21.03.2021
+
+Universal USB Installer 2.0.0.1 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal USB Installer – портативная программа для создания загрузочных USB-накопителей с операционными системами Windows и Linux, а также другими загрузочными программами. Утилита поддерживает запись на USB-устройство загрузочных образов Windows 10 / 8.1 / 7 и Vista, а также операционные системы Ubuntu, Linux Mint, CentOS, Debian, Fedora, OpenSUSE, Puppy Linux (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD58A7B2B2510AAE53B6FB459343B7E63A6AD73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456127   (1025197) от 21.03.2021
 
 BELOFF [dp] 2021.03.1
@@ -653,33 +679,6 @@ MInstAll v.21.03.2021 By Andreyonohov (ISO) [Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08F987EB18210C1EC6D4FCE8E0ABC02352FBCB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456687   (1024791) от 23.03.2021
-
-Total Commander 9.51 Extended 21.3 Full / Lite RePack (& Portable) by BurSoft [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024791.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый известный файловый менеджер под Windows - Total Commander в Extended версии - это новый взгляд на функциональность и стабильность! Lite - версия отличается от старшего брата отсутствием встроенных программ.
-Total Commander Extended - это x86 и x64 версии Total Commander в одном инсталляторе. Оптимальный набор программ и плагинов. Поддерживает интеграцию дополнительных (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A858E6F7B7C6ADECD372F16C9154F84399ADF22B
 ```
 
 https://mybot314.ru/tekegram_catalog/

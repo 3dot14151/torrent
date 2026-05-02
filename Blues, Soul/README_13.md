@@ -1,3 +1,32 @@
+###  Публикация: 1223503   (673417) от 05.05.2018
+
+Bill Wyman's Rhythm Kings (Bill Wyman) - Monkey Grip (1974) Rolling Stones Records [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bill Wyman, настоящее имя William George Perks - британский бас - гитарист, участник группы Rolling Stones с момента её создания в 1962 до 1993 года. С 1997 года выступает с собственной группой Bill Wyman’s Rhythm Kings. В детстве он пел в церковном хоре, играл на аккордеоне.Купив гитару он решил попробовать себя в группе. Но, слоняясь по дискотекам, приметил, что (   Читать дальше...   )01. I Wanna Get A Gun 5:00
+02. Crazy Woman 2:44
+03. pussy 2:12
+04. Mighty fine time 3:39(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:937BD2DDA0BCE8C3FDFE8F688E9AC31FA2F22AE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223546   (673300) от 05.05.2018
 
 Bill Wyman's Rhythm Kings (Bill Wyman) - Stone Alone (1976) Rolling Stones Records [MP3|320 Kbps] <Rock, Blues Rock>
@@ -719,35 +748,6 @@ Peter Struijk - Straight Blues (2015) [MP3|320 кб/с]<Acoustic Delta Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8CB189F137087276A4B5192E83B307CDAD304C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904717   (653542) от 04.06.2015
-
-The Lucky Losers - A Winning Hand (2015) [MP3|320 кб/с]<Blues Soul, Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Change In The Weather (4:19)
-02. I Take What I Want (4:20)
-03. What Have I Done (Feat. Cathy Lemons & Phil Berkowitz) (3:51)
-04. A Winning Hand (Feat. Cathy Lemons, Kid Andersen, Phil Berkowitz & Steve Freund) (6:57)(   Читать дальше...   )Жанр: Blues Soul, Modern Electric BluesПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF4A2C93ADC406AC78890BA20C655A2F5BE84E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

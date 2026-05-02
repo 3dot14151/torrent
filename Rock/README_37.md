@@ -1,3 +1,34 @@
+###  Публикация: 1142234   (638585) от 16.06.2017
+
+Океан Эльзы (Океан Ельзи) - 10 albums, 3 compilations, 3 projects (1998-2016) [MP3|320 Kbps] <Folk Rock, Indie Rock>
+
+>>След.
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638585.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Океан Ельзи» — украинская рок-группа. Создана 12 октября 1994 года во Львове. Лидером и вокалистом группы является Святослав Вакарчук.
+Океан Ельзи многократно признаны публикой и критиками как лучшая рок-группа и лучшая live-группа СНГ и Восточной Европы.
+Океан Ельзи – это экспрессивный, самоотверженный концертный драйв, уникальное сочетание мелодичности с мощной (   Читать дальше...   )1998 - Там де нас нема
+2000 - Янанебiбув
+2001 - Модель
+2003 - Суперсиметрiя(   Читать дальше...   )Жанр: Folk Rock, Indie RockПродолжительность: 14:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CAC986B01460BC1D536FE5F4A98CAE99C52C50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907381   (638198) от 12.06.2015
 
 Fleece - Scavenger (2015) [MP3|320 кб/с]<Psychedelic Rock, Progressive Rock, Alternative>
@@ -734,35 +765,6 @@ Estus - Estus (1973) Reissue, 2016, Flawed Gems [MP3|320 Kbps] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BAA041000067BB204FCAE33E95CF14D9B39A75A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143155   (631635) от 20.06.2017
-
-Eric Burdon & The Animals - Winds Of Change (1967) Remastered, 2013, Polydor, CD2: Stereo Album [MP3|320 Kbps] <Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631635.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Winds Of Change
-2. Poem By The Sea
-3. Paint It Black
-4. The Black Plague(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:400B7CAA685E061A1A95A414551716FBCCD7DA45
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1689182   (124855) от 31.12.2023
+
+Эффект Лесли - Инструкция по применению (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мопассан [00:04:30]
+02. 6/4 [00:04:27]
+03. 1995 [00:03:20]
+04. Монах [00:04:50](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7665CE0109CBD9A43F38850B96179C271616D22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1689119   (124851) от 31.12.2023
 
 Нормы Морали - Без страха (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -711,35 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFC750E63F050878BE728E175CC2941B6D4C240A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693227   (121853) от 20.01.2024
-
-Эйфория - В каждом из нас (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро (00:01:22)
-02 - Виртуальная зависимость (00:04:47)
-03 - Горизонт событий (00:04:11)
- 04 - Страсть (00:04:32)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D9FDA824DBCE09B0143710C9D6394E638D3401
 ```
 
 https://mybot314.ru/tekegram_catalog/

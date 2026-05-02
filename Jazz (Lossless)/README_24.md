@@ -1,3 +1,60 @@
+###  Публикация: 973408   (980321) от 08.01.2016
+
+Howard Alden, Lloyd Ellis, Cal Collins - Famous Door: Ace Guitarists (1976/1978/1987) 3CD, 2015, Famous Door[FLAC|tracks+.cue] <Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980321.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Howard Alden:
+01.Make Believe [04:31]
+02.Blue Because Of You [04:26]
+03.Intimacy Of The Blues [05:14](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369DEAD84930FA7D7384EC1BFFC7B9FF1C438D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973447   (980319) от 08.01.2016
+
+Johnny Griffin & Art Taylor Quartet - The Jamfs Are Coming! (1975/1977) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Jamfs Are Coming, Wee Dot [16:24]
+ 02.Wee [01:23]
+ 03.All The Things You Are [19:34]Жанр: Post-Bop, Hard BopПродолжительность: 00:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230B13FB4F573D8F5CA8082706B2C672BC9582BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 973814   (979323) от 09.01.2016
 
 Jack Wilson - Something Personal (1966) Remaster, 2015, Universal[FLAC|tracks+.cue] <Hard Bop, Soul Jazz>
@@ -699,70 +756,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1258A8B9BD12580546198A335BC1D4C13B340D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097165   (975546) от 02.02.2020
-
-Gregory Fine (Григорий Файн) Trio - The Road To Mississauga (1997) Союз[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Wheathland [08:20]
- 02.Elegia [01:32]
- 03.Waltz For Maria [06:57]
- 04.The Road To Mississauga [05:17](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D61F9D98906146F75A04E5C31B185A152374CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616540   (975148) от 10.02.2013
-
-VA - Jazz Ballads With A Blue Feeling (2003) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ernie Andrews - Everybody's somebody's fool [05:11]
-02. Etta Jones - God bless the child [07:16]
-03..Sheila Jordan - Good morning heartache [06:06]
-04. Dakota Staton - Trav'lin' light [05:20]
-05. Mark Murphy - I'm Thru With Love [04:46]
-06. Wesla Whitfield - Ill wind [04:18]
-07. Della Griffin - This bitter earth [05:19]
-08. Etta Jones - I'm afraid the masquerade is over [08:58]
-09. Everett Green - When Did You Leave Heaven [06:39]
-10. Dinah Washington - It's too soon to know [02:21](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:01:42
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

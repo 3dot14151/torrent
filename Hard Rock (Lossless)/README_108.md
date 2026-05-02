@@ -1,3 +1,119 @@
+###  Публикация: 507941   (21815) от 11.04.2025
+
+L.A. Guns - 24 Albums, 1 EP (1988 - 2025) 31 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock, Glam>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21815.jpg" />
+</div>
+
+
+###  Подробнее
+
+L.A. Guns - американская хард-рок/глэм-метал группа, созданная в 1983 году в Лос-Анджелесе гитаристом Трэйси Ганзом.  Разобравшись более-менее с составом, L.A. Guns наконец-то сподобились записать свой первый альбом. Пластинка была хорошо принята публикой, неплохо продавалась и группу начали показывать по MTV. Они достигли умеренного успеха в конце 80-х и начале 90-х (   Читать дальше...   )Альбомы:
+1988 - L.A. Guns /Japan 1st Press Vertigo 32PD-448/
+1989 - Cocked & Loaded /Japan Vertigo PPD 1032/
+1991 - Hollywood Vampires /Vertigo PolyGram PHCR-1085/Жанр: Hard Rock, GlamПродолжительность: 27:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:008857F0DD233E73124B64EF51E23B25F46A927D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790934   (21722) от 11.04.2025
+
+L.A.Guns - Leopard Skin (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если бы вы прошлись по списку групп, определяющих рок-сцену Sunset Strip 80-х, и оценили качество их релизов за десятилетия, групп, которые действительно просуществовали десятилетия и продолжали выпускать новую музыку, а не гонялись за ностальгией, Вам было бы трудно найти банду, которая была бы так же последовательно велика, как L.A. Guns. Группа с 40-летним опытом, (   Читать дальше...   )01. Taste It Master (4:35)
+02. Lucky Mother Fucker (3:22)
+03. The Grinder (4:21)
+04. Hit and Run (5:26)(   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DD5D682B1FE9D26CC4AC6CB49ADA432F3D526D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791536   (21418) от 14.04.2025
+
+Alice Cooper - Original Album Series (2012) Box Set, 5xCD, Reissue, Warner Music [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21418.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Pretties For You:
+1-1 Titanic Overture 1:13
+1-2 10 Minutes Before The Worm 1:40
+1-3 Sing Low, Sweet Cherio 5:43(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441A1D74511599C5FC6E8E3BE3D78C63DF91A8FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791478   (21417) от 14.04.2025
+
+Guns N' Roses - Greatest Hits Live Broadcast Collection (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Welcome To The Jungle (Live) [4:34]
+02 - Attitude (Misfits Cover) (Live) [1:26]
+03 - Used to Love Her (Live) [2:50]
+04 - You Ain't the First (Live) [3:03](   Читать дальше...   )Жанр: Glam Rock, Hard Rock, RockПродолжительность: 01:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032C275363244A970B78640F13C35765045408F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791346   (21302) от 15.04.2025
 
 Black Sabbath - The Legendary California Jam, 1974 (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal, Stoner Rock>
@@ -628,122 +744,6 @@ Helix - No Rest For The Wicked (1983) Reissue, Remastered, 2005, RockCandy Recor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6E40477FA45B3770C0DA0B18AFDB689F8B4F6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807008   (11311) от 16.07.2025
-
-Steve Harris - British Lion (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is My God 4:57
-02. Lost Worlds 4:59
-03. Karma Killer 5:29
-04. Us Against The World 4:12(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Alternative RockПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1D38A1ADCE7FB81B6AEFF26E2CD0C84539671C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807059   (11310) от 16.07.2025
-
-Animalistic! - Age of Furor (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen at the Gates (02:27)
- 02. Bringer of the Sword (04:46)
- 03. Bad Blood (04:55)
- 04. Aspirin for Breakfast (2025 Version) (04:35)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2AEE4900EFBB844D366719D254A48AEB3AB751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807931   (10771) от 21.07.2025
-
-Liliac - Delusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human (05:47)
-02. Breathe (03:03)
-03. Delusion (03:07)
-04. Holy Odyssey (07:05)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38077AD56F2A5660D593041D2D1BC5A0F7F0CFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809448   (9748) от 31.07.2025
-
-Alice Cooper - The Revenge Of Alice Cooper (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Mamba
-02. Wild Ones
-03. Up All Night
-04. Kill The Flies(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26543129A93BE039547A0F8B06948A0C9BEEB1DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

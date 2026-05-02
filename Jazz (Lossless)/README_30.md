@@ -1,3 +1,58 @@
+###  Публикация: 261069   (946869) от 12.01.2015
+
+JazzItaliano - Live at Casa del Jazz (2006 - 2010) 41x2 CD [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Casa del Jazz - место, ставшее меккой джаза в Италии.Это - комплекс зданий, расположенный в Риме (Villa Osio).Концерты в Casa del Jazz проходят непрерывно, причем выступает очень много молодых исполнителей из разных стран Европы. Выступают также лучшие итальянские джазмены, концерты которых издаются каждый год под эгидой RadioCapital и газеты La Repubblica.Исполнители: Danilo Rea, Enrico Pieranunzi, Enrico Rava, Francesco Cafiso, Paolo Fresu, Rita Marcotulli, Rosario Giuliani, Roberto Gatto, Stefano Bollani, Stefano Di Battista, Doctor 3, Franco Cerri & Enrico Intra, Franco D'Andrea, Fabrizio Bosso, Gianluca Petrella, Gianluigi Trovesi, Giorgio Gaslini, Giovanni Tommaso, Maria Pia De Vito, Maurizio Giammarco, Paolo (   Читать дальше...   )Жанр: Jazz |Продолжительность: 41:47:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090666   (946183) от 07.01.2017
+
+Duke Jordan - Flight to Jordan (1961) 2011, Blue Note[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Flight To Jordan [05:34]
+ 02.Starbrite [07:49]
+ 03.Squawkin' [05:01]
+ 04.Deacon Joe [08:45](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4B7CB9D79CB700CAEDA9BEBC90C7A16F524AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1090737   (946178) от 07.01.2017
 
 Duke Jordan Trio - Lover Man (1975) 1992, SteepleChase[FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -687,64 +742,6 @@ Euge Groove - Still Euge (2016) [FLAC|Lossless|tracks] <Jazz, Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E146B43DEACF922A106178080E970B6036ADEC8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091470   (942919) от 09.01.2017
-
-Brian Simpson - Persuasion (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Persuasion (feat. Boney James)
-02. Wonderland
-03. One And Only
-04. Lost In Love (feat. Peter White)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD65AF9E3E8E853A1083AF6FBCE777169963AFCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091460   (942916) от 09.01.2017
-
-Nathan East (Fourplay) - Reverence (2017) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love's Holiday (feat. Philip Bailey)
-02. Lifecycle
-03. Elevenate
-04. Serpentine Fire (feat. Philip Bailey, Verdine White, Ralph Johnson)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D805285196AC8786EBA50A05FB967936BE40C1B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

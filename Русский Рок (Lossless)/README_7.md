@@ -1,3 +1,32 @@
+###  Публикация: 1476538   (1011531) от 12.06.2021
+
+Ploho - Фантомные чувства (2021) [FLAC|Lossless|image + .cue] <Post-Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Между нами
+02. Прости
+03. Добрые люди
+04. Камни(   Читать дальше...   )Жанр: Post-Punk, New WaveПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CEDCB654BCE49F489C02749407F165C01420618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477087   (1011141) от 14.06.2021
 
 Dig Me No Grave - Cosmic Cult (2014) [FLAC|Lossless|image + .cue] <Death Metal>
@@ -742,35 +771,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972011   (981936) от 06.01.2016
-
-Blues Doctors - Electric Gentlemen (2014) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Man (04:30)
-02. My Manifesto (03:38)
-03. By Your Side (03:07)
-04. Heartbreak Radio (05:13)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:19:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96959A3282A3939F63DCDAE802899568872D485B
 ```
 
 https://mybot314.ru/tekegram_catalog/

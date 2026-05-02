@@ -1,3 +1,61 @@
+###  Публикация: 1093554   (934011) от 15.01.2017
+
+Sarah McKenzie - Paris In The Rain (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tea For Two
+02. Paris In The Rain
+03. One Jealous Moon
+04. Little Girl Blue(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:52:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF791D731F3B6BABCC44061D288F3584CEC3BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364991   (933820) от 05.03.2020
+
+Chet Baker - Sings and Plays with Bud Shank, Russ Freeman and Strings 1955 (1987) Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Get Lost [3:45]
+02. This Is Always [3:08]
+03. Long Ago and Far Away [3:59]
+04. Someone to Watch over Me [3:02](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Piano JazzПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6146C93C9E837ED9508183B4E84969B1A133600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364952   (933817) от 05.03.2020
 
 Lonnie Liston Smith & The Cosmic Echoes - Astral Traveling (1973) 2014,  BGP Records [FLAC|Lossless|tracks + .cue] <Fusion, Free Jazz>
@@ -684,64 +742,6 @@ Karen Souza - Essentials II (2014) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:852CDED59B11E4FA4DE55BCB00D2366E9FAE1DB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094558   (929456) от 18.01.2017
-
-Jack McDuff with Jimmy Forrest - Tough 'Duff (1960) 1995, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Smooth Sailing [06:48]
- 02.Mean To Me [05:41]
- 03.Tippin' In [05:25]
- 04.Yeah, Baby [08:57](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6970306036C5E43250332680631A6D7B53DADEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094554   (929455) от 18.01.2017
-
-Tiziana Ghiglioni - Sings Gaslini (1995) Soul Note[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mingus Memory [04:17]
-02.Forse Sei Tu? [03:09]
-03.Fellini Song [04:01]
-04.Canto alto [03:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B40F6E2099FAF9FECF1AC9C3A350E7B38F2ADFA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

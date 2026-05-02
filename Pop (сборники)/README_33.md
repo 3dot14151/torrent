@@ -1,3 +1,119 @@
+###  Публикация: 1206335   (782524) от 13.02.2018
+
+VA - De Top 100 Aller Tijden 1980 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_782524.jpg" />
+</div>
+
+
+###  Подробнее
+
+"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. ABBA - The Winner Takes It All (4:55)
+002. Electronica's - De Vogeltjesdans (2:33)
+003. Olivia Newton John & Electric Light Orchestra (ELO) - Xanadu (3:29)
+004. Barbra Streisand - Woman In Love (3:52)(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:26:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3779B36DB4F6CCDFE53C6F77E479B3EDAF9C639C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206609   (782013) от 14.02.2018
+
+VA - Русское Радио. Лучшее 2017 от DON Music (2018) [MP3|256/320 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782013.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Григорий Лепс - Орлы или вороны (feat. Максим Фадеев) (03:27)
+002. Полина Гагарина - Обезоружена (03:46)
+003. Сергей Лазарев - Так красиво (03:41)
+004. Ёлка - Мир открывается (03:41)(   Читать дальше...   )Жанр: ПопПродолжительность: 07:54:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9ED6CD591DCC5602D94D693A72B0D91B4BBD424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1390855   (781800) от 18.06.2020
+
+VA - 100 Greatest Pop Ballads (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781800.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Hello
+002. John Legend - All of Me
+003. Mariah Carey - Hero
+004. Whitney Houston - I Will Always Love You(   Читать дальше...   )Жанр: PopПродолжительность: 06:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3511F9CE2E683E26A805F1C520250A313E886AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206979   (781293) от 16.02.2018
+
+VA - German Top 100 Single Charts 16.02.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781293.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Perfect
+002. Eminem - River (feat. Ed Sheeran)
+003. Bausa - Was du Liebe nennst
+004. UFO361 - Beverly Hills(   Читать дальше...   )Жанр: PopПродолжительность: 05:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:435E0E8BD0A5BC3E971CD3CA46181F8658445395
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206973   (781276) от 16.02.2018
 
 VA - Absolute Winter Hits (2018) [MP3|320 Kbps] <Pop>
@@ -629,122 +745,6 @@ VA - De Top 100 Aller Tijden 1983 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2344D2176DE72FABFA3CE5A61FAD1A5536053C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013198   (777533) от 04.05.2016
-
-VA - Авто Recordный сборник хитов Vol.10 (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777533.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Primal Scream - When The Blackout Meets The Fallout(01:49)
-2. The Dollyrots - Little Medusa(03:01)
-3. Skylar Stecker - You Got The Golden Touch(03:17)
-4. Topic - Home(03:18)(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA57A6DF287D559E9499128C219AFD95F27BD938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211515   (777476) от 07.03.2018
-
-VA - 8 марта: Лучшие песни для неё (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Григорий Лепс - Я поднимаю руки (3:50)
-02. Стас Михайлов - Там (3:40)
-03. Стас Пьеха - Моя прекрасная леди (3:45)
-04. IOWA - Улыбайся (3:38)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB7151A03003AC3CF944684153E0432B39A22A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013772   (777314) от 05.05.2016
-
-VA - International Web-Radio Playlist (Dance) (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danky & Brain - Chasing Cars (Radio Mix) (feat. Jenny Joao)
-02. Empir3 - Ride Like the Wind (Blutraxx's Remix) (feat. Pit Bailay)
-03. Marc Mounier - There Were Times (Radio Version)
-04. Honeyz - Definitely Something (Soulshaker Radio Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D489F06754E85F022197CBDF55F6C3D7E3A85685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013751   (777251) от 05.05.2016
-
-Va - Хитовая бомба весны №2 (2016) [MP3|256-320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777251.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Джиган feat. Asti - Всё Будет Хорошо
-002. Тимати feat. Григорий Лепс - Дай Мне Уйти
-003. Кристалл - Уходи
-004. Денис Клявер - Прости за любовь(   Читать дальше...   )Жанр: PopПродолжительность: 05:22:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2E6A591EA2BA81715F0B26BEE6B198860DB6BAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

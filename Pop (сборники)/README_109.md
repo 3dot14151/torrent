@@ -1,3 +1,125 @@
+###  Публикация: 496748   (253245) от 15.05.2012
+
+VA - The Best Singles Of All Time (2008) [MP3|320 кб/с]<Pop, Rock, Oldies>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253245.jpg" />
+</div>
+
+
+###  Подробнее
+
+2008Жанр: Pop, Rock, OldiesПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C9B92B1212480B2E86AF8D56B94DDC95B38BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496438   (252874) от 14.05.2012
+
+VA - The Official UK Top 40 Singles Chart (13-05-2012) [MP3|320 кб/с]<Pop, Rok, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Rok, R&BПродолжительность: 02:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34465FAA5D1A4F6815E074D0465FED39EFFB6C63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495767   (252676) от 13.05.2012
+
+VA - Союз Super Dance (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252676.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 DJ Ruslan Nigmatullin - Kiss the sun
+002 Руслана - ЕЙ-форі-Я!
+003 Bryce feat. Carlprit - Dance with me
+004 NikitA - Авокадо
+005 Far East Movement feat. Justin Bieber - Live my life
+006 Dj Fenix & Kathy Soul - Скажи Мне Да
+007 Alexander Popov - Elegia (Original mix edit)
+008 Миshа feat. Чук и Гек - Во Всех Новостях Весна
+009 Chuckie feat. Gregor Salto - What happens in Vegas
+010 Алисия & Влад Корса - Здесь и сейчас2012Жанр: Pop,DanceПродолжительность: 05:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC1FB459E83E1FEC3A5739135CC1533C26AD051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495631   (252624) от 13.05.2012
+
+VA - Hot Summer Hits (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252624.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 5sta Family - Spring Summer (2:50)
+2. НеАнгелы - Твоя (3:37)
+3. Глюкоза - Кошка (3:23)
+4. Катя Чехова - Сердце Тебе В Ответ (3:46)
+5. Алишер - Море (3:58)
+6. 5sta Family - Дождь Плачет (2:50)
+7. Mixi - Текила (DJ Val Remix) (4:37)
+8. DJ Сателлит & Marlena ft. PolCox - Почему (Tonada Radio Mix) (3:14)
+9. Настя Задорожная - Воздух (3:47)
+10. Алисия - Улетаю (Dj Fisun Remix) (2:34)2012Жанр: PopПродолжительность: 06:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009F25857CDA485F7E72437118ABCF215D092BC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 494834   (251170) от 11.05.2012
 
 VA - Playbox На Европе Плюс (2012) [MP3|256 кб/с]<Pop>
@@ -695,122 +817,6 @@ VA - Осенняя дискотека по-русски - 4 (2016) [MP3|256 Kbp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59ED2328D6782DDAFA4CAE26EA0DB76B44DECE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074305   (243936) от 19.11.2016
-
-VA - German Top 50 Official Dance Charts 18.11 (2016) [MP3|256-320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.David Guetta, Chris Willis & Cedric Gervais - Would I Lie To You 3:18
-02.Calvin Harris - My Way 3:39
-03.Bob Sinclar & Daddy's Groove - Burning 2:51
-04.Tujamo - Tujamo - Boom! 3:00(   Читать дальше...   )Жанр: DanceПродолжительность: 03:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56486034301BCBD5C67779800058A5FAEE28A47A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542022   (243850) от 05.04.2022
-
-VA - Весна на Love Radio (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaymes Young - Infinity (3:57)
-02. GAYLE - abcdefu (2:56)
-03. ARTIK pres.ASTI - Гармония (2:54)
-04. Alesso feat. Katy Perry - When I Am Gone (2:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA096D5FAF65FB36AB45BA9BAD4C6A72FDB2069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076391   (243766) от 26.11.2016
-
-VA - Горячий хитовый драйв. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243766.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Passenger - Fool's Gold 4:16
-002.Тамерлан & Алена - Потоки Ветра 3:05
-003.Ludacris Feat. Miguel - Good Lovin 3:44
-004.Dj Fenix Feat. Mila Kulikova - Я И Ты 3:43(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E690DC5930E6D6BC22B27541DE3F16D940A54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076410   (243727) от 26.11.2016
-
-VA - Осенняя дискотека по-русски. Выпуск 5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243727.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Sasha Holiday - Цвет Желаний 3:50
-002.Alexno - Текила 3:25
-003.Анна Боронина - Уходи 3:30
-004.Arseniya - Аритмия 4:50(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858F5914DD1A7370CCC90F0F921834BAD7FA5123
 ```
 
 https://mybot314.ru/tekegram_catalog/

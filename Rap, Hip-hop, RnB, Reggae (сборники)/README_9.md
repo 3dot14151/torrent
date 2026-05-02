@@ -1,3 +1,32 @@
+###  Публикация: 1086200   (153851) от 23.12.2016
+
+VA - Лучшие хитовые треки в стиле Rap, Hip Hop & R'n'B от LORDEGRAF (2016) [MP3|185-320 Kbps] <Rap, Hip Hop & Rnb>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	101 feat. Marvelous D. & Sandra Olajide - Who's Foolin' Who [04:43]
+02.	Akon - Locked Up [03:56]
+03.	Ama Shola & Enya feat. The Pirates, Naila Boss & Ishani - You Should Really Know [03:20]
+04.	Aphrodite - Ready Or Not [03:47](   Читать дальше...   )Жанр: Rap, Hip Hop & RnbПродолжительность: 09:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41739ECF8E7C316F94F76F4B7C8233327E47310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1087194   (146416) от 27.12.2016
 
 VA - Romantic Soul RnB (2016) [MP3|320 Kbps] <RnB, Lyric>

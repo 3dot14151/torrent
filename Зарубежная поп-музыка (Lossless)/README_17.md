@@ -1,3 +1,233 @@
+###  Публикация: 994277   (891546) от 07.03.2016
+
+VA - Die Hit-Giganten - Partyklassiker (2005) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, House, Pop Rap>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elvis vs. JXL - A Little Less Conversation (JXL radio edit remix) (3:33)
+02.Madness - Our House (3:22)
+03.The Clash - Should I Stay or Should I Go (3:09)
+04.Cyndi Lauper - Girls Just Want to Have Fun (3:47)(   Читать дальше...   )Жанр: Pop Rock, House, Pop Rap, Schlager, Disco, Synth-pop, Classic RockПродолжительность: 02:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8523C05AC6F6481588921C2CFB58874EF9CDC953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994372   (891442) от 07.03.2016
+
+Eighth Wonder - Fearless (1988) Reissue, 2010, Cherry Pop [FLAC|Lossless|image + .cue] <Pop, Dance Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cross My Heart
+02. When The Phone Stops Ringing
+03. Baby Baby
+04. Will You Remember?(   Читать дальше...   )Жанр: Pop, Dance PopПродолжительность: 01:15:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2EE78715831661BDBF62BE14F1DFB114FD9B633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994417   (891322) от 07.03.2016
+
+VA - Die Hit-Giganten: Best of Disco (2013) Box Set, 3CD [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как видите стараниями коллег по клубу серия немецкого подразделения Sony Music продолжает жить на нашем трекере (ссылка на все релизы серии внизу поста). Пожалуй, именно у нас на трекере самое полное собрание этой серии. В данном боксете представлены хиты мира диско. Вспомним как это было!CD1:
+01. Boney M. - Daddy Cool  (3:28)
+02. Baccara - Yes Sir, I Can Boogie  (4:29)
+03. Patrick Hernandez - Born to Be Alive  (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 03:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B89879A135FB66087933FA1A38E3CA8D84E5FFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 869309   (890832) от 15.02.2015
+
+VA - BRAVO Hits 88 (2015) [FLAC|Lossless]<Pop, Rock, Dance, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890832.jpg" />
+</div>
+
+
+###  Подробнее
+
+BRAVO Hits представляет собой серию музыкальных сборников с актуальными хитами из европейских чартов и регулярно издается на CD с 1992 года. "Основателем" серии был популярный молодежный журнал BRAVO. В дополнение к основной ряду BRAVO Hits, насчитывающем на данный момент 87 выпусков, в серии появились также BRAVO: The Hits (раньше - BRAVO: Best Of) и BRAVO (   Читать дальше...   )01. Mark Ronson feat. Bruno Mars - Uptown Funk
+02. Charli XCX - Break The Rules
+03. Calvin Harris feat. Ellie Goulding - Outside
+04. David Guetta feat. Sam Martin - Dangerous(   Читать дальше...   )Жанр: Pop Compilation, Pop, Indie Pop, Rock, Pop Rock, Electronic, Hip Hop, Electro, Synthpop, Europop, R&B, Pop Rap, Euro House, Indie RockПродолжительность: 02:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:493ACA5319E6FD657CF87B541AB2622C45FD2522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494018   (890494) от 06.09.2021
+
+ABBA - Still Have Faith In You, Don't Shut Me Down (2021) [FLAC 2.0|96/24|tracks|WEB-DL] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Still Have Faith In You (05:11)
+ 02. Don't Shut Me Down (03:59)Жанр: PopПродолжительность: 09:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74D202BFC3CA63B24B9E865904AA04B456B851F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640070   (890268) от 05.04.2013
+
+Alizee - 5 (2013) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Cause De L’automne (03:55)
+ 02. 10 Ans (03:01)
+ 03. Je Veux Bien (03:39)
+ 04. Mon Chevalier (03:04)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF3FFD0C4EE5A3F313CD433B321CBB538A1AA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994661   (889825) от 08.03.2016
+
+The Twins - Hold On To Your Dreams (1987) Remastered, 2003, Passion Factory Records [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Euro Disco, New Wave>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hold on to your dreams
+02. Love can change it all
+03. Time will tell
+04. What do you live for(   Читать дальше...   )Жанр: Synthpop, Euro Disco, New WaveПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5FCE22047611FD339D924FA0CD41B7CCC8CD4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994600   (889795) от 08.03.2016
+
+Wax - A Hundred Thousand In Fresh Notes (1989) [FLAC|Lossless|WEB-DL|tracks] <New Wave, Pop Rock, Synth Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_889795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anchors Aweigh
+02. Wherever You Are
+03. Railroad To Heaven
+04. He Said She Said(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth PopПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A05454FFACBD57D6531A0E40B432E8E8C5EFDB23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994469   (889641) от 08.03.2016
 
 VA - Die Hit-Giganten - Sommerhits (2007) 2CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop, Latin>
@@ -512,239 +742,6 @@ VA - Pure... 90s Dance Party (2010) Box Set, 4CD [FLAC|Lossless]<Dance, Pop, Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4E7494B7761967C3D65EF7B147A7814365A1FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372645   (883618) от 04.04.2020
-
-Francisca Valenzuela - La Fortaleza (2020) [FLAC|Lossless|WEB-DL|tracks] <Latin, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nunca Quise Herirte (2:07)
-02. Heroe (3:26)
-03. Tomame (3:07)
-04. Ven a Buscarlo (3:21)(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 00:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E018A2C28CA2307377CCEB77D649645717E5798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372499   (883610) от 04.04.2020
-
-Purity Ring - WOMB (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Electronic, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. rubyinsides (03:34)
-02. pink lightning (04:14)
-03. peacefall (04:16)
-04. i like the devil (02:55)(   Читать дальше...   )Жанр: Electronic, Indie PopПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57FD25F7D554BCB3DDB52B07E22209EDEA4FBEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103958   (883514) от 13.02.2017
-
-Hermes House Band - No.1 Gold Selection (Greatest Hits) (2006) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go West
-02. Come On Eileen
-03. I Will Survive 2006
-04. (Is This The Way To) Amarillo(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20BBF4B2DF2988DE7B6599671A05C54D1D1DAA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995691   (882844) от 12.03.2016
-
-VA - Got Hits! Perfect Pop Album (2003) [FLAC|Lossless|tracks + .cue] <RnB, Swing, Europop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Can’t Get You Out of My Head (3:51)
-02. Justin Timberlake - Like I Love You (Basement Jaxx vocal mix) (4:29)
-03. Aaliyah - Try Again (4:46)
-04. DJ Sammy & Yanou feat. Do - Heaven (3:53)(   Читать дальше...   )Жанр: RnB, Swing, EuropopПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F05296EDD8D1BD5044C0DF0D63159AB531B0062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871109   (882698) от 20.02.2015
-
-VA - Pure... Crooners (2011) Box Set, 4CD [FLAC|Lossless]<Pop, Vocal Pop, AM Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882698.jpg" />
-</div>
-
-
-###  Подробнее
-
-По многочисленным просьбам одноклубников ускоряю публикацию всего того что есть у меня в серии Pure... Вот дошла очередь до Crooners, а ведь в переводе с английского это просто эстрадные певцы. Как то не принято у нас называть зарубежных поп-заезд эстрадными певцами. Хотя многие из современных великих подходят под это определение.
-Вот и здесь собраны звезды - великие (   Читать дальше...   )CD1:
-01. Andy Williams - Where do I begin (Love story)  (3:12)
-02. Tony Bennett - A taste of honey  (2:54)
-03. Perry Como - Magic moments  (2:40)(   Читать дальше...   )Жанр: Pop, Vocal Pop, AM PopПродолжительность: 03:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4759763F29BC53CF57EA4DC5785E711DDA4AB4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995913   (882582) от 12.03.2016
-
-Tanita Tikaram - Closer To The People (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glass Love Train
-02. Cool Waters
-03. The Way You Move
-04. Closer To The People(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F69EB02F10F3295667DC0FD0414F7F4920B30699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495257   (882299) от 11.09.2021
-
-Lady Gaga - Dawn Of Chromatica (2021) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Remixes, Electropop, Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice (LSDXOXO Remix)
-02. Stupid Love (COUCOU CHLOE Remix)
-03. Rain On Me ft. Ariana Grande (Arca Remix)
-04. Free Woman (Rina Sawayama & Clarence Clarity Remix)(   Читать дальше...   )Жанр: Remixes, Electropop, Pop, HouseПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B774A3C13A283955FF7576F99749431FA59A994E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 871258   (881216) от 21.02.2015
-
-VA - Pure... Party (2012)  Box Set, 4CD[FLAC|Lossless]<Pop, Dance, Eurodance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Думаю, что самое время перед предстоящими праздниками устроить маленькое музыкальное Party. Правда оно уж и не такое маленькое. А главное очень даже заводное. P!nk, Ke$ha, Shakira, Lou Bega - от всех этих имен может снести башню. Так что в эти праздничные дни смело врубайте этот бокссет и наслаждайтесь.CD1:
-01. P!nk - Get the Party Started   (3:14)
-02. Ke$ha - TiK ToK  (3:22)
-03. Shakira - She Wolf  (3:10)(   Читать дальше...   )Жанр: Pop, Dance, EurodanceПродолжительность: 04:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F20192BCBA585BA14CC7BC206B7C44B27752AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

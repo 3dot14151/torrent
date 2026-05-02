@@ -1,3 +1,119 @@
+###  Публикация: 1636986   (238758) от 01.06.2023
+
+Rival Sons - Darkfighter (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirrors (5:02)
+02. Nobody Wants to Die (3:42)
+03. Bird in the Hand (4:28)
+04. Bright Light (4:34)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F176C8B6620E85E3605AC3C355958124E96698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639051   (238692) от 11.06.2023
+
+Skreen 6 - Rockin' Head (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:52)
+02. Rockin' Head (3:58)
+03. Life Is Too Short To Die (4:56)
+04. Cry (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD3B19707D3CD25A4F27CAE1D6FD451ECBA84B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639024   (238684) от 11.06.2023
+
+Forge the Sun - Heart of the Sunrise (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:55)
+02. Genesis (5:30)
+03. WIGFE (2:50)
+04. Two Enter (4:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7C4DB929A114225CE3D419771F35DC0FBDCD10F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623211   (238683) от 01.04.2023
+
+Evolution Eden - Sonic Cinema (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On with the Show [00:03:43]
+02. Blood Runs Wild [00:04:03]
+03. Here's to the Good Times [00:03:52]
+04. Love's Got a Mind of It's Own [00:03:13](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40B169F200F6250942295566387836C50570E0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639069   (238658) от 11.06.2023
 
 Sinshrift - Sinshrift (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -627,122 +743,6 @@ Hostage - Black Sky Calling (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2E2525020FEA0ADFC704C30F089F1EC32B2B81C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639040   (237433) от 11.06.2023
-
-NormBreaker (NormBreäker) - The Beginning (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beginning (4:08)
-02. Never (3:24)
-03. 1984 (4:26)
-04. Pain (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7106400EEF5A59F276F3DBA6F9542644EC0ED37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450794   (237430) от 27.02.2021
-
-Michael Morales - Thump (1991) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thump (02:55)
-02. I Don't Wanna See You (04:08)
-03. Walk on Water (04:14)
-04. I Can't Get Over You (03:07)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7E526784329DE57CCB29D60CAED06657E8873CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639038   (237425) от 11.06.2023
-
-Matt Tebow - Premonitions (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Premonitions (4:00)
-02. Voices (3:54)
-03. When They Both Lose (5:14)
-04. It's Wonderful (5:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6221C6178815448A1E8993A05180D95CCC1BC97E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627276   (237422) от 18.04.2023
-
-hManx - No Nails for Jesus (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gott Vergibt (00:03:37)
-02 - Ritalin (00:04:24)
-03 - Rette Dich (00:04:16)
-04 - Mutter (00:03:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44168BDA868F57CA54EE91E19C40EC198D0BACCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

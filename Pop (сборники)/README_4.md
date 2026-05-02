@@ -1,3 +1,119 @@
+###  Публикация: 1468298   (1017202) от 07.05.2021
+
+VA - Soft Pop Hits 1 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Arthur, Anne-Marie - Rewrite The Stars (3:38)
+02. Hozier - Take Me to Church (4:01)
+03. Avril Lavigne - Head Above Water (3:40)
+04. John Mayer - Waiting On the World to Change (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 04:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38DB1D9E0FF17DD47B1D52C68EA0DCA8EC06451F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468750   (1016733) от 10.05.2021
+
+VA - Soft Pop Hits 2 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoobastank - The Reason (3:53)
+02. Matchbox Twenty - If You're Gone (4:34)
+03. Macy Gray - I Try (3:51)
+04. Bruno Mars - The Lazy Song (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 04:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A1128360FA36296B92BB81634DF70F6F6A8676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468974   (1016706) от 10.05.2021
+
+VA - Новички в попсе Vol 8 (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MAKF - Все мои здесь (2:56)
+02. Koles, Paha - Звездопад (2:50)
+03. Lima Osta - Без тепла (3:06)
+04. Luverance - Где я (3:27)(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9908B8F8FEBD8D06E10C75533D0F65716ACCC5C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469321   (1016531) от 11.05.2021
+
+VA - 100 Hits Remixed (2021) [MP3|~245 Kbps (V0)] <Disco, Dance, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016531.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam van Hammer - Self Control (Radio Edit) (3:10)
+002. Aurora feat. Lizzy Pattinson - Summer Son (Radio Edit) (3:28)
+003. Dirty Disco - I Feel Dirty (Space City Remix) (6:35)
+004. Eiffel 65 - Move Your Body (D.J.Gabry Ponte Original Radio Edit) (4:29)(   Читать дальше...   )Жанр: Disco, Dance, HouseПродолжительность: 08:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5686BD3663C4577A5FE1609EB8C20E79CD45C47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469650   (1016277) от 13.05.2021
 
 VA - Soft Pop Hits 3 (2021) [MP3|320 Kbps] <Pop>
@@ -629,122 +745,6 @@ VA - Killer Sound: Hardstyle Mixtape (2021) [MP3|320 Kbps] <Hardstyle, Hard Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F48BDE62C6BEC569F43223822B3CE41580ED86E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475506   (1012272) от 07.06.2021
-
-VA - Mein Lieblings Schlager (2021) [MP3|320 Kbps] <Pop, Folk, Dance, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012272.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sister Sister - Valerie
-002. Aitana - Con Cali Y El Dandee
-003. Eloy De Jong - Auf Das Leben
-004. Duncan Laurence - Loves You Like I Couldn’t Do(   Читать дальше...   )Жанр: Pop, Folk, Dance, SchlagerПродолжительность: 11:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3906F4FBFDBF817DA3F2A608E0D6C40A093D5087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475485   (1012254) от 07.06.2021
-
-VA - Evrybody Clap: Disco Party (Vol.02) (2021) [MP3|320 Kbps] <Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012254.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Disco Drizzle - We Are Sparta Ring Walk
-002. Harlem Dance Club - You Ll Be There
-003. Paolo Bardelli - Funky Cookie
-004. Gorillag - Gimme Gimme Gimme(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 10:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:053AE7FAD34ECF217B9B49EA0309C7E50F7DFD59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474893   (1012135) от 08.06.2021
-
-VA - Glam Essentials (2021) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mott the Hoople - All the Young Dudes
-02. Slade - Cum On Feel The Noize
-03. Bryan Ferry - A Hard Rain's A-Gonna Fall
-04. David Bowie - The Jean Genie (2013 Remaster)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:26:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C5C3D981EC5FBD2862A58CC3608C8069A550FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474890   (1012133) от 08.06.2021
-
-VA - 230 DJ Loaded - Musiced Dedications (2021) [MP3|192-320 Kbps] <Afrobeat, Hip-Hop, Dancehall, Future House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WhoHeem vs Waka Flocka Flame ft Wale & Roscoe Dash - Let's Link vs No Hands (Even Steve Wordplay Trans 60-66) Short Clean
-02. YZY - Punisher (Original Mix) Clean
-03. Problem Child 5 ft Young Thug - Da Tooly (Dirty)
-04. Skemaddox - Edamame (Original Mix) Clean(   Читать дальше...   )Жанр: Afrobeat, Hip-Hop, Dancehall, Future HouseПродолжительность: 13:23:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD21EC5C611DD5C68F07A56FA332C5CDA6DC6C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

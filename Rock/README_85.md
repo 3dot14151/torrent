@@ -1,3 +1,32 @@
+###  Публикация: 1587426   (192709) от 31.10.2022
+
+John Bongiovi - The Power Station Sessions 1980-1983 (2001) Reissue [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Said It Would Last Forever
+02. Open Your Heart
+03. Stringin' A Line
+04. Don't Leave Me Tonight(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1082A9B3277BAA91ADAE0AA79C6E3A1E37B0C3B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587515   (192707) от 31.10.2022
 
 Jon Bon Jovi - Blaze Of Glory (1990) Reissue, 2013, Mercury [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
@@ -714,34 +743,6 @@ Stratovarius - Maniac Dance (2005) Maxi-Single, Enhanced [OGG Vorbis|480 Kbps] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9750EA32BE3773D2BD691B41D3DA287267C85119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590170   (189491) от 12.11.2022
-
-Stratovarius - Eagleheart (2002) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eagleheart
-02. Run Away
-03. Eagleheart (Demo Version)Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDF06BF634F42325FADE8382F0995EE6D52AD96
 ```
 
 https://mybot314.ru/tekegram_catalog/

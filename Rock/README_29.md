@@ -1,3 +1,32 @@
+###  Публикация: 1022627   (728820) от 02.06.2016
+
+The Hillbilly Moon Explosion - My Love for Evermore (2015) [MP3|320 кб/с] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Are You Gay? (03:07)
+02. Chick Habit (02:12)
+03. Maniac Lover (03:40)
+04. Dead Cat Boogie (03:19)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:50:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0B9378C91DABB5E78A49BBC00274999080B820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128601   (727207) от 25.04.2017
 
 Fleetwood Mac - Tango In The Night (1987) Remaster 2017 (3CD) [MP3|320 kbps] <Rock, Pop Rock, Soft Rock>
@@ -710,35 +739,6 @@ The Police - Дискография (5 альбомов) (1978-1983) [MP3|320 kb
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025618   (710191) от 12.06.2016
-
-Frame - Frame Of Mind (1972) [MP3|320 кб/с] <Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710191.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Frame Of Mind
-2. Crusical Scene
-3. All I Really Want Explain
-4. If(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CA1374BD696FDB71B47398D433995666B38B05D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1467422   (239821) от 03.05.2021
+
+Biodub - Minutenschlaf EP (2012) Tiefenrausch [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7pm September Light (10:36)
+ 02. Mangroove (05:41)
+ 03. Minutenschlaf (07:48)Жанр: Dub TechnoПродолжительность: 00:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE3FE5A21331D8113C15E140CAC96946C5DA0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370278   (238747) от 28.06.2021
 
 Biodub - Discography 21 Releases (2008-2021) Ki Records, Tiefenrausch [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Dub, Ambient>
@@ -713,35 +741,6 @@ VA - Utopia II (2018) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melod
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:177BCBCFF93B7038CDF974CB064B4DF2BCE03F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269308   (221530) от 14.12.2018
-
-VA - Utopia (2017) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221530.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernstein (CH) – Odlicht (06:56)
-02. Schattenspiel – Tiefsicht feat. René Van Munster (07:47)
-03. Ben Bohmer – Zweisamkeit (05:11)
-04. GYRL – Tesseract (07:33)(   Читать дальше...   )Жанр: Melodic Techno & HouseПродолжительность: 01:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C042F38E4F41580106730E17EF6F04A5309FC751
 ```
 
 https://mybot314.ru/tekegram_catalog/

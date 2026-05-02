@@ -1,3 +1,61 @@
+###  Публикация: 1115251   (828165) от 17.03.2017
+
+VA - Dancing Freak Happy Level (2017) [MP3|320 Kbps] <Future House, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kygo F. Selena Gomez – It Ain’t Me (Axel E Club Mix) 06:07
+02. Chuckie – Rides (Original Club Mix) 06:58
+03. Disco Ballz – Shake It Love (Original Club Mix) 05:38
+04. Koen Groeneveld – Jezzika (Matt Minimal Club Mix) 06:08(   Читать дальше...   )Жанр: Future House, Electro, ProgressiveПродолжительность: 07:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72B44EFD3DC7EBA4A61763AF3CBEE9167262FE7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005804   (828093) от 11.04.2016
+
+VA - Club Dance Ambience Vol.64 (2016) [MP3|320 кб/с] <House, Electro House, Club,>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828093.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ace - Of Bass (Original mix) 03:28
+002. al l bo - Constructor Of The Idol (Black Mafia DJ Instrumental Remix) 05:23
+003. al l bo - Love Affect (Black Mafia DJ Dubstep Instrumental Remix) 05:04
+004. Alan Walker - Faded (Albert Gonzalez Bounce Remix) 04:44(   Читать дальше...   )Жанр: House, Electro House, Club,Продолжительность: 07:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E8CC57ABBB1153765E6E57D2A5FE02B654507B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1115150   (828044) от 17.03.2017
 
 VA - Bass Sound Clinic: Drum & Bass Vol.1 (2017) [MP3|320 Kbps] <Drum And Bass, Dubstep, Electro>
@@ -687,67 +745,6 @@ VA - Chill House Diamonds Vol.3 (2016) [MP3|320 кб/с] <Deep House, Chill Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FECD67E97B3529880F0E3920CE367A65921FFBFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502842   (821337) от 18.10.2021
-
-VA - Melodic Ethnic House (2021) [MP3|320 Kbps] <House, Ethnic, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821337.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jay Haze - Room To Breathe
-002. Ivory Child - On The Seventh Day
-003. Achex & Djfd - Secrects Of Gypsy
-004. Charlotte De Cock - Chapter Three(   Читать дальше...   )Жанр: House, Ethnic, ElectroПродолжительность: 10:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86D73790BC5CF2B91EE0241CCBBE34185991E642
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 314778   (821147) от 27.03.2011
-
-VA - Mega Bass: Прокачай свою систему 12 (2011) [MP3|320 kbps]<Dance, Club, Electro-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821147.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aboutblank & KLC - Magic (T.M.O. Remix) (6:54)
-2. AD Men DJ JOYinT feat. Ira Champion - Dance Hall (DJ Solovey Remix) (5:46)
-3. Adam K & Duro The Third - Daun't Kick My Bag Bitch (Original Mix) (5:43)
-4. Afrojack & Silvio Ecomo & Chuckie - Moombah (Shutterz 'Samplelicious' Bootleg) (5:34)
-5. Akon feat. Jadakiss - Freaky (3:44)
-6. Alex Seda feat. Danna Leese Routh - Let It Go (Startover) (Original Mix) (6:34)
-7. Andrew Mills - Generation 80s (Dj Fernando Lopez RMX) (5:13)(   Читать дальше...   )Жанр: Dance, Club, Electro-HouseПродолжительность: 05:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:693E734B4CA62077A2A6E82B8F48E5979A81B693
 ```
 
 https://mybot314.ru/tekegram_catalog/

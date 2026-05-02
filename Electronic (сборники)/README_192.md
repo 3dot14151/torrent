@@ -1,3 +1,61 @@
+###  Публикация: 1514111   (219719) от 02.12.2021
+
+VA - D&B: Best New Electro Bass Hype Mix (2021) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219719.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Guy Wampa - Come Together
+002. Unglued - South By West
+003. Teej & Jappa - 16 Speakers
+004. Pola & Bryson - In Too Deep(   Читать дальше...   )Жанр: Drum And Bass, Electro BassПродолжительность: 10:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD5CCCBC8215CBEF3E7F10212F7BB2A15C3B7B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514116   (219700) от 02.12.2021
+
+VA - Hypnotic Techno (2021) [MP3|320 Kbps] <Techno, Electro Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219700.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Agent Orange DJ - Backwoods Groove
+002. Blocka - Come With Me
+003. Other Form - A Widening Rift
+004. Decoder - Hemolu(   Читать дальше...   )Жанр: Techno, Electro MinimalПродолжительность: 09:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F90F8DA44847EB1CD3FB380C1411EA98F6E2586A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514045   (219659) от 02.12.2021
 
 VA - E-Dance: Clubbing Electro House (Vol.07) (2021) [MP3|320 Kbps] <Club, Dance, House>
@@ -696,64 +754,6 @@ VA - Beatport Psy Trance: Electro Sound Pack #203.1 (2020) [MP3|320 Kbps] <Psych
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03C5FA89EF670EB1CE76BD5DDB7CF1644CF356A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966810   (216819) от 19.12.2015
-
-VA - From Sunset to Sunrise Vol 2 20 Midnight Lounge Tunes (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tuscany - Acoustic Place
-02. Victor Pearl - Indipendence Sound
-03. Twin Lovers - Fenomeno
-04. Vibrant Boy - Olpu(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6AD4594E9C928916D03973A510877DD6E29BC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966959   (216741) от 19.12.2015
-
-VA - Lounge Christmas Happiness (2015) [MP3|320 кб/с] <Lounge, Chill Instrumental, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216741.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robert Manos - Silver 04:06
-002. Spennu - Something In The Air (Jero Nougues Remix) 06:29
-003. Legatonegre - Tree 02:43
-004. Flight Facilities - Down To Earth (Youngr Live Mix) 03:37(   Читать дальше...   )Жанр: Lounge, Chill Instrumental, DowntempoПродолжительность: 07:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9619407E0208749AEBEB81781F1AD0B27DF15A9
 ```
 
 https://mybot314.ru/tekegram_catalog/

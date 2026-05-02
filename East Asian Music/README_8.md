@@ -1,3 +1,32 @@
+###  Публикация: 875270   (546830) от 24.06.2019
+
+MISTY RAIN — 10 альбомов (2010-2017) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Pop, J-Rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2016.05.08 (MRCD-0011) 春宵パラレルライン (Reitaisai 13)
+2016.10.09 (MRCD-0012) 暁月クラウン (Kouroumu 12)
+2017.05.07 (MRCD-0013) idealism (Reitaisai 14)Тип издания: DoujinЖанр: J-Pop, J-RockФормат: Touhou VocalПродолжительность: 00:05:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EDC5DFF3E5CF8573DD5FF7B9911B7B1B9BADC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 865263   (546769) от 24.06.2019
 
 TUMENECO — 33 альбома (2008-2019) Touhou Vocal, Instrumental /Doujin/ [FLAC|Lossless|tracks] <J-Pop, J-Rock>
@@ -731,35 +760,6 @@ coldrain - Nonnegative (2022) [MP3|320 Kbps] <Alternative Rock, Post-Hardcore, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5EE5FBBA3190640D36C299581DD2DDA95F199EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934103   (503264) от 04.09.2015
-
-2PM - NO.5 (2015) [MP3|320 кб/с]<k-pop, dance, R&B>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Man
-02. Jump
-03. Know Your Mind
-04. Magic(   Читать дальше...   )Жанр: k-pop, dance, R&BПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18CDAFB6832C68FF9BBDE67020ECAEE19CE8E0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

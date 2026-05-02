@@ -1,3 +1,61 @@
+###  Публикация: 1017046   (763267) от 16.05.2016
+
+VA - Chill at Home (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jarome Adam - Apue (Chilling Mix) [3:22]
+02. Kemp Long - You Break My Dreams (City Chill Mix) [4:00]
+03. Booker O'Neill - Tropical Storm (Tee Jay Jay Mix) [4:08]
+04. Carl Kennedy - Room and Ripple (Boutique Mix) [3:34](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEC3FA9DB568F390C5CCF1DFBE8FF991305221D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017286   (763266) от 16.05.2016
+
+VA - Codes Future House Anthems (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Headhunterz & Skytech - Kundalini (Extended Mix) 4:08
+02. StadiumX - Mombasa (Radio Edit) 3:17
+03. Jewelz And Sparks - Drip 2:34
+04. Orjan Nilsen Feat. Senadee - Hands (Noah Neiman Remix) 3:15(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:58:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6508A4510A45543C5B2F26B601B01A18D553F926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017024   (763261) от 16.05.2016
 
 VA - Solar Circle: Progressive House Mix (2016) [MP3|264-320 кб/с] <Progressive House, Electro>
@@ -687,64 +745,6 @@ VA - Race Around Hits Music (2018) [MP3|320 Kbps] <Electro, Twerk, Progressive, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9402D81074119FE59D2493B558C5E0B9FBD424A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215208   (759968) от 25.03.2018
-
-VA - Pump The Beat (2018) [MP3|320 Kbps] <Electro Bass, DnB, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759968.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rameses B Holly Drummond - Dreaming
-002. Jome - Cinnamon (Hybrid Minds Remix)
-003. Echoround - Leap (Original Mix)
-004. North Base - How Do I Know (Feat. Alicia King)(   Читать дальше...   )Жанр: Electro Bass, DnB, DubstepПродолжительность: 08:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1463DF17E80945F90D146534A98754A58A87AF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215257   (759724) от 25.03.2018
-
-VA - 200 Самых Злых Треков Весны (Sound Clinic - Bass Edition) (2018) [MP3|320 Kbps] <Tech House, G-House, Bass House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2 Sides Of Soul - Afrique
-02. 4T Guille Placencia - Lick My Puzz (Original Mix)
-03. Adapter - People X (Original Mix)
-04. Alberto Aguilar - Personal Gun (Original Mix)(   Читать дальше...   )Жанр: Tech House, G-House, Bass House, OtherПродолжительность: 22:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D43C41B3C9C1E29C8F6C13DA6BABF7E90205EA43
 ```
 
 https://mybot314.ru/tekegram_catalog/

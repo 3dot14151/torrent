@@ -1,3 +1,171 @@
+###  Публикация: 1760650   (37205) от 15.11.2024
+
+Gwen Stefani - Bouquet (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Somebody Else’s
+02 – Bouquet
+03 – Pretty
+04 – Empty Vase(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601912D31A426F7071FC5724325A27A4FE26ED7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760598   (37202) от 15.11.2024
+
+Rockets - The Final Frontier (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride The Sky (4:20)
+02. Stand On The World (4:13)
+03. Flesh and Bones (5:56)
+04. All 4-One (3:47)(   Читать дальше...   )Жанр: Space RockПродолжительность: 00:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52BAB929786F0E603F54BDE698821A303600ADD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760631   (37186) от 15.11.2024
+
+The Guess Who - American Woman (1970) Remastered, 2024, SMCMG [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. American Woman (5:09)
+02. No Time (3:49)
+03. Talisman (5:10)
+04. No Sugar Tonight / New Mother Nature (4:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF56AB69E9A2970247F414FE60C0CD1898AB0BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760625   (37183) от 15.11.2024
+
+Sodom - Tapping The Vein (1992) Super Deluxe Edition, 2024, SPV [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Death, Thrash MetalПродолжительность: 5 CD, 04:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280D3A7B5FC434937D763E1FD707945DC8E71F43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760719   (37172) от 15.11.2024
+
+Poppy - Negative Spaces (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. have you had enough? (3:38)
+02. the cost of giving up (3:18)
+03. they’re all around us (3:25)
+04. yesterday (0:48)(   Читать дальше...   )Жанр: Alternative Metal, Metalcore, ElectronicПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF30C44A9B1306713FF79B2EC904FAA7666710AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761087   (36977) от 17.11.2024
+
+Steve Vai, Generation Axe, Brian May, Zakk Wylde, Nuno Bettencourt, Yngwie Malmsteen, Tosin Abasi - Bohemian Rhapsody (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bohemian Rhapsody (6:42)Жанр: RockПродолжительность: 00:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8FB7C612EF803943C6F056AA84BD8DAB7075F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761249   (36865) от 18.11.2024
 
 Wheeler Walker Jr - Ram (Deluxe Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
@@ -568,180 +736,6 @@ Pet Shop Boys - Nonetheless (2024) expanded edition, 2024, Parlophone UK [FLAC 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F4419C561FF08973A132C4269036AC8B01D802E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761826   (36485) от 22.11.2024
-
-Chicago - Live At 55 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36485.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Chicago - Introduction (Live) (6:36)
-• 02. Chicago - Does Anybody Really Know What Time It Is (Live) (3:38)
-• 03. Chicago - Beginnings (Live) (5:41)
-• 04. Chicago - Questions 67 and 68 (Live) (5:39)(   Читать дальше...   )Жанр: RockПродолжительность: 02:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57ED6F69184FB1A5F31E2424DDEAA7F9B2D182A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761823   (36483) от 22.11.2024
-
-Die for my Sins - Scream (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die for my Sins - Scream (3:55)
-02. Die for my Sins - Time (5:06)
-03. Die for my Sins - Still Alive (4:37)
-04. Die for my Sins - Waiting for Your Hero (4:42)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65556F91FE8D78D4C9ED916DFB4AB937FD8C547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761857   (36482) от 22.11.2024
-
-Soft Jazz Mood - Erotic Daydreaming: Romantic Sexy Relaxation (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sacred Connection (4:30)
-02. Exploring Tantric Magic (4:51)
-03. Unlock Orgasmic Bliss (4:54)
-04. Deepen Your Senses (5:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C95F7AF0294425AEC544B16ACC465EDA40C75FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761893   (36479) от 22.11.2024
-
-U2 - How To Dismantle An Atomic Bomb (Re-Assemble Edition) (2004) Remastered, 2024, Island Records Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Alternative Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Vertigo (Remastered 2024) [3:15]
-02 - Miracle Drug (Remastered 2024) [3:59]
-03 - Sometimes You Can't Make It On Your Own (Remastered 2024) [5:09]
-04 - Love And Peace Or Else (Remastered 2024) [4:51](   Читать дальше...   )Жанр: Electronic, Alternative Rock, Pop RockПродолжительность: 01:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398426CFBC4103A085D89981645DC71918DD5CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761799   (36471) от 22.11.2024
-
-Mur - Mur (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric Progressive Death Metal, Post Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eldhaf (9:04)
-02. Múr (5:52)
-03. Frelsari (4:07)
-04. Vitrun (9:38)(   Читать дальше...   )Жанр: Atmospheric Progressive Death Metal, Post MetalПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:341EAA206DDC6E80EBF45FC9CF5DE651E10BA3D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761850   (36470) от 22.11.2024
-
-Mell Vf - Queen Of My Castle (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Beginnings (1:45)
-02. Queen of my Castle (3:12)
-03. Crazy (3:19)
-04. Be As One (3:16)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDAA0A10B81E50CCAA15B9D587AA3AE2E2B72B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

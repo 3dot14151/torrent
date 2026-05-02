@@ -1,3 +1,119 @@
+###  Публикация: 1577947   (350298) от 21.09.2022
+
+Chris Antonik - Morningstar (2022) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waves of Stone (feat. Jarekus Singleton) 05:12
+02. Pilgrim 04:12
+03. Back to the Good 04:13
+04. Trust In Me 05:10(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAA0B83D38FC9426027E9DF0C3BCA5EA1D8ABA92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200717   (349832) от 06.10.2019
+
+Big Daddy Kinsey & The Kinsey Report - 9 Albums (1985 - 1998) [FLAC|Lossless|tracks + .cue] <Funky Blues Rock, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lester J. Kinsey Jr. (18 марта 1927 года - 3 апреля 2001 года), известный как Big Daddy Kinsey, отец Donald, Ralph и Kenneth Kinsey. Естественным и очевидным будет объединение в единую тему альбомов Big Daddy Kinsey и The Kinsey Report, тем более на всех релизах отца сыновья принимали непосредственное участие. Big Daddy Kinsey представляет последнюю миграционную (   Читать дальше...   )Список альбомов:
+1985 - Bad Situation
+1987 - Edge Of The City
+1989 - Midnight Drive(   Читать дальше...   )Жанр: Funky Blues Rock, Chicago BluesПродолжительность: 07:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB7C40B878117DD57F6F1F4D07AA288BEF976F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418381   (349293) от 24.10.2020
+
+Shemekia Copeland - Uncivil War (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clotilda’s On Fire                                                                                                                                                                          02. Walk Until I Ride
+03. Uncivil War
+04. Money Makes You Ugly
+05. Dirty Saint(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E77A247A9FA01507EB1C05CFA7C9AEC8A206DAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179465   (349207) от 31.10.2017
+
+Hundred Seventy Split - HSS (2014) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pork Pie Hat   (04:50) 
+02.  I Never Saw It Coming   (07:58) 
+03.  Gonna Dance On Your Tombstone   (07:31) 
+04.  Let Me Go   (04:25) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FAC4C348090A09CA6F9C3C219B8377F61D941FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329908   (347705) от 07.10.2019
 
 Jody Williams - Return Of A Legend (2001), You Left Me In The Dark (2004) [FLAC|Lossless|tracks + .cue] <Electric Chicago Blues>
@@ -630,134 +746,6 @@ Clint Pigg - Dead Man Walking (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75E7B6BF49547FCE937B020271FF50B16C4496CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074774   (336223) от 20.11.2016
-
-The Bob Lanza Blues Band - Time to Let Go (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Your Own Business 03:57
-02. Time to Let Go 03:25
-03. When the Sun Comes Up 05:38
-04. Your Turn to Cry 04:24(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2978A11115E9DC13B9EF00B223456932F913906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355477   (335349) от 30.10.2020
-
-Smokin' Joe Kubek & Bnois King - 16 Albums (1991 - 2015) [FLAC|Lossless|tracks + .cue|image + .cue] <Texas Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335349.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smokin' Joe Kubek (30 ноября 1956 - 11 октября 2015) был американским техасским блюзовым электрогитаристом, автором песен и исполнителем. Bnois King (родился 21 января 1943 года)  - техасский блюзовый и джазовый гитарист, вокалист и композитор. Он чаще всего играл на гитаре и ритм-гитаре и выступал в качестве основного вокалиста и автора песен для Smokin' Joe Kubek (   Читать дальше...   )Список альбомов:
-1991 - The Axe Man
-1991 - Steppin' Out Texas Style
-1992 - Chain Smokin' Texas StyleЖанр: Texas Blues, Blues RockПродолжительность: 12:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570B93AE2356B27DC4649BA6C4B0263198DE01C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259423   (334612) от 17.11.2010
-
-Steve Guyger - Radio Blues (2008) [APE|Lossless]<Blues , Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334612.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lookie Here
-2. You're So Fine
-3. Cool in the Evening
-4. Little Rita
-5. Blues Won't Let Me Be
-6. School Is Over
-7. Afghan Rumble
-8. I'm Shakin'
-9. Oh Red
-10. I Can See by Your Eyes(   Читать дальше...)Жанр: Blues , HarmonicaПродолжительность: 00:53:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 259430   (334610) от 17.11.2010
-
-BluesMotel - Built for Comfort (2010) [FLAC|Lossless]<Chicago Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Built For Comfort 04:02
-02. Hoochie Coochie Man 04:59
-03. Spoonful 03:10
-04. Key To The Highway 05:40
-05. Just A Dream 02:51
-06. Don't Stay Out All Night 04:16
-07. I Just Wanna Make Love To You 03:43
-08. I'm Free 02:08
-09. Boom Boom, Out Go The Lights 02:41
-10. Smokestack Lightnin' 05:53(   Читать дальше...   )Жанр: Chicago Electric BluesПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

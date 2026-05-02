@@ -1,3 +1,93 @@
+###  Публикация: 1413586   (408193) от 04.10.2020
+
+Квартирник НТВ у Маргулиса. Михаил Бублик (03.10.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Творчество Михаила Бублика находится на стыке шансона и рока, он автор таких хитов, как «Сам тебя выдумал», «Что мы наделали» и «40 тысяч верст», а его бешеная энергетика и харизматичная улыбка принесли музыканту любовь и признание разных поколений. В гостях у Евгения Маргулиса Бублик поделился воспоминаниями из жизни и исполнил свои лучшие композиции.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F209E80FB37F9386339499CF48241F40E8076BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 565650   (399824) от 26.10.2012
+
+The Doors: Live at the Bowl '68 (2012) [1080p] Blu-ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399824.jpg" />
+</div>
+
+
+###  Подробнее
+
+• On July 5th, 1968, The Doors took to the stage of the Hollywood Bowl for a concert that has since passed into legend. The Doors were performing on the back of their 3rd album release Waiting For The Sun and the US No.1 single Hello, I Love You. They had been honing their live performances over the previous 2 years and were on absolute peak form. Now for the first time the original film footage from the Hollywood Bowl has been digitally scanned and restored to present the show better and more complete than it's ever been seen before, with 2 previously unreleased tracks (Hello, I Love You & THE WASP (Texas Radio And The Big Beat) (aka just Texas Radio And The Big Beat) returned to the running order and with sound newly remixed and mastered from the original multitrack tapes by The Doors engineer and co-producer Bruce Botnick. This is now the definitive edition of this famous performance. / Bonus Features: Over an hour of new bonus material including Echoes From The Bowl, The Doors route to the Hollywood Bowl, (   Читать дальше...   )01. Show Start / Intro
+02. When The Music's Over
+03. Alabama Song (Whisky Bar)
+04. Back Door Man
+05. Five To One
+06. Back Door Man (Reprise)
+07. The Wasp (Texas Radio And The Big Beat)
+08. Hello, I Love You
+09. Moonlight Drive
+10. Horse Latitudes(   Читать дальше...   )Жанр: rockПродолжительность: 01:11:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 715095   (397403) от 25.10.2013
+
+Joe Cocker – Fire it Up Live (2013) Blu-Ray [1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт «Fire it Up» состоялся в ходе европейского тура Джо Кокера на Lanxess Arena в Кёльне в апреле 2013 года. Джо Кокер - английский певец, работающий в жанрах блюз и рок. Его визитной карточкой является низкий хриплый баритон. Жемчужины его репертуара — блюзовые баллады «My Father’s Son», «Unchain My Heart», «You Can Leave Your Hat On», «N'oubliez jamais».01. I Come In Peace Live
+02. Feelin' Alright Live
+03. The Letter Live
+04. When The Night Comes Live(   Читать дальше...   )Производство: Германия / Sony BMG Music EntertainmentЖанр: Rock, Blues-Rock, Blue-Eyed SoulРежиссер: Ник Викхэм / Nick WickhamПродолжительность: 01:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221670D96B9035DFA1D595FAF0B7502BE65237B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 717301   (390899) от 01.11.2013
 
 Status Quo: Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) Blu-Ray [1080p]
@@ -644,88 +734,6 @@ Coldplay - Live 2012 (2012) [1080p] BDRip
 08. Princess Of China (with Rihanna)
 09. Up In Flames
 10. Viva La Vida(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 01:36:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328499   (363376) от 30.09.2019
-
-Квартирник НТВ у Маргулиса. Группа Мегаполис (28.09.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363376.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эту субботу на «Квартирник НТВ у Маргулиса» пришла рок-группа «Мегаполис». Музыканты исполнили песни «Ангел», «Все не кончится старость», «Влажная ложь» и многие другие, а солист Олег Нестеров в первый раз в России исполнил композицию «Ёжик» и рассказал, почему не мог спеть ее раньше.
-Также Олег Нестеров рассказал, что в юности подражал в манере исполнения Андрею (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFE5ABD7D3DFE66D304B493807E80EEEFE41E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416966   (362730) от 18.10.2020
-
-Квартирник НТВ у Маргулиса. Группа Дайте танк (17.10.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_362730.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квартирник» представляет атмосферный концерт российской рок-группы "Дайте танк (!)". Ребята из Коломны стали настоящим культурным феноменом в музыкальной тусовке, их песни не оставляют равнодушными никого. Они исполняют композиции в смешанном стиле, где присутствует инди- и панк-рок. Сами же артисты в социальных сетях охарактеризовали свой стиль как «гаражный (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC027A289C0029C9969A369F302D1FBCECA6E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573563   (359780) от 18.11.2012
-
-Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359780.jpg" />
-</div>
-
-
-###  Подробнее
-
-'Hungarian Rhapsody: Live In Budapest' QUEEN. Снятый в 1986 году, концерт прошел полное восстановление и переведен в высокое разрешение и снабжен 5.1 Surround Sound - так что теперь у всех будет возможность насладиться этим великолепием в полноценном HD.В DVD и Blu-ray также войдет 25-минутный документальный фильм "A Magic Year", рассказывающий о том, как (   Читать дальше...   )01. One Vision
-02. Tie Your Mother Down
-03. In the Lap of the Gods. . .Revisited
-04. Seven Seas of Rhye(   Читать дальше...   )Жанр: RockПеревод: ОтсутствуетЯзык субтитров: АнглийскийПродолжительность: 01:31:11
 
 ## Скачать торент
 ```bash

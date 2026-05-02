@@ -1,22 +1,80 @@
-###  Публикация: 1398183   (736196) от 25.07.2020
+###  Публикация: 1526060   (738831) от 23.01.2022
 
-Nebulosity 4.4.3 [Multi]
+VA - Lounge & Beauty, vol. 1 (2022) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - The Birds & the Bees (Original Mix) (2:15)
+02. Roberto Bronco - Reminisce (Original Mix) (5:07)
+03. Weber & Weber - The Diamond Life (Original Mix) (5:24)
+04. Alexandra Hampton, Ahbee - Love (Original Mix) (3:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C63771370BE3AD50BFC2A78823656C58CD5D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526082   (738830) от 23.01.2022
+
+VA - Summer in Electro & Swing Jazz (Light Music Selection Night Session) (2018) [AAC|~333 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christian Lisi - Ukulele Swing (2:50)
+02. JazzInCase - Non dimenticare (3:19)
+03. Minor Swing Quintet - Prince of Persia (7:27)
+04. Parma Brass Quintet - Toccata (2:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE139D20612F6E9EF37794B555DBAA4D85D067B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526171   (738829) от 23.01.2022
+
+AnyMP4 iOS Toolkit for Mac 9.0.66 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738829.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Nebulosity разработан как мощное, но простое в использовании приложение для захвата и обработки изображений. Поддерживается огромное количество камер, и изображения могут обрабатываться практически из любого места (поддержка многих форматов FITS, файлов PNG, TIFF, JPEG, DSLR RAW и т. Д.). Его цель - удовлетворить потребности людей, начиная от начинающего имидж-сканера, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.07.2020Разработчик: Stark LabsПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и др.
+При помощи приложения AnyMP4 iOS Toolkit, ранее AnyMP4 iPhone Data Recovery, вы можете восстановить данные с iPhone / iPad / iPod на Mac.Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2022 AnyMP4 StudioПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F7E225CAAC2C123F7A1749B40C9EAF08709C5DE
+magnet:?xt=urn:btih:27BD5F0771CC8E387D8DBED1CD57C49F68348606
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,132 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398297   (736195) от 25.07.2020
+###  Публикация: 1526226   (738828) от 23.01.2022
 
-VA - The Official UK Top 40 Singles Chart 24.07.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joel Corry Feat MNEK - Head & Heart
-02. Jawsh 685 - Savage Love (Laxed - Siren Beat)
-03. DaBaby Feat Roddy Ricch - ROCKSTAR
-04. Lady Gaga Feat Ariana Grande - Rain On Me(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72D96B8C60F5F429FF86D5A3C97C20F0FABB412E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398236   (736194) от 25.07.2020
-
-Гоночная серия АРКА-2020. 7-й Этап. Айова 150. Гонка / ARCA Menards Series 2020. Round 7. Shore Lunch 150. Race WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736194.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 этап ARCA Menards Series, Shore Lunch 150, Kentucky Speedway (150 Laps, 131.2 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 01:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90B631E5C1301007DF2178B88F9784E2EF685BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398040   (736193) от 25.07.2020
-
-Morse / Portnoy / George - Cover To Cover Anthology (2020) Vol. 1-3 (3xCD) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Progressive Rock, Hard Rock, Classic RockПродолжительность: 02:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CED0E20EC84C2411A2BDD54F74F77050DF6A768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398408   (736192) от 25.07.2020
-
-PhoneRescue for iOS 4.0.0.20200722 [Multi]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736192.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhoneRescue - полезное приложение для восстановления удаленных данных на iOS-устройствах. С его помощью можно восстановить контакты, сообщения, фотографии, медиафайлы и т.д. удаленные по ошибке, потерянные в результате повреждения устройства или в следствии заражения вредоносными программами. Поддерживает все модели iPhone, iPad и iPod touch. Имеет удобный и понятный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.07.2020Разработчик: iMobie Inc.Поддерживаемая ОС: OS X 10.8 или вышеЯзык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398254   (736191) от 25.07.2020
-
-Sensei 1.2.10 [Multi/Ru]
+iCompta 6 v6.0.53 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738828.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sensei - это приложение, которое охватывает как программное, так и аппаратное обеспечение, включая гораздо больше функций, чем другие приложения в категории оптимизации Mac. Он включает в себя функции для очистки вашего диска, удаления приложений, анализа состояния аккумулятора и диска, мониторинга статистики CPU/GPU/RAM, оптимизации скорости загрузки и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 25.07.2020Разработчик: Oskar Groth / Cindori ABПоддерживаемая ОС: OS X 10.15 и вышеЯзык интерфейса: Русский, Английский и др.
+iCompta - простое, но мощное приложение для управления персональным финансами. Программа создана так, чтобы быть максимально простой в использовании, поддерживая множество функций, которые помогут вам отслеживать ваши деньги и начать экономить. Следите за своими доходами и расходами, контролируйте свои счета, оставайтесь в соответствии с вашим бюджетом.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2021 LyricAppsПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A21120E5F1F9E30DFE0DDED3C10CE185EBB950F4
+magnet:?xt=urn:btih:1B8B71E3B759021EE9F9CF18A0AF17D0B7E6DA11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,83 +108,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398300   (736190) от 25.07.2020
+###  Публикация: 1526180   (738827) от 23.01.2022
 
-Коррозия металла - Языческие Боги (2002) [FLAC|Lossless|image + .cue] <Thrash, Punk, Oi>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01	Человек-Динамит-Камикадзе (Music By – Макс С Болтом) 2:20
-02	Веселящий Газ	3:06
-03	Языческие Боги (Music By – Макс С Болтом) 4:28
-04	Хайль Фюрер	3:57(   Читать дальше...   )Жанр: Thrash, Punk, OiПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A1734A0F4FD1377AF9D384EF4FEBD426E13CEB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398302   (736189) от 25.07.2020
-
-Коррозия Металла - Угар В Полярном! (1999) [FLAC|Lossless|image + .cue] <Thrash, Punk, Oi>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нигер (3:35)
-02. Нихт Капитулирен (3:46)
-03. СПИД (3:58)
-04. I'm President (3:22)(   Читать дальше...   )Жанр: Thrash, Punk, OiПродолжительность: 00:52:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398406   (736188) от 25.07.2020
-
-PhoneRescue for Android 3.7.0.20200722 [Multi]
+Cisdem Video Converter 7.0.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738827.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PhoneRescue for Android – приложение для восстановления утерянных или удаленных данных с Android устройства. Приложение распознает подключенное к компьютеру устройство и предлагает выбрать типы файлов для восстановления, среди которых, контакты, фото, музыка, сообщения, данные мессенджеров, журналы звонков и тому подобное. Приложение поддерживает режим глубокого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.07.2020Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
+Скачать онлайн-видео, Rip DVD или конвертировать видео между всеми форматами & устройств на Mac.
+Cisdem Video Converter является решением все в одном для видео развлечений. Cisdem VideoConverter будет полезен если вы конвертируете видео & аудио файлы в любом формате, записываете DVD фильмы или скачиваете видео с YouTube, Google, Yahoo, и т.д Он самый стабильный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.12.2021Разработчик: © 2021 Cisdem Inc.Поддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:545128545BA7CEC13573C0C516BFF8D52DD506F5
+magnet:?xt=urn:btih:05A6941751140892603C3FCD445B3920B2134311
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -241,28 +135,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398274   (736187) от 25.07.2020
+###  Публикация: 1526295   (738826) от 23.01.2022
 
-Группа товарищей - Виновата зима (2020) [MP3|320 Kbps] <Rock, Blues Rock>
+EdgeView 3 v3.2.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738826.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 3 - это новейший просмотрщик изображений. Вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения, вы также можете напрямую подключиться к FTP и открывать файлы. EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © DJ ProductionПоддерживаемая ОС: macOS 11.1+Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7808EB39F91A61A1CB77AD47995BB26BA60AB471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526236   (738825) от 23.01.2022
+
+VA - Hamburg Orange (Urban Music for Urban People) (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philip Aniskin, Alexsandra Mell - Too Close to You (4:54)
+02. Velvet Dreamer, Tim Gelo - Eternal Beauty (5:08)
+03. LastEDEN - Hot City Walk (3:18)
+04. Miss Luna, Neshia - Smile (Florito Mix) (4:37)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20297BFD690959D26B73889599071B6009FE893C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526005   (738824) от 23.01.2022
+
+Cats in Boots - Kicked & Klawed (1990) [APE|Lossless|image + .cue] <Sleaze Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738824.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Вставай!
-2. Солнечные дни
-3. В ожидании чуда
-4. Сказка(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:55:42
+01. Shot Gun Sally
+02. Nine Lives (Save Me)
+03. Her Monkey
+04. Whip It Out(   Читать дальше...   )Жанр: Sleaze RockПродолжительность: 00:48:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0DED089C4EA6F57A1FE6AB621EBC03B575181E4
+magnet:?xt=urn:btih:105DABAA60620E953AA4B48FD260E32D692E0D14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,26 +219,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398170   (736186) от 25.07.2020
+###  Публикация: 1526068   (738823) от 23.01.2022
 
-Брайан Смит | Зомби-рок-н-рольщицы из исправительной школы (2010) [FB2]
+VA - Beautiful Vocal Trance, ch. 3 (2019) [AAC|~332 Kbps] <Trance>
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738823.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1987 год. Президет Соединенных Штатов - Рональд Рейган, в радиоэфире правит хэви метал. Южно-Иллинойский Центр Музыкального Перевоспитания существует для того, чтобы исцелить юных "металлистов" от бунтарского образа жизни и превратить их в морально безупречных, "продуктивных" членов общества.
-Одной грозовой ночью Уэйн Деверо направляется в ЮИЦМП, (   Читать дальше...   )Жанр: УжасыПеревод: Андрей ЛоктионовФормат: FB2
+01. Aurosonic, Neev Kennedy, Bote - What Else Is There To Love (3:31)
+02. Costa, Cathy Burton - Always (3:38)
+03. Beat Service, Ana Criado - So Much Of Me Is You (Radio Edit) (3:33)
+04. 4 Strings, Susanne Teutenberg - A Brand New Day (2:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23D8832A4CA3E0042BD72CEB120FAFA91DD1D9D6
+magnet:?xt=urn:btih:50DE6CD05DE0DCE0293E3059872D1B723D929755
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -297,28 +248,258 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398237   (736185) от 25.07.2020
+###  Публикация: 1526189   (738822) от 23.01.2022
 
-Acuario - Acuario (1977) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+Mirror for Hisense TV 3.8.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров Hisense
+Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Hisense. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Смарт-ТВ Hisense с 2012 и позже. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71C365880A00B630EA737E363DF50736120E4308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526069   (738821) от 23.01.2022
+
+VA - Beautiful Vocal Trance, ch. 4 (2019) [AAC|~338 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic, Cathy Burton, AxelPolo - Loving Overflow (Radio Edit) (3:37)
+02. Costa, Sarah Lynn - The Water's Edge (3:51)
+03. 4 Strings, Maria Nayler - Remember You As Mine (3:21)
+04. Tenishia, Ana Criado - Ever True (Radio Edit) (4:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4B361C950FC70A6C4D59DB859CEA6C824F0783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526083   (738820) от 23.01.2022
+
+VA - Summer in Electro & Swing Jazz (Light Music Selection) (2018) [AAC|~317 Kbps] <Jazz>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JazzInCase - Bon bon (4:51)
+02. Ely Bruna - Dolce Vita (2:55)
+03. Bomba Titinka - Treno a bebop (2:52)
+04. Just Bubbles - Rising for the Moon (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E54DD9158EF5AECC57128ABBDC44797B42D81D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526114   (738819) от 23.01.2022
+
+Charlie Ventura Quartet & Quintet - Complete Verve Studio Sessions (1951 - 1952) 2001, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avalon [2:53]
+02. I'm Confessin' [3:07]
+03. Bugle Call Rag [2:50]
+04. Rose Room [2:49](   Читать дальше...   )Жанр: SwingПродолжительность: 01:01:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5270650604EDD65C4C34A060B741B6F412014D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526076   (738818) от 23.01.2022
+
+VA - Beautiful Vocal Trance, Progressive (2020) [AAC|~336 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurosonic, Kate Louise Smith - From Dust To Ground (3:28)
+02. Costa, Ana Criado - The Secret Garden (3:30)
+03. Frainbreeze, Claudiu Adam, Yentl - Trust The Water To Settle (3:33)
+04. Aurosonic, Ellie Lawson - Becoming (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C8DCB84376F83233FA5A2AC65202F42E2AAF2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526065   (738817) от 23.01.2022
+
+VA - Beautiful Vocal Trance, ch. 2 (2018) [AAC|~340 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beat Service, Ana Criado - An Autumn Tale (Radio Edit) (4:10)
+02. Nicholas Gunn, Alina Renae - Older (Costa Remix) (3:32)
+03. Witness45, Cynthia Hall, Fashion Police - I'm Still Here (Radio Edit) (2:48)
+04. Tenishia, Sue Mclaren - Strong (Radio Edit) (3:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB12342767B81CAFA1A3665836FD206F366F1228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526074   (738816) от 23.01.2022
+
+VA - Beautiful Vocal Trance, ch. 5 (2020) [AAC|~337 Kbps] <Trance>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Costa, Ana Criado - The Secret Garden (3:30)
+02. Aurosonic, Stine Grove - In Euphoria We Rise (3:29)
+03. Dark Matters, Jess Morgan - I Don't Believe In Miracles (Shogun Remix) (4:16)
+04. Beat Service, Cathy Burton - Love Is Your Home (Radio Edit) (3:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB6141C542FADC2703237CF7CFE5E59D29C924B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526216   (738815) от 23.01.2022
+
+VA - London Orange (Urban Music for Urban People) (2016) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tribeca - First to Say Goodbye (Original Mix) (5:34)
+02. Roberto Bronco - Breath (Original Mix) (4:05)
+03. Houie D. - Silence (Be.Me.Ti.Lou) (5:11)
+04. Ingo Herrmann - Soulmate (Original Mix) (4:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B648B5ED05FA0782AAA8410F1B1E158186830F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526135   (738814) от 23.01.2022
+
+Baynk - ADOLESCENCE (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738814.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rema, Rema Marinero (3:45)
-02. Besame Mucho (3:34)
-03. Nada Mas De Amor (3:19)
-04. Oh, Latin Boy (2:54)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:34:06
+01. Touch Me (Hold My Hand) (4:01)
+ 02. BAYNK, Tinashe - Esther (3:12)
+ 03. BAYNK, Cosmo's Midnight - How Does It Feel? (3:39)
+ 04. BAYNK, Drama - 1 Chance (3:22)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:34:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30E556362F55495AFEFA1BC9B329C950CC766519
+magnet:?xt=urn:btih:3D87CE67873927F60C18D41282117058BFC32AE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,28 +507,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398235   (736184) от 25.07.2020
+###  Публикация: 1526212   (738813) от 23.01.2022
 
-VA - Music News vol.29 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
+Screenshot Editor 2.3.3 fix [Multi/Ru]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738813.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Daasha - Истерики (02:12)
- 002. Mia Martina feat. 19 Mafia - Day Dreams (03:42)
- 003. Mick Mazoo - I Say Sun (02:29)
- 004. Mike Singer - 100Tausend (02:50)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 08:32:57
+Screenshot Editor (Редактор скриншотов) поможет вам легко сделать скриншот и прокомментировать его с использованием набора полезных инструментов разметки.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D85414F6A2364AEAB404DC6FBE99A1B2041F6BD1
+magnet:?xt=urn:btih:5471F0C6A796B31456C31D33195B93955AFDB3BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -355,28 +533,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 787867   (736183) от 18.05.2014
+###  Публикация: 1526240   (738812) от 23.01.2022
 
-ЧП. Чрезвычайное происшествие. Расследование. Спецвыпуск. Киллер Беня (2014.05.18) SATRip
+VA - Barcelona Orange (Urban Music for Urban People) (2017) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738812.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Чрезвычайное происшествие. Расследование» — это эксклюзивная информация из надежных источников. Документальные расследования, проводимые программой, затрагивают самые актуальные темы: организованную преступность и коррупцию, экономические преступления и терроризм. Зрителей ждут мнения участников событий, комментарии экспертов и версии правоохранительных органов.В выпуске: Бизнес на крови: кто помог банкиру Коломойскому стать губернатором?
-Как он покупает и продает человеческие жизни?
-И кто самый дорогой враг олигарха?
-Днепропетровск, Одесса, Мариуполь — кто остановит личную армию банкира?Жанр: ТелепередачаПродолжительность: ~ 00:14:21
+01. Marga Sol - Amoralea (5:58)
+02. Paulsen & Stryczek - Havana Postcard (3:03)
+03. Leo de la Rosa - Desnudos Tú Y Yo (3:23)
+04. Marco Bianchi, Franky Harper - Oye Como VA (3:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E43DAA41B81E626BAFD816F666AD51E4E9112FA
+magnet:?xt=urn:btih:E62CAA0F9102FA36E0CA94CC427481088443209F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,28 +562,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398325   (736163) от 25.07.2020
+###  Публикация: 1526077   (738811) от 23.01.2022
 
-Бурёнка Даша - Сборник 7 (2019) [MP3|320 Kbps]<Детские песни и минусовки>
+VA - Beautiful Vocal Trance, ch. 7 (2022) [AAC|~326 Kbps] <Trance>
 
->>Аудио для детей и родителей
->>Музыка и песни для детей
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738811.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01+/-11. Вдоль по Питерской
-02+/-12. Дельфин
-03+/-13. Дождик
-04+/-14. Лето(   Читать дальше...   )Жанр: Детские песни и минусовкиПродолжительность: 00:42:16
+01. Aurosonic, Katty Heath - Tale of Us (3:36)
+02. Aldous - Wait For Me (3:02)
+03. Bruce Cullen, Paula Alcasid - Upside Down (3:43)
+04. Costa, Jessie Lee Thetford - Distant World (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:24:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C6FCD2D5966DFBA8A6D3D9DFA3A743DCFBCD141
+magnet:?xt=urn:btih:BC15772E977FF84B0D500B3768A5123AAA943B93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,25 +591,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398387   (736162) от 25.07.2020
+###  Публикация: 1526063   (738810) от 23.01.2022
 
-Gamers! | Геймеры! [2017, TV, 12 из 12] BDRip 1080p raw
+VA - Beautiful Vocal Trance, ch. 1 (2017) [AAC|~338 Kbps] <Trance>
 
->>нет
->>нет
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738810.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Ты не хотел бы записаться в игровой кружок?» — говорит первая красавица школы заурядному, на первый взгляд, Кэйте Амано. Сколько романтических историй начиналось так же? Но Амано ждал не вечер тет-а-тет, а улётная партия в местный «контр-страйк», где школьные «отцы» топтали его в каждом раунде. Увы, у Амано нет ни таланта, ни суперсил, и вместо того, чтобы всех (   Читать дальше...   )Производство: Pine Jam / パインジャムЖанр: комедия, романтикаРежиссер: Окамото МанабуПеревод: AniPlay (lanalynx)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+01. Ana Criado - Vulnerable (Denis Kenzo Edit) (4:17)
+02. Beat Service, Sarah Lynn - Dream Weaver (Radio Edit) (4:03)
+03. Radion6, Katty Heath - Beautiful Nothing (Radio Edit) (2:59)
+04. 4 Strings, Denise Rivera - In The Middle of a Dream (Radio Edit) (3:11)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:49
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:52D131820A0E393189C6EF8DEA7E7CBF999BDE32
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -439,247 +620,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398204   (736161) от 25.07.2020
+###  Публикация: 1526134   (738809) от 23.01.2022
 
-VA - ЕвроХит Топ 40 Europa Plus 24.07.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights (3:21)
-02. NRD1 - All Good Things (Come To An End) (3:27)
-03. Pascal Letoublon - Friendships (4:01)
-04. Мари Краймбрери - Пряталась в ванной (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25C8504F070DDE73A29765DF411DAC19562C6F44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398265   (736160) от 25.07.2020
-
-Звуковые библиотеки - SoundBits - Dark SciFi Drones Construction Kit [WAV]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736160.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом наборе все "Dark SciFi Drones" были тщательно разделены на логические частотные слои. Таким образом, у вас есть лучший контроль, и вы можете сделать свой собственный микс из этих элементов. Кроме того, вы можете комбинировать и смешивать различные слои в разных средах с помощью перетаскивания, чтобы создать почти бесконечные вариации. Или легко делать (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398271   (736159) от 25.07.2020
-
-VA - Ibiza Chillout Tunes 2020 [FLAC|Lossless|WEB-DL|tracks] <Easy listening, Pop>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736159.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-1. Matt, Simons - Catch & Release (3:59)
-2. Lost Frequencies - Are You With Me (Radio Edit) (2:17)
-3. Klangkarussell - Sonnentanz (6:02)(   Читать дальше...   )Жанр: Easy listening, PopПродолжительность: 01:32:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398210   (736158) от 25.07.2020
-
-Дед Мороз и серый волк (1937) TVRip [H.264] [hand made colored]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультипликационный фильм про то, как Дед Мороз не позволил Серому Волку испортить зверятам новогодний праздник. Цветной.Производство: СССР, СоюзмультфильмЖанр: Рисованная анимация, Детский, СказкаРежиссер: Ольга ХодатаеваСубтитры: отсутствуютПродолжительность: 00:11:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1112CF1E19EDD38B9B16E66A61C8C1AB8BE30C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398401   (736157) от 25.07.2020
-
-AnyTrans for Android 7 v7.3.0 (build 20200722) [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736157.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyTrans for Android - предназначен для быстрой и удобной передачи файлов с компьютера на android девайс и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш android девайс буквально в два счета и так же просто вытащить их оттуда.Тип издания: macOS SoftwareРелиз состоялся: 25.07.2020Разработчик: Mobie Inc.Поддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1295A8923BFEC386DDCD6C31141E9D76736934A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398245   (736156) от 25.07.2020
-
-Unity Pro 2019.4.1f1 x64 [En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unity — межплатформенная среда разработки компьютерных игр. Unity позволяет создавать приложения, работающие под более чем 20 различными операционными системами, включающими персональные компьютеры, игровые консоли, мобильные устройства, интернет-приложения и другие. Выпуск Unity состоялся в 2005 году и с того времени идёт постоянное развитие.
-
-Основными преимуществами (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398413   (736155) от 25.07.2020
-
-Великая Индия. Секреты Тадж-Махала / Secrets Of The Taj Mahal (2009) DVB
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Символ Индии - жемчужина архитектуры, памятник великой страсти - Тадж-Махал. Его история рассказывает о бесконечной любви Шах-Джанана, "властелина мира", к прекрасной Мумтаз-Махал, "избранной дворца". Именно для нее он воздвиг совершеннейшее строение всех времен. Это признание в любви, заключенное в камень. Какая же тайна кроется в роскошных покоях (   Читать дальше...   )Производство: Германия, ZDF, National Geographic ChannelЖанр: Документальный, история, исследованиеРежиссер: Штефан КёстерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20175EA5F82CC0AFB3DC506B0C6B16FE20C0B63A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398294   (736154) от 25.07.2020
-
-Главная дорога (25.07.2020) WEBRip [H.264/1080p-LQ]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01:39 Слишком дорогие игрушки: к чему приводит езда без правил на квадроциклах?
-06:46 Бьет по глазам: усиленные лампы и настройка фар - что нужно сделать, чтобы и дорогу себе освещать, и встречным машинам не мешать?
-14:16 Почему рассыпается подвеска и откуда течет масло? Тест модного Range Rover Evoque.
-20:30 Взлеты и падения Максима Коновалова: секреты мягкого приземления (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:33:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398314   (736153) от 25.07.2020
-
-Коррозия металла - Богиня Морга (4-е Издание) (2019) [FLAC|Lossless|image + .cue] <Thrash, Punk, Oi>
+Stygian Dark - Gorelords Of War (2021) [FLAC|Lossless|image + .cue] <Old School Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738809.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Атлична,Атлична (2:21)
-02. Тотен Копф (3:55)
-03. Богиня Морга (5:19)
-04. Антихрист (4:17)(   Читать дальше...   )Жанр: Thrash, Punk, OiПродолжительность: 01:06:02
+01. Gorelords of War (03:53)
+02. Driven by Ravenous Hunger (02:36)
+03. Casket Malediction (03:02)
+04. Lick the Oculus (03:28)(   Читать дальше...   )Жанр: Old School Death MetalПродолжительность: 00:33:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03759B54108F75F7FBB8EB7A6743FB13BEF85A1C
+magnet:?xt=urn:btih:B76F80DD4FC67BB6AE2E38A109D4A9EC6B41C797
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,25 +649,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398402   (736152) от 25.07.2020
+###  Публикация: 1526202   (738808) от 23.01.2022
 
-Острова Королевы / The Isles of the Queen (2017) HDTVRip [H.264/720p-LQ] (серии 1-5 из 5)
+PDF to Pages Converter 6.2.1 fix [Multi/Ru]
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В соединённом королевстве насчитывается более 600 островов. Это древние места с дикой природой окружённые морем, большие и малые, на севере и на юге - всё это острова Королевы. Невысокие скалы Южной Англии, пологие холмы Юго-Востока, снежные горы, долины и ущелья Севера: ни одна другая европейская страна не имеет такого разнообразного ландшафта, как Великобритания. (   Читать дальше...   )Производство: Франция, Германия, ZDF, ARTEЖанр: Документальный, познавательный, путешествияРежиссер: Кристиан КёхлерПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 5x ~00:51:00
+Проблемы с редактированием PDF? Хотите редактировать содержимое PDF в Pages? С помощью PDF to Pages Converter для Mac вы можете быстро и легко преобразовать ваш PDF-файл в редактируемый файл страниц и сохранить исходное форматирование, содержимое за считанные секунды. Таким образом, вам не нужно тратить часы на перепечатывание или переформатирование файла вручную. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CAD006A6318C66BF1143BF10F166B25064095171
+magnet:?xt=urn:btih:0DCFD026DF387063143306CB447C340EE7CEEDB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526264   (738807) от 23.01.2022
+
+Клоун Коко и день физкультурника / KoKo's Field Daze (1928) TVRip [H.264]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738807.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Америке тоже было ГТО! Да-да, чесслово. Сами посмотрите как бодренько занимается физкультурой вся эта компания - Макс, Коко и Фитц.Производство: США, Inkwell StudiosЖанр: Рисованная анимация, короткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6630DAE1B69777F54D0595CFCF02EACA87B089
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526253   (738806) от 23.01.2022
+
+Mercury Gates - Carpathos Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carpathos Rising
+02. Chosen Sentinels
+03. Moonshiner
+04. Future Faces(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A510CFB03D85B1044F11FF32B08D66669F932850
 ```
 
 https://mybot314.ru/tekegram_catalog/

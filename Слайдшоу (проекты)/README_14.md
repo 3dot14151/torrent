@@ -1,3 +1,29 @@
+###  Публикация: 1370006   (899692) от 25.03.2020
+
+Проекты - VideoHive - Watercolor Ink Story - 20375614 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899692.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Watercolor Ink Story» - Простой в использовании проект After Effects для создания романтического слайд-шоу с эффектом акварельных чернил.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D8D8846759B278E67766FB22F989871D8228A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370000   (899628) от 25.03.2020
 
 Проекты - VideoHive - Wedding Slides - 24358167 [AEP]
@@ -650,33 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93998DC964799E59DC1811400B8C1B4B2ED053AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994004   (893376) от 06.03.2016
-
-Проекты - VideoBlocks - Event Promo [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7AA9CF10D2C838090718EAE8D88C59DCDF738D
 ```
 
 https://mybot314.ru/tekegram_catalog/

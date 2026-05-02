@@ -1,3 +1,61 @@
+###  Публикация: 1574812   (379500) от 08.09.2022
+
+Darkwvlf - All The World's A Stage (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Rapcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379500.jpg" />
+</div>
+
+
+###  Подробнее
+
+color=gray]01. WOLF ATTACK [00:01:42]
+02. WISE GUYS [00:02:42]
+03. HELLSCAPE (feat. Sinizter) [00:02:07]
+04. INFERNAL DESCENT [00:04:31](   Читать дальше...   )Жанр: Metalcore, Rapcore, ElectronicПродолжительность: 00:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B65FB4B36DDAFBEA34021CA6B8A0477051596E85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575109   (379497) от 08.09.2022
+
+Cian - Surefire (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Didn't Come This Far, Just To Come This Far [00:02:08]
+02. Invincible [00:04:05]
+03. 1248 [00:03:18]
+04. I Won't Let You Go [00:04:42](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:30:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14EB636A98C24511C4285C9C73808003F299C9BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575026   (379421) от 08.09.2022
 
 Before I Die - Mental Prison (2019) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Death Core Metal>
@@ -687,64 +745,6 @@ Girls (Christopher Owens) - 5 альбомов, 1 EP (2009 - 2015) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69E50625E5A2BC26F5333ABA434DF4175B93D5C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360913   (371365) от 21.10.2017
-
-The Horrors - 5 альбомов, 1 EP (2006 - 2017) [FLAC|Lossless|tracks + .cue]<Indie, Psychedelic, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371365.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Horrors (по русскому аналог «ужас», «кошмар») британская банда. Пугать надо так, чтобы было стильно, азартно и весело, решили они. И еще громко. Решили - и начали действовать. «Психотические звуки для уродов и извращенцев» - такой подзаголовок-подсказку, с легкой руки фанов, дали они своему дебютному альбому, который носит туманное и непритязательное название (   Читать дальше...   )Список альбомов:
-2007 - Strange House
-2009 - Primary Colours
-2011 - SkyingЖанр: Indie, Psychedelic, Post-PunkПродолжительность: 04:24:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4036F9A99A080EB19991C6D5ED2B723A8CF55B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069967   (371067) от 05.11.2016
-
-Billy Idol - Whiplash Smile (1986) [FLAC|Lossless|image + .cue] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worlds Forgotten Boy [05:44]
-02. To Be A Lover [03:52]
-03. Soul Standing By [04:37]
-04. Sweet Sixteen [04:17](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08774C7B6D87AC5A408768CF5F314AEB572E7275
 ```
 
 https://mybot314.ru/tekegram_catalog/

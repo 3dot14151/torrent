@@ -1,3 +1,177 @@
+###  Публикация: 1743008   (105478) от 14.08.2024
+
+Eddie & The Wolves - Tasty Sin (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devil's Wrong, but Not to Blame [00:03:40]
+02. Tasty Sin [00:03:09]
+03. Voodoo [00:02:25]
+04. Blood Runs Cold [00:03:47](   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:31:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A2EA1B934C8F3410EAB5F84FC7AF6034C1D4601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743005   (105422) от 15.08.2024
+
+Eater - The Album (1977) Deluxe Edition, 2024, Cleopatra Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Punk, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You [00:02:04]
+02. Public Toys [00:01:58]
+03. Room For One [00:01:42]
+04. Lock It Up [00:01:58](   Читать дальше...   )Жанр: Punk, New WaveПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2C4570AFDD2DE518E7375842E4881637DE610B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743518   (105408) от 16.08.2024
+
+Moby - always centered at night (3rd St. DJ Mix) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <electronic, ambient, chillout, techno>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. wild flame (dark1 remix) [00:06:24]
+02. should sleep (Prins Thomas Diskomix) [00:05:10]
+03. feelings come undone (piano remix) [00:06:08]
+04. where is your pride? (mar 29 remix) [00:06:00](   Читать дальше...   )Жанр: electronic, ambient, chillout, technoПродолжительность: 01:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA982A428FCCD8FC65F298672D36FEC5A5C52DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743277   (105402) от 16.08.2024
+
+Dwell in Doom - 2 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. War [00:04:19]
+02. Annihilation [00:05:13]
+03. Mortal Sin [00:04:50]
+04. Last Endeavor [00:06:48](   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 2 CD, 01:53:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38462890C29E4BDE6DFAE160E88A33489E4AD957
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743525   (105397) от 16.08.2024
+
+All India Radio - 2006 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Post Rock, Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chameleon [00:03:41]
+02. Eyes Ahead (2006 Version) [00:05:04]
+03. Fall (2006 Version) [00:04:31]
+04. Stretch Into the Stars (2006 Version) [00:05:38](   Читать дальше...   )Жанр: Ambient, Downtempo, Post Rock, Space RockПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C2DBBA99328C5DCC1225B11AB9F970214B701B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743449   (105389) от 16.08.2024
+
+Dark Tranquillity - Endtime Signals (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shivers and Voids (3:48)
+02. Unforgivable (3:44)
+03. Neuronal Fire (4:32)
+04. Not Nothing (4:53)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95D38DE048ED22AF13673FB77DC94B39EEB29DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743534   (105386) от 16.08.2024
 
 Foster The People - Paradise State of Mind (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
@@ -571,180 +745,6 @@ SaffeK - I/U/WE/US (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8D513A0F250350AAEAA390C52816495BAB11286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743938   (105293) от 19.08.2024
-
-Swiss & Die Andern - 10 Jahre Swiss Die Andern Best Of (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Punk Rock, Hip Hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Wir gegen die
-02 – Besteste Band
-03 – Vermisse Dich X
-04 – Grosse Freiheit(   Читать дальше...   )Жанр: Punk Rock, Hip HopПродолжительность: 01:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB57A605F9D3B7F66881FD12FA04628E0F818DB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744574   (105278) от 22.08.2024
-
-Baccara - Light My Fire (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105278.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Baby, Why Don't You Reach Out? / Light My Fire
-A2 Parlez-Vous Francais?
-B1 La Bamba
-B2 My Kisses Need A Cavalier(   Читать дальше...   )Жанр: DiscoПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E778A5339349C3EC972F34B2B44832166FBC47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744694   (105269) от 22.08.2024
-
-Simone Simons - Vermillion (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Modern Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeterna (6:02)
-02. In Love We Rust (4:46)
-03. Cradle To The Grave (3:59)
-04. Fight or Flight (5:25)(   Читать дальше...   )Жанр: Modern MetalПродолжительность: 00:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F2137F579B1298A10682B9CED46A18727F7938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744536   (105261) от 22.08.2024
-
-101 Strings Orchestra - I Left My Heart in San Francisco (1964) Remastered 2024 [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Left My Heart in San Francisco
-02. Limehouse Blues
-03. Top o’ the Mark
-04. Cable Cars(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE18575D84B44D43E4496922F303B037E62217B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744751   (105214) от 23.08.2024
-
-Dampf - No Angels Alive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial, Melodic Metal, Melodic Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - No Angels Alive [3:36]
-02 - Masquerade [3:03]
-03 - Ghost [4:08]
-04 - Might As Well Have Died [4:30](   Читать дальше...   )Жанр: Industrial, Melodic Metal, Melodic Heavy MetalПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A3BF2A0D29196BD4BE14CFDCFFF20259BDC9BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744823   (105211) от 23.08.2024
-
-Fleshgod Apocalypse - Opera (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ode To Art (De' Sepolcri) (2:18)
-02. I Can Never Die (4:30)
-03. Pendulum (3:59)
-04. Bloodclock (5:14)(   Читать дальше...   )Жанр: Symphonic Death MetalПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC9CE078E3C920E8EB0654F37F36388C0AB71387
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1451476   (1028379) от 02.03.2021
+
+Epitaph - Lоng Аgо Тоmоrrоw (2019) [FLAC|Lossless|tracks + .cue] <Progressive Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Standing Like A Rock
+02. Going Fishing
+03. Cross The Borderline
+04. Long Ago Tomorrow(   Читать дальше...   )Жанр: Progressive Hard RockПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCBA06AECFEC89B1249F931078643F79DC0E97B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451376   (1028372) от 02.03.2021
+
+Black Paisley - Rambler (2020) [FLAC|Lossless|image + .cue] <Hard Rock, AOR, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Damned (4:00)
+02. Without Us (4:15)
+03. Higher Love (3:38)
+04. Save The Best (3:53)(   Читать дальше...   )Жанр: Hard Rock, AOR, Blues-RockПродолжительность: 00:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E351FD5124BFC262C620827551CE576C415FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452127   (1027775) от 06.03.2021
+
+White Lion - Wait (1988) CDS, Single, Japan [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wait (Extended Remix) (06:28)
+02. Tell Me (04:31)
+03. Broken Heart (Live) (03:53)
+04. Wait (Live) (04:00)Жанр: Hard RockПродолжительность: 00:18:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147B49FAD49806405DD4966E55E1BC48DFDF99BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452505   (1027768) от 06.03.2021
+
+Guardian - Miracle Mile (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dr. Jones & The Kings Of Rhythm
+02. Shoeshine Johnny
+03. Long Way Home
+04. I Found Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638DB731CCB9172B5F431DB5DFCA8D713A6AE898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452802   (1027590) от 07.03.2021
 
 Laos - We Want It (1990) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -629,123 +745,6 @@ Issa - Crossfire (2015) Japan Edition [FLAC|Lossless|image + .cue] <Melodic Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:174C073DF50FC855F1ECC7C9BDDFCA8E5A09BDB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455490   (1025678) от 19.03.2021
-
-Butterfly - Doorways of Time (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Chase (4:43)
-02. Climbing a Mountain (3:52)
-03. Doorways of Time (6:19)
-04. The Night is in its Way (2:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B8027B0C72BA8254B4D1A700013C3A0B92E898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455258   (1025482) от 20.03.2021
-
-Krokus - Headhunter / Alive And Screamin' (1999) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025482.jpg" />
-</div>
-
-
-###  Подробнее
-
-Headhunter (Apr. 1983 Arista)
-
-01. Headhunter
-02. Eat The Rich(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56BC5C474A83CD28752B3B4E7060293304DA6C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456103   (1025294) от 21.03.2021
-
-Warrant - Cherry Pie (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherry Pie
-02. Uncle Tom's Cabin
-03. I Saw Red
-04. Bed Of Roses(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB797025F3956E38F0519E1C46C59C02883258B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456733   (1024915) от 23.03.2021
-
-Def Leppard - The Two Arm Years (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wasted (Live At The New Theatre Oxford, UK / 1979) 04:53
-02. Rock Brigade (Live At The New Theatre Oxford, UK / 1979) 02:58
-03. Let It Go 04:43
-04. Mirror Mirror (Look Into My Eyes) 04:07(   Читать дальше...   )Жанр: Hard Rock
-Страна: UKПродолжительность: 00:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFEDA23DBAE45EA808E237D56F9738AB9FFAADE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

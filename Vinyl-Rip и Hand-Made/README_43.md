@@ -1,3 +1,177 @@
+###  Публикация: 1624613   (242217) от 07.04.2023
+
+Dire Straits - Love Over Gold (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242217.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1		Telegraph Road	14:20
+A2		Private Investigations 7:00
+
+B1		Industrial Disease	5:50(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5689AEFC2971FB9349215EB5769616E33F1CF2BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628253   (242193) от 22.04.2023
+
+VA - Мамина Пластинка (1991) Compilation [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242193.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Людмила Зыкина - Милая Мама
+А2 Дмитро Гнатюк - Ридна Мати Моя
+А3 Евгений Мартынов - Мамины Глаза
+А4 Валентина Толкунова - Поговори Со Мною Мама(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AD04C121AD55CCD779A5F7B3426D392DF983E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569375   (242025) от 12.08.2022
+
+System of a Down - Studio Albums (6 releases) (1998 - 2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Nu Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242025.jpg" />
+</div>
+
+
+###  Подробнее
+
+System of a Down (SOAD) — армяно-американская альтернатив-метал-группа, образованная в 1992 году в Лос-Анджелесе Сержем Танкяном и Дароном Малакяном под названием Soil, а в 1995 принявшая нынешнее название.1998 - System of a Down
+2001 - Toxicity
+2002 - Steal This Album!
+2005 - MezmerizeЖанр: Nu Metal, Heavy MetalПродолжительность: 03:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B52FC75A5D695BEDD3F19D3BACF06980CD2F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628389   (241973) от 23.04.2023
+
+Pet Shop Boys - Fundamental (2006) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psychological
+02. The Sodom And Gomorrah Show
+03. I Made My Excuses And Left
+04. Minimal(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A5187987BAECCFCCFD2433ACC6B1CA0F83A8CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624515   (241857) от 07.04.2023
+
+Алексей Глызин - Зимний сад (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона A
+
+A1 Зимний сад
+A2 Африка(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22C4D5475C42CBA2075D845E1B8F7DB34A49285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628810   (241807) от 24.04.2023
+
+Kaja - Crazy Peoples Right to Speak (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241807.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Do I
+A2 Shouldn't Do That
+A3 Your Appetite
+A4 Rivers(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDFDCBE2C468F6C9F04B51657C0E345DA18C741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624583   (241806) от 07.04.2023
 
 Chris Rea - On The Beach (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
@@ -571,180 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD16EB57D724FF98A3C033448138801106671ACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590239   (239802) от 17.04.2023
-
-Thunder - Studio Albums (15 releases) (1990 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunder — английская рок-группа из Лондона. Основана в 1989 году бывшими участниками Terraplane Дэнни Боузом (вокал), Люком Морли (гитара, бэк-вокал) и Гэри Джеймсом (ударные), а также вторым гитаристом и клавишником Беном Мэтьюзом и басистом Марком Лакхерстом.1990 - Laughing On Judgement Day
-1992 - Laughing On Judgement Day
-1994 - Behind Closed Doors
-1996 - The Thrill Of It All(   Читать дальше...   )Жанр: Hard RockПродолжительность: 19:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD5E3292C062BACC5A1B5441B74A76E40B3DF74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059810   (239608) от 24.04.2022
-
-Пикник - Иероглиф (1987) Repress 1988 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Goth Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Остров
-02. Иероглиф
-03. Праздник
-04. Ты вся Из огня(   Читать дальше...   )Жанр: Goth RockПродолжительность: 00:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF8CAFA6CD121221CCDD1C4DF82D6354C657EF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627866   (239544) от 20.04.2023
-
-Yello - One Second (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239544.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 La Habanera 5:10
-A2 Moon On Ice 4:12
-A3 Call It Love 5:05
-A4 Le Secret Farida 3:17(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A20B056CFF437D1DA437C695FAF5CAB9CAD60C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063727   (239353) от 25.04.2022
-
-Tom Jones - Tom Jones Sings She's A Lady (1971) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239353.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 She's A Lady
-A2 Do What You Gotta Do
-A3 In Dreams
-A4 Nothing Rhymed(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AF7D07A4FF897612C46534F2AF3883BE931A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638659   (238977) от 09.06.2023
-
-Beseech - Studio Albums (6 releases) (1998-2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beseech — шведская готик-метал-группа из города Бурос, основанная в 1992 году, прекратившая существование в 2006 году и воссоединившаяся в конце 2013-го.1998 - ...From A Bleeding Heart
-2000 - Black Emotions
-2002 - Souls Highway
-2004 - DramaЖанр: Gothic MetalПродолжительность: 04:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:211078102857C9AF767475658DA88269C087CCFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572611   (238954) от 27.08.2022
-
-Europe - Дискография (14 albums) (1983-2017) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Heavy Metal, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Europe — шведская рок-группа, основанная вокалистом Джоуи Темпестом и гитаристом Джоном Норумом. В первый период существования группа относилась к жанру глэм-метал, но после возрождения перешла на современные хард-рок и хэви-метал.1983 - Europe
-1984 - Wings of Tomorrow
-1986 - The Final Countdown
-1988 - Out of This World(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Glam MetalПродолжительность: 12:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1E4070308C69FA7EA93A66BD1ACB0DBB28783E
 ```
 
 https://mybot314.ru/tekegram_catalog/

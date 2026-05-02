@@ -1,3 +1,61 @@
+###  Публикация: 1085413   (156967) от 22.12.2016
+
+Hank Crawford & Jimmy McGriff - Crunch Time (1998), Fantasy[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bow Legs [06:35]
+ 02.It's All Good [08:14]
+ 03.Don't Deceive Me (Please Don't Go) [05:47]
+ 04.Sandu [07:14](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:763D0F6061F1A1B6B315D92B6403036133164338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085410   (156951) от 22.12.2016
+
+Casiopea - Dramatic (1993) Village[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Glory [04:06]
+ 02.Fly to the Sun [04:30]
+ 03.The Tornado [04:02]
+ 04.Shadow of Midnight [04:33](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E8A93C15412916CED0DC2C829BB8C366699F143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085112   (156404) от 22.12.2016
 
 Dexter Gordon - Ca'Purange (1972) 1999, Original Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -687,64 +745,6 @@ VA - A Merry Jazzmas (1992) [FLAC|Lossless|image + .cue] <Jazz, Christmas>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:179F501C85E78BFBEF3D533B9A9C627650F5CDBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433799   (154706) от 22.12.2020
-
-Gare du Nord - Lifesexy: Live in Holland (2012) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Lounge, Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somethin' in My Mouth (4:07)
-02. I Want Love (6:32)
-03. Marvin & Miles (4:14)
-04. You're My Medicine (4:17)(   Читать дальше...   )Жанр: Jazz-Pop, Lounge, Acid JazzПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6ED09956A938371B9FF475382449EC03F60512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676836   (154705) от 15.11.2023
-
-Willis Jackson - Nuther'n Like Thuther'n (1963, 1964) 2002, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pool Shark [3:59]
-02. Somewhere Along the Way [4:19]
-03. Stuffin' [7:14]
-04. Nuther'n Like Thuther'n [7:37](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F82DD44BE3BECAFE65C04958FFA598C4D24B5D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

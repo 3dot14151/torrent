@@ -1,3 +1,61 @@
+###  Публикация: 1788909   (22791) от 01.04.2025
+
+Disturbed - Compilation (2000-2025) [MP3|320 Kbps] <Alternative metal, Heavy metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Animal (Asylum 2010)
+02. Indestructible (Indestructible 2008)
+03. Sacred Lie (Ten Thousand Fists 2005)
+04. Divisive (Divisive 2022)(   Читать дальше...   )Жанр: Alternative metal, Heavy metalПродолжительность: 05:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C930E50D4B9455A06D36CF6B752CE5122192C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761963   (21668) от 12.04.2025
+
+Linkin Park - Compilation (1999-2024)[MP3|320 Kbps] <Alternative, Nu metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Session (Meteora 2003)
+02. A Light That Never Comes (Recharged 2013)
+03. A6 (Lost Demos 2023)
+04. Across The Line (Minutes To Midnight 2007)(   Читать дальше...   )Жанр: Alternative, Nu metalПродолжительность: 04:09:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36174A32660F4DEAFF1E30208691C8B8C5492BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777086   (21636) от 12.04.2025
 
 Хроноп - Compilation (1990-2025) [MP3|320 Kbps] <Indie rock, New wave>
@@ -687,64 +745,6 @@ Disc One:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:880FB3034D2F679311E026D0402AE29B00F45E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805134   (12581) от 04.07.2025
-
-VA - Hard Rock Arena (2025) [MP3|320 Kbps] <Hard Rock, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12581.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A.D.A.M. Music Project - Raiding The Tomb (02:55)
- 002. Tethra - Like Water (06:19)
- 003. Landfall - When The Curtain Falls (05:45)
- 004. Whip - Reason To Fight (04:22)(   Читать дальше...   )Жанр: Hard Rock, HardcoreПродолжительность: 13:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF39E9233EDE90B67FEF4268285DEEF3B613E53D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805687   (12160) от 08.07.2025
-
-Ian Gillan - Voice Of Rock - Compilation (1966-2020) [MP3|320 Kbps] <Hard rock, Jazz fusion, Progressive rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12160.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gut Reaction (Naked Thunder | 1990)
-002. Gassed Up (Toolbox | 1991)
-003. When A Blind Man Cries (& Jeff Healey & Tommy Z & Jon Lord) (Gillan's Inn | 2006)
-004. Holy Water (& Tony Iommi) (WhoCares | 2012)(   Читать дальше...   )Жанр: Hard rock, Jazz fusion, Progressive rockПродолжительность: 07:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E20B8624791AA85DADA6B3097B12CF6621B824
 ```
 
 https://mybot314.ru/tekegram_catalog/

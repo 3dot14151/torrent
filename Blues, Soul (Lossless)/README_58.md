@@ -1,3 +1,131 @@
+###  Публикация: 1555065   (572513) от 02.06.2022
+
+Andy Lindquist - Your Mother's Eye's (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Mother's Eyes
+02. Goodbye Mother
+03. The Lord Give Me That
+04. Brick(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190706A956CB536CA9EFE32BB0A9DC7D2D990562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555144   (571975) от 02.06.2022
+
+Mungo Jerry - Somelight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight City (3:54)
+02. Lord What Have We Done (4:03)
+03. Whole Lotta Rhythm (5:24)
+04. The Lockdown Thank You Song (3:02)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E95DB4985FF9FB02E5F5BF1939778AC7B9CE5EBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528392   (571483) от 29.07.2012
+
+The Blues Overdrive - The Blues Overdrive (2012) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death On the Highway [04:44]
+ 02. Out in the Country [03:42]
+ 03. I Was Wrong [02:33]
+ 04. Ball & Chain [05:07]
+ 05. Mr. 16 Tons (Blues for Thorup) [04:07]
+ 06. Too Blind to See [03:39]
+ 07. I Need Your Lovin' [02:36]
+ 08. Got Myself a Woman [03:09]
+ 09. Big Fat Woman [02:45]
+ 10. Done Tryin' [04:33](   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 528730   (571480) от 29.07.2012
+
+Acme Blues Company - I Think I Made It (2006) [FLAC|Lossless]<Industrial Strength Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is Love Worth the Cost
+02. Except My Own
+03. Sugar Mama
+04. Easy Money
+05. I Think I Made It
+06. Hey Baby
+07. You Ain't the First (Live)
+08. A Little Somethin' Somethin'
+09. No Shortage of the Blues
+10. Liquor Store(   Читать дальше...   )Жанр: Industrial Strength BluesПродолжительность: 00:50:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 527719   (568987) от 30.07.2012
 
 Boston Horns - East Coast Funk (2003) [FLAC|Lossless]<Funk, Soul, Nu-Jazz>
@@ -708,140 +836,6 @@ Marva Wright & The First Revolution Gospel Singers - Glory Glory Hallelujah (199
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F912D837C1FC9E86DA96C3533D5FCB2D6AFF1811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304560   (563974) от 26.05.2019
-
-Golden Gospel Singers - Glory, Glory, Hallelujah (Unknown) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Precious Lord (1:33)
-02. Oh When The Saints (1:44)
-03. Old Time Religion (1:24)
-04. Amen (1:03)(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57469BA5EB0CD25346A5A2D236A366FD8DEB798
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530178   (563303) от 02.08.2012
-
-Awek - It's Rollin' (2010) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Rock
-02. I Cry All Day Long
-03. Play With Me
-04. You Think
-05. Hush Your Mouth
-06. Magic Night
-07. Walter's Mood
-08. Telephone Blues
-09. My Sleepy Girl
-10. Be A Good Man(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530195   (563209) от 02.08.2012
-
-Barrence Whitfield - Raw,Raw,Rough! (2009) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Geronimo Stomp
-02. I Want Love and Affection Not the House of Correction
-03. Wear Your Red Dress
-04. I Can't Get No Ride
-05. One More Time
-06. Strychnine
-07. Kissing Tree
-08. Early Times
-09. Goin' to Jump and Shout
-10. Long Green(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530202   (563072) от 02.08.2012
-
-Barbara Blue - Sell My Jewelry (2001) [APE|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble With A Capital 'T'
-02. Back By Popular Demand
-03. Tool Box Blues
-04. Don't Lead Me On
-05. Road Blues
-06. Can't Get Your Lovin' Off My Mind
-07. Sell My Jewelry
-08. From The Delta To The Golden Gate
-09. Cheatin' Blues
-10. Drunken Angel(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

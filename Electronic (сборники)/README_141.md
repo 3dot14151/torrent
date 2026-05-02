@@ -1,3 +1,67 @@
+###  Публикация: 1408348   (455999) от 12.09.2020
+
+VA - Soul Romantic R&B (2020) [MP3|320 Kbps] <R&B, Soul, Hip Lyric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455999.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tonina - Adamly
+002. Aya Nakamura - Sucette
+003. Teedra Moses - Caught Up
+004. Judy Temple - Stocking Cap(   Читать дальше...   )Жанр: R&B, Soul, Hip LyricПродолжительность: 09:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08695C015DD68778EF3AB414EDC569045C2B926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550278   (455856) от 23.09.2012
+
+VA - Dubstep Top (June) (2012) [MP3|320 кб/с]<Dubstep, DnB>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2Pac feat. Sinima - God Bless The Dead (DUBSTEPBASTER)
+02. Aaa - reallity
+03. Adele - Set fire to the rain (Lay remix)
+04. Adventure Club - Need Your Heart Ft Kai
+05. Aeph - When You
+06. Alphabet Pony - Space (VIP Mix)
+07. AmyKuney - Sway(ButchClancyRemix)Final
+08. Anneka - Shut Her Down (Mario M Remix)
+09. BARRON - Bambatta (Vip mix)
+10. Blackmill - Home (Original Mix)(   Читать дальше...   )Жанр: Dubstep, DnBПродолжительность: 05:06:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B330BF46341DD5D061AE01A9FE3F8B1F25D67C6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060357   (455468) от 07.10.2016
 
 VA - Happiness Emotions: Uplifting Trance (2016) [MP3|320 Kbps] <Progressive Uplifting Trance>
@@ -696,64 +760,6 @@ VA - Bass Generation (2017) [MP3|320 Kbps] <Drum & Bass, Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3FC56F50AA30669C8810EC05654372989414A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943066   (451882) от 02.10.2015
-
-VA - Absolutely Techhouse (2015) [MP3|320 кб/с]<Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claas Herrmann – Mineral 07:02
-02. Matthias Leisegang – S.A.B.S.E. (Kollektiv Klanggut Remix) 06:42
-03. Livio Sandro – Churches 06:31
-04. Tech Dealer – Plastic Vibes 07:10(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 03:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998240F02D5141074BDB0635EAEE70007126D3E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942980   (451767) от 02.10.2015
-
-VA - Trance Traveling 69 (2015) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ramon Vincent & Nathan Rux - Morning Sun (Original Mix) (05:31)
-02. Above & Beyond Feat. Zoe Johnston - Fly To New York (Above & Beyond vs. Jason Ross Club Mix) (04:16)
-03. Philippe El Sisi & LIONART - Comfort You (Original Mix) (04:01)
-04. Nic Toms - Arcade (Original Mix) (05:01)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB1D3E601C0142EFFD5CB4659FD861C29D19FEDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

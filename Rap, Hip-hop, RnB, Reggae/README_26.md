@@ -1,90 +1,3 @@
-###  Публикация: 1617784   (250141) от 09.03.2023
-
-Yopt - 404 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Предисловие [00:01:09]
-02. Страна 404 [00:02:40]
-03. К бою! [00:02:28]
-04. Дым [00:02:33](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE30972A43D30EA06E7DB3E35B7B8C40C2BF461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620220   (249461) от 19.03.2023
-
-VA - Chillhop Essentials Spring (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Train, Paal Singh – Over You (2:05)
-02. Nokiaa, Philanthrope – Friction (1:54)
-03. Ben Bada Boom, Plusma – Cabriolet (3:33)
-04. Yasper, sonofmark – Yellowblue (2:54)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C2F11E452EBA555C77E9176649F84BF7C772BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511191   (246001) от 20.11.2021
-
-Сидоджи Дубоshit - BIG FOOT (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. GRIND [01:53]
-02. INDEPENDENT (KASKADER) [02:48]
-03. DEATHFLIP [03:01]
-04. BIGFOOT [03:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:25:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA43DDED9694F8C424613BEE505356BAFD185D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511414   (245817) от 21.11.2021
 
 bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -745,6 +658,93 @@ Sagath - Necrotica 2 (Remix Pack) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE1A7F47827FA60EB0A72BB58044B6DCE813208D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459744   (241311) от 04.04.2021
+
+Jahmal TGK - СНЕГОПАД Underground (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свинцовый зонт [02:34]
+02. ЧБ [02:33]
+03. В городе без метро [03:24]
+04. Надбровная дуга [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268C9047D398FE4EE27C87C9A7C542D339BD2BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626765   (240100) от 17.04.2023
+
+NF - Hope (2023) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - HOPE [00:04:24]
+02 - MOTTO [00:03:37]
+03 - CAREFUL [00:03:29]
+04 - MAMA [00:03:28](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC076B0014F667FC7BBF32370D97F682748119B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626930   (240058) от 16.04.2023
+
+ХЛЕБ - Последний (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240058.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дэб
+2. Убили Кирилла
+3. Марина
+4. Дети(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C162ED1D69E3CEAF5DDB784764E7F09175DC3295
 ```
 
 https://mybot314.ru/tekegram_catalog/

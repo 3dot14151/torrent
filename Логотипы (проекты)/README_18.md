@@ -1,3 +1,82 @@
+###  Публикация: 1021011   (741640) от 28.05.2016
+
+Проекты - VideoHive - Strong & Clean Corporate 3D Embossed Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации логотипа или слогона.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E4DC1AE59E76DD0C465B4C0EC1E83F997964DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020992   (741562) от 28.05.2016
+
+Проекты - VideoHive - Futuristic Hi Tech Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741562.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футуристический и динамический проект для демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B010E8F5D370791CCAE2026B6098187D9AEB5DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283056   (740757) от 15.02.2019
+
+Проекты - VideoHive - Fly With Us - Airplane Logo - 4319334 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fly With Us - это очень реалистичный самолет с вашим логотипом. Добавьте свои логотипы и измените цвета из включенных пресетов.
+Произведите впечатление на ваших клиентов и выделитесь из толпы.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20B5DF3FB00251793578D429824F6F781F21CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126705   (740563) от 20.04.2017
 
 Проекты - Motion Array - Clouds logo - 29964 [AEP]
@@ -591,84 +670,6 @@ An Architect Firm - этот проект создан для профессио
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D230D909ABBAA4D1DD8F17923E3810FF128E1D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022760   (727239) от 03.06.2016
-
-Проекты - VideoHive - Simple Folding Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Simple Folding Logo - простой чистый показ вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0381A3EBC64DFA6433B577543E7BEA0AEDD06C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022746   (727033) от 03.06.2016
-
-Проекты - VideoHive - Crystal Gold Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Crystal Gold Logo - логотип в позолоте для ваших видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD81F513A9CE17A8DA581E331FDB992CBB6BED31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 789768   (726134) от 25.05.2014
-
-VideoHive – Metal Sting Intro - 5012113 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4971F814639154BE0F5600088FC8D76A2FE40FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

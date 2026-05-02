@@ -1,3 +1,148 @@
+###  Публикация: 1027018   (699842) от 17.06.2016
+
+VA - Архив Популярной Музыки 1-12 (1988-1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock-n-Roll, Hard Rock, Pop Rock, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Она Мило Улыбнулась · She Smiled Sweetly
+02. Соединение · Connection
+03. Вчерашние Газеты · Yesterday's Papers
+04. Серьезная, Спокойная И Собранная · Cool, Calm And Collected(   Читать дальше...   )Жанр: Rock-n-Roll, Hard Rock, Pop Rock, SoulПродолжительность: 08:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1B9A12060A1FA9D892B95D145EAE4122F73D695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402817   (697922) от 16.08.2020
+
+Wetton / Manzanera (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697922.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 It's Just Love
+A2 Keep On Loving Yourself
+A3 You Don't Have To Leave My Life
+A4 Suzanne(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C63C9672ECC9D223D4658C1C8C036907B7EA02C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534184   (694255) от 02.03.2022
+
+Lou Gramm - Ready Or Not (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694255.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ready Or Not
+A2 Heartache
+A3 Midnight Blue
+A4 Time(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8309D8D21EC3FADFB102F752FB0DD3C6C2DDD7B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151830   (694127) от 02.03.2022
+
+Shy - Excess All Areas (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694127.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Emergency
+A2 Can't Fight The Nights
+A3 Young Heart
+A4 Just Love Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEBED8B5EB0AAA6D219FDB7F9D961E29262A747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150975   (694000) от 02.03.2022
+
+George Harrison - Somewhere In England (1981) [FLAC 2.0|192/24|image+.cue|Vinyl-Ri] <Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694000.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Blood From A Clone
+A2 Unconsciousness Rules
+A3 Life Itself
+A4 All Those Years Ago(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B1F8F64BFB391086913FC53E92A74495250133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534456   (693856) от 02.03.2022
 
 VA - The Absolute Sound (2014) [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classical, Folk>
@@ -614,154 +759,6 @@ A4. Фраер(   Читать дальше...   )Жанр: ШансонПрод
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C354E53981B27B79F50C89DC76B467A7461E3FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536181   (676576) от 11.03.2022
-
-Paul McCartney - Pipes Of Peace (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676576.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Pipes Of Peace
-A2 Say Say Say
-A3 The Other Me
-A4 Keep Under Cover(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58EC3C3A96884ACFF9C82E25F0F8B9AFD2A1FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029852   (675708) от 29.06.2016
-
-Кино - Атаман (2013)  [PPCM 5.1|96/24|DVD-Audio] [upmix, upsampling] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>DVD-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_675708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Увертюра - Иной креатив 2009-(03:08)
-02. Атаман 2012-(04:13)
-03. Группа крови 2009-(04:10)
-04. Звезда по имени Солнце (фанатский микс)-(03:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C908236D3168D01E78E58983A4A44C078CE2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 677840   (673980) от 09.07.2013
-
-Slade - Slade In Flame (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Glam Rock/Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Glam Rock/Rock & RollПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B910A87E95E5C39AEED52011781DDAE2022C47E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030478   (673808) от 30.06.2016
-
-Red Hot Chili Peppers - The Getaway (2016) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Alternative Rock, Funk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673808.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. The Getaway (4:08)
-A2. Dark Necessities (5:00)
-A3. We Turn Red (3:19)
-A4. The Longest Wave (3:32)(   Читать дальше...   )Жанр: Alternative Rock, Funk RockПродолжительность: 00:53:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE8D9C2A58EEFBB07C9210F6D6F5930FD78F698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 509523   (673772) от 12.06.2012
-
-Dire Straits - Communiqué (1978) SHM-SACD [DSD 2.0 1bit/2822,4kHz |SACD-R]<rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673772.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Once Upon A Time In The West 05:25
-2. News 04:12
-3. Where Do You Think You’re Going? 03:49
-4. Communiqué 05:48
-5. Lady Writer 03:45
-6. Angel Of Mercy 04:35
-7. Portobello Belle 04:29
-8. Single-Handed Sailor 04:42
-9. Follow Me Home 05:53
-(   Читать дальше...   )Жанр: rockПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAF89C00BA58A1CFFB3014FFF35760885F8EF3C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

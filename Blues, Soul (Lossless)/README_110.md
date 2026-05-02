@@ -1,3 +1,119 @@
+###  Публикация: 1694335   (121087) от 24.01.2024
+
+Kenny Hughes - Born & Raised (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Over Me (5:06)
+02. She Knows (3:34)
+03. 19:20 (3:33)
+04. Destiny (3:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4738ACDA4DA67CFA5EA82A6061416B32A5707E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694331   (120977) от 25.01.2024
+
+Eva Carboni - In the Name of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. South Wind Blows (3:33)
+02. Stony Ground (3:10)
+03. In the Name of the Blues (3:47)
+04. That Devil Man (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7936D98FB10E5BF7D9DB8386A694D0D89B265639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694431   (120962) от 25.01.2024
+
+Madcat's Roughriders - Madcat's Roughriders (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roughrider's Boogie (3:08)
+02. Moonshine (3:35)
+03. Dingelingdong (3:57)
+04. My Time Has Come (6:05)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:47:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7246400520CB4BFB6CB578E6ECDC4D4ACEC6FE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694341   (120959) от 25.01.2024
+
+The liberators - A Ride Out of Town (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Ride Out of Town (2:48)
+02. Can't Run, Can't Stay (3:39)
+03. Come On (3:53)
+04. 90 Minutes (Ain't That a Shame) (5:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0395D8A469951C382610E89B8CEDF1F13879AA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694337   (120958) от 25.01.2024
 
 Lone Star Mojo - A Shot of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Emanuel Casablanca - Strung Out On Thrills (2024) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7AB4CDCC1F25234CBE1F9789D09767E01D073A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697330   (118911) от 06.02.2024
-
-Mark Dillon - T.A. Vern's (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. T.A. Vern's (4:30)
-02. It's a Sin (4:02)
-03. Psychedelic Super Freak (4:53)
-04. El Rey (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015132B7A420684D7B9A44D5C5B3D04C182B6D44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697320   (118908) от 06.02.2024
-
-3rd Stone - Let Me Play My Song (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonewolf (4:48)
-02. End of the Road (4:40)
-03. Rebel Rider (4:47)
-04. Let Me Play My Song (5:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1980772FD00045CB510CB32D209E05B5071BF4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697329   (118899) от 06.02.2024
-
-Johnny Rawls - Walking Heart Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking Heart Attack (3:25)
-02. Trying To Live My Life Without You (3:20)
-03. Free (3:39)
-04. Tell Me The Truth (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA887B9AC6C720FBAD3D111F28BC8C9D8C46C64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697331   (118897) от 06.02.2024
-
-Mississippi Shakedown - Mississippi Shakedown QLD (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can We Get Married REAL Soon (3:42)
-02. Something Comes Into My Mind (3:53)
-03. A Hard Day's Night (4:10)
-04. (Living my Life) One Pay at a Time (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3569979F335D27450F27AD461527F8DBC20E03E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

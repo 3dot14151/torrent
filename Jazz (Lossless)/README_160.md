@@ -1,3 +1,61 @@
+###  Публикация: 928430   (522550) от 16.08.2015
+
+Peter Erskine - Peter Erskine (1982) /1988, Contemporary Records/ [FLAC|image+.cue]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leroy Street [07:50]
+02. In Statu Nascendi [01:31]
+03. E.S.P. [02:57]
+04. Change of Mind [07:28](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C79ED1BB893766831F10DDE4B311DD030818CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928504   (522548) от 16.08.2015
+
+Fortadelis - The New Batch (2015) [FLAC|Lossless|WEB-DL]<Nu Jazz, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bossa (03:54)
+ 02. Chillin In The Club (03:44)
+ 03. Urban Vibe (05:18)
+ 04. Unfolding Into Vastness (05:11)(   Читать дальше...   )Жанр: Nu Jazz, Jazz-FunkПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89B686A5D40FA5266513C12CF782A28DA5014ABB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928467   (522536) от 16.08.2015
 
 Iain Mackenzie - Blow Your Horn (2015) [FLAC|Lossless|WEB-DL]<Nu Jazz, Electro Swing, Nu Bossa>
@@ -689,64 +747,6 @@ Marcio Faraco - Cajueiro (2014) [FLAC|tracks]<Vocal Jazz, World Fusion, Bossa No
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E186E7DC8A8542ABE93C8DF90AF4EB7186BA2A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314417   (519449) от 14.07.2019
-
-Miroslav Vitous - Majesty Music (2015) 1976, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. X Rated [3:27]
-02. See You, November [3:32]
-03. Majesty Music [4:35]
-04. New Orleans [3:23](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74ADB022712FEB80EA3E1CBD61F02ACA098CC308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314435   (519279) от 14.07.2019
-
-Shakatak - In The Blue Zone (2019) Japan [FLAC|Lossless|image + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To Be Loved
-02. Making My Dreams Come True
-03. Back To The Heart Of It
-04. Ready To Take A Chance(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E6A4E68652DF7199BD1C4EDE37EF9D3286328C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

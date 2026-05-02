@@ -1,3 +1,29 @@
+###  Публикация: 73873   (276069) от 26.11.2018
+
+Федор Иванович Шаляпин-Полное собрание граммофонных записей 1907-1936 гг.[2002][mp3|192]<Классическая музыка>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276069.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1Жанр: Классическая музыкаПродолжительность: 12ч:24мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F11636096599C932E19896EDD27A69DD805AAA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337117   (276028) от 09.11.2019
 
 Andrea Bocelli - Si Forever (2019) The Diamond Edition [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover>
@@ -750,41 +776,6 @@ for solo violin, strings and B.C.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1678F1B788A2C9EEB0C67DE1DC986589CDDF7C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497599   (253742) от 17.05.2012
-
-Johann Sebastian Bach - Violin Concertos Nos.1&2 Double Concerto (BWV 1041-43, 1060, 1056): VA, Chamber Orchestra of Europe, violin Salvatore Accardo (1717-1726)/1985, Philips Classics Producti ...
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto for Violin no 1 in A minor, BWV 1041
-1.	1. (without indication) 4:00
-2.	2. Andante 6:24
-3.	3. Allegro assai 3:55
-Concerto for Violin no 2 in E major, BWV 1042 
-4.	1. Allegro	8:10
-5.	2. Adagio	7:15
-6.	3. Allegro assai	2:42
-Concerto for 2 Violins in D minor, BWV 1043
-7.	1. Vivace	3:55(   Читать дальше...   )Жанр: ChamberПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D37F50402228A509D3829093203D05FF9C70702C
 ```
 
 https://mybot314.ru/tekegram_catalog/

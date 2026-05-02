@@ -1,3 +1,55 @@
+###  Публикация: 1364611   (934647) от 04.03.2020
+
+AusLogics Disk Defrag Ultimate 4.11.0.6 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag Ultimate - это профессиональная версия компактного и быстрого дефрагментатора, работающего как с FAT 16/32, так и с NTFS файловыми системами. Программа использует ряд алгоритмов, которые позволяют оптимизировать и упорядочить файлы Вашего жесткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDDC178E038C9C0CF29B3C8225998550239FFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364715   (934646) от 04.03.2020
+
+AusLogics Disk Defrag Pro 9.4.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Auslogics Disk Defrag (Repack & Portable) - позволит оптимизировать и упорядочить файлы вашего жесткого диска, дефрагментировать файловую структуру и ускорить работу приложений и Windows. С помощью Disk Defrag диск вашего компьютера станет работать безукоризненно быстро и стабильно. В программе использован ряд алгоритмов, которые  позволяют провести дефрагментацию (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B42769527615E88201E571E6D2B919850E85757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364711   (934645) от 04.03.2020
 
 Auslogics BoostSpeed 11.4.0.2 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -638,62 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0716FEFDF101A925F9AE644EECB79B642098D443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985372   (934130) от 12.02.2016
-
-Bert H - Lazy Bastard EP (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lazy Bastard (Original Mix)
-02. Emerald (Original Mix)Жанр: Drum & BassПродолжительность: 00:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2859D08AF022922F60F35C383FA8089FBF692206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985368   (934129) от 12.02.2016
-
-Greekboy & A.K.A - Mystical Melodies EP (2016) [MP3|320 кб/с] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Mystical Melodies (Original Mix)
-02 - Sweet Emotions (Original Mix)
-03 - Lonely Souls (Original Mix)
-04 - Encounter (Original Mix)Жанр: Drum & BassПродолжительность: 00:25:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D9085A74E0D3B8AD5979B64E06B3B0B7B74187
 ```
 
 https://mybot314.ru/tekegram_catalog/

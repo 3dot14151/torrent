@@ -1,3 +1,32 @@
+###  Публикация: 1516417   (166048) от 11.12.2021
+
+Pink Floyd - Live In Montreux 18 & 19 Sept 1971 (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Echoes (Live In Montreux 18 & 19 Sept 1971)
+02. Careful With That Axe, Eugene (Live In Montreux 18 & 19 Sept 1971)
+03. Set The Controls For The Heart Of The Sun (Live In Montreux 18 & 19 Sept 1971)
+04. Cymbaline (Live In Montreux 18 & 19 Sept 1971)(   Читать дальше...   )Жанр: RockПродолжительность: 01:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C61CC0108F46FD0B0A93B87AC202B94E777B6C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597536   (166035) от 15.12.2022
 
 Kerygmatic Project - Dreams World (2022) 2xCD [MP3|320 Kbps] <Progressive Rock>
@@ -716,35 +745,6 @@ Mater a Clivis Imperat - Atrox Locus (2022) [MP3|320 Kbps] <Progressive Rock, Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B401FFC23AFB3CAB934963D6FF9A3C9924CA299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600480   (157808) от 27.12.2022
-
-South of Reality - 4 Albums (2015-2022) [MP3|320 Kbps] <Southern Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2015 - South of Reality
-2022 - Lone Star State Of Mind
-2022 - Southland(   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 4 CD, 02:10:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7210CB16B66AD6702F08488C0AC370016EEA79AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

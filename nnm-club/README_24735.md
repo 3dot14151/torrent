@@ -1,25 +1,22 @@
-###  Публикация: 1772637   (71768) от 11.01.2025
+###  Публикация: 459572   (79192) от 29.02.2012
 
-Magnum - Live At KK's Steel Mill (2025) (Live) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock>
+Т.Б. Филичева и др. | Воспитание  и обучение детей  дошкольного возраста  с общим недоразвитием  речи [2009] [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Логопедия, Психология, Педиатрия
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Days of No Trust (Live) [6:07]
-02 - Lost on the Road to Eternity (Live) [6:13]
-03 - The Monster Roars (Live) [4:15]
-04 - The Archway of Tears (Live) [6:07](   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 01:31:58
+Программно-методические рекомендации предназначены для учителей-логопедов, студентов средних и высших учебных заведений, изучающих логопедию, а также слушателей курсов федеральных, региональных и муниципальных образовательных учреждений повышения квалификации специалистов в области образования, здравоохранения и социальной защиты.Жанр: Программно-методические рекомендацииФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4656589FC6760F6983BE8D50AEC7BF7D66F7217B
+magnet:?xt=urn:btih:4D45F26C99BD47255DF34497F7FD00DD05927B3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,283 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772457   (71767) от 11.01.2025
+###  Публикация: 459427   (79191) от 29.02.2012
 
-Masque of Art - Masquerade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Let it Rain [00:03:59]
-02. You Will Be Touched [00:04:23]
-03. We Live in America [00:04:02]
-04. Grace of God [00:05:00](   Читать дальше...   )Жанр: RockПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6337345280D1E44EAEEC8066ED2CF8C0A0BB068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772641   (71766) от 11.01.2025
-
-Magnum - Live At KK's Steel Mill (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Days of No Trust (Live) (06:06)
- 02. Lost on the Road to Eternity (Live) (06:13)
- 03. The Monster Roars (Live) (04:14)
- 04. The Archway of Tears (Live) (06:07)(   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 01:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992529E076AEE5B23869FCB5E6176EE7A2887971
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772642   (71765) от 11.01.2025
-
-Замечательный муж / En nydelig aegtemand (1914) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71765.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чиновник и семьянин Декомб, под видом командировки уезжает в Париж, чтобы... немного развеяться. Ну, да ладно, это вопрос его совести. Но надо же такому случиться, что в это время очень большой начальник собирается посетить дом Декомбов. И чиновник обязан быть на месте, иначе... Верная жена намерена выручить непутевого муженька. Но как?! Есть только один способ - (   Читать дальше...   )Производство: Дания / Nordisk FilmЖанр: короткометражный, комедия, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Карл Альструп, Аньес Андерсен, Олуф Биллесборг, Джохэнн Фриц-Петерсен, Ингеборг Дженсен, Бертель Краузе, Эбба Лоренцен, Лауриц Олсен, Паула Рафф, Franz SkondrupПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39C1B72979D680CBDC34220623994A326A3155C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772376   (71764) от 11.01.2025
-
-Признания в рождественском письме / Confessions of a Christmas Letter (2024) WEBRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Среди жителей тихого городишки Холли-Хиллз есть милая традиция писать на каждое Рождество письма о своём житье-бытье, а автора лучшего письма помещать на Стену Славы. Неугомонная Сетти много лет пытается победить в этом конкурсе, но каждый раз жюри бракует её поэтические вирши про большое семейство Роз. В отчаянии домохозяйка решается на маленький обман и в преддверии (   Читать дальше...   )Производство: Канада, США / Two 4 The Money Media, MarVista EntertainmentЖанр: драмаРежиссер: Хизер Хоторн ДойлАктеры: Анджела Кинси, Алек Сантос, Лилиан Дусе-Рош, Фред Эвануик, Барбара Поллард, Гэрри Чак, Коллин Вилер, Фэй Рен, Карен Холнесс, Джейк Фой и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:25:04Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3F3D2B2E91C3536BCAD41D3ADEE92BEEA2243E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772671   (71763) от 11.01.2025
-
-Elyose - Évidence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mission lunaire [00:04:24]
-02. Tentatives échouées [00:04:17]
-03. Étoile solitaire [00:03:10]
-04. Théogyne 2.0 [00:04:05](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8037750E7B7488E3F5225A3FDD75E30F0155D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772449   (71762) от 11.01.2025
-
-The Smoothies - Head to Christmas: A Soulful Christmas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting for Thanksgiving Day [00:03:05]
-02. Urban Dream [00:03:24]
-03. Feelin' Alright (Baby by My Side) [00:03:58]
-04. Love in Paris at Christmas Time [00:02:57](   Читать дальше...   )Жанр: SoulПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A988B21B05AAFC491EB89C6EAC1DCF5556CBC486
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772862   (71761) от 12.01.2025
-
-Paper Lace - The Best Of Paper Lace (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71761.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Billy - Don't Be A Hero
-A2 I Did What I Did For Maria
-A3 Jean
-A4 Mary In The Morning(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:39:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A869FCE7BD10D9FB1748344D68FA9A2CEECF52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772932   (71760) от 12.01.2025
-
-Cosmic Ally - Twin Sun (2005) [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just A Dream
-02. Paranoid
-03. Twin Sun (Novan K's Club Mix)
-04. Cloudy Perfume In The Wind(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:13:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9932C7179E0AD94F3C5B902C91DE244CF5BE58BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772647   (71759) от 12.01.2025
-
-VA - Alternative EDM Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mattia falchi - Fantasy Land (Hyper Land Radio) (02:53)
-02. DJ ROSSO - Higher (Radiocut) (03:15)
-03. Sunlight Project - The Music (Radio Cut) (03:22)
-04. Lando Lennox - Frozen Dream (02:09)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81A3371EC1008AD181F226A3513246E7036BE08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772685   (71758) от 12.01.2025
-
-Marius M.21 - The Album (2010) [MP3|320 Kbps] <Italo-Disco, Instrumental>
+Валерий Меладзе - Сэра (1995) [APE|Lossless|image + .cue]<Pop>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71758.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Space Woman (4:26)
-02. Stop The Rain (4:35)
-03. Crazy Night (4:36)
-04. Angels In The Night (Original Version) (5:00)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 01:40:50
+Жанр: PopПродолжительность: 01:19:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:288394F60EA2844EBC5672F840BDF736CE20D8AA
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772894   (71757) от 12.01.2025
+###  Публикация: 458845   (79185) от 29.02.2012
 
-Black - Wonderful Life (1987) [MP3|320 Kbps] <Pop, New Wave>
+Декстер: Сезоны 1-5 / Dexter: Season 1-5 (by Daniel Licht & VA) (2007-2011) [MP3|320 кб/с]<Soundtrack / Score>
 
->>Electronic
->>Synthpop, New Wave
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79185.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wonderful Life
-02. Everything's Coming Up Roses
-03. Sometimes For The Asking
-04. Finder(   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:03:30
+2007-2011Жанр: Soundtrack / ScoreПродолжительность: 04:22:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE4925EF5526D906431972B73E46B27BC640EC91
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772893   (71756) от 12.01.2025
+###  Публикация: 460115   (79184) от 29.02.2012
 
-VA - Relaxation Hub, Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+Убей меня / You Kill Me (2007) HDRip
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79184.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Slow World - Seijaku (Silence) (03:45)
- 02 - Living Room - Organic Sundance (Ambient Dub) (03:29)
- 03 - Five Seasons - Delphina (04:04)
- 04 - PaiJun - Elemental (Neptun Dub Mix) (04:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:11
+Фрэнк — наемный убийца мафии. Однажды он круто напился и проспал очень важное задание. Твердо решив «завязать», герой ложится в клинику. Кто мог подумать, что вместо белой горячки он встретит там неземную любовь и решит начать новую жизнь? Однако сначала ему придется выполнить старый заказ. Ведь гнусный тип — его будущая жертва — захватил власть в городе, и ситуация (   Читать дальше...   )Жанр: Триллер, Комедия, Мелодрама, КриминалРежиссер: Джон ДалАктеры: Бен Кингсли, Теа Леони, Люк Уилсон, Деннис Фарина, Филип Бейкер Холл, Билл Пуллман, Маркус Томас, Скотт Хейндл, Элисон Сили-Смит, Арон Тэйджер ...Перевод: ДублированныйПродолжительность: 01:32:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B84A355D26D4140100FE9F0A3A7A9841808EF8D0
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,53 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772805   (71755) от 12.01.2025
+###  Публикация: 459929   (79183) от 29.02.2012
 
-Наталья Липунова (пер.) | Сборник статей журнала New Scientist. Космос. От Солнца до границ неизвестного (2020) [MP3, Игорь Гмыза]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71755.jpg" />
-</div>
-
-
-###  Подробнее
-
-Что случилось с Венерой? Как Сатурн стал властелином колец? Где искать Девятую планету? Почему мы не видим облако Оорта? Что мы знаем о самой большой звезде? Как живут звезды после смерти? Как галактики воруют друг у друга? Как сфотографировать черную дыру? Какая галактика самая большая?
-Стартуя от Солнца, мы посетим планеты земной группы, газовые гиганты и их спутники, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 07:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D7299D43C236FE623B852C3B3D314710824162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772954   (71754) от 12.01.2025
-
-Крестьяне (1935) VHSRip
+Акселератка (1987) DVDRip
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79183.jpg" />
 </div>
 
 
 ###  Подробнее
 
-О борьбе коммунистов и передовых крестьян за укрепление колхозного строя.
-Начало 30-х годов. Животновод колхоза "Лебяжьи горки" Герасим Платонович, зная о нехватке кормов, стремится увеличить свиное поголовье и таким образом подорвать колхозную собственность...Производство: СССР / ЛенфильмЖанр: драма, историяРежиссер: Фридрих ЭрмлерАктеры: Елена Юнгер, Борис Пославский, Алексей Петров, Екатерина Корчагина-Александровская, Николай Боголюбов, Владимир Гардин, Иван Чувелев, Петр Алейников, Владимир Сладкопевцев, Валерий СоловцовСубтитры: отсутствуютПродолжительность: 01:48:05
+Главная героиня фильма – Анюта, самостоятельная и серьезная девушка, прекрасно владеющая приемами каратэ. Она мечтает работать в милиции. Но после окончания школы ее на работу в милицию не берут из-за малого возраста. И тогда настырная Анюта, чувствуя свое призвание, решает заняться частным сыском и сама раскрыть одно очень запутанное дело. Вместе со своим приятелем (   Читать дальше...   )Жанр: КомедияРежиссер: Алексей КореневАктеры: Ирина Шмелева, Никита Михайловский, Роман Филиппов, Галина Польских, Петр Меркурьев, Игорь Кваша, Александр ПотаповПродолжительность: 1:22:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8619110CCB8396E9EE0B33D6E4DC7123EEE9D68
+magnet:?xt=urn:btih:F16667325472656B66AD52EAFF2B83B357962FE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,25 +128,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772917   (71753) от 12.01.2025
+###  Публикация: 460062   (79182) от 29.02.2012
 
-Смешанные единоборства. UFC Fight Night 249: Dern vs. Ribas 2 (11.01.2025) HDTVRip [H.264/720p]
+Новогодний концерт Венского Филармонического оркестра / Vienna New Year's Concert (2012) DVD5 [hand made from Blu-Ray]
 
->>Спорт и активный отдых
->>Единоборства, Бои без правил
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79182.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Main card турнира "UFC Fight Night 249", прошедшего в UFC Apex in Enterprise, Nevada, part of the Las Vegas Valley, United States.Телекомпания: Матч! БоецЖанр: Спорт, смешанные единоборстваЯзык озвучки: русскийПродолжительность: 02:42:05
+Новогодний концерт в Вене (нем. Das Neujahrskonzert der Wiener Philharmoniker) — традиционный ежегодный концерт Венского филармонического оркестра 1 января в столице Австрии.
+Концерты, которые Венский филармонический оркестр дает ежегодно, по праву считаются одним из крупнейших мировых музыкальных событий года. К этому концерту знаменитый симфонический оркестр долго (   Читать дальше...   )Жанр: Классика,Продолжительность: 01:58:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D9227828E6340529E10242DCA5E3BDF7B01C099
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,138 +155,31 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772686   (71752) от 12.01.2025
+###  Публикация: 459817   (79175) от 29.02.2012
 
-The Halo Effect - March of the Unheard (2025) (Limited Edition) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Metal, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Conspire to Deceive [3:58]
-02 - Detonate [3:59]
-03 - Our Channel to the Darkness [3:29]
-04 - Cruel Perception [4:05](   Читать дальше...   )Жанр: Melodic Death Metal, Metal, Death MetalПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27907E92F158C3A9772EF8DCEC3F6973D953F9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772588   (71751) от 12.01.2025
-
-Digital Emotion - Greatest Hits (2007) [AAC|320 Kbps] <Electronic, House, Disco>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Stop
-02. Get Up, Do You Wanna Funk (Special Effects Mix)
-03. Go Go Yellow Screen
-04. Steppin' Out (Special Mix)(   Читать дальше...   )Жанр: Electronic, House, DiscoПродолжительность: 01:17:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3541F5FDD892FCCD9BB0AF3E06E184C47F9664F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772901   (71750) от 12.01.2025
-
-Полиция в замешательстве / La polizia ha le mani legate / Killer Cop (1975) BDRip [H.264/720p] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комиссар из отдела по борьбе с наркотиками Маттео Роланди в ходе слежки за наркоторговцем становится свидетелем взрыва в миланском отеле, где проходило международное культурное мероприятие. Роланди пытается узнать причину взрыва и вступает в противоборство с генеральным прокурором Армандо Ди Федерико, которому поручено расследование этого дела. Но вскоре они оба (   Читать дальше...   )Производство: Италия / Produzioni Atlas Consorziate (P.A.C.)Жанр: боевик, драма, криминалРежиссер: Лучиано ЭрколиАктеры: Клаудио Кассинелли, Артур Кеннеди, Франко Фабрици, Сара Сперати, Бруно Дзанин, Франческо Д’Адда, Паоло Пуарэ, Валерия Д’Обичи, Джулиана Ривера, Франко МоральдиПеревод: Одноголосый любительский (Paul B.)Язык озвучки: русский, итальянский, английскийСубтитры: английские, немецкиеПродолжительность: 01:36:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57887521DE3A6EA20E12A0F70EEE511EAA5E055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772919   (71749) от 12.01.2025
-
-VA - The Perfect Chillout & Lounge Music Playlist (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Schriever - Groove Shaker (04:28)
- 02 - Fascinating Case - Mainline (04:16)
- 03 - Breviarium Musicae - Atmosphaera (04:25)
- 04 - Aqua Mundi - Cala Rossa (03:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D523B551F9D42CD57EAF5285A902B22172ADD00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772858   (71748) от 12.01.2025
-
-Photo Studio PRO v2.7.12.3627 Mod by youarefinished [Ru/Multi]
+[Wallpapers] Обои для рабочего стола.
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 12.01.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+До выходи последней части легендарной трилогии остались считаные дни.
+Миллионы поклонников замерли в ожидании выхода 3 части.
+И что бы оно небыло столь томительным,эти обои на рабочий стол Вам.Релиз содержит 3 папки с расширением:
+1280х720-31шт.
+1680х1050-45шт.
+1920х1080-67шт.
+Общее количество-143штуки..
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE3291A2DB598DE0B9028D2E2D9CA6AFAA0862EC
+magnet:?xt=urn:btih:3745AB1B00B95742B7B24FA9DC201076FE08D328
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,25 +187,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772969   (71747) от 12.01.2025
+###  Публикация: 459547   (79171) от 29.02.2012
 
-Izaak Maurits Kolthoff | Potentiometric titrations (1931) [PDF] [EN]
+Noisia - Split The Atom: Special Edition (2012) [MP3|320 кб/с]<Drum & Bass, Dubstep>
 
->>Научная и техническая литература
->>Точные и естественные науки
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Руководство по потециометрическому титрованию.Жанр: ХимияЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Обработанный скан
+01. Noisia - Machine Gun (Original Mix) (4:05)
+ 02. Noisia & Giovanca - My World (Original Mix) (4:53)
+ 03. Noisia - Shitbox (Original Mix) (0:57)
+ 04. Noisia - Split the Atom (Original Mix) (5:42)
+ 05. Noisia - Thursday (Original Mix) (3:45)
+ 06. Noisia - Leakage (Original Mix) (1:32)
+ 07. Noisia & Joe Seven - Hand Gestures (Original Mix) (3:11)
+ 08. Noisia - Headknot (Original Mix) (1:32)
+ 09. Noisia - Red Heat (Original Mix) (3:27)
+ 10. Noisia & Foreign Beggars - Shellshock (Original Mix) (3:46)2012Жанр: Drum & Bass, DubstepПродолжительность: 01:56:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F0F7E2D21AD23E2C7D82B6AF60FFCDD5C415D51
+magnet:?xt=urn:btih:36108F8FCF399AA08148B3C964C7B0491048B84D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,26 +222,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772916   (71746) от 12.01.2025
+###  Публикация: 460213   (79153) от 29.02.2012
 
-НХЛ 2024-2025. Оттава Сенаторз - Питтсбург Пингвинз (11.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Nat Geo Wild: Болотные львы / Swamp Lions (2011) HDTVRip [720p]
 
->>Спорт и активный отдых
->>Хоккей
+>>Зарубежные TV-бренды
+>>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 января 2025, воскресенье. 00:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 18 043 зрителя (97% при вместимости 18 673)
-Главный судья: Джастин Кеа (Вудвиль, Канада); Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:39
+Самец прайда убит браконьерами, и теперь три львицы и их львята остались без защиты в одном из самых трудных для выживания львов районов Африки.Жанр: ДокументальныйПеревод: ДублированныйПродолжительность: 00:44:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B61D75AEEB2B9387E6E133AC494608F96773D49F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -641,26 +248,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772910   (71745) от 12.01.2025
+###  Публикация: 460194   (79150) от 29.02.2012
 
-НХЛ 2024-2025. Вашингтон Кэпиталз - Нэшвилл Предаторз (11.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Топор 2 / Hatchet 2 (2010) HDRip
 
->>Спорт и активный отдых
->>Хоккей
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 января 2025, воскресенье. 04:00 МСК. Стадион: Бриджстоун-Арена (Нэшвилл, США), 17 159 зрителей (99% при вместимости 17 335)
-Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Майкл Маркович (Скарборо, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:45:11
+После того как Мэрибет чудом вырывается из рук безумного маньяка Виктора Кроули, она узнает, что же связывало ее семью с этим страшным человеком. Узнав всю правду, она полна решимости вернуться на болота с целой армией, жестоко отомстить мяснику и вернуть тела своих близких.Жанр: Триллер, Боевик, КомедияРежиссер: Адам ГринАктеры: Даниэль Харрис, Тони Тодд, Кэйн Ходдер, Парри Шен, Том Холланд, R.A. Mihailoff, Ай Бауэн, Алексис Питерс, Эд Экерман, Дэвид Фой, Колтон Данн, Рик МакКаллум, Джон Карл Бюхлер, Кэтрин Фиоре, Эрика Хэмилтон, Мерседес МакНаб, Джолей Фиореванти, Райли Вандербилт, Чарлэйн Девилльер, Сара Агор, Шон Эшмор, Стивен Бартон, Эмма Белл, Маркус Данстэн, Адам Грин, Ллойд Кауфман, (   Читать дальше...   )Перевод: Двуголосый закадровыйПродолжительность: 01:25:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8AA0030160034A75F18C63CF56F2C852FB59E24
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,28 +274,276 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772582   (71744) от 12.01.2025
+###  Публикация: 460236   (79149) от 29.02.2012
 
-David "Fathead" Newman - Four Classic Albums (1958 - 1961) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Whitesnake - Here I Go Again: The Whitesnake Collection (2002) 2CD [FLAC|Lossless]<Hard Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 		Here I Go Again (Radio Version)	3:54
+02. 		Slide It In 	3:21
+03. 		Slow An' Easy	6:11
+04. 		Love Ain't No Stranger 	4:20
+05. 		All Or Nothing 	3:44
+06. 		Gambler 	3:58
+07. 		Guilty Of Love 	3:26
+08. 		Hungry For Love 	3:30
+09. 		Give Me More Time 	3:45
+10. 		Spit It Out 	4:27(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 01:17:55 /  01:17:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459977   (79148) от 29.02.2012
+
+Журнал | Jamie Magazine №1 [декабрь 2011 - январь 2012] [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79148.jpg" />
+</div>
+
+
+###  Подробнее
+
+ЗАО «МДП «Маарт» и Издательство «ЭКСМО («Хлеб Соль») представляет новое кулинарное издание премиум класса: «Jamie magazine»
+Журнал сделан на основе английского журнала, издаваемого BBC.
+Лицом журнала «Jamie magazine» является самый знаменитый и любимый во всём мире шеф-повар ДЖЕЙМИ ОЛИВЕР
+Кулинарный журнал Джейми Оливера. Это журнал о еде и жизни! Каждый выпуск предлагает (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05256C7BAF718516E2E5E38CB084F376FB9AC1F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459541   (79141) от 29.02.2012
+
+VA - Anjunadeep 04 (Mixed by Jaytech & James Grant) (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79141.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 Mixed by James Grant [01:16:31]
+01. Dusky - Stick By This [3:39]
+02. Martin Roth - Beautiful Life [5:30]
+03. Vincenzo - Get To Know You [6:13]
+04. Laura Jones - Love In Me (Maceo Plex Remix) [4:39]
+05. Andrew Bayer - You [6:57]
+06. Paronator - No Gravity (Tom Middleton Liquatech Mix) [5:24]
+07. Dusky - Lost Highway [4:37]
+08. Above & Beyond - Prelude (Andrew Bayer & James Grant Remix) [6:24]
+09. Full Tilt - Take Me Away (Andrew Bayer & James Grant Remix) [5:23](   Читать дальше...   )Жанр: HouseПродолжительность: 02:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87646B79AA462D70BBDD7CDE0D43AB824B1FD87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460015   (79140) от 29.02.2012
+
+Joe Louis Walker - Hellfire (2012) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hellfire (4:48)
+02. I Won't Do That (5:01)
+03. Ride All Night (4:24)
+04. I'm On To You (3:30)
+05. What's It Worth (6:17)
+06. Soldier For Jesus (5:50)
+07. I Know Why (5:13)
+08. Too Drunk To Drive Drunk (3:57)
+09. Black Girls (5:23)
+10. Don't Cry (5:00)(   Читать дальше...   )2012Жанр: BluesПродолжительность: 00:53:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460076   (79138) от 29.02.2012
+
+Святослав Сахарнов | Камикадзе. Идущие на смерть (2010) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79138.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Умрем за Императора, не оглядываясь назад» — с этой песней камикадзе не задумываясь шли на смерть. Их эмблемой была хризантема, а отличительным знаком — «хатимаки», белая головная повязка, символизирующая непреклонность намерений. В результате их самоубийственных атак были потоплены более восьмидесяти американских кораблей и повреждены около двухсот. В августе 1945 (   Читать дальше...   )Жанр: Военная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:139AE5A6F4C2F25B6A213AF9A7242DDE2247F6F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460201   (79132) от 29.02.2012
+
+Восстание душ: Бунт мертвецов / Shadow: Dead Riot (2006) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Один из заключенных тюрьмы строгого режима практикует ритуалы черной магии. Это вызывает бунт заключенных и закрытие тюрьмы. Но через двадцать лет тюрьма открывается снова - вместе с населяющими ее призраками. Тень: Восстание мётрвых - это уникальная стилистическая смесь боевика в азиатском стиле, ужастиков о зомби и драмы о женской тюрьме!!!Жанр: Триллер, УжасыРежиссер: Дерек Вэн/ Derek WanАктеры: Тони Тодд, Джеф Аутин,Карла Грин , Нина Ходорук, Майкл Куинлэн и др.Перевод: Профессиональный (многоголосый закадровый)Продолжительность: 01:29:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460274   (79130) от 29.02.2012
+
+Журнал | Esquire [Россия] №75 (март 2012) [PDF]
+
+>>Журналы
+>>Мужские журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал Esquire предназначен для умных и разборчивых мужчин – для тех, кого не прельщают дешевые сенсации, для тех, кто в состоянии оценить настоящий стиль в литературе и моде.
+Esquire – это высочайшее качество текстов, блестящая журналистика, эксклюзивные интервью со звездами и прекрасные фотографии.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6A9B37BD61E6445C92E2FE66F8696EC054A0C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459857   (79124) от 29.02.2012
+
+Ангел неБЕС - наКРЫЛО (2012) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79124.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бесы (5:03)
+ 2. Накрыло (0:21)
+ 3. На крыле (3:51)
+ 4. ТТ (Пожар на твоем теле) (4:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459432   (79123) от 29.02.2012
+
+VA - We Can Work It Out (Covers & Cookies of Lennon, Mc'Cartney & The Beatles) (2005) [FLAC|Lossless]<Funk, Soul, Deep Funk>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Batista's Groove [7:27]
-02. Skylark [4:40]
-03. Night Of Nisan [7:59]
-04. Cousin Slim [7:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:28:54
+01.Work It - Intro (0:45)
+02.Stevie Wonder - We can work it out (3:11)
+03.Al Green - I want to hold your hand (1:59)
+04.Deidre Wildon Tabac - Get back (2:38)
+05.Harvey Averne - I feel fine (2:58)
+06.Sergio Mendes & Brasil '66 - Daytripper (3:39)
+07.The London Jazz Four - Things we said today (2:44)
+08.Ike & Tina Turner - Come Together (3:41)
+09.Byron Lee & The Dragonaires - Live & let die (2:57)
+10.Marshall Williams - Norwegian wood (2:12)(   Читать дальше...   )2005Жанр: Funk, Soul, Deep FunkПродолжительность: 01:47:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2EB858AEB51F4BDB6A7D09242E1FCC13C08252A
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,28 +551,206 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772963   (71743) от 12.01.2025
+###  Публикация: 459899   (79120) от 29.02.2012
 
-GTO Trio featuring Gadi Lehavi, Tal Mashiach and Ofri Nehemya - GTO TRIO: Within (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Like Water (5:05)
-02.  One for G (4:17)
-03.  Merengue Mediterráneo (5:01)
-04.  Vv & Zaco (3:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:45:19
+01. James Asher - Red desert (05:39)
+02. Prem Joshua - New kafi (06:17)
+03. Prem Joshua - Mango rain (07:10)
+04. James Asher - Further east (05:25)
+05. Chinmaya Dunster & Vidroha Jamie - Wandering way (04:24)
+06. Music from the World of Osho - Namaste (03:45)
+07. Al Gromer Khan - Agori dance (07:07)
+08. Ustad Usman Khan - Raga hansadhwani (08:57)
+09. Hariprasad Chaurasia - Indian folklore (10:03)
+10. Namaste - Gayatri mantra (09:01)(   Читать дальше...   )2001Жанр: New Age, Meditative, RelaxПродолжительность: 01:11:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD6070BB6D98E3033601391CEDEB08A6DC5F1585
+magnet:?xt=urn:btih:957E9BDA6E72E8F9167CBCA522E1FC083802AB70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459778   (79116) от 29.02.2012
+
+Илья Те | Анабиоз. Корейский коридор [2012] [TXT,RTF]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мисс Мэри, студентка из России, очнулась недалеко от Сеула, на побережье Коридора - приграничной зоны между Южной Кореей и КНДР.
+По непонятным причинам она проснулась на два месяца позже других.
+Благополучной, процветающей страны больше нет. Есть жуткий мир, который существует по законам джунглей. Мир, где на каждом шагу встречаются охотники за людьми, дикие ганги и озверевшие юнговцы. Мир, где в ходу торговля рабами и каннибализм.
+Новый Сеул - Мегаполис страха, обитель отчаяния. По счастью, мисс Мэри встречаются не только подонки, но и сильные духом люди. Школьница Кити, крепыш Рик, умник Дэмио... Они учат девушку сражаться и побеждать.
+Но впереди не только победы. Девушку ждет сильный враг и жестокая правда о прошлом и настоящем, а на пути к этой правде - все круги ада.
+Добро пожаловать в проснувшуюся Корею. По-азиатски жестокую и самобытную.Формат: TXT,RTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5360682BB5831C1327A7DB40F4F6598E011276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459515   (79115) от 29.02.2012
+
+Indra - Global Music (2008) [FLAC|Lossless]<Psychedelic / Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seek Irony -- Tech N Roll (Indra Remix) (7:01)
+ 02. Indra -- Musica Electronika (6:40)
+ 03. Yahel -- Soul (Indra Remix) (8:27)
+ 04. Indra -- High Quality (7:34)
+ 05. Team 18 -- Batucada (Indra Remix) (8:26)
+ 06. Indra -- Loose Control (8:58)
+ 07. Indra vs Beat Hackers -- All Filters Up (Indra Remix) (8:43)
+ 08. Indra -- Take The Time (6:39)
+ 09. Indra -- Break The Ground (8:17)
+ 10. Indra -- Logistic (4:30)2008Жанр: Psychedelic / Full OnПродолжительность: 01:15:15
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459102   (79112) от 29.02.2012
+
+Излучина реки / Bend of the River (1951) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79112.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятидесятые года XIX века. При сопровождении каравана фургонов через горы, через прерии в Портленд, в поисках новой жизни Глен МакЛинток спасает от линчевания Эмерсона Коула, подозреваемого в краже скота. Благодарный Коул помогает Глену и его друзьям отбить неожиданную атаку индейцев, так они становятся друзьями.
+
+Дочь Глена Лаура Бэйл увлеклась Коулом и намерена остаться в Портленде вместе с новым знакомым, а не связывать свою жизнь с работой в поле. Но Коул не простой парень: у него темное прошлое, как, впрочем, и у самого Глена есть свои секреты. Тем временем, оплаченные поставки провизии для переселенцев, обещанные мэром Портленда не производятся. МакЛинток возвращается в город, где ему приходится взяться за оружие, чтобы отстоять продовольствие для своей общины…Жанр: Приключения, ВестернРежиссер: Энтони МаннАктеры: Джеймс Стюарт, Артур Кеннеди, Джули Адамс, Рок Хадсон, Лори Нельсон, Джей С. Флиппен, Чабби Джонсон, Гарри Морган, Ройал Дано, Фрэнсис БавьерПеревод: Двуголосый закадровыйПродолжительность: 01:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563ECA33698E8A57642483A05A03C07AFC834689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459384   (79105) от 29.02.2012
+
+Музыка продолжала играть / The Music Never Stopped (2011) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Габриель, сын Генри Сойера, страдает от опухоли в мозгу, не позволяющей ему использовать свою память по прямому назначению. Учитывая, что сын теперь не может вспомнить былые обиды и печали, его отец Генри пытается при помощи музыкотерапии восстановить хрупкое здоровье сына и заново наладить с ним отношения...Жанр: ДрамаРежиссер: Джим КолбергАктеры: Дж.К. Симмонс, Кэра Сеймур, Лу Тэйлор Пуччи, Скотт Эдсит, Джеймс Урбаняк, Max Antisell, Ryan Karels, Пегги Гормли, Тэмми Бланчард, Джош СегарраПеревод: Одноголосый закадровыйЯзык субтитров: АнглийскийПродолжительность: 01:44:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459271   (79097) от 28.02.2012
+
+Война Богов: Бессмертные / Immortals (2011) [1080p]  BDRip 3D [Горизонтальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одержимый жаждой власти царь Гиперион хочет уничтожить род людской и низвергнуть богов. С помощью Эпирского Лука, сделанного руками бога войны Ареса, он освобождает Титанов от тысячелетнего заточения в горах Тартара. Боги бессильны противостоять безумному царю. Единственная надежда на спасение — герой Тесей, который вступает в неравную войну с Титанами. Боги Олимпа (   Читать дальше...   )Жанр: фэнтези, боевик, драмаАктеры: Генри Кавилл, Стивен Дорфф, Люк Эванс, Изабель Лукас, Келлан Латс, Фрида Пинто, Микки Рурк, Джон Хёрт, Джозеф Морган, Энн Дэй-ДжонсПеревод: Русский дубляжСубтитры: вшитые в видео (надписи, названия)Продолжительность: 01:50:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459648   (79094) от 28.02.2012
+
+Война Богов: Бессмертные / Immortals (2011) [1080p] BDRip 3D [Вертикальная анаморфная стереопара]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одержимый жаждой власти царь Гиперион хочет уничтожить род людской и низвергнуть богов. С помощью Эпирского Лука, сделанного руками бога войны Ареса, он освобождает Титанов от тысячелетнего заточения в горах Тартара. Боги бессильны противостоять безумному царю. Единственная надежда на спасение — герой Тесей, который вступает в неравную войну с Титанами. Боги Олимпа во главе с самим Зевсом, пророчица Федра и хитрый раб Ставрос помогают герою в смертельной битве с демонами. Тесей должен победить, или боги Олимпа будут низвержены, а Эллада обречена на погибель…Жанр: Фэнтези, Боевик, ДрамаРежиссер: Тарсем СинхАктеры: Генри Кавилл, Стивен Дорфф, Люк Эванс, Изабель Лукас, Келлан Латс, Фрида Пинто, Микки Рурк, Джон Хёрт, Джозеф Морган, Энн Дэй-ДжонсПеревод: ДублированныйЯзык субтитров: Арабский, Болгарский, Датский, Английский, Финский, Французский, Греческий, Польский, Португальский, Португальский (Бразилия), Румынский, Русский, Сербский, Словенский, Испанский, Шведский, Турецкий, ВьетнамскийПродолжительность: 01:50:27
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

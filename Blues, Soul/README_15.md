@@ -1,3 +1,32 @@
+###  Публикация: 1032896   (642112) от 09.07.2016
+
+Royal Southern Brotherhood - Don't Look Back (2015) [MP3|320 Kbps] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Be Free (5:25)
+02. Reach My Goal (5:00)
+03. Don't Look Back (4:59)
+04. Hit Me Once (4:37)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600AF6B867E52D7CFA724F6563947418F224FE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 907118   (641843) от 10.06.2015
 
 Snowy White - Highway To The Sun (1994), Reissue/2010, Repertoire Records [MP3|320 кб/с]<Blues Rock>
@@ -725,35 +754,6 @@ Bacon Fat - Tough Dude (1971) Reissue, SM The CD  [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DCF7960C27F333F5D975806DCB25A12F22699DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908126   (634262) от 14.06.2015
-
-Jazz Gillum: The Essential (2CD) (2003) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Key To The Highway (2:42)
-02.  Sarah Jane (3:03)
-03.  My Old Suitcase (3:01)
-04.  You Are Doing Me Wrong (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED60F94AA3C80FF6F5935947B70E54018679F84
 ```
 
 https://mybot314.ru/tekegram_catalog/

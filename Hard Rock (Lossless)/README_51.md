@@ -1,3 +1,116 @@
+###  Публикация: 1410922   (429542) от 24.09.2020
+
+Lord Tracy - Deaf Gods Of Babylon (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out With the Boys
+02. East Coast Rose
+03. Shes a Bitch
+04. Barney’s Wank(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2523EC618DA2EDB00A0997B15E329B22278AFF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1160694   (428570) от 26.09.2018
+
+Alice Cooper - Paranormal (2017) Deluxe Edition, Japan Press [WavPack|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый студийный альбом, первый за 6 лет (!)Жанр: Hard Rock, Classic RockПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A73252D31EC841F8E2674DA95A505F149714C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063964   (428372) от 19.10.2016
+
+VA - Thunder And Steel Down Under - A Tribute To Riot (2015) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferdy Doerngers - Soldier 02:15
+02. Axel Rudi Pell - Warrior 03:42
+03. Attacker - Fire Down Under 02:37
+04. Walpyrgus - Outlaw 03:55(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:53:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:225BDE7DB35A57563633FC5D5A628B8ED45DEA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064148   (428042) от 19.10.2016
+
+Tony Carey - Stanislaus County Kid (2010) [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's All Over Now (Baby Blue) 4:23 (Bob Dylan)
+02. Unchained Melody 3:57 (North/Zaret)
+03. A Change Is Gonna Come 3:56 (Sam Cooke)
+04. Abraham, Martin And John 4:12 (Dick Holler)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB4B426FD8AF42A2F19AD14AAA78CCAC65ADA255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1064147   (427910) от 19.10.2016
 
 The 13th Floor Elevators - Easter Everywhere (1967), Reissue 1993  [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Garage Rock>
@@ -629,122 +742,6 @@ Alliance - Fire And Grace (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4894EAF696D590F31541288FD992B2665C5811A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572491   (419456) от 28.08.2022
-
-Sunstorm - Brothers In Arms (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brothers In Arms (4:43)
-02. Games We Play (3:59)
-03. I'll Keep Holding On (4:23)
-04. I Will Remember (4:05)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B114B32DDDAA59BF3A2E67BFA61F14459CB6604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572486   (419326) от 28.08.2022
-
-Restless Spirits - Second To None (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need A Lil' White Lie (5:00)
-02. Hey You (4:05)
-03. Dreams Of The Wild (5:21)
-04. Until The End Of Time (5:12)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8423B7F09172341D60CEF13CBCD102449DAEFA53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065411   (418585) от 23.10.2016
-
-July Reign - Here Comes The Flood (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro   (00:35) 
-02. Inferno   (04:24) 
-03. Rage Of Pain   (05:01) 
-04. Rest In Ruins   (04:16) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2777063B70F21762F964177BC8C8286B29226A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167239   (417417) от 20.09.2017
-
-Ohrenfeindt - Zwei Fauste Fur Rock'n'Roll (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deine Mudder Singt Bei Lordi   (03:18) 
-02.  Starkstrom-Baby   (03:38) 
-03.  Wanda Wondergirl   (03:27) 
-04.  König Und Rebell   (03:04) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A05BA01A35751A133188466019E0223FEC51386
 ```
 
 https://mybot314.ru/tekegram_catalog/

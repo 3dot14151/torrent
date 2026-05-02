@@ -1,3 +1,81 @@
+###  Публикация: 549841   (460735) от 21.09.2012
+
+Shanell - Touch Me Daddy (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: R'n'bПродолжительность: 00:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01BF24A3B0B5456E3AF542827DEFF31F06B2E43E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550362   (460733) от 21.09.2012
+
+Sika - Love Kills (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00BBE52770AD5858BE2EE0BAF78E76675997EB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549839   (460729) от 21.09.2012
+
+Antonia - Jameia (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460729.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 00:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A240E1535DB1AE0D46D7D4D37CF23BC686A40D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 549837   (460572) от 21.09.2012
 
 Halestorm — I Miss The Misery (2012) [H.264/1080p] WEBRip
@@ -646,90 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78B39CC89DA6E7313C75344D858BC74FF972EA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060386   (454721) от 07.10.2016
-
-Гудгора. Концерт Вячеслава Бутусова (03.12.2015) HDRip [H.265/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы "Ю-Питер" в Питере, в БКЗ "Октябрьский", 3 декабря 2015 года.01. Апокалиптическая
-02. Возьми меня с собой
-03. Чёрная птица-белые крылья
-04. Одинокая птица(   Читать дальше...   )Жанр: МузыкаАктеры: Вячеслав БутусовПродолжительность: 01:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15E7E010729BB43618257D5B7C3EAF767226E27A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 704629   (454126) от 28.09.2013
-
-The Bacon Brothers - No Food Jokes Tour (2003) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman's Got a Mind to Change
-02. Getting There
-03. Grace
-04. Sooner Or Later(   Читать дальше...   )Жанр: Country Rock, RockРежиссер: Майкл Драмм / Michael Drumm
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3662D14F61D5BF0735A14E59D4BAF610BB78AD31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 389409   (453773) от 19.09.2011
-
-Миша Маваши - Среди высоток и аллей (2011) [720p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: МузыкаРежиссер: Миша МавашиПродолжительность: 00:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1B33EAB2A34808E042CD1A6040C428671E1BE71
 ```
 
 https://mybot314.ru/tekegram_catalog/

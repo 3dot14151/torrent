@@ -1,3 +1,29 @@
+###  Публикация: 1494609   (887283) от 08.09.2021
+
+Nox App Player 7.0.1.6000 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887283.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эмулятор Nox App Player работает на версии Android 5 / 7 / 9. Внутри Nox App Player предустановлен каталог Google Play, который упрощает установку программ, игр и прочего контента. Помимо этого, Nox App Player поддерживает ввод не только с клавиатуры, или мыши, но и с геймпадов и других игровых контроллеров, поэтому он отлично подойдет для геймеров. Также в Nox App (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BDB3F69D40216F50B4E9B50C04152FD78906FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494648   (887237) от 08.09.2021
 
 CCleaner 5.84.9143 Free / Professional / Business / Technician Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -644,32 +670,6 @@ Total Audio Converter - мощный конвертор всех музыкал�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F2C9127CD18A651D4509A50349D8ADB340B9A3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372193   (886797) от 02.04.2020
-
-ORPALIS PaperScan Professional 3.0.101 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886797.jpg" />
-</div>
-
-
-###  Подробнее
-
-ORPALIS PaperScan Professional является универсальной, мощной и простой в использовании программой для сканирования. Большинство приложений подобного рода предназначены для одного сканера, PaperScan позволяет управлять любым сканером, в том числе сетевыми сканерами (TWAIN или WIA протоколы поддерживаются). Вы можете импортировать любые изображения / PDF-файлы в PaperScan (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D982BE7BA0081C9A53C7B44508F3B1887DCC234D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1321185   (462958) от 22.08.2019
+
+Проекты - ProShow Producer - Fiery Particles Slideshow V.01 [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элегантное слайдшоу с появлением медиа контента из огненных частиц...
+Часть первая. Проект версий PSP6 и выше. Дерзайте!Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82CD9AB9C8A21733009921BE417C60FAB6F3D31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321186   (462823) от 22.08.2019
 
 Проекты - ProShow Producer - Fiery Particles Slideshow V.02 [PSH]
@@ -653,35 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EAA31B468E77F60ED2BEDAA4735749686A78637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060553   (454808) от 07.10.2016
-
-Проекты - Проект ProShow Producer - All about Denim [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект от grandpaJanek. Всё о ткани из Нима.
-Проект может быть использован в авторском решении, либо набором стилей для самостоятельного творчества.
-Очень простой в редактировании, обычная замена файлов.
-Превью (авторский ролик) - в раздаче.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E71752B8CB146510A951FD5BBEEB3024177EB29
 ```
 
 https://mybot314.ru/tekegram_catalog/

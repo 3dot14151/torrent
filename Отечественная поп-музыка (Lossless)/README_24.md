@@ -1,3 +1,29 @@
+###  Публикация: 1712066   (60967) от 02.04.2024
+
+Алла Пугачёва и Женя Моисеев - Береги (2024) Сингл [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Береги (4:27)Жанр: PopПродолжительность: 00:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CDA5BBCD58A02376BB5445FEFB8EE1B58A8B0CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 850704   (57654) от 04.05.2024
 
 Сергей Беликов - Greatest Hits 1974-1994 (1994) [FLAC|Lossless]<Pop / Rock>
@@ -702,35 +728,6 @@ Elvira T - Одержима (2013) [WavPack|Lossless|image + .cue] <R&B, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6045633FD8F5E1F19B8C6E420F6F88E19A9BF4F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737826   (49489) от 19.07.2024
-
-Serebro - 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Song [00:03:38]
-02. Сладко [00:03:59]
-03. Не время [00:03:54]
-04. Давай держаться за руки [00:04:16](   Читать дальше...   )Жанр: PopПродолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EC16BA4050B8C1930684B5662FAB13D16CA6AB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

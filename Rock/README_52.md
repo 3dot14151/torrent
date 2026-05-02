@@ -1,3 +1,32 @@
+###  Публикация: 1565584   (492441) от 24.07.2022
+
+The Goo Goo Dolls - Chaos In Bloom (2022) [MP3|320 Kbps] <Alternative Rock, Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yeah, I Like You (4:24)
+02. War (4:34)
+03. Save Me From Myself (3:16)
+04. Let the Sun (3:33)(   Читать дальше...   )Жанр: Alternative Rock, Pop-RockПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A373165D357CDD6D37BDCA40B9CFF5574E16F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404678   (491177) от 26.08.2020
 
 VA - Discover More Classic Rock (2020) [MP3|320 Kbps] <Rock>
@@ -758,35 +787,6 @@ The Osceola Brothers - Out of Nowhere (2016) EP [MP3|320 Kbps] <Classic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F20C9EEACB00956933220DB1F86B78CB5911B50C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320040   (475189) от 16.08.2019
-
-Sniff 'n' the Tears - 8 Studio Albums (1978-2017) CD [MP3|320 Kbps] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475189.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа «Sniff 'n' the Tears» была организована Полом Робертсом в Великобритании в 1977 г. Первый состав группы: Пол Робертс (вокал, гитара), Лоз Нетто (гитара), Мик Дайче (гитара), Крис Биркин (бас), Луиджи Сальвони (барабаны), Алан Фиэлдман (клавиши). В этом составе (плюс прилашенный клавишник Кейт Миллер) в 1978 г. был записан сингл «Driver s Seat», моментально (   Читать дальше...   )Список альбомов:
-1978 - Fickle Heart
-1980 - The Games Up
-1981 - Love Action(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 06:22:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D0E4ED53093646531CF60F9C5B56433CB57A5F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

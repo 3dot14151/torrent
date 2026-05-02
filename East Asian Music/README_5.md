@@ -1,3 +1,36 @@
+###  Публикация: 339506   (666125) от 21.05.2011
+
+Chen Lei - The Song of King Yao (2009) [FLAC|Lossless]<Chinese Traditional Music, Guqin, Qin>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 梅花三弄 Three Variations of Plum Blossom
+02. 碧涧流泉 Liquid stream flowing spring
+03. 怀古 Meditation on the Past
+04. 桃源春晓 Taoyuan Spring
+05. 归去来辞 Returning Home (Retreat)
+06. 忆故人 Memories of an Old Friend
+07. 神人畅 Harmony between Man and God
+08. 渔樵问答 Dialogue between Fisherman and WoodcutterЖанр: Chinese Traditional Music, Guqin, QinПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 339639   (666030) от 21.05.2011
 
 VA - Chinese Zodiac Signs - A Music Carnival of Twelve Animals (2000) [APE|Lossless]<Chinese Ethnic>
@@ -758,41 +791,6 @@ Kelly Simonz's Blind Faith - The Best Of (2009) Compilation [MP3|320 Kbps] <Neoc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73B2F72762B13ECECB037BC57367E6D7E6343467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518688   (639118) от 05.07.2012
-
-VA - Xiu Shen Yang Xing Yin Yue Xi Lie (5CD) (2008) [MP3|320 кб/с]<Instrumental, Ethnic, New age>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639118.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:54) 01. The State of Mind
-(3:21) 02. Awakening to Truth
-(5:21) 03. Let It Be
-(5:24) 04. Flowers Elapse with the Water
-(6:52) 05. Plum Fragant Penetrate to the Bone
-(5:03) 06. The Elegant Sound of Xiao
-(8:21) 07. When Recite the Truth Come
-(5:14) 08. Depend on Myself
-(6:24) 09. Free from Care But Stck to Ideal
-(4:22) 10. Flowers from HappinesЖанр: Instrumental, Ethnic, New ageПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521932CBF23D28D6076D258488CD92C80A8080CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

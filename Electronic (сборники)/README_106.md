@@ -1,3 +1,67 @@
+###  Публикация: 520970   (615427) от 17.07.2012
+
+VA - Dub step from evolinte vol.1 (2011) [MP3|320 кб/с]<Dub Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Bare - Thugs In The Hood (Feat. Messinian)
+02.Benny Benassi - Satisfaction Remix (J.Rabbit dubstep Bootleg)
+03.Cookie Monsta - Fat Girl Rodeo
+04.Cookie Monsta - Skills (Messiah Remix)
+05.Crystal Fighters - Swallow (Funtcase Remix)
+06.Datsik - Quantum
+07.Dj Ss - We Came To Entertain (Mark Instinct Remix)
+08.Feed Me - Blood Red (Original mix)
+09.Funtcase - So Vexed (Crissy Criss Edition)
+10.J. Rabbit - Spanish Fly(   Читать дальше...   )Жанр: Dub StepПродолжительность: 01:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9390FC0663739BB207F553CBF245DFA576EE11A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037065   (615276) от 23.07.2016
+
+VA - Лучшие хитовые треки 2016 - Drum And Bass №1 (2016) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above Beyond ft. Richard Bedford - Sun Moon (Zardonic Remix)
+02. Agressor Bunx - Battlespace
+03. Andy Pain & Z - Connection - Asteroid Belt
+04. Anile ft. Blu Mar Ten - Lyssakses(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 08:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18D00F04D8A771654CEEAA7D8EA987C5F241DC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295993   (615241) от 15.04.2019
 
 VA - Yabba Funk: Soul Full Radio (2019) [MP3|320 Kbps] <Funk Soul, Funky House>
@@ -696,64 +760,6 @@ VA - Sweet & Sexy, Vol. 1 (Beautiful Relaxing Music) (2016) [MP3|320 Kbps] <Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D934F40A1D6C1F7C762211EC2C610D0EA3F16D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037871   (610228) от 26.07.2016
-
-VA - The Best - In Music We Trust Vol.3 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610228.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Quintino -  Rock It To The Beat 3:38
-002. Blasterjaxx & DBSTF -  Parnassia (Edit) 3:10
-003. Dimitri Vegas & Like Mike Ft. Wolfpack & Katy B -  Find Tomorrow (Ocarina) (Bodybangers Remix) 5:41
-004. Nicky Romero -  Ready 2 Rumble (Original Mix) 2:59(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 06:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3993BC968772AE1DE3FACA19FF18BC1EC1A4DC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036535   (610195) от 26.07.2016
-
-VA - Deep, Dark & Dangerous: Volume 1 (DDDC01) (2016) [MP3|320 Kbps] <Dubstep, Deep dubstep, Dark dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abstrakt Sonance - Circuit (5:02)
-02. Akcept - Gacrux (5:12)
-03. Arkwright - Icycole (7:27)
-04. Bisweed - Screaming Target (6:06)(   Читать дальше...   )Жанр: Dubstep, Deep dubstep, Dark dubstepПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C9C8BA2C60B0D686EC831D16EF1A92A046055A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

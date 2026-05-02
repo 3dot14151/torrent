@@ -1,3 +1,119 @@
+###  Публикация: 1465794   (1018780) от 28.04.2021
+
+Serpentine - А Тоuсh Оf Неаvеn (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Touch Of Heaven
+02. Whatever Heartache
+03. Lonely Nights
+04. For The Love Of It All(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C803EFB2D72ED8BFF350A18CEFFFA669C72BE1FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466181   (1018648) от 29.04.2021
+
+Faithful Grace - A New Era (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devil In Disguise 5:13
+02. High On Believin’ 4:11
+03. Get Off My Back 5:06
+04. Tear It All Down 3:43(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C5593865ACE5FF94A839B0A2A6A2D557509A295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466355   (1018446) от 30.04.2021
+
+Doogie White - As yet Untitled - Then There Was This (2021) 2xCD, Bonus CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018446.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Come Taste the Band (05:32)
+02. Time Machine (03:57)
+03. Dreams Lie Down and Die (05:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:579C832110A1A354E632E4D03D4189446EC7318F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466663   (1018264) от 01.05.2021
+
+Soulkick - No Turning Back (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Turning Back
+02. No Shelter
+03. Mirror Eyes
+04. When the Lights Are Gone(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:316825CB28D80D11046BD03C8F5D8760A3715987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1466748   (1018251) от 01.05.2021
 
 Hunter - Hungry Heart (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -629,122 +745,6 @@ VA - Vae Victis III (2001) [FLAC|Lossless|tracks + .cue] <Hard Rock, Heavy Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E037D9CBFE59D2DE1C17E387618B905FE42E5C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470725   (1015509) от 18.05.2021
-
-The Party Boys - She's A Mystery: Greatest Hits (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's Gonna Step On You Again (4:10)
-02. She's A Mystery (3:28)
-03. Is This The Way To Say Goodbye (3:01)
-04. Gloria (3:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53B9F5C18FA50E1920891A1DDD711775D49E27AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471345   (1015168) от 20.05.2021
-
-Liar Thief Bandit - Deadlights (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadlights 04:17
-02. Brand New Day 03:48
-03. Good Enough 03:21
-04. Catch And Release 03:44(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5238E835F8B0AD112C9507A54A1EFCE8E45477E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471347   (1015164) от 20.05.2021
-
-Tesla Shamans - Electric Storm (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Shit (03:08)
-02. Believe (03:39)
-03. Wasted (03:03)
-04. Down on the Road (04:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCD893E12D815688CCC893F9FC9CA9BBD6A0FD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1471686   (1014911) от 21.05.2021
-
-Robin McAuley - Standing on the Edge (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thy Will Be Done
-02. Standing On The Edge
-03. Late December
-04. Do You Remember(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAE67718C3E8BDA4A43844AFFE5D19F3875F090
 ```
 
 https://mybot314.ru/tekegram_catalog/

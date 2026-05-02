@@ -1,3 +1,173 @@
+###  Публикация: 1775001   (71122) от 04.02.2025
+
+Fates Warning (Arch/Matheos; Ray Alder) - Studio Albums (18 releases) (1984-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fates Warning — американская прогрессив-метал-группа, образованная в Хартфорде, штат Коннектикут, в 1982 году.1984 - Night On Brocken
+1985 - The Spectre Within
+1986 - Awaken The Guardian
+1988 - No ExitЖанр: Progressive MetalПродолжительность: 15:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE360B4F650911EF05278DCDC972AF6B61C6C93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777070   (71110) от 04.02.2025
+
+Be'lakor - Studio Albums (5 releases) (2007-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Be'lakor — австралийская рок-группа, основанная в 2004 году в Мельбурне.2007 - The Frail Tide
+2009 - Stone's Reach
+2012 - Of Breath and Bone
+2016 - Vessels(   Читать дальше...   )Жанр: Melodic/Progressive Death MetalПродолжительность: 04:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B48558B6935761FFE842C991B28B8A621026BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777281   (71059) от 05.02.2025
+
+Enshine - Studio Albums (3 releases) (2013-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Enshine - международное сотрудничество музыкантов из Швеции и Франции.2013 - Origin
+2015 - Singularity
+2021 - Transcending Fire (EP)Жанр: Melodic Death/Doom MetalПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FC10EB2ED900E5178C8D3F38993A0BCDA728281
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777820   (70973) от 07.02.2025
+
+Canterra - Studio Albums (2 releases) (2016-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Canterra - метал-группа с женским вокалом из Лейпцига, Германия.2016 - First Escape
+2020 - HeartmachineЖанр: Symphonic/Gothic MetalПродолжительность: 01:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CFEEF1BC4E01952022114C0AC77CCE5DC405945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777826   (70939) от 07.02.2025
+
+Dreamland - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dreamland — группа из Швеции, играющая в стиле мелодик-пауэр-метал.2005 - Future's Calling
+2007 - Eye For An Eye
+2009 - Exit 49Жанр: Power MetalПродолжительность: 02:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB62A4D72FF04AC9CFEBF47D5A2FBE15E9213F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778883   (70785) от 10.02.2025
+
+The Last Band - Studio Albums (4 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Deathrock, Thrash>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70785.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Last Band — шведская рок-группа из Гётеборга, начала свою деятельность в начале 2011 года.2012 - Mean Machine
+2015 - Rats of Gothenburg
+2016 - The Fall
+2018 - HisingenЖанр: Hard Rock, Deathrock, ThrashПродолжительность: 02:07:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2FA646273187BF14D039B0B1D3BB77DF69967CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779996   (70561) от 16.02.2025
 
 VA - Музыкальный Бутерброд (2001) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Rock>
@@ -564,177 +734,6 @@ Fatal Embrace - метал-группа из Варберга, Швеция. Б�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B510205E1DEEE2394E91EC0CAA5FFDE43D65B4D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783153   (69846) от 04.03.2025
-
-Adversor - Studio Albums (3 releases) (2016-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adversor - трэш-метал группа из Италии, сформированная в сентябре 2015 года2016 - Rise To Survive
-2018 - The End Of Mankind
-2023 - Portrait of a WastelandЖанр: Thrash MetalПродолжительность: 01:54:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E46757FB9190B28A20736500DEB64C388A4D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783470   (69799) от 06.03.2025
-
-Thrashist Regime - Studio Albums (2 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69799.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thrashist Regime - трэш-метал группа из Абердина, Шотландия. Образована в 2007 году.2012 - Fearful Symmetry
-2018 - Carnival Of MonstersЖанр: Thrash MetalПродолжительность: 01:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E04E0BBB62A77B84E681ADC9E5A5F60E417EF72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784315   (69556) от 10.03.2025
-
-Kayser (Sweden) - Studio Albums (4 releases) (2005-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kayser - трэш-метал группа из Хельсингборга, Швеция. Образована в 2004 году.2005 - Kaiserhof
-2006 - Frame The World... Hang It On The Wall
-2014 - Read Your Enemy
-2016 - IV: Beyond The Reef Of SanityЖанр: Thrash MetalПродолжительность: 03:10:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4065AB796F73AE9ED637A6EB358F5F190F3A5B33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784645   (69506) от 13.03.2025
-
-Cryptosis (ex-Distillator) - Studio Albums (5 releases) (2015-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cryptosis - голландская метал-группа, сформированная в 2013 году под названием Distillator и сменившая название на Cryptosis в 2020 году.2015 - Revolutionary Cells (as Distillator)
-2017 - Summoning the Malicious (as Distillator)
-2021 - Bionic Swarm  (as Cryptosis)
-2025 - Celestial Death  (as Cryptosis)Жанр: Thrash MetalПродолжительность: 03:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E65845E4D2717CD66D2BA7628A0B010C5C12B85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784904   (69477) от 13.03.2025
-
-Moonsorrow - Voimasta Ja Kunniasta (2001) Released, 2017, Blood Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Folk Metal, Viking Metal, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69477.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Tyven
-A2 - Sankarihauta
-A3 - Kylän Päässä
-B1 - Hiidenpelto Including Häpeän Hiljaiset Vedet(   Читать дальше...   )Жанр: Folk Metal, Viking Metal, Black MetalПродолжительность: 00:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A5B1995B612EFFACDE0A6095C4C423FD3E83E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784828   (69471) от 13.03.2025
-
-Space Chaser - Studio Albums (5 releases) (2013-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Space Chaser — немецкая трэш-метал-группа из Берлина.2013 - Decapitron (EP)
-2014 - Watch The Skies
-2016 - Dead Sun Rising
-2021 - Give Us LifeЖанр: Thrash/Speed MetalПродолжительность: 02:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6472F98FB26B9CC9F802692A05E93AA5576B4E9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

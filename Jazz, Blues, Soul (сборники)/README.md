@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1868167   (1067294) от 
+
+VA - Jazz Pulsations (2026) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emile Londonien, Leon Phal, Midva - Contenders [06:22]
+02. Faada Freddy - Tables Will Turn [03:40]
+03. Mos Def - Ms. Fat Booty [03:42]
+04. Prince Waly, Freeze Corleone - Balotelli (feat. Freeze Corleone) [03:29](   Читать дальше...   )Жанр: JazzПродолжительность: 06:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3143747EC26EB1EAD7D98267D37B53D8C8342E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855611   (1058219) от 24.02.2026
 
 VA - Lounge And Jazz Background Music (2024) [MP3|320 Kbps] <Lounge, Jazz>
@@ -717,35 +746,6 @@ VA - Blues compilation part 2 Soulful Blues Ballads (2025) [MP3|320 Kbps] <Soulf
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B5F24CA3F3DA72EE60F41FD51FFEA9699F124EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844805   (1050418) от 28.12.2025
-
-VA - Fortune Teller Blues - Smming up the Results (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050418.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Playing For Change - Fly Like an Eagle [04:19]
-002. Popa Chubby - I'm Going Down [05:31]
-003. Def Leppard - Stand By Me [03:11]
-004. Professor Louie & The Crowmatix - Stick To The Plan [05:25](   Читать дальше...   )Жанр: Blues, Blues rock, InstrumentalПродолжительность: 08:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD37F7C4320E76FFE4C47E1B12C8216AD1DE377
 ```
 
 https://mybot314.ru/tekegram_catalog/

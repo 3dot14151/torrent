@@ -1,3 +1,61 @@
+###  Публикация: 1206522   (782144) от 14.02.2018
+
+Robert Moore - Outta My Soul (2012) 2014, Reference Recordings [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Time [03:42]
+02. Waltz for Debby [04:59]
+03. If You're Still in Love with Me [02:41]
+04. The April Fools [03:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12332AF7C8272784A0AF0218FCB20B47F3536124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206276   (782142) от 14.02.2018
+
+Adam Shulman Sextet - Full Tilt (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantasy in Db
+02. Lonesome Dream
+03. The Conquerer
+04. San Francisco National Cemetery(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E051DB47CDAF2C33FD85DEC5837FAB47FC135E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206519   (782140) от 14.02.2018
 
 Earl Klugh - Ballads (1976 - 1983) 1993, Manhattan Records [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop, Guitar Jazz>
@@ -686,64 +744,6 @@ Earl Hines - Spontaneous Explorations (1964) 2017, Solid Records [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7724CB1C92A408B972E62E9CCD9091C79A01177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208196   (780124) от 21.02.2018
-
-Bernard Primeau Jazz Ensemble - Virage (1997) Swing'in Time Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southend Stomp [06:36]
-02. Numbly [07:05]
-03. Con Alma [08:19]
-04. Traffic Jamm'n [09:15](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DDF3335887AB994274ABCC312E717F37283A7A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207957   (780123) от 21.02.2018
-
-Chico Hamilton with Paul Horn (1954, 1956, 1957) 2010, P-Vine Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porch Light [04:02]
-02. Autumn Landscape [03:44]
-03. Uyawda [04:43]
-04. Lolly Pop [02:19](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89AC385F6961D8D016C29EDE8FC31202DDDC48C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

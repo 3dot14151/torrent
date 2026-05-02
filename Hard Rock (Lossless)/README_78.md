@@ -1,3 +1,119 @@
+###  Публикация: 1193752   (205061) от 19.10.2022
+
+Axe - 10 albums, 19 CD (1979-2019) Discography [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская команда «Axe» была создана в 1978 году на обломках другой банды со Среднего Запада США - «Babyface». В ее первый состав вошли Бобби Барт (гитара, вокал), Эдгар Райли (клавишные), Майкл Осборн (гитара), Тедди Мюллер (ударные) и Майкл Терпин (бас). В 1979-м группа заключила контракт с «MCA Records» и записала дебютную одноименную пластинку. Альбом сразу (   Читать дальше...   )--------------------------
+
+01. Dangerous Games (4:45)
+02. Don't Come to Me (4:44)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, AOR |Продолжительность: 16:20:45 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7993C08F45D9044475970198A8D984A061A5036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1155275   (204920) от 22.10.2022
+
+Jorn - 40 albums, 54CD (1994-2022) [FLAC|Lossless|image + .cue |tracks + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204920.jpg" />
+</div>
+
+
+###  Подробнее
+
+Йорн Ланде - Культовый норвежский певец, один из самых знаменитых вокалистов метал-сцены, обладающий мощным вокалом и невероятной работоспособностью. За 15 лет своей музыкальной карьеры в его активе более 20 студийных альбомов с полным или частичным участием и около дюжины концертных. В последние годы работает сольно и как сессионный музыкант.--------------------------
+
+01. Lightbringer (feat. Jørn Lande as Karthus) (4:56)
+02. Deathfire Grasp (feat. ZP Theart as Karthus) (4:00)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal |Продолжительность: 45:14:09 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04CA3A8B1244E09F2A2CDAE04D614A5A34756A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654765   (204898) от 22.08.2023
+
+Seven Ravens - After the Storm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deja Vu [00:04:58]
+02. Letting Go [00:05:13]
+03. Feels Like Home [00:05:23]
+04. Nevermore [00:05:28](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBC95D2B4E00767030481B902411844D559C87DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654699   (204864) от 22.08.2023
+
+Samuel Keen - Metamorphosis (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Embryonic (00:01:32)
+02 - Beyond The Grey (00:04:41)
+03 - Penance (00:04:10)
+04 - A Brief Glimpse Of Hope (00:04:19)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:52:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC3A728AA58783A1B6F7589ACA0B5D8C55D04B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654972   (204757) от 23.08.2023
 
 Phil Vincent - Divine Intervention (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -625,122 +741,6 @@ The Fires Below - Masquerade (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5EDD0FF69A081495A20C0424E55219923D3FBF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657215   (193135) от 02.09.2023
-
-Diamonds and Guns - Making Cash For Heartless Crooks (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Making Cash For Heartless Crooks (Intro) [00:01:04]
-02. So Long, Chicago [00:03:39]
-03. Nevertheless [00:03:54]
-04. September [00:04:14](   Читать дальше...   )Жанр: Hard Rock, Punk RockПродолжительность: 00:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A4B648EAE8ACCDBA3FDC782B7B950DC855BB4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657225   (193116) от 02.09.2023
-
-Art of Dysfunction - Art of Dysfunction (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bedford Blues (2:32)
-02. Hypnotise (5:00)
-03. Before The Moment Dies (2:52)
-04. Sunset Rider (4:13)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DEAD19A7EB5D65ED761306FAD0F3C036C46C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657229   (193113) от 02.09.2023
-
-Chris Manning - Reach the Sky - Reach the Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing But Time (5:19)
-02. Reach the Sky (4:50)
-03. Fly Over the Walls (feat. Bruce Kulick) (5:45)
-04. Freedom (5:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1CC06F41913458EF07651B458BDF38AC013AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657143   (193082) от 02.09.2023
-
-H.E.A.T - Extra Force (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom (3:06)
-02. Will You Be (4:18)
-03. Rise (Kenny Leckremo Version) (4:17)
-04. One by One (Kenny Leckremo Version) (3:47)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C466B333CFC397AE09A2F6B0A77628DE5D1F55AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

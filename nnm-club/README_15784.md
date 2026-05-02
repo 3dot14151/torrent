@@ -1,30 +1,22 @@
-###  Публикация: 561005   (406253) от 16.10.2012
+###  Публикация: 1325231   (408407) от 17.09.2019
 
-Juubee Ninpuuchou / Ninja Scroll / Манускрипт ниндзя [1993] BDRip 1080p raw + rus x2
+В этом мире я больше не чувствую себя как дома / I Don't Feel at Home in This World Anymore (2017) WEB-DL [H.264/1080p] [MVO]
 
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408407.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В провинции Ямасиро неожиданно начинается эпидемия чумы — уникальное событие для Японии. Все жители бегут оттуда, а глава одного из соседних самурайских кланов — клана Мотидзукэ, отправляет на разведку в эти места подчиняющиеся ему остатки клана ниндзя Кога.
-
-Однако какие-то странные существа, наделенные невероятной силой, мгновенно расправляются с незваными гостями, и спастись удается только девушке-ниндзя Кагэро, потому что ей в этом помог бродячий ниндзя-самурай Дзюбэй, смогший справиться с одним из этих странных существ.
-
-Но Дзюбэй и не догадывается, что убил не просто «демона», а одного из «Восьми Демонов Кимона», группы воинов с поразительными, нечеловеческими возможностями, и для оставшейся семерки он теперь — смертельный враг.
-
-Да еще и монах-шпион правительства Дакуан шантажоми обманом нанимает Кагэро и Дзюбэя на помощь себе, чтобы выяснить, что замышляют эти «демоны». И им приходится приложить все свои силы и способности, чтобы спасти страну от готовящегося нового витка братоубийственной войны…
-
-Попутно (   Читать дальше...   )Жанр: аниме, фэнтези, боевик, триллер, приключенияРежиссер: Ёсиаки Кавадзири, Кевин СеймурАктеры: Коиши Ямадера, Еми Синохара, Такеши Аоно, Дайсукэ Гори, Тосихико Секи, Сюитиро Морияма, Ричард Барнс, Сонни Биркетт, Ричард Кансино, Дин ЭллиотПеревод: Многоголосый закадровый, Одноголосый закадровыйПродолжительность: 01:31:37
+Этот мир — сущий бардак. Люди ведут себя как хотят — мусорят, сквернословят, автомобилисты не уступают дорогу пешеходам. В дом к чувствительной и слегка депрессивной Рут залезли хулиганы. И украли бабушкины ложки. Полиция не воспринимает жалобу женщины всерьёз, тогда Рут объединяется с немного сумасшедшим соседом, чтобы поставить хулиганов на место.Производство: США, Film Science, XYZ FilmsЖанр: Комедия, криминал, драма, триллерРежиссер: Мэйкон БлэрАктеры: Элайджа Вуд, Мелани Лински, Дэвид Йоу, Девон Грайе, Джейн Леви, Гари Энтони Уильямс, Кристин Вудс, Роберт Лонгстрит, Ли Эдди, Майрон НэтвикПеревод: Двухголосый профессиональный, авторский одноголосыйСубтитры: Русские (ненормативная лексика), английские, французские, немецкие, итальянские, испанские, китайскиеПродолжительность: 01:36:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09359109D58535026CCCA3C2A740BE91852CE4CA
+magnet:?xt=urn:btih:43DDDC34B212163BE2D7D9DB73B7B49573F2BC38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -32,55 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 560654   (406252) от 16.10.2012
+###  Публикация: 1325811   (408406) от 17.09.2019
 
-XCOM: Enemy Unknown [Ru/En] (P/1.0.0.5443) 2012 l FairLight 3xDVD5
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406252.jpg" />
-</div>
-
-
-###  Подробнее
-
-Станьте частью секретной военной организации под названием XCOM. Отныне вы и ваши соратники — последнее препятствие на пути враждебных инопланетян к завоеванию Земли. В роли командира спецподразделения вам предстоит распределять ресурсы, развивать технологии, разрабатывать общую стратегию сражений и определять тактическую диспозицию каждого солдата.
-
-Оригинальная XCOM — настоящая жемчужина мира компьютерных игр. И теперь ее идеи, возможности и тактическая глубина вновь оживут, благодаря стараниям сотрудников Firaxis.
-
-XCOM: Enemy Unknown привносит в мир XCOM новую историю, новых врагов и новые технологии, с помощью которых вам предстоит защитить Землю. Судьба человечества окажется в ваших руках. Только эффективно исследуя технологии пришельцев, развивая собственную базу, планируя операции и контролируя передвижения каждого бойца на поле боя, можно достичь успеха в этой войне.(   Читать дальше...   )Тип издания: ПираткаЖанр: Strategy \ 3DЯзык озвучки: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C3691971EB00C1579676CC40E688E50B3B222F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 555129   (406250) от 16.10.2012
-
-[PS3] Twisted Metal [PAL] [FULL RUS] [3.55] (2012)
+Очередное достижение: 3 PB+ отданного трафика от DOMKPAT
 
 >>3
 >>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408406.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Развлечения будущего жестоки и кровавы. За примером далеко ходить не нужно серию Twisted Metal хорошо помнят и горячо любят многие игроки. На сумасшедшем дерби, устроенном психом Калипсо, где правят бал калибр пушек и количество лошадиных сил, вас вновь ожидает взрывной коктейль из напалма, горелых шин и подлинного безумия. Дэвид Джаффе, создатель God of War, знает толк в брутальном экшене!Тип издания: ЛицензияЖанр: Racing, Action, ArcadeЯзык озвучки: РусскийЯзык интерфейса: Русский
+Очередное достижение: 3 PB+ отданного трафика от DOMKPAT!!!Друзья! - совсем недавно мы поздравляли нашего  товарища-одноклубника перешагнувшего планку 2 PB отданного Видео контента, а теперь есть повод поздравить его с очередным достижением!!!(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F45652182120B10CB54FD85B5975DE589E30702
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -88,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561245   (406249) от 16.10.2012
+###  Публикация: 1325883   (408405) от 17.09.2019
 
-Эрика Джеймс | Пятьдесят оттенков серого (2012) [FB2]
+Nantucket (2018) [En] (1.4c/dlc) License PLAZA
 
->>Художественная литература
->>Современная поэзия и проза
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пятьдесят оттенков серого - эротический роман, повергнувший в шок пуританскую (якобы) Америку. В США за 3 месяца было продано 15 млн. экземпляров. Но это абсолютно не значит, что книга хорошая. Сейчас вот, у них появился новый бестселлер какого-то отставного морского пехотинца, вокруг которого разгорелись страсти еще до выхода книги, потому что "бдительное" (   Читать дальше...   )Жанр: Современная проза, эротический романПеревод: Татьяна Китаина, Марина Клеветенко, И. МетлицкаяИздательство: Эксмо, ДоминоФормат: FB2Качество: Изначально электронное (ebook)
+Поохотьтесь на Моби Дика и поживите в золотой век охоты на китов в этой игре морской стратегии. Проплывите по семи морям, управляя своим кораблем и своей командой, а также поживите жизнью Измаила, единственного, кому удалось выжить с судна «Пекод», несколько лет после событий, рассказанных Мелвиллом в его шедевре.Тип издания: LicenseРазработчик: Picaresque StudioЖанр: Adventure, Strategy, RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:208926A881455B3586F231C07980740846FAF020
+magnet:?xt=urn:btih:CD722D2E6BCF6EECCC7B7BAE78E0CBB2DAF1957C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,25 +76,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561408   (406248) от 17.10.2012
+###  Публикация: 1325851   (408404) от 17.09.2019
 
-Sexy Girls Pack Wallpapers (16.10.12) [Wallpapers 16+]
+Борис Акунин | Семейный альбом (Книга 4). Трезориум (2019) [MP3, Александр Клюквин]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408404.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неспешно перелистывая старый семейный альбом, мы продолжаем рассматривать снимки, хранящиеся в нем. С пожелтевших от времени фотографий на нас смотрят уже знакомые по предыдущим страницам лица и лица тех, кого мы никогда не видели прежде. На сей раз они ведут свой молчаливый рассказ о еще одной значимой и трагической дате в истории нашей страны, в истории миллионов (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 10:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B559B993F4B89A563BC9EEBD11E73339308EE161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1325321   (408403) от 17.09.2019
+
+Супер 30 / Super 30 (2019) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408403.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой фильма Ананд Кумар открыл школу для одарённых студентов, где могут учиться только самые лучшие. Он вложил в этот проект много труда и начал реализовывать его в рамках программы «Супер 30». Ананд собирается сделать эту школу лучшей в стране, и он не остановится, пока не достигнет поставленной цели. Много лет назад главный герой был простым рабочим, зарабатывавшим (   Читать дальше...   )Производство: Индия / HRX Films, Nadiadwala Grandson Entertainment, Phantom FilmsЖанр: драма, биографияРежиссер: Викас БальАктеры: Ритик Рошан, Мрунал Тхакур, Nandish Singh, Вирендра Саксена, Садхана Сингх, Адитья Шривастав, Санкет Дешпанде, Панкадж Трипати, Ваибхав Гупта, Али ХажиПеревод: МногоголосыйСубтитры: русские (вшитые, на песни)Продолжительность: 02:33:55Реклама: логотип
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:499F06308BA6E2A2F43119B9E2B436F54551852A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948855   (408402) от 22.10.2015
+
+Футбол. Лига Чемпионов 2015-16. Группа E. 3 тур. Байер 04 Леверкузен (Германия) - Рома (Италия) (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 6144x4096
+Групповой этап Лиги Чемпионов Группа E. 3 тур. Байер 04 Леверкузен (Германия) - Рома (Италия).Телекомпания: НТВ+, Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:43:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8888E2A7B8299BF4DB4525BACD7C3EE68628F3C5
+magnet:?xt=urn:btih:B71BB70C9E85B742E686E3560F647124278FC1C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,25 +154,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561411   (406247) от 17.10.2012
+###  Публикация: 948712   (408401) от 22.10.2015
 
-Gilrs Wallpaper Collection (16.10.12) [Wallpapers 16+]
+Й. Сигети | Дени Дидро - выдающийся представитель воинствующего материализма XVIII века (1963) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408401.jpg" />
+</div>
+
+
+###  Подробнее
+
+В связи с 250-летием со дня рождения Дидро Издательство иностранной литературы публикует на русском языке книгу видного венгерского философа-марксиста, директора Института философии Венгерской Академии наук Йожефа Сигети. В книге Сигети дается анализ философских и атеистических взглядов Дидро, анализируются его естественнонаучные представления. Много внимания уделяет (   Читать дальше...   )Жанр: История, философияФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB24B0B88373D491AC94D67ACB2BD9198CFAFAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948836   (408400) от 22.10.2015
+
+Хоккей. НХЛ Сезон 2015-16. Флорида Пантерз - Питсбург Пингвинз (20.10.2015) WEB-DL [H.264/720p-LQ]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 5616х3744
+Матч регулярного чемпионата NHL сезон 2015-16 (Florida Panthers vs. Pittsburgh Penguins) (эфир от 20.10.2015)Телекомпания: ROOT SportsЖанр: СпортПродолжительность: 02:06:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28366C3C4C0EC10F5AD9A9968CD4A8645E89ADED
+magnet:?xt=urn:btih:9554F9679650565AC63DB85BFBA52E5B1A7E7157
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,519 +206,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 560855   (406245) от 17.10.2012
+###  Публикация: 949095   (408399) от 22.10.2015
 
-VA - Trance Night (2012) [MP3|320 кб/с]<Progressive, Trance, Dream>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & Andrew Bayer - Nothing Ever Lasts 07:14
-02. Manufactured Superstars & La Riots Ft Selina Albright - Born To Rock (Original Mix) 06:06
-03. Above & Beyond - On My Way To Heaven (Above & Beyond Club Mix) 07:52
-04. Sean Tyas And Giuseppe Ottaviani - Arcobaleno (Club Mix) 07:34
-05. Joop Feat. Tiffany Johnston - Just One Night (Original Mix) 06:54
-06. Armin Van Buuren - We Are Here To Make Some Noise (Extended Mix) 05:12
-07. Matt Bukovski - In Dreams (Original Mix) 06:35
-08. Ernesto Vs Bastian & Kay Wilder - Just In Bibber (Original Mix) 05:10
-09. Burzhuy & Tigran Oganezov - Springboard (Original Mix) 06:33
-10. Cj Arthur - Magnet (Den Rize Pres Blur8 Remix) 07:10(   Читать дальше...   )Жанр: Progressive, Trance, DreamПродолжительность: 01:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F41AD3868B430989231EF81652B5A4DF3852C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561376   (406244) от 17.10.2012
-
-Nature Wallpapers (15.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC4FFD3BCBD337286FE1BBE6F96D1065307A8FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561412   (406243) от 17.10.2012
-
-Gilrs Wallpaper (16.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 3000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9AE38A614B0D32348FF9E81D467CB34B9BEFA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559890   (406241) от 17.10.2012
-
-VA - All Colours Of Deep (2011) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mage - Cosmic Station
-02. Aaron Bond - Face The Truth
-03. High Feel - Clone
-04. Nemanoe - Movement In Uncertainty
-05. Kasper & TekSketch - ReEntry
-06. Mage & DJ Ike - Visions Of Love
-07. Nelver - Grand Case
-08. Nelver - Flatline (Nelver Remix)
-09. Beatchemist - I Can't Explain It
-10. White Fang - ConcealedЖанр: Drum and BassПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28ED36309E90BCB452AAEB2AB0E1BCA583D75279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560862   (406240) от 17.10.2012
-
-VA - Tranceffect 33 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ill Listen (Original Mix) - Armin van Buuren feat. Ana Criado
-02. Amsterdam (Original Mix) - Orjan Nilsen
-03. K Ta (Original Mix) - Andy Moor
-04. From Bad To Worse (Original Mix) - I5land Vs.Matt Pincer
-05. New Born (Original Mix) - Tom Colontonio & Orla Feeney
-06. Plify (Original Mix Edit) - Ram
-07. Sirius (Ikerya Project Remix) - Eddie Lung
-08. Galactica - Nick Rowland
-09. Everblue (Adam Foley Remix) - Michael Lee
-10. Seek The Shore (Next DJ ILNY Mashup) - Sandeagle & Electribe vs Amanda Wilson(   Читать дальше...   )Жанр: TranceПродолжительность: 01:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03467B36D490303036E6C2F8CB7E575D731F9643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561578   (406238) от 17.10.2012
-
-[Wallpapers] HQ Wallpapers №56
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406238.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HQ Wallpapers №56
-Название: HQ Wallpapers №56
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1172EAB0E85F1A98F24528672CE1F8589DB8074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 560744   (406237) от 17.10.2012
-
-Butterfly - Favorite Colors Episode 052: 1 Year Anniversary Special (06.10.2012) [MP3|320 кб/с]<Progressive, Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glenn Morrison -  I See You In Me (Original Intro Mix)
-02. Matt Bukovski feat. Tiff Lacey -  Swept Away (Original Mix)
-03. Velvetine feat. Aruna -  The Great Divide (Soundprank Remix)
-04. Protoculture -  Perpetual Motion (Original Mix)
-05. Phillipo Blake & EDDY feat. Nika -  We Stroll Together (Alex Tasty Remix)
-06. Ralphie B -  The Holy Grail (Original Mix)
-07. Stoneface & Terminal -  Gallery Of Sound (Club Mix)
-08. Bobina -  The Space Track (Andrew Rayel Stadium Remix)
-09. Tenishia -  Where Do We Begin (Andrew Rayel Remix)
-10. Menno De Jong -  Guanxi (Original Mix)(   Читать дальше...   )Жанр: Progressive, TranceПродолжительность: 01:59:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94275FC8E5D0ADAB1BC11C76D48B37955BC20A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561400   (406234) от 17.10.2012
-
-Wallpapers Fantasy (15.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B028D04FF3A90ADFD3B5D8668825141829F561B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561331   (406232) от 17.10.2012
-
-Reel People - 10 Years Of Soulful Bliss (2012) [MP3|320 кб/с]<Deep House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Star (feat. Tony Momrelle)
-02. Can't Stop (feat. Angela Johnson)
-03. It Will Be (feat. Tony Momrelle)
-04. Butterflies (feat. Dyanna Fearon)
-05. Outta Love (feat. Omar)
-06. Golden Lady (feat. Tony Momrelle)
-07. The Light (feat. Vanessa Freeman)
-08. Alibi (feat. Darien)
-09. Second Guess (feat. Jag)
-10. The Rain (feat. Sharlene Hector)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:41:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FFF2BD3A33943C0C7011E6905A5FE89E655996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561706   (406230) от 17.10.2012
-
-Журнал | Формула ремонта №2 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406230.jpg" />
-</div>
-
-
-###  Подробнее
-
-Информационный журнал о дизайне, строительстве и ремонте. Состоит из редакционных статей с комментариями специалистов на данную тему, демонстрации интерьеров дизайнеров, тест-драйвов и мастер-классов от хендмейкеров. Кто, как не мы можем рассказать, что ремонт в доме можно делать с удовольствием!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97239A06DA76F0DEE8FBE0D660BE45BBE83C83DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561381   (406227) от 17.10.2012
-
-HQ Wallpapers for a desktop (15.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406227.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D650D8B0F42153FC2A3109DD989860FB7902BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559933   (406224) от 17.10.2012
-
-VA - dBridge & InstraMental - Fabriclive 50 (2010) [MP3|320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riya - Seems Like
-02. Instra-mental - From the Start
-03. Stray - Pushed
-04. Dan Habarnam - Nu Este Roz
-05. Vaccine - Ochre
-06. ASC - Starkwood (Consequence Remix)
-07. Consequence - Lover's Shell
-08. Distance - Sky's Alight (Dub)
-09. Alix Perez - Self Control
-10. Genotype - Distorted Dreams / Meleka - Go (Accapella) - Meleka(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 01:13:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35EF509AB2D33C862E7580CF0509FFCA6C653105
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559928   (406222) от 17.10.2012
-
-VA - Danny Wheeler Presents - The Brazil Project (2010) [MP3|128 - 320 кб/с]<Drum and Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406222.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Laranjeiras - Azymuth (Danny Wheeler Remix)
-2. Juntos Mais Uma Vez - Azymuth (Danny Wheeler Remix)
-3. Sem Pressa - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
-4. 4 Eyed Viper - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
-5. Vibrasom - Sabrina Malheiros (Danny Wheeler Remix)
-6. Copa A Noite - Alex Malheiros and Banda Utopia featuring Sabrina Malheiros (Danny Wheeler Remix)
-7. Nao Quero Nem Saber - Sabrina Malheiros (Danny Wheeler Remix)
-8. Butterfly - Azymuth (Danny Wheeler Remix)
-9. Maracateura - Sabrina Malheiros (Danny Wheeler Remix)
-10. Deixa a Nega Gingar - Clara Moreno (Danny Wheeler Remix)(   Читать дальше...   )Жанр: Drum and BassПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C52C63BA832C7ABAE2350C59EAD064EAF2D8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561563   (406221) от 17.10.2012
-
-Журнал | Здоровье в доме №41 [2012] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406221.jpg" />
-</div>
-
-
-###  Подробнее
-
-О печени уже писали. И читатели знают, что от нее зависит здоровье всего организма. Но все равно многие не на шутку рискуют печенью. Бьют по ней ежедневно! Алкоголем, жирной или фастфудовской едой, токсичными веществами (в быту их полно!) и лекарствами.
-То, что печень современного человека нуждается в защите, уже не секрет. Так чем же ее защитить? Правильным питанием. Включите в рационе продукты из 5 основных групп: злаки, молочные продукты, овощи и фрукты, а также жиры и белки (чтобы определить суточную долю белка в граммах, умножьте свой вес на 0,8). Пейте от 1 до 2 литров жидкости в день. И посвящайте минимум 30 минут физическим нагрузкам. При работе с химикатами используйте маску и перчатки, проветривайте помещение. Будьте осторожны со спиртным. А если вам назначены лекарства, попросите врача также посоветовать вам гепатопротекторы (средства для защиты печени).
-И еще - не злитесь, а лучше улыбнитесь!Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B784310AB13680C04D5BC8ED3C92436BE3D026BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561682   (406218) от 17.10.2012
-
-Журнал | Народный лекарь №19 [октябрь 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал создан для тех, кто заботится о своем здоровье, ведёт здоровый образ жизни и интересуется как традиционными, так и народными методами лечения и профилактики различных заболеваний. В каждом номере – авторские статьи, интервью с ведущими специалистами в области фитотерапии, гомеопатии и народной медицины, а также письма читателей с советами и рецептами.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79B023C9975DD5DD4EA3FECD8239D6602CD9C21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561399   (406214) от 17.10.2012
-
-Desktop Wallpapers (16.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CDB4372CD8D803C4612BDBE5E586D06B8F88EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561419   (406212) от 17.10.2012
-
-VA - Deep+   Vol. 5 (2012) [MP3|320 кб/с]<Deep House(Tech House,Vocal House)>
+VA - Aquarell Herbst (2015) [MP3|320 кб/с]<Lounge, Downtempo, Chillout>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alloise - Love Me Or Leave Me (Anturage & Amnesia Haze Dual Sided Mix) (4:56)
-02. Andrew Bayer - You (8:08)
-03. Biotones - My Little Inner World (Original Mix) (6:12)
-04. Kasper Bjorke - Bohemian Soul feat. Laid Back (Adana Twins 'On A Cloudy Day' Remix) (7:05)
-05. Brian Berg, Voxhoff - Have It All (Original Mix) (6:51)
-06. Bunte Bummler - The Hunger (feat. Daniel Wilde)(Betoko Remix) (7:16)
-07. Calippo - When Freddy's Done (Original Mix) (5:49)
-08. Chocolate Avenue - see dem boys (original mix) (7:06)
-09. Chocolate Puma - Destiny feat. Colonel Red (Lorenzo Kurizu Remix) (7:25)
-10. Chris James feat. Ria Moran - Song For Her (Audiojack's Dub for Ra) (6:09)(   Читать дальше...   )Жанр: Deep House(Tech House,Vocal House)Продолжительность: 04:30:01
+001. Walnut Grooves - Secret Escapes - Buddha Cafe Lounge Mix (05:31)
+002. Jive Ass Sleepers - Life In The Slow Lane (03:49)
+003. Summer Witch Music - Lazy Summer Days (02:03)
+004. Hansel Steiner - Epiphany (05:23)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 07:34:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFE8B05A60F3A080F4771ECECBA730C52DA4F698
+magnet:?xt=urn:btih:6FDB6DF4CDCBC091ABE1CE93280D979D03BF23CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,25 +235,201 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561441   (406204) от 17.10.2012
+###  Публикация: 948938   (408398) от 22.10.2015
 
-Artworks by BossLogic [Графика]
+Grant Green - Visions (1971) /2009, EMI Music/[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Does Anybody Really Know What Time It Is [05:13]
+ 02.Maybe Tomorrow [04:56]
+ 03.Mozart Symphony #40 In G Minor, K550, 1st Movement [04:08]
+ 04.Love On A Two Way Street [04:48](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99099527530BBCB45A6DB9927D1D6D4F5E8E4E78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067079   (408397) от 28.10.2016
+
+VA - Осенняя позитивная 100-ка. Сборник 6 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408397.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yana Beliz - Влюблена
+002. Geo Da Silva - I Love U Baby
+003. Слава - 2 Л 2 Ю
+004. Chris Brown - Little More(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F78FEACD03DD0095D5697D1FC2D9368CB56899F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067323   (408396) от 28.10.2016
+
+Templates for Pages 5.1 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Templates for Pages - красивые и полезные шаблоны для Apple’s Pages.
+Коллекция включает в себя различные, более 2100 типов шаблонов, от визитных карточек и брошюр для плакатов и приглашений. Современные и профессиональные макеты в сочетании с Вашей творческой составляющей будут безошибочно указывать идентичность.
+
+Некоторые шаблоны состоят до 6 различных страниц, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 октября 2016Разработчик: Graphic NodeПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7467E8C6A08B74CB790CF8BEA0C672CB981D723C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067287   (408395) от 28.10.2016
+
+И. А. Байкалов | Ленин и Сталин о печати (1933) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408395.jpg" />
+</div>
+
+
+###  Подробнее
+
+История человеческого общества является историей борьбы классов. На более высокой ступени развития борьба между враждебными классами становится борьбой политической. В. И. Ленин говорил, что «самым цельным, полным и оформленным выражением политической борьбы классов является борьба партий.
+
+В процессе этой борьбы каждая партия выковывает необходимое оружие, которое (   Читать дальше...   )Жанр: История, политология, литературоведениеФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067223   (408394) от 28.10.2016
+
+Nat King Cole - Top Pops (1963) 2007, Collectors' Choice Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Somewhere Along The Way [02:53]
+ 02.Walkin' My Baby Back Home [02:39]
+ 03.Faith Can Move Mountains [03:13]
+ 04.Funny [02:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EB85475BC70354A498A553DF911516CB3A5B764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067275   (408393) от 28.10.2016
+
+VA - Популярный драйвовый хитовичок. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408393.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Alex Mica - Afrodita 3:39
+002.Andre Tay - Детство 4:05
+003.Arti - Параллели 3:39
+004.Auryn Feat. Anastacia - Wh's Loving You 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37090EBF160D1174C2D8DB3ABB4386288F0970A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067352   (408392) от 28.10.2016
+
+LSB - Content LP (2016) [MP3|320 Kbps] <Drum & Bass>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408392.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Artworks by BossLogic
+01. Lydian (feat. Millie Watson)
+ 02. Pandora (feat. Sense MC)
+ 03. Missing You (feat. Tyler Daley & DRS)
+ 04. The Optimist(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:05:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:69D41B9DEF3229B17AD454C88DD989E884FDC375
+magnet:?xt=urn:btih:B73167D7C380E09F522BE5D2526ACC74D8084547
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -712,25 +437,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561728   (406202) от 17.10.2012
+###  Публикация: 1066747   (408391) от 28.10.2016
 
-Р.А.Шмаков (глав.ред.) | Дельфины служат флоту [1998] [PDF]
+VA - Promo Only Dance Radio October (2016) [320] <Tropical, Indietronica, Club, Progressive>
 
->>Научная и техническая литература
->>Военная литература
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник статей, посвященный истории создания и деятельности научно-экспериментальной базы Военно-Морского Флота на Черном море в районе Севастополя. База была создана для проведения исследований в натурных условиях по гидродинамике, гидроакустике, бионике и включала в себя экспериментальные лаборатории, специальные полигоны и единственный в Советском Союзе дельфинарий, в котором были выполнены уникальные эксперименты с дельфинами. В базе были проведены многочисленные исследования на крупномасштабных буксируемых и автономных моделях; база обеспечивала проведение испытаний на экспериментальной подводной лодке-лаборатории проекта 1710, которые были прерваны из-за распада Союза.Формат: PDF
+01. Britney Spears F./G-Eazy - Make Me (Marc Stout & Tony Arzadon Radio Edit) 03:56
+02. Cash Cash & Digital Farm Animals F./Nelly - Millionaire (Ftampa Remix - Clean) 02:40
+03. Christina Aguilera - Telepathy (Rare Candy Radio Edit) 03:11
+04. Deorro F./Pitbull & Elvis Crespo - Bailar (Remix) 02:37(   Читать дальше...   )Жанр: Tropical, Indietronica, Club, ProgressiveПродолжительность: 01:04:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEA6BE0FD4040534DDE97A5B0D58B018DF42775B
+magnet:?xt=urn:btih:15DAEFFD2CF03AE7156B93F23063874D65B6BBB4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -738,25 +466,256 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 561731   (406200) от 17.10.2012
+###  Публикация: 1067375   (408390) от 28.10.2016
 
-Журнал | Энциклопедия здоровья №18 [сентябрь 2012] [PDF]
+VA - Department Of Classics - Trance (2016) [MP3|320 Kbps] <Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above and Beyond Vs Andy Moor - Air For Life (4:03)
+02. Ferry Corsten Vs Armin Van Buuren - Brute (3:33)
+03. Jurgen Vries - The Theme (3:08)
+04. Svenson - Clubbin On Sunshine (Abnea Remix) (3:02)(   Читать дальше...   )Производство: Armada Music BundlesЖанр: TranceПродолжительность: 03:00:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067266   (408389) от 28.10.2016
+
+VA - Beatport Halloween Special (2016) [MP3|320 Kbps] <Deep House, Drum & Bass, House>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep House
+01. 11.Off - Distant Times
+02. Sons of Aoide - Mirage (Original Mix)
+03. Pete Oak - Askja(   Читать дальше...   )Жанр: Deep House, Drum & Bass, HouseПродолжительность: 18:16:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067090   (408388) от 28.10.2016
+
+VA - Night Star An Evening: Full of Emotions (2016) [MP3|320 Kbps] <Deep House, Chill House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modell - Do You Remember a Time - Deep Elements Mix
+02. Yolette Mercure - Pretty Amper - Cinosa Mix
+03. South Soul - Light Passion for Beauty - Beach & Fashion Mix
+04. Parfait Deblois - Heat Wave - On The Moon Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3EF515D0A713ED603FF5090E7ECF1A48784E687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067240   (408387) от 28.10.2016
+
+French Cookin' - If You Wanna (2016) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| How You Talkin'   (03:02) 
+  02| It Just Ain't Right   (02:55) 
+  03| How Happy Am I   (03:27) 
+  04| If You Wanna   (03:27) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA08D5672D7ED7EF5055EB9C0FF75A228E5C91C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067127   (408386) от 28.10.2016
+
+А. И. Тюменев | История античных рабовладельческих обществ (1935) [DJVU]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408386.jpg" />
+</div>
+
+
+###  Подробнее
+
+«История античных рабовладельческих обществ» А. И. Тюменева представляет собой очерк возникновения, развития и крушения рабовладельческих обществ древней Греции, элли­нистического Востока и Рима и предназначена для широких кругов советских читателей.
+
+Интерес к истории и историческому знанию необычайно возрос за последние годы, и его необходимо надлежащим образом (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067061   (408385) от 28.10.2016
+
+Paradise - Do Or Die (1992) [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Nightmares   (05:14) 
+  02| Voices   (04:33) 
+  03| Firin'  Line   (04:15) 
+  04| Fever   (03:46) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC13296412046C46D0D8B59397FB0ADF9550E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067151   (408384) от 28.10.2016
+
+Журнал | Добрые советы. Цветы в доме №11 (ноябрь 2016) [PDF]
 
 >>Журналы
->>Другие журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это издание своего рода настольная энциклопедия здоровья, в каждом выпуске которого вы найдете информацию посвященную лечению и профилактике наиболее распространенных заболеваний.Формат: PDF
+Основная часть издания — письма читателей, в которых они делятся своим опытом по выращиванию цветов, защите их от болезней и вредителей, обустройству балкона, террасы и зимнего сада. Выбор растений для интерьера, лечение и меры по защите растений, паутинная лилия, перец на подоконнике. И другие письма с рекомендациями по уходу за комнатными растениями - в номере.Жанр: ЦветоводствоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F0A34BC7698DAE5476B827F05ECE4D551F39105
+magnet:?xt=urn:btih:8D422391E9ABA25DFC0A6A44DEDAB1D15217F78B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067225   (408383) от 28.10.2016
+
+Hamish Anderson - Trouble (2016) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Trouble   (04:07) 
+  02| Fire   (04:58) 
+  03| 18 Days   (04:10) 
+  04| Holding On   (03:54) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1067268   (408382) от 28.10.2016
+
+VA - Блатная волна Радио Шансон (2016) [MP3|256 Kbps] <Шансон>
+
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408382.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Александр Вестов - Золушка 3:33
+002.Александр Закшевский - За Тобой 3:27
+003.Александр Келеберда - Все Лучшее В Прошлом 3:26
+004.Александр Климм - Верь Мне 3:53(   Читать дальше...   )Жанр: ШансонПродолжительность: 06:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9D2E108A207EA6D8DFBF9519FA7D8980D347D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,207 @@
 https://t.me/izofen
+###  Публикация: 1867499   (1066971) от 25.04.2026
+
+VA - The Orient Collective: Path of the Drum (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaytor - Nomad Bazaar (4:04)
+02. Ivan Suvorov - Orchard (5:43)
+03. Gavr - Kamishek (7:22)
+04. The Friend - Vodun (6:42)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456187E8FE5C79CC5570004A792DECF45D86F163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867545   (1066928) от 25.04.2026
+
+Paul Mauriat - Magic (1982) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come vorrei
+02. Empty Garden
+03. New York New York
+04. Hard To Say I'm Sorry(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B78D1A7224ED9105F176D4C057CB9034FEF0FEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866962   (1066732) от 24.04.2026
+
+David Wilcox - Big Horizon (1994) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New World (3:27)
+02. Someday Soon (4:12)
+03. That's What the Lonely Is For (3:40)
+04. Show the Way (3:44)(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 55:06.333 (145 809 300 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4E9E0D3AF4B5DA4707AB816302ABDF1D85DB7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866507   (1066304) от 21.04.2026
+
+Tyler Bates & Joel J. Richard - John Wick: Chapter 4 (2023) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyler Bates - Big Wick Energy (1:48)
+02. Lola Colette - Nowhere to Run (2:54)
+03. Tyler Bates - Sand Wick (2:30)
+04. Tyler Bates - Change Your Nature (1:47)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060138B3A3DB1703D191736EE36A106B1BA0BBA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866526   (1066299) от 21.04.2026
+
+Raymond Wong - Shaolin Soccer (Убойный футбол) (2001) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066299.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Opening (1:44)
+2. Kung-fu  (3:49)
+3. Refrigerator (1:57)
+4. Making Buns (1:42)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0AE75D0324869831C89F16C47E6A5298CE32AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865291   (1065984) от 
+
+Carl Doy - Piano by Candlelight (1987) [FLAC|Lossless|image + .cue] <Pop, Music Hall, Light Music>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065984.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Memory
+2		Cavatina (Theme From The 'Deerhunter')
+3		Endless Love
+4		Theme From 'The Summer Of '42'(   Читать дальше...   )Жанр: Pop, Music Hall, Light MusicПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9FF898546C269A6B52E82D28C7C0949A1CE344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866142   (1065850) от 19.04.2026
+
+VA - The Orient Collective: Tales From the Sand (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaisser Bouzriba - Soul of the Oasis (4:29)
+02. Tamer ElDerini - Lafta (5:50)
+03. Kaisser Bouzriba - Yallah - Yallah (5:58)
+04. Moji - Bayatilar (3:20)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC309531E8B460AD805E8443D10AD640894F4CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864816   (1065647) от 16.04.2026
 
 Bond - Shine (2002) [FLAC|Lossless|image + .cue] <Electronic, Pop, Modern Classical>
@@ -543,209 +746,6 @@ Equals Sessions(   Читать дальше...   )Жанр: Ambient, Experiment
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6C1A7402CEE9BD8DA022F7E0FE1830E47EB820A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853664   (1057567) от 18.02.2026
-
-Сергей Киреев - Что ж вы, девки, приуныли? (2026) [MP3|320 Kbps] <Russian Folk Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Что ж вы, девки, приуныли [00:02:22]
-02 - Он в простынях увяз по локоть [00:02:27]
-03 - Я в кольчугу одет [00:03:27]
-04 - Первый снег начал танцы свои до упада [00:01:20](   Читать дальше...   )Жанр: Russian Folk PopПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123F85C0DAD948063B1312016D0F18521000534A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854432   (1057296) от 18.02.2026
-
-VA - The Greatest Love Songs From The Musicals (1995) [FLAC|Lossless|tracks + .cue] <Stage & Screen, Musical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Barrowman - Love Changes Everything (Aspects Of Love) (3:03)
-02. Valerie Masterson - Hello Young Lovers (King And I) (3:15)
-03. Henry Wickham - On The Street Where You Live (My Fair Lady) (2:29)
-04. Josephine Barstow - As Long As He Needs Me (Oliver) (4:18)(   Читать дальше...   )Жанр: Stage & Screen, MusicalПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28901FA4C5FE66327657E260BC8D8C1FE51B886
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853569   (1056800) от 13.02.2026
-
-VA - RC Cars (Недетские гонки) OST (2002) Оригинальные саундтреки [MP3|192 Kbps] <metal,Hard>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056800.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Deadushki - Track 01
-2.Deadushki - Track 02
-3.Deadushki - Track 03
-4.Deadushki - Track 04(   Читать дальше...   )Жанр: metal,HardПродолжительность: 00:01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285F4C25F512B88584A5077ABDD077754BA837DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851437   (1055677) от 06.02.2026
-
-The Nadas - New Start (1997) [FLAC|Lossless|tracks + .cue] <Rock, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost [0:04:58.08]
-02. Daisy [0:03:25.39]
-03. White [0:03:46.64]
-04. My Collection [0:04:55.68](   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9548E46F78AF04F8015E25574C4D33E882753DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851791   (1055606) от 06.02.2026
-
-Terra Incognita (Prem Joshua, Chinmaya Dunster) - No Goal but the Path (1993) [FLAC|Lossless|tracks + .cue] <World Fusion>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shepherd’s Dream
-02. Amazonas Juan
-03. Darshan
-04. Bop Du Bop(   Читать дальше...   )Жанр: World FusionПродолжительность: 00:46:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7DC97AB27878F28CB7865A2D2D0696E42D632F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850011   (1054072) от 25.01.2026
-
-Franck Pourcel - Cole Porter Story (2018) Remasterisé en 2018 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'est magnifique
-02. I Love Paris
-03. I've Got You Under My Skin
-04. In The Still of the Night(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:945D66E58A91960573C40BA70CDBB580C8BAF678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1847558   (1054009) от 26.01.2026
-
-Vayper - Матерные частушки (Алексей Иванов) (2026) [MP3|~190 Kbps (V2)] <Russian Folk Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Матерные частушки 01 (Алексей Иванов) MIX[00:02:47]
-02. Матерные частушки 02 (Алексей Иванов) MIX[00:02:41]
-03. Матерные частушки 03 (Алексей Иванов) MIX[00:03:25]
-04. Матерные частушки 04 (Алексей Иванов) MIX[00:04:22]Жанр: Russian Folk PopПродолжительность: 2 CD, 00:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64CFB9D31FDEC22FD9BE35B4C69183026A63BC8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

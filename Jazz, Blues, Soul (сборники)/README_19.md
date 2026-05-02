@@ -1,3 +1,32 @@
+###  Публикация: 1341473   (262307) от 28.11.2019
+
+VA - Soul And Love Song (2019) [MP3|320 Kbps] <Soul, R&B, Other>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262307.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Allуshа Jоу - Fnfl
+002. Jеаn Dеаux - It’s Whаtеvеr
+003. Quеntin Mооrе - Swееt Sроt
+004. K'nуа - Cоnstаnt(   Читать дальше...   )Жанр: Soul, R&B, OtherПродолжительность: 09:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E27A3ABAB293B47A12F351A3FF1111A86404BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838572   (260635) от 23.11.2025
 
 VA - No name compilation part 15 Soulful Blues Ballad (2025) [MP3|320 Kbps] <Soulful Blues Ballad>
@@ -722,35 +751,6 @@ Sons of Ashes - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE5B16607C18EDA9E588954BFD000997EB0FFA33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1833102   (246161) от 01.11.2025
-
-Мария Варгас - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ночной звонок
- 02 - Не для меня
- 03 - Забудь меня
- 04 - С любимыми не расставайтесь(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0733ACD61D93B5A4F961D174E5F30C2CAC9D18AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

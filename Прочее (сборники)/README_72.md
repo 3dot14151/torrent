@@ -1,3 +1,291 @@
+###  Публикация: 1290751   (673725) от 22.03.2019
+
+Heiko And Maiko - Techno Rock (2018) Radio Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673725.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Heiko And Maiko - Techno Rock (DJ Savin Alex Pushkarev Remix) Radio VersionЖанр: Club, DanceПродолжительность: 00:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10CD1512635B4B0B67ABADB24A73C7E958297943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030327   (673523) от 30.06.2016
+
+VA - Disco Dance 90s (2016) [MP3|320 Kbps] <Dance, Disco, Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673523.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bellini - Samba De Janeiro (Radio Edit)
+002. Cool Cut - Please Let Me Know (Radio Version)
+003. Masterboy - Everybody Needs Somebody (Single Edit)
+004. Masterboy - Is This The Love (Radio Edit)(   Читать дальше...   )Жанр: Dance, Disco, PopПродолжительность: 07:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13BE7A8356480E306F28E80F3C3666F67562901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223492   (673465) от 05.05.2018
+
+VA - The Official UK Top 40 Singles Chart 04.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris, Dua Lipa - One Kiss
+02. Ariana Grande - No Tears Left to Cry
+03. Drake, Big Freedia, 5thward Weebie - Nice For What
+04. Lil Dicky - Freaky Friday (feat. Chris Brown)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 02:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6A46B0BCD95D4EC3955EEF8038672C1D88A911
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223347   (673410) от 05.05.2018
+
+VA - Cocktail new music №33 (2018) [MP3|320 Kbps] <Dance, Club, R&B>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673410.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Akcent feat. Reea - Stole My_Heart
+002. Burak Yeter - French Kiss
+003. Camila Cabello feat. Kane Brown - Never Be The Same
+004. Dan Balan feat. Matteo - Allegro Ventigo(   Читать дальше...   )Жанр: Dance, Club, R&BПродолжительность: 06:45:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30415CE7A0EAF8090F1D7F8F611431414AFEB088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509888   (673060) от 13.06.2012
+
+VA - Club In Car Summer (2012) [MP3|320 кб/с]<Dance, Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kate Ryan - Robots (Extended Version)
+02. Sunrise Inc - Nina (Burak Zorlu Mix)
+03. Chris Parker - Rock'n'Roll Revolution (Extended USA Edit)
+04. Scooter & Lavelle, Sue Cho - Beats Inside My Head (Mattias & G80's Remix)
+05. Geo Angelo Feat. Alicia - My Baby (Savero Remix)
+06. Itay Kalderon feat. Gad Elbaz - Jerusalem (Club Mix)
+07. Azuro feat. Elly - Je Ne Sais Pas (R.I.O. Remix)
+08. Avicii vs. Lenny Kravitz - Superlove (Original Mix)
+09. Skrillex - Breakin' A Sweat (DJ Nejtrino & DJ Stranger Remix)
+10. Jordan Rivera - Keep On Holding (feat Spoonface - Firebeatz remix)2012Жанр: Dance, ClubПродолжительность: 04:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C1D3E3B5B8E2623936E0D2FBD74667B28A98640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509493   (673052) от 13.06.2012
+
+VA - Зарубежные Новинки Vol.55 from AGR (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuera - The Lost Island
+02. Rares & Joshua - Smile (Extended Mix)
+03. Florrie - Every Inch
+04. Cristiano Matto feat. Gabriele - Fight (Radio Edit)
+05. Meital feat. Sean Kingston - Be On Ya
+06. Medina - Good To You
+07. Iulian Florea feat. Stephanie Kay - Hide (Club Mix)
+08. Jennifer Lopez - Bailar Nada Mas
+09. Mellina feat. Bogdan Ioan - Can't Hide (Radio Edit)
+10. Justin Bieber - Die In Your Arms2012Жанр: PopПродолжительность: 03:01:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE781B85D91968FA88BDB62E84A34EB5EA3C64C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509955   (673051) от 13.06.2012
+
+VA - World R&B Delux (2012) [MP3|320 кб/с]<R&B, Hip, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_673051.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Labrinth - Earthquake (4:35)
+2. Urban Floorfillers - Pass Out-Tinie Tempah (3:57)
+3. Nicki Minaj - Starships (Explicit Edit) (3:30)
+4. Skepta - Make Peace Not War (3:10)
+5. Lloyd feat Andre 3000 & Lil W - Dedication To My Ex (Miss Tha (3:56)
+6. Dj Fresh feat Rita Ora - Hot Right Now (3:02)
+7. Cover Drive - Sparks (2:58)
+8. Mann - Buzzin (3:45)
+9. Drake feat. Lil Wayne - The Motto (3:53)
+10. Tyga - Rack City (2:30)2012Жанр: R&B, Hip, RapПродолжительность: 03:38:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B034A5B3724ED64CF6B13003A94C2F7492110937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509963   (672916) от 13.06.2012
+
+VA - Asia Lounge (2012) [MP3|320 кб/с]<Ethnic, Lounge, Relax>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672916.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dubsahara - Zentropy (7:11)
+2. Seoan & Friends - Mystery Of God feat. Seoan (3:54)
+3. Rain In Eden - Rumi (5:06)
+4. Bally Sagoo - Dil Cheez (4:07)
+5. Summer Chill - Journei (5:41)
+6. Red Buddha - Preaching of Buddha (5:27)
+7. James Asher - Red desert (5:39)
+8. Natacha Atlas - Amulet (Aywah Remix) (5:21)
+9. Jef Stott - Junjura (5:45)
+10. Aquila - Song of Laya (2:54)2012Жанр: Ethnic, Lounge, RelaxПродолжительность: 04:32:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC90E022A3900DBBF15C4343B4F1E54B21138E3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509664   (672816) от 13.06.2012
+
+VA - Deep Line. Erotic Lounge (2012) [MP3|320 kbps]<Downtempo|Lounge|Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Antennasia - Lost
+02. Melody Gardot - So Long
+03. Sow Keng Poon - Lover's Tears
+04. Van - The Beauty Of The East
+05. Haley - I Remember
+06. Sophie Zelmani - The Years
+07. Sugar Brownie - Facing The World - Soul 2 Lounge Mix
+08. Wolf Myer Orchestra Ft. Lylit - Soulgate
+09. Depeche Mode - Goodnight Lovers
+10. Etro Anime - Let It Go(   Читать дальше...   )2012Жанр: Downtempo|Lounge|ChilloutПродолжительность: 03:36:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35477E67B98F7323883AF6423C38AFA3342718B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 510121   (672692) от 13.06.2012
 
 VA - Deep Line. Erotic Lounge Vol. 2 (2012) [MP3|320 kbps]<Downtempo|Lounge|Chillout>
@@ -497,264 +785,6 @@ Corona - Rhythm Of The Night (2017) Remix [MP3|256 Kbps] <Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34406465C8B793BCAA868C6C31C2E1B3F75AD9DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291271   (670027) от 24.03.2019
-
-VA - Дискотека 2019 Dance Club Vol. 189 от NNNB [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part 1 (Discoteka 2019!):
-01. Dani Corbalan - Back to Love (Original Mix) (4:54)
-02. Housefly feat. Elaine Winter - In My Mind (5:35)
-03. Nadi - Dance (3:13)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 15:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CC5900FFA4DEF36C1B77B6667EBCB7424224FB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223934   (669778) от 07.05.2018
-
-VA - Eurodance Syndicate (2018) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669778.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Soundstream - Back Once Again
-002. Axwell /\ Ingrosso - Dreamer
-003. Active Surfers - Everyday In My Lie
-004. Justin Bieber, BloodPop® - Friends(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A35EA064F43766B97A502D62694CE251C6FA240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223920   (669625) от 07.05.2018
-
-VA - Welcome To Remini Radio Romantic (2018) [MP3|320 Kbps] <Italo Disco, Eurodance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669625.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Italove ft. Ken Laszlo - Disco Queen
-002. Italove - Too Late to Cry (Matt Pop Club)
-003. Mimosa - In Love (Short Sunshine Mix)
-004. Annalisa - Il Mondo Prima Di Te(   Читать дальше...   )Жанр: Italo Disco, EurodanceПродолжительность: 11:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E5E7B3AF102B4B5A3997790D399000D390E046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137010   (668691) от 25.05.2017
-
-VA - Дискотека 2017 Dance Club Vol. 164 от NNNB (2017) [MP3|320 Kbps] <Pop, House, Trance, Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668691.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  DJ Sava feat. Barbara Isasi - Nena 3:25
-002.  Mahmut Orhan feat. Eneli - Save Me 2:52
-003.  Antonio Jose & Cali Y El Dandee - Tu Me Obligaste 3:24
-004.  ATB - Connected 3:36(   Читать дальше...   )Жанр: Pop, House, Trance, Club, DanceПродолжительность: 17:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1123D58748FEC2EDAD7B15A6A8CD2B1E71256E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031301   (668518) от 03.07.2016
-
-VA - Summer Club Music Promo - Bestfriend Party (2016) [MP3|234-320 Kbps] <Dance, Eurodance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Sun Goes Down (Savi x Lema Remix) 05:20
-02. SAINT WKND feat. INGLSH - Lost (Runaway) (Fabich Remix) 04:01
-03. Italobrothers - Kings. Queens (Video Edit) 03:22
-04. Kago Pengchi - Yeowoobii (Radio Edit) 03:38(   Читать дальше...   )Жанр: Dance, Eurodance, ClubПродолжительность: 15:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7228830CA9A02BC82CB652E0C41B63365450BB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291662   (668407) от 25.03.2019
-
-Bloodhound Gang - Uhn Tiss Uhn Tiss Uhn Tiss (2019) Radio Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668407.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bloodhound Gang - Uhn Tiss Uhn Tiss Uhn Tiss (G-Love Remix) Radio EditЖанр: Club, DanceПродолжительность: 00:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE680C51C2CD3616A9E5B463E21A4431D2E715A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224075   (668009) от 08.05.2018
-
-VA - Зарубежный Хит В Машину (2018) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Lopez - El Anillo
-02. Jessica Mauboy - We Got Love (Австралия на «Евровидении-2018»)
-03. Aisel - X My Heart (Азербайджан на «Евровидении-2018»)
-04. Ariana Grande, Max Martin, Ilya Salmanzadeh - No Tears Left To Cry(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EB95A119349A5C4DA70153DCFA9510BC343FC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137458   (667938) от 26.05.2017
-
-VA - SpaceSynth & ItaloDisco Hits Vol.23 (2017) [MP3|320 Kbps] <Іtаlо-Dіsсо, Sуnthpор, Hі NRG>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  D.White - Generous Love (Extended Version) 7:13
-02.  Miko Mission - Rock Me Round The World (Club Version) 5:08
-03.  Ray Orion - A New Adventure Of Orion 5:53
-04.  Modern Tracking - Running Away 5:40(   Читать дальше...   )Жанр: Іtаlо-Dіsсо, Sуnthpор, Hі NRGПродолжительность: 04:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33964F404BF90D75103DF7055AF27539931166E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137333   (667927) от 26.05.2017
-
-VA - Star Marathon Spring Mix (2017) [MP3|192-320 Kbps] <Dance, Club, Pop, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667927.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sean Paul feat. Dua Lipa - No Lie (DJ Corto Radio Mix)
-002. The Weeknd Ft. Daft Punk - I Feel It Coming (Loud Bit Radio Edit)
-003. Fitz & The Tantrums - HandClap (D.Anuchin & Gilevich Radio Mix)
-004. The Chainsmokers & Coldplay - Something Just Like This (R3hab Remix)(   Читать дальше...   )Жанр: Dance, Club, Pop, HouseПродолжительность: 08:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6A06C3745F6CDE27F36C83873060F643FAA9465
 ```
 
 https://mybot314.ru/tekegram_catalog/

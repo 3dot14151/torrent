@@ -1,3 +1,32 @@
+###  Публикация: 1722454   (56880) от 11.05.2024
+
+Александр Барыкин - Нелли (2006) [WavPack|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ну и пусть
+ 02. К тебе
+ 03. Её зовут Нелли
+ 04. Судьба(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7439ADB7F1BF7515D9FF288A6440DABFC520159B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726012   (55217) от 27.05.2024
 
 VA - Рок-сборник 3 (В одной обойме) (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F40FB498D9B7CB37106CC27ACECD89AF8D17E270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754658   (40678) от 11.10.2024
-
-Воля и Разум - Иди на Свет (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кома
-02. Посткоматозный Бред
-03. Иди на Свет
-04. Грешник или Святой(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AD450E94CDC6379340054E597DD9544E59C8F23
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1400364   (719144) от 05.08.2020
+
+VA - Beach Grooves Maretimo Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Kinley - Partylife (Glitterpool Cut) (6:45)
+02. Housework - Culture Vibes (Drumflow Cut) (6:12)
+03. Clublife - Different Things (Poolside Mix) (6:17)
+04. Poolwave - Seaside (Laid Back Waves Cut) (5:36)(   Читать дальше...   )Жанр: Beach House, LoungeПродолжительность: 05:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC60469698DFE0A1DE05CE2A359EA5BA41DE68B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1400494   (719026) от 05.08.2020
 
 Devotion Island - Critical Mass (2020) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
@@ -709,35 +738,6 @@ Hydrangea - Discography 8 Releases (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4107C47EE6443C4D038FE5F440770712A73D59C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026699   (702311) от 16.06.2016
-
-VA - Deepalma Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Caster - Change (feat Leo)
-02. Juloboy & Toly Braun - I Remember
-03. Passenger 10 & Lika Morgan - Golden Sky (Sons Of Maria remix)
-04. Nora En Pure - U Got My Body (Return Of The Jaded remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D50D464B15B0D97CD03082AC3B3755D14917E1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

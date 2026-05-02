@@ -1,3 +1,61 @@
+###  Публикация: 1477782   (1010639) от 17.06.2021
+
+Melody Gardot - Sunset In The Blue (2021) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If You Love Me (4:35)
+02. C’est Magnifique (feat. Antonio Zambujo) (4:53)
+03. There Where He Lives In Me (5:49)
+04. Love Song (3:58)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82EBD3ADA8BE2164B6666EC8A695EDB684E70E4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478268   (1010355) от 19.06.2021
+
+Jennifer Porter - Sun Come And Shine (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010355.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sun Come And Shine (4:00)
+2. Show Me Your Love (3:53)
+3. When It's All Been Said And Done (3:14)
+4. Satin Shoes (6:30)(   Читать дальше...   )Жанр: Vocal Jazz, Blues, SoulПродолжительность: 00:46:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E932BBCFEA32819290FCF0025C885015D6F9A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478406   (1010183) от 20.06.2021
 
 Eddie Higgins With Strings - Moonlight Becomes You (2003) 2005, Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -687,64 +745,6 @@ Scott Robinson - Tenormore (2019) [FLAC|Lossless|tracks + .cue] <Swing, Bop, Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB49B203A6EC50012E5D2A65D6EBD6EEE0C4BB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483181   (1007027) от 12.07.2021
-
-Woody Herman - Brand New (1971) 2000, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sidewalk Stanley [5:26]
-02. After Hours [6:41]
-03. Since I Fell for You [4:05]
-04. Proud Mary [4:20](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, Jazz-RockПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F797E98DB632A5795FB8447A160247D24E2A3E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483205   (1007021) от 12.07.2021
-
-Chris Geith - Invisible Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invisible Reality (4:22)
-02. Whispers in the Night (5:10)
-03. Alive (4:16)
-04. Love Anchors the Soul (4:14)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABD87BC9800924774DC3DD3C8229D07BFA1D572
 ```
 
 https://mybot314.ru/tekegram_catalog/

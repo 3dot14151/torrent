@@ -1,3 +1,146 @@
+###  Публикация: 1018245   (757465) от 19.05.2016
+
+Mando Diao - Aelita (2014) [LPCM 2.0 96/24|DTS 5.1 96/24|Audio-DVD5|BD-Audio] <Electronic, Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Saturday 03:22
+02. Rooftop 04:57
+03. Money Doesn't Make You A Man 05:06
+04. Sweet Wet Dreams 04:41(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1C38E4E59F242F14A156FC0D194763CD734471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522655   (756639) от 08.01.2022
+
+Queen Of The Damned OST (2002) hand made [restored, declipped][FLAC 2.0|Lossless|44/16|tracks + .cue] <Stage & Screen, Nu Metal, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный саундтрек к фильму Queen Of The DamnedCD1 - Queen Of The Damned (original score by Richard Gibbs)
+CD2 - Queen Of The Damned (songs by Jonathan Davis)Жанр: Stage & Screen, Nu Metal, Alternative RockПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA11032AC2BC113E20A228B5C04D805E31CA55F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089641   (756572) от 05.02.2019
+
+Metallica - Master Of Puppets (1986) [WavPack 2.0|192/32|image + .cue|Vinil-Rip] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Battery 5:14
+02 Master Of Puppets 8:34
+03 The Thing That Should Not Be 6:36
+04 Welcome Home (Sanitarium) 6:30(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D29BC2D7BE47F2CAF87841F007B6A668FA38004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1395360   (755577) от 10.07.2020
+
+Fish - Something In The Air (1992) 45 RPM, Single [FLAC|Lossless|tracks] <Prog Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755577.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Something In The Air (Teddy Bear Mix)
+(John Keene)
+B1 Something In The Air (Album Mix)
+(John Keene)(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F438428D44C3DCE881E4A56F966E3AA90ABFDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522966   (754943) от 09.01.2022
+
+Aaron Neville - Devotion (2000) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-Audio] <Funk/Soul, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Devotion — последний полноформатный диск Аарона Невилла, посвященный спиричуэлсу. Очень мягкий, "сахарный" голос не только хорошо подходит к традиционным спиричуэлс "Banks of River Jordan," "Jesus Loves Me," "Mary Don't You Weep", но и в каверах рок-классики - "I Shall Be Release", "Morning Has Broken" и (   Читать дальше...   )01. Morning Has Broken
+02. Mary Don't You Weep
+03. By Heart, by Soul (Guest Vocals by Avalon)
+04. Bridge over Troubled Water(   Читать дальше...   )Жанр: Funk/Soul, PopПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A399BA1DDF90B8AB81B913996596E6E8D209B16C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523022   (754827) от 09.01.2022
 
 Deep Purple - Turning To Crime (2021) [DSD128 2.0|tracks|Vinyl-Rip] <Rock, Blues>
@@ -616,148 +759,6 @@ A4 Gymnopodie No. 1(   Читать дальше...   )Жанр: Prog Rock, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:566A2DD5A1B85B65F78EE5739A9AA3A81A0E131C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217800   (740002) от 07.04.2018
-
-Жанна Бичевская - Коллекция Винила (1974 - 1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Acoustic, Folk, Ballad>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acoustic, Folk, BalladПродолжительность: 04:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3DE9AF6A14160BE9E85CA2524BA4935871E3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283387   (739660) от 17.02.2019
-
-B.B. King - Live At San Quentin (1990) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739660.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Introduction By Warden Daniel Vasquez
-A2 B.B. King Intro
-A3 Let The Good Times Roll
-A4 Every Day I Have The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C83FEE1D77283C4544C18EAB51B708F7153E2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283365   (739595) от 17.02.2019
-
-Raffaella Carra - Collections (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A far l'amore comincia tu
-02. Felicita Ta Ta
-03. En El Amor Todo Es Empezar (A far l'amore comincia tu/Spanish version)
-04. Million Dollars(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:47:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC388BFC1759A326CB1C356478C811ED36EA035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842948   (738705) от 23.01.2022
-
-James Last - Trumpet A Go Go (1966) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 American Patrol
-A2 Wheels
-A3 Granada(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51E31FDA0E4EBBEC3AD7FBBECE8CA26784DA9FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526539   (738126) от 25.01.2022
-
-The Chemical Brothers - Dig Your Own Hole (1997) 2016 [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Big Beat>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738126.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Block Rockin' Beats
-A2 Dig Your Own Hole
-B1 Elektrobank
-B2 Piku(   Читать дальше...   )Жанр: Big BeatПродолжительность: 01:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798232F5F6E616E33A9AB2792F6BEC003A32D96C
 ```
 
 https://mybot314.ru/tekegram_catalog/

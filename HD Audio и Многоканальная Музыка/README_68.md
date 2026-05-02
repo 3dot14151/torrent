@@ -1,3 +1,177 @@
+###  Публикация: 1595340   (175816) от 04.12.2022
+
+Демонстрационный диск DTS 5.1 CD-Audio #11 (2022) [DTS 5.1 CD-DA| 44.1/16|image+.cue|DVD-Audio] <Rock, Demo>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175816.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну и вдогонку одиннадцатый диск. Как бы вторая часть вчерашнего релиза. Материал - аналогичный - рок различных авторов, исполнителей и годов выпуска. На мой взгляд, помелодичнее вчерашнего получился.
+Все треки также имеют шесть полноценных каналов звука.При подготовке использовался материал, представленный ув. meloman, который, впрочем, не скрывал, что и сам нашел (   Читать дальше...   )01. Fleetwood Mac- Don't Stop
+02. Foreigner - Juke Box Hero
+03. Hootie & The Blowfish - I only wanna be with you
+04. Mark Knopfler - Sailing to Philadelphia(   Читать дальше...   )Продолжительность: 01:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F53475C29521308E5A9B4D730B069AD716F07D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429648   (175788) от 07.12.2020
+
+Puhdys - Puhdys 11: Computer-Karriere (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop, Classic Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175788.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Computer-Karriere
+A2 Flieg Mit Mir
+A3 Jahreszeiten
+A4 Stop, Baby, Stop(   Читать дальше...   )Жанр: Synth-pop, Classic Rock, New WaveПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667932   (175455) от 10.10.2023
+
+Dismember - Death Metal (1997) Remaster, 2023, Nuclear Blast Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Of Fire (3:40)
+02. Trendkiller (2:12)
+03. Misanthropic (2:59)
+04. Let the Napalm Rain (3:27)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D43C1811093839ABBC69D686A85EE086A91DB282
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668014   (175449) от 10.10.2023
+
+Extrema - Tension At The Seams (2007) 30th Anniversary Edition, 2023, Extremateam [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash / Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Join Hands (30th Anniversary Edition) [00:03:46]
+02. Child O' Boogaow (30th Anniversary Edition) [00:03:58]
+03. Displaced (30th Anniversary Edition) [00:04:21]
+04. Truth Hits Everybody (30th Anniversary Edition) [00:02:17](   Читать дальше...   )Жанр: Thrash / Groove MetalПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9160494F048B6CFDC085E757413253A458F97D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668086   (175410) от 10.10.2023
+
+Behind the Scenery - Studio Albums (3 releases) (1997-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Behind the Scenery - Melodic Death Metal группа из Германии.1997 - Nocturnal Beauty Of A Dying Land
+2000 - ...of Honesty Forbidden
+2004 - RetroviseurЖанр: Melodic Death MetalПродолжительность: 02:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34AAA72DB8E8085B95AF966E6733A610E517CBDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667943   (175367) от 10.10.2023
+
+Trivium - Vengeance Falls (2013) Remaster, 2023, Road Runner Entertainment [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brave This Storm (4:30)
+02. Vengeance Falls (4:14)
+03. Strife (4:29)
+04. No Way to Heal (4:06)(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2337DCE919CDF85B0F206F7599BA1F7B4A505481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668017   (175328) от 10.10.2023
 
 Заточка - Острые края (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
@@ -571,179 +745,6 @@ Kings Crown - Closer To The Truth (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F288C977AC0E946251FD00DAC8A5A81ECEC485FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1669001   (173223) от 14.10.2023
-
-Noumena - Studio Albums (6 releases) (2002-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Noumena — мелодик-дэт-метал группа из Эхтяри, Финляндия. Образована в 1998 году.2002 - Pride_Fall
-2005 - Absence
-2006 - Anatomy of Life
-2013 - Death Walks with MeЖанр: Melodic Death MetalПродолжительность: 05:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02B8130AB524ACE1B3C6914CD77226239A1A1653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668775   (173222) от 14.10.2023
-
-††† (Crosses) - Permanent.Radiant.Remixed (2023) [FLAC 24/44.1-48|Lossless|WEB-DL|tracks] <Dreampop, Darkwave, Industrial Rock, Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensation (Suicideyear Remix) [00:03:00]
-02. Vivien (AWAY Remix) [00:03:04]
-03. Cadavre Exquis (DJ Tony G and Ern “Dogg” Medina In a Daize Mix) [00:03:01]
-04. Day One (Machinedrum Remix) [00:03:24](   Читать дальше...   )Жанр: Dreampop, Darkwave, Industrial Rock, SynthpopПродолжительность: 00:20:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3F5C439398DFF496F128706EA3E069895A84D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668688   (173213) от 14.10.2023
-
-Nitrate - Feel The Heat (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel The Heat [00:04:31]
-02. All The Right Moves [00:03:54]
-03. Wild In The CIty [00:04:49]
-04. Needs A Little Love [00:04:15](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15CAD70D20BF1C3ECA961CA9B537495AD3299BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668708   (173209) от 14.10.2023
-
-Golden Earring - Cut (1982) Remastered & Expanded, 2023, Red Bullet [FLAC 24/192|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173209.jpg" />
-</div>
-
-
-###  Подробнее
-
-14 – Future
-15 – Twilight Zone
-16 – Don’t Be Silly
-17 – Lost And Found(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 2CD, 02:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2613E07577393947DD90B07A07C6BAEC4F5A879F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668650   (173197) от 14.10.2023
-
-Black Sabbath - Reunion (1998) 25th Anniversary Expanded Edition, 2023, Epic [FLAC 24/192|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. War Pigs (8:28)
-02. Behind The Wall Of Sleep (4:06)
-03. N.I.B. (6:47)
-04. Fairies Wear Boots (6:20)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357D79819C7C6A9C23A0092302C366720AC4D00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668700   (173178) от 14.10.2023
-
-Пневмослон - Полегче, Потяжелее (2023) 2 EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2023 - Полегче
-2023 - ПотяжелееЖанр: Alternative RockПродолжительность: 2 CD, 00:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C993F2084E2006770EA7E423BC355B6E739C876
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1491628   (910347) от 25.08.2021
+
+Оверлеи - Etsy - Valentine overlay & Photoshop overlay - 774820931 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наложение боке в виде сердца и наложение для Photoshop.Формат: JPGРазрешение файлов: 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB007F6246B0E4543BE6908C38372CBB122FC65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491623   (910225) от 25.08.2021
 
 Оверлеи - 50 Cinematic Golden & Silver Bokeh Photo Overlays [JPG, ATN]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE78512D523EEB241C84D570324FB23CBAEE1F73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377831   (849573) от 23.04.2020
-
-Оверлеи - Design Bundles - 100 Aurora Borealis Photoshop overlays. Northern lights - 550783 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849573.jpg" />
-</div>
-
-
-###  Подробнее
-
-100 оверлеев для фотошопа. Северное сияние, оверлеи ночного неба, полярное небо.Формат: JPGРазрешение файлов: 1920x1279-12500x8333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3215CA87AA89DCE7D336AD1B27677E1FF51459D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1108505   (863194) от 25.02.2017
+
+Gerry Mulligan & Stan Getz - Getz Meets Mulligan In Hi-Fi (1957) 1999, Verve [FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Let's Fall In Love [06:28]
+ 02.Anything Goes [03:38]
+ 03.Too Close For Comfort [06:58]
+ 04.That Old Feeling [05:59](   Читать дальше...   )Жанр: CoolПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4E8F4C6CF846CFB1B515380D2045648D63D3272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497650   (863162) от 23.09.2021
+
+Terry Gibbs Quartet - Plays Terry Gibbs Featuring Alice McLeod (1963) 2012, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burton Up Your Lip [2:25]
+02. Up at Logue's Place [3:12]
+03. One for My Uncle [2:44]
+04. Ballad for Barbara [3:47](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BDAE1397162109EB2C7826F854C91F9C9B58915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999849   (863147) от 23.03.2016
 
 Bobby Hutcherson - Happenings (1966) Remaster, 1999, Toshiba[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -691,64 +749,6 @@ The Francis Wong Quartet - Pilgrimage (1997) Music & Arts[FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:674FAE9440BB6099DAED7EBCDB886ACE8E963219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109655   (857491) от 28.02.2017
-
-Horace Parlan - Up & Down (1961) Remaster, 2005, Toshiba [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Book's Beat [09:50]
- 02.Up And Down [06:12]
- 03.Fugee [07:13]
- 04.The Other Part Of Town [11:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D595A49DF397DF041D15BEBABA4DB81F3C3B021B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109652   (857461) от 28.02.2017
-
-Les McCann Ltd. - In San Francisco (1960) 2012, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Oh, Them Golden Gates [04:10]
- 02.Red Sails In The Sunset [08:32]
- 03.Big Jim [07:06]
- 04.I Am In Love [05:02](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Piano JazzПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70490E3D300C7A0486905E759245E141C8695C95
 ```
 
 https://mybot314.ru/tekegram_catalog/

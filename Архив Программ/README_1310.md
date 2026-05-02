@@ -1,3 +1,55 @@
+###  Публикация: 1070066   (371065) от 05.11.2016
+
+Microsoft Windows and Office ISO Download Tool 4.07 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371065.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Windows and Office ISO Download Tool - небольшая, бесплатная, не требующая установки в систему утилита для прямого скачивания образов дисков (ISO) дистрибутивов ОС Windows и Office с серверов компании Microsoft.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA6F15D5C3AE3207C8933EF7007FD77EBCD077A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575056   (371036) от 14.11.2012
+
+K-Lite Codec Pack Update 9.4.8 [English]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_371036.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - в различных вариантах содержит все самые популярные кодеки для проигрывания и кодирования видео (кроме версии Basic). QuickTime Alternative и Real Alternative являются дополнительными пакетами для проигрывания соответственных форматов и содержат основные компоненты от официальных проигрывателей. Update это обновление применимо для всех пакетов серии, а именно для K-Lite Codec Pack 9.4.x в различных вариантах (Lite, Basic, Standard, Full, Mega Codec Pack).Название программы: K-Lite Codec Pack UpdateЯзык интерфейса: English
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 574822   (371027) от 14.11.2012
 
 Greenshot 1.0.6.2228 Build 2228 [Русский]
@@ -628,58 +680,6 @@ MediaHuman YouTube Downloader - удобное приложение с помо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4FAEB7EF4D575AFBE1E6F2384EB5454D4DF33F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254922   (370680) от 15.10.2018
-
-Glary Utilities Pro 5.107.0.132 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE3DC6C36AA6EA38BC423DE7109224F38252CEE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254778   (370675) от 15.10.2018
-
-MediaHuman YouTube Downloader 3.9.9.7 (1310) Portable by Baltagy [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370675.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaHuman YouTube Downloader - удобное приложение с помощью которого можно быстро и легко загрузить понравившийся видеоклип или трейлер с YouTube, и сохранить его на ПК в любом доступном формате (MP4, FLV, WebM, DivX/Xvid, MOV, MPEG2/MPEG4, Apple TV, PSP, iPod, iPad, iPhone PS3, Wii, Xbox360, Zune и др.). Достаточно добавить ссылку на ролик, выбрать качество скачиваемого (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D15C2FCBFD21118433A8B78818F8BAB356F3D1C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

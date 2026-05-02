@@ -1,3 +1,32 @@
+###  Публикация: 757869   (915293) от 17.02.2014
+
+Videohive - Timeless Memories - 3829010 [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивый романтический проект на фоне листопада.
+Возможности;
+ - 3 min 10 sec long animation;
+ - 15 Place holders (All after effects so you can resize and increase the number);(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C4A7405DB639CE792C847380B05E8047B286999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097113   (915268) от 26.01.2017
 
 Проекты - VideoHive - Fast and Clean Slideshow - 19280493 [AEP]
@@ -652,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF2A03E5305DCF76AF96C97C3E6035C80D225A45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368386   (910274) от 19.03.2020
-
-Проекты - VideoHive - Glamorous Glass Fashion - 22118295 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910274.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Glamorous Glass» - это модный и современный шаблон After Effects. Профессионально анимированные с чистой текстовой анимацией. Хорошо подходит для самых разных целей, таких как презентации, церемонии награждения, слайд-шоу, продукты, промо, фотосессии и видеоролики о моде. Создайте потрясающее и модное слайд-шоу и ослепите свою аудиторию.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DD00FB998185271FECCAAB375488F3F80663C7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

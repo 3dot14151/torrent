@@ -1,3 +1,61 @@
+###  Публикация: 1043888   (569261) от 18.08.2016
+
+Nora McCarthy & The People Of Peace Quintet - Blessings (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Modern Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569261.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love Poem For The People
+2. Akara Moi Moi
+3. Nimbus
+4. Into The Middle Of Something(   Читать дальше...   )Жанр: Vocal Jazz, Modern JazzПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7161A407BDB23B5CB944425948A93D4628424E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043885   (569258) от 18.08.2016
+
+Tara Kannangara - Some Version Of The Truth (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Contemporary>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound the Alarm
+02. Stand in Line (Intro)
+03. Stand in Line
+04. Atoms for Peace(   Читать дальше...   )Жанр: Vocal Jazz, ContemporaryПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC411EDEF1E6C52831CA7604D49E7AB02B16AC9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044013   (569257) от 18.08.2016
 
 Reuben Wilson - The Sweet Life (1974) 2006, Groove Merchant[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -701,64 +759,6 @@ Water Music Suites Nos 1-3 for orchestra, HWV 348-350
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1B39633FC5814BD95C10900166240FA1F03E1CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1235000   (566008) от 08.07.2018
-
-Illinois Jacquet - The Illinois Jacquet Story: Flying Home (1944 - 1951) 2002, Proper Records [FLAC|Lossless|image + .cue] <Swing, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lester Leaps In [9:04]
-02. Blues [10:21]
-03. Body and Soul [10:28]
-04. I've Found a New Baby [9:26](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 01:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B3E79D266CF816A3E94DB6C1F34A77C1DEB34F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234816   (566006) от 08.07.2018
-
-Teddy Wilson - Stomping At The Savoy (1969 - 1971) 1991, Black Lion [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stompin' at the Savoy [4:25]
-02. Moonglow [4:35]
-03. As Time Goes By [2:32]
-04. Honeysuckle RoseЖанр: Swing, Piano JazzПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE82E0A4FB66B756C5AA01E9FB257D45692A4D1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

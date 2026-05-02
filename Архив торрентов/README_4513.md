@@ -1,3 +1,265 @@
+###  Публикация: 487066   (100290) от 23.04.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (23.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87A5A8809F9B81BFCB2697E74BD533D2EF857D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487068   (100287) от 23.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (23.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47148DF8F6FE6E2F5431916DB30DD0A58256B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487116   (100285) от 23.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers №28
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1280х1024 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C2A490DFDCF9B7516E5242B2DE011716C704B5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487111   (100284) от 23.04.2012
+
+[Wallpapers] Nature Pictures №50
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100284.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №50
+Название: Nature Pictures №50
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90EB5A72A4F651001BCB4B81B2DFD9E11C2FA946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487117   (100283) от 23.04.2012
+
+[Wallpapers] HD Wallpapers №19
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100283.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №19
+Название: HD Wallpapers №19
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE15064016AD230B90691EB4BF29F45F427A07F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486156   (100282) от 23.04.2012
+
+Askin Arsunan - One A Day (2004) [FLAC|Lossless]<Contemporary Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Five
+02. New Wave (of 212)
+03. Kriko
+04. Eastern Choo Choo
+05. One Day
+06. Bridge Over Troubled Water
+07. Ethno Karma
+08. Portrait (to be continued…)2004Жанр: Contemporary JazzПродолжительность: 00:50:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487092   (100281) от 23.04.2012
+
+[Wallpapers] Abstract HD Wallpapers (24.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E704D269E4DF0D9271DFAC551658FA6DED814DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487120   (100280) от 23.04.2012
+
+[Wallpapers] HD Wallpapers №20
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100280.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №20
+Название: HD Wallpapers №20
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A2F8AAF8A5A91C514410D186194807B3CD0823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 486619   (100277) от 23.04.2012
+
+Нильс (REGATO) - Зима (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зима
+02. Простуда (feat. LowKick)
+03. Минус
+04. Солнце
+05. Не про тебя (feat. Никита Стихами)
+06. Периметр чувств (feat. Спрут (REGATO))
+07. За глаза
+08. Она запомнит
+09. Нечто
+10. Эксперимент(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90B0690FD19122BC4744DF23E2C2404DA4219DAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 487093   (100276) от 23.04.2012
 
 [Wallpapers] Wallpapers - Miscellaneous topics (24.04.12)
@@ -443,260 +705,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D215F1D41CF4C96833F28EC2310D2F59E3114AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486446   (100155) от 22.04.2012
-
-Penthagon - Penthagon (2012) [MP3|320 кб/с]<Thrash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Trap Box
-02. All I Guess
-03. In The Name Of Peace
-04. Ash In My Hands
-05. Asleep Or Awake
-06. No Way Out
-07. Labyrinth Of Fear
-08. Shine Like The Sun
-09. InnuendoЖанр: Thrash MetalПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6648F6FB00B7C7FFFC4DAF18723D2477A1DD3CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485508   (100154) от 22.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers №27
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1600х1000 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EB166E198125DE7EAD4B67945DCE38FACF18DE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485660   (100153) от 22.04.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (21.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76849D66AB21081B3F726A6C307F614985DD9154
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485927   (100151) от 22.04.2012
-
-Avgrunn - Conceived Genetically Perverse (2012) [MP3|229-271 kbps]<Brutal Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 01:03
- 02. Cryopreserved After The Onset Of Putrefaction 03:25
- 03. Fatal Fetus Metamorphosis 04:06
- 04. Preimplantation Genoma With Experimental Alteration 02:30Жанр: Brutal DeathПродолжительность: 00:32:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA102889171C676A20AC381638FF86CB6A35912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486482   (100147) от 22.04.2012
-
-Mixed Wallpapers 0.9
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB5B86E457C487300CFCB454C8CD0BB365797A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 486366   (100145) от 22.04.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (22.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 4030х2746
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A0D19A9389D2932BA859EE03B7D33AC5DE9B06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485926   (100143) от 21.04.2012
-
-Рошко Алексей - Неофициальный сборник (2000-2007) [MP3|96 kbps]<Бард>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100143.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Близится новый год
-2. Где-то над городом, там над прохожими
-3. Две гитары
-4. Двор
-5. За пазухой котенка принесли
-6. Здравствуйте, товарищи родители!
-7. Корона
-8. Нездешняя
-9. Пёрышко
-10. Песенка кондукторши(   Читать дальше...   )2000-2007Жанр: БардПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11D24F5FC7B2582BBE78F91D3AC38ADEB46DBBAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485929   (100140) от 21.04.2012
-
-[Wallpapers] Wallpapers Fantasy №9 (Pavel)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола 50 шт
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C59B799B2CB7E2F59CBBA3022CF416699095BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485688   (100139) от 21.04.2012
-
-[EN] Афганец Люк / Afghan Luke (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люк Беннинг — внештатный журналист — зарабатывает на хлеб тем, что пишет рассказы о канадских солдатах, которые, к сожалению, не вызывают энтузиазма у редакторов. Во время своего последнего визита в Афганистан, до героя доходят слухи, что мол некий канадский снайпер собирает трофеи со своих жертв. И Люк решает написать свою следующую историю об этом неизвестном снайпере. А для того, чтобы собрать необходимый материал для статьи, решает вернуться в Афганистан, где и начинаются его злоключения…Жанр: ДрамаРежиссер: Mike Clattenburg  Майк КлаттенбургАктеры: Ник Стал, Стефен Лобо, Эли Либерт, Aнуша Aламан, Рахмат АзизиПеревод: ОтсутствуетПродолжительность: 01:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23334ABB78DED717AC60D9299A16DC2B7B4B0DD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

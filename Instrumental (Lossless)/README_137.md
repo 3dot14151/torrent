@@ -1,3 +1,119 @@
+###  Публикация: 1796996   (66862) от 13.05.2025
+
+Crystal Shawanda - Sing Pretty Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Preaching Blues (4:36)
+02.  Stop Funkin Me Around (3:48)
+03.  Would You Know Love (4:41)
+04.  I Gave up Everything for You, 'cept the Blues (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC3F22A95223533CDE14786692D3F3979F8FA116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797007   (66860) от 13.05.2025
+
+MHMM - Do Not Disturb (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Don't Mind (4:22)
+02.  When The Blues Is Falling Down On Me (5:45)
+03.  The Bridge (4:46)
+04.  Because I'm Down (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3442A0BD11615C71A708DA5F22DD899ABDB45387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797015   (66859) от 13.05.2025
+
+Ruthie Foster - Mileage (Deluxe Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mileage (4:11)
+02.  Rainbow (3:30)
+03.  Good For My Soul (3:31)
+04.  Heartshine (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEE2DD5B9AC7D56FFA12C44D6037361D3BF04D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797872   (66732) от 18.05.2025
+
+Mako, Kanoa - Blues in the Bar (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Broken Bottles (3:59)
+02.  Crossroads Cafe (3:44)
+03.  Echoes (3:39)
+04.  Fleeding Summer (3:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1D171F26AAF45C7F28F9524CB7AE847A84DAB75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797866   (66731) от 18.05.2025
 
 Brad "Guitar" Wilson - The Californian (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Catfish John Tisdell - True To My Core (2025) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78EA92D7924A04932CA1EAE1B432DEBC4A6EE02B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799935   (66350) от 30.05.2025
-
-Sandy Rogers - Tingling Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tingling Blue (4:51)
-02.  One of Those Kind (3:43)
-03.  Lonesome Man (4:58)
-04.  Fun for Christmas (4:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044D152A2471D9E96B16B8E74A4B8911C2539A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799934   (66347) от 30.05.2025
-
-Emma Wilson - A Spoonful of Willie Dixon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  SPOONFUL (4:56)
-02.  GOOD TO THE LAST DROP (4:53)
-03.  I CAN'T QUIT YOU BABY (4:41)
-04.  WANG DANG DOODLE (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACDDA6261FDD5C77254E3F423D1CDD3C6E6DBAF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799938   (66345) от 30.05.2025
-
-Tim Gartland - Right Amount of Funky (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Waste a Worry (3:40)
-02.  Right Amount of Funky (4:52)
-03.  A Better Life (3:20)
-04.  Walk Away (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38F50EC48417E8653A2D87ED77DB0EA6194C797D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801031   (66256) от 07.06.2025
-
-Reverend Freakchild - A Bluesman of Sorts (2025) (2CD) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Big Boss Man (4:13)
-02.  Ode to Billie Joe (6:54)
-03.  Hellhound on My Trail (5:43)
-04.  I Know You Rider (3:12)(   Читать дальше...   )Жанр: Blues
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62259E5B35B20D2B2723197F4948659439ABAE6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

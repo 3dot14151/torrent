@@ -1,3 +1,177 @@
+###  Публикация: 1695433   (120278) от 29.01.2024
+
+Chris Buergi - You Make Me Rock (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whenever You Smile (03:14)
+02. You Make Me Rock (02:50)
+03. Peaceful Dream (02:57)
+04. Glorious Planet (02:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2AF1ED531D2D410DDA48E607F5FE2B27AEFCD2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695426   (120275) от 29.01.2024
+
+The Fried Seven - Late to the Party (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Henderson (3:08)
+02. Every Tub (3:19)
+03. Guess Who's in Town (2:51)
+04. The Chant (3:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66BAFADEA570297A746743F13EB8774774F7F58F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695421   (120270) от 29.01.2024
+
+Matthieu Chazarenc - CANTO III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Les Sauvages (3:00)
+02. La Madone (3:28)
+03. Rue Marcelle (3:49)
+04. Torre del Mar (4:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA7782ACF97AFB052623F6EA17B11F00AC557F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695407   (120269) от 29.01.2024
+
+Arve Henriksen - Touch of Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melancholia (4:01)
+02. The Beauty of Sundays (3:28)
+03. Redream (8:47)
+04. The Dark Light (4:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B20A89740574934254C16334E1C8D7DBCF67E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695419   (120268) от 29.01.2024
+
+Kinga Glyk (Kinga Głyk) - Real Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Life (3:59)
+02. Unfollower (3:48)
+03. Who Cares (3:42)
+04. Island (5:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7A89BDAF64E21A089735D05304C20D8D7F21FC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695547   (120266) от 29.01.2024
+
+Beyond Border - Gathering (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Futurepop, Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Journey [00:05:16]
+02. Radiant [00:04:05]
+03. Hate Myself [00:04:11]
+04. Part Of Me [00:04:54](   Читать дальше...   )Жанр: Futurepop, SynthpopПродолжительность: 01:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE52484C67F194508BEF81677CE3A37703D9DE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695558   (120256) от 29.01.2024
 
 Still Remains - The Serpent (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
@@ -570,180 +744,6 @@ Paul Mccartney, Wings - Band On The Run (1973) 2024, 50th Anniversary Underdubbe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C57CC28C3EDFF919E159C0A2174FF52DA3DE921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696338   (119646) от 02.02.2024
-
-Юрий Гуляев - Ты Моя Мелодия (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119646.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Журавли
-A2 Желаю Вам
-A3 Три Поради
-A4 Дорогая, Сядем Рядом(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491E5A9CCAA242B7769F10759F6F74B452BBE99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696490   (119628) от 02.02.2024
-
-Dymytry - Five Angry Men (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dymytry - чешская метал-группа из Праги, которая описывает свой стиль как psy-core.Группа была основана в 2003 году Иржи Урбаном-младшим, сыном Иржи Урбана, основателя группы Arakain. Имидж группы основан на масках насекомых из Национального театра, мощных гитарных риффах, мелодичных припевах и наводящем на размышления вокале. Название "Димитрий" происходит (   Читать дальше...   )01. Enemy List 04:40
-02. Everything Is Black 03:39
-03. Wake Me Up (Before We Die) 03:18
-04. Legends Never Die 03:55(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACD201FFC03AD80D9595C02D3CD61964DAF9FAF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696267   (119626) от 02.02.2024
-
-Sigma - London Sound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Someone To Hold On To [00:03:34]
-02. Adrenaline Rush [00:03:04]
-03. Care About Us [00:02:28]
-04. The Corner [00:02:36](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1500788AE335B2B07CA4FA6CE6E23C1CA90AAB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696409   (119624) от 02.02.2024
-
-Guns N' Roses - Chinese Democracy (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chinese Democracy
-02. Shackler's Revenge
-03. Better
-04. Street of Dreams(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1334DD2E772241781EFDBD0E1FFA3171C44763B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696398   (119623) от 02.02.2024
-
-Guns N' Roses - The Spaghetti Incident? (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Since I Don't Have You
-02. New Rose
-03. Down On The Farm
-04. Human Being(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4233611F0A677A5E154E5D4A830CC020585F706
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696327   (119620) от 02.02.2024
-
-Guns N' Roses - Use Your Illusion I (1991) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Next Door To Hell
-02. Dust N' Bones
-03. Live And Let Die
-04. Don't Cry (Original)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A95BC5A40D544C64309FE56CC02056CE09A8752
 ```
 
 https://mybot314.ru/tekegram_catalog/

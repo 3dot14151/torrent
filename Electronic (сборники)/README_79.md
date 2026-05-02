@@ -1,3 +1,61 @@
+###  Публикация: 1128970   (724511) от 27.04.2017
+
+VA - Into The Night: Club Party (2017) [MP3|192-320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724511.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3Logy - The Banjo (Dj Desving Refresh) 4:52
+002. Cygnus X - Superstring (Matson Remix 2017) 4:28
+003. Groove Gangsters - Funky Beat (Red Line Remix) 4:28
+004. Madd Dave - Alpha (Original Mix) 3:38(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB3A5A10EF38B547BFD4FE9A835CF7BC4274A531
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023527   (724409) от 05.06.2016
+
+VA - Traxsource Top 100 April - May (2016) [MP3|320 кб/с] <Club, House, Minimal, Soulful, Indie Dance, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724409.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kevin McKay - What U Want (J Paul Getto Classic Mix) 07:13
+002. Alaia & Gallo - Who Is He? feat. Kevin Haden (Original Mix) 05:52
+003. Luca Debonaire - Dance! (Club Mix) 05:53
+004. Tonja Dantzler - In And Out Of My Life (Dario D'Attis Remix) 08:01(   Читать дальше...   )Жанр: Club, House, Minimal, Soulful, Indie Dance, Nu DiscoПродолжительность: 19:50:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB32377DCE50CF253A3A2773B063EE9F36F25B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023447   (724407) от 05.06.2016
 
 VA - Going Deeper: Lounge Erotic Tantra Affair and Sexy Chill Out Kamasutra Intimacy Music (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -691,64 +749,6 @@ VA - Drum & Bass Collection 22 (17.04.2011) [MP3|320 kbps]<Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56581802B952586A7749C5E3DCD8B08FF5E9A262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024104   (720197) от 07.06.2016
-
-VA - Charitable Foundation - Last Night Saved DJ (2016) [MP3|257-320 кб/с] <Tech House, Tribal, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endorphine - Our Night (Tanya Aura Remix) 07:15
-02. Dennis GRKN - Winner (Original Mix) 05:21
-03. DJ Sandro Mix - The Sick (Original Mix) 05:00
-04. Abel Ramos & Hurt - Believe (Extended Mix) 04:42(   Читать дальше...   )Жанр: Tech House, Tribal, Electro, ProgressiveПродолжительность: 09:30:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0588B7B970C84C39E1C2B3DE7A032C6631B83FF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024090   (720080) от 07.06.2016
-
-VA - Workout Mix vol.5 (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive House, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Porn Kings vs DJ Supreme Feat. Spencer & Hill - Up To The Wildstyle (Alexx Slam Remix)
-02-DMX - Party Up (DJ Zarubin & DJ Chippon Remix)
-03-Fatman Scoop feat. Snavs & Tropkillaz - Here We Go Now (Max Maikon Bootleg)
-04-DJ Fresh x DJ Schimolli  - Power Dibby Sound (DJ Oleg Petroff & DJ Cvet Mashup)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive House, TrapПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:632A07650403EB6957BDC8FD2CB810F031646A5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

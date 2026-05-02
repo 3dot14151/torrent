@@ -1,3 +1,33 @@
+###  Публикация: 875266   (858018) от 06.03.2015
+
+GYAS — Koiro Gensou (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858018.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:10] 01. くろねこまりさ - 恋色幻想
+[03:11] 02. Rig - Fall of Fall ～groove mix～
+[06:37] 03. 1005、姫、ジャッカル - 護るべき者、破るべき物
+[03:59] 04. Rig - 少女が見た日本の原風景 ～オルゴール～
+[03:07] 05. くろねこまりさ (   Читать дальше...   )Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58E8A4FBD821BFCF99C62EA9F1DF144A21AB94BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 190046   (857937) от 08.04.2010
 
 Shu-xiong Zhou - Cha Tao The Way Of Tea (1995) [MP3|320 kbps]<New Age>
@@ -713,41 +743,6 @@ Heartsdales - 2 альбома (2005-2006) [FLAC|Lossless]<J pop, Jurban, hip-ho
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 317263   (811384) от 01.04.2011
-
-Buddhist Monks Of Maitri Vihar Monastery - Sartori: Tibetan Mantras & Chants (1997) [MP3|192 kbps]<Tibetan mantras>
-
->>East Asian Music
->>Asian Traditional, Ethnic
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_811384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Album:  Sartori: Tibetan Mantras & Chants
-1.Three Monks with bowls and Cymbals - 00:02:14
-2.Three Mantra Chants - 00:03:06
-3.Buddhist Monks Choir - 00:13:46
-4.Chant with Cymbals and Gantra - 00:02:10
-5.Buddhist Monks Choir 2 - 00:15:10
-6.Three Deep singing Monks - 00:04:19
-7.Singing Bowls and Cymbals - 00:02:40
-8.Buddhist Monks Choir 3 - 00:17:13
-9.Triad Mantra Chant - 00:02:44(   Читать дальше...)Жанр: Tibetan mantrasПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:984B9CA3D64CC40779F7C5EEBD6DA4C5EF50E983
 ```
 
 https://mybot314.ru/tekegram_catalog/

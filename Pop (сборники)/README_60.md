@@ -1,3 +1,131 @@
+###  Публикация: 1144008   (631352) от 20.06.2017
+
+Zucchero - Hybrid of Zucchero Sugar Fornaciari (2017) [MP3|192-320 CBR,VBR Kbps] <Rock, Pop Rock, Blues>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamante
+02. Va pensiero
+03. Menta E Rosmarino
+04. Cosi Celeste(   Читать дальше...   )Жанр: Rock, Pop Rock, BluesПродолжительность: 04:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA883292DE3457A42088335F8FC8E5C0CDB7D26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292950   (631253) от 06.04.2019
+
+VA - Beautiful Songs For You Vol.01-27 (2019) [MP3|320 Kbps] <Pop, Romantic Ballads>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaron Neville - Tell It Like It Is 03:04
+02. Akord - Alina-ma 03:28
+03. Alison Moyet - That ole devil called love 03:05
+04. Alpha Ville - Forever Young 03:48(   Читать дальше...   )Жанр: Pop, Romantic BalladsПродолжительность: 127:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6D1BDEAD444A2442996E2CEBF1117AE8D39F029
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 520581   (630970) от 09.07.2012
+
+VA - Жаркий Авто Хит от DFM 50+50 (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Melvin Reese - All Day All Night (Original Mix)
+02 Вера Брежнева - Ищу Тебя
+03 Dj E-Maxx - Electro Bass (Radio Edit)
+04 Никита - Бессонница
+05 Robert Miles - Children (Mian Timore Remix)
+06 Полина Гагарина – Вернись Любовь
+07 Bueno Clinic - Sex Appeal (Max Farenthide Remix)
+08 Братья Гримм - Аллилуйя (Aksioma Project Radio Remix)
+09 Alexandra Stan - Mr Saxobeat (Ural Djs Dance Remix)
+10 Пыльца - Запасной АэродромЖанр: Pop,DanceПродолжительность: 06:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6825CCD2F6B8BF24EF143A8E504E0C45EB87117E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461747   (630369) от 04.07.2014
+
+Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects (1980) [MP3|320 кб/с]<Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Babe - The Drunken Sailor
+02. Theo Vaness - Bad Bad Boys
+03. Ottawan - You're OK
+04. T.H.P. - Good To Me
+05. Doris D. & The Pins - Shine Up
+06. A La Carte - Ring Me, Honey
+07. Methusalem - The Black Hole
+08. Gepy & Gepy - Body To Body
+09. Gilla - Tom Cat
+10. Pussycat - Rio(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908886   (630009) от 16.06.2015
 
 VA - Лето в кайф. Часть 2 (2015) [MP3|256 кб/с]<Pop>
@@ -659,122 +787,6 @@ VA - Союз летних хитов на Europa Plus. Часть 2 (2015) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10137E56AC154566933BA6E8D437C512F7EA0292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543999   (625531) от 13.04.2022
-
-VA - Relax FM for a Good Evening (2022) [MP3|320 Kbps] <Pop, Easy Listening>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PARTYNEXTDOOR - Break from Toronto (2:58)
-02. SITHEA - Right My Wrongs (2:00)
-03. MAX, Ali Gatie - Butterflies (3:14)
-04. Khalid - Present (2:35)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 02:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC82016E88BF087EBBF3EC38786CFFC23FE6C555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 909874   (625288) от 18.06.2015
-
-Жанна Фриске - Лучшие Песни (2015) [MP3|320 кб/с]<Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанна Фриске российская эстрадная певица, телеведущая, киноактриса. Солистка группы «Блестящие» (1996—2003). Сольная карьера исполнительницы продолжалась 10 лет — с 2003 по 2013 год. Полтора последних года Жанна боролась с непобедимой болезнью. Однако она не сдалась и не сломалась. Она продолжала бороться, вселяя надежду в сердца тех, кто был так же на грани жизни (   Читать дальше...   )01. Где-то лето
-02. Малинки
-03. Жанна Фриске
-04. Мама Мария(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C1B558755568EF7392F49340F124858F72BFE31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035890   (624378) от 18.07.2016
-
-VA - Любимая Музыка Для Твоей Тачки 50x50 (2016) [MP3|256 Kbps] <Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624378.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Beatstone - Забыть
-002. Penthox - Give It Away
-003. K.Melody - Позвони
-004. Paper Man - Sopresa(   Читать дальше...   )Жанр: РорПродолжительность: 06:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98007D2278EE25F45CF0FA5A19FC33865FF01FEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295052   (624108) от 10.04.2019
-
-VA - German Top 100 Single Charts 15.04.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624108.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rammstein - DEUTSCHLAND
-002. Capital Bra - Cherry Lady
-003. Shindy - Affalterbach
-004. Eno - Blackberry Sky(   Читать дальше...   )Жанр: PopПродолжительность: 05:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DA572F8806F45EEC542E949C5F5FAD6D98E7C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

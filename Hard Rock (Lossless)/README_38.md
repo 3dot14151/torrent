@@ -1,3 +1,119 @@
+###  Публикация: 1038486   (605054) от 29.07.2016
+
+Alaska - The Pack (1985) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run With The Pack (03:50)
+02. Woman Like You (03:37)
+03. Where Did They Go (Bonneville Blues) (04:41)
+04. Schoolgirl (05:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C30213C996ED372233B215AAF221DADDF1DD465B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546627   (604493) от 25.04.2022
+
+Riot Act - Closer To The Flame (2022) 2CD Digipack, Global Rock Records  [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604493.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rock City (03:43)
+2. 49er (05:40)
+3. Swords and Tequila (03:46)
+4. Overdrive (04:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 1:27:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2EAD4FAF7352F2B56F1C83C98EA857A19140528
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148003   (604303) от 05.07.2017
+
+Cheap Trick - We're All Alright! (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/13. You Got It Going On (3:11)
+ 02/13. Long Time Coming (3:12)
+ 03/13. Nowhere (2:45)
+ 04/13. Radio Lover (2:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:093597FCB76D11B4C05825CD7F9A3DBB924BD704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297285   (604068) от 22.04.2019
+
+A Caustic Fate - Chromatic (2019) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Revenant (4:41)
+02 - Sticks & Stones (3:25)
+03 - Resistance (3:39)
+04 - House of Cards (4:54)(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD11F8B28948FF910647CFC2113719DB3364E646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1297279   (604067) от 22.04.2019
 
 American Bombshell - Tattood ‘N Bruised (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -627,128 +743,6 @@ Train - Does Led Zeppelin II (2016) [FLAC|Lossless|tracks] <Hard Rock, Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD6837C619F5B0C9D55AE5DB7EA89A7B781EF7F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526702   (597300) от 24.07.2012
-
-Crucified Barbara - The Midnight Chase (2012) [FLAC|Lossless]<Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_597300.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Crucifier (3:25)
-2. Shut Your Mouth (4:04)
-3. Into the Fire (3:40)
-4. Rules and Bones (4:46)
-5. Everything We Need (3:17)
-6. If I Hide (4:23)
-7. Rock Me Like the Devil (3:46)
-8. Kid From the Upperclass (4:05)
-9. The Midnight Chase (4:05)
-10. Count Me In (5:00)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039011   (597160) от 31.07.2016
-
-Scorpions - Taken By Force (1977) 50th Anniversary Deluxe Edition, Remastered, 2015 [FLAC|image+.cue]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steamrock Fever 3:40
-02. We'll Burn The Sky 6:31
-03. I've Got To Be Free 4:05
-04. The Riot Of Your Time 4:14(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:295A54CF8731D124272D4DD0D8D39180FAC01934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549001   (595106) от 05.05.2022
-
-American Jetset - Cat's Got Your Tongue (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 3AM Charm City (00:00:35)
-02 - Bombs Away (00:03:13)
-03 - Cat's Got Your Tongue (00:04:06)
-04 - Tokyo Radio (00:04:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A6800A4F0A2DF06835BD68DDCDD42781D7509D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300162   (594843) от 04.05.2019
-
-Tom Keifer - The Way Life Goes (2017) Deluxe Edition [FLAC|lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solid Ground (04:05)
-02. A Different Light (03:56)
-03. It's Not Enough (03:04)
-04. Cold Day In Hell (03:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7217DA38AFAC35B7C199B1449BE18BD090D6DA2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1804426   (65614) от 29.06.2025
+###  Публикация: 1795182   (67153) от 03.05.2025
 
-Grupo Bryndis - Tu Amor Secreto (1995) [FLAC|Lossless|WEB-DL|tracks] <Latin, Cumbia>
+VA - Alternative Route (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65614.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tu Traición [00:03:34]
-02. Eres (Album Version) [00:03:41]
-03. Secreto Amor [00:03:29]
-04. Tu Lugar Se Ocupó (Album Version) [00:03:08](   Читать дальше...   )Жанр: Latin, CumbiaПродолжительность: 00:35:40
+01.  Rochus Rocky Hobi - Where I Belong (3:43)
+02.  Simon Zawila - Further & Further (2:46)
+03.  Clarissa Höbel - Take My Hand (2:59)
+04.  Thomas Kehl It's Me - It's so Nice (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:20:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:362D6876A67CFA17F709D188DDEE03A8BB07325C
+magnet:?xt=urn:btih:4AA1CD59EFA7530BD89F367190ADA83DEDF92246
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,577 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804419   (65613) от 29.06.2025
+###  Публикация: 1794805   (67152) от 03.05.2025
 
-MotoGP. Этап 10 из 22. Гран-при Нидерландов. Спринт (28.06.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65613.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 июня 2025, суббота. 16:00 МСК этап 10 Ассен. Гран-при Нидерландов. Спринт (13 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 00:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617088A6DE02C827523073AA867D69C11B5167E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804442   (65612) от 29.06.2025
-
-Broken Fate - Horizon (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stolen Art (04:43)
-02. Another World (04:56)
-03. All the Reason (03:54)
-04. Majority (05:45)(   Читать дальше...   )Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57166881A1661F44446EC324B88A2D6948E4BEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804260   (65611) от 29.06.2025
-
-The Biscuit Merchant - Tempora (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Modern Metal, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65611.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temporal Delusion [00:03:27]
-02. Kill Time [00:06:33]
-03. Victorious [00:05:13]
-04. Judgment Day [00:09:08](   Читать дальше...   )Жанр: Progressive Metal, Modern Metal, Melodic Death MetalПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42890E85DC57A365C1D61553F721A411A93A5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804390   (65610) от 29.06.2025
-
-Heaven Shall Burn - Heimat (2025) [MP3|320 Kbps] <Melodic Death Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keinen Schritt zurück [00:04:36]
-02. Schweineherbst [00:03:16]
-03. Eisenkopf [00:03:51]
-04. Destroy Fascism (Too Good to Steal from Edition) [00:01:58]Жанр: Melodic Death Metal, MetalcoreПродолжительность: 2 CD, 01:04:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:726C008623524CA7030734DB183B97846A589F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804261   (65609) от 29.06.2025
-
-Scott Sellers - One and, and, and, and One and, and Three and, and (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk / New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now Or Never [00:02:35]
-02. Commit-Submit [00:03:03]
-03. Conquer [00:03:11]
-04. Feel Better [00:02:39](   Читать дальше...   )Жанр: Punk / New WaveПродолжительность: 00:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8748DB7941904023D5671600A142245A61D88E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804466   (65608) от 29.06.2025
-
-Wanted - Cutting Edge (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cutting Edge
-02. Override
-03. Power
-04. Wasted Heart(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D59DADF52F68F5535F5DEC43A5567275BDD47D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804384   (65607) от 29.06.2025
-
-Enemy Ac130 Above - Cosmic Apotheosis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Deathcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diminishing Light [00:05:02]
-02. Vector Gamma [00:04:22]
-03. Nocturnal Vapor [00:04:39]
-04. Limitless Subversion [00:03:20](   Читать дальше...   )Жанр: Metalcore, DeathcoreПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A9FCCC009897A840838943B6D57C10EF12FD9BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804160   (65606) от 29.06.2025
-
-Metropolit - 3 Albums (2024-2025) [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Post-Punk>
-
->>Electronic
->>Industrial, EBM, Dark Electro (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65606.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2024 - Wash My Face With Your Embrace
-2025 - Born to Shoot Scarecrows
-2025 - You Won't Find Me HereЖанр: Darkwave, Post-PunkПродолжительность: 3 CD, 02:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82478FFC9BB4918CA8F8B6AE5CD78A3FCDE0498B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804372   (65605) от 29.06.2025
-
-Hot Milk - Corporation P.O.P. (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (How Do I) Make The Devil Fall Asleep [00:03:55]
-02. Insubordinate Ingerland [00:03:36]
-03. The American Machine [00:03:43]
-04. Hell Is On Its Way [00:02:12](   Читать дальше...   )Жанр: Alternative-Rock, Pop-RockПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5513549D028E54092845EA436E15A2A2222AE77B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804429   (65604) от 29.06.2025
-
-Awaken I Am - The Only Way Out Is Through (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65604.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me Under [00:03:52]
-02. Turn to Stone [00:03:07]
-03. Somebody Else [00:03:06]
-04. Relic [00:03:34](   Читать дальше...   )Жанр: Alternative-Rock, Post-HardcoreПродолжительность: 00:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A9891569093257732A9A4C222D28B6CC8C3942F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804471   (65603) от 29.06.2025
-
-DII Minores - March Of The Fallen (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65603.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Forest Of The Damned
-2. March Of The Fallen
-3. Firedevil
-4. At The Edge Of Time(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5899C234F8F555E7494676F3089D3E01BCC1F72C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804478   (65602) от 29.06.2025
-
-MotoGP. Этап 10 из 22. Гран-при Нидерландов. Гонка (29.06.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65602.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 июня 2025, воскресенье. 15:00 МСК этап 10 Ассен. Гран-при Нидерландов. Гонка (26 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиПродолжительность: 01:21:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6DD7FC02BD4AF46446AD41809799040A022BF6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804373   (65601) от 29.06.2025
-
-Военная тайна с Игорем Прокопенко (28.06.2025) WEBRip [H.264]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65601.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A924D05100131BEDF1B87B38739B14C29E5F57C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804740   (65600) от 01.07.2025
-
-Чудесный светофор / Сова-светофор (1938) WEBRip [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Забавная история о том, как сова случайно стала светофором на лесном перекрестке. И помогла навести порядок в лесном тропиночном движении. Ко всеобщему удовольствию.Производство: СССР / МосфильмЖанр: кукольный мультфильм, сказка, короткометражныйРежиссер: Георгий ЕлизаровСубтитры: отсутствуютПродолжительность: 00:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:958BEC1A03AC68AAD09EF75ECEED0FEF80332F39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804732   (65599) от 01.07.2025
-
-Шрифты - Dimitri Antonov - Behance - Folies Bergere font - 223317883 [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65599.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей 3 стиля.
-Материал раздаётся с официальной документацией.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364D2E8B03BFB228B66E56793376403AFD4EC0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804691   (65598) от 01.07.2025
-
-Семейный заговор / Family Plot (1976) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65598.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адаптация романа Виктора Каннинга 1972 года «Узор из райских птиц»... Пожилая женщина обращается к Бланш, экстрасенсу с подмоченной репутацией, и её парню Джорджу, чтобы найти своего племянника Артура, которого в детстве отдали на усыновление. Пара пытается выследить его, теперь уже взрослого мужчину, в Сан-Франциско. Однако Артур сам оказывается человеком с тёмным (   Читать дальше...   )Производство: США / Universal PicturesЖанр: драма, комедия, криминал, триллерРежиссер: Альфред ХичкокАктеры: Карен Блэк, Брюс Дерн, Барбара Харрис, Уильям Дивэйн, Эд Лотер, Кэтлин Несбитт, Кэтрин Хелмонд, Уоррен Дж. Кеммерлинг, Эдит Этуотер, Уильям Принц, Николас Коласанто, Мардж Редмонд, Джон Лен, Чарльз ТайнерПеревод: дублированный (BD EUR), профессиональный многоголосый (т/к Культура), профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (надписи и полные), английскиеПродолжительность: 02:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:863A30C55BD0430F649D12FC2C11186D5B101285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804674   (65597) от 01.07.2025
-
-Семейный заговор / Family Plot (1976) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адаптация романа Виктора Каннинга 1972 года «Узор из райских птиц»... Пожилая женщина обращается к Бланш, экстрасенсу с подмоченной репутацией, и её парню Джорджу, чтобы найти своего племянника Артура, которого в детстве отдали на усыновление. Пара пытается выследить его, теперь уже взрослого мужчину, в Сан-Франциско. Однако Артур сам оказывается человеком с тёмным (   Читать дальше...   )Производство: США / Universal PicturesЖанр: драма, комедия, криминал, триллерРежиссер: Альфред ХичкокАктеры: Карен Блэк, Брюс Дерн, Барбара Харрис, Уильям Дивэйн, Эд Лотер, Кэтлин Несбитт, Кэтрин Хелмонд, Уоррен Дж. Кеммерлинг, Эдит Этуотер, Уильям Принц, Николас Коласанто, Мардж Редмонд, Джон Лен, Чарльз ТайнерПеревод: дублированный (BD EUR), профессиональный многоголосый (т/к Культура), профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (надписи и полные), английскиеПродолжительность: 02:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712DF167BCDF506516C57C9312CF1624B28810F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804687   (65596) от 01.07.2025
-
-Про бегемота, который боялся прививок (1966) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень смешно, когда большой и сильный Бегемот боится обыкновенного укола.Производство: СССР / СоюзмультфильмЖанр: мультфильм, детский, короткометражкаРежиссер: Леонид АмальрикАктеры: Михаил Яншин, Георгий Милляр, Григорий Шпигель, Елена Понсова, Георгий ВицинСубтитры: отсутствуютПродолжительность: 00:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2DF45159BF7D23C3C4173F52CFCF21C0C51A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804632   (65595) от 01.07.2025
-
-Текстуры - Envato - Black Folded Paper Texture - 2KRU53C [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция текстур из черной сложенной бумаги, разработанная для улучшения вашего дизайна.Формат: JPGРазрешение файлов: 4500x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E63F0F7BBE6B70782309E3F8D873387656D9D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804672   (65594) от 01.07.2025
-
-Журнал | Квантик №5 (май 2025) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65594.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
-В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16CADBDC7737156FAED156919AB47B8DB18162EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804774   (65593) от 01.07.2025
-
-Растровый клипарт - Envato - Skate and Destroy - 90+ Punk Stickers Vol. 3 - S4XVNMF [EPS, SVG, PNG]
+Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Dusty Roses Flowers Watercolor [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65593.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дайте волю грубому отношению и скейт-панковскому бунту с этим огромным набором наклеек Skate and Destroy . В этой коллекции, содержащей более 90 нарисованных от руки графических изображений, собрана сырая энергия DIY из андеграундных скейт-журналов 80-х–90-х годов, хардкор-панк-листовок и гаражной культуры. Каждая наклейка отличается смелыми контурами, высокой контрастностью (   Читать дальше...   )Формат: EPS, SVG, PNGРазрешение файлов: 507x513 - 6642x2235
+Акварельный клипарт с розами.Формат: PNGРазрешение файлов: 4000 x 4000
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B69C10A557D98620247C4A38DD114957C01D7F59
+magnet:?xt=urn:btih:520D55DAD1A65D1D7B648617C5F590F7470A5E7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -605,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804775   (65592) от 01.07.2025
+###  Публикация: 1794780   (67151) от 03.05.2025
 
-Фоны - Envato - Saga Gradient Texture Background - RQ3MV6V [JPG]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Book Watercolor Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65592.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10 фонов с градиентной текстурой в высоком разрешении.Формат: JPGРазрешение файлов: 6400x4400
+Книжный акварельный клипарт.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E05A94A0008A4C529D62DBA13721567D88322463
+magnet:?xt=urn:btih:9C5FF6CB5BF8078A3B68DB3E04D85894279E2F15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,79 +79,609 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804666   (65591) от 01.07.2025
+###  Публикация: 1794793   (67150) от 03.05.2025
 
-Что-то положительное (2024) WEBRip [H.265/2160p] [4K, SDR, 8-Bit] (сезон 1, серии 1-8 из 8)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65591.jpg" />
-</div>
-
-
-###  Подробнее
-
-У старшеклассницы Насти сложные отношения с семьей и сверстниками. Родители все внимание уделяют старшей сестре Ангелине и младшему брату. Парень Марк, в которого влюблена Настя, не воспринимает ее всерьез, а лучшая подруга слишком правильная, чтобы делиться с ней своими переживаниями. Настю спасает только волшебный нарисованный мир, в котором она прячется от реальности. (   Читать дальше...   )Производство: Россия | NORM PRODUCTION, Originals ProductionЖанр: Драма, комедияРежиссер: Ника ЯковлеваАктеры: Таисья Калинина, Любовь Толкалина, Кирилл Кяро, Анастасия Красовская, Денис Косиков, Тимофей Кочнев, Дина Губайдуллина, Александр Пинаев, Инга Лепс, Юлия БедареваСубтитры: ОтсутствуютПродолжительность: ~00:25:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8679F864BF69BEBB5F289DFC967162B577D24B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804673   (65590) от 01.07.2025
-
-Журнал | Квантик №6 (июнь 2025) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Журналы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65590.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Квантик» – ежемесячный иллюстрированный журнал для любознательных школьников самого разного возраста. Читайте на его страницах занимательные рассказы и задачи по математике, физике, лингвистике, биологии, химии…
-В журнале много интересных рубрик: «Оглянись вокруг», «Математические сюрпризы», «Опыты и эксперименты», «Игры и головоломки», «Своими руками», «Наглядная (   Читать дальше...   )Жанр: Развивающий журнал для младшего школьного возрастаИздательство: НОУ «Московский центр непрерывного математического образования»Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E10E4E90F28DF42BB71D9958FD1F0948EF4EE60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804735   (65589) от 01.07.2025
-
-Шрифты - Dimitri Antonov - Behance - FARABEE Font - 225267503 [TTF]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Italy Watercolor Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт с кириллицей 14 стилей.
-Материал раздаётся с официальной документацией.Формат: TTF
+Акварельный клипарт на тему Италии.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47E9E3E91A79ED41B141860A93F5869FE3D488AF
+magnet:?xt=urn:btih:504DFFFD6F01BEC519629BA62FD2F954598F4966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794769   (67149) от 03.05.2025
+
+Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Sweet Treats Watercolor [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт на тему сладких угощений.Формат: PNGРазрешение файлов: 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C3F3854DE43C96F41C91894844C96E585D377A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794802   (67148) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Cute Kawaii Cat Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67148.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с кавайными кошками.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6000803756FC381BF2130E1956B22EA38F6676AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795274   (67147) от 03.05.2025
+
+Power Surge - Shadows Warning (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67147.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shadows Warning
+2. A Dream Into A Nightmare
+3. Breathe New Life
+4. With The Dawning(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5EBC57E55CCDF69CD6630E8E2AF1B1B16409D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794774   (67146) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Baby Girl Watercolor Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67146.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт на детскую тему.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9FBA08201D9A12B35CBF97A0E29AA6066D6994
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794778   (67145) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Boho Floral Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочный клипарт в стиле бохо.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1F3E10F27F3C48D32091BD92377F042CB11487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794790   (67144) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Astronaut Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт на тему астронавтов.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A675A56BA55987480F0475258BBA83DBFCA288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794987   (67143) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Easter Ducks Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пасхальный клипарт с утятами.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7BACCB2373F34D3005CA07CA384855D85CDC96B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794762   (67142) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Fairy Garden Watercolor Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт на тему "Сказочный сад".Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A2030190DDD1612AE8B11906A24D79321681D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794812   (67141) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Hot Air Balloon Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с изображениями воздушных шаров.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7D6896577DAFD3A94DB0A57359B6A6991F70FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795131   (67140) от 03.05.2025
+
+All for Metal - Gods of Metal (Year of the Dragon) (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67140.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Cry For Help (Intro)
+A2 Gods Of Metal
+A3 Year Of The Dragon
+A4 The Way Of The Samurai(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832D0DE88865E1AF3087BC25EADA79B86759BB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794773   (67139) от 03.05.2025
+
+Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Autumn Farm Watercolor [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67139.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенний клипарт на фермерскую тему.Формат: PNGРазрешение файлов: 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A74E1E74BCA887E04BFD582CE8D85EF78522AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794986   (67138) от 03.05.2025
+
+Растровый клипарт - BLOSSOM.clipart - Creative Fabrica - Cute Mermaid Watercolor Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт на тему русалок и моря.Формат: PNGРазрешение файлов: 4000 x 4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F275A5A42D6A2F12F405CF5FA05BF5AB0FA4FF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795179   (67137) от 03.05.2025
+
+VA - 60 Years of the Southend Scene (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kursaal Flyers - My Sugar Turns To Alcohol (4:49)
+02.  Dr Feelgood - She's In The Middle (2:43)
+03.  Jerry The Ferret - The Music Goes On And On (4:30)
+04.  Mickey Jupp - Pilot (Demo) (4:59)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E12B61A9AD0541434E01FFFA9D0FB4402DDBBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794809   (67136) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Underwater Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с изображениями подводного мира.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D91D4B89494CBC5E5421A454F75ECCC060EC84D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794779   (67135) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Boho Floral Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цветочный клипарт в стиле бохо.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EBB2B18D41CBB7835C9E49D821EB50E6BDCFE36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795197   (67134) от 03.05.2025
+
+VA - Espresso Pronto Roma! (Bella Musica Lounge Italiana) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alessandro Pitoni - Tac (3:49)
+02.  Orchestra Volare - Roma Nun Fa la Stupida Stasera (3:20)
+03.  Dirotta Su Cuba - Si Viaggiare (4:25)
+04.  JJ Vianello - Un Sabato Italiano (3:18)(   Читать дальше...   )Жанр: Lounge, Smooth JazzПродолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE87427E09A03CE7CD23EB9D3829CC6ABDB69719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794791   (67133) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Pink Princess Tiara Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67133.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с розовыми тиарами.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54AA3CBCA13DD6A45AE222DDDE79E20D36554219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794795   (67132) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Deer Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с изображением оленей.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79715AAC1F1A638A401FA80590FE1195E377E2BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794755   (67131) от 03.05.2025
+
+Растровый клипарт - inpixell.studio -  Creative Fabrica - Cute Watercolor Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с разнообразными изображениями.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9912421C3B7E81D144120F7D541402FD0951E360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794789   (67130) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Bath Time Animals Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с животными во время купания.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CEDA88AAD58796D08E65290C6E2267FE893D486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794804   (67129) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Dinosaur Watercolor Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный клипарт с динозаврами.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12F916DE1FEFFA01C62D6D7A01753A1D1A787321
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794775   (67128) от 03.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Bath Time Animals Clipart [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт с животными во время купания.Формат: PNGРазрешение файлов: 4096 x 4096
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A4665E2FBC2C29B3B9ADE4BBDB6E4463481517
 ```
 
 https://mybot314.ru/tekegram_catalog/

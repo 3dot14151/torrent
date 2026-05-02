@@ -1,3 +1,61 @@
+###  Публикация: 1364037   (939199) от 01.03.2020
+
+VA - The Best Russian Rock Hits - 1 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939199.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Tokio - Кто Я Без Тебя 4:09
+002 Lumen - Три Пути 4:36
+003 Агата Кристи - Как На Войне 4:05
+004 Би-2 - Полковнику Никто Не Пишет 4:52(   Читать дальше...   )Жанр: RockПродолжительность: 16:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D51539D371C0B80232B74F3B102273689A7E49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985340   (935537) от 11.02.2016
+
+VA - Are You Ready? (Vol.22) (2016) [MP3|128 - 320 кб/с] <Nu Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Doomfinger - Thirty-Four
+02 - Brik - Betrayed
+03 - Cope - Reflection
+04 - Stilldown - Angel By Design(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 01:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DFBEFF421FA87D817CBEDA61104DE5A53A88D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985331   (935499) от 11.02.2016
 
 VA - Alterportal HITS 16 Vol. 89 - January (2016) [MP3|192-320 кб/с] <Alternative, Metal, Rock>
@@ -691,64 +749,6 @@ ZZ Top - Greatest Hits (2017) 2CD [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDC6A39B54C8A3F69BF17CD8B4055885149796A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098447   (908206) от 30.01.2017
-
-VA - Rock в дорогу Vol.6 (2017) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Beyond The Black - In the Shadows
-02 In This Moment - Whore
-03 The Rasmus - No Fear
-04 W.A.S.P. - Golgotha(   Читать дальше...   )Жанр: RockПродолжительность: 04:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5EB09BEAF32FB5F966DBDDC6181974CC24367D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 990934   (907537) от 27.02.2016
-
-VA - The Best Rock (2016) [MP3|256 кб/с] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907537.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AC DC - Highway To Hell.mp3
-002. Aerosmith - Heart's Done Time.mp3
-003. The Who - Out In The Street.mp3
-004. Jethro Tull - Aqualung.mp3(   Читать дальше...   )Жанр: RockПродолжительность: 07:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA3C328C1679330543EA2578C9F87AE3E10ECE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

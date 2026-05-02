@@ -1,3 +1,64 @@
+###  Публикация: 1226500   (654596) от 21.05.2018
+
+VA - Hits of My Soul Vol. 36 (2018) [MP3|320 кб/с]<Rock, Metal, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. SOiL - Redefine (03:36)
+02. Twisted Sister - Feel Appeal (03:19)
+03. Prophets Of Rage - Prophets Of Rage (03:10)
+04. Bad Company - Run With The Pack (05:22)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:26:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A90E43D793B6FC142A4002FD9626667CDB16CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140923   (653849) от 08.06.2017
+
+VA - Alternative Digest June 2017 Mix (2017) [MP3|192-320 Kbps] <Alternative Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653849.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Animal Alpha - 101 Ways 05:52
+002. Yellowcard - A Place We Set Afire 04:20
+003. Aquilo - All I Ever Wanted 02:30
+004. Takida - All Your Life (Haven Stay Part 2) 03:51(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 11:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1FA4B05BD43F5B6AF81A4BA6E471A09271E4AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031649   (651483) от 04.07.2016
 
 Cliff Richard - The Hits (2015) [MP3|320 Kbps] <Pop, Rock, Rock'n'Roll>
@@ -693,64 +754,6 @@ VA - Alterportal HITS 14 Vol. 70 (June (2014)) [MP3|128-320 кб/с] <Alternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6142C904AB2167C4856543D9DB7343213FEA787D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035368   (626655) от 17.07.2016
-
-Second Breath - Unknown Bands Vol.10 (2016) [MP3|32 - 320 Kbps] <Alt.Metal, Alt.Rock, Modern Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 10 Car Pile-Up - Streets Ahead
-02. Red Eye Rising - Never Again
-03. Tungsten Wake - Mind Your Time
-04. Death & Desire - The Let Down(   Читать дальше...   )Жанр: Alt.Metal, Alt.Rock, Modern Hard RockПродолжительность: 02:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D4C2D17432A894F077307DEF4D31BA7F13447DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035465   (626596) от 17.07.2016
-
-VA - Are You Ready? (Vol.23) (2016) [MP3|128 - 320 Kbps] <Nu Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Of Mice And Men - Pain
-02 - Averse To The End - Bombs Away
-03 - Viletongue - Paynekiller
-04 - Red Queen - Asyphyx(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 02:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78EBBBC6CA27B3F6162A6DB37538CAB85E084CEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

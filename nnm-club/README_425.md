@@ -1,23 +1,22 @@
-###  Публикация: 1850140   (1054295) от 26.01.2026
+###  Публикация: 1852503   (1055911) от 08.02.2026
 
-Журнал | Дилетант №2 (122) (февраль 2026) [PDF]
+Книжная серия | XX век / XXI век – The Best [136 книг] (2011-2023) [FB2, PDF, EPUB]
 
->>Журналы
->>Другие журналы
+>>Художественная литература
+>>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054295.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055911.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый исторический журнал, в живой, далеко не академической форме передающий колорит эпох и помогающий ориентироваться в истории, искать и находить в прошлом ответы на многие сегодняшние вопросы.
-В каждом номере увлекательные и познавательные материалы, подготовленные именитыми историками, великолепными писателями, популярными журналистами. Каждый выпуск журнала (   Читать дальше...   )Жанр: Исторический журналИздательство: ООО "Образование 21 век"Формат: PDFКачество: Необработанный скан
+В серию «XX / XXI век - The Best» вошли величайшие зарубежные произведения прошлого столетия. Среди их авторов - лауреаты Нобелевской премии Сол Беллоу, Перл Бак, Герман Гессе, Уильям Голдинг, Бертран Рассел, Джон Стейнбек, Томас Манн, Эрнест Хемингуэй, а также и другие легендарные писатели — Франц Кафка, Фрэнсис Скотт Фицджеральд, Эрих Мария Ремарк, Дафна Дюморье, (   Читать дальше...   )Жанр: Современная проза, Классическая проза ХX века, Зарубежная классическая прозаИздательство: РазличныеФормат: FB2, PDF, EPUBКачество: Изначально электронное (ebook), Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A150D49979676001E9C0F166E7D179BDE5DD5AF1
+magnet:?xt=urn:btih:B8B9FC66D390D9AD6E5D0B256569B2FA20921B2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -25,26 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850117   (1054294) от 26.01.2026
+###  Публикация: 1852655   (1055910) от 08.02.2026
 
-Журнал | Монокль №4 (1418) (19-25 января 2026) [PDF]
+Знаменитость / Celebrity (1998) BDRip [H.264/720p] [MVO]
 
->>Журналы
->>Другие журналы
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054294.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055910.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Деловой журнал «Монокль» – новое и старое издание одновременно. С 16 октября 2023 года его издает команда журналистов, которая в течение 28 лет делала журнал «Эксперт».
-В «Монокле» вы найдете макроэкономический анализ, прогнозы, обзоры конъюнктурных рынков и отраслей – от природного газа до изготовления манекенов, анализ финансовых рынков и новости финансовой политики (   Читать дальше...   )Жанр: Деловой журналИздательство: Александр ПопцовФормат: PDFКачество: Обработанный скан
+Противоречивый писатель и журналист Ли Саймон, переживающий личный и творческий кризис, расстаётся с женой после шестнадцати лет совместной жизни и решает круто изменить свою монотонную и скучную жизнь, окунувшись в поисках новых ощущений в пучину пёстрого мира артистической и творческой элиты. Однако, знакомясь с её подчас шокирующими представителями, понимает, (   Читать дальше...   )Производство: США / Magnolia Productions, Sweetland FilmsЖанр: драма, мелодрама, комедияРежиссер: Вуди АлленАктеры: Кеннет Брана, Джуди Дэвис, Джо Мантенья, Мелани Гриффит, Вайнона Райдер, Леонардо ДиКаприо, Фамке Янссен, Шарлиз Терон, Хэнк Азария, Майкл Лернер, Биби Ньювирт, Гретхен Мол, Айзек Мизрахи, Андре Грегори, Патти Д`АрбанвилльПеревод: профессиональный многоголосый, авторский (Живов; Сербин)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:53:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E94A1D3C254607B6B65CE9B569F571F480948DD6
+magnet:?xt=urn:btih:C5E500982A45E808BA0DEFD77EF938A59A25C8DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,25 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850113   (1054293) от 26.01.2026
+###  Публикация: 1852533   (1055909) от 08.02.2026
 
-Тимофей Афаэль, Алексей Сказ | Цикл "Темный Лорд устал" [6 книг] (2025-2026) [FB2] [Обновляемая]
+Валерий Чащин | Мастер [13 книг] (2023-2026) [FB2]
 
 >>Художественная литература
 >>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054293.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055909.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что страшнее Темного Лорда на троне? Только уставший Темный Лорд в отпуске. Сбежав от своей империи ради покоя, Кассиан получил новый мир, который не желает оставлять его в покое. Теперь каждому, кто посмеет нарушить его тишину — от назойливого героя до гигантского монстра — предстоит узнать, что нет ничего опаснее, чем бог, который просто хочет, чтобы его не трогали.Жанр: Бояръ-Аниме, Попаданцы, Юмористическое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+Он здесь чужой. Он остался один. Он раньше нигде не бывал кроме своих гор. Он мастер-целитель в мире боевой магии. Молодой парень, живущий в маленьком всеми забытом горном селении, получив звание мастера-целителя, вынужден отправиться в далекое путешествие. Он чужой и в этом и в своем родном когда-то мире. У него ни кого не осталось, ни родных, ни близких. По решению (   Читать дальше...   )Жанр: Фэнтези, боевик, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E5B9F797A7A1DDF5CB9685CA2B087DE5CBB0520
+magnet:?xt=urn:btih:F3173F735E75CA03A551CEB10A666A37F4E4058A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,26 +76,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850107   (1054292) от 26.01.2026
+###  Публикация: 1852657   (1055908) от 08.02.2026
 
-Kenneth Kuttler | Real and Functional Analysis. Textbooks in Mathematics (2026) [PDF] [EN]
+Wise Care 365 Pro 7.3.5.722 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:655DE8D688AF201070BB46A13E8668947F3C306E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852535   (1055907) от 08.02.2026
+
+Андрей Васильев | Ровнин [3 книги] (2025-2026) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если наступаешь на мозоль сильным мира сего, то будь готов к тому, что последует жесткий и быстрый ответ, особенно если на дворе стоят страшные и одновременно веселые 90-е годы. В такую ситуацию и попал молодой оперативник из Саратова, который сначала задержал не того, кого следует, а после еще и табельное оружие в ход пустил. Как результат – за его голову назначили (   Читать дальше...   )Жанр: Фэнтези, детектив, попаданцыИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED49330F90776FD98F0148BBBEAB6F1E6FAA971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852536   (1055906) от 08.02.2026
+
+Яков Перельман | Быстрый счет. Вычисления, задачи, головоломки (2025) [PDF]
 
 >>Научная и техническая литература
 >>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054292.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055906.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This unique book gives a manageable introduction to functional analysis and a thorough treatment of real analysis. Authored as a graduate textbook in analysis, the book could be used for a course in real analysis based on the Lebesgue theory of integration and/or a course on functional analysis.
-The author uses basic topological ideas to unify the presentation of (   Читать дальше...   )Жанр: МатематикаЯзык: АнглийскийИздательство: Chapman and Hall/CRCФормат: PDFКачество: Изначально электронное (ebook)
+Уникальный сборник: Яков Перельман, новое наполнение, издается впервые! Сборник «Быстрый счет. Вычисления, задачи, головоломки» приглашает вас погрузиться в удивительный мир числовых тайн и логических загадок вместе с Яковом Перельманом. Под одной обложкой собраны: «Быстрый счет. Тридцать простых приемов устного счета», «Задумай число. Математический отгадчик», задачи (   Читать дальше...   )Жанр: Научно-популярное, обучение, досугИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC194F9416873602DDA2B9F1720E6F7AB7303F62
+magnet:?xt=urn:btih:1D924A18AE43488490F31242F61B3A51764A5D53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,28 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850106   (1054291) от 26.01.2026
+###  Публикация: 1852537   (1055905) от 08.02.2026
 
-Giulia Enders | Gut.The Inside Story of Our Body’s Most Underrated Organ (2026) [PDF, EPUB] [EN]
+Майкл Рьюз | Дарвиновская революция (2022) [FB2]
 
 >>Научная и техническая литература
->>Здоровье и медицина
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054291.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Transform your understanding of the human gut: An enlightening journey through the most underrated organ with Dr. Giulia Enders' groundbreaking exploration of digestive health, microbial connections, and whole-body wellness.
-
-Discover the secrets of your digestive system—and how to hone a healthy gut—plus new research on the mind-gut connection.
-(   Читать дальше...   )Жанр: Гастроэнтерология, Макробиотика, АнатомияЯзык: АнглийскийИздательство: HarperOneФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Канадский философ науки Майкл Рьюз получил широкую известность благодаря своим многочисленным работам, посвященным эволюционно-креационным дебатам и критерию демаркации. Он стал основателем и идейным вдохновителем журнала Biology and Philosophy. Много внимания Рьюз всегда уделял дарвиновскому учению, рассматривая его с разных точек зрения, в том числе и с религиозной. (   Читать дальше...   )Жанр: История, Наука, Религия, ЭволюцияИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F3F5F117F7192AA56C799E5BD27BD311B1C6CD08
+magnet:?xt=urn:btih:B4670F7D4678954C57835E0A08A2476E3925D033
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,27 +180,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850105   (1054290) от 26.01.2026
+###  Публикация: 1852538   (1055904) от 08.02.2026
 
-Jaewoong Eum | Practical Kotlin Deep Dive. Unlocking the 'How' and 'Why' behind Kotlin fundamentals and internal mechanisms (2026) [PDF] [EN]
+Вилейанур Рамачандран, Сандра Блейксли | Фантомы мозга (2019) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055904.jpg" />
+</div>
+
+
+###  Подробнее
+
+В. С. Рамачандран – всемирно известный невролог, психолог, доктор медицины, доктор философии, директор Исследовательского центра высшей нервной деятельности, профессор психологии и нейрофизиологии Калифорнийского университета в Сан-Диего.
+
+В своей книге «Фантомы мозга» автор рассказывает, как работа с пациентами, страдающими неврологическими нарушениями причудливого (   Читать дальше...   )Жанр: Психология, Научпоп, НейробиологияИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16476336662063C1FB3C2A8DD5441AA8CE4EE236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852662   (1055903) от 08.02.2026
+
+Julian de Ruiter, Ismael Cabral, Kris Geusebroek и др. | Data Pipelines with Apache Airflow. Second Edition. Orchestration for data and AI. 2nd Edition (2026) [PDF] [EN]
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054290.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Takes you from “how to use Kotlin” into “how Kotlin really works,” revealing the internal implementations, desmifying bytecodes and compiler behavior, and internals that shape the language. If you want to write smarter, more confident Kotlin across fundamentals, coroutines, and multiplatform, this is the book that shows you why everything is the way it is.
-
-Practical (   Читать дальше...   )Жанр: Java Programming, Mobile App Development & Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Independently publishedФормат: PDFКачество: Изначально электронное (ebook)
+Data Pipelines with Apache Airflow has empowered thousands of data engineers to build more successful data platforms. This new second edition has been fully revised for Airflow 3 with coverage of all the latest features of Apache Airflow, including the Taskflow API, deferrable operators, and Large Language Model integration. Filled with real-world scenarios and examples, (   Читать дальше...   )Жанр: Database Storage & Design, Data Warehousing, Cloud ComputingЯзык: АнглийскийИздательство: Manning PublicationsФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1258AD53F0B263E2952722D73EE5B90F4D27CED1
+magnet:?xt=urn:btih:A6C11E81659F9CE14F1205B7237697A17099119A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,25 +234,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850104   (1054289) от 26.01.2026
+###  Публикация: 1852656   (1055902) от 08.02.2026
 
-Steven McGee | McGee's Evidence-Based Physical Diagnosis. 6th Edition (2025) [PDF] [EN]
+Jon Emch, Diana Muresan, Travis Ormsby | Getting to Know ArcGIS Enterprise (2025) [EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055902.jpg" />
+</div>
+
+
+###  Подробнее
+
+The first book from Esri Press about ArcGIS Enterprise, one of Esri’s most important technologies for keeping your organization agile, collaborative, and responsive.
+
+ArcGIS Enterprise is the foundational software system for GIS, powering mapping and visualization, analytics, and data management. Collaboration and flexibility are central to ArcGIS Enterprise, allowing (   Читать дальше...   )Жанр: GIS Programming, Geographic Information Systems, Remote Sensing & GISЯзык: АнглийскийИздательство: Esri PressФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FF8E9C8D93C64F3855615A46F6A7876747E11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852654   (1055901) от 08.02.2026
+
+Николай Сорокин | Обучение в стиле ИИ. Как перенять лучшие привычки нейросетей (2025) [PDF]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга показывает, как перенести ключевые принципы работы современных нейросетей в личное развитие, обучение и организацию умственного труда. Материалы дают прикладные техники, которые можно внедрить сразу, чтобы улучшить способность к обучению, концентрацию, обработку информации и качество решений. Подход основан на анализе стратегий: как ИИ собирает, структурирует (   Читать дальше...   )Жанр: Нон-фикшен, популярная психология, личностное развитиеИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C04291B3B2C1937B659361C0DE2D24117D38708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852539   (1055900) от 08.02.2026
+
+Питер Годфри-Смит | Чужой разум. Осьминоги, море и глубинные истоки сознания (2020) [FB2]
 
 >>Научная и техническая литература
->>Здоровье и медицина
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054289.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055900.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Emphasizing the most important physical signs needed to determine an underlying condition or disease, McGee's Evidence-Based Physical Diagnosis, Sixth Edition, offers vital insight and instruction on the fundamental clinical skill of physical diagnosis. Internationally renowned author Dr. Steven McGee clearly shows how to pare down the multiple tests needed to confirm (   Читать дальше...   )Жанр: Медицина, Общая практикаЯзык: АнглийскийИздательство: ElsevierФормат: PDFКачество: Изначально электронное (ebook)
+Питер Годфри-Смит (р. 1965) – австралийский морской биолог и философ науки, профессор Сиднейского университета. Его бестселлер «Другие умы» произвел настоящую революцию в нашем понимании головоногих моллюсков: по мнению автора, эти животные представляют собой «альтернативный эксперимент эволюции по созданию высокоразвитого интеллекта». Автор, опытный аквалангист, (   Читать дальше...   )Жанр: Биология, Химия, Эволюция, АнтропологияИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:655B5E30FC25C3DEF1D85DCEAED4EBF0E819918E
+magnet:?xt=urn:btih:65E32047605E1D4C00165D877B31579DDF27EA68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,53 +314,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850062   (1054288) от 26.01.2026
+###  Публикация: 1852544   (1055899) от 08.02.2026
 
-Omid Motamedisedeh | 96 Common Challenges in Power Query. Practical Solutions for Mastering Data Transformation in Excel and Power BI (2025) [PDF, EPUB] [EN]
+Сергей Карелин, Александр Вольт | Цикл "Архитектор душ" [8 книг] (2025-2026) [FB2] [Обновляемая]
 
->>Компьютерная литература
->>нет
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This comprehensive guide is designed to address the most frequent and challenging issues faced by users of Power Query, a powerful data transformation tool integrated into Excel, Power BI, and Microsoft Azure. By tackling 96 real-world problems with practical, step-by-step solutions, this book is an essential resource for data analysts, Excel enthusiasts, and Power (   Читать дальше...   )Жанр: Microsoft Excel Guides, Microsoft Programming, Databases & Big DataЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D1E57C8C6C71FCB5982CF96C3AB13BDF584E28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850059   (1054287) от 26.01.2026
-
-David Langer | Python in Excel Step-by-Step (2026) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054287.jpg" />
-</div>
-
-
-###  Подробнее
-
-An intuitive guide for professionals wanting to prepare for the future of Microsoft Excel by building Python in Excel skills and unleashing the power of their data.
+Я очнулся в центре ритуального круга в теле опального аристократа, в самой заднице Российской Империи. Моей смерти желает если не каждый в этом городе, то, как минимум, две особы, что застали мое перерождение. Вот только ничего они мне сделать теперь не могут. Странная магия связала нас троих, вынуждая девиц таскаться за мной следом.
 
-A hands-on guide to the foundational Python in Excel skills you’ll need to understand and use this powerful analytics tool, Python in Excel Step-by-Step is for current Excel users interested in expanding (   Читать дальше...   )Жанр: Spreadsheet Books, Data Mining, Python ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+Магия здесь — прерогатива дворян, (   Читать дальше...   )Жанр: Бояръ-Аниме, Попаданцы в магические миры, Городское фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:694DAF1CA7123670232BB63A0C28B2259FF4D12A
+magnet:?xt=urn:btih:CE3F03C286DE46D4FE3A6A7F469EFA01543EABBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -242,51 +342,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850207   (1054286) от 26.01.2026
+###  Публикация: 1852653   (1055898) от 08.02.2026
 
-Проекты - VideoHive - Soft Blur Transitions - 61544842 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите свои видеопроекты на новый уровень с помощью Soft Blur Transitions — профессионально разработанного видеошаблона, созданного для достижения потрясающих визуальных результатов с минимальными усилиями. Этот шаблон разработан с учетом гибкости и простоты использования, что делает его подходящим для создателей любого уровня — будь вы создатель контента, кинорежиссер, (   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:893E6861B49527C594DC76A4CAF0976A5C1FCDC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850058   (1054285) от 26.01.2026
-
-М. Руссо, А. Феррари | Подробное руководство по DAX. Бизнес-аналитика с Microsoft Power BI, SQL Server Analysis Services и Excel (2021) [PDF]
+Baihan Lin | Privacy and Security for Large Language Models. Hands-On Privacy-Preserving Techniques for Personalized AI. 1st Edition (2026) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054285.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055898.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Расширенная и дополненная с учетом современных требований и техник, эта книга представляет собой наиболее полное руководство по языку DAX, применяемому в области бизнес-аналитики, моделирования данных и анализа. Эксперты Microsoft BI Марко Руссо и Альберто Феррари излагают как основы, так и отдельные нюансы работы с DAX: от простых табличных функций до продвинутых (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ДМК ПрессФормат: PDFКачество: OCR
+As the deployment of AI technologies surges, the need to safeguard privacy and security in the use of large language models (LLMs) is more crucial than ever. Professionals face the challenge of leveraging the immense power of LLMs for personalized applications while ensuring stringent data privacy and security. The stakes are high, as privacy breaches and data leaks (   Читать дальше...   )Жанр: Natural Language Processing, Privacy & Online Safety, Computer Network SecurityЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D582869850CEDB41A8A89EA999B42F715D6937EE
+magnet:?xt=urn:btih:DBE1BDCAE8E56051867E7E04C666C2B7C548040B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -294,132 +368,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849634   (1054284) от 26.01.2026
+###  Публикация: 1852584   (1055897) от 08.02.2026
 
-Анастасия Ватутина | Стылая вода. Круговорот (Часть 3) (2025) [MP3, Юлия Драгунова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если бы вам предложили разом избавиться от всего, что причиняет вам боль, вы бы согласились? Стоя на берегу стремительно несущейся реки, Яна раздумывала, правильно ли поступает, соглашаясь принять участие в ритуале. За ее спиной слышался монотонный голос ведьмы, ледяной ветер трепал распущенные волосы, а темные глубины манили и звали, обещая покой и забытье… И как (   Читать дальше...   )Жанр: Детектив, ТриллерИздательство: ЛитРесПродолжительность: 06:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A75CACCB31E030025C19661C7A2B4CCB70626B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849633   (1054283) от 26.01.2026
-
-Анастасия Ватутина | Плач-камень. Круговорот (Часть 2) (2025) [MP3, Юлия Драгунова]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054283.jpg" />
-</div>
-
-
-###  Подробнее
-
-После событий последних месяцев Яна чувствует, что ей необходим отдых и свежий воздух. Вместе с подругой она отправляется в недавно открывшийся загородный отель с причудливым названием Плач-камень. Никто из них не ожидал, что спонтанный отпуск превратится в самый настоящий кошмар, а Яна окажется подозреваемой в совершении ритуального убийства.Жанр: Детектив, мистика, триллерИздательство: ЛитРесПродолжительность: 07:02:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554D25D12A6A701BA24C0EF77678B4C60349363B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850061   (1054282) от 31.01.2026
-
-О. Зверева, В. Сальников | Операционная система Windows: администрирование и настройка рабочей среды пользователя (2025) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054282.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебно-методическое пособие ориентировано на студентов информационных образовательных направлений, но будет также полезно всем, кто использует на своих персональных компьютерах операционную систему Windows. Одной из первых задач в работе на персональной технике – это настройка ее так, чтобы было удобно работать в созданной среде. Кроме описания практических приемов (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: УМЦ-УПИФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA81DEDEE62B91D38A7279FB77EE67C9BF22C726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850063   (1054281) от 26.01.2026
-
-Greg Beaumont | Power BI Machine Learning and OpenAI. Explore data through business intelligence, predictive analytics, and text generation (2023) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unleash the full potential of Power BI with the integration of AI and machine learning techniques using OpenAI
-Key Features
-Take flight with Power BI machine learning and OpenAI using hands-on examples from the FAA airline data
-Unlock the full potential of Power BI for advanced analytics using OpenAI(   Читать дальше...   )Жанр: Computing & Internet Databases, Computing & Internet ProgrammingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A058BF3DEF5F9568074DBEE7CCBDBD5B5AC7BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850102   (1054280) от 26.01.2026
-
-John S. Duncan, Davide Giampiccolo | MRI Neuroanatomy. Cortex, Nuclei and Connections (2026) [PDF] [EN]
+М.И. Дехтярь, С.М. Дудаков, Б.Н. Карлов | Лекции по дискретной математике (2021) [PDF]
 
 >>Научная и техническая литература
->>Здоровье и медицина
+>>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The dogma that brain function relied on the cortex has dominated clinical neurology, neurosurgery and psychiatry for the last 100 years. Since the start of the 2000s, it has become evident that brain function is orchestrated as a network through white matter connections. This framework provides an understanding of brain function and dysfunction, and has radically (   Читать дальше...   )Жанр: Нейрохирургия, НеврологияЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+Учебник содержит лекционный материал по дисциплине «Дискретная математика», а также примеры задач с решениями и задачи для самостоятельной работы. Основные разделы учебника: множества, математическая индукция, комбинаторика, булевы функции, логика высказываний и предикатов, графы, автоматы и формальные языки, алгоритмы.Жанр: МатематикаИздательство: издательство Тверского государственного университетаФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C18C1E3D029111CECB17B34E46FD4F85A19F36A
+magnet:?xt=urn:btih:FADB44631D99619EF5212E4A7F2B8FB99580EA4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -427,27 +394,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850099   (1054279) от 26.01.2026
+###  Публикация: 1852651   (1055896) от 08.02.2026
 
-Lee Ambrosius | AutoCAD & AutoCAD LT All-in-One For Dummies. 2nd Edition (2026) [PDF] [EN]
+Tom Taulli | AWS Certified Cloud Practitioner (CLF-C02) Study Guide. In-Depth Exam Prep and Practice. 1st Edition (2026) [EPUB] [EN]
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-An easy-to-read and up-to-date collection of resources explaining the most recent versions of AutoCAD and AutoCAD LT
-
-In the brand-new second edition of AutoCAD & AutoCAD LT All-in-One For Dummies, consultant and industry expert with more than 30 years of experience using and extending AutoCAD along with being a 20-year veteran of AutoCAD education, Lee Ambrosius, (   Читать дальше...   )Жанр: Computer Aided Design, 3-D Graphics Software, Business & Home SoftwareЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+Cloud computing continues to drive innovation across industries, fueling advancements like digital transformation, scalability, and the rise of artificial intelligence. Amazon Web Services is at the forefront of this evolution, and the AWS Certified Cloud Practitioner certification is the perfect entry point for anyone looking to build a strong foundation in cloud (   Читать дальше...   )Жанр: Web Services, Cloud Computing, Security CertificationsЯзык: АнглийскийИздательство: O’ReillyФормат: EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F164AD5F762D3E464736866B4C24AFDC174EB6C
+magnet:?xt=urn:btih:DE809A480AE039AD386152067DF99D2CA82C2670
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,54 +420,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850096   (1054278) от 26.01.2026
+###  Публикация: 1852648   (1055895) от 08.02.2026
 
-С.Н. Никифоров | Прикладное программирование. Учебное пособие (2021) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие предназначено для помощи студентам при выполнении лабораторных работ в среде Excel и VBA. Комментируются некоторые особенности программирования, приводятся и поясняются варианты программ. Предназначено для студентов всех специальностей.Жанр: Компьютерная литература, ExcelИздательство: ЛаньФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734600A2D00DFE6D18101047112A18F4D1D2F1A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850095   (1054277) от 26.01.2026
-
-Steven Sanderson, David Kun | Extending Excel with Python and R. Unlock the potential of analytics languages for advanced data manipulation and visualization (2024) [PDF, EPUB] [EN]
+Shubham Jain | Ultimate Next.js for Modern Web Applications. Master Modern Web Development and Build High-Performance Scalable, SEO-Optimized Applications with Next.js, Typescript and Tailwind CSS  ...
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Seamlessly integrate the Python and R programming languages with spreadsheet-based data analysis to maximize productivity
+Master the Art of Building Lightning-Fast and SEO-Friendly Web Applications with Next.js.
 
 Book Description
-– Extending Excel with Python and R is a game changer resource written by experts Steven Sanderson, the author of the healthyverse suite of R packages, and David Kun, co-founder of Functional Analytics.(   Читать дальше...   )Жанр: Data Modeling & Design, Data Processing, Computer ScienceЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Next.js has emerged as the go-to framework for building high-performance, scalable, and SEO-optimized web applications. Ultimate Next.js for Modern Web Applications takes you on a complete, structured journey—from setting up your development environment to (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: Orange EducationФормат: EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F40A3C3FA44C75DBC6BA2E4368E727740C3C46A
+magnet:?xt=urn:btih:EF1606D309C26A7ABFFE8338339095634746A88D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -510,26 +449,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850092   (1054276) от 26.01.2026
+###  Публикация: 1852642   (1055894) от 08.02.2026
 
-Owen Heaume | Getting Started with Pester 5. A Beginner's Guide (2024) [PDF, EPUB] [EN]
+Daniel Gomez Blanco | Practical OpenTelemetry. Adopting Open Observability Standards Across Your Organization. First Edition (2023) [PDF] [EN]
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055894.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Embark on a transformative journey into the world of Pester and elevate your PowerShell scripting to new heights of robustness, reliability, and efficiency. This comprehensive beginner's guide provides a hands-on approach to PowerShell testing using Pester, empowering you to enhance your code quality with confidence.
-The book starts with an introduction to Pester, (   Читать дальше...   )Жанр: Microsoft C & C++ Windows Programming, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Learn the value that OpenTelemetry can bring to organizations that aim to implement observability best practices, and gain a deeper understanding of how different building blocks interact with each other to bring out-of-the-box, vendor-neutral instrumentation to your stack. With examples in Java, this book shows how to use OpenTelemetry APIs and configure plugins (   Читать дальше...   )Жанр: Java Programming, Software Development, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DE324CDB2C9097FD2A13F92DF841B49AE0DD254
+magnet:?xt=urn:btih:ED306E03E5BE8AEBA9203202EBFDD04599B105BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,26 +475,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850093   (1054275) от 26.01.2026
+###  Публикация: 1852607   (1055893) от 08.02.2026
 
-Alessandro Grimaldi | Advanced interactive interfaces with Access. Building Interactive Interfaces with VBA (2024) [PDF, EPUB] [EN]
+Максим Мамаев | Цикл "Пепел. Вернуть Боярство" [24 книги] (2023-2026) [FB2]
 
->>Компьютерная литература
->>нет
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055893.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Explore and learn advanced techniques for working with graphical, interactive interfaces that can be built in Access.
-This book starts with best practices and tips to write code using VBA, and covers how to implement them in a real-world scenario. You will learn how to create and use VBA classes. An introduction to the binary code and the "bit vector" technique (   Читать дальше...   )Жанр: Microsoft VBA, Microsoft ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Я прожил долгую жизнь, служа своей империи, и погиб, защищая её... А затем воскрес, но уже в альтернативной реальности, в которой правят Рода бояр и дворян, соперничающие друг с другом. Вот только память о прошлой жизни вернулась не сразу, и теперь я отлученный от Рода начну свой путь заново, и верну то, что по праву моё - собственное Боярство!Жанр: Попаданцы в магические миры, Бояръ-Аниме, Боевое фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F975C6C919F08B75D274DE2206FCF0C3F17C0A63
+magnet:?xt=urn:btih:79D334D55F3AAFE145445E9CF625B679A0C6632A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,27 +501,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850094   (1054274) от 26.01.2026
+###  Публикация: 1852640   (1055892) от 08.02.2026
 
-Jack A. Hyman | Microsoft Power Platform For Dummies (2025) [PDF] [EN]
+Yvonne Wilson, Abhishek Hingnikar | Solving Identity Management in Modern Applications. Demystifying OAuth 2, OpenID Connect, and SAML 2. Second Edition (2023) [PDF, EPUB] [EN]
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Build business intelligence with insight from a professional
+Know how to design and use identity management to protect your application and the data it manages.
 
-Microsoft Power Platform For Dummies covers the essentials you need to know to get started with Microsoft Power Platform, the suite of business intelligence applications designed to make your enterprise work smarter and more efficiently. You'll get a handle on managing and reporting data with Power BI, (   Читать дальше...   )Жанр: Business Intelligence Tools, Microsoft Office Guides, Microsoft ProgrammingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
+At a time when security breaches result in increasingly onerous penalties, it is paramount that application developers and owners understand identity management and the value it provides when building applications. This book takes you from account provisioning to (   Читать дальше...   )Жанр: Computer Network Security, Computer ScienceЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05D49B95C58DC7671BB642E9A3840E585763408B
+magnet:?xt=urn:btih:B0B01171A6B504862A2F4FAD6B191EE44FF09F62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,105 +529,157 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850091   (1054273) от 26.01.2026
+###  Публикация: 1852635   (1055891) от 08.02.2026
 
-К. Скотт Проктор | Бюджетирование и финансовые расчеты с помощью Microsoft Excel (2013) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга представляет собой практическое руководство по использованию мощного инструмента (Microsoft Excel) для выполнения любой сложной задачи, например, построения финансовой модели. Кратко и внятно рассказывается об использовании электронных таблиц в финансовом планировании и бизнес-расчётах. Несмотря на быструю смену версий электронных таблиц базовые функции, (   Читать дальше...   )Жанр: Компьютерная литература, Microsoft ExcelИздательство: СмартБукФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888492F75AA326B63439B822C431CA4A19B12439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850089   (1054272) от 26.01.2026
-
-Vikas Sukhija | PowerShell Fast Track. Hacks for Non-Coders. 2nd Edition (2025) [PDF] [EN]
+Jeremy Gibson Bond | Introduction to Game Design, Prototyping, and Development. From Concept to Playable Game with Unity and C#. 3rd Edition (2022) [PDF] [EN]
 
 >>Компьютерная литература
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054272.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Create complex scripts in PowerShell and learn how to connect them to cloud services like Azure and Azure AD. This updated version of the book will help you learn PowerShell by providing small “cheat” snippets that you can combine to write efficient and effective scripts.Жанр: Microsoft Programming, Computer HackingЯзык: АнглийскийИздательство: ApressФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9766ABB2681C26B5E440C98BC315D5DF4CB3176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850087   (1054271) от 01.02.2026
-
-В.Ю. Арьков | Командная строка CMD. Учебное пособие (2021) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучая операционные системы, важно и понимать теорию, и уметь практически работать на компьютере. Функции любой операционной системы сводятся к понятию управления. Реализация этих функций — это выбор интерфейса пользователя: командная строка, файловый менеджер или оконная система. В курсе ОС мы рассматриваем все три вида интерфейса — практически, но с пониманием (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67A002012015C22EC7D8C80F4D83D738B5F16885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850086   (1054270) от 26.01.2026
-
-Dawn Griffiths | Excel Cookbook. Recipes for Mastering Microsoft Excel (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Filled with tips, tricks, and techniques, this easy-to-use book is the perfect resource. You'll find more than 350 recipes for over a dozen topics covering formulas, PivotTables, charts, Power Query, and more. Each recipe poses a particular problem and outlines a solution that you can put to use right away—without having to comb through tutorial pages.
+Learn All the Design & Development Skills You Need to Make Great Games with Unity, the World's Most Popular Professional Game Engine
 
-Whether you're (   Читать дальше...   )Жанр: Microsoft Excel Guides, Business Intelligence Tools, Spreadsheet BooksЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+If you want to design and develop games, there is no substitute for strong, hands-on experience with modern techniques and tools. That is exactly what this book provides. Leading instructor and indie game developer Jeremy Gibson (   Читать дальше...   )Жанр: Computer & Video Game Design, Game Programming, Computer Graphics & DesignЯзык: АнглийскийИздательство: Addison-Wesley ProfessionalФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:577AABC8F56449D4B999EBB0B224C7AC6E25ED11
+magnet:?xt=urn:btih:CCF72CB7A2D285B7CE6E42AAB2887B5CF5E2A906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852634   (1055890) от 08.02.2026
+
+Milecia McGregor | Full Stack JavaScript Strategies. The Hidden Parts Every Mid-Level Developer Needs to Know. 1st Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055890.jpg" />
+</div>
+
+
+###  Подробнее
+
+As a working software developer, you know how to complete your tasks with solid code, whether it's on the frontend or backend. Now you're ready to move to the next level in your career, and you need to understand the subtle yet deep skills it takes to become a senior developer. This practical book shows you everything it takes to create a full-stack web application (   Читать дальше...   )Жанр: Web Services, JavaScript Programming, Computer Systems Analysis & DesignЯзык: АнглийскийИздательство: O’ReillyФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AC2F53BBE625FF3503F36DE5B8D48BBA5B6249
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852631   (1055889) от 08.02.2026
+
+Oswald Campesato | Transformer, BERT, and GPT. Including ChatGPT and Prompt Engineering (MLI Generative AI Series). 1st Edition (2024) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055889.jpg" />
+</div>
+
+
+###  Подробнее
+
+This book provides a comprehensive group of topics covering the details of the Transformer architecture, BERT models, and the GPT series, including GPT-3 and GPT-4. Spanning across ten chapters, it begins with foundational concepts such as the attention mechanism, then tokenization techniques, explores the nuances of Transformer and BERT architectures, and culminates (   Читать дальше...   )Жанр: Artificial Intelligence, Artificial Intelligence Expert Systems, Natural Language ProcessingЯзык: АнглийскийИздательство: Mercury Learning and InformationФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A473EFBA5DFEB0273BAB63C8390EFAFFBCCA79A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852628   (1055888) от 08.02.2026
+
+Ярослав Мечников, Павел Шимуро | Цикл "Творец Пламени. Системный Кузнец" [7 книг] (2025-2026) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055888.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погибший при исполнении пожарный Дмитрий просыпается в теле юного подмастерья Кая в суровом мире где власть измеряется силой кулака и качеством стали. Единственный шанс Дмитрия на спасение от голодной смерти — таинственная Система, которая дает ему цели, навыки и суровый ультиматум: достичь первой ступени Закалки Тела за три дня... или умереть окончательно. Теперь (   Читать дальше...   )Жанр: РеалРПГ, Попаданцы, ФэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F4CA19E545E4BE45F099389390C715B3E05E17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852624   (1055887) от 08.02.2026
+
+Sergio Pereira | Generative AI for Software Development. Building Software Faster and More Effectively (2025) [EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055887.jpg" />
+</div>
+
+
+###  Подробнее
+
+How does Generative AI impact software development? In this practical guide, author Sergio Pereira shows you how to use this new technology to write better code in a fraction of the time. You'll learn how to leverage Generative AI at each step of a software feature's lifecycle, from brainstorming implementation ideas to writing and testing code to releasing features (   Читать дальше...   )Жанр: C & C++ Programming, Programming LanguagesЯзык: АнглийскийИздательство: O’ReillyФормат: EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0759FA1936A9649D0B0C42C7875638CD27EF6921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852666   (1055886) от 08.02.2026
+
+IObit Uninstaller Pro 15.3.0.1 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055886.jpg" />
+</div>
+
+
+###  Подробнее
+
+IObit Uninstaller Pro представляет собой удобный инструмент, который поможет Вам удалить нежелательные программы и папки без каких-либо хлопот. Он обнаруживает и классифицирует все установленные программы, а также позволяет выполнять пакетное удаление приложений всего одним щелчком мыши. С полезными функциями "Мощное сканирование" и "Принудительное (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC3B06B472637F871202598EBB938FF8A239AAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

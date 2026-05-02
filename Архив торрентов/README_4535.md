@@ -1,3 +1,242 @@
+###  Публикация: 476381   (98468) от 02.04.2012
+
+VA - Русские Новинки 9 (2012) [MP3|256 kbps]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98468.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Елка - Знаки вопроса
+002 Глюкоза - Кошка
+003 Юрий Шатунов - Это лето
+004 Балаган Лимитед - Гуси-лебеди
+005 Валерия и Александр Буйнов - Сердце
+006 Григорий Лепс - Водопадом (new version)
+007 Наталья Подольская Интуиция
+008 Алексей Воробьев - За твою любовь (Hitretz and Sergei Karpov Remix)
+009 Юлия Савичева - Юлия
+010 Мистер Кредо и Олеся Слукина - Тебя я помню...(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:58:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0715220438BE501A9675DFBBD13BABCF43FA4ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476310   (98464) от 02.04.2012
+
+Yes - Yesshows (1980) 2 CD Digitally Remastered [FLAC|Lossless]<Progressive rock, Symphonic rock, Art rock, Psychedelic rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One 
+01. Parallels (7:07)
+02. Time And A Word (4:06)
+03. Going For The One (5:22)
+04. The Gates Of Delirium (22:41)Жанр: Progressive rock, Symphonic rock, Art rock, Psychedelic rockПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475617   (98462) от 02.04.2012
+
+[Фото] Мисс России-2012
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98462.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мисс Россия 2012 — конкурс красоты Мисс Россия, финал которого состоялся 3 марта 2012 года в концертном зале «Барвиха Luxury Village». В финале конкурса приняли участие 50 участниц из разных регионов России. В этом году конкурс отпраздновал 20-летний юбилей.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF57AFB7E7EC11625279A48ED94D59FA3972C57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476965   (98459) от 02.04.2012
+
+VA - Клубный АвтоЗвук Весна (2012) [MP3|256 kbps]<Club | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack & R3hab - Prutataaa (Original Mix)
+02. Macromism - Groover (Original Mix)
+03. Agaric - Who Made Up The Rules (Josh Wink Remix)
+04. Shlomi Aber - Create Balance (Steve Lawler Remix)
+05. Maya Jane Coles - Little One (Original Mix)
+06. Deniz Koyu - Tung (Original Mix)
+07. Savino Martinez - Piano Is Not Over (Dino Lenny Rework)
+08. Marco Lys - Go (Original Mix)
+09. Sergio Fernandez And David Lara - Big Room Stories (Original Mix)
+10. Noir, Haze - Around (Solomun Vox Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 11:21:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5309237905F83348979D45ED302955D4B937FEA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476804   (98455) от 02.04.2012
+
+Wise Disk Cleaner v7.16 build 473 Final + Portable [Multi(Rus)]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98455.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название программы: Wise Disk CleanerЯзык интерфейса: Multi(Rus)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476213   (98452) от 02.04.2012
+
+The Soul Snatchers - Scratch My Itch (2012) [MP3|320 кб/с]<Soul, Funk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98452.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Do You Wanna Get Down
+2. Who I Am
+3. Now That You've Got It
+4. Good To Me
+5. Scratch My Itch
+6. The Right Track
+7. Show Me Love
+8. Finish What You Started
+9. Judge of Love
+10. The Lick(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C48EECB21F0AB629FD96874ED3F11B6FD526DCED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476820   (98451) от 02.04.2012
+
+Wise Registry Cleaner 7.12 build 448 Final + Portable [Multi(Rus)]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Название программы: Wise Registry CleanerЯзык интерфейса: 
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477115   (98446) от 02.04.2012
+
+[Картинки] Фото знаменитости/Пас Вега/Paz Vega
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98446.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пас Вега (исп. Paz Vega; урождённая Пас Кампос Триго (исп. Paz Campos Trigo); родилась 2 января 1976 года в Севилье, Андалусия) — испанская киноактриса.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D79436E1D89483C0A0DB03B13054DB31BFB9CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 476936   (98441) от 02.04.2012
 
 Гость / L'invite (2007) DVD5
@@ -532,243 +771,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5CA6436BA1DDBF77F662F45385CFC83604E18A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477313   (98408) от 02.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 22
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98408.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 22 
-Название:  Girls Desktop Wallpapers Pack 22 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 6668х4992
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44C52C23EA89452190D60C2C8CFE3C36A3569630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476899   (98405) от 02.04.2012
-
-Fjorsvartnir - Legions of the north (2012) [MP3|320 кб/с]<Melodic Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begyndelsen (2:09)
- 02. Legions of the North (9:43)
- 03. Levende Begreavet (9:55)
- 04. Nat og dag (8:59)
- 05. True Elite (6:36)
- 06. Den sidste rejse (6:20)2012Жанр: Melodic Black MetalПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302F3F570B252021492CD6986455577CCBA219D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475798   (98404) от 02.04.2012
-
-Memoira - Memoira (2008) [FLAC|Lossless]<Gothic Metal,Melodic Metal (Female Vocal)>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arise (Intro) 02:06
-02. Experimenters Farewell 04:26
-03. Haunted 04:27
-04. Destiny Of Yours 05:00
-05. Incurable 06:00
-06. Shadow On My Name	04:33
-07. Half Alive 04:15
-08. Liberation 04:56
-09. Amortization 05:25Жанр: Gothic Metal,Melodic Metal (Female Vocal)Продолжительность: 00:41:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477107   (98401) от 02.04.2012
-
-Пестрые сумерки (2009) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкант необыкновенный. Слепой. Слепой от рождения без всякой надежды когда-нибудь увидеть мир (свет).
-Но случилось волшебство. Он увидел свой свет — музыку! Музыка пришла, зазвучала из дедушкиного проигрывателя. Дедушка ставил свои любимые пластинки, а мальчик вдруг переставал плакать и слушал, слушал, а потом подползал к пианино и начинал… играть!
-Играл все, что слышал. С точными гармониями. Играл не только песни, но и хоровые произведения, и марши духовых оркестров.
-Слушал радио и к четырем годам играл по слуху Первый концерт Чайковского.
-В четыре года дедушка повез его из Ейска, где мальчик родился, в Армавир в спецмузшколу для слабовидящих и слепых детей. Один из фрагментов ранних выступлений Олега Аккуратова — так зовут мальчика — вставлен в фильмЖанр: мелодрама, музыкаРежиссер: Дмитрий Коробкин, Людмила ГурченкоАктеры: Людмила Гурченко, Дмитрий Кубасов, Владимир Ильин, Александр Ширвиндт, Сергей Фролов, Виктор Раков, Ася Дубровская, Аслан Ахмадов, Александр Сирадекиан, Давид Геворков, Роман Андрейкин, Светлана Зимагорова, Дарья Вельчинская, Богдан Якушин, Мария Максумова, Алексей Павлов, Тамерлан Насрутдинов, Рустам Сатыбалов, Геннадий Оникиенко, Анна Рябова, Анастасия Меленова, Константин Адаев, Георги СмилевскиПеревод: оригинальныйПродолжительность: 01:31:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18D6C7AD16172514D47E6656AB6231F392A59C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477188   (98400) от 02.04.2012
-
-[Wallpapers] Nature Wallpapers (03.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BB3F4FDE97160A909CDFDFFC33AFF72CF250962
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476582   (98399) от 02.04.2012
-
-Isis - Live VI (16/11/2007) (Released: 14 Feb 2012) [MP3|256 кб/с]<Post-Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hive Destruction
- 02. So Did We
- 03. Not In Rivers, But In Drops
- 04. Gentle Time
- 05. In Fiction
- 06. Holy Tears
- 07. Weight
- 08. Red Sea
- 09. CarryЖанр: Post-MetalПродолжительность: 01:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C11D60249203F20682B808EC26180AF6F7B1D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477155   (98398) от 02.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (01.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98398.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AF149F248A23E9A53A0E21AFD8D54AD83A53BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477186   (98396) от 02.04.2012
-
-[Wallpapers] Best HD Wallpapers Pack (03.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B4321A26A1038E785BC62FE68B5F7A23CD07AA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1699789   (117379) от 15.02.2024
+
+Patrick Mautner - Uptown Downtown (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Uptown Downtown (5:20)
+02. Arriving on Exoplanet 124 (3:57)
+03. Light Years (5:14)
+04. Double Yellow (4:22)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABEE938434402DF9138214E54DB0F05703DD445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699931   (117369) от 15.02.2024
+
+Alan Broadbent Trio - Like Minds (2022) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This I Dig of You [6:25]
+02. Prelude to Peace [8:26]
+03. With the Wind and the Rain in Your Hair [7:19]
+04. Dance Only with Me [5:17](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F4A796F750B48E023CF19F6B9FE83EB949DCDFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699926   (117361) от 15.02.2024
 
 Barry Harris Trio - Breakin' It Up (1958) 2007, Jazz Beat [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Barry Harris Trio - Plays Tadd Dameron & Thelonious Monk (1975 - 1984) 2008, Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BBF5F83545A6565E07CD4DB5CB58CDC857F3491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701002   (116656) от 19.02.2024
-
-Donald Byrd - Fuego (1959) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fuego [6:38]
-02. Bup a Loup [4:05]
-03. Funky Mama [10:58]
-04. Low Life [6:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D56EDE05E419765D8B029D1DEC0E27B1FA3D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700995   (116654) от 19.02.2024
-
-Tom Harrell - Infinity (2019) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fast [6:39]
-02. Dublin [9:40]
-03. Hope [7:30]
-04. Coronation [6:57](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:05:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2395B3354A3CDC06E08753760D3599613AB3490
 ```
 
 https://mybot314.ru/tekegram_catalog/

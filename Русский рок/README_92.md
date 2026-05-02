@@ -1,3 +1,119 @@
+###  Публикация: 1666418   (178912) от 05.10.2023
+
+Звероморье - В плену у сказки (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Звероморье черный лес [00:04:36]
+02 - Колобок-ледоруб [00:03:52]
+03 - Капище скомороха [00:04:39]
+04 - Зимняя ядерная былина [00:04:48](   Читать дальше...   )Жанр: RockПродолжительность: 00:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9431D15D3AEB34BE8D372A69ECEA844F69EBFD91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666253   (178765) от 05.10.2023
+
+Красная плесень - Баллады 90-х (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белокурая девчонка (Original Version of the 90s) [00:02:42]
+02. Я бы хотел... (Original Version of the 90s) [00:02:33]
+03. Ночной экспресс (Original Version of the 90s) [00:04:16]
+04. Сон моей мечты (Original Version of the 90s) [00:04:12](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:226AB56536280DB7C0AC97A15E199C4DECC4F775
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1428855   (178372) от 04.12.2020
+
+Дайте два - Золото (2020) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178372.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Джекилл и Хайд
+2. Против всего
+3. В роуминге
+4. Свитер с оленями(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040ACEBD9C6026194A3C0C8AD1E02E7A60703CA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594435   (178247) от 01.12.2022
+
+Nutbreaker - 2 EP (2021-2022) [MP3|320 Kbps] <Nu-Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Остановись [00:03:38]
+02. Бей [00:03:26]
+03. Не Понять [00:03:56]
+04. Внутри [00:04:33](   Читать дальше...   )Жанр: Nu-Metal, RapcoreПродолжительность: 2 CD, 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E172C5E7934BC85B76DE13696D2D861B13B97DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594339   (178244) от 01.12.2022
 
 Темноврат (Temnovrat) - Bon Sarma (2022) [MP3|320 Kbps] <Atmospheric Black Metal, Pagan Metal>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6427CEF208B9BCF357D3362749D4BAD3D5DE33D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595512   (175642) от 05.12.2022
-
-Рок Синдром - время жестоких битв (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Кап-кап - капает дождь! [00:03:16]
-02 - Золото тянет на дно! [00:02:39]
-03 - Здесь нет поэзии, нет! [00:03:45]
-04 - Мы по жизни идем как мишени! [00:04:23](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B288AA94A68D523F6C6EB532CF6937C531D2C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595518   (175581) от 05.12.2022
-
-Pleroma Orchestra - Слово устремленного к свету (2022) [MP3|320 Kbps] <Apocalyptic Folk, Spoken Word>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Пролог [00:06:23]
-02 - Мёртвые глядели (Album Version) [00:03:56]
-03 - Великий девственник (Album Version) [00:10:17]
-04 - Разбуженный горном [00:02:46](   Читать дальше...   )Жанр: apocalyptic folk, spoken word, industrial, psychedelic, experimentalПродолжительность: 01:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4205233813DB530ABDD58DC3AC9B45E7A44A20A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595315   (175344) от 05.12.2022
-
-Владимир Кузьмин - Дух в моей гитаре (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175344.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я из Эдгаров По
-2. Мы открыты всю ночь
-3. Миклухо-Маклай
-4. Улица(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384C6D484B54652C73408ABA02AE6FAE6DC360A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 212432   (174772) от 06.12.2022
-
-Захар Май - Концерт на Светлой (Коломна - 27.07.07) (2010) [MP3|320 kbps]<Acoustic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шива Разрушитель (3:25)
-02. Бог не фраер (2:46)
-03. Рубаха (3:07)
-04. Автомат (2:24)(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 01:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668D941C78B823009EFEC4540703B34E4FE2B8AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1427467   (183122) от 28.11.2020
+
+Night Tempo - Japanese Pop Edit (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Future Funk, J-pop>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	 Mariya Takeuchi - Tell me, tell me (Night Tempo Edit) (3:58)
+2.	 Tatsuro Yamashita - Kiss kara Hajimeru Mistery (Night Tempo Edit) (3:36)
+3.	 Yurie Kokubu - I Wanna Be With You (Night Tempo Edit) (3:29)
+4.	 Junko Yagami - Telephone Number (Night Tempo Edit) (4:23)(   Читать дальше...   )Жанр: Electronic, Future Funk, J-popПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF1FFE2AD8B943D04047D456AEAA840DCD21251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595090   (176750) от 03.12.2022
 
 Nuclear Idiots - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
@@ -717,35 +746,6 @@ Lovebites - Knockin' At Heaven's Gate - Part II (Live) (2023) [FLAC|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBDAB7AF19C4B3D1EF4952FC8F9FC3C9E7A0C657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689788   (124364) от 04.01.2024
-
-Electric Asturias - Dimensions (2023) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Symphonic Rock>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Porte de l'Enfer (Gate Of Hell) 6:53
-02. Stone Circle 5:07
-03. Karma 7:55
-04. Shippuu Jinrai 4:03Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D662FFDF77D14E7B6F189D17C520D3896CD7D81
 ```
 
 https://mybot314.ru/tekegram_catalog/

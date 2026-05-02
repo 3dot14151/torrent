@@ -1,3 +1,61 @@
+###  Публикация: 1381331   (827738) от 06.05.2020
+
+Konstantin Klashtorni - Groove Jazz N Chill #7 (2019) Chillaxing Jazz KolleKtion Series [FLAC|Lossless|image + .cue] <Smooth Jazz, Lounge, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Memories Of Us (4:32)
+ 02. Changing Seasons (5:18)
+ 03. Fade Into The Sunset (4:44)
+ 04. Ocean Serenity (4:47)(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E278806F85173DB66910E101A9DF654F4B79FE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006654   (827301) от 12.04.2016
+
+Mike Nock Quartet - In Out And Around (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Break Time [07:09]
+ 02.Dark Light [05:58]
+ 03.Shadows Of Forgotten Love [09:40]
+ 04.The Gift [07:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F03FE645544C392B334F079870FCD9052084C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006651   (827249) от 12.04.2016
 
 Joe Zawinul - Zawinul (1970) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -687,64 +745,6 @@ Moacir Santos - Saudade (1974) Remaster, 2012, EMI Music[FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17399B5F220FE18B90C4F17CCDB9BA3A946C8B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006902   (825580) от 13.04.2016
-
-Phil Woods & The Japanese Rhythm Machine (1975) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Windows [12:53]
- 02.Spring Can Really Hang You Up The Most [07:16]
- 03.Johnny Hodges [09:50]
- 04.Speak Low [10:55](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:056E4D23045665825327C55F66DF5264738FF964
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006960   (825489) от 13.04.2016
-
-George Coleman - Amsterdam After Dark (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Amsterdam After Dark [08:31]
- 02.New Arrival [07:22]
- 03.Lo-Joe [04:59]
- 04.Autumn In New York [10:18](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D619AA742A86ADDB064D239E17BDFA07A709E854
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1602918   (1045941) от 07.01.2023
+
+Без Билета - The Best, Pt. 1 (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045941.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Здравствуй, мой друг
+2. Байконур 66
+3. Танцуй
+4. Две лодки(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2ACF4E7BBBFB22EEDC83DA0204C5D28017C6402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603479   (1045719) от 09.01.2023
+
+Гнилой Район - Легенды Русского Рока (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045719.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Гнилой Район
+2. Судьба Быть Легендой
+3. Повелитель Сна
+4. Ария Лешего(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85AB96B6B8D3CB9A54DD2BA798B381C6C02BE5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604931   (1045225) от 15.01.2023
+
+para bellvm - Трава забвения (2023) [MP3|320 Kbps] <Gothic Rock, Dark Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Слишком (Пролог) [00:03:13]
+02 - Радио Судного Дня [00:02:58]
+03 - Прогулка [00:04:41]
+04 - Золотой гребень [00:04:16](   Читать дальше...   )Жанр: Gothic Rock, Dark RockПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28439A8C36584005777358D99A89C38426B90587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604885   (1045170) от 15.01.2023
+
+VA - После России / After Russia (2023) [MP3|320 Kbps] <Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045170.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ногу свело! - Ледяной поход / The Ice March
+2. Королев Попова - Пули / Shot
+3. НАИВ - Пулемёт / Machine Gun
+4. Миша Дымов и Мила Варавина - Уходящий берег / Fading shore(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDBB2EFCF643AD6AD93FED843F48B3D5D3F1E23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605132   (1045086) от 16.01.2023
 
 Ёzh! - 2 Albums (2020-2023) [MP3|320 Kbps] <Folk Rock>
@@ -630,122 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89B3650C8A88CEFE1B720DCF6CB1CF292655ACB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609403   (1043267) от 03.02.2023
-
-Дядя Миша - Тоська-Сука И Другие Песни (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Тоська-Сука [00:02:57]
-02 - Зараза [00:01:59]
-03 - Отелло [00:04:09]
-04 - Восточная [00:01:37](   Читать дальше...   )Жанр: RockПродолжительность: 00:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC40D9AA6E0F4E8497088C4578ED34FDF8C38C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609735   (1043190) от 04.02.2023
-
-Азбука Борзых - Дартс (2023) [MP3|320 Kbps] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Слава селу [00:04:21]
-02 - Примочка [00:03:45]
-03 - Дартс [00:03:56]
-04 - Приют [00:03:20](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11635BB882602A28B594810B2E12B62ECEE0B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609737   (1043182) от 04.02.2023
-
-Страна Идиотов - 27 пустоты. Часть 1-2 (2021-2023) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Помолчим [00:02:53]
-02. Города [00:02:37]
-03. Шаг за шагом [00:03:38]
-04. Новое время [00:02:46](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 2 CD, 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E864A5E1015B49CA8A83BDFAB1373E093475F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436615   (1043092) от 01.01.2021
-
-Ashley Moshe - 3 Albums (2014 - 2020) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Emocore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Грязь [00:04:08]
-02. Пудра [00:03:26]
-03. 40 [00:03:29]
-04. Тетрадь с полями [00:03:10](   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, EmocoreПродолжительность: 3 CD, 01:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA8F6791A2051EDF620722D3B630563E8BED47A
 ```
 
 https://mybot314.ru/tekegram_catalog/

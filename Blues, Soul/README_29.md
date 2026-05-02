@@ -1,3 +1,32 @@
+###  Публикация: 1253924   (379419) от 11.10.2018
+
+Eric Clapton - Happy Xmas (2018) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379419.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. White Christmas
+  2. Away In A Manger (Once In Royal David's City)
+  3. For Love On Christmas Day
+  4. Everyday Will Be Like A Holiday(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:56:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A72CB7115BF0CDC70422F8280B1DBD83EC8D97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1175386   (378773) от 18.10.2017
 
 VA - Blues Sisters (2017) Vol.1 [MP3|320 Kbps] <Blues Rock, Electric Blues>
@@ -716,35 +745,6 @@ Midnite Johnny (Morana) - So Complicated (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB79A60D643EA3CB2B40B37338B28C55E2B7BD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950564   (365853) от 28.10.2015
-
-Dana Gillespie - Where Blue Begins (1991) [MP3|320 кб/с]<British Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Blue Begins (03:52)
-02. I Wanna Make Love To You (03:58)
-03. A Man Size Job (04:15)
-04. Up Your Sleeve (04:50)(   Читать дальше...   )Жанр: British BluesПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04AB06B9A92F4C6E5C1AF5100E31311025F0C67
 ```
 
 https://mybot314.ru/tekegram_catalog/

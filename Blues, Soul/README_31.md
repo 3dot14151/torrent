@@ -1,3 +1,32 @@
+###  Публикация: 1257674   (343128) от 27.10.2018
+
+Bob Daisley & Friends - Moore Blues For Gary (2018) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's Why I Play The Blues (4:04)
+02. The Blues Just Got Sadder (Feat. Joe Lynn Turner & Steve Lukather) (3:36)
+03. Empty Rooms (Feat. Neil Carter) (6:10)
+04. Still Got The Blues (Feat. Danny Bowes, John Sykes & Don Airey) (6:23)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF24A275C33B24EA0D99215C5CAC1342F8EB74F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179903   (342790) от 03.11.2017
 
 Willie May - Haunted House (2017) [MP3|320 Kbps] <Blues>
@@ -716,35 +745,6 @@ Aubryn - Nothin' Civil (2015) EP [OGG|494-516 кб/с]<Blues, Folk, Americana, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1ADC890BBD55EFBD4A596952BC06C9280C4DC773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958009   (325845) от 19.11.2015
-
-Mike Zito & The Wheel - Keep Coming Back (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep Coming Back (03:38)
-02. Chin Up (03:58)
-03. Get Busy Living (03:51)
-04. Early In The Morning (03:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40130C9B1342BD11C2B4B77BD69BA686E646428
 ```
 
 https://mybot314.ru/tekegram_catalog/

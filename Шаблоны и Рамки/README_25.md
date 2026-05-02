@@ -1,3 +1,29 @@
+###  Публикация: 1074374   (337961) от 19.11.2016
+
+Шаблоны - GraphicRiver - Organic food poster / flyer template [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Organic food - рекламный шаблон постера, флаера.Формат: PSDРазрешение файлов: 3579x5031 / 300dpi, 852x316 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3451786D766D3F361C897A1D6099D61DFCB9FDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074403   (337958) от 19.11.2016
 
 Шаблоны - GraphicRiver - Nail Salon/ A5 Brochure Template [PSD]
@@ -649,34 +675,6 @@ Holiday Party Flyer - шаблон для Вашего творчества.Фо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E52822F9CAF71EE82278B5541DB15240375E01A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582358   (319515) от 29.11.2012
-
-Рамки - Рамки для фото календари 2013 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рамки для фото многослойные PSD высокого разрешения
-подогнаны под формат А4 слои включены.
-По просьбе пользавателей.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A97E7C1D8BC104652AA2A97F1E8A6340192FE1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

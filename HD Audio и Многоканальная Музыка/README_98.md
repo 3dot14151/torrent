@@ -1,3 +1,177 @@
+###  Публикация: 1700593   (116869) от 18.02.2024
+
+Background Instrumental Music Collective - Till Next Summer: Happy Jazz to Keep Good Memories, Background for Bar, Restaurant and Cafe (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Not Over Yet (3:19)
+05. Horizon Is So Low (3:35)
+11. September In My Heart (3:32)
+02. Jazz Instrumental Relax Center - Honey Sun (3:20)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary JazzПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E6D5371AB2DEBCB27D242EEB4AB1A516E8AD243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700673   (116849) от 18.02.2024
+
+Unheilig - Frohes Fest (2002) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sternzeit (1. Strophe)
+02. Kling Glöckchen Klingelingeling
+03. Leise Rieselt Der Schnee
+04. O Tannenbaum(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E051C9F8E01C30629A8BB0A899F681DD9B7AFFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700800   (116847) от 18.02.2024
+
+Unheilig - Zelluloid (2004) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Filmrolle
+02. Zauberer
+03. Hört Mein Wort
+04. Willst Du Mich(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:934A76C055C325057C9FB8071FCD2F2514063C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700858   (116843) от 18.02.2024
+
+Geo22 - Knightcore (2024) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Essentia [3:58]
+02 - Ante [1:45]
+03 - Noster [1:59]
+04 - Alchemy [2:44](   Читать дальше...   )Жанр: Electronic, Dance-PopПродолжительность: 00:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C0B7121A1E4CDF297D53B1A2EBA8915CB4E7C07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700794   (116836) от 18.02.2024
+
+Amba Shepherd - Superrlativ Collection II (2024) [FLAC 16/44.1; 24/44.1; 24/48|Lossless|WEB-DL|tracks] <Electronic, Pop, Tropical House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Wide Awake & Dreaming (Radio Edit) [3:27]
+02 - Halo of Hope [3:25]
+03 - If I Could [3:30]
+04 - Away [2:57](   Читать дальше...   )Жанр: Electronic, Pop, Tropical HouseПродолжительность: 02:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:845D3022A11735657F6A260550BC97EA2E54D968
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700860   (116830) от 18.02.2024
+
+Unheilig - Moderne Zeiten (2006)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Das Uhrwerk
+02. Luftschiff
+03. Ich Will Alles
+04. Goldene Zeiten(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 01:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE1702BD282D85C1C19285E9DC846C16F386EBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700717   (116829) от 18.02.2024
 
 Unheilig - Das 2. Gebot (2003) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
@@ -571,180 +745,6 @@ Jeremy Harry Harris - Walking With My Darkness (2024) [FLAC 24/44.1|Lossless|WEB
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7DAD0A2B804E1EA137E491EE640D9D745BF94D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701688   (116171) от 22.02.2024
-
-Cynic - Focus (1993) [FLAC|24/96|tracks|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Veil Of Maya (05:22)
-02. Celestial Voyage (03:40)
-03. The Eagle Nature (03:30)
-04. Sentiment (05:30)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D821868A0E39D6D9847307B1BB561FC1A30E2BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702002   (116096) от 23.02.2024
-
-Jean Michel Jarre - Versailles 400 Live (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le Château
-02. Epica Oxygene
-03. The Opening
-04. Oxygene 2(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BECAC691F7B838326360C1DE7DA2C717BE59FEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701998   (116022) от 23.02.2024
-
-Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of Broadway
-02. Oh Marie
-03. Sentimental Journey
-04. Pennies from Heaven(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98495EB0AE47098C1416AA5F14B2C0D13F175E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702073   (115997) от 23.02.2024
-
-Amaranthe - The Catalyst (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metal, Power Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Catalyst [3:41]
-02 - Insatiable [3:00]
-03 - Damnation Flame [3:34]
-04 - Liberated [3:07](   Читать дальше...   )Жанр: Melodic Metal, Power Metal, MetalcoreПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2102EE3B978E35804D1EF36ED596AFA31BD8B30D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701873   (115991) от 23.02.2024
-
-Genevieve (Geneviève) Leclerc - Big Band (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Swing. Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sing, Sing, Sing (00:04:02)
-02 - Cheek To Cheek (00:03:36)
-03 - L.O.V.E. (00:03:30)
-04 - It's A Good Day (00:02:28)(   Читать дальше...   )Жанр: Swing. JazzПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D4952AE5883B5F49C57F82C934BECA5D03C245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701757   (115971) от 23.02.2024
-
-Cynic - Traced in Air (2008) [FLAC|24/96|image + .cue|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nunc Fluens
-02. The Space For This
-03. Evolutionary Sleeper
-04. Integral Birth(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BF23EB3021C8679F65DB84E96ABDD24B9F1548
 ```
 
 https://mybot314.ru/tekegram_catalog/

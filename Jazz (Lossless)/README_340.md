@@ -1,3 +1,61 @@
+###  Публикация: 1768745   (100888) от 26.12.2024
+
+Bill Harris - Holiday Improvisations (1998) Daddy Jazz Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Holiday [2:46]
+02. Christmas Song (Chestnuts Roasting on an Open Fire) [4:42]
+03. O Tannenbaum [3:50]
+04. White Christmas [2:57](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDF8B4B40D44F0EC15621E9573DEBD1657A60CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768744   (100886) от 26.12.2024
+
+Dave Koz & Friends - Christmas Ballads: 25th Anniversary Collection (2022) Just Koz Entertainment [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas Waltz [3:34]
+02. Away in a Manger/Silent Night [2:57]
+03. Happy Xmas (War Is Over)/Imagine (feat. Rebecca Jade) [4:57]
+04. Greensleeves [3:41](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5DBCFA264657399240E82E65B597CB926DF0C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769332   (100677) от 28.12.2024
 
 Teddy Horangic & Frank Lacy - This Christmas With Night Is Alive (2023) Night Is Alive Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Mainstream Jazz>
@@ -756,76 +814,6 @@ VA - Electro Swing IV mixed by Bart & Baker (2011) [FLAC|Lossless]<Nu Jazz, Swin
 08.Lazy Flow - Mambo Fever (2:10)
 09.Biboulakis feat. Nina Zitlin - Is That Too Much To Ask ? (3:03)
 10.Enzo Siffredi feat. The Alls.. - Jungle Dancing (2:40)(   Читать дальше...   )2011Жанр: Nu Jazz, Swing, Modern JazzПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467246   (96569) от 13.03.2012
-
-Carol Welsman - Memories Of You: Carol Welsman sings Benny Goodman and Peggy Lee (2009) [FLAC|Lossless]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be That Way (3:49)
-02. Why Don't You Do Right (2:45)
-03. Moonglow (3:29)
-04. Stompin' At The Savoy (3:10)
-05. As Time Goes By (5:47)
-06. When You're Smiling (4:50)
-07. Johnny Guitar (4:11)
-08. Fever (4:02)
-09. Goody Goody (2:54)
-10. The Very Thought Of You (3:09)(   Читать дальше...   )2009Жанр: Vocal JazzПродолжительность: 01:00:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467414   (96543) от 13.03.2012
-
-Alex Skolnick Trio - Veritas (2011) [FLAC|Lossless]<Modern Jazz, Fusion, Guitar Virtuoso>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panna
-02. Bollywood Jam
-03. Song Of The Open Road
-04. Veritas
-05. Fade To Black
-06. Alone In Brooklyn
-07. 99/09
-08. Path Of Least Resistance
-09. Flections
-10. The River Lethe(   Читать дальше...   )2011Жанр: Modern Jazz, Fusion, Guitar VirtuosoПродолжительность: 01:00:38
 
 ## Скачать торент
 ```bash

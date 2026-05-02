@@ -1,3 +1,61 @@
+###  Публикация: 1046838   (550361) от 29.08.2016
+
+Sadao Watanabe - Orange Express (1981) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Orange Express [04:39]
+ 02.Ride On [04:42]
+ 03.Call Me [05:08]
+ 04.Good For All Night [06:36](   Читать дальше...   )Жанр: Post-Bop, Crossover JazzПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BAE24336F6E05129DE9B02F2872C87AC56F1B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047346   (550357) от 29.08.2016
+
+Nadiamori - Nadiamori Electro Jazz (2005) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lounge, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nadiamori (04:30)
+02. Drum'n Blues (04:50)
+03. Money Back Guarant... (05:26)
+04. Free In Love (04:58)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Electro SwingПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4A8C059F13CFCD4A66527C3ED7EEAEEEB49F8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047359   (550265) от 29.08.2016
 
 Malene Mortensen - You Belong To Me (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -693,64 +751,6 @@ Joe Castro - Groove Funk Soul (1959) Remaster, 2013, Warner[FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D875F7D8EDDBB662F4D382A6F021301F3E145FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048532   (546593) от 02.09.2016
-
-Louis Van Dyke - When a Man Loves a Woman (1968) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When A Man Loves A Women [03:18]
- 02.With A Little Help From My Friends [03:32]
- 03.She's Leaving Home [03:32]
- 04.Mercy, Mercy, Mercy [04:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D727F470A05285C291CC77757E1777EC836CCE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048516   (546589) от 02.09.2016
-
-Art Blakey & Freddie Hubbard - Feel The Wind (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Arieties [05:27]
- 02.Feel The Wind [09:54]
- 03.Embraceable You [09:18]
- 04.Off Minor [06:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD02615AC3546B74C8E9B9C9751992A1437FE357
 ```
 
 https://mybot314.ru/tekegram_catalog/

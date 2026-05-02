@@ -1,3 +1,29 @@
+###  Публикация: 1301744   (583893) от 12.05.2019
+
+Футажи - RocketStock - Lucent Ultra: 260 Vivid Lens Flares in 4K - RS3029 [MP4]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583893.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Lucent Ultra" - это коллекция световых бликов, снятых на объективы Zeiss Ultra Prime и Master Prime с фокусным расстоянием от 10 мм до 135 мм. Присутствие чёткой эстетики Zeiss придаст вашему видео яркий и неповторимый стиль.Формат: MP4Разрешение файлов: 4K Resolution: 3840х2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564A05EC34AA37223C7786E40505510057B39A9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1151670   (571937) от 19.07.2017
 
 Футажи - VideoHive - Digital Growth 03 [MOV]
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:353E7D6AE6D50A4C5409EAD23F92BE7F71BEE011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939884   (472597) от 22.09.2015
-
-Футажи - VideoHive - 20 Ink footage pack (Stock Footage) - 9863249 [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_472597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дополнение к чернильно-кляксовым проектам. Футажи совместимы с любыми нелинейными монтажными программами поддерживающими режим наложения, с такими как: Adobe Premier, Sony Vegas Pro, Grass Valley EDIUS Pro, Avid Studio, FCP и т. п. Все QuickTime-файлы могут быть использованы в качестве верхнего слоя с различными режимами смешивания.Формат: MOVРазрешение файлов: 2400  1350
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E22D68946DA589CF18BEBAA6B70E326C7884793
 ```
 
 https://mybot314.ru/tekegram_catalog/

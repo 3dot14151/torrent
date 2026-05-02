@@ -1,3 +1,82 @@
+###  Публикация: 967550   (158613) от 20.12.2015
+
+Проекты - VideoHive - Giftbox [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект - коробка с сюрпризом для Вашего логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02CB3794AECF390F883578949884F691612F1D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967189   (158588) от 20.12.2015
+
+Проекты - VideoHive - The Gift Box Logo - 10111867 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158588.jpg" />
+</div>
+
+
+###  Подробнее
+
+AE проект подарочная коробка предназначен для создания логотипа. Возможность редактирования в  трех вариантах. В этот проект включена музыка.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01F6C21F28BD53C162DC5FCA4EE9B2845726DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085868   (155984) от 22.12.2016
+
+Проекты - Motion Array - Audio Logo - 22172 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для потрясающий аудио демонстрации вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFB41EBED7EC0C5EF907A8F55917CA9E10BCDF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 968464   (155653) от 23.12.2015
 
 Проекты - VideoHive - Disintegration Logo Reveal [AEP]
@@ -603,86 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D95E507FC44453F5500B798F3BD75D8C7E6716B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771950   (31483) от 09.01.2025
-
-Проекты - VideoHive - Social Media Unveil - 56082211 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31483.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшой проект для создание логотипов который в свою очередь можно использовать для социальных медиа. Можно создать для YouTube, Vimeo, Reddit, Instagram, Facebook, Tiktok и Dribble.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EB9D3B911430E4084B897EEBAB8882824E50FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772412   (31411) от 10.01.2025
-
-Проекты - VideoHive - Photo Logo Reveal - 56179489 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект с логотипом для ваших творческих задач.
-
-Музыка предоставлена в демо версии.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807A8BE63EF376BAE7C56B120CA770A129B6D768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772274   (31385) от 10.01.2025
-
-Проекты - VideoHive - Logo Animation - 56054129 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект с логотипом для ваших творческих задач.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5455FFC8A0736157422204DA57529792422928CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

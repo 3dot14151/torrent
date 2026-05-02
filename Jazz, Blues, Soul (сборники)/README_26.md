@@ -1,3 +1,32 @@
+###  Публикация: 1797548   (17973) от 17.05.2025
+
+VA - Hammond Blues Music (2025) [MP3|320 Kbps] <Jazz, Blues, Hammond>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Larry Carlton, Robben Ford - Burnable [11:19]
+02. Michael Falkenstein - Cry! Until You're Feeling Good (Mayday in Space) [04:16]
+03. Tony Monaco - Acid Wash / The Tony Monaco Trio [07:08]
+04. George & the Highlanders - The Hawk [03:06](   Читать дальше...   )Жанр: Jazz, Blues, HammondПродолжительность: 08:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C746F2B500D50FE329D5C5B5E91E22695420D0FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798163   (17578) от 21.05.2025
 
 VA - Blues ballad positive (2025) [MP3|320 Kbps] <Blues, Slow Blues, Instrumental>

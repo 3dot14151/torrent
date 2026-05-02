@@ -1,3 +1,32 @@
+###  Публикация: 1725656   (108935) от 25.05.2024
+
+Antennaes - She's A Winner... (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Holes In The Road (04:49)
+ 02. Eat Crow (The Weatherman Song) (03:56)
+ 03. Gun Powder (02:50)
+ 04. Stick To Whiskey (03:28)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C8E1CFC30CCA8F6D5195E8957B18CCC6E46C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725911   (108882) от 26.05.2024
 
 Marty Friedman - Drama (2024) [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ Busted - Greatest Hits 2.0 (Another Present For Everyone) (2024) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A2DC2DC9B066CF95584FDD21A1BD497EF8F887B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753397   (103845) от 04.10.2024
-
-Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3CD [MP3|320 Kbps] <Blues Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dolly Dagger (Mix 2) [04:20]
-02. Night Bird Flying (Alternate Version) [03:54]
-03. Freedom (Alternate Version / August 20, 1970) [03:27]
-04. Midnight Lightning / Beginnings [09:30](   Читать дальше...   )Жанр: Blues Rock, Psychedelic RockПродолжительность: 03:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C381175BCF66382CA9157A8D0E28A1FE1C24839C
 ```
 
 https://mybot314.ru/tekegram_catalog/

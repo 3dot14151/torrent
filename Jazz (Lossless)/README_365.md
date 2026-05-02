@@ -1,3 +1,61 @@
+###  Публикация: 1765034   (34588) от 10.12.2024
+
+The Jimmy Bruno Group - Midnight Blue (2001) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Love [4:46]
+02. Funk 'n Benny [7:38]
+03. Hypertension [4:49]
+04. Shades of Grey [4:17](   Читать дальше...   )Жанр: Hard Bop, Jazz Fusion, Guitar JazzПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E187FF37FA3B3ED910DCD5764861F28B6B392EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765438   (34413) от 12.12.2024
+
+Sexual Music Collection, Jazz Music Lovers Club - Provocative Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel (3:55)
+02. Open The Heart (3:00)
+03. Lover and Soul Mate (2:50)
+04. Life del Mar (3:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4CECF512F9673E4394681D15704AC985C06685F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1766387   (33764) от 18.12.2024
 
 Dakota Staton - Five Classic Albums (1957 - 1959) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Jeff Libman - Feet Off the Ground (2025) [FLAC|Lossless|WEB-DL|tracks] <Contempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9DE1133CB97E0779A1E21233C7A7F1F42F00E29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099001   (20364) от 24.04.2025
-
-Steve Blayer - Vermont Wanderer (1996) Ermatell Records[FLAC|Lossless|image + .cue] <Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I Mean You [05:41]
- 02.Ain't Misbehavin' [05:19]
- 03.All Inside [08:00]
- 04.Softly, As In A Morning Sunrise [07:01](   Читать дальше...   )Жанр: Post-Bop, Modern CreativeПродолжительность: 00:49:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495FD9FEBAFB2A5A8FF6BBE0881ED67C82BAD1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794696   (19775) от 30.04.2025
-
-Eileen Sharkey - Lessons Of Love (2000) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Have Dreamed [3:32]
-02. Fallen [3:06]
-03. Comes Love [3:39]
-04. Too Marvelous for Words [2:42](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615CC725E1B1C8C56DBCDCE39840434B350CF9E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 927339   (528577) от 13.08.2015
+
+Rimsky-Korsakov - The Legend of the Invisible City of Kitezh, Sheherazade (Yuri Temirkanov & St.Petersburg Philharmonic Orchestra) (2013) [FLAC|image +.cue]<Classical, Opera, Tone Poem, Symp ...
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528577.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Legend of the Invisible City of Kitezh
+01. Pean to the Wildrness (04:38)
+02. Wedding Procession and Tartar Invasion (03:24)
+03. Battle of Kershenets (04:09)(   Читать дальше...   )Жанр: Classical, Opera, Romantic Period, Tone Poem, Symphonic SuiteПродолжительность: 00:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D2EFA9DE58C91135193159917298C139B1993FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927614   (528517) от 13.08.2015
 
 Brahms - Tragic Overture; Symphony No.3 (Hans Knappertsbusch & Vienna Philharmonic Orchestra) (1993) [FLAC|image +.cue]<Classical, Romantic Period, Symphony, Overture>
@@ -757,41 +786,6 @@ Invitation to the Dance (Aufforderung zum Tanze), rondo brillant for piano, J. 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D2BA60BB76D479F6E29BEAC22E90998F80538FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539371   (502009) от 30.08.2012
-
-VA - The Top 100 Masterpieces Of Classical Music: 1685-1928 (1991) [FLAC|Lossless]<Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Also Sprach Zarathustra - Fanfare [01:31]
-Orchestra – Hungarian State Orchestra Written-By – R. Strauss
-02. Symphony No. 5 - Adagietto [09:42]
-Orchestra – Budapest Festival Orchestra Written-By – Mahler
-03. Finlandia [08:58]
-Conductor – Rouslan Raychev Orchestra – Plovdiv Philharmonic Orchestra Written-By – Sibelius
-04. Dance Of The Bunble Bee [01:45]
-Cello – Miklos Perenyi Piano – Zoltan Kocsis Written-By – Rimsky-Korsakov
-05. Meditation, From "Thais"[05:05]
-Orchestra – Budapest Philharmonic Orchestra Written-By – Massenet(   Читать дальше...   )Жанр: ClassicalФормат: 10 CD BoxSetПродолжительность: 01:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BF198D54050AAE1F29390D91B3412EEB76E5C96
 ```
 
 https://mybot314.ru/tekegram_catalog/

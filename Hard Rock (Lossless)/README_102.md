@@ -1,3 +1,119 @@
+###  Публикация: 1782991   (69863) от 03.03.2025
+
+Genghis Rex - Behold The Strange Land (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Run Brother Run (4:11)
+02.  Wow! Signal (3:31)
+03.  Labareda (participação de Oswaldo Montenegro) (3:33)
+04.  Cloudy Winter Dome (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949009432D8ABC61FD23ABB69BCCA66F434FCC90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784015   (69701) от 08.03.2025
+
+Disturbed - The Sickness (2000) Reissue, 2025, Reprise Records, 25th Anniversary Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69701.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD One - Original Album:
+01. Voices
+02. The Game
+03. Stupify(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:32:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6C26E0F1E8F203667C36499F4D6EAF51D8BBE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784001   (69679) от 08.03.2025
+
+Dokken - Original Album Series (2009) Box Set, Reissue, Compilation, 2009, Rhino Records [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69679.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Breaking The Chains:
+01. Breaking The Chains
+02. In The Middle
+03. Felony(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 04:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20A25D6608682D61C2ED503BB6E213BE4AD69881
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785056   (69444) от 14.03.2025
+
+Eisbrecher - Kaltfront°! (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Goth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minus 90 Grad 01:32
+02. Everything is wunderbar 03:29
+03. Kaltfront 04:16
+04. Auf die Zunge (feat. Schattenmann) 03:41(   Читать дальше...   )Жанр: Hard Rock, Goth RockПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF088C2C08D7E6ECB7037224C8B1C2441C15B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785650   (69192) от 17.03.2025
 
 AC/DC - The Fly Is Rockin' (2010) 2 x CD, Limited Edition, Numbered [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ Tiffany Kills - World On Fire (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B086D5C493FC03D1D22AE97CE7E9168CE018EB38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805130   (65510) от 04.07.2025
-
-Joe Stump's Tower Of Babel - Days Of Thunder (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dominum 00:56
-02. Rules Of Silence 04:36
-03. Days Of Thunder 05:11
-04. Blind Are Your Eyes 06:41(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94969D44369DE375080CAD346CE1A422AD057BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807949   (65082) от 21.07.2025
-
-Jettblack - Raining Rock (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Raining Rock
-03. Less Torque, More Thrust
-04. Prison Of Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739B469C628156897A2B87D765A3D3398A2F2408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808592   (64951) от 25.07.2025
-
-Roulette - Go! (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Answer To My Prayers
-02. Fire In Your Eyes
-03. We Remember You
-04. Strangers(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFDB6321E534B1C283260B6D61D49AA8D4613F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808999   (64787) от 27.07.2025
-
-In Theory - Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Retribution (04:08)
- 02 - Stain On My Soul (03:38)
- 03 - The River (04:09)
- 04 - Get Me Higher (feat. Vinny Appice) (04:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9464F0BA57984C70D91F754EB865833B387F3FF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

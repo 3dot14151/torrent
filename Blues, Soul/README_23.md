@@ -1,3 +1,32 @@
+###  Публикация: 1242705   (513115) от 24.08.2018
+
+Jimmy Lloyd Rea & The Switchmasters - Cruzin` For A Bloozin` (2007) [MP3|320 Kbps] <Rockin` Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baker City BBQ (08:00)
+02. Jimmy Lloyd's Magic Boogie (12:10)
+03. Life On The Machine (11:57)
+04. Nobody Like The Blues (10:46)(   Читать дальше...   )Жанр: Rockin` BluesПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E7AA662159DDD95AAA1B8611CB173E2DFBC391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242801   (513059) от 24.08.2018
 
 Erin Harpe & The Delta Swingers - Big Road (2017) [MP3|320 Kbps] <Electric Blues, Jump Blues>
@@ -737,35 +766,6 @@ Blues Saraceno & Nineoneone - Wicked Gonna Come (2018) EP [MP3|320 Kbps] <Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:893D74F7BC4F8B8704F752FBDA7FDABD30F67D78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404047   (495182) от 24.08.2020
-
-Blues Pills - Holy Moly! (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proud Woman (03:34)
-02. Low Road (03:18)
-03. Dreaming My Life Away (02:43)
-04. California (03:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A73584CC7A18CCD13A51DD402386035729353201
 ```
 
 https://mybot314.ru/tekegram_catalog/

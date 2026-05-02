@@ -1,3 +1,177 @@
+###  Публикация: 1705093   (113963) от 07.03.2024
+
+Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|tracks] <Country, Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+01. Люсиль
+Lucille (R. Bowling - H. Bynum)
+02. Игрок(   Читать дальше...   )Жанр: Country, Pop-RockПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FE250003184A4909CE652CBD7B59D2542D7DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705087   (113958) от 07.03.2024
+
+Joanna Stingray (Джоанна Стингрэй) - Thinking Till Monday (Думаю до понедельника) (1990) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Modern Age Rock'N'Roll
+01.Сегодняшний рок-н-ролл (муз. и сл. Дж. Стингрэй и Б. Гребенщикова)
+Give Me Some More Of Your Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D277D22A0677288779972C0B5462A169EC6B728
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705095   (113952) от 07.03.2024
+
+Kikki (Кикки) - Полуночное солнце (1986) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113952.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01 - Кто идет (Д.-Б. Бембо — С. Бардотти — Н. Джакомелли — И. Форсман) — на шведском яз.;
+02 - Тайные влюбленные (П. Хочкисс — С. Джонсон):
+03 - Кто-то другой (А. Гленмарк — Т. X. Майнор):(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EABA8D20A0F7CA8D0B54EEB2CB5386CDCB3B8A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705133   (113925) от 08.03.2024
+
+ВИА «Веселые ребята» - Любовь – огромная страна (1974) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Любовь - огромная страна (Б. Рычков - Л. Дербенев)
+02. Я к тебе не подойду (Д. Тухманов - Л. Дербенев, И. Шаферан)
+03. Отчего (Ю. Антонов - Т. Сашко)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:348E0649E7AD1689907C815E75B331D5FF881676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705352   (113906) от 08.03.2024
+
+Кипелов - Весы Судьбы (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113906.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Весы Судьбы
+3. Ночь в душе твоей
+4. Твой путь(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:25:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE74A07D4A394B2BE6FA24845AE6BBDBB945AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705356   (113898) от 08.03.2024
+
+VA - Для вас, женщины! Деловая женщина (1988) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01 - Эй, гражданка... (А. Укупник — В. Гин)
+Ирина Понаровская
+02 - 20.00 (А. Барыкин — М. Пушкина)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A51DA18CE547C93F9EB9C7F779BB758908DAC2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705358   (113894) от 08.03.2024
 
 VA - Для вас, женщины. Принцесса (1989) [FLAC 24/192|Lossless|tracks] <Pop>
@@ -570,180 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:275F4064F1F7447CB1E61DEEA0D8FE0D4802E875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705613   (113822) от 09.03.2024
-
-ВИА «Песняры» - Песняры III (1978) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113822.jpg" />
-</div>
-
-
-###  Подробнее
-
-I сторона
-01. Явор и калина (Ю. Семеняко — Я. Купала)
-02. Поцелуй (И. Лученок — В. Коризна)
-03. По воду шла (белорусская народная песня, обработка В. Ткаченко)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1FDC9734BB3C284F7E75370D19A7754AD6A8AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705627   (113817) от 09.03.2024
-
-The Moody Blues - The Other Side Of Life (1986) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01. Твои сокровенные мечты (Дж. Хейуорд) — 4:50
-Your Wildest Dreams (J. Hayward)
-02. Разговоры, разговоры (Дж. Хейуорд – Дж. Лодж) — 3:55(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E75E46114179205577E3DD79E2ACE6C79A2AC00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705684   (113816) от 09.03.2024
-
-Dave Sereny - Come On Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On Home (3:37)
-02. The Masquerade Is Over (8:34)
-03. Igor's Blues (6:36)
-04. Georgia On My Mind (4:27)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F61D68357CF2F076029C4A74EA782397C352F11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705626   (113814) от 09.03.2024
-
-AC/DC - Stiff Upper Lip (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Stiff Upper Lip"
-02. "Meltdown"
-03. "House of Jazz"
-04. "Hold Me Back"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DAA135FCAB30E63D786256E6A293CDABB56DBB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705600   (113810) от 09.03.2024
-
-Sting - The Soul Cages (1991) 1992 [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113810.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Island Of Souls
-2. All This Time
-3. Mad About You
-4. Jeremiah Blues (Part 1)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CB59120B45A7FEC8952B954198180475562397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705687   (113799) от 09.03.2024
-
-Francis Lockwood, Johan Renard - New Surya (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sir James (3:53)
-02. Monkamania (3:23)
-03. An Easy Journey (2:55)
-04. New Surya (4:15)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54759560641A3CF79E3484FD7C15BD20A546201
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 944852   (437903) от 08.10.2015
+
+Бригада С - Легенды русского рока (1998) [FLAC|tracks+.cue]<Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звезда микрорайона (4:11)
+02. Бродяга (3:51)
+03. Playboy (4:51)
+04. Сантехник (3:52)(   Читать дальше...   )Жанр: РокПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEDB90469709E02FA80707C71FF6BA11B527A9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944851   (437718) от 08.10.2015
 
 Агата Кристи - Легенды русского рока (1998) [FLAC|tracks+.cue]<Рок>
@@ -750,41 +779,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6549E4C5279911CA5A37EF8DD9D2C4D240471EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558856   (412029) от 11.10.2012
-
-Jointstereo - Refract The Fears (2012) [FLAC|Lossless]<Death Doom Metal / Atmospheric Rock / Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_412029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immersion   (1:57)
-02. Knowledge   (4:45)
-03. Chains   (6:50)
-04. Senseless   (8:03)
-05. Alone   (4:23)
-06. Ophelia   (6:36)
-07. Oppression   (5:08)
-08. Remember Me  (6:55)
-09. Wonderland   (8:29)
-10. Insomnia   (4:37)Жанр: Death Doom Metal / Atmospheric Rock / Progressive MetalПродолжительность: 00:57:43
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

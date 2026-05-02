@@ -1,3 +1,131 @@
+###  Публикация: 658217   (254146) от 12.11.2025
+
+Big Jim Slade - This is Delicious (2008) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Branded (3:02)
+02. Pressure (3:13)
+03. No Wonder (3:30)
+04. I Am But One (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEAB35F4B732DB2BB9715F2F23C77A8D21C5AF99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 496899   (253191) от 15.05.2012
+
+Pinetop Perkins - Heaven (2012 Compilation) [FLAC|Lossless]<Blues, Piano Blues, Chicago Blues, Acoustic Blues, Boogie-Woogie>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 44 Blues  (03:23)
+02. 4 O'Clock In The Morning  (04:21)
+03. Relaxin'  (03:21)
+04. Sitting On Top Of The World  (03:53)(   Читать дальше...   )Жанр: Blues, Piano Blues, Chicago Blues, Acoustic Blues, Boogie-WoogieПродолжительность: 00:44:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495965   (252610) от 13.05.2012
+
+Blindstone - Greetings From The Karma Factory (2012) [FLAC|Lossless]<Rock, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Your Mojo  (06:28)
+02. Struck Down By The Blues  (04:35)
+03. Free  (03:15)
+04. Catch Me If You Can  (04:04)
+05. Karma  (05:16)
+06. What Your Lovin' Can Do  (06:28)
+07. In The Groove Of Things  (04:57)
+08. Once More  (04:02)
+09. Life Starts Over  (03:04)
+10. Trying  (04:22)(   Читать дальше...   )2012Жанр: Rock, Blues RockПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 495567   (251649) от 13.05.2012
+
+Queendom - Still Rising (2012) [FLAC|Lossless]<Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 'Till the Battle Is Won (3:18)
+02. They Don't Know (3:49)
+03. Heaven (4:12)
+04. Zum Zuma (3:06)
+05. Gone (3:49)
+06. Babylon (4:41)
+07. Soldier (3:26)
+08. We Go Play (4:02)
+09. Declaration of Dependence (2:27)
+10. Uncle (3:47)(   Читать дальше...   )2012Жанр: SoulПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384080   (250181) от 12.07.2022
 
 Eliza Neals - Discography: 6 albums, 1 EP (2008-2022) [FLAC|Lossless|image + .cue] <Blues, Blues Rock>
@@ -629,122 +757,6 @@ The Soul of John Black - Soul Salvation (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EF0000A22F6A17D459C386B79D19B9BD254ACBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834372   (249031) от 03.11.2025
-
-The Zac Schulze Gang - Straight to It (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Rocker (3:41)
-02.  I Won't Do This Anymore (3:02)
-03.  High Roller (3:20)
-04.  Betterland (3:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7011A442D5DDADABB7B36698975B00692E46ECAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834357   (249030) от 03.11.2025
-
-Sean McDonald - Have Mercy! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Soul (3:22)
-02.  Fakin' It (3:58)
-03.  Killing Me (5:09)
-04.  Rocking in the Same Old Boat (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63BD212E155B9D83E2BEFACA2417D00CAEEC8F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834359   (249029) от 03.11.2025
-
-The Joel Dupuis Band - Very Best Fool (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Borrowed Time (4:03)
-02.  Mind Games (2:55)
-03.  Very Best Fool (4:03)
-04.  Big Look (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F52773CCFDA32A5E846662C026FF6D2219E7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834358   (249028) от 03.11.2025
-
-Stray Dawg and the Wolves - Blues on the Inside (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lonesome Town (4:36)
-02.  Guitar Time (3:56)
-03.  Tell Her That You Love Her (4:20)
-04.  Playin' the Blues Again (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908D4166AEEB70A6D969F355CD21A4E5175245FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

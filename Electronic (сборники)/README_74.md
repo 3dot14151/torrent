@@ -1,3 +1,61 @@
+###  Публикация: 1524516   (743318) от 16.01.2022
+
+Bellatrix - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic discotech
+02. Sunrise
+03. Highway To The Unknown
+04. Abyss(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 03:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5792A150C9E8D1D9C4B773372A25BCD9F6234D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282803   (742541) от 14.02.2019
+
+VA - Sense Of Exotic Trance (2019) [MP3|320 Kbps] <Psychedelic, Goa, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Kato And Dj Shouta - Dj Kato
+02. Zoxy - Escape
+03. Sab Kuch Milegator - Surrender To Surreality
+04. Exelization - Ego Transplant(   Читать дальше...   )Жанр: Psychedelic, Goa, TranceПродолжительность: 08:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B72BDC869511987373D4D928A354376C40CD4B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282807   (742535) от 14.02.2019
 
 VA - Techno Atmospheric (2019) [MP3|320 Kbps] <Techno, Minimal, Electronic>
@@ -691,64 +749,6 @@ VA - Progressive Trance Sound Party (2020) [MP3|320 Kbps] <Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2602AA291E02338B1B6559E1C526ECD112955EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397690   (737561) от 22.07.2020
-
-VA - Beatport Trance: Electro Sound Pack: #128 (2020) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737561.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Don Ka Millo - Message In A Bottle
-002. Sunlounger - White Sand
-003. Stolas - Beck Neck
-004. Akerman - Gate Of Time(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 10:12:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B65AE4FD77D1E37F0C5085EA05A54023DA95F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397682   (737549) от 22.07.2020
-
-VA - Beatport Chill House: Electro Sound Pack #129 (2020) [MP3|320 Kbps] <Chill House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737549.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sharapov - My Way (Original Mix)
-002. Aex - I Wanna Know
-003. Dp Project - The Magic Dream Of Music
-004. Max The Sax - Make Me Feel Good(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 11:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1652F5848130303B7BDC0933B990A1EC8C205FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

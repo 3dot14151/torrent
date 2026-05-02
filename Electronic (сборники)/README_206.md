@@ -1,3 +1,61 @@
+###  Публикация: 689678   (140330) от 30.12.2013
+
+VA - Trance Top 100 2013.1 - 12 (2013) (Обновляемая) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Progressive Trance>
+
+>>След.
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140330.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sied Van Riel - Past Present Future (Original Mix)
+002. Trance Arts & Colin James - Ballistic (Original Mix)
+003. TyDi - Sex & Lies & Still Oblivious (Club Mix)
+004. Mark Norman - Phantom Manor (MaRLo Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Progressive TranceПродолжительность: 144:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B720C86426DA40C478F9A349BF3FE58965F8782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088234   (140233) от 30.12.2016
+
+VA - Умная Электроника (Музыка Поднимающая Настроение) Часть 5 (Compiled by Zebyte) (2016) [MP3|320 Kbps] <Electro-Swing, Funky Breaks, Nu Cumbia>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freddy Verano, Natalia Doco - Comets (03:08)
+02. Orkesta Mendoza - Cumbia Volcadora (03:30)
+03. Mr. Haris Pilton & Gypsy Sound System - Gitanos (03:57)
+04. Trio Serenata - Cumbia Sobre El Mar (George T Rework) (03:15)(   Читать дальше...   )Жанр: Electro-Swing, Funky Breaks, Nu Cumbia, Ragga Jungle, Sambass, Trip-HopПродолжительность: 03:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AFB2DE87F042D3C7CAFBE9C0CAE562B7A3E276C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349078   (140071) от 30.12.2019
 
 VA - House Fusion: Absolute EDM Sound (2019) [MP3|320 Kbps] <House, Dance, Electro>
@@ -702,76 +760,6 @@ VA - Music Box of Memories (2012) [MP3|320 кб/с]<Dub Step/Drum'n'Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B645DEBEA7BDF486243A952A07F26F16268C430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591825   (136197) от 20.12.2012
-
-VA-New Age Style - Lounge Cafe (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo, Easy Listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uomo - Mad World (4:50)
-02. Ely Bruna - The Final Countdown (4:17)
-03. MinusBlue - Sweet Harmony (5:56)
-04. Alex Palmer - Woman (4:09)
-05. The Tone - Relax (3:37)
-06. Sol Y Mar - Smooth Operator (5:12)
-07. Clony Chill Del Mar Inc feat. Rainfairy Mirjam - Drive (The Cars Mix) (3:54)
-08. Liula - Frozen (5:27)
-09. Banda Do Sul feat. Natascha - Sweet Chid O'mine (4:15)
-10. Urban Love Ft. Astrud C. & Moa - No Woman No Cry (4:45)Жанр: Chillout, Lounge, Downtempo, Easy ListeningПродолжительность: 03:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:386239F1678BF83C6FCDB6FA034DD9DF4E2923B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592037   (136027) от 20.12.2012
-
-VA - 70's Club Hits Reloaded, Vol. 4 (Best of Disco, House & Electro Remix Classics) (2012) [MP3|320 кб/с]<Disco, House, Electro, Grime>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jennifer Lowpass - I Need Your Lovin' (Sagy & Lingyi Mix)
-02. Yakooza - Lovin' You (Electro Dubstep Edit)
-03. Rob Nunjes - Ain't No Mountain High Enough (Last Days of Disco Mix)
-04. Freakend - Daddy Cool (Glamourama Rmx)
-05. Luv House - Relight My Fire (Uplifting Mix)
-06. Todd Humphries - Rock With You (Fudge X Featuring Steve Osaka Edit)
-07. Sunny Romero - Cuba (Rfn Edit)
-08. Disco Sugar - Let's All Chant (Rfn vs Milk Boys My Party Mix)
-09. Rod Bass, Heat Hunter - How Deep Is Your Love (Dub Kontor Mix)
-10. Angelstar - Mandy (DJ Cobra Mix)(   Читать дальше...   )Жанр: Disco, House, Electro, GrimeПродолжительность: 01:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DA8DA01BE5B227EF2C5A390F7028DBDED3DB7C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 980442   (955690) от 29.01.2016
+
+Проекты - Motion Array - Double Exposure - 3829 [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу с эффектом параллакса.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99A224349F83743CCB0FE9DD4A1445862AE0AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980498   (955584) от 29.01.2016
 
 VideoHive - Old Album Photos - 14096770 / Pond 5 - Old Album Photos - 58206493 [AEP]
@@ -655,33 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D693743A7519A5D3E668F4607A4ADA0BFAEE8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982632   (946721) от 04.02.2016
-
-Проекты - Pond5 - Fashion Gallery [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5D96F6F4396DF6D28E99F850582308EB9F0B64
 ```
 
 https://mybot314.ru/tekegram_catalog/

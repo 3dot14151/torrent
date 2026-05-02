@@ -1,3 +1,61 @@
+###  Публикация: 1772696   (31153) от 12.01.2025
+
+VA - Musical kaleidoscope part 20 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Polkovnik - Space Wind
+02. Dj Aurm - Waves of Love
+03. Dj Artur - Hope
+04. Сергей Грищук - Снежная Симфония(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F38943939A424C47A6BCAE023AA1BE92B9C562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772697   (31149) от 12.01.2025
+
+VA - Compilation part 138 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Umar Keyn - No Love
+02. Joni - Can I Love You
+03. Jumanov - The Past
+04. Limora - Hug Me Again(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9BD57589E023AB3404F353736AD9E5E60CC5C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772900   (31148) от 12.01.2025
 
 VA - Musical kaleidoscope part 21 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
@@ -685,64 +743,6 @@ VA - Compilation Part 150 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F39991D01D822C96722F60F507B638B6C73CAD04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788128   (23206) от 28.03.2025
-
-VA - Musical kaleidoscope part 35 Easy listening (2025) [MP3|320 Kbps] <Electronic, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flaer Smin - Ad Se Ipsum
-02. Aleksey Boychenko - Enigma Forever
-03. Sisco Le Voyageur - L' Amour Voyageur
-04. Flaer Smin - My Religion(   Читать дальше...   )Жанр: Electronic, Easy listeningПродолжительность: 01:06:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A28C19E070FB16C7E94EE070DD1C52B4AAB1F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788243   (23166) от 29.03.2025
-
-VA - Cosmic Heaven (2025) [MP3|320 Kbps] <Synthpop, Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23166.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Unusual Cosmic Process - Stellar (00:07:03)
-002. 7He Myriads - Spacer (00:05:10)
-003. Ernestronix - Italo Space Dance (00:05:33)
-004. Sigma_Algebra - Orthogonal Projection (00:04:35)(   Читать дальше...   )Жанр: Synthpop, Pop, Dance, ElectronicПродолжительность: 10:30:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFF376EFDA5BFA669D6E181E5430BEAB78BA9B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

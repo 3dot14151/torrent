@@ -1,3 +1,61 @@
+###  Публикация: 1371776   (888714) от 01.04.2020
+
+Joe Bushkin Featuring Buck Clayton - Three Classic Albums Plus 1946 - 1951 (2013) 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888714.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dinah [3:26]
+02. If I Had You [2:44]
+03. Once In A While [3:02](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F846C1DB3BCF160CC61F007EF29116EF5BA78AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1371912   (888703) от 01.04.2020
+
+Various - A Twist of Jobim (1997) [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lee Ritenour & Dave Grusin - Water To Drink (Agua De Beber)
+02. Eric Marienthal, Dave Grusin, & Lee Ritenour - Captain Bacardi
+03. El Debarge & Art Porter - Dindi
+04. Al Jarreau & Oleta Adams - Waters Of March(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF2CC001CA6C1FAE8D820C6DC43EEB546AC0BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1371779   (888691) от 01.04.2020
 
 Various - A Twist Of Marley (2001) [FLAC|Lossless|image + .cue] <Jazz, Reggae, Funk / Soul>
@@ -686,64 +744,6 @@ Various Artists - Hammond Street (2001) [FLAC|Lossless|image + .cue] <Acid Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFD919D424276B93E06D9610C41D63AFCEBAA69D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372063   (885623) от 03.04.2020
-
-Oscar Peterson - Keyboard 1950 (2005) Membran Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jumpin' With Symphony Sid [3:02]
-02. Robbins Nest [3:16]
-03. Tico Tico [3:02]
-04. Get Happy [2:32](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9CF59BB4143A7FC57D7A6EE550A0489BC4CBA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995490   (884801) от 11.03.2016
-
-Duke Pearson - Now Hear This (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Disapproachment [05:53]
- 02.I'm Tired Cryin' Over You [03:51]
- 03.Tones For Joan's Bones [05:34]
- 04.Amanda [03:47](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A53DF760F56115179C4E81435A6EE95F8A7406C
 ```
 
 https://mybot314.ru/tekegram_catalog/

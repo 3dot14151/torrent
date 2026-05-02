@@ -1,3 +1,119 @@
+###  Публикация: 1156289   (444651) от 17.09.2020
+
+Cold Chisel - 23 Albums (1978 - 2019) 39 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cold Chisel - самая известная австралийская паб-роковоя команда, распродавшая на родине свыше трех миллионов пластинок. Группа, где, по сути, началась карьера Jimmy Barnes, образовалась в 1973 году в Аделаиде и поначалу меняла названия чуть ли не на каждом концерте. Конец неразберихе с вывесками положил клавишник Дон Уолкер (впоследствии главный автор песен), сочинивший (   Читать дальше...   )Список альбомов:
+1978 - Cold Chisel
+1979 - Breakfast At Sweethearts
+1980 - EastЖанр: Hard RockПродолжительность: 34:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA48209783CC8566665D3C2B8D26497559CA9972
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164121   (443775) от 08.09.2017
+
+The Nights - The Nights (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The Show
+02. Nothing But Love
+03. Juliette
+04. I Will Never Stop Loving You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF441B04481ECA35954B83CF0C5B9A635105F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375511   (443748) от 12.10.2016
+
+Fair Warning - 10 альбомов, 4 EP, 2 сингла, 20 CD (1992 - 2016) [FLAC|image+.cue|Lossless]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fair Warning достаточно известен у нас в России, стране далеко не равнодушной ни к AOR'y вообще, ни к германской металлической сцене в частности. Образована команда на стыке 80-х и 90-х бывшим вокалистом V2 Томми Хартом (Tommy Heart) и экс-басистом Zeno Уле Винсом-Ритгеном (Ule Winsome-Ritgen), к которым вскоре примкнули гитаристы Энди Малчек (Andy Malcek), Хельг (   Читать дальше...   )Список альбомов:
+Fair Warning - 1992 Fair Warning
+Fair Warning - 1993 In The Ghetto (EP)
+Fair Warning - 1993 Live In Japan(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 13:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE6C763B8C96437590CE1C6159CD91EE0CD3311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570331   (443029) от 17.08.2022
+
+A-Z - A-Z (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic, Progressive Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trial By Fire
+02. The Far Side Of The Horizon
+03. The Machine Gunner
+04. Rise Again(   Читать дальше...   )Жанр: Melodic, Progressive Hard RockПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6C4F2E57671BDD74391F1A39F8952031BAE523A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1570268   (442879) от 17.08.2022
 
 Sweet - The Answer (1995) Remastered, 2022, Aviator-Entertainment [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
@@ -629,119 +745,6 @@ Nazareth - Close Enough For Rock'n'Roll (1976) remastered /2002, Eagle Records/ 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410922   (429542) от 24.09.2020
-
-Lord Tracy - Deaf Gods Of Babylon (1989) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out With the Boys
-02. East Coast Rose
-03. Shes a Bitch
-04. Barney’s Wank(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2523EC618DA2EDB00A0997B15E329B22278AFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1160694   (428570) от 26.09.2018
-
-Alice Cooper - Paranormal (2017) Deluxe Edition, Japan Press [WavPack|Lossless|image + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый студийный альбом, первый за 6 лет (!)Жанр: Hard Rock, Classic RockПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A73252D31EC841F8E2674DA95A505F149714C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063964   (428372) от 19.10.2016
-
-VA - Thunder And Steel Down Under - A Tribute To Riot (2015) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferdy Doerngers - Soldier 02:15
-02. Axel Rudi Pell - Warrior 03:42
-03. Attacker - Fire Down Under 02:37
-04. Walpyrgus - Outlaw 03:55(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:53:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:225BDE7DB35A57563633FC5D5A628B8ED45DEA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064148   (428042) от 19.10.2016
-
-Tony Carey - Stanislaus County Kid (2010) [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's All Over Now (Baby Blue) 4:23 (Bob Dylan)
-02. Unchained Melody 3:57 (North/Zaret)
-03. A Change Is Gonna Come 3:56 (Sam Cooke)
-04. Abraham, Martin And John 4:12 (Dick Holler)(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB4B426FD8AF42A2F19AD14AAA78CCAC65ADA255
 ```
 
 https://mybot314.ru/tekegram_catalog/

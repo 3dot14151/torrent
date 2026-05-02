@@ -1,3 +1,260 @@
+###  Публикация: 457481   (94360) от 25.02.2012
+
+George Gakis - Too Much Ain't Ever Enough (2012) [MP3|320 кб/с]<Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Married Trouble (04:15)
+02. Fame (05:09)
+03. Street Of Broken Dreams (03:45)
+04. Days of Rock 'n' Roll (03:17)
+05. When Opposites Attract (04:50)
+06. Too Much Ain't Never Enough (03:49)
+07. License For Love (03:48)
+08. Under My Skin (04:54)
+09. Rebelious Son (04:51)
+10. It Aint Over Till It's Over (05:09)(   Читать дальше...   )2012Жанр: Hard RockПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5044F19F431B210EBC5D27F5D4AF74FA74F7240D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457639   (94347) от 25.02.2012
+
+Win7codecs 3.5.1 Final + x64 Components / Eng
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Win7codecs - это пакет кодеков предназначенный для установки в новой операционной системе Windows 7. Пакет представляет собой автоматизированное средство, предназначенное для установки основных кодеков и декодеров. Он не содержит никаких дополнительных проигрывателей и не меняет системные ассоциации файлов по умолчанию. Кроме того, при установке он автоматически удалит уже установленные кодеки и заменит их собственными из комплекта для обеспечения лучшей совместимости.
+Changelog:
+- update LAV filters .48
+- update Gabests filters 4090Название программы: Win7codecs 3.5.1 Final + x64 Components / EngЯзык интерфейса: английский (установщик русский)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457855   (94342) от 25.02.2012
+
+VA - Progstorm 3 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zane - Shadows 06:36
+ 02. Eight Sin - Orchestra 05:57
+ 03. Naturalize - In Memory of a Friend 07:15
+ 04. Kularis - Fruitopia (Querox rmx) 07:27
+ 05. Monod - Calculations 08:04
+ 06. Klopfgeister - Progwarts 07:35
+ 07. Hi Profile - Today 09:47
+ 08. Mr Suspect - Diva 07:44
+ 09. Synsoniq - Point of Pleasure 08:112012Жанр: Psychedelic / ProgressiveПродолжительность: 01:08:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA1C7C37A85A4EC9016AA93C27B12F5C94B2BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457896   (94325) от 25.02.2012
+
+Nerso - Exploration of Infinity (2011) [MP3|~265 кб/с (V0)]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Jungle Of Sounds (With Iva) 07:53
+ 02 Electrify 06:36
+ 03 Dune (With Sideform) 07:05
+ 04 Synapse 06:31
+ 05 Borderland 06:26
+ 06 Vertigo (With E-Clip) 07:23
+ 07 Crystal 07:16
+ 08 Deep Blue (With Middle Mode) 08:04
+ 09 Quirky 07:452011Жанр: Psychedelic / ProgressiveПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ADBE36E581A7BC26C9068FE873488AA0982DFCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457275   (94279) от 24.02.2012
+
+Armen Chakmakian - Caravans (2004) [FLAC|Lossless]<Contemporary Jazz, New Age, Fusion>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire Dance (5:18)
+02. Spirits Ride (6:18)
+03. Caravans (6:13)
+04. El Mirage (5:09)
+05. Without a Word (6:16)
+06. September (3:17)
+07. Trio (5:24)
+08. Hope Rising (5:23)
+09. Journey Home (Birdsong Medley) (2:05)
+10. Birdsong (Birdsong Medley) (5:17)(   Читать дальше...   )2004Жанр: Contemporary Jazz, New Age, FusionПродолжительность: 00:58:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457099   (94277) от 24.02.2012
+
+[Фото знаменитости] Christina Aguilera
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фото Кристины Агиллеры в высоком разрешении
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CC78A99957A6B3A0E1DCC82DB3FC8FE8A95951F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456944   (94274) от 24.02.2012
+
+[DE] Чужая душа - потёмки / Ihr koennt euch niemals sicher sein / None of you can ever be sure (2008) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Oliver (Ludwig Trepte) ist leidenschaftlicher Rapper. Nun soll er im Deutschkurs einen Aufsatz über "Die Leiden des jungen Werther" verfassen. Doch weil er den im Stile seiner Raptexte verfasst hat, erhält er von seiner Lehrerin eine Sechs. Enttäuscht und missverstanden verlässt er die Klasse. Dabei verliert er einen weiteren Text, in dem er ein Blutbad an seiner Schule ankündigt. Oliver wird zur Beobachtung in die Jugendpsychiatrie eingewiesen.
+Dort lernt er Katja kennen...
+
+Оливер (Ludwig Trepte) увлечен рэпом. Но когда ему приходится написать работу по немецкому на тему "Страдания юного Вертера", которую он создает в рэпперском стиле, учитель ставит ему самую низкую оценку. Когда подросток в расстроенных чувствах покидает занятие, он случайно теряет еще один из своих текстов - тот, в котором красочно описывает кровавую бойню в собственной школе. Оливера направляют к психиатру, где он знакомится с Катей, загадочной и неуравновешенной девушкой...Жанр: ДрамаРежиссер: Николь ВигманнАктеры: Людвиг Трепте, Дженни Шили, Юрген ТонкельПеревод: ОтсутствуетПродолжительность: 01:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C5233922999A2609D7BE44FEF5C764A93223620
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457210   (94273) от 24.02.2012
+
+VA - Royal Flush Vol. 4 (2 cd) (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94273.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 :
+Продолжительность: 01:11:05
+
+ 01. Cimi vs Bomb Voyage - Particles and Waves 08:12
+ 02. Invisible Reality - Sunflower 07:42
+ 03. Meander & Ridden - Space Navigators 07:51
+ 04. Elecdruids - Insanity 08:16
+ 05. Jumpers & Analog Drink - Surrounded by Stars 07:18
+ 06. Abstract Sunrise - Butterfly 07:59
+ 07. Zyce - Gates 09:24(   Читать дальше...   )2012Жанр: Psychedelic / ProgressiveПродолжительность: 02:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A99090431420AA5D76BA67D6BF7D878F5041EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 455783   (94259) от 24.02.2012
 
 ASM - Platypus Funk (2010) [MP3|192-320 kbps]<Hip Hop / Funky Breaks / Reggae>
@@ -573,253 +830,6 @@ VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E581143ED7E60AEE91BFF68673F08AC316E8B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454675   (94067) от 22.02.2012
-
-VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acid Lupe - Orchestra (Original Mix) (7:10)
- 02. Chabud - Souk (Mad Raf Tom Zenith Remix) (6:00)
- 03. Dani San - Clikity Clack (Original Mix) (6:44)
- 04. David Prap & Willy Real - Burnout (Manel Diaz Crazy Drum Mix) (6:09)
- 05. David San & Richie Dane – Colotina (Original David Mix) (6:17)
- 06. Edoardo Spolaore - Bastard Clap (Original Mix) (8:16)
- 07. Emanuele Millozzi & Claudio Petroni - Rauco (Manel Diaz Remix) (6:12)
- 08. Leeks - Amoeba (Original Mix) (7:17)
-09. Lowboys - Hall Of Panic (7:30)
- 10. MCJ - Pooomp (Manu Sami Remix) (6:09)(   Читать дальше...   )12.02.2012Жанр: MinimalПродолжительность: 02:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83C7836E0C2716C4052BD382EEFD8E7CFAD4BB06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455673   (94058) от 21.02.2012
-
-VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitry Globa - La Aurora Boreal
-02. John '00' Flemming - The Astrophysical Nebula
-03. Paul Oakenfold & Robert Vadney - Pop Star (Yahel Remix)
-04. Matisse & Sadko - Amulet
-05. Limbo - Paradox
-06. Solarstone feat. Alex Karweit - Breakaway (Solarstone's Phuture Mix)
-07. Talpa - The Moon (Flegma & Nerso Remix)
-08. Aggresivnes - Futurasia (Blazer Remix)
-09. Oakenfold feat. Tamra Keenan - Maybe It's Over (Organ Donors Perfecto Mix)
-10. Tim Jirgenson - Get Ready(   Читать дальше...   )2012Жанр: Trance, Progressive TranceПродолжительность: 01:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455849   (94013) от 21.02.2012
-
-Журнал | Автомир [Россия] №8 [февраль 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94013.jpg" />
-</div>
-
-
-###  Подробнее
-
-АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455058   (94011) от 21.02.2012
-
-Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94011.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Too Lazy (6:01)
-2. Play (5:51)
-3. Sweet Nothings (4:55)
-4. Fluffy Cloud (8:13)
-5. Endless Games (3:31)
-6. The Sun Come Up (7:16)
-7. Razorskit (1:52)
-8. Berlin Summer Nights (5:56)
-9. Take These Scissors (5:42)
-10. Backyard (4:33)(   Читать дальше...   )2012Жанр: Tech-houseПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455256   (93994) от 21.02.2012
-
-[Wallpapers] Обои для рабочего стола.
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола,на любой вкус(280 шт.)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB3B6219028615B61FCF322DBDB04046C682A70C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455443   (93960) от 20.02.2012
-
-Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maybe It`s You (05:13)
-02. Close My Eyes (05:51)
-03. Space Trip (05:12)
-04. Dons You (05:07)2012Жанр: Drum & BassПродолжительность: 00:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455166   (93957) от 20.02.2012
-
-DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hannah - Falling Away (Protoculture Remix) (ARMADA)
-02. DJ Feel feat Loona - Ill Find Myself (Original Mix) (ALTER EGO)
-03. Orjan Nilsen - Legions (Original Mix) (ARMIND)
-04. Mike Foyle feat. Refeel - Universal Language (Original Mix) (SOUNDPIERCING)
-05. Cold Blue - Coconut (Original Mix) (MONSTER TUNES)
-06. alexander popov - elegia (original mix)
-07. Robbie Rivera - Dance Or Die Series 2 - Makes Me Feel Good (JUICY)
-08. Marcel Woods - Everything (Marcel Woods 2nd Treatment) (MUSICAL MADNESS)
-09. Ferry Corsten feat Ben Hague - Aint No Stoppin (Original Extended) (FLASHOVER)
-10. Cosmic Gate & Arnej - Sometimes They Come Back For More (Stoneface & Terminal Remix) (BLACK HOLE)(   Читать дальше...   )25 Of January 2012Жанр: TranceПродолжительность: 01:58:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B7CC9D64C5D6DAF3180429FF1EB8FB67A69C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455478   (93953) от 20.02.2012
-
-Газета | Сад, огород – кормилец и лекарь №4 (февраль 2012) [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93953.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABFBFEA25E9FB8ADD378F1D7F1639251024E6736
 ```
 
 https://mybot314.ru/tekegram_catalog/

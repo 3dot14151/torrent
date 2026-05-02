@@ -1,3 +1,119 @@
+###  Публикация: 1011427   (797029) от 27.04.2016
+
+Magic Sam Blues Band - Black Magic (1969),2015,Delmark Records [FLAC|Lossless|tracks + .cue] <Blues, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Want A Little Bit (03:04)
+02. What Have I Done Wrong (03:11)
+03. Easy, Baby (04:24)
+04. You Belong To Me (04:08)(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8471A7609FC2172B78E3CF71F48F8EFFD7FA0E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386532   (794471) от 29.05.2020
+
+Dusty Springfield - A Girl Called Dusty (1964) Reissue 1997 [FLAC|Lossless|tracks] <Funk / Soul, Pop>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Said (2:14)
+02. You Don't Own Me (2:41)
+03. Do Re Mi (2:57)
+04. When The Lovelight Starts Shining Thru His Eyes (2:53)(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BDB5F0DB9CDA8A4354C1EC8F1F8A506F3ED385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012365   (793726) от 01.05.2016
+
+Bugs Henderson And The Shuffle Kings - Four Tens Strike Again (1996) [FLAC|Lossless|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucille    03:36
+02. Can't Find Love    05:28
+03. Highway 61 Revisited    04:56
+04. Black Spring    04:12(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E452A40403AE453039B48199669CC4D9728E65B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122966   (793622) от 06.04.2017
+
+Bill Thomas Trio - Rough Draft (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Been Bad (02:44)
+02. Daddy Told Me (04:44)
+03. Your Time Has Come (04:38)
+04. Don't You Know (03:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E0AC6536B6AEB1F0C57ACC5B61688497759D6EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386579   (793585) от 30.05.2020
 
 Otis Redding - Otis Blue / Otis Redding Sings Soul (1965) Remastered 1991, Mono [FLAC|Lossless|tracks] <Funk / Soul>
@@ -629,122 +745,6 @@ King King ‎ - Standing In The Shadows (2013) [FLAC|Lossless|image + .cue] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56B3F5894AE16E91117A427F9D3499C126380E5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806059   (786647) от 06.06.2020
-
-Monte Montgomery - 10 Albums (1998 - 2016) [FLAC|tracks+.cue|Lossless]<Contemporary Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Monte Montgomery - американский гитарист, певец. В довольно жесткую блюз-роковую игру ритм секции гениально вписана виртуозная игра на электроакустике Montgomery. Мелодичные джазовые соло мастера подчеркивают гениальную простоту блюза, бескомпромиссность рока. Четыре раза(из-за стиля игры) ломал он свою уникальную гитару DY62C, сейчас гитара имеет специальное усиление. (   Читать дальше...   )Список альбомов:
-1998 - 1st And Repair
-1999 - Mirror
-2001 - Wishing WellЖанр: Contemporary BluesПродолжительность: 10:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B3BD5BE88358F661DB7598155AF28CD7D0BEA82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123680   (786405) от 08.04.2017
-
-Loes Swinkels - Nothing As I Know (2015) [FLAC|Lossless|image + .cue] <Blues, Americana>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing As I Know  (04:08) 
-02. Love All Around   (04:05) 
-03. Sending Love & Hope To You   (04:38) 
-04. Good For Me   (03:59) (   Читать дальше...   )Жанр: Blues, AmericanaПродолжительность: 00:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F35D83BBE7AD28B55DFF9444CBBBC3E17E49CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123660   (786404) от 08.04.2017
-
-Devon Allman - Ragged & Dirty (2014) [FLAC|Lossless|image + .cue] <Blues Rock, Southern Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half The Truth  (03:07) 
-02. Can't Lose 'Em All  (03:45) 
-03. Leavin'  (02:42) 
-04. I'll Be Around  (03:56) (   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35E807FBB1CDCB1493648C583D60CA40CD359B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123157   (786396) от 08.04.2017
-
-Rockin' Blues - Make it Right (2012) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Times A Rollin' (3:50)
-02. A Little Love (4:00)
-03. Sentenced To Smile (3:03)
-04. One-Way Kind Of Love (4:20)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3111099A048B7296BE24331394893B1D13DB89D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

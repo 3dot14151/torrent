@@ -1,25 +1,25 @@
-###  Публикация: 1736221   (106730) от 11.07.2024
+###  Публикация: 1728778   (108275) от 08.06.2024
 
-Travis - L.A. Times (2024) [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Alternative Rock>
+Archives - No Bliss In Ignorance (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Metalcore>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bus (3:24)
-02. Raze the Bar (3:05)
-03. Live It All Again (3:24)
-04. Gaslight (3:24)(   Читать дальше...   )Жанр: Soft Rock, Alternative RockПродолжительность: 00:52:37
+01. Deathdealers [00:03:35]
+02. SHARKPIT [00:02:49]
+03. Self Inflicted [00:03:10]
+04. No Sweat [00:03:26](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:33:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:749B059EE5746808402B8708C693663110C1B624
+magnet:?xt=urn:btih:39709281FC7480AC070946C5D77E6622E86C4EC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736022   (106729) от 11.07.2024
+###  Публикация: 1728702   (108274) от 08.06.2024
 
-James - 1999 Singles & B-Sides (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
+Holy Mother - Rise (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Know What I'm Here For [00:03:57]
-02. All Good Boys [00:04:13]
-03. Imagine Ourselves [00:04:32]
-04. Stolen Horse [00:04:19](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 01:05:36
+01 – Fire
+02 – The Elevator
+03 – Jeremiah
+04 – Power(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F82ECA89649E3319D4E325B0EDDAA31944E9091A
+magnet:?xt=urn:btih:0C0E42D20395C3765452F3114BBF0554EF17A737
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736153   (106728) от 11.07.2024
+###  Публикация: 1728706   (108273) от 08.06.2024
 
-Ice - Man In The Moon (2024) [MP3|320 Kbps] <Neo Progressive Rock>
+Dream Drop - Acne Superstar (2023) Extended version, 2024, GAIN [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.Metal>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Man In The Moon (07:00)
- 02. The Voice of Black Mountain (07:04)
- 03. Inside the Bulb (06:10)
- 04. The Dreams that Never Were (05:41)(   Читать дальше...   )Жанр: Neo Progressive RockПродолжительность: 01:04:27
+01 – I’m Still Sick
+02 – Acne Superstar
+03 – Fold Under Pressure
+04 – That’s Not The World At All(   Читать дальше...   )Жанр: Alt.Rock, Alt.MetalПродолжительность: 00:42:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA8E6499038CFFDE3812974A1C7ABD34EC6A38B6
+magnet:?xt=urn:btih:BFC29305C72D8D5295ECC677D0FF6891D2EFB252
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736168   (106727) от 11.07.2024
+###  Публикация: 1728805   (108272) от 08.06.2024
 
-CVN - 4 Albums (2016-2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental, Abstract>
+Шарль Перро | В гостях у сказки (Выпуск № 20). Кот в сапогах (2005) [MP3, Елена Соловьёва]
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-2016 - Matters
-CVN - 2019 - I.C.
-2020 - 2019 _ 1897 Split Series, Vol. V(   Читать дальше...   )Жанр: Electronic, Experimental, AbstractПродолжительность: 4 CD, 02:33:53
+Серия/Цикл: В гостях у сказки, Мой ребёнок, Детская литература (ИД СОЮЗ).
+Шарль Перро написал свою первую сказку, когда ему было 65 лет. Спустя четыре года после этого, вышел сборник «Сказки моей матушки Гусыни, или истории и сказки былых времен с поучениями», который в одночасье сделал Перро знаменитым. От увлекательных и захватывающих сказок Шарля Перро невозможно (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00:32:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13607E78BEF238C5795500BAC34BFB602BEAB4C3
+magnet:?xt=urn:btih:668EEA094D2BA2E34177561D82D06A50D05ECFBA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +112,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736017   (106726) от 11.07.2024
+###  Публикация: 1728791   (108271) от 08.06.2024
 
-Markus Schulz - Global DJ Broadcast World Tour: Luminosity Beach Festival 2024 (2024-07-04) [MP3|320 Kbps] <Trance, Techno>
+Народ | В гостях у сказки (Выпуск № 7). Морозко (2005) [MP3, Елена Соловьёва, Дмитрий Полонский]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106726.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Markus Schulz presents Dakota - Stereo 11AM (Intro)
-02. ID - ID
-03. ID - ID
-04. Binary Finary - 1998 (Victor Ruiz Remix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:01:02
+Серия/Цикл: В гостях у сказки, Мой ребёнок, Детская литература (ИД СОЮЗ).
+Кто из нас в детстве не любил сказок? В суете современной жизни мы забываем об этом, а если вспомнить, с каким упоением мы слушали родителей, читающих нам сказку на ночь, с каким трепетом мы брали в руки первую книгу. Мы с замиранием сердца ждали от сказок чудес и волшебства, и получали их (   Читать дальше...   )Жанр: Русская литература для детей, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00: 48:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7771F0E4C7419B586E27E634B951EB1E6EE35021
+magnet:?xt=urn:btih:CDF1E4BF7244D6B1C845125E1386057E7AC26F59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +139,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736116   (106725) от 11.07.2024
+###  Публикация: 1728803   (108270) от 08.06.2024
 
-Lodestar - Polaris (2023) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Gothic Metal, Heavy Metal>
+Шарль Перро | В гостях у сказки (Выпуск № 19). Золушка (2005) [MP3, Елена Соловьёва]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: В гостях у сказки, Мой ребёнок, Детская литература (ИД СОЮЗ).
+12 января 1628 года в Париже, во времена мушкетеров и завитых париков, родился тот, кого сегодня называют одним из самых великих сказочников – Шарль Перро. Именно он написал всеми любимых «Красную шапочку» и «Мальчика с пальчик», «Синюю бороду» и «Спящую красавицу».
+Сказки Шарля Перро удивительно (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537A083CC428688853D6D6F1FEBA7D2E500B801E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728820   (108269) от 08.06.2024
+
+Margaux - Inside the Marble (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <indie pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DNA [00:04:35]
+02. Picture It [00:03:31]
+03. I Wouldn't Want It Any Other Way [00:03:17]
+04. Sadie Something [00:02:34](   Читать дальше...   )Жанр: indie popПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFFEE446D8407BB3E01E0C742FC032E2D29DE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728697   (108268) от 08.06.2024
+
+Liam Kane - Metronomic Perfection (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shooting Star (4:46)
-02. Never Die (4:34)
-03. Save Me From Fate (5:10)
-04. In This Life (4:26)(   Читать дальше...   )Жанр: Doom Metal, Gothic Metal, Heavy MetalПродолжительность: 00:55:02
+01 – Metronomic Perfection
+02 – Valley of the Kings
+03 – Geometric Suicide
+04 – Width of an Atom(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:35:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72BA09DA57F0C3EDD5B98B351AFB1B3931E414C6
+magnet:?xt=urn:btih:9D120A81122C31F943364080E4350E020F1DA32C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,27 +225,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736252   (106724) от 11.07.2024
+###  Публикация: 1728776   (108267) от 08.06.2024
 
-Wavesequencer - Theia 1.14 STANDALONE, VSTi 3 (x64) RePack by TCD [En]
+Ночь перед днем рождения Кристиана / Natten for Christians Fodselsdag (1909) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Программ
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108267.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Theia обеспечивает легкий доступ к мощному синтезатору Hyperion и его великолепной обширной звуковой библиотеке, насчитывающей около 600 пресетов.
-Интерфейс, ориентированный на производительность, позволяет легко управлять каждым звуком, позволяя вам без усилий просматривать сложные конструкции патчей и сосредоточиться на создании музыки.
-Мгновенный источник музыкального (   Читать дальше...   )Язык интерфейса: Английский
+Небольшой нравоучительный фильм. Не знаю уж почему киносервисы считают его комедией. Вот уж никак не комедия. К сожалению, титры не сохранились и не все нюансы сюжета понятны. Но в целом, вот о чем речь. Молодой рабочий паренек, накануне своего дня рожденья, слышит как бабушка спорит со своим знакомым о том, что важнее всего в жизни. Старичок считает, что самое главное (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: короткометражный, комедия, немое киноРежиссер: Вигго ЛарсенАктеры: Ааге Брандт, Хольгер-Мадсен, Густав Лунд, Agnes Nørlund SeemannЯзык озвучки: немойСубтитры: отсутствуютПродолжительность: 00:08:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:54DF7FBBB728FA79227F87A7D01B9B1B50740142
+magnet:?xt=urn:btih:4145F6E39FA05B878C6029ED185AAFD404A59132
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,28 +251,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736135   (106723) от 11.07.2024
+###  Публикация: 1728777   (108266) от 08.06.2024
 
-VA - FSOE Summer Selection (2024) [MP3|320 Kbps] <Trance>
+Atrophy - Studio Albums (3 releases) (1988-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
->>Electronic
->>Trance
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108266.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aly & Fila & Richard Durand - Nebula (Extended Mix) [7:20]
-02. Billy Gillies - Nostalgia (Extended Mix) [7:26]
-03. Paul Denton - The Code (Michael Fearon Extended Remix) [5:18]
-04. Alex M.O.R.P.H. & Luminn - Shambhala (Extended Mix) [6:32](   Читать дальше...   )Жанр: TranceПродолжительность: 02:19:21
+Atrophy - американская трэш-метал группа, образованная в Тусоне, штат Аризона.1988 - Socialized Hate
+1990 - Violent By Nature
+2024 - AsylumЖанр: Thrash MetalПродолжительность: 02:09:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6CB8FFEB76936B5254B2A56FDA4039A814A4EA00
+magnet:?xt=urn:btih:06D3BF7C0E4AE31CD33B18046936EB14BF7D67B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,26 +279,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736039   (106722) от 11.07.2024
+###  Публикация: 1728796   (108265) от 08.06.2024
 
-EssentialPIM Pro 12.0.3 RePack (& Portable) by Dodakaedr
+Народ | В гостях у сказки (Выпуск № 12). Али-Баба и сорок разбойников (2005) [MP3, Вячеслав Гришечкин]
 
->>Архив торрентов
->>Архив Программ
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108265.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мощный и функциональный почтовый клиент и органайзер, который предлагает интеграцию со всеми основными онлайн-сервисами.
-EssentialPIM - это отмеченное различными наградами решение для всех ваших потребностей в производительности. Поддерживаемая большим сообществом пользователей, приложение получило широкое признание как самый мощный, интуитивно понятный и персонализируемый (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский, Белорусский
+Серия/Цикл: В гостях у сказки, Мой ребёнок, Детская литература (ИД СОЮЗ).
+Когда-то давным-давно в одном персидском городе жили два брата Касим и Али-Баба. Али-Баба с самого утра и до позднего вечера рубил дрова, чтобы потом продать их на рынке и купить себе немного еды. В один из дней Али-Баба стоял под высоким деревом и уже собирался его срубить, как вдруг увидел, (   Читать дальше...   )Жанр: Зарубежная литература для детей, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00:48:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6C47734757307329CBDBBC23F024FFE6357F519
+magnet:?xt=urn:btih:2FAAD5433AF0A9252C0112CC9928EE7FBF5FDF1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,28 +306,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736146   (106721) от 11.07.2024
+###  Публикация: 1728663   (108264) от 08.06.2024
 
-Ice - Man In The Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Neo Progressive Rock>
+Toxic Holocaust - Studio Albums (6 releases) (2003-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108264.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Man In The Moon (7:00)
-02. The Voice of Black Mountain (7:04)
-03. Inside the Bulb (6:10)
-04. The Dreams that Never Were (5:41)(   Читать дальше...   )Жанр: Neo Progressive RockПродолжительность: 01:04:25
+Toxic Holocaust — американская трэш-метал-группа, основанная в Портленде в 1999 году.2003 - Evil Never Dies
+2005 - Hell On Earth
+2008 - An Overdose Of Death
+2011 - Conjure and CommandЖанр: Thrash MetalПродолжительность: 03:25:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD93D5C8411FAD44D997CC2B17544632C491FB93
+magnet:?xt=urn:btih:78627459D5244934FE0EA2284DBF475A522B020C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,28 +335,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736111   (106720) от 11.07.2024
+###  Публикация: 1728707   (108263) от 08.06.2024
 
-Leo Parker - Rollin' With Leo (1961) 2009, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Evergrey - Theories Of Emptiness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Falling From The Sun
+02 – Misfortune
+03 – To Become Someone Else
+04 – Say(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3765C6A4D2468BA261BF1C563AC7E8EE94A092B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728640   (108262) от 08.06.2024
+
+Oscar Peterson - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Lion's Roar [4:55]
-02. Bad Girl [6:17]
-03. Rollin'  With Leo [6:25]
-04. Music Hall Beat [4:57](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:52
+01. Smoke Gets in Your Eyes [3:07]
+02. Deep Purple [3:12]
+03. Robbin's Nest [3:16]
+04. I'll Remember April [3:35](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:10:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6311719A6A8B0587ADFD5B8EB4C0AB03D05B5C4A
+magnet:?xt=urn:btih:13E8CA59ACF102AF97E2BE6395ECC7BA9F7FD300
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,28 +393,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736257   (106719) от 11.07.2024
+###  Публикация: 1728779   (108261) от 08.06.2024
 
-JoosTVD - 196tree (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Funk>
+LImperatrice - Pulsar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <nu disco, french pop, synthpop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Keep the Temperature Down (3:11)
-02. The Dark (3:01)
-03. That Freaking Disco (2:47)
-04. Voyage of Vanity (2:28)(   Читать дальше...   )Жанр: FunkПродолжительность: 00:39:01
+01. Cosmogonie [00:02:49]
+02. Amour Ex Machina [00:04:03]
+03. Me Da Igual [00:03:29]
+04. Love from the Other Side [00:04:09](   Читать дальше...   )Жанр: nu disco, french pop, synthpopПродолжительность: 00:40:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0E5E83C4241435A3307B45D6E389793151AA5C9
+magnet:?xt=urn:btih:302188F6CE63F1581F24457472D54FE46B52E8FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,28 +422,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736272   (106718) от 11.07.2024
+###  Публикация: 1728807   (108260) от 08.06.2024
 
-Tuk - CONFRONTATIONS (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+Братья Гримм | В гостях у сказки (Выпуск № 21). Белоснежка и Краснозорька (2005) [MP3, Елена Соловьёва, Дмитрий Полонский]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Safest Place (1:17)
-02. Confronted (4:46)
-03. All the Same to You (3:29)
-04. I Only Smoke When I Drink (4:02)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:36
+Серия/Цикл: В гостях у сказки, Мой ребёнок, Детская литература (ИД СОЮЗ).
+Братья Гримм – прожили скромную жизнь. Они рано потеряли родителей и сполна познали все тягости непосильного труда и материальных невзгод. Только благодаря своей тетке братья смогли закончить обучение, к которому всегда проявляли блестящие способности. В библиотеках разных городов братья находили (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: Издательский дом «Союз»Продолжительность: 00:53:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0B3C20BD2106CBAFAC216CEF0CA0EE96BDF9EF2
+magnet:?xt=urn:btih:96EB48622EC1C7E85FBDCA73FF09FB82263C1A4A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,28 +449,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736185   (106717) от 11.07.2024
+###  Публикация: 1728645   (108259) от 08.06.2024
 
-Regicide - Resist Control (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove Metal, Thrash Metal>
+Lee Ritenour - & His Gentle Thoughts (1977) 2003, JVC [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain Caribe/Getaway [10:01]
+02. Chanson [4:13]
+03. Meiso [4:54]
+04. Captain Fingers [5:32](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BED16278A0C99999F562754A3BAC344A089E0DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728579   (108258) от 08.06.2024
+
+Escarlathia - Escarlathia (2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108258.jpg" />
 </div>
 
 
 ###  Подробнее
 
 01. Intro
-02. One By One
-03. You Ain't Nobody
-04. Suppression(   Читать дальше...   )Жанр: Groove Metal, Thrash MetalПродолжительность: 00:37:56
+02. Delirium
+03. Misantropía
+04. Agonía(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:39:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9B8625775773BCCF47E806553E7933B4D9770AEB
+magnet:?xt=urn:btih:85D199347CFB65A07251266C89B771AB8662978D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,28 +507,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736278   (106716) от 12.07.2024
+###  Публикация: 1728660   (108257) от 08.06.2024
 
-Иван Страхатов - Вся жизнь-игра (2024) [MP3|320 Kbps] <Chanson>
+VA - Nothing But... Pure Dance, Vol. 22 (2024) [MP3|320 Kbps] <Pop Dance>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Вся жизнь-игра [00:03:44]
-02 - Пацаны [00:03:00]
-03 - Барахолка [00:03:09]
-04 - Погоня [00:03:00](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:34:18
+01. Rish NK, AMANI KL10 - Paisa (02:29)
+ 02. Coma Baby - Gone (03:47)
+ 03. Viktor Vos - Like It Used To Be (04:08)
+ 04. Ward Rivers - Prison Food (02:49)(   Читать дальше...   )Жанр: Pop DanceПродолжительность: 01:25:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89A9BE24A35A0C4ABE13F8AF4CB0F8D15F1F001E
+magnet:?xt=urn:btih:95D327CDF68408E5E2C8AEC596A809AF03D8B1BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,25 +536,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736450   (106715) от 12.07.2024
+###  Публикация: 1728689   (108256) от 08.06.2024
 
-Астрал. Ночной кошмар / Malam Pencabut Nyawa / Respati (2024) TS [H.264/1080p] [звук с TS] [AD]
+Пятеро на одного (08.06.2024) WEBRip [H.264/720p-LQ]
 
->>нет
->>нет
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После гибели родителей студента Респати мучают кошмары, а сам он обнаруживает, что может проникать в чужие сны. Когда зло из сновидений начинает воздействовать на реальную жизнь и угрожать жизни девушки Респати, парню нужно научиться действовать в этих снах, чтобы ее спасти. Но попасть в сон - не самое сложное. Куда сложнее выбраться обратно.Производство: Индонезия, Корея Южная / Base Entertainment, Samara, Barunson E&AЖанр: ужасыРежиссер: Сидхарта ТатаАктеры: Девано Данендра, Кеисья Левронка, Миха Эрнан, Буди Рос, Фаджар Нугра, Рату Фелиша, Кики Нарендра, Шри Исворовати, Майчелина Анис, Эко Буди АнтараПеревод: Дублированный (Paragraph Media) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:48:41Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:78DBBF3ECC50CF246145CDDD2EFF23284F5E9A3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,142 +562,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736412   (106714) от 12.07.2024
+###  Публикация: 1728641   (108255) от 08.06.2024
 
-Vengaboys - The Greatest Hits Collection (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Electronic, Dance, Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Parada de Tettas [4:06]
-02 - To Brazil! [3:07]
-03 - Up & Down [3:45]
-04 - We Like To Party! (The Vengabus) [3:43](   Читать дальше...   )Жанр: Electronic, Dance, PopПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E473DF187B37D0B4B571D1653F6EB161E73A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736436   (106713) от 12.07.2024
-
-VA - Chillout Time Spring 2024 (2024) Original Mix [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oliver Montero - Lounge Paradise (Original Mix) (3:15)
-02. Swen Colardo - Meet Your Love (Original Mix) (3:11)
-03. Dave Belford - Life Level (Original Mix) (3:21)
-04. Lenny Rosenfeld - Free Life (Original Mix) (3:41)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:29:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B489B198FAFFECE600F6D69E3D96A8A3D5A1D691
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736430   (106712) от 12.07.2024
-
-VA - Para ouvir no dia do Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bon Jovi - Thank You For Loving Me (5:08)
-02. The Killers - Shot At The Night (4:03)
-03. Deep Purple - Bad Attitude (4:47)
-04. Lenny Kravitz - Can't Get You Off My Mind (4:34)(   Читать дальше...   )Жанр: RockПродолжительность: 01:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E086DB426368591ADC516FB2D4364BF1A76BD50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736351   (106711) от 12.07.2024
-
-Робин Уолл Киммерер | Жизнь в пограничном слое (2024) [MP3, Ирина Зубкова]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассуждения о естественной истории и культурных взаимоотношениях мхов, которые становятся мощной метафорой образа жизни в мире. Обитающие на границах нашего обычного восприятия, мхи являются распространенным, но неприметным элементом природного мира. Мы лишь изредка замечаем их в трещинах городского асфальта, на стволах деревьев или поверхности камней.
-Книга бриолога (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: ЭвербукПродолжительность: 08:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A18B41556082B917962F5D3D17C9AE46E397176
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736431   (106710) от 12.07.2024
-
-VA - Funky Italian  Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
+Sonny Stitt - 1950 - 1951 (2003) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cristiana Polegri - Nell'aria (3:17)
-02. Vito Lalinga (Vi Mode Inc. Project) - Citt Citt (5:36)
-03. Ammuin Orchestra - Fa' Addò Va! (Tu Ce Pienze Maje) (Radio Edit) (2:50)
-04. Bodyles - Mare Mare (3:41)(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 01:14:01
+01. Avalon [2:32]
+02. Later [3:03]
+03. Ain't Misbehavin' [3:05]
+04. Mean to Me [3:10](   Читать дальше...   )Жанр: BopПродолжительность: 01:06:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5777B0788A05D2BA02DD2D0E6A71BAFEFF13DC3F
+magnet:?xt=urn:btih:61ABA920E5405FCFBDB069553EA78A7A1EFA2318
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,28 +591,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736354   (106709) от 12.07.2024
+###  Публикация: 1728700   (108254) от 08.06.2024
 
-VA - Armin van Buuren - A State Of Trance 1181 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+Hippotraktor - Stasis (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, Post Metal>
 
->>Electronic
->>Radioshow, Live Mixes
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Armin van Buuren & David Guetta ft. Aldae - In The Dark (Tune Of The Week)
-02. Freak E Beatz & LK ft. Anouk Leijenaar - High On Love
-03. Giuseppe Ottaviani & Lasada - Leave You There
-04. Beatsole & Sasha Light & FOSSUS - Cosmic Light(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:32
+01 – Descent
+02 – Echoes
+03 – Silver Tongue
+04 – Renegade(   Читать дальше...   )Жанр: Progressive, Post MetalПродолжительность: 00:46:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6457BF4666CA0D2705E4A5667730B59EBD2DF81F
+magnet:?xt=urn:btih:9ADA2ECE85C11DF6BDEFA07C5ECCD2B23440F2DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,28 +620,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736440   (106708) от 12.07.2024
+###  Публикация: 1728638   (108253) от 08.06.2024
 
-VA - The Afro Lounge Bar Vol.2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
+Benny Goodman - 1942 (2003) Classics [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vito Lalinga (Vi Mode Inc. Project) - Afrolume (3:57)
-02. ERIN collective - Kalam Layl (5:14)
-03. Odiraa - Black (3:37)
-04. Sicania Soul - Starlite (Trinacria Beat) (3:12)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:19:10
+01. If You Build a Better Mousetrap [3:06]
+02. At the Darktown Strutter's Ball [2:27]
+03. When the Roses Bloom Again [2:56]
+04. Jersey Bounce [2:57](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 01:14:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27A3FA49DB0997B7ABD67260CF1BB6852FDE505E
+magnet:?xt=urn:btih:878EDE4E8FCB3A6B7696927938B5DF67597D12B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,28 +649,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736446   (106707) от 12.07.2024
+###  Публикация: 1728643   (108252) от 08.06.2024
 
-Axxis - Coming Home (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy/Power Metal>
+Muggsy Spanier - 1949 - 1954 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Good Man Is Hard to Find [2:56]
+02. Washington and Lee Swing [2:57]
+03. Dixie Flyer [2:52]
+04. Lazy Piano Man [2:43](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6707748F280C7D791BC6AD3F8E1F70A2AB8BBCC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728704   (108251) от 08.06.2024
+
+Samsas Traum - Kalk (2024) Underground-Edition, 2024, Trisol [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blackest Vision (cv) (3:27)
-02. Coming Home (cv) (3:13)
-03. Atlantica (cv) (3:42)
-04. Moonlight Bay (cv) (4:02)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:41:33
+01 – Susses oder Spalt
+02 – Kalk
+03 – Zuckern„gel
+04 – Scherbenloch(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:40:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E0362968D5D2861BB676F33F0DE7886BA454E5E
+magnet:?xt=urn:btih:0387723EF71ADEAE19530BAE2CC85C12BAE3862F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,57 +707,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736390   (106706) от 12.07.2024
+###  Публикация: 1729066   (108250) от 09.06.2024
 
-Axxis - Coming Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
+Сергей Снегов | Дом с привидениями (2024) [MP3, Сергей Чонишвили]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blackest Vision
-02. Coming Home
-03. Atlantica
-04. Moonlight Bay(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 00:41:32
+Хронофизик Лаура Павлова по направлению Академии Наук, отправляется на Уран, в Институт Экспериментального Атомного Времени. Она намеревается работать в знаменитой шестой лаборатории института, занимающейся хроноэкспериментами по перенесению мертвой материи на живые клетки. Но единственный сотрудник и одновременно руководитель лаборатории – Герд Семеняк пропал. А (   Читать дальше...   )Жанр: ФантастикаИздательство: СОЮЗПродолжительность: 01:32:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA3A92D3ECD1BCA06E1E4DFF6FCE2C2A7405B79E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736424   (106705) от 12.07.2024
-
-Amorphis - Tales From The Thousand Lakes (Live At Tavastia) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Death Metal, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thousand Lakes (Live at Tavastia) [1:55]
-02 - Into Hiding (Live at Tavastia) [4:12]
-03 - The Castaway (Live at Tavastia) [5:35]
-04 - First Doom (Live at Tavastia) [3:50](   Читать дальше...   )Жанр: Progressive Metal, Death Metal, Doom MetalПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388D16C089406BB265C8939762BB84B2B9CCEE97
+magnet:?xt=urn:btih:F3946C724F2303ADECBC9B54B780F5D4A5379611
 ```
 
 https://mybot314.ru/tekegram_catalog/

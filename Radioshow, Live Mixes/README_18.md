@@ -1,3 +1,61 @@
+###  Публикация: 1638625   (239017) от 09.06.2023
+
+VA - Armin van Buuren - A State Of Trance 1124 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lufthaus - Soul Seekers
+02. Chicane ft. Moya Brennan - Saltwater (AVIRA Remix)
+03. Eelke Kleijn - Transmission (Joris Voorn Remix)
+04. Perry O'Neil - Kubik(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:707D0012EEAF28CF4C03A9664BE251385EF04208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637063   (238404) от 03.06.2023
+
+VA - Armin van Buuren - A State Of Trance 1123 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane feat. C-Systems & Hanna Finsen – Let The Universe Surround You (Extended Mix) (Modena)
+02. Trending Track: DJ Misjah & DJ Tim – Access (Joris Voorn Remix) (Armada)
+03. KASIA – Universal Nation (Sezer Uysal Remix) (Armada Electronic Elements)
+04. Armin Van Buuren & The Stickmen Project – No Fun (Goom Gum Remix) (Armada)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36E9A0F2B7CF05F8D9E9F4D641EE02604D7D1276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445723   (238213) от 06.02.2021
 
 VA - Markus Schulz & Dan Thompson - Global DJ Broadcast (2021) [MP3|320 Kbps] <Trance, Progressive Trance>
@@ -687,61 +745,6 @@ Rinaly played:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4ADACF00971CCBF7C4E4CD785B9CD792E80AEC6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828339   (193405) от 24.10.2025
-
-VA - Ori Uplift - Uplifting Only Episode 663 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cedric Paul – Harmonic Skies (Intro Mix)
-02. Roger Shah & RAM ft. Natalie Gioia – For The One You Love
-03. Nick Parker – True Love (Plutian Sentimental Take) (Orchestral Uplifting Classic)
-04. Jericho Frequency & Amélie Mae – Hide In Plain Sight(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:10:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B55D9E923B1DC5C5C5F865AC0EFA0E7F002EAE9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659063   (190617) от 10.09.2023
-
-Ed Rush & Optical - Classic Essential Mix 1999 (Rebroadcast 03.09.2023) [MP3|287 Kbps (VBR V0)] <Drumnbass>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190617.jpg" />
-</div>
-
-
-###  Подробнее
-
-Classic Essential Mix - это еженедельное радиошоу, где в эфир возвращаются выпуски оригинального шоу01. Optical & Ryme Tyme - HeadhuntersЖанр: DrumnbassПродолжительность: 02:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B96F339776E2354E569EC0EC13B4FF3641ACF579
 ```
 
 https://mybot314.ru/tekegram_catalog/

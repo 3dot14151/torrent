@@ -1,3 +1,32 @@
+###  Публикация: 1027443   (696415) от 19.06.2016
+
+VA - Melancholy Rock Blues (2016) [MP3|320 кб/с] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Boy Bloater - It Came Out Of The Swamp
+02. Vargas Blues Band - Road To Freedom
+03. Hughes Taylor - Streams
+04. Scott Ellison - Pain Full Love(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 03:49:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09ED05A551D38ED7E5DAA62B12ED989BE2F43840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028201   (692759) от 21.06.2016
 
 VA - Jazz Lounge: Beautiful Jazz Moments, Cool Piano, Jazz Friday Night, Smooth Jazz (2016) [MP3|320 кб/с] <Jazz>
@@ -716,35 +745,6 @@ VA - Jazz in the Romantic Wedding (2016) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58F745BA0E445906E4F46D5D6E3F0331DB57DF5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142061   (640650) от 15.06.2017
-
-VA - Blues Hits - (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640650.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Albany Down - Mercy
-002 Albert Castiglia - Drowning At The Bottom
-003 Alvin Lee - My Baby's Come Back To Me
-004 Ana & Milton Popovic - I'm Losing You(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 11:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B3E946DABF70AC8D0027760AC2264AEAB0939E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

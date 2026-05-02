@@ -1,3 +1,61 @@
+###  Публикация: 1011235   (797017) от 27.04.2016
+
+VA - BacauHouseMafia vol.12 (2016) [MP3|128-320 кб/с] <House, Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797017.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 4Handz -  Build It Up (Original Mix)  4:38
+002. Adam B -  Alamo (Original Mix)  4:56
+003. After12 -  Mamacita (Original Mix)  4:15
+004. Ahzee & Faydee -  Burn It Down (Extended Mix)  3:40(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 13:14:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB65513B0B9E8173FE55CBF821E40855B75EB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011438   (797016) от 27.04.2016
+
+VA - Laserdance-Covers and Mixes (2016) [MP3|256-320 кб/с] <Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ernesto - Into The Night (Laserdance Cover) (08:31)
+02. Spiral - Around The Planet (Laserdance Cover) (04:01)
+03. Galactic Warriors - You And Me (Laserdance Cover) (05:33)
+04. Amateras - New Adventure (Laserdance Cover) (05:33)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:907F3D0EE96364EAEFAC4E734BE1266CAEF9FB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1200156   (797008) от 19.01.2018
 
 VA - The Best Of Progressive Trance (2018) [MP3|320 Kbps] <Progressive, Trance>
@@ -687,64 +745,6 @@ VA - Modern Lounge Lyric (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8536C8E9AA44067A6D9B1C86E93483614077403D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011931   (795680) от 29.04.2016
-
-VA - Neon Adrenaline Trance (2016) [MP3|320 кб/с] <Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795680.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ciro Visone - The Drive (Glynn Alan Remix) 08:37
-002. Omniks And Eufonica - Adelia (R3dub Rmx) 07:49
-003. Smith & Robbo - Start Again (James Allan Remix) (feat. McCallion) 06:44
-004. Lema & Shafer Ft Roxanne Emery - Summer Air (Chris Metcalfe Remix) 07:12(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D07E7A2BA545CBE6B06EB9297AB8184B29A84A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011133   (795635) от 29.04.2016
-
-VA - Massive Groove EDM Kits (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Digital Militia & Vanze ft. Tyler Fiore -  You Found Me (Original Mix)  4:15
-002. Mario Valley -  Don't (Radio Edit)  3:56
-003. Pixel Palmera -  ButtSoda (Original Mix)  3:32
-004. Reyko And John Meets Solid Rave -  Industry (Radio Edit)  3:22(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2C0075D7FAC9A3F4313731A8D63BD31AD1F28B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

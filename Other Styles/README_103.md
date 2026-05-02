@@ -1,3 +1,212 @@
+###  Публикация: 1317259   (501384) от 31.07.2019
+
+David Osborne - What the World Needs Now: A Piano Tribute to Burt Bacharach (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Look of Love (3:34)
+ 02. What the World Needs Now (2:48)
+ 03. (They Long to Be) Close to You (2:50)
+ 04. Arthur's Theme (Best That You Can Do) (4:32)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97903AD36F42BA05A302650FFB401E5AE1CAA81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317235   (501367) от 31.07.2019
+
+Christopher Phillips - Piano Chill: Songs of the Beatles (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Loving (2:54)
+ 02. Here Comes the Sun (3:01)
+ 03. Yesterday (2:31)
+ 04. Here, There and Everywhere (2:27)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D50353DFAE0B2AE86EE18D210ECC8BEE87D46F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 234728   (500669) от 09.09.2010
+
+Bodhi - Trans Ukraine (2006) [MP3|320 kbps]<New age, Flute, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500669.jpg" />
+</div>
+
+
+###  Подробнее
+
+(10:38) 1. Crimea I
+(04:51) 2. Crimea II
+(05:58) 3. Crimea III
+(05:38) 4. Kiev I
+(07:30) 5. Kiev II
+(08:58) 6. Kiev III
+(07:58) 7. Odessa I
+(04:56) 8. Odessa II
+(06:36) 9. Odessa IIIЖанр: New age, Flute, ElectronicПродолжительность: 01:03:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563804   (500499) от 18.07.2022
+
+VA - Teenage Mutant Ninja Turtles: Shredder's Revenge (Original Game Soundtrack) (2022) [MP3|~249-288 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Официальный саундтрек игры01. Teenage Mutant Ninja Turtles Theme
+02. The Wrecking Crew
+03. Jaw-Breaking News!
+04. Big Apple, 3 PM(   Читать дальше...   )Жанр: OSTПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A55F34E7851D276DDB99B7D04EBF1686248F03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317455   (500408) от 01.08.2019
+
+VA - Modern Sound Orchestras - Melody in Love (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orchestra Charles Monet - Traumerei - Reverie-Ave Maria (3:46)
+02. Philharmonics Of London - Aus Der Neuen Welt - New World (3:33)
+03. Wave's Computer Orchestra - Bach goes to the beach (4:20)
+04. Orchestra Charles Monet - Klavierkonzert - Piano Concerto No1 Solveig's song Samson & Dalila (4:56)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB8B03712A56EBB2D959C2DBAD4802DDC43DBEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934253   (500299) от 07.09.2015
+
+Jean Michel Jarre - Magnetic Fields (1981) [FLAC|image + .cue]<Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом Жана-Мишеля Жарра — "Magnetic Fields" (официальное франкоязычное название Les Chants Magntiques), выпущенный на лейбле Disques Dreyfus в 1981 году.
+В аннотации к изданию альбома: «Если первые два альбома Жарра были посвящены естественной окружающей среде, то „Магнитные поля“ вдохновлены плодами рук человеческих. Альбом наполняют звуки поездов, часов, (   Читать дальше...   )01. Magnetic fields part I (17:50)
+02. Magnetic fields part II (4:00)
+03. Magnetic fields part III (4:16)
+04. Magnetic fields part IV (6:18)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B2358ACDE8D756757D9B7ECF19491E5BAED9DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1317678   (499535) от 02.08.2019
+
+DYATHON - Recollection (2019) [MP3|320 Kbps] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499535.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.If I Could See You Again 03:25
+2.Yearning 06:18
+3.Sad Forever 03:46
+4.Memories of You 02:42(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFBE6F8429567D4B7C104371487C6DD78CFF697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934819   (499455) от 08.09.2015
 
 The Soul Stirrers - Les Genies du Rock - Peace In The Valley (1995) [MP3|320 кб/с]<RnB, Soul, Gospel>
@@ -587,215 +796,6 @@ VA - New Age Sensation (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:219F903BFDA40974EFFC906AE11A699A2512D860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543864   (493411) от 06.09.2012
-
-VA - Best Of Chill Out 2012 (2012) [MP3|320 кб/с]<Chillout, Lounge, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493411.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stj Ft Liba - She Believes (Lazy Hammock Sunset Chill Mix) (05:25)
-002. Shympulz - Garten Der Erinnerung (Chillout Version) (04:56)
-003. Off Land - View Point (Recon) (10:15)
-004. Finist - Boat Trip (05:29)
-005. V I F & Lola Palmer - Hot Game (Olej Remix) (07:11)
-006. Marco Merelli & Massimo Salustri - Mental Reverse (07:20)
-007. Abendrot - Sonnenaufgang (04:41)
-008. Dj Inva - I Miss You (Radio Edit) (04:42)
-009. Bantunani - Decomposition (01:28)
-010. Aldo Brizzi - Holodrum (04:06)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE515BCE39A2800996CE3F78329533928F72AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318716   (492711) от 07.08.2019
-
-The Gino Marinello Orchestra - Digital Melodies: 16 Synthesizer Melodies (1988) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Electro>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene (2:38)
-02. Chariots of Fire (3:21)
-03. Tubular Bells (2:35)
-04. Aurora (2:15)(   Читать дальше...   )Жанр: Instrumental, Pop, ElectroПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02985FD0F2A0CC18B1C043B61CB97FA8FB7D8905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054906   (492485) от 20.09.2016
-
-Bernward Koch - Touched by Love (2016) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking through Clouds [00:02:39]
-02. Touched by Love [00:03:22]
-03. Long Way Home [00:04:12]
-04. Back to Myself [00:03:46](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FD3BF7FC474F24AF7B7576733913107F0535DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936937   (492265) от 13.09.2015
-
-Kevin Kendle - Illumination (2015) [MP3|320 кб/с]<Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emergence
-02. Divine Connection
-03. Arc
-04. Celestial Heart(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FC565E6B60A3F88C883AAEB08C836DE0B4AEA36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243265   (492107) от 27.08.2018
-
-Lynn Tredeau - Fellowship of Solitude (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Fellowship of Solitude
-02 Traces of Daylight
-03 Land of Forgotten Dreams
-04 Call of the Owyhees(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD165DE750C251B099B5960985BCDBD854AC2A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 382616   (491463) от 02.09.2011
-
-Pilgrimage (Simon Cloquet & Eric Calvi) - 9 Songs of Ecstasy (1997) [APE|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491463.jpg" />
-</div>
-
-
-###  Подробнее
-
-Диск содержит интерпретации песен средневековых паломников, странствовавших по северо-западу Испании 13-го века. Проект французских композиторов - продюсеров (Simon Cloquet, Eric Calvi), в рамках которого был выпущен только данный единственный альбом. С одной стороны, работа весьма концептуальная и представляет собой звуковое отображение исторических баллад о странниках-пилигримах (   Читать дальше...   )01. Campus Stella/Field of Stars (5:14)
-02. Through the Seas of Life (4:56)
-03. Pilgrimage (4:25)
-04. Land of Ecstasy (5:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA62FB7CABE60A1C66F84DCFD76F1B4C29C40388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318954   (490886) от 08.08.2019
-
-Bon Iver - i,i (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yi (00:31)
-02. iMi (03:16)
-03. We (02:22)
-04. Holyfields, (03:07)(   Читать дальше...   )Жанр: Folk-Rock, Indie FolkПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49731ADAEF42674A5B0F6BE589F178EC8E1675DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

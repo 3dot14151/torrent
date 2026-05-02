@@ -1,3 +1,61 @@
+###  Публикация: 1778359   (70883) от 08.02.2025
+
+Markus Schulz - Global DJ Broadcast World Tour (Open to Close Solo Set, Avalon Hollywood Los Angeles) (2025-02-06) [MP3|320 Kbps] <Trance, Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Monique & GENESI & Carl Bee - Nomacita
+02. Markus Schulz pres. Dakota - Kanan
+03. Rebūke - Along Came Polly (Konstantin Sibold & ZAC & CARMEE Remix)
+04. CamelPhat & Anyma - The Sign (Danny Avila Remix)(   Читать дальше...   )Жанр: Trance, Techno, Melodic HouseПродолжительность: 02:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FCB2B4B22B1F0D2F7D867A5D5CDDE5083243768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779587   (70640) от 14.02.2025
+
+VA - Armin van Buuren - A State Of Trance 1212 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BLR & Amber Revival – Love Me Endless (Tune Of The Week)
+02. Arodes – Kidz (CamelPhat Remix)
+03. Claptone & Chicane ft. Moya Brennan – Saltwater
+04. Giuseppe Ottaviani pres. Ottagon ft. Lake Silver – Dust(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31F6A5723BEA8A06118C3610AF7D639F47A53F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779635   (70619) от 14.02.2025
 
 VA - Ori Uplift - Uplifting Only Episode 627 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -686,64 +744,6 @@ VA - Armin van Buuren - A State Of Trance 1220 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCFF8144651D2BB6FDE799F1D1BD6F04AFA929FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790911   (67951) от 11.04.2025
-
-VA - Ori Uplift - Uplifting Only Episode 635 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitriy Kuznetsov - Elven Wind (Intro Mix)
-02. illitheas - Moments with You (Maratone Remix) (Orchestral Uplifting Classic)
-03. Cedric Paul & Rowan van Beckhoven - Elysium (Pre-Release Pick)
-04. Whylde featuring London Lawhon - Be My Gravity(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210F6EC89257A43C06950161ACE499E12768F1FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792251   (67745) от 18.04.2025
-
-VA - Ori Uplift - Uplifting Only Episode 636 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Dinner - Epic (Intro Mix)
-02. Tycoos & Daisy Lou - Darkness Into Light
-03. Cedric Paul & Rowan van Beckhoven - Elysium (Fan Favorite (635))
-04. blurrrSAMA - 18TH (REX.W Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E20872821C7946F582AB2FA72F82594D5ED1009F
 ```
 
 https://mybot314.ru/tekegram_catalog/

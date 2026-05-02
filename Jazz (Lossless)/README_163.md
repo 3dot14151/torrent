@@ -1,3 +1,61 @@
+###  Публикация: 931542   (511847) от 26.08.2015
+
+Galactic - Into The Deep [Deluxe Edition] (2015) [FLAC|tracks|WEB-DL]<Funk, Fusion, Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar Doosie (4:06)
+02. Higher And Higher (feat. JJ Grey) (4:11)
+03. Into The Deep (feat. Macy Gray) (3:43)
+04. Dolla Diva (feat. David Shaw and Maggie Koerner) (3:32)(   Читать дальше...   )Жанр: Funk, Fusion, RockПродолжительность: 00:59:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41A54EAFFC0B2AF263F3144468EFF6EF8A9DECF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562209   (511538) от 08.07.2022
+
+Duke Ellington - The Complete Variety, Vocalion And Okeh Small Group Sessions (1936 - 1940) 7CD, 2006, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511538.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tough Truckin' [3:05]
+02. Tough Truckin' (alt tk) [2:47]
+03. Indigo Echoes [2:50](   Читать дальше...   )Жанр: SwingПродолжительность: 08:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1EF2A3124186FFF37F4871A6E64712E8AC2F66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931857   (511119) от 27.08.2015
 
 Dave Brubeck & Paul Desmond - 1951-1953 /1990, Fantasy/[APE|image+.cue]<Mainstream Jazz, Cool>
@@ -687,64 +745,6 @@ John Coltrane - My Favourite Things (1991) /ORO/[FLAC|image+.cue]<Avant-Garde Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC8F8DED2D463CEF526E365B53B7FA4882144372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933159   (507256) от 31.08.2015
-
-Kenny Burrell - For Charlie Christian And Benny Goodman (1966/1967) /1991, Par Media Music/ [APE|image+.cue]<Bop, Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. As Long As I Live [02:44]
-02. Poor Butterfly [05:50]
-03. Stompin' At The Savoy [06:11]
-04. I Surrender Dear [04:49](   Читать дальше...   )Жанр: Bop, Hard Bop, Mainstream JazzПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F712FF5488526ED9789CAFBD25108EB914E59066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933227   (507254) от 31.08.2015
-
-Emily McEwan - In The Wee Small Hours (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Wee Small Hours (3:46)
-02. Never Let Me Go (4:44)
-03. End of A Love Affair (4:43)
-04. Turn Out The Stars (6:04)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87141F74A4E4B864413646720EFE6ADCD04028EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

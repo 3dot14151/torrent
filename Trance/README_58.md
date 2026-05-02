@@ -1,3 +1,148 @@
+###  Публикация: 1717788   (111130) от 21.04.2024
+
+VA - The Sound of 2024 Mix 3: Rio De Janeiro (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Difstate - Body Language (Original Mix) [3:47]
+02. Third Project - Neon Groove (Original Mix) [5:18]
+03. UNWA - Wonderland (Original Mix) [4:44]
+04. Dmitry Kostyuchenko - Tachyon (Original Mix) [6:09](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C0C01D8E782B0C80A68514B01BF7A1DD984CB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718824   (110756) от 27.04.2024
+
+VA - 11 Years Of Suanda Music (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & Christina Novelli - Fireflies (Extended Full Fire Mix) [7:22]
+02. Davey Asprey - Catch (Extended Mix) [6:34]
+03. SMR LVE & Caitlin Potter - Love Story (Extended Mix) [6:57]
+04. Roman Messer - Irreplaceable Love (Extended Mix) [4:55](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28AFEF3520CC3965B7732271A424E12AA1A81B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719049   (110735) от 27.04.2024
+
+VA - Anjunabeats presents: Earth Day 2024 (DJ Mix) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond – Melting Warning (Mixed) (01:20)
+02. Aname – Beautiful World (Mixed) (07:37)
+03. ARTY – Around The World (Mixed) (05:34)
+04. Alpha 9 – Before The Dawn (Grum Remix Mixed) (06:36)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2680BC7F219190E17809EF8051DB03F74BBBBB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719176   (110587) от 29.04.2024
+
+VA - Eosella Music One Year Anniversary (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florida Forgotten - The Pill (Extended Mix) (04:38)
+02. Montyi;  Frailai - Skam (Extended Mix) (06:41)
+03. Maratone & Zinity - Stargazing (Extended Mix) (07:51)
+04. Rolaway - Africa Chant (Extended Mix) (04:53)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EDB41FF49960926867C85B7285592F5FB0A6AA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719643   (110510) от 30.04.2024
+
+VA - Uplifting Only Top 15: April 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. STNX - Mesmerised (Intro Mix) [4:25]
+02. Dmitriy Kuznetsov & Johannes Fischer - Watching The Waves (Cedric Paul Extended Mix) [7:43]
+03. Visa Seppänen - Things That Happened (Extended Mix) [7:29]
+04. NatLife feat. Arunima - Saawariya (New World Remaster) [8:58](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7484D0A95AA43D86E615B650AFC54409C44ADD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719949   (110389) от 02.05.2024
 
 Opera Trance Featuring Emma Shapplin - Spente Le Stelle (The Remixes - Part One) (2000) [MP3|320 Kbps] <Progressive House, Trance>
@@ -600,151 +745,6 @@ VA - United Trance Alliance (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBF03B01C3ADED05523E4D570B5ECB599D3A8573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726444   (108746) от 28.05.2024
-
-VA - Uplifting Only Top 15: May 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tony Irrmani & Irina M. - Keep Feeling (Intro Mix) [5:46]
-02. Grande Piano & Dreamlife - Shine Of Rays (Extended Mix) [7:15]
-03. Night Sky & Juliet Lyons - When You Are Near (Original Mix) [6:56]
-04. Alphacube vs. Dreamira & Tsuki Shizumutoki - Revive Shift (Dreamskies Mashup) [7:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60F41AFBBCC5A7C841613CA5B5A35DCD5C54E1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726761   (108670) от 30.05.2024
-
-VA - Uplifting Only Top 15: June 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JINGYAN - Yonshaku-dama (Intro Mix) [3:50]
-02. Illitheas - Catch The Sunrise (Extended Mix) [7:12]
-03. Mark Versluis & Emy Smith - Next To Me (Extended Mix) [7:31]
-04. Rowan Van Beckhoven - Return To Dust (Extended Mix) [8:04](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F865004AAA14624BA97A672E0CAAC3BE13AED09F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727172   (108588) от 01.06.2024
-
-VA - Trance Fusion Vol. 03 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DreamLife - Flavor Of Life (Extended Mix) [6:00]
-02. Bryn Whiting - Cosmic Balance (Original Mix) [5:31]
-03. Michael Milov & Dmitriy Kuznetsov - In My Dreams (Original Mix) [3:40]
-04. Meraj Deylami - Iron Will (Extended Mix) [7:16](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040D02B08E12DA3931352924ABDC04DF7506E1C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728486   (108360) от 07.06.2024
-
-VA - Ibiza Trance 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maratone - All You Want (Original Mix) [3:55]
-02. Sam Allan & Emilie Rachel - Unbreakable (Original Mix) [3:42]
-03. Protoculture & DIM3NSION & Dennis Sheperd - Sublimity (Original Mix) [3:32]
-04. Markus Schulz & HALIENE - Death Of A Star (Markus Schulz In Search Of Sunrise Mix) [3:35](   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7A582EAB2109CF15F1BF6C60F19C47C1DB93AF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729669   (108021) от 12.06.2024
-
-VA - Nothing But... Trancetopia Vol. 15 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crisy - Astrum (Extended Mix) [6:30]
-02. Pourya Feredi - In The Rain (Original Mix) [3:49]
-03. Rixson - Elevate (Original Mix) [3:06]
-04. Pourya Feredi - Exploration (Extended Mix) [6:34](   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51220C98DD01CAA5AEBA42BF63CECD2D7DEE444D
 ```
 
 https://mybot314.ru/tekegram_catalog/

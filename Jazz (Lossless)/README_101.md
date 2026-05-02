@@ -1,3 +1,61 @@
+###  Публикация: 1286198   (713279) от 02.03.2019
+
+Andrew Hill - Verona Rag (1987) Soul Note [WavPack|Lossless|image + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Retrospect [14:29]
+02. Darn That Dream [6:17]
+03. Verona Rag [16:38]
+04. Tinkering [4:25](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B95B294C2B086268356CA602923771DC2597EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286439   (713211) от 02.03.2019
+
+Jan Johansson - 8 Bitar & Innertrio (1961, 1962) 1994, Heptagon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prisma [3:03]
+02. She's funny that way [5:01]
+03. Skobonka [2:18]
+04. De salde sina hemman (Emigrantvisa) [3:40](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:16:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6E67ABFE3A9C3441C1A4BF987ADEB477EADDAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286434   (713204) от 02.03.2019
 
 Jan Johansson - Live In Tallinn (1966) 1995, Heptagon Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Richard Davis - Forest Flowers (1977) 2000, 32 Jazz [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:180DF760DEFE123D9BE2FFAADEBEE14EE23B52BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286841   (709094) от 04.03.2019
-
-Bobby van Deusen - The Naked Piano: Trio (2003) Melcome Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709094.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [7:18]
-02. All the Things You Are [5:30]
-03. Summer Wind [3:45]
-04. Someone to Watch over Me [7:43](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A96A7516D913EEF4A8200D5958FF300A6D38C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286839   (709093) от 04.03.2019
-
-Dinah Washington - Queen Of The Juke Box ''Live'' 1949-1955 (2000) Baldwin Street Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Want to Cry [3:27]
-02. It's Too Soon to Know [3:01]
-03. I'll Never Be Free [1:57]
-04. I Cross My Fingers [2:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E433BAF946E41EE0CB337DEB4162452BEDB5486
 ```
 
 https://mybot314.ru/tekegram_catalog/

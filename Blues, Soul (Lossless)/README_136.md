@@ -1,3 +1,119 @@
+###  Публикация: 1794539   (67237) от 29.04.2025
+
+Chris Kramer and Paddy Boy Zimmermann - Tales Of Tampa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So Crazy About You Baby (3:00)
+02. Seminole Blues (3:15)
+03. You Rascal You No. 1 (3:50)
+04. Black Angel Blues (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A1F9E0ED9CF8E597D52B06F7093CA1DF0088645
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794548   (67231) от 29.04.2025
+
+Dr. Jules' Cool Blues - The Iconoclast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish the Blues Had Used a Condom (3:06)
+02. ADD (3:38)
+03. Don't Drink the Kool Aid (4:50)
+04. The Barflies At The Bar (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9043E346F78F21974DAD472FBB71AC52DE0D9F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795185   (67179) от 03.05.2025
+
+VA - Jus' Blues 25th Anniversary Legends Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Diunna Greenleaf - Sunny Day Friends  (3:37)
+02.  Jimmy Burns - Stranded in Clarksdale  (4:02)
+03.  Zakiya Hooker - Bluesman's Journey  (3:52)
+04.  Benny Turner - Who Sang It First  (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E6D4A09ABC7636FB0FDAF698B725DA861468B7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795182   (67153) от 03.05.2025
+
+VA - Alternative Route (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rochus Rocky Hobi - Where I Belong (3:43)
+02.  Simon Zawila - Further & Further (2:46)
+03.  Clarissa Höbel - Take My Hand (2:59)
+04.  Thomas Kehl It's Me - It's so Nice (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:20:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA1CD59EFA7530BD89F367190ADA83DEDF92246
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795179   (67137) от 03.05.2025
 
 VA - 60 Years of the Southend Scene (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
@@ -629,122 +745,6 @@ JB & The Huggeli - The Blues Supadupa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:068AD1405D6C421C358FA939D6A5D7F943D994C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796996   (66862) от 13.05.2025
-
-Crystal Shawanda - Sing Pretty Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Preaching Blues (4:36)
-02.  Stop Funkin Me Around (3:48)
-03.  Would You Know Love (4:41)
-04.  I Gave up Everything for You, 'cept the Blues (4:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3F22A95223533CDE14786692D3F3979F8FA116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797007   (66860) от 13.05.2025
-
-MHMM - Do Not Disturb (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Don't Mind (4:22)
-02.  When The Blues Is Falling Down On Me (5:45)
-03.  The Bridge (4:46)
-04.  Because I'm Down (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3442A0BD11615C71A708DA5F22DD899ABDB45387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797015   (66859) от 13.05.2025
-
-Ruthie Foster - Mileage (Deluxe Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mileage (4:11)
-02.  Rainbow (3:30)
-03.  Good For My Soul (3:31)
-04.  Heartshine (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFEE2DD5B9AC7D56FFA12C44D6037361D3BF04D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797872   (66732) от 18.05.2025
-
-Mako, Kanoa - Blues in the Bar (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Broken Bottles (3:59)
-02.  Crossroads Cafe (3:44)
-03.  Echoes (3:39)
-04.  Fleeding Summer (3:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1D171F26AAF45C7F28F9524CB7AE847A84DAB75
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1208175   (780022) от 21.02.2018
+
+Проекты - VideoHive - Wedding Slideshow Invitation - 21056290 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wedding Slideshow Invitation - это высококачественный, хорошо организованный шаблон, имеющий модульную структуру.
+Вы можете использовать его для: свадьбы и романтического вступления, видео-приглашения или слайд-шоу, фотоальбома, быстрого и минимального промо, коммерческого промо, приключенческого слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4A309FA7B9EC259FFF8CFA02E4E3A8C8D7D04E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209061   (779579) от 24.02.2018
 
 Проекты - Проект ProShow Producer - Elegant Opener [PSH]
@@ -653,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C2914CBD607DFDEE979F6FE6B4DD3B1D2787AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015068   (775608) от 09.05.2016
-
-Проекты - Pond5 - Sharing Memories [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775608.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sharing Memories - Этот шаблон идеально подходит для всех торжеств: свадьбы, юбилея, дня рождения, помолвки и семейных событий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40899C99233AF40EF6C9F9D1FFD4B011E8B097E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

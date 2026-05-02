@@ -1,3 +1,82 @@
+###  Публикация: 930427   (514833) от 23.08.2015
+
+Проекты - VideoHive - Social World-Map [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514833.jpg" />
+</div>
+
+
+###  Подробнее
+
+Такая вот, социальная карта мира. Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED6AEF1F7DB2F83DED144AD54991F25730335107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930747   (513785) от 24.08.2015
+
+Проекты - Videoblocks - Crazy TV Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это проект, где нет места элегантности и изысканности в презентации лого, но зато есть своя юморная "изюминка" в виде распадающегося ТВ.
+В проекте можно легко поменять основной цвет с серого на любой другой. Есть также кнопка, которая сделает видео как в старых фильмахФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:414F9868494500F7B61C1487B0E20DFE2DA27D05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930828   (513578) от 24.08.2015
+
+Проекты - VideoHive - Multi Video & Multi Text Logo Formation [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513578.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC5A88850CEC4C015C8484D50E01C9D1CAC11F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931395   (509980) от 28.08.2015
 
 Проекты - VideoHive - A is for ATOM [AEP]
@@ -591,85 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1E54CF80D38F061FD35EEC574DC54B2480D440E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243560   (491361) от 27.08.2018
-
-Проекты - VideoHive - Simple Flat Logo Reveal - 19759921 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B3065C98E054DE366B7F7632B34F9B130F01FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 821217   (490039) от 13.09.2014
-
-White Dots - Particle Ink Effect [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для вашего слогана или лого.
-Превью, файл помощи и звук - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADAD43140AE533FD27AC4A52ADACE594B541FBF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243762   (489469) от 28.08.2018
-
-Проекты - VideoHive - Spherical Logo Intro - 17529226 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489469.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5763CFCA5C335E0B4B02B29B7C29106B0E78F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1657623   (192302) от 05.09.2023
+
+Aventhur - Fractured Memories (2023) [FLAC 24/48|WEB-DL|tracks] <Symphonic Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Alchemist [00:08:38]
+02. Awaken [00:04:34]
+03. Vows of Lies [00:04:03]
+04. Through the Mirror [00:04:33](   Читать дальше...   )Жанр: Symphonic Progressive MetalПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96E54D6E8E0F85587C4399E2CF767A6458D2FB77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657722   (192270) от 05.09.2023
+
+Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лицензия от Virgin Records Ltd [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192270.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Валотт • Valotte
+A2 С Тобой Все В Порядке • O.K. For You
+A3 По Телефону • On The Phone
+A4 Космос • Space(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:029C3FA11D0FE7920587CCEB40A869598C025EB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587769   (192096) от 02.11.2022
+
+VA - Ultimate Divas 1940 - 2004, feat. B. Holiday • E. Fitzgerald • S. Vaughan • P. Lee and Many More (2022) Unofficial Release [FLAC 2.0|44,1/24|image+.cue|MC-Rip] <Pop, Soul, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carmen McRae - Blue Moon
+Blue Moon
+1956 - Polygram - Rodgers/Hart
+02. Rosemary Clooney - You Started Something(   Читать дальше...   )Жанр: Pop, Soul, JazzПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53055E9F1D693BEBDE63303FB266FADFAEB68DE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151821   (191974) от 02.11.2022
+
+Ronnie Montrose - Territory (1986) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz-Rock, Ambient, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191974.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Catscan
+A2 I'm Gonna Be Strong
+A3 Love You To
+A4 Odd Man Out(   Читать дальше...   )Жанр: Jazz-Rock, Ambient, ExperimentalПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C2ECB1A4E68A9AA920216258EDA61DFC5983EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657941   (191913) от 06.09.2023
+
+Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Emo, Indie Rock, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sunny Day Real Estate (или SDRE) — американская музыкальная группа из Сиэтла, штат Вашингтон.1994 - Diary
+1995 - LP2
+1998 - How It Feels To Be Something On
+2000 - The Rising TideЖанр: Emo, Indie Rock, Post-grungeПродолжительность: 03:29:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B62F6BCFE37E7191B872B26D0435470DB105EF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658413   (191324) от 08.09.2023
+
+Sylosis - A Sign of Things to Come (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Thrash Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadwood (4:25)
+02. A Sign of Things to Come (4:35)
+03. Pariahs (3:47)
+04. Poison for the Lost (4:19)(   Читать дальше...   )Жанр: Melodic Death Metal, Thrash Metal, Progressive MetalПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F40DB2D234DDFE877038FD88B47979941FC58EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658450   (191320) от 08.09.2023
 
 Second Life - Why (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Pop Rock>
@@ -568,179 +742,6 @@ B1 The Blue Danube(   Читать дальше...   )Жанр: Classical, Orche
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D858E792FB950D84665DA18F030402FED88E0E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590260   (189035) от 13.11.2022
-
-Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 48 Crash (3:57)
- 02. Glycerine Queen (3:52)
- 03. Shine My Machine (3:54)
- 04. Official Suburbian Superman (3:10)(   Читать дальше...   )Жанр: Glam, Hard Rock, Rock & RollПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7463B9EC8E8C6AC4915BB7AA46B8BE1E2BBCDE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590282   (189034) от 13.11.2022
-
-Алексей Рыбников - «Юнона» И «Авось» (1982) [FLAC 2.0|192/24|side-tracks|Vinyl-Rip] <Opera, Art Rock, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сторона 1 • «Юнона» И «Авось» • Опера
-02. Сторона 2 • «Юнона» И «Авось» • Опера (Продолжение 1)
-03. Сторона 3 • «Юнона» И «Авось» • Опера (Продолжение 2)
-04. Сторона 4 • «Юнона» И «Авось» • Опера (Окончание)(   Читать дальше...   )Жанр: Opera, Art Rock, ExperimentalПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41E63F282DB24B5F59DB0ADDF88ADFCF16F8C0DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661107   (188800) от 14.09.2023
-
-Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.6 Pastoral (1977) A New Recording from the Berlin Philarmonic Hall [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classica ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188800.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ludvig Van Beethoven (1770 - 1817)
-Symphony No.6 In F Major, Op. 68 "Pastoral"
-A New Recording from the Berlin Philarmonic Hall
-A1 Allegro Ma Non Troppo(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590517   (188658) от 14.11.2022
-
-Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Moon Rising (2:19)
- 02. Midnight Hour (2:26)
- 03. I Feel The Earth Move (2:54)
- 04. Walking The Dog (2:35)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:17:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543805   (188589) от 14.11.2022
-
-Red Hot Chili Peppers - Дискография (16 releases) (1983 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Red Hot Chili Peppers (RHCP) — американская рок-группа, образованная в 1983 году в Калифорнии вокалистом Энтони Кидисом, басистом Майклом Бэлзари (больше известным как Фли), гитаристом Хиллелом Словаком и барабанщиком Джеком Айронсом.1984 - The Red Hot Chili Peppers
-1985 - Freaky Styley
-1987 - The Uplift Mofo Party Plan
-1989 - Mother's MilkЖанр: Alternative Rock, Funk RockПродолжительность: 21:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A11D77E3D0177B2967C16310A58FC22C6C064B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661762   (188563) от 15.09.2023
-
-Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Demons & Wizards - сайд-проект вокалиста Ханси Кюрша (Blind Guardian) и гитариста Джона Шаффера (Iced Earth) в жанре пауэр-метал.2000 - Demons & Wizards
-2005 - Touched by the Crimson King
-2020 - IIIЖанр: Power MetalПродолжительность: 03:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
 ```
 
 https://mybot314.ru/tekegram_catalog/

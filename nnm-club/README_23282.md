@@ -1,25 +1,22 @@
-###  Публикация: 1525418   (129196) от 21.01.2022
+###  Публикация: 1682506   (131255) от 07.12.2023
 
-VA - Remembering Summer: Chillout Session (2022) [MP3|320 Kbps] <Chillout, Lounge, Downtempo, Relax>
+Капитан Марвел 2 / The Marvels (2023) WEB-DLRip [H.264]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это те приятные мелодии, благодаря которым человек растворяется в обволакивающей его музыке и предаётся теплым объятиям спокойствия и умиротворения вспоминая приятные моменты летнего отпуска на море.001. Lafoliedamour - Lollygagging
-002. Memorio - Grace
-003. Subdream - Monsonoom
-004. Buddha Bar - Cold Phase(   Читать дальше...   )Жанр: Chillout, Lounge, Downtempo, RelaxПродолжительность: 08:29:38
+Кэрол Дэнверс обретает свою утраченную личность, отнятую тиранами Крии, и мстит Высшему Разуму. Однако, непредвиденные последствия приводят к тому, что Кэрол взваливает на свои плечи бремя дестабилизированной вселенной. Когда она проходит через червоточину, которая должна вывести её на революционера из числа Крии, её силы переплетаются со способностями суперфанатки (   Читать дальше...   )Производство: США, Marvel Studios Inc.Жанр: фэнтези, боевик, приключенияРежиссер: Ниа ДаКостаАктеры: Бри Ларсон, Тейона Паррис, Иман Веллани, Сэмюэл Л. Джексон, Зави Эштон, Гари Льюис, Пак Со-джун, Зенобия Шрофф, Мохан Капур, Саагар ШайхПеревод: дублированный (MovieDalen)Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: 01:37:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C13FC9A61CF442F32EB943A9E8C549CFCFF5CFDA
+magnet:?xt=urn:btih:2EBF5D890AE13521CF702F187531DECEFBB0CD66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,26 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 488898   (129195) от 27.04.2012
+###  Публикация: 1606337   (131253) от 07.12.2023
 
-Журнал | Дачный сезон №4 [2012] [DJVU]
+Поздравления, открытки, цитаты v14.0.34 Mod by vadj [Ru/Multi]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129195.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дачный сезон - это журнал для дачников, а также любителей сада и огорода. Тема номера: выращиваем ранний картофель.
-Также вам будут интересны советы от заядлых дачников и секреты дачных посадок.2012Формат: DJVU
+Это приложение создано для тех, кто хочет радовать своих друзей и близких ежедневными красивыми открытками с пожеланиями на любой случай жизни. Каждый день новые изображения и приятные пожелания с добрым утром, хорошего дня, спокойной ночи, приятной недели, мудрые слова о любви, религии, вере, мотивации, привязанности, отношениях, браке, а также шутки, поздравления (   Читать дальше...   )Тип издания: AdfreeРелиз состоялся: 28.11.2023Разработчик: M3 appsПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:572DE86CA06F43C7A20322DD2A7B9BAD7FBF3658
+magnet:?xt=urn:btih:2A6AE49069973BBF686426CA4FB90B089BF977E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525687   (129194) от 21.01.2022
+###  Публикация: 1681781   (131251) от 07.12.2023
 
-Винсент Ван Гог | Письма к друзьям (2021) [MP3, Константин Корольков]
+Текстуры - Surface Mimic - Surface Mimic Archive (High Resolution) [PSD]
 
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129194.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ван Гог создал более сорока автопортретов. «Трудно познать самого себя. Однако написать самого себя не легче», – говорил он. Ван Гог оказался талантливым мастером не только кисти, но и пера. Буквально каждый вечер после работы за холстом он садился за стол и писал длинные письма родным и друзьям. После его смерти письма были найдены. Без преувеличения их можно назвать (   Читать дальше...   )Жанр: Биографии и мемуары, Документальная литература, Зарубежная публицистикаПеревод: Полина В. МелковаПродолжительность: 04:44:39
+Surface Mimic Sells 3D surface scans for digital artists in the Visual Effects and Video Game industries. Our surface scans are high resolution displacement, normal, and color diffuse .psd images
+
+Resolutions: 1024×1024 – 4096×4096
+Each material is sourced at its best resolution available from the site.(   Читать дальше...   )Формат: PSD
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11FD96C95829D7A0D543996BFD807ABC16F7265B
+magnet:?xt=urn:btih:1556C63217E17F486DF5016B405418195D665A87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525182   (129193) от 21.01.2022
+###  Публикация: 595960   (131250) от 30.12.2012
 
-Kings of Convenience - Peace Or Love (2021) [FLAC|Lossless|tracks + .cue] <Indie Pop, Acoustic, Lo-Fi>
+BBC. Horizon: Вся правда об упражнениях / The Truth About Exercise (2012) IPTVRip
 
->>Other Styles
->>Other (Lossless)
+>>Зарубежные TV-бренды
+>>BBC
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rumours (04:10)
- 02. Rocky Trail (03:31)
- 03. Comb My Hair (03:06)
- 04. Angel (03:16)(   Читать дальше...   )Жанр: Indie Pop, Acoustic, Lo-FiПродолжительность: 00:37:39
+Как и многие другие, Майкл Мосли хотел бы быть более сильным и подтянутым, однако ему не нравится проводить слишком много времени в тренажерном зале. Пытаясь решить эту проблему, он узнал о новейшем исследовании, согласно которому мы можем значительно улучшить свое состояние здоровья, тратя на физические упражнения всего лишь 3 минуты в неделю. Он также выяснил, какие скрытые возможности таят в себе такие простые виды физической активности, как ходьба и почему физические упражнения не для всех одинаково эффективны. Используя себя в качестве подопытного кролика, он узнал, как можно использовать результаты этих исследований для того, чтобы жить более долгой и здоровой жизнью.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6C4C70E8C26218327A44E573A06522BF5A28D7C
+magnet:?xt=urn:btih:A9F4B0635D860995D9CFEE15418D3906DC40D376
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,25 +105,53 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525578   (129192) от 21.01.2022
+###  Публикация: 1682628   (131249) от 07.12.2023
 
-Firefox Browser 96.0.2 Portable by PortableApps [Ru]
+Создатель / The Creator (2023) BDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131249.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повсеместное применение искусственного интеллекта привело к тому, что в Лос-Анджелесе произошёл ядерный взрыв. С тех пор коллективный Запад во главе с США ведёт непримиримую войну на уничтожение ИИ, но блок стран Юго-Восточной Азии — Новая Азия — живёт в гармонии с роботами и сдаваться не собирается. В 2065 году спецназовец Джошуа находился в тылу врага, с целью (   Читать дальше...   )Производство: США / 20th Century Studios, Entertainment One, Regency TelevisionЖанр: фантастика, боевик, драмаРежиссер: Гарет ЭдвардсАктеры: Джон Дэвид Вашингтон, Мэделин Юна Войлс, Джемма Чан, Эллисон Дженни, Кэн Ватанабэ, Стерджил Симпсон, Амер Чадха-Пател, Марк Менчака, Робби Танн, Ральф АйнесонПеревод: Дублированный (MovieDalen)Язык озвучки: РусскийСубтитры: русские (foced, full) отдельноПродолжительность: 02:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DFAB4A0BF26CA02AA0B17EA856C51BCAA64D1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596404   (131248) от 30.12.2012
+
+onOne Perfect Effects 4.0.1 Premium Edition [Английский]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+Perfect Effects — включает в себя полную библиотеку профессиональных фотографических эффектов с обширным диапазоном, имеющих универсальное применение. Позволяет производить обработку в пакетном режиме, независимо от формата и размера изображений, добавлять водяные знаки, применять несколько эффектов одновременно и мн.др. Обработку можно производить в автоматическом и ручном режимах с возможностью предпросмотра. С Perfect Effects Ваша творческая работа многократно ускорится и перейдет на новый уровень благодаря автоматизации многих рутинных процессов. Perfect Effects в отличии от популярного плагина PhotoTools, можно использовать как автономную программу и при этом сохранена возможность вызова его в качестве плагина из приложений Adobe Photoshop, Lightroom и Photoshop Elements. В новой программе OnOne Software постарались оставить все лучшее из PhotoTools расширив библиотеку эффектов, добавив полноэкранные и кумулятивные превью, современные средства управления для создания, настройки и сохранения эффектов, с возможностью ограничивать эффекты определенным цветом или тональным диапазоном изображения.
+
+(   Читать дальше...   )Название программы: onOne Perfect Effects Premium EditionЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6084A08CC54620246D5FF04B7C17FF0E513352BF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,28 +159,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525376   (129191) от 21.01.2022
+###  Публикация: 1676158   (131247) от 07.12.2023
 
-VA - Beatport Electro House: Sound Pack #395 (2022) [MP3|320 Kbps] <Electro House>
+В поисках зверя / Butcher's Crossing (2022) WEB-DLRip [H.265/1080p] [10-bit] [MVO]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поскольку фестивали и концерты по всему миру отменены, мы переносим клубную атмосферу прямо в Вашу квартиру с помощью очередного 395-го саунд пака от Beatport!001. Demuja - Love Is Free
-002. Simone D Jay - Move Your Feet
-003. DJ Planet Express - Wanted U 2 Kno
-004. Michael Cassette - My Name Is Michael Cassette(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:10:35
+Бросив учебу в колледже Лиги Плюща, Уилл Эндрюс отправляется в провинциальный городок Батчерс-Кроссинг, расположенный в штате Канзас. Здесь амбициозный юноша встречает Миллера, одержимого охотника, рассказывающего историю об огромном стаде бизонов, которое он видел десять лет назад в изолированной местности Скалистых гор, штат Колорадо. Заинтригованный этой историей, (   Читать дальше...   )Производство: США, Altitude Film Entertainment, Saban Films, Gabriel Polsky Productions, Ingenious MediaЖанр: драма, вестернРежиссер: Гейб ПольскиАктеры: Николас Кейдж, Фред Хехингер, Джереми Бобб, Пол Рэйси, Ксандер Беркли, Рэйчел Келлер, Эмбер Мэйсон, Harper Hofstad, Beckett Hofstad, Duncan VezainПеревод: Профессиональный многоголосый (Кипарис)Язык озвучки: русский, английскийСубтитры: английские (SDH)Продолжительность: 01:47:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F1B7CA3C752C36D3415506E515AEBA1AE4625C2
+magnet:?xt=urn:btih:91AFFA8EA06369C489E105F2F0511D35CF57C892
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,28 +185,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525545   (129190) от 21.01.2022
+###  Публикация: 596155   (131246) от 30.12.2012
 
-Ernesto Cortazar - Paris by Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Modern Classical, Romantic>
+Адская Кухня США / Hell's Kitchen USA (2012) HDTVRip (сезон 10)
 
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paris by Night (3:51)
- 02. Sourire (4:26)
- 03. Seine (3:39)
- 04. Embrasse-Moi (4:00)(   Читать дальше...   )Жанр: New Age, Piano, Modern Classical, RomanticПродолжительность: 00:38:29
+Hell’s Kitchen — известное кулинарное реалити-шоу Гордона Рамзи, идущее на американском канале Fox начиная с 2005 года. Несмотря на кулинарную ориентацию шоу, оно отличается высоким «накалом страстей» и существенной драматизацией сюжета. Лейтмотив шоу — состязание между участниками за позицию шефа в известном ресторане.
+Гордон Джеймс Рамзи (англ. Gordon James Ramsay; (   Читать дальше...   )Телекомпания: FoxЖанр: ТелепередачаРежиссер: Philip Abatecola, Джереми Уайсс, Йен КенниПеревод: Многоголосый закадровый, профессиональный (Ю)Продолжительность: ~ 20 x 40 минут
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B2853A1E5C9EE2FEC6CDB0B27E00C57410AAB4C
+magnet:?xt=urn:btih:698922B09499DF8EDB7D3FC69A4B87CAC1A56A83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -193,28 +212,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525680   (129189) от 21.01.2022
+###  Публикация: 1682421   (131245) от 07.12.2023
 
-Brian Culbertson - The Trilogy, Pt. 2: Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Рождество в Билтморе / A Biltmore Christmas (2023) WEB-DLRip [H.264/1080p] [MVO]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A Love Lost
-02. Don't Give Up
-03. Still Not Over You
-04. The Way We Danced(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:51:16
+Люси поставлена задача написать сценарий ремейка рождественского фильма. Чтобы проникнуться духом оригинала, она отправляется в поместье, где снимали картину, и, перевернув песочные часы, внезапно оказывается в 1947 году.Производство: США / Hallmark Channel, Lightnin' Production RentalsЖанр: фэнтези, мелодрамаРежиссер: Джон ПутчАктеры: Бетани Джои Ленц, Кристоффер Полаха, Роберт Пикардо, Мэри Бет МакДонаф, Аннабелль Борк, Колтон Литтл, Джонатан Фрейкс, Дэвид Александр, Дженнифер Кортезе, Джейсон СосьерПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: Русский, АнглийскийСубтитры: Английские (full, SDH)Продолжительность: 01:24:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20198D4FB5644E31FE79AA8EDDC8ECBF84B65D2F
+magnet:?xt=urn:btih:87F1DB4B5FF2D8764B449062CBFA4109D85893EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -222,28 +238,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525426   (129188) от 21.01.2022
+###  Публикация: 596304   (131244) от 30.12.2012
 
-VA - The Techno Streaming Sound (Vol.02) (2022) [MP3|320 Kbps] <Techno, Electro>
+Голос. Выпуск №13. Финал (2012.12.29) HDTV [1080i]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мы погружаемся в Техно туннели, собираем лучшие музыкальные работы и упаковываем их в подарочную упаковку специально для Вас. Целых сто треков техно любви доступны уже сейчас во втором релизе "The Techno Streaming Sound" от Electro Voice!001. Lorenzo Chi - Underground Chicago
-002. Theo De Tank - Make Me Feel
-003. Jürgen Degener - Rhyme
-004. Heathered Pearls - Utica(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:39:26
+Первый канал объявляет о запуске нового музыкального проекта "Голос", участники которого отбираются исключительно по своим вокальным данным. В шоу проходят только те, кто умеет петь, и делает это очень хорошо.
+Заявки для участия в шоу принимались вплоть до начала сентября. Всего было принято свыше 10 тысяч заявок, из которых лишь каждая десятая преодолела (   Читать дальше...   )Жанр: ТВ-Шоу, развлекательныйПродолжительность: ~ 02:14:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B9E694EE9CC0AEC955E15BDAEF3A4374A022889
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,176 +265,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525739   (129186) от 21.01.2022
+###  Публикация: 596282   (131243) от 30.12.2012
 
-VA - Black Hole Trance Music 01-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Durand & Susana - I Matter to You (Extended Mix) [06:14]
-02. Christian Burns - Breathing Fire (Farius Extended Remix) [05:52]
-03. Giuseppe Ottaviani - The Wind in Your Face (Extended Mix) [06:44]
-04. Eco - Let You Down (Chris Schweizer Extended Remix) [06:29](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734827AEB0A65F3AA9848F1808F10E8113088C50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488307   (129184) от 27.04.2012
-
-VA - Русские Новинки Vol.45 from AGR (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yolan & Kenia - На Пороге Лета (Extended Mix)
-02. Soda - Разлука (DJ Movskii & DJ Karasev Extended Remix)
-03. Батишта feat. Ульяна Глушкова - Мама
-04. MainstreaM One - Всё Пройдёт
-05. Karizma - Я Забуду (Radio Edit)
-06. Алиса - Настроение
-07. Music Hayk - Почему Не Я
-08. Bi-O-Shock - Биоробот
-09. LiLi - Lady GaGa Отдыхает!
-10. Валерий Меладзе - Потерян И Не Найден(   Читать дальше...   )2012Жанр: PopПродолжительность: 03:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33CA0AC4D3F72011627B1E5DF0DD0E7CE2DAB97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525633   (129178) от 21.01.2022
-
-Kissin' Dynamite - Not The End Of The Road (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not The End Of The Road
-02. What Goes Up
-03. Only The Dead
-04. Yoko Ono(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C90E85C6BDC132710B23E162A0388A200B3DC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525790   (129177) от 21.01.2022
-
-VA - Street King Presents Winter 2022 (2022) [AAC|~319 Kbps] <Deep House, Soulful House, Tech House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cookie Monsterz, Michelle Weeks, Qubiko - Spread Love (Unreleased Qubiko Dub) (6:41)
-02. Mata Jones - Esa Y Aqui (Unreleased Original Mix) (6:38)
-03. Dennis Ferrer, K.T. Brooks, Philip Z - How Do I Let Go (Unreleased Philip Z Dub) (6:31)
-04. Dino MFU, Alxndra Good, David Morales - Not True (Unreleased David Morales Reprise) (6:21)(   Читать дальше...   )Жанр: Deep House, Soulful House, Tech HouseПродолжительность: 03:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D24260F18DDA2C518C201F68508AF6624314B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525540   (129175) от 21.01.2022
-
-VA - The Very Best of Chill Out, Vol. 1 (2015) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemongrass, Jane Maximova - Deep River (6:29)
-02. SilverNight - Silence (6:55)
-03. Barclay & Cream - Surrender (Alexander Metzger Beach Mix) (3:55)
-04. Jens Jakob - Antimatter 1 (10:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09CC06264E351249CCA685E6E2B5DF1B4E2866D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488755   (129174) от 27.04.2012
-
-Газета | 1000 секретов [Украина] №8 [2012] [PDF]
+Stereoscopic Player 1.9.6 Final [Multi/Русский]
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«1000 секретов» - издание, которое станет полезным каждому. Оно содержит советы по различным темам: кулинария, цветоводство, ремонт, сад-огород, уход за животными, юридические вопросы, мода, здоровье, семейные отношения и многое другое.Формат: PDF
+Stereoscopic Player - многоцелевой проигрыватель для просмотра стерео-фильмов и DVD. Программа позволяет вам проигрывать стереоскопические видео и DVD фильмы, а также позволяет просматривать видео в реальном времени с устройств захвата. Поскольку, данный проигрыватель основан на DirectShow, он может обрабатывать почти любые медиа форматы, включая AVI, MPEG, WMV и ASF. Видео может быть закодировано в нескольких различных стереоскопических форматах. Stereoscopic Player поддерживает широкий диапазон 3D аппаратного обеспечения, включая анаглифические стерео очки, затворные стерео очки, аутостереоскопические мониторы и проекционные системы. Программа обладает многоязычным интерфейсом с поддержкой русского языка.Язык интерфейса: Multi/Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7035D28BAFE60135468B43A72039B6347574F47
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,63 +291,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525544   (129172) от 21.01.2022
+###  Публикация: 1682469   (131242) от 07.12.2023
 
-VA - The Very Best of Chill Out, Vol. 3 (2017) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. York - Interlude (0:57)
-02. Marga Sol, Mike Vale, NDKj - Say My Name (Marga Sol's Chill Mix) (3:43)
-03. CaPa - The Way We Live (3:48)
-04. Eskadet - A Bientot (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96282DBE6FD68E9FA16C679521062E46F4E7D28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487394   (129171) от 27.04.2012
-
-VA - Drive from Mad M!nd (2012) [MP3|320 кб/с]<Dutch House>
+AIDA64 Extreme | Engineer | Business Edition | Network Audit 7.00.6700 RePack (&Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alx, Jazzi Jay, Muzzyg - Letz Go! (Die Hoerer Remix)
-02. Avesta - Arena (Original Mix)
-03. Aylesbury - Surrender (Gimbal & Sinan Remix)
-04. Betatraxx feat. Krystal - Shuffling & Looking Dumb (Original Mix)
-05. Eva - Body On Mine (Mixin' Marc & Tony Svejda Peak Hour Dub)
-06. Kraymer - The Concept (Jay Robinson Remix)
-07. Laidback Lue - Do The Robot (Original Mix)
-08. Lenny Kravitz - Are You Gonna Go My Way (Christian Sims Remix)
-09. Lil Jon - Drink ft. LMFAO (Extended Clean)
-10. Mad Villains - Disk Hoez (Dirty Audio Remix)(   Читать дальше...   )2012Жанр: Dutch HouseПродолжительность: 01:48:28
+AIDA64 - утилита является мощным средством для идентификации и тестирования практически любых компонентов персонального компьютера под управлением операционных систем семейства Windows. Предоставляет вам детальные сведения обо всем аппаратном и программном обеспечении, кроме того, при помощи встроенных модулей для тестирования и калибровки можно провести дополнительную (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:852E0FE49DB6B164FE6283DC31690C5182F6C358
+magnet:?xt=urn:btih:78C34F5B1B0E160D21C0B4859F57AC03BA6ADF3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -492,28 +317,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525676   (129170) от 21.01.2022
+###  Публикация: 1682398   (131241) от 07.12.2023
 
-Paul Oakenfold - Shine On (2022) [AAC|~310 Kbps] <EDM, House, Drum & Bass>
+Сияющая долина / Shining Vale (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-8 из 8) TVShows
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Zanzebaar (1:47)
-02. Paul Oakenfold, Baby E - Shine On (2:33)
-03. Paul Oakenfold, Lizzy Land - Waterfall (Orchestral Mix) (2:42)
-04. White Lights (3:19)(   Читать дальше...   )Жанр: EDM, House, Drum & BassПродолжительность: 00:56:41
+Пэт Фелпс (Кортни Кокс), в прошлом известная писательница, так и не может написать свой второй роман. В семье дела тоже неладно — отношения с мужем давно потеряли былой лоск, а дети как раз переживают подростковый бунт. Переспав с сантехником, женщина в отчаянии решает податься с семьёй в пригород, подальше от шума мегаполиса. Семья переезжает из Бруклина, штат Нью-Йорк, (   Читать дальше...   )Производство: США / Lions Gate Television, Warner Bros. TelevisionЖанр: ужасы, фэнтези, комедияРежиссер: Алетеа Джонс, Лиз Фридлендер, Катриона МакКензиАктеры: Кортни Кокс, Грег Кинниэр, Гас Бирни, Дилан Гейдж, Мира Сорвино, Меррин Данги, Дерек Лу, Алисия Райнер, Сьюзэн Парк, Джеймс М. КоннорПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: ~00:30:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6242D6C4261B26EF291A2FBFA44AA0EC444902CF
+magnet:?xt=urn:btih:711E640D4D641CE9BE5AE36E385D313A611C434E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,28 +343,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525682   (129169) от 21.01.2022
+###  Публикация: 596493   (131240) от 30.12.2012
 
-Pedro the Lion - Havasu (2022) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+Бедная Саша (1997) DVBRip
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Отечественное кино
+>>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Don't Wanna Move (4:03)
- 02. Too Much (3:29)
- 03. First Drumset (5:18)
- 04. Teenage Sequencer (4:17)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:41
+"Новая русская" девочка хочет ограбить банк своей "новой русской" мамы, чтобы она перестала быть банкиршей и стала просто любимой мамочкой. "Бедная Саша" - это, конечно же, новогодняя сказка о том, как сильно люди нуждаются в любви: девочке недостает родительского тепла, ее мама неуютно чувствует себя без любимого человека. А главный (   Читать дальше...   )Жанр: Комедия, Приключения, СемейныйРежиссер: Тигран КеосаянАктеры: Юлия Чернова (Саша), Александр Збруев (Березкин), Вера Глаголева (Ольга Васильевна, Сашина мама), Ольга Волкова (Амалия Аркадьевна), Борис Сичкин (Аристарх), Валерий Гаркалин (Крышкин), Армен Джигарханян (полковник на зоне), Спартак Мишулин (Корявый), Нина Русланова (бывшая жена Берёзкина, Галя), Анатолий Журавлев (Сохатов), Игорь Воробьев (Голубев), Андрей Невраев (   Читать дальше...   )Продолжительность: 01:31:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0BA19B003A8339AEA604837718E7C386BD265BA
+magnet:?xt=urn:btih:1A7A0C4B59366D3F6F264A5B31D924EE9552B008
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,141 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525572   (129167) от 21.01.2022
+###  Публикация: 1216907   (131239) от 07.12.2023
 
-Orville Peck - Show Pony (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Summertime (02:57)
- 02. No Glory in the West(04:14)
- 03. Drive Me, Crazy (05:18)
- 04. Kids(03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:755D4E4F3BFEFA065CD0ADC5F1BE79CCC364A301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488846   (129166) от 27.04.2012
-
-Журнал | АиФ. Спецвыпуск. Дача №6 [2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот номер спецвыпуска посвящен самой трогательной для любого дачника теме - весенним цветам. Какие растения первыми встречают нас в саду? Как за ними ухаживать? Как спланировать цветник, который будет радовать с весны до осени? Предлагаем вашему вниманию мнения ведущих специалистов в данной области.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E54FBC332FEDD5CDD1BB6B1CB5E38145E72ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525626   (129164) от 21.01.2022
-
-King Gizzard & The Lizard Wizard - Butterfly 3001 (2022) Remix [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Black Hot Soup (DJ Shadow “My Own Reality” Re-Write)  (03:36)
-02 - Shanghai (The Scientist Dub)  (04:00)
-03 - Shanghai (Deaton Chris Anthony Remix)  (03:32)
-04 - Dreams (Yu Su Instrumental Mix)  (05:14)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF834F58A9C629F6D1988811957F386A17D8229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525414   (129162) от 21.01.2022
-
-VA - NRW: Techno Cruise Music (2022) [MP3|320 Kbps] <Techno, Electronic, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129162.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта музыка для тех. кто максимально отрешиться от проблем и уйти в себя, или познать что-то новое и расширить границы зоны комфорта. Для многих людей лучшим способом провести это время становится путешествие и не важно большое или маленькое, но обязательно под хорошую музыку.001. DJ D Redd - Sloppy Top
-002. Plasma2097 - Wayne Train
-003. Goncalo M - Operation Friction
-004. Makaja Gonzales - Silver Bullet(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 09:13:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065B4C3CD76B5A9C40BB99D449552BDB4BC0C803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525624   (129160) от 21.01.2022
-
-Edge Of Forever - Seminole (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Gary Moore & Projects: Skid Row, Colosseum II, Greg Lake, BBM -54 Albums, 2EP, 1 Box Set (1970 - 2021) 106 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Classic Rock & Hard Rock & B ...
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129160.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Get Up Your Feet Again
-02. On The Other Side Of Pain
-03. Made It Through
-04. Shift The Paradigm(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:18
+Gary Moore (полное имя Роберт Уильям Гари Мур; родился 4 апреля 1952 года в Белфасте, Северная Ирландия - умер 6 февраля 2011 г.) - легендарный ирландский гитарист, певец и композитор. Для "муровской" манеры игры на гитаре характерен звук с применением овердрайва и высоким значением сустейна. В ходе своего творческого пути, уходящего корнями в 1960-е, он (   Читать дальше...   )Список альбомов:
+1973 The Gary Moore Band - Grinding Stone
+1978 Gary Moore - Back On The Streets
+1980 Gary Moore - G-ForceЖанр: Classic Rock & Hard Rock & Blues-RockПродолжительность: 103:52:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3CF583626E0C234B28285D686FDEB7119B00B15
+magnet:?xt=urn:btih:E32B45526850893D90ECA558AB69201B7921319C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,25 +398,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525767   (129159) от 21.01.2022
+###  Публикация: 595378   (131238) от 30.12.2012
 
-Клоун Коко и хотдог / Koko`s Hot Dog (1928) WEBRip [H.264/720p]
+Не упускай из виду / La course a l'echalote (1975) [H.264] DVDRip
 
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (HD, FHD, UHD)
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ну, никак нельзя в американском мультике обойти такую очень американскую тему как хот-дог. И уж никак нельзя не пошутить о рецептуре блюда под названием "горячая собака". ;)Производство: США, Inkwell StudiosЖанр: Рисованная анимация, КороткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские встроенные отключаемыеПродолжительность: 00:06:16
+Пьер работает в банке и любит парикмахершу Жанет, но ей кажется скучной любовь с банкиром, думающим в первую очередь только о работе. И однажды, Пьера назначают временным заместителем директора банка, пока сам директор уезжает в отпуск. И именно в это время мошенники решают украсть из банка важные документы, но бдительный Пьер, заметив это, бросается в погоню. Но (   Читать дальше...   )Производство: Hermes Synchron, Les Films Christian Fechner, Renn ProductionsЖанр: КомедияРежиссер: Клод ЗидиАктеры: Пьер Ришар, Джейн Биркин, Мишель Омон, Марк Делшниц, Амадеус Аугуст, Анри Деюс,  Луис Рего, Катрин Аллегре, Андре Безю, Жан МартенПеревод: Дублированный (киностудия «Союзмультфильм», 1979г.)Субтитры: ОтсутствуютПродолжительность: 01:35:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7AD133C5BCF30B440FE2146255274471982EFE4
+magnet:?xt=urn:btih:B27EF11CF63C1871270CDA2FD0348C2D74C36999
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -718,28 +424,271 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525634   (129156) от 21.01.2022
+###  Публикация: 1682594   (131237) от 07.12.2023
 
-Boris - W (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge Metal>
+Abelssoft SSD Fresh Plus 2024 13.0.51115 Portable by FC Portables [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>След.
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Want to Go to the Side Where You Can Touch… (5:24)
- 02. Icelina (5:18)
- 03. Drowning by Numbers (4:16)
- 04. Invitation (2:56)(   Читать дальше...   )Жанр: Sludge MetalПродолжительность: 00:41:38
+Abelssoft SSD Fresh - если вы счастливый обладатель SSD накопителя и задумывались над тем как такой диск оптимизировать, продлить срок службы, то эта утилита всё сделает быстро и за пару кликов. Abelssoft SSD Fresh настроит вашу систему Windows на оптимальную работу с SSD накопителем, отключит доступ к записи, увеличит производительность, снизит количество операций (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6337B643FDD2FB9F8432BECF32786C83BB5F232E
+magnet:?xt=urn:btih:017F5AB1CA4CCFD98A7174983BDB0A5D27AD82CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596440   (131236) от 30.12.2012
+
+SpeedFan 4.48 beta 6 [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131236.jpg" />
+</div>
+
+
+###  Подробнее
+
+SpeedFan - утилита для контроля материнской платы - температура, напряжения, скорости вентиляторов, а также за температурой жестких дисков (если они поддерживают эту функцию). Крайне положительная черта SpeedFan, выделяющая эту программу среди аналогичных - умение изменять скорость вращения вентиляторов, в том числе в зависимости от температуры внутри системного блока.Название программы: SpeedFanЯзык интерфейса: MULTi / Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682396   (131235) от 07.12.2023
+
+Сияющая долина / Shining Vale (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) TVShows
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пэт Фелпс (Кортни Кокс), в прошлом известная писательница, так и не может написать свой второй роман. В семье дела тоже неладно — отношения с мужем давно потеряли былой лоск, а дети как раз переживают подростковый бунт. Переспав с сантехником, женщина в отчаянии решает податься с семьёй в пригород, подальше от шума мегаполиса. Семья переезжает из Бруклина, штат Нью-Йорк, (   Читать дальше...   )Производство: США / Lions Gate Television, Warner Bros. TelevisionЖанр: ужасы, фэнтези, комедияРежиссер: Алетеа Джонс, Лиз Фридлендер, Катриона МакКензиАктеры: Кортни Кокс, Грег Кинниэр, Гас Бирни, Дилан Гейдж, Мира Сорвино, Меррин Данги, Дерек Лу, Алисия Райнер, Сьюзэн Парк, Джеймс М. КоннорПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: ~00:30:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E2F4D6F49D1FCC4569ED115372AAE085CA73E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682205   (131233) от 07.12.2023
+
+Популярность Google Chrome в России достигла минимума за 5 лет
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131233.jpg" />
+</div>
+
+
+###  Подробнее
+
+Аналитическая компания Statcounter обновила рейтинг популярности браузеров в России. Статистика оказалась любопытной: Google Chrome «просел» до уровня 2017-го, а «Яндекс Браузер» показал рекордные результаты по итогам уходящего года.По данным источника, доля Google Chrome в России без учёта платформы (десктопы/мобильные устройства) по состоянию на конец ноября составила (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682365   (131232) от 07.12.2023
+
+OTUS, Евгений Аристов, Виталий Попов, Владимир Дроздецкий и др. | PostgreSQL Advanced (2023) WEB-DL [RU]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131232.jpg" />
+</div>
+
+
+###  Подробнее
+
+Курс по работе с базой данных PostgreSQL в различных средах. Курс обеспечивает глубокое погружение в PostgreSQL, чтобы проектировать базы данных так, чтобы впоследствии не приходилось тушить пожары в результате не оптимально заложенных основ. Цель курса - научить слушателя эффективно работать с PostgreSQL в облаках, разворачивать отказоустойчивые кластерные решения. (   Читать дальше...   )Производство: OTUSЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 40:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96724668521D852E59981CDC43B7ABCA67126BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452693   (131231) от 07.12.2023
+
+CG Boost, Martin Klekner |  Substance Painter Launch Pad (2020) PCRec [EN, RU / EN, RU Sub]
+
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотите повысить свои навыки текстурирования, но не знаете как?
+Все, что вам нужно знать о PBR текстурировании, находится в одном месте. Этот онлайн-курс научит вас всему, что важно для начала работы с PBR текстурированием в Substance Painter.
+Все важнейшие фундаментальные принципы, инструменты, настройки и рабочие процессы объясняются шаг за шагом и легко понимаются (   Читать дальше...   )Производство: CG BoostЖанр: 3D моделирование, ТекстурированиеЯзык озвучки: Английский, Русский (отдельным файлом)Продолжительность: 10:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8FE071E13BECCAB506979C19CC3E25BC368F877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959725   (131230) от 07.12.2023
+
+Cinderella (Tom Keifer) - 14 Albums, 1 Box Set  (1986 - 2019) 25 CD [FLAC|Lossless|image + .cue|tracks + .cue]<Hard Rock, Blues Rock, Glam>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinderella - американская рок-группа, основанная в 1983 году в Филадельфии. Неизменными участниками группы на протяжении всей её истории являются поющий гитарист и клавишник Tom Keifer, басист Eric Brittingham и соло-гитарист Jeff LaBar. За время клубных выступлений группа приобрела известность, став превосходной концертной командой. Как-то на выступлении группы (   Читать дальше...   )Список альбомов:
+1986 - Night Songs
+1988 - Long Cold Winter
+1990 - Heartbreak StationЖанр: Hard Rock, Blues Rock, GlamПродолжительность: 24:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB205A275114F6605AF8AAA19727A5E1723E98F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680260   (131229) от 07.12.2023
+
+Яндекс.Практикум | Курс «Системный аналитик» (2022) WEB-DL [AD] [RU] [Части 8 из 8]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поможем освоить новую профессию с нуля за 9 месяцев.
+Что именно вы будете делать, когда станете системным аналитиком:
+✅ Собирать требования к программному продукту, обеспечивать их полноту и непротиворечивость
+✅ Разрабатывать прототипы пользовательских интерфейсов(   Читать дальше...   )Производство: Яндекс.ПрактикумЖанр: Обучающий курсЯзык озвучки: РусскийПродолжительность: 32:39:10Реклама: Наложения на видео и вставки
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC36FE6E92005229FB970F5E6D89B166E7364AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582720   (131228) от 07.12.2023
+
+Повседневная жизнь бессмертного короля 3 | Xian Wang de Richang Shenghuo 3 | The Daily Life of the Immortal King 3 [2022, TV, 12 из 12] WEBRip 1080p Raw+Rus
+
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сезон приключений Ван Лина в Академии Культивирования. На этот раз нас сразу познакомят с новой героиней, приехавшей прямо с Солнечного острова (Японии) и решившей захватить власть во всём Хуасю (Китае). И первой своей целью она ставит для себя становления самой популярной крутышкой 60-ой Академии. Посмотрим, сможет ли она одолеть Сунь Жун или же в процессе (   Читать дальше...   )Производство: Китай / Студия Pb Animation Co. Ltd.Жанр: Комедия, школа, приключения, романтикаРежиссер: Чжу Бэнин, Ли ХаолинЯзык озвучки: Русский многоголосый, закадровый; Китайский
+- Viki, Paragon, Veda, Skyfinger (SHIZA Project)
+- Morgan, Dagor, Mariarti (Freedub Studio)Субтитры: Русские
+- (софтсаб на надписи)  (1-10) (SHIZA Project)
+- (софтсаб на надписи и полные) (Crunchyroll)Продолжительность: 12 серий по 20 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4F6CD4A037DED84695922FBC03CBFC876D2A10D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596375   (131227) от 30.12.2012
+
+Щеколда / Le Déclic (1985) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: ФранцияЖанр: Эротика, Комедия, ТриллерРежиссер: Жан-Луи РишарАктеры: Флоранс Герен, Жан-Пьер Кальфон, Берни Каби, Жерар-Антуан Юар, Фабрис Джоссо, Крофтон Хардестер, Жасмин Маймоне, Лиза Маркс, Джордж «Бак» Флауэр, Мария Форд, Дебра Ламб, Тони НэплсПеревод: Одноголосый закадровыйПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35139229EC18B239694BF38AEA7C3BB23E9A6800
 ```
 
 https://mybot314.ru/tekegram_catalog/

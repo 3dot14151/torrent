@@ -1,3 +1,32 @@
+###  Публикация: 607094   (994701) от 22.01.2013
+
+VA - Союз нерушимый... - Песни и танцы народов СCCP (5 CD) (2007) [FLAC|Lossless] <Retro/Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994701.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Retro/Folk |Продолжительность: 00:50:14
+
+01. Государственный гимн Советского Союза Оркестр Государственного Академического Большого Театра СССР, Юрий Симонов
+02. Государственный гимн Украинской ССР Хор и оркестр Государственного академического театра оперы и балета имени Т.Шевченко, Стефан Турчак(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353689   (990691) от 19.01.2020
 
 Leonard Cohen - Popular Problems (2014) [FLAC|Lossless]<Contemporary folk, Soft rock, Singer/Songwriter>
@@ -714,35 +743,6 @@ Blackmore’s Night - Under A Violet Moon (1999) [FLAC|Lossless|image + .cue] <F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85E2CBBC7B2930B80A13217B78389922A620433B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107114   (868003) от 22.02.2017
-
-Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New Wave>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At Last
-02. Walk On By
-03. Stay
-04. La Vie En Rose(   Читать дальше...   )Жанр: Pop, Pop Rock, New WaveПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466B0A73BF4AE7527A6573317AB19D84E2E77735
 ```
 
 https://mybot314.ru/tekegram_catalog/

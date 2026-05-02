@@ -1,24 +1,169 @@
-###  Публикация: 1127370   (732217) от 21.04.2017
+###  Публикация: 1528464   (734473) от 02.02.2022
 
-TunesKit Apple Music Converter 1.3.2 [En]
+VA - Ibiza Live Radio 1 (2018) [AAC|~326 Kbps] <Chill Out, Downtempo, Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CarolinaBlue & MisterSmallz - Free Your Mind (Original Mix) (8:04)
+02. Lenny Fontana, D-Train - When You Feel What Love Has (NYC Deeper Dubb Mix) (7:31)
+03. Miss Luna - Move with You (Original Mix) (5:52)
+04. Mathew Brabham, DJ Nasty Deluxe - In the Jungle (Marga Sol & Darles Flow Remix) (5:46)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Deep HouseПродолжительность: 01:39:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:244FD40FF04CC50A61BE066D8F9C6200D45BECCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528466   (734472) от 02.02.2022
+
+VA - The Best of Lump Records (2020) [AAC|~320 Kbps] <Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Omerar Nanda - Some God Ruled It (7:20)
+02. Hot Oasis - Wadi Tarabin (7:31)
+03. Dandara - Mira La Luna (6:14)
+04. Jota Karloza - Om Kleem (7:26)(   Читать дальше...   )Жанр: Organic HouseПродолжительность: 02:32:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77534F3EB2C6A2F5A555D0C63F3AA223C0CDB4F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528525   (734471) от 02.02.2022
+
+VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 4 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris le Blanc, Pat Lawson - Beyond the Sunsets (Ibiza Late Night Mix) (4:59)
+02. Jason Cabrera - Red Apple (Original Mix) (3:07)
+03. Gaba Milani - Open Your Eyes (Original Mix) (5:02)
+04. Las Dalias Ensemble - Sundown At Cafe del Mar (Original Mix) (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2AD6B20520329FBBB1486295E741A9BDE0E63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528523   (734470) от 02.02.2022
+
+VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 2 (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stefano Monza - People from Ibiza (Chill-Out Mix) (4:12)
+02. Mikis Theodorakis, Francesco Diaz - Desire (Chilling Chambers) (Original Mix) (4:26)
+03. Chill Out Hotel - Human (Original Mix) (5:24)
+04. Eva Pacifico - Caliente (Lenny Ibizarre Remix) (8:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ECD9347D7FEAF0C043A695F85212393F8559A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528524   (734469) от 02.02.2022
+
+VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 3 (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nolan Rivera - Farra (Original Mix) (4:02)
+02. Eskadet - Translation (Original Mix) (4:34)
+03. Mikis Theodorakis, Francesco Diaz - Remembering Zorbas (Original Mix) (5:08)
+04. Lazy Hammock - Star Soul (Original Mix) (7:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D87FD7F9E744442C476FDF823859502C63F4C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528595   (734468) от 02.02.2022
+
+UctoX 2 v2.9 U2B [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734468.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TunesKit Apple Music Converter - программное обеспечение позволяющее удалять DRM защиту для Apple Music. Программа позволяет разблокировать шифрование DRM Apple Music, и конвертировать защищенные Apple Music M4P в незащищенные форматы, такие как: MP3, AAC, WAV, FLAC, M4A, или M4B с сохранением ID тегов.
-
-Программа преобразует Apple Music файлы на высокой скорости (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20 апреля 2017Разработчик: TunesKitПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
+UctoX - это мощное приложение для выставления счетов, которое позволяет оставаться удобным для пользователей, предлагая широкий спектр функций для управления финансовыми отчетами.
+Управлять финансовыми документами вашей компании, отслеживать счета-фактуры, банковские выписки, инвестиции и многое другое, с помощью этого интуитивного приложения
+Если вы управляете малым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F0B42F4F712530AB891443C5FD2200DFE25B57F
+magnet:?xt=urn:btih:093A82465606563B78A914D6FBCF999F2150F149
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,28 +171,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127387   (732216) от 21.04.2017
+###  Публикация: 1528488   (734467) от 02.02.2022
 
-Sky High - Stone & Gravel (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
+Count Basie - Live At The Savoy (1954) 1989, LaserLight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pretty Young Women (& Dirty Old Men. Feat. Jon Paris)  (04:05) 
-02. One Step Back  (04:05) 
-03. A New Old Style ( Old Farts Boogie )  (03:15) 
-04. Holy Grounds (Feat. Per Wiberg)  (06:04) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:17
+01. One O' Clock Jump [4:14]
+02. Dance Of The Gremlins [4:19]
+03. Basie Talk [3:59]
+04. Blee Blop Blues [2:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F567C9336C4627E028AE5535B4DF669544ECE6EB
+magnet:?xt=urn:btih:D0A1828CA1F0527C2A642A124666B442F8A93F14
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,28 +200,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127236   (732215) от 21.04.2017
+###  Публикация: 1528521   (734466) от 02.02.2022
 
-Hidden Lands - Halcyon (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
+VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Prince Of Goofs (6:39)
-02. Water Spirit (10:07)
-03. Ulleraker (4:09)
-04. No One Is In This For Love (6:02)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:23
+01. Maria Alvarez - Space (Terrace Mix) (8:53)
+02. Chuck Mertens - Moshy (Original Mix) (5:51)
+03. Benirras - Bora Bora (At Night Mix) (6:14)
+04. Jeffrey Campbell - Time (Original Mix) (4:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:30:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E1586D35F9277B392E794FF90BF25712F072934
+magnet:?xt=urn:btih:A6D75006A09FCFF87055EAD56A664E2FC4CF0C18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,102 +229,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125665   (732214) от 21.04.2017
+###  Публикация: 1528499   (734465) от 02.02.2022
 
-VA - Весенняя танцевальная вечеринка выпуск № 12 (2017) [MP3|256 Kbps] <Pop>
+Eurynomos - From The Valleys Of Hades (2020) [WavPack|Lossless|image + .cue] <Black Metal, Thrash Metal>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734465.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Регина Тодоренко - Не Обижу 2:58
-002. Milen - Флюиды 4:02
-003. Dj Mrid & Борис Агаджанян - Самая 4:02
-004. Анжелика Варум - Женщина Шла 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F76677ED5E13F65761594CA998A94630DE837AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127355   (732213) от 21.04.2017
-
-Вечерний Ургант (2017.04.20) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED9399DEAA46CF9485CE9BAADB2E8FF060F5BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126078   (732212) от 21.04.2017
-
-Оставить след (1982) SATRip [H.264] [MP4|744x374]
-
->>Мультимедиа и прочее
->>Мобильное Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Студентка Нина Денисова вместе с концертной бригадой приезжает на строительство железной дороги. Здесь она встречает своего бывшего одноклассника, в которого тайно влюблена, и решает остаться на стройке.Производство: СССРЖанр: Мелодрама, ДрамаРежиссер: Герман ЛавровАктеры: Светлана Петросьянц, Сергей Проханов,Иван Рыжов, Лев Прыгунов, Александр Сафронов,Татьяна Догилева, Наталья Потапова, Игорь Ясулович, Любовь Соколова, Евгения МельниковаПродолжительность: 01:15:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B81D08467D1D6D15D2A35254F4BC80B9CC3D2258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127351   (732211) от 21.04.2017
-
-Астрономы ЕКА создали карту, включающую данные о движении 2 миллионов звезд нашей галактики
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известно, что с течением времени практически все созвездия изменяют свою форму из-за движения входящих в них звезд. Эти процессы происходят очень медленно по нашим, человеческим меркам времени, и в течение времени жизни одного и даже нескольких поколений изменения форм созвездий можно уловить только при помощи высокоточных астрономических инструментов. К счастью, (   Читать дальше...   )
+01. Titan God
+02. Heraklion Axes
+03. Bat Flight
+04. Into The Lion's Den(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:49:33
 
 ## Скачать торент
 ```bash
@@ -191,145 +258,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019835   (732181) от 30.05.2016
+###  Публикация: 1528507   (734464) от 02.02.2022
 
-Футбол. Чемпионат Германии 2015-2016. Переходные матчи. Ответный матч. Нюрнберг - Айнтрахт (Франкфурт) (23.05.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732181.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 мая 2016, понедельник. 21:30 МСК
-Переходные матчи. 2-й матч
-
-Стадион: Грундиг (Нюрнберг, Германия) , 50 000 зрителей (100 % при вместимости 50 000)(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Роман Нагучев)Продолжительность: 01:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D3C660709B34D4E2D176A88931FCA59A8724EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020018   (732180) от 30.05.2016
-
-Футбол. Чемпионат России 2015-2016. Переходные матчи. Первый матч. Волгарь - Анжи (24.05.2016) HDTVRip [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732180.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 мая 2016, вторник. 18:00 МСК
-Переходные матчи. 1-й матч
-
-Стадион: Центральный (Астрахань, Россия) , 10 500 зрителей (60 % при вместимости 17 500)(   Читать дальше...   )Телекомпания: Наш Футбол HDЖанр: СпортЯзык озвучки: Русский (Владислав Батурин)Продолжительность: 01:52:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C169D0644DA94A6625631819AFEAD15C43EFD0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021708   (732179) от 30.05.2016
-
-Футбол. Товарищеский матч. Румыния - Украина (29.05.2016) HDTVRip [H.264/720p-LQ] [UKR]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732179.jpg" />
-</div>
-
-
-###  Подробнее
-
-29 мая 2016, воскресенье. 20:30 МСК
-Товарищеские матчи 1
-
-Стадион: Олимпико ди Торино (Турин, Италия) , вместимость: 27500(   Читать дальше...   )Телекомпания: Футбол 2 HDЖанр: СпортЯзык озвучки: УкраинскийПродолжительность: 01:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E32B874A77554D8E6ACFBD1C14D3A70FC36B104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127324   (732178) от 21.04.2017
-
-Nico Vega - Chooseyourwordspoorly (2006) EP [MP3|320 Kbps] <Alternative, Punk, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rabbit In The Bay (3:59)
-02. Hollywood Sign (2:23)
-03. Let You Go (3:49)
-04. Beast (2:37)Жанр: Alternative, Punk, Indie RockПродолжительность: 00:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28201A8E76AD4A4417890DF5F044E2A3A2EF6D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127454   (732177) от 21.04.2017
-
-Forecast Bar 2.9 [En]
+ProFind 1.9.5 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732177.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734464.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.
-
-Панель Forecast Bar, кроме информации о погоде, отображает в том числе:
-- Текущие условиях, высокие и низкие температуры, условия облачности, а также относительная (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21 апреля 2017Разработчик: Real Casual Games, LLCПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
-* показания прогноза погоды можно сделать на русском (в настройках программы)
+Благодаря мощным функциям и отличной производительности ProFind обеспечивает расширенный поиск файлов на macOS. А также с поддержку запросов на естественном языке, запуск приложений, поиска скрытого местоположения, поиск внутри невидимых папок и пакетов, сценарии и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS X 10.13 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D38247580CE16A44D1443661112402267340874C
+magnet:?xt=urn:btih:383441533831D486DC1FFD95C4B15C561B964B77
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,28 +284,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127356   (732176) от 21.04.2017
+###  Публикация: 1528583   (734463) от 02.02.2022
 
-Can't Swim - Fail You Again (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock, Emo, Hardcore>
+Shyguys - Venture (2018) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Outrun>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732176.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734463.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Днбютный альбом рокеров из Нью Джерси. На мой взгляд довольно не плохо.01. What's Your Big Idea? (Lentil) (3:13)
-02. We Won't Sleep (2:48)
-03. $50,000,000 (3:01)
-04. Friend (3:08)(   Читать дальше...   )Жанр: Indie Rock, Emo, HardcoreПродолжительность: 00:39:45
+01. Journey (6:44)
+02. Abilities (3:45)
+03. Pursuit (4:49)
+04. Attraction (4:03)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 00:54:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BE89D4A23ECD5AB8D12D5EE1A6D24D961874C28
+magnet:?xt=urn:btih:E569CA318A13B1E588521FC354B50DE3C966D338
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,28 +313,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127536   (732175) от 21.04.2017
+###  Публикация: 1528461   (734462) от 02.02.2022
 
-John Primer & Bob Corritore - Ain't Nothing You Can Do! (2017) [MP3|320 Kbps] <West Coast Blues>
+Chillhop Guitar, Sebastien Zunino - Secret Lover (2022) [AAC|~306 Kbps] <Chill Out, Smooth Jazz, Downtempo>
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732175.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Poor Man Blues (04:08)
-02. Elevate Me Mama (05:30)
-03. Hold Me In Your Arms (04:39)
-04. Big Leg Woman (04:21)(   Читать дальше...   )Жанр: West Coast BluesПродолжительность: 00:52:05
+01. Through the Glass (6:27)
+02. Confidential (6:29)
+03. Feet Grey (7:14)
+04. Fragrance (6:12)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 02:08:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF503BFFC9C00E69CC421DDD1E2942D9C7F9A8A4
+magnet:?xt=urn:btih:45E794839ACC604309C86E3F7FD3A1FD074B5C92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,28 +342,79 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127398   (732174) от 21.04.2017
+###  Публикация: 1528545   (734461) от 02.02.2022
 
-Gas - Narkopop (2017) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Electronic, Neo Classical>
+Хоккей. НХЛ 2021-2022. Вашингтон Кэпиталз - Питтсбург Пингвинз (01.02.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734461.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 февраля 2022, среда. 03:00 МСК
+Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 17 826 зрителей (95% при вместимости 18 673)
+Главный судья: Гарретт Рэнк (Эльмира, Канада); Главный судья: Кевин Поллок (Кинкардин, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20C6DBF697DA56E38D2BD3BFC452AFB33AFCC42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528495   (734460) от 02.02.2022
+
+Allavsoft Video Downloader Converter 3.24.3.8064 [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter поддерживает загрузку фильмов, музыкальных видео, плейлистов, спортивных видео, лекций и многого другого с бесплатного веб-сайта для обмена видео, такого как Facebook, Dailymotion, eHow, и более 100 сайтов для обмена видео.Тип издания: macOS SoftwareРелиз состоялся: 31.01.2022Разработчик: © 2022 AllavsoftПоддерживаемая ОС: macOS 10.4+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528600   (734459) от 02.02.2022
+
+Cycling'74 Max 8 v8.2.1 U2B [En]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732174.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Narkopop 1
-2. Narkopop 2
-3. Narkopop 3
-4. Narkopop 4(   Читать дальше...   )Жанр: Ambient, Electronic, Neo ClassicalПродолжительность: 01:18:34
+MAX 8 - это визуальный язык программирования для музыки и мультимедиа. За время своей более чем 20-летней истории, он был использован композиторами, исполнителями, разработчиками программного обеспечения, исследователями и художниками.Тип издания: macOS SoftwareРелиз состоялся: 16.11.2021Разработчик: © Cycling '74Поддерживаемая ОС: macOS 10.11.6+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E95765599E62B3330877C0465B6A4996CB70B4B
+magnet:?xt=urn:btih:691CB2CF882FEB6CC6C0221ED9B85C6A7DB185A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,28 +422,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127396   (732173) от 21.04.2017
+###  Публикация: 1528504   (734458) от 02.02.2022
 
-Al Caiola - Bonanza! 1960-1969 (2002) CD [MP3|320 Kbps] <Instrumental, Easy Listening, Pop>
+Duplicate Photos Fixer Pro 4.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Duplicate Photos Fixer Pro является удобным приложением, которое может помочь вам быстро очистить ваши коллекции фотографии от дубликатов. Приложение может сканировать любую папку, хранящуюся на вашем компьютере, определяет дубликаты изображений и поможет обнаружить похожие фотографии.
+Работать с приложением интуитивно просто: просто выберите каталоги, которые вы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 2022 Systweak SoftwareПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий, Японский и Французский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090184FC7197EEF2B65A3FAF0AF7129E960AAB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528540   (734457) от 02.02.2022
+
+Vellum 3.0.3 [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение Vellum для macOS позволяет авторам и небольшим издательствам с легкостью создавать красивый электронные книги для iBooks, Kindle и Nook.
+Авторы, писатели и небольшие издательства сталкиваются с трудностями создания электронных книг каждый день. Им необходимо сверстать книги так, чтобы они одинаково хорошо читались на экранах популярных электронных устройств, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2022Разработчик: © 2022 180gПоддерживаемая ОС: macOS 10.15.1+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528498   (734456) от 02.02.2022
+
+AirMail Pro 5 v5.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734456.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airmail – это почтовый клиент для операционной системы Mac OS X, поддерживающий сервисы Gmail, Google Apps, iCloud, Yahoo!, AOL и IMAP.
+По словам авторов программы, ее интерфейс «очень легкий, выполнен в минималистическом стиле». При создании дизайна Airmail разработчики вдохновлялись официальным твиттер-клиентом под Mac. Программисты не пошли на поводу у стереотипов (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 2022 Bloop S.R.L.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A76508B788EB0922297A381A90DB87600ADB17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528610   (734455) от 02.02.2022
+
+Джон Банни. Требуется стенографистка / Stenographers Wanted (1912) TVRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734455.jpg" />
+</div>
+
+
+###  Подробнее
+
+В небольшую фирму требуется стенографистка. Пустяковое, казалось бы, дело, но и того сделать не могут. Пришли кандидатки, начали кастинг. Но дело в том что в фирме два владельца-директора и одному нравятся фигуристые брюнетки, а другому миниатюрные блондинки (для стенографии это очень важно). Пока они выбирали-перебирали, пришли их жены, посмотрели на всех этих красоток (   Читать дальше...   )Производство: США, Vitagraph Company of AmericaЖанр: Комедия, короткометражный, немое киноРежиссер: Нет данныхАктеры: Джон Банни, Флора Финч, Чарльз Элдридж, Джулия Свейн Гордон, Лиллиан Уолкер, Кейт Прайс, Феррис Харкорт, Леа БейрдПеревод: Немой с интертитрамиСубтитры: Голландские интертитры, русские встроенные отключаемыеПродолжительность: 00:12:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2E945A3463E9298357AA7200F200BDB6AF26E9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528491   (734454) от 02.02.2022
+
+VA - Valentine's Day 2022 [MP3|320 Kbps] <Pop, Rock, RnB>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Alexander Emil Caiola (1920 - 2016) - американский гитарист, композитор и аранжировщик, охвативший множество музыкальных жанров, включая джаз, кантри, вестерн, рок  и поп. Известен как студийный музыкант и актер. Записал более пятидесяти альбомов, работал с некоторыми из самых больших звезд 20-го века. Гастролировал на регулярной основе со Стивом Лоуренсом.01. The Magnificent Seven (1:58)
-02. Bonanza! (2:20)
-03. The Lonely Rebel (2:37)
-04. The Bounty Hunter (2:25)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, PopПродолжительность: 01:17:51
+01. Counting Crows - Accidentally In Love (From "Shrek 2" Soundtrack)
+02. Imagine Dragons - Not Today
+03. Frank Sinatra, Count Basie and his Orchestra - Fly Me To The Moon (2008 Remastered)
+04. K-Ci & JoJo - All My Life (Radio Edit)(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 02:03:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3FD1B7DAAEEA4B15199E6CCEAFC4709F824A18B
+magnet:?xt=urn:btih:7AD8DE6B3EA62DC2AD94E71509236004C36C24EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,28 +558,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127271   (732172) от 21.04.2017
+###  Публикация: 1528616   (734453) от 02.02.2022
 
-Roger Creager - Surrender (2012) [FLAC|Lossless|tracks + .cue] <Country>
+Диплодок / Diplodocus (1915) DVDRip
 
->>Архив торрентов
->>Архив Музыки
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Turn It Up (3:07)
-02 - Something To Believe In (3:23)
-03 - Dead Love (4:10)
-04 - If You Really Love Me (3:53)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:53
+Один из первых мультфильмов знаменитой студии Джона Брея. Конечно, фильм довольно простенький, можно сказать примитивный, но это история. С этой точки зрения он и интересен. Кстати, этот фильм частенько путают с другим мультраритетом - "Динозавр Герти". Но это совершенно другой фильм, другая студия, другой режиссер. Но путаница с названиями продолжается, (   Читать дальше...   )Производство: США, Bray Studios Inc.Жанр: Рисованная анимация, КороткометражныйРежиссер: Джон Рэндольф БрэйПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:07:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:176741A06A22971B8DA5BF1C4DF323494E6F2BE2
+magnet:?xt=urn:btih:BA7454760F1DFC3DE624B052DBEC7AF7D38F9AF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,25 +584,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127551   (732171) от 21.04.2017
+###  Публикация: 1528474   (734452) от 02.02.2022
 
-Инна Гамазкова и др. | Веселая переменка (2011) [DJVU]
+Кровь в вино / Blood Into Wine (2010) BDRemux [H.264/1080p]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Документалистика и Телепередачи
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732171.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Весёлая переменка» — сборник смешных рассказов о забавных проделках современных мальчишек и девчонок в школе и дома. Создали эту книгу замечательные детские писатели, лауреаты многочисленных премий Тамара Крюкова, Марина Дружинина, Валентин Постников, авторы искромётных сюжетов юмористического журнала «Ералаш» — Илья Ильин, Сергей Степанов, незаурядные прозаики (   Читать дальше...   )Жанр: Детская прозаФормат: DJVU
+Фильм в деталях рассказывает историю вокалиста Tool и A Perfect Circle Мейнарда Джеймса Кинана, заинтересовавшегося виноделием, переехавшего в Аризону, начавшего выращивать там виноград и делать вино, несмотря на скептическое отношение окружающих. Каковы взаимоотношения между его музыкальной карьерой и виноделием? С какими трудностями пришлось столкнуться ему и его (   Читать дальше...   )Производство: США, Semi-Rebellious Films, Twinkle Cash CompanyЖанр: документальныйРежиссер: Райан Пейдж, Кристофер ПомеренкПеревод: двуголосый любительский (Jetvis studio)Субтитры: английские (Blu-ray/PGS/SUP), испанскиеПродолжительность: 01:39:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97266AB867FF44D72C56940E729B07E774686BF8
+magnet:?xt=urn:btih:CCC3F0C627156C6BCA1B332CE3AF7FDFF48062B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,56 +610,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127245   (732170) от 21.04.2017
+###  Публикация: 1528537   (734451) от 02.02.2022
 
-Barock Project - Skyline (2015) 2CD [FLAC|Lossless|tracks + .cue] <Neo-Prog, Classic Rock, Art Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture (3:40)
-02. Tired (9:57)
-03. Skyline (10:20)
-04. The Longest Sigh (7:54)(   Читать дальше...   )Жанр: Neo-Prog, Classic Rock, Art Rock, Symphonic RockПродолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7AE597FC9EE67728EDDD920A72B1F3370DB5172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127374   (732169) от 21.04.2017
-
-RAW Power 1.1 [En]
+Things 3 v3.15.12 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732169.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь  от Apple's RAW  с простыми, легкими в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
-
-Если бы вы любили дополнительные регулировки RAW обработки Aperture, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 апреля 2017Разработчик: Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
+Things — приятный и простой ежедневник. Это идеальный спутник для всех ваших целей в жизни‚ предлагающий оптимальный баланс между простотой использования и мощностью функционала.
+«Things очень выделяется благодаря отличному набору функций и интерфейсу‚ подходящему для планирования дел на любом уровне: Он достаточно легок для создания самых простых списков… но достаточно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 2007-2022 Cultured CodeПоддерживаемая ОС: OS X 10.13 и вышеЯзык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D61020E519DA35542FB1D37CB86F992B980887A2
+magnet:?xt=urn:btih:13C32EE0FE37065743C3B0389B19062861240593
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,25 +637,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127469   (732168) от 21.04.2017
+###  Публикация: 1528555   (734450) от 02.02.2022
 
-Журнал | Овощи и фрукты [Украина] №4 (89) (апрель 2017) [PDF] [Ru, Ua]
+VA - Олег Кваша "Суббота есть суббота" (Лучшие песни 1982 - 1992) (1997) [AAC|~329 Kbps] <Pop>
 
->>Журналы
->>Домоводство (журналы)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал для фермеров, дачников и огородников, которые хотят не только получить прекрасный урожай, но использовать выращивание овощей и фруктов для получения дохода. В журнале – информация о сортовом разнообразии овощных и плодово-ягодных культур, мировые тенденции развития, современные технологии выращивания, хранения и переработки овощей и фруктов, рекомендации по (   Читать дальше...   )Жанр: Сад, огород, дачаФормат: PDF
+01. Алла Пугачёва - Крысолов (3:32)
+02. Михаил Боярский - Горбун (5:07)
+03. Лариса Долина - Бегущая по волнам (4:58)
+04. Тынис Мяги - Воздухоплаватель (3:45)(   Читать дальше...   )Жанр: PopПродолжительность: 00:55:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AC8799B0BCF4AC4CBBB98C14D8D0AF1227BD2A3
+magnet:?xt=urn:btih:06139553A492A3725E03C0FC8F49B93FF2259C3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -591,28 +666,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127435   (732167) от 21.04.2017
+###  Публикация: 1528575   (734449) от 02.02.2022
 
-Back In Time - Back In Time (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
+VA - World Music (Unified Land) (2022) 2CD [MP3|320 Kbps] <World Music>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Sound Of Silence (4:16)
-02. El Condor Pasa (If I Could) (7:09)
-03. All I Wanna Love Is Love (6:57)
-04. Love Is What We Need (5:00)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:36:54
+01. Pietra Montecorvino - Qualcosa arrivera (02:50)
+02. Sounds of Isha - Bhairavi Shatakam (04:16)
+03. Ludovico Einaudi - Taranta (04:23)
+04. Очелье Сороки - Песнь (05:28)(   Читать дальше...   )Жанр: World MusicПродолжительность: 07:42:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76C5CA9C292447E2D7303BE9CF7F115E8917B498
+magnet:?xt=urn:btih:B68DB0484606F3181463C78F286BF7861B2FAD19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -620,114 +695,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127573   (732166) от 21.04.2017
+###  Публикация: 1528516   (734448) от 02.02.2022
 
-Madame - Dance, Madame De ... (1980) LP [MP3|320 Kbps] <Electronic, Disco>
+Союз Каламари / Calamari Union (1985) BDRip [720p] ATV
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dance Madame (Won't Cha Come Outside) (5:16)
-02. Quand Tout Va Par Deux (5:49)
-03. Show Me How Your Feel And Dance (6:14)
-04. Gettin' On With The Thing (9:28)(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: 00:35:16
+Десятка полтора-два суровых парней, каждый из которых носит имя Фрэнк, решают отправиться из Каллио в Эйра, из бедного квартала Хельсинки в южный богатый квартал. Не важно, что подлинная длина маршрута едва ли превышает пару километров. Неискушенные городом первобытные мужики из Великой Степи ступают на самую опасную тропу своей жизни.Производство: Финляндия / Villealfa Filmproduction OyЖанр: КомедияРежиссер: Аки КаурисмякиАктеры: Тимо Еранко, Кари Хейсканен, Асмо Хурула, Сакке Ярвенпаа, Сакари Куосманен, Дэйв Линдхольм, Микко Маттила, Пате Мустаярви, Туомари Нурмио, Пиркка-Пекка ПетелиусПеревод: Профессиональный многоголосый, авторский одноголосыйСубтитры: Русские, английские, финскиеПродолжительность: 01:21:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E225A5A1EA3A5ED004C28B4AF9AF7F046779471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127440   (732165) от 21.04.2017
-
-Kite Compositor —  Animation and prototyping for macOS and iOS 1.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732165.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kite Compositor -  дизайн анимации и прототипирования для Mac. Kite построен непосредственно на основе основной анимации Apple, которая обеспечивает весь тяжелый процесс для создания красивых анимаций интерфейса. Это та же структура, которая используется в iOS, macOS и tvOS для компоновки графики и анимации интерфейса.
-
-Kite предлагает ряд базовых строительных блоков, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20 апреля 2017Разработчик: Rhodes SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B4A7D4E8D739B2EDF58CAC4D1094E50EF36FE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127187   (732164) от 21.04.2017
-
-Arthemis - Blood - Fury - Domination (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal, Heavy Metal, Thrash Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undead 03:51
-02. Black Sun 03:37
-03. Blood Red Sky 04:33
-04. Blistering Eyes 03:31(   Читать дальше...   )Жанр: Power Metal, Heavy Metal, Thrash MetalПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A4AECF874B17E3DD036AA42EE9349D4D6AB397D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127410   (732163) от 21.04.2017
-
-VA - Spectra Of Trance Vol.2 (Mixed by Daniel Kandi) (2017) [FLAC|Lossless|WEB|tracks|image] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ToShuk - Amentia (Original Mix) (6:55)
-02. Andrei Pavlov - Elysium (Original Mix) (7:08)
-03. Hesham Watany - Twisted Thoughts (Original Mix) (5:59)
-04. Gabriel Volt - Night Mode (Original Mix) (7:07)(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive TranceПродолжительность: 05:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3794ECACF701D8F2D317562A5A0FBC878ED500E8
+magnet:?xt=urn:btih:DC6C732DD5A6E541CA453BD8E6A17087940984DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

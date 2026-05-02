@@ -1,3 +1,31 @@
+###  Публикация: 1476489   (1011640) от 11.06.2021
+
+BELOFF [dp] 2021.06.2
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник программ для автоматической установки драйверов в Windows x86-x64.
+
+Приятного времяпрепровождения за компьютером!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD904992240B12A82E5A2E4099692B979F5F6A7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476561   (1011633) от 11.06.2021
 
 Tipard Video Converter Ultimate 10.2.8 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -647,32 +675,6 @@ RogueKiller Anti-Malware можно использовать бесплатно 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8F02362513C5B43E4810765D1886707535A12B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477282   (1011120) от 14.06.2021
-
-Microsoft Visual Studio 2019 Professional 16.10.1 (Offline Cache, Unofficial) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011120.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio 2019 - полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F776954F05592B3E417730B8FE0FC9953CC28EDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

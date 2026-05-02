@@ -1,3 +1,61 @@
+###  Публикация: 1594588   (176686) от 03.12.2022
+
+VA - Female pop rock part  11 Compilation (2022) [MP3|320 Kbps] <Pop Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iyeoka - Simply Falling (Instrumental Mix)
+02. Kaz Hawkins - At Last
+03. Meena Cryle - Try Me
+04. Iyeoka - Broken Hearts Anthem (Walk Away)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA495EC5235C354CDB248517B74998C54C6230E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429307   (176523) от 06.12.2020
+
+VA - Classic Rock Melody (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176523.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рок — одно из самых «живучих» и любимых музыкальных направлений на протяжении нескольких десятков лет. «Монстры» рок-сцены и перспективные новички из поколения в поколение находят своих преданных поклонников, а многие из них и вовсе стали настоящим олицетворением эпохи!001. Stereophonics - This Life Ain't Easy
+002. Pinch Points - Stainless Steel
+003. Dylan Leblanc - I See It In Your Eyes
+004. Ken Hensley - From Time To Time(   Читать дальше...   )Жанр: RockПродолжительность: 06:59:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F5FEFA4049BE427D5F577458800DCA64FEBF34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595062   (176033) от 04.12.2022
 
 Ana Popovic - Compilation (2022) [MP3|320 Kbps] <Rock>
@@ -687,64 +745,6 @@ VA - Rock Dawn: Selected Rockin' Hits (2015) [MP3|320 кб/с] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53451094CED8EFE147232E7AD57360A43F61A440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968170   (158213) от 22.12.2015
-
-VA - Рок Марафон: Выпуск 12 (2015) [MP3|192-320 кб/с] <Rock, Alternative, Progressiv, Classic>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158213.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Outlands - Eclipse
-002. Reenact - Rock Nation
-003. Coin - Time Machine
-004. DVSR - Life and Death(   Читать дальше...   )Жанр: Rock, Alternative, Progressiv, ClassicПродолжительность: 10:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A6F607AA7CD52088B860EC5EF4F7B500765239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433332   (158090) от 20.12.2020
-
-Middle of the Road - 20 Greatest Hits (1971-73) Remaster SMRP, Russia, 2020, De-Noised [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Chirpy Chirpy Cheep Cheep (1971) (02:57)
-02-Tweedle Dee, Tweedle Dum (1971) (03:12)
-03-Yellow River (1971) (02:51)
-04-Sacramento (A Wonderful Town) (1971) (02:56)(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58B9BF035FFEB55E9CF49D48A33527BFD87D7EF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,38 @@
+###  Публикация: 558856   (412029) от 11.10.2012
+
+Jointstereo - Refract The Fears (2012) [FLAC|Lossless]<Death Doom Metal / Atmospheric Rock / Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_412029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immersion   (1:57)
+02. Knowledge   (4:45)
+03. Chains   (6:50)
+04. Senseless   (8:03)
+05. Alone   (4:23)
+06. Ophelia   (6:36)
+07. Oppression   (5:08)
+08. Remember Me  (6:55)
+09. Wonderland   (8:29)
+10. Insomnia   (4:37)Жанр: Death Doom Metal / Atmospheric Rock / Progressive MetalПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412988   (411557) от 02.10.2020
 
 Louna - Начало нового круга (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
@@ -710,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574659   (383761) от 06.09.2022
-
-Т-34 - 3 Albums (2008-2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Новое время [00:03:36]
-02. Секреты [00:03:21]
-03. Гори со мной [00:04:09]
-04. На дне [00:03:52](   Читать дальше...   )Жанр: Punk RockПродолжительность: 3 CD, 01:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76234BF5D23757EC6734E9BB0BF55FC5A23070E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

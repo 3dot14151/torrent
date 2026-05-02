@@ -1,3 +1,32 @@
+###  Публикация: 137923   (644397) от 03.04.2022
+
+Freeland - Cope™ (Jun-08-2009) [FLAC|Lossless]<Electronic, Rock, Electro, Breaks>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You 3:31
+02. Under Control 4:04
+03. Strange Things 4:16
+04. Bring It 5:40(   Читать дальше...   )Жанр: Electronic, Rock, Electro, BreaksПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE1380C4FBDD727D1314947C7905342EDDF102EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292817   (643291) от 31.03.2019
 
 Maceo Plex - Mutant Series (2019) Ellum Audio [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno>
@@ -715,35 +744,6 @@ Breathdub - Modulations (2017) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57FB12840C395431343D83E826EEB4E46DC122C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144421   (627613) от 22.06.2017
-
-Philip Anders - My Kind Of Car (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627613.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Exhaust (06:57)
-2. Disco Balls (07:03)
-3. Happy Feet (06:38)
-4. Transformers (feat Leif Hatfield) (06:00)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 01:11:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F2C9ADD8E78243D013DB582173749F0B37D22C
 ```
 
 https://mybot314.ru/tekegram_catalog/

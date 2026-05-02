@@ -1,3 +1,206 @@
+###  Публикация: 911636   (31903) от 05.01.2025
+
+Eleni Violaris - Rainstriker (2015) [MP3|320 кб/с]<New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Believe in Magic
+02. Rainstriker
+03. The Linden
+04. Ceridwen's Lament(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 01:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C58AF76E20C5FF641C8855864596A7CE1F7BE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055977   (31845) от 06.01.2025
+
+Vangelis - Rosetta (2016) [MP3|320 Kbps] <Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Origins (Arrival)
+02. Starstuff
+03. Infinitude
+04. Exo Genesis(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD9C749752E0A179913136A1796E290B2A51799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771685   (31567) от 08.01.2025
+
+VA - Only the Best Music (2024) [MP3|320 Kbps] <New-Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DePNEIM - Seagull (Remake 2024) (6:15)
+02. Strannik - DQ (4:27)
+03. Cosmview - The Road to Nowhere (10:01)
+04. Yakuro - Seclussion in the Elements (6:57)(   Читать дальше...   )Жанр: New-Age, RelaxПродолжительность: 01:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F704E5595F848810347B963C0CAECEA87BB973D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771686   (31566) от 08.01.2025
+
+VA - Only the Best Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DePNEIM - Seagull (Remake 2024) (6:15)
+02. Strannik - DQ (4:27)
+03. Cosmview - The Road to Nowhere (10:01)
+04. Yakuro - Seclussion in the Elements (6:57)(   Читать дальше...   )Жанр: New-Age, RelaxПродолжительность: 01:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1405EED19F38DADF9CCB5D856A1FE9910EB79036
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772394   (31364) от 10.01.2025
+
+VA - The Orient Collective: Spirits of the East (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Portobello - Reconstruct (7:12)
+02. Tibetania - Jaley Ka (8:12)
+03. Krestovsky - Rishi Tech (6:10)
+04. Florian Gasperini - Emergence (8:31)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823AEC571300B548D4D52C55EA99F39E642ED107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772674   (30868) от 15.01.2025
+
+Volker Bertelmann - The Day of the Jackal (Original Series Soundtrack) (2024) [FLAC|Lossless|WEB-DL|tracks] <Film Scores>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening [00:04:11]
+02. The Jackal [00:01:49]
+03. Pinwheel [00:02:23]
+04. Observation [00:02:49](   Читать дальше...   )Жанр: Film ScoresПродолжительность: 00:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F14529F36CF769C1A8198788DFE55CE5E4A69A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775087   (29923) от 24.01.2025
+
+Armik - Gitano Amor (2025) [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gitano Amor (04:18)
+ 02 - Tears In Paradise (04:56)
+ 03 - Libertad (04:00)
+ 04 - Intro To Donatella (03:05)(   Читать дальше...   )Жанр: Flamenco, Instrumental, GuitarПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53715FF24196061FC5D63069C75A9AEAB3C4B5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1775194   (29793) от 25.01.2025
 
 Angelo Badalamenti – Music From Twin Peaks (1990) [FLAC|Lossless|tracks + .cue] <Soundtrack>
@@ -542,209 +745,6 @@ Alabama - In Pictures (1995) [FLAC|Lossless|tracks + .cue] <Folk, Country Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63E5DEC3DD07F3C92C5E3E8DAC33E8D8FBE5AD3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810838   (16723) от 07.08.2025
-
-VA - Pioneer LaserActive - The Art Of Entertainment - Private Music Sampler (1993) [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Funk / Soul, Blues, Pop, Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taj Mahal / Strut    [0:03:43.07]
-02. A.J. Croce / Which Way Steinway    [0:03:20.50]
-03. Leon Redbone / Lazy River    [0:03:05.08]
-04. Pahinui Brothers / Jealous Guy    [0:04:56.07](   Читать дальше...   )Жанр: Jazz, Rock, Funk / Soul, Blues, Pop, FolkПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CEB543B0FAC28C5B08DEEBE99108E2F24BBF8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799521   (16559) от 28.05.2025
-
-Jean Michel Jarre - The Concert In China (1982) Reissue, 1984, Polydor 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orient Express
-02. Magnetic Fields Part I
-03. Magnetic Fields Part III
-04. Magnetic Fields Part IV(   Читать дальше...   )Жанр: Electronic, Instrumental, New AgeПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A12DF3ACC8A2C1A826ABB1B38FDD9BBAA1C80FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811334   (16325) от 09.08.2025
-
-VA - The Orient Collective: Earth And Sky (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Mateus - Earth and Sky (5:34)
-02. Mikhail Catan - Mirage (Ali Termos) (6:37)
-03. Juantxo Munoz - Aqsa (7:16)
-04. The Hanumans - Azalai (5:38)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C44309419E7D3131752D17C73BD3B4DE9DB5797A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811395   (16231) от 09.08.2025
-
-VA - The Orient Collective: Sacred Earth (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kindrid Souls - Furaha (6:11)
-02. Tibetania - Daybreak (6:51)
-03. Martin Valencia - Jungle Dream (6:33)
-04. Ale Rauen - Nae (6:16)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C66095697C8D2964585101D5F2D31BCC26E709
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811433   (16169) от 09.08.2025
-
-VA - The Orient Collective : Ayahuasca (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Echoes (4:30)
-02. Private Sense - Desert Lights (Jack Essek Remix) (7:35)
-03. Clive Vaz - Gypsy Prince (6:25)
-04. Martin Hiska - Mahoya (4:10)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C56DD8C8EEF6AEA60F179E01D2859BF8401602B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800357   (15844) от 02.06.2025
-
-Ennio Morricone - Morricone Conducts Morricone (2025) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Classical, Symphonic Music>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Strength of the Righteous (From "The Untouchables")
-02. Deborah's Theme (From "Once upon a Time in America")
-03. The Legend of the Pianist (From "The Legend of 1900")
-04. Main Theme (From "H2S")(   Читать дальше...   )Жанр: Soundtrack, Classical, Symphonic MusicПродолжительность: 02:02:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B37C11D6560017E91CEE4A53BF6380CAA148381C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800645   (15354) от 07.06.2025
-
-Blue Flower (Sri Chinmoy, Голубой цветок) - O Beauty-Infinity (О, бесконечная красота) (2008) [FLAC|Lossless|tracks + .cue] <World, Mantras, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manju hashini
-02. Choker kanna/Sabar majhe
-03. Prashna trishal
-04. I have told God(   Читать дальше...   )Жанр: World, Mantras, MeditativeПродолжительность: 00:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:788DA8B6C8024DA684D0F57ED5FF655753C3132A
 ```
 
 https://mybot314.ru/tekegram_catalog/

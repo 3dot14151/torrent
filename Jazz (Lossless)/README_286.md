@@ -1,3 +1,61 @@
+###  Публикация: 1600181   (159073) от 26.12.2022
+
+Clark Terry Quintet - Serenade To A Bus Seat (1957) 2007, Riverside [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Lee [4:05]
+02. Boardwalk [7:02]
+03. Boomerang [6:01]
+04. Digits [4:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0F92F6DAABB6359CD96A1C5E442CEC18C802AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600185   (159043) от 26.12.2022
+
+Toots Thielemans - 100th Birthday Celebration (2022) 2CD, Universal [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159043.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bluesette [2:50]
+02. Stars Fell on Alabama [3:15]
+03. Skylark [2:04](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 02:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D551E22310B657DC3C075B8A9FC22E5B1145EC4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676181   (159029) от 12.11.2023
 
 Leroy Vinnegar, Doug Watkins, Paul Chambers, Ron Carter - Jazz Bassists: Four Classic Albums (1957 - 1961) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -686,64 +744,6 @@ Dalindeo - Kallio (2013) [FLAC|Lossless|tracks + .cue] <Nu Jazz, Rockabilly>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37BA425ADE780475B4E28320E0CC01D955F6DA23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085413   (156967) от 22.12.2016
-
-Hank Crawford & Jimmy McGriff - Crunch Time (1998), Fantasy[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bow Legs [06:35]
- 02.It's All Good [08:14]
- 03.Don't Deceive Me (Please Don't Go) [05:47]
- 04.Sandu [07:14](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763D0F6061F1A1B6B315D92B6403036133164338
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085410   (156951) от 22.12.2016
-
-Casiopea - Dramatic (1993) Village[FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Glory [04:06]
- 02.Fly to the Sun [04:30]
- 03.The Tornado [04:02]
- 04.Shadow of Midnight [04:33](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E8A93C15412916CED0DC2C829BB8C366699F143
 ```
 
 https://mybot314.ru/tekegram_catalog/

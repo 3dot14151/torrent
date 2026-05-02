@@ -1,3 +1,206 @@
+###  Публикация: 1116809   (821174) от 21.03.2017
+
+VA - Beats For Life Vol 1 (20 House Machines) (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Alma Rouge - I Swear (Francesco Baldi Summer Remix) 07:00
+02. Dani B., Nicola Veneziani - Pump The Bass (Alex Barattini Remix) 06:10
+03. Luca Bisori - Do You Wanna Funk 06:57
+04. The Switch - Beautiful Monster (Feat. Johnny B.) 04:35(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:710A49129DF3EAD1BD9FD80B454E91670E6598C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007844   (819902) от 16.04.2016
+
+VA - Progressive House Components (2016) [MP3|320 кб/с] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quadran - Rumour (Thorin Remix) 07:18
+02. Fulagie - Tantrina 05:44
+03. LucianZ - Beautiful Moments (Club Mix) 06:41
+04. Lolo - Travel the World in 10 Minutes (Chris M Progressive Mix) 10:00(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 02:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18A78ABCD29EBB23F93D86A0A6C78ABDDCEAC223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007754   (819900) от 16.04.2016
+
+VA - Venera Music Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aleksey Skvortsov - Into the Unknown 06:45
+02. Alex Greenhouse - Everyday U Need a 5un5hine 09:02
+03. Anton Seim - Pleasure Time (Manchus Remix) 07:00
+04. Argonautica - Counterpoison 05:13(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:07:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D43E96ED01C9977155597B16CC34BE9E0459E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007819   (819899) от 16.04.2016
+
+VA - Urban Dance Battle Nation (2016) [MP3|320 кб/с] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mykel Mars - White Beach (DJ Absinth EDM Edit) 03:20
+02. Tony Wong - Born for EDM (Muscle Mix) 03:37
+03. The Betatesters - Drop That (EDM Cardio Mix) 03:24
+04. Robby Schulz - Breathtaking (EDM Workout Anthem) 04:32(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 02:02:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:256FBBBD829D6636AC224537A1BD9401F41E6A61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007883   (819898) от 16.04.2016
+
+VA - The Best Progressive Hits Vol.5 (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luck Out - Asylum of Love 06:20
+02. Jimmy Roqsta - Eavesdropping of Aliens 05:37
+03. Ivanshee - Clarity 07:21
+04. Haxxy - You Not See, but They Do Exist 10:28(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905F3598057C5474077BFE4DE6BA0B6183896E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007942   (819895) от 16.04.2016
+
+VA - Black Hole House Music 04 - 16 (2016) [MP3|320 кб/с] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bassanova ft Austin Massirman - Fire Escape (Evil Twin Remix) 06:28
+02. Myon & Shane 54 with Haley - Round We Go (Extended Mix) 05:08
+03. Manufactured Superstars ft Iossa - Carry You Home (Jaguar Nights Remix) 06:20
+04. Eve Belle & Brian Laruso - Solace (M-22 Remix) 04:43(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7606067E3DEC189C354CF8E3357BFDAA3C8AF068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117353   (819378) от 22.03.2017
+
+VA - In Between Worlds Vol.2 (2017) [MP3|320 Kbps] <House, Progressive House, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sendoo - Drinks At The Bar  3:42
+02.  Breeze - Spectral Sonic (Extended Mix)  4:06
+03.  Jay Benson - Touch  5:31
+04.  Premeson - Save Me (The Ironix Remix)  5:49(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 01:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15226BDAC63AA02C6B72AB226548D33629B4ABEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1117231   (819373) от 22.03.2017
 
 VA - Forever Chillout Set Collection (2017) [MP3|320 Kbps] <Deep House>
@@ -554,209 +757,6 @@ VA - Civil Dance Vol.1 (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE62342D0E8699A66EE71D61A12CC114EFEF8CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118125   (813495) от 25.03.2017
-
-VA - Miami Music Week 2017 (Deluxe Version)  [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_813495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Clam - Meltdown Joint (Original Mix) 04:20
-02. Clark Morrison - When Love Dies (Clark Morrison Remix) 04:42
-03. Bad Surfer - Take My Body (Dub Mix) 04:23
-04. Autosky - Abstract Love (Original Mix) 05:37(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:934284455AA9041CBA098ABE9A935A0521B52D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008902   (812176) от 20.04.2016
-
-Yuriy From Russia - Distant Love (2016) [MP3|320 кб/с] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812176.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Distant Love (8:40)
- 2.  Glass Bells (7:32)
- 3.  Keep Your Head Down (7:50)
- 4.  Oriental Bazar (7:24)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C7CBF3DB2AD775E5B3C870DB041A0448C2C2675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383508   (811723) от 15.05.2020
-
-VA - Extreme Sports Music Vol 4 (2020) [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hr. Troels - 6Am (Radio Edit)
-02. Phun And Key ft Patrick Metzker - Hang Out (Radio Edit)
-03. Dacos And Lucas Crapanzano - Ronker (Lucas Likes This Radio Cut)
-04. Steve Cypress - Move Ya Body (Edit)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1AEB60482250FDB9A7F6B2A6A69A9E4F73441A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197996   (810368) от 10.01.2018
-
-VA - Best of Nuevadark 2017 (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blufeld - Rakete Zum Mond (You Are My Salvation Remix) (10:46)
-02. Jetride - Sad Piano (Gordey Tsukanov Remix) (6:36)
-03. Mavrek - Burst on Fire (Inspireds Remix) (5:46)
-04. Blufeld - Rakete Zum Mond (Alan Cuevas Remix) (7:15)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F382ECBD729A127B4ECED7A427338C07628BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009351   (810295) от 21.04.2016
-
-VA - Venera Music Vol.5 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filek - All Be O.K. 06:11
-02. FreshwaveZ - Time of Happiness 04:33
-03. Highland Bird - Far 04:09
-04. J.A. Project - Can't Go Back in Time 04:08(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 01:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6762316DCCAA3C16A9FED3E610B03ABE1875A6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198080   (810250) от 10.01.2018
-
-VA - Progressive House Winter Essentials (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marsh  -  Face To Face (Airdraw Intro Remix)  5:42
-02.  LTN  -  Wondering Soul (Original Mix)  5:15
-03.  Blugazer & The Cynic Project  -  Queenscapes (Original Mix)  7:26
-04.  Shingo Nakamura & RNX  -  Oregon (RNX Mix)  5:30(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710A40D3A5FCE895E0EAB1999C0A3B35C8D183B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009415   (810168) от 21.04.2016
-
-VA - EDM Club Tracks Part 3 (2016) [MP3|320 кб/с] <House, Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Combo - Party Hard (Stephan F Remix) (feat. MC Duro) 05:21
-02. Tosch - DJ Banger (Club Version) 06:47
-03. Afrochuck - The Dirty Workout Plan (Extended Cardio Mix) 04:48
-04. Nastyz - Tonight 04:55(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 02:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601E124C43A670B867893620C5098A1E585B9C32
 ```
 
 https://mybot314.ru/tekegram_catalog/

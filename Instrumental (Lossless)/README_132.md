@@ -1,3 +1,119 @@
+###  Публикация: 1780181   (70482) от 17.02.2025
+
+The Creaking Floorboards - They're Waiting out of Sight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eat That! (3:30)
+02.  Intentions (3:52)
+03.  Cougar (3:39)
+04.  Good to Be King (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3408F3EEA6BE6790CEA473C896EAA6FD9B9CBD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780176   (70481) от 17.02.2025
+
+Leo Benmass - Origins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Origins (5:14)
+02.  Let Me love you baby (3:38)
+03.  Voodoo Child (13:18)
+04.  Riders on the storm (4:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923395256A189CD35830C79E58E427A321AF1789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1780231   (70479) от 17.02.2025
+
+Sunny Bleau And The Moons - Passion & Regrets (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Two Glasses of Whiskey On Ice (feat. Sunny Bleau) (3:26)
+02.  You Better Put The Coffee On (feat. Jeff Jensen & Sunny Bleau) (5:40)
+03.  Low-Down-Middle-Aged-Blues (feat. Sunny Bleau) (4:14)
+04.  Peacock Strut (feat. Sunny Bleau) (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530B3510CA20935C42BC8AA530866CE4D0FA7932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781301   (70253) от 22.02.2025
+
+Julian Sas - Miles And Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles And Memories
+02. Midst of Madness
+03. Light Finds A Way
+04. One Step Closer To Hell(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51079D3510D42F0E3DE52178E50E8A16105ED93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782973   (69879) от 03.03.2025
 
 Jimmy Vivino - Gonna Be 2 Of Those Days (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Daddy Mack Blues Band - Doctor's Orders (2025) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73F83ED5856D72E95C2106430D9C44C74FD891DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784401   (69564) от 10.03.2025
-
-Chris Bell & 100% Blues - Blues 2001 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Down Home Cookin' (3:05)
-02.  Ain't Seen Nothing Yet (2:59)
-03.  Elevator to Heaven (9:00)
-04.  Mr. Chill (2:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0808709972266DA5294F7F8885DE2387B026AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785583   (69267) от 16.03.2025
-
-VA - Grandes Del Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  B.B. King - Chains And Things (4:57)
-02.  The Allman Brothers Band - Midnight Rider (2:58)
-03.  J.J. Cale - After Midnight (2:22)
-04.  Gary Moore - Still Got The Blues (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E4355EEC05EF7728AF0DBB5F4EDC922ED72C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785606   (69242) от 16.03.2025
-
-Mike Anton - New Rhythm & Soul 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fading Memories (3:34)
-02.  Dangerous Game (3:07)
-03.  Under the Night Lights (2:54)
-04.  Fading Love (2:51)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EF4196E52612DFA3F5E244FDD355FEB5928555B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785599   (69230) от 16.03.2025
-
-Marco J & The Jaywalkers - Dynamite (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'm Good (3:12)
-02.  Dynamite (2:49)
-03.  Give Me One More Chance (3:05)
-04.  The Best That I Can (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67D7B1F72A8117B9695D9C2AE75B81E9D98A3714
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 519882   (633881) от 08.07.2012
+
+VA - Club 86 Recordings Ibiza 2012 (2012) [MP3|320 кб/с]<House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcuda - Musicbox (Original Mix)
+02. Johny S - Let Your Soul Fly (Original Mix)
+03. Steve Lade - Bongo Drums (Chantola Remix)
+04. Neo Neo - The Way Of The Cobra (Original Mix)
+05. Aurinkovuo - Sunday Massive (Original Mix)
+06. Timothy Night - Saft (Original Mix)
+07. Tallzzy - Do Not Disturb It (Original Mix)
+08. Kajis & Lade - Frisco (Klaukenberg Remix)
+09. Burdan - Back & Forth (Original Mix)
+10. Saarre - Wood & Pecker (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA78E9D4EA616EC5550D89B061A6B8558488351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519097   (633880) от 08.07.2012
+
+VA - Passion Paradise (2012) [MP3|320 кб/с]<Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Bay & Tiff Lacey - Moon In The Dark (Original Mix) 05:47
+02. Daniel Ocean & Photographer - Underground (Original Mix) 08:12
+03. Philip Mayer - Bright Eclipse (Original Mix) 07:42
+04. Dave202 - Purple Drops (Radio Mix) 04:13
+05. Aleksey Zhahin - Catching The Time 09:03
+06. Carl Fath - Into The Vortex! 07:11
+07. Digital X - Odyssey (Original Mix) 05:50
+08. Tritonal Feat Jeza - Can't Keep It In (Tritonal Club Mix) 06:40
+09. Daniel Kandi - Insert Generic Title (Daniel Kandi Vs Dennis Pedersen Remix) 06:04
+10. Boxer - Fathom (Ltn Remix) 07:01(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 03:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E33B1E0FD84032B9AAC13DF55FB881C0ED8079
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908291   (633858) от 14.06.2015
 
 VA - Beatport Top 100 Downloads Summer (2015) [MP3|320 кб/с]<House, Electro, Progressive, Deep House, Tech House, Techno>
@@ -705,64 +775,6 @@ VA - Beatport Synth Electronic: Sound Pack #509 (2022) [MP3|320 Kbps] <Electroni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F70EBB401AA685581CF75658662B6242C6C2BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1543441   (629666) от 11.04.2022
-
-VA - Beatport Trance: Electro Sound Pack #508 (2022) [MP3|320 Kbps] <Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629666.jpg" />
-</div>
-
-
-###  Подробнее
-
-Весеннее настроение, первые лучи нежного солнца, которые согревают своей нежностью и обволакивают теплом душу. Всё это наталкивает творческих людей на разнообразные творческие идеи и находящие своё выражение в музыкальном творчестве. Тому примером будет 508-й релиз актуальной музыки в стиле Trance с портала Beatport.001. Philippe El Sisi - Lights
-002. Chris Johnson - Locomotion
-003. Rubens Hard - First Feeling
-004. Rino Da Silva - Nirvana(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88B2AB23FA6A3E23F74F1D8E36B20FB1FC92C953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229115   (629558) от 04.06.2018
-
-VA - Club Dance Ambience Vol.150 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629558.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adam K & Soha feat. Matthew Steeper & HALIENE - Twilight vs Breathe  (Club Edit)
-002. al l bo & Pavel Gerasimoff - Where Is Your Prince (Pavel Gerasimoff Remix)
-003. al l bo - Falling (Artful Fox Remix)
-004. al l bo - The Fuel Of My Life (Alexdi & The Soap Opera Remix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 08:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:751B2807111B022A3300DA76C58BF344B97398C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1706054   (113674) от 12.03.2024
+
+ВИА «Синяя птица» - Подземный переход (1986) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Подземный переход. (В. Шаинский - С. Алиханов, А. Жигарев)
+02 - Когда-нибудь. (М. Минков - А. Макаревич)
+03 - Здравствуй, как ты живешь? (Т. Ефимов - С. Осиашвили)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7D25F78F67B5744FF1B35E8441ABFB0A9706BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706322   (113670) от 12.03.2024
+
+VA - Игра в четыре руки. Песни Аркадия Укупника (1989) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01-Эй, гражданка (В. Гин) – Ирина Понаровская
+02-Пустынный берег (В. Дюнин) – Аркадий Укупник
+03-Ошибка (И. Шаферан) – Алина Витебская(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C57324459DB32E1B7E0B60D2FAE394596B7F6D6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706045   (113669) от 12.03.2024
+
+The Rolling Stones - Let It Bleed (Пусть льется кровь) (1969) 1992 [FLAC 24/192|Lossless|tracks] <Rock, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113669.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Дай мне прибежище.
+02 - Тщетная любовь.
+03 - Деревенщина.(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DABBDA1C30A4E68942C9FF76B67A1242FFC5F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706317   (113660) от 12.03.2024
+
+VA - Вот какая любовь. Песни Романа Майорова (1989) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113660.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Вот какая любовь (М. Рябинин) — Ирина Уварова и Николай Караченцов
+02. Город (Я. Гальперин) — Ансамбль «Пламя»
+03. Твой портрет (Л. Волков) — Юрий Охочинский(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65C69B8CF1B593D0C3288F40138AF7AC02CBA80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706168   (113655) от 12.03.2024
+
+VA - Rock Aid Armenia. The Earthquake Album (1990) 1992 [FLAC 24/192|Lossless|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1.
+01. Smoke On The Water'90. (Blackmore-Glover-Lord-Paice)
+Rock Aid Armenia - 4.05
+02. Run To The Hills. (Iron Maiden)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAF8C756B44B0BEA471600D6EE542F604D8A940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706403   (113645) от 12.03.2024
+
+S.O.D - Speak English or Die (1985) Reissue, 2016, Megaforce Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Hardcore, Speed Metal, Thrash>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113645.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 March Of The S.O.D.
+A2 Sargeant D & The S.O.D.
+A3 Kill Yourself
+A4 Milano Mosh(   Читать дальше...   )Жанр: Hardcore, Speed Metal, ThrashПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F1C0DC43523F75025E56E39A7FF97DE4443737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706377   (113642) от 12.03.2024
 
 S.O.D - Speak English or Die (1985) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thrash, Hardcore>
@@ -571,180 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA63FB4BC55C24217C33839E48C65BE7D452F97F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707344   (113351) от 16.03.2024
-
-Геннадий Белов - Геннадий Белов (1977) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Травы, травы (В.Шаинский - И.Юшин)
-02. Шумят хлеба (А.Пахмутова - С.Гребенников)
-03. Черноглазая казачка (М.Блантер - И.Сельвинский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F1EEA7EAD75F272EFAFCAC28FA6141FACE8065
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707339   (113345) от 16.03.2024
-
-Вячеслав Добрынин - Колдовское озеро (1990) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Колдовское озеро (М. Рябинин) — 2.46
-02. Вспомни (С. Осиашвили) — 4.04
-03. Нежная — 3.52(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFAEEA98AEB7D6312EF2C92DBA81D3B981178052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707000   (113342) от 16.03.2024
-
-Владимир Асмолов - Славянский Базар (1991) [FLAC 24/192|Lossless|tracks] <Chanson, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Славянский Базар — 3 12
-2. Ляна — 4.50
-3. Неловкое признание — 3.40(   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF550A794EADD651CA2985309D154B5BB59DF04D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707118   (113339) от 16.03.2024
-
-Владимир Кузьмин - Пока не пришел понедельник (1989) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Пока не пришел понедельник.
-02 - Странные дни.
-03 - Симона.(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCAF74FD1A40A4EE01256B3C0D299EE5FC3E61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707116   (113337) от 16.03.2024
-
-VA - Вас поздравляют звёзды! (1990) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113337.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Рождество (А. Буйнов — И. Резник)
-Алла Пугачева, Руслан Горобец, Батыр Шукенов, Александр Барыкин, Александр Буйнов
-02. Ломбаба (музыка традиционная — С. Минаев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941B09A9774DCE39C45A8297CC80046CE118DF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707212   (113328) от 16.03.2024
-
-Elan - School Party (1986) [FLAC 16/192|Lossless|tracks] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113328.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vanilla Shanilla
-A2 Good And Bad
-A3 School Party
-A4 Pearl In The Shell(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F99B3F25BC47B13EAB7837A9EF323E9B7548D8F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,26 +1,22 @@
-###  Публикация: 474797   (97916) от 29.03.2012
+###  Публикация: 1822340   (100760) от 06.10.2025
 
-[Wallpapers] Nature HD Wallpapers Pack 3
+Магия четырёх стихий / Ein Madchen namens Willow / A Girl Named Willow (2025) WEB-DL [H.264/1080p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature HD Wallpapers Pack 3 
-Название:  Nature HD Wallpapers Pack 3 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 4599х2861
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Юная Ива получает в наследство от бабушки домик в заколдованном лесу и магический дар — она должна стать хранительницей стихии огня. Вместе со своим верным помощником огненным лисом она отправляется на поиски чародеек, отвечающих за стихии воды, земли и воздуха. Только объединив свои силы, они могут спасти волшебный мир.Производство: Германия / Alias Film+Sprachtransfer, Constantin Film, SamFilm GmbHЖанр: фэнтези, семейный, приключенияРежиссер: Майк МарзукАктеры: Ава Петш, Кора Трубе, Анна фон Зельд, Мари Эмбер Оземерен Тёлле, Голо Ойлер, Диана Амфт, Макс Гирман, Сибилле Каноника, Кристоф Биттенауэр, Том ХансльмайерПеревод: Дублированный (Paragraph Media)Язык озвучки: РусскийСубтитры: Русские (Forced)Продолжительность: 01:35:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8830FFDDCEA22B4F489C4AADB7652AA333E21ADF
+magnet:?xt=urn:btih:BD4CD0C496C3B3339F3E8B89E1484AA160550E29
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -28,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475223   (97915) от 29.03.2012
+###  Публикация: 1822386   (100759) от 06.10.2025
 
-[Wallpapers] Computer Desktop Wallpapers Collection (30.03.12)
+Цветок 1001 ночи / Il fiore delle mille e una notte (1974) BDRip [H.264]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+В этом фильме, вдохновлённом древними эротическими и волшебными сказками Ближнего Востока, центральный сюжет посвящён застенчивому юноше, который влюбляется в прекрасную девушку. Но из-за глупой ошибки, судьба их разлучает. И юноша отправляется на поиски, чтобы найти возлюбленную и освободить её от демонов... Фильм состоит из 15 частей, содержащих отдельные истории (   Читать дальше...   )Производство: Италия, Франция / Les Productions Artistes Associes, Produzioni Europee Associati (PEA)Жанр: фэнтези, драма, мелодрама, комедия, историяРежиссер: Пьер Паоло ПазолиниАктеры: Нинетто Даволи, Франко Читти, Тесса Буше, Маргарет Клементи, Инес Пеллегрини, Франко Мерли, Франкелис Ноэль, Али Абдулла, Кристиан Алигни, Жанна Гоффин МатьеПеревод: профессиональный многоголосый (R5), авторский (Сергей Кузнецов)Язык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 02:10:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5EE06918A46443E7DE257A548113CE252D0224B
+magnet:?xt=urn:btih:F7CF0EA00F6BD5232DAB3AEEFA7DFE5B39390D6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,29 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474305   (97911) от 29.03.2012
+###  Публикация: 1822387   (100758) от 06.10.2025
 
-Tort - Tort (2012) [WavPack|Lossless]<Sludge Metal/Thrash Metal>
+Epitaph - Don't Let The Gray Hair Fool You (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Valhalla (6:15)
-02. Cannibals Of Ma'arrat (6:09)
-03. Gnosis Of The Dead (13:33)
-04. Fire Rose Vampira (3:58)
-05. Earl Estruch (11:23)Жанр: Sludge Metal/Thrash MetalПродолжительность: 00:41:17
+01.  One Heart (6:16)
+02.  Cold Light Of Day (5:28)
+03.  Don't Be Afraid (7:06)
+04.  Don't Let The Gray Hair Fool You (4:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:33
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0D79E0EF9CB1C97A3E2C001C40910B87B8D2A95D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,25 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474950   (97910) от 29.03.2012
+###  Публикация: 1822390   (100757) от 06.10.2025
 
-Мишель Лебрюн | Смерть молчит [2007] [MP3]
+Mystic Majesty - Ad Maiora Semper (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97910.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Франсуа Малле ревнует свою жену к своему боссу и замышляет его убийство. А совершив задуманное, понимает, что убил кого-то другого, совершенно ему незнакомого. "Что я наделал? Это невероятно - я был способен убить человека? И вдобавок ещё ошибся! Убил кого-то, кого в жизни не видел, и только потому, что тот был одет в плащ из верблюжьей шерсти? Человека, который мог быть отцом семейства, который... Что за идиотизм! Не остается ничего, кроме как..."2007Жанр: Детектив
+01.  Mastermind (4:23)
+02.  Missing Pieces (2:38)
+03.  Sea of Snakes (4:58)
+04.  Midnight Sun (4:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6E3BA100261231C136874541A70289EB4A2FC5F
+magnet:?xt=urn:btih:89FBF4CAF8725A3CAA1772C7183701CAEBC4864E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -110,25 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475226   (97907) от 29.03.2012
+###  Публикация: 1822389   (100756) от 06.10.2025
 
-[Wallpapers] Interer Wallpaper (30.03.12)
+Шрифты - MyFonts - Analogy [OTF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Analogy — это современная интерпретация непреходящей элегантности, присущей шрифту Николаса Дженсона XV века. Основанный на гуманистических формах 1470-х годов, но при этом усовершенствованный для восприятия современности, Analogy сочетает в себе историческую теплоту и точность, предлагая текстовый шрифт, который одновременно легко читается и изыскан. Его каллиграфическое (   Читать дальше...   )Формат: OTFПоддержка кириллицы: Отсутствует
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EEB1AECC1549CD74285FAAFCD72DFF6B8A60457
+magnet:?xt=urn:btih:4969622E2D096192E3F716DD4EC54344DF7CB91A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,25 +134,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475225   (97906) от 29.03.2012
+###  Публикация: 1822394   (100755) от 06.10.2025
 
-[Wallpapers] Films Wallpapers (30.03.12)
+Remigio Ducros and Luciano Simoncini - America amore amaro (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01.  Bus Stop (2:37)
+02.  Mawil (2:42)
+03.  Subways (2:19)
+04.  Magnolia Boulevard (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:31:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4FAACB8EF9869C7CA7F47548FBC3C291723155DE
+magnet:?xt=urn:btih:0C78BE1AE692A1614EE2373487AA20CD2E69BE55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,34 +163,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474273   (97905) от 28.03.2012
+###  Публикация: 1822393   (100754) от 06.10.2025
 
-VA - Звезды Кавказа. Морское рандеву (2007) [MP3|224 kbps]<Pop>
+3D print - MyMiniFactory - 55mm - Ghost Strikers - 384198 [STL]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Материалы для мультимедиа и дизайна
+>>3D модели и материалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Группа Домбай - Кавказ
-002. Альберт Тлячев - Волны Черного моря
-003. Al’bina - Горный цветок
-004. Хардай - Ромашка
-005. Аza - Алые паруса
-006. Мардас Дауров - Хабез – Страна чудес
-007. Эльза - Желтая луна
-008. Marat - Сделай погромче
-009. Шокко - Малиновое лето
-010. Дени - Малика(   Читать дальше...   )2007Жанр: PopПродолжительность: 06:16:07
+Вооружённые передовым оружием и облачённые в устрашающую броню, «Ghost Strikers» неустанно стремятся к правосудию. Известные своей безжалостной эффективностью и призрачным присутствием, эти каратели вселяют страх в сердца преступников и бандитов.Формат: STL
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E97AB17EDB818EA2C5BDE7199F7495F37D475139
+magnet:?xt=urn:btih:55D035E4D6E96999F09530BB670E9413A96AB79F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,25 +189,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474666   (97904) от 28.03.2012
+###  Публикация: 1822220   (100753) от 06.10.2025
 
-[Wallpapers] Sexy Girls Pack (28.03.12)
+Звёзды в Джунглях (2025) WEB-DL [H.264/720p] (сезон 2, выпуск 1-2 из 15)
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+В новом 2 сезоне звёздные участники будут выживать на Карибах в Доминиканской республике. Хотя главный фактор выживания вовсе не в месте, а в тех, кто будет рядом. В новом сезоне примут участие как новички реалити, так и те, кто уже прошёл боевое крещение и хитро улыбается при слове коалиция. Участники проходят различные испытания, в которых зарабатывают монеты на (   Читать дальше...   )Телекомпания: Россия, "План Б Медиа" по заказу ТНТ-ТелесетьЖанр: Реалити-шоуУчастники: Ася Резник, Ирина Пинчук, Аристарх Венес, Вадим Дубровин, Сергей Романович, Маша Малиновская, Екатерина Шкуро, Джефф Монсон, Альбина Кабалина, Ян ДиланСубтитры: ОтсутствуютПродолжительность: ~02:59:53 выпуск
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56BA37DF89EC8616EB1181609AE7999CEEBCAEED
+magnet:?xt=urn:btih:5CBD410E8F161FA5CC94513EF25EC18950310409
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -223,34 +215,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474334   (97903) от 28.03.2012
+###  Публикация: 1822399   (100752) от 06.10.2025
 
-VA - Авторитетный Хит 11 (2012) [MP3|256 kbps]<Шансон>
+Richard D. Johnson - Warm Embrace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 
->>Неофициальные сборники
->>Шансон, Авторская и Военная песня (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. А. Дюмин - Журавли
-02. Кабриолет - А Душа Моя
-03. Г. Лепс И А. Розенбаум - Ша, Братва
-04. Кабриолет - А Мне Не Больно
-05. А. Дюмин - Цветы Увяли
-06. А. Маршал - Поплакала
-07. С. Трофимов - Не Ищи
-08. Жека - Моя Любовь
-09. Р. Рай - Отпускала В Небо
-10. С. Трофимов - Нет, Я Не Стал(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 06:26:21
+01.  East of the Sun (3:58)
+02.  Warm Embrace (4:45)
+03.  Moonlight In Vermont (4:28)
+04.  Ruby My Dear (7:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C1ABBA223963F09B35DF02877770BD296D4138D
+magnet:?xt=urn:btih:3CB161B0E6AD51560477C8D27927E832A7EACF83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,25 +244,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474667   (97902) от 28.03.2012
+###  Публикация: 1822404   (100751) от 06.10.2025
 
-[Wallpapers] Wallpapers Sexy Girls Pack (28.03.12)
+Riot Jazz Brass Band - Ginja (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01.  Ginja (3:00)
+02.  Paradox (3:43)
+03.  Frisky (3:00)
+04.  Soundwave (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3ED2519E57E0F88433D1D604B6BC1426BD0474CE
+magnet:?xt=urn:btih:CE841E62C6303B2C511D7C99D1F6E6FFDBB887E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,34 +273,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474240   (97901) от 28.03.2012
+###  Публикация: 1822409   (100750) от 06.10.2025
 
-VA - Авто Дискотека Радио Record 50/50 (2012) [MP3|192 kbps]<Club | Dance>
+Sam Siefert Ensemble Project - Realization (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Анна Седокова - Love U (DJ Vengerov & DJ Nick Nova radio mix)
-02. Calvin Harris - Flashback (Dj XM remix)
-03. Fontano - Облака (DUDKIN extended mix)
-04. Leventina - Freak It Out (original mix)
-05. Карина Крит feat. Chris Parker - Мое сердце (Radio edit)
-06. Coldplay - Paradise (Fedde Le Grand remix)
-07. Вера Брежнева - Реальная жизнь (DJ Vengerov remix)
-08. Sander Van Doorn - Outro (Edx's festival mix)
-09. Винтаж - Амстердам (feat. Владимир Пресняков)
-10. Lmfao - Sexy And I Know It (Stanislav Shik & Denis Rook remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 08:30:09
+01.  Mirrored (3:03)
+02.  Despite Everything (5:59)
+03.  Facing the Opposite (5:20)
+04.  March for Peace (8:26)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:57:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D52224C542000D56B2F1C1A910DA1319C0F1844
+magnet:?xt=urn:btih:CA8FEDD59FBE479B87A85B9269E6ACD31997FE07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,25 +302,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 473476   (97899) от 28.03.2012
+###  Публикация: 1822412   (100749) от 06.10.2025
 
-Возвращение Дона Камилло / Le retour de Don Camillo (1953) [1080p] BDRemux
+Schlussakkord - Drehbuch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Во втором фильме о пасторе доне Камилло, герой возвращается в родной городок, после вынужденной ссылки за плохое поведение.Жанр: комедияРежиссер: Жюльен ДювивьеАктеры: Фернандель, Джино Черви, Эдуард Дельмон, Паоло Стоппа, Александр Риньо, Томи Бурдель, Леда Глория, Чарльз Виссьер, Claudy Chapeland, Тони ЖакоПеревод: Многоголосый закадровыйПродолжительность: 01:50:37
+01.  Intro (2:11)
+02.  Wir sind wieder da (3:34)
+03.  Kein Weg zu lang (3:03)
+04.  Für immer verbunden (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F499FBB4CADD7309F85FB71543C72940A73784D7
+magnet:?xt=urn:btih:521A684D362C45934A71091E23E765450F85DB2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,26 +331,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474298   (97898) от 28.03.2012
+###  Публикация: 1822414   (100748) от 06.10.2025
 
-Альфред Мейсон | Убийство в «Розовом павильоне» [2001] [MP3]
+Smokey Brights - Dashboard Heat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100748.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роман
-Оригинальное название:2001Жанр: Детектив
+01.  Northgate Way (4:05)
+02.  Never Hurts Never Mind (4:07)
+03.  All in Who You Know (3:32)
+04.  Peace Sign Pentagram (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6DC6674697496914D232C7DE9A983EEF202076D
+magnet:?xt=urn:btih:92E0F5D9504FF523A789B8519238CD47EFEE9DED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,25 +360,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 473760   (97897) от 28.03.2012
+###  Публикация: 1822416   (100747) от 06.10.2025
 
-Зазубренное лезвие / Jagged Edge (1985) DVD5
+Дополнения - Blender Addons Bundle 1 October 2025 [ZIP]
 
->>нет
->>нет
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чувства лишают нас объективности и ведут к катастрофе там, где нужен исключительно холодный ум. Женщина-адвокат Тедди Варне забыла эту простую истину, влюбившись в своего клиента, богача Джека Форрестера, обвиненного в убийстве жены. Чем сильнее ее страсть к кажущемуся таким искренным и честным парнем Джеку, тем больше у суда поводов сомневаться в его невиновности. Любовь слепа, но даже одурманенная ею Тедди не в силах закрыть глаза на копящиеся странности в деле ее очаровательного клиента. Напряжение нарастает с каждой минутой. Так кто же он, этот Джек Форрестер — жертва необоснованных подозрений, или ловкий и хитрый убийца, пытающийся обвести всех вокруг пальца?..Жанр: Триллер, ДрамаРежиссер: Ричард МаркандАктеры: Джефф Бриджес, Глен Клоуз, Ленс Хенриксен, Питер Койот, Роберт Лоджиа, Джон Денер, Карен Остин, Гай Бойд, Маршалл Кольт, Бен Хаммер, Луис Джамбальво, Сенфорд Дженсен, Джеймс Карен, Ли Тейлор-Янг, Уильям Аллен ЯнгПеревод: Многоголосый закадровыйЯзык субтитров: английскиеПродолжительность: 01:44:19
+Пакет дополнений для Blender на 1 октября 2025 г.Формат: ZIP
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:062E752B741A81597950CD1F3B7D93AF3E46900E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,25 +386,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474018   (97895) от 28.03.2012
+###  Публикация: 1822418   (100746) от 06.10.2025
 
-Украсть «Голландца» / Rembrandt (2003) DVD5
+Sophia Oster Quartet - Praise (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мик и его сыновья Том и Кеннет - потомственная династия мелких преступников. Но сейчас им предстоит куда более важное дело. Их попросили украсть картину из музея. Операция прошла успешно, только вот украли они не совсем то, что нужно. В их руках оказалась уникальная вещь - единственная в Дании картина Рембрандта стоимостью в 15 миллионов долларов, которую совершенно (   Читать дальше...   )Производство: ДанияЖанр: Боевик, комедия, криминалПеревод: Профессиональный (двухголосый, закадровый)Субтитры: РусскиеФормат: DVD5Продолжительность: 01:43:29
+01.  Praise / Strong Woman (9:35)
+02.  Freedom Song (4:54)
+03.  Woodstock / Go (7:48)
+04.  No Mind (6:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:09
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1137566A863DA2F584A29CB23FBBC3CBD3BC9DBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,25 +415,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474367   (97894) от 28.03.2012
+###  Публикация: 1822419   (100745) от 06.10.2025
 
-Дикий Юг. Дикий Юг встречается с Севером [2 сери] / Wild South. Wild South Goes North (1990-1999) IPTVRip
+Soul City Collective - Soul City Collective (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:48
+01.  Soul Brass (3:22)
+02.  CITY COLLECTIVE (3:10)
+03.  Piano Strumming (3:11)
+04.  Da Simplicity (3:03)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:21:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A15A3C43A8E941344AECE9421EFE306BF86CEDB9
+magnet:?xt=urn:btih:B77F81635E1B112F2C6D6E1B8139BCDDC3207DEA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,34 +444,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 473986   (97893) от 28.03.2012
+###  Публикация: 1822420   (100744) от 06.10.2025
 
-The Real McKenzies - Westwinds (2012) [MP3|320 кб/с]<Folk-Punk-Rock>
+Цветок 1001 ночи / Il fiore delle mille e una notte (1974) BDRip [H.264/720p]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Tempest (04:08)
-02. Fool's Road (02:52)
-03. I Do What I Want (03:17)
-04. The Message (03:53)
-05. My Luck Is So Bad (02:59)
-06. The Massacre of Glencoe (02:40)
-07. The Bluenose (02:56)
-08. Burnout (02:36)
-09. Halloween (03:39)
-10. Hi Lily (02:56)(   Читать дальше...   )Жанр: Folk-Punk-RockПродолжительность: 00:43:59
+В этом фильме, вдохновлённом древними эротическими и волшебными сказками Ближнего Востока, центральный сюжет посвящён застенчивому юноше, который влюбляется в прекрасную девушку. Но из-за глупой ошибки, судьба их разлучает. И юноша отправляется на поиски, чтобы найти возлюбленную и освободить её от демонов... Фильм состоит из 15 частей, содержащих отдельные истории (   Читать дальше...   )Производство: Италия, Франция / Les Productions Artistes Associes, Produzioni Europee Associati (PEA)Жанр: фэнтези, драма, мелодрама, комедия, историяРежиссер: Пьер Паоло ПазолиниАктеры: Нинетто Даволи, Франко Читти, Тесса Буше, Маргарет Клементи, Инес Пеллегрини, Франко Мерли, Франкелис Ноэль, Али Абдулла, Кристиан Алигни, Жанна Гоффин МатьеПеревод: профессиональный многоголосый (R5), авторский (Сергей Кузнецов)Язык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 02:10:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F28BFEB8EE9BEB0FD52078C50F854FB30A28EB5C
+magnet:?xt=urn:btih:1595BC7A574BB7FF97E75C1961A2A4AEA234B3FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -485,32 +470,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474458   (97892) от 28.03.2012
+###  Публикация: 1822422   (100743) от 06.10.2025
 
-Angel Witch - As Above, So Below (2012) [APE|Lossless]<Heavy Metal>
+Stella Anning - Yellow Brick Veneer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dead Sea Scrolls (6:00)
-02. Into The Dark (5:11)
-03. Geburah (5:24)
-04. The Horla (7:30)
-05. Witching Hour (5:50)
-06. Upon This Cord (6:33)
-07. Guillotine (6:54)
-08. Brainwashed (7:08)Жанр: Heavy MetalПродолжительность: 00:50:29
+01.  Yellow Brick Veneer (6:10)
+02.  Don't Want to Follow You (4:48)
+03.  Watching You as You Fall (4:55)
+04.  Travels (6:19)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:40
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:78CD0D84D1792CEA0D71AE665D84BFE769FF0D96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -518,25 +499,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474670   (97891) от 28.03.2012
+###  Публикация: 298053   (100742) от 06.10.2025
 
-[Wallpapers] Sexy Girls Pack (29.03.12)
+Шрифты - Коллекция шрифтов для Photoshop [TTF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>След.
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Уникальная коллекция из 9 наборов шрифтов самых различных направлений. Вы без труда сможете подобрать и шрифт для особенных случаев, и универсальный шрифт на все случаи жизни. В сборник входит множество шрифтов от пиксельных и арабских до шрифтов в виде льда и огня.Формат: TTFПоддержка кириллицы: Частичная
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7DF405C2BD9B3B5BD241575EC9CB0FDE2E79A9F0
+magnet:?xt=urn:btih:1677BD523C8F935EEF8C5FD5389CBA386525E6A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,25 +525,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474664   (97890) от 28.03.2012
+###  Публикация: 1822425   (100741) от 06.10.2025
 
-[Wallpapers] Best HD Wallpapers Pack (28.03.12)
+The Scott Rednor Band - Where You Wanna Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100741.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01.  It's Your Life (4:03)
+02.  Where You Wanna Go (4:17)
+03.  Turn Back Time (4:01)
+04.  Come Home (3:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F7A86102B4A5CBC829B9ADC5AA9E455E916B20B
+magnet:?xt=urn:btih:39A97783A3A735CA706D5A990D88EC310B7DE453
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -570,31 +554,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474364   (97885) от 28.03.2012
+###  Публикация: 1822430   (100740) от 06.10.2025
 
-Mythological Cold Towers - Immemorial (2011) [FLAC|Lossless]<Death Doom Metal>
+Что? Где? Когда? (2025) HDTVRip [H.264/720p] (Осеняя серия: игра 1 из 4)
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97885.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100740.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lost Path to Ma Noa  (4:01)
-02. Akakor (6:34)
-03. Enter the Halls of Petrous Power (7:38)
-04. The Shrines of Ibez (5:10)
-05. Like an ode forged in immemorial Eras (5:18)
-06. The Fallen Race (9:09)
-07. Immemorial (5:23)Жанр: Death Doom MetalПродолжительность: 00:43:13
+Интеллектуальная телевизионная игра, в которой команда из шести игроков, называемых «знатоками», ищет правильный ответ на любой заданный им вопрос при помощи мозгового штурма в течение одной минуты. За правильный ответ очко получает команда «знатоков», а если они дают неправильный ответ, очко начисляется их противникам. Побеждает сторона, первой набравшая шесть очков.Телекомпания: Первый HDЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:13:59
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D63AD718817DCA7B384FD6614E1644031194F9D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,25 +580,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474466   (97882) от 28.03.2012
+###  Публикация: 1822435   (100739) от 06.10.2025
 
-Газета | Сад, огород - кормилец и лекарь №6 (март 2012) [PDF]
+Venna - Malik (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
 
->>Журналы
->>Домоводство (журналы)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97882.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100739.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить загородный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки.Формат: PDF
+01.  Yoshi’ Intro (0:40)
+02.  Numero Uno (4:13)
+03.  Myself (feat. Jorja Smith) (2:59)
+04.  Prophet (4:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91AF394EFD2F939F1BCD8EFCF28C37856371809D
+magnet:?xt=urn:btih:8A82C3E13681320C47998BBF2A067A1E39023D1E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -628,28 +609,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474703   (97881) от 28.03.2012
+###  Публикация: 1822219   (100738) от 06.10.2025
 
-Журнал | Домовичок №1 Здороье на блюде [2011] [PDF]
+The Red Jumpsuit Apparatus - X’s For Eyes (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alt. Rock, Mall Emo>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97881.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100738.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Возможно, вы уже что-то слышали о системе подсчета килокалорий, которая сейчас очень популярна во всем мире. А может, вы впервые сталкиваетесь с этой модной методикой. В любом случае вам потребуется более подробная информация о ней.
-Вы знаете, что пища для нас служит не только удовольствием, она еще предназначена поставлять энергию в наш организм. Энергия нужна телу на все движения и на процессы жизнедеятельности.
-Чем больше мы едим, тем больше калорий запасаются в жировых клетках. И мы стремительно полнеем.
-Решить эту проблему можно только двумя путями: либо питаться на меньшее количество килокалорий, либо стараться их побольше расходовать. Серьезный расход энергии вам могут обеспечить только интенсивные занятия спортом, желательно не менее 3-4 раз в неделю хотя бы по 45 минут. А в остальные дни все равно придется следить за калорийностью пищи.2011Формат: PDF
+01. - Always The King (feat. Kellin Quinn) (3:15)
+02. - Purple Halo (3:38)
+03. - Perfection (3:19)
+04. - X’s For Eyes (2:56)(   Читать дальше...   )Жанр: Alt. Rock, Mall EmoПродолжительность: 00:36:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2A42AD696BDC8931F244AD6AAE2848CCEA5C9C8
+magnet:?xt=urn:btih:53E41E1E5726D02E5139A356545E1A913C9B039A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,25 +638,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474847   (97880) от 28.03.2012
+###  Публикация: 1822445   (100737) от 06.10.2025
 
-Каникулы в Мексике - 2. Выпуск №18 (2012.03.28) SATRip
+Vera Norea - Daughter of Eve (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100737.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:47:35
+01.  The Second Ark (4:17)
+02.  Heartsick (3:13)
+03.  Stumble Into Town (4:25)
+04.  Just Keep Playing (4:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E22082D56FDA829E1FEC185C4C276C1C9FB8105
+magnet:?xt=urn:btih:763E5BC0634603B3F0E24EF674C8F0F1B1EF2609
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -683,34 +667,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474398   (97879) от 28.03.2012
+###  Публикация: 1822448   (100736) от 06.10.2025
 
-VA - Absolute Dance Hits (2012) [MP3|256 кб/с]<Dance, Рор>
+Yoav Eshed - Guitar Hearts (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97879.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100736.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Cosmic Gate & Arnej - Sometimes They Come Back For More (Radio Edit)
- 002. Asher Roth (Ft Akon) - Last Man Standing
- 003. Funky Chicos - Girls In Love (Sunrider Edit)
- 004. Milk & Sugar Feat. Miriam Makeba & Jungle Brothers - Hi-A Ma (Pata Pata)
- 005. Kelly Clarkson - Stronger (What Doesnt Kill You) (7th Heaven Club Mix)
- 006. Dj Project Giulia - I'm Crazy In Love
- 007. Flo Rida feat. T-Pain & LMFAO - Run To You
- 008. Nadia Ali - Rapture (Avicii New Generation Radio Edit)
- 009. Andreea Balan - Like a Bunny (Radio Edit)
- 010. Azuro Feat. Elly - Toca Me (Video Edit)(   Читать дальше...   )2012Жанр: Dance, РорПродолжительность: 05:50:14
+01.  Sad Song For Happy Times (4:46)
+02.  Free Them (Intro) (1:20)
+03.  Free Them (7:54)
+04.  Remember That Space? (6:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCA869585816232DE00124A7E5CE45ACB657BB2B
+magnet:?xt=urn:btih:9CDE7D0FBD87236EAD49AC63854BD76BF754779F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -718,25 +696,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474671   (97878) от 28.03.2012
+###  Публикация: 1822446   (100735) от 07.10.2025
 
-[Wallpapers] Wallpapers Sexy Girls Pack (29.03.12)
+Kekkon Yubiwa Monogatari II | Tales of Wedding Rings Season 2 | Легенда свадебных колец [ТВ-2] [2025, TV, 1 из 13 эп.] WebRip 720p raw
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97878.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100735.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Сато - старшеклассник, влюбленный в свою лучшую подругу Химэ, неземную красавицу из другого мира. Когда она возвращается на свою родину, чтобы выйти замуж, Сато не раздумывая отправляется за ней и срывает свадьбу. Химэ решает поцеловать его вместо своего жениха, что по местным законам связывает их с Сато магическими узами брака! Но она - принцесса Кольца Света, а (   Читать дальше...   )Производство: студия Staple Entertainment / ステイプルエンタテインメントЖанр: приключения, фэнтезиРежиссер: Наоя ТакасиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D3017670F4B94F219C144807865A140F9BB284B
+magnet:?xt=urn:btih:76E554BACB8EC9237303B3357ECC52EFC3A479E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

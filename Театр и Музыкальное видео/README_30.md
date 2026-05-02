@@ -1,3 +1,81 @@
+###  Публикация: 640130   (888941) от 06.04.2013
+
+Inna - Party Never Ends (Ok Edition. CD №4) (2013) [H.264/1080p-LQ] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, Dance, Pop
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FA5278308BA4C0C699C1C3E53B51DF38C68E8F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640743   (887230) от 07.04.2013
+
+Jenifer - L'amour Fou (2012) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887230.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B082ED479B2B2C1F522106B79B3E7786289259D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 640712   (887110) от 07.04.2013
+
+Емилия - Кукла (2013) WEBRip	 [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5522088D5E418D9BC8715D95DE24312A82DB3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372108   (886991) от 02.04.2020
 
 Northern Genocide - 3 Music Videos (2015-2019) WEBRip [H.264/1080p-LQ] <Industrial Melodic Death Metal>
@@ -625,90 +703,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B72EDCD5DB34E8A965E994F7EE683B349AED7F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 764013   (881048) от 08.03.2014
-
-Наутилус Помпилиус - 30 лет под водой (2014) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_881048.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рамках празднования 30-летия группы «Наутилус Помпилиус» запланировано три особенных концерта с участием разных составов легендарного коллектива в трёх городах - Москва, Санкт-Петербург, Екатеринбург01. Тутанхамон - "Ю-Питер" совместно с театром клоунады "Лицедеи"
-02. Всего лишь быть - "Ю-Питер" совместно с Максимом Ивановым из рок-группы "Торба-на-Круче"
-03. Кто ещё - "Ю-Питер" совместно Ильёй Разиным из рок-группы "Полюса"
-04. Отход на север - "Ю-Питер" совместно с Ильёй Лагутенко из рок-группы (   Читать дальше...   )Жанр: КонцертПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E80BCBDC2A137FA14DAC984614E2B11DAD8C150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 641931   (881012) от 10.04.2013
-
-Sarah Brightman - Angel (2012) [1080p] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_881012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D296AD8290D0C9A1D53B022FD5594F30D4465D6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 642092   (880802) от 10.04.2013
-
-Сборник клипов - VA - Various Music part. 41 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_880802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alyona Lanskaya - Solayoh (Belarus) 2013 Eurovision Song Contest 1080p (3:07)
-2. Armin van Buuren feat. Trevor Guthrie - This Is What It Feels Like 1080p (4:09)
-3. BAZUKA - Good For Me 720p (2:53)
-4. BAZUKA - Suck My Ass 720p (2:46)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~05:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8738D5E68BF365811D3D237D7A24D143533DE37C
 ```
 
 https://mybot314.ru/tekegram_catalog/

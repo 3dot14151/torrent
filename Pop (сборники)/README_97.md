@@ -1,3 +1,119 @@
+###  Публикация: 1256011   (359043) от 20.10.2018
+
+VA - German Top 100 Single Charts 22.10.2018 (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359043.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bonez MC & RAF Camora - 500 PS
+002. Bonez MC & RAF Camora - Kokain (feat. Gzuz)
+003. Bonez MC, RAF Camora - Nummer unterdrückt
+004. Dynoro & Gigi D'Agostino - In My Mind(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEFD88C77389D1F0192CB59FEF92C9A5DB1A8407
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328725   (358168) от 02.10.2019
+
+VA - Popular Hits Nation: Pop Slam Music (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358168.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Hepburn - Could Have Been Happy
+002. Jamie Cullum - The Age Of Anxiety
+003. Alextrackone - Sentada En Mi Habitacion
+004. Grace Lightman - Exoskeleton(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8215324E0FD2165F50B4B7A581A9D1D0F26FCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951915   (357826) от 31.10.2015
+
+VA - Танцы до рассвета. Русский сборник от Хит FM (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357826.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Bahroma - Пока Пора
+002 Mot Feat. Виагра - Кислород (Dj Shtopor Remix)
+003 Jamala - Песня о дружбе
+004 Катя Чехова - Крылья (Dj Timur Giniyatov Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEEE3B7FE7D725731BA9C549379A5B32558AAD88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071664   (356823) от 11.11.2016
+
+VA - Зайцев.Нет - Самые Горячие Новинки (2016) [MP3|182-320 Kbps] <Поп, Dance, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356823.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Lx24 - Уголёк 3:31
+002.Robbie Williams - Party Like a Russian 3:03
+003.The Weeknd - Starboy (Feat. Daft Punk) 3:51
+004.Руки Вверх - Когда мы были молодыми 4:33(   Читать дальше...   )Жанр: Поп, Dance, RockПродолжительность: 07:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EC44A3A6A769AF3864F0D2B7EDFE4D9B3D95D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577366   (356759) от 18.09.2022
 
 VA - Songs for the Car (2022) [MP3|320 Kbps] <Pop, Rock, R&B, Dance>
@@ -630,128 +746,6 @@ VA - Русское Радио. Лучшее (10.2018) от DON Music (2018) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13308F10717FCCC2E151D142184C12FA91E5DED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953581   (348991) от 04.11.2015
-
-VA - Цунами любви (Попсовая 100-ка хитов) (2015) [MP3|192-256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нюша - Цунами
-02. Лаурита - Лишь Ты и Я
-03. Martin Garrix MOTi - Virus (How About Now) (Original Mix)
-04. Мария Неделкова - Временно(   Читать дальше...   )Жанр: PopПродолжительность: 06:21:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:892D7FB32D2D88BA806DECA515C2ED93C22AC9E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953394   (348827) от 04.11.2015
-
-VA - Супер хиты года от Русского радио (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348827.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Сати Казанова - Дура
-005. Макsим - Я Буду Жить
-003. Reflex - Прикосновения
-004. Гульназ - Студенточка(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A5352EA97ECDE784E35E6E8BE2BDE647B3A5DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579422   (348327) от 23.11.2012
-
-VA - Между Нами Девочками (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гайтана - Самый лучший
-02. Мишель - Здравствуй, Знаешь
-03. Юлия Морозова - Я Люблю Тебя
-04. Ольга Маковецкая - Люблю
-05. ВИА Гра - Алло, мам
-06. K.Melody - Зажигай Солнце
-07. Елена Терлеева - Цепи
-08. АнгелиЯ - Душа Устала
-09. Ирина Кулькова - Храните Любовь
-10. Жанна Фриске - Навсегда (ChinKong Production Mix)Жанр: PopПродолжительность: 05:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F3AC0D36D784A181F58978D32461F82E6AB88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953272   (348272) от 04.11.2015
-
-VA - Дискотека 90х: Новый Стиль (2015) [MP3|320 кб/с]<Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348272.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fr David & Dj Nikolay-D - Words(Dj Nikolay-D Remix )
-002. Siberian Heat - Just Say Hello(Dj Nikolay-D & Joemix Dj Remix )
-003. Silent Circle - Night Train( Dj Nikolay-D Remix )
-004. Fancy - Fools Cry(Dj Nikolay-D & Joemix Dj Remix )(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 11:08:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75FD4D24CCEB0E1C0F5C1D8E12F89BD23EE5817D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1304760   (562092) от 27.05.2019
+
+Rosenberg Trio & Tim Kliphuis - Tribute To Stephane Grappelli (2008) Foreign Media Music [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R-Vingt-Six [3:36]
+02. My Melancholy Baby [2:58]
+03. Micro [2:52]
+04. Si Tu Savais [3:12](   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBAF346B892653938410D1F94865193CD3BD5DF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045135   (561895) от 22.08.2016
+
+Curtis Fuller - Meets Roma Jazz Trio (1982) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Impressions [06:47]
+ 02.R.E.D.'s Delights [06:54]
+ 03.Jazz Island [05:46]
+ 04.Naima [08:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A997E02F7B1C8E18B6F044C12C14C5A106728C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045195   (561892) от 22.08.2016
 
 Lenny White - Present Tense (1995) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
@@ -687,64 +745,6 @@ Johnny McLaughlin - Electric Guitarist (1978) Remaster, 1990, CBS [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D98073162879B773EBF300D669EA8AD2F306C74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153320   (559840) от 26.07.2017
-
-V.A. - Jazz Sexiest Ladies (2017) 3CD [FLAC|Lossless|image + .cue] <Vocal Jazz, Easy Listening, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1 - Glamour Divas:
-01. Sarah Menescal- The Game Of Love
-02. Cassandra Beck - Jump
-03. Karen Souza - New Year´s Day(   Читать дальше...   )Жанр: Vocal Jazz, Easy Listening, Lounge |Продолжительность: 02:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A49ED3C0348896754E7EE41C755752353587F2D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045425   (559829) от 23.08.2016
-
-Mahavishnu Orchestra - Birds Of Fire (1973) Columbia, Late 1980s [FLAC|Lossless|image + .cue] <Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birds Of Fire (5:44)
-02. Miles Beyond (4:41)
-03. Celestial Terrestrial Commuters (2:55)
-04. Sapphire Bullet Of Pure Love (0:21)(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:930252C3EC980F9B8DB296D961BF35272BDB8642
 ```
 
 https://mybot314.ru/tekegram_catalog/

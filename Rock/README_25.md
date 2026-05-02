@@ -1,3 +1,32 @@
+###  Публикация: 1013476   (777632) от 04.05.2016
+
+Peter Frampton - Acoustic Classics (2016) [MP3|320 кб/с] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777632.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fig Tree Bay [03:49]
+2. Wind of Change [03:05]
+3. All I Want to Be (Is by Your Side) [04:33]
+4. Show Me the Way [04:05](   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC2BFEDC88FB3F54D9BFE047947D7A066C0F2D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211710   (777203) от 08.03.2018
 
 VA - I Love The 50s & 60s (Classic Mixes) (Volume 3) (2016) [MP3|320 Kbps] <Rock, Soul, Blues>
@@ -713,35 +742,6 @@ Jo Jo Gunne - So...Where's The Show? (1974) Unofficial, 2010, Dogtoire [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B2DBA6FD9E84A67465265406F118248BDDBF363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213564   (768194) от 17.03.2018
-
-Self Deception - Self Deception (2018) [MP3|320 Kbps] <Alternative Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768194.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Eat Sleep Rock Repeat (3:43)
- 2. Don't (2:57)
- 3. Let Go (2:55)
- 4. Broken Generation (3:11)(   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 00:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5094B139F9192D96B8D09F94792252E7E222C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

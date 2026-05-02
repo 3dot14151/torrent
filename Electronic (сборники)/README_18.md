@@ -1,3 +1,61 @@
+###  Публикация: 973507   (979208) от 09.01.2016
+
+VA - Best Of Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenishia - Strong (Radio Edit)
+02. Stargazers - Black Diamond (Radio Edit)
+03. Kaimo K - Love Will Never Leave (Radio Edit)
+04. Hazem Beltagui - Silent For So Long (Maratone Radio Edit)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6DCCAA2B8E3772ADFB4C38ABF0AA25C0991670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356380   (979190) от 30.01.2020
+
+VA - Keep Growing: Deep Techno Electronic (2020) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979190.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Chosen Two - Neue Mattheit
+002. Christopher Ivor - 3am Tribute
+003. Angerfist - The Desecrated
+004. Il Gualdo - Satans Laughter(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 14:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3873AA0C64A9AA61071FA0BDDAB08DD3A7BEFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 742657   (979162) от 06.01.2014
 
 VA - Lounge At The Seashore 2 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -721,64 +779,6 @@ VA - Lounge At The Seashore 3 (2014) [MP3|320 кб/с]<Downtempo, Chillout, Loun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AB138B829101B14D3EC6A5A7E1839F2102183A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975400   (973350) от 14.01.2016
-
-VA - Beatport Top 100 Deep House December 2015 (2016) [MP3|320 кб/с] <Deep House, House, Electronica>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973350.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dele Sosimi Afrobeat Orchestra - Too Much Information (Laolu Remix) (Edit) 08:33
-002. Mat.Joe - Make A Living (Original Mix) 07:23
-003. Crookers feat. WILLS - Withdrawals (Original Mix) 05:12
-004. Sonny Fodera feat. Yasmin - Feeling U (Deep Mix) 06:10(   Читать дальше...   )Жанр: Deep House, House, ElectronicaПродолжительность: 11:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DEFC069236B0A5ECBBEE39519C0B8E52BC26EE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975389   (973299) от 14.01.2016
-
-VA - Extra House (New year edition) (2016) [MP3|320 кб/с] <House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bequest - Bright Lights (Original Mix) (05:29)
-02. Denis Neve - Like You (Original Mix) (07:17)
-03. Kay-D - Hydraulic Pressure (Frosun Remix) (07:37)
-04. Soundprank - Obsidian (Original Mix) (07:35)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 02:01:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205CCCCEB442661F4DFFEFED893B900A1B0FC480
 ```
 
 https://mybot314.ru/tekegram_catalog/

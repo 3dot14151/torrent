@@ -1,3 +1,61 @@
+###  Публикация: 1339166   (266998) от 18.11.2019
+
+Dexter Gordon - Those Were The Days 1967 - 1971 (2014) Boundee [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soy Califa [7:27]
+02. The Rainbow People [8:29]
+03. Those Were The Days [9:47]
+04. Fried Bananas [10:25]Жанр: Hard Bop, Post-BopПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23B3B0214E26BC620A0B61D3E68EDCC41BFBFC73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267427   (266737) от 06.12.2018
+
+Bunny Berigan - 1937 - 1938 (1994) Classics [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trees [3:22]
+02. Russian Lullaby [3:07]
+03. Can't Help Lovin' Dat Man [2:38]
+04. Piano Tuner Man [3:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58BC09CF3F3E4BCF8B5D78C23533F58465F104F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267423   (266735) от 06.12.2018
 
 Art Van Damme - State Of Art (1967 - 1970) 2000, MPS [FLAC|Lossless|image + .cue] <Mainstream Jazz, Accordion>
@@ -687,64 +745,6 @@ Jim Hall - ...Where Would I Be? (1971) 1999, Original Jazz Classics [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC35208FE399D94DD199C5C25F26F090A7C792C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191367   (264524) от 13.12.2017
-
-Tim Warfield - Jazz Is ... (2001) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silence - The Angels Are Crying [11:56]
-02. Origins [08:15]
-03. My Shining Hour [10:25]
-04. The Magic Bag [09:33](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75BF4488B1C4D65FF1188674610951FDACD1FCAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191381   (264523) от 13.12.2017
-
-Toshiko Akiyoshi - Interlude (1987) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Interlude [04:42]
-02. I Know Who Loves You [04:58]
-03. Blue and Sentimental [04:54]
-04. I Ain't Gonna Ask No More [05:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E481E5FE1920D91269630CDAE1CF5159F11831C
 ```
 
 https://mybot314.ru/tekegram_catalog/

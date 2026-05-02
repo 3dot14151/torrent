@@ -1,3 +1,61 @@
+###  Публикация: 1715343   (111533) от 12.04.2024
+
+VA - Sexy Feel-Good Intimate Lounge Relaxing Tracks to Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Butterfly Kisses (5:10)
+02. Kool&Klean - Feel Again (4:12)
+03. Chillaxonic - Velvet Meadows (4:28)
+04. Love Suggestions - Feel This Moment (4:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080C1DC25CD98C03C875143081FD17B6260D3D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715321   (111525) от 12.04.2024
+
+VA - Italian Jazzy Mix for Restaurant (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zerosospiro - Conversazione (2:26)
+02. Melania - Tu Vuo Fa L'americano (4:04)
+03. Emanuela Campana - Brividi (3:06)
+04. Sugarpie And The Candymen - Volare (Nel Blu Dipinto di Blu) (2:48)(   Читать дальше...   )Жанр: Jazz, Jazz VocalПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA80BE7CFDC2E4C6685403004AC57466B758C65C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1715408   (111523) от 12.04.2024
 
 James Carter - Layin' In The Cut (2000) Atlantic [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
@@ -687,64 +745,6 @@ Dave McKenna & Gray Sargent - Recorded Live At Maybeck Recital Hall (1993) Conco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:385B146980B5F1DD44DA29D10E2ED5C10AD94C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716734   (111307) от 17.04.2024
-
-Dave McKenna - Giant Strides (1979) 1994, Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If Dreams Come True [3:42]
-02. Yardbird Suite [2:58]
-03. Windsong [2:50]
-04. Dave's Blues [6:10](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB575D81D1B5B191763536F961242739D66D79F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716735   (111306) от 17.04.2024
-
-The Dave McKenna Quartet featuring Gray Sargent - No More Ouzo For Puzo (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look for the Silver Lining [4:57]
-02. Shake Down the Stars [5:29]
-03. Smile [5:25]
-04. Lonesome Me [3:22](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88DEF2CCCBDC14B48E8775510841CE7A677A8DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

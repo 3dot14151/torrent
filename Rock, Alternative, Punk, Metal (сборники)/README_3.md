@@ -1,3 +1,61 @@
+###  Публикация: 1461864   (1021507) от 11.04.2021
+
+VA - Новинки русского рока (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animal Джаz - Бессимптомно (3:24)
+02. Сплин - Вирус (4:39)
+03. Земфира - Ок (4:04)
+04. Северный Флот - Мой гори огонь (5:07)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E01ED8D1205884E9DE0AEE3DA81719925A6C49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462588   (1020971) от 15.04.2021
+
+VA - Rock Music 2 (2021) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вадим Спирихин - Все мосты сожжены (4:51)
+02. ДМЦ feat. Йорш - Прости Не Помню (2:48)
+03. Zayde Wolf - Back At It (3:16)
+04. Наконечный & Растич - Сердце (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 05:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75857C9F889DBDF5436CC9A5E74374548CFE7A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465899   (1018802) от 28.04.2021
 
 VA - The Alternative History: Rock Indie Music (2021) [MP3|320 Kbps] <Indie Rock, Alternative>
@@ -687,64 +745,6 @@ Joe Cocker - The Last Road (2021) 2CD, Compilation [MP3|320 Kbps] <Rock, Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5F5D3A8A7DA117B4B7A27F0E000AE96D562AE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482050   (1007763) от 07.07.2021
-
-VA - The Music Pie: Pop-Rock Indie (2CD) (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007763.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-001. Bartees Strange - Far
-002. Pj Harvey - This Mess We're In(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 12:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:790FE77A964467DE4829940F08BCC5A227EA27F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482164   (1007722) от 07.07.2021
-
-VA - 100 Greatest Alternative 80s (2021) [MP3|320 Kbps] <Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Smiths - How Soon Is Now? (2008 Remaster)
-02. Joy Division - Love Will Tear Us Apart (2010 Remaster)
-03. Pixies - Monkey Gone to Heaven
-04. New Order - Blue Monday(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:942E4B6A5E937898A7D7E14B6B1CA4ECD651B824
 ```
 
 https://mybot314.ru/tekegram_catalog/

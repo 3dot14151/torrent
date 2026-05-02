@@ -1,3 +1,143 @@
+###  Публикация: 475565   (98077) от 30.03.2012
+
+Daddy Mack Blues Band - Pay The Piper (2012) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Showtime (4:05)
+02. Best In Town (3:30)
+03. Como (5:10)
+04. Pay The Piper (5:00)
+05. Workin' Man (2:58)
+06. Let's Get Together (4:59)
+07. Sugar Daddy (4:50)
+08. Black & Blue (3:10)
+09. Trickle Down Blues (3:25)
+10. Woman Do Right (4:14)(   Читать дальше...   )2012Жанр: BluesПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475032   (98057) от 30.03.2012
+
+Anthony Gomes - Up 2 Zero (2012) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To The Start  (3:34)
+02. One Last Time  (4:55)
+03. Love Sweet Love  (3:30)
+04. Fly Away  (3:40)
+05. Darkest Before The Dawn  (3:53)
+06. Room 414  (2:47)
+07. Voodoo Moon  (4:16)
+08. Anywhere You Run  (3:57)
+09. Last Bluesman Gone  (2:10)
+10. Up 2 Zero  (3:13)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475686   (98052) от 30.03.2012
+
+Jeff Cascaro - The Other Man (2012) [FLAC|Lossless]<Soul, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gettin' Started (0:49)
+02. Roots (4:58)
+03. The Other Man (4:11)
+04. The Girl Who Got Away (Back In The Days) (4:10)
+05. Stop! (3:59)
+06. Beale Street (4:34)
+07. You (5:25)
+08. Swing Thing (4:22)
+09. Going Home (4:03)
+10. Give It To Me (5:15)(   Читать дальше...   )2012Жанр: Soul, Vocal JazzПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475036   (98040) от 30.03.2012
+
+145 th Street - Where the Blues Lives (2012) [FLAC|Lossless]<Chicago Blues, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where the Blues Lives (5:18)
+02. Tell Me, Baby (4:45)
+03. Before Its Time (6:26)
+04. Your Little Show (5:35)
+05. Blues Never Sleeps (5:43)
+06. What Am I S'posed to Do (7:38)
+07. Make Love to You (5:48)
+08. Seven Days (4:40)
+09. Good Mornin' Blues (5:45)
+10. Give Her What She Wants (6:10)2012Жанр: Chicago Blues, Electric BluesПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 468662   (96820) от 16.03.2012
 
 The Lefty Collins Band - The Lost and Found (2012) [FLAC|Lossless]<Blues>
@@ -750,128 +890,6 @@ Joe Louis Walker - Hellfire (2012) [APE|Lossless]<Blues>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451688   (75837) от 13.02.2012
-
-Erja Lyytinen - Songs From The Road (2012) [FLAC|Lossless]<Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road Leading Home (2:34)
-02. Voracious Love (4:17)
-03. Don't Let A Good Woman Down (3:47)
-04. Everything's Fine (7:23)
-05. Grip Of The Blues (6:00)
-06. Can't Fall In Love (4:54)
-07. Not A Good Girl (12:05)
-08. Steamy Windows (7:58)
-09. No Place Like Home (3:14)
-10. Crossroads (2:07)(   Читать дальше...   )2012Жанр: Modern Electric BluesПродолжительность: 01:14:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770880   (71950) от 03.01.2025
-
-Gina and Johnny - Free your Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Free your soul (5:02)
-02.  Pay up (5:12)
-03.  Crazy kinda love (3:28)
-04.  Movin on (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626A08077DE218EBD2857539893271A51F766D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770882   (71948) от 03.01.2025
-
-Soultide - Deep Blue Reverie (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eternal Refuge (2:35)
-02.  Celestial Ascent (3:19)
-03.  Eternal Arches (4:00)
-04.  Sacred Echoes (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D606C419A0C7E4670ACC58515B909DEBC1402E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771270   (71917) от 05.01.2025
-
-Grace In Sand - Homeless Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Get free (2:27)
-02.  Homeless Moon (3:38)
-03.  Sweet Sibilla (3:35)
-04.  Redemption in hell (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843A427EEA8008662A37AA9C4A5762347C082217
 ```
 
 https://mybot314.ru/tekegram_catalog/

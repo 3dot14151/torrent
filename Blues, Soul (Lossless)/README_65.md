@@ -1,3 +1,130 @@
+###  Публикация: 1159206   (486141) от 19.08.2017
+
+Adriana Evans - Walking With The Night (2010) Expansion Records [FLAC|Lossless|tracks + .cue] <R'n'B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting [04:16]
+02. Suddenly [04:16]
+03. Midnight [04:02]
+04. Love Me On The One [04:13](   Читать дальше...   )Жанр: R'n'B, SoulПродолжительность: 00:58:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3BEBD220E5F1A7CE7574D80219CA990AD3D00FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055669   (486113) от 23.09.2016
+
+Magic Red - 4 Альбома (2003 - 2011) [FLAC|Lossless|image + .cue] <Blues-Rock, Rock, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Open Road   [03:41]
+02. Valentine   [04:03]
+03. H2O   [03:15]
+04. Little Red Ball   [03:56](   Читать дальше...   )Жанр: Blues-Rock, Rock, InstrumentalПродолжительность: 03:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56E537D0975FEF59E16E8131805E2D0216D6CA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544157   (485264) от 10.09.2012
+
+Blues Trio - This Train (1994) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Train/My Babe
+02. Big Mama Boogie
+03. Belgrade Blues
+04. Mama Keep Your Big Mouth Shut
+05. Walk On
+06. Custard Pie
+07. 900 Miles From My Home
+08. Joe's Run
+09. Room To MoveЖанр: BluesПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545731   (483342) от 11.09.2012
+
+Bo Wilson Band - Magic Man (1996) [APE|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic Man
+02. Chevrolet
+03. I’m Tore Down
+04. Trick Bag
+05. Boogie Man
+06. Stormy Monday
+07. Don’t Take Advantage Of Me
+08. Statesboro Blues
+09. Shake The Room
+10. If You Have To Know(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545681   (483338) от 11.09.2012
 
 BlueShot - Crack the Seal (2006) [APE|Lossless]<Blues-Rock>
@@ -647,134 +774,6 @@ Steve Hunter - Short Stories (2008) [FLAC|Lossless|image + .cue] <Instrumental B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94DC606FEDC6538B06157390F8895C7DE4B762B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244920   (478097) от 03.09.2018
-
-Deák Bill Gyula - Hatvan csapás (2008) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hatvan csapas (3:48)
-02. A nagy generacio temetesere (2:53)
-03. Kene egy uveg bor (5:03)
-04. Let-e, aki let (2:38)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0483B4C1CC8BDCA8B08A9D95ABB9B7AE173D97AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1057088   (477706) от 27.09.2016
-
-The Dahman Beck Band - Ride the Night (2005) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give and Take   (04:10)
-02. Days of Missing You   (06:42)
-03. Hurricane of your Love   (07:55)
-04. Civilization Blues   (05:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2585E81D78C1A32F27BB60D0A296F72D04CA41A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546846   (476620) от 14.09.2012
-
-Buddy Whittington - Six String Svengali (2011) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back When the Beano Was Boss
-02. Deadwood and Wire
-03. My World Revolves Around You
-04. Ain't Got the Scratch
-05. I Had to Go and See Alice
-06. Fender Champ
-07. Six String Romance
-08. Texas Trios
-09. The Put On Song
-10. For Crystal Beach(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:38:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 546837   (476479) от 14.09.2012
-
-Brother Jack Mcduff - A Change Is Gonna Come (1999) [FLAC|Lossless]<Jazz, Blues, Funk, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down In The Valley
-02. A Change Is Gonna Come
-03. Hotcha
-04. What'd I Say
-05. No Tears
-06. Gonna Hang Me Up A Sign
-07. Minha Saudade
-08. Same Old, Same Old
-09. Can't Find The Keyhole Blues
-10. But It's Alright(   Читать дальше...   )Жанр: Jazz, Blues, Funk, Hammond OrganПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

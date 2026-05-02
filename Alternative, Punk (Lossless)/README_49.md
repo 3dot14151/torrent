@@ -1,3 +1,61 @@
+###  Публикация: 1339719   (264636) от 21.11.2019
+
+Beck ‎ - Hyperspace (2019) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hyperlife (01:37)
+02. Uneventful Days (03:17)
+03. Saw Lightning (04:01)
+04. Die Waiting (04:04)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0DBB2D85C439999E337C5109DEF482F1C23A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191401   (264513) от 13.12.2017
+
+My Vitriol - The Secret Sessions (2016) [FLAC|Lossless|tracks] <Alternative Rock, Space Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We’ve Lost Our Way (05:00)
+02. It’s So Damn Easy (04:14)
+03. If Only… (God Only Knows) (03:43)
+04. (All These) Days (02:57)(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, Art Rock, Indie Rock, ShoegazeПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73674B6E9ACD16F944BC22EDA1E9E52284BD4BEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268106   (264433) от 09.12.2018
 
 Stand Atlantic - Skinny Dipping (2018) [FLAC|Lossless|tracks + .cue] <Pop-Punk, Alternative>
@@ -695,64 +753,6 @@ Rise of the Northstar - Showdown (2023) [FLAC|Lossless|WEB-DL|tracks] <Hardcore 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04E1BB02A6C1E82D841F4B2A10BE1EF65B8F0F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289491   (244565) от 16.03.2019
-
-A Fragile Tomorrow - Generation Loss (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244565.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dig Me Out (04:06)
-02. Generation Loss (03:34)
-03. How Do You Dance To It? (03:19)
-04. I'm Afraid Of Too Much Change (03:14)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41EF428A795B84ECAD7948702697223B217FDD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289414   (244547) от 16.03.2019
-
-Hurry - Every Little Thought (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Every Little Thought  05:06
-Read Between The Lines  03:10
-Waiting For You  03:22
-Hanging On  05:05(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DB9B8DD6BEFF18EAD03F5F244CA547D3B0F5470
 ```
 
 https://mybot314.ru/tekegram_catalog/

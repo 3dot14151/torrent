@@ -1,3 +1,119 @@
+###  Публикация: 1727812   (108384) от 04.06.2024
+
+VA - Lounge Rendezvous, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circles Of Sound - Sunrays (7:36)
+02. Marc Hartman - Waterfront (4:19)
+03. Takt 3 - Fake Agent (8:28)
+04. Luis Hermandez - Broken Love (4:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:713ECDFE4C7EE3DEB85C645E6BCC8B2726510969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728984   (108208) от 09.06.2024
+
+VA - This Is Chill Music 2024 (2024) Original Mix [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Soul Focus - Feel the Time (Original Mix) (3:22)
+02. Alan Bradshaw - Melody (Original Mix) (3:17)
+03. Sandra Wilson - Invest in Me (Original Mix) (3:19)
+04. David Parson - Paradise Village (Original Mix) (3:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BDBB8F13BFF81480333650868B939CF6B18CC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729305   (108135) от 10.06.2024
+
+VA - Sunset Dreamer: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirage Of Deep - Lost Island (432 Hz) (4:06)
+02. Marc Hartman - Crystal Sea (5:16)
+03. Ljay - Let Me Chill (3:58)
+04. Marga Sol - My Core (Chill Mix) (4:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D37CE617AC881A74118DE9150AD2445CD9E73BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729788   (108076) от 12.06.2024
+
+VA - Travel In The Universe, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julie Bernardt - Misty Cave (Mystic Kaio Instrumental) (5:18)
+02. Mirage Of Deep - The Mountain (7:25)
+03. Borkahi - Far Away (Chris Jaw Instrumental) (5:28)
+04. CaPa - Alesian Wind (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AE1F561B721904B2F70E22C26BBD02F9A6C6CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731341   (107760) от 20.06.2024
 
 VA - Chillout Summer Anthems 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -629,122 +745,6 @@ VA - Coastal Chill: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Bal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22150EF9A4AB335930583696952441D71430D009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759775   (103230) от 10.11.2024
-
-VA - La Isla Del Sol, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Steen Thottrup - Diversities (04:11)
- 02 - Calmabohain - Calma (On The Beach Mix) (03:08)
- 03 - San Dakla - Rainy Day (Smooth Mix) (03:23)
- 04 - Zara Mailo - Taj (05:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60A4235696334A3BFFA128D19186408FC6AFBDFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762693   (102905) от 26.11.2024
-
-Black Shaman - Black Shaman (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Chill, Downtempo, Dark Jazz>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plug Out (3:49)
-02. Inedit Time (4:22)
-03. Liturgy (5:40)
-04. Gold Silence (4:29)(   Читать дальше...   )Жанр: Dark Chill, Downtempo, Dark JazzПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1F810D55F3EC76B43946184960C25018440B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764395   (102703) от 07.12.2024
-
-Moby - always centered at night - remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Electronic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - should sleep (Prins Thomas diskomix) [5:20]
-02 - precious mind (cassette remix) [5:05]
-03 - dark days (Vanco remix) [6:46]
-04 - dark days (Undercatt remix) [4:30](   Читать дальше...   )Жанр: Downtempo, Ambient, ElectronicПродолжительность: 05:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60B3836AB9D2D25EE5DA6D7EB689CFA03F810618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822594   (101681) от 07.10.2025
-
-Tricky & Marta - Out the Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Electronic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Dance [00:02:48]
-02. Out The Way [00:04:08]
-03. Leave The Lights [00:02:45]
-04. Surface [00:03:30](   Читать дальше...   )Жанр: Trip-Hop, ElectronicПродолжительность: 00:28:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EF5120EFF18EA1087818546D2FF6767CBCBF19
 ```
 
 https://mybot314.ru/tekegram_catalog/

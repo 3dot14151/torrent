@@ -1,3 +1,119 @@
+###  Публикация: 1259460   (319046) от 04.11.2018
+
+VA - German Top 100 Single Charts 05.11.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319046.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capital Bra - Roli Glitzer Glitzer feat. Luciano und Eno
+002. KitschKrieg - Standard feat. Trettmann, Gringo, UFO361 und Gzuz
+003. Dynoro und Gigi D.Agostino - In My Mind
+004. Calvin Harris und Sam Smith - Promises(   Читать дальше...   )Жанр: PopПродолжительность: 05:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABD1AFBE2CF80C224DB0B05B84C856F33B6A473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075524   (318683) от 23.11.2016
+
+VA - Отрывайся C Лучшими Хитами #2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318683.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mseven - Листья 3:53
+002. Helena Shadia - Твоя Девочка 3:32
+003. Валенсия & Андрей Гражданкин - Лепестки Белых Роз 4:14
+004. Hardwell - Blackout 5:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04ABE9577A31247A8EEB046A34033E5AD23DE750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331921   (318354) от 18.10.2019
+
+VA - Funky Fever: Disco Party Show (2019) [MP3|320 Kbps] <Dance, Disco, Funk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318354.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dr Spice - Cherri Pie
+002. Alex Rossi - Tutto Va Bene Quando
+003. Austin Ato - When Love Gets Cold
+004. Nyra - Neon Glance(   Читать дальше...   )Жанр: Dance, Disco, FunkПродолжительность: 12:10:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB39198806E46E74FA52CBB0D171E56CBE3D7493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259907   (316166) от 05.11.2018
+
+VA - Love Radio: Big Love 20 04.11.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kazka - Плакала
+02. Мари Краймбрери - AMORE
+03. Luxor feat. Люся Чеботина - No cry
+04. Miyagi & Эндшпиль feat. KADI - In Love(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00B2C08AE39A0F61A5041944D36541B085D87BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959713   (314954) от 25.11.2015
 
 Илья Гусев - Сборник (2014) [MP3|192 кб/с]<Pop>
@@ -647,122 +763,6 @@ VA - Planet Pop: Summertime Selection (2019) [MP3|320 Kbps] <Pop, Europop, Rnb>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:586C1DD9B5264AE4FDC8AA5D2B338245BA469B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422583   (308572) от 09.11.2020
-
-VA - Pop Dance Exclusive Megamixes (2020) [MP3|320 Kbps] <Pop, Dance, Electropop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308572.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Millie Turner - Jungle
-002. Pouring - Burn
-003. The Disco Boys - Around The World
-004. Deborah Cox - Easy Way(   Читать дальше...   )Жанр: Pop, Dance, ElectropopПродолжительность: 08:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B148452DB1EC76D2C511F2DE0A21AECB24F9A377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422599   (308045) от 09.11.2020
-
-VA - New Disco Hits 2020 от DON Music (2020) [MP3|320 Kbps] <Italo Disco, Pop, Dance, Electronic>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savage - Every Second Of My Life
-02. Amadeus Angelus - One Step From Heaven
-03. Spatial Vox - Cause Of Shining In Your Eyes
-04. Bad Boys Blue - Killers(   Читать дальше...   )Жанр: Italo Disco, Pop, Dance, ElectronicПродолжительность: 05:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41B140403EB3A3BABCF47B18A1B0607C6F1FEFBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183645   (307784) от 14.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 022 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Третий Подъезд - Август ( 1991 )
-02. Амадеус - Маленькая Верочка ( 1991 )
-03. Горбашов Алексей - Твой Самолёт ( 1989 )
-04. Поп-Сервис ( Ольга Фаворская ) - Хрустальные Замки ( 1989 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9E684606F54BFCAE96E861D65CD2D09B4EF42CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960422   (307729) от 28.11.2015
-
-VA - Дискотека забытых хитов (зарубежная) - 19 (2015) [MP3|160 - 320 кб/с]<Pop, Disco, Italo Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attack - Special Love (06:54)
-02. Righeira - Disco Volante (04:49)
-03. E.G.Daily - Love In The Shadows - Remix (08:46)
-04. Hot Cold - I Can Hear Your Voice (Vocal Version) (05:30)(   Читать дальше...   )Жанр: Pop, Disco, Italo DiscoПродолжительность: 04:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA189773E929F94612DD723DDC38B54FEC93980
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 1576761   (356652) от 18.09.2022
+###  Публикация: 1328819   (359167) от 02.10.2019
 
-Контакты / Contact (2015-2017) WEBRip [H.264/1080p] (сезон 1-2, серии 1-8 из 8) MoyGolos
+Антон Павлович Чехов и др. | Пасхальные рассказы о любви. Произведения русских писателей (2019) [FB2]
 
->>Зарубежные сериалы
->>нет
+>>Художественная литература
+>>Классическая поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356652.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359167.jpg" />
 </div>
 
 
 ###  Подробнее
 
-У Тома уникальный дар: касаясь различных предметов, он видит воспоминания других людей. Чтобы избежать наказания за совершённое в прошлом преступление, герой начинает работать на ФБР. Внезапно он узнаёт, что жизнь его брата-полицейского под угрозой, и решает вмешаться в его новое расследование.Производство: Франция / BE-FILMS, JLAЖанр: боевик, драма, криминалРежиссер: Эльза Беннетт, Ипполит Дар, Давид МорлиАктеры: Тома Жуанне, Алексис Лоре, Ингрид Доннадье, Жереми Ковийо, Амели Ремакль, Лувия Башелье, Жюльен Буасселье, Сара Мортенсен, Май Ань Ле, Элен СёзареПеревод: Дублированный (MoyGolos)Язык озвучки: РусскийПродолжительность: ~00:50:00 серия
+В этой книге собраны невероятно трогательные пасхальные истории о любви, которые никого не оставят равнодушным, ведь именно любовь помогает людям раскрыться во всей творческой полноте и красоте. Жажда любви вдохновляет, расширяет сердца до возможности увидеть невидимое и выразить невыразимое, но иной раз и ослепляет. И всё равно люди ждут любви, как чуда. И это чудо (   Читать дальше...   )Жанр: Православная художественная литератураФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03E1B0737B3D4357C7C7E22575752B7E154F199F
+magnet:?xt=urn:btih:5032B1F81075455357E73CE36DD1FCC2F9A749CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577363   (356651) от 18.09.2022
+###  Публикация: 1256151   (359166) от 20.10.2018
 
-VA - 80s Top Tracks (2022) [MP3|320 Kbps] <Pop, Rock, R&B>
+VA - Rock Sound: 100% Volume No. 147 (2011) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk, Post-Hardcore, Emo>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356651.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359166.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fleetwood Mac - Everywhere (2018 Remaster)
-02. Starship - We Built This City
-03. Duran Duran - Notorious (Single Version)
-04. Spandau Ballet - True(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 03:25:57 hrs
+01. The Blackout - The Devil Inside (03:14)
+02. Max Raptor - Obey the Whips (03:40)
+03. Thursday - No Answers (04:49)
+04. The Saddest Landscape - Imperfect but Ours (04:40)(   Читать дальше...   )Жанр: Hardcore, Punk, Post-Hardcore, EmoПродолжительность: 01:09:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB56F8CA409AA1346520B380BDC258FA980F7836
+magnet:?xt=urn:btih:785126B181BC503F96DE741DF781E0A0F59C4E36
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +53,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577515   (356650) от 18.09.2022
+###  Публикация: 1328750   (359165) от 02.10.2019
 
-Double Commander 1.0.8 Build 191 + Portable [Multi/Ru]
+Lyn 1.12 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lyn - легкий, быстрый и удобный просмотрщик изображений, созданный в первую очередь для фотографов, иллюстраторов и графических дизайнеров. Lyn - это чрезвычайно универсальный и эстетически приятный интерфейс, Geotagging технология, простой и комплексное решение для совместного использования.Тип издания: macOS SoftwareРелиз состоялся: 01.10.2019Разработчик: Mirko VivianiПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C83F1C1D7461625738AEE0C06BE65A51A1B1886B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328918   (359164) от 02.10.2019
+
+Северный флот - Мёртвый изнутри (2019) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359164.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мёртвый изнутриЖанр: RockПродолжительность: 00:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DECD62289FBB6E18358248AA55183B597BAF39E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256025   (359162) от 20.10.2018
+
+Футбол. Лига Наций 2018-2019. 4-й тур. Обзор матчей. 2-й День (15.10.2018) IPTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359162.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 октября 2018 года, понедельник.
+Обзор матчей Лиги Наций УЕФА 2018-2019. 4-й тур.
+2-й День:
+Лига A. Группа 2 — Исландия – Швейцария(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:30:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C5CAEBB1A91E9FB3C32FECAFE6063C8698F374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328909   (359161) от 02.10.2019
+
+RadioMaximus 2.26 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Double Commander - это свободный, с открытым исходным кодом, кроссплатформенный файловый менеджер с двумя панелями. Целью данного проекта является создание файлового менеджера, аналогичного по функциональности Total Commander и совместимого с его плагинами.Язык интерфейса: Русский, Английский и другие
+Удобный инструмент для прослушивания и записи потокового аудио самых различных радиостанций мира. Захват звука возможен сразу с нескольких каналов, для этого пользователю предстоит настроить несколько несложных параметров. Записанные данные легко сохраняются в памяти вашего компьютера в одном из пяти доступных форматах (RAW, MP3, AAC, OGG, WMA).Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48D8327E17C70EEA453E72D65E8B568F4ED9FB81
+magnet:?xt=urn:btih:27049E4FC4BC1C82D9F9EFFEA1F41B566B6AD45B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,56 +160,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577116   (356649) от 18.09.2022
+###  Публикация: 1328969   (359160) от 02.10.2019
 
-Infected Mushroom - IM25 (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Trance, Electronic>
-
->>Electronic
->>Psychedelic, psytrance, fullon (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Velvet [00:04:08]
-02. While I'm in the Mood [00:06:32]
-03. Business as Usual [00:02:55]
-04. Boss La Rosh [00:06:41](   Читать дальше...   )Жанр: Psychedelic Trance, ElectronicПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:752F013D171181CB8A74667FE8F2A712F6E82BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329035   (356648) от 03.10.2019
-
-Ирина Селиванова | Оленьи сказки (2019) [MP3]
+Светлана Фалий | Счастливый билет (2018) [MP3]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лес молчаливо хранит свои тайны, сказка начинается…
-В ту ночь из замка не вышел никто, но троим предстоит вернуться. Город, так легко отпустивший своих детей, не примет их обратно. Одинокой лесничей с колдовскими зелеными глазами, бродячему охотнику, боящемуся быть узнанным, и олененку нет дороги назад.
-На скольких тропах предстоит заблудиться, чтобы понять, куда (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 09:26:34
+Юра и Лариса – неисправимые оптимисты в борьбе за добро и справедливость. И часто им их принципиальность выходит боком. Но даже в каждой, казалось бы, неудаче они видят только хорошие стороны. И его величество Случай решает вознаградить их – посылает лотерейный билет с выигрышем джекпота. Но даже это событие становится причиной испытаний, порой нелепых и курьёзных. (   Читать дальше...   )Жанр: Семейный, МелодрамаПродолжительность: 01:19:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF0C358CF3CA1E6BC09BD9B5C1FADD8431B7B64E
+magnet:?xt=urn:btih:06060D5CCA7B50B954DC03302194F54AA3AF2CC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -136,83 +186,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329167   (356647) от 03.10.2019
+###  Публикация: 1328901   (359159) от 02.10.2019
 
-VA - Uplift Recordings - Chapter 1 (2019) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+Display Maestro 3 v3.0 [En]
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356647.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steve Allen - Vorny (Original Mix)
-02. Steve Allen feat. Ana Criado & Solis & Sean Truby - Frozen River (Original Mix)
-03. F.G. Noise - Delphi (Original Mix)
-04. Steve Allen feat. Jess Morgan - Re-Given (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 04:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF373F03854D6AB37D8FBEB4F2FAB98D738A267A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329138   (356646) от 03.10.2019
-
-Протоиерей Сергий Филимонов | Учебник для сестёр милосердия (2007) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Протоиерей Сергий Филимонов — настоятель больничного прихода, доктор медицинских наук, кандидат богословия. Одновременно — председатель Общества православных врачей СПб. и духовник Сестричества св. мч. Татианы.
-Первые группы милосердия были созданы о. Сергием в 1993 году. Они состояли из христианок, желавших послужить в больнице. В 1995–1996 гг. батюшкой были основаны (   Читать дальше...   )Жанр: Христианство. Православие. Социальное служениеФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2399B859C9D6F159481356E9D7830B4681A6E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328833   (356645) от 03.10.2019
-
-Т.В. Стрыгина | Библейские истории для детей (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как затеплить веру в сердце малыша? Эта Библия для самых маленьких станет настоящим помощником для родителей. Умная, простая и красивая книга, несущая через весь текст и иллюстрации послание детям о том, что Бог любит их, всегда защитит и поддержит.
+Display Maestro - простая утилита, которая дает вам полный контроль над подключенным дисплеем, позволяя вам изменять не только разрешение экрана, но и глубину цвета, что невозможно сделать стандартными средствами Mac OS X (такая возможность была удалена еще в Mac OS X 10.5 Leopard).
 
-Для детей дошкольного и школьного возраста.Жанр: ПравославиеФормат: FB2
+Примечание: После окончания работы с утилитой, все настройки возвращаются в первоначальное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.10.2019Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88B5188267AAD257032E22ED89F9B379E9210CAD
+magnet:?xt=urn:btih:806BC4295D23BEB6E11439E8EF532CD77F352C99
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -220,27 +214,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329022   (356644) от 03.10.2019
+###  Публикация: 1256149   (359157) от 20.10.2018
 
-Монахиня Евфимия | Тайны монастырей. Жизнь в древних женских обителях (2015) [FB2]
+VA - Rock Sound: 100% Volume No. 149 (2011) [FLAC|Lossless|tracks + .cue] <Rock>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356644.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жизнь за монастырскими стенами всегда была окутана ореолом мистической тайны. Эта книга даёт прекрасную возможность заглянуть внутрь русского монастыря и познакомиться с повседневной жизнью женских обителей по впервые публикующимся в печати архивным данным.
-
-Перед вашим взором пройдёт галерея игумений северных женских обителей, сестёр милосердия, монастырских воспитанниц. (   Читать дальше...   )Жанр: ПравославиеФормат: FB2
+01. Black Veil Brides - Fallen Angels (03:43)
+02. Fucked Up - A Little Death (04:34)
+03. Frank Turner - I am Disappeared (04:39)
+04. Touché Amoré - ~ (01:28)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99540F8670BEED630D71542C1FE9D562F4F2AEE8
+magnet:?xt=urn:btih:5C0BCF8B8822CDE28945906A4D815B372F7E9338
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,28 +243,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329079   (356643) от 03.10.2019
+###  Публикация: 1328878   (359156) от 02.10.2019
 
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+Ronnie Earl And The Broadcasters - Beyond The Blue Door (2019) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
 
->>Other Styles
->>OST (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356643.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+01. Brand New Me
+02. Baby How Long
+03. Drown In My Own Tears
+04. Alexis' Song(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:12:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E54C597433E4DF7FB27A14ED5E18C66BCCDFBB16
+magnet:?xt=urn:btih:1C8F24391C517D6C686AB3210BDED15969ADF7A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,28 +272,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329070   (356642) от 03.10.2019
+###  Публикация: 1328832   (359154) от 02.10.2019
 
-Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+The James Pitts Band - Come To Play The Blues (2019) [MP3|320 Kbps] <Blues Rock>
 
->>Other Styles
->>OST
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356642.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359154.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Devil We Know (02:15)
-02. The Devil We Know Main Title (03:11)
-03. Liable Motion (05:17)
-04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
+01. I've Got Trouble (03:08)
+02. Love Me (02:40)
+03. Come To Play The Blues (05:06)
+04. We're Gonna Boogie (02:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99B0697726DF45FF8C93804150EA24A0FBF50B44
+magnet:?xt=urn:btih:53F0170153866D31DD4E868D9283A39AB80EB667
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -306,28 +301,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329115   (356641) от 03.10.2019
+###  Публикация: 1328732   (359153) от 02.10.2019
 
-Johann Johannsson - Mandy / Менди (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+Type O Negative - The Best Of Type O Negative (2006) [APE|Lossless|image + .cue] <Gothic Metal>
 
->>Other Styles
->>OST
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356641.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359153.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Seeker Of The Serpent's Eye (02:12)
-02. Starling (02:15)
-03. Mandy Love Theme (04:39)
-04. Horns Of Abraxas (01:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:41:19
+01. Unsuccessfully Coping With the Natural Beauty of Infidelity
+02. Christian Woman (Edit)
+03. Black No. 1 (Edit)
+04. Too Late: Frozen(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 01:08:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:895C453BAD7471C936B1D9A8F67AEC2B08A12AF3
+magnet:?xt=urn:btih:61F28B7CD369B140705A96658FC57930A9AFAF4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,57 +330,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329169   (356640) от 03.10.2019
+###  Публикация: 1256145   (359152) от 20.10.2018
 
-Robert Nickson - Tellurian (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robert Nickson - Arecibo (2:45)
-02. Robert Nickson - Iridium Flare (5:26)
-03. Robert Nickson with Thea Riley - Feed My Soul (3:44)
-04. Robert Nickson - California (4:24)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD3858D1A8067226DA866C2930C95F3A5DDB91A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329080   (356639) от 03.10.2019
-
-Hildur Gudnadottir, Rutger Hoedemaekers, Johann Johannsson - Trapped / Капкан (Original Television Series Soundtrack) (2019) [FLAC 2.0|24/48|tracks|WEB-DL] <Soundtrack>
+VA - Ori Uplift & Kayan Code - Uplifting Only 297 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356639.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359152.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. H.Gudnadottir, R.Hoedemaekers - Your Own Son (01:43)
-02. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Trapped (01:31)
-03. H.Gudnadottir, R.Hoedemaekers, J.Johannsson - Examining the Body (02:19)
-04. H.Gudnadottir, R.Hoedemaekers - A Political Murder (02:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:33
+01. DreamLife - Morning Tears (Intro Edit) (Fan Favorite 293)
+02. Roman Messer & Betsie Larkin - Unite (Steve Allen Remix)
+03. Jonas Steur ft. Jennifer Rene - Fall To Pieces (Daniel Skyver Remix) (Exclusive Premiere)
+04. Calvin O'Commor - Light Years Away(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80051EE18FCDC8DF28952439E6CD0F5C4C2D6B49
+magnet:?xt=urn:btih:D6F377CF22188CFD72EBA1979734AAEBD408643A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -393,138 +359,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329083   (356638) от 03.10.2019
+###  Публикация: 1328669   (359151) от 02.10.2019
 
-Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape Room (03:40)
-02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
-03. The Invitation (04:43)
-04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B767A3CC194821AD9B66AB0F3AAE46D3BDEE2D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329071   (356637) от 03.10.2019
-
-Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil We Know (02:15)
-02. The Devil We Know Main Title (03:11)
-03. Liable Motion (05:17)
-04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5219B60E23FB76262FAAC490F0083FBD29E436F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329102   (356636) от 03.10.2019
-
-Jуhann Jуhannsson - The Theory of Everything / Вселенная Стивена Хокинга (Original Motion Picture Soundtrack) (2014) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cambridge, 1963 (01:42)
-02. Rowing (01:42)
-03. Domestic Pressures (02:37)
-04. Chalkboard (01:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3EBAD0FDC86A95BF2ABEB1EC85E41732D791F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329096   (356635) от 03.10.2019
-
-Радости и печали маленького лорда (2003) DVD9
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356635.jpg" />
-</div>
-
-
-###  Подробнее
-
-В небольшом американском городке позапрошлого века растет восьмилетний мальчик, сын скромной учительницы музыки. Друзья уважают его за доброту и справедливость, и Седрик - так зовут мальчика, - дорожит их уважением. Равно как и памятью отца, которого он никогда не видел. Седрик привык думать, что мать и ее рассказы об отце это и есть вся его семья. Но однажды он (   Читать дальше...   )Производство: РоссияЖанр: Семейный, Сказка, ДрамаРежиссер: Иван ПоповАктеры: Станислав Сергеевич Говорухин, Ольга Будина, Олег Менделевич Шкловский, Сергей Ишханович Газаров, Алексей ВеселкинСубтитры: русские, английскиеПродолжительность: 01:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC3829FFA196D1CCCD6F3F816F80F8C23F786A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329065   (356634) от 03.10.2019
-
-Кирилл Андреев (сост.) | Новая сигнальная [Сборник] (1963) [FB2]
+Ариадна Громова | Мы одной крови — ты и я! (1967) [FB2]
 
 >>Художественная литература
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356634.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359151.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Биофизик Джордж Корин пять лет прожил в одиночестве на тихой уютной планете. Посетившие однажды планету космонавты обнаруживают Джорджа бесплотным. Что же случилось на планете, и куда исчез настоящий Джордж?Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
+Молодой учёный увлёкся гипнозом и решил испытать его на... собственном коте. Последствия оказались шокирующими: кот начал, как попугай, повторять внушённые ему слова на чистейшем русском языке. Пока хозяин со своими коллегами ломает голову над феноменом «говорящего кота», перед ними незаметно вырастает проблема куда более глобальная: этика опытов над животными, обращение (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1BA10D18D05DC311606F37201D830485A3D8E4E
+magnet:?xt=urn:btih:420B1F874A0823BA1307401BA7F4912191F6B52C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,25 +385,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329029   (356633) от 03.10.2019
+###  Публикация: 1328936   (359150) от 02.10.2019
 
-BurnAware Professional 12.7 RePack (& Portable) by KpoJIuK [Multi/Ru]
+Telegram Desktop 1.8.12 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356633.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359150.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+Telegram — это приложение для обмена сообщениями. Почти как SMS, однако помимо отправки простых текстовых сообщений, можно также отправлять фото, видео и любые другие файлы. Ещё можно создавать конференции для группового чата.Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:886924DECA0E26D2F7E8AEFF687401A8F22B6F82
+magnet:?xt=urn:btih:094F4AD79845DB9FDF49BCBC872DF6F59D2FBD53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,112 +411,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329090   (356632) от 03.10.2019
+###  Публикация: 1328670   (359149) от 02.10.2019
 
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356632.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010B545F1DADF20478E467A6567FE3A5D215594D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329084   (356631) от 03.10.2019
-
-Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape Room (03:40)
-02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
-03. The Invitation (04:43)
-04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80C8CD68B55419531012CF4FC6D129C685A5F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329091   (356630) от 03.10.2019
-
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356630.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B893CFE9751C9CE235E3DE209EA28A3A9731B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329063   (356629) от 03.10.2019
-
-Михаил Емцев, Еремей Парнов | Зеленая креветка [Сборник] (1966) [FB2]
+Aриадна Громова, Виктор Комаров | По следам неведомого (1959) [FB2]
 
 >>Художественная литература
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356629.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359149.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Четырем африканцам и одному белому суд вынес смертный приговор. Но по слухам приговор не был приведен в исполнение, а заключенных отправили в специальную резервацию. Два друга решили освободить белого смертника и заодно разузнать, что же скрывается под маской резерваций-рудников…Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
+Роман разбит на несколько связанных частей. В первой части советский журналист в компании «акул пера» отправляется на покорение вершин Гималаев. Там он знакомится с англичанином Милфордом, с которым натыкается на местную легенду о «Чёрной Смерти». Они с мальчиком проводником отправляются на поиски места, которое местное племя шерпов считает проклятым.
+Во второй и (   Читать дальше...   )Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91F16734B09DCC7DFA22DA68CE78EFC086857302
+magnet:?xt=urn:btih:87ED9C5A38F7EFA375910F2D13C1F50FC87AB204
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,25 +438,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 837514   (356618) от 03.11.2014
+###  Публикация: 1328761   (359147) от 02.10.2019
 
-Артур Древс | Миф о христе [2 тома] (1924-1925) [DJVU]
+Владимир Михановский | Шаги в бесконечности (1973) [FB2]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Художественная литература
+>>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359147.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Артур Древс (1865-1935) - немецкий философ, писатель, ученик Н. Гартмана, наряду с Б. Бауэром, А. Кальтхофом и др. принадлежит к известным немецким полемистам, отрицающим реальность существования Иисуса Христа в истории. Его произведение «Миф о христе» (1909) вызвало многочисленные открытые дискуссии, широкие протесты христианской общественности и резкую критику (   Читать дальше...   )Формат: DJVU
+Действие научно-фантастического романа В.Михановского происходит в далеком будущем, когда наука достигнет таких высот, которые позволят ей овладеть гравитацией. Сюжет романа построен вокруг полёта космического корабля к Тритону, чёрной дыре в созвездии Тельца. Команда этого корабля состоит из командира-человека и нескольких белковых роботов.Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6E62DF60FF83F6BAADF34C2FB04DA10D1FE47648
+magnet:?xt=urn:btih:A7A9587556F81C39DC027D0800B195510E73E055
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,26 +464,249 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 837313   (356613) от 03.11.2014
+###  Публикация: 1255881   (359146) от 20.10.2018
 
-Серебристый звон ручья (2013) HDTVRip [H.264/1080p-LQ]
+Deckset 2.0 v2.0.8 [En]
 
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356613.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359146.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главная героиня Леся — сирота, живет в глухой деревушке на берегу ручья у своей старенькой бабушки Шуры, которую местные жители считают колдуньей. Но на самом деле Шура потомственная знахарка, обладающая даром лечить людей. Леся с детства помогает бабке собирать травы для целебных отваров, и сама лечит разнообразную живность, которую ей приводят односельчане.
-Однажды (   Читать дальше...   )Производство: Россия/"Weit Media"Жанр: МелодрамаРежиссер: Игорь КечаевАктеры: Татьяна Полосина, Ада Роговцева, Илья Ильин, Александр Пашков, Владимир Смирнов и др.Перевод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:30:13
+Поистине если человеку лень что-либо делать, он готов сделать все что угодно, чтобы не делать то, что ему не хочется делать. Яркий пример — программа Deckset, которая позволяет создавать симпатичные презентации… на основе простого текста.
+
+Если вы знакомы с языком разметки Markdown, то суть работы в Deckset вам будет понятна. То есть вы просто составляете текстовое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.10.2018Разработчик: Unsigned Integer UGПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFF4685928805BC2AF3ACFB0EF01DC588962AAE1
+magnet:?xt=urn:btih:7DB0C88522B57A5996DED04CEC06A39E117F6925
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 254638   (359145) от 06.11.2010
+
+В джазе только девушки / Some Like It Hot (1959) HDTV [1080i]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359145.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда чикагские музыканты Джо и Джерри случайно становятся свидетелями бандитской перестрелки, они в срочном порядке смываются на поезде во Флориду, прикинувшись женщинами. Теперь они — Джозефина и Дафна, новенькие и хорошенькие инструменталистки женского джаз — банда.  До поры до времени их маскировка срабатывает. Но вскоре любвеобильная солистка «западает» на переодетую мужчиной Джозефину, престарелый плейбой влюбляется в Дафну, а босс мафии, разгадав тайну маскарада, решает срочно разделаться со свидетелямиЖанр: комедия, мелодрама, приключения, музыкаРежиссер: Билли УайлдерВ ролях: Мэрилин Монро, Тони Кертис, Джек Леммон, Джордж Рафт, Пэт О’Брайен, Джо Е. Браун, Нехемия Персофф, Джоан Шоули, Билли Грэй, Джордж Е. Стоун. Дэйв Барри.....Перевод: Профессиональный (полное дублирование), полная версияФормат: TSПродолжительность: 02:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BC1BAFE421AA203BAEB422CAE32DCA0DE6D8F15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328826   (359144) от 02.10.2019
+
+Футбол. Лига Чемпионов 2019-2020. Группа B.2-й тур. Тоттенхэм Хотспур (Англия) - Бавария (Германия) (01.10.2019) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лига Чемпионов 2019-2020 / Группа B / 2-й тур.Тоттенхэм Хотспур (Англия) - Бавария (Германия)
+Стадион: Тоттенхэм Хотспур (Лондон, Англия), 60 127 зрителей (97 % при вместимости 62 062)
+Главный судья: Клеман Турпен (Улинс, Франция); Ассистент: Николя Дано (Мюре, Франция); Ассистент: Сириль Гренгор (Франция)Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4546D6CCE8A7801B17B7945ADB61B3DDF3D773C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328768   (359143) от 02.10.2019
+
+Jimmy D. Lane - 3 альбома (1997 - 2004) [FLAC|Lossless|image + .cue|tracks + .cue] <Blues, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359143.jpg" />
+</div>
+
+
+###  Подробнее
+
+Блюзу не учатся. Блюз должен быть в крови. Сегодня существуют настоящие блюзовые династии. Но ярчайшим из всех "наследных блюзменов" является Джимми Ди Лейн (Jimmy D. Lane). Джимми Ди Лейн родился в Чикаго в 1965 году в семье Джеймса Эй Лейна (James A.Lane), в блюзе известного под именем Jimmy Rogers. В 50-х годах многие песни Джимми Роджерса попадали в (   Читать дальше...   )Список альбомов:
+1984 - Dreamtime
+1985 - Love
+1987 - ElectricЖанр: Blues, Modern Electric BluesПродолжительность: 02:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B596333C33A0B0CC6E4EB41DDC65B4C902DAF288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1255913   (359142) от 20.10.2018
+
+Sip Pro 1.1.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крошечная, но очень полезная программа разработанная Rui Aureliano для людей, которые тесно связаны с веб-дизайном.
+При помощи данной программы можно определить код цвета на любом участке экрана. После установки в системном меню появляется ярлык программы. Далее все просто. Выбираем Pick Color и увеличительную площадь наводим на область, в которой хотим узнать цвет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2018Разработчик: Rui AurelianoПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7165ED498DEA0C6AA89FF39AF8D20F75C4B01F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 255065   (359141) от 06.11.2010
+
+Рыцарь Дорог / Knight Rider (2008) DVDRip (сезон 1, серии 1-17 из 17 + пилот) [СТС]
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_359141.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение знаменитого телесериала, который шёл с 1982 по 1984 год на канале NBC.
+Как и раньше, машина по имени KITT (Knight Industries Three Thousand) является самым совершенным автомобилем из всех когда-либо созданных: в нём и суперкомпьютер, способный взломать любую систему, и всё необходимое оружие, к тому же он совершенно неуязвим.
+А благодаря работе его создателя (   Читать дальше...   )Производство: СШАЖанр: Фантастика, БоевикРежиссер: Стив ШиллАктеры: Джастин Бруенинг, Дианна Руссо, Сидни Тамиа Пуатье, Брюс Дэвисон, Дэвид Хассельхофф, Вэл КилмерПеревод: Многоголосый закадровый (СТС, «Русский дубляж»)Продолжительность: 17 серий по  ~00:41:00 + пилот - 01:20:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256182   (359140) от 20.10.2018
+
+VA - Rock Sound: Bugging Your Ears! No.131 (2010) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Me at Six - The Consequence (04:29)
+02. We Are the Ocean - (I’ll Grab You by the) Neck of the Woods (03:46)
+03. Day of the Sirens - Juneifer (03:53)
+04. Dommin - Dark Holiday (03:15)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15E27AA9A4DA5529E684D21BD5B4199551402FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256015   (359139) от 20.10.2018
+
+VA - Nothing But... Amsterdam Dance Essentials 2018 Big Room (2018) [MP3|320 Kbps] <House, Big-Room, Progressive, Electro-House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZENAVO - Way Back (Original Mix)
+02. J3tcat - The Great Wall (Original Mix)
+03. Chris Fielding feat. Bibiane Z - Enemy (Bitas Remix)
+04. Fenox - Love All Over (Original Mix)(   Читать дальше...   )Жанр: House, Big-Room, Progressive, Electro-HouseПродолжительность: 01:46:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBEB9516121323EB2C987657FCB8146DBAA7E01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256138   (359138) от 20.10.2018
+
+EdgeView 2 v2.460 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359138.jpg" />
+</div>
+
+
+###  Подробнее
+
+EdgeView 2 - это новейший просмотрщик изображений; вы можете открывать различные файлы изображений и открывать архивные файлы, такие как ZIP и RAR, в своем встроенном файловом браузере без извлечения; вы также можете напрямую подключиться к FTP и открывать файлы; EdgeView - отличный выбор при просмотре и управлении файлами изображений или мультфильмов, такими как (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2018Разработчик: DONGJIN HANПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Корейский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B035689EDAD1D95099DDFBE456D34F1850CD7292
 ```
 
 https://mybot314.ru/tekegram_catalog/

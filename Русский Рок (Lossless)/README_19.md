@@ -1,3 +1,32 @@
+###  Публикация: 1216558   (749571) от 31.03.2018
+
+Вилли Винки - Хорошая-Плохая (2002) [FLAC|lossless|image + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Если растает дым (02:50)
+02. Не верю!!! (04:20)
+03. Завернувшись в ночь (03:29)
+04. Нам хорошо! (04:23)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A0E2BFC60FBCAE48F93F089975B7C4627FCE5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216590   (749569) от 31.03.2018
 
 Инструкция по Выживанию - Выступление на фестивале «Индюки» (1991/2018) [APE|lossless|image + .cue] <Post Punk>
@@ -717,35 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6D198893903D17212E5103FB6EB24599EBAB3DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022748   (727032) от 03.06.2016
-
-АукцЫон - На солнце (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сынок
-02. И день и ночь
-03. Пропал
-04. Луна упала(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFB486D06FC39BB6E921507B3EFFC7E829A3DFC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

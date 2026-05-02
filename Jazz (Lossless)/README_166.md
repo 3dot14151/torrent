@@ -1,3 +1,67 @@
+###  Публикация: 1317597   (500497) от 01.08.2019
+
+Art Pepper & The Hollywood All-Stars - Art Standards (1979 - 1982) 2002, Galaxy [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begin the Beguine [6:51]
+02. You'd Be So Nice to Come Home To [6:49]
+03. Night and Day [10:00]
+04. Bernie's Tune [8:40](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85C63EE78D1C7491200EEDA2F8D1CA44CBDB8349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541636   (500436) от 01.09.2012
+
+VA - Jazz Ladies & Stan Kenton (1996) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Connor - And The Bull Walked Around, Olay [02:40]
+02. Chris Connor - All About Ronnie [02:53]
+03. Chris Connor - Jeepers Creepers [02:20]
+04. Chris Connor - If I Should Lose You [02:41]
+05. Chris Connor - I Get A Kick Out Of You [02:44]
+06. Kay Brown - Lonesome Train [02:48]
+07. Jean Turner - A Lot Of Livin' To Do [02:06]
+08. Jean Turner - It's A Big, Wide, Wonderful World [01:41]
+09. Ann Richards - Black Coffee [03:40]
+10. Ann Richards - The Thrill Is Gone [02:52](   Читать дальше...   )Жанр: Jazz VocalФормат: CDПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564483   (499750) от 19.07.2022
 
 Max Roach Double Quartet - Bright Moments (1987) Soul Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -682,64 +746,6 @@ Matt Mauser And The Pete Jacobs Big Band - Perfectly Frank (2013) Whitestone Rec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CC96CE74630CB70197048D3FB89203C21B036D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936393   (496497) от 11.09.2015
-
-Charles Lloyd - Discovery! (1964) /2014, Sony Music/[FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forest Flower [07:55]
-02. How Can I Tell You? [05:17]
-03. Little Peace [06:33]
-04. Bizzare [04:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E51ABEF2BE2D63DACCC1CC58774E20043667D802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936424   (496496) от 11.09.2015
-
-Art Tatum & Buddy DeFranco - The Art Tatum-Buddy DeFranco Quartet (1953-1954) /2015, Poll Winners Records/[FLAC|tracks+.cue]<Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Night [05:50]
-02. This Can't Be Love [04:41]
-03. Memories Of You [07:13]
-04. Once In A While [05:16](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:846D65EA6DB2C8B902CFB21D71368405B96E4CBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

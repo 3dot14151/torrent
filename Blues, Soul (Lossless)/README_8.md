@@ -1,3 +1,119 @@
+###  Публикация: 1609217   (1043253) от 03.02.2023
+
+Kevin & JD - Blues Truckin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ring Around Rosie (3:22)
+02. Come On By (3:49)
+03. Can't Quit The Blues (5:06)
+04. Blues Truckin' (3:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C7E22921FA967D463320AC85E7F9BFCF4C66087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609210   (1043235) от 03.02.2023
+
+Jackie Venson - Evolution of Joy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afterglow #evolution (4:53)
+02. Flying #evolution (4:18)
+03. Listen (1:37)
+04. All Rise #evolution (3:07)(   Читать дальше...   )Жанр: Blues, Soul, R&BПродолжительность: 01:05:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DFEB0E0DD37D7B28855C66406919C03E58D522C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436464   (1043029) от 01.01.2021
+
+Edgar Blues Trio - The Next Step (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murph Blues (3:16)
+02. Cold Hands (5:21)
+03. Rude Girl (4:26)
+04. Your Man (5:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF7547EA379C626CD798D5E958845D5525D2386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436853   (1042767) от 02.01.2021
+
+The Proven Ones - You Ain't Done (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Love Intro (0:58)
+02. Get Love (4:01)
+03. Gone to Stay (3:32)
+04. You Ain't Done (4:02)(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8863AD0284DF2266BE312735E1C8A86491CC132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436842   (1042765) от 02.01.2021
 
 Fried Okra Band - Doing It Right (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -626,122 +742,6 @@ Joe Cicero - Footprints in the Snow (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02BB899FBB57D35512C2DB7251E151D7ECA5264A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611124   (1041618) от 10.02.2023
-
-Mark Thomann - Plastic Flowers (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plastic Flowers (4:54)
-02. Bush Rocket (4:30)
-03. Ain't No Way (3:44)
-04. My Father's Voice (4:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B39945F4A4502E31FD4458B1EBAC7599942DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611127   (1041616) от 10.02.2023
-
-Mississippi MacDonald - Heavy State Loving Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Howlin' Wolf (4:10)
-02. Heavy State Loving Blues (4:20)
-03. Vaneese Thomas -- Blind Leading The Blind (4:08)
-04. Heading South (3:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77327F3C564C3398B7C4E0A80824A8DBFAD65AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611128   (1041615) от 10.02.2023
-
-Tas Cru - Riffin' The Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riffin' The Blue (4:50)
-02. Brown Liquor Woman (3:21)
-03. Stand Up! (3:33)
-04. One More Time (7:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15872365E05E2D8B458406C01C431916D35A644B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611122   (1041603) от 10.02.2023
-
-Johnny Tsunami and the Hurricanes - Blowin' the Roof off the Motha (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Enigma (3:48)
-02. Red Cloud (3:38)
-03. Cried All Night (3:29)
-04. Dimples (6:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44BCCC272A0C3413AA784EC1235F63119C3737AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

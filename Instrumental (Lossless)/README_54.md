@@ -1,3 +1,119 @@
+###  Публикация: 1145360   (621643) от 25.06.2017
+
+Othman Wahabi - Night Trippin' Vol.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celestial Quest (06:10)
+02. Burning Sun (05:53)
+03. Catfish Blues (05:09)
+04. Soul For The Devil (03:21)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA0498B55944C2DF35F5B3CB1045C53816C6B101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036385   (621087) от 20.07.2016
+
+The Stumble - The World Is Tough (2006) [FLAC|Lossless|image + .cue] <Blues, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You Upset Me Baby    03:34
+02.  Leading Me On    02:41
+03.  The World Is Tough    03:55
+04.  All Over Again    11:03(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E82C72BCBED2DCF95B461CAEAF7405AD0BBECE4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544694   (620199) от 16.04.2022
+
+Blaa Trikaa - Part of My Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Day (3:42)
+02. Sleep Another Minute (4:18)
+03. Locomotive Man (4:03)
+04. Circle of Sin (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2903E26F5D2BECB8E3AD03BE0E8C0508DF33C05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544690   (620195) от 16.04.2022
+
+Andrew Thabah - In the Shadow of Your Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Down on Your Knees (3:59)
+02. Free as Love Can Be (5:30)
+03. I Feel Swell (3:29)
+04. In the Shadow of Your Love (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30DDEB3393B721D0F151AAE8246A83317909643
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036613   (619147) от 21.07.2016
 
 Larry Miller - Unfinished Business (2010) [APE|Lossless|image + .cue] <Blues Rock>
@@ -646,122 +762,6 @@ Buddy Guy - The Blues Is Alive and Well (2018) [FLAC|Lossless|image + .cue] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78D327E2E7679D8C484D751EECF206F9626F7276
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913196   (606930) от 28.06.2015
-
-Ana & Milton Popovic - Blue Room (2015) [FLAC|image+.cue]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catfish Blues (02:20)
-02. I'm Losing You (04:38)
-03. Evening Shadows (04:06)
-04. Grant Spivey (03:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7FC6175EF3A2D98E5653760B70CAEED065E164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546860   (604612) от 25.04.2022
-
-By John and Linda Trinckes - Best of Blues and Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues and Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Bottoms Up (2:42)
-02. Don't Come a-Knockin' (4:27)
-03. Don't Go, Come Here You (3:28)
-04. Don't You Dare (3:53)(   Читать дальше...   )Жанр: Blues and RockПродолжительность: 00:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F0C27DFE20A0BD6DA3DF389E2F806EA3A5F458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546862   (604249) от 25.04.2022
-
-Greenslade and Thomas - G & T (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Wants To Talk To You (3:18)
-02. Sabotage (4:20)
-03. Freefall (3:57)
-04. Late Coming Love (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CCC60462A95F5352BC941FC5DD866D1D280E1E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547006   (603987) от 26.04.2022
-
-The Intruders - Cowboys To Girls - The Best of the Intruder (1995) [FLAC|Lossless|tracks + .cue] <Soul, Funk, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603987.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Love That's Real
-2. Cowboys To Girls
-3. Together
-4. (We'll Be) United(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 01:11:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A88F5C4C794D14DCF7ED010B99828DCEC06F27D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

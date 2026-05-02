@@ -1,3 +1,61 @@
+###  Публикация: 1582998   (316818) от 12.10.2022
+
+Erroll Garner - Symphony Hall Concert (1959) 2021, Mack Avenue [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Foggy Day (In London Town) [5:07]
+02. But Not for Me [3:45]
+03. I Can't Get Started with You [4:45]
+04. Dreamy [3:23](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 00:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74B0E0F1807210E1427A4E2E80A94F6167373A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583000   (316816) от 12.10.2022
+
+Erroll Garner - Feeling Is Believing (1970) 2020, Mack Avenue [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Once in My Life [3:26]
+02. Yesterday [3:08]
+03. The Look of Love [2:43]
+04. You Turned Me Around [8:04](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 00:44:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A876F778EEE46080709109976B325642B0D00D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259824   (316782) от 05.11.2018
 
 Steve Lacy - Six Classic Albums (1956 - 1961) 4CD, 2017, Real Gone Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
@@ -687,64 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE9D2ED26116BF3C07F912B5F17434F4EA5637F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959695   (312642) от 26.11.2015
-
-Steve Grossman - Live At Cafe Praga (1990) 2015, Timeless Records[FLAC|tracks+.cue]<Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues Walk [14:07]
- 02.Ruby My Dear [11:43]
- 03.Time Was [10:43]
- 04.When I Fall In Love [08:40](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93639923240FC2B8AB17021CD56514E2D9B3804F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960011   (312641) от 26.11.2015
-
-Sonny Rollins - Way Out West (1957) 2000, Fantasy[FLAC|tracks+.cue]<Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I'm An Old Cowhand [05:44]
- 02.Solitude [07:54]
- 03.Come, Gone [07:54]
- 04.Wagon Wheels [10:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7487193ECF266CDF4D244140DF87A7A51ED1A664
 ```
 
 https://mybot314.ru/tekegram_catalog/

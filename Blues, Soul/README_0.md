@@ -1,3 +1,32 @@
+###  Публикация: 1443065   (1035920) от 27.01.2021
+
+Natural Blues - Elementary Power (2021) [MP3|320 Kbps] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leave You In The Morning (Single Version) (03:22)
+ 02. Muddy Waters (03:51)
+ 03. Mr. President (05:09)
+ 04. Three O'Clock In The Mornin' (05:15)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1BE5E83A4891C1D2C159A008F170DA61F77C210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442793   (1035676) от 28.01.2021
 
 VA - Ladies Sing & Play The Blues Vol. 3 (2020) [MP3|320 Kbps] <Blues>
@@ -716,35 +745,6 @@ Gary Eisenbraun - Throwing Stones (2021) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B51E7CC55064C90317D9C1F4C8E91222FD784F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479950   (1008923) от 28.06.2021
-
-VA - Burning Blues - New Collection of Smoking Blues & Ballads Vol. 06-10 (2019) 5CD [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guitar Man - Char Wesley [05:14]
-02. Derrick Dove & The Peacekeepers - Woke Up This Morning [04:31]
-03. Buddy Guy - Blues Is Alive & Well [05:14]
-04. Burn The Batteau - So Tired [07:11](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 06:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D2E65A848A6AF68F59E22496AAE0363083E06A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,265 @@
+###  Публикация: 1819025   (1595) от 21.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [a006] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1595.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andy Craig - Shattered Dreams (Original Mix).mp3
+002. Andy Craig, Prodigio - Daddy Cool (Original Mix).mp3
+003. Andy Groove & Sam Vince - The Knot (Ivan Seagal Edit).mp3
+004. Ane Brun - All My Tears (Dj Bobby Evs & Barney Remix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:11:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A499D5CA632AC7339B67CC7D07B24019E2DAA324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819023   (1594) от 21.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [a005] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1594.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AM 1984 - El Condor.mp3
+002. AM 1984 - Walking On The Road.mp3
+003. Amadeus - Breaking Point (Original mix).mp3
+004. Amanda Batista - Praia De Ipanema.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B86C2F9D05F2B2ABDE11EEE4B228E26183F9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819022   (1592) от 21.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [a004] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1592.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Sheronov - Solar Soul.mp3
+002. Alex Sin - Crazy (Original Mix).mp3
+003. Alex Spite - Camelia.mp3
+004. Alex Spite - Darkness.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 06:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F51571DC21FAC75819C7979C4DF591CA7FCB615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819207   (1590) от 21.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [b003, Bonus] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1590.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bob Marley - Bad Boys (Arefiev Remix) (Radio Edit).mp3
+002. Boba - Redbone (Kvinn Remix).mp3
+003. Bobby Farrell ft. Monica Bay - Gotta Go Home (Original mix).mp3
+004. Bobina - Invisible Touch (Dmitry Glushkov Remix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 08:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAC2D74636EBB855DDB971F817223D77747D822B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819029   (1589) от 21.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [a008, Bonus] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Погружайтесь в атмосферу Buddha-Bar: танцуя, лежа на диване с закрытыми глазами, медитируя на полу или слушая фоном.
+P.S. Раздачи из серии Premium Playlist - симбиоз жанров: Chillout/Lounge, Dance, EDM, New Age, Pop, Folk, Alternative/Indie, Ballads, Surf, Classical Crossover (Neoclassical, Operatic Pop), Instrumental, Easy Listening, Retro, Oldies etc.001. At 1980 - Oblivion.mp3
+002. Ata Oztuna - I Feel.mp3
+003. Atakan Celik - Devran (Mustafa Cantekin 8th March International Women's Day Remix).mp3
+004. Atakan Eser - Changing Time.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 08:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFAE2A54A40B4F2F696C671FC45DDC45E431BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819419   (1460) от 22.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [c001] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1460.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. C.C. Catch - Cause You Are Young (Johnny Clash Radio Remix).mp3
+002. C.C. Catch - Heaven and Hell (Index-1 Remix).mp3
+003. C.C. Catch - I Can Lose My Heart Tonight (Silver Nail Extended Mix).mp3
+004. Caglar Bal - In My Mind.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3445DEE42130FC8B0957B08935F73A8CCA8FE4B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819421   (1450) от 22.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [c002] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1450.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chaёl feat. kaii - Don't Speak (Amice Remix).mp3
+002. Che Cherry, Sands Live - Oblivious (Scalambrin & Sgarro Remix).mp3
+003. Cheat Codes & Little Mix - Only You.mp3
+004. Cheb Khaled - Aicha (Alexander Holsten & Andrey Vertuga Remix) (Radio Version).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C720C94C1DDB734D5B19C18A475804D3D53828A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819422   (1443) от 22.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [c003, Bonus] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1443.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cocino - Where Do We Go.mp3
+002. Coco, Joezi, Pape Diouf - 7 Seconds.mp3
+003. Code Beat feat. Snoop Dogg, T.I. & Beat Frequency - I Like It (David May & Ebbyman Mix).mp3
+004. Code Breakerz - POISON.mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 08:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C11128B1277B8C182C47F3E0AC5EF0E9DFD1385F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818864   (1301) от 23.09.2025
+
+VA - Tanzlokal-Musik - Premium Playlist (int) [a001] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1301.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A R I Z O N A - Summer Days.mp3
+002. A&G, Northmark feat. Gabri - Run With Me (Radio Edit).mp3
+003. A. Lee - Gotta Let Go (Dub Mix).mp3
+004. A. Rassevich - Come One Way (Original Mix).mp3(   Читать дальше...   )Жанр: Dance, EDM, ChillOut, HouseПродолжительность: 07:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CD6A633F06A0E897C78D63F47E21387D6AAB539
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819676   (1163) от 24.09.2025
 
 VA - Tanzlokal-Musik - Premium Playlist (int) [a002] (2012-2025) [MP3|320 Kbps] <Dance, EDM, ChillOut, House>

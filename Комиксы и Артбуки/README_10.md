@@ -1,29 +1,3 @@
-###  Публикация: 1623480   (243674) от 01.04.2023
-
-Bulwark Studios | Артбук по игре IXION / The Art of IXION (2022) [PDF] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре IXION.Жанр: АртбукЯзык: АнглийскийФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E5B54673336F7A513C0DC4F14A2774200EF0FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623445   (243664) от 01.04.2023
 
 Arkane Studios | Артбук по играм студии Arkane / The Art of Arkane (2020) [PDF] [EN]
@@ -670,6 +644,32 @@ Marvel | Артбук художника Marko Djurdjevic / The Marvel Art of Ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEB6D3DF16104B3731F5E67D2BF6E20D8322C656
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341735   (228530) от 29.11.2019
+
+Coffin Comics | Артбук по комиксу Lady Death / Lady Death: Lingerie № 1 (2019) [CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки из комикса "Lady Death"Жанр: АртбукФормат: CBZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D510ABB97933405B846996C931CB1DBA23E324
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 1135561   (677274) от 21.05.2017
+
+VA - Ori Uplift - Uplifting Only, Episode 222 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677274.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. (0:00:32): Alternate High - Invisible Walls (Trancer)
+2. (0:05:03): Chapter XJ - Let It Go (Derek Palmer Remix) (Beyond the Stars)
+3. (0:10:37): PRE-RELEASE PICK: Twin View - Eris (illitheas Remix) (SSD)
+4. (0:16:15): Fresh Code - Another Chance (Beyond the Stars)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C0130A770CD0D0829EC3A1DDC7D03A72D9A0E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536856   (672785) от 13.03.2022
+
+Johnny de City - Live @ Epic Club Prague, Czech Republic (2022-03-04) [MP3|320 Kbps] <Trance, Various>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672785.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby Neon & Forces - Stardust (Johnny de City Intro Version) w/Johnny de City - ID w/Joel Corry & RAYE & David Guetta - BED (Acapella)
+02. Richard Durand vs. David Guetta & Anne-Marie vs. Magnificence & Seth Hills vs. Steve Aoki & Will Sparks - Don't Send Fire Perseverance (Johnny de City Mashup)
+03. Seven Lions & Blastoyz & Fiora (   Читать дальше...   )Жанр: Trance, VariousПродолжительность: 01:27:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D93266479D6D37A58C2E3EBB9406F5D24E2100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283619   (672233) от 23.03.2019
 
 VA - Live @ Trancemission Heartbeat, A2 Arena Saint Petersburg, Russia 2019-02-16[MP3|320 Kbps] <Trance, Progressive House>
@@ -683,64 +740,6 @@ VA - Markus Schulz - Global DJ Broadcast - World Tour Hawai (2018) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B532E4E1177987E94FCDF522B6812B7B448E3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544243   (622208) от 15.04.2022
-
-MORTEN - Miami Rooftop Sessions, Miami Music Week, United States (2022-03-23) [MP3|320 Kbps] <Electro House, Big Room>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Öwnboss & Sevek - Move Your Body (Intro Edit) w/Wildchild - Renegade Master (Acappella) w/Usher ft. Ludacris & Lil Jon - Yeah!
-02. Swedish House Mafia ft. Sting - Redlight (Mark Roma Remix)
-03. David Guetta & MORTEN - Restless
-04. The Prodigy - No Good (Start The Dance) (MORTEN Edit)(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D99A01AE9B4B7CBDC4A09754792E2F18254DB216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544424   (622183) от 15.04.2022
-
-Third ≡ Party - Tomorrowland Friendship Mix (2022-04-14) [MP3|320 Kbps] <Progressive House, Electro House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Third ≡ Party ft. Alfie Bass - Take Me Away
-02. Eli Brown & Love Regenerator - Moving
-03. Maddix - Activating w/Third ≡ Party ft. FMLYBND - Have No Fear
-04. Third ≡ Party - Arrival(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C14DE89A07F394BAE594DA3BB1E8F505FB71E76
 ```
 
 https://mybot314.ru/tekegram_catalog/

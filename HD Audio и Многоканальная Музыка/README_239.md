@@ -1,3 +1,177 @@
+###  Публикация: 1771001   (31886) от 05.01.2025
+
+Pink Floyd - Eclipsed By The Moon - Studio Outtakes 1972 (2022) EP (Live)[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Travel Sequence (Outtake) [2:22]
+02 - On The Run (Outtake) [1:45]
+03 - Brain Damage (Outtake 1) [1:25]
+04 - Brain Damage (Outtake 2) [2:22]Жанр: Rock, Progressive RockПродолжительность: 00:07:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ACA7C1F6A7DC84648FA829EF34F14ED1C6E1B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771039   (31884) от 05.01.2025
+
+Pink Floyd - Live At Usher Hall (Edinburgh, UK, 4 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shine On You Crazy Diamond (Live At Usher Hall, Edinburgh, UK, 4 November 1974) [21:15]
+02 - Raving And Drooling (Live At Usher Hall, Edinburgh, UK, 4 November 1974) [13:01]
+03 - You've Got To Be Crazy (Live At Usher Hall, Edinburgh, UK, 4 November 1974) [17:34]
+04 - Speak to Me (Live At Usher Hall, Edinburgh, UK, 4 November 1974) [2:24](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71E2CB56E232EC17BCEF5EA14533351ED19FFF6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771022   (31883) от 05.01.2025
+
+Pink Floyd - Live At Théâtre de Plein Air (Colmar, France, 22 June 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Shine On You Crazy Diamond (Live At Théâtre de Plein Air, Colmar, France, 22 June 1974) [22:54]
+02 - Raving And Drooling (Live At Théâtre de Plein Air, Colmar, France, 22 June 1974) [10:52]
+03 - Echoes (Live At Théâtre de Plein Air, Colmar, France, 22 June 1974) [25:27]
+04 - Speak to Me (Live At Théâtre de Plein Air, Colmar, (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3761133FAAD8EA06DDC7595EF94E315A7BDB1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633122   (31813) от 06.01.2025
+
+Umbra Et Imago - Studio Albums (14 releases) (1992-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Darkwave, Neue Deutsche Härte>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Umbra et Imago (лат. «Тень и образ») — немецкая готик-металлическая группа Neue Deutsche Härte, образованная осенью 1991 года.1995 - Gedanken Eines Vampires
+1996 - Mystica Sexualis
+1998 - Machina Mundi
+2000 - Mea CulpaЖанр: Gothic Rock, Darkwave, Neue Deutsche HärteПродолжительность: 14:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D332B390E9FE188060DFE9CF740266275C6BB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772104   (31488) от 09.01.2025
+
+Ringo Starr - Look Up (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Country>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathless (3:03)
+02. Look Up (3:11)
+03. Time On My Hands (4:00)
+04. Never Let Me Go (3:56)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CE99E96C42868CC9DDC66C2B598AD93FCC43507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772076   (31478) от 09.01.2025
+
+Atreyu - Studio Albums (12 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Atreyu — американская группа из округа Ориндж, штат Калифорния, США, образованная в 1998 году. Первоначально группа называлась «Retribution», но позже была переименована в «Atreyu» в честь одного из героев фильма «Бесконечная история».2001 - Fractures In The Facade Of Your Porcelain Beauty (EP)
+2002 - Suicide Notes And Butterfly Kisses
+2004 - The Curse
+2006 - A Death-Grip On YesterdayЖанр: Metalcore, Hard RockПродолжительность: 09:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DEF3DBD049D016F76E5CA9945AD101DD6633FC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772105   (31474) от 09.01.2025
 
 Conquer Divide - Studio Albums (2 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Hard Rock>
@@ -565,180 +739,6 @@ Judas Priest - Sad Wings of Destiny (1976) Remaster, 2025, Exciter Records [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11F789F2A7F5B01444961C5574CC4C9F9412915C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773193   (30992) от 14.01.2025
-
-VA - Romantic Collection. Italia '2000 (2000) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30992.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIDE A:
-01. Toto Cutugno - l'Italiano
-02. Collage - Donna Musica'99
-03. Adriano Celentano - Il Tempo Se Ne Va(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE78891696DFF776329E58CD0CFF2D54C16D6DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770369   (30932) от 14.01.2025
-
-The Smoothies - The Sound of 70s (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_30932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Second Chance (3:21)
-02.  After You've Gone (2:59)
-03.  Waiting for Spring's Call (3:36)
-04.  Forever Us (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40851206D92577BDB3F0C460C871A036F338F317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773415   (30848) от 15.01.2025
-
-Carl Allen - Tippin' (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Parker's Mood (6:15)
-02.  Carl Allen feat. Chris Potter - Happy Times (5:35)
-03.  A Morning Story (6:06)
-04.  Hidden Agenda (5:55)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:10:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDF3E26269133C243E9C71D56BD7E40EE832DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773429   (30847) от 15.01.2025
-
-Nikki Jones Band - Battle Me Up (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  On The Pedal (4:13)
-02.  Rough And Tumble (4:28)
-03.  Look Into The Mirror (5:48)
-04.  Deadbeat Dad (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BC0D88AF9326D5D07A302BD22F6E6E89368049F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773410   (30844) от 15.01.2025
-
-Allison Miller & One O'Clock Lab Band - Big & Lovely (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Big and Lovely (7:34)
-02.  Fuster (9:33)
-03.  Dan Dan (5:43)
-04.  Potomac (7:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73EA5BFF29422E20EF33CB10502FAF8C44E6EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773452   (30842) от 15.01.2025
-
-Zed Charles - Hear My Word (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Anytime (3:34)
-02.  Nobody Has To Know (4:04)
-03.  Hear My Word (3:19)
-04.  Love You More (4:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729280D012FF31295B876FDAD5FBA0599609B1F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,212 @@
+###  Публикация: 526195   (597056) от 24.07.2012
+
+Fausto Papetti - Collections (2009) [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фаусто Папетти был на вершине славы в 1960—1970 гг., и почти каждый его новый альбом достигал вершин хит-парадов. Его сборники выпускались даже на латиноамериканском рынке. В 1970 гг., на пике своей популярности, он выпускал по два альбома в год. Особенностью его сборников также стали сексуальные обложки, на которых изображались обнаженные девушки. Самым продаваемым (   Читать дальше...   )1.  A Whiter Shade Of Pale (2:59)
+2.  All The Time In The World (3:21)
+3.  You're The First, The Last, My Everything (3:07)
+4.  Stayin' Alive (4:34)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2C98A51133311804F932601852933260C0FF95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526603   (596889) от 24.07.2012
+
+В. Цой - Кино в Кино (2002) [MP3|320 кб/с]<Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дальше действовать будем мы [03:52]
+ 02. Закрой за мной дверь, я ухожу [03:59]
+ 03. Раньше в твоих глазах... [02:24]
+ 04. Попробуй спеть вместе со мной [05:14]
+ 05. Перемен! [05:14]
+ 06. Звезда по имени Солнце [03:24]
+ 07. Группа крови [04:21]
+ 08. Невеселая песня [05:49]
+ 09. Следи за собой [05:26]
+ 10. Моро едет к морю [02:22](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC7532414615CB5F716678BF17EAC613E09409CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149878   (596610) от 13.07.2017
+
+Amure - 8 albums (2010-2015) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Фантазия №1 (05:51)
+02. Фантазия №2 (Аллилуя) (05:52)
+03. Фантазия №3 (Rock'n'Roll Mega Drive) (06:39)
+04. Фантазия №4 (06:46)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 09:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9457DDB75FF68260C5032791FB70B5CC036EEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232844   (596358) от 26.06.2018
+
+Kimberly Haynes - In Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kabir's Song
+02. Interlude - Sangeeta’s Soul
+03. I Am Light
+04. Interlude - Sangeeta’s Light(   Читать дальше...   )Жанр: New Age, FolkПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6FAF7E8D4F2C3E25085F403D7AF8E359B9D9B20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299643   (595971) от 03.05.2019
+
+Muddy Waters - Folk Singer (2013) 1964 [FLAC 2.0|192/24|tracks|WEB-DL]<Blues, Folk>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Home Is In The Delta
+02 - Long Distance Call
+03 - My Captain
+04 - Good Morning Little Schoolgirl(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C396E9651DC6F6ED9077152974C3415E17E7766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039451   (595959) от 01.08.2016
+
+Shine Dion - два альбома (1998, 2002) [MP3|192 Kbps, 320 kbps] <folk rock, celtic, psychedelic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Flow 3:00
+02.Mockingbird 3:12
+03.Woods Eternal 4:04
+04.Melancthe 3:48(   Читать дальше...   )Жанр: folk rock, celtic, psychedelicПродолжительность: 01:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3A5A57A66CB39854319B018BD0BC8931786A76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1038762   (595919) от 01.08.2016
+
+Young Summer - Siren (2014) [MP3|320 Kbps] <Indie pop, Alternative>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Striking Distance
+02. Blood Love
+03. Taken
+04. Sons of Lightning(   Читать дальше...   )Жанр: Indie pop, AlternativeПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C46530BAE9FDF2BD0109426A1BF59DF67CC077
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526927   (595585) от 25.07.2012
 
 VA - 100 Hits The Midnight Special (2004) [MP3|256 кб/с]<Country, Folk , Western>
@@ -557,209 +766,6 @@ Valentina Babor - Piano Princess (2015) [MP3|320 кб/с]<Instrumental, Classica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA2A43700A4B46CB02A06A1B7BFA1E30DDA65097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552209   (588516) от 19.05.2022
-
-Evgeny Grinko - Orange Marmalade (2021) [MP3|320 Kbps] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things From The Past (2:23)
-02. It's Foggy Today (3:06)
-03. On The Waves (3:36)
-04. Velvet Elephant (1:51)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AF9F6C2B454113F08AFC9E79C854769B402D06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552210   (588512) от 19.05.2022
-
-Valeriy Dolgin - Erektogitara (2013) [MP3|320 Kbps] <Guitar, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Venera (2:58)
-02. Seksvakuum (5:24)
-03. Akt Perviy (4:06)
-04. Sluchaynaia Sviaz' (5:46)(   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:57:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9493216742E4567BF948BC3A35548724A13133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552258   (588494) от 19.05.2022
-
-Giovanni Marradi - The Best of Giovanni, Vol. 2 (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Annie's Song (2:25)
-02. A Time for Us (3:08)
-03. Spanish Eyes (2:35)
-04. Hymne (2:39)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12F10D214EB5499D759186E73A42773B3A3461D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552254   (588492) от 19.05.2022
-
-Giovanni Marradi - Italian Love Songs (2006) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Back to Sorrento (3:25)
-02. Santa Lucia (4:01)
-03. Tarantella (2:49)
-04. Intermezzo (3:27)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAE8247AA1D4FEAE577CD4517BF7C02AF14BA12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552261   (588479) от 19.05.2022
-
-Giovanni Marradi - The Best of Giovannii, Vol. 3 (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Always Love You (3:53)
-02. When Romeo Wept (3:24)
-03. Don't Make My Brown Eyes Blue (3:06)
-04. First of May (3:06)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B30AB7B3D77B64F3BD1CCC950D1535C57F37DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300851   (588127) от 08.05.2019
-
-Андрей Климковский - Алые паруса (2000) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мечта Ассоль (5:28)
-02. Предсказание (6:00)
-03. Кораблик (4:34)
-04. Океан надежды (7:17)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B14CFD52EBD63B4D39834DECC4608134FCD4016
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1300839   (588125) от 08.05.2019
-
-Allegro Milano - Crocodile Rock - Allegro Milano plays Elton John (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro/I Want You Forever (3:37)
-02. Song for Guy (5:22)
-03. Honky Cat (4:47)
-04. Rocket Man (3:45)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:10:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240EC1DC09DA88F5CABBC37C2C54E10898584F0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

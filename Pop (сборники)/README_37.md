@@ -1,3 +1,119 @@
+###  Публикация: 1280712   (758073) от 04.02.2019
+
+VA - Club Dance Ambience vol.171 (2019) [MP3|320 Kbps] <Dance, Club, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758073.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. #2Маши  - Мама, я танцую  (Assel Remix)
+002. Alex Mota - Samba (Original Mix)
+003. A-Mase - Снегом Стать  (Cover Radio Mix)
+004. A-Mase & Sharliz - Nobody's Home  (G-House Cover Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:08:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8E370255D76C3F7BEF2257DA7413A3701AE0F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522733   (756777) от 08.01.2022
+
+Gin Wigmore - Compilation (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy Ever After
+02. Sweet Hel
+03. Beatnik Trip
+04. Hallelujah(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532C79A071488C037D183B36FCA43F249CD60716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522728   (756642) от 08.01.2022
+
+Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mademoiselle chante le blues
+02. Patou Blues
+03. Space In My Heart
+04. Alone(   Читать дальше...   )Жанр: Pop, Chanson FrancaiseПродолжительность: 04:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0094EDEBFD09573767A2FC5EA8DE9F70E0008E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522677   (756329) от 08.01.2022
+
+VA - Наше Радио. Лучшее '2021 (2022) MP3 от DON Music [MP3|320 Kbps] <Русский Рок>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756329.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. J-МОРС - Здравствуй
+002. Сурганова и Оркестр - Волчица
+003. СерьГа - Своим чередом
+004. Майк Привалов - Пароль(   Читать дальше...   )Жанр: Русский РокПродолжительность: 12:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F897216B48B9AA2A78B8455D33E549B77F9205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018342   (755685) от 20.05.2016
 
 VA - Русский Популярный Хит Формат (2016) [MP3|256-320 кб/с] <Pop>
@@ -629,122 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 8 (2016) [MP3|320 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4F26D95DDC2ABAE55FA6737795C0FA4D72F7624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019568   (748355) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 2 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Emotion - Don`t Stop ( 1984 )
-02. Mo-Do - Eins, Zwel, Polizel ( 1994 )
-03. C.C.Catch - Cause You Are Young ( 1986 )
-04. Michael Jackson - Bad ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED354EFAE6A7FB6FC0643DB0882AED007B30654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019587   (748347) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 6 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. O'Kay - The Wild Wild Western ( 1989 )
-02. Al Bano & Romina Power - Felicitа ( 1982 )
-03. Scotch - Delirio Mind ( 1985 )
-04. Adriano Celentano - Susanna ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9865C06BDA3EE9A51971CAD567DDE014B18333EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019572   (748332) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 3 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fancy - Colder Than Ice ( 1985 )
-02. Flirts - Boy Crazy ( 1982 )
-03. Lee Marrow - Shangai ( 1987 )
-04. Modern Talking - You Can Win If You Want ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F654E57E8B6AFFFF53F4652E143E4FBB315AC37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019616   (748198) от 24.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 10 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - Diamonds Never Made A Lady ( 1985 )
-02. Grant Miller - Doctor For My Heart ( 1986 )
-03. Les McKeown - It' A Game ( 1989 )
-04. Trans X - Living On Video ( Radio Mix 1988 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B5D1E4CA183C4CC1D06CC9F25C601858B72010F
 ```
 
 https://mybot314.ru/tekegram_catalog/

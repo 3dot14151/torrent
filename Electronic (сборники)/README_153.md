@@ -1,3 +1,67 @@
+###  Публикация: 1172559   (392826) от 08.10.2017
+
+VA - Beatport Top 100 Downloads September (2017) [MP3|320 Kbps] <Electro, Indie, Nu Disco и другие>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Max Chapman - La Fiesta (Original Mix)
+02. CamelPhat, Elderbrook - Cola (Original Mix)
+03. Jamie Jones - Kooky Chords (Original Mix)
+04. Roberto Capuano, Luigi Madonna - Midfield (Original Mix)(   Читать дальше...   )Жанр: Electro, Indie, Nu Disco и другиеПродолжительность: 11:02:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:956EA05CF9DBE34C3212CA395D82254C16C1BAE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 569697   (392292) от 03.11.2012
+
+VA - Trance Universe Vol.8 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivica Vanevski - Irriversibility (7:44)
+ 02. Esprit Fort - Rise - Club Mix (7:24)
+ 03. Arman Bas - The Lonely Shepherd (7:25)
+ 04. Vol Deeman - Purple Rain (7:26)
+ 05. Matt Pincer - One Night in July (8:43)
+ 06. Corn Flakes 3D - All in One (6:29)
+ 07. Rene Ablaze - Destination Daylight (Feat. Stine Grove) - Rene Ablaze Remix (8:11)
+ 08. M.C.K. - Relax (8:55)
+ 09. Mindsurfer - Hidden Secrets (5:23)
+ 10. Sivan Khan - As Time Shifts (7:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0B2D641E80145FF3D260A64C1BEE75DDEED7FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569797   (392287) от 03.11.2012
 
 VA - Best of World Trance. October (2012) [MP3|320 кб/с]<Trance>
@@ -771,70 +835,6 @@ VA - Beatport Trance Pack  (29.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:773AD99E2A56872F5003864F6A84DA7E1F6457A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067413   (387818) от 29.10.2016
-
-VA - Turbo mix №8 (2016) [MP3|319-320 Kbps] <Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387818.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.2Drunk2Funk - God Is A DJ (Radio Edit)
-002.3LAU Ft. Yeah Boy - Is It Love (Riggi & Piros Remix)
-003.50 cent & MOT  - Папа дай мне Inferno  (Dok-Hi Mush Up)
-004.50 Cent Feat. Justin Timberlake And Timbaland - Ayo Technology (Talyk Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 08:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A381C21BE5D01546CD533D58C4BD32A93F95DB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571145   (387739) от 07.11.2012
-
-VA - In Colours (9CD) (2010-2012) [MP3|320 кб/с]<Chillout, Lounge, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387739.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mikael Delta - Water Mirroring (3:59)
-2. PrOmid - Caress (Original Mix) (4:49)
-3. Erik Hakansson - Smooth (Original Mix) (3:45)
-4. Polished Chrome - Secret Of Sound (5:02)
-5. Alexsandro Da Silva - Dacota Sunlight (Far Away Mix) (6:54)
-6. Jens Buchert - Dominion (5:36)
-7. The Flashbulb - The History Of Rain (1:57)
-8. Islands Of Chill - Bring Back Silence (Cool & Lazy Afternoon Cut) (4:47)
-9. Jamie Ball As Action Bastard - Kowloon Side (3:18)
-10. Uranus - Your Eyes (4:09)(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, DowntempoПродолжительность: 12:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CAF0572F487C930F7D2709BE88A9B9C9FDDDA69
 ```
 
 https://mybot314.ru/tekegram_catalog/

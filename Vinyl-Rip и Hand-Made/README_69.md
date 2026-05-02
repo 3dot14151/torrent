@@ -1,3 +1,177 @@
+###  Публикация: 1704948   (114020) от 06.03.2024
+
+Вальдо де лос Риос - Волшебная Музыка (1979) [FLAC 24/192|Lossless|tracks] <Modern Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Все говорят (из к/ф Полночный ковбой)
+Everybody's Talkin' (F. Neil)
+02. Жан(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 00:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EDB0F1F0C0D21B87443ABE4128229D8A20371B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704952   (114018) от 06.03.2024
+
+Вахтанг Кикабидзе - Пока сердце поет (1979) [FLAC 24/192|Lossless|tracks] <Retro, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114018.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Пока сердце поёт (А. Ованов – Н. Арешидзе)
+02. Ты сама ко мне придёшь (Г. Каландадзе – П. Грузинский)
+03. Куда ушли вы, молодые годы (Н. Адилашвили – В. Гоголашвили)(   Читать дальше...   )Жанр: Retro, PopПродолжительность: 00:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39ED83346B49088FF2ADF07D0BC7F29EC076C01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705071   (113997) от 07.03.2024
+
+Emerson, Lake & Palmer - Trilogy (1972) 1990-е [FLAC 24/192|Lossless|tracks] <Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1.
+01.The Endless Enigma (Part One) (Emerson – Lake)
+02.Fugue (Emerson)
+03.The Endless Enigma (Part Two) (Emerson – Lake)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018E67962A302C3D49C479902155EFD3BE49917E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704959   (113987) от 07.03.2024
+
+ВИА «ABC» под управлением Ангело Владковича (Югославия) - ABC (1975) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Ватерлоо (Б.Андерсон)
+02. Мечты (И.Швагер)
+03. Какая она красивая (Д.Паце)(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76BCE4ACB02973B7909510EFAF84EBA4FF652A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705074   (113973) от 07.03.2024
+
+VA - With love to children (С любовью к детям) (1991) [FLAC 24/192|Lossless|tracks] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113973.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Love Is Such A Lonely Word (D. Bohlen) – Blue System
+02. Big Time (Muller – G+M Koppehelle) – C. C. Catch
+03. Sole (G. Castelli – G. Gaste) – Gino Castelli(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E92DD8AE3F1FDF6C1C9E3E2817F6CB906B86B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705093   (113963) от 07.03.2024
+
+Kenny Rogers - Поет Кенни Роджерс (1980) [FLAC 24/192|Lossless|tracks] <Country, Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+01. Люсиль
+Lucille (R. Bowling - H. Bynum)
+02. Игрок(   Читать дальше...   )Жанр: Country, Pop-RockПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FE250003184A4909CE652CBD7B59D2542D7DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705087   (113958) от 07.03.2024
 
 Joanna Stingray (Джоанна Стингрэй) - Thinking Till Monday (Думаю до понедельника) (1990) [FLAC 24/192|Lossless|tracks] <Rock>
@@ -570,180 +744,6 @@ Procol Harum - Shine On Brightly (Свети Ярче) (1968) 1992 [FLAC 24/192|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D59B1DE3FC90C49BC0D5A62FCAC8BDA8BA4AFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706054   (113674) от 12.03.2024
-
-ВИА «Синяя птица» - Подземный переход (1986) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113674.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Подземный переход. (В. Шаинский - С. Алиханов, А. Жигарев)
-02 - Когда-нибудь. (М. Минков - А. Макаревич)
-03 - Здравствуй, как ты живешь? (Т. Ефимов - С. Осиашвили)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7D25F78F67B5744FF1B35E8441ABFB0A9706BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706322   (113670) от 12.03.2024
-
-VA - Игра в четыре руки. Песни Аркадия Укупника (1989) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01-Эй, гражданка (В. Гин) – Ирина Понаровская
-02-Пустынный берег (В. Дюнин) – Аркадий Укупник
-03-Ошибка (И. Шаферан) – Алина Витебская(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C57324459DB32E1B7E0B60D2FAE394596B7F6D6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706045   (113669) от 12.03.2024
-
-The Rolling Stones - Let It Bleed (Пусть льется кровь) (1969) 1992 [FLAC 24/192|Lossless|tracks] <Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113669.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Дай мне прибежище.
-02 - Тщетная любовь.
-03 - Деревенщина.(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DABBDA1C30A4E68942C9FF76B67A1242FFC5F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706317   (113660) от 12.03.2024
-
-VA - Вот какая любовь. Песни Романа Майорова (1989) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113660.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Вот какая любовь (М. Рябинин) — Ирина Уварова и Николай Караченцов
-02. Город (Я. Гальперин) — Ансамбль «Пламя»
-03. Твой портрет (Л. Волков) — Юрий Охочинский(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65C69B8CF1B593D0C3288F40138AF7AC02CBA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706168   (113655) от 12.03.2024
-
-VA - Rock Aid Armenia. The Earthquake Album (1990) 1992 [FLAC 24/192|Lossless|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1.
-01. Smoke On The Water'90. (Blackmore-Glover-Lord-Paice)
-Rock Aid Armenia - 4.05
-02. Run To The Hills. (Iron Maiden)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAF8C756B44B0BEA471600D6EE542F604D8A940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706403   (113645) от 12.03.2024
-
-S.O.D - Speak English or Die (1985) Reissue, 2016, Megaforce Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Hardcore, Speed Metal, Thrash>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113645.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 March Of The S.O.D.
-A2 Sargeant D & The S.O.D.
-A3 Kill Yourself
-A4 Milano Mosh(   Читать дальше...   )Жанр: Hardcore, Speed Metal, ThrashПродолжительность: 01:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F1C0DC43523F75025E56E39A7FF97DE4443737
 ```
 
 https://mybot314.ru/tekegram_catalog/

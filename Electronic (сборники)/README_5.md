@@ -1,3 +1,61 @@
+###  Публикация: 1450194   (1029200) от 25.02.2021
+
+VA - Beatport Deep House: Electro Sound Pack #245 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам интересна глубокая, продуманная музыка, которая балансирует на грани мелодизма и прогрессии, то 245-й релиз от Beatport определенно для вас! Музыка лонгплея безукоризненна полностью в плане инструментала, а каждая композиция имеет четкую структуру и грани, которые в совокупности преподносят интригующую музыкальную картину.001. Alberto Blanco - Dinamica (Original Mix)
+002. Revival Agents - Uphill (Original Mix)
+003. Doki - Astral (Original Mix)
+004. Acin - Clotho (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9C77EDF959A863C06E55E3083D148F1E9AA3039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450193   (1029198) от 25.02.2021
+
+VA - Electropop: Event Of The Season (2021) [MP3|320 Kbps] <Electropop, Synthpop, Futurepop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка, где музыкальный синтезатор на все сто процентов в звуковом ряду композиций служит исполнителю. Где вокал и просто музыкальная идея оборачивается в дорогую обёртку звукового сопровождения001. Yello - Big Boy's Blues
+002. John Foxx & The Maths - Last Time I Saw You
+003. Lorenzo Pantani - Meravigliosa Creatura
+004. Stephen Paul Taylor - Dr. Deutschland(   Читать дальше...   )Жанр: Electropop, Synthpop, FuturepopПродолжительность: 10:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2315345EFCB9D6EF332911F4833147FCCBBDD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450206   (1029191) от 25.02.2021
 
 VA - Another World: R&B Sense Of Rhythm (2CD) (2021) [MP3|320 Kbps] <R&B, Soul>
@@ -687,64 +745,6 @@ VA - Weekend Picks: Tech House Electro Party (2021) [MP3|320 Kbps] <Tech House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5144B655B1D8CB9AEDA00CA3BA8C542CC0EFC9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454482   (1026259) от 15.03.2021
-
-VA - The Wings Ascending (2021) [MP3|320 Kbps] <Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивые мелодичные композиции, с гармоничным саундом в сборнике "The Wings Ascending", которые покоряют не только популярные FM радиостанции, но и многие топы и чарты отечественных и западных изданий и магазинов.001. Gayax - Neptune
-002. Enea Marchesini - Feel The Power
-003. Bogdan Vix - Stardust
-004. Tasadi & Noah Stewart - The Calling(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 11:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B66FBF62588133F19E9EB918EBCD6AD9FA656586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454598   (1026258) от 15.03.2021
-
-VA - Beatport Electro House: Sound Pack #255 (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это именно та музыка, которую стоит добавить в свой плейлист и слушать с начала до самого конца. Все композиции 255-го релиза от Beatport вызывают позитивные эмоции уже на первых минутах трека, припевы быстро запоминаются, а для заядлых тусовщиков это станет настоящей находкой, что позволит организовать яркий вечер уже сегодня.001. J. Night - Hyperborea
-002. Christian Prommer - Future Lights
-003. Gai Barone - Two Ghosts
-004. Roy Rosenfeld - Otro(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:27:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0260CDF2396760A1768B54B86E1A88863D3323
 ```
 
 https://mybot314.ru/tekegram_catalog/

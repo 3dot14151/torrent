@@ -1,3 +1,61 @@
+###  Публикация: 1094553   (929383) от 18.01.2017
+
+VA - Utopia Electrifying (By Cortex) (2017) [MP3|320 Kbps] <Psy-Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cortex - Ouija (Original Mix) 08:01
+02. D-Ther - Human Nature (Original Mix) 08:10
+03. Cortex - The Enter Sandman (Original Mix) 06:07
+04. Paradox - Trendy Things (Original Mix) 07:29(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:12:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EAF32CF9FC1CE823230B4BB8CC6FB4B65DC2668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094456   (929377) от 18.01.2017
+
+Command Strange - Episode 91 (2011) [FLAC|Lossless|image + .cue] <Drum & Bass, Liquid Funk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. True Love (5:17)
+02. Sweet Nightmare (5:11)
+03. Dreams (5:11)
+04. Miracles (5:12)(   Читать дальше...   )Жанр: Drum & Bass, Liquid FunkПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77F6B4A59FA2F42C8E3CCD32307F59476C800C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094731   (929375) от 18.01.2017
 
 Polarr Photo Editor 3.4.1 [Multi/Ru]
@@ -668,65 +726,6 @@ Kamal - Shamanic Healing (1999) [FLAC|Lossless|tracks] <New Age, Meditative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CC748842CFF1FBE7CA139A6CEA017948679BBCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986953   (929263) от 15.02.2016
-
-Hank Marvin - Wonderful Land (1993) Maxi-Single [FLAC|Lossless|tracks] <Rock, Blues, Instrumental Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful Land  02:28
-(Guitar – Mark Knopfler)
-02. Hot Rox  04:02
-03. Nivram  02:51(   Читать дальше...   )Жанр: Rock, Blues, Instrumental RockПродолжительность: 00:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C77EF541EF01A02A36AC31429397EE7C2CD78C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 177194   (929217) от 22.02.2010
-
-Железо (Голова робота) / Hardware (M.A.R.K. 13) (1990) BDRip [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Постапокалиптическое будущее. Мо выкупает у Сталкера скелетообразную голову
-робота, и решает подарить ее своей девушке Джилл. Джилл — скульптор, и такая
-фигура как раз пригодится ей в работе.
-Однако они даже понятия не имели с чем связались — голова робота, оказалась(   Читать дальше...   )Производство: Великобритания, MGM PicturesЖанр: Фантастика, Ужасы, ТриллерРежиссер: Ричард СтэнлиАктеры: Дилан МакДермотт, Стэйси Трэвис, Джон Линч, Уильям Хуткинс,
-Игги Поп, Карл МакКой, Mark Northover, Пол МакКензи, ЛеммиПеревод: Двухголосый закадровый, профессиональныйСубтитры: ОтсутствуютПродолжительность: 01:34:00
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

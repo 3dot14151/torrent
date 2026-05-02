@@ -1,3 +1,30 @@
+###  Публикация: 817680   (544891) от 31.08.2014
+
+VideoHive - Vintage Black - A Photo Slideshow - 6859329 [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Динамичный, стильный, винтажный проект для вашего слайдшоу.
+Превью, туториал - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20035DCEA64D25A622C8C5243A927F1AE0F59CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049218   (544553) от 04.09.2016
 
 Проекты - VideoHive - Parallax Intro - 17299465 [AEP]
@@ -651,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C46B055064CD446027D9FDF96BF6CB6A8C8CE196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154843   (538346) от 31.07.2017
-
-Проекты - VideoHive - Rhythm Stomp Opener - 20267199 [AEP]
-
->>След.
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538346.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания быстрого, энергичного, современного слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F32D565735FA9A0D03E6FF1884A6F208C698534C
 ```
 
 https://mybot314.ru/tekegram_catalog/

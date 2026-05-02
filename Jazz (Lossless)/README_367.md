@@ -1,3 +1,61 @@
+###  Публикация: 1801256   (15145) от 09.06.2025
+
+Kenny Dorham - Four Classic Albums (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mack The Knife [3:03]
+02. Us [7:13]
+03. It Could Happen To You [5:59]
+04. Lets Face The Music [6:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCCFB6BBCA7E417C6B270BE7CFE166761B773013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801388   (15039) от 10.06.2025
+
+Branford Marsalis Quartet - Belonging (2025) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spiral Dance [8:21]
+02. Blossom [11:02]
+03. 'Long as You Know You're Living Yours [8:56]
+04. Belonging [7:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FFDE7C4B121D23B4D5FF0D6DBB8020D9BB6A369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801361   (15038) от 10.06.2025
 
 Tim Hardin Trio - Light Intelligence Series 5 (1992) Golden Penguin [FLAC|Lossless|tracks + .cue] <Post-Bop, Cool, Piano Jazz>
@@ -691,64 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A78702DFCD5B612B00525FE4505FD8D0C43C991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806793   (11491) от 14.07.2025
-
-VA - The Black Lodge (David Lynch's Tribute) (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Noir Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lovecraft Sextet - In Heaven (5:58)
-02. Michael Arthur Holloway - The Moon Divers (3:16)
-03. Trigg & Gusset - Krakau (6:03)
-04. Neononne - To Laura (New Mix) (4:01)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Noir Jazz, Ambient JazzПродолжительность: 03:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF37A5FBAED9DE93B7A8C205FE5178820134B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807219   (11185) от 17.07.2025
-
-VA - Sting in Jazz: A Jazz Tribute to Sting (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Nils Landgren - If You Love Somebody Set Them Free
-02 - Paola Arnesano - Roxanne
-03 - Hagenlocher-Schurmann Quartett - Walking on the Moon
-04 - Ulf Wakenius - Message in a Bottle(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC69B4E4E90116673530D7B844D72192DCEA842
 ```
 
 https://mybot314.ru/tekegram_catalog/

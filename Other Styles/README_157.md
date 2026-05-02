@@ -1,3 +1,206 @@
+###  Публикация: 1344599   (175018) от 08.12.2020
+
+Rodrigo Y Gabriela - 11:11 (2010) [FLAC|Lossless|tracks + .cue] <Latin, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hanuman
+02. Buster Voodoo
+03. Triveni
+04. Logos(   Читать дальше...   )Жанр: Latin, FolkПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6D063AB5ADC9A5033DDB39C210273F82759648E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668166   (173691) от 12.10.2023
+
+Samantha Delight - Passionately Sexy & Sensual Jazz Music with Orgasmic Vocal (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexually Twisted (3:14)
+02. Ignite The Spark (3:25)
+03. Provocative Girl (3:35)
+04. Seductive Mind (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:07:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E1A3E1D01D3694B969B777321FA0F886DD9ED22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668360   (173656) от 12.10.2023
+
+VA - Body Language: Hot Sexual Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexual Piano Jazz Collection - Body Language (3:31)
+02. Jazz Erotic Lounge Collective - Sink in You (3:52)
+03. Sensual Lounge Music Universe - Motel 69 (3:00)
+04. Sexual Piano Jazz Collection - Nasty Thoughts (4:33)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2C35EFA208592CD20A02860258E96B16C8DD9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826920   (173516) от 19.10.2025
+
+VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indiano - The Moon of Flowers (7:43)
+02. Noam Garcia - The Dreams (9:40)
+03. Tibetania - Zawadi (8:58)
+04. Juantxo Munoz - Black Empire (7:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF86EB36FFE7576EA3E14427F4ED732EF8E0748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668634   (173341) от 13.10.2023
+
+VA - Love & Passion: The Sexiest Tantric Sensual Music for Sex (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neo Tantra - Sensual Mood (4:05)
+02. Erotic Massage Music Ensemble - Slow Hands (3:14)
+03. Erotic Music Zone - Temple of Love (3:14)
+04. Neo Tantra - Into Ecstasy (3:00)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB45D998F78F0223C2DD5EDDF34989013969BC7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668923   (172829) от 16.10.2023
+
+Nytt Land - Torem (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olenmet [00:01:51]
+02. Nord [00:06:15]
+03. Risu Raknar [00:05:21]
+04. Johem Ar [00:04:31](   Читать дальше...   )Жанр: Dark Folk, AmbientПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5C9CAD497C4C246E3254B84274EF8B832D44D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262197   (172732) от 16.10.2023
+
+VA - Геннадий Гладков. Обыкновенное Чудо (2002) Серия "Музыка и песни из лучших кино и телефильмов", записи 1977, 1980 гг. [FLAC|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обыкновенное чудо
+01. Л. Серебренников - Песня Волшебника
+02. М. Боярский - Песня Охотника
+03. А. Миронов - Куплеты Администратора(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7873FFF54448D54E1BC1D74CC8E6C1F2533DB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 162682   (172542) от 17.10.2023
 
 Геннадий Гладков - Джентльмены удачи (1971) Переиздание 2002 [MP3|320 kbps] <Soundtrack>
@@ -541,208 +744,6 @@ VA - Лучшие гармонисты России (2012) [MP3|224 Kbps] <Ру�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06D66B60CE53E12DC4CD105B339F517CF0393032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596324   (168244) от 12.12.2022
-
-Mitchell Gaynor M.D. - Crystal Sonic Sound Sleep (2013) [FLAC|Lossless|tracks + .cue] <Relax, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delta Sleep 1
-02. Delta Sleep 2
-03. Delta Theta Sleep
-04. Delta Alpha Sleep(   Читать дальше...   )Жанр: Relax, HealingПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C59A5EEC546AE24FCC6290B4972E2725EBC6D2B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596632   (168200) от 12.12.2022
-
-John Debney - Один дома / Home Sweet Home Alone (2021) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cousin Chaos
-02. What's With You Today
-03. Hunter And Uber Jeff
-04. It's A Christmas Miracle(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D82B716AA36B1783D166D8426803082DE9048B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672723   (167975) от 29.10.2023
-
-Люди Леса - Другие шепоты, другие тени (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadness Horn 5:17
-02. Talisman 6:14
-03. White Stone 4:38
-04. Voron 4:27(   Читать дальше...   )Жанр: Dark FolkПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB0363EDC9B93165569D2BD0502B84FD0D03345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344631   (167252) от 14.12.2019
-
-Shinnobu - The Enigma VI (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Return to Myself (5:01)
-02. Beyond the After (6:16)
-03. Kissing the Moon (5:33)
-04. Deep Inside of Me (5:29)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7DA0708B56CE47E74DAF567A53A0ECA55DCFA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344634   (167218) от 14.12.2019
-
-Shinnobu - The Enigma VII (Star Seeds) (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Neo-Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indigo (5:14)
-02. By Peace (5:05)
-03. Awakening Within Me (5:57)
-04. Like a Shadow (6:10)(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A2B34A9C564413EA20B53CE2BBAAFD57069002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344628   (167117) от 14.12.2019
-
-Shinnobu - The Enigma IV (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Spiritual>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After of My Life (5:12)
-02. Gregorian Recordare (5:27)
-03. Intense Experience (5:50)
-04. Seventh Heaven (5:05)(   Читать дальше...   )Жанр: New Age, SpiritualПродолжительность: 00:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4484B29915FA23F8D5ABF186D299F439AEEC9662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514473   (166672) от 10.12.2021
-
-Estas Tonne - 27 Синглов (2006-2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166672.jpg" />
-</div>
-
-
-###  Подробнее
-
-Estas Tonne (Станислав Тонне, род. 24 апреля 1975, город Запорожье) — гитарист-виртуоз. Изучал музыку с восьми лет и тогда же стал играть на гитаре. Учитель гитары Сергей Борисович Щербак. В 1990-е годы вместе с семьёй переехал в Израиль, где прожил около десяти лет, не занимаясь музыкой. Несколько лет он ездил по разным странам, а в сентябре 2002-го года в Нью-Йорке (   Читать дальше...   )Mirror of Life (Live in Zaporizhia, Ukraine 2019)
-
-2020 - Зеркало Жизни - Mirror of Life (Live in Zaporizhia, Ukraine 2019)Жанр: InstrumentalПродолжительность: 00:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCD5890BD5DB35C601E1EC65B6156BB66D9444FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

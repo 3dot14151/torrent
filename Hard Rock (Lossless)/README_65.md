@@ -1,3 +1,119 @@
+###  Публикация: 1628495   (242047) от 23.04.2023
+
+Arctic Rain - Unity (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One World (5:40)
+02. Unity (5:27)
+03. Fire In My Eyes (4:36)
+04. Peace Of Mind (4:34)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF00920A6BAD6ED6D863312439D0D352751AF4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544469   (241911) от 16.04.2022
+
+Europe - Collections (2005) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Final Countdown
+02. Sign Of The Times
+03. Carrie
+04. Cherokee(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F077D32D1564B8E7094D942D7B01118935A0A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1459000   (241746) от 31.03.2021
+
+The L.A. Maybe - Dirty Damn Tricks (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Danger 04:02
+02. Sucker Punch 04:11
+03. Oh Sugar 04:20
+04. She’s Reckless 04:28(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A63DE4E0C690E37386E1011EB7FF449E10A6F8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546083   (241731) от 23.04.2022
+
+Audrey Horne - Devil's Bell (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ashes To Ashes
+02. Animal
+03. Break Out
+04. Return To Grave Valley(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA8E583E40BF8F6D2C618F5226014E0390FA2C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1625402   (241725) от 10.04.2023
 
 Crowne - Operation Phoenix (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -629,122 +745,6 @@ Killing Tyranny - The Awakening (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1324A3B767786638AEC957D26CA0FCC36CF0FFDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625964   (240373) от 14.04.2023
-
-Gary Moore - Corridors of Power (1982) Reissue, Remastered, 2023, Universal, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corridors of Power — второй сольный студийный альбом североирландского гитариста Гэри Мура, выпущенный в сентябре 1982 года и ознаменовавший прорыв Мура на международной хард-рок сцене. Allmusic охарактеризовал «Corridors of Power» как «первый настоящим хэви-метал-альбомом» гитариста.01. Don’t Take Me for a Loser
-02. Always Gonna Love You
-03. Wishing Well
-04. Gonna Break My Heart Again(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB9056D48C33103BB803E91F3A38B582AEEFAB32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634217   (240288) от 19.05.2023
-
-House of Shakira - XIT (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something in the Water
-02. No Silver Lining
-03. Toxic Train
-04. Your Exit(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF1689C5A68797B3B05E7DAD40ADC878F2E28F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554459   (240258) от 30.05.2022
-
-Qvintessence - Qvintessence (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ghosts (00:03:29)
-02 - Bandog (00:03:29)
-03 - Bee (00:05:16)
-04 - Quintessence (00:03:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17AD2F5A88F4A3AEA9A889050EE2C4283D5A8406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465763   (240174) от 28.04.2021
-
-Serpentine - Living аnd Dуing In Нigh Dеfinitiоn (2011) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Down (There's A Price For Love)
-02. Philadelphia
-03. Dreamer
-04. Love Is Blue(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11F6366E4F875177D773D20E0F0D5CA4028269CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,51 +1,22 @@
-###  Публикация: 1710359   (112710) от 26.03.2024
+###  Публикация: 1704414   (114336) от 04.03.2024
 
-Satra - Sand of Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - From The Night (00:03:44)
-02 - Sand Of Time (00:03:54)
-03 - Golden City (00:04:09)
-04 - Stars (00:04:00)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60774787CB9AB481A15BF9DBDED1534B255A14F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710344   (112709) от 26.03.2024
-
-MediaMate for Mac 3.1.2 [En]
+K-Lite Codec Pack Update 18.1.6 [En]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114336.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение MediaMate - это новые, потрясающие визуальные эффекты для громкости, яркости и текущего воспроизведения.Тип издания: macOS SoftwareРелиз состоялся: 24.03.2024Разработчик: © 2022-2024 Wouter HennenПоддерживаемая ОС: macOS 13.0+Язык интерфейса: Английский
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEF56EFE2F66EFECD8282EE26BF615843E224901
+magnet:?xt=urn:btih:C17BC9DC6D2B60A13EA6CFBD30DA8730C26CFE7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710240   (112708) от 26.03.2024
+###  Публикация: 1704406   (114335) от 04.03.2024
 
-Журнал | Таинственные истории №01 (281) (2024) [PDF]
+Diana Ross (Дайана Росс) - Поет Дайана Росс (1979) [FLAC 24/192|Lossless|tracks] <Pop, Soul>
 
->>Журналы
->>Другие журналы
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112708.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114335.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В основу журнала «Таинственные истории» положены мистические и невероятные истории, потому что именно такие — необъяснимые и загадочные события интересовали человечество всегда. Такова уж природа людей: в жизни должно быть что-то таинственное. Кроме этого, на страницах журнала статьи о загадочных силах природы, толкование снов, рассказы очевидцев о встречах с внеземным (   Читать дальше...   )Жанр: История, мистикаИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+Сторона 1.
+01 - Будь готов встретить любовь. Gettin' Ready For Love. (T.Show-F.Golde)
+02 - Ты получил это. You Got It. (J.Ragovoy-L.Laurie)
+03 - Бэби, это я. Baby It's Me. (D.Dann-C.Smith)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:35:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF656036E75E979557C578AE5B6ABD86257565E8
+magnet:?xt=urn:btih:7E4EBB4911A66D40EF8F0AEB5334F6439C66E785
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710246   (112707) от 26.03.2024
+###  Публикация: 1704217   (114334) от 04.03.2024
 
-Журнал | Таинственные истории №02 (282) (2024) [PDF]
+Blues Joke - Better Old Than Dead (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Blues Rock, Progressive Rock>
 
->>Журналы
->>Другие журналы
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114334.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В основу журнала «Таинственные истории» положены мистические и невероятные истории, потому что именно такие — необъяснимые и загадочные события интересовали человечество всегда. Такова уж природа людей: в жизни должно быть что-то таинственное. Кроме этого, на страницах журнала статьи о загадочных силах природы, толкование снов, рассказы очевидцев о встречах с внеземным (   Читать дальше...   )Жанр: История, мистикаИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
+01. At the End [00:03:39]
+02. Hater [00:03:03]
+03. Find Your Place [00:00:51]
+04. Know Your Place [00:05:11](   Читать дальше...   )Жанр: Classic Hard Blues Rock, Progressive RockПродолжительность: 00:44:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F7CFDC5D211B8C6BCE5513FD38C41BB3A6DA1B6
+magnet:?xt=urn:btih:193704E6B41F4DDF469C25254595934B71697042
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710422   (112706) от 26.03.2024
+###  Публикация: 1704490   (114333) от 04.03.2024
 
-BetterMouse for Mac 1.5 [En]
+VA - Smooth'N'Soulful (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Soul>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114333.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BetterMouse — это утилита для macOS, улучшающая производительность и функциональность внешней мыши и призванная заменить громоздкие, навязчивые и ресурсоемкие драйверы мыши, такие как Logitech Options. Это многофункциональная, легкая, оптимизированная по эффективности и абсолютно безопасная для конфиденциальности система, пытающаяся удовлетворить все ваши потребности (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.03.2024Разработчик: © 2024 BetterMouseAppПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+01. Grover Washington Jr. - Watching You Watching Me (5:28)
+02. Chic - A Warm Summer Night (6:05)
+03. Joe Sample - Put It Where You Want It (5:10)
+04. Willie Bradley - In the Meantime (feat. Gerald Alston) (4:55)(   Читать дальше...   )Жанр: Smooth Jazz, SoulПродолжительность: 02:00:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9363D546D8312F03898357524FD2A76476AC11BF
+magnet:?xt=urn:btih:7CA0A8448F7868DFEDBD44195A83B8AE188CAAD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +111,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710125   (112705) от 26.03.2024
+###  Публикация: 1704494   (114332) от 04.03.2024
 
-ColorWell 7.4.3 [Multi]
+VA - Soothing Chill Lounge Relaxing Ultimate Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - My World (5:25)
+02. eJazz Artistry - You're Makin' Me High (4:48)
+03. Chillaxing Jazz Kollektion - It Dews (5:02)
+04. Kool&Klean - Learn to Live (3:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB821FCA0A57A65554E0AC0ED6CCED91C76E2002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704365   (114331) от 04.03.2024
+
+Reader for Mac 5.8 [En]
 
 >>Программы для macOS
->>Графика для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ColorWell обеспечивает мгновенный доступ к стандартному цветовой палитре macOS X с удобным транслятором Hex / RGB / Float / HSL. ColorWell - полезная утилита в любом наборе инструментов хорошего веб-дизайнера и ее можно легко настроить для работы на панели инструментов или открыть при помощи глобальной горячей клавиши.Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский и др.
+Reader — это быстрая и минималистичная программа просмотра PDF с мощными элементами управления.
+Это полная версия Reader, которая включает в себя базовые аннотации, включая выделение и написание желтых заметок.Тип издания: macOS SoftwareРелиз состоялся: 26.02.2024Разработчик: © 2024 The Augmented Text Company LTDПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78E15A7655E8AEA821E43CF6B167A1957F452E19
+magnet:?xt=urn:btih:B1B9A6C313E8B0CC8D0740E702FB645F9B8F5433
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +167,223 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710363   (112704) от 26.03.2024
+###  Публикация: 1704514   (114330) от 04.03.2024
 
-Чингиз Абдуллаев | Дронго (Книга 09). Закон негодяев (2024) [MP3, Наталья Кашина]
+Data Extractor 1.9.2 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114330.jpg" />
+</div>
+
+
+###  Подробнее
+
+Data Extractor позволяет извлекать данные, содержащиеся в текстовых документах, и собирать их во внутренней организованной таблице с полями и записями.
+Он может анализировать все указанные вами текстовые файлы. Проанализировав их, понять по текстовым тегам, что извлечь и куда это поместить. Data Extractor преобразует хаотические данные в один организованный элемент (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.03.2024Разработчик: © 2024 Roberto PanettaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CC152ACD137465788AB3AFA87B4A27E2D01474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704139   (114329) от 04.03.2024
+
+Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime: Timeless Instrumental Collection of Dixieland Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birth Of The Dixieland Music (3:34)
+02. Happy Serenity (3:12)
+03. Break with Jazz (3:29)
+04. Timeless Vintage Coffee (3:35)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FB11EFCA4798DCB97043CD4DBF2572C8D921C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704498   (114328) от 04.03.2024
+
+VA - 2020s Rock Attitude (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Linkin Park - Fighting Myself (3:21)
+02. Paramore - Running Out of Time (3:12)
+03. Green Day - Bobby Sox (3:44)
+04. THE GOO GOO DOLLS - Who's Gonna Hear Their Wish? (2:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7875111D67BCDDDA8EE3CD1C47993D822A313A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704502   (114327) от 04.03.2024
+
+VA - Rock Delights (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fall Out Boy - We Didn’t Start the Fire (3:36)
+02. Against The Current - jump (2:40)
+03. Disturbed - Who (4:47)
+04. illenium - Eyes Wide Shut (2:32)(   Читать дальше...   )Жанр: RockПродолжительность: 02:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44CC014BAFCADEE8AE2F68767EA34118DED8190E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704200   (114326) от 04.03.2024
+
+Absolon - The Blood Seed (2024) [MP3|320kbps] <Power Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destroyer [00:05:09]
+02. Darkness Calls [00:04:27]
+03. My Shadow [00:04:27]
+04. Anger Unconfined [00:04:13](   Читать дальше...   )Жанр: Power Metal, Heavy MetalПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F81B8BB55F5371F06505E97F2F99F489DF018C78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704358   (114325) от 04.03.2024
+
+TunesKit AceMovi Video Editor 4.9.23 [Multi]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114325.jpg" />
+</div>
+
+
+###  Подробнее
+
+TunesKit AceMovi Video Editor может отличаться от множества подобных приложений для редактирования видео на рынке, главным образом, благодаря простому и интуитивно понятному интерфейсу, а также множеству мощных функций. С помощью этого программного обеспечения вы можете легко создавать высококачественные видео на Mac, независимо от того, являетесь ли вы профессионалом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.02.2024Разработчик: © 2024 TunesKitПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EE3931C68FCE7224C7D40727A02E3AB5C07A368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704495   (114324) от 04.03.2024
+
+VA - Ultimate Chill Lounge Relaxing Soothing Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Happiness (4:18)
+02. Chillaxonic - Iridescent (5:10)
+03. Kool&Klean - My World (5:25)
+04. Chillaxing Jazz Kollektion - Summer Wind (5:08)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C347856CC2F91D62409C626BF1BB853CC5528140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704346   (114323) от 04.03.2024
+
+Чингиз Абдуллаев | Альтернатива (Книга 1). Альтернатива для грешников (2024) [MP3, Pogorelov FM]
 
 >>Художественные аудиокниги и публицистика
 >>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112704.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Депутат Государственной Думы Лазарев застрелен прямо в здании Думы. Пуля настигает и Мосешвили – могущественного уголовного авторитета. На улицах Москвы вот – вот вспыхнет война между кавказским и славянскими группировками. Дронго, криминалистик – аналитик, – один из тех, кто способен укротить взбесившееся криминальное чудовище. Безжалостно расправляясь с теми, кто (   Читать дальше...   )Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 11:10:27
+Ночная операция по задержанию банды преступников. Опасно, но не опаснее любой операции группы особого назначения. Уж такова работа многоопытного полковника и его людей. Однако одна-единственная случайная находка внезапно наводит полковника на след запутанного, необычного преступления. Преступления, раскрыть тайну которого практически невозможно…Жанр: Шпионский детективИздательство: ЛитРес: чтецПродолжительность: 09:48:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72254D2489AEB3642C78EB3DEC33379B73B532A4
+magnet:?xt=urn:btih:0F8F623D6D68EB0DDD17057E93AFB3E4ADC6041C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,28 +391,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710438   (112703) от 26.03.2024
+###  Публикация: 1704154   (114322) от 04.03.2024
 
-Shadow Matter - Shadow Matter (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+Smokin Dame - Revelations From A Gun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Take Mine (00:04:28)
-02 - Ocean (00:04:16)
-03 - Slowburn (00:04:09)
-04 - Let It Flow (00:05:23)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:42:43
+01. Dope 'n Roll (4:21)
+02. Day Of The Living Dead (4:07)
+03. Electric Fire (2:48)
+04. Brain Dead (5:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5CDBF63272C40C5B8D2763E03D25B7030DCA177
+magnet:?xt=urn:btih:EE39BFEC5906347A05429D79ED854A81E21AA71D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,27 +420,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710090   (112702) от 26.03.2024
+###  Публикация: 1704405   (114321) от 04.03.2024
 
-Downie 4 v.4.7.7 [Multi/Ru]
+Screen Studio for Mac ARM/iNTEL 2.20.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Downie – это простейший видео-загрузчик.
-Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
-Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.14.6 и вышеЯзык интерфейса: Русский, Английский и др.
+Красивые записи экрана за считанные минуты. Промо-видео вашего цифрового продукта так же просто, как сделать снимок экрана. Видео высокого качества — навыки редактирования не требуются.
+Все, что вам нужно было делать в программном обеспечении для видео, Screen Studio делает автоматически.Тип издания: macOS SoftwareРелиз состоялся: 23.02.2024Разработчик: © 2024 Adam PietrasiakПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFF937667A66FF9478802A5B102F3AFC125A1309
+magnet:?xt=urn:btih:59DB1D2FB387C2B3F146EE43C94CC739920C9C30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -240,26 +447,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710425   (112701) от 26.03.2024
+###  Публикация: 1704168   (114320) от 04.03.2024
 
-Xliff Editor 2.9.16 [Multi]
+Caravan Palace - Gangbusters Melody Club (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <swing>
 
->>Программы для macOS
->>Утилиты для macOS
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff.
-Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2024Разработчик: © 2024 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14.6 +Язык интерфейса: Английский, Немецкий и др.
+1. MAD (2:47)
+2. Mirrors (3:41)
+3. 81 Specials (3:56)
+4. Raccoons (3:27)(   Читать дальше...   )Жанр: swingПродолжительность: 00:43:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4432C16668BB061AB4DC1C3D8CFD8FCE2F587CE2
+magnet:?xt=urn:btih:AF885EBB7B33FC835D384B3D321703A979D5E5AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,27 +476,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710681   (112700) от 27.03.2024
+###  Публикация: 1704488   (114319) от 04.03.2024
 
-Кирилл Тесленок | Граф Булгаков (Книга 3). Блеск Отражения (2024) [MP3, Никита Степаненко]
+Редьярд Киплинг | Сновидец (2022) [MP3, Puffin Сafe]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Блеск Отражения» – роман Кирилла Тесленока, третья книга цикла «Граф Булгаков», жанр бояръ-аниме, попаданцы в магические миры, боевое фэнтези.
-
-Отражение пробудилось, и это открывает для меня совершенно невероятные возможности. Но и проблемы становятся всё жестче! Я должен спасти князя Омутова, отстоять свой титул графа, покорить Аномалию Архидемон… и чего от меня (   Читать дальше...   )Жанр: Боевое фэнтези, Бояръ-аниме, ПопаданцыИздательство: ИДДКПродолжительность: 09:10:40
+"Джорджи с малых лет привык, что временами он оказывается в одной и той же Стране Сновидений. Его неизменной спутницей стала девочка, которую он видел однажды в театре, не зная ее имени он назвал ее Аннилуизой. Шли годы, Джорджи получил высшую воинскую награду за службу в Индии. Все эти годы он знал, что если сон начинается со стопки хвороста у морского берега, (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 01:15:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCD2EAFF604BBD88F49DBF94B8B1813055273C30
+magnet:?xt=urn:btih:6604F00D20EDDD8149A2A1F00C260324F1B419C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,25 +502,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710663   (112699) от 27.03.2024
+###  Публикация: 1704425   (114317) от 04.03.2024
 
-Юрий Тарарев, Александр Тарарев | Милкомеда (Книга 6). Рубеж забвения (2024) [MP3, Евгений Бабинцев]
+Эмма Райц | Фенрир (Книга 1). Нарушитель границ (2024) [MP3, Владимир Суменков]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Звездная империя бурлит, борьба за власть не утихает. Кварты осмелели и готовятся захватить власть в империи, сместив императора, а потом и вовсе, уничтожить Солем. Но появляется новый игрок – Оры, которые способны дать достойный отпор Квартам. Ситуация накаляется и грозит обернуться полномасштабной войной внутри самой Звездной империи.Тем временем Королева Тормов (   Читать дальше...   )Жанр: Боевая фантастика, Героическая фантастика, Космическая фантастикаИздательство: ЛитРес: чтецПродолжительность: 07:10:22
+Ты всегда в пяти минутах от смерти. Каждый твой следующий вдох обнуляет этот таймер. Хотя я бы поспорил насчёт количества минут, если приходится всплывать со дна реки в середине октября.Ладно. Меня зовут Андрей Давыдов. И теперь я – главный герой. Если, блин, не сдохну, так и не добравшись к вожделенному воздуху. Пять минут, говорите?Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 10:31:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9FFD8284625F30A2A61B36F31BD190083AD6351
+magnet:?xt=urn:btih:901A31E462661FE357329D0B1C3F6099B72BD981
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -321,25 +528,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710680   (112698) от 27.03.2024
+###  Публикация: 1704212   (114316) от 04.03.2024
 
-Нежный восток / The Sweet East (2023) WEBRip [H.264] [звук с ТS] [AD]
+Black Sabbath - Sabbath Bloody Sabbath (1973) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
 
->>нет
->>нет
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Во время экскурсии в Вашингтон Лиллиан сбегает от группы и отправляется самостоятельно открывать Восточное побережье.Производство: США / Base 12 Productions, Marathon FilmsЖанр: Драма, комедияРежиссер: Шон Прайс УильямсАктеры: Талия Райдер, Эрл Кейв, Саймон Рекс, Айо Эдебири, Джереми О. Харрис, Джейкоб Элорди, Риш Шах, Гибби Хэйнс, Джек Ирв, Мазин АкарПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:06Реклама: Плавающий баннер
+Side 1
+01. Sabbath Bloody Sabbath
+02. A National Acrobat
+03. Fluff(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:48
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1ECF220750FF2BE1B10594E48D10660F18EDFDD7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -347,26 +557,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710697   (112697) от 27.03.2024
+###  Публикация: 1704195   (114315) от 04.03.2024
 
-Mullvad Browser 13.0.13 Portable [Multi/Ru]
+Observers - The Age of the Machine Entities (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <melodic metal, dark ambient, undertone, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Into The Eye
+02 – Frank Poole’s Dream
+03 – Frozen Lattices of Light
+04 – Strange and Beautiful(   Читать дальше...   )Жанр: melodic metal, dark ambient, undertone, InstrumentalПродолжительность: 00:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D705E8433DC15E98844865C5BA8BF20DDDE53833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704500   (114314) от 04.03.2024
+
+Syncovery for Mac 10.12.4 ARM/iNTEL [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mullvad Browser основан на движке Firefox ESR. Содержит множество функций Tor Browser, но не использует сеть Tor, а предназначен для использования с надежным VPN (не требует использования Mullvad VPN).
-Mullvad Browser подойдет для пользователей, которые хотят защитить свою конфиденциальность, избегая использования Tor. Браузер включает режим "HTTPS Only", (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Приложение Syncovery автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно к компьютеру, так и через локальную сеть и «Интернет».Тип издания: macOS SoftwareРелиз состоялся: 29.02.2024Разработчик: © 2024 Super Flexible Software GmbH & Co.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59F21872B9C4FBC85C42336AB4DEB41221A40C8C
+magnet:?xt=urn:btih:17590B59BF432048AA2E513663073C4CB89CE00B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,54 +612,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710546   (112696) от 27.03.2024
+###  Публикация: 1704473   (114313) от 04.03.2024
 
-VA - Music News vol.357 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112696.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Калашникова - Не Ври Мне в Риме (Kalashnikoff Сlub Mix) (03:13)
- 002. Aitkulov - Last Day (02:24)
- 003. Alex Andreev - Липнет (03:12)
- 004. Amaya Gloor - Hurting (02:38)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A349D44BE27084876072A91722C50E8BC6F3A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710474   (112695) от 27.03.2024
-
-AltTab for Mac 6.67.0 U2B [Multi/Ru]
+MetaRename for Mac 1.0.10 [Multi/Ru]
 
 >>Программы для macOS
->>Утилиты для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение AltTab дает возможность пользоваться функцией «alt-tab» от Windows на Mac.Тип издания: macOS SoftwareРелиз состоялся: 27.03.2024Разработчик: © 2024 lwouisПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+MetaRename — это удобный инструмент для фотографов и видеооператоров, которым необходимо регулярно управлять обширными коллекциями файлов. Используя MetaRename, вы можете легко переименовывать и упорядочивать свои фотографии и видео на основе метаданных, таких как модель камеры, дата съемки и местоположение, что упрощает поиск нужных файлов, когда они вам нужны.Тип издания: macOS SoftwareРелиз состоялся: 03.03.2024Разработчик: © 2012-2024 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D5C0C2BD7E8E50FB48E3AC5367A3538E373DA1A
+magnet:?xt=urn:btih:B9B8B37DC4B23C43A159630B9074A56786E72E16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,25 +638,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710645   (112694) от 27.03.2024
+###  Публикация: 1704144   (114312) от 04.03.2024
 
-Wise Memory Optimizer 4.2.1.124 [Multi/Ru]
+Malted Milk - 1975 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Утилиты, Офис, Интернет
->>Обслуживание ОС
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатная утилита для освобождения оперативной памяти, увеличения скорости и улучшения производительности ПК. Позволяет высвободить и настроить оперативную память, занятую бесполезными приложениями. Проста в использовании, подходит как новичкам, так и экспертам.Язык интерфейса: Русский, Английский и другие
+01. 1975 (3:11)
+02. A little bit of soul (3:28)
+03. Love for yourself (4:35)
+04. Better now (3:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:006638B17191ACE4FA0213C662A11A30078B56E2
+magnet:?xt=urn:btih:8E13DA2350351E6480D9743376A922A2D224DB08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,82 +667,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708992   (112693) от 27.03.2024
+###  Публикация: 1704521   (114311) от 04.03.2024
 
-VA - Pop Spring Melodies (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112693.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Doobie Brothers - Long Train Runnin’ - (03:27)
- 002. Chaka Khan - I’m Every Woman - (04:04)
- 003. Chenoa - Maybe This Time - (03:13)
- 004. Geri Halliwell - It’s Raining Men - (04:15)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:48:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC1F63603C36C0F73BF104C3915F34D413EF279D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710667   (112692) от 27.03.2024
-
-Сергей Савинов, Антон Емельянов | Девять смертных грехов (Книга 1) (2023) [MP3, Петров Никита, (Петроник)]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112692.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Девять смертных грехов» – роман Антона Емельянова и Сергея Савинова, первая книга одноименного цикла, жанр боевое фэнтези, попаданцы в магические миры, бояръ-аниме.
-
-Мануэль Луна всегда хорошо прятался, часто люди просто не замечали его, проходя мимо. А вот он сам всегда видел то, что пытались спрятать другие. Ловушки, украденное вино, секреты из прошлого…. В общем, (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыИздательство: ИДДКПродолжительность: 09:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CB095CC626824FAD8BE01E5C80FBA2112C1FEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710710   (112691) от 27.03.2024
-
-Imagine 1.5.2 + Portable [Multi/Ru]
+Desktop Stickers 2.7 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Imagine - это бесплатный просмотрщик изображений для Windows. Это отличная альтернатива многим другим популярным бесплатным вьюверам, таким как IrfanView, XnView или FastStone Image Viewer. Это приложение с низким использованием ресурсов, которое будет работать на всех версиях ОС Windows.Язык интерфейса: Русский, Английский и другие
+Приложение Desktop Stickers поможет вам в выборе вашей самооценки.
+Ваши мысли являются источником ваших эмоций и настроения. Разговоры, которые вы ведете сами с собой, могут быть разрушительными или полезными. Большинству людей необходимо научиться культивировать позитивные мысли и рассеивать негативные. Разговор с самим собой может улучшить вашу производительность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.03.2024Разработчик: © 2024 Marian RaafatПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C892248B0C4CC5A01C401323FF2D5AB0BBD85F9A
+magnet:?xt=urn:btih:2F0D2A7E1AA3FDCB9E77EA37D9E3C18EC31E64B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,160 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710506   (112690) от 27.03.2024
+###  Публикация: 1704152   (114310) от 04.03.2024
 
-Various - Stars On 45 - Let's Dance! (2003) [FLAC|Lossless|image + .cue] <Disco, Italo-Disco, Euro-Disco>
+Sarah L King - Fire Horse (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Vocal Music (Secular and Sacred)>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Disco 70’s Medley.
-01. Stars On 45– Stars On 45 (Part One) 0:58
-02. Eruption (4)– Runaway 1:43
-03. Cashmere– Hey Baby 3:27(   Читать дальше...   )Жанр: Disco, Italo-Disco, Euro-DiscoПродолжительность: 01:19:01
+01. Holding On To Love (3:38)
+02. Devil May Care (4:39)
+03. Born Yesterday (4:22)
+04. Mystery Ride (5:34)(   Читать дальше...   )Жанр: Jazz, Vocal Music (Secular and Sacred)Продолжительность: 00:53:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89D22D371CA437FB24EE01F65310CF1C4FBF55DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710691   (112689) от 27.03.2024
-
-Евгений Бергер | Князь Демидов (Книга 2) (2024) [MP3, Дмитрий Кузнецов]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112689.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Князь Демидов» – роман Евгения Бергера, вторая книга одноименного цикла, жанр боевая фантастика, бояръ-аниме.
-
-Незаменимых спецов нет. Тебя могут слить, даже если ты – одно из самых опасных существ во Вселенной. Убедился на личном опыте. И оказался в одной из многочисленных реальностей людей, а именно – в Российской Империи 2011 года. Теперь мне остается только (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: ИДДКПродолжительность: 12:06:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EFC049C08F1046991A3CE59FC43B7E903681A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710485   (112688) от 27.03.2024
-
-Андрей Ватагин | Отпуск тёмного мага (Книга 2). Тёмный 2: В поисках Дзен (2024) [MP3, Василий Канделаки]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112688.jpg" />
-</div>
-
-
-###  Подробнее
-
-В продолжении своего бессрочного отпуска тёмный маг совершает вояж в далёкую восточную страну. Там его ждёт знакомство с местными традициями, экскурсии по интересным местам, а так же паломничество к древнему мудрецу. Это путешествие запомнится ему надолго!Жанр: фантастика, фэнтезиИздательство: ЛитРесПродолжительность: 07:23:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AEC9561FF35FCB089CE4B9EE98B4916089D43B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710532   (112687) от 27.03.2024
-
-Всю ночь / Целая ночь / Toute une nuit (1982) BDRip [H.264/720p] [FR / RU Sub]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жаркой летней ночью в Брюсселе несколько человек не могут заснуть. Они выходят на улицы, посещают бар или танцевальный клуб, чтобы завести несколько случайных встреч, которые могут привести (или не привести) к эротическим контактам... В фильме всего несколько реплик.Производство: Бельгия, Франция, Нидерланды, Канада / Avidia Films, Centre Bruxellois de l'Audio-Visuel, Ciné 360...Жанр: драмаРежиссер: Шанталь АкерманВ ролях: Франк Анденбом, Наталия Акерман, Вероника Ален, Пол Аллио, Жак Бодюен, Франсуа Букелаэрс, Мишель Блондил, Игнасио Карранса, Гэбриэлль КлэсПеревод: отсутствуетЯзык озвучки: французскийСубтитры: русские (Nosoglotka), английскиеПродолжительность: 01:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A9A4117EEED91A3BCA75D7D29C7ABD43B165B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710349   (112686) от 27.03.2024
-
-Ужасный секрет доктора Хичкока / L orribile segreto del Dr. Hichcock (1962) BDRip [H.264] [VO] [Restored]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112686.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лондон. 1885 год. Доктор Бернард Хичкок ведёт двойную жизнь. В клинике при помощи своего нового анестетика он проводит хирургические операции. Возвращаясь домой, Хичкок по ночам удовлетворяет свою тайную и ужасную страсть некрофила, доводя свою жену Маргариту при помощи новой сыворотки до состояния, близкого к смерти. Но однажды, во время одной из таких мрачных любовных (   Читать дальше...   )Производство: Италия / Panda FilmЖанр: ужасыРежиссер: Риккардо ФредаАктеры: Барбара Стил, Роберт Флеминг, Сильвано Транквилли, Мария Тереза Вианелло, Харриет Медин, Аль Кристиансон, Нат Харли, Нил Робинсон, Ховард Нельсон РубьенПеревод: любительский одноголосыйЯзык озвучки: русский, итальянский, английскийСубтитры: русские (Bellena), английскиеПродолжительность: 01:27:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB1DC695EB1A14057433D6710410D0B9189BF42B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710487   (112685) от 27.03.2024
-
-Журнал | Караван историй №4 (апрель 2024) [PDF]
-
->>Журналы
->>Женские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112685.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Караван историй» – ежемесячный журнал, в котором публикуются материалы о ярких личностях, любовных историях знаменитостей, захватывающих приключениях и самых неординарных событиях века. Издание иллюстрируется эксклюзивными фотографиями, часто из личных архивов героев. «Караван историй» – это легкое, интересное и познавательное чтение.Жанр: Женский журналИздательство: АО " Издательство семь дней "Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AF5D3F788102F74ABEA41CD89669B66D308951
+magnet:?xt=urn:btih:91C24C583C51824C8B13AF3B0B11881808EA9E62
 ```
 
 https://mybot314.ru/tekegram_catalog/

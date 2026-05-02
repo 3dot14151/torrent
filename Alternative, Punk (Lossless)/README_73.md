@@ -1,3 +1,61 @@
+###  Публикация: 1812909   (6908) от 19.08.2025
+
+Linkin Park - From Zero (2024) U.S., 093624838807, Amazon Alternate Cover [FLAC|Lossless|image + .cue] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Zero (Intro) (0:22)
+02. The Emptiness Machine (3:10)
+03. Cut The Bridge (3:49)
+04. Heavy Is The Crown (2:47)(   Читать дальше...   )Тип издания: Digisleeve, Amazon Alternate CoverЖанр: Alternative MetalПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20169EE503D28A70C4FA1BD72A982AD32FC7EA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053628   (5441) от 29.08.2025
+
+Garbage - 11 альбомов (1995 - 2025) 20 CD [FLAC|Lossless|image + .cue|tracks+.cue] <Alternative Rock, Pop Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5441.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Garbage существует с 1994 года, однако все её участники начали заниматься музыкой гораздо раньше. 1983 году Butch Vig и Steve Marker основали в Мэдисоне студию "Smart", потом Butch Vig продюсировал диски таких групп, как "Nirvana" (альбом Nevermind), "Sonic Youth", "L7" и "Smashing Pumpkins". Duke Erikson когда (   Читать дальше...   )Список альбомов:
+1995 - Garbage
+1998 - Version 2.0
+2001 - Beautiful Garbage(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, ElectronicПродолжительность: 20:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E354A788A0F838FCD48F1E861D87DA2ACC108E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815211   (5339) от 29.08.2025
 
 Linkin Park - In The End: Live & Rare (2002) Japan, WPCR-11210 [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal>

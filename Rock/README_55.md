@@ -1,3 +1,32 @@
+###  Публикация: 1163502   (450341) от 05.09.2017
+
+VA - Ultimate Driving Songs (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Free - Alright Now  4:22
+02.  Stealers Wheel - Stuck In The Middle With You  3:32
+03.  Elton John - Crocodile Rock  4:04
+04.  Bachman Turner Overdrive - You Aint Seen Nothing Yet  3:47(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745CC7AD58A272633BB012A09B393F30A4EB1098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1163388   (450223) от 05.09.2017
 
 Porno Wolves - Renegades (2017) [MP3|320 Kbps] <Psychedelic Rock, Blues Rock>
@@ -756,35 +785,6 @@ SAGA - 2 альбома  [MP3|320 кб/с]<Rock, Progressive Rock, Symphonic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:670F8018B41E51BE522A2CBD79B85D1DFBDAD320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409759   (442864) от 18.09.2020
-
-Cindy Blackman Santana - Give the Drummer Some (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (feat. Santana) (5:06)
-02. We Came to Play (feat. John McLaughlin) (5:41)
-03. She's Got It Goin' On (3:20)
-04. Miles Away (1:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6478912AB49358F299018895DAAB8C3B0CA71C01
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1868198   (1067315) от 
+
+Bob Corritore - Bob Corritore & Friends_ Ernestine Blues (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How'd You Learn To Shake it Like That (4:23)
+02. Tell Me Darling (2:08)
+03. Big Fat Mama (2:43)
+04. Blind Man Cry (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06328D95D5B38939D75D038BEF5610EB0FCFBCF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867780   (1067065) от 27.04.2026
+
+VA - The Blues Collection By Bose (1999) [FLAC|Lossless] <Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gene Harris Niki Haris - Down Home Blues (07:02)
+02. The Dukes Of Dixieland - Yellow Dog Blues (04:31)
+03. Irma Thomas - I Won't Cry For You (02:59)
+04. John Boutte - All These Things That Make You Mine (03:31)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBAD61C5A56B4DA21EC553A7E4128A8ECE0099B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866215   (1065811) от 19.04.2026
+
+Reillo - The Loner (Deluxe Edition) (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Feel The Speed (4:27)
+02. Lovin' You (4:32)
+03. Bury My Soul (3:11)
+04. The Loner (9:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C278356B1FD25BA2DFF8FFD7E3A3E631576EFD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866216   (1065808) от 19.04.2026
+
+The Right Reverend Crow - Demokracy Blues (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Time It Is (4:12)
+02. A Woman (4:07)
+03. Downhearted and Blue (5:26)
+04. The Devil Lives in Bargain Town (4:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF008F15D9AE53A990163607CD717F1B07F34ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865237   (1065355) от 14.04.2026
 
 Night Train - The Sack (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -630,122 +746,6 @@ Local Representative - Datascraping (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE0DD9736EC16D8FEEBCE5953D5078E4D769199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862462   (1064134) от 30.03.2026
-
-Nurse Boogz - Sabina Olamina 1 (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Siamese Angel Heart (6:04)
-02.  Heartprints (4:06)
-03.  HumanKind (3:09)
-04.  A Little Big Love (3:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C565403683E75E2AA8D99AB785A8D52624BBAF5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862464   (1064133) от 30.03.2026
-
-Paul Gemmell & The Black Magic Blues Band - Walkin' On Broken Souls (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Together we are strong (3:26)
-02.  You gimme that Friday feelin' (2:57)
-03.  Mercy (6:02)
-04.  Runnin' away tonight (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB10B0A0443AD7166403AB6F259C85AA68E1B09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862478   (1064130) от 30.03.2026
-
-Robben Ford - Two Shades Of Blue (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Make My Own Weather (4:27)
-02.  Jealous Guy (4:30)
-03.  Perfect Illusion (4:15)
-04.  Black Night (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B74AF932E212102E922C1848692ADEC99C50E75E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1862481   (1064129) от 30.03.2026
-
-Roy Rogers - The Sky's the Limit (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Those Bygone Days (4:11)
-02.  Just Dodgin' Bullets (3:56)
-03.  There Ain't No Goin' Back for Me (3:14)
-04.  He's a Legend (In His Own Mind) (3:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:668A61398F4CF0EA45B4BB17AF5B86E48B9C614C
 ```
 
 https://mybot314.ru/tekegram_catalog/

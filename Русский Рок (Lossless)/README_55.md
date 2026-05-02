@@ -1,3 +1,32 @@
+###  Публикация: 1668273   (174054) от 12.10.2023
+
+Нэил Шери - Больше (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пристегните ремни [00:03:58]
+02. Судья [00:03:59]
+03. Одержимость [00:03:52]
+04. Она [00:03:52](   Читать дальше...   )Жанр: RockПродолжительность: 00:30:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C13DB5972741082E414B342FE00E330F857C082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668487   (173617) от 12.10.2023
 
 ДДТ (DDT) - Сборник песен №2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -718,33 +747,6 @@ Asper X - Для тех, кто молчит (2023) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08ED7D1AF15CFDCA51C07D20B3A00EB65834FCD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1512381   (169400) от 07.12.2021
-
-Forces United - 2 Studio Albums (2020-2021) 3xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169400.jpg" />
-</div>
-
-
-###  Подробнее
-
-2020 - Предания о преданных и предателях
-2021 - Предания о преданных и предателях - 2Жанр: Heavy MetalПродолжительность: 02:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C80B011C589A041687472721BB626881342B72F
 ```
 
 https://mybot314.ru/tekegram_catalog/

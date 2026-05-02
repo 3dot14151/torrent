@@ -1,3 +1,61 @@
+###  Публикация: 1783441   (69798) от 06.03.2025
+
+Art Pepper & George Cables - Tete-A-Tete (1982) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over the Rainbow [6:51]
+02. Tete-a-Tete [4:33]
+03. Darn That Dream [4:19]
+04. Body and Soul [5:21](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE44DBAD6AB6C2C1FC7009CF0872E025AE97455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783435   (69797) от 06.03.2025
+
+Les McCann - Never A Dull Moment! (1966, 1967) 3CD, 2023, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love for Sale [7:12]
+02. I Can Dig It [8:25]
+03. Doin' That Thing [8:58]
+04. I Am in Love [6:09](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:10:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823B79B8249834B803D0E1EB9936E679DCE37D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1783437   (69796) от 06.03.2025
 
 Sonny Rollins - On The Outside (1962, 1963) 1991, Bluebird [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -687,62 +745,6 @@ Art Pepper - Timeless (1952, 1953) 2002, Savoy Jazz [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1AD28F0C4A7DF4560928EEAA218A1410A39E4A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785110   (69411) от 14.03.2025
-
-Bud Powell - The Definitive Bud Powell (1947 - 1953) 2002, Blue Note [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bud's Bubble [2:35]
-02. Tempus Fugit [2:28]
-03. Celia [3:00]
-04. Cherokee [3:38](   Читать дальше...   )Жанр: BopПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972FF89CAF3E393560524C89C8711221117C6ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785280   (69296) от 15.03.2025
-
-Art Pepper - Neon Art: Volume One (1981) 2015, Omnivore Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Car [16:52]
-02. Blues for Blanche [17:56]Жанр: Post-BopПродолжительность: 00:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF448C5F4522AB6A6896926CEC8D7977700D46B
 ```
 
 https://mybot314.ru/tekegram_catalog/

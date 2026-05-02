@@ -1,3 +1,32 @@
+###  Публикация: 1622821   (243998) от 30.03.2023
+
+Ted Nugent - Spirit of the Wild (1995) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thighraceous [03:53]
+02. Wrong Side of Town [05:33]
+03. I Shoot Back [03:55]
+04. Tooth, Fang & Claw [06:52](   Читать дальше...   )Жанр: RockПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02749A4E1468FCDA12E364C7A656F6CB50BFBE63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1611336   (243960) от 11.02.2023
 
 Strange Omen - Marasma (2023) [MP3|320 Kbps] <Hard 'n' Heavy>
@@ -718,35 +747,6 @@ i-Ten - Taking a Cold Look (1983) [MP3|320 Kbps] <AOR, Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E603FFD8E451ACE51C1C0FE7667FDF0AD3FC8C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620281   (240721) от 19.03.2023
-
-Joe Lamont - Secrets You Keep (1985) Reissue, 2010, Yesterrock [MP3|320 Kbps] <AOR, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secrets You Keep (03:52)
-02. No Explanation (03:40)
-03. Total Breakdown (04:21)
-04. Heartbreak City (05:17)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1426B585B55BE8CFA8599CB541B50FFF1E281CAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

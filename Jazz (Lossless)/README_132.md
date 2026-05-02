@@ -1,3 +1,61 @@
+###  Публикация: 1230929   (610582) от 15.06.2018
+
+McCoy Tyner Trio With Symphony - What The World Needs Now: The Music of Burt Bacharach (1997) Impulse! [FLAC|Lossless|image + .cue] <Hard Bop, Third Stream, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (They Long to Be) Close to You [7:51]
+02. What the World Needs Now Is Love [6:09]
+03. You'll Never Get to Heaven (If You Break My Heart) [5:05]
+04. The Windows of the World [5:30](   Читать дальше...   )Жанр: Hard Bop, Third Stream, Piano JazzПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE94082D2FBF19138465E0B4DDA51C711896DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1296655   (610328) от 18.04.2019
+
+Clark Terry - Combo & Sextet: Free And Oozy (1963) 1998, Blue Moon [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tread Ye Lightly [8:08]
+02. The Good Life [2:19]
+03. Blues Fr'Ell [3:52]
+04. Georgia On My Mind [4:22](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:164573C9AFF17A96068C74251F0BE2F23E3AA991
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038033   (610209) от 26.07.2016
 
 Ron Carter Trio - Cocktails at the Cotton Club (2013) [FLAC|Lossless|image + .cue] <Post-Bop>
@@ -687,67 +745,6 @@ Coleman Hawkins - Wrapped Tight (1965) 2011, Universal [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD019A0DF6059CFA206FA8CAE2D163F1645ECC2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147663   (607738) от 03.07.2017
-
-Jackie McLean - Lights Out! (1956) 2013, Analogue Productions [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lights Out [13:02]
-02. Up [04:49]
-03. Lorraine [06:29]
-04. A Foggy Day [06:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8582D154E296598AB5623550A4F44D70F5DACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525391   (607726) от 21.07.2012
-
-Bobby Watson and the Horizon Quintet - Gumbo (1994) [FLAC|Lossless]<Hard Bop, Post-Bop, Saxophone Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unit Seven
-02. Point The Finger
-03. Luqman's Dream
-04. From East To West
-05. Gumbo
-06. Wheel Within A Wheel
-07. PremonitionЖанр: Hard Bop, Post-Bop, Saxophone JazzПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

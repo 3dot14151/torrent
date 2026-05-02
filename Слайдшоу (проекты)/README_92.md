@@ -1,3 +1,29 @@
+###  Публикация: 1837298   (256825) от 15.11.2025
+
+Проекты - VideoHive - Photo Slideshow || Romantic Gallery - 60747614 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256825.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неплохое слайд-шоу для ваших творческих задач.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F44A5907E51DD15BE52DA54B520131768F8CC87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 838784   (256726) от 16.11.2025
 
 Проекты - VideoHive - Design Spectrum - 163111 [AEP]
@@ -658,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:034167C9C65562AAB955F804DA221EA765CFB930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 851925   (225045) от 20.12.2014
-
-Revostock - Splatter Gallery - 124133 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Splatter Gallery - проект для создания слайд шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646CC84BC10914BF9161775BF3F69F1AE687987F
 ```
 
 https://mybot314.ru/tekegram_catalog/

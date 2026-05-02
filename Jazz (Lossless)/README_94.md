@@ -1,3 +1,61 @@
+###  Публикация: 1397517   (739910) от 21.07.2020
+
+Cal Tjader - Four Classic Albums (1955 - 1959) 2018, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Cool, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739910.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Moten Swing [4:05]
+02. I've Never Been In Love Before [2:35]
+03. There Will Never Be Another You [5:08](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Cool, Latin JazzПродолжительность: 02:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E04E79992CD829C6D610579871D7417CD3C72114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397522   (739900) от 21.07.2020
+
+Nat King Cole - The Quintessence, Vol.2: New York - Hollywood (1944 - 1946) 1998, 2CD, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739900.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Candy [2:13]
+02. You're Nobody 'Til Somebody Loves You [2:51]
+03. Don't Blame Me [3:25](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Piano JazzПродолжительность: 02:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50A62CF4BB83F32D68371FC2052D4CEF9FE91DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283612   (739846) от 17.02.2019
 
 Paul Bley - Four Classic Albums (1954 - 1961) 2CD, 2016, Avid Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Frank Morgan - A Lovesome Thing (1991) Antilles [FLAC|Lossless|tracks + .cue] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45B8F4729380B38254A7207383F582BE9A3B6849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776707   (735486) от 02.02.2025
-
-Alex Sipiagin - Destinations Unknown (2011) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Next Stop - Tsukiji [8:36]
-02. Videlles [11:42]
-03. Tempest in a Tea Cup [11:53]
-04. Fermata Scandola [11:15](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:14:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C020BE6244BD847D100447931B27461B52A5B5A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1776711   (735484) от 02.02.2025
-
-Freddie Hubbard - Fastball: "Live" At The Left Bank (1967) 2005, Hyena Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735484.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pensativa [16:54]
-02. Echoes of Blue [10:34]
-03. Crisis [12:32]
-04. Willow Weep for Me [10:04](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB68AA6A2548138EBBFE785DD4306361A1F3F84
 ```
 
 https://mybot314.ru/tekegram_catalog/

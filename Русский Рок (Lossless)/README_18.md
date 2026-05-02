@@ -1,3 +1,32 @@
+###  Публикация: 1263874   (768417) от 26.01.2019
+
+Alkonost - Октаграмма (2018) [FLAC|Lossless|tracks + .cue] <Folk, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768417.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro (4:46)
+2. Тропа к Весне (5:18)
+3. Вслед молодой заре (4:02)
+4. Танец цветения (5:28)(   Читать дальше...   )Жанр: Folk, MetalПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C7EFC57B5058A63BF6024FFF20AC38FE7FEB3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1264282   (768413) от 26.01.2019
 
 Alkonost - Песни белой лилии (2016) [FLAC|Lossless|tracks + .cue] <Folk, Metal>
@@ -721,35 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77C53BA102EEC7DB551A2248BA22704EF02B93CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216558   (749571) от 31.03.2018
-
-Вилли Винки - Хорошая-Плохая (2002) [FLAC|lossless|image + .cue] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Если растает дым (02:50)
-02. Не верю!!! (04:20)
-03. Завернувшись в ночь (03:29)
-04. Нам хорошо! (04:23)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A0E2BFC60FBCAE48F93F089975B7C4627FCE5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

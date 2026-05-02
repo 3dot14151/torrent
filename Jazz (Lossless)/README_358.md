@@ -1,3 +1,61 @@
+###  Публикация: 1805034   (65541) от 03.07.2025
+
+VA - Afro Funky Mix (Summer 2025) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jestofunk - Fluid (6:34)
+02.  Funk Mediterraneo - Tribe Secret (4:10)
+03.  Vito Lalinga (Vi Mode Inc. Project) - Afro Bahia (5:24)
+04.  Yuri Piccolotto - Save Our Souls (6:29)(   Читать дальше...   )Жанр: FunkПродолжительность: 01:50:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CEA927C96E19089DF7FAE824190396718C480FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805053   (65529) от 03.07.2025
+
+Hank Jones - Lazy Afternoon (1989) Concord [WavPack|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Speak Low [4:13]
+02. Peedlum [5:05]
+03. Lazy Afternoon [7:46]
+04. Work Song [4:21](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41FF4578E7C97B2976630CAD43245415CF4C0A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805265   (65446) от 05.07.2025
 
 The Red Norvo Trio - The Savoy Sessions (1951) 1995, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -687,64 +745,6 @@ Charlie Haden Quartet West - In Angel City (1988) Verve Records [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB2AF48D20B1E088BD21F11BF1A9D6D2987A2826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809675   (64703) от 31.07.2025
-
-VA - Jazz & House Summer Party (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Jazz 2 More - Spiritual Session (5:24)
-02.  Don Carlos - Free (4:52)
-03.  Acusmatic group - Secret Lovers (Suonho Motion Capture Mix) (7:08)
-04.  Anduze - Bad Side (6:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE40FCC09B9FAF459188C057F7AE8B4026DEEA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809679   (64701) от 31.07.2025
-
-VA - Las Mejores Canciones de Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cannonball Adderley - Autumn Leaves (10:59)
-02.  Diana Krall - 'S Wonderful (4:29)
-03.  Antonio Carlos Jobim - The Girl From Ipanema (2008 Remastered) (3:14)
-04.  Paul Motian - Blue In Green (Take 3) (5:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 03:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB334E751084C19E8F9AFF0927E800FD9F46982
 ```
 
 https://mybot314.ru/tekegram_catalog/

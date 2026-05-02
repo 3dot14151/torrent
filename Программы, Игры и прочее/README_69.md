@@ -1,3 +1,31 @@
+###  Публикация: 933380   (505120) от 02.09.2015
+
+Disney Color and Play v1.4 [En]
+
+>>Программы, Игры и прочее
+>>Всё для детей и родителей для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disney Color and Play — это мир творчества и захватывающих приключений в компании любимых героев: доктора Плюшевой, друзей из Клуба Микки Мауса, персонажей анимационных фильмов «Холодное сердце», «Город героев», «Головоломка» и «Королевские питомцы».
+
+Создавайте и раскрашивайте собственные миры Disney — и смотрите, как картинки оживают у вас на глазах, превращаясь (   Читать дальше...   )Тип издания: ЛицензияРелиз состоялся: 20 апреля 2015Разработчик: Disney Publishing WorldwideПоддерживаемая ОС: Android 4.1+Жанр: Детские
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C0EC0E64D6D0F49E65EFB1F42A663AD9E70A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 914374   (505059) от 02.09.2015
 
 Волшебная ферма v2.7.4 [Ru]
@@ -654,34 +682,6 @@ iGO R3 Here (NavTeq) Европа 2019.Q2 (.fbl, .fda, fds, .fjw, .fjv (Russia),
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C99D1BAB8E9D1F44578208DDE31D960D094918C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565918   (486286) от 27.07.2022
-
-Скороговорки «Ехалгрека» – Russian Tongue Twisters v1.3.8 [Ru]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486286.jpg" />
-</div>
-
-
-###  Подробнее
-
-Each tongue twister is accompanied by voice acting and the ability to record and listen to the pronunciation of your voice.
-Work on your pronunciation. Try to articulate each word clearly, slowly, and with consistency. Do this regularly and try to pronounce the sentence by heart.
-It is important to say the tongue twister out loud. Try to memorize the text by heart, (   Читать дальше...   )Тип издания: FullРазработчик: Igor KusovПоддерживаемая ОС: Android 5.0+ (arm-universal)Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2992B9E162E249165A87DAFC1FC0D80B5E233FF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

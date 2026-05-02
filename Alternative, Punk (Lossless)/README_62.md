@@ -1,3 +1,61 @@
+###  Публикация: 1672744   (168212) от 29.10.2023
+
+Magnolia Park - Halloween Mixtape II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End: Emo Nite Rhapsody [00:03:50]
+02. Antidote [00:03:11]
+03. Breathing [00:03:03]
+04. Do Or Die [00:02:48](   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD5E4E971DFB38B9BD6A8F663762FDBCD39DA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672566   (168140) от 29.10.2023
+
+Closure In Moscow - Soft Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Progressive Rock, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaeger Bomb [00:03:58]
+02. Primal Sinister [00:03:28]
+03. Absolute Terror Field [00:03:39]
+04. Better Way [00:04:19](   Читать дальше...   )Жанр: Alternative Rock, Progressive Rock, ExperimentalПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC0CEBA16F463EBA4E594EBB40E54D821FBA0D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431245   (167790) от 13.12.2020
 
 Heroin and Your Veins - Collection 5 Releases (2007-2012) [FLAC|Lossless|Web-DL|tracks] <Post Rock, Instrumental, Dark Ambient, Dark Jazz, Post Punk>
@@ -687,64 +745,6 @@ If there is such a thing as Michigan punk, it's Werewolf Jones. Musically, the b
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92D0A102A859AAB40C2E723FF350BBF69F84D730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085917   (156890) от 22.12.2016
-
-Mother Turtle - II (2016) [FLAC|Lossless|tracks] <Eclectic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture
-02. Harvest Moon
-03. Ennui
-04. Walpurgi Flame(   Читать дальше...   )Жанр: Eclectic ProgПродолжительность: 00:56:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F8AF33A9E67FB3150C18519A13BB6AB6FF5566D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085434   (156882) от 22.12.2016
-
-The Living End - Modern Artillery (2003) [FLAC|Lossless|image + .cue] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Would You Do? - 1:27
-02. One Said To The Other - 2:44
-03. Who's Gonna Save Us? - 3:21
-04. End Of The World - 3:36(   Читать дальше...   )Жанр: PunkПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD726D4D31E59ABD68DDF1E5BEF054FA30053D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

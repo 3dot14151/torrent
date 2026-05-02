@@ -1,3 +1,177 @@
+###  Публикация: 1808290   (64976) от 24.07.2025
+
+Sly & The Family Stone - Live At Winchester Cathedral 1967 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Ain't Got Nobody (For Real) (Live At Winchester Cathedral 1967) [00:03:51]
+02. Skate Now (Live At Winchester Cathedral 1967) [00:04:27]
+03. Show Me (Live At Winchester Cathedral 1967) [00:04:58]
+04. What Is Soul? (Live At Winchester Cathedral 1967) [00:06:02](   Читать дальше...   )Жанр: SoulПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A59FE94132D1BDE4EC2FE83985BC2CD155E6FD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808517   (64949) от 25.07.2025
+
+Bruce Dickinson - More Balls to Picasso (1994)(2025 Reimagined Version) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cyclops (2025 Reimagined Version) (07:58)
+ 02 - Hell No (2025 Reimagined Version) (05:08)
+ 03 - Gods of War (2025 Reimagined Version) (05:05)
+ 04 - 1000 Points of Light (2025 Reimagined Version) (04:24)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0F2763B3B7EC690C059C207A8D86FEF80AF2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808571   (64935) от 25.07.2025
+
+Honeymoon Suite - Wake Me Up When The Sun Goes Down (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Fly (3:19)
+02.  Way Of The World (3:10)
+03.  Every Minute (2:49)
+04.  Way Too Fast (3:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF30A8B74B11828A691AF3CC7060B7EF107397C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808573   (64916) от 25.07.2025
+
+Roulette - Go! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Answer To My Prayers (3:08)
+02.  Fire In Your Eyes (3:21)
+03.  We Remember You (3:42)
+04.  Strangers (2:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:099736B434363F9EAEC208680BC3A74DDAD54A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808812   (64876) от 26.07.2025
+
+Enuff Z'Nuff - Xtra Cherries (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbeat [00:02:48]
+02. No Cold Feeling [00:03:08]
+03. Sanibel Island (It's Outta Control) [00:04:09]
+04. Heavy Metal [00:05:21](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CE3A098DFF80A49A1D2FC3C482F7C80D744DEC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808968   (64805) от 27.07.2025
+
+Roscoe Bowie and the Federal City Swingers - Relationships (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cry To Me (3:14)
+02.  He Will Fix It (4:49)
+03.  I Didn't Think She Would Do That (4:10)
+04.  Man Meets Woman (Thoughts) (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC532FAC37E092EE55C6395D8AFF2226FE3A449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808965   (64803) от 27.07.2025
 
 Lightnin' Malcolm - Turnt Up On Loud (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -577,174 +751,6 @@ John Lennon - Lennon Legend: The Very Best Of John Lennon (1997) [DTS 5.1|Tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABE8CBCCB87A94D7E52E5C7E138694F5B01CCC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821495   (64022) от 02.10.2025
-
-Judas Priest ft. Ozzy Osbourne - War Pigs (Charity Version) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.War Pigs (Charity Version)(8:05)Жанр: Heavy MetalПродолжительность: 00:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE58831542A181453F19A3C1FAC7E4BD8B3E68AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821499   (64018) от 02.10.2025
-
-Megadeth - Tipping Point (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tipping Point(4:29)Жанр: Thrash MetalПродолжительность: 00:04:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F193F13089037BBAF5192F6CC846E24ED34393EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821514   (64012) от 02.10.2025
-
-Hooded Menace - Lachrymose Monuments Of Obscuration (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Death-Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twilight Passages(1:04)
-02. Pale Masquerade(7:50)
-03. Portrait Without a Face(7:15)
-04. Daughters of Lingering Pain(7:25)(   Читать дальше...   )Жанр: Death-Doom MetalПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E92139AC58E5DCF1619DC943AE108E46FFDE31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821546   (63986) от 02.10.2025
-
-Orbit Culture - Death Above Life (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death-Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inferna(6:43)
-02. Bloodhound(5:03)
-03. Inside the Waves(4:38)
-04. The Tales of War(5:09)(   Читать дальше...   )Жанр: Melodic Death-Groove MetalПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63903A0D4B8431D6D7AC058733FA1DFF47B89623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821665   (63877) от 03.10.2025
-
-VA - XVI. Album Supraphonu (1977) Compilation, Partially Mixed, Sampler [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63877.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 K. Gott, L. Staidl Se Svym Orchestrem - Divkam
-A2 M. Vobornikova A Sbor L. Panka, Tanecni Orchestr Cs. Rozhlasu - Rada Silne Muze Mam
-A3 W. Matuska A O. Blechova, Studiovy Orchestr Mojmir Balling - Kdo Ma Rad
-A4 H. Zagorova, K. Vagner Se Svym Orchestrem - Kdyz Pisne Lzou(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B13E718F16DDE7C1C74DFA46CCFC99FDA4D753
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763031   (63850) от 03.10.2025
-
-Bloodred Hourglass (BRHG) - Studio Albums (7 releases) (2012-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal; Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bloodred Hourglass - мелодик-дэт/трэш-метал группа из г. Миккели, Финляндия.2012 - Lifebound
-2015 - Where The Oceans Burn
-2017 - Heal
-2019 - GodsendЖанр: Melodic Death/Thrash Metal; MetalcoreПродолжительность: 05:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2098A30025A295504E35B673077EC1A650370101
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,197 @@
+###  Публикация: 1719501   (57945) от 01.05.2024
+
+Brian Eno - Eno (Original Motion Picture Soundtrack) (2024)  [FLAC|Lossless|WEB-DL|tracks] <OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Remember [00:03:52]
+02. The Secret Place (Remastered 2019) [00:03:31]
+03. Cmon [00:05:20]
+04. Ho Renomo [00:05:11](   Читать дальше...   )Жанр: Rock, OSTПродолжительность: 01:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27088EED4DF91A14653ADC3F8A2562727FB0554D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719560   (57832) от 02.05.2024
+
+Ramin Djawadi - Fallout (Original Amazon Series Soundtrack) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <OST, Bandas sonoras de cine>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brotherhood of Steel (Full Version) [00:06:27]
+02. The Ghoul [00:05:41]
+03. Ice Cream and Apple Pie [00:03:10]
+04. Vault 33 [00:04:54](   Читать дальше...   )Жанр: OST, Bandas sonoras de cineПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629A8E9E4D08B38B82E4F64BEA34F7F6E52132C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340109   (57538) от 05.05.2024
+
+Leonard Cohen - Thanks for the Dance (2019) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happens to the Heart (4:33)
+ 02. Moving On (3:12)
+ 03. The Night of Santiago (4:15)
+ 04. Thanks for the Dance (4:13)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A86D36DCCD1B3AF6EDCD82336A963B6881048B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722753   (56558) от 14.05.2024
+
+Mark Ashley - Instrumentals Vol. 1 (2024) [MP3|320 Kbps] <Instrumental Pop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Love, You're My Life (Instrumental 2020) (3:47)
+02. It's All Over (Instrumental Version) (4:12)
+03. Hot Like Fire (Instrumental Remix) (3:46)
+04. Cinderella's Heart (Instrumental Remix) (4:50)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 02:10:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38247591BAB8C2FE0A6389C097EE26D26D625D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1713843   (55852) от 21.05.2024
+
+Моторадио | Частная коллекция (Подкаст) (2023) Часть 2 [MP3, Александр Цыпин, Алексей Смирнов, Александра Ромашова]
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частная коллекция - программа с участием известных петербургских коллекционеров музыки, представляющих в этой вечерней передаче свои любимые пластинки и компакт-диски, свой взгляд на рок-музыку, свои пристрастия и симпатии в этом жанре, показывая слушателям порой музыку уникальную, редкую и удивительную! В этой ленте как новые выпуски , так и архивы передач этой (   Читать дальше...   )Производство: МоторадиоЖанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 37:58:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6901F6FA8F591A0025378D898B0926ACCEED3188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712866   (55848) от 21.05.2024
+
+Моторадио | Частная коллекция (Подкаст) (2023) Часть 1 [MP3, Александр Цыпин, Алексей Смирнов, Александра Ромашова]
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55848.jpg" />
+</div>
+
+
+###  Подробнее
+
+Частная коллекция - программа с участием известных петербургских коллекционеров музыки, представляющих в этой вечерней передаче свои любимые пластинки и компакт-диски, свой взгляд на рок-музыку, свои пристрастия и симпатии в этом жанре, показывая слушателям порой музыку уникальную, редкую и удивительную! В этой ленте как новые выпуски , так и архивы передач этой (   Читать дальше...   )Производство: МоторадиоЖанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 44:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D502D55E3315C937366549095DF65B522F1BFD8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714612   (55832) от 21.05.2024
+
+Моторадио | Long Hair Show (подкаст) (2023) [MP3, Дарья Ефремова, Евгений Корнев, Павел Обиух, Профессор Тихий]
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55832.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельное радиошоу про рок-музыку, где звучит всё: от рок-н-ролла до грайндкора! Вас ждёт рассказы о некоторых интересных фактах того отрезка времени, когда одно из самых значительных культурных явлений второй половины XX века, рок-музыка, только зарождалось, а также отличная подборка композиций, которые стали отправной точкой всемирной рокомании.Производство: МоторадиоЖанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 66:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394F4AE4D12E9349592DE796A0FE185FCFF8BDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707172   (55828) от 21.05.2024
 
 Иван Мережко | БЛЮЗ на МОТОРАДИО (2013-2023) [MP3, Иван Мережко]
@@ -538,209 +732,6 @@ Tantric Music Masters, Tantric Sex Background Music Experts - Erotic Oasis Tantr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:558B3D1BDA5ADE91D5A348A0135E2031C8C96958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752651   (41780) от 01.10.2024
-
-Pregnant Women Music Company - Harmony for Two: Music to Soothe Pregnancy Stress (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soothe Your Body (3:21)
-02. Harmony of Senses (3:24)
-03. Soul Experience (3:16)
-04. Living in Harmony (3:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A82777F0998ADDFD9CC22F8F12210C12EAEE20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752569   (41778) от 01.10.2024
-
-Pregnant Women Music Company - Calm Raining: Relaxation for Pregnant Woman (2024) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rainy Forest Retreat (2:37)
-02. Serene Spring Shelter (3:20)
-03. Woodland Rain Haven (3:01)
-04. Dreamy Forest Cottage (2:54)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:30:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BFAB51E2A3BAC55991B3C98249266928917DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753942   (41151) от 07.10.2024
-
-VA - The Orient Collective - Blossoms (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indiano - Vata (8:19)
-02. Tibetania - Healing Winds (7:08)
-03. Gabriel Slick - Sharaih (4:34)
-04. Antonello D'Arrigo - Organica (6:48)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:24:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51442C1AC85002C3991A948A13D338DC512E518E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821241   (40958) от 01.10.2025
-
-Chris Conway - Guiding Light (2005) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_40958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Path In
-02. 1st Glimpse
-03. 2nd Glimpse
-04. Stairway(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E5BE0BFB5AF56575B9224B999D983B2AC1C033F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754322   (40870) от 09.10.2024
-
-VA - The Orient Collective - Divine Oracle (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Slick - Sharaih (4:34)
-02. Groovecat - Komagene (5:53)
-03. Kapchiz - Osiris (6:48)
-04. Mikhail Catan - Indra (6:43)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91673D02A425D9D15AA6C6B77C2B3CADEACB8197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754413   (40780) от 10.10.2024
-
-VA - The Orient Collective - Ethernal (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Slick - Sharaih (4:34)
-02. Gabriel Slick - My World (4:31)
-03. Tibetania - Om El Donya (4:44)
-04. Tibetania - Sama (8:04)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69F6A326B048901504C24D88EB517086E664008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755794   (40052) от 17.10.2024
-
-VA - The Orient Collective - Forest Spirits (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mikhail Catan - Indra (6:43)
-02. Darno - Bazaar (Jack Essek Remix) (6:57)
-03. Ivory Coats - Sijambo (6:09)
-04. Best Intentions - Om El Donya (4:44)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E056184B006DACCEEE27EAC51EEAB6638C7F3724
 ```
 
 https://mybot314.ru/tekegram_catalog/

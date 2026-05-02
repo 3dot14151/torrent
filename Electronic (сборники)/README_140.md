@@ -1,3 +1,67 @@
+###  Публикация: 1321310   (459077) от 24.08.2019
+
+VA - My Own Litle Paradise (2019) [MP3|320 Kbps] <Chillout, Lounge, Relax>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459077.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ialaz - Blonde Hurricane
+002. Allume - Adams
+003. Msh - In Every Life
+004. Mareekmia - Grace & Misery(   Читать дальше...   )Жанр: Chillout, Lounge, RelaxПродолжительность: 07:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8CA0C5B6FBE028B655DE74D84B7C1E27F9B5E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 549675   (458516) от 22.09.2012
+
+VA - B-Side - Smash It Up Mix (2011) [MP3|192 кб/с]<Breaks, Ghetto Funk, Hip Hop,Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Public Service - B-Side
+02. Ike's School - Featurecast
+03. Crowd Murder - Stickybuds
+04. Shimmy Shimmy Ya (WBBL remix) - ODB
+05. Insane In The Brain (B-Side edit) - Cypress Hill
+06. Ooooh! - Featurecast
+07. Two Blue - B-Side
+08. Massive Jungle (demo) - B-Side
+09. All The Girls - B-Side
+10. Yeah! (demo) - B-Side(   Читать дальше...   )Жанр: Продолжительность: 00:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AADAB9E5587468C50AC028D82BDA9F5CB765880
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408304   (458413) от 11.09.2020
 
 VA - Astral Dimension (2020) [MP3|320 Kbps] <Psychedelic Trance>
@@ -713,70 +777,6 @@ Disk # 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58570E5A8F0700D374D9F256ADDDB872932682C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408348   (455999) от 12.09.2020
-
-VA - Soul Romantic R&B (2020) [MP3|320 Kbps] <R&B, Soul, Hip Lyric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455999.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tonina - Adamly
-002. Aya Nakamura - Sucette
-003. Teedra Moses - Caught Up
-004. Judy Temple - Stocking Cap(   Читать дальше...   )Жанр: R&B, Soul, Hip LyricПродолжительность: 09:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08695C015DD68778EF3AB414EDC569045C2B926
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550278   (455856) от 23.09.2012
-
-VA - Dubstep Top (June) (2012) [MP3|320 кб/с]<Dubstep, DnB>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2Pac feat. Sinima - God Bless The Dead (DUBSTEPBASTER)
-02. Aaa - reallity
-03. Adele - Set fire to the rain (Lay remix)
-04. Adventure Club - Need Your Heart Ft Kai
-05. Aeph - When You
-06. Alphabet Pony - Space (VIP Mix)
-07. AmyKuney - Sway(ButchClancyRemix)Final
-08. Anneka - Shut Her Down (Mario M Remix)
-09. BARRON - Bambatta (Vip mix)
-10. Blackmill - Home (Original Mix)(   Читать дальше...   )Жанр: Dubstep, DnBПродолжительность: 05:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B330BF46341DD5D061AE01A9FE3F8B1F25D67C6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

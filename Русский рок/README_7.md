@@ -1,3 +1,119 @@
+###  Публикация: 1451141   (1028377) от 02.03.2021
+
+SmartFartBand - Речь не о том (2021) [MP3|320 Kbps] <rap thrash core>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro [00:00:41]
+02 - Добро Пожаловать [00:02:30]
+03 - Алово [00:03:40]
+04 - Ёжик [00:03:48](   Читать дальше...   )Жанр: rap thrash coreПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8233C5CF269310FAEAFDD2D89719D2EE034358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451538   (1028229) от 03.03.2021
+
+Ртуть79 - 2 Albums (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мотыльки [00:02:54]
+02. Пассажир [00:03:36]
+03. Последний герой [00:04:00]
+04. Ртуть [00:03:45](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455B6D2D8CC66E0869F13D3DCC8E3DA238674BD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451744   (1028226) от 03.03.2021
+
+Tabasco Band - Песни свободного племени (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028226.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Актриса
+2. Ничего не бойся
+3. До потери сознания
+4. Мама(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:580E9B0378787B56500458B59DFE10FB615193A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451553   (1028153) от 03.03.2021
+
+Кино - Кино В Севкабеле (2021) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Песня без слов [00:04:48]
+02 - Мама мы все тяжело больны [00:04:07]
+03 - В наших глазах [00:03:45]
+04 - Электричка [00:04:55](   Читать дальше...   )Жанр: RockПродолжительность: 01:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C25A27C97EDD81FCC2590754EC7A3492DE3576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1451897   (1028074) от 04.03.2021
 
 Zero People - The Best: Очевидное (2021) [MP3|320 Kbps] <Alternative Rock>
@@ -626,119 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530725B76AC4F1D899102F4927915BC491C15622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455028   (1025798) от 18.03.2021
-
-Хитобои - Вниз головой (2016) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Уй на руль [00:02:04]
-02 - Долб [00:02:30]
-03 - Дело-табак [00:02:37]
-04 - Пружина [00:02:30](   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:820FF4A1552F981175A366B4F22C7A3884BB50AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455614   (1025670) от 19.03.2021
-
-Gothic Sky - In Search of a Lost Soul (2021) [MP3|320 Kbps] <Gothic Black Metal, Death Metal, Nordic Metal, Family Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Seven [00:05:34]
-02 - Phantom Wanderer (feat. Arthur Berkut) [00:07:31]
-03 - Dark flame (feat. Arthur Berkut) [00:06:47]
-04 - Lord of nothingness [00:07:26](   Читать дальше...   )Жанр: Gothic Black Metal, Death Metal, Nordic Metal, Family VocalПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543042AEFFD36395A40A6097FFA6B69A158ED1B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455509   (1025660) от 19.03.2021
-
-Тринадцатое созвездие - Песня без Берегов (Судзуки и Сочувствующие) (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025660.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песня без Берегов
-2. Шансон играют Рокера
-3. Неудачник
-4. Театр (Piano version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82934CF61EDADF4F03461CFCAF85E26F892216C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1455433   (1025656) от 19.03.2021
-
-Северный флот - Пританцовывай (2021) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025656.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ПританцовывайЖанр: RockПродолжительность: 00:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1603540BFB297CEF299ECBFD247F0AFDF8637A94
 ```
 
 https://mybot314.ru/tekegram_catalog/

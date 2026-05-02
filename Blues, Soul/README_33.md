@@ -1,3 +1,32 @@
+###  Публикация: 1078057   (300316) от 01.12.2016
+
+Joanne Shaw Taylor - Wild (2016) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Dyin' To Know  (02:59) 
+02|  Ready To Roll  (04:05) 
+03|  Get You Back  (03:50) 
+04|  No Reason To Stay  (04:49) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B98FA0F605F879A7FB959492F84361CE5927D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961743   (298807) от 02.12.2015
 
 Robin Barrett & Coyote Kings - Howl (2015) [MP3|320 кб/с]<Blues Rock>
@@ -719,35 +748,6 @@ Glitterbox Presents Pump The Boogie! MIXED
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B8348450D9181F03109D367EE5B3A8307D71547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188437   (274730) от 02.12.2017
-
-Supersonic Blues Machine - Californisoul (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am Done Missing You (04:28)
-02. Somebody's Fool (feat. Robben Ford) (04:43)
-03. L.O.V.E. (04:31)
-04. Broken Heart (feat. Billy F. Gibbons) (03:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F7120238F595431368E3A793F7A1B9B50C6A2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

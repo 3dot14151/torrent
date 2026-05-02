@@ -1,3 +1,119 @@
+###  Публикация: 964719   (280264) от 12.12.2015
+
+VA - Зажигай в темпе ритма с Europa plus (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алиса Кожикина - Белые Снежинки
+02. Родион Газманов и Алёна Мальцева - Разминулись
+03. The Game Feat. Lil Wayne & Chris Brown - Fuck Yo Feelings
+04. Fidel Wicked - Empires Revenge(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2961C14747DA5B00F964A3A24A1B9212D214C98F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264577   (279529) от 24.11.2018
+
+VA - German Top 100 Single Charts 23.11.2018 (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279529.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ava Max - Sweet but Psycho
+002. Sido - Tausend Tattoos
+003. Samra - Cataleya
+004. KitschKrieg - Standard (feat. Trettmann, Gringo, Ufo361 & Gzuz)(   Читать дальше...   )Жанр: PopПродолжительность: 05:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D8ED4C0BDA23985B525535EE9654463EF08E24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081829   (279289) от 12.12.2016
+
+VA - Музыкальный заряд. Хитовый драйв часть 8 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279289.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Leya Mouse & Dj Komandor - Самба Для Двоих 3:35
+002.Lyuba Almann - Мы Не Прожигаем Жизнь 3:51
+003.Stefany - No No No 3:22
+004.Arseniya - Аритмия 4:50(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05D440FCD76C813AF6415CC108ACD67CF18C569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081845   (279287) от 12.12.2016
+
+VA - Горячий хитовый драйв выпуск 10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279287.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Dj Jedy Feat. Личи - Это Мой Космос 4:24
+002.Turbotronic - Booty Shake 4:37
+003.Mad Show Boys - Дзинтарс 3:04
+004.Natan - Просто История 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71929D1CF0F92DC6019D80AB35078DE24F9EB80B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082059   (279283) от 12.12.2016
 
 VA - Попсовая соточка от Хит fm. Выпуск 9 (2016) [MP3|256 Kbps] <Pop>
@@ -608,113 +724,6 @@ VA - XXL Новогодний Хит 50/50 (2010) [MP3|160 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C779479B0B9F89984B12346B3EC28DBB7267EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273003   (276909) от 20.12.2010
-
-VA - American Discothek vol. 1 - 8 (2010) [MP3|256 kbps]<Eurodance/Technopop/Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Eurodance/Technopop/DiscoПродолжительность: 10:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54591445B7DDF56AEE1BA3E91121B3BD3A53B8B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337027   (276338) от 09.11.2019
-
-VA - German Top 100 Single Charts 08.11.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tones and I - Dance Monkey
-02. Apache 207 - Roller
-03. Apache 207 - Wieso tust Du dir das an?
-04. Nimo - KARMA(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86084B6A6B053A9EC3CB2F4BAEFA1D3EB901427E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273064   (276296) от 21.12.2010
-
-VA - Зимние Хиты from AGR | @nGeL® (2010) [MP3|256 kbps]<Pop/Dance/Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/Dance/ClubПродолжительность: 06:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F13AD1CD6C16B4186A147DD1F7D9345503EA630
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 273059   (276237) от 21.12.2010
-
-VA - Музыкальный Новогодний Подарок from AGR | @nGeL® (2010) [MP3|256 kbps]<Pop/Dance/Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/Dance/ClubПродолжительность: 05:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5EC45C95134B54C3DF1E57053D986AB208F07D
 ```
 
 https://mybot314.ru/tekegram_catalog/

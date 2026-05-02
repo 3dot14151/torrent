@@ -1,3 +1,32 @@
+###  Публикация: 1125104   (1001359) от 13.08.2021
+
+Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Mesh [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Tech House, IDM, Experimental, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Lukas Boysen, Sebastian Plano - A Greater Pattern (05:17)
+ 02. Bing And Ruth - The How Of It Sped (05:48)
+ 03. Nils Frahm - For (Max Cooper Remix) (07:06)
+ 04. Bxentric - Afon (05:07)(   Читать дальше...   )Тип издания: WEBЖанр: Techno, Minimal, Tech House, IDM, Experimental, Ambient •Продолжительность: 34:39:53 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7B7F15D11403BAF5031022FF192DC5C9C9F990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352350   (1001086) от 14.01.2020
 
 Dominik Eulberg - Mannigfaltig (2019) [FLAC|Lossless|tracks + .cue] <Techno, Tech House, Minimal>
@@ -714,35 +743,6 @@ Bob Sinclar - Born In 69 (2009) [FLAC|Lossless|tracks + .cue] <Hip-House, Euro H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB7664996A78233CBB18295E5CB98C0983FAF61E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972679   (980674) от 07.01.2016
-
-Gunter - Pleasureman (2004) 2005 Танцевальный Рай [FLAC|Lossless|tracks + .cue] <Euro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golddiggers (3:36)
-02. Ding Dong Song (4:04)
-03. Teeny Weeny String Bikini (4:00)
-04. Touch Me (3:39)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FDDAA2312DB8517095A7E31FCC09BD2786E11EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

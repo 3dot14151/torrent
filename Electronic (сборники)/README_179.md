@@ -1,3 +1,61 @@
+###  Публикация: 1081195   (284901) от 09.12.2016
+
+VA - Trance Above Charts Top 100 (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284901.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andrew Rayel & Jochen Miller Ft Hansen Tomas - Take It All (Extended Mix) 5:40
+002. Willem De Roo - Hyperdrive (Extended Mix) 4:20
+003. CJ S.A.Y. - Song of The Abyss (Niode Remix) 6:29
+004. Mhammed El Alami & Lucid Blue - Under The Sun (Dub Mix) 5:41(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 10:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95074F69EBDF14AC2391424162C3F431E6043498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081083   (284900) от 09.12.2016
+
+VA - YearMix 2K16 (2016) [MP3|201-247 Kbps] <Hands Up, Dance, House, Bigroom, Future Bass, UK Hardcore>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aaron Ambrose Feat. Paulina - Moonlight Shadow (Ambrose Video Edit) 03:03
+02. Alan Walker - Faded 03:32
+03. Alan Walker - Sing Me To Sleep 03:09
+04. Deepspirit - Lonely 2K16 (Club Edit) 03:24(   Читать дальше...   )Жанр: Hands Up, Dance, House, Bigroom, Future Bass, UK HardcoreПродолжительность: 02:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82651D96484E539155278A182EBD69826D667EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1081185   (284799) от 09.12.2016
 
 VA - Top 100 Indie Dance & Nu Disco November (2016) [MP3|320 Kbps] <New Wave, Nu Disco, Funky, Soulful, Indietronica>
@@ -687,64 +745,6 @@ VA - Just Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CE2269F96F47850562038FD9ED0F8C98EA61BA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964953   (281062) от 12.12.2015
-
-VA - Winter Lounge Solden (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Moore - In the Sunshine - Original Mix
-02. Monodial - Beat Flowers - Original Mix
-03. The Channel - Casta - Original Mix
-04. Michele Taylor - Morning Light - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42615FF4E946887BE7B893DACBBC46FE890DBF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 964983   (281060) от 12.12.2015
-
-VA - Sexy Lounge Shades For Christmas (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Lampert - Trumpet Infusion
-02. Acoustique Parfum - A Taste of Within Pt. 2 - feat. Thomas Helwig
-03. Openzone Bar - Cocktail Flavour
-04. Elastic Field - No Money for Caipirinha(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7AF187D7519EEB96C44E97A1E19180389B4E88
 ```
 
 https://mybot314.ru/tekegram_catalog/

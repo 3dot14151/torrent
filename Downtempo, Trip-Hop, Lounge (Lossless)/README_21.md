@@ -1,3 +1,119 @@
+###  Публикация: 1839047   (261657) от 26.11.2025
+
+VA - La Noche Blanca En Ibiza, Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Calmabohain - Underwater World (04:13)
+ 02 - Jazzamor - Till The End Of Time (05:33)
+ 03 - Living Room - Alone (03:48)
+ 04 - Faro - Run Away With Me (05:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77FA90DE09534280B9C44BEAADA34034AB69EE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838485   (260610) от 23.11.2025
+
+Vinyl Sounds - Dream Lounge (2025) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, AI Music>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quiet Night (3:06)
+02. Summer Night (3:54)
+03. Hopeful (3:56)
+04. The Bay (4:00)(   Читать дальше...   )Жанр: Chillout, Lounge, AI MusicПродолжительность: 01:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B955F9B8654E698EEB80D2A5725DB0A6C6B8AE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838262   (259845) от 21.11.2025
+
+VA - The Orient Collective: Journey Within (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
+02. Inessa, Tibetania - Kalahari (Original Mix) (5:45)
+03. Ildar Bik, Tibetania - Kids (Original Mix) (6:08)
+04. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E0D8C488C54DCFA41954CB15A26D4B1BA3B96D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837617   (257683) от 18.11.2025
+
+VA - The Orient Collective - Eyes Of Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indiano - The Moon of Flowers (7:43)
+02. Noam Garcia - The Dreams (9:40)
+03. Tibetania - Zawadi (8:58)
+04. Juantxo Munoz - Black Empire (7:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:544F29D73CAD5ACD86D77D8CC0F07F92622CDF9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837765   (257681) от 18.11.2025
 
 VA - Ibiza Winter 2026 (Lounge Cocktails from the Heart) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -635,122 +751,6 @@ VA - Luxury Bar Grooves, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6736399327CFE9FD70AADCBF47C23AC7BCE65A04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636043   (241248) от 28.05.2023
-
-VA - Zen Garden Experience: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Sour - Spelunca 432Hz (4:32)
-02. Free Spirit Muse, M-Sol MUSIC - Breath-Ful Moments (20:21)
-03. Filalete - Virtue (4:16)
-04. Matt Sour - Pax Mane 432Hz (4:35)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6954EAC1D897CF72BCBFB7AB9F9B9DE592A72A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571648   (239849) от 22.08.2022
-
-Röyksopp (Royksopp) - Profound Mysteries II (2022) [FLAC|Lossless|tracks + .cue] <Downtempo, House, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denimclad Baboons (3:43)
-02. Let's Get It Right (feat. Astrid S) (5:06)
-03. Unity (feat. Karen Harding) (5:05)
-04. Oh, Lover (feat. Susanne Sundfør) (6:14)(   Читать дальше...   )Жанр: Downtempo, House, AmbientПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AFA076A5B53FB0B703D6A2B484E07DEF0B1F3F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638236   (239410) от 07.06.2023
-
-Speakers Corner Quartet - Further Out Than The Edge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_239410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On Grounds (3:10)
-02. Acute Truth (3:41)
-03. fix (2:40)
-04. Wavelet (3:26)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFFFB14CCF8F704030A0E71ACCA12F08B2813EAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636056   (239313) от 28.05.2023
-
-Fridge - Happiness (Anniversary Edition) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melodica & Trombone (Remastered) (6:02)
-02. Drum Machines & Glockenspiel (Remastered) (13:18)
-03. Cut Up Piano & Xylophone (Remastered) (2:35)
-04. Tone Guitar & Drum Noise (Remastered) (4:46)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72228FE2ED7414D7999187967FF48944FE307C97
 ```
 
 https://mybot314.ru/tekegram_catalog/

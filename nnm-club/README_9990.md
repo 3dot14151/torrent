@@ -1,135 +1,25 @@
-###  Публикация: 1540122   (654953) от 28.03.2022
+###  Публикация: 1226246   (657086) от 19.05.2018
 
-На грани безумия / Edge of Sanity (1989) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вольная экранизация повести Роберта Луиса Стивенсона «Доктор Джекилл и мистер Хайд». Когда Генри Джекилл экспериментирует с кокаином, он трансформируется в отвратительного Джека Хайда. Как Хайд он рыщет по лондонским улицам, выискивая свою добычу в публичных домах и опиумных притонах. Полиция не может схватить его...Производство: Великобритания, Венгрия, Allied Cine Group Pic II, Allied Vision Ltd., August Entertainment, HungarofilmЖанр: ужасы, триллерРежиссер: Жерар КикоинАктеры: Энтони Перкинс, Глайнис Барбер, Сара Маур Торп, Дэвид Лодж, Бен Коул, Рэй Джюэрс, Джил Мелфорд, Лиза Дэвис, Ноэль Коулмэн, Бриони МакРобертсПеревод: профессиональный двухголосый (НТВ+), авторский (Владимир Штейн)Субтитры: английские SDHПродолжительность: 01:30:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD2B2C2EA8DB7B9C71DD07D3900454BC2E3378C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539634   (654952) от 28.03.2022
-
-Muzak - Songs From A Lonely Planet (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 1:35
-02. I Feel 7:00
-03. Seduction 7:10
-04. Journey Has Just Begun 6:06(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8F897C1B927F37916B9AFA18A9B7D78186162DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540224   (654951) от 28.03.2022
-
-Дедал / Dedalos One (2021) WEBRip [H.264/2160p]
-
->>Документалистика и Телепередачи
->>Релакс / Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дедал являлся величайшим изобретателем, художником и зодчим Древней Греции, его имя происходит от древнегреческого глагола «дэдало» - занимаюсь искусством. Короткий полёт над Афинами.Производство: ГрецияЖанр: документальный, видовойРежиссер: Никос МаврокефалосПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:005:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7921FB1A1E7D498A6674560A0A69ED25403B41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540189   (654950) от 28.03.2022
-
-VA - Turbo Disco International - Vol. 1 (2004) [FLAC|Lossless|tracks + .cue] <Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gibson Brothers - Cue Sera Mi Vida
-02. Jairo Pereira - Pais Tropical
-03. Supermax - African Blood
-04. Ricchi & Poveri - Acapulco(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCD33F6E0FAEDFCC450553A9AD6407647264F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140589   (654939) от 07.06.2017
-
-VA - Foreplay Love Lounge: Sensual Chill out Beats for Erotic Moments (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+VA - Trance Favorites Episode 013 (2018) [MP3|320 Kbps] <Trance>
 
 >>Electronic
->>Easy listening
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657086.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bilitis - Air - Love 2 Lounge Mix
-02. Soul Guru - Addicted to Tantric Sex - Sensual Love Mix
-03. Rainman - Hammock Dreams - Extended Mix
-04. Melounge - Gimme Love - Indian Beach Lounge Island Cafe Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:16:56
+01. Dominik Von Francois - 100 States Of Trance (Cosmic Heaven Remix)
+02. Samvel - Arctic Echoes (Mosahar Remix)
+03. AQUADREAMR - Existential (Original Mix)
+04. Noize Compressor - Black & Chrome (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:15:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D2F3D863600E675B7D97C8E6DE577FB32EF0789
+magnet:?xt=urn:btih:8EA8B6FFC69AB6353AE5A0278BF740CB261C5543
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,191 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140760   (654938) от 07.06.2017
+###  Публикация: 1226206   (657085) от 19.05.2018
 
-Modestia Aparte - Por Amor al Arte (Digitally Remastered) (1988) [FLAC|Lossless|tracks + .cue] <Spanish Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Playas de Mazarrón (3:34)
-02 Es tu Turno (3:09)
-03 Quizá (3:38)
-04 Como un Sultán (4:29)(   Читать дальше...   )Жанр: Spanish PopПродолжительность: 00:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB683F1854DD0836C02B2A4446D5466B3F3627A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140700   (654937) от 07.06.2017
-
-Evidence - The Evidence (1978) LP [MP3|320 Kbps] <Electronic, Funk-Soul, Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Evidence (dangerous version) (7:32)
-02. Come Into My Life (8:12)
-03. The Evidence (normal version) (5:50)
-04. Explosion Of A Planet (3:15)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, DiscoПродолжительность: 00:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337FA916367D2C9CC4ECA9E79BB25F018157C900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140828   (654936) от 07.06.2017
-
-Вечерний Ургант (2017.06.06) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:29:34Реклама: Присутствуют вставки текстовой рекламы
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B97F652F2C4D451FE98A1278347AACCBD794921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140689   (654935) от 07.06.2017
-
-Журнал | Золотые рецепты наших читателей №11 (189) (июнь 2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654935.jpg" />
-</div>
-
-
-###  Подробнее
-
-Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B9F7D475B12048C83E9E79D266C9C47100F58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140690   (654934) от 07.06.2017
-
-Журнал | Рыболов №5 (май 2017) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654934.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Рыболов"- информационно-познавательное издание. Любопытные истории, лирические рассказы, меткие наблюдения любителей ужения, рекомендации и комментарии по самым разным аспектам рыболовства, секреты традиционных способов ловли и изготовление снастей своими руками.Жанр: Рыбная ловля, хоббиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB45395A3A88882DFC0AECBE558EE793D566E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140743   (654933) от 07.06.2017
-
-VA - Deep House Nation Vol.2 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grooveyard – Seven Mile – F. Dancers Radio Remix
-02. Tony D – Fluid Love – Original Mix
-03. Adriano Gargiulo – Stillness – Club Mix
-04. Alfredam – The Sun – Steve Troiani Pool Party Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:02:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43754D487ED88206BC71C61EA9A441A71AE5A974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140625   (654932) от 07.06.2017
-
-Meta 1.6.7 [Multi]
+Vaccine - Decryption (2014) Auxiliary Transmissions [FLAC|Lossless|WEB-DL|tracks] <IDM, Abstract, Downtempo, Experimental>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Meta поможет Вам управлять постоянно растущей коллекцией цифровой музыки.
-С Meta вы можете легко редактировать информацию, такую как автор песни, название, альбом, обложки альбома и т.д. Он поддерживает редактирование большинства аудио форматов, такие как MP3, MP4, M4A, FLAC, OGG, OGA, SPX, WAV, AIFF, и разнообразие форматов метаданных, включая ID3v1, ID3v2.3, ID3v2.4, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06 июня 2017Разработчик: Benjamin JaegerПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский, Французский и Немецкий
+01. Decryption (05:11)
+ 02. Bad Habit (04:29)
+ 03. Nurse (04:57)
+ 04. Electrolyte (Decryption Part 2) (04:45)Жанр: IDM, Abstract, Downtempo, ExperimentalПродолжительность: 00:19:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7AAABF072F034193DC341609938BA896A044C34
+magnet:?xt=urn:btih:808C540498802C1D4E7C9AFCF4C3E2F5A329E322
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,24 +56,76 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140671   (654931) от 07.06.2017
+###  Публикация: 1226048   (657084) от 19.05.2018
 
-Phoebe Hunt & The Gatherers - Shanti's Shadow (2017) [FLAC|Lossless|tracks] <Country, Bluegrass>
+От группы Благоева к «Союзу Борьбы» [1886-1894 гг.] (1921) [PDF]
 
->>нет
->>нет
+>>Разное (категория книг)
+>>Публицистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657084.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Frolic Of The Bees (3:02)
-02 - Pink And Blue (3:52)
-03 - Road To Kolhapur (3:13)
-04 - Lint Head Gal (2:49)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:36:05
+Статьи и воспоминания: К. М. Норинского, В. А. Шелгунова, В. Невского, М. Ольминского. Материалы по делу М. И. Бруснева и Юв. Мельникова. Речи рабочих 1 мая 1891 г.Жанр: История, политология, публицистика, документалистикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9E72034B1C6F4315D2A1DBF01B6FE725B257106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1225834   (657083) от 19.05.2018
+
+Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восточной конференции. 2-й матч. Тампа-Бэй Лайтнинг – Вашингтон Кэпиталз (13.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657083.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 мая 2018 года, понедельник. 03:00 МСК
+НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восток. 2-й матч
+Тампа-Бэй Лайтнинг – Вашингтон Кэпиталз
+Стадион: Амали-Арена (Тампа, США), 19092 зрителя (98 % при вместимости 19500)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6F270DFBC879EC27947BC6360F0FBCE5403DADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226164   (657082) от 19.05.2018
+
+Журнал | Elle Decoration [France] №263 (июнь 2018) [PDF] [Fr]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пользующийся большой популярностью журнал "Elle Decoration" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -358,25 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140683   (654930) от 07.06.2017
+###  Публикация: 1226086   (657081) от 19.05.2018
 
-Журнал | Кухонька Михалыча №6 (142) (июнь 2017) [PDF]
+Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Западной конференции. 3-й матч. Вегас Голден Найтс – Виннипег Джетс (16.05.2018) WEB-DL [H.264/1080p-LQ]
 
->>Журналы
->>Кулинарные журналы
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияФормат: PDF
+17 мая 2018 года, четверг. 04:00 МСК
+НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Запад. 3-й матч
+Вегас Голден Найтс – Виннипег Джетс
+Стадион: Ти-Мобайл Арена (Парадайс, США), 18477 зрителей (99 % при вместимости 18693)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:949C84ADEC25421ACB5CDCFC6A305C185DBBA7E7
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,25 +166,313 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140693   (654929) от 07.06.2017
+###  Публикация: 1226034   (657080) от 19.05.2018
 
-Журнал | AD / Architectural Digest [Россия] №6 (162) (июнь 2017) [PDF]
+Dave Brubeck - Interchanges '54 (1991) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audrey
+02. Jeepers Creepers
+03. Pennies From Heaven
+04. Why Do I Love You(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570B1331275DC10BD61D0204B8ADEB2F8BADFA88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226032   (657079) от 19.05.2018
+
+Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восточной конференции. 3-й матч. Вашингтон Кэпиталз – Тампа-Бэй Лайтнинг (15.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657079.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 мая 2018 года, среда. 03:00 МСК
+НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восток. 3-й матч
+Вашингтон Кэпиталз – Тампа-Бэй Лайтнинг
+Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18506 зрителей (100 % при вместимости 18506)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8DB6CADE71B136B643222A51590A02B9A2F5E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226145   (657078) от 19.05.2018
+
+Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восточной конференции. 4-й матч. Вашингтон Кэпиталз – Тампа-Бэй Лайтнинг (17.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657078.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 мая 2018 года, пятница. 03:00 МСК
+НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восток. 4-й матч
+Вашингтон Кэпиталз – Тампа-Бэй Лайтнинг
+Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18506 зрителей (100 % при вместимости 18506)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226274   (657077) от 19.05.2018
+
+VA - Kaimo K - Call It What It Is - Best Of (2018) [MP3|320 Kbps] <Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaimo K & Sue McLaren - Call It What It Is
+02. Audrey Gallagher & Kaimo K - Lullaby
+03. Beat Service & Ana Criado - An Autumn Tale (Kaimo K Remix)
+04. Kaymo K - Uncharted(   Читать дальше...   )Жанр: TranceПродолжительность: 05:26:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226103   (657076) от 19.05.2018
+
+Hubert Laws - Say It With Silence (1978) 2016, Sony Music [FLAC|Lossless|image + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Baron [05:55]
+02. False Faces [06:20]
+03. Love Gets Better [05:09]
+04. It Happens Everyday [07:42](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:33:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35A5B9AC36DC8C3FF7362AC110D7308870AE205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226153   (657075) от 19.05.2018
+
+VA - Black Hole Trance Music 05-18 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christina Novelli & HAKA - Worlds Collide (Extended Mix)
+02. Clef & Canberra - Wonder Years (Extended Mix)
+03. Marcus Santoro - Whispers (Extended Mix)
+04. Dennis Sheperd & DIM3NSION - Amigos (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E061AB79944B5C43B1B1D972579699325C8A67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226208   (657074) от 19.05.2018
+
+raison d'être - Alchymeia (2018) Cyclic Law [FLAC|Lossless|tracks+.cue] <Ambient, Dark Ambient, Drone>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nigredo (17:17)
+ 02. Albedo (17:51)
+ 03. Citrinitas (17:25)
+ 04. Rubedo (18:27)Жанр: Ambient, Dark Ambient, DroneПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7DEFE43CB7E68EB1BBD5F4123153CFECC2B5B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226198   (657073) от 19.05.2018
+
+VA - Markus Schulz & Arkham Knights - Global DJ Broadcast (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz:
+01. DT8 Project - ClimbЖанр: Trance,Progressive TranceПродолжительность: 02:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08BB4C255A2EC360A8B4134D78EC849128027DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226222   (657072) от 19.05.2018
+
+VA - Aly & Fila - Future Sound of Egypt 548 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amari & Nico Morano feat. Jinadu - Desire (Eelke Kleijn Extended Remix)
+02. Darin Epsilon - Niflheim (Original Mix)
+03. Matter - Star. Rock. (Lanvary Remix)
+04. SEQU3L - Jelly Bell (Paul Angelo & Don Argento Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58500E38A0E48EA2F73FD052C5BD124BF61C5897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226197   (657071) от 19.05.2018
+
+subtractiveLAD - Everything We Failed to Be (2018) [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Electro>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything We Failed to Be (05:28)
+ 02. Ex-Libertine (04:32)
+ 03. Around the Edges (05:34)
+ 04. Cheekbones (07:01)(   Читать дальше...   )Жанр: Techno, IDM, ElectroПродолжительность: 01:12:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226175   (657070) от 19.05.2018
+
+Газета | 1000 секретов [Украина] №9 (май 2018) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ведущий международный журнал об архитектуре и дизайне. Издается в Америке с начала 20-х годов, в России с сентября 2002 года. За долгие годы завоевал репутацию законодателя интерьерной моды, сформировал вкусы нескольких поколений, источник вдохновения в искусстве создания идеального жизненного пространства.Жанр: Дизайн, архитектураФормат: PDF
+«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:808709A85992B7ED89494F365E3AA204B932894A
+magnet:?xt=urn:btih:880D3E90F4FC9F6592492EBD169C385AE67079CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -410,279 +480,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140724   (654928) от 07.06.2017
+###  Публикация: 1226104   (657069) от 19.05.2018
 
-iExplorer 4.1.0.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ситуация, когда жизненно необходимо скачать какую-либо информацию с компьютера на внешний накопитель, знакома всем. Особенно это актуально как раз тогда, когда такого накопителя с собой почему-то нет. Но главное, чтобы под рукой был любимый i-девайс, потому что, в таком случае, решение указанной проблемы уже есть – это приложение iExplorer.
-
-iExplorer - утилита для (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 06 июня 2017Разработчик: Macroplant LLC.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06EF4C918A7443F97D49A3F4723CAACF9290ACDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140626   (654927) от 07.06.2017
-
-Smooze 1.1.80 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Smooze одушевляет ваш скролл  и добавляет функциональность к вашей не Apple мыши (прокрутки колеса мыши).
-
-• Отключить ускорение прокрутки в Macos 10,12 Sierra
-• Каждое приложение будет иметь плавный скроллинг(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06 июня 2017Разработчик: Start BootstrapПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33D10D09EDF75A48C89764718E5C37466D033FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140668   (654926) от 07.06.2017
-
-John Anderson - Paradise (1996) [FLAC|Lossless|tracks] <Country>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Paradise (2:47)
-02 - Long Hard Lesson Learned (3:23)
-03 - The Band Plays On (3:51)
-04 - My Kind Of Crazy (2:44)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:33:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB18A535C1B248C8114735181AEB514AC0F56CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140687   (654925) от 07.06.2017
-
-VA - Deep House Nation, Vol. 1 (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Esse – You Are – Original Mix
-02. Raviv – Good Together – Luca Minoli Remix
-03. NJ Producer – Hold Love – Portugal Mix
-04. Dr. LeDo – Baile Caliente – Enzo Caprioli Remix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:18:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40AE615B64F518E76956B13A2B17F74EB2D4A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140699   (654924) от 07.06.2017
-
-Журнал | Сваты. Заготовки №6 (26) (июнь 2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Домашние заготовки на зиму делают многие хозяйки, стремящиеся позаботиться о своей семье, поскольку только так можно сохранить натуральные сезонные витамины, содержащиеся в урожайных овощах, ягодах и фруктах. Чтобы домашние заготовки на зиму удавались и получались легко, используйте собранные в этой рубрике надежные и проверенные тысячами хозяек рецепты. С этими (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED89989F33CED0A07449B2026AA4B9FCADC640F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140749   (654923) от 07.06.2017
-
-Jonzun Crew - Lost In Space (1983) LP [MP3|320 Kbps] <Electronic, Electro>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Are The Jonzun Crew (6:25)
-02. Space Is The Place (6:32)
-03. Electro Boogie Encounter (6:41)
-04. Ground Control (5:41)(   Читать дальше...   )Жанр: Electronic, ElectroПродолжительность: 00:36:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC97B5E53B5379FD7383104AB7D20054B95B79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140674   (654922) от 07.06.2017
-
-Jim Keaveny - Put It Together (2017) [FLAC|Lossless|tracks] <Country, Americana>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - What I Ain't Got (4:08)
-02 - Is It You (4:14)
-03 - The Grand Forks (3:14)
-04 - Check You Out (3:28)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C957379306EEC4A1CF7DC2369B7B137C9E3FB07E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140311   (654921) от 07.06.2017
-
-Джойс Мэйнард | Шесть дней любви (2017) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ее жизнь, полная упоительной любви и страстных танцев, казалась волшебной сказкой. Тем страшнее для нее настоящее, в котором не осталось ничего, кроме горя, тоски и безысходности. Но однажды появился мужчина — и в глухом мраке отчаяния зажегся маячок надежды. У этого человека тоже исковеркана судьба: он мало того что осужден за убийство, но еще и совершил дерзкий (   Читать дальше...   )Жанр: ПрозаПродолжительность: 05:38:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90AB6D3F594AC87A833B321F4FC3C92B08D5542B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140679   (654920) от 07.06.2017
-
-Журнал | Домашние заготовки. Спецвыпуск №5 (май 2017) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Домашние заготовки" от авторов "Кулинария. Коллекция" - лучшие рецепты к вашему столу! Сборник вкусных, традиционных или оригинальных рецептов для каждодневного меню или праздничного стола. А также полезные материалы и советы, тонкости и хитрости кулинарного мастерства.Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB6C4BFECAE74CE3A834234A0D8028A53710B967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539495   (654919) от 28.03.2022
-
-VA - Beatport Electro House: Sound Pack #506 (2022) [MP3|320 Kbps] <Electro House>
+VA - German Top 100 Single Charts 18.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Beatport продолжает знакомить нас с новинками электронной сцены - подтверждение тому 506-й релиз который включил в свой треклист целых 120 самых актуальных треков в стиле Electro House.001. Soul Train - A New Soul
-002. Kiberu - Ufzag
-003. Waterfall Eleven - Breathin
-004. Minor Crime - Spiritual Rites(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:55:42
+001. Capital Bra - Neymar (feat. UFO361)
+002. Calvin Harris & Dua Lipa - One Kiss
+003. Michael Schulte - You Let Me Walk Alone
+004. Gzuz - ¿ Warum ?(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:44:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:74F86E5B6B29C8BBC8BA36FEAE4E264AF705A545
+magnet:?xt=urn:btih:048FA8B89610A142A0693676619C06489DDAB877
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,26 +509,213 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540188   (654918) от 28.03.2022
+###  Публикация: 1226163   (657068) от 19.05.2018
 
-Meta 2.1.3 [Multi/Ru]
+Журнал | Elle Decoration [Россия] №6 (25) (июнь 2018) [PDF]
 
->>Архив торрентов
->>Архив 4Apple
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Meta поможет Вам управлять постоянно растущей коллекцией цифровой музыки.
-С Meta вы можете легко редактировать информацию, такую как автор песни, название, альбом, обложки альбома и т.д. Приложение поддерживает редактирование большинства аудио форматов, такие как MP3, MP4, M4A, FLAC, OGG, OGA, SPX, WAV, AIFF, и разнообразие форматов метаданных, включая ID3v1, ID3v2.3, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.03.2022Разработчик: © 2022 Nightbirdsevolve SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
+"Elle Decoration" является источником вдохновения для ведущих дизайнеров и декораторов мира. Для людей, задумывающихся о строительстве и обустройстве дома, он служит путеводителем в мире современных материалов и тенденций интерьерной моды. В каждом номере — архитектурные новости, выбор лучших дизайн-объектов и знакомство с их создателями, практические советы (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9F307D904CCB55388DE1880806614708FC42E93
+magnet:?xt=urn:btih:6EB3BDA4980D78FC2A6E492CB8E5FDCB3C214B50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1485629   (657067) от 26.03.2022
+
+Алессандро Гатти | Приключения Клинкуса в городе на деревьях [5 книг] (2021-2022) [FB2, EPUB, MOBI]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга 1. История о погасших огнях. ISBN: 978-5-04-156380-6. Год: 2021.
+Клинкус Кора не мог и представить, что однажды окажется… в таинственном городе на деревьях! Здесь очень здорово: Листвянка необычайно красивая, а горожане очень дружелюбные. Уже много лет жители секретного города используют слёзы дракона для его освещения, ведь это безопасно и очень удобно. Но (   Читать дальше...   )Жанр: Детская литература/ФантастикаПеревод: Лариса ЗолоеваФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF574ED5C57A663407463E7D7B6722B9514F4C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539707   (657066) от 26.03.2022
+
+Bigasoft Total Video Converter 6.4.2.8118 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_657066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bigasoft Total Video Converter - мощный видеоконвертер, позволяющий конвертировать практически любые видеофайлы в различные форматы. Программа распознает свыше 40 видео и аудио форматов и поддерживает конвертирование между свыше 30 форматами (AVI, Xvid, DivX, H.264, MP4, 3GP, MKV, WMV, RM, FLV, MOV, WebM, VP8, 720p, 1080p, 1080i HD, AVCHD видео и многими другими). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539594   (657065) от 26.03.2022
+
+Хоккей. НХЛ 2021-2022. Вашингтон Кэпиталз - Баффало Сэйбрз (25.03.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657065.jpg" />
+</div>
+
+
+###  Подробнее
+
+26 марта 2022, суббота. 02:00 МСК
+Стадион: Кибэнк-центр (Баффало, США), 9 740 зрителей (51% при вместимости 19 070)
+Главный судья: Иэн Уолш (Филадельфия, США); Главный судья: Жан Эбер (Монктон, Канада)Телекомпания: NBCS-WAЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A1393F8CCC8EECE8F61EDDD06C1D86150486700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1536362   (657064) от 26.03.2022
+
+Мадам Бовари / Madame Bovary (1991) BDRip [H.264] [DVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Экранизация одноимённого романа Гюстава Флобера. История Эммы Бовари — конфликт идеализированной, «книжной» (в понимании главной героини) жизни и суровой реальности. Не сумев смириться с отягощающей, скучной и бессмысленной судьбой, она ввязывается в череду опасных и дерзких поступков, которые приводят к трагическому финалу…Производство: Франция, Canal+ (fr), CED Productions, Conseil Général de l'Eure...Жанр: драма, мелодрамаРежиссер: Клод ШаброльАктеры: Изабель Юппер, Жан-Франсуа Бальмер, Кристоф Малавуа, Жан Янн, Люка Бельво, Кристиана Минаццоли, Жан-Луи Мори, Жан-Клод Буйо, Саблен Кампо, Флоран ГибассьеПеревод: профессиональный двухголосыйСубтитры: нетПродолжительность: 02:22:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31FAABDDA9888884D77C675D0EFCF5D00A49088A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539628   (657063) от 26.03.2022
+
+PixPlant 5.0.40 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657063.jpg" />
+</div>
+
+
+###  Подробнее
+
+PixPlant – очень мощный и нестандартный графический редактор, который специализируется на создании высококачественных бесшовных текстур и трехмерных карт. Получить эти оригинальные проекты вы сможете из обычных изображений, просто воспользовавшись уникальными технологиями обработки данной программы.
+
+Софт обладает интуитивно понятным интерфейсом, гибкой моделью управления (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215F17489DCACCB4616D9959A7A3D7A9BA59DDD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539657   (657062) от 26.03.2022
+
+Игра смерти / Si wang you xi / Game of Death (1978) UHD BDRip [H.264/1080p-LQ] [MVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657062.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преступный синдикат зловещего доктора Лэнда контролирует гонконгский шоу-бизнес: все артисты обязаны отчислять мафии немалые суммы со всех своих доходов. Молодой актер Билли Ло вступает в борьбу с преступным синдикатом. Жёлто-чёрный костюм, использованный во время съёмок этого фильма, был использован Квентином Тарантино во время съёмок фильма «Убить Билла».
+Название (   Читать дальше...   )Производство: Гонконг, США / Concord Productions Inc., Golden Harvest Company Ltd.Жанр: Боевик, Триллер, Драма, КриминалРежиссер: Роберт Клауз, Брюс ЛиАктеры: Брюс Ли, Коллин Кэмп, Дин Джаггер, Гиг Янг, Таи Чунг Ким, Бяо Юэнь, Роберт Уолл, Карим Абдул-Джаббар, Мел Новак, Хью О`БрайанПеревод: Многоголосый закадровый (Superbit)Язык озвучки: РусскийСубтитры: Русские, английскиеПродолжительность: 01:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC317089504A0CB1E31FF60650E1F2A99309CC7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539555   (657061) от 26.03.2022
+
+Э.Г. Эйдемиллер и др. (ред.) | Детская психиатрия, психотерапия и медицинская психология (2022) [PDF]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот учебник уникален. До настоящего времени в России существовали только монотематические учебники – психиатрии, с минимальным описанием психотерапии и медицинской психологии. Построение этого учебника осуществляется по принципу интеграции. Специфика нервно-психических расстройств у детей, «аномальное» поведение часто ошибочно расценивается специалистами как патология, (   Читать дальше...   )Жанр: МедицинаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:417E8BE17BB4190B5CFB714614E07665265379F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1538833   (661383) от 22.03.2022
+
+Sandstorm - Zeitgeist (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Die Young 05:50
+02. The Eagle's Nest 05:08
+03. Our Children's Children 05:47
+04. The Double Cannula Waltz 07:28(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEBB60F12A6D422463FE398D64CDE16F52326C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538558   (661275) от 22.03.2022
+
+Moxy - 6 albums (1975-2015) [FLAC|Lossless|image + .cue | tracks + .cue ] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661275.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенда канадской хард-рок сцены группа Moxy образовалась в 1974 году на обломках Leigh Ashford, коллектив, взяв себе имя Moxy, приступил к записи дебютного сингла Can't You See I'm A Star. Многообещающий звук позволил подписать контракт с Polydor Records. Свою дебютную пластинку, которую записывали в Калифорнии, группа продюсировали сами, В той же студии записывался (   Читать дальше...   )--------------------------
+
+01. Midnight Flight (3:35)
+02. Can't You See I'm a Star (3:36)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 04:25:35|
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BE3038F4F9A62175911C34ED64F3CDBB10D2487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 902801   (660223) от 29.05.2015
+
+Lou Pardini - Look The Other Way (1998) [FLAC|Lossless]<AOR, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Late Than Never (5:23)
+02. We've Got So Far To Go (4:43)
+03. Love Is A Hurtin' Thing (4:54)
+04. Time Out For Love (4:25)(   Читать дальше...   )Жанр: AOR, Soft RockПродолжительность: 00:55:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:012B7144FB6AD8CDB3A48B400DF68051B0A877C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1539579   (657269) от 26.03.2022
+
+King Mountain - Tempest at the Gate (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Soul Sacrifice (00:05:50)
+02 - Tempest at the Gate (00:03:29)
+03 - Burning Walls (00:04:05)
+04 - King of the Mountain (00:06:12)(   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ADA4BD62E725AF8F1104299C94ACB29AECD7831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903865   (656777) от 01.06.2015
 
 Gov't Mule - Dub Side Of The Mule (2015) 3 CD Deluxe Edition [FLAC|image+.cue]<Classic Rock, Blues-Rock, Jam Bands, Hard Rock>
@@ -638,123 +754,6 @@ Wasteland Viper - Dead Men Tell No Tales (2020) [FLAC|Lossless|WEB-DL|tracks] <H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DBF13D59FC1D2AAAFB79CB035E9C758509CB9D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032322   (645952) от 07.07.2016
-
-The Dead Daisies - The Dead Daisies (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Gonna Take Time
-02. Lock'n'Load (featuring Slash)
-03. Washington
-04. Yeah Yeah Yeah(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DEF41BE823B3EF37BD7AD573F0709A7E58A390
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292409   (645289) от 30.03.2019
-
-GT Project - Az Elet Rock & Roll (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Az élet Rock & Roll (05:12)
-02. Ég veled (05:36)
-03. Nehéz idők (05:12)
-04. Hegyeken át (04:39)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E3869824E08338E7B1685A43590772A663A35B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292536   (645190) от 30.03.2019
-
-Find Me - Angels In Blue (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Tears In Paradise (04:51)
-02. Chain Of Love (04:48)
-03. True Believer (04:31)
-04. Straight For Eternity (04:02)(   Читать дальше...   )Жанр: Rock, Hard Rock, AORПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02E0F48F83D8EC9DB6EF12172D4B525A46ED45BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292626   (645081) от 30.03.2019
-
-Whitesnake - Slide It In (1984) The Ultimate Special Edition 6CD, Remastered, 2019, Rhino Records [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645081.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slide It In - шестой студийный альбом группы Whitesnake, вышедший в 1984 году, по сертификации RIAA дважды платиновый (1992), поднявшийся до 40 места в Billboard 200 и до 9 места в британском чарте альбомов. Последний альбом группы с «классическим» логотипом Whitesnake на обложке.
-Записи альбома предшествовали перемены в составе группы, не в последнюю очередь связанные (   Читать дальше...   )CD1 - U.S. Mix (1985) 35th Anniversary Remaster
-CD2 - Original U.K. Mix (1984) 35th Anniversary Remaster
-CD3 - Special 35th Anniversary US Remix (2019)
-CD4 - Monitor Mixes & Intros (September 1983)Жанр: Hard RockПродолжительность: 05:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B610768964B211DF0E067ACC94B3D4D01A31EA13
 ```
 
 https://mybot314.ru/tekegram_catalog/

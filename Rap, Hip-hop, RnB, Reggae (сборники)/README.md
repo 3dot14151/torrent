@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1868234   (1067449) от 
+
+Кирпичи & Вася Васин - Compilation (1996-2026) [MP3|320 Kbps] <Alternative rap, Funk rock, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кирпичи Тяжелы ❂ Кирпичи Тяжелы 1996
+02. Данила Блюз ❂ Капиталиzм 00 2012
+03. Дважды Два Равно Четыре (Рингтон) (& Шнур) ❂ Новые Кирпы МОО ФОК 2011
+04. Джедаи ❂ Сила Ума 2002(   Читать дальше...   )Жанр: Alternative rap, Funk rock, Hip-HopПродолжительность: 06:32:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6A99DCEA489A2E133169B2ACFE23A75951C88C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1856584   (1058981) от 01.03.2026
 
 Cypress Hill - Compilation (1991-2025) [MP3|320 Kbps] <Hip-Hop>
@@ -717,35 +746,6 @@ Reggae — это путь. Это такая тропинка. Через ть�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA7A3B957C54F391A1730708BDEB6D016D3C2592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1459850   (1022959) от 03.04.2021
-
-VA - Rap Blender Mix (Vol.03) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тут Вы не найдёте тем, вроде – люблю, не люблю, слёзных соплей и бездушной электронной долбежки. Тут рай для души. Композиции создаются лучшими мастерами рэпа и хип-хопа, задают правильное настроение и отвязные речитативы, которые Вы сможете услышать в сборнике "Rap Blender Mix" третьей генерации.001. Nateboi - Worst Ways
-002. Bsuavee - Move Silent Big Moves
-003. 102 Boyz - Was Ich Trink
-004. Blockrepp Shad - Thug Tears(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:18:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A927D1D7D94968BE742467860DC8DCBE8EDDE303
 ```
 
 https://mybot314.ru/tekegram_catalog/

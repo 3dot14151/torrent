@@ -1,3 +1,177 @@
+###  Публикация: 1684406   (127764) от 15.12.2023
+
+Ayreon - The Source (2017) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127764.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - The Day That The World Breaks Down
+A2 - Sea Of Machines
+A3 - Everybody Dies
+B1 - Star Of Sirrah(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684782   (127351) от 17.12.2023
+
+Phantasm - Keeper of Death (1993) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Thrash, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127351.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Rotten Plague
+A2 Stick In Back
+A3 Brainsuckers Spiders
+A4 Night Of The Living Dead(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4012276DE02FF8FE2771B1FBCE4542D673D0A223
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685955   (126869) от 20.12.2023
+
+Atomkraft - Atomkraft (1987) Compilation [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126869.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Queen Of Death
+A2 Protector
+A3 Demolition
+A4 Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36728EE6E92CB9444221B4731F58A1793CA2FDB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685908   (126863) от 20.12.2023
+
+Atomkraft - Future Warriors (1985) [FLAC|24/96|tracks|Vinyl-Rip]<NWOBHM, Heavy Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Future Warriors
+A2. Starchild
+A3. Dead Man's Hand
+A4. Total Metal(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD00F1A33906F55731AC18AD1B41DE8844088FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686072   (126770) от 21.12.2023
+
+Телевизор - Шествие Рыб (1988) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126770.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Люди В Ожидании
+A2 Муха На Стекле
+A3 Город
+A4 Я Не Виноват(   Читать дальше...   )Жанр: New WaveПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A8E83BFE7B47D0F7423EEA7FDC2BA3EDC1D1724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1685934   (126751) от 21.12.2023
+
+Atomkraft - Queen of Death (1986) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126751.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Queen Of Death
+A2 - Protector
+B1 - Demolition
+B2 - Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686210   (126734) от 21.12.2023
 
 Kalmah - Studio Albums (9 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Power Metal>
@@ -565,180 +739,6 @@ Triple Kill - Thrash/Power Metal-группа сформированная в 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7243D16CB5D49ABF21C4E127623671BCB5AB6D2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691668   (122926) от 14.01.2024
-
-Metallica - Unload (Bootleg) (1999) [FLAC 16/44.1|Lossless|tracks|MC-Rip] <Acoustics, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122926.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Low Man's Lyric 08:14
-2. Helpless 03:43
-3. Tuesday's Gone (feat. Jerry Cantrell) 08:54
-4. Poor Twisted Me 04:13(   Читать дальше...   )Жанр: Acoustics, RockПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7D945DE4278DD86451514DA3B1A535105188A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692087   (122760) от 15.01.2024
-
-Charles Aznavour/Шарль Азнавур - Поёт Шарль Азнавур (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122760.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Изабелла
-A2 Потому Что
-A3 Жить С Тобой
-A4 Ты Была Слишком Красива(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACA7A2AEED035ABA02D31DF17005395826B6CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692516   (122519) от 16.01.2024
-
-Myrath - Shehili (2019) [FLAC 24/192|Lossless|tracks] <Middle Eastern Folk, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122519.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Asl
-A2. Born To Survive
-A3. You've Lost Yourself
-A4. Dance(   Читать дальше...   )Жанр: Middle Eastern Folk, Progressive MetalПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4B718E820F99A53875D54D416B7ABC7F9D2CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692275   (122507) от 16.01.2024
-
-Anthem - Studio Albums (20 releases) (1985-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122507.jpg" />
-</div>
-
-
-###  Подробнее
-
-Anthem — метал-группа из Японии, основанная в 1981 году в Токио.1985 - Anthem
-1986 - Tightrope
-1987 - Bound To Break
-1988 - Gypsy WaysЖанр: Heavy/Power MetalПродолжительность: 16:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B6711036FF2939873896775730D1A71597E5C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692668   (122326) от 17.01.2024
-
-Regurgitated Guts - Esophageal Mutilation (2017) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122326.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vermin Feast
-A2 Esophageal Mutilation
-B1 Coffin Birth
-B2 Vomit RitualЖанр: Death MetalПродолжительность: 00:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6255D79591533C7D345A5B0BFB637F0DE3CD073C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692948   (122140) от 18.01.2024
-
-Darzamat - Studio Albums (7 releases) (1996-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122140.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darzamat — польский музыкальный коллектив из города Катовице. По мнению критиков, творчество группы сочетает различные стили экстремальной музыки и в основном характеризуется как симфонический блэк-метал, дарк-метал и дэт-метал, кроме того присутствуют элементы пэган-метала и готик-метала. Участники также используют комбинацию мужского и женского вокала: традиционный (   Читать дальше...   )1996 - In The Flames Of Black Art
-1999 - In The Opium Of Black Veil (EP)
-2003 - Oniriad
-2004 - SemiDevilishЖанр: Symphonic Black/Gothic MetalПродолжительность: 04:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F1B9555315F8792152DEF43C8CEAD49471B070
 ```
 
 https://mybot314.ru/tekegram_catalog/

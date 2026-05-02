@@ -1,3 +1,36 @@
+###  Публикация: 521765   (624830) от 12.07.2012
+
+Gioachino Rossini–Famous Overtures: Academy of St Martin in the Fields conductor Sir Neville Marriner (1974)/2002, Penta Tone Music/[APE|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Il Barbiere di Silvia                  [07:08]
+02. L'Italiana in Algeri		     [08:05]
+03. La Cambiale di matrimonio      [05:27]
+04. La Scala di sera		              [05:58]
+05. Tancredi		                	[05:48]
+06. Il Signor Bruschino		[04:59]
+07. Il Turco in Italia		[08:29]
+08. L'inganno felice		[05:54]Жанр: ClassicalПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B4597A748161DA99FB61E8B6B6BCE16A8E2A8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 521904   (624670) от 12.07.2012
 
 VA - Guitar Moments : Cavatina And Other Classical Guitar Favourites (2004) [FLAC|Lossless]<Classical Guitare, Instrimental>
@@ -750,35 +783,6 @@ Katherine Jenkins - One fine day (2011) [FLAC|Lossless|image + .cue] <Classical 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33C13C2CE0B9C2FE9A175FF048706E134B94E8BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038036   (608364) от 27.07.2016
-
-Elgar - Enigma Variations, Cello Concerto (2012) [FLAC|Lossless|image + .cue] <Classical, Оркестровая>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cello Concerto in E minor, Op.85
-01. I. Adagio - Moderato (7:47)
-02. II. Lento - Allegro molto (4:08)
-03. III. Adagio (5:03)(   Читать дальше...   )Жанр: Classical, ОркестроваяПродолжительность: 01:14:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E53BFA67F5408CE26DAD5DBC8FA88909AB537A
 ```
 
 https://mybot314.ru/tekegram_catalog/

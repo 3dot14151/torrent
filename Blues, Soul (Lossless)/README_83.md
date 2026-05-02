@@ -1,3 +1,119 @@
+###  Публикация: 1632239   (240698) от 09.05.2023
+
+Big Matt Wallace - Stereo Stereo Stereo (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Changed the Locks (4:55)
+02. You're Gonna Need Me (2:52)
+03. When I'm Gone (2:34)
+04. Wicked as It Seems (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E7E23427E3E6AA97CEE94BA537642EA58E3C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632243   (240690) от 09.05.2023
+
+Chris Kramer feat Jens Filser - Roots Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Harp River (2:07)
+02. Blues As Blues Can Get (3:58)
+03. Now I Know (6:01)
+04. Got To Go Back Home (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D91E9602CF7A7C4EE97D9744BC08C179595A218
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626373   (240689) от 14.04.2023
+
+Joe Bonamassa - Tales Of Time (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notches
+02. The Heart That Never Waits
+03. Curtain Call
+04. Mind’s Eye(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:270750B674A54D5FF5B5DCB6A80EE111C01EAF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632248   (240684) от 09.05.2023
+
+Marcus Malone and the Motor City Hustlers - Interstate 75 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't No Telling (4:23)
+02. Can't Make It (3:50)
+03. Can't Take The Fight (3:54)
+04. Good Lovin' Angel (3:33)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D29B45E3A673DC96E4F69FBC8383EE12E92922F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1632247   (240681) от 09.05.2023
 
 Hurts Like Hell - In Through the Eye (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Bob Dylan - Shadow Kingdom (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Fol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C7BFC447442EE12BE2594297E2F1AAF6C471D6FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637866   (238253) от 06.06.2023
-
-Blue Recluse - Rarely Fatal - Rarely Fatal (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run Me Ragged (4:40)
-02. Black Coffee (3:35)
-03. Hard and Sure (5:38)
-04. Bad Rooster (6:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3788907BB042D3F6224396DEFC89B94FB5BAAB6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637876   (238219) от 06.06.2023
-
-Doc Dynamite - Modern Day Bluesman (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Take No More (5:20)
-02. Strip T's (4:50)
-03. Nothin' but the Blues (4:57)
-04. Fancy Dancer (5:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B832F54E847984D11725202E96B38F9F769F606A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637871   (238205) от 06.06.2023
-
-Crispin Cioe - Soul Noir (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Start It Up  (3:03)
-02. Sweet Feeling  (4:14)
-03. Here to Stay (4:14)
-04. Let's Talk It Over (4:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60866EA010D682CFFDC9AE5D476D8B14E7381891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637880   (238198) от 06.06.2023
-
-Gaye Adegbalola - Satisfied (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Ovaries, Baby (3:51)
-02. Look At The Forehead, Maury (3:40)
-03. The Dirty Dozens (3:52)
-04. Tippin' On The Down Low (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0506E69372AEBCBE6349B96F98A0A5DE26A1DE07
 ```
 
 https://mybot314.ru/tekegram_catalog/

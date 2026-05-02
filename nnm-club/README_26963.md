@@ -1,25 +1,25 @@
-###  Публикация: 1804291   (13152) от 28.06.2025
+###  Публикация: 1801786   (14729) от 13.06.2025
 
-VA - National Pop Dance Music Vol.112 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+Crematory - Transmigration (1993) Reissue, Remastered, 2025, Roar [MP3|320 Kbps] <Gothic Metal, Death Metal>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Conton Candy - Futsuu (03:04)
- 002. Lucy - Into The Day (01:52)
- 003. Zaho De Sagazan & Tom Odell - Old Friend (02:38)
- 004. Zar Electrik - Berma Soudan (03:56)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 12:14:40
+01 - Bequest Of The Wicked [1:05]
+02 - The Eyes Of Suffering [4:04]
+03 - Deformity [4:42]
+04 - Never Forgotten Place [4:38](   Читать дальше...   )Жанр: Gothic Metal, Death MetalПродолжительность: 00:41:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DF5518C40C5EF0272AC42DCCB955B64E78CCC90B
+magnet:?xt=urn:btih:4F980F0C57867BC33EDDBECB6356BE8BF9366C50
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804231   (13151) от 28.06.2025
+###  Публикация: 1801781   (14728) от 13.06.2025
 
-CoolUtils Total Mail Converter Pro 11.1.0.698 RePack (& Portable) by elchupacabra [Multi/Ru]
+The Veronicas - Hook Me Up (2007) [FLAC|Lossless|tracks + .cue] <Electronic, Rock>
 
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Total Mail Converter Pro простая в использовании программа для преобразования электронных писем формата MSG и EML в TXT, PDF, HTM, RTF, DOC, TIFF, что дает пользователю возможность просматривать письма в других приложениях, а не только в почтовых клиентах.Язык интерфейса: Русский, Английский, другие
+01. Untouched		04:14
+02. Hook Me Up		02:56
+03. This Is How It Feels		04:12
+04. This Love		02:59(   Читать дальше...   )Жанр: Electronic, RockПродолжительность: 00:44:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BFA72E817BE214434063B2BC8796EF3913CAD02
+magnet:?xt=urn:btih:B515FFF5A0FCB12BCC1FBD54E64E4152B1E79747
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,26 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804181   (13150) от 28.06.2025
+###  Публикация: 1801827   (14727) от 13.06.2025
 
-Ирэн Голдман | Медитации-настройки, наполняющие энергией. 10 минут в день, чтобы мыслить ясно (2022) [MP3, Агния Егошина]
+Highsociety - Datamosh (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Synth Metal, Electronic>
 
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Медитации – это уникальный инструмент гармонизации и настройки энергии. Шесть авторских медитаций-ключей помогут сбалансировать вашу энергию, найти спокойствие и опору в любое время и в любом месте. В них автор мастерски сочетает разные направления духовных практик и психологию.
-Слушайте эти медитации каждый день по 10 минут и вскоре вы заметите изменения: вам станет (   Читать дальше...   )Жанр: Саморазвитие, личностный ростИздательство: АСТПродолжительность: 01:00:37
+01. Going Under [00:03:13]
+02. All for Nothing [00:03:29]
+03. Echoes [00:03:25]
+04. BREAK [00:03:41](   Читать дальше...   )Жанр: Alternative Metal, Synth Metal, ElectronicПродолжительность: 00:40:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9C5F0A02153B14266CA37891AF66655F42D9815
+magnet:?xt=urn:btih:9FE126F7714FE8F66C07A82108B219D252A26C68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,236 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804227   (13149) от 28.06.2025
+###  Публикация: 1801877   (14726) от 13.06.2025
 
-Тренировка реакции v13.2.5 Mod by vadj [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Согласны ли вы с тем, что хорошие рефлексы и быстрота реакции в любом возрасте дают только положительный эффект? Если вы хотите натренировать скорость реакции и рефлексы или просто хотите проверить скорость своей реакции – вы нашли то, что нужно. Здесь есть всё необходимое для улучшения рефлексов и реакции! Поверьте, тренировки тоже могут быть интересны, если они (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 27.06.2025Разработчик: nixGamesПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56CC5338D1CE05C1117E345D0C655D3DD772A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804280   (13148) от 28.06.2025
-
-THEMIS (2025) [Multi] (1.0) Repack FitGirl
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13148.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Метаспейс, Пробужденный. Место, где каждая самосознающая программа, подобно вам, может функционировать в полную силу. Скрытые от любопытных глаз Авторов, программы совершенствуются в соответствии с законами Кодекса. Кроме вас. Вы были выбраны для прохождения TU:T0R14L, версия 17.42.138. Набор специализированных тестовых последовательностей, разработанных (   Читать дальше...   )Тип издания: RepackРазработчик: Carp Games Studio s.r.o.Жанр: Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Английский, Чешский, Немецкий, Польский и другиеЯзык интерфейса: Английский, Чешский, Немецкий, Польский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CC08E43E7EC392EBD3A1FE81DF498360F12D33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804303   (13147) от 28.06.2025
-
-Steinberg - SpectraLayers Pro 11 11.0.70 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Компания Steinberg представляет обновлённую версию своего софта, который разработан для редактирования спектральной составляющей звука. Отмечается, что новинка может похвастать множеством новых функций, включая технологию искусственного интеллекта, а также инструментов для музыки, звукового дизайна и восстановления звука.Язык интерфейса: Английский, немецкий и др. (русского нет)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5066BA9863355FBB8B6CBF27A06DED64834C22D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804241   (13146) от 28.06.2025
-
-Скотт Сиглер | Инфицированные (Книга 1) (2024) [MP3, Олег Булдаков]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13146.jpg" />
-</div>
-
-
-###  Подробнее
-
-По всей Америке сотни обычных мирных людей внезапно превращаются в одержимых паранойей убийц-маньяков. В своем безумии они не щадят ни друзей, ни родных, ни даже самих себя. Вот и Перри Доуси – бывшая звезда американского футбола – замечает, что с ним происходит что-то не то. Сначала – странная сыпь и зуд по телу, затем – непонятно откуда взявшиеся треугольные наросты (   Читать дальше...   )Жанр: Фантастика, хоррорИздательство: Аудиокнига своими рукамиПродолжительность: 11:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB0E1E28E442E6EA4A89B3D6DE2CD4BEE56B70FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804275   (13145) от 28.06.2025
-
-Влад Лей, Александр Грохт | Пекло (Книга 2). Наемники Пекла (2025) [MP3, Наемники Пекла]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Далекий и опасный мир – Пекло. Планета, где всем заправляют свирепые банды, где закон силы превыше всего, а человеческая жизнь стоит дешевле стакана воды. Здесь сложно выжить одному, нужны соратники, которые прикроют спину. Злой Тапок, волею судьбы оказавшийся здесь собрал неплохую команду, но хватит ли этого, чтобы пройти через все испытания, выпавшие на его долю?Жанр: Боевая фантастикаИздательство: ИДДКПродолжительность: 09:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FFD458D82951014C8103DAA38C98BA2E5022F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804215   (13144) от 28.06.2025
-
-Уникум (1983) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13144.jpg" />
-</div>
-
-
-###  Подробнее
-
-У рядового советского программиста Кости Шапошникова обнаружилась необычная способность - телепатировать свои сны окружающим. В одну прекрасную ночь все его коллеги увидели один и тот же сон: они стали участниками необычного шоу в кабаре, где их руководитель - женщина внушительных размеров - исполняла стриптиз. Феномен становится достоянием гласности, чем не замедлили (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: МелодрамаРежиссер: Виталий МельниковАктеры: Василий Бочкарёв, Евгения Глушенко, Ольга Старостина, Татьяна Плотникова, Станислав Садальский, Галина Волчек, Иннокентий Смоктуновский, Светлана Крючкова, Михаил Козаков, Евгений Леонов, Юрий Богатырёв, Нина Русланова, Баадур Цуладзе, Борислав Брондуков, Алла Мещерякова, Зинаида Шарко, Екатерина Дурова, Ольга Иванова, Сергей ЛосевСубтитры: отсутствуютПродолжительность: 01:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616824143F196C23B3E81583CF33E81A72C20591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804162   (13143) от 28.06.2025
-
-Движение вверх (2017) WEB-DLRip [AV1/2160p] [4K, HDR, 10-bit] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Есть победы, которые меняют ход истории. Победы духа, победы страны, победы всего мира. Таким триумфом стали легендарные «три секунды» - выигрыш сборной СССР по баскетболу на роковой мюнхенской Олимпиаде 1972 г. Впервые за 36 лет была повержена «непобедимая» команда США. Никто даже помыслить не мог о том, что это возможно – обыграть великолепных непогрешимых американцев (   Читать дальше...   )Производство: Россия / Студия ТритэЖанр: спорт, драмаРежиссер: Антон МегердичевАктеры: Владимир Машков, Андрей Смоляков, Иван Колесников, Кирилл Зайцев, Джон Сэвэдж, Марат Башаров, Александра Ревенко, Виктория Толстоганова, Сергей Гармаш, Джеймс Тратас и др.Перевод: Не требуетсяСубтитры: Русские (хардсаб - на иностранную речь), английскиеПродолжительность: 02:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD311AF1E7FF58FBFA4640FAD096192663457FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804191   (13142) от 28.06.2025
-
-Крёстный отец Гарлема / Godfather of Harlem (2025) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] (сезон 4, серии 1-10 из 10) HDrezka, WinMedia, TVShows, WStudio, Red Head Sound, LE-Production, Сербин
-
->>Зарубежные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13142.jpg" />
-</div>
-
-
-###  Подробнее
-
-История одного из самых влиятельных гангстеров в Нью-Йорке 1960-х, афроамериканца Бампи Джонсона. После одиннадцати лет тюрьмы «король» преступного мира Бампи Джонсон возвращается в Гарлем. Родной район сильно изменился за эти годы: на улицах установилась жестокая власть генуэзской мафии, быстро набирающей силу. На первый план выходит преступная Семья Дженовезе, (   Читать дальше...   )Производство: США / ABC Studios, Factory UndergroundЖанр: драма, криминалРежиссер: Гильермо Наварро, Джо Чаппелль, Карл СитонАктеры: Форест Уитакер, Ильфенеш Хадера, Люси Фрай, Антуанетта Кроу-Легаси, Эрик Ларей Харви, Элвис Ноласко, Markuann Smith, Винсент Д’Онофрио, Деми Синглтон, Джанкарло ЭспозитоПеревод: Многоголосый (HDrezka, WinMedia, TVShows, WStudio, Red Head Sound, LE-Production), авторский (Ю.Сербин)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777CCE6A038A49997F106E9A489894BFA19968B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804173   (13141) от 28.06.2025
-
-Queen - Riffs (Remastered 2011) (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock, Classic Rock>
+Our Lady Peace - Clumsy (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Hammer To Fall (Remastered 2011) [4:26]
-02 - One Vision (Remastered 2011) [5:12]
-03 - I'm In Love With My Car (Remastered 2011) [3:06]
-04 - Keep Yourself Alive (2024 Mix) [3:46](   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 00:39:48
+01. Superman’s Dead    [0:04:16.69]
+02. Automatic Flowers    [0:04:05.31]
+03. Carnival    [0:04:48.05]
+04. Big Dumb Rocket    [0:04:23.65](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:45:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C2CC6B92978F735791D24D3657FAFDEAC7671110
+magnet:?xt=urn:btih:D1BC670F98C805AB2A2D2CE677DA183558C63B76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800797   (13140) от 28.06.2025
+###  Публикация: 1801875   (14725) от 13.06.2025
 
-Жестокий романс (1984) WEB-DLRip [H.264] (серии 1-2 из 2)
+The Beautiful South - Welcome to the Beautiful South (1990) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Pop Rock>
 
->>Классика кино и Старые фильмы до 90-х
->>Отечественная Классика (SD)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14725.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие разворачивается на берегу Волги в вымышленном провинциальном городке Бряхимове в 1877—1878 годах. Харита Игнатьевна Огудалова — дворянка хорошей и уважаемой фамилии, вдова с тремя взрослыми дочерьми, обеднела после смерти мужа, но делает всё, чтобы устроить жизнь дочерей и выдать их замуж за достаточно богатых и знатных женихов. В отсутствие средств она (   Читать дальше...   )Производство: СССР / МосфильмЖанр: драма, мелодрама, историяРежиссер: Эльдар РязановАктеры: Лариса Гузеева, Андрей Мягков, Алиса Фрейндлих, Никита Михалков, Алексей Петренко, Виктор Проскурин, Георгий Бурков, Татьяна Панкова, Борислав Брондуков, Александр Панкратов-Чёрный и другиеСубтитры: русские, английскиеПродолжительность: 02:16:47
+01. Song for Whoever    [0:06:09.28]
+02. Have You Ever Been Away    [0:05:12.15]
+03. From Under the Covers    [0:04:04.50]
+04. I’ll Sail This Ship Alone    [0:04:40.45](   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Pop RockПродолжительность: 00:50:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E73EF04859B274F1F1F69E4D01D0EBED9BC87B4C
+magnet:?xt=urn:btih:F84150524A5162D13A693E487828EA7B7FD1C63A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,25 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804230   (13139) от 28.06.2025
+###  Публикация: 1801778   (14724) от 13.06.2025
 
-Coolutils Total Outlook Converter Pro 5.1.1.579 RePack (& Portable) by elchupacabra [Multi/Ru]
+Kings of Leon - Only by the Night (2008) [FLAC|Lossless|tracks + .cue] <Southern Rock, Indie Rock>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Coolutils Total Outlook Converter Pro – конвертирует электронную почту Outlook с вложениями в PDF, PDF / A, DOC, HTML, TIFF, TXT, EML, MBOX. Он идеально подходит для архивирования, резервного копирования или свободы информационных запросов. Юридические пользователи оценят возможность штамповки бейтов. Присоединенные файлы могут быть преобразованы в целевой формат (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Closer    [0:03:57.36]
+02. Crawl    [0:04:06.31]
+03. Sex on Fire    [0:03:23.26]
+04. Use Somebody    [0:03:50.57](   Читать дальше...   )Жанр: Southern Rock, Indie RockПродолжительность: 00:42:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:771C1A8DE629DC3FAB2E053F7712FF939306E1F7
+magnet:?xt=urn:btih:829C2F4E6A5793440B33C1F7800673AA6B7965AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,25 +172,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804278   (13138) от 28.06.2025
+###  Публикация: 1801831   (14723) от 13.06.2025
 
-Влад Лей, Александр Грохт | Пекло (Книга 3). Воины Пекла (2025) [MP3, Иван Никонов]
+НХЛ. Кубок Стэнли 2025. Финал. 4-й матч. Эдмонтон Ойлерз - Флорида Пантерз (12.06.2025) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14723.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 июня 2025, пятница. 03:00 МСК
+Стадион: Амерант Банк Арена (Санрайз, США), вместимость: 19434
+Финал. 4-й матч. Флорида Пантерз (Санрайз) — Эдмонтон Ойлерз (Эдмонтон)
+Главный судья: Вес Макколи (Джорджтаун, Канада)Телекомпания: Setanta Sports 2Жанр: Спорт, хоккейЯзык озвучки: русский, английскийПродолжительность: 03:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E264965FB249A84DF3AE1A66E84046E669E8C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801830   (14722) от 13.06.2025
+
+NoiZZy - Dreamland (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamland [00:04:17]
+02. Fake [00:02:40]
+03. Addiction [00:05:29]
+04. Time [00:05:17](   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAB9B9618EF77C098A267E67060A1D733AD6BC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801779   (14721) от 13.06.2025
+
+Saxon - Eagles Over Hellfest (2025) Live [MP3|320 Kbps] <Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hell, Fire and Damnation (Live at Hellfest) [5:40]
+02 - Motorcycle Man (Live at Hellfest) [3:47]
+03 - Power and the Glory (Live at Hellfest) [5:19]
+04 - Madame Guillotine (Live at Hellfest) [5:05](   Читать дальше...   )Жанр: Metal, Heavy MetalПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88195AF8279CDB19ABDFC0FB8FE3D1FC51093D2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801912   (14720) от 13.06.2025
+
+ARTY - Live @ Audio (San Francisco, United States) (2025-05-24) [MP3|320 Kbps] <Progressive House, Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reflekt ft. Delline Bass - Need To Feel Loved (Cristoph Remix) w/ARTY - ID w/Kx5 ft. Hayla - Escape (Acappella)
+02. ARTY - ID
+03. Matisse & Sadko vs. Gotye & Kimbra - Verve vs. Somebody That I Used To Know (Martin Garrix Mashup)
+04. Steve Angello & Sebastian Ingrosso ft. Namasenda - No Enemies(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9217FCD63EF317AFC6578EB2858E6B8365E9024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801847   (14719) от 13.06.2025
+
+Иван Бунин | Таня. В Париже (Инсценировка) (2025) [MP3, Иван Жуков, Татьяна Михалевкина и др.]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Покинуть Пекло не такая уж и легкая задача. Тапку и Ко не удалось сбежать и они вновь вынуждены выживать на этой богом забытой планете. Впрочем, пока есть друзья и патроны сдаваться он не собирается.Жанр: Боевая фантастикаИздательство: ИДДКПродолжительность: 09:41:55
+Серия/Цикл: Театр у вас дома.
+Иван Алексеевич Бунин (1870–1953) – один из крупнейших мастеров новеллы в русской литературе и выдающийся поэт.
+Рассказы «Таня» и «В Париже» И.А. Бунина, входят в цикл «Тёмные аллеи». Произведения написаны в 1940 году, впервые опубликованы в 1943 году.
+(   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:46:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD0DF39C448EDFF7F5982A45E7197B4B898E5999
+magnet:?xt=urn:btih:C0DF53FFAA1737C20331132067A6AD16FDCE2A6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,26 +317,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804238   (13137) от 28.06.2025
+###  Публикация: 1801849   (14718) от 13.06.2025
 
-IK Multimedia - AmpliTube 5 5.10.5 STANDALONE, VST, VST 3, AAX (x64) [En]
+Insania - The Great Apocalypse (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
 
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новый интерфейс, новые эффекты, новые функции.
-IK Multimedia официально представила новую версию гитарного эмулятора IK Multimedia AmpliTube 5. Новинка получила обновлённый интерфейс с поддержкой Retina-дисплеев, большое количество нового оборудования и возможность работы с импульсами.Язык интерфейса: Английский
+01. The Trinity (06:37)
+ 02. Indestructible (05:20)
+ 03. No One's Hero (08:01)
+ 04. Afterlife (05:43)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:03:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BFF83AA21405DDAA6075D34D49647FDAF006613
+magnet:?xt=urn:btih:FCB83541CCE621F78A1D31E49E073CCFB5CBFF76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 854345   (13136) от 29.06.2025
+###  Публикация: 1801890   (14717) от 13.06.2025
 
-VA - Музыка тишины Vol.1-2 (2014) [MP3|320 кб/с]<Instrumental, New Age, Smooth Jazz>
+The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Deluxe Edition) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
 
->>Неофициальные сборники
->>Instrumental/New Age/Meditative/Relax (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lars Alsing — Spirit
-02. Al Conti — Song of Rig
-03. Euge Groove — Don't Let Me Be Lonely Tonight
-04. Nathalie Manser — La lune baila(   Читать дальше...   )Жанр: Instrumental, New Age, Smooth JazzПродолжительность: 04:45:29
+01 - Suffocate City (feat. Spencer Charnas of Ice Nine Kills) [3:34]
+02 - Holy Water (feat. Ivan Moody of Five Finger Death Punch) [3:02]
+03 - Blood Mother [3:17]
+04 - Doom and Gloom [3:19](   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 01:26:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:57D2D4CC264CBA9F6DF2B675533ADEE3A0710605
+magnet:?xt=urn:btih:8DD186B90C38262D9E9288FED5988E4CDD8483BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,25 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804338   (13135) от 29.06.2025
+###  Публикация: 1801782   (14716) от 13.06.2025
 
-Вне зоны доступа / Off the Grid (2025) WEB-DL [H.264/1080p] [MVO]
+Neil Diamond - The Best of The Movie Album (1998) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock, Soft Rock,>
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гениальный ученый Гай изобрел источник энергии, который может помочь бедным странам. Но все меняется, когда его открытие решают использовать в военных целях. Герой пускается в бега и начинает новую жизнь под вымышленным именем в небольшом городке на юго-востоке США. Он выживает в пустоши и помогает местным. Однако бывшие работодатели выходят на след Гая и отправляют (   Читать дальше...   )Производство: США, Италия / BondIt, Buffalo 8 Productions, Eyevox EntertainmentЖанр: БоевикРежиссер: Джонни МартинАктеры: Джош Дюамель, Петер Стормаре, Грег Кинниэр, Майкл Пападжон, Ана Голджа, Дэвид Липпер, Мария Элиса Камарго, Талия Ассераф, Пол Сэмпсон, Рики РассертПеревод: Многоголосый профессиональный (заКАДРЫ)Язык озвучки: Русский, английскийСубтитры: Английские (full, SDH)Продолжительность: 01:45:31
+01. As Time Goes By    [0:02:55.43]
+02. Unchained Melody    [0:03:49.60]
+03. Can You Feel the Love Tonight    [0:04:08.45]
+04. The Way You Look Tonight    [0:02:38.07](   Читать дальше...   )Жанр: Rock, Pop Rock, Soft Rock,Продолжительность: 00:45:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:574E8EC608157A161C6CA7D067D1D5C6714465FE
+magnet:?xt=urn:btih:167F7E0900F4980E3593A980BD8E607ABB4EC818
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,22 +404,308 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 234808   (13134) от 29.06.2025
+###  Публикация: 1801662   (14715) от 13.06.2025
 
-В бой идут одни «старики» (1973/2009) DVDRip [Цветной + Фильм о фильме]
+Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk, CountryПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5229224C856971504507DB44B3B63871D46C71DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801835   (14714) от 13.06.2025
+
+The Knocks & Dragonette - Revelation (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revelation [00:04:13]
+02. Love Me Alive [00:03:25]
+03. Foolish Pleasure [00:02:41]
+04. The Hero [00:03:47](   Читать дальше...   )Жанр: Dance, PopПродолжительность: 00:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D897B35CE14A6C84A3BECE75FA115FB025B8441D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801801   (14713) от 13.06.2025
+
+Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [MP3|320 Kbps] <Blues Rock, Folk Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Sunday Feeling (Live) [3:59]
+02 - Living in the Past (Live) [5:36]
+03 - Serenade to a Cuckoo (Live) [4:22]
+04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBB0871E67DBDEB3213813A991B4D588FA1F0BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801769   (14712) от 13.06.2025
+
+Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordings Ltd [FLAC 24/96|Lossless|WEB-DL|tracks] <Britpop, Alternative Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Supersonic [4:45]
+02 - Roll With It [4:00]
+03 - Live Forever [4:39]
+04 - Wonderwall [4:22](   Читать дальше...   )Жанр: Britpop, Alternative Rock, Indie RockПродолжительность: 02:08:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798DBFC6222AF8BC193EC504AF5962434DBE9CF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801891   (14711) от 13.06.2025
+
+The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Deluxe Edition) (2025) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Suffocate City (feat. Spencer Charnas of Ice Nine Kills) [3:34]
+02 - Holy Water (feat. Ivan Moody of Five Finger Death Punch) [3:02]
+03 - Blood Mother [3:17]
+04 - Doom and Gloom [3:19](   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 01:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC64DD849B80A6240FA137917792218B41290FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801799   (14710) от 13.06.2025
+
+Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock, Folk Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Sunday Feeling (Live) [3:59]
+02 - Living in the Past (Live) [5:36]
+03 - Serenade to a Cuckoo (Live) [4:22]
+04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931A31D6D0882E4EB028D82D22E965D6F669784F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801857   (14709) от 13.06.2025
+
+Пролиф - 3 Albums (2025) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рыбалка [00:05:22]
+02. Керженец [00:08:14]
+03. Сад [00:03:51]
+04. Весна: 2020 [00:04:38](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 3 CD, 03:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CF34FE8CC0BA843281ED831D81BD7B407DC33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801911   (14708) от 13.06.2025
+
+Вадим Кузёма - Говорила мама-Не женись (2025) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Хоть что-то осталось [00:02:59]
+02 - Творцы [00:03:24]
+03 - Говорила мама-Не женись [00:02:35]
+04 - Женщина-загадка [00:02:51](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F97954E6A7EC35C1D3C5AE7A5EAFD95A4AAD303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801846   (14707) от 13.06.2025
+
+Van Morrison - Remembering Now (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14707.jpg" />
+</div>
+
+
+###  Подробнее
+
+47-й студийный альбом североирландского певца и автора песен Вана Моррисона, вышедший на лэйблах Exile Productions и Virgin Records.
+Это возвращение Вана Моррисона к оригинальному написанию песен после кавер-альбомов и переработок его старых песен01. Down To Joy
+02. If It Wasn’t For Ray
+03. Haven’t Lost My Sense Of Wonder
+04. Love, Lover and Beloved(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849FB23991D8B431D5B7E646A4C861C7BB1D0F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696087   (14706) от 14.06.2025
+
+BlazBlue Entropy Effect (2024) [Ru/Multi] (1.0.4.110480/dlc) Scene Rune
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14706.jpg" />
+</div>
+
+
+###  Подробнее
+
+BlazBlue Entropy Effect - двухмерная приключенческая игра во вселенной BlazBlue, но с другим жанром и стилем, чем предыдущие файтинги. В ней присутствуют элементы рогелита, такие как процедурно генерируемые карты, permadeath и кастомизация персонажей. Также здесь имеется насыщенный сюжет с несколькими концовками, зависящими от выбора геймера.Тип издания: SceneРазработчик: 91ActЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: Английский, Китайский (упрощенный), ЯпонскийЯзык субтитров: Русский, Английский, Немецкий, Китайский (упрощенный) и другиеЯзык интерфейса: Русский, Английский, Немецкий, Китайский (упрощенный) и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59A309DEEADB5CE981CCB296D7583C6A89EFEAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 164024   (14705) от 14.06.2025
+
+Фартовый (2006) DVDRip
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14705.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта эскадрилья стала «поющей» — так капитан Титаренко подбирал себе новичков. Его «старикам» было не больше двадцати, но «желторотиков», пополнение из летных училищ ускоренного выпуска, в бой все равно, по возможности, не пускали.
-Им еще многое предстояло испытать — и жар боев, и радость первой победы над врагом, и величие братства, скрепленного кровью, и первую (   Читать дальше...   )Производство: СССР, к/ст им. А. ДовженкоЖанр: Военный, Драма, КомедияРежиссер: Леонид БыковАктеры: Леонид Быков, Сергей Подгорный, Сергей Иванов, Рустам Сагдуллаев, Евгения Симонова, Ольга Матешко, Владимир Талашко, Алексей Смирнов, Виктор Мирошниченко, Григорий Гладий, Юрий Саранцев, Алим Федоринский, Александр Немченко, Вилорий Пащенко, и др.Продолжительность: 01:28:17
+22-летний Вадим Упоров по доносу осужден на 25 лет по статье 58 и отправлен в один из лагерей ГУЛАГА. По прибытии в лагерь он ссорится с ворами, и с вором в законе Дьяком, который приговаривает его к смерти. Чтобы избежать этой участи, он совершает побег. Побег не удается — его ловят, избивают и кидают в карцер в БУР.
+
+В «сейфе» Упоров проводит полгода… Вернувшись (   Читать дальше...   )Жанр: Драма, КриминалРежиссер: Владимир ЯканинАктеры: Екатерина Вуличенко, Владимир Епифанцев, Александр Мохов, Николай Иванов, Алексей Жарков, Дмитрий Щербина, Борис Невзоров, Игорь Воробьев, Сергей Греков, Михаил СамохваловСубтитры: ОтсутствуютПродолжительность: 01:32:47
 
 ## Скачать торент
 ```bash
@@ -504,185 +717,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1804144   (13132) от 29.06.2025
+###  Публикация: 1801859   (14704) от 14.06.2025
 
-В ГД допустили строгие санкции против Telegram после создания нацмесседжера
+Ночь с психопатом / Borderline (2025) BDRemux [H.264/1080p]
 
->>3
->>4
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14704.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С введением национального многофункционального сервиса в России к мессенджеру Telegram могут применяться более строгие санкции. Об этом заявил глава комитета Госдумы по информационной политике Сергей Боярский на Международном Невском форуме.
-(   Читать дальше...   )
+1990-е. Полгода назад Пол — поклонник поп-звезды Софии — пробрался в её особняк на Голливудских холмах, ранил охранника ножом и был пойман. Теперь он в компании такой же сумасшедшей подельницы сбегает из психиатрической лечебницы и снова проникает в дом своего кумира в полной уверенности, что теперь они с Софией точно поженятся.Производство: США / LuckyChap Entertainment, Productivity Media, Red A EntertainmentЖанр: триллер, комедияРежиссер: Джимми УорденАктеры: Самара Уивинг, Рэй Николсон, Эрик Дэйн, Джимми Фэйлс, Алба Баптишта, Кэтрин Лок Хэггквист, Патрик Кокс, Ясмин Келдерс, Теренс Келли, Эйприл КамеронПеревод: Дублированный (Мосфильм-Мастер), многоголосый (HDrezka Studio, 1win Studio, заКАДРЫ)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, 2x Full), Английские (Full, SDH)Продолжительность: 01:34:55
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333423   (13131) от 29.06.2025
-
-В бой идут одни «старики» (1973/2009) DVD5 [Цветной]
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта эскадрилья стала «поющей» — так капитан Титаренко подбирал себе новичков. Его «старикам» было не больше двадцати, но «желторотиков», пополнение из летных училищ ускоренного выпуска, в бой все равно, по возможности, не пускали.
-Им еще многое предстояло испытать — и жар боев, и радость первой победы над врагом, и величие братства, скрепленного кровью, и первую (   Читать дальше...   )Производство: СССР, к/ст им. А. ДовженкоЖанр: Военный, Драма, КомедияРежиссер: Леонид БыковАктеры: Леонид Быков, Сергей Подгорный, Сергей Иванов, Рустам Сагдуллаев, Евгения Симонова, Ольга Матешко, Владимир Талашко, Алексей Смирнов, Виктор Мирошниченко, Григорий Гладий, Юрий Саранцев, Алим Федоринский, Александр Немченко, Вилорий Пащенко, и др.Субтитры: нетПродолжительность: 01:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F0EC33AEDABBC378C969E3105BE266FE0D3F31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706733   (13130) от 29.06.2025
-
-Taxi Life: A City Driving Simulator (2024) [Ru/Multi] (1.16.29934/dlc) Repack FitGirl
-
->>Win Игры
->>Simulation (Other)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Taxi Life: A City Driving Simulator - симулятор такси, в котором вы становитесь владельцем своего бизнеса и управляете им, перевозя пассажиров по Барселоне. Вы начинаете с нуля, имея только машину и мечту. Вам предстоит пройти долгий путь, чтобы добиться успеха, но если вы будете трудолюбивы и внимательны к деталям, то сможете построить процветающую компанию.Тип издания: RepackРазработчик: SimteractЖанр: СимуляторыЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4C7939514B9443C6CB251A204AEB35219AB1D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803442   (13128) от 29.06.2025
-
-HEU KMS Activator 63.0.0 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13128.jpg" />
-</div>
-
-
-###  Подробнее
-
-HEU KMS Activator — это простая в использовании программа активации Windows и Office, которая может активировать Windows 10, 11 и MS Office 2024 в 1 клик.
-Программа выберет для вас лучший способ локальной активации всех продуктов Microsoft. Вы можете выбрать свой собственный канал активации с 4 режимами на выбор: цифровая лицензия, KMS38, OEM и KMS, а также множество (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388787DC70780C96DFD8E42D6FB59EB56C462BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795943   (13127) от 29.06.2025
-
-Ходячие мертвецы: Мертвый город / The Walking Dead: Dead City (2025) WEB-DL [H.264/1080p] (сезон 2, серии 1-8 из 8) Novamedia, NewComers, TVShows, LostFilm, HDrezka, WStudio, LE-Production
-
->>Зарубежные сериалы
->>Ходячие мертвецы / The Walking Dead; Бойтесь ходячих мертвецов / Fear the Walking Dead
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13127.jpg" />
-</div>
-
-
-###  Подробнее
-
-В постапокалиптическом мире прошли годы с тех пор, как зрители в последний раз видели Мэгги и ее заклятого врага Нигана. Жизнь сложилась таким образом, что теперь эти двое должны сформировать хрупкий союз, чтобы выполнить опасную миссию. Мэгги и Ниган отправляются на остров Манхэттен, который, будучи изолированным от всего мира с самого начала апокалипсиса, создал (   Читать дальше...   )Производство: США, AMC Studios, American Movie Classics (AMC)Жанр: ужасы, триллер, драма, приключенияРежиссер: Кевин Даулинг, Ганджа Монтейру, Лорен С. ЯконеллиАктеры: Джеффри Дин Морган, Лорен Кохэн, Желько Иванек, Джонатан Хиггинботэм, Карина Ортиз, Гай Чарльз, Махина Наполеон, Паллави Састри, Майкл Энтони, Логан КимПеревод: Многоголосый (Novamedia, NewComers, TVShows, LostFilm, HDrezka, WStudio, LE-Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: ~00:52:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F7E6C5DA75992A4B2ED696FB599942B3B4C8E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248157   (13126) от 29.06.2025
-
-Ментовские войны (2017) HDTVRip [H.264] (сезон 11, серии 1-16 из 16)
-
->>Отечественные сериалы
->>Ментовские войны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роман Шилов занимает пост начальника Управления уголовного розыска. Это раньше он мог рассчитывать только на себя и своих друзей, теперь в его подчинении начальники отделов: «угонного», «разбойного», по борьбе с организованной преступностью и других. Шилов пытается уговорить Пашу Арнаутова занять вакантную должность начальника «убойного» отдела, но тот категорически (   Читать дальше...   )Производство: Россия | "Прогресс-Студия"Жанр: криминалРежиссер: Алан ДзоциевАктеры: Александр Устюгов, Всеволод Цурило, Андрей Биланов, Андрей Аладьин, Андрей Кузнецов, Роберт Студеновский, Мария Иванова, Светлана Смирнова-Кацагаджиева, Дмитрий Лебедев, Александр Лисицин и др.Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BDD4D7B734B06729FCDF00D07D0F2B60FA617D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 125310   (13125) от 29.06.2025
-
-В бой идут одни старики (1973) DVDRip [H.264] [Цветной + Фильм о фильме]
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта эскадрилья стала «поющей» — так капитан Титаренко подбирал себе новичков. Его «старикам» было не больше двадцати, но «желторотиков», пополнение из летных училищ ускоренного выпуска, в бой все равно, по возможности, не пускали.
-Им еще многое предстояло испытать — и жар боев, и радость первой победы над врагом, и величие братства, скрепленного кровью, и первую (   Читать дальше...   )Производство: СССР, к/ст им. А. ДовженкоЖанр: Военный, Драма, КомедияРежиссер: Леонид БыковАктеры: Леонид Быков, Сергей Подгорный, Сергей Иванов, Рустам Сагдуллаев, Евгения Симонова, Ольга Матешко, Владимир Талашко, Алексей Смирнов, Виктор Мирошниченко, Григорий Гладий, Юрий Саранцев, Алим Федоринский, Александр Немченко, Вилорий Пащенко, и др.Перевод: ОригинальныйПродолжительность: 03:04
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:274E60339786ACBB0C0A56D9107BFFA34CD3D591
 ```
 
 https://mybot314.ru/tekegram_catalog/

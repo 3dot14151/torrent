@@ -1,3 +1,55 @@
+###  Публикация: 988553   (920026) от 20.02.2016
+
+Red Giant Magic Bullet Suite 12.1.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Bullet Suite представляет собой набор из восьми инструментов финальной редакторской обработки, используемые для профессиональной цветокоррекции, улучшения и производства фильмов в Adobe After Effects, Adobe Premiere Pro, Apple Final Cut Pro X, Apple Motion и Avid Media Composer. В пакет включены - Cosmo, Colorista, Denoiser, MisFire, Mojo, Magic Bullet Film (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 февраля 2016Разработчик: Red Giant LLCПоддерживаемая ОС: OS X 10.6.8 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5448DBA8B37FD19F39E6FAEA2A6A82EBC2AF34E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366796   (920021) от 13.03.2020
+
+Advanced SystemCare Pro 13.3.0.232 Portable by Jooseng [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Advanced SystemCare PRO обеспечивает автоматический всесторонний сервис для ПК с удалением вредоносных программ, исправлением ошибок в реестре, защитой личных данных, очисткой системы и повышением производительности. Благодаря применению новейших технологий Защита Браузера и Ускорение Интернета, программа обеспечивает превосходную защиту и ускорение доступа при пользовании (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9023BDF1DD0D9DA60CCE6B28B3F2FFD8AF2FC21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288687   (920018) от 30.01.2011
 
 Подруга банкира (2007) DVDRip
@@ -628,67 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05D330D029E6C0A5893F53AD5327C3EFA36062DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288911   (919723) от 30.01.2011
-
-VA - Pirate Station Teatro (2011) [MP3|320 kbps]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stim Axel – Я буду помнить
-02. 3XL Pro – Слияние (DJ 007 Remix)
-03. Триада – Нежный омут (ZigZag Remix)
-04. Blackman – Arhythmia
-05. Implex – Neon
-06. Purple Unit - New Dimensions
-07. Hectix – Liberty
-08. ZigZag – Sharp Reef (Implex VIP)
-09. Sequent Industry ft. JD Jupiter – With Youф
-10. PH & Soundwall – Invasion(   Читать дальше...)Жанр: Drum & BassПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F8E6A3433C82D3FF377E090ED16AB402FCC73B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 632628   (919717) от 20.03.2013
-
-Ellen Allien - LISm (2013) [FLAC|Lossless]<Experimental, Techno, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LISm (00:44:58)Жанр: Experimental, Techno, AmbientПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

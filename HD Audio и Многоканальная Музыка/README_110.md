@@ -1,3 +1,177 @@
+###  Публикация: 1708006   (113111) от 19.03.2024
+
+Chiara Ungaro - Urban Dreamscape (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113111.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chill Jazz Nighttime Whispers (2:05)
+02. Tranquil Nights (2:18)
+03. Bossa Nova Bossa (2:16)
+04. Fragile Hope of Healing (2:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61D050AE3CD47FF4AD71BE97039D8FC0442AC090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708358   (113096) от 20.03.2024
+
+VA - Яблони в цвету (1976) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Яблони в цвету (Е. Мартынов — И. Резник)
+Евгений Мартынов
+02. Арлекино (Э. Димитров — русский текст В. Баркаса)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FE2C98E209D16FD4AEFB5BB5ED016D83B7C2CA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708341   (113088) от 20.03.2024
+
+Stone Temple Pilots - Studio Albums (10 releases) (1992-2020) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Grunge, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stone Temple Pilots — хард-рок/гранж-группа, образованная в 1986 году в Сан-Диего, Калифорния.1992 - Core
+1993 - MTV Unplugged
+1994 - Purple
+1996 - Tiny Music...Songs from the Vatican Gift ShopЖанр: Grunge, Hard RockПродолжительность: 07:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873AC5D9FB44DF74F8E3CDFAE423AC243C4ADCA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708349   (113085) от 20.03.2024
+
+Дин Рид (Dean Reed) - Дин Рид (1970) [FLAC 24/192|Lossless|tracks] <Retro, World, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Наш летний романс (муз. и сл. Д. Рида)
+Our Summer Romance (D. Reed)
+02. Свободная мелодия (авторы неизвестны*)(   Читать дальше...   )Жанр: Retro, World, CountryПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3178E7D53CECD0476A70D3D1D5CD295709E3B208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708356   (113084) от 20.03.2024
+
+VA - Эстрадное обозрение (2 серия) (1961) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Мистуфль (Ф. Лемарк) — Франсис Лемарк (Франция)
+La Mistoufle (F. Lemarque) — Francis Lemarque
+02. Осёл и крестьянин (Д. Модуньо) — Франсис Лемарк (Франция)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB07C7B253ABCCEF05875B1FD89FDF0DAEF454A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708342   (113078) от 20.03.2024
+
+Rockets - Wonderland (2019) [FLAC 24/96|Lossless|tracks] <Synth-pop, Space-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113078.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Wonderland
+Featuring – Axel Cooper*, Fabrice Pascal*
+A2 Kids From Mars
+A3 Heaven(   Читать дальше...   )Жанр: Synth-pop, Space-rockПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDAD33AEFCFBD821CB7FCDEFEA566B5D52613F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708348   (113074) от 20.03.2024
 
 Диалог - Ночной дождь (1987) [FLAC 24/192|Lossless|tracks] <Rock>
@@ -571,180 +745,6 @@ Vid Sketa - First Step (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz Fusion
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CA386A87C228DA0D88BA7BE4E441534602150C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708873   (112972) от 22.03.2024
-
-Sensual Lounge Music Universe - Flavor of Seduction: Instrumental Jazz Sex Music (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexually Twisted (3:14)
-02. Ignite The Spark (3:26)
-03. Provocative Girl (3:35)
-04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BAAD01C6CDD71716CACF1A0D28786295796BD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708879   (112970) от 22.03.2024
-
-Юрий Лоза - Вся жизнь - дорога (1990) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Пой, моя гитара
-02. Итог
-03. Я не хуже, чем все(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A3E75AA44F3EDD3A252728AE7946A9AE636E5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708882   (112967) от 22.03.2024
-
-Sensual Lounge Music Universe - Sensuality in the Air: Romantic and Erotic Jazz Collection (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexy & Noir (3:29)
-02. Music for Quiet Moments (4:28)
-03. Jazz Mood – Erotic Dance (4:03)
-04. Sentimental Sounds (3:50)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C735EA5E047B56216B68BD232BA920A1155D45D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708866   (112962) от 22.03.2024
-
-Юрий Лоза - Что сказано, то сказано (1988) [FLAC 24/192|Lossless|tracks] <Pop-Rock, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Что сказано, то сказано
-02. Не принимай
-03. Сто часов(   Читать дальше...   )Жанр: Pop-Rock, ChansonПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:485D5CFCAE55F4DDC51CA3FF95C540DC1FEAF208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708815   (112946) от 22.03.2024
-
-Игорь Николаев - Королевство кривых зеркал (1989) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Спасибо, Москва (И. Николаев)
-02. Садовник (С. Белявская)
-03. Розы для папы (П. Жагун)(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E57CB6FC80691120FE4221A90CA02B957F17DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708782   (112945) от 22.03.2024
-
-Elbow - Audio Vertigo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things I've Been Telling Myself for Years (3:34)
-02. Lovers' Leap (4:35)
-03. (Where Is It?) (0:27)
-04. Balu (3:53)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E05456E16320CC12192FAC2558EBFADF6BB15BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

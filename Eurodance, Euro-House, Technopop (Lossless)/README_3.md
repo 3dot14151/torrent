@@ -1,3 +1,58 @@
+###  Публикация: 383102   (464356) от 19.09.2012
+
+Moti Special - 2 альбома (1985-1990) [FLAC|Lossless]<Synthpop, Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moti Special - немецкая  группа, образованная в 1981-м году сессионными музыкантами: Michael Cretu, Manfred "Thissy" Thiers, Nils Tuxen и Reinhard "Dickie" Tarrach.01. Higher In The Name Of Love (4:39)
+02. In Love We Stand (3:48)
+03. From Your Lips To God's Ear (5:32)
+04. Still The Same (4:31)(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 01:40:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550055   (454885) от 23.09.2012
+
+Carly Rae Jepsen - Kiss (Deluxe Edition) (2012) [FLAC (tracks+cue)|Lossless]<Pop, Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, DanceПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942686   (453568) от 01.10.2015
 
 Mad'House - Absolutely Mad (2002) [APE|image+.cue]<Euro House>
@@ -694,64 +749,6 @@ DJ Bobo - Evolut30n (Evolution) (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE670C2BCA3B6BC02AE969B68479B41060E9D3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590366   (187732) от 16.11.2022
-
-VA - Happy New Year 1995! (1994) Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Eurodance, Pop, Rock>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mo-Do - Eins, zwei, Polizei (03:16)
-02. Army of Lovers - Sexual Revolution (03:50)
-03. Marie Claire D'Ubaldo - The Rhythm Is Magic (04:03)
-04. DJ BoBo - Deep in the Jungle (03:53)(   Читать дальше...   )Жанр: Eurodance, Pop, RockПродолжительность: 01:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EE31919B1CC2335E9BB4DA600530D5C7DA0D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595259   (175929) от 04.12.2022
-
-V.A. - 90's Dance Rarities, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Booby Trap - Devotion (I Wanna Give You)
-02. Booby Trap - I'm the Power
-03. Little Lucy - Froggy Afternoon
-04. MPO - Thinking of You(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E21D136B84E1846307B4E0F17B8283D316BF3A28
 ```
 
 https://mybot314.ru/tekegram_catalog/

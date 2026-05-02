@@ -1,3 +1,71 @@
+###  Публикация: 613315   (984809) от 03.02.2013
+
+The Absolute Man - Leonardo (2001) [WavPack|Lossless]<Progressive Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apparition [05:42]
+02. Aria For Italy [00:49]
+03. With Father [01:48]
+04. Reins Of Tuscan [05:49]
+05. Reproach [01:11]
+06. Mona Lisa [07:11]
+07. Il Divino [03:22]
+08. Inundation [01:08]
+09. Apprentice [06:56]
+10. First Commission [03:47](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 613345   (984807) от 03.02.2013
+
+Windbruch - Collision Of The Worlds (2009) [WavPack|Lossless]<Depressive / Atmospheric Black Meal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day I (With the Sunrise) [02:28]
+02. Day II (Inhale - Exhale) [06:24]
+03. Day III (Onslaught) [10:12]
+04. Day IV (On the Edge) [05:27]
+05. Day V (She is Forgotten) [06:27]
+06. Day VI (Collision of the Worlds in Your Mind) [06:14]
+07. Day VII (Stairway to Heaven) [02:39]
+08. Theme of Laura (Akira Yamaoka Cover) [03:36]Жанр: Depressive / Atmospheric Black MetalПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971611   (984784) от 04.01.2016
 
 Жан-Луи Кюртис | Мыслящий тростник (1975) [PDF]
@@ -645,58 +713,6 @@ Wallpapers - Мерседес [JPEG]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26788F93151CCE3E556BA8A89DB42CF01A26528D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355068   (984496) от 25.01.2020
-
-WinNTSetup 4.0 Final Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984496.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinNTSetup (Windows Setup Tool) – программа для создания дополнительного загрузочного модуля операционной системы Windows. Утилита является неким альтернативным инсталлятором, что позволяет установить вторую операционную систему как в свободный раздел внутреннего или внешнего жесткого диска, так и на виртуальный жесткий диск (VHD) и флешку. При этом наличие флешки (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:868F5F421A6A38F35BA1C9B590A5BEF2079B591B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355234   (984492) от 25.01.2020
-
-Татьяна Мужицкая | Мне все льзя (2020) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Найти дело жизни, реализовать свой потенциал и заработать денег – согласитесь, хороший план. Только почему-то неосуществимый для большинства из нас. Известный психолог и бизнес-тренер Татьяна Мужицкая утверждает: порой причины, по которым мы не можем найти себя, – бессознательные самозапреты. Эта книга помогает избавиться от внутренних ограничителей и наконец-то (   Читать дальше...   )Жанр: Практическая психология, Саморазвитие / личностный ростФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E350C9707447B487A06E8ED73560ECDE5C5BBB29
 ```
 
 https://mybot314.ru/tekegram_catalog/

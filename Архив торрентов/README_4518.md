@@ -1,3 +1,285 @@
+###  Публикация: 482348   (99830) от 17.04.2012
+
+VA - Клубные новинки Vol.59 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Techno Freedom Pro - Lucky Strike (Lino Remix)
+02. Rene Ablaze And Alexander Xendzov Feat. Sharon Fehlberg - Cast Your Spell (Extended Mix)
+03. Senadee - Life Support Machine (16 Bit Lolitas Remix)
+04. Marc Simz feat. Naomi Strieme - This Is Love (Original Mix)
+05. Dirty Harris - Cosmos (Original Mix)
+06. suGar, Eva Kade, Evil T - All Around (Gregory Esayan Remix)
+07. Yotopia & Sphera - Vertigo (Original Mix)
+08. Myon & Shane 54 feat. Aruna - Helpless (Alexander Popov Remix)
+09. Stoneface & Terminal feat. Ellie Lawson - Breaking Through (Club Mix)
+10. Pulser feat Molly Bancroft - In Deep (Pulsers Main Floor remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF6F9579C7FACA432A5EE1D0CF1D5160BCEFB426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484361   (99829) от 17.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (18.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC85DAFCDF9AFB7FCFE0324EB0CE8E82FA447879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483754   (99828) от 16.04.2012
+
+ХАСКИ - Икорный бизнес (2012) [MP3|320 кб/с]<Rock, indie-rock, pop-rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Камикадзе (3:36)
+02. Дядя Хофман (5:37)
+03. 19-45 (6:07)
+04. Хэй, меломан! (3:16)
+05. Икорный бизнес (4:11)
+06. Хэй, меломан! (Alex Friesen ft. Lefster rmx) (6:20)Жанр: Rock, indie-rock, pop-rockПродолжительность: 00:29:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C327D9C2F0D99551B7613176EEFABECC0475624E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483531   (99826) от 16.04.2012
+
+Simon Pauls - Promise (2012) [MP3|320 кб/с]<Tech House, Minimal Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99826.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Promise (with Mary Mercury)
+2. Shadow from the Past
+3. Dont Force Time
+4. Tessellation
+5. Alia Ludorum
+6. I do not know the way
+7. Insolita
+8. Prostratio
+9. Banana Box
+10. Time of electronic Love (with Plotka)(   Читать дальше...   )2012Жанр: Tech House, Minimal TechnoПродолжительность: 01:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595EAD31A9CF43A9469E364DBF47BCD0E427D91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482179   (99821) от 16.04.2012
+
+Товарищи / I compagni (1963) DVD9 [It]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мастер итальянской комедии воссоздает трагикомичную историю о туринских рабочих конца 19 века.Производство: Франция, Италия, Югославия / Авала-фильм, Lux Film S.p.a., Méditerrannée Cinéma Production, Vides CinematograficaЖанр: Драма, КриминалРежиссер: Марио МоничеллиАктеры: Марчелло Мастроянни, Ренато Сальватори, Габриэлла Джорджелли, Фолько Люлли, Бернар Блие, Раффаэлла Карра, Франсуа Перье, Витторио Саниполи, Марио Пизу, Кеннет КоувПеревод: отсутствуетСубтитры: итальянские, испанские, английские, русские (от mihailtorrent)Продолжительность: 02:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:469D9278B3ACEB5609820EE24D48228EFA6588AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482900   (99819) от 16.04.2012
+
+Морг / Mortuary (1983) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кристи страдает от ночных кошмаров, в которых она видит своего отца-утопленника. Мать Кристи считает, что его смерть была несчастным случаем, но девушка уверена, что на самом деле произошло убийство. Вскоре Кристи замечает, что за ней начинает следить зловещий незнакомец в чёрном...Жанр: Ужасы, ТриллерРежиссер: Говард АведисАктеры: Мэри Бет МакДонаф, Дэвид Уоллес, Билл Пэкстон, Линда Дэй Джордж, Кристофер Джордж, Курт Айерс, Билл Конклин, Донна Гаррет, Грег Кэй, Дэнис МэнделПеревод: Одноголосый закадровыйПродолжительность: 01:28:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E0511CE430CDBA74D5D9D16F7D9898CDA6AFD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482589   (99800) от 16.04.2012
+
+Minay - Покажи, пока жив (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Моя Сибирь
+02 - В темпе Ларго
+03 - Анти баллада о любви
+04 - На одной волне
+05 - Вера, как мода
+06 - Победа
+07 - Мимо прохожих
+08 - Каждому своя
+09 - Как правильно
+10 - Других не надо2012Жанр: Rap, Hip-HopПродолжительность: 00:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:787963FE20C1912B4536BFBA1634A3E5C3168564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484093   (99788) от 16.04.2012
+
+Baby D - Deliverance (1996) [MP3|320 кб/с]<Breakbeat, Hardcore, D'n'B>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Baby D - Deliverance (1996)
+Год: 1996
+Жанр: Breakbeat, Hardcore, D'n'B
+Продолжительность: 01:28:06
+Лейбл: Systematic
+Страна: UKКодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТреклист:(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449DEE9AF896A1337096102D9543B43D04D3E820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483801   (99783) от 16.04.2012
+
+VA - Союз еврохитов (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Pink - Bridge Of Light
+02 Madonna Feat. Justin Timberlake - Latte
+03 Flo Rida Feat. Sia - Wild Ones
+04 Rihanna - You Da One
+05 Nickelback - Lullaby
+06 Britney Spears - Love 2 Love U
+07 Justin Bieber - Uh Oh
+08 Beyonce Feat. David Jassy - I Care (Remix)
+09 Dev Feat. Enrique Iglesias - Naked
+10 Bob Sinclar Feat. Sophie Ellis-Bextor - Fuck With You(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:15:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1497BD6E48E88A3E74D05B62366709DA63DC243E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483723   (99780) от 16.04.2012
 
 [Wallpapers] Wallpapers Sexy Girls (16.04.12)
@@ -490,273 +772,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5090CB7B3BB22696AA54F6041FEB19B1992033F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483945   (99725) от 16.04.2012
-
-[Wallpapers] Desktop Wallpapers №18
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99725.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №18
-Название: Desktop Wallpapers №18
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC632F8894D00C7E9EF1456D09EA2FFEE955AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483690   (99724) от 16.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (15.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99724.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E06E1B88449F5DD0EEBA3A96762D5F2DC24AF23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483083   (99714) от 15.04.2012
-
-VA - Heroes Of Trance (13.04.2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99714.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Heroes Of Trance (13.04.2012)Год: 13.04.2012
-Жанр: Trance
-Продолжительность: 03:49:14Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Armin Van Buuren ft Laura V - Drowning (Avicii Remix)
-02. Chakra - Home (Above & Beyond Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C863A5DEA79B80E185C0E09A838D8F4DAE1E02C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483349   (99713) от 15.04.2012
-
-[Ukr/Ru] Украина имеет талант - 4 / Україна має талант - 4 (2012) SATRip (вып.-6)
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99713.jpg" />
-</div>
-
-
-###  Подробнее
-
-В кастингах шоу телеканала СТБ «Україна має талант!-4», которое начнется 10 марта, участвовало около 30 тысяч человек.
-«В первых трех сезонах мы проводили отборочные туры в городах-миллионниках, а нынешние кастинги записывались в Киеве, - говорит руководитель проекта «Україна має талант!-4» Тала Онищук.
-
-- Причина в том, что в этом году у нас сложная сцена. Если артист показывает экстремальный номер, она трансформируется специально для этого выступления, а затем снова принимает традиционный вид. Эти метаморфозы сложно описать словами. Зрители увидят их уже в субботу, 10 марта, в 19 часов. Первым покажем кастинг, в котором участвовали таланты с Донбасса. Многие зрители помнят выступление в первом сезоне знаменитого силача Дмитрия Халаджи из Донецкой области. После этого у нас не было яркого силового шоу. И вот на наш проект пришли несколько блестящих атлетов. В субботу вы увидите один из силовых номеров. Это будет попытка установить рекорд Украины».Количество представленных в нынешнем сезоне жанров потрясающе: (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: 03:29:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483453   (99705) от 15.04.2012
-
-Mozilla SeaMonkey 2.9 Beta 3 [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99705.jpg" />
-</div>
-
-
-###  Подробнее
-
-SeaMonkey — проект, основанный на добрых традициях Mozilla Suite. Классическая Mozilla развивалась много лет, обрела свой круг преданных фанатов, но так и не дошла до широких масс, выдвинув на эту роль красивый современный браузер Mozilla Firefox. За основу SeaMonkey взята Mozilla Suite, как проверенный годами продукт, обладающий колоссальной стабильностью и выверенным кодом. К этой основе было добавлено множество функций, ставших привычными для пользователей Mozilla Firefox и Mozilla Thunderbird. В состав SeaMonkey входит несколько компонентов.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482877   (99700) от 15.04.2012
-
-Conan - Monnos (2012) [MP3|320 кб/с]<Doom Stoner Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hawk as Weapon (6:19)
- 02. Battle in the Swamp (4:44)
- 03. Grom Tormentor (5:45)
- 04. Golden Axe (5:39)
- 05. Headless Hunter (7:48)
- 06. Invincible Throne (8:55)2012Жанр: Doom Stoner MetalПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2E2D62C623A374D04F003D6ACE4D70F1EB7875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483366   (99698) от 15.04.2012
-
-Ancestors - In Dreams And Time (2012) [MP3|320 кб/с]<Stoner Doom>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whispers 09:10
- 02. The Last Return 06:15
- 03. Corryvreckan 12:08
- 04. On the Wind 09:31
- 05. Running in Circles 09:44
- 06. First Light 19:192012Жанр: Stoner DoomПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:670FF1A783229323AEA9DD7475F8D2BF4DCD5024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482281   (99696) от 15.04.2012
-
-Ectima - No Way Out (2009) [FLAC|Lossless]<Psy-Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ectima - Find The Way Out (07:20)
- 02. Ectima - Logatone (08:16)
- 03. Ectima - Evil Spirits (08:05)
- 04. Ectima - Labyrinth (07:08)
- 05. Ectima - Black Humor (08:07)
- 06. Ectima & PhaseTech - Spliced (07:18)
- 07. Ectima - Metal Isolation (Remix) (09:00)
- 08. Ectima - Home Treatment (08:00)
- 09. Ectima - Insufferable User (08:07)
- 10. Talpa - Sleeping Beauty (Ectima Remix) (08:19)2009Жанр: Psy-Trance, Progressive TranceПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483556   (99694) от 15.04.2012
-
-Scion Versions - Label Pack (7 релизов) (2006-2010) [MP3|320 кб/с]<Dub Techno, Techno, Minimal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Немецкий даб-техно лейбл основанный двумя музыкантами Peter Kuschnereit (он же DJ Pete и Substance) и Rene Lowe (более известен как Vainqueur). На сегодняшний день на лейбле вышло 7 пластинок, каждая из которых звучит в лучших традициях немецкой техно-сцены.01. Vainqueur - Ranges - Expanded (9:20)
-02. Vainqueur - Ranges - Theme (9:43)Продолжительность: 00:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:690CC24011E180323BA35F902BDC1D50DC6E722D
 ```
 
 https://mybot314.ru/tekegram_catalog/

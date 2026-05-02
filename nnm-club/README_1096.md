@@ -1,25 +1,22 @@
-###  Публикация: 1616141   (1036742) от 01.03.2023
+###  Публикация: 1614755   (1038329) от 23.02.2023
 
-Child - Meditations in Filth (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal, Crust, Hardcore>
+PC Cleaner Pro 9.2.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038329.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hate Well Spent [00:01:02]
-02. Manic Vortex [00:01:56]
-03. Splendor Solis [00:00:10]
-04. Billion Years Of Darkness [00:01:36](   Читать дальше...   )Жанр: Death Metal, Crust, HardcoreПродолжительность: 00:20:35
+PC Cleaner Pro – это очень мощный и многофункциональный программный комплекс, который необходим для улучшения скорости и качества работы персонального компьютера. Приложение имеет широкий выбор виртуальных инструментов и других расширений, которые способны решить различные системные ошибки, очистить мусор с файлового хранилища, и многое другое.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB45587248770F76C7EF0FD8C03BB5AEB040EDF1
+magnet:?xt=urn:btih:0DA5E005B6812D4EE821B95A7CAACACD10748F95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616129   (1036741) от 01.03.2023
+###  Публикация: 1440882   (1038328) от 19.01.2021
 
-Dinah Washington - The Fats Waller Songbook (1957) 1992, EmArcy [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Scrutiny 10 v10.0.3 [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038328.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Christopher Columbus [2:51]
-02. T'Ain't Nobody's Biz-ness If I Do [3:29]
-03. Jitterbug Waltz [1:50]
-04. Someone's Rocking My Dreamboat [2:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:31:18
+Scrutiny - приложение для проверки, повышения качества и рейтинга сайта в поисковых системах.
+Scrutiny проверит ваши изображения, ваши внутренние и внешние ссылки, сгенерирует XML / HTML / .csv / .dot карту сайта для представления в поисковых системах, проверит ваши тэги и сделает необходимые проверки SEO (англ. search engine optimization, SEO — комплекс мер для (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2021Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75E9C4513B465058E65CD1CEF65996420320DB79
+magnet:?xt=urn:btih:1EF2D57B55A0BF27C987E7E5D63F609E025EF9C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +51,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616136   (1036740) от 01.03.2023
+###  Публикация: 1440926   (1038327) от 19.01.2021
 
-Arcane Focus - Volume One (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Psych>
+DirEqual 3.3.1 [Multi]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036740.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038327.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sonic Testament [00:11:03]
-02. Against the Mountain [00:03:38]
-03. Eastern Rise [00:05:36]
-04. Sanctuary [00:09:17](   Читать дальше...   )Жанр: Heavy Rock, Stoner, PsychПродолжительность: 00:35:02
+DirEqual - это инструмент сравнения папок, который упрощает сравнение локальных файлов и папок на вашем Mac. DirEqual отображает сравниваемые каталоги рядом в виде расширяемых деревьев, а размер и дата указываются для каждого элемента. Различия между каталогами обозначены цветом и легко различимы значками.
+Чтобы скопировать или удалить файлы или папки, щелкните отдельный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2021Разработчик: Naarak-StudioПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AF62EECE63584F645E82E65E2B5962D05825BF5
+magnet:?xt=urn:btih:24D0C9E9D95FCBD13F611B3D57364CAA022F3B6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616148   (1036739) от 01.03.2023
+###  Публикация: 1440917   (1038326) от 19.01.2021
 
-Child - Soul Murder (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Bluesy, Psych, Stoner>
+Data Guardian 6 v.6.0.4 [En]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036739.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038326.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Free and Humble [00:04:09]
-02. Trouble with a Capital "T" [00:06:31]
-03. Standing on My Tail [00:05:03]
-04. Feels Like Hell [00:05:43](   Читать дальше...   )Жанр: Heavy Rock, Bluesy, Psych, StonerПродолжительность: 00:41:43
+Безопасность и секретность — вот одни из наиболее важнейших вопросов в сегодняшнем мире. Это безопасная база данных, использующая 448-битный алгоритм Blowfish для шифрования и хранения ваших данных, не зависимо от уровня их важности. В этом приложении вы можете создавать множество баз данных, используя их для широкого ряда таких задач, как ведение адресной книги, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2021Разработчик: Koingo Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:268CC93E3C2931D5F23C474105233357A87BB1F7
+magnet:?xt=urn:btih:3BAEAAF7648C0183CDC13465361FC421E1BBA3CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616133   (1036738) от 01.03.2023
+###  Публикация: 1440943   (1038325) от 19.01.2021
 
-Sun Ra And His Arkestra - Greatest Hits: Easy Listening For Intergalactic Travel (1956 - 1973) 2000, Evidence [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Hard Bop, Big Band>
+WordCounter 1.6.4 [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036738.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038325.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Saturn [3:03]
-02. Kingdom of Not [5:34]
-03. Medicine for a Nightmare [2:20]
-04. Enlightenment [5:05](   Читать дальше...   )Жанр: Avant-Garde Jazz, Hard Bop, Big BandПродолжительность: 01:17:49
+WordCounter предназначен для того, чтобы дать вам представление о вашей продуктивности как писателя. То, что измеряется, достигается. Предоставляя конкретные отзывы о количестве вашего написанного, мы считаем, что самые важные аспекты вашего письма могут быть улучшены. В настоящее время приложение отслеживает ежедневные слова и их распределение по приложениям. Оно (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2021Разработчик: christiantietzeПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0BD9DA2EDA8EF8CF2CAC75E2FFC1BC27B5BCBA8
+magnet:?xt=urn:btih:F2A577C18129BCB150D578B5ED5E2799E8CE4BD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616167   (1036737) от 01.03.2023
+###  Публикация: 1440879   (1038324) от 19.01.2021
 
-Fell Fyre - Romance and Revenge (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Micromat Drive Scope 1.2.10 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036737.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038324.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dread Mum's Revenge (05:29)
-02. Die a Horsemen (02:38)
-03. Red Star Rising (04:39)
-04. Reapers' Rite (06:00)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:54
+Жесткие диски (и твердотельные накопители) являются наиболее подверженными сбоям компонентами на вашем Mac. Именно по этой причине производители приводов встроили технологию самоконтроля, анализа и отчетности прямо в привод. (также известный как S.M.A.R.T.) Большинство утилит с трудом справляются с этой информацией, просто сообщая об основных элементах: успешно или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2021Разработчик: Micromat, Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4EA6A722CEEB85E189B6AE17409774F809BE92A5
+magnet:?xt=urn:btih:879AEC5B0CABF482D67BFE95B16B165CAAF20675
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616314   (1036736) от 01.03.2023
+###  Публикация: 1440941   (1038323) от 19.01.2021
 
-Chaos Magic Featuring Caterina Nix - Furyborn (2019) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
+VisualGrep 1.2.8 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036736.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038323.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. You Will Breathe Again 4:18
-02. Fury Born (Feat. Tom Englund) 4:03
-03. Like Never Before 4:01
-04. Beware Of Silent Waters (Feat. Mistheria) 4:48(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:46:11
+Утилита VisualGrep для неиндексированного полнотекстового поиска файлов с поддержкой фильтров и множества опций обхода папок.Тип издания: macOS SoftwareРелиз состоялся: 25.09.2015Разработчик: Davide FicanoПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0B41D17AF1B4635B60ECC233250CD74605E4B96
+magnet:?xt=urn:btih:BA1111CC0A3CD6794D43EB628CCA803CB71BE8AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,28 +182,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616247   (1036735) от 01.03.2023
+###  Публикация: 1440972   (1038322) от 19.01.2021
 
-The Samurai Of Prog - The Spaghetti Epic 4 (2022) [FLAC|Lossless|tracks + .cue] <Prog Rock, Symphonic Rock>
+Прыжки с трамплина. Кубок мира 2020-2021. Этап 5. Нижний Тагил (Россия). Мужчины. Индивидуальные соревнования (2020) IPTVRip [H.264/1080p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036735.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038322.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dead or Alive 6:05
-02. Mira al Cuore 23:39
-- a. The Cave
-- b. The Call of Vengeance(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 01:07:42
+Кубок мира по прыжкам с трамплина 2020–2021
+06 декабря 2020 года
+Этап 5. Нижний Тагил (Россия)
+Трамплин HS 134(   Читать дальше...   )Телекомпания: Eurosport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:37:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E430663EA8EE57433E300090B61EC6122810A1BB
+magnet:?xt=urn:btih:8EBA484D10206F30ECF4F9A992A1A3939C2DB87A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,25 +211,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616089   (1036734) от 01.03.2023
+###  Публикация: 1440968   (1038321) от 19.01.2021
 
-Анна Маркова | Святитель Тихон Задонский (2014) [PDF, FB2, EPUB, MOBI]
+Прыжки с трамплина. Кубок мира 2020-2021. Этап 5. Нижний Тагил (Россия). Мужчины. Индивидуальные соревнования (2020) WEB-DLRip [H.264/1080p-LQ]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036734.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038321.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данный агиографический сборник посвящен личности и наследию святителя Тихона Задонского. Он включает в себя жизнеописание святителя Тихона, выборку поучений из различных его творений, рассказ о почитании святителя и воспоминания о нем. В молитвенном разделе приведен акафист и молитвы святителю Тихону Задонскому. Кроме того, в сборнике содержится два приложения, посвященные (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+Кубок мира по прыжкам с трамплина 2020–2021
+06 декабря 2020 года
+Этап 5. Нижний Тагил (Россия)
+Трамплин HS 134(   Читать дальше...   )Телекомпания: Матч! Страна HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:24:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C46F9155C0FD76CFA771A0D714DA2C1AE7813C75
+magnet:?xt=urn:btih:BED2ED1FA6006AC8DC930E0E299A82F94D1CD677
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,28 +240,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616024   (1036733) от 01.03.2023
+###  Публикация: 1440936   (1038320) от 19.01.2021
 
-Odious - 2 Albums (2007-2015) [FLAC|Lossless|WEB-DL|tracks] <Middle Eastern Folk, Melodic Black Metal>
+Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.2.1905 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036733.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038320.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Crown of Centuries [00:03:30]
-02. Crystal Clear [00:03:40]
-03. A Picture of Dead Art [00:04:22]
-04. Alzar [00:05:19](   Читать дальше...   )Жанр: Middle Eastern Folk, Melodic Black MetalПродолжительность: 2 CD, 01:25:28
+Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии «сделайте мне быстро и красиво», позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2021Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55FB34332F8FDAC6FEBDDA918C59B6261BDFADE4
+magnet:?xt=urn:btih:D3CEFF475CD2C7131048C88DF73066C2853D3B74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,28 +267,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616175   (1036732) от 01.03.2023
+###  Публикация: 1440923   (1038319) от 19.01.2021
 
-Unit Of Inheritance - The Impossible (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock>
+Nebulosity 4.4.4 [Multi]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038319.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vitas Magnus Casus [00:01:59]
-02. The Impossible [00:05:23]
-03. Free [00:04:37]
-04. 22:22 [00:04:52](   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:37:21
+Nebulosity разработан как мощное, но простое в использовании приложение для захвата и обработки изображений. Поддерживается огромное количество камер, и изображения могут обрабатываться практически из любого места (поддержка многих форматов FITS, файлов PNG, TIFF, JPEG, DSLR RAW и т. Д.). Его цель - удовлетворить потребности людей, начиная от начинающего имидж-сканера, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.01.2021Разработчик: Stark LabsПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30C2706919A5489E1574B64FECA3CBDE47986306
+magnet:?xt=urn:btih:C3DF713320DD38FFF8BB6B4B5EFB8D743129E2A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,28 +293,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616163   (1036731) от 01.03.2023
+###  Публикация: 1440933   (1038318) от 19.01.2021
 
-Seventh Legend - After Death (2023) [MP3|320 Kbps] <Symphonic Metal>
+HitPaw Watermark Remover 1.0.0.6 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда вам нужно быстро удалить водяной знак с одного из ваших изображений или видео, лучше всего прибегнуть к специализированным программным решениям, чтобы гарантировать получение высококачественных результатов. HitPaw Watermark Remover - одна из таких утилит. В общем, HitPaw Watermark Remover может пригодиться, когда вам нужно «стереть» водяной знак с ваших изображений (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.12.2020Разработчик: HitPaw. Co., Ltd.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DE2C1778895DAA29F8EFC4B7A1463665CF7AAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440928   (1038317) от 19.01.2021
+
+Swamp Lantern - Phantasms (2020) [MP3|320 Kbps] <Doom Metal, Heavy Metal, Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036731.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038317.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Within the Gates [00:01:03]
-02. Falling from Grace [00:04:15]
-03. Forgiving Evil [00:05:21]
-04. Sands of Pharaoh [00:05:29](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 01:01:38
+01. Shriveled Pigs Eyes (12:23)
+ 02. Corpses in the Barn (12:53)
+ 03. The Meadows Rip (09:17)
+ 04. They've Taken Our Tongues (06:09)(   Читать дальше...   )Жанр: Doom Metal, Heavy Metal, Black MetalПродолжительность: 01:02:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55B6A0A9CB8249313782F12CC80C2CEE6A1871C7
+magnet:?xt=urn:btih:F8A5FD822F049E2490AD2E7BD153AAD8E2BC1C05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,25 +348,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616084   (1036730) от 01.03.2023
+###  Публикация: 1440985   (1038316) от 19.01.2021
 
-Святитель Феофан Затворник | Наши отношения к храмам (2015) [PDF, FB2, EPUB, MOBI]
+Биатлон. Кубок Мира 2020-2021. Этап 6. Оберхоф (Германия). Женщины. Эстафета 4 x 6 км (2021) IPTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036730.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038316.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Собираясь в храм, перечитайте хотя бы несколько глав из этой книги, и, даст Бог, наставления и молитвы святителя Феофана приблизят чаемое устроение души вашей в жилище Божие, когда святилищем станет дух, жертвенником – сердце, священником – ум. «Где… жилище Божие, там и небо, а кто небо в себе вмещает духовно, тот несомненно вступит и в истинное небо, как в верное (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+Кубок мира по биатлону 2020-2021
+16 января 2021, среда. 16:45 МСК
+Этап 6. Оберхоф (Германия)
+Женщины. Эстафета 4 x 6 км(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:26:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0FA9EE8D0435C461F9CD78207CAB636EC14349E
+magnet:?xt=urn:btih:9619FAA4A272856566B6EA85F71C1919E4F6B26F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,29 +377,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616249   (1036729) от 01.03.2023
+###  Публикация: 1440959   (1038315) от 19.01.2021
 
-Celebrity Sex Scandal - Convergence of Infinite Sequences (2023) [FLAC|Lossless|WEB-DL|tracks] <Avantgarde, Progressive Metal>
+Лыжные гонки. Кубок мира 2020-2021. Этап 4. Тур де Ски 1. Валь-Мюстайр (Швейцария). Спринт 1,4 км. Финалы (2021) WEB-DLRip [H.264/1080p-LQ] [hand made 50fps]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036729.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038315.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stone Cold Badassery [00:03:41]
-02. The Profit [00:03:36]
-03. Jukebox Blues [00:03:29]
-04. Kill Me [00:04:08](   Читать дальше...   )Жанр: Avantgarde, Progressive MetalПродолжительность: 00:41:29
-Источник: deezer RAZOR TO WRIST
+Кубок мира по лыжным гонкам 2020-2021. Этап 4.
+01 января 2021, пятница. 13:45 МСК
+Тур де Ски 1. Валь-Мюстайр (Швейцария).
+Спринт 1,4 км. Свободный стиль. ФиналыТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:43:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A725696149620D94F299BAD505564029E7C9A6D
+magnet:?xt=urn:btih:0D9225C8B48B8C85C88CAFB57AC8E96E5EDCE4E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -399,28 +406,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616288   (1036728) от 01.03.2023
+###  Публикация: 1614534   (1038314) от 23.02.2023
 
-VA - World Of Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
+Хоккей. НХЛ 2022-2023. Детройт Ред Уингз - Вашингтон Кэпиталз (21.02.2023) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
 
->>Electronic
->>Trance
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038314.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cenk Basaran - The Finger (Original Mix) [6:01]
-02. Facade & Holliday - The Envy Theme (Matt Holliday's Prog Ware House Remix) [6:54]
-03. Somna & Vijo Caselle - Afterglow (Original Mix) [8:37]
-04. Paul Denton - Monday Club (Original Mix) [6:49](   Читать дальше...   )Жанр: TranceПродолжительность: 01:48:00
+22 февраля 2023, среда. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Том Хмелевски (Колорадо-Спрингс, Канада)Телекомпания: BSportsЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:37:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08BEAA2F42C3388FF1A8CD018556843808BF98E7
+magnet:?xt=urn:btih:8A2B33BE50FB1D76A67E8B8E11EC7750232C14E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -428,28 +433,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616311   (1036727) от 01.03.2023
+###  Публикация: 1614790   (1038313) от 23.02.2023
 
-Phantom Elite - Titanium (2021) [FLAC|Lossless|image + .cue] <Symphonic Metal>
+Игры разума - Эксперимент / Mind Games - The Experiment (2023) WEB-DL [H.264/1080p] [VO]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036727.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038313.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Conjure Rains 4:33
-02. The Race 3:51
-03. Diamonds And Dark 4:49
-04. Worst Part Of Me 4:43(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:48:19
+Четверо геймеров со всего мира принимают участие в эксперименте, чтобы выяснить, могут ли упражнения вывести их игру на новый уровень. Этот документальный фильм рассказывает о Кассе Корли, Рёи Хирано, Бене Придморе и Шерри Нхан, которые соревнуются на международной арене в шахматах, маджонге, памяти и киберспорте соответственно. Четыре субъекта являются частью уникального (   Читать дальше...   )Производство: ВеликобританияЖанр: документальныйРежиссер: Ben Addelman, Matt HillПеревод: Одноголосый профессиональный (Jaskier)Язык озвучки: русский, английскийСубтитры: русские, английские, испанские и др. (смотри в отчёте ми)Продолжительность: 01:13:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA91C51CE6E0F28C682A8C99AC1F9A404C3E5881
+magnet:?xt=urn:btih:70528DF6CEFD462E4BFEF03B0264A840DC29C6E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -457,51 +459,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616187   (1036726) от 01.03.2023
+###  Публикация: 1614743   (1038312) от 23.02.2023
 
-Шаги в тумане / Footsteps in the Fog (1955) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Для своих друзей и знакомых Стивен Лоури – безутешный вдовец, потерявший жену из-за её тяжёлого желудочного недомогания... Горничная Лили Уоткинс почти не сомневается, что её хозяйка стала жертвой медленного методичного отравления, совершённого её мужем... Она не расстаётся с хозяином из желания улучшить своё положение... Попытка Стивена избавиться от девушки даёт (   Читать дальше...   )Производство: Великобритания, Frankovich ProductionsЖанр: драма, триллерРежиссер: Артур ЛюбинАктеры: Стюарт Грейнджер, Джин Симмонс (I), Белинда Ли, Билл Треверс, Рональд Сквайр, Финлэй Карри, Уильям Хартнелл, Фредерик Лейстер, Перси Мармот, Марджори РоудсПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (Александр Герусов), английскиеПродолжительность: 01:29:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7047AAEAC1E78157CDE4D9386FD78362C659399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616118   (1036725) от 01.03.2023
-
-Ялом Ирвин | Мама и смысл жизни (2015) [MP3, Ирина Ерисанова]
+Сергей Бубновский | Офис без риска для здоровья (2022) [MP3, Алексей Воскобойников]
 
 >>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Здоровье и Медицина (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036725.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038312.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый раз один и тот же повторяющийся сон. Очередь в парке развлечений к Пещере Ужасов. Подходит аттракцион-состав, он садится в вагончик, на мягкое сидение и видит в толпе зевак ее. Он кричит - Мамочка! Мама! - но вагончик трогается, и уходит в темноту. И даже проснувшись, и вскочив на подушке, слова все равно рвутся из горла - как же я, мамочка? Мама, как же я?.. (   Читать дальше...   )Жанр: ПсихологияПродолжительность: 12:02:17
+Новая книга известного врача-кинезитерапевта, доктора медицинских наук, профессора С.М.Бубновского адресована работникам офисов: менеджерам, бухгалтерам, руководителям компаний и их помощникам, IT- специалистам, дизайнерам, проектировщикам, операторам, административным работникам и другим специалистам, которые проводят свои рабочие дни в офисе за компьютером. В этой (   Читать дальше...   )Жанр: Популярно о медицинеПродолжительность: 04:40:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:301D5280E1E5D86F3458171BC7A2EB86DA59EB08
+magnet:?xt=urn:btih:D9D19B358928BF04DB820C0BF6105ECEB7629FED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,25 +485,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616194   (1036724) от 01.03.2023
+###  Публикация: 1614687   (1038311) от 23.02.2023
 
-Шаги в тумане / Footsteps in the Fog (1955) BDRip [H.264/720p] [VO]
+Дмитрий Шатров | S-T-I-K-S: Везунчик из Пекла или В поисках золотой жемчужины. Книга 3 (2022) [MP3, Александр Чайцын]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для своих друзей и знакомых Стивен Лоури – безутешный вдовец, потерявший жену из-за её тяжёлого желудочного недомогания... Горничная Лили Уоткинс почти не сомневается, что её хозяйка стала жертвой медленного методичного отравления, совершённого её мужем... Она не расстаётся с хозяином из желания улучшить своё положение... Попытка Стивена избавиться от девушки даёт (   Читать дальше...   )Производство: Великобритания, Frankovich ProductionsЖанр: детектив, триллерРежиссер: Артур ЛюбинАктеры: Стюарт Грейнджер, Джин Симмонс (I), Белинда Ли, Билл Треверс, Рональд Сквайр, Финлэй Карри, Уильям Хартнелл, Фредерик Лейстер, Перси Мармот, Марджори РоудсПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские (Александр Герусов), английскиеПродолжительность: 01:29:48
+Как люди не замечают суету в муравейнике, так и СТИКС не обращает внимания на человеческую возню. Улей живёт своей, только ему понятной, жизнью: перемешивает реальность и время, загружает кластеры, плодит заражённых. А иммунные… а что иммунные? Они тоже его дети, но как бы побочные. Нелюбимые. Выживут — и хорошо, нет — и ладно.
+СТИКС, как опытный шахматист, перебирает (   Читать дальше...   )Жанр: Боевая фантастика
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27F7276D3860C206753BA5ADC38B4B0D021E9D36
+magnet:?xt=urn:btih:F711A3CC78AF77F231E3F212A8587B9F578AD674
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,28 +512,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616214   (1036723) от 01.03.2023
+###  Публикация: 1614787   (1038310) от 23.02.2023
 
-Rabies - Бестиарий (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+Topaz Video AI 3.1.6 (x64) [En]
 
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Увертюра "Morion" [00:01:56]
-02. Бестиарий [00:03:52]
-03. На руинах твоих империй [00:04:06]
-04. Оборотень [00:04:51](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:37:38
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBC4359797FDC9145866791BCE2D7F9A1DAA3A94
+magnet:?xt=urn:btih:8FF0CFB09731800A9008B8827429D365B99CBCEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,28 +538,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616271   (1036722) от 01.03.2023
+###  Публикация: 1614889   (1038309) от 23.02.2023
 
-Treasure Hunt - The Good, the Bad and the Innocent (2023) [MP3|320 Kbps] <Hard Rock>
+Болтун (2022) WEBRip [H.264/1080p]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Devil Plays On (04:14)
- 02 - Get Back Up (03:51)
- 03 - An Angel Has Called You (04:20)
- 04 - Her Eyes Are like Dark Diamonds (03:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:01
+История о человеке, который не может отпустить прошлое. И в настоящем для него места нет.Производство: Россия / МедиаточкаЖанр: Короткометражный, драма, криминалРежиссер: Роман Соболев, Андрей ГоловинАктеры: Роман Соболев, Дмитрий Худяков, Дмитрий Канев, Антон АнтоновСубтитры: отсутствуютПродолжительность: 00:28:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29B6AC0ED0F19EEEE6727D43B226CFAD5DBCEDF1
+magnet:?xt=urn:btih:3443E68419B2E61843243A633F4989CB4771A271
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,25 +564,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616128   (1036721) от 01.03.2023
+###  Публикация: 1614756   (1038308) от 23.02.2023
 
-Журнал | Загадки истории №09 (2023) [PDF]
+7-Zip ZS 22.01 - v1.5.4 - Release 3 [Multi/Ru]
 
->>Журналы
->>Другие журналы
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярное, История, ЖурналФормат: PDF
+7-Zip ZS — форк (доп. ветка) популярнейшего бесплатного архиватора 7-Zip, от которого отличается прежде всего поддержкой нескольких дополнительных высокоэффективных форматов сжатия: Zstandard, Brotli, LZ4, LZ5, Lizard и Fast LZMA2.
+В программу встроен калькулятор хеша файлов, который позволяет проверить целостность сжатого файла. В отличие от 7-zip, он позволяет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64BB9CF4B57D74722B31549D6921862C33BC15AE
+magnet:?xt=urn:btih:8CA374345A3005292C90229B2D146A326CE8E82E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,28 +591,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616213   (1036720) от 01.03.2023
+###  Публикация: 1614825   (1038307) от 23.02.2023
 
-VA - Mediterranean Sunsets: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Вокально-инструментальный ансамбль "Песняры" (1971) 2023, АО "Фирма Мелодия" [FLAC 2.0|24/44.1|WEB-DL|tracks] <Pop, RockPop, Rock, Folk>
 
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Other Styles
+>>Folk (Hi-Res)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Peter Pearson - In the Night (4:47)
-02. Michael E - When Eyes Speak (Original Mix) (5:21)
-03. Chillson - Till the Sun Goes Down (6:15)
-04. Marga Sol - Marbella Sunrise (4:04)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:28:04
+1. Ты мне весною приснилась
+2. Косил Ясь конюшину
+3. В поле верба
+4. Ой, рано на Ивана(   Читать дальше...   )Жанр: Pop, Rock, FolkПродолжительность: 00:37:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16876D7096F9BF880C4EDBB93981328846BFB9D8
+magnet:?xt=urn:btih:B704D5C58141D77EAC98276B0B4AD0CDC13728ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,28 +620,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616258   (1036719) от 01.03.2023
+###  Публикация: 1614668   (1038306) от 23.02.2023
 
-Occams Laser - The Grid Lives (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
+В.Н. Шунков | Вооружение элитных войск (2002) [DJVU]
 
->>Electronic
->>Synthpop, New Wave (Lossless)
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036719.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ENCOM Forever [00:04:08]
-02. MCTRL_751 [00:01:42]
-03. Sins of the Father [00:02:38]
-04. The Grid Lives [00:04:58](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:56:43
+Справочник содержит сведения об оружии и боевой технике морской пехоты, воздушно-десантных, горнострелковых войск и спецподразделений. Для каждого из образцов приводятся описание конструкции, тактико-технические характеристики и иллюстративные материалы.
+Книга рассчитана на широкий круг читателей.Жанр: военная техника, энциклопедияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D42F2B5CE59DD579ED40E6458F64E7B8846B9E1A
+magnet:?xt=urn:btih:F2676E337B21186C8311F37A0C4AC8533E0AC689
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -677,28 +647,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616173   (1036718) от 01.03.2023
+###  Публикация: 1614878   (1038305) от 23.02.2023
 
-John Lennon - Imagine (1971) Reissue, Remastered, 2014, Universal Music [OGG Vorbis|480 Kbps] <Rock, Pop>
+Topaz Video AI 3.1.6 (x64) RePack by KpoJIuK [En]
 
->>Pop
->>Зарубежная поп-музыка
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036718.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Imagine
-02. Crippled Inside
-03. Jealous Guy
-04. It's So Hard(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:39:46
+Topaz Video AI – это совершенное новое решение для увеличения видео, с использованием искусственного интеллекта. Topaz Video AI, обученный работе с тысячами видео и сочетающий в себе информацию из нескольких входных видеокадров, увеличит ваше видео до разрешения 8K с точными деталями и последовательностью движения.До сих пор не было возможности идеально воссоздать (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB60875CD8A02367B27F3120EA8451DBBEDC16EC
+magnet:?xt=urn:btih:A9CA6C9686D42934D06B4BE1AFDB9D67E3CAD2A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,28 +673,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616139   (1036717) от 01.03.2023
+###  Публикация: 1614784   (1038304) от 23.02.2023
 
-VA - Алексей Мажуков – Песни Любви (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+Михаил Булатов | Пословицы, поговорки и загадки русского народа (1948) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036717.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-А1 В. Бельченко - Признаюсь Я
-А2 Ж. Рождественская – Свет В Окне
-А3 О. Пирагс – Летние Каникулы
-А4 К. Георгиади - Судьба Моя(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:50
+Наши пословицы, поговорки, загадки — сокровищница русской народной речи и народной мудрости. Они кратки, выразительны и легко запоминаются. В пословицах и поговорках выражены взгляды нашего народа на жизнь, его любовь к родине, высокое сознание долга, правдивость и честность, верность в дружбе, уважение к науке и труду.Жанр: Пословицы, поговоркиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4292920DF906823BAF83E4D49F043AA4FA1BBCD
+magnet:?xt=urn:btih:48DBFDA160ACD8BA7185EFBEA3B48E6B8DCD4E08
 ```
 
 https://mybot314.ru/tekegram_catalog/

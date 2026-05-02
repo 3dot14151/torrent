@@ -1,3 +1,119 @@
+###  Публикация: 1743276   (105428) от 15.08.2024
+
+Roulette - Now! (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Enough
+02. Keep On Dreaming
+03. Soldiers Of Love
+04. We Can Make It(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F046E29FF9803EC0340CD12BFC5DBC8EC16E649F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743580   (105388) от 16.08.2024
+
+Cold Chisel - 50 Years - The Best Of (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standing On The Outside (2011 Remastered) [00:02:56]
+02. Cheap Wine (2011 Remastered) [00:03:25]
+03. When The War Is Over (2011 Remastered) [00:04:25]
+04. All For You [00:04:57](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3860C49F287DA3C26213D23374D45D2FF5096E65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743853   (105356) от 18.08.2024
+
+April Fool - Playin' To Win (1989) Reissue, Remastered, 2024, Heaven And Hell Records [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cover Girls (5:12)
+02. Playin' To Win (5:53)
+03. Take Away The Heartache (4:18)
+04. Bahama Mama (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F08015E40045C92C529C71F073D0A90B1FBAAB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743855   (105355) от 18.08.2024
+
+Bad Boy - Private Party (1981) Limited Edition, Reissue, Remastered, 2024, Pride & Joy Music [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction / Run From Yourself (3:44)
+02. Don´t Pretend (4:06)
+03. Can´t You See (3:05)
+04. Have I The Right (2:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F517803E7BD269B18CA371BFCB670A81CBABC4FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743847   (105339) от 18.08.2024
 
 Nestor - Teenage Rebel (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -629,122 +745,6 @@ Bite The Bullet - Looking For Paradise (2024) [FLAC|Lossless|WEB-DL|tracks] <Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6DA653ECB424527ACBC9C01CB3337173E0E6C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748612   (104546) от 10.09.2024
-
-Gotfire - Free Again (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104546.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Do Your Want Fire?
-2. The Escape (Liberation Pt. III)
-3. She's This Way
-4. Hide Away(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16589225808CDB784A36CB0DFF6A947983D0AF4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749133   (104528) от 13.09.2024
-
-Wake The Nations - Heartageddon (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive
-02. Don't Call Me Tonight
-03. Never Say
-04. Bulletproof(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CEE2DE3D28A59E34D6A9D8D35FA3FF3FDF67AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749308   (104328) от 14.09.2024
-
-Victory - Circle of Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tonight We Rock [00:03:53]
-02. American Girl [00:05:34]
-03. Count on Me [00:03:52]
-04. Surrender My Heart [00:04:25](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32949240780BD1665426EC3546823C84AE8C2F1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749625   (104297) от 15.09.2024
-
-Roulette - From Now Until Today (2024) EP [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love's A Dying Drug (4:52)
-2. Ready For Friday Night (3:45)
-3. Life Will Go On (3:39)
-4. Summer Day (3:57)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EECD5DE9F27A8C853DDAA2B0B34E9A08A90E0F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

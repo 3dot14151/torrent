@@ -1,3 +1,177 @@
+###  Публикация: 1698142   (118574) от 08.02.2024
+
+Thin Lizzy - Vagabonds Of The Western World (1973) Deluxe Edition, 2023, Universal Music Operations Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama Nature Said (4:54)
+02. The Hero And The Madman (6:10)
+03. Slow Blues (5:15)
+04. The Rocker (5:12)(   Читать дальше...   )Жанр: RockПродолжительность: 03:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E78F20A51F1EB79B767C09B91E41A58035F5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698508   (118460) от 09.02.2024
+
+Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Reggae>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Up, Stand Up (3:18)
+02. Roots, Rock, Reggae (3:37)
+03. I Shot The Sheriff (4:42)
+04. No More Trouble (3:58)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E581A44855514E9474C74FB90ED67FF6233D4DDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698572   (118414) от 09.02.2024
+
+Lacuna Coil - In a Reverie (1999) Reissue, 2019, Century Media [FLAC|24/192|image + .cue|Vinyl-Rip] <Century Media – 19075971571>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118414.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Circle
+A2 - Stately Lover
+A3 - Honeymoon Suite
+A4 - My Wings(   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 00:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:883767E7AE364641ECAA4A80DDE31931CC2B8A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698554   (118409) от 09.02.2024
+
+XentriX - Studio Albums (6 releases) (1989-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118409.jpg" />
+</div>
+
+
+###  Подробнее
+
+Xentrix — британская трэш-метал-группа из Престона. Группа была образована в 1984 году под названием Sweet Vengeance. Они изменили своё название на Xentrix в 1988 году.1989 - Shattered Existence
+1990 - For Whose Advantage
+1992 - Kin
+1996 - ScourgeЖанр: Thrash MetalПродолжительность: 05:19:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAA218895C43B067A97497D345320CB4398A1453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698598   (118395) от 09.02.2024
+
+Lacuna Coil - Karmacode (2006) [WavPack|32/384|image + .cue|Vinyl-Rip] <Gothic Metal, Rock, Alternative Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118395.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Fragile
+A2 To The Edge
+A3 Our Truth
+A4 Within Me(   Читать дальше...   )Жанр: Gothic Metal, Rock, Alternative Rock, MetalПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF61C18CE046F4AF6EC1951C909EA2384DB6A89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698686   (118311) от 10.02.2024
+
+Lacuna Coil - Broken Crown Halo (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Rock, Alternative Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragile
+02. To The Edge
+03. Our Truth
+04. Within Me(   Читать дальше...   )Жанр: Gothic Metal, Rock, Alternative Rock, MetalПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3527333B9B6EFC6800DAB15D6A6ACC2278019F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698704   (118295) от 10.02.2024
 
 VA - Песни И Романсы. Поют В. Трошин, З. Невская, И. Кобзон, Э. Хиль, Е. Беляев, Н. Исакова и др. (1972) [FLAC 1.0|24/96|image + .cue|Vinyl-Rip] <Pop, Romances>
@@ -570,180 +744,6 @@ Galleons - Violent Delights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:053EA315A62A9B4720FED7A84B44C2578004705B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699225   (117928) от 12.02.2024
-
-Riot - Fire Down Under (1981) Reissue, 2023, Rhino[FLAC 24/192|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swords and Tequila (3:19)
-02. Fire Down Under (2:32)
-03. Feel the Same (4:53)
-04. Outlaw (4:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB703F9E8D2E7449EA1DF6EFB1BFF0B5714250E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699231   (117922) от 12.02.2024
-
-Gregory Aigersson - White Morning & Valentine Coffee (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cupid's Cappuccino (4:15)
-02. Snowy Sunrise (4:09)
-03. Double Rainbow (3:38)
-04. Heartwarming Espresso (4:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EDD4A133922C2F25053D68EA477F4CEB5A6AD3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699141   (117920) от 12.02.2024
-
-Crush++ - Power Pleasure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Pop Punk, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Machine [00:02:09]
-02. Like A Fever Dream [00:03:54]
-03. No Lids, No Love [00:02:56]
-04. Dread It (Until I Can't Remember It) [00:03:56](   Читать дальше...   )Жанр: Post-Hardcore, Pop Punk, ElectronicПродолжительность: 00:44:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC5F7867D6F63C492E503DC689300894758C7E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699232   (117918) от 12.02.2024
-
-Iolanda Lomuscio - Jazzscape Harmony (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulful Riverside Reflections (2:37)
-02. Chill Beats (2:15)
-03. Island Dreamin' Jazz (2:32)
-04. Cosmic Journey (2:51)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BC6F1076EAB4A5A26CFEC283BBA89A3598A119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699445   (117789) от 13.02.2024
-
-Die Sterne - Grandezza (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Was hat dich bloss so ruiniert (Single Mix) (00:03:29)
-02 - Wichtig (00:04:05)
-03 - Fickt das System (00:03:54)
-04 - Universal Tellerwascher (Radio Edit) (00:02:59)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6DA81201D15AFF4760AB2762B112B0D4F1B79A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699566   (117780) от 13.02.2024
-
-Seth James - Lessons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Glamour Of Life [00:00:13]
-02. Honky Tonkin’ (I Guess I Done Me Some) [00:03:20]
-03. Real Good Itch [00:02:34]
-04. Who's Foolin' Who [00:02:51](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C17643CD1F8B0733BC20577D0A6442E50A5966A
 ```
 
 https://mybot314.ru/tekegram_catalog/

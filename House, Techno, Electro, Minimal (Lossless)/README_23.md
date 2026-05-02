@@ -1,3 +1,32 @@
+###  Публикация: 1390920   (782260) от 17.06.2020
+
+James Grant - The Anjunadeep Edition 300 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikola Melnikov & Max Sorokin - Sun Wakes Up Earlier Than All (Mixed) (04:59)
+02. Nordfold - Trondheim (Mixed) (04:22)
+03. Nikola Melnikov & Max Sorokin - Pandawa (Mixed) (03:49)
+04. Rezident - Pure (Mixed) (04:04)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 03:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297937A22264F215BBA54AA124A65F01D7B1A8C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1206501   (782155) от 14.02.2018
 
 Facechain - Accensor (2018) Dream Catalogue [FLAC|Lossless|WEB-DL|tracks] <Techno, IDM, Ambient>
@@ -710,35 +739,6 @@ Giriu Dvasios - Dub Vibes Vol. 1-3 (2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Tec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:088891F7788AF03C231E5B987F0140F4FC1A41F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211180   (777563) от 07.03.2018
-
-VA - Winter Chill 2018 (Relaxed Nu-Disco & Deep House Sounds) (2018) [FLAC|Lossless|tracks] <Nu-Disco, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baltic Weather - Back Where I Belong (original mix) (5:51)
-02. Tikki Tembo & Yogi - Back To You (feat Natalie Conway - Tikki Tembo Main mix) (6:00)
-03. Giangi Cappai - Black Queen (feat Nia Martin) (6:56)
-04. Dmitrii G - Antidote (original mix) (6:05)(   Читать дальше...   )Жанр: Nu-Disco, Deep HouseПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E9E527B0E592E9A1F843F9477E3702F4AD3CFAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

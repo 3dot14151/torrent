@@ -1,3 +1,61 @@
+###  Публикация: 1312205   (530816) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я твой хороший друг (02:05)
+02. Ты не вздумай (02:09)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76FFE5C462ACE91464C32947ADB8EF5112F4AEC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312200   (530814) от 05.07.2019
+
+Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got a Friend in Me (02:04)
+02. I Can't Let You Throw Yourself Away (02:06)
+03. The Ballad of the Lonesome Cowboy (01:45)
+04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D107D105DCF431293E2655AB7063222911768785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927215   (529929) от 12.08.2015
 
 Marco Beltrami & Philip Glass - The Fantastic Four (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtracks>
@@ -703,64 +761,6 @@ Official soundtrack:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8FE9868030C705BFDDEAA2CC2AEFEF2263DB58E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320106   (475071) от 16.08.2019
-
-Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475071.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aqua Opening
-2. Aqua Balalaika
-3. Aqua Icebergs
-4. Aqua Waves(   Читать дальше...   )Жанр: OST, Cello MetalПродолжительность: 00:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E50B71718450F629F2F195EF9C59E01C3B10FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 797289   (473540) от 05.09.2018
-
-Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (2014) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Titles (01:43)
-02. The Rains of Castamere* (02:42)
-03. Breaker of Chains (04:05)
-04. Watchers On the Wall (02:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 1:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDD0F70C2EF9D02EE528C6E3FAA285B3D10F71A
 ```
 
 https://mybot314.ru/tekegram_catalog/

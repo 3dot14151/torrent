@@ -1,3 +1,61 @@
+###  Публикация: 1314086   (521321) от 12.07.2019
+
+VA - Beyond Magination: Future Trance Music (2019) [MP3|320 Kbps] <Trance, Progressive, Uplifting, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521321.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mark Tonderai - Cool Change (Original Mix)
+002. Mohamed Ragab - Groundbreaker
+003. Natterum - Burning Industrial
+004. Dj Geri - Storm Waves(   Читать дальше...   )Жанр: Trance, Progressive, Uplifting, VocalПродолжительность: 09:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BBFC515186D36C15037A78A840D441CF647452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241228   (521267) от 16.08.2018
+
+VA - Analogue Dream (2018) [MP3|320 Kbps] <Psy, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521267.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. E-Mantra - Above the Skies
+002. 2012 - Say My Name
+003. Acidbots - Udaan (Fly High)
+004. Acidprojekt - Analysis Paralysis(   Читать дальше...   )Жанр: Psy, ElectronicПродолжительность: 11:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:230A2994DA6051A1C17A5C42DEF9BF7D9060C39D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1241089   (521149) от 16.08.2018
 
 VA - Летняя сессия 2018 (mixed by Dj V) (2018) [MP3|320 Kbps] <Club House, Funky House, Dance>
@@ -697,64 +755,6 @@ VA - Perfect Sin Lounge Moments Best of Relaxed Bossa Nova and Sexy Smooth Beat 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5739864AA4FE9471A990F53DC94E54B35AD5703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930268   (516344) от 22.08.2015
-
-VA - Office Sounds – Chillout Edition (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillo – Let the Night Come (4:57)
-02. Roxano de Santiago – La Isla (5:55)
-03. Alice Shelton – Lost Fear (3:46)
-04. John Soultek – Whisper (3:52)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68742265430FE5273A2C61D0F81D5D7F7CFEF26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930174   (516314) от 22.08.2015
-
-VA - Cafe Chillout Music Club Bar Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Belloq - De Longpre
-02. Jox Talay - Groove Theory
-03. Uncle Feaster - The Trafalgar
-04. Elton Ames - Beach House(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28E3A9EFDDBA27B1DFED6105D6E6A0F9782AC956
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,117 @@
+###  Публикация: 1103301   (887764) от 11.02.2017
+
+Ronnie Earl & The Broadcasters - Good News (2014) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  I Met Her On That Train  (04:44) 
+02|  A Change Is Gonna Come  (06:02) 
+03|  A Time To Remember  (06:10) 
+04|  In The Wee Hours  (10:53) (   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40A1B4A910CA9A7D7A4D92B7E188F16967433F58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494564   (887351) от 08.09.2021
+
+Chris Rea - Blue Guitars II - Country Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkin' Country Blues (3:41)
+02. Man Gone Missing (4:40)
+03. Can't Stay Blues (4:58)
+04. KKK Blues (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01EA0CA9C44DC1DED0104C5CF5E2359A7DEEDDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103470   (885575) от 12.02.2017
+
+Dwane Dixon - Black Satin Blues (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'd Rather Get Shot Down (3:38)
+02. Elevator Operator (4:03)
+03. 24-7 Blues (3:49)
+04. Long Way (From Loving You) (6:33)(   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1819247C6E3AB867732F0FE5930F67E144FDDCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103379   (885563) от 12.02.2017
+
+Omar & the Howlers - Essential Collection (2011) 2×CD, Compilation [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Европейские поклонники блюза всегда восхищались техасским музыкантом Омаром Кентом Дайксом, чему в немалой степени способствовал его имидж, соответствовавший их представлением об американце. Высокий, в ковбойских сапогах, с глубоким голосом и южным акцентом, Омар с легкостью мог завести аудиторию. Дайкс родился в 1950 году там же где и Бо Диддли, в маленьком городке (   Читать дальше...   )CD 1 - Best Of
+CD 2 - Omar's PicksЖанр: Blues-RockПродолжительность: 02:03:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AEAF784E64928F9E321BFE8CB8873CBE37ABE18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495056   (884454) от 10.09.2021
 
 Samantha Fish - Faster (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
@@ -627,122 +741,6 @@ Adam Schultz - Soulful Distancing (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22A36D4E997E4A7A59FF20650255D5C7F1FE7D7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495988   (875824) от 15.09.2021
-
-Brad Vickers & His Vestapolitans - The Music Gets Us Thru (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875824.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dumb Like A Fox (2:00)
-02. Take It Slow (4:09)
-03. Please Don't Say (3:36)
-04. Big Wind (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524C77E789E0CCD6F5DB13C10C0779A1EC9E069A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495957   (875818) от 15.09.2021
-
-Beat brutality - A blues detour (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues for the damned (3:06)
-02. Sweet little furry (2:56)
-03. First wave (2:39)
-04. Treasure that you pleasure (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E68A2158419ABB532AC2A1DD0C183E20FE7274
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495949   (875717) от 15.09.2021
-
-Altered Five Blues Band - Holler If You Hear Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holler If You Hear Me (3:33)
-02. Guilty of a Good Time (3:26)
-03. If You Go Away (She Might Come Back) (3:32)
-04. Holding on with One Hand (3:56)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B7BEBDCF4E2EB835381B15915E80F1BED896DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495954   (875706) от 15.09.2021
-
-Band Of Friends - Spotlight on the G-Man Vol.2  (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Treat Her Right (3:20)
-02. Lonely Mile (4:45)
-03. Secret Agent (4:50)
-04. Livin' Like a Trucker (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08959FC9C8381CE6DCD14BD82B548C4DEFA4443
 ```
 
 https://mybot314.ru/tekegram_catalog/

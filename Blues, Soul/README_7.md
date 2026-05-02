@@ -1,3 +1,32 @@
+###  Публикация: 1509117   (795496) от 11.11.2021
+
+VA - Ритм & Блюз Радиостанция (All Tracks Remastered) (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ray Charles - Hit the Road Jack (Remastered 2019)
+02. Ben E. King - Stand by Me (Remastered 2015)
+03. Nina Simone - My Baby Just Cares for Me (Remastered 2013)
+04. The Chiffons - He's so Fine (Remastered)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9A3E8EEB96E4D873AB1FB8D1685782EC1802A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012109   (795459) от 29.04.2016
 
 George Thorogood & The Destroyers - Greatest Hits: 30 Years of Rock (2004) [MP3|320 кб/с] <Rock, Blues Rock, Country Rock>
@@ -716,35 +745,6 @@ Peter Karp & Sue Foley - He Said She Said (2010) Blind Pig Records [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71C5996C414DC9BB48ED2C2330BDABDCD08EB1A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204651   (784395) от 07.02.2018
-
-Big Boy Bloater & The Limits - Big Boy Bloater And The Limits (2011) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784395.jpg" />
-</div>
-
-
-###  Подробнее
-
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Ugly Way Of Thinking 3:08
-02. I Heard Those Voices Again 3:11
-03. Fumble Fisted Fool 3:19
-04. Sweet & Brown 2:34(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A54F926C4E7BDE0CBA90B1A4049D0675B5067F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

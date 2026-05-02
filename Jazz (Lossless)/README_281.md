@@ -1,3 +1,61 @@
+###  Публикация: 1672305   (169376) от 28.10.2023
+
+VA - Good Feeling Chilly Light Relaxing Jazz Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - It Will Rain (4:12)
+02. Chillaxing Jazz Kollektion - Blue Pacific (4:39)
+03. Konstantin Klashtorni - I Feel It Coming (4:39)
+04. Kool&Klean - Sail (5:06)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDC068BCE3927CCB6DF46ADA249F8F1ABCEB96C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672307   (169271) от 28.10.2023
+
+VA - Jazz Bar (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Art Blakey - Moanin' (Remastered 1998/Rudy Van Gelder Edition) (9:33)
+02. Oscar Peterson Trio - I Got It Bad And That Ain't Good (5:06)
+03. Stevie Wonder - Don't You Worry 'Bout A Thing (4:45)
+04. Quincy Jones - Just Once (4:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E812ECD8AE4A4F5D14D0A9BDCD59F1A0CD4A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344784   (169229) от 12.12.2019
 
 Andy Fusco - Vortex (2019) SteepleChase [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -687,64 +745,6 @@ Zoe Rahman - The Cynic (2000) Manushi Records [FLAC|Lossless|tracks + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71A832FA68ACAED959F9ECCA51E91BE8B912A8F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672881   (167300) от 30.10.2023
-
-Jeff Lorber - The Definitive Collection (2000) Arista [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Funk, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tune 88 [4:32]
-02. Water Sign [4:37]
-03. Night Love [5:15]
-04. Fusion Juice [4:14](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, Jazz FusionПродолжительность: 01:11:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFA7F463C1EBE4784F3B43FCC153622B6DEE2B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672926   (167205) от 30.10.2023
-
-VA - Cool Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dave Brubeck Trio - Avalon (Album Version) (2:06)
-02. Modern Jazz Quartet - Rose Of The Rio Grande (2:13)
-03. The Dave Brubeck Trio - Perfidia (Album Version) (2:17)
-04. The Dave Brubeck Quartet - Lulu's Back In Town (2:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F4CC772297F3B63A71D2B9C4DCB456F930EF24
 ```
 
 https://mybot314.ru/tekegram_catalog/

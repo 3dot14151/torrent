@@ -1,3 +1,61 @@
+###  Публикация: 1408025   (457853) от 11.09.2020
+
+Skillet - Victorious: The Aftermath (2019) Deluxe Edition, 2020 [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Modern Rock, Christian>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legendary [00:04:04]
+02. You Ain't Ready [00:03:18]
+03. Victorious [00:04:05]
+04. This Is the Kingdom [00:03:27](   Читать дальше...   )Жанр: Alt. Rock, Modern Rock, ChristianПродолжительность: 01:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3B7EEE4732AD63825757A793580D0654F509FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 550209   (457412) от 22.09.2012
+
+Green Day - iUno! (2012) [FLAC|Lossless] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. - Nuclear Family (3:03)
+02. - Stay The Night (4:37)
+03. - Carpe Diem (3:26)
+04. - Let Yourself Go (2:57)(   Читать дальше...   )Жанр: PunkПродолжительность: 00:41:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408404   (456121) от 12.09.2020
 
 Cel Damage - Runoff of Acid, Oil and Water (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Hardcore, Mathcore, Noise Rock>
@@ -687,64 +745,6 @@ Sum 41 - 13 Voices (2016) Japanese Edition [FLAC|Lossless|tracks +.cue] <Punk Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5955E952E5A75181804C967791629216DBABB40B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409892   (440966) от 19.09.2020
-
-Conditions - Fluorescent Youth (2010) 10 Year Anniversary, 2020, Good Fight Music [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End of Progression [00:03:37]
-02. Better Life [00:03:40]
-03. Natural Competition [00:03:46]
-04. When It Wont Save You [00:03:46](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BB4C4A30FECFF643BABB188A5B48B2F7B297D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410002   (440960) от 19.09.2020
-
-The Inhibitor - The End Is Hear (2019) [FLAC|Lossless|WEB-DL|tracks] <Experimental Industrial Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue [00:02:28]
-02. Till I'm Alive [00:03:56]
-03. The Great Fall [00:05:07]
-04. Catalyze the Inhibitor [00:04:28](   Читать дальше...   )Жанр: Experimental Industrial Death MetalПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD40B694D079519EC62F18989260978E1B4B4285
 ```
 
 https://mybot314.ru/tekegram_catalog/

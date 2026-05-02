@@ -1,3 +1,61 @@
+###  Публикация: 995286   (884512) от 11.03.2016
+
+3 Doors Down - Us And The Night (2016) [FLAC|Lossless|tracks] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Broken (02:46)
+02. In The Dark (03:43)
+03. Still Alive (02:41)
+04. Believe It (03:21)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370F3056EC282AEFFDFAB2DF453FB317B8491B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995412   (884281) от 11.03.2016
+
+3 Doors Down - The Greatest Hits (2012) [FLAC|Lossless|image + .cue] <Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kryptonite (4:03)
+02. When I'm Gone (4:20)
+03. Here Without You (3:56)
+04. It's Not My Time (4:03)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0896E62407CC1B6E4275AA3C70267C83FFCBDA0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 870651   (883980) от 19.02.2015
 
 Imagine Dragons - Smoke + Mirrors (2015) Deluxe Edition [FLAC|Lossless]<Indie Rock, Pop Rock>
@@ -686,64 +744,6 @@ No Doubt - Tragic Kingdom (1995) [FLAC|Lossless|image + .cue] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40B96562029FF174C436C69BC3D84AD62E99B9A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377458   (851837) от 22.04.2020
-
-Other Lives - For Their Love (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound Of Violence  [03:46]
-02. Lost Day  [02:55]
-03. Cops  [03:55]
-04. All Eyes / For Their Love  [06:04](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76F2AF497BEB6B20EDA96398F93DB4C9B8A8546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515188   (851764) от 03.03.2017
-
-Jane's Addiction - Nothing's Shocking (1988) remastered, 2012, Audio Fidelity [FLAC|Lossless|image + .cue]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Up The Beach (3:01)
-02. Ocean Size (4:19)
-03. Had A Dad (3:45)
-04. Ted, Just Admit It... (7:22)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2986D22BE710454104BB603199EB89D2BEBDF2DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1487213   (1003786) от 04.08.2021
+
+Caravelli - Caravelli at San Remo & J’aime (2019) Compilation, Remastered [FLAC|Lossless|image + .cue] <Instrumental Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003786.jpg" />
+</div>
+
+
+###  Подробнее
+
+Итальянский Фестиваль в Сан-Ремо - одно из самых ярких событий в мире популярной музыки. В 1967 году исполнилось 17 лет этому музыкальному празднику, на котором за это время прозвучало столько красивых песен и мелодий, которых с лихвой хватило бы на три подобных фестиваля. На этом альбоме Caravelli собрал подборку лучших песен, спетых в Сан-Ремо в последние годы, (   Читать дальше...   )Caravelli At San Remo (1967)
+01. Io Ti Daro Di Piu (Can I Trust You) (2:54)
+02. Le Colline Sono in Fiore (The River) (3:00)
+03. Io Che Non Vivo Senza Te (You Dont Have to Say) (2:45)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2582822A0CB718FB27D3AA3F22787C9DDF904C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349731   (1003775) от 04.01.2020
+
+Kenio Fuke - Piano Impressions, Vol. 1-2 (2013) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sementes de Esperanca (4:48)
+02. Vaga Lume (4:48)
+03. Brisa de Lavanda (4:04)
+04. Domingo no Parque (4:27)(   Читать дальше...   )Жанр: New Age, Piano, Relaxation |Продолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491770F7605D5ECA58790D427F220DE421A8777E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349992   (1003772) от 04.01.2020
+
+Films - Signs From The Past (2016) (Ricco) [FLAC|Lossless|tracks] <Instrumental, Experimental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003772.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. intro 	1:12
+2. snow in midsummer 	8:26
+3. wind flower 	05:56
+4. kumoito 	5:32(   Читать дальше...   )Жанр: Instrumental, ExperimentalПродолжительность: 46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DBB1224A6EAE170C22B3FFB33359A1260CE57A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349903   (1003730) от 04.01.2020
+
+Кай Метов - Негромко о сокровенном (Инструментальный альбом) (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Pop>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Негромко о сокровенном (3:49)
+ 02. Летний дождь и твоя улыбка (4:49)
+ 03. Серьезный разговор (4:16)
+ 04. Шелест ветра в твоих волосах (4:41)(   Читать дальше...   )Жанр: Instrumental, Piano, PopПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B17DDA619E0DED99335CB24D4DDF5CDC1E77DC0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933856   (1003686) от 04.01.2020
+
+Throne Room Company - 4  альбома (2011-2013) Discography [MP3|320 кб/с]<New Age, Gospel, Trance>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of Light (3:33)
+02. Grace (3:42)
+03. The Prayer (7:13)
+04. Spirit Of Life (5:32)(   Читать дальше...   )Жанр: New Age, Gospel, TranceПродолжительность: 03:25:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A312BE14C34B3501028186ABD67F4C2A7F0AEC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487416   (1003596) от 05.08.2021
+
+James Last - Russland Erinnerungen (1977) WEB-Rip by Deezer [FLAC|Lossless|tracks] <Pop, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seid nicht traurig…
+02. Der schöne Straßenhändler
+03. Nadjenka
+04. Das Äpfelchen + Gapak(   Читать дальше...   )Жанр: Pop, InstrumentalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9CA3A338CCCD417EB2D05C844779CD55F76267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350247   (1003283) от 06.01.2020
+
+George Winston - -A Memorial Benefit (2020) Special Edition [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lament
+02. Where Are You Now
+03. Remembrance
+04. Where the Sun Rises First (Kumakahi)(   Читать дальше...   )Жанр: Instrumental, New Age, PianoПродолжительность: 00:30:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:857F027BD24875181F9CCED9B20B6A78A0B5B295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350150   (1003243) от 06.01.2020
 
 Кай Метов - Для тебя и о тебе (Инструментальный альбом) (2013) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Pop>
@@ -566,248 +769,6 @@ Fausto Papetti - Movie Land (2011) [MP3|320 кб/с]<Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42D02D24FC60C33879EBB5C95F8B010CC0822FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598653   (999116) от 07.01.2013
-
-Anthony Ventura - Romantische Momente (2010) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999116.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) La vie en rose (Schau mich bitte nicht so an) 03:03
-2) I Have A Dream 04:17
-3) Blue Bayou 02:29
-4) Tornero - Non succedera piu 04:52
-5) Save The Last Dance For Me 02:36
-6) You've Lost That Loving Feeling - Unchained Melody 04:01
-7) Bright Eyes 02:45
-8) Soleado (Tranen lugen nicht) 02:09
-9) Hey Jude 04:05
-10) Morning Has Broken 02:16(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC962415115965278C10CE33C7BF65E0EA645F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598666   (999103) от 07.01.2013
-
-James Last - Title Of Album: Christmas with Romance (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance For Violin And Orchestra No.2 In F Opus 50
-02. Stille Nacht
-03. Air On A G String
-04. Medley: White Christmas / Midnight In December / Jingle Bells
-05. Elvira Madigan
-06. Rosen Aus Dem Suden Opus 388
-07. Impromptu No.2 In A Flat Opus 142
-08. Le Quattro Stagioni Opus 8: Largo
-09. Sonata No.8 In C Minor Opus 13 "Pathetique": 2. Adagio
-10. Nocturne No.8 In D Flat Opus 27 No.2: Lento Sostenuto(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB00C4F6D7478BD7303686FED263DCD324E1348B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598573   (999092) от 07.01.2013
-
-Bel Suono - Мегаполис (2012) [MP3|320 кб/с]<Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Libertango, (I've seen that face before) музыка Astor P.Piazzolla
-02 Мегаполис музыка Евгений Соколовский
-03 Одинокое сердце музыка Евгений Соколовский
-04 Bolero музыка Maurice Ravel
-05 Вальс музыка Евгений Соколовский
-06 Танец рыцарей
-музыка Сергей Прокофьев (Ромео и Джульетта / Танец Рыцарей)
-сузыка Сергей Рахманинов (Прелюдия Соль минор)
-07 Молитва (Bel Suono & Камо Сейранян (дудук)) музыка Алексей Рыбальчик
-08 Лето музыка Antonio Vivaldi (Four Season - Summer)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987491B1617A0762BA46341999C5BADBCB055563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598128   (999082) от 07.01.2013
-
-New Sun Pops Orchestra - Sax Mood 2 and Guitar Mood 2 (1976) [MP3|320 кб/с]<JPop Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sax Mood 2
-Продолжительность: 00:43:34
-  1 Nakanoshima Blues
- 2 Futari No Tabiji
- 3 Tomoshibi
- 4 Sakaba Nite
- 5 Ame Ga Yandara
- 6 A A Hito Koishi
- 7 Futsuka Yoi
- 8 Otouto Yo(   Читать дальше...   )Тип издания: VinilRipЖанр: JPop Instrumental, Easy ListeningПродолжительность: 01:20:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA1A45F5F1560D41994F40F9BFECCB2691BB3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598895   (999059) от 07.01.2013
-
-Однажды в сказке / Once Upon a Time OST (2012)[MP3|320 кб/с]
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon a Time Orchestral Suite
-02. Henry's Proposal
-03. The Queen's Curse
-04. Jiminy Cricket
-05. Dealing with Rumplestiltskin
-06. Belle's Story
-07. Dwarves
-08. The Huntsman
-09. Things Are Changing in Storybrooke
-10. Cinderella(   Читать дальше...   )Жанр: OSTПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B54EFBCF7F05C5481C5602DF0701F7EF29E0ADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602115   (997585) от 13.01.2013
-
-Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Arrow Chamber 11 [00:08:16]
-02. Ancient Arrow Chamber 12 [00:08:13]
-03. Ancient Arrow Chamber 13 [00:10:32]
-04. Ancient Arrow Chamber 14 [00:04:27]
-05. Ancient Arrow Chamber 15 [00:06:38]
-06. Ancient Arrow Chamber 16 [00:06:53]
-07. Ancient Arrow Chamber 17 [00:07:27]Жанр: Native American,New AgeПродолжительность: 01:01:21 + 00:34:47 + 00:52:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ED5D74692E07549DFCC0E97AF8851FF5C212F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580234   (997545) от 13.01.2013
-
-Wang Wei - 2 albums (2011) [MP3|320 кб/с]<New age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997545.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:32) 01. Because Of Love
-(3:04) 02. Powder
-(3:29) 03. Morning Please Don't Come
-(4:32) 04. Better Not To See Again
-(3:51) 05. Forever Beautiful
-(3:32) 06. Loving Embrace
-(4:09) 07. Love Letter
-(3:35) 08. Amour
-(3:47) 09. A Heart On Fire
-(3:52) 10. 23 Seconds, 32 Years(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B7544CBB09609ACCED9E4A42F2BE7B147E84D66
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,264 @@
+###  Публикация: 991368   (906189) от 28.02.2016
+
+VA - Клубная дискотека. Тусим все вместе (2016) [MP3|320 кб/с] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906189.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ralph Good & Polina Griffith Vs. Borgeous & Mike Hawkins - Sos (Dima Zago Mash)
+02. Dissident Feat. Arthur Ham - Here I Am (Original Mix)
+03. Wiz Khalifa - See You Again (Feat. Charlie Puth)
+04. James Silk - Talk Dirty (Michael Mandal Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:51:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623533E6B3079740008EB1964A1E78039AACC7FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991493   (905896) от 28.02.2016
+
+VA - 100 Hits Remix DFM (2016) [MP3|320 кб/с] <Remix, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905896.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Redfoo vs DJ Favorite Mr. Romano & DJ Pitchugin - New Thang (DJ GRishin Mash Up)
+002. Мот - День и ночь (Zarubin & Chippon Remix)
+003. Mc Joe, The Vanillas - Only Love (A.R. Mix)
+004. Rich-Art, Da Rave, IYLTD - Hear You Say (Alex Menco Remix)(   Читать дальше...   )Жанр: Remix, Club, DanceПродолжительность: 06:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113379910515CDB309DC99AF852CF406BCB3E5B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368995   (905697) от 22.03.2020
+
+VA - Rhythmic Funk (2020) [MP3|320 Kbps] <Funk, Easy Listening, Funky Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905697.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Heidi B - Mr. Fly (Cristian Poow Instrumental)
+002. Inusa Dawuda - Love Criminal (Mota Remix)
+003. U.K. - Roadrunner
+004. James Reese - Let's Go(   Читать дальше...   )Жанр: Funk, Easy Listening, Funky DiscoПродолжительность: 08:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A5F946CE7B98E55C213C868F808556629D24606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368876   (905653) от 22.03.2020
+
+VA - The Official UK Top 40 Singles Chart 20.03.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SAINt JHN - Roses (Imanbek Remix)
+02. The Weeknd - Blinding Lights
+03. Aitch & AJ Tracey - Rain (feat. Tay Keith)
+04. Roddy Ricch - The Box(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71DEB5B063F2CE825F09004F55B8565973DEE773
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099296   (905319) от 01.02.2017
+
+VA - 1EDM: Funky Club House (2017) [MP3|320 Kbps] <Funky, Club, Electro, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905319.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mazza Feat. Ariel Morer - Lift Me Up (Klaas Mix Edit)
+002. Pig&Dan - Chemistry (Original Mix)
+003. Klaas Feat. Lorela - Hungover By A Dream (Club Mix Edit)
+004. Dennis Cruz - Everybody (Original Mix)(   Читать дальше...   )Жанр: Funky, Club, Electro, HouseПродолжительность: 08:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C4C13F72DBB574C9563A860A37A6F9F4EC4046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1367328   (904913) от 22.03.2020
+
+VA - Old & New Style Of Italo Disco From Ovvod7 - 2019 (01-30) (2019) [MP3|192-320 Kbps] <Italo disco, Electronic, Hi nrg, Euro disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boys Next Door - Lady Of The Night ( Maxi Version )
+02. Disco Digital - Night Sky
+03. Camouflage - The Great Commandment ( Extended Dance Mix )
+04. Avenue - The Story Of Love(   Читать дальше...   )Жанр: Italo disco, Electronic, Hi nrg, Euro discoПродолжительность: 39:52:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD48A5CD8D33DC0E71B2C3C6A1835138512E90F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099206   (904734) от 01.02.2017
+
+VA - Best Of Classic Music (2016) [MP3|320 Kbps] <Classical>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Paul Mauriat - Badinerie (Bach)  1:20
+02.  Rondo Veneziano - La Serenissima  2:11
+03.  Paul Mauriat - Minuetto  2:21
+04.  Orchester Anthony Ventura - Ballade Pour Adeline  2:27(   Читать дальше...   )Жанр: ClassicalПродолжительность: 04:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C8C384CAF3FE2505DB5D337C6307730F63554CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099544   (904216) от 01.02.2017
+
+VA - Новинки С  Разных Популярных MP3 сайтов Выпуск #57 (2017) [MP3|256~320 Kbps] <House, Pop, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904216.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Dimitri Vegas & Like Mike vs. Diplo feat. Deb's Daughter - Hey Baby (Lost Frequencies Remix)  3:19
+002.  Hardwell & Quintino - Baldadig  2:00
+003.  Monatik feat. L'One - Сон (DJ Konstantin Ozeroff & DJ Sky Radio Remix)  3:12
+004.  T-Killah & Роман Bestseller - Вася В Разносе  4:05(   Читать дальше...   )Жанр: House, Pop, Club, DanceПродолжительность: 06:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB19D1A1CF873388ECBAEA9C34A6641B9AF16638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991822   (904102) от 29.02.2016
+
+VA - 100 Hits Dance DFM (2016) [MP3|256 кб/с] <House, Pop, Dance, RNB, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904102.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Lana Del Rey - High By The Beach
+ 002 Lunchmoney Lewis - Whip It!
+ 003 One Direction - Drag Me Down
+ 004 Bryan Adams - You Belong To Me(   Читать дальше...   )Жанр: House, Pop, Dance, RNB, HouseПродолжительность: 06:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:383D343F24F5AFEDF4433E993122BC647ADE0A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992103   (902748) от 01.03.2016
 
 VA - Best Driving EDM (2016) [MP3|320 кб/с] <Progressive, Bigroom, Club>
@@ -490,273 +751,6 @@ VA - La Cabana R&B Jam Mixtape (2020) [MP3|320 Kbps] <R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC45238A6F7073308F794BFC286211A471A91E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369809   (900316) от 25.03.2020
-
-VA - не Громкие новинки недели 60 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Alexandra - Одуванчики (2:48)
-2.Ana Baston - Метеориты (4:24)
-3.Asammuell - Раненый Феникс (2:53)
-4.Bombay - Тень (2:49)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:437B858F000452FCED559ED74A59A97DCA9C4DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100495   (899938) от 04.02.2017
-
-VA - Empire Records - Dancenudisco 7 (2017) [MP3|255-320 Kbps] <Disco, Dance, Nu-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knightlore & Colin Rouge - Drowning In Your Space (Extended Mix)
-02. Free 2 Night - Under The Sun (Original Mix)
-03. Disco Sugar - Disco Roller (Milk Boys Remix)
-04. Camilo Franco - Disco(   Читать дальше...   )Жанр: Disco, Dance, Nu-DiscoПродолжительность: 01:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91E2F8BEF02B465A0AF9B0D270C440FDB269CF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100500   (899906) от 04.02.2017
-
-VA - Empire Records - Club Hit 8 (2017) [MP3|256-320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lana Del Rey - High By The Beach (Dmitriy 5Star Remix)
-02. DA BUZZ - Still Missing You (Dj Timur Giniyatov Remix)
-03. Chris Rockford - You Don't Bring Me Down (feat. Coco) (Chris Rockford & Phil Dinner Radio Edit)
-04. Charlie Puth Feat. Selena Gomez - We Don't Talk (Andrey Exx & Sharapov Radio Remix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2A73487FD0985356B972EFB173747BFB76CC633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992692   (899312) от 03.03.2016
-
-VA - Deep House Generation (2016) [MP3|320 кб/с] <Deep House, Electro, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899312.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jutty Ranx - I See You (Pretty Pink Remix)
-002. Deep Progression - Rome (5th Avenue Mix)
-003. Sigala - Sweet Lovin' (feat Bryn Christopher - House Robot remix)
-004. South Soul - Some Chords (Velvet & Deep Club Mix)(   Читать дальше...   )Жанр: Deep House, Electro, ClubПродолжительность: 13:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E85599EED662C35C73CCB1F4FB4996852AFFAD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992688   (898788) от 03.03.2016
-
-VA - Top 100 Зайцев.Нет Февраль (2016) [MP3|192-320 кб/с] <Pop, Dance, Rock, R&B, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898788.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alekseev - Пьяное Солнце (03:41)
-002. Егор Крид - Будильник (03:25)
-003. Алексей Воробьев - Она Сумасшедшая (03:07)
-004. Тимати Feat. Рекорд Оркестр - Баклажан (03:07)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 06:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6B56A1D5207FB7D21AC534638CD174AF2E5869
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637168   (898530) от 01.04.2013
-
-VA - Громче музыку! Жаркий хит (2013) [MP3|256-320 кб/с]<Dance, Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898530.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Skazka - Неоновый Свет (3:14)
-2. DJ Smash feat. Вера Брежнева - Любовь на расстоянии (Melloffon Radio Remix) (3:37)
-3. Elvira T - Все Решено (Rodion Gordin Remix Radio) (3:38)
-4. Milk & Sugar - Let the Sun Shine 2012 (Tocadisco Radio Edit) (3:13)
-5. Артур Пирожков - Красивая Песня (Dj Favorite & Dj Kristina Mailana Summer Radio Edit) (3:58)
-6. DJ Цветкoff feat. Демо - В Невесомости (Radio Mix) (3:25)
-7. Юлия Савичева - Привет, любовь моя (3:29)
-8. Driu Mc Feat. Funky & Inlite - Только Тебе (3:34)
-9. Андрей Артемьев - Твой Ангел-Хранитель (Summer Edit) (4:30)
-10. KET - U feat. DJ Space One Project - Индиго (2:53)Жанр: Dance, Club, PopПродолжительность: 06:25:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE722234B162E073D81139099AC50AE0639ADEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637775   (898187) от 01.04.2013
-
-VA - Радио Energy - NRJ HOT30 (31.03.2013) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scooter - 4 A.M.
-02. David Guetta feat. Sia - She Wolf (Falling To Pieces)
-03. DJ Smash and DJ Vengerov - Only Forward (Bobina Radio Mix)
-04. Rihanna - Diamonds(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E72C168320337B3B1D3FF9BE24FA48E795F5BF1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100866   (898027) от 05.02.2017
-
-VA - Wine Bar Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Always on My Mind
-02. Enrico Donner - Abstract Dream
-03. Cane Garden Quartet - Stay Strong
-04. Baghira - 400 Trees(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED92051633C5B9CAF0DE2C82F3991E727729BEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100798   (897709) от 05.02.2017
-
-VA - Зимний Хаус Калейдоскоп ТОП 50 (2017) [MP3|320 Kbps] <House, Deep House, Nu Disco, Tropical House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bravve Feat. Li'Raw vs. DJ Romeo & Anton Liss - Love That Goes Around [05:07]
-02. Coldplay Feat. Avicii & Syntheticsax - A Sky Full Of Stars (DJ Legran & DJ Alex Rosco Remix) [06:44]
-03. Maroon 5 Feat. Nicki Minaj - Sugar (Jack & Coke Remix) [04:23]
-04. Part Of Me Feat. Froya - Loan You My Eyes (Patrick Podage Remix) [06:44](   Читать дальше...   )Жанр: House, Deep House, Nu Disco, Tropical HouseПродолжительность: 04:07:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C06C46794652E63D3C8CBE0317F920F3F6BBE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

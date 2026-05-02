@@ -1,3 +1,81 @@
+###  Публикация: 950069   (372216) от 25.10.2015
+
+Проекты - VideoHive - Particles Logo Reveal Toolkit [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372216.jpg" />
+</div>
+
+
+###  Подробнее
+
+Маленький шаблон для создания стильного логотипа-заставки. Есть пререндеренная версия, для которой плагины не требуются. Превью и видеоурок имеются.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B005A5AF263168BB0938F62055DF2C96FBC7D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327758   (371988) от 26.09.2019
+
+VideoHive - Motorcycle Reveal - 24634902 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371988.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стильный проект для демонстрации вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B1588310D5FBE78DFC4C7C90DADBAD7E3E1E7AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327627   (371748) от 26.09.2019
+
+VideoHive - Photographers Eye Logo - 7293615 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371748.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Photographer's Eye Logo» - это промо-заставка для ваших фотоуслуг или веб-сайта. Независимо от того, есть ли у вас логотип или нет, теперь вы можете иметь видео-подпись для своего фото/видео портфолио в социальных сетях.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90F37755FBE65DDC30E6CBB9C2D34B390AB66BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322487   (371741) от 26.09.2019
 
 VideoHive - Liquid Gold Logo - 10914676 [AEP]
@@ -606,86 +684,6 @@ Valentines Heart Logo Reveal создание логотипа из сердца
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB5DB72A0B4DAA5EE0C188F84188B88CD5369008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071237   (361084) от 09.11.2016
-
-Проекты - VideoHive - Fire Logo Reveal - 18514115 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361084.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fire Logo Reveal - появление вашего логотипа на фоне огненного круга.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A2AFCD1FDE3547C773B1B53867A645CED13DE3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951718   (360530) от 30.10.2015
-
-Проекты - VideoHive - Clean and Simple Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B780BED62A19497F7EDB285C0C7736D2C37292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951728   (360391) от 30.10.2015
-
-Проекты - VideoHive - Logo Box [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360391.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:586F4583B39719876AC781ABFE9D63C83BD4BC70
 ```
 
 https://mybot314.ru/tekegram_catalog/

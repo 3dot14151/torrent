@@ -1,3 +1,32 @@
+###  Публикация: 1620281   (240721) от 19.03.2023
+
+Joe Lamont - Secrets You Keep (1985) Reissue, 2010, Yesterrock [MP3|320 Kbps] <AOR, Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secrets You Keep (03:52)
+02. No Explanation (03:40)
+03. Total Breakdown (04:21)
+04. Heartbreak City (05:17)(   Читать дальше...   )Жанр: AOR, Melodic RockПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1426B585B55BE8CFA8599CB541B50FFF1E281CAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406774   (240687) от 05.09.2020
 
 Damn Fine Coffee - For Richmond or Poorer (2020) [MP3|320 Kbps] <Progressive Rock>
@@ -719,35 +748,6 @@ Def Leppard - Mirror Ball - Live & More (2011) (2 CD) [OGG Vorbis|484 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C9FBA8C9422F7BE3705F3E501A5D21377BC7854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580595   (238168) от 02.10.2022
-
-Def Leppard - The Early Years 79 - 81 (2020) (5 CD), Reissue, Remastered, 2020, UMC [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Brigade
-02. Hello America
-03. Sorrow Is A Woman
-04. It Could Be You(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 04:25:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C441DB505805C522DD8906ABE941794932408FC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

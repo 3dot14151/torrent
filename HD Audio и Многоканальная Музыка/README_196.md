@@ -1,3 +1,176 @@
+###  Публикация: 1789451   (68204) от 06.04.2025
+
+Luna Kills - Deathmatch (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt. Metal, Electronic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. love u [00:03:21]
+02. LEECH [00:03:53]
+03. SADIST [00:03:39]
+04. sugar rush [00:03:08](   Читать дальше...   )Жанр: Alt. Metal, Electronic RockПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EDDBE77C75535CDDCE76DD67AEBCDE623610F55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789688   (68203) от 06.04.2025
+
+Sirens - In Goat We Trust (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – In Goat We Trust
+02 – End Eden
+03 – Fading Time
+04 – Promises in the Dark(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB132AB24CC128CF8CF7BB31A612682CF253DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789687   (68202) от 06.04.2025
+
+Nightwish - Bye Bye Beautiful (2008) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Beautiful
+02. The Poet and the Pendulum (Demo Version)
+03. EscapistЖанр: Symphonic Power MetalПродолжительность: 00:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECDEBF2F9C9068A3E0529E52C240EB509F9B7486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789433   (68201) от 06.04.2025
+
+Benediction - Ravage Of Empires (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Carrion Harvest (3:25)
+02. Beyond the Veil (of the Grey Mare) (5:15)
+03. Genesis Chamber (4:11)
+04. Deviant Spine (4:48)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:523B9676BF4EDE7E7B02AB9B9B9FBFCEC4E75F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789441   (68199) от 06.04.2025
+
+Savage Master - Dark & Dangerous (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Red Candles (1:04)
+02. Warriors Call (3:12)
+03. Black Rider (2:56)
+04. The Edge of Evil (3:51)(   Читать дальше...   )Жанр: Heavy Metal, Symphonic MetalПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB84D985D5E46BBB0F68B3FFCEAB095F57359D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789945   (68198) от 06.04.2025
+
+Bright Light Bright Light - Enjoy Youth (2024) Enjoy More: Deluxe Version, 2025, YSKWN! [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electropop, Synth-pop, Dance-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – You Want My …
+02 – Snap! (feat. Berri)
+03 – Revived
+04 – Every Emotion (feat. Ultra Nate)(   Читать дальше...   )Жанр: Electropop, Synth-pop, Dance-popПродолжительность: 01:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80AE7687EC0424F2A6AA14C50FC081B8EFB225AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789495   (68197) от 06.04.2025
 
 Grace VanderWaal - Childstar (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
@@ -569,180 +742,6 @@ Bellwether Breaks - Prove It To Me (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0AE322F30238537B9BAE148238D0FFDAC598A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790654   (68021) от 10.04.2025
-
-Dave Mason - A Shade Of Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Joe Bonamassa - Use It, Or Lose It (4:08)
-02.  Come Home In My Kitchen (3:00)
-03.  MICHAEL MCDONALD - It's Just You And Me (3:13)
-04.  Cocaine Blues (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74EE5B31790CCA68E16C849DA0074CB5B2EC0B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790747   (68016) от 10.04.2025
-
-Nicolas Santana - Bathe In The Sun (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Dystopia (4:15)
-02. Non-Existence (4:03)
-03. You Don't Need Me Anymore (4:31)
-04. I'm Not Sad For Your Departure (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CDC6FDF806B74B4FDFBE82DB3FF529B33CBBE50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790727   (68009) от 10.04.2025
-
-FeProject - Love Changes The World (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Changes The World (4:16)
-02. The Option (3:41)
-03. Parallel (4:28)
-04. Believe (4:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5F89065D709EFB308E4B50D5857E3403199294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790742   (68008) от 10.04.2025
-
-Marvin J. Galaxy - Mild Revelation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mild Revelation (2:44)
-02. Plastic Roof (2:44)
-03. Shame (2:44)
-04. Your Grey Wounds (2:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81D287C8DE1DF4191769A948E795C453649ACAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790741   (68007) от 10.04.2025
-
-Liam Harter Leao - Settle in Chaos (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Settle in Chaos 2 (4:00)
-02. Settle in Chaos (2:54)
-03. I Can't Save You (2:58)
-04. I Know You Can't Break My Heart But I'll Shatter Yours (3:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5937393D2640627515045D7EAF889D11E68C4CF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790725   (68006) от 10.04.2025
-
-Donatas Petreikis - Northern Dream (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alaus Alaus (8:49)
-02. Halling (6:04)
-03. Hargalaten (6:08)
-04. Kalevalainen Runosavelma (6:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED97F9735D5708D50EA7300465EE19E751F7D700
 ```
 
 https://mybot314.ru/tekegram_catalog/

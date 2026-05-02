@@ -1,3 +1,33 @@
+###  Публикация: 991780   (904032) от 29.02.2016
+
+Pascal Roge - Debussy: Clair de lune (1978 - 1981) VIRTUOSO, 2013, Decca [FLAC|Lossless|tracks + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904032.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Suite bergamasque, состоящая из четырех частей, является одним из самых известных фортепианных сюит французского композитора Клода Дебюсси. Мелодии сюиты навеяны неуклюжими деревенскими танцами, которые присущи уроженцам Бергамо в Италии. Жители этого городка слыли очень неловкими и их манеры и танец Bergomask ассоциируется с клоунами или шутовством.
+Самой известной (   Читать дальше...   )01. Clair de lune (Suite bergamasque)  (5:34)
+02. La fille aux cheveux de lin (Preludes - Book 1)  (2:30)
+03. La cathedrale engloutie (Preludes - Book 1)  (6:29)
+04. Minstrels (Preludes - Book 1)  (2:19)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1DDF113A246D0FF840258BDC8D950ADB611CD4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099737   (903069) от 02.02.2017
 
 Emika - Melanfonie (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Electronic, Classical, Orchestral>
@@ -719,35 +749,6 @@ Anna Netrebko, Rolando Villazon, Thomas Hampson - Violetta. Arias And Duets From
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99BE35C7E3943570C1677B8D68F4437C2E34A66A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992227   (900649) от 02.03.2016
-
-Debussy & Ravel - Monique Haas (2007) 6CD Box Set [FLAC|Lossless|tracks + .cue] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danse Bohemienne (1:55)
-02. Deux Arabesques: No.1 (3:49)
-03. Arabesque No.2 (3:38)
-04. Reverie (4:27)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 07:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0855311769D6A6821AB67B13F324537953FA19
 ```
 
 https://mybot314.ru/tekegram_catalog/

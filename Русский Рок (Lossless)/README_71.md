@@ -1,3 +1,32 @@
+###  Публикация: 1822147   (100847) от 05.10.2025
+
+Адаптация Пчёл - Остановка Май (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По условиям любви [00:03:19]
+02. Панама [00:03:16]
+03. Я звонил и узнавал [00:04:09]
+04. Улица Есенина [00:04:03](   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8620F816DC10110CCDC037953EA84CD6C4B6EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768065   (100703) от 27.12.2024
 
 Аэдра - 2 Альбома (2008 - 2010) [FLAC|Lossless|tracks + .cue] <Heavy Power Metal, Modern Metal>
@@ -805,35 +834,6 @@ https://mybot314.ru/tekegram_catalog/
 ###  Подробнее
 
 Жанр: Rock / JazzПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 446374   (73977) от 04.02.2012
-
-Чичерина - Большая российская музыкальная энциклопедия (2001) [FLAC|Lossless]<Rock / PopRock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Жара
-02 - Майские дожди
-03 - Кукла
-04 - 40000 км.(   Читать дальше...   )Жанр: Rock / PopRockПродолжительность: 01:18:28
 
 ## Скачать торент
 ```bash

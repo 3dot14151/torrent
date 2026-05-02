@@ -1,3 +1,61 @@
+###  Публикация: 1283108   (741239) от 15.02.2019
+
+John Coltrane - Jazz Classics (1959, 1960) 2006, Flashback [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giant Steps [4:46]
+02. Naima [4:22]
+03. My Shining Hour [4:52]
+04. Central Park West [4:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14F1E0EE2177A5AE2E3FDDDD81130F505F76A49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282874   (741238) от 15.02.2019
+
+Carmen McRae - You're Lookin' At Me (1983) 1986, King Record [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm an Errand Girl for Rhythm [3:33]
+02. Beautiful Moons Ago [3:11]
+03. The Frim Fram Sauce [3:59]
+04. Come in out of the Rain [3:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F823DDDCD4C255CF4EF58CA92AFA4BCA52E5B98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282859   (741237) от 15.02.2019
 
 Count Basie - Basie Boogie (1959) 1989, Jazz Hour [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -687,64 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D718549C7D31596CB6D51B412416A81C2870FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397517   (739910) от 21.07.2020
-
-Cal Tjader - Four Classic Albums (1955 - 1959) 2018, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Afro-Cuban Jazz, Cool, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739910.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Moten Swing [4:05]
-02. I've Never Been In Love Before [2:35]
-03. There Will Never Be Another You [5:08](   Читать дальше...   )Жанр: Afro-Cuban Jazz, Cool, Latin JazzПродолжительность: 02:34:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04E79992CD829C6D610579871D7417CD3C72114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397522   (739900) от 21.07.2020
-
-Nat King Cole - The Quintessence, Vol.2: New York - Hollywood (1944 - 1946) 1998, 2CD, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739900.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Candy [2:13]
-02. You're Nobody 'Til Somebody Loves You [2:51]
-03. Don't Blame Me [3:25](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Piano JazzПродолжительность: 02:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50A62CF4BB83F32D68371FC2052D4CEF9FE91DB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,143 @@
+###  Публикация: 599958   (999147) от 07.01.2013
+
+VA - Союз 51 (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Михаил Бублик - Будет Светло
+ 02. Dj Smash feat. Вера Брежнева - Любовь на расстоянии
+ 03. Группа «Руки вверх» - Я тебя люблю
+ 04. Ева Польна - Весь мир на ладони
+ 05. Группа "Достучаться До Небес" - Отпусти меня
+ 06. Елка – Хочу
+ 07. Dan Balan– Люби
+ 08. "Винтаж" & ChinKong - Свежая вода
+ 09. Нюша – Воспоминание
+ 10. Иван Дорн - Бигуди(   Читать дальше...   )Жанр: PopПродолжительность: 1:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9BD3D17692A41A5202EEF9BEC735F9DB02E653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600315   (998972) от 08.01.2013
+
+VA - Tropiques Dancefloor 2013 (2012) [MP3|320 кб/с]<Dance, Pop,Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998972.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. DJ Ken - DJ Ken Pr sente Dancehall Party 4:13
+2. Lylloo (Feat. Matt Houston) - Tu Y Yo 3:04
+3. Le la Chicot - Lov Intas 4:00
+4. Marvin - Sans Toi 4:06
+5. Colonel Reyel - Toi Moi 3:26
+6. Moussier Tombola - Logobitombo (Corde Sauter) 3:31
+7. Milca (Feat. Passi) - La Vie Va Donner 4:13
+8. Kalash (Feat. Lieutenant) - Pran Pi 3:14
+9. Ls - Jet T oublierai 4:17
+10. Dj Jairo - Kalin 4:13(   Читать дальше...   )Жанр: Dance, Pop,ClubПродолжительность: 01:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04C5274007D51EBE1528FBF5674F89862615945
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600300   (998843) от 08.01.2013
+
+VA - Gangnam Style Hits (2013) [MP3|320 кб/с]<Dance, Club, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998843.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Psy - Gangnam Style (3:39)
+2. Scissor Sisters - Only the Horses (3:42)
+3. Br!k Ft Philly - Get It Poping (Luis Gutierrez Remix) (3:42)
+4. Federico Seven Feat Marti Caos - Night Dreams (Radio Mix) (3:59)
+5. Asaf Avidan & the Mojos - Reckoning Song (Wankelmut Remix) (3:30)
+6. Kyota - Nemo (Original Mix) (6:54)
+7. Andu Angelo Feat Rares & Joshua - Fly With You (Original Mix) (3:40)
+8. Ray Burnz - Fck The Club (Club Mix) (9:18)
+9. Calabria Vs Rob Estell - Nature (Club Mix) (4:41)
+10. Dima Koch - Eurythmic Hook (Original Mix) (5:10)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 05:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C3A075F5F152DE43A9F760C6484A27A64D173C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600897   (998401) от 10.01.2013
+
+VA - Русский хитовый взрыв №3 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 5sta Family - Без ума
+02. Бурановские Бабушки - Party
+03. Indira - Я буду верить
+04. Тамерлан И Алена Омаргалиева - Лондон
+05. DAS feat. Лера Туманова - Чувствовать Пульс
+06. Ирина Дубцова - Что тебе я сделала
+07. Евгения Поликарпова - Неважно
+08. Нюша - Queen Of The Night
+09. Глюкоза И Макс Барских - Адреналин
+10. D.Lemma - Лирика(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:405C5277A5B946DFA2A558FC7738A8B49DA16F0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601828   (998108) от 11.01.2013
 
 VA - Radio Italia 30 Anni (3CD) (2012) [MP3|320 кб/с]<pop>
@@ -761,146 +901,6 @@ VA - Радио Шторм - Русский Шторм - 85 (2013) [MP3|128-320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7052E521515C502F7617D25F7EC4C713211648D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608740   (992290) от 27.01.2013
-
-VA-Зимний марафон DFM №22 (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ночной Патруль - Ты у меня одна такая (DJ V1t & DJ Johnny Clash Remix)
- 02 DJ Jim & Extasy Project feat. Timo - Very Good (Radio Mix)
- 03 Юлия Волкова - Давай Закрутим Землю (Dj Artem Holodin Short Mix)
- 04 Xonia - Remember (Radio Edit)
- 05 Dennis Cartier & Mc Sherlock - That Feeling (Radio Edit)
- 06 Laselva Feat. Angel - Your Life (Video Edit)
- 07 Данко - Московская ночь (Alex Grand and Glazunov Remix)
- 08 Aksioma Project - Boom Boom! (Original Mix)
- 09 Matreshka Gilrs - Медведица (DJ AFFecta & DJ Natasha Baccardi Radio Edit)
- 10 Danceboy Vs. Cary August - Drive By (Tale. Dutch Edit)(   Читать дальше...   )Жанр: PopПродолжительность: 05:23:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:993BD01F5C69AF5A4652FB8CCF7D0B9E124F7A5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608780   (992259) от 27.01.2013
-
-VA - Радио Шторм - NeРусский Шторм - 86 (2013) [MP3|128-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akces - I Feel Lucky (Radio Edit)
-02. Akon - That Na Na
-03. Alex Clare - Too Close (Slider & Magnit Remix)
-04. Alex Gaudino feat. Jrdn - Playing With My Heart (Radio Edit)
-05. Angeliya - Love Is Life
-06. Armin Van Buuren feat. Fiora - Waiting For The Night (Radio Edit)
-07. Arsenie - New Bang Bang
-08. Ask Embla - I Fell In Love
-09. Belinda - En La Obscuridad
-10. Cascada - GloriousЖанр: Pop, DanceПродолжительность: 02:25:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4CEFC4DC744E98C9049A7718BE60EB957AC72D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608543   (992212) от 27.01.2013
-
-VA - Зарубежный чарт TOP 100 German (2013) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lenka - Everything At Once
-02. Lana Del Rey - Summertime Sadness
-03. Chris Brown - Don't Judge Me
-04. Loreen - Euphoria
-05. Kesha - Die Young
-06. Andreas Gabalier - I Sing A Liad Für Di
-07. Labrinth - Express Yourself
-08. David Bowie - Where Are We Now!
-09. Otto Knows - Million Voices
-10. Flo Rida - I Cry(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F662AC6A44139081DD02D747DCAD2A6397F3D16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607260   (991923) от 27.01.2013
-
-VA - Исаак Шварц. Песенка Верещагина (Лучшие песни, романсы и музыка из кинофильмов) (2003) [MP3|320 кб/с]<поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ваше благородие, госпожа удача! (к/ф "Белое солнце пустыни", исп. П.Луспекаев)
-02 Соломенная шляпка (к/ф "Соломенная шляпка", исп. А.Миронов)
-03 Песенка об утраченных надеждах (к/ф "Соломенная шляпка", исп. Л.Гурченко, З.Гердт)
-04 Песенка влюбленных (к/ф "Соломенная шляпка", исп. Е.Ветлова, А.Колпашников)
-05 Женюсь (к/ф "Соломенная шляпка", исп. А. Миронов)
-06 Песенка менестрелей (к/ф "Соломенная шляпка", исп. Е.Ветлова, А.Колпашников)
-07 Прелюдия (к/ф "Мелодии белой ночи", исп. Симфонический оркестр ГАБТ СССР, дир. А.Лазарев)
-08 Прогулка по ночному городу (к/ф "Мелодии белой ночи", исп. Симфонический оркестр ГАБТ СССР, дир. А.Лазарев)
-09 Песенка кавалергарда (к/ф "Звезда пленительного счастья", исп. В.Качан)
-10 Песня Минского (к/ф "Станционный смотритель", исп. Н.Михалков)(   Читать дальше...   )Жанр: попПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA95EAF0FF4395D85B4335BC6DE92F4533EF291F
 ```
 
 https://mybot314.ru/tekegram_catalog/

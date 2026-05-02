@@ -1,3 +1,177 @@
+###  Публикация: 1619837   (61093) от 01.04.2024
+
+Sum-41 - Studio Albums (9 releases) (2000-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sum 41 — канадская рок-группа из города Эйджакс, Онтарио. Была образована в 1996 году2000 - Half Hour Of Power (EP)
+2001 - All Killer, No Filler
+2002 - Does This Look Infected
+2004 - ChuckЖанр: Punk RockПродолжительность: 07:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BAC64F7915A47CE9989B7080A05AD955659E633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1712205   (61012) от 02.04.2024
+
+Dire Straits - On Every Street (1991) SACD, Remastered, 2024, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Взятый из оригинальных мастер-лент и помещенный в мини-упаковку для пластинок, гибридный SACD On Every Street от Mobile Fidelity представляет альбом таким, каким он всегда предназначался для восприятия: в аудиофильском звуке эталонного уровня. Записанный в AIR Studios в Лондоне и спродюсированный лидером Dire Straits Марком Нопфлером, он включает в себя все звуковые (   Читать дальше...   )01. Calling Elvis 6:26
+02. On Every Street 5:01
+03. When It Comes To You 5:00
+04. Fade To Black 3:47(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D631088071F9B4D3B555516DC6F3A65A7B3D1237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556221   (60749) от 04.04.2024
+
+Bad Wolves - Studio Albums (4 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal, Djent, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60749.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bad Wolves — американская супер-группа, играющая в стиле грув-метал. Группа образована в 2017 году и стала наиболее известна исполнением кавер-версии хита The Cranberries 1994 года «Zombie». По мнению самих участников, их стиль, это рок при пониженном строе гитар с элементами джента.2018 - Disobey
+2019 - N.A.T.I.O.N.
+2021 - Dear Monsters
+2023 - Die About It(   Читать дальше...   )Жанр: Groove Metal, Djent, MetalcoreПродолжительность: 04:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498E04B8F6D9FED231EC3F098F4041C010A18544
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709650   (60368) от 08.04.2024
+
+Guano Apes (& Sandra Nasic) - Studio Albums (9 releases) (1997-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock, Nu Metal, Funk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Guano Apes — альтернативный рок-квартет из Гёттингена, Германия, образованный в 1994 году.1997 - Proud Like A God
+2001 - Don't Give Me Names
+2003 - Walking On A Thin Line
+2004 - Planet Of The ApesЖанр: Alternative Rock, Nu Metal, Funk MetalПродолжительность: 08:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4460A371B31DC2FF4D462F7C943A889DEDF07AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519346   (60091) от 11.04.2024
+
+Five Finger Death Punch (5FDP; FFDP) - Studio Albums (11 releases) (2007-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Five Finger Death Punch  (с англ. — «Смертельный удар пятью пальцами», сокращённо 5FDP и FFDP) — американская грув-метал-группа, образованная в 2005 году в Лос-Анджелесе, Калифорния, Золтаном Батори, гитаристом венгерского происхождения, в прошлом — басиста U.P.O. Кроме Батори в состав группы входят бывший вокалист2007 - The Way Of The Fist
+2009 - War Is The Answer
+2011 - American Capitalist
+2013 - The Wrong Side of Heaven and The Righteous Side of Hell(   Читать дальше...   )Жанр: Groove metalПродолжительность: 10:31:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FA8ECD7604578E00BFA8BA1886F0A447926B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715361   (60016) от 11.04.2024
+
+Mark Knopfler - One Deep River (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Pairs Of Hands (4:05)
+02. Ahead Of The Game (3:56)
+03. Smart Money (4:27)
+04. Scavengers Yard (4:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E63A1708C568094E0BFBACE037333B5FA8FD41C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716321   (59611) от 15.04.2024
 
 Nolan Sisters - The Nolan Sisters (1979) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Pop, Disco>
@@ -570,181 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:931E51CA7FA2FAEF636F30E8CCDD6D6D622150CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722814   (56694) от 13.05.2024
-
-Pussycat - Wet Day In September (1978) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56694.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Wet Day In September
-A2 Hey Joe
-A3 It's The Same Old Song
-A4 Love In September(   Читать дальше...   )Жанр: Electronic, DiscoПродолжительность: Vinyl, LP, Album, EMI – EMCE 1047, India
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB157040B540D37F5B62DF756513917993D8AE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638278   (56449) от 15.05.2024
-
-Freedom Call - Studio Albums (12 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56449.jpg" />
-</div>
-
-
-###  Подробнее
-
-Freedom Call — немецкая пауэр-метал группа, основанная в 1998 году.1999 - Stairway To Fairyland
-1999 - Taragon (EP)
-2001 - Crystal Empire
-2002 - EternityЖанр: Power MetalПродолжительность: 11:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B3B1A5274A55E651DDADB5A18900732D8021049
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630232   (56341) от 16.05.2024
-
-Stream of Passion - Studio Albums (6 releases) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stream of Passion — мексикано-нидерландская симфоник-/готик-метал-группа, образованная в 2005 году Арьеном Антони Люкассеном и Марселой Бовио.2005 - Embrace the Storm
-2006 - Out in the Real World (EP)
-2009 - The Flame Within
-2011 - Darker DaysЖанр: Progressive/Symphonic MetalПродолжительность: 04:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F22229E4993B3E7DFA444B9CEDEE70F8DDD79C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541970   (56281) от 17.05.2024
-
-Pain (Peter Tagtgren) - Studio Albums (9 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic/Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pain — индастриал-метал проект шведского музыканта, основателя Hypocrisy — Петера Тэгтгрена.1997 - Pain
-2000 - Rebirth
-2002 - Nothing Remains The Same
-2005 - Dancing With The DeadЖанр: Electronic/Industrial MetalПродолжительность: 08:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C2E6FFC9F140FBCE4714F4EE16A51294ABB2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528857   (56279) от 17.05.2024
-
-Fear Factory - Studio Albums (11 releases) (1992-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death/Groove/Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fear Factory — американская метал-группа из Лос-Анджелеса.
-Группа сформировалась в 1989 году. За время своей музыкальной карьеры, музыканты сумели выработать собственное оригинальное звучание представляющее собой сочетание индастриал-метала и грув-метала.1992 - Soul Of A New Machine
-1995 - Demanufacture
-1998 - Obsolete
-2001 - Digimortal(   Читать дальше...   )Жанр: Death/Groove/Industrial MetalПродолжительность: 11:14:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02323E13F89423B9D40860E54EC6708E63CB9801
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723909   (56270) от 17.05.2024
-
-Billie Eilish - HIT ME HARD AND SOFT (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56270.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:40] 01. SKINNY
-[3:00] 02. LUNCH
-[5:04] 03. CHIHIRO
-[3:31] 04. BIRDS OF A FEATHER(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56C8295977595D1D321BBDEE78138C65A59DA258
 ```
 
 https://mybot314.ru/tekegram_catalog/

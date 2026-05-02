@@ -1,3 +1,117 @@
+###  Публикация: 1636630   (232853) от 01.06.2023
+
+National Nightmare - High Life (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Witch (4:50)
+02. Sold My Soul to the Night (3:24)
+03. In the Beginning of Time (3:27)
+04. Just Another Nightmare (3:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E2D4E1C14A44EAAB770A42AE58E9ACE211779F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636882   (232832) от 01.06.2023
+
+Rusty Bonez - Brainworm (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nowhere (3:39)
+02. Drive (4:09)
+03. If (4:00)
+04. Rain (4:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B430142FC09E2E04701E34D2AB9CE921B4A359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645509   (232815) от 09.07.2023
+
+King Weird - 2 Albums (2021-2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Sludge, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232815.jpg" />
+</div>
+
+
+###  Подробнее
+
+2021 - King Weird
+2023 - Lucid DreamЖанр: Heavy, Sludge, Prog RockПродолжительность: 2 CD, 01:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3334B82250392D08C5213D62BF343A0F7F694A6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639515   (232783) от 13.06.2023
+
+Voodoo Trees - Ego Death (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Garage, Bluesy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Dead? [00:05:41]
+02. The Woods [00:05:54]
+03. Tick Tock [00:04:49]
+04. Egolude [00:03:37](   Читать дальше...   )Жанр: Heavy Rock, Stoner, Garage, BluesyПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2982CBB9A20B253A51CCC1EACC524EC2550437C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606452   (232776) от 22.01.2023
 
 Legato Vibe - Legato Vibe (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +743,6 @@ The Dust Coda - Loco Paradise (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3A902904555812E4101C49FDE1E2EF572C5E627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645054   (231917) от 08.07.2023
-
-Bangalore Choir - Center Mass (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One Night (Live, Hamburg, 2022) [00:04:10]
-02. Loaded Gun (Live, Hamburg, 2022) [00:04:25]
-03. Slippin' Away (Live, Hamburg, 2022) [00:04:39]
-04. Victim Of The Night (Live, Hamburg, 2022) [00:04:40](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDBD3C8CBC9053E0A3FD3F44305E121FAD23F05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1643376   (231822) от 01.07.2023
-
-Supremacy - Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231822.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Passing Through
-2. Mr. Big Shot
-3. My Time
-4. Dance For Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3A47A21110E3C42B704C955F6395101C00B6B14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1647455   (231688) от 18.07.2023
-
-Avi Rosenfeld - Lions II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Param Dushpara (3:41)
-02. Thunder in the Sky (4:15)
-03. Don't Need No Sad News Story (4:12)
-04. Once He Cried to the Moon (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD258D5B0F5B0D96B419C49EB71A94DB34016600
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646633   (231658) от 16.07.2023
-
-Khalil Turk & Friends - Turkish Delight - Volume 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No One Knows Your Name [00:04:19]
-02. Come On [00:04:06]
-03. Destiny [00:04:43]
-04. I Am Ready [00:05:03](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:52:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8300BB19C38941759E1DC66A93F50D01565E76E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

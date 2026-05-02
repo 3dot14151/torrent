@@ -1,3 +1,29 @@
+###  Публикация: 841815   (329945) от 16.11.2014
+
+Проекты - VideoHive - pop art - 125141 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329945.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд-шоу в ретро стиле.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09A25E4F08FB9BBA0023A5F3F1AC779DB8B5C5EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 842352   (328128) от 18.11.2014
 
 VideoHive - Silvery - 141490 [AEP]
@@ -654,32 +680,6 @@ VideoHive - Sweet Memories - 5669408 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD4A2A4C0315A88A063D21566C6DAE7724A1A1CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331736   (320218) от 17.10.2019
-
-VideoHive - Photo Slideshow - 22412516 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Slideshow - красивый и чистый проект AE с изображениями, видеофайлами и заголовками. Просто вставьте свои фотографии/видеоклипы и поменяйте заголовки - теперь все готово к рендерингу!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1712F6A5E68AA7327D69C699CDCCACC5237EBB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

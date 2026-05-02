@@ -1,3 +1,32 @@
+###  Публикация: 1011247   (797031) от 27.04.2016
+
+Forteba - Stereoform (2012) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Magnetik Fluid
+03. Breath
+04. Linoleum(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A370CD87ED04236B7364C0573FED4D478A587C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011287   (797022) от 27.04.2016
 
 Sieren - Transients of Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Ambient>
@@ -708,35 +737,6 @@ NSDOS - Discography 5 Releases (2013-2018) [FLAC|Lossless|WEB-DL|tracks] <Techno
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C359716CED1F0C7B83B8C4CEBDA736C72770013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274316   (794163) от 06.01.2019
-
-Tender H - Sentido Oasis (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You & Me (05:52)
-02. Blue Pools (05:32)
-03. Play With Dolphin (06:08)
-04. Night Movement (06:18)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6481989FB325B9FDFBCAC0DDAC5019366EB45F40
 ```
 
 https://mybot314.ru/tekegram_catalog/

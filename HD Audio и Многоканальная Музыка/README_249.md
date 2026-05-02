@@ -1,3 +1,177 @@
+###  Публикация: 1801283   (15142) от 09.06.2025
+
+Gina Sicilia - Bring It On Home: A Tribute To Sam Cooke (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shake (2:44)
+02.  Bring It On Home to Me (3:59)
+03.  Another Saturday Night (2:37)
+04.  That's Where It's At (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457502B29F9A10031881310C0FE68B679ECDDC18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801246   (15141) от 09.06.2025
+
+Chris Ramey - Children's Songs for Adults Only (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Thank You Mr. Gov’t (3:34)
+02.  Do You Like My Cologne? (3:33)
+03.  Perfectly (4:17)
+04.  I Took A Pill (4:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2860A1796D7364335D4AC19AE04A3280CD1781A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801292   (15139) от 09.06.2025
+
+Lemon Generation - Music for Cowboys (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Space Cowboy (4:13)
+02.  Cosmic Funeral (4:14)
+03.  My Little Cowboy (3:26)
+04.  Peanut Planet (2:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5067DBEC98CF1361CDD9834D8C067B45082276DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801294   (15138) от 09.06.2025
+
+LeSabre - LeAlbum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Fever (3:11)
+02.  The Circling (3:24)
+03.  The Black Sheep (2:30)
+04.  The Highness (2:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28FDADEEE9E9968EB2CCAF69D7FDB67DD44208E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801286   (15137) от 09.06.2025
+
+Hotel Draw - Spirit Come Spirit Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When You Go (4:26)
+02.  Milk & Honey (4:03)
+03.  Whiskey on the Workbench (2:25)
+04.  Fluorescent Lights (3:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C6BC9F96AED5D36093C6E22EC485BFEA3DC071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801291   (15136) от 09.06.2025
+
+J.T. & The Plastic Garden Band - The 25th Hour (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The 25th Hour (2:52)
+02.  Chains and Mercy (3:33)
+03.  Devil Woman (3:12)
+04.  Hold Me In Your Hollow Hands (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7022234AA0C213AC889D292A24949934D0244BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801267   (15132) от 09.06.2025
 
 Seth MacFarlane - Lush Life: The Lost Sinatra Arrangements (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz, Big Band>
@@ -564,180 +738,6 @@ Neil Young + Promise of the Real - The Visitor (2017) [FLAC 24/192|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:499B51E0BBD31D1BC9EB2B94EA589388CEF6347D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802410   (14407) от 16.06.2025
-
-Girls Aloud - The Girls Aloud Show (Live) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untouchable (Live) [00:04:56]
-02. The Show (Live) [00:03:42]
-03. Something New (Live) [00:04:47]
-04. Love Machine (Live) [00:03:24](   Читать дальше...   )Жанр: PopПродолжительность: 01:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BC74E61E471745CFB5D10093C02AAF36E3FB33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802406   (14406) от 16.06.2025
-
-Brandee Younger - Gadabout Season (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz, Harp>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reckoning [00:02:05]
-02. End Means [00:04:12]
-03. Gadabout Season [00:04:45]
-04. Breaking Point [00:02:43](   Читать дальше...   )Жанр: Contemporary Jazz, HarpПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45CAAF7C4B53FF096B0DE3D4E3F9153340D16621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802404   (14399) от 16.06.2025
-
-The Blue Stones - METRO (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Blues Rock, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metro 47 [00:00:50]
-02. Your Master [00:03:03]
-03. Scared of the Dark [00:03:07]
-04. Come Apart [00:03:02](   Читать дальше...   )Жанр: Rock, Blues Rock, SoulПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFC9E5DFFC23A1526E7D651A0A4A6A8A0D6B8EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702422   (14222) от 18.06.2025
-
-Paul McCartney (Пол Маккартни) - Снова в СССР (1989) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Kansas City (Jerry Leiber / Mike Stoller)
-02. Twenty Flight Rock (Eddie Cochran / Ned Fairchild)
-03. Lawdy Miss Clawdy (Lloyd Price)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50CC9DA2A3D60A720C56D60F0BA3E89F9EAF1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802999   (13990) от 20.06.2025
-
-Manowar - Kings of Metal (1988)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wheels Of Fire (04:11)
-02 - Kings Of Metal (03:44)
-03 - Heart Of Steel (05:12)
-04 - Sting Of The Bumblebee (02:49)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52DB2772D1ED42A8E523CA506A0F3D2838866EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803110   (13890) от 21.06.2025
-
-Joe Bonamassa - Trigger Finger (2025) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trigger Finger
-02. Breakthrough
-03. Shake This Ground
-04. Drive By The Exit SignЖанр: Blues RockПродолжительность: 00:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD783B489C606E1758AF41E27CDA53844E3E52E
 ```
 
 https://mybot314.ru/tekegram_catalog/

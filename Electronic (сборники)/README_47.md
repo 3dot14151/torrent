@@ -1,3 +1,64 @@
+###  Публикация: 1502842   (821337) от 18.10.2021
+
+VA - Melodic Ethnic House (2021) [MP3|320 Kbps] <House, Ethnic, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821337.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jay Haze - Room To Breathe
+002. Ivory Child - On The Seventh Day
+003. Achex & Djfd - Secrects Of Gypsy
+004. Charlotte De Cock - Chapter Three(   Читать дальше...   )Жанр: House, Ethnic, ElectroПродолжительность: 10:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86D73790BC5CF2B91EE0241CCBBE34185991E642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 314778   (821147) от 27.03.2011
+
+VA - Mega Bass: Прокачай свою систему 12 (2011) [MP3|320 kbps]<Dance, Club, Electro-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821147.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aboutblank & KLC - Magic (T.M.O. Remix) (6:54)
+2. AD Men DJ JOYinT feat. Ira Champion - Dance Hall (DJ Solovey Remix) (5:46)
+3. Adam K & Duro The Third - Daun't Kick My Bag Bitch (Original Mix) (5:43)
+4. Afrojack & Silvio Ecomo & Chuckie - Moombah (Shutterz 'Samplelicious' Bootleg) (5:34)
+5. Akon feat. Jadakiss - Freaky (3:44)
+6. Alex Seda feat. Danna Leese Routh - Let It Go (Startover) (Original Mix) (6:34)
+7. Andrew Mills - Generation 80s (Dj Fernando Lopez RMX) (5:13)(   Читать дальше...   )Жанр: Dance, Club, Electro-HouseПродолжительность: 05:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693E734B4CA62077A2A6E82B8F48E5979A81B693
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1502856   (821107) от 18.10.2021
 
 VA - Synthpop Favorite Playlist (2021) [MP3|320 Kbps] <Synthpop, Electro Pop, Dance>
@@ -687,64 +748,6 @@ VA - Lounge At The Seashore 9 (2014) [MP3|320 кб/с]<Lounge, Chill Out, Downte
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5C3B7908136F124F0B59DEA28650044CE3D8028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008409   (816116) от 18.04.2016
-
-VA - Uplifting Spring Addiction (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gateway 88 - Dark Brotherhood (Aldo Henrycho Remix) 07:21
-02. Toby Hedges - Images (Johan Vilborg Remix) 07:34
-03. Ather - Evelyn (O.B.M Notion Rmx) 07:44
-04. Dreamy - Know Thy Self (Original Mix) 08:46(   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B363BB0B69AD49EF50F90F8358EDFA090AB6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008427   (816036) от 18.04.2016
-
-VA - Resident Advisor Top 50 Charted Tracks March (2016) [MP3|320 кб/с] <Tech House, Nu-Disco, Electronica, Minimal, Tribal, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_816036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avalon Emerson - The Frontier (Original Mix) [07:35]
-02. ANNA - Odd Concept (Original Mix) [07:19]
-03. Antigone - Hiraeth (Original Mix) [06:36]
-04. Basti Grub, Natch & Dothen - Oh Baby Dance (Original Mix) [06:49](   Читать дальше...   )Жанр: Tech House, Nu-Disco, Electronica, Minimal, Tribal, TechnoПродолжительность: 05:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBC7CD469E82F5B114114637733B18327D4A1B73
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1483856   (1006518) от 16.07.2021
+
+Faserklang - Focus On Distraction (2021) Drift Deeper Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep Techno, Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equilibrium (07:24)
+ 02. Diffusion (07:44)
+ 03. Automotif (06:02)
+ 04. Mood Swing (06:57)(   Читать дальше...   )Жанр: Deep Techno, Ambient, Dub TechnoПродолжительность: 01:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A23C1B0DF903E135CD1B27CFEBF138E113239EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138540   (1006186) от 18.07.2021
 
 Lars Leonhard - Discography 42 Releases (2011-2021) BineMusic, Ultimae Records [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Deep House, Downtempo>
@@ -704,35 +733,6 @@ VA - Ushuaia Ibiza The Album: 5th Anniversary (2015) 2CD [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAB078CCA3BD234D5A00B4A00E3F9C83A0ED18E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125104   (1001359) от 13.08.2021
-
-Max Cooper - Discography 61 Releases (2008-2021) Traum Schallplatten, Fields, Mesh [FLAC|Lossless|WEB-DL|tracks] <Techno, Minimal, Tech House, IDM, Experimental, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Lukas Boysen, Sebastian Plano - A Greater Pattern (05:17)
- 02. Bing And Ruth - The How Of It Sped (05:48)
- 03. Nils Frahm - For (Max Cooper Remix) (07:06)
- 04. Bxentric - Afon (05:07)(   Читать дальше...   )Тип издания: WEBЖанр: Techno, Minimal, Tech House, IDM, Experimental, Ambient •Продолжительность: 34:39:53 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A7B7F15D11403BAF5031022FF192DC5C9C9F990
 ```
 
 https://mybot314.ru/tekegram_catalog/

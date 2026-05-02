@@ -1,228 +1,25 @@
-###  Публикация: 1802702   (65978) от 19.06.2025
+###  Публикация: 1793406   (67518) от 24.04.2025
 
-Waltari - Nations' Neurosis (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nature Rules [00:04:29]
-02. Open the Gate [00:03:25]
-03. Do You Accept? [00:03:26]
-04. Breakfast in Eiffel Tower [00:04:12](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CAFA4B2C2DDEEA220EE11BC0D703D62FBDDFD7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802846   (65977) от 19.06.2025
-
-Tardigrade Inferno - Made in Hell (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Einzug Der Gladiatoren (Live) [00:02:29]
-02. All Tardigrades Go to Hell (Live) [00:02:53]
-03. Hypnosis (Live) [00:05:34]
-04. Ringmaster Has to Die (Live) [00:04:40](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:28:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1481E46F931D336D60065FDD0549364339377520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802843   (65976) от 19.06.2025
-
-War Of Ages - Eternal (2010) 15th Anniversary Rerecorded Version, 2025, Facedown Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore, Heavy Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Collapse (Rerecorded) [00:04:05]
-02. Desire (Rerecorded) [00:02:55]
-03. Failure (Rerecorded) [00:04:31]
-04. My Resting Place (Rerecorded) [00:03:03](   Читать дальше...   )Жанр: Hardcore, Heavy Metal, MetalcoreПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B046F3CB540A5DB48963625125A77FF403DC8004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802708   (65975) от 19.06.2025
-
-Samsara Blues Experiment - 3 Albums (2011-2020) [MP3|320 Kbps] <Psychedelic Rock, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Birth [00:10:58]
-02. Massive Passive [00:06:00]
-03. Southern Sunset [00:06:46]
-04. End of Forever [00:07:55](   Читать дальше...   )Жанр: Psychedelic Rock, Stoner MetalПродолжительность: 3 CD, 02:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27A4E3FA8F8CBAE8D2FCCEB46F5D1E80A19A4518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802796   (65974) от 19.06.2025
-
-Around The World in 80 Days - Euphoria (2014) [MP3|320 Kbps] <Post-Rock, Ambient, Space-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Last War [5:40]
-02 - Shock [3:15]
-03 - Gravity [5:40]
-04 - Racing The Light [3:35](   Читать дальше...   )Жанр: Post-Rock, Ambient, Space-RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55F5C99149C1B78C0CD449FD2E21C45D596823B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802865   (65973) от 19.06.2025
-
-Rivers Of Nihil - Rivers Of Nihil (2025) [FLAC|Lossless|image + .cue] <Technical Death Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sub-Orbital Blues (04:18)
-02. Dustman (04:33)
-03. Criminals (04:32)
-04. Despair Church (06:30)(   Читать дальше...   )Жанр: Technical Death Metal, Progressive MetalПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D86C248326DD6A803EF83EC1382090CBF24D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802759   (65972) от 19.06.2025
-
-Eluveitie - Anv (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Emerge 01:10
-02. Taranoías 03:25
-03. The Prodigal Ones 03:44
-04. Ànv 02:32(   Читать дальше...   )Жанр: Melodic Death Metal, Folk MetalПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7758789FD0D3D3F9654EFC90C9EFAB2AF3D7EF45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802777   (65971) от 19.06.2025
-
-Eliane Elias - Dance Of Time (2017) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Latin Jazz>
+Yasuhiro Kohno - Princess Sayaka (1995) ASCAP Record [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65971.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67518.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. O Pato [4:19]
-02. You're Getting to Be a Habit with Me [3:52]
-03. Copacabana [5:22]
-04. Coisa Feita [5:02](   Читать дальше...   )Жанр: Vocal Jazz, Latin JazzПродолжительность: 00:56:41
+01. Autumn Leaves [16:42]
+02. Misty [9:12]
+03. In a Sentimental Mood [9:27]
+04. Softly, as in a Morning Sunrise [6:51](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:12:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:23F7BF5AB6F0104AD914DECB6006C0E7264EBDAE
+magnet:?xt=urn:btih:05FE7E70EFFF8EF1661F29C38AD31C467C8DAA60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -230,86 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802861   (65970) от 19.06.2025
+###  Публикация: 1793305   (67517) от 24.04.2025
 
-Allegaeon - The Ossuary Lens (2025) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Refraction (00:58)
-02. Chaos Theory (04:32)
-03. Driftwood (04:28)
-04. Dies Irae (03:47)(   Читать дальше...   )Жанр: Melodic Death Metal, Technical Death MetalПродолжительность: 00:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A504608C847E758F7B00E2F749E7E957162F55B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802838   (65969) от 19.06.2025
-
-VA - Sunny Day Jazz (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Peter De Girolamo - Sunny (3:48)
-02.  Lo Greco Bros Quartet - Naima (4:40)
-03.  Domenico Sanna - Fly Me to the Moon (4:18)
-04.  P. A. Jeron - Hiems (4:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:31:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE19089B5D67E76A8BC6FF25F0FE212156B1ED8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802953   (65968) от 20.06.2025
-
-DannyLux - Leyenda (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin America Pop>
+Cougar Synth - 2013 (2014) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. TRISTEZA DE LUX [00:02:48]
-02. DIME BB [00:02:40]
-03. MELANCOLÍA [00:03:49]
-04. SIRENA [00:04:13](   Читать дальше...   )Жанр: Latin America PopПродолжительность: 01:03:38
+01. Wild Inside (4:11)
+02. Retrace (3:54)
+03. Timeline (3:06)
+04. Afterglow (4:22)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 01:43:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:768F353FE2C43C033F264877F686060810A46EFB
+magnet:?xt=urn:btih:E00DD9CD93779C2E330E97DE35EC9DA68814BFEF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,27 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802909   (65967) от 20.06.2025
+###  Публикация: 1793051   (67516) от 24.04.2025
 
-Letters From The Colony - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Metal, Progressive Metal, Metalcore>
+Akrea (ex-Inner Aggression) - Studio Albums (4 releases) (2007-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Letters From The Colony - метал-группа из Бурленге, Швеция. Основана в 2010 году.2011 - Letters From The Colony
-2014 - Galax (EP)
-2018 - VignetteЖанр: Post-Metal, Progressive Metal, MetalcoreПродолжительность: 01:46:16
+Akrea - немецкая метал-группа из Эрдинга, Бавария, образована в 2004 году как "Inner Aggression". В 2008 сменила название на "Akrea". Расформирована в 2014 году.2007 - Beginning Of An Inner War (as Inner Aggression)
+2009 - Lebenslinie
+2010 - Lugenkabinett
+2013 - Stadt Der Toten TraumeЖанр: Melodic Death MetalПродолжительность: 03:28:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:336F322A182CBC9AE5FEA5FF47B910EAB0FFB082
+magnet:?xt=urn:btih:D2BBA07F5A4AD0760273008CDCF46532150F29BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,86 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802924   (65966) от 20.06.2025
+###  Публикация: 1793478   (67515) от 24.04.2025
 
-Eliane Elias - So Far So Close (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At First Sight [4:53]
-02. Bluestone [5:33]
-03. Barefoot [4:40]
-04. Nightimer [6:10](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C81368F6742641EACC855C992868EBC0C2C38B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802782   (65965) от 20.06.2025
-
-SanMinor - Дивный Новый Мир (2024) [MP3|320 Kbps] <Rap, Hip-Hop, Psychedelic>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Быть человеком
-02.Мир
-03.Любовь обесценили
-04.Дивный новый мирЖанр: Rap, Hip-Hop, PsychedelicПродолжительность: 00:10:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A4ADE4F68FADFCF5EC0C5B267217514267A1CE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803019   (65964) от 20.06.2025
-
-Bambii - Infinity Club II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass, Electronic>
+Dawn of Solace - Affliction Vortex (2025) [WavPack|32/192|image + .cue|Vinyl-Rip]<Melodic Doom, Death Metal, Gothic, Doom Metal>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65964.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. INFINITY CLUB II [00:00:24]
-02. Remember (feat. Ravyn Lenae & Scrufizzer) [00:02:45]
-03. Blue Sky (feat. LYZZA & SadBoi) [00:02:22]
-04. Mirror (feat. Jessy Lanza & Yaeji) [00:02:48](   Читать дальше...   )Жанр: Drum & Bass, ElectronicПродолжительность: 00:24:34
+A1 - Inception
+A2 - Murder
+A3 - Fortress
+A4 - Into The Light(   Читать дальше...   )Жанр: Melodic Doom, Death Metal, Gothic, Doom MetalПродолжительность: 00:39:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5F54DDB58781953FD2116C1F50F07C8119B1F4E
+magnet:?xt=urn:btih:E46DCDC5F4236174B175A743E7D6AAEAADDB6D3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,309 +114,624 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802905   (65963) от 20.06.2025
+###  Публикация: 1793463   (67514) от 24.04.2025
 
-Count Basie - The Standards (1989) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Jazz, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicago    [0:02:50.00]
-02. The Lady Is a Tramp    [0:02:56.00]
-03. Day In Day Out    [0:02:39.00]
-04. I Didn't Know What Time It Was    [0:02:14.00](   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D064E95EDE322F3393512637E0DBA131EB675273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802830   (65962) от 20.06.2025
-
-Gotham - Pictures (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude [00:02:04]
-02. Dirty Love [00:03:31]
-03. Let It Go (Extended Mix) [00:04:46]
-04. Pictures [00:04:38](   Читать дальше...   )Жанр: RockПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AB3D41484B8EBBE0D8A5569A564E2C5A844B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802980   (65961) от 20.06.2025
-
-Miles Davis - Kind of Blue (1997) CD, Album, Reissue, Remastered [FLAC|Lossless|tracks + .cue] <Jazz, Modal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So What    [0:09:25.32]
-02. Freddie Freeloader    [0:09:49.05]
-03. Blue in Green    [0:05:37.43]
-04. All Blues    [0:11:35.57](   Читать дальше...   )Жанр: JazzПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC7B638F85B5A13EE1523A846803DADA7C31A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802871   (65960) от 20.06.2025
-
-Фоны - kaleriia - Envato - Blond Hair Backgrounds - M9GVLMT [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65960.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 фонов со светлыми волосами.Формат: JPGРазрешение файлов: 5000 x 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19582F5835AD5726B2EB76A97F9E622FE42B06F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802931   (65959) от 20.06.2025
-
-Aesthetic Perfection - Closer to Human (2025) Limited Edition [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Futurepop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Human
-02 – Belong
-03 – Beautiful
-04 – Surface(   Читать дальше...   )Жанр: Dark-Electro, EBM, FuturepopПродолжительность: 01:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117C539968455639542B4D9B8D7E7AC2E86803AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802949   (65958) от 20.06.2025
-
-Soft Cell - Non-Stop Ecstatic Dancing (1981) Deluxe Edition, 2025, UMC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Electronic, Powerpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memorabilia (The Hacker 808 Remix) [00:06:39]
-02. A Man Could Get Lost (Jon Pleased Wimmin Remix) [00:05:48]
-03. Torch (MHC 2001 Remix) [00:08:42]
-04. Insecure Me (Hifi Sean Remix) [00:06:17](   Читать дальше...   )Жанр: Synthpop, Electronic, PowerpopПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AF2EADF2995779240C3824FE9E5D92979E3CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802922   (65957) от 20.06.2025
-
-Haim - I quit (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Gone
-02 – All over me
-03 – Relationships
-04 – Down to be wrong(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4E7AD9A58E34DA3D3847841EFFA6F8CC401115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802896   (65956) от 20.06.2025
-
-VA - Armin van Buuren - A State Of Trance 1230 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax – To The Ground (Matt Fax Doppelgänger Mix)
-02. ILLENIUM & HAYLA – In My Arms (KREAM Remix)
-03. Weekend Players – Into The Sun (Progressive Pick)
-04. Rivo & North – Stay Here (Leblanc Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B361D814E8B75C3763A2018032C9D881A612DA30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802952   (65955) от 20.06.2025
-
-Газета | Тайны СССР №3 (26) (февраль 2019) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание посвящено исключительно тайнам СССР. Сенсационная правда о главных событиях нашего прошлого. Тайны Кремля, секреты спецслужб, история любви знаменитых людей, великие победы и ужасные катастрофы. Секретные архивы, исторические расследования, советская мистика. Статьи издания написаны не только журналистами, но и писателями-историками и учеными.Жанр: Популярное изданиеИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877C8EEB1BF52FB184841B0F95648A021F53CD56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802872   (65954) от 20.06.2025
-
-Фоны - kaleriia - Envato - Red Hair Backgrounds - SHRLWZE [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65954.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 фонов с рыжими волосами.Формат: JPGРазрешение файлов: 5000 x 3333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C870A97AA75A1E0DDDB5C06D733A08B8A79066A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802817   (65953) от 20.06.2025
-
-Revelation - Inner Harbor (2012) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Doom Metal>
+Verheerer - Urgewalt (2025) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67514.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Inner Harbor
-02. Terribilita
-03. Rebecca at the Well
-04. Eve Separated(   Читать дальше...   )Жанр: Progressive, Doom MetalПродолжительность: 00:35:01
+01 - Onwards (00:37)
+02 - Urgewalt (05:00)
+03 - Hail Mary (08:03)
+04 - Grabenwurm (05:50)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:52:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC7D2F415FC08C746BCA7156715E78AD8FD1A73E
+magnet:?xt=urn:btih:5076ECB4921FFA317A78CC37A84F8F6DEBDE9A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793437   (67513) от 24.04.2025
+
+Epic Death - The Seer (2025) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freya's Fire
+02. The Berserker's Axe
+03. Warrior
+04. Odin the Seer(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8113C0CA04F5B7537AC0BA0FDCC44A0C72BBC898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792894   (67512) от 24.04.2025
+
+Manowar - Fighting the World (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67512.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Fighting The World
+A2 Blow Your Speakers
+A3 Carry On
+A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F9B5AA898420277A2B4579211FEC26788455A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793045   (67511) от 24.04.2025
+
+Trail Of Tears - Studio Albums (8 releases) (1998-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Symphonic/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67511.jpg" />
+</div>
+
+
+###  Подробнее
+
+Trail of Tears — норвежская метал-группа. Сформирована в 1994 году под названием Natt, в 1997 переименована в Trail of Tears и оставалась активной до распада в 2013 году. Группа была возрождена в конце 2020 года.1998 - Disclosure In Red
+2000 - Profoundemonium
+2002 - A New Dimension of Might
+2005 - Free Fall Into FearЖанр: Extreme Symphonic/Gothic MetalПродолжительность: 06:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60212CBAA7B09970029C76032C55A4B114CA5A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793461   (67510) от 24.04.2025
+
+НХЛ. Кубок Стэнли 2025 (Плей офф. 1-й раунд, 2-й матч) Монреаль Канадиенс - Вашингтон Кэпиталз (23.04.2025) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67510.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 апреля 2025, четверг. 02:00 МСК, 1/8 финала. 2-й матч. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Джейк Бренк (Детройт Лейк, США); Линейный: Мэтт Макферсон (Энтигониш, Канада); Линейный: Жюльен Фурнье (Гатино, Канада)Телекомпания: CBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F0DBB1BA9CA2FC83CD7F6C40A987649C47127E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793318   (67509) от 24.04.2025
+
+The Fleetwoods - Mr. Blue (1959) Expanded Edition, 2025, CAPITOL CATALOG MKT (C92)[FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confidential [00:02:21]
+02. The Three Caballeros [00:02:23]
+03. Raindrops, Teardrops [00:02:32]
+04. You Mean Everything To Me [00:02:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57308115841D5E6395C71269A4F7ACB1E861938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793518   (67508) от 24.04.2025
+
+Cosmic Cathedral - Deep Water (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Heart of Life (13:35)
+02. Time to Fly (6:54)
+03. I Won't Make It (3:55)
+04. Walking in Daylight (8:56)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93CF93FDD660B5D740CA33B697E47C69CDC48A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793388   (67507) от 24.04.2025
+
+VA - Infinite Deep Vibes (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Jeff - Electric Loom (04:00)
+02. Solid Dream - Wondering (03:59)
+03. Soul of Rome - Catch the Stillness (04:00)
+04. Steven Mercier - Once Upon a Time (02:42)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0447F57F8FC006CEAD3CD3CB175827C4E2A76929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792871   (67506) от 24.04.2025
+
+Fear Factory - Genexus (2015) [WavPack|32/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67506.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Autonomous Combat System
+A2 Anodized
+A3 Dielectric
+B1 Soul Hacker(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:59:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD3AF15189B6011AC2F226597EA9F9FCF051BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793219   (67505) от 24.04.2025
+
+Marc Bolan / T. Rex - Archived records 1967, 1972 (1991) Compilation, Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classic Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67505.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Debora
+A2 Mystic Lady
+A3 Rock On
+A4 Spaceball Ricochet(   Читать дальше...   )Жанр: Classic Rock, GlamПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87504053DF098095672B8E3DCE58F715D5140216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793339   (67504) от 24.04.2025
+
+Текстуры - Jason Santos - Behance - Just Gradients 2 - 191710931 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67504.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные градиентные текстуры.Формат: PNGРазрешение файлов: 4000 x 5000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEF3F432EFE0883844F05561C2365A6889C7B582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793453   (67503) от 24.04.2025
+
+VA - TOP 20 Melodic Techno & Progressive House (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MATA - Slowdown (Extended Mix) (05:40)
+02. Jacoob - Estilo Estelar (Extended Mix) (06:37)
+03. Jacoob - Epifania (Extended Mix) (05:52)
+04. Jacoob - Fiction (Extended Mix) (05:38)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B305D9C12AC05F5B082FCA698F30E200CCF5F4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793490   (67502) от 24.04.2025
+
+Primal Fear - Far Away (2025) Single [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Far Away (4:18)Жанр: Heavy MetalПродолжительность: 00:04:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F39DDD0ABFCF2839E7585E32C918D1790A0F15C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793359   (67501) от 24.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Iridescent Pattern Tumbler Wrap [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обертка для стаканов с радужным рисунком.Формат: PNGРазрешение файлов: 2790 x 2460
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE762FCB6F5A2F1EB1D9B87AF3F5B52001A909F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793510   (67500) от 24.04.2025
+
+Ancient Bards - Artifex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luminance and Abyss (3:08)
+02. My Prima Nox (5:40)
+03. The Vessel (5:58)
+04. The Empire of Black Death (5:10)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:330396B94D573BA6C73445625CFEC30ED53CBC6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792958   (67499) от 24.04.2025
+
+Soulfly - Primitive (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67499.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Back To The Primitive
+A2. Pain
+A3. Bring It
+A4. Jumpdafuckup(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 00:52{33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA8B0D0700FFB19EC69B448304603F53A3E0990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792937   (67498) от 24.04.2025
+
+Samael - Blood Ritual (1992) Reissue, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67498.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Epilogue
+A2 Beyond The Nothingness
+A3 Poison Infiltration
+A4 After The Sepulture(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCF188262971A46E1F542335356873E7D982DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793414   (67497) от 24.04.2025
+
+System Shock - Studio Albums (3 releases) (2004-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67497.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Shock - группа из Норрчёпинга, Швеция. Основана в 2003 году.2004 - Arctic Inside
+2006 - Escape
+2008 - Urban RageЖанр: Melodic Death MetalПродолжительность: 02:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC6080A6E0A9083B2BBB289CB07A8EE4AF827E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793246   (67496) от 24.04.2025
+
+Hilastherion - Studio Albums (3 releases) (2007-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hilastherion - метал-группа из Ваасы, Финляндия, основана в 2003 году.2007 - Taken From Darkness
+2014 - Signs Of The End
+2019 - Psalm 59 (EP)Жанр: Melodic Death MetalПродолжительность: 02:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29F081AB93076B68DF849FC02E47D19B6AEA357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793435   (67495) от 24.04.2025
+
+Mayhemic - Toba (2024) [FLAC|Lossless|image + .cue] <Black Metal, Thrash>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67495.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Kollarbone Crushed Neanderthal 5:48
+2. Extinction & Mystery 2:28
+3. Valley Of The Tundra 3:38
+4. Triumph Portrait 4:54(   Читать дальше...   )Жанр: Black Metal, ThrashПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27805B4E7EBDCFCCDA82673AC2DB69DDBEC6641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793385   (67494) от 24.04.2025
+
+Darkness By Oath - Studio Albums (4 releases) (2005-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darkness By Oath - испанская метал-группа. Основана в 2002 году в г. Аррасате.2005 - Confidential World Of Lies
+2009 - Fear Yourself
+2012 - Near Death Experience
+2014 - Seeds Of DesolationЖанр: Melodic Death MetalПродолжительность: 02:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9CC669AC4F7ED6ACA7CC188939FC64EB106332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792906   (67493) от 24.04.2025
+
+Fractal Gates - Studio Albums (4 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fractal Gates - французская метал-группа, образована в Париже в 2007 году.2009 - Altered State Of Consciousness
+2013 - Beyond The Self
+2018 - The Light That Shines
+2024 - One With DawnЖанр: Progressive Melodic Death MetalПродолжительность: 03:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB10FA859A3C6C71F719489FD8DD642742800F85
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1019338   (752266) от 22.05.2016
+
+Nick Moss Band - From The Root To The Fruit (2016) 2CD Set [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before the Night Is Through (03:11)
+02. Make Way For Me (03:25)
+03. Dead Man's Hand (04:19)
+04. From the Root to the Fruit (03:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBFD4FEBD6FD9219515A3A556313886C644BCEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281772   (749923) от 09.02.2019
 
 Eric Gales - The Bookends (2019) [MP3|320 Kbps] <Blues Rock>
@@ -716,35 +745,6 @@ Rhythm Zoo - Sold For Love (2016) [MP3|320 кб/с] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:332975BDC02D78187AE5FABA20CF210F480CA947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397735   (739363) от 22.07.2020
-
-Spencer MacKenzie - Cold November (2018) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fine Place To Start (04:15)
- 02. Move On Down The Track (04:44)
- 03. Shut The Door (Baby Don't Look Back) (04:01)
- 04. Cold November (04:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE6BF963257F8F13DDD2254F30608FCAC5C6F24
 ```
 
 https://mybot314.ru/tekegram_catalog/

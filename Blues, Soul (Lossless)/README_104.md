@@ -1,3 +1,119 @@
+###  Публикация: 970272   (143538) от 29.12.2015
+
+Sly & The Family Stone - There's A Riot Goin' On (1971) 24k Gold Disc, 2013, Epic [FLAC|image +.cue] <Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа была сформирована в начале 1967 г. в Сан-Франциско музыкантом Слаем Стоуном, который дал ей своё имя.Kоллектив Слая Стоуна, игравший электронную музыку с преобладанием жесткого фанка, подчас с налётом психоделики. Это была первая группа в истории американской сцены, в которой на равных участвовали белые и чёрные, мужчины и женщины01. Luv N' Haight 4:02
+02. Just Like A Baby 5:10
+03. Poet 2:56
+04. Family Affair 3:05(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A90AD8805A238A07F739DAAED49E0E3D71740F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969932   (143341) от 29.12.2015
+
+Keb' Mo' - Keb' Mo' (1994) SACD, 2011 Mobile Fidelity Sound Lab [FLAC|tracks +cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every Morning (3:03)
+02. Tell Everybody I Know (3:29)
+03. Love Blues (3:03)
+04  Victims of Comfort (3:21)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB8CBDA67CA662308B33C5DCB0A251676708882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088102   (143289) от 29.12.2016
+
+Larry Miller - Live'N'Loud (2005) Live [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Stand And Deliver  (05:10) 
+02|  How Can A Man Resist  (04:08) 
+03|  Daddy'sCar  (06:28) 
+04|  99 Or More  (05:20) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217EED0266167836F0F4196BEA9F5B6A98B4DF30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087996   (143282) от 29.12.2016
+
+Mitch Laddie Band - Live In Concert (2014) Live [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Awakening/Time Is Running Away  (07:21) 
+02|  So Excited  (05:33) 
+03|  Getting It Right  (04:20) 
+04|  Linger  (04:32) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC393814DFF22D7FB9F91D9FBBB2FF11E6589192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 590751   (140536) от 18.12.2012
 
 Billy Price & Fred Chapellier - Night Work (2009) [WavPack|Lossless]<Blues>
@@ -641,140 +757,6 @@ Mississippi Heat - Don't Look Back (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A92CD575F75AF320620D08AA1CA7702B273D78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825055   (136838) от 16.10.2025
-
-Renato Rocchinotti - Black Shadows in the Dark (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Two of Us (4:08)
-02.  Place to Be (4:40)
-03.  Frozen Champagne (5:05)
-04.  Night Dreams (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318910858839D1F8D66F5D232D230BC9EBE134D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591891   (136271) от 20.12.2012
-
-Various Artists - Texas Bluesmen (1993) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Don't Work - Robert Ealey
-02. Tell Me The Reason Why - Robert Ealey
-03. Part Time Love - Robert Ealey
-04. I Want Your Love - Robert Ealey
-05. Mambo Jambo - Robert Ealey
-06. Love My Baby - Robert Ealey
-07. Everyday I Have The Blues - Curly Barefoot Miller
-08. Outskirts Of Town - Curly Barefoot Miller
-09. Mardis Gras - Curly Barefoot Miller
-10. Bartender - Curly Barefoot Miller(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592323   (135978) от 21.12.2012
-
-Various Artists - Gentle Blues (2004) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honest I do - Junior Wells
-02. I'll play the blues for you - Albert King
-03. As the years go passing by - George Thorogood
-04. Don't mistake kindness for weakness - Albert Collins
-05. A quitter never wins - Tinsley Ellis
-06. The things (that) I used to do - Stevie Ray Vaughan
-07. Am I losing you? - Sherman Robertson
-08. Love's name - John Campbell
-09. Suicider's blues - Blues Cousins
-10. The change is on - Duke Robillard(   Читать дальше...   )Жанр: BluesПродолжительность: 01:19:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592332   (135941) от 21.12.2012
-
-Various Artists - The Alligator Records Christmas Collection (1992) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Merry Merry Christmas - Koko Taylor
-02. Christmas Time In The Country - Kenny Neal
-03. I'm Your Santa - Lil Ed & the Blues Imperials
-04. Deck The Halls With Boogie Woogie - Katie Webster
-05. Please Let Me Be Your Santa Claus - William Clarke
-06. Santa Claus Wants Some Lovin' - Tinsley Ellis
-07. Boogie Woogie Santa Claus - Charles Brown
-08. Lonesome Christmas - Son Seals
-09. Christmas On The Bayou - Lonnie Brooks
-10. Santa Claus - Little Charlie & The Nightcats(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:24
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1464687   (1019668) от 23.04.2021
+
+Jimmie Noone - The Jimmie Noone Collection, Vol.1 (1928) 1992, Collector's Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Know That You Know [3:00]
+02. Sweet Sue - Just You [3:15]
+03. Four or Five Times [3:18]
+04. Four or Five Times [3:17](   Читать дальше...   )Жанр: New Orleans JazzПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EE6A24144DAD6E4D30D58EB79B6F41BE857C95A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465159   (1019315) от 25.04.2021
+
+Ghost Train Orchestra - Book Of Rhapsodies (2013) Accurate [FLAC|Lossless|tracks + .cue] <Swing, Modern Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie's Prelude [2:46]
+02. Beethoven Riffs On [3:12]
+03. Volcanic (Eruption for Orchestra) [2:51]
+04. Dance Man Buys a Farm [3:30](   Читать дальше...   )Жанр: Swing, Modern Big Band, Mainstream JazzПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:582CE45E564874072192EC8D1C9879F55F4214AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465471   (1019150) от 26.04.2021
 
 Bill Evans - The Complete Fantasy Recordings (1973 - 1979) 9CD, 1989, Fantasy [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Terry Gibbs Dream Band - The Big Cat, Vol.5 (1961) 1991, Contemporary Records [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F93AEA2675EA3957B626C0568BBDEC8CF3AAEEA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467961   (1017288) от 07.05.2021
-
-Billy May & Glen Gray - Big Band Stereo Hits (50-60-e) 2CD, 2012, TJL [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017288.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Billy May - On the Sunny Side of the Street [3:07]
-02. Billy May - Twilight Time [3:28]
-03. Billy May - Oh, What a Beautiful Mornin' [3:12](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:02:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2230F6FF6118796FA8D7EA50E8A1DA11A4214090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468022   (1017287) от 07.05.2021
-
-Acker Bilk - The Magic Clarinet Of Acker Bilk (1986) [FLAC|Lossless|tracks + .cue] <Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jean
-02. We've Only Just Begun
-03. The Rose
-04. Eres Tu (Touch The Wind)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284ECEB6DC6E9BCAC5F445A6DD85E65C65EEE35F
 ```
 
 https://mybot314.ru/tekegram_catalog/

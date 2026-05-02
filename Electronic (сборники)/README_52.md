@@ -1,3 +1,61 @@
+###  Публикация: 1385119   (800276) от 23.05.2020
+
+VA - Beatport Progressive Trance: Electro Sound Pack #89 (2020) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800276.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kamil Brandt - Reunited (Extended Mix)
+002. Defcon Audio - Trailblazer
+003. Telepatica - Level Of Scale
+004. Bdh - Unity (Original Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:00:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A6F3F155CBE3C4FB239487457EC248348380A17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385068   (800203) от 23.05.2020
+
+VA - Beatport Future House: Electro Sound Pack #97 (2020) [MP3|320 Kbps] <Electro House, Tech House, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800203.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Futur-E - Eccentric Orchestra
+002. Yuki Tosaya - Voices From Tokyo
+003. Deepshader - Departe
+004. Leonard Marcucci - Day Off (Party Mix)(   Читать дальше...   )Жанр: Electro House, Tech House, ProgressiveПродолжительность: 09:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4CA32CD804F30804901C9A26FC650CF2C8EFC1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1384837   (800198) от 23.05.2020
 
 VA - Beatport Deep House: Electro Sound Pack #87 (2020) [MP3|320 Kbps] <Deep House>
@@ -687,64 +745,6 @@ VA - A Synthwave Panorama Vol. 22 (2021) by Gertrudda [MP3|320 Kbps] <Synthwave,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50B0087FDFF3D5035A13D6D36F3A0E62D151DDCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507443   (798457) от 04.11.2021
-
-VA - A Synthwave Panorama Vol. 2 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pilotpriest - Miracle Mile (Gertrudda Edit) (7:45)
-02. Mr. McNoggin - Desire (4:11)
-03. AM 1984 - Red Sunset (4:55)
-04. N-THONY-N - Bells (6:35)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E9F8B6E929A77162D5D0A43554D1B3A781A765B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507294   (798456) от 04.11.2021
-
-VA - Funky House: Sunday Mixtape (2021) [MP3|320 Kbps] <Funky, Disco House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798456.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Soul Power - Supa Fly
-002. Frank Montana - Rokit
-003. Guillaume - The Chase
-004. Anacca Jez - Cntrol(   Читать дальше...   )Жанр: Funky, Disco House, ElectroПродолжительность: 09:22:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F943DEACC3CE62AE6198F6637BE7B33A1B8BE130
 ```
 
 https://mybot314.ru/tekegram_catalog/

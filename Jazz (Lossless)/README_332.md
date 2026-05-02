@@ -1,3 +1,61 @@
+###  Публикация: 1737702   (106479) от 19.07.2024
+
+Lorne Lofsky, Guido Basso, Joey DeFrancesco, Vito Rezza - Alma Records Presents One Take, Vol. 1 (2004) Alma Records [FLAC|Lossless|image + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Romance [9:53]
+02. If I Were a Bell [8:40]
+03. My Funny Valentine [5:24]
+04. Someday My Prince Will Come [8:30](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFF266890E06E619902F531A785ED03418BB8CDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737888   (106441) от 20.07.2024
+
+T.S. Monk - The Charm (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Budini [6:54]
+02. The Dealer Takes Four [4:40]
+03. Jean Marie [6:32]
+04. Marvelous Marvin [4:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0921BCA5CCE1685F788B0CCB435E8AD0A1C0A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738085   (106408) от 20.07.2024
 
 George Benson & The Robert Farnon Orchestra - Dreams Do Come True: When George Benson Meets Robert Farnon (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -687,64 +745,6 @@ Frank Sinatra - The Romantic Side (2006) Music Sessions [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB0A6A953D7D760997498E7ED61A367DBDD3833B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741077   (105722) от 04.08.2024
-
-Utopianisti - Reason In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock, Fusion, Progressive Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greenwash (4:48)
-02. All Whale Panel (4:06)
-03. Yegaa Intro (1:35)
-04. Yegaa Nu Betaa (4:33)(   Читать дальше...   )Жанр: Jazz Rock, Fusion, Progressive RockПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5C55A39D84E1650C2012324041E52D7488AED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741193   (105710) от 05.08.2024
-
-Shakatak - The Very Best of Shakatak 1988-2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Island Girl
-02. Low Down
-03. Blue Note
-04. Open Your Eyes(   Читать дальше...   )Жанр: Smooth Jazz, FunkПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A4C5F45EDBD0B396387A500328D796A75AEF51
 ```
 
 https://mybot314.ru/tekegram_catalog/

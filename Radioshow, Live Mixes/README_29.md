@@ -1,3 +1,61 @@
+###  Публикация: 1803562   (65810) от 24.06.2025
+
+John Summit - Live @ Club Space Miami, United States (2025-05-03) [MP3|320 Kbps] <House, Tech House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roddy Lima - Night Time
+02.  Shakedown - At Night (Anyma & Layton Giordani Remix)
+03.  SIDEPIECE - ELECTRIC BONGOS
+04.  Cassian - S.O.S(   Читать дальше...   )Жанр: House, Tech House, TechnoПродолжительность: 08:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F97BC5E8EA43AE14A3A89BB8DCE24D60F8EE543
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803716   (65768) от 25.06.2025
+
+GOODBOYS - Live From RADi Club @ INS Land, Shanghai, China (2025-04-30) [MP3|320 Kbps] <Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID w/MEDUZA ft. GOODBOYS - Piece Of Your Heart w/MEDUZA X Becky Hill X GOODBOYS - Lose Control
+02. Twisted Moon - Keep This w/Danny Tenaglia ft. Celeda - Music Is The Answer (Dancin' And Prancin') (Acappella)
+03. Diplo & SIDEPIECE - On My Mind w/Vintage Culture - Fractions
+04. Rebūke - Along Came Polly (Konstantin Sibold & ZAC & CARMEE Remix)(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357039FE7D219D0A96ABFD078DD3131148EC251D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1804769   (65560) от 01.07.2025
 
 Lane 8 - Summer 2025 Mixtape (2025-06-18) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
@@ -681,64 +739,6 @@ Episode 001, featuring SIZE Records releases from 2003-2004.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3491D6FE697B9EA8A0CB22436301B6742ABFBAFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750473   (42936) от 20.09.2024
-
-VA - Armin van Buuren - A State Of Trance 1191 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren ft. Louis III – Part Of Me (Tune Of The Week)
-02. Han Beukers – Portitxol Sunset
-03. Gaia – Tuvan (Mëlbëc Remix)
-04. Ahmed Helmy – Apocalypto(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7407614EF0E962FD37F0EDBED0F5D7101FDFAB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751792   (42206) от 27.09.2024
-
-VA - Armin van Buuren - A State Of Trance 1192 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren – Pulstar (Tune Of The Week)
-02. Daniel Wanrooy – Lost Lake
-03. Protoculture – Viper (Progressive Pick)
-04. Coeus – Armageddon(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB0513AEF884B9F904298BEAB72C19315F7297CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

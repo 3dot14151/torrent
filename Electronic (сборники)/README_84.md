@@ -1,3 +1,61 @@
+###  Публикация: 1132035   (702826) от 08.05.2017
+
+VA - Music For Sports Games Vol 2 (2017) [MP3|256-320 Kbps] <Club, Dance, Pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702826.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 200 - The Darkness (NEXBOY & DBL Bootleg) 4:30
+002. A C Band - Parallax (Radio Mix) 3:20
+003. Ace Of Base - Cruel Summer(Pattex Remix 2017) 4:31
+004. Alesso - Falling (Rave One Bootleg) 4:04(   Читать дальше...   )Жанр: Club, Dance, PopПродолжительность: 10:21:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7259D5BBCEB0C36D31BC519CA5451A642B676CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132064   (702746) от 08.05.2017
+
+VA - Beatport Top 100 House April (2017) [MP3|320 Kbps] <House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702746.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. George Kranz, Claptone - The Drums (Din Daa Daa) (Original Mix) 6:51
+002. Sasha feat. Polica - Out Of Time (Patrice Baumel Mix) 8:28
+003. Gorillaz, Jehnny Beth - We Got The Power (feat. Jehnny Beth) (Claptone Remix) 6:05
+004. Quim Manuel O Espirito Santo - Senhor Doutor (Adam Port Edit) 7:33(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 11:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3867D83C6C2A2C5EC8BC6C0329B3FA627A724EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132052   (702742) от 08.05.2017
 
 VA - Beatport Top 100 Downloads April (2017) [MP3|320 Kbps] <House, Deep House, Electro House>
@@ -687,64 +745,6 @@ VA - Point Of No Return (2019) [MP3|320 Kbps] <Trance, House, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDFE826225F4E5DD607F7E2554556CCBEC088973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287910   (699863) от 09.03.2019
-
-VA - Metasphere: The Sound Of Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic, Psy Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699863.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kliment - Metasphere
-002. Altered State - Final Boss
-003. Mental Broadcast - That Moment (Original Mix)
-004. Sixsense - Locked In(   Читать дальше...   )Жанр: Psychedelic, Psy TranceПродолжительность: 12:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54F584CD3C37431ADBF4D41F7A79E2CC0C4B85C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287942   (699772) от 09.03.2019
-
-VA - Night In The Tropics (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699772.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Anthony Yarranton - Meridian
-002. Michael Hooker - Melindas Secrets (Original Mix)
-003. Moscoman - Song for Bourdain
-004. DeeJay PARTYman - U.F.O. (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 10:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE45A1B5388750F366702CC3BDC3155AC2FD8F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

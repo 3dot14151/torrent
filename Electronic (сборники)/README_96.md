@@ -1,3 +1,61 @@
+###  Публикация: 1226528   (654706) от 21.05.2018
+
+VA - Synthetic Prototype (2018) [MP3|320 Kbps] <Synthpop, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Современную синтетическую популярную музыку от зарубежных исполнителей уже язык не поворачивается назвать просто попсой. Новые технологии, свежие идеи и многолетний опыт позволяет восходящим звездам и знаменитостям создавать настоящую музыку для всех меломанов, даже с самыми специфичными вкусами.001. Erasure - Love You To The Sky
+002. Loewenhertz - Irgendwann
+003. Run Vaylor - Disco Cross
+004. Retouch - Earthquake(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 08:19:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A9CE943B33732D1858097B50A4136684563D53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226533   (654698) от 21.05.2018
+
+VA - Deep House Collection Vol.171 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654698.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Distance & Riddick - Where Did U Go (Original Mix)
+002. Lucas Keizer - Toxic Desire (Original Mix)
+003. Dassler - Orion Choir (Original Mix)
+004. Barratt - Collider (Original Mix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3025C281AB38E6DFBF287376A722870E548BA958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 516114   (654659) от 27.06.2012
 
 VA - Sexy Trance #40 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance, Vocal Trance>
@@ -702,64 +760,6 @@ VA - Trance In Motion vol.118 (Mixed By E.S.) (2012) [MP3|320 kbps]<Trance, Voca
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25B1DF6F2EF991BBFC997893ABB6015C5D997464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031463   (651804) от 04.07.2016
-
-VA - Trance Collection Vol.47 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651804.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Armin van Buuren Extended Remix) 6:11
-002. Talla 2XLC & Jilliana Danise -  What Could Be Better (Original Mix) 6:23
-003. Bobina & Kyle Richardson -  Love Is the Answer (Dimension Remix) 5:11
-004. Mhedi Belkadi -  Leiki (Original Mix) 5:14(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDA34A8304C67A49747DEC41157F6A26A6FD7504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031660   (651802) от 04.07.2016
-
-VA - Record Super Charts # 443 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KSHMR feat. Sidnie Tipton -  Wild Card (Original Mix) 3:18
-02. DBSTF -  Afreaka (Extended Mix) 4:01
-03. Martin Garrix & Third Party -  Lions In The Wild 3:32
-04. Headhunterz & Skytech -  Kundalini (Extended Mix) 4:08(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 02:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38785F1ECD3DAA15048EA8819BAD960822B6F891
 ```
 
 https://mybot314.ru/tekegram_catalog/

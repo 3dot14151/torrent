@@ -1,3 +1,61 @@
+###  Публикация: 1025488   (710021) от 12.06.2016
+
+Saliva - Love, Lies & Therapy (2016) [FLAC|Lossless|tracks] <Alternative Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trust
+02. Tragic Kind Of Love
+03. Bitch Like You
+04. Unshatter Me(   Читать дальше...   )Жанр: Alternative Rock, Alternative MetalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA627676F0E5ACA8C51E4A045BD7FD421A55FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 792314   (710004) от 02.06.2014
+
+Guano Apes - Offline (2014) [FLAC|Lossless]<Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Somebody (4:54)
+02. Close To The Sun (3:42)
+03. Hey Last Beautiful (3:26)
+04. Numen (4:07)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F98B2C4D70E76BB8E5FABB818DFE2F7A8C976B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287012   (707431) от 05.03.2019
 
 Attila - Chaos (2016) SharpTone Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Metalcore, Rapcore, Deathcore>
@@ -687,64 +745,6 @@ After The Fall - Resignation (2020) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hardc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D7B5CD6650EBD5B1FC48B2609714B652A827773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402823   (697941) от 16.08.2020
-
-Halestorm - Reimagined (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Get Off [00:03:25]
-02. I Miss the Misery [00:03:21]
-03. I Am the Fire [00:03:53]
-04. Break In (feat. Amy Lee) [00:04:54](   Читать дальше...   )Жанр: Hard Rock, Alternative Metal, Female VocalПродолжительность: 00:22:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF9B4B10D24BB133197E8373F946CA0EE57AB13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133130   (697104) от 11.05.2017
-
-Mallory Knox - Wired (2017) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giving It Up
-02. California
-03. Wired
-04. For You(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F0AB184B36F9355994436F4918E9BDCCC9C0F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

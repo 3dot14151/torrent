@@ -1,3 +1,73 @@
+###  Публикация: 599854   (998976) от 08.01.2013
+
+Castles - You, The Organ Grinder (2012) [MP3|~245 кб/с (V0)]<Mathcore/Stoner/Noise Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You, The Organ Grinder
+02. The Reverend
+03. I Started Rattling
+04. Diamond Heel
+05. Dispute in A#
+06. Streets, Streams and Shallows
+07. Colossus Cnut
+08. Transylvania
+09. Twist Your Blood
+10. PyramidsЖанр: Mathcore/Stoner/Noise RockПродолжительность: 00:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29B37EB7E8F135B6B88A33677000C6616B1AF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599709   (998975) от 08.01.2013
+
+Tad Morose - Undead (2000) [WavPack|Lossless]<Power / Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:52]
+02. Servant Of The Bones [04:54]
+03. Another Time Around [04:06]
+04. Where The Sun Never Shines [04:00]
+05. Order Of The Seven Poles [04:45]
+06. Undead [03:39]
+07. No Tears In The Rain [04:27]
+08. Intro/Lord On High [05:51]
+09. Corporate Masters [03:20]
+10. No Wings To Burn [03:46](   Читать дальше...   )Жанр: Power / Heavy MetalПродолжительность: 00:45:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599476   (998974) от 08.01.2013
 
 Star Monarchy - Volume 1 (2012) [MP3|~190 кб/с (V2)]<Progressive Metal>
@@ -712,69 +782,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:417CFD0A5D96AB7A774172AFEC7D20649895C1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599170   (998898) от 08.01.2013
-
-CIFRAmagazine.com | Электронный журнал CIFRAmagazine №10 [2012] Screencast
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео уроки по различным полезным программам, плагинам и скриптам.
-"Для меня Новый год, пожалуй, самый любимый праздник. И это неспроста. С самого детства это день, наполненный надеждами, мечтами и волшебством.
-Не удивительно, что, размышляя над темой номера я выбрал тему волшебства. Так номер и назвал - "Magic".
-Ну а раз так, пришлось посидеть и подумать над тем, что можно рассказать интересного на эту тему. И, как оказалось, можно сказать очень много. Так много, что и выпуск получился самый «толстый» за весь год и задумок осталось еще на целый номер."
-В раздаче имеютсяЖанр: обучающее видеоПродолжительность: ~ 5-15 минут (общее 1:44:26)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:460F203B561C69C54003E7ADE5153D55308890DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600228   (998897) от 08.01.2013
-
-Ария - Кровь За Кровь (1991) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Hard Rock, Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998897.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Прощай, Норфолк! 5:14
-A2 Зомби 4:25
-A3 Антихрист 5:00
-A4 Не Хочешь, Не Верь Мне 3:56
-B1 Кровь За Кровь 7:32
-B2 Бесы 3:18
-B3 Всё, Что Было 5:08
-B4 Следуй За Мной! 4:37Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98313B50666CE781930D5F874E9D53B0DA3D96C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1061698   (446244) от 11.10.2016
+
+VA - New Italo Disco Music (2016) [MP3|320 Kbps] <Pop, Italo Disco, Hi-NRG, Synthpop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446244.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fancy - A Voice In The Dark (Bringing The Light Mix)  6:49
+002. Albiero - Electronic Scout  6:23
+003. Birizdo I Am - Mademoiselle (Extended Version)  5:19
+004. Digital Dreams - Power Sound (Extended Version)  5:20(   Читать дальше...   )Жанр: Pop, Italo Disco, Hi-NRG, Synthpop, DanceПродолжительность: 11:16:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4DE33F3D910E01A57D224FB64B5B07D739FEBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061755   (445779) от 11.10.2016
+
+VA - Русская Коллекция - Хиты 90-х (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445779.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Demo - Давайте петь!  4:00
+002. Mr. Credo - Белые облака  3:46
+003. Мираж - Видео  4:06
+004. Марина Журавлева - Дождь  3:03(   Читать дальше...   )Жанр: PopПродолжительность: 07:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4172F94872A9EE470323B6387ABF522E5ED759
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943905   (444921) от 05.10.2015
+
+Baccara - Good Songs (2015) [MP3|128-320 кб/с]<Pop, Dance pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yes Sir, I Can Boogie (1977)
+02. Love You Till I Die (1977)
+03. Granada (1977)
+04. Gimme More (1977)(   Читать дальше...   )Жанр: Pop, Dance popПродолжительность: 05:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF18923EE9311D562AF7C4036454436B8D23935B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943877   (444615) от 05.10.2015
+
+VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 17) (2015) [MP3|320 кб/с]<Italo Disco, Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siberian Heat - Just Say Hello(Dj Nikolay-D & Joemix Dj Remix ) (06:10)
+02. Silent Circle & Dj Nikolay-D - Touch In The Night (Dj Nikolay-D Remix ) (06:17)
+03. Raggio Di Luna & Dj Nikolay-D - Comanchero(Dj Nikolay-D Remix ) (06:57)
+04. Mr. Zivago & Dj Nikolay-D - Little Russian(Dj Nikolay-D Remix ) (07:47)(   Читать дальше...   )Жанр: Italo Disco, Disco, PopПродолжительность: 05:09:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F2ED4D039207888190386362F0EA8E45C3FAF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943862   (444611) от 05.10.2015
 
 VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 16) (2015) [MP3|320 кб/с]<Italo Disco>
@@ -647,122 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:343AA32D8D4FD95218902B4885ACC2AC537B16AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570681   (436058) от 20.08.2022
-
-Pino D'angio - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Questo Amote E Un Motore
-02. Tango
-03. Sono Latino
-04. Okay Okay(   Читать дальше...   )Жанр: PopПродолжительность: 01:45:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8567182B3F39A3838EF52082EB94BC7DE56EF3DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063218   (434973) от 16.10.2016
-
-VA - German Top 100 Single Charts 24.10. (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434973.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rag'n'Bone Man - Human
-002. The Chainsmokers feat. Halsey - Closer
-003. DJ Snake - Let Me Love You
-004. Sia - The Greatest (feat. Kendrick Lamar)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73790466B62DC931CE8A351BBD9B788454DA472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063222   (434972) от 16.10.2016
-
-VA - Новинки. Осенний выпуск Europa Plus (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434972.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Malika - Я Твой Ангел
-002. Anouk - Run Away Together
-003. Марта - Даже Если Ты
-004. Walking On Cars - Hand In Hand(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFEEFA701275DA9CBC1917B52A5F63498FD2E74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063135   (434017) от 16.10.2016
-
-VA - Дискотека 80-90 годов по-новому (Зарубежный выпуск - 40) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London Boys - London Nights (DJ NIKOLAY-D Remix ) (08:29)
-02. Pulsedriver & Andrew Spencer - Touch Me (Limelight Remix) (05:06)
-03. Beata - Maria Magdalena (K.C. Nightline Club Mix) (04:18)
-04. Yvan & Dan Daniel - Enjoy The Silence (George Acosta Remix) (07:25)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905DFBDAE3882EDCA52423BC9D34D41269616096
 ```
 
 https://mybot314.ru/tekegram_catalog/

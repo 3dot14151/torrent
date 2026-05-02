@@ -1,3 +1,116 @@
+###  Публикация: 1534354   (694242) от 02.03.2022
+
+VA - NOW Yearbook Extra 1984 (2022) 3CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694242.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Queen - Radio Ga Ga
+02. Eurythmics - Sexcrime (Nineteen Eighty-Four)
+03. Sade - Smooth Operator(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:22:29 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56FDB39E1F4709ED67B34C8B18B8A3C68B92AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288542   (694192) от 12.03.2019
+
+VA - German Top 100 Single Charts 18.03.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694192.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Shirin David - Gib Ihm
+002. KC Rebell - DNA (feat. Summer Cem & Capital Bra)
+003. Ava Max - Sweet but Psycho
+004. Lady Gaga & Bradley Cooper - Shallow(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B51B266A6856A3EF620FD9F27308BE087C47B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534349   (694139) от 02.03.2022
+
+VA - NOW Yearbook Extra 1983 (2021) 3CD [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694139.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Wham! - Wham Rap! (Enjoy What You Do?)
+02. Paul McCartney, Michael Jackson - Say Say Say
+03. Elton John - I Guess That's Why They Call It The Blues(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:12:15 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1570D481C44EC78708DF8CA20C2EF41ABE9F1B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 333197   (693975) от 07.05.2011
+
+VA - Лучшая подборка майских хитов Europa Plus (2011) [MP3|320 kbps]<Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_693975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 06:30:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51A8BDE6D40A07A3D8E745F571672BF0E687D0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1288668   (693412) от 12.03.2019
 
 VA - Club Dance Ambience Vol.173 (2019) [MP3|320 Kbps] <Dance, Club, House>
@@ -626,122 +739,6 @@ VA - Подарок любимой женщине (2022) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF08058AF762438FE761F026D2E953317D75C3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222404   (685293) от 29.04.2018
-
-VA - German Top 100 Single Charts 27.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685293.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Calvin Harris & Dua Lipa - One Kiss
-002. Ariana Grande - No Tears Left To Cry
-003. Marshmello & Anne-Marie - FRIENDS
-004. Olexesh - Magisch (feat. Edin)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8BE1D6C2F411A68F31B207FE4061BEB739CCDF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222427   (685170) от 29.04.2018
-
-VA - German Top 50 Official Dance Charts 27.04.2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685170.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatboy Slim - Right Here, Right Now (CamelPhat Radio Edit)
-02. Moguai, Zonderling - Lee
-03. Bingo Players, Goshfather - Everybody
-04. Steve Aoki, Daddy Yankee, Play-N-Skillz & Elvis Crespo - Azukita(   Читать дальше...   )Жанр: DanceПродолжительность: 02:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B47E08B9FC7B7A297FE1C0629CE2095F96D4E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134883   (685081) от 17.05.2017
-
-VA - Весенний хитовичок молодежный. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685081.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sunsay Feat. Тося - Поезд 3:34
-002. Iowa - Немею 3:33
-003. Полиграф Шарикoff (Серега) - Гелик Вани 3:08
-004. Sha Man - Я Люблю Ее 3:44(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4F20B3572D33402FC34E1DCD7E51BC88CCA2272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134891   (685075) от 17.05.2017
-
-VA - Звездная тусовочка. Отдыхаем с лучшими хитами выпуск № 11 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685075.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lila & Stitch - Город-Электрошок 3:25
-002. Сергей Славянский - На Пешеходном Переходе 3:18
-003. Пропаганда - Забываю 3:25
-004. Zac Samuel & Moon Willis Feat. Taya - Never Letting Go 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32506964C2B788AD76612D31B06208AE1BEF7CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

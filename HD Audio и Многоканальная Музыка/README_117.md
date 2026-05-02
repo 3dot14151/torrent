@@ -1,3 +1,177 @@
+###  Публикация: 1715845   (111425) от 13.04.2024
+
+BlackRain - Hot Rock Time Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Overloaded [3:36]
+02 - Baby Shot Me Down [3:55]
+03 - Wild Wild Wild [3:21]
+04 - She's in Love [3:53](   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Glam MetalПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1890356E74984F0B09D5A807A2A3C7A46F04748D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716001   (111420) от 13.04.2024
+
+Imminence - The Black (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Come Hell or High Water [3:50]
+02 - Desolation [4:08]
+03 - Heaven Shall Burn [4:08]
+04 - Beyond the Pale [4:14](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3D1CABCEF3CE29A61876C09BDBC4AB9B3F3BD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716266   (111415) от 14.04.2024
+
+A La Carte - The Ultimate Best of Album (2016) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Disco, Euro Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jimmy Gimme Reggae (Remastered) [00:03:00]
+02. When the Boys Come Home (Remastered) [00:04:05]
+03. You Get Me on the Run (Remastered) [00:03:21]
+04. Viva Torero (Remastered) [00:03:55](   Читать дальше...   )Жанр: Pop, Disco, Euro DiscoПродолжительность: 02:31:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2EB9B42204196DD3B5CF57FD9E8E17E71E5ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716179   (111385) от 14.04.2024
+
+Chicane - Far From The Maddening Crowds (Symphonic Rehearsals) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Early (Symphonic Rehearsal Mix)(05:23)
+02. Already There (Symphonic Rehearsal Mix)(03:30)
+03. Offshore (Symphonic Rehearsal Mix)(06:27)
+04. Lost You Somewhere (Symphonic Rehearsal Mix)(04:05)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ElectronicПродолжительность: 00:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C60EA016C7C47CD3693BB9ED7DF5365A71245B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716177   (111372) от 14.04.2024
+
+Frank & Tony - Ethos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Deep House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olympia (06:25)
+02. Ethos (06:56)
+03. Too Poor for Movies, Too Tired for Love (07:23)
+04. Nobody Present Ever Stood So Still (07:47)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4590A4FF0A2A8AD3DAC03EFB44F3337B55A678F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716135   (111368) от 14.04.2024
+
+Love Sex Machine - Trve (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sludge Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – FUCKING SNAKES
+02 – TEST26
+03 – TRAPPED FOR LIFE
+04 – BODY PROBE(   Читать дальше...   )Жанр: Sludge MetalПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C44269A7C4221BCF823F4093363F0E7038DD0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716334   (111360) от 15.04.2024
 
 Starsailor - Where The Wild Things Grow (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -571,180 +745,6 @@ DVNE - Voidkind (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Post-Metal, Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E74B1049CD220A9C0D344E01F8A8AC2760F196A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717149   (111270) от 18.04.2024
-
-My Dying Bride - A Mortal Binding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Her Dominion (6:11)
-02. Thornwyck Hymn (6:48)
-03. The 2nd of Three Bells (6:52)
-04. Unthroned Creed (7:01)(   Читать дальше...   )Жанр: Gothic Doom MetalПродолжительность: 00:54:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B127A8A196135EBBBE557936BFD0F5AE1A39B457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717163   (111269) от 18.04.2024
-
-Gun - Hombres (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Fired Up (3:42)
-02. Boys Don't Cry (2:54)
-03. Take Me Back Home (3:12)
-04. Fake Life (3:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F28416527FC8E565D1E5D431077CC60A0AE8EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717247   (111265) от 19.04.2024
-
-Bruce Springsteen - Best of Bruce Springsteen (Expanded Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Americana, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111265.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Growin' Up (3:07)
-02. Spirit in the Night (4:59)
-03. Rosalita (Come Out Tonight) (7:02)
-04. 4th of July, Asbury Park (Sandy) (5:36)(   Читать дальше...   )Жанр: Rock, Americana, Pop RockПродолжительность: 02:18:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA9857AF44E2108C57981099437DDEAFB1B79E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717380   (111251) от 19.04.2024
-
-Vanden Plas - The Empyrean Equation of The Long Lost Things (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Empyrean Equation Of The Long Lost Things [00:08:01]
-02. My Icarian Flight [00:05:59]
-03. Sanctimonarium [00:10:16]
-04. The Sacrilegious Mind Machine [00:08:37](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D2BE8E1F7705D847AEA2C0E09F8CC5EE430A89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637717   (111193) от 20.04.2024
-
-Praying Mantis - Studio Albums (14 releases) (1981-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <NWOBHM, AOR>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Praying Mantis — британская рок-группа. Начинала как одна из групп «NWOBHM». Со временем группа стала играть мелодичный хард-рок, ориентируемый на массовую аудиторию - "AOR".1981 - Time Tells No Lies
-1991 - Predator In Disguise
-1993 - A Cry For The New World
-1993 - Only The Children CryЖанр: NWOBHM, AORПродолжительность: 12:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D40451CC8C5E46FB1A9D543C1D53B3F020F45D0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717482   (111165) от 20.04.2024
-
-Larry Campbell & Teresa Williams - All This Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Island Dreams (2:46)
-02. All This Time (3:45)
-03. Ride With Me (3:27)
-04. The Way You Make Me Feel (3:22)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F5AE161F75184930B3A5185F810F3FC3F8827A
 ```
 
 https://mybot314.ru/tekegram_catalog/

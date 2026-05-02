@@ -1,3 +1,61 @@
+###  Публикация: 1824231   (128930) от 14.10.2025
+
+Kevin the Persian - Southern Dissonance (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coping Mechanisms [00:03:14]
+02. What You Deserve [00:04:13]
+03. Suicide in K Minor [00:04:26]
+04. Persian Delta Blues [00:04:03](   Читать дальше...   )Жанр: Alternative Rock, Grunge, Hard RockПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20AD43E3A6B5285D1EB2F6BB8335A8F2C8FAEE36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824006   (128643) от 13.10.2025
+
+Earshot - Humaning (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Nu Metal, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Are You Waiting For [00:03:51]
+02. Where Were You? [00:04:05]
+03. Out Of My Hands [00:03:17]
+04. I'm OK [00:03:28](   Читать дальше...   )Жанр: Alt. Rock, Nu Metal, Post-GrungeПродолжительность: 00:41:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10624EFB1DA16726E2980989F7DA2A97D75E845
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683376   (128540) от 10.12.2023
 
 Dog Fashion Disco - Anarchists of Good Taste (2001) Deluxe Edition, 2018, Razor To Wrist Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz-Rock, Hard Rock, Punk, Avantgarde, Funk Metal>
@@ -687,64 +745,6 @@ Ghinzu - рок группа, основанная John Stargasm в 1999-ом г
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E244A6F42ECD55EEE2AB68B8D7E73299F53F1944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694166   (120945) от 25.01.2024
-
-Nomy - Dark Skies (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Dark Skies
-02 – The Fucked Generation
-03 – House of the rising sun
-04 – Dead man walking(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, MetalcoreПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2A0FA475611B07D4330EB661E2C78D8769340D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694697   (120636) от 27.01.2024
-
-Bohse Onkelz - 40 Jahre Onkelz (Live im Waldstadion 2022) (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk, Oi, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 2022 (Live im Waldstadion 2022) [00:01:46]
-02. 10 Jahre (Live im Waldstadion 2022) [00:02:57]
-03. So sind wir (Live im Waldstadion 2022) [00:05:15]
-04. Der nette Mann (Live im Waldstadion 2022) [00:03:54](   Читать дальше...   )Жанр: Punk, Oi, Hard RockПродолжительность: 02:18:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2195E0732AB918973E431FE9837A29A5808507F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

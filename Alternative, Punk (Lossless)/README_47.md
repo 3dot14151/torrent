@@ -1,3 +1,61 @@
+###  Публикация: 1184192   (301178) от 17.11.2017
+
+Stereophonics - Scream Above The Sounds (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caught By The Wind (3:38)
+ 02. Taken A Tumble (3:37)
+ 03. What's All The Fuss About? (5:45)
+ 04. Geronimo (4:15)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:520E0F125122B73EBE73DBF310C57B216420D7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333958   (298949) от 27.10.2019
+
+Editors - Black Gold (2019) Compilation 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Violence
+02. Walk the fleet road
+03. Blood
+04. Let your good heart lead you home(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C400A4B3C064FF05924D2E757652C55EA787EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184735   (298705) от 18.11.2017
 
 Green Day - Greatest Hits: God's Favorite Band (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Punk Rock, Pop Punk>
@@ -681,64 +739,6 @@ Skunk Anansie - 9 Albums (1995 - 2019) [FLAC|Lossless|tracks + .cue] <Alternativ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:989BFA364FBE59911661D579FF1FA4639EECDCBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335969   (282574) от 05.11.2019
-
-The Score - ATLAS (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop-Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Going Back (3:18)
- 02. Legend (3:09)
- 03. Only One (3:48)
- 04. Tightrope (3:54)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, Indie RockПродолжительность: 01:36:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DD0101A39AB5AE9E8C59144EE00539C8626ED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811107   (282481) от 22.11.2018
-
-Alice in Chains - 7 альбомов, 2 EP  (1990 - 2018) [FLAC|Lossless|image + .cue|tracks + .cue]<Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282481.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два года Alice In Chains потратила на концерты в местных клубах, а в 1989-м при помощи демо "The Treehouse Tapes" ей удалось попасть под крышу Columbia Records. Пробный миньон We Die Young породил серьезный хит для радио, и лейбл поспешил загнать музыкантов обратно в студию для подготовки дебютного альбома. Вышедший в августе 1990-го Facelift поначалу не (   Читать дальше...   )Список альбомов:
-Alice In Chains - 1990 - Facelift
-Alice In Chains - 1992 -  Dirt
-Alice In Chains - 1994 - Jar Of Flies & SapЖанр: GrungeПродолжительность: 07:55:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB2BB17150A82ED678FEF4A0065B43468456106A
 ```
 
 https://mybot314.ru/tekegram_catalog/

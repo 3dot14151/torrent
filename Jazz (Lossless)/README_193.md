@@ -1,3 +1,61 @@
+###  Публикация: 948789   (409800) от 21.10.2015
+
+The Billy Taylor Trio - A Touch Of Taylor (1955) /2013, Universal/[FLAC|tracks+.cue]<Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ever So Easy [03:17]
+ 02.Radioactivity [03:46]
+ 03.A Bientot [04:20]
+ 04.Long Tom [02:50](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CA52CC51E7C971D207C7B7C7ACFA283281EC1D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948792   (409654) от 21.10.2015
+
+Pharoah Sanders - Africa (1987) /2015, Timeless Records/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You've Got To Have Freedom [10:07]
+ 02.Naima [05:32]
+ 03.Origin [06:55]
+ 04.Speak Low [08:09](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Post-BopПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FC727533A1B7505FA1C9C08A6F7AC4182D864F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948821   (409644) от 21.10.2015
 
 Gerry Mulligan - Mosaic Select 3CD (1957-1958) /2006, Mosaic Records/[FLAC|tracks+.cue]<Cool, West Coast Jazz>
@@ -690,63 +748,6 @@ Sainkho Namtchylak - Cyberia - Suite For The Voice A Cappella (2011) [FLAC|Lossl
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557955   (408010) от 13.10.2012
-
-Essence Featuring Jaco Pastorius - Last Flight (1984) 1989 DIW Records, Disk Union [FLAC|Lossless]<Jazz-Funk, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Universe Is My Home Part One (26:53)
-02. Universe Is My Home Part Two (18:35)
-03. Galeon (13:42)Жанр: Jazz-Funk, Jazz-RockПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252704   (407805) от 06.10.2018
-
-Katie Melua - Ultimate Collection (2018) 2CD [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист CD1:
-01. Nine Million Bicycles
-02. What a Wonderful World (with Eva Cassidy)
-03. Plane Song(   Читать дальше...   )Жанр: Vocal Jazz, Pop Jazz |Продолжительность: 02:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:173AC235B096345A480DFB00D57F0F7FA62C4D8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

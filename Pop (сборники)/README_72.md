@@ -1,3 +1,119 @@
+###  Публикация: 1045714   (557845) от 24.08.2016
+
+VA - 80's Cardio Workout Playlist Vol.3 (2016) [MP3|112 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hugo Strasser - Letkiss (Letka-Enka)
+02. Chak Berry - Johny Be Good
+03. ELO. - so serios
+04. Creedence clear water reviv al - Have you ever seen the rain(   Читать дальше...   )Жанр: PopПродолжительность: 06:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0663A46047744249C7A7DC3205948A9CB79AD1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045747   (557733) от 24.08.2016
+
+VA - Зарубежная Дискотека Восьмидесятые (2016) [MP3|112~320 Kbps] <Pop, Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557733.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ABBA  -  Money,Money,Money  3:05
+002. Secret Service  -  Ten O'Clock Postman  3:38
+003. C. C. Catch  -  I Can Lose My Heart Tonight  5:54
+004. Boney M.  -  Daddy Cool  3:27(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 06:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4335193551508ED774632B677F12A55F806600B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045784   (557483) от 24.08.2016
+
+ABBA - The Best Songs (2016) [MP3|320 Kbps] <Pop, Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing Queen  3:51
+02. Take A Chance On Me  4:07
+03. Angel Eyes  4:23
+04. Waterloo  2:47(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 01:18:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A390C44AFB900362FC662851923F9A0D6092E04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045573   (557415) от 24.08.2016
+
+VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск - 37 ) (2016) [MP3|192 Kbps] <Pop, Disco, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys Blue  -  Still In Love (X-Tended UltraTraxx Remix)  9:54
+02. Modern Talking  -  Bells Of Paris (Longer UltraTraxx Mix)  10:35
+03. Blue System  -  Body To Body (UltraTraxx System Mix)  9:25
+04. London Boys  -  Harlem Desire (UltraTraxx Long Version)  11:57(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 04:53:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2735A21BC83F6E2C72547CF76E868FC72080EF2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924779   (557373) от 04.08.2015
 
 VA - Самые шикарные летние хиты 6 (2015) [MP3|256 кб/с]<Pop>
@@ -622,122 +738,6 @@ VA - German Top 100 Single Charts 20.07.2018 (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44A3864D5C8ECE82B1FE04BC473A26A218D746CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237087   (552282) от 23.07.2018
-
-VA - Зайцев.нет: Лучшие новинки Июля 2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552282.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. GAZIROVKA - Яйца в кулак 2:49
-002. Эльбрус Джанмирзоев - Этой ночью 3:19
-003. RASA - Эликсир 3:40
-004. Хлеб - Шашлындос 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F731205C0C8E27798B79D6A629A4669260F0AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309197   (551983) от 18.06.2019
-
-VA - Euro Pop Summer (2019) [MP3|320 Kbps] <Euro Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551983.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ariana Grande - Everytime
-002. Jérôme Charlebois - Old Orchard
-003. Alejandra Burgos - Crazy Little Woman
-004. Jessica 6 - Stars In Your Eyes(   Читать дальше...   )Жанр: Euro PopПродолжительность: 09:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4967BDB06144BC86F94F5285DA42CD807FE68023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046325   (551932) от 27.08.2016
-
-VA - Миллион облаков (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551932.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мартин Дин - Падший Ангел
-002. Катя Нова & Dee Flack - Я Буду С Тобой
-003. Александр Вестов - Миллион Облаков
-004. Людмила Соколова - Сердце, Как Стекло(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DF6E2732852518C55894D81AE7BD7C46ECCAA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046712   (551928) от 27.08.2016
-
-VA - Мега хиты хорошего настроения. Версия 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551928.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Steven Tyler - I Make My Own Sunshine
-002. Александр Антонов - Это Все Что Я Могу
-003. Sivik - Last Night
-004. Златаслава - Подруга Моего Детства(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B482D78D5C9BDA9153D4AF82F2040E9D20B779CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

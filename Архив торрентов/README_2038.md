@@ -1,3 +1,273 @@
+###  Публикация: 1039624   (595956) от 01.08.2016
+
+Легс Макнил, Джиллиан Маккейн | Дорогой Никто. Настоящий дневник Мэри Роуз (2016) [FB2]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожалуй, школьные годы считаются одними из лучших в нашей жизни. Но для Мэри Роуз, пятнадцатилетнего подростка, это не так. Одиночество, равнодушие взрослых, насмешки одноклассников, попытки скрыть ото всех свою болезнь – такова реальность для Мэри.
+А ведь больше всего на свете ей хочется быть любимой и иметь друзей. И она действительно готова пойти на все ради своей (   Читать дальше...   )Жанр: Современная зарубежная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:228AA96EAC32317758D5357C12D01D1AE2EAEFD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039441   (595955) от 01.08.2016
+
+VA - Goa Year 2016 Vol.4 (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sixsense, Vimana Shastra & GoaStream -  Acid Drops 6:19
+02. Retronic -  Young and Restless 7:29
+03. Nosfer -  Kill Them All (Atomic Pulse Remix) 8:23
+04. D-Tek -  U96 7:17(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 03:03:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BE3BF8C3B3967F35692BBE12D83A39456B25142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039439   (595950) от 01.08.2016
+
+Jack The Smoker - Jack Uccide (2016) [MP3|320 Kbps] <Hip-Hop, Trap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - V(a)iking
+02 - Burial
+03 - 666
+04 - Grazie a me (feat. Gemitaiz & Madman)(   Читать дальше...   )Жанр: Hip-Hop, TrapПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CCD63738F93CAF0B4467D7DA49BBCEF7C274EB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039508   (595943) от 01.08.2016
+
+Смешанные единоборства. Invicta FC 18: Grasso vs. Esquibel. (29.07.2016) WEB-DL [H.264/720p-LQ] [EN]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все бои турнира "Invicta FC 18: Grasso vs. Esquibel", прошедшего 29 июля 2016 года в "Scottish Rite Temple", Канзас-Сити, штат Миссури, США.Телекомпания: FOX SportsЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 03:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68BB6387D0A6BF52FA9595465CEF30A47F9D184D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526877   (595941) от 25.07.2012
+
+Bill Miller - Spirit Wind North (2009) [MP3|320 кб/с]<Native American, Ethno, Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595941.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Birds of Pray 4:06
+2. Together as One 5:11
+3. High Eagle Prayer 7:13
+4. Lost Canyon 6:59
+5. Vision Quest 6:42
+6. Tranquil Fire 4:23
+7. Journey Into Prayer 4:26
+8. Amazing Grace 3:59
+9. Reconciliation Prayer 5:07Жанр: Native American, Ethno, RockПродолжительность: 00:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38773A3CED53623D41D8DB39A64A0C42A0994789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527183   (595938) от 25.07.2012
+
+Журнал | ХлебСоль №8 (август 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595938.jpg" />
+</div>
+
+
+###  Подробнее
+
+"ХлебСоль" — это еще одна возможность рассказать о еде как творчестве. И появление журнала — это удивительное стечение обстоятельств, потому что в одном месте собрались энтузиасты, которые очень любят готовить и экспериментировать на кухне. Все рецепты неоднократно тестируются на редакционной кухне. Штатные повара журнала выверяют необходимое количество (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03B8644086888BE6D8EF24B1F4A226EB621796EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526236   (595936) от 25.07.2012
+
+VA - TMP: Clear Sky 080 (2012) [MP3|320 кб/с]<Vocal Trance, Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595936.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ferry Corsten vs. Armin van Buuren - Brute (Darren Porter Remix)
+002. Moonbeam feat. Avis Vox - Disappearance (Kollektiv SS Remix)
+003. Max Graham & Susana - Down To Nothing (Original Mix)
+004. Evol Waves - Evolver
+005. Johan Vilborg - Fall (Original Mix)
+006. Gal Abutbul & Liri - Golden Globe (Original Mix)
+007. Julian Vincent & Shannon Hurley - Lost In Space (Mark Otten's Original Mix)
+008. Jake Shanahan feat. Tyler Sherritt - On The Otherside (Original Mix)
+009. Glideslope - Sunstone (Original Mix)
+010. Maor Levi - Won't Say NoЖанр: Vocal Trance, TranceПродолжительность: 01:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65175629F9B866488AB2EF5DF242408321B26251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526244   (595935) от 25.07.2012
+
+VA - TMP: Vanilla Dreams 080 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595935.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alan Morris & Sequentia - Blind (Vocal Mix)
+002. Masoud feat. Nicole McKenna - Fix The Broken (Original Mix)
+003. Chicane - Going Deep (Club Mix)
+004. Cathy Burton & Omnia - Hearts Connected (Original Mix)
+005. Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase (Club Edit)
+006. Faruk Sabanci - Oriental Sentiment (Original Mix)
+007. Allure feat. Emma Hewitt - Stay Forever (Nitrous Oxide Remix)
+008. Bartlett Bros., Matt Loki & Tiff Lacey - Sweet Child (Lele Troniq Remix)
+009. Alexey Omen feat. Volodya Aspirin - When The Heavens Cry (Original Mix)
+010. Andy Moor & Ashley Wallbridge feat. Gabriela - World To Turn (Club Mix)Жанр: Vocal TranceПродолжительность: 01:05:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A91968D12E50AFFC2AE67B69416252A37A045FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525718   (595932) от 25.07.2012
+
+VA - Black World Mix - Mixed By Rezonanz (2012) [MP3|320 кб/с]<Drum & Bass, Dubstep, Drumstep>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - C.A.2K - Moredanb
+02 - NLB aka Renegade Scientist - Horn Related
+03 - C.A.2K - Push a Little Harder
+04 - Exiva & TerrorЖанр: Drum & Bass, Dubstep, DrumstepПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BFF38C06DFDDA475329FDD50144A92A0FDECD19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526860   (595928) от 25.07.2012
 
 Журнал | Marie Claire №8 (август / Украина) [2012] [PDF]
@@ -465,269 +735,6 @@ QuickTime - это мощная, надежная, гибкая платформ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F82D48145728F0494195AD8BC9833DB593C75E3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 885910   (595852) от 03.07.2015
-
-Салем / Salem (2015) WEB-DLRip (сезон 2, серии 1-13 из 13) AlexFilm
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не смотря на то, что Мэри Сибли все ещё удерживает свою власть, её положению угрожает бессчётное множество других ведьм: как новых, так и шокирующе знакомых.
-После удачно проведённого великого обряда Салем становится лакомым кусочком для многих, ранее неизвестных людей, преследующих свои интересы, среди которых - загадочный доктор Сэмьюэл Уэйнрайт и эффектная графиня (   Читать дальше...   )Производство: США, Tribune Studios, Twentieth Century Fox TelevisionЖанр: фантастика, триллер, драмаРежиссер: Ричард ШепардАктеры: Шэйн Уэст, Джанет Монтгомери, Эжур Дэун, Моргана Шоу, Сет Гейбл, Ксандер Беркли, Эшли Мадекве, Элиз Эберли, Джон Артур, Кристофер Берри и др.Перевод: Многоголосый закадровый, профессиональный - AlexFilmОзвучка: Ирина Воронова, Татьяна Манетина, Александр Воронов, Михаил Суслов, Владимир КурдовПродолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCE7C966A4D88B2C626CD0C240B3333D24BAFDC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914831   (595846) от 03.07.2015
-
-Tor Browser Bundle 4.5.3 Final [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5B0F9D27370854E4F4912EBAC68E7FE9B32EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526509   (595839) от 25.07.2012
-
-Потерянный Век - 2 Альбома, 1 ЕР (2006-2012) [MP3|128-320 кб/с]<Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Heavy MetalПродолжительность: 00:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F4E15F6C4C5250C2C1C6AA2FDA4DAC76D027E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526896   (595837) от 25.07.2012
-
-Санктум - Санктум (2012) [MP3|320 кб/с]<Modern-Heavy-metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595837.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Не оборачивайся, не возвращайся
-2 Падая в бездну
-3 Радиоактивная зима
-4 История убийцы
-5 Пленник снов
-6 Путь души
-7 Разговор с ангеломЖанр: Modern-Heavy-metalПродолжительность: 00:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6AE3B1CE3BF7D51D547075AB53F03A477991E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526716   (595836) от 25.07.2012
-
-VA - Русские Новинки PiratMP3  (2012) [MP3|128-320 kbps]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595836.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Palaraga - Мой город не спит
- 2. Арчи-М - О Боже
- 3. F. Jay ft. Olesya - Держи Меня За Руку (DJ Melnikoff ft. DJ Prado Remix)
- 4. RI - Все Решено
- 5. Шима - Океан
- 6. Градусы - Заметает (Seal De Green Winter Mix)
- 7. Женя Юдина feat. Pawbeat - Небо Это Я
- 8. Ляна Новак - В Ритме Мира (DJ Sender & Alex Vives Mix)
- 9. Пыльца - Красная Пелена
- 10. Palaraga - Отпусти меня(   Читать дальше...   )Жанр: PopПродолжительность: 03:36:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:545278C97535BA103068483A54D314F4586B532E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527334   (595833) от 25.07.2012
-
-Журнал | Just ceo №6 (июль) [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание, содержащее самую актуальную информацию о разных сторонах нашей жизни - от ведения бизнеса и изменениях в законодательстве до ярких мероприятий, новинок моды и красоты, местах отдыха, редких хобби и видов спорта.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51AD9EAAE22C38B3B155B859028A71B1D7ECF7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526874   (595830) от 25.07.2012
-
-Вселенная: За горизонтом (Адаптация) / Universe: The Infinite Frontier Adaptation (1995) SATRip [серии 2-4]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вселенная - Бесконечные рубежи" состоит из 26 получасовых эпизодов о космосе.
-В это релиз вошли серии:
-02. Истоки современной астрономии / The Origin of Modern Astronomy
-03. Атомы и свет / Atoms and Light
-04. Инструменты астрономии / The Tools of AstronomyЖанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 3 x ~ 00:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C8127BDA74A31BFF0870D5DFF8AFE10A7760160
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527055   (595829) от 25.07.2012
-
-Reencuentros - The Secret of the Dancing Spirits (2004) [MP3|320 кб/с]<Native American, Ethno, Folk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Flying Condor (5:11)
-02.  Tatanka (5:44)
-03.  The Secret of the Dancing Spirits (3:46)
-04.  Ananau (5:11)
-05.  Love Mountain (5:43)
-06.  Rain Dance (4:06)
-07.  WayrapaMuspuynin (6:36)
-08.  Five Spirits (5:34)
-09.  All the Prety Things (4:43)
-10.  Sunquyman (6:26)(   Читать дальше...   )Жанр: Native American, Ethno, FolkПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5C45D93C57CB5A48E4E6D54607520D571FA2B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526866   (595826) от 25.07.2012
-
-NG: Самые удивительные фотографии: Секретные голоса / Nat Geo's Most Amazing Photo. Secret Voices (2009) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Данный цикл, рассказывает о сложной работе фотографов журнала "National Geographic". Каждая серия посвящена отдельному специалисту. Многие из них работают уже не один десяток лет, стараясь донести до нас, красоту нашей планеты. Они снимают в самых красивых и экзотических местах, часто в труднейших условиях, которые просто трудно себе представить. Их жизнь часто подвергается опасности, но они идут на риск, потому что их работа является смыслом их жизни. Травмы, болезни, одиночество и месяцы, проведённые вдали от родных и близких - вот расплата и цена, данной профессии. Ведь на них постоянно лежит ответственность за фотографии, публикуемые в одном из самых престижных журналов мира.Жанр: Документальный, научно-познавательный, путешествие, география, фотография, исследованиеПеревод: ДублированныйПродолжительность: 00:23:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FFA729A329212B123285F5233734122BE517BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

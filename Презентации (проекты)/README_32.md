@@ -1,3 +1,55 @@
+###  Публикация: 918865   (585751) от 16.07.2015
+
+Проекты - Motion Array - Glitch Promo [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905A973E435EC28257614EF7966BD07ADF91A091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918861   (585745) от 16.07.2015
+
+Проекты - Motion Array - Directors Cut [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084720D7E1890EC02BC616647E0FCB17EAE0B14F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918857   (585674) от 16.07.2015
 
 Проекты - Motion Array - Complete Presentation [AEP]
@@ -628,59 +680,6 @@ Cooking Design Pack - это мощный пакет, который помож�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DDEF8CFE1362B3AC41DCBE33E7C57EB31519BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920787   (575275) от 25.07.2015
-
-Проекты - VideoHive - Fast Fashion Opener [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Быстрая Мода - открывалка к Вашей презентации или товару
-Свежо, динамично, оригинально!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00441B708D5C0514EDA800E22C1E75E3522FC121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921191   (575270) от 25.07.2015
-
-Проекты - VideoHive - Hand Drawn Story [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44CD80C8CA82F9E13B58338BA49BA2887FA8B48D
 ```
 
 https://mybot314.ru/tekegram_catalog/

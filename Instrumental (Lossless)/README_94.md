@@ -1,3 +1,119 @@
+###  Публикация: 1660376   (189392) от 13.09.2023
+
+Mick Kolassa - Essentially Not Serious (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189392.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WPD (3:22)
+02. I’m Getting Late (2:53)
+03. My Hurry Done Broke (3:46)
+04. Whiskey in the Mornin’ (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268413C742ECB5A304DB105A8DDA0F52C16E9A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660373   (189388) от 13.09.2023
+
+Garnetta Cromwell - Time To Shine (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Marva Ann (Remix 2023) (4:07)
+02. Weekend (3:13)
+03. Open Jam (On Hess Street) (4:05)
+04. Singing The Blues (3:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16143D32510D8143E3B5E89992B81E83F104813C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590448   (188887) от 14.11.2022
+
+Will McCarty - Belonging (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belonging (4:33)
+02. Trouble Follows (8:02)
+03. Pathways (4:11)
+04. Jones (6:19)Жанр: BluesПродолжительность: 00:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF4032313DD802D3E821D01474E5FF0BFBA49D2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590442   (188878) от 14.11.2022
+
+The Victor Lawson Blues Band - Mainstreet Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Woman Has a Black Cat Bone (4:11)
+02. House of the Rising Sun (4:49)
+03. Killing Floor (3:53)
+04. I'm Going Home (To Live with God) (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88839BD7E3A85EF8CF4F930EF638784718564EB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590438   (188877) от 14.11.2022
 
 The Jorgensens - Americana Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
@@ -628,122 +744,6 @@ VA - A Tribute To Eric Clapton (2022) [FLAC|Lossless|image + .cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC9CA9171D4DCF7665DBCF97957FFC2DC96ED3B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663106   (187180) от 20.09.2023
-
-The Blues Project - Evolution (2023) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evolution
-02. I Won't Go Back
-03. I Played A Little Fiddle
-04. In the Spirit(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1098EAEFCC440DE0F11B4EFBCC9186F7294AEC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663112   (187161) от 20.09.2023
-
-Lachy Doley - A World Worth Fighting For (2023) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A World Worth Fighting For
-02. These Words
-03. Get Out Your Ear's Way (feat. Bootsy Collins)
-04. Don't Beat Yourself Up(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89D784EBD894A23D5B82F15EAD9F8A4392B576B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426832   (185362) от 26.11.2020
-
-VA - Relax Winter Soul Music (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etta James - Something's Got a Hold on Me (02:48)
-02. Rosco Gordon - Booted (03:01)
-03. Sugar Boy Crawford - Jock-A-Mo (02:25)
-04. Jackie Brenston & His Delta Cats - Rocket 88 (02:47)(   Читать дальше...   )Жанр: SoulПродолжительность: 01:24:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658623277862D267A1B549B1382A6425426BF593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426895   (184875) от 26.11.2020
-
-Robert Connely Farr - Country Supper (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Americana, Country blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cypress Grove - 03:52
-02. Girl In The Holler - 02:32
-03. Catfish - 02:49
-04. Water's Rising - 04:48(   Читать дальше...   )Жанр: Blues Rock, Americana, Country bluesПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE218B70D3AC75DC3BADB1D7BEB2F911C21B8A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

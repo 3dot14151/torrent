@@ -1,3 +1,119 @@
+###  Публикация: 660619   (1004442) от 01.01.2020
+
+Larry Burton - 500 Miles Of Highway (2011) [FLAC|Lossless|tracks + .cue] <Blues, Rockin' Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Inside My Room [3:36]
+02. High Heels and Tight Blue Jeans [3:15]
+03. I've Got Your Body (He Has Your Mind) [4:29]
+04. You're So Mean To Me [2:40](   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D9F31B620EB6D705BE332997C0EF8923EBC795D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1486930   (1004333) от 02.08.2021
+
+Polly O'keary And The Rhythm Method - 50 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brand New Day (4:10)
+02. Too Much Like I Care (4:33)
+03. Can't Catch Me (4:16)
+04. Smiling (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E9F6B4AAB76B1D0EBF684638B19086242F7108
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487090   (1004054) от 03.08.2021
+
+Dirty Dave Osti - Retro-Sonic Blues Train (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Retro-Sonic Blues Train
+02. Kiss The Pain
+03. The Drifter
+04. Bleeding Wishes(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BAA03289F60F7E172A400677E9A4C282A1EEC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487104   (1004053) от 03.08.2021
+
+Keith Richards - Blues (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004053.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Babe (2019 – Remaster)
+02. Big Town Playboy (2019 – Remaster)
+03. I Could Have Stood You Up (2019 – Remaster)
+04. Key To The Highway(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86ADF10722C6475A9826C23BFB6522043E838493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487252   (1003793) от 04.08.2021
 
 Willie Jackson - All in the Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -696,146 +812,6 @@ Ethan Kennedy - Raucous (2009) [FLAC|Lossless]<Blues>
 07. Car Driver the Moon
 08. Silverslide
 09. RaucousЖанр: BluesПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602886   (997282) от 14.01.2013
-
-Eddie Turner - Miracles & Demons (2010) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Booty Bumpin'
-02. I'm a Good Man
-03. Say
-04. Because of You
-05. Ride a Painted Pony
-06. Miracles & Demons, Pt. 1
-07. I Remember
-08. Blues Fall Down Like Rain
-09. Monkey See, Monkey Do
-10. In The Morning(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605156   (995924) от 19.01.2013
-
-Eddie and Vaan Shaw - Naked (2009) [FLAC|Lossless]<Blues,Acoustic>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me And My Boy
-02. Lick Skillet
-03. Greedy Man
-04. Voices Crying
-05. Mississippi Sax
-06. Greenville Bound
-07. My Friend Roscoe
-08. Black Eyed Peas
-09. Pickin' Cotton
-10. Motel 6(   Читать дальше...   )Жанр: Blues, AcousticПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605174   (995922) от 19.01.2013
-
-Elliott and the Untouchables - Danger Zone (1997) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Little Woman
- 02. Ain't No Big Thing
- 03. More Than That
- 04. Empty Heart
- 05. Where Were You
- 06. Check Out Time
- 07. Crazy 'Bout You
- 08. Why Baby Why
- 09.  J.T.'s Groove
- 10. Danger Zone(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605163   (995914) от 19.01.2013
-
-Eddie Baytos & The Nervis Bros. - Take Some Mambo Time (1991) [FLAC|Lossless]<Blues-Zydeco>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind Suspicion
- 02. Painted Dream
- 03. Don't Beat Yourself Up
- 04. Come Together
- 05. Do Sumpin'
- 06. Lonely Man
- 07. Post Man
- 08. I Ain't Drunk
- 09. Take Some Mambo Time
- 10. Loiusanne(   Читать дальше...   )Жанр: Blues-ZydecoПродолжительность: 00:51:39
 
 ## Скачать торент
 ```bash

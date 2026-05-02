@@ -1,3 +1,119 @@
+###  Публикация: 1131683   (731509) от 08.02.2022
+
+Cherry Laine - The Singles Collection (1977-1986) Vinyl 7",12" [MP3|320 Kbps] <Electronic, Funk-Soul, Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Черри Лейн (Cherry Laine, настоящее имя Флоренс Миллз (Florence Evadne Mills) - немецкая диско-певица ямайского происхождения. Самый известный хит - Catch The Cat. В раздачу вошли все синглы исполнительницы, включая малоизвестные, но - интересные в экспериментальных одно-сезонных группах.01. Everybody Knows It (1977) (2:48)
+02. Island Guy (1977) (2:26)
+03. A Night In Chicago (1977) (3:44)
+04. You Love Me In a Special Way (1977) (2:48)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, Disco, PopПродолжительность: 02:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4658E567BDE89A19D9288521B561D0AD508F9ABD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529876   (731505) от 08.02.2022
+
+VA - Свежий Русский Хит от ALEXnROCK часть 9 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731505.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2021 - 2022 год. Это 9я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Коста Лакоста - Звенит январская вьюга (Remix 2022)
+02. Orlove - Белым Небом Zuffer & Dj Simka Remix
+03. Газанфар Алиев - Как Тигрица Хищная
+04. Anna Asti - Феникс (Lavrushkin X Larichev Radio Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 02:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6BCDB46E7CD76B26D2417C119D901B51DD435F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127753   (731149) от 22.04.2017
+
+VA - Сотка популярных весенних хитов версия № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Инфинити Feat. Гена Дудин - Воланчик 3:18
+002. Илья Гуров - Геолокация 3:14
+003. Егор Диких - Маэстро 3:55
+004. Владимир - Голливуд 3:19(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7B603CF98C64D994E059185CFFE8478918EE45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127747   (731145) от 22.04.2017
+
+VA - Звездная тусовочка. Отдыхаем с лучшими хитами. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Диана Громова - Не Хочется 2:58
+002. Mike Perry Feat. Casso - Inside The Lines 3:25
+003. Катерина Sky - Мне Тебя Не Хватает 3:21
+004. Sigala & Digital Farm Animals - Only One 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E9A6761CB1FA8CD3400D41DD14B87F25ACE8A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127755   (731144) от 22.04.2017
 
 VA - Лучший весенний хит. Версия № 11 (2017) [MP3|256 Kbps] <Pop>
@@ -629,122 +745,6 @@ VA - SpaceSynth & ItaloDisco Hits - 1 (2016) [MP3|320 кб/с] <Italo-Disco, Syn
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3021E542D3718A45B59FAC948BAE29721CC352FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023248   (726195) от 04.06.2016
-
-VA - Новая Русская Дискотека - 5 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 140 ударов в минуту feat. DiscoBonus - Мурашки по телу (80-s rmx)
-02. Придет весна - Андрей Шпехт
-03. Ангел и Кот - А во дворе
-04. Сергей Хижняк и гр. Шоколад-Виктория - Дальнобойщик(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 05:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEF8F846C8C5AACC80444CE730F463D73FDACA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217968   (725207) от 08.04.2018
-
-VA - German Top 100 Single Charts 06.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725207.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marshmello & Anne-Marie - FRIENDS
-002. Olexesh - Magisch (feat. Edin)
-003. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
-004. Drake - God's Plan(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:45:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A42FA4E6932A47EB29A5AC68A57428DB4619721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218167   (725204) от 08.04.2018
-
-VA - German Top 100 Single Charts 09.04.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725204.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marshmello & Anne-Marie - FRIENDS
-002. Olexesh - Magisch (feat. Edin)
-003. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
-004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:725F9018E1D545CE02A8D2287773E6B8FA6A05A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399700   (725159) от 02.08.2020
-
-VA - German Top 100 Single Charts 31.07.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apache 207 - Unterwegs
-02. Capital Bra x Clueso x KC Rebell - Andere Welt
-03. UFO361 & Sonus030 - Shit Changed
-04. Apache 207 - Bläulich(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1059C6B1D12F98D6DC5465A59AFEA04F06DFC296
 ```
 
 https://mybot314.ru/tekegram_catalog/

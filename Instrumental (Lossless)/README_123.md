@@ -1,3 +1,119 @@
+###  Публикация: 1743136   (105419) от 15.08.2024
+
+Junco Shakers - Lace up Ya Boots... It's the Junco Shakers (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Island Line (3:07)
+02. Body Vandal (3:25)
+03. Can't Be Satisfied (3:30)
+04. Glad When You're Dead (2:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7C7111998A4D03444C8CA078E9F1F89043D1FD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743644   (105377) от 17.08.2024
+
+Mick Clarke - West Coast Connection (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105377.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hard Times (3:26)
+02. Madison Blues (3:20)
+03. Ain't That the Truth (3:37)
+04. Mona (3:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E593075C28B3688D95DA1E83AAEE355F7741169F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743650   (105375) от 17.08.2024
+
+Mick Clarke - Rock and Roll, Hoochie Koo the Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graveyard Shift (5:35)
+02. Cover Me (3:30)
+03. Talking With the Blues (4:40)
+04. Dry Road Blues (3:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18C574A8CF515B3BC3606CCC6A297F1C5EEFB6DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1743655   (105372) от 17.08.2024
+
+Maria Aurigema - Kindred Spirits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby "B" (2:33)
+02. The Cottage (2:21)
+03. Kindred Spirits (2:47)
+04. Spinning Around (2:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63403734A08B5F5367AD87562BB166A25C2F025C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1744562   (105264) от 22.08.2024
 
 Devon Allman - Miami Moon (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock, Soul>
@@ -629,122 +745,6 @@ Alastair Greene, Eric Johanson & Katarina Pejak - Blues Caravan 2024 (Blues Cara
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25F548720B8F123FE1E62D37D1F73321805F6B52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752718   (103910) от 01.10.2024
-
-Greg Nagy - The Real You (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Real You (5:01)
-02. Mississippi Blues (3:22)
-03. Crazy (4:16)
-04. Never Mine (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD466FB5E96D51BBF479072C108A3CA25FB9BE32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752715   (103908) от 01.10.2024
-
-Aisha Khan - The Magnificent Twelve (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Joe Louis - Good Morning Midnight (4:31)
-02. Big Sandy - Laying Down My Cards (3:26)
-03. Paul Ansell - Come on Little Baby (3:08)
-04. Madeleine Rose Witney - Travelling Heavy (4:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C590744AF295E731210023F5270845DD6180EA64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752719   (103905) от 01.10.2024
-
-Jesse "The Rad Hatter" Bedard - Lonely Busker Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro/Welcome to the Station (0:37)
-02. Lonely Busker Blues (2:56)
-03. Stuck On You (4:00)
-04. Ganja Babe (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C903C8B675B2CFD96FC6B346A74EE6B8C5321F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753570   (103830) от 05.10.2024
-
-Canned Heat - Dog House Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kings Of The Boogie (3:02)
-02. Stoned Bad Street Fighting Man (3:18)
-03. So Fine (3:09)
-04. You Can't Get Close To Me (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C230B58ED3181DF4CE8B8B3CF70E7CB66442D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

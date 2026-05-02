@@ -1,3 +1,354 @@
+###  Публикация: 1333784   (301444) от 26.10.2019
+
+IQ - Resistance (Digipak) (2019) [FLAC|Lossless|image + .cue] <Neo-progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301444.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Neo-progressive RockПродолжительность: 01:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BA494A18638DCDE241DDB90A479FE35D8CADF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961207   (301238) от 01.12.2015
+
+Fish (ex.-Marillion) - Sunsets On Empire (1997) [FLAC|image + .cue]<Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.The Perception Of Johnny Punter  8:36
+2.Goldfish & Clowns  6:36
+3.Change Of Heart  3:41
+4.What Colour Is God?  5:51(   Читать дальше...   )Жанр: Prog RockПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BED35FC185E6A0C692F4ACA05EAF2532242621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961269   (301030) от 01.12.2015
+
+Pink Floyd - 1965 - Their First Recordings (2015) [FLAC|tracks + .cue]<Psychedelic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucy Leave (02:55)
+02. Double O Bo (02:58)
+03. Remember Me (02:46)
+04. Walk with Me Sydney (03:11)(   Читать дальше...   )Жанр: Psychedelic Rock, Blues RockПродолжительность: 00:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D78CDB2FE07199A8BCD097FD2C819FE48B3F34B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585943   (300902) от 07.12.2012
+
+The Mahavishnu Orchestra - 6 CD (1971 - 1976) [FLAC|Lossless]<Jazz Rock Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_300902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All In The Family (6:00)
+02. Miles Out (6:42)
+03. In My Life (3:20)
+04. Gita (4:26)
+05. Morning Calls (1:21)
+06. The Way Of The Pilgrim (5:13)
+07. River Of My Heart (3:38)
+08. Planetary Citizen (2:13)
+09. Lotus Feet (4:21)
+10. Inner Worlds Part 1 & 2 (6:37)Жанр: Jazz Rock FusionПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078480   (300697) от 01.12.2016
+
+Violet District - Terminal Breath (1992) + Bonus 2CD, Remastered, 2000,Tempus Fugit  [FLAC|Lossless|image + .cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Necessary Goodbyes 5:39
+02. Capilary Action 10:20
+03. Lustretless Fright 5:57
+04. Ego 0:54(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174AAF0253E476848E269B223BAF6772691B7386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423514   (300462) от 13.11.2020
+
+Jakko M Jakszyk - Secrets & Lies (2020) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before I Met You (5:45)
+02. The Trouble With Angels (5:33)
+03. Fools Mandate (4:15)
+04. The Rotters Club Is Closing Down (4:09)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FB5664BCBE1F7315E1FD49F1ED8BB0459B7081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184699   (298773) от 18.11.2017
+
+Roy Orbison & The Royal Philharmonic Orchestra - A Love So Beautiful (2017) [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Dreams
+02. Crying
+03. I'm Hurtin'
+04. Oh, Pretty Woman(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB72C4EA0A5A6C05BFB9E4E4F212E93E2713AEA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1261982   (298521) от 13.11.2018
+
+VA - Shine On You Crazy Diamond: A Tribute To Pink Floyd's Greatest Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Side Of The Moon – Shine on You Crazy Diamond (06:26)
+02. UK Floyd Division – Time (06:26)
+03. Berzon – Comfortably Numb (05:09)
+04. The Nashville Suns – Learning to Fly (02:16)(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:137E03AEBAE8F1A9E3AD8F91C592AAC7366935B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423789   (298152) от 14.11.2020
+
+Phog - This World (2020) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Prog, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening
+02. Winter Storm
+03. Satellite
+04. Altiplano(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog, InstrumentalПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDDEAFC937671764AF13E87BE891982F564CFF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961923   (297215) от 03.12.2015
+
+The Black Noodle Project - Ghosts & Memories (2013) [FLAC|image+.cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Wanderer of Lost Moments
+02.They Live, We Sleep
+03.The Owls (Are Not What they Seem)
+04.Shades of Tomorrow(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF467B0A0160F6166DD69A7C2FCA7FFD83277467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961803   (296989) от 03.12.2015
+
+Fish (ex.-Marillion) - Fellini Days (2001)  [FLAC|image + .cue]<Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296989.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.3D	 9:11
+2.So Fellini  4:06
+3.Tiki 4  7:32
+4.Our Smile  5:25(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939CFFCD33F9DAF71FC4017794EFE5468DA6F99D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334372   (296925) от 28.10.2019
+
+Giorgio 'Fico' Piazza - Autumn Shades (2018) [FLAC|Lossless|image + .cue] <Progressive Rock, RPI>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Appena Un Po' 7:50
+02. Dove... Quando 10:01
+03. La Carrozza di Hans 6:51
+04. Geranio 6:40(   Читать дальше...   )Жанр: Progressive Rock, RPIПродолжительность: 01:11:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F62B51A500E176DB31530EB793A8496203AC489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262326   (296853) от 14.11.2018
 
 Elvis Presley - The Real... Elvis Presley At The Movies (2018) 3CD [FLAC|Lossless|tracks + .cue] <Rock 'n' Roll, Pop>
@@ -397,351 +748,6 @@ Bryan Adams - Room Service (2004) [FLAC|Lossless|image + .cue] <Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22C7F9517E6ABDBE64C0EB61F58EB90F9E2F4C8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262542   (292980) от 16.11.2018
-
-Mark Knopfler - Down the Road Wherever (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trapper Man
-02. Back On The Dance Floor
-03. Nobody’s Child
-04. Just A Boy Away From Home(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952323B75A48FA0894AF36E4B0F059C27C3E5B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262817   (292885) от 16.11.2018
-
-Mark Knopfler - Down the Road Wherever (2018) Deluxe [FLAC|Lossless|image + .cue] <Rock, Blues Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292885.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trapper Man
-02. Back On The Dance Floor
-03. Nobody's Child
-04. Just A Boy Away From Home 5:12)(   Читать дальше...   )Жанр: Rock, Blues Rock, Folk RockПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBD8E691BD0B8F1C592C79890D9AB717F27AB04E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334842   (291674) от 31.10.2019
-
-David Kilgour And The The Heavy Eights - Bobbie's A Girl (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Psychedelic Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entrance (02:50)
-02. Smoke You Right Out of Here (02:50)
-03. Crawler (02:26)
-04. Threads (04:05)(   Читать дальше...   )Жанр: Indie Rock, Psychedelic Rock, Folk RockПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D5D13C89F566F78444628975E84B852BD59BB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185643   (291029) от 22.11.2017
-
-Queen - News Of The World (1977) 40th Anniversary Edition (2017) 3CD [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  We Will Rock You  2:02
-02.  We Are The Champions  2:59
-03.  Sheer Heart Attack  3:28
-04.  All Dead, All Dead  3:10(   Читать дальше...   )Жанр: RockПродолжительность: 02:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF3D9374DD3830F51793A1BB1A581817B153422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963012   (290737) от 06.12.2015
-
-Candice Night (Blackmore's Night) - Starlight Starbright (2015) [FLAC|Image+cue]<Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock A Bye Baby
-02. Robin Redbreast
-03. So This Is Love
-04. Sleep Little Baby(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB816BF2C485B8C881F74340813240FAAA5BA9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080127   (290073) от 06.12.2016
-
-Creedence Clearwater Revival - Ultimate Creedence Clearwater Revival: Greatest Hits & All-Time Classics (2012) 3CD-Set [FLAC|Lossless|image + .cue]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proud Mary 3:08
-02. Born On The Bayou 5:16
-03. Bad Moon Rising 2:21
-04. Good Golly Miss Molly 02:42(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C81895E542DEC6E5E5B15E081F4921C0A8B66D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963360   (287642) от 08.12.2015
-
-Billy Sherwood - Citizen (2015) [FLAC|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Citizen [06:33]
-02. Mand & The Machine [06:44]
-03. Just Galleo And Me [05:01]
-04. No Mans Land [05:35](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5DD592D46117D33D9E3BF3DC9401FD31D1843C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963615   (286892) от 08.12.2015
-
-Europe - Super Hits (1998) [FLAC|tracks+.cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Final Countdown (5:10)
-02. Sign of the Times (4:14)
-03. Carrie (4:31)
-04. Cherokee (4:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFBA74E2484A69FF7DFA54850BF44956CF78BC85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 676341   (286767) от 12.12.2013
-
-The Beatles - 33 Albums, 3 Singles, 6 Box-Sets (1963-2013) Complete CD Discography /1987-2013, Apple Records, EMI/ [FLAC,APE,ISO.WV|Lossless]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_286767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новые альбомы The Beatles не выходили уже с 1970 года... Тем не менее, битловские диски в последнее время выходят с завидной для многих групп регулярностью. Предлагаю вашему вниманию издания битловской дискографии, официально выпущенные на компакт-дисках под лейблом Apple Records и их дистрибьютора EMI.01. Crinsk Dee Night (Speech)Жанр: Classic Rock
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080973   (286451) от 08.12.2016
-
-Neil Young - Peace Trail (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peace Trail (5:33)
- 02. Can't Stop Workin' (2:45)
- 03. Indian Givers (5:41)
- 04. Show Me (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C4F2610CB44A88551CB12F6C4929B415C2DDD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263353   (286298) от 20.11.2018
-
-Luke Combs - This One's For You Too (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Country Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out There
-02. Memories Are Made Of
-03. Lonely One
-04. Beer Can(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:59:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D786C8CE86812D2B466E1B9469EE0320BD20A498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081020   (286105) от 08.12.2016
-
-The Rockets - Back Talk / Rocket Roll (1981,1982) 2005, Remastered [WavPack|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Talk (3:52)
- 02. Jealous (4:10)
- 03. Lift You Up (3:44)
- 04. Shanghaied (3:59)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9AE2B9D659FCD80F0BDEB33250C5839926490F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 522661   (621154) от 14.07.2012
+###  Публикация: 1544210   (623808) от 14.04.2022
 
-[Wallpapers 16+] Beautiful Girls Wallpapers (14.07.12)
+Аста Нильсен. Банда Запаты / Zapatas Bande (1914) TVRip
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623808.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего столаРазрешение файлов: 11680х1050 - 2560x1600
+Наверное фильм можно назвать криминальной комедией. Для съёмок приключенческого фильма немецкая кинофабрика отправляет съёмочную группу в далёкий уголок Италии, где орудует шайка разбойников. Руководство надеется, что газетные заметки о похождениях бандитов помогут им снять актуальный киношедевр. Но случилась незадача - цепочка событий привела к тому, что съемочную (   Читать дальше...   )Производство: Германия, Projektions-AG Union (PAGU)Жанр: Комедия, короткометражный, немое киноРежиссер: Урбан ГадАктеры: Аста Нильсен, Фред Иммлер, Зента Айхштедт, Аделе Ройтер-Эйхберг, Мэри Шеллер, Ганс Лансер- Рудольф, Карл Дибберн, Макс Агерти, Эрнст Кернер, Эрик ХарденПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские отдельным файломПродолжительность: 00:42:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4E0BD5E432A8AF0FA7CED8930D0A14B119C39F3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 522207   (621152) от 14.07.2012
+###  Публикация: 1544170   (623807) от 14.04.2022
 
-[Wallpapers] HD Nature Wallpapers (13.07.12)
+Path Finder 2130 [Multi/Ru]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623807.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.04.2022Разработчик: © 2022 CocoatechПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:111966AF22F87228B15A49A25FE2F3ED1EA47F03
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,32 +50,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 519896   (621151) от 14.07.2012
+###  Публикация: 1544154   (623806) от 14.04.2022
 
-VA - Urban House: Deep House Elements For Urban People (06-July-2012) [MP3|320 кб/с]<Deep House>
+Футбол. Лига Чемпионов 2021-2022. 1/4 финала. Ливерпуль (Англия) - Бенфика (Португалия) (13.04.2022) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2021-2022. 1/4 финала. Ответный матч. Ливерпуль (Англия) - Бенфика (Португалия) (13.04.2021)
+СУДЬЯ Гёзюбююк Сердар (Харлем, Нидерланды)
+Судья на линии 1: ван Зуйлен Йоост (Нидерланды)
+Судья на линии 2: Балдер Йохан (Нидерланды)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:55:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACE9F1E8E24F92D5CFE3EB400A304177405F675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543867   (623805) от 14.04.2022
+
+VA - Trip to Seville: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schwarz & Funk – Summerbreeze (original mix) (05:45)
+02. Michael E – Mind Games (feat Ashley Slater & Fabio Testa - original mix) (04:48)
+03. Gary B – It Feels Like Summer (03:54)
+04. Leo De La Rosa – Juego Facil (feat Maneela) (05:16)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544047   (623804) от 14.04.2022
+
+Chris van Buren - Дискография (2015-2018) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthwave, Italodance>
 
 >>Electronic
->>House
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Supermodels - Sumasutra (3:52)
-2. Skyline - Sky L (4:25)
-3. New Deep Room (Night mix) - Alexis Montgomery (5:39)
-4. Black Diamond (deep progression mix) - Bass O' Matik (5:39)
-5. Mexico (feat Enjoy - Da vocal mix) - Karl Van Dee (5:42)
-6. Heaven & Paradise - K & C (3:59)
-7. Improbality (feat Voiceen - Phunkadeep mix) - Black Jag (5:39)
-8. We Can Dance (feat Barra Lopez - Modell & Mercier mix) - Caesar Anthony (5:44)Жанр: Deep HouseПродолжительность: 02:42:30
+01. Aim for the Moon (4:16)Жанр: Spacesynth, Synthwave, ItalodanceПродолжительность: 03:31:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DD440D247F42CBA6639FB3D3C018130BC99DD8C
+magnet:?xt=urn:btih:8910519E33DAC75419E808ECB76A8A27923B705F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,30 +134,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 521959   (621150) от 14.07.2012
+###  Публикация: 1544189   (623803) от 14.04.2022
 
-Reverence - When Darkness Calls (2012) [WavPack|Lossless]<Heavy Metal/Power Metal>
+Ronnie Romero - Raised on Radio (2022) Cover album [FLAC 2.0|44.1/24|WEB-DL|tracks] <Melodic Hard Rock>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623803.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. When Darkness Calls (5:01)
-02. Bleed For Me (4:11)
-03. Phantom Road (3:47)
-04. Devil In Disguise (4:31)
-05. Too Late (5:17)
-06. Gatekeeper (3:55)
-07. The Price You Pay (4:19)
-08. Monster (4:54)
-09. Revolution Rising (5:33)
-10. After The Leaves Have Fallen (3:36)(   Читать дальше...   )Жанр: Heavy Metal/Power MetalПродолжительность: 00:49:09
+01. Sin's A Good Man's Brother (Grand Funk Railroad) (4:30)
+02. Backstreet Love Affair (Survivor) (3:59)
+03. No Smoke Without A Fire (Bad Company) (4:22)
+04. I Was Born To Love You (Queen) (3:43)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:03
 
 ## Скачать торент
 ```bash
@@ -118,239 +163,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 522827   (621149) от 14.07.2012
+###  Публикация: 1543989   (623802) от 14.04.2022
 
-VA - Club In Car Summer Vol.4 (2012) [MP3|320 кб/с]<Dance, Club>
+Axel Rudi Pell - Lost XXIII (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cathy Burton & Omnia - Hearts Connected (Skytech Remix)
-02. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
-03. Bartlett Bros & Matt Loki feat. Tiff Lacey - Sweet Child (Fabio XB Rework)
-04. Julian Vincent and Shannon Hurley - Lost In Space (DoubleV Remix)
-05. Andy Duguid feat. Shannon Hurley - I Want To Believe (Original Mix)
-06. S.K.A.M. - Outside The Box (Original Mix)
-07. David Amo, Julio Navas - I Can (Original Mix)
-08. Toni Braxton - I Heart You (Mark Picchiotti Re-Imagined Vocal Mix)
-09. Nicologik and Zephyr vs Tiff Lacey - Lost for Words (Extended Mix)
-10. Solarstone feat. Clare Stagg - The Spell (Pulser Mix)Жанр: Dance, ClubПродолжительность: 05:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6017EF703ED780771F5984B78D44D5A4DA338810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522261   (621148) от 14.07.2012
-
-Reverence - When Darkness Calls (2012) [MP3|320 кб/с]<Heavy/Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Darkness Calls (5:00)
- 02. Bleed For Me (4:11)
- 03. Phantom Road (3:47)
- 04. Devil In Disguise (4:31)
- 05. Too Late (5:17)
- 06. Gatekeeper (3:55)
- 07. The Price You Pay (4:19)
- 08. Monster (4:54)
- 09. Revolution Rising (5:33)
- 10. After The Leaves Have Fallen (3:36)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C956D86962F05008B962756B9BDD053437E180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522443   (621147) от 14.07.2012
-
-[картинки] Native American Art
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621147.jpg" />
-</div>
-
-
-###  Подробнее
-
-На мой взгляд довольно интересные художники пишущие картины с индейцами.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:061A3E7AC2546D336BA408B6DB2E9973B48D6921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522243   (621145) от 14.07.2012
-
-[Wallpapers]Cool Mixed HQ Colorful Wallpapers 06
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17EBC007A9253403526FF48F8E71D54CC13F74C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522946   (621144) от 14.07.2012
-
-[Wallpapers] Best HD Wallpapers Pack (15.07.12)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD8A61933D4E9C91CAC3B48B4AE05B56C5E784E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522241   (621143) от 14.07.2012
-
-[Wallpapers]Водопады
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0890B701B9AF5A72F7387E38BD55D4F1E8F05EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522829   (621142) от 14.07.2012
-
-VA - На гребне хитового лета (2012) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621142.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Инь - Ян - Инопланетянин (4:21)
-2. DJ Nano & Kate Ryan feat. Dmol - The Next Road (3:35)
-3. Инфинити - Я Так Скучаю (Alex Menco Remix) (3:35)
-4. Pobeda - Лето Любви (3:17)
-5. Тимур Темиров - Лето Жаркое (3:30)
-6. Christina Aguilera feat. Chris Mann - The Prayer (3:08)
-7. Иракли - Я Тебя Люблю (4:09)
-8. Ирина Нельсон - Теплое Солнце (3:12)
-9. Татьяна Котова - Вампирица (3:12)
-10. Sak Noel - Loca People (4:22)Жанр: PopПродолжительность: 05:51:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383E73FC3753D5DDF8799D6F499A3C06189E92D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522132   (621141) от 14.07.2012
-
-Black Breath - Sentenced To Life (2012) [FLAC|Lossless]<Death 'n' Roll/Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feast of the Damned (2:52)
-02. Sentenced To Life (2:24)
-03. Forced Into Possession (1:57)
-04. Home of the Grave (3:30)
-05. Endless Corpse (4:31)
-06. Mother Abyss (2:33)
-07. Of Flesh (3:32)
-08. Doomed (2:00)
-09. The Flame (4:09)
-10. Obey (5:12)Жанр: Death 'n' Roll/Thrash MetalПродолжительность: 00:32:41
+01. Lost XXIII Prequel (Intro) (1:47)
+02. Survive (5:01)
+03. No Compromise (4:57)
+04. Down on the Streets (4:46)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:54:42
 
 ## Скачать торент
 ```bash
@@ -362,34 +192,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 522582   (621140) от 14.07.2012
+###  Публикация: 1544086   (623801) от 14.04.2022
 
-VA - Paradise Islands (Sicily Beach Chillhouse Lounge Edition) (10-July-2012) [MP3|320 кб/с]<Chill House, Lounge>
+Sandboxie 5.55.18 [Multi/Ru]
 
->>Архив торрентов
->>Архив Музыки
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Lovebirds - Running Backwards (6:36)
-2. Roberto De Carlo - Never Forget - Jay-J's Shifted Up Mix (7:13)
-3. Ricky Inch - Summer - Ricky Inch Trumpy Mix (8:02)
-4. Coeo - Get Down - Fex Fellini Remix (7:25)
-5. Roed Svensk - Never Be the Same - Main Mix (6:09)
-6. Raw Artistic Soul - Flores para ti - Can 7 Part 1 (6:53)
-7. Simon Grey - Signs - Pete Gust & Lefthander Remix (5:34)
-8. Urban Bang - The Birch (5:27)
-9. Ben Hart - Perfect Love Song - Original Mix (7:05)
-10. Ben From Corduroy - Come Together (4:22)(   Читать дальше...   )Жанр: Chill House, LoungeПродолжительность: 01:29:23
+Sandboxie - yтилита для контроля за работой различных программ. После установки утилиты взаимодействия всевозможных программ с системой будут происходить через неё. Это даст возможность удалять следы последнего сеанса работы приложений. Таким образом Sandboxie выступает своеобразным фильтром, в котором задерживаются все изменения, вносимые в систему различными программами. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC3B9BC02CC5FBE33F525E81F2C7A643B09669C9
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,23 +218,332 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 350935   (621133) от 17.06.2011
+###  Публикация: 1544082   (623800) от 14.04.2022
 
-Парк Юрского периода / Jurassic Park (1993) [1080p] HDTVRip
+Второй хор / Second Chorus (1940) BDRip [H.264]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623800.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Экспансивный богач и профессор уговаривает пару ученых-палеонтологов приехать на остров у побережья Коста-Рики, где он устроил реликтовый парк. В парке этом водятся древние зверушки — динозавры, которые по его идее и должны стать гвоздем программы нового аттракциона.
+Беспечные друзья-трубачи Дэнни О'Нил и Хэнк соседи по комнате и конкуренты за лидерство в джаз-оркестре любимого колледжа. Вдобавок, они являются самыми "старыми" студентами в университетском городке. Однажды ребята встречаются с менеджером налоговой службы Эллен Миллер, которая вызывает их на разбирательство по поводу непогашения задолженности по векселю. (   Читать дальше...   )Производство: США, Boris Morros ProductionsЖанр: мюзикл, мелодрама, комедияРежиссер: Г.К. ПоттерАктеры: Фред Астер, Полетт Годдар, Арти Шоу, Чарльз Баттерворф, Бёрджесс Мередит, Фрэнк Мелтон, Джимми Конлин, Дон Броди, Марджори Кэйн, Джоан БарклайПеревод: профессиональный многоголосый (т/к Культура) профессиональный двухголосый (Red Media)Субтитры: английскиеПродолжительность: 01:23:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91C6A7DE1D678D9EDD4697CA278339CE800F32B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544188   (623799) от 14.04.2022
+
+Nazareth - Surviving The Law (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Days [00:03:22]
+02. You Gotta Pass It Around [00:03:21]
+03. Runaway [00:03:33]
+04. Better Leave It Out [00:03:33](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D802157A63EE09C7D02C0A21A4750D9C7453F50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544191   (623798) от 14.04.2022
+
+VA - Vocal Trance 2022 Vol 2 (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ana Criado - Lockdown Heart (Original Mix) (3:30)
+02. 4 Strings & Susana - Completely (Original Mix) (2:49)
+03. James Dymond & Stine Grove - Birds Of A Feather (Original Mix) (4:15)
+04. Alan Morris with La Antonia & Sue Mclaren - Nowhere Left To Hide (BiXX Remix) (3:53)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44EBDA386EC43B0D6FCB9BB7DF7892A51BC0D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544110   (623797) от 14.04.2022
+
+Uninstall Tool 3.6.0 Build 5681 RePack (& Portable) by 9649 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623797.jpg" />
+</div>
+
+
+###  Подробнее
+
+Uninstall Tool — быстрая, мощная и надежная альтернатива системному апплету «Установка и Удаление программ». Это безопасный, надежный и удобный способ удалять ненужные приложения и повысить эффективность работы вашего компьютера. Uninstall Tool обладает большим количеством функций: показывает скрытые установленные программы, сортирует список программного обеспечения (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0B041B01E3C1909E02D1AFBB4A1EB182E9EF171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544096   (623796) от 14.04.2022
+
+TG Pro (Temperature Gauge Pro) 2.69 [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623796.jpg" />
+</div>
+
+
+###  Подробнее
+
+TG Pro — контроль температуры и вентиляторов вашего Mac.
+Кому нужен TG Pro? Возможно, у вас новый компьютер и проблем с температурой нет, но есть такая пословица: «Если бы знал, где упаду, подстелил соломку». Temperature Gauge Pro — соломка, которая не требует больших ресурсов (10 Мб — оперативная память, 0,2% — ЦПУ), а поэтому лучше её иметь в активных процессах, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.04.2022Разработчик: © 2022 Tunabelly SoftwareПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145092   (623795) от 24.06.2017
+
+Tape Five - Bossa For A Coup (2014) Reloaded, Remastered [FLAC|Lossless|image + .cue] <Electro Swing, Nu Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New Mission
+02. Soulsalicious
+03. Senorita Bonita
+04. Cancun (A Tribute To Henry Mancini)(   Читать дальше...   )Жанр: Electro Swing, Nu Jazz, Bossa NovaПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F02443C9D1A3DC9E1A9855EAC0E08CCCD0C3F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144958   (623794) от 24.06.2017
+
+Thornetta Davis - Honest Woman (2016) [MP3|320 Kbps] <Detroit Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When My Sister Sings the Blues (01:24)
+02. I Gotta Sang the Blues (feat. Kim Wilson) (05:09)
+03. That Don't Appease Me (04:26)
+04. Set Me Free (feat. The Larry McCray Band) (03:35)(   Читать дальше...   )Жанр: Detroit BluesПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79A54D533A8C25E3FB5F911EC4BBBE38CAF5D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144848   (623793) от 24.06.2017
+
+Primal Fear - Angels Of Mercy: Live In Germany (2017) [FLAC|Lossless|image + .cue] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Countdown to Insanity
+02. Final Embrace
+03. In Metal We Trust
+04. Angel In Black(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97789184288F916309C9A519C3BDCA1BBC05BE30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145211   (623792) от 24.06.2017
+
+Территория заблуждений с Игорем Прокопенко (2017.06.24) SATRip
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день приносит научные сенсации, которые противоречат нашим привычным знаниям. Невероятные находки археологов опровергают учебники истории. Новейшие открытия астрономов начисто ломают знания о жизни Вселенной. А последние исследования медиков - рушат, казалось бы, незыблемые истины даже о жизни и смерти. В результате даже ученые все чаще приходят к неутешительному (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютРеклама: Присутствуют вставки текстовой рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145078   (623791) от 24.06.2017
+
+Анастасия Николаева | Я-муары. Откровенные истории блогера (2017) [FB2]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623791.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во всякой уважающей себя книге должно быть предисловие.
+Но ведь это не совсем настоящая книга! Здесь нет выдуманных героев и сочиненных ситуаций, удачных рецептов, и даже отсутствуют рекомендации, как выйти замуж за олигарха!
+Почему стоит прочитать эту книгу? Прежде всего потому, что она и о вас.
+О нашей общей жизни, в которой много чего есть, но больше всего, конечно, (   Читать дальше...   )Жанр: Документальная литература, Житейские истории, Сетевые дневникиФормат: FB2
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145000   (623790) от 24.06.2017
+
+Wes Lee & Th' Possum Foot Mojo - Lucky 7 (2017) [MP3|320 Kbps] <Blues>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baptized By The Blues (03:35)
+02. Land Of The Wayward Pines (02:34)
+03. Summer Of 33 (03:33)
+04. Lignite Blues (04:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145080   (623789) от 24.06.2017
+
+InternetSpeedTest (Internet Speed Test Meter Net) 2.5 [Multi]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623789.jpg" />
+</div>
+
+
+###  Подробнее
+
+«InternetSpeedTest» имеет уникальный алгоритм, который не может быть обманут PowerBoost или аналогичными инструментами повышения скорости.
+Таким образом, результаты, которые вы достигли, будут точными в соответствии со скоростью вашей системы.
 
-До открытия остается несколько дней, а один из работников, пытаясь продать «рассаду» налево, нарушает (   Читать дальше...   )Жанр: фантастика, боевик, приключения, семейныйРежиссер: Стивен СпилбергАктеры: Сэм Нилл, Лора Дерн, Ричард Эттенборо, Джефф Голдблюм, Боб Пек, Мартин Ферреро, Б. Д. Уонг, Сэмюэл Л. Джексон, Уэйн Найт, Джозеф Мадзелло, Ариана Ричардс, Джералд Р. Молен, Мигель Сандовал, Дин КандиПеревод: Профессиональный (многоголосый, закадровый)Субтитры: RussianФормат: MKVПродолжительность: 02:01:13
+«InternetSpeedTest» - это однопоточный тест, в то время как большинство других (например, сеть тестирования скорости) многопоточно. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.06.2017Разработчик: AppYogi SoftwareПоддерживаемая ОС: OS X 10.8 и вышеЯзык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
@@ -425,25 +555,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 351597   (621129) от 17.06.2011
+###  Публикация: 1145215   (623788) от 24.06.2017
 
-10 шагов к успеху / 10 Items or Less (2006) [H.264] DVDRip
+Ты супер! До и после… (2017.06.24) SATRip
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Документалистика и Телепередачи
+>>Музыкальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Стареющая звезда Голливуда осознает, что, поддавшись страху провала, он попросту забыл о своем творческом потенциале, раз за разом отказываясь от перспективных предложений. Надеясь изменить сложившееся положение дел, он решает присмотреть для себя интересную роль в каком-нибудь малобюджетном независимом фильме. Для изучения будущей роли он едет в латиноамериканский (   Читать дальше...   )Жанр: Драма, Мелодрама, КомедияРежиссер: Брэд СилберлингАктеры: Морган Фриман, Паз Вега, Джона Хилл, Энн Дудек, Франциска Эрнандез, Начо Пина, Гектор Раннинг-Хоук, Алексис Эрнандез, Сильвия Куриэль, Шоун Расселл, Кумар Паллана, Гектор Руис, Бобби Каннавале, Джим Парсонс, Дэнни ДеВито, Реа ПерлманПеревод: ДублированныйЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:17:24
+Зрители узнают, как изменилась жизнь участников после конкурса, смогут заглянуть в семьи, которые образовались благодаря проекту, а также станут свидетелями новых творческих свершений юных вокалистов. В фильме впервые показано все, что осталось за кадром, и все, что стало самым важным для ребят за время участия в «Ты супер!». Уникальное шоу талантов закончилось эффектным (   Читать дальше...   )Производство: НТВЖанр: ТВ-шоу, МузыкальныйСубтитры: ОтсутствуютПродолжительность: 02:01:12Реклама: Присутствуют вставки текстовой рекламы
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AB930419BD65F03917836A9942CDF4E89EE2E26
+magnet:?xt=urn:btih:D1F0558ED8D8C25226015EBD5470452689A64F93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,25 +581,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 351733   (621123) от 17.06.2011
+###  Публикация: 1145138   (623787) от 24.06.2017
 
-Кто ж такие птички (Птичий рынок; Слон и пеночка; Пластилиновая ворона; Сова; Птичий праздник; Малиновка и медведь; Крылья, ноги и хвосты) (1974-1986) DVD5 [Крупный план, без реставрации]
+Журнал | Золотые рецепты наших читателей №12 (190) (июнь 2017) [PDF]
 
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623787.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник лучших отечественных мультфильмов, в который вошли следующие мультфильмы: Птичий рынок; Слон и пеночка; Пластилиновая ворона; Сова; Птичий праздник; Малиновка и медведь; Крылья, ноги и хвосты.Жанр: Рисованая анимацияРежиссер: Юлиан Калишер, Марианна Новогрудская, Натан Лернер, Александр Татарский и др.Формат: DVD VideoПродолжительность: 01:12:01
+Популярное кулинарное издание, созданное исключительно на основе писем читателей — профессиональных поваров, кондитеров и домашних кулинаров. Все рецепты подкреплены качественными фотографиями блюд и их авторов, что позволяет заранее оценить конечный результат. Часть рецептов опробована на редакционной кухне. Важно, что для публикации редакция отбирает простые, доступные (   Читать дальше...   )Жанр: КулинарияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4B9BB357DD35EA1F37C54AABE8D1AB451876DD37
+magnet:?xt=urn:btih:3E35226AA2100C346DE54E77C69AD0B07CD4335D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -477,21 +607,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 351754   (621119) от 17.06.2011
+###  Публикация: 1145014   (623786) от 24.06.2017
 
-Безбрачная неделя / Hall Pass (2011) DVD5
+Sophie Malbec - Road Of Blue Memories (2017) [MP3|320 Kbps] <Electric Blues>
 
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621119.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главный герой получает от своей супруги разрешение на свободные отношения с другими женщинами. Похожая ситуация возникает и в семье его лучшего друга. Когда жены героев также решают воспользоваться подобным «пропуском», история принимает новый оборот.Производство: СШАЖанр: Мелодрама, КомедияРежиссер: Бобби Фаррелли, Питер ФарреллиАктеры: Оуэн Уилсон, Джейсон Судейкис, Дженна Фишер, Кристина Эпплгейт, Никки Вилан, Ричард Дженкинс, Стефен Мерчант, Ларри Джо Кэмпбелл, Брюс Томас, Тайлер ХёхлинПеревод: ДублированныйСубтитры: нетПродолжительность: 01:45:16
+01. Hideaway Man (04:07)
+02. Grinnin' In Your Face (02:57)
+03. Walk A Mile In My Shoes (05:00)
+04. Raise A Helping Hand (04:47)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:38:34
 
 ## Скачать торент
 ```bash
@@ -503,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036244   (621096) от 20.07.2016
+###  Публикация: 1145255   (623785) от 24.06.2017
 
-Mitch Ryder And The Detroit Wheels - Breakout !!! (1966) 1993, Sundazed Music [MP3|320 Kbps] <Rock, Rockabilly, Rock & Roll>
+Nitro - Nitro II: H.W.D.W.S. (Hot, Wet, Drippin' With Sweat) (1991) Reissue, 1992, Alfa International [MP3|320 Kbps] <Hard Rock, Glam>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Hard Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623785.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Walking The Dog
-02. I Had It made
-03. In The Midnight Hour
-04. Ooh Poo Pah Doo(   Читать дальше...   )Жанр: Rock, Rockabilly, Rock & RollПродолжительность: 00:38:10
+1. I Want U
+2. Cat Scratch Fever
+3. Crazy Love
+4. Hot, Wet, Drippin' With Sweat(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:39:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB34E3E7C2E7FE703A158553B8B9A80CF67700B6
+magnet:?xt=urn:btih:9AA69EEE35407A9A555F12898FEF4413C5E9E594
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,25 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036303   (621095) от 20.07.2016
+###  Публикация: 1145082   (623784) от 24.06.2017
 
-Николай Тулупов, Пётр Шестаков | Ледяное царство (1913) [PDF]
+Frammer X 1.4 [En]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На севере Европейской и Азиатской России лежит Северный Ледовитый океан, названный так потому, что он всегда покрыт льдом.Жанр: Детская прозаФормат: PDF
+Frammer X - это простое приложение, которое позволяет извлекать ваши любимые кадры из видео с интуитивно понятным и чистым интерфейсом.
+
+Особенности:
+- загрузить ваше видео (файл mov-m4v-mp4);(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.08.2016Разработчик: Giuseppe CigalaПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D057B05E36EA85337A2A136CAA01F641AD50F1F
+magnet:?xt=urn:btih:72DDF44402D0F79B0758DB30DA722A33B4F52209
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,184 +694,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036271   (621094) от 20.07.2016
+###  Публикация: 1145083   (623783) от 24.06.2017
 
-Елена Сергейчук | Жития святых в художественном пересказе (2016) [RTF]
+Ричард С. Филиола, Дональд Э. Бизли | Теория и планирование механических измерений (2016) [PDF]
 
->>Разное (категория книг)
->>Религиозная литература
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_623783.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жития святых - интереснейшее чтение. В самом деле: что может быть занимательнее, чем путь человеческой души, ее роста, изменения от худшего к лучшему. Особенно интересен этот путь у тех, кто выполнил свое предназначение, победил в битве, к которой все мы призваны - хотим мы того, или нет. В битве за освобождение своей души от сорняков и оков страстей и грехов, за (   Читать дальше...   )Жанр: ЖитияФормат: RTF
+Данная книга является переводом на русский язык одной из самых популярных в американских колледжах и университетах книги, пережившей уже пять изданий.
+Популярность данной книги обеспечивается простым и понятным языком авторов, которые подробно описывают теорию, лежащую в основе измерений, иллюстрируя ее наглядными схемами и фотографиями натурных измерительных устройств. (   Читать дальше...   )Жанр: Измерения, электроникаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B006F9C3E6311144F4B11050AE9AE0F93D9795D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036325   (621093) от 20.07.2016
-
-Шариф Еникеев | Судьба Солтан-Гарея (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еникеев Ш.К., ослепший в 14 лет, окончил Казанскую школу для слепых детей. За три года он изучил пятилетнюю школьную программу, хорошо овладел русским языком, освоил ремесло щеточника. В 1930 г. Шариф Еникеев сдал вступительные экзамены на рабфак города Казани. Руководство Татарского рабфака сомневалось, сможет ли незрячий юноша учиться наравне со зрячими, поэтому (   Читать дальше...   )Жанр: ПрозаПродолжительность: 09:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97999F41A89C099D4BF4C91BAB93EB008A7E557D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036417   (621092) от 20.07.2016
-
-Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №13 (133) (Июль 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5118492726095CDF00D7BB4D9B200EA21C2A0FB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036263   (621091) от 20.07.2016
-
-VA - Goa Year 2016, Vol.2 (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Psychedelic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D-Tek -  The Maschine 7:01
-02. Sixsense & Rammix -  Migdalindia 7:17
-03. M-Kamikaze -  Rebirth 6:47
-04. Retronic -  Creative Visions 5:56(   Читать дальше...   )Жанр: Trance, Psy-Trance, PsychedelicПродолжительность: 03:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B7EFCF9B5EFD075852FC57DB990C162330BBF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036470   (621090) от 20.07.2016
-
-Газета | Сад, огород – кормилец и лекарь №13 (273) (Июль 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сад, огород – кормилец и лекарь — журнал, который поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки.Жанр: Дача, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7261BEBAA4709F3B29377AF579BFC0EEEFE41F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035988   (621089) от 20.07.2016
-
-Мари Хермансон | Человек под лестницей (2016) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какие тайны может скрывать старый дом? Двухэтажный коттедж в городке Кунгсвик был пределом мечтаний семьи Фредрика Веннеуса. Пока он не обнаружил, что в каморке под лестницей обитает маленький человек неприятной наружности. Фредрик пытался выжить грязного квартиранта, но противный коротышка Квод не собирался покидать свою обитель. Жизнь Фредрика превратилась в кошмар: (   Читать дальше...   )Жанр: ДетективПродолжительность: 09:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F05A8A080E98B13E9833544453A33CAC55413D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036436   (621088) от 20.07.2016
-
-Журнал | Садовод и огородник. Корнеплоды. Спецвыпуск №3 (27) (Июль 2016) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621088.jpg" />
-</div>
-
-
-###  Подробнее
-
-В этом выпуске собрано множество рекомендаций специалистов и советов огородников-любителей, которые помогут получить отличный урожай различных корнеплодов.Жанр: Сад, огород, цветы, дизайн участкаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3CBC9B3C13FC141CEE3B6AB7B50A8ECA2D9997
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

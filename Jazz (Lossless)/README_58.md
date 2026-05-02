@@ -1,3 +1,61 @@
+###  Публикация: 1380475   (833323) от 03.05.2020
+
+Sidney Bechet - Five Classic Albums Plus: Second Set 1952 - 1955 (2017) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833323.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Le Marchand De Poissons [2:47]
+02. Si Tu Vois Ma Mere [3:15]
+03. Wabash Blues [3:08](   Читать дальше...   )Жанр: Dixieland, Revival, New Orleans JazzПродолжительность: 02:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08489E53B2FCD3EF53A2300CCCD8159AC683DEFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380587   (833316) от 03.05.2020
+
+VA - NOW Jazz Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thelonious Monk - 'Round Midnight (3:10)
+02. John Coltrane - Blue Train (Remastered 2003) (10:40)
+03. Herbie Hancock - Cantaloupe Island (5:32)
+04. Art Blakey - Dat Dere (8:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:120EDFB17140989A7D6A9086B51F8E0C682B8380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005544   (832838) от 09.04.2016
 
 Stan Getz Quartet - Grand Stan (1974) Remaster, 2014, Studio Songs[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -685,64 +743,6 @@ Konstantin Klashtorni - 7 X 7 (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D88851D763BE414786C680F3A905D8E49F461B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381331   (827738) от 06.05.2020
-
-Konstantin Klashtorni - Groove Jazz N Chill #7 (2019) Chillaxing Jazz KolleKtion Series [FLAC|Lossless|image + .cue] <Smooth Jazz, Lounge, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories Of Us (4:32)
- 02. Changing Seasons (5:18)
- 03. Fade Into The Sunset (4:44)
- 04. Ocean Serenity (4:47)(   Читать дальше...   )Жанр: Smooth Jazz, Lounge, ChilloutПродолжительность: 00:51:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E278806F85173DB66910E101A9DF654F4B79FE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006654   (827301) от 12.04.2016
-
-Mike Nock Quartet - In Out And Around (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827301.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Break Time [07:09]
- 02.Dark Light [05:58]
- 03.Shadows Of Forgotten Love [09:40]
- 04.The Gift [07:09](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F03FE645544C392B334F079870FCD9052084C65
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1274256   (794168) от 06.01.2019
+
+Jimmy Smith - Organ Grinder Swing (1965) 2018, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Organ Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Organ Grinder's Swing [2:16]
+02. Oh, No, Babe [9:04]
+03. Blues For J [5:18]
+04. Greensleeves [8:55](   Читать дальше...   )Жанр: Hard Bop, Organ JazzПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB352EE56CBCB20C51FEB962FD27D1F8082322B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012536   (793831) от 01.05.2016
+
+McCoy Tyner - Atlantis (1974) 2CD, 1989, Victor[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793831.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Atlantis [18:04]
+02.In A Sentimental Mood [05:39]
+03.Makin' Out [13:05]Жанр: Post-BopПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6076D60F5A18C1DEBEB33A456E1610494387FB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012700   (793828) от 01.05.2016
 
 Jimmy McGriff - Black Pearl (1971) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -686,65 +744,6 @@ Valery Ponomarev & Benny Golson meet Jazz Old Trio - Mission In Siberia (1997) 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:192014C13C49DA3C982109BE86989DA98D4DE83F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123091   (792498) от 07.04.2017
-
-Vainoras and the altar of the drill - Self titled (2017) [FLAC|Lossless|Web-DL|tracks] <DoomJazz, Ambient>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worship the drill (5:05)
-02. Cremated in C minor (4:21)
-03. Grimm fandango (4:38)
-04. Numb de plume (5:14)(   Читать дальше...   )Жанр: DoomJazz, AmbientПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70C3EBEB8EF2627E119E451A14AD6CEFF75FA28A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123448   (792377) от 07.04.2017
-
-Scott Bradlee's Postmodern Jukebox - Fake Blues (2017) [FLAC|Lossless|Web-DL|tracks] <Jazz, Soul, Covers>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Узнал о них в YouTube как и многие другие (а у них 2,5 млн. подписчиков!). Попав 28 февраля этого года на их концерт в А2 Green Concert получил просто незабываемое удовольствие.
-Под чутким творческим руководством Скотта «джукбоксы» создают настоящую магию перевоплощения хитов современности в шлягеры прошлого: Rihanna и Radiohead, The White Stripes и Lady Gaga, Daft (   Читать дальше...   )01. What Is Love  (4:30)
-02. Sledgehammer  (3:27)
-03. Feel Good Inc.  (4:22)
-04. All The Small Things  (3:24)(   Читать дальше...   )Жанр: Jazz, Soul, CoversПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A99111CE6F72CB6A0E4FFC61C6083EADEE4AA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 479945   (98998) от 08.04.2012
+
+VA-Trance Eve Volume 24 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98998.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) (8:28)
+2. DNS Project feat. Madelin Zero - Another Day (Markus Schulz Big Room Reconst) (7:40)
+3. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix) (7:59)
+4. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Chris Schweizer Remix) (7:52)
+5. Avion - Brilliant (Original Mix) (8:29)
+6. Dennis Sheperd & Jonathan Mendelsohn - Bring Me Back (Album Extended Mix) (6:20)
+7. Beat Service feat. Neev Kennedy - But I Did (Space Rockerz vs. Daniel Heatcliff Remix) (8:31)
+8. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix) (8:49)
+9. Vincent De Jager feat. Emma Lock - Dive (Original Mix) (7:30)
+10. Cressida & Natalie Paris - Easy To Forget (Club Mix) (8:12)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:27:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89DDAEAEB0D5D26C0276AE4B22E72F2F3C0F4DBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478461   (98820) от 07.04.2012
+
+Various Artists - Tranceffect 18 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Tomas Heredia- Hurricane (Radio Edit)
+ 02. Max Graham feat. Susana-Down To Nothing ({am} Extended Mix)
+ 03. Solarstone & Haris C-Ultraviolet (Haris C Mix)
+ 04. Meridian vs. Arctic Moon vs. ReOrder-Smile In Biscay Bay (LarSson & Lucas Comes Mashup)
+ 05. Running Man & Ahmed Romel-Azure (Running Man Edit)
+ 06. John OCallaghan-Psychic Sensor (Indecent Noise Remix)
+ 07. Talla 2XLC-Salvation (Club Mix)
+ 08. Keelin Temple vs Heatbeat-Iridescent (Reach & Height Rosary Mashup)
+ 09. Skylight-Autumn Wonderland (Aero 21 Remix)
+ 10.  7 Baltic-Hidden Life (Original Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67B83DE5352DEAD7699A1ED299127BA658B8211D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478466   (98811) от 07.04.2012
 
 Various Artists - Tranceffect 13 (2012) [MP3|320 кб/с]<Trance>
@@ -825,76 +895,6 @@ VA - Trance Maniacs Party: Melody Of Heartbeat #78  (2012) [MP3|320 кб/с]<Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:559B9FD65AD9103D539AF0B126983EE0DB5D1DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471228   (97419) от 22.03.2012
-
-VA - Into The Cosmic Jungle (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liquid Soul - Hypnotic Energy (Egorythmia remix) (7:06)
-02. Sixty9 feat. Double Click - Underground Beats (6:33)
-03. Naturalize - Dont Lie (7:00)
-04. Aioaska - Higher Consciousness (original mix) (9:32)
-05. Faders - Bass Destroyer (original mix) (7:40)
-06. Tryptamoon - Phoenix From The Ashes (10:21)
-07. Kularis - Fruitopia (7:13)
-08. Chemogen - Winter Is Coming (7:19)
-09. Infected Mushroom - Pink Nightmares (album mix) (6:06)
-10. Bizzare Contact - Bizzare Adventures (8:13)2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 04:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD93DBA03CB9BD42D5274A5F370A263DD5CEC6FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471566   (97415) от 21.03.2012
-
-VA - 50 Chillout Lounge Tracks (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain On Me Baby - Hornbostel & Donner
-02. The Turn Nearly Begins - Clark Parker
-03. Urban Exploration - Baghira
-04. Praia Brava - Miraflores
-05. Drops Of Remembrance - Cane Garden Quartet
-06. Afreakatum (Suntheca Lounge Mix) - The Mask
-07. Tastin' - Cesar Martinez Ensemble
-08. On The Lake - Enrico Donner
-09. Barefoot In The Park - Rey Salinero
-10. Dedicado - Don Gorda Project(   Читать дальше...   )Жанр: Downtempo, ChillOut, LoungeПродолжительность: 04:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E82130866613BFBAE5B98F18DB60C25E0C5A013
 ```
 
 https://mybot314.ru/tekegram_catalog/

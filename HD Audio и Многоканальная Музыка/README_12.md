@@ -1,3 +1,150 @@
+###  Публикация: 867143   (902548) от 08.02.2015
+
+Джеймс Ласт - Счастливый летний вечер (1980) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Копакабана · Copacabana  3:44
+2. На южной границе · South Of The Border  3:30
+3. Валенсия · Valencia  2:38
+4. Однажды воскресным утром · Quando Sali Di Cuba  3:24(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DE303B00CBC13483740D48F7574FE7A8EB76D93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 761003   (899541) от 26.02.2014
+
+John Lennon - Imagine (2014/1971) [LPCM 2.0 96/24|Audio-DVD (BD-Audio)] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine
+02. Crippled inside
+03. Jealous guy
+04. It's so hard(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30EEFA9C46FE6ADBC4807C403290638F74F3B251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992847   (899279) от 03.03.2016
+
+Артур Эйзен - Романсы русских композиторов (1970) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Classical, Romance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Сомнение (М. Глинка, Н. Кукольник)  5:06
+2. Клубится волною кипучею кур (А. Рубинштейн, Мирза Шафи)  5:04
+3. Я вас любил (Б. Шереметьев, А. Пушкин)  2:46(   Читать дальше...   )Жанр: Classical, RomanceПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD68544BFE11D32C0EA513950027E7FEB0E9E34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 868792   (894588) от 13.02.2015
+
+Академическая русская хоровая капелла - Музыка эпохи Петра I (1975) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Sacred, Choral>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. «Стихи победительные во славу и честь Петру Алексеевичу…»  16:26
+Петровские торжественные песнопения. Десять номеров.
+Гаврюшов (бас), А. Лагуткин (тенор), Б. Шумилов (баритон).
+Сторона 2(   Читать дальше...   )Жанр: Sacred, ChoralПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53769531F15E4849297DAFCE5D80FBD0CFC8123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 868853   (894169) от 13.02.2015
+
+Ambra - Child Of The Universe (2003) [DTS 5.1 44.1 /16 | .wav+.cue (SACD)] <new age, electronic, ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Infinite Space (Part 1) 01:49
+02. Infinite Space (Part 2) 01:39
+03. The Rebirth Of The Sun 04:01
+04. La Renaissance Du Soleil 05:20(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6504199D66E4C771A6B3864569C6B4F758738273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 859991   (892146) от 14.02.2015
 
 AC-DC - Rock Or Bust (2014) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
@@ -609,153 +756,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA63D0DE881B7B64DB45FD30B105E91A1745D3E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 872332   (872061) от 26.02.2015
-
-Ван Клиберн, симфонический оркестр Московской Государственной филармонии (К. Кондрашин) - С. Рахманинов – Концерт №3 для фортепиано с оркестром (1975) [FLAC 1.0 24/96|traks(Vinil-Rip)]<Classical ...
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт №3 Ре Минор для фортепиано с оркестром, соч. 30
-Сторона 1
-1. Allegro ma non tanto  17:38
-Сторона 2
-1. Intermezzo. Adagio  10:48(   Читать дальше...   )Жанр: Classical, Neo-RomanticПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F091C3FD2E4320C7D6541A4EF792989DE056B6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106721   (869534) от 21.02.2017
-
-VA - RETROспектива, часть XII. Мелодии и песни из кинофильмов I (1939-1965) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Э. Горовец - Ты не печалься (из к-ф ''Большая руда'')
-02. М. Новохижин - Сероглазая (из к-ф ''Огонёк в горах'')
-03. М. Новохижин - Огонёк (из к-ф ''Огонёк в горах'')
-04. Т. Таубэ - Амадо Мио (из к-ф 'Рим в 11 часов'' или ''Джильда'')(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:55:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D59E8C99EE03292BFCC65957A7E8A6FC76B3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999510   (864205) от 22.03.2016
-
-Horizont and Friends - Late Night Chillout Lounge (2003/2008) [DTS 5.0 CD-DA|44.1/16|image+cue|SACD] <new age>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864205.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Insect - Paranoise
-2. Show In L.A. - Horizont
-3. Consequenze - Horizont
-4. Victim - Paranoise(   Читать дальше...   )Жанр: new age, relaxПродолжительность: 00:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:146736C742E331F4C1EBC81A386175C46B392FA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108388   (864034) от 24.02.2017
-
-Cerrone - 3 Album (1976 - 1977) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864034.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЧЕРРОНЕ ЖАН-МАРК (Cerrone Jean Marc) (р. в 1952, Сен-Мишель, Франция), французский композитор, продюсер и барабанщик.
-     Хотя слушателю 1990-х годов это имя едва ли говорит о многом, два десятилетия назад, во времена диско-бума конца 70-х, он был одним из самых продуктивных и изобретательных творцов европейской танцевальной музыки: как композитор, продюсер и барабанщик (   Читать дальше...   )Альбомы:
-1976 - Love In C Minor
-1977 - Cerrone's Paradise
-1977 - Cerrone III - SupernatureЖанр: DiscoПродолжительность: 01:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE580ACCFFE03490CD71B85B01CBE72DC77DDDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375874   (863367) от 15.04.2020
-
-The Alan Parsons Project – Ammonia Avenue (1984) 2020 [DTS 5.1 CD-DA|44.1/16|image+.cue|BD-Audio] <electronic, rock, pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Prime Time 	5:03
-02. 	Let Me Go Home 	3:20
-03. 	One Good Reason 	3:36
-04. 	Since The Last Goodbye 	4:34(   Читать дальше...   )Жанр: art rock, pop/rockПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8B15944696DE84B0066BE98A511611AC43A136
 ```
 
 https://mybot314.ru/tekegram_catalog/

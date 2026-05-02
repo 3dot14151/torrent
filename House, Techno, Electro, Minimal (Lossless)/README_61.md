@@ -1,3 +1,32 @@
+###  Публикация: 1348624   (142061) от 29.12.2019
+
+VA - Schneeweiss 10 (Presented by Oliver Koletzki) (2019) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lunar Plane - Jackal (7:17)
+02. Niko Schwind - Prima Lux (Palmfood Remix) (7:31)
+03. Rauschhaus, Peer Kusiv - Drowning (Bebetta Remix) (7:20)
+04. Prismode, Solvane - Alesis (5:36)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 03:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FFB73C1E9C2B7C9B10BB6318C60B3DED85AAAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1348765   (142040) от 29.12.2019
 
 VA - Steyoyoke Gems Solar 08 (2019) Compilation [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
@@ -708,35 +737,6 @@ VA - Milk and Sugar Summer Sessions (2023) [FLAC|Lossless|WEB-DL|tracks] <Funky/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE2CC3C4E5A3143EF842A0327418C7DFC891EA01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683881   (128147) от 13.12.2023
-
-VA - Buddha Luxury 2024 (Compiled by Marga Sol) (2023) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Hiska - Shike (5:03)
-02. Coskun Umut Oruc - Istanbulounge (3:48)
-03. Marga Sol - Valley of Lust (4:35)
-04. Martin Hiska - When It Drops (4:59)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCB475DFDC6CCC751E5C94712C92CA0BE733095B
 ```
 
 https://mybot314.ru/tekegram_catalog/

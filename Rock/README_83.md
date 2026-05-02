@@ -1,3 +1,32 @@
+###  Публикация: 1586752   (215838) от 27.10.2022
+
+Bon Jovi - Have A Nice Day (2005) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have A Nice Day
+02. I Want To Be Loved
+03. Welcome To Wherever You Are
+04. Who Says You Can't Go Home(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C0B24EC73F7486C70E312889BB3A8280527E26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270082   (215564) от 17.12.2018
 
 The Cars & Ric Ocasek - 15 Studio Albums (1978 - 2011) CD [MP3|320 Kbps] <Electronic, Pop Rock, New Wave>
@@ -717,35 +746,6 @@ VA - Лучшие хиты Рок 1980-х (2021) [MP3|320 Kbps] <Rock, Classic R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:730F3ACD6229E3EDF832007DF3A50D07A67A1BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646061   (209118) от 12.07.2023
-
-Don Henley [ex. Eagles] - 6 Albums (1982-2015) Collection [MP3|320 Kbps] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дональд (Дон) Хью Хенли (англ. Donald Hugh Henley; 22 июля 1947, Гилмер, Техас) - американский рок-музыкант (автор песен, вокалист, ударник), среди многочисленных музыкальных и общественных проектов которого первое место занимает группа The Eagles. В 2008 году журнал Rolling Stone назвал Хенли одним из 100 лучших певцов всех времён (№ 87 в 100 Greatest Singers)Список альбомов:
-1982 - I Can't Stand Still
-1984 - Building The Perfect Beast
-1989 - The End Of The Innocence(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 05:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5247F4292DA58325E245958406977871E95522
 ```
 
 https://mybot314.ru/tekegram_catalog/

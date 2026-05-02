@@ -1,3 +1,119 @@
+###  Публикация: 1566891   (478495) от 31.07.2022
+
+Sofia Carson - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love is the Name
+02. Two Tears in a Bucket
+03. Loud
+04. Stay(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D8EE14529EEDF6A35714FCECA67937FCD224496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566875   (478417) от 31.07.2022
+
+VA - German Top 100 Single Charts 29.07.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478417.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Robin & Schürze - Layla (3:05)
+002. Liaze - PARADISE (3:12)
+003. Luciano - Beautiful Girl (2:59)
+004. Kontra K & Sido & Leony - Follow (2:25)(   Читать дальше...   )Жанр: PopПродолжительность: 04:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7957F5F79480AF2A3FEFFDE9F65BDF3CBD062ED8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244737   (477736) от 03.09.2018
+
+VA - Русское Радио. Лучшее 2018 от DON Music (08.2018) [MP3|256/320 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477736.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Filatov & Karas vs. В. Цой - Остаться с тобой (02:49)
+002. Зара - Негордая (03:58)
+003. Руки Вверх! - Танцы (04:04)
+004. МакSим - Здесь и сейчас (03:12)(   Читать дальше...   )Жанр: ПопПродолжительность: 06:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D94AAEBD6E77188CF17854379539DE2323CA878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939055   (477553) от 20.09.2015
+
+VA - Top 100 Твои любимые хиты (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 30.02 - Но Tы
+02. Afrojack & Sting - Catch Tomorrow
+03. Aisha - Сильно, Сильно
+04. Alex Kafer - Всё Для Тебя(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA25D6C6A17168C55955B4C971D576F8850E792F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1406233   (477349) от 02.09.2020
 
 VA - Summer Break (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -659,128 +775,6 @@ VA - XXXL Русский The Best (2012) [MP3|256 кб/с]<Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CE55AA1BFCEC8F3B65741334ED98600F3FB2443
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547918   (469947) от 17.09.2012
-
-VA - Осенний Муз-драйв (2012) [MP3|128-256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Onegin Feat. Nity - Рай (Radio Edit)
-02. Горячий Шоколад - Ты Обними
-03. Настя Любимова - I See You (DualState Remix Radio Cut)
-04. Сергей Жуков & Opium Project - Я Буду С Тобой (Club Mix)
-05. Инь - Ян - Oh, Yeah!
-06. DJ Tarantino feat. Oblico Morale - Танцуй Вместе С Нами
-07. All Давай feat. DJ Ihlas - Москва-Дубай
-08. Lilu - Пара-Паранойя
-09. Stacy - Не Хочу Войны
-10. KO (Настя Кочеткова) - Vanya(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F757A6E0F55C353685183C2FC10E415EFAE172F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245701   (469893) от 07.09.2018
-
-VA - Day At The Beach: Popular Dance Music (2018) [MP3|320 Kbps] <Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469893.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Honk! - So Geil Auf Malle
-002. Jerry Peghan - Children Are Kings
-003. Thedjlawyer - Signals From Mars
-004. The Chainsmokers - Sick Boy(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 09:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7723826C9F644AA18424732ADFBB526ECE038AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058570   (469068) от 01.10.2016
-
-VA - Осенняя Позитивная Сотка 2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469068.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Malika - Буду Рядом
-002. Feder Feat. Emmi - Blind
-003. Потап & Настя Feat. Бьянка - Стиль Собачки
-004. Eric Prydz Feat. Rob Swire - Breathe(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EAD078D9205FEC4041300CBCAE3C3910419C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058555   (469059) от 01.10.2016
-
-VA - Любимая Волна Europa Plus (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469059.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Medas Feat. Кейс - Рутина
-002. Ya-Ya - Bad Girls
-003. 30.02 - Ты Самая Лучшая
-004. Florrie - Real Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2429426E3D9B9A79363B558C89EB4BF81DD640
 ```
 
 https://mybot314.ru/tekegram_catalog/

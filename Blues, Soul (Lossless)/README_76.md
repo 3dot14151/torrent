@@ -1,3 +1,125 @@
+###  Публикация: 1075277   (321282) от 22.11.2016
+
+Eddy "The Chief" Clearwater - Reservation Blues (2000) [FLAC|Lossless|image + .cue] <Blues, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Winds Of Change  (04:54) 
+02|  I Wouldn't Lay My Guitar Down  (04:26) 
+03|  Find Yourself  (05:34) 
+04|  Reservation Blues  (06:14) (   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA7EC319DFCD717C980E763F6EFF8F5833961E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182167   (319329) от 09.11.2017
+
+Grainne Duffy - Where I Belong (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where I Belong  (03:15) 
+02. My Love  (04:12) 
+03. Don't You Wanna Know  (03:23) 
+04. Home  (04:15) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300D0214D43D1EB2199F9475A0A49358A5B4EDE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 351539   (314926) от 06.11.2020
+
+Shannon Curfman - 4 Albums (1999 - 2010) [FLAC|Lossless|tracks + .cue]<Blues/Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314926.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 14 лет, когда вышел ее первый альбом Loud Guitars, Big Suspicions (1999) и достиг третьей позиции в блюзовом чарте "Billboard", она поразила публику неудержимой гитарной дерзостью, взрослой лирикой и знойным голосом. Уроженка Фарго (Северная Дакота), впервые заявила о себе на местном конкурсе юных талантов в возрасте семи лет. А в десять уже вовсю лабала (   Читать дальше...   )Список альбомов:
+1999 - Loud Guitars, Big Suspicions
+2007 - Fast Lane Addiction
+2010 - What You're Getting IntoЖанр: Blues/RockПродолжительность: 02:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBF358678481E7854A0838CD5E7D29CCCFCC4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583551   (313361) от 02.12.2012
+
+Various Artists - Blues Piano-Rama (2010) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_313361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kenny Blues Boss Wayne - Boogie Woogie Showdown
+02. Bobby Dean Blackburn - 24 Hours A Day
+03. Bobby Dean Blackburn and Julian Fauth - All Night Long
+04. Julian Fauth - Blues For Mel Brown
+05. Kenny Blues Boss Wayne - I Took The Wrong Road
+06. Julian Fauth and Curley Bridges - The Blues Ain't Nothing
+07. Curley Bridges - Rock Me Baby
+08. Julian Fauth - Sorry Don't Cut No Ice
+09. Curley Bridges - You're The One
+10. Julian Fauth - Loved And Lost(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 583906   (313360) от 02.12.2012
 
 Various Artists - Harmonica Blues - Blowing from Memphis to Chicago (2004) [WavPack|Lossless]<Blues>
@@ -641,122 +763,6 @@ Ghalia & Mama's Boys - Let The Demons Out (2017) [FLAC|Lossless|tracks] <Harmoni
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23E7067E2C580C4095B521B2656CF8856B0DC260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082634   (277487) от 13.12.2016
-
-Darrell Mansfield - I Am Not Alone (2014) [FLAC|Lossless|tracks + .cue] <Christian Blues-Rock ,  Christian Rock ,  Christian Blues ,  Gospel Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Honey Hush
-02 - Jesus Left Chicago
-03 - Everybody Wants To Go To Heaven
-04 - I Am Not Alone(   Читать дальше...   )Жанр: Christian Blues-Rock ,  Christian Rock ,  Christian Blues ,  Gospel BluesПродолжительность: 01^01^38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45327921DC32053C081C53C854B2022B95366E6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188471   (274754) от 02.12.2017
-
-Jimmy And The Poor Boys - Cinco Songo's (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wishing Well  (04:12) 
-02. If You Love Me Like You Do  (03:44) 
-03. Caught in the Rain With You  (04:30) 
-04. Me and The Devil  (03:26) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:20:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D25DB6340B384F0A32836B3007C52E17AA1BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265555   (274065) от 28.11.2018
-
-Sade - Rare Adventure (2003) Unofficial Release [FLAC|Lossless|tracks + .cue] <Soul, Funk, Jazz, House>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/12. I Never Thought I'd See The Day (Club Mix) (8:03)
- 02/12. Pearls (Club Mix) (8:35)
- 03/12. Love Is Stronger Than Pride (4:28)
- 04/12. Super Bien Total (92 Remix) (6:50)(   Читать дальше...   )Жанр: Soul, Funk, Jazz, HouseПродолжительность: 01:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93FFB57C25B64A09936A894FBE710702EEE009E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188813   (273599) от 03.12.2017
-
-Gin House Blues Band - Gin House Blues Band (1991) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Of The Blues  (03:25) 
-02. Down To Big Mary's  (02:43) 
-03. You Don't Love Me  (03:03) 
-04. Unknown Boy  (04:40) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:858B03BE6AC6F23AC7AA205DB3F3A824CFD09BF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

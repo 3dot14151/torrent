@@ -1,3 +1,93 @@
+###  Публикация: 1330083   (343257) от 09.10.2019
+
+P!nk (Pink)  Rock in Rio (05.10.2019) HDTV [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rock In Rio, один из крупнейших и самых известных музыкальных фестивалей в мире, теперь проводит для себя двухлетнюю рутину, каждый год чередуя Лиссабон с его духовным домом в Рио-де-Жанейро. В 2019 году Cidade do Rock снова наполнится звуками значков мировой музыки, причем не только из мира рока, но также из поп-музыки, фанка, соула, MPB, электронной музыки и многого (   Читать дальше...   )Act I
+Get the Party Started
+Beautiful Trauma
+Just Like a Pill(   Читать дальше...   )Жанр: PopПродолжительность: 01:43:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5A2B7F61885B350F336AB9E076D2A3E1D8DB8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579235   (342321) от 25.11.2012
+
+Yanni - Live At El Morro, Puerto Rico (2011) H264  HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_342321.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 и 17декабря 2011года, Янни исполнил 20-летнюю мечту выступить в красивом и историческом месте 16-го века Кастильо Сан-Фелипе дель Морро в Сан-Хуане, Пуэрто-Рико. Были исполнены многие классические хиты Yanni, а также несколько новых произведений . Его музыка уникальна, равно как и состав его оркестра, объединяющий прекрасных музыкантов.Жанр: New AgeРежиссер: YanniАктеры: Оркестр и вокалисты Lisa Lavie , Lauren JelencovichПеревод: ОтсутствуетЯзык субтитров: EngПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580854   (340047) от 26.11.2012
+
+The Rolling Stones: Charlie Is My Darling (1965/2012) [1080p] Blu-ray
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_340047.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Rolling Stones Charlie is My Darling: Ireland 1965 - был первым профессионально снятым документальным фильмом о теперь уже легендарной рок-группе; снятым, но не выпущенным на экраны. В «Charlie Is My Darling» собраны материалы времен гастрольного турне по Ирландии, случившегося сразу же после того, как песня «(I Can't Get No) Satisfaction» попала в верхние строчки европейских хит-парадов. Отрывки из фильма широко известны среди поклонников группы, правда, по большей части их, отрывков, качество оставляет желать лучшего: на многих видео и звук попросту рассинхронизированны. И вот сейчас, после стольких лет, полностью отреставрированная версия фильма с добавлением никогда прежде не выпускавшихся эпизодов с бэкстейджа, выпущена компанией ABKCO на Blu-ray и DVD!01. Play With Fire - The Aranbee Pop Symphony Orchestra
+02. Heart Of Stone - The Rolling Stones
+03. Who Do You Like In The Group? - Peter Whitehead and Fans
+04. The Last Time (Live. - The Rolling Stones
+05. Time Is On My Side (Live. - The Rolling Stones
+06. I´m Alright (Live. - The Rolling Stones
+07. The Next House We´ll Turn The Screaming Down - Andrew Loog Oldham and Priest
+08. Theme For A Rolling Stone - The Andrew Oldham Orchestra
+09. Nice Tea - The Rolling Stones and Andrew Loog Oldham
+10. Maybe It´s Because I´m A Londoner - ALO Productions(   Читать дальше...   )Жанр: rockПродолжительность: 01:02:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581092   (339756) от 26.11.2012
 
 Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986/2012) BDRip [720p]
@@ -637,91 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955862   (324870) от 20.11.2015
-
-Bon Jovi - Live At Nokia Theatre (2005) HDTVRip [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живое выступление 19 сентября 200501. Last Man Standing
-02. You Give Love A Bad Name
-03. Livin` On A Prayer
-04. Born To Be My Baby(   Читать дальше...   )Жанр: Музыкальный
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C2BC38580FCF8B3490672273B135C658AA34C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955557   (324836) от 20.11.2015
-
-Bon Jovi - Rock in Rio V (2013) HDTVRip [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's What the Water Made Me
-02. You Give Love a Bad Name
-03. Raise Your Hands
-04. Runaway(   Читать дальше...   )Жанр: МузыкальныйАктеры: Bon JoviПродолжительность: 2:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:657A7CA24F35ED4E0B12D828C2DEA7045A7E57CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181212   (323359) от 07.11.2017
-
-Концерт Димы Билана. Билан 35 - Неделимые (2017.11.06) HDTV [H.264/1080i-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Певец, композитор, актер, самый эмоциональный и искренний наставник шоу "Голос" Дима Билан представляет грандиозный концерт в честь своего 35-летия.
-"Песни разные, но каждая прочувствована, в каждую вложено очень много. Некоторые полны драматизма, другие лиричны, третьи исполнены противоречий и даже ребячества. Композиции, проверенные временем - это (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: ~ 01:24:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E0F9843CEE8B18F1FD2C17017B816A4BE52F67C
 ```
 
 https://mybot314.ru/tekegram_catalog/

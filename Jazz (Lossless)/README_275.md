@@ -1,3 +1,61 @@
+###  Публикация: 1593266   (181147) от 26.11.2022
+
+VA - The Columbia Jazz Piano Moods Sessions (1949 - 1952) 7CD, 2000, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181147.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Erroll Garner & Ahmad Jamal:
+01. When Johnny Comes Marching Home [3:29]
+02. My Heart Stood Still [4:20]
+03. Long Ago and Far Away [2:32](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 06:29:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BC0652B2989E92140037E08205E79C7101BFC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665891   (180950) от 02.10.2023
+
+Michael Wolff - Bounce (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bounce [4:07]
+02. Chill [3:56]
+03. Caribbean Rain Dance [6:10]
+04. Long Lost [5:08](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC47E32BC1CB569B4595820C3A21F442709D948A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1428136   (180945) от 01.12.2020
 
 Paul Bley Trio - Complete Savoy Sessions (1962-1963) 2008, Gambit Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Jukkis Uotila & The Stockholm Jazz Orchestra - The Music Of Jukkis Uotila (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AB6D1FDE6A5A00D70BA7B947DA0590961A96174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429147   (177710) от 05.12.2020
-
-Bud Powell - Birdland (1953) 3CD, 2013, ESP Disk' [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177710.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Theme: Lullaby of Birdland/Announcer Introduction [0:50]
-02. Tea for Two [5:38]
-03. It Could Happen to You [3:34](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 02:48:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C61D9F3A18361D989F2C987660F7916232C6217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667100   (177625) от 07.10.2023
-
-Jack McDuff - The Concert McDuff (1963 - 1966) 2002, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Undecided (alternate take) [8:03]
-02. Love Walked In [7:56]
-03. Midnight Sun [6:26]
-04. Swedenin' [6:40](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D32A324B9CB477A776461923A16517981F73DAF
 ```
 
 https://mybot314.ru/tekegram_catalog/

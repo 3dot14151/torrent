@@ -1,3 +1,30 @@
+###  Публикация: 1039983   (588288) от 03.08.2016
+
+Проекты - VideoHive - 3D Split Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F8E800C3B5BF87BD0C734E46D87B394E1A2AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1040037   (588258) от 03.08.2016
 
 Проекты - VideoHive - Epic Opener - 16916919 [AEP]
@@ -655,32 +682,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96191820CE6FCF52865374E6FDC323E6A977D8D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919658   (579815) от 22.07.2015
-
-Проекты - VideoHive - Urban Style  Dynamic Opener [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Urban Style  Dynamic Opener - динамичное, красочное вступление из ваших видео-роликов и фотографий с 13 заполнителями. С легкостью заменить ваши медиа и текст.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:761BCFD55B666C5CF9D112058E0DD44759341133
 ```
 
 https://mybot314.ru/tekegram_catalog/

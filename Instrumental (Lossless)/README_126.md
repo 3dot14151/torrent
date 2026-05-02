@@ -1,3 +1,119 @@
+###  Публикация: 1762737   (102892) от 27.11.2024
+
+J.P. Reali - Blues Since Birth (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102892.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Devils Take (4:26)
+02. The Virus Blues (3:02)
+03. It Takes A Lot To Laugh, It Takes A Train To Cry (3:15)
+04. Drunk And In The Way (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B33907F27945172728284F0597B01DEC395960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763478   (102822) от 01.12.2024
+
+Downhome Kin - Roots Run Deep (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preachin' the Blues (2:42)
+02. Deep Blue Night (3:04)
+03. The Weight (2:49)
+04. Electric Heartache (2:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990A6C2F01F318828D89E36823D414B5990F24BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763467   (102815) от 01.12.2024
+
+Amber Rachelle & The Sweet Potatoes - Pipin' Hot! (2024) [FLAC|Lossless|WEB-DL|tracks] <Rhythm & Blues, Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Shot The Lala (3:33)
+02. As Long As I'm Moving (3:10)
+03. My Old Man (4:33)
+04. Mama He Treats Your Daughter Mean (3:09)(   Читать дальше...   )Жанр: Rhythm & Blues, Swing, JazzПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C78CFC7BFF16BD758BF2D1DAE03BC81FA682C391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763491   (102814) от 01.12.2024
+
+Stormin' Norman and the Cyclones - Road Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road Trip (4:31)
+02. A Better Man (4:55)
+03. Gotta Get Back to New Orleans (4:01)
+04. Memphis (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72D199D2310303860F102E78095D7456ADA32E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763489   (102813) от 01.12.2024
 
 Stacy Jones Band - Family Christmas (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Innes Sibun - The Preacher (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ADF260A7BD9DC270F3B4396F517D3DFBA04ECEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764072   (102755) от 05.12.2024
-
-Soultide - Waves of the Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul in the City (4:01)
-02. Moonlight in My Eyes (2:58)
-03. Twilight Groove (2:02)
-04. Midnight Reverie (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972C4E00295FE7FE7EE25C5395916DE8D7E10626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764063   (102754) от 05.12.2024
-
-Mac Arnold & Plate Full O' Blues - On a Mission (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues All over You (2:45)
-02. Dance the Blues Away (2:31)
-03. I Am the Blues (3:38)
-04. Love Story (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:287C33BDAD2538EE93DFBF899EA453294D6D0940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764052   (102752) от 05.12.2024
-
-Anna Black - Jammin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire It Up (4:02)
-02. Blues Man (6:55)
-03. Drinkin' Daddy (6:17)
-04. Bird (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8161CEE4BAA906432056DE4AE7010808A3701B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764073   (102751) от 05.12.2024
-
-The Brisbane Project - Ode To The Alley (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lude Mood (2:34)
-02. Blow A Fuse (4:28)
-03. S.O.S. (3:39)
-04. Ode To The Alley (5:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7934BAD4E612EF48F1B3DFA9E5B3402D7762592
 ```
 
 https://mybot314.ru/tekegram_catalog/

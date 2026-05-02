@@ -1,3 +1,61 @@
+###  Публикация: 1366643   (922112) от 12.03.2020
+
+VA - Beatport Tech House: Electro Sound Pack #24 (2020) [MP3|320 Kbps] <Tech, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922112.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Haldo Gee - Puerto Escondito (House Tribe Mix)
+002. Bozoo Romle - Breathe (Original Mix)
+003. David Novacek - Yeah (Original Mix)
+004. Marcos Salas - Spanish Tech(   Читать дальше...   )Жанр: Tech, Deep HouseПродолжительность: 11:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:116EB57E4D5CC382DDABC223A6632D4DF13191DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096254   (921072) от 23.01.2017
+
+VA - Stay With Producer Construction (2017) [MP3|320 Kbps] <House,  Progressive, Soulful, Nu Disco, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boogie Bros Feat. Big Daddi - Fight For Your Right! (Yelhigh! Remix Edit)  3:14
+02.  R3HAB & ZROQ - Skydrop (Ethyr Remix)  6:07
+03.  Uberjak'd Ft Nuthin Under A Million - All I Need (Bomber) (Nicolas Strands Remix)  4:39
+04.  Stefano Carparelli & Torny - Beautiful Day (Hard Mix)  5:20(   Читать дальше...   )Жанр: House,  Progressive, Soulful, Nu Disco, ClubПродолжительность: 06:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA5068AE05D377C57BBFF6B17B9B027897B4444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096232   (920985) от 23.01.2017
 
 VA - Empire Records - Chill Out 10 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -699,64 +757,6 @@ VA - Les Grooves: Selected Vibes for Cool People (2016) [MP3|320 кб/с] <Deep 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A2F77C9BDE85400F0A9380C7FE38CAB43BD209D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490512   (917374) от 21.08.2021
-
-VA - HGM: Deep House Season (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917374.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Budrick - Starfish
-002. Vince Guidotti - Luftzug
-003. Tolero - Parabens
-004. Dego - This Is Message To You(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D417680A9A8D099D52F191F28841FAC685B25898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490515   (917369) от 21.08.2021
-
-VA - Ocean Sound: Actual Trance Set (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917369.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Euphoric Heart - Our Homeworld
-002. Marcell Stone And Floe - Sensory
-003. Global Mind - Moving Sky
-004. Rodrigo Deem - Mighty(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 10:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4941BF3F309F4007061A2C8CE0F9DFAF028A622
 ```
 
 https://mybot314.ru/tekegram_catalog/

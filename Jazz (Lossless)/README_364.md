@@ -1,3 +1,61 @@
+###  Публикация: 1758757   (38283) от 04.11.2024
+
+Ray Anthony - Capitol Collectors Series (1949 - 1962) 1991, Capitol Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Dreamer’s Holiday [3:11]
+02. Sentimental Me [2:51]
+03. Count Every Star [3:03]
+04. The Man With the Horn [2:31](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE107036238ECB6638B7D97C44068C0EF682B1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758759   (38280) от 04.11.2024
+
+Eric Dolphy - Out To Lunch! (1964) 1985, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hat and Beard [8:28]
+02. Something Sweet, Something Tender [6:06]
+03. Gazzelloni [7:25]
+04. Out to Lunch [12:10](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Avant-Garde JazzПродолжительность: 00:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964FF8348AC1839AB1F60E6CCFA5047C2B4F1C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758988   (38190) от 05.11.2024
 
 VA - Funk Instrumentals (2024) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
@@ -687,64 +745,6 @@ Tal Farlow - This Is Tal Farlow (1958) 1997, Verve Records [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C93148FB287F06C535D988539FA90D4547F33D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765034   (34588) от 10.12.2024
-
-The Jimmy Bruno Group - Midnight Blue (2001) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Love [4:46]
-02. Funk 'n Benny [7:38]
-03. Hypertension [4:49]
-04. Shades of Grey [4:17](   Читать дальше...   )Жанр: Hard Bop, Jazz Fusion, Guitar JazzПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E187FF37FA3B3ED910DCD5764861F28B6B392EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765438   (34413) от 12.12.2024
-
-Sexual Music Collection, Jazz Music Lovers Club - Provocative Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel (3:55)
-02. Open The Heart (3:00)
-03. Lover and Soul Mate (2:50)
-04. Life del Mar (3:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CECF512F9673E4394681D15704AC985C06685F
 ```
 
 https://mybot314.ru/tekegram_catalog/

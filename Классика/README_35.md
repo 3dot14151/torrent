@@ -1,3 +1,38 @@
+###  Публикация: 561828   (405504) от 19.10.2012
+
+Antonio Lucio Vivaldi Johann Sebastian Bach-Baroque Guitar Favourites: Camerata Cassovia, guitar Gerald Garcia Peter Breiner (1990)/1994, NAXOS /[FLAC|Lossles]<Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405504.jpg" />
+</div>
+
+
+###  Подробнее
+
+ANTONIO VIVALDI (1678-1741)
+Violin Concerto in E minor, RV 277, Op. 11 No. 2 "Il Favorito"
+1. I. Allegro
+2. II. Andante
+3. III. Allegro
+Trio Sonata in C major, RV 82
+4. I. Allegro non molto
+5. II. Larghetto. Lento
+6. III. Allegro
+Trio Sonata in G minor, RV 85(   Читать дальше...   )Жанр: Baroque/guitarПродолжительность: 01:15:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D09D211DBCF4F82D8364703B1C2C30D5516BACC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563306   (403610) от 22.10.2012
 
 VA - Reference Classics First Sampling (1990)[FLAC|Lossless]<Classical Instrumental>
@@ -798,35 +833,6 @@ Concerto In G Minor After BWV 1056
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:02B6BEA72D0DE5DD61826292459678E7FC3CBB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570791   (386772) от 07.11.2012
-
-Knud Vad - J.S. Bach: Complete Organ Works (2005) Box Set 18SACD [DST 5.1, 2.0|1bit/2.8 MHz |SACD-R]<Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386772.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 SONATAS, BWV 525–529
-SONATA NO. 1 IN E FLAT MAJOR, BWV 525 : 1. I. Allegro (3:19) • 2. II. Adagio (6:08) • 3. III. Allegro
-(3:58) • SONATA NO. 2 IN C MINOR, BWV 526 : 4. I. Vivace (4:20) • 5. II. Largo (4:01) • 6. III.
-Allegro (4:28) • SONATA NO. 3 IN D MINOR, BWV 527 : 7. I. Andante (6:20) • 8. II. Adagio e dolce(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:05:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3476A8BC029D9BC6D142B5A1D3480D9C81C32634
 ```
 
 https://mybot314.ru/tekegram_catalog/

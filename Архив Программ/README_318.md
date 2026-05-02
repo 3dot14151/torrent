@@ -1,3 +1,29 @@
+###  Публикация: 1102241   (892799) от 08.02.2017
+
+BurnAware Professional 10.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892799.jpg" />
+</div>
+
+
+###  Подробнее
+
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF450B8DAEF8D8875EE31D97C828F85B7CEC0F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102001   (892791) от 08.02.2017
 
 NetSetMan 4.3.4 + Portable [Multi/Ru]
@@ -644,32 +670,6 @@ Blackmagic Design Fusion Studio 17.3.1 Build 6 (x64) RePack [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E1B0CE86127B47C2423F83779073B7E23393D1D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493937   (892000) от 05.09.2021
-
-PIDKey Lite 1.64.4 b17 Portable by Ratiborus [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892000.jpg" />
-</div>
-
-
-###  Подробнее
-
-PIDKey Lite предназначена для просмотра, обновления и сохранения в базе информации о ключах для продуктов M$.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97CD8AC344722950F3B188B96B6F83C25DD9150F
 ```
 
 https://mybot314.ru/tekegram_catalog/

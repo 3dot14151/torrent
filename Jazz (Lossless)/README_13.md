@@ -1,3 +1,61 @@
+###  Публикация: 1461118   (1022132) от 08.04.2021
+
+Sasi Shalom - Nedyaj (2021) [FLAC|Lossless|WEB-DL|tracks] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022132.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nedyaj - 05:30
+2. Monkey - 05:37
+3. The Way I See It - 05:25
+4. For The Smile - 04:31(   Читать дальше...   )Жанр: FusionПродолжительность: 01:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C9A18D4631CF293E19691D6D3E9BCF74D19A73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461119   (1022131) от 08.04.2021
+
+Jonny King - In From The Cold (1994) Criss Cross [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Jefe [8:29]
+02. Fire and Brimstone [7:01]
+03. In From the Cold [9:39]
+04. The Giant and the Dwarf [6:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46B09713769337A1601E25A7D03B0750B529A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461081   (1022093) от 08.04.2021
 
 VA - Best Of Green Hill Music: The Jazz Collection (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -687,64 +745,6 @@ Jane Monheit - Come What May (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54217B3F388600DDC5CBC7AC8580FD6952CB64A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464687   (1019668) от 23.04.2021
-
-Jimmie Noone - The Jimmie Noone Collection, Vol.1 (1928) 1992, Collector's Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Know That You Know [3:00]
-02. Sweet Sue - Just You [3:15]
-03. Four or Five Times [3:18]
-04. Four or Five Times [3:17](   Читать дальше...   )Жанр: New Orleans JazzПродолжительность: 01:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EE6A24144DAD6E4D30D58EB79B6F41BE857C95A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465159   (1019315) от 25.04.2021
-
-Ghost Train Orchestra - Book Of Rhapsodies (2013) Accurate [FLAC|Lossless|tracks + .cue] <Swing, Modern Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie's Prelude [2:46]
-02. Beethoven Riffs On [3:12]
-03. Volcanic (Eruption for Orchestra) [2:51]
-04. Dance Man Buys a Farm [3:30](   Читать дальше...   )Жанр: Swing, Modern Big Band, Mainstream JazzПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:582CE45E564874072192EC8D1C9879F55F4214AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,65 @@
+###  Публикация: 577557   (358551) от 19.11.2012
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #102 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358551.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #102 (2012)
+Год: 2012
+Жанр: Vocal Trance
+Продолжительность: 02:53:19Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+001. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
+002. Rave Channel - Illusion (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD38A88CBD389F26A573AFFCCC158A9334F7BFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328718   (358174) от 02.10.2019
+
+VA - Club Panorama: House Dance Party (2019) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358174.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fatum - Chocolate
+002. Cosimo Pagano - All The Girls Bounce
+003. Ricardo Piedra - Enceladus
+004. Sunny Lax - Sheeverz(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8E2A340E473D880E9315DD2EC568B95718B078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328720   (358172) от 02.10.2019
 
 VA - Essentials Dance House: October Select Mix (2019) [MP3|320 Kbps] <Dance House, Electro>
@@ -701,64 +763,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96B93549E4EA29477F33FB72F9E68846CF8B0358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1178867   (353966) от 29.10.2017
-
-VA - Jazz About Lounge (2017) [MP3|320 Kbps] <Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ingo Herrmann – A New Day
- 02. Roto Moto – Phat Flannel
- 03. Zero Groove – Cavazzo
- 04. Five – Thurio(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970D8D1E677E4D163CB011151F84A98CB099B89E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256536   (353868) от 22.10.2018
-
-VA - Parametric Tech House (2018) [MP3|320 Kbps] <Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353868.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Big Bunny - Astonishing
-002. Adicted - Dream Machine (Original Mix)
-003. Waganetka - Of Millions
-004. Terranova - Underverse(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC539D5CEF855E939A226D8A62D9E2D1730C67EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

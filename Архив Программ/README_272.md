@@ -1,3 +1,29 @@
+###  Публикация: 1366349   (923582) от 11.03.2020
+
+Balabolka 2.15.0.734 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_923582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа "Балаболка" предназначена для чтения вслух текстовых файлов. Для воспроизведения звуков человеческого голоса могут использоваться любые речевые синтезаторы, установленные на компьютере.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1872C240BDD80900F5BA4108F3C70F26F958BF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1489729   (923579) от 17.08.2021
 
 Google Chrome 92.0.4515.159 Portable by Cento8 [Ru/En]
@@ -649,32 +675,6 @@ Mirillis Action! 4.21.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F83F3E34B5B2241CA053D37320CC6B07900FB45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096016   (922456) от 22.01.2017
-
-EZ CD Audio Converter 5.1.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922456.jpg" />
-</div>
-
-
-###  Подробнее
-
-EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C535344B517F11B4158C705B56DEDE495589CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1645054   (231917) от 08.07.2023
+
+Bangalore Choir - Center Mass (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One Night (Live, Hamburg, 2022) [00:04:10]
+02. Loaded Gun (Live, Hamburg, 2022) [00:04:25]
+03. Slippin' Away (Live, Hamburg, 2022) [00:04:39]
+04. Victim Of The Night (Live, Hamburg, 2022) [00:04:40](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BDBD3C8CBC9053E0A3FD3F44305E121FAD23F05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643376   (231822) от 01.07.2023
+
+Supremacy - Influence (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231822.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Passing Through
+2. Mr. Big Shot
+3. My Time
+4. Dance For Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3A47A21110E3C42B704C955F6395101C00B6B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647455   (231688) от 18.07.2023
+
+Avi Rosenfeld - Lions II (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Param Dushpara (3:41)
+02. Thunder in the Sky (4:15)
+03. Don't Need No Sad News Story (4:12)
+04. Once He Cried to the Moon (4:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD258D5B0F5B0D96B419C49EB71A94DB34016600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646633   (231658) от 16.07.2023
+
+Khalil Turk & Friends - Turkish Delight - Volume 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No One Knows Your Name [00:04:19]
+02. Come On [00:04:06]
+03. Destiny [00:04:43]
+04. I Am Ready [00:05:03](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:52:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8300BB19C38941759E1DC66A93F50D01565E76E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647896   (231511) от 20.07.2023
 
 Later Sons - Rise Up (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -629,122 +745,6 @@ Scorpions - Blackout (1982) 2018, Remastered, Reissue [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFC4CF078FA6DA25E4C5E7C1370CE385E491E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583427   (228911) от 15.10.2022
-
-Wildness - Resurrection (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightmare
-02. Release The Beast
-03. Tragedy
-04. Love Resurrection(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6A38CB152D8642E7557B507D962DB8405FA7C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649846   (228741) от 29.07.2023
-
-PistonFist - Redline (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Become the Rage
-02 - Dig In
-03 - Resent the Day
-04 - Blue Cheese(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D60A1BCBD929D035DD38AF463E9A6E58285A01D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583804   (228045) от 16.10.2022
-
-Raider - Runaway (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dusk Til Dawn (3:57)
-02. High Speed Woman (4:00)
-03. Runaway (4:18)
-04. Come And Get It (3:01)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064F862E999C89ED3503D24C14CDEF0ADFD99EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1649699   (227932) от 30.07.2023
-
-James Rivera's Metal Wave - New Wave Gone Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Celebration [00:04:41]
-02. Love My Way [00:03:31]
-03. Lovesong [00:04:12]
-04. Shock The Monkey [00:05:01](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30E1199FFD9C3F5817130220E7FFB59768F85D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

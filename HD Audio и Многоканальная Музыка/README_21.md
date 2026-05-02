@@ -1,3 +1,148 @@
+###  Публикация: 1127804   (729859) от 23.04.2017
+
+Сергей Яковлевич Лемешев - Концерт: арии из опер и романсы П. И. Чайковского (1951) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Classical, Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ария Ленского (П. Чайковский, из оперы ''Евгений Онегин'')
+02. Каватина Владимира Игоревича (А. Бородин, из оперы ''Князь Игорь'')
+03. Соловей (П. Чайковский)
+04. То было раннею весной (П. Чайковский)(   Читать дальше...   )Жанр: Classical, VocalПродолжительность: 00:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD0DFDE4CBFC97D00B7516CBB06E3D9FE8309A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530402   (728929) от 11.02.2022
+
+Jethro Tull – The Zealot Gene (2022) [DSD128 2.0|tracks|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mrs Tibbets (5:53)
+ 02. Jacob's Tales (2:13)
+ 03. Mine Is The Mountain (5:40)
+ 04. The Zealot Gene (3:53)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B246F3D9053A5C3C39ACCB57FD00A839BC6131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284286   (728766) от 21.02.2019
+
+Lynyrd Skynyrd - Last of a Dyin' Breed (2012) [FLAC 2.0 24/192|image|Vinyl-Rip] <Southern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last of a Dyin' Breed (3:52)
+ 02. One Day at a Time (3:46)
+ 03. Homegrown (3:41)
+ 04. Ready to Fly (5:26)(   Читать дальше...   )Жанр: Southern RockПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF22B9BEB60AFD89E76E5C081B92F42347F835D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530226   (728683) от 11.02.2022
+
+ДДТ - Я Получил Эту Роль (1989) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728683.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Поэт (1985)
+A2 Мальчики-мажоры (1985)
+A3 Конвейер (1987)
+A4 Не Стреляй! (1982)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7A38E00B185EEA503AC903D3D22F951017B5460
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128403   (728545) от 24.04.2017
+
+Jeff Lynne - Armchair Theatre (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728545.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Every Little Thing (3:45)
+A2. Don't Let Go (2:59)
+A3. Lift Me Up (3:38)
+A4. Nobody Home (3:54)(   Читать дальше...   )Производство: Reprise Records - 7599-26184-1Жанр: RockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C66386E6A8D4786D67AF6FC32B3C01129F9B5963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955597   (727525) от 12.02.2022
 
 VA - Мельница: Песни И. Николаева (1988) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Pop>
@@ -602,151 +747,6 @@ Annihilator — трэш-метал группа, основанная в 1984 �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:193B72E44DD9C24FEF082A7C379DDB4D32964E2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027018   (699842) от 17.06.2016
-
-VA - Архив Популярной Музыки 1-12 (1988-1990) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Rock-n-Roll, Hard Rock, Pop Rock, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Она Мило Улыбнулась · She Smiled Sweetly
-02. Соединение · Connection
-03. Вчерашние Газеты · Yesterday's Papers
-04. Серьезная, Спокойная И Собранная · Cool, Calm And Collected(   Читать дальше...   )Жанр: Rock-n-Roll, Hard Rock, Pop Rock, SoulПродолжительность: 08:03:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1B9A12060A1FA9D892B95D145EAE4122F73D695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402817   (697922) от 16.08.2020
-
-Wetton / Manzanera (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697922.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 It's Just Love
-A2 Keep On Loving Yourself
-A3 You Don't Have To Leave My Life
-A4 Suzanne(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C63C9672ECC9D223D4658C1C8C036907B7EA02C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534184   (694255) от 02.03.2022
-
-Lou Gramm - Ready Or Not (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694255.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ready Or Not
-A2 Heartache
-A3 Midnight Blue
-A4 Time(   Читать дальше...   )Жанр: Hard Rock, Pop RockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8309D8D21EC3FADFB102F752FB0DD3C6C2DDD7B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151830   (694127) от 02.03.2022
-
-Shy - Excess All Areas (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694127.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Emergency
-A2 Can't Fight The Nights
-A3 Young Heart
-A4 Just Love Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFEBED8B5EB0AAA6D219FDB7F9D961E29262A747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150975   (694000) от 02.03.2022
-
-George Harrison - Somewhere In England (1981) [FLAC 2.0|192/24|image+.cue|Vinyl-Ri] <Pop Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694000.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Blood From A Clone
-A2 Unconsciousness Rules
-A3 Life Itself
-A4 All Those Years Ago(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:39:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B1F8F64BFB391086913FC53E92A74495250133
 ```
 
 https://mybot314.ru/tekegram_catalog/

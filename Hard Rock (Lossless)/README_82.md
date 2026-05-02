@@ -1,3 +1,119 @@
+###  Публикация: 1591808   (185573) от 20.11.2022
+
+Desert Wave - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Space>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Outside Pt.1 [00:03:58]
+02. Outside Pt.2 [00:03:40]
+03. Deafening Silence [00:05:22]
+04. Above [00:04:44](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, SpaceПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C17A4BE7A87BAEBDE511ABD4C0DEBBB9412533B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664497   (185517) от 26.09.2023
+
+West Alley - A Night To Remember (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What A Night To Remember [00:03:28]
+02. Good Times [00:04:14]
+03. Fortune And Fame [00:04:16]
+04. Miracles Can Happen [00:04:24](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250F79B4427375675BCD4CE14617240D64F90959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591796   (185342) от 20.11.2022
+
+Odonata - Gravitational Perturbation (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Doom, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oriental Memories (Long Version)
+02. Son Of Iron
+03. Red
+04. Metamorphosis(   Читать дальше...   )Жанр: Psychedelic Rock, Doom, Stoner RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07E6A6C1C79A380F0BF6F03DA32853E74480C309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591799   (185123) от 20.11.2022
+
+Snakebite Delight - Swamp Walker (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Psych, Garage>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swamp Walker
+02. Moonshine Madness
+03. Ice Giant
+04. Sunshine & Medicine(   Читать дальше...   )Жанр: Heavy Rock, Stoner, Psych, GarageПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D535780FC8903873CB091803CE99C83CEDCF9450
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1664701   (184906) от 27.09.2023
 
 Cardinal Point - Man Or Island (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Southern Metal, Stoner>
@@ -629,122 +745,6 @@ Skarlett Roxx - Skarlett's Web (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A1E3EC553E5FA1F8CF01A5F2B06E402BB581EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593084   (181159) от 26.11.2022
-
-Bad Sister - 2 Albums (2009-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lose Or Win [00:04:18]
-02. Feels Like Love [00:03:51]
-03. Bright Lights [00:04:19]
-04. Don't Need Me [00:04:38](   Читать дальше...   )Жанр: Melodic Hard Rock, Female VocalПродолжительность: 2 CD, 01:56:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E33E491183BFD3115255991CC48D6995412138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593218   (181139) от 26.11.2022
-
-Elder - Innate Passage (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Prog>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catastasis
-02. Endless Return
-03. Coalescence
-04. Merged In Dreams - Ne Plus Ultra(   Читать дальше...   )Жанр: Heavy Psych, Stoner, ProgПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAD66A90D78CF0013D42CC007310358FB892FF73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665814   (180905) от 02.10.2023
-
-Backwater - Rock Me To The Limits (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Me To The Limits [00:03:44]
-02. Hey You Gin [00:04:15]
-03. Butterfly Rock [00:03:59]
-04. I Do My Best [00:05:10](   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643385CAE7D07CA43834AA50D4D96E77D87C6820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665953   (180874) от 02.10.2023
-
-Shy - Sunset And Vine (2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Time
-02. Open Your Heart
-03. Soul Searching
-04. Where Is The Love(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D4AECD71272CEC15994B3B08E8ECE92E4B1BC55
 ```
 
 https://mybot314.ru/tekegram_catalog/

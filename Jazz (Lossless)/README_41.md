@@ -1,3 +1,61 @@
+###  Публикация: 1100056   (901490) от 03.02.2017
+
+Eight O'Five Jive - Swing Set (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jump Blues, Swing, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Mine A Double
+02. Ragged
+03. Get Away
+04. Put It Back(   Читать дальше...   )Жанр: Jump Blues, Swing, Female VocalПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13E1FB4816090AAEB99F28F32B3A5E08C150CC68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100123   (901130) от 03.02.2017
+
+Scott Bradlee's Postmodern Jukebox - Squad Goals (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz, Swing, Vintage, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901130.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.MMMbop (feat. Kenton Chen, Luke Edgemon, Matt Bloyd & Mario Jose) (3:39)
+2.Toxic (feat. Melinda Doolittle) (4:47)
+3.Dancing In the Dark (feat. Von Smith) (3:30)
+4.Black Hole Sun (feat. Haley Reinhart) (4:31)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Vintage, Jazz-PopПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5955034A1974473B7DBD2CE2E376CF298E875386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 992472   (901127) от 02.03.2016
 
 "Big" John Patton - Blue John (1963) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -688,64 +746,6 @@ VA - Jazz at Picasso (2008) Live Jazz in Kiev [FLAC|Lossless|image + .cue] <Main
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A0748FB2646DCDD8E00A590349CFF4A527C2BAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101225   (896423) от 06.02.2017
-
-Dolf De Vries Trio - Where's That Rainy Day (1986) Remaster, 2016, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.La Mer [04:20]
- 02.You Make Me Feel Brandnew [04:01]
- 03.Bernie's Tune [02:19]
- 04.Comecar De Novo [03:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055CFE903DC703870FC1898BB69F4A10CE6E1A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101226   (896422) от 06.02.2017
-
-Art Farmer & Fritz Pauer - Azure (1987) Soul Note[FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.If You Could See Me Now [04:41]
- 02.Nighttime [04:01]
- 03.Yesterday's Thoughts [05:01]
- 04.Blue Windows [03:23](   Читать дальше...   )Жанр: CoolПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A73BABE56679EA0FE63B101F7B11BBB3F18A4E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

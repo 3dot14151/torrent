@@ -1,3 +1,61 @@
+###  Публикация: 1290596   (678252) от 20.03.2019
+
+VA - Running Workout 2019 [MP3|320 Kbps] <House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flo Rida - GDFR (feat. Sage The Gemini & Lookas)
+02. Galantis - Peanut Butter Jelly
+03. Clean Bandit - Solo (feat. Demi Lovato)
+04. Anne-Marie - 2002(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:29:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A9CB36CC58C5F5437B23B1BB66BFF931C8D1EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290496   (678238) от 20.03.2019
+
+VA - YR Best Chillout Vol.38 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ATB - Feel Like Me (R.I.B & Soty Chillout Version) 1:35
+02. FATE - Black Magic (Original Mix) 3:00
+03. Katy Perry - Rise (Acoustic Version) (Ali Brustofski Сover) 3:16
+04. Ana Criado - Vulnerable (Nowhere To Hide) (Mark Otten Downtempo Remix) 5:02(   Читать дальше...   )Жанр: Chillout, Downtempo, Lounge, Trap, AmbientПродолжительность: 06:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:323DA300B372035F1942E7ADFC8715397C37696B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290046   (678210) от 20.03.2019
 
 VA-DubStep Pro Vol.1-35 from AGR (2012-2013) [MP3|320 Kbps] <DubStep>
@@ -695,64 +753,6 @@ VA - Vocal Melody Salvation (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91B3E0AD7064D6D244074DB775A2A9D19954FA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290839   (674182) от 22.03.2019
-
-VA - Hardstyle Music For Sports (2019) [MP3|256 Kbps] <Hardstyle, Dance, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674182.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andу Thе Cоrе - Itаliаn Psусhо
-002. Aksуs - Nо Esсаре
-003. Dj Dеll & Sсоtt Brоwn - Aсid Anthеm
-004. F.Nоizе Vs Anhаtеmа - Gеt Dоwn(   Читать дальше...   )Жанр: Hardstyle, Dance, ElectroПродолжительность: 09 :55 :21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA43627136E21A1E4636EAF5F4D55599E5F4495
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030519   (673924) от 30.06.2016
-
-VA - Hits of My Soul Vol. 03 (2016) [MP3|320 кб/с]<House, Electronic, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Lambert - Ghost Town (Original Mix) (03:29)
-02. Vinai feat. Harrison - The Wave (Original Mix) (03:27)
-03. Moguai - Kixs (Original Mix) (05:38)
-04. Mike Posner - I Took A Pill In Ibiza (Seeb Extended Edit) (04:00)(   Читать дальше...   )Жанр: House, Electronic, Pop, DanceПродолжительность: 03:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCEA83D38F845C73943ACA2971CD89779240BB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

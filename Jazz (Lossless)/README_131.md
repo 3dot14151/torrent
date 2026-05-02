@@ -1,3 +1,61 @@
+###  Публикация: 1146924   (613085) от 30.06.2017
+
+Ben Perowsky, Frank Perowsky, Sam Yahel - Bop On Pop (2002) JazzKey Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vierd Blues [05:27]
+02. The Jitterbug Waltz [06:57]
+03. Quicksilver [05:45]
+04. All Of You [06:46](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A598387365C99E79766D3B1E910C87D8BC812208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146937   (613081) от 30.06.2017
+
+The Red Garland Trio - Rojo (1958) 1993, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rojo [08:55]
+02. We Kiss In A Shadow [06:48]
+03. Darling Je Vous Aime Beaucoup [05:15]
+04. Ralph J. Gleason Blues [06:44](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DF667C09EDCAE9C6E5DFE4868E661C5E1F4898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1146912   (613080) от 30.06.2017
 
 Billy Mitchell - This Is Billy Mitchell (1962) 2003, Verve Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
@@ -702,64 +760,6 @@ Vanessa Bley - Colors (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B13A608FBED09516D575D16F67F0ED29106EDD4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230929   (610582) от 15.06.2018
-
-McCoy Tyner Trio With Symphony - What The World Needs Now: The Music of Burt Bacharach (1997) Impulse! [FLAC|Lossless|image + .cue] <Hard Bop, Third Stream, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (They Long to Be) Close to You [7:51]
-02. What the World Needs Now Is Love [6:09]
-03. You'll Never Get to Heaven (If You Break My Heart) [5:05]
-04. The Windows of the World [5:30](   Читать дальше...   )Жанр: Hard Bop, Third Stream, Piano JazzПродолжительность: 00:52:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE94082D2FBF19138465E0B4DDA51C711896DA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1296655   (610328) от 18.04.2019
-
-Clark Terry - Combo & Sextet: Free And Oozy (1963) 1998, Blue Moon [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610328.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tread Ye Lightly [8:08]
-02. The Good Life [2:19]
-03. Blues Fr'Ell [3:52]
-04. Georgia On My Mind [4:22](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:164573C9AFF17A96068C74251F0BE2F23E3AA991
 ```
 
 https://mybot314.ru/tekegram_catalog/

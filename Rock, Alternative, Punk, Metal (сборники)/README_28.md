@@ -1,3 +1,61 @@
+###  Публикация: 1312255   (534388) от 03.07.2019
+
+VA - Erozion: Metal Collection (2019) 2CD [MP3|320 Kbps] <Death, Black Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534388.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+001. Autovoid Redemption - My Choice
+002. Brainoil - Preface To Madness
+003. Leo - Hold The Line(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 15:05:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773F4A39DD32FA328CF62B22491EEAEB7864C570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1312303   (534293) от 03.07.2019
+
+VA - Retribution Therapy: Hard Rock Aggregation (2019) [MP3|320 Kbps] <Hard Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534293.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. D'alva - Vazio
+002. The Fibs - Morning Train Slide
+003. The Flaming Lips - Riding To Work
+004. The Glorious Sons - Shapeless Art(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 10:20:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1885AB7B836B7652137DB0BF2DADB37A62C9CACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051402   (532575) от 11.09.2016
 
 VA - Conversations With Myself (2016) [MP3|320 Kbps] <Rock, Hard Rock>
@@ -690,64 +748,6 @@ VA - Рок-Весна (2015) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD6BA391633A28DB98F4CA54B2C8A9F7225301F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316537   (505805) от 26.07.2019
-
-Nirvana - Come As You Are (2019) (Compilation) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smells Like Teen Spirit
-02. The Man Who Sold The World
-03. Come As You Are
-04. About A Girl(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4450EDF9F56CB9B50E21FBE351D22A2EBE251262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934264   (503470) от 04.09.2015
-
-VA - Mojo Presents: David Gilmour & Friends (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503470.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. David Crosby & Graham Nash - Don't Dig Here (6:09)
-2. Ulver - Everybody's Been Burned (3:25)
-3. Phil Manzanera - Sacred Days (3:56)
-4. David & Joe Gilmour - Here, There & Everywhere (3:12)(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F3082551D841AEEAF2664AD51895466F484534D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1082634   (277487) от 13.12.2016
+
+Darrell Mansfield - I Am Not Alone (2014) [FLAC|Lossless|tracks + .cue] <Christian Blues-Rock ,  Christian Rock ,  Christian Blues ,  Gospel Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Honey Hush
+02 - Jesus Left Chicago
+03 - Everybody Wants To Go To Heaven
+04 - I Am Not Alone(   Читать дальше...   )Жанр: Christian Blues-Rock ,  Christian Rock ,  Christian Blues ,  Gospel BluesПродолжительность: 01^01^38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45327921DC32053C081C53C854B2022B95366E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188471   (274754) от 02.12.2017
+
+Jimmy And The Poor Boys - Cinco Songo's (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wishing Well  (04:12) 
+02. If You Love Me Like You Do  (03:44) 
+03. Caught in the Rain With You  (04:30) 
+04. Me and The Devil  (03:26) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:20:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D25DB6340B384F0A32836B3007C52E17AA1BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265555   (274065) от 28.11.2018
+
+Sade - Rare Adventure (2003) Unofficial Release [FLAC|Lossless|tracks + .cue] <Soul, Funk, Jazz, House>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/12. I Never Thought I'd See The Day (Club Mix) (8:03)
+ 02/12. Pearls (Club Mix) (8:35)
+ 03/12. Love Is Stronger Than Pride (4:28)
+ 04/12. Super Bien Total (92 Remix) (6:50)(   Читать дальше...   )Жанр: Soul, Funk, Jazz, HouseПродолжительность: 01:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93FFB57C25B64A09936A894FBE710702EEE009E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188813   (273599) от 03.12.2017
+
+Gin House Blues Band - Gin House Blues Band (1991) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Power Of The Blues  (03:25) 
+02. Down To Big Mary's  (02:43) 
+03. You Don't Love Me  (03:03) 
+04. Unknown Boy  (04:40) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858B03BE6AC6F23AC7AA205DB3F3A824CFD09BF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188768   (273511) от 03.12.2017
 
 Zed Mitchell - Summer in L.A. (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Luke - The Truth Remains The Same (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA5E6AB8E7D2B3FD26617594A5655006A82B72C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838632   (260676) от 23.11.2025
-
-Matthew Patrick - Authentico (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  40 Below (4:04)
-02.  Bikes, Bullets, and Beer (4:05)
-03.  Dark Train (3:38)
-04.  Long Cold Walk (3:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CDB1010494B089D7BBECFFA53C38567DAA21C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838633   (260675) от 23.11.2025
-
-Rich Wendel's Fat Fish Logic - The Last Comeback (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fish in the Sea (9:37)
-02.  Things Ain't What They Was (5:09)
-03.  Take a Minute for Yourself (5:08)
-04.  Wairunga Blues (5:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A987BA3072CC45C39765C286FB54F21DB49D16E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838634   (260674) от 23.11.2025
-
-Southbound Snake Charmers - 1000 Cuts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  1000 Cuts (3:25)
-02.  Take it or Leave it (3:16)
-03.  Bonnie vs Clyde (3:31)
-04.  Flying High (3:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:720E839344A822A1AC3D663E977CACFB34BC2E29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838635   (260673) от 23.11.2025
-
-Steve Hooker - Smokin' Guitar (remastered) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wolf Farm (Grange Aux Loops) (4:08)
-02.  Devil I Know (3:02)
-03.  Mocking Bird (2:50)
-04.  Gospel Ground (4:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612BCE548B749B6B272B7291A8F4F366EEC99DD9
 ```
 
 https://mybot314.ru/tekegram_catalog/

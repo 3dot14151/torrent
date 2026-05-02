@@ -1,3 +1,60 @@
+###  Публикация: 157747   (985090) от 08.01.2010
+
+Числа / Numb3rs (Сезон 3, серии 24 из 24) DVDRip [NovaFilm]
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985090.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый день мы используем числа, чтобы прогнозировать погоду, определять время, считать деньги… С помощью математики мы можем анализировать преступления, выявлять закономерности, предсказывать поведение… Используя числа, мы можем решить величайшие загадки. Этот сериал об агенте ФБР, которому брат-математик помогает раскрыть серию преступлений в Лос-Анжелесе.Жанр: Детектив, Комедия, БоевикРежиссер: Дэннис Смит, Алекс Закржевский, Джон Беринг, ...Актеры: Дэвид Крумхольц, Роб Морроу, Джудд Хирш, Нави Рават, Питер МакНикол, Дайан Фарр, Дилан БруноПеревод: Двухголосый закадровыйПродолжительность: 24 серий по 00:43:00 минуты
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612689   (985055) от 02.02.2013
+
+Civilization V: Campaign Edition - 1.0.7 [Native]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Civilization V: Campaign объединяет все функции и возможности одиночной кампании Civilization V. Станьте властелином мира путем создания и развития своей цивилизации, от первых племен до космической эпохи: ведите войны, используйте дипломатию, открывайте для себя новые технологии, соревнуйтесь с некоторыми из величайших лидеров в истории и постройте самую мощную империю мира.
+Civilization V: Campaign Edition включает the Babylon Civilization Pack и их правителя Nebuchadnezzar II, а также Монгольскую цивилизацию и дополнительные сценарии.
+ Added support for new Retina display which is a max resolution of 2880x1800. Users should note that turning up other graphical settings in this resolution WILL cause problems with performance. Default settings are best.
+ Addressed issue where ‘Trading Post’ 3D graphic was displaying old graphic.
+ Added DLC restore feature when launching after updates.•••Релиз состоялся: 2012Тип издания: MacOS X gameЖанр: Strategy (Real-time / Turn-based) / 3DЯзык интерфейса: English, French, German
+•
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594073   (985050) от 02.02.2013
 
 Право на правду [32 серии из 32] (2012) SATRip
@@ -643,74 +700,6 @@ NoLeak - 0 (mixtape) (2012) [MP3|320 кб/с]<Alternative Hip-Hop, Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB6E68AB92C5E506ADBFA55375AA9F8322A81170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613315   (984809) от 03.02.2013
-
-The Absolute Man - Leonardo (2001) [WavPack|Lossless]<Progressive Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apparition [05:42]
-02. Aria For Italy [00:49]
-03. With Father [01:48]
-04. Reins Of Tuscan [05:49]
-05. Reproach [01:11]
-06. Mona Lisa [07:11]
-07. Il Divino [03:22]
-08. Inundation [01:08]
-09. Apprentice [06:56]
-10. First Commission [03:47](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613345   (984807) от 03.02.2013
-
-Windbruch - Collision Of The Worlds (2009) [WavPack|Lossless]<Depressive / Atmospheric Black Meal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day I (With the Sunrise) [02:28]
-02. Day II (Inhale - Exhale) [06:24]
-03. Day III (Onslaught) [10:12]
-04. Day IV (On the Edge) [05:27]
-05. Day V (She is Forgotten) [06:27]
-06. Day VI (Collision of the Worlds in Your Mind) [06:14]
-07. Day VII (Stairway to Heaven) [02:39]
-08. Theme of Laura (Akira Yamaoka Cover) [03:36]Жанр: Depressive / Atmospheric Black MetalПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

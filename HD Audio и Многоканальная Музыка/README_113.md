@@ -1,3 +1,177 @@
+###  Публикация: 1709748   (112801) от 25.03.2024
+
+Раймонд Паулс - Сестра Керри (1979) [FLAC 24/192|Lossless|tracks] <Musical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112801.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Сторона.
+01-Пролог
+02-Песенка Керри
+03-Тип-топ(   Читать дальше...   )Жанр: MusicalПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CF7EEF628D0C8018D023AA9DD68EAFC0F324F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709606   (112774) от 25.03.2024
+
+Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things I've Been Telling Myself for Years (3:34)
+02. Lovers' Leap (4:35)
+03. (Where Is It?) (0:27)
+04. Balu (3:53)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E80D24ABA0E60A4A4314AC8C401E6BA74012FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710234   (112763) от 26.03.2024
+
+Робертино Лорети (Robertino Loreti) - Поёт Робертино Лорети (1962) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. О мое солнце (Э. Капуа)
+02. Аве Мария (Ф. Шуберт)
+03. Мама (Неаполитанская песня)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACA8356CDD814429AA454A960F1C6A02DA6C42F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710389   (112745) от 26.03.2024
+
+Abya - Prayer Of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bells Of Blood (6:38)
+02. Frozen Crown (7:19)
+03. Prayer Of Chaos (7:40)
+04. Walking In The Shadows (7:52)(   Читать дальше...   )Жанр: Progressive Metal, Symphonic MetalПродолжительность: 00:36:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFC0C38DE6264EBAFED1A61C4B4D309F502A39F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710244   (112744) от 26.03.2024
+
+София Ротару - Монолог о любви (1987) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112744.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Песня нашего лета (В. Матецкий — М. Танич)
+02. Ночь (музыка и слова В. Лащука)
+03. Осень (И. Поклад — Г. Тараненко)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B86D7F680F71B5AE4F9F9F60E2070699CDEDD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1710056   (112740) от 26.03.2024
+
+Judas Priest - Invincible Shield (2024) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112740.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Panic Attack
+A2 The Serpent And The King
+B1 Invincible Shield
+B2 Devil In Disguise(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5506CB4664DA05850D56870BC043E7711DFA3F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1710232   (112733) от 26.03.2024
 
 Ренат Ибрагимов - Все вернется (1980) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
@@ -568,180 +742,6 @@ Texas & Spooner Oldham - The Muscle Shoals Sessions (Parce que - La Collection) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E35D5FC14AC41E87D004159FFDEE3203B5141435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711428   (112453) от 30.03.2024
-
-:LOR3L3I: - The Demo Collection (2020) Limited Edition, Remastered 2021 [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Electronic, Rock, Ethereal, Coldwave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Metanoia [5:08]
-02 - Reprochuman [4:22]
-03 - Otherworldly Children [6:08]
-04 - Dear Brother [4:58](   Читать дальше...   )Жанр: Dark Electronic, Rock, Ethereal, ColdwaveПродолжительность: 01:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6855799F7830DF4885470F10B0482B28F37962A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823033   (112408) от 09.10.2025
-
-30th August Cover - Bad Songs (Europe Master) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Thank U (3:27)
-02.  Dog Days Are Over (4:01)
-03.  Running Up That Hill (5:01)
-04.  What You Waiting For (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09E95E26C56780E2DD7AC372B6472C164731184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823035   (112403) от 09.10.2025
-
-Aaron Lehnen - Black Sabbath: A Tribute To Ozzy (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  War Pigs (7:51)
-02.  The Wizard (4:26)
-03.  Paranoid (2:45)
-04.  Iron Man (5:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A15DE655FBA243606A1BA80122A037C35959CB33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823036   (112401) от 09.10.2025
-
-Alex Kozub - Evenings & Weekends (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Victoria (3:36)
-02.  River Song (5:36)
-03.  Burger Wrappings in the Rain (4:28)
-04.  Resistance (3:47)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C846EF05757B6DCF351825C15C2E72FC14E0B6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711807   (112397) от 31.03.2024
-
-Silver Convention - Save Me (1975) Remaster, 2024, Omnivore Recordings [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Save Me (00:04:16)
-02 - I Like It (00:04:56)
-03 - Fly, Robin, Fly (00:05:32)
-04 - Tiger Baby (00:04:14)(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6633B4A538D8AFF96458EE1F942255C4C92321D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823037   (112394) от 09.10.2025
-
-Amerikan Bear - Seconds (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ancient Age (7:18)
-02.  People (6:40)
-03.  Teeth of the Saints (5:41)
-04.  Us Stays We (8:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D16377F68DFFE84CA9B467E004F26F89938D771D
 ```
 
 https://mybot314.ru/tekegram_catalog/

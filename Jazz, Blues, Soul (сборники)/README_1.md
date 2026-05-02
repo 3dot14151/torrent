@@ -1,3 +1,32 @@
+###  Публикация: 1447721   (1031623) от 14.02.2021
+
+VA - Instrumental Jazz Palette (2021) [MP3|320 Kbps] <Jazz, Smooth, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031623.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вы в поисках приятного настроя, активного ритма и отменных звуков, то сборник «Instrumental Jazz Palette» представит всю палитру Ваших музыкальных желаний. Композиции лонгплея это великолепная смесь, обладающая воздушностью фанка, мелодичностью соула и экспрессией джаза.001. Jarmo Nikku - Just A Little Bit
+002. Nubya Garcia - Together Is A Beautiful Place To Be
+003. Wayne Escoffery - Quarter Moon
+004. Mark De Clive-Lowe - Esss(   Читать дальше...   )Жанр: Jazz, Smooth, InstrumentalПродолжительность: 08:28:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5C400AFCD58FF92C57B3EDB48513AD65B0D548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621646   (1030953) от 25.03.2023
 
 VA - Turn On Electro Jazz (2023) [MP3|320 Kbps] <Jazz, Instrumental, Improvisation>
@@ -710,35 +739,6 @@ VA - Sex, Blues and Rock! (2021) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC05B1D0073138203F352E450313865B9D90043D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476637   (1011498) от 12.06.2021
-
-VA - Vintage Melody: Soul Funk Music (2CD) (2021) [MP3|320 Kbps] <Soul, Funk, Jazz, Lyric>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011498.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-001. Lance Reddick - Tick Tock
-002. The Spinners - O-O-H Child(   Читать дальше...   )Жанр: Soul, Funk, Jazz, LyricПродолжительность: 13:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE230F5D61327B775FF0D15DD8A2E3F6D9A6C631
 ```
 
 https://mybot314.ru/tekegram_catalog/

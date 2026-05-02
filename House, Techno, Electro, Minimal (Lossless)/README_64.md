@@ -1,3 +1,32 @@
+###  Публикация: 1725134   (109076) от 23.05.2024
+
+VA - Organica 2024 (Compiled by Marga Sol) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riccardo Leardini & Sotiris Kastanis & Tibetania - Tripodon (Original Mix) (5:20)
+02. Elmancholy & Tibetania - Deep Into Your Soul (Original Mix) (4:18)
+03. Johny & Tibetania - Vasudevaya (Original Mix) (5:38)
+04. Juantxo Munoz & Robric & Tibetania - Oman (Original Mix) (6:22)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 02:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:392B7DC26A414F78005231283DCFCA3DB24FA2C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727184   (108582) от 01.06.2024
 
 VA - The Deep Collective: Melodic Haze (2024) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
@@ -699,35 +728,6 @@ Empyre One Feat. Scarlet - I Turn To You 2k20 (2020) [FLAC|Lossless|tracks] <Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7350A6082340831592A23BA2CB8EEF56A90EE90C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736168   (106727) от 11.07.2024
-
-CVN - 4 Albums (2016-2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental, Abstract>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106727.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2016 - Matters
-CVN - 2019 - I.C.
-2020 - 2019 _ 1897 Split Series, Vol. V(   Читать дальше...   )Жанр: Electronic, Experimental, AbstractПродолжительность: 4 CD, 02:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13607E78BEF238C5795500BAC34BFB602BEAB4C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

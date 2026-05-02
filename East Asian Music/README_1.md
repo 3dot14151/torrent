@@ -1,3 +1,30 @@
+###  Публикация: 983729   (939712) от 08.02.2016
+
+4minute - Дискография (2010-2015) [FLAC|Lossless|tracks + .cue] <KPop, JPop, Electropop, Dance, R&B, Hip-Pop>
+
+>>East Asian Music
+>>Asian Pop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939712.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:14] Lee Hyori - Bring It Back (feat. Bekah, Jiyoon)
+[03:19] Navi - Nunmuldo Akkawo (feat. Hyun A from 4minute)Жанр: KPop, JPop, Electropop, Dance, R&B, Hip-PopПродолжительность: 02:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA964F83F9308D6C6017A92E224BA5838A8647FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364042   (939274) от 01.03.2020
 
 Katsu Ohta - Micronist (2003) [WavPack|Lossless|image + .cue] <Neoclassical Metal>
@@ -703,36 +730,6 @@ CD2 - 00:54:28Треклист CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C8AA4621C7FA1BB7199DC249195EA90F77377BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875266   (858018) от 06.03.2015
-
-GYAS — Koiro Gensou (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858018.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:10] 01. くろねこまりさ - 恋色幻想
-[03:11] 02. Rig - Fall of Fall ～groove mix～
-[06:37] 03. 1005、姫、ジャッカル - 護るべき者、破るべき物
-[03:59] 04. Rig - 少女が見た日本の原風景 ～オルゴール～
-[03:07] 05. くろねこまりさ (   Читать дальше...   )Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58E8A4FBD821BFCF99C62EA9F1DF144A21AB94BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

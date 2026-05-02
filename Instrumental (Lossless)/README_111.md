@@ -1,3 +1,119 @@
+###  Публикация: 1697330   (118911) от 06.02.2024
+
+Mark Dillon - T.A. Vern's (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T.A. Vern's (4:30)
+02. It's a Sin (4:02)
+03. Psychedelic Super Freak (4:53)
+04. El Rey (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015132B7A420684D7B9A44D5C5B3D04C182B6D44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697320   (118908) от 06.02.2024
+
+3rd Stone - Let Me Play My Song (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonewolf (4:48)
+02. End of the Road (4:40)
+03. Rebel Rider (4:47)
+04. Let Me Play My Song (5:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1980772FD00045CB510CB32D209E05B5071BF4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697329   (118899) от 06.02.2024
+
+Johnny Rawls - Walking Heart Attack (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking Heart Attack (3:25)
+02. Trying To Live My Life Without You (3:20)
+03. Free (3:39)
+04. Tell Me The Truth (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CA887B9AC6C720FBAD3D111F28BC8C9D8C46C64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697331   (118897) от 06.02.2024
+
+Mississippi Shakedown - Mississippi Shakedown QLD (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can We Get Married REAL Soon (3:42)
+02. Something Comes Into My Mind (3:53)
+03. A Hard Day's Night (4:10)
+04. (Living my Life) One Pay at a Time (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3569979F335D27450F27AD461527F8DBC20E03E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698427   (118434) от 09.02.2024
 
 Hitman Blues Band - "Hey, Can You Guys Play..." (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Dominic Kelly - Blues Adjacent (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79C91FA5A7F1C9FBE07C0CC89DA8F026AE1BA6E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702292   (115857) от 24.02.2024
-
-Rob Tognoni - 17 Albums (1995 - 2020) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rob Tognoni играет на сценах по всему миру в течение последних 40 лет. Он выступал на разогреве у великих: Roy Buchanan, Stevie Ray Vaughan's mentor Lonnie Mack, Joe Walsh из The Eagles, делил сцену с Peter Green, Sting, ZZ Top, Bo Diddley. Он представлял Австралию на королевских свадебных торжествах принца Фредерика и принцессы Марии Датских, выступал на чемпионате (   Читать дальше...   )Список альбомов:
-1995 - Stones And Colours
-1997- Headstrong
-1999 - Live At The TwilightЖанр: Blues RockПродолжительность: 17:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457B648CDE1FE1D3BEC81273162DB56521BCDCB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702702   (115470) от 26.02.2024
-
-Pascal Geiser - You Can Change Your Hat (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Found a Love (3:50)
-02. Rub It in (3:27)
-03. Handle with Care (2023 remastered) (3:05)
-04. Rainy Autumnday (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6359261FC9D5718927148D479D9D6B0208B240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703324   (115176) от 28.02.2024
-
-Monster Mike Welch - Nothing But Time (2023) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking to You Baby (5:16)
-02. If I Had Possession Over Judgement Day (3:46)
-03. I've Got Nothing But Time (4:04)
-04. I Me Mine (4:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5152B6C06D85CB199C499D04DC121D5B83C07B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703425   (115010) от 29.02.2024
-
-Luca Giordano, Victor Puertas, Netto Rockfeller Trio - Night Time Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West Armitage Shuffle (3:37)
-02. Night Time Boogie (4:18)
-03. I Dont Know (3:55)
-04. Kidman Blues (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0D1AA17F2C4BBFC85A572C984EEB4EBBB3725C
 ```
 
 https://mybot314.ru/tekegram_catalog/

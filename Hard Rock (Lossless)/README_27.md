@@ -1,3 +1,119 @@
+###  Публикация: 1207793   (780283) от 20.02.2018
+
+The Poodles - Devil In The Details (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before I Die (4:24)
+ 02. House Of Cards (4:25)
+ 03. The Greatest (3:53)
+ 04. Crack In The Wall (3:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C16415BB54DC81A6E59899F085C00F39D7BECB08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208292   (779976) от 22.02.2018
+
+Phil Campbell аnd The Bаstаrd Sоns (ex-Motоrhead) - The Аge Оf Аbsurditу (2018) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ringleader (4:05)
+ 02. Freak Show (3:42)
+ 03. Skin And Bones (3:50)
+ 04. Gypsy Kiss (2:23)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F2897DFAD2C5B4185C8045E75772A410D18EBB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1208721   (779748) от 23.02.2018
+
+Smile (pre-Queen) - 2 Albums: Ghost of a Smile / Gettin' Smile (1969-2018) [FLAC|Lossless|image + .cue] <Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doin' All Right  (3:49)
+02. Blag  (3:15)
+03. April Lady  (2:45)
+04. Polar Bear  (3:58)(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 01.32.57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDA080236A51DEBD8A72E190EB9068375616DCC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209639   (779139) от 28.02.2018
+
+The Bad Flowers - Starting Gun (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunder Child (03:57)
+02. Lions Blood (03:47)
+03. Secrets (03:44)
+04. Rich Man (03:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7ADB84445B9A84D10A955ADB35E2332E2C0464
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210122   (778872) от 02.03.2018
 
 Ammunition - Ammunition (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -628,122 +744,6 @@ Radioactive - F4ur [Japan Edition] (2015) [FLAC|Lossless]<Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5758B21EB3D0A026908FEBE1D2FBF3E2382A3135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018921   (754086) от 21.05.2016
-
-Voodoo X - Vol. 1 The Awakening (1989) [APE|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm On Fire
-02. Voodoo Queen
-03. A Lover Like You
-04. Don't Bother Me(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A26E9D9A471E342AB8ADB7AB0058A6A9851D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018900   (754085) от 21.05.2016
-
-Loverboy - Lovin' Every Minute Of It (1985) [APE|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovin' Every Minute of it (Robert John "Mutt" Lange)
-02. Steal the Thunder (Paul Dean, Mike Reno, Davitt Sigerson, Bill Wray)
-03. Friday Night (Patrick Mahassen, Wray, Dean, Sigerson)
-04. This Could Be the Night (Jonathan Cain, Dean, Reno, Wray)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10BBBA51726817E60743CC07C8815D13FFBAA86F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018792   (754011) от 21.05.2016
-
-Shiraz Lane - For Crying Out Loud (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Up (4:31)
-02. Momma's Boy (4:35)
-03. House Of Cards (4:41)
-04. Begging For Mercy (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8EF0B8E255EAF6BDF24C4E0C8B58D102967B551
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523143   (753276) от 10.01.2022
-
-Dead Echoes - Twin Flames (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 01:38
-02. Get Out Alive 04:31
-03. Don't Count On Me 03:52
-04. Runaround 04:07(   Читать дальше...   )Жанр: Hard Rock, Alternative MetalПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5CF0B7B8264511FD9087FC5FD712F17EDFD86C
 ```
 
 https://mybot314.ru/tekegram_catalog/

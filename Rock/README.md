@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1866522   (1066088) от 20.04.2026
+
+Generation Radio - Take 2 (2026) [MP3|320 Kbps] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Montana Sky
+02. The Melody
+03. These Days
+04. Maybe Monday(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08F8125F1D1E4B55CFF5FE85649E84C303F08C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862934   (1063752) от 02.04.2026
 
 Suzi Quatro - Freedom (2026) [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ Deep Purple, The Royal Philharmonic Orchestra Conducted By Malcolm Arnold - Conc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEA20F3980527C40D0D3C93D55D6890796842C2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603954   (1045467) от 12.01.2023
-
-Eric Clapton - Slowhand (1977) Reissue, Remastered, 2004, Polydor [OGG Vorbis|470 Kbps] <Rock, Blues Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cocaine
-02. Wonderful Tonight
-03. Lay Down Sally
-04. Next Time You See Her(   Читать дальше...   )Жанр: Rock, Blues Rock, Classic RockПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A59DE490C67B5536DBCD465C41ECD564B509919
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,118 @@
+###  Публикация: 1228470   (1008056) от 04.07.2021
+
+All India Radio | Antecedent - Discography 87 Releases (1999-2021) Inevitable Recordings [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day & Night (Five Eight Alt Version Unreleased) (02:26)
+ 02. In the Sky (Unreleased Track) (03:11)
+ 03. Spring Day (Unreleased Track) (02:56)
+ 04. Four Three vs Galaxy of Light (Feat Selena Cross) (05:49)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield •Продолжительность: 58:21:37 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69167DE367C349F69C364832BD32155BA5DB30D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482477   (1007616) от 08.07.2021
+
+VA - Watching the Sunset: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Butler - Blue Sky - Original Mix (2:58)
+02. Peter Pearson - Love Chills - Original Mix (5:58)
+03. The Soul Crusaders - Heroes (5:45)
+04. Mission Brown - Watching Clouds - Original Mix (6:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2416BC9860BF003EBB16DF1FA6B99F8E61D53358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483060   (1007195) от 11.07.2021
+
+Baba Gnohm - Forgotten Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asia 3am (03:30)
+ 02. Inside My Left Eye (05:29)
+ 03. Sunken Dreams (04:21)Жанр: DowntempoПродолжительность: 00:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963FEFA4382D69DB970457B3313BB105C45DFBAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483221   (1007008) от 12.07.2021
+
+Jim Brickman - Jim Brickman’s Piano Bar: 30 Love Songs Of The 50s and 60s (2021) [FLAC|Lossless|WEB-DL|tracks] <Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Me Tender (2:41)
+02. Secret Love (3:05)
+03. Moon River (3:13)
+04. All I Have To Do Is Dream (2:59)(   Читать дальше...   )Жанр: LoungeПродолжительность: 01:25:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57299D978E0A6380EDC584CA03902243B5E165D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483891   (1006509) от 16.07.2021
 
 VA - Coffee & Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -641,122 +756,6 @@ VA - Erotica Vol. 5 (Most Erotic Chillout & Smooth Jazz Tunes) (2020) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1BC246164A1F0432E482872A22B9BED78BB96F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978216   (963441) от 23.01.2016
-
-Adam Fielding - Discography 11 Releases (2008-2015) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Post Rock, Ambient, Breaks, Synth-pop, Deep House, Experimental>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Renew (03:43)
- 02. Changes (02:27)
- 03. Catacombs (03:58)
- 04. Cards (03:26)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo, IDM, Post Rock, Ambient, Breaks, Synth-pop, Experimental |Продолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBF0FBF5DED6F0AA085BFCCCD68BCEB227EB1DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980138   (957156) от 28.01.2016
-
-Massive Attack - Ritual Spirit (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Experimental, Abstract Hip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Editors (feat. Roots Manuva) (04:46)
-02. Ritual Spirit (feat. Azekel) (03:55)
-03. Voodoo In My Blood (feat. Young Fathers) (04:01)
-04. Take It There (feat. 3D/Tricky) (04:31)Жанр: Trip Hop, Experimental, Abstract Hip HopПродолжительность: 00:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D916D1D17FC7085DAC714D63154E4448D889A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1361288   (957074) от 18.02.2020
-
-VA - The Seeds Of Love Vol.1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guenter Haas - Look Inside Yourself (2K19 Mix)
-02. Marco Moli - Black Bird
-03. Sunset Boulevard Project - Follow the Rainbow (feat. Marc Hartman)
-04. Michael E - Theme from a Pleasant Interlude(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8292C8BBC47E94E5D205CE81914552F2E440CDBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 624363   (952181) от 28.02.2013
-
-Christophe Goze - A Day In Ibiza 2 (2012) [FLAC (tracks+cue)|Lossless]<Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close To You
-02. Someday I Wil
-03. Moonlight
-04. A New Beginning(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

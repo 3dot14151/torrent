@@ -1,3 +1,61 @@
+###  Публикация: 1063365   (245219) от 16.10.2016
+
+Janet Klein - Come Into My Parlor (1998) Coeur De Jeanette Productions[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In A Great Big Way [02:02]
+ 02.Mountain Greenery [03:27]
+ 03.What A Night For Spooning [02:22]
+ 04.Wasting My Love On You [03:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF4AB0CA667F56A4D72D07F09B48E7DD9A0FD577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063352   (245211) от 16.10.2016
+
+Peggy Lee - Miss Wonderful (1959) 1992, MCA Victor[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mister Wonderful [03:22]
+ 02.They Can't Take That Away From Me [02:59]
+ 03.Where Flamingos Fly [02:31]
+ 04.You've Got To See Mama Every Night [02:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4849728D8DC6AE7587C06B8431B7ACF0A2AFCAF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609133   (245119) от 02.02.2023
 
 Billie Holiday - BD Jazz (1937 - 1952) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -686,64 +744,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFD1660AA0DFB1C1AE927052109A971CCFD1A6BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609890   (244609) от 05.02.2023
-
-Charlie Parker - Five Classic Albums (1949 - 1954) 2CD, 2020, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244609.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Bloomdido [3:27]
-02. Melancholy Baby [3:26]
-03. Relaxing with Lee [2:49](   Читать дальше...   )Жанр: BopПродолжительность: 02:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1A703B0FAA2C6449A2355A2CD90329F8CDB0A15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289448   (244606) от 16.03.2019
-
-Henry Threadgill - Double Up, Plays Double Up Plus (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244606.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Game is Up 	22:48
-2. Clear and Distinct From the Other A 	9:56
-3. Clear and Distinct From the Other B 	6:15
-4. Clear and Distinct 	8:38(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020226AF39989A48178B7E94683289F909025FBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

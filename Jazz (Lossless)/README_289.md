@@ -1,3 +1,61 @@
+###  Публикация: 1086341   (153585) от 24.12.2016
+
+Terry Gibbs And His Big Band - Swing Is Here! (1960) 2009, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Song Is You [02:33]
+ 02.It Might As Well Be Swing [03:14]
+ 03.Dancing In The Dark [03:09]
+ 04.Moonglow [02:45](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:34:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16A5D8259BA9CC005C03E96532F79A4562E6940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086352   (153568) от 24.12.2016
+
+VA - Jazz Moods Volume 1 (1993) Jazz World[FLAC|Lossless|image + .cue] <Swing, Bop, Hard Bop, Post-Bop, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wynton Marsalis & Art Blakey's Jazz Messengers - Moanin' [09:32]
+02. Joe Williams & Claude Bolling Orchestra - Blues In My Heart [03:11]
+03. Ben Webster Quartet - Londonderry Air [04:35]
+04. Toots Thielemans & The Louis Vandyke Trio - Have You Met Miss Jones [03:06](   Читать дальше...   )Жанр: Swing, Bop, Hard Bop, Post-Bop, Vocal JazzПродолжительность: 01:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:293548DF310BC5B54507304D03EF36D0FF51BF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1086357   (153562) от 24.12.2016
 
 Yusef Lateef - Autophysiopsychic (1977) 2003, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Funk>
@@ -691,64 +749,6 @@ The Australian Jazz Quintet - In Free Style (1958) Remaster, 2014, Solid Records
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B0969400B2499A7369DC391948B51E8FEAA9955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968793   (151741) от 25.12.2015
-
-Phil Woods Septet - Pairing Off (1956) Remaster, 2013, Universal[FLAC|tracks+.cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Stanley Stomper [14:22]
- 02.Cool Aid [09:49]
- 03.Pairing Off [12:16]
- 04.Suddenly It's Spring [08:25]Жанр: Bop, Mainstream JazzПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D4F69A0A4D27831B35B97DD49702B93DD43A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518948   (151637) от 22.12.2021
-
-Erroll Garner - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caravan [7:02]
-02. Lullaby Of Birdland [6:59]
-03. Cheek To Cheek [7:08]
-04. Once In A While [5:46](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA211313E282AEEFB77274C682993A1DA3B739D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

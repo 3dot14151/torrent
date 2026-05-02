@@ -1,3 +1,119 @@
+###  Публикация: 1595512   (175642) от 05.12.2022
+
+Рок Синдром - время жестоких битв (2022) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Кап-кап - капает дождь! [00:03:16]
+02 - Золото тянет на дно! [00:02:39]
+03 - Здесь нет поэзии, нет! [00:03:45]
+04 - Мы по жизни идем как мишени! [00:04:23](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B288AA94A68D523F6C6EB532CF6937C531D2C77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595518   (175581) от 05.12.2022
+
+Pleroma Orchestra - Слово устремленного к свету (2022) [MP3|320 Kbps] <Apocalyptic Folk, Spoken Word>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Пролог [00:06:23]
+02 - Мёртвые глядели (Album Version) [00:03:56]
+03 - Великий девственник (Album Version) [00:10:17]
+04 - Разбуженный горном [00:02:46](   Читать дальше...   )Жанр: apocalyptic folk, spoken word, industrial, psychedelic, experimentalПродолжительность: 01:14:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4205233813DB530ABDD58DC3AC9B45E7A44A20A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595315   (175344) от 05.12.2022
+
+Владимир Кузьмин - Дух в моей гитаре (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_175344.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я из Эдгаров По
+2. Мы открыты всю ночь
+3. Миклухо-Маклай
+4. Улица(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384C6D484B54652C73408ABA02AE6FAE6DC360A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 212432   (174772) от 06.12.2022
+
+Захар Май - Концерт на Светлой (Коломна - 27.07.07) (2010) [MP3|320 kbps]<Acoustic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шива Разрушитель (3:25)
+02. Бог не фраер (2:46)
+03. Рубаха (3:07)
+04. Автомат (2:24)(   Читать дальше...   )Жанр: Acoustic RockПродолжительность: 01:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:668D941C78B823009EFEC4540703B34E4FE2B8AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595893   (174571) от 07.12.2022
 
 Летний Лагерь Заря - 2 EP (2021-2022) [MP3|320 Kbps] <Alternative, Emo,Pop Punk>
@@ -623,122 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9C67A0BE8C26A88978375C17B44632181889153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430816   (169699) от 11.12.2020
-
-Браво - Браво 1984-1985 (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169699.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кошки (MC)
-2. Желтые ботинки (MC)
-3. Верю я (MC)
-4. Медицинский институт (MC)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A079401ED304D0FC7CBF51B77B67B5BE8D661E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672535   (169335) от 28.10.2023
-
-Ауткаст - Культ (2023) [MP3|320 Kbps] <Nu Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мгла
-02. Пропасть
-03. Лабиринт
-04. Дотла(   Читать дальше...   )Жанр: Nu Metal, Alternative RockПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC67F4C981D5F83E66102A065FB0CF18F1E1161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596768   (169319) от 11.12.2022
-
-Sutura Apparatus - 2 Albums (2020-2022) [MP3|320 Kbps] <Depressive rock, Doom metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сон [00:04:45]
-02. Быстрые ветра [00:04:37]
-03. Разложение [00:07:50]
-04. Остаться под ясенем [00:07:41](   Читать дальше...   )Жанр: Depressive rock, Doom metalПродолжительность: 2 CD, 01:14:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC4A8A67D9B493C0BC43AC5F332CF7ABAC2238A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344355   (169072) от 12.12.2019
-
-Игра Миров - Мир неизведанный (2019) 2CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Эхо [5:00]
- 02 - Танец ветра [4:50]
- 03 - Сихотэ-Алинь [4:14]
- 04 - По течению [4:20](   Читать дальше...   )Жанр: RockПродолжительность: 01:31:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3CB04D55C668B55A0EAD801373CBA77AF06E88
 ```
 
 https://mybot314.ru/tekegram_catalog/

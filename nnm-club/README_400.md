@@ -1,22 +1,25 @@
-###  Публикация: 1851381   (1054953) от 01.02.2026
+###  Публикация: 1853186   (1056569) от 12.02.2026
 
-Immortals of Aveum (2023) [Ru/Multi] (1.0.6.6) Repack Wanterlude
+VA - This Is... 1971 (2008) [FLAC|Lossless|tracks + .cue] <Rock, Funk / Soul, Pop>
 
->>Win Игры
->>Action (FPS)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054953.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056569.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Immortals of Aveum, сочетающая в себе шутер от первого лица и элементы магии в оригинальной фэнтезийной вселенной, рассказывает о боевом маге Джаке, который присоединяется к элитной группе магов Lucium, чтобы раскрыть секреты Авеума - загадочного мира, находящегося на грани уничтожения. В игре представлен кинематографический режим кампании, который обещает подарить (   Читать дальше...   )Тип издания: RepackРазработчик: Ascendant StudiosЖанр: Экшены, Приключенческие игрыЯзык озвучки: Английский, Французский, Итальянский, НемецкийЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
+01. Hot Chocolate - I Believe (In Love) - (03:54)
+02. Hurricane Smith - Don’t Let It Die - (02:30)
+03. Cilla Black - Something Tells Me (Something’s Gonna Happen Tonight) - (02:26)
+04. The Congregation - Softly Whispering I Love You - (03:00)(   Читать дальше...   )Жанр: Rock, Funk / Soul, PopПродолжительность: 01:09:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB1D2E0234D3034A994696ADFA1CC40B2D91C246
+magnet:?xt=urn:btih:67147FE55FBFB7D08D1CF4E010ECDFC57587025F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,26 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851387   (1054952) от 01.02.2026
+###  Публикация: 1852976   (1056568) от 12.02.2026
 
-Sumatra PDF 3.6.17242 Prerelease + Portable [Multi/Ru]
+Вадим Фарг, Ольга Риви | Семь ключей от будущего (Книга 1). Песнь Аски (2025) [MP3, Елена Лепихина]
 
->>Утилиты, Офис, Интернет
->>Офисное ПО
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Она – гениальный инженер с талантом попадать в неприятности. Шанс присоединиться к галактической экспедиции – её билет в новую жизнь и возможность доказать, чего она стоит. На борту имперского флагмана «Неукротимый» она встречает идеального офицера, лейтенанта Макса Веста. Он харизматичен, смел и, кажется, является мужчиной её мечты. Но по мере того, как миссия по (   Читать дальше...   )Жанр: Космическая фантастика, приключенияИздательство: ЛитРесПродолжительность: 07:10:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:42D361CFB500B8DB5ED3700879613DC0E5A76FB0
+magnet:?xt=urn:btih:6FC9E48DC2C797C4F2AF160C10482B433CD58939
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -51,26 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851330   (1054951) от 01.02.2026
+###  Публикация: 1852977   (1056567) от 12.02.2026
 
-SD  Test Pro v3.1 Mod by Balatan [Ru/Multi]
+Вадим Фарг, Ольга Риви | Семь ключей от будущего (Книга 2). Песнь Пирата (2026) [MP3, Елена Лепихина]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056567.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Воспользуйтесь лучшей на сегодняшний день утилитой для тестирования SD-карт. Протестируйте скорость как внутреннего, так и внешнего хранилища Вашего устройства!
-Простота в использовании даже для начинающих. Быстрые тесты.Тип издания: ProРелиз состоялся: 30.01.2026Разработчик: Zoltán PallagiПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+Она – гениальный инженер, верящая в порядок и закон. Он – безжалостный пират, призрак павшего Дома, чьё имя – синоним страха в тёмных уголках галактики. Преданные и брошенные умирать на краю вселенной, они вынуждены заключить хрупкий союз, где каждый неверный шаг грозит гибелью. Но её острый ум и несгибаемая воля к жизни оказываются силой, способной починить не только (   Читать дальше...   )Жанр: Космическая фантастика, приключенияИздательство: ЛитРесПродолжительность: 07:34:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2FA43E2624FDF6FB5F766BF17D09F742716596E
+magnet:?xt=urn:btih:89E8B0854E13A929FBDBC940310ED461ECF379A4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,25 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851334   (1054950) от 01.02.2026
+###  Публикация: 1852978   (1056566) от 12.02.2026
 
-Grok - ИИ ассистент v1.1.13-release.08 Mod by kljovyj [Ru/En]
+Вадим Фарг, Ольга Риви | Семь ключей от будущего (Книга 3). Песнь забытого Лорда (2026) [MP3, Елена Лепихина]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056566.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Grok — это AI-ассистент, разработанный xAI, предназначенный для максимальной правдивости, полезности и любопытства. Получайте ответы на любые вопросы, генерируйте впечатляющие изображения и видео, ведите естественные разговоры в голосовом режиме и загружайте картинки, чтобы глубже понять свой мир. С Grok вселенная в ваших руках!Тип издания: ModРелиз состоялся: 30.01.2026Разработчик: xAIПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Английский
+Жизнь любит преподносить сюрпризы и внезапно ты узнаёшь, что всё ложь и не то, чем кажется. На арене появился новый игрок, жаждущий получить артефакты Предтеч, Тень Империи, ведёт свою смертоносную охоту, героям предстоит столкнуться с предательством, раскрыть давно забытые тайны и защитить не только наследие Дома Викант, но и само существование галактики от угрозы (   Читать дальше...   )Жанр: Космическая фантастика, приключенияИздательство: ЛитРесПродолжительность: 07:18:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:87A39182F4CD9A04AACB331EA0FC1804A837A310
+magnet:?xt=urn:btih:D47278E2627854795D1737E81467C52B96DF6969
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,25 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850968   (1054949) от 01.02.2026
+###  Публикация: 1852979   (1056565) от 12.02.2026
 
-Астрономы обнаружили сотни космических аномалий с помощью нового инструмента
+Вадим Фарг, Ольга Риви | Семь ключей от будущего (Книга 4). Песнь Творца (2026) [MP3, Елена Лепихина]
 
->>3
->>След.
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056565.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Астрономы из Европейского космического агентства (ESA) разработали новый инструмент на базе искусственного интеллекта под названием AnomalyMatch, который позволил провести систематический поиск редких и необычных объектов в огромном архиве данных космического телескопа «Хаббл» (Hubble). За 35 лет наблюдений накопился неподъёмный для анализа человеком набор данных. (   Читать дальше...   )
+Вынужденная служить врагу, Аска должна превратить свой гений в оружие против собственных друзей. Её единственным шансом на спасение становится тихая, смертоносная диверсия, игра разума на грани безумия. Для Кайдена же начинается самая отчаянная охота в его жизни – на призрака. Ему предстоит найти то, что невозможно отследить, и сделать ставку на один-единственный, (   Читать дальше...   )Жанр: Космическая фантастика, приключенияИздательство: ЛитРесПродолжительность: 07:23:40
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:56A9825D39C0CDF34096936143A5590CB8AA74BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,25 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851398   (1054948) от 01.02.2026
+###  Публикация: 1852868   (1056564) от 12.02.2026
 
-Screenshot touch v2.6.2 Mod by Alex.Strannik [Ru/Multi]
+Deepshikha Bhati, Fnu Neha, Angela Guercio и др. | A Beginner’s Guide to Generative AI. An Introductory Path to Diffusion Models, ChatGPT, and LLMs (Synthesis Lectures on Computer Science) (2025) [ ...
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056564.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Screenshot Touch – это удобное и простое приложение, которое облегчит вам создание скриншотов и видео с экрана своего смартфона. На многих телефонах нынче существует и встроенная функция создания скриншота, но таких точных и разнообразных настроек, как в Screenshot touch, вы не найдете нигде! Захватывайте любую область экрана, убирайте ненужное, делайте скриншоты (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 31.01.2026Разработчик: Daejeong KimПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+This book is the essential guide for anyone curious about AI’s creative power. In the rapidly evolving landscape of artificial intelligence, generative AI stands out as one of the most transformative technologies of our time. Designed for beginners and requiring no prior knowledge of AI, this book breaks down the fundamentals of generative AI, from text and image (   Читать дальше...   )Жанр: Speech & Audio Processing, Database Storage & Design, Artificial IntelligenceЯзык: АнглийскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2ABBFD462DF82D2E8FEFD6B3BCD5455EA3AEFBC8
+magnet:?xt=urn:btih:F67DD246704934EA59A6B3604AE37FEB837FF8C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,26 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851390   (1054947) от 01.02.2026
+###  Публикация: 1852864   (1056563) от 12.02.2026
 
-DjVu Reader & Viewer (читалка) v1.0.142 Mod by Alex.Strannik [Ru/Multi]
+В.М. Фомичев | Элементы теории информации в защите информации. Учебное пособие (2021) [PDF]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056563.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Простое и небольшое приложение для просмотра документов в формате djvu. В наличии тёмная тема и настройка отображения найденных на устройстве документов оного формата. При просмотре доступно создание закладок, копирование выделенного текста и доступ к содержанию (если оно предоставлено).
-DjVu Reader & Viewer (читалка дежавю на русском языке) – это самая быстрая (   Читать дальше...   )Тип издания: ProРелиз состоялся: 30.01.2026Разработчик: Android Tools (ru)Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+В учебном пособии систематически изложены основы математической теории информации, для ее разделов, относящихся к математическим моделям источников сообщений и к методам кодирования, подчеркивается связь с вопросами криптографической защиты информации. Для закрепления знаний в каждой главе даны задачи, упражнения и контрольные вопросы.Жанр: Компьютерная литература, КриптографияИздательство: ПрометейФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3221D45586F105A5670681D695D08AB1D139AD32
+magnet:?xt=urn:btih:8E361F3EB857BE7F43E0A16096E15D881B519761
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,25 +183,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851391   (1054946) от 01.02.2026
+###  Публикация: 1852863   (1056562) от 12.02.2026
 
-Ночь перед Рождеством (1913) WEBRip [H.264/1080p]
+В.М. Фомичев | Сборник задач по криптологии (2019) [PDF]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056562.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сюжет в целом соответствует классической повести Гоголя. Вся эта невероятная история в маленьком селе накануне Рождества - с чёртом, с Солохой, с кузнецом Вакулой и светлейшим князем Потемкиным. Копия реставрированная. Как бы. Можно по разному относится к такого рода реставрации, но я решил все же представить вам этот фильм. Мне кажется, что он все же лучше, чем (   Читать дальше...   )Производство: Российская империя / Акцiонерное общество «А. Ханжонковъ и К°»Жанр: экранизация, комедия, короткометражный, немое киноРежиссер: Владислав СтаревичАктеры: Иван Мозжухин, Ольга Оболенская, Лидия Триденская, Пётр Лопухин, Александр Херувимов, Павел Кнорр, А. Сорин, Прасковья МаксимоваСубтитры: русские интертитрыПродолжительность: 00:39:14
+Сборник содержит типовые задачи по криптологии, опирающиеся на базовые знания из дискретной математики, теории сложности алгоритмов и теории вероятностей. Выборочно даны ответы на вопросы, поставленные в задачах, в некоторых случаях - с комментариями, указывающими на способ решения задачи. Материалы сборника предназначены для использования при проведении семинарских (   Читать дальше...   )Жанр: Компьютерная литература, КриптографияИздательство: ПрометейФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A156D8AC6ACADD708DF9D55EE3B90B6569BADFF
+magnet:?xt=urn:btih:C55D1D2381B3D1D88D1D2D94749BB583A42CFD5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,26 +209,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851405   (1054945) от 01.02.2026
+###  Публикация: 1852862   (1056561) от 12.02.2026
 
-Полицейская история 3: Суперполицейский / Ging chaat goo si III: Chiu kup ging chaat / Police story 3: Supercop (1992) BDRip [AV1/1080p-LQ]
+А.В. Помазанов | Защита информации от утечки по техническим каналам. Учебное пособие (2024) [PDF]
 
->>Остальное
->>hand made * video
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056561.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полиция Гонконга и Китая совместно с Интерполом готовит масштабную операцию по ликвидации интернациональной банды наркоторговцев. Замысел операции сводится к тому, чтобы вытащить из китайской тюрьмы одного из главарей нарко-спрута и через него выйти на верхушку организованной пирамиды.
-Кто же сможет осуществить такой дерзкий и рискованный план, если не Суперполицейский. (   Читать дальше...   )Производство: Гонконг / Golden Harvest Company Ltd., Golden Way Films Ltd.Жанр: боевик, триллер, комедияРежиссер: Стэнли ТунАктеры: Джеки Чан, Мишель Йео, Мэгги Чун, Кеннет Цан, Юэнь Ва, Билл Тун, Жозефин Ку, Келвин Вонг, Филип ЧаньПеревод: Многоголосый профессиональный (Россия 1)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:36:30
+Изложены принципы построения устройств и методы защиты информации от утечки по техническим каналам. Приводятся классификация технических каналов утечки информации и современные технические средства защиты информации. Рассматривается место и роль современных комплексов радиомониторинга в системах технической защиты информации.Жанр: Компьютерная литература, КриптографияИздательство: Издательство Южного федерального университетаФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:947B97360B561574A76204D2846AD6ED95A10F4D
+magnet:?xt=urn:btih:E25ED0B38B6491749EE8C220AC75B0A7CD2A425E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,25 +235,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851406   (1054944) от 01.02.2026
+###  Публикация: 1852861   (1056560) от 12.02.2026
 
-Проекты - VideoHive - Secret Files Slideshow - 61530492 [AEP]
+Г.А. Емельянов | Цифровая безопасность личности (2025) [PDF]
 
->>Проекты
->>Слайдшоу (проекты)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054944.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056560.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Secret Files Slideshow — это захватывающий, мрачный и интригующий шаблон для After Effects, который оформляет ваши фотографии и видео как секретное досье. Стилистика "Секретных материалов", бумажные папки, штампы "Совершенно секретно" и эффект расследования создают напряженную атмосферу, идеально подходящую для конспирологических теорий или детективных (   Читать дальше...   )Формат: AEP
+Данное издание представляет сборник практических советов по цифровой (кибер), финансовой и, частично, информационной безопасности физического лица (личности), персональных электронных устройств (как мобильных, так и стационарных), обеспечения безопасности, приватности, конфиденциальности и анонимности пользователя, а также сохранности данных в целостности и доступности.Жанр: Компьютерная литератураИздательство: Издательские решенияФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70256D50FE805D4189E922CA314763387045C737
+magnet:?xt=urn:btih:D32A203EC168BF9CB4E5752923A83121356A51AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,25 +261,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851410   (1054943) от 01.02.2026
+###  Публикация: 1852860   (1056559) от 12.02.2026
 
-Иконки - Creative Market - Isometric, 99 icon pack - 314275 [PNG, EPS, PSD]
+Dominik Tornow | Think Distributed Systems (2025) [PDF] [EN]
 
->>Графика, Арт, Разное
->>Иконки и аватарки
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054943.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056559.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот замечательный проект посвящен направлению, которое становится все более популярным в плоском дизайне — изометрическому виду. Мы проделали отличную работу и теперь предлагаем вам удобный и красивый набор иконок — он очень полезен для приложений, иллюстраций, интерфейсов и схем.Формат: PNG, EPS, PSD
+Reason confidently about distributed systems.
+
+Distributed systems are complex—but they’re also everywhere in modern software. A fuzzy understanding of how distributed systems work is no longer an option. Think Distributed Systems helps you develop clear and dependable mental models of distributed systems, so you can reason about complex problems with confidence. (   Читать дальше...   )Жанр: Client-Server Networking Systems,  Computer Systems Analysis & Design, Software Design, Testing & EngineeringЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE6FCBEC8DF8208459FC3537A0FA09E4E9225D63
+magnet:?xt=urn:btih:8FB09F2BEF6C83DC18C8027AE9F2BDA8E13D4DDD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -288,25 +289,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851403   (1054942) от 01.02.2026
+###  Публикация: 1852858   (1056558) от 12.02.2026
 
-Horary Chart / Астрология: Хорарная Карта v4.1.9 [Ru/Multi]
+Elton Stoneman | Learn Docker in a Month of Lunches. Second Edition (2025) [PDF] [EN]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Компьютерная литература
+>>Программирование
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056558.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хорарная карта - это программа для построения хорарных карт, включающая астрологическую карту с линейкой, расчет событий в пределах знака и отображающая соединения планет и домов с антисами и звездами. Есть функция добавления формул жребиев и выбор из ста звезд.Тип издания: Paid / ProРелиз состоялся: 30.01.2026Разработчик: Roman ShimchenkoПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+Just the Docker you need to know in 22 bite-sized lessons!
+
+In Learn Docker in a Month of Lunches, Docker expert Elton Stoneman guides through everything you need to know about Docker in 22 short lessons you can complete on your lunch break. This freshly-revised bestseller has been updated for modern tools and the latest versions of Linux, Windows, or Mac, with new (   Читать дальше...   )Жанр: Software Design & Engineering, Cloud Computing, Software DevelopmentЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:764D26B828E4D884B775F4F39D6104B868148E0D
+magnet:?xt=urn:btih:E53E5479E5F8C5FDFC1F342F01207F70588226FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,25 +317,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851402   (1054941) от 01.02.2026
+###  Публикация: 1852857   (1056557) от 12.02.2026
 
-Astrological Charts / Астрологические Карты Pro v11.2.4 [Ru/Multi]
+Chris Zetter | Build a Database Server. Learn how real databases work by following this practical guide to building your own (2025) [PDF, EPUB] [EN]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054941.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Астрологические Карты Pro (Astrological Charts Pro) – это профессиональная астрологическая программа для Android, которая строит 12 типов астрологических карт, содержит, кроме планет, ещё 13 астероидов и 23 фиктивные точки, включая транснептуновые, и несколько жребиев. А так же есть выбор из 12 систем домов, 22 вида аспектов с настраиваемыми орбисами и база данных (   Читать дальше...   )Тип издания: Paid / ProРелиз состоялся: 30.01.2026Разработчик: full-astro-devПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+Learn how real databases work by following this practical guide to building your own in a programming language of your choice.
+Build a language from scratch- Create an interpreter that can parse, type check and run SQL queries. Start with running simple queries and build up to more complex ones.
+Learn SQL (the fun way) - Gain a deeper understanding of SQL. Cover (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6FCB8301D80CDF9F549088601AE9A936BEA3E0C
+magnet:?xt=urn:btih:5461CF17A782182A57708A11FD0C66B8F7C4497F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,25 +345,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851395   (1054940) от 03.02.2026
+###  Публикация: 1852856   (1056556) от 12.02.2026
 
-Опасный дуэт / The Wrecking Crew (2026) WEB-DL [H.265/2160p] [4K, Dolby Vision Profile 5, 10-bit]
+Adarsh Divakaran | Deep Dive Python. Techniques and Best Practices for Developers (2025) [PDF] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Take your programming skills to the next level by expanding real-world Python applications in open-source code. This book is an essential guide for experienced developers looking to enhance their Python proficiency.
+
+Using code examples from popular open-source projects you’ll master Python concepts and see how they are applied in production-level code. By understanding (   Читать дальше...   )Жанр: Object-Oriented Design, Python Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: Apress MediaФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562B6FEFA631BBF532163046E69905E69FE4CDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852855   (1056555) от 12.02.2026
+
+Hillel Wayne | Logic for Programmers (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056555.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logic is the most important branch of math to software engineering. Knowing logic opens up a vast world of development techniques, from everyday tricks of the trade to exotic tools for cracking impossible tasks.
+This book teaches the basics of logic and nine special logic-powered techniques: property testing, decision tables, constraint solving, and more. Over 40 (   Читать дальше...   )Жанр: Компьютерная литератураЯзык: АнглийскийИздательство: LeanpubФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9037D6999B60FCDDCA7F8F6B6C37BF2619BBF2BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852854   (1056554) от 12.02.2026
+
+Florent Poux | 3D Data Science with Python. Building Accurate Digital Environments with 3D Point Cloud Workflows. 1st Edition (2025) [PDF, EPUB] [EN]
+
+>>Компьютерная литература
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056554.jpg" />
+</div>
+
+
+###  Подробнее
+
+Our physical world is grounded in three dimensions. To create technology that can reason about and interact with it, our data must be 3D too. This practical guide offers data scientists, engineers, and researchers a hands-on approach to working with 3D data using Python. From 3D reconstruction to 3D deep learning techniques, you'll learn how to extract valuable insights (   Читать дальше...   )Жанр: Computer Programming Languages, Python Programming, Computer SoftwareЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140D70FDE5FB6C281043128AB4031C66AE29FC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853341   (1056553) от 12.02.2026
+
+Хищник: Планета смерти / Predator: Badlands (2025) UHD BDRip [H.265/1080p] [HDR10, Dolby Vision Profile 7.6, 10-bit]
 
 >>Горячие новинки
 >>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054940.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Военный Джеймс живёт на Гавайях, а полицейский Джонни — в Оклахоме. Они — сводные братья, которые много лет враждуют и давно не разговаривают друг с другом. Но парни вынуждены забыть о былых противоречиях и объединиться, чтобы выяснить, кто убил их отца.Производство: Новая Зеландия, США / Amazon MGM Studios, RPE (Reunion Pacific Entertainment)Жанр: боевик, комедия, детектив, криминалРежиссер: Анхель Мануэль СотоАктеры: Дэйв Батиста, Джейсон Момоа, Темуэра Моррисон, Роимата Фокс, Фрэнки Адамс, Клас Банг, Джейкоб Баталон, Морена Баккарин, Майя Кеалоха, Стивен РутПеревод: Дублированный (WinMedia, Ultradox Studio), многоголосый (LE-Production)Язык озвучки: русский, английскийСубтитры: русские, английские (full, SDH)Продолжительность: 02:04:16
+В глазах воинственного отца молодой хищник Дек — полное ничтожество и позор клана. Отец приказывает старшему сыну убить его, но тот ценой собственной жизни спасает брата и отправляет его на населённую агрессивными тварями планету Генна. Там Дек встречает располовиненную девушку-андроида Тию, некогда прибывшую сюда в составе экспедиции с Земли, и, чтобы доказать отцу (   Читать дальше...   )Производство: США, Австралия, Новая Зеландия, Канада, Германия / 20th Century Studios, TSG Entertainment, Deutsche FilmakademieЖанр: фантастика, боевикРежиссер: Дэн ТрахтенбергАктеры: Эль Фаннинг, Димитриус Коломатанги, Рави Нарайан, Майкл Хомик, Стефан Грубе, Рубен Де Йонг, Камерон Браун, Элисон Райт, Мэтт Даффер, Росс ДафферПеревод: Дублированный (MovieDalen)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, Full), Английские (Forced, Full, SDH)Продолжительность: 01:47:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B032B90CB20CD863967D450B2581ECA7DB8E959A
+magnet:?xt=urn:btih:8D62B9EB56331D5A7D853A5E9276AD0FA641D43E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,25 +452,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851414   (1054939) от 01.02.2026
+###  Публикация: 1852853   (1056552) от 12.02.2026
 
-Акции всех магазинов России v169.6.2 Mod by vadj [Ru]
+Малькольм Макдональд | Грокаем безопасность веб-приложений (2025) [PDF]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054939.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Узнавайте об акциях и скидках в Магните, Пятерочке, Перекрестке, Ленте и других магазинах рядом с вами.Тип издания: ModРелиз состоялся: 31.01.2026Разработчик: ПтичкаПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский
+Безопасность приложений — приоритетная задача для веб-разработчиков. Вы работаете над интерфейсом фронтенд-фреймворка? Разрабатываете серверную часть? В любом случае вам придется разбираться с угрозами и уязвимостями и понимать, как закрыть, дырки через которые хотят пролезть черные хакеры.
+Здесь вы найдете все, что нужно практикующему разработчику для защиты приложений (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: ПитерФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F7DADC660A5E0300BB963FD03013FFD9CF6062E
+magnet:?xt=urn:btih:9F70911515AFC9D06812E1E010020046C3971335
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,25 +479,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851408   (1054938) от 01.02.2026
+###  Публикация: 1852852   (1056551) от 12.02.2026
 
-Cozy Timer - Sleep timer v4.1.0 Mod by Alex.Strannik [Ru/Multi]
+Йоаким Сунднес | Python. Системный анализ данных, расчеты и моделирование (2025) [PDF]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшое, но функциональное приложение для остановки воспроизведения мультимедиа на устройстве по расписанию или по таймеру. В наличии возможность продления таймера, посредством встряски  телефона. Позволяет  настроить сей таймер под ваши нужды довольно-таки точно.Тип издания: PremiumРелиз состоялся: 39.01.2026Разработчик: FLUXПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+Перед вами подробное руководство по применению в научных целях Python - современного и наиболее востребованного языка программирования. Его преимущество заключается в том, что это так называемый язык высокого уровня с простым и интуитивно понятным синтаксисом. Однако несмотря на то, что Python хорошо подходит в качестве языка для начинающих, он также активно применяется (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F448FBF5F8F5F4AC981B1C05349082CBD3ADC4A7
+magnet:?xt=urn:btih:74DF7B2333A18A11D6582A17B2A45DFE8548321D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,25 +505,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851393   (1054937) от 01.02.2026
+###  Публикация: 1852851   (1056550) от 12.02.2026
 
-Сканворды на русском v1.4.8 Mod от Alex.Strannik [Ru]
+Micha Gorelick, Ian Ozsvald | High Performance Python. Practical Performant Programming for Humans. 3rd Edition (2025) [PDF, EPUB] [EN]
 
->>Программы, Игры и прочее
->>Игры для Android
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054937.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Великолепный сборник разнообразных сканвордов. Более тысячи хороших сканвордов. Возможность использования подсказок. Ведение статистики разгаданных головоломок. Удобный и простой интерфейс. Поддерживается, работает без интернет.Тип издания: ModРелиз состоялся: 31.01.2026Разработчик: FgCos GamesПоддерживаемая ОС: Android 5.0+Жанр: Словесные игрыЯзык интерфейса: Русский
+Your Python code may run correctly, but what if you need it to run faster? This practical book shows you how to locate performance bottlenecks and significantly speed up your code in high-data-volume programs. By explaining the fundamental theory behind design choices, this expanded edition of High Performance Python helps experienced Python programmers gain a deeper (   Читать дальше...   )Жанр: Computer Performance Optimization, Python Programming, Software DevelopmentЯзык: АнглийскийИздательство: O’Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0D435A8263A8300F510A3BE594E3CD83A86FA78A
+magnet:?xt=urn:btih:1C95BD1500740C3DF127BCBD18AC632C3EE40240
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,25 +531,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851416   (1054936) от 01.02.2026
+###  Публикация: 1852850   (1056549) от 12.02.2026
 
-Frameo+: Share to photo frames v1.37.17 Mod by @tomic [Ru/Multi]
+Laurence Moroney | AI and ML for Coders in PyTorch. A Coder's Guide to Generative AI and Machine Learning (2025) [PDF, EPUB] [EN]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054936.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056549.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Frameo: Share to photo frames — приложение, которое позволяет отправлять фотографии и видео на цифровые фоторамки Frameo WiFi со смартфона.  Frameo+ — это подписной сервис и улучшенная версия бесплатного приложения Frameo, разработанные для улучшения вашего опыта и внедрения дополнительных функций и возможностей.Тип издания: FullРелиз состоялся: 26.01.2026Разработчик: FrameoПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+Eager to learn AI and machine learning but unsure where to start? Laurence Moroney's hands-on, code-first guide demystifies complex AI concepts without relying on advanced mathematics. Designed for programmers, it focuses on practical applications using PyTorch, helping you build real-world models without feeling overwhelmed.
+From computer vision and natural language (   Читать дальше...   )Жанр: Generative AI, Microsoft Programming, Python ProgrammingЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:704329D8B924E6A693324C2827C6BB89DF1B727D
+magnet:?xt=urn:btih:C690ABDA5B4AB21DF9CC72837C4D3E05D432BD3A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,26 +558,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850971   (1054935) от 02.02.2026
+###  Публикация: 1852849   (1056548) от 12.02.2026
 
-Никто никому ничего не должен
+Alireza Parandeh | Building Generative AI Services with FastAPI. A Practical Approach to Developing Context-Rich Generative AI Applications. 1st Edition (2025) [PDF, EPUB] [EN]
 
->>3
->>След.
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Депутаты Национального собрания Франции (нижняя палата парламента) единогласно поддержали законопроект, который отменяет понятие «супружеский долг», сообщает BFMTV. В случае его принятия в законе будет закреплено, что супруги не обязаны вступать в половые отношения. Теперь документ рассмотрят в Сенате.
-(   Читать дальше...   )
+Ready to build production-grade applications with generative AI? This practical guide takes you through designing and deploying AI services using the FastAPI web framework. Learn how to integrate models that process text, images, audio, and video while seamlessly interacting with databases, filesystems, websites, and APIs. Whether you're a web developer, data scientist, (   Читать дальше...   )Жанр: Web Services, Generative AI, Software DevelopmentЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:81DBB6003DA9A422AE3FE31039A465578E97BAE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,25 +584,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850834   (1054934) от 30.01.2026
+###  Публикация: 1852848   (1056547) от 12.02.2026
 
-Никита Карпов | Чертова школа! Как перестать мучиться из-за учебы (2024) [MP3, Карпов Никита, Кабашова Екатерина, Максим Чечель]
+Bartosz Konieczny | Data Engineering Design Patterns. Recipes for Solving the Most Common Data Engineering Problems. 1st Edition (2025) [PDF, EPUB] [EN]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Самая популярная проблема, с которой родители приходят в кабинет подросткового психолога, – «Мой ребенок плохо учится». В своей новой книге известный психолог Никита Карпов предлагает раз и навсегда покончить с неуспеваемостью подростка, его хамством и инертностью, конфликтами с одноклассниками и учителями, сомнительными и нереалистичными планами после окончания (   Читать дальше...   )Жанр: Подростковая психологияИздательство: БОМБОРАПродолжительность: 06:00:01
+Data projects are an intrinsic part of an organization's technical ecosystem, but data engineers in many companies continue to work on problems that others have already solved. This hands-on guide shows you how to provide valuable data by focusing on various aspects of data engineering, including data ingestion, data quality, idempotency, and more.
+
+Author Bartosz (   Читать дальше...   )Жанр: Data Warehousing, Data Processing, Data Modeling & DesignЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7737F2984A572945D44C03D492F78585CD2AE92
+magnet:?xt=urn:btih:4F246461EB2E1CA02248C98133CED1064D6C79B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,25 +612,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850919   (1054932) от 30.01.2026
+###  Публикация: 1852847   (1056546) от 12.02.2026
 
-НХЛ 2025-2026. Чикаго Блэкхокс - Питтсбург Пингвинз (29.01.2026) WEB-DL [H.264/720p] [60 fps] [EN]
+Antonio Di Cecco, Leonida Gianfagna | Explainable AI with Python. Second Edition (2025) [PDF, EPUB] [EN]
 
->>Спорт и активный отдых
->>Хоккей
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-30 января 2026 пятница 03:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 16 715 зрителей (90% при вместимости 18 673). Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада).Телекомпания: SNPЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:51:49
+This comprehensive book on Explainable Artificial Intelligence has been updated and expanded to reflect the latest advancements in the field of XAI, enriching the existing literature with new research, case studies, and practical techniques.
+
+The Second Edition expands on its predecessor by addressing advancements in AI, including large language models and multimodal (   Читать дальше...   )Жанр: Python Programming, Probability & Statistics, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: SpringerФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D534462BD6842089C1387C5382890365D550C1CA
+magnet:?xt=urn:btih:FC3BD67FFD617AC2E6B7D43DFF8222C1BB1E89B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -549,25 +640,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850923   (1054931) от 30.01.2026
+###  Публикация: 1852846   (1056545) от 12.02.2026
 
-НХЛ 2025-2026. Вашингтон Кэпиталз - Детройт Ред Уингз (29.01.2026) WEB-DL [H.264/720p] [60 fps] [EN]
+Matt Frisbie | Building Browser Extensions. Create Modern Extensions for Chrome, Safari, Firefox, and Edge. Second Edition (2025) [PDF, EPUB] [EN]
 
->>Спорт и активный отдых
->>Хоккей
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-30 января 2026 пятница 03:30 МСК. Стадион: Литтл Сизарс-арена (Детройт, США), 19 515 зрителей (100% при вместимости 19 515). Главный судья: Брэндон Шредер (Санборн, США).Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:19:52
+This book is the definitive guide to building modern browser extensions, covering everything from fundamental concepts to advanced techniques.
+
+Developing a browser extension is more like building a mobile app than a traditional website. Extensions operate within a unique environment with their own security model, lifecycle, and APIs. This book demystifies the process, (   Читать дальше...   )Жанр: Software Design & Engineering, Software Development, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A77EE8AD7BF21A61E5782028BF2A67D7B045E157
+magnet:?xt=urn:btih:34FD1754784DDF44951DD205F9A8DBF2D14A70FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,107 +668,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850925   (1054930) от 30.01.2026
+###  Публикация: 1852844   (1056544) от 12.02.2026
 
-MassTube Ultra 21.3.2.184 [Multi/Ru]
+Satej Kumar Sahu | Building Secure PHP Applications. A Comprehensive Guide to Protecting Your Web Applications from Threats. First Edition (2024) [PDF, EPUB] [EN]
 
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054930.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MassTube — очень простая в использовании программа для скачивания видео с YouTube (и не только) с помощью одного клика. Достаточно в строку поиска вставить адрес понравившегося ролика и нажать поиск, после чего программа предоставит список форматов и разрешений, в которых можно быстро скачать данный клип.Язык интерфейса: Русский, Английский и другие
+Learn how to protect PHP applications from potential vulnerabilities and attacks. As cyberattacks and data breaches continue to rise, it's crucial for developers and organizations to prioritize security in their PHP applications. The book offers an all-encompassing guide to securing PHP applications, covering topics ranging from PHP core security to web security, (   Читать дальше...   )Жанр: Computer Network Security, Computer Programming Languages, Web Development & Design ProgrammingЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C42830358208A1401A559FA560860F63D3BA70E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850927   (1054929) от 30.01.2026
-
-Francis Rossi (Status Quo) - The Accidental (2026) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Much Better
-02. Go Man Go
-03. Push Comes To Shove
-04. Back On Our Home Ground(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D81EDDFD2CE9B3B8113AF2334B955A563AE66EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850930   (1054928) от 30.01.2026
-
-Пушки / Guns (1990) BDRip [H.265/1080p] [10-bit]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Южноамериканский торговец оружием использует один из островов на Гавайях в качестве базы для своих преступных операций. Правительство США посылает отряд лучших спецназовцев, чтобы прикрыть этот криминальный бизнес.
-Особенность операции в том, что противостоять матёрому контрабандисту будут... очаровательные девушки из агентства «L.E.T.H.A.L Ladies» (Смертоносные (   Читать дальше...   )Производство: США / Malibu Bay FilmsЖанр: боевикРежиссер: Энди СидарисАктеры: Эрик Эстрада, Дона Спейр, Роберта Васкес, Брюс Пенхалл, Синтия Бримхолл, Уильям Бумиллер, Девин ДеВаскес, Майкл Дж. Шэйн, Филлис Дэвис, Чак МакКаннПеревод: профессиональный многоголосый (ВГТРК), авторский (Вартан Дохалов), любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:852E3742C9683D8686A946D9791E8E63B48EAAF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850929   (1054927) от 03.02.2026
-
-Rufus 4.12 (Build 2314) + Portable [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054927.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEB47C777EF5CD144924DFE50CD09C66E83BBCA1
+magnet:?xt=urn:btih:909CB76401B6201065CAE69F74E8D0AFCC72AA31
 ```
 
 https://mybot314.ru/tekegram_catalog/

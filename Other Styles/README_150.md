@@ -1,3 +1,206 @@
+###  Публикация: 1268705   (226345) от 11.12.2018
+
+Laura Sullivan - A Magical Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Bells of Christmas
+02. Up on the Housetop / Ode to Joy
+03. Ave Maria
+04. The First Noel(   Читать дальше...   )Жанр: Instrumental, New ageПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22BC191376C861965C094727BC34B6AD8F037828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268601   (226188) от 11.12.2018
+
+Gente de Zona - En Letra de Otro (2018) [MP3|320 Kbps] <Reggaeton, Cubaton>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Si Tu No Estas
+02 - Cuando Calienta el Sol
+03 - Manantial de Corazon
+04 - Despues de Ti(   Читать дальше...   )Жанр: Reggaeton, CubatonПродолжительность: 00:35:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D6BD0FE63B82B64EBB6342DF3CA93A82653A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965272   (225799) от 14.12.2015
+
+Goran Bregovic - Music Inspired And Taken From Underground (1995) [FLAC|Lossless|tracks + .cue] <Gypsy Jazz, Tango, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kalasnjikov (3:22)
+02. Goran Bregovi feat. Cesria vora - Ausncia (3:48)
+03. Meseina / Moonlight (3:59)
+04. Ya Ya (Ringe Ringe Raja) (2:30)(   Читать дальше...   )Жанр: Gypsy Jazz, Tango, SoundtrackПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E60BD2054B1726D2D7B15428A7118D0BE3E26D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513194   (225393) от 28.11.2021
+
+Georg Philipp Telemann, Markus Kuikka - Fantasias For Viola Da Gamba (2021) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fantasia I in C minor - I. Adagio - Allegro - Adagio - Allegro
+02. Fantasia I in C minor - II. Allegro
+03. Fantasia II in D major - I. Vivace
+04. Fantasia II in D major - II. Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:11:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72620AC933A17BCCC220DFAFCFC860AAE6B7619A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811661   (225052) от 18.11.2020
+
+Collapse Under The Empire - 7 Albums, 4 EP, 3 Singles (2009-2020) [MP3|320 кб/с] <Post-Rock, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225052.jpg" />
+</div>
+
+
+###  Подробнее
+
+Albums:
+2009 - Systembreakdown
+2010 - Find A Place To Be Safe
+2011 - Shoulders & Giants(   Читать дальше...   )Жанр: Post-Rock, InstrumentalПродолжительность: 07:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9D80954B96F92ADD34DCB6E4A45432478453EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513199   (224968) от 28.11.2021
+
+Blizzard Composer - Starcraft / Starcraft II OST (2007-2015) 5 CD [FLAC|Lossless|tracks + .cue] <Electronic, Stage & Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальный саундтрек к легендарной серии видеоигр "Blizzard Intertainment" - "Starcraft"StarCraft
+StarCraft II - Wings of Liberty
+StarCraft II - Heart of the Swarm
+StarCraft II - Legacy of the VoidЖанр: Electronic, Stage & ScreenПродолжительность: 05:13:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186D381F07D50A0C59575EB0A02CB5F8FA92C651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650693   (224766) от 03.08.2023
+
+Kevin Braheny - Secret Rooms (1990) [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Space>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passage 1: Ingress
+02. 'Til You Get There
+03. Passage 2
+04. Shadowcatcher(   Читать дальше...   )Жанр: Electronic, New Age, SpaceПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2195668545B1D3FB7C60F5B46DDBFA65722C061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342381   (223796) от 02.12.2019
 
 Dr. Jeffrey Thompson - Theta Meditation System 2.0 (1999) [FLAC|Lossless|tracks + .cue] <New Age, Meditative, Healing>
@@ -542,215 +745,6 @@ Rezodrone - Gods Of Metal Ragnarock (2023) [FLAC|Lossless|WEB-DL|tracks] <OST, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC87D80FCAB00DBED11F519006CA6C790BA6D075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966171   (219992) от 17.12.2015
-
-Enigma - MCMXC a.D. (1990) [FLAC|Lossless|tracks + .cue] <Abstract, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Voice of Enigma (2:21)
-02. Principles of Lust: Sadeness / Find Love / Sadeness (reprise) (11:43)
-03. Callas Went Away (4:29)
-04. Mea Culpa (5:01)(   Читать дальше...   )Жанр: Abstract, AmbientПродолжительность: 00:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1B62C5966E26E515A6CB632A033389372217245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269518   (219897) от 15.12.2018
-
-Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hostage, Pt. 1 (07:29)
-02. Will & Sarah (03:56)
-03. Welcome To Heaven (02:40)
-04. Botha (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47619DFC3AEE548A6EF1EA4B617180FAAA8ACFC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269519   (219871) от 15.12.2018
-
-Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hostage, Pt. 1 (07:29)
-02. Will & Sarah (03:56)
-03. Welcome To Heaven (02:40)
-04. Botha (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFB2CD312B9DE8C95BFC8B9A4CC010853457D98D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269466   (219716) от 15.12.2018
-
-Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных городов (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London Suite in C Major (08:56)
-02. No-One You Know (02:53)
-03. The Chase (01:08)
-04. Welcome to London (02:40)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE002060B6E230601DC27E24400FE8441010DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587892   (219712) от 11.12.2012
-
-KamaSutra - Kama Sutra Erotic Massage (2011) [MP3|320 кб/с]<New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kamasutra (Erotic Massage Music)
-02. Tantramassage
-03. Massage Music
-04. Natural White Noise Sleep Music and Crickets (Amazon Rainforest)
-05. Chakra Balancing
-06. Erotic
-07. Musictherapy
-08. Hotgirls
-09. Ave Maria Classical Sleep Music with Nature Sounds Thunder Sound
-10. Thaimassage(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 02:06:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6D4ACFEDC4839F21A3E6A5927C731807AC439B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269514   (219693) от 15.12.2018
-
-Rupert Gregson-Williams - Aquaman / Аквамен (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skylar Grey - Everything I Need (Film Version) (03:16)
-02. Rupert Gregson-Williams - Arthur (04:41)
-03. Rupert Gregson-Williams - Kingdom of Atlantis (03:26)
-04. Rupert Gregson-Williams - It Wasn't Meant to Be (03:22)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FC2CA5BEA282F7B31F708536E17D782AA6BD885
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269468   (219619) от 15.12.2018
-
-Tom Holkenborg aka Junkie XL - Mortal Engines / Хроники хищных городов (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London Suite in C Major (08:56)
-02. No-One You Know (02:53)
-03. The Chase (01:08)
-04. Welcome to London (02:40)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0DEBE8CB2B5D123B78F4EFB9C0FA1D1414543B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

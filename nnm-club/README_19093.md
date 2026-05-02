@@ -1,27 +1,23 @@
-###  Публикация: 497631   (253610) от 17.05.2012
+###  Публикация: 1605471   (255491) от 05.04.2023
 
-[Wallpapers] Lamborghini
+Плод эволюции [ТВ-2] | Shin Shinka no Mi: Shiranai Uchi ni Kachigumi Jinsei | The Fruit of Evolution 2: Before I Knew It, My Life Had It Made [2023, TV, 12 из 12] WEBRip 1080p Raw+Rus
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Аниме с озвучкой
+>>Аниме с озвучкой (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253610.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Lamborghini
-Название: Lamborghini
-Официальный сайт: www.netcarshow.com
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgВремя раздачи: 19:00 до 07:00 (до первых скачавших, перебои со связью бывают,зависит от провайдера)
+Приключения невероятно красивого, обаятельного и сильного Сэйечи Хираги и его возлюбленной принцессы-гориллы в другом мире продолжаются, и как в любом порядочном исекае его ждут новые свершения, новые горизонты силы, новые враги и, конечно же, новые кандидатки в гарем. Скоро ему предстоит столкнуться со своими одноклассниками, которые тоже не сидели на месте. Но (   Читать дальше...   )Производство: Япония / Студия HotlineЖанр: Приключения, фэнтезиРежиссер: Окумура ЁсиакиЯзык озвучки: Русский многоголосый, закадровый, Японский
+- Cleo-chan, Crowley, Nuts (AniLibria.TV)Субтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0DB42D11B58C9AD31C14CFD55C3E0600C8D81975
+magnet:?xt=urn:btih:19EED7AF237AF5A6C318E95791B4CC12E1625A47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -29,25 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497655   (253609) от 17.05.2012
+###  Публикация: 1623577   (255490) от 05.04.2023
 
-[Wallpapers] Best HD Wallpapers Pack (16.05.12)
+Рекрут / The Recruit (2022) WEB-DL [H.264/1080p] (сезон 1, серии 1-8 из 8) RuDub
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Зарубежные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253609.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+24-летний юрист Оуэн Хендрикс устраивается работать в ЦРУ. Ему поручают встретиться с заключенной, которая грозит раскрыть секретные сведения, если её не освободят из тюрьмы. Знакомство с ней втягивает Оуэна в международный шпионский заговор.Производство: США / Aurum Producciones S.A., HypnoticЖанр: Боевик, триллер, комедия, криминал, детективРежиссер: Джулиан Холмс, Алекс Калимниос, Даг ЛайманАктеры: Ной Сентинео, Лора Хэддок, Арти Манн, Колтон Данн, Вонди Кёртис-Холл, Файвел Стюарт, Дэниэл Куинси Анно, Кайла Зандер, Кристиан Бруун, Энджел ПаркерПеревод: Многоголосый профессиональный (RuDub)Язык озвучки: Русский, английскийСубтитры: РусскиеПродолжительность: ~00:55:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19ECB66AB0660AEF022999E2A3A7BB7A8DF2169B
+magnet:?xt=urn:btih:F6CA5920CB45B6609756F50DC7A3881764A7E355
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,30 +51,47 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497065   (253608) от 17.05.2012
+###  Публикация: 1623322   (255489) от 05.04.2023
 
-Inner Ear Brigade - Rainbro (2012) [FLAC|Lossless]<Avant-Prog / Progressive Rock>
+Убить Пок-сун / Gil Boksun / Kill Bok-soon (2023) WEBRip [H.264/720p]
 
->>нет
->>нет
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253608.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255489.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Knee - 5:05
-02. Oom Pah - 5:09
-03. Missing The Train - 3:41
-04. Rainbro - 5:02
-05. Too Good To Be True - 4:11
-06. Somnambulist Subversion - 4:34
-07. Nut Job - 3:12
-08. Forgotten Planet - 6:00
-09. Dirty Spoons - 5:12
-10. 25 Miles To Freedom - 10:30Жанр: Avant-Prog / Progressive RockПродолжительность: 00:52:42
+На работе она известный убийца. Дома — мать-одиночка, воспитывающая девочку-подростка. Убивать легко. Труднее всего быть родителем.Производство: Корея Южная / Netflix, See At FilmЖанр: боевик, драма, криминалРежиссер: Пён Сон-хёнАктеры: Чон До-ён, Хван Джон-мин, Фахим Фазли, Соль Гён-гу, Кё-Хван Ку, Андреас Фронк, Исом, Е Су-джон, Ли Ён, Чхве Бён-моПеревод: Двуголосый любительский (Le-Production), авторский (Ю. Сербин)Язык озвучки: русский, корейскийСубтитры: русские, английскиеПродолжительность: 02:19:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:239BDD4FAD862E969D8EC2D15EF2F836C848BC4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624170   (255488) от 05.04.2023
+
+В Госдуме готовят поправки о полном запрете вейпов в России
+
+>>3
+>>23
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Депутаты Госдумы намерены подготовить поправки в законодательство, которые полностью запретят вейпы в России, сообщил член думского комитета по безопасности и противодействию коррупции Султан Хамзаев в комментарии «РИА Новости». «На Совете Государственной думы 3 апреля [спикер Госдумы] Вячеслав Володин призвал депутатов остаться на позиции полного запрета вейпов (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -90,483 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497883   (253606) от 17.05.2012
+###  Публикация: 1624128   (255487) от 05.04.2023
 
-VA - Клубные Новинки Vol.79 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Stoxx - Something To Remember (Bastian Van Shield Remix)
-02. Jakub Rene Kosik - Spica (Original Mix)
-03. Estiva & Tania Zygar - Death Of Me (Original Mix)
-04. Evave feat. Aelyn - Hand To Hand (Sensitive5 Remix)
-05. Jaytech - Overdrive (Jaytech's 2012 Remix)
-06. Andain - Much Too Much (Mike Shiver Remix)
-07. Matan Caspi - Surprise Me feat Mykle Anthony (Original Mix)
-08. Digitize feat. Laura - Breathe In (Progressive Remix)
-09. Daniel Wanrooy feat. Hannah Ray - Your Life
-10. Max Vertigo feat. SevenEver - Tech Love (Original Mix)2012Жанр: Club, DanceПродолжительность: 04:19:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3922F35256D80B08A030E5ADF0B82B753DC92CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497909   (253605) от 17.05.2012
-
-[Wallpapers] Best HD Wallpapers Pack (18.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B347116337C28D19B8EEFC036F546AA2E06B6541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497645   (253604) от 17.05.2012
-
-Рассказы о волосах / Hairtales (2008) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы и наши волосы - тема представленной документальной ленты австралийского ТВ.Жанр: ДокументальныйРежиссер: Скотт Отто Андерсон, Кэт МурПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D646C73EE3D0063961167E53013EE5BB1DA85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497614   (253603) от 17.05.2012
-
-[Wallpapers] Ferrari
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253603.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Ferrari
-Название: Ferrari
-Официальный сайт: www.netcarshow.com
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600x1200
-Расширение (тип) файлов: jpgВремя раздачи: 19:00 до 07:00 (до первых скачавших, перебои со связью бывают,зависит от провайдера)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:698442B3A9D3CCE104502C4615FFF4A52AD7119F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498015   (253600) от 17.05.2012
-
-[Wallpapers] Creative Desktop Wallpapers Pack 7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253600.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Creative Desktop Wallpapers Pack 7
-Название: Creative Desktop Wallpapers Pack 7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B039DEEBB81212B14AC7CEF903F387BD7C04794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497200   (253599) от 17.05.2012
-
-Drapsnatt - Hymner Till Undergangen (2010) [MP3|320 кб/с]<Folk/Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253599.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. En Ensam Sol Gar Ner
-2. Arvssynd
-3. Drapsnatt
-4. Mannen I Min Spegel
-5. Somna In
-6. Ve Er
-7. Tonerna De Klinga
-8. En Besvuren Plats
-9. Gasten2010Жанр: Folk/Black MetalПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EF69DE7EE040D8469817161F55CA9C70A3A0F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497116   (253593) от 17.05.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 32
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920x1080 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B1954574E0073B0F592DF1A5699FB0CFBC6414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497906   (253592) от 17.05.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (17.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4992x3328
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:383B19CCBC561F74E0F5C567E0F7C710054D6C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497907   (253590) от 17.05.2012
-
-[Wallpapers] Wallpapers Sexy Girls (17.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253590.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2667
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1457B923541204BDC36D9B15AD38F614A511B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497667   (253589) от 17.05.2012
-
-[Wallpapers] Gilrs Wallpaper Collection (16.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 3537х1800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5148BE2CDD2D8A056E6E98B91CA1E63A50336442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497918   (253588) от 17.05.2012
-
-[Wallpapers] Girls Wallpapers (18.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 5030х3551
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2C35A54A5ADD319A1C7ADCAF8E3E6A91309BC44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497666   (253587) от 17.05.2012
-
-[Wallpapers] Girls Wallpapers Mix (16.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253587.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1280х1024 - 5222х3888
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC764D8BA3D3A11C4711017E84B7CA70E02FD20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497899   (253586) от 17.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (17.05.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253586.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5C91CFAFE9422E7A7B686D2378502482251B208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498014   (253584) от 17.05.2012
-
-[Wallpapers] Computer Desktop Wallpapers Pack 27
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253584.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Computer Desktop Wallpapers Pack 27
-Название: Computer Desktop Wallpapers Pack 27
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC5542BEED7D9F796765A53991E857E3C5679AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 498101   (253583) от 17.05.2012
-
-VA - Trance Maniacs Party: Uplifting Breeze #37 (07.04.2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Woldman feat. Nicole Ambresi & DJ Leo D vs. Kuku Sky - Always (BluEye Uplifting Remix) [06:58]
-02. Claessen & Martens - El Dorado [07:54]
-03. Kamil Esten - Fields Of Love (Dan Stone Remix) [07:11]
-04. Oen Bearen & Tranceye - Goodnight My Everything (Suprano Remix) [06:58]
-05. Indecent Noise - Grim Reaper (Original Mix) [07:29]
-06. Moonbeam feat. Avis Vo - Hate Is The Killer (Arty Remix) [05:48]
-07. Marcos - Hypnotic (Activa Remix) [07:39]
-08. Farhad Mahdavi - Immortal Dreams (Original Mix) [08:00]
-09. Dave Schiemann - Insider (Wezz Devall Remilf) [06:45]
-10. Aerian - Mahe (Original Mix) [07:48](   Читать дальше...   )07.04.2012Жанр: Trance, Uplifting TranceПродолжительность: 02:28:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC70A62686F161BF9556D5901DA744D7C71CE45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497440   (253580) от 16.05.2012
-
-Sonic the Hedgehog 4: Episode 2 [Multi5/-] (RePack) 2012 | R.G. ReCoding
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonic the Hedgehog 4: Episode II является продолжением Sonic the Hedgehog 4: Episode I, действия которого развернутся после событий первой части. Сонику и Тейлзу предстоит объединиться в борьбе против вернувшегося Метал Соника и коварного Доктора Эгманна, которые заключили между собой союз, и разрушить их дьявольские планы. В игре реализована возможность совместного прохождения, как по сети, так и локально.(   Читать дальше...   )Тип издания: RePackЖанр: Аркада, Казуальная, ПлатформерЯзык озвучки: Отсутствует, не требуетсяЯзык интерфейса: Английский, Немецкий, Французский, Итальянский, Испанский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E67C0CF0D77B4C12CA29DEDEE0B260F825B0F76C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496399   (253579) от 16.05.2012
-
-Counter-Strike 1.6 Original [Ru/En] (pv47/48/No-Steam) 2012
+Миссия ассасина / Assassin (2023) WEB-DL [H.264/1080p] [MVO]
 
 >>След.
->>Архив Игр
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главная идея игры заключается в том, что две группировки противостоя друг другу - Террористы (Т) и Контр-Террористы (СТ). Присутствует также возможность наблюдать за каждым игроком из его же глаз, или же видеть изображение карты с намеченными на ней координатами игроков (overview).
-
-Цель игры CS - уничтожить всех игроков из команды противника, либо выполнить цель игры, которая является различной на каждом типе карт. После каждого ранда обе команды получают деньги, которые могут быть потрачены на экипировку. Выигравшая команда получает значительно больше денег, чем проигравшая.
-(   Читать дальше...   )Разработчик: Valve Corporation & Barking Dog StudiosЖанр: MMO Action (Tactical / Shooter) / 3D / 1st PersonЯзык озвучки: АнглийскийЯзык интерфейса: Английский, Русский
+Войны между спецслужбами становятся всё более изощренными: благодаря продвинутым технологиям агенты вселяются в тела других людей и устраняют цели руками близких и родственников жертв. Алекса узнаёт, что её супруг, который находится в коме, является одним из таких «спящих» агентов, и пытается спасти его. Но с каждым переходом в новое тело её связь с реальностью истончается, (   Читать дальше...   )Производство: США, Altamira Media, Brickell & Broadbridge International, Buffalo 8 Productions, DLL, Endless Media, magiCity StudiosЖанр: боевик, триллер, криминалРежиссер: Джесси АтласАктеры: Брюс Уиллис, Энди Алло, Доминик Перселл, Евгения Кузьмина, Мустафа Шакир, Ванесса Вандер Плуйм, Ханна Куинливан, Номзамо Мбата, Фернанда Андраде, Дастин КвикПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: русский, английскийСубтитры: английские (Full), (SDH)Продолжительность: 01:27:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B4FC9A6C61748F8F9929EE77AC82828D3D55FCE
+magnet:?xt=urn:btih:848C6581F625044A2260AA114B43F1D3529AD06E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -574,142 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 397103   (253578) от 16.05.2012
+###  Публикация: 1623860   (255486) от 05.04.2023
 
-Тайный круг / The Secret Circle (2011) HDTVRip (сезон 1, серии 1-22 из 22) Кубик в Кубе
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253578.jpg" />
-</div>
-
-
-###  Подробнее
-
-По мотивам серии одноимённых романов писательницы Лизы Джейн Смит.
-Тихая и застенчивая старшеклассница Кэсси после смерти матери переезжает из солнечной Калифорнии в мрачный городок Нью-Салем, к бабушке, которая увлечена мистикой и до странного много знает о травах. Поначалу Кэсси скучает по дому и прежним друзьям, но вскоре знакомится с компанией подростков, которые (   Читать дальше...   )Производство: США, Канада / Alloy Entertainment, CBS Television StudiosЖанр: Фэнтези, драма, мелодрамаРежиссер: Лиз ФридлендерАктеры: Бриттани Робертсон, Логан Браунинг, Томас Деккер, Шелли Хенниг, Луис Хантер, Джессика Паркер Кеннеди, Фиби Тонкин, Эшли Кроу, Гейл Харольд, Адам Харингтон  и др.Перевод: Профессиональный двухголосый (Кубик в Кубе)Продолжительность: серии по ~00:45:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497186   (253575) от 16.05.2012
-
-Garmin. City Navigator Russia NT 2013.10
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253575.jpg" />
-</div>
-
-
-###  Подробнее
-
-City Navigator NT России предоставляет подробные карты дорог и достопримечательностей для вашего устройства, так что вы можете перемещаться с точным, от поворота к повороту на любой адрес или перекресток, включая рестораны, заправочные станции, жилье, достопримечательности и многое другое. Покрытие включает в себя крупных городских районов в западной части России, включая Москву и Санкт-Петербург.
- Отображение дорог и имена на кириллице (не на английском языке).
- Содержит зоны покрытия в Москве и Санкт-Петербурга, а также междугородной сети автомобильных дорог на западе России.
- Отображение достопримечательностей по всей стране, включая рестораны, жилье, достопримечательности, магазины и многое другое.
- Для навигаторов серии Garmin NUVI 37xx, а также для всей линейки 2xxx Russian. Главной особенностью этой версии является полное внедрение функции «Junction View» , обеспечивающей реалистичные изображения приближающихся перекрестков.
-
-Доп. информация: FID 2618
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 59134   (253573) от 16.05.2012
-
-Тайна третьей планеты (1981) DVD-5 (Реставрация)
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фантастический фильм по одноименной повести К.Булычева.Жанр: МультфильмРежиссер: Владимир ТарасовПеревод: Оригинальный (Русский)Продолжительность: 0:30:0
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497530   (253572) от 16.05.2012
-
-Windows XP Professional SP3 Clear AS 05.2012 [Русский]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на оригинальном русском образе Windows XP Pro SP3 Rus VL x86, в которую интегрированы критические обновления системы по 15 мая 2012 года, драйвера самых распространённых AHCI-контроллеров AMD, Intel, nForce, JMicron, Marvell, SiS, VIA , а также IE 8 и WMP 11 с последними обновлениями.
-
-Пропатчен UXTheme.dll для установки тем без цифровой подписи и увеличено кол-во одновременных соединений TCP/IP до 100. Установочный процесс  автоматизированный (ключ, базовые настройки уже введены в процесс установки) и полу-автоматический (с вводом своих данных ,а также вводом 25-значного ключа для установки). ОС активированная, проходит проверку на сайте Майкрософт.
-
-Для установки в ручном режиме потребуется ключ, который находится в корне диска (serial.txt).
-
-Сборка сделана без излишеств в твиках реестра и прочих настройках. При создании сборки не использовалась nLite и подобные ей программы.Название программы: Windows XP Professional SP3 Clear ASЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497488   (253571) от 16.05.2012
-
-Warhammer 40 000: Dawn Of War 2: Retribution + 18 DLC [Ru] (RePack/3.19.1.6123) 2011 l Fenixx
+На одном крыле / On a Wing and a Prayer (2023) WEB-DLRip [MVO]
 
 >>След.
->>Strategy Tactical (RTS/TBS)
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Warhammer® 40,000®: Dawn of War II® - Retribution™ - второе отдельное дополнение к Warhammer® 40,000®: Dawn of War® II, действие которого разворачиваются спустя несколько лет после событий Dawn of War II - Chaos Rising. Уничтоженные, казалось, раз и навсегда тираниды возродились, на смену разбитым орочьим вождям приходят Флибустьеры Капитана Бладфлага, а из тёмных глубин Хаоса выходят новые нечистивые чемпионы. Игрокам будут предложены одиночные кампании за все игровые расы, каждая из которых расскажет свою историю войны за субсектор Аврелия. Впервые в одиночном режиме игроки смогут взять под контроль орды тиранид и превратить врагов в пищу Великого Пожирателя.(   Читать дальше...   )Тип издания: RePackРазработчик: Relic EntertainmentЖанр: Strategy (Real-time / Tactical) / 3D / Add-on (Standalone)Язык озвучки: РусскийЯзык интерфейса: Русский
+Когда пилот неожиданно умирает прямо во время полета, пассажиру приходится взять на себя управление самолетом, на борту которого находится его семья.Производство: США / Autumn Bailey Entertainment, LightWorkers Media, Metro-Goldwyn-Mayer (MGM)Жанр: драмаРежиссер: Шон МакНамараАктеры: Деннис Куэйд, Селена Андусе, Роджер Энтони, Тим Бланчард, Джесси Кейс, Паден Фэллис, Уилбур Фицджералд, Хизер Грэм, Джеймс Хили мл., Майк ХолмсПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: русский, английскийСубтитры: английские, украинскиеПродолжительность: 01:42:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5121FE886BE4CB01D985D50AE330F03550EBA8D7
+magnet:?xt=urn:btih:0C91EF18F96BA9527EB033394EA04D32EB1C3F48
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -717,34 +155,561 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 497044   (253570) от 16.05.2012
+###  Публикация: 1623105   (255485) от 05.04.2023
 
-Audi MMI 2G Digital Road Map Russia 2012
+Тетрис / Tetris (2023) WEB-DLRip [H.264] [MVO]
 
+>>3
 >>След.
->>Автомобильные программы и навигаторы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Карты для штатных навигационных систем MMI HIGH следующих автомобилей:
- • A4 Avant (2009)
- • A4 Limousine (2008 — 2009)
- • A5 (2008 — 2009)
- • S5 (2008 — 2009)
- • A6 allroad quattro (2007 — 2009)
- • A6 Avant (2005 — 2009)
- • A6 Limousine (2005 — 2009)
- • A8 (2003 — 2008)
- • Q7 (2007 — 2009)(   Читать дальше...   )Формат: ISO
+История предпринимателя Хенка Роджерса, который загорелся идеей купить видеоигру «Тетрис», созданную советским программистом Алексеем Пажитновым.Производство: Великобритания, США / AI-Film, Apple TV, Marv Films, UnigramЖанр: триллер, драма, биография, историяРежиссер: Джон С. БейрдАктеры: Тэрон Эджертон, Никита Ефремов, Софья Лебедева, Энтони Бойл, Бен Майлз, Кэн Ямамура, Игорь Грабузов, Олег Штефанко, Рик Юн, Тоби ДжонсПеревод: Многоголосый профессиональный (Apple TV+, TVShows)Язык озвучки: русский, английскийСубтитры: английские, русские, украинскиеПродолжительность: 01:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06F51ABA9C80AE4DB2F0CB2AB3590AAEBD7E8E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624446   (255484) от 06.04.2023
+
+Kambrium - Dawn of the Five Suns (2018) [FLAC|Lossless|image + .cue] <Symphonic Power Metal, Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forest Hunt
+02. Dawn of the Five Suns
+03. Against All Gods
+04. Cabrakan, God of Mountains(   Читать дальше...   )Жанр: Symphonic Power Metal, Melodic Death MetalПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4014FF4F444595F1EF54A7A4F27830875C1280A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624443   (255483) от 06.04.2023
+
+Korova - A Kiss in the Charnel Fields (1995) [FLAC|Lossless|image + .cue] <Avantgarde Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro: Der Weltenbrand / Das Kreuz und der Metzenapfel
+02. After the Fruits of Ephemeral Pulchritude
+03. Lachrydeus Mittelgard (Slâhan fôntagr inn awêþi)
+04. Entlebt in tristem Morgenblut(   Читать дальше...   )Жанр: Avantgarde Black MetalПродолжительность: 00:41:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:251725A6540DD3342FAE4C4CF4F978B90164DDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624559   (255482) от 06.04.2023
+
+Tytus - Roaming In Despair (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Heavy, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255482.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The March Of The Unwilling
+2. Fistful Of Sand
+3. Gotta Keep Movin' (MC5 cover)
+4. Motori (Divlje Jagode cover)(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA1DBF085CDD11C377EB19F65976ED1A0CB36C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624545   (255481) от 06.04.2023
+
+Weedzard - Weedzard (2023) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Sludge, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Mountain [00:06:57]
+02. Science [00:07:10]
+03. Facada [00:06:43]
+04. Wheels on Fire [00:02:29](   Читать дальше...   )Жанр: Stoner, Sludge, Doom MetalПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2763AF82541D4D7B83CA18B958EE022292EC0E18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624456   (255480) от 06.04.2023
+
+Vatican Spectrum - Ave Satan (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Satan
+02. No! Woman No Die
+03. Liars
+04. Vatican Spectrum(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10C502A487EAE3DF71C7E357745AD93BF56FDBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624458   (255479) от 06.04.2023
+
+Solstafir - Kold (2009) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.78 Days In The Desert /08:34/
+02.Kold /08:58/
+03.Pale Rider /08:01/
+04.She Destroys Again /07:12/(   Читать дальше...   )Жанр: Black MetalПродолжительность: 01:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6620016D5B6D3C5D76A81A39745505693EE64C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624323   (255478) от 06.04.2023
+
+Isaak - Hey (2023) [MP3|320 Kbps] <Stoner Metal, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Miracle B [00:02:52]
+02 - Hey [00:03:27]
+03 - OBG [00:03:29]
+04 - Except [00:04:00](   Читать дальше...   )Жанр: Stoner Metal, RockПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE4527828C7B5EC83170B249DECC6D84311EE17C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624511   (255477) от 06.04.2023
+
+Viikate - Askel (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kavaljeeri
+02. Vaihtoaskel
+03. Kuin aaveet
+04. Hei syystuuli(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A244FB4D32DEF3E3E7E5CA1D73CE23CD2AA67BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624547   (255476) от 06.04.2023
+
+Ghostmeat - Witch's Familiar (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Space>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prism of the Night [00:06:31]
+02. Death Song from the Poplars [00:02:35]
+03. Kisse Manitou Wayo [00:07:53]
+04. Mourning Song [00:07:07](   Читать дальше...   )Жанр: Heavy Rock, Psych, SpaceПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:931D6DF4E8A2A543D9B3386201BDB283047FD87F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624640   (255475) от 06.04.2023
+
+Монахиня Игнатия (Пузик) | Старчество на Руси (1999) [PDF, FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга «Старчество на Руси» – не исследование историка и не сборник житий, хотя историческое и житийное повествование присутствуют на ее страницах. Многочисленные выдержки из писаний старцев делают ее своего рода хрестоматией старческого делания. Построенная как отечник, в котором значимы и отбор, и соположение цитат, книга вводит читателя в мир духовного опыта старцев. (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F4EC9921B3F8025EB6CCD4BF06324F3A41655D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624334   (255474) от 06.04.2023
+
+Dan Wande - Highway 45 (2023) [MP3|320 Kbps] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway 45 (04:07)
+02. Tommyknockers (04:26)
+03. Out of the dark (03:49)
+04. Searching (03:38)(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C563F5B9983FB19511C4EBA6332A323BFB80104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624441   (255473) от 06.04.2023
+
+Children of Bodom - Hexed (2019) Japanese Ed. [FLAC|Lossless|image + .cue] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Road
+02. Under Grass and Clover
+03. Glass Houses
+04. Hecate's Nightmare(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A18FB173B35065D09DFC99FE64BBE744C74DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624645   (255472) от 06.04.2023
+
+Turilli / Lione Rhapsody - Zero Gravity (Rebirth And Evolution) (2019) Japanese Edition [WavPack|Lossless|image + .cue] <Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phoenix Rising (6:15)
+02. D.N.A. (Demon And Angel) (4:20)
+03. Zero Gravity (5:53)
+04. Fast Radio Burst (5:08)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AAFA43A04EA91402204450E41A0A192AFA37E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624496   (255471) от 06.04.2023
+
+King Solomon - Heights (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deliverance
+02. Flight of Rukk
+03. Summoning
+04. Helena(   Читать дальше...   )Жанр: Heavy Rock, Psych, StonerПродолжительность: 01:06:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBA87131752719EE927AD43837C2F65EA8B92704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624572   (255470) от 06.04.2023
+
+Футбол. Кубок Испании 2022-2023. 1/2 финала. Барселона - Реал (Мадрид) (05.04.2023) HDTVRip [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок Испании 2022-2023. 1/2 финала. Ответный матч. Барселона - Реал (Мадрид) (05.04.2023)
+СУДЬЯ Мартинес Хуан (Аликанте)
+
+СТАДИОН «Ноу Камп» (Барселона)Телекомпания: Матч! Футбол 2Жанр: Спорт. ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:571B2DE532E71A5FFC0F986F52917C446CB69CFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624127   (255469) от 06.04.2023
+
+Канадский пауэлифтер  назвался женщиной и установил рекорд
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255469.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский пауэлифтер Ави Сильверберг, который выглядит - как мужчина, одет - как мужчина, да и точно знает, что он мужчина, зарегистрировался на участие в женском чемпионате по пауэрлифтингу.Нынешние правила позволяют любому, кто идентифицирует себя как женщина, соревноваться в женской категории, поэтому регистрация прошла легко. При этом никаких биологических доказательств (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514531   (255468) от 06.04.2023
+
+Веном 2 / Venom: Let There Be Carnage (2021) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Более чем через год после того как в него вселился инопланетный симбиот Веном, журналист Эдди Брок пытается приспособиться к новой жизни с суперспособностями и постоянным желанием Венома откусывать людям головы. Брок пытается возродить свою карьеру и берет интервью у серийного убийцы Клетуса Касади, а тот случайно становится хозяином симбиота Карнажа и сбегает из (   Читать дальше...   )Производство: США, Великобритания, Канада / Marvel Entertainment, Pascal Pictures, Sony Pictures Entertainment (SPE)Жанр: Фантастика, боевик, триллер, приключенияРежиссер: Энди СеркисАктеры: Том Харди, Вуди Харрельсон, Мишель Уильямс, Наоми Харрис, Рейд Скотт, Стивен Грэм, Пегги Лу, Сиан Веббер, Мишель Гринидж, Роб БоуэнПеревод: Дублированный (Кинопоиск HD)Субтитры: Русские (forced, full) - отдельноПродолжительность: 01:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3595D4A110F4CE8BED98AF39339092EA64F4FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619001   (255467) от 06.04.2023
+
+Апокалипсис сегодня / Apocalypse Now (1979/2001) UHD BDRip [H.265/2160p] [4K, HDR10, Dolby Vision, Profile 8, 10-bit] [MVO] [Redux version]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время войны во Вьетнаме спецагент отправляется вверх по реке в Камбоджу с приказом найти и убить полусумасшедшего полковника, создавшего в отдаленном районе нечто вроде собственного королевства насилия. По пути он становится свидетелем мира ужасов войны.Производство: США / Zoetrope StudiosЖанр: военный, драма, история, боевикРежиссер: Фрэнсис Форд КопполаАктеры: Марлон Брандо, Мартин Шин, Роберт Дювалл, Фредерик Форрест, Сэм Боттомс, Лоренс Фишбёрн, Альберт Холл, Харрисон Форд, Деннис Хоппер, Г.Д. СпрэдлинПеревод: Профессиональный многоголосый (КиноМания)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 03:16:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11ED0920D6EBC9007B9AAEA53BCEDF4DB85364C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624480   (255466) от 06.04.2023
+
+Порнократия / Anatomie de l'enfer / Anatomy of Hell (2004) WEBRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255466.jpg" />
+</div>
+
+
+###  Подробнее
+
+В тесном клубе одинокая девушка влюбляется в парня. Но он гей, и она ему не нужна. В отчаянии Она пытается покончить с собой, но Он спасает ее. Она хочет быть с Ним, но Он не любит женщин. Она говорит, что заплатит ему: чтобы Он смотрел на нее... Они проведут четыре ночи в одиноком доме на вершине скалы, в спальне, где Он познает Ее сущность. Четыре ночи, чтобы увидеть (   Читать дальше...   )Производство: Франция, Португалия / CB Films, Canal+, Centre National de la Cinématographie (CNC)Жанр: Эротика, драма, Для взрослыхРежиссер: Катрин БрейяАктеры: Амира Касар, Рокко Сиффреди, Алехандре Белин, Мануэль Тальянг, Жак Мондж, Клаудио Карвальо, Каролина Лопес, Диего Родригез, Джоао МаркусПеревод: Многоголосый профессиональный (CP-Digital)Язык озвучки: Русский, ФранцузскийСубтитры: Русский, АнглийскийПродолжительность: 01:13:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A830AFF39B20C76DEA6A394E87B0F0E0456A825
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 968793   (151741) от 25.12.2015
+
+Phil Woods Septet - Pairing Off (1956) Remaster, 2013, Universal[FLAC|tracks+.cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Stanley Stomper [14:22]
+ 02.Cool Aid [09:49]
+ 03.Pairing Off [12:16]
+ 04.Suddenly It's Spring [08:25]Жанр: Bop, Mainstream JazzПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D4F69A0A4D27831B35B97DD49702B93DD43A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518948   (151637) от 22.12.2021
+
+Erroll Garner - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caravan [7:02]
+02. Lullaby Of Birdland [6:59]
+03. Cheek To Cheek [7:08]
+04. Once In A While [5:46](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA211313E282AEEFB77274C682993A1DA3B739D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518949   (151609) от 22.12.2021
 
 Lionel Hampton & His Orchestra Featuring Sylvia Bennett - Sentimental Journey (1985) 2014, Warner [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -686,64 +744,6 @@ Eiji Kadota - The Flow (2014) Innsbruck Records [FLAC|Lossless|WEB-DL|tracks] <F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9112EC82B02274FED7C598EEA97CD0C9CA65BDCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271340   (150249) от 23.12.2018
-
-VA - Christmas Lights - Smooth Jazz Instrumental Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150249.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Spider Fly feat. Cecilia Stalin - G Muranyi, Jason Piccioni 03:49
-2 Tam Tam - Aqualise, Jean Toussaint 08:56
-3 Riverman (Vezio Bacci Remix) - Hardage, Berenice Scott 04:29
-4 La Fete - Luis Bacalov 03:13(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBDA8354922578B7FC0B3D3457B8F8DBE06993A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086745   (150079) от 25.12.2016
-
-V.A. - Electro Swing Elite Compilation (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolfgang Lohr & Alice Francis - Still Can Kiss...
-02. Jazzotron & Manivi - Ain't No Man
-03. Extra Medium - Mental Note
-04. Sound Nomaden & MSP - Locomotive Swing(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 01:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872E3ED1AB3EA89CE7EB9D9D6B2B9E10870C89C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

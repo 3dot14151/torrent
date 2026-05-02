@@ -1,3 +1,58 @@
+###  Публикация: 1570319   (442881) от 17.08.2022
+
+VA - HarDD NRG OverDoZZe 9 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442881.jpg" />
+</div>
+
+
+###  Подробнее
+
+(+*CUE)
+01 Photonic - Obscure (Jay Welsh Remix) (BLACK ICE,1999)
+02 Jay Welsh - Four Horsemen (Original Vox) (METHOD,2001)
+03 Sasha vs. Underworld - Xpanding Girl (DJ Orkidea Remix) (Not On Label,2005)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 02:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07CDF6AB44CDABD69A2B8724239183FB7A643421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062402   (442463) от 13.10.2016
+
+VA - Lucid Moments Vol 7 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Trip-Hop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klartraum & Thalstroem - Flight To BerlinЖанр: Chillout, Downtempo, Trip-HopПродолжительность: 05:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62B2C818B2F552C7A1402F401B844D6E3822D2C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1322923   (442412) от 01.09.2019
 
 VA - Record Super Chart 602 (2019) [MP3|320 Kbps] <Pop, House, Dance>
@@ -726,64 +781,6 @@ VA - Whisper of Consciousness Volume 30 (2012) [MP3|320 кб/с]<Uplifting Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:751B01B5A246EE8DBF6BBC50039946520270CC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063194   (437262) от 15.10.2016
-
-VA - Beatport Top 100 EDM Songs & DJ Tracks September (2016) [MP3|320 Kbps] <House, EDM, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437262.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Groove Armada - Superstylin' (Riva Starr Edit)
-002. Kolsch - Grey (Original Mix)
-003. Leandro Da Silva - I Love House Music (Club Mix)
-004. Raumakustik - Dem A Pree (Patrick Topping Remix)(   Читать дальше...   )Жанр: House, EDM, Deep HouseПродолжительность: 10:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C582C599D15E78884DD1B96A96A163086F7EE615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164997   (437239) от 11.09.2017
-
-VA - Empire Records - Chill Out 12 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arnold T - Summertime Sadness
-02. E-motive - Street Waves
-03. Gt 55 - Red Color (Gray Clouds Mix)
-04. Miper - Hide(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90A90E3780D7231BC76AF9DB55CE99615F96AA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1454482   (1026259) от 15.03.2021
+
+VA - The Wings Ascending (2021) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Красивые мелодичные композиции, с гармоничным саундом в сборнике "The Wings Ascending", которые покоряют не только популярные FM радиостанции, но и многие топы и чарты отечественных и западных изданий и магазинов.001. Gayax - Neptune
+002. Enea Marchesini - Feel The Power
+003. Bogdan Vix - Stardust
+004. Tasadi & Noah Stewart - The Calling(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 11:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B66FBF62588133F19E9EB918EBCD6AD9FA656586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454598   (1026258) от 15.03.2021
+
+VA - Beatport Electro House: Sound Pack #255 (2021) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это именно та музыка, которую стоит добавить в свой плейлист и слушать с начала до самого конца. Все композиции 255-го релиза от Beatport вызывают позитивные эмоции уже на первых минутах трека, припевы быстро запоминаются, а для заядлых тусовщиков это станет настоящей находкой, что позволит организовать яркий вечер уже сегодня.001. J. Night - Hyperborea
+002. Christian Prommer - Future Lights
+003. Gai Barone - Two Ghosts
+004. Roy Rosenfeld - Otro(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 10:27:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0260CDF2396760A1768B54B86E1A88863D3323
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454484   (1026252) от 15.03.2021
 
 VA - Beatport Drum And Bass: Electro Sound Pack #254 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro Bass>
@@ -687,64 +745,6 @@ VA - Club Music vol.1 (2021) [MP3|320 Kbps] <Club, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A532E89A1667F6D794A1B155B4AC51EB584D46E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458057   (1024075) от 28.03.2021
-
-VA - Neon: Uplifting Trance Party (2021) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024075.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неон – символ ночной жизни большого города. Вас тоже манят неоновые вывески и огни? Широкие сияющие проспекты манят умчаться на край света, а реклама ночных клубов соблазняет, чтобы зайти на часок и остаться до утра, оставляя все силы на выплеск своих эмоций в танце!001. Grande Piano - Stay With Me
-002. Mike Rivera - Parallax
-003. Hyperphysics - New Awakening (Original Mix)
-004. Farius - Free Now (Extended Mix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 11:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49AF5DD95CD61E43B2B8DB52615B5ABE444DA523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458319   (1023863) от 29.03.2021
-
-VA - Beatport Bassline House: Sound Pack #265 (2021) [MP3|320 Kbps] <Bass House, Dub House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023863.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треки из подборки объединяет одно - всеми вариантами представленного здесь звучания можно основательно прокачать звуковую систему дома, в машине или на любой электронной вечеринке с качественной акустикой. В этой музыке главное в звучании - массивная, жирная бас-партия, которая мутирует в зависимости от идей музыканта от трека к треку.001. Terny Turny - Monster Kill
-002. Second Sense - Low Life
-003. Mike Porter - Its Gonna Be Alright
-004. Serge Devine - Waiting So Long(   Читать дальше...   )Жанр: Bass House, Dub HouseПродолжительность: 07:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:590E415BBF13666FE77364EC99B0B7F65A328CA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

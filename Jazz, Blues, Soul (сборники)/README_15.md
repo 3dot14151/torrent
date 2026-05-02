@@ -1,3 +1,32 @@
+###  Публикация: 1159856   (479828) от 22.08.2017
+
+VA - Jazz Chill: Romantic Female Vocals (2017) [MP3|320 Kbps] <Vocal Jazz, Smooth Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479828.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Norah Jones - It's A Wonderful Time For Love  3:54
+002.  Nina Simone - Blue Prelude  3:20
+003.  Ella Fitzgerald - A Man And A Woman  3:18
+004.  Basia - The Sweetest Illusion  5:00(   Читать дальше...   )Жанр: Vocal Jazz, Smooth JazzПродолжительность: 08:31:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C5BA753A7C3528AD1F47A3777023E8A160B048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159978   (478109) от 23.08.2017
 
 VA - Mellow Mods Instrumental Jazz Music (2017) [MP3|320 Kbps] <Jazz, Instrumental>
@@ -710,35 +739,6 @@ VA - Saxophone Collection (45CD) (1985-2010) [MP3|320 кб/с]<Jazz, Soul, Instu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F73FC221E9E7E4B7F140C12696B22B8E75AAC491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067293   (408238) от 28.10.2016
-
-VA - Journey. Relaxing Instrumental Piano Bar and Smooth Jazz Music (2016) [MP3|320 Kbps] <Jazz, Lounge>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instrumental Jazz Music Ambient - Journey
-02. Jazz Piano Bar Academy - Smile Again
-03. Piano Jazz Calming Music Academy - What a Wonderful World
-04. Good Morning Jazz Academy - Shimmer of Mystery(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:33:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29695D6AE7AC68CAD186B6BAC30CD350E7F90689
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1602008   (1046268) от 03.01.2023
+
+Greg Brice - Greg Brice (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Work for a Living (3:26)
+02. Brother (4:47)
+03. Together but Long Distance (3:31)
+04. As the Crow Flies (4:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:677A2506BCDA4F0FE104D1BDC5992D36EAC11727
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602061   (1046267) от 03.01.2023
+
+7Horse - The Last Resort (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hippies On Acid (00:03:45)
+02 - Non Sono Un Ragazzo (00:02:50)
+03 - Get You There (00:03:20)
+04 - Hey Vámonos! (00:02:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9BF8820F1813A0B233A464CD2617215863EDC69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602014   (1046262) от 03.01.2023
+
+John Fusco - Borderlands (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coyote Man (4:13)
+02. Dance Of The Seven Veils (4:46)
+03. Bad Luck Rides Shotgun (4:50)
+04. Horseback Jesus (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D81EFC91CDF032C6D80E2BA5635EAB93A80A761F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602000   (1046256) от 03.01.2023
+
+Bjorn (Björn) Hamrin - Coda (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Trust Nobody (5:20)
+02. This Is The Time (4:28)
+03. Bound To Crawl (3:45)
+04. Waiting In Vain (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:19:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79A08AC067A076EB71BFCE18F3008703C1B7C962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602293   (1046151) от 05.01.2023
 
 Justin Lavash Trio - E Train (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -629,122 +745,6 @@ Paul Filipowicz - Pier 43 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ABE9D687B6BC9E124C92C2BF3CBE2D15C6BDFDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603651   (1045666) от 10.01.2023
-
-Jon Wan - The Bluebird (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gambling Debt Blues (3:36)
-02. She's A Rocker (2:18)
-03. The Bluebird (4:52)
-04. Everyday (I'll Be Lovin' You) (4:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040ACBD289461FDE21BD5144A607DF8FB2771D2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603640   (1045665) от 10.01.2023
-
-Andabluses - Andabluses 25º Bluespowwer (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rollin'the Keys (5:11)
-02. Open the Door (4:46)
-03. Black Heart & White Soul (8:40)
-04. Just a Fool for Walkblues (5:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1199860C322995AA1288C69023209058DB0AC84A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603645   (1045663) от 10.01.2023
-
-Jerry Whittom - Blue Dust (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. THE WAY I LOVE YOU (3:59)
-02. IF YOU SEE HER (4:07)
-03. SOUTHERN ATTITUDE (3:24)
-04. I HEARD A SONG (4:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:016C1AF0638CBE475291F1197D1091C45BB84AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603659   (1045661) от 10.01.2023
-
-The Downtown Livewires - I'll Do It Today, but Not Right Now! (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to Arkansas (3:46)
-02. I Just Don't Feel Right (4:17)
-03. 3 Too Many (3:46)
-04. I'll Do It Today, but Not Right Now! (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:435D332A1A475FDC7BC09787EA5ECC1491EAF8D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

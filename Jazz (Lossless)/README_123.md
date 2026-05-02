@@ -1,3 +1,61 @@
+###  Публикация: 1032704   (644111) от 08.07.2016
+
+Francy Boland & The Orchestra - Blue Flame / Red Hot / White Heat (1972) 2CD, 2008, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644111.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.All The Things You Are [07:19]
+02.Clair Obscure [05:59]
+03.Dancing In The Dark [06:10](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7717D55A59B52FAA5220DB31F83AAA0BC1DF17B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032688   (644104) от 08.07.2016
+
+Sinne Eeg - Don't Be So Blue (2011) Japan Edition [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Be So Blue (Eeg) [5:22]
+02. Highway One (Eeg-Freeman) [4:54]
+03. The Writing on the Wall (Eeg) [4:42]
+04. Last Ride (Eeg) [3:36](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246F244BFBE0B67632D0B558C312CB905DB830A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032773   (644017) от 08.07.2016
 
 Sinne Eeg & Thomas Fonnesbaek - Eeg-Fonnesbaek (2015) [FLAC|Lossless|image + .cue] <Jazz, Vocal Jazz>
@@ -709,64 +767,6 @@ Tommy Dorsey And His Orchestra - Big Band Bash (1935 - 1947) 1990, Giants Of Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99FC726E1948FB7762EE79A6CB05F09FD75048EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227841   (641079) от 29.05.2018
-
-Harry James & His Orchestra - You'll Never Know (1962 - 1969) 1995, Reader's Digest [FLAC|Lossless|image + .cue] <Swing, Big Band, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll Never Know [2:39]
-02. Fly Me to the Moon [2:44]
-03. A Man and a Woman [2:45]
-04. Time After Time [2:11](   Читать дальше...   )Жанр: Swing, Big Band, Easy ListeningПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DA1D4531E4495F6552B410D4360FFE155475CDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033221   (640291) от 10.07.2016
-
-Steve Lacy - Sortie + Disposability (1965, 1966) 2010, FreeFactory[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sortie [10:40]
- 02.Black Elk [08:19]
- 03.Helmy [01:37]
- 04.Fork New York [02:08](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:17:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94FEDE1655BC7A386B7FBC6489BC4EB6AB2BCF67
 ```
 
 https://mybot314.ru/tekegram_catalog/

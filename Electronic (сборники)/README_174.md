@@ -1,3 +1,61 @@
+###  Публикация: 1333202   (305514) от 24.10.2019
+
+VA - Sunday Voyage: EDM Party (2019) [MP3|320 Kbps] <House, Techno, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305514.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Yako Beatz - Streets
+002. Kernel Existence - Skorn
+003. Elian West - Sunshine (Original Mix)
+004. Stad - Good Time(   Читать дальше...   )Жанр: House, Techno, TranceПродолжительность: 11:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E39D385D15E37DC0CB80F293A18F2D89B39FF0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333207   (305511) от 24.10.2019
+
+VA - Follow Up: Techno Electronic Set (2019) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305511.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Juan Campos - Rk-4
+002. Davis Parr - Talk (Original Mix)
+003. Manast - Stayed
+004. Rudosa & Hush & Sleep - Syncopation(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 13:10:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7EC4DD57571A132579F1082C2F88B3715C0CDFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261068   (305463) от 10.11.2018
 
 VA - Disco House: Funky Mix November (2018) [MP3|320 Kbps] <Funky, Disco House>
@@ -684,64 +742,6 @@ VA - Record Super Chart 561 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2670A6EAE1FAAF9FCB4B84D4AF8BAAFA2853EB88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333458   (303423) от 25.10.2019
-
-VA - Ultimate Synthpop Anthems (2019) [MP3|320 Kbps] <Syntpop, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303423.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Korgis - Everybody's Got To Learn Sometime
-002. Like Wolves In The Night - Too Young To Care
-003. New Order - Blue Monday '88
-004. Vicious Pink - Cccan't You See(   Читать дальше...   )Жанр: Syntpop, ElectronicПродолжительность: 09:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A7AB859A2B00F1E2F06FC2AD6C049B0E9AEC16B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184194   (303327) от 16.11.2017
-
-VA - Best of Deep House. Volume 9. Shake it Baby [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep House, Funky House, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hotmood - Disco Flava (Felipe Gordon remix) [5:37]
-02. Doc Daneeka - Stay Away From Music [8:09]
-03. Soultronic - You & I [6:11]
-04. Denise Montana & Goody Goody - Nr 1 Dee Jay (Pagany Back 2 Disco mix) [7:12](   Читать дальше...   )Жанр: Deep House, Funky House, Disco HouseПродолжительность: 03:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA5847F879562D525C077C27489A8FC33218007
 ```
 
 https://mybot314.ru/tekegram_catalog/

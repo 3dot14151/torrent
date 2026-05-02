@@ -1,3 +1,32 @@
+###  Публикация: 1150141   (596616) от 13.07.2017
+
+Davey And The Blu Dog - Wake up Call (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One More (07:06)
+02. Get On Home (05:14)
+03. My Two Uncles (05:47)
+04. My Dog Drives Me Crazy (07:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AFB2BC88A8E07751DAB804F7E14A28EF0AD7F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 915184   (595202) от 04.07.2015
 
 Dane Phillip Smith - I'll Carry On (2015) [MP3|320 кб/с]<Blues, Blues Rock>
@@ -716,35 +745,6 @@ Isaac Farr Trio - Blue Highway (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D195940088A1064FE8EC437035AB2452E29BBF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918867   (584886) от 17.07.2015
-
-Big James And The Chicago Playboys - The Big Payback (2012) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Blues Will Never Die (4:51)
-02.  Big Payback (5:28)
-03.  Coldest Man I Ever Knew (4:26)
-04.  All Your Love (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CFFABAAFB4CC513BB9653297C99FEC02F00399C
 ```
 
 https://mybot314.ru/tekegram_catalog/

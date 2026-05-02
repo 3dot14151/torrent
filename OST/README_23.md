@@ -1,3 +1,61 @@
+###  Публикация: 1342405   (221520) от 04.12.2019
+
+7th Sector - Soundtrack (2019) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to The Game
+02. Outdoors
+03. Reference Point
+04. Potential Capacity(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D38B8AF61EB8205B5A36258EA85463F731FA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084209   (220505) от 18.12.2016
+
+Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 3 (Music From The Showtime Original Series) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Master (02:43)
+02. New Mexico (04:25)
+03. Las Cruces (02:26)
+04. Dr. Jekyll (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:23:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843E1C979723BC3193E22375AC6BBADD376745E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269518   (219897) от 15.12.2018
 
 Steve Jablonsky - Skyscraper / Небоскреб (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
@@ -687,63 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A3B327E45F0032CE71333342B0E7A6970EA55C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322251   (170462) от 10.12.2019
-
-VA - The Texas Chainsaw Massacre: The Beginning / Техасская резня бензопилой: Начало (2006) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free - All Right Now
-02. The Ides of March - Vehicle
-03. The Dixon Brothers - A Church At The Foot Of The HillЖанр: SoundtrackПродолжительность: 00:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5CE58F38588D6C0F27CAE7826658F347DFC1AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596632   (168200) от 12.12.2022
-
-John Debney - Один дома / Home Sweet Home Alone (2021) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cousin Chaos
-02. What's With You Today
-03. Hunter And Uber Jeff
-04. It's A Christmas Miracle(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D82B716AA36B1783D166D8426803082DE9048B
 ```
 
 https://mybot314.ru/tekegram_catalog/

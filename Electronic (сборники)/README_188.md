@@ -1,3 +1,61 @@
+###  Публикация: 1360586   (242844) от 15.02.2020
+
+VA - Record Super Chart 625 (2020) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carla Morrison - Disfruto 3:57
+02. SAINt JHN - Roses (Imanbek Remix) 3:58
+03. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48
+04. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7F70D182D564AAF5CF6BB3A74BAA3B4759167C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458052   (242551) от 27.03.2021
+
+VA - Beatport Techno Electronic: Sound pack #263 (2021) [MP3|320 Kbps] <Techno, Electronic, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляемый 263-й релиз - это сбалансированная смесь клубного техно хауса и танцевальной электроники. Треки не оставят равнодушным ни слушателя, ни ди-джея, который ищет подходящий материал для своего сета. А все потому, что здесь, прежде всего, приятная позитивная мелодика, обыгранная множеством инструментов: от гитары до винтажных синтов, упругий и качающий (   Читать дальше...   )001. Daniel De Roma - La Sangre De La Hermosa
+002. Ancient Dub - Lunar Exploration
+003. Amethysts - Ponte Dei Sospiri
+004. Dstm - Afterschool Activity(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 10:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8473A97FA439512B6298307BA4BDEF5A46E2C261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458048   (242476) от 27.03.2021
 
 VA - Beatport Electro House: Sound Pack #262 (2021) [MP3|320 Kbps] <House, Electro>
@@ -687,64 +745,6 @@ VA - Beatport Electro House: Sound Pack #238 (2021) [MP3|320 Kbps] <House, Deep 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:639518752B48D138FE08EEF87248D53D5BE9F83C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447724   (237841) от 14.02.2021
-
-VA - Abstract Electronic: Experimental Synth Pack (2021) [MP3|320 Kbps] <Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237841.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадочный и мистический альбом с довольно специфичным саундом. Такая музыка тяжело поддается объяснениям. Такая вязкая, настороженная и неоднородная масса, на границе между клубной электроникой и сложным экспериментальным синтвейвом. В голове представляется что-то космическое, запредельное и холодное. В общем, идеальный плейлист для новопришедших статичных серых (   Читать дальше...   )001. Rada - Extasis Primitivo
-002. Wxlter - Leviathan
-003. The Gravity Project - Purple Nightfall
-004. Magic Sword - Prophecy(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 08:13:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E5943B6931078C6A2AD50F98FE8F68D3A10935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629699   (237840) от 27.04.2023
-
-VA - 60 minutes. Old School Dance Music vol.18 (mixed by Dj V) (2023) [MP3|320 Kbps] <Club House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-2Black - Waves of Luv (The Disco Boys Full Vocal Mix)
-02-Queen vs The Miami Project - Another One Bites The Dust (Cedric Gervais & Second Sun Club Mix)
-03-Eddie Thoneick feat. Berget Lewis - Deeper Love (Eddie Thoneick's Ruff Mix)
-04-Moby feat. Mylene Farmer - Slipping Away (Crier la Vie) (Axwell Remix)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive HouseПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BAB46BF19E638EA3CD6A2732A8746FF2D7FDB68
 ```
 
 https://mybot314.ru/tekegram_catalog/

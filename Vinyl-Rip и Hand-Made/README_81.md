@@ -1,3 +1,174 @@
+###  Публикация: 1766552   (101249) от 19.12.2024
+
+66crusher - Studio Albums (4 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101249.jpg" />
+</div>
+
+
+###  Подробнее
+
+66crusher - метал-группа из Норвегии, образована в 2000 году.2007 - Truth Unmasked
+2011 - Blackest Day
+2015 - Wanderer
+2023 - LimboЖанр: Progressive/Thrash MetalПродолжительность: 04:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FA50DA32A028335598A6B2D14258F6EE92C9CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766719   (101220) от 20.12.2024
+
+Anna Rustikano - Two Albums (1986, 1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Europop, DiscoПродолжительность: 01:21:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26C845A01E4662DE6B713C213989FC141584A4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766773   (101214) от 20.12.2024
+
+Pallbearer - Studio Albums (5 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101214.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pallbearer — американская дум-метал группа из Литл-Рока, штат Арканзас, образованная в 2008 году.2012 - Sorrow And Extinction
+2014 - Foundations Of Burden
+2017 - Heartless
+2020 - Forgotten DaysЖанр: Doom MetalПродолжительность: 05:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F562F73833B68AE583C07F00ECC92C11B5C6E396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822603   (100931) от 07.10.2025
+
+Sebastian Bach - Studio Albums (5 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Себастьян Бах (Себастьян Филипп Бьёрк) — канадско-американский вокалист, наиболее известный как фронтмен группы Skid Row в 1987—1996 годах.2001 - Bach 2: Basics
+2007 - Angel Down
+2011 - Kicking & Screaming
+2014 - Give 'Em HellЖанр: Heavy Metal, Hard RockПродолжительность: 05:05:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8627A3B9280F79AD96A2796BD2135A7749CBCC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822326   (100783) от 06.10.2025
+
+Sadist - Studio Albums (10 releases) (1993-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sadist — итальянская дэт-метал группа, образованная в Генуе, в январе 1991 года.1993 - Above The Light
+1996 - Tribe
+1997 - Crust
+2000 - LegoЖанр: Progressive Death MetalПродолжительность: 08:03:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F1FC90CDE6CCD639F4E8086509105276C7A0045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609307   (94726) от 04.10.2025
+
+Hypocrisy (Peter Tagtgren) - Studio Albums (19 releases) (1992-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hypocrisy — шведская дэт-метал-группа, образованная в октябре 1991 года в Людвике Петером Тэгтгреном.1992 - Penetralia
+1993 - Osculum Obscenum
+1994 - The Fourth Dimension
+1996 - Abducted(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 17:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EDD972967DE30B65919EC0674281E68F29E04C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1822026   (94694) от 04.10.2025
 
 Skid Row - Studio Albums (8 releases) (1989-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard 'n' Heavy, Glam Metal>
@@ -584,176 +755,6 @@ The Kovenant — норвежская метал-группа. The Kovenant на
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3828D1DD60B5F4AC65D2DDCABD1244C29A0536A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775001   (71122) от 04.02.2025
-
-Fates Warning (Arch/Matheos; Ray Alder) - Studio Albums (18 releases) (1984-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fates Warning — американская прогрессив-метал-группа, образованная в Хартфорде, штат Коннектикут, в 1982 году.1984 - Night On Brocken
-1985 - The Spectre Within
-1986 - Awaken The Guardian
-1988 - No ExitЖанр: Progressive MetalПродолжительность: 15:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE360B4F650911EF05278DCDC972AF6B61C6C93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777070   (71110) от 04.02.2025
-
-Be'lakor - Studio Albums (5 releases) (2007-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Be'lakor — австралийская рок-группа, основанная в 2004 году в Мельбурне.2007 - The Frail Tide
-2009 - Stone's Reach
-2012 - Of Breath and Bone
-2016 - Vessels(   Читать дальше...   )Жанр: Melodic/Progressive Death MetalПродолжительность: 04:33:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B48558B6935761FFE842C991B28B8A621026BB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777281   (71059) от 05.02.2025
-
-Enshine - Studio Albums (3 releases) (2013-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Enshine - международное сотрудничество музыкантов из Швеции и Франции.2013 - Origin
-2015 - Singularity
-2021 - Transcending Fire (EP)Жанр: Melodic Death/Doom MetalПродолжительность: 02:01:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FC10EB2ED900E5178C8D3F38993A0BCDA728281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777820   (70973) от 07.02.2025
-
-Canterra - Studio Albums (2 releases) (2016-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70973.jpg" />
-</div>
-
-
-###  Подробнее
-
-Canterra - метал-группа с женским вокалом из Лейпцига, Германия.2016 - First Escape
-2020 - HeartmachineЖанр: Symphonic/Gothic MetalПродолжительность: 01:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFEEF1BC4E01952022114C0AC77CCE5DC405945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777826   (70939) от 07.02.2025
-
-Dreamland - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dreamland — группа из Швеции, играющая в стиле мелодик-пауэр-метал.2005 - Future's Calling
-2007 - Eye For An Eye
-2009 - Exit 49Жанр: Power MetalПродолжительность: 02:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB62A4D72FF04AC9CFEBF47D5A2FBE15E9213F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778883   (70785) от 10.02.2025
-
-The Last Band - Studio Albums (4 releases) (2012-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Deathrock, Thrash>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70785.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Last Band — шведская рок-группа из Гётеборга, начала свою деятельность в начале 2011 года.2012 - Mean Machine
-2015 - Rats of Gothenburg
-2016 - The Fall
-2018 - HisingenЖанр: Hard Rock, Deathrock, ThrashПродолжительность: 02:07:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FA646273187BF14D039B0B1D3BB77DF69967CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

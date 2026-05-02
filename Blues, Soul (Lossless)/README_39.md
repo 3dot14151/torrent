@@ -1,3 +1,119 @@
+###  Публикация: 806059   (786647) от 06.06.2020
+
+Monte Montgomery - 10 Albums (1998 - 2016) [FLAC|tracks+.cue|Lossless]<Contemporary Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monte Montgomery - американский гитарист, певец. В довольно жесткую блюз-роковую игру ритм секции гениально вписана виртуозная игра на электроакустике Montgomery. Мелодичные джазовые соло мастера подчеркивают гениальную простоту блюза, бескомпромиссность рока. Четыре раза(из-за стиля игры) ломал он свою уникальную гитару DY62C, сейчас гитара имеет специальное усиление. (   Читать дальше...   )Список альбомов:
+1998 - 1st And Repair
+1999 - Mirror
+2001 - Wishing WellЖанр: Contemporary BluesПродолжительность: 10:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3BD5BE88358F661DB7598155AF28CD7D0BEA82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123680   (786405) от 08.04.2017
+
+Loes Swinkels - Nothing As I Know (2015) [FLAC|Lossless|image + .cue] <Blues, Americana>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing As I Know  (04:08) 
+02. Love All Around   (04:05) 
+03. Sending Love & Hope To You   (04:38) 
+04. Good For Me   (03:59) (   Читать дальше...   )Жанр: Blues, AmericanaПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F35D83BBE7AD28B55DFF9444CBBBC3E17E49CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123660   (786404) от 08.04.2017
+
+Devon Allman - Ragged & Dirty (2014) [FLAC|Lossless|image + .cue] <Blues Rock, Southern Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half The Truth  (03:07) 
+02. Can't Lose 'Em All  (03:45) 
+03. Leavin'  (02:42) 
+04. I'll Be Around  (03:56) (   Читать дальше...   )Жанр: Blues Rock, Southern RockПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35E807FBB1CDCB1493648C583D60CA40CD359B37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123157   (786396) от 08.04.2017
+
+Rockin' Blues - Make it Right (2012) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Times A Rollin' (3:50)
+02. A Little Love (4:00)
+03. Sentenced To Smile (3:03)
+04. One-Way Kind Of Love (4:20)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3111099A048B7296BE24331394893B1D13DB89D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123156   (786393) от 08.04.2017
 
 The Red Earth Blues Band - The Red Earth Blues Band (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
@@ -632,122 +748,6 @@ Blues Beatles - Blues Beatles (2017) [FLAC|Lossless|image + .cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30794DBF4DD2C6B49DC4C63B7DE43ED49890A0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207025   (780814) от 17.02.2018
-
-Rick Springfield - The Snake King (2018) [FLAC|Lossless|tracks + .cue] <Blues Rock, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Land Of The Blind (4:51)
-02. The Devil That You Know (3:03)
-03. Little Demon (5:22)
-04. Judas Tree (3:21)(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2582BF31D7709850BC5E5FC5378495D81F5232DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209191   (779519) от 25.02.2018
-
-Janiva Magness - Love Is An Army (2018) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To Blue
-02. Hammer (ft. Charlie Musselwhite)
-03. On And On (ft. Rusty Young)
-04. Tell Me(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB67500BE59FBC4E880E8680FC82D1033BAD9A9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211897   (776861) от 09.03.2018
-
-Jill Fulton - Southern Breeze (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Python Boots (4:11)
-02. Girls' Night Out In Nashville (3:21)
-03. Memphis (3:29)
-04. Big City Girl (3:19)(   Читать дальше...   )Жанр: Blues, Rock, CountryПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3952CE245431830517D94D3EF2C0C6620BD96FFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014062   (776533) от 07.05.2016
-
-Michael Juan Nunez - Rise (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776533.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Betta
-2. Come into the Light
-3. Lost It
-4. Trouble(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11897304D0DAFDCBFA86C9D0A51D69A8E064490
 ```
 
 https://mybot314.ru/tekegram_catalog/

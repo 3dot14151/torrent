@@ -1,3 +1,32 @@
+###  Публикация: 988955   (916889) от 22.02.2016
+
+DDT - Метель Августа (2000) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бродяга (4:19)
+02. Питер (5:38)
+03. Летели облака (4:24)
+04. Московская барыня (3:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38FFD73C535E1F3C611CC0C115F16BFA43B9AF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989478   (915138) от 23.02.2016
 
 Гарик Сукачев И Неприкасаемые - Третья Чаша (2005) [FLAC|Lossless|image + .cue] <Rock>
@@ -725,35 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD1DEA2916DDC607748BE551043DB83932E0F041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495490   (880810) от 12.09.2021
-
-Башаков Band - #ПатроновДоХрена (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Патроны - Сергей Галанин, Сергей Чиграков, Евгений Маргулис, Алексей Романов (04:28)
-02. Быть знаменитым - Сергей Чиграков (03:45)
-03. Богиня - Алексей Романов (04:43)
-04. Карман - Сергей Галанин (05:44)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B10ADFBE9B6247674BB5EBB2754D72B5C481C2C
 ```
 
 https://mybot314.ru/tekegram_catalog/

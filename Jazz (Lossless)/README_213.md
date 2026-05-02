@@ -1,3 +1,61 @@
+###  Публикация: 1420400   (333876) от 31.10.2020
+
+VA - Signora Ward Records - Doom Jazz/Dark Jazz/Funeral Jazz vol. 2 (2020) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Funeral Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last call at Nightowls - Veracruz (Roma version) (5:51)
+02. Lowering - A White Cat (5:36)
+03. Shadowed Silhouette - Boundless Graveyard (8:10)
+04. Joel Fausto & Illusion Orchestra - The Portal (4:42)(   Читать дальше...   )Жанр: Doom Jazz, Dark Jazz, Funeral Jazz, Noir Jazz, Noise, ExperimentalПродолжительность: 01:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09EDFBBF8E597188A06D1FF0BDE63EE7BBF3A1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955625   (333852) от 11.11.2015
+
+Glenn Miller - Chattanooga Choo Choo: The #1 Hits (1991) [FLAC|tracks+.cue]<Jazz, Swing, Contemporary Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wishing (Will Make It So) (02:53)
+02. Stairway to the Stars (02:54)
+03. Moon Love (02:54)
+04. Over the Rainbow (02:29)(   Читать дальше...   )Жанр: Jazz, Swing, Contemporary Big BandПродолжительность: 01:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AF0A224C59AD867B96AFDCC837FD6CFE95F898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579667   (333505) от 29.09.2022
 
 Hubert Laws - The Laws Of Jazz & Flute By-Laws (1964, 1966) 1994, Atlantic [WavPack|Lossless|image + .cue] <Hard Bop, Crossover Jazz>
@@ -697,64 +755,6 @@ Art Blakey / The Jazz Messengers - Indestructible (1964) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580652   (329980) от 02.10.2022
-
-Mary Osborne - A Girl & Her Guitar (1945 - 1959) 2015, El [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love Paris [2:53]
-02. I Let a Song Go Out of My Heart [2:52]
-03. How High the Moon [2:55]
-04. When Your Lover Has Gone [3:51](   Читать дальше...   )Жанр: Bop, Guitar JazzПродолжительность: 01:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498EE823D1A42A2B637ABBB0E5E8CBFF6253E00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956685   (329482) от 15.11.2015
-
-Art Farmer - Yesterday's Thoughts (1975) 2015, Universal[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.What Are You Doing The Rest Of Your Life [09:53]
- 02.How Insensitive [06:36]
- 03.Namely You [05:59]
- 04.Alone Together [09:32](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D7F85705BD7EC66EDCEB62BFAEA989068E01DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

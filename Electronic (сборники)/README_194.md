@@ -1,3 +1,61 @@
+###  Публикация: 1832090   (213482) от 30.10.2025
+
+ReteoX - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Silent Hearts
+ 02 - Without a Goodbye
+ 03 - Silent Love
+ 04 - Whisper My Name(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05EAF822578938624D1C1C32814CB18739351BDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637770   (211631) от 12.06.2023
+
+VA - Trance In Motion Vol.360 (2023) [MP3|320 Kbps|image + .cue] <Trance, Progressive Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ciaran McAuley - Your Smile (Liam Wilson Extended Remix)
+02. Pralle & Kaul - Orient Express (Alex M.O.R.P.H. Extended Retouch)
+03. Universal Frequency - Fair & Square (Extended Mix)
+04. Driftmoon - Howl Me Tight (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 01:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEB127CB109C737D4360E1630F600C662B809FC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639653   (211411) от 15.06.2023
 
 VA - Best Of Aly & Fila (Compiled & Mixed by Divine) (2023) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - The Sonic Blade: Synthwave Electronic Mix (2023) [MP3|320 Kbps] <Synthwave,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BDC982C204F57E27B0DB3CC956302CB4DBFDE20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1610653   (202939) от 08.02.2023
-
-VA - Крутые пушки Зима 2023 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta Feat. JD Davis - The World Is Mine (Dj Jurbas Radio Edit) (2:43)
-02. Macklemore - Thrift Shop (DJ L!ON ft DJ NONY Remix) (3:28)
-03. StereoKilla - In Da Air (Extended Mix) (3:35)
-04. Elton John, Britney Spears - Hold Me Closer (OLMEGA Remix) (3:13)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 04:53:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8034685CC6CC4BF38AAE0848FE72E464272E35D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611296   (202825) от 11.02.2023
-
-VA - Spaceout: Synthspace Electronic Mix (2023) [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kito Jempere - A Mirage Seen At Buffalo
-02. Apollo Noir - Adieu
-03. Tjade - In Contact
-04. Cascade Audio - Medina(   Читать дальше...   )Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 08:21:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1736AADD763BED841E84CB26F8D1FF38286635A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

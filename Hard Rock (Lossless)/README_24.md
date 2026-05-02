@@ -1,3 +1,121 @@
+###  Публикация: 1505200   (806512) от 26.10.2021
+
+Winter Rose - Winter Rose (1989) Japanese Edition, Reissue, 1997, Victor [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Winter Rose (в переводе с англ. — «зимняя роза») — канадская хард-рок-группа, образованная в Монреале. Группа выпустила лишь одноимённый альбом в 1989 году, вскоре после чего развалилась. В 1997 году альбом был переиздан немецким лейблом InsideOut Music.
+
+Группа появилась в середине 1980-х и называлась Hope. В её состав входили гитарист Ричард Чики и (   Читать дальше...   )01. Asylum City (3:34)
+02. I'll Never Fall In Love Again (3:49)
+03. Rough Boys (4:26)
+04. Dianna (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4E63D8DF8044C34DA5BCA9136FC9ED801B3AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009747   (805558) от 23.04.2016
+
+Rainbow - The Singles Box Set 1975-1986 (2014) 19CD, Compilation, Limited Edition, ReMastered [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Girl (4:53)
+02. Spotlight Kid (Live At Budokan, Tokyo) (6:02)
+03. Man On The Silver Mountain (Live) (8:17)Жанр: Hard RockПродолжительность: 03:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD6825ECF6EAFAB4D5648165FEC75BF21D370993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505257   (804555) от 27.10.2021
+
+Say Never - Lies! (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Giving Up (00:03:36)
+02 - You Lied (00:03:56)
+03 - Breathe Again (00:03:57)
+04 - Do You Remember (00:04:12)(   Читать дальше...   )Жанр: Hard Rock
+Страна: USA, Atlanta, GeorgiaПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9608966E14C2A84CFB976555A7F67829E56EDCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505382   (804465) от 27.10.2021
+
+Ottoman - Heretic (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burn The Witch 03:46
+02. Don Ivi 04:15
+03. Fire In The Hole 03:28
+04. Glory Days 05:00(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AFA7DC7CA4E9628B411971BF99632DEAB3C96FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505437   (804460) от 27.10.2021
 
 John Diva & The Rockets Of Love - American Amadeus (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Glam>
@@ -628,122 +746,6 @@ Nitrate - Renegade (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D711D73CDCC0A1BD37080B6234106EFB58A5E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508627   (796927) от 09.11.2021
-
-Wraith - Riot (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Russian Roulette
-02. Riot
-03. Cursed
-04. You've Got It Comin'(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:53:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C770E8B177E0A79FE002319F003E5DCFC5A981FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508694   (796857) от 09.11.2021
-
-Wraith - Danger Calling (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796857.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hungry (Shot Of Your Love)
-02. Crazy
-03. One Foot In The Grave
-04. Breakin' All The Rules(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E5A23731E90F75DC46C3AE937F816FB37E3146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200118   (796381) от 20.01.2018
-
-Greg Lake - Greg Lake (1981) Reissue, 1993, Chrysalis [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nuclear Attack (4:32)
- 02. Love You Too Much (3:56)
- 03. It Hurts (4:30)
- 04. Black And Blue (3:59)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, AORПродолжительность: 00:43:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB01DD488DABF0BAC3878ED982D82873E0162076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508998   (796282) от 10.11.2021
-
-Pat O'May - Welcome To A New World (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Progressive>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Shall Never Surrender 08:36
-02. Grinch 03:43
-03. Anything I Want 04:45
-04. Please Tell Me Why 04:06(   Читать дальше...   )Жанр: Hard Rock, Heavy ProgressiveПродолжительность: 01:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55203B8DAE0FBE1EF05A3932F1A990B6AC2E0D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

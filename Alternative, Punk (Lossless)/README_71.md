@@ -1,3 +1,61 @@
+###  Публикация: 1728155   (54028) от 07.06.2024
+
+Marilyn Manson - Sweet Dreams Baby (2000) 2024, Smokin' [FLAC|Lossless|WEB-DL|tracks] <Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inauguration Of The Mechanical Christ/The Reflecting God [00:06:52]
+02. Great Big White World [00:04:58]
+03. Cake And Sodomy [00:04:06]
+04. Sweet Dreams (Are Made of This) [00:06:26](   Читать дальше...   )Жанр: IndustrialПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB2769B7666ED073F6BA650E428D0FAD19554A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541025   (49233) от 22.07.2024
+
+Red Hot Chili Peppers - Unlimited Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Black Summer (00:03:52)
+02 - Here Ever After (00:03:50)
+03 - Aquatic Mouth Dance (00:04:20)
+04 - Not the One (00:04:26)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A397AF2C34EC49E4719362E87FB85D56AB21047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745290   (45564) от 26.08.2024
 
 The Get Up Kids - Something to Write Home About (1999) 25th Anniversary Deluxe Edition, 2024, Polyvinyl Records [FLAC|Lossless|WEB-DL|tracks] <Alternative, Emo, Indie Rock>
@@ -687,64 +745,6 @@ Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Japan, WPZR-30320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1021B13B9931B5C9F04E4E04CBD9F43B0E61020C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763390   (35435) от 02.12.2024
-
-Linkin Park - Meteora (20th Anniversary Edition) (2003) Brazil, 0093624880974, AA500 Pressing, 2023, 3xCD [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreword (0:13)
-02. Don't Stay (3:08)
-03. Somewhere I Belong (3:34)
-04. Lying From You (2:55)(   Читать дальше...   )Тип издания: Digisleeve, 20th Anniversry EditionЖанр: Alternative / Nu-MetalПродолжительность: 02:19:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A49C587B783B29FC3BE25AE7CEE38834184AA4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763398   (35409) от 02.12.2024
-
-Linkin Park - Live In Texas (2003) Japan, WPZR-30036~7 [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35409.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhere I Belong (3:38)
-02. Lying From You (3:07)
-03. Papercut (3:06)
-04. Points Of Authority (3:25)(   Читать дальше...   )Тип издания: DigipakЖанр: Alternative / Nu-MetalПродолжительность: 00:41:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07A1677104B96F94526C269D16C6B6805A66FCD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

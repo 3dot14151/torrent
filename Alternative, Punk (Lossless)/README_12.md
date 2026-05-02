@@ -1,3 +1,61 @@
+###  Публикация: 1381096   (829846) от 05.05.2020
+
+Lovedrug - Turning Into Something You Were Never Meant To Be (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829846.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bully Catcher [02:58]
+02. Vultures [03:42]
+03. Head Noise (Heart of Magic) [03:11]
+04. Black Wave [3:06](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAB71FB1882F6FF2137936185BFD4908537BF1FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381147   (829749) от 05.05.2020
+
+The Fratellis - Half Drunk Under a Full Moon (2020) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Half Drunk Under a Full Moon (05:34)
+02. Need a Little Love (03:49)
+03. Lay Your Body Down (03:48)
+04. The Last Songbird (04:01)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2207C7353DD2256EBDFA2B2E204C1803AD029C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381184   (827811) от 06.05.2020
 
 loney dear - Dear John (2009) [FLAC|Lossless|image + .cue] <Indie Rock, Alternative Rock>
@@ -688,64 +746,6 @@ Placebo - This Picture (2003) Australian Exclusive EP [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DB30A1D72D5DA4F7D4A1BEBD66991A5AFE9E573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1504535   (810426) от 24.10.2021
-
-Creux Lies - Goodbye Divine (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Punk, Synthpop, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jungle (5:29)
- 02. Misunderstanding (3:52)
- 03. Becoming (5:10)
- 04. PS Goodnight (4:21)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, Synthpop, New WaveПродолжительность: 00:35:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B31431B5A6898B0E641C053442240D5518C55BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198221   (808400) от 11.01.2018
-
-New Politics - Lost in Translation (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CIA
-02. One of Us
-03. Tell Your Dad (feat. Rivers Cuomo)
-04. Madeleine(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED53A877890B45ACCE1F7A48029A8504A4CA33A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,227 @@
+###  Публикация: 1209665   (779151) от 28.02.2018
+
+Bitter:Sweet - Drama (2008) [FLAC|Lossless|tracks + .cue] <Downtempo, Trip Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Dramatico (0:11)
+02. Get What I Want (03:25)
+03. Come Along With Me (02:19)
+04. The Bomb (03:02)(   Читать дальше...   )Жанр: Downtempo, Trip HopПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1AF407BECB44DEB5F67793453C1FED70A6C5481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209849   (779147) от 28.02.2018
+
+VA - Yoga Love - The Full Moon Sessions 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Arrival  11:20
+02.  Polyshake Bells  13:13
+03.  Interludium  02:54
+04.  Good Mooning  29:22(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 03:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DACBB21C71435799AB69AE5DCDA848288AED39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209582   (779142) от 28.02.2018
+
+Ball Park Music - Good Mood (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779142.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The End Times (04:07)
+2. I Am A Dog (03:36)
+3. Frank (03:49)
+4. The Perfect Life Does Not Exist (03:22)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0FF1D303812463549C6117A98990C291FE938C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209694   (779138) от 28.02.2018
+
+Flunk - Morning Star (2004) [FLAC|Lossless|tracks + .cue] <Downtempo, Synth-pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Star (03:52)
+02. On My Balcony (03:11)
+03. Spring To Kingdom Come (05:01)
+04. Six Seven Times (04:39)(   Читать дальше...   )Жанр: Downtempo, Synth-popПродолжительность: 00:35:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB52D5E84007984AD67EF40BB0C91F7FA7CFE66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209656   (779137) от 28.02.2018
+
+Camp Cope - How to Socialise & Make Friends (2018) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Rock, Indie Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Opener (03:40)
+02. How to Socialise & Make Friends (03:14)
+03. The Face of God (03:50)
+04. Anna (05:52)(   Читать дальше...   )Жанр: Alternative, Rock, Indie RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F65CF405A55D52B7834489AEDE86F7B6F407CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209775   (779124) от 28.02.2018
+
+Alaska - Jasheri (V2) / Zoranine (V2) (2017) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass, Drumfunk, Atmospheric>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jasheri (V2) (10:24)
+ 02. Zoranine (V2) (09:07)Жанр: Drum & Bass, Drumfunk, AtmosphericПродолжительность: 00:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF18D9EDA088D22F6094B09C562AD9E580607441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209750   (779116) от 28.02.2018
+
+Movavi Video Editor 5.3.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тип издания: macOS SoftwareРелиз состоялся: 26.02.2018Разработчик: MovaviПоддерживаемая ОС: OS Х 10.7 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1DBCC75CAA26BF5C14C1DC1369F30567ECCBC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209801   (779113) от 28.02.2018
+
+USDownloader 1.3.5.9 Portable (28.02.2018)  [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779113.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1FFA58AC0E0A950ECF5518AC90589906E803B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209610   (779112) от 28.02.2018
 
 VA - Call Of Goa Vol.3: New Horizons (2018) [MP3|320 Kbps] <Psy Trance, GOA, Full On>
@@ -483,232 +707,6 @@ VLC Media Player - представляет собой мощный медиац
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3AAE98AB04CF40CA87E1C59450A60E7FF37BBA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210003   (779020) от 01.03.2018
-
-VA - Aquarius (2013) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental, Glitch, Minimal, Modern Classical>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Federico Durand - Una Vision Entre Los Arboles Del Bosque (05:01)
- 02. The Green Kingdom - Pineloops3 (05:00)
- 03. Pjusk - Skarlagen (05:00)
- 04. Melodium - Pistoruis (05:00)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Drone, Experimental, Glitch, Minimal, Modern Classical •Продолжительность: 01:16:46 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B184A39B52833382E114E73329156D895D4CA2DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210161   (779019) от 01.03.2018
-
-D'Arcangelo - Audiovisual Designs (2013) Rephlex [FLAC|Lossless|tracks+.cue] <IDM, Techno, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Color Two (04:09)
- 02. Sep On Acid (04:10)
- 03. External Monday (04:42)
- 04. Bet Root (03:35)(   Читать дальше...   )Тип издания: CD •Жанр: IDM, Techno, Experimental •Продолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B57D87126CD34997551837AC930F7DEFD118C2EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210042   (779017) от 01.03.2018
-
-Nexet - Иммунитет (2017) [MP3|320 Kbps] <Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Точка (3:45)
- 02. Иммунитет (3:30)
- 03. Не виноваты (3:18)
- 04. Моветон (3:11)(   Читать дальше...   )Жанр: RapПродолжительность: 00:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59C302F8E68463A36B9BD203416E6AC8E79BD103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210159   (779015) от 01.03.2018
-
-D'Arcangelo - D'Arcangelo (2018) Happy Skull [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saba Tree (04:00)
- 02. Pull Seven (04:15)
- 03. AC - SF13 - 2 Cid - 13th Cider (04:41)
- 04. Korty (02:40)Жанр: IDM, ElectroПродолжительность: 00:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F91AA579F09E6FA9C0E1D247853D15F324FE46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209955   (779010) от 01.03.2018
-
-8mm - Opener (EP) (2004) [FLAC|Lossless|tracks + .cue] <Trip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opener (03:51)
-02. Save Yourself (03:07)
-03. Never Enough (04:14)
-04. Nothing Left To Lose (03:09)(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A678120C839E0242B7C32DA42A03C0C07CFAF820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209975   (779007) от 01.03.2018
-
-Todd Gauthreaux & Label-Pack Simulacra Records (1997-2018) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Drone, Experimental, Indie Rock, Ethereal, Shoegaze>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monochrome Frost (05:38)
- 02. A Year Of Disappointments (04:51)
- 03. The Trouble With Dreams (06:09)
- 04. Theory Of Impossible Shapes (04:38)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Drone/ExperimentalПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07AF98D24ED85CDAEF353ABD5CF3231316104461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210089   (779000) от 01.03.2018
-
-WinCatalog 2017 17.45 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779000.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinCatalog - это простая в использовании программа-каталогизатор, предназначенная для каталогизации дисков, файлов и папок. Приходилось ли Вам когда нибудь просматривать содержимое десятков CD в поисках нужной программы или песни? Используя WinCatalog Вам больше никогда не придется тратить время на поиск. Достаточно один раз добавить Ваши диски в WinCatalog и поиск (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29A618A0EA29A7F1EA0639BF83092DEBB916F707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210189   (778995) от 01.03.2018
-
-Opera 51.0.2830.40 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473E757438251DE43DC25DE99676CB6A2A2CF062
 ```
 
 https://mybot314.ru/tekegram_catalog/

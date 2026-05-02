@@ -1,3 +1,32 @@
+###  Публикация: 1297272   (604049) от 22.04.2019
+
+The Skys - Automatic Minds (2019) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Rid Of This (4:03)
+02. Automatic Minds (4:40)
+03. The Guardian Of The Water Tower (5:19)
+04. Singing Tree (3:17)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC98051F3F938D97DE48B471F384B2D85C87819D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148489   (603910) от 06.07.2017
 
 Klabautermann - Innsia Ut (2017) [MP3|320 Kbps] <Norway Rock>
@@ -723,35 +752,6 @@ Santiano - Haithabu - Im Auge des Sturms (2018) [MP3|320 Kbps] <Folk Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCBB8B768DFF79DFE751EC54EC807F42ABA26F0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549728   (593390) от 07.05.2022
-
-StuckFish - 3 Albums (2018-2022) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age Of Renewal [00:07:12]
-02. Days Of Innocence [00:07:53]
-03. Painted Smile [00:08:03]
-04. GameChanger [00:05:35](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:36:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAFBFDC0D28BA80E81889D2FDA9A64F45200956F
 ```
 
 https://mybot314.ru/tekegram_catalog/

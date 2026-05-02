@@ -1,3 +1,61 @@
+###  Публикация: 1415173   (379247) от 11.10.2020
+
+Sonny Clark - The Best Of The Blue Note Years (1957 - 1961) 2001, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoutin' on a Riff [6:45]
+02. Dial S for Sonny [7:26]
+03. Speak Low [6:50]
+04. Sonny's Crib [13:30](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:441CBDFCB228E5D4B357E63842DC0815342A6F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415178   (379110) от 11.10.2020
+
+Walter Bishop, Jr. Trio - Speak Low + 3 (1961) 1987, Tokuma [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes I'm Happy (alternate take) [7:30]
+02. Sometimes I'm Happy [6:34]
+03. Blues in the Closet (alternate take) [3:55]
+04. Blues in the Closet [4:04](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19AEE630D315816596E6932937EAB0C7E3ABBDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327103   (378788) от 23.09.2019
 
 Miles Davis - Miles' Groove (1953 - 1956) 3CD, 2007, IMC Music [APE|Lossless|image + .cue] <Bop, Cool, Hard Bop>
@@ -687,64 +745,6 @@ VA - Jazz Grooves: Best of MapleShade, vol.3 (2010) MapleShade Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EBD0712748AD28A57FDB88720D1400C33F17F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175510   (376774) от 19.10.2017
-
-Buddy DeFranco (De Franco) & Martin Taylor - Garden of Dreams (1988) ProJazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 73 Berkley Street [06:35]
-02. Sunshine State [05:20]
-03. I Remember Clifford [05:24]
-04. Mysteria [04:43](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67782E79486804182DCF9A5DC66537B49EAC92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175714   (376635) от 19.10.2017
-
-VA - Jazz Ladies (2006) 3CD, Weton-Wesgram [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376635.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Dinah Washington - Mad About the Boy [02:49]
-02.Nina Simone - Ain't Got No,I Got Life [04:38]
-03.Billie Holiday - Carelessly [03:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3DBAC9566B5408E25726765C1BE8C85BF1B782A
 ```
 
 https://mybot314.ru/tekegram_catalog/

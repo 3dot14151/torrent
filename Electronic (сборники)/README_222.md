@@ -1,3 +1,61 @@
+###  Публикация: 1760997   (36997) от 17.11.2024
+
+Hamidshax - Compilation Cd 1 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Serenity
+ 02.  Whatever
+ 03.  Farewell
+ 04.  Loosescrew(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:01:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65EFAAC9E17ED5CED17CD0E533C02AE7549194A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760942   (36957) от 17.11.2024
+
+Kasimoff - Compilation Cd 2 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Close Your Eyes
+ 02.  My All
+ 03.  Seni Dert Etmeler
+ 04.  Attention(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FE90102D96138F977601E94F9238DAA4213CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761201   (36851) от 18.11.2024
 
 Hamidshax - Compilation Cd 2 (2024) [MP3|320 Kbps] <Electronic>
@@ -685,64 +743,6 @@ VA - Record Super Chart 11.01.2025 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E4A52552CFD8B33F73BC8B385C51402CCC31B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772696   (31153) от 12.01.2025
-
-VA - Musical kaleidoscope part 20 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Polkovnik - Space Wind
-02. Dj Aurm - Waves of Love
-03. Dj Artur - Hope
-04. Сергей Грищук - Снежная Симфония(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F38943939A424C47A6BCAE023AA1BE92B9C562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772697   (31149) от 12.01.2025
-
-VA - Compilation part 138 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Umar Keyn - No Love
-02. Joni - Can I Love You
-03. Jumanov - The Past
-04. Limora - Hug Me Again(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:54:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9BD57589E023AB3404F353736AD9E5E60CC5C62
 ```
 
 https://mybot314.ru/tekegram_catalog/

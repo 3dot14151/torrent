@@ -1,3 +1,66 @@
+###  Публикация: 573367   (381747) от 10.11.2012
+
+VA - Club Dubstep - №14 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Mirror (Original Mix) (04:36)
+02. Serenade (Roughmath Remix) (06:16)
+03. Pressure (feat. KT Forrester)Жанр: DubstepПродолжительность: 02:16:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB000240360C60C5B11EB0CCD19AE08F5FA0267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573007   (381745) от 10.11.2012
+
+VA - Trance Eve Volume 44 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381745.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Faruk Sabanci - Oriental Sentiment (Nurettin Colak Remix)
+002. Fergus Keogh feat. Tiff Lacey - Darkest Hours (Original Mix)
+003. Indecent Noise feat. Ridgewalkers - Full Moon Fever (Power Dub)
+004. Julian Vincent & Shannon Hurley - Lost In Space (Eximinds Remix)
+005. Mark Sixma feat. Amba Sheperd - Cupid`s Casualty (Mike Saint Jules Remix)
+006. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
+007. Neev Kennedy - The Unknown (DNS Project Mix)
+008. Norin & Rad - Zion (Original Mix)
+009. Progressiver - Searching For The Truth (Den Rize pres. Rizen Remix)
+010. Allure feat. Emma Hewitt - Stay Forever (Nitrous Oxide Remix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80ACA5B864E66F69DF609903DE179861FFCF0DA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573395   (381670) от 10.11.2012
 
 VA - Club Dubstep - №16 (2012) [MP3|320 кб/с]<Dubstep>
@@ -738,64 +801,6 @@ DJ Quicksilver - Сборник композиций (2015) [MP3|320 кб/с]<Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:871D772BE2D1181F703A6F99FC3F4C4EBBFD2686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253849   (379519) от 11.10.2018
-
-VA - Dubstep Generation (2018) [MP3|320 Kbps] <Dubstep, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379519.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. King Fatu - Furious Flash
-002. Dexter Dub - Sternengeschwader (Drumstep Version)
-003. Hive - Questionable Directions
-004. Brkchk - Pressure(   Читать дальше...   )Жанр: Dubstep, TrapПродолжительность: 08:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BB372073D49AAC2FB2CCEE28C79EFC8EECDCDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253853   (379509) от 11.10.2018
-
-VA - Respect Drum & Bass (2018) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Derrick & Tonika - Vatra Spirit
-002. Linear - Anthem At Dusk
-003. Wax Motif - Legit
-004. Foureye - Air Raid(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 10:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCEE1FE1B26775BF6FEEE6A50171E4E24304798
 ```
 
 https://mybot314.ru/tekegram_catalog/

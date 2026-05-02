@@ -1,3 +1,61 @@
+###  Публикация: 1610653   (202939) от 08.02.2023
+
+VA - Крутые пушки Зима 2023 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta Feat. JD Davis - The World Is Mine (Dj Jurbas Radio Edit) (2:43)
+02. Macklemore - Thrift Shop (DJ L!ON ft DJ NONY Remix) (3:28)
+03. StereoKilla - In Da Air (Extended Mix) (3:35)
+04. Elton John, Britney Spears - Hold Me Closer (OLMEGA Remix) (3:13)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 04:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8034685CC6CC4BF38AAE0848FE72E464272E35D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611296   (202825) от 11.02.2023
+
+VA - Spaceout: Synthspace Electronic Mix (2023) [MP3|320 Kbps] <Electronic, Synthwave, Synthspace>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kito Jempere - A Mirage Seen At Buffalo
+02. Apollo Noir - Adieu
+03. Tjade - In Contact
+04. Cascade Audio - Medina(   Читать дальше...   )Жанр: Electronic, Synthwave, SynthspaceПродолжительность: 08:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1736AADD763BED841E84CB26F8D1FF38286635A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613271   (202605) от 18.02.2023
 
 VA - Dive Into Darkwave (2023) [MP3|320 Kbps] <Darkwave, Electronic>
@@ -687,64 +745,6 @@ VA - Deep House Pool Party (2023) [MP3|320 Kbps] <Deep-House, Electro, Tech-Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BC3295D0EEE570AB6F784B5255F0D97C83DAF22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628733   (199337) от 24.04.2023
-
-VA - Night Rider 6 (2023) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyga, YG, Santana - Mamacita (Vex & Myers Remix) (3:44)
-02. Zvika Brand & Mankeys vs Alex Mistery - Potahat Tik (Neiro & Vex Radio Edit) (1:40)
-03. 50 Cent & Fenk - Candy Shop (VeX & Myers Booty Mix Radio Edit) (3:20)
-04. Tube & Berger - All I Want (feat. Goatchy) (3:44)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:628420FD0FD95D4C7CA6443BAD1D759A645E7ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630520   (199010) от 01.05.2023
-
-VA - Deep Night Deep House 5 (2023) [MP3|320 Kbps] <Deep House, House, G-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rendow - Burn (2:42)
-02. OSLM - More Than One Night (2:36)
-03. Malserc - Next Life (2:47)
-04. Leav3l8ke - Umbrella (2:50)(   Читать дальше...   )Жанр: Deep House, House, G-HouseПродолжительность: 04:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3204F1C55D3A52F0E9E1712F5BE680C51103E756
 ```
 
 https://mybot314.ru/tekegram_catalog/

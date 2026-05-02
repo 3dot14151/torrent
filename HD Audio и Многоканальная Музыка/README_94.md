@@ -1,3 +1,175 @@
+###  Публикация: 1696803   (119306) от 04.02.2024
+
+The Great Alone - Perception (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Call (00:02:03)
+02 - Beyond Dreams (00:04:27)
+03 - Mania (00:04:25)
+04 - Stars And Storms (00:03:41)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524140069E745245C4F475777E096CCC3EDE5DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696883   (119305) от 04.02.2024
+
+Shadow - Studio Albums (2 releases) (2001-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shadow - Мелодик-дэт-метал группа из города Осака, Япония.2001 - Shadow
+2008 - Forever ChaosЖанр: Melodic Death MetalПродолжительность: 01:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E033CE6ED97A9DB7BC7845ACCA5F67013B68F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696839   (119292) от 04.02.2024
+
+Graywitch - Children Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Overture To Olympus (00:01:12)
+02 - Children of Gods (00:03:47)
+03 - Odysseus (00:04:29)
+04 - Holy Lands (00:06:17)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0DC55EF4706E13E63748CA0A514D68F982DC0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697052   (119132) от 05.02.2024
+
+Arcane Tales - Until Where The Northern Lights Reign (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - One Last Ride (00:04:08)
+02 - King Of Kings (00:04:13)
+03 - The Dark Portals Of Agony (00:04:03)
+04 - Dwarven Storm (00:05:58)(   Читать дальше...   )Жанр: Power, Symphonic MetalПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55F1EA7BBA24FD6CCB86237CC23BFC9485C6B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696911   (119118) от 05.02.2024
+
+Jazzy - Constellations (Expanded) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Soul, R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shooting Star [00:02:25]
+02. Giving Me [00:02:49]
+03. Feel It (Club Edit) [00:02:04]
+04. Empty Promises [00:02:32](   Читать дальше...   )Жанр: Electronic, Soul, R&BПродолжительность: 00:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEBCD3C1923B7AA1F60371F277DEAF0B13B32AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696893   (119108) от 05.02.2024
+
+Shujaat Khan - Maestro's Voice (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <World>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zindagi Se Badi Sazaa Hi Nahi (11:21)
+02. Na Urooj De (11:52)
+03. Yeh Inayatein Gazab Ki (11:10)
+04. Kahan Aake Rukne the Raaste (11:03)(   Читать дальше...   )Жанр: WorldПродолжительность: 02:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBFEF5562B2520EFEE6CBE44855F0C089D89C3B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696910   (119107) от 05.02.2024
 
 Acolyte - Studio Albums (2 releases) (2016-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Prog Rock>
@@ -568,180 +740,6 @@ Background Instrumental Music Collective - Joyful Jazz Session: Swingin' into Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:267E98D0937FEF630D7CE62979616B0BDF519613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698142   (118574) от 08.02.2024
-
-Thin Lizzy - Vagabonds Of The Western World (1973) Deluxe Edition, 2023, Universal Music Operations Limited [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama Nature Said (4:54)
-02. The Hero And The Madman (6:10)
-03. Slow Blues (5:15)
-04. The Rocker (5:12)(   Читать дальше...   )Жанр: RockПродолжительность: 03:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1E78F20A51F1EB79B767C09B91E41A58035F5D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698508   (118460) от 09.02.2024
-
-Bob Marley & The Wailers - One Love (Original Motion Picture Soundtrack) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Reggae>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Up, Stand Up (3:18)
-02. Roots, Rock, Reggae (3:37)
-03. I Shot The Sheriff (4:42)
-04. No More Trouble (3:58)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 01:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E581A44855514E9474C74FB90ED67FF6233D4DDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698572   (118414) от 09.02.2024
-
-Lacuna Coil - In a Reverie (1999) Reissue, 2019, Century Media [FLAC|24/192|image + .cue|Vinyl-Rip] <Century Media – 19075971571>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118414.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Circle
-A2 - Stately Lover
-A3 - Honeymoon Suite
-A4 - My Wings(   Читать дальше...   )Жанр: Gothic Metal, Alternative MetalПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:883767E7AE364641ECAA4A80DDE31931CC2B8A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698554   (118409) от 09.02.2024
-
-XentriX - Studio Albums (6 releases) (1989-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118409.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xentrix — британская трэш-метал-группа из Престона. Группа была образована в 1984 году под названием Sweet Vengeance. Они изменили своё название на Xentrix в 1988 году.1989 - Shattered Existence
-1990 - For Whose Advantage
-1992 - Kin
-1996 - ScourgeЖанр: Thrash MetalПродолжительность: 05:19:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAA218895C43B067A97497D345320CB4398A1453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698598   (118395) от 09.02.2024
-
-Lacuna Coil - Karmacode (2006) [WavPack|32/384|image + .cue|Vinyl-Rip] <Gothic Metal, Rock, Alternative Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118395.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fragile
-A2 To The Edge
-A3 Our Truth
-A4 Within Me(   Читать дальше...   )Жанр: Gothic Metal, Rock, Alternative Rock, MetalПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF61C18CE046F4AF6EC1951C909EA2384DB6A89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698686   (118311) от 10.02.2024
-
-Lacuna Coil - Broken Crown Halo (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Rock, Alternative Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fragile
-02. To The Edge
-03. Our Truth
-04. Within Me(   Читать дальше...   )Жанр: Gothic Metal, Rock, Alternative Rock, MetalПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3527333B9B6EFC6800DAB15D6A6ACC2278019F
 ```
 
 https://mybot314.ru/tekegram_catalog/

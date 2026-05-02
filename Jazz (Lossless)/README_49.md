@@ -1,3 +1,61 @@
+###  Публикация: 998807   (868601) от 20.03.2016
+
+Dr. Lonnie Smith - The Healer (2012) Pilgrimage Productions[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Backtrack [13:18]
+ 02.Mellow Mood [08:23]
+ 03.Dapper Dan [07:18]
+ 04.Chelsea Bridge [09:42](   Читать дальше...   )Жанр: Jazz Fusion, Hammond OrganПродолжительность: 01:01:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCE767F4407BCE748C1ECB22880BB2D0275BCFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998714   (868599) от 20.03.2016
+
+Kenny Barron Trio - Book Of Intuition (2016) Universal[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Magic Dance [07:54]
+ 02.Bud Like [05:31]
+ 03.Cook's Bay [06:03]
+ 04.In The Slow Lane [06:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85484E5547AA3A3430D8BF90A034C0BA42635AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 873582   (868547) от 28.02.2015
 
 Smooth Jazz Cafe - Smooth Jazz Cafe (2014) [FLAC|Lossless]<Smooth Jazz>
@@ -686,64 +744,6 @@ VA - Blue Note Trip, Vol.08: Swing Low, Fly High (2009) 2CD [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C70A08DCCBE28895F81C38B72A971A221FBC161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999328   (864909) от 22.03.2016
-
-VA - Jazz Today! (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florian Pellissier Quintet - Cap de bonne esperance 06:25
-02. Sebastien Texier, Armel Dupas, Louis Moutin, Nguyen Le & Henri Texier - Dakota 08:20
-03. Luca Aquino - Blue Sunday 04:59
-04. Pj5 - Yggdrasil 04:26(   Читать дальше...   )Жанр: JazzПродолжительность: 01:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CDE0DA08C56C7DD7F67029BE0AF8E7290943C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497450   (864870) от 22.09.2021
-
-Herb Alpert - Catch The Wind (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Pop Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slick
-02. Catch The Wind
-03. Eleanor Rigby
-04. Dance With Me(   Читать дальше...   )Жанр: Smooth Jazz, Pop JazzПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:182F1F26EC58130D01CF8D90E1026F2BD11FDE6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

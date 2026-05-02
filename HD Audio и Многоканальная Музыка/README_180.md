@@ -1,3 +1,178 @@
+###  Публикация: 1776533   (71236) от 01.02.2025
+
+Mogwai - The Bad Fire (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <post-rock, Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Gets You Back [00:06:40]
+02. Hi Chaos [00:05:24]
+03. What Kind Of Mix Is This? [00:04:11]
+04. Fanzine Made Of Flesh [00:04:34](   Читать дальше...   )Жанр: post-rock, Alternative & IndieПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D149C3574E5B3F2BA55512A3452C4DEB6BAB4B8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776605   (71200) от 02.02.2025
+
+Omnium Gatherum - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Omnium Gatherum - метал-группа из Финляндии, основанная осенью 1996 года.
+Хотя группа в основном следует по пути мелодичного дэт-метала, во многих их работах чувствуется сильное влияние прогрессивного металла, особенно в их поздних альбомах. На их творчество оказали влияние такие группы, как At the Gates, In Flames, Dissection, Dark Tranquillity, а также Iron Maiden, (   Читать дальше...   )2003 - Spirits and August Light
+2004 - Years In Waste
+2007 - Stuck Here on Snakes Way
+2008 - The RedshiftЖанр: Melodic Death MetalПродолжительность: 09:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94D5C17CAB79E3E64671CF4284F6F4660E75B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776622   (71198) от 02.02.2025
+
+Robin Verheyen, Billy Hart, Drew Gress - Liftoff (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tripping in Times Square (4:15)
+02. The Bounce (6:13)
+03. Sur La Route De Tamba (4:38)
+04. Soul Searching (6:24)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB792B257EC82891DBB6E8CA5701444FE7364D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776680   (71185) от 02.02.2025
+
+David Rose - Romantic Dining Music (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under Velvet Skies (3:45)
+02. La Dolce Vita (2:16)
+03. Moonlit Rendezvous (3:47)
+04. Sounds of Tranquility (3:12)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B432C9F2CA54E9AF202D0A935F4AEFE4C8E8CD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776681   (71183) от 02.02.2025
+
+Rui Fernandes - Para Dois Corações (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amarantango (5:27)
+02. Escola do Marão (5:18)
+03. Ares de Milonga (5:37)
+04. Linha do Corgo (9:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:46:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1849E2E44D0E09AE027D398D8AD5F4DD8E5DAD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776689   (71182) от 02.02.2025
+
+The Exu - The Exu (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riddle Me This (3:54)
+02. Know Time (3:38)
+03. B4B (3:02)
+04. Pancakes (2:25)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDED62B118CE9E7BE304AE22949A372FF6C37754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776716   (71181) от 02.02.2025
 
 In Vain - Solemn (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Death/Black Metal>
@@ -568,180 +743,6 @@ Heiri Kanzig & Michael Zisman - Lost & Found (2025) [FLAC 24/48|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93BFF4EA68CC304FADE33FD5C909B689A89FC38E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777594   (71012) от 06.02.2025
-
-Naima Quartet - Evergreen (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Empty Pool (3:51)
-02.  Samphire (7:04)
-03.  Riverman (6:08)
-04.  Ezéquiel Célada - Apple Tree (5:38)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:160A0756E4105CBEC09EFBA7017008D68386BF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777543   (71010) от 06.02.2025
-
-Human Production Music & Jon Spanyol - New York Jazz (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  On Swing Street (3:30)
-02.  Unforgettable Christmas (2:41)
-03.  Lucky In Love (2:35)
-04.  Moving Day (2:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F3A94040495F24F472990B46C3C6A8EC9B09D72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777713   (71009) от 06.02.2025
-
-To Be or Not - Echoes of Answer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zen (4:39)
-02.  That Time Is Your Time (3:23)
-03.  Spin (3:22)
-04.  Why This Way (6:46)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76724FFDD5AEC79BF467FB56F80E931C35369BE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777714   (71007) от 06.02.2025
-
-VA - Into the Holiday Groove - A Qobuz Exclusive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Michael Wollny - Lady Madonna (4:14)
-02.  Tim Lefebvre - Tutto (5:12)
-03.  Joel Lyssarides - Stay Now (2:50)
-04.  Daniel García Trio - Gates to the Land of Wonders (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B70FFB3463D23A77ECFA1460BA14B63B20E8A530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777626   (71005) от 06.02.2025
-
-Natia - The Album (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  When I Fall in Love (3:12)
-02.  Sifter (6:13)
-03.  Don't Give Up (7:30)
-04.  That Girl (3:52)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:183BA2B0B4CFBACA211F6EF85D015303D4F2C538
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777719   (71004) от 06.02.2025
-
-Wild Love Tigress - On The Prowl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Funk, Soul, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don't Tread On Me (3:13)
-02.  Brown Baggin' (3:23)
-03.  I Plead the Fifth (4:53)
-04.  Ballad #001 (5:17)(   Читать дальше...   )Жанр: Funk, Soul, JazzПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E4E93B244307CBE15517D32AFA1DB88E989DA2
 ```
 
 https://mybot314.ru/tekegram_catalog/

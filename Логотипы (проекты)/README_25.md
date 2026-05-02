@@ -1,3 +1,82 @@
+###  Публикация: 1033478   (637657) от 11.07.2016
+
+Проекты - VideoHive - PhotoMask - Animation Logo Tool - 14483179 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637657.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoMask - Animation Logo Tool - маскированный эффект показа вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:076C3C82DC4F241E7812C1D4C5CB5C410BCC058F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033479   (637646) от 11.07.2016
+
+Проекты - VideoHive - HUD Logo Reveal - 16697150 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637646.jpg" />
+</div>
+
+
+###  Подробнее
+
+HUD Logo Reveal - раскрытие логотипа с удивительной футуристической анимацией!
+Очень просто в использовании - просто вставьте свой логотип, измените окончательный текст и цвета. В проект включены: оригинал и версия с предварительно сформированной анимацией для более быстрой визуализации!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B66F781DC3414ECED85D1E781757D8CB093F01C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908037   (635407) от 13.06.2015
+
+Проекты - VideoHive - Simple Mosaic [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57CD54BA4B1EB2A7F4B8D4D66E2E179CC57AA248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908113   (635298) от 13.06.2015
 
 Проекты - VideoHive - Temple Logo [AEP]
@@ -596,85 +675,6 @@ Light Logo Reveal - покажите ваш логотип в "играющих"
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC22B26454B1A9CB078EAD334691ABFE9A2486EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1230818   (610356) от 15.06.2018
-
-Проекты - VideoHive - Quick Explosion Sting - 19431426 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш логотип на фоне взрыва. Легко настраивается. Рекомендован для эпических, военных тематик.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4AE83C1DA572CC85D5D2370CF57C96DDC4B1D91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037950   (609894) от 26.07.2016
-
-Проекты - VideoHive - Cinematic Light Logo Reveal - 16478080 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609894.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cinematic Light Logo Reveal - кинематографическая открывалка логотипа со световыми эффектами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FEE0061D8AB7733EFB7A0D8B5532B40104381E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228896   (608423) от 16.06.2018
-
-Проекты - WEHRWOLF LOGO [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации вашего логотипа с эффектом 3D.
-Многие оценят по достоинствуФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90609A22A301EB70810896B3FB7790A79612B65
 ```
 
 https://mybot314.ru/tekegram_catalog/

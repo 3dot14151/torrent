@@ -1,22 +1,25 @@
-###  Публикация: 1781538   (70230) от 23.02.2025
+###  Публикация: 1772415   (71773) от 11.01.2025
 
-JoJo no Kimyou na Bouken Part 4: Diamond wa Kudakenai | Невероятные приключения ДжоДжо, часть 4: Несокрушимый алмаз (1992) [19 томов, 174 глав] [Манга] [Русский] [PNG, JPG] [Complete]
+VA - Grand Prix 70's (2010) [AAC|320 Kbps] <Electronic, Italo-Disco, Disco>
 
->>Манга и Арт
->>Манга, Манхва, Маньхуа
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71773.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Действие происходит в Японии 1999 года, в вымышленном городе Морио, где живёт Дзёсукэ Хигасиката, внебрачный сын Джозефа. С ним связывается Дзётаро Кудзё, ближний родственник, чтобы известить о наличии наследства, которое Дзёсукэ может получить от своего отца. Сам Дзёсукэ владеет стендом и долгое время думал, что является единственным носителем подобной силы. Он (   Читать дальше...   )Жанр: боевик, комедия, сёнэн, сверхъестественное, мистикаФормат: PNG, JPGПродолжительность: 21 апреля 1992 - 21 ноября 1995
+01. Donna Summer - I Feel Love
+02. Gary's Gang - Keep On Dancin'
+03. Eddy Rosemond - Wake Up And Move...Funky
+04. Village People - Y.M.C.A.(   Читать дальше...   )Жанр: Electronic, Italo-Disco, DiscoПродолжительность: 02:30:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A70B75CC36BECFD348FD1413F10866A236FE57C
+magnet:?xt=urn:btih:57D78AB5A80CC05917AC0BC0E72C6940D39E8701
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,133 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781563   (70229) от 23.02.2025
+###  Публикация: 1772499   (71772) от 11.01.2025
 
-VA - Love Is...Chill Out (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - Thru The Dark (03:02)
- 02. Steen Thottrup; Eva Scolaro - One (Cataldo Video Edit) (02:54)
- 03. Calmabohain - Calma (On The Beach Mix) (03:08)
- 04. Lounge Groove Avenue - These Times (03:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450706E1D9FE080EA97A1E1CA54FD9972875DEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781390   (70228) от 23.02.2025
-
-Jigokuraku | Hell's Paradise: Jigokuraku | Адский рай (2018) [13 томов, 127 глав +3 Спэшла] [Манга] [Русский] [JPG, PNG] [Complete] [18+]
-
->>Манга и Арт
->>Манга, Манхва, Маньхуа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это случилось во времена правления одиннадцатого сёгуна из династии Токугава… Габимару, некогда сильнейший синоби, собиравшийся покинуть свою деревню, захвачен в плен. Но Ямада Асаэмон, девушка-палач, предложила ему прощение и свободу с одним условием… Он должен заполучить в райских землях эликсир бессмертия!Жанр: приключения, романтика, мистика, сёнэнФормат: JPG, PNGПродолжительность: 22 января 2018 - 25 января 2021
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C6F57F427F8AAFAE76F0B31222C0D3418AB9F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781305   (70227) от 23.02.2025
-
-Испытание человека / Ningen no shomei / Proof of the Man (1977) BDRip [H.264] [VO]
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70227.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённому бестселлеру Сэйити Моримуры... Молодой негр Джонни Хэйвард найден мёртвым в лифте отеля. Среди свидетелей оказывается Киоко Ясуги, известный дизайнер. Следователь узнаёт в ней бывшую служанку бара в конце 40-х годов. Впоследствии, Киоко заняла видное место в обществе. Следователь предполагает, что Джонни — сын Ясуги, которого она убила, чтобы сохранить (   Читать дальше...   )Производство: Япония, США / Kadokawa Haruki Jimusho, ProSer Co.Жанр: драма, криминалРежиссер: Дзюнья СатоАктеры: Джордж Кеннеди, Марико Окада, Юсаку Мацуда, Бродерик Кроуфорд, Дзюнзабуро Бан, Такэо Тий, Е.Х. Эрик, Киндзи Фукасаку, Бунджаку АнПеревод: любительский одноголосый (den904)Язык озвучки: русский, японскийСубтитры: русские, английскиеПродолжительность: 02:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0E8F8454910442B29756376F5B3A62CA3E682E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781407   (70226) от 23.02.2025
-
-Звуковые библиотеки - Pro Sound Effects - Cinematic Winds [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Библиотека звуковых эффектов Cinematic Winds, записанная и созданная легендами кинозвука Энн Кробер и Аланом Сплетом (известными по работе с Дэвидом Линчем), предлагает разнообразные записи от жутких, полых звуков ветра до хлестких, штормовых настроений. Эта эксклюзивная коллекция отобрана из почтенного частного архива звукозаписи Kroeber-Splet Sound Mountain. «Из (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21B1504DB77F4B43E3D4A7CC188DE4ABDA26AC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781417   (70225) от 23.02.2025
-
-Юрий Смолкин | Аллерголог об аллергии (2023) [MP3, Павел Корицкий]
+Александра Стайн | Страх, любовь и пропаганда (2024) [MP3, Олег Томилин]
 
 >>Обучающие аудиоматериалы
->>Здоровье и Медицина (аудиоматериалы)
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70225.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71772.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Аллергия и повышенная чувствительность – не одно и то же. В первом случае требуется серьезное лечение, а во втором – ограничение контакта.
-В своей книге один из самых известных и профессиональных аллергологов-иммунологов России рассказывает: что такое аллергия на самом деле, почему некоторые продукты вызывают ее чаще, а другие – реже; когда можно говорить о скрытой (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: ЭксмоПродолжительность: 05:12:10
+В этой аудиокниге, ставшей итогом многолетнего исследования, описываются механизмы привязанности, с помощью которых секты и тоталитарные режимы контролируют сознание людей.
+Стайн подробно рассказывает, как социальная изоляция и психологическое давление постепенно трансформируют личность человека, приводя к слепому послушанию и готовности действовать против своей (   Читать дальше...   )Жанр: ПсихологияИздательство: Своими рукамиПродолжительность: 12:08:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B4D8BC723FC5CC8C00D9AC3F7916F40F5DA3250
+magnet:?xt=urn:btih:29C8A99BAFDAD71FE7E8D4858FDF2BE512D19595
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -158,25 +54,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781384   (70224) от 23.02.2025
+###  Публикация: 1772543   (71771) от 11.01.2025
 
-Rozen Maiden: Tales | Девы Розена 2 (2008) [11 томов, 66 глав + 4 Спэшла] [Манга] [Русский] [PNG] [Complete]
+НХЛ 2024-2025. Монреаль Канадиенс - Вашингтон Кэпиталз (10.01.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Манга и Арт
->>Манга, Манхва, Маньхуа
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70224.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71771.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Эта манга является продолжением, манги Rozen Maiden. Мы видим повзрослевшего Сакурада Джуна, учащегося в университете. Который живет в другом мире, в том где он ответил на странное письмо в детстве "не повернуть", и в результате чего в этом мире нет кукол розен. Как вдруг с ним связывается, Джун из прошлого, который ответил на письмо "повернуть" (   Читать дальше...   )Жанр: мистика, драма, сэйнэнФормат: PNGПродолжительность: 17 апреля 2008 - 23 января 2014
+11 января 2025, суббота. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:56:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E15C75A3867ECA5E4F13DB56C446BA68127C839A
+magnet:?xt=urn:btih:ADAF130367693F4A7481C8C470CEA5AE88931368
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -184,109 +81,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781514   (70223) от 23.02.2025
+###  Публикация: 1772672   (71770) от 11.01.2025
 
-Шрифты - Zetafonts - Casagrande [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70223.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция Casagrande была разработана в 2020 году командой Italiantype (Мануэль Альваро, Валентино Коппи и Марио Де Либеро), работающей в тесном сотрудничестве с итальянским художником по шрифтам, иллюстратором и каллиграфом Альберто Касагранде при поддержке команды Zetafonts (Франческо Кановаро, Андреа Тартарелли и Козимо Лоренцо Панчини). Целью проекта было использовать (   Читать дальше...   )Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1AFF597132AB962F32958B1671D48EACFDAFC95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781466   (70222) от 23.02.2025
-
-VA - Musical kaleidoscope part 30 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisco Le Voyageur - Le Voyage De Shakuhachi
-02. Kasimoff - Enigma
-03. Sisco Le Voyageur - Enigma French 43
-04. Сергей  Грищук - В  Объятиях Времени(   Читать дальше...   )Жанр: Electronic, Instrumental, Easy listeningПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8638D135649F1D4D1C072E0CC03F33AC22BC01DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781441   (70221) от 23.02.2025
-
-Шрифты - Zetafonts - Codec Pro [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Codec Pro — новейшее воплощение семейства Codec, разработанное в 2017 году Франческо Кановаро, Козимо Лоренцо Панчини и Андреа Тартарелли в качестве исследования тонкостей и вариаций на тему геометрического дизайна без засечек. Оригинальный шрифт был полностью переработан и расширен, чтобы включать широкий диапазон из одиннадцати весов, от волосяного тонкого до объемного (   Читать дальше...   )Формат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF8350EBB7F4E21ED271BC3DD229582D52A2004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740719   (70220) от 23.02.2025
-
-ЗакЛинания - Экзорцизм (2018) [MP3|320 Kbps] <Punk, Rock>
+MAW - The Humble Collapse (2025) [FLAC|Lossless|WEB-DL|tracks] <Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70220.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71770.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - ПодСказка 3:03
-02 - С тобой 4:01
-03 - Хватит 2:07
-04 - Смотри на небо 3:46(   Читать дальше...   )Жанр: Punk, RockПродолжительность: 00:34:38
+01. TheH [00:02:55]
+02. Black Box [00:04:13]
+03. Nuisance Grounds [00:03:20]
+04. Umb [00:02:08](   Читать дальше...   )Жанр: MetalПродолжительность: 00:41:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4756D8693CABB698912634A6E812437ED5CD0E3
+magnet:?xt=urn:btih:39F66ADB58FC34062765893E8C80B7F3177F4F1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -294,28 +110,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781444   (70219) от 23.02.2025
+###  Публикация: 1772455   (71769) от 11.01.2025
 
-VA - Rock Metaphysical Melodies (2025) [MP3|320 Kbps] <Metal, Hard-Rock, Progressive Metal>
+Vampires Everywhere - The Devil Made Me Do It (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70219.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71769.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Amanda Fish - The World We Leave Behind (03:15)
- 002. Sleeper's Keep - Chasing The Dream (03:53)
- 003. Jeris Johnson - Not A Person (03:27)
- 004. King Gizzard & The Lizard Wizard - Sad Pilot (04:12)(   Читать дальше...   )Жанр: Metal, Hard-Rock, Progressive MetalПродолжительность: 12:51:59
+01. Antichrist [00:03:36]
+02. Cry Little Sister [00:04:28]
+03. Ghost [00:03:22]
+04. Immortal Love: Resurrection [00:05:01](   Читать дальше...   )Жанр: MetalПродолжительность: 00:36:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9BA31E434763E276023E9999D3322D24F79CC19
+magnet:?xt=urn:btih:ED44B17C3E7D8F80AADDE46DF68CCF3ADED8C6BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -323,25 +139,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781406   (70218) от 23.02.2025
+###  Публикация: 1772637   (71768) от 11.01.2025
 
-Валерий Шарапов | Контрразведка (Книга 8). Сезон свинцовых туч (2024) [MP3, Юрий Несговоров]
+Magnum - Live At KK's Steel Mill (2025) (Live) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71768.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1979 год. В одном из латиноамериканских государств действует просоветское правительство. Это не устраивает американские спецслужбы. Они тайно готовят политический переворот, искусственно накаляя обстановку в стране. При невыясненных обстоятельствах погибает начальник охраны советского посольства, затем уходят на сторону секретные данные нашей дипмиссии… Для выявления (   Читать дальше...   )Жанр: Шпионские детективыИздательство: ЭксмоПродолжительность: 07:27:43
+01 - Days of No Trust (Live) [6:07]
+02 - Lost on the Road to Eternity (Live) [6:13]
+03 - The Monster Roars (Live) [4:15]
+04 - The Archway of Tears (Live) [6:07](   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 01:31:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7F4F8B3A4DB8EB28E9146248D47485AA791C1734
+magnet:?xt=urn:btih:4656589FC6760F6983BE8D50AEC7BF7D66F7217B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,28 +168,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781505   (70217) от 23.02.2025
+###  Публикация: 1772457   (71767) от 11.01.2025
 
-VA - Compilation  part 144 Electronic (2025) [MP3|320 Kbps] <Electronic>
+Masque of Art - Masquerade (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71767.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Akmalov & Jumanov - Touch
-02. Akmalov & Reyane - Bam Bam
-03. Jumanov - Spring is Near
-04. Hamidshax - Closer(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:45:33
+01. Don't Let it Rain [00:03:59]
+02. You Will Be Touched [00:04:23]
+03. We Live in America [00:04:02]
+04. Grace of God [00:05:00](   Читать дальше...   )Жанр: RockПродолжительность: 00:54:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AA405841BB3D67E1AE72EFBBA0466CDBA8375D3
+magnet:?xt=urn:btih:A6337345280D1E44EAEEC8066ED2CF8C0A0BB068
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -378,28 +197,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781467   (70216) от 23.02.2025
+###  Публикация: 1772641   (71766) от 11.01.2025
 
-Тест-драйв Nissan Almera 2014 — Минтранс (22.02.2025) WEBRip [H.264/720p]
+Magnum - Live At KK's Steel Mill (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Hard Rock>
 
->>Документалистика и Телепередачи
->>За рулем
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71766.jpg" />
 </div>
 
 
 ###  Подробнее
 
-🔸 Отказ от освидетельствования на месте. Поможет ли заключение врача из частной клиники не лишиться прав в суде?
-🔸 Тест-драйв Nissan Almera 2014. Сколько еще протянет десятилетний автомобиль?
-🔸 Правила поведения с автоинспектором. Можно ли фотографировать или снимать удостоверение сотрудника полиции?
-🔸 Европротокол: как его правильно (   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:47:51
+01. Days of No Trust (Live) (06:06)
+ 02. Lost on the Road to Eternity (Live) (06:13)
+ 03. The Monster Roars (Live) (04:14)
+ 04. The Archway of Tears (Live) (06:07)(   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 01:31:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4BB69A087117B915C1073D96DF6709FEEBFD8FC2
+magnet:?xt=urn:btih:992529E076AEE5B23869FCB5E6176EE7A2887971
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,28 +226,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781421   (70215) от 23.02.2025
+###  Публикация: 1772642   (71765) от 11.01.2025
 
-VA - Trance Fusion Vol. 08 (2025) [MP3|320 Kbps] <Trance>
+Замечательный муж / En nydelig aegtemand (1914) WEBRip [H.264/720p]
 
->>Electronic
->>Trance
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70215.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71765.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Victor Special & Nikai - Find The Light (Extended Mix) (06:03)
-02. Winterborn - Starplex (Extended Mix) (05:39)
-03. Peter Miethig - Storm (03:22)
-04. Alexander Komarov - Arabian Night (Extended Mix) (05:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:14
+Чиновник и семьянин Декомб, под видом командировки уезжает в Париж, чтобы... немного развеяться. Ну, да ладно, это вопрос его совести. Но надо же такому случиться, что в это время очень большой начальник собирается посетить дом Декомбов. И чиновник обязан быть на месте, иначе... Верная жена намерена выручить непутевого муженька. Но как?! Есть только один способ - (   Читать дальше...   )Производство: Дания / Nordisk FilmЖанр: короткометражный, комедия, немое киноРежиссер: Эдуард Шнедлер-СоренсенАктеры: Карл Альструп, Аньес Андерсен, Олуф Биллесборг, Джохэнн Фриц-Петерсен, Ингеборг Дженсен, Бертель Краузе, Эбба Лоренцен, Лауриц Олсен, Паула Рафф, Franz SkondrupПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русскиеПродолжительность: 00:38:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93445873C5E317C3E43D7803F89FCB7BE662DB2A
+magnet:?xt=urn:btih:39C1B72979D680CBDC34220623994A326A3155C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -436,28 +252,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781374   (70214) от 23.02.2025
+###  Публикация: 1772376   (71764) от 11.01.2025
 
-Starset - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Electronic rock, Progressive rock>
+Признания в рождественском письме / Confessions of a Christmas Letter (2024) WEBRip [DVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Среди жителей тихого городишки Холли-Хиллз есть милая традиция писать на каждое Рождество письма о своём житье-бытье, а автора лучшего письма помещать на Стену Славы. Неугомонная Сетти много лет пытается победить в этом конкурсе, но каждый раз жюри бракует её поэтические вирши про большое семейство Роз. В отчаянии домохозяйка решается на маленький обман и в преддверии (   Читать дальше...   )Производство: Канада, США / Two 4 The Money Media, MarVista EntertainmentЖанр: драмаРежиссер: Хизер Хоторн ДойлАктеры: Анджела Кинси, Алек Сантос, Лилиан Дусе-Рош, Фред Эвануик, Барбара Поллард, Гэрри Чак, Коллин Вилер, Фэй Рен, Карен Холнесс, Джейк Фой и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:25:04Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF3F3D2B2E91C3536BCAD41D3ADEE92BEEA2243E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772671   (71763) от 11.01.2025
+
+Elyose - Évidence (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mission lunaire [00:04:24]
+02. Tentatives échouées [00:04:17]
+03. Étoile solitaire [00:03:10]
+04. Théogyne 2.0 [00:04:05](   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8037750E7B7488E3F5225A3FDD75E30F0155D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772449   (71762) от 11.01.2025
+
+The Smoothies - Head to Christmas: A Soulful Christmas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting for Thanksgiving Day [00:03:05]
+02. Urban Dream [00:03:24]
+03. Feelin' Alright (Baby by My Side) [00:03:58]
+04. Love in Paris at Christmas Time [00:02:57](   Читать дальше...   )Жанр: SoulПродолжительность: 00:45:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A988B21B05AAFC491EB89C6EAC1DCF5556CBC486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772862   (71761) от 12.01.2025
+
+Paper Lace - The Best Of Paper Lace (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Glam>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Starset — американская рок-группа из Колумбуса, штат Огайо, сформированная в 2013 году.2014 - Transmissions
-2017 - Vessels 2.0
-2019 - Divisions
-2021 - HorizonsЖанр: Electronic rock, Progressive rock, Alternative metalПродолжительность: 06:06:26
+A1 Billy - Don't Be A Hero
+A2 I Did What I Did For Maria
+A3 Jean
+A4 Mary In The Morning(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:39:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18BB3154237C7AA7BEBD0C9DA875F75E08D12021
+magnet:?xt=urn:btih:0A869FCE7BD10D9FB1748344D68FA9A2CEECF52E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -465,190 +365,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781478   (70213) от 23.02.2025
+###  Публикация: 1772932   (71760) от 12.01.2025
 
-Чудо техники с Сергеем Малозёмовым (23.02.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кабы не было зимы… об этом все чаще говорят метеорологи: неужели глобальное потепление уже на пороге или фокусы погоды — это затишье перед бурей, стоит ли теперь покупать снегоуборочные машины и, если да, то какие выбрать.
- На что реально способны проекторы, стоит ли они своих денег и удобный ли это гаджет на каждый день.
- Тест электрической бургер-машины: реклама (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36FF234439B5570BEF59C55667D07C59335DD14C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781492   (70212) от 23.02.2025
-
-Dead Sara - Studio Albums (6 releases) (2009-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock, Punk Blues, Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dead Sara — хард-рок-группа из Лос-Анджелеса2009 - The Airport Sessions (EP)
-2012 - Dead Sara
-2015 - Pleasure To Meet You
-2017 - The Covers (EP)Жанр: Hard Rock, Punk Blues, GrungeПродолжительность: 03:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F401F421CC359B8F0C4944D8078D8F05320D4337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781419   (70211) от 23.02.2025
-
-Испытание человека / Ningen no shomei / Proof of the Man (1977) BDRip [H.264/720p] [VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70211.jpg" />
-</div>
-
-
-###  Подробнее
-
-По одноимённому бестселлеру Сэйити Моримуры... Молодой негр Джонни Хэйвард найден мёртвым в лифте отеля. Среди свидетелей оказывается Киоко Ясуги, известный дизайнер. Следователь узнаёт в ней бывшую служанку бара в конце 40-х годов. Впоследствии, Киоко заняла видное место в обществе. Следователь предполагает, что Джонни — сын Ясуги, которого она убила, чтобы сохранить (   Читать дальше...   )Производство: Япония, США / Kadokawa Haruki Jimusho, ProSer Co.Жанр: драма, криминалРежиссер: Дзюнья СатоАктеры: Джордж Кеннеди, Марико Окада, Юсаку Мацуда, Бродерик Кроуфорд, Дзюнзабуро Бан, Такэо Тий, Е.Х. Эрик, Киндзи Фукасаку, Бунджаку АнПеревод: любительский одноголосый (den904)Язык озвучки: русский, японскийСубтитры: русские, английские SDHПродолжительность: 02:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC5A37A47B648EF265CC0B4F626DA24BEF8774D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781429   (70210) от 23.02.2025
-
-Журнал | Дачный спец №2 (февраль 2025) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70210.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Дачный спец» — журнал для всех, чья жизнь так или иначе связана с работой и отдыхом на земле. Независимо от уровня знаний в дачных делах, любой человек найдет в журнале именно то, что ему нужно: мнения и обзоры от известных в своей области специалистов, советы опытных дачников и садоводов, планировочные решения и мастер-классы от профессиональных дизайнеров, проверенные (   Читать дальше...   )Жанр: СадоводствоИздательство: ООО "Издательская группа "КАРДОС"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C5B873616614F77468B937CA712E5A16948B55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781536   (70209) от 23.02.2025
-
-Отважный моряк (1936) WEBRip [H.264/720p]
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70209.jpg" />
-</div>
-
-
-###  Подробнее
-
-О приключениях потерпевшего кораблекрушение моряка. Анимационная экранизация рассказа Редьярда Киплинга.
-Фильм из  коллекции Госфильмофонда России и опубликован в интернете в рамках совместного проекта "Культура.РФ" и Госфильмофонда России "Открытая коллекция".Производство: СССР / СоюзмультфильмЖанр: рисованная анимация, детский, короткометражныйРежиссер: Виктор СмирновСубтитры: отсутствуютПродолжительность: 00:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7641DADE0085F0C078BDFBBFE5E96CA25E7BFB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781405   (70208) от 23.02.2025
-
-Звуковые библиотеки - Pro Sound Effects - Detonate [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зажгите свои проекты мощным присутствием и глубиной первозданных звуковых эффектов внешних взрывов в формате 5.1 surround и стерео. Detonate - это специализированная библиотека звуковых эффектов высокого разрешения, состоящая из взрывов, вспышек, хлопков и ударов, собранных из личной коллекции звукорежиссеров Марка Мангини («Дюна») и Ричарда Л. Андерсона («Налетчики (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454541453711DC3949DACDA6F7F3F3D9976FC694
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781435   (70207) от 23.02.2025
-
-VA - Calm Horizons 3: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+Cosmic Ally - Twin Sun (2005) [MP3|320 Kbps] <Synthpop>
 
 >>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. As you see - Whispers in the Wind (Field Recording mix) (3:01)
-02. Matt Sour - Bells of Glasgow (3:23)
-03. Fake and True - Sleep Therapy 3 (10:07)
-04. Sophie Digier - Le Vent (5:57)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:40:29
+01. Just A Dream
+02. Paranoid
+03. Twin Sun (Novan K's Club Mix)
+04. Cloudy Perfume In The Wind(   Читать дальше...   )Жанр: SynthpopПродолжительность: 01:13:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9998EC066E5AC0E0AFFFDFAE6EA88BD49C74BFC
+magnet:?xt=urn:btih:9932C7179E0AD94F3C5B902C91DE244CF5BE58BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,28 +394,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781493   (70206) от 23.02.2025
+###  Публикация: 1772647   (71759) от 12.01.2025
 
-VA - Groove Paradise (The Deep-House Collection), Vol. 1 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+VA - Alternative EDM Party 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Krumm & Schief - Everything Is Right (Unforgettable Extended Mix) [06:40]
-02. Luis Hermandez - Diamond Eyes (Original Mix) [03:49]
-03. PAAEEDS - Like You Do [03:24]
-04. Millan Seritos - Sometimes (Mai Jay Instrumental) [04:54](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:30:09
+01. Mattia falchi - Fantasy Land (Hyper Land Radio) (02:53)
+02. DJ ROSSO - Higher (Radiocut) (03:15)
+03. Sunlight Project - The Music (Radio Cut) (03:22)
+04. Lando Lennox - Frozen Dream (02:09)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:15:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:812EE67C54A0B278D3F40590C10C8DF33DB2CB09
+magnet:?xt=urn:btih:F81A3371EC1008AD181F226A3513246E7036BE08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,25 +423,305 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781411   (70205) от 23.02.2025
+###  Публикация: 1772685   (71758) от 12.01.2025
 
-Звуковые библиотеки - Pro Sound Effects - Foley Essentials [WAV]
+Marius M.21 - The Album (2010) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Библиотека звуковых эффектов Foley Essentials содержит более 90 реалистичных записей повседневных действий от звукорежиссеров, удостоенных премии «Оскар» Марка Манджини («Дюна») и Ричарда Л. Андерсона («Индиана Джонс: В поисках утраченного ковчега»). Создавайте свои сцены с помощью обычных записей Foley, таких как шаги, шелест ткани, захваты тел и десятки реквизитов, (   Читать дальше...   )Формат: WAV
+01. Space Woman (4:26)
+02. Stop The Rain (4:35)
+03. Crazy Night (4:36)
+04. Angels In The Night (Original Version) (5:00)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 01:40:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:30AC474A5F9FAD3B98063668EF1FE8E437B8E471
+magnet:?xt=urn:btih:288394F60EA2844EBC5672F840BDF736CE20D8AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772894   (71757) от 12.01.2025
+
+Black - Wonderful Life (1987) [MP3|320 Kbps] <Pop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful Life
+02. Everything's Coming Up Roses
+03. Sometimes For The Asking
+04. Finder(   Читать дальше...   )Жанр: Pop, New WaveПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4925EF5526D906431972B73E46B27BC640EC91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772893   (71756) от 12.01.2025
+
+VA - Relaxation Hub, Vol 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Slow World - Seijaku (Silence) (03:45)
+ 02 - Living Room - Organic Sundance (Ambient Dub) (03:29)
+ 03 - Five Seasons - Delphina (04:04)
+ 04 - PaiJun - Elemental (Neptun Dub Mix) (04:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84A355D26D4140100FE9F0A3A7A9841808EF8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772805   (71755) от 12.01.2025
+
+Наталья Липунова (пер.) | Сборник статей журнала New Scientist. Космос. От Солнца до границ неизвестного (2020) [MP3, Игорь Гмыза]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71755.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что случилось с Венерой? Как Сатурн стал властелином колец? Где искать Девятую планету? Почему мы не видим облако Оорта? Что мы знаем о самой большой звезде? Как живут звезды после смерти? Как галактики воруют друг у друга? Как сфотографировать черную дыру? Какая галактика самая большая?
+Стартуя от Солнца, мы посетим планеты земной группы, газовые гиганты и их спутники, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 07:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D7299D43C236FE623B852C3B3D314710824162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772954   (71754) от 12.01.2025
+
+Крестьяне (1935) VHSRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71754.jpg" />
+</div>
+
+
+###  Подробнее
+
+О борьбе коммунистов и передовых крестьян за укрепление колхозного строя.
+Начало 30-х годов. Животновод колхоза "Лебяжьи горки" Герасим Платонович, зная о нехватке кормов, стремится увеличить свиное поголовье и таким образом подорвать колхозную собственность...Производство: СССР / ЛенфильмЖанр: драма, историяРежиссер: Фридрих ЭрмлерАктеры: Елена Юнгер, Борис Пославский, Алексей Петров, Екатерина Корчагина-Александровская, Николай Боголюбов, Владимир Гардин, Иван Чувелев, Петр Алейников, Владимир Сладкопевцев, Валерий СоловцовСубтитры: отсутствуютПродолжительность: 01:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8619110CCB8396E9EE0B33D6E4DC7123EEE9D68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772917   (71753) от 12.01.2025
+
+Смешанные единоборства. UFC Fight Night 249: Dern vs. Ribas 2 (11.01.2025) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Main card турнира "UFC Fight Night 249", прошедшего в UFC Apex in Enterprise, Nevada, part of the Las Vegas Valley, United States.Телекомпания: Матч! БоецЖанр: Спорт, смешанные единоборстваЯзык озвучки: русскийПродолжительность: 02:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9227828E6340529E10242DCA5E3BDF7B01C099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772686   (71752) от 12.01.2025
+
+The Halo Effect - March of the Unheard (2025) (Limited Edition) [FLAC|Lossless|image + .cue] <Melodic Death Metal, Metal, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Conspire to Deceive [3:58]
+02 - Detonate [3:59]
+03 - Our Channel to the Darkness [3:29]
+04 - Cruel Perception [4:05](   Читать дальше...   )Жанр: Melodic Death Metal, Metal, Death MetalПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27907E92F158C3A9772EF8DCEC3F6973D953F9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772588   (71751) от 12.01.2025
+
+Digital Emotion - Greatest Hits (2007) [AAC|320 Kbps] <Electronic, House, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Stop
+02. Get Up, Do You Wanna Funk (Special Effects Mix)
+03. Go Go Yellow Screen
+04. Steppin' Out (Special Mix)(   Читать дальше...   )Жанр: Electronic, House, DiscoПродолжительность: 01:17:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3541F5FDD892FCCD9BB0AF3E06E184C47F9664F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772901   (71750) от 12.01.2025
+
+Полиция в замешательстве / La polizia ha le mani legate / Killer Cop (1975) BDRip [H.264/720p] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комиссар из отдела по борьбе с наркотиками Маттео Роланди в ходе слежки за наркоторговцем становится свидетелем взрыва в миланском отеле, где проходило международное культурное мероприятие. Роланди пытается узнать причину взрыва и вступает в противоборство с генеральным прокурором Армандо Ди Федерико, которому поручено расследование этого дела. Но вскоре они оба (   Читать дальше...   )Производство: Италия / Produzioni Atlas Consorziate (P.A.C.)Жанр: боевик, драма, криминалРежиссер: Лучиано ЭрколиАктеры: Клаудио Кассинелли, Артур Кеннеди, Франко Фабрици, Сара Сперати, Бруно Дзанин, Франческо Д’Адда, Паоло Пуарэ, Валерия Д’Обичи, Джулиана Ривера, Франко МоральдиПеревод: Одноголосый любительский (Paul B.)Язык озвучки: русский, итальянский, английскийСубтитры: английские, немецкиеПродолжительность: 01:36:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57887521DE3A6EA20E12A0F70EEE511EAA5E055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772919   (71749) от 12.01.2025
+
+VA - The Perfect Chillout & Lounge Music Playlist (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Schriever - Groove Shaker (04:28)
+ 02 - Fascinating Case - Mainline (04:16)
+ 03 - Breviarium Musicae - Atmosphaera (04:25)
+ 04 - Aqua Mundi - Cala Rossa (03:15)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D523B551F9D42CD57EAF5285A902B22172ADD00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772858   (71748) от 12.01.2025
+
+Photo Studio PRO v2.7.12.3627 Mod by youarefinished [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71748.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Studio — не просто приложение для редактирования фотографий, в нем собраны необычные эффекты для фото. Подручный редактор фотографий добавит красок повседневным кадрам, подскажет как исправить фото. Интересные фильтры, неожиданные эффекты, потрясающий коллаж, веселые стикеры на фото: все то, чего мы ждем, выбирая редактор фото.Тип издания: Pro / ModРелиз состоялся: 12.01.2025Разработчик: KVADGroup App StudioПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE3291A2DB598DE0B9028D2E2D9CA6AFAA0862EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

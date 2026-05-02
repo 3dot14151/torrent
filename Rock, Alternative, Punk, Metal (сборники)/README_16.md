@@ -1,3 +1,61 @@
+###  Публикация: 1209098   (779484) от 25.02.2018
+
+VA - Русский Металл - Коллекция (2018) [MP3|320 Kbps] <Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779484.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Арктида - Орлиное сердце (Stratovarius cover)
+002. Артур Беркут - Право Дано
+003. Гран-Куражъ - Кто Есть Кто
+004. Крылья - Дух Рок-Н-Ролла(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 16:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9F230FADB1504C519CD5156123E758FAC35E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209565   (779188) от 27.02.2018
+
+VA - Hard Rock Attack Vol.30 (2018) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Black Veil Brides  -  Wake Up  2:42
+02.  Cyhra  -  Heartrage  3:27
+03.  Fall Out Boy  -  The Last Of The Real Ones  3:50
+04.  Gods Of Silence  -  You Mean Nothing More To Me  4:47(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0891D21A9ECF6EBD9320B686A5166ADF3EB8CCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210470   (778695) от 03.03.2018
 
 VA - Rock Kaleidoscope 2 (2018) [MP3|320 Kbps] <Classic Rock, Rock & Roll, Blues Rock>
@@ -689,64 +747,6 @@ VA - Рок впрок 6 (2016) [MP3|320 кб/с] <Рок, Поп-Рок>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9E094F59B6D1D7162F1ABF7DF9C0BA439804832
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392332   (769365) от 25.06.2020
-
-VA - Music for You vol.8 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anthem - Pain (04:17)
- 02. Anika Nilles - Mister (06:00)
- 03. The Omnific - Erin (03:21)
- 04. Circles - Blueprints for a Great Escape (04:48)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 04:04:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D401F1092BEBFF41FB948ED0CD4DD8FE2A971417
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125580   (767828) от 15.04.2017
-
-VA - Metal Ballads - Collection (Vol.01-02) (2017) [MP3|320 Kbps] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metal Ballads - Collection 01:
-01. At Vance - The Evil In You (5:11)
-02. Firewind - Land Of Eternity (5:52)
-03. Tangier - Caution To The Wind (4:26)(   Читать дальше...   )Жанр: MetalПродолжительность: 02:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6F85FF0F422AF5F95E79C2590F4FB6A1E8E4CCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1301114   (587149) от 09.05.2019
+
+Whitesnake - Flesh & Blood (2019) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good To See You Again
+02. Gonna Be Alright
+03. Shut Up & Kiss Me
+04. Hey You (You Make Me Rock)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EDCFEEB428A2263086E03BFB60F65BB14B55C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552469   (585885) от 22.05.2022
+
+Zinny Zan - Lullabies for the Masses (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heartbreak City (00:03:50)
+02 - Bombs Away (00:03:50)
+03 - It's No Good (00:04:16)
+04 - Heal the Pain (00:03:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43480931D9B5DF23C006F71C8298EE13530B4BDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552588   (585880) от 22.05.2022
+
+Kragher - Natteravn (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Landets helter (00:03:49)
+02 - Spytt blod (00:04:06)
+03 - Skudd (00:03:21)
+04 - Oberst Kragher (00:03:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040D5B67B7B30D8F029080248CB9BF4C306E267E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552829   (585877) от 22.05.2022
+
+Jones Street - Dancin' With The Devil (1995) 2021 [FLAC|Lossless|WEB-DL|tracks] <Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Word Fuck (00:02:25)
+02 - Dancin With The Devil (00:05:40)
+03 - Fuck Authority (00:03:25)
+04 - When It All Comes Down (00:05:07)(   Читать дальше...   )Жанр: Glam Rock, Hard RockПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F42777C15604295592E04802CC22EDF4530FA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1552586   (585876) от 22.05.2022
 
 Lipstick - Inner City (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Glam Rock>
@@ -629,128 +745,6 @@ The Palth - Palth Fiction (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF5686976941FDA975D678135D89F655E06E3747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527086   (576944) от 26.07.2012
-
-Royal Thunder - CVI (2012) [FLAC|Lossless]<Stoner Rock/Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_576944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parsonz Curse (6:58)
-02. Whispering World (3:49)
-03. Shake And Shift (9:13)
-04. No Good (3:34)
-05. Blue (9:30)
-06. Sleeping Witch (6:45)
-07. South Of Somewhere (6:34)
-08. Drown (8:19)
-09. Minus (2:10)
-10. Black Water Vision (5:52)Жанр: Stoner Rock/Hard RockПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043032   (576660) от 14.08.2016
-
-The Boyscout - My Route 66 (2015) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born To Be Wild(feat. Claus Lessmann)
-02. Ride The Wind(feat. Michael Voss)
-03. Turn The Page
-04. Because The Night (feat. Linda Lulka)(   Читать дальше...   )Жанр: Hard Rock, Melodic RockПродолжительность: 00:40:49 + 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD0600E0E42CD92C9F9276DA8F3813CAD3B80CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042776   (576634) от 14.08.2016
-
-The Defiants - The Defiants (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (For A Few Dollars More - Carillon's Theme)
-02. Love And Bullets
-03. When The Lights Go Down
-04. Waiting On A Heartbreak(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C6099DFBB3637065B0EE7B03D56A3AFC1C756D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043049   (576549) от 14.08.2016
-
-The Lou Gramm Band - The Lou Gramm Band (2009) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baptized By Fire 3:56
-02. Made To Be Broken 3:32
-03. Willing To Forgive 3:30
-04. That's The Way God Planned It 4:06(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ABD14964B33C9A56375B6924824C09037DC0264
 ```
 
 https://mybot314.ru/tekegram_catalog/

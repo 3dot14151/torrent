@@ -1,3 +1,119 @@
+###  Публикация: 1597596   (166074) от 15.12.2022
+
+Hot Roux - In a Groove (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boy Scout Knot (3:21)
+02. Wanted (3:37)
+03. Modern Day Jezebel (3:19)
+04. Get in a Groove (4:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EF7ED1272B482EFADA5AB43BE77AC5040A8330A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597584   (166069) от 15.12.2022
+
+Clairisma - Choose the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Got No Backbone (3:43)
+02. I Got Stoned (4:25)
+03. Don’t Take Advantage of Me (2:56)
+04. Palm of My Hand (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65F7FE3EF1AFD7E1EF77C6D22CA488FFA2CEFC76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597601   (166050) от 15.12.2022
+
+Miranda Lambert - Palomino (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Actin' Up (3:25)
+02. Scenes (2:54)
+03. In His Arms (2:40)
+04. Geraldene (3:02)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87943310A397873DE49A6134AF9EBF475EF2FDBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597587   (165947) от 15.12.2022
+
+Drekhund - Men of Salem (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I will survive (3:56)
+02. The murderer (3:35)
+03. Follow the Devil (3:20)
+04. Love in Hell (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E94D79CF2FC3DA529A9588CDB65600C128F2ADC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597592   (165872) от 15.12.2022
 
 Goodbye June - See Where The Night Goes (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -630,122 +746,6 @@ Bonny B & The Jukes - Peace (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Harmonic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22EE7D745D1D256C871BF50C27AE5B9BCD098672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673927   (162448) от 04.11.2023
-
-20 Watt Tombstone - The Chosen Few (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Stoner, Trash Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prophet Man (3:14)
-02. Chosen Few (3:10)
-03. Bomb That Saved the Day (4:03)
-04. Black Top Sorrow (3:13)(   Читать дальше...   )Жанр: Blues Rock, Stoner, Trash BluesПродолжительность: 00:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9899ACECC307D3E5681363AAF92D3327A356F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673955   (162444) от 04.11.2023
-
-Candice Ivory - When The Levee Breaks: The Music of Memphis Minnie (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie Hunter - Me and My Chauffeur (3:33)
-02. When The Levee Breaks (3:35)
-03. Charlie Hunter - You Can't Rule Me (2:42)
-04. Charlie Hunter - When You Love Me (2:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4CB7B9385EDA21C14A9565876B1470EE42CACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432730   (162332) от 19.12.2020
-
-Kyle Kelly Pleasants - Why Can't We All Just Get Along (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162332.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Along (3:25)
-02. The Way I Treated You (3:39)
-03. If That Old Bench Could Talk (4:01)
-04. I Am Gone (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B5B38C042C078673717248A3409FD170617CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432735   (162329) от 19.12.2020
-
-Lone Crow Rebellion - Ain't No Shame (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Shame (4:34)
-02. Mr. Blackbird (3:54)
-03. Demon Alcohol Blues (3:49)
-04. Brand New Day (3:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF103CA2931CB83DB1FA436553DC2A14D453F677
 ```
 
 https://mybot314.ru/tekegram_catalog/

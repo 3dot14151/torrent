@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1867934   (1067388) от 
+
+Baghdad - Baghdad (1987) [FLAC|Lossless|tracks + .cue] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marakesh Express
+02. Dancing On The Moon
+03. Hollywood
+04. Can't Stand It(   Читать дальше...   )Жанр: AORПродолжительность: 00.52.15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806CBB71E8D978214F7758762CDD2AEF79E9B659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867817   (1067085) от 27.04.2026
+
+AC/DC - Fly On The Wall (1985) Reissue, Remastered, 2003, [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly On The Wall
+02. Shake Your Foundations
+03. First Blood
+04. Danger(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0193CFBE56400BB38A43F69FBF3A1CAADF1CAC13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867594   (1066859) от 26.04.2026
+
+Riot - The Official Bootleg Box Set Volume 2 (1980-1990) Box Set, 7XCD, 2018, HNE Recordings Ltd [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 - Manchester, Apollo 13th October 1981
+Disc 2 - Ipswich, Gaumont 14th October 1981
+Disc 3 - Agora Ballroom, Ohio 8th November 1981
+Disc 4 - Long Island, New York 1st July 1982(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 05:47:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3FE1C9C6A16E76F17F02ACB9698DE553D338E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866895   (1066493) от 22.04.2026
+
+Close Enemies - Close Enemies (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain 05:26
+02. Sound Of A Train 05:06
+03. Inside Out 03:08
+04. Sweet Baby Jesus 03:58(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB6F17B7DBEBAB033E98D4DA1CFE886C931D2BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862361   (1064198) от 29.03.2026
 
 White Skies - Shouting At The Hurricane (2026) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -630,122 +746,6 @@ Magnum Jack - Distant Hi-Ways (2026) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07220A3A48E3C6D442C7F3A9EADFC4D328F1E13E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852366   (1055821) от 07.02.2026
-
-Supralunar - Dead Come To Dance (2026) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bit By The Bug
-02. Dead Come To Dance
-03. Whispers In The Wind
-04. Leviathan (Power To Reason)(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550751A174390BFB29B30364237DBEED7F7863FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850970   (1054904) от 30.01.2026
-
-Uriah Heep - Demons And Wizards (1972) 2XCD, Japanese Edition, SHM-CD, Remastered, 2026, BELLE [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. The Wizard
-02. Traveller In Time
-03. Easy Livin'(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 01:55:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4059787DBB86931D74AA10C3CBC0FC235D009A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850787   (1054700) от 29.01.2026
-
-Uriah Heep - Salisbury (1971) 2XCD, Japanese Edition, SHM-CD, Remastered, 2026, BELLE [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054700.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Bird Of Prey
-02. The Park
-03. Time To Live(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 02:20:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB19732C84EB814302BB1DDCCFE105A39297CFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850861   (1054663) от 30.01.2026
-
-Uriah Heep - Look At Yourself (1971) 2XCD, Japanese Edition, SHM-CD, Remastered, 2026, BELLE [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054663.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Look at Yourself
-02. I Wanna Be Free
-03. July Morning(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 02:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17ECF9B26DF3935B4B30F2AAD223AE5C45842BAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

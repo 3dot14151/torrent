@@ -1,3 +1,119 @@
+###  Публикация: 1473665   (1013482) от 30.05.2021
+
+Awek - Awek (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Gonna Make It Through - 05:34
+02. Bring It On - 04:57
+03. She's All Mine - 04:57
+04. Smoking Mambo - 04:00(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07C2E3A342642DE6FAEE456DC9B752DC50E4C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474882   (1012718) от 04.06.2021
+
+Dayde - Dayde (1971) Unofficial Release [FLAC|Lossless|image + .cue] <Blues-Rock, Psychedelic Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Very Well (Part One) (2:01)
+02. Can I Live My Life (2:30)
+03. Confusion (3:11)
+04. See Here (3:31)(   Читать дальше...   )Жанр: Blues-Rock, Psychedelic RockПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE37F8BB27880F34B80792B0D5095D7520EEFD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475108   (1012520) от 05.06.2021
+
+Eldon Backhouse And The Electric Blues Band - Portrait Gallery (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Please Don't Go (3:20)
+02. Corrugated Iron (6:00)
+03. Parchman Farm (3:16)
+04. What a Shame (3:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55BA9ABEE0AFAB6C87251E2C7A3FFA83895A0D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475118   (1012515) от 05.06.2021
+
+Turner Cody and The Soldiers of Love - Friends in High Places (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boozing and Losing (3:22)
+02. The Four Thousand Dollar Days (2:51)
+03. Lonely Days in Hollywood (4:05)
+04. The Beginning (2:38)(   Читать дальше...   )Жанр: Blues FolkПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319D11D4FC75E901D8E6D6091343187026EB8F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1476944   (1011292) от 13.06.2021
 
 Tony Joe White - Smoke From The Chimney (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -629,122 +745,6 @@ Dave Kalz - Relish (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D930345211D057900A716278F807CA110CE85D66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480422   (1008960) от 28.06.2021
-
-Bonnie Kay and the Bonafides - Handyman (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Row Your Boat (3:29)
-02. Handyman (4:11)
-03. Little Red Rooster (3:22)
-04. Lovey Dovey (2:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB4458B62A06774C3DABCBE41C7DCA85FBFA44B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480429   (1008952) от 28.06.2021
-
-Deek Jackson - I Got the Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Had Enough of You (4:22)
-02. Hey Ho, Pt. 1 (3:46)
-03. I Got the Blues (4:43)
-04. Live 4 Ever (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E54085A4583CCFD523F12B70322747D11B342A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480416   (1008947) от 28.06.2021
-
-Charlie Hunter & Lucy Woodward - I'm a Stranger Here (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Blues (feat. Dashawn Hickman) (2:57)
-02. My Lovin' (You're Never Gonna Get It) (4:44)
-03. My Love Will Never Die (3:43)
-04. You Might Think (5:49)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F675FA9C5D6CA53D341209EEB88B9AF344F40C93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480411   (1008930) от 28.06.2021
-
-Broke Fuse - Rocket Ride (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stephenson Swamp Stomp (1:11)
-02. Rocket Ride (3:28)
-03. Strawberry Moon (4:35)
-04. One Shot (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AB66F34345790EEEFA76FB9EC7AAF7E6722D17
 ```
 
 https://mybot314.ru/tekegram_catalog/

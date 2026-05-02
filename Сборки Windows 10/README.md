@@ -1,4 +1,59 @@
 https://t.me/izofen
+###  Публикация: 1866167   (1066167) от 20.04.2026
+
+Windows 10 Enterprise LTSC 2021 21H2 19044.7184 (Updated April 2026) by FaTaL [Ru]
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборки основаны на официальных образах MICROSOFT MSDN (дата выпуска: ноябрь 2021):
+ru-ru_windows_10_enterprise_ltsc_2021_x86_dvd_cdf355eb.iso
+ru-ru_windows_10_enterprise_ltsc_2021_x64_dvd_5044a1e7.iso
+(   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97562A3498BD469DC783ACED1A372E7767B25C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866152   (1066146) от 20.04.2026
+
+Microsoft® Windows® 10 Enterprise x64 LTSC 2021 21H2 RU by OVGorskiy 04.2026
+
+>>ОС Windows
+>>Сборки Windows 10
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066146.jpg" />
+</div>
+
+
+###  Подробнее
+
+сборка на основе оригинального русского образа операционной системы Windows 10 Enterprise (Корпоративная) LTSC x64 (VLSC) от Microsoft с дополнительным материалом в 1 установочном образе (x64). Установка полностью стандартная "вручную" с выбором параметров установки ОС. Интегрированы: обновления системы,  небольшой набор самых необходимых программ, программа (   Читать дальше...   )Язык интерфейса: Русский (Russian).
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F789A1ABADCC08CA21E3A075F00B83246DF32B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865439   (1065195) от 15.04.2026
 
 Windows 10 22H2 x64 by OneSmiLe [19045.7184] [Ru]
@@ -658,58 +713,6 @@ Zver Windows 10.0.17763.1637 Enterprise LTSC Version 1809 x64, на базе о�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5884E85DA8000260C845212DF1983936FCC4BF99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439459   (1039683) от 13.01.2021
-
-Windows 10, Version 20H2 with Update [19042.746] AIO 64in2 (x86-x64) by adguard (v21.01.12) [En/Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039683.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов MSDN. Были интегрированы обновления по 12 января 2021 года, а также интегрирован SmartFix 2.3.8 и Microsoft DaRT.. В ней нет никаких косметических изменений и ничего не вырезано!Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66D5FD01051A9CABC6145A3EAA3854C461684485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439454   (1039677) от 13.01.2021
-
-Windows 10 Enterprise 2019 LTSC with Update [17763.1697] AIO 4in2 (x86-x64) by adguard (v21.01.12) [En/Ru]
-
->>ОС Windows
->>Сборки Windows 10
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039677.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинальных образов MSDN. Были интегрированы обновления по 12 января 2021 года, а также интегрирован SmartFix 2.3.8 и Microsoft DaRT. В ней нет никаких косметических изменений и ничего не вырезано!Язык интерфейса: Английский, Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4987AEC5C7AC4F9239FE03579B3490B1E60399C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

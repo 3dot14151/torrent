@@ -1,3 +1,61 @@
+###  Публикация: 1402823   (697941) от 16.08.2020
+
+Halestorm - Reimagined (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Get Off [00:03:25]
+02. I Miss the Misery [00:03:21]
+03. I Am the Fire [00:03:53]
+04. Break In (feat. Amy Lee) [00:04:54](   Читать дальше...   )Жанр: Hard Rock, Alternative Metal, Female VocalПродолжительность: 00:22:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF9B4B10D24BB133197E8373F946CA0EE57AB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133130   (697104) от 11.05.2017
+
+Mallory Knox - Wired (2017) [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giving It Up
+02. California
+03. Wired
+04. For You(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F0AB184B36F9355994436F4918E9BDCCC9C0F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132609   (697002) от 11.05.2017
 
 Agent Provocateur - Where The Wild Things Are (1997) [FLAC|Lossless|tracks + .cue] <Electro,Alternative>
@@ -681,64 +739,6 @@ Skillet - 14 Альбомов (1996-2013) Дискография [FLAC|Lossless]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029064   (684294) от 25.06.2016
-
-Blink-182 - California (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cynical (01:55)
-02. Bored To Death (03:55)
-03. She's Out Of Her Mind (02:42)
-04. Los Angeles (03:03)(   Читать дальше...   )Жанр: Alternative, PunkПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0C463CAFF8920B2AF9DA1B333CEA7800EAD842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135267   (683042) от 18.05.2017
-
-Pom Poms - Turn You Out (2017) [FLAC|Lossless|tracks] <Alternative Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Go (03:08)
-02. Live Before I Die (03:56)
-03. Lost My Head (04:12)
-04. Heart In A Suitcase (03:05)(   Читать дальше...   )Жанр: Alternative Rock, Female VocalПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80CB6EB6D8138AA6A3E6C31FCD3D39CEAD0B93D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

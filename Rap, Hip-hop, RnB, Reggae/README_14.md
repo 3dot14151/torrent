@@ -1,90 +1,3 @@
-###  Публикация: 1283856   (731822) от 18.02.2019
-
-UB40 - UB40 (1988) Reissue [FLAC|Lossless|image + .cue] <Electronic, Synth-pop>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance With The Devil
-02. Come Out To Play
-03. Breakfast In Bed
-04. You're Always Pulling Me Down(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475252E1163360CA1BF8A05AB8753D24828D57FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285152   (724776) от 24.02.2019
-
-Nyctophiliac - Dark Side of the Mental (2016) [FLAC|Lossless|Web-DL|tracks] <Abstract Hop, Trip Hop, Dark Jazz>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter The Temple (3:03)
-02. Dark Side Of The Mental (3:35)
-03. Metamanoir (3:42)
-04. Blunted Session (3:45)(   Читать дальше...   )Жанр: Abstract Hop, Trip Hop, Dark Jazz, Experimental Electronic, Lo-FiПродолжительность: 01:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E03F5CE5036B82B31A2DAA74AE6CD636F72D5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023426   (723747) от 05.06.2016
-
-Мот - 92 дня (2016) [MP3|320 кб/с] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 92 дня
-02. А может! (ft. Миша Марвин)
-03. День и ночь
-04. Топ(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:31:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D214A478EE509A8E48F5E517B71F3F9A760BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285522   (720953) от 26.02.2019
 
 N.W.A. - Greatest Hits (1996) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -743,6 +656,93 @@ Sting & Shaggy - 44/876 (2018) [MP3|320 Kbps] <Reggae, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BFCCFAE87FEFC59F3F740A7CC581B81BC3D74AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220663   (702334) от 20.04.2018
+
+Horus - Прометей роняет факел (2018) [MP3|320 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702334.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Земля мертвых
+02. Желтая стрела (feat. Зараза)
+03. Гири
+04. Огонек (feat. Murda Killa)(   Читать дальше...   )Жанр: RapПродолжительность: 00:35:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCA0E6CE1C88E7315A1742ED67E3C29AD77CF362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402251   (701705) от 14.08.2020
+
+POR.NORAP - Бронетрусы (2019) [MP3|320 Kbps] <Comedy Rap, Electronic>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Муж на час 4:02
+02. Гуляй нога 3:58
+03. Раненный дракон 4:07
+04. MOROZOFF DEAD 4:29(   Читать дальше...   )Жанр: Comedy Rap, ElectronicПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94EA98DE3571FFFC728E5D25C4F8C45878307B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132808   (698494) от 10.05.2017
+
+Грот - Клавиши (2017) EP [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698494.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пуля (Акустика)
+2. Дорога к себе (Акустика)
+3. Наследство (Акустика)
+4. Бумажные крылья (Акустика)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C51ECA70CBF28251345613FF4D973441ED3077B
 ```
 
 https://mybot314.ru/tekegram_catalog/

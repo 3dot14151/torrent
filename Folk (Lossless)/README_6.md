@@ -1,3 +1,32 @@
+###  Публикация: 1295510   (618799) от 13.04.2019
+
+Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J'trouve ça beau (3:26)
+02. Les pieds dans le vide (3:09)
+03. Mon âme soeur est ailleurs (3:26)
+04. Années lumière (4:05)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC2C2F652E878C8B0E819734A91D278B08F215DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295503   (618797) от 13.04.2019
 
 Damien Jurado - In the Shape of a Storm (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
@@ -722,35 +751,6 @@ Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44435EE5A0BBC654427FCA3BABC16B03D82CC1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305718   (556144) от 01.06.2019
-
-Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Kitty Wells Dresses  (3:26)
-02 - I Don't Claim To Be An Angel  (3:04)
-03 - Poison In Your Heart  (2:31)
-04 - One By One  (2:58)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F245505D8414AC36A474C1CF781DED451C3599C
 ```
 
 https://mybot314.ru/tekegram_catalog/

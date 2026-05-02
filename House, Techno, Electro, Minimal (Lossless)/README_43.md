@@ -1,3 +1,32 @@
+###  Публикация: 1059118   (462106) от 04.10.2016
+
+VA - Melodica Electronica Vol.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solee & Boss Axis - Still Here (Solee Club Re edit) [08:43]
+02. No Accident In Paradise - Schornstein Milchreis [05:39]
+03. Gareth Bilaney - Undone [03:12]
+04. Reynold - Craft [07:32](   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 02:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE018AB1621EC44685F60787E8521A1FAEBFB20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568539   (462088) от 08.08.2022
 
 Dwson - A Tape For You (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -737,35 +766,6 @@ Brando Lupi - Sleeping World (2015) [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CB31047FA4FB912BF6A7669599B2301DADA68EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248428   (442253) от 20.09.2018
-
-The XX - Remixes (2018) Compilation [FLAC|Lossless|tracks + .cue] <Deep House, Tech House, Downtempo, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/10. VCR (Four Tet Remix) (8:38)
- 02/10. Chained (John Talabot and Pional Blinded Remix) (8:33)
- 03/10. Reconsider (Jamie xx Edit) (5:32)
- 04/10. Sunset (Jamie xx Edit) (6:18)(   Читать дальше...   )Жанр: Deep House, Tech House, Downtempo, MinimalПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DA261D099B7B6C5B201D544D8B0E8ECEED81F02
 ```
 
 https://mybot314.ru/tekegram_catalog/

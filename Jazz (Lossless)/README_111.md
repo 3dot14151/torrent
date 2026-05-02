@@ -1,3 +1,61 @@
+###  Публикация: 1135217   (679515) от 20.05.2017
+
+Duke Ellington - Great Original Performances 1927-1934 (1986) BBC [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jubilee Stomp [02:39]
+02. The Blues with a Feelin' [03:19]
+03. Hop Head [03:00]
+04. What Can a Poor Fellow Do? [03:13](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4647E05FBC91318EB1951D840EE5A0B00D84A8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135463   (679513) от 20.05.2017
+
+Stanley Silverman - Duke Ellington's Timon of Athens (1993) Varese Sarabande [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture: Black and Tan Fantasy [03:01]
+02. Timon's Theme [02:48]
+03. First Banquet [01:33]
+04. Toasts [00:58](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01ABD30B0969B72F95410F92B0AF6298D4F2C5D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135583   (679512) от 20.05.2017
 
 Duke Ellington - This Is Jazz (1927 - 1959) 1996, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -687,64 +745,6 @@ Simon Rattle - Classic Ellington (1999) 2000, EMI [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B6E5FEFF95BB09F3B74621D83F095C7EF1ABD12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135851   (677392) от 21.05.2017
-
-Duke Ellington - The Essential Duke Ellington (1929 - 1960) 2CD, 2005, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677392.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. East St. Louis Toodle-Oo [03:07]
-02. Black and Tan Fantasy [03:27]
-03. Take It Easy [02:38](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:11:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96BAC747977A23F11744D21A69935342DC232B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135839   (677299) от 21.05.2017
-
-Duke Ellington - Love You Madly (1970) 2002, Collectables [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Star Spangled Banner [01:28]
-02. The Mooche [05:54]
-03. How High the Moon [06:26]
-04. Lullaby of Birdland [04:01](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5184BFF10457A6A1F83C0DAA4F75F0E18A196F
 ```
 
 https://mybot314.ru/tekegram_catalog/

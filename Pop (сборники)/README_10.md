@@ -1,3 +1,119 @@
+###  Публикация: 1089284   (951731) от 03.01.2017
+
+VA - Hit 200 Zaycev: Popular Dance Mix (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951731.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Onerepublic Feat. Peter Gabriel - A.I.
+002. Rochelle - All Night Long
+003. Dj James Yammouni - Live Forever
+004. Serpo & Dj Boor Feat. Женя Юдина - Небо Это Ты(   Читать дальше...   )Жанр: PopПродолжительность: 12:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A45C5E29D20A741BC7FD1F47ABD01178D830E509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084915   (951379) от 03.01.2017
+
+VA - Pioneer Studio 33,5 - Disco CCCP 3 (Переиздание) (2016) [MP3|320 Kbps] <Disco, EuroDisco, Dance, Electronic, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yur An & Alex - Солнечное регги (Sunshine Reggae by Laid Back)
+02. Alex Neo & Antony Ganion - Неизвестная дорога (Cant Get Enough by Modern Talking)
+03. Modern Tracking - Замки из стекла (House Of Mystic Lights by C.C. Catch)
+04. Modern Tracking - Вампир (Vampire by Blue System)(   Читать дальше...   )Жанр: Disco, EuroDisco, Dance, Electronic, PopПродолжительность: 02:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B812ACD82A39C5903BCB7F8F2514AFDFBCCD09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089455   (950699) от 04.01.2017
+
+VA - Русский зимний музобоз (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950699.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adil Karaca - Музыка 3:52
+002. Лена Максимова - Счастье Внутри 3:50
+003. Саша Жемчугова - Кто-То За Нас 4:06
+004. Мулат - Включила Заднюю 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04622693EDDD9943B6D0B487F97745674E952EF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089722   (950640) от 04.01.2017
+
+VA - Взрывной хит-парад. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950640.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vikki - Помолчим 3:16
+002. Mc Bad - Растопим Снег 3:12
+003. Таня Герман - Эмоции Мысли 3:20
+004. Gwen Stefani - Used To Love You 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D63681432646226650C5B53A6E5C7AC1819A0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1088782   (950556) от 04.01.2017
 
 VA - Хитовый бум на Europa Plus. Зарубежный выпуск (2016) [MP3|256 Kbps] <Pop>
@@ -635,122 +751,6 @@ VA - Top 100 Russian Hits (2017) [MP3|256~320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E95C090D543D3D7C55FF94F17257911A21F9252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 751571   (944309) от 31.01.2014
-
-Falco - 25 Best Songs (2014) [MP3|245 кб/с]<Europop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944309.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Me Amadeus 1985
-02. Der Kommissar 1982
-03. Vienna Calling 1985
-04. Wiener Blut 1988(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1A37B40D121444A765CD3A976468515352864D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983436   (943734) от 06.02.2016
-
-VA - Драйвовый жаркий музон (2016) [MP3|256 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Базиль - Ищи Другого
-02. Zara Larsson - Lush Life
-03. T - Pain - Coming Home
-04. Олеся Астапова & Jahroom - Ты(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE5A1499F28F5FDFD8CA2494DC77763F036DB2D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091099   (943150) от 09.01.2017
-
-VA - Singles Chart Hot 100 Billboard (17 December) (2016) [MP3|128-320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943150.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Weeknd - Party Monster 04:09
-002. The Weeknd Feat. Daft Punk - Starboy 03:50
-003. The Chainsmokers Feat. Halsey - Closer 04:06
-004. Ariana Grande Feat. Nicki Minaj - Side To Side 03:46(   Читать дальше...   )Жанр: DanceПродолжительность: 06:15:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A35068AD9A2B8C9AC133B9FD80C75C9CFEB5BDE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091090   (943142) от 09.01.2017
-
-VA - Singles Chart Hot 100 Billboard (31 December) (2016) [MP3|32-320 Kbps] <Pop , Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943142.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
-002. The Weeknd feat. Daft Punk - Starboy 3:51
-003. The Chainsmokers feat. Halsey - Closer 4:06
-004. Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D5504CD4F7FF0091EE5990DEAEB9B18F63A3BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

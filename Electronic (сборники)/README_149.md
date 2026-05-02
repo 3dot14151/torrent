@@ -1,3 +1,67 @@
+###  Публикация: 1066082   (414945) от 25.10.2016
+
+VA - Gold Shadow: Balearic Music (2016) [MP3|160-320 Kbps] <Balearic Lounge, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414945.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Klartraum & Thalstroem - Flight to Berlin
+002. ZZouro - Desert D I Y
+003. Blutch - A. (feat. Melodiesinfonie)
+004. Nadja Lind - Ignore & BlockЖанр: Balearic Lounge, Downtempo, ChilloutПродолжительность: 10:07:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A52A3A8BDD490DA937812ADF335645A627F7E5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558493   (414891) от 10.10.2012
+
+VA - Future Trance Classics Vol.10 (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juventa - Suedine [07:46]
+02. James Dymond - Ordinary Heroes [07:48]
+03. DJ Damask - Ira (Paul Denton Remix) [06:37]
+04. Ruslan - Set & Igor Pumphonia F-Sensation of Ease (Eat Vray-Dis Play Dub) [06:43]
+05. Ico - And She Made it All of Light (Thomas G 303 Mix) [07:58]
+06. Tom Lavin & Adrohan Present Halt - Flyover (Function C Remix) [07:06]
+07. Emerge - Dream Drifter [07:37]
+08. Riialto - Ec (Everything Continues) [08:40]
+09. Max Fishler - Tyrannosaur (Mark Nails Remix) [07:55]
+10. Tritonal - Can't Keep it in (Feat Jeza-Tritonal Club Mix) [06:40](   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A505107FD8F3CAC0F031B42429B71D0AC08AD757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066386   (414786) от 25.10.2016
 
 VA - Survival Clinic: Dubstep Compound (2016) [MP3|320 Kbps] <Dubstep, Drum And Bass, Electro>
@@ -687,64 +751,6 @@ VA - Ultimate House Reflected Smash (2016) [MP3|198~320 Kbps] <House, Electro Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CF895BA41397FF1EB2CE3AE76B4485367E35F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066782   (410197) от 27.10.2016
-
-VA - ConfiG Q-B! Sound Top 145 (2016) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrima - Love (Single Mix)   03:33
-02. Yves Larock & Lvndscape Feat. Jaba - Rise Up 2K16 (Extended Mix)   05:14
-03. Redondo & Boris Way - Sunday (Extended Mix)   04:12
-04. Chris Montana & Slava Dmitriev - I Just Wanna Love You (Radio Edit)   03:29(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3E1AAF90B419F7135739E9EBF9CD53E965485DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066774   (410192) от 27.10.2016
-
-VA - Vocal Selection Files Skyline (2016) [MP3|320 Kbps] <Trance, Vocal Trance, Stadium Trance, Tech Trance, Emotional>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mhammed El Alami & Abdelrahman Nabil feat. Allam - Oceanus (Ahmed Helmy & Puma Scorz Remix)  6:59
-02. Mike Saint-Jules & Amy Kirkpatrick - Galaxy (Yang Remix)  5:46
-03. Bobina & Kyle Richardson - Love Is the Answer (Digital X Remix)  4:58
-04. Alexander Popov & Jonathan Mendelsohn - World Like This (Extended Mix)  5:05(   Читать дальше...   )Жанр: Trance, Vocal Trance, Stadium Trance, Tech Trance, EmotionalПродолжительность: 02:26:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA8D9087E7044D42218DAF1757073B6203CD1E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

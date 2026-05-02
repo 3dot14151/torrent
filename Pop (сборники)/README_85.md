@@ -1,3 +1,119 @@
+###  Публикация: 1570681   (436058) от 20.08.2022
+
+Pino D'angio - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Questo Amote E Un Motore
+02. Tango
+03. Sono Latino
+04. Okay Okay(   Читать дальше...   )Жанр: PopПродолжительность: 01:45:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8567182B3F39A3838EF52082EB94BC7DE56EF3DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063218   (434973) от 16.10.2016
+
+VA - German Top 100 Single Charts 24.10. (2016) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434973.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rag'n'Bone Man - Human
+002. The Chainsmokers feat. Halsey - Closer
+003. DJ Snake - Let Me Love You
+004. Sia - The Greatest (feat. Kendrick Lamar)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73790466B62DC931CE8A351BBD9B788454DA472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063222   (434972) от 16.10.2016
+
+VA - Новинки. Осенний выпуск Europa Plus (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434972.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Malika - Я Твой Ангел
+002. Anouk - Run Away Together
+003. Марта - Даже Если Ты
+004. Walking On Cars - Hand In Hand(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFEEFA701275DA9CBC1917B52A5F63498FD2E74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063135   (434017) от 16.10.2016
+
+VA - Дискотека 80-90 годов по-новому (Зарубежный выпуск - 40) (2016) [MP3|320 Kbps] <Italo-Disco, Pop, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Boys - London Nights (DJ NIKOLAY-D Remix ) (08:29)
+02. Pulsedriver & Andrew Spencer - Touch Me (Limelight Remix) (05:06)
+03. Beata - Maria Magdalena (K.C. Nightline Club Mix) (04:18)
+04. Yvan & Dan Daniel - Enjoy The Silence (George Acosta Remix) (07:25)(   Читать дальше...   )Жанр: Italo-Disco, Pop, Euro-Disco, DanceПродолжительность: 04:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:905DFBDAE3882EDCA52423BC9D34D41269616096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1571261   (433838) от 21.08.2022
 
 Mina&Celentano - Compilation (2022) [MP3|320 Kbps] <Pop>
@@ -662,122 +778,6 @@ VA - German Top 100 Single Charts 07.09.2019 (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31DE71973952E3170C541470509062D967B663E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411004   (429614) от 24.09.2020
-
-VA - National Pop Music (Vol.04) (2020) [MP3|320 Kbps] <Pop, Dance, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429614.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Echt Tirol - I Woas Es No, Wie's Frueher War
-002. Howside - Venus Missing
-003. Dédé Saint Prix - Etiw
-004. DJ Mimi - Dance A Ou(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 07:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468688CD1418CEB46760AD995B834E556D4C59B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945959   (429284) от 12.10.2015
-
-Amanda Lear - Good Songs (2015) [MP3|160 кб/с]<Pop, Shanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429284.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alligator (1977)
-002. Alphabet (1977)
-003. Blood and Honey (1977)
-004. Blue Tango (1977)(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 10:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B1778EB3A33E4FC804987FB2B1B32A8D7987DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411073   (429203) от 24.09.2020
-
-VA - Осень на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alok & Thrdl!fe - Hear Me Tonight (3:08)
-02. Ava Max - Who's Laughing Now (2:59)
-03. BTS - Dynamite (3:19)
-04. DaBro - Юность (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E4C824DF00B5AFE85677EABBBF2A4431038D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946210   (429176) от 12.10.2015
-
-Dalida - Good Songs (2015) [MP3|128 кб/с]<Pop, Shanson>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429176.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A chaque fois j'y crois
-002. A ma maniere
-003. Aba daba honey moon
-004. Alabama song(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 12:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58875F8539292BA106FEA14689E871530E89A4BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

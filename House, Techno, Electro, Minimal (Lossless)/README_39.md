@@ -1,3 +1,32 @@
+###  Публикация: 1236040   (556277) от 15.07.2018
+
+VA - Schneeweiss 9 (Presented by Oliver Koletzki) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monolink - Swallow (Oliver Koletzki remix) (07:16)
+02. Midas 104 - Carry On (07:45)
+03. Andhim - Stay Close To Me (feat Hogni) (07:28)
+04. Eagles & Butterflies - The Last Dance (09:24)(   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 03:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C141765342168FFC54442E6D95186591CE20CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306867   (555488) от 06.06.2019
 
 Robag Wruhme - Venq Tolep (2019) Pampa Records [FLAC|Lossless|WEB-DL|tracks] <Tech House, Minimal, House>
@@ -715,35 +744,6 @@ Lemon Jelly ‎ - Lost Horizons (2002) 2003, Japanese Edition [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:713D3608B8EFB977F07F1137C89A42022F787896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239734   (535222) от 07.08.2018
-
-Helena Hauff - Qualm (2018) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Barrow Boot Boys (06:05)
- 02. Lifestyle Guru (05:43)
- 03. btdr-revisited (03:30)
- 04. Entropy Created You And Me (02:43)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 00:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:871D72964FB38C6BA1D92466C544989F54031112
 ```
 
 https://mybot314.ru/tekegram_catalog/

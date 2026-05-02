@@ -1,3 +1,175 @@
+###  Публикация: 1797588   (66765) от 17.05.2025
+
+Жиробаза - Ещё не всё (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всему своё время [00:03:01]
+02. Крупные планы [00:02:53]
+03. И так и так одна ерунда [00:02:49]
+04. Ещё не всё [00:02:03](   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6334D96BD00BFE8B2A88BF80DE68D30390BCBDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797590   (66762) от 17.05.2025
+
+Blood Incantation - Absolute Elsewhere (2024) [WavPack|32/192|image + .cue|Vinyl-Rip] <Death Metal, Ambient, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66762.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - The Stargate
+B1 - The MessageЖанр: Death Metal, Ambient, Progressive MetalПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAEF53C8D9392704DEDE2EC2EDD598E3C36B976D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797603   (66760) от 17.05.2025
+
+Bury Tomorrow - Will You Haunt Me, With That Same Patience (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Dream, To Forget
+02. Villain Arc
+03. Wasteland
+04. What If I Burn(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55F7972C56CAE95FE395788E5C38C9A5F6B955FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797608   (66759) от 17.05.2025
+
+Hundredth - Faded Splendor (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Indie-Rock, Alt. Rock, Shoegaze>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Curve
+02. Big Love
+03. Dark Side
+04. All The Way(   Читать дальше...   )Жанр: Indie-Rock, Alt. Rock, ShoegazeПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC63B0B391AEF9BE0BC8BC93E72C6E7E441C7CD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797562   (66757) от 17.05.2025
+
+Nytt Land - Songs of the Shaman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Darkfolk, Ethnic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Eikule Yekule (The Ritual of Divination) [00:03:14]
+02 - Cingelji Ingelji (The Song of the Shaman's Assista [00:02:54]
+03 - Eikuli Yekuli (Summoning the Spirit of the River - [00:03:30]
+04 - Kerani Kerani (The Ritual of Returning the Soul fr [00:03:06](   Читать дальше...   )Жанр: Darkfolk, EthnicПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1680ED7C033909E68EDE3CAA5C7CCB911E5AF895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797613   (66753) от 17.05.2025
+
+Rufige Kru, Goldie & Submotive - Alpha Omega (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass, Dubstep, Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rufige Kru - Alpha Omega (05:22)
+02. Rufige Kru feat. Cleveland Watkiss - Goldikus (04:37)
+03. Rufige Kru - Virgil (05:17)
+04. Rufige Kru - Express Your Soul (04:59)(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, SynthpopПродолжительность: 01:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B5B7FEDD0828C4F441DB6A19010B685221B8EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797674   (66752) от 18.05.2025
 
 Rokets - Bad Choices (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Stoner Rock>
@@ -570,180 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F26B5DB9E3119C18F1BE8BD32B4A36BA3BFC974
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798276   (66640) от 21.05.2025
-
-Charlie Musselwhite - Look Out Highway (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Look Out Highway (3:31)
-02.  Sad Eyes (3:40)
-03.  Storm Warning (4:05)
-04.  Baby Won't You Please Help Me (3:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28659F85C6759E588639BDFF536E9CF04C658BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798281   (66639) от 21.05.2025
-
-Elles Bailey - Beneath the Neon Glow (Reimagined) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  1972 (Reimagined) (3:11)
-02.  Ballad of a Broken Dream (Reimagined) (5:17)
-03.  If This Is Love (Reimagined) (3:07)
-04.  Turn off the News (Reimagined) (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFB9A7B6A2B67A94A347944316A4A346452746B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798277   (66637) от 21.05.2025
-
-Inka Inka - Reconsider (1992) Special Edition, 2025, [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roots Reggae, Ska>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reasoning Heavy (2025 Remaster) [00:04:36]
-02. Tension (2025 Remaster) [00:04:30]
-03. Words (2025 Mix) [00:03:52]
-04. Family Matters (2025 Remaster) [00:05:03](   Читать дальше...   )Жанр: Roots Reggae, SkaПродолжительность: 01:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12979D4E76DE1C54010220A838B122BD56A90A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798602   (66620) от 22.05.2025
-
-Degenerate - Rituals Of Rage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Servitor (03:49)
- 02 - Xenon Equilibrium (03:24)
- 03 - The Cult (03:41)
- 04 - Illuminate (03:31)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C361C53339682D8EECB95A7F04445B4137A08F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798606   (66615) от 22.05.2025
-
-...and Oceans - The Regeneration Itinerary (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Inertiae (04:30)
- 02 - Fornyelse i Tre Akter (05:07)
- 03 - Chromium Lungs, Bronze Optics (04:29)
- 04 - The Form and the Formless (03:32)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B28AFB8FFCA50E5A203E4CA1F1EC71CEDEB524A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798604   (66613) от 22.05.2025
-
-Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Miracle (05:38)
- 02 - Stormy (04:26)
- 03 - Chandelier (04:59)
- 04 - Don't Fool Me (04:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD0BAEEE4399FE2CB6AF34D389923B11F5C6E10
 ```
 
 https://mybot314.ru/tekegram_catalog/

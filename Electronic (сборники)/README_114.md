@@ -1,3 +1,61 @@
+###  Публикация: 1042072   (580642) от 11.08.2016
+
+VA - 100 Nowadays Points Cross (2016) [MP3|320 Kbps] <House, Tropical, UK Garage, Club, Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580642.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gregory Esayan - Changes (Original Mix) 07:30
+002. Ambrosia - Happy (Dub) 08:16
+003. Sheree Hicks - Living All Alone (Djpope's Sound Of Baltimore Instrumental) 07:07
+004. Inaky Garcia And Misteralf Feat Sandy Soul - Paradise (Guido P Sunset Mix) 07:48(   Читать дальше...   )Жанр: House, Tropical, UK Garage, Club, Techno, ElectronicПродолжительность: 10:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3F8A342C35C9F33911D9D4AAF81E9C90146C712
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041733   (580595) от 11.08.2016
+
+VA - Moment Follow Trance Lights (2016) [MP3|128-320Kbps] <Trаnсе, Еmоtіоnаl>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аlіgnmеnts - Stоnеm 08:12
+02. Drеаmsееkеrs - Hоmеlеss (Оrіgіnаl Mіх) 06:05
+03. Аlех Numаrk - Sublіmе Lоvе (Оrіgіnаl Mіх) 06:50
+04. Аіmооn - Frееdоm (Оrіgіnаl Mіх) 06:34(   Читать дальше...   )Жанр: Trаnсе, ЕmоtіоnаlПродолжительность: 09:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D3B08C3D79AC1E59FE6ED5ABB95DD7E652BAEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041965   (580532) от 11.08.2016
 
 VA - Beatport Top 100 Deep House July (2016) [MP3|320 Kbps] <Deep House, House, Electronica, Disco>
@@ -711,64 +769,6 @@ VA - Deep House - Gold Collection (2016) [MP3|320 Kbps] <House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D53AE7C7F285ABA6C127FC832096A464A7390EBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042446   (578457) от 13.08.2016
-
-VA - Chillout August 2016 Top 10 August Relaxing Chill Out and Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578457.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leesa – Cafe Enigma – Chillout Mix
- 02. Bryan Milton – Sunny Day – Chillout Mix
- 03. Soty – Reunion – Chillout Mix
- 04. LastEDEN – Vision – Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24403B8474994A55CC2CB8C917F6C23CF7BC19BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233610   (578189) от 01.07.2018
-
-DJ AFRO - MundialAfroStars (2018) [MP3|320 Kbps] <Tech House, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578189.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alexey Lisin - Junk (Original Mix)
-2. Silvano Del Gado - Dun da Da
-3. Mauro_Picotto - The Whistle
-4. Luna City Express - Victims of the Funk(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8850E201ADD0A7DFCFFF12D6F3B9AE03B4C58A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

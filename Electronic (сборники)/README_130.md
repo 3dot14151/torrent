@@ -1,3 +1,65 @@
+###  Публикация: 536666   (511411) от 21.08.2012
+
+VA - Pumping Storm - 11 (Back to Underground) (2012) [MP3|320 кб/с]<Pumping House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511411.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Pumping Storm - 11 (Back to Underground) (2012)
+
+Год: 2012
+Жанр: Pumping House
+Продолжительность: 00:56:57Кодек: MP3 (Tracks)
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. XS Project vs. Konnekt - Ты такой  (Cocaine)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D27E37FE12DC304B8E32D305949278D5283F8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931878   (511115) от 27.08.2015
+
+VA - Carnaval House (2015) [MP3|320 кб/с]<Progressive House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shashaf - Beat of Ganesh (4:56)
+02. Pasqual Merell - Night Start (5:53)
+03. Paul Schulleri - Induktion (Guevara Remix) (6:43)
+04. Dan & Hell - Venus (7:47)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 04:14:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8622BC0910E40EADDA286B1D7D7A1FC878B7461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931891   (511111) от 27.08.2015
 
 VA - Lounge Deluxe Collection [Cane Garden Bay Records] (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -699,64 +761,6 @@ VA - Lounge At The Seashore 21 (2015) [MP3|320 кб/с]<Lounge, Electronic, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C66989B99FD3DD6A56A56B633E717B3D633F8258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932583   (508324) от 30.08.2015
-
-VA - LSD: Love, Sex & Diamonds (2015) [MP3|320 кб/с]<House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Las Vegas Boys - Living in a Fantasy (3:42)
-02. Plus 11 - Island Women - Ibiza Beach Mix (3:24)
-03. Teknologic - Totem Moment (3:40)
-04. Rhythm O' Tronik - Beautiful Brown - Vanguard Remix (3:21)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E94E7CC65CA54E21BCA31269A90312B5DC39E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932837   (508316) от 30.08.2015
-
-VA - Deep House Music - Sexy House Lounge (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jox Talay - SLS Pool
-02. Hoboken - Lampedusa Lounge
-03. Sonaya - Palma de Lounge
-04. Belloq - Bellini Groove(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B5C408465FC37FA4BFDD8C44CADAD4130EB84F
 ```
 
 https://mybot314.ru/tekegram_catalog/

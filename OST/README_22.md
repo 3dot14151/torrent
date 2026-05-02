@@ -1,3 +1,59 @@
+###  Публикация: 135669   (272818) от 29.11.2018
+
+VA - Лучшие песни французских мюзиклов (2008) [MP3|320 kb/s]<музыка театра и кино>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Редкий альбом, объединяющий в себе песни наиболее популярных французских мюзиклов, которые покорили весь мир. Хорошее качество, отличное оригинальное исполнение, делают этот диск прекрасным подарком всем романтикам, которые найдут тут и песни из «Нотр-Дама» и довольно редкие арии из других менее известных, но не менее красивых постановок.
+Рекомендую использовать (   Читать дальше...   )Жанр: музыка театра и киноПродолжительность: 02:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4336A79329C5828444CE7E2243EBEF79E12EA66D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 139281   (271758) от 30.11.2018
+
+VA - Romantic Collection: Cinema (2003) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francis Lai - Un Homme Et Une Femme (02:45)
+02. Nino Rota - Love Theme From The Godfather (02:41)
+03. Henry Mancini - The Windmils Of Your Mind (& His Orchestra) (03:01)
+04. Francis Lai - Love Story (04:12)(   Читать дальше...   )Жанр: Soundtrack (Pop)Продолжительность: 01:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:243FDFF78FEB7C8DFA831539A3DC9723E7A6AA9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337901   (271656) от 13.11.2019
 
 Alexander Taylor - Animal Among Us / Животное среди нас (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -711,64 +767,6 @@ Serial Cleaner - Soundtrack (2017) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:730133466277A06E9A1261695214BED2E6B51CFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342405   (221520) от 04.12.2019
-
-7th Sector - Soundtrack (2019) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to The Game
-02. Outdoors
-03. Reference Point
-04. Potential Capacity(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D38B8AF61EB8205B5A36258EA85463F731FA98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084209   (220505) от 18.12.2016
-
-Abel Korzeniowski - Penny Dreadful / Страшные сказки: Seasons 2 & 3 (Music From The Showtime Original Series) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Master (02:43)
-02. New Mexico (04:25)
-03. Las Cruces (02:26)
-04. Dr. Jekyll (02:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843E1C979723BC3193E22375AC6BBADD376745E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

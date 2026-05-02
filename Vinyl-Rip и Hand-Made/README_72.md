@@ -1,3 +1,177 @@
+###  Публикация: 1708341   (113088) от 20.03.2024
+
+Stone Temple Pilots - Studio Albums (10 releases) (1992-2020) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Grunge, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stone Temple Pilots — хард-рок/гранж-группа, образованная в 1986 году в Сан-Диего, Калифорния.1992 - Core
+1993 - MTV Unplugged
+1994 - Purple
+1996 - Tiny Music...Songs from the Vatican Gift ShopЖанр: Grunge, Hard RockПродолжительность: 07:54:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:873AC5D9FB44DF74F8E3CDFAE423AC243C4ADCA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708349   (113085) от 20.03.2024
+
+Дин Рид (Dean Reed) - Дин Рид (1970) [FLAC 24/192|Lossless|tracks] <Retro, World, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Наш летний романс (муз. и сл. Д. Рида)
+Our Summer Romance (D. Reed)
+02. Свободная мелодия (авторы неизвестны*)(   Читать дальше...   )Жанр: Retro, World, CountryПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3178E7D53CECD0476A70D3D1D5CD295709E3B208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708356   (113084) от 20.03.2024
+
+VA - Эстрадное обозрение (2 серия) (1961) [FLAC 24/96|Lossless|tracks] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Мистуфль (Ф. Лемарк) — Франсис Лемарк (Франция)
+La Mistoufle (F. Lemarque) — Francis Lemarque
+02. Осёл и крестьянин (Д. Модуньо) — Франсис Лемарк (Франция)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB07C7B253ABCCEF05875B1FD89FDF0DAEF454A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708342   (113078) от 20.03.2024
+
+Rockets - Wonderland (2019) [FLAC 24/96|Lossless|tracks] <Synth-pop, Space-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113078.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Wonderland
+Featuring – Axel Cooper*, Fabrice Pascal*
+A2 Kids From Mars
+A3 Heaven(   Читать дальше...   )Жанр: Synth-pop, Space-rockПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FDAD33AEFCFBD821CB7FCDEFEA566B5D52613F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708348   (113074) от 20.03.2024
+
+Диалог - Ночной дождь (1987) [FLAC 24/192|Lossless|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113074.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01. Гринландия (Музыка и слова К. Брейтбурга)
+02. Рыбак (К. Брейтбург - А. Тарковский)
+03. Флейта (К. Брейтбург - А. Тарковский)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3EBBB2FA591FC39156D935BE2D5F4A3EB189C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708344   (113073) от 20.03.2024
+
+Дельта-Оператор - Дельта-2 (1991) [FLAC 24/192|Lossless|tracks] <Hard-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Пролог (А.Лобачев)
+02. Эмигрант (А.Лобачев,В.Шаров)
+03. Друзьям (А.Лобачев,В.Шаров)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF69E7E60AD2D671FFF0025570499355DE7EBFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708542   (113041) от 21.03.2024
 
 Евгений Мартынов - Евгений Мартынов поет свои песни (1979) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
@@ -571,180 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:658CAD7E87650F7E95CAC1B9C182925FBC699230
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709105   (112882) от 23.03.2024
-
-Надежда Чепрага - Только ты (1984) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Человеческий голос (Е. Дога — Р. Рождественский) — 3.18
-02. Симфония чувств (Ион Алдя Теодорович — Г. Виеру) — 3.54
-03. Только ты (А. Корач — С. Гимпу, русский текст И. Вадикова) — 3.34(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0437C4D1D4AA70B628BC6045518493B76C3E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709097   (112873) от 23.03.2024
-
-Маша Распутина - Городская сумасшедшая (1991) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112873.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Гималаи (А. Лукьянов)
-02. Клава (М. Дунаевский)
-03. Я тоже жить хочу (И. Кружалин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709186   (112863) от 23.03.2024
-
-Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112863.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Timpul Întâilor
-A2 În Vieliștea Uitării
-B1 Descânt
-B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:01:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709183   (112860) от 23.03.2024
-
-Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112860.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Jind De Tronuri
-A2 Flăcărarii
-B1 E-an-na
-B2 Calea Roților De Foc(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:626709864ED2E064B0F7A13053F129C6FDBDDD1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709109   (112855) от 23.03.2024
-
-Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks|Vinyl-Rip] <Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mars Within (Intro)
-02. Abduction
-03. Soul Intruders
-04. Kill Devil Hill(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D096B08FC05D3CBF574BEBF6C6693AA225CEAF88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709141   (112852) от 23.03.2024
-
-Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Heavy Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Almanac — неоклассическая метал-группа из Германии, основанная в 2015 году гитаристом, продюсером и композитором белорусского происхождения Виктором Смольским.2016 - Tsar
-2017 - Kingslayer
-2020 - Rush Of Death
-& Victor Smolski solo albumsЖанр: Power/Heavy/Progressive MetalПродолжительность: 05:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9549FC32DFE49AE358E1C6E05C1C2D68031BB00C
 ```
 
 https://mybot314.ru/tekegram_catalog/

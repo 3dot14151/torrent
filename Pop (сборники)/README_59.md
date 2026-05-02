@@ -1,3 +1,119 @@
+###  Публикация: 1293337   (637274) от 03.04.2019
+
+VA - This Merry Planet: Super Rare Disco Vol.1 (2019) [MP3|320 Kbps] <Disco, Funk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637274.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01.Neil Cloud - Time Of The Season (TK 12'' Vocal)(1979) (00:07:16)
+02.Destination - The Beginning (1979) (00:03:50)
+03.A.D. - Return Of Vader (1978) (00:09:40)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:920A591C2B15F74A6221CDE255EB78625446C1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293309   (637134) от 03.04.2019
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.01-30 (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zucchero  -  Baila (Sexy Thing)  4:08
+02.  Raffaella Carra  -  Tanti Auguri (Com'e Bello Far L'amore)  3:53
+03.  Umberto Tozzi  -  Al Sud  5:12
+04.  Serena Rizzetto  -  E Tutto Un Attimo  3:17(   Читать дальше...   )Жанр: PopПродолжительность: 67:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1FE9C388CD15C91CE39E5394F6976DEEEF84DD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143422   (636942) от 17.06.2017
+
+VA - German Top 100 Single Charts 16.06.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636942.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi - Despacito (feat. Daddy Yankee)
+002. Robin Schulz - OK (feat. James Blunt)
+003. David Guetta - 2U (feat. Justin Bieber)
+004. Imagine Dragons - Thunder(   Читать дальше...   )Жанр: PopПродолжительность: 05:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF2DDA578ECD8215EA9D7EC167A1F4F6B9BC28B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033747   (636031) от 12.07.2016
+
+VA - Едем На Моря Vol.2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Женя Mad Feat. Katya Tu - Только Пой
+02. Geo Da Silva - I Love U Baby
+03. Andrea Bocelli & Ariana Grande - E Piu Ti Penso
+04. Coldplay - Adventure Of A Lifetime(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:418AC19D95B28199A96E9273A6DE0F937D35C6FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034156   (636024) от 12.07.2016
 
 VA - Идеальный Хит 10 (2016) [MP3|256 Kbps] <Pop>
@@ -683,134 +799,6 @@ VA - Top 100: Танцевальная летняя дискотека (2012) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60DB19F24296957B1AAC647227067360ADE00271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144008   (631352) от 20.06.2017
-
-Zucchero - Hybrid of Zucchero Sugar Fornaciari (2017) [MP3|192-320 CBR,VBR Kbps] <Rock, Pop Rock, Blues>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamante
-02. Va pensiero
-03. Menta E Rosmarino
-04. Cosi Celeste(   Читать дальше...   )Жанр: Rock, Pop Rock, BluesПродолжительность: 04:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA883292DE3457A42088335F8FC8E5C0CDB7D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292950   (631253) от 06.04.2019
-
-VA - Beautiful Songs For You Vol.01-27 (2019) [MP3|320 Kbps] <Pop, Romantic Ballads>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaron Neville - Tell It Like It Is 03:04
-02. Akord - Alina-ma 03:28
-03. Alison Moyet - That ole devil called love 03:05
-04. Alpha Ville - Forever Young 03:48(   Читать дальше...   )Жанр: Pop, Romantic BalladsПродолжительность: 127:05:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6D1BDEAD444A2442996E2CEBF1117AE8D39F029
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520581   (630970) от 09.07.2012
-
-VA - Жаркий Авто Хит от DFM 50+50 (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Melvin Reese - All Day All Night (Original Mix)
-02 Вера Брежнева - Ищу Тебя
-03 Dj E-Maxx - Electro Bass (Radio Edit)
-04 Никита - Бессонница
-05 Robert Miles - Children (Mian Timore Remix)
-06 Полина Гагарина – Вернись Любовь
-07 Bueno Clinic - Sex Appeal (Max Farenthide Remix)
-08 Братья Гримм - Аллилуйя (Aksioma Project Radio Remix)
-09 Alexandra Stan - Mr Saxobeat (Ural Djs Dance Remix)
-10 Пыльца - Запасной АэродромЖанр: Pop,DanceПродолжительность: 06:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6825CCD2F6B8BF24EF143A8E504E0C45EB87117E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 461747   (630369) от 04.07.2014
-
-Various Artists - Syndicate. The Best Disco With Non-Stop Sound Effects (1980) [MP3|320 кб/с]<Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Babe - The Drunken Sailor
-02. Theo Vaness - Bad Bad Boys
-03. Ottawan - You're OK
-04. T.H.P. - Good To Me
-05. Doris D. & The Pins - Shine Up
-06. A La Carte - Ring Me, Honey
-07. Methusalem - The Black Hole
-08. Gepy & Gepy - Body To Body
-09. Gilla - Tom Cat
-10. Pussycat - Rio(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

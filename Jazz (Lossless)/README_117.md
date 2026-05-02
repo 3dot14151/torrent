@@ -1,3 +1,61 @@
+###  Публикация: 1139247   (661408) от 01.06.2017
+
+Herb Steward / Marky Markowitz - The Three Horns of Herb Steward & Marky's Vibes (1971, 1981) 2002, Progressive Records [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take The 'A' Train [06:31]
+02. Serenata [04:21]
+03. The Song Is For You [04:20]
+04. Madeleine [05:10](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA03500BB9F5C40B4F9A2320CB37D4EDEAB8EE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139083   (661404) от 01.06.2017
+
+The Chet Baker Quintet - Cools Out (1956) 1991 [WavPack|Lossless|image + .cue] <Cool Jazz, Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661404.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Route (5:06)
+2. Lucius Lou (5:39)
+3. Pawnee Junction (4:05)
+4. Extra Mild (5:21)(   Читать дальше...   )Жанр: Cool Jazz, Bop, Hard BopПродолжительность: 00:29:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D49CC62266A439E912FB2B7E57195897C9B2AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1139244   (661402) от 01.06.2017
 
 Sonny Rollins - Road Shows, vol. 2 (2011) Doxy Records [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
@@ -705,64 +763,6 @@ Bill Stewart - Think Before You Think (1998) [FLAC|Lossless]<Post-Bop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903215   (658967) от 30.05.2015
-
-Jessy J - My One And Only One (2015) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Una Mas
-02. My One And Only One
-03. Lovesong
-04. The Tango Boy(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F77599DE3DB48342D99D21CBA68D41F6A342DE84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903197   (658961) от 30.05.2015
-
-Billie Holiday - Music For Torching (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Don`t Want To Cry Any More [03:59]
-02. Prelude To a Kiss [05:38]
-03. (I Don`t Stand a) Ghost of a Chance (with You) [04:31]
-04. When Your Lover Has Gone [05:01](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8290B74DAEE927205DDFB1DEEC32ED2C17C5DAA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

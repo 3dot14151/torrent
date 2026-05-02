@@ -1,3 +1,348 @@
+###  Публикация: 1617500   (250301) от 07.03.2023
+
+Cardinal Black - January Came Close (2022) Scene [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250301.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rise Up
+02. Where Do You Go
+03. Tell Me How It Feels
+04. Terra Firma(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6A3C479B4FA60FC052E85694AAF51C07A1C0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617503   (250269) от 07.03.2023
+
+Horojo Trio - Set The Record (2022) Scene [FLAC|Lossless|tracks] <Rock, Blues, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man Of Steel
+02. A Little Goes A Long Way
+03. Set The Record Straight
+04. Stay Crazy(   Читать дальше...   )Жанр: Rock, Blues, SoulПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3CDA0D3D13467309CD4F01DCBBDE3748801DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617332   (250253) от 07.03.2023
+
+Genesis - BBC Broadcasts (1978-1992) (2023) 5CD Box Set, Compilation, UMR/EMI [FLAC|Lossless|tracks] <Progressive Rock, Art Rock, Pop Pock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD1 Early BBC
+CD2 (Knebworth 78 / Lyceum 80)
+CD3 (Lyceum 80 und Wembley 87)(   Читать дальше...   )Жанр: Progressive Rock, Art Rock, Pop PockПродолжительность: 5CD, 05:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E48F9D993A421631B4C8FA4C809C037D7D87E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617456   (250248) от 07.03.2023
+
+Myron Elkins - Factories, Farms & Amphetamines (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues Rock, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugartooth
+02. Factories, Farms & Amphetamines
+03. Hands To Myself
+04. Mr. Breadwinner(   Читать дальше...   )Жанр: Rock, Blues Rock, CountryПродолжительность: 00:33:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5044C236DE4B6A0ADC6849561BF62D6E26767EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618384   (249995) от 11.03.2023
+
+The Allman Brothers Band - Hittin’ the Note (2003) [FLAC|Lossless|tracks + .cue] <Southern Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Firing Line
+02. High Cost of Low Living
+03. Desdemona
+04. Woman Across the River(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 01:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113CA61691E87B0091AF4F7250922D0F220FFF1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618247   (249978) от 11.03.2023
+
+VA - Classic & Easy Soft Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrian Gurvitz - Classic (Edit)Жанр: Rock, Soft Rock, Pop RockПродолжительность: 03:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9FE922EA7F33D43156F316C7894713218B696D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618534   (249955) от 12.03.2023
+
+VA - Glam Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249955.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alice Cooper - No More Mr. Nice Guy
+  2. Wizzard - See My Baby Jive
+  3. Mud - Tiger Feet
+  4. Alvin Stardust - My Coo Ca Choo(   Читать дальше...   )Жанр: Glam RockПродолжительность: 02:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90E14486BFBEFD5BF067EADFDB2CB64F9715EE9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619706   (249609) от 17.03.2023
+
+U2 - Songs Of Surrender (2023) 4 CD [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249609.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. One
+02. Where The Streets Have No Name
+03. Stories For Boys(   Читать дальше...   )Жанр: Rock |Продолжительность: 02:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FBE1E42EBBED09094DE01A3F562289CF218DE11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619928   (249508) от 18.03.2023
+
+U2 - Songs Of Surrender (2023) 4xCD [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249508.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD One:
+01. One
+02. Where The Streets Have No Name
+03. Stories For Boys(   Читать дальше...   )Жанр: RockПродолжительность: 02:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B79605FA90F7E12EEDD6E82733D7008D43B6BAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1565252   (249453) от 23.07.2022
+
+ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack  [FLAC 2.0|96/24|tracks|WEB-DL] <Hard Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brown Sugar (4:18)
+02. Just Got Paid (3:50)
+03. Heard It On The X (2:51)
+04. La Grange (4:42)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:826A95A2FEEC565B5C26E49684035C5F151B607C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620477   (249394) от 20.03.2023
+
+The Steve Gibbons Band - 7 Альбомов (1976-1988) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Over My Heart
+02. Don't Trade Me In
+03. Schoolboy
+04. The Chain(   Читать дальше...   )Жанр: RockПродолжительность: 05:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D289C720079D58405D6D6F694623A8EE961AC95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620374   (249349) от 20.03.2023
+
+VA - The Rock Collection: Rock Groups (1991) 2CD Compilation [FLAC|Lossless|tracks] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249349.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Queen - Crazy Little Thing Called Love (2:44)
+02. Marillion - Lavender (Single Version) (3:42)
+03. Status Quo - Roll Over Lay Down (4:42)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FEEEA9A6544F04955B7C62EEFA5E89FE75C2AAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491077   (248560) от 07.05.2012
 
 Traveling Wilburys - The True History Of The Traveling Wilburys (2007) 2CD [FLAC|Lossless]<Rock>
@@ -400,354 +745,6 @@ Legacy Pilots - Helix (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Sy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:771B9DB4583CB5FF3600DC9E1DD4811F7C012C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060828   (245322) от 08.10.2016
-
-Tribute - Breaking Barriers (1986) Reissue, 2013, Sireena Record [FLAC|Lossless|tracks + .cue] <Prog Rock, Jazz-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breaking Barriers (5:50)
-02. Steamlined (6:48)
-03. Diesel Engine (4:51)
-04. A Kumma Ki Yidi (6:29)(   Читать дальше...   )Жанр: Prog Rock, Jazz-RockПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3659A1B1159DEF836114E613E9207301D9F0235A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566375   (245255) от 28.07.2022
-
-Alan Parsons - From The New World (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fare Thee Well
-02. The Secret
-03. Uroboros
-04. Don’t Fade Now(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCB67760AADE1EA2A05EFCF7A57DA6AE7415DC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620579   (245226) от 22.03.2023
-
-VA - The Rock Collection: Rock Ballads (1992) 2CD Compilation [FLAC|Lossless|tracks] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245226.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Chris de Burgh - Missing You (4:04)
-02. Smokie - Lay Back In The Arms Of Someone (4:05)
-03. Level 42 - Leaving Me Now (3:32)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:406EB3C836FF2E457B3214D5AFE827F4862AC3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609154   (245195) от 02.02.2023
-
-Heavy Blanket - Moon Is (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Danny (00:06:49)
-02 - Crushed (00:05:26)
-03 - Moon Is (00:05:00)
-04 - String Along (00:08:04)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF55D44E6A245A1B936573B4A681A6479D0D19F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621592   (245189) от 25.03.2023
-
-Herman Brood & His Wild Romance - Yada Yada (1988) [FLAC|Lossless|tracks + .cue]<Alternative Rock, Rock & Roll, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245189.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reel To Reel
-02. Sleepin' Bird
-03. Groovin'
-04. Street Flower(   Читать дальше...   )Жанр: Alternative Rock, Rock & Roll, Pop RockПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41822281671367D97534D1993C08A757BD7B97BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621624   (245182) от 25.03.2023
-
-King Moonracer - Hello To Kings (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pillow Talk [00:03:25]
-02. 1% with Glen Drover [00:03:22]
-03. Just One Bullet [00:04:42]
-04. Skelenaut [00:03:04](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32B545B7F85C4AE1969C923487131F335B66FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609141   (245111) от 02.02.2023
-
-Odessa - L'Alba Della Civiltà (2023) [FLAC|Lossless|tracks + .cue] <Progressive Rock, RPI>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La stanza vuota 1:24
-02. Invocazione 7:56
-03. Di buio e Luce parte 2 6:36
-04. L'alba della civiltа 6:34(   Читать дальше...   )Жанр: Progressive Rock, RPIПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABFF0428466B953689A7DADB9932BC93FD84847F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266284   (245087) от 01.12.2018
-
-David Cross - Crossing The Tracks (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, New Age>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Bird (feat. Sonja Karaushofer)
-02. Kalahari Fantasy
-03. For What It's Worth (feat. Anne-Marie Hurst)
-04. Prince Of Darkness(   Читать дальше...   )Жанр: Progressive Rock, New AgeПродолжительность: 00:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0445C9F8C6E11FEB45EA50A9072A3007B6FDA61E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609136   (245083) от 02.02.2023
-
-Riverside - ID.Entity (2023) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <Progressive Rock, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Friend or Foe? [00:07:28]
-02. Landmine Blast [00:04:50]
-03. Big Tech Brother [00:07:23]
-04. Post-Truth [00:05:37](   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:23:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BF41C0C14D2848E15B729AA5ED30E484753DB29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625045   (244902) от 08.04.2023
-
-The Grafenberg Disciples - Breathing Through My Ears (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive-Rock, Funk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Do You (3:11)
-02. The Flood (6:47)
-03. A Sense of Urgency (4:54)
-04. Alone in Avalon (5:19)(   Читать дальше...   )Жанр: Progressive-Rock, FunkПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D3346DAC8174F5F1D059995B73EE7D47A5AB46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624708   (244831) от 08.04.2023
-
-Aisles - Beyond Drama (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast (4:38)
-02. Megalomania (6:25)
-03. Thanks To Kafka (4:18)
-04. Disobedience (7:18)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 00:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9C68A980D71ED4115CF852C2A7FFF90A94D9F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566587   (244796) от 30.07.2022
-
-ZZ Top - RAW (2022) 'That Little Ol' Band From Texas' Original Soundtrack [FLAC|Lossless|image + .cue] <Blues Rock, Southern Rock, Soundtrack>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244796.jpg" />
-</div>
-
-
-###  Подробнее
-
-В пятницу, 22 июля, вышел RAW, новый альбом оригинального состава ZZ Top - Billy F Gibbons, Frank Beard и Dusty Hill - созданный в исключительных обстоятельствах. Альбом, выпущенный на лейбле Shelter Records/BMG, был записан в Gruene Hall в Техасе совместно с документальным фильмом ZZ Top: That Little Ol' Band from Texas, номинированным на премию GRAMMY. Режиссер (   Читать дальше...   )01. Brown Sugar (4:18)
-02. Just Got Paid (3:50)
-03. Heard It On The X (2:51)
-04. La Grange (4:42)(   Читать дальше...   )Жанр: Blues Rock, Southern Rock, SoundtrackПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37DBE0211906FA9A3AEED0CA53E9252F1BC0C693
 ```
 
 https://mybot314.ru/tekegram_catalog/

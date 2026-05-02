@@ -1,3 +1,29 @@
+###  Публикация: 1106677   (869234) от 21.02.2017
+
+Проекты - VideoHive - Unfold Slideshow [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Unfold Slideshow - шаблон является очень полезными и выполнен таким образом, чтобы по особому показать ваши изображения или видео. Этот проект содержит 10 настраиваемых заполнителей графики и текстов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1870B1104E50CFE2E6F0A81475CB3622B56F942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 766671   (868809) от 15.03.2014
 
 VideoHive - Fashion Bokeh III - 6592356 [AEP]
@@ -659,32 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB30D82FFB619104989E6581CA18F853A75192DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109316   (858657) от 27.02.2017
-
-Проекты - VideoHive - Modern Parallax Opener | Slideshow - 19421774 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Modern Parallax Opener | Slideshow - проект для создания слайд-шоу с 3D эффектом и последовательностью названий. Подойдет для создания кинематографического трейлера или титров к фильму.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6406228FD6C6DBFA31AB8222A264F5E7037E6A54
 ```
 
 https://mybot314.ru/tekegram_catalog/

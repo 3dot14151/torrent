@@ -1,3 +1,32 @@
+###  Публикация: 1579254   (339001) от 26.09.2022
+
+Def Leppard - On Through The Night (1980) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Brigade	3:08
+02. Hello America	3:56
+03. Sorrow Is A Woman	3:56
+04. It Could Be You	2:33(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:44:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB74A4FA49D5C59C0117032FB423549D7E6916C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579309   (338995) от 26.09.2022
 
 Def Leppard - Pyromania (1983) Reissue, Remastered, 1989, Mobile Fidelity Sound Lab [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
@@ -716,35 +745,6 @@ Chris Isaak - First Comes the Night (2015) Deluxe edition [MP3|320 кб/с]<Pop 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C24DAAC3D979B3B14FCDACED293192E96F984C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955969   (332215) от 12.11.2015
-
-Jeff Lynne’s ELO (Electric Light Orchestra) - Alone In The Universe (2015) Deluxe Edition [MP3|320 кб/с]<Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When I Was a Boy
-02. Love and Rain
-03. Dirty to the Bone
-04. When the Night Comes(   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115BF2A49509DF0917CC657C3C51B31D06C98740
 ```
 
 https://mybot314.ru/tekegram_catalog/

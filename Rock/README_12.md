@@ -1,3 +1,32 @@
+###  Публикация: 988867   (919195) от 21.02.2016
+
+Dark Circus - Lipstick Party Killer (2016) [MP3|320 кб/с] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thirty Seconds (04:07)
+02. How Long (03:23)
+03. The Hunter (03:55)
+04. Time (04:37)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D117E5D6495FF2194CAEA1037597DFA32BF6EAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096753   (919145) от 24.01.2017
 
 Christoffer Franzen [of Lights & Motion] - 9 Albums - 1 Single (2013-2017) [MP3|320 кб/с]<Instrumental, Post-Rock, Ambient>
@@ -717,35 +746,6 @@ VA -  Gothic Rock (Cleopatra Rec) (2001) [MP3|320 kb/s]<Gothic Rock / Post Punk>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369023   (905545) от 22.03.2020
-
-VA - Live Sounds Of Rock (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kiss - Black Diamond (Live)
-02. Aerosmith - Livin' On The Edge (Live)
-03. Blue Oyster Cult - Hot Rails To Hell (Live)
-04. Girlschool - Play Dirty (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E6F3DEEA71FB91FB78D130964B7E5800C035B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

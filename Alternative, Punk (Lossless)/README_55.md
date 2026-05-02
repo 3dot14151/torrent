@@ -1,3 +1,61 @@
+###  Публикация: 1583592   (228121) от 16.10.2022
+
+Bilmuri - GOBLIN HOURS (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corn-Fed Yetis (feat. Knox) [00:03:08]
+02. The Void Approacheth (feat. Summer Hoop) [00:04:02]
+03. Fairy- Void Type (feat. Seneca) [00:00:49]
+04. Muscle Bound Denizen (희망 없다) (feat. Shorelle) [00:03:11](   Читать дальше...   )Жанр: Alternative, Post-HardcoreПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D632A3B94F8AAD8B21A14596218D24F9D8F2A200
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583593   (228105) от 16.10.2022
+
+Hydra Vein - Unlamented (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228105.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khuylo [00:00:50]
+02. Does the End Justify the Means? [00:05:43]
+03. Unlamented [00:04:20]
+04. Eradication Zone [00:04:05](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89CA4BA194B84CCACD6624507B576E7427DD2871
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649778   (227896) от 30.07.2023
 
 William The Conqueror - Excuse Me While I Vanish (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt Rock, Indie rock>
@@ -687,64 +745,6 @@ Skindred - Smile (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Ragga-Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDB12B464CBCBE84122446B0A47E898E161CD364
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966106   (222617) от 16.12.2015
-
-Iggy Pop - Naughty Little Doggie (1996) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Live (4:32)
-02. Pussy Walk (3:47)
-03. Innocent World (3:27)
-04. Knucklehead (4:10)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A139B73C597141939AE18A64AF8ED31AED0F296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651423   (222319) от 06.08.2023
-
-Ellereve - Reminiscence (2023) [FLAC|Lossless|WEB-DL|tracks] <indie rock, alternative, dark rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gossamer Wings [00:01:13]
-02. In Infinite Light [00:03:00]
-03. Cosmos [00:05:04]
-04. Levitate [00:05:20](   Читать дальше...   )Жанр: indie rock, alternative, dark rockПродолжительность: 00:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5CDC14E05F3A11170C23EE88BFCB5B2D91F4E64
 ```
 
 https://mybot314.ru/tekegram_catalog/

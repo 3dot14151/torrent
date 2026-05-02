@@ -1,3 +1,32 @@
+###  Публикация: 1368592   (909206) от 20.03.2020
+
+Pop Smoke - Meet The Woo (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meet the Woo [02:01]
+02. Welcome To The Party [03:35]
+03. Hawk Em [01:59]
+04. Better Have Your Gun [03:20](   Читать дальше...   )Жанр: Rap, Hip-Hop, DrillПродолжительность: 00:27:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8E8985653FDCB4FEEE88FF511B2E0A63434C653
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368596   (909190) от 20.03.2020
 
 Pop Smoke - Meet The Woo 2 (2020) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
@@ -715,35 +744,6 @@ Bones & Drew The Architect - DamagedGoods (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDB88C152EB7DD65AF6BC032EBC13296EB70A934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380048   (835900) от 01.05.2020
-
-Drake - Dark Lane Demo Tapes (2020) Mixtapes [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Pockets (03:42)
-02. When To Say When (03:43)
-03. Chicago Freestyle (03:40)
-04. Not You Too (04:29)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91B1B7CF8C9A94CAB6AE4A9FD7FCC7D8EB9F7BDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

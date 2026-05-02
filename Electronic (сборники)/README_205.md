@@ -1,3 +1,61 @@
+###  Публикация: 1520307   (143818) от 27.12.2021
+
+VA - Beatport Electro House: Sound Pack #383 (2021) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143818.jpg" />
+</div>
+
+
+###  Подробнее
+
+Beatport постоянно находятся в поисках общего языка с аудиторией во всём мире и в канун уходящего года зарядили очередной 383-й релиз отличного Electro House! Эта великолепная коллекция представляет собой комбинацию самых лучших треков электронной музыки со всего света.001. Omar Fayyad - Recycle Your Love
+002. Ewan Rill - Fluid Dynamics
+003. Xandl - The Reason
+004. Lil D X Nm - I'm Gonna Fly(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6517BCF6AA6441346E7C55469B4CB31B7685268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520301   (143798) от 27.12.2021
+
+VA - Beatport Deep House: Sound Pack #385 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143798.jpg" />
+</div>
+
+
+###  Подробнее
+
+За окном холод и зима уже у двери, а музыка 385-го релиза от Beatport вновь напомнит о минувшем лете, жарком солнышке и ласковом море, бессонных ночах на танцполах и времени проводимого в кругу друзей. Самые лучшие хиты клубной музыки дарит Вам свежий микс , чтобы вновь подарить воспоминания о лучших днях и ночах прошедшего лета001. T Markakis - Gonna Be Alright
+002. Pedro Capelossi - Haute Couture
+003. Viel, Madraas - Omnes
+004. Thulane Da Producer - Stones(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864CF03723F42A09B36840DC6BA0035300F075CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970005   (143793) от 29.12.2015
 
 VA - Lounge Sensations (Lounge Masters) (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -694,64 +752,6 @@ VA - Better Than Sex (2CD) (2016) [MP3|320 Kbps] <Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F62FFE850B19AE21F91F1D1702B403FEA7747D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 689678   (140330) от 30.12.2013
-
-VA - Trance Top 100 2013.1 - 12 (2013) (Обновляемая) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Progressive Trance>
-
->>След.
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140330.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sied Van Riel - Past Present Future (Original Mix)
-002. Trance Arts & Colin James - Ballistic (Original Mix)
-003. TyDi - Sex & Lies & Still Oblivious (Club Mix)
-004. Mark Norman - Phantom Manor (MaRLo Remix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Progressive TranceПродолжительность: 144:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B720C86426DA40C478F9A349BF3FE58965F8782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088234   (140233) от 30.12.2016
-
-VA - Умная Электроника (Музыка Поднимающая Настроение) Часть 5 (Compiled by Zebyte) (2016) [MP3|320 Kbps] <Electro-Swing, Funky Breaks, Nu Cumbia>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freddy Verano, Natalia Doco - Comets (03:08)
-02. Orkesta Mendoza - Cumbia Volcadora (03:30)
-03. Mr. Haris Pilton & Gypsy Sound System - Gitanos (03:57)
-04. Trio Serenata - Cumbia Sobre El Mar (George T Rework) (03:15)(   Читать дальше...   )Жанр: Electro-Swing, Funky Breaks, Nu Cumbia, Ragga Jungle, Sambass, Trip-HopПродолжительность: 03:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AFB2DE87F042D3C7CAFBE9C0CAE562B7A3E276C
 ```
 
 https://mybot314.ru/tekegram_catalog/

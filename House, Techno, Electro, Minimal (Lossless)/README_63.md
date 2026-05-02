@@ -1,3 +1,32 @@
+###  Публикация: 1717453   (111148) от 20.04.2024
+
+Soul Button - Dual Realms Of Sound (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Button - Incendiary
+02. Soul Button - Dalliance
+03. Soul Button - Secret Sense
+04. Soul Button - Qabila(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01;14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42197CDC105F34E7A609E0C08D4E50B8D9943E39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718017   (110943) от 25.04.2024
 
 Механический Пёс - Benzin (2024) [FLAC|Lossless|WEB-DL|tracks] <Electroclash, Breaks, Industrial>
@@ -702,35 +731,6 @@ VA - Fulltime Production Electro 80, Vol. 3 (2013) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81148E9CE6B6087666CADE3872EA5A36D3EC0C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725134   (109076) от 23.05.2024
-
-VA - Organica 2024 (Compiled by Marga Sol) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riccardo Leardini & Sotiris Kastanis & Tibetania - Tripodon (Original Mix) (5:20)
-02. Elmancholy & Tibetania - Deep Into Your Soul (Original Mix) (4:18)
-03. Johny & Tibetania - Vasudevaya (Original Mix) (5:38)
-04. Juantxo Munoz & Robric & Tibetania - Oman (Original Mix) (6:22)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 02:07:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:392B7DC26A414F78005231283DCFCA3DB24FA2C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

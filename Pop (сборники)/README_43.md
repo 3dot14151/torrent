@@ -1,3 +1,119 @@
+###  Публикация: 1218900   (717661) от 12.04.2018
+
+VA - Весенний марафон на Europa Plus (4) (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717661.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Летта - Хочу Я Быть Твоей Невестой
+002. Оксана Бойко - Мини-Юбка
+003. Dikaya - Я Отдала
+004. Наташа Королева & Герман Титов - Если Мы С Тобой(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BB089B64D1E4F964525CAF8A032DE7D3BFDAC20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219081   (717659) от 12.04.2018
+
+VA - Экспресс русских хитов на Hit FM (4) (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717659.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Лев Тимашов Feat. А.Арсентьев - 48 Минут
+002. Неангелы - Точки
+003. Стас Пухх - Ты Как Пуля В Груди
+004. Сергей Восьмой - Скажи Мне Брат(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0ADA8082777214906C38D0A3E5417902785EFF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218980   (717657) от 12.04.2018
+
+VA - Экспресс русских хитов на Hit FM (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717657.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Nana - Вибрации
+002. Алекс Малиновский - Пойдем Со Мной
+003. Андрей Леницкий - Подари Мне Любовь
+004. Вирус - Лети(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C020E4347FC4728DEC0C41C374EB680BE771CC4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218978   (717027) от 12.04.2018
+
+VA - 100 Хитов Любимой Музыки (2018) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717027.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Светлана Лобода - Лети
+002. Егор Крид - Миллион алых роз
+003. Елена Темникова - Не сдерживай меня
+004. Сергей Лазарев - You put out the fire(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 06:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD4ED02DAD286D2CBCDDA9C98B88D99F3BDBD55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1130078   (716804) от 01.05.2017
 
 VA - Драйвовый весенний молодежный музон. Версия № 5 (2017) [MP3|256 Kbps] <Pop>
@@ -629,122 +745,6 @@ VA - De Top 100 Aller Tijden 1987 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ACB88122C9CF7669E16138EACAEDA32A849A839
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286659   (711325) от 03.03.2019
-
-VA - German Top 50 Official Dance Charts 01.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niels Van Gogh - Pulverturm (Tiësto's Big Room Remix)
-02. Calvin Harris - Giant
-03. Hugel - WTF (feat. Amber Van Day)
-04. Picco - Cubano(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DD2E61EA86FEF8B8677EE266258094AEA7F00E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532708   (710891) от 21.02.2022
-
-VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marnik & Alfons - Harry Potter Style
-02. Victor Ark - More Physical
-03. Charli Xcx - Good Ones
-04. Max Coveri - I Don't Wanna Break Your Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:55:05 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0859BDA41D52D3D1A2DE0EF9C030F4B1B1AE2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131153   (710661) от 04.05.2017
-
-Mark Ashley - Mp3 Play (2017) [MP3|320 Kbps] <EuroDisco, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Valerie
-02. Lover Why
-03. Stay
-04. It's All Over(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 04:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AE4CB1494819203E2F8E4AA49E75CA3F211CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219851   (709956) от 16.04.2018
-
-VA - Экспресс русских хитов на Hit FM (7) (2018) [MP3|256 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709956.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Елена Василевская - Мальчишка С Серыми Глазами
-002. Tsar - Улетим
-003. Альберт Ибраев - Я Встретил Девушку
-004. Fargo - Второе Имя(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B8208FC8A9A2DA4C51070A9A8FE51EE66549E30
 ```
 
 https://mybot314.ru/tekegram_catalog/

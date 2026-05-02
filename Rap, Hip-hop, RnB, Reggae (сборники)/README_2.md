@@ -1,3 +1,32 @@
+###  Публикация: 1382892   (815438) от 13.05.2020
+
+VA - Best Funk Of All Time (2020) [MP3|320 Kbps] <R&B, Soul & Funk>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815438.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Sly & The Family Stone - Remember Who You Are (3:17)
+2.Fat Larry's Band - Act Like You Know (6:30)
+3.Prince - Kiss (3:46)
+4.Wild Cherry - Play That Funky Music (5:00)(   Читать дальше...   )Жанр: R&B, Soul & FunkПродолжительность: 05:30:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B909D183BCD8454C2B7F11594A229F3EBD240A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1383073   (813743) от 14.05.2020
 
 VA - Jah Riddim (2020) [MP3|320 Kbps] <Reggae, Soul>
@@ -717,35 +746,6 @@ VA - Lost In Paradise: Sunny Reggae (2020) [MP3|320 Kbps] <Reggae, Ska, Riddim, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81119D9CEC4CA9E0DEDD566FB1C44E0AAE6FDDA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281219   (753372) от 07.02.2019
-
-VA - RnB Soul Mix: Hit Channel (2019) [MP3|320 Kbps] <R&B, Soul>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753372.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jão - Vou Morrer Sozinho
-002. Dj Omega - Can't Wait
-003. Nicki Minaj & Murda Beatz - Fefe
-004. Four Of Diamonds - Stupid Things(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 08:21:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739C0CE94B8B0069B54280129282570A75AAA845
 ```
 
 https://mybot314.ru/tekegram_catalog/

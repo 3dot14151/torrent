@@ -1,3 +1,61 @@
+###  Публикация: 1192381   (263199) от 17.12.2017
+
+VA - Record Super Chart #516 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don Diablo  -  Momentum  3:28
+02.  EKTONIX  -  Vuono Matyn  2:30
+03.  Alan Walker  -  The Spectre  3:14
+04.  Katy Perry feat. Nicki Minaj  -  Swish Swish (Mikis Remix)  4:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD8A72516D19C90410CE6D58EAA4BD4FA43EF86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1341144   (262938) от 26.11.2019
+
+VA - Sounds Of New Generation (2019) [MP3|320 Kbps] <Electronic, Synth Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262938.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Three Women In Charge - Dilly Dally
+002. Mentallo & The Fixer - Sacrilege
+003. Low Tape - Walking The Streets
+004. Beatamines - I Got (Original Mix)(   Читать дальше...   )Жанр: Electronic, Synth ElectronicПродолжительность: 13:25:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7355135B1E05DC2B937815E46F49BB701BE3583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341147   (262911) от 26.11.2019
 
 VA - Luky Number: Electronic Euphoria (2019) [MP3|320 Kbps] <Electronic, Synthetics Sound>
@@ -725,64 +783,6 @@ VA - No name compilation part 9 Electronic, Other (2025) [MP3|320 Kbps] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F24A18D3877941553A79C8A3639302B2C21EB8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837918   (257869) от 20.11.2025
-
-VA - No name compilation Deep Chill Vocal House part 11 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lost in Your Light
- 02 - Tears of Love
- 03 - I`m Falling
- 04 - Left Me(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EF2D9C380E0D042D9257C5473A8F1DC29CA32B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837841   (257592) от 19.11.2025
-
-LIYNA - Favorites Collection (2025) [MP3|320 Kbps] <Vocal Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - In Your Silence
- 02 - Tease
- 03 - The Last Level
- 04 - Unnamed(   Читать дальше...   )Жанр: Vocal Deep HouseПродолжительность: 00:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED13B8003BE14AC443511A925986ADD4B636C66
 ```
 
 https://mybot314.ru/tekegram_catalog/

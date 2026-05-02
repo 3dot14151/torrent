@@ -1,3 +1,32 @@
+###  Публикация: 1297875   (602617) от 25.04.2019
+
+Альянс - Альянс 87 На Заре (2019) 2CD, Remaster [FLAC|Lossless|Web-DL|tracks] <Pop Rock, New Wave, Synthpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Фальстарт (5:56)
+02. День освобождения (3:28)
+03. Падение взлёт (5:07)
+04. Порабощённые трудом (4:35)(   Читать дальше...   )Жанр: Pop Rock, New Wave, SynthpopПродолжительность: 01:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94CCCD864CDC5BEE20E5016D3E17EDEFD514988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298947   (601549) от 29.04.2019
 
 ПорноФильмы  - В диапазоне между отчаянием и надеждой (2017) [FLAC|lossless|image + .cue] <Punk Rock>
@@ -731,35 +760,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F0B937F900E068C52131202E262862BE4AE2DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554753   (573812) от 01.06.2022
-
-Альфа - Тёплый Ветер (1996) Unofficial Release, 2014, Episode Records [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Теплый ветер
-02. Осень
-03. Тени
-04. Орел(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4E86683A1AEBD1177E70C26D9201EE2795C240B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 599714   (999135) от 07.01.2013
+###  Публикация: 1488793   (1001471) от 13.08.2021
 
-Испанский узник / The Spanish Prisoner (1997) WEB-DLRip
+Журнал | OFF ROAD [Deutsch] №4 (апрель 2021) [PDF] [De]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001471.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Гениального изобретателя ложно обвиняют в промышленном шпионаже, краже и убийстве. Скрываться от полиции ему помогают новые товарищи — миллиардер и его прекрасная секретарша.Жанр: Триллер, Драма, ДетективРежиссер: Дэвид МэметАктеры: Кэмпбелл Скотт, Стив Мартин, Ребекка Пиджон, Бен Газзара, Рикки Джей, Фелисити Хаффмен, Ричард Л. Фридман, Джерри Графф...Перевод: Многоголосый закадровый (профессиональный)Продолжительность: 01:50:02
+OFF ROAD - Журнал о свободе на колесах: новейшие репортажи обо всем, что касается полного привода, внедорожников и вездеходов! С текущими испытаниями автомобилей, интересными сравнительными тестами, полезными темами обслуживания, захватывающими отчетами о поездках и последними новостями спорта и рынка OFF ROAD вдохновляет рынок на протяжении 35 лет и теперь более (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2E0E5ABAA9EE116E980D916172F858431B31B82
+magnet:?xt=urn:btih:89D9E975E9ACBB48F8E9696D9E77429745EEC720
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599503   (999134) от 07.01.2013
+###  Публикация: 1488841   (1001470) от 13.08.2021
 
-Узник Зенды / The Prisoner of Zenda (1979) DVDRip
+Hordak - The Last European Wolves (2006) Reissue, 2014, GS Productions [FLAC|Lossless|image + .cue] <Celtiberian Pagan Metal>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001470.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Трон погибшего короля Руритании должен занять принц Рудольф, живущий в Лондоне. Чтобы обезопасить наследника престола по дороге на родину, для принца находят двойника — извозчика Сида.Жанр: Комедия, ПриключенияРежиссер: Ричард КвинАктеры: Питер Селлерс, Линн Фредерик, Лайонел Джеффрис, Эльке Зоммер, Грегори Сьерра, Джереми Кемп, Кэтрин Шелл, Саймон Уильямс, Стюарт УилсонПеревод: Двуголосый закадровыйПродолжительность: 1:43:49
+01. For a New Pagan Age to Come(01:38)
+02. Silvano, senor de los bosques (05:19)
+03. The Last European Wolves (04:24)
+04. Son of the Fatherland (06:40)(   Читать дальше...   )Жанр: Celtiberian Pagan MetalПродолжительность: 00:50:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17BFF2866FBB955526C395AB4AB8E68B58621A70
+magnet:?xt=urn:btih:8FB7E034E29BBE89DB00B90E21F9F3897EFA36E8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,21 +53,75 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599887   (999133) от 07.01.2013
+###  Публикация: 1488795   (1001469) от 13.08.2021
 
-PGWare PCBoost 4.1.7.2013 [Multi/Русский]
+Журнал | OFF ROAD [Deutsch] №9 (сентябрь 2021) [PDF] [De]
 
->>Архив торрентов
->>Архив Программ
+>>Автомобили
+>>Автомобильные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001469.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PGWare PcBoost — это продвинутое программное средство, которое быстро в автоматическом режиме освободит ресурс вашей системы под запуск конкретной программы. Эта утилита предоставит вам возможность запускать приложения, такие как: компьютерные игры, программы для видео-фото редактирования на много быстрее, чем это было бы без поддержки данной программы. Утилита в автоматическом режиме возьмёт на себя задачу для выделения больших вычислительных мощностей для конкретных приложений, благодаря чему запущенные приложения работают быстрее.Название программы: PGWare PCBoostЯзык интерфейса: Multi/Русский
+OFF ROAD - Журнал о свободе на колесах: новейшие репортажи обо всем, что касается полного привода, внедорожников и вездеходов! С текущими испытаниями автомобилей, интересными сравнительными тестами, полезными темами обслуживания, захватывающими отчетами о поездках и последними новостями спорта и рынка OFF ROAD вдохновляет рынок на протяжении 35 лет и теперь более (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD3339ED350ED71FF9322151EB9E9CADF1413273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488770   (1001468) от 13.08.2021
+
+Отчий дом (изд.) | Советы православного врача (1998) [PDF, DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001468.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отечество наше издревле носило название “Русь Святая, Православная”. Называлась она так не потому только, что наши предки исповедовали Православную, а не иную какую-либо веру, но ещё потому, что они были крайне тверды в своей вере, любили Бога, ставили религиозные вопросы всегда на первый план, свято хранили и строго исполняли все установления Церкви.
+
+Пост, молитва (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81B6A99DDD610F0DD42F9D1FB62C0ED25C0793F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488800   (1001467) от 13.08.2021
+
+Журнал | NZV8 [NZ] №9 (сентябрь 2021) [PDF] [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001467.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал NZV8 был задуман, когда страстная сцена маслкаров нуждалась в авторитете. Благодаря большому количеству бэби-бумеров, культура маслкаров и V8 снова начинает процветать в Новой Зеландии.Жанр: Автомобильный журналФормат: PDF
 
 ## Скачать торент
 ```bash
@@ -76,34 +133,445 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598000   (999128) от 07.01.2013
+###  Публикация: 1488801   (1001466) от 13.08.2021
 
-VA - В ритме танца. Вальс (3CD) (2010) [MP3|320 кб/с]<Easy Listening, Waltzes>
+Журнал | NZV8 [NZ] №8 (август 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал NZV8 был задуман, когда страстная сцена маслкаров нуждалась в авторитете. Благодаря большому количеству бэби-бумеров, культура маслкаров и V8 снова начинает процветать в Новой Зеландии.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5680AC597F551960CB99EA3437713B195D7D3E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488802   (1001465) от 13.08.2021
+
+Журнал | NZV8 [NZ] №5 (май 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал NZV8 был задуман, когда страстная сцена маслкаров нуждалась в авторитете. Благодаря большому количеству бэби-бумеров, культура маслкаров и V8 снова начинает процветать в Новой Зеландии.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3004082D3F637ADAD623057854821289559855E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488803   (1001464) от 13.08.2021
+
+Журнал | NZ Performance Car [NZ] №291 (август-сентябрь 2021) [PDF] [En]
+
+>>Автомобили
+>>Автомобильные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001464.jpg" />
+</div>
+
+
+###  Подробнее
+
+NZ Performance Car - ежемесячный автомобильный журнал и веб-сайт, а также самый продаваемый журнал о автомобильной и мужской жизни в Новой Зеландии. Как второе издание Parkside Media, оно затмило успех NZ Classic Car.Жанр: Автомобильный журналФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168686B7912CC760CDF98A3D211255070D3A5DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488869   (1001463) от 13.08.2021
+
+Destruction - Live Attack (2021) 2xCD [MP3|320 Kbps] <Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001463.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкие трэш-метал ветераны Destruction выпустили свой новый концертный Blu-ray и CD "Live Attack" 13 августа этого года на лейбле Napalm Records. Он стал следующим релизом после "Born To Perish", напоминая о почти двухчасовой трэш-атаке в прямом эфире, которую группа устроила в январе этого года.CD - 1:
+ 01. Born to Perish (Live) (06:36)
+ 02. Death Trap (Live) (05:54)
+ 03. Nailed to the Cross (Live) (03:48)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:53:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205A6EA79BEF1937DB32F246E264BDEAE7DD83C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488733   (1001462) от 13.08.2021
+
+End Of Horizons - Unleash the Force (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Heavy Metal, Power Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Solnedgang (00:05:03)
+02 - Unleash The Force (00:03:22)
+03 - Between Heaven And Earth (00:03:33)
+04 - In Shallow Waters (00:05:27)(   Читать дальше...   )Жанр: Progressive Heavy Metal, Power MetalПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488847   (1001461) от 13.08.2021
+
+Duke Ellington & His Orchestra Featuring Mahalia Jackson - Black Brown & Beige (1958) 1998, Release Records [APE|Lossless|image + .cue] <Vocal Jazz, Big Band, Gospel>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Part I [8:16]
+02. Part II [6:12]
+03. Part III [6:21]
+04. Part IV (Come Sunday) [7:56](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, GospelПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488986   (1001460) от 13.08.2021
+
+Неудачный рейс / The Wrong Track (1920) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Совсем-совсем маленькая мульт-шутка, я бы сказал мульт-анекдот. Соль юмора довольно стара, но до сих пор забавна. Спойлерить не буду - смотрите.Производство: США, International Film ServiceJ.R. Bray StudiosЖанр: Рисованная анимацияРежиссер: Уолт ХобанПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские отдельным файломПродолжительность: 00:02:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37746CF642AADE6430E88ECB08EEE1A4D084FE00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488957   (1001459) от 13.08.2021
+
+Audiority - Polaris 1.8.1 VST, VST3, AAX (x64) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Polaris - это плагин эхо/реверберации, вдохновленный ранними аппаратными цифровыми ревербераторами конца 1970-х годов (такими как Ursa Major SST-282) и способный обеспечивать эхо, атмосферу и реверберацию из одной многопозиционной линии задержки.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D131C29675C9D0339E9ABC270BFA078A06B36E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488855   (1001458) от 13.08.2021
+
+Burn - Ice Age (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Global Warning (0:45)
+02. Irontown (4:25)
+03. Jealousy (5:00)
+04. Hate (4:37)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:06:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488981   (1001457) от 13.08.2021
+
+Начинающий авиатор / L’Apprenti aviateur (1910) DVDRip
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001457.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну, вот есть такие люди - горит в них страсть к полетам, хотят они летать аки птицы небесные. Готовы на все пойти ради этого. Вот и наш энергичный французик пробует разные способы полетов.Производство: Франция, GaumontЖанр: Комедия, короткометражный, немое киноРежиссер: НеизвестенАктеры: НеизвестныПеревод: Немой с интертитрамиСубтитры: Французские интертитры, русские отдельным файломПродолжительность: 00:04:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488934   (1001456) от 13.08.2021
+
+Dopefist - Nice Dreams (2019) Gated [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Acid, Breaks>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Intimidated You Colourful Sound (02:41)
+ 02. Nice Dreams (04:07)
+ 03. Sea Salt (04:18)
+ 04. Naramata (04:04)(   Читать дальше...   )Жанр: Electro, IDM, Acid, BreaksПродолжительность: 00:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF4C70841539EF491C13F9A40ABF304A3844BE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488613   (1001455) от 13.08.2021
+
+VA - Lotus Love: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ann Grace - Intromotion (1:35)
+02. La Estación Del Mar - Un Bano En El Lago (4:45)
+03. Slow World - Deep Inside (Original Mix) (5:21)
+04. Der Waldläufer - Yanaras Light (Original Mix) (4:34)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A905B4800A84C0B281FC2921D9ABB72E698396B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488760   (1001454) от 13.08.2021
+
+Mick Paul - Parallel Lives (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Days (06:14)
+02. Light Of Silence (04:55)
+03. No Horizon (04:03)
+04. Parallel Lives (05:23)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488968   (1001453) от 13.08.2021
+
+Aeon Cub - Vacant King (2021) Kaer'Uiks [FLAC|Lossless|WEB-DL|tracks] <IDM, Glitch, Abstract>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vacant Lot (02:52)
+ 02. Scrap Sailing (02:14)
+ 03. Character Creation (00:31)
+ 04. Body For Barter (00:37)(   Читать дальше...   )Жанр: IDM, Glitch, AbstractПродолжительность: 00:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2255D408F08BC7F4828D0326C67FF6BFCA79C70F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488879   (1001452) от 13.08.2021
+
+VA - City Marathon: Music For Running (2021) [MP3|320 Kbps] <Hard Dance, Hardstyle, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001452.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Riddler - Riddle Me This
+002. Killshot & The Straikerz - Here We Go Again
+003. Bicipay feat Yumi - Dance All Day
+004. Hypnose - You & Me(   Читать дальше...   )Жанр: Hard Dance, Hardstyle, ElectroПродолжительность: 09:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A45BCAA09B58FD134D457F432AC407741645125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488938   (1001451) от 13.08.2021
+
+Paleowolf - Cenozoic (2021) Prometheus Studio [FLAC|Lossless|WEB-DL|tracks] <Tribal, Dark Ambient>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1. Будь, что будетЖанр: Easy Listening, WaltzesПродолжительность: 01:04:35
-45. Edelweiss - Dauglas Gamley And His Orchestra
-46. A Place In Paris - Matt Monro & Michael Legrand And His Orchestra
-47. Valsinha - Dominique Chatelain,His Piano And Orchestra
-48. Where Is Your Heart - Mary Carewe
-49. The Canals Of Amsterdam - Ben Cramer
-50. Les Filles Du Bord De Mer - Christian Colombier And His Orchestra
-51. Paris Musette - Paul Mauriat And His Orchestra
-52. Frou-Frou - Ralph Benatar And His Orchestra
-53. L'amour Est Un Bouquest De Violettes - Lei Wang,Violin With The Fierland Fest.(   Читать дальше...   )
+01. Entelodon (03:58)
+ 02. Sivatherium (06:36)
+ 03. Deinotherium (06:10)
+ 04. Paraceratherium (06:03)(   Читать дальше...   )Жанр: Tribal, Dark AmbientПродолжительность: 00:56:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F09C6A71D76BD1C4C227B4AD9D36B4C4D8F79164
+magnet:?xt=urn:btih:5754E7D514FC1B057A09556FF1C4361E5C4F020A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,25 +579,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599686   (999124) от 07.01.2013
+###  Публикация: 1488935   (1001450) от 13.08.2021
 
-Рисованная графика - Artworks by Sushi XAV
+VA - EDM Crazy Night Music Party (2021) [MP3|320 Kbps] <EDM, Pop Dance, Dance House>
 
->>Графика, Арт, Разное
->>Современное изобразительное искусство
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999124.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы художника-иллюстратора Sushi XAV.
+001. Felix Harrer, Jay Frog - Your Lies
+002. Gigi D'agostino - The Love Do Do
+003. Tiesto & Becky Hill - Nothing Really Matters
+004. Allan Mcluhan - Acid Theory(   Читать дальше...   )Жанр: EDM, Pop Dance, Dance HouseПродолжительность: 09:26:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D30846662B5ED83DE31D625B9F7BA8B9158DF49F
+magnet:?xt=urn:btih:113F68D05B43EA09B174E585857BF55B94EC2C04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,25 +608,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599711   (999121) от 07.01.2013
+###  Публикация: 1489002   (1001449) от 13.08.2021
 
-Рисованная графика - Artworks by Kyoung Hwan Kim
+Tamayomi | Tamayomi: The Baseball Girls | Тамаёми [2020, TV, 12 эп.] BDRip 1080p 10-bit raw
 
->>Графика, Арт, Разное
->>Современное изобразительное искусство
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы художника-иллюстратора Kyoung Hwan Kim.
+В средней школе команда питчера Ёми Такэды не смогла далеко продвинуться в чемпионате по бейсболу, так как у кэтчера не получалось поймать коронную «волшебную подачу» Ёми. Девочка решила бросить бейсбол и поступила в старшую школу Синкосигая, где даже не было собственной команды. Но оказалось, что в этой школе учится Тамаки Ямадзаки — подруга детства Ёми, вместе (   Читать дальше...   )Производство: Студия Studio A-CATЖанр: повседневность, спортРежиссер: Фукусима ТосинориПеревод: официальный (Wakanim)
+(дехардсабЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8ED814F9AC0087AB62FC239DA2F976A9C6F7254
+magnet:?xt=urn:btih:04EDAC7A31EE11EFB0DBBEE54FBB2C80A14A31EA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -163,152 +635,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 598967   (999120) от 07.01.2013
+###  Публикация: 1488424   (1001448) от 13.08.2021
 
-Jesse Cook - Greatest Hits (2CD) (2010) [MP3|320 кб/с]<New Age, Flamenco, Instrumental>
+Sweetmouth Featuring Brian Kennedy - Goodbye To Songtown (1991) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop Rock>
 
->>Other Styles
->>Instrumental
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-Продолжительность: 01:19:34
-01. [03:49] Mario Takes a Walk
-02. [03:01] Tempest
-03. [04:10] Paloma
-04. [03:06] Bogota by Bus
-05. [03:29] Matisse the Cat
-06. [04:08] Virtue
-07. [03:48] Rattle and Burn
-08. [03:58] Gravity(   Читать дальше...   )Жанр: New Age, Flamenco, InstrumentalПродолжительность: 02:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BBBC911DF331113F9E476EF046940E229CB052B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598659   (999119) от 07.01.2013
-
-Fausto Papetti - Movie Land (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Theme from 'The Godfather'
-02. Sleep Walk
-03. Cabaret
-04. Love Theme from 'Blade Runner'
-05. Laura
-06. Love Story
-07. Djamballa
-08. Love me tender
-09. As Time Goes By
-10. Hello Dolly(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:19:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42D02D24FC60C33879EBB5C95F8B010CC0822FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599676   (999117) от 07.01.2013
-
-Фотография - Photos from Paolo Candian
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999117.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы фотографа Paolo Candian.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB5174027A8F829E5C18AF78872BC7699878332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598653   (999116) от 07.01.2013
-
-Anthony Ventura - Romantische Momente (2010) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999116.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) La vie en rose (Schau mich bitte nicht so an) 03:03
-2) I Have A Dream 04:17
-3) Blue Bayou 02:29
-4) Tornero - Non succedera piu 04:52
-5) Save The Last Dance For Me 02:36
-6) You've Lost That Loving Feeling - Unchained Melody 04:01
-7) Bright Eyes 02:45
-8) Soleado (Tranen lugen nicht) 02:09
-9) Hey Jude 04:05
-10) Morning Has Broken 02:16(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC962415115965278C10CE33C7BF65E0EA645F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599467   (999115) от 07.01.2013
-
-streamWriter 4.3.02 + Portable [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999115.jpg" />
-</div>
-
-
-###  Подробнее
-
-streamWriter - бесплатное приложение для записи интернет-радио, музыки, распространяемой радиостанциями в интернет. Одновременная запись стольких потоков, сколько вы хотите (MP3/AAC). Автоматическое определение композиций, которые пользователь внес в особый список, и их последующая выборочная запись из потока аудио. Возможность редактирования списка желаемых и игнорируемых песен.Название программы: streamWriterЯзык интерфейса: Multi/Русский
+A1 Dangerous
+A2 Home To Heartache
+A3 I Know Why The Willow Weeps
+A4 Forgiveness(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:02
 
 ## Скачать торент
 ```bash
@@ -320,91 +664,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599707   (999112) от 07.01.2013
+###  Публикация: 1488881   (1001447) от 13.08.2021
 
-Рисованная графика - Artworks by Marta Dahlig
+Наталья Лапина - В твоей постели (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Работы художника-иллюстратора Marta Dahlig.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:309A449E28D54D1A045C275F9E5A5BC0B8D24D1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599247   (999111) от 07.01.2013
-
-Мадера Хард Блюз - 3 альбома (2002-2010) [MP3|320 кб/с]<Blues, Hard rock, Rock'n'roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999111.jpg" />
-</div>
-
-
-###  Подробнее
-
-(5:34) 01. Мой образ жизни рок-н-ролл
-(5:15) 02. Белый пароход
-(3:54) 03. Я охраняю свой покой
-(5:18) 04. Прощай, брат
-(3:24) 05. Спасибо, Родина
-(6:14) 06. Аэроплан
-(3:52) 07. Бред
-(5:16) 08. Тоска
-(3:52) 09. Песня покойника
-(5:51) 10. Патологоанатом(   Читать дальше...   )Жанр: Blues, Hard rock, Rock'n'rollПродолжительность: 01:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A0DED7111566D22A2BD3ACFFBB9D68E6F093BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599706   (999110) от 07.01.2013
-
-Jane Monheit - 6 Албомов (2000-2009) [FLAC|Lossless]<Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like A Star [05:16]
-02. Something Cool [04:57]
-03. Slow Like Honey [05:58]
-04. This Girl's In Love With You [04:56]
-05. I'm Glad There Is You [05:08]
-06. Get Out of Town [03:41]
-07. I Do It For Your Love [04:04]
-08. I Ain't Gonna Let You Break My Heart [05:21]
-09. Ballad of the Sad Young Men [06:01]
-10. No Tommorrow [05:13](   Читать дальше...   )Жанр: Jazz VocalФормат: trac+cueПродолжительность: 001:03:14
+01. В твоей постели (4:14)
+ 02. Сигаретка (4:58)
+ 03. Под небом пьяным (3:33)
+ 04. В Питере дождь (4:41)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 01:00:02
 
 ## Скачать торент
 ```bash
@@ -416,345 +693,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 599949   (999109) от 07.01.2013
+###  Публикация: 1488734   (1001446) от 13.08.2021
 
-Slade At The BBC (1969-1991) (2012) DVDRip
+Семейка Грин в городе / Big City Greens (2018) WEBRip [H.264/1080p-LQ] (Сезон 1, Серии 1-30 из 30)
 
->>Театр и Музыкальное видео
->>Музыкальные клипы
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ретроспективная передача канала BBC4 от 21 декабря 2012 года. Коллекция студийных видеозаписей BBC 1969-1991 годов и01.Intro
-02.Martha My Dear /Monster Music Mash 1969/
-03.Wild Winds Are Blowing /Monster Music Mash 1969/
-04.Coz I Luv You /TOTP 1971/
-05.Mama Weer All Crazee Now /TOTP 1972/
-06.Gudbuy T' Jane /TOTP 1972/
-07.Cum On Feel The Noize /TOTP 1973/
-08.My Friend Stan /TOTP 1973/
-09.Everyday /TOTP 1974/
-10.How Does It Feel /Crackerjack 1975/(   Читать дальше...   )Жанр: Музыка, Rock, Glam RockПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76A116B664E6A9BEBE4480ECDFD6937C5A023954
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598965   (999105) от 07.01.2013
-
-Анатолий Днепров - Романсы (2012) [MP3|320 кб/с]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999105.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Радовать (5:46)
-2. Ах, как жаль (3:37)
-3. Красивая (3:48)
-4. Не предавай (2:58)
-5. Танцуй (4:07)
-6. Колечко (4:36)
-7. Прости (3:29)
-8. Верю я (4:15)
-9. Посвящение мамам И.Талькова и М.Круга (3:34)
-10. Спасибо (5:12)(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161386EDC4381F2339DC4E5648D9A213E61E60DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599997   (999104) от 07.01.2013
-
-NXPowerLite Desktop Edition 5.0.8 [Multi/Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999104.jpg" />
-</div>
-
-
-###  Подробнее
-
-NXPowerLite Desktop Edition 5 уменьшает размер больших файлов Word, Excel, PowerPoint, JPEG и PDF, упрощая процесс их отправки по электронной почте. Программа NXPowerLite Desktop Edition, используемая более чем миллионом человек по всему миру, устраняет «вздутие» файлов, уменьшая размер файлов PowerPoint, Word, Excel, JPEG и PDF со степенью сжатия до 95%. Программа также интегрируется с почтовым клиентом для автоматического сжатия вложений при их отправке.Название программы: NXPowerLite Desktop EditionЯзык интерфейса: Multi/Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598666   (999103) от 07.01.2013
-
-James Last - Title Of Album: Christmas with Romance (2011) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance For Violin And Orchestra No.2 In F Opus 50
-02. Stille Nacht
-03. Air On A G String
-04. Medley: White Christmas / Midnight In December / Jingle Bells
-05. Elvira Madigan
-06. Rosen Aus Dem Suden Opus 388
-07. Impromptu No.2 In A Flat Opus 142
-08. Le Quattro Stagioni Opus 8: Largo
-09. Sonata No.8 In C Minor Opus 13 "Pathetique": 2. Adagio
-10. Nocturne No.8 In D Flat Opus 27 No.2: Lento Sostenuto(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB00C4F6D7478BD7303686FED263DCD324E1348B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600016   (999102) от 07.01.2013
-
-К. Бюрги, У. Хоффманн | Снежинки из бусин, бисера и стекляруса. Практическое руководство [2011] [PDF]
-
->>Разное (категория книг)
->>На досуге
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снежинки из бусин, бисера и стекляруса – великолепные и оригинальные украшения для елки, окна или арки. Из них можно также сделать гирлянды и развесить на разной высоте. Такие украшения способны преобразить простую комнату в хрустальный замок или сказочный дворец Снежной королевы.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD777BB5B06A6969CE0F57246F968CE621541035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599782   (999099) от 07.01.2013
-
-4Videosoft PDF Converter Ultimate 3.1.10 [Английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999099.jpg" />
-</div>
-
-
-###  Подробнее
-
-4Videosoft PDF Converter Ultimate - это мощная программа, которая поможет вам конвертировать PDF файлы в Word, Excel, текстовые файлы, изображения (JPEG, PNG, GIF, BMP, PCX, TGA, TIFF), в формат электронных книг (ePub) и формат HTML. Программа поддерживает режимы пакетного и частичного преобразования, имеет приятный и понятный интерфейс.Название программы: 4Videosoft PDF Converter UltimateЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599631   (999097) от 07.01.2013
-
-Сестра / L'enfant d'en haut (2012) DVDRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток Симон живет со своей сестрой-алкоголичкой неподалеку от шикарного швейцарского горнолыжного курорта. Поскольку сестра нигде не работает, Симон занимается тем, что ворует у богачей снаряжение и потом продает по дешевке неподалеку от дома.Жанр: ДрамаРежиссер: Урсула МейерАктеры: Кейси Моттет Кляйн, Леа Сейду, Мартин Компстон, Джиллиан Андерсон, Жан-Франсуа Стевенен, Янн Трегуэ, Габен Лефевр, Магне Брекке, Simon Guélat, Mike WinterПеревод: Любительский (одноголосый)Продолжительность: 01:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C92DF17D55B3153A5A0FB4484769BC2AA5C6C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599738   (999094) от 07.01.2013
-
-Фотография - Photos from Rambo's
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работы фотографа Rambo's .
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0709990475E748CEB971165E93E4A48DA5CA376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598573   (999092) от 07.01.2013
-
-Bel Suono - Мегаполис (2012) [MP3|320 кб/с]<Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Libertango, (I've seen that face before) музыка Astor P.Piazzolla
-02 Мегаполис музыка Евгений Соколовский
-03 Одинокое сердце музыка Евгений Соколовский
-04 Bolero музыка Maurice Ravel
-05 Вальс музыка Евгений Соколовский
-06 Танец рыцарей
-музыка Сергей Прокофьев (Ромео и Джульетта / Танец Рыцарей)
-сузыка Сергей Рахманинов (Прелюдия Соль минор)
-07 Молитва (Bel Suono & Камо Сейранян (дудук)) музыка Алексей Рыбальчик
-08 Лето музыка Antonio Vivaldi (Four Season - Summer)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:00:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987491B1617A0762BA46341999C5BADBCB055563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599842   (999091) от 07.01.2013
-
-Chakra (Arch + KDE) 2013.01 [x86-64] (1xDVD)
-
->>Архив торрентов
->>Архив *Nix
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chakra Project Team выпустила пятый релиз серии Claire – Chakra GNU/Linux 2013.01, в который внесены некоторые изменения по сравнению с предыдущими релизами.
-
-Новые версии в этом релизе: KDE 4.9.5 с некоторыми дополнениями из предстоящего релиза 4.10 ; Linux ядро 3.6.6.1 (3.0.43 optional); образ DVD дополнительно включает все локали и новый селектор выбора приложений; обновлены OpenSSL и krb5, для ISOlinux сделана  "подтяжка лица", добавлена возможность загрузки в уже присутствующую на диске операционную систему, Memtest86+ options и многое другое.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598953   (999090) от 07.01.2013
-
-Черная мантия для убийцы / Une robe noire pour un tueur (1980) VHSRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Адвокат по уголовным делам, убежденная противница смертной казни, скрывает у себя преступника, обвиненного в убийстве полицейского. Она уверена, что ее подзащитный невиновен. Рискуя своим положением, Флоранс берется помочь ему добиться правосудия и начинает собственное расследование...Жанр: драма, криминалРежиссер: Жозе ДжованниАктеры: Анни Жирардо, Клод Брассер, Бруно Кремер, Ариэль Домбаль, Жак Перрен, Катрин Аллегре, Альбина дю Буарувре, Жак Мори, Франсуа-Эрик Жендрон, Филип Дюкло, Арль Гонсалес, Дидье Совегран, Аньез Шато, Жан Шампьон, Патрик Лоран, Жан де Конинк, Рено ВерлейПеревод: Профессиональный: (двухголосый закадровый)Формат: AVIПродолжительность: 01:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80947D9426A688D20FD8CAFA2A75ED8DA31B678D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599897   (999088) от 07.01.2013
-
-PGWare Throttle 6.1.7.2013 [English]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999088.jpg" />
-</div>
-
-
-###  Подробнее
-
-Throttle - утилита предназначена для настройки параметров ваших модемов на максимальное быстродействие, что в результате может привести к более чем 200-процентному увеличению скорости работы. Вы просто выбираете свою OS, тип соединения (14.4/28.8/33.6/56k, кабельный модем, DSL/ADSL модем, ISDN, Satellite, T1/T3/OC3/OC12+, локальная сеть, 3G-модемов) и нажимаете кнопку "Go". Остальное программа сделает сама! Как отмечают разработчики, программа изменит ряд ключевых параметров работы модема, например, улучшит определение сигнала "занято", уменьшит количество обрывов связи и т.д. Программа работает со всеми типами модемов подо всеми операционными системами семейства Windows.Название программы: PGWare ThrottleЯзык интерфейса: English
+Жизнь неугомонного школьника Крикета Грина неожиданно меняется, когда его семья решает переехать из деревни в мегаполис к бабуле Элис. В Большом городе Крикету, его старшей сестре Тилли и их отцу Биллу предстоит попасть не в одну забавную переделку, пережить множество захватывающих приключений и, конечно, найти новых друзей.Производство: США, Корея Южная, Walt Disney Television AnimationЖанр: Комедия, Минисериал, ПриключенияРежиссер: Крис Хотон, Моника Рэй, Мэтт Брэли, Тиффани Форд, Шэйн Хотон , Наташа КлайнАктеры: Александр Матвеев, Анастасия Жаркова, Александр Хорлин, Антон СавенковПеревод: Дублированный (Кириллица)Язык озвучки: Русский, АнглийскийСубтитры: АнглийскиеПродолжительность: ~00:22:00 серия
 
 ## Скачать торент
 ```bash

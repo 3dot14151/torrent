@@ -1,3 +1,61 @@
+###  Публикация: 1791801   (67773) от 15.04.2025
+
+Frankie Campofelice - Every Night at Seven (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Things in Life Are Free (3:40)
+02. This Can't Be Love (2:45)
+03. Hello, Young Lovers (4:57)
+04. But Beautiful (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B091BD94201FB421303E0277A760F01FAFF25E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792092   (67771) от 17.04.2025
+
+VA - House Adventures 12 & 13 (Black Mighty Wax presents) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funky House>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nadyne Rush - Let's Fall In Love (Jay Caruso Remix) (3:02)
+02.  Filippo Perbellini - Billie Jean (Belladonna Deep Mix) (6:05)
+03.  Paolo Faz - Kiss Of Life (Ken's Mix) (5:48)
+04.  Stevie Biondi - JoJo (Ken@Work Soulmood Remix) (5:48)(   Читать дальше...   )Жанр: Jazz, Funky HouseПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ADE76E1ABA466439C9BEAF2B35803B6D64CDAC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792088   (67766) от 17.04.2025
 
 VA - Easy Living: Spring Jazz Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -686,64 +744,6 @@ Bettye Lavette - Interpretations: The British Rock Songbook (2010) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEFC3D5029C8414CE9ED657D05EF30A30C0DE0B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794848   (67212) от 01.05.2025
-
-Saori Yano - Groovin' High (2006) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak Low [9:21]
-02. Manteca [6:56]
-03. My Ideal [6:11]
-04. Greenism [4:45](   Читать дальше...   )Жанр: Post-Bop, BopПродолжительность: 01:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A0EB943C9616A77DFD0056BBB99EC6CEA8F4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794846   (67211) от 01.05.2025
-
-Saori Yano - Sakura Stamp (2005) Jroom Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Lee [1:54]
-02. Sweet Love of Mine [6:26]
-03. Sakura Stamp [6:39]
-04. Shawnuff [4:34](   Читать дальше...   )Жанр: Post-Bop, BopПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40355A09BDDEC10F047144590B4DD79B7388F394
 ```
 
 https://mybot314.ru/tekegram_catalog/

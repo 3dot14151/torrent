@@ -1,3 +1,352 @@
+###  Публикация: 659314   (775329) от 22.05.2013
+
+Iron Butterfly - 10 альбомов (1968-1993) Различные издания [FLAC|Lossless]<Rock,  Hard Rock, Prog Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Само название группы избавляет меня от необходимости пространного описания. Четыре альбома группы поднимались в первую двадцатку Billboard 200, альбом In-A-Gadda-Da-Vida (#4, US, 1968) разошёлся общим тиражом более 25 миллионов экземпляров.
+Хотелось пояснить, что In-A-Gadda-Da-Vida представлена здесь в двух вариантах (первый - это японская реплика винила, второй (   Читать дальше...   )Список альбомов:
+1968 - Fillmore East (Live)(2011 ARC RHM2 526745 Rem.)
+1968 - Heavy (1993 Rhino WEA 71521 Rem.)
+1968 - In-A-Gadda-Da-Vida (2006 VICW-60002 Japan Rem.)(   Читать дальше...   )Жанр: Rock,  Hard Rock, Prog Rock, Classic RockПродолжительность: 01:13:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015024   (775069) от 10.05.2016
+
+Jоhn Illslеу - Теsting Тhе Wаtеr (2014) [FLAC|Lossless|tracks] <Rock, Blues Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Railway Tracks    04:59
+02. Nothing To Do    04:24
+03. Testing The Water    05:10
+04. Sometimes    03:47(   Читать дальше...   )Жанр: Rock, Blues Rock, Folk RockПродолжительность: 00:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D80075FFEA4EE27BA2576B23980F4D0FFA1B189E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277711   (775000) от 22.01.2019
+
+Yo5 и Андрей Макаревич - Yo5 (2018) [WavPack|Lossless|wv.iso] <Jazz-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Эпоха Большой Нелюбви
+2. Я Рисую Тебя
+3. Она Идет По Жизни Смеясь
+4. Паузы(   Читать дальше...   )Жанр: Jazz-RockПродолжительность: 00:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CF91F5CA1A73B33A19A424513DF59AA9C0E6631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015109   (774932) от 10.05.2016
+
+Joe Cocker - No Ordinary World (1999) [APE|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First We Take Manhattan
+02. Different Roads
+03. My Father’s Son
+04. While You See a Chance(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06996C3BA305FF7253FE8754A3F900A44F43DE4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277543   (774304) от 23.01.2019
+
+The 69 Eyes - Devils (2004) [FLAC|Lossless|tracks + .cue] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Devils (3:53)
+02.Feel Berlin (4:10)
+03.Nothing On You (4:11)
+04.Sister Of Charity (5:05)(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780A090C343289371BE43B98370B74FEE23444F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015622   (773937) от 11.05.2016
+
+Creedence Clearwater Revival - 6 альбомов (1968 - 1986) 6CD, 24 Karat Gold Collection [FLAC|Lossless|image + .cue]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk On The Water 04:28
+02. Susie Q (Part II) 03:48
+03. Born On The Bayou 05:10
+04. Good Golly Miss Molly 02:38(   Читать дальше...   )Жанр: Classic RockПродолжительность: 04:19:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E13511EA4012375EF5356658F99824D30EF8590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1213181   (773353) от 15.03.2018
+
+Blueneck - Discography 12 Releases (2006-2018) Don't Touch, Denovali Records [FLAC|Lossless|tracks+.cue, tracks] <Post Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Beyond (Rapture Mix) (06:15)
+ 02. Ghosts (Jovian Mix) (03:41)
+ 03. Hypnos (Dark Waters Mix) (05:58)
+ 04. Rats In The Wall (Liberation Mix) (05:15)(   Читать дальше...   )Тип издания: CD, Web |Жанр: Post Rock •Продолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53525A141AC133482610CA6CDB34AC4408E3E74B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277746   (773169) от 24.01.2019
+
+Missy Higgins - 18 Releases (2003-2018) Коллекция [FLAC|Lossless|tracks + .cue, tracks] <Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All For Believing (03:29)
+02. Don't Ever (02:54)
+03. Scar (03:36)
+04. Ten Days (03:48)(   Читать дальше...   )Тип издания: CD, Web •Жанр: Soft Rock, Pop Rock •Продолжительность: 09:37:58 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96F8C6FC5B7B2F70DF2D42404311FB0B6AFE2A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015750   (772823) от 12.05.2016
+
+John Carpenter - Lost Themes II (2016) [FLAC|Lossless|WEB-DL|tracks] <Cinematic Post Rock, Electronic Rock, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Distant Dream
+02. White Pulse
+03. Persia Rising
+04. Angel's Asylum(   Читать дальше...   )Жанр: Cinematic Post Rock, Electronic Rock, AmbientПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FB130A681AA21956DE6B27212B216036AB3B15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278527   (771992) от 25.01.2019
+
+Citay - Little Kingdom (2007) [FLAC|Lossless|tracks + .cue] <Acoustic, Psychedelic Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Fantasy (6:45)
+ 02. Little Kingdom (6:40)
+ 03. A Riot of Color (5:27)
+ 04. On the Wings (7:49)(   Читать дальше...   )Жанр: Acoustic, Psychedelic Rock, Prog RockПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0C7C88037F9B02838C06DA5D607B59CF91E35C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016698   (769686) от 15.05.2016
+
+Joe Cocker - Civilized Man (1984) [FLAC|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Civilized Man
+02. There Goes My Baby
+03. Come On In
+04. Tempted(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1992253158365C41564DD10923C669F84682A315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016816   (769634) от 15.05.2016
+
+Joe Cocker - Unchain My Heart (1987) [APE|Lossless|image + .cue] <Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unchain My Heart
+02. Two Wrongs
+03. I Stand In Wonder
+04. The River's Rising(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2882BBE137EEDE7806C2BBE707C562AAA07936C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016806   (769632) от 15.05.2016
 
 Joe Cocker - Cocker (1986) [FLAC|Lossless|image + .cue] <Rock, Blues>
@@ -397,352 +746,6 @@ Pink Floyd - Animals, The High Resolution Remasters (2017) The Archives Records 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCA8A285511D2A8A6EA8295A6349AE0DB44728D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126012   (766284) от 17.04.2017
-
-Retrospective - Re:Search (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была образована в 2005 году Robert Kusik (ударные) и Maciej Klimek (гитара) и вначале называлась “Hollow”.
-В 2006 году еще четверо музыкантов присоединились к Hollow: Alan Szczepaniak (гитара), Łukasz Marszałek (бас), Beata Łagoda (клавишные) and Jakub Roszak (вокал). В том же году они записали свое первое демо, в котором прослеживалась склонность (   Читать дальше...   )01. Rest Another Time (5:04)
-02. Right Way (4:51)
-03. The End Of Their World (4:49)
-04. Roller Coaster (5:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886AA2D968089375C55D930500EB002A91747C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126398   (765485) от 18.04.2017
-
-The Ryszard Kramarski Project - Music Inspired By The Little Prince (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765485.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Android B-612 (4:13)
-02. The Little Prince (5:12)
-03. The Rose With Four Thorns (6:33)
-04. Galaxy Freaks (6:35)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B301CFB94EB0C0B51803CBF2A780A436A3F37ECB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126314   (765437) от 18.04.2017
-
-Jon English - Beating The Boards (1982) Remastered 2016 [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard Rock, Classic RockПродолжительность: 01:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E725F782658A956B671AEEBA4745209617F1A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214064   (764899) от 21.03.2018
-
-Free - All Right Now: The Essential (2018) 3CD [FLAC|Lossless|tracks] <Rock, Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Free - британская рок-группа, образовавшаяся в 1968 году в Лондоне, Англия и всемирную известность получившая в 1970 благодаря хиту "All Right Now".  Free выпустили шесть студийных альбомов, которые (согласно Allmusic) способствовали подъёму и развитию хард-рока. Пол Роджерс после распада Free в 1973 вместе с Саймоном Кирком образовал "Bad Company". (   Читать дальше...   )CD1:
-01.  All Right Now  5:33
-02.  Fire And Water  3:57
-03.  Mr. Big  5:53(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 02:59:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC4C9A21504D5C02CFC8EB0AF4B5343869EB325
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279745   (764594) от 31.01.2019
-
-Artificial Silence - Negative Space (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skin Deep (06:23)
-02. Latency (04:26)
-03. Innocent (3:50)
-04. In the Midst of a Dream (06:42)(   Читать дальше...   )Жанр: Alternative Rock, Progressive rockПродолжительность: 01:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBB0FE3E2FC54A24D67CE47F93A5A33652BE401B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279716   (764538) от 31.01.2019
-
-Soft Machine - Hidden Details (2018) Japanese Edition [FLAC|Lossless|tracks + .cue] <Psychedelic rock, Prog Rock, Jazz Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hidden Details (07:36)
-02. The Man Who Waved At Trains (05:00)
-03. Graund Lift (05:21)
-04. Heart Off Guard (02:30)(   Читать дальше...   )Жанр: Psychedelic rock, Prog Rock, Jazz RockПродолжительность: 01:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CE4C7D3FDCE8C83760475220E393AF96E1337CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279688   (764531) от 31.01.2019
-
-Simple Minds - Walk Between Worlds (2018) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (4:35)
- 02. Summer (4:57)
- 03. Utopia (4:15)
- 04. The Signal And The Noise (5:19)(   Читать дальше...   )Жанр: Pop Rock, New WaveПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7429C366AE1C7006F20F13C98E627576F992B088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394581   (763710) от 05.07.2020
-
-VA - Rock Milestones (2020) Box Set, 2 CD [FLAC|Lossless|tracks + .cue] <Classic Rock, Blues Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот двойной альбом - повторение очень успешно продававшегося в 2009 году двойного альбома. Он вполне соответствует своему названию - Вехи рока. Наряду с известными группами Nazareth, Chicago, Santana и др., есть несколько коллективов блиставших в своё время на рок-сцене и не заслуженно забытых. Отдельно хочу обратить ваше внимание на Outlaws. Видимо, составителям (   Читать дальше...   )CD1
-01. Foghat - Slow Ride (Live)  (9:08)
-02. Outlaws - Green Grass & High Tides  (11:55)
-03. Starship - Laying It On The Line  (4:31)(   Читать дальше...   )Релиз состоялся: 20 мая 2020 годаЖанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 02:11:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:023EB9C1F0F3766489CE6C0F9B9736D5E359A912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016907   (763258) от 16.05.2016
-
-Bear Hands - You'll Pay For This (2016) [FLAC|Lossless|tracks] <Experimental Rock, Indie Rock, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Won't Pay
-02. 2AM
-03. Boss
-04. Déjà Vu(   Читать дальше...   )Жанр: Experimental Rock, Indie Rock, Post-PunkПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62AACB4E48CC8D17F804B2E2E7511AE0E8C493E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016941   (763035) от 16.05.2016
-
-Hotei - Strangers (2015) [FLAC|Lossless|image + .cue] <Rock, Alternative Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763035.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medusa    05:57
-02. How The Cookie Crumbles    02:45
-03. Kill Or Kiss    04:21
-04. Move It    02:53(   Читать дальше...   )Жанр: Rock, Alternative Rock, Hard RockПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1635F300385450C92594AFA6288987C34F788AE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016963   (762952) от 16.05.2016
-
-Joe Cocker - Heart & Soul (2004) US Version [FLAC|Lossless|image + .cue] <Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One
-02. I (Who Have Nothing)
-03. What's Goin On
-04. Chain Of Fools(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61907322AEDFC884CF7433A868D3B1CDF959CCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280238   (762136) от 02.02.2019
-
-Middle Of The Road - The Collection (1996) Unofficial Release [FLAC|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chirpy Chirpy Cheep Cheep
-02. Sacramento
-03. Samson And Delilah
-04. Bottoms Up(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BE4A74FE2CBB4384AD38E3D3738363EC202BB30
 ```
 
 https://mybot314.ru/tekegram_catalog/

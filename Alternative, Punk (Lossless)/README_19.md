@@ -1,3 +1,58 @@
+###  Публикация: 1127166   (731726) от 21.04.2017
+
+The HardKiss - Perfection Is a Lie (2017) [APE|Lossless|tracks + .cue] <Alternative Rock, Prog Rock, Experimental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Organ (3:19)
+02. Tony, Talk! (3:35)
+03. Doctor Thomases (4:07)
+04. Rain (3:27)(   Читать дальше...   )Жанр: Alternative Rock, Prog Rock, Experimental RockПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F36FDBD24819CE8E871D8078B086E2ACF69BE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 666452   (731657) от 09.06.2013
+
+Suede - Bloodsports (2013) /Japan/ [FLAC|Lossless]<Alternative Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731657.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative Rock, Glam RockПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 384366   (731381) от 08.02.2022
 
 Nirvana - 5 альбомов (1991-2009) [FLAC|Lossless|image + .cue] <Grunge>
@@ -684,64 +739,6 @@ Julia Jacklin - Crushing (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88DDC61E5409EB51BAEB0219CF43AB535718405B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285016   (724787) от 24.02.2019
-
-Strand of Oaks - Eraserland (2019) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weird Ways
-02. Hyperspace Blues
-03. Keys
-04. Visions(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 01:05:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFF00619BBC570849B3DEE34104F43399EFC70AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023040   (723826) от 05.06.2016
-
-Porn - 4 альбома (2004 - 2011) [FLAC|Lossless|image + .cue] <Industrial, Neo Classical>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All That Glitters ...  1:14
-02. Superfurry 2:17
-03. Call Me 3:48
-04. Recycle 4:10(   Читать дальше...   )Жанр: Industrial, Neo ClassicalПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A4ABD7635920F6EFFBA62A79C0FD7735F80471
 ```
 
 https://mybot314.ru/tekegram_catalog/

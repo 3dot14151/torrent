@@ -1,3 +1,32 @@
+###  Публикация: 1622837   (234160) от 30.03.2023
+
+WyndRider - WyndRider (2023) [MP3|320 Kbps] <Psych Stoner Doom, Bluesy>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pit Witch
+02. Snake Children
+03. Creator
+04. Strangled By Smoke(   Читать дальше...   )Жанр: Psych Stoner Doom, BluesyПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7E34DFA5EB63F36DFB861E3F018CE4A00CA5FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1547464   (234110) от 02.05.2022
 
 Sideless - Choose the Way (2022) [MP3|320 Kbps] <Heavy Progressive Rock>
@@ -715,35 +744,6 @@ Brian May - Star Fleet Sessions [2CD, Deluxe] (2023) [MP3|320 Kbps] <Blues-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:976A7221471174C3BA94A1118F84AC1D6A492F7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580108   (232158) от 30.09.2022
-
-Joe Elliott's Down 'N' Outz - My Regeneration (2010) [OGG Vorbis|484 Kbps] <Rock, Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Golden Opportunity
-02. Storm
-03. Overnight Angels
-04. Career (No Such Thing as Rock 'n' Roll)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C7FBC5DBE2FBD79000F5214AB5F1897D73B092
 ```
 
 https://mybot314.ru/tekegram_catalog/

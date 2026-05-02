@@ -1,3 +1,32 @@
+###  Публикация: 1412282   (1020801) от 16.04.2021
+
+КерамикА - 5 EP / 2 Single (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020801.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 - Zaprava (EP)
+2019 - Калейдоскоп любви (EP)
+2019 - Три в одном (EP)
+2020 - Люберцы (Single)Жанр: RockПродолжительность: 01:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109236FB0B1795F68982628B6B150CF0AD6C01C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462912   (1020796) от 16.04.2021
 
 LOUNA - Обратная сторона (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
@@ -716,35 +745,6 @@ Monomakh, Krasnaya Ploschad - Split (1989) [FLAC|Lossless|tracks + .cue] <Russia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D881C143004E9243C559B4FE82249E8F5A3E97A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476538   (1011531) от 12.06.2021
-
-Ploho - Фантомные чувства (2021) [FLAC|Lossless|image + .cue] <Post-Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Между нами
-02. Прости
-03. Добрые люди
-04. Камни(   Читать дальше...   )Жанр: Post-Punk, New WaveПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CEDCB654BCE49F489C02749407F165C01420618
 ```
 
 https://mybot314.ru/tekegram_catalog/

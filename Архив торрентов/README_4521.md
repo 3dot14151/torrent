@@ -1,3 +1,280 @@
+###  Публикация: 482645   (99504) от 13.04.2012
+
+[Wallpapers] Wallpapers Mix 28 (1600x1200- 4000x3000)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99504.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Wallpapers Mix 28 (1600x1200- 4000x3000)
+Название: Wallpapers Mix 28 (1600x1200- 4000x3000)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200- 4000x3000
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0FB221012A1154FC944B478BDCD258EE866A498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482524   (99497) от 13.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (14.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F2518D2D9C699B3DE007D5DE7EEBC170728050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482140   (99494) от 13.04.2012
+
+Exumer - Fire & Damnation (2012) [MP3|320 кб/с]<Speed / Thrash Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire & Damnation (03:16)
+ 02. Vermin of the Sky (03:17)
+ 03. The Weakest Limb (03:50)
+ 04. New Morality (03:08)
+ 05. Waking The Fire (03:13)
+ 06. Fallen Saint (03:54)
+ 07. Crushing Point (03:01)
+ 08. Devil Chaser (02:42)
+ 09. I Dare You (03:40)
+ 10. Tribal Furies (03:28)2012Жанр: Speed / Thrash MetalПродолжительность: 00:33:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4920E535311EF50D74708E27BCF8EB2C94923973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482520   (99493) от 13.04.2012
+
+[Wallpapers] Super Girls Wallpapers (14.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CD9705B2BB6DB270FAAD139B8B325300DA4101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482686   (99492) от 13.04.2012
+
+[Wallpapers] Нравятся! Сотня № 004 (1920х1080-2560х1600)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
+Хотя на вкус и цвет...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D31CF2F4925D5362D2B2D0B65F2A9A16818DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480892   (99490) от 13.04.2012
+
+Trifixion - A Utopia For The Damned (2011) [MP3|~245 кб/с (V0)]<Brutal Technical Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Human Construct (Intro) (01:53)
+ 02. Fucked In Gutteral Vortex (03:56)
+ 03. Delta 9 Messiah (04:10)
+ 04. In Nomine Patris (03:56)Жанр: Brutal Technical DeathПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F2FB8ED4C0014EF8E33E529D47E0FCF30BD3CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481590   (99489) от 13.04.2012
+
+220v - Overcharged (2008) [FLAC|Lossless]<Psychedelic / Full-On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 220v - Overcharged [08:17]
+ 02. 220v - Friday [06:49]
+ 03. 220v - Insane To The Brain [07:22]
+ 04. 220v - Keeping The Music Real [08:10]
+ 05. 220v - Swinguin Beat [07:54]
+ 06. Eskimo - Every single sound (220V Remix) [07:54]
+ 07. 220v - Kizuna [08:12]
+ 08. 220v - The Future Shock [07:22]
+ 09. 220v - Turn The Beat Back [06:44]2008Жанр: Psychedelic / Full-OnПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482164   (99488) от 13.04.2012
+
+VA - MAXI. Популярные новинки Раdio Плюс (2012) [MP3|256-320 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bahh Tee - Я Наверное
+02. Frisco Disco ft. Ski - One Way Ticket (Original Club Mix)
+03. Lia Love feat. Chaddi - Down Down (Kriss Raize Radio Edit)
+04. T1One feat. U'Lee (44) - Всё Будет Как Прежде
+05. Макsим - Небо-самолёты
+06. A-VIA & Extasy Project - Мама-Любовь
+07. Katy Perry - Wide Awake
+08. Spencer & Hill feat. Ari - Surrender (Radio Edit)
+09. Людмила Соколова - Дарю Тебе Счастье
+10. Оксана Почепа - Стаи птиц (DJ Audiophil Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73ACAADD045E4568220F6E9A18C07F96FA6423A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482758   (99486) от 13.04.2012
+
+VA - Trance Maniacs Party: Trancefer Wave #96 (13.04.2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99486.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Solesystem presents Mel-O-Maniacs - A Little Big Planet (Basil O'Glue Remix)
+002. Santerna - Aquamarine
+003. Radion 6 - B U Tiful (Original Mix)
+004. Patric la Funk - Baltic (Original Mix)
+005. Ralphie B - Bullfrog (Original Mix)
+006. Veracocha - Carte Blanche (Dabruck & Klein Remix)
+007. Marcel Woods - Champagne Dreams (W&W Remix)
+008. Ummet Ozcan - Cocoon (Original Mix)
+009. Matt Bowdidge - Crossing North (Original Mix)
+010. Mark Burton - Delusion (Original Mix)(   Читать дальше...   )13.04.2012Жанр: Trance, Uplifting TranceПродолжительность: 03:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D9BAB52FF711E9861F50BF0B9E5287973EE9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482682   (99483) от 13.04.2012
 
 [Wallpapers] HD Wallpapers №10
@@ -512,292 +789,6 @@ HostsMan позволяет производить следующие дейст
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481774   (99436) от 12.04.2012
-
-Carmen Maria Vega - Du Chaos Naissent Les Etoiles (2012) [MP3|320 кб/с]<French Chanson, French Pop, Female Vocal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - La marquise
-02 - On s'en fout
-03 - Sans rien
-04 - Le soldat
-05 - Nan nan
-06 - Country
-07 - Miiaou
-08 - Au mariage de Christine
-09 - Invite chez moi
-10 - Singe savant(   Читать дальше...   )Жанр: French Chanson, French Pop, Female VocalПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA233DC01781FD3FBDDE0AC1B46B634CCFE841A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481714   (99433) от 12.04.2012
-
-VA - Mojo Presents - Sticky Soul Fingers - A Rolling Stones Tribute (2012) [MP3|320 кб/с]<Funk, Soul, Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice Russell – Brown Sugar
-02. Black Joe Lewis & the Honeybears – Sway
-03. Sharon Jones & the Dap-Kings – Wild Horses
-04. The Bamboos – Can’t You Hear Me Knocking
-05. Naomi Shelton & the Gospel Queens- You Gotta Move
-06. The Sugarman 3 – Bitch
-07. Aloe Blacc & Joel Van Dijk – I Got the Blues
-08. Ren Harvieu – Sister Morphine
-09. Anthony Joseph & the Spasm Band – Dead Flowers
-10. Lee Fields – Moonlight Mile(   Читать дальше...   )Жанр: Funk, Soul, RockПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C6684C36819FF5126D26E89844DD7C01BC4299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481952   (99430) от 12.04.2012
-
-Alcohol 52% 2.0.2 Build 3929 [Мульти, есть русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alcohol 52% - широко известная программа для эмуляции CD/DVD приводов, которая позволяет создавать точные копии дисков и загружать их в виртуальные накопители. Бесплатная версия приложения позволяет создать 6 виртуальных накопителей, каждый из которых может работать с образами дисков на скорости 200x. Поддерживается большое количество разнообразных форматов образов дисков: MDS, CCD, BIN, CUE, ISO, NRG, CDI, BWT и другие, возможна регистрация пользовательских расширений файлов-образов. Программа будет полезна всем, кому часто приходится вставлять и вынимать различные CD/DVD диски. С её помощью можно разместить все часто используемые носители в виде образов на жёстком диске вашего компьютера.Название программы: Alcohol 52%Язык интерфейса: Мульти, есть русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481897   (99427) от 12.04.2012
-
-Валентина Пашинина | Неизвестный Есенин [2007] [DJVU]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99427.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Неизвестный Есенин» — третье, исправленное и дополненное издание книги Валентины Пашининой. Такого Есенина, каким он предстает на ее страницах, мы действительно не знали. По-новому осмыслены многие факты жизни великого русского поэта, доказано авторство «Послания евангелисту Демьяну», которое сберегли и сохранили политзаключенные Ухтпечлага, среди которых был и Василий Петрович Надеждин, передавший стихотворение автору этой книги, за что ему — особая благодарность. Основываясь на огромном фактическом материале, как опубликованном, так и практически неизвестном широкому кругу читателей, B.C. Пашинина предлагает свой взгляд на многие события в жизни поэта, а также обстоятельства его трагической гибели. Впервые биография Сергея Есенина развернута на динамичном фоне истории России, а не ограничена тесными стенами скандального кафе «Стойло Пегаса». Книга рассчитана на широкий круг читателей, представляет несомненный интерес для тех, кто глубоко интересуется творчеством и судьбой любимейшего поэта России.2007Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE88649CB98C0A450BE55BFBA0446680EBB9D601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481577   (99416) от 12.04.2012
-
-VA - Beach Atmosphere (2010) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99416.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Osher - Key In (8:24)
- 2. Naes - Deep Passion (6:52)
- 3. XShade - Everythng Can Change (8:21)
- 4. Klopfgeister - Instant Summer (8:14)
- 5. Motion Drive & Flowjob - Puppetmaster (9:31)
- 6. Normalize - Nostalgia (9:30)
- 7. Ritmo & Rocky - Floater (8:24)
- 8. Juiced - Mojo (6:35)
- 9. Reverse - End Of Line (8:35)2010Жанр: Psychedelic / ProgressiveПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481790   (99414) от 12.04.2012
-
-[Wallpapers] Full HD Wallpapers Pack 12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99414.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Full HD Wallpapers Pack 12 
-Название:  Full HD Wallpapers Pack 12 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E3D404B0FAF72E078780687009945B15645AB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481904   (99413) от 12.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 33
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99413.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Girls Desktop Wallpapers Pack 33 
-Название:  Girls Desktop Wallpapers Pack 33 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 5120х3413
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC797D37FE2FC8AEEDE784D00542F405F309F66E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481808   (99410) от 12.04.2012
-
-Mindwave - Concept Of Freedom (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (2:10)
-02. Light Of Loss (7:49)
-03. Simple Moves (9:04)
-04. Guiding Voice (8:40)
-05. Within You (8:22)
-06. Levity (9:22)
-07. New Day (7:40)
-08. Underwater (8:46)
-09. Concept Of Freedom (7:47)
-10. Deepest Thoughts (5:38)2012Жанр: Psychedelic / ProgressiveПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:234497A2A5F2D62B3F0D2F4F5C5D92A6C0053C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481467   (99406) от 12.04.2012
-
-VA - Record Trancemission vol.1 (Mixed by DJ Feel) (29.03.2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poshout – Melorum (Original Mix)
- 02. DJ Feel feat. Melissa Loretta – 4 U 2 C (Original Mix)
- 03. Magic Sound – Infinity (Original Mix)
- 04. The Airstatic – Christle (Original Mix)
- 05. Sunbird – Tomorrow (Original Mix)
- 06. Timur Adagio – Escape (Original Mix)
- 07. Erick Strong – Forever Loved
- 08. DJ Feel, Matisse & Sadko – A Day To Remember (Vadim Shantor Remix)
- 09. D-Mad – No Pasaran (Original Mix)
- 10. Nianaro – Citadel (Original Mix)(   Читать дальше...   )29.03.2012Жанр: TranceПродолжительность: 01:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BF0F7B18045B897E558A55114517E05149FA402
 ```
 
 https://mybot314.ru/tekegram_catalog/

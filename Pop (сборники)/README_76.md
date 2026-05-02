@@ -1,3 +1,119 @@
+###  Публикация: 1559275   (523424) от 26.06.2022
+
+Garou - Compilation (2022) [MP3|320 Kbps] <Pop, Pop-Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Felure
+02. Pour L`amour D`une Femme
+03. Gitan
+04. Mise ? Jour(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 03:29:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F984900B767BDA8BC78538785B3183DF859515E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928577   (522529) от 16.08.2015
+
+Mark Ashley - Сборник песен (2015) [MP3|320 кб/с]<Synth Pop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522529.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lover Why (Radio Version) (04:00)
+002. To The Moon And Back (03:47)
+003. It's Christmas Time (New Version) (03:29)
+004. You Are My Paradise (03:14)(   Читать дальше...   )Жанр: Synth Pop, EurodanceПродолжительность: 06:46:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465FA7842DAB080F3ABAE54F77D679D87C903659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928437   (522520) от 16.08.2015
+
+VA - Популярный музыкайф новинок (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мохито - Я Не Могу Без Тебя (Sasha Abzal Radio Edit)
+02. Chris Brown - Body Shots
+03. Embody Feat. Obenewa - Bad News
+04. Оксана Почепа - Я Не Знаю Как Птицы(   Читать дальше...   )Жанр: PopПродолжительность: 06:18:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A24E75E335C87BDF37DD19AD319F944796AB626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241061   (522088) от 15.08.2018
+
+VA - Summer Trip (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522088.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Portugal. The Man - Feel It Still
+002. Dadju - Reine
+003. Federico Scavo - Blow It
+004. ZAYN - Dusk Till Dawn(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379ACCBE7F6130DF4AD086BA20FE24AC7E589E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 928669   (521781) от 17.08.2015
 
 Alpine - Collection (2010 - 2015) [MP3|320 кб/с]<Alternative Dance, Indie Synthpop>
@@ -631,122 +747,6 @@ VA - Горячий музон. Тусим все вместе (2015) [MP3|256-3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBA4D8758F17E627B8FAC595DEF2DD02F1C2D248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315703   (510910) от 22.07.2019
-
-VA - German Top 100 Single Charts 26.07.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510910.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samra x Capital Bra - Zombie
-002. Shawn Mendes & Camila Cabello - Señorita
-003. Capital Bra x Samra - Tilidin
-004. Shindy - Raffaello(   Читать дальше...   )Жанр: PopПродолжительность: 05:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ACC659BEF60012FCF6F657C2480E6CE6577E46B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562561   (509033) от 09.07.2022
-
-VA - German Top 100 Single Charts 08.07.2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509033.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Robin & Schurze - Layla (3:05)
-002. Luciano - Beautiful Girl (2:59)
-003. Domiziana - Ohne Benzin (2:35)
-004. Liaze - PARADISE (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 05:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78440F1C454C7118C76EDFDAE6AA7F5543FD4B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932860   (507973) от 30.08.2015
-
-VA - Автоледи: Популярный автосборник (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Атаманка - 16 Лет
-02. Deorro - Five Hours
-03. Koven - Miracle
-04. Ph Electro - Back Home(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD437149D62272B22E35DEBACDA5905A21DB574C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316140   (507710) от 24.07.2019
-
-VA - This Merry Planet - Super Rare Disco Vol.4 (2019) [MP3|320 Kbps] <Disco, Funk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-
-01.El Coco - Cocomotion (10:30)
-02.Michele - Can't You Feel It (09:48)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 01:18:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711CA571D7764F48CECEA6E175F3CC1B0EF9D823
 ```
 
 https://mybot314.ru/tekegram_catalog/

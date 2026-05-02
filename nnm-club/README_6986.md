@@ -1,575 +1,25 @@
-###  Публикация: 1205011   (783802) от 09.02.2018
+###  Публикация: 1203955   (785381) от 04.02.2018
 
-VA - Chilhouse Room (Deep Selection) (2018) [MP3|320 Kbps] <Chillhouse, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alpha Carpet  -  Megabytes (Red Zone Mix)  2:33
-02.  Jin Tonique  -  Not Easy (Mark Kay's Deep Mix)  2:45
-03.  Diamond Marquees  -  Nightshadows (Frank Tee's Night Beats Mix)  2:47
-04.  Johnny Divine  -  Noises (Dean Franklin's Royce Mix)  3:21(   Читать дальше...   )Жанр: Chillhouse, Deep HouseПродолжительность: 00:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:257EC21F6E82A477380419815F846488CCCAB8F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204909   (783801) от 09.02.2018
-
-James Haskell - James Haskell's Back Row Beats Workout (2018) [FLAC|Lossless|WEB-DL|tracks] <Funky, Club House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 1) (01:08:21)
-02. James Haskell - James Haskell's Back Row Beats Workout (continuous DJ mix 2) (01:07:36)
-03. Cristoph - Slowly Burning (feat Jem Cooke) (07:05)
-04. Dario D'Attis & Sven Tasnadi - I Need (07:21)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C359F5010B7AEB2296F0402D0C3B445CC6BF30B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205339   (783800) от 09.02.2018
-
-VA - World In Lounge: Ethnic Nu Lounge Vibes Selection (2018) [MP3|320 Kbps] <Downtempo, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Caner Soyberk  -  Coffee Shop (Original Mix)  3:49
-02.  Oxala  -  Trance Jungle Percussion (Original Mix)  3:41
-03.  Nicola Semprini  -  Biriani (Original Mix)  2:57
-04.  Percussioney  -  Batuqueiro (Instrumental)  3:51(   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 02:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:865CF34AC64234721162882ABB2B931B85386CD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204873   (783799) от 09.02.2018
-
-VA - Clubbers Guide Summer (2010) [FLAC|Lossless|tracks] <Progressive House, House, Electro House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dizzee Rascal - Dirtee Disco (4:46)
-02.Example - Kickstarts (Wideboys Stadium Mix) (4:52)
-03.J2K; Jodie Connor; Wiley - Electric Boogaloo (Find a Way) (2:59)
-04.Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (3:30)(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 02:33:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95546844651EA3949C219DA8E6263F484C4327C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204927   (783798) от 09.02.2018
-
-Nurullah CaCan - Chill Out One (2018) [MP3|320 Kbps] <Ambient, Chillout, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Loneliness	4:41
-02.	Relax	6:30
-03.	Green Eyes	4:37
-04.	Night	4:44(   Читать дальше...   )Жанр: Ambient, Chillout, DowntempoПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDA4F2A7687FEB8F3EA20B875483B0AD3731329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205075   (783797) от 09.02.2018
-
-VA - Soft House Wintertime Edition (2018) [MP3|320 Kbps] <Deep House, Chillhouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Enrico Donner  -  Quote Of The Day (Original Mix)  5:45
-02.  Beatgridded  -  Deep Emotions And Back (Original Mix)  7:21
-03.  Cane Garden Quartet  -  Close To You (Original Mix)  5:30
-04.  Dusty Deckk  -  Acid Lounge (Original Mix)  5:54(   Читать дальше...   )Жанр: Deep House, ChillhouseПродолжительность: 01:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10B2F87C26111D978C7814D217E13E5B33B2F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204895   (783796) от 09.02.2018
-
-VA - Made In Fun (2006) [FLAC|Lossless|tracks] <House, Electro>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cicada - The Things You Say (Dirty South Remix) (3:47)
-02.Kortezman Feat. Rozalla - Everybody's Free (3:15)
-03.Mason - Exeeder (Original Mix) (2:56)
-04.Sebastien Leger - Git Girl (3:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEFE167DA20E216B716F5E8055CB653C7F668F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205114   (783795) от 09.02.2018
-
-VA - Music For Dreams Copenhagen Vol.1 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Oscar Bandersen  -  Running (feat. Bruce) (Original Mix)  3:35
-02.  Aussteiger  -  Zusammenkunft (Original Mix)  5:52
-03.  Willie Graff  -  Second Sun (Original Mix)  7:05
-04.  Troels Hammer  -  The Human Tree (feat. Mariana Sadovska) (Original Mix)  5:11(   Читать дальше...   )Жанр: Downtempo, Chillout, ElectronicПродолжительность: 01:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7154C00E607E2FA89ACB387F7C838FF546C809
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205353   (783794) от 09.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 1-й тур. Китай — Швейцария (08.02.2018) WEB-DL [EN]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783794.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2018 года, четверг. 03:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. Круговой раунд. 1-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DF637A7A04ED33D22FC22525D28535B3BDBDDE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205016   (783793) от 09.02.2018
-
-VA - Dance Party (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tritonal  -  Call Me (SJ Remix Remix)  4:04
-02.  Jaki Nelson & Arcando  -  Don't Say That (Original Mix)  2:58
-03.  Corderoy  -  Touch Your Face (Original Mix)  3:31
-04.  Lash  -  I'm Gonna Be There (Andy Bianchini Remix)  2:47(   Читать дальше...   )Жанр: HouseПродолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBD4FEEB66CC757E8F2F736C4C7E27137D73A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205359   (783792) от 09.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Южная Корея — Китай (08.02.2018) WEB-DL [EN]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783792.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2018 года, четверг. 14:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB67F9999003C27E30383B72B9FABE3D58ECFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205265   (783791) от 09.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Финляндия — Швейцария (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783791.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2018 года, четверг. 14:05 МСК
-Обзорная трансляция
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0569D61E9E135EAA517CC273B265F4AB6790FA8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204992   (783790) от 09.02.2018
-
-Г.Я. Нейман | Внутренняя торговля СССР (1935) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Работа тов. Неймана излагает историю торговли в СССР. Вначале работы дается теоретический очерк, характеризующий природу торговли в СССР, после чего рассматривается ее развитие на различных этапах. Большое внимание уделено характеристике советской торговли на современном этапе и задачам ее развертывания во втором пятилетии.
-
-Автор основательно знакомит читателя с (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123B35D0AF20545977A4D74C7A44BE0396571537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205273   (783789) от 09.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. США — Канада (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783789.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2018 года, четверг. 14:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB644D297975526DD3B3BE6209580757322C8A72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205228   (783788) от 09.02.2018
-
-VA - Valentines Day Love Lounge (2018) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Sopper & Herr Schmidt – Wolken Im Wind 6:44
-02. Aida Moniz – Les Etoiles Au Dessus De La Tour Eiffel 3:47
-03. Lorenzo Casanova – Vila Mimosa (Make Love Not War Boogie Version) 4:47
-04. Ku You – Sandhand 5:04(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0746571AA677A8F2D9064241937EE3E8686314F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205242   (783787) от 09.02.2018
-
-VA - Rooftop Beats, Vol. 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Fax – Landside (Original Mix) (6:07)
-02. Arty – Twilight Tonight (Steve Brian Remix) (2:57)
-03. Johan Vilborg – Bside Me (Original Mix) (3:21)
-04. Clameres – Mocsa (Original Mix) (3:38)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 01:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE641DDDAD3F0EE9776F968EFB9D60ACD0A60085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205284   (783786) от 09.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Прыжки с трамплина. Мужчины. Трамплин HS-109. Квалификация (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783786.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2018 года, четверг. 15:30 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Прыжки с трамплина.
-Мужчины. Трамплин HS-109. Квалификация(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4703B5370D9415B4992B3027D3A6BB628173FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205288   (783785) от 09.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Прыжки с трамплина. Мужчины. Трамплин HS-109. Пробный прыжок + Квалификация (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783785.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2018 года, четверг. 14:15 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея).
-Прыжки с трамплина.
-Мужчины. Трамплин HS-109. Пробный прыжок + Квалификация(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:21:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567B6681DD7D18E0FA89888A8EBA68A263679726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205365   (783784) от 09.02.2018
-
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Финляндия — Швейцария (08.02.2018) WEB-DL [EN]
-
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783784.jpg" />
-</div>
-
-
-###  Подробнее
-
-08 февраля 2018 года, четверг. 14:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: EurosportЖанр: СпортЯзык озвучки: АнглийскийСубтитры: отсутствуютПродолжительность: 01:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBAFEAB4A4AD4C9C4255CA6CEDA0C2999F039367
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205209   (783783) от 09.02.2018
-
-VA - Drum Jungle: Indigo Visions (2018) [MP3|320 Kbps] <Drum and Bass, Jungle>
+VA - Vanilla Kiss: Clubland Eurodance 90s (2018) [MP3|320 Kbps] <Club, Dance, Pop>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785381.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. 3D Stas - Aftermath (Original Mix)
-002. GLXY, QZB - Yes Jah
-003. Edifex - Staring into Space
-004. Move Mode - Over You (Original Mix)(   Читать дальше...   )Жанр: Drum and Bass, JungleПродолжительность: 08:06:43
+001. X-Session - Lucky Number
+002. Dean Martin - Please Don't Talk About Me When I'm Gone
+003. Missing Heart - Charlene (Extended)
+004. Music Instructor - Super Fly(   Читать дальше...   )Жанр: Club, Dance, PopПродолжительность: 07:49:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E4B211208E2188FBCC7BA0C662750DD24F3DED8
+magnet:?xt=urn:btih:661731EA4FCE92F91C9D85522D007E455B16863A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,28 +27,129 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205413   (783782) от 09.02.2018
+###  Публикация: 1277480   (785380) от 20.01.2019
 
-VA - The Future Of Dreaming (2016) Crunch Pod [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Experimental, Dark Ambient, Ambient>
+Обои - Desktop Wallpapers Full HD. Part (366) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06088A979E09FC0078342D5BF87B550FC12FE8B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277465   (785379) от 20.01.2019
+
+Обои - Desktop Wallpapers Азиатки [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник обоев на тему АзиаткиФормат: JPGРазрешение файлов: 1920x1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0ECD2A91C8F0A5780E792BCF89EECB168953B34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277471   (785378) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (360) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C30ADB92F4C642E9BA2D0F617AFB17B72F039C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277486   (785377) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (370) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BFB956BE1A1A98D04D373541A8F39186533B25B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277255   (785376) от 20.01.2019
+
+Loaris Trojan Remover 3.0.75.210 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785376.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Databomb - I Fell In Love With Her 2nd Face v6 (06:02)
- 02. Zeller - Orbital (04:43)
- 03. Her Blood In My Veins - They Said We Once Were, But We Are No Longer (04:29)
- 04. Marred - By The Moonlight (06:04)(   Читать дальше...   )Жанр: IDM, Industrial, Experimental, Dark Ambient, AmbientПродолжительность: 02:50:48
+Loaris Trojan Remover - средство удаления вредоносного ПО, среди которых есть троянские программы, интернет-черви, рекламные и шпионские программы. Утилита предназначена для удаления угроз с Вашего компьютера, когда постоянная антивирусная защита не в состоянии обнаружить или полностью удалить их. Очень часто антивирусные решения хороши в обнаружении вредоносных (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2DE6AACEFC62DF0BF447384C597A92FB9B3666D9
+magnet:?xt=urn:btih:BAEB8D91810A5F44B169B085DF8A955EBC02C1C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,28 +157,349 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204921   (783781) от 09.02.2018
+###  Публикация: 1277389   (785375) от 20.01.2019
 
-VA - Defected Presents Classics In The House (2009) [FLAC|Lossless|tracks] <House, Disco, Hip-House>
+VA - Громкие новинки месяца Vol.21 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Макс Барских - Странная
+02. Ariana Grande - 7 rings
+03. HammAli & Navai - Как тебя забыть
+04. Inna - Sin Ti(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABB1FFAED2B3F73759E57AD7DA16C53907742D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277342   (785374) от 20.01.2019
+
+save2pc Ultimate 5.5.7.1584 RePack (& Portable) by TryRooM [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785374.jpg" />
+</div>
+
+
+###  Подробнее
+
+save2pc Ultimate - это простая в использовании программа, которая позволяет сохранять видео с известного файлового хранилища YouTube. При помощи YouTube Downloader можно загрузить любой видеофайл с веб-сервиса YouTube по приведенной на его страничке ссылке. Все, что требуется от юзера - это скопировать и вставить ссылку в окно save2pc Ultimate, выбрать нужный формат (   Читать дальше...   )Язык интерфейса: Русский | Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3A958B4A567A3D30B52D1E66798473454B4E487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277485   (785373) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (369) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285D8B05C8CD9B23F49C914D4329B7AF5F106129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277484   (785372) от 20.01.2019
+
+Обои - Desktop Wallpapers Full HD. Part (368) [JPG]
+
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка красивых и качественных обоев на разные темы в Full HD формате.Формат: JPGРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5338357E203FFF7EED44E52B41DF68A3B48A3B5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277329   (785371) от 20.01.2019
+
+CyberLink PhotoDirector Ultra 10.0.2302 [Multi]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальное решение для редактирования фотографий, которое предлагает широкий спектр простых в использовании инструментов для создания потрясающих семейных фотографий, фото путешествий и пейзажных снимков, а также идеальных портретов. Программа поддерживает форматы RAW, разнообразные профили объективов, а теперь и создание снимков с 360º фото и видео.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: Ciberlink Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CCFAD6D576B8F4DBBD69C28A57CBB9F318B480D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277407   (785370) от 20.01.2019
+
+NG: Тайна гималайских мумий / Mystery of the Himalayan Mummies (2016) DVB
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тайна гималайских мумий привлекает к себе международную группу ученых, исследователей и археологов, которые отправляются в экспедицию, чтобы исследовать целый ряд пещерных захоронений, открытых в одном из самых удаленных мест в Гималаях.Производство: США, National GeographicЖанр: Документальный, исследованиеРежиссер: Дэнни ТиппингПеревод: Одноголосый закадровый, профессиональный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF7FF4CAEBEE985D434475F8F08E145A72A763D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277267   (785369) от 20.01.2019
+
+Calibre 3.38.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Calibre - простая и удобная программа для управления библиотекой и универсальный конвертер электронных книг с большим количеством возможностей. Программа поможет упорядочить вашу библиотеку книг без особых трудностей. Также в её состав входят: утилита для преобразования одного формата в другой, интегратор новостей, программа для синхронизации данных с электронным (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE11F28C38C20C53E9B280AF8678A6379C092441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277310   (785368) от 20.01.2019
+
+ZE FISH punk-rchstr (orchestra) - Welcome to Russia, если не страшно (2018) [MP3|320 Kbps] <Ska, Punk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для ознакомления третий альбом альтернативной Шнуру и Ленинграду группы. Вокально и музыкально интереснее, ИМХО!01. Дисклеймер
+02. Питер-Питер!
+03. Ни*уя хорошего
+04. Судья-пи*орас(   Читать дальше...   )Жанр: Ska, Punk, RockПродолжительность: 00:53:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D90420241D7742B0229AF33E8B761CA369C2D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277313   (785367) от 20.01.2019
+
+К. А. Попов (ред.) | Допрос Колчака (1925) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикуемые Центрархивом протоколы заседаний Чрезвычайной Следственной Комиссии по делу Колчака воспроизводятся по стенографической записи, заверенной заместителем председателя Следственной Комиссии, К. А, Поповым, и хранящейся в Архиве Октябрьской Революции (Фонд LXXV, арх. № 51). Некоторые места стенограммы и отдельные слова, не поддававшиеся прочтению, в подлиннике (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA41D519DF47878F642ECDD86C0C50E32604DF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277293   (785366) от 20.01.2019
+
+A House of Many Doors (2017) [En] [macOS Native game]
+
+>>Игры для macOS
+>>Strategy, RPG для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Добро пожаловать вТип издания: macOS Native gameРелиз состоялся: 2017Разработчик: Pixel TrickeryПоддерживаемая ОС: OS XЖанр: Ролевые игрыЯзык озвучки: английскийЯзык интерфейса: английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A103B46F5B0E33AB4EDC4774B051C4E2F113A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277432   (785365) от 20.01.2019
+
+Product Key Explorer 4.0.10.0 RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Product Key Explorer - программа позволяет расшифровать, увидеть и сохранить серийные номера продуктов Microsoft, CD-ключи установленных на компьютере программ, и не только их. Неполный список ПО, регистрационные данные которых можно увидеть и сохранить: Microsoft Windows (XP, 2003, Vista, 7, 8, 10), Microsoft Office 2003, Microsoft Office 2007, Microsoft Office (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C3DD28DB7CA67685DCD0A0D28D004A649DBF2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277292   (785364) от 20.01.2019
+
+Demis Roussos - The Demis Roussos Collection (2008) 4CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1: Forever And Ever - The Greatest Hits
+01. Forever And Ever
+02. Happy To Be On An Island In The Sun
+03. Marie Jolie(   Читать дальше...   )Жанр: PopПродолжительность: 04:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2240C2EE9CE4872155F01E1B2D6EE5C9C4B152C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277435   (785363) от 20.01.2019
+
+VA - Best Of 2018 (2019) [MP3|320 Kbps] <Drum & Bass, Neurofunk>
 
 >>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Blaze; Ultra Nate  - Free (Mood II Swing Extended Vocal Mix) (4:43)
-02.Barbara Tucker - Most Precious Love (DF Future 3000 Mix) (5:50)
-03.Palmer Brown; Patrice Rushen - Haven't You Heard (4:04)
-04.Jon Cutler - It's Yours (Original Distant Music Mix) (3:25)(   Читать дальше...   )Жанр: House, Disco, Hip-HouseПродолжительность: 03:45:38
+01. Facade - Division Of The Synth (04:36)
+02. Vecster - Critical Level (04:36)
+03. Sequential - Time Dilation (05:15)
+04. Distributor - Hypertension (05:18)(   Читать дальше...   )Жанр: Drum & Bass, NeurofunkПродолжительность: 00:50:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE1167E73609D457E9F5AF14DD965484636050A9
+magnet:?xt=urn:btih:755DB103C2392D362391F677234455B788901512
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +507,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205262   (783780) от 09.02.2018
+###  Публикация: 1277381   (785362) от 20.01.2019
 
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея). Кёрлинг. Микст. Круговой раунд. 2-й тур. Россия (ОАР) — Норвегия (08.02.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Явление / L'apparition (2018) AC3 5.1, HDRezka studio [hand made]
 
->>Спорт и активный отдых
->>Зимние Олимпийские игры и Паралимпийские игры
+>>Остальное
+>>Звуковые дорожки и субтитры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785362.jpg" />
 </div>
 
 
 ###  Подробнее
 
-08 февраля 2018 года, четверг. 14:05 МСК
-XXIII Зимние Олимпийские игры 2018. Пхёнчхан (Корея)
-Кёрлинг.
-Микст. Круговой раунд. 2-й тур.(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:34
+Жак, известный репортёр ежедневной французской газеты, получает таинственный телефонный звонок из Ватикана. В маленьком городке на юго-востоке Франции 18-летняя девушка утверждает, что видела явление Девы Марии. Слух быстро распространяется, феномен приобретает такую ​​величину, что тысячи паломников стекаются к месту предполагаемого явления. Жак, далёкий (   Читать дальше...   )Производство: Франция, Бельгия, Иордания / Canal+, Centre National de la Cinematographie (CNC), ProximusЖанр: ДрамаРежиссер: Ксавье ДжаннолиАктеры: Анатоль Таубман, Венсан Линдон, Патрик д’Асумсао, Жоффруа де ла Тай, Аврора Брутена, Аксель Симон, Сандрин Ферраро, Галатеа БеллуджиПеревод: Многоголосый закадровый, профессиональный (HDRezka studio)Продолжительность: 02:17:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:268D6095C4D8F76744BF5FDFF37DFFFED22AAEC2
+magnet:?xt=urn:btih:4D6D3E0BC8271AC1F205B1E63F4AFF0536280301
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,28 +533,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205354   (783779) от 09.02.2018
+###  Публикация: 1277318   (785361) от 20.01.2019
 
-PDF Expert 2.3.0 [Multi/Ru]
+Сергей Садов - Ближний восток (2018) [FLAC|Lossless|tracks + .cue] <Instrumental>
 
->>Архив торрентов
->>Архив 4Apple
+>>Other Styles
+>>Instrumental (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDF Expert - лучший редактор файлов PDF
-PDF Expert - это один из лучших инструментов для работы с PDF на iPhone и iPad, который позволяет на ходу просматривать, редактировать и подписывать документы. Теперь популярное приложение доступно и на Mac.
-
-Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
+1.Ближний восток (6:22)
+2.На крыльях ангела (7:18)
+3.Алтай (11:49)
+4.Танец дарвиша (3:36)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:00:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D6AA6217F9CE63C8D9AED05B8EC626A50455845
+magnet:?xt=urn:btih:D6693EF39EC1B989D69FAB7E47D3036BCB0F7FB0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,25 +562,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205058   (783778) от 09.02.2018
+###  Публикация: 1204037   (785360) от 04.02.2018
 
-HyperSnap 8.16.04 RePack by вовава [Ru]
+Stephen Rhodes - Relax II: Your Essential Spa Music (2013) [FLAC|Lossless|image + .cue] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discovery
+02. Voices From The Past
+03. Air of Tenderness
+04. Love Remembered(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C89BF26A12FD4AB1C0D565FAFA0AD583705E0F35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204124   (785359) от 04.02.2018
+
+Waterfox 56.0.4.1 Portable by Cento8 [Ru/En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785359.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HyperSnap — инструмент для захвата изображения, позволяющий скопировать не только окна стандартных программ, но и игры, скринсейверы и видеофильмы. С помощью HyperSnap вы можете сделать скриншот всего экрана монитора, его части, окна определённой программы (вместе с курсором или без), игр и скринсейверов (работающих в режимах DirectX и 3Dfx Glide), видео- и DVD-фильмов, (   Читать дальше...   )Язык интерфейса: Русский
+Waterfox — это браузер, основанный на исходном коде популярного обозревателя Mozilla Firefox, и предназначенный специально для 64-разрядных операционных систем семейства Windows. Waterfox обладает всеми функциональными возможностями, присущими Firefox, но благодаря наличию оптимизации кода позволяет пользователю добиться более высокой скорости работы веб-браузера. (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0312960E1234AA58512B084696240A97FDD2B18D
+magnet:?xt=urn:btih:2D370604312158865DD2C4F8A1C73C3C43A02697
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -719,25 +617,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205117   (783777) от 09.02.2018
+###  Публикация: 1204016   (785358) от 04.02.2018
 
-XMedia Recode 3.4.2.2 + Portable [Multi/Ru]
+Растровый клипарт - Animals #16 [PNG]
 
->>Архив торрентов
->>Архив Программ
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XMedia Recode - отличная утилита, цель которой - помочь Вам преобразовать видео почти любого формата в видео, совместимое с мобильными телефонами, плеерами, портативными носителями, игровыми приставками. Дружественный интерфейс позволит Вам сориентироваться в функционале и возможностях программы. XMedia Recode способна производить изменение размеров кадра видео, (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+Клипарт зверушки для вашего творчества на прозрачном фонеФормат: PNGРазрешение файлов: 118x500-4179x3332
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A86059BA11F7F4026A45EA94363507B7F7D8878
+magnet:?xt=urn:btih:5CFB58082C15C538758C756CB895E020F8E13D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203244   (785357) от 04.02.2018
+
+Горные лыжи. Кубок мира 2017–2018. Кортина д Ампеццо (Италия). Женщины. Скоростной спуск (20.01.2018) HDTV [H.264/720p] [hand made 50fps] [ITA]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785357.jpg" />
+</div>
+
+
+###  Подробнее
+
+20 января 2018 года, суббота. 12:00 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Кортина д Ампеццо (Италия).
+Женщины. Скоростной спускТелекомпания: RSI La 2 HDЖанр: СпортЯзык озвучки: Интершум, ИтальянскийСубтитры: отсутствуютПродолжительность: 01:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79502C707E78F6030C7ABF435FD3F9A599FEB26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204054   (785356) от 04.02.2018
+
+Клэр Сибер | 24 часа (2018) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда подруга Лори по имени Эмили трагически гибнет в огне пожара, женщина понимает, что это не случайность. Тот, кто преследует ее, просто ошибся, и на месте Эмили должна была быть сама Лори. Лори считают мертвой, ведь на шее Эмили был ее медальон. Лори понимает, что теперь опасность угрожает не только ей, но и ее близким. Например, дочери Полли, которая сейчас (   Читать дальше...   )Жанр: Зарубежные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C054726B8F1C9AAE318C73803E9024556019F9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

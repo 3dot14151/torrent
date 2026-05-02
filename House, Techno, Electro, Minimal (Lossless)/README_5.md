@@ -1,3 +1,32 @@
+###  Публикация: 1462331   (1021137) от 14.04.2021
+
+VA - Monstercat Instinct Vol. 7 (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Dance-Pop, Dubstep>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaskade, Will K - Flip Reset (03:08)
+02. Slushii - All I Need (03:46)
+03. Vicetone - No Rest (03:29)
+04. Tokyo Machine, Weird Genius, LIGHTS - Last Summer (02:53)(   Читать дальше...   )Жанр: Electro House, Dance-Pop, DubstepПродолжительность: 02:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C9AA524027F772FA639BF01BB08A55E656101F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462883   (1020783) от 16.04.2021
 
 Scooter - God Save The Rave (2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hardstyle, Dance>
@@ -716,33 +745,6 @@ Boris Divider - Discography 20 Releases (2004-2021) Artificial Domain [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65CD42D27ADCDCC173B564354DAD9D4CEFAC27A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477787   (1010849) от 16.06.2021
-
-El Perro De La Noche - Discography 11 Releases (2020-2021) [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Dub Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Perro 11 A (06:40)
- 02. El Perro 11 B (06:31)Тип издания: WebЖанр: Techno, Tech House, Dub Techno, Deep House •Продолжительность: 02:41:26 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90D76FB53D5D4853E9D258BE0AD15DE034644C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

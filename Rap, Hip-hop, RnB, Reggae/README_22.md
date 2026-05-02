@@ -1,90 +1,3 @@
-###  Публикация: 1414638   (383624) от 09.10.2020
-
-ВЕТЕР - Прыжок в неизвестность (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прыжок в неизвестность [03:36]
-02. Последний герой [04:36]
-03. Искренность намерений [03:01]
-04. Осталось дёрнуть за верёвочку [02:36](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:29:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF16A81B4412787676F4838C18FFB92D984BE252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414637   (383619) от 09.10.2020
-
-Plc - Новый (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро (Instrumental) [01:06]
-02. Точка сборки [02:29]
-03. Миллион [03:39]
-04. Скит (Instrumental) [01:03](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:151EB9E8B41089FFBA004D5A811EE7FA26FCC082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414640   (383410) от 09.10.2020
-
-Рыночные Отношения - 2020 (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Область ч.2 [02:35]
-02. Бездарь (feat. Loc-Dog) [03:48]
-03. Классика [03:33]
-04. Соковыжималка (feat. Pra(Killa'Gramm)) [03:33](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39ADE4F93A826C58ADD3B106D2A2E2B00032011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572353   (382439) от 09.11.2012
 
 Bob Marley & the Wailers - Legend (2012 (1984)) [FLAC 2.0 192/24 |WEB-DL]<Reggae>
@@ -750,6 +663,92 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71F7449A3C54514C84B31F6A0796BCAC1756D99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579086   (347815) от 23.11.2012
+
+Не Будите Спящих - Это Рэгги-Рэп4ик (ЕР) (2011) [MP3|320 кб/с]<Reggae, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это Рэгги-Рэп4ик
+02. Все,что есть у меня
+03. Это жаркое летоЖанр: Reggae, RapПродолжительность: 00:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F0F9811CAE817BB8B9DFB0EB251E0E67412C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257215   (345669) от 12.11.2010
+
+Rihanna - Loud (2010) [FLAC|Lossless]<R&B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S&M (4:04)
+02. What's My Name (Feat. Drake) (4:23)
+03. Cheers (Drink To That) (4:22)
+04. Fading (3:20)(   Читать дальше...   )Жанр: R&BПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1257401   (345193) от 26.10.2018
+
+Нигатив (Триада) - Жамевю (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345193.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вниз
+2. На руках
+3. Лавина
+4. Не пройди(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C4190C2BF14B59E2028AC582D5E7A227BFE05A
 ```
 
 https://mybot314.ru/tekegram_catalog/

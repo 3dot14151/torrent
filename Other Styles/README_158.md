@@ -1,3 +1,205 @@
+###  Публикация: 1596324   (168244) от 12.12.2022
+
+Mitchell Gaynor M.D. - Crystal Sonic Sound Sleep (2013) [FLAC|Lossless|tracks + .cue] <Relax, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delta Sleep 1
+02. Delta Sleep 2
+03. Delta Theta Sleep
+04. Delta Alpha Sleep(   Читать дальше...   )Жанр: Relax, HealingПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C59A5EEC546AE24FCC6290B4972E2725EBC6D2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596632   (168200) от 12.12.2022
+
+John Debney - Один дома / Home Sweet Home Alone (2021) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cousin Chaos
+02. What's With You Today
+03. Hunter And Uber Jeff
+04. It's A Christmas Miracle(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D82B716AA36B1783D166D8426803082DE9048B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672723   (167975) от 29.10.2023
+
+Люди Леса - Другие шепоты, другие тени (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sadness Horn 5:17
+02. Talisman 6:14
+03. White Stone 4:38
+04. Voron 4:27(   Читать дальше...   )Жанр: Dark FolkПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB0363EDC9B93165569D2BD0502B84FD0D03345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344631   (167252) от 14.12.2019
+
+Shinnobu - The Enigma VI (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Return to Myself (5:01)
+02. Beyond the After (6:16)
+03. Kissing the Moon (5:33)
+04. Deep Inside of Me (5:29)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA7DA0708B56CE47E74DAF567A53A0ECA55DCFA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344634   (167218) от 14.12.2019
+
+Shinnobu - The Enigma VII (Star Seeds) (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Neo-Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indigo (5:14)
+02. By Peace (5:05)
+03. Awakening Within Me (5:57)
+04. Like a Shadow (6:10)(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A2B34A9C564413EA20B53CE2BBAAFD57069002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344628   (167117) от 14.12.2019
+
+Shinnobu - The Enigma IV (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, Spiritual>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After of My Life (5:12)
+02. Gregorian Recordare (5:27)
+03. Intense Experience (5:50)
+04. Seventh Heaven (5:05)(   Читать дальше...   )Жанр: New Age, SpiritualПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4484B29915FA23F8D5ABF186D299F439AEEC9662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514473   (166672) от 10.12.2021
+
+Estas Tonne - 27 Синглов (2006-2020) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166672.jpg" />
+</div>
+
+
+###  Подробнее
+
+Estas Tonne (Станислав Тонне, род. 24 апреля 1975, город Запорожье) — гитарист-виртуоз. Изучал музыку с восьми лет и тогда же стал играть на гитаре. Учитель гитары Сергей Борисович Щербак. В 1990-е годы вместе с семьёй переехал в Израиль, где прожил около десяти лет, не занимаясь музыкой. Несколько лет он ездил по разным странам, а в сентябре 2002-го года в Нью-Йорке (   Читать дальше...   )Mirror of Life (Live in Zaporizhia, Ukraine 2019)
+
+2020 - Зеркало Жизни - Mirror of Life (Live in Zaporizhia, Ukraine 2019)Жанр: InstrumentalПродолжительность: 00:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCD5890BD5DB35C601E1EC65B6156BB66D9444FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 84233   (166597) от 30.10.2023
 
 Хиты украинской эстрады 60-х годов / Хіти української естради 60-х років (2005) [APE|~600 Kbps] <Folk, Народные песни>
@@ -542,209 +744,6 @@ Bee Celtic - Star Of The County Down (2022) [FLAC|Lossless|image + .cue] <Folk R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFB8CC9330A17FBA36FBBCABA21D033A60027953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598039   (162279) от 19.12.2022
-
-Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing Is Lost (You Give Me Strength) – The Weeknd
-02. Hometree – Simon Franglen
-03. Happiness Is Simple – Simon Franglen
-04. A New Star – Simon Franglen(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C935D1D845064098381BDE0FB5FB809BE44A855E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432410   (161940) от 19.12.2020
-
-VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Ballad>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vérone (3:40)
-02. La Haine (3:52)
-03. J'ai Peur (3:40)
-04. Les Rois Du Monde (3:27)(   Читать дальше...   )Жанр: Electronic, Pop, BalladПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44DAD106A6D128F05307B060E79DBD0C8D329BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432553   (161883) от 19.12.2020
-
-VA - Иисус Христос - Суперзвезда (Театр им. Моссовета) (1995) 2 СD [FLAC|Lossless|image + .cue] <Рок-опера>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тайная вечеря (5:44)
-02. Гефсиманский сад (6:21)
-03. Арест (4:18)
-04. Пилат и Кайафа (1:43)(   Читать дальше...   )Жанр: Рок-операПродолжительность: 01:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E2C1A25EF93045BDD5A94A7E11DC1E4121DA6E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674875   (160639) от 07.11.2023
-
-Pasărea Colibri - Ciripituri (1996) [APE|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Renunюare veselг 1:20
-02. Peste rгbdгri 3:46
-03. Оn tren 3:20
-04. Ploaia care va veni 3:12(   Читать дальше...   )Жанр: FolkПродолжительность: 01:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B9602661BE49259FDA09C707D4D2878AF3244F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674880   (160636) от 07.11.2023
-
-Pasarea Colibri - Cantece de bivuac (1999) [APE|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incripюie pe-o tobг 0:19
- 02. Vis de primгvarг 2:38
- 03. Pe Corso 3:54
- 04. Dealul cu dor 3:13(   Читать дальше...   )Жанр: FolkПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D090BC548F5171377180F749B81B2353DA4E38F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599135   (160026) от 22.12.2022
-
-Lindsey Stirling - Snow Waltz (2022) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening, Christmas>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lindsey Stirling (21.09.1986) - американская скрипачка, автор песен и танцовщица. Stirling исполняет самые разные музыкальные стили, от классики до поп-музыки и от рока до электронной танцевальной музыки. Помимо оригинальных работ, в ее дискографии есть каверы на песни других музыкантов и различные саундтреки. Ее дебютный альбом вышел в 2012, а уже к августу 2014 (   Читать дальше...   )01. Sleigh Ride (3:02)
-02. God Rest Ye Merry Gentlemen (3:16)
-03. feat. Bonnie McKee - Crazy for Christmas (3:44)
-04. Feliz Navidad (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy listening, ChristmasПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3576DAE55422C37A6341CED4CD24B13E33F86F4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597602   (159825) от 23.12.2022
-
-VA - Country Rock Delights (2022) [FLAC|Lossless|WEB-DL|tracks] <Country Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gram Parsons -- Brass Buttons (3:30)
-02. John Prine -- Come Back to Us Barbara Lewis Hare Krishna Beauregard (3:21)
-03. The Byrds -- Laughing (5:40)
-04. Emmylou Harris -- Wrecking Ball (4:49)(   Читать дальше...   )Жанр: Country RockПродолжительность: 01:23:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62EEAB8D50FFA91993DF3C4D94B963C3A539F12
 ```
 
 https://mybot314.ru/tekegram_catalog/

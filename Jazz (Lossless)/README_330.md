@@ -1,3 +1,61 @@
+###  Публикация: 1733223   (107292) от 28.06.2024
+
+Kevin Casteel - Shadows of the Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mississippi Mud (5:26)
+02. Shadows of the Past (4:26)
+03. Johnny (feat. Alvin Jones) (4:53)
+04. Theo (feat. Terrence 'TJ' Johnson) (5:13)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE78284F3D54419B690E71340E47611EC0594EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733468   (107289) от 29.06.2024
+
+Louis Prima - 1944 - 1945 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Very Thought of You [2:34]
+02. Way Down Yonder in New Orleans [2:15]
+03. Beloved [3:02]
+04. Let's Take the Long Way Home [2:46](   Читать дальше...   )Жанр: SwingПродолжительность: 01:12:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082D5F188E5F08466313FAF7B876149002E34B9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1733476   (107288) от 29.06.2024
 
 Anita O'Day - Live In Tokyo (1975) 1994, Venus Records [FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ George Shearing Quintet And Orchestra - White Satin & Black Satin (1957, 1960) 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A123BBE400E28E17CD099F09F921F5F930B994B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735878   (106762) от 10.07.2024
-
-Ray Brown, Monty Alexander, Sam Most - A Ray Brown 3 (1982) 2002, Victor Entertainment [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish You Love [6:02]
-02. I Can't Stop Loving You [4:57]
-03. Jamento [3:09]
-04. Blue Monk [4:41](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770CC80B52F77312BE82FA719BF0213481BEF597
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736111   (106720) от 11.07.2024
-
-Leo Parker - Rollin' With Leo (1961) 2009, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lion's Roar [4:55]
-02. Bad Girl [6:17]
-03. Rollin'  With Leo [6:25]
-04. Music Hall Beat [4:57](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6311719A6A8B0587ADFD5B8EB4C0AB03D05B5C4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

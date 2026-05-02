@@ -1,3 +1,32 @@
+###  Публикация: 1336520   (277329) от 08.11.2019
+
+Santana - Tanglewood 1970 The Classic Early Broadcast (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Batuka/Se A Cabo (Live) ( 7:45)
+02. Black Magic Woman (Live) ( 5:41)
+03. Oye Como Va (Live) ( 4:32)
+04. Incident At Neshabur (Live) ( 5:34)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33DEFE7D682B9242D21A21E5215E24D905742F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1187880   (276872) от 30.11.2017
 
 U2 - Songs Of Experience (2017) Deluxe Edition [MP3|320 Kbps] <Classic Rock>
@@ -719,35 +748,6 @@ Pianoбой - ХІСТОРІ (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1597FC5A26954546254DCB3270167131FD34AC7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192072   (263528) от 16.12.2017
-
-Vintage Reserve - Vintage Reserve (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love divine (02:56)
-02. Addicted to you (04:27)
-03. Frisco nights (03:34)
-04. Something good (03:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6FAEDE49F6887AA3786ECAB69FBB3C474863A7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

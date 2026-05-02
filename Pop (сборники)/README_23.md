@@ -1,3 +1,116 @@
+###  Публикация: 1498593   (854399) от 28.09.2021
+
+VA - Fall Trends (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Machine Gun Kelly - papercuts
+02. Taylor Swift - Lover
+03. The Lorax Singers - Let It Grow
+04. Florence + The Machine - Dog Days Are Over(   Читать дальше...   )Жанр: PopПродолжительность: 02:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CADF05A63C74A47E3AF7D8C080BA91B8FDE41D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 647879   (854226) от 24.04.2013
+
+VA - Eurovision Song Contest. Malmo 2013 (2013) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110206   (853775) от 02.03.2017
+
+VA - Снежный популярный отрыв. Сборник № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853775.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Генри - На Север 3:20
+002. Tiger Family - Нравится Мне 3:03
+003. Bubble Gum - Вытворяют Чудеса 3:34
+004. Ira Smith - Буду Выше 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89DCEB7BED8D0716092308BA5FCBB34F2E7D6113
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110555   (852094) от 03.03.2017
+
+VA - Танцевальная вечеринка от Хит FM выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852094.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Самира - Совпали 3:30
+002. Бамбинтон - Зая 3:40
+003. Лариса Гордьера - Прости Меня 3:30
+004. Вероника Андреева - Я Люблю Своего Мужа 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868AA560A2A69165D743A31539AFF0B3C9CAAD40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110556   (852078) от 03.03.2017
 
 VA - Весна пришла. Лучшие хиты. Сборник № 10 (2017) [MP3|256 Kbps] <Pop>
@@ -623,113 +736,6 @@ VA - Музыкальная волна (2011) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A482DFBBEE38F43C0954F099919617EC51B731EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309251   (842638) от 15.03.2011
-
-VA - Весна плюс Русский (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 05:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE15263F40B9E67B053B43B79152D475C520AB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309310   (842534) от 15.03.2011
-
-VA - Кино Шлягер Часть 2 (2011) [MP3|256 kbps]<Pop/Soundtrack>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842534.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/SoundtrackПродолжительность: 05:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098AABFE6DD30CBBED0F8520383064BA6778D8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500388   (840949) от 06.10.2021
-
-VA - Осень на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minelli - Rampampam (Vadim Adamov & Hardphol) (3:11)
-02. Shouse - Love Tonight (HUBBA MRK Extended Remix) (4:34)
-03. Ed Sheeran - Bad Habits (Camp Kubrick Cover) (4:11)
-04. Kungs - Never Going Home (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3D56CAA77C826577ADEA933696C3F41EC13B46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309840   (840913) от 16.03.2011
-
-Va - Дискотека От Руки Вверх (2011) [MP3|256 kbps]<Pop/Dance >
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop/DanceПродолжительность: 06:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739725E0C86E78E1069735F8470D67696090B409
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,284 @@
+###  Публикация: 1564236   (501733) от 17.07.2022
+
+Music Tag Editor Pro 7.0.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Music Tag Editor - редактор музыкальных тегов поможет вам изменить информацию легко и эффективно, преобразовать текст тегов, добавить обложку и т.д.
+Приложение поддерживает следующие форматы: MP3, M4A (Apple lossless), MP4, FLAC, APE, AIFF, WAV , Ogg files.
+Поддержка: ID3V1, ID3V2.3,ID3V2.4, xiphComments, APE Tag, Ogg Vorbis, Ogg Speex, Ogg Flac.Тип издания: macOS SoftwareРелиз состоялся: 17.07.2022Разработчик: © 2013-2021 yumysoftПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBC052DE036596B1A822F1BB7E174D6910172F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564067   (501728) от 17.07.2022
+
+Boxy SVG 3  v3.86.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 16.07.2022Разработчик: © 2012-2022 Jaroslaw FoksaПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1CA76C17D76272AFABECD0360590296D6AC4684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541564   (501717) от 31.08.2012
+
+Gilrs Wallpaper Collection (30.08.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501717.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 5531х3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E9E4019FA5ABABF40F966AE355E5E55C6FB4785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541561   (501712) от 31.08.2012
+
+Sexy Girls Pack Wallpapers (30.08.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2580
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5202B498CBC4E3E2EAFCF8B1747489019912BE0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540797   (501710) от 31.08.2012
+
+VA - Самые Сливки Новинок 50+50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pablo Lago feat. Laura Elece - The Music Takes Control (Radio Edit)
+ 02. Music Hayk & Killa Voice - Буду С Тобой
+ 03. Chris Thrace feat. Glorya - Un Beijo (Radio Edit)
+ 04. New Самоцветы - Помнишь Modern Talking
+ 05. Eleni Foureira - Ti Poniro Mou Zitas
+ 06. Sara Oks - Я Маяк
+ 07. Inna - Tu Si Eu (Acoustic Radio Version)
+ 08. W.E.S.T. - Если Захочешь (Radio Edit)
+ 09. Jeremy Greene feat. Fatman Scoop - Better Without You
+ 10. Анастасия Главатских - Не Твоя (Radio Version)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5BAA04AC8018FFEE1B8D4745516874256CDD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541232   (501709) от 31.08.2012
+
+Poor Moon - Poor Moon (2012) [FLAC|Lossless]<Indie/Folk/Alternative>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clouds Below
+02. Phantom Light
+03. Same Way
+04. Holiday
+05. Waiting For
+06. Heaven's Door
+07. Pulling Me Down
+08. Bucky Pony
+09. Come Home
+10. BirdsЖанр: Indie/Folk/AlternativeПродолжительность: 00:30:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541122   (501707) от 31.08.2012
+
+VA - Музыкальный Подарок Сезона. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501707.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Far East Movement feat. Crystal Kay - Where The Wild Things Are
+002. Brandon Flowers - Only The Young
+003. Linden & Senerano - F You All (Marq Aurel & David C Radio Edit)
+004. Simon From Deep Divas feat. Goody - Disco dancer
+005. Medina - Vend Om
+006. Jennifer Lopez - Bailar Nada Mas
+007. Kris Mctwain - My Passion (Radio Edit)
+008. Sunrise Inc - Mysterious girl
+009. Blackman feat. MC Freedom - Bring me down
+010. Bueno Clinic - Sex appeal (Max Farenthide remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:15:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41364597016A5BF962BE12D44D7AC38F9567C073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541134   (501705) от 31.08.2012
+
+Circle Of Light - Rebirth (2012) [MP3|~256кб/с ]<Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501705.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Circle Of Light (4:20)
+2.  Circus Comes To Town (4:31)
+3.  Sail Into The Heavens (2:42)
+4.  Modern Day Vampire (3:46)
+5.  Rebirth (5:18)
+6.  Rest In Peace (5:06)
+7.  Silent Night (4:47)
+8.  Every Dog Has Its Day (2:50)
+9.  On A Clear Night (2:48)
+10.  Try To Stop Me Now (3:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6083A325AFE87DD966C44764576C306FF7044122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541692   (501699) от 31.08.2012
+
+VA - Armada Top 15 September (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren Pres. Gaia - J'ai Envie De Toi (7:03)
+02. Markus Schulz feat. Adina Butar - Caught (6:07)
+03. Dash Berlin feat. Chris Madin - Silence In Your Heart (7:16)
+04. Ashley Wallbridge feat. Audrey Gallagher - Bang The Drum (7:31)
+05. Christian Burns & Stefan Dabruck - Bullet (6:18)
+06. Alex M.O.R.P.H. feat. Sylvia Tosun - Antara (The Circle) (7:25)
+07. Justin Michael feat. AJ from Saint Motel - Eyes Closed (6:06)
+08. Paul Oakenfold feat. J Hart - Surrender (6:14)
+09. Milan & Phoenix - Istanbul (Not Constantinople) (4:19)
+10. Stefan Dabruck & Tocadisco - Saturn (5:23)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CDAC360F852D958F57697B3628A5FF3D248BCEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541558   (501697) от 31.08.2012
 
 Nature Wallpapers (30.08.12) [Wallpapers]
@@ -499,262 +780,6 @@ PLC - Воздух (2012) [MP3|320 кб/с]<Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAC39BCD6D3B4FC69FAEAEC74DC3979F5A71C9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541205   (501489) от 31.08.2012
-
-Get Well Soon - The Scarlet Beast O'Seven Heads (2 CD Limited Edition) (2012) [FLAC|Lossless]<Alternative, Indie Rock, Folk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501489.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Prologue
-02. Let Me Check My Mayan Calendar
-03. The Last Days Of Rome
-04. The Kids Today
-05. Roland, I Feel You
-06. Disney
-07. A Gallows
-08. Oh My! Good Heart
-09. Just Like Henry Darger(   Читать дальше...   )Жанр: Alternative, Indie Rock, FolkПродолжительность: 00:54:18 / 00:18:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541645   (501488) от 31.08.2012
-
-Markus Schulz - Scream (Extended Mixes) (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz - Scream (Extended Mixes) (2012)
-
-Год: 2012
-Жанр: Trance
-Продолжительность: 02:25:13Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Markus Schulz - Our Moment (Intro Mix) (1:36)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9A8196BAF70C9BE3EF3E327B20423BE4D7CE182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564240   (501487) от 17.07.2022
-
-InShot - Фото и видеоредактор 1.840.1360 Mod by Apps Store [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501487.jpg" />
-</div>
-
-
-###  Подробнее
-
-InShot - Фото и видеоредактор - очень впечатляющее своими возможностями и удобством приложение, что завоевало стойкую положительную репутацию у пользователей мобильных гаджетов. Проект представляет собой фоторедактор и видеоредактор, а так же обладает функцией превращения статичных изображений в так называемые живые фотографии. Не стоит ожидать от программы внешность (   Читать дальше...   )Тип издания: ProРелиз состоялся: 14.07.2022Разработчик: InShot Video EditorЯзык интерфейса: Русский, Английский, Шведский и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C43281354209FF4C2138F0055C465BD6257156A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317282   (501482) от 31.07.2019
-
-maria - Cor e Forma (2018) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Instrumental, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (fonte) (1:41)
-02. Padrão de azul (5:17)
-03. Volta (feat. João Tamura) (9:31)
-04. I can feel your green Vibes (3:07)(   Читать дальше...   )Производство: Monster JinxЖанр: Hip-Hop, Instrumental, ElectronicПродолжительность: 00:40:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7802BEFA054D9044BEEC1BF1BBAB909D9C67010A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564143   (501480) от 17.07.2022
-
-Cockos REAPER 6.64 (x86/x64) RePack (& Portable) by xetrin [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cockos Reaper является одной из самых продвинутых программ для создания музыки, как в студии, так и в домашних условиях. Главная «фишка» программы заключается в том, что она имеет паттерновое, клавиатурное и аудио редактирование. Вы можете задавать неограниченное количество аудио или миди треков, не считая того, сколько можно добавить виртуальных инструментов формата (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDEF86BD559528BDD5F18EB275A870CBBB51B393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317301   (501479) от 31.07.2019
-
-Outsidr - Rapture EP (2019) [FLAC|Lossless|WEB-DL|tracks] <Future Garage, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twilight (03:42)
-02. Nomad (03:28)
-03. Obsidian (03:51)
-04. Rapture (03:51)(   Читать дальше...   )Жанр: Future Garage, AmbientПродолжительность: 00:19:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7386965432965AA04A285A2F15AB8795B098A85A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564193   (501471) от 17.07.2022
-
-CrystalDiskInfo 8.17.4 RePack (& Portable) by 9649 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501471.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73EEB93145BC921071925614168B5776EEEF492A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317322   (501464) от 31.07.2019
-
-WinSnap 5.1.3 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501464.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinSnap позволяет делать скриншоты экрана монитора и редактировать полученные изображения. WinSnap может захватывать скриншоты нестандартных окон, которые имеют не строго прямоугольную форму. Кроме того, программа способна автоматически исправлять некоторые недостатки в графике, накладывать тени, сохранять результаты в большинстве графических форматах.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A78F80565D4AF9CB961207CB4A69940271AADE06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564080   (501462) от 17.07.2022
-
-CrystalDiskInfo 8.17.4 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501462.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2BDEE392FB98C6C5F5C15F7F32F8DAC0974210A
 ```
 
 https://mybot314.ru/tekegram_catalog/

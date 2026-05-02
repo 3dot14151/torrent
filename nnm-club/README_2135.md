@@ -1,21 +1,134 @@
-###  Публикация: 1479177   (1009553) от 24.06.2021
+###  Публикация: 1477318   (1011137) от 14.06.2021
 
-Сергей Линник, Дмитрий DM | Зелёные буковки, или конюх Аким против (2021) [FB2]
+Капитан Лис - Портовые Шлюхи, 2CD (2021) [MP3|320 Kbps] <Folk Rock, Folk Metal>
 
->>нет
->>нет
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009553.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011137.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ЛитРПГ о внедрении игрового интерфейса в простого русского парня, живущего во времена далекой старины.
-Конюх Аким вовлечен высшими силами в нечеловеческой жестокости эксперимент и только русский дух и выдающиеся духовные скрепы дают ему силы преодолеть несчастье.
-Или нет.
-Глубокое философское исследование, проводящее анализ онтогенетической изменчивости в рамках (   Читать дальше...   )Жанр: ЛитРПГФормат: FB2
+01. Портовые Шлюхи (Rock Edition) [00:02:22]
+02. Нахер Шторм! (Rock Edition) [00:02:08]
+03. Чарка Рома (Rock Edition) [00:02:23]
+04. Горизонт (Rock Edition) [00:02:28](   Читать дальше...   )Жанр: Folk Rock, Folk MetalПродолжительность: 2CD, 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F79CA5905BDAF162C910A2C645AB63CD26A8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477332   (1011136) от 14.06.2021
+
+Чемпионат США по супербайку 2021. Этап 3. Элкхарт Лейк. Гонка 1-2 / MotoAmerica 2021. Rd. 3. Elkhart Lake. Race 1-2 (2021) WEB-DL [H.264/720p-LQ]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011136.jpg" />
+</div>
+
+
+###  Подробнее
+
+MotoAmerica — это организация, которая продвигает серию AMA Superbike с 2015 года. С санкции Американской ассоциации мотоциклистов и Международной федерации мотоциклистов она предлагает пять классов шоссейных гонок: Superbike, Stock 1000, Supersport, Twins Cup и Junior Cup.Телекомпания: 36Racing / A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Сергей Сухоруков)Субтитры: ОтсутствуютПродолжительность: 00:58:58 + 01:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB283F7989704C002F5890C4947A0096953AFAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1476816   (1011135) от 14.06.2021
+
+Sinoptik - 5 Albums (2014-2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Psychedelic, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Le Menteur [00:06:27]
+02. Granny Greta [00:03:43]
+03. Young and High [00:05:01]
+04. Inception [00:00:59](   Читать дальше...   )Жанр: Progressive, Psychedelic, Stoner RockПродолжительность: 5 CD, 02:57:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5E348F9BD362C5C5AE7A68CD9A9074C45175D88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477084   (1011134) от 14.06.2021
+
+Dig Me No Grave - Immemorial Curse (2017) [FLAC|Lossless|image + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (1:26)
+02. Ritual Slaughter (3:25)
+03. Initiation To Afterlife Disciplines (3:24)
+04. Cursed Acheron (3:49)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB4D7FD8F189C06F379F5B7650A0A365ACCF9655
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477166   (1011133) от 14.06.2021
+
+She Bites - Joyride (2020) [FLAC|Lossless|image + .cue] <Melodic Rock, Female Vocal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demons (3:48)
+02. Joyride (3:40)
+03. She Is On Fire (3:54)
+04. Heartbreak Hotel (4:07)(   Читать дальше...   )Жанр: Melodic Rock, Female VocalПродолжительность: 00:41:23
 
 ## Скачать торент
 ```bash
@@ -27,28 +140,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479247   (1009552) от 24.06.2021
+###  Публикация: 1477366   (1011132) от 14.06.2021
 
-VA - New Latin Hot Playlist (2021) [MP3|320 Kbps] <Latin, Reggaeton, Dancehall>
+Марина Мелия | Мама рядом! Главный секрет первого года жизни (2020) [MP3]
 
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009552.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011132.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dkvpz - Churrascada E Piscina
-002. Oscar Yestera, DJ Combo - No Soy Tu Juguete
-003. Bandé-Gamboa - Pé Di Bissilon
-004. Goleada - Ritmo Della Noche(   Читать дальше...   )Жанр: Latin, Reggaeton, DancehallПродолжительность: 07:55:02
+Многие родители уверены: в первый год жизни ребенку нужны только уход и забота. А настоящее воспитание начнется позднее. Это огромное заблуждение! Вырастет человек целеустремленным или безвольным, общительным или замкнутым, сообразительным или не очень – во многом зависит от того, насколько мама вложится в первые 12 месяцев.
+В основу этой книги лег бестселлер (   Читать дальше...   )Жанр: Воспитание детей/Детская психологияПродолжительность: 06:39:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD22A8A1497BA0B823CD4FEE070CB9BEB85D563F
+magnet:?xt=urn:btih:01E39B5E492DB5EB1B19A4D0876CF0B2F6E27584
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +167,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479331   (1009551) от 24.06.2021
+###  Публикация: 1477273   (1011131) от 14.06.2021
 
-Rob Strong & Peter Brander  - Stronger Together (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Microsoft Visual Studio 2019 Community 16.10.1 (Offline Cache, Unofficial) [Ru/En]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009551.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011131.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Baby's Coming Back to Me (3:28)
-02. Standing on Shaky Ground (4:36)
-03. Going Down South (5:07)
-04. Back Button (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:34
+Visual Studio Community 2019 - Бесплатная, полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:19DD2E4396F058B262612993FAED2FA25C16947C
+magnet:?xt=urn:btih:00639AB3C85C2C91F04B898D15C042D5E1B35AC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,24 +193,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479332   (1009550) от 24.06.2021
+###  Публикация: 710293   (1011130) от 14.06.2021
 
-The Liberators - Waitin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Ян Карафиат | Светлячки (2008) [FB2]
 
->>нет
->>нет
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009550.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011130.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Waitin' (3:52)
-02. Lonely Nights (3:36)
-03. Can’t Wait Another Day (3:50)
-04. Cry Like a Wolf (3:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:30:11
+В 1876 году в частной пражской типографии была анонимно напечатана небольшая книжка «Светлячки» или повесть «для маленьких и больших детей». Вскоре критики с восторгом нарекли автора «чешским Андерсеном» и в следующем издании появилось его имя. Им оказался священник-евангелист Ян Карафиат.
+ Как в капле воды, в недолгой жизни семейства светлячков отразил автор всё (   Читать дальше...   )Жанр: Сказки народов мираФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0395868A02CD1BE5F8DFA1F15081946F0C655CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477141   (1011129) от 14.06.2021
+
+Backwood Spirit - Fresh From The Can (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catch Your Fire
+02. Rainbow (Full Circle)
+03. Celebretion
+04. Sweet In The Evening (Lullaby)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3001E32317AF772ADAA3687BA65ECB648EC61CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477236   (1011128) от 14.06.2021
+
+Растровый клипарт - Elements Collage 176 [PNG, PSD, JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011128.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 205x500-2243x830
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:217A4EF897A5A765EF406E4BA20891CB8AED5A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477289   (1011127) от 14.06.2021
+
+Hodíla ízba (Hodila izba) - Ходуном (2021) [MP3|320 Kbps] <Russian Folk Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Кривошейка [00:04:27]
+02 - Шёл я яром [00:03:44]
+03 - Под лесом [00:05:26]
+04 - Дождь [00:04:12](   Читать дальше...   )Жанр: Russian Folk RockПродолжительность: 00:46:47
 
 ## Скачать торент
 ```bash
@@ -114,25 +304,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479478   (1009549) от 24.06.2021
+###  Публикация: 1477088   (1011126) от 14.06.2021
 
-Свободно и легко / Qingsong +yukuai / Free and Easy (2016) BDRemux [H.264/1080p] [VO]
+Dig Me No Grave - From Past Aeons (2011) Limited Edition, Reissue, 2016, Symbol Of Domination [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009549.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Место действия – маленький и почти безлюдный городок на северо-востоке Китая. Появление таинственного торговца мылом влечёт за собой череду событий с участием местной полиции, буддийского монаха и других довольно странных жителей городка.Производство: Китай, The Old Avant-Garde Films, U. Lan Media HongkongЖанр: КомедияРежиссер: Гэн ЦзюньАктеры: Сюй Ган, Чжан Чжиюн, Сюэ Баохэ, Чжан Сюнь, Гу Бэньбинь, Ван СюйсюйПеревод: Одноголосый любительский (Franek Monk)Субтитры: ФранцузскиеПродолжительность: 01:38:45
+01. Summoning (0:44)
+02. Forbidden (2:29)
+03. Dark Predictions (3:26)
+04. Mortician (2:56)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:24:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C47DE8F44B6A30F13CC3D0316F779848CB25E832
+magnet:?xt=urn:btih:485FB04261D26236E42CEDEDE0A8CA4027EAB045
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +333,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479509   (1009548) от 24.06.2021
+###  Публикация: 1477371   (1011125) от 14.06.2021
 
-V.A. - Alligator Records 50 Years Of Genuine Houserockin' Music (2021) 3CD [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues-Rock>
+Марина Мелия | Отстаньте от ребёнка! Простые правила мудрых родителей (2020) [MP3]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009548.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011125.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга для ответственных родителей, мгновенно ставшая бестселлером, – теперь с новыми главами!
+Мы все хотим вырастить детей; успешными, самостоятельными, счастливыми. И поэтому активно организуем их жизнь, контролируем поведение, постоянно одергиваем и корректируем. Но наши усилия повлиять на другого человека, прямо воздействуя на него, почти бесполезны.
+Марина Мелия (   Читать дальше...   )Жанр: Воспитание детей/Детская психология/Семейная психологияПродолжительность: 04:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB62982DFD408E4401CAC031A3F4BC7DAA5DE9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477211   (1011124) от 14.06.2021
+
+Ella Fitzgerald - Seven Classic Albums (1959 - 1961) 4CD, 2012, Real Gone Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011124.jpg" />
 </div>
 
 
 ###  Подробнее
 
 CD1:
-01. Hound Dog Taylor - Give Me Back My Wig (Remastered) (3:35)
-02. Koko Taylor - I'm A Woman (Remastered)
-03. Big Walter Horton;Carey Bell - Have Mercy (Remastered)(   Читать дальше...   )Жанр: Blues, Blues-Rock |Продолжительность: 03:52:19
+01. Somebody Loves Me [2:36]
+02. Cheerful Little Earful [2:06]
+03. You Make Me Feel So Young [2:22](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 04:37:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:640ED329373CE58EFC52D9D5479360E55022EEA6
+magnet:?xt=urn:btih:1D274E47CC7EF5B356191394EB30A4FFD5ABC8EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +390,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479242   (1009547) от 24.06.2021
+###  Публикация: 1477354   (1011123) от 14.06.2021
 
-VA - Samsara Heat (Vol.01) (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub>
+Дарья Сойфер | Секрет фермы (2019) [EPUB]
 
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
+>>Художественная литература
+>>Современная поэзия и проза
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009547.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Vibronics - Shine His Version
-002. Gentleman - Blessings
-003. Junior Byles - Fever
-004. Lloyd, Claudette - Queen Of The World(   Читать дальше...   )Жанр: Reggae, Riddim, DubПродолжительность: 07:38:16
+Ольга Шорох обладает всеми необходимыми качествами, чтобы стать управляющей отеля «Венера Рояль» на Якиманке, – она целеустремленная, волевая и абсолютно незаменимая. Но акционеры решают иначе: они отправляют Ольгу в село под Тверью, чтобы построить там эко-отель. Ольга сдаваться не намерена – она сделает все возможное и невозможное, чтобы за несколько месяцев превратить (   Читать дальше...   )Жанр: Современные любовные романыФормат: EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E1065B75B5BAAD14663C9F34048F65340C4B3505
+magnet:?xt=urn:btih:1B7D30B8B3A9F5699B5CF069148A63B159EE963A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,25 +416,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479520   (1009546) от 24.06.2021
+###  Публикация: 1477388   (1011122) от 14.06.2021
 
-Brave Browser 1.26.67 Portable by Cento8 [Ru/En]
+RogueKiller Anti-Malware 15.0.2 + Portable [Multi]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009546.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Brave - защищенный браузер на базе Chromium, построенный на принципах приватности пользователей и высокой скорости работы. Блокирует раздражающую рекламу и предотвращает мониторинг активности в интернете, ускоряя загрузку веб-страниц.Язык интерфейса: Русский, Английский
+RogueKiller Anti-Malware можно использовать бесплатно для сканирования и очистки. Однако, приложение имеет дополнительные платные функции, которые обеспечивают защиту в режиме реального времени, более высокий уровень безопасности и позволяют более детально настраивать поведение программы. Среди дополнительных возможностей: автоматическое обновление, использование (   Читать дальше...   )Язык интерфейса: Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B4EDD6B6C4C34CEE475F6B040DA1D5153C992BE
+magnet:?xt=urn:btih:E8F02362513C5B43E4810765D1886707535A12B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,101 +442,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479575   (1009545) от 24.06.2021
+###  Публикация: 1477188   (1011121) от 14.06.2021
 
-НХЛ. Кубок Стэнли 2020-2021. 1/2 финала. 6-й матч. Тампа-Бэй Лайтнинг - Нью-Йорк Айлендерс (23.06.2021) WEB-DL [H.264/720p] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009545.jpg" />
-</div>
-
-
-###  Подробнее
-
-24 июня 2021, четверг. 03:00 МСК
-1/2 финала. 6-й матч. Стадион: Нассау Колизеум (Нью-Йорк, США), 12 978 зрителей (80% при вместимости 16 297)
-Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Горд Дуайер (Галифакс, Канада)Телекомпания: SNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BB3CEFF8A5B628172E7290CAD89E6E1A94AB3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479550   (1009544) от 24.06.2021
-
-Олег Велесов | Подёнщик. Форт-Хоэн (2021) [FB2]
-
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009544.jpg" />
-</div>
-
-
-###  Подробнее
-
-Я оказался в мире, где жизнь и игра — это синонимы, а смерть — система перезагрузок, которая вновь возвращает человека в игру. Или не возвращает. Здесь всё строится на власти кланов, которые любые разногласия решают мечом и топором, а за малейшую провинность рубят людям руки. Чтобы выжить, я должен стать таким же или сбежать, но путь к свободе закрывает замок, хозяин (   Читать дальше...   )Жанр: ЛитРПГФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6187FC994A7393C3E12036CABD1347B90EFC8F21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479533   (1009543) от 24.06.2021
-
-UFO Robo Grendizer tai Great Mazinger | UFO Robo Grandizer vs. Great Mazinger | Инопланетный робот Грендайзер против Великого Мазингера [1976, Movie] BDRip 522p raw
-
->>Аниме с субтитрами
->>Аниме (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайске и Хикару отправляются на прогулку в лес, а тем временем к Земле незаметно приближается новый, хорошо оснащённый враг. Коджи принимает решение сражаться в одиночку. Что из этого вышло - смотрите сами...Производство: Dynamic Planning / ダイナミック企画Жанр: приключения, фантастика, мехаРежиссер: Касай ОсамуПеревод: Дорога ЗероЯзык озвучки: японскийСубтитры: русские, английскиеПродолжительность: 27 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A6856470DAD9B86B84358D9E4C5EF5722D869B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479495   (1009542) от 24.06.2021
-
-Футбол. Чемпионат Европы 2020. Групповой этап. Обзор матчей (24.06.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Манчестер Юнайтед: Путь к славе / Manchester United: For the Glory (2020) IPTV [H.264/1080p-LQ]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009542.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чемпионат Европы по футболу 2020 года. Обзор матчей. 3й тур.13й день (24.06.2021)Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:23:01
+Обладатель 20 титулов Премьер-лиги, 3 Лиги чемпионов УЕФА и 12 кубков Англии, Манчестер Юнайтед - одна из самых титулованных футбольных команд в этом виде спорта. Имея более 650 миллионов поклонников по всему миру, они также являются одним из крупнейших брендов в отрасли с действительно узнаваемым имиджем.Производство: Великобритания, Entertain Me ProductionsЖанр: Документальный, история, спорт, футболРежиссер: Мэтт СэлмонПеревод: Двуголосый закадровый, профессиональный ("Матч ТВ")Субтитры: отсутствуютПродолжительность: 01:02:42
 
 ## Скачать торент
 ```bash
@@ -330,28 +468,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479330   (1009541) от 24.06.2021
+###  Публикация: 1477282   (1011120) от 14.06.2021
 
-Gustavo Andrade & Sergio Pavanelli - Piano Bar & Blues Guitar (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Microsoft Visual Studio 2019 Professional 16.10.1 (Offline Cache, Unofficial) [Ru/En]
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009541.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nobody Makes Me Cry but You (3:48)
-02. Don't Let the Sun Catch You Cryin' (4:05)
-03. All of Me (3:19)
-04. Stormy Monday (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:40
+Visual Studio 2019 - полнофункциональная и расширяемая интегрированная среда разработки для создания современных приложений для Android, iOS и Windows, а также веб-приложений и облачных служб.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F776954F05592B3E417730B8FE0FC9953CC28EDE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,25 +494,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479486   (1009540) от 24.06.2021
+###  Публикация: 1477060   (1011119) от 14.06.2021
 
-Свободно и легко / Qingsong +yukuai / Free and Easy (2016) BDRip [VO]
+Def Leppard - X, Yeah! & Songs From The Sparkle Lounge: Rarities From The Vault (2021) 6 CD, Box Set Volume Three, Super Deluxe Edition,  Mercury[MP3|320 Kbps] <Rock>
 
->>нет
->>нет
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Место действия – маленький и почти безлюдный городок на северо-востоке Китая. Появление таинственного торговца мылом влечёт за собой череду событий с участием местной полиции, буддийского монаха и других довольно странных жителей городка.Производство: Китай, The Old Avant-Garde Films, U. Lan Media HongkongЖанр: КомедияРежиссер: Гэн ЦзюньАктеры: Сюй Ган, Чжан Чжиюн, Сюэ Баохэ, Чжан Сюнь, Гу Бэньбинь, Ван СюйсюйПеревод: Одноголосый любительский (Franek Monk)Субтитры: отсутствуютПродолжительность: 01:38:45
+01. Elected (Live In Tilburg - 1987) [00:04:19]
+02. Action (Live Recorded On Tour 2005) [00:04:07]
+03. No Matter What (Live Recorded On Tour 2005) [00:03:05]
+04. Rock On (Live - 2006) [00:03:13](   Читать дальше...   )Жанр: Rock /Продолжительность: 6CD, 04:54:14
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:59D59C41B1516D174EE87C49A9B5A4C445B99A33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -385,57 +523,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479346   (1009539) от 24.06.2021
+###  Публикация: 1477394   (1011118) от 14.06.2021
 
-VA - Beatport Vocal House: Sound Pack #303 (2021) [MP3|320 Kbps] <Vocal House, Electro>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009539.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Achickwitbeatz - Maybe Again
-002. Lny Tnz - Just Do It
-003. Judith Ahrends - Idea
-004. Tiffany Queen - Make Love To Yourself(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 07:46:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479362   (1009538) от 24.06.2021
-
-VA - HGM: Deep House Project June (2021) [MP3|320 Kbps] <Deep House, Electro>
+VA - Record Super Chart 12.06.2021 [MP3|320 Kbps] <Pop, Dance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Mundos Sutis - Something Elegant
-002. Deeperwalk - Back Home
-003. Truvor - Broken
-004. Cup & String - No Pressure(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:39:04
+01. Nessa Barrett feat. jxdn - la di die (3:15)
+02. Inna - Flashbacks (2:57)
+03. Tiesto - The Business (2:44)
+04. Stefy De Cicco, HUGEL, Hugo Cantarra, Nikol Apatini - 4 to the Floor (2:56)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0B79200295347718A241B0A5EBBB3DBE74678F40
+magnet:?xt=urn:btih:58A5684FA63E5E96795CEAA2D092C698B10F9DF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -443,53 +552,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479523   (1009537) от 24.06.2021
+###  Публикация: 1477262   (1011117) от 14.06.2021
 
-Rozedale - Rozedale (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ghost for You (4:22)
-02. Brand New Slate (3:49)
-03. Shine (3:54)
-04. Burning (3:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B94520C6785EF1F699E3CE679FFDC8734F3BB93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479481   (1009536) от 24.06.2021
-
-Футбол. Чемпионат Европы 2020. Групповой этап. Группа F. 3-й тур. Германия - Венгрия (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Hiraeth Records - Label-Pack 12 Releases (2019-2021) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Vaporwave, Synthwave>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чемпионат Европы по футболу 2020 года. Групповой этап. Группа F. 3-й тур. Германия - Венгрия. 23 июня 2021, среда.22:00 МСК
-СУДЬЯ Карасев Сергей (Москва, Россия)
-Судья на линии 1: Демешко Игорь (Россия)
-Судья на линии 2: Гаврилин Максим (Россия)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:04
+01. Opacity Field (03:28)
+ 02. Vanta (03:09)
+ 03. Acid Disco (04:21)
+ 04. Falling Spaces (03:13)(   Читать дальше...   )Жанр: Ambient, Vaporwave, Synthwave •Продолжительность: 08:26:28
 
 ## Скачать торент
 ```bash
@@ -501,28 +581,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479525   (1009535) от 24.06.2021
+###  Публикация: 1477297   (1011116) от 14.06.2021
 
-The Poppy Jasper Band - One for the Road (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Microsoft Visual Studio 2019 Enterprise 16.10.1 (Offline Cache, Unofficial) [Ru/En]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mississippi Delta (4:06)
-02. Wanted Man (4:00)
-03. Whiskey River (3:31)
-04. County Line (4:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:47
+Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EE847067BCBD3358E789703CA81DA7D434579D3
+magnet:?xt=urn:btih:FF67137B4A2A822591ADF4F99B02F59001C10C9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,82 +607,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479617   (1009534) от 24.06.2021
+###  Публикация: 1477274   (1011115) от 14.06.2021
 
-VA - 30(6) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arsenium & Ханна & Tymma - Coco-Inna (remix) (2:38)
-02. Las Olas - You Are My Heart You Are My Soul (Remix) (3:06)
-03. Bhaskar Moguai - Shadows (2:34)
-04. GAYAZOV$ BROTHER$ - Больше мне не наливать (3:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:38:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3998DBF090D71B133E26656DF1EAA655FEB5B3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479529   (1009533) от 24.06.2021
-
-Veronique Gayot - Animal (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wicked Shot (4:17)
-02. Big Black Mama Style (3:27)
-03. In the Hand of the Blues (7:20)
-04. Let'S Go Crazy (3:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0A026C009E21E4A2235E95C4FF1531ABCC3507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479477   (1009532) от 24.06.2021
-
-Футбол. Чемпионат Европы 2020. Групповой этап. Группа E. 3-й тур. Швеция - Польша (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Владимир Шорохов | Искусственная мать (2021) [MP3]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чемпионат Европы по футболу 2020 года. Групповой этап. Группа E. 3-й тур. Швеция - Польша. 23 июня 2021, среда.19:00 МСК
-СУДЬЯ Оливер Майкл (Нортумберленд, Англия)
-Судья на линии 1: Бэрт Стюарт (Англия)
-Судья на линии 2: Беннетт Саймон (Англия)(   Читать дальше...   )Телекомпания: Россия 1HDЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:06
+После перенаселения земли началось резкое сокращение рождаемости, это понимает правительство и легализует суррогатное материнство. Теперь любая женщина, что получила лицензию «жизнь», обязана родить ребенка, заказчиком выступает правительство. Суррогатное материнство стало работой: бонусы, премии, статус в обществе и ранняя пенсия. Но это привело к расколу общества. (   Читать дальше...   )Жанр: Детективная фантастика, Научная фантастика, Социальная фантастикаПродолжительность: 03:17:13
 
 ## Скачать торент
 ```bash
@@ -617,28 +633,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479476   (1009531) от 24.06.2021
+###  Публикация: 1477256   (1011114) от 14.06.2021
 
-Футбол. Чемпионат Европы 2020. Групповой этап. Группа E. 3-й тур. Словакия - Испания (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+VA - Lyrical Songs And Love Ballads (2021) [MP3|320 Kbps] <Pop, Lyric, Romantic Songs>
 
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чемпионат Европы по футболу 2020 года. Групповой этап. Группа E. 3-й тур. Словакия - Испания. 23 июня 2021, среда.19:00 МСК
-СУДЬЯ Кейперс Бьорн (Олдензал, Нидерланды)
-Судья на линии 1: ван Рукел Сандер (Нидерланды)
-Судья на линии 2: Зейнстра Эрвин (Нидерланды)(   Читать дальше...   )Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:21
+001. Anomie Belle - Down
+002. Eric Benet - More Than Words
+003. Shy'm - Mayday
+004. 911 - All I Want Is You(   Читать дальше...   )Жанр: Pop, Lyric, Romantic SongsПродолжительность: 09:55:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1726C9E893F20D3BBAF9A3996E626F38A8591A57
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -646,28 +662,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479479   (1009530) от 24.06.2021
+###  Публикация: 1476858   (1011113) от 14.06.2021
 
-Футбол. Чемпионат Европы 2020. Групповой этап. Группа F. 3-й тур. Португалия - Франция (2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Path of Destiny - The Seed of All Evil (2021) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Melodic Death, Black Metal>
 
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Чемпионат Европы по футболу 2020 года. Групповой этап. Группа F. 3-й тур. Португалия - Франция. 23 июня 2021, среда.22:00 МСК
-СУДЬЯ Лаос Матеу (Валенсия, Испания)
-Судья на линии 1: Себриан Пау (Испания)
-Судья на линии 2: дель Паломар Роберто (Испания)(   Читать дальше...   )Телекомпания: Россия 1HDЖанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:34
+01. The Division of a Spiral Synergy [00:05:58]
+02. Necromantic Storm [00:02:49]
+03. Erased by Light [00:04:15]
+04. Endbringer [00:04:14](   Читать дальше...   )Жанр: Symphonic Melodic Death, Black MetalПродолжительность: 00:52:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:929CEA61C791926C1F4C950F1949D3FA41023543
+magnet:?xt=urn:btih:D96BA4A6DA400D0356172E3B54FD977E2C3CAF18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -675,51 +691,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475493   (1009529) от 24.06.2021
+###  Публикация: 1477023   (1011112) от 14.06.2021
 
-Пираньи 3D / Piranha 3D (2010) BDRip [H.264/1080p]
+Black Sabbath - Sabotage (1975) 4CD, Super Deluxe Edition, 2021, Rhino-Warner Bros [FLAC|Lossless|tracks + .cue] <Heavy Metal, Hard Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 тысяч подростков курортного городка у озера Виктория готовятся к празднованию ежегодного праздника начала лета. Но ночное землетрясение высвобождает сотни тысяч доисторических пираний прямо накануне торжества. Очаровательная шериф, ее подчиненные-полицейские и доктор Горден Рэйбэнкс решают сделать все, чтобы веселый праздник молодежи в озере не превратился в кровавое (   Читать дальше...   )Производство: США / Dimension FilmsЖанр: Ужасы, КомедияРежиссер: Александр АжаАктеры: Элизабет Шу, Стивен Р. МакКуин, Адам Скотт, Джерри О’Коннелл, Джессика Зор, Винг Реймз, Бруклин Пру, Сэйдж Райан, Кристофер Ллойд, Келли БрукПеревод: Дублированный (Лицензия)Язык субтитров: Русские, английскиеПродолжительность: 01:28:21
+01. Am I Going Insane (Radio) (Single Edit) [00:03:27]
+02. Hole in the Sky [00:03:59]Жанр: Heavy Metal, Hard Rock /Продолжительность: 4CD, 02:31:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE23F625D66A928FD09365999EF5F7F0EE886A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479498   (1009528) от 24.06.2021
-
-Джагги Васудев (Садхгуру) | Внутренняя инженерия. Путь к радости. Практическое руководство от йога (2018) [MP3]
-
->>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Человек – самый сложный механизм на планете, а йога – инструкция по его применению. Так считает Садхгуру – йог, мистик и коуч ведущих компаний мира. Эта увлекательная книга основана на разработанной им системе «Внутренняя инженерия», призванной убрать с йоги культурные наслоения и представить ее как технологию достижения радости и благополучия, доступную любому человеку. (   Читать дальше...   )Жанр: ЭзотерикаПродолжительность: 08:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5F43114A3B41A620AD9693928F283D581E2AD19
+magnet:?xt=urn:btih:BB0D5AAC0A14DD7BABED4284CBBDD70AF468685F
 ```
 
 https://mybot314.ru/tekegram_catalog/

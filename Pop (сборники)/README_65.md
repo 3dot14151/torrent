@@ -1,3 +1,107 @@
+###  Публикация: 357026   (588215) от 30.06.2011
+
+VA - XXXL Летний Чудо Mix-Парад №30 50/50 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0352E114FFCD9AAC43060A08051CEC1C689A30EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357141   (588206) от 30.06.2011
+
+VA - Улетное лето (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588206.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:13:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DFFEEE8BC3773106488754C0719E6FEEE6C8A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357036   (588203) от 30.06.2011
+
+VA - Взрывной звездный хит (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:16:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5F3EAECC084745ABD46DEA1629CAA5D877D969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356976   (588199) от 30.06.2011
+
+VA - Супер популярный летний Europa Plus 50/50 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:24:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABF8616E5CF05DB6B0EE895F0CD14F144E5718D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 357313   (588122) от 30.06.2011
 
 VA - Музыкальный Автобан (2011) [MP3|256 kbps]<Pop>
@@ -602,119 +706,6 @@ VA - Горячие Клубные Треки Русских Ди-Джеев Ч�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AEA3EF0A59B9E7AD6C2CE69DABAEED44218FE1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040668   (585182) от 06.08.2016
-
-Adriano Celentano - 25 Best Songs (2016) [MP3|~245 Kbps (V0)] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stivali e Colbacco 1970 (04:18)
-02. Il Tempo Se Ne Va 1980 (03:51)
-03. Io Sono Un Uomo Libero 2000 (05:48)
-04. Senza Amore 1999 (04:59)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6273CB183DDAB4B69BA4BDFB959AEB61E0D117BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358331   (584923) от 03.07.2011
-
-VA - Самые популярные песни лета (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584923.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7E554DE159DF2634B110AA7B374B22382B844E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918994   (584872) от 17.07.2015
-
-VA - Шальное лето (2015) [MP3|160-256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584872.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. O-Town - Playing With Fire
-002. Артем Шалимов - Шальное Лето
-003. Катя Волкова - Над Атлантическим
-004. Натали - Ветер С Моря Дул(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1108827B79734BC53714977CA65F9684D704DA94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551892   (584709) от 23.05.2022
-
-VA - National Pop Dance Music Vol.36 (2022) [MP3|320 Kbps] <Pop, Dance, Folk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584709.jpg" />
-</div>
-
-
-###  Подробнее
-
-Получаем удовольствие от новой танцевальной музыки! Как и ожидается, новинок сегодня будет достаточно. Представляем Вам новый 36-й народный танцевальный микс-сборник популярного жанра под наименованием "National Pop Dance Music", треки которого порадуют нас живой и подвижной музыкой.001. Monsta X - Mercy
-002. Sher X88 - Canzone Nuova
-003. Ye Banished Privateers - Drawn And Quartered
-004. Truck Stop - Wie'n Schцnen Country Song(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 08:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F5DBA383AA3371C7605B31205ED2171F630206
 ```
 
 https://mybot314.ru/tekegram_catalog/

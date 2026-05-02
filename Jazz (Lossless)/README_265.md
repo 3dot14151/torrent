@@ -1,3 +1,61 @@
+###  Публикация: 1343128   (220270) от 05.12.2019
+
+Alessio Menconi - Standard Trio (2005) Abeat Records [FLAC|Lossless|image + .cue] <Post-Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Without a Song [5:05]
+02. I Fall in Love Too Easily [8:06]
+03. If I Should Lose You [6:47]
+04. Just One of Those Things [6:51](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CDB5A8DC7E313AEFB75E918CABCFABA9AD4C81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651802   (220267) от 08.08.2023
+
+Hampton Hawes - The Sermon (1958) 2002, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down by the Riverside [4:45]
+02. Just a Closer Walk with Thee [5:03]
+03. Swing Low, Sweet Chariot [4:55]
+04. Nobody Knows the Trouble I've Seen [4:55](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:41:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C384191AF0A4101B4EFEC55D492727C963568B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269521   (220117) от 15.12.2018
 
 Woody Herman & His Thundering Herd - Ready-Get Set-Jump (1953 - 1958) 1992, LaserLight Digital [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing, Big Band>
@@ -687,64 +745,6 @@ Tom Harrell - Something Gold, Something Blue (2016) HighNote [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CADD3D70048708CB16D1E302C453907EE2F6BD33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269836   (218342) от 16.12.2018
-
-Betty Buckley - Hope (2018) Palmetto+ [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ecotopia
-02. Any Major Dude Will Tell You
-03. Falling in Love
-04. Long Ago & Far Away(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:65:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F88908F4884AB7E9ED0EF932BE8DC639D58895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269797   (218327) от 16.12.2018
-
-Stephane Grappelli & Barney Kessel - Limehouse Blues (1969) 1991, Black Lion [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Don't Mean A Thing (If It Ain't Got That Swing) [5:47]
-02. Out Of Nowhere [3:49]
-03. Tea For Two [5:07]
-04. Limehouse Blues [3:28](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:49:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90D5C35F7A150BE3D085964C9AD4D171E50072AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 936510   (494384) от 12.09.2015
+
+Liset - 2 альбома (2009-2010) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Pop>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2009.08.15 Koi no Danmaku Strike Out (C76)
+2010.03.14 Hoshi no Fune (Reitaisai 7)Тип издания: DoujinЖанр: J-PopФормат: Touhou VocalПродолжительность: 00:00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E229B6542A67DFF3AA7B8E1A2A780581DA195E81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936509   (494380) от 12.09.2015
 
 Light ? Staff - 4 альбома (2005-2009) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <J-Rock, Electronic>
@@ -723,35 +751,6 @@ Kraster - 26 альбомов (2008-2013) Touhou Vocal /Doujin/ [FLAC|tracks] <J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AB5E42D5857757269D60776F804C2A7A62793A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 749785   (481826) от 18.09.2015
-
-BLANKFIELD - 8 альбомов (2008-2014) Touhou Instrumental /Doujin/ [FLAC|Lossless] <J-Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481826.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2012.12.30 (BFCD-0005) At The Termination Of The Phantasm (C83)
-2013.08.11 (DECD-0001) Danmaku Unlimited 2 (C84)
-2014.12.29 (BFCD-0006) A DAY EP (C87)Тип издания: DoujinЖанр: J-MetalФормат: Touhou InstrumentalПродолжительность: 00:02:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C39AEB5B4EF5BACFF8B5424DFADCB58AC640DE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

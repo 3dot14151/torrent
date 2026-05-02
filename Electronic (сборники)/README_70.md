@@ -1,3 +1,61 @@
+###  Публикация: 1215208   (759968) от 25.03.2018
+
+VA - Pump The Beat (2018) [MP3|320 Kbps] <Electro Bass, DnB, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759968.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rameses B Holly Drummond - Dreaming
+002. Jome - Cinnamon (Hybrid Minds Remix)
+003. Echoround - Leap (Original Mix)
+004. North Base - How Do I Know (Feat. Alicia King)(   Читать дальше...   )Жанр: Electro Bass, DnB, DubstepПродолжительность: 08:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1463DF17E80945F90D146534A98754A58A87AF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215257   (759724) от 25.03.2018
+
+VA - 200 Самых Злых Треков Весны (Sound Clinic - Bass Edition) (2018) [MP3|320 Kbps] <Tech House, G-House, Bass House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_759724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Sides Of Soul - Afrique
+02. 4T Guille Placencia - Lick My Puzz (Original Mix)
+03. Adapter - People X (Original Mix)
+04. Alberto Aguilar - Personal Gun (Original Mix)(   Читать дальше...   )Жанр: Tech House, G-House, Bass House, OtherПродолжительность: 22:18:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D43C41B3C9C1E29C8F6C13DA6BABF7E90205EA43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215148   (759722) от 25.03.2018
 
 VA - Record Super Chart #529 (2018) [MP3|320 Kbps] <House, Club, Dance>
@@ -693,64 +751,6 @@ VA - Extra Trance: Bonus [06] (2016) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F433BBF93111E4D215E9F97840D807328699BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018600   (754007) от 21.05.2016
-
-VA - Dance Size Forever Moonlight (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Perry - Alegria (Extended Mix) 4:09
-02. Xtance Feat. Jo - Forever Mine (Original Mix) 4:53
-03. Miss Diva - Love Me (Marious Remix Edit) 3:58
-04. Burak Yeter - It Ain't Over (Extended Mix) 4:57(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:04:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0783143C5BDCB2B36DB9C7CFFF85A4BFF19AEE87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018747   (753893) от 21.05.2016
-
-VA - Discoteka 2016 Dance Club Vol.152 (2016) [MP3|320 кб/с] <House, Trance, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753893.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bobina & May, Britt Scheffer - Born Again 4:17
-002. DJ Smash - Feel The Summer 3:20
-003. Calvin Harris - This Is What You Came For (feat. Rihanna) 3:42
-004. Markus Schulz feat. Adina Butar - You And I 4:36(   Читать дальше...   )Жанр: House, Trance, Club, DanceПродолжительность: 12:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B6DF3926DDC6FB538796EE53E0E85E7D97E0E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

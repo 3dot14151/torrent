@@ -1,3 +1,29 @@
+###  Публикация: 1610406   (1042397) от 07.02.2023
+
+VueScan Pro 9.7.98 (06.02.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042397.jpg" />
+</div>
+
+
+###  Подробнее
+
+VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A010ABC43A14945E731F6B37FE6C6CB4BECB3648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437166   (1042383) от 03.01.2021
 
 Atrise Lutcurve 4.0.2 [En/Ru]
@@ -648,33 +674,6 @@ Perfectly Clear WorkBench позволяет всего за пару клико
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEF3DB595D655B2C872C9C011CF280904487A907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437334   (1042174) от 04.01.2021
-
-SIGERSHADERS XS Material Presets Studio 2.6.1 [En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042174.jpg" />
-</div>
-
-
-###  Подробнее
-
-SIGERSHADERS XS Material Presets Studio - это обновлённая библиотека материалов для 3ds Max + V-ray/Corona/Octane, включающая в себя User Library material manager.
-Коллекция состоит из различных категорий материалов. Будь то: металлы, ткань, стёкло и т.д.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B41750E453D28D3608F8957EE32FC500903184B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

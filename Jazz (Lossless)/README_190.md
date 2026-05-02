@@ -1,3 +1,67 @@
+###  Публикация: 1065685   (418928) от 23.10.2016
+
+Vulfpeck - The Beautiful Game (2016) [FLAC|Lossless|WEB-DL|tracks] <Funk,Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sweet Science 01:55
+02. Animal Spirits 03:10
+03. Dean Town 03:33
+04. Conscious Club 03:20(   Читать дальше...   )Жанр: Funk,PopПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A71D7006633E07DF98F6BCE9C12C787C2CF40E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 557056   (418856) от 08.10.2012
+
+Connie Evingson - 6 альбомов (1999 - 2012) [FLAC|Lossless]<Jazz Vocal, Gipsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agua de Beber [04:52]
+02. Meditation [05:38]
+03. Slow Hot Wind [04:00]
+04. Sweet Happy Life [05:34]
+05. Killing Me Softly [04:56]
+06. Canadian Sunset [06:20]
+07. Watch What Happens [04:40]
+08. Girl From Ipanema [04:42]
+09. Sway [04:19]
+10. Bluesette [04:54](   Читать дальше...   )Жанр: Jazz Vocal, Gipsy, PopПродолжительность: 01:
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947417   (418397) от 17.10.2015
 
 Bobby Bradford & John Carter Quintet - NoUTurn (1975) /2015, Dark Tree Records/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation>
@@ -687,64 +751,6 @@ The Dick Morrissey Quartet - It's Morrissey, Man! (1961) 1998, PolyGram [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB1CDAA065A629D8F9962E95DFFF10CE9E0B0BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167707   (415257) от 21.09.2017
-
-The Dick Morrissey Quartet - Storm Warning! (1965) 1994, HomeGrown Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storm Warning [07:10]
-02. What Is There To Say [07:43]
-03. Come Rain Or Come Shine [07:56]
-04. Wind Of Change [04:18](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:41:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE055A88E3DF8BF89B8DFE640FBB579CC4276469
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167716   (415255) от 21.09.2017
-
-Jimmy McGriff - Fly Dude (1972) 2006, Groove Merchant [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everyday I Have The Blues [03:44]
-02. Jumping The Blues [04:17]
-03. Healin' Feeling [05:11]
-04. Cotton Boy Blues [08:39](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948F07E791D42E30C95C7FE662A185382BBE7857
 ```
 
 https://mybot314.ru/tekegram_catalog/

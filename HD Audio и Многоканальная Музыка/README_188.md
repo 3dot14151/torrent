@@ -1,3 +1,177 @@
+###  Публикация: 1784955   (69321) от 15.03.2025
+
+Yuridia - Sin Llorar (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Para Que Seas Feliz [00:03:02]
+02. Sin Llorar [00:03:42]
+03. Un Bendito Día [00:03:31]
+04. Evítame la Pena [00:02:43](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A0EF22A38CC95FD9706038804113F18690559B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785389   (69319) от 15.03.2025
+
+David Rose - Sun Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Salvame De Esta Pena (3:44)
+02.  Laman-Zana (2:02)
+03.  Bailando Junto Al Mar (3:07)
+04.  Primavera En El Paraiso (1:31)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:54:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3ED31119F09289763699D037CBBE0C3BDB7CA19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785405   (69316) от 15.03.2025
+
+Overdrivers - Glory or Nothing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kings of the Road (3:18)
+02.  Overdrivers (3:16)
+03.  Glory Or Nothing (3:46)
+04.  My Girlfriend Is a Pornstar (4:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F266D0155D64166EE23F8CF3C2022242A9367B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785291   (69314) от 15.03.2025
+
+Pvris - White Noise (2014) 10 Year Anniversary Edition, 2025, Rise Records[FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You and I [00:04:30]
+02. Empty [00:03:28]
+03. Smoke [00:03:05]
+04. St. Patrick [00:04:20](   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Synth-popПродолжительность: 01:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BB5459B317987C0F091496E2217BA0020724CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785401   (69313) от 15.03.2025
+
+D'OR - Antiheroes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shapeshifter (3:53)
+02.  The Howling (4:29)
+03.  Scandal (4:24)
+04.  Her Name Was Alice (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:078E4D861801130AF8DB787ECFE4BFDA1E3FC54D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785314   (69312) от 15.03.2025
+
+Carach Angren - Death Came Through A Phantom Ship (2010) Reissue, 2013, Season Of Mist [DSD128|24/44,1|tracks|Vinyl-Rip] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69312.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Electronic Voice Phenomena
+A2. The Sighting Is A Portent Of Doom
+A3. ...And The Consequence Macabre
+B1. Der Decken's Triumph(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A85B302155E9D54E64D71050186124036DE25D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785310   (69310) от 15.03.2025
 
 Goo Goo Dolls - A Boy Named Goo (1995) 30th Anniversary Deluxe Edition, 2025, Warner Records[FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Modern Rock, Pop Rock>
@@ -571,180 +745,6 @@ A4 For The Love I Bear(   Читать дальше...   )Жанр: Death, Doom 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76ECB60708AFB9489D029D806546FE47AFB94CE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785653   (69157) от 17.03.2025
-
-Dorothy - The Way (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Come Alive [4:25]
-02 - The Devil I Know [3:46]
-03 - Mud [3:12]
-04 - Tombstone Town [3:15](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF35C14DECB08180B4C35EBACEB2385FABDFCEB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785647   (69151) от 17.03.2025
-
-Combust - Belly of the Beast (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Belly of the Beast [3:14]
-02 - Everyone's Enemy [2:26]
-03 - Swallowing Swords [2:31]
-04 - N.Y.H.C. [2:09](   Читать дальше...   )Жанр: HardcoreПродолжительность: 00:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B57921F990836FC5B496AB6896B4301B8F965D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785785   (69150) от 17.03.2025
-
-Sentenced - The Funeral Album (2005) Reissue, 2016, Century Media [FLAC|24/96|tracks|Vinyl-Rip] <Death, Doom Metal, Gothic Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69150.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 May Today Become The Day
-A2 Ever-Frost
-A3 We Are But Falling Leaves
-A4 Her Last 5 Minutes(   Читать дальше...   )Жанр: Death, Doom Metal, Gothic Metal, RockПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8EF4E5C3C3B175BABD8C50DF9A4F4E44404126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785654   (69149) от 17.03.2025
-
-Imminence - The Return of The Black (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - God Fearing Man [5:20]
-02 - Come Hell or High Water [3:51]
-03 - Desolation [4:10]
-04 - Heaven Shall Burn (feat. Scott Kennedy) [4:11](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 01:24:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFD65C28E6BF21FE626761315B505D1CFEA8563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785901   (69139) от 18.03.2025
-
-W.A.S.P. - The Last Command (1985) [DSD128|24/44,1|tracks|Vinyl-Rip] <Heavy Metal, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69139.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Wild Child
-A2. Ballcrusher
-A3. Fistful of Diamonds
-A4. Jack Action(   Читать дальше...   )Жанр: Heavy Metal, Glam MetalПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4A0EB40604C3E07C0FA8F1A0415D4C507E54DB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785877   (69137) от 18.03.2025
-
-Александр Маршал - Звёздная Коллекция (1999) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69137.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Ливень
-02. Старый Двор
-03. Улетаю Вновь(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EDCA1DB2644008EE8623231B92D47B644020FAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

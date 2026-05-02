@@ -1,3 +1,177 @@
+###  Публикация: 1717149   (111270) от 18.04.2024
+
+My Dying Bride - A Mortal Binding (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Her Dominion (6:11)
+02. Thornwyck Hymn (6:48)
+03. The 2nd of Three Bells (6:52)
+04. Unthroned Creed (7:01)(   Читать дальше...   )Жанр: Gothic Doom MetalПродолжительность: 00:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B127A8A196135EBBBE557936BFD0F5AE1A39B457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717163   (111269) от 18.04.2024
+
+Gun - Hombres (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Fired Up (3:42)
+02. Boys Don't Cry (2:54)
+03. Take Me Back Home (3:12)
+04. Fake Life (3:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F28416527FC8E565D1E5D431077CC60A0AE8EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717247   (111265) от 19.04.2024
+
+Bruce Springsteen - Best of Bruce Springsteen (Expanded Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Americana, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Growin' Up (3:07)
+02. Spirit in the Night (4:59)
+03. Rosalita (Come Out Tonight) (7:02)
+04. 4th of July, Asbury Park (Sandy) (5:36)(   Читать дальше...   )Жанр: Rock, Americana, Pop RockПродолжительность: 02:18:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBA9857AF44E2108C57981099437DDEAFB1B79E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717380   (111251) от 19.04.2024
+
+Vanden Plas - The Empyrean Equation of The Long Lost Things (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Empyrean Equation Of The Long Lost Things [00:08:01]
+02. My Icarian Flight [00:05:59]
+03. Sanctimonarium [00:10:16]
+04. The Sacrilegious Mind Machine [00:08:37](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D2BE8E1F7705D847AEA2C0E09F8CC5EE430A89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637717   (111193) от 20.04.2024
+
+Praying Mantis - Studio Albums (14 releases) (1981-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <NWOBHM, AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Praying Mantis — британская рок-группа. Начинала как одна из групп «NWOBHM». Со временем группа стала играть мелодичный хард-рок, ориентируемый на массовую аудиторию - "AOR".1981 - Time Tells No Lies
+1991 - Predator In Disguise
+1993 - A Cry For The New World
+1993 - Only The Children CryЖанр: NWOBHM, AORПродолжительность: 12:27:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40451CC8C5E46FB1A9D543C1D53B3F020F45D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717482   (111165) от 20.04.2024
+
+Larry Campbell & Teresa Williams - All This Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desert Island Dreams (2:46)
+02. All This Time (3:45)
+03. Ride With Me (3:27)
+04. The Way You Make Me Feel (3:22)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F5AE161F75184930B3A5185F810F3FC3F8827A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717492   (111164) от 20.04.2024
 
 Supernova Jazzhands - Blue Sunset (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -570,180 +744,6 @@ Mayinbo - Poetry in Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B940733843D946B56D55BC6E386176435465541B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718005   (111045) от 22.04.2024
-
-Die Ballista - Burial Bell (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <doommetal, doomdeath, sludge Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Their Bones [00:04:09]
-02. Master Reptile [00:05:34]
-03. Savage Till the End [00:05:26]
-04. Necroinspector [00:07:07](   Читать дальше...   )Жанр: doommetal, doomdeath, sludge MetalПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19FB3EA036F6AB5423B931DAD4EDD06F62193F95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717893   (111044) от 22.04.2024
-
-Guenna - Peak of Jin'Arrah (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bongsai (5:22)
-02. Dimension X (9:03)
-03. Glastonbury Grove (2:12)
-04. Dark Descent (6:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665A1B8CE761B2593D7A558DB6B9F6EF410FA1DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717890   (111043) от 22.04.2024
-
-Arne Skage - Rootwork (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tootie Ma (4:00)
-02. Thalulah (3:57)
-03. Keeping The Blues Alive (3:44)
-04. Nothing Is Made To Last (3:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6DFF215C6C15C0BC570F1087B2FE5B17E835855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717898   (111040) от 22.04.2024
-
-Pontchartrain Shakers - Pontchartrain Shakers (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time To Make A Change (5:57)
-02. Going Fishing (4:08)
-03. I Need A Creole Woman (6:28)
-04. Miss You Baby (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3401CE39426D2531A10957046952C48CF50F97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717899   (111039) от 22.04.2024
-
-Praying Mantis - Defiance (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Start (4:27)
-02. Defiance (4:06)
-03. Feelin' Lucky (3:46)
-04. I Surrender (3:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425562556F4940EE9165BD89E6781DAA53A423CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717901   (111036) от 22.04.2024
-
-Vanessa Peters - Flying On Instruments (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beauty Or Grace (5:10)
-02. Halfway Through (4:40)
-03. Blind Curves (5:23)
-04. Better (4:46)(   Читать дальше...   )Жанр: Rock, FolkПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E411F598519D6DF3EF527FB9BED14DDC2FBDB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

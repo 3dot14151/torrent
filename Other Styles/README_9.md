@@ -1,3 +1,245 @@
+###  Публикация: 598653   (999116) от 07.01.2013
+
+Anthony Ventura - Romantische Momente (2010) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999116.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) La vie en rose (Schau mich bitte nicht so an) 03:03
+2) I Have A Dream 04:17
+3) Blue Bayou 02:29
+4) Tornero - Non succedera piu 04:52
+5) Save The Last Dance For Me 02:36
+6) You've Lost That Loving Feeling - Unchained Melody 04:01
+7) Bright Eyes 02:45
+8) Soleado (Tranen lugen nicht) 02:09
+9) Hey Jude 04:05
+10) Morning Has Broken 02:16(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC962415115965278C10CE33C7BF65E0EA645F46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598666   (999103) от 07.01.2013
+
+James Last - Title Of Album: Christmas with Romance (2011) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Romance For Violin And Orchestra No.2 In F Opus 50
+02. Stille Nacht
+03. Air On A G String
+04. Medley: White Christmas / Midnight In December / Jingle Bells
+05. Elvira Madigan
+06. Rosen Aus Dem Suden Opus 388
+07. Impromptu No.2 In A Flat Opus 142
+08. Le Quattro Stagioni Opus 8: Largo
+09. Sonata No.8 In C Minor Opus 13 "Pathetique": 2. Adagio
+10. Nocturne No.8 In D Flat Opus 27 No.2: Lento Sostenuto(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB00C4F6D7478BD7303686FED263DCD324E1348B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598573   (999092) от 07.01.2013
+
+Bel Suono - Мегаполис (2012) [MP3|320 кб/с]<Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Libertango, (I've seen that face before) музыка Astor P.Piazzolla
+02 Мегаполис музыка Евгений Соколовский
+03 Одинокое сердце музыка Евгений Соколовский
+04 Bolero музыка Maurice Ravel
+05 Вальс музыка Евгений Соколовский
+06 Танец рыцарей
+музыка Сергей Прокофьев (Ромео и Джульетта / Танец Рыцарей)
+сузыка Сергей Рахманинов (Прелюдия Соль минор)
+07 Молитва (Bel Suono & Камо Сейранян (дудук)) музыка Алексей Рыбальчик
+08 Лето музыка Antonio Vivaldi (Four Season - Summer)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987491B1617A0762BA46341999C5BADBCB055563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598128   (999082) от 07.01.2013
+
+New Sun Pops Orchestra - Sax Mood 2 and Guitar Mood 2 (1976) [MP3|320 кб/с]<JPop Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sax Mood 2
+Продолжительность: 00:43:34
+  1 Nakanoshima Blues
+ 2 Futari No Tabiji
+ 3 Tomoshibi
+ 4 Sakaba Nite
+ 5 Ame Ga Yandara
+ 6 A A Hito Koishi
+ 7 Futsuka Yoi
+ 8 Otouto Yo(   Читать дальше...   )Тип издания: VinilRipЖанр: JPop Instrumental, Easy ListeningПродолжительность: 01:20:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA1A45F5F1560D41994F40F9BFECCB2691BB3DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598895   (999059) от 07.01.2013
+
+Однажды в сказке / Once Upon a Time OST (2012)[MP3|320 кб/с]
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon a Time Orchestral Suite
+02. Henry's Proposal
+03. The Queen's Curse
+04. Jiminy Cricket
+05. Dealing with Rumplestiltskin
+06. Belle's Story
+07. Dwarves
+08. The Huntsman
+09. Things Are Changing in Storybrooke
+10. Cinderella(   Читать дальше...   )Жанр: OSTПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B54EFBCF7F05C5481C5602DF0701F7EF29E0ADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602115   (997585) от 13.01.2013
+
+Wingmakers - 3 albums (2000) [MP3|320 кб/с]<Native American,New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Arrow Chamber 11 [00:08:16]
+02. Ancient Arrow Chamber 12 [00:08:13]
+03. Ancient Arrow Chamber 13 [00:10:32]
+04. Ancient Arrow Chamber 14 [00:04:27]
+05. Ancient Arrow Chamber 15 [00:06:38]
+06. Ancient Arrow Chamber 16 [00:06:53]
+07. Ancient Arrow Chamber 17 [00:07:27]Жанр: Native American,New AgeПродолжительность: 01:01:21 + 00:34:47 + 00:52:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3ED5D74692E07549DFCC0E97AF8851FF5C212F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580234   (997545) от 13.01.2013
+
+Wang Wei - 2 albums (2011) [MP3|320 кб/с]<New age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997545.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:32) 01. Because Of Love
+(3:04) 02. Powder
+(3:29) 03. Morning Please Don't Come
+(4:32) 04. Better Not To See Again
+(3:51) 05. Forever Beautiful
+(3:32) 06. Loving Embrace
+(4:09) 07. Love Letter
+(3:35) 08. Amour
+(3:47) 09. A Heart On Fire
+(3:52) 10. 23 Seconds, 32 Years(   Читать дальше...   )Жанр: New age, Instrumental, PianoПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B7544CBB09609ACCED9E4A42F2BE7B147E84D66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 601200   (997522) от 13.01.2013
 
 Sacred Spirit Band - Sacred Spirit (2004) [MP3|320 кб/с]<Native American,New Age>
@@ -632,215 +874,6 @@ Snatam Kaur - Liberation's Door (2009) [MP3|320 kbps]<mantra, spiritual, meditat
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609967   (990195) от 29.01.2013
-
-VA - Romantic Instrumentals. Candle In The Wind (2CD) (1998) [MP3|320 кб/с]<Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990195.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:07) 01. Orchester Bruno Bertone - One Moment In Time
-(4:15) 02. Orchester Bruno Bertone - Forever Young
-(2:53) 03. Orchester Bruno Bertone - Orinoco Flow
-(3:33) 04. Orchester Tony Anderson - Dolannes-Melodie
-(2:39) 05. Orchester Tony Anderson - Ballade Pour Adeline
-(2:20) 06. Orchester Tony Anderson - Swanee River
-(3:35) 07. Orchester Tony Anderson - Septemberwind
-(2:58) 08. Orchester Tony Anderson - Woman
-(3:24) 09. Orchester Tony Anderson - Josie
-(2:02) 10. Orchester Tony Anderson - Banks Of The Ohio(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F53BA7E4A39C7F6C708BC76678EC93ABB6B43A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353843   (989888) от 20.01.2020
-
-Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Islands [02:27]
-02. The Harmony of Nature [02:50]
-03. Moutains [01:51]
-04. Birth of a Wildflower [02:37](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:27:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D18BD764A57DF68F71AEACC6D894A736715C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353849   (989883) от 20.01.2020
-
-Atom Music Audio - Sinner: Antihero Themes (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boundless [02:21]
-02. Deceiver [02:30]
-03. Such a Heroine [03:20]
-04. Kill Zone [02:07](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:24:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C9E5AC7315AD3EDE5718E1BFC5EE2B0DF27C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353840   (989850) от 20.01.2020
-
-Atom Music Audio - Spirit (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit [06:12]
-02. Sun Dance [04:27]
-03. The Essence of Being [05:06]
-04. Sacred Pipe [03:07](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:12:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B4365735C0915B9ABEE02C9EFF235E2A960AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353853   (989837) от 20.01.2020
-
-Atom Music Audio - Thunderbolt (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alien [02:01]
-02. Cyborg Ranger [01:44]
-03. Time Shift [02:25]
-04. Iron Plague [02:47](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35DDE08BA698ACEF5928ACF6C974F33DAEEB6ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353854   (989829) от 20.01.2020
-
-Atom Music Audio feat. Alexa Ray - From the Ashes (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unstoppable [02:48]
-02. Elysium [03:19]
-03. Died Inside [03:35]
-04. From the Ashes [04:18](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:12:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:298AF03D0AACE722C082D0391B36D75F9AD124CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353845   (989774) от 20.01.2020
-
-Atom Music Audio - Abyss (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark [02:52]
-02. Meet the Unknown [02:27]
-03. Abyss [02:20]
-04. Aftermath [02:42](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:26:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FC6BC209E176F62D764504DC4A25F1B890DC91
 ```
 
 https://mybot314.ru/tekegram_catalog/

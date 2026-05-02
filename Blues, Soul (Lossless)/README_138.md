@@ -1,3 +1,119 @@
+###  Публикация: 1799935   (66350) от 30.05.2025
+
+Sandy Rogers - Tingling Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tingling Blue (4:51)
+02.  One of Those Kind (3:43)
+03.  Lonesome Man (4:58)
+04.  Fun for Christmas (4:10)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:044D152A2471D9E96B16B8E74A4B8911C2539A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799934   (66347) от 30.05.2025
+
+Emma Wilson - A Spoonful of Willie Dixon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  SPOONFUL (4:56)
+02.  GOOD TO THE LAST DROP (4:53)
+03.  I CAN'T QUIT YOU BABY (4:41)
+04.  WANG DANG DOODLE (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACDDA6261FDD5C77254E3F423D1CDD3C6E6DBAF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799938   (66345) от 30.05.2025
+
+Tim Gartland - Right Amount of Funky (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Waste a Worry (3:40)
+02.  Right Amount of Funky (4:52)
+03.  A Better Life (3:20)
+04.  Walk Away (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38F50EC48417E8653A2D87ED77DB0EA6194C797D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801031   (66256) от 07.06.2025
+
+Reverend Freakchild - A Bluesman of Sorts (2025) (2CD) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Big Boss Man (4:13)
+02.  Ode to Billie Joe (6:54)
+03.  Hellhound on My Trail (5:43)
+04.  I Know You Rider (3:12)(   Читать дальше...   )Жанр: Blues
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62259E5B35B20D2B2723197F4948659439ABAE6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1801039   (66255) от 07.06.2025
 
 Sean Poluk - Gamut (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Chris & Mike - unique (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D03BA55C84A9ADA7A845D6D6C948AD9C2413ED18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802666   (66025) от 18.06.2025
-
-Fred Hostetler - Blues Back Pages (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hey Corporate Vandals (3:22)
-02.  Your Mind Is on Vacation (4:15)
-03.  Taming the Wolf (7:13)
-04.  Deep Deep Well (5:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294CFA61F8239B254C910B8CF5927DE30A99585C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802672   (66024) от 18.06.2025
-
-Leo Cookman - Everyone Left (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You Don't Know (3:44)
-02.  In Mine (3:26)
-03.  Let Her Go (3:09)
-04.  Sleeping Dogs (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A3A70A4397936A2CE5BBB383118092190A8A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802659   (66023) от 18.06.2025
-
-David Cooper - David Cooper (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  On My Way Back Home (3:56)
-02.  Shine On (4:01)
-03.  This Rain's Just Passing Through (3:30)
-04.  We Give You Praise (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E596BEDFB50AADBDDF24E14AC28AF58D9606D2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802671   (66022) от 18.06.2025
-
-Kjartan Hesthagen, Ledfoot, Markus O. Klyve, Tim Scott McConnell - Plain Simple Honesty (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All You Ever Had (4:10)
-02.  Plain Simple Honesty (3:48)
-03.  My Empty Heart (4:57)
-04.  Burning Blue (2:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1F04359E2C1D883773CA6549477454AD149AC1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

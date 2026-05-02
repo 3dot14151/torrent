@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1866761   (1066268) от 21.04.2026
+
+VA - Afro Summer Hits (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristian Ferrer - Deep Inside (5:20)
+02. Elegant Ape - Desert Bloom (3:09)
+03. Elegant Ape - My Moment (3:15)
+04. DJ David Kim - In Your Eyes (4:45)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:30:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FDDCF1847F804980C605F8D570972A46963971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865469   (1065751) от 
 
 VA - Fresh Afro Beats (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -717,35 +746,6 @@ VA - Blue Twilight EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD4632C9991834DDC29F3E65D3556B5960BCF00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855630   (1058499) от 24.02.2026
-
-As If - At Night (2012) [FLAC|Lossless|tracks] <Dub Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hour Of Long Shades 08:57
-02. Sleepless 11:01
-03. Walking The City 07:49
-04. Strange Faces 08:28(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:652B1525B1108086EF455B0DDF49EE849E2089C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

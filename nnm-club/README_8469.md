@@ -1,293 +1,24 @@
-###  Публикация: 1399800   (725240) от 02.08.2020
+###  Публикация: 1530884   (727870) от 12.02.2022
 
-Nat Adderley - Four Classic Albums (1955 - 1959) 2012, 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Подшивка журналов | Журнал Московской Патриархии (1943 - 2022) [PDF]
 
->>нет
->>нет
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Porky [5:16]
-02. I Married An Angel [4:32]
-03. Big 'E' [10:38](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:35:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399860   (725238) от 02.08.2020
-
-Евгения Кретова | Истории о Маше Димкиной и Димке Гречкине (2019) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725238.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вы думаете, что нелепые случайности и неприятные истории могут случаться только в жизни заядлых двоешников и хулиганов, то вы сильно ошибаетесь. И вот вам доказательство – истории о Маше Димкиной и Диме Гречкине, четвероклассниках и отличниках. Они строят космические модели будильников, инновационно лепят снеговиков и попадают в истории, выйти из которых им (   Читать дальше...   )Жанр: Детская литература/Приключения/ПрозаПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B075DAA3346E177F47CE80CD445167C2C30D8768
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399846   (725236) от 02.08.2020
-
-Clockey 2.0.2d [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725236.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clockey 2 - менеджер часов в мировом формате, который позволяет вам добавлять время из любого часового пояса в строку меню. Он имеет чистый и элегантный дизайн, который позволяет легко управлять вашими часами.Тип издания: macOS SoftwareРелиз состоялся: 10.05.2020Разработчик: NICE APPS.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373CB9697299C373F2CCB69101A71A3773F7DA8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399787   (725234) от 02.08.2020
-
-Note-C 2.0.7 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Записки, идеи, рецепты, статьи или целые книги, Note-C - приложение для всех ваших текстов. Note-C поможет вам с полезными функциями для сбора, управления, написания и сохраняя полный контроль над вашими текстами в любое время.Тип издания: macOS SoftwareРелиз состоялся: 19.03.2020Разработчик: Xelaton SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и Французский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E78EC26C63DA950CC8DC741A526734C13101D19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399817   (725232) от 02.08.2020
-
-iA Writer 5.6 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725232.jpg" />
-</div>
-
-
-###  Подробнее
-
-Задача правильного текстового редактора — помогать вам концентрироваться на тексте и поменьше отвлекаться на все остальное. Ребята из студии Information Architects правильно полагают, что отвлекать могут не только другие программы (всплывающие окна, звуковые сообщения и т.п.), но и интерфейс самого редактора. Чем меньше манипуляций требуется для работы с его окном, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.07.2020Разработчик: Information Architects Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A48B2F4BECC34AD6EB379AA21A10144EE97B54A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399799   (725230) от 02.08.2020
-
-PlainPad 1.0.0 [Multi/Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725230.jpg" />
-</div>
-
-
-###  Подробнее
-
-PlainPad - это редактор для простых текстовых файлов с понятным интерфейсом. Благодаря обширным настройкам по умолчанию PlainPad предлагает множество вариантов настройки среды записи в соответствии с вашими потребностями и предпочтениями. Будь то быстрые заметки, идеи, задачи или обширные тексты, PlainPad предлагает среду для всех видов письма, чтобы выразить свои (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.02.2020Разработчик: Xelaton SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399859   (725228) от 02.08.2020
-
-Nice Timer 3 3.2.0d [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следующее поколение единственного приложения, которое вам действительно нужно, это - таймер. Вы можете использовать его, чтобы добавить на рабочий стол столько красивых таймеров и секундомеров, сколько захотите. Дисплей динамически настраивается при изменении его размера, поэтому он может быть любого размера и прямоугольной формы, которые вам нужны.Тип издания: macOS SoftwareРелиз состоялся: 14.06.2020Разработчик: NICE APPS.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9B7756FB3715A0DA8DC2068B0871E677FBA0AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399680   (725226) от 02.08.2020
-
-Stormzone - Ignite The Machine (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tolling of the Bell (05:45)
- 02. Ignite the Machine (04:26)
- 03. My Disease (04:54)
- 04. Each Setting Sun (04:58)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73D0060A3612EA1629416FF9942DEFD6F81889DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399763   (725224) от 02.08.2020
-
-Футбол. Кубок Англии 2019-2020. Финал. Арсенал — Челси (2020) HDTV [H.264/1080i-LQ]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кубок Англии по футболу 2019-2020. Финал
-01 августа 2020, суббота. 19:30 МСК
-Арсенал (Лондон) — Челси (Лондон)
-Стадион: Уэмбли (Лондон, Англия), вместимость: 90000(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 01:59:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399781   (725222) от 02.08.2020
-
-aText 2.36.4 [Multi/Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725222.jpg" />
-</div>
-
-
-###  Подробнее
-
-AText ускоряет вашу запись, заменяя сокращения на часто используемые фразы, которые вы определяете: например, сделайте аббревиатуру «myname», чтобы вставить свое имя «First Middle Last» в любом приложении.Тип издания: macOS SoftwareРелиз состоялся: 28.07.2020Разработчик: Tran Ky NamПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399924   (725220) от 02.08.2020
-
-AnyTrans for iOS 8.7.0.20200729 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725220.jpg" />
-</div>
-
-
-###  Подробнее
-
-AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счета и так же просто вытащить их оттуда.
+«Журнал Московской Патриархии» — старейший журнал Русской Православной Церкви, eе официальный печатный орган. Издается с 1931 г. После перерыва возобновился в 1943 г., с тех пор выходит ежемесячно.
 
-AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.08.2020Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+За время существования не раз менялся дизайн и формат. Весной 2009 г. Святейший Патриарх Кирилл поставил вопрос о приведении содержания и внешнего вида журнала в соответствие (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:226CF0A9C958706B854DA9BFA3B1A0D4147B468F
+magnet:?xt=urn:btih:32141C333EBB75917DB72E7CBC196CF7924D5829
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -295,28 +26,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399487   (725218) от 02.08.2020
+###  Публикация: 1530665   (727869) от 12.02.2022
 
-VA - Beatport Synth Electronic: Sound Pack #140 (2020) [MP3|320 Kbps] <Synthwave, Synthspace>
+Журнал | The Woodworker & Good Woodworking №3 (март 2022) [PDF] [En]
+
+>>Журналы
+>>Хобби (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727869.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вы хотите изготовить вручную красивую мебель для собственного дома или сделать небольшие вещи, такие как шкатулку для пустяков, миски и игрушки, чтобы продать или подарить их в качестве подарка, журнал Woodworker наверняка заставит вас встряхнуться и приступить к работе над вашим следующим проектом. Каждый месяц есть чем заняться, пока не выйдет следующий номерЖанр: Столярное делоФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347BBD6285D62E289843AEA7DEC56B6B55BFC14C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530753   (727868) от 12.02.2022
+
+XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Биатлон. Спринт 10 км. Мужчины (12.02.2022) IPTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Зимние Олимпийские игры и Паралимпийские игры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727868.jpg" />
+</div>
+
+
+###  Подробнее
+
+XXIV Зимние Олимпийские игры 2022. Пекин (Китай). Биатлон. Спринт 10 км. Мужчины (12.02.2022)Телекомпания: Первый HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93247B991EA229B7519009BF25ECAC0A7F9A8FA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530713   (727867) от 12.02.2022
+
+Марко Поло - История рыцаря (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_727867.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пролог
+2. История рыцаря
+3. Эпиграф. Песня черни
+4. Песня черни(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530811   (727866) от 12.02.2022
+
+VA - All White Party: Deep House Mix (2022) [MP3|320 Kbps] <Deep House, Electro>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725218.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727866.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Dance With The Dead - Become Wrath
-002. Jairo Catelo - Timeless
-003. Anthony Rother - Observer
-004. Khrigar - Morning Drive(   Читать дальше...   )Жанр: Synthwave, SynthspaceПродолжительность: 08:32:09
+В определенной степени бодрящий и в то же время достаточно размеренный электронный микстейп музыки в формате Deep House в представляемом Вашему вниманию сборнике "All White Party". Треки сборника создают непринуждённую атмосферу комфорта и позитива.001. French Boss - Every End Has
+002. Soul Button - Temeraire
+003. Dysfonik - Falling In Love (
+004. Vincent Floyd - Trail Of Tears(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:04:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FCD859DC722647A8E865CE8027F1903D0FBE75E
+magnet:?xt=urn:btih:476206F28A64B58CB5192CCD43A3203B4A13AEE7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -324,28 +136,340 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399599   (725217) от 02.08.2020
+###  Публикация: 1022881   (727863) от 03.06.2016
 
-Katalepsy - Terra Mortuus Est (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
+Футбол. Товарищеский матч. Англия - Португалия (02.06.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727863.jpg" />
+</div>
+
+
+###  Подробнее
+
+02 июня 2016, четверг. 21:45 МСК
+Товарищеские матчи 1
+
+Стадион: Уэмбли (Лондон, Англия) , 82 503 зрителя (92 % при вместимости 90 000)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Михаил Поленов, Юрий Розанов) / ИнтершумПродолжительность: 01:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76462B4376CDA662562E3467A91E9B4498FB61C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022793   (727862) от 03.06.2016
+
+The Modern Jazz Disciples (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.After You've Gone [06:05]
+ 02.Disciples Blues [07:16]
+ 03.Slippin' & Slidin' [05:10]
+ 04.Little Taste [06:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9FCCD708C9973C323D1F19EBD088BAAA4EA952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022998   (727861) от 03.06.2016
+
+Следственный эксперимент. Запах преступления (2013) HDTV[H.264/1080i]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое одорология? Как поймать запах в ловушку? Существует ли электронный нос? Смотрите в фильме "Запах преступления".Телекомпания: Планета HDЖанр: ДокументальныйРежиссер: Глеб ДобровольскийПродолжительность: 00:26:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2112FC404B69F547B209BB5C26ACF2F5EED45750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022642   (727860) от 03.06.2016
+
+VA - Need You Tonight! Sweet and Smooth Sounds for a Perfect Moment (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Garcia - Room Without Walls
+02. Pablo Daniel - All Night Down the Road
+03. Mikis Theodorakis - On the Road
+04. Dubdiver - La Ninfa(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE190628F977C444FF5B5789E585CED7F66AC688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022784   (727859) от 03.06.2016
+
+И. Шкаровская | Горнист первой базы (1962) [FB2]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книжка о твоих ровесниках. Но не только о тех, кто сидит с тобой за партой, вместе с тобой ходит в дальние походы и собирает металлолом.
+
+Герои рассказов этого сборника жили в разное время. Одни — в двадцатые годы, когда Советская страна только вступила в своё первое десятилетие, другие — в суровые дни Великой Отечественной войны, а третьи — в наше время. И всё (   Читать дальше...   )Жанр: Детская прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58328B749B226A2820DD095D095ADB4778084308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022735   (727858) от 03.06.2016
+
+Футбол. Чемпионат Европы 2008. Финал. Германия - Испания (29.06.2008) HDTVRip [H.264/720p-LQ] (2016)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеканал Матч ТВ в преддверии Евро 2016 предлагает вспомнить лучшие матчи прошлых чемпионатов Европы.
+
+Вена, Австрия
+Стадион «Эрнст Хаппель»(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Юрий Розанов, Василий Уткин)Продолжительность: 01:55:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84BA49F9A9B8226FF3BE6DE0CFC1133A04F946A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022695   (727857) от 03.06.2016
+
+Deem Beat - Concept Techno Cannel (Podcast NO 001) Mix (2016) [MP3|320 кб/с] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727857.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Senseless Live - Under My Wing (Original Mix)
+2. Sabb, Boy. An - Not Feeling That Fine (Zoo Brazil Remix)
+3. Ańii- Desert God (Original Mix)
+4. Touchtalk - Anticipation (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8E842D3FB6433A55CB852457DA6772381C8AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022798   (727856) от 03.06.2016
+
+Jay McShann - The Last Of The Blue Devils (1977) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Piano Jazz, Jump Blues, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Confessin' The Blues [04:46]
+ 02.'Tain't Nobody's Bizness If I Do [07:03]
+ 03.Hootie Blues [04:33]
+ 04.Blue Devil Jump [03:29](   Читать дальше...   )Жанр: Piano Jazz, Jump Blues, Mainstream JazzПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43DEA9AB810403BD04BD5824E9070AAC5F559B0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022786   (727855) от 03.06.2016
+
+Hank Mobley - Workout (1961) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Workout [10:01]
+ 02.Uh Huh [10:44]
+ 03.Smokin' [07:31]
+ 04.The Best Things In Life Are Free [05:19](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5F3090854E1929D203C26857E2E0E235F396CF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022679   (727854) от 03.06.2016
+
+VA - The Annual Festival Sessions (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phorsicht - Phreude (3:36)
+02. Prash - Bring That Bass (Extended Mix) (4:48)
+03. Sebastien Nox - O_B_O (4:46)
+04. Jamie My Angel - Runaway with Me (Radio Version) (3:35)(   Читать дальше...   )Жанр: Club House, Electro House, ProgressiveПродолжительность: 04:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A3084B39C0F7F8EC73B2A265D19D503186698E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022925   (727853) от 03.06.2016
+
+ЧП. Чрезвычайное происшествие. Расследование. Чей это голос (2016.06.03) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727853.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чрезвычайное происшествие. Расследование» — это эксклюзивная информация из надежных источников. Документальные расследования, проводимые программой, затрагивают самые актуальные темы: организованную преступность и коррупцию, экономические преступления и терроризм. Зрителей ждут мнения участников событий, комментарии экспертов и версии правоохранительных органов.Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:26:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D2D86EEEAEDAA56BCAC19373DB854B3E97CA6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022758   (727852) от 03.06.2016
+
+Paradox - Pangea (2016) [MP3|320 кб/с] <Thrash Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725217.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727852.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Closer than Flesh 03:55
-02. Night of Eden 03:57
-03. Those Who Rot the Souls 04:30
-04. The God of Grave 05:05(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:50:06
+01. Apophis
+02. Raptor
+03. The Raging Planet
+04. Ballot or Bullet(   Читать дальше...   )Жанр: Thrash Metal, Power MetalПродолжительность: 00:59:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DC904371A0F311730F21D1DB544BE27EDC0106A
+magnet:?xt=urn:btih:F768E58FB37B64A29D951F2AB107FBC8A4834762
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -353,28 +477,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399866   (725216) от 02.08.2020
+###  Публикация: 1022674   (727851) от 03.06.2016
 
-Green Seagull - Cloud Cover (2020) [MP3|320 Kbps] <Rock, Psychedelic Rock>
+VA - Future Feelings Club Disco House (2016) [MP3|128-320 кб/с] <Electro, Disco, Club House>
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725216.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727851.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aerosol (03:20)
- 02. Made To be Loved (03:43)
- 03. In The Morning Time (02:39)
- 04. Little Lady (In The Amplifier) (03:55)(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:40:33
+001. Dr. Beat - Na Na Na
+002. Gariy & Hacker - Piano Groove
+003. Robin Schulz Ft. Akon - Heatwave
+004. Jonas Vogel - Find My Way Home (Lucas & Steve Remix)(   Читать дальше...   )Жанр: Electro, Disco, Club HouseПродолжительность: 08:32:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD0B29DD77CDB1F2FA0EC14FE2135B25E4670261
+magnet:?xt=urn:btih:B5DA10A7EB557CBF2D61D5B57064E57F266CA0A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -382,51 +506,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399864   (725215) от 02.08.2020
+###  Публикация: 1022740   (727850) от 03.06.2016
 
-Timey 3 v3.3.5d [En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_725215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Timey - самый простой таймер и секундомер. Это приложение «живет» в строке в меню. Кликнете, чтобы начать или приостановить, щелкните правой кнопкой мыши, чтобы сбросить. Нажмите на кнопку настроек, чтобы изменить время, загрузить пресет, настроить глобальные сочетания клавиш и многое другое.Тип издания: macOS SoftwareРелиз состоялся: 13.06.2020Разработчик: NICE APPS.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399825   (725214) от 02.08.2020
-
-Separation Studio 2.1.3 [En]
+Spillo 1.8.3 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725214.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727850.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Separation Studio - Инструмент разделения цвета в полиграфической системе CMYK (голубой, пурпурный, жёлтый, ключевой (чёрный). Вам не нужно какое-либо другое программное обеспечение для разделения графических цветов. Просто откройте свой файл изображения с помощью Separation Studio, и он сделает все остальное.Тип издания: macOS SoftwareРелиз состоялся: 01.08.2020Разработчик: Splash Colors, MChJПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+Spillo  - контроль над вашим закладкам на Pinboard
+Spillo - это мощный, красивый и удивительно быстрый Pinboard клиент. Spillo позволяет просматривать и упорядочивать закладки в потрясающем современным интерфейсом. Spillo также делает создание закладки из любого места на вашем Mac, максимально удобным.
+
+Spillo имеет красивый современный интерфейс, который чувствует (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 мая 2016Разработчик: Damien DeVilleПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский, Французский, Немецкий и др
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96243086EBD2BCCD9D65F8EADD95EAC08A781865
+magnet:?xt=urn:btih:8250DABFA2FCC154153D7B2B20110A2D59199AD1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -434,54 +535,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399814   (725213) от 02.08.2020
+###  Публикация: 1022941   (727849) от 03.06.2016
 
-Boxy SVG 3  v3.42.2 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цель проекта Boxy SVG - создать редактор SVG для рядовых пользователей, а также для профессиональных дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 02.08.2020Разработчик: Jaroslaw FoksaПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A8D841719E329DCC346F59EBA050E0C8CD991A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399840   (725212) от 02.08.2020
-
-Bridget Kelly Band - Dark Spaces (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
+Debbie Bond - Enjoy the Ride (Shoals Sessions) (2016) [FLAC|Lossless|image + .cue] <Blues>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725212.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727849.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Free Me (05:01)
-02. Sky's the Limit (04:25)
-03. Dark Spaces (05:19)
-04. Find My Way Back Home (03:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:08:19
+01. Enjoy the Ride (03:55)
+02. Rainbow (04:06)
+03. Love Vibration (03:57)
+04. Left Me in the Dark (04:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0255E0378A28DFA75F212179AFDA4B2484C7F0A8
+magnet:?xt=urn:btih:2459E818DAE9C91C4A6DA16D078FD0F4A2FBEDBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,85 +564,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399824   (725211) от 02.08.2020
+###  Публикация: 1284584   (727848) от 22.02.2019
 
-S-Tool - 2 Albums (2017-2020) [FLAC|Lossless|image + .cue] <Groove Metal, Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший вокалист SENTENCED и POISONBLACK Вилле Лайхиала (Ville Laihiala) создал новую группу S-TOOL. Вместе с ним в состав этого финского коллектива входят барабанщик Аксу Хантту (Aksu Hanttu, ENTWINE), басист Киммо Хилтунен (Kimmo Hiltunen, LULLACRY) и гитарист Сами Леппикангас (Sami Leppikangas). По словам Лайхиалы, музыка его новой группы более прямолинейна, чем (   Читать дальше...   )Список альбомов:
-2017 | Tolerance 0
-2020 | ExitusЖанр: Groove Metal, Thrash Metal |Продолжительность: 01:15:25 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A7AD87025D65D01B52E12AA70EC5D54E1686A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1399861   (725210) от 02.08.2020
-
-Septic Flesh - Sumerian Daemons (2003) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. beHold... tHe land of Promise (02:10)
-02. uNbeliever (04:52)
-03. Virtues of the Beast (05:18)
-04. FaUst (05:10)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E965C076953B13DF09BA0C91D5FDD26B2EEEAFC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218237   (725209) от 08.04.2018
-
-John Beltran - Moth (2017) De:tuned [FLAC|Lossless|WEB-DL|tracks] <Techno, Detroit Techno, Ambient>
+Simon Scott - Soundings (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Experimental>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725209.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727848.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wet With Rain (06:02)
- 02. Flight (05:49)
- 03. The Returning Dance (06:16)
- 04. Nineteen Eighty Nine (05:13)(   Читать дальше...   )Жанр: Techno, Detroit Techno, AmbientПродолжительность: 00:46:39
+01. Hodos
+02. Sakura
+03. Santori
+04. Mae(   Читать дальше...   )Жанр: Ambient, ExperimentalПродолжительность: 00:52:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB9598A04D4107AEABF48FCAFDF313FE4C8626A3
+magnet:?xt=urn:btih:F7ED7F65DE10BB3F70AB18E64078A6DCA4A03218
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -575,28 +593,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218204   (725208) от 08.04.2018
+###  Публикация: 1284527   (727847) от 22.02.2019
 
-VA - Dream Trance: The Future Is Now (2018) [MP3|320 Kbps] <Trance>
+VA - Melodic House Sessions, Vol.12 (2019) [MP3|320 Kbps] <House>
 
 >>Electronic
->>Trance
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725208.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727847.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Frozen Skies & Frank Laverne - Celebrate The Love (Radio version)
-02. Bernd Loorbach - Cafe Del Mar (TbO & Vega Trance mix)
-03. Chris Excess - Secret (Frozen Skies remix edit)
-04. Elaine Winter - Forever Young (Tbo & Vega remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:51:42
+01. Gregor - The Winter Carnival (Original Mix) 8:24
+02. Koffee & AmFlow - Raw Uncut (UnCut HardCore Instrumental) 5:15
+03. Alex Lem - Siren (Original Mix) 3:48
+04. Polyakk - Boom (Original Mix) 2:24(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77C90BF8208AE8B683C5529A826480F5EF1DF504
+magnet:?xt=urn:btih:61DA5D0FCA00EBA46C8D59F50DE971C2A68F40ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -604,28 +622,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217968   (725207) от 08.04.2018
+###  Публикация: 1284708   (727846) от 22.02.2019
 
-VA - German Top 100 Single Charts 06.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+Dan Hicks and The Hot Licks - Crazy for Christmas (2010) [FLAC|Lossless|tracks + .cue] <Swing>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725207.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727846.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Marshmello & Anne-Marie - FRIENDS
-002. Olexesh - Magisch (feat. Edin)
-003. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
-004. Drake - God's Plan(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:45:11
+01. Christmas Mornin' (3:13)
+ 02. Santa Gotta Choo Choo (3:29)
+ 03. Somebody Stole My Santa Claus Suit (4:44)
+ 04. Carol of the Bells (3:08)(   Читать дальше...   )Жанр: SwingПродолжительность: 00:41:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A42FA4E6932A47EB29A5AC68A57428DB4619721
+magnet:?xt=urn:btih:C361052D2C65713638E29D1718670E03A378C67D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -633,25 +651,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218272   (725206) от 08.04.2018
+###  Публикация: 1284630   (727845) от 22.02.2019
 
-Последний угон (1968) SATRip [H.264] [MP4|692x524]
+Kinza Browser 5.3.0 Portable by Cento8 [Ru/En]
 
->>Мультимедиа и прочее
->>Мобильное Видео
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727845.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отряд кавалеристов направляется к монгольской границе для соединения с красноармейцами. Из-за предательства одного из бурятов отряд остается без лошадей.Производство: СССР, Свердловская киностудияЖанр: ДрамаРежиссер: Барас ХалзановАктеры: Барас Халзанов, Асанбек Умуралиев, Лариса Егорова, Дагба Дондуков, Гомбожан Цыдынжапов, Буда Вампилов, Д. Жалсараев, Геннадий Данзанов, Владимир МаренковСубтитры: отсутствуютПродолжительность: 01:10:28
+Kinza Browser - японский браузер на базе Chromium с дополнительными настройками, такими как жесты мышью, супер перетаскивание, управление поведением вкладок, многофункциональная боковая панель (закладки, RSS, история).Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84FF889774563B8825DEB443E12C822961ADD646
+magnet:?xt=urn:btih:B5CFCB9770A50FA36CD42B59CAB8AD39204D4FDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -659,25 +677,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218358   (725205) от 08.04.2018
+###  Публикация: 1284673   (727844) от 22.02.2019
 
-Обои - Пасхальные обои 8 [JPG]
+VA - Ibiza Overload '19 (2019) [MP3|320 Kbps] <Funky, Club House>
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725205.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727844.jpg" />
 </div>
 
 
 ###  Подробнее
 
-К Пасхальным Праздникам укрась свой рабочий стол яркими, красочными, высококачественными обоями. Отправь очаровательную поздравительную открытку со Светлым Праздником Пасхи.Формат: JPGРазрешение файлов: 1920x1200
+01. Jack Drake - Treasure (Original Mix)
+02. Nadia A Lee - Feeling Fine (Original Mix)
+03. Gustavo Mendez - Acid Jack (Original Mix)
+04. Frank Delgado - Ibiza Vibe (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:09:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:684B399234D2DDC39B46C5D446E9BF8C76C71037
+magnet:?xt=urn:btih:F055AFFB0410623F05434E6ECE592AE5FC379B03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,28 +706,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218167   (725204) от 08.04.2018
+###  Публикация: 1284404   (727843) от 22.02.2019
 
-VA - German Top 100 Single Charts 09.04.2018 [MP3|320 Kbps] <Pop>
+Николай Устинович | Таежные рассказы (1957) [FB2, PDF]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725204.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727843.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Marshmello & Anne-Marie - FRIENDS
-002. Olexesh - Magisch (feat. Edin)
-003. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
-004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:08
+Николай Станиславович Устинович (1912–1962) — известный сибирский писатель, много лет жил и работал в Красноярске. В своих книгах он рассказывает о строителях, геологах, охотниках — мужественных людях, преображающих Сибирь.
+
+Большое место в творчестве Н. Устиновича занимает природа. В рассказах о природе писатель раскрывает лесные тайны, повадки птиц и зверей, жизнь (   Читать дальше...   )Жанр: Детская прозаФормат: FB2, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:725F9018E1D545CE02A8D2287773E6B8FA6A05A6
+magnet:?xt=urn:btih:F45BA4CFD307C8F8FC918EA2DFF80DA9952C5CEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

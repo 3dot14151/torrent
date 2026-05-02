@@ -1,3 +1,61 @@
+###  Публикация: 1170405   (399737) от 01.10.2017
+
+Johnny Hodges & Wild Bill Davis - Joe's Blues (1965) 2007, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe's Blues [06:08]
+02. I'll Walk Alone [04:30]
+03. Harmony In Harlem [03:20]
+04. Warm Valley [04:30](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0944B811C8140668A00FD99237FEFC389128835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1170410   (399733) от 01.10.2017
+
+Buddy Rich & Maynard Ferguson - Two Big Bands Play Selections From West Side Story & Other Delights (1991) LRC Ltd. [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West Side Story [05:52]
+02. Kilimanjaro Cookout [06:18]
+03. Prelude To A Kiss [03:35]
+04. Waltz Of The Mushroom Hunters [07:17](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468C16EC84CA0E1244ADC2B5CE14CE2017A766FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1170230   (399623) от 01.10.2017
 
 Steve Marcus - Smile (1993) Red Baron [FLAC|Lossless|image + .cue] <Post-Bop>
@@ -708,64 +766,6 @@ Fogh Depot - Fogh Depot (2015) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADE1EE9182669C7986F43E3536A993D554B426DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172534   (393176) от 08.10.2017
-
-Mindi Abair And The Boneshakers - The EastWest Sessions (2017) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Blues Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vinyl
-02. Not That Kind of Girl
-03. Play to Win
-04. Pretty Good for a Girl (feat. Joe Bonamassa)(   Читать дальше...   )Жанр: Smooth Jazz, Blues RockПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56579C5AFA5234292F6B519687568E453BB7AF98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172611   (393107) от 08.10.2017
-
-VA - Bossa N' Rihanna (2017) [FLAC|Lossless|image + .cue] <Jazz, Bossa Nova, Chillout>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amazonics - Russian Roulette
-02. Jingo - Kiss It Better
-03. Sao Vicente & Shelly Sony - Stay
-04. Banda Do Sul - Sex with Me(   Читать дальше...   )Жанр: Jazz, Bossa Nova, ChilloutПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4D9E5D01ADE672EC9F3474F080A7F82C49CAB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

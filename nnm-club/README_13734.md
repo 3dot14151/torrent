@@ -1,29 +1,22 @@
-###  Публикация: 543460   (494037) от 06.09.2012
+###  Публикация: 1318278   (496402) от 05.08.2019
 
-Jagjit Singh - A Spiritual Journey (2CD) (2011) [MP3|320 кб/с]<Folk, Meditative, Mantras>
+Шаблоны - Creative Market - Black iPhone Mockups PSDs - 1364735 [PSD]
 
->>Архив торрентов
->>Архив Музыки
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(02:25) 01. Om Jaap
-(02:19) 02. Vakratunda Mahakaya
-(05:01) 03. Hare Krishna Hare Krishna
-(03:24) 04. Arogya Mantra
-(03:01) 05. Aarogya Gayatri
-(05:32) 06. OM Gam Ganpataye Namah
-(07:28) 07. Kabir Dohe
-(19:49) 08. Jai Shri Ram SurmalaЖанр: Folk, Meditative, MantrasПродолжительность: 00:48:59
+Black iPhone Pack 6 Psd Photorealistic Mockups идеально подходит для демонстрации вашего приложения и дизайна веб-сайта. Его очень легко использовать с «smart objects» - просто дважды щелкните по нужному слою и вставьте изображение на сменный экран. Вы также можете включить / выключить строку состояния (в белом и черном)Формат: PSDРазрешение файлов: 4200x2800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F78D7834C0E485DBF7A2A5FEED63156C7F2C66F
+magnet:?xt=urn:btih:754518007449BB25AE60D85200957C90F5A4A69E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -31,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936808   (494036) от 12.09.2015
+###  Публикация: 1318251   (496401) от 05.08.2019
 
-Евгений Филенко | Цикл «Созвездие Тимофеевых» [2 книги] (2014-2015) [FB2]
+Майкл Бейрут | Теперь вы это видите. И другие эссе о дизайне (2019) [FB2]
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494036.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Студент-историк Виктор Тимофеев – из тех, кого принято называть «народным умельцем». Обитая в дружелюбных реалиях 60-х годов прошлого века, по наивности своей он не знает слова «невозможно». Для друзей и для любимой девушки Светы он способен из валяющихся под рукой пустяков собрать вечный двигатель, преодолеть силы всемирного тяготения и нарушить фундаментальные (   Читать дальше...   )Жанр: Научная фантастика, Юмористическая фантастика, Детективная фантастикаФормат: FB2
+На страницах книги Майкл Бейрут размышляет об истории и направлениях дизайна, о собственном пути в профессии, о шрифтах и цвете, архитектуре, имитациях и поп-культуре, отношениях с клиентами, о доме своего детства, «Клане Сопрано» и логотипе президентской кампании Хиллари Клинтон. Многолетний опыт работы помогает Бейруту глубоко анализировать предмет и при этом писать (   Читать дальше...   )Жанр: Дизайн, Зарубежная литература о культуре и искусстве, Креатив/идеи,Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5BD9FD3EB22BB3ACEA6B9F707C1775B11888336
+magnet:?xt=urn:btih:42F062702463CFDDB072FBC32677FEF3E6560A74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -57,28 +50,288 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936481   (494035) от 12.09.2015
+###  Публикация: 936170   (496400) от 11.09.2015
 
-Slayer - Repentless (2015) Limited Box Set Edition 2CD [FLAC|image+.cue]<Thrash Metal>
+Karkan - 5 альбомов (2008-2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2009.12.30 (KRKN-0003) Yoino Hoshishirube (C77)
+2010.08.14 (KRKN-0004) Akeno Hoshishirube (C78)
+2011.08.13 (KRKN-0005) Arkham Edge (C80)Тип издания: DoujinЖанр: ElectronicФормат: Touhou Vocal, InstrumentalПродолжительность: 00:03:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4D5B5F5BE8BA7E5E0A780DE436502E08CE7CFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936174   (496399) от 11.09.2015
+
+Klang-Gear - 3 альбома (2008-2010) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2008.11.02 Digi-Ana Girls (Kouroumu 4)
+2009.09.06 Kochi Fukaba
+2010.10.11 Kochi Fukaba+ (Kouroumu 6)Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:02:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C425A9D46FBC182F9FE8520FB8A050AB3E3A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936159   (496398) от 11.09.2015
+
+JF UNION — Day Dream (2012) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <J-Rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496398.jpg" />
+</div>
+
+
+###  Подробнее
+
+[02:06] 01. 七誌 - Open phase
+[04:00] 02. 小鳥遊まこ - 刃桜
+[04:30] 03. りこ。 - 砕ノ月
+[04:14] 04. NAKI - Nestle shadow(   Читать дальше...   )Тип издания: DoujinЖанр: J-RockФормат: Touhou Vocal, InstrumentalПродолжительность: 00:00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A4F170E4FE380351692BADE004FCDD32AF921F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936161   (496397) от 11.09.2015
+
+JUNCTION PROJECT - 3 альбома (2010-2012) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2010.03.14 BLACKΩHOLE (Reitaisai 7)
+2010.08.14 RED ROSE (C78)
+2012.05.27 Futatsuiwa Daimyoujin (Reitaisai 9)Тип издания: DoujinЖанр: ElectronicФормат: Touhou Vocal, InstrumentalПродолжительность: 00:01:24:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F95E558FC93ED72CA835CF8C5EB69A2E46F3060B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936160   (496396) от 11.09.2015
+
+JOYH-TV — Triple Time Arranges (2012) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496396.jpg" />
+</div>
+
+
+###  Подробнее
+
+[05:06] 01. JOYH-TV - 砕月
+[04:42] 02. JOYH-TV - 竹取飛翔
+[06:35] 03. JOYH-TV - フラワリングナイト
+[03:03] 04. JOYH-TV - 懐かしき東方の血(   Читать дальше...   )Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AC3F18D88C632738B74D26751B21479263CD91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936171   (496395) от 11.09.2015
+
+KARMART - 9 альбомов (2008-2010) Touhou Instrumental /Doujin/ [FLAC|tracks] <Electronic>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496395.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2009.10.11 (KMCD-0011) Amaryllis (Kouroumu 5)
+2010.03.14 (KMCD-0013) Kachou Fuugetsu (Reitaisai 7)
+2010.08.14 (KMCD-0014) K'style #1 (C78)Тип издания: DoujinЖанр: ElectronicФормат: Touhou InstrumentalПродолжительность: 00:04:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A29B370A58A447EC0C25EC54DA35D254A14D5E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936452   (496394) от 11.09.2015
+
+Otis Waygood Blues Band - Otis Waygood Blues Band (1970) /2000, Fresh Music/ [FLAC|tracks+.cue]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Late Miss Kate (Davenport, Hitzfield) 02:09
+02. Watch 'n Chain (trad arr: Otis Waygood) 04:37
+03. So Many Ways (Rob Zipper) 03:55
+04. I Can't Keep From Crying (John Renbourne) 06:14(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB7BF831C364E6660EAD08692B81914E661A70F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936401   (496393) от 11.09.2015
+
+Ольга Клюкина | Святые в истории. Жития святых в новом формате. VIII-XI века (2015) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496393.jpg" />
+</div>
+
+
+###  Подробнее
+
+От производителя
+Что это за книга?
+Третья книга серии охватывает период VIII- XI веков. В VIII веке Восточная Церковь столкнулась с ересью иконоборчества. Это противостояние, длившееся почти полтора столетия, способствовало не только развитию богословской мысли в Византии, но и появлению новых святых, отстаивавших чистоту веры. Укоренившись на территории Римской (   Читать дальше...   )Жанр: ЖитияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:168481A60E554E457CC6F78F77A4BD1C845200E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936154   (496392) от 11.09.2015
+
+Iris Drop — HIMAWARI FIRE!! (2012) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Rock>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496392.jpg" />
+</div>
+
+
+###  Подробнее
+
+[04:27] 01. 山吹タカ - CASKET DANCE
+[03:21] 02. 山吹タカ - POWER OF THE SCARLET
+[05:03] 03. 山吹タカ - LIGHT THE SAINT
+[04:46] 04. 山吹タカ - FLOWER & SOUL(   Читать дальше...   )Тип издания: DoujinЖанр: J-RockФормат: Touhou VocalПродолжительность: 00:00:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8AAD51E6C1216B0AC0F97D83D184A3BF282EA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936270   (496391) от 11.09.2015
+
+Symphonika - Symphonika (2012) [FLAC|Lossless]<Symphonic rock, Alternative rock, Melodic rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro
-02. Hell Awaits
-03. The Antichrist
-04. Mandatory Suicide(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:48:14
+01. Where Did The Music Go
+02. You're Making Me Live Again
+03. The Storm
+04. In Dreams(   Читать дальше...   )Жанр: Symphonic rock, Alternative rock, Melodic rockПродолжительность: 00:56:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92421679A1DD00A390DAFB3F1E4C30AF39D2AED5
+magnet:?xt=urn:btih:8172D62C3A6B551CF20064E9E57433C702EC17A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -86,25 +339,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 543784   (494034) от 06.09.2012
+###  Публикация: 936319   (496390) от 11.09.2015
 
-Fabio XB & Wach vs Roman Sokolovsky - Eternal (2012) [H.264/1080р] WEBRip
+Виктор Каннинг | Венецианская птица. Королек. Секреты Рейнбердов (2015) [FB2, EPUB]
 
 >>Архив торрентов
->>Архив Музыкального Видео
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: TranceПродолжительность: 00:03:59
+«Венецианская птица».
+К частному детективу Эдварду Мерсеру обращается американский миллионер с просьбой найти в Венеции некоего художника. Мерсер узнает, что художник давно мертв, а человек, сообщивший ему об этом, погибает. А вскоре на частного детектива начинают охоту те, кто не хочет, чтобы правда об их смерти выплыла наружу…
+
+«Королек».(   Читать дальше...   )Жанр: Классические детективы, Английские детективыПеревод: А. К. Андреев, Игорь Моничев, Л. Г. МордуховичФормат: FB2, EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98C30441099B4FBAFCD6DEF6515AFFED3F09447C
+magnet:?xt=urn:btih:C8B7C0A2349E6BBEC0B633DBC28CAC85A3842AED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,26 +368,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936760   (494033) от 12.09.2015
+###  Публикация: 936157   (496389) от 11.09.2015
 
-Л. Кон | Первая книга о растениях (1947) [JPG]
+J&B - 11 альбомов (2007-2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <J-Rock, J-Metal>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
+>>East Asian Music
+>>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это книга о растениях.
-Растения растут в поле, В лесу, в саду, в огороде. Из растений люди делают себе самые нужные вещи: пищу, жилища, мебель, одежду. Растения очень нужны людям. Поэтому люди сеют и сажают полезные растения, ухаживают за ними, чтобы они лучше росли.Жанр: Детская иллюстрированная книгаФормат: JPG
+Альбомы в раздаче
+2011.08.13 (JBCD-0010) Otomegokoro Egoism (C80)
+2011.10.16 Mahou no nai Sekai (Kouroumu 7)
+2011.12.30 (JBCD-0011) Omoide Sunset (C81)Тип издания: DoujinЖанр: J-Rock, J-MetalФормат: Touhou Vocal, InstrumentalПродолжительность: 00:05:24:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9884EF3EAAE8F7BF678F0A6A83E95DFA2BED4725
+magnet:?xt=urn:btih:F120D979D34720BA657B1A979A1AEAC13B4905CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -139,33 +397,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 542976   (494032) от 06.09.2012
+###  Публикация: 936177   (496388) от 11.09.2015
 
-The Addiction Dream - Essence (2012) [FLAC|Lossless]<Progressive Rock>
+Kota-rocK - 6 альбомов (2006-2009) Touhou Vocal, Instrumental /Doujin/ [FLAC|tracks] <J-Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>East Asian Music
+>>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Magic (5:41)
-02. Insatiable (5:31)
-03. Pious Greedy Few (3:55)
-04. The Conservative (7:15)
-05. Dark Skies (6:09)
-06. Promise (3:46)
-07. Flying (5:36)
-08. Essence (3:48)
-09. Survivor (7:27)Жанр: Progressive RockПродолжительность: 00:49:10
+Альбомы в раздаче
+2008.12.29 (TOKO-0004) Kaze no Onkai ~Boss-hen~ (C75)
+2009.08.15 (TOKO-0005) Birth of Fire before (C76)
+2009.12.30 (TOKO-0006) Ghost dignity (C77)Тип издания: DoujinЖанр: J-MetalФормат: Touhou Vocal, InstrumentalПродолжительность: 00:04:02:05
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:38AB9966BA38AEC2648BC9242509ED479421F6A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -173,51 +426,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936538   (494031) от 12.09.2015
+###  Публикация: 936038   (496387) от 11.09.2015
 
-oCam Screen Recorder 136.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494031.jpg" />
-</div>
-
-
-###  Подробнее
-
-oCam Screen Recorder - бесплатная программа, позволяющая быстро и качественно записать видео всего происходящего на экране. Кодирование (сжатие) получаемого видео производится кодеками, установленными в систему. Имеется поддержка двух мониторов. Cam Screen Recorder позволяет записывать также и звуковое сопровождение, причем не только через микрофон. Особенностью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBD8C5188A283A6B0C04E4BDC94969749B0A1D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936819   (494029) от 12.09.2015
-
-Журнал | Любимая дача. Спецвыпуск №10. Строим дом (октябрь 2015) [PDF]
+Журнал | Вяжем крючком №9 (сентябрь 2015) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Специальные выпуски журнала «Любимая дача» — это красочные издания, полные интересных идей и практических советов. Они охватывают круг тем, близких разным поколениям дачников, отвечают на животрепещущие вопросы подробно, с практической точки зрения. Каждый спецвыпуск посвящен конкретной теме, касающейся строительства, благоустройства дачи или участка. Материалы представлены (   Читать дальше...   )Жанр: Дача, сад, огородФормат: PDF
+Популярный журнал по вязанию спицами и крючком для начинающих и мастеров. В номере красивые модели осеннего трикотажа: комбинезоны, платья, болеро, нооски и другое. Для каждой модели есть схемы вязания.Жанр: Вязание, РукоделиеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:216CB2FE30010DEC99E81D067F77BB0B891E5250
+magnet:?xt=urn:btih:E4A9CC375730ADD2F412F9548CC6BAD12B31D854
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -225,25 +452,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936536   (494028) от 12.09.2015
+###  Публикация: 936175   (496386) от 11.09.2015
 
-BurnAware Professional 8.4 Final RePack (& Portable) by KpoJIuK (11.09.2015) [Multi/Ru]
+Knights of Round - 4 альбома (2007-2010) Touhou Instrumental /Doujin/ [FLAC|tracks] <J-Metal, Electronic>
 
->>Архив торрентов
->>Архив Программ
+>>East Asian Music
+>>Doujin Music (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
+Альбомы в раздаче
+2008.12.29 (KNTS-0002) Knights of Round 2 (C75)
+2009.12.30 (KNTS-0003) Knights of Round 3 (C77)
+2010.08.14 (KNTS-0004) Knights of Round 4 (C78)Тип издания: DoujinЖанр: J-Metal, ElectronicФормат: Touhou InstrumentalПродолжительность: 00:04:10:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2980F9AD319DE81CD06AC7D413213ACE70D91F40
+magnet:?xt=urn:btih:025A40A5FD33ADFBEAEA02A1F80418F4658BD334
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -251,360 +481,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936328   (494027) от 12.09.2015
+###  Публикация: 936016   (496385) от 11.09.2015
 
-VA - Smooth Lounge Jazz (2015) [MP3|320 кб/с]<Smooth Lounge, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494027.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ginger Tunes - Blue Gossa
-002. Ginger Tunes - Wave
-003. Ginger Tunes - Liquid
-004. Etta James - At Last(   Читать дальше...   )Жанр: Smooth Lounge, JazzПродолжительность: 06:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92F42318DC02D0249B1D2A18B6C9AB713717AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542635   (494025) от 06.09.2012
-
-Computer Desktop Wallpapers Collection (02.09.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FFFF433FD2144323EC6E543BAF18785A2E61262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936410   (494024) от 12.09.2015
-
-Крематорий - Концерт в ДК "Горбунова" (1993) VHSRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт группы «Крематорий» в Горбушке 1993 года. Группа «Крематорий» - одна из культовых групп середины 80-х – начала 90-х годов прошлого столетия. Песни «Крематория» точно отражали все что происходило и в развалившейся стране под названием Советский Союз и в душах людей которые понятия не имели что будет дальше. Началось все в 1983 году когда однокурсники Армен (   Читать дальше...   )01. Крематорий (01:59)
-02. Проходящие мимо (01:45)
-03. Реанимационная машина (03:30)
-04. Женщины города Роз (04:41)(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 01:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA6E6CD25E34811C3C384F299A441FDCAB24AF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936688   (494023) от 12.09.2015
-
-Следствие вели... с Леонидом Каневским (выпуск 310). Лгунья (12.09.2015). SATRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эти уголовные дела гремели на весь Советский Союз. По ним были написаны романы и сняты художественные фильмы. Их фигуранты - миллионеры эпохи социализма, хитроумные воры, профессиональные грабители и валютчики. Они бросили вызов советскому обществу. Вызов приняли лучшие сыщики страны. В их распоряжении не было компьютеров, сотовой связи и бойцов ОМОНа. Но это не (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, расследованиеРежиссер: Игорь Ромащенко, Борис ФёдоровПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0589A92B44B8C3E8C48B879BBFA699DC8D1E8D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936674   (494022) от 12.09.2015
-
-Мирзакарим Норбеков | Сила года Обезьяны. Календарь здоровья, красоты и твоих побед 2016 (2015) [FB2]
-
->>Разное (категория книг)
->>Эзотерика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494022.jpg" />
-</div>
-
-
-###  Подробнее
-
-На смену году Голубой Овцы к нам приходит год Огненной Обезьяны. И хотя начнется он только 8 февраля, работать мы с вами, мои драгоценные, начнем с 1 января. И думать не смейте, что можно сонно позевывая и лениво почесывая пузо, открыть легкий доступ к своим сверхвозможностям.
-Все, кто будет работать по календарю, поправят здоровье, сумеют раскрыть себя как личность, (   Читать дальше...   )Жанр: эзотерикаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E395D42CBA74BD80BA81579927ECFD593FE55E68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543749   (494021) от 06.09.2012
-
-Best HD Wallpapers Pack (06.09.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D15FBC92A0398F6DFABB86C8349197CC3C6C522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936332   (494020) от 12.09.2015
-
-AVS All-In-One Install Package 2.8.1.120 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494020.jpg" />
-</div>
-
-
-###  Подробнее
-
-AVS4YOU Collection - пакет, состоящий из 10 программ AVS, для работы с видео, аудио, графикой, дисками и документами, таких как: AVS Audio Editor, AVS Audio Converter, AVS Disc Creator, AVS Document Converter, AVS Image Converter, AVS Media Player, AVS Photo Editor, AVS Video Converter, AVS Video ReMaker, AVS Video Editor.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BEF61C7AD88685517993E850BFA36D9FCA28BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543489   (494019) от 06.09.2012
-
-Scelerata - The Sniper (Japanese Ed.) (2012) [WavPack|Lossless]<Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rising Sun (04:40)
-02. In My Blood (04:21)
-03. Road To Death (05:01)
-04. Breaking The Chains (05:09)
-05. Unmasking Lies (05:12)
-06. Must Be Dreaming (04:33)
-07. Drowned In Madness (03:48)
-08. Welcome Home (03:50)
-09. 'Til The Day We Die (04:38)
-10. Money Painted Red (00:38)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:01:11
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936583   (494018) от 12.09.2015
-
-Компания SpaceX представляет новый дизайн капсулы космического корабля Crew Dragon
-
->>След.
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_494018.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если все будет идти согласно намеченным планам, то в 2017 году частные космические компании впервые начнут доставлять астронавтов на борт Международной космической станции. И любой астронавт, который будет отправляться в космос на корабле Crew Dragon известной компании SpaceX, будет находиться в достаточно комфортных условиях, окруженный интерьером достаточно футуристического (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936651   (494017) от 12.09.2015
-
-Обои - Идеальная кожа. 2880x1620 - 170 шт [JPG]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кожа. Такая приятная на ощупь, дорогая и благородная. Идеальный материал для того, чтобы обить монитор ). Самых разных расцветок и фактуры: гладкая, шершавая, грубая, тонкая, толстая, с пупырышками и без, обычная, с рисунком, матовая, лаковая, и даже замша. В том числе кожа змей, крокодилов и других каких-то животных. Да простят меня гринписовцы за этот фотоматериал. (   Читать дальше...   )Формат: JPGРазрешение файлов: 2880x1620
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA84F66F8274AD6003C59E8F8B849E8620FC1C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543966   (494016) от 06.09.2012
-
-Foxit Reader Portable by PortableAppZ 5.4.2.0901 [русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Foxit Reader - профессиональная программа для чтения PDF файлов. Особенностью Foxit Reader является сравнительно небольшой размер дистрибутива и быстрая скорость работы, что, несомненно, сказывается на удобстве программы в целом. Эта утилита не требует долговременной инсталляции. Представленный продукт не требователен к программным и аппаратным средствам компьютера. Программа обладает всеми необходимыми функциями для полноценного просмотра PDF файлов. Доступны такие возможности как: выбрать и скопировать содержание текста с файлов PDF, производить поиск по тексту, будет доступна очень удобная библиотека для поиска и управления PDF файлами, быстрая скорость распечатки документов, поддержка javascript, поддержка плугинов и многое другое. Работает во всех операционных системах Windows.Название программы: Foxit Reader Portable by PortableAppZЯзык интерфейса: русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936490   (494015) от 12.09.2015
-
-Fast Desktop Recorder 1.0.4 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast Desktop Recorder это легкая в использовании бесплатная программа, позволяющая записывать действия на экране компьютера и сохранять их в видеофайлы AVI. Программа может вести видеозапись полного экрана монитора или прямоугольного участка. Если Вы хотите проиллюстрировать свою работу на компьютере, записать презентацию или видеокурс, то бесплатная программа Fast (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD9AFD3A3C0FA69A03445E26045F1FF664D76D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542471   (494014) от 06.09.2012
-
-Бредбери (Бреdbери.Quartet) - Тля (2012) [FLAC|Lossless] <Indie Rock>
+Final Conflict - Return Of The Artisan (2012) [FLAC|Lossless]<Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ищи меня (03:31)
-02. Вам Дам (03:55)
-03. Апрель (03:05)
-04. Кто я (04:30)
-05. Елена (04:06)
-06. Маяк (03:38)
-07. Пойдём (04:04)
-08. Спокойной ночи (03:41)Жанр: Indie RockПродолжительность: 00:30:32
+01. The Calling
+02. The Mechanic
+03. The Spark
+04. Hopes And Dreams(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:23
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2FE641326A93088A3390D44DFEB168E0ABE587FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,80 +510,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 936149   (494013) от 12.09.2015
+###  Публикация: 935944   (496384) от 11.09.2015
 
-Журнал | UPgrade №30 (735) (сентябрь 2015) [PDF]
-
->>Журналы
->>Компьютерные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494013.jpg" />
-</div>
-
-
-###  Подробнее
-
-UPgrade – самый популярный еженедельный компьютерный журнал России. В нем рассматривается самые интересные новинки компьютерного железа, даются многочисленные полезные советы и рекомендации, как сделать работу на компьютере удобной и эффективной. Искрометный юмор авторов не даст вам заскучать, даже читая о сложных вещах!Жанр: Компьютерный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E25D14F1BC57F9107C1A8E2923173B2921B6C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544084   (494012) от 06.09.2012
-
-Desktop wallpapers (07.09.12) [Wallpapers]
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAC74AD4728995B762E712B86D35AF9BB0CCDE22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936557   (494011) от 12.09.2015
-
-Beth Hart - My California (2010) /2014/ [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues Rock>
+Rey Dorset & Mungo Jerry - Golden Orpheus Festival Live (1978) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Pop Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My California (4:35)
-02. Life is Callin (3:51)
-03. Happiness... Any Day Now (4:23)
-04. Love is the Hardest (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:04
+A1	Всичко Се Люлее (Everything Swing)
+A2	Лейди Роуз (Lady Rose)
+A3	Жената, Облечена В Черно (The Woman Dressed In Black)
+A4	Блус За Залива Сан Франциско (A Blues For The San Francisco Bay)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B33EB41B1872DB0A0154020F4522E08B47ED7D1F
+magnet:?xt=urn:btih:5FFEF3FB9080A47E408374A3E2A816C4A9DBF525
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,34 +539,189 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 544000   (494009) от 06.09.2012
+###  Публикация: 936145   (496383) от 11.09.2015
 
-VA - Райские Хиты. Зарубежный Выпуск (2012) [MP3|256 кб/с]<Pop, Dance>
+VA - Strange-Eyed Constellations (2015) [FLAC|Lossless]<Psychill, Ambient, Downtempo>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. DJ Project & Giulia - I`m crazy in love
-002. Britney Spears - Criminal (Dj Sergey Fisun Bootleg remix)
-003. Jesse Labelle feat. Alyssa Reid - Heartbreak Coverup (Radio Version)
-004. Rico Bernasconi & Beenie Man Feat. Akon - Girls (Max Farenthide Re-Cut)
-005. Mark Ronson & Katy B - Anywhere In The World (Radio Edit)
-006. Frisco Disco feat. Ski - One Way Ticket (Rico Bernasconi Remix)
-007. Inna - W. O. W. (Steve Roberts radio edit remix)
-008. Sandra - Maybe Tonight
-009. Bel Suono & DJ Magic Finger - Te quiero
-010. Bueno Clinic - Sex Appeal (Max Farenthide Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:03:53
+01. AstroPilot - Dum Spíro, Spéro (5:37)
+02. Dr trippy - Sirens Of Lorelei (4:46)
+03. 100th Monkey - The Inuit Snow Song (Icescape Secret Beats Remix) (6:14)
+04. Radium88 - The Future's Bright, The Future's Incandescent (6:21)(   Читать дальше...   )Жанр: Psychill, Ambient, DowntempoПродолжительность: 01:10:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53832EBE63A56EFB3BBCDC9089DF6FF672EA728F
+magnet:?xt=urn:btih:34FE0DA4ACCD5E67E3FC77E3979CF49F5A005AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936251   (496382) от 11.09.2015
+
+BurnAware Professional 8.4 Final RePack (& Portable) by elchupacabra [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496382.jpg" />
+</div>
+
+
+###  Подробнее
+
+BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53B456BF179ADB02ABEBCFEF1EBBFDF5CCE1805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936337   (496381) от 11.09.2015
+
+John Mayall - Find A Way To Care (2015) [MP3|320 кб/с]<Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mother In Law Blues (03:12)
+02. The River's Invitation (03:47)
+03. Ain't No Guarantees (03:24)
+04. I Feel So Bad (04:20)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:46:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85E897BD14CEAFBC9315A3ED5B13EDAB7803A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053501   (496380) от 18.09.2016
+
+Призраки опиума / Cookers (2001) DVDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гектор - отпетый уголовник, убийца и наркоман - решает начать свой преступный бизнес. Обосновавшись в старом, заброшенном доме вместе со своей подругой Дориной, он создает лабораторию по производству нового наркотика, имеющего, помимо прочего, сильные галлюциногенные свойства. Пребывая в полнейшей изоляции от внешнего мира, круглые сутки вдыхая пары создаваемого (   Читать дальше...   )Производство: США, Pacesetter Productions InternationalЖанр: Ужасы, ДрамаРежиссер: Дэн МинтцАктеры: Брэд Хант, Сийя Баттен, Патрик МакГоу, Эшли Энн ЛаПен, Фрэнки РэйПеревод: Двуголосый закадровыйПродолжительность: 01:33:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:539F0470DB2DA64335CA1EDA48DF767B5CA4D4F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053766   (496379) от 18.09.2016
+
+НашПотребНадзор. Не дай себя обмануть! (2016.09.18) SATRip
+
+>>Документалистика и Телепередачи
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496379.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создатели нового потребительского проекта «НашПотребНадзор» проведут журналистские расследования на волнующие каждого зрителя темы, в деталях расскажут, как не попасться на уловки мошенников, обличат виновных и на ярких примерах объяснят, как отличить качественное от низкосортного.
+Для того чтобы максимально полно и объективно раскрыть тему каждого выпуска и защитить (   Читать дальше...   )Производство: НТВЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF45BA21147CCA830C7AF32C33F5BC283450F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053763   (496378) от 18.09.2016
+
+Варкрафт / Warcraft  (2016) BDRip [H.264/1080p] [EN / EN, Fr, Sp, Po Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веками магия и неприступные стены защищали людей от любых напастей. Но древнее зло, побежденное и забытое тысячелетия назад, пробудилось.
+В самом сердце королевства открылся темный портал, и раса невиданных существ наводнила земли Азерота. Так начались события, призванные навсегда изменить судьбу этого мира.Производство: Китай, Канада, Япония, СШАЖанр: фэнтези, боевик, приключенияРежиссер: Дункан ДжонсАктеры: Трэвис Фиммел, Пола Пэттон, Бен Фостер, Доминик Купер, Тоби Кеббелл, Бен Шнетцер, Роберт Казински, Клэнси Браун, Дэниэл Ву, Рут Негга, Анна Галвин, Каллум Кит РенниПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, французский, португальский, испанскийПродолжительность: 02:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ECF7216C7C2F2166024A2B17428CBECFDDE4176
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053761   (496377) от 18.09.2016
+
+Первая передача на НТВ. Автомобильная передача (18.09.2016) SATRip (выпуск 261)
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_496377.jpg" />
+</div>
+
+
+###  Подробнее
+
+« Первая передача» — новый проект для автомобилистов и про автомобилистов. Ведущий «Первой передачи» — Виктор Травин, президент Коллегии правовой защиты автовладельцев. Уже много лет этот известный журналист защищает права автолюбителей. В автомире для него нет секретов и закрытых дверей. Всех, кто не представляет своей жизни без автомобиля, и тех, кто только задумывается (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаРежиссер: Роман ИовицаСубтитры: ОтсутствуютПродолжительность: ~ 00:33:05
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

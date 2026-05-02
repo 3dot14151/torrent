@@ -1,3 +1,32 @@
+###  Публикация: 1059410   (461834) от 04.10.2016
+
+Van Morrison - Keep Me Singing (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Rhyme
+02. Every Time I See A River
+03. Keep Me Singing
+04. Out In The Cold Again(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8426D9B4D0F08B21FCD0F988FA5BBEA39DEC75AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321312   (461206) от 23.08.2019
 
 Ashra - 4 Albums (1976-1980) Reissue CD [MP3|320 Kbps] <Electronic, Krautrock>
@@ -735,35 +764,6 @@ Power Music Workout - 40 Fit as Funk Workout Tracks (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F465D81BB1AF2E2940E3390DB7AB7DC13F8BD826
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163502   (450341) от 05.09.2017
-
-VA - Ultimate Driving Songs (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Free - Alright Now  4:22
-02.  Stealers Wheel - Stuck In The Middle With You  3:32
-03.  Elton John - Crocodile Rock  4:04
-04.  Bachman Turner Overdrive - You Aint Seen Nothing Yet  3:47(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745CC7AD58A272633BB012A09B393F30A4EB1098
 ```
 
 https://mybot314.ru/tekegram_catalog/

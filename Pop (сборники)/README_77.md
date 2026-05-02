@@ -1,3 +1,119 @@
+###  Публикация: 1315703   (510910) от 22.07.2019
+
+VA - German Top 100 Single Charts 26.07.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_510910.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Samra x Capital Bra - Zombie
+002. Shawn Mendes & Camila Cabello - Señorita
+003. Capital Bra x Samra - Tilidin
+004. Shindy - Raffaello(   Читать дальше...   )Жанр: PopПродолжительность: 05:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACC659BEF60012FCF6F657C2480E6CE6577E46B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562561   (509033) от 09.07.2022
+
+VA - German Top 100 Single Charts 08.07.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509033.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Robin & Schurze - Layla (3:05)
+002. Luciano - Beautiful Girl (2:59)
+003. Domiziana - Ohne Benzin (2:35)
+004. Liaze - PARADISE (3:12)(   Читать дальше...   )Жанр: PopПродолжительность: 05:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78440F1C454C7118C76EDFDAE6AA7F5543FD4B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932860   (507973) от 30.08.2015
+
+VA - Автоледи: Популярный автосборник (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Атаманка - 16 Лет
+02. Deorro - Five Hours
+03. Koven - Miracle
+04. Ph Electro - Back Home(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD437149D62272B22E35DEBACDA5905A21DB574C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316140   (507710) от 24.07.2019
+
+VA - This Merry Planet - Super Rare Disco Vol.4 (2019) [MP3|320 Kbps] <Disco, Funk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507710.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+
+01.El Coco - Cocomotion (10:30)
+02.Michele - Can't You Feel It (09:48)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:711CA571D7764F48CECEA6E175F3CC1B0EF9D823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538952   (507631) от 25.08.2012
 
 VA - Just Great Songs (2012) 3CD BoxSet[MP3|320 кб/с]<Pop, Rock>
@@ -702,146 +818,6 @@ Jennifer Paige - Compilation (2022) [MP3|320 Kbps] <Pop, R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FCB386579D5AD0CFB0D3B52FB46F9DB90AC8EB9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541674   (500232) от 01.09.2012
-
-VA - 100 Canzonissime Italiane (2000) BoxSet 7CD [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Patty Pravo - La Bambola [02:59]
-02. Massimo Ranieri - Vent'Anni [02:54]
-03. Camaleonti - Perchи Ti Amo [03:12]
-04. Riccardo Fogli - Storie Di Tutti I Giorni [04:15]
-05. Jimmy Fontana - La Nostra Favola [03:13]
-06. Giardino Dei Semplici - Tu Ca Nun Chiagne [03:45]
-07. Formula 3 - Questo Folle Sentimento [03:08]
-08. Alberto Camerini - Rock' N 'Roll Robot [03:11]
-09. Viola Valentino - Comprami [03:55]
-10. Vasco Rossi - Vado Al Massimo [04:07](   Читать дальше...   )Жанр: PopФормат: BoxSet 7CDПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85DC5468A706E6FB272107F7BBC84CE88A96F547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542296   (499506) от 02.09.2012
-
-VA - US Top 40 Single Charts (01-09-2012) [MP3|96-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - We Are Never Ever Getting Back Together
-02. Flo Rida - Whistle
-03. Ellie Goulding - Lights
-04. Carly Rae Jepsen - Call Me Maybe
-05. Katy Perry - Wide Awake
-06. fun. - Some Nights
-07. Maroon 5 - Payphone (feat. Wiz Khalifa)
-08. Justin Bieber - As Long As You Love Me (feat. Big Sean)
-09. Maroon 5 - One More Night
-10. David Guetta - Titanium (feat. Sia)(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9367E8344CBD2FE934DC5A53164AC7E9A241193E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541547   (499000) от 02.09.2012
-
-VA - Подарок любимой женщине / Подарунок коханій жінці (2011) [MP3|256 кб/с]<Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бізнес леді - С.Гіга
-02. Моє літо - С.Весна
-03. Теща - О.Гаврилюк
-04. Святкова - О.Лукашова
-05. Без тебе - М.Армаш
-06. Ода матері - М.Поплавський
-07. Більше розлук не буде - І.Попович
-08. Вишенька - черешенька - Квартет "Гетьман"
-09. Для всіх - В.Павлік
-10. Лебеді кохання - Лебеді Кохання(   Читать дальше...   )Жанр: ПопПродолжительность: 06:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D044D677F54F9B262E263925CAA4826AB93BF5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542018   (498998) от 02.09.2012
-
-VA - Золотая 200-ка Дорожное Радио (2012) [MP3|128 кб/с]<Шансон>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498998.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Игорь Васильев - Все в го-но
-002. Анатолий Полотно - Метелица
-003. Сева Оболонский - Школа бальных танцев
-004. Карен - Люблю тебя
-005. Катерина Голицына - Дикая яблоня
-006. Эдо - Орлиная песня
-007. Александр Маршал - Эх, Вернуться Бы Мне Домой
-008. Арсен Сафарян - Тома - Тамара
-009. Марина Александрова - Собирайся На Войну
-010. Таисия Повалий - Люблю тебя(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8943F56CA6DFBBD3DF614D1D456FE7BCD2900E
 ```
 
 https://mybot314.ru/tekegram_catalog/

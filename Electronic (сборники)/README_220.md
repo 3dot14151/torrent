@@ -1,3 +1,61 @@
+###  Публикация: 1743876   (46470) от 18.08.2024
+
+VA - Крутые пушки Лето 2024 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46470.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bob Sinclar - World Hold On (FISHER Rework) (5:32)
+002. DJ Snake x Ozuna x Akon x Lady Bee - Slow No Dancer (DJ Timbark 100-105 Partybreak) (5:08)
+003. Bagardi, Monatik, Morgenshtern, Daddy Ya - Baby Stop Family Vecherinochka (Dj Salamandra Mash-Up) (4:59)
+004. Öwnboss, Schillist, Silque - Tudum (Extended Mix) (4:58)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 06:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69159536FDEFC9D63E4AE4CF6D84EBE1B3C22204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744629   (45774) от 24.08.2024
+
+VA - TOP Non-Stop 2010-2019 - Deep House. Volume 5 (2024) [MP3|192-320 Kbps] <Deep House, Progressive House, Techno House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Hertz - Ocean Drive (2016) (5:15)
+02. Zone + - Neenar (2019) (6:43)
+03. Robert R. Hardy - Haydina (2014) (6:55)
+04. RBert - Vagabundo (2018) (7:07)(   Читать дальше...   )Жанр: Deep House, Progressive House, Techno HouseПродолжительность: 09:09:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFF9BAA50DC2173F58BB9C32F1E8EE492DE128F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746538   (45043) от 31.08.2024
 
 VA - Music Worx Best 300 Dj Tracks August 2024 [MP3|320 Kbps] <House, Melodic House & Techno, Nu Disco>
@@ -687,64 +745,6 @@ VA - Electronic Afterimages (2024) [MP3|320 Kbps] <Electronic, Synthwave, Retrow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEBC4D0C8A4C246FD4783B61A58C6AFA8C5E682A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753689   (41285) от 06.10.2024
-
-VA - Record Super Chart 05.10.2024 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Port feat. Stryv & Malachiii & Keinemusik & Orso - Move (Cat Dealers Remix) (4:00)
-02. bearwolf - GODZILLA (2:08)
-03. Sophie And The Giants - Shut Up And Dance (2:57)
-04. Alok feat. Jess Glynne - Summer's Back (2:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ACE189692A87BAFE8B752943021EAD4B1641993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753609   (41173) от 07.10.2024
-
-VA - Trance In Motion Vol.381 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miyuki feat. Jennifer Rene - Our Song (Orchestral vs. Extended Mix)
-02. Petereese feat. Jodie Poye - Bed Of Roses (Artena Extended Remix)
-03. Johan Gielen pres. @Airscape - Piano Del Sol (Extended After Summer Mix)
-04. Robin Aristo - Trancemission (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5EB59C64CAD737F4B3A21EB8847816CA63080B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

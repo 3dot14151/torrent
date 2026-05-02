@@ -1,3 +1,61 @@
+###  Публикация: 1723895   (109363) от 17.05.2024
+
+Joachim Caffonnette Extended - Bittersweet Times (2021) Hypnote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bittersweet Times [7:24]
+02. Nostalgie du Futur [7:21]
+03. Presidential Blues [6:08]
+04. Any Where Out of the World [6:27](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DC972BDD86060F70FF5F09B4B0DE1C456D8890
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723863   (109362) от 17.05.2024
+
+Scott Hamilton & Jesper Thilo - Scott Hamilton Meets Jesper Thilo (2011) Stunt Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Lou [6:07]
+02. Good Bait [10:02]
+03. Just Friends [8:22]
+04. Blue Monk [9:18](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92CAFCEACA2D64DF36B654DC6E1ABA2B2A23B6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724019   (109319) от 18.05.2024
 
 Joe Lovano - Joyous Encounter (2005) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
@@ -687,64 +745,6 @@ Alice Coltrane - The Carnegie Hall Concert (1971) 2CD, 2024, Impulse! [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8612EF787B3AA6BA7217157D3DEA46995173DD43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726011   (108859) от 26.05.2024
-
-VA - Smooth Jazz Italian Songs Vol. 3 (2024) Canzoni Italiane In Versione Smooth Jazz [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz, Chill Out>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walter Ricci, Sylvain Luc - Caruso (3:45)
-02. Lo Greco Bros, Trio A.G.E. - Io Vivo Come Te (4:22)
-03. Papik, Michele Ranieri - Due Destini (4:44)
-04. Felice Del Gaudio, Giorgia Faraone - Vagabondo (4:26)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal Jazz, Chill OutПродолжительность: 01:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA228DBB7706F10EF842ED41C256F73269A21F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726135   (108820) от 27.05.2024
-
-Christian De Mesones - You Only Live Twice (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Only Live Twice (Album Version) (4:14)
-02. Sexy Beast (Album Version) (4:03)
-03. Throb! (Bass Godz Remix) (4:58)
-04. Arrival (New York Mix) (3:01)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD7FDF52975D025800AB3F1E356605B4CF7F24E
 ```
 
 https://mybot314.ru/tekegram_catalog/

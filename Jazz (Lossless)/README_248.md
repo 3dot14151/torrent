@@ -1,3 +1,61 @@
+###  Публикация: 1630766   (241195) от 02.05.2023
+
+Armin Marmolejo - Boarding Pass (1994) 1997, Igmod [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boarding Pass [6:41]
+02. No Que No [6:42]
+03. Exiled [8:06]
+04. Miyako [5:00](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0EC390F8316540E230B9392153A7A009A8AD486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1462349   (241184) от 14.04.2021
+
+Red Nichols - Wail Of The Winds (1939 - 1940) 1998, Hep Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hour of Parting [2:57]
+02. Our Love [3:24]
+03. You're So Desireable [2:58]
+04. The King Kong [2:51](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:754DB80316719B6600179D8D59BD2C295AFC45C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631132   (241169) от 04.05.2023
 
 McCoy Tyner - Best Of Big Band (1991, 1993) 2002, Dreyfus Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Big Band, Piano Jazz>
@@ -687,64 +745,6 @@ The Airmen of Note - Christmas Time Is Here (1998) Self-Released [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D92E0FF2EB1E95F875B276BC1E91248D4BD0E302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633997   (240437) от 18.05.2023
-
-Marcello Tonolo Trio - Lazy Afternoon (2010) Caligola [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Out of This World [8:38]
-02. When Lights Are Low [7:20]
-03. Crazeology [5:08]
-04. Lazy Afternoon [6:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A6B5FFC9140FEA7DC1540E6B1375111D3E29A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620817   (240418) от 22.03.2023
-
-The Buddy Collette Big Band - Live At El Camino College (1990) 2006, UFO-BASS [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz By The Bay [10:18]
-02. Blues In Torrance [6:44]
-03. Magali [6:46]
-04. Crystal [5:28](   Читать дальше...   )Жанр: West Coast Jazz, Big BandПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4890FC5D302746AF52EF047674F8681EA1E10179
 ```
 
 https://mybot314.ru/tekegram_catalog/

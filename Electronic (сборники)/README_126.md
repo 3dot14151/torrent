@@ -1,3 +1,67 @@
+###  Публикация: 533212   (530758) от 11.08.2012
+
+VA - Kiss FM - Top-40 (09.08.2012) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parachute Youth - Can't Get Better Than This (Original Mix).mp3
+ 02. Gotye - Somebody That I Used To Know (Dberrie Rmx).mp3
+ 03. Armin van Buuren - Orbion.mp3
+ 04. Dada Life - Happy Violence (Vocal Extended Mix).mp3
+ 05. Правительственный Гаражный Бэнд - Гимн Казантипа 2012 (Original)
+ 06. Orjan Nilsen - Amsterdam (Original Mix)
+ 07. Armin Van Buuren - We Are Here To Make Some Noise
+ 08. Avicii - Levels (Original Mix)
+ 09. Dada Life - Rolling Stone T-Shirt (Cazzette Remix)
+ 10. Adam F - When The Rain Is Gone(   Читать дальше...   )Жанр: DanceПродолжительность: 03:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F6B48D9879FBB990EEAEA42F012335EC853E516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 927251   (529944) от 12.08.2015
+
+Bombay Lounge - Sexy Lounge Music Sensuality Chill Songs Summer Collection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexy Lounge Music
+02. Happy (Party Time)
+03. Sensuality
+04. Bombay (Party Music)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3FA62118110A28A1B8D9D1304E8EA5F9EF27751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 927219   (529940) от 12.08.2015
 
 VA - Best Of Trance (2015) [MP3|320 кб/с]<Trance, Uplifting Trance>
@@ -687,64 +751,6 @@ VA - Cafe Del Mar - Cafe del Mar ChillWave 2 (2016) [MP3|320 Kbps] <Downtempo, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9CD94C7F0D53A9782DD7E480BAC8338B95B0777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157089   (525867) от 10.08.2017
-
-VA - Bolero By Trance: Uplifting And Vocal Trance (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525867.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Harri Kakoulli - The Moon Trick
-002. Frainbreeze - Black Eagle (Radio Edit)
-003. Adagio Sensus - Easy For You (Frainbreeze Radio Edit)
-004. Pondora - Hello Coco(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 10:10:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66EBAD5ECC4040226AF024A4F06C349CBAB70136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157812   (524767) от 13.08.2017
-
-VA - The Whisper Of The Ocean: Classic Chillout (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524767.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ambient Grooves - Breaking Free
-002. Koda - The Last Stand (Stray Theories Remix)
-003. The Sura Quintet - I Won't Forget You
-004. Meg Birch - Your Song(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 09:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20CDAF6D1E8EA8A19C762F38EC354FE5D7AB9E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

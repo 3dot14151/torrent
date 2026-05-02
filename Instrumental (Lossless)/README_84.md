@@ -1,3 +1,119 @@
+###  Публикация: 1637866   (238253) от 06.06.2023
+
+Blue Recluse - Rarely Fatal - Rarely Fatal (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run Me Ragged (4:40)
+02. Black Coffee (3:35)
+03. Hard and Sure (5:38)
+04. Bad Rooster (6:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3788907BB042D3F6224396DEFC89B94FB5BAAB6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637876   (238219) от 06.06.2023
+
+Doc Dynamite - Modern Day Bluesman (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Take No More (5:20)
+02. Strip T's (4:50)
+03. Nothin' but the Blues (4:57)
+04. Fancy Dancer (5:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B832F54E847984D11725202E96B38F9F769F606A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637871   (238205) от 06.06.2023
+
+Crispin Cioe - Soul Noir (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start It Up  (3:03)
+02. Sweet Feeling  (4:14)
+03. Here to Stay (4:14)
+04. Let's Talk It Over (4:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60866EA010D682CFFDC9AE5D476D8B14E7381891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637880   (238198) от 06.06.2023
+
+Gaye Adegbalola - Satisfied (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Ovaries, Baby (3:51)
+02. Look At The Forehead, Maury (3:40)
+03. The Dirty Dozens (3:52)
+04. Tippin' On The Down Low (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:17:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0506E69372AEBCBE6349B96F98A0A5DE26A1DE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637865   (238186) от 06.06.2023
 
 Black Bottle Riot - That's Amore (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Mike Guldin and Rollin' & Tumblin - The Franklin Sessions (2023) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94EF653102E2A4C49EF00E1559FE2A1129ED2A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641493   (236450) от 22.06.2023
-
-White Noise Band - Bite the Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triton (5:35)
-02. Gathering (4:33)
-03. Sing'n Ride (6:36)
-04. Shadow and Sun (4:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27C530D7E06151485753AF73834EE721E4B44834
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641474   (236401) от 22.06.2023
-
-Jack Biilmann - Divided Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Blood (3:45)
-02. Drink The Water (4:07)
-03. Trouble's Coming (3:33)
-04. Skipping Stone (3:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACD2E9231183B7343CFC957B2757A2C7E01E583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629906   (236385) от 28.04.2023
-
-Taj Mahal - Savoy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stompin at the Savoy
-02. I'm Just a Lucky So and So
-03. Gee Baby Ain't I Good to You
-04. Summer Time(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9384723895036AE8B894F99EA110EFAB3CFB308A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640360   (236330) от 17.06.2023
-
-Gov't Mule - Peace...Like A River (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Same As It Ever Was
-02. Shake Our Way Out (feat. Billy F Gibbons)
-03. Made My Peace
-04. Peace I Need(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:16:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599DD4A41D2890342AC8953E8F4EA96675FCE98E
 ```
 
 https://mybot314.ru/tekegram_catalog/

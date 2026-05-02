@@ -1,3 +1,119 @@
+###  Публикация: 1726175   (108822) от 27.05.2024
+
+John Haydock - Solitary Traveller (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Ain't Through With Us Yet (3:49)
+02. The Coast Road (5:00)
+03. Three More Trains (3:52)
+04. Chasing Down a Hurricane (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EDA0DD86922DF4AA1C3C57F6F88131CF7B6C00A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726167   (108810) от 27.05.2024
+
+John Haydock - A Few More Miles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Jerusalem (4:09)
+02. Sunset over Broadway (3:48)
+03. Apocalypse Blues (4:53)
+04. Runaway Love (4:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42580CA44C4C67BF215DDF5D71E6B23B5C6F34D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726154   (108798) от 27.05.2024
+
+dB Bluesband - Do You Need a Ring (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do you need a ring (3:01)
+02. Laissez le bon temps rouler (3:33)
+03. Too fast (2:32)
+04. Show me Suzanne (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F930958DDF56EF2B92A4CA73DE3DF77CC3C28FAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726160   (108784) от 27.05.2024
+
+Greg Wilson - It's My Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Midnight (Cover) (5:01)
+02. Rock with Me (Cover) (4:20)
+03. It’s My Soul (3:38)
+04. Check up on My Baby (Cover) (3:46)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85CF0BDF2E2E37F7824CECC90997DE5083406CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726574   (108726) от 29.05.2024
 
 Jennifer Lyn & The Groove Revival - Live from the Northern Plains (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
@@ -629,122 +745,6 @@ Alastair Greene - Standing out Loud (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E46C833A7C50351C0CDC1B0296D3079E0A178B3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729710   (108029) от 12.06.2024
-
-Left Lane Cruiser - Bayport BBQ Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Motown Mash [00:03:41]
-02. Big Momma Shake [00:03:08]
-03. Man Down The Road [00:04:14]
-04. Crazy Love [00:03:34](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8602036300FA45CEEAF85953DA4F8604F190039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730296   (107897) от 15.06.2024
-
-David Gogo - YEAH! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diamond In The Rough (2:59)
-02. Hurricane (2:56)
-03. Well Worth The Wait (4:15)
-04. Real Good Woman (3:03)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7E5800BB0D15AD79D7D396BE2FCD30C61E5B70D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730507   (107862) от 16.06.2024
-
-Andre Camilleri - Top Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt-Country, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Top Dog [00:03:01]
-02. You Funk Me Up [00:03:24]
-03. Time Keeps Moving Fast [00:03:28]
-04. Give Love a Chance [00:03:14](   Читать дальше...   )Жанр: Alt-Country, Blues RockПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42CFFF612CB886E3AC94AA7922EC4D26F6FDD7F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730736   (107797) от 18.06.2024
-
-Nico Fami - Nico Fami Live at the Ocean Race (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key to the Highway (4:17)
-02. Rock Me Baby (5:44)
-03. Nobody Shoot Me (5:51)
-04. You Don't Have to Go (5:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:691406A57577F3943CE091C1D5139BC468459DA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

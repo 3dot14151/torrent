@@ -1,3 +1,61 @@
+###  Публикация: 1701002   (116656) от 19.02.2024
+
+Donald Byrd - Fuego (1959) 2005, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuego [6:38]
+02. Bup a Loup [4:05]
+03. Funky Mama [10:58]
+04. Low Life [6:03](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D56EDE05E419765D8B029D1DEC0E27B1FA3D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700995   (116654) от 19.02.2024
+
+Tom Harrell - Infinity (2019) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fast [6:39]
+02. Dublin [9:40]
+03. Hope [7:30]
+04. Coronation [6:57](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:05:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2395B3354A3CDC06E08753760D3599613AB3490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700998   (116650) от 19.02.2024
 
 Svend Asmussen - Still Fiddling (1999) 2002, Storyville [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
@@ -687,64 +745,6 @@ VA - Instrumental Jazz Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CFC37591F97067380195780348518261A836246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701930   (115995) от 23.02.2024
-
-VA - Sax For Lovers (1996) Legacy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ben Webster - My Romance (4:16)
-02. Gerry Mulligan - My Funny Valentine (4:08)
-03. Stan Getz - Misty (5:27)
-04. Dexter Gordon - Laura (7:40)(   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 00:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:500831FA651A4FDD229A233F16A97C5A4AFD76CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701933   (115976) от 23.02.2024
-
-Jesse Davis - Horn Of Passion (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C.P. Time [4:00]
-02. Here's That Rainy Day [8:02]
-03. Star Dust [8:38]
-04. Stop & Go [4:57](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2934A9BB9BF89620E832EF33279664518767868F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,66 @@
+###  Публикация: 1335069   (289213) от 01.11.2019
+
+VA - Hits of My Soul Vol. 51 (2019) [MP3|320 кб/с]<Darkwave, Synthwave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
+Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
+Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
+Сборник вобрал в себя исключительно качественную музыку.01. Sau5 Bau5 - The Circus Imperfect (03:16)
+02. VHS Glitch - They Are Coming (02:58)
+03. Brothercom - Tunnel Visions (03:30)
+04. Chamber Yellow - Ash Eater (03:19)(   Читать дальше...   )Жанр: Darkwave, Synthwave, New WaveПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:361901ABBE117F1B62D27BC660221630366FE695
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962749   (289064) от 07.12.2015
+
+JSC - Hits Collection & 4Mix  (3CD) (2015) [MP3|192-320 кб/с]<Spacesynth, Spacedisco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Собрание композиций нидерландского композитора Jan Shipper, пишущего в стиле Spacesynth, Spacedisco и других стилях.
+JSC - название проекта, которым подписывается Jan Shipper.
+На диске 3 (CD3) собраны четыре микса на произведения автора.1. Dreamers Of Dreams
+2. Dutch Rebels
+3. In Cyber Space (Album Version)
+4. 11th Hour(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 02:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:629471FEF0E1E9317B1E6C1A01F2C306A15811FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 963214   (289061) от 07.12.2015
 
 VA - Aphrodisiac Afternoon 20 Sexy Selected Funky Juice Lounge Tracks for Your Listening Pleasure! [Surabaya Music] (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -685,64 +748,6 @@ VA - Beatport Trance Pack (08.12.) (2016) [MP3|320 Kbps] <Trance, Harmonic, Emot
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3F95A4AFE3E66059AA3C60968832AB105EEF2D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081195   (284901) от 09.12.2016
-
-VA - Trance Above Charts Top 100 (2016) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284901.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andrew Rayel & Jochen Miller Ft Hansen Tomas - Take It All (Extended Mix) 5:40
-002. Willem De Roo - Hyperdrive (Extended Mix) 4:20
-003. CJ S.A.Y. - Song of The Abyss (Niode Remix) 6:29
-004. Mhammed El Alami & Lucid Blue - Under The Sun (Dub Mix) 5:41(   Читать дальше...   )Жанр: Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, ProgressiveПродолжительность: 10:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95074F69EBDF14AC2391424162C3F431E6043498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081083   (284900) от 09.12.2016
-
-VA - YearMix 2K16 (2016) [MP3|201-247 Kbps] <Hands Up, Dance, House, Bigroom, Future Bass, UK Hardcore>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aaron Ambrose Feat. Paulina - Moonlight Shadow (Ambrose Video Edit) 03:03
-02. Alan Walker - Faded 03:32
-03. Alan Walker - Sing Me To Sleep 03:09
-04. Deepspirit - Lonely 2K16 (Club Edit) 03:24(   Читать дальше...   )Жанр: Hands Up, Dance, House, Bigroom, Future Bass, UK HardcoreПродолжительность: 02:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82651D96484E539155278A182EBD69826D667EA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1142061   (640650) от 15.06.2017
+
+VA - Blues Hits - (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640650.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Albany Down - Mercy
+002 Albert Castiglia - Drowning At The Bottom
+003 Alvin Lee - My Baby's Come Back To Me
+004 Ana & Milton Popovic - I'm Losing You(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 11:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B3E946DABF70AC8D0027760AC2264AEAB0939E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033417   (639769) от 10.07.2016
 
 VA - Jazz Erotica - Sinfully Glamorous Naughty Smooth Jazz Music for Seductive Erotic Romance (2016) [MP3|320 Kbps] <Jazz>
@@ -716,35 +745,6 @@ VA - Blues Rock Drive 3 [4CD] (2016) [MP3|320 Kbps] <Blues, Blues Rock, Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD622CFAEDBB3391558BD2B9F811ACB7CCFD1D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548311   (598027) от 03.05.2022
-
-VA - Velour Mood (2CD) (2022) [MP3|320 Kbps] <Soul, Funk, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598027.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мягкость, меланхоличность и лиричность композиций сборника "Velour Mood", а так же аранжировка в духе классических "барных" инструментальных джаз компиляций раскрывается в совершенно неожиданном ключе и за счет вокала, который является центральным образом музыкальной картины.CD 01:
-
-001. Sault - London Gangs
-002. Damos Room - Soft Bodied(   Читать дальше...   )Жанр: Soul, Funk, JazzПродолжительность: 13:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21D857444D2BB3FBE5AAD00CA171985E246F9335
 ```
 
 https://mybot314.ru/tekegram_catalog/

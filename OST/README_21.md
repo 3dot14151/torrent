@@ -1,3 +1,61 @@
+###  Публикация: 1334778   (291534) от 31.10.2019
+
+John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Original Motion Picture Soundtrack) (2019) Expanded Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:15)
+02. Aaron Meets Michael (02:39)
+03. Halloween Theme (03:02)
+04. Laurie’s Theme (00:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EB5CF574F696DC798C0F90FCCF6CF6F366B2362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335266   (289579) от 01.11.2019
+
+Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Человек-паук - Высокое напряжение (Complete Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1m1 Logos (00:41)
+02. 1m1a The Opening (03:18)
+03. 1m1a The Opening (Alternate) (03:24)
+04. 1m1b Parents On Plane (03:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B5DC23CFEC91A2812BED54669F85490475A686
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335093   (289409) от 01.11.2019
 
 Tom Holkenborg - Терминатор: Темные судьбы / Terminator: Dark Fate (2019) [MP3|320 Kbps] <Score>
@@ -692,62 +750,6 @@ Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёз
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E1087B4F94CF0A71134112FA3A4AA7FB521830C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 135669   (272818) от 29.11.2018
-
-VA - Лучшие песни французских мюзиклов (2008) [MP3|320 kb/s]<музыка театра и кино>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Редкий альбом, объединяющий в себе песни наиболее популярных французских мюзиклов, которые покорили весь мир. Хорошее качество, отличное оригинальное исполнение, делают этот диск прекрасным подарком всем романтикам, которые найдут тут и песни из «Нотр-Дама» и довольно редкие арии из других менее известных, но не менее красивых постановок.
-Рекомендую использовать (   Читать дальше...   )Жанр: музыка театра и киноПродолжительность: 02:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4336A79329C5828444CE7E2243EBEF79E12EA66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 139281   (271758) от 30.11.2018
-
-VA - Romantic Collection: Cinema (2003) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francis Lai - Un Homme Et Une Femme (02:45)
-02. Nino Rota - Love Theme From The Godfather (02:41)
-03. Henry Mancini - The Windmils Of Your Mind (& His Orchestra) (03:01)
-04. Francis Lai - Love Story (04:12)(   Читать дальше...   )Жанр: Soundtrack (Pop)Продолжительность: 01:08:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:243FDFF78FEB7C8DFA831539A3DC9723E7A6AA9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

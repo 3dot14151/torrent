@@ -1,3 +1,61 @@
+###  Публикация: 959695   (312642) от 26.11.2015
+
+Steve Grossman - Live At Cafe Praga (1990) 2015, Timeless Records[FLAC|tracks+.cue]<Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues Walk [14:07]
+ 02.Ruby My Dear [11:43]
+ 03.Time Was [10:43]
+ 04.When I Fall In Love [08:40](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 00:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93639923240FC2B8AB17021CD56514E2D9B3804F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960011   (312641) от 26.11.2015
+
+Sonny Rollins - Way Out West (1957) 2000, Fantasy[FLAC|tracks+.cue]<Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I'm An Old Cowhand [05:44]
+ 02.Solitude [07:54]
+ 03.Come, Gone [07:54]
+ 04.Wagon Wheels [10:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:11:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7487193ECF266CDF4D244140DF87A7A51ED1A664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959978   (312544) от 26.11.2015
 
 Vaya Con Dios - Vaya Con Dios (1988) [FLAC|tracks+.cue]<Soft Rock, Smooth Jazz>
@@ -687,64 +745,6 @@ Miles Davis - Nefertiti (1988) [FLAC|Lossless]<Jazz, Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A661B93BC295110C3A51D71AD38207F7ED7CBEA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845601   (309419) от 29.11.2014
-
-Miles Davis - Ballads (1998) [FLAC|Lossless]<Jazz, Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Won't You Please Come Home [08:28]
-02. Once Upon a Summertime [03:27]
-03. I Fall In Love Too Easily [06:47]
-04. Song #2 [01:37](   Читать дальше...   )Жанр: Jazz, Cool, Mainstream JazzПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA1CB4B5EA8A8AA86CBA907614CD85FC95EE6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077195   (309080) от 27.11.2016
-
-Alice Coltrane - Radha-Krsna Nama Sankirtana (1977) 2002, Warner Bros. Records [WavPack|Lossless|tracks + .cue] <Fusion Jazz, World jazz, Hindu Devotional,>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Govinda Jai Jai- 5:44
-02. Ganesha -2:42
-03. Prema Muditha -4:32
-04. Hare Krishna -5:53(   Читать дальше...   )Жанр: Fusion Jazz, World jazz, Hindu Devotional,Продолжительность: 00:32:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0921D024B90D170268565247CDF8524D68D6FAA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

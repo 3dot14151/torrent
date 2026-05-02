@@ -1,3 +1,61 @@
+###  Публикация: 1741077   (105722) от 04.08.2024
+
+Utopianisti - Reason In Motion (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Rock, Fusion, Progressive Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greenwash (4:48)
+02. All Whale Panel (4:06)
+03. Yegaa Intro (1:35)
+04. Yegaa Nu Betaa (4:33)(   Читать дальше...   )Жанр: Jazz Rock, Fusion, Progressive RockПродолжительность: 00:52:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5C55A39D84E1650C2012324041E52D7488AED2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741193   (105710) от 05.08.2024
+
+Shakatak - The Very Best of Shakatak 1988-2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Island Girl
+02. Low Down
+03. Blue Note
+04. Open Your Eyes(   Читать дальше...   )Жанр: Smooth Jazz, FunkПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2A4C5F45EDBD0B396387A500328D796A75AEF51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741118   (105709) от 05.08.2024
 
 Frank Sinatra - Ring-A-Ding Ding! (1961) 1998, Reprise Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Stan Getz - Blue Skies (1982) 1995, Concord Jazz [FLAC|Lossless|image + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F3CA7B87FD72065722CE84B92920B49DDB8B229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747071   (104751) от 04.09.2024
-
-Stan Getz - The Lyrical Stan Getz (1988) CBS [FLAC|Lossless|image + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Willow Weep for Me [11:22]
-02. La Fiesta [8:24]
-03. Captain Marvel [5:09]
-04. Ligia [5:23](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:992CEC679D86092508585427C62066B2F58B147D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747258   (104737) от 05.09.2024
-
-Al Cohn & Zoot Sims - Body And Soul (1973) 1997, 32 Jazz [WavPack|Lossless|image + .cue] <Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doodle Oodle [6:57]
-02. Emily [7:22]
-03. Brazilian Medley (Recado Bossa Nova / One Note Samba) [8:06]
-04. Mama Flossie [5:45](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:368EE0DF73D5146E3E62723F67CF081DA2462327
 ```
 
 https://mybot314.ru/tekegram_catalog/

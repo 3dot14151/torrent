@@ -1,3 +1,119 @@
+###  Публикация: 1409908   (440868) от 19.09.2020
+
+Super Vintage - Shining Light (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down The Road
+02. Birds On A Wire
+03. Southern Son
+04. Take A Ride(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EAD76BD4D62CF13971BD287548ABF353DFBB1BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164622   (439050) от 10.09.2017
+
+Bobby Flurie - Hole In The Ozone (2008) [FLAC|Lossless|image + .cue] <Blues Rock, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hole in the Ozone   (04:07) 
+02.  The Cry   (03:21) 
+03.  Evening in Paradise   (03:19) 
+04.  So Right   (02:54) (   Читать дальше...   )Жанр: Blues Rock, InstrumentalПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EBB136AB545CABA66D1E1B8E76352B534F2974D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164673   (438927) от 10.09.2017
+
+George Thorogood - Party Of One (2017) [FLAC|Lossless|image + .cue] <Blues, Blues rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438927.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. I’m a Steady Rollin’ Man
+2. Soft Spot
+3. Tallahassee Women
+4. Wang Dang Doodle(   Читать дальше...   )Жанр: Blues, Blues rockПродолжительность: 00:47:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A09FAD666B490B76A6984404923CEF167B4807AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410246   (438623) от 20.09.2020
+
+Melly Frances & The Distilled Spirits - Nine Pound Hammer Heart (2011) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bootlegger's Ball - 04:53
+02. Dollar Bill - 05:18
+03. All I Seen - 05:57
+04. I Got More Soul Than You - 05:36(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5B5D840CE441D7943D38F32E302CB3F4DE3010E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1062994   (437649) от 15.10.2016
 
 The Derek Trucks Band - Out of the Madness (1998) [WavPack|Lossless|image + .cue] <Blues, Blues rock, Jazz Fusion>
@@ -629,128 +745,6 @@ Mino Lionetti & The Shuffle's Brothers - Behind the First (2022) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:22452DA8FF7BBA60584BA5D9142D00B56B28976A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571723   (429764) от 23.08.2022
-
-Soft City - Settle for the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Settle for the Moon (3:18)
-02. Ramblin' Around (4:41)
-03. Here Comes the Roll (3:44)
-04. Fool to Love You (4:18)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE521E3313666EC26EA3363D7EC0D1107C906C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571712   (429763) от 23.08.2022
-
-Coco O'Connor - Big Reveal (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't No Shame (3:19)
-02. No Crossroads (3:14)
-03. Big Reveal (3:24)
-04. Flower in the Sidewalk (4:40)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90661646705791252E6B155A3273426A66EDB89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 553730   (429438) от 04.10.2012
-
-Peabo Bryson - 4 альбома (1983-2007) [FLAC|Lossless]<Soul, Ballad>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_429438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heavenly [04:36]
-02. Count On Me [04:41]
-03. Waiting For Tomorrow [04:05]
-04. I Promis I Do [05:19]
-05. Missing You [03:57]
-06. To Love About [04:26]
-07. Donґt Make Me Cry [05:09]
-08. 10,000 Reasons [04:09]
-09. Donґt Give Your Heart [04:48]
-10. I Try [05:06](   Читать дальше...   )Жанр: Soul, BalladПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945839   (429403) от 12.10.2015
-
-Snowy White And The White Flames - Little Wing (1997) /2006, Remastered/ [FLAC|image+.cue]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Discoveri 3:42
-02. Long Distance Loving 8:21
-03. I'll Be Moving On 5:54
-04. The More You Live 4:32(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1914E888BFDECC1671DD7434DFB55AA3A660C7BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

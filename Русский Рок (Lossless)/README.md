@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1865992   (1065980) от 
+
+Ravdina (СЛОТ) - Иди За Мной (2023) [FLAC|Lossless|image + .cue] <Alternative, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Время не лечит 4:11
+02. Сон 4:30
+03. Иди за мной 3:53
+04. Измеряя шагами небо 4:19(   Читать дальше...   )Жанр: Alternative, Nu-MetalПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5063A2197E3F1FA3B5492B8106D31FFC8E7780C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865468   (1065650) от 16.04.2026
 
 Мураками - Невеста хочет домой (2026) [FLAC|Lossless|WEB-DL|tracks] <Indie, Pop-Rock>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6833D3E03F0993777C976AC50B1F0AD14B742842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1848722   (1052888) от 18.01.2026
-
-Полюса - Наше ничего (2026) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Привет из жёлтого дубая [00:04:03]
-02. Наше ничего [00:05:07]
-03. Не более того [00:04:05]
-04. Север не отпускает [00:03:27](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD91780A6E22214CE4DC367FE99DD730424FB95
 ```
 
 https://mybot314.ru/tekegram_catalog/

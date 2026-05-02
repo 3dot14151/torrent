@@ -1,90 +1,3 @@
-###  Публикация: 1141195   (652127) от 09.06.2017
-
-Noize MC - Чайлдфри (2017) Single [MP3|320 Kbps] <Rap, Hip-Hop, Rock>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652127.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Чайлдфри
-2. Чайлдфри (версия Монеточки)
-3. Марафон
-4. Чайлдфри (инструментал)(   Читать дальше...   )Жанр: Rap, Hip-Hop, RockПродолжительность: 00:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5277D059BDEAE0E66F1B28B5645D79CAA3B9800F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227296   (648480) от 25.05.2018
-
-Billy Milligan - Геном (2018) [MP3|320 Kbps] <Rap, Hip-hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Геном
-02. Знамение
-03. Громче музыку
-04. До последнего врага(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:14:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C3DC0D8261C6E836346284ACD51C95EE6FC74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141619   (648045) от 11.06.2017
-
-Скриптонит - Праздник на улице 36 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648045.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Капли вниз по бёдрам (feat. Niman)
-2. Напомни
-3. 104 (скит)
-4. Цепи (feat. 104)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14C1E750224B1CFA4CCD56280026715F371E986F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227511   (646587) от 26.05.2018
 
 MATRANG - ЭЙА (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -741,6 +654,93 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A6B42BC5D5FCDA325F0F077677EF334A89C931D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1236865   (553764) от 20.07.2018
+
+MiyaGi & Эндшпиль - Hajime, Pt. 3 (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колизей
+02. Дама
+03. Я хочу любить
+04. Фея(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17022D7481DB49661AEB70F19156AB1640F785B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046381   (552843) от 26.08.2016
+
+Дино (Триада) - Дом Где (2016) [MP3|192 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. До дома
+03. Биг сити (ft. Нигатив)
+04. Холод(   Читать дальше...   )Жанр: RapПродолжительность: 00:36:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD518478BA358E1B781B189AAC243ACA6057558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309850   (549450) от 21.06.2019
+
+Krec - Комиксы (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549450.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Раздрай
+2. Угол
+3. Ещё чуть-чуть
+4. Без купюр(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F6CB9A57C74B431B41B5FE42B65B0FFEBB513AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1418960   (344822) от 26.10.2020
+
+Mildred Bailey - Mrs. Swing (1929 - 1942) 2003, 4CD, Proper Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344822.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. What Kind O' Man Is You? [3:27]
+02. Is That Religion? [3:03]
+03. Harlem Lullaby [2:59](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 04:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95B2308B569B3981F49C7C59E194B015312653F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953841   (344800) от 06.11.2015
+
+Al Cohn - Rifftide (1987) /2015, Timeless Records/[FLAC|tracks+.cue]<Mainstream Jazz, Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Speak Low [07:41]
+ 02.Blue Monk [07:54]
+ 03.Hot House [05:08]
+ 04.The Thing [07:22](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, BopПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02D376912AF2545648B755711B0BE87B6833A2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954047   (344790) от 06.11.2015
 
 Azar Lawrence - Summer Solstice (1975) /2014, Universal/[FLAC|tracks+.cue]<Afro-Cuban Jazz, Post-Bop, Soul-Jazz, Jazz-Funk>
@@ -711,64 +769,6 @@ Zone - Metade (2011) Dneeyedfish [FLAC|Lossless|image + .cue] <World Fusion, Eth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34B8B6307E6DA85C5E72E9DEFB65C99A2B53F0E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180244   (342805) от 03.11.2017
-
-Charles Lloyd New Quartet - Passin' Thru (2017) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Weaver [17:46]
-02. Part 5, Ruminations [11:55]
-03. Nu Blues [11:52]
-04. How Can I Tell You [09:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCE9004C162F5A6A0C0AB2A6A803575E1BB56C3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419205   (342044) от 27.10.2020
-
-Nina Simone - The Nina Simone Anthology (1960-e - 1970-e) 2013, 2CD, Salvo [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342044.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. My Baby Just Cares for Me [3:39]
-02. I Want a Little Sugar in My Bowl [2:35]
-03. Ain't Got No - I Got Life [2:11](   Читать дальше...   )Жанр: Vocal Jazz, Soul-JazzПродолжительность: 02:29:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB518B5050E877DD5BA44BB0E098E993CF5B89AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

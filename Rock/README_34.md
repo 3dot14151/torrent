@@ -1,3 +1,32 @@
+###  Публикация: 1139102   (657701) от 04.06.2017
+
+Roger Waters - Is This the Life We Really Want? (2017) [MP3|320 Kbps] <Progressive Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When We Were Young (01:38)
+02. Deja Vu (04:27)
+03. The Last Refugee (04:12)
+04. Picture That (06:47)(   Читать дальше...   )Жанр: Progressive Rock, Classic RockПродолжительность: 00:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DD7547F487ADBD1C23A05F425CD2694A926C8CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 903722   (657673) от 31.05.2015
 
 John Lennon - Icon (2015) [MP3|320 кб/с]<Classic Rock>
@@ -725,35 +754,6 @@ Forgotten Suns - When Worlds Collide (2015) [MP3|320 кб/с]<Progressive Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:08008CABEA95E147115D5CB2A3BBB294D1073DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905249   (651920) от 05.06.2015
-
-Sunchild - Synesthesia (2015) [MP3|320 кб/с]<Crossover Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Synesthesia (6:00)
-02. The Chosen One (5:14)
-03. Outer Space (4:22)
-04. Space Out (part 1) (1:11)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:345C72FA8B925A7090035999A7F7F9325BEED587
 ```
 
 https://mybot314.ru/tekegram_catalog/

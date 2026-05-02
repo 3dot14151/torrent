@@ -1,3 +1,230 @@
+###  Публикация: 474285   (97873) от 28.03.2012
+
+DJ Kocmoc - Electro Russian Dance vol.4 (24.03.2012) [MP3|320 кб/с]<Electro House, House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97873.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Anna FOX & Extasy Project - Мне все равно (DJ Melnikoff & DJ Andy Max Remix)
+2. Cloud Dj' s Project & Альмароин - Небо Над Нами (Extended Mix)
+ 3. Лерика - Небо И Земля (DJ Vengerov Remix)
+ 4. DJ Mixer Euro feat. Nika Belaya - Зажигаем (Ser Twister Remix)
+5. Клипса - Шаг (Dj Kutsek Club Remix)
+ 6. DJ Sandro Escobar feat. Katrin Queen vs Nyusha - Vyshe (DJ Solovey Remix)
+7. Biffguyz - Bum bum bum (Big Four & DJ Demonhouse Remix)
+8. Тяга - Он уходил (Ser Twister Remix)24.03.2012Жанр: Electro House, HouseПродолжительность: 03:02:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A834CA45BB0B081BC242ED7E9E33504595C747F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474669   (97870) от 28.03.2012
+
+[Wallpapers] Best HD Wallpapers Pack (29.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DB600511D309A954C812150727721573447969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474672   (97868) от 28.03.2012
+
+[Wallpapers] Films Wallpapers (29.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECFF332AA944BC6F18E3A70955F1F5E78B3A79F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474668   (97867) от 28.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (29.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E7781308A186A1F6BE39BC46F6B9F18C96765E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 473463   (97865) от 28.03.2012
+
+VA - House Vip (20.03.2012) [MP3|320 кб/с]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97865.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adrian Lux Feat. Lune - Fire (R3hab's Bigroom Remix) (5:45)
+ 2. Alex Hilton vs. Mirko Delago - Dare me (Slin Project & Rene de la Mone Remix) (5:26)
+ 3. Ben DJ - Rock It (Total Sound & D-Seven Remix) (6:05)
+ 4. DeadWave - Dark Time (Original Mix) (5:54)
+ 5. Far East Movement feat. Rye Rye - Jello (Michael Woods Remix) (6:45)
+ 6. Feed Me - Trichitillomania (Original Mix) (6:45)
+ 7. Freq Maverick - Batteries Not Included (Dubble JD Remix) (5:44)
+ 8. Lunde Bros - Tell Me (Original Mix) (5:17)20.03.2012Жанр: Electro HouseПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D28EC0654B21004658CC60AC9562B0EE3CB8264E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474694   (97864) от 28.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 28
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97864.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 28 
+Название:  Desktop Wallpapers Pack 28 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C4689EC39BA600CA8B0222B3A0810B017AA164F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474663   (97862) от 28.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (28.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBCA5105C8AFE94B2585391B1056AFAC3E46114A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474768   (97861) от 28.03.2012
+
+Журнал | Вкус №2 [2012 март-апрель] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал "ВКУС" - это специализированное издание  посвященное гастрономии, напиткам и табакам. Мы являемся экспертами в области ресторации и имеем огромный опыт проведения алкогольных, сигарных и гастрономических дегустаций и презентаций.
+ Аудиторию журнала "ВКУС" составляют гурманы и любители. Наших читателей интересуют мировые гастрономические тенденции, новые вина, экзотические продукты и кулинарные путешествия. На страницах журнала они узнают, где продается масала, с чем сочетать хамон, как разделать омара и что такое кивано.2012 март-апрельФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BC1ECC505D762F5013EFD4451A9CC312F7E6B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 474270   (97853) от 28.03.2012
 
 DJ Kocmoc - Electro Sensation vol.23 (23.03.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
@@ -516,247 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:645CC25B1CFC6F2F1ED1D895CB11C5613FBF8EEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474215   (97778) от 27.03.2012
-
-VA - Клубная дискотека Record vol. 2 Русская (2012) [MP3|192-320 кб/с]<Pop, Dance, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Лавика - В Городе Весна (DJ Melloffon Remix)          (320)
-02 DJ Miller & Julia Lasker - RaР № (Arthur Project Tel-Aviv remix)
-03 Quest Pistols - Ты так красива (DJ Vengerov rmx)
-04 МакSим - Как летать (DJ Shevtsov & Alex Menco remix)
-05 Глюк`oza - Хочу мужчину (DFM mix)
-06 Инфинити - Ты мой герой (club remix)
-07 Карина Крит feat. Chris Parker - Мое сердце (Radio edit)
-08 T-killah и DJ Mike - Катя на Бугатти (Official remix by DJ Rusk)
-09 Aksioma Project - Без тебя (D'Marzio remix)
-10 El Ray - Безлимитная любовь (Dj Denis Rublev & Dj Natasha Baccardi remix)(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 05:40:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473969   (97774) от 27.03.2012
-
-[Wallpapers] Space Wallpapers Pack
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97774.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Space Wallpapers Pack 
-Название:  Space Wallpapers Pack 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 5000х3500
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E254ACF6BF7ACB19F35EB768E8B8C57C175ED82A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473946   (97772) от 27.03.2012
-
-Space Elves - Terrestrial Planet Finder (2012) [MP3|320 кб/с]<Psychedelic, Goa Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Space Elves - Fead Huck (07:51)
-02. Space Elves - Goa Trance Mission (09:15)
-03. Space Elves - Opening New Dimensions (08:38)
-04. Space Elves - Terrestrial Planet Finder (09:00)
-05. Space Elves - Tokyo Old School (08:55)
-06. Space Elves - Trance India Express (Remix) (10:23)
-07. Space Elves & Somnesia - Satellite (11:39)
-08. Jikooha - Vega (Space Elves Remix) (08:27)2012Жанр: Psychedelic, Goa TranceПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B576AD26F5AA7B3C34F961A825FCE9AC0FFACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474142   (97771) от 27.03.2012
-
-Mozilla SeaMonkey 2.9 Beta 1 [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97771.jpg" />
-</div>
-
-
-###  Подробнее
-
-SeaMonkey — проект, основанный на добрых традициях Mozilla Suite. Классическая Mozilla развивалась много лет, обрела свой круг преданных фанатов, но так и не дошла до широких масс, выдвинув на эту роль красивый современный браузер Mozilla Firefox. За основу SeaMonkey взята Mozilla Suite, как проверенный годами продукт, обладающий колоссальной стабильностью и выверенным кодом. К этой основе было добавлено множество функций, ставших привычными для пользователей Mozilla Firefox и Mozilla Thunderbird. В состав SeaMonkey входит несколько компонентов.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473894   (97770) от 27.03.2012
-
-Patchbay - Southern Cross (2012) [MP3|320 кб/с]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. PatchBay & Lone Wolf – The Whole Universe 6:40
- 02. PatchBay & CosmosVibration & Yage – Patagonia 8:08
- 03. PatchBay – Mystery 7:14
- 04. PatchBay & Ital – Plants And Animals 8:12
- 05. PatchBay & Ital & SpaceVision – Genetic Space 7:21
- 06. PatchBay & DJ Pin & Ital – Spiritual Revelation 7:04
- 07. PatchBay & Yage – All The Stars In The Sky 8:10
- 08. PatchBay & Pragmatix – Reality Molecule 7:31
- 09. PatchBay & DJ Pin – Sound Mapping Saga 8:12
- 10. 0dB – Andes 7:282012Жанр: Psychedelic / Full OnПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB89C8044C9C56D237774E1DE0ABE3CED90D0587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473937   (97768) от 27.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (26.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97768.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667A6CE9D9A739E74B6B51239F2ECD284E88B15B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473909   (97766) от 27.03.2012
-
-[Wallpapers] Avto Wallpapers Pack 18
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97766.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Wallpapers Pack 18
-Название: Avto Wallpapers Pack 18
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16034BB7B8AA25C44BA262AAC63E3B13D652664F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473939   (97763) от 27.03.2012
-
-[Wallpapers] Cityscapes HD Wallpapers (26.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03B6CB9521D4288E709FA4840D103150C23693FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

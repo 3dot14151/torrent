@@ -1,3 +1,235 @@
+###  Публикация: 1350735   (1002935) от 07.01.2020
+
+Pink (P!NK) - Greatest Hits... So Far 2019!!! (2010/2019) Japanese Edition [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So What (3:36)
+02. F**kin Perfect (3:33)
+03. Raise Your Glass (3:23)
+04. Get The Party Started (3:13)(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 01:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0835677630566AC6B4BC17FF05CEBD5A6B555613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350881   (1002683) от 08.01.2020
+
+a-ha - Minor Earth | Major Sky (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minor Earth Major Sky (Early Version) (5:48)
+02. Little Black Heart (Alternate Mix) (4:35)
+03. Velvet (Early Version) (5:19)
+04. Summer Moved On (Early Version) (4:38)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:15:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDEF740A66B25A704C2D549A46B3D18C5BBBA95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488051   (1002493) от 09.08.2021
+
+VA - 100 Hits Number 1's (2018) Box Set, 5 CD [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002493.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждого исполнителя есть несколько хитов, которые мы называем номер 1. Это по мнению большинства - вершина достижений каждого из исполнителей. Вот три года назад Demon Music Group решила собрать под обложкой одного бокссета такие высшие достижения некоторых исполнителей и дать возможность слушателям вспомнить и насладиться ещё раз хитами прошлого. Вряд ли Вы для (   Читать дальше...   )CD1:
+01. Britney Spears - …Baby One More Time  (3:31)
+02. Justin Timberlake feat. Timbaland - Sexyback  (4:03)
+03. Shakira feat. Wyclef Jean - Hips Don’t Lie  (3:39)(   Читать дальше...   )Тип издания: Box Set, 5 CDРелиз состоялся: 02 ноября 2018Жанр: Pop, Rock, DanceПродолжительность: 06:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAE4F3E95494B5BF7A7600AADDF4AD4C13C9D75E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351247   (1002425) от 09.01.2020
+
+a-ha - Lifelines (2019) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lifelines (Demo) (5:16)
+02. You Wanted More (Demo) (4:01)
+03. Forever Not Yours (Demo) (4:12)
+04. There's A Reason For It (Demo) (4:14)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:16:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AD51D4A73CCBDFA44B27A40800C62D9F626F9D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351360   (1002188) от 10.01.2020
+
+Georgia - Seeking Thrills (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Started Out (03:41)
+02. About Work the Dancefloor (03:28)
+03. Never Let You Go (03:47)
+04. 24 Hours (03:05)(   Читать дальше...   )Жанр: Pop-Rock, PopПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2A57316BE7ADB7FDC5C92AD9C7361E135AE8E96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351714   (1001916) от 11.01.2020
+
+VA - Acoustic 90s and 00s Covers (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Freed From Desire 3:05
+02. Shannon & Keast - Hey Ya! 3:14
+03. Meg Birch - Runaway 3:37
+04. The Shaken Bakers - 4am 2:46(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 02:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D39FA40B6F24CAF138F08DD77350AA13158E964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351797   (1001638) от 12.01.2020
+
+a-ha - East Of The Sun West Of The Moon (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/18. Early Morning (Early Version) (2:43)
+02/18. East Of The Sun (Early Version) (5:35)
+03/18. I Call Your Name (Instrumental Demo) (2:13)
+04/18. Slender Frame (Demo) (3:54)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749AFA4E504C88642A9BBC65D182AB02AAA63ABE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352551   (1000869) от 15.01.2020
+
+a-ha - Memorial Beach (2015) 2CD, Deluxe Edition, RE. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Is The Night For All (Demo) (3:29)
+02. Cold As Stone (Demo) (8:32)
+03. Angel In The Snow (Demo) (3:25)
+04. Locust (Demo) (4:35)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, Synthpop |Продолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1EE60CB572B010E7B54F90945339FC15EDDFB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352547   (1000866) от 15.01.2020
 
 VA - Acoustic 2020 (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
@@ -510,238 +742,6 @@ Oonagh - Oonagh (2014) Attea Ranta • Second Edition [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A907249CB894256324FEC4718CDEDBBF674EF555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355555   (983535) от 26.01.2020
-
-Lola Marsh - Someday Tomorrow Maybe (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echoes (03:44)
-02. Only For A Moment (02:48)
-03. Hold On (03:48)
-04. Strangers On The Subway (03:11)(   Читать дальше...   )Жанр: Indie Pop, Dream Pop, FolkПродолжительность: 00:41:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F2A09EA77B9EF482DA07470471665D5A3475618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355502   (983522) от 26.01.2020
-
-Tindersticks - See My Girls (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. See My Girls (Edit) [04:24]
-02. A Street Walker's Carol [04:19]
-03. Blood and Bone [05:35]
-04. See My Girls (Le Chien Version) [05:31]Жанр: Pop RockПродолжительность: 00:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08FF6C7DB9A492234D7C36530CEBBF78079E5247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972042   (983353) от 05.01.2016
-
-Fitzgerald - Full Circle (2015) [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, R&B, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Gon Say
-02. Making Love
-03. Love Me Again
-04. Missing You(   Читать дальше...   )Жанр: Pop, Soul, R&B, ElectronicПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6BE46DF0A6DCF69BA71E2C982DFCE16AF8AAD29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971964   (983341) от 05.01.2016
-
-Anastacia - Two Albums: Not That Kind, Freak Of Nature (2000,2001) [APE|Lossless|image+.cue] <Rhythm & Blues, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not That Kind
-02. I'm Outta Love
-03. Cowboys & Kisses
-04. Who's Gonna Stop The Rain(   Читать дальше...   )Жанр: Rhythm & Blues, Pop RockПродолжительность: 01:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:502381B0590F7AE52E9DEACDF5DE522463DFD50D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972802   (980240) от 08.01.2016
-
-New York Gypsy All Stars - Dromomania (2015) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Balkan Pop, Gypsy, Jazz>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G Street
-02. America Cocek
-03. Cloud Nine
-04. Melandia(   Читать дальше...   )Жанр: Contemporary Balkan Pop, Gypsy, JazzПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9623CB1B84283332D53E03A3D41EA9DAC5E15315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973554   (979131) от 09.01.2016
-
-Duran Duran - Astronaut (2004) SACD, 2005 Epic [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (Reach Up for the) Sunrise (3:25)
-02. Want You More! (3:37)
-03. What Happens Tomorrow (4:04)
-04. Astronaut (3:24)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E070568B3EB993DF65E504C7A713C01A0BAA45F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974269   (976616) от 11.01.2016
-
-VA - BRAVO Hits 90 (2015) [FLAC|Lossless|tracks|WEB-DL]<Pop, Electronic, R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Newman - Come And Get It (3:04)
-02. The Weeknd - Can't Feel My Face (3:35)
-03. Avicii - Waiting For Love (3:49)
-04. Lost Frequencies feat. Janieck Devy - Reality (Radio Edit) (2:39)(   Читать дальше...   )Жанр: Top 40, Pop Compilation, Pop, Rock, Electronic, Indie Pop, Europop, R&B, Hip Hop, Pop Rap, House, Euro House, Deep-House, Electro, Synthpop, Pop Rock, Indie RockПродолжительность: 02:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:130E9F070A26135D06E67A2047C3996AD166FE8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974348   (975796) от 12.01.2016
-
-Dolcenera - Le stelle non tremano (2015) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Niente al mondo
-02. Immenso
-03. Un peccato
-04. Figli del caos(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FF320B2A8FB4E6810428D4CF1C057F1366DB49
 ```
 
 https://mybot314.ru/tekegram_catalog/

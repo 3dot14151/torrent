@@ -1,3 +1,32 @@
+###  Публикация: 1501398   (836410) от 09.10.2021
+
+Stephan Bodzin - Boavista (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth (7:33)
+ 02. LLL (6:52)
+ 03. Astronautin (7:33)
+ 04. Boavista (7:37)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 02:00:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6166A474DA1D86358215A07E1291FB19908E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114133   (835297) от 13.03.2017
 
 Buntaro Toriyama - Drop Of Sleeping (2017) [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient>
@@ -714,35 +743,6 @@ VA - F....U Corona (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Afro House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C541F81D804AFCDF22E1813CD039D49E7FD2A714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196478   (822552) от 03.01.2018
-
-VA - Focus On Nicholas Van Orton (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholas Van Orton - Artras (Original Mix) [08:35]
-02. Nicholas Van Orton - Flamas (Original Mix) [08:25]
-03. Nicholas Van Orton - Radient (Original Mix) [07:07]
-04. Nicholas Van Orton - Hay Grises (Original Mix) [08:15](   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B15E1E00920132F4A2C5BD5AF40D875C7ADE715F
 ```
 
 https://mybot314.ru/tekegram_catalog/

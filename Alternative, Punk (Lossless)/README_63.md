@@ -1,3 +1,61 @@
+###  Публикация: 1085917   (156890) от 22.12.2016
+
+Mother Turtle - II (2016) [FLAC|Lossless|tracks] <Eclectic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture
+02. Harvest Moon
+03. Ennui
+04. Walpurgi Flame(   Читать дальше...   )Жанр: Eclectic ProgПродолжительность: 00:56:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F8AF33A9E67FB3150C18519A13BB6AB6FF5566D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085434   (156882) от 22.12.2016
+
+The Living End - Modern Artillery (2003) [FLAC|Lossless|image + .cue] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Would You Do? - 1:27
+02. One Said To The Other - 2:44
+03. Who's Gonna Save Us? - 3:21
+04. End Of The World - 3:36(   Читать дальше...   )Жанр: PunkПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD726D4D31E59ABD68DDF1E5BEF054FA30053D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600702   (156097) от 28.12.2022
 
 Autumn Lies Buried - Aristocracy (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore, Groove Metal, Rapcore>
@@ -685,64 +743,6 @@ Daniele Luppi & Parquet Courts - Milano (2017) [FLAC|Lossless|tracks + .cue] <In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E85E75E102D899A634BD32631B622AEDD454C29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969957   (141547) от 30.12.2015
-
-VA - Kerrang! Ultimate Rock Heroes! (2015) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Punk, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Enter Shikari - Know Your Enemy (Rage Against the Machine) :: 04:36
-02 - Neck Deep - Don't Tell Me It's Over (Blink-182) :: 02:29
-03 - Palm Reader - My Plague (Slipknot) :: 03:49
-04 - Feed The Rhino - I'm Broken (Pantera) :: 04:18(   Читать дальше...   )Жанр: Alternative Rock, Pop Punk, HardcoreПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4645B3D59A643ABE129E3B7DAF9ED5D0F2BE3649
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272942   (139783) от 30.12.2018
-
-Acid - The In Part Od The Out Crowd (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What's Going On (02:59)
-02. Get Down (02:41)
-03. Never On My Mind (03:15)
-04. Supercharger (02:37)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:28:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4EF86568C49BCAF6DA1ED839974A54D9B30F31A
 ```
 
 https://mybot314.ru/tekegram_catalog/

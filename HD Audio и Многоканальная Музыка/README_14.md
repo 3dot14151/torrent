@@ -1,3 +1,145 @@
+###  Публикация: 650181   (845067) от 29.04.2013
+
+Celine Dion – All the Way….A Decade of Song (1999) [DSD 5.1 1bit/2822,4kHz | SACD-R] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845067.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBEC295AC2AE92D889B9A76B9079F7F072C424C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112154   (844772) от 07.03.2017
+
+Manfred Mann's Earth Band With Chris Thompson - Criminal Tango (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844772.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Going Underground (5:19)
+A2. Who Are The Mystery Kids (3:45)
+A3. Banquet (5:17)
+A4. Killer On The Loose (4:00)(   Читать дальше...   )Производство: Virgin - 207 629-630Жанр: Progressive RockПродолжительность: 00:37:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECBB14DFE7ECA3470324BCDF5CED82DC1C208BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1499462   (842350) от 05.10.2021
+
+Московский Камерный Орк., дир. Л. Маркиз - Mozart - Cassation No. 1 In G Major K. 63 / Concerto No. 2 For Harpsichord And Orchestra In B Flat Major (1972) [FLAC 2.0|96/24|image +.cue] <Classical ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cassation No. 1 In G Magor K. 63 --- Кассация № 1 Соль Мажор К. 63
+A1 Marche
+A2 Allegro
+A3 Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758B21FB195E6A2868BB9C44981F05983F1924E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500378   (841290) от 06.10.2021
+
+Cinderella - Легенды Зарубежного Рока (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Don`t Know What You Got
+02. Heartbreak Station
+03. Hard To Find The Words(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:858AA927F0CB1C3D96BE3612DBCC68414E724EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 793368   (841272) от 04.04.2016
+
+Electric Light Orchestra - Secret Messages (1983)  [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841272.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Secret Messages (4:45)
+A2. Loser Gone Wild (5:24)
+A3. Bluebird (4:09)
+A4. Take Me On And On (5:01)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7075669EA4FE93F57AACE74FEA887A0CB7036F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004105   (839899) от 05.04.2016
 
 Nini Rosso and His Orchestra/Нини Россо И Его Оркестр - Napoli/Неаполь (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Latin>
@@ -602,151 +744,6 @@ Moya Brennan – Two Horizons (2003) [DTS 5.1 44.1/16 | .wav+.cue (SACD)] <celti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8715DEFA91F7A2131948E0B5D5407F02BB17546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502492   (828144) от 14.10.2021
-
-Emmylou Harris - Producers Cut (2002) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-Audio] <Compilation, Country Music>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If I Could Only Win Your Love
-02. Boulder To Birmingham
-03. One Of These Days
-04. Too Far Gone (with Dolly Parton & Linda Ronstandt)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56869ECB38837400D90DD66019A09AC07318887C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502747   (826501) от 15.10.2021
-
-Patricia Barber – Clique! (2021) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DXD-DL] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Town 04:34
-02. Trouble is a Man 03:53
-03. Mashup 08:05
-04. Samba de Uma Nota So – One Note Samba 04:28(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A5AF6E5D1C57BE7F46AB0DBEE001708D2AFC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502119   (826499) от 15.10.2021
-
-Nazareth - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 Love Hurts
-A2 Razamanaz
-A3 Loved And Lost(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F81EC0669DBE5755D0180B914CE4DEC0635275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502547   (826412) от 15.10.2021
-
-Smokie - Легенды Зарубежного Рока (1999) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. I'll Meet You At Midnight (Midnight Cafe)
-02. What Can I Do (Midnight Cafe)
-03. No More Letters (The Moutreux Album)(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28430F2D8F5ED3164B693EDD253156BA3E3A793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381521   (826134) от 07.05.2020
-
-Andy Williams - The Andy Williams Sound of Music (1968) 2xLP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826134.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Sound of Music
-A2 That Old Feeling
-A3 Quiet Nights of Quiet Stars (Corcovado)
-A4 Let It Be Me(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 01:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65BBDA74124C619F8598F4FDA3F70CE3B441445B
 ```
 
 https://mybot314.ru/tekegram_catalog/

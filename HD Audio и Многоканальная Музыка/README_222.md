@@ -1,3 +1,177 @@
+###  Публикация: 1736660   (50117) от 13.07.2024
+
+VA - В стиле Шансон от Arhangel Music (2024) [FLAC 2.0|44.1/16|Lossless|tracks] <Pop, Rock, Disco, Techno, Electronic, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50117.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:06] 01. Вступление + Золотые Купола (Techno Vers)
+[2:32] 02. Белый теплоход (Rock vers)
+[2:53] 03. Владимирский Централ (Vers.1)
+[4:28] 04. Баллада об уходе в рай(   Читать дальше...   )Жанр: Pop, Rock, Disco, Techno, Electronic, ChansonПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EE97F3F685851DE59B6D454C05F27F51CE848B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737473   (49718) от 17.07.2024
+
+Jack Magnet Science, Peter Erskine - Future Forecast (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Card (3:17)
+02. Space Pasadena (6:53)
+03. Dreams of Delphi (4:21)
+04. Extra Polation (3:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BE5E416992EFFC5754357538C4A72A0588F770B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737540   (49631) от 18.07.2024
+
+Love Music Zone, Smooth Jazz Music Ensemble - Charming Nights: Sensual Collection of Erotic Instrumental Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexually Twisted (3:14)
+02. Ignite The Spark (3:26)
+03. Provocative Girl (3:35)
+04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438604DD7F02ACBA8D54221A9F340BC39379C4E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737607   (49616) от 18.07.2024
+
+Babbba - Cabaret III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A night in cabaret (17:35)
+02. A brush of light (17:42)
+03. Trodden pathways (18:49)
+04. So discreet (18:09)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E59EDFE5FC2C3463B7728643866157EF60FF96B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737542   (49614) от 18.07.2024
+
+Sexual Music Collection, Romantic Piano Ambient - Forbidden Jazz for Night Pleasures (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porn Star Jazz (3:18)
+02. Guru of The Lounge (3:05)
+03. Trigger My Mind (3:06)
+04. I Get Deeper Into Vibe (3:11)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310275C4CDFCEB4B7293EAF642E665E7E1DACAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737609   (49612) от 18.07.2024
+
+Babbba - Extended Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth walking (2:58)
+02. Feels right (2:06)
+03. We're just dancing (2:47)
+04. Feel the groove (2:41)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248601F5E9743AAB197F0560070A5B3FB1AE79D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737612   (49610) от 18.07.2024
 
 Babbba - Groovy Things (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
@@ -570,179 +744,6 @@ Blues Pills - Birthday (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB12782556AFC23D7D9EB6493E0F47E7AB8DD41A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741743   (47438) от 08.08.2024
-
-The Winery Dogs - Studio Albums (4 releases) (2014-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47438.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Winery Dogs — американская хард-рок-супергруппа, образованная в 2012 году Майком Портным, Билли Шиэном и Ричи Коценом.2014 - The Winery Dogs
-2015 - Hot Streak
-2017 - Dog Years (EP)
-2023 - IIIЖанр: Hard RockПродолжительность: 03:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FB08828BE13BFB36DA2B8173639076EBF14096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741760   (47437) от 08.08.2024
-
-James-Johnson - Midnight Blues (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely Road (3:15)
-02. Whiskey Dreams (3:25)
-03. Midnight Train (4:05)
-04. Heartache Blues (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA30A254452A74BB64529090CD1675FB18A1C2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741820   (47435) от 08.08.2024
-
-Mushroomhead - Call The Devil (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Metal, Industrial Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eye To Eye (4:41)
-02. Fall In Line (4:44)
-03. Emptiness (4:22)
-04. We Don't Care (3:49)(   Читать дальше...   )Жанр: Alternative Metal, Industrial Metal, Nu MetalПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C31C48B8D3F274FFE2460B0F275B8681F528118
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741759   (47434) от 08.08.2024
-
-Jack White - No Name (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Scratch Blues (3:32)
-02. Bless Yourself (2:34)
-03. That's How I'm Feeling (3:12)
-04. It's Rough On Rats (If You're Asking) (4:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F44A6433F64B9A275A4A90235E6F7EA7F9035A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741895   (47430) от 08.08.2024
-
-George Harrison - The Concert for Bangladesh (1991) 2024 [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction by George Harrison & Ravi Shankar (Live) (5:18)
-02. Bangla Dhun (Live) (16:40)
-03. Wah-Wah (Live) (3:30)
-04. My Sweet Lord (Live) (4:36)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E55A08D2DF284467D12363DC9E8E64BB50825F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741968   (47335) от 09.08.2024
-
-Social Distortion (Social D; SxDx) - Studio Albums (3 releases) (1996-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_47335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Social Distortion — американская панк-рок-группа, созданная в 1978 году в Фуллертоне, Калифорния.1996 - White Light  White Heat  White Trash
-2004 - Sex, Love, and Rock n' Roll
-2011 - Hard Times And Nursery RhymesЖанр: Punk RockПродолжительность: 02:11:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD23AA59969216C808171FA595F3D34FF2BAF0C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 749785   (481826) от 18.09.2015
+
+BLANKFIELD - 8 альбомов (2008-2014) Touhou Instrumental /Doujin/ [FLAC|Lossless] <J-Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481826.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы в раздаче
+2012.12.30 (BFCD-0005) At The Termination Of The Phantasm (C83)
+2013.08.11 (DECD-0001) Danmaku Unlimited 2 (C84)
+2014.12.29 (BFCD-0006) A DAY EP (C87)Тип издания: DoujinЖанр: J-MetalФормат: Touhou InstrumentalПродолжительность: 00:02:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C39AEB5B4EF5BACFF8B5424DFADCB58AC640DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 832219   (481720) от 18.09.2015
 
 forestpireo - 24 альбома (2008-2014) Touhou Vocal /Doujin/ [FLAC|Lossless] <J-Pop, J-Rock, Electronic>
@@ -750,32 +779,6 @@ VA - Walking On The Mountain Paths (2008) [MP3|320 кб/с]<New age, Instrumenta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4771E158C9211104B1922566CF84C67845DC23A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707192   (430030) от 08.10.2013
-
-Yuyoyuppe - 13 альбомов, 30 компиляций, 1 сингл (2009-2013) [MP3|192-320 кб/с]<J-Rock, J-Pop, J-Trance, Metal, Screamo, Vocaloid>
-
->>East Asian Music
->>Doujin Music
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yuyoyuppe (ゆよゆっぺ) - бокаро (с не давнего времени и не только)-композитор, дебютировавший в 2008 году. Пишет песни в жанрах Post-Hardcore и Metal. Вместе с meolа образуют сёркл Draw the Emotional. Вокалист/композитор в группе My Eggplant Died Yesterday (MEDY). Один из продюсеров проекта BABYMETAL. Также известен под псевдонимом DJ'TEKINA//SOMETHING работает в EDM/House/Dubstep направлении.Жанр: J-Rock, J-Pop, J-Trance, Metal, Screamo, VocaloidПродолжительность: 26:61:75
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CCB71E5C081557C7D80087BB5818E1F0D67AC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

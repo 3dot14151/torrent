@@ -1,3 +1,61 @@
+###  Публикация: 1094558   (929456) от 18.01.2017
+
+Jack McDuff with Jimmy Forrest - Tough 'Duff (1960) 1995, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Smooth Sailing [06:48]
+ 02.Mean To Me [05:41]
+ 03.Tippin' In [05:25]
+ 04.Yeah, Baby [08:57](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6970306036C5E43250332680631A6D7B53DADEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094554   (929455) от 18.01.2017
+
+Tiziana Ghiglioni - Sings Gaslini (1995) Soul Note[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mingus Memory [04:17]
+02.Forse Sei Tu? [03:09]
+03.Fellini Song [04:01]
+04.Canto alto [03:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B40F6E2099FAF9FECF1AC9C3A350E7B38F2ADFA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094552   (929394) от 18.01.2017
 
 Modern Jazz Quartet - Modern Jazz Archive (1951, 1952) 2CD, 2004, Membran Music[FLAC|Lossless|image + .cue] <Cool>
@@ -687,64 +745,6 @@ The Modern Jazz Quartet - For Ellington (1988) 2005, Atlantic[APE|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DE211E969E823337BD31244E122FA97267A7239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095157   (926278) от 20.01.2017
-
-Donald Byrd And 125th Street, N.Y.C. - Words, Sounds, Colours & Shapes (1982) 2007, Wounded Bird Records[FLAC|Lossless|image + .cue] <Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sexy Dancer [05:12]
- 02.Midnight [05:08]
- 03.So Much In Love [04:01]
- 04.High Energy [05:48](   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4195EC01180D13D9680208AAC9E6F562844C617F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987439   (926223) от 17.02.2016
-
-Herbie Hancock - Quartet (1981) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Well You Needn't [06:28]
- 02.'Round Midnight [06:41]
- 03.Clear Ways [05:03]
- 04.A Quick Sketch [16:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE893850B8F6543BF3E8C49BD7A83179735F4A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

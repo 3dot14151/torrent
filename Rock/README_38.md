@@ -1,3 +1,32 @@
+###  Публикация: 1143155   (631635) от 20.06.2017
+
+Eric Burdon & The Animals - Winds Of Change (1967) Remastered, 2013, Polydor, CD2: Stereo Album [MP3|320 Kbps] <Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631635.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Winds Of Change
+2. Poem By The Sea
+3. Paint It Black
+4. The Black Plague(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400B7CAA685E061A1A95A414551716FBCCD7DA45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144117   (631197) от 20.06.2017
 
 Rainbow (Ritchie Blackmore's Rainbow) - Since You Been Gone: The Essential Rainbow (2017) 3CD [MP3|320 Kbps] <Rock, Hard Rock>
@@ -725,35 +754,6 @@ Weird. - A Long Period Of Blindness (2015) [OGG|453-477 кб/с]<Psychedelic Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E877D4A397AA1701DDA79BCCB7A83253F9ED005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910387   (622116) от 20.06.2015
-
-Bill Wyman - Back To Basics (2015) [MP3|320 кб/с]<Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What & How & If & When & Why (03:38)
-02. I Lost My Ring (03:37)
-03. Love, Love, Love (03:41)
-04. Stuff (Can't Get Enough) (Back To Basics Version 2015) (04:05)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEFEBE3C2CBE924AFEBC4001D81A930812582D9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

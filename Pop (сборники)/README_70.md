@@ -1,3 +1,119 @@
+###  Публикация: 1043488   (572389) от 16.08.2016
+
+VA - World Top 100 DFM (2016) [MP3|128-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572389.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nick Jonas feat. Tove Lo - Close
+002. DJ Khaled feat. Drake - For Free
+003. Twenty One Pilots - Stressed Out
+004. James Bay - Let It Go(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426DB1E9950435BA0347E8B0BFE7D84137113435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151431   (572239) от 19.07.2017
+
+VA - 60 лучших песен на французском языке (2017) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alizee Jacotey - Moi... Lolita  4:23
+02.  Amel Bent - Ma philosophie  3:21
+03.  Charles Aznavour - La boheme  4:01
+04.  Charles Aznavour - Les deux guitares  3:47(   Читать дальше...   )Жанр: PopПродолжительность: 03:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:512BA7C0E9749D677AA9ADD349564B1F46193904
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554759   (571810) от 02.06.2022
+
+VA - Hit Music: лето (2022) от Мяу [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571810.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vlad Brisby - Cause I'm in Luv
+002. DNCE - Move
+003. Filatov & Karas feat. Лигалайз - Будущие Мамы 2.0
+004. Parov Stelar feat. Anduze - Lights Off(   Читать дальше...   )Жанр: PopПродолжительность: 15:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E0F72098ADEF64536A3C48ADE06CC4318DDC057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921739   (571647) от 27.07.2015
+
+VA - Хит топ 2015. Лирические баллады (2015) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571647.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Филипп Киркоров - Иллюзия
+2.Emin - Начистоту
+3.Анжелика Варум - Я всегда с тобой
+4.Стас Михайлов - Семь дорог(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A14181988DF59ECE5FBEEE2045C70E5A48650EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 362352   (571542) от 13.07.2011
 
 VA - Союз хитовый Русский (2011) [MP3|256 kbps]<Pop>
@@ -656,122 +772,6 @@ VA - German Top 100 Single Charts 09.07.2018 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A611F23AF55B9EA44BF75B91AC42101A5C20142D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234523   (565843) от 08.07.2018
-
-DJ KramniK - Collection (2018) [MP3|320 Kbps] <Italo-Disco, Spacesynth>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Love The Italo Disco (3:36)
-02. New Day (Pozitivchik 2) (5:38)
-03. The Paradise (Original Version) (9:33)
-04. Winter Voyage (Radio Version) (6:24)(   Читать дальше...   )Жанр: Italo-Disco, SpacesynthПродолжительность: 04:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8B66CF6DED67CDAA3A2EAFFFC1EC982B404FA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234698   (565821) от 08.07.2018
-
-VA - ЕвроХит Топ 40 Europa Plus 06.07.2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dynoro feat. Gigi D'Agostino - In My Mind 3:05
-02. Tim3bomb feat. Tim Schou - Magic 3:33
-03. MARUV & Boosin - Drunk Groove 3:47
-04. Tom Walker - Leave A Light On 3:06(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:21:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD446FFE59F90105C6A8403D680DE172BA3AC12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044354   (565511) от 20.08.2016
-
-VA - Жаркие Танцы 5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565511.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Olisha - Так Хочу
-002. Rihanna - Woo
-003. Prospektr - Окна
-004. Andeeno Damassy Feat. Jimmy Dub - Dime Tu(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F80FFB6AC220B814A0BE6353B6B6C463DA47DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304258   (564848) от 25.05.2019
-
-VA - Лучшие новинки Мая. Зайцев.нет, но есть MP3 (2019) (Релиз от BiSHkek iNT) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Александр Айвазов - Любишь или нет 3:10
-02. Storm DJs & Grishina - На ощупь (Back To USSR Version) 4:56
-03. Klingande feat. Jamie N Commons - By The River (Adam Trigger & Provi Remix) 4:35
-04. Юлия Коган - Танцы на столе 4:31(   Читать дальше...   )Жанр: PopПродолжительность: 04:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9314F3848FFCADBAF067B522086D869219D668C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

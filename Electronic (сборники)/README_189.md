@@ -1,3 +1,61 @@
+###  Публикация: 1447724   (237841) от 14.02.2021
+
+VA - Abstract Electronic: Experimental Synth Pack (2021) [MP3|320 Kbps] <Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237841.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загадочный и мистический альбом с довольно специфичным саундом. Такая музыка тяжело поддается объяснениям. Такая вязкая, настороженная и неоднородная масса, на границе между клубной электроникой и сложным экспериментальным синтвейвом. В голове представляется что-то космическое, запредельное и холодное. В общем, идеальный плейлист для новопришедших статичных серых (   Читать дальше...   )001. Rada - Extasis Primitivo
+002. Wxlter - Leviathan
+003. The Gravity Project - Purple Nightfall
+004. Magic Sword - Prophecy(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 08:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E5943B6931078C6A2AD50F98FE8F68D3A10935
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629699   (237840) от 27.04.2023
+
+VA - 60 minutes. Old School Dance Music vol.18 (mixed by Dj V) (2023) [MP3|320 Kbps] <Club House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-2Black - Waves of Luv (The Disco Boys Full Vocal Mix)
+02-Queen vs The Miami Project - Another One Bites The Dust (Cedric Gervais & Second Sun Club Mix)
+03-Eddie Thoneick feat. Berget Lewis - Deeper Love (Eddie Thoneick's Ruff Mix)
+04-Moby feat. Mylene Farmer - Slipping Away (Crier la Vie) (Axwell Remix)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive HouseПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BAB46BF19E638EA3CD6A2732A8746FF2D7FDB68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449109   (237698) от 21.02.2021
 
 VA - EDM Banger Tools (2021) [MP3|320 Kbps] <Techno, House, Electro, EDM>
@@ -687,70 +745,6 @@ VA - Erotic Taboo Tunes XXX Pleasures and Chillout (2015) [MP3|320 кб/с] <Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34ADD14D5B849B55F63E09B4A4E39A4F465F616F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583912   (227591) от 16.10.2022
-
-VA - Sensual Lounge Chillout Your Mind (2022) CD, Compilation [MP3|320 Kbps] <Downtempo, Relax, Chill Out, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fake & True - Seas Of Passion (05:04)
-02. Michael E - Mind Games (feat Ashley Slater, Fabio Testa – original mix) (04:48)
-03. Peter Pearson - Cool Of The Night (original mix) (06:39)
-04. Beamy - Summer Dreams (03:00)(   Читать дальше...   )Жанр: Downtempo, Relax, Chill Out, LoungeПродолжительность: 01:09:11 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AC7D4668C09F0FCA8236B7638631DAA7302C14C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586332   (227563) от 09.12.2012
-
-Various Artists - The Best Of Energy Trance (2012) [MP3|320 кб/с]<Hard Trance, Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Artificial Dreamer ft. Catherine  - It Was You (Elucidate Remix)
-02 - Dereck Recay  - to the stars (original mix)
-03 - Facade  - Lunar One (Classic Mix)
-04 - Infite  - Euphoria (TranzLift Remix)
-05 - Luna Orbit Project  - To Be My Love (Radio Edit)
-06 - Paul Trainer  - Comply Or Die (Original Mix)
-07 - Sensi  - Fannera Above Paris (Original Mix)
-08 - Sensi  - Matri (Original Mix)
-09 - Signum  - Addicted (Manuel Le Saux Remix)
-10 - Alex Barlett, Andy Guess.  - Universe Inside (Talla 2xlc remix)(   Читать дальше...   )Жанр: Hard Trance, Progressive TranceПродолжительность: 04:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:623BEC9FD61439EAA919237CEA15BCEF40654785
 ```
 
 https://mybot314.ru/tekegram_catalog/

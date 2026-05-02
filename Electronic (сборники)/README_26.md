@@ -1,3 +1,61 @@
+###  Публикация: 985378   (934084) от 12.02.2016
+
+VA - Deep Flover Dance (2016) [MP3|320 кб/с] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934084.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sanil Fenice - Before Dawn - Vocal Mix 06:13
+002. Matthias Freudmann - Metropolis 06:23
+003. Scot & Millfield - It's a Fine Day - Summer Fifteen Remix 05:31
+004. Matthias Freudmann - City Life 07:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:508D07C2239D489D29D5C70BC9622CD08C72EF65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093528   (934013) от 15.01.2017
+
+VA - Empire Records: Trance 2 (2017) [MP3|320 Kbps] <House, Electro House, Progressive House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bakun - Out Of Control (Phetros Remix)  6:01
+02.  Pirate Jams - Sweets From Heaven (Jolyon Petch's Late Night Mix)  5:06
+03.  Dainpeace - It's Not Too Late (Radio Edit)  2:42
+04.  Sam Feldt - What About The Love (Extended Mix)  4:14(   Читать дальше...   )Жанр: House, Electro House, Progressive House, Club, DanceПродолжительность: 01:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A8E7C752FEE6E9EDE07DA1E0979E1CD30EBB482
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093537   (933890) от 15.01.2017
 
 VA - Renegade Singles Reviews (Trance Pack 10-01) (2017) [MP3|320 Kbps] <Trance, Tech Trance, Melodic, Emotional, Uplifting, Vocal, Progressive>
@@ -685,64 +743,6 @@ VA - Record Super Chart 628 (2020) [MP3|320 Kbps] <Pop, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C13E3C42ECC0CE73EEA7772BA137D58FA5AA5751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094965   (927214) от 19.01.2017
-
-VA - The Prodigy - Best275z (1992 - 2015) [MP3|320 Kbps] <Electronic, Break beat>
-
->>След.
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Smack My Bitch Up 05:43
-02 Nasty 04:04
-03 Omen 03:37
-04 Their Law (feat. Pop Will Eat Itself) 06:41(   Читать дальше...   )Жанр: Electronic, Break beatПродолжительность: 04:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3596BD112A1405A1E4CE3947F12A984E2EDEC764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987634   (926244) от 17.02.2016
-
-VA - 100% Bigroom Vol. 1 (2016) [MP3|320 кб/с] <Progressive House, House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Braudt/Naza Brothers - C'mon Everybody! (feat Mr Shammi - original mix) 04:46
-02. Lights - Blade (original mix) 04:37
-03. Naza Brothers/Braudt - Bounce It! (feat Sharon - extended mix) 04:20
-04. Tim White - Take Me Over (feat Erica Gibson - South Blast! Bounce Over remix) 04:50(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 01:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50B15E9084F6535F05259D715028EA0C24F8840A
 ```
 
 https://mybot314.ru/tekegram_catalog/

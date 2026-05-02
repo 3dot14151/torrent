@@ -1,3 +1,32 @@
+###  Публикация: 1612034   (1040635) от 14.02.2023
+
+Dzen (Андрей Нагорный) - Глаза Анютины (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Хинди [00:03:09]
+02. Элемент Криминала [00:03:44]
+03. Война и Мир [00:04:02]
+04. Аляска [00:03:44](   Читать дальше...   )Жанр: RockПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EFCBF5637976109B4AB842582357EB60387231A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1612042   (1040632) от 14.02.2023
 
 Инсайт - 1225 (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -714,35 +743,6 @@ Grima - Rotten Garden (2021) [FLAC|Lossless|Web-DL|tracks] <Black Metal, Atmosph
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36025E6D4DD97144F86E0238EFB7D4CE5AEBC54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442007   (1037180) от 23.01.2021
-
-Babooshka - Плюнь Дьяволу в лицо! (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крепостное право [00:05:17]
-02. Православный ЕГЭ [00:03:59]
-03. Бьёт - значит любит [00:04:12]
-04. Pro Добро [00:03:50](   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B3E78F7BEF172772EECF922250740F8FC3F4997
 ```
 
 https://mybot314.ru/tekegram_catalog/

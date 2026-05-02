@@ -1,3 +1,29 @@
+###  Публикация: 928845   (521367) от 17.08.2015
+
+Проекты - VideoHive - Music Distortion Slideshow - 3946027 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1FCDE867D4F6935035840D2B1B52AB3E2CBAAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314161   (521018) от 12.07.2019
 
 Проекты - VideoHive - Quotes Photo Slideshow - 24069780 [AEP]
@@ -646,32 +672,6 @@ VideoHive - Travel Now - 6664599 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFFFDD68FB4687B8F566F35AA6BB880351E53305
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931612   (511751) от 26.08.2015
-
-Проекты - Pond5 - Dynamic Video Opener [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11B693F62ECD87ED0B57C1BE935983C6BE94CB3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

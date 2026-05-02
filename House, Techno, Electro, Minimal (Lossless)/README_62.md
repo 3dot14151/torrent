@@ -1,3 +1,32 @@
+###  Публикация: 1683881   (128147) от 13.12.2023
+
+VA - Buddha Luxury 2024 (Compiled by Marga Sol) (2023) [FLAC|Lossless|WEB-DL|tracks] <Organic House, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Hiska - Shike (5:03)
+02. Coskun Umut Oruc - Istanbulounge (3:48)
+03. Marga Sol - Valley of Lust (4:35)
+04. Martin Hiska - When It Drops (4:59)(   Читать дальше...   )Жанр: Organic House, DowntempoПродолжительность: 01:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCB475DFDC6CCC751E5C94712C92CA0BE733095B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684493   (127812) от 15.12.2023
 
 VA - Spreepark (Collected by Oliver Koletzki) - 2023 [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Progressive>
@@ -702,35 +731,6 @@ Rinzen - Bend to the Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Tech Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E21058218FC5045DBEBD831FB678D511554BE75C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717453   (111148) от 20.04.2024
-
-Soul Button - Dual Realms Of Sound (2023) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Button - Incendiary
-02. Soul Button - Dalliance
-03. Soul Button - Secret Sense
-04. Soul Button - Qabila(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01;14:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42197CDC105F34E7A609E0C08D4E50B8D9943E39
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1701930   (115995) от 23.02.2024
+
+VA - Sax For Lovers (1996) Legacy [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ben Webster - My Romance (4:16)
+02. Gerry Mulligan - My Funny Valentine (4:08)
+03. Stan Getz - Misty (5:27)
+04. Dexter Gordon - Laura (7:40)(   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Hard BopПродолжительность: 00:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:500831FA651A4FDD229A233F16A97C5A4AFD76CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701933   (115976) от 23.02.2024
+
+Jesse Davis - Horn Of Passion (1991) Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C.P. Time [4:00]
+02. Here's That Rainy Day [8:02]
+03. Star Dust [8:38]
+04. Stop & Go [4:57](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2934A9BB9BF89620E832EF33279664518767868F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701927   (115974) от 23.02.2024
 
 Dick Haymes - You'll Never Know: The Best Of Dick Haymes (1943 - 1950) 1990, MCA Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
@@ -687,64 +745,6 @@ Marian McPartland & Friends - 85 Candles: Live In New York (2005) 2CD, Concord J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B7E1498D6505C6560AB9B3F718682C753B6F93C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703745   (114802) от 01.03.2024
-
-Rhonda Burchmore - Cry Me a River: The World Of Julie London (2013) ABC Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let There Be Love [2:38]
-02. Blue Moon [2:31]
-03. What a Difference a Day Makes [2:29]
-04. You'd Be So Nice to Come Home To [2:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3A20D02D524DF1EF74709E22C3E2D7C054B06B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703743   (114787) от 01.03.2024
-
-Sahib Shihab - Sentiments (1965, 1971) 2005, Storyville [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ma'nee [7:44]
-02. The Call [7:57]
-03. Rue de la Harpe [5:03]
-04. Sentiments [5:19](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C663069DD7D34BADC914A5CC4F42B091E4AE2A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

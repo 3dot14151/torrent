@@ -1,3 +1,32 @@
+###  Публикация: 1546336   (604288) от 25.04.2022
+
+Saber Tiger - Paragraph V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy, Power, Progressive Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Саблезубый тигр - японская Heavy Metal группа из Саппоро основана в 1981 году гитаристом Акихито Киношита.01. Revenged On You 06:25
+02. Believe In Yourself 04:52
+03. Motive Of The Lie 05:26
+04. Kutsujyoku 04:33(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 01:10:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BCC97D99151BA07BC70232E8D352AC7DF5B4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148194   (604213) от 05.07.2017
 
 One Ok Rock - Ambitions (2017) English Version [FLAC|Lossless|tracks] <Alternative Rock, Power Pop>
@@ -720,35 +749,6 @@ Infinity of Sound - Girls on the Moon (2016) [MP3|320 Kbps] <K-Pop, Traditional,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2475CF6D2016A4BF8DD76017E8E45EFDE81DE574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875270   (546830) от 24.06.2019
-
-MISTY RAIN — 10 альбомов (2010-2017) Touhou Vocal /Doujin/ [FLAC|Lossless|tracks] <J-Pop, J-Rock>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546830.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2016.05.08 (MRCD-0011) 春宵パラレルライン (Reitaisai 13)
-2016.10.09 (MRCD-0012) 暁月クラウン (Kouroumu 12)
-2017.05.07 (MRCD-0013) idealism (Reitaisai 14)Тип издания: DoujinЖанр: J-Pop, J-RockФормат: Touhou VocalПродолжительность: 00:05:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EDC5DFF3E5CF8573DD5FF7B9911B7B1B9BADC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

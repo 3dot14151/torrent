@@ -1,3 +1,235 @@
+###  Публикация: 1788342   (68537) от 30.03.2025
+
+Meghan Trainor - Title (2015) 10th Anniversary Edition, 2025, Epic Records [FLAC|Lossless|WEB-DL|tracks] <Europop, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68537.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Best Part (Interlude) [00:00:24]
+02. All About That Bass [00:03:07]
+03. Dear Future Husband [00:03:04]
+04. Close Your Eyes [00:03:40](   Читать дальше...   )Жанр: Europop, Funk, SoulПродолжительность: 01:27:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:009685962FE5CA7BBF572F24BF32E7323C83910E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791278   (67832) от 13.04.2025
+
+Mark Ambor - Rockwood (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rockwood [1:01]
+02 - Good To Be [2:28]
+03 - Academy Street [2:51]
+04 - Belong Together [2:29](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497E802897E487A5C3603D85544A8FAA3D92FBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793318   (67509) от 24.04.2025
+
+The Fleetwoods - Mr. Blue (1959) Expanded Edition, 2025, CAPITOL CATALOG MKT (C92)[FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confidential [00:02:21]
+02. The Three Caballeros [00:02:23]
+03. Raindrops, Teardrops [00:02:32]
+04. You Mean Everything To Me [00:02:32](   Читать дальше...   )Жанр: PopПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57308115841D5E6395C71269A4F7ACB1E861938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794173   (67330) от 28.04.2025
+
+VA - Dance Classics - Pop Edition Vol. 1-3 (2009-2010) [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - My Name Is Not Susan (Extended) (6:20)
+02. Terence Trent D'Arby - Dance Little Sister (Shep Pettibone Mix) (8:40)
+03. Robert Palmer - You Are In My System (Extended) (6:02)
+04. Dan Hartman - We Are The Young (Extended) (6:56)(   Читать дальше...   )Жанр: Electronic, Rock, Pop, DanceПродолжительность: ~06:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFC9B585811CD55D223B38E01C3DA75278692DD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794427   (67256) от 29.04.2025
+
+Michael Bublé - Crazy Love (2009) [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry Me a River    [0:04:14.56]
+02. All of Me    [0:03:07.64]
+03. Georgia on My Mind    [0:03:08.17]
+04. Crazy Love    [0:03:31.22](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCA379758BA7C64DB79BA58FF0A2584CE1954BA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1794428   (67234) от 29.04.2025
+
+KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Other Side of the World    [0:03:34.42]
+02. Another Place to Fall    [0:04:11.33]
+03. Under the Weather    [0:03:36.42]
+04. Black Horse and the Cherry Tree    [0:02:52.28](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C20FC898F7142D0BA855F8124251631AF1DD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797520   (66772) от 17.05.2025
+
+Barry Manilow - Ultimate Manilow (2002) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Pop, Vocal, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandy    [0:03:17.55]
+02. It’s a Miracle    [0:03:51.37]
+03. Could It Be Magic    [0:06:47.55]
+04. I Write the Songs    [0:03:50.30](   Читать дальше...   )Жанр: Pop, Vocal, BalladПродолжительность: 01:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C05F0DF27A1CAC4C9CCF4874BCF02D228A5379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797550   (66702) от 18.05.2025
+
+NSYNC - Celebrity (2001) CD, Album, Enhanced [FLAC|Lossless|tracks + .cue] <Pop, Funk / Soul, Contemporary R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pop    [0:03:58.32]
+02. Celebrity    [0:03:18.55]
+03. The Game Is Over    [0:03:27.40]
+04. Girlfriend    [0:04:14.68](   Читать дальше...   )Жанр: Pop, Funk / Soul, Contemporary R&BПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FBC3C5911E885D9CC7B5512FC2F810674FF376A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798552   (66635) от 22.05.2025
 
 MIKA - The Boy Who Knew Too Much (2009) CD, Album [FLAC|Lossless|tracks + .cue] <Electronic, Rock, Pop>
@@ -513,238 +745,6 @@ Sirena (ex-Sister Siren) - Innocent Killah (2011) [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E02074956A329893BC99A4216BB0068846797877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807981   (65073) от 22.07.2025
-
-Silent Circle - № 1 (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65073.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch In The Night (5:20)
-02. Sib Dab Dua (3:07)
-03. Dreams (4:02)
-04. Hide Away - Man Is Comin'! (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:142F90C48E32112F64262B840725AF366E0DDAE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807991   (65072) от 22.07.2025
-
-Madonna - Madonna (1983) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucky Star (5:38)
-02. Borderline (5:22)
-03. Burning Up (3:46)
-04. I Know It (3:47)(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9958801FD918C28A16F0611AB65713AB4FE3A042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807988   (65060) от 22.07.2025
-
-Black - Wonderful Life (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65060.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful Life (04:48)
-02. Everything's Coming Up Roses (04:06)
-03. Sometimes For The Asking (04:09)
-04. Finder (04:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC67BE73C321F822597C2BB720252FD735A8511D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807989   (65045) от 22.07.2025
-
-Bryan Ferry - Boys And Girls (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensation (5:05)
-02. Slave To Love (4:27)
-03. Don't Stop The Dance (4:19)
-04. A Waste Land (1:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E35676629DEB9CF7D590DC8B295CF08FF5063E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807983   (65034) от 22.07.2025
-
-Double - Blue (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woman of the World (3:55)
-02. I Know a Place (3:40)
-03. The Captain of Her Heart (4:35)
-04. Your Prayer Takes Me Off (6:17)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68F447531D3AA88EC9D48779DB45423A37FE1278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807985   (65030) от 22.07.2025
-
-Double - Dou3le (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire In Disguise (05:27)
-02. Gliding (05:04)
-03. Lakes In The Desert (04:43)
-04. Circles (05:15)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E49459C9F86AA009C36602FFD67DE53C65A8CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808360   (65010) от 24.07.2025
-
-Selena Gomez & Benny Blanco - I Said I Love You First... And You Said It Back (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65010.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Selena Gomez, Benny Blanco – I said I Love You First (0:44)
-02. Selena Gomez, Benny Blanco – Younger And Hotter Than Me (3:09)
-03. Selena Gomez, Benny Blanco, Gracie Abrams – Call Me When You Break Up (2:09)
-04. Selena Gomez, Benny Blanco, The Marías – Ojos Tristes (3:21)(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCA44453D06FAFB0A5B21DF3061F2B25566FEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809022   (64772) от 28.07.2025
-
-Ten Sharp - Under The Water-Line (1991) 1st Holland Press [APE|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You (4:34)
-02. Ain't My Beating Heart (4:15)
-03. When The Spirit Slips Away (4:44)
-04. Ray (4:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35CB3A50B9DCB45FA1E91302B250FE96E3C49D32
 ```
 
 https://mybot314.ru/tekegram_catalog/

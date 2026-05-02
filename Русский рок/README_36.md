@@ -1,3 +1,119 @@
+###  Публикация: 1216602   (749205) от 31.03.2018
+
+НАИВ - Make Naive Great Again (2018) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Предчувствие
+02. Сонет #7
+03. Трамп! Гоу эвей!
+04. Вовочка(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36CF2C9A101EFE2DFD489D68B12631EA239FA96D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019943   (748186) от 24.05.2016
+
+Catharsis - Антология. Лучшее (2016) [MP3|320 кб/с] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748186.jpg" />
+</div>
+
+
+###  Подробнее
+
+"25 композиций, прошедших ремастеринг в рамках подготовки проекта 'Антология'. Мы отобрали их с учетом нашего видения и недавнего народного голосования. Конечно, кто-то не найдет в этом списке какую-нибудь свою любимую композицию, но мы постарались соблюсти баланс, чтобы порадовать большинство."01. Воин света (Ремастированная версия)
+02. Сердце мира (Ремастированная версия)
+03. Имаго (Ремастированная версия)
+04. Дальше - тишина... (Ремастированная версия)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:48:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2205D0C21B854699FBB431678208B3A04E14E495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020050   (746896) от 25.05.2016
+
+Katalepsy - Gravenous Hour (2016) [MP3|320 кб/с] <Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Dark Of Stars (01:21)
+02. Blinded Sultan (05:12)
+03. To The Lords Of Nihil (03:49)
+04. Critical Black Mass (04:27)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:40:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:082B66EA5302F1883056AE377D4DC97C83AE21A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396551   (746656) от 15.07.2020
+
+Браво - The Best Of Rock 'n' Roll (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746656.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Открытие
+2. Жёлтые ботинки
+3. Космический рок-н-ролл
+4. Капитан(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03EFD464346D95CB231F84DC267F42D8F2D4BF41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282431   (745318) от 12.02.2019
 
 Без Билета - На кассете (2019) [MP3|320 Kbps] <Rock>
@@ -630,122 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0DED089C4EA6F57A1FE6AB621EBC03B575181E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527854   (735865) от 30.01.2022
-
-Stay Away - Punk Rock Matters (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735865.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Фонарики
-2. Города
-3. Это голос Мишки
-4. Идите сразу жрать(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD2BDB3EEA8ED1F90364E5DDF6B72A0391E0151E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528297   (734966) от 01.02.2022
-
-Пионерлагерь Пыльная Радуга - Тот, кому не нужно счастье (2022) [MP3|320 Kbps] <Grunge, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Отходняк [00:04:32]
-02 - Паром [00:03:20]
-03 - Ветер, который дует с полей [00:03:37]
-04 - Твой-мой [00:03:23](   Читать дальше...   )Жанр: Grunge, Alternative RockПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C89A990E34AADB4B070B379AA9854CD028BDDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398881   (734798) от 28.07.2020
-
-AYOKI - Дети Света (2019) [MP3|320 kbps] <Alternative Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я всё разделю с тобой (04:09)
-02. Дети света (04:02)
-03. Выше всех (04:22)
-04. Черновик (03:25)(   Читать дальше...   )Жанр: Alternative Metal, Female VocalПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C1E24049278967BD8DB65D84FD840AA99E0E8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398817   (734762) от 28.07.2020
-
-Ауткаст - Ультра (2020) Deluxe Edition (2CD) [MP3|320 Kbps] <Metalcore, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не забывай (Инструментал)
-02. Один из нас (Инструментал)
-03. Невесомость (Инструментал)
-04. Всё в твоих руках (Инструментал)(   Читать дальше...   )Жанр: Metalcore, Modern MetalПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3C8B92D897D51AEDDFC940B41662B951CDC1353
 ```
 
 https://mybot314.ru/tekegram_catalog/

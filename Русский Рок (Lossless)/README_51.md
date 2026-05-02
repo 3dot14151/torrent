@@ -1,3 +1,32 @@
+###  Публикация: 1658548   (191000) от 09.09.2023
+
+60mm - Тринадцать + (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Два часа [00:03:06]
+02. Буря [00:03:13]
+03. Мы готовы [00:03:36]
+04. Мыслями смелой [00:03:22](   Читать дальше...   )Жанр: Alt.Rock, Female VocalsПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97ABE268D0D4D2B24410BB769C80A4821D809D7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658762   (190985) от 09.09.2023
 
 Ермак! - Манкурт (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock>
@@ -716,32 +745,6 @@ Repus Tuto Matos - МЫ(НЕ)МЫ (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Indus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EDD7BE102BFCA7601CE2D68755FEA9F85DFFCCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591594   (186878) от 19.11.2022
-
-Слот - Зло (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слот - Зло (Single)Жанр: AlternativeПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560CA3CF4E6DF09051B0DC6D6F5254F9F825E588
 ```
 
 https://mybot314.ru/tekegram_catalog/

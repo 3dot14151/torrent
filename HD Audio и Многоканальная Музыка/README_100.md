@@ -1,3 +1,177 @@
+###  Публикация: 1702366   (115808) от 24.02.2024
+
+Takida - The agony flame (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Third strike (3:07)
+02. The other side (4:11)
+03. Sacred spell (3:59)
+04. In time (4:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED85C32935F94B718D94EB21856F3F62D373428C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702299   (115806) от 24.02.2024
+
+Mike Zito - Life Is Hard (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely Man (3:51)
+02. Life Is Hard (4:34)
+03. Have A Talk With God (4:34)
+04. Forever My Love (6:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D14AC44D3A556E9861ACDBB71D3A6FC4ECBF09FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702113   (115804) от 24.02.2024
+
+Suede - Bloodsports (2013) Deluxe Edition, 2024, Edsel [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Pop Rock, Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barriers [00:03:42]
+02. Snowblind [00:04:03]
+03. It Starts and Ends with You [00:03:51]
+04. Sabotage [00:03:45](   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, Indie PopПродолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F5B5506082505408D4F2774192EB955F6C11DBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702336   (115802) от 24.02.2024
+
+Dark Fortress - Studio Albums (8 releases) (2001-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Fortress — немецкая блэк-метал группа из Ландсхута, образованная в 1994 году. Распались после финального тура в мае 2023 года.2001 - Tales from Eternal Dusk
+2003 - Profane Genocidal Creations
+2004 - Stab Wounds
+2006 - SeanceЖанр: Progressive/Melodic Black MetalПродолжительность: 09:21:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DC6FED9E0C0017D71079E72D05B507781E0DE4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702288   (115800) от 24.02.2024
+
+MGMT - Loss of Life (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie, Psychedelic Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Loss Of Life (part 2)
+02 – Mother Nature
+03 – Dancing In Babylon
+04 – People In The Streets(   Читать дальше...   )Жанр: Indie, Psychedelic PopПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D5CC2910B70AFAC7868A8925DB63EB73196A0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702286   (115799) от 24.02.2024
+
+Cynic - Uroboric Forms - The Complete Demo Recordings (2017) Compilation [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Progressive Death Metal, Fusion, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115799.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 - Uroboric Forms (Demo 1991)
+A2 - The Eagle Nature (Demo 1991)
+A3 - Pleading For Preservation (Demo 1991)
+A4 - Lifeless Irony (Demo 1990)(   Читать дальше...   )Жанр: Thrash Metal, Progressive Death Metal, Fusion, Progressive RockПродолжительность: 00:56:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30F0149CFF692D5C6EBBAE46EE101C42F615E2BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702539   (115716) от 25.02.2024
 
 Myriam Hernandez (Myriam Hernández) - Sinergia (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks + .cue] <Pop, Latin>
@@ -568,180 +742,6 @@ Restaurant Music, Calming Jazz Relax Academy - Jazz for Dinner and Wine (2024) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:839326F8DE59AC8B5C336CAD07C987436520D918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703278   (115217) от 28.02.2024
-
-Viktoria Mullova, Tchaikovsky / Sibelius, Boston Symphony Orchestra, Seiji Ozawa - Violin Concertos • Violinkonzerte (1985) SACD, 2022, Decca Classics [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classica ...
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115217.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tchaikovsky - Violin Concerto in D Major, Op. 35, TH 59
-01. I. Allegro moderato (18:13)
-02. II. Canzonetta. Andante (6:03)
-03. II. Finale. Allegro vivacissimo (9:54)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEE03D34F0F60C29B49CC3136D1D0F6D55D3AEC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703178   (115170) от 28.02.2024
-
-Puddle of Mudd - Studio Albums (8 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Hard Rock, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Puddle of Mudd — американская рок-группа, сформированная в Канзас-Сити, штат Миссури в 1992 году.1994 - Stuck (EP)
-2002 - Come Clean
-2003 - Life On Display
-2007 - FamousЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 06:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E656F305261954EE47E70024E8270AEC3DC6048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703111   (115160) от 28.02.2024
-
-Benny Andersson - Piano (2017) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115160.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.I Let The Music Speak
-2.You And I
-3.Aldrig
-4.Thank You For The Music(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1933138BCFA8530AB7FA82BD879F6B4FD7C27EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703344   (115151) от 28.02.2024
-
-Ace Frehley - 10,000 Volts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 10,000 Volts [3:25]
-02 - Walkin’ on the Moon [3:45]
-03 - Cosmic Heart [3:54]
-04 - Cherry Medicine [3:40](   Читать дальше...   )Жанр: Hard Rock, RockПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6C0AEF753DE745309D3794208398884605637C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703238   (115066) от 29.02.2024
-
-2 Unlimited - No Limits (1993) [FLAC 24/192|Lossless|tracks] <Eurodance, Euro House, Techno>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 No Limit
-2 Tribal Dance
-3 Mysterious
-4 Where Are You Now(   Читать дальше...   )Жанр: Eurodance, Euro House, TechnoПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBC3B58AD6E6DB9FE834D19748206D60A2985E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703061   (115057) от 29.02.2024
-
-VA - Улетай, туча (1980) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115057.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сторона
-01 - Олимпиада-80 (6.23) Д. Тухманов — Р. Рождественский
-Тынис Мяги
-02 - Крестики-Нолики (2.38) В. Баснер — М. Матусовский(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE8F59E82977F9DAFDAD4667A396FE78773272E
 ```
 
 https://mybot314.ru/tekegram_catalog/

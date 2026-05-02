@@ -1,3 +1,119 @@
+###  Публикация: 1737048   (106545) от 16.07.2024
+
+Bluesnake - New Chapter (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Food for the Soul (3:31)
+02. Silence is Calling (3:30)
+03. Nighttime (4:48)
+04. Was it You? (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E11CC1696F1B6D9E9D68970C597BE617CE8A9A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737044   (106544) от 16.07.2024
+
+Anthony Q - Rebirth of Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Full of Dat Oil (2:58)
+02. Get in (2:36)
+03. Sound (3:09)
+04. Hard on these hoes (3:14)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E008E0D4EC2F8836D13D10A202E073DADB274915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737060   (106543) от 16.07.2024
+
+Dennis Jones - About Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Condition Blue (4:07)
+02. Don't Stop (3:45)
+03. You're Killin' Me (3:48)
+04. Mother Earth (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10655E877CA5F70E4990ECF3CDBDFFE526AA6A6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737061   (106541) от 16.07.2024
+
+Diana Braithwaite & Chris Whiteley - Forever Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoodoo Man Blues (3:30)
+02. You're the Boss (2:48)
+03. Mean Old Frisco (5:21)
+04. The Moon Is Rising (5:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EA112D54F251B078B1D6CDF1E22EEB7DB01D60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737053   (106539) от 16.07.2024
 
 Catfish John Tisdell - Ain't That the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Nick Charles - Further Down the Line (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:386791D29914F95FB445611B2927C3DA95CF3E2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738856   (106223) от 25.07.2024
-
-Billy Barnett Band - Hey It's Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On & on & On (3:32)
-02. Adalee (3:06)
-03. Standing in the Rain (3:04)
-04. Can't Last a Day (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3802CB92139E2C10C8C5B58288221319418F1615
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738878   (106221) от 25.07.2024
-
-The Cosmic Trip Advisors - One for the road - Make it a double (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk In The Crowd (3:54)
-02. I'll Take Care Of You (5:12)
-03. Food For My Soul (4:08)
-04. Balintore (5:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7681B38537BCD4023DD0A323C5FB0EAD25CF294F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738855   (106205) от 25.07.2024
-
-Bill Nadeau - Mutts and Mongrels (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can Live Without (Your Love) (4:06)
-02. I Can't Find A Reason (4:21)
-03. C'est La Vie (3:16)
-04. When You Fall In Love (5:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD42B6B58DC3E85406D117AD5A4855E57A341D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738863   (106203) от 25.07.2024
-
-Rodrigo Belloni - Like a Train (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tears Like a River (5:55)
-02. I Learned Throughout the Years (4:33)
-03. You Are the Reason (3:55)
-04. Travelin' Band (3:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:26:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F780E4521F78FD4915E7FD88BB0ECD078BEAC6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

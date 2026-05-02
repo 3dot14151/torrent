@@ -1,3 +1,206 @@
+###  Публикация: 1700804   (115503) от 26.02.2024
+
+Meldis - Арфография (2007) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wherever he goes
+02. Rambe's to Cashel/Planxty Captain O'Kane
+03. Cruel Sister
+04. Lorient(   Читать дальше...   )Жанр: Folk, Celtic HarpПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4A401247DCA26E78F08EA43C3F2EB9B8813E7EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702517   (115011) от 29.02.2024
+
+VA - The Orient Collective: Mithras (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sylva Drums & Tibetania - Virupaksha Temple (Original Mix) (7:29)
+02. Tadej Jaki & Tibetania - Ksenos (Original Mix) (6:56)
+03. Behind The Green Door & Tibetania - Wizer (Original Mix) (8:00)
+04. Mikhail Catan & Tibetania - Delirium (Diego Galloso & Noam Garcia Remix) (6:38)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7241AF6B86479836959643551AFC677CB17064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703064   (114849) от 01.03.2024
+
+VA - The Orient Collective: Mystic Dunes (2023) FLAC Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Nigora (5:58)
+02. Juantxo Munoz - Tibet (5:10)
+03. DaDa Sound Project - Sevemedim (Downtempo Mix) (5:24)
+04. DaDa Sound Project - Sevemedim (Dawa Su Beat Mix) (5:20)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:20:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE747DC8E5C609051D8FE870842FEB46A98E18A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703088   (114831) от 01.03.2024
+
+VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darles Flow, José Sierra & Tibetania - Sahra (6:06)
+02. Project Blue Sun & Tibetania - Desert Girl (Dacosta Remix) (5:46)
+03. Tibetania & Hansonic - Streets of Khartoum (6:40)
+04. The Mystic & Tibetania - Johera (6:45)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8BAC9B36BD1963844A7820922EB504E79AEAE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704225   (114180) от 05.03.2024
+
+Syntheticsax - Silhouettes (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114180.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Silhouettes
+2.Silhouettes (Romantic Version)
+3.Silhouettes (Extended Mix No Sax)
+4.Silhouettes (Backing Track No Sax)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:31:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90888D30DB669067EA4A6D59073B1DFAECBD9A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705039   (113915) от 08.03.2024
+
+Shamanic Chants - Forest Whispers Shamanic Journey (2024) [MP3|320 Kbps] <Native American, New Age, Electro>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Horse [02:12]
+02. Secret Tribe [04:14]
+03. The Awakening [04:40]
+04. Inner Peace [03:04](   Читать дальше...   )Жанр: Native American, New Age, ElectroПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:780E188EAAE5794922FE985649702E45A644791A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706699   (113294) от 17.03.2024
+
+Johnny Whitehorse - Riders of the Healing Road (2009) [FLAC|Lossless|tracks + .cue] <Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ceremony Begins
+02. Blood Medicine
+03. Saint Sara
+04. Moving Chi(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:52:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24918B763C369A44FB5D03D5C4F93CAFCD4B776F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706950   (113192) от 19.03.2024
 
 Лёдъ - Ни чужих, ни своих (2024) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Neofolk>
@@ -537,206 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5215F97D984B6666B25155E10D975A26A5377A8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725452   (109008) от 24.05.2024
-
-VA - The Orient Collective: Golden Sand (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indiano & Tibetania - Svadhistana (Original Mix) (8:21)
-02. Noam Garcia & Diego Galloso & Tibetania - Marena (Original Mix) (7:51)
-03. Michael Simon & Tibetania - Hypnosis (Original Mix) (6:25)
-04. Tibetania & Setrian - Condor (Original Mix) (4:48)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93C3B433B52B9E44F5E6365A3423626D087E1D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725574   (108959) от 25.05.2024
-
-Евгений Михальченко - Евгеника. Авторский проект Евгения Михальченко (2012-2018) [MP3|128-320 Kbps] <Подкаст>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Радиопередача о небанальной музыке "Евгеника" регулярно рассказывает об интересных музыкантах. Нет, здесь нет никакого нацизма, расизма и человеконенавистничества. Что же такое авторский музыкальный проект "Евгеника"? Давайте-ка немного перекроим определение из Википедии и получим нужный ответ. "Евгеника" - проект о селекции применительно (   Читать дальше...   )Жанр: ПодкастПродолжительность: 91:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83159ECC59AFA6531EA1109BACC72FF3BAEC7D96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725978   (108875) от 26.05.2024
-
-VA - The Orient Collective: Red Carpet (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johny - Vasudevaya (5:38)
-02. Juantxo Munoz - Dios Del Agua (7:03)
-03. Tibetania - Tripodon (5:20)
-04. Marga Sol - Hidden Tribes (Ali Termos Remix) (5:55)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0784070B69AEA5FAC2865C87AF9103FC45E15884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726312   (108578) от 01.06.2024
-
-Werner Ahrens - Horst Bosing - Crystal Spheres (2006) [WavPack|Lossless|image + .cue] <Wellness / Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chin Begin - Essania
- 02. Crystal And Metal Part 1
- 03. Crystal And Metal Part 2
- 04. Crystal And Metal Part 3(   Читать дальше...   )Жанр: Wellness / MeditationПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3560FC10E55D2933E2C6D20397F76B22ADE8D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727474   (108532) от 02.06.2024
-
-Stefano Maggio & Alessandro Giordani - Miss Erotica (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jewellery (2:47)
-02. Poetica Erotica (3:17)
-03. Sexagesimal (2:56)
-04. Vibrating (4:14)(   Читать дальше...   )Жанр: Instrumental Pop, Easy ListeningПродолжительность: 00:51:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53709FD4EB1E424477D56B1430CFC56A96AA7930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733148   (107358) от 28.06.2024
-
-Иванушки International - Тур с Иванушками (2024) [MP3|320 Kbps] <OST, Pop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107358.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кукла
-2. Поверь, мне тоже очень жаль
-3. Вселенная
-4. Миллионы огней(   Читать дальше...   )Жанр: OST, PopПродолжительность: 01:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B78F4AFB36957B6FCF01FD5BC03386E949DFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735557   (106816) от 10.07.2024
-
-Марина Девятова - 50 лучших песен (2024) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Соловушка [00:02:32]
-02 - Реченька-речушка [00:03:42]
-03 - Ах, Мамочка [00:03:17]
-04 - Зорька алая [00:02:55](   Читать дальше...   )Жанр: FolkПродолжительность: 02:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:443E2C3FA6975136EEF46681F2A77AA9DACF9C71
 ```
 
 https://mybot314.ru/tekegram_catalog/

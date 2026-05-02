@@ -1,3 +1,61 @@
+###  Публикация: 802975   (624959) от 07.07.2014
+
+VA - Lounge At The Seashore 15 (2014) [MP3|320 кб/с]<Lounge, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624959.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fly Project - En Camargue
+002. Sannan - Kataton
+003. Mo'jardo - Fly Away
+004. Le Griser - If You Are(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0237EE36A93FD40D8FE452467D7B8A517F05B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144864   (624893) от 23.06.2017
+
+VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House & Trance от LORDEGRAF Vol.10 (2017) [MP3|320 Kbps] <Electro, Deep, Techno House, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624893.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Imagine Dragons - Thunder  3:08
+002.  Norma - Oblivion (Original Mix)  6:42
+003.  DJ Nil & Anthony El Mejor feat. Mischa - Closer (MBNN Remix)  4:25
+004.  Kate Ryan - Voyage (George Airbullet Remix)  4:29(   Читать дальше...   )Жанр: Electro, Deep, Techno House, TranceПродолжительность: 08:28:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:509491817133ABE9A513E6CAB84E317A24EB37E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035726   (624728) от 18.07.2016
 
 VA - Best Vocal Around Energy (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -690,64 +748,6 @@ VA - Vocal Drum & Bass Temptation Vol 2 (2015) [MP3|320 кб/с]<Drum & Bass>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C658E6170D4D06073F61067CEACA94686DE06B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910776   (620360) от 21.06.2015
-
-VA - Extra House (episode 3) (2015) [MP3|320 кб/с]<House, Club House, Deep House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moby ft. Damien Jurado - Almost Home  (Sebastien 2015 Radio Edit) (03:35)
-02. Exoplanet - Crystal Garden (Mindaugas Jak Remix) (08:39)
-03. Frosun - Endless Road (Original Mix) (07:22)
-04. Julian Dep - Facing The Abyss (Rick Pier O'Neil Remix) (07:07)(   Читать дальше...   )Жанр: House, Club House, Deep House, DanceПродолжительность: 02:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0388D7406C7C2E28C4DD80713D5A51A92950B1CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145635   (619815) от 26.06.2017
-
-VA - Empire Records - Trap (2017) [MP3|320 Kbps] <Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis The Child feat. Ashe – World On Fire
-02. Dennis Kruissen – Falling in Love (De Hofnar Remix)
-03. Kendl – Drive Slow (Original Mix)
-04. Martin Garrix, Bebe Rexha – In The Name Of Love (Original Mix)(   Читать дальше...   )Жанр: TrapПродолжительность: 01:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0407A64DA52A9D4B4542F606B8E6B97961AF9230
 ```
 
 https://mybot314.ru/tekegram_catalog/

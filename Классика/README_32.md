@@ -1,3 +1,32 @@
+###  Публикация: 941736   (457646) от 29.09.2015
+
+Bach, Scarlatti, Mozart - Piano works (Vladimir Horowitz) (2003) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Baroque Period, Sonata, Classical Period, Toccata>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457646.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toccatas, transcriptions (2) for piano in D minor & C major (BWV 564/565; BBGA 7/3), KiV B29
+01. Preludio (06:37)
+02. Adagio (05:19)
+03. Fuga (05:09)Жанр: Classical, Chamber Music, Recitals, Baroque Period, Sonata, Classical Period, ToccataПродолжительность: 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01245AF71B44419353AC1C64E620388C2A55975A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568624   (457445) от 10.08.2022
 
 Nils Frahm - Old Friends New Friends (2021) 2xCD [FLAC|Lossless|tracks + .cue] <Neo-Classical, Modern Classical, Contemporary>
@@ -714,41 +743,6 @@ Johann Strauss - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classica
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:244A8D46385D56C728F856C6D29F03C743B2CF9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 554609   (436304) от 01.10.2012
-
-Johann Sebastian Bach-Violin Double Concerto (BWV 1041-43, 1056): English Chamber Orchestra violin Pinchas Zukerman (1717-1726)/1991, BMG Records/[FLAC|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436304.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto a-moll BWV 1041
-1. Allegro 3:53
-2. Andante 6:34
-3. Allegro assai 3:55
-Concerto E-Dur BWV 1042
-4. Allegro 7:54
-5. Adagio 6:23
-6. Allegro assai 2:35
-Concerto g-moll BWV 1056
-7. Allegro 3:31(   Читать дальше...   )Жанр: ChamberПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D931AF56A35A08EBE569AD17473B8955137374B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

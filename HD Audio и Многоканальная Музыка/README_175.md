@@ -1,3 +1,177 @@
+###  Публикация: 1822132   (98589) от 05.10.2025
+
+Carter Faith - Cherry Valley (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherry Valley [00:03:52]
+02. Sex, Drugs, & Country Music [00:03:36]
+03. Arrows (Die For That Man) [00:03:51]
+04. Bar Star [00:02:52](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B10F1147985A26CD5DB83AC1FF1CF44CD58595
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609307   (94726) от 04.10.2025
+
+Hypocrisy (Peter Tagtgren) - Studio Albums (19 releases) (1992-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94726.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hypocrisy — шведская дэт-метал-группа, образованная в октябре 1991 года в Людвике Петером Тэгтгреном.1992 - Penetralia
+1993 - Osculum Obscenum
+1994 - The Fourth Dimension
+1996 - Abducted(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 17:12:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EDD972967DE30B65919EC0674281E68F29E04C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822026   (94694) от 04.10.2025
+
+Skid Row - Studio Albums (8 releases) (1989-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard 'n' Heavy, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skid Row — американская хэви-метал группа, образованная в 1986 году в Томс-Ривер, штат Нью-Джерси.1989 - Skid Row
+1991 - Slave To The Grind
+1995 - Subhuman Race
+2003 - ThickskinЖанр: Hard 'n' Heavy, Glam MetalПродолжительность: 06:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF1F77A7E347935055C712EC66FA2B6F573DD8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821754   (91288) от 03.10.2025
+
+Владимир Высоцкий - Высота (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Авторская песня>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня о Земле [00:02:31]
+02. Охота на волков [00:03:42]
+03. Дом хрустальный [00:02:25]
+04. Песня о переселении душ [00:02:06](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635FD4F0D3642557A4623AAE3FA550FB542AFA9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821775   (91287) от 03.10.2025
+
+Aphex Twin - Surfing On Sine Waves (1993) Expanded Edition, 2025, Warp Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Breaks, Techno, Abstract>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Polygon Window [00:05:27]
+02. Audax Powder [00:04:40]
+03. Quoth [00:05:36]
+04. If It Really Is Me [00:07:03](   Читать дальше...   )Жанр: Breaks, Techno, AbstractПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B9822268D120332DCC7F8679087F06B1932A26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821759   (91286) от 03.10.2025
+
+Till Lindemann - Zunge 2025 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zunge [00:04:35]
+02. Sport frei [00:04:12]
+03. Altes Fleisch [00:04:24]
+04. Übers Meer [00:03:19](   Читать дальше...   )Жанр: IndustrialПродолжительность: 01:24:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D018C5C611249416F462202F564607DF46FA9D73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1821786   (91282) от 03.10.2025
 
 Warren Haynes - Tales of Ordinary Madness (Remix 2025) (1993) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues-rock, Classic Rock>
@@ -602,180 +776,6 @@ Lord Spikeheart - 2 Albums (2023-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1093B10CFA94C6F2E2F76BB05A6CE3288EAA8114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770851   (71954) от 03.01.2025
-
-Canaan - Some last echo (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dark Doom Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anger Tides [00:05:35]
-02. Like a Broken Flag [00:04:36]
-03. The Traveller [00:04:38]
-04. Dissolved [00:05:45](   Читать дальше...   )Жанр: Dark Doom Metal, RockПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60462CE357260D3BB58C88B618369AA250194733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770863   (71953) от 03.01.2025
-
-Paleface Swiss - Cursed (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Metalcore,  Deathcore, Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. un pobre niño murió [00:01:44]
-02. Hatred [00:03:03]
-03. ...and with hope you'll be damned [00:03:29]
-04. Don't You Ever Stop [00:03:19](   Читать дальше...   )Жанр: Nu Metalcore,  Deathcore, HardcoreПродолжительность: 00:28:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817EED348F16A09E8C4349591CEF1B02D09808EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770886   (71949) от 03.01.2025
-
-Code Cowboy - Bootleg Ballads (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Blue Note of Love (3:17)
-02.  Billionaire Blues (3:26)
-03.  Thai Girl Blues (3:13)
-04.  Global Blues (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B309BC70944499D53EC20B86A6CD1C81D141347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771258   (71937) от 05.01.2025
-
-Nenei - Sunset Grooves (2025) [FLAC 24/192|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dream a Little Dream of Me (3:14)
-02.  Nenei & The Cooltrane Quartet - Don't You Worry 'bout a Thing (3:29)
-03.  Nenei & Groove Da Praia - I'm Not Here to Make Friends (3:12)
-04.  Houdini (3:09)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4AEE1CB13D70994D3AB6CC96BC6CEC9029600A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771015   (71936) от 05.01.2025
-
-Pink Floyd - Live at Palace Theatre (Manchester, UK, 9 Dec 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Raving And Drooling (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [13:49]
-02 - You've Got To Be Crazy (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [16:34]
-03 - Shine On You Crazy Diamond (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [22:16]
-04 - Speak to Me (Live at Palace Theatre, Manchester, UK, 9 Dec 1974) [3:18](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F85E0AA18F73751AAC4FC354875B7405F33EE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771017   (71933) от 05.01.2025
-
-Pink Floyd - Live At Palais De Sports (Paris, France, 24 June 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shine On You Crazy Diamond (Live At Palais De Sports, Paris, France, 24 June 1974) [20:58]
-02 - Raving And Drooling (Live At Palais De Sports, Paris, France, 24 June 1974) [10:16]
-03 - Echoes (Live At Palais De Sports, Paris, France, 24 June 1974) [22:58]
-04 - Speak to Me (Live At Palais De Sports, Paris, France, 24 June 1974) [3:56](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:55:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69535DF239675737F24449D959DD073C414B3D23
 ```
 
 https://mybot314.ru/tekegram_catalog/

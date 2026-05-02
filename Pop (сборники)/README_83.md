@@ -1,3 +1,119 @@
+###  Публикация: 943027   (451499) от 02.10.2015
+
+Vanessa Paradis - Good Songs (2015) [MP3|320 кб/с]<Pop, Dance pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abracadabra
+02. Acrobates
+03. Air du Temps
+04. Amour Jamais(   Читать дальше...   )Жанр: Pop, Dance popПродолжительность: 04:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A11AD88B5F129545A48631B86CE2B2B1F2D9DEBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942657   (451491) от 02.10.2015
+
+Samantha Fox - Good Songs (2015) [MP3|256 кб/с]<Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch Me(I Want Your Body) (1986)
+02. I'm All You Need (1986)
+03. Suzie, Don't Leave Me With Your Boyfriend (1986)
+04. Wild Kinda Love (1986)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 05:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D92F005A68AFACC0BA09F88B4E0A456B149F4F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942933   (451188) от 02.10.2015
+
+Modern Talking - Good Songs (2015) [MP3|160 кб/с]<Pop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451188.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. You're My Heart, You're My Soul (1984)
+002. Bells Of Paris (1985)
+003. Cheri Cheri Lady (1985)
+004. Diamonds Never Made A Lady (1985)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 09:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C3308E41D747D073FCEE06C6509121F63818B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061116   (450984) от 09.10.2016
+
+VA - К чёрту любовь. Суперсборник хитов (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450984.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мураками - До Дрожи
+002. Олег Верд - Иду К Тебе
+003. Светлана Лобода - К Чёрту Любовь
+004. Ольга Зарубина - Лодочка(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F48F23D8136CDACE94F8B9992ED70E402CB05C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 551596   (450952) от 25.09.2012
 
 VA - XXXL Клубничка MTV №30 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
@@ -647,122 +763,6 @@ VA - Осенняя бомба года от Европы Плюс. Зарубе
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3BEE6BB4901905CA53FCFF6720D7B40E42A4E0B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061698   (446244) от 11.10.2016
-
-VA - New Italo Disco Music (2016) [MP3|320 Kbps] <Pop, Italo Disco, Hi-NRG, Synthpop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446244.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fancy - A Voice In The Dark (Bringing The Light Mix)  6:49
-002. Albiero - Electronic Scout  6:23
-003. Birizdo I Am - Mademoiselle (Extended Version)  5:19
-004. Digital Dreams - Power Sound (Extended Version)  5:20(   Читать дальше...   )Жанр: Pop, Italo Disco, Hi-NRG, Synthpop, DanceПродолжительность: 11:16:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B4DE33F3D910E01A57D224FB64B5B07D739FEBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061755   (445779) от 11.10.2016
-
-VA - Русская Коллекция - Хиты 90-х (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445779.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Demo - Давайте петь!  4:00
-002. Mr. Credo - Белые облака  3:46
-003. Мираж - Видео  4:06
-004. Марина Журавлева - Дождь  3:03(   Читать дальше...   )Жанр: PopПродолжительность: 07:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4172F94872A9EE470323B6387ABF522E5ED759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943905   (444921) от 05.10.2015
-
-Baccara - Good Songs (2015) [MP3|128-320 кб/с]<Pop, Dance pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes Sir, I Can Boogie (1977)
-02. Love You Till I Die (1977)
-03. Granada (1977)
-04. Gimme More (1977)(   Читать дальше...   )Жанр: Pop, Dance popПродолжительность: 05:19:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF18923EE9311D562AF7C4036454436B8D23935B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943877   (444615) от 05.10.2015
-
-VA - Дискотека 80-90-2000 годов по - новому (DJ NIKOLAY - D) от Виталия 72 (Зарубежный выпуск - 17) (2015) [MP3|320 кб/с]<Italo Disco, Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Siberian Heat - Just Say Hello(Dj Nikolay-D & Joemix Dj Remix ) (06:10)
-02. Silent Circle & Dj Nikolay-D - Touch In The Night (Dj Nikolay-D Remix ) (06:17)
-03. Raggio Di Luna & Dj Nikolay-D - Comanchero(Dj Nikolay-D Remix ) (06:57)
-04. Mr. Zivago & Dj Nikolay-D - Little Russian(Dj Nikolay-D Remix ) (07:47)(   Читать дальше...   )Жанр: Italo Disco, Disco, PopПродолжительность: 05:09:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52F2ED4D039207888190386362F0EA8E45C3FAF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

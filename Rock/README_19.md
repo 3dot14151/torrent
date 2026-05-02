@@ -1,3 +1,32 @@
+###  Публикация: 370584   (818806) от 11.05.2020
+
+Little Richard - The Specialty Sessions (1989)  [MP3|320 kbps]<Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818806.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Wop Bop A Loo Bop A Lop Bam Boom
+CD2 - Peepin' And A' Hidin'
+CD3 - Duck Back In The Alley
+CD4 - Can't Believe You Wanna LeaveЖанр: Rock & RollПродолжительность: 00:34:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4B626B5B5AF5F5DAF66FD3473941B6AF447202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008143   (818006) от 17.04.2016
 
 Graham Nash - This Path Tonight (2016) [MP3|320 кб/с] <Classic Rock, Folk Rock, Soft Rock>
@@ -713,32 +742,6 @@ VA - Rock And Roll Music! The Songs Of Chuck Berry (2017) [MP3|320 Kbps] <Rock-n
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86142F36EB9644F7F67F7A3BBB90FA04736AFED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199613   (805046) от 09.05.2010
-
-VA - The Best Air Guitar  Vol.1-3+The Best Of The Best Air Guitar (2001-2005) [MP3|320 kbps]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 11:04:25
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

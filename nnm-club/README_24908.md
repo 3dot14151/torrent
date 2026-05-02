@@ -1,25 +1,25 @@
-###  Публикация: 1794551   (67252) от 29.04.2025
+###  Публикация: 1787500   (68794) от 25.03.2025
 
-Dudley Taft - The Speed of Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+VA - I Love ZYX Italo Disco Collection 4 (2006) 3 CD [OGG Vorbis|480 Kbps] <Electronic, Italo-Disco, Synth-pop>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wanted Man (3:22)
-02. Miles and Miles to Go (4:47)
-03. Work It Out (3:23)
-04. Burn It Down (2:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:23
+01. Silent Circle - Danger Danger
+02. Scotch - Pictures
+03. Brian Ice - Over Again
+04. K.B. Caps - Do You Realy Need Me(   Читать дальше...   )Жанр: Electronic, Italo-Disco, Synth-popПродолжительность: 03:24:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15483C3D7A51D5F9076B24750B2A9A6015869BFF
+magnet:?xt=urn:btih:7B98F31C9C842B2EC68B6FFBFBA3400C0B0A1FE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,478 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794560   (67251) от 29.04.2025
+###  Публикация: 1787373   (68793) от 25.03.2025
 
-Katie & The Bad Sign - Revolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolf at the Door (3:44)
-02. Revolution (3:38)
-03. Heartless Woman (3:38)
-04. Shake Me Down (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23816DF46281BF7A535A0DD4D9AE5C87C47BA12F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794410   (67250) от 29.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Spring Herbal Spa Day Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт на тему весеннего спа.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9795503FDC5D4B5D9B6BCCF937416BAE8FC234B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794590   (67249) от 29.04.2025
-
-The Riven - Visions of Tomorrow (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far Away From Home (3:54)
-02. Killing Machine (3:33)
-03. Set My Heart On Fire (3:14)
-04. Travelling Great Distance (3:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35AB85E0B68DFC37FC9E40644BB3D0487F558114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794557   (67248) от 29.04.2025
-
-Даниил Гранин | Мой лейтенант (Главы из книги) (2024) [MP3, Иван Краско и др.]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даниил Александрович Гранин (1919–2017) – русский писатель, киносценарист, общественный деятель.
-Пронзительный роман Даниила Гранина «Мой лейтенант» показывает нам войну глазами младшего офицера. Писатель-фронтовик не понаслышке знал тяготы фронтовой жизни, будни окопной войны и правдиво отобразил их на страницах своего романа. Эта книга для тех, кто не любит громких (   Читать дальше...   )Жанр: Русская литература, романИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB6EB288D1D060931827208AF231ABE6599EF37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794552   (67247) от 29.04.2025
-
-Даниил Гранин, Алесь Адамович | Блокадная книга. Часть II (2020) [MP3, Игорь Гмыза]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Эксклюзивная классика (АСТ).
-Даниил Александрович Гранин (1919–2017) – русский советский писатель, киносценарист, общественный деятель.
-Алесь Михайлович Адамович (1927–1994) – белорусский советский писатель, сценарист и литературовед, критик.
-Есть вещи, которые человечество забывать не должно, если оно хочет оставаться человечеством. И подвиг ленинградцев-блокадников (   Читать дальше...   )Жанр: Русская литература, повесть, книги о войне, биография и мемуарыИздательство: Аудиокнига (АСТ)Продолжительность: 14:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:894AC7E993668D0E35B388236893A1C506316FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794413   (67246) от 29.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Dragon Watercolor Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Акварельный клипарт с драконами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DFC74F919F5E9D34C84A809B661DADACF247EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794416   (67245) от 29.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Easter Eggs Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67245.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт на тему пасхальных яиц.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A4292E732C1BD2B7422A0AA30955BA6133C6621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794412   (67244) от 29.04.2025
-
-Растровый клипарт - inpixell.studio - Creative Fabrica - Cute Baby Bear Sleep Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт с медвежатами.Формат: PNGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F381344A5A8AFC029432E06D136EF56CF681DFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794455   (67243) от 29.04.2025
-
-VA - Progressive Frequencies #01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jakliu - Don't Forget [03:44]
-02. Deodar - Initiate [07:12]
-03. Sigooma - Vegas Breakfast Nuts [07:06]
-04. Pat H - Roots of the Bonsai Tree [07:04](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 02:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:541791DA01FCCA0099F35405550BC03B435E17D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794402   (67242) от 29.04.2025
-
-Periphery - Periphery II: This Time It's Personal (2012) Released, 2019, Sumerian Records [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67242.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Muramasa
-A2 Have a Blast
-A3 Facepalm Mute
-A4 Ji(   Читать дальше...   )Жанр: Progressive Metal, MetalcoreПродолжительность: 01:08:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:646A55C3C5D5065006D400E72C435F375C781E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794522   (67241) от 29.04.2025
-
-Ausweglos - Ausgestoßen (2025) [MP3|320 Kbps] <Atmospheric Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vergänglichkeit
-02. Eine Erzählung
-03. Einsamkeit
-04. Funeral Song(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9DCECDBA2785B4AD021C767E9A23934AD5152CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794535   (67240) от 29.04.2025
-
-Disfuneral - In Horror, Reborn (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Catacomb Dwellers
-02. Tombs Vomiting the Dead
-03. Ripped from Within
-04. Crypt of Demented(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153B30227D1DEFFEE146BB6D94B2C74998AF584F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794546   (67239) от 29.04.2025
-
-Samael - Ceremony of Opposites (1994) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67239.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Black Trip
-A2 Celebration Of The Fourth
-A3 Son Of Earth
-A4 Till We Meet Again(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54BBFD6CB7B8F15026F8B2670CC3C6F5B503AAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794476   (67238) от 29.04.2025
-
-Corrupter - Gloria in Profundis (2025) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eucharist
-02. Beating Heart Cadaver
-03. Permanent Storage Down Below
-04. Heading for Afterlife(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48AC25977C51CBBDD3701FBFB13189A8EC1AE992
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794539   (67237) от 29.04.2025
-
-Chris Kramer and Paddy Boy Zimmermann - Tales Of Tampa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Crazy About You Baby (3:00)
-02. Seminole Blues (3:15)
-03. You Rascal You No. 1 (3:50)
-04. Black Angel Blues (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1F9E0ED9CF8E597D52B06F7093CA1DF0088645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794473   (67236) от 29.04.2025
-
-Aryoch - The Passage (2025) [MP3|320 Kbps] <Symphonic Black, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Passage
-02. Brutal Symphony
-03. King of Ellasar
-04. Demonic Psychosis(   Читать дальше...   )Жанр: Symphonic Black, Death MetalПродолжительность: 01:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C47EE636426BE5B663459BADBD24E0CF74F998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794529   (67235) от 29.04.2025
-
-Sarah Jane Cion - Summer Night (2001) Naxos [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+VA - Pop International Hits Vol. 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Lounge, Bossa Nova>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Never Never Land/Pure Imagination [5:12]
-02. Walking on the Moon [5:03]
-03. Summer Night [5:25]
-04. Gabrielle [7:15](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:50:36
+01.  Ely Bruna - I Will Always Love You (4:24)
+02.  Danny Bianchi - Eye In The Sky (Francesco Cofano Remix) (4:37)
+03.  Lorenza Gambini - I Say A Little Prayer (3:13)
+04.  Frankie Lovecchio - Body To Body (5:17)(   Читать дальше...   )Жанр: Jazz, Lounge, Bossa NovaПродолжительность: 01:22:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD48D262380C47552DAE31AB6EC86401416DFFE0
+magnet:?xt=urn:btih:0B5BF93D6C643EDC872622423B05E89962311C63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -506,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794428   (67234) от 29.04.2025
+###  Публикация: 1787350   (68792) от 25.03.2025
 
-KT Tunstall - Eye To The Telescope (2004) [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+Журнал | Трудовые споры №2 (242) (февраль 2025) [PDF]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Other Side of the World    [0:03:34.42]
-02. Another Place to Fall    [0:04:11.33]
-03. Under the Weather    [0:03:36.42]
-04. Black Horse and the Cherry Tree    [0:02:52.28](   Читать дальше...   )Жанр: Rock, PopПродолжительность: 00:45:05
+Трудовые споры — это журнал о разрешении трудовых конфликтов. В каждом номере — десятки разобранных до мелочей трудовых споров, секреты оформления документов, пошаговые алгоритмы проведения кадровых процедур, оценка рисков работодателя, аргументы для того, чтобы выиграть спор в суде.Жанр: Популярный журналИздательство: ООО "Актион Цифровое издательство"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9C20FC898F7142D0BA855F8124251631AF1DD9B
+magnet:?xt=urn:btih:15B3B09E90656680A547BF001A8F4764E07333D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,57 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794584   (67233) от 29.04.2025
+###  Публикация: 1787412   (68791) от 25.03.2025
 
-Fenson - Cattitude (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Attitude Alcohol (2:58)
-02. Taking Back Control (3:03)
-03. Baby Your Wrong (3:18)
-04. Open Doors (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:32:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179129128907B03D220EEFA9ED873DFD03067871
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794463   (67232) от 29.04.2025
-
-The Absence - Studio Albums (6 releases) (2005-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+Ayreon - Into The Electric Castle (A Space Opera) (1998) Released, 2018, Music Theories Recordings [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68791.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Absence - метал-группа из Тампы, Флорида, США. Действует с 2002 года.2005 - From Your Grave
-2007 - Riders Of The Plague
-2010 - Enemy Unbound
-2018 - A Gift For The ObsessedЖанр: Melodic Death MetalПродолжительность: 05:02:47
+A1 - Welcome To The New Dimension
+Lyrics By - Peter Daltrey
+A2 - Isis And Osiris
+Lyrics By - Fish(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:44:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5A5970BA7176B7D569D87FC164325C06F7E7146
+magnet:?xt=urn:btih:12D2467D9E45962D8740CB9B7320B70B98BD7516
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -593,54 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794548   (67231) от 29.04.2025
+###  Публикация: 1787263   (68790) от 25.03.2025
 
-Dr. Jules' Cool Blues - The Iconoclast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish the Blues Had Used a Condom (3:06)
-02. ADD (3:38)
-03. Don't Drink the Kool Aid (4:50)
-04. The Barflies At The Bar (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9043E346F78F21974DAD472FBB71AC52DE0D9F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794931   (67230) от 01.05.2025
-
-Гордый и светский / The Proud and Profane (1956) BDRip [H.264/720p] [AVO]
+Моя Родина, моя любовь / Mit Faedreland, min Kaerlighed (1915) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67230.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68790.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На остров Новая Каледония в Тихом океане приезжает Ли Эшли, вдова лейтенанта, погибшего в Битве за хребет Эдсона в 1942 году. Прошел всего год со смерти супруга, рана не зажила. Но Ли сильна духом и присоединяется к американскому Красному Кресту, где собирается давать уроки французского. На самом деле женщине хочется узнать побольше о покойном муже. На остров высаживается (   Читать дальше...   )Производство: США / Perlberg-Seaton ProductionsЖанр: драма, военныйРежиссер: Джордж СитонАктеры: Уильям Холден, Дебора Керр, Тельма Риттер, Дьюи Мартин, Уильям Редфилд, Росс Багдасарян, Адам Уильямс, Мэрион Росс, Теодор Ньютон, Ричард ШеннонПеревод: Авторский (Алексей Багичев)Язык озвучки: русский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:51:28
+Война бушует в Европе. Бравому лейтенанту Тальбургу дают отпуск, чтобы посетить дом своего отца, расположенный на приграничной территории, временно захваченной врагом. Переодевшись, лейтенант тайком пробирается к родительскому дому. По дороге он умудряется спасти жизнь вражескому генералу. Это не только благородно, но и, как оказалось впоследствии, очень практично. (   Читать дальше...   )Производство: Дания / Nordisk Film KompagniЖанр: военный, короткометражный, драма, немое киноРежиссер: Роберт ДинесенАктеры: Алф Блютехер, Axel Boesen, Эрик Холберг, Фредерик Якобсен, Питер Йоргенсен, Thorleif Lund, Эксел Маттсон, Эбба Томсен, Birger von Cotta-SchonbergПеревод: немой с интертитрамиСубтитры: датские (интертитры), русскиеПродолжительность: 00:33:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90C3CB20C69F737611D681D88CE2563FAB54AF5F
+magnet:?xt=urn:btih:284483FF7E00B293C32E32127230671C2E8396AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794841   (67229) от 01.05.2025
+###  Публикация: 1787510   (68789) от 25.03.2025
 
-Журнал | Тайны ХХ века №13 (1159) (март 2025) [PDF]
+Riot V - Armor Of Light (2018) 2xCD, Japanese Edition, Limited Edition [FLAC|Lossless|image + .cue] <Heavy Metal>
 
->>Журналы
->>Другие журналы
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67229.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68789.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+CD1:
+01. Victory
+02. End of the World
+03. Messiah(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:07:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1218575FBE468F9CF476FEA5A114FEB87EB297BB
+magnet:?xt=urn:btih:B2074C7D325B6C253BACC0A211A90263A611CAB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,25 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794831   (67228) от 01.05.2025
+###  Публикация: 1787326   (68788) от 25.03.2025
 
-Газета | Загадки истории №18 (644) (2025) [PDF]
+UMC - CHAPTER 4 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal, Rock, Metal Covers>
 
->>Журналы
->>Другие журналы
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67228.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68788.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+01 - Never Be Like You [4:10]
+02 - MONEY ON THE DASH [2:24]
+03 - GIMME LOVE [3:15]
+04 - GREEDY [2:13](   Читать дальше...   )Жанр: Metal, Rock, Metal CoversПродолжительность: 00:39:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F0BF9D0268E639FF31DFBD4BB6942F46C2E32BDA
+magnet:?xt=urn:btih:5A54C5A279879BFC346100C69679CB134DA57F6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,28 +195,530 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794983   (67227) от 01.05.2025
+###  Публикация: 1787486   (68787) от 25.03.2025
 
-Midnight Smoke - Retronoir (2023) [FLAC|Lossless|Web-DL|tracks] <Retrowave, Darksynth, Doom Jazz>
+The Sun Or The Moon - Into The Light (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mutant Discotheque (Part 1 - Fear Porn) [00:06:14]
+02. Mutant Discotheque (Part 2 - Alienation Hop) [00:05:17]
+03. Mutant Discotheque (Part 3 - The Circle) [00:04:29]
+04. Into The Light [00:06:23](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB073E499DF3FFE4D860B52058204933167E6B59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787333   (68786) от 25.03.2025
+
+Arion - The Light That Burns The Sky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Power Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Darkest Day [1:54]
+02 - The Light That Burns The Sky [3:43]
+03 - Like The Phoenix I Will Rise [4:17]
+04 - Wings Of Twilight (feat. Melissa Bonny) [4:31](   Читать дальше...   )Жанр: Symphonic Metal, Power Metal, MetalПродолжительность: 00:45:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:816A23B460AE5890BEC1D8F4CF915D2D87AA209C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787502   (68785) от 25.03.2025
+
+Шрифты - Creative Market - Fluffy Blitz - 2 Graffiti Bubble - 290891824 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68785.jpg" />
+</div>
+
+
+###  Подробнее
+
+Познакомьтесь с Fluffy Blitz, смелым и игривым шрифтом-пузырем граффити, который привнесет яркую энергию в ваши проекты!
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1403DB962FC484E694CE958B863B6FD522B43EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787378   (68784) от 25.03.2025
+
+VA - Miami Music Week 2025 Sampler (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67227.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pepsi Blue (3:08)
-02. Dance With A Stranger (4:36)
-03. After Hours (5:21)
-04. My Blueberry Nights (3:40)(   Читать дальше...   )Жанр: Retrowave, Darksynth, Dark Ambient, Doom JazzПродолжительность: 00:33:59
+01. Alfredo Magrini - AYO (03:00)
+02. DJ Miss Smile - Miami Life (04:55)
+03. Kris van Nuffel feat. Jordan Grace - Elly (Extended Mix) (04:03)
+04. DJ Mauritius - Alive (02:37)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:08:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7712B32574E0409374758C648FD7A1BD2B0C5CBD
+magnet:?xt=urn:btih:CD3B27E6638EA8DEBF03A453A30D41867B624C1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787357   (68783) от 25.03.2025
+
+Шрифты - Silverdav Studio - Heaven Of Love – Hybrid Font [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68783.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем шрифт Heaven Of Love , многогранный шрифт с прекрасным и вдохновляющим сочетанием классической каллиграфии и современных засечек, с 3 различными стилями: минималистичный элегантный шрифт с засечками Regular, Italic и гибридный микс каллиграфии и засечек.
+
+Кириллица не поддерживается.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B7AD925FB3AD7CBD36B2C3455F7B7162684C76C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787429   (68782) от 25.03.2025
+
+Журнал | Народный доктор №5 (675) (март 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68782.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F9C7D5CB9BCFC9C15B4DD2D1A3FA10633EA2534
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787371   (68781) от 25.03.2025
+
+VA - Nu Urban Jazz Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tallulah Rose - Friends (4:16)
+02.  imprevisti - Boomhut Intro (1:02)
+03.  Gaetano Partipilo - NYC (4:25)
+04.  Luigi Di Nunzio - Space Rain (4:38)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76CAF97EBA74F004C39BEF45A9496B8796F7226F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787504   (68780) от 25.03.2025
+
+Шрифты - Creative Market - Palfian | Brush Solid Script - 290891299 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Элегантный, красивый шрифт для ваших творческих задач.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02C479AC558185E0232D5B753AC0A65396374BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787480   (68779) от 25.03.2025
+
+Nachtblut - Todschick (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Von Hass Getrieben [00:04:50]
+02. Todschick [00:03:58]
+03. Nachtgeweiht [00:04:18]
+04. Das Leben Der Anderen [00:03:52](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0868A892B7F2E19CCB37F879EA218B040E493AB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787422   (68778) от 25.03.2025
+
+Шрифты - Font Brothers - Bugleboy [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bugleboy начинался как оцифровка киношного шрифта LetterGraphics в начале 70-х годов, известного как «Wood Grotesk».
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E747D20903401A14C64FFE15C71DCA0FAB2BF42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787334   (68777) от 25.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Secret Code - Free 3D Alphabet - 96764 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в нескольких вариациях.Формат: PNGРазрешение файлов: 3000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D9732889B199D849DEA0C08CBB83BAA4284F52C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787331   (68776) от 25.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Wooden Deco Wall - Free 3D Alphabet - 96825 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный алфавит-латиница в нескольких вариациях.Формат: PNGРазрешение файлов: 3000 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BF8FA8692BB81D7265D3E3CA5C5147E6CA1401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787364   (68775) от 25.03.2025
+
+Nightwish - Oceanborn (1998) Released, 2010, Drakkar Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stargazers
+02. Gethsemane
+03. Devil & the Deep Dark Ocean
+04. Sacrament of Wilderness(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BAB3962A9DA59BA73103FD688889EDE186F52F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787424   (68774) от 25.03.2025
+
+Шрифты - Font Brothers - Fondamento Pro [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fondamento и Fondamento Italic — это каллиграфические стили письма, основанные на традиционном Foundational Hand, базовом стиле обучения, созданном Эдвардом Джонстоном в начале 20-го века.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:396A2EC6CA6DDBE18DFD5227FFDB364DC193678A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787362   (68773) от 25.03.2025
+
+Шрифты - MyFonts - PODIUM Sharp [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68773.jpg" />
+</div>
+
+
+###  Подробнее
+
+PODIUM Sharp — это расширенная версия шрифта DUDU, разработанная в 2012 году. После многих лет я решил перестроить и развить этот шрифт, добавив новые основные и насыщенные начертания. Наконец, PODIUM Sharp состоит из 234 стилей: от ультрасжатого волосяного до экстрарасширенного тяжелого.
+
+Кириллица не поддерживается.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A3003B601789B9A3236BA11352E2565389843D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787433   (68772) от 25.03.2025
+
+Журнал | Народный доктор №6 (676) (март 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68772.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD6D946C5AF6FAC89F935FED04587B347588B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787454   (68771) от 25.03.2025
+
+Siberian - Modern Age Mausoleum (2014) [WavPack|32/192|image + .cue|Vinyl-Rip] <Sludge, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68771.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Gift / Curse
+A2 - Moth
+A3 - Paragon
+A4 - Misfit Opening(   Читать дальше...   )Жанр: Sludge, Progressive MetalПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6C3A562857C2654B928B73560756D696E28419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787444   (68770) от 25.03.2025
+
+Ганс Христиан Андерсен | Гадкий утёнок. Стойкий оловянный солдатик. Соловей (2009) [MP3, Алексей Золотницкий и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская литература.
+Ганс (Ханс) Христиан Андерсен (1805–1875) – датский писатель и поэт, автор всемирно известных сказок для детей и взрослых: «Гадкий утёнок», «Новое платье короля», «Тень», «Принцесса на горошине» и др.
+Без произведений Андерсена немыслимо детство каждого человека. Почти все мы читали сказки Андерсена или видели мультфильмы и художественные (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаПеревод: Анна ГанзенИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:16:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FDA1EF8EA01C6FC59BD742D0F7FEE432D4021C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787440   (68769) от 25.03.2025
+
+Ганс Христиан Андерсен | Свинопас. Оле-Лукойе. Дюймовочка (2009) [MP3, Алексей Золотницкий и др.]
+
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Детская литература.
+Ганс (Ханс) Христиан Андерсен (1805–1875) – датский писатель и поэт, автор всемирно известных сказок для детей и взрослых: «Гадкий утёнок», «Новое платье короля», «Тень», «Принцесса на горошине» и др.
+Андерсен не соответствовал образу сказочника, окруженного детьми, рассказывающего им свои сказки. Когда знаменитый скульптор хотел изобразить (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаПеревод: Анна ГанзенИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07D9D724EBF9D97531889CC35FCAAE610592A860
 ```
 
 https://mybot314.ru/tekegram_catalog/

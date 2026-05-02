@@ -1,25 +1,23 @@
-###  Публикация: 1202342   (790528) от 28.01.2018
+###  Публикация: 1201492   (792102) от 25.01.2018
 
-VA - Private Lounge Vol.4 (2018) [MP3|320 Kbps] <Lounge,Deep House>
+Разбитые сердца (2016) WEB-DLRip [H.264/720p-LQ] (серии 1-2 из 2)
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Отечественные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792102.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mark Eliyahu - Journey (Hakan Akkus & V-Dat Remix)
-02. Mykel Mars - L.A. Nights (Eddy Chrome Hollywood Remix Edit)
-03. Christos Fourkis, Joahn Dashi - Come in My Life (Bes and Meret Remix)
-04. Secret Ibiza - Eye Contact (Edit)(   Читать дальше...   )Жанр: Lounge,Deep HouseПродолжительность: 04:08:44
+Люба никогда и ни в чем не нуждалась. Она выросла в обеспеченной семье, у нее прекрасные родители, любимый муж Леонид и маленькая дочка.
+Но неожиданно умирает отец и перед смертью открывает Любе тайну: у него есть внебрачная дочь, которую он бросил 20 лет назад. Чтобы искупить вину, он берет с Любы обещание разыскать сестру...Производство: Россия / Кинокомпания "Русское"Жанр: мелодрамаРежиссер: Сергей МезенцевАктеры: Екатерина Олькина, Дарья Руденок, Кирилл Запорожский, Александр Пашков, Дмитрий Пчела, Елена Сафонова, Анатолий Бледный, Марина Соколова, Николай Лунин, Виталина ГусакПродолжительность: ~01:30:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C64D9D8635EE8DDF3087381DBE50BA678EC9CECB
+magnet:?xt=urn:btih:6EFB6F6A36E2A63709425F56DEE03E044A02B16E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +25,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202163   (790527) от 28.01.2018
+###  Публикация: 1201676   (792101) от 25.01.2018
 
-Charlotte Gainsbourg - Stage Whisper (2011) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Indie Pop, French Pop-Rock>
+Людмила Сенчина - Золушка (1975) Remastered, 2001, Melodiya Record Company Europe [MP3|320 Kbps] <Pop, Vocal>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Отечественная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01/11. IRM (2:41)
-02/11. Set Yourself On Fire (3:53)
-03/11. Jamais (4:02)
-04/11. Heaven Can Wait (2:22)(   Читать дальше...   )Жанр: Indie Pop, French Pop-Rock |Продолжительность: 00:37:57
+Памяти исполнительницы посвящается.01. Золушка (3:45)
+02. Ты дождись меня (3:12)
+03. Я к тебе не вернусь (3:45)
+04. Ты (3:03)(   Читать дальше...   )Жанр: Pop, VocalПродолжительность: 00:44:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90B5A822818A4F46654EE576325C96BDB21A889E
+magnet:?xt=urn:btih:00AB6A9B42CF64DB5800A96B1D6A8A8B7B7C2E97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,600 +54,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202304   (790526) от 28.01.2018
+###  Публикация: 1201565   (792100) от 25.01.2018
 
-Beth Hart / Бет Харт - Screamin' For My Supper (1999) Atlantic, Lava, 143 Records, 83192-2, US [MP3|320 Kbps] <Blues Rock, Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just a Little Hole 5:16
-02. Delicious Surprise 3:48
-03. L.A. Song 3:56
-04. Is That Too Much To Ask 3:33(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D88D622DE28AF934017944298BB8D8B90D98397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202221   (790525) от 28.01.2018
-
-Mozilla Thunderbird 52.6.0 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thunderbird — это бесплатная почтовая программа, лёгкая в установке и настройке — и имеющая множество великолепных возможностей! Поддерживает протоколы SMTP, POP3, IMAP и RSS, имеет встроенный HTML редактор, который создает довольно компактный код, что в свою очередь уменьшает итоговый размер отправляемых писем в несколько раз. Поддерживает всевозможные кодировки, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B57E737369C41DAD9B7388C67CC471EC46E441
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275452   (790524) от 11.01.2019
-
-Jimmie Noone - 1930 - 1934 (1992) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When You're Smiling [2:49]
-02. I Lost My Gal From Memphis [2:27]
-03. On Revival Day [2:34]
-04. I'm Drifting Back To Dreamland [2:45](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4793E3A5CCF7B4DE4DAAEDE171FC7E7C6AF02A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275349   (790523) от 11.01.2019
-
-Sjodogg - Landscapes Of Disease And Decadence (2007) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Song Of Plague
-02 - Inglorious Fever Of Antonius
-03 - Mahapaatra
-04 - Brethren Of The Weeping Corpses(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BAC34B5A233F411B4396EDA5D12C3F08EAA7EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275479   (790522) от 11.01.2019
-
-David Tixier Trio - Universal Citizen (2018) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Far From the World
-02. Tokyo
-03. Lost Among Ghosts
-04. Tribute to an Old Man(   Читать дальше...   )Жанр: Contemporary Jazz, FusionПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B083EAFAED5EBCBAEAA6CF333F7050D123D796
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275280   (790521) от 11.01.2019
-
-Chris Whitehouse's Connected - Grounded (2015) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Down
-02. Head Honcho
-03. Yes, And?
-04. Two Four One(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4D4D637B13C485C93B586C4A256BF0DA740D090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275222   (790520) от 11.01.2019
-
-VA - EDM RG: End Of The Year Mix (2018) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrew Rayel and David Gravell - Trance Reborn (FYH100 Anthem) (Mark Sixma Extended Remix) 04:20
-02. Darude, Ashley Wallbridge feat. Foux - Surrender (Extended Mix) 05:29
-03. Kyau & Albert feat. Ronski Speed - Zoom (Original Mix) 05:21
-04. Marcus Santoro - Polaroid (Extended Mix) 05:40(   Читать дальше...   )Жанр: TranceПродолжительность: 07:25:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F919661226E78BE2C8C8D134D26BFC09DB1E6174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275330   (790519) от 11.01.2019
-
-Sinbreed - IV (2018) Japan [FLAC|Lossless|image + .cue] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Under the Sun
-02. Falling Down
-03. Wasted Trust
-04. Into the Arena(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93779E8119F8B2FBE21133B63842FC3DF0F1DEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275284   (790518) от 11.01.2019
-
-David Linx - 7000 Miles (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poses
-02. From One Family To Another
-03. 7000 Miles
-04. America(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE12ACC6E5A39A378338B109933EEB58EF46CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275432   (790517) от 11.01.2019
-
-Charlie Haden & Kenny Barron - Night And The City (1996) 1998, Verve [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twilight Song [12:48]
-02. For Heaven's Sake [10:45]
-03. Spring Is Here [10:21]
-04. Body And Soul [10:25](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:742DF311561938F67CA82CD302C338267F4FED94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275329   (790516) от 11.01.2019
-
-Radiant - Radiant (2018) Japan [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes I Am
-02. I’m Alive
-03. Silver Linings
-04. You Rock(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 01:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39667AE96632CF0D53F648DD420028C511F77BE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275294   (790515) от 11.01.2019
-
-Tunng - Songs You Make At Night (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream In (04:40)
-02. Abop (04:33)
-03. Sleepwalking (03:45)
-04. Crow (03:46)(   Читать дальше...   )Жанр: Indie Rock, Folk RockПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF1B868E4642850A7FD2562376CA2E152D26162C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275358   (790514) от 11.01.2019
-
-Renamer 5.2.6 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Renamer – инструмент, который позволяет легко переименовывать огромное количество файлов. Операции проводятся согласно определенному шаблону. Режим превью позволяет во время установки параметров сразу видеть результат будущей замены.
-
-Переименовывать тысячи файлов мгновенно! Переименование фотографий с цифровых камер Добавить / удалить символы из имен файлов. Преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.01.2019Разработчик: Incredible Bee Ltd.Поддерживаемая ОС: macOS 10.12 или вышеЯзык интерфейса: Английский, Немецкий, Испанский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D04F63491CE3465E0C7781AB4B7F6E35B755C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275485   (790513) от 11.01.2019
-
-Debbie Kirkland - Coming From Blue (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kissing You
-02. Xuxu Bird
-03. I Want To Be Romanced
-04. A Wish(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3FB13C17A860C4AB896C501918B4C60D0A900B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275380   (790512) от 11.01.2019
-
-VA - Contact The Spirit (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790512.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Agent K - General Zod's
-002. Dreamvibes! - Breakdown (Original Mix)
-003. Ace Ventura - The World That You Know
-004. Argon Sphere - Traveller(   Читать дальше...   )Жанр: Psychedelic, Goa TranceПродолжительность: 12:24:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53F4EA464FCC90F489F9F8D2E168C45B4A456E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275314   (790511) от 11.01.2019
-
-Dead Combo - Odeon Hotel (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Blues, Folk,>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deus Me Dê Grana (03:41)
-02. Mr. & Mrs. Eleven (For AJ) (03:21)
-03. In A Mellotron (04:27)
-04. I Know, I Alone (05:01)(   Читать дальше...   )Жанр: Jazz, Blues, Folk,Продолжительность: 00:47:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FC7942BF2F166C7D0016FBEC0F7986660D4DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275227   (790510) от 11.01.2019
-
-Питер Грю | Письма на чердак (2018) [FB2]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чердак – это место забытых вещей и пыльных историй.
-
-Когда тебе грустно, напиши письмо на чердак, и призраки обязательно его прочитают. По дороге, усыпанной лунной пылью, они уведут тебя в Тёмный Уголок – мир-убежище, где ты забудешь о печали, где замки появляются из ниоткуда и где каждый может стать волшебником.
-(   Читать дальше...   )Жанр: Детская фантастика, Детские приключенияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB67F50278934BD4E827F7DE91641EBAAF27EE41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275488   (790509) от 11.01.2019
-
-Delvon Lamarr Organ Trio - Close But No Cigar (2018) [FLAC|Lossless|tracks + .cue] <Funk Groove, Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concussion
-02. Little Booker T
-03. Ain't It Funky Now
-04. Close but No Cigar(   Читать дальше...   )Жанр: Funk Groove, Jazz, SoulПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09163C9ECE924E9CAAD3E722425CB9930558F0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202180   (790508) от 28.01.2018
-
-Векторный клипарт - Different Snakes Set [AI]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Векторный клипарт для дизайна.
-Различные змеи
-3 AI +TIFF PreviewФормат: AI
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB1090855C6B44A07B5077B6CFEA2010FD3EA5BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202333   (790507) от 28.01.2018
-
-Beth Hart / Бет Харт - Live At Paradiso (2005) Universal, 987 146-5, Europe [MP3|320 Kbps] <Blues Rock, Rock, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delicious Surprise (live at Paradiso) 4:15
-02. Guilty (live at Paradiso) 4:52
-03. Leave The Light On (live at Paradiso) 4:43
-04. Lifts You Up (live at Paradiso) 3:59(   Читать дальше...   )Жанр: Blues Rock, Rock, SoulПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B420FCEDEFCFD6F47BCA819D28E85F2E97462B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202257   (790506) от 28.01.2018
-
-Инкарнация / Incarnate (2016) HDRip [H.264] [MP4|1280x534]
+Район №9 / District 9 (2009) HDRip [H.264] [MP4|1280x692]
 
 >>Мультимедиа и прочее
 >>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790506.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792100.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Доктор Эмбер — не экзорцист. У него свои методы изгонять зло, поселившееся в людях. Но, проникнув в сознание 11-летнего мальчика, доктор понял, что это именно тот могущественный демон, с которым он ищет встречи уже многие годы.Производство: СШАЖанр: Триллер, УжасыРежиссер: Брэд ПейтонАктеры: Аарон Экхарт, Кэрис ван Хаутен, Каталина Сандино Морено, Дэвид Мазоуз, Кейр О’Доннелл, Мэтью Нэйбл, Эмили Джексон, Пол Винсент О’Коннор, Наталия Ногулич, Джон Пирруччелло, Петра Шпрехер, Бриэнн ХиллПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:26:10
+Более 20 лет назад инопланетяне установили первый контакт с Землей. Люди были готовы ко всему — от враждебного вторжения до невероятного технологического прорыва. Ни того, ни другого не произошло. Пришельцы оказались беженцами со своей собственной планеты, и пока мировое сообщество решало, что с ними делать дальше, для них был организован временный лагерь в южноафриканском (   Читать дальше...   )Производство: ЮАР, США, Новая Зеландия, Канада / QED InternationalЖанр: Фантастика, Триллер, Боевик, ДрамаРежиссер: Нил БломкампАктеры: Шарлто Копли, Джейсон Коуп, Натали Болтт, Сильвен Страйк, Элизабет Мкандави, Джон Самнер, Уильям Аллен Янг, Грег Мелвилл-Смит, Ник Блейк, Морена Буса СесатсаПеревод: Дублированный (Лицензия)Субтитры: Русские (форсированные, полные), Английские (полные)Продолжительность: 01:52:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6D3A72808491A68BBC5B2BC51AF919D239B0752
+magnet:?xt=urn:btih:76A2A8ADB20DBE839BA84A99B3C120BF0BBB7B49
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,28 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202402   (790505) от 28.01.2018
+###  Публикация: 1201489   (792099) от 25.01.2018
 
-VA - Music Of India (2018) [MP3|320 Kbps] <House, Big Room, Dance>
+Greg Maroney - Winter (2018) [MP3|320 Kbps] <New Age, Instrumental>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790505.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  KSHMR & Headhunterz  -  Dharma  2:57
-02.  Sati Nights  -  Enchantments (Original Mix)  3:03
-03.  Robbie Rivera  -  Deep  3:06
-04.  Skinny  -  Lakshmi  3:37(   Читать дальше...   )Жанр: House, Big Room, DanceПродолжительность: 01:53:23
+1. Winter Grey
+2. Grandmother's Quilt
+3. January
+4. Hearthfire(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:49:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D211B3D706C61B47BD03EFEDC54314115861FB7
+magnet:?xt=urn:btih:2CB6D4075A8D05E51E85C677A686C83A26C32F64
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,28 +109,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202083   (790504) от 28.01.2018
+###  Публикация: 1201622   (792098) от 25.01.2018
 
-Orphaned Land - Unsung Prophets & Dead Messiahs (2018) Limited Edition [FLAC|Lossless|image + .cue] <Middle Eastern Folk, Progressive Metal>
+Настоящий Шерлок Холмс / The Real Sherlock Holmes (2012) HDTVRip [H.264/720p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Личности в истории
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1: Unsung Prophets & Dead Messiahs
-
-01. The Cave 08:10
-02. We Do Not Resist 03:24(   Читать дальше...   )Жанр: Middle Eastern Folk, Progressive MetalПродолжительность: 00:41:29
+Шерлок Холмс - наиболее адаптированный литературный персонаж в истории, с миллионами поклонников по всему миру. Мы живем в мире в котором Холмс оставил свой след. Но кто такой Шерлок Холмс, и как популярный детектив повлиял на современный преступный мир, шпионаж, криминалистику, поп-культуру и даже космические путешествия?Производство: Канада, Storyline EntertainmentЖанр: Документальный, биография, историяРежиссер: Гэри ЛангПеревод: Одноголосый закадровый, профессиональный (Кирилица)Субтитры: отсутствуютПродолжительность: 00:43:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3AEF40A22E1793E2B9745DD1A93A98A9F1147607
+magnet:?xt=urn:btih:3EA4B3375BAAB0501F0520483A23FB32ECA79B1F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -715,25 +135,556 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202090   (790503) от 28.01.2018
+###  Публикация: 1201604   (792097) от 25.01.2018
 
-Яндекс.Браузер 18.1.1.539 beta [Multi/Ru]
+Tramp - Put A Record On (1974) Remastered, 2007, Air Mail Archive,  Spark Records [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792097.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Too Late For That Now
+2. Now I Aint A Junkie Anymore
+3. What You Gonna Do
+4. Like You Used To Do(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2234158F40C7BD4774E60A85EBB9A6C87DC1E7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201581   (792096) от 25.01.2018
+
+Шоу начинается / Showtime (2002) DVDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Строгий детектив полицейского департамента Лос-Анджелеса Митч Престон и чудаковатый новичок-патрульный Трей Селларс, вынуждены стать звёздами нового телешоу из реальной жизни полицейских, на которое главное полицейское ведомство возлагает большие надежды по созданию должного морального облика полиции города....Производство: США, Австралия / Material , NPV Entertainment, Overbrook Entertainment, Tribeca Productions, Village Roadshow Pictures, Warner Bros. PicturesЖанр: Боевик, Комедия, КриминалРежиссер: Том ДейАктеры: Эдди Мёрфи, Роберт Де Ниро, Рене Руссо, Рэйчел Харрис, Зайд Фарид, Алекс Борштейн, Холли Мэндел, Маршалл Манеш, Нестор Серрано, Т.Дж. КроссПеревод: Дублированный, многоголосый, двуголосый закадровыйСубтитры: ОтсутствуютПродолжительность: 01:31:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C283922F06B5F94369ABA9E48D13C923E2A081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201598   (792095) от 25.01.2018
+
+Высоцкий в Америке (1998) WEBRip [H.264]
+
+>>Документалистика и Телепередачи
+>>Личности в истории
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм об одном эпизоде из жизни Владимира Высоцкого, связанном с поездкой в США с концертами в конце 1979 года. Это была почти немыслимая, невероятная по тем советским временам история.Жанр: Документальный, биография.Режиссер: Арон Каневский.Продолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3604BF9C6892BBD85E546E08726765429632E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510069   (792094) от 15.11.2021
+
+Вселенная Стаса Намина (2021) HDTVRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792094.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этом году Стас Намин отмечает свое 70-летие. В нашей удивительной и странной Вселенной знают Стаса Намина: как театрального режиссера — во Франции, Швейцарии и Италии; как фотохудожника — в Южной Корее и Лос-Анджелесе; а вот в Нью-Йорке Стас Намин известен как музыкальный продюсер и рок-музыкант. В Индии Стас Намин известен как виртуозный исполнитель на ситаре, (   Читать дальше...   )Производство: Россия, Первый каналЖанр: Документальный, биографияРежиссер: Сергей Ильин-КозловскийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87DA044F4D1D59385556592A0E0BC009CD6EAF2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510097   (792093) от 15.11.2021
+
+Elmedia Player Pro 8.1 U2B [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elmedia Player - мультимедийный плеер для воспроизведения практически всех видео форматов: (FLV, SWF, MOV, MP4, DIVX, RV, RM и даже Silverlight). Это удобный и простой в настройке плеер, который проигрывает медиа файлы локально, а также имеет встроенный веб-браузер, позволяющий заходить на любой сайт и выбирать понравившееся видео для просмотра.
+Elmedia Player PRO (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.07.2021Разработчик: Eltima LLCПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443FDBA9D3EBA51BF1975C01F4381EAC7538A9B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510159   (792092) от 15.11.2021
+
+MotoGP. Этап 18. Гран-при Валенсии. Гонка (14.11.2021) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Авто, Мото
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792092.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 ноября 2021, воскресенье. 16:00 МСК. Этап 18, Гран-при Валенсии. Испания, Гонка (27 кругов)Жанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB9A0D1ED6EBCBE0E8589A1197CBCD2E3E98F95F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510065   (792091) от 15.11.2021
+
+Картинки - NNM-Club - Календари на 2022 от Warrior 123 №22 - 1510065 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 1920x1038
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD149C82AD01C52152A6D232AA6410CFFE6EF2A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510108   (792090) от 15.11.2021
+
+HD Video Converter Movavi 22.0.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792090.jpg" />
+</div>
+
+
+###  Подробнее
+
+HD-Конвертер Видео Movavi – это многофункциональное и вместе с тем простое в использовании приложение для конвертации медиафайлов, идеально подходит для работы в среде Mac. ПО позволяет конвертировать не только видеофайлы, но и музыку и даже изображения. С HD Конвертером Видео Movavi вы не потратите зря ни минуты. Просто добавьте файлы в утилиту, выберите желаемый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64A97B59F17769C30260601E01DE28196F2F621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510104   (792089) от 15.11.2021
+
+Человек из Колорадо / The Man from Colorado (1948) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двое друзей вернулись домой после Гражданской войны. У одного из них психологическая травма из-за событий на войне. Он начинает вести себя неустойчиво и ожесточённо. Друг пытается найти способ помочь ему...Производство: США, Columbia Pictures CorporationЖанр: мелодрама, вестернРежиссер: Генри ЛевинАктеры: Гленн Форд, Уильям Холден, Эллен Дрю, Рэй Коллинз, Эдгар Бьюкенен, Джером Куртлэнд, Джеймс Милликэн, Джим Бэннон, Уильям «Билл» Филлипс, Стэнли ЭндрюсПеревод: профессиональный многоголосый (5 канал)Субтитры: английскиеПродолжительность: 01:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4067B6D9BF70C11B8C2214D3015370FC75559F89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510068   (792088) от 15.11.2021
+
+Картинки - NNM-Club - Календари на 2022 от Warrior 123 №25 - 1510068 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792088.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 1920x1038
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90A5E42BF31F34ABAB16EC2F06E54D40031C606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510070   (792087) от 15.11.2021
+
+Картинки - NNM-Club - Календари на 2022 от Warrior 123 №26 - 1510070 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 1920x1038
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFA6C839F991F4F1CBDBEF0756A424A8B715B31D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510071   (792086) от 15.11.2021
+
+Картинки - NNM-Club - Календари на 2022 от Warrior 123 №27 - 1510071 [JPG]
+
+>>Графика, Арт, Разное
+>>Картинки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Календари созданные нашим одноклубником Warrior 123Формат: JPGРазрешение файлов: 1920x1038
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E607E969EA135FE4D2D726A184EA7D2A73E3268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510146   (792085) от 15.11.2021
+
+Glary Utilities Pro 5.176.0.204 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Яндекс.Браузер - быстрый, удобный и безопасный веб-браузер с современными технологиями и возможностями. Связка движка Blink плюс интерфейсной оболочки Chromium позволяет работать веб-браузеру с максимальной производительностью, когда каждая вкладка является отдельным процессом и за освобождением памяти следит операционная система, что является более эффективным. (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+Glary Utilities - функциональный набор системных твикеров и утилит, для тонкой настройки, повышения общего уровня производительности и защиты ПК. Данное приложение позволяет пользователю избавиться от ненужных файлов, от устаревших регистрационных записей и истории интернет-активности, посредством установки различных плагинов, можно добиться полной совместимости (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C010557D0E5B300981BC904DE37424666D39A5E0
+magnet:?xt=urn:btih:B409A341ED63EBDEFC128F86BBD0C7638DB38664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510098   (792084) от 15.11.2021
+
+Margenta - Маги И Маглы (2021) 2xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Margenta — проект, состоящий из альбомов, написанных полностью на ранее неизданные стихи Маргариты Пушкиной и с её участием.
+Музыка в таких альбомах пишется на уже готовые тексты, а не наоборот, как обычно в указанных выше рок-группах.
+Проект Margenta осуществляется при участии многих известных музыкантов.
+Среди принявших участие в записях: Валерий Кипелов, Дмитрий (   Читать дальше...   )CD - 1:
+01. Пророчество (1:06)
+02. Гарри Поттер (Детство Сердца И Беда!) (2:30)
+03. На Смерть Профессора Альбуса Дамбадора. Реквием (4:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D0B9378D72679D394AC41CFEC73B36068417BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510155   (792083) от 15.11.2021
+
+Формула 1. Сезон 2021. Этап 19. Гран-при Сан-Паулу. Гонка (14.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792083.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 ноября 2021, воскресенье. 20:00 МСК
+Этап 19. Сан-Паулу, Бразилия. Гонка (71 круг)Телекомпания: Матч!Жанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEFDEC67451607A88553399ABF14D8C8ED5910D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510137   (792082) от 15.11.2021
+
+Волчица / Матушка Гусыня / Gasmamman (2019) WEB-DL [H.264/1080p-LQ] (сезон 4, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соня живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится вступить в совершенно неизвестный ей преступный мир и "брататься" с гангстерами местного и международного масштаба. Из доброй и беззаботной мамаши она превращается в сильную и порой жестокую волчицу, готовую (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские, шведские, датские, норвежские, финскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34A433BF589D0D8DBB8E1FA84E4CE3B26299CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510130   (792081) от 15.11.2021
+
+Волчица / Матушка Гусыня / Gasmamman (2017) HDTVRip [H.264/720p-LQ] (сезон 3, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соня живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится вступить в совершенно неизвестный ей преступный мир и "брататься" с гангстерами местного и международного масштаба. Из доброй и беззаботной мамаши она превращается в сильную и порой жестокую волчицу, готовую (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские, шведские, датские, норвежские, ФинскиеПродолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3A5BB87B83DCF409428F3213EF74EA34D47E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510192   (792080) от 15.11.2021
+
+Герт Нюгордсхауг | Фредрик Дрюм (Книга 2). Гренландская кукла (2021) [MP3, Кирилл Радциг]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792080.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию предлагается вторая книга из серии о Фредрике Дрюме — знатоке вин, ценителе красивых женщин, владельце эксклюзивного ресторана в центре Осло и… талантливом сыщике, открытия которого не раз приводили в трепет не только преступный мир, но и знаменитых ученых.Жанр: ДетективПродолжительность: 06:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C399353632D85376879F60488D978924D9EE847B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510145   (792079) от 15.11.2021
+
+Птичий дозор / Manou the Swift / Birds of a Feather (2019) BDRip [H.264/1080p-LQ]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стриж Ману растет в семье чаек и изо всех сил пытается научиться плавать, ловить рыбу и летать так же, как и они. Но во время традиционного летнего состязания он понимает, что никогда не сможет стать чайкой. Раздосадованный Ману улетает из дома, где встречает новых друзей. Из-за этого портятся его отношения с родной стаей. Но тут в дело вмешивается случай. Ману, (   Читать дальше...   )Производство: Германия / LUXX FilmЖанр: Мультфильм, комедия, приключения, семейный, полнометражныйРежиссер: Кристиан Хаас, Андреа БлокАктеры: Фридрих Мюке, Кассандра Стин, Оливер Калькофе, Ульрике Штурцбехер, Доминик Кун, Джули Натансон, Сонни Дей, Марианн Келли, Симон Брендель, Мориц БренделПеревод: Дублированный (iTunes)Субтитры: АнглийскиеПродолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9755045B7A79B7E6CEC30CD0BE49A192BB5852EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510131   (792078) от 15.11.2021
+
+Волчица / Матушка Гусыня / Gasmamman (2016) HDTVRip (сезон 3, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Соня живет беззаботной жизнью с любимым мужем и детьми недалеко от Стокгольма. Но в один прекрасный день ее жизнь кардинально меняется. Соне приходится вступить в совершенно неизвестный ей преступный мир и "брататься" с гангстерами местного и международного масштаба. Из доброй и беззаботной мамаши она превращается в сильную и порой жестокую волчицу, готовую (   Читать дальше...   )Производство: Швеция / Endemol Shine Nordics, Discovery Networks Sweden, C More EntertainmentЖанр: триллер, драма, криминалРежиссер: Ричард Холм, Joakim Eliasson, Олоф СпаакАктеры: Александра Рапапорт, Клара Христианссон, Эдвин Рюдинг, Йоэль Люцов, Грюнет Мольвиг, Шебли Ниаварани, Кристиан Свенссон, Ульф Фриберг, Аня Лундквист, Анастасиос Соулис и др.Перевод: Профессиональный двуголосый (ViruseProject)Язык озвучки: Русский, шведскийСубтитры: Русские (отдельно)Продолжительность: ~00:45:00 серияРеклама: Присутствуют видео, аудио вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47955138F2E768D4078B00FB48A04DDA4E6048C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510230   (792077) от 15.11.2021
+
+Mozilla Thunderbird 91.3.1 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792077.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mozilla Thunderbird –  легкая и безопасная бесплатная программа для работы с электронной почтой. Thunderbird дает большой потенциал для удобной обработки электронных сообщений, позволяет управлять большим списком контактов и производить множество других операций. В Mozilla Thunderbird присутствует мощнейший спам - фильтр, который можно обучать в процессе работы с (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FF3B66BA5A68CA92BD96758627EA764D188FF99
 ```
 
 https://mybot314.ru/tekegram_catalog/

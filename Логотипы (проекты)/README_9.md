@@ -1,3 +1,81 @@
+###  Публикация: 1006674   (824908) от 13.04.2016
+
+Проекты - VideoHive - Space Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824908.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Отлично подходит для пленочных интро, веб-сайта и многое другое.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC645724F2BD81BE58CC966FEC2E99BB8A7F1164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006713   (824898) от 13.04.2016
+
+Проекты - VideoHive - Elegant Logo Animation [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824898.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elegant Logo Animation - элегантный и красивый логотип для вашей компании или бизнеса. 100% After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F86EEA733751DB2E07CBE6097F0BC73ED989A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006616   (824794) от 13.04.2016
+
+Проекты - VideoHive - Smoke Plume Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа, появляющегося из взрыва дыма.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15775C80E0BCA145F272DB47EDF34E052185CFF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006980   (824791) от 13.04.2016
 
 Проекты - VideoHive - Beauty Particles World [AEP]
@@ -595,85 +673,6 @@ Flip Book Opener - это универсальный шаблон After Effects,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F27EDE79B5254B1198F88DD307BF2A8D06E5CFDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382902   (814807) от 13.05.2020
-
-Проекты - VideoHive - Poker Champions - Premiere Pro - 26622415 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Идеальный проект для рекламы казино, шоу с азартными играми, чемпионатов по покеру,  событий в игорном бизнесе.Формат: AEP, Mogrt
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96F6F2AFF0C3B061B8F43F03B793B163D0571952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 883038   (814540) от 30.03.2015
-
-Проекты - Revostock - Cartoon Logo Painter - 1024889 / Pond5 - Cartoon Logo Painter - 47516558 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультяшный проект для оживления вашего статичного лого. Саунд и ридми включены. Понятная структура проекта.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A6FC56DEE01F8754AEE6B137CB586A2A703ED3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 883043   (814406) от 30.03.2015
-
-Проекты - VideoHive - Cartoon Sneaky Box Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мультяшный проект, хорошо подходит для оживления лого или как оупенер.
-Музыка включенаФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DAA214773662B1299696C91293DF68A59AA5A72
 ```
 
 https://mybot314.ru/tekegram_catalog/

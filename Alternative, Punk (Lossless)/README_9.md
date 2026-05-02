@@ -1,3 +1,61 @@
+###  Публикация: 1369640   (902129) от 24.03.2020
+
+DISQ - Collector (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daily Routine (04:24)
+02. Konichiwa Internet (03:11)
+03. I’m Really Trying (02:37)
+04. D19 (03:06)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEBC00EB0698665AF115C177E8C3B196599F419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369626   (902031) от 24.03.2020
+
+Stephen Malkmus - Traditional Techniques (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ACC Kirtan (06:19)
+02. Xian Man (04:06)
+03. The Greatest Own In Legal History (03:47)
+04. Cash Up (04:06)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91D056E4B1493C3B42AECD57EA97506899ADC611
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369934   (900437) от 25.03.2020
 
 Grouplove - Healer (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
@@ -682,64 +740,6 @@ Basia Bulat - Are You in Love? (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A208D17A940C6F765C2BED3D790278455B8F383D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995286   (884512) от 11.03.2016
-
-3 Doors Down - Us And The Night (2016) [FLAC|Lossless|tracks] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Broken (02:46)
-02. In The Dark (03:43)
-03. Still Alive (02:41)
-04. Believe It (03:21)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:37:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370F3056EC282AEFFDFAB2DF453FB317B8491B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995412   (884281) от 11.03.2016
-
-3 Doors Down - The Greatest Hits (2012) [FLAC|Lossless|image + .cue] <Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kryptonite (4:03)
-02. When I'm Gone (4:20)
-03. Here Without You (3:56)
-04. It's Not My Time (4:03)(   Читать дальше...   )Жанр: Alternative Rock, Post-GrungeПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0896E62407CC1B6E4275AA3C70267C83FFCBDA0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

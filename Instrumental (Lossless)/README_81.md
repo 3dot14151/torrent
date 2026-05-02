@@ -1,3 +1,119 @@
+###  Публикация: 1620699   (245998) от 21.03.2023
+
+Harry Hmura - Goin’ Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogie Run (4:48)
+02. Cool Cool World (4:05)
+03. Goin’ Home (4:55)
+04. Sweet Poppy (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DC7E018208C1CC748341D53F20BE545E47C63E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620678   (245941) от 21.03.2023
+
+Bernard Sellam & The Boyz From The Hood - Feelin' So Fine (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feelin' So Fine (2:30)
+02. You Got Me Reeling & Rocking (2:04)
+03. You Were Wrong (3:25)
+04. Midnight Hour (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CB950B6848BC9569DDD481612AB37E7A58D2CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623332   (245854) от 02.04.2023
+
+Bart Ryan - Messenger (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One World (4:53)
+02. Street Corner Angel (3:31)
+03. I am a King (4:11)
+04. The Ballad of the Lizard and the Frog (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A36E4CB79097144C7D549E386301EAE147DA7B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620307   (245705) от 20.03.2023
+
+VA - Funk, Soul & Blues Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lionel Richie -- All Night Long (All Night) (Single Version) (6:23)
+02. Barry White -- Can't Get Enough Of Your Love, Babe (4:27)
+03. Marvin Gaye -- Let's Get It On (4:51)
+04. Mary J. Blige -- U + Me (Love Lesson) (5:00)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DB77A71567334530DB2761B69ACE8F56C745394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058451   (245686) от 01.10.2016
 
 Harry Manx & Kevin Breit - Jubilee (2003) [APE|Lossless|image + .cue] <Blues, Folk, World>
@@ -629,122 +745,6 @@ Elles Bailey - Shining in the Half Light (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E8A4AF67E92C77A600254F55B4109C70BB52CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625786   (244163) от 12.04.2023
-
-Dirty Deep - Trompe l'oeil (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Bones (3:27)
-02. Juke Joint Preaching (3:46)
-03. Don't Be Cruel (3:51)
-04. Hipbreak III (1:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE16E0DB6C0708A2356B41BD9F1C9FF210CAD85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632788   (243775) от 12.05.2023
-
-Gwyn Ashton - Mojosoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. By Your Side (2:34)
-02. Vanish Into Thin Air (3:47)
-03. No More (4:28)
-04. Take Your Medication (3:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FACFC7DF4A1E6F931F9695265E61F24842BBDC6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623334   (243396) от 02.04.2023
-
-Misty Blues - Outside the Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Your Blues Come From (3:16)
-02. I Don't Sleep (feat. Petri Byrd) (4:14)
-03. Every Which Way (2:58)
-04. One Of These Days (feat. Matt Cusson) (4:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACB4EFB89FB6DF0479B79A07C7A0574EFF1E635E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633460   (243315) от 15.05.2023
-
-Dudley Taft - Guitar Kingdom (2023) [FLAC|Lossless|image + .cue] <Texas Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black And Blues (4:54)
-02. Old School Rocking (4:57)
-03. Oil And Water (4:42)
-04. Still Burning (4:37)(   Читать дальше...   )Жанр: Texas Blues, Blues RockПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C907AC894F37E9CA1E02725922B83EA578A987
 ```
 
 https://mybot314.ru/tekegram_catalog/

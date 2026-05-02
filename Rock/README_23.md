@@ -1,3 +1,32 @@
+###  Публикация: 1277524   (785024) от 21.01.2019
+
+The Shockwave! - Contact From Space (2014) [MP3|320 Kbps] <Rock, Surf>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Gambler (3:24)
+02. Gasping Runner (3:30)
+03. Contact! (2:33)
+04. After Stormy Weather (4:33)(   Читать дальше...   )Жанр: Rock, SurfПродолжительность: 00:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D746D43C484EF1CC023FDB67C178154102528187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389102   (784758) от 09.06.2020
 
 THINK PINK! - A Saucerful Of Pink Floyd Songs .... And A Little Bit More! (2011) [MP3|320 Kbps] <Rock>
@@ -722,35 +751,6 @@ White Wing - White Wing (1976) Remastered, 2017, PROGAOR [MP3|320 Kbps] <Prog Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E02BA2DF4413EE368BAF98DCA87E29438584A638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206959   (781318) от 16.02.2018
-
-Abney Park (Эбни Парк) - The Death Of Tragedy (2005) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Stigmata Martyr 5:05
-02. The Wrong Side 3:31
-03. Dear Ophelia 4:51
-04. Witch Cult 0:25(   Читать дальше...   )Жанр: Folk Rock, Alternative RockПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA49C1DD22F6AFC12A5F72E77C50306F05E9550
 ```
 
 https://mybot314.ru/tekegram_catalog/

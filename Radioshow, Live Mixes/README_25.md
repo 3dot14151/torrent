@@ -1,3 +1,61 @@
+###  Публикация: 1740435   (105850) от 02.08.2024
+
+VA - Armin van Buuren - A State Of Trance 1184 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren - Es Vedrà (Tune Of The Week)
+02. Farius & RUNN - I Surrender
+03. Gareth Emery & STANDERWICK ft. HALIENE - Saving Light (Gregor Larsen Remix)
+04. Avalan Rokston & ARTBAT - The Ocean(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E71AE2C392DF6E771BE3E3F041B9455B9146353
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742067   (105573) от 11.08.2024
+
+Eric Prydz presents [CELL.], Hï Ibiza, Spain (2024-07-22) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pryda - Welcome To My House (EPIC 4.0 VIP)
+02. Pryda - Creamfields South 2023 Intro ID (Working Title)
+03. Pryda - Phantom Paris 2023 ID (Working Title)
+04. Cirez D - HOLO Hi Ibiza 2023 ID (Working Title) (Tease)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285DDDF40DF4D55FA3A8A1D7053F5D42132B773F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742479   (105458) от 15.08.2024
 
 MEDUZA - Radio 1's Essential Mix (2024-07-13) [MP3|~245 Kbps (V0)] <Progressive House, Melodic House, Techno>
@@ -681,64 +739,6 @@ VA - Armin van Buuren - A State Of Trance 1204 (Top 50 Of 2024) (2024) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC6686D770BE6321D3883590CE492B5AD80F146E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766805   (101209) от 21.12.2024
-
-Markus Schulz - Global DJ Broadcast Year in Review Part 2 (2024-12-19) [MP3|320 Kbps] <Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101209.jpg" />
-</div>
-
-
-###  Подробнее
-
-41. Zyon - No Fate (Adam Beyer Remix)
-42. Markus Schulz & Emma Hewitt - Till We Fade (Club Mix)
-43. BLR & Matt Sassari - Close Encounters
-44. Elysian - Sparks in the Night(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:01:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4AD6CAD4F5771EC9C6D0E6487AB031A95FEA3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767082   (101205) от 21.12.2024
-
-Lane 8 - Winter 2024 Mixtape (2024-12-18) [MP3|320 Kbps] <Progressive House, Melodic House, Deep House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101205.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tourist & Gold Panda - +1
-02. Tiga & Hudson Mohawke ft. Jesse Boykins III - Silence Of Love (Reznik Remix)
-03. Pambouk - Hidden Faces
-04. Ashibah - Autumn(   Читать дальше...   )Жанр: Progressive House, Melodic House, Deep HouseПродолжительность: 02:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68494378F3AD18B738256B3793D25BC22836B38F
 ```
 
 https://mybot314.ru/tekegram_catalog/

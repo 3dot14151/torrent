@@ -1,3 +1,61 @@
+###  Публикация: 1397690   (737561) от 22.07.2020
+
+VA - Beatport Trance: Electro Sound Pack: #128 (2020) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737561.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Don Ka Millo - Message In A Bottle
+002. Sunlounger - White Sand
+003. Stolas - Beck Neck
+004. Akerman - Gate Of Time(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 10:12:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0B65AE4FD77D1E37F0C5085EA05A54023DA95F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397682   (737549) от 22.07.2020
+
+VA - Beatport Chill House: Electro Sound Pack #129 (2020) [MP3|320 Kbps] <Chill House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737549.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sharapov - My Way (Original Mix)
+002. Aex - I Wanna Know
+003. Dp Project - The Magic Dream Of Music
+004. Max The Sax - Make Me Feel Good(   Читать дальше...   )Жанр: Chill House, Deep HouseПродолжительность: 11:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1652F5848130303B7BDC0933B990A1EC8C205FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1397692   (737545) от 22.07.2020
 
 VA - DUB Tropical House: World Electro Sound (2020) [MP3|320 Kbps] <Dub House>
@@ -687,64 +745,6 @@ VA - Beatport Psy Trance: Electro Sound Pack #139 (2020) [MP3|320 Kbps] <Psyched
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:504A65767122DF935D13C8B74F8FACBA1951FD4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398923   (734305) от 29.07.2020
-
-VA - Beatport Future House: Sound Pack #138 (2020) [MP3|320 Kbps] <Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734305.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Don Alpha - Follow The Loves
-002. Klartraum - Orchidee
-003. Mind Of One - Mystic
-004. Max Tresher - Trippin(   Читать дальше...   )Жанр: Future HouseПродолжительность: 08:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83004F791FFE6A32E3A57B40B46CF095A0FFC602
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528629   (734021) от 03.02.2022
-
-VA - Housewerk (2022) [MP3|320 Kbps] <Tech House, Minimal, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MK - Chemical (4:10)
-02. Navos, HARLEE, Emily Nash - You & I (2:52)
-03. Noizu - Middle (3:01)
-04. NuBass, MPH, Purple Velvet Curtains - The Night (2:53)(   Читать дальше...   )Жанр: Tech House, Minimal, HouseПродолжительность: 06:13:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D8719A9C2C81EE19E346B4A98D6303EED84527
 ```
 
 https://mybot314.ru/tekegram_catalog/

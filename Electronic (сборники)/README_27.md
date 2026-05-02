@@ -1,3 +1,61 @@
+###  Публикация: 1094965   (927214) от 19.01.2017
+
+VA - The Prodigy - Best275z (1992 - 2015) [MP3|320 Kbps] <Electronic, Break beat>
+
+>>След.
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Smack My Bitch Up 05:43
+02 Nasty 04:04
+03 Omen 03:37
+04 Their Law (feat. Pop Will Eat Itself) 06:41(   Читать дальше...   )Жанр: Electronic, Break beatПродолжительность: 04:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3596BD112A1405A1E4CE3947F12A984E2EDEC764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987634   (926244) от 17.02.2016
+
+VA - 100% Bigroom Vol. 1 (2016) [MP3|320 кб/с] <Progressive House, House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Braudt/Naza Brothers - C'mon Everybody! (feat Mr Shammi - original mix) 04:46
+02. Lights - Blade (original mix) 04:37
+03. Naza Brothers/Braudt - Bounce It! (feat Sharon - extended mix) 04:20
+04. Tim White - Take Me Over (feat Erica Gibson - South Blast! Bounce Over remix) 04:50(   Читать дальше...   )Жанр: Progressive House, House, Electro HouseПродолжительность: 01:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B15E9084F6535F05259D715028EA0C24F8840A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 987548   (926242) от 17.02.2016
 
 VA - EDM Deejay Compilation 2016 (2016) [MP3|320 кб/с] <Electro House, Progressive House>
@@ -687,64 +745,6 @@ VA - Beatport Techno: Electro Sound Pack #23 (2020) [MP3|320 Kbps] <Techno, Mini
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E784FE20C35E59173F076E1884075FC953C33AE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366643   (922112) от 12.03.2020
-
-VA - Beatport Tech House: Electro Sound Pack #24 (2020) [MP3|320 Kbps] <Tech, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922112.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Haldo Gee - Puerto Escondito (House Tribe Mix)
-002. Bozoo Romle - Breathe (Original Mix)
-003. David Novacek - Yeah (Original Mix)
-004. Marcos Salas - Spanish Tech(   Читать дальше...   )Жанр: Tech, Deep HouseПродолжительность: 11:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:116EB57E4D5CC382DDABC223A6632D4DF13191DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096254   (921072) от 23.01.2017
-
-VA - Stay With Producer Construction (2017) [MP3|320 Kbps] <House,  Progressive, Soulful, Nu Disco, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boogie Bros Feat. Big Daddi - Fight For Your Right! (Yelhigh! Remix Edit)  3:14
-02.  R3HAB & ZROQ - Skydrop (Ethyr Remix)  6:07
-03.  Uberjak'd Ft Nuthin Under A Million - All I Need (Bomber) (Nicolas Strands Remix)  4:39
-04.  Stefano Carparelli & Torny - Beautiful Day (Hard Mix)  5:20(   Читать дальше...   )Жанр: House,  Progressive, Soulful, Nu Disco, ClubПродолжительность: 06:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA5068AE05D377C57BBFF6B17B9B027897B4444
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1516192   (166845) от 10.12.2021
+
+VA - Armada Music 2022 (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tinlicker, Helsloot - Because You Move Me (03:16)
+02. Kidnap, Leo Stannard - Moments (Ben Bohmer & Nils Hoffmann Remix) (04:10)
+03. Loud Luxury, Thutmose - Red Handed (02:51)
+04. Armin van Buuren, Davina Michelle - Hold On (03:28)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:22:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2B7585A722C47AE20EF12D115AAAC600103635D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597402   (166683) от 14.12.2022
 
 VA - Anjunadeep The Remixes 2022 (2022) Mixed [FLAC|Lossless|WEB-DL|tracks] <Melodic House & Techno>
@@ -707,35 +736,6 @@ SC-164 - CH-003 (2019) [FLAC|Lossless|WEB-DL|tracks] <Electro, Experimental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB835CBB683202E18561130C200137BE81AB8492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270878   (154324) от 21.12.2018
-
-Orbital - Live At Eventim Hammersmith Apollo (15.12.18) (2018) Live Here Now [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Techno, Electro, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:46)
- 02. Monsters Exist (06:21)
- 03. There Will Come A Time (07:06)
- 04. Impact (The Earth Is Burning) (09:33)(   Читать дальше...   )Жанр: Leftfield, Techno, Electro, HouseПродолжительность: 01:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4524293D37668E384BBD5E615DCD290A5C5AFD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

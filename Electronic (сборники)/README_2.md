@@ -1,3 +1,61 @@
+###  Публикация: 1439080   (1040370) от 11.01.2021
+
+VA - Merry Chrirtmas EDM Party (2021) [MP3|320 Kbps] <Dance, Electro, Techno, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рады представить Вашему вниманию весеннюю новогоднюю новинку - отличную позитивную подборку электронной популярной музыки под названием "Merry Christmas EDM Party". Композиции лонгплея завоюют внимание слушателя своей танцевальной энергетикой и эмоциональной насыщенностью.001. Soultekk - I Can Do
+002. Dj Xris2 - Dancing Queen
+003. Solon - Together All
+004. Sound Breakers - The Fog(   Читать дальше...   )Жанр: Dance, Electro, Techno, HouseПродолжительность: 08:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598E606A53F3FF69D0BF157E66744153382E1EAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439291   (1040116) от 12.01.2021
+
+VA - Forever Love: Syntpop Mix (2021) [MP3|320 Kbps] <Synthpop, Electropop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040116.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лонгплей будет интересен не только тем слушателям, которые хотят просто послушать качественную и популярную музыку, но и тем кто находится в поисках чего-нибудь необычного и непохожего на основную массу электронной музыки.01. Phonon - 1469 (Original Mix)
+02. Irrlicht - Neuland
+03. Latin Lover - Casanova Action
+04. Blaqk Audio - Consort(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 05:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83489E28E7E2C890E08DC5D6C9BB2766D09ACC0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1439294   (1040110) от 12.01.2021
 
 VA - Flowers Chillout Mix (2021) [MP3|320 Kbps] <Chillout, Ambient, Lounge, Downtempo>
@@ -687,64 +745,6 @@ VA - Beatport Hardstyle: Electro Sound Pack #228 (2021) [MP3|320 Kbps] <Hard Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F0F3FE4B3FEF7B2A1F4D68B93897D0C4EDBCB31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443378   (1035763) от 28.01.2021
-
-VA - Beatport Electro House: Sound Pack #231 (2021) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы не из числа людей, которые любят переслушивать одну и туже композицию по сто раз? Вам нужно как можно больше разнообразной музыки? Тогда Вы попали по адресу. Представляем вашему вниманию эксклюзивную подборку длинною в целых девять часов, которая составлена из ста композиций эксклюзивной музыки!001. Anthony King - Sex Tonight Again
-002. Ivan Herb - Follow Me
-003. Vin Carter - Special Fat Boy
-004. Art Object - Panaram(   Читать дальше...   )Жанр: HouseПродолжительность: 09:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B64F3559A86A354EDDC4247649BC58014017E08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443369   (1035753) от 28.01.2021
-
-VA - Beatport D&B: Electro Sound Pack #229 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Прекрасный сборник лучшей музыки линейки BassLine зимнего сезона от Beatport. В подборку вошли сто десять потрясающих композиций, каждая из которых выполнена в своем уникальном звучании, отличном от общей массы музыкальных треков жанра. Более восьми часов молодежной музыки, которая явно сможет поднять вам настроение, даже в самый унылый день.001. Mikal - Scrapyard Dub
-002. Gevolgen - Tortilla Moon
-003. DJ Jann - Lightworks
-004. Hadiex - Lonely(   Читать дальше...   )Жанр: D&B, Bassline, ElectroПродолжительность: 08:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844358A00CCFB82609E04600864132F3162096EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

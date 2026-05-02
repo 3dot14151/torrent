@@ -1,3 +1,116 @@
+###  Публикация: 965846   (224413) от 15.12.2015
+
+Путь Солнца - Гимны Победы. Часть 2. Весна 19.16 (2015) [MP3|320 кб/с] <Pagan Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224413.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Берсерк
+2. Северные Боги
+3. Весна 19.16
+4. Странник (Памяти Jim Morrison)(   Читать дальше...   )Жанр: Pagan Thrash MetalПродолжительность: 00:22:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD474EF2B4DD3B1E866EA285B454F985A6555B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268920   (224400) от 12.12.2018
+
+Ленинград - Антидепрессанты (2018) Single [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224400.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. АнтидепрессантыЖанр: Rock, SkaПродолжительность: 00:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631E4FC8FE73448DBF40CE5AC0B50C87740CFD0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965514   (224318) от 15.12.2015
+
+Время Жатвы - Час Мародера (2015) [MP3|320 kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Итаки Больше Нет (03:27)
+02. Час Мародера (04:13)
+03. Быстрый Как Свет (05:14)
+04. Американская Мечта (04:13)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:990FE4F8042BDCE188D9538437048B414C8DB0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650633   (223951) от 04.08.2023
+
+ЕстьЧО - 4 Albums (2015-2021) [MP3|320 Kbps] <Ska Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - Баян
+2015 - Эстетика рабочего класса
+2017 - Половина Фёдора(   Читать дальше...   )Жанр: Ska PunkПродолжительность: 4 CD, 02:05:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A75161F1F8F27EAE8285C29042BA99F3D8A072C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 587404   (223841) от 10.12.2012
 
 Коrsика - Точка Невозврата (2012) [MP3|320 кб/с]<Heavy Metal>
@@ -625,122 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6EA4475EF3517965EF8801C30AF09613E60D148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269601   (219883) от 15.12.2018
-
-Алексей Марковников (Год Змеи) - Мы ещё полетаем (the Best) (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219883.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Первый самолёт
-2. Мы ещё полетаем
-3. Две тысячи баксов
-4. Господин диспетчер(   Читать дальше...   )Жанр: RockПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2A2CB95DBDD34A869532E957C9F1AC7568C2580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651698   (219516) от 09.08.2023
-
-Глупое солнце - Синдром одиночества (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - ИНТЕРНЕТ [00:02:37]
-02 - 13,42 (Intro) [00:01:17]
-03 - ИЩИ МЕНЯ [00:03:31]
-04 - БЕГИ [00:02:42](   Читать дальше...   )Жанр: RockПродолжительность: 00:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F8BC8F5A11CFA1B047FBD38A7413121F01B088
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514158   (219460) от 02.12.2021
-
-Fun Mode - Небеса (2021) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219460.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Майнеры
-2. Броксигар
-3. Дренеи
-4. Древний ужас(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D59455BA9A3A7589234753F3FAE125132D0BCA7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966378   (218931) от 18.12.2015
-
-Ритмы подвалов - Акустический (2015) [MP3|320 кб/с] <Acoustic, Pop-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218931.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Депрессия
-2 Дед
-3 Мгновения
-4 Я с Тобой(   Читать дальше...   )Жанр: Acoustic, Pop-PunkПродолжительность: 00:28:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE6AD795430B9DF9255663094054100DB9E4209
 ```
 
 https://mybot314.ru/tekegram_catalog/

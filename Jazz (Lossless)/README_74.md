@@ -1,3 +1,61 @@
+###  Публикация: 1275521   (789918) от 12.01.2019
+
+Alex Skolnick Trio - Conundrum (2018) [FLAC|Lossless|tracks + .cue] <Fusion, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbound
+02. Django Tango
+03. Conundrum
+04. Gymnopedie No.1(   Читать дальше...   )Жанр: Fusion, JazzПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844FA36D0A1A1457F8A12EDED066F1D787D7CA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275491   (789916) от 12.01.2019
+
+Denny Jiosa - Mueve Tu Cuerpo (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fumarlo Bebe
+02. Mueve Tu Cuerpo
+03. Missing You
+04. Dance In Heaven(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF818EA76F2BFE374B074BA406424327E491F8B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275493   (789914) от 12.01.2019
 
 Dog Drive Mantis - How Did We Get Here (2018) [FLAC|Lossless|WEB-DL|tracks] <Fusion, Jazz-Rock>
@@ -687,64 +745,6 @@ Freddy  Johnson  And  His  Orchestra - 1933 - 1939 (1995) Classics [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DC06924F764E70F95A85063ECCD107B95A59DE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276482   (788235) от 16.01.2019
-
-Mike LeDonne - The Groover (2010) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock With You [6:59]
-02. Blues For McCoy [6:36]
-03. Little Mary [6:39]
-04. I'm Goona Make You Love Me [8:24](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9BF447F23945057EF04ACB7C8E018B14C179DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276391   (788225) от 16.01.2019
-
-Gerald Toto - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alger 69
-02. Day by Day
-03. My Girlfriend
-04. Away Alive(   Читать дальше...   )Жанр: Vocal Jazz, World, PopПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B2714925AFF218FCB80208184E5DE2BF94BCA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

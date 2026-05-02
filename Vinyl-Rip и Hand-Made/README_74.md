@@ -1,3 +1,174 @@
+###  Публикация: 1713681   (111867) от 06.04.2024
+
+The Bravery - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-punk Revival>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111867.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Bravery — американская рок-группа из Нью-Йорка.2005 - The Bravery
+2008 - The Sun And The Moon Complete
+2009 - Stir the BloodЖанр: Post-punk RevivalПродолжительность: 02:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD05AD42A0C4186167B8C21AA8E32A632276429F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714072   (111773) от 08.04.2024
+
+Bobby Lee Springfield - All Fired Up (1987) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Country, Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111773.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Hank Drank
+A2 Teenage Darling
+A3 Chain Gang
+A4 I Need A Girlfriend(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B167C450BBC6E684F1A75FDE03105DF41B7A2740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714647   (111668) от 10.04.2024
+
+«Joshua» (Joshua Perahia) - Surrender (1986) [FLAC 2.0|24/192|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111668.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Surrender Love
+A2 Heart Full Of Soul
+A3 Your Love Is Gone
+A4 Hold On(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A1ADDB93E540F98C41D3907E4604ADB9190AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714835   (111663) от 10.04.2024
+
+Storm - Nordavind (1995) [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking, Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111663.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Innferd
+A2 Mellom Bakkar Og Berg
+A3 Haavard Hedde
+A4 Villemann(   Читать дальше...   )Жанр: Viking, Folk MetalПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803909040C1D0BD7241CE5C5CCE490680BBB9E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714946   (111605) от 11.04.2024
+
+Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Math Metal, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Periphery — американская группа, играющая в жанре прогрессивный метал. Возникла в 2005 году в городе Бетесда. Группа популяризовала современный прогрессивный метал, в особенности поджанр джент.2010 - Periphery
+2011 - Icarus (EP)
+2012 - Periphery II: This Time It's Personal
+2014 - Clear (EP)Жанр: Progressive/Math Metal, DjentПродолжительность: 08:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC09D39B5C765154131DE943D3A59AD10BBD084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715848   (111466) от 13.04.2024
+
+S-Tool (Severing Tool) - Studio Albums (2 releases) (2017-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111466.jpg" />
+</div>
+
+
+###  Подробнее
+
+S-Tool (или Severing Tool) — финская хэви-метал группа, базирующаяся в Оулу/Лахти/Хельсинки. Основана в 2015 году бывшим фронтменом2017 - Tolerance 0
+2020 - ExitusЖанр: Groove MetalПродолжительность: 01:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8980719678D04F84F44C138422433D0A65FC56F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716779   (111305) от 17.04.2024
 
 Citron - Tropic Of Cancer/Full Of Energy (1983/1986) 2xLP [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Heavy Power Metal>
@@ -569,180 +740,6 @@ Pagan's Mind — прогрессив-пауэр-метал-группа из Ш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F60BA97EEAC7248769C2AFCB66CE30B6588387DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720081   (110386) от 02.05.2024
-
-Shakatak - Time Of My Life (1988) (Extended Mix) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110386.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Time Of My Life (Extended Mix)
-B1 Slow Dancing
-B2 Mr.Manic And Sister Cool (Coolest Cuts)
-(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:15:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DBE8080503F300D1318982414D7D84E6B63567B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720538   (110246) от 04.05.2024
-
-U.D.O. - We Are One (2020) Collaboration[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110246.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Pandemonium
-A2 We Are One
-A3 Love And Sin
-A4 Future Is The Reason Why(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86529A13DDBC643461F0CB523B436A114F32D560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720697   (110228) от 04.05.2024
-
-Mekong Delta - Studio Albums (6 releases) (1996-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mekong Delta — немецкая группа, играющая прогрессивный трэш-метал, образованная в середине 80-х годов из участников других групп. Некоторые имена, использованные в их релизах, были псевдонимами, чтобы защитить их настоящую личность. Основатель группы - владелец звукозаписывающей компании AAAARRG, басист Ральф Хуберт, он же «Бьёрн Эклунд». Остальные музыканты пришли (   Читать дальше...   )1996 - Pictures At An Exhibition
-2007 - Lurking Fear
-2010 - Wanderer On The Edge Of Time
-2012 - IntersectionsЖанр: Progressive Thrash MetalПродолжительность: 05:23:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44AE7492408E445D7280CF7B12FBDC01224062A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720542   (110218) от 04.05.2024
-
-U.D.O. - Game Over (2021) Limited Edition,2022, AFM Records[FLAC|24/192|tracks|Vinyl-Rip]  <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110218.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fear Detector
-A2 Holy Invaders
-A3 Prophecy
-A4 Empty Eyes(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B65DBAAD63F95508154A788EC552207CBC2A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720647   (110212) от 04.05.2024
-
-Nick Kamen - Nick Kamen (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110212.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Win Your Love
-A2 Open The Door To Your Heart
-A3 Nobody Else
-A4 Into The Night(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:899AA2E0691E2EE87FCD1B0B268DC648237D016C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721475   (110038) от 07.05.2024
-
-Broken Homes - Broken Homes (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Power Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110038.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 In Another Land
-A2 An L.A. Rain
-A3 Out In The Fields
-A4 Painless Saturday(   Читать дальше...   )Жанр: Rock, Power PopПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08CF3344BB4D85B9F6EAF97231318CE41197FF5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

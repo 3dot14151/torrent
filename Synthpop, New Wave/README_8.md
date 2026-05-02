@@ -1,3 +1,32 @@
+###  Публикация: 1571663   (425505) от 25.08.2022
+
+Sandra - Curated By Blank & Jones – So80s (Soeighties) Presents Sandra, 2CD (2012) [OGG Vorbis|485 Kbps] <Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maria Magdalena (Extended Version)	7:11
+02. In The Heat Of The Night (Extended Version)	7:24
+03. Little Girl (Extended Version)	5:21
+04. Innocent Love (Extended Version)	6:46(   Читать дальше...   )Жанр: Synth-popПродолжительность: 02:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E209CC2FDCDF72104258A5419487690CE3946314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1572212   (423517) от 26.08.2022
 
 A-Ha - Headlines And Deadlines: The Hits Of A-Ha - 2 (1992) [OGG Vorbis|485 Kbps] <Electronic>
@@ -717,35 +746,6 @@ Scandroid - Monochrome (Instrumentals) (2017) [MP3|320 Kbps] <Synthpop, Synthwav
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E30C55B3529063CE5AC86988C8E3F14853D4B376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578913   (341079) от 25.09.2022
-
-Galaxy Hunter - We Came From Space (2008) [OGG Vorbis|484 Kbps] <Electronic, Italo-Disco, Ambient>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Tribute To Challenger)	1:57
-02. We Came From Space	5:15
-03. Children Of Planet Earth	5:32
-04. Another World	5:33(   Читать дальше...   )Жанр: Electronic, Italo-Disco, AmbientПродолжительность: 01:20:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DCC540160D5CA7745096DF5293BB69A5FDBF7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

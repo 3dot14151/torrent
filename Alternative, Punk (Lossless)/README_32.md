@@ -1,3 +1,58 @@
+###  Публикация: 1048395   (546416) от 02.09.2016
+
+Florence + The Machine - Wish That You Were Here (From "Miss Peregrine’s Home For Peculiar Children" Original Motion Picture) (2016) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative,  ...
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wish That You Were Here     (06:42)Жанр: Alternative, Indie PopПродолжительность: 00:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE708C0C2E0A2D11358A3E22CAA61DE11230A86B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048756   (545751) от 03.09.2016
+
+VA - Shine 3 (1995) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545751.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pulp - Common People [04:11]
+ 2. Oasis - Roll With It [04:01]
+ 3. Supergrass - Alright [03:01]
+ 4. The Lightning Seeds - Marvellous [03:43](   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7090C7178DB0DF6751050FCE0F0CA47D0BC4E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310789   (545241) от 26.06.2019
 
 The Cat Empire - Stolen Diamonds (2019) [FLAC|Lossless|tracks + .cue] <Funk, Alternative, Reggae>
@@ -685,64 +740,6 @@ Our Dying World - Hymns Of Blinding Darkness (2022) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEA538C73E2450CB3E2ADF985776E022E85DCC2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927992   (522514) от 16.08.2015
-
-Celldweller - End Of An Empire (Chapter 04: Death) (2015) [FLAC|Lossless]<Industrial, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522514.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Faction 10  00:44
-02 - New Elysium  06:53
-03 - Precious One  06:49
-06 - New Elysium (Zardonic Remix)  05:06(   Читать дальше...   )Жанр: Industrial Metal, ElectronicПродолжительность: 01:20:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA847F05C963A10703A75894B0408481CA27CEFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1313890   (522354) от 11.07.2019
-
-The Kills - Black Rooster E.P (2002) EP [FLAC|Lossless|tracks + .cue] <Indie Rock, Lo-Fi>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cat Claw (3:33)
- 02. Black Rooster (Fuck and Fight) (4:24)
- 03. Wait (4:48)
- 04. Dropout Boogie (Live at Paint it Black) (4:28)(   Читать дальше...   )Жанр: Indie Rock, Lo-FiПродолжительность: 00:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84A22E24FF9E5D46BDF858FF5401A189F2D066B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

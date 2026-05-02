@@ -1,3 +1,264 @@
+###  Публикация: 1281705   (750022) от 09.02.2019
+
+VA - The Official UK Top 40 Singles Chart 08.02.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ariana Grande - 7 Rings 2:59
+02. Ava Max - Sweet But Psycho 3:08
+03. Sam Smith, Normani - Dancing With A Stranger 2:51
+04. Calvin Harris, Rag'n'bone Man - Giant 3:49(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:12:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE89E95A5F7ED7BD6DFFD20333BA7AC00A1F9685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281670   (750019) от 09.02.2019
+
+VA - Winter White Party (2019) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750019.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sara Landry - Tell Me
+002. Dj Kone & Marc Palacios - Push The Feeling On
+003. Dj Wady & Moondark - No One Cares (Original Mix)
+004. Hardwell - Kicking It Hard(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1396440BB151468F560715A2E482504B9BCC5A5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396017   (749840) от 13.07.2020
+
+VA - Acoustic Chill by Deezer (2020) [MP3|320 Kbps] <Rock, R&B, Soul & Funk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749840.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Billie Eilish - when the party's over (3:19)
+2. Highland Peak - Trampoline (Acoustic) (3:33)
+3. Red Hot Chili Peppers - Road Trippin' (3:24)
+4. Jorja Smith, Burna Boy - Be Honest (Acoustic) (3:11)(   Читать дальше...   )Жанр: Rock, R&B, Soul & FunkПродолжительность: 03:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694C1B0D9CA4FCFAAA6CC4E650836E890DB2DDC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216614   (749570) от 31.03.2018
+
+VA - The Official UK Top 40 Singles Chart 30.03.2018 (2018) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_749570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rudimental – These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
+02. George Ezra – Paradise
+03. Portugal. The Man – Feel It Still
+04. Marshmello & Anne-Marie – FRIENDS(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:606919AF02C8506BCD773EACC9D55DB502BDD8E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216512   (749432) от 31.03.2018
+
+VA - Cosmic Party (2018) [MP3|320 Kbps] <SpaceDisco , SpaceSynth , Electronic>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alden Tyrell - Phaze Me
+02. Smirnovlezha - April Sky
+03. Frankie - Quicksand (Original Mix)
+04. Max Shandula - Summer Consolation(   Читать дальше...   )Жанр: SpaceDisco , SpaceSynth , ElectronicПродолжительность: 06:11:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D8412BB7B477FF424C82C37A21ACBFF16C33149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216507   (749327) от 31.03.2018
+
+VA - Hits Cocktail Vol.17 (2018) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tungevaag & Raaban - All For Love
+02. Darius & Finlay x Last Night feat. Max Landry - Close My Eyes
+03. Odyssey feat. Breana Marin - Fire
+04. Foxa x Bazzflow Ft. Jex - Find You (Extended Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 04:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C6CBD4533AFBB07A401323CE57278FBE4D662BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216476   (749316) от 31.03.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 30.03.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Camelphat & Elderbrook - Cola (Robin Schulz Extended Remix)
+02. Luis Fonsi, Demi Lovato - Echame La Culpa
+03. Consoul Trainin feat. Steven Aderinto & DuoViolins - Obsession
+04. Jax Jones - Breathe (Ina Wroldsen)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A04FB74F9D1A936ABB78710BB4BF4E1F83FFA1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019667   (748063) от 24.05.2016
+
+C.C. Catch - Super Hits Collection (2015) [MP3|256 кб/с] <Eurodisco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cause You Are Young
+02. Heartbreak Hotel
+03. Goog Guys Only Win In Movies
+04. You Can Run Away From It(   Читать дальше...   )Жанр: EurodiscoПродолжительность: 01:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9BAAC9470DCE4CB52AA6B7057F170BF8C2F095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216661   (747841) от 01.04.2018
+
+VA - La Player Tempted Latinos (2018) [MP3|320 Kbps] <Latin Pop, Norteno, Banda, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kylie Minogue - Cant Get You Out Of My Head (Lmpool Long Edit Reggaeton To Top40s Trans 100bpm _ 128bpm) 4:39
+02. Maluma - El Prestamo (Lmpool Short Edit In & Out) 1:59
+03. Cauty - Kylie & Kyrie (Lmpool Short Edit Morphius Clap Intro) 2:57
+04. Bad Bunny - Dime Si Te Acuerdas (Lmpool Long Edit Morphius Clap Intro) 3:16(   Читать дальше...   )Жанр: Latin Pop, Norteno, Banda, OtherПродолжительность: 04:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6512A91C185658977C6755FB1CC97880665E6A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1281819   (747702) от 10.02.2019
 
 La Bouche - Be My Lover (2017) Remix [MP3|320 Kbps] <Club, Dance>
@@ -477,267 +738,6 @@ VA - Hello Summer - Opening Party (2016) [MP3|320 кб/с] <Dancehall, Moombahto
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E26A35191757D534DEE367A0D9A6C797137D40BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020878   (743810) от 27.05.2016
-
-VA - Party Hits Summer Editions (3 CD) (2016) [MP3|241-320 кб/с] <Disco, Club, Bigroom, Nu-Funk, Grime, Big Beat>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743810.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 House:
-01. Air-Lines - New Game (Original Mix) 07:46
-02. Arno Cost & Norman Doray - Apocalypse 2014 (Kryder & Tom Staar Remix) 05:42
-03. Audien & Matthew Koma - Serotonin (Original Mix) 05:08(   Читать дальше...   )Жанр: Disco, Club, Bigroom, Nu-Funk, Grime, Big BeatПродолжительность: 12:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6452D34D41B18EBD8B27CBF7804F17552F64CBFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020912   (743797) от 27.05.2016
-
-VA - 70s Disco Classics Reloaded (2016) [MP3|320 кб/с] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Booty Jocks - Night Fever [5:24]
-02. The Booty Jocks - You Should Be Dancing (Steve Cypress Remix Edit) (feat. Miloud & El D) [3:39]
-03. Leemar Project - Queen of Chinatown (feat. Lola Lee) [3:43]
-04. Natalie Grant - I Will Survive (Radio Mix) [3:32](   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 01:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C79442B267C430F292B902EF1E6E41B6C836FC72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020896   (743709) от 27.05.2016
-
-VA - Танцевальный Рай: Sport & Fitness Vol 3 (2016) [MP3|320 кб/с] <Urban Pop & Dance, UK Garage, Tropical>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristian Marchi - Keep Calm & Twerk On (Cristian Marchi Perfect Edit) 03:12
-02. Timmy Trumpet - Freaks (Radio Edit) 02:56
-03. Jt Crown - Streets Of Cairo (Arnold Palmer Remix Edit) 02:43
-04. Chris Wittig - Egypt (Radio Edit) 03:50(   Читать дальше...   )Жанр: Urban Pop & Dance, UK Garage, TropicalПродолжительность: 03:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA3FED4614D32E6F5BE51565A96935B702561EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524435   (743635) от 16.01.2022
-
-VA - The Official UK Top 100 Singles Chart 14.01.2022 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743635.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. GAYLE - abcdefu
-002. Adele - Easy On Me
-003. Carolina Gaitán - La Gaita - We Don't Talk About Bruno
-004. Lauren Spencer-Smith - Fingers Crossed(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B198D6018E5C8AAB8673861FDE5BAFDDACB7B653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524581   (743631) от 16.01.2022
-
-VA - Music News vol.160 (2022) [MP3|320 Kbps] <Pop, Rock, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743631.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. La La Life - My First Kiss (03:05)
- 002. Alex Hosking & Majestic - Need Your Love (Jonasu Remix) (02:14)
- 003. Alice Cooper - $1000 High Heel Shoes (03:25)
- 004. Alice Cooper - Drunk And In Love (03:50)(   Читать дальше...   )Жанр: Pop, Rock, OtherПродолжительность: 13:25:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9746A97A313A53226E86FEAEF182FCBBDC7F6E26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282605   (743617) от 13.02.2019
-
-VA - Billboard Hot 100 Singles Chart 16.02.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743617.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ariana Grande - 7 rings
-002. Marshmello - Happier
-003. Halsey - Without Me
-004. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECC74432DC5988E40A720D2E7F39F34FDF3CF11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282597   (743604) от 13.02.2019
-
-VA - Drum Star Bass (2019) [MP3|320 Kbps] <DnB, Dubstep, Bass Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743604.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Danger - Unknown Object
-002. Maverick Soul - Stranded
-003. Aweminus - Pants Floor
-004. Fourward - Make Some(   Читать дальше...   )Жанр: DnB, Dubstep, Bass ElectronicПродолжительность: 10:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A5C3B80157CBFE10664123496E01026CCFC93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020691   (743583) от 27.05.2016
-
-VA - Romantico Latino (2016) [MP3|320 кб/с] <Latin Pop, Dance, Bachata>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743583.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gente de Zona - La Gozadera (feat. Marc Anthony)
-002. Romantico Latino - Loco Corazon (Extended Version)
-003. Estilo Libre - Hace Calor 2015 (feat. Rasel)
-004. Daddy Yankee - Sigueme y Te Sigo(   Читать дальше...   )Жанр: Latin Pop, Dance, BachataПродолжительность: 05:56:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E4F1EC2837D418AF58DA8B6445948DF5F66106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217456   (742958) от 04.04.2018
-
-VA - Neon RetroSynth (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Dreamwave>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742958.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Neon Droid - Ordinary Neon
-002. SNTHWVRS - Neon Waves
-003. Neon City Murder - Neon City Murder
-004. Crusader - Neon Childhood(   Читать дальше...   )Жанр: Synthwave, Retrosynth, DreamwaveПродолжительность: 10:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F43AEC9AF527F7924B823AEEB83BDB384CC90279
 ```
 
 https://mybot314.ru/tekegram_catalog/

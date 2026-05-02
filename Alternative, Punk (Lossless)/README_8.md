@@ -1,3 +1,61 @@
+###  Публикация: 1365870   (927408) от 09.03.2020
+
+Noir Reva - Continuance (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fiowia [06:17]
+02. Skyward [06:23]
+03. Goraiko [07:27]
+04. Come Back Apollo [06:01](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F263822F5AB0FB9661275D7413C535C5167A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987263   (925975) от 17.02.2016
+
+The Cure - The Head On The Door (1985) Reissue, 2008, Universal/Fiction [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Between Days (2:58)
+02. Kyoto Song (4:16)
+03. The Blood (3:43)
+04. Six Different Ways (3:19)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB7904AE34B8C5FC919AA9A2482A6FAA7F55E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366237   (925894) от 10.03.2020
 
 Wyldest - Dream Chaos (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Dream Pop>
@@ -690,64 +748,6 @@ Penelope Houston - Cut You (1996) [FLAC|Lossless|tracks + .cue] <Rock, Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1E355B2054E6C95C3E593786802B248B0E7940E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369640   (902129) от 24.03.2020
-
-DISQ - Collector (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daily Routine (04:24)
-02. Konichiwa Internet (03:11)
-03. I’m Really Trying (02:37)
-04. D19 (03:06)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEBC00EB0698665AF115C177E8C3B196599F419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369626   (902031) от 24.03.2020
-
-Stephen Malkmus - Traditional Techniques (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ACC Kirtan (06:19)
-02. Xian Man (04:06)
-03. The Greatest Own In Legal History (03:47)
-04. Cash Up (04:06)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91D056E4B1493C3B42AECD57EA97506899ADC611
 ```
 
 https://mybot314.ru/tekegram_catalog/

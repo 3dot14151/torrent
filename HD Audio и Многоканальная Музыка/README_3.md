@@ -1,3 +1,144 @@
+###  Публикация: 1846433   (1051342) от 07.01.2026
+
+Entwine - Studio Albums (8 releases) (1999-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Entwine - финская рок-группа из Лахти, основанная в 1997 году.1999 - The Treasures Within Hearts
+2001 - Gone
+2002 - Time Of Despair
+2004 - DiEversityЖанр: Gothic MetalПродолжительность: 06:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEF360E09BBD9913A8B8D5D7E86A3C5BA741D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845776   (1051000) от 03.01.2026
+
+Miss May I - Studio Albums (9 releases) (2007-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miss May I - американская метал-группа из города Трой, штат Огайо. Основана в 2007 году.2007 - Vows for a Massacre (EP)
+2009 - Apologies Are For The Weak
+2011 - Monument
+2012 - At HeartЖанр: MetalcoreПродолжительность: 05:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FA17A1B59F9927BDBEBD12ECB9E23405D36F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845545   (1050835) от 
+
+Sinamore - Studio Albums (2 releases) (2006-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sinamore - финская метал-группа, основанная в 2004 году, из участников которой впоследствии была сформирована группа Kaunis Kuolematon2006 - A New Day
+2007 - Seven Sins a SecondЖанр: Gothic Metal/RockПродолжительность: 01:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7FE65827C0D5AEDF52D9631CD1D02431B9D179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845558   (1050827) от 
+
+End of Aeon - Studio Albums (2 releases) (2012-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050827.jpg" />
+</div>
+
+
+###  Подробнее
+
+End of Aeon - финская метал-группа, участники которой также входят в состав групп Sinamore и Kaunis Kuolematon2012 - Ever
+2016 - Through Infant EyesЖанр: Melodic Doom/Death MetalПродолжительность: 01:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C1C3607B2C5BC7F0B53B9EEE2BAA777E8BF4FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845291   (1050570) от 30.12.2025
+
+Kaunis Kuolematon - Studio Albums (5 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaunis Kuolematon - метал-группа из Финляндии, образованная в 2012 году.2014 - Kylma kaunis maailma
+2017 - Vapaus
+2020 - Syttykoon Toinen Aurinko
+2023 - Mielenvalta(   Читать дальше...   )Жанр: Melodic Doom/Death MetalПродолжительность: 04:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDA80B9E86F4B9D53C56471ECB828D1554A44EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844998   (1050367) от 29.12.2025
 
 Bloodbath - Studio Albums (6 releases) (2002-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
@@ -600,148 +741,6 @@ Face 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B51C36E44B5715D78F1B08940C57CDFB31E257B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604982   (1044917) от 17.01.2023
-
-Czerwone Gitary - Two Albums (1974, 1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044917.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Dzien Jeden W Roku
-A2 Nad Swiatem Cicha Noc
-A3 Lec Koledo
-A4 Gwiazda Na Kiju(   Читать дальше...   )Жанр: Pop Rock, FunkПродолжительность: 01:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:777FB3100117D2AA13CAE8293BCA015E18E8E9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605804   (1044694) от 19.01.2023
-
-Steely Dan - Two Against Nature (2000) SACD, Reissue, Remastered, 2022, Analogue Productions [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044694.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gaslighting AbbieЖанр: Jazz, Rock, PopПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE67A33D9917F473E5AB28801F9288676E769AC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606807   (1044308) от 23.01.2023
-
-Skaldowie - Szanujmy Wspomnienia (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044308.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Wszystko Kwitnie WkoloA2 Zyczenia Z Calego Serca
-A3 Zgadzam Sie Na Ten Swiat
-A4 Slowa Do Matki
-A5 Szanujmy Wspomnienia(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B702E12FBDB5C1E1E3A0823688A228309BF034C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607185   (1044158) от 25.01.2023
-
-Татьяна Кочергина и Рок-группа «XX Век» - «Добром за добро» (1988) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044158.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Добром За Добро
-A2 Наказ Сыну
-A3 Симфония, Часть 1
-A4 Тiнi(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17A4CE643D8847CE7E1CFD22E22534E740929BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607410   (1044058) от 26.01.2023
-
-Рок-группа «Мост» - Музыка Сергея Баневича (1983) [FLAC 2.0|192/24|image+.cue] <Art Rock, Prog Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044058.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ночной Полет
-A2 Ау, Улетевшее Детство
-A3 Корабль
-A4 Ночь(   Читать дальше...   )Жанр: Art Rock, Prog Rock, Pop RockПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3707E093ACCEBFD19C32638E27DB699A89A05FA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

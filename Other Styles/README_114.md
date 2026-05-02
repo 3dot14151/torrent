@@ -1,3 +1,206 @@
+###  Публикация: 1250067   (429132) от 26.09.2018
+
+Thierry David - Zen World (2006) 2008, Real Music [FLAC|Lossless|tracks + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close to Heaven (5:18)
+ 02. Asian Rhapsody (4:27)
+ 03. I Miss You So (4:31)
+ 04. Walking on Skies (3:16)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E22DE6C09E0EDEA3461EAFC416A978BC786D41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1249917   (429128) от 26.09.2018
+
+Mauricio Nader - Our Soul Revealed (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope Within
+02. Wish to Be with You
+03. The Own Reflection
+04. Hidden Loneliness(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56D2EC25F9506E858C902900931F78F721EC2322
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945435   (428644) от 12.10.2015
+
+Мельница - Алхимия (2015) [MP3|320 кб/с]<Folk, Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gaudete
+ 02. Анестезия
+ 03. Марсианский экспресс
+ 04. Никогда(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F45CD8035D543E208139644C42B6D729149BC474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1250048   (428573) от 26.09.2018
+
+V.A. - Александр Зацепин: Лучшие песни из кинофильмов (1996) [APE|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юрий Никулин - А нам все равно (3:05)
+02. Андрей Миронов - Остров невезения (2:18)
+03. Олег Анофриев - Есть только миг (3:41)
+04. Оркестр и хор МВО - Маруся (2:25)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4617002D69899CC3B9B214F79F7E7293DE73DFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064041   (427902) от 19.10.2016
+
+Esperanza - 2 Альбома (1998, 2001) [FLAC|Lossless|tracks] <Instrumental, Latin, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Duende   (01:08)
+02. Spanish Eyes   (04:17)
+03. La Punta   (05:37)
+04. Gabrilla's Lullaby   (03:38)(   Читать дальше...   )Жанр: Instrumental, Latin, New AgeПродолжительность: 01:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BCD83E014A72DB3CF2C62622F7503671904855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411421   (427557) от 25.09.2020
+
+Hiroka Matsuda - The Black Fire Original Image Album (1987) [FLAC|Lossless|tracks + .cue] <New Age, Minimal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Fire (5:34)
+02. Market (3:49)
+03. Dim Soul (5:26)
+04. Searcher (3:50)(   Читать дальше...   )Жанр: New Age, MinimalПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EC5F4D7C9F6B69D59D72C8B1AEE968E7D7A8210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411292   (427477) от 25.09.2020
+
+Sufjan Stevens - The Ascension (2020) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Pop>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make Me An Offer I Cannot Refuse (05:18)
+02. Run Away With Me (04:07)
+03. Video Game (04:15)
+04. Lamentations (03:42)(   Читать дальше...   )Жанр: Folk Rock, PopПродолжительность: 01:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5499BD0DF2AEC4CB26C7FC0EBB64A3CE08E52C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1323509   (427335) от 08.09.2019
 
 VA - Scream Collection 1-4 / Крик 1-4 (1996-2011) [MP3|320 Kbps] <Soundtrack>
@@ -546,214 +749,6 @@ Fleur (Flёur) - Штормовое предупреждение (2014) [FLAC|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DBDDD1CFE636B65577FDC38785FAE01ED68FC3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251111   (420043) от 30.09.2018
-
-The Romantic Strings Orchestra - Night And Day: The Great Songs Of Cole Porter (1993) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begin the Beguine (3:33)
-02. Easy to Love (2:52)
-03. Let's Do It Let's Fall in Love (2:44)
-04. Night and Day (2:28)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3354E572FE7764ADE25FBA7D33A80D6A90B78C48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166809   (419723) от 19.09.2017
-
-Trevor Rabin & Harry Gregson-Williams - Enemy of the State (1998) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Main Titles
-02 - Enemy Of The State Main Theme
-03 - Brill's Theme
-04 - The Ferry(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:661AE7CF4250A577D87F9FC3ED328A19611140C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167020   (419719) от 19.09.2017
-
-VA - About Time (2013) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ben Folds - The Luckiest (About Time Version)
-02 - Jon Boden, Sam Sweeney & Ben Coleman - How Long Will I Love You
-03 - Paul Buchanan - Mid Air
-04 - Groove Armada - At The River(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192326670E5D27B0D124FFDB7462202186700B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167034   (419558) от 19.09.2017
-
-VA - Snatch (Expanded) (2000) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Klint - Diamond
-02 - Penicio Del Toro - 'vere iz da storn_'
-03 - Overseer - Supermoves
-04 - The Johnston Brothers - Hernando's Hideaway(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D8B16561AECC8963BC98F6AE68929533BDD7A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167334   (419436) от 19.09.2017
-
-Michel Pepe - La Foret d'Eden (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lueur de l'Aube
-02. L'Oree Resplendissante
-03. L’Esprit des Animaux
-04. Senteurs Paradisiaques(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D15FC960965B58D14663D9267C06EEDDB97E20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166990   (419254) от 19.09.2017
-
-VA - The Thomas Crown Affair (1999) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sting - Windmills of Your Mind
-02 - Nina Simone - Sinnerman
-03 - Wasis Diop - Everything (...is never quite enough)
-04 - Georges Fordant - Caban La Ka Kratchie(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01EF50755B9552AB12D0D6DF8E01A0928ECEDC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 709041   (419042) от 13.10.2013
-
-Летописи Междуречья - Странник (2012) [MP3|256-320 кб/с]<Folk-Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419042.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Странник (03:40)
-2. Художник и Богач (02:55)
-3. Летописи Междуречья (04:25)
-4. Шаман (02:51)
-5. Леший Овраг (03:49)
-6. Идущим (03:17)
-7. Воспоминания (04:40)
-8. На Лесном Озере (03:00)
-9. Летописи Междуречья - Война (03:40)Жанр: Folk-RockПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3A7A2DBD3A63D77173AAB6E4E00CFAB28234CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

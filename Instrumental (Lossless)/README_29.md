@@ -1,3 +1,119 @@
+###  Публикация: 1101304   (896404) от 06.02.2017
+
+Five Horse Johnson - The Taking of Black Heart (2013) [FLAC|Lossless|tracks + .cue] <Blues Rock, Stoner>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896404.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1995 году пять парней из Толедо (Огайо) решили сколотить блюзовую группу. А "белая" блюзовая команда - это уже клише. Потому как, ну что могут сделать белые мальчики в абсолютно чё...афроамериканской музыке? Вот и решили Лошадки отличаться. В общем, товарищи музыканты исходят из того, что блюз - это скорее взгляд на жизнь - немного грязный и чувственный (   Читать дальше...   )01. The Job (4:40)
+02. Keep On Diggin' (5:01)
+03. Black Heart Baby (2:28)
+04. Mexico (4:13)(   Читать дальше...   )Жанр: Blues Rock, StonerПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28F914125F789995973FA0EA99B73E4B01851B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101163   (896390) от 06.02.2017
+
+Nellie Lutcher - The Best Of Nellie Lutcher (1995) [FLAC|Lossless|tracks + .cue] <Blues, R&B, Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hurry On Down (02:26)
+02. The One I Love Belongs To Somebody Else (02:44)
+03. You Better Watch Yourself, Bub (03:00)
+04. My Mother's Eyes (03:15)(   Читать дальше...   )Жанр: Blues, R&B, JazzПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C7C9BDFDA3A763E48983FEFB99F0FA70417317
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 993456   (895826) от 05.03.2016
+
+Sugaray Rayford - Dangerous (2013) [FLAC|Lossless|tracks + .cue] <Electric Blues, Soul Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Boy (03:15)
+02. Stuck for a Buck (03:57)
+03. I'm Dangerous (04:35)
+04. Two Times Sugar (04:48)(   Читать дальше...   )Жанр: Electric Blues, Soul BluesПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59919AC5E213A99932101B5CDF1D9F80CE076EC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101445   (894829) от 07.02.2017
+
+Pat McManus Band - Walking Through Shadows (2011) [APE|Lossless|image + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danger Zone    (05:18)
+02. Walking In The Shadow Of Giants    (05:44)
+03. Hey You    (04:18)
+04. Give Me Love    (05:47)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31F33810F71B8C1BB5286E655451FBC606E646E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101581   (893138) от 08.02.2017
 
 Big Allanbik - Blues Special Reserve (1998) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock>
@@ -625,120 +741,6 @@ Burnin' (1962)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B6CAD74E5EA282B56A152DDBFFF49465AABBA30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103301   (887764) от 11.02.2017
-
-Ronnie Earl & The Broadcasters - Good News (2014) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  I Met Her On That Train  (04:44) 
-02|  A Change Is Gonna Come  (06:02) 
-03|  A Time To Remember  (06:10) 
-04|  In The Wee Hours  (10:53) (   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40A1B4A910CA9A7D7A4D92B7E188F16967433F58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1494564   (887351) от 08.09.2021
-
-Chris Rea - Blue Guitars II - Country Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkin' Country Blues (3:41)
-02. Man Gone Missing (4:40)
-03. Can't Stay Blues (4:58)
-04. KKK Blues (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01EA0CA9C44DC1DED0104C5CF5E2359A7DEEDDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103470   (885575) от 12.02.2017
-
-Dwane Dixon - Black Satin Blues (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'd Rather Get Shot Down (3:38)
-02. Elevator Operator (4:03)
-03. 24-7 Blues (3:49)
-04. Long Way (From Loving You) (6:33)(   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1819247C6E3AB867732F0FE5930F67E144FDDCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103379   (885563) от 12.02.2017
-
-Omar & the Howlers - Essential Collection (2011) 2×CD, Compilation [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Европейские поклонники блюза всегда восхищались техасским музыкантом Омаром Кентом Дайксом, чему в немалой степени способствовал его имидж, соответствовавший их представлением об американце. Высокий, в ковбойских сапогах, с глубоким голосом и южным акцентом, Омар с легкостью мог завести аудиторию. Дайкс родился в 1950 году там же где и Бо Диддли, в маленьком городке (   Читать дальше...   )CD 1 - Best Of
-CD 2 - Omar's PicksЖанр: Blues-RockПродолжительность: 02:03:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AEAF784E64928F9E321BFE8CB8873CBE37ABE18
 ```
 
 https://mybot314.ru/tekegram_catalog/

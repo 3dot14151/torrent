@@ -1,3 +1,61 @@
+###  Публикация: 1497897   (859651) от 25.09.2021
+
+VA - EDM Party: Samsara Heat (Vol.05) (2021) [MP3|320 Kbps] <Club, Dance, House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859651.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Akishou And Jelz - Katana
+002. Marija - All The Girls
+003. Sorgalim - Moonlight
+004. Jack Rush - Butterfly(   Читать дальше...   )Жанр: Club, Dance, House, Tech HouseПродолжительность: 08:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A3DE157BD809A67AA0CC512A3D95913AAD833D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497915   (859645) от 25.09.2021
+
+VA - Synthwave Dream Collection (2021) [MP3|320 Kbps] <Synthwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859645.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Raiders Of The Lost Arp - Sinetheme
+002. DJ T. - Harem Disco
+003. Kukuzenko - Sweet As Candy
+004. Maxnickel - 2er(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 07:30:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D1C9F513571C91A0EE7CD3D1127A389BB012086
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000456   (859336) от 25.03.2016
 
 VA - Sailing Out Lounge (2016) [MP3|320 кб/с] <Lounge, Chillout>
@@ -687,62 +745,6 @@ VA - Best Of Drum & Bass (2021) [MP3|320 Kbps] <Drum & Bass, Drumfunk, Soulful>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD61DBF1064CB1655AB9F00DC6316A7089E08385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001350   (853860) от 28.03.2016
-
-VA - Cookies With A Smile: Ibiza Deep House (2016) [MP3|320 кб/с] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853860.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Muovo - Green Granada 07:55
-002. Benny Camaro - Cуmo Suena 05:51
-003. Ernesto vs Bastian - Dark Side Of The Moon (Axwell & Sebastian Ingrosso Re-Mode) (feat. Susana) 05:46
-004. Hardwell - Storage 08:02(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096108DBCCCB88B2F2945E3DC96EC72922AD0772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001485   (853784) от 28.03.2016
-
-VA - Dubstep 100 Top Hits Bass Blast DJ Mix (2016) [MP3|320 кб/с] <Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dubster Spook & Dj Random - Dubstep 100 Top Hits Bass Blast (Trap DnB DrumStep 2hr DJ Mix 2016)
-02. K Theory - The Tower (Dubstep Bass Blast 2016 Remix DJ Edit)Жанр: DubstepПродолжительность: 10:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DFD301148E36C4F428475ACCBF5B60A936C739
 ```
 
 https://mybot314.ru/tekegram_catalog/

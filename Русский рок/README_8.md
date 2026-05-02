@@ -1,3 +1,116 @@
+###  Публикация: 1455028   (1025798) от 18.03.2021
+
+Хитобои - Вниз головой (2016) [MP3|320 Kbps] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Уй на руль [00:02:04]
+02 - Долб [00:02:30]
+03 - Дело-табак [00:02:37]
+04 - Пружина [00:02:30](   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:820FF4A1552F981175A366B4F22C7A3884BB50AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455614   (1025670) от 19.03.2021
+
+Gothic Sky - In Search of a Lost Soul (2021) [MP3|320 Kbps] <Gothic Black Metal, Death Metal, Nordic Metal, Family Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Seven [00:05:34]
+02 - Phantom Wanderer (feat. Arthur Berkut) [00:07:31]
+03 - Dark flame (feat. Arthur Berkut) [00:06:47]
+04 - Lord of nothingness [00:07:26](   Читать дальше...   )Жанр: Gothic Black Metal, Death Metal, Nordic Metal, Family VocalПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:543042AEFFD36395A40A6097FFA6B69A158ED1B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455509   (1025660) от 19.03.2021
+
+Тринадцатое созвездие - Песня без Берегов (Судзуки и Сочувствующие) (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025660.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Песня без Берегов
+2. Шансон играют Рокера
+3. Неудачник
+4. Театр (Piano version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82934CF61EDADF4F03461CFCAF85E26F892216C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455433   (1025656) от 19.03.2021
+
+Северный флот - Пританцовывай (2021) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025656.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ПританцовывайЖанр: RockПродолжительность: 00:04:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1603540BFB297CEF299ECBFD247F0AFDF8637A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457154   (1024617) от 25.03.2021
 
 Айрэ и Саруман - 2 альбома (2013-2017) [MP3|320 Kbps] <Folk, Rock>
@@ -628,122 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D40CB8D6C41E9ED04D20122F68CFA47CE7A0B123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462605   (1021021) от 15.04.2021
-
-Рекорд Оркестр - Мир самых добрых людей (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021021.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Полифем
-3. Деньги
-4. Лес(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F65B8913DC13BA3D984822DE15B5144944181FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462845   (1020863) от 16.04.2021
-
-Завтраккусто - Приют для мертвецов (2021) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020863.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Анетта
-2. Волхонка
-3. Мёртвый матрос
-4. Моника Белуччи(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:32:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861E2B2D9A16D965DF47DEEE174A170D554BB98B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462941   (1020854) от 16.04.2021
-
-ЭлектропартиZаны - Сквозь время (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020854.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Все, что ты знаешь
-2. Исповедь революций
-3. Всадники на станции Роса
-4. Фонарщик(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75EA58ED288455F3496AF47B476F9551FEE52B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462838   (1020829) от 16.04.2021
-
-План Ломоносова - Панки на Арбате (2021) Live [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020829.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Москва-Питер
-2. Марш муравьёв
-3. Солдаты, удачи!
-4. Калинов Гр.Об.(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCDEB9FCF4F39B7C1F7B1F326EAAF633035E513
 ```
 
 https://mybot314.ru/tekegram_catalog/

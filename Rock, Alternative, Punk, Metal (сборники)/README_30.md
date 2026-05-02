@@ -1,3 +1,61 @@
+###  Публикация: 1406752   (471000) от 05.09.2020
+
+VA - Alternative World: Indie Pop-Rock Music (2020) [MP3|320 Kbps] <Indie, Alternative, Pop-Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471000.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nolan Potter's - Nightmare Forever
+002. Guise - Brother In Arms
+003. Pleil - Offener Kanal
+004. Honey Cutt - Vacation(   Читать дальше...   )Жанр: Indie, Alternative, Pop-RockПродолжительность: 08:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D191ECCBAFC134196875AF2C1908E7E0D41F9A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406596   (470839) от 05.09.2020
+
+VA - Music for You vol.12 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pomegranate Tiger - Gift of Tongues (01:26)
+ 02. The Omnific - Pharaoh (04:45)
+ 03. Imperial Triumphant - Transmission to Mercury (06:41)
+ 04. Circles - Blueprints for a Great Escape (04:48)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 04:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE8D72554128649F1B1AEF1ACB0FCF47981F9457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1567708   (470079) от 04.08.2022
 
 VA - Rock Indie Night (2022) [MP3|320 Kbps] <Rock, Indie Rock, Alternative>
@@ -693,64 +751,6 @@ Metallica - Live in Moscow at Olimpiyskiy Arena (2015) [MP3|320 кб/с]<Heavy M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9B1DADECB8E560280C030CCA10440B8F0D89E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409588   (443266) от 18.09.2020
-
-VA - Panopticum: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Rock Punk>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443266.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Handguns - Constructive Criticism
-002. Academy Killer - Figure Me Out
-003. This Means War! - Off With Their Heads
-004. Riesa - Keihoviisu(   Читать дальше...   )Жанр: Punk, Rock PunkПродолжительность: 08:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9F5537D2DE9F56ED8BFBB67E89D60D8B286E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756777   (441808) от 06.10.2015
-
-VA - Top 1000 Classic Rock Songs of All Time (2011) [MP3|104-320 кб/с]<Classic Rock, Hard Rock, Metal>
-
->>След.
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Led Zeppelin - Stairway To Heaven (8:03)
-02.Jimi Hendrix - Purple Haze (2:53)
-03.Foo Fighters - Learn To Fly (3:55)
-04.Lynyrd Skynyrd - Free Bird (9:05)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, MetalПродолжительность: 77:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:585804E60A23532FBAFE6E72FAEDC683DE85A50D
 ```
 
 https://mybot314.ru/tekegram_catalog/

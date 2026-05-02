@@ -1,3 +1,61 @@
+###  Публикация: 1145075   (624034) от 24.06.2017
+
+Jenny Scheinman - Mischief & Mayhem (2012) Tzadik [FLAC|Lossless|tracks + .cue] <Modern Creative, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Ride with Polly Jean [06:22]
+02. Sand Dipper [04:24]
+03. Blues for the Double Vee [03:57]
+04. Devil's Ink [07:42](   Читать дальше...   )Жанр: Modern Creative, Violin JazzПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551A620943B37336F443B5D85E9C76BD33A821DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294952   (623980) от 10.04.2019
+
+Anthony Wilson - Anthony Wilson (1997) Mama Foundation [FLAC|Lossless|image + .cue] <Hard Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fargas Shuffle [6:51]
+02. The Parisian Knights [5:59]
+03. Karaoke [10:09]
+04. Leila [7:03](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93D9C25614FAF74D12D55D1372538B3139AFD825
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294962   (623975) от 10.04.2019
 
 Dexter Gordon - Four Classic Albums: Second Set (1961, 1962) 2CD, 2019, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -687,64 +745,6 @@ Gregoire Maret - Gregoire Maret (2012) M.A.T. [FLAC|Lossless|tracks + .cue] <Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FDAA1C956AFF093F47E62158E72E72E6B02F32C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145656   (620099) от 26.06.2017
-
-Don Byron - Love, Peace And Soul (2012) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Modern Creative, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway To Heaven [06:09]
-02. When I've Sung My Last Song [06:25]
-03. It's My Desire [07:55]
-04. Sham Time [04:50](   Читать дальше...   )Жанр: Modern Creative, Vocal JazzПродолжительность: 01:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162AC3127BE9335A658D4EFCC5C852731AF012F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145689   (620096) от 26.06.2017
-
-Modern Jazz Quartet - Longing For The Continent (1985) Remaster, 1989, LRC LTD [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animal Dance (4:41)
-02. Django (4:44)
-03. Milano (2:50)
-04. Bluesology (2:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AF62CE11042684B63A791178A67A3E574C3459A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1231744   (603182) от 21.06.2018
+
+Atom Music Audio & Alexandros Nikolaidis - Andromeda (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andromeda [03:09]
+02. Visitors from the Stars [02:38]
+03. Ancestors [03:08]
+04. A Million Years Journey [03:13](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B494F55DD309505B083D7F2EA2B1F635660AE1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232014   (602223) от 23.06.2018
+
+VA - Deadpool 2 / Дэдпул 2 (2018) [MP3|320 Kbps] <Pop, Rap, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celine Dion - Ashes
+02. Diplo, French Montana & Lil Pump - Welcome to the Party (feat. Zhavia Ward)
+03. DJ Shadow - Nobody Speak (feat. Run The Jewels)
+04. Peter Gabriel - In Your Eyes(   Читать дальше...   )Жанр: Pop, Rap, ElectronicПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33A213F8CD1FB8FD9AF407CB8C03A901FF45748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1298085   (602127) от 26.04.2019
 
 Alan Silvestri - Avengers: Endgame / Мстители: Финал (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -709,61 +767,6 @@ David Arnold & Michael Price - Sherlock-Original Television Soundtrack (2012-201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E737FD4F189B973B054C00E83C28BBA897705897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120070   (567127) от 22.07.2017
-
-Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [MP3|320 Kbps] <Disco, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, SoundtrackФормат: 3хCD, Box Set, Compilation, Limited Edition, Numbered, RemasteredПродолжительность: 01:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81508589C3B6A78750328DE8CED15C181813C080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152189   (566849) от 22.07.2017
-
-Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - The Mole (05:36)
-02. Hans Zimmer - We Need Our Army Back (06:28)
-03. Hans Zimmer - Shivering Soldier (02:52)
-04. Hans Zimmer - Supermarine (08:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09B6391B532DC859FF29DD1DB3E9A4A741E397DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 917799   (589034) от 12.07.2015
+###  Публикация: 890524   (591243) от 07.07.2015
 
-WinToUSB Free 2.2 Final [Multi/Ru]
+Страшные сказки (Грошовые ужасы / Бульварные ужасы) / Penny Dreadful (2015) HDTVRip (сезон 2, серии 1-10 из 10) BaibaKo
 
->>Архив торрентов
->>Архив Программ
+>>Зарубежные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WinToUSB - позволяет устанавливать и запускать операционную систему Windows с USB-HDD или USB-Flash, используя образ ISO или CD/DVD диск в качестве источника установки. WinToUSB также поддерживает создание загрузочного WinPE USB, он может помочь вам перенести содержимое WinPE на диск USB и сделать накопитель загрузочным.Язык интерфейса: Русский, Английский и другие
+Сериал возвращает нас ко всеми любимым героям, монстрам и злодеям. В викторианском Лондоне, где происходит действие сериала, никогда не было спокойно и безопасно. Особенно теперь, когда литературные персонажи ожили и наводят ужас на город. Неминуема встреча с вечно молодым Дорианом Греем, героем одноименного романа Оскара Уайльда, доктором Франкенштейном и его зомби-монстром, (   Читать дальше...   )Производство: США, Ирландия, ВеликобританияЖанр: ужасы, драмаРежиссер: Х.А. Байона, Дирбла Уолш, Сэм МендесАктеры: Тимоти Далтон, Ева Грин, Джош Хартнетт, Рори Киннер, Хелен МакКрори, Билли Пайпер, Гарри Тредэвэй, Рив Карни, Алан Армстронг, Рик Берн и др.Перевод: Многоголосый закадровый, профессиональный - BaibaKoОзвучка: Юлия Котурбаш, Anna_Smile, Олекса Мельник и Акмал ГурезовПродолжительность: ~00:54:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C271039BBE7DFB45D517A9F196EE6EF88FC060BD
+magnet:?xt=urn:btih:BDBE8FC23144AB90D18D99D1317779DB3A27CEF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,21 +24,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917285   (589033) от 12.07.2015
+###  Публикация: 1550718   (591242) от 13.05.2022
 
-CleanSpace One - спутник, который будет ловить в сети космический мусор
+Bare King - Beggars (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hardcore, Deathcore>
 
->>3
->>След.
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_589033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_591242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Около трех лет назад исследователи из Швейцарского федерального политехнического университета Лозанны (Swiss Ecole Polytechnique Federale de Lausanne, EPFL) объявили о своих планах по постройке космического аппарата, предназначенного для сбора космического мусора и сталкивания его в сторону Земли, где он должен полностью сгорать, входя в плотные слои атмосферы. Изначально (   Читать дальше...   )
+01 - No Forgiveness (Grief)
+02 - Degradation
+03 - Annotations of Hell (Pain)
+04 - Defeatist(   Читать дальше...   )Жанр: Metalcore, Hardcore, DeathcoreПродолжительность: 00:34:46
 
 ## Скачать торент
 ```bash
@@ -50,25 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 916862   (589032) от 12.07.2015
+###  Публикация: 1550783   (591241) от 13.05.2022
 
-Похищение Фредди Хайнекена / Kidnapping Mr. Heineken (2014) AC3 5.1 [hand made]
+Fátima (Fatima) - Fossil (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
 
->>Остальное
->>Звуковые дорожки и субтитры
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенью 1983 года Амстердам был потрясен одним из самых известных и дерзких преступлений 20 века: владелец одной из крупнейших в мире пивоварен Heineken — Альфред Хайнекен — был похищен вместе с личным шофером прямо из собственного автомобиля. Несколько друзей, которым очень нужны были деньги, решили не мелочиться и заработать много и сразу...Жанр: Криминал, Триллер, ДрамаПеревод: Дублированный (центральный канал)Продолжительность: 01:34:44
+01 Mongolo Bill [00:03:59]
+02 Arch-Vile [00:04:25]
+03 Turks Fruit [00:06:09]
+04 King of the Rats [00:05:43](   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:41:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:28F122DFDA923B0D3FAD33E29BCEF43A9F2A194D
+magnet:?xt=urn:btih:687E90859247B4FE330FDE0B48DEEEB3A1E3A00C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917591   (589031) от 12.07.2015
+###  Публикация: 1551021   (591240) от 13.05.2022
 
-В.А. Гервер и др. | Основы инженерной графики (2007) [DJVU]
+Cancerslug - Full Term Abortions (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, Horror Punk>
 
->>Научная и техническая литература
->>Учебники
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589031.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебное пособие является самодостаточным источником информации для изучения курса инженерной графики. В первой части изложены основы начертательной геометрии, формирующие необходимые знания в области правил построения изображений. Вторая часть содержит информацию по выполнению и чтению технических чертежей. Третья часть знакомит с электрическими схемами как графическими (   Читать дальше...   )Жанр: Инженерная графикаФормат: DJVU
+01 - Cum Rag (00:01:38)
+02 - When You Lie (00:01:59)
+03 - kitchen blues (00:02:04)
+04 - waiting to die (00:01:41)(   Читать дальше...   )Жанр: Punk Rock, Horror PunkПродолжительность: 00:29:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1A33DF939FA3341BFF327DBF6B642F7674CF78A
+magnet:?xt=urn:btih:C173FDF6EA44493F07EE120E03363C1FDFCE4DC3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917785   (589030) от 12.07.2015
+###  Публикация: 1550682   (591239) от 13.05.2022
 
-Amazing Slider 5.5 Enterprice [Multi/Ru]
+Ron Miles - Rainbow Sign (2020) Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589030.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Amazing Slider Enterprise - профессиональная программа, которая позволит пользователям создать красивые слайд-шоу и презентации, которые потом можно легко экспортировать в Dreamweaver, WordPress и другие HTML редакторы. Amazing Slider поддерживает фото и видео YouTube. Таким образом, пользователи могут также создавать видео-галереи высокого качества. В распоряжении (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
+01. Like Those Who Dream [15:56]
+02. Queen of the South [4:20]
+03. Average [11:12]
+04. Rainbow Sign [7:09](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:09:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4531A18DAE225891872A9DDD27EF3278CF57FA44
+magnet:?xt=urn:btih:2DCBFD8D66FF57A7DF68623D18E6A7F9F6246070
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,28 +140,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917555   (589029) от 12.07.2015
+###  Публикация: 1550977   (591238) от 13.05.2022
 
-KMFDM - Salvation (2015) EP [MP3|320 кб/с]<Aggro-Industrial>
+Simone Graziano Frontal - Sexuality (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kinkali - 5:04
+02. Afror - 8:42
+03. Unsleepers - 5:06
+04. Buran  - 8:55(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AEAAFB6530623EF609969B00FB0D32E416F11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550910   (591237) от 13.05.2022
+
+Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Meddler [8:31]
+02. Ode to Ray [6:10]
+03. Whims of the Bluebird [10:09]
+04. Falling in Love [7:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836C40AE7A3A0D272E79313F7F4DF1323C87AD16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550793   (591236) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 19 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
 
 >>Electronic
->>Industrial, EBM, Dark Electro
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Salvation (Album Version)
-02. Blood Vs. Money (Chant Remix)
-03. Salvation (Mindless Self Indulgence Remix)
-04. Brainwashed (KMFDM Remix)(   Читать дальше...   )Жанр: Aggro-IndustrialПродолжительность: 00:27:50
+01. Born in '82 - Platov Airport (5:30)
+02. Rapaik - Disguise Self (5:52)
+03. Ella Mordo - No Love '86 (mfpalm Remix) (2:55)
+04. Atakta - Giving Up The Ghost (4:41)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:02:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F2223F9B44D07574199E5ACD1281A679D1D48F0
+magnet:?xt=urn:btih:989B60C80347EDEC7EE43ACE859C88BDA6B59646
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,28 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917773   (589028) от 12.07.2015
+###  Публикация: 1550925   (591235) от 13.05.2022
 
-Radiorama - Greatest Hits & Remixes (2015) 2CD [FLAC|tracks]<Italo Disco, Euro House>
+Ecstatic Vision - Elusive Mojo (2022) [FLAC|Lossless|WEB-DL|tracks] <Sludge, Stoner, Space Rock>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Desire (Vocal) [3:52]
-02. Aliens (Album Version) [4:12]
-03. Vampires (Short Version) [4:22]
-04. Chance To Desire (Album Version) [4:08](   Читать дальше...   )Жанр: Italo Disco, Euro HouseПродолжительность: 02:23:25
+01. March of the Troglodytes
+02. Elusive Mojo
+03. Times Up
+04. The Kenzo Shake(   Читать дальше...   )Жанр: Sludge, Stoner, Space RockПродолжительность: 00:35:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7083552EAC9F1ECB6230AF917AF1D18D9A37C1D
+magnet:?xt=urn:btih:6FF7D06D3DEB44041A96A6D3950328B1C2C74759
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,25 +256,426 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917536   (589027) от 12.07.2015
+###  Публикация: 1550789   (591234) от 13.05.2022
 
-Я – за гиппопотамов! / Io sto con gli ippopotami (1979) DVDRip
+VA - Synthwave Dreams, Vol. 17 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TELEGIMNASTIKA - Perlo (7:05)
+02. Born in '82 - I Want To Go Far Away (3:58)
+03. Microsha 89 & Twinhead Pony - Endless (3:42)
+04. Enium - Feel Life (6:33)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:08:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F60D68BBC79B639BCE3B7DCF2093CF766B3A870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550795   (591233) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 20 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NINJACAT & VHS STORE - Pink Sky (2:55)
+02. Born in '82 - Night Road To The Airport (6:01)
+03. Bogdan Bondar & MVG - Sprinkles (3:45)
+04. Dwextrom - Fallen Lord (4:21)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20469C95941146042DD422ADA7AC9286CF536E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550799   (591232) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 22 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ionov - Break My Heart (3:00)
+02. VsrtWuto - Shuto Nightshift (6:25)
+03. CJ Cyclone - Electronic Body (3:16)
+04. Bloume - Light (4:28)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:584C843B3804328229C697F605FEC1AB30E7AF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550800   (591231) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 23 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivan Starzev - Up Tonight (Microsha 89 Remix) (4:05)
+02. Rinak - Evolution (TELEGIMNASTIKA Remix) (5:06)
+03. Born in '82 - Summer Rays (4:25)
+04. Ionov - Break My Heart (TELEGIMNASTIKA Remix) (3:28)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:58:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7471A4CC382611CB9519F59D900DB78AD6A80313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550798   (591230) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 21 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. VsrtWuto - Late Night Cruise (3:30)
+02. Unfancy D - Rain (La-la-la) (4:20)
+03. Akira - Out The Fire (3:16)
+04. Born in '82 - Evolution (5:34)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 00:52:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:286E51614FF944F86A42FE3EE84E4C5148E54192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550893   (591229) от 13.05.2022
+
+Opeth - In Cauda Venenum (2019) 2CD, Extended Edition, 2022, Atomic Fire [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livets Trädgård (3:29)
+02. Svekets Prins (6:37)
+03. Hjärtat Vet Vad Handen Gör (8:30)
+04. De Närmast Sörjande (7:10)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CCA2C8EB3BFC5F704B82D994D0B660FD1A3C6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550790   (591228) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 18 (2021) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unfancy D - Teslagirl (5:12)
+02. Fraver & Born in '82 - Void In Space (4:40)
+03. Enium - Nostalgia (Let's Do The Night) (7:06)
+04. Shtanze - Retropunk (4:31)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:153C0D421DE5E938ACBF9743F7AD12574876A3CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550826   (591226) от 13.05.2022
+
+Wildnite - Symphony Of Apathy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paroxysm
+02. One And Only
+03. Hero
+04. War Machine(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:146CE114572FC338D2097FE2746A41D1B1F00ABC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550908   (591225) от 13.05.2022
+
+Рваные Раны - Лучшая проклятая вещь (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_591225.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Проклятая вещь
+2. Строгий отец
+3. Слышишь сука!?
+4. Вы - закройте рты!(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550802   (591224) от 13.05.2022
+
+VA - Synthwave Dreams, Vol. 24 (2022) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
+
+>>Electronic
+>>Synthpop, New Wave, Retro (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born in '82 - Resisted (4:03)
+02. Ildar Bik - Racer (5:22)
+03. A-Reis - Meteor (3:45)
+04. Fraver & Born in '82 - Void in Space (Born in '82 l'amour Remix) (5:15)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 01:07:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26C72C02B418F534C440BB20C6CF0356F07B1C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550907   (591223) от 13.05.2022
+
+Sonic Mine - Show Must Go On (2017) [FLAC|Lossless|CD|image + .cue] <Pumping House , Hard Bass>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen Of The Night (4:10)
+02. Let's Get Ridiculous (4:23)
+03. R U Ready 4 The Boom (4:38)
+04. Raise Your Hands (3:07)(   Читать дальше...   )Жанр: Pumping House , Hard BassПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA12967172F80B727F99B5148DC3AB6E60E7040C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550932   (591222) от 13.05.2022
+
+Игорь Акимушкин | Жил-был бобр (1987) [PDF]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_591222.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой книге автор рассказывает про жизнь бобров. Кто такие, чем занимаются, чего боятся и чем полезны...
+Для детей дошкольного возраста. Иллюстрации П.Панченко.Жанр: РассказФормат: PDF
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550834   (591221) от 13.05.2022
+
+Saint Serpent - The Moonshine Sessions and the Trailer Park Witch (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Doom Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_591221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bow Down (00:03:38)
+02 - Negative Creep (00:03:29)
+03 - A Cold One (00:03:25)
+04 - Fortunate Son (00:03:00)(   Читать дальше...   )Жанр: Stoner, Doom MetalПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550969   (591220) от 13.05.2022
+
+Человек и закон (13.05.2022) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591220.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основные темы общественно-политической программы "Человек и закон" - борьба с организованной преступностью, расследования о коррупции в высших эшелонах власти, криминальные истории. Программа старается дать взвешенную оценку важнейшим событиям в политической, экономической и социальной жизни страны, освещает огромный спектр вопросов и проблем, с которыми (   Читать дальше...   )Телекомпания: 1 каналЖанр: Документальный, Телепередача, КриминалПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ABAD2DB6F244EC42B6234E2A4BB18A7CA2F9D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550940   (591219) от 13.05.2022
+
+Случай с Бедфордом / The Bedford Incident (1965) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589027.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591219.jpg" />
 </div>
 
 
 ###  Подробнее
 
-События разворачиваются в Африке. Братья-авантюристы Том и Салли стремятся любой ценой раздобыть денег, но постоянно терпят неудачи. На этот раз они решили заняться туристическим бизнесом. Но в Африке они сталкиваются с коварным немцем Ормондом, распродающим диких животных в канадские зоопарки. Братья решают проучить негодяя…Производство: ИталияЖанр: Комедия, боевик, приключенияРежиссер: Итало ЗингареллиАктеры: Теренс Хилл, Бад Спенсер, Джо Багнер, Мэй Дламини, Дон Юргенс, Малкольм Кирк, Бен Масинга, Лес МарковитцПеревод: Любительский одноголосыйПродолжительность: 01:44:25
+Сценарий основан на романе Марка Расковича 1963 года. Американский журналист собирается взять интервью у Эрика Финлэндера, капитана американского эсминца, во время рядового патрулирования. В процессе разговора капитан засекает на глубине советскую подводную лодку, и начинается погоня...Производство: Великобритания, США, Columbia Pictures, Bedford Productions Ltd.Жанр: драма, триллерРежиссер: Джеймс Б. ХаррисАктеры: Ричард Уидмарк, Сидни Пуатье, Джеймс Макартур, Мартин Болсам, Уолли Кокс, Эрик Портман, Майкл Кэйн, Колин Мейтленд, Пол Тамарин, Фрэнк ЛиберманПеревод: профессиональный многоголосый (СПб 5 канал)Субтитры: английскиеПродолжительность: 01:42:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD384D8342305A8DA4794F0F3CF00A653DB772EB
+magnet:?xt=urn:btih:003DA3099D3B8B2EBB500FDDCF47DF2379883C8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +683,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 917721   (589026) от 12.07.2015
+###  Публикация: 1550713   (591218) от 13.05.2022
 
-Уиджи: Доска Дьявола / Ouija (2014) DVD5
+Sunflower Bean - Headful of Sugar (2022) [FLAC|Lossless|tracks + .cue] <Psychedelic Rock, Indie Rock>
 
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589026.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_591218.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Компания друзей вынуждена столкнуться с их самыми страшными кошмарами, после того, как пробуждает темные силы с помощью спиритической доски.Производство: США / Universal Pictures, Platinum Dunes, Blumhouse ProductionsЖанр: УжасыРежиссер: Стайлз УайтАктеры: Оливия Кук, Ана Кото, Дарен Кагасофф, Бьянка А. Сантос, Дуглас Смит, Шелли Хенниг, Сьерра Хойерманн, Санни Мэй Эллисон, Лин Шэй, Клаудия КацПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Английский, венгерский, русский, чешский, польский, болгарский, хорватский, греческий, иврит, румынский, эстонский, латышский, литовский, словенский, украинскийПродолжительность: 01:25:44
+01. Who Put You Up To This? [03:19]
+02. In Flight [03:25]
+03. Otherside [03:10]
+04. Roll The Dice [03:14](   Читать дальше...   )Жанр: Psychedelic Rock, Indie RockПродолжительность: 00:35:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACF95ADACC476C8FFED3A9E813E5B574CA909D4E
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,456 +712,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 916863   (589025) от 12.07.2015
+###  Публикация: 1550753   (591217) от 13.05.2022
 
-Pepi Tree 1.06 [En] - 6 развивающих игр для детей 3-7 лет
+VA - Synth Pop Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Synthwave>
 
->>Программы, Игры и прочее
->>Всё для детей и родителей для Android
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589025.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_591217.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Pepi Tree - это обучающая игра, в которой дети в увлекательной игровой форме изучают животных - обитателей дерева, и их повадки. Образовательная составляющая этого приложения подчёркивает значение дерева, как экосистемы или - проще говоря - дОма для различных животных. Дети многое о них узнают: как они выглядят, чем они питаются и как они добывают себе пищу, где (   Читать дальше...   )Тип издания: ПираткаРелиз состоялся: 19.11.2013Разработчик: Pepi PlayПоддерживаемая ОС: Android 2.2+Жанр: Творчество, Образование, ГоловоломкаЯзык интерфейса: Английский
+01. Porter Robinson - Sad Machine (5:51)
+02. Kavinsky - Nightcall (4:18)
+03. Nero - Into The Night (Nero 1988 Remix) (3:46)
+04. The Human League - Don't You Want Me (3:57)(   Читать дальше...   )Жанр: Synthpop, SynthwaveПродолжительность: 02:12:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EE55BB446B843FD2A0ED3623FBC74CDB57A1197
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917608   (589024) от 12.07.2015
-
-VA - Любимые медляки. Часть 1 (2015) [MP3|320 кб/с]<Pop, Rock, R&B>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Taylor Swift - Blank Space
-02. Jeremy Fisher - Mother
-03. Air - Cherry Blossom Girl
-04. Alex Lloyd - Lonely Town(   Читать дальше...   )Жанр: Pop, Rock, R&BПродолжительность: 04:56:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C253D9D4927979D73EA0B1F0A955666E518CA61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917766   (589023) от 12.07.2015
-
-Петр Первый (1937) DVDRip [H.264] [hand made colored]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589023.jpg" />
-</div>
-
-
-###  Подробнее
-
-Конец XVII - начало XVIII столетия... Период становления Великой Российской Империи, время крупных реформ, тайных заговоров, великих воинских побед.
-О жизни, государственной и военной деятельности Петра Первого - первого Российского Императора - рассказывает этот фильм.
-
-Кадры кинофильма раскрашены методом двухцветного компьютерного тонирования. Хотите увидеть старый (   Читать дальше...   )Производство: СССР, ЛенфильмЖанр: ИсторическийРежиссер: В. ПетровАктеры: Николай Симонов, Алла Тарасова, Виктор Добровольский, Ирина Зарубина, Владимир Гардин, Александр Лариков, Владимир Ершов, Николай Литвинов, Михаил Тарханов, Константин Гибшман, Федор Богданов, Михаил Жаров, Николай ЧеркасовПродолжительность: 03:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA85D137EFB83E74E4713221F924E7D397813F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917789   (589022) от 12.07.2015
-
-Galaxina / Галаксина (1980) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полицейский космический корабль Объединенной межгалактической федерации «Бесконечность» бороздит просторы Вселенной. Сержант Тор влюблен в очаровательного андроида Галаксину. Она не умеет говорить и только моргает большими глазами, когда Тор целует ее. Однажды корабль получает приказ отправиться на планету Альта и достать редкий горный минерал «Голубая звезда». Космонавты (   Читать дальше...   )Производство: СШАЖанр: Фантастика, комедия, приключенияРежиссер: Уильям СэксАктеры: Стефен Махт, Дороти Страттен, Эйвери Шрайбер, Дж.Д. Хинтон, Лайонел Марк Смит, Тэд Хорино, Рональд Найт, Перси Родригез, Херб Капловиц, Анджело Росситто, Нэнси МакКоли, Фред Д. Скотт, Дэвид А. Кокс, Питер Шрум, Сьюзэн Кигер, Мэрилин Джои, Ронда Шир, Бартин Буркетт, Хезер О’Коннелл, Майкл Д. Кастл, Джордж Э. Мэтер, Хью Уорден, Фрэнк Ферро, Дэниэл Винсент Оде, Дарвин (   Читать дальше...   )Перевод: Профессиональный двухголосыйПродолжительность: 01:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20AD9016BF9261E3F6B3BCACDB58E8347B230E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917032   (589021) от 12.07.2015
-
-SolSuite Solitaire 2015 (2015) [Ru/En] (15.7) Repack D!akov
-
->>Архив торрентов
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589021.jpg" />
-</div>
-
-
-###  Подробнее
-
-SolSuite 2015 – крупнейшая, постоянно дополняемая коллекция пасьянсов (576 видов), самые популярные из которых - Spider, Klondike, FreeCell, Pyramid, Golf, Busy Aces, Canfield, Forty Thieves, Four Seasons, Carpet, Flower Garden, Rouge et Noir, Monte Carlo и многие другие. Имеет настраиваемый интерфейс и позволяет вести подробную статистику проведенных игр. Полностью (   Читать дальше...   )Тип издания: RepackРазработчик: TreeCardGamesЖанр: Карточные игрыЯзык озвучки: ОтсутствуетЯзык субтитров: ОтсутствуетЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0D5BF9451A9E5B832A4D7BCA3EEB48AACFCEFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917648   (589020) от 12.07.2015
-
-Владимир Ильин | Напряжение (2015) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый роман нового цикла.
-
-«Решение защититься было рефлекторным — прикрыть глаза и отвернуться. Но руки-то были заняты сияющей ношей, висевшей в десятке метров над головой! И когда правая рука дернулась закрыть лицо, оказалось, что вместе с ней из звезды вырвался сияющий всполох, буквально втянувший за собой темно-алый огонь вражеской атаки.
-(   Читать дальше...   )Жанр: Боевое фэнтезиФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C45955038036A81966E9C1DDCD576057EA869C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917649   (589019) от 12.07.2015
-
-Kiss - Live In Nurburgring (2010/2012) BDRip [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kiss — американская рок-группа, основанная в Нью-Йорке в январе 1973 года и известная сценическими макияжами её участников, а также концертными шоу, сопровождающимися различными пиротехническими эффектами.01. Modern Day Delilah
-02. Cold Gin
-03. Let Me Go, Rock 'N'
-04. Firehouse(   Читать дальше...   )Жанр: Rock, Hard Rock, Heavy MetalПродолжительность: 01:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3227C356DAC347206F8C31E6454636639B37F732
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917631   (589018) от 12.07.2015
-
-Форсаж 7 / Furious Seven (2015) WEB-DL [1080p] ATV
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589018.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как команда отчаянных гонщиков под предводительством Доминика Торрето уничтожила преступную банду Оуэна Шоу и вызволила из его цепких лап подружку Доминика, родной брат погибшего — Ян Шоу — мечтает отомстить. Команду, виновную в гибели Оуэна, Ян планирует жестоко покарать...Производство: СШАЖанр: Боевик, триллер, криминалРежиссер: Джеймс ВанАктеры: Вин Дизель, Пол Уокер, Джейсон Стэйтем, Мишель Родригес, Дуэйн Джонсон, Тайриз Гибсон, Лудакрис, Натали Эммануэль, Джордана Брюстер, Курт РасселПеревод: Дублированный (iTunes)Продолжительность: 02:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E9BE023ECF6BAD4C48E45B6DCC9495BF19C4CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915267   (589017) от 12.07.2015
-
-Мумия / The Mummy (1959) BDRip [H.264/1080p]
-
->>Архив торрентов
->>Архив Классики кино и Старых фильмов до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589017.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1895 году группа британских археологов из клана Бэннингов на раскопках в Египте обнаружила и вскрыла гробницу легендарной жрицы Анаки. Как это обычно и бывает, ослушавшись совета одного из местных жителей не вскрывать гробницу, ибо «тот кто ограбит гробницы Египта — умрет», археологи проникли внутрь захоронения, чем и навлекли на себя гнев почитателей древнего (   Читать дальше...   )Производство: Великобритания | Hammer Film Productions LimitedЖанр: УжасыРежиссер: Теренс ФишерАктеры: Питер Кушинг, Кристофер Ли, Ивонн Фюрно, Эдди Бирн, Феликс Эйлмер, Рэймонд Хантли, Джордж Пэстелл, Майкл Риппер, Джордж Вудбридж, Харольд ГудвинПеревод: Профессиональный многоголосыйПродолжительность: 01:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33F1890217DED840E84CC1DB97174863DADE8A7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917779   (589016) от 12.07.2015
-
-Shadow Defender 1.4.0.586 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589016.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow Defender – программа, аналогичная программе ShadowUser, позволяющей поставить систему в режим тени - Shadow mode, при котором невозможны ни удаление важной информации, ни атака вирусов. Данная утилита также обеспечивает защиту компьютера и конфиденциальности информации, предотвращает нежелательные и злонамеренные изменения в вашем компьютере, позволяет загружаться (   Читать дальше...   )Язык интерфейса: Русский / Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECBA22CF46507C136F018E2FD248CAF42218A06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917445   (589015) от 12.07.2015
-
-Проекты - VideoHive - Happy Ramadan - 8074935 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Happy Ramadan - Простой мультяшный проект с эффектом акварели гостеприимного Рамадана. Редактируйте текст, вставляйте логотип и фотографии, отправьте готовое видео своим друзьям, семье или клиентам. Счастливого Рамадана !!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9956FDC0D847E8725497E40CD3E45F52C59D4CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917731   (589014) от 12.07.2015
-
-Кто я? (2010) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ранним дождливым утром на перроне железнодорожного вокзала рядом с поездом «Москва-Севастополь» милиция обнаруживает молодого человека, потерявшего память. Никаких документов при нем не найдено. Кто он? И как оказался на вокзале? Начинается расследование…Производство: Россия, «Вайт Шип Фильмз»Жанр: Детектив, ДрамаРежиссер: Клим ШипенкоАктеры: Михаил Бабичев, Анатолий Белый, Сергей Газаров, Сергей Галанин, Илья Оболонков, Виктория Толстоганова, Татьяна Федоровская, Жанна Фриске, Александр Яценко, Константин ДемидовПродолжительность: 01:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:615BA79AA492D87057204B63735665514D283CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917554   (589013) от 12.07.2015
-
-AusLogics BoostSpeed 8.0.1.0 DC 07.07.2015 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589013.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics BoostSpeed - популярный набор инструментов для оптимизации и настройки вашей операционной системы. С помощью этой программы вы сможете значительно оптимизировать работу вашей системы, с легкостью настроить различные параметры Windows, очистить жесткий диск и системный реестр от мусора и ненужных записей, сделать дефрагментацию дисков и реестра, а также (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0095BA891CA64A33E5B9512733430155437139
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917379   (589012) от 12.07.2015
-
-U-429: Подводная тюрьма / In Enemy Hands (2004) WEB-DL [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589012.jpg" />
-</div>
-
-
-###  Подробнее
-
-3 июня 1943 года американская субмарина класса «Рыба-меч» вышла в Атлантический океан. Почти два месяца моряки слышали только учебную тревогу и роптали на молодого и амбициозного капитана Рэндалла Салливана, присланного из штаба ВМФ. И вот, наконец, 2 августа прозвучал сигнал боевой тревоги: в 600-х милях от побережья США «Рыба-меч» обнаружила немецкую подлодку Ю-429. (   Читать дальше...   )Производство: США | Artisan Entertainment, John Brister ProductionsЖанр: Боевик, Триллер, Драма, ВоенныйРежиссер: Тони ГиглиоАктеры: Уильям Х. Мэйси, Тиль Швайгер, Томас Кречман, Скотт Каан, Кларк Грегг, Рене Хегер, Кармине Джовинаццо, Джереми Систо, А.Дж. Бакли, Сэм ХантингтонПеревод: Двуголосый закадровый, профессиональный, Авторский (А.Дольский)Язык субтитров: АнглийскийПродолжительность: 01:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40EBBB8A7C8B6D1ABAE0B580EBFF87F18AF3FB7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917753   (589011) от 12.07.2015
-
-Континуум / Project Almanac (2014) DVD9
-
->>Зарубежное кино
->>Зарубежные Фильмы (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589011.jpg" />
-</div>
-
-
-###  Подробнее
-
-Однажды после просмотра старой пленки со дня рождения уже взрослый именинник заметил себя «настоящего» в отражении на видео. Съедаемые любопытством, друзья нашли чертежи таинственного устройства, похожего на машину времени. Они решили доделать ее и испробовать, чтобы вернуться в прошлое и исправить некоторые ошибки.
-
-Но что будет, если группа отвязных тинейджеров (   Читать дальше...   )Производство: США / Paramount Pictures, Insurge Pictures, MTV Films, Platinum DunesЖанр: Фантастика, триллерРежиссер: Дин ИзраэлайтАктеры: Джонни Уэстон, София Блэк-Д’Элиа, Сэм Лернер, Аллен Евангелиста, Вирджиния Гарднер, Эми Ландекер, Гари Викс, Максен Линтц, Гэри Граббс, Мишель ДеФрайтсПеревод: Дублированный (лицензия)Субтитры: Вшитые отключаемыеЯзык субтитров: Арабский, чешский, греческий эстонский, английский, иврит, хинди, исландский, латышский, литовский, венгерский, польский, португальский, русский, румынский, словацкий, украинскийПродолжительность: 01:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75EB055808EFF32A34A93F1F5C0B4FA7247D7AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917480   (589010) от 12.07.2015
-
-Удар Зодиака (2015) SATRip (серии 1-4 из 4)
-
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вчерашний следователь, а сегодня безработная Ольга понимает, что после того, как она «копала» под вице-мэра города, работы ей не найти. И не то что в органах, а просто никакой. Поэтому предложение самого известного в городе адвоката Чернова стать его ассистентом она принимает с радостью.
-Когда выясняется, что с помощью астрологии, которая является главным увлечением (   Читать дальше...   )Производство: Россия, Кинокомпания "Паламеда Продакшн"Жанр: мелодрамаРежиссер: Юсуп РазыковАктеры: Игорь Сигов, Кирилл Дыцевич, Андрей Душечкин, Александра Солянкина, Валерия Крючкова и др.Продолжительность: ~ 00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0F8E90BB3E9C1C0C58D33E79388F21FD82533A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 917654   (589009) от 12.07.2015
-
-Far Manager 3.0 build 4400 Final RePack (& Portable) by D!akov [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Far manager — бесплатный файловый менеджер с поддержкой UNICODE. Имеющий удобный интерфейс для работы с файловыми системами (реальными и эмулированными) и файлами. FAR Manager понимает длинные имена, корректно работает с русскими буквами (есть и перекодировщик WIN-KOI-ISO). Вмонтированный FTP-клиент, также настройка панелей по своему вкусу. Раскраска файлов, просмотр (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2A678869136AB18AE3500FA346BEF1EF8631120
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1102656   (889601) от 10.02.2017
+
+VA - Зимний музобоз русский. Версия № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889601.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Татьяна Чубарова - Тебя Любить Нельзя А Хочется 4:03
+002. Samoel - Я Не Такой 3:58
+003. Aisha - Взгляд 3:19
+004. Sam Wick - Самая Красивая 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF57C27BCF88DC7EE0A74B97FB94F41CE187647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102663   (889595) от 10.02.2017
+
+VA - Снежный популярный отрыв. Выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889595.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Иван Тетенов - Как Мне Жить 4:26
+002. Станислав Сорока - Иди За Мной 3:53
+003. Балаган Лимитед - Полюби 3:46
+004. Jolya Pi - Не Играем 2:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF3234E30A585563A971B98D513A0C3AEB7F6175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102657   (889580) от 10.02.2017
+
+VA - Зимняя 100-ка хитовая выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889580.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Магомед Аликперов - Обними 3:40
+002. Mika'l Feat. Remak - Ты Не Забыла 2:55
+003. Иван Розин - Плохой Хороший 2:55
+004. Кристалл - Летим Вдвоем 4:01(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:556947E4783B3DE0787350297D5FAD3406501046
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102660   (889557) от 10.02.2017
+
+VA - Молодежный бум хитовый. Сборник № 2 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889557.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Funpills - Страсти 3:23
+002. Восемь По Гринвичу - Родились Побеждать 3:37
+003. Ira Smith - Буду Выше 3:36
+004. Александр Гужов & Николай Зайцев - Волны 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8446BCB8B272031126BF4D0CA9E6DEA7865C8669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102662   (889355) от 10.02.2017
 
 VA - На волне позитива. Русский сборник (2017) [MP3|256 Kbps] <Pop>
@@ -626,119 +742,6 @@ VA - Весенняя сотка любимой музыки. Часть 6 (2016
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C518013456D160C29ABEBB3B2F6C5037F64025D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995959   (882468) от 12.03.2016
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 25 ) (2016) [MP3|196-320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moon Ray - Comanchero (Fuzzdead Reboot) (02:59)
-02. Ace Of Base - Beautiful Life (Alchemist Project Mix ) (04:30)
-03. Fancy - Sail Away (Standing Alone Mix) (06:05)
-04. Kate Ryan - Voyage Voyage (Dj.Svn Version) (05:04)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27580BF1B6AADF123815C94B05F8DF50FE94D408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372826   (882128) от 05.04.2020
-
-VA - German Top 100 Single Charts 03.04.2020 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zuna x Loredana - Du bist mein
-02. The Weeknd - Blinding Lights
-03. UFO361 - Allein sein
-04. Kontra K - Puste sie weg(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E860BA541196E93BAD3AD025C0DBF2D848EC9CF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373176   (882001) от 05.04.2020
-
-VA - Stand By Me: Planet Pop Music (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882001.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Connor - Fashion (Extended Version)
-002. Swimming Tapes - Keep Her Closer
-003. Mark Morrison - Return Of The Mack (C & J Street Mix)
-004. T-Micky - N'oublie Pas(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B623D5BD8B4A6EC5F60A98AAC3DB028D7863A1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 298700   (881726) от 21.02.2011
-
-VA - Зимний танцпол (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_881726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CE7512A42E0B8F113FC597B3F3768690C67C91
 ```
 
 https://mybot314.ru/tekegram_catalog/

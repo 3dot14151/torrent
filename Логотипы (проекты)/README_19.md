@@ -1,3 +1,81 @@
+###  Публикация: 1022760   (727239) от 03.06.2016
+
+Проекты - VideoHive - Simple Folding Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Simple Folding Logo - простой чистый показ вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0381A3EBC64DFA6433B577543E7BEA0AEDD06C09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022746   (727033) от 03.06.2016
+
+Проекты - VideoHive - Crystal Gold Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Crystal Gold Logo - логотип в позолоте для ваших видео.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD81F513A9CE17A8DA581E331FDB992CBB6BED31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 789768   (726134) от 25.05.2014
+
+VideoHive – Metal Sting Intro - 5012113 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4971F814639154BE0F5600088FC8D76A2FE40FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128529   (725772) от 26.04.2017
 
 Проекты - VideoHive - Epic Electric Logo Reveal - 19697746 [AEP]
@@ -589,84 +667,6 @@ Form - проект для показа вашего логотипа. Прос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E5823E97BA660A8A108FADA2D3EBB8611BFAD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024118   (719860) от 07.06.2016
-
-Проекты - RocketStock - Sketchpad [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sketchpad - является идеальным для показа логотипа архитектуры, недвижимости и творческих профессионалов. Этот шаблон включает в себя 3 версии: бумага, стекло и матовый пластик.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97FE0ABAD8359CCE5BADFCE6009CB07B060A1AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024004   (719838) от 07.06.2016
-
-Проекты - VideoHive - The Connection (Logo Reveal) [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Совершенно новый шаблон с удивительной анимацией. Красочный логотип показывает контект, что помогает продвигать ту или иную информацию! В этом шаблоне вы можете использовать иконки, логотипы, фотографии, видео, тексты и т.д. Присутствует много элементов управления, так что вы можете сделать много вариаций и найти стиль, который вам нужно!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D0FBC6DE67CA790BABE19E355A805D41E2CC7AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024187   (719832) от 07.06.2016
-
-Проекты - VideoHive - Elegant Particles [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elegant Particles - элегантная анимация разноцветных частиц, по окончании которой появляется ваш логотип.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C39F4FD50C01E78E6AE30B1BE8AB395B6292674
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 952253   (356213) от 01.11.2015
+
+Kurt Elling - Passion World (2015) /Concord/[FLAC|tracks+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Verse [01:40]
+ 02.After the Door [03:57]
+ 03.Loch Tay Boat Song [07:04]
+ 04.Si Te Contara [05:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C70379FB783788D22D8E92C7C8EE8FA5F77024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417610   (355906) от 21.10.2020
+
+Tito Puente & His Orchestra - Live at the 1977 Monterey Jazz Festival (2008) Monterey Jazz Festival Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction by Jimmy Lyons [0:20]
+02. Para los Rumberos [5:59]
+03. Oye Como Va [6:18]
+04. Babarabatiri [8:40](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 01:05:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CFF169EE2869221323EB9B46988D4989BE6969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1417575   (355748) от 21.10.2020
 
 Sam Gendel & Sam Wilkes - Music for Saxofone & Bass Guitar (2018) [FLAC|Lossless|Web-DL|tracks] <Ambient Jazz, Electronic Jazz, Experimental Jazz>
@@ -693,64 +751,6 @@ Jack McDuff - Legends Of Acid Jazz (1964) 1997, Prestige [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:220AA87E7E5352CFE17D8DDBA402158C2225A130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577798   (352447) от 20.09.2022
-
-Alexander Hawkins Mirror Canon - Break a Vase (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый секстет британского пианиста Александра Хокинса не совсем новый: почти все участники ранее играли у него же в Alexander Hawkins Ensemble и других составах. Кроме самого Алекса за роялем и сэмплером, в группу вошли ударник Стивен Дэвис, контрабасист Ник Чарльз, гитарист Отто Фишер, звездный саксофонист Шабака Хатчингс и перкуссионист Ричард Олатунде Бейкер. (   Читать дальше...   )01. The Perfect Sound Would Like to Be Unique (Hawkins) - 1:37
-02. Stamped Down, or Shovelled (Hawkins) - 6:45
-03. Sun Rugged Billions (Hawkins) - 4:30
-04. Generous Souls (Hawkins) - 5:59(   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:49:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DDFD09AE5D477DE72CAA0BBA2C91C41984ECB33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329455   (352380) от 05.10.2019
-
-Jerry Bergonzi - Intersecting Lines (2014) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intersecting Lines [6:48]
-02. Dream Step [6:34]
-03. Creature Feature [6:07]
-04. Tanzania [5:13](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0611EC306855F40503718BD43A09E5BDE5D11633
 ```
 
 https://mybot314.ru/tekegram_catalog/

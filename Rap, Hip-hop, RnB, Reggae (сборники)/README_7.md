@@ -1,3 +1,32 @@
+###  Публикация: 953479   (348411) от 04.11.2015
+
+Ноггано - Свежее (2015) [MP3|320 кб/с]<Rap, Hip-hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348411.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. No Pasaran! ft. АК-47
+2. Russian Paradise ft. АК-47
+3. Всем нашим братьям ft. Баста
+4. Дас ис фантастик ft. АК-47(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD815613793AD411DF5AFEEE2F806E6BE6D34EA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419897   (335805) от 30.10.2020
 
 VA - The Look Of Love (2020) [MP3|264-320 Kbps] <Dancehall, Reggaeton>
@@ -717,35 +746,6 @@ VA - Collection Of Great Songs: RnB & Soul (2018) [MP3|320 Kbps] <R&B, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01B3F3710B54E2B86CE894E1359602B7C076548E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341454   (262311) от 28.11.2019
-
-VA - Union Of Tropic Riddim (2019) [MP3|320 Kbps] <Reggae, Reggaeton, Dancehall>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262311.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dosa Medicine - Hustling Hard
-002. Jeffery Mykals - Gyal Bad
-003. Dj Mimi - Lamizment
-004. Vital Blaq - Jah Jah Blessing(   Читать дальше...   )Жанр: Reggae, Reggaeton, DancehallПродолжительность: 11:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16E3BED1D42E84646B8246597717C4FCF90AAA49
 ```
 
 https://mybot314.ru/tekegram_catalog/

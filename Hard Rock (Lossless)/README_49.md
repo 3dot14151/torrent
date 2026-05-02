@@ -1,3 +1,118 @@
+###  Публикация: 1246703   (459234) от 12.09.2018
+
+Andrew W.K. - The Wolf (2003) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victory Strikes Again (2:10)
+ 02. Long Live the Party (4:11)
+ 03. Tear It Up (3:56)
+ 04. Free Jumps (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEBAA1A1A95727DFF7348502264609F6CD4E7F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246810   (459175) от 12.09.2018
+
+The Union - 3 Albums (2010 - 2013) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа The Union была образована в 2009 году бывшим гитаристом Thunder Люком Морли и Питером Шоулдером. После распада Thunder в 2009 году, Морли объявил о создании нового проекта вместе с Питом Шоулдером, чья группа Winterville распалась ещё в 2007-ом. В качестве остальных членов группы к ним присоединились басист Крис Чайлдс (Thunder) и барабанщик Фил Мартини (Down (   Читать дальше...   )2010 - The Union
+2011 - Siren's Song
+2013 - The World Is YoursЖанр: Hard Rock, Blues RockПродолжительность: 02:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34C8007E989722497327A4F59A4FB50AD1F195B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941487   (458106) от 29.09.2015
+
+Bonafide - Ultimate Rebel (2012) [FLAC|Lossless]<Hard-Rock, Blues-Rock, Heavy Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458106.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD: Bonafide - Ultimate Rebel
+
+01. Make My Own Rules    [0:03:20.41]
+02. The Mess    [0:04:00.70](   Читать дальше...   )Жанр: Hard-Rock, Blues-Rock, Heavy Rock'n'RollПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970E2EC6BBD2A18F260B9B5724AAB976E14B4BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162812   (456816) от 02.09.2017
+
+Sweet - Level Headed Tour Rehearsals 1977 (2014) [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Action (3:49)
+02. Yesterday's Rain (5:00)
+03. California Nights (4:14)
+04. Stairway To The Stars (3:11)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B60074199AEBFEAB8ADCC71EEE7BB3BCB797C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321413   (456793) от 25.08.2019
 
 Van Halen - Balance (1995) Japan Edition [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -647,122 +762,6 @@ Gathering Of Kings - First Mission (2020) [FLAC|Lossless|image + .cue] <Melodic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F6749DD7739F0FC760B4B18CA652D19E5565253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156289   (444651) от 17.09.2020
-
-Cold Chisel - 23 Albums (1978 - 2019) 39 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cold Chisel - самая известная австралийская паб-роковоя команда, распродавшая на родине свыше трех миллионов пластинок. Группа, где, по сути, началась карьера Jimmy Barnes, образовалась в 1973 году в Аделаиде и поначалу меняла названия чуть ли не на каждом концерте. Конец неразберихе с вывесками положил клавишник Дон Уолкер (впоследствии главный автор песен), сочинивший (   Читать дальше...   )Список альбомов:
-1978 - Cold Chisel
-1979 - Breakfast At Sweethearts
-1980 - EastЖанр: Hard RockПродолжительность: 34:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA48209783CC8566665D3C2B8D26497559CA9972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164121   (443775) от 08.09.2017
-
-The Nights - The Nights (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The Show
-02. Nothing But Love
-03. Juliette
-04. I Will Never Stop Loving You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF441B04481ECA35954B83CF0C5B9A635105F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375511   (443748) от 12.10.2016
-
-Fair Warning - 10 альбомов, 4 EP, 2 сингла, 20 CD (1992 - 2016) [FLAC|image+.cue|Lossless]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fair Warning достаточно известен у нас в России, стране далеко не равнодушной ни к AOR'y вообще, ни к германской металлической сцене в частности. Образована команда на стыке 80-х и 90-х бывшим вокалистом V2 Томми Хартом (Tommy Heart) и экс-басистом Zeno Уле Винсом-Ритгеном (Ule Winsome-Ritgen), к которым вскоре примкнули гитаристы Энди Малчек (Andy Malcek), Хельг (   Читать дальше...   )Список альбомов:
-Fair Warning - 1992 Fair Warning
-Fair Warning - 1993 In The Ghetto (EP)
-Fair Warning - 1993 Live In Japan(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 13:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE6C763B8C96437590CE1C6159CD91EE0CD3311
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570331   (443029) от 17.08.2022
-
-A-Z - A-Z (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic, Progressive Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trial By Fire
-02. The Far Side Of The Horizon
-03. The Machine Gunner
-04. Rise Again(   Читать дальше...   )Жанр: Melodic, Progressive Hard RockПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6C4F2E57671BDD74391F1A39F8952031BAE523A
 ```
 
 https://mybot314.ru/tekegram_catalog/

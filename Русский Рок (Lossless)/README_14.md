@@ -1,3 +1,32 @@
+###  Публикация: 1499533   (847596) от 02.10.2021
+
+Сурганова и Оркестр - Завтра (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847596.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Шила осень
+2. Трюкачи (feat. Настя Полева)
+3. Кольчуга
+4. Кровоток(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F323B9860291FFC0705C86B77A51D39A2FDEE08B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1499826   (844297) от 04.10.2021
 
 Х*й Забей - Хуямбрь подкрался (1989) [FLAC|Lossless|image + .cue] <Punk Rock>
@@ -734,35 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116947   (820917) от 21.03.2017
-
-bAbA yAgA - bAba yAgA (1992) [APE|Lossless|image + .cue] <Folk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In The U.S.S.R. 1:42
-02. Side To Side 4:46
-03. Red Bird 4:41
-04. Where Will You Go 4:12(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:52:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E379CC151865F4AEC5BAA126E08A495CDDBB6191
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1754658   (40678) от 11.10.2024
+
+Воля и Разум - Иди на Свет (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кома
+02. Посткоматозный Бред
+03. Иди на Свет
+04. Грешник или Святой(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AD450E94CDC6379340054E597DD9544E59C8F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754912   (40469) от 13.10.2024
 
 Infornal FuckЪ - Музыка категории бэ (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy-Folk-Black-Metal, Parody-Metal>
@@ -712,35 +741,6 @@ Dorgmooth - Бездна (2009) [FLAC|Lossless|image + .cue] <Melodic Death Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4850BAF40C77F6A0F16D2B3C51DF66E588851A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770875   (31987) от 04.01.2025
-
-Vismut - 13 (2012) [FLAC|Lossless|image + .cue] <Metal, Progressive hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прелюдия
-02. Просто такая судьба
-03. Модный приговор
-04. Немного о себе(   Читать дальше...   )Жанр: Metal, Progressive hardcoreПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33CE0A8D6776CC9F651A9FAD5092777119B2E9C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1703745   (114802) от 01.03.2024
+
+Rhonda Burchmore - Cry Me a River: The World Of Julie London (2013) ABC Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let There Be Love [2:38]
+02. Blue Moon [2:31]
+03. What a Difference a Day Makes [2:29]
+04. You'd Be So Nice to Come Home To [2:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3A20D02D524DF1EF74709E22C3E2D7C054B06B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703743   (114787) от 01.03.2024
+
+Sahib Shihab - Sentiments (1965, 1971) 2005, Storyville [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ma'nee [7:44]
+02. The Call [7:57]
+03. Rue de la Harpe [5:03]
+04. Sentiments [5:19](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C663069DD7D34BADC914A5CC4F42B091E4AE2A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703870   (114661) от 02.03.2024
 
 Caravan Palace - Gangbusters Melody Club (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
@@ -687,64 +745,6 @@ Dave Brubeck - Trio Brubeck (1993) MusicMasters Jazz [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:817C349E4819494846BABF547614A874D3D309DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704646   (114103) от 05.03.2024
-
-Stephane Grappelli Trio - I Got The World On A String (1996) 1998, West Wind [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Took Advantage of Me [3:37]
-02. Do You Know What I Mean [4:05]
-03. How About You [4:15]
-04. Looking at You [4:22](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8227A031027F827BDC9ED98518D98AB44E65E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704637   (114101) от 05.03.2024
-
-Lionel Hampton - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vibe Boogie [5:27]
-02. Screamin' Boogie [5:48]
-03. Doublin' with Dublin [3:09]
-04. Ribs and Hot Sauce [2:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD14B3A8C561033C68D3B63865E67F1D23992BF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

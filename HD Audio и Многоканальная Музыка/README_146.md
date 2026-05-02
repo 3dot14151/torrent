@@ -1,3 +1,177 @@
+###  Публикация: 1738522   (106291) от 23.07.2024
+
+Chris Cain - Good Intentions Gone Bad (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Little Too Late (3:30)
+02. Fear Is My New Roommate (3:33)
+03. Good Intentions (3:15)
+04. Waiting For The Sun To Rise (4:31)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8894148B57AC445797F68D95B7FAB4DCE48D9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738560   (106278) от 23.07.2024
+
+Dickey Betts & Great Southern - Dickey Betts & Great Southern (1977) Remaster, 2024, Legacy Recordings [FLAC 24/192|Lossless|WEB-DL|tracks] <Southern Rock | Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Out To Get Me (00:04:42)
+02 - Run Gypsy Run (00:03:29)
+03 - Sweet Virginia (00:03:42)
+04 - The Way Loves Goes (00:04:59)(   Читать дальше...   )Жанр: Southern Rock | BluesПродолжительность: 00:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF649B285D60C90CF61CD7968D5C16FBC2ECDB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738591   (106277) от 23.07.2024
+
+Dickey Betts & Great Southern - Atlanta's Burning Down (1978) Remaster, 2024, Legacy Recordings [FLAC 24/192|Lossless|WEB-DL|tracks] <Southern Rock, Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Time Feeling (2024 Remaster) [00:04:26]
+02. Atlanta's Burning Down (2024 Remaster) [00:04:29]
+03. Leavin' Me Again (2024 Remaster) [00:04:14]
+04. Back On The Road Again (2024 Remaster) [00:04:10](   Читать дальше...   )Жанр: Southern Rock, BluesПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DBCC9788723AABEB96016541296490A2479F92F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724296   (106276) от 23.07.2024
+
+Curtis Waters - Bad Son (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie Pop, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Child [00:04:12]
+02. Star Killer [00:02:03]
+03. God'S Lonely Man [00:02:45]
+04. Manic Man [00:02:14](   Читать дальше...   )Жанр: Alternative, Indie Pop, Indie RockПродолжительность: 00:38:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4761B73BCC6F68FA9EF947B1537009AA3753B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738528   (106273) от 23.07.2024
+
+Soulseller - Witching Hour (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help Me Find a Way (4:55)
+02. Reckless (3:18)
+03. Lover's Eyes (3:35)
+04. Hey (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F273C73734E0B6BE280C3749AD5F64C5798513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738991   (106232) от 25.07.2024
+
+Powerwolf - Wake Up The Wicked (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bless 'em With the Blade (2:48)
+02. Sinners of the Seven Seas (3:01)
+03. Kyrie Klitorem (3:04)
+04. Heretic Hunters (3:27)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4E5CB84418AB20F3F5C1B16ED23F0A0D16C7FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738989   (106217) от 25.07.2024
 
 Animal Джаz - Ян (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -567,180 +741,6 @@ Art Sherrod Jr - Feels So Good (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C301B69248651D6C88B77A65EDEC090EC5AE94D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739582   (105986) от 28.07.2024
-
-Marcus Anderson - The Vibe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anyway You Want It (3:58)
-02. The Vibe (4:29)
-03. Vibe Out (4:20)
-04. Farewell (5:05)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43E7C623AA96E2B60F1A27A0AC9C8A3774D339F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739921   (105962) от 31.07.2024
-
-Empire Of The Sun - Ask That God (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electropop, Synth-pop, Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Changes [00:03:38]
-02. Cherry Blossom [00:03:27]
-03. Music On The Radio [00:02:56]
-04. The Feeling You Get [00:04:16](   Читать дальше...   )Жанр: Electropop, Synth-pop, Indie PopПродолжительность: 00:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080B261677B6430A3AE0E5DD67053684DA9EA9DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740039   (105956) от 31.07.2024
-
-VA - XXXL 3. Танцевальный Размер (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Europop, Dance-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-A1 Тату – Я Сошла С Ума (Remix)
-A2 Жуки – Танкист (Remix)
-A3 Дискотека ''Авария'' – Новогодняя 2001(   Читать дальше...   )Жанр: Europop, Dance-popПродолжительность: 01:17:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33985487BFFF65198EFA6E2744B08B10A86C2AA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740125   (105924) от 31.07.2024
-
-Slaughter to Prevail - Kostolom (2021) Released, 2022, Sumerian Records [WavPack|Lossless|image + .cue] <Deathcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bonebreaker
-02. Demolisher
-03. Baba Yaga
-04. Made In Russia(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD9F79DE075BDAA586E8B9EAE79829324ED6BB15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739898   (105922) от 31.07.2024
-
-Train - Live At Royal Albert Hall (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AM Gold (Live At Royal Albert Hall) [04:57]
-02. Calling All Angels (Live At Royal Albert Hall) [04:42]
-03. Get to Me (Live At Royal Albert Hall) [05:03]
-04. Save Me, San Francisco (Live At Royal Albert Hall) [04:36](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3549AE8AE7E81628D0D9E26BAD472645E4B57C9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740085   (105921) от 31.07.2024
-
-Villano Antillano - Miss Misogyny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CamGirl >.< !!! [00:02:35]
-02. 1-800-CRISTAL [00:02:41]
-03. Super Hoe [00:02:11]
-04. Clonazepamela [00:02:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:26:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D5AD6DD02C5B33959E06DDF22F8B7750506EF22
 ```
 
 https://mybot314.ru/tekegram_catalog/

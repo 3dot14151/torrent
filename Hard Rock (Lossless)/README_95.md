@@ -1,3 +1,119 @@
+###  Публикация: 1723542   (109501) от 16.05.2024
+
+Red Dead Halo - No Country For Despicable Men (2024) [FLAC|Lossless|WEB-DL|tracks] <southern rock, melodic hard rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awake [00:03:18]
+02. Diabolical [00:03:49]
+03. Gunslinger [00:04:41]
+04. Live It Up [00:03:29](   Читать дальше...   )Жанр: southern rock, melodic hard rockПродолжительность: 00:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DAD5CA52D5F0004B9D02C9AF313B6962E0DA57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723761   (109451) от 16.05.2024
+
+Universe III - Universe III (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am (4:35)
+02. To Serve And Protect (5:35)
+03. Casa De Los Pollos (4:38)
+04. Why (5:40)(   Читать дальше...   )Жанр: Melodic Hard Rock, Heavy MetalПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DD5535E5A2963B6F4DBD07D278BBE87E3CD11B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723572   (109442) от 16.05.2024
+
+Intelligent Music Project - VIII: Miracles Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Thunder
+03. Days Rollin'
+04. For You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCDCFEE9EAF01CD3232D2028ACA26E4B5DDACFBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724172   (109352) от 18.05.2024
+
+Motörhead - Remorse? No! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace of Spades (Alternate Version) (3:02)
+02. Motörhead (Live at Hollywood Palladium, Oct 1984) (2:29)
+03. Jailbait (Alternate Version) (3:31)
+04. Stay Clean (Live at Newcastle City Hall, 29/3/1981) (2:42)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:25:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216D20FF1E2262CCA7AD6458F3EE66B50968CE72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724291   (109255) от 19.05.2024
 
 Gjenferd - Gjenferd (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, , Psych, Stoner, 70's>
@@ -631,122 +747,6 @@ Those Damn Crows - Inhale/Exhale (2023) Expanded Edition, 2024, Earache Records 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FB7AA77E67964048C3418D786C3E1AC9E9BA9EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732756   (107427) от 26.06.2024
-
-Push - 4 the Love of the Game (2002) Remaster, 2024, Push [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For the Love of the Game [00:04:13]
-02. Heart Is an Empty Space [00:03:34]
-03. Only Dreaming [00:03:37]
-04. In My Blood [00:04:21](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACCE20FBC06D5EB7510012A79089554A2FD0E8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732750   (107425) от 26.06.2024
-
-Greenleaf - The Head & The Habit (2024) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe, Breathe Out [00:05:33]
-02. Avalanche [00:05:07]
-03. Different Horses [00:04:31]
-04. A Wolf In My Mind [00:04:58](   Читать дальше...   )Жанр: Stoner, Hard RockПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A37EF9C3C2D6319389CEA355F0E56D463D65CDA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732743   (107422) от 26.06.2024
-
-Shotgun Mistress - Kings Of The Revolution (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Kings Of The Revolution (03:33)
-02 - Sweet Woman (04:00)
-03 - Shot Down (03:44)
-04 - Jude Judas (03:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:286F42E795384E5EAAC1F02556977C8D70B009ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732760   (107415) от 26.06.2024
-
-Mondo Generator - Cocaine Rodeo (2000) 20th Anniversary Repress, 2020, Heavy Psych Sounds [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Punk, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 13th Floor [00:03:16]
-02. Shawnette [00:03:19]
-03. Uncle Tommy [00:01:28]
-04. Miss Mary Gets a Boob Job [00:04:14](   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, Punk, Stoner RockПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:089BADA9DAFF1243E22D37997F487878E7AC5E27
 ```
 
 https://mybot314.ru/tekegram_catalog/

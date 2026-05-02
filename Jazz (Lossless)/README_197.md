@@ -1,3 +1,61 @@
+###  Публикация: 1172534   (393176) от 08.10.2017
+
+Mindi Abair And The Boneshakers - The EastWest Sessions (2017) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vinyl
+02. Not That Kind of Girl
+03. Play to Win
+04. Pretty Good for a Girl (feat. Joe Bonamassa)(   Читать дальше...   )Жанр: Smooth Jazz, Blues RockПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56579C5AFA5234292F6B519687568E453BB7AF98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172611   (393107) от 08.10.2017
+
+VA - Bossa N' Rihanna (2017) [FLAC|Lossless|image + .cue] <Jazz, Bossa Nova, Chillout>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_393107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amazonics - Russian Roulette
+02. Jingo - Kiss It Better
+03. Sao Vicente & Shelly Sony - Stay
+04. Banda Do Sul - Sex with Me(   Читать дальше...   )Жанр: Jazz, Bossa Nova, ChilloutПродолжительность: 00:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C4D9E5D01ADE672EC9F3474F080A7F82C49CAB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569353   (392911) от 02.11.2012
 
 Manu Katche - Manu Katche (2012) [FLAC|Lossless]<Jazz, Fusion>
@@ -703,65 +761,6 @@ Jessica Williams - Higher Standards (1997) Candid [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:116FA051A3E0DD2DD5AA7C19087BFA3CEF6B7C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414051   (387592) от 07.10.2020
-
-Rob Barron - From This Moment On (2020) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rob Barron - оплот лондонской джазовой и студийной сцены. Постоянно пользующийся спросом, высоко ценимый за его импровизационное чутье, врожденную музыкальность и ловкость, которые раскрывают влияния, вдохновленные великими музыкантами Blue Note greats Cedar Walton, Wynton Kelly and Sonny Clark.
-Его любовь к фортепиано возникла в раннем возрасте и быстро превратилась (   Читать дальше...   )01. Lover Man (04:56)
-02. Pure Imagination (05:59)
-03. My Foolish Heart (06:25)
-04. Butch and Butch (04:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC608141C030A1F75143DA4CEF734290A17A8E7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174125   (387540) от 14.10.2017
-
-Jessica Williams - In The Key Of Monk (1997) 1999, Jazz Focus [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bemsha Swing [04:39]
-02. Just a Gigolo [04:32]
-03. Reflections [06:03]
-04. I Love You Sweetheart of All My Dreams [03:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D304C21C7CBD6B531C75BD0E9C3B9D147D2A8EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

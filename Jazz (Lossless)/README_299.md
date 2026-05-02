@@ -1,3 +1,67 @@
+###  Публикация: 596118   (131562) от 30.12.2012
+
+VA - JazzCD.no - Jazz From Norway 5th set (2012) 3CD[FLAC|Lossless]<Abstract, Contemporary Jazz, Jazz-Funk, Acid Jazz, Modern Classical Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zanussi 5 - The Afreet [06:50]
+02. Motland / LonbergHolm / Solberg / Gjerstad - NBGB [07:23]
+03. Sphinx - On Th e Rise [03:28]
+04. Sekstett - 6.1 [05:01]
+05. Splashgirl - Ravine [04:25]
+06. Huntsville - Star Spangled Pillow [04:52]
+07. 1982 - 01:53 [01:54]
+08. Ballrogg - Swedish Country [08:00]
+09. Pocket Corner - Naked Horse Ride [03:40]
+10. Mari Kvien Brunvoll - Wake Up [06:45](   Читать дальше...   )Жанр: Abstract, Contemporary Jazz, Jazz-Funk, Acid Jazz, Modern Classical JazzПродолжительность: 01:15:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682483   (131491) от 07.12.2023
+
+Toshiyuki Miyama & The New Herd - A Love Story: This Is Latin Music (1970) 2006, Nippon Crown [FLAC|Lossless|tracks + .cue] <Big Band, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tico Tico [2:35]
+02. El Cumbanchero [2:54]
+03. Mambo No.5 [2:26]
+04. Besame Mucho [3:00](   Читать дальше...   )Жанр: Big Band, Latin JazzПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7914E4F49F96AD61FA9118BFB54BEAB50A14261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682690   (131199) от 08.12.2023
 
 Toshiyuki Miyama & His New Herd - Beat Generation (1994) 2015, King Record [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -728,64 +792,6 @@ VA - Jazz Hop #1 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF0D213E6152B4DDDABDE7BB2BC91BA0BDC7753B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683212   (128558) от 10.12.2023
-
-Lisa Hilton - Paradise Cove (2022) Ruby Slippers Productions [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birks' Works [4:14]
-02. Fast Time Blues [3:54]
-03. Blues Vagabond [4:58]
-04. Another Simple Sunday with You [6:29](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18459E336D4E663D71969075CDCCACD2EA12DEB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683214   (128554) от 10.12.2023
-
-Terri Lyne Carrington - Money Jungle: Provocative In Blue (2013) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Jungle [6:21]
-02. Fleurette Africain [5:57]
-03. Backward Country Boy Blues [6:01]
-04. Very Special [4:11](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE0315A946F64F0ED0B666CBB33FE7B421EE687
 ```
 
 https://mybot314.ru/tekegram_catalog/

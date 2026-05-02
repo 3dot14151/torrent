@@ -1,3 +1,235 @@
+###  Публикация: 1360354   (960930) от 15.02.2020
+
+Аурика Ротару - Счастье-свободная птица (2006) [FLAC|Lossless|tracks + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Счастье - свободная птица 3:20
+02. Двi голубки 3:25
+03. Сентименте 4:48
+04. Сопiлка 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1833FA687110A25F32C60DC4BCEAF4D2A85AC546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360453   (960726) от 15.02.2020
+
+Demis Roussos - Collected (2015) 3CD, Compilation [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rain And Tears [3:14]
+ 02 - End Of The World [3:16]
+ 03 - I Want To Live [3:53]
+ 04 - Marie Jolie [4:40](   Читать дальше...   )Жанр: PopПродолжительность: 03:46:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B3CE06A031F090BE4C6FB5BD091E345672B34A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747962   (959667) от 21.01.2014
+
+VA - Pure Italia (2012) Box Set, 4 CD [FLAC|Lossless]<Pop, Chanson, Ballad, Vocal, Europop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что мы знаем о современной эстраде Италии? Три-четыре раскрученных имени (типа Рамаzzотти, Челентано, Пупо и т.д.). Между тем как Рим отличается от Флоренции или Венеции, а тем более от маленьких итальянских городков -  и все вместе они составляют неповторимый аромат настоящей Италии, так и вся палитра современной итальянской эстрады это вовсе не 3-4 раскрученных (   Читать дальше...   )01. Domenico Modugno - Dio Come Ti Amo (2:09)
+02. Drupi - Sambario (4:17)
+03. Nicola Di Bari - I Giorni Dell'Arcobaleno (3:03)
+04. Gino Paoli - La Gatta (2:10)(   Читать дальше...   )Жанр: Pop, Chanson, Ballad, Vocal, EuropopПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF4FA5E65C50BF8558393084ECB051F1A95052B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361162   (957077) от 18.02.2020
+
+Karizma Duo - Acoustic Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On Eileen 02:31
+02. Someone You Loved 03:19
+03. Take On Me 03:23
+04. Teenage Dirtbag 03:39(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CA1D85A8C2C50F90FEDD3F7A0A12D805E5CEFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980518   (956156) от 29.01.2016
+
+Fancy - Five (1990) [FLAC|Lossless|tracks + .cue] <Pop, Synthpop, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956156.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.When Guardian Angels Cry
+2.Like You
+3.Second Hand Paradise
+4.All We Need Is to Believe(   Читать дальше...   )Жанр: Pop, Synthpop, DiscoПродолжительность: 00:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F726F2FE5F214C183FB3C415DC92C825385097E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980468   (956154) от 29.01.2016
+
+Nicole Scherzinger - Killer Love (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poison [03:47]
+02. Killer Love [03:52]
+03. Don't Hold Your Breath [03:17]
+04. Right There [04:02](   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0250677A7D62F3B56FF6A0E13052256136ADE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980472   (956062) от 29.01.2016
+
+ABBA - Super Trouper (1980) West Germany 1st Press, 15 November 1982 [FLAC|Lossless|image + .cue] <Pop Music>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_956062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Super Trouper    [04:11.90]
+02. The Winner Takes It All    [04:55.26]
+03. On and on and On    [03:40.62]
+04. Andante, Andante    [04:39.57](   Читать дальше...   )Жанр: PopПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687BF6BAA867AE1F01C72653F0CEA2D638628C45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980362   (955973) от 29.01.2016
+
+Pet Shop Boys - Very (1993) Licence to EMI Records Ltd. [FLAC|Lossless|tracks + .cue] <Pop, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955973.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Can You Forgive Her?
+2.I Wouldn’t Normally Do This Kind of Thing
+3.Liberation
+4.A Different Point of View(   Читать дальше...   )Жанр: Pop, SynthpopПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E17EDF1DEC034A0084B99FFC1E35A2031D528D29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980477   (955667) от 29.01.2016
 
 Sia - This Is Acting (Deluxe Edition) (2016) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie>
@@ -510,239 +742,6 @@ Al Bano & Romina Power - Raccogli l'attimo (2020) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F338B5D94AD10D5806543AF7C05632915955BC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982022   (948136) от 03.02.2016
-
-VA - Ultimate Love • 4CDs Of Great Love Songs (2015) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <Pop, Soul, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greatest Love All Of All (Whitney Houston) [04:51]
-02. She's Always A Woman (Billy Joel) [03:21]
-03. Brown Eyed Girl (Van Morrison) [03:05]
-04. All Of Me (John Legend) [04:31](   Читать дальше...   )Жанр: Pop, Soul, R&B, BalladПродолжительность: 04:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCDEE974BB612930E8486F829ACD0520D95C2FA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 750862   (947751) от 29.01.2014
-
-VA - Pure... Drive (2011) Box Set, 4 CD [FLAC|Lossless]<Pop, Dance, Rock, Other>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Какая музыка должна сопровождать водителя в поездке? Чтоб не раздражала, не надоедала, не кончалась дольше, не... У каждого ещё целый набор своих не.
-Продолжая серию (ссылка на серию внизу) Pure... от Sony, представляю Вашему вниманию сборничек для водителя. Мне кажется, что каждый найдет для себя, что взять из него с собой в машину.CD1:
-01. Journey - Don't Stop Believin'(4:11)
-02. Kenny Loggins  - Danger Zone(3:32)
-03. Bonnie Tyler -  Holding Out For A Hero(4:23)(   Читать дальше...   )Жанр: Pop, Dance, Rock, OtherПродолжительность: 04:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EA0F0A39D73CB6B405B03C9F2F52999F5773F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362866   (946539) от 25.02.2020
-
-VA - Women Of 80s Pop (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Hand On Your Heart 3:38
-02. Bette Midler - Wind Beneath My Wings 4:54
-03. Pretenders - 2000 Miles 3:39
-04. Tina Turner - I Don't Wanna Lose You 4:13(   Читать дальше...   )Жанр: PopПродолжительность: 01:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8583585809BCE72134A4CCAE087E961A5DD57F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983140   (945468) от 05.02.2016
-
-VA - It Had To Be You • The Ultimate Love Songs (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Pop Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Coldplay - Fix You [4:55]
-02.Lily Allen - Somewhere Only We Know [3:30]
-03.Gabrielle Aplin - The Power Of Love [4:06]
-04.Labrinth feat. Emeli Sande - Beneath Your Beautiful [3:58](   Читать дальше...   )Жанр: Pop, Pop Rock, Ballad |Продолжительность: 03:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D0908087D68FDC080EAFDB9A12133EBB0453CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 982933   (945295) от 05.02.2016
-
-Suzanne Vega - Retrospective: The Best Of Suzanne Vega (2003) [FLAC|Lossless|image + .cue] <Folk Rock, Indie Rock, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luka
-02. Tom's Diner (DNA Featuring Suzanne Vega)
-03. Marlene On The Wall
-04. Caramel(   Читать дальше...   )Жанр: Folk Rock, Indie Rock, Pop RockПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B90DF1F2C3F1162E88EBC306ED04C4514B1DF48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 98717   (944935) от 26.02.2020
-
-Chilly - For Your Love(1978)-Come To L.A(1979)-Secret Lies(1982) [FLAC+Cue|940 kbps]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dimension 5 (3:18)
-02. Secret Lies (3:11)
-03. Ten Million Dollar Baby (2:40)
-04. Brain Storming (3:44)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518B8467F9DEB7EE9AD5F832F96225986A162BDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983283   (943729) от 06.02.2016
-
-Monica Naranjo - Lubna (2016) [FLAC|Lossless|tracks + .cue] <Latin,  Rock, Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943729.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Lasciatemi Qui 3:38
-2	Apocalitica 2:55
-3	Ya Esta Bien 6:52
-4	Perdida 4:58(   Читать дальше...   )Жанр: Latin,  Rock, ClassicalПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA385A7EAD105C25164A31FFC6A4046ABE5D141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983382   (943675) от 06.02.2016
-
-Nina Nesbitt - Modern Love (2016) EP [FLAC|Lossless|tracks] <Pop, Indie Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая шотландская поп-певица Nina Nesbitt, 5 февраля 2016 года представила свой новый мини-альбом, который получил название "Modern Love".01. Chewing Gum (03:20)
- 02. Take You To Heaven (04:00)
- 03. Masquerade (Niightwatch Demo) (03:34)
- 04. Chewing Gum (Niightwatch Demo) (03:34)(   Читать дальше...   )Жанр: Pop, Indie Pop, Female VocalПродолжительность: 00:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3EC11C20045F3F165EA793CBDCD41CC35805E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

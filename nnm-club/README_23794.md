@@ -1,25 +1,24 @@
-###  Публикация: 1702567   (115481) от 26.02.2024
+###  Публикация: 1700570   (117066) от 17.02.2024
 
-Dreamstreet - Dreamstreet 2.0 (2023) [FLAC|Lossless|WEB-DL|tracks] <AOR>
+Главная дорога (17.02.2024) WEBRip [H.264/720p]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Forever Yours (04:02)
-02. Head Troubles (03:31)
-03. Heartzone (05:21)
-04. Money (04:33)(   Читать дальше...   )Жанр: AORПродолжительность: 00:39:02
+Две ошибки и ДТП со смертельным исходом, дуэль на пистолетах после аварии и таран булочной в Уфе.
+ Перепутали инсульт с опьянением: цена ошибки инспекторов, на шесть часов оставивших «трезветь» трезвого дальнобойщика в холодной кабине фуры.
+ Присадки или спирт, чтобы избавиться от влаги в бензине? Ведущие сравнили, лучше ли современные технологии старых дедовских методов (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83D3D64EAEEBB362398719D56B60846BD003F3B1
+magnet:?xt=urn:btih:18126143E5B0CEEB5927DDC0E9D632DE7E36330E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702812   (115480) от 26.02.2024
+###  Публикация: 1700565   (117065) от 17.02.2024
 
-Funeral Winds - Sinister Creed (2018) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+Николай Эрденко и ансамбль Джанг - Лучшие цыганские песни (2000) [FLAC|Lossless|tracks + .cue] <Folk>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Road to Perdition
-02. Cursed is This Pantheon of Flesh
-03. The Arrival
-04. Sinister Creed(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:35:38
+01. Москва златоглавая 4:05
+02. Пойте, цыгане... 4:14
+03. Дорогой длинною 3:50
+04. Ехали цыгане 1:46(   Читать дальше...   )Жанр: FolkПродолжительность: 01:13:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A740C96A9AEB20CC985813A0152E643CFA3E47BF
+magnet:?xt=urn:btih:F9402A1911E65E970076B83601F3AB15FAE79729
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,393 +55,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702647   (115479) от 26.02.2024
+###  Публикация: 1700555   (117064) от 17.02.2024
 
-Dissolving of Prodigy - Gallileous & Wijlen Wij & Dissolving of Prodigy & Pantheist - Unveiling the Signs (2010) Split [FLAC|Lossless|image + .cue] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kostas Panagiotou - Overture: The Madness of Crowds (06:54)
-02. Gallileous - Zabobon (Superstition) (09:19)
-03. Wijlen Wij - The Wall of Life (13:26)
-04. Dissolving of Prodigy - Zlodejska svetelka (Lights of Thieves) (14:19)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:53:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB8A53DBA9A24B0F32AF3EB08BE9EB337D8A467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702705   (115478) от 26.02.2024
-
-James Mastro - Dawn of a New Error (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Words, Wrong Song (2:46)
-02. My God (3:13)
-03. Three Words (2:38)
-04. Everywhere (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02F8C5DB089B9FB09D8E12B39E700CCA8AB73107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702831   (115476) от 26.02.2024
-
-Опротестованный чек / The No-Account Count (1914) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Небольшая легонькая комедия. С переодеваниями. Барышня не великая красавица и никак жениха найти не может. Приходится активно использовать мастеров парикмахеров и стилистов.Производство: США, Kalem CompanyЖанр: короткометражный, комедия, немое киноРежиссер: Альберт В. ХейлАктеры: Джон Е. Бреннан, Фред Хорнби, Джон Рэнд, Этель ТеареПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52A74E4769CFA69A28BB6A979FD5DDDF2178E19E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702658   (115475) от 26.02.2024
-
-Eternal Storm - A Giant Bound to Fall (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - An Abyss of Unreason (00:13:35)
-02 - A Dim Illusion (00:07:18)
-03 - There was a Wall (00:05:07)
-04 - Last Refuge (00:10:00)(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 01:09:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29466FB84AC36469C7B74C47B3848A2ED4540171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702787   (115473) от 26.02.2024
-
-Funeral Winds - Nexion Xul - The Cursed Bloodline (2007) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Old Serpent Stirs
-02. Fasten Upon Mankind The Eyes Of Death
-03. The Blood Of Chaos
-04. Anzu(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0F42B70DFD75F1D8FFA9BAC489E5C35BDD8D4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702664   (115472) от 26.02.2024
-
-Молодые копы / Cheongnyeongyeongchal / Midnight Runners / Cheong-nyeon-gyeong-chal (2017) BDRip [H.264/720p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115472.jpg" />
-</div>
-
-
-###  Подробнее
-
-Два курсанта полицейской академии пошли в модный ночной клуб, чтобы познакомиться с девушками, но парням не повезло. К тому же, не каждая захочет встречаться с полицейским. На обратном пути они встречают симпатичную девушку и, пока спорят, кто пойдёт спрашивать у неё номер телефона, незнакомку оглушают, заталкивают в фургон и увозят. Парни тут же сообщают в полицию, (   Читать дальше...   )Производство: Корея Южная / Lotte Entertainment, Movie Rock, Studio 706, Studio Beside The Library, Verygood StudioЖанр: боевик, комедия, детектив, криминалРежиссер: Ким Джу-хванАктеры: Пак Со-джун, Кан Ха-ныль, Сон Дон-иль, Пак Ха-сон, Пэ Ю-рам, Ко Джун, Ли Хо-джон, Ли Джун-хёк, Со Джон-ён, Нам Мун-чхольПеревод: Многоголосый профессиональный (WinMedia)Язык озвучки: Русский, корейскийСубтитры: Русские, английскиеПродолжительность: 01:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:676397CC0520E9192AB35D494CD7C24EF1A834C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702707   (115471) от 26.02.2024
-
-Sons of Liberty - The Detail Is In The Devil (2024) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time to Fly (3:48)
-02. Light the Fuse (3:13)
-03. Turn This Tide (3:59)
-04. Tertulia Time (3:55)(   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:337DE6084B62420A5EE1623370C9D1E22779DD9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702702   (115470) от 26.02.2024
-
-Pascal Geiser - You Can Change Your Hat (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Found a Love (3:50)
-02. Rub It in (3:27)
-03. Handle with Care (2023 remastered) (3:05)
-04. Rainy Autumnday (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A6359261FC9D5718927148D479D9D6B0208B240
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702663   (115469) от 26.02.2024
-
-Joe Lamont - Secrets You Keep (1985) Reissue, Sony Music, 2010 [FLAC|Lossless|WEB-DL|tracks] <AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secrets You Keep (03:52)
-02. No Explanation (03:40)
-03. Total Breakdown (04:21)
-04. Heartbreak City (05:17)(   Читать дальше...   )Жанр: AORПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92667796CA2809B1D90240813547DB71DC9DA636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702656   (115468) от 26.02.2024
-
-Dissolving Of Prodigy & Bigotry - Lamentations of Innocents & Step to the Grave (2017) Split [FLAC|Lossless|image + .cue] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dissolving Of Prodigy:
-01. Affliction (07:39)
-02. The Torment In Blind Eyes (08:19)
-03. Damocles Gladius (07:04)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F7CC2540DAA3C69A5697D410DCC9E4D7E5DD5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702832   (115466) от 26.02.2024
-
-Белое золото (1929) WEBRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый полнометражный туркменский фильм. Бывший батрак Курбан, окончив в городе курсы трактористов, организовал в родном ауле колхоз. Вот они какие, трактористы!Производство: СССР, ТуркменгоскиноЖанр: драма, история, немое киноРежиссер: Александр ВладычукАктеры: Б. Ораз-оглы, Б. Куль-Мурадов, Ай-Джаман, Х. Нур-байСубтитры: русские (интертитры)Продолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00632BCD040F84A88B7EF700604F0EE61DFFB5DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702573   (115465) от 26.02.2024
-
-Eternal Storm - From the Ashes (2013) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unfading Memories (02:49)
-02. From The Ashes (03:56)
-03. Boundaries Of Serenity (04:23)
-04. A Picture In The Dark (05:10)(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA35451B4CA30A72994CDCD132951DB6A21CEDDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702661   (115464) от 26.02.2024
-
-Far Beyond - The End of My Road (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Gothic, Black Metal, Symphonic Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Midwinter (00:02:14)
-02 - A Symphony of Light (00:10:48)
-03 - Ad Infinitas (00:00:59)
-04 - Tempus Fugit (00:09:24)(   Читать дальше...   )Жанр: Symphonic Gothic, Black Metal, Symphonic Melodic Death MetalПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44385612BE571C4E473C2D27501D2450B4B7C1A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702597   (115463) от 26.02.2024
-
-Девушка - ямщик дилижанса / The Girl Stage Driver (1914) WEBRip [H.264/720p-LQ]
+Моя собачья жизнь / Mitt liv som hund / My life as a dog (1985) BDRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Старый извозчик дилижанса и его хорошенькая дочь счастливо живут в процветающем шахтерском городке. Девушка предана своему доброму старому отцу, который уже много лет работает ямщиком. Стоит ли говорить, что девушка прекрасная наездница и научилась управлять дилижансом. Ее сердечный друг - шериф, близкий друг ее отца. В одной из поездок извозчику поручают 5000 долларов (   Читать дальше...   )Производство: США, Eclair AmericanЖанр: короткометражный, вестерн, немое киноРежиссер: Уэбстер КоллисонАктеры: Норберт А. Майлс, Эдна Пэйн, Will E. Sheerer, Генри СтэнлиПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русскиеПродолжительность: 00:26:27
+Фильм основан на полуавтобиографическом романе Рейдара Йонссона.. Двенадцатилетний Ингмар живёт с матерью, которая больна туберкулёзом, и со старшим братом. Отец по делам службы находится в Африке. Чтобы избавить мать от забот и дать ей немного подлечиться, парнишку отправляют на лето к дяде, в отдалённый посёлок, где всё ему чуждо и непривычно. Но именно там Ингмар (   Читать дальше...   )Производство: Швеция / FilmTeknik, Svensk Filmindustri (SF)Жанр: драма, комедияРежиссер: Лассе ХалльстрёмВ ролях: Антон Гланзелиус, Томас фон Брёмссен, Анки Лиден, Мелинда Киннаман, Кикки Рундгрен, Леннарт Юльстрём, Инг-Мари Карлссон, Лейф Эриксон, Кристина Карлвинд, Ральф Карлссон, Вивека Дален, Арнольд Альфредсон, Фриц Элофссон, Дидрик Густавссон, Виви ЙоханссонПеревод: дублированныйЯзык озвучки: русский, шведскийСубтитры: русские, английскиеПродолжительность: 01:41:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68FF887A4618BB89DC216C9094A59F1DFE1A6AC8
+magnet:?xt=urn:btih:3F1C9BE09D525E982C83691034BFDE79B4F9F23D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,28 +81,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702640   (115462) от 26.02.2024
+###  Публикация: 1700576   (117063) от 17.02.2024
 
-Dissolving of Prodigy - Stvanice (2008) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+Celldweller - Celldweller (2003) Definitive Edition, 2024, FiXT [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock, Drum'n'Bass, Dubstep>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Otvírání Studánek - Zasněný, Zoufalý (05:59)
-02. Ústa Vědmy (04:45)
-03. Rozmluva s Větrem (06:50)
-04. Štvanice (02:53)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:42:52
+1. Switchback (4:33)
+2. Shapeshifter (TESSERACTS Remix) (feat. Styles Of Beyond) (4:53)
+3. Fadeaway (Void Chapter Remix) (5:23)
+4. Frozen (Celldweller vs. Blue Stahli) (4:59)(   Читать дальше...   )Жанр: Industrial Rock, Drum'n'Bass, DubstepПродолжительность: 3CD, 03:56:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F80AD8AEB9AB8829A2390F956F7CCA69352C4273
+magnet:?xt=urn:btih:67046FF7E6A14C504EF7D9D8C04817110BC42F38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -479,28 +110,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702828   (115461) от 26.02.2024
+###  Публикация: 1700591   (117062) от 17.02.2024
 
-Funeral Winds - The Unheavenly Saviour (2019) Compilation [FLAC|Lossless|image + .cue] <Black Metal>
+Jazz Sax Lounge Collection, Sexual Music Collection, Smooth Jazz Music Academy - Sensual Frequencies: Sexiest Saxx Lounge Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, Contempora ...
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Demon Overture (Intro)
-02. Steps of Ritual
-03. Crypts of the Black Fog
-04. The Eternal Flame(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:57
+01. My Favourite Things (3:35)
+02. Smooth Jazz Music Academy - Pleasure - Erotic Lounge Mix (3:20)
+03. Sexual Music Collection - Intimate Rendez Vous (3:39)
+04. Sexy Touch (3:46)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary Jazz, LoungeПродолжительность: 01:10:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8126D2B17CB02A7BDFB36B4EF2123C0972632509
+magnet:?xt=urn:btih:1B8B5785F5E99DCBDB4F46200CF0164AB41347F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,28 +139,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702660   (115460) от 26.02.2024
+###  Публикация: 1700473   (117061) от 17.02.2024
 
-Eternal Storm - Come the Tide (2019) [FLAC|Lossless|image + .cue] <Progressive, Melodic Death Metal>
+XYplorer 25.50.0300 + Portable [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115460.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Strand (Through The Wall Of Light Pt.I)
-02. Immersion (Through The Wall Of Light Pt.II)
-03. Detachment
-04. The Mountain(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:59:06
+XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:925D64C02178CA67A4B935109A15123679DBB983
+magnet:?xt=urn:btih:9727B489C5054268BEE9DF8BC02F4F8CA7C8B1EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,28 +165,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702633   (115459) от 26.02.2024
+###  Публикация: 1700518   (117060) от 17.02.2024
 
-Dissolving of Prodigy - Louceni se svetem pozemskym (2002) Reissue, 2023, Pařát Productions [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+Д.Д. Галанин и др. | Физический эксперимент в школе (1934 - 1954) [PDF, DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115459.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stará Země
-02. Mohylové Hroby
-03. Rujana
-04. Dívčí Válka(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:57:36
+Фундаментальный труд по методике практического изучения физики. Эксперименты и оборудование описаны максимально подробно.Жанр: ФизикаИздательство: УчпедгизФормат: PDF, DJVUКачество: Хороший скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C79C06BB0B233E34D1892FBF0B2C4D955BCBED0F
+magnet:?xt=urn:btih:B4B710A8FA5D664510B7E80B50A637C52E04DCC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,28 +191,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702766   (115458) от 26.02.2024
+###  Публикация: 1700505   (117059) от 17.02.2024
 
-Funeral Winds - Godslayer Xul (1998) Reissue, 2003, Death To Mankind [FLAC|Lossless|image + .cue] <Black Metal>
+Ventusky: Прогноз погоды v31.0 Mod by Alex.Strannik [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115458.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. For The Glory Of XUL (06:25)
-02. A Diabolical Meeting (03:18)
-03. The Eternal Flame (05:15)
-04. Visions Of Afterlife (03:01)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:01
+Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.02.2024Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D07FAC091F2269B4FE7BEF32C8BCE5959713E3F2
+magnet:?xt=urn:btih:B4B72B28665C1024C12E569CD053E984419FFB8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -595,28 +217,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702628   (115457) от 26.02.2024
+###  Публикация: 1700504   (117058) от 17.02.2024
 
-Dissolving of Prodigy - Louceni se svetem pozemskym (2002) [FLAC|Lossless|image + .cue] <Doom, Death Metal>
+Команда / The Outfit (1973) DVDRip [H.264]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115457.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stará Země (05:01)
-02. Mohylové Hroby (05:09)
-03. Rujana (07:28)
-04. Dívčí Válka (04:11)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:49:03
+Гангстер Маклин, выйдя из тюрьмы, узнает, что не так давно его брат был убит киллером. Оказывается, банк, который они пытались ограбить, принадлежит мафии, а она подобных вещей не прощает...Производство: США / Aurora Enterprises, Metro-Goldwyn-Mayer (MGM)Жанр: триллер, драма, криминалРежиссер: Джон ФлиннАктеры: Роберт Дювалл, Карен Блэк, Джо Дон Бейкер, Роберт Райан, Тимоти Кэри, Ричард Джэкел, Шири Норт, Феличе Орланди, Мари Уиндсор, Джейн ГрирПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, английскийСубтитры: АнглийскиеПродолжительность: 01:43:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2AEF2016081716C4EA03A9BEF8FAEC5FBD3311E1
+magnet:?xt=urn:btih:9660E68BAA8AEB72A06575ACBA7AA444D36C80E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,56 +243,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702834   (115456) от 26.02.2024
+###  Публикация: 1700621   (117057) от 17.02.2024
 
-Funeral Winds - 333 (2024) [FLAC|Lossless|WEB-DL|tracks] <Black Metal>
+Андрей Ткачев, Вадим Оришин | Сын палача (Книга 1) (2023) [MP3, Алексей Воскобойников]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115456.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117057.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Sovereign Of Shadows (00:04:01)
-02 - Eternal Nightmare (00:06:02)
-03 - Cast The Gauntlet Of Doom (00:04:00)
-04 - Ancient Wrath Unleashed (00:04:52)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAE5DB01791C87DB9344232DEE87C264FA519C75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588430   (115455) от 27.02.2024
-
-Спрут / La piovra (1984) IPTV [H.264] (сезон 1, серии 1-6 из 6) СВ-Дубль
-
->>След.
->>Зарубежная классика сериалов и старое многосерийное кино до 90-х
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115455.jpg" />
-</div>
-
-
-###  Подробнее
-
-В небольшом сицилийском городке убивают начальника уголовного розыска Маринео. Кажется, что это преступление мафии. В тот же день становится известно еще об одной смерти. Покончила с собой маркиза Печчи Шалойя.
+Авторы, популярные в жанре боевой фантастики, представляют слушателям новую невероятную историю!
 
-На место убитого комиссара назначают Коррадо Каттани, опытного полицейского, который переезжает на Сицилию с женой и дочерью. Расследуя убийство предшественника, (   Читать дальше...   )Производство: Италия, Франция, Великобритания, Германия (ФРГ) / Channel 4 Television Corporation, Escort Cine TV, RAI Rete 1 TVЖанр: драма, мелодрама, криминалРежиссер: Дамиано ДамианиАктеры: Микеле Плачидо, Барбара Де Росси, Патриция Милларде, Николь Жаме, Анджело Инфанти, Пино Колицци, Ренато Мори, Эурилья дель Боно, Каридди Нардулли, Джефри КоплстонПеревод: Многоголосый профессиональный (СВ-Дубль по заказу телеканала Культура)Язык озвучки: РусскийСубтитры: Русские (Культура, ВГТРК)Продолжительность: ~ 01:02:00 серия
+Вернуться домой после войны и попасть в тюрьму – не самое лучшее развитие событий, но ничего не поделаешь и придется выкручиваться и из таких условий. Если ты маг редкого аспекта – хаоса, кроме того, не имеешь источника, то нелегко разобраться, что происходит вокруг (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Аудиокнига (АСТ)Продолжительность: 10:35:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFC55DF9828B40028647FE9B420D660C84B104E0
+magnet:?xt=urn:btih:E402246741CED42A26C7534A0F1E482B45853E53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,26 +271,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702091   (115454) от 27.02.2024
+###  Публикация: 1700651   (117056) от 17.02.2024
 
-Кинг Конг / King Kong (2005) HybridRip [AV1/2160p] [4K, SDR, 10-bit]  [Open Matte] [Extended Cut] [hand made Upscale AI]
+Луи Буссенар | Под Южным Крестом (2011) [MP3, Михаил Росляков]
 
->>3
->>След.
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117056.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 1930-м году съемочная группа под предводительством режиссера-неудачника Карла Дэнхэма отправляется на загадочный Остров Черепа неподалеку от Суматры, чтобы изучать легенды о гигантской горилле по кличке Конг. По прибытии не место они обнаруживают, что Кинг Конг и правда существует.
-Горилла живет в самой чаще непроходимых джунглей, где помимо него, спрятанные от (   Читать дальше...   )Производство: Германия, США, Новая Зеландия / Universal Pictures, WingNut FilmsЖанр: боевик, драма, мелодрама, приключения, фэнтезиРежиссер: Питер ДжексонАктеры: Наоми Уоттс, Эдриан Броуди, Джек Блэк, Томас Кречман, Энди Серкис, Колин Хэнкс, Джейми Белл, Кайл Чандлер, Эван Парк, Лобо ЧанПеревод: Дублированный, многоголосый закадровый (Киномания)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 03:20:09
+Луи Анри Буссенар (1847–1910) – французский  писатель, автор захватывающих книг о путешествиях и войнах, приключенческих романов и неутомимый путешественник, любимый писатель не одного юного поколения.
+Имя Луи Анри Буссенара в России было известно давно, в 1911 году напечатали собрание его сочинений в 40 томах. Куда только ни вела нас неуемная фантазия этого француза! (   Читать дальше...   )Жанр: Зарубежная литература, классика, приключения, романИздательство: МедиаКнигаПродолжительность: 19:14:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:153C13E7AEF701CAA40292BAF4ADBE00CFE42444
+magnet:?xt=urn:btih:BE800CA045D84A7D3B0A7B8E3A6C255F4EF6C3B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -708,25 +298,424 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645734   (115453) от 27.02.2024
+###  Публикация: 1700324   (117055) от 17.02.2024
 
-Ты здесь, Бог? Это я, Маргарет / Are You There God? It's Me, Margaret. (2023) BDRemux [H.264/1080p]
+Markus Schulz - Global DJ Broadcast Deeper Shades (2024-02-15) [MP3|320 Kbps] <Progressive House, Trance, Melodic House>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115453.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117055.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шестиклассница Маргарет Саймон и ее семья переезжают из Нью-Йорка в пригород Нью-Джерси. Поскольку ее мать — христианка, а отец — еврей, она отправляется на поиски, чтобы узнать свою религиозную идентичностьПроизводство: США, Gracie Films, LionsgateЖанр: Драма, комедия, семейныйРежиссер: Келли ФрэмонАктеры: Эбби Райдер Фортсон, Рэйчел Макадамс, Кэти Бейтс, Бенни Сэфди, Эль Грэм, Amari Alexis Price, Katherine Mallen Kupferer, Kate MacCluggage, Эйдан Войтак-Хиссонг, Landon S. BaxterПеревод: Профессиональный многоголосый (Кинопоиск HD, Jaskier, TVShows)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced, 2x Full), Английские (Full, SDH)Продолжительность: 01:46:07
+01. Anyma - Sonder
+02. Nathan Katz - For You
+03. GMJ & Matter - Soular
+04. Jares - Sam's Voyage Part III (Kamilo Sanclemente Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, Melodic HouseПродолжительность: 02:00:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DA71116BBBA2EF83E8ABC8B8DC8CF3F54577867
+magnet:?xt=urn:btih:EE97FFC24AADE2545D42054C94408A32AAA7FB6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700516   (117054) от 17.02.2024
+
+VA - Ultimate Chillout Ambient Lounge I (2024) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool&Klean - Into the Unknown (4:13)
+02. Konstantin Klashtorni - Let's Chill (5:29)
+03. Love Suggestions - Little Talks (4:59)
+04. Chillaxonic - Serenity (4:17)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 01:36:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B66CE98EBB47F16CC2AFD0D48F41E9C2777011D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700573   (117053) от 17.02.2024
+
+Живая еда с Сергеем Малозёмовым (17.02.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микробы на кухне: где они живут и стоит ли их бояться? Что эксперты обнаружили на разных кухнях, какие опасности хранят в себе губки для мытья посуды, какие доски лучше — деревянные или пластиковые? Почему ученые запрещают мыть мясо? И что случится, если все-таки это сделать?
+ Плюсы и минусы омлета: как его готовят в Таиланде, Дубае, Франции и в российских студенческих (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0D738A8C1873D615D04985CCA77557D17BAF23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700596   (117052) от 17.02.2024
+
+VA - Billboard Top Pop Hits, 1961 (1994) [OGG Vorbis|480 Kbps] <Pop, Rock, Funk / Soul, Folk>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Shirelles - Dedicated To The One I Love
+02.  Dick & Deedee - The Mountain's High
+03.  Jorgen Ingmann & His Guitar - Apache
+04.  Joe Dowell - Wooden Heart(   Читать дальше...   )Жанр: Pop, Rock, Funk / Soul, FolkПродолжительность: 00:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D650E26B468075164E1A88C28805037203AFD1A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700556   (117051) от 17.02.2024
+
+Ольга Стельмах - Зазвучи душа (2023) [FLAC|Lossless|tracks + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зазвучи душа
+02. Зажигая
+03. День без тебя
+04. Звёзды безумной любви(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:18:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426CA819F01E7ED620100B722CAF6D0757834166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700542   (117050) от 17.02.2024
+
+NCH Express Burn Plus for Mac 12.02 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117050.jpg" />
+</div>
+
+
+###  Подробнее
+
+Express Burn Plus приложение для быстрого и простого создания и записи дисков.
+• Сверхбыстрая и удобная запись для экономии вашего времени
+• Записывайте аудио, видео или файлы на CD, DVD или Blu-Ray
+• Перетаскивайте файлы прямо в приложениеТип издания: macOS SoftwareРелиз состоялся: 04.12.2023Разработчик: © 2023 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDCC2054BB58F454780DE83F934E812C74497FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700575   (117049) от 17.02.2024
+
+Поедем, поедим! Кострома: мужские забавы, история в архитектуре и традициях, щи и калачи (17.02.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117049.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди попал в современный российский город, но путешествие то и дело забрасывало его в прошлое! Так он узнал историю Костромы, ее архитектуры и знаменитого Ипатьевского монастыря, попробовал вкуснейшие щи, калач с начинкой и голубцы с сомом, а еще покормил лосей, узнал, как работает ювелирных дел мастер, и увлекся метанием топора.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F569545BF46AF0D0D45BF01177776AC50A471013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700536   (117048) от 17.02.2024
+
+VA - Women in Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gayle - abcdefu (2:49)
+02. Paramore - Misery Business (3:32)
+03. Halestorm - Shoot to Thrill (5:07)
+04. Saint Lu - Don't Miss Your Own Life (4:01)(   Читать дальше...   )Жанр: RockПродолжительность: 02:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A25F629A30C77C4067A6E5C141D1C567071C9CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700585   (117047) от 17.02.2024
+
+Elektrikill - Propaganarchy! (2024) [FLAC|Lossless|WEB-DL|tracks] <EBM, Industrial Rock>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrong Again [00:04:45]
+02. Propaganarchy! [00:04:02]
+03. Down [00:03:59]
+04. Earth To John [00:03:34](   Читать дальше...   )Жанр: EBM, Industrial RockПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06071D0BE36BDE2A4C44CCD4B887DDAFFAEEA1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700639   (117046) от 17.02.2024
+
+Smart Converter Pro 3 v.3.1.5 [En]
+
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smart Converter Pro - Просто и эффективно конвертируем медиафайлы
+Smart Converter позиционируется разработчиками из компании Systemic Pty Ltd как «умный» и мощный конвертер аудио- и видео для всей линейки apple-устройств, а также ряда других девайсов, причем вся его мощь скрыта от пользователя — последнему остается нажать только пару кнопок, для того чтобы начать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.02.2024Разработчик: © 2024 Systemic Pty LtdПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:569F4BDD1FE1E500946E170785AD59BC07A27308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700552   (117045) от 17.02.2024
+
+The Barry Harris Sextet - Bull's Eye! (1968) 2002, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bull's Eye [7:09]
+02. Clockwise [4:47]
+03. Off Monk [9:52]
+04. Barengo [7:10](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0206A56C16FE43CFDDFBBD8CA02FB1FB4D33407B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700470   (117044) от 17.02.2024
+
+QOwnNotes 24.2.3 Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117044.jpg" />
+</div>
+
+
+###  Подробнее
+
+QownNotes – менеджер заметок, позволяющий четко организовать свои заметки, эффективно управлять записями. Удобные функции сортировки, вывода на печать, расшаривания, синхронизации заметок с облачным сервисом. Такая синхронизация позволит открывать и редактировать файлы, например в мобильном устройстве. Записи хранятся в простых текстовых файлах. Есть возможность (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:400E7264BD66A4443CE2F0CDC8B40E7270166F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700540   (117043) от 17.02.2024
+
+VA - Bass Music Grooves 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Angelo - Make Me Feel Good (Original Mix) [02:47]
+02. The Dirty Balance - Upside Down (Original Mix) [03:41]
+03. Dave Benson - Love Game (Original Mix) [02:59]
+04. Gareth Souza - Gettin Dark (Original Mix) [02:45](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2505F5B6BE35BDD03EE548A674AA232AE2A8739E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700532   (117042) от 17.02.2024
+
+VA - Rock Party Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blur - Song 2 (2012 Remaster) (2:01)
+02. Héroes del Silencio - Entre dos tierras (6:08)
+03. Green Day - When I Come Around (2:58)
+04. The Sisters Of Mercy - Temple of Love (1992) (8:08)(   Читать дальше...   )Жанр: RockПродолжительность: 02:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFFF9E2106BAFBD7F81BC63E16B1C9878B25F867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700551   (117041) от 17.02.2024
+
+Paloma Faith - The Glorification of Sadness (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweatpants
+02. Pressure (feat. Kojey Radical)
+03. God in a Dress
+04. How You Leave A Man(   Читать дальше...   )Жанр: Alternative Rock, Indie PopПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D5FB7323BEFB76C2DEBB3554B7FDF4FE0CE92CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1790939   (67971) от 11.04.2025
+
+VA - ЖЖ Was Here [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marmion - Schoneberg (Marmion remix)
+02. X-Cabs - Neuro 99
+03. Silverblue - Do U Know
+04. Vincent De Moor - Flowtation(   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BF6B69280155587F7E82DC863251097F6B8B085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791009   (67915) от 12.04.2025
+
+Triangle Square - Compilation (2025) [MP3|320 Kbps] <Electronic, Deep House Remix>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Midnight Dose
+  02.  I'm Alive
+  03.  Lost in Time
+  04.  Love Me Harder(   Читать дальше...   )Жанр: Electronic, Deep House RemixПродолжительность: 00:25:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB6E6043E6ED601A0F0DE23E37AB4345114115EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790954   (67904) от 12.04.2025
 
 VA - Zero Dancefloor [mixed by DJ Юrkanik] (2013) [MP3|320 Kbps] <Disco, Synth-pop, House>
@@ -687,64 +745,6 @@ VA - Record Super Chart 30.03.2024 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E0CA2294A930754FC90DD586FF3506985E54456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713976   (60343) от 08.04.2024
-
-VA - Electronic compilation part 68 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dnb - Alisa
-02. Hamidshax - Amelia
-03. Rodle - Amore
-04. Arsh - Aurora(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:12:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AC61B08D30A6D16A5A8475686470E0D46A42333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714099   (60258) от 09.04.2024
-
-VA - 60 minutes. Old School Dance Music vol.24 (mixed by Dj V) (2024) [MP3|320 Kbps] <Club House, Dancecore, Hard Trance, Euro Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bomfunk Mc's - Uprocking Beats (Js16 Sound Design)
-02. Copycat - Clap Ya Hands (Irrestible Storm Mix)
-03. Camisra - Let Me Show You (Klubbheads Mix)
-04. Groovaholics - Wake Up The Funk (Club Caviar Remix)(   Читать дальше...   )Жанр: Club House, Dancecore, Hard Trance, Euro TranceПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034380B39E9D0CA40F611DC3421D5B2A4FA5BEEA
 ```
 
 https://mybot314.ru/tekegram_catalog/

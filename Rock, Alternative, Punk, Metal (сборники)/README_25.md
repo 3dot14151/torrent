@@ -1,3 +1,61 @@
+###  Публикация: 1548627   (596260) от 04.05.2022
+
+VA - NDH 1  [MP3|192-320 Kbps] <NDH, Industrial Metal, Gothic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596260.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stahlmann - Vom Himmel Verloren (4:02)
+2. Hamatom - Zeit fur neue Hymnen (3:49)
+3. OOMPH! - Alles Aus Liebe (3:39)
+4. Rammstein - Deutschland (5:23)(   Читать дальше...   )Жанр: NDH, Industrial Metal, Gothic MetalПродолжительность: 03:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D18E4294175230EA8F00BF05B07EEE2E5AC87057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548988   (594984) от 05.05.2022
+
+VA - NDH 3 (2022) [MP3|112-320 Kbps] <NDH, Industrial Metal, Gothic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594984.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Staub - Leben (4:55)
+2. Apryl - In Frieden Ruhn (3:56)
+3. Inception Of Eternity - The Age of Warlords (4:11)
+4. Weissglut - Unter deiner Asche (4:50)(   Читать дальше...   )Жанр: NDH, Industrial Metal, Gothic MetalПродолжительность: 03:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BC15EC4A638ABD0E3D5D909C0AE5E7801CB0FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548742   (594858) от 05.05.2022
 
 VA - NDH 2 (2022) [MP3|271-320 Kbps] <NDH, Industrial Metal, Gothic Metal>
@@ -687,64 +745,6 @@ Kiss - God Gave Rock'n'Roll To You (The Best) (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E49E23920809AC1965D7EF4BDDBEC028A6F268B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744688   (583941) от 12.05.2019
-
-VA - Баллады Русского Рока (2014) [MP3|192-320 кб/с]<Rock, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Azazello - Осень
-02. De'cadenta - Босиком
-03. Materia Prima - Царство Теней
-04. R-Genium - Будь со мной(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 12:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4750D1B7431A278256897CD86EA9046FFA7BCEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690392   (583872) от 12.05.2019
-
-VA - Heavy Japan Vol.01 - Vol.10 (2013-2015) [MP3|192-320 кб/с]<metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scorpions - Cold [00:03:53]
-02. Altaria - Metality [00:05:02]
-03. Epica - Triumph Of Defeat [00:03:58]
-04. Tony Iommi - Let It Down Easy [00:04:31](   Читать дальше...   )Жанр: metalПродолжительность: 11:20:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21E0DDE1D3AC6BE34A6A75E37373E2BFE416E88
 ```
 
 https://mybot314.ru/tekegram_catalog/

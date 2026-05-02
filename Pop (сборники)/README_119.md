@@ -1,3 +1,119 @@
+###  Публикация: 1272763   (141345) от 29.12.2018
+
+VA - German Top 100 Single Jahrescharts 2018 (2018) [MP3|320 Kbps] <Pop, Rap>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141345.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dynoro & Gigi D'Agostino - In My Mind
+002. Ed Sheeran - Perfect
+003. Bausa - Was du Liebe nennst
+004. Calvin Harris & Dua Lipa - One Kiss(   Читать дальше...   )Жанр: Pop, RapПродолжительность: 05:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F891C1BF4C4F8CFE82BE5388FACE2A8D98B9621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088151   (141199) от 30.12.2016
+
+Илья Гусев - Игры с Луною (2016) [MP3|192 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игры с Луною 04:34
+02. Миллион 04:19
+03. Времени нет 04:22
+04. Маленький рай 04:20(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6FB7EA2945C0A0AB71E9BD5270AD3F48F5696D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970385   (140909) от 30.12.2015
+
+VA - Народный Микс Новогодний (2015) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140909.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Паола - Новогодняя Сказка
+002. Согдиана - Эпидемия
+003. Ольга Орлова - Птица
+004. Dan Balan - Плачь(   Читать дальше...   )Жанр: PopПродолжительность: 12:18:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8223E6F3030DC9DA0AC12859C8163BB0375815D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435734   (140831) от 29.12.2020
+
+VA - Зима на Love Radio vol2 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zivert - Многоточия (Radio Edit) (2:52)
+02. Tiesto - The Business (2:44)
+03. Marshmello & Imanbek feat. Usher - Too Much (2:45)
+04. Meduza feat. Dermot Kennedy - Paradise (2:47)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:265CEB01548391CC7A59465587016B97D492BE89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970508   (140600) от 30.12.2015
 
 VA - Новогоднее настроение в СССР (2CD) (1956-1991) от DON Music (2015) [MP3|320 кб/с] <Retro>
@@ -695,137 +811,6 @@ VA-Новая Игрушка 30-31  (2012) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAFD5729110E70543AF1340DF2B8ECB38B385489
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594131   (133675) от 26.12.2012
-
-VA-Самые сливки танцевальные 11  (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oceana - Endless Summer (UEFA Euro 2012 oficial song) [03:29]
-02. Dan Balan - Не любя [03:15]
-03. Alex Ferrari - Bara Bara Bere Bere [03:39]
-04. Митя Фомин - Хорошая песня [03:02]
-05. Loreen - Euphoria (WINNER of EUROVISION 2012-SWEDEN) [03:00]
-06. Стая - Сердце [03:06]
-07. Junior Caldera feat.Natalia Kills & Far East Movement - Lights Out [03:08]
-08. Artik feat.Asti - Облака [03:39]
-09. Tonic feat.Erick Gold - Lead The Way [03:35]
-10. A-Dessa - Fire [03:14](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82B2D329EBA259ECBB5DBF2BCF4948763F5C5B99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593080   (133597) от 26.12.2012
-
-VA - Супер Свежачок от Снегурочки (2012) [MP3|160 - 320 кб/с]<pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133597.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: popПродолжительность: 05:38:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E5AC584E29280B788FFF07FA78968443762CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593900   (133582) от 26.12.2012
-
-VA-New Year Party 2013  (2012) [MP3|320 кб/с]<Dance, Pop, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brennan Heart - We Can Escape (Intents 2012 Anthem) [04:20]
- 02. Dada Life - Feed The Dada [03:01]
- 03. Flo Rida - I Cry (Radio Edit) [03:36]
- 04. Stereo Palma ft. Craig David - Our Love (Radio Edit) [03:06]
- 05. Mia Martina - Burning (Radio Edit) [03:20]
- 06. Carlprit - Fiesta [03:52]
- 07. Keen'V - Elle t'a Mate (Fatoumata) [02:49]
- 08. Pitbull ft. Christina Aguilera - Feel This Moment [03:46]
- 09. Inna ft. Play & Win - INNdiA [03:31]
- 10. Akcent ft. Sandra N. - I'm Sorry (Radio Edit) [03:32](   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 04:22:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C959E901C03960B86FADE0D4F73559276528D9CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594559   (133492) от 26.12.2012
-
-VA - Новогодняя Авто Дискотека DFM 50+50 - (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raquel, Diddy, Dorrough & Yo Gotty - Touch (David May Edit Mix)
-02. Alexey Romeo & Smoky Mo - На своей волне (Radio Mix)
-03. DJ Antoine vs. Mad Mark - Broadway (DJ Antoine vs Mad Mark 2k12 Radio Edit)
-04. Sasha Dith & Steve Modana feat. Nadya - Улечу
-05. G & G Feat. Gary Wright & Baby Brown - My My My (Coming Apart) 2K12 (Radio Edit)
-06. Настя Любимова - Любовь моя
-07. Empyre One - Moonlight Shadow 2K12 (Godlike Music Port Edit)
-08. Lalo Project feat. Wegmix - Живу тобой
-09. Xonia - Remember (Radio Edit)
-10. B.K. - Sex (DJ Zhukovsky Official Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923E6C307DE53D6ACEC53CB39449778BC147867F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1041320   (583381) от 08.08.2016
+
+Gov't Mule - The Tel-Star Sessions (2016) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Man In The Dark
+02. Rocking Horse
+03. Monkey Hill
+04. Mr. Big(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B84398017482E4189465A3636119AE08CA146A24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302008   (583277) от 13.05.2019
+
+Happy Day Singers - The Joy Of Gospel (2007) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583277.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Swing Low (2:14)
+02. He´s Got The Whole World (1:51)
+03. Kumbaya (3:17)(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 02:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:648E384F90009892E38AE5433AE30C98D6D7A8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302114   (582201) от 14.05.2019
+
+Dan Bubien & The Delta Struts - Thieves & Yesterdays (2019) [FLAC|Lossless|tracks + .cue] <Blues Rock, Americana, Roots>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582201.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Falling to the Ground (4:18)
+02. Gotta Hold On Me (4:51)
+03. Thieves & Yesterdays (3:48)
+04. Shake That Thing (5:34)(   Читать дальше...   )Жанр: Blues Rock, Americana, Roots RockПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0421BA78F6CC15F93BAF83CB821282424E1DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 506156   (582162) от 09.08.2016
+
+Gary Moore - 73 Альбома (1971-2014) Studio 23, Live 12, Compilation 23, Collaboration 12, Singles 1, Tributes 2 [FLAC, APE|Lossless]<Blues, rock, hard rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Murder In The Sky (Live) (5:34)
+02. Military Man (Live) (6:25)
+03. White Knuckles (Live) (3:51)
+04. Empty Rooms (Live) (8:27)(   Читать дальше...   )Жанр: Blues, rock, hard rockФормат: FLAC, APE (image,tracks+cue+scans)Продолжительность: 01:16:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5DFDF6650C31014D99D93278238A71099F8714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041765   (581473) от 10.08.2016
 
 Vintage Trouble - The Swing House Acoustic Sessions (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Blues-Rock, Rhythm & Blues>
@@ -653,134 +769,6 @@ Andrea De Luca - Andrea De Luca Blues Trio (2016) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35FD88E69C91E39E261DEEF7F5CC47A83688C8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555065   (572513) от 02.06.2022
-
-Andy Lindquist - Your Mother's Eye's (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Mother's Eyes
-02. Goodbye Mother
-03. The Lord Give Me That
-04. Brick(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190706A956CB536CA9EFE32BB0A9DC7D2D990562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555144   (571975) от 02.06.2022
-
-Mungo Jerry - Somelight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Classic Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight City (3:54)
-02. Lord What Have We Done (4:03)
-03. Whole Lotta Rhythm (5:24)
-04. The Lockdown Thank You Song (3:02)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:51:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E95DB4985FF9FB02E5F5BF1939778AC7B9CE5EBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528392   (571483) от 29.07.2012
-
-The Blues Overdrive - The Blues Overdrive (2012) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death On the Highway [04:44]
- 02. Out in the Country [03:42]
- 03. I Was Wrong [02:33]
- 04. Ball & Chain [05:07]
- 05. Mr. 16 Tons (Blues for Thorup) [04:07]
- 06. Too Blind to See [03:39]
- 07. I Need Your Lovin' [02:36]
- 08. Got Myself a Woman [03:09]
- 09. Big Fat Woman [02:45]
- 10. Done Tryin' [04:33](   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528730   (571480) от 29.07.2012
-
-Acme Blues Company - I Think I Made It (2006) [FLAC|Lossless]<Industrial Strength Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is Love Worth the Cost
-02. Except My Own
-03. Sugar Mama
-04. Easy Money
-05. I Think I Made It
-06. Hey Baby
-07. You Ain't the First (Live)
-08. A Little Somethin' Somethin'
-09. No Shortage of the Blues
-10. Liquor Store(   Читать дальше...   )Жанр: Industrial Strength BluesПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

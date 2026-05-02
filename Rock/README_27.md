@@ -1,3 +1,32 @@
+###  Публикация: 1215614   (757954) от 26.03.2018
+
+Monster Magnet - Mindfucker (2018) [MP3|320 Kbps] <Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocket Freak
+02. Soul
+03. Mindfucker
+04. I’m God(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93E2B059F51A65EA82F26909BB0A1C7811BD34DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018323   (757461) от 19.05.2016
 
 Bob Dylan - Fallen Angels (2016) [MP3|320 кб/с] <Rock>
@@ -713,35 +742,6 @@ RebelHot - RebelHot (2016) [MP3|320 кб/с] <Southern Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:626FF0F712A7183B226CC849E681F29246C77607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020847   (743795) от 27.05.2016
-
-Marty Balin - Balin (1981) [MP3|320 кб/с] <Soft Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hearts    04:18
-02. You Left Your Mark On Me    04:43
-03. Lydia    03:41
-04. Atlanta Lady (Something About Your Love)    03:48(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:35:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF729DF27E8D8740736A2F2497F564925D471F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 940290   (468415) от 24.09.2015
+
+Проекты - Проект ProShow Producer - Magic Lines Pack [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет "Magic Lines Pack" от известного автораФормат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E8FC1946C4569C5E78E373ABAB5F4A00A5A019E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1058386   (468339) от 01.10.2016
 
 Проекты - VideoHive - The Opener I Promo [AEP]
@@ -646,33 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3CAA7274975D4C5CCFA67C27C886C60CC7B6AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321185   (462958) от 22.08.2019
-
-Проекты - ProShow Producer - Fiery Particles Slideshow V.01 [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Элегантное слайдшоу с появлением медиа контента из огненных частиц...
-Часть первая. Проект версий PSP6 и выше. Дерзайте!Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82CD9AB9C8A21733009921BE417C60FAB6F3D31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1167707   (415257) от 21.09.2017
+
+The Dick Morrissey Quartet - Storm Warning! (1965) 1994, HomeGrown Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storm Warning [07:10]
+02. What Is There To Say [07:43]
+03. Come Rain Or Come Shine [07:56]
+04. Wind Of Change [04:18](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:41:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE055A88E3DF8BF89B8DFE640FBB579CC4276469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167716   (415255) от 21.09.2017
+
+Jimmy McGriff - Fly Dude (1972) 2006, Groove Merchant [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_415255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everyday I Have The Blues [03:44]
+02. Jumping The Blues [04:17]
+03. Healin' Feeling [05:11]
+04. Cotton Boy Blues [08:39](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948F07E791D42E30C95C7FE662A185382BBE7857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1167693   (415253) от 21.09.2017
 
 Art Van Damme - Accordion a la Mode & A Perfect Match (1960, 1962) 2000, Collectables [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Accordion>
@@ -687,64 +745,6 @@ Ike Quebec - Swing Hi Swing Lo (1944-1946) 1999, Disconforme[FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B807C9BB5D99D0F949FE687B39E89EF3C99EBA5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066524   (412398) от 26.10.2016
-
-Nat King Cole - 10th Anniversary (1955) 2007, Collectors' Choice Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dream A Little Dream Of Me [02:55]
- 02.There I've Said It Again [03:12]
- 03.Lulubelle [02:16]
- 04.I'm An Errand Boy For Rhythm [02:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A640D8746DCB6D4A035B2D9ABD47B54AA65236FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066534   (412394) от 26.10.2016
-
-June Christy - Sings The Standards (1956-2001) 2002, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.For All We Know [02:49]
- 02.Do Nothin' Till You Hear From Me [04:07]
- 03.Fly Me To The Moon (In Other Words) [03:16]
- 04.Blue Moon [03:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722FBBFFAADDA2E8E70B2034BF82A9C7E21D8519
 ```
 
 https://mybot314.ru/tekegram_catalog/

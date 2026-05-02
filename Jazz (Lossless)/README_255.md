@@ -1,3 +1,61 @@
+###  Публикация: 1635994   (235759) от 28.05.2023
+
+John Beasley - MONK'estra Plays John Beasley (2020) Mack Avenue [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve-O [5:25]
+02. Sam Rivers [4:00]
+03. Monk's Mood [3:26]
+04. Donna Lee [5:37](   Читать дальше...   )Жанр: Contemporary Jazz, Modern Big BandПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF409E940B915B35FC94AC693440948B5DF5503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636266   (235643) от 29.05.2023
+
+People Like Us - In Heaven (1997) Koch Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight Ahead [7:35]
+02. Think... Pretty [8:45]
+03. Hofstra Goes to Heaven [8:05]
+04. The Road Ahead [12:55](   Читать дальше...   )Жанр: Mainstream Jazz, Post BopПродолжительность: 01:05:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A82485A266CCCE3714C72BEA7594D085AE309C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641154   (235604) от 21.06.2023
 
 Oliver Nelson & Nobuo Hara - In Tokyo (1970) 2013, Columbia [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Big Band>
@@ -687,64 +745,6 @@ Duke Ellington - Hot Summer Dance (1960) 2003,  Red Baron [APE|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66069C5BB2240C2B34DE2B18A1FF846E476D1823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637240   (235192) от 03.06.2023
-
-Toshiko Akiyoshi Jazz Orchestra - Desert Lady / Fantasy (1994) Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harlequin Tears [8:15]
-02. Desert Lady-Fantasy [15:39]
-03. Hangin' Loose [9:38]
-04. Hiroko's Delight [8:49](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Big BandПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED96A20F45981360E5867A489A6AC6E328FA6535
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637244   (235163) от 03.06.2023
-
-Anita Baker - Christmas Fantasy (2005) Par Media Music [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Soul, R&B>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frosty's Rag (Frosty The Snowman) [3:48]
-02. Christmas Time Is Here [4:40]
-03. I'll Be Home For Christmas [5:26]
-04. Christmas Fantasy [4:36](   Читать дальше...   )Жанр: Smooth Jazz, Soul, R&BПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3A8D0856E36E8465BC78C418EB665FF7E7DEB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

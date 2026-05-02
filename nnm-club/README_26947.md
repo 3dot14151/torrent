@@ -1,51 +1,25 @@
-###  Публикация: 1803699   (13582) от 24.06.2025
+###  Публикация: 1801256   (15145) от 09.06.2025
 
-Firefox Browser 140.0 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D3EC76A093BE456D886C6B712A428B07C8B4D80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803686   (13581) от 24.06.2025
-
-Electro Swing - Swing Beats 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+Kenny Dorham - Four Classic Albums (1958 - 1962) 2CD, 2013, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13581.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15145.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Let the Good Times Go (3:14)
-02.  We Are the Happy Soul (3:12)
-03.  Rhythm of Electro Swing (3:15)
-04.  Rhythm of Innocence (3:14)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:43:25
+01. Mack The Knife [3:03]
+02. Us [7:13]
+03. It Could Happen To You [5:59]
+04. Lets Face The Music [6:08](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:37:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB64B516E695C25B784AA23B60B29D5B818F43C8
+magnet:?xt=urn:btih:FCCFB6BBCA7E417C6B270BE7CFE166761B773013
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +27,457 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803690   (13580) от 24.06.2025
+###  Публикация: 1801290   (15144) от 09.06.2025
 
-Soundify Background Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+Hotpot of Genres - Impress to Express (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Impress to Express (4:05)
+02.  Fire & Ash (5:08)
+03.  What about us (4:34)
+04.  Drowning (4:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0D199316E512574CF3554B2FF817F064A6CFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801257   (15143) от 09.06.2025
+
+Freedom Junction - Freedom Junction (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hitch A Ride (5:11)
+02.  Solid Ground (3:19)
+03.  Tell Me I'm a Lover (4:03)
+04.  Dream Machine (5:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1423C0112844F3B827AE0CD7CA1AC08BB639CA25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801283   (15142) от 09.06.2025
+
+Gina Sicilia - Bring It On Home: A Tribute To Sam Cooke (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shake (2:44)
+02.  Bring It On Home to Me (3:59)
+03.  Another Saturday Night (2:37)
+04.  That's Where It's At (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457502B29F9A10031881310C0FE68B679ECDDC18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801246   (15141) от 09.06.2025
+
+Chris Ramey - Children's Songs for Adults Only (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Thank You Mr. Gov’t (3:34)
+02.  Do You Like My Cologne? (3:33)
+03.  Perfectly (4:17)
+04.  I Took A Pill (4:58)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2860A1796D7364335D4AC19AE04A3280CD1781A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801242   (15140) от 09.06.2025
+
+Cytotoxin - Biographyte (2025) [FLAC|Lossless|WEB-DL|tracks] <Technical Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hope Terminator (04:30)
+ 02. Condemnesia (05:02)
+ 03. Behind Armored Doors (04:21)
+ 04. Biographyte (04:48)(   Читать дальше...   )Жанр: Technical Brutal Death Metal
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29234EAB006C10F223BC79318A900818E171B55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801292   (15139) от 09.06.2025
+
+Lemon Generation - Music for Cowboys (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Space Cowboy (4:13)
+02.  Cosmic Funeral (4:14)
+03.  My Little Cowboy (3:26)
+04.  Peanut Planet (2:06)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5067DBEC98CF1361CDD9834D8C067B45082276DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801294   (15138) от 09.06.2025
+
+LeSabre - LeAlbum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Fever (3:11)
+02.  The Circling (3:24)
+03.  The Black Sheep (2:30)
+04.  The Highness (2:33)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A28FDADEEE9E9968EB2CCAF69D7FDB67DD44208E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801286   (15137) от 09.06.2025
+
+Hotel Draw - Spirit Come Spirit Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When You Go (4:26)
+02.  Milk & Honey (4:03)
+03.  Whiskey on the Workbench (2:25)
+04.  Fluorescent Lights (3:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:28:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0C6BC9F96AED5D36093C6E22EC485BFEA3DC071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801291   (15136) от 09.06.2025
+
+J.T. & The Plastic Garden Band - The 25th Hour (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The 25th Hour (2:52)
+02.  Chains and Mercy (3:33)
+03.  Devil Woman (3:12)
+04.  Hold Me In Your Hollow Hands (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7022234AA0C213AC889D292A24949934D0244BE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801238   (15135) от 09.06.2025
+
+Футбол. Лига Наций УЕФА 2024-2025. Лига А. Матч за 3-е место. Германия - Франция (08.06.2025) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15135.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Наций УЕФА 2024-2025. Лига А. Матч за 3-е место. Германия - Франция (08.06.2025)
+СУДЬЯ Кружляк Иван (Словакия)
+СТАДИОН «Штутгарт Арена» (Штутгарт)Телекомпания: ОккоЖанр: Спорт, футболЯзык озвучки: русскийПродолжительность: 01:58:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF3B31A0DCECC0620E16FE0E11957DE989024923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801275   (15134) от 09.06.2025
+
+Shikanoko Nokonoko Koshitantan | My Deer Friend Nokotan | Моя подруга-олениха Нокотан [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15134.jpg" />
+</div>
+
+
+###  Подробнее
+
+Никто не знает, что Торако была хулиганкой. Все ее одноклассники знают ее только как идеальную ученицу. Но все меняется, когда в ее жизни появляется Нокотан, студентка-переводчица с оленьими рогами. Рога - не единственная странная вещь в Нокотан. Ее олений нос способен разнюхать тайное прошлое Торако! Будь то в школе или в зоопарке, хаос следует за каждым шагом этой (   Читать дальше...   )Жанр: комедияРежиссер: Ота МасахикоПеревод: 1) AniLibria: 2) YakuSub StudioЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA237399C86138818405B8F34AB6D719A71D4558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801264   (15133) от 09.06.2025
+
+One Room, Hiatari Futsuu, Tenshi-tsuki. | Studio Apartment, Good Lighting, Angel Included | Студия, солнечная сторона, есть ангел [2024, TV, 12 эп.] BDRip 1080p raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15133.jpg" />
+</div>
+
+
+###  Подробнее
+
+После долгого рабочего дня старшеклассник Синтаро Токумицу хотел отдохнуть в своей однушке, но не тут-то было: на балконе он увидел девушку-ангела. Посланница с небес сообщила, что спустилась на землю изучать человечество, и парень неохотно согласился ее приютить. Так началась их забавная совместная жизнь, полная божественных откровений.
+© crunchyrollПроизводство: студия Okuruto Noboru / オクルトノボルЖанр: комедия, повседневностьРежиссер: Ониси КэнтаПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0E56C4A11A1887DE3E79E4A43F3386B71332D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801267   (15132) от 09.06.2025
+
+Seth MacFarlane - Lush Life: The Lost Sinatra Arrangements (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz, Big Band>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15132.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбом содержит песни в аранжировках Фрэнка Синатры, которые певец собирался исполнить, но так и не успел.01. Give Me The Simple Life
+02. I Never Felt This Way Before
+03. Lush Life
+04. Flying Down To Rio(   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CB91A4BB31DDD6626E62240431CA3EE535E30F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801202   (15131) от 09.06.2025
+
+Pretenders - The Singles (1987) [MP3|320 Kbps] <New-Wave, Pop-Rock, Reggae-Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop Your Sobbing [0:02:38.30]
+02. Kid [0:03:04.37]
+03. Brass in Pocket [0:03:05.50]
+04. Talk of the Town [0:03:13.60](   Читать дальше...   )Жанр: New-Wave, Pop-Rock, Reggae-PopПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74C2AD4907B7C3133F0C0F5A6503B81011C1600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801269   (15130) от 09.06.2025
+
+EverEve - .Enetics (2003) 2 x CD, Deluxe Edition, Limited Edition [FLAC|Lossless|image + .cue] <Goth Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15130.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. This Heart 03:51
+02. The More She Knows 03:26
+03. Abraza la luz (Embrace the Light) 03:47(   Читать дальше...   )Жанр: Goth Rock, Heavy MetalПродолжительность: 00:58:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850C9B52318988BBF9C32D65BA33688693CF9822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801325   (15129) от 09.06.2025
+
+Charlie Musselwhite - Look Out Highway (2025) [FLAC|Lossless|tracks + .cue] <Harmonica Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Swing Machine (2:46)
-02.  Time Travel Affair (2:52)
-03.  Electro Swing (3:22)
-04.  Syncopation Nation (3:15)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:54:23
+01. Look Out Highway
+02. Sad Eyes
+03. Storm Warning
+04. Baby, Won't You Please Help Me(   Читать дальше...   )Жанр: Harmonica BluesПродолжительность: 00:39:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F38FEAB7251695B5E04D431C3F5601AD581055D2
+magnet:?xt=urn:btih:ED7B799E2780F8A9331E448632D91A39C8C8A57A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,25 +485,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803577   (13579) от 24.06.2025
+###  Публикация: 1801276   (15128) от 09.06.2025
 
-Приключения Пифа. Сборник мультфильмов (1970-1993) DVDRip
+Tearmoon Teikoku Monogatari: Dantoudai kara Hajimaru, Hime no Tensei Gyakuten Story | Tearmoon Empire | Хроники империи Тиамун [2023, TV, 12 эп.] BDRip 1080p raw
 
->>Мультфильмы
->>Отечественные Мультфильмы (коллекции, сборники / *логии)
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13579.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15128.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник мультфильмов, в который вошли: "Приключения Пифа. Записки Пирата. Умная собачка Соня (1, 2). Найда. Ростик и Кеша. Плюх и Плих."Производство: СССР / СоюзмультфильмЖанр: мультфильм, короткометражка, детскийРежиссер: Дмитрий Бабиченко, Анатолий Солин, Инна Пшеничная, Вадим МеджибовскийАктеры: Григорий Шпигель, Агарь Власова, Виктор Проскурин, Юрий Пузырёв, Рогволд Суховерко, Людмила Гнилова, Татьяна Божок, Светлана Степченко, Алексей Борзунов, Светлана Травкина и другиеСубтитры: отсутствуютПродолжительность: 01:42:00
+Мия Луна Тиамун жила беззаботной жизнью принцессы, пока однажды дела страны не стали совсем плохи. Отсутствие какого-либо внимания к народу, политике и экономике привели девушку на эшафот. Однако гильотина стала не концом, а началом новой жизни для Мии. Ведь она переродилась собой в возрасте двенадцати лет. Это история о втором шансе некогда эгоистичной и самовлюлённой (   Читать дальше...   )Жанр: комедия, романтика, фэнтезиРежиссер: Ибэ ЮсиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59124F2ABB273A9E6639230FB0C1E3C59CC30E6C
+magnet:?xt=urn:btih:6E1875F75C876D4A4809D5747C5906ECFE330C9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,25 +511,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803720   (13578) от 24.06.2025
+###  Публикация: 1801277   (15127) от 09.06.2025
 
-Фоны - Envato - Retro Flare Polaroid Light Effect Backgrounds - AEUGUDK [JPG]
+Tsuki ga Michibiku Isekai Douchuu | Tsukimichi: Moonlit Fantasy | Лунное путешествие [ТВ-1] [2021, TV, 12 эп.] BDRip 1080p raw
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13578.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15127.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Retro Flare передает очарование аналогового несовершенства и кинематографической ностальгии. Эта коллекция из 9 текстурированных фонов обеспечивает светящиеся блики, мягкое боке и винтажные ожоги пленки на фоне шероховатых темных поверхностей. Царапины, шум и световые полосы привносят подлинную энергию старой школы в современные композиции. Идеально подходит для (   Читать дальше...   )Формат: JPGРазрешение файлов: 6400x4400
+Макото Мисуми был обычным подростком, которого внезапно призвали в другой мир в качестве «героя». Но богиня этого мира назвала его уродливым, лишила звания героя и сослала в самый дальний уголок своего мира. В этих пустошах он встречает драконов, пауков, орков, дворфов и множество других нечеловеческих рас. У Макото обнаруживаются способности к магии и военному ремеслу, (   Читать дальше...   )Производство: студия C2CЖанр: приключения, фэнтезиРежиссер: Исихира СиндзиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A099F5146FD5BFAED4F52C082AC247C49697A48B
+magnet:?xt=urn:btih:DC47B88FF29C2D88E503F5505137B8F392FD1A55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,25 +537,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803574   (13577) от 24.06.2025
+###  Публикация: 1801262   (15126) от 09.06.2025
 
-Шрифты - Sentavio - Envato - Ronald Gunfire Serif Font Family - UQMZEGL [OTF, EOT, SVG, WOFF, WOFF2, TTF]
+Hataraku Saibou Black | Cells at Work! Code Black | Клетки за работой: Тёмная сторона [2021, TV, 13 эп.] BDRip 1080p raw
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13577.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15126.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт с кириллицей, с засечками.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
+Эритроцит (AA2153) — новичок, один из тридцати семи триллионов, работающих на благо организма. Но что-то не так! Гормоны стресса постоянно подгоняют и кричат, чтобы он работал быстрее. Стенки кровеносных сосудов покрыты холестериновыми бляшками. Язвы, стеатоз печени и некоторые чисто мужские проблемы... Трудно клетке продолжать работать, когда каждый день — чёрный (   Читать дальше...   )Производство: студия Liden Films / ライデンフィルムЖанр: приключенияРежиссер: Ямамото ХидэёПеревод: Wakanim (дехардсаб - ВВПупкин)Язык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 13 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A43E1F9D97AC0865017F84F775EEE2B3DC712025
+magnet:?xt=urn:btih:1EEE399E05F11DCCF7EF96F5CDD1FC2C1F79488A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,25 +563,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803195   (13576) от 24.06.2025
+###  Публикация: 1801272   (15125) от 09.06.2025
 
-Джеймс Кози | Такая прекрасная, такая потерянная (2025) [MP3, Puffin Сafe]
+Dungeon no Naka no Hito | Dungeon People | Люди подземелья [2024, TV, 12 эп.] BDRip 1080p raw
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Аниме с субтитрами
+>>Аниме (FullHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13576.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"В будущем андроиды сравнялись в правах с человеком. Но будучи во всем более совершенными созданиями, сами андроиды явились причиной разрушения человеческой расы. В "домах ненависти" любой желающий может принять участие в постановке со смертельным исходом. А зрители телешоу желают найти нечто, способное заполнить жажду острых ощущений. Мидж отвечает (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:27:44
+Воровка по имени Клэй отправляется в подземелье, наполненное монстрами и ловушками, чтобы найти пропавшего отца. Когда она попадает на уровень, куда ещё не ступала нога искателя приключений, на её пути появляется могущественная смотрительница подземелья и предлагает... работу! Теперь вместо того чтобы исследовать подземелье, Клей должна определять задачи для новых (   Читать дальше...   )Производство: студия OLM / オー・エル・エムЖанр: приключения, фэнтезиРежиссер: Ямаи СаякаПеревод: SanaeЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3458C37D3B448912AE51C53D16C89F69A15140B
+magnet:?xt=urn:btih:C17CF108EE5157F2B9C6C63A2887FD4C9CA071CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -186,136 +589,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803578   (13575) от 24.06.2025
+###  Публикация: 1801251   (15124) от 09.06.2025
 
-Шрифты - Sentavio - Envato - Skyrox Font - AC42EQ8 [OTF, EOT, SVG, WOFF, WOFF2, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей, создает современную футуристическую атмосферу и стиль в стиле хай-тек.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00D9D035D9748EE2005C411E30EEBF4462D815A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803646   (13574) от 24.06.2025
-
-Brainworx & Plugin Alliance - bx_masterdesk Bundle 2025.6 VST, VST 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор плагинов от Brainworx серии bx_masterdesk для работы со звуком, мастеринга и продакшена.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B750BAA37DEE392EECCDC5CC2A32AB70AC32F990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803610   (13573) от 24.06.2025
-
-Анна Никольская, Анна Маншина | Пиши легко! Сторителлинг – как он есть (2023) [MP3, Агния Егошина]
-
->>Обучающие аудиоматериалы
->>Прочие обучающие аудиоматериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сочная выжимка практических знаний, необходимых тому, кто хочет писать!
-Книга «Пиши легко!» – это сочная выжимка практических знаний, необходимых тому, кто хочет писать и печататься в профессиональных издательствах. Это подъёмный кран, который снимает с вас весь груз ответственности за то, каким должен и не должен быть писатель. А также прожектор, который ненавязчиво (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 04:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2062269E3CDBAA7C77C488A6746A60E2A71793D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803422   (13572) от 24.06.2025
-
-VA - 100 EDM Hits (2013) [MP3|320 Kbps] <Electro House, Techno, Tech House, Electro>
-
->>Pop
->>Eurodance, Euro-House, Technopop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13572.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lee Coombs - Right Now (Original) - (06:06)
- 002. Dopamine - Spunk (Original) - (05:36)
- 003. 30Hz - Daddio (Miles Dyson Remix) - (06:40)
- 004. Dylan Rhymes - Kemptown (Sharooz Remix) - (07:00)(   Читать дальше...   )Жанр: Electro House, Techno, Tech House, ElectroПродолжительность: 10:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDDB93219F373FFEC8A31C671597CDE3EC3C58C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716189   (13571) от 24.06.2025
-
-Хаме-леоН - Студийные альбомы (6 изданий) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+Sanctorium - Studio Albums (3 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13571.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хаме-леоН — российская метал-группа из Курска. Основана в 2005 году.2013 - Попробуй на вкус эту душу!
-2016 - Ночь шальных машин в городе тьмы
-2020 - К.О.Д
-2022 - Крики!Жанр: Heavy/Power MetalПродолжительность: 05:47:59
+Sanctorium - метал-группа из России, г. Санкт-Петербург. Музыканты черпают свое вдохновение в мифологии, различных легендах, истории древних цивилизаций, философии и мистике. Влияния: Draconian, Epica, Therion, Nightwish, Tristania, Within Temptation.2014 - The Depths Inside
+2017 - Tessellation Of The Universe
+2020 - OrnamentsЖанр: Symphonic Gothic MetalПродолжительность: 03:30:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9EF88EF00B39667AE01FD73368402D1B3FAA0154
+magnet:?xt=urn:btih:EC9357AEA626BFB48D29C842601BE4D596717BA9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -323,25 +617,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803603   (13570) от 24.06.2025
+###  Публикация: 1801188   (15123) от 10.06.2025
 
-Юрий Тарарев, Александр Тарарев | Мы – инопланетяне (Книга 8). (2025) [MP3, Борис Клейнберг]
+10 лучших аниме-сериалов, которые стоит увидеть
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Форум Видео
+>>Пользователи NNM-Club рекомендуют!
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13570.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Не только Озы и их предводитель Туумон, но и Солас, возглавляющий стаю Ава, не понимал всего, что произошло. Он ожидал чего угодно, но не такого. Становилось понятно, что наступают новые времена, времена, в которых начинают действовать новые силы и законы.Жанр: Боевое фэнтезиИздательство: ЛитРес: Чтец, АвторПродолжительность: 05:39:07
+1. Евангелион
+Shin Seiki EvangelionЯпония, 1995–1996 годы.
+Аниме, фантастика, боевик, драма.(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD0190CD3C75C4F9CB53EA88C40BE80FCCE9B3AF
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,25 +645,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803653   (13569) от 24.06.2025
+###  Публикация: 1754890   (15122) от 10.06.2025
 
-Воображаемая жизнь ангелов / La Vie revee des anges (1998) BDRip [H.264/720p]
+Кулак ярости / Jing wu men / Fist Of Fury (1972) BDRip [AV1/1080p] [10-bit] [handmade AI] [MVO]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм о двух необразованных девушках Изе и Мари, познакомившихся в Лилле. Название фильма отражает мечты душевной Изы о добрых, «ангельских» отношениях между людьми. В людях Иза видит лишь хорошее и к жизненным невзгодам относится легко, следуя французской поговорке c’est la vie. Мари — антагонист Изы. Она обидчива, не понимает ни своих, ни чужих эмоций, живёт в (   Читать дальше...   )Производство: Франция / Canal+Жанр: драмаРежиссер: Эрик ЗонкаАктеры: Элоди Буше, Наташа Ренье, Грегуар Колен, Патрик Меркадо, Джо Престиа, Фредерик ХазардПеревод: профессиональный многоголосый (НТВ+)Язык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:53:11
+Искусный и быстрый, как молния, мастер восточных боевых искусств Чен Жен возвращается в свою бывшую школу, где его ждет страшная новость. Зверски убит глубоко почитаемый наставник, преподававший кунг-фу и карате. Действие фильма происходит в 1908 году в оккупированном японцами Шанхае. Нападение на школу и убийство учителя было организовано одной из японских школ (   Читать дальше...   )Производство: Гонконг / Golden Harvest CompanyЖанр: боевик, триллерРежиссер: Ло ВэйАктеры: Брюс Ли, Нора Мяо, Мария Йи, Джеймс Тьен, Тень Фэн, Инь-Чиэ Хань, Роберт Бейкер, Фу Чинг Чен, Чань Чинь, Тикара ХасимотоПеревод: Многоголосый профессиональный (Superbit)Язык озвучки: РусскийСубтитры: РусскиеПродолжительность: 01:46:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6A0C215751037DDF64D4B3356F293978D47C621
+magnet:?xt=urn:btih:3B0D8F5D7DFF77248DF8F7F2DAD3EAD505A95C97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,25 +671,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803685   (13568) от 24.06.2025
+###  Публикация: 1796409   (15121) от 10.06.2025
 
-Дмитрий Лазарев | Зона: Перезагрузка (Книга 3). Создатель чудовищ (2022) [MP3, Алексей Упшинский]
+Дроп / Drop (2025) WEB-DL [H.265/2160p] [4K, HDR10, Dolby Vision Profile 8.1, 10-bit]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Почти уже одержанная победа оборачивается поражением: бывший Хозяин Топи, а теперь высший доминант Измененных Паук уходит живым и похищает Глеба — уникального ребенка со сверхспособностями. Он захватывает далекий курильский остров Итуруп, где, пользуясь маскирующими талантами мальчика, наращивает силы и создает новую Зону. У Паука грандиозные планы, но он — далеко (   Читать дальше...   )Жанр: Боевая фантастикаИздательство: Нигде не купишьПродолжительность: 07:49:48
+Вдова Вайолет отправляется на первое за долгие годы свидание и немного нервничает. Но вопреки самым пессимистичным ожиданиям всё идет прекрасно, и её спутник оказывается вполне приятным и интересным собеседником. Внезапно женщине начинают поступать анонимные сообщения, в которых неизвестный угрожает убить её маленького сына, если Вайолет не будет выполнять указания (   Читать дальше...   )Производство: США, Ирландия / Blumhouse Productions, Platinum Dunes, RialtoЖанр: триллер, драма, детективРежиссер: Кристофер ЛэндонАктеры: Меган Фэйхи, Брэндон Скленар, Вайолетт Бин, Джейкоб Робинсон, Рид Даймонд, Габриэль Райан, Сара Маккормак, Джеффри Селф, Эд Викс, Бенжамин ПельтьеПеревод: Дубляж (Продубляж, LeDoyen), многоголосый (TVShows, HDrezka, LineFilm), двуголосый (ViruseProject)Язык озвучки: Русский, Украинский, АнглийскийСубтитры: Русские (Forced, Full), Украинские (Forced, Full), Английские (Full, SDH), Испанские, Французские, Немецкие, Польские и др.Продолжительность: 01:35:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE4ADA0344556B590F1689E336DD67F9DE2FE0EC
+magnet:?xt=urn:btih:CBA9749C149DDE46CE42C2A1377D883F713B1860
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -401,299 +697,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803580   (13567) от 24.06.2025
+###  Публикация: 1801371   (15120) от 10.06.2025
 
-Шрифты - MadeDeduk - Envato - Mongka Display Font - XHRXAV9 [OTF, WOFF, WOFF2, TTF]
+AmneziaWG 1.1.2 [Ru]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>След.
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Шрифт с кириллицей, способен воплотить в жизнь любую творческую идею на самом высоком уровне. В сочетании с лигатурами и специальными альтернативными глифами вы сможете создавать множество макетов и композиций. Mongka привносит нотку роскоши и индивидуальную типографику в логотипы, веб-сайты, цитаты из социальных сетей, свадебный брендинг и многое другое.Формат: OTF, WOFF, WOFF2, TTF
+Современная версия популярного VPN-протокола WireGuard. AmneziaWG - это форк WireGuard-Go. Он защищен от обнаружения системами DPI, при этом сохранил в себе упрощенную архитектуру и высокую производительность оригинала.Тип издания: ModПоддерживаемая ОС: Android 5.0 и вышеЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80E0B026226F59AD4EAB0F8D160B85E39FE12AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803698   (13566) от 24.06.2025
-
-The Lady & The Dappers - Electro Swing Vol. 3 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Only For You (3:41)
-02.  I Don’t Know Who I Am (3:04)
-03.  All I Want Is To Be With You (4:04)
-04.  Strong Feelings (3:00)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:35:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46DE7C417C5298220FEC4E8E26D95D4F7F1198D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803581   (13565) от 24.06.2025
-
-Шрифты - Vadovastd - Envato - Rafory Neutral Grotesk Cyrillic - F5NPMK6 [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нейтральный гротескный шрифт с кириллицей, который отличается четкостью, изяществом и сдержанностью, сочетающий формальную простоту и характер, позволяющий выделиться.Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D454528A17A26B29CFB8834E694C617D6EF3400E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803570   (13564) от 24.06.2025
-
-Шрифты - authentypestudio - Envato - Sigma Boy - N3V6YPH [TTF, OTF, WOFF, WOFF2]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13564.jpg" />
-</div>
-
-
-###  Подробнее
-
-Декоративный шрифт с поддержкой кириллицы.
-Материал раздаётся с официальной документацией.Формат: TTF, OTF, WOFF, WOFF2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE031879D197ED9EECCA8F167B0F7C285F3633DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803575   (13563) от 24.06.2025
-
-Шрифты - Sentavio - CYGUN Variable Font - Envato - DHS9366 [OTF, EOT, SVG, WOFF, WOFF2, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13563.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт с кириллицей 18 стилей, создает современную футуристическую атмосферу и стиль хай-тек.Формат: OTF, EOT, SVG, WOFF, WOFF2, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C8BCE55775B7EC83FC2FF3A088C8533D40D0B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803605   (13562) от 24.06.2025
-
-Алия Сарманова | А мне помогло. Как ориентироваться в море информации о здоровье и осознанно принимать решения (2024) [MP3, Алина Арчибасова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как понять, можно ли доверять врачу? На что полагаться при выборе лечения? Как ориентироваться в море информации?
-
-Алия Сарманова поможет разобраться в аспектах доказательной медицины, научит разрушать медицинские мифы и раскроет секрет того, как мозг воспринимает информацию и почему люди склонны верить в успешность лечения, не имея никаких доказательств.
-Вы научитесь (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 08:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D5C94A6D34486B11F86C4A8A8828C36235083EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803544   (13561) от 24.06.2025
-
-VA - Musical kaleidoscope part 44 Assorted (2025) [MP3|320 Kbps] <Electronic, Instrumental, Sax, Easy listening, Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sting,  Jk Sax - Shape of My Heart (Saxophone Remix)
-02 - Danekoo1 - Desire for Feelings
-03 - Dj Artur - Artist Life (Remastered)
-04 - Aurora Night - Conquering My Dreams(   Читать дальше...   )Жанр: Electronic, Instrumental, Sax, Easy listening, VocalПродолжительность: 00:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18582DAEC42EE1140E75FCE533B3B5A4F04A0CFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803606   (13560) от 24.06.2025
-
-Джеймс Хедли Чейз | Лабиринт смерти (2025) [MP3, Юрий Яковлев-Суханов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Ник Бакстер, отправляется в Лос-Анджелес, чтобы встретиться с другом Джорджем Калливудом по важному вопросу. Однако, прибыв на виллу, он обнаруживает, что Джордж был убит в своём доме три дня назад, и его лицо выражает страх, который он испытал перед смертью. До этого, на улице, на самого Бакстера было совершено покушение с использованием опасной инъекции, (   Читать дальше...   )Жанр: ДетективИздательство: Аудиокнига своими рукамиПродолжительность: 03:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47EB3C1FDD3D805B8E3253902B16C6D379DB6C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802108   (13559) от 24.06.2025
-
-Приключения Тайо / Tayo, the Little Bus (2010-2022) WEBRip [H.264/1080p] (сезоны 1-6, серии 156 из 156)
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тайо – маленький синий автобус, который только начинает свою жизнь в большом городе. Он уже выучил ПДД, а теперь предстоит успешно сдать тест, прежде чем выехать на оживленные улицы и взять на себя ответственность за пассажиров. В автошколе он знакомится с желтым такси Нури, грузовичком Вруми, гоночной машинкой Спиди и другими участниками движения, которые также (   Читать дальше...   )Производство: Корея ЮжнаяЖанр: мультфильм, детский, анимация, комедия, семейный, музыкальныйРежиссер: Ким Мин СунАктеры: Робин Слэйд, Ом Сан-хён, Патриция Калиш, Арамис Мерлин, Теа Вагнер, Нолан Бальзер, Ками Дезилетс, Керри Салки, Джоли Л’Эсперанс, Тим Бэндфилд и др.Перевод: Дублированный (Кинопоиск HD)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: ~00:12:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:245D5FD983F67753D7A180EF1AC706D3FD48F933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803545   (13558) от 24.06.2025
-
-Strymon - Plugins Effects 06.2025 VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный набор плагинов от Strymon для работы со звуком и эффектами.
-В пакет входит: BigSky, Cloudburst, Deco, DIG, El CapistanЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B9E14033ECD65D9BC8ACD80F5F17C6CB5BBA57F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803696   (13557) от 24.06.2025
-
-The Lady & The Dappers - Electro Swing Vol. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Can’t Stand It When You Go (3:44)
-02.  I Don’t Want To Linger For You (4:10)
-03.  You're More Connected (3:38)
-04.  I Care For You (Reimagined) (3:40)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ABD3C328D1752C5D7228E250CB998469D92C8D6
+magnet:?xt=urn:btih:F9C070C7D7C24FDF320E6CA6C6554D3ADF830D55
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1291129   (672471) от 23.03.2019
+
+Jim McNeely & Frankfurt Radio Bigband - Barefoot Dances And Other Visions (2017) Planet Arts [FLAC|Lossless|tracks + .cue] <Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bob's Here [9:59]
+02. Black Snow [10:19]
+03. Barefoot Dances [6:46]
+04. A Glimmer of Hope [7:59](   Читать дальше...   )Жанр: Modern Big BandПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AFBC37E79B432D8BF15CF33B61B8C415B104A9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290967   (672455) от 23.03.2019
+
+Halie Loren - From The Wild Sky (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roots (3:00)
+02. How to Dismantle a Life (3:16)
+03. Wild Birds (4:15)
+04. Paper Man (4:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D8D1605E737AAC247AD20C3C8C34408760A654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030762   (672409) от 01.07.2016
 
 Stan Kenton Orchestra - The Stuttgart Experience (1972) 2016, Jazz Haus[FLAC|Lossless|tracks + .cue] <Modern Big Band>
@@ -687,64 +745,6 @@ Howard Alden - I Remember Django (2010) Arbors Records [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44D842D3B65C106F16A553DF0194683E19CE6EE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137151   (669461) от 25.05.2017
-
-Joseph Bonner - Triangle (1975) 2009, Whynot [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Triangle [06:51]
-02. The Wind And The Rain [10:22]
-03. Mr P.C. [07:41]
-04. Vega [10:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78181E632A8A15B254D4FF4CFEA394227EB0F9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137141   (669411) от 25.05.2017
-
-Kenny Garrett - Sketches Of MD: Live At The Iridium (2008) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ring [14:36]
-02. Intro To Africa [09:22]
-03. Sketches Of MD [10:03]
-04. Wayne's Thang [10:58](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E71D3006AFDB00F3160ABBFE13008364BD279D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

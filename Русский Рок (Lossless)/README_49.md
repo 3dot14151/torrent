@@ -1,3 +1,32 @@
+###  Публикация: 1559781   (213038) от 27.06.2022
+
+Кино - Чёрный альбом (1990) Remastered [FLAC 2.0|44/24|WEB-DL|tracks] <Rock, New Wave, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лето (5:55)
+02. Красно-жёлтые дни (5:49)
+03. Нам с тобой (4:50)
+04. Звезда (4:28)(   Читать дальше...   )Жанр: Rock, New Wave, Post-PunkПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC10743FE86BC63D4214084BE78FFF07B24CFE11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1638555   (211851) от 10.06.2023
 
 Мещера - Жатва (2023) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Folk Metal, Pagan Metal, Female Vocals>
@@ -708,35 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6C6142D46B3902EBF524AD7B44412E9961F3BEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621576   (200878) от 25.03.2023
-
-ДДТ (DDT) - Творчество в пустоте - 2 (2022) Digibook [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200878.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Эволюция, ре…
-3. Ваши вещи мертвы
-4. Лажа(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13088CE332255BBCF1538E2B441308517B4B981B
 ```
 
 https://mybot314.ru/tekegram_catalog/

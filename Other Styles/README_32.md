@@ -1,3 +1,218 @@
+###  Публикация: 1109928   (855566) от 01.03.2017
+
+Satyaa - Satyaa Sings Kundalini Yoga Mantras (2011) [MP3|320 Kbps] <New Age, Yoga, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ong Namo (00:09:30)
+02. Ra Ma Da Sa (00:09:49)
+03. Living Song (00:05:19)
+04. Aad Such (00:09:00)(   Читать дальше...   )Жанр: New Age, Yoga, MantrasПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420224672BE80767F554C9E4B00C7CA8F86EB62A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109905   (855213) от 01.03.2017
+
+VA - T2 Trainspotting (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iggy Pop - Lust For Life (The Prodigy Remix) [05:01]
+ 02. High Contrast - Shotgun Mouthwash [02:54]
+ 03. Wolf Alice - Silk [04:06]
+ 04. Young Fathers - Get Up [03:51](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F3C82D45BF7A5B60C6CA8EDFA7EE2983FD61A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1376862   (854917) от 20.04.2020
+
+Ansia Orchestra - The Order, Vol. 1 (2020) [MP3|320 Kbps] <dubchestral, soundtrack, orchestral>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mercury
+2. For the Alliance
+3. Dreamer
+4. Cannonball(   Читать дальше...   )Жанр: dubchestral, soundtrack, orchestralПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BB59813B1A062D255FDA24589BF501E29603933
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377018   (854787) от 20.04.2020
+
+Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Metal, Electro>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854787.jpg" />
+</div>
+
+
+###  Подробнее
+
+|05:02| 01. Mick Gordon, Chad Mossholder - Hell On Earth
+|05:33| 02. Mick Gordon - Cultist Base
+|03:37| 03. Mick Gordon, Chad Mossholder - Blood Harvesting
+|07:51| 04. Mick Gordon, Chad Mossholder - Soul Extraction(   Читать дальше...   )Жанр: Soundtrack, Score, Industrial Metal, Electro-Industrial, Dark AmbientПродолжительность: 04:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC05FB30D2C1B966AF5E7FF1041DB1E062F0C987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 189999   (854726) от 10.04.2010
+
+Henry Mancini - The Pink Panther (1963) [MP3|320 kbps]<Jazz/Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854726.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Pink Panther Theme 2:40
+2. It Had Better Be Tonight (Instrumental) 1:48
+3. Royal Blue 3:13
+4. Champagne And Quail 2:48
+5. The Village Inn 2:39
+6. The Tiber Twist 2:52
+7. It Had Better Be Tonight (Vocal) 2:00
+8. Cortina 1:57
+9. The Lonely Princess 2:31
+10. Something For Sellers 2:52(   Читать дальше...   )Жанр: Jazz/SoundtrackПродолжительность: 00:29:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1377017   (854699) от 20.04.2020
+
+Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack, Metal, Electro>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854699.jpg" />
+</div>
+
+
+###  Подробнее
+
+|05:02| 01. Mick Gordon, Chad Mossholder - Hell On Earth
+|05:33| 02. Mick Gordon - Cultist Base
+|03:37| 03. Mick Gordon, Chad Mossholder - Blood Harvesting
+|07:51| 04. Mick Gordon, Chad Mossholder - Soul Extraction(   Читать дальше...   )Жанр: Soundtrack, Score, Industrial Metal, Electro-Industrial, Dark AmbientПродолжительность: 04:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:443960AF57B54091BD1A49E733305DB1EDABB31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 304458   (854654) от 08.03.2011
+
+John Murphy - 28 недель спустя / 28 Weeks Later (2007) [MP3|320 kbps]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_854654.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cottage Attack (2:35)
+2. 28 Theme (3:32)
+3. Welcome To Britain (2:25)
+4. Firebombing London (2:35)
+5. London Deserted (2:24)
+6. Kiss Of Death (2:53)
+7. Scooter Through London (3:18)
+8. Going Home (2:38)
+9. Alice Is Alive! (2:23)
+10. Don Abandons Alice (2:59)(   Читать дальше...)Жанр: ScoreПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC516EB5E5E5C6C9B37353A5A53DB0A3F9ADFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377019   (854588) от 20.04.2020
 
 Mick Gordon - DOOM Eternal (Original Game Soundtrack) (2020) [FLAC 2.0|48/24|tracks|WEB-DL] <Soundtrack, Metal, Electro>
@@ -545,209 +760,6 @@ Estas Tonne - Internal Flight (Guitar Version) 2013 [FLAC|Lossless|tracks] <Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90E10FDE8C013F42787F3595953E6CB7C0067D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499169   (849649) от 01.10.2021
-
-Diaspora - Meditation (1998) [MP3|320 Kbps] <Native American, Ethnic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Song of the Sun
-02. Chisy Muspuyalay
-03. Savry Nan
-04. May Yoe Walk in Sunshine(   Читать дальше...   )Жанр: Native American, EthnicПродолжительность: 00:57:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2EF1DCFBC32628F5B6D580B04F2CF853CFF7E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111247   (848365) от 05.03.2017
-
-Adrian Von Ziegler - Moonsong (2016) [FLAC|Lossless|WEB-DL|tracks] <Celtic Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Storm [00:04:48]
-02. High Tide [00:04:01]
-03. Moonsong [00:03:36]
-04. Daydream Melody [00:02:10](   Читать дальше...   )Жанр: Celtic FolkПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B19CE20DC083C0290EF3C9D2D96D2DF3898C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111353   (848175) от 05.03.2017
-
-Vangelis - Delectus (1973-1985)  Remaster, 2017, Universal International Music, 13 CD Box Set [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vangelis - Come On (Remastered)
-02. Vangelis - We Are All Uprooted (Remastered)
-03. Vangelis - Sunny Earth (Remastered)
-04. Vangelis - He-O (Remastered)(   Читать дальше...   )Жанр: Electronic, Ambient, New Age |Продолжительность: 09:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D48D0F5A5ACED87D26947B9067D0B78D7726E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002499   (846832) от 01.04.2016
-
-Gelka - Stardust Memories (2015) [MP3|128 кб/с] <Electronica>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Have You Kept Your Ticket 04:06
-02 Flying Clouds (feat. Phoenix Pearle) 03:40
-03 These Days (feat. Sena) 03:53
-04 Inside Galaxies (feat. Phoenix Pearle) 03:50(   Читать дальше...   )Жанр: Chillout, Lounge, PopПродолжительность: 01:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203A489A4E12A0A854A4FAAC1B82D70A47801F67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378595   (846600) от 25.04.2020
-
-Atom Music Audio - Blood Crave (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craft of War [02:13]
-02. Blood Crave [01:52]
-03. Bleak Profecy [02:15]
-04. Dark Ritual [01:54](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A2EE74C6D5F8BC654620BAF9FD66DD8ED272350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378593   (846599) от 25.04.2020
-
-Atom Music Audio - Leviathan: Monster Themes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wicked [02:35]
-02. The Freak [02:05]
-03. Megaprimatus [03:16]
-04. Creature [02:22](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:888537672FE146D2C9B9AC29DA00EE1FE5E05B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111911   (846572) от 06.03.2017
-
-VA - Somewhere My Love: Romantic Guitar  (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chet Atkins - Somewhere My Love (Lara's Theme From Dr, Zivago) (2:39)
-02. Laurindo Almeida - The Girl From Ipanema (2:30)
-03. Gregg Galbraith - Mack the Knife (Moritat) (2:23)
-04. Francis Goya - You Belong to My Heart (Solamente Una Vez) (3:07)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C9DA02FA91367EA57CA98109DC5772C1C569BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

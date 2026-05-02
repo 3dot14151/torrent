@@ -1,3 +1,32 @@
+###  Публикация: 1583038   (314319) от 13.10.2022
+
+Midnight Spirit - Emptiness Outside (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal, Core, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro [00:02:36]
+02. Shrouding Madness [00:03:51]
+03. Sadist [00:06:00]
+04. Emptiness Inside [00:04:23](   Читать дальше...   )Жанр: Metal, Core, RockПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1A54F295251BA4D0FF74811AD72B64AA5C8049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959791   (314099) от 25.11.2015
 
 Алиса - Лучшее за 30 лет. Часть 2 (2015) 2CD [FLAC|image + .cue] <Rock>
@@ -716,33 +745,6 @@ Moray Eel - Priest Hunter (2006) [WavPack|Lossless|image + .cue] <Death Metal, T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54642E51879B631216E2DEB7B4B4B3D42642B2C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961327   (298901) от 02.12.2015
-
-АукцЫон - В Багдаде всё спокойно (2CD) (1987/1989) переиздание /2015, Геометрия/ [WavPack|image+cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298901.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-CD2 (live)Жанр: RockПродолжительность: 01:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD367AC3965A1894537181BB916C1868DA2256C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1167274   (414516) от 21.09.2017
+
+Andrea Guerra - The Pursuit Of Happyness (2006) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Opening
+02 - Being Stupid
+03 - Running
+04 - Trouble At Home(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61749F3BA3AECBAEFEB0A0145F54750B8566808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 558465   (414110) от 10.10.2012
+
+Medwyn Goodall - Moon Goddess 2 (2012) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonstone (5:25)
+02. Serving Grace (4:14)
+03. In the Moment (6:06)
+04. Starseed (4:40)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4877B1B7B8648AECE838BB3DF8E12831FB4D665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168068   (412848) от 22.09.2017
+
+VA - Eurotrip (2004) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lustra - Scotty Doesn't Know
+02 - Chapeaumelon - My Generation
+03 - Wakefield - Wild One
+04 - Goldfinger - 99 Red Balloons(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EED80D78584205E59BB3A81D4C421D3B7659DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167986   (412722) от 22.09.2017
+
+VA - Knockin' on Heaven's Door (1997) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Til Schweiger - Gedanken uber Das Meer (Original Film-Dialog)
+02 - Selig - Knockin' On Heaven's Door
+03 - Selig - Love And Rockets
+04 - Instant Karma - Silver Whale(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05997E9B909D426B138D01383066FFD41EAB042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948595   (411399) от 20.10.2015
+
+Gomer Edwin Evans - The Very Best Of Angel Dreams (2015) [MP3|320 кб/с]<New Age, Instrumental, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strahlen reiner Liebe
+02. Gemeinschaft der Engel, Pt. 1
+03. Spre die schtzende Hand, Pt. 2
+04. Das Manifest der Liebe, Pt. 1(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:995219D1FC544F6A957E3268BDC0EF48E8FC824A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 710523   (411200) от 16.10.2013
+
+VA - Cafe Del Mar - Classical (2013) [FLAC|Lossless|image + .cue] <Instrumental, Lounge, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spring (2:33)
+02. Gymnastics (4:50)
+03. Pavane (5:07)
+04. Clair De Lune (4:17)(   Читать дальше...   )Жанр: Instrumental, Lounge, ChilloutПродолжительность: 00:58:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31750B6EF49F01A59ECB09D801207C0326352EE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711362   (411196) от 16.10.2013
+
+Olivia Newton-John - If Not For You (1971) 1993, Reissue [FLAC|Lossless]<Country, Pop Country, Country Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me And Bobby McGee (03:46)
+(Fred Foster / Kris Kristofferson)
+02. If (02:29)
+(David Gates)(   Читать дальше...   )Жанр: Country, Pop Country, Country RockПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1439190274C92924A5308C9C123CFF3160117107
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948565   (411106) от 20.10.2015
 
 Liquid Bloom - 2 альбома (2007-2015) [MP3|320 кб/с]<Shamanic, Trance, Downtempo, Ambient, Chill, New Age, Tribal>
@@ -543,226 +746,6 @@ Guido Negraszus - Secret Paradise (Cafe Chillout & Dream Lounge) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7745146E14387B6B85F1824A99B37B890824D92A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067157   (407865) от 28.10.2016
-
-Johan Soderqvist & Patrik Andren - Battlefield 1 (Original Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Battlefield One (03:21)
-02. The War to End All Wars (03:23)
-03. Mud and Blood (03:05)
-04. Hunted (01:58)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59145CF947D3AF1A9A6FC56D5F02C637551BF707
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558844   (407769) от 13.10.2012
-
-Reservoir Dogs / Бешеные псы - OST (1992) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407769.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. And Now Little Green Bag
-2. Little Green Bag - The George Baker Selection
-3. Rock Flock Of Five
-4. Hooked On A Feeling - Blue Swede
-5. Bohemiath
-6. I Gotcha - Joe Tex
-7. Magic Carpet Ride - Bedlam
-8. Madonna Speech
-9. Fool for Love - Sandy Rogers
-10. Super Sounds(   Читать дальше...   )Жанр: OSTПродолжительность: 00:30:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:845783EDBD4A0F79CD595893064A438E17790658
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573182   (407453) от 03.09.2022
-
-Enigma - The Screen Behind The Mirror (2000) [OGG Vorbis|485 Kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gate                                 	2:04
-02. Push The Limits                      	6:27
-03. Gravity Of Love                      	3:59
-04. Smell Of Desire                      	4:57(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8DB5775AC8178908C8165160739F7ED474F68B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559860   (407116) от 14.10.2012
-
-VA - Сборник Cаундтреков (1966-2012) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jan A.P. Kaczmarek - Goodbye (OST Хатико. Самый верный друг 2009)
- 02. John Williams (violin Itzhak Perlman) – Theme from Schindlers List (Список Шиндлера 1993 OST)
- 03. Michael Nyman - The Heart Asks Pleasure FirstThe Promise (Edit) (Пианино 1993 OST)
- 04. Celine Dion - My Heart Will Go On (c бэк вокалом) (Титаник 1997 OST)
- 05. Angelo Badalamenti - The Theme from Twin Peaks Fire Walk with Me (Твин Пикс 1990 OST)
- 06. Andre Rieu - Love Theme From Romeo & Juliet (Nino Rota 1968)
- 07. Hans Zimmer - Tennessee (Перл Харбор 2001OST)
- 08. London Symphony Orchestra - Requiem for a dream (Orchestral version) (Реквием по мечте 2000 OST)
- 09. Hans Zimmer - Leaving Wallbrook-On The Road Человек Дождя 1988 OST)
- 10. Hans Zimmer & Lisa Gerrard Now We Are Free (Gladiator 2000 OST)Жанр: SoundtrackПродолжительность: 02:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D24FC1B3E2B5362FFCF225B6AA31D03F3D2A8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414035   (406805) от 06.10.2020
-
-Stu Larsen - Marigold (2020) [FLAC|Lossless|tracks + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Got Struck By Lightning (3:13)
-02. Hurricane (3:10)
-03. Whisky & Blankets (3:57)
-04. Wires Crossed (5:05)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AD76D7B7D6B7E2C46EAC58FE6A44C7D4044F93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168749   (404890) от 25.09.2017
-
-Neil Young - Theme From Dead Man (1996) Single [FLAC|Lossless|tracks + .cue] <Soundtrack, Rock, Post Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme From Dead Man (Edit) (3:18)
-02. Theme From Dead Man (Edit w. Johnny Depp spoken words) (3:18)
-03. Theme From Dead Man (Long Version) (5:04)Производство: Vapor Records – PRO-CD-8142Жанр: Rock, Soundtrack, Folk Rock, Post RockПродолжительность: 00:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05BA5A6EA54B7EFAE336C6275A028395FE7441B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 194686   (404633) от 21.10.2012
-
-Trace Bundy - 4 albums (2000-2012) [MP3|320 kbps]<New age, Instrumental, Folk, Acoustic guitar>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404633.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:35) 01. Elephant King
-(5:02) 02. Joy & Sorrow
-(4:59) 03. Traverse
-(4:43) 04. Tres Capos
-(3:49) 05. Timepiece
-(1:55) 06. Adventures In Sawyerland
-(3:38) 07. Be Still
-(4:39) 08. Overtime
-(4:52) 09. Bongolo
-(3:37) 10. Coronation(   Читать дальше...   )Жанр: New age, Instrumental, Folk, Acoustic guitarПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

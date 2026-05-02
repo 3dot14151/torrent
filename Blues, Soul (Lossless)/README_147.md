@@ -1,3 +1,119 @@
+###  Публикация: 1811016   (16685) от 07.08.2025
+
+Christopher James - Psilocide blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Heavy boots (6:32)
+02.  Heavy boots again (Remix) (7:58)
+03.  Heavy boots once more (Radio Edit) (6:11)
+04.  Heavy boots reworn (Remix) (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7612319B56B16A71DB80833CD06A75B880C8CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811018   (16682) от 07.08.2025
+
+Debbie Bond - Live at the Song Theater (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  That Thing Called Love (Live) (3:52)
+02.  Road Song (Live) (3:39)
+03.  Watch out for Your Heart (Live) (3:01)
+04.  Let Me Be (Live) (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:382CC1EF9BA2E5522A2ECA08E2BFF0C49D20DB21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811019   (16681) от 07.08.2025
+
+Felipe Renfro - Love, Hope and Misery (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Love, Hope and Misery (3:36)
+02.  Fever Talks in Silence (2:59)
+03.  Sweat on My Name (3:37)
+04.  No One Texts Back (2:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57186431C707CDA1CC2492FEF0DD7BC61DD11DC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1811020   (16680) от 07.08.2025
+
+Interstate Blues - Lone Wolf (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eulogy of Hope (4:50)
+02.  The Depths of Perception (5:37)
+03.  What the Funk (4:39)
+04.  Lone Wolf (6:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E27EB8BB3F591185E80AA03BAEAC0ADD65F5B241
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1811021   (16654) от 07.08.2025
 
 John Christopher Morgan - Right On Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -630,123 +746,6 @@ Charlie Musselwhite - американский исполнитель на гу�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7803048FB6236411369375AD7026B0294F65529E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801846   (14707) от 13.06.2025
-
-Van Morrison - Remembering Now (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14707.jpg" />
-</div>
-
-
-###  Подробнее
-
-47-й студийный альбом североирландского певца и автора песен Вана Моррисона, вышедший на лэйблах Exile Productions и Virgin Records.
-Это возвращение Вана Моррисона к оригинальному написанию песен после кавер-альбомов и переработок его старых песен01. Down To Joy
-02. If It Wasn’t For Ray
-03. Haven’t Lost My Sense Of Wonder
-04. Love, Lover and Beloved(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:849FB23991D8B431D5B7E646A4C861C7BB1D0F6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802685   (14206) от 18.06.2025
-
-Petra and the Paper Hearts - Queens Of The Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kissin' In The Dark (3:05)
-02.  Why Don't You Do Right? (4:07)
-03.  Sweet Baby Of Mine (2:39)
-04.  Black Eye Blues (3:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFCC90A664D05954DF407E31421ADB6D97309802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894358   (12294) от 07.07.2025
-
-Blindside Blues Band/Mike Onesko Project - 23 Albums (1993 - 2025) [FLAC|Lossless|image + .cue|tracks + .cue]<Heavy Blues-Rock>
-
->>След.
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12294.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mike Onesko, известнейший блюз-рок музыкант, участник и создатель около двух десятков групп и проектов, начиная с 1972 года и по сегодняшний день. Самый его известный коллектив Blindside Blues Band. Стиль его музыки - мощное звучание тяжелых блюзовых гитар. Blindside Blues Band - детище Mike Onesko, где он является ведущим гитаристом и вокалистом группы. Mike вырос (   Читать дальше...   )Список альбомов:
-1993 - Blindside Blues Band - Blindside Blues Band
-1994 - Blindside Blues Band - Blindsided
-1995 - Blindside Blues Band - Messenger Of The BluesЖанр: Heavy Blues-RockПродолжительность: 23:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1420E03D433404F70D5D8F2515E257811812F516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805674   (12248) от 07.07.2025
-
-Pandora's Box - Lunacy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Forked Path (feat. LUNA BLUE) (3:40)
-02.  Regret The Day (3:13)
-03.  Oh Lost Love (3:12)
-04.  Bulletproof (3:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9D31BCA9FFDF62395E54A62E262DB62D996EBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1212638   (775812) от 12.03.2018
+
+СМЕТАНА band - Вилка новости 18 (2018) [MP3|320 Kbps] <Comedy Rock, Alt. Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775812.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лучший друг
+2. Олех
+3. Мы не подружимся
+4. Ля-Ля(   Читать дальше...   )Жанр: Comedy Rock, Alt. RockПродолжительность: 00:24:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB53D898D1FAFB43FADAD337BC6CE12187CF64FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212643   (775781) от 12.03.2018
+
+VA - антиАрмия: Нам не нужна война (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. антиАрмия - Нам не нужна война
+02. Lumen - Голоса мира
+03. Аквариум - Любовь во время войны
+04. Порнофильмы - Родина зовёт!(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6C010924E2C58D2DBB34277A0FFD3E509D358E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015113   (775719) от 09.05.2016
+
+Around The World In 80 Days - Genesis (2015) [MP3|320 кб/с] <Post Rock, Electronic Rock, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At First
+02. New Horizons
+03. Star's Breath
+04. Prototype(   Читать дальше...   )Жанр: Post Rock, Electronic Rock, InstrumentalПродолжительность: 00:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A337E6021A881DA99482DD9A47771B85D607D3C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212561   (775113) от 13.03.2018
+
+Аффинаж - Ты, который нашёл (2018) [MP3|320 Kbps] <Русский рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Солнце
+02 - Лучше Всех
+03 - Твой Главный Враг
+04 - Я - Печаль(   Читать дальше...   )Жанр: Русский рокПродолжительность: 00:19:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80003F77CB949A843AAA5F1FF892005D971F12E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277784   (775093) от 22.01.2019
 
 Shrezzers - Relationships (2019) [MP3|320 Kbps] <Progressive Metal, Experimental>
@@ -635,122 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40DE1D405D4CEC698A658DB8788187877A28FF0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392183   (769378) от 25.06.2020
-
-Дискорд - Всегда с тобой! (2019) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Всегда с тобой (03:23)
- 02. Гори-гори (03:41)
- 03. Сто тактов (03:19)
- 04. Мой Город (03:18)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD354E683AC8E3E6523F2DC2AF7B6D471967439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392551   (769197) от 26.06.2020
-
-Глеб Самойлоff & The Matrixx - Концерт с симфоническим оркестром "Globalis" 14.11.2019 (2020) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769197.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Увертюра
-2. Два корабля
-3. Москва-река
-4. Космос(   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:809190DBC0AF59F7A16A85DE891E8605D0A3272A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392669   (769182) от 26.06.2020
-
-Сектор Газовой Атаки - Марафон (2020) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769182.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Выбыть первым
-2. Марафон
-3. Сын маминой подруги
-4. Главное в жизни(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06DAF9F684FDA0978A7183A42A5A1F60F9B3A457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1392794   (769101) от 27.06.2020
-
-Markscheider Kunst - FREEDOM (2020) [MP3|320 Kbps] <Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769101.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Колыбельная
-2. FREEDOM
-3. Сила Урала
-4. Весна(   Читать дальше...   )Жанр: SkaПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04071B4074DFCC20B885C9AEB2AA0F88D2612E0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

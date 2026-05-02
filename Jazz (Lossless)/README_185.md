@@ -1,3 +1,61 @@
+###  Публикация: 1165271   (435440) от 12.09.2017
+
+The Dutch Swing College Band - With Guests, Vol. I (1974) 1987, Phillips [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandy Make Up Your Mind (with Bud Freeman) [05:15]
+02. I Got A Right To Sing The Blues (with Billy Butterfield) [03:32]
+03. I Wanna Be Happy (with Teddy Wilson) [03:21]
+04. Keepin' Out Of Mischief Now (with Wild Bill Davison) [03:19](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EF318B0D985FB3B2E45D6E7EB33D29F6793C847
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063450   (435381) от 16.10.2016
+
+Big John Patton - Got A Good Thing Goin' (1966) Remaster, 1997, Toshiba[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Yodel [08:19]
+ 02.Soul Woman [07:44]
+ 03.Ain't That Peculiar [06:50]
+ 04.The Shake [07:48](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EE7C8792398A3F99AD3800EB9A25DAA39C5C98D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063407   (435380) от 16.10.2016
 
 Larry Coryell - Barefoot Man: Sanpaku (2016) Purple Pyramid[FLAC|Lossless|image + .cue] <Jazz Fusion>
@@ -687,64 +745,6 @@ VA - Made in Cuba (2000) 2CD [WavPack|Lossless|image + .cue] <Latin, Afro-Cuban 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FD48D847B9353CDCB401AE72FF91335931F5C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410838   (431992) от 23.09.2020
-
-Evan Christopher - The Remembering Song (2010) Arbors Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Remembering Song - Prelude [0:31]
-02. The Wrath of Grapes [6:00]
-03. Way Down Yonder in New Orleans [5:21]
-04. The River by the Road [7:19](   Читать дальше...   )Жанр: SwingПродолжительность: 01:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484FB3AF792F0F377DDBBDA3EEBEA958669B8037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410873   (431990) от 23.09.2020
-
-New York Jazz Quartet - Surge (1977) 1992, Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surge [5:54]
-02. Placitude [7:12]
-03. Big Bad Henry [9:57]
-04. 87th Street [6:20](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99AF1A3BFBB9D6F4CC5F366C92FA504A575C5271
 ```
 
 https://mybot314.ru/tekegram_catalog/

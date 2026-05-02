@@ -1,3 +1,61 @@
+###  Публикация: 1306671   (555493) от 06.06.2019
+
+Genghis Tron - Triple Black Diamond (2007) EP, Limited Edition [FLAC|Lossless|tracks + .cue] <Grindcore, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride the Steambolt (Live) (2:41)
+ 02. Chapels (Live) (1:56)
+ 03. The Folding Road (Live) (3:09)
+ 04. Rick Allen Mix by Vytear (4:19)(   Читать дальше...   )Жанр: Grindcore, ExperimentalПродолжительность: 00:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7584ECE3F5D88B1447EB12494913E95F963B9433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306708   (555224) от 08.06.2019
+
+Sopor Aeternus & The Ensemble Of Shadows - Sanatorium Altrosa (Musical Therapy For Spiritual Dysfunction) (2008) [FLAC|Lossless|tracks] <Modern Classical, Darkwave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Consider This The True Meaning Of Love (Instrumental) (5:39)
+02.Architecture II (7:23)
+03.Shave, If You Love Me (Remix) (6:46)
+04.La Mort D'Arthur (Instrumental) (3:00)(   Читать дальше...   )Жанр: Modern Classical, DarkwaveПродолжительность: 01:05:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D7F9B2A9D0554EE190D2BA80F65C3E4582CFEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1307719   (554721) от 11.06.2019
 
 Hollerado - Retaliation Vacation (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -687,61 +745,6 @@ Puscifer (Maynard James Keenan of Tool & A Perfect Circle) - Money $hot (Shot) (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E043CD53127AA22946468F2F2C947D8D0D36DBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048395   (546416) от 02.09.2016
-
-Florence + The Machine - Wish That You Were Here (From "Miss Peregrine’s Home For Peculiar Children" Original Motion Picture) (2016) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative,  ...
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wish That You Were Here     (06:42)Жанр: Alternative, Indie PopПродолжительность: 00:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE708C0C2E0A2D11358A3E22CAA61DE11230A86B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048756   (545751) от 03.09.2016
-
-VA - Shine 3 (1995) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545751.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Pulp - Common People [04:11]
- 2. Oasis - Roll With It [04:01]
- 3. Supergrass - Alright [03:01]
- 4. The Lightning Seeds - Marvellous [03:43](   Читать дальше...   )Жанр: Indie RockПродолжительность: 01:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7090C7178DB0DF6751050FCE0F0CA47D0BC4E0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

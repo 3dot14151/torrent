@@ -1,3 +1,32 @@
+###  Публикация: 1668718   (173180) от 14.10.2023
+
+VA - Redux Chill Out Moments 2023 [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. a.m.c. - One Flower (Extended Mix) [5:16]
+02. Harmonium - Arcturus (Extended Mix) [8:57]
+03. Rene Ablaze & Frank Dattilo - You And I Forever (Rezwan Khan Remix) [6:56]
+04. Adam Francis - Leila (Extended Mix) [6:51](   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:40:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5E18A72E2E532052F973B8DFE7FEE3E3120FF03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1674628   (160843) от 06.11.2023
 
 VA - Autumn Vibes Kolibri Selection (2023) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -716,35 +745,6 @@ VA - Smooth Moods Chill Out, Vol. 3 (2023) [MP3|320 Kbps] <Chillout, Lounge, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C34711AB0C5B5ED1CBCEE72241FB657F69180644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785418   (69384) от 15.03.2025
-
-VA - Buddha-Bar - XXVII (2025) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddha Bar & Rich Vom Dorf – Heartbroke
-02. Jakhira & Bjorn Salvador – Asbyrgi
-03. DeDeXgrande & Aziz Ozouss – Awiyyid
-04. Xande (IT) – Imagination(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill Out, Trip HopПродолжительность: 2 CD, 02:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DED48BE0CD60707D5A11E5B54AB026DF39325B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

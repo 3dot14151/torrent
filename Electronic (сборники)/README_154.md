@@ -1,3 +1,67 @@
+###  Публикация: 1067413   (387818) от 29.10.2016
+
+VA - Turbo mix №8 (2016) [MP3|319-320 Kbps] <Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387818.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.2Drunk2Funk - God Is A DJ (Radio Edit)
+002.3LAU Ft. Yeah Boy - Is It Love (Riggi & Piros Remix)
+003.50 cent & MOT  - Папа дай мне Inferno  (Dok-Hi Mush Up)
+004.50 Cent Feat. Justin Timberlake And Timbaland - Ayo Technology (Talyk Remix)(   Читать дальше...   )Жанр: Dance, ClubПродолжительность: 08:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A381C21BE5D01546CD533D58C4BD32A93F95DB08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571145   (387739) от 07.11.2012
+
+VA - In Colours (9CD) (2010-2012) [MP3|320 кб/с]<Chillout, Lounge, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387739.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mikael Delta - Water Mirroring (3:59)
+2. PrOmid - Caress (Original Mix) (4:49)
+3. Erik Hakansson - Smooth (Original Mix) (3:45)
+4. Polished Chrome - Secret Of Sound (5:02)
+5. Alexsandro Da Silva - Dacota Sunlight (Far Away Mix) (6:54)
+6. Jens Buchert - Dominion (5:36)
+7. The Flashbulb - The History Of Rain (1:57)
+8. Islands Of Chill - Bring Back Silence (Cool & Lazy Afternoon Cut) (4:47)
+9. Jamie Ball As Action Bastard - Kowloon Side (3:18)
+10. Uranus - Your Eyes (4:09)(   Читать дальше...   )Жанр: Chillout, Lounge, Ambient, DowntempoПродолжительность: 12:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CAF0572F487C930F7D2709BE88A9B9C9FDDDA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174127   (387541) от 14.10.2017
 
 VA - Progressive House Vol.6 (Compiled by ZeByte) (2017) [MP3|320 Kbps] <Progressive House>
@@ -714,69 +778,6 @@ VA - Sense Of Trance #43 (2012) [MP3|320 кб/с]<Uplifting Trance, Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FEA4C08E325A2F8ECEF92DF563266B5CF5FEEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573367   (381747) от 10.11.2012
-
-VA - Club Dubstep - №14 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Mirror (Original Mix) (04:36)
-02. Serenade (Roughmath Remix) (06:16)
-03. Pressure (feat. KT Forrester)Жанр: DubstepПродолжительность: 02:16:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBB000240360C60C5B11EB0CCD19AE08F5FA0267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 573007   (381745) от 10.11.2012
-
-VA - Trance Eve Volume 44 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381745.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Faruk Sabanci - Oriental Sentiment (Nurettin Colak Remix)
-002. Fergus Keogh feat. Tiff Lacey - Darkest Hours (Original Mix)
-003. Indecent Noise feat. Ridgewalkers - Full Moon Fever (Power Dub)
-004. Julian Vincent & Shannon Hurley - Lost In Space (Eximinds Remix)
-005. Mark Sixma feat. Amba Sheperd - Cupid`s Casualty (Mike Saint Jules Remix)
-006. Moonbeam feat. Blackfeel Wite - In Your Eyes (Ilya Soloviev Remix)
-007. Neev Kennedy - The Unknown (DNS Project Mix)
-008. Norin & Rad - Zion (Original Mix)
-009. Progressiver - Searching For The Truth (Den Rize pres. Rizen Remix)
-010. Allure feat. Emma Hewitt - Stay Forever (Nitrous Oxide Remix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80ACA5B864E66F69DF609903DE179861FFCF0DA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

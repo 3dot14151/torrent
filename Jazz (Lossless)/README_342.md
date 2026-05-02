@@ -1,3 +1,73 @@
+###  Публикация: 453735   (93707) от 18.02.2012
+
+Gray Sargent - Shades of Gray (1993) [FLAC|Lossless]<Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Get Lost (5:04)
+02. Gray Haze (3:58)
+03. Don't Take Your Love From Me (7:21)
+04. I Know Why \ My Foolish Heart (7:03)
+05. A.P. in the P.M. (4:15)
+06. You Don't Know What Love Is (8:36)
+07. A Nightingale Sang In Berkeley Square (6:32)
+08. This Time The Dream's On Me (5:17)
+09. My Ideal (6:25)
+10. Long Ago And Far Away (5:08)(   Читать дальше...   )1993Жанр: Guitar JazzПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 453234   (93559) от 16.02.2012
+
+VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Count Basie - I'm Confessin' (That I Love You) (4:51)
+02.Billy Taylor Trio - La Petite Mambo (4:49)
+03.Paul Desmond - Alice In Wonderland (4:06)
+04.Bill Evans - For Heaven's Sake (4:26)
+05.Thelonious Monk - It Don't Mean A Thing (If It Ain't Got That Swing) (4:40)
+06.Oscar Peterson - Georgia On My Mind (3:46)
+07.Eugen Cicero  - Autumn Leaves (6:24)
+08.Earl Hines - Moonlight In Vermont (3:13)
+09.Erroll Garner - Misty (2:48)
+10.George Shearing - Someone To Watch Over Me (2:35)(   Читать дальше...   )2009Жанр: JazzПродолжительность: 01:08:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 452798   (93531) от 16.02.2012
 
 VA - Jazz Macchiato (2009) [FLAC|Lossless]<Vocal Jazz, Bop>
@@ -792,76 +862,6 @@ Marcel Loeffler - Source Manouche (2006) [FLAC|Lossless]<Jazz>
 8. Pont de Venise
 9. Ruby
 10. Joshua Fit the Battle of Jericho(   Читать дальше...   )2006Жанр: JazzПродолжительность: 00:58:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472159   (83835) от 23.03.2012
-
-Great Jazz Trio - Standard Collection Vol.1 - Summertime (1988) [FLAC|Lossless]<Jazz,Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After You've Gone (5:38)
-02. Summertime (5:47)
-03. The Days Of Wine and Roses (4:08)
-04. As Time Goes By (7:20)
-05. You'd Be So Nice To Come Home To (4:34)
-06. Summer Knows (4:48)
-07. Georgia On My Mind (5:05)
-08. Prelude To A Kiss (3:16)
-09. St. Louis Blues (5:51)
-10. Danny Boy (7:39)1988Жанр: Jazz,Post-BopПродолжительность: 00:54:07
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471880   (83677) от 22.03.2012
-
-Esperanza Spalding - Radio Music Society (2012) [FLAC|Lossless]<Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Radio Song
-02. Cinnamon Tree
-03. Crowned & Kissed
-04. Land Of The Free
-05. Black Gold
-06. I Can't Help It
-07. Hold On Me
-08. Vague Suspicions
-09. Endangered Species
-10. Let Her(   Читать дальше...   )2012Жанр: Contemporary Jazz, FusionПродолжительность: 00:57:58
 
 ## Скачать торент
 ```bash

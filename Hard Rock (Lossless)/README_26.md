@@ -1,3 +1,119 @@
+###  Публикация: 1510891   (790389) от 18.11.2021
+
+Mike Onesko's Guitar Army - The Last Solo (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fast Lane (Feat. Billy Morris Band, J.J. Farris, Aaron Akins) 07:03
+02. Chains On My Mind (Feat. Sid Solomon, Mike Varney, Stoney Curtis Band) 06:08
+03. Sabbeck (Feat. Steve Tabar) 03:54
+04. Poison (Feat. Frankie Starr, Butch Armstrong) 05:55(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3BE5ACA4AA054D34F27298580E3280D8B9B97FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511118   (789840) от 19.11.2021
+
+Cherokee - Blood & Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Classic Rock, Female Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bill Pullman
+02. My Sweet Tulip
+03. Just One Summer Long
+04. Il Grande Silenzio(   Читать дальше...   )Жанр: Melodic Hard Rock, Classic Rock, Female RockПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FEF924294D74031AE67B20B1C7951766C37E093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511062   (789817) от 19.11.2021
+
+Barnabas Sky - Inspirations (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legends Rise (feat. Danny Vaughn)
+02. What Lies Beneath (feat. Zak Stevens)
+03. In My Mind (feat. Danny Martinez Jr.)
+04. Yesterday’s Gone (feat. Rob Rock)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966A8FA3F0CE813C20DABCD9F02BF83D773EEBA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511069   (789809) от 19.11.2021
+
+Carl Sentance - Electric Eye (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judas
+02. Alright
+03. Electric Eye
+04. Overload(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0344558C13C1925EF9615D3276FAE350D75975F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1511373   (789428) от 20.11.2021
 
 Station - Perspective (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -629,122 +745,6 @@ Jet - рок-группа из Мельбурна, Австралия, сост�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B849B63CDDE52AD421254EE96907BDE4CC78FB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207793   (780283) от 20.02.2018
-
-The Poodles - Devil In The Details (2015) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before I Die (4:24)
- 02. House Of Cards (4:25)
- 03. The Greatest (3:53)
- 04. Crack In The Wall (3:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C16415BB54DC81A6E59899F085C00F39D7BECB08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208292   (779976) от 22.02.2018
-
-Phil Campbell аnd The Bаstаrd Sоns (ex-Motоrhead) - The Аge Оf Аbsurditу (2018) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ringleader (4:05)
- 02. Freak Show (3:42)
- 03. Skin And Bones (3:50)
- 04. Gypsy Kiss (2:23)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F2897DFAD2C5B4185C8045E75772A410D18EBB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208721   (779748) от 23.02.2018
-
-Smile (pre-Queen) - 2 Albums: Ghost of a Smile / Gettin' Smile (1969-2018) [FLAC|Lossless|image + .cue] <Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_779748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doin' All Right  (3:49)
-02. Blag  (3:15)
-03. April Lady  (2:45)
-04. Polar Bear  (3:58)(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 01.32.57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDA080236A51DEBD8A72E190EB9068375616DCC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209639   (779139) от 28.02.2018
-
-The Bad Flowers - Starting Gun (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunder Child (03:57)
-02. Lions Blood (03:47)
-03. Secrets (03:44)
-04. Rich Man (03:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A7ADB84445B9A84D10A955ADB35E2332E2C0464
 ```
 
 https://mybot314.ru/tekegram_catalog/

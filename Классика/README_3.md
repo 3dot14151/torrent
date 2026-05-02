@@ -1,3 +1,32 @@
+###  Публикация: 973602   (978938) от 09.01.2016
+
+Rosetti - Sinfonies - Concerto Köln (Vol.1) (1995) [FLAC|Lossless|image + .cue] <Classical, Classical Period, Symphony>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony in G minor, K 1 No 27
+01. Vivace (06:51)
+02. Menuet fresco: Allegretto - Trio - Menuet (03:10)
+03. Andante ma Allegretto (03:23)(   Читать дальше...   )Жанр: Classical, Classical Period, SymphonyПродолжительность: 01:07:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42842A6B842E324C1E4CE7CCD060EB64CBF49AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 166137   (978576) от 13.01.2010
 
 VA - 100 Best Piano Classics (6CD Box-set) (серия "Best 100") (2008) [FLAC|Lossless]<Classical, Фортепьяно>
@@ -771,35 +800,6 @@ Symphony No.1(   Читать дальше...   )Жанр: ClassicalПродол
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:887DA99D08E78894AE62BBA0A67E28B0FCC5E9FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978058   (961955) от 24.01.2016
-
-Lev Oborin, David Oistrakh, Svyatoslav Knushevitckiy - Beethoven - Piano Trio in C minor, Triple Concerto (2011) [FLAC|Lossles|tracks + .cue] Classical, Classicism
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Trio in C minor, op. 1 no. 3
-01 (1) Allegro con brio
-02 (2) Andante cantabile con variazioni
-03 (3) Menuetto. Quasi allegro(   Читать дальше...   )Жанр: Классическая музыка, Classical, Classicism, Chamber, Concerto, TrioПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F3AD6E670BE05B840C22E54EC106E18E6BDE562
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1792341   (21012) от 18.04.2025
+
+Фоны - Creative Fabrica - Unicorn Background Digital Paper Pack [JPG, PNG, PDF]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21012.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор цифровой бумаги с фэнтезийными фонами.Формат: JPG, PNG, PDFРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A16BE4CF0528083E860494410D268E0F9CFF22A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792693   (20787) от 20.04.2025
 
 Текстуры - STCrafts - Creative Fabrica - Rainbow Zodiac Texture Digital Paper [PNG]
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFFFC35E5B8C0763A7162C278BE44CD1BE7B3CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810340   (17418) от 03.08.2025
-
-Текстуры - Creative Market - BLASTER Retro Gradient Textures - 5003913 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17418.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор градиентов BLASTER – набор абстрактных ретро-градиентных фонов со стильной зернистой текстурой для веб-сайтов, цифровых сервисов, дизайна продуктов, шаблонов социальных сетей и новых брендов.Формат: PSDРазрешение файлов: 4700x3130
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E106F7056E51EB500CCE53E7FDFAFC8CAB612F
 ```
 
 https://mybot314.ru/tekegram_catalog/

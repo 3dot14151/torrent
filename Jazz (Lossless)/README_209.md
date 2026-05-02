@@ -1,3 +1,61 @@
+###  Публикация: 1179499   (349443) от 31.10.2017
+
+Claudio Roditi - Double Standards (1997) Reservoir [FLAC|Lossless|tracks + .cue] <Latin Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reservoir Samba [07:03]
+02. A Felicidade [07:31]
+03. Bye Bye Blackbird [08:13]
+04. Desafinado [05:08](   Читать дальше...   )Жанр: Latin Jazz, Jazz FusionПродолжительность: 01:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58FE5B9C3C1927886CC2597D4FA2BF296B78B586
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418353   (349417) от 24.10.2020
+
+Eric Dolphy Septet with Donald Byrd - Paris '64 (2018) Hi Hat [FLAC|Lossless|tracks + .cue] <Hard Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Springtime [19:11]
+02. 245 [11:09]
+03. G.W. [6:00]
+04. Serene [7:42](   Читать дальше...   )Жанр: Hard Bop, Avant-Garde JazzПродолжительность: 01:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F579E53B19F19D28D8276E3ACAB33A611E683082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179486   (349358) от 31.10.2017
 
 Lars Gullin - Portrait of My Pals (1964) 1989, EMI Svenska AB [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -698,64 +756,6 @@ Scott Bradlee's Postmodern Jukebox - Learn To Floss in 3 Easy Steps (2018) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C769653B67C82CA4265D3A7BDA2704273E2BBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418960   (344822) от 26.10.2020
-
-Mildred Bailey - Mrs. Swing (1929 - 1942) 2003, 4CD, Proper Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344822.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. What Kind O' Man Is You? [3:27]
-02. Is That Religion? [3:03]
-03. Harlem Lullaby [2:59](   Читать дальше...   )Жанр: Vocal Jazz, Big Band, SwingПродолжительность: 04:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95B2308B569B3981F49C7C59E194B015312653F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953841   (344800) от 06.11.2015
-
-Al Cohn - Rifftide (1987) /2015, Timeless Records/[FLAC|tracks+.cue]<Mainstream Jazz, Cool, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Speak Low [07:41]
- 02.Blue Monk [07:54]
- 03.Hot House [05:08]
- 04.The Thing [07:22](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, BopПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D02D376912AF2545648B755711B0BE87B6833A2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

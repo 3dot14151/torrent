@@ -1,3 +1,38 @@
+###  Публикация: 459346   (95410) от 04.03.2012
+
+Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How do you like my earrings (03:14)
+02. Changing trains (04:11)
+03. Dear Jack & Stacey (03:24)
+04. Tiger in your heart (04:59)
+05. Coco (03:41)
+06. Too many knives (03:14)
+07. Something new (05:42)
+08. Someone with a slow heartbeat (05:07)
+09. Stuck in the mud (04:12)
+10. Institutions of the World (05:31)(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB0F1E3019904A80CCA2908A4A6847D1730528D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 456951   (94268) от 24.02.2012
 
 The Beautiful South - Superbi (2006) [MP3|320 кб/с]<Pop-Rock, Country>
@@ -812,41 +847,6 @@ Led Zeppelin - The Best Ballads (2002) [MP3|320 кб/с]<Classic Rock | Blues Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3B47D3AD4ED2ED6A62A390A6C53A65A3470BEB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469663   (82796) от 18.03.2012
-
-George Strait - [41 альбом] Дискография (1981 - 2009) [MP3|~192 kb/s]<Country Rock/Rock`n`Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82796.jpg" />
-</div>
-
-
-###  Подробнее
-
-1981 - 2006Жанр: Country Rock/Rock`n`RollПродолжительность: 00:42:10
-
-01. Twang
-02. Where Have I Been All My life
-03. I Gotta Get To You
-04. Easy As You Go
-05. Living For The Night
-06. Same Kind Of Crazy
-07. Out Of Sight Out Of Mind
-08. Arkansas Dave(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C01CED82220A2F68D0E20566438CD391F9E6D9F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

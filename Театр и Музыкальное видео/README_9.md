@@ -1,3 +1,100 @@
+###  Публикация: 604523   (995702) от 19.01.2013
+
+Сборник клипов - DJ VJ Magrao - Full Video Collection (2003-2012) 15хDVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995702.jpg" />
+</div>
+
+
+###  Подробнее
+
+DJ VJ Magrao (настоящее имя- Luis Eduardo) - известный Бразильский радио ди джей, ви джей - один из пионеров музыкального, клубного направления - видеомикс - является одним из самых известных ви джеев мира, совладелец Бразильского музыкального лейбла - "Uberaba MG".
+Magrao - один из пионеров видеомикс-направления.
+Отличительной чертой его миксов является (   Читать дальше...   )001 - DJ Magrao - Intro
+002 - Dr.Alban - Look Who's Talking
+003 - Dr.Alban - Away From Home
+004 - Ace Of Base - The Sign(   Читать дальше...   )Жанр: Pop, Club, Dance, HouseПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B890491763E41EEB25FD1E2BB4BE403E75DF50F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605410   (995498) от 20.01.2013
+
+ABBA - ABBA (Deluxe Edition) (2012) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995498.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. ABBA In Australia (Television Special)
+a. Mamma Mia
+b. Hasta Mañana
+c. Ring Ring(   Читать дальше...   )Жанр: Pop, DiscoЯзык субтитров: Шведские, английские, французкие, немецкие, испанские, португальскиеПродолжительность: 01:00:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15AD1BE57D6D8FD79C4B9B056196E26E24213D52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605356   (995480) от 20.01.2013
+
+Duran Duran - A Diamond In the Mind (2011) [720] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995480.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт состоялся в центре Манчестера, одиннадцатиметровая арена .была черной, когда начался концерт. Очень эффектным стал выход группы на сцену в струях белого дыма струйка белого дыма, Duran Duran
+Великолепные визуальные эффекты и и инсталляции на протяжении всего концерта и приглашенные звезды сделали шоу поистине незабываемым.
+Ле Бон написал позднее в Twitter: ""Я просто люблю музыку, здесь мы все на одной стороне!"01. Return to Now
+02. Before the Rain
+03. Planet Earth
+04. View to a Kill
+05. All You Need Is Now
+06. Blame the Machines
+07. Safe (In the Heat of the Moment)
+08. The Reflex
+09. Man Who Stole a Leopard
+10. Girl Panic!(   Читать дальше...   )Жанр: RockПродолжительность: 01:35:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605831   (995443) от 20.01.2013
 
 Лучшие клипы / The best videos of all time (Enigmatic) H.264 (2012) DVDRip
@@ -626,90 +723,6 @@ Becky G feat Will.I.Am - Problem [The Monster Remix] (2012) [H.264/1080p] WEBRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69CF207DBC789D7B76F98070D3BBE5402269B045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1353120   (992565) от 17.01.2020
-
-Чичерина Юлия Дмитриевна - Мой рок-н-ролл в Донецкой филармонии (18.10.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое отделение:
-0:02:37 Ю. Чичерина "Песня пути"
-0:06:42 А. Александров "Жара"
-0:10:15 Ю. Чичерина "Была"(   Читать дальше...   )Производство: S.G.T.R.K. Media LabЖанр: Альтернативный РокПродолжительность: 01:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B56F8FC7AF856638605DD211B0BEDCDD9D2EF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 209544   (992322) от 17.01.2020
-
-Жан-Мишель ЖАР - Вода для жизни / Jean Michel Jarre - Water for Life (2006) HDTV [Xvid/720p] <Electronic> [PR]
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992322.jpg" />
-</div>
-
-
-###  Подробнее
-
-Water for Life. «Вода для жизни» — такую тему выбрал посол доброй воли ЮНЕСКО Жан-Мишель ЖАР для своего нового концерта, который состоится 16 декабря среди дюн марокканской Сахары. Концерт будет также знаменовать собой окончание Международного года пустынь и части декады ЮНЕСКО «Water for Life» (2005 — 2015). «Мы хотим, чтобы этот концерт стал призывом. Мы хотим, (   Читать дальше...   )Жанр: ElectronicРежиссер: Jean Michel JarreАктеры: Jean Michel JarreПеревод: отсутствуетПродолжительность: 02:13:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:049B9761C02497E4C33FC3B0AA45660F9491910B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609255   (991733) от 27.01.2013
-
-Сборник клипов - VA - Various Music part. 39 (2013) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991733.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2CELLOS - Supermassive Black Hole ft. Naya Rivera 1080p (3:46)
-2. 50 Cent - Major Distribution (Explicit) 1080p (4:23)
-3. AMOUAGE - Солнце 1080p (3:49)
-4. Armin van Buuren & Markus Schulz - The Expedition (ASOT600 Anthem) 720p (5:24)(   Читать дальше...   )Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~06:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A891A1D93077FC7BF2D65D4A7C446566FE36A8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,353 @@
+###  Публикация: 1371856   (888565) от 01.04.2020
+
+Blonde Redhead  - 9 CD Releases (1995-2014) Коллекция [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barragán (02:14)
+02. Lady M (02:59)
+03. Dripping (03:41)
+04. Cat On Tin Roof (03:37)(   Читать дальше...   )Тип издания: CD •Жанр: Indie Rock •Продолжительность: 06:01:05 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DA3055B6EC9D411D18A37E51214AC98173AEE03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 994715   (888193) от 09.03.2016
+
+Billy Rankin - Growin' Up Too Fast (1984) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный сольный альбом гитариста Nazareth!01. Baby Come Back
+02. Rip It Up
+03. Think I'm In Love
+04. Where Are You Now(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:830B768E939A12D0C8560177681BAAE621124C23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103106   (887886) от 11.02.2017
+
+Cold Blood - Lydia (1974) Remastered 2004 [FLAC|Lossless|tracks + .cue] <Rock, Funk, Soul>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887886.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ready To Live (Lonnie Hewitt, Paul Edward Smith) - 5:24
+2. Simple Love Life (Paul Edward Smith, R. Smith) - 3:18
+3. Under Pressure (Fred Gowdy, Larry Wilkins) - 3:30
+4. When My Love Hand Comes Down (Gloria Jones, Pam Sawyer) - 4:23(   Читать дальше...   )Жанр: Rock, Funk, SoulПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811A8E5CA9ED4B70A89A103199682FD577CB9FCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103044   (887804) от 11.02.2017
+
+Submarine Silence - Journey Through Mine (2016) ex-Moongarden [FLAC|Lossless|image + .cue] <Neo Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887804.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Astrographic Temple (Instrumental) (8:22)
+2. Black Light Back (9:48)
+3. Swirling Contour (7:34)
+4. Canova's Gypsoteque (Instrumental) (8:02)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:046D47FBBDB4AFED91916DD727FFED816D0DD5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103051   (887722) от 11.02.2017
+
+IQ - Live On The Road Of Bones (2015) [FLAC|Lossless|image + .cue] <Neo Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+1. Intro (1:53)
+2. Sacred Sound (11:47)
+3. Outer Limits (6:50)(   Читать дальше...   )Жанр: Neo ProgressiveПродолжительность: 02:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D6846622F122CC166DFA0B34466DF365708A86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494505   (887699) от 08.09.2021
+
+VA - Just Like .... Rock Legends Playing The Songs Of Pink Floyd (2008) 2xCD [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887699.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01.   Adrian Belew & Keith Emerson / In The Flesh   [3:04]
+ 02.   Dweezil Zappa & Keith Emerson / Run Like Hell   [5:10]
+ 03.   Ian Anderson / The Thin Ice   [2:29](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF8046159CC25638390F57769007D284E12DC2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494829   (886086) от 09.09.2021
+
+Eddie Tatton - Canons Under Flowers (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Small Voice
+02 - Rise
+03 - Namaste
+04 - Hope(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:46:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:562062314630C24CE6A0283846D936AB0D2CAF9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103325   (885913) от 12.02.2017
+
+Blackfield - V (2016) [FLAC|Lossless|image + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blackfield — это проект лидера Porcupine Tree Стивена Уилсона и израильского музыканта Авива Геффена.
+
+Всё началось с того, что в 2000 году Геффен, большой поклонник Уилсона и Porcupine Tree, пригласил последних выступить в Израиле. После ряда концертов между ним и Стивеном Уилсоном завязалась дружба, а двумя годами позже Геффен уже пел на двух треках «поркупайновского» (   Читать дальше...   )01. A drop in the ocean (1:24)
+02. Family man (3:37)
+03. How was your ride? (3:59)
+04. We'll never be apart (2:54)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58580BAC1DCC24062EC4BE6377D75459E94196A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995242   (884494) от 11.03.2016
+
+VA - Love Rock Hits (2000) 3CD Box [FLAC|Lossless|tracks + .cue] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ricky Valance - Tell Laura I Love Her (2:49)
+02. Danny Williams - Moon River (2:43)
+03. Ronnie Carroll - Roses Are Red (2:35)
+04. Susan Maughan - Bobby’s Girl (2:32)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:58:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FCDCB801855D49513C8A23B178E6013104C90B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 870715   (884318) от 19.02.2015
+
+VA - Pure... Rock (2012) [FLАC|Lоssless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Bowie - New Killer Star (Album Version) (2003) - 4:40
+02. Jeff Buckley - Grace (Album Version) (1994) - 5:22
+03. Soul Asylum - Misery (Single Version) (1995) - 4:26
+04. Train - Calling All Angels (Album Version) (2003) - 4:02(   Читать дальше...   )Жанр: Rock, Classic Rock, Hard Rock, Heavy Metal, Melodic Rock, Pop Rock, Blues RockПродолжительность: 04:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D295888240346D22E6AEBF7FBB7B4B216DF5829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372816   (883863) от 04.04.2020
+
+Dwayne Ford - Neadless Freaking (1981) 2016, Epic [FLAC|Lossless|tracks + .cue] <Weastcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lovin' And Losin' You (03:30)
+02 Am I Ever Gonna Find Your Love (03:38)
+03 Stranger In Paradise (03:34)
+04 The Hurricane (03:51)(   Читать дальше...   )Жанр: Weastcoast, AORПродолжительность: 00:33:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A371DB0CF70F69BFD9063F08723B2E91006B103E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372834   (883787) от 04.04.2020
+
+Mighty Baby - At A Point Between Fate And Destiny (The Complete Recordings): 6CD Box-set (2019) [FLAC|Lossless|image + .cue] <Psychedelic Rock, Folk Rock, Acid Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Незаслуженно забытая руппа Mighty Baby образова в 1968 году на пепелище британской группы The Action. Формация взяла за основу своего творчества американскую версию психоделического рока с изрядной долей фолк-музыки. Mighty Baby с самого начала заявили о себе как о профессиональном коллективе, способном выдавать лихо закрученные психоделические импровизации. Участники (   Читать дальше...   )Список альбомов:
+1969 | Mighty Baby
+1971 | A Jug Of Love
+1971 | A Jug Of Love Rehearsals(   Читать дальше...   )Жанр: Psychedelic Rock, Folk Rock, Acid Rock |Продолжительность: 06:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F50AD1758729E085C727C4DA61B051C2F27B6A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1103555   (883506) от 13.02.2017
 
 John Garcia - The Coyote Who Spoke In Tongues (2017) [FLAC|Lossless|image + .cue] <Stoner Rock>
@@ -394,354 +744,6 @@ Cosmos - 4 Albums (1994 - 2012)[FLAC|Lossless|image + .cue]<Progressive Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:110509775B03A81E2FE268F922E460B411211378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495506   (878928) от 13.09.2021
-
-UFO - Force It (1975) Deluxe Edition, 2021, Remaster [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Live at Record Plant, NYC, 1975 / 2021 Remaster) [00:01:11]
-02. Let It Roll (Live at Record Plant, NYC, 1975 / 2021 Remaster) [00:05:01]
-03. Doctor Doctor (Live at Record Plant, NYC, 1975 / 2021 Remaster) [00:05:15]
-04. Oh My (Live at Record Plant, NYC, 1975 / 2021 Remaster) [00:04:16](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA26D6B4D6C740B596608CD22833CAD3CA9A114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104705   (878224) от 16.02.2017
-
-Young Flowers - 1968-1969 (1997) [APE|Lossless|image + .cue] <Blues Rock, Heavy Psych, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouverture - Take Warning (4:15)
-02. The Moment Life Appeared (2:16)
-03. 25 øre (8:00)
-04. Oppe i træet (3:18)(   Читать дальше...   )Жанр: Blues Rock, Heavy Psych, Psychedelic RockПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DE1ABF9ECF71809A4A087A412859887082BDF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104855   (878126) от 16.02.2017
-
-Men At Work - Business As Usual (1981) [FLAC|Lossless|image + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Who Can It Be Now?  3:26
-02.  I Can See It In Your Eyes  3:33
-03.  Down Under  3:46
-04.  Underground  3:08(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:38:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3ECBAF4CE8A03FD93D95F0A55A6CADE174EEE19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495670   (877556) от 14.09.2021
-
-Andreas Aarflot - Det rivna pianot (1978) [FLAC|Lossless|WEB-DL|tracks] <Jazz-Rock, Prog Rock, Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877556.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sista båten från Shanghai - 05:04
-2. Svedolfs telefonkiosk - 03:38
-3. Vägar - 04:36
-4. Surayya - 03:29(   Читать дальше...   )Жанр: Jazz-Rock, Prog Rock, FusionПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514996D543EDAC010A12BD20A24D4F1F18A0C8E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495759   (877551) от 14.09.2021
-
-Syndone - Kama Sutra (2021) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Only Make Believin 3:27
-02. Nirvana 2:52
-03. Carousel 2:32
-04. Into the Kama 5:51(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B600B054F3090BD9858FB95849BCFAFF88766E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105133   (876474) от 17.02.2017
-
-Cliff Richard - Always Guaranteed (1987) [FLAC|Lossless|tracks + .cue] <Pop/Rock, Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Night (04:30)
-02. Once Upon A Time (04:32)
-03. Some People (03:51)
-04. Forever (04:02)(   Читать дальше...   )Жанр: Pop/Rock, VocalПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3B2D79A9201116E5D6D82A548D13A7F057512E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 441042   (875614) от 15.09.2021
-
-BigBang (Norway) - 11 Albums (1995 - 2013) 12 CD [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа BigBang была образована в 1992 году. Организатор банды, норвежский вундеркидистый пацан Oystein Greni вырос с убеждением, что предназначен для создания музыки, повлияла и работа своего отца, Тор С. Greni, игравшего в далеких 1960-70-х годов в группе Undertakers Circus на разогреве у великих Led Zeppelin, Jimi Hendrix и Curtis Mayfield. А как заядлый скейтбордист, (   Читать дальше...   )Жанр: RockПродолжительность: 08:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25AE9417433E7A57893B9AF10B77CCA3DE791331
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105956   (875164) от 18.02.2017
-
-Grand Illusion - Ordinary Just Won't Do (2004) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil's Advocate 4:19
-02. The Best Is Yet To Come 3:39
-03. Gone For Good 4:36
-04. Heaven Or Hell 5:24(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDC120EABB286F9C825EBF362E608406DEEDF26B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105882   (875067) от 18.02.2017
-
-Eric Clapton - Backless (1978) Reissue, 2008, Polydor [FLAC|Lossless|tracks + .cue] <Blues Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Out In The Rain (4:16)
-02. Watch Out For Lucy (3:26)
-03. I'll Make Love To You Anytime (3:24)
-04. Roll It (3:43)(   Читать дальше...   )Жанр: Blues Rock, Classic RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F423F2E0A03D5EC37F5465DB3B46E9741E865A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105352   (875051) от 18.02.2017
-
-Jade Warrior - 14 альбомов / 15 CD (1971-2008) Дискография [WavPack|Lossless|image + .cue] <Prog rock, Psychedelic, Space Rock, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Jade Warrior – самобытный британский коллектив, начавший свою музыкальную карьеру в далеком 1969 году.
-Творчество этой группы примечательно тем, что оно оказало влияние на формирование таких направлений музыки, как ambient и new age.
-Основали группу флейтист Джон Филд (Jon Field) и гитарист Тони Дьюиг (Tony Duhig).
-Помимо традиционной любви к популярному в те годы (   Читать дальше...   )Жанр: Prog rock, Psychedelic, Space Rock, AmbientПродолжительность: 10:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A644055200CA72BAE51280138E27BC34F7D4C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495990   (874788) от 16.09.2021
-
-Big Big Train - Common Ground (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Part One:
-01. The Strangest Times
-02. All The Love We Can Give
-03. Black With Ink(   Читать дальше...   )Жанр: Progressive Rock, Symphonic RockПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093AC44EA8550D104AF336E6DC637D2E76FBA89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496030   (874638) от 16.09.2021
-
-Lindsey Buckingham (ex-Fleetwood Mac) - Lindsey Buckingham (2021) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874638.jpg" />
-</div>
-
-
-###  Подробнее
-
-7й сольный альбом исполнителя.Кроме оригинальных песен включает кавер-версию "Time" группы "Pozo-Seco Singers". Это первый альбом Lindsey, с тех пор, как он перенес операцию на открытом сердце в 2019 году.
-
- Светлая, мелодичная муза, хиппованные времена продолжаются.
-(   Читать дальше...   )01. Scream
-02. I Don't Mind
-03. On the Wrong Side
-04. Swan Song(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BC075EB182AE1B5813D0844FDCA4A0596F7837
 ```
 
 https://mybot314.ru/tekegram_catalog/

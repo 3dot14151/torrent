@@ -1,3 +1,61 @@
+###  Публикация: 1028645   (688949) от 23.06.2016
+
+Cy Touff - His Octet & Quintet (1955) 1998, Pacific Jazz Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Keester Parade [07:53]
+ 02.TNT [04:58]
+ 03.What Am I Here For? [04:25]
+ 04.Groover Wailin' [04:14](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D6BD90434153DBE9A9C72EC119F8F75BEEF18BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028428   (688861) от 23.06.2016
+
+Brother Jack McDuff & David Newman - Double Barrelled Soul (1967) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.But It's Alright [05:36]
+ 02.Sunny [06:41]
+ 03.Esperanto [04:54]
+ 04.Duffin' 'Round [05:12](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162CA29223EB800226F2C4390AEDCD2DB528DA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1028659   (688856) от 23.06.2016
 
 Jimmy Smith - The Complete Sermon Sessions (1957-1958) 2CD, 2009, Groove Hut Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
@@ -693,64 +751,6 @@ Art Pepper - Tokyo Encore (1979) 1991, Disques Dreyfus [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCCA036FB5B67296D55A3C1CB5854E372A49DE73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135030   (685231) от 17.05.2017
-
-Duke Ellington - Play 22 Original Big Band Hits (1946 - 1947) 1987, Hindsight Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train (Theme) [03:04]
-02. Crosstown [02:49]
-03. Passion Flower [03:34]
-04. Perdido [02:26](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB7DC8FF0414325F036D10B09FE713491C7B738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135026   (685230) от 17.05.2017
-
-Duke Ellington - Ellington '56 (1986) Charly [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. East St. Louis Toodle-Oo [03:32]
-02. Creole Love Call [03:48]
-03. Stompy Jones [03:54]
-04. The Jeep Is Jumpin' [02:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD9098495D2E1A24EB0BB365141CEEC16801CC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1554125   (240264) от 30.05.2022
+
+Math Marriage Abel and Krell - Откровение (2021) [MP3|320 Kbps] <Extreme Metal, Deathcore, Mathcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Найти и потерять [00:04:25]
+02 - Волны [00:02:57]
+03 - Блеск плоскостей [00:04:18]
+04 - Флёр [00:06:36](   Читать дальше...   )Жанр: Extreme Metal, Deathcore, MathcoreПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C101229E1DADBE8DC0272FD63A208F39A68F7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626705   (240199) от 17.04.2023
+
+Алексей Глухов и ''МОЛОТ РОДИНЫ'' - ''Трибьют Сибирскому Панку'' (2023) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Война (И.П.В.cover) [00:03:42]
+02-Лютая погодка (''Флирт''cover) [00:03:15]
+03-Новый 37-й (Гр.Об.cover) [00:02:04]
+04-Новый День (Гр.Об.cover) [00:02:40](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:58:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B731A602C4123244A297BFC8693ABD64515C60B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1466894   (239926) от 01.05.2021
+
+Антоха Гумбин - Эпицентр (2021) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Эпицентр [00:03:44]
+02.Машина [00:05:40]
+03.Петь и Танцевать [00:03:54]
+04.Растение [00:04:29](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A850C6BC2740A21E097C66AF6656FC3FC8756D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569855   (239840) от 22.08.2022
+
+Кино - Черный Альбом (1996) [OGG|485 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кончится Лето	5:56
+02. Красно-Желтые Дни	5:50
+03. Нам С Тобой	4:49
+04. Звезда	4:30(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0ECD4301AFAA1FF0FC485EC1B196F2F2E397134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622072   (239520) от 27.03.2023
 
 Ярик Бро - 2 Albums (2021-2023) [MP3|320 Kbps] <Rock>
@@ -629,122 +745,6 @@ Razörschrieck (Razorschrieck) - 3 Albums (2013-2023) [MP3|320 Kbps] <Death Doom
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E7D210ED93AC92D5FEBABDAFEBE5A648F379480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575262   (236229) от 09.09.2022
-
-Треустье - Т​ё​м​н​ы​е б​ы​л​и​н​ы (2022) [MP3|224 Kbps] <Dark folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Скоморошья [00:03:52]
-02 - Песня Блаженной [00:03:46]
-03 - 1612 [00:04:22]
-04 - Лебедь белая [00:03:15](   Читать дальше...   )Жанр: Dark folkПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:870E2359A29D7037E89E677671A9EAE16C9E6B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611102   (236171) от 11.02.2023
-
-Thunder Volt - 4 Relises (2021-2023) [MP3|320 Kbps] <Grunge, Stoner, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2021 - Entering the Cave (Single)
-2021 - Initial
-2021 - Wanted Man(   Читать дальше...   )Жанр: Grunge, Stoner, Doom MetalПродолжительность: 4 CD, 03:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C290B2190E7A84BA91757C3FB10D248089ADAC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611096   (236147) от 11.02.2023
-
-Lim Okrava - 3 Albums (2019-2023) [MP3|320 Kbps] <Industrial Rock, Alternative Metal, Synth>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2019 - Пятно контакта
-2022 - Театр боевых действий
-2023 - КапканЖанр: Industrial Rock, Alternative Metal, SynthПродолжительность: 3 CD, 01:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF30D2CE42AB77878738C1891EB93162C0BCFE63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457287   (236098) от 26.03.2021
-
-МВВМ - Поэмы Гаражных Дней (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Поэма гаражных дней [00:05:23]
-02 - Последний Антигерой Моего Поколения [00:03:32]
-03 - Под Прицелом [00:04:12]
-04 - Корабли [00:05:51]Жанр: RockПродолжительность: 00:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEFC77AB2A1D8C6C64D3C5D090B05D30FC681547
 ```
 
 https://mybot314.ru/tekegram_catalog/

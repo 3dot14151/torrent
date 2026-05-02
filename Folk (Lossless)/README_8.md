@@ -1,3 +1,32 @@
+###  Публикация: 1318954   (490886) от 08.08.2019
+
+Bon Iver - i,i (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yi (00:31)
+02. iMi (03:16)
+03. We (02:22)
+04. Holyfields, (03:07)(   Читать дальше...   )Жанр: Folk-Rock, Indie FolkПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49731ADAEF42674A5B0F6BE589F178EC8E1675DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404955   (487020) от 28.08.2020
 
 Angel Olsen - Whole New Mess (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Folk, Dark Folk>
@@ -741,35 +770,6 @@ Ashla Taylor - Truth Is... (2017) EP [FLAC|Lossless|tracks] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B875C20795F36DABEB22D98D06C7E87F7A73115E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169850   (401516) от 29.09.2017
-
-Stephanie Quayle - Love The Way You See Me (2017) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Drinking With Dolly (3:16)
-02 - Winnebago (3:22)
-03 - Selfish (3:47)
-04 - Ugly (3:47)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:40:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF94E6C0A558AAF9D0521FDDDAC31FDBA9B9AE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

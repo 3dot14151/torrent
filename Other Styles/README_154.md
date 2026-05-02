@@ -1,3 +1,206 @@
+###  Публикация: 1654838   (202249) от 23.08.2023
+
+Ah Nee Mah - Sacred Nation (2017) [FLAC|Lossless|tracks + .cue] <New Age, Native American, Tribal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning on the Mesa
+02. Ghosts of the Canyons
+03. Trail of the Ancients
+04. The White Wolf(   Читать дальше...   )Жанр: New Age, Native American, TribalПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC77C7C647A5C15F4F5C395D314217BF7EEA6191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615787   (202169) от 27.02.2023
+
+Otyken - Дискография (2018-2023) 7 релизов  [MP3|320 Kbps] <Ethnic, World Music, Dance House, Горловое пение>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phenomenon [05:50]
+02. Pulse [07:15]
+03. Storm (2023) [04:20]
+04. White Mountain (2023) [07:41](   Читать дальше...   )Жанр: Ethnic, World Music, Dance House, Горловое пениеПродолжительность: 04:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21FF610879D7B34F2CAF95B2B84AD0C56913D3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829591   (202031) от 25.10.2025
+
+Francis Goya & Norman Candler Magic Strings - More Than Ever (Remastered) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Theme for a Lady (Remastered)
+02. Theme of a Young Love (Remastered)
+03. Brokenhearted Me (Remastered)
+04. My Sweet Lady (Remastered)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:33:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F8314741228500E214732DC9A4A34D9A26948DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829604   (201991) от 25.10.2025
+
+Paul Mauriat - The Russian Album (1993) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plaine ma plaine
+02. Les deux guitares
+03. Le Sarafan rouge
+04. Katioucha(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806BEF6CC9D6F80BDE32E662555C01606E1E2342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1829839   (201837) от 25.10.2025
+
+Paul Mauriat - Le grand orchestre de Paul Mauriat, Vol. 1-2 (1965) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201837.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. La nuit
+02. Vous les femmes
+03. N'avoue jamais(   Читать дальше...   )Жанр: Instrumental |Продолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09FA73874B1BDCFCEFC86DBB7C81A1B591DEBB9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618213   (201364) от 14.03.2023
+
+VA - Enigma-Forest-Transit 8 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earth Nation - Lord Taketh
+02. Juno Reactor - Conga Fury
+03. Deep Forest - Deep Forest (Sunrise At Alcatraz) (Remix)
+04. Celestial - Cang Ding(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643C356C426BD6FA1EC842B0C156974523C87A32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618158   (201360) от 14.03.2023
+
+VA - Enigma-Forest-Transit 7 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter Buffet - After World
+02. Shiva feat.Magdalena - Far Behing the Skies
+03. Cheyenne - Eternal Faith
+04. Magic Ear - A Passage to India(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FB68E96C161301F88F836CE2358C6AEFBB03684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618976   (201355) от 14.03.2023
 
 VA - Enigma-Forest-Transit 11 (1999) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
@@ -542,209 +745,6 @@ VA - The Orient Collective: Mystica (2023) [FLAC|Lossless|WEB-DL|tracks] <World,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75B3D37036B4F383BC22BC0214D61F8C8744C0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828014   (193752) от 23.10.2025
-
-Armik - Romantic Spanish Guitar, Vol. 2 (2015) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds of Passion
-02. Breathless
-03. Guitanova
-04. Isla Mujeres(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E96796425674DC2F3C4A0F85FEC97C91E9914EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828051   (193639) от 23.10.2025
-
-Francis Goya - Douce France, Vol.1-2 (2022) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vol.1:
-01. Ballade Pour Adeline
-02. Belle
-03. Comme Ils Disent(   Читать дальше...   )Жанр: Instumental |Продолжительность: 01:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE0952DE778488A53381527D4573E0FE64CB0183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1828010   (193262) от 23.10.2025
-
-Armik - Romantic Spanish Guitar, Vol. 1 (2014) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing In The Clouds
-02. Guitarra Poeta
-03. Romance De La Luna
-04. Lagrimas(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4524BBBAF1D010F92F762D8AF533DE88F31D22A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587245   (192928) от 30.10.2022
-
-Тэм Гринхилл - Полынный ветер (2011) [FLAC|Lossless|image + .cue] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Перебор серебром...
-02. Догорает свеча в руке...
-03. Мне приснился страшный сон...
-04. Полночь оплачет...(   Читать дальше...   )Жанр: FolkПродолжительность: 00:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94D03F56256AC7BCA8BEE0A06926FE8CD62D18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587095   (192680) от 31.10.2022
-
-Vevaki (Vévaki) - Fórnspeki (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192680.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brynhildarljóð [00:03:37]
-02. Heimdalagaldr [00:03:56]
-03. Hreingálknir [00:02:38]
-04. Jötnablót [00:08:37](   Читать дальше...   )Жанр: Neo FolkПродолжительность: 00:44:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5968EC2AA145B589BF407FE0C37E75F50BB45071
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587439   (192676) от 31.10.2022
-
-Meldis - Цветок омелы (2010) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trinquons Nos Verres
-02. Ar Soudarded
-03. Let No Man Steal your Thyme
-04. Peacock's feather / Swallow's Tail Reels(   Читать дальше...   )Жанр: Folk, Celtic HarpПродолжительность: 00:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97367E6E64C47119D6D4680DF362A5C95992BE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587138   (192608) от 31.10.2022
-
-Sinoia Caves - Beyond The Black Rainbow (2014) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Forever Dilating Eye (4:17)
-02 - Elena's Sound-World (5:04)
-03 - Run Program: Sentionauts (3:00)
-04 - Arboria Tapes - Award Winning Gardens (3:03)(   Читать дальше...   )Жанр: Soundtrack, Score, AmbientПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8993DCB5EAFEBB9285DFBF50C288056FB88EBB6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,203 @@
+###  Публикация: 1008485   (815372) от 18.04.2016
+
+Mark Knopfler & Evelyn Glennie - Altamira (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815372.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altamira (2:59)
+02. Maria (3:34)
+03. Dream Of The Bison (2:53)
+04. By The Grave (2:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6B2EA78E3938E49323F05A4A129F023F5A2219
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117638   (815347) от 24.03.2017
+
+Martian Love - You, Never Sleep (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You, Never Sleep [00:04:05]Жанр: Electronic, AmbientПродолжительность: 00:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D474B80A90C85A7A200DE904C3D56DBACEFA1EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117536   (815336) от 24.03.2017
+
+Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенков темнее (Original Score) + (Original Deluxe Soundtrack) (2017) [MP3|320 кб/с]<Score, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZAYN & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) (04:07)
+02. Halsey - Not Afraid Anymore (03:47)
+03. JRY feat. Rooty - Pray (03:22)
+04. Tove Lo - Lies In The Dark (03:42)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:01:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5D273C273679A882E8B6B8D271451FE88823BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117538   (815195) от 24.03.2017
+
+Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенков темнее (Original Score) + (Original Deluxe Soundtrack) (2017) [FLAC|Lossless|tracks/tracks + .cue]<Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ZAYN & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) (04:07)
+02. Halsey - Not Afraid Anymore (03:47)
+03. JRY feat. Rooty - Pray (03:22)
+04. Tove Lo - Lies In The Dark (03:42)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:01:36 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43505F62FFCA6131AFEA8929485DA3614260B866
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117860   (814918) от 24.03.2017
+
+John Paesano - Mass Effect: Andromeda (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Better Beginning (04:26)
+02. Memories (02:49)
+03. Exaltation (04:59)
+04. A Trail Of Hope (02:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DADB9DBF2A198AED276EF022B8293D3CADD8B25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007836   (814834) от 18.04.2016
+
+Максим Фадеев - Oil plant (2016) [MP3|320 кб/с] <Chillout, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814834.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. #1 11:21
+2. #2 04:09
+3. #3 07:28
+4. #4 03:12(   Читать дальше...   )Жанр: Chillout, ElectronicПродолжительность: 01:02:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE02EB91B8CAB9809CF0DF0876AD913888B08E82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117940   (814761) от 24.03.2017
+
+VA - Horizon Zero Dawn (Original Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Flight - The Spreading Eclipse - Part 4 - Secrets Of The Earth (05:36)
+02. The Flight - The Demon Remade - Part 4 - Secrets Of The Earth (01:26)
+03. Joris de Man - Force Multiplication - Part 4 - Secrets Of The Earth (04:00)
+04. The Flight - Buried Shadow - Part 4 - Secrets Of The Earth (00:57)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 04:00:35 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3529BF234314CEA4A2E74057835E2844736A868F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504034   (814123) от 22.10.2021
 
 Irari (Irina Mikhailova, Ira Stein) - Esquisses (2004) [FLAC|Lossless|tracks + .cue] <Folk, Piano>
@@ -539,204 +739,6 @@ Daniel Waples & Friends (Hang In Balance) - 'Lisn: The Remixes (2014) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3819D3DB1C880EB2076F3EEF59C43878171371F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383549   (810122) от 16.05.2020
-
-Daniel Waples & Friends (Hang In Balance) - 'Lisn (2013) [FLAC|Lossless|Web-DL|tracks] <Experimental, Chillout, Hang Drum>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petit Son (5:59)
-02. Hang Out Back (featuring Martin Cradick) (3:50)
-03. Lago (5:29)
-04. Bello Revive (5:26)(   Читать дальше...   )Производство: Street RitualЖанр: Experimental, Chillout, World Music, Hang DrumПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1711633D528E741473BE0B76C11E50D93F6182
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009106   (810040) от 21.04.2016
-
-Myristica - Waiting for Yesterday (2014) [FLAC|Lossless|tracks] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Existence    03:20
-02. Once Upon a Dream    05:43
-03. When the Wind Blows    03:16
-04. Soul Searcher    03:53(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:51:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB661F4CD47B99250FCDD3B3F62823F4FB3BB3D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 210245   (809667) от 21.04.2016
-
-Медвежий Угол - Доза тепла (2005) [MP3|320 kbps]<Folk-Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_809667.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk-RockПродолжительность: 42:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383807   (808139) от 17.05.2020
-
-The Soft Music Box - Classic Piano Lullabies - U.S. Edition (2020) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Sleeping
-02. Hush Little Baby
-03. All The Pretty Little Horses
-04. Incy Wincy Spider(   Читать дальше...   )Жанр: Piano, Instrumental, Easy ListeningПродолжительность: 00:48:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:861C82C5FEF96ED4AD2FA15B1E7FD7FBF7560C5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009475   (808110) от 22.04.2016
-
-Trailer Radio - Country Girls Ain't Cheap (2016) [MP3|320 кб/с] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Granny's Got the Baby (Cause Mama's Doin' Time) (03:42)
-02. Country Girls Ain't Cheap (04:09)
-03. Dirt Queen (04:30)
-04. Woe Is Me (04:23)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED64DA8CF560CCFE48C11718DACD410B2CDB1F79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1383507   (807999) от 17.05.2020
-
-Dr. Jeffrey Thompson - Ambient Music For Sleep (2004) [FLAC|Lossless|tracks + .cue] <New Age, Ambient, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ambience (29:32)
-02. Ethereal Dreams (30:23)Жанр: New Age, Ambient, HealingПродолжительность: 00:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B332EF11C5B2803A37E48ECA7C1AE52F46EAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 732511   (807566) от 17.05.2020
-
-The Greatest Saxophone Hits Ever - Golden Saxophone (1994) [FLAC|Lossless] <Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Y Volvere 			(04:11)
-02. Senora Bonita		(02:31)
-03. Sombras 			(02:32)
-04. Sin Ti 			(03:56)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BDA68C6341FB0F27A5E4FB08F1FCC7FFCE787B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

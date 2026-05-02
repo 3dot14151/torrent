@@ -1,4 +1,30 @@
 https://t.me/izofen
+###  Публикация: 1862816   (1063877) от 01.04.2026
+
+Военная книга (изд.) | Учебник штурмовика. Городской бой (2024) [PDF]
+
+>>Научная и техническая литература
+>>Военная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга из серии Боевая подготовка, Это учебное пособие, предназначенное для обучения бойцов штурмовых подразделений тактике ведения боя в городских условиях. В книге рассматриваются особенности городского ландшафта, стратегии передвижения и манёвров в ограниченном пространстве, а также методы борьбы с различными типами препятствий и укреплений. Пособие содержит множество (   Читать дальше...   )Жанр: Военная литература. Учебное пособиеИздательство: Военная книгаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96F50B41C3F19A01DDA622427F271672DBDAF487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863904   (1062946) от 08.04.2026
 
 диакон Андрей Кураев | Мифология русских войн [2] (2024) [FB2, PDF, MOBI, EPUB]
@@ -140,7 +166,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1057251.jpg" />
 </div>
 
 
@@ -166,7 +192,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1057093.jpg" />
 </div>
 
 
@@ -192,7 +218,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1057088.jpg" />
 </div>
 
 
@@ -219,7 +245,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1056805.jpg" />
 </div>
 
 
@@ -245,7 +271,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056288.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1056288.jpg" />
 </div>
 
 
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D51A3C527B4C70DFD22732576FEEB2C27C4BC4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437918   (1041710) от 06.01.2021
-
-Ф.Ф. Веселаго | Краткая история русского флота (В 2 вып.) (1893,1895) [PDF]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первое издание труда Феодосия Федоровича Веселаго (1817-1895) русского историка военно-морского флота, генерала флота, тайного советника. Книга дает тщательный подбор фактического материала, кратко в хронологическом порядке излагающего предысторию русского флота с IX до XVIII века и историю русского флота с основания его Петром I и до 1825 г. включительно.Жанр: История, Военная историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00BF6CFD37357866709BDED3C3AA3A1B2CFAF9AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

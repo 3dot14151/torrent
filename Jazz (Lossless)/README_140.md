@@ -1,3 +1,61 @@
+###  Публикация: 918342   (587030) от 15.07.2015
+
+Andrew Hill - Andrew!!! (1964) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Griots [06:05]
+02. Black Monday [08:56]
+03. Duplicity [06:12]
+04. Le Serpent Qui Danse [06:56](   Читать дальше...   )Жанр: Jazz, Post-Bop, Modern CreativeПродолжительность: 00:51:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F9FC470F41667CC5661038299154EF90327C56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918590   (587029) от 15.07.2015
+
+Charles Earland - Leaving This Planet (1973) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Jazz-Funk, Soul Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leaving This Planet [07:32]
+02. Red Clay [07:10]
+03. Warp Factor 8 [06:20]
+04. Brown Eyes [11:46](   Читать дальше...   )Жанр: Jazz, Jazz-Funk, Soul JazzПродолжительность: 01:19:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4482272BFD467FA34CE04174575F075DF02C6B80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918334   (586983) от 15.07.2015
 
 Zoot Sims - Tenorly (1950/1953) /1993, Disques Vogue/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz, Cool>
@@ -690,70 +748,6 @@ Count Basie and his orchestra - Fancy Pants (2000) [FLAC|Lossless]<Jazz, Swing, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBD8454BD43C0E4D773C3CB0E70A16A49B302F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 809895   (584483) от 04.08.2014
-
-Bobby Caldwell - Timeline (1998) [FLAC|Lossless|WEB-DL]<Smooth Jazz, R&B, Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Flame ( 04:12 )
-02. Coming Down From Love ( 04:02 )
-03. Loving You ( 03:38 )
-04. Jamaica ( 05:00 )
-05. Real Thing ( 05:34 )
-06. Even Now ( 05:07 )
-07. Don't Lead Me On ( 05:11 )
-08. Show Me Your Devotion ( 04:57 )
-09. Once Upon A Time ( 03:47 )
-10. I Give In ( 04:07 )(   Читать дальше...   )Жанр: Smooth Jazz, R&B, VocalПродолжительность: 01:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDCBAFC1EC0214F7C82AD88C3A301BD2D772FF76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 256300   (584411) от 04.08.2014
-
-Nina Simone - Jazz Masters 17 (Verve Records) (1993) [APE|Lossless]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот сборник с 16 треками от Verve Records превосходный обзор творчества Nina Simone с середины 60-х и до 1978 года, которые представляют Симон в самом её расцвете, как универсальную джазовую певицу, уверенно владеющую своим голосом. Здесь охвачен поистине весь диапазон джаза: традиционный народный ("Черный Цвет Волос Моей Настоящей любви"), R&B (ее (   Читать дальше...   )01. Black is the Colour of my True Love's Hair  (3:29)
-02. I Put a Spell on You  (2:36)
-03. Love Me or Leave Me  (4:07)
-04. Little Girl Blue  (4:21)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4719125F524EC3758A67D32F6EC88DA0A709DED5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,145 @@
+###  Публикация: 1403710   (688465) от 21.08.2020
+
+VA - Armin Van Buuren  - Live At Tomorrowland  (The Digital Festival) (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Id - Id (Mixed)
+02. Armin Van Buuren - Hollow (Mixed) (Feat. Be No Rain)
+03. Armin Van Buuren - I Need You To Know (Mixed) (Feat. Ifimay)
+04. Armin Van Buuren - Something Real (Mixed) (Feat. Jordan Shaw)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:49:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57223F147ED99FEA301BAAA89CDA07DB94803175
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289062   (688373) от 15.03.2019
+
+Super8 & Tab - Past, Present & Future (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688373.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Super8 & Tab – Helsinki Scorchin' (Mixed) (Super8 & Tab 2019 Remix) (04:13)
+2. Super8 & Tab – Lungs (Mixed) (03:27)
+3. Ferry Corsten – We're Not Going Home (Mixed) (03:26)
+4. Above & Beyond – Flying By Candlelight (Mixed) (Above & Beyond Club Mix) (05:02)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67EC93356EA146235118BB0F637097DFCE01851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134535   (687582) от 16.05.2017
+
+VA - Total Trance Selections Vol.04 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rodrigo Deem - You Said It All (feat. Karra) (Extended Mix)  7:52
+02.  Fabio XB & Marell - Can't Let Go (feat. Christina Novelli) (Extended Mix)  5:47
+03.  Alexandre Bergheau & Mohamed Ragab - At Night (Original Mix)  3:45
+04.  ReOrder - Spirit Of Ecstasy (Original Mix)  3:50(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A88E5092368376E9A3138E99F95E031000F4A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222266   (687487) от 28.04.2018
+
+VA - Workout Vol. 5 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ivanshee - Eclipse  07:03
+02. Coffein - Detective  05:45
+03. Andrew MacTire - Insurrection  08:22
+04. Superidea - Ocean  02:57(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336C87A523DD8AF75F095AE1775560AC75042E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222020   (687122) от 28.04.2018
+
+Saad Ayub & Cristina Soto - Daylight (Amir Hussain Remix) (2018) Single [MP3|320 Kbps] <Electronic, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687122.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Saad Ayub & Cristina Soto - Daylight (Amir Hussain Extended Mix) (07:27)Жанр: Electronic, Vocal Trance, Uplifting TranceПродолжительность: 00:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADC96398DCA04EC27E00410B5B8D057D647B01C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222251   (687110) от 28.04.2018
 
 VA - Female Vocal Trance (2018) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -598,151 +740,6 @@ VA - Manuel Le Saux Pres.Extrema Maxima (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10A92A0C32E9522C17B05B9A87F2C6D9BC655A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224034   (669890) от 07.05.2018
-
-VA - Suanda Music Radio Top 15 (May) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Christina Novelli - Fireflies (Jorn van Deynhoven Remix)
-02. Ruslan Radriges - Revival (Extended Mix)
-03. Tom Exo - Hyperspace (Extended Mix)
-04. LTN - Wind and Cloud (Denis Sender Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3D1FE4F8913AD8B5298C90C925A591BF9C06E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223999   (669879) от 07.05.2018
-
-VA - Dark Trance Vol. 4 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Graft - Manipura (Extended Mix)
-02. Attila Syah Pres. Gamma & Cari - Every Goodbye (Extended Mix)
-03. Tom Exo - Hyperspace (Extended Mix)
-04. Adip Kiyoi - Space Roadster (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:273333592F84B03784F03F488122280E06E224E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031181   (668895) от 03.07.2016
-
-VA - EDM Flash Trance Vol.1 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luke Meyers -  Play House (Vocal Edit) 5:41
-02. Brothers -  My Battle (Trvpers Mix) 4:44
-03. P.N.O -  In the Air 3:40
-04. Mart Sine -  Don't Turn Away (Matt Chowski Remix) 6:44(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 02:44:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B43B85D989DE3F0967C415016A41B39BB7BF944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137509   (665564) от 28.05.2017
-
-VA - Summer Hits (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mivase - I Can't Give Up (Original Mix) 3:12
-02.  Russian Dolls & Nathia Kate - Always (feat. Robin Vane) (Original Mix) 4:24
-03.  WeareD - Assertive (Original Mix) 2:49
-04.  Frainbreeze - Signs Of Time (feat. Natune & Angel Falls) (Vadim Bonkrashkov Remix) 4:26(   Читать дальше...   )Жанр: Trance, Progressive Trance, Vocal TranceПродолжительность: 01:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61CB60E09896311C8768A80A4838CF1D12860F19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537962   (665442) от 18.03.2022
-
-VA - Black Hole Trance Music 03-22 (2022) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Durand & Christian Burns - Almost Home (Extended Mix) [06:30]
-02. Siskin - Never Alone (Extended Mix) [07:45]
-03. Ciaran Mcauley & Clara Yates - Light A Rainbow (Extended Mix) [05:25]
-04. Cosmic Gate & Olivia Sebastianelli - We Got The Fire (Extended Mix) [07:04](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0436AC52B44599AEA45E7D87C61689337F8ABD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

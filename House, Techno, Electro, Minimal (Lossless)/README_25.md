@@ -1,3 +1,32 @@
+###  Публикация: 1279695   (765461) от 30.01.2019
+
+VA - Sounds Of Instruments_01 (Mixed by Hiroshi Watanabe) (2005) Mixed, Compilation [FLAC|Lossless|image + .cue] <Minimal, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seiichiro Tanaka - Evening Glow (4:58)
+02. Sora a.k.a. DJ SODEYAMA & GONNO - I'm Not (4:13)
+03. Soda Inc. - Morning Prayer (4:12)
+04. Takayuki Higo - Fractal (4:36)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:10:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4641357732D54D9F653D3F039D7C8E2D9765B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1214333   (764975) от 21.03.2018
 
 Occult - Axum (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
@@ -712,35 +741,6 @@ Mohlao - Ambrose (2009) Meanwhile [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:556E2B94C5F45B1DC1D0A3ACD26EA165DE253124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281339   (753492) от 07.02.2019
-
-Tension (GER) - Currents (2019) Be Sure [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abandon (04:03)
- 02. Parsec (06:19)
- 03. Currents (06:16)
- 04. Can Do (06:40)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF69D1F8A2D489385CFE189B78EB3B82A3BB1C44
 ```
 
 https://mybot314.ru/tekegram_catalog/

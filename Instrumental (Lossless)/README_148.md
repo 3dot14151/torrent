@@ -1,3 +1,120 @@
+###  Публикация: 1801846   (14707) от 13.06.2025
+
+Van Morrison - Remembering Now (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14707.jpg" />
+</div>
+
+
+###  Подробнее
+
+47-й студийный альбом североирландского певца и автора песен Вана Моррисона, вышедший на лэйблах Exile Productions и Virgin Records.
+Это возвращение Вана Моррисона к оригинальному написанию песен после кавер-альбомов и переработок его старых песен01. Down To Joy
+02. If It Wasn’t For Ray
+03. Haven’t Lost My Sense Of Wonder
+04. Love, Lover and Beloved(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:849FB23991D8B431D5B7E646A4C861C7BB1D0F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802685   (14206) от 18.06.2025
+
+Petra and the Paper Hearts - Queens Of The Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kissin' In The Dark (3:05)
+02.  Why Don't You Do Right? (4:07)
+03.  Sweet Baby Of Mine (2:39)
+04.  Black Eye Blues (3:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFCC90A664D05954DF407E31421ADB6D97309802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894358   (12294) от 07.07.2025
+
+Blindside Blues Band/Mike Onesko Project - 23 Albums (1993 - 2025) [FLAC|Lossless|image + .cue|tracks + .cue]<Heavy Blues-Rock>
+
+>>След.
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mike Onesko, известнейший блюз-рок музыкант, участник и создатель около двух десятков групп и проектов, начиная с 1972 года и по сегодняшний день. Самый его известный коллектив Blindside Blues Band. Стиль его музыки - мощное звучание тяжелых блюзовых гитар. Blindside Blues Band - детище Mike Onesko, где он является ведущим гитаристом и вокалистом группы. Mike вырос (   Читать дальше...   )Список альбомов:
+1993 - Blindside Blues Band - Blindside Blues Band
+1994 - Blindside Blues Band - Blindsided
+1995 - Blindside Blues Band - Messenger Of The BluesЖанр: Heavy Blues-RockПродолжительность: 23:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1420E03D433404F70D5D8F2515E257811812F516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805674   (12248) от 07.07.2025
+
+Pandora's Box - Lunacy (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Forked Path (feat. LUNA BLUE) (3:40)
+02.  Regret The Day (3:13)
+03.  Oh Lost Love (3:12)
+04.  Bulletproof (3:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9D31BCA9FFDF62395E54A62E262DB62D996EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805659   (12228) от 07.07.2025
 
 Depravity Brothers - The Enemy Within (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +746,6 @@ Al Jones - Still in Charge (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:041D2AAADC95EB9474569F742693FA058C1FE2ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813094   (7202) от 17.08.2025
-
-Jelly Ellington - Glow (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Glow (4:07)
-02.  Sail On (3:45)
-03.  Somebody To Love (4:38)
-04.  Nick Perri - The Night (feat. Nick Perri) (4:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5E8A17A90CDB982ABB37736FB2D9489514D69E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813085   (7199) от 17.08.2025
-
-DB Cohen - On Target (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All In Vain (2:32)
-02.  For The Love Of Ella (2:13)
-03.  Hiding To Nothing (3:33)
-04.  Walk On (3:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC1B79CA1E8459065ECEA8CD36BF5C5F624367F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813091   (7198) от 17.08.2025
-
-James Day - Frequencies (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  One More River (3:31)
-02.  Work Song (4:01)
-03.  Area Grey (3:40)
-04.  Ghost Train (4:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9013FD3FB49310262AC0BC5043C9C58A89C0F498
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813013   (7195) от 17.08.2025
-
-Angelique Francis - Not Defeated (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sugarcane Jukejoint (5:10)
-02.  Christone "Kingfish" Ingram - Escape (4:31)
-03.  Watch Me Grow (3:36)
-04.  Not Defeated (4:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2CF46F9DF2F21DB5553C4EE554BCD25A70311C
 ```
 
 https://mybot314.ru/tekegram_catalog/

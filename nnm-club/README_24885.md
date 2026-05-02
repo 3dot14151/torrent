@@ -1,48 +1,24 @@
-###  Публикация: 1790855   (67852) от 13.04.2025
+###  Публикация: 1785183   (69396) от 14.03.2025
 
-Тайная жизнь орангутанов / Secret Lives of Orangutans (2024) WEBRip [H.264/1080p] [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Аттенборо рассказывает о жизни семьи орангутанов из нескольких поколений: об их приключениях, достижениях и трудностях.Производство: Великобритания / Silverback FilmsЖанр: документальныйРежиссер: Хув КордиАктеры: Дэвид АттенбороПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:19:16Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A8A5AD3A0BE8A1B6058FCA201051382682A03E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791284   (67851) от 13.04.2025
-
-Растровый клипарт - Creative Store - Creative Fabrica - Fall Orange Watercolor Flowers Patterns [JPG]
+Шрифты - MyFonts - Helonik [OTF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67851.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Осенние оранжевые акварельные цветочные узоры.Формат: JPGРазрешение файлов: 3600 x 3600
+Helonik состоит из 22 шрифтов, состоящих из трех различных оптических размеров: Display.
+
+Кириллица не поддерживается.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35D7C55870006136E5D99A4FD1FBA462CE36CAF2
+magnet:?xt=urn:btih:41D2C0734858E34EF42066070F1F1447FE9ADE59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,80 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791302   (67850) от 13.04.2025
+###  Публикация: 1785097   (69395) от 14.03.2025
 
-История любви в Копенгагене / Sult / A Copenhagen Love Story (2025) WEBRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Писательница Мия влюбляется в отца-одиночку Эмиля, но на пути к счастью им предстоят испытания: пара лечится от бесплодия, чтобы зачать общего ребёнка.Производство: Дания / Miso FilmЖанр: драма, мелодрамаРежиссер: Дитте Хансен, Луиза МирицАктеры: Розалинд Мюнстер, Хоаким Фьелструп, Магнус Милланг, Андерс В. Бертельсен, Бахар Парс, Сара Юэль Вернер, Милле Лефельдт, Юссеф Уэйн Виттфельтт, Alex Bankier, Джейд Уорнер и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:02Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E46927A71830DE2DFFF19B384D288F44B328CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791399   (67849) от 13.04.2025
-
-Формула 1. Сезон 2025. Этап 4. Гран-при Бахрейна. Квалификация (12.04.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67849.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 апреля 2025, суббота. 19:00 МСК. Этап 4, Сахир. Гран-при Бахрейна. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98CEAF721B1DE2B1E324D8E5559A401650E6562F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791362   (67848) от 13.04.2025
-
-VA - Groove Paradise (The Deep-House Collection), Vol. 3 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+VA - Ibiza Nights 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vertefeuille - Let Time Fly [03:32]
-02. Sharkhuman - Be Ok (Extended Mix) [05:08]
-03. DS Hunt & Kallea P. - Tag Me In (Appt.829 Remix) [05:16]
-04. Jerry Ropero & Fab Morvan - Celebrate (Extended Mix) [04:17](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:15:51
+01. Anka - Lonelyy (Original Mix) (02:42)
+02. Jay Derson - Scream Out Loud (Radio Edit) (04:05)
+03. Göktuğ Erkün - Slowly (Original Mix) (02:55)
+04. Zonatto, Ricca & Diego Morillo - One More (Radio Edit) (02:54)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:10:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:809C28C84D586D40FE3D733C13CE80119476314F
+magnet:?xt=urn:btih:60E88A22ECD89718F9730C4FE8F3A3A512A5A555
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,25 +55,161 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791287   (67847) от 13.04.2025
+###  Публикация: 1785047   (69394) от 14.03.2025
 
-Текстуры - STCrafts - Creative Fabrica - Pink Daisy Flowers Digital Paper [PNG]
+VA - Armin van Buuren - A State Of Trance 1216 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Karen Overton - Your Loving Arms (BLR Remix)
+02.	Cosmic Gate & James French - I'm On Fire
+03.	John Grand presents ODYSSIUS – Moss
+04.	SOLOUR - Take Me(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768287CD9084280B19F4A0EC696C5EBC5521A0F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785142   (69393) от 14.03.2025
+
+НХЛ 2024/2025. Сент-Луис Блюз - Питтсбург Пингвинз (13.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69393.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 марта 2025, пятница. 02:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 070 зрителей (81% при вместимости 18 673)
+Главный судья: Митч Даннинг (Текумсе, Канада); Главный судья: Ти Джей Люксмор (Тимминс, Канада); Линейный: Брэд Ковачик (Вудсток, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:874C572E7AFCC8FEA0A8392D4916AF96B724D078
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785133   (69392) от 14.03.2025
+
+НХЛ 2024-2025. Вашингтон Кэпиталз - Лос-Анджелес Кингз (13.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69392.jpg" />
+</div>
+
+
+###  Подробнее
+
+14 марта 2025, пятница. 05:30 МСК. Стадион: Крипто.ком-Арена (Лос-Анджелес, США), 18 145 зрителей (96% при вместимости 18 867)
+Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Дерек Нансен (Оттава, Канада); Линейный: Райан Джексон (Пуэнт-Клер, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02BDC3D016AF954608AB462A1FA25F2532BE5C6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785381   (69391) от 15.03.2025
+
+Plugin Alliance & Kiive Audio - XTComp 1.0.2 VST 3, AAX (x64) [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kiive Audio XTComp — FET-компрессор с британским режимом и красочными тонами. XTComp от Kiive Audio — это плагин FET-компрессора, воссоздающий звучание самых популярных аппаратных компрессоров современной эпохи. Известный своей скоростью, универсальностью и отношением, он просто необходим для сокрушительных барабанных шин, сжатия басов и бочек и управления акустическими (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31EE7C4DF24F4AAAC1DE947E39312F7615C31A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785321   (69390) от 15.03.2025
+
+W.A. Production - Detroubler 1.0.0 VST, VST 3, AAX RePack by BUBBiX [En]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Будь то создание синтезаторных партий или идеально сбалансированного вокала, всегда непросто добиться того, чтобы звук был насыщенным, одновременно подавляя раздражающие частоты. Некоторые области часто нуждаются в смягчении, особенно если звук кажется слишком резким, угловатым или гулким. Именно здесь на помощь приходит Detroubler, который сглаживает звуки и устраняет (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E51883BCD1D1D9B3640CF3C1ACD290B8D8D4795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785223   (69389) от 15.03.2025
+
+Шрифты - Pepper Type - MyFonts - Golca [TTF]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67847.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с цветами - розовыми маргаритками.Формат: PNGРазрешение файлов: 3600 x 3600
+Шрифт c кириллицей 16 стилей.
+Разработчик: Pepper TypeФормат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE230D58A0AF7F6733736E7286A40BA91087CE49
+magnet:?xt=urn:btih:ED2B54C7385A8F38902B69AFAEC1C8E2A50DFBC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,54 +217,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790478   (67846) от 13.04.2025
+###  Публикация: 1785232   (69388) от 15.03.2025
 
-Александр Самсон - 1941-1945 (2025) [MP3|320 Kbps] <Военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 1941-1945 [00:03:02]
-02 - Родина [00:04:12]
-03 - Последние Герои [00:04:22]
-04 - Фронтовое кино [00:02:44](   Читать дальше...   )Жанр: Военная песняПродолжительность: 00:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A38A5AD62744780527D4E8419CB333226A7746C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791291   (67845) от 13.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Magenta Pink Glitter Flowers Pattern [PNG]
+Шрифты - Pepper Type - MyFonts - Shtozer [TTF, EOT, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пурпурно-розовый узор из блестящих цветов.Формат: PNGРазрешение файлов: 3600 x 3600
+Шрифт c кириллицей 80 стилей.
+Разработчик: Pepper TypeФормат: TTF, EOT, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:097430EA2ED49730A0CA3A5561EB5AD5866DAA2F
+magnet:?xt=urn:btih:6AEC6CBE741F579892D14392DDFE28E08C7FE806
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +244,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791301   (67844) от 13.04.2025
+###  Публикация: 1785334   (69387) от 15.03.2025
 
-История любви в Копенгагене / Sult / A Copenhagen Love Story (2025) WEBRip [H.264/1080p] [DVO] [AD]
+Enchanted Stories: Mystic Woods (2025) [Multi] (1.0) Unofficial [Collector's Edition]
 
->>Остальное
->>Фильмы с Рекламой
+>>Win Игры
+>>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67844.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Писательница Мия влюбляется в отца-одиночку Эмиля, но на пути к счастью им предстоят испытания: пара лечится от бесплодия, чтобы зачать общего ребёнка.Производство: Дания / Miso FilmЖанр: драма, мелодрамаРежиссер: Дитте Хансен, Луиза МирицАктеры: Розалинд Мюнстер, Хоаким Фьелструп, Магнус Милланг, Андерс В. Бертельсен, Бахар Парс, Сара Юэль Вернер, Милле Лефельдт, Юссеф Уэйн Виттфельтт, Alex Bankier, Джейд Уорнер и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:02Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+Встречайте новую мистическую игру. Когда Роуз отправляется в Таинственный лес, чтобы помочь своей бабушке, она узнает шокирующую правду: магия леса слабеет, а беспощадное соглашение о вырубке угрожает уничтожить его сущность. У Роуз не остается другого выбора, кроме как принять наследие бабушки и стать хранительницей. Но кто бы мог подумать, что маленькая красная (   Читать дальше...   )Тип издания: UnofficialРазработчик: Domini GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, ФранцузскийЯзык интерфейса: Английский, Немецкий, Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D26968E991C02B106AAB61C393464730A5F22EE
+magnet:?xt=urn:btih:CB381FE43B27238558616ED18105E38E7729B412
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +270,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790846   (67843) от 13.04.2025
+###  Публикация: 1785293   (69386) от 15.03.2025
 
-Любовь навеки / Karlek farever / Love Forever (2025) WEBRip [H.264/1080p] [DVO] [AD]
+SoundHound ∞ - Music Discovery v10.4.3 Mod by Balatan [Ru/Multi]
 
->>Остальное
->>Фильмы с Рекламой
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пара из Стокгольма собирается сыграть свадьбу на острове Готланд, но их самый важный день оборачивается катастрофой из-за семейных традиций.Производство: Швеция / JarowskijЖанр: мeлодрама, комедияРежиссер: Стаффан ЛиндбергАктеры: Matilda Källström, Чарли Густафссон, Челль Бергквист, Аня Лундквист, Самуэль Астор, Вильхельм Бломгрен, Elias Buskas, Stine Landin Dettmann, Никлас Энгдаль, Катарина Эверлоф и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:01Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+SoundHound — ваше лучшее музыкальное приложение (аналог Shazam). Нажимайте на оранжевую кнопку, чтобы мгновенно определять песни и смотреть тексты, слушать и покупать музыку и делиться ей, или просто узнавать больше о любимых и новых исполнителях.Тип издания: Mod ExtraРелиз состоялся: 12.03.2025Разработчик: SoundHound Inc.Поддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2A8358F93B2018C16D59EDD329EBCB3866B6482
+magnet:?xt=urn:btih:99392BD0CCFF945BBA45D280B2435A78ED7FBB46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,28 +296,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791133   (67842) от 13.04.2025
+###  Публикация: 1785086   (69385) от 15.03.2025
 
-Izzy Reign - Izzy Reign (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Industrial Rock, Female Vocal>
+Улица наркотиков / La via della droga / The Heroin Busters (1977) BDRip [H.264/720p] [VO]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67842.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Sunken Place [00:03:33]
-02. Phobos [00:03:00]
-03. Broken by Design [00:03:26]
-04. Pandora's Box [00:04:08](   Читать дальше...   )Жанр: Alt. Metal, Industrial Rock, Female VocalПродолжительность: 00:37:34
+Хладнокровный полицейский работает под маской нелегального перевозчика героина, его цель - международный наркосиндикат, орудующий на всех континентах мира. Когда к операции подключается агент Интерпола, всё вдруг летит к чёрту: римская фаза операции превращается в кровавую бойню.Производство: Италия / Cinemaster S.r.l.Жанр: боевик, триллер, криминалРежиссер: Энцо Дж. КастеллариАктеры: Фабио Тести, Дэвид Хеммингс, Шерри Бьюкенен, Вольфанго Солдати, Массимо Ванни, Анджело Рагуса, Романо Пуппо, Серджо Руджери, Джошуа Синклер, Леонардо СкавиноПеревод: Одноголосый любительский (Хоррор Мэйкер, Сергей Квардаков aka CCK+)Язык озвучки: русский, итальянский, английскийСубтитры: английские (full, SDH)Продолжительность: 01:33:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F19A56598C10816ACCD313ABF2B8040FE2C58EA3
+magnet:?xt=urn:btih:A40A0AE768F20AD0C8DA4B656F027BCF49CF9C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,110 +322,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791270   (67841) от 13.04.2025
+###  Публикация: 1785418   (69384) от 15.03.2025
 
-Scott Bradlee's Postmodern Jukebox - Lounge Language Models (2025) [FLAC|Lossless|WEB-DL|tracks] <Swing, Jazz, Blue-Eyed Soul, Blues, Dance-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Good Luck, Babe! [3:21]
-02 - Rag Doll [2:59]
-03 - A Bar Song (Tipsy) [3:53]
-04 - It Must Have Been Love [4:28](   Читать дальше...   )Жанр: Swing, Jazz, Blue-Eyed Soul, Blues, Dance-PopПродолжительность: 00:58:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A98EF431334C3854C8BB17DC4393EA4EAB57DFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791359   (67840) от 13.04.2025
-
-Марк Лоуренс | Прилив, что ещё темнее (2025) [MP3, Faustloc]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трое школьников увлечены строительством домика на дереве. Но беззаботные каникулы превращаются в мрачный герметичный триллер.
-Повесть в духе «Очень странные дела».Жанр: Фантастика, ужасыПеревод: Руслан ГимазовИздательство: Аудиокнига своими рукамиПродолжительность: 04:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5862C509224E4EF5262B3661B382EBA23CF86E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790848   (67839) от 13.04.2025
-
-Любовь навеки / Karlek farever / Love Forever (2025) WEBRip [DVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пара из Стокгольма собирается сыграть свадьбу на острове Готланд, но их самый важный день оборачивается катастрофой из-за семейных традиций.Производство: Швеция / JarowskijЖанр: мeлодрама, комедияРежиссер: Стаффан ЛиндбергАктеры: Matilda Källström, Чарли Густафссон, Челль Бергквист, Аня Лундквист, Самуэль Астор, Вильхельм Бломгрен, Elias Buskas, Stine Landin Dettmann, Никлас Энгдаль, Катарина Эверлоф и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:01Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11EDAC5B718937F7948E7C9DCC97BBDE2799D143
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791394   (67838) от 13.04.2025
-
-VA - Chillout & Lounge Music Essentials (2025) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout, Lounge>
+VA - Buddha-Bar - XXVII (2025) [MP3|320 Kbps] <Downtempo, Lounge, Chill Out, Trip Hop>
 
 >>Electronic
 >>Downtempo, Trip-Hop, Lounge
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67838.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hints of soul - Smooth Transition (04:26)
-02. The Foxtrot Effect - Halong Bay (04:36)
-03. Exquisite Frame - Chasing Shadows (04:30)
-04. Premasara Council - Subliminal Effects (04:16)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:51
+01. Buddha Bar & Rich Vom Dorf – Heartbroke
+02. Jakhira & Bjorn Salvador – Asbyrgi
+03. DeDeXgrande & Aziz Ozouss – Awiyyid
+04. Xande (IT) – Imagination(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill Out, Trip HopПродолжительность: 2 CD, 02:49:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C92354B6A8E9F26746AAEF172B42B9E1CCA204B6
+magnet:?xt=urn:btih:1DED48BE0CD60707D5A11E5B54AB026DF39325B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,280 +351,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791282   (67837) от 13.04.2025
+###  Публикация: 1785359   (69383) от 15.03.2025
 
-Текстуры - STCrafts - Creative Fabrica - Christmas Damask Texture Digital Paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67837.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с рождественской дамасской текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2067197A378427A5796B2A9FAF273AB654843D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791382   (67836) от 13.04.2025
-
-Maxwellium - Blood &Smoke (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King of the Smoke (3:18)
-02. Iron & Ashes (3:37)
-03. Devils Debt (3:29)
-04. Ravens & Rats (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD5EB49644E50813E2A18353D90CF612030683E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791281   (67835) от 13.04.2025
-
-Текстуры - STCrafts - Creative Fabrica - Rose and Gold Glitter Texture Digital Paper [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цифровая бумага с блестящей розово-золотой текстурой.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D025433A81A58EF1CF7F4EC22316EDC2FB46F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791300   (67834) от 13.04.2025
-
-VA - Love Legends (2002) [OGG Vorbis|480 Kbps] <Soft Rock, Soul, Ballad, Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harold Melvin & The Blue Notes - If You Don't Know Me By Now
-02. Bonnie Tyler - Total Eclipse Of The Heart
-03. Will To Power - I'm Not In Love
-04. Jennifer Rush - The Power Of Love(   Читать дальше...   )Жанр: Soft Rock, Soul, Ballad, Rock, PopПродолжительность: 00:56:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F349F72BDD074E5E62BB4125A391E221A5B17AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791121   (67833) от 13.04.2025
-
-Evgeny Rang Quartet - Midnight Cool (2024) Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Could Happen To You [5:56]
-02. Giant Steps [7:42]
-03. Round Midnight [5:58]
-04. Ladies In Mercedes [4:28](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39713A01226AECBB480E9AB162BA01130213042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791278   (67832) от 13.04.2025
-
-Mark Ambor - Rockwood (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Rockwood [1:01]
-02 - Good To Be [2:28]
-03 - Academy Street [2:51]
-04 - Belong Together [2:29](   Читать дальше...   )Жанр: PopПродолжительность: 00:30:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497E802897E487A5C3603D85544A8FAA3D92FBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791264   (67831) от 13.04.2025
-
-Rabengott - 2 Albums (2023,2025) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepwalker [00:04:28]
-02. Love Kills [00:03:50]
-03. White Widow [00:04:02]
-04. Black Rose [00:04:40](   Читать дальше...   )Жанр: Gothic RockПродолжительность: 2 CD, 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B4E663CDB25E0A691AE3C1782D4D332169B3986
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791363   (67830) от 13.04.2025
-
-Fuzzripper - Poltergeist (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Poltergeist (05:10)
- 02. These City Nights (03:35)
- 03. Black and Red (06:00)
- 04. Ghost Rider (03:56)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8C68CB2830C154D5149EFC25A82EFC3EA88E93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791342   (67829) от 13.04.2025
-
-Charlie Mingus - Four Classic Albums: Second Set (1956, 1957) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haitian Fight Song [12:03]
-02. Blue Cee [7:55]
-03. Reincarnation Of A Lovebird [8:34]
-04. The Clown [12:17](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 02:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C75942D7A9D25DB24FF7626690F1E34657331D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791381   (67828) от 13.04.2025
-
-MotoGP. Этап 04 из 22. Гран-при Катара. Квалификация (12.04.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+Формула 1. Сезон 2025. Этап 1. Гран-при Австралии. Квалификация (15.03.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
 
 >>Спорт и активный отдых
->>Авто, Мото
+>>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67828.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 апреля 2025, суббота. 15:40 МСК. Этап 4, Доха. Гран-при Катара. КвалификацияТелекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:52:23
+15 марта 2025, суббота. 08:00 МСК. Этап 1, Мельбурн. Арена: Автодром Альберт-Парк. Гран-при Австралии. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:20:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:521AC361805F3808A6F7A3087AEE4DB289024341
+magnet:?xt=urn:btih:2D9089B8969AB75040E0B7B0909DB3109A02CCC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,28 +377,324 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791297   (67827) от 13.04.2025
+###  Публикация: 1785309   (69382) от 15.03.2025
 
-Allan Clarke - Allan Clarke (1974) [FLAC|Lossless|tracks] <Folk Rock, Pop Rock, Soft Rock>
+TuneIn Radio v37.7 Paid [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67827.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Don't Let Me Down Again
-2. Can't Get On
-3. I'll Be Home
-4. I Wanna Sail Into Your Life(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, Soft RockПродолжительность: 00:34:17
+СПОРТ В ПРЯМОМ ЭФИРЕ. МУЗЫКА. НОВОСТИ. ПОДКАСТЫ.
+TuneIn объединяет спортивные события, музыку, новости, подкасты и радио со всего мира в одном приложении.
+Благодаря самому большому в мире каталогу оригинального аудиоконтента по запросу или в прямом эфире вы всегда сможете услышать то, что для вас важнее всего, открыть для себя новые моменты, которые произведут на (   Читать дальше...   )Тип издания: PaidРелиз состоялся: 14.03.2025Разработчик: TuneIn IncПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:12C8BE230145E73798521249637028C49983CC15
+magnet:?xt=urn:btih:EDBA4AE5DB1C34E9FB6CFA5946A1A43F3573D292
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785342   (69381) от 15.03.2025
+
+Разлучённые (1980) TVRip [H.265/1080p] [hand made Upscale AI]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69381.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам сказки Юрия Олеши "Три толстяка"
+По приказу зловещих Толстяков гвардейцы похищают маленького Тутти и его сестру Суок. Мальчика делают наследником трона, а его сестру решают сбросить с обрыва. В последний момент Суок спасает труппа бродячих артистов. Выросшая у циркачей Суок волею судьбы вновь оказывается во дворце Толстяков и встречает своего (   Читать дальше...   )Производство: СССР, СоюзмультфильмЖанр: кукольный, короткометражный, сказкаРежиссер: Николай СеребряковАктеры: Алиса Фрейндлих, Михаил Боярский, Сергей АнашкинСубтитры: отсутствуютПродолжительность: 00:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF9B33F8C2B66239162E1014DAB470B403E119F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785221   (69380) от 15.03.2025
+
+Шрифты - Pepper Type - MyFonts - Rolleston [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей 42 стиля.
+Разработчик: Pepper TypeФормат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7006D46B5EF7ED6A497576DEF9A8881FDD4D5457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785353   (69379) от 15.03.2025
+
+V.A. - Buddha-Bar XXVII (2025) 2CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out, Trip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69379.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. EASTERN WIZARD – Le Baiser Du Sorcier
+02. Orange Blossom – Alsira
+03. Mashti & Adam Dreisler – Maine Pyaar Kiya(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill Out, Trip Hop |Продолжительность: 02:49:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5117293465B2E5116004BE9B410955D9B83F58A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785354   (69378) от 15.03.2025
+
+П. Хоначка, Дж. Сомеро | Биохимическая адаптация (1988) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69378.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге авторов из США описаны биохимические механизмы адаптации к различным условиям существования. Особое внимание уделено адаптации к физической нагрузке, высокой температуре, холоду, недостаточности кислорода. Для биохимиков и физиологов, а также специалистов медиков, занимающихся спортивной медициной и изучением стрессовых воздействий на организм.Жанр: БиохимияИздательство: МирФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:575CDD9319993B68CDE298CCC88E3D304FF531D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785323   (69377) от 15.03.2025
+
+Главная дорога (15.03.2025) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>За рулем
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Патрульный под колесами нарушителя в Тюмени, драмеди с истерикой из-за эвакуации в Амурской области и весенние ледопады на востоке страны.
+ Исправление биографии автомобиля: как удаляют информацию из отчета?
+ Во всех современных машинах есть режимы «Спорт», «Эко» и «Комфорт»: автопроизводители заверяют, что режим «Спорт» превращает авто в гоночный болид, режим «Эко» (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D0AE93413EFB776A1F7DF859F05A1103BCCB79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785131   (69376) от 15.03.2025
+
+Ночь с психопатом / Borderline (2025) WEB-DLRip [H.264/1080p] [MVO] [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жестокий социопат Пол сбегает из психиатрической больницы. Его цель - всемирно известная поп-звезда София. Навязчивый фанат берет девушку в заложники в ее собственном доме, ошибочно полагая, что они поженятся.Производство: США / Lucky, Chap, Productivity Media, Red A EntertainmentЖанр: ужасы, триллер, комедияРежиссер: Джимми УорденАктеры: Самара Уивинг, Рэй Николсон, Эрик Дэйн, Джимми Фэйлс, Алба Баптишта, Кэтрин Лок Хэггквист, Патрик Кокс, Теренс Келли, Мэттью Дел Бел Беллуз, Билли МагнуссенПеревод: Многоголосый любительский (AlphaProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:35:55Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785368   (69375) от 15.03.2025
+
+PowerDirector – Video Editor v15.0.0 Mod by Balatan [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69375.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 15.03.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5DAD7BB6FB4EB7E0BAC4184EC3D5422CA3D5B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785394   (69374) от 15.03.2025
+
+Аскания-Нова (1937) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кино-очерк в 3 частях. В южных степях Украины, в бывшем старом помещичьем хозяйстве Аскании-Нова, создана в Советском Союзе база для научно-исследовательской работы по выведению новых высокопродуктивных пород домашних животных. Выведены новые породы свиней, овец, коров, лошадей и других животных и птиц. Выведенные породы скота путем скрещивания высокопродуктивных (   Читать дальше...   )Производство: СССР / БелгоскиноЖанр: документальный, фауна, историяРежиссер: А. П. Федоров, Лев ПушЯзык озвучки: русскийСубтитры: русские (интертитры) в нескольких эпизодахПродолжительность: 00:28:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5562DA8A101F6512A72B3763E967DE63BC10CE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783100   (69373) от 15.03.2025
+
+iSenin (Целыбеев Антон) - 6 Albums (2024-2025) [MP3|320 Kbps] <Chanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2024 - Гой ты, Русь моя родная
+2024 - Грубым даётся радость
+2024 - Пой же, пой на проклятой гитаре(   Читать дальше...   )Жанр: Chanson, Pop, World, RussiaПродолжительность: 6 CD, 02:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7417C163E1A4A7FE8B65426C07B33BAF455FF5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785247   (69372) от 15.03.2025
+
+Аркадий Курамшин | Лаборатория - история науки в пробирках и гаджетах (2024) [MP3, Владимир Лесных]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69372.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полусотня рассказов про замечательные устройства и их создателей, от самых первых письменных упоминаний о химических приборах, химических методиках и химических концепций до Нобелевской премии по химии 2017 года!
+Как прославиться химику? Очень просто! В его честь могут быть названы открытая им реакция, новое вещество или даже реагент! Но если этого недостаточно, (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АСТПродолжительность: 10:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF902C8E06DC336CFF5A3E8EF5A9BBF293900121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785261   (69371) от 15.03.2025
+
+Lighting calculations / Расчеты освещения v6.1.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69371.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фундаментальный для тех, кто хочет правильно рассчитать освещение помещения. Используя это приложение с его схемами и расчетами, у осветительной техники больше нет секретов!Тип издания: ProРелиз состоялся: 14.03.2025Разработчик: Ettore GallinaПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88415A277853B23E7A9192F7EC8EF0ED5D489A3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

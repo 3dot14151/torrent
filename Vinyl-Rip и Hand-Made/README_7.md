@@ -1,3 +1,157 @@
+###  Публикация: 608562   (992496) от 26.01.2013
+
+Nirvana - 5 альбомов (Японские прессы) (1996, 2007) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992496.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. About A Girl 3:40
+A2. Come As You Are 4:14
+A3. Jesus Doesn't Want Me For A Sunbeam 4:38
+A4. The Man Who Sold The World 4:21
+A5. Pennyroyal Tea 3:41
+A6. Dumb 2:53
+A7. Polly 3:16
+B1. On A Plain 3:45
+B2. Something In The Way 4:02
+B3. Plateau 3:38(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60606D67144207DB7E92DDB1A76DB43F321DC14A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609730   (991978) от 27.01.2013
+
+Ozzy Osbourne - Down To Earth (2001)  [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991978.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Gets Me Through [05:05]
+A2. Facing Hell [04:26]
+A3. Dreamer [04:45]
+A4. No Easy Way Out [05:06]
+A5. That I Never Had [04:23]
+A6. You Know... (Part 1) [01:07]
+B1. Junkie [04:19]
+B2. Running Out Of Time [05:06]
+B3. Black Illusion [04:21]
+B4. Alive [04:54](   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F38DFD1F80C422A7348C4BA05E17948BE0E20998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 692153   (987892) от 22.01.2020
+
+Ganymed - Takes You Higher (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Space Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987892.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Disco, Space RockПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD221706D5CE2DBD3A7C14822756D2C650B7812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 708517   (987882) от 22.01.2020
+
+James Gang - Miami (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987882.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Cruisin' Down The Highway [3:20]
+A2. Do It [3:39]
+A3. Wildfire [3:31]
+A4. Sleepwalker [3:59](   Читать дальше...   )Жанр: Classic RockФормат: Vinyl, LP, AlbumПродолжительность: 00:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9376BEAE5A29C18B47CE25A6EFCFE5EABF9CD87B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 698501   (987828) от 22.01.2020
+
+Chris Norman –Some Hearts Are Diamonds (1986) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987828.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Some Hearts Are Diamonds [3:45]
+A2. Hunters Of The Night [4:07]
+A3. Chain Reaction [3:43]
+A4. It's A Tragedy [3:46](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9111109BDBD0C64D61B0893E97538FC6A70C4DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 718660   (987822) от 22.01.2020
 
 ZZ Top - Eliminator (1983) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues Rock, Boogie Rock>
@@ -630,161 +784,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC60A5BA2BB088F7C4F3A85FAD05C0E0ADF6D6F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616296   (976088) от 09.02.2013
-
-U2 - Achtung Baby (1991) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976088.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Zoo Station 4:30
-A2. Even Better Than the Real Thing 4:04
-A3. One 3:54
-A4. Until The End Of The World 5:31
-A5. Who's Gonna Ride Your Wild Horses 4:31
-A6. So Cruel 4:21
-B1. The Fly 4:38
-B2. Mysterious Ways 3:42
-B3. Tryin' to Throw Your Arms Around the World 4:37
-B4. Ultraviolet (Light My Way) 4:40(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A890FFA649118C5568151D5A8EE3EDC5439569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 743561   (974369) от 09.01.2014
-
-Patricia Kaas - Mademoiselle Chante... (1988) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mon Mec A Moi   (4:20)
-02.  Venus Des Abribus   (3:55)
-03.  D'Allemagne   (4:25)
-04.  Des Mensonges En Musique   (4:18)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4569D68A1729E88EBF9C677A6815528BCCFFE8D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974946   (973279) от 14.01.2016
-
-Максим Леонидов - Проплывая Над Городом (1997) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Rock & Roll, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973279.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Видение
-A2	(В Её Глазах) Хали-Гали
-A3	Девочка С Карибских Берегов
-A4	Дождь(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05DBF7039DE6573EEC563F9086F6E36F72D8AEE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617097   (973019) от 11.02.2013
-
-Queen - 13 Студийных альбомов + Mr. Bad Guy, Barcelona (1973-1992) [FLAC 2.0 24/192|image + .cue|tracks (Vinyl-Rip)]<Classic Rock>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973019.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Barcelona 5:40
-A2. La Japonaise 4:50
-A3. The Fallen Priest 5:47
-A4. Ensueno 4:21
-B1. The Golden Boy 6:06
-B2. Guide Me Home 2:40
-B3. How Can I Go On 4:02
-B4. Overture Piccante 6:43Жанр: Classic RockПродолжительность: 00:40:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336438EA30105DCE5C9EB29D9EE3EDC5049C727D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975609   (971775) от 15.01.2016
-
-Iron Maiden - The Number Of The Beast (1982) Reissue, 1987, Fame [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971775.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Invaders (3:23)
-A2. Children Of The Damned (4:35)
-A3. The Prisoner (6:02)
-A4. 22.Acacia Avenue (6:36)(   Читать дальше...   )Производство: EMI / Fame - FA 3178Жанр: Heavy MetalПродолжительность: 00:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:672DDC282EB12BDF71CEBA73C1D3783DF4BC4E36
 ```
 
 https://mybot314.ru/tekegram_catalog/

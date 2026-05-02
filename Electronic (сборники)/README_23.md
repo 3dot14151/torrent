@@ -1,3 +1,61 @@
+###  Публикация: 1090156   (947436) от 06.01.2017
+
+VA - Traxsource Top 200 Tracks of (2016) [MP3|320 Kbps] <House, Deep House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947436.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Soul Speech - Soul Speech (Original Mix)
+002. Sante Sansone - Rising (Original Mix)
+003. Alaia & Gallo - Who Is He feat. Kevin Haden (Original Mix)
+004. Detroit Swindle - Howsmusic (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 22:10:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A8761A3041EDC661AE6E414B37DB6D138AA8BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090053   (947235) от 06.01.2017
+
+VA - Dream Dance Vol.82 (2017) [MP3|320 Kbps] <Trance, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dream Dance Alliance & Kai Tracid - Your Own Reality 2017 (Radio Edit) 3:41
+02.  Armin Van Buuren & Sarah Decourcy - Face of Summer (Qulinez Remix) 3:33
+03.  Dash Berlin ft. Do - Heaven 3:19
+04.  Ferry Corsten & Cosmic Gate - Event Horizon 2:51(   Читать дальше...   )Жанр: Trance, House, DanceПродолжительность: 03:59:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484931662B7F8B7A82D81A73E7125DDC1A7E65AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982606   (947124) от 04.02.2016
 
 VA - Cozy Winter Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -698,64 +756,6 @@ VA - Jazzy Lounge, Vol.2 (2016) [MP3|320 кб/с] <Balearic, Downtempo, Lounge, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3516C42D9BF586ECCBF08B8E9544ECA41B17AF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363287   (943765) от 27.02.2020
-
-VA - EDM Immersion (2020) [MP3|320 Kbps] <Dance, Club, Techno, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943765.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nick Henley - Progression
-002. Ruddek - Boring Talk (Extended Mix)
-003. Plurthlings - On Shrooms
-004. Mi Ni - Power Of You(   Читать дальше...   )Жанр: Dance, Club, Techno, HouseПродолжительность: 08:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5A24A5F257FA83DDC6CB4D80EA7030BFAABBC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363292   (943759) от 27.02.2020
-
-VA - Breathe Fire: Beach Dance Classics Radio (2020) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943759.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bramd - Home (Dance Radio Edit)
-002. Chris Burke - Freak
-003. Stuart Mcniven - 3rd Inferno
-004. Louder - Leo In Space(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 07:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB34A93A4A348ECCD79BC01D5A28888DD9788CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

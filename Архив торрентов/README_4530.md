@@ -1,3 +1,240 @@
+###  Публикация: 479700   (98822) от 07.04.2012
+
+[Wallpapers] Anime Wallpaper (08.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D16F16A6A4501B465E48D27681373BF7B345D02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479466   (98819) от 07.04.2012
+
+[Wallpapers] Best Wallpapers (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98819.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C871BB0F09C4A26B020C6354F348C7AC498522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479679   (98816) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98816.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №5
+Название: Desktop Wallpapers №5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0467081298E42C9E6F930623C1E5B3E49DFAE429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479683   (98815) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №7
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98815.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №7
+Название: Desktop Wallpapers №7
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED07577EAA4D376DBA2B972775530E3EA48DC967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479732   (98814) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №11
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98814.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №11
+Название: Desktop Wallpapers №11
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AB3FC1EB44CFE4186286C62B0A11114176969DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478648   (98806) от 06.04.2012
+
+VA - High Heels Feeling Vol 3: Finest Lounge Music For Intimate Relaxation & Pleasure (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solanos - Palabras y Sentimientos
+02. Blue Wave - Falling Skies
+03. The Sura Quintet - Walking On the Sand
+04. Don Gorda Project - Take a Rest
+05. Enrico Donner - Temptalizing Me (Feat. Judy Georges)
+06. Christian Hornbostel - Schakunta - Bossamba Mix
+07. Cane Garden Quartet - Love Goddess
+08. Diario - What I Would Miss About You
+09. Arrojas - The Last Day of Summer
+10. Aquarius - Dissonant Looks(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E136F225F69DC810C214186EE3B7EE0382DEDCC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479244   (98805) от 06.04.2012
+
+VA - Dash Berlin Top 20 April (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98805.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Dash Berlin Top 20 April (2012)Год: 2012
+Жанр:Trance
+Продолжительность: 02:35:16Кодек: MP3
+Битрейт:320 кб/с
+Тип битрейта: CBRТрек лист:
+1. James Dymond - Sunset Bench (Original Mix) (8:28)
+2. Cerf, Mitiska & Jaren with Rank 1 - Witness (Tomas Heredia Remix) (7:37)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478787   (98804) от 06.04.2012
+
+Природа зверя / The Nature of the Beast (1995) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98804.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бизнесмен Джек подбирает в окрестностях Невады «бродягу» Эдриана. Эдриен оказывается слишком назойливым попутчиком, и Джек хочет избавиться от него. Но Эдриена не так-то просто потерять из виду, потому что он знает один страшный секрет Джека и грозится сообщить об этом в полицию.
+
+В это время по радио в машине передают криминальные новости: в районе орудует серийный убийца по прозвищу Рубщик. Возможно, или Эдриен или Джек, и есть убийца, но природа зверя раскроется лишь к концу фильма…Жанр: Ужасы, Триллер, ДетективРежиссер: Виктор СэлваАктеры: Эрик Робертс, Лэнс Хенриксен, Саша Дженсон, Ана Гэбриэл, Илой Касадос, Брайон Джеймс, Лайла Гэрретт, Фрэнк Новак, Элиза Робертс, Эрл Теро, Уильям Э. Темпл, Холлэс Колберн, Лин Шэй, Сэра Янг, Боб МэйПеревод: Одноголосый закадровый (Михаил Иванов)Язык субтитров: английский, испанскийПродолжительность: 01:30:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 478597   (98797) от 06.04.2012
 
 LibreOffice 3.5.2 Final [Мульти, Русский]
@@ -505,235 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED98E96D488D2683D07558AC3A819811C3E5494F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478540   (98739) от 05.04.2012
-
-Somnesia - Mystic Moon (2012) [MP3|320 кб/с]<Goa Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystic Sun 09:02
-02. Encounter 09:54
-03. Goa Spirit 08:48
-04. Cosmic Gate 08:4
-05. Halluminium 08:18
-06. Nomad's Land (Original version) 10:27
-07. Beyond The Sky (Extended version) 12:55
-08. Space Liquid 09:05
-09. Dusk Till Dawn 03:06 (Outro)2012Жанр: Goa TranceПродолжительность: 01:19:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F67B68FE709C537AC7D3402C0CC4460E670F57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478708   (98735) от 05.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (06.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD1415232D3ED3A44757979084230B60F517A21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478674   (98733) от 05.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls (05.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E66BDA7166C659DAC7D2896344C190342143186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478078   (98730) от 05.04.2012
-
-VA - MAXI. Русские ДиДжеи Зажигают (2012) [MP3|224 kbps]<Pop | Club | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danila Rastv - Suka (Dj Alexsei Shumakov)
-02. The Nycer feat. Deeci & Taleen - Freaky (Soundshakerz Remix)
-03. Flo Rida feat. Sia - Wild Ones
-04. Samo`L feat A-Sen - Малиновые сны D. Zelensky and Tony Kart remix
-05. Digital Mass - Love Martini Ice (Original Mix)
-06. Delay Project & Legeza - Чувства (Original Mix)
-07. АК-47 - Улыбнись, Любимая
-08. Elena Gheorghe - Your Captain Tonight (Radio Edit)
-09. Винтаж и DJ Smash - Москва
-10. Danger Wolf - Love Story My Heart 2012 (Original Mix)(   Читать дальше...   )2012Жанр: Pop | Club | DanceПродолжительность: 06:31:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A04E4540EE5CB1B53D2AD8823117F812A480A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478673   (98728) от 05.04.2012
-
-[Wallpapers] Sexy Women Wallpaper (05.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF7E82553D744EF432E06029C1C02B6CBD2B6157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478710   (98726) от 05.04.2012
-
-[Wallpapers] Sexy Girls Pack Wallpapers (06.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C3E95AD62C9EF63DBDE59A8F1233B598F324464
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478559   (98725) от 05.04.2012
-
-[Wallpapers] Avto Desktop Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98725.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Desktop Wallpapers Pack 4 
-Название:  Avto Desktop Wallpapers Pack 4 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9837A0A62FF6F8CC5DC7EFDBF2B0E7EB78ECF9F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478671   (98723) от 05.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls Pack (05.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98723.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DF806C10D5E1473ADB5558372340AA889DDE1DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

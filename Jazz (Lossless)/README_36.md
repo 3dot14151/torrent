@@ -1,3 +1,61 @@
+###  Публикация: 1095941   (922868) от 22.01.2017
+
+Scott Wilkie - Home Again The Solo Piano Sessions (2008) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The One [5:15]
+02. Home Again [5:05]
+03. Pier 39 [5:08]
+04. Claire's Lullaby [3:29](   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03EC4C10B6904D11319F2B58867BB3B08160589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988308   (922758) от 19.02.2016
+
+VA - Мастера Джаза (2000) S&V #07/2000 [FLAC|Lossless|tracks + .cue] <Bop, Soul-Jazz, Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wes Montgomery - California Dreaming (3:09)
+02. Ella Fitzgerald - Mack The Knife (5:09)
+03. Toots Thielemans - Bluesette (4:47)
+04. Gerry Mooligan - Makin' Woopee (4:06)(   Читать дальше...   )Жанр: Bop, Soul-Jazz, Latin Jazz, Contemporary Jazz, Cool JazzПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C5C153C4BD3AE2E8D08A47B1F73158AD54A534C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288126   (922466) от 29.01.2011
 
 VA - Jazz Break (The Best Of Contemporary Smooth Jazz) (2007) [FLAC|Lossless]<Jazz, Smooth Jazz>
@@ -696,64 +754,6 @@ VA - Christmas Swing (2014) [FLAC|Lossless|tracks + .cue] <Jazz, Retro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8229CA5428624E0BCFF2CB8E528C5CD9242E9096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988850   (919290) от 21.02.2016
-
-The Paul Bley Quartet - Solemn Meditation (1957) 2008, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Birk's Works [06:04]
- 02.O Plus One [03:18]
- 03.Porgy [03:41]
- 04.Solemn Meditation [03:35](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 01:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26CC41464D8586F27337612DA651A29D6B66F923
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988530   (919273) от 21.02.2016
-
-Bill Evans - Empathy + Pike's Peak (1961-1962) 2013, Essetial Jazz Classics[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Washington Twist [06:27]
- 02.Danny Boy [03:42]
- 03.Let's Go Back To The Waltz [04:33]
- 04.With a Song in My Heart [09:13](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:17:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514D72BC661046100EE3BABC9D632BE71FB9F922
 ```
 
 https://mybot314.ru/tekegram_catalog/

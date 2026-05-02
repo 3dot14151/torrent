@@ -1,3 +1,32 @@
+###  Публикация: 1401744   (243773) от 04.08.2022
+
+Ауткаст - Ультра (2020) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2020 (1:43)
+02. Не забывай (4:09)
+03. Один из нас (3:54)
+04. Невесомость (4:41)(   Читать дальше...   )Жанр: Nu Metal, Alternative RockПродолжительность: 01:20:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC15DD4EC33B8C577504A522B9844412838D68D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1626401   (243696) от 15.04.2023
 
 Нуки - 10 лет в космосе (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED823EA8A8FFD7A8E3F694545E9E82C33C017ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619948   (241011) от 18.03.2023
-
-ЭльТруски - Эфир Первобытных Рукописей (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прямой эфир [00:03:55]
-02. Первобытные истины [00:05:19]
-03. Рукописи не горят! [00:05:50]
-04. Я верю [00:04:17](   Читать дальше...   )Жанр: RockПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96134FA25015D4C346B27E22D55B8868772E67E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

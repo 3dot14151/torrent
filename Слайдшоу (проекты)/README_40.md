@@ -1,3 +1,30 @@
+###  Публикация: 1219527   (713315) от 14.04.2018
+
+Проекты - Motion Array - Photo Gallery - 64768 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Gallery - это модный, анимированный шаблон After Effects, с современным дизайном, динамическими текстовыми анимациями и плавными переходами.
+Можно использовать в качестве вступления для ТВ-шоу, для рекламных роликов, презентаций, рекламных акций, видеороликов для канала YouTube и Facebook.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FB8D06DA1DD59DC9E822269731373D12352F38F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1401061   (712628) от 08.08.2020
 
 Проекты - MotionElements - History Timeline - 15118344 / VideoHive - History Timeline - 28023600 [AEP]
@@ -657,32 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BED6DAC1E35EF685EE336EE991CC10039425C9B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025806   (707514) от 13.06.2016
-
-Проекты - VideoHive - Inspirational Slideshow - 14261553 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707514.jpg" />
-</div>
-
-
-###  Подробнее
-
-Inspirational Slideshow - с этим проектом вы сможете создать идеальное фото/видео слайд-шоу, трейлер к фильму с последовательностью названий, видео-журнал, и даже видео-ролики к специальным мероприятиям.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFE36533C4B666064B2EE96B52BA86E87A7880B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1184280   (300673) от 17.11.2017
+
+Футажи - VideoHive - 2D Cartoon FX 5 (HD) [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300673.jpg" />
+</div>
+
+
+###  Подробнее
+
+2D Cartoon FX 5 (HD) - Будьте в тренде с 2D Cartoon FX 5 (HD). Этот комплект содержит 415 энергичных анимаций в формате высокого разрешения. Добавьте в свой проект стильный внешний вид и современную динамику. Вы можете настроить цвета и добавить эффекты свечения с популярным программным обеспечением: After Effects, Premiere Pro, Edius, Final Cut, Vegas Pro, Resolume (   Читать дальше...   )Формат: MOVРазрешение файлов: 1920x1080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310E0CBADF8349FC78C7F174C58184672A5433BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961217   (300625) от 01.12.2015
 
 Футажи - Happy New Year Collection - IV [MOV]
@@ -655,32 +681,6 @@ Video3D - Сделай сам 2012 (диск 31)Источник: Video3D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A97B8BAD5FD0C58F4F95E2C56E9401214EE2BCD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496622   (253019) от 14.05.2012
-
-Футажи - Light and Energy Background Light Orb Love (1080p) [MOV]
-
->>Материалы для мультимедиа и дизайна
->>Футажи
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1920X1080
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D59709211401BBF038D708AF21F6AB9B91B9A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

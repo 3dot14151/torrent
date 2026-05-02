@@ -1,3 +1,59 @@
+###  Публикация: 599383   (999448) от 06.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 15
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1600х1200 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C51AC39822BD89B5A5666D56DACD00F1CC44621
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599381   (999447) от 06.01.2013
+
+[Wallpapers] Floral wallpaper (06.01.13)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999447.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Floral wallpaper (06.01.13)
+Название: Floral wallpaper (06.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CF5B3AABB7FBAD23B564318DB3A099F48C9FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599548   (999446) от 06.01.2013
 
 Журнал | Письма здоровья. Лечебник №1 [январь-февраль 2013] [PDF]
@@ -680,71 +736,6 @@ Wide Wallpapers - waterfalls (06.01.13) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93837390EB06CD24529D45C2A054A3C5855D8631
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 598780   (999391) от 06.01.2013
-
-VA - Pure Trance Bliss (2013) [MP3|320 кб/с]<Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juventa - 405 (Original Mix)
-02. Jaco - Malaysia (Original Mix)
-03. Temple One - Aquamarine (Original Mix)
-04. LTN - Never Let Me Go (Anhken Sunset Remix)
-05. Jan Martin - Exemption (The Madison Remix)
-06. Jjoo - One Night In Seoul (Original Mix)
-07. Juventa & Answer42 - Like These Eyes (Answer42 Remix)
-08. Audien - Keep This Memory (Johan Malmgren Remix)
-09. Estiva & Tania Zygar - Death Of Me (Original Mix)
-10. Juventa - Roadtest (Original Mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F56C526884BC8E642D04C3AEB39444750E50B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599385   (999390) от 06.01.2013
-
-[Wallpapers] Abstract Wallpapers (06.01.13)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999390.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Abstract Wallpapers (06.01.13)
-Название: Abstract Wallpapers (06.01.13)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B5BD0B05920B929B6ECF48E6F358B931E29420A
 ```
 
 https://mybot314.ru/tekegram_catalog/

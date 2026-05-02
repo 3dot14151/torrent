@@ -1,3 +1,119 @@
+###  Публикация: 1838632   (260676) от 23.11.2025
+
+Matthew Patrick - Authentico (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  40 Below (4:04)
+02.  Bikes, Bullets, and Beer (4:05)
+03.  Dark Train (3:38)
+04.  Long Cold Walk (3:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CDB1010494B089D7BBECFFA53C38567DAA21C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838633   (260675) от 23.11.2025
+
+Rich Wendel's Fat Fish Logic - The Last Comeback (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fish in the Sea (9:37)
+02.  Things Ain't What They Was (5:09)
+03.  Take a Minute for Yourself (5:08)
+04.  Wairunga Blues (5:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A987BA3072CC45C39765C286FB54F21DB49D16E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838634   (260674) от 23.11.2025
+
+Southbound Snake Charmers - 1000 Cuts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  1000 Cuts (3:25)
+02.  Take it or Leave it (3:16)
+03.  Bonnie vs Clyde (3:31)
+04.  Flying High (3:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720E839344A822A1AC3D663E977CACFB34BC2E29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838635   (260673) от 23.11.2025
+
+Steve Hooker - Smokin' Guitar (remastered) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wolf Farm (Grange Aux Loops) (4:08)
+02.  Devil I Know (3:02)
+03.  Mocking Bird (2:50)
+04.  Gospel Ground (4:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:612BCE548B749B6B272B7291A8F4F366EEC99DD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838636   (260662) от 23.11.2025
 
 The Lucky Losers, Cathy Lemons, Phil Berkowitz - Arrival (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
@@ -655,134 +771,6 @@ Gary Moore - After Hours (1992) Japanese Edition, Reissue, 2023, Universal [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E048BE309C6CE5BC2EDE7ED5FCC34B8FCC28B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 658217   (254146) от 12.11.2025
-
-Big Jim Slade - This is Delicious (2008) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Branded (3:02)
-02. Pressure (3:13)
-03. No Wonder (3:30)
-04. I Am But One (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEAB35F4B732DB2BB9715F2F23C77A8D21C5AF99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496899   (253191) от 15.05.2012
-
-Pinetop Perkins - Heaven (2012 Compilation) [FLAC|Lossless]<Blues, Piano Blues, Chicago Blues, Acoustic Blues, Boogie-Woogie>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 44 Blues  (03:23)
-02. 4 O'Clock In The Morning  (04:21)
-03. Relaxin'  (03:21)
-04. Sitting On Top Of The World  (03:53)(   Читать дальше...   )Жанр: Blues, Piano Blues, Chicago Blues, Acoustic Blues, Boogie-WoogieПродолжительность: 00:44:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495965   (252610) от 13.05.2012
-
-Blindstone - Greetings From The Karma Factory (2012) [FLAC|Lossless]<Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Your Mojo  (06:28)
-02. Struck Down By The Blues  (04:35)
-03. Free  (03:15)
-04. Catch Me If You Can  (04:04)
-05. Karma  (05:16)
-06. What Your Lovin' Can Do  (06:28)
-07. In The Groove Of Things  (04:57)
-08. Once More  (04:02)
-09. Life Starts Over  (03:04)
-10. Trying  (04:22)(   Читать дальше...   )2012Жанр: Rock, Blues RockПродолжительность: 00:57:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495567   (251649) от 13.05.2012
-
-Queendom - Still Rising (2012) [FLAC|Lossless]<Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_251649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Till the Battle Is Won (3:18)
-02. They Don't Know (3:49)
-03. Heaven (4:12)
-04. Zum Zuma (3:06)
-05. Gone (3:49)
-06. Babylon (4:41)
-07. Soldier (3:26)
-08. We Go Play (4:02)
-09. Declaration of Dependence (2:27)
-10. Uncle (3:47)(   Читать дальше...   )2012Жанр: SoulПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

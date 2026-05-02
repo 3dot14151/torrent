@@ -1,3 +1,61 @@
+###  Публикация: 1577479   (238801) от 19.09.2022
+
+Myosotis - The Sky Between Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Progressive Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nox [00:01:20]
+02. Lunar [00:04:16]
+03. Chiron [00:03:52]
+04. Skyseeker [00:05:09](   Читать дальше...   )Жанр: Progressive Metalcore, Progressive Nu-MetalПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:604D5A13D38E8802D6E0B34B14220C8162873790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622970   (238793) от 31.03.2023
+
+Bury Tomorrow - The Seventh Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Seventh Sun
+02. Abandon Us
+03. Begin Again
+04. Forced Divide(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDBCA71AFDD9214EBDD117BAFDDBBDBECF1210E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623114   (238703) от 01.04.2023
 
 Attack Attack! - Dark Waves (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
@@ -688,64 +746,6 @@ Code Orange - What is Really Underneath (2023) [FLAC|Lossless|WEB-DL|tracks] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D30DE200270C5BF5F108CA5070DE17DE94736B42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617818   (235677) от 08.03.2023
-
-Aight Bet - Stop Playin (2023) [FLAC|Lossless|WEB-DL|tracks] <Hoodcore, Beatdown, Hip Hop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hol' Up [00:02:01]
-02. Southside Slugga [00:01:48]
-03. Fish N' Chips [00:03:50]
-04. Universal Chess Move [00:02:46](   Читать дальше...   )Жанр: Hoodcore, Beatdown, Hip HopПродолжительность: 00:21:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1585410953D33FE2F8D67FCB1DF97C75D19E35F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617865   (235629) от 08.03.2023
-
-Needle Grey - Seasons Past (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grey [00:04:31]
-02. Drown Them [00:04:06]
-03. Executioner [00:04:13]
-04. Lighthouse [00:04:04](   Читать дальше...   )Жанр: Modern Metal, MetalcoreПродолжительность: 00:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA20688D70EF79412D7537768EA51E8C0E230B4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

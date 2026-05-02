@@ -1,3 +1,143 @@
+###  Публикация: 573890   (378964) от 11.11.2012
+
+VA - Осенний Клубный (2012) [MP3|320 кб/с]<Club,Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Holiday & Mike Candys - The Riddle Anthem (Radio Mix)
+02. Antoine Clamaran - Promised Land (Radio Edit)
+03. Dennis Cartier & Mc Sherlock - That Feeling (Radio Edit)
+04. Fedde Le Grand & Nicky Romero feat. Matthew Koma - Sparks (Turn Off Your Mind) (Radio Edit)
+05. Chris Decay & Re-lay - Love Junkie (Club Mix Edit)
+06. Francesco Diaz & Shena Winchester - Addicted To My Dreams (Radio Killer Remix)
+07. La Chris - Dirty Girl (Original Edit)
+08. Example - Kickstarts 2012 (DJ Antoine & Mad Mark remix)
+09. Dance Dealers - 2nd Chance (Dancefloor Kingz Remix Edit)
+10. Miami Club feat. Nicci - Supernova (R.I.O. Radio Edit)Жанр: Club,DanceПродолжительность: 03:44:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D4A5C8F376571865A0D16553E3AAF26A640A56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573470   (378962) от 11.11.2012
+
+VA - Супер Танцевальный Музон (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378962.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Emeli Sande - Heaven (Radio Edit)
+002. Basto - I Rave You (Give It To Me) (Radio Edit)
+003. M.R. - To France
+004. The Babysitters Circus - Everything's Gonna Be Alright
+005. Qwote Feat. Mr Worldwide - Letting Go (Cry Just A Little) (Radio Edit)
+006. Lacuna - Celebrate The Summer (Money G. Radio & Video Edit)
+007. Loft - Summer, Summer
+008. Tom Pulse & E-Wok - Go Back 2 The Oldschool (Rico Bernasconi S Asskick Mix Edit)
+009. Antoine Clamaran & Vince M. feat. Soraya - Feeling You (Radio Edit)
+010. Despina Vandi - Katalaveno(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E415BD5FCB890A58FA5EE34AA03BC19E2D3651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573922   (378841) от 11.11.2012
+
+VA - Лучшая молодёжная 100-ка. Русская версия (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Varda - Я Тебе Не Верю
+002. Атаманка - Босиком
+003. Виктория Дайнеко И Корни - Многоточие
+004. Баnzай - Ради Тебя
+005. Silana - Биоволны
+006. Дима Билан & Nikki Jamal - Come Into My World
+007. 2front - Навсегда
+008. Иля - Это Любовь
+009. Dato - Я Любил
+010. Дина Мереуца - Мой Рай(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B1DF566439F028C2A7356AAE43D25060EC4351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 573202   (378806) от 11.11.2012
+
+VA - Радио Шторм - NeРусский Шторм - 79 (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_378806.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ace Of Base - Unspeakable (Dj A-One Remix)
+2. Airplace - Cherry pie
+3. Aitor Galan, Dr. Bellido - Ella No Volvera (Aitor Galan Extended Mix) (Blanco y Negro)
+4. Aldo Vanucci - You re All Show feat Kylie Auldist Dr Meaker Remix
+5. Alexandra Shine - CATCH YOU
+6. Aly and Aj - Potential breakup song
+7. Anna Lesko - Ia-ma (Extended)
+8. Chris Brown - Don&Judge Me (Fuego Radio Edit)
+9. Chris Thrace - Lullaby (Radio Edit)
+10. Christina Aguilera - Let There Be LoveЖанр: Pop, DanceПродолжительность: 03:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FD4B1BDB1ECB4A6648F5A55654AFB5D5AEB5220
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 573464   (378559) от 11.11.2012
 
 VA - Русский Шторм - 80 (2012) [MP3|112-320 кб/с]<Pop>
@@ -638,122 +778,6 @@ VA - Горячий хитовый драйв. Выпуск 5 (2016) [MP3|256 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50E1F8AC4EF14223E6F3D10F60F545499DFD99D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069870   (369260) от 06.11.2016
-
-VA - Осенняя позитивная 100-ка. Выпуск 7 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369260.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Костя Кирьянов - Банана-Любовь 3:10
-002.Good Lyfe & Vermosa Feat. Brkln - After Midnight 5:10
-003.Юлия Хусаинова - Легко 3:37
-004.Simple Plan Feat. R. City - Singing In The Rain 3:43(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB5103E957074E18456F9936A93812888C6058BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070330   (369131) от 06.11.2016
-
-VA - Музыкальный адреналин. Сборник 10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369131.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Bb Diamond - Praying 3:33
-002.Molella Feat. Airtones - Bring Back The Love 3:05
-003.Bahh Tee - Взрослеем 3:45
-004.Sia - Cheap Thrills 3:02(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65A15074E91C6630D85C86C724E91F279ECC5ABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070336   (368886) от 06.11.2016
-
-VA - Заключительная осенняя дискотека. Часть 5 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368886.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.N.A.O.M.I. - Ты Скажи 3:28
-002.Ваня Чебанов - Все Хорошо 3:05
-003.Юлия Адамчук - Хочу Огня 3:17
-004.Елена Есенина - Cup Your Hands 3:23(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CF2E8EB56EEA88AAB8F1F706D9A2BC0C9C4CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069874   (368804) от 06.11.2016
-
-VA - Горячий Музон (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368804.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Потап & Настя - Вадимка Зачем Ты 3:21
-002.Доминик Джокер - Лишь Небо Знает 3:20
-003.Эльбрус Джанмирзоев - Только Не Бойся 3:17
-004.Елена Теплякова - Новая История О Нас 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E212804B2AEF72EBA02241E1AEB1E2B6F2E1A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

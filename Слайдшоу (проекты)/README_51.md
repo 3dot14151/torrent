@@ -1,3 +1,29 @@
+###  Публикация: 1036291   (620838) от 20.07.2016
+
+Проекты - VideoHive - Summer Trip - 16804831 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620838.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA3966A47A7ED2F3BEF695AF4A6DF72EB7751C94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036297   (620591) от 20.07.2016
 
 Проекты - VideoHive - Vintage Slideshow - 16154016 [AEP]
@@ -651,32 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80DAFBF739658F0829422AC2EDD2C48BE4317D7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037517   (613435) от 24.07.2016
-
-Проекты - To My Love [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613435.jpg" />
-</div>
-
-
-###  Подробнее
-
-To My Love - ностальгическое слайд-шоу из ваших свадебных, романтических или памятных фотографий. Прекрасно подойдет для юбилеев, празднования дня рождения, демонстрации ваших воспоминаний, альбома вашей жизни и многих других событий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E452E3EA3116AC8A7D4D1D5DEF50EAD4A9DAA451
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1625786   (244163) от 12.04.2023
+
+Dirty Deep - Trompe l'oeil (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Bones (3:27)
+02. Juke Joint Preaching (3:46)
+03. Don't Be Cruel (3:51)
+04. Hipbreak III (1:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE16E0DB6C0708A2356B41BD9F1C9FF210CAD85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632788   (243775) от 12.05.2023
+
+Gwyn Ashton - Mojosoul (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By Your Side (2:34)
+02. Vanish Into Thin Air (3:47)
+03. No More (4:28)
+04. Take Your Medication (3:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FACFC7DF4A1E6F931F9695265E61F24842BBDC6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623334   (243396) от 02.04.2023
+
+Misty Blues - Outside the Lines (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Your Blues Come From (3:16)
+02. I Don't Sleep (feat. Petri Byrd) (4:14)
+03. Every Which Way (2:58)
+04. One Of These Days (feat. Matt Cusson) (4:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB4EFB89FB6DF0479B79A07C7A0574EFF1E635E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633460   (243315) от 15.05.2023
+
+Dudley Taft - Guitar Kingdom (2023) [FLAC|Lossless|image + .cue] <Texas Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black And Blues (4:54)
+02. Old School Rocking (4:57)
+03. Oil And Water (4:42)
+04. Still Burning (4:37)(   Читать дальше...   )Жанр: Texas Blues, Blues RockПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6C907AC894F37E9CA1E02725922B83EA578A987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542647   (243314) от 08.04.2022
 
 The Wailin Walker Band - The Devil Made Me Play It (1990) [FLAC|Lossless|WEB-DL|tracks] <Blues, Modern Electric Blues, Blues-Rock>
@@ -628,122 +744,6 @@ VA - Rock and a Hard Place (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5DB816398BA094AE984C604660193565E27C48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632239   (240698) от 09.05.2023
-
-Big Matt Wallace - Stereo Stereo Stereo (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Changed the Locks (4:55)
-02. You're Gonna Need Me (2:52)
-03. When I'm Gone (2:34)
-04. Wicked as It Seems (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89E7E23427E3E6AA97CEE94BA537642EA58E3C22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632243   (240690) от 09.05.2023
-
-Chris Kramer feat Jens Filser - Roots Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Harp River (2:07)
-02. Blues As Blues Can Get (3:58)
-03. Now I Know (6:01)
-04. Got To Go Back Home (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:14:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D91E9602CF7A7C4EE97D9744BC08C179595A218
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626373   (240689) от 14.04.2023
-
-Joe Bonamassa - Tales Of Time (2023) Live [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notches
-02. The Heart That Never Waits
-03. Curtain Call
-04. Mind’s Eye(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:270750B674A54D5FF5B5DCB6A80EE111C01EAF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632248   (240684) от 09.05.2023
-
-Marcus Malone and the Motor City Hustlers - Interstate 75 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't No Telling (4:23)
-02. Can't Make It (3:50)
-03. Can't Take The Fight (3:54)
-04. Good Lovin' Angel (3:33)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29B45E3A673DC96E4F69FBC8383EE12E92922F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

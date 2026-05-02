@@ -1,3 +1,30 @@
+###  Публикация: 1075938   (315678) от 24.11.2016
+
+Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und Orchester Nr.1 & 3 (1980 - 1987) 1997 Deutshe Grammophon [FLAC|Lossless|image + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юношески лучезарный, полный энергичного движения Первый концерт C-dur, Op. 15 (1796) привлекает поэтическим преломлением народнопесенных жанров и интонаций. В Третьем концерте c-moll (1800) обращает на себя внимание трагический пафос первой части.
+   В концертах Бетховена чрезвычайно велика роль развитых виртуозных солирующих инструментов. Они придают музыке блеск, (   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088E8EC80CE2EB183AF7D04ED7E6F439DD7CCEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960222   (309924) от 27.11.2015
 
 Schubert - Piano Sonatas - Christian Zacharias (Vol.2) (2CDs) (1998) [FLAC|image +.cue]<Classical, Recital, Romantic Period, Sonata>
@@ -715,41 +742,6 @@ J.S. Bach - Toccatas BWV 910-916 for piano (Wolfgang Rubsam) (1993) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A34D15A4550B8DC8D80E7E2292F9338DACD02337
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586472   (135570) от 22.12.2012
-
-Sviatoslav Richter in Prague [FLAC|Lossless]<Classical, Sonata, Fantasy, Variations, Etude>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: classical, pianoПродолжительность: 01:03:17
-
-Composer: Franz Schubert (1797-1828)
-Composer: Franz Liszt (1811-1886)
-Performer: Sviatoslav Richter - piano
-
-Tracklist:
-Piano Sonata No. 21 in B flat major, D. 960:
-01. Molto moderato    (25:50)
-02. Andante sostenuto    (09:57)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

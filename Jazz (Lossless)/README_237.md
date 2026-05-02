@@ -1,3 +1,61 @@
+###  Публикация: 1837755   (257688) от 18.11.2025
+
+Soundify Background Music, Pub Music, Electronic Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Swing Machine (2:46)
+02.  Time Travel Affair (2:52)
+03.  Electro Swing (3:22)
+04.  Syncopation Nation (3:15)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84556F9DA4D3B0D0B83CF4B16012A21B7B76AE0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837757   (257686) от 18.11.2025
+
+VA - Electro Swing & More (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Salade Tomate - Cocktail (4:57)
+02.  Hey Alan! - Electro Swing 3 (6:04)
+03.  Adln - Hey Listen (Deja-Move Mix) (4:11)
+04.  Hey Alan! - Jackin Swing (Swing House Mix) (6:40)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D565326608C3035B26072982983EB2BEC2152166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837760   (257684) от 18.11.2025
 
 VA - Electro Swing Ragtime House: Harlem Prohibition Jazz Inspired Music, Spooky Halloween Groove (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
@@ -734,64 +792,6 @@ VA - Dreamy Lounge & Smooth Jazz Tunes For Pleasant Evening (2023) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72E0E9BDE869D50DFC796484A85519BEF5E91DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629277   (254778) от 26.04.2023
-
-The Phil Woods Quartet - 'More' Live (1979) 1995, Genes [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milestones [10:43]
-02. Eiderdown [13:11]
-03. Strollin' [11:04]
-04. See Hunt & Liddy [10:29]Жанр: Post-BopПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88CB90D2C457F31C9CCBF52383BFBCD87C16CAF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629274   (254777) от 26.04.2023
-
-Woody Herman & His Bands - Their Finest Albums (1952 - 1963) 4CD, 2022, Enlightenment [FLAC|Lossless|tracks + .cue] <Swing, Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Brothers [3:35]
-02. Like Some Blues Man [10:04]
-03. Skoobeedoobee [4:35]
-04. Monterey Apple Tree [10:34](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 04:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0E5A02499DE2AE3AAF80C290A8A15ABDE546179
 ```
 
 https://mybot314.ru/tekegram_catalog/

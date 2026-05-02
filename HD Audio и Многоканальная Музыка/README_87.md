@@ -1,3 +1,176 @@
+###  Публикация: 1690845   (123262) от 12.01.2024
+
+Liva - Ecce Mundus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - De Avaritia Et Luxuria Mundi (00:09:23)
+02 - Materiae Summa (00:06:33)
+03 - Ecce Mundus Demundatur (00:05:06)
+04 - Sunt (00:03:34)(   Читать дальше...   )Жанр: Symphonic-Power-MetalПродолжительность: 00:55:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA2715925054E245D58DA5F08C0D2F530ACB404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689868   (123256) от 12.01.2024
+
+Ryan Adams - Star Sign (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Self Defense [00:03:40]
+02. So Lost [00:03:41]
+03. Darkness [00:05:30]
+04. Shinin' through the Dark [00:02:56](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBD600439CEC5956C66D82E3D0AB52153123A7F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690185   (123255) от 12.01.2024
+
+Sodom - 1982 (2023) EP [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal, Experimental Thrash Metal, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 1982 (Remix) [3:24]
+02 - Witching Metal [3:29]
+03 - Victims of Death [5:15]
+04 - Let`s Fight In The Darkness Of Hell [3:05](   Читать дальше...   )Жанр: Thrash Metal, Experimental Thrash Metal, MetalПродолжительность: 00:18:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B83CDCAA4A6503E064E34A09C67507024FEA25A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689873   (123254) от 12.01.2024
+
+Ryan Adams - 1985 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Places [00:00:34]
+02. Waste of Time [00:01:51]
+03. I Don't Want to Know [00:01:38]
+04. Lose Control [00:01:31](   Читать дальше...   )Жанр: RockПродолжительность: 00:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DACDD296CE11F2615957B6DE8F7E0E0AB728E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691212   (123249) от 12.01.2024
+
+Batushka - Litourgiya (2015) Reissue, 2018, Witching Hour Productions [FLAC|24/192|tracks|Vinyl-Rip] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123249.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ектения • I • Очищение
+A2 Ектения • II • Благословение
+A3 Ектения • III • Премудрость
+A4 Ектения • IV • Милость(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6D10BB09207C0A3E4BA1835AB8505F5FF42E07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690987   (123248) от 12.01.2024
+
+Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.1 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Progressive Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Group Therapy Intro (ABGTX2023D) [0:32]
+02 - Bermondsey Bender (ABGTX2023D) [4:12]
+03 - Group Therapy (Messages Pt. 1)Жанр: Electronic, Progressive House, Progressive TranceПродолжительность: 02:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A126D2DDE53EA567A73C5F66E1F5E7C76E650CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690984   (123246) от 12.01.2024
 
 Above & Beyond, ABGT, Anjunabeats - Group Therapy Best Of 2023 pt.2 (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Progressive House, Progressive Trance>
@@ -567,180 +740,6 @@ Cocteau Twins - Milk & Kisses (1996) Remastered, 2024, 4AD [FLAC 24/44.1|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C75F560A720DD4B3BABDECAF88C4FAC419F070D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691944   (122911) от 14.01.2024
-
-Железный Альянс - Железный Альянс (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Огонь И Свобода (00:04:56)
-02 - Рёв Мотора (00:03:22)
-03 - Выбор Твой (00:04:40)
-04 - К Чёрту Все (00:03:59)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B42841A2FE6B19016A5CB8E7EF0D42BB05CA11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691932   (122906) от 14.01.2024
-
-Cocteau Twins - Four-Calendar Cafe (1993) Remastered, 2024, 4AD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative & Indie Rock, Ethereal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Know Who You Are At Every Age (3:38)
-02. Evangeline (4:29)
-03. Bluebeard (3:53)
-04. Theft, And Wandering Around Lost (4:30)(   Читать дальше...   )Жанр: Alternative & Indie Rock, EtherealПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167A0EC352332212A41769DB1448B0342B32A129
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692057   (122875) от 14.01.2024
-
-El Reno Renardo - Regreso al Metalverso (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro - Pienso Luego Sexito (00:02:39)
-02 - Tonto del Bulo (00:05:10)
-03 - I.A. En Un Planeta Subnormal (00:04:56)
-04 - Esfinternet (00:05:45)(   Читать дальше...   )Жанр: Heavy/Power MetalПродолжительность: 01:12:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC93E86C554D095C525E7FCACF312E62DC5CEFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692087   (122760) от 15.01.2024
-
-Charles Aznavour/Шарль Азнавур - Поёт Шарль Азнавур (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122760.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Изабелла
-A2 Потому Что
-A3 Жить С Тобой
-A4 Ты Была Слишком Красива(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EACA7A2AEED035ABA02D31DF17005395826B6CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692108   (122738) от 15.01.2024
-
-Asking Alexandria - Dark Void (2024) EP [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Modern-Hard-Rock, Alternative-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dark Void (3:52)
-02. Nothing Left (4:27)
-03. Dark Void (Radio Edit) (3:33)
-04. Dark Void (Sullivan King Remix) (3:09)(   Читать дальше...   )Жанр: Modern-Hard-Rock, Alternative-RockПродолжительность: 00:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4434412EDFF2D2D572674F2A2AA5F696576A5FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692196   (122736) от 15.01.2024
-
-Vesta Lugg - Muy Mucho (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Uno De Esos D¡as (feat. Yami Safdie)
-02 – 11 mil kil¢metros
-03 – bonito, despacio
-04 – bonito, COBARDE (interludio)(   Читать дальше...   )Жанр: Latin PopПродолжительность: 2 CD, 00:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379A2924704AB02C4CFA3C825A6DD79E66B22721
 ```
 
 https://mybot314.ru/tekegram_catalog/

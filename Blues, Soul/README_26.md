@@ -1,3 +1,38 @@
+###  Публикация: 388531   (458917) от 17.09.2011
+
+Venom Blues - Recoil (2007) [MP3|320 kbps]<Electric blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458917.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sneak Attack
+ 2. Sweet Home Chicago
+ 3. Cold Women
+ 4. Playin' in the Dirt
+ 5. Shake Your Money Maker
+ 6. Down to the Still
+ 7. Blues Highway
+ 8. Rollin' and Tumbillin'
+ 9. Further on up the Road
+ 10. Dust my Broom(   Читать дальше...   )Жанр: Electric bluesПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D99775CB947AC7B60611A33CCC953D09B90679A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1060150   (457170) от 06.10.2016
 
 VA - Simply Sixties (4CD) (2016) [MP3|320 Kbps] <Soul, Funk, Disco, Jazz>
@@ -728,35 +763,6 @@ Cass Greaves - He's Whiskey in a Teacup (2015) [MP3|320 кб/с]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BA0F1BDB6AE253778E47A868A8C50E032E1B06D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 945229   (433921) от 10.10.2015
-
-White Night Blues - Live in Poland (2010) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tobacco Road
-02. Wilczych Praw Dzis Czas
-03. Znaju Stolki Piash4otau Tvaih
-04. The House of Risin Sun(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2409DDCD0F933A370744DED91F0FF5B65F07BA76
 ```
 
 https://mybot314.ru/tekegram_catalog/

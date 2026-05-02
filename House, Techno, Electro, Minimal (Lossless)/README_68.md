@@ -1,3 +1,32 @@
+###  Публикация: 1708820   (62115) от 22.03.2024
+
+Scooter - Open Your Mind And Your Trousers (2024) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hardstyle, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thirty, Rough And Dirty
+02. Rave & Shout (feat. Harris & Ford)
+03. Posse Reloaded (feat. FiNCH)
+04. Techno Is Back (feat. Harris & Ford)(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9EFAEC4878DF3C98060C2A688C9643BDEEFEB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714697   (60128) от 10.04.2024
 
 VA - Dance Covers 2024 - The Best Party Hits Only! [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -708,35 +737,6 @@ VA - Buddha Luxury Bar - Arabian Chillout Deluxe 2024 [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BC6460DDAE26EBD3FBA4C428E85B2B6D67B36F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750116   (43160) от 18.09.2024
-
-VA - Sahara Beats (The Hottest Arab Music from the Hottest Desert) (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rachid El Esseily - Camel Shoes (4:38)
-02. Davide Angiuli - Desert of Love (Extended Mix) (6:06)
-03. Ajram Al Jawad - Arab Toy (4:38)
-04. Nouri Fateh - Aah-W-Noss (6:30)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:391E3CA496D50BD1AC9B95A87134DF391DBD0088
 ```
 
 https://mybot314.ru/tekegram_catalog/

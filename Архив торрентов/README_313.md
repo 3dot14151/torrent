@@ -1,3 +1,64 @@
+###  Публикация: 608176   (992896) от 26.01.2013
+
+Фотография - Фотограф Henrik Purienne (jpg)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фотография - Фотограф Henrik PurienneРазрешение файлов: ~  500x750 ~ 800x800
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CF9069D7E1B656D711E1CDAE5E80950282E4FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608827   (992894) от 26.01.2013
+
+VA - Global DJ Broadcast Top 20 - January 2013 (2013) [MP3|320 кб/с]<Trance/ House/ Progressive/ Vocal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz ft Ana Diaz - Nothing Without Me (Markus Schulz Return To Coldharbour Remix) (8:05)
+02. Rex Mundi - Bella Monaco (Original Mix) (8:36)
+03. Wellenrausch - Million Miles To Run (Phynn Remix) (8:07)
+04. Matthew Peterson - Stingray (Styller Remix) (7:13)
+05. Danilo Ercole - Profundo (Original Mix) (6:22)
+06. Lange - Destination Anywhere (Radio Edit) (4:07)
+07. Wellenrausch - Echoes In The Night (Gai Barone Demode Remix) (8:42)
+08. Rex Mundi - Steaming Waterfalls (Original Mix) (7:27)
+09. Planet Perfecto - Bullet In The Gun (Gary Maguire Remix) (7:47)
+10. Markus Schulz ft Seri - Love Rain Down (Myon & Shane 54 Summer Of Love Mix) (7:22)(   Читать дальше...   )Жанр: Trance/ House/ Progressive/ VocalПродолжительность: 02:32:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9374BFA32B7E5CBA6474C0BCE392CB7382A986AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608979   (992891) от 26.01.2013
 
 Wallpapers - Wallpapers Fantasy №29(Pavel)
@@ -654,58 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:318464D595F74C57F9A81A957B5D0951E83CFBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608183   (992811) от 26.01.2013
-
-Фотография - Фотограф Марат Тихонов (jpg)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Марат ТихоновРазрешение файлов: ~  500x750 ~ 800x800
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07D33F6FC1D8A4CCC342885BA27C05D8CEA7183
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608863   (992810) от 26.01.2013
-
-Sexy Girls Wallpapers (4/2013) [Wallpapers 16+] (jpg)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992810.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельный сборник обоев для рабочего стола от FedExe ®Разрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812E711BDF23547938871622D5A0BCA4B975A598
 ```
 
 https://mybot314.ru/tekegram_catalog/

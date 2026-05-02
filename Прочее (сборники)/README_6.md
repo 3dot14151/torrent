@@ -1,3 +1,264 @@
+###  Публикация: 1612606   (1039621) от 18.02.2023
+
+VA - Музыка для машины Vol.8 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мурат Гамидов  - Сам Себе Друг (03:09)
+02. Ninety One  - Synbaim (03:57)
+03. Мария Запольская  - Обними (02:48)
+04. Алик Бендерский  - Приезжай Ко Мне На Север! (03:34)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F669E5733CAB3074F0EFADD968BF5E339FB1113E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613366   (1039592) от 18.02.2023
+
+VA - Music News vol.246 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039592.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bebe Rexha - Heart Wants What It Wants (03:02)
+ 002. 2xA - Falling Apart (02:31)
+ 003. 3333 feat. Джарахов - Трезвым (02:57)
+ 004. a.Ja - Крылья (02:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 13:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B820120803A22A57F3469396C1650EAF4AA5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613121   (1039585) от 18.02.2023
+
+VA - Музыка для машины Vol.9 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сергей Одинцов  - Нам До Разлуки Полчаса (03:54)
+02. Nola  - Тебя Любить (03:08)
+03. Dj. Sava & Md & Dj Feat. & Adriana Onci - Island Of Love (03:38)
+04. Флорида  - Кто Я (03:13)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E308871F2EDBB32DBAF8CD22AE5F58E2C9D37790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439555   (1039528) от 14.01.2021
+
+VA - Music News vol.63 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039528.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DIMA - Я Рядом (03:24)
+ 002. Aize - Falling For You (02:43)
+ 003. Alex Ferrari - Dueto Do Tik Tok (Mi Pan Su Su Sum) (Funk Remix 2021) (02:32)
+ 004. ARCHI - Там Где Хулиганы (02:47)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B732780AA73E8E7D20DA9656F1434F15B3B9E320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439685   (1039515) от 14.01.2021
+
+VA - Best Pop Плейлист (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sia - Courage to Change (4:52)
+02. Bon Iver, Taylor Swift - exile (4:45)
+03. Hurts - Redemption (4:18)
+04. Taylor Swift - cardigan (3:59)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CBA514238831777733DA462C8529B44D5A40165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1439644   (1039494) от 14.01.2021
+
+VA - Sexy Songs 2021 (Slow Bass RnB) [MP3|320 Kbps] <Pop, RnB, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick Ross, The Weeknd - In Vein (4:21)
+02. Bazzi - Mine (2:14)
+03. Lux Thugs - Surfboard (5:04)
+04. PARTYNEXTDOOR, Drake - LOYAL (3:18)(   Читать дальше...   )Жанр: Pop, RnB, OtherПродолжительность: 05:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A30B4A0BE5F8F157D6EF41CD022852D23080662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440039   (1039080) от 16.01.2021
+
+VA - Запасные крылья (2021) [MP3|320 Kbps] <Pop, Rock, Hip-Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi-Fi - Взлетай (3:17)
+02. Весна - Белые крылья любви (3:28)
+03. Братья Грим - Ресницы (2:52)
+04. Денис Майданов - Пролетая над нами (3:56)(   Читать дальше...   )Жанр: Pop, Rock, Hip-HopПродолжительность: 02:23:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8B32C8FFD9AC7B963A8A678FDB2066DC817DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440041   (1039069) от 16.01.2021
+
+VA - Снег в июне (2021) [MP3|320 Kbps] <Pop, Rock, Ballad>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039069.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вася Обломов - Грубым даётся радость (4:02)
+02. Павел Пиковский, Сергей Чиграков и Олег Митяев - Детство (4:03)
+03. Павел Фахртдинов - Зимний вечер (2:08)
+04. Адлер Коцба - Письмо к женщине (2:39)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 02:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F2D2800091E10F888E3536377193308921FE12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440282   (1039044) от 16.01.2021
+
+VA - Music News vol.64 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039044.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Avy feat. lowlife - Лилии (03:15)
+ 002. Alina Artts feat. Slider & Magnit - Белые Цветы (03:01)
+ 003. Aly & AJ - Listen!!! (03:50)
+ 004. Amelie Martinez - And You Cut (03:22)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 06:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC08895E4D76E6E95E5E6C495253727183B4AF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440150   (1039019) от 16.01.2021
 
 VA - ЕвроХит Топ 40 Europa Plus 15.01.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -484,267 +745,6 @@ Shiroe Brothers - Single (2022-2023) [MP3|320 Kbps] <Ethnic, World Music, Dance 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D3D5A76CA034D73153D9BE1C7B9624F9C3BEEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616001   (1036994) от 28.02.2023
-
-Rebekka Bakken - Compilation (2023) [MP3|320 Kbps] <Vocal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer
-02. Black Shades
-03. Little Drop of Poison
-04. Things You Leave Behind(   Читать дальше...   )Жанр: VocalПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA9BA2754EAE42A75B6121EBADFFFDBF41F743D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615135   (1036963) от 28.02.2023
-
-VA - Музыка для машины Vol.10 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fizica Feat. & Ahsheva - Чужой (02:27)
-02. Дима Фантомас  - Эпизоды (03:35)
-03. Татьяна Буланова  - Ты Мой Космос (03:34)
-04. Невзрослей  - Мари Краймбрери (02:03)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC101A8C8D06964EF64DBE353DA7F5E39BCF206
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442166   (1036820) от 24.01.2021
-
-VA - Dance Music 2021 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036820.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paolo Pellegrino - I Don't Wanna Know (2:17)
-002. Mowe, Miles Hi - Untz (2:15)
-003. Diplo, Jonas Brothers - Lonely (2:19)
-004. Marnik, PollyAnna - Made of Stars (2:20)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 10:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D3B2AFB97598FA5F6E4856E77EC33F179C6B1A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616191   (1036679) от 01.03.2023
-
-Stereophonic Space Sound Unlimited - Compilation (2023) [MP3|320 Kbps] <Instrumental Rock, Surf>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 35 Falcon Street
-02. Jo's Theme
-03. Lizard
-04. Sitar Jerk(   Читать дальше...   )Жанр: Instrumental Rock, SurfПродолжительность: 04:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E7D96CA914A6124C576E7FDBE387810C9B140D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442547   (1036589) от 25.01.2021
-
-VA - The Four Season (2021) [MP3|320 Kbps] <Instrumental, Neoclassic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это подборка красивой инструментальной спокойной музыки для души, она позволит вам отдохнуть и набраться сил.001. Jim Perkins - A Ritual For Saying Goodbye
-002. Philip G Anderson - Lakes
-003. Max De Wardener - Redshift
-004. Paul Saunderson - Saunderson From Under The Sun(   Читать дальше...   )Жанр: Instrumental, NeoclassicПродолжительность: 06:37:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96A68FEC7733E9DB622647EB962C6FB447A8A5F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442492   (1036567) от 25.01.2021
-
-VA - Music News vol.66 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036567.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Isupov & Брутто - Молодая (02:57)
- 002. Albert Brite - Не Моя Вина (02:23)
- 003. Andrea Ferrini - Never Over For Me (02:44)
- 004. Animal ДжаZ - Бессимптомно (03:24)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17316FD05CF027F727EBD0FFB60F9361417E463A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442590   (1036351) от 26.01.2021
-
-Lalo Mora - Mi Canto para Padres (2021) [MP3|320 Kbps] <Latin>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Известный мексиканский музыкант и певец известный просто как Лало Мора. Родился в Лос-Рамонесе, штат Нуэво-Леон, 24 января 1947 года под именем Эдуардо Мора Эрнандес. Начал петь в барах и вскоре был известен в своем родном городе, где он сделал дуэт, известный как Lupe y Lalo. У него было много замечательных хитов, в том числе "El Rey de Mil Coronas" и (   Читать дальше...   )01. Dos Coronas A Mi Madre (En Honor A Mi Compadre Lupe Tijerina)
-02. Mi Caballo Pobre
-03. Regalo De Dios
-04. Leonardo Reyes(   Читать дальше...   )Жанр: LatinПродолжительность: 01:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C689404F3C32CF25A690DE9CDD38A564C903BF35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442594   (1036290) от 26.01.2021
-
-Enigma Norteсo - Van A Querer Mas (2021) [MP3|320 Kbps] <Latin, Folk Songs>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036290.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая рабочая неделя после зимних праздников всегда выматывает. И хочется налить бокальчик текилы, надеть удобные треники или махровый халат, взять в обнимку толстого и теплого кота и просто расслабиться под музыку жаркой Мексики.01. La Fiesta De Joaq
-02. Recordando
-03. El Griego
-04. Herida Mortal(   Читать дальше...   )Жанр: Latin, Folk SongsПродолжительность: 03:23:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3259191191B6E1DB283F55CB985F1CFEE7B20EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442781   (1036192) от 26.01.2021
-
-VA - 30(1) Новые Песни (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A$AP Rocky, slowthai - MAZZA (2:51)
-02. ATB, Topic, A7S - Your Love (9PM) (2:30)
-03. Billie Eilish, Rosalía - Lo Vas A Olvidar (3:23)
-04. Bow Anderson - New Wave (3:10)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F497BE8D39E2E3FEF26DBBCCB0C2003FC7585A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

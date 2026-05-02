@@ -1,3 +1,61 @@
+###  Публикация: 1210960   (778269) от 05.03.2018
+
+Curtis Fuller - Crankin' (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crankin' [07:10]
+02. Maze [11:30]
+03. Black Bath [09:54]
+04. Ballade [05:08](   Читать дальше...   )Жанр: Hard Bop, Jazz FusionПродолжительность: 00:39:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CBE8411C0D2E0CD19271D4A782DD6B24FB8D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013235   (778004) от 03.05.2016
+
+Rein de Graaff Quintet - New York Jazz (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fifty Six [03:57]
+ 02.A Monk's Dream [10:08]
+ 03.Wail [03:27]
+ 04.Solar [05:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24575AD6D649FA87F42A65973235200802294518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013196   (777998) от 03.05.2016
 
 VA - Jazz Olympics (2009) AMG Records[FLAC|Lossless|image + .cue] <Post-Bop, Big Band, Smooth Jazz, Vocal Jazz>
@@ -687,64 +745,6 @@ Teddy Wilson - & His All-Stars Vol. 1 (1935-1939) Remaster, 2014, Sony Music[FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B17317C77B8E8BEAABF0BC209AAA3F861BE291E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013132   (776958) от 06.05.2016
-
-Davina and The Vagabonds - Nicollet and Tenth (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Blues, Folk, New Orleans>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knock Me a Kiss
-02. Black Cloud
-03. Sunshine
-04. Ain't That a Shame(   Читать дальше...   )Жанр: Vocal Jazz, Blues, Folk, New OrleansПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49CB0932EA6F87B33852E998B0AEFC7089A5E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013775   (776949) от 06.05.2016
-
-VA - Jazzland of New Orleans (2016) [FLAC|Lossless|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rodriguez Jose - Chattanooga Choo Choo (Live) 2:20
-02. New Set Music - Pohlkranzchen 4:56
-03. Piet Gorecki - Same Old Story / Escape - Trio 6:10
-04. Horst Grabosch Quintett - Changing the Bars 7:14(   Читать дальше...   )Жанр: JazzПродолжительность: 01:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4A64C4FBF8A4820D613E2BC86EE7245BBB7B011
 ```
 
 https://mybot314.ru/tekegram_catalog/

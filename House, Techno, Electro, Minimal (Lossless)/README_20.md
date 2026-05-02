@@ -1,3 +1,32 @@
+###  Публикация: 1274316   (794163) от 06.01.2019
+
+Tender H - Sentido Oasis (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You & Me (05:52)
+02. Blue Pools (05:32)
+03. Play With Dolphin (06:08)
+04. Night Movement (06:18)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6481989FB325B9FDFBCAC0DDAC5019366EB45F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274309   (794161) от 06.01.2019
 
 VA - Freshly Picked Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
@@ -716,34 +745,6 @@ Hidden Orchestra - Dawn Chorus Remixes (2018) Tru Thoughts [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7C3144A671580DFC6F3CDD7AD3EFED4DB593E6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202200   (790559) от 28.01.2018
-
-Fluxion - Upsides & Sideways EP (2018) Echocord [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Route (07:51)
- 02. The Place (07:26)
- 03. Flick (03:50)Жанр: Dub Techno, Tech HouseПродолжительность: 00:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF26E7B83FE4FCF4FE30742926FB898543EB008
 ```
 
 https://mybot314.ru/tekegram_catalog/

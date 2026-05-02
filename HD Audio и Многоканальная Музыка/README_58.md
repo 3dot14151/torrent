@@ -1,3 +1,178 @@
+###  Публикация: 1582264   (206427) от 08.10.2022
+
+Pink Floyd - Animals (1977) 2022 -2018 remix- [DTS 5.1 CD-DA|44.1/16|image+.cue|BD-Audio] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206427.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2018 году звукорежиссер Pink Floyd Джеймс Гатри (James Guthrie) сделал полный ремикс альбома 1977 года «Animals», в том числе, и многоканальный 5.1, но только в сентябре текущего года на собственном лейбле группы Pink Floyd Records вышло переиздание этого альбома на четырех различных физических носителях – виниле, компакт-диске, DVD-Audio и Blu-ray Audio. Роджер (   Читать дальше...   )01 - Pigs On The Wing 1 (1:24)
+02 - Dogs (17:06)
+03 - Pigs (Three Different Ones) (11:23)
+04 - Sheep (10:18)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:127CDF97A90F7FD66922A913A2479369EB29753C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582513   (206229) от 10.10.2022
+
+AC/DC - Studio Albums (7 releases) (1990 - 2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206229.jpg" />
+</div>
+
+
+###  Подробнее
+
+AC/DC  — австралийская рок-группа, сформированная в Сиднее в ноябре 1973 года выходцами из Шотландии, братьями Малькольмом и Ангусом Янгами.
+Наряду с такими группами, как Led Zeppelin, Deep Purple, Queen, Iron Maiden, Scorpions, Black Sabbath, Uriah Heep, Judas Priest и Motörhead, AC/DC часто рассматриваются как пионеры хард-рока и хеви-метала. Сами же музыканты (   Читать дальше...   )1990 - The Razors Edge
+1995 - Ballbreaker
+2000 - Stiff Upper Lip
+2008 - Black Ice(   Читать дальше...   )Жанр: Hard RockПродолжительность: 05:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B244C7F29869C1B9F72CAA8D9CD2C49EEF44573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653071   (206046) от 17.08.2023
+
+ELO (Electric Light Orchestra) - Time (1981) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Synth-pop, Symphonic Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206046.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Prologue
+A2 Twilight
+A3 Yours Truly, 2095
+A4 Ticket To The Moon(   Читать дальше...   )Жанр: Synth-pop, Symphonic Rock, Pop RockПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F787043A0FC2CB2B0C08B19421C4317098EA5DB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653165   (205984) от 18.08.2023
+
+Ozzy Osbourne - Patient Number 9 (2022) [WavPack|32/192|image + .cue|Vinyl-Rip]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205984.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Immortal
+A2 Patient Number 9
+A3 Parasite
+B1 No Escape From Now(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC930CB49178CE821FAA5917B03CB286D01ABE26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830794   (205759) от 27.10.2025
+
+Quo Vadis (Canada) - Studio Albums (4 releases) (1996-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical/Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Quo Vadis - канадская дэт-метал-группа из Монреаля, Квебек, образованная в 1992 году.1996 - Forever...
+2000 - Day Into Night
+2001 - Passage In Time
+2004 - Defiant ImaginationЖанр: Technical/Melodic Death MetalПродолжительность: 02:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12743AAABEAF35762E2EAC29235D96F9FF08C75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654042   (205374) от 19.08.2023
+
+Warlock - Burning the Witches (1984) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sign Of Satan
+02. After The Bomb
+03. Dark Fade
+04. Homicide Rocker(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AC90F74B74782CCCA087D4670E926F780CEF65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654445   (205196) от 20.08.2023
 
 Sonic Boom - Reset in Dub (Adrian Sherwood 'Reset In Dub' Version) (2023) [FLAC|24/44.1|tracks|WEB-DL] <Neo-Psychedelia, Dub>
@@ -566,187 +741,6 @@ A4 Отпусти Меня • Wind Me Up (Let Me Go)(   Читать дальш
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E61452C9C6E7AEF199D480DD15A53C0FC43247D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656575   (203055) от 31.08.2023
-
-Puhdys - Puhdys Live (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock & Roll, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203055.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sturmvogel
-A2 Perlenfischer
-A3 Sterne Verspaten Sich Nie
-B1 Ikarus II(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1CF28EF9E05935C863CA97D823895B01242E12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510172   (202566) от 19.02.2023
-
-Bob Dylan - Biograph (1985) compilation 1961-1981 5LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Folk Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side One:
-01. Lay, Lady, Lay
-02. Baby, Let Me Follow You Down
-03. If Not For You(   Читать дальше...   )Side One:
-01. Romance In Durango (Live)
-02. Señor (Tales Of Yankee Power)
-03. Gotta Serve Somebody(   Читать дальше...   )Жанр: Rock, Folk Rock, Blues RockПродолжительность: 03:28:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4837B27E6E20DF1EAA4CDD7435D9AAA3AED3CEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614917   (202370) от 23.02.2023
-
-Демонстрационный диск DTS 5.1 CD-Audio #13 (2023) [DTS 5.1 CD-DA|44.1/16|image+.cue] <Pop, Rock, Electronic...>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202370.jpg" />
-</div>
-
-
-###  Подробнее
-
-А вот и тринадцатый...
-Собирал отовсюду: и различные музыкальные форматы были задействованы, и звуковые дорожки клипов. Критерии отбора - прежние: нужно было, чтобы 1. музыка мне понравилась, и 2. многоканал был внятный. Исходный материал абсолютно разных лет.
-Все треки имеют шесть полноценных каналов звука.01. Avicii - Wake Me Up 04:32
-02. Depeche Mode - Leave In Silence 04:47
-03. Genesis - No Son Of Mine 06:37
-04. Britney Spears - Till The World Ends 03:57(   Читать дальше...   )Продолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:977F3BA82A08F8B6E33D38DAE216E03AAB36A4C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613599   (202261) от 25.02.2023
-
-Демонстрационный диск DTS 5.1 CD-Audio #12 (2023) [DTS 5.1 CD-DA| 44.1/16|image+.cue] <Pop, Rock, Electronic...>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вот и двенадцатый диск поспел...
-Собирал отовсюду: и различные музыкальные форматы были задействованы, и звуковые дорожки клипов. Критерии отбора - прежние: нужно было, чтобы 1. музыка мне понравилась, и 2. многоканал был внятный. Исходный материал абсолютно разных лет.
-Все треки имеют шесть полноценных каналов звука.01. Agnes - Release Me
-02. Lichtmond - Catching Rainbows
-03. Fun - Some Nights
-04. Katy Perry - Wide Awake(   Читать дальше...   )Продолжительность: 01:06:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBE6929F3BA08AFE62D6090A86A77BC0B3707722
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829272   (202040) от 25.10.2025
-
-Enigma - Коллекция из 4 альбомов [DSD128|1 Bit / 5644 kHz|Vinyl Rip] <Electronic, Ambient, New Age, Downtempo>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-The Gate (2:05)
-02-Push The Limits (6:35)
-03-Gravity Of Love (4:02)
-04-Smell Of Desire (4:49)(   Читать дальше...   )Жанр: Electronic, Ambient, New Age, DowntempoПродолжительность: 02:54:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB5A2A92CA80DDD61847CDCA19C791B5BFF3CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617270   (201677) от 07.03.2023
-
-Оркестр Поля Мориа - Бабье Лето (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201677.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Бразильский Карнавал · Brasilia Carnaval
-A2 Бабье Лето · L'ete Indien «Africa»
-A3 Мелиза · Melisa
-A4 Так Лучше · C'est Mieux Comme Ca(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCFFDA9286168ECDA880FD6ABE74EA3A11A2871
 ```
 
 https://mybot314.ru/tekegram_catalog/

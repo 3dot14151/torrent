@@ -1,3 +1,177 @@
+###  Публикация: 1752263   (103951) от 29.09.2024
+
+Serious Black - Studio Albums (7 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Serious Black - пауэр-метал группа из Германии.2015 - As Daylight Breaks
+2016 - Mirrorworld
+2017 - First Light
+2017 - MagicЖанр: Power MetalПродолжительность: 06:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF8A42B3E4B7A4262DCEF53C4D3A491DDEA4AEEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753030   (103886) от 03.10.2024
+
+Morgana Lefay (a.k.a. Lefay) - Studio Albums (10 releases) (1993-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103886.jpg" />
+</div>
+
+
+###  Подробнее
+
+Morgana Lefay - шведская трэш/пауэр-метал-группа из Боллнеса. В 1986 году была образована группа "Damage", которая в 1989 сменила название на "Morgana Lefay". В 1997 году группа разделилась, причём право на оригинальное название осталось у одной части, а желание исполнять музыку — у другой. В результате новая группа получила название "Lefay" (   Читать дальше...   )1993 - Knowing Just as I
+1993 - The Secret Doctrine
+1995 - Sanctified
+1996 - Maleficium(   Читать дальше...   )Жанр: Power/Thrash/Groove MetalПродолжительность: 09:28:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23A1FF9892AF579EFB3DC2FE988F2AC4B90003B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662711   (103820) от 05.10.2024
+
+Sylosis - Studio Albums (9 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal, Thrash Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sylosis — британская метал-группа из Рединга. Группа была основана в 2000 году гитаристом Джошем Миддлтоном и бас-гитаристом Карлом Парнеллом.2006 - Casting Shadows (EP)
+2007 - The Supreme Oppressor (EP)
+2008 - Conclusion of an Age
+2011 - Edge of the EarthЖанр: Melodic Death Metal, Thrash Metal, MetalcoreПродолжительность: 00:24:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCF3A624E8061F1237F9377BCDE3841CA01A4789
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753708   (103776) от 06.10.2024
+
+Twelve Foot Ninja - Studio Albums (6 releases) (2008-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Math Metal, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103776.jpg" />
+</div>
+
+
+###  Подробнее
+
+Twelve Foot Ninja — австралийская группа из Мельбурна, штат Виктория, исполняющая смесь из авангарда, альтернативного метала, фанка и мат-метала.2008 - New Dawn (EP)
+2010 - Smoke Bomb! (EP)
+2012 - Silent Machine
+2016 - OutlierЖанр: Progressive Metal, Math Metal, DjentПродолжительность: 03:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51237C2C33634F573D1C3D56111D1023A5DB5C7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754041   (103735) от 08.10.2024
+
+k.d. lang - Three Albums (1981-1990) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Country, Western Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103735.jpg" />
+</div>
+
+
+###  Подробнее
+
+00:42:28
+
+Side A:
+A1 Save Me(   Читать дальше...   )Жанр: Country, Western SwingПродолжительность: 02:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A53376C0D615700A1EF6434179825DD83BA0CFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756213   (103528) от 19.10.2024
+
+Cloudscape - Studio Albums (5 releases) (2005-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cloudscape — пауэр/прогрессив-метал группа из Хельсингборга, округ Сконе, Швеция, образованная в 1992 году под названием Doctor Weird. В 2001 году группа сменила название на Cludscape.2005 - Cloudscape
+2006 - Crimson Skies
+2008 - Global Drama
+2012 - New EraЖанр: Progressive/Power MetalПродолжительность: 04:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A9957E227473824EC69A5259CDDA4BBF08F008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1759212   (103302) от 07.11.2024
 
 Citizen Vicious - Studio Albums (3 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash 'n' Roll>
@@ -558,177 +732,6 @@ Terrifier - трэш-метал группа из Канады, основана
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A890C50D23FB662FE30E045530C55ED322E9D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766552   (101249) от 19.12.2024
-
-66crusher - Studio Albums (4 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101249.jpg" />
-</div>
-
-
-###  Подробнее
-
-66crusher - метал-группа из Норвегии, образована в 2000 году.2007 - Truth Unmasked
-2011 - Blackest Day
-2015 - Wanderer
-2023 - LimboЖанр: Progressive/Thrash MetalПродолжительность: 04:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FA50DA32A028335598A6B2D14258F6EE92C9CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766719   (101220) от 20.12.2024
-
-Anna Rustikano - Two Albums (1986, 1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Europop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Europop, DiscoПродолжительность: 01:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26C845A01E4662DE6B713C213989FC141584A4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766773   (101214) от 20.12.2024
-
-Pallbearer - Studio Albums (5 releases) (2012-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pallbearer — американская дум-метал группа из Литл-Рока, штат Арканзас, образованная в 2008 году.2012 - Sorrow And Extinction
-2014 - Foundations Of Burden
-2017 - Heartless
-2020 - Forgotten DaysЖанр: Doom MetalПродолжительность: 05:08:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F562F73833B68AE583C07F00ECC92C11B5C6E396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822603   (100931) от 07.10.2025
-
-Sebastian Bach - Studio Albums (5 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Себастьян Бах (Себастьян Филипп Бьёрк) — канадско-американский вокалист, наиболее известный как фронтмен группы Skid Row в 1987—1996 годах.2001 - Bach 2: Basics
-2007 - Angel Down
-2011 - Kicking & Screaming
-2014 - Give 'Em HellЖанр: Heavy Metal, Hard RockПродолжительность: 05:05:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8627A3B9280F79AD96A2796BD2135A7749CBCC96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822326   (100783) от 06.10.2025
-
-Sadist - Studio Albums (10 releases) (1993-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100783.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sadist — итальянская дэт-метал группа, образованная в Генуе, в январе 1991 года.1993 - Above The Light
-1996 - Tribe
-1997 - Crust
-2000 - LegoЖанр: Progressive Death MetalПродолжительность: 08:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1FC90CDE6CCD639F4E8086509105276C7A0045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609307   (94726) от 04.10.2025
-
-Hypocrisy (Peter Tagtgren) - Studio Albums (19 releases) (1992-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hypocrisy — шведская дэт-метал-группа, образованная в октябре 1991 года в Людвике Петером Тэгтгреном.1992 - Penetralia
-1993 - Osculum Obscenum
-1994 - The Fourth Dimension
-1996 - Abducted(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 17:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EDD972967DE30B65919EC0674281E68F29E04C
 ```
 
 https://mybot314.ru/tekegram_catalog/

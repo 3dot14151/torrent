@@ -1,3 +1,61 @@
+###  Публикация: 1616388   (1036449) от 02.03.2023
+
+Illmatic - Watching The World Burn (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Downfall [00:03:01]
+02. Rat Traps [00:03:33]
+03. Baptized In Hell [00:02:37]
+04. Price Of Life [00:02:15](   Читать дальше...   )Жанр: Rapcore, HardcoreПродолжительность: 00:29:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B6C721520677375ACE592A04DEF31F19C431370
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616376   (1036445) от 02.03.2023
+
+U.S. Girls - Bless This Mess (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Only Daedalus (00:03:29)
+02 - Just Space For Light (00:03:56)
+03 - Screen Face (00:03:20)
+04 - Futures Bet (00:04:52)(   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, SynthpopПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47A41D8825C8026EC75BC34D03DAC213D81A35F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616782   (1035871) от 04.03.2023
 
 Algiers - Shook (2023) [FLAC|Lossless|WEB-DL|tracks] <Post Punk>
@@ -687,64 +745,6 @@ The Smashing Pumpkins - CYR (2020) [FLAC|Lossless|image + .cue] <Alternative Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B47AB0C13BE23F104A3065523F57A442FB8E347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299923   (1026731) от 12.03.2021
-
-The Paper Kites - Collection 5 Albums (2013-2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop, Folk, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2013 - States
-2015 - twelvefour
-2018 - On the Corner Where You Live(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, Folk, Acoustic |Продолжительность: 03:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:850625B0BF160EC27C6B446F39ABEA61B650445A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453645   (1026545) от 13.03.2021
-
-Evanescence - The Bitter Truth (2021) Scene [FLAC|Lossless|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artifact/The Turn (02:27)
-02. Broken Pieces Shine (03:50)
-03. The Game Is Over (04:22)
-04. Yeah Right (03:29)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61BB14D2B967E94E82E5CBA16495940282A2AFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

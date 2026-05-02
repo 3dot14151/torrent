@@ -1,3 +1,59 @@
+###  Публикация: 985372   (934130) от 12.02.2016
+
+Bert H - Lazy Bastard EP (2016) [MP3|320 кб/с] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lazy Bastard (Original Mix)
+02. Emerald (Original Mix)Жанр: Drum & BassПродолжительность: 00:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2859D08AF022922F60F35C383FA8089FBF692206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985368   (934129) от 12.02.2016
+
+Greekboy & A.K.A - Mystical Melodies EP (2016) [MP3|320 кб/с] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Mystical Melodies (Original Mix)
+02 - Sweet Emotions (Original Mix)
+03 - Lonely Souls (Original Mix)
+04 - Encounter (Original Mix)Жанр: Drum & BassПродолжительность: 00:25:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D9085A74E0D3B8AD5979B64E06B3B0B7B74187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985728   (934127) от 12.02.2016
 
 Биатлон. Кубок Мира 2015-2016. 8 этап. Преск-Айл (США). Спринт 10 км  Мужчины (11.02.2016) HDTVRip [H.264/720p-LQ]
@@ -655,58 +711,6 @@ Atlas Corporation - The Ocean (2016) [MP3|320 Kbps] <Melodic Trance, Progressive
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3A5B5C963E83A8C9A365B6A88EBD48AF96DCB8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985684   (933945) от 12.02.2016
-
-Mozilla Firefox ESR 38.6.1 Portable by PortableApps [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933945.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Даная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56990DDA854B6555DBC9E2FE3AB7504ECFA1DFE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985634   (933943) от 12.02.2016
-
-Cyberfox 44.0.2 for Intel + Portable [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из лучших версий веб-браузера Firefox, имеющая 64-разрядную архитектуру, что делает ее быстрее, надежнее и стабильнее. Cyberfox использует Windows 8 SDK и оптимизирован под процессоры Intel. Браузер поддерживает дополнения и работает со своим профилем, отдельным от Firefox - это дает возможность использовать собственные закладки и историю.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1E06FAF1A91D7D7784291C5C3F349A5C81816AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

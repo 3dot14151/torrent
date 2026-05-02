@@ -1,3 +1,56 @@
+###  Публикация: 1069183   (375191) от 03.11.2016
+
+Проекты - VideoHive - Opener - 17717700 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opener - Проект для быстрого создания стильной презентации или промо.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2376B072B25578764EB08701AB1889A9737CD05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949700   (374527) от 24.10.2015
+
+Проекты - VideoHive - Elegant Broadcast Package [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374527.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо ролика, ТВ-шоу, вечеринки или любого мероприятия, к которому вы хотите добавить лоска.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E7459F3067083E89AFB4B0DDADF516F2DC68664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327547   (374126) от 25.09.2019
 
 VideoHive - Garage - Broadcast Pack - 23472141 [AEP]
@@ -624,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6003B11D94FAE923C710584F3FBE9379BE7B7947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 836559   (361331) от 01.11.2014
-
-VideoHive - One Day - 860185 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361331.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D-анимация. Прогулка мультяшного героя по городу. Две версии: пререндеренная и оригинальная, требующая плагин Trapcode Horizon. Превью - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDFB067A088547305B66A7F8949EF049ECDAA61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328790   (360661) от 01.10.2019
-
-ProShow Producer - Cooking Channel [PSH]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон презентация "Кулинарного Шоу"... Дерзайте!Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4EFB67953295F5D39B409964A64DA8D88CC058
 ```
 
 https://mybot314.ru/tekegram_catalog/

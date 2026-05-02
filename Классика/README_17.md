@@ -1,3 +1,32 @@
+###  Публикация: 1010170   (803621) от 24.04.2016
+
+Andre Rieu - Magic Of The Waltz (2016) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Windsor Waltz (6:14)
+02. The Blue Danube (8:01)
+03. The Merry Widow (3:05)
+04. Valse Triste (4:41)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7DD63BF4A1E943806D899B924F5959175D16D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1010711   (802037) от 25.04.2016
 
 Max Richter - Recomposed By Max Richter: Vivaldi - The Four Seasons (2012) [MP3|320 кб/с] <Modern Classical>
@@ -714,35 +743,6 @@ A3	Band 3: Menuetto: Moderato(   Читать дальше...   )Жанр: Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C311D4914A78901EEA13542F8A800A530B2C6B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203972   (784019) от 08.02.2018
-
-Beethoven - Alexander Gauk  Violin Concerto In D Major, Op. 61 (1955-1960)  [FLAC|Lossless|tracks] <Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Violin Concerto In D Major, Op. 61
-
-A	Allegro Ma Non Troppo
-B	Larghetto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FD81D856603513F877B78470B07969038E58A38
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1753397   (103845) от 04.10.2024
+
+Jimi Hendrix - Electric Lady Studios: A Jimi Hendrix Vision (2024) 3CD [MP3|320 Kbps] <Blues Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dolly Dagger (Mix 2) [04:20]
+02. Night Bird Flying (Alternate Version) [03:54]
+03. Freedom (Alternate Version / August 20, 1970) [03:27]
+04. Midnight Lightning / Beginnings [09:30](   Читать дальше...   )Жанр: Blues Rock, Psychedelic RockПродолжительность: 03:13:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C381175BCF66382CA9157A8D0E28A1FE1C24839C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753884   (103762) от 08.10.2024
 
 Chicago - Chicago At The John F. Kennedy Center For The Performing Arts, Washington D.C. (1971) Live, 2024, Rhino [MP3|320 Kbps] <Rock>
@@ -789,41 +818,6 @@ ______________________________
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:500F9C8D703C9160C5AD74E44CDB87446076C6CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459346   (95410) от 04.03.2012
-
-Charlie Straight - Someone With a Slow Heartbeat (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How do you like my earrings (03:14)
-02. Changing trains (04:11)
-03. Dear Jack & Stacey (03:24)
-04. Tiger in your heart (04:59)
-05. Coco (03:41)
-06. Too many knives (03:14)
-07. Something new (05:42)
-08. Someone with a slow heartbeat (05:07)
-09. Stuck in the mud (04:12)
-10. Institutions of the World (05:31)(   Читать дальше...   )2012Жанр: RockПродолжительность: 00:49:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0F1E3019904A80CCA2908A4A6847D1730528D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,222 @@
+###  Публикация: 1154344   (538695) от 31.07.2017
+
+VA - Romantic Collection - Instrumental Vol. 2 (2000) [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris-France-Transit - Souvenir From Rio [04:20]
+02. Santana - I Love You Much Too Much [04:41]
+03. Armik - Dancing Shadows [04:44]
+04. Richard Clayderman - La Cumparsita [03:13](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC4BA796A26E42CAFB9F39C965B130B99F5CF6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532378   (538560) от 07.08.2012
+
+Nazca - Indians, Songs, Nature, Dreams (2002) [MP3|192 кб/с]<Native American,Panflute,Instrumental,>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buffalo Moon
+02. Brave Hearts
+03. Dream Catchers
+04. Geronimos Laughter
+05. Ly - O - Lay Ale Loya The Counterclockwide Circle Dance
+06. Come Faithful Ones
+07. Wishes Of Happiness & Prosperity
+08. Dawa The Cradlesong
+09. Montezuma
+10. May It Be(   Читать дальше...   )Жанр: Native American,New Age,Panflute,Instrumental,Продолжительность: 00:53:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AD5667E18CE2FF25A72BA47B829AFAB1ACCF8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532252   (538244) от 07.08.2012
+
+Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/с (V2)]<Folk,Барабаны,Шоу,Япония>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beginnings
+2. Poeme Du bambou
+3. Hachijo
+4. Yamagoe
+5. Eisa
+6. Yuzuru
+7. Odaiko
+8. Yatai BayashiЖанр: Folk,Барабаны,Шоу,ЯпонияПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050430   (538158) от 08.09.2016
+
+Anhidema - Le Retour Du Anunnaki (2016) [MP3|320 Kbps] <New Age, Space, Spiritual Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Legendaire
+03. Metamorphosis
+04. Babylonia(   Читать дальше...   )Жанр: New Age, Space, Spiritual ChilloutПродолжительность: 01:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99B099BE26930B2E0E7CC081FD13A98D1F770EAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311414   (538126) от 01.07.2019
+
+Erin Durant - Islands (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rising Sun (05:51)
+02. Highway Blue (03:57)
+03. Sand Dunes (05:17)
+4. Good Ol Night (06:40)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C51DED18E1461E34A850F8016636464243169EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050414   (538085) от 08.09.2016
+
+The Henningsens - World's on Fire (2016) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sugar Rush (3:00)
+02 - Love You Til the End (3:01)
+03 - World's on Fire (4:22)
+04 - Texas Is a Woman (3:56)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A557008FFBBD100557CB1C93257BEF3C4BA22CB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532212   (538066) от 07.08.2012
+
+James Last - James Last and his Orchestra play music of Andrew Lloyd Webber (1993) [MP3|320 кб/с]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538066.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. With One Look (4:48)
+ 2. Jesus Christ Superstar (4:49)
+ 3. Memory (6:53)
+ 4. I Don't Know How To Love Him (4:10)
+ 5. Music Of The Night (4:28)
+ 6. Any Dream Will Do (4:28)
+ 7. Love Changes Everything (4:15)
+ 8. Don't Cry For Me Argentina (6:47)
+ 9. Tell Me On A Sunday (4:19)
+ 10. Take That Look Of Your Face (3:59)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:02:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECBE08DADAA00BA6153BDE2B124C3FA23D8AB2D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310637   (538018) от 01.07.2019
 
 VA - A Native American Odyssey- Inuit to Inca (1998) [MP3|320 Kbps] <Native American, World, Folk>
@@ -561,219 +780,6 @@ Kevin Kern - When I Remember (2016) [MP3|320 Kbps] <New Age, Piano>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE61A1A1D4EB314D098D873E245C7EBE4F5CFA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051132   (532546) от 11.09.2016
-
-Dario Marianelli & Regina Spektor - Kubo and the Two Strings / Кубо. Легенда о самурае (2016) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Impossible Waves
-02. Kubo Goes to Town
-03. Story Time
-04. Ancestors(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:53:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:069ACE10DD726C5265120A7C2839F026F6A6791F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533245   (532403) от 10.08.2012
-
-Blackmore’s Night - A Knight In York (2012) [WavPack|Lossless]<Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Locked Within The Crystal Ball (8:36)
-02. Glided Cage (4:18)
-03. The Circle (7:18)
-04. Journeyman (6:58)
-05. World of Stone (6:14)
-06. The Peasant's Promise (5:11)
-07. Toast to Tomorrow (4:49)
-08. Fires at Midnight (9:44)
-09. Barbara Allen (5:27)
-10. Darkness (3:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 819641   (531903) от 08.09.2014
-
-Jason Graves - Dead Space 2 (2011) Collector's Edition [FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Isaac, Are You There
- 02 - Padded Room With A View
- 03 - Hospital Escape
- 04 - The Cassini Towers(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EAD8FEEB5669843BCEAFCD3D90CBA1CEC39782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527715   (531779) от 10.08.2012
-
-Шаг Вперед 4 / Step Up Revolution (2012) [MP3|320 кб/с]<Soundtrack / Unofficial Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nalepa - Monday (The Glitch Mob Remix) (6:29)
-02. Yung Joc -Hear Me Coming (3:57)
-03. Haley Reinhart - Undone (3:49)
-04. Heavy - How You Like Me Now (Album Version) (3:37)
-05. Elisa - Dancing (5:11)
-06. Kid Cudi - Man On The Moon (3:32)
-07. Stellamara -Prituri Se Planinata (Nit Grit Remix) (5:53)
-08. M83 - Wait (5:43)
-09. The Irrepressibles -In This Shirt (5:35)
-10. edIT - Ants (4:05)(   Читать дальше...   )Жанр: OST / Unofficial Soundtrack |Продолжительность: 01:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E65533EFCCDB73A6066FB049B8FA02DA9431D8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926290   (531620) от 11.08.2015
-
-Joga Dass - Die Erzengel (2007) [WavPack|image+.cue]<Meditative, Chakraphon-Musik>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael/B94 05:50
-02. Gabriel/B95 05:23
-03. Raphael/B96 05:03
-04. Uriel/B97 05:23(   Читать дальше...   )Жанр: Meditative, Chakraphon-MusikПродолжительность: 01:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA4643EF46D618A56AB658294C200F4D116F041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926819   (531614) от 11.08.2015
-
-VA - Om Yoga Vol. 1, 2: Modern Music for Vinyasa/Flow  (2011-2013) 2CD [MP3|320 кб/с]<Lounge, Chillout, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocket Empire – Beijing
-02. Caravane – Lah Ihanikom
-03. Rocket Empire – Simmer Down Jammie
-04. Charlie Tate – Ramsden Road(   Читать дальше...   )Жанр: Lounge, Chillout, New AgeПродолжительность: 01:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15572B960A42992C5BCA1D5090973378793C35B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 367971   (531453) от 26.07.2011
-
-Ustad Abdul Halim Jaffer Khan - Enchanting Sitar (1978) [MP3|320 kbps] <Sitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531453.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Raga Aarabi (19:01)
-02.  Raga Multani (19:32)Жанр: SitarПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FAB4C873462871670A26BAD0C97A8BAB13E2423
 ```
 
 https://mybot314.ru/tekegram_catalog/

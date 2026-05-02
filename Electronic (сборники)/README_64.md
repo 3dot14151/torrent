@@ -1,3 +1,61 @@
+###  Публикация: 1211534   (777156) от 08.03.2018
+
+VA - Hed Kandi - 169 Best House Tracks In The Past 15 Years (2017) [Compiled by Firstlast] [MP3|320 Kbps] <Deep House, Nu-Disco, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пpодолжительность: 03:36:07
+01. DJ Spen & The MuthaFunkaz present Marc Evens - Given Me Joy (Lovebirds Suite Vocal) [6:38]
+02. Kaori - Goodlife (Good Vocal Mix) [5:29]
+03. Ralph Myerz And The Jack Herren Band - Think Twice [6:15](   Читать дальше...   )Жанр: Deep House, Nu-Disco, Funky HouseПродолжительность: 16:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CE76764C18B9EFAC939F9987199D83EC56FC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013900   (776969) от 06.05.2016
+
+VA - Girls like Summer Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elevator Speach - Beyond the Woods - Kiss Mix
+02. Pilots on Strike - Broken Flowers - Buddha Lounge Cafe Bar Mix
+03. Chinatown Perls - Bells of Eternity - Catch 22 Edit
+04. Purple Owl - Ola! Ola! - Hello Clouds Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04BFEA0216EE9943019F9A806638F5E58F8CDCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014075   (776966) от 06.05.2016
 
 VA - Trance Eve Volume 68 (2014) [MP3|320 кб/с] <Vocal Trance, Uplifting Trance>
@@ -687,64 +745,6 @@ VA - European Disco EDM (2016) [MP3|320 кб/с] <House, Trance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:009E6B270FC73E4E7FD7C7C367382D3C5A289B21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014706   (776149) от 08.05.2016
-
-VA - Beatport Top 100 Tech House April (2016) [MP3|320 кб/с] <Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776149.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.CamelPhat - Make 'Em Dance (Original Mix) (5:45)
-002.Superlover - The Talking Machine (Original Mix) (7:06)
-003.Dennis Cruz - See Line (Wade Remix) (6:15)
-004.Mark Knight vs LVD - Fall Down On Lee (Original Mix) (6:43)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 11:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C31029DFBF4D5B88B6FB281DEA706CF872D04E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1212339   (776136) от 11.03.2018
-
-VA - Progressive Tech House: Club Essentials (2018) [MP3|320 Kbps] <Progressive House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776136.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bontan - Personal Question (Original Mix) 06:22
-002. Joscha Rickert - Wing 03:06
-003. Ramit - Rendz-evous 05:39
-004. Joel Fuel - Jazz 03:06(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 08:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12CED9A3B32827FFEBDE887D72E8281B996B6F7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

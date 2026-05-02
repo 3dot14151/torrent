@@ -1,50 +1,110 @@
-###  Публикация: 1790758   (68034) от 10.04.2025
+###  Публикация: 1784339   (69582) от 10.03.2025
 
-Фоны - Felicitube - Creative Fabrica - Blue Gold Marble Digital Paper Backdrops [JPG]
+Yes - Close to the Edge (1972) Super Deluxe Edition, 2025, Rhino Atlantic [FLAC 24/96, 24/192|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Close to the Edge: i. The Solid Time of Change, ii. Total Mass Retain, iii. I Get up I Get Down, iv. Seasons of Man (2025 Remaster) [18:44]
+02 - And You and I: i. Cord of Life, ii. Eclipse, iii. The Preacher the Teacher, iv. Apocalypse (2025 Remaster) [10:13]
+03 - Siberian Khatru (2025 Remaster) [8:58]Жанр: Rock, Progressive RockПродолжительность: 00:37:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFAB7A145BCE833DE7F1F2C275036E0D9922835E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784368   (69581) от 10.03.2025
+
+Татьяна Валухина | В прошлой жизни мы были любовниками (2025) [MP3, Светлана Письмиченко, Александр Лыков]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Татьяна Валухина пишет неожиданные и удивительные по замыслу драматургические произведения. По её книгам ставились радиоспектакли, которые неоднократно звучали по Радио РОССИИ. Печаталась в журналах «Новая юность» (2000), «Психология на каждый день» (2007-2008).
+
+Пьеса «В прошлой жизни мы были любовниками» – незнакомая женщина приходит (   Читать дальше...   )Жанр: Русская литература, пьесаИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6697287F40F4D8822AF21A94B2BB01E9E7A202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784187   (69580) от 10.03.2025
+
+Third Realm - Her Name Was Melancholia (2025) [MP3|320 Kbps] <Darkwave, EBM, Goth, Industrial>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vade Retro Satana (3:32)
+02. Eva’s Eulogy (2:12)
+03. Doom & Gloom (3:45)
+04. Graveyard Serenade (3:38)(   Читать дальше...   )Жанр: Darkwave, EBM, Goth, IndustrialПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:550246F9D5797409C7D36FB6A5BC8D00DA558052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784361   (69579) от 10.03.2025
+
+Шрифты - Authentype - Row Vaticano [OTF, TTF. WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68034.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69579.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесплатные фоны под мрамор.Формат: JPGРазрешение файлов: 4096 x 4096
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CB0B94FA8F475A7F4007B1F32BB271BD0B5957A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790714   (68033) от 10.04.2025
-
-И.И. Новошинский, Н.С. Новошинская | Органическая химия. Учебник для 11 (10) класса  (базовый уровень) (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебник «Органическая химия» базового уровня для общеобразовательных организаций соответствует Федеральному государственному образовательному стандарту среднего (полного) общего образования.
+Row Vaticano — чистый и минималистичный шрифт без засечек, призванный привнести ощущение легкости и изысканности в любой проект.
 
-В основу построения курса положена классификация органических соединений по функциональным группам. При отборе фактического материала в первую очередь учитывалась практическая (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: Русское слово - учебникФормат: PDFКачество: Изначально электронное (ebook)
+Кириллица поддерживается.Формат: OTF, TTF. WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AA6721D95CF070A27BD63C8EB8F7AC677EADED8
+magnet:?xt=urn:btih:E79310F897B9C74BCACD795C2AD0A47FF5C99759
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,25 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790711   (68032) от 10.04.2025
+###  Публикация: 1784392   (69578) от 10.03.2025
 
-И.И. Новошинский, Н.С. Новошинская | Химия. Учебник для 10 (11) класса  (углублённый уровень) (2018) [PDF]
+Bluebird, His Hot Combo - Miss Bad Valentine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69578.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Материал учебника направлен на обобщение и углубление знаний, полученных учащимися в курсе химии 8–9 классов. В учебнике изложены теоретические основы общей химии: современные представления о строении атома и природе химической связи; основные закономерности протекания химических процессов, в том числе электролиза, коррозии; общие свойства неметаллов и металлов; (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: Русское слово - учебникФормат: PDFКачество: Изначально электронное (ebook)
+01.  Miss Bad Valentine (3:49)
+02.  Taiji Blues (3:43)
+03.  Brand New Woman (Live in Studio) (4:15)
+04.  Spinnin' Ball (2:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2B63A66354AA786BC8041E0BEF8C63E5654B594
+magnet:?xt=urn:btih:C5DCC297F2296A8FE5DFF24D888F749522C3E825
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,80 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790729   (68031) от 10.04.2025
+###  Публикация: 1784241   (69577) от 10.03.2025
 
-Л. Э. Генденштейн, Л. А. Кирик | Физика. 9 класс. Самостоятельные и контрольные работы (2020) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Настоящий сборник содержит 28 самостоятельных и 5 контрольных работ, по 4 варианта каждая. При составлении заданий использовался метод исследования ключевых ситуаций, являющийся методической основой УМК по физике издательства «БИНОМ. Лаборатория знаний» авторов Л. Э. Генденштейна, А. А. Булатовой, И. Н. Корнильева и А. В. Кошкиной. Самостоятельные рассчитаны примерно (   Читать дальше...   )Жанр: Учебное пособиеЯзык: РусскийИздательство: БИНОМ. Лаборатория знанийФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663B6901DEAF961493AF298E92A0ABB13320E777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790760   (68030) от 10.04.2025
-
-Фоны - Graphic Studio - Creative Fabrica - Free Grunge Marble Backgrounds [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68030.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатные фоны под мрамор.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F36D9A390A7E62F7F31FC2112A9EC4BB5BDE90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790660   (68029) от 10.04.2025
-
-Derek MC Gowan - Rainlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Livingston - A Hometown Odyssey (2024) The Story Continues, 2025, Big Up Entertainment - Livingston [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68029.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69577.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Rainlight (4:49)
-02.  The Man in the Suit (5:08)
-03.  Johnny's Gone (3:44)
-04.  The Boys (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:50
+01. Introduction [00:01:52]
+02. Shadow [00:02:37]
+03. Surprise! [00:02:25]
+04. Last Man Standing [00:03:03](   Читать дальше...   )Жанр: PopПродолжительность: 2 CD, 01:07:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AD08C2CC40A9AF0817A982EFD18FA61524536C1
+magnet:?xt=urn:btih:4EA2048A0905308422DDD99CCF0CDF0F137FF01A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -159,28 +170,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790743   (68028) от 10.04.2025
+###  Публикация: 1784326   (69576) от 10.03.2025
 
-Mood Waves Record - Gentle Spring Notes Filling the Air (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Smooth Jazz>
+Stinking Lizaveta - Slaughterhouse (1997) Remaster, 2025, SRA Records[FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Jazz, Stoner Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68028.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69576.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Springtime Café Moments with Smooth Jazz (2:05)
-02. Soft Jazz Piano for a Peaceful Spring Day (2:46)
-03. Slow Coffee, Soft Jazz, and Spring Sunshine (2:06)
-04. Sunlit Coffee Time with Smooth Piano (1:10)(   Читать дальше...   )Жанр: Jazz, Smooth JazzПродолжительность: 00:23:45
+01. Slaughterhouse [00:06:22]
+02. Vicious Circle [00:05:37]
+03. Sex Emergency [00:03:21]
+04. Ultimate Ass Kicking [00:04:07](   Читать дальше...   )Жанр: Doom Jazz, Stoner MetalПродолжительность: 00:53:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79AB59E208E0713BC11F1DE008328A9157846117
+magnet:?xt=urn:btih:035CCE4A7E8EE774035C200E67DE0EDC396AFDE4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,260 +199,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790651   (68027) от 10.04.2025
+###  Публикация: 1784318   (69575) от 10.03.2025
 
-A.J. Croce - Heart of the Eternal (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Got a Feeling (2:29)
-02.  On a Roll (2:53)
-03.  Reunion (4:42)
-04.  Complications of Love (3:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68A29850684138CEA5DE7311A07FDEB2265ECE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790717   (68026) от 10.04.2025
-
-Voice Of The Beehive - Honey Lingers (1991) Remastered and Expanded, 2025, Because Ltd [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Monsters And Angels (00:03:37)
-02 - Adonis Blue (00:03:39)
-03 - I Think I Love You (00:03:10)
-04 - Look At Me (00:03:01)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 02:17:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADB98C8B6FC118719DB0867879C98B625D106E94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790658   (68025) от 10.04.2025
-
-Dee Brown - Mister Smooth (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mister Smooth (3:38)
-02.  Wes 8Mile (4:09)
-03.  The Thing Is... (4:00)
-04.  We Are Family (3:50)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA68FD6C75743B4A341F81267C8AC349F3F558C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790721   (68024) от 10.04.2025
-
-Eternal Thirst - The Nesting of Chaos (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Man Walking (Intro) (01:21)
- 02. Greedy Demon (06:37)
- 03. Moulder (03:37)
- 04. Witch Child (05:48)(   Читать дальше...   )Жанр: Power Metal, Female VocalПродолжительность: 00:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C90555FC97A912451EA9DA7ADF4D85CBA8C1D433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790720   (68023) от 10.04.2025
-
-Bellwether Breaks - Prove It To Me (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68023.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prove It To Me (4:58)
-02. Balls And Chains (3:20)
-03. About A Girl (3:37)
-04. Mr. Stupid Shoes (5:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0AE322F30238537B9BAE148238D0FFDAC598A83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790684   (68022) от 10.04.2025
-
-Лидия Чарская | Записки институтки (2024) [MP3, Полина Красавина]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68022.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лидия Алексеевна Чарская (1875–1937) самая популярная и любимая детская писательница ХХ века, её сказки переведены на многие языки мира.
-Повесть «Записки институтки» (1901) Лидии Чарской, написанная на основе её воспоминаний об учёбе в Павловском институте благородных девиц.
-
- Лидия Чарская на NoNaMe ClubЖанр: Русская литература для детей, классика, повестьИздательство: Радио России – Санкт-ПетербургПродолжительность: 02:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BE95C580C0773D5938A016A32DC9B0F0F5099BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790654   (68021) от 10.04.2025
-
-Dave Mason - A Shade Of Blues (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68021.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Joe Bonamassa - Use It, Or Lose It (4:08)
-02.  Come Home In My Kitchen (3:00)
-03.  MICHAEL MCDONALD - It's Just You And Me (3:13)
-04.  Cocaine Blues (2:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74EE5B31790CCA68E16C849DA0074CB5B2EC0B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790655   (68020) от 10.04.2025
-
-Deafheaven - Lonely People With Power (2025) [FLAC|Lossless|image + .cue] <Blackgaze, Post-Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68020.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Incidental I 0:56
-02. Doberman 6:34
-03. Magnolia 4:14
-04. The Garden Route 5:48(   Читать дальше...   )Жанр: Blackgaze, Post-Black MetalПродолжительность: 01:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CCEB55CFE4C2D6F7F58C69C755F55CEE3CC7B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790640   (68019) от 10.04.2025
-
-VA - Espresso Pronto Napoli! (Bella Musica Lounge Italiana) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, , Smooth Jazz>
+Kenny Burrell - Four Classic Albums (1957 - 1959) 2CD, 2023, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Guitar Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68019.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69575.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Melania - Resta cu' mme (4:57)
-02.  Chiara Civello - Tu Si Na Cosa Grande (4:26)
-03.  Francia Damore - Un Giorno Che Non Va (3:56)
-04.  Fred Buccini - Nun è peccato (3:47)(   Читать дальше...   )Жанр: Lounge, , Smooth JazzПродолжительность: 01:21:42
+01. Birk's Works [9:48]
+02. Hallelujah [11:42]
+03. Lady Be Good [9:59]
+04. Lover Man [8:22](   Читать дальше...   )Жанр: Bop, Hard Bop, Guitar JazzПродолжительность: 02:39:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08C1BC1BBFC19FEAB0BF88B9C1CD4E4373B3FC12
+magnet:?xt=urn:btih:539258FFB87BA4A46C8682635CB258AE30688C92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,28 +228,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790735   (68018) от 10.04.2025
+###  Публикация: 1784378   (69574) от 10.03.2025
 
-VA - Trance Fusion, Vol. 09 (2025) [MP3|320 Kbps] <Trance>
+Из темноты / Out of the Darkness (1915) WEBRip [H.264/720p]
 
->>Electronic
->>Trance
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68018.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69574.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ICARUS PROJECT - Echoes Of The Maelstrom (Radio Edit) [4:07]
-02. Chris Krystal - Guilty Art (Radio Edit) [4:31]
-03. Michael ACE & Gabasso - Stellar (Radio Edit) [2:48]
-04. DJ John Bastian - In Search Of A Purpose (Radio Edit) [4:04](   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:43
+Социальная драма. О бесчеловечных капиталистах и несчастных рабочих. Хелен Скотт осталась единственной владелицей Scott Canneries после смерти отца, но, будучи слишком увлеченной общественными делами, она оставляет управление делами производства своему жесткому дяде и обращается к нему только тогда, когда ей нужны деньги. Харви Брукс, управляющий филиалом консервных (   Читать дальше...   )Производство: США / Jesse L. Lasky Feature Play CompanyЖанр: драма, немое киноРежиссер: Джордж МелфордАктеры: Шарлотта Уолкер, Томас Миган, Марджори Доу, Хэл Клементс, Том Форман, Лойола О’КоннорПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:51:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB99702291B919B194AAE7963667AF33514D0246
+magnet:?xt=urn:btih:0BF655ED91B7684F272C56FDA6556386A7C8D224
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,28 +254,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790642   (68017) от 10.04.2025
+###  Публикация: 1784285   (69573) от 10.03.2025
 
-VA - El mes del Rock - Abril 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Irony Of Fate - Equinox (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal, Groove Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69573.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Andrés Calamaro - Cuando te conocí (3:20)
-02.  Twenty One Pilots - Stressed Out (3:22)
-03.  Fito Páez - Mariposa tecknicolor (3:42)
-04.  La Unión - Lobo hombre en Paris (3:52)(   Читать дальше...   )Жанр: RockПродолжительность: 01:48:51
+01 - Equinox Nights [4:12]
+02 - Roll The Dice [4:25]
+03 - Sinner / Saint [5:15]
+04 - The Morningstar [4:33](   Читать дальше...   )Жанр: Melodic Death Metal, Groove MetalПродолжительность: 00:46:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C40FBB43B909FC0D8B8128C5FD4A0F844DB06CD
+magnet:?xt=urn:btih:0460E836660AA297FEDAD0463983963938FC7972
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,28 +283,144 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790747   (68016) от 10.04.2025
+###  Публикация: 1784287   (69572) от 10.03.2025
 
-Nicolas Santana - Bathe In The Sun (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Александр Пушкин | Барышня-крестьянка (Инсценировка) (2024) [MP3, Александр Аравушкин, Станислав Концевич и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69572.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+«Барышня-крестьянка» – повесть А.С. Пушкина из цикла «Повестей покойного Ивана Петровича Белкина», написанная в 1830 году и изданная в 1831 году.
+(   Читать дальше...   )Жанр: Русская литература, классика, повестьИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E0E3A99B4030A381E521FC3B00558756679EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784405   (69571) от 10.03.2025
+
+Citizen Jones - Downtown Ways (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Early In The Morning (3:52)
+02.  Hard Times (2:53)
+03.  Downtown Hood Liquor Store (4:33)
+04.  Four In The Morning (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84BF84E88B8F5C3B997676D8B42C4DA4FFE92224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784338   (69570) от 10.03.2025
+
+Футбол. Чемпионат МИР РПЛ 2024/25 19-тур. Краснодар - Крылья Советов (01.03.2025) IPTVRip [H.264]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Краснодар в случае победы может стать единоличным лидером и возглавить таблицу. Крылья будут биться и постараются набрать очки.
+
+Чемпионат МИР РПЛ 2024/25 19-тур Краснодар - Крылья Советов (01.03.2025)
+Стадион: Краснодар(   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболПродолжительность: 01:56:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03C4B0D9F5B8EBEAAAFAED0D0E5E2037C94A9980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784407   (69569) от 10.03.2025
+
+Daddy Mack Blues Band - Doctor's Orders (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Let Me Pull A Few Strings (3:27)
+02.  Boss's Wife (2:18)
+03.  Doctor's Orders (3:05)
+04.  Givin' Up On Givin' In (3:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73F83ED5856D72E95C2106430D9C44C74FD891DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784252   (69568) от 10.03.2025
+
+The Wildhearts - Satanic Rites of The Wildhearts (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard rock, heavy metal, pop rock, punk rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69568.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sweet Dystopia (4:15)
-02. Non-Existence (4:03)
-03. You Don't Need Me Anymore (4:31)
-04. I'm Not Sad For Your Departure (3:30)(   Читать дальше...   )Жанр: RockПродолжительность: 00:34:57
+01. Eventually [00:06:15]
+02. Scared Of Glass [00:05:16]
+03. Troubadour Moon [00:04:39]
+04. Fire In The Cheap Seats [00:04:31](   Читать дальше...   )Жанр: Hard rock, heavy metal, pop rock, punk rockПродолжительность: 00:45:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CDC6FDF806B74B4FDFBE82DB3FF529B33CBBE50
+magnet:?xt=urn:btih:03028903677D24129CA29BE290C51710838A5341
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -536,196 +428,311 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790641   (68015) от 10.04.2025
+###  Публикация: 1784426   (69567) от 10.03.2025
 
-VA - Noches de Jazz Latino (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Шрифты - Creative Market - Castiron - Vintage Font - 290836379 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69567.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семейство шрифтов Castiron — это коллекция из трех отдельных шрифтов, призванных воплощать непреходящее очарование винтажной типографики.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62243AAEDA861E600951D828231498EA753D5938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784312   (69566) от 10.03.2025
+
+Tokimonsta - Eternal Reverie (2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Alternative, Electronic, Experimental Hip-Hop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eternal [00:02:07]
+02. Lucky U [00:02:50]
+03. On Sum [00:03:19]
+04. Warm Water (Interlude) [00:01:53](   Читать дальше...   )Жанр: Alternative, Electronic, Experimental Hip-HopПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F305D19C54C4643813EDF37C02261A0839F566C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784270   (69565) от 10.03.2025
+
+Leaves' Eyes - Myths of Fate (2024) Orchestral Version, 2025, AFM Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Forged by Fire (Orchestral Version)
+02 – Realm of Dark Waves (Orchestral Version)
+03 – Who Wants to Live Forever (Orchestral Version)
+04 – Hammer of the Gods (Orchestral Version)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29D733FC4BFB3F5A902C4A7A67BF024820640F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784401   (69564) от 10.03.2025
+
+Chris Bell & 100% Blues - Blues 2001 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Down Home Cookin' (3:05)
+02.  Ain't Seen Nothing Yet (2:59)
+03.  Elevator to Heaven (9:00)
+04.  Mr. Chill (2:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0808709972266DA5294F7F8885DE2387B026AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784353   (69563) от 10.03.2025
+
+НХЛ 2024-2025. Сиэтл Кракен - Вашингтон Кэпиталз (09.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69563.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 марта 2025, воскресенье. 22:30 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Келли Сазерлэнд (Ричмонд, Канада); Главный судья: Морган Макфи (Канада); Линейный: Райан Дейзи (Мансфилд, США); Линейный: Томми Хьюз (Лондон, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC95F3DB6199C0DC6930014813897D2A3AB7353D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784316   (69562) от 10.03.2025
+
+Saraya - Gypsy Child (1989) Remastered, 2025, OLD BOY [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get U Ready [00:03:10]
+02. Gypsy Child [00:04:33]
+03. One Night Away [00:04:35]
+04. Alsace Lorraine [00:00:51](   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07725DB408358F614270B755182E78CE58A31924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784311   (69561) от 10.03.2025
+
+Шрифты - Creative Fabrica - Valentine Romantic Font - 2619719 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Valentine Romantic — это веселый, милый и невероятно очаровательный шрифт.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AE0AA120BEDA871CCF7D43317F3DF60C5837AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784281   (69560) от 10.03.2025
+
+Jinjer - Duel (2025) [FLAC|Lossless|tracks + .cue] <Metalcore, Progressive Metal, Groove Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tantrum
+02. Hedonist
+03. Rogue
+04. Tumbleweed(   Читать дальше...   )Жанр: Metalcore, Progressive Metal, Groove MetalПродолжительность: 00:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A5B6A9B2ECC015D2F3FC00F280AE4F1F58745A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784319   (69559) от 10.03.2025
+
+Шрифты - Creative Market - Cadia - Classic Serif Font - 290899717 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот шрифт отличается сбалансированной пропорцией толщины и тонкости штриха, создавая привлекательные и легко читаемые визуальные образы. Этот современный стиль с засечками часто характеризуется смелым различием между толстыми и тонкими линиями, что обеспечивает сдержанный, но все же выделяющийся штрих.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD04895356396C6681D0BEF508AEF586E1CDE03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784356   (69558) от 10.03.2025
+
+НХЛ 2024-2025. Питтсбург Пингвинз - Миннесота Уайлд (09.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69558.jpg" />
+</div>
+
+
+###  Подробнее
+
+9 марта 2025, воскресенье. 22:30 МСК. Стадион: Эксел Энерджи-центр (Сент-Пол, США), 18 717 зрителей (91% при вместимости 20 554)
+Главный судья: Майкл Маркович (Скарборо, Канада); Главный судья: Франсис Шаррон (Оттава, Канада); Линейный: Марк Шевчук (Канада); Линейный: Джеймс Тобиас (Баффало, США)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD2495BAB4AA3B281975649B2438CBA22BCA93ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784320   (69557) от 10.03.2025
+
+Art Pepper - Straight Life: The Savoy Sessions (1986) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69557.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Gato Barbieri - Europa (Earth's Cry, Heaven's Smile) (4:26)
-02.  Chucho Valdés - La Comparsa (6:57)
-03.  Candido - Mambo Inn (4:54)
-04.  Chano Dominguez - Ay Amor (4:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:31:55
+01. Straight Life [2:54]
+02. Chili Pepper [2:59]
+03. Cinnamon [3:09]
+04. Tickle Toe [2:53](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:42:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8D66EC45F9AD3A756137120111C02DADBDCD12A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790801   (68014) от 10.04.2025
-
-Smart AudioBook Player Pro v11.2.2 Mod by Kirlif' [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: ProРелиз состоялся: 10.04.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481CF69B6E2C7B7A818F10034C6577C5A119495C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790667   (68013) от 10.04.2025
-
-Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [FLAC|Lossless|WEB-DL|tracks] <House, Electro House, Dance-pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beat Goes On (Roger Sanchez Remix) [00:06:56]
-02. Kiss My Eyes (Angel Moraes Remix) [00:04:55]
-03. Sexy Dancer (Harlem Hustlers Remix) [00:07:42]
-04. Kiss My Eyes (Radio Slave Remix - Dub) [00:10:14](   Читать дальше...   )Жанр: House, Electro House, Dance-popПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DECB48988E3FF470A05873264C8488E34561D861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790690   (68012) от 10.04.2025
-
-Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [MP3|320 Kbps] <House, Electro House, Dance-pop>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Beat Goes On (Roger Sanchez Remix) [00:06:56]
-02. Kiss My Eyes (Angel Moraes Remix) [00:04:55]
-03. Sexy Dancer (Harlem Hustlers Remix) [00:07:42]
-04. Kiss My Eyes (Radio Slave Remix - Dub) [00:10:14](   Читать дальше...   )Жанр: House, Electro House, Dance-popПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36CAF92900269411F76EEF9BE48BD63A7884A4CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790708   (68011) от 10.04.2025
-
-VA - Hypnotized [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malive - Quintal (Emanuel Satie, Tim Engelhardt Remix)
-02. Maz BR, Antdot, Ginton, Layefa - Jolie Fille (Original Mix)
-03. Michael Ritter & Chris Zippel - Shut Off The Lights (Return To Saturn Extended Remix)
-04. Rodrigo Lapena - Ether (Alan Cerra Remix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:952E0AC7CF294A008AB729E51C5F46345FC83F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790568   (68010) от 10.04.2025
-
-Газета | Загадки истории №12 (638) (2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68010.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22180A4834773C349C19AE0EB80FB0EE900D11BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790727   (68009) от 10.04.2025
-
-FeProject - Love Changes The World (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Changes The World (4:16)
-02. The Option (3:41)
-03. Parallel (4:28)
-04. Believe (4:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F5F89065D709EFB308E4B50D5857E3403199294
+magnet:?xt=urn:btih:97BFAD4E79B25910A94759F237B18AD19D9D084F
 ```
 
 https://mybot314.ru/tekegram_catalog/

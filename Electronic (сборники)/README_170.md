@@ -1,3 +1,61 @@
+###  Публикация: 959133   (319489) от 23.11.2015
+
+VA - White Chill-Out Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Bailey - Kafan - Radio Edit
+02. Bastian Clark - Take a Break - Original Mix
+03. Chuck Mertens - Moshy - Original Mix
+04. Alec Gonzalez - Lia - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA86EFC93FB61EAF6CB5FFE2296F51FEECB54C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959159   (319487) от 23.11.2015
+
+VA - Bermuda Island: Uplifting Vocal Trance (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319487.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jennifer Rene, Somna - Back to Life (Original Mix) 07:01
+002. Ana Criado - Arms Of Surrender - Original 06:13
+003. Special - Express To Callisto (Stella Project Remix) 09:24
+004. Stephane Badey & DJ T.h. With Eva Kade - Checkmate (Denis Sender Radio Edit) 03:23(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 09:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FBA142369DBA2A31835673039F501EF1F32B25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959069   (319479) от 23.11.2015
 
 VA - After Work Lounge Vol 3   (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -686,64 +744,6 @@ VA - Spiritual Liberation: Psychedelic Healing (2018) [MP3|320 Kbps] <Psy, Goa T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90B37533C00E2B05269B32F75A14004B734A157F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259660   (316772) от 05.11.2018
-
-VA - Record Super Chart 560 (2018) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fisher - Losing It 4:08
-02. Summer Cem - Tamam Tamam 2:27
-03. Gaulin - Moonlight 2:54
-04. Rompasso - Ignis 3:32(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8987634ADF642E22E74EDDE9E2D881BD577515F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076066   (316572) от 24.11.2016
-
-VA - EDM Pro Chord Fast Life 001 (2016) [MP3|241~320 Kbps] <House, Progressive, Bigroom, Electro, Funky, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. W&W - Thunder (Original Mix) 4:58
-02. Axwell - Center Of The Universe (Dyro Remix) 4:49
-03. Marco V & Stefano Pain - Slidez (Original Mix) 4:19
-04. Black Legend Project & Damon Grey - This Is Me (Original Mix) 6:32(   Читать дальше...   )Жанр: House, Progressive, Bigroom, Electro, Funky, Club, DanceПродолжительность: 07:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21AB3ED69FB79A23E27C699E64F85446C22829D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

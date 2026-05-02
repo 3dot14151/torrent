@@ -1,3 +1,206 @@
+###  Публикация: 1332831   (308948) от 22.10.2019
+
+Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarah Schachner - Modern Warfare Main Theme (03:26)
+02. Sarah Schachner - Piccadilly Circus (05:16)
+03. Sarah Schachner - Going Dark (03:23)
+04. Sarah Schachner - Highway (06:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:851D71AD95554174E2C6FD79654A46D202A21213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077103   (308863) от 27.11.2016
+
+VA - 50 Awaited Peace of Mind: Music for Meditation (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guided Meditation Music Zone - 50 Awaited Peace of Mind - Music for Meditation
+02. Mindfulness Meditation Music Spa Maestro - Reiki Healing Sound (Light Storm)
+03. Meditation Mantras Guru - Sacred Oriental Music (Asian Harp)
+04. Meditation Music Zone - Yoga Classes (Mysterious Ambiance)(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75A449D24B5DD4F55C5B3472FA3A055FCABD754
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332832   (308806) от 22.10.2019
+
+Sarah Schachner - Call of Duty: Modern Warfare (Original Game Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sarah Schachner - Modern Warfare Main Theme (03:26)
+02. Sarah Schachner - Piccadilly Circus (05:16)
+03. Sarah Schachner - Going Dark (03:23)
+04. Sarah Schachner - Highway (06:38)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:48:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D417652B9660B10B1C04C8A3DEE412FB0549DBCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077151   (308625) от 27.11.2016
+
+Delerium - Mythologie (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Fires (6:25)
+ 02. Zero (4:50)
+ 03. Keep On Dreaming (5:24)
+ 04. Stay (4:09)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E72189C6852BF311F7900FFFEF987434FE2D091A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183691   (307772) от 14.11.2017
+
+Olga Stankevich (Ольга Станкевич) - Alone with the City (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307772.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Moscow Midnight (Полночь) (3:25)
+2. Beyond the Time (Вне времени) (4:33)
+3. Smile (Улыбка) (3:09)
+4. Recalcitrance (Непокорность) (5:17)(   Читать дальше...   )Жанр: Instrumental Pop, PianoПродолжительность: 00:27:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB27711524DE823DBBE91FC5654A1129DE59FA97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1260331   (307703) от 09.11.2018
+
+Kathryn Louderback - Christmas Piano (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas Lullaby (Still, Still, Still and Away in a Manger)
+02. What Child is This?
+03. Mary’s Alleluia
+04. Angels We Have Heard on High (ft. Hark! The Herald Angels Sing)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B585CCC408924E264E7294C078F0F84652A9E2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183565   (307688) от 14.11.2017
+
+Brian Crain - A Change of Seasons (1998) [FLAC|Lossless|tracks + .cue] <New Age, Piano Solo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/11. A New Day (3:07)
+ 02/11. Falling Leaves (3:47)
+ 03/11. Dream of Flying (5:55)
+ 04/11. Broken Shadows (2:29)(   Читать дальше...   )Жанр: New Age, Piano SoloПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D50A1ACB3F0173F4B3863CB233EFBCCCA9158E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183511   (307677) от 14.11.2017
 
 Сергей Курёхин - Трагедия в стиле рок (2000) [FLAC|Lossless|image + .cue] <AvantGarde Jazz, Folk/Rock, Soundtrack>
@@ -548,215 +751,6 @@ Pachuly & Friends - Collection (3 альбома) (2003-2013) [MP3|320 CBR ~245 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8A9E0BB6AA0BCDCA8017FE0D6273F7B0427B84F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423003   (304166) от 11.11.2020
-
-Wychazel - Tao: A Path of Peace (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304166.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A Path of Peace (8:04)
-2. Sunlight Through Trees (7:40)
-3. Raindrops on Leaves (6:56)
-4. Temples in the Mist (10:00)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24B09BC2961379726796C7F3C25903647375705F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422593   (304160) от 11.11.2020
-
-Theodor Bastard - Pathologic 2 OST (2019) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304160.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Darkness [3:49]
- 2. Children Are Burying The Doll [2:07]
- 3. Drops In The Endless [4:23]
- 4. Mourning Of The Gone [2:24](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A9BC3AFF8F525B5D468A22EEC10839E46DA988E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422800   (304158) от 11.11.2020
-
-VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John - Step Into Christmas (4:32)
-02. Bob Seger - Little Drummer Boy - Remastered (3:32)
-03. Frank Sinatra - Have Yourself A Merry Little Christmas - Remastered (3:26)
-04. Bobby Helms - Jingle Bell Rock - Single Version (2:11)(   Читать дальше...   )Жанр: Christmas MusicПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547C7AEBA2ACC62F7A00D17EEABD9D4E00845626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422657   (304155) от 11.11.2020
-
-Tantric Massage Experts - Open New Erotic Feelings of Pleasure and Excitement (2020) [MP3|320 Kbps] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free a Tension (3:33)
-02. No More Taboo (3:54)
-03. Sexual Experience (3:05)
-04. Intimacy Between Us (3:28)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D81116F10EC976C2BFC5A72D4803B6CDDE08573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585721   (303581) от 06.12.2012
-
-Anibal Palazolo - Flamenco Entre Cuerdas (2009) [MP3|320 кб/с]<Instrumental, Flamenco, Acoustic guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303581.jpg" />
-</div>
-
-
-###  Подробнее
-
-(3:53) 01. El Extranjero
-(3:30) 02. Silencio
-(3:14) 03. El Circo
-(2:11) 04. La Pequena Fiesta
-(2:49) 05. Sus Ojos En Mi Mente
-(3:40) 06. Noches Blancas
-(2:39) 07. Maestro Manolo
-(3:27) 08. Entre Cuerdes
-(3:52) 09. El Extranjero
-(3:05) 10. El Jinete(   Читать дальше...   )Жанр: Instrumental, Flamenco, Acoustic guitarПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B382B98F1A383AFDB68B59EB1675D9316B4C5068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961110   (303364) от 30.11.2015
-
-Kevin Kern - Always Near / A Romantic collection (2014) [FLAC|image+.cue]<New Age,Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love's First Smile (6:11)
- 02. A Time Remembered (4:18)
- 03. Sundial Dreams (4:48)
- 04. Le Jardin (4:54)(   Читать дальше...   )Жанр: New Age,PianoПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BF0C2682D439E2CEB9121B384367A71C035614B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333407   (303280) от 25.10.2019
-
-Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film) (2017) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack, Electronic, New Wave>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303280.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Was Our House (From "Breathing") (02:01)
-02. Where Did You Go (04:05)
-03. Breathing (02:50)
-04. It's Them (04:35)(   Читать дальше...   )Жанр: Score, Soundtrack, Electronic, New WaveПродолжительность: 01:04:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE3A68A9B8DB1D88ACD8892FBF5965A90F3BD9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

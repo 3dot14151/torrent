@@ -1,3 +1,200 @@
+###  Публикация: 1003651   (841687) от 04.04.2016
+
+Alice Gomez - Sleep Cycles of the Native American Flute (Over an Hour of Soothing Native Flute Melodies) (1998) [MP3|320 кб/с] <Native American, Ethnic Fusion, Meditation, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep Cycles of the Native American FluteЖанр: Native American, Ethnic Fusion, Meditation, New AgeПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19587600545F4B69745A91C0A3AC124D005119F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003509   (841586) от 04.04.2016
+
+Hans Zimmer and Junkie XL - Batman v Superman: Dawn Of Justice (2016) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Lie (3:47)
+02. Their War Here (4:36)
+03. The Red Capes Are Coming (3:32)
+04. Day Of The Dead (4:02)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:31:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C2576C07FC415500A9321ED2DBB238092BE74E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003894   (841364) от 04.04.2016
+
+Armik - Romantic Spanish Guitar Vol. 1,2,3 (2014-2016) [MP3|320 кб/с] <Instrumental, Nuevo Flamenco, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing In The Clouds (4:19)
+02. Guitarra Poeta (4:21)
+03. Romance De La Luna (4:39)
+04. Lagrimas (4:49)(   Читать дальше...   )Жанр: Instrumental, Nuevo Flamenco |Продолжительность: 02:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4173075C4B5DB9F64AC278ACECCA5630A31723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378705   (840692) от 28.04.2020
+
+Nicholas Gunn - Pacific Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840692.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Into the Vastness	04:55
+2. And I	03:13
+3. Sailing	04:25
+4. Chasing the Light	04:23(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:401077FD743A38CC3E58D74BBBC9AAFC761C1899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003472   (840196) от 05.04.2016
+
+Alan Howarth - The Dentist 1-2 / Дантист 1-2 (1996, 1998) [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dentist Theme (1 & 2 Combo)
+02. Toothache
+03. Not Again
+04. Perfect Fit(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:13:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DFBEB7FA3A3683C73688372F5374E656BA16D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757071   (839206) от 29.04.2020
+
+Diane Arkenstone - Jewel in the Sun (2002) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jewel in the Sun (6:35)
+02. Adrift (5:20)
+03. Under the Blue Sky (5:06)
+04. Beyond Borders (6:07)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D94D5014C66120360BAB2BE692F0AB76967DCC90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113056   (838525) от 11.03.2017
+
+Bridget McMahon - Celtic Woman - Black Is the Colour (2016) Single [FLAC|Lossless|WEB-DL|tracks] <New Age, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celtic Woman Black Is the Colour [00:04:55]Жанр: New Age, VocalПродолжительность: 00:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46C40C317F2219E9A2CBF795163D90DCB2A89B18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004269   (838395) от 06.04.2016
 
 Harry Manfredini - House & House II: The Second Story / Дом & Дом 2: Проклятая обитель (1986, 1987) [MP3|320 кб/с] <Score>
@@ -549,209 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA9C53976CFE6CF5979C0454E02EAEE0B8AA5EC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004934   (834355) от 08.04.2016
-
-Katzenjammer - A Kiss Before You Go (2011) [FLAC|Lossless|tracks] <Pop, Folk, Vocal>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Kiss Before You Go    01:16
-02. I Will Dance (When I Walk Away)    03:50
-03. Cherry Pie    03:01
-04. Land Of Confusion    03:39(   Читать дальше...   )Жанр: Pop, Folk, VocalПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FCE9563B7547CF03CC8AC8D7B3325BC2E2A38DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004097   (834354) от 08.04.2016
-
-Club 8 - Pleasure (2015) [MP3|320 кб/с] <Pop, Rock, Electronic>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834354.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love Dies 02:44
-2. Skin 02:48
-3. Late Nights 02:57
-4. Kinky Love 02:55(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 00:23:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8793BBC85F58BAA1EBD1BE842DC3BC7711124D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501567   (833634) от 11.10.2021
-
-Gheorghe Zamfir - Golden Pan Flute Melodies (1988) [FLAC|Lossless|image + .cue] <Instrumental, Folk, World>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833634.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флейта Пана (Pan Flute) - общее название многоствольных флейт, древнейшего музыкального инструмента, существовавшего еще до нашей эры. Название связано с мифом о древнегреческом боге Пане, покровителе пастухов. На всех изображениях Пан играет на сиринге (греческое название флейты Пана), а в Помпеях найдена скульптура, на которой Пан обучает Дафниса игре на сиринге. (   Читать дальше...   )01. The Brîu of Oltenie (2:19)
-02. Song of Iancu Jianu (3:16)
-03. An Ill Blackbird (2:34)
-04. Hora Slow (1:57)(   Читать дальше...   )Жанр: Instrumental, Folk, WorldПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344D4EA1D0501B412203BD1E81CA4C3C719359D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114030   (833505) от 14.03.2017
-
-Bino Dola, Luna Blanca, Fuegoitaliano - New Flamenco (2014) [MP3|320 Kbps] <Flamenco, Latin, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luna Blanca - El Dorado
-02. Fuegoitaliano - Rumba Del Sol
-03. Bino Dola - Venta De Vargas
-04. Luna Blanca - Rio Mamoré(   Читать дальше...   )Жанр: Flamenco, Latin, InstrumentalПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE14E9240E2A76465641230318FD29D710015A90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114304   (833502) от 14.03.2017
-
-Oliver Scheffner - Relax Lounge. Soothing Music for Recreation (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chilling Funk Nights
-02. October Sun
-03. White Couch
-04. Schwabing Nights(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C420D652B826B04D280C7CF4B42FF7BDB9066504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114252   (833295) от 14.03.2017
-
-Clinton Shorter - The Expanse: Season One (Original Television Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks] <Score, Soundtrack, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Expanse (01:04)
-02. Hostage (03:13)
-03. Signal (02:10)
-04. Welwala (02:17)(   Читать дальше...   )Жанр: Score, Soundtrack, AmbientПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:991D3C1477CEC19C7DFDB2F10ED6362578ECCF21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379923   (832525) от 03.05.2020
-
-Salvador Candel - Reflejos (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832525.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cuando te miro 04:12
-2. Los secretos del viento 04:38
-3. Ángeles	05:34
-4. Reflejos	03:53(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD70DE05449FC0B1B4C71A5CC16BE8220B6E232
 ```
 
 https://mybot314.ru/tekegram_catalog/

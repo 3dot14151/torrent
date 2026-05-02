@@ -1,3 +1,61 @@
+###  Публикация: 1249784   (431390) от 25.09.2018
+
+The Count Basie Orchestra - Basically Basie (1937 - 1945) 4CD, 2005, JSP Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431390.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Swinging at the Daisy Chain [2:53]
+02. One O'Clock Jump [3:04]
+03. John's Idea [2:57](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 05:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943643922097E2DADF3D1ACA3250044676EA6893
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165871   (430889) от 14.09.2017
+
+The Johnny Smith - Foursome, Vol. 2 (1957) 2017, Warner [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel Eyes [04:18]
+02. Deep Night [04:07]
+03. These Foolish Things [03:37]
+04. East Of The Sun [03:15](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC6A8518FC2AE8E7E0DC4ED2482197BED5B6F294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1165868   (430888) от 14.09.2017
 
 The Johnny Smith - Foursome (1957) 2017, Warner [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
@@ -687,64 +745,6 @@ James Moody - 1951 (2005) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:765F4639474199B212FCA8616254FE742F140981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572098   (425606) от 25.08.2022
-
-Red Garland - Misty Red (1982) 1991, Timeless [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Can't Be Love [8:01]
-02. Misty [5:29]
-03. But Not For Me [5:04]
-04. Over The Rainbow [6:56](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F4F371C988047F279E0389D964F8893B8E9004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946689   (425349) от 14.10.2015
-
-Herman Foster - The One And Only (1984) /2015, Solid Records/[FLAC|tracks+.cue]<Mainstream Jazz, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Softly As In A Morning Sunrise [07:46]
- 02.The Shadow Of Your Smile [07:03]
- 03.Smoke Gets In Your Eyes [07:24]
- 04.Over The Rainbow [07:32](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Piano JazzПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97D6E07E63918895B506A21640DAE23B403ACFEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

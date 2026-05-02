@@ -1,3 +1,203 @@
+###  Публикация: 968796   (149998) от 25.12.2015
+
+Rammstein - Klavier (2015) Piano Version [FLAC|Lossless|tracks + .cue] <Acoustic, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein выпустили акустический альбом «Klavier». В него вошли 13 композиций из шести ранее вышедших альбомов группы. P.S. Голоса нет (только музыка).01. Fruhling in Paris
+02. Feuer und Wasser
+03. Nebel
+04. Sonne(   Читать дальше...   )Жанр: Acoustic, PianoПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:801C9AB7C6FB7BFD10F330B3F8FF1B097DE64144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677895   (149097) от 19.11.2023
+
+Heilung - Drif (2022) [FLAC|Lossless|Web-DL|tracks] <Neofolk, Dark Folk, Experimental>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Asja (5:17)
+02. Anoana (4:57)
+03. Tenet (13:05)
+04. Urbani (2:55)(   Читать дальше...   )Жанр: Neofolk, Dark Folk, ExperimentalПродолжительность: 00:59:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9366EA2B2625DEBFFE3B9B31257764B12F16D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969212   (148968) от 26.12.2015
+
+Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Dew (08:32)
+02. Transformation Part 1 (07:26)
+03. Cathedral of Trees (07:10)
+04. Wanderer (09:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0865C08EBF727F0518B7E6C110E9EF18EF06B65A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271440   (148693) от 24.12.2018
+
+VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adios Muchachos ( Louis Ferrari )
+02. Suave Milonga ( Louis Ferrari )
+03. Viajes ( Louis Camblor )
+04. La Vuelta Del Tango ( Louis Camblor )(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 01:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F83BC587A9C0A3508085358FA0B05FEFB8F2E0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271421   (148556) от 24.12.2018
+
+VA - Simply Accordeon (2013) 4CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. El Gato Montes ( Eric Bouvelle )
+02. Le Plus Beau Tango Du Monde ( Julio Cortazon )
+03. Bucaro ( Jose Caldeiro )
+04. Gallito ( Andre Blot )(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 03:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621E88572D85F8019721863D1299492D7CCFC4AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 589862   (148407) от 15.12.2012
+
+Molotohvin Koktaili - Sota-ajan propagandaa levyillä 1940-42 (1940-1942) [MP3|256 кб/с]<Foxtrot / Polka>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Foxtrot / PolkaПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8D0D84B8D975B8BEB0342AAB8B83D573D61946D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086700   (148344) от 26.12.2016
+
+David Thomas - Ani Yun Wiya, Vol. 2 (2016) [MP3|320 Kbps] <Native American, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whisper of the Wind [00:04:05]
+02. Indians [00:03:12]
+03. The Way of Life [00:03:26]
+04. Wisdom Born in the Heart [00:03:37](   Читать дальше...   )Жанр: Native American, WorldПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F811A506E505CBA90EFA6AB3747CCB8F23164B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1085630   (148199) от 26.12.2016
 
 VA - Country Christmas Greatest Hits (2016) [MP3|320 Kbps] <Country, Pop, Soul, Jazz>
@@ -548,206 +748,6 @@ Paul Hardcastle - Jazzmasters VI (2010) [FLAC|Lossless|tracks + .cue] <Smooth Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E34824419F94730AF1CC10E1617E55BD5D4EAC1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 637099   (145471) от 27.12.2020
-
-Ennio Morricone - Svegliati E Uccidi & Sacco E Vanzetti (2003) [MP3|320 Kbps] <Easy Listening, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145471.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Easy Listening, InstrumentalПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2348BD690AF7A4E8D94FC27E7D564DC5634936A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969136   (145322) от 28.12.2015
-
-VA - Асса (1987) [MP3|320 кб/с] <Rock, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Густав Гурьянов - Соло на барабанах (00:58)
-02. Юрий Чернавский и Весёлые ребята - Здравствуй, мальчик Бананан! (06:54)
-03. Борис Гребенщиков и Аквариум - Иду на ты (02:24)
-04. Александр Синицын и Союз композиторов - ВВС (06:39)(   Читать дальше...   )Жанр: Rock, SoundtrackПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E28FBA997018AED3EC0A0718D4845EE12B4D1C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271812   (145285) от 26.12.2018
-
-Wardruna - Skald (2018) [FLAC|Lossless|tracks + .cue] <Folk Ambient, Dark Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vardlokk (02:07)
-02. Skald (02:01)
-03. Ein Sat Hon Uti (04:06)
-04. Voluspá (Skaldic Version) (06:20)(   Читать дальше...   )Жанр: Folk Ambient, Dark AmbientПродолжительность: 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F68E488CD0EAA05C9F4634FD1F7E313D2F08E4EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519970   (145163) от 26.12.2021
-
-Richard Clayderman - Love Letters Friends & Family (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballade pour Adeline
-02. Un Amour Sans Fin
-03. I Just Called to Say I Love You
-04. You Are the Sunshine of My Life(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07D89C4126B1A9544DCE944EBF0925A2DA5BDD84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087613   (144648) от 28.12.2016
-
-Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Ravenite Social Club (02:13)
-02. Harbor Neuroscience (01:20)
-03. Do You Like Puzzles? (05:43)
-04. The Accountant (03:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBBB807C0AB1B74A41462A2567F539F9F02AA999
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087614   (144549) от 28.12.2016
-
-Mark Isham - The Accountant / Расплата (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. At The Ravenite Social Club (02:13)
-02. Harbor Neuroscience (01:20)
-03. Do You Like Puzzles? (05:43)
-04. The Accountant (03:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C95DEDE0A88953F0419295561860A9908DF6FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087163   (144430) от 28.12.2016
-
-VA - Black Mirror / Чёрное зеркало (Collection Original Soundtrack) (2013-2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Junipero (80s-90s-00s-??S) (04:01)
-02. Faith, Hope, Fear & Falling in Love (02:47)
-03. Tick Tock (Clock of My Heart) (04:09)
-04. Night Drive (02:38)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 03:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8E8BF1995D228D08C06B22B477A90998605941
 ```
 
 https://mybot314.ru/tekegram_catalog/

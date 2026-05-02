@@ -1,3 +1,61 @@
+###  Публикация: 1314417   (519449) от 14.07.2019
+
+Miroslav Vitous - Majesty Music (2015) 1976, Wounded Bird Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. X Rated [3:27]
+02. See You, November [3:32]
+03. Majesty Music [4:35]
+04. New Orleans [3:23](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74ADB022712FEB80EA3E1CBD61F02ACA098CC308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314435   (519279) от 14.07.2019
+
+Shakatak - In The Blue Zone (2019) Japan [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_519279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To Be Loved
+02. Making My Dreams Come True
+03. Back To The Heart Of It
+04. Ready To Take A Chance(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E6A4E68652DF7199BD1C4EDE37EF9D3286328C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 534867   (519183) от 14.08.2012
 
 Annie Ross - Four Classic Albums Plus (2010) [FLAC|Lossless]<Jazz>
@@ -709,64 +767,6 @@ Bengan Janson, Jan Lundgren, Ulf Wakenius (2011) Ladybird [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:141CBA3FE03C278F14823552E03CB43EA5AF4279
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315146   (515095) от 18.07.2019
-
-Ahmad Jamal - Marseille (2017) Jazz Village [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marseille (instrumental) [8:34]
-02. Sometimes I Feel [5:48]
-03. Pots En Verre [8:30]
-04. Marseille (with Abd Al Malik) [7:23](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC47522DDBABB5190EABA738B1358F0A4106573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314971   (515089) от 18.07.2019
-
-Sophie Milman - Make Someone Happy (2007) Linus [APE|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. People Will Say We're In Love [3:09]
-02. Something In The Air Between Us [4:13]
-03. Rocket Love [4:34]
-04. So Long, You Fool [3:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D26153E3BAAD20391A9BF360C6A7100F9324C17
 ```
 
 https://mybot314.ru/tekegram_catalog/

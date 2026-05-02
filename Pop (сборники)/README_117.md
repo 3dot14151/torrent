@@ -1,3 +1,119 @@
+###  Публикация: 1271749   (148339) от 24.12.2018
+
+VA - Новогодняя Дискотека Руки Вверх 2019! (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Руки Вверх - К чёрту эту гордость
+02. Пацаны - Я не буду писать…
+03. Турбомода - Не люблю
+04. ПОТЕХИН БЭНД - Маски(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC2F75F2E2F44D7897452B049781FD99D1635CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271688   (148294) от 24.12.2018
+
+VA - Shazam Хит-парад Russia Top 100 Итоговый 2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148294.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. MARUV & Boosin - Drunk Groove
+002. Tom Walker - Leave a Light On
+003. Dynoro & Gigi D’Agostino - In My Mind
+004. G-Eazy - Him & I (feat. Halsey)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122C231D99EF3196B6BA1239DCF52681E04CA78C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519395   (148223) от 24.12.2021
+
+VA - Music for Speed (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148223.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 220 KID feat. Lany-Stupid Feelings (Jonasu Remix)
+002. About That-Who Let The Dogs Out (feat. Evalina)
+003. ALAMPA-Stand Still
+004. Alan Walker,Imanbek-Sweet Dreams(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0958F5CAEECE2E258453F6ED12386ACA6C00DEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1519433   (148167) от 24.12.2021
+
+VA - Discolandia Party 2 (2021) [MP3|320 Kbps] <Disco, Electro Disco, Remixes>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка в стиле диско никогда не выйдет из моды. Неспроста же многие ди-джеи часто создают ремиксы на популярные хиты диско. Представляем вам мега-сборник таких песен, состоящий из сотни треков диско музыки новой генерации, который несомненно понравится не только молодому поколению, но и позволит вспомнить дискотеки тех лет более зрелым слушателям.001. DJ Ross - Lupin
+002. Natasha Kitty Katt - Edgarrr!
+003. Veno - Rise Am
+004. Reece Johnson - M.A.R.S.(   Читать дальше...   )Жанр: Disco, Electro Disco, RemixesПродолжительность: 08:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFBDE85A28AC79B536F399D9C1EFADA1549B639
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271789   (148015) от 24.12.2018
 
 VA - Club Dance Ambience Vol.169 (2018) [MP3|320 Kbps] <Dance, Club, House>
@@ -629,122 +745,6 @@ VA - Зимний топ 100. Версия 50/50 (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:829BE64261C0760C530C50D1D900F44D1D926F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087292   (144930) от 28.12.2016
-
-VA - Зимний драйв. Авто дискотека. Версия 50/50 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144930.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Olly Murs - Grow Up 3:45
-002.Нюша - Тебя Любить 3:39
-003.Станислав Сорока - Иди За Мной 3:53
-004.Koven - Telling Me 4:53(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86F9D737E8694D40DDC0D6E748F143BEC41AF31D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087468   (144885) от 28.12.2016
-
-VA - German Top 100 Single Charts 23.12. (2016) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144885.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Rag'n'Bone Man - Human 3:19
-002.Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) 4:11
-003.Mark Forster - Chore 3:28
-004.Disturbed - The Sound Of Silence 4:09(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0BADDA6C87E98F7D4D36481169DF91E3CAD6A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087312   (144808) от 28.12.2016
-
-VA - Зимние хиты экспресс. Зарубежная версия (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144808.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Jennifer Lopez Feat. Travie Mccoy - A.K.A 3:05
-002.Evelina - Ei Filtterii 3:08
-003.Mans Zelmerlow - Primal 3:32
-004.Alle Farben - Berlin 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92144285A93577DEEAA3D7985E01E23E5642D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087311   (144784) от 28.12.2016
-
-VA - Снегопад новинок на Hit FM. Версия 3 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144784.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Наргиз - Revolution 3:31
-002.Jojo Feat. Alessia Cara - I Can Only 3:21
-003.Sigala & Digital Farm Animals - Only One 3:24
-004.Макс Барских - Туманы 3:26(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E41C1575026D2BEADDE52AF3D9C3BC9AED860B
 ```
 
 https://mybot314.ru/tekegram_catalog/

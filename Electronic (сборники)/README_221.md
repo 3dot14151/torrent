@@ -1,3 +1,61 @@
+###  Публикация: 1753689   (41285) от 06.10.2024
+
+VA - Record Super Chart 05.10.2024 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Port feat. Stryv & Malachiii & Keinemusik & Orso - Move (Cat Dealers Remix) (4:00)
+02. bearwolf - GODZILLA (2:08)
+03. Sophie And The Giants - Shut Up And Dance (2:57)
+04. Alok feat. Jess Glynne - Summer's Back (2:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ACE189692A87BAFE8B752943021EAD4B1641993
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753609   (41173) от 07.10.2024
+
+VA - Trance In Motion Vol.381 (2024) [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miyuki feat. Jennifer Rene - Our Song (Orchestral vs. Extended Mix)
+02. Petereese feat. Jodie Poye - Bed Of Roses (Artena Extended Remix)
+03. Johan Gielen pres. @Airscape - Piano Del Sol (Extended After Summer Mix)
+04. Robin Aristo - Trancemission (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5EB59C64CAD737F4B3A21EB8847816CA63080B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753878   (40777) от 10.10.2024
 
 VA - Sensual Vibes (100 Ttracks, Long Playing Edition) (2017) [MP3|320 Kbps] <Easy Listening, Bosa Nova>
@@ -687,64 +745,6 @@ Kasimoff - Compilation Cd 1 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F38E8075FB7869119D61E890DCC72AB10B73D55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760997   (36997) от 17.11.2024
-
-Hamidshax - Compilation Cd 1 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Serenity
- 02.  Whatever
- 03.  Farewell
- 04.  Loosescrew(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:01:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65EFAAC9E17ED5CED17CD0E533C02AE7549194A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760942   (36957) от 17.11.2024
-
-Kasimoff - Compilation Cd 2 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Close Your Eyes
- 02.  My All
- 03.  Seni Dert Etmeler
- 04.  Attention(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FE90102D96138F977601E94F9238DAA4213CEC
 ```
 
 https://mybot314.ru/tekegram_catalog/

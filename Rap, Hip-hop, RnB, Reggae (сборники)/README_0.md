@@ -1,3 +1,32 @@
+###  Публикация: 1459850   (1022959) от 03.04.2021
+
+VA - Rap Blender Mix (Vol.03) (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тут Вы не найдёте тем, вроде – люблю, не люблю, слёзных соплей и бездушной электронной долбежки. Тут рай для души. Композиции создаются лучшими мастерами рэпа и хип-хопа, задают правильное настроение и отвязные речитативы, которые Вы сможете услышать в сборнике "Rap Blender Mix" третьей генерации.001. Nateboi - Worst Ways
+002. Bsuavee - Move Silent Big Moves
+003. 102 Boyz - Was Ich Trink
+004. Blockrepp Shad - Thug Tears(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 08:18:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A927D1D7D94968BE742467860DC8DCBE8EDDE303
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464830   (1019465) от 24.04.2021
 
 VA - The Sun Sound Therapy (2021) [MP3|320 Kbps] <Reggae, Riddim, Dub>
@@ -716,35 +745,6 @@ VA - Collection Reggae (2016) [MP3|320 кб/с] <Reggae, Ska, Hip-hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:029D879445419C715FCA04E9C6FF3B9CF17DFA1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102178   (892335) от 08.02.2017
-
-VA - TOP Non-Stop: Hip-Hop 1995-2015 (2015) [MP3|128-320 Kbps] <Rap, R&B, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B Real - Smoke N Mirrors featuring Bo Roc (4:55)
-02. Mobb Deep - Extortion Feat. Method Man (3:32)
-03. Timbaland & Magoo Feat. Missy Elliott - Cop That Shit (3:33)
-04. Method Man & Redman - I'm Dope Nigga (4:11)(   Читать дальше...   )Жанр: Rap, R&B, Hip-HopПродолжительность: 06:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C7CF228BABEB2CA18435BECFC903527107EC6EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

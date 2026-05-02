@@ -1,3 +1,119 @@
+###  Публикация: 1846070   (1051216) от 05.01.2026
+
+Big Bay Allen & The Extended Hand Band - Blues Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  That Look (3:39)
+02.  Old Betty (4:38)
+03.  BTK Blues (7:09)
+04.  Forgot To Say Please (5:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749E0093F285C2A8C07BDCCCE30BD341AEBAD41A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846071   (1051215) от 05.01.2026
+
+Jesse Mills Band - Jesse Mills Band (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All In the Family (4:02)
+02.  Spend My Time (4:16)
+03.  Don't Need to Worry (3:38)
+04.  Down Low (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED7BB9770D5A816625A4A0B5EA29FB485DA6CAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844701   (1050281) от 27.12.2025
+
+Tony O Blues - Free Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hard Day Blues (4:25)
+02.  Rich Man's Woman (4:44)
+03.  Free Life (3:56)
+04.  You Don't Know Me (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45C5725550838B8EDCA4576ECC55A6C5E69095B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1844705   (1050278) от 27.12.2025
+
+Trowbled Ron - Snnr (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Burning Hell (3:31)
+02.  Nobody's Fault But Mine (3:44)
+03.  What Good Am I (3:53)
+04.  Ain't No Grave (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:683D86FAC0436D2F1104901233B0B1CD3C00E828
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844707   (1050277) от 27.12.2025
 
 Uncle Watson's Widow - Fool's Song (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Southern Rock>
@@ -629,122 +745,6 @@ Blueback - Blueback Revisited (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A92245E0F292938FE88E5B9FECE4EABB722DF42D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843758   (1049495) от 21.12.2025
-
-Bluesman and The Blues Essentials - Girl of My Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blind Love Blues (3:53)
-02.  Satisfied (3:45)
-03.  The Way (4:44)
-04.  I Can't Say Goodbye (7:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:433C84021CEB55D331CEB997B16BFB7ABD9834F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843761   (1049494) от 21.12.2025
-
-Bonny B. - Love & Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blue Tone (5:48)
-02.  All on Board (4:52)
-03.  Run in the Rain (5:08)
-04.  My Story (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6A8BD69D7E0AF0A61161DF74D14DEA0A575C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843762   (1049489) от 21.12.2025
-
-DaBeDa - Leavin' the Shell (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Countryside (4:31)
-02.  I Fell (2:33)
-03.  I Don't Care (4:22)
-04.  I Feel Just Like A Child (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BEE1162F4403A5A248575B276BA4778EDFE380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843763   (1049486) от 21.12.2025
-
-Danny Alexander Blues Band - Turn Me Loose (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Come to Me (3:17)
-02.  Bottom of the Boot (2:59)
-03.  Take a Break (3:50)
-04.  I Want To Be Loved (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC58083BE8F3FCF6A1AD170932B59AB18D76BD39
 ```
 
 https://mybot314.ru/tekegram_catalog/

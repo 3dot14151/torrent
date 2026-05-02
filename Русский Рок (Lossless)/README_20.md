@@ -1,3 +1,32 @@
+###  Публикация: 1022748   (727032) от 03.06.2016
+
+АукцЫон - На солнце (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сынок
+02. И день и ночь
+03. Пропал
+04. Луна упала(   Читать дальше...   )Жанр: RockПродолжительность: 01:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB486D06FC39BB6E921507B3EFFC7E829A3DFC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399599   (725217) от 02.08.2020
 
 Katalepsy - Terra Mortuus Est (2020) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E3D9CFD77257639746867F51D75547CEFF2E006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288396   (695928) от 11.03.2019
-
-Branikald - Тингов Наслаждаясь Распрей (2013) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695928.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Landvidi 3:59
-2. Прибоем Вдохновенья Волн 5:55
-3. Доблести Духу 4:39
-4. Сквозь Золотистые Пряди Sif 6:10(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B0BBD858DF09423EE2362FCF3A28A51C5820D4
 ```
 
 https://mybot314.ru/tekegram_catalog/

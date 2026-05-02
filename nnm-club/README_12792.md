@@ -1,25 +1,249 @@
-###  Публикация: 924944   (537277) от 08.08.2015
+###  Публикация: 1154298   (540778) от 30.07.2017
 
-Lysithea - Realms (2015) [MP3|320 кб/с]<Doom Metal>
+И.С. Беляков и др. | Ремонт часов (1964) [PDF, FB2, DJVU]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540778.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге рассматриваются методы ремонта часов различных типов; излагаются способы разборки, чистки, смазки, сборки и регулировки часов; объясняются приемы изготовления основных часовых деталей; приводятся необходимые расчетные данные и сведения справочного характера.
+Книга предназначается в качестве практического пособия для часовых мастеров.Жанр: Хобби и ремеслаФормат: PDF, FB2, DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD7F8CE7FDCD0537D0DB66CFC83593760ADC647
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154345   (540777) от 30.07.2017
+
+Дэниел Уайл | После медового месяца: Как обратить семейные конфликты на пользу отношениям (2017) [FB2]
+
+>>Разное (категория книг)
+>>Популярная психология и саморазвитие
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда заканчивается романтический период отношений и накал страстей спадает, вы начинаете обращать внимание на недостатки партнера, а он замечает ваши. То, что раньше казалось ужасно милым, теперь раздражает все сильнее. Негатив копится, вскипает претензиями и через какое-то время перерастает в скандал. Как пережить этот этап в отношениях и заложить крепкий фундамент (   Читать дальше...   )Жанр: Зарубежная психология, Семья, брак, сексологияФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751312579F4E0F0D565AAE2AA26B1560CB28C477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049619   (540772) от 07.09.2016
+
+Хоккей. КХЛ 2016-2017. Торпедо (Нижний Новгород) - Сочи (04.09.2016) IPTVRip [H.264] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540772.jpg" />
+</div>
+
+
+###  Подробнее
+
+04 сентября 2016, воскресенье. 17:00 МСК
+
+Стадион: Нагорный (Нижний Новгород, Россия) , 5 350 зрителей (96 % при вместимости 5 600)
+Главный судья: Александр Сергеев (Жуковский, Россия)(   Читать дальше...   )Телекомпания: КХЛ ТВЖанр: СпортЯзык озвучки: Русский (Владимир Гучек, Сергей Борисов)Продолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5BA3A91923B99C34384811B42C922C29A3431EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050239   (540771) от 07.09.2016
+
+Футбол. Товарищеский матч. Россия - Гана (06.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540771.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 сентября 2016, вторник. 19:00 МСК
+Товарищеские матчи 1
+
+Стадион: Локомотив (Москва, Россия) , вместимость: 28800(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Дмитрий Шнякин, Владислав Батурин)Продолжительность: 02:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFB9B5A46DC06F456AB5EDBEE6DE68ADC339912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050226   (540770) от 07.09.2016
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа A. 1-й тур. Швеция - Голландия (06.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540770.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 сентября 2016, вторник. 21:45 МСК
+Группа A. 1-й тур
+
+Стадион: Френдс-Арена (Стокгольм, Швеция) , вместимость: 54329(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Елагин)Продолжительность: 01:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8BDA00F9ED7519B2BFF6465744B42F17018B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050224   (540769) от 07.09.2016
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа A. 1-й тур. Беларусь - Франция (06.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540769.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 сентября 2016, вторник. 21:45 МСК
+Группа A. 1-й тур
+
+Стадион: Борисов-Арена (Борисов, Беларусь) , вместимость: 13126(   Читать дальше...   )Телекомпания: Матч! Футбол 3 HDЖанр: СпортЯзык озвучки: Русский (Михаил Поленов, Константин Генич)Продолжительность: 01:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2386E64A40234EAC732F074AFB1612429092CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049718   (540768) от 07.09.2016
+
+Футбол. Чемпионат Мира 2018. Отборочный турнир. Европа. Группа D. 1-й тур. Грузия - Австрия (05.09.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540768.jpg" />
+</div>
+
+
+###  Подробнее
+
+05 сентября 2016, понедельник. 19:00 МСК
+Группа D. 1-й тур
+
+Стадион: Динамо-Арена - Борис Пайчадзе (Тбилиси, Грузия) , вместимость: 54549(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Михаил Мельников, Сергей Кривохарченко)Продолжительность: 01:43:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB654C5D734883EA1F07BC8C15F03B1F5999AFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050297   (540767) от 07.09.2016
+
+Открытая студия.  «Исламофобия: страх или глупость?» (07.09.2016) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой конфликт в одной из тамбовских школ разросся до всероссийского скандала. Девочку из мусульманской семьи учителя не пустили на уроки только потому, что она пришла на занятия в белом платке. Педагоги сослались на строгий единый стандарт школьной формы, который несколько лет назад был принят в области. Его правила запрещают ученикам носить любые головные уборы. (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C824FB489205AE2B9F5275447EA3A3276CCD8C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050004   (540764) от 07.09.2016
+
+Enemies Swe - Behind Enemy Lines (2005) [FLAC|Lossless|image + .cue] <Sleaze, Glam Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537277.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540764.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hyperborea (07:20)
-02. The Cosmic Eye (08:33)
-03. Ghosting (10:10)
-04. Tomb Of The Somnambulist (09:47)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:59:41
+01. Powertrain [04:00]
+ 02. Enemy [03:39]
+ 03. Mainstream King [04:18]
+ 04. Sliced And Diced [03:39](   Читать дальше...   )Жанр: Sleaze, Glam MetalПродолжительность: 00:43:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:82565105C3842FA1DD5277D2F6E99A6D1B0B8BF6
+magnet:?xt=urn:btih:302AE464CD0C46362BC2BB1762492A5E930C9495
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,225 +251,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 925943   (537276) от 08.08.2015
+###  Публикация: 1049956   (540763) от 07.09.2016
 
-The Pentones - Don't Leave Nothin' Behind (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delta Blues (03:24)
-02. Jodie (05:34)
-03. Sunday Funny (04:57)
-04. End Of The World (05:28)(   Читать дальше...   )Жанр: Blues Rock,  Louisiana BluesПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34D707F046EA8D02C2F840369831D8222D00DF01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925854   (537275) от 08.08.2015
-
-Bob Baldwin - MelloWonder, Songs In The Key Of Stevie (2015) [FLAC|image+.cue]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Real Thing/Keeping It Real (Featuring Chieli Minucci/Ragan Whiteside) (5:30)
-02. Creepin' (5:19)
-03. Don't You Worry 'bout A Thing (Featuring Chieli Minucci) (5:13)
-04. That Girl (Featuring U-Nam) (5:57)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:15:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69AFB94C955019A3695634CDA2D2B8A88C5B588D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925884   (537274) от 08.08.2015
-
-The Grass Roots - Leaving It All Behind (1969) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Living For You Girl
-02. Back To Dreamin' Again
-03. Out Of This Woirld
-04. Melinda, Love(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E60D5C7B561CF9D9FD99798D0905C43BE58EB71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925610   (537273) от 08.08.2015
-
-Анатолий Гладилин | Секрет Жени Сидорова (1975) [DJVU]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приключенческая повесть-сказка, в которой смешались реальная жизнь и самые невероятные происшествия. Началось все с того, что пятиклассник пионер Сидоров получил возможность путешествовать на волшебной тележке («машина времени») в различные исторические эпохи.Жанр: Детская проза, фантастикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1506D75DEEB03713A272DDC312BDE6D78D6700D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925840   (537272) от 08.08.2015
-
-Wendy Rich - Driver (2015) [MP3|320 кб/с]<Country, Blues Soul, Americana>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always a Woman (04:30)
-02. Brand New Addiction (03:47)
-03. Want Me (03:56)
-04. Driver (03:08)(   Читать дальше...   )Жанр: Country, Blues Soul, AmericanaПродолжительность: 00:47:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578937F5B6519954BA4FF178B1900E3F322391C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925754   (537271) от 08.08.2015
-
-Владимир Волжский - Зона-сводная сестра (2002) [FLAC|image+.cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белые ночи пермских лагерей
-02. Однолюб
-03. Суды по беспределу
-04. Заброшенный дом(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF88AF88D4B0436550BBAB6C9C93F58A0FA744C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925857   (537270) от 08.08.2015
-
-Jiro Inagaki - Dock of My Mind (2015) [FLAC|tracks+.cue]<Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dock of My Mind (4:16)
-02. Afternoon (4:26)
-03. Barefoot Girl (3:43)
-04. Colourful Winds (3:27)(   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBD3C9C46D898D53775066207EC7DD5702ADBA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926021   (537268) от 08.08.2015
-
-Горизонты атома (01.08.2015) SATRip
+Открытая студия. «Итоги «Большой двадцатки»  (06.09.2016) SATRip
 
 >>Документалистика и Телепередачи
->>Тележурналистика
+>>Общественно-политические и пропагандистские ток-шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540763.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Петербургские атомщики из Радиевого института имени Хлопина прославились на всю Россию. На линии по производству медицинских изотопных препаратов они решили установить устройство собственной разработки, которое не только ускоряет работу, но и экономит огромные деньги, ведь отечественное изобретение в 24 раза дешевле импортных аналогов.Телекомпания: Россия 24Жанр: ДокументальныйПродолжительность: 00:10:17
+В Китае завершился саммит «Большой двадцатки». Международная пресса уже пишет о его историческом значении. Формально лидеры собирались поговорить о перспективах мировой экономики, но во время личных встреч ключевые участники обсуждали в основном важнейшие геополитические проблемы. Два дня напряженных переговоров по ситуации на Ближнем Востоке и Украине, будущем Евросоюза, (   Читать дальше...   )Телекомпания: 5 канал, РоссияЖанр: общественно-политическое ток-шоуПродолжительность: 01:14:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7329A3604768D4E30A4CC9423CB53B6A303D6D9
+magnet:?xt=urn:btih:6783D36D203AD70D74245CDDD401FB2CF4CD9332
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 925705   (537267) от 08.08.2015
+###  Публикация: 1050116   (540761) от 07.09.2016
 
-VA - Best Of Chill Lounge (2015) [MP3|320 кб/с]<Lounge, Chill Out, Chill House>
+Attick Demons - Atlantis (2011) Japanese Edition 2012 [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540761.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dj-Chart - Wish (03:44)
-02. Eddy Chrome - In Love (Double Deep More Love Mix) (05:37)
-03. Privat Projekt Feat. Maysha - Sunshine (05:22)
-04. Dj-Chart - Get In Mood (04:22)(   Читать дальше...   )Производство: IH Music ProductionsЖанр: Lounge, Chill Out, Chill HouseПродолжительность: 05:40:03
+01. Back In Time
+02. Atlantis
+03. City Of Golden Gates
+04. The Flame Of Eternal Knowledge(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:50:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9C7C389C2298F507CAB535581914B91E57F8BC03
+magnet:?xt=urn:btih:DF1085EAD682DB7B43CBB173D0B49FEB4422DFDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,25 +306,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 925901   (537266) от 08.08.2015
+###  Публикация: 1049984   (540760) от 07.09.2016
 
-Пётр Биргер | На сто лет старше (2013) [MP3]
+VA - Chillout September 2016 Top 10 September Relaxing Chill Out and Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537266.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Как жили петербуржцы сто лет назад и как живут сейчас.Жанр: ИсторияПродолжительность: 01:04:32
+01. Seven24 - The Mirage - Chillout Mix
+02. S.A.T - All The Time - Chillout Mix
+03. Gray Piligrim - Eluja - Chillout Bonus Mix
+04. R.I.B. - Sea Chasm - Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:58:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10A2EF44233EB230E38BAB3118B71EE38250516C
+magnet:?xt=urn:btih:78849D5B48A6F13975CEF572876B1AC0199B1247
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,28 +335,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154910   (537245) от 01.08.2017
+###  Публикация: 1050233   (540757) от 07.09.2016
 
-Cj Stereogun - Top & New (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+VA - Digital Turbo Trance Sunset (2016) [MP3|320 Kbps] <Trance, Energy, Harmonic, Melodic, Emotional>
 
->>Electronic
->>Trance
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cj Stereogun - Autumn Wave (Original Mix) 08:06
-02. Cj Stereogun - Cassiopeia (Original Mix) 07:02
-03. Cj Stereogun - Dolphin Pond (Original Mix) 08:27
-04. Cj Stereogun - Ice Planet (Uplifting Trance Mix 2017) 06:04(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:33:17
+01. Sean Tyas  -  Turbo (Original Mix)  7:19
+02. Ciro Visone & Semper T  -  Revolution (Original Mix)  6:52
+03. Amos & Riot Night  -  Leap of Faith (Original Mix)  6:38
+04. Mind-X  -  Eternal Waves (Extended Mix)  6:33(   Читать дальше...   )Жанр: Trance, Energy, Harmonic, Melodic, EmotionalПродолжительность: 03:46:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1114AD0FB4323D9B491D034B6EF0814CD9C6B793
+magnet:?xt=urn:btih:3A8A98F7A135A2356DCC45A76748F29963D1ABF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,28 +364,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155006   (537244) от 01.08.2017
+###  Публикация: 1050149   (540756) от 07.09.2016
 
-Футбол. РФПЛ. Чемпионат России 2017-2018. 3-й тур. Спартак (Москва) — Краснодар (Краснодар) (31.07.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Timothy Olson - Bedtime (2016) [MP3|320 Kbps] <Electronic, Easy Listening, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awake All Night
+02. Baby Dream
+03. Bedtime Stories
+04. Breeze(   Читать дальше...   )Жанр: Electronic, Easy Listening, New AgeПродолжительность: 00:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCAD00CA8F0644874238B9BAC80E34F037FAABED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050192   (540755) от 07.09.2016
+
+VA - Jazzy Lounge, Vol. 1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Balearic, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maurice Sanders - Oise [3:56]
+02. Cee Jazz - A Night in Venice [4:51]
+03. Dee Lice - Derize (Chill Groovers Mix) [5:44]
+04. Cairo Aerts - Hybrid Line [3:52](   Читать дальше...   )Жанр: Nu Jazz, Balearic, LoungeПродолжительность: 01:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3232CC5DA47A2167DC6ADC83AFDDC4AF51259688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050241   (540754) от 07.09.2016
+
+goPanel 1.6.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Простота установки и менеджер Apache, PHP, MySQL, Mail Server и FTP.
+goPanel - наиболее интуитивное приложение для управления веб-серверами и является альтернативой существующему программному обеспечению, будет полезна если вы устанавливаете сервера на базе Unix  для веб-хостинга.
+
+Легко для того, чтобы установить и настроить Apache, PHP, MySQL, FTP, домены и Mail (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 сентября 2016Разработчик: Global Web SRLПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E31EB069CB8D74C4C36546D9394793EACB424960
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050208   (540753) от 07.09.2016
+
+Теннис. US Open 2016. Мужчины. Одиночный разряд. 1 й круг. Ф. Вердаско (Испания) - С. Вавринка (Швейцария) (30.08.2016) DVBRip [H.264/1080i][RU/EN]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-31 июля 2017 года, понедельник. 19:30 МСК
-РФПЛ. Чемпионат России 2017 - 2018. 3-й тур
-Спартак (Москва) — Краснодар (Краснодар)
-Стадион: Открытие Арена (Москва, Россия), 34208 зрителей (75 % при вместимости 45360)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:22:17
+30 августа 2016 года, вторник. 20:15 МСК
+Открытый чемпионат США 2016. Мужчины. Одиночный разряд. 1 й круг
+Фернандо Вердаско (Испания) - Стэн Вавринка (Швейцария, 3)
+(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: 1.Русский, 2.АнглийскийПродолжительность: 01:32:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A519DCF2105F4A332EEC475FD9044C69D25451EB
+magnet:?xt=urn:btih:2E868C363ECD6686F80A6873A9230A14884DB908
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,28 +480,67 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155044   (537243) от 01.08.2017
+###  Публикация: 531892   (540752) от 06.08.2012
 
-Mind Odyssey - Time To Change It (2009) Japan 1st Press, 2009, Avalon [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+VA - Star House Vocal (19.07.2012) [MP3|320 кб/с]<House Vocal, Dance, Club, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Alex Gaudino feat. Taboo - I Don't Wanna Dance feat. Taboo (Original Mix)
+ 02 - Alexandra Stan - Lemonade (Single Version)
+ 03 - Basshunter - Northern Light (Club Mix)
+ 04 - Meiko - Leave The Lights On (Crystal Method Remix)
+ 05 - Basslovers United - Was Wollen Wir Trinken (Rob & Chris Remix)
+ 06 - Cascada - The Rhythm Of The Night (Extended Mix)
+ 07 - Coffee & Honey Feat Diana J & David Ferrari - Dont Stop (Datniele Remix)
+ 08 - DJ Feel & DJ Rich-Art - This Feeling (Pop Extended)
+ 09 - Dual Playaz - Alone Again (Gordon & Doyle Remix)
+ 10 - Electric Dance Theatre - Crack Monkey (Belmond & Parker Remix)(   Читать дальше...   )Жанр: House Vocal, Dance, Club, ElectroПродолжительность: 04:00:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:021B44CB9FB72555D57C3B0951F89450ECA29C18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531297   (540751) от 06.08.2012
+
+Lycanthia - Oligarchy (2012) [FLAC|Lossless]<Gothic Metal/Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Riding And Ruling (3:25)
-02. Enemy Daggers (3:57)
-03. I Want It All (4:38)
-04. Face In The Rain (3:53)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:44:11
+01. The Essential Components of Misery (9:19)
+02. Eternity... (1:49)
+03. Forgone (7:35)
+04. Ablaze the Wheel Turns (6:06)
+05. Despondency in Crescendo (9:59)
+06. Time Feeds These Wound (6:37)
+07. Hair of the Beast (5:19)
+08. From Ancestral Lands (6:39)Жанр: Gothic Metal/Doom MetalПродолжительность: 00:53:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15ECB9AE0D4A74FF6BC2EA2F1A7FF8651991BAC3
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,28 +548,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154792   (537242) от 01.08.2017
+###  Публикация: 531186   (540750) от 06.08.2012
 
-Wolverine - Machina Viva (2016) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Progressive Rock>
+Wonderful Nature Wallpapers (77 снимков) [Wallpapers]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Графика, Арт, Разное
+>>Обои для рабочего стола
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. The Bedlam Overture (14:40)
-2. Machina (05:17)
-3. Pile Of Ash (04:18)
-4. Our Last Goodbye (07:44)(   Читать дальше...   )Жанр: Progressive Metal, Progressive RockПродолжительность: 01:08:43
+Wonderful Nature Wallpapers (77 снимков) [Wallpapers] 
+Название: Wonderful Nature Wallpapers (77 снимков)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 5064х2946
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи:  c 17-00 до 5-00 (время Киевское (GMT+02:00))
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE59F1472E2D7ADD24DE944B6EB419D298C48D12
+magnet:?xt=urn:btih:378F28A93CB9AB4C8350D656012D404B89D90888
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,86 +578,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155040   (537240) от 01.08.2017
+###  Публикация: 532126   (540747) от 06.08.2012
 
-Mind Odyssey - Nailed To The Shade (1998) Japan 1st Press, 1999, Victor [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture - Ascending To Heaven (1:27)
-02. Nailed To The Shade (4:30)
-03. In The Dark (4:07)
-04. Gone (5:22)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:59:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CFBABF94C2F6D83288BE7933C387E8704CD2C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155043   (537239) от 01.08.2017
-
-Mind Odyssey - Signs (1999) Japan 1st Press [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fountain Of Music (1:33)
-02. Men Of No Return (5:26)
-03. Golden Age (5:55)
-04. In The Picture (7:31)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9992D95FFB712D6A3658E0734FE2AAE6E20E9D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154221   (537238) от 01.08.2017
-
-Monster Energy NASCAR Cup Series 2017. 19-й Этап. Overton's 301 (16.07.2017) HDTVRip [H.264/720p-LQ] [hand made 60fps] [EN]
+Каникулы в Мексике - 2. Ночь на вилле. Выпуск №111 (2012.08.06) (2012) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540747.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 июля 2017 года
-Monster Energy NASCAR Cup Series 2017 является 69-м сезоном профессиональных гонок автомобилей в США и 46-м сезоном современной эпохи NASCAR Cup Series.
-19-й Этап. New Hampshire - Overton's 301. Лаудон (штат Нью-Хэмпшир, США)
-Дистанция: 318.458 миль (512.508 км). 301 кругов, круг - 1,058 мили (1,703 км)(   Читать дальше...   )Телекомпания: NBCSNЖанр: СпортЯзык озвучки: АнглийскийСубтитры: Английские (отключаемые)Продолжительность: 03:03:03
+Новая ведущая! Роскошные бунгало и Башня одиночки! Новые герои, новый приз и новые правила! Катрин выиграла главный приз, и герои «Каникул» уже собирались домой… Как вдруг судьба дала им еще один шанс! Они получили возможность остаться в Мексике и продолжить игру. И некоторые остались! Еще несколько выбывших участников вернулись на проект, чтобы снова попытать счастья, а кто-то приехал в Мексику впервые...Героев ждут лучшие каникулы в жизни: шоколадный загар, жаркие ночные клубы, бесконечный кредит в баре и классная тусовка… А еще страсть, интриги, умопомрачительные свидания, крепкая дружба, взрослые ссоры и настоящая любовь!Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:23:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8796D36F331CEF2FCBECE5BA95954621C9B1FB8
+magnet:?xt=urn:btih:C785ACB14D9DBFD3673A4AA2348A2FACE8147F06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,28 +604,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155084   (537237) от 01.08.2017
+###  Публикация: 531843   (540745) от 06.08.2012
 
-VA - Ambient Chill Playlist: 14 Chilled Ambient and Downtempo Tracks (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+Best HD Wallpapers Pack (06.08.12) [Wallpapers]
 
->>Electronic
->>Easy listening
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537237.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Custom 7 - Breath Unwind
-02. Bella Element - Forest Rain
-03. Nils Hahn - La sua bellezza - Custom 7 Remix
-04. Joefish - Altered State(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:58:54
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:574021B5E8F117EDB1FABCCA1BB19C1245E3A7C3
+magnet:?xt=urn:btih:9A7AFF11904D72423DED3E704DE3CDD2E891007E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,57 +630,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154984   (537236) от 01.08.2017
+###  Публикация: 531604   (540744) от 06.08.2012
 
-VA - Rooftop Dinner, Vol. 1 (Finest Lounge and Nu Jazz Tunes) (2017) [MP3|320 Kbps] <Balearic, Downtempo>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marco Bianchi - Goodnight 03:16
-02. Artur Bayramgalin - Over The Clouds 05:27
-03. Otamoo - Recap 2 05:51
-04. Driewad - Django 04:18(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 02:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263D56237C57DAAE7050A6EEA4FB6045C3B0EDAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154973   (537235) от 01.08.2017
-
-Darkwater - Calling The Earth To Witness (2007) [APE|Lossless|image + .cue] <Progressive Metal>
+Saralee - Darkness Between (2006) [FLAC|Lossless]<Gothic Metal, Love Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. 2534167 (00:32)
-2. All Eyes On Me (08:48)
-3. Again (09:01)
-4. Habit (12:46)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:08:22
+01. Everytime [00:03:29]
+02. Loneliness O.D [00:04:20]
+03. Black & Hollow [00:03:13]
+04. Falling Star [00:03:40](   Читать дальше...   )Жанр: Gothic Metal, Love MetalПродолжительность: 00:49:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A874329D163657851B11DF067F9CD424946660DC
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,28 +659,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154858   (537234) от 01.08.2017
+###  Публикация: 531734   (540743) от 06.08.2012
 
-VA - Uplifting Trance Sessions Vol.2 (2017) [MP3|320 Kbps] <Uplifting Trance>
+[Графика] Коллекция работ фотографа Анны Немирович
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Distant World - Make Trance Not War (Original Mix)  7:43
-02.  Alexander Dyomin - In My Memoirs (Original Mix)  5:54
-03.  T4L & Mariano Ballejos - Paradise (Original Mix)  6:44
-04.  Daisuke Matsushima - Legacy (Abide Remix)  5:57(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:49:01
+Коллекция работ фотографа Анны Немирович
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85CDA62E00C78089BCFB0F290AFC2E3650FEF64E
+magnet:?xt=urn:btih:093BBC3004A06E3840FAAC9D8AE1B3DF6503CA09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,28 +685,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155028   (537233) от 01.08.2017
+###  Публикация: 531954   (540742) от 06.08.2012
 
-Mind Odyssey - Schizophenia (1995) Japan 1st Press, 1995, Victor [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+Олег Курылев | Шестая книга судьбы [2005] [FB2]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Schizophenia (3:36)
-02. Evolution (4:57)
-03. Robotman (4:06)
-04. Nervous Breakdown (4:53)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:50:45
+Вскоре после того, как была открыта возможность путешествий во времени, появилась необходимость в создании спецслужбы, контролирующей и пресекающей темпоральные парадоксы, возникающие в результате вторжения в прошлое. Сотрудники службы хронобезопасности редко сидят без дела: опасные инциденты происходят слишком часто.
+В результате технической ошибки в Мюнхен 1943 года попадает написанная в шестидесятые годы книга «История взлета и падения Третьего рейха». Ее шестой том, в котором описано завершение Второй мировой войны, способен стать для верхушки нацистского государства подлинной «книгой судеб» — зная, как в дальнейшем будут развиваться события, гитлеровцы вполне способны переломить ход войны в свою пользу. Этого нельзя допустить, чтобы не рухнул мир будущего. Сотрудники службы контроля над временем начинают опасную игру в сердце Третьего рейха.Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F4D6FEE895AD51319E9994ED66155257A32C9AF8
+magnet:?xt=urn:btih:04AFAB3214AB11E7B555AD90421C58E38FE438B0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,86 +712,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155046   (537232) от 01.08.2017
+###  Публикация: 531731   (540738) от 06.08.2012
 
-Mind Odyssey - Best Of - 15 Years (2008) Compilation [APE|Lossless|image + .cue] <Heavy Metal, Speed Metal>
+[Графика] Коллекция работ художницы Марины Якименко
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540738.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Raven & Swan (3:22)
-02. In The Dark (4:04)
-03. Men Of No Return (5:53)
-04. Robotman (4:02)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:59:25
+Коллекция работ художницы Марины Якименко
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D9DFE82A3EBD57401999A2253C221BB5FB48FF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154970   (537231) от 01.08.2017
-
-Darkwater - Where Stories End (2010) [FLAC|Lossless|image + .cue] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537231.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Breathe (04:37)
-2. Why I Bleed (08:16)
-3. Into The Cold (06:31)
-4. A Fools Utopia (05:44)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205B3FA95E2511CD2B60439B23169D070D2178B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155021   (537229) от 01.08.2017
-
-Mind Odyssey - Keep It All Turning (1993) Japan 1st Press, 1994,  Noise International [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Possessed By You (04:08)
-02. The Reaper (04:52)
-03. Because Of You (05:16)
-04. Illusions (06:06)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0B6B46CDAA2C2AF86CC7F0DC44670C6F0871BEF
+magnet:?xt=urn:btih:173A9A1C75956BDB21675F77EE84D235CE7E379D
 ```
 
 https://mybot314.ru/tekegram_catalog/

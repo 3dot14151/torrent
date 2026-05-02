@@ -1,3 +1,177 @@
+###  Публикация: 1724471   (109221) от 20.05.2024
+
+Saint Agnes - Bloodsuckers (2023) Deluxe [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Rapcore, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Bloodsuckers (00:03:22)
+02 - Animal (00:03:59)
+03 - I Mean Nothing To You (00:04:05)
+04 - Outsider (00:04:05)(   Читать дальше...   )Жанр: Nu-Metal, Rapcore, Female VocalПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15CDD1A349BFC41236212546B7D96A31FCCA0D70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724609   (109206) от 20.05.2024
+
+Sensual Lounge Music Universe, Jazz Lounge Zone - Deep Sexy Jazz Lounge (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz: Swinging All Night (3:06)
+02. Sensual Seduction: Romantic Night (3:09)
+03. Lounge Shades: Erotic Jazz Lounge (3:05)
+04. Foreplay Jazz (3:16)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E775D19CEB5D8A30A1A6C59BC2ACBB552CC67CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724404   (109196) от 20.05.2024
+
+VA - Metal Massacre 05 (1984) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109196.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Omen - Torture Me
+A2 - Voivod - Condemned To The Gallows
+A3 - Attacker - (Call On) The Attacker
+A4 - Future Tense - Nightmare(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8962A3FA23FAF082D27D98356F9FDD801CB07B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724682   (109179) от 21.05.2024
+
+King Kong - Funky Reggae (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Reggae, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109179.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Love I Lost
+A2 Let Your Yeah Be Yeah
+A3 I Heard It Through The Grapevine
+A4 Papa Was A Rolling Stone(   Читать дальше...   )Жанр: Reggae, FunkПродолжительность: 00:38:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD509BA9E5922A29369568083E5D855111810324
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724633   (109174) от 21.05.2024
+
+Prong - Studio Albums (15 releases) (1987-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Crossover/Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109174.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prong — американская грув-метал-группа, образовавшаяся в 1986 году в Нью-Йорке. Коллектив основан вокалистом и гитаристом Томми Виктором, который на протяжении всего существования Prong является единственным его постоянным участником.1987 - Force Fed - Primitive Origins (EP)
+1990 - Beg to Differ - The Peel Sessions (EP)
+1991 - Prove You Wrong
+1992 - Whose Fist Is This Anyway (EP)Жанр: Crossover/Thrash/Groove MetalПродолжительность: 11:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A121860FEDB92B93B2FE2D84776AFA9CF1425DD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1724637   (109155) от 21.05.2024
+
+VA - Metal Massacre 06 (1985) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Thrash, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109155.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Possessed - Swing Of The Axe
+A2 - Nasty Savage - XXX
+A3 - Steel Assassin - The Executioner
+A4 - Mayhem - Tear Down The Walls(   Читать дальше...   )Жанр: Heavy Metal, Thrash, Speed MetalПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BDD69A33E6F4F80DD3B0E7FAE0D064A7818CE9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1724974   (109133) от 22.05.2024
 
 Валерий Ободзинский - Поёт Валерий Ободзинский (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Советская эстрада, Поп>
@@ -569,180 +743,6 @@ Sensual Lounge Music Universe - Jazz Saxophone for Sex (2024) [FLAC 24/44.1|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AC7BF80B654837AEE93EA85B8EC8EE069F8533F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725613   (108943) от 25.05.2024
-
-Pet Shop Boys - Furthermore (New version) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synth Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart (New version) [00:03:55]
-02. Being boring (New version) [00:05:59]
-03. Always on my mind (New version) [00:04:19]
-04. It’s a sin (New version) [00:04:37]Жанр: Synth PopПродолжительность: 00:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8365F491F38F376E8A8B5807FE83387007A1BCE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725717   (108931) от 25.05.2024
-
-Smooth Jazz Music Academy - Old Fashioned Jazz: Vintage Sounds for Relax, Restaurant, Cocktail Bar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Some Years Ago (3:16)
-02. Old Fashioned Song (3:21)
-03. Lovely Lady (3:30)
-04. Music is in the Air (3:00)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD744F6240024E072BBD626C2F44E926ECC520A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725713   (108927) от 25.05.2024
-
-Romantic Sax Instrumentals - Romantic Sentiments (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Like Sunday Morning (4:40)
-02. Another Love (4:19)
-03. Heart & Soul (4:01)
-04. Important Choice (3:45)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8EE5680BF3C71C676667373E4398685FD4B695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725629   (108919) от 25.05.2024
-
-Exilia - Unleashed XX (2024) [FLAC 24/44|Lossless|WEB-DL|tracks] <Alt.Metal, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coincidence (Remastered) [00:03:41]
-02. Stop Playing God (Remastered) [00:03:07]
-03. Like An Avalanche [00:02:51]
-04. Day In Hell (Remastered) [00:03:40](   Читать дальше...   )Жанр: Alt.Metal, Female VocalПродолжительность: 01:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5BC53521E733ACF09729DA074CEA294664A3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725646   (108917) от 25.05.2024
-
-Municipal Waste - Studio Albums (9 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal/Crossover>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108917.jpg" />
-</div>
-
-
-###  Подробнее
-
-Municipal Waste — кроссовер-трэш-группа из Ричмонда, Вирджиния, основана в 2001 году.2003 - Waste 'Em All
-2005 - Hazardous Mutation
-2007 - The Art of Partying
-2009 - Massive AggressiveЖанр: Thrash Metal/CrossoverПродолжительность: 03:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA737E179C9A6F8932A72CC8956D44374A9A614
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725709   (108913) от 25.05.2024
-
-Romantic Music Center, Instrumental Jazz Music Ambient - Late Night Kisses: Romantic Instrumental Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Lovers (3:52)
-02. Retro and Romantic (3:25)
-03. Moonlight Jazz Love (3:46)
-04. Love Story Time (3:17)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B729F8B55A69186E039001EF949C841B3FA6ADBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

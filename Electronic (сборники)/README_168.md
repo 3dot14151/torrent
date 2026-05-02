@@ -1,3 +1,61 @@
+###  Публикация: 1331449   (332160) от 15.10.2019
+
+VA - Best tracks of Transitions by John Digweed on Kiss 100. 2005 - 2006 Volume 3 (2019) Compiled by Firstlast [MP3|192-320 Kbps] <Progressive House, Techno House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Grid - Floatation (1992) (7:02)
+02. Merz - Mentor (Caged Baby 'Italian Baby Sauce' remix) (5:37)
+03. Depeche Mode - Precious (Michael Mayer Balearic Mix) (7:18)
+04. Trentemoller - Prana (5:14)(   Читать дальше...   )Жанр: Progressive House, Techno House, Deep HouseПродолжительность: 09:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60CBEEE7E53E87CB70112BD20973A07365488CD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331413   (332159) от 15.10.2019
+
+VA - Groove Techno Tools (2019) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332159.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Volunteer - Levitating Stones
+002. Greyhead - Llantos Del Desierto
+003. B-Front - Undiscovered
+004. Devin Wild - Mind Bending(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:122522658401E7A71598A110C0B8F9B167692CF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580043   (331698) от 30.09.2022
 
 VA - TOP Non-Stop - Deep House & Chillout Before 2000 (2022) [MP3|192-320 Kbps] <Deep House, Chillout, Ambient>
@@ -687,64 +745,6 @@ VA - TOP Non-Stop - Funky House Before 2000 (2022) [MP3|192-320 Kbps] <Funky Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAE6B15078907B824BAC5F6A3091ED6807195708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 957776   (326712) от 18.11.2015
-
-VA - A Smile and a Tear Best Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Magical Corner - Laguna
-02. Logophilia - Igualmente
-03. Hannes Im Glьck - Ach und Lach
-04. Mind Conventions - Sweet Fever(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64DE6E9B0AF061F1AAEE24BEE28B484B0D97541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958031   (324998) от 20.11.2015
-
-VA - White Sunset - 20 Smooth Sexy and Relaxing Chillout Tunes - Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deja-Move - Sweetdub - Original Mix
-02. Mr. V - Sunset Landscapes - Original Mix
-03. Shakra - Earth Song - Original Mix
-04. Jen - Asleep - Album Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D45E5E89F4A8D5F503E243467EDE81BACE3F3FC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1477801   (1010496) от 18.06.2021
+
+Korolova - AFTR:HRS SESSIONS 06 (2021-06-10) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alar & Korolova Feat. Yann Menge - Symphony(Dub mix)
+02. Thomas Gandey, Rafael Cerato & Antony Toga  - Freedom (Morttagua Remix)
+03. Jan Blomqvist, Alar & Korolova - Time Again
+04. Tinlicker - Past Life(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF4C73B27144A3808326A14EFC55C5729A64DAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478453   (1010359) от 19.06.2021
+
+Vintage Culture - Live @ Defected Livestream, Brazil (2021-06-11) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture & Fancy Inc ft. Roland Clark - ID
+02. Meca - Chains
+03. Sofi Tukker - Drinkee (Vintage Culture & John Summit Remix)
+04. Vintage Culture & Ferreck Dawn - ID(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5E6D34D674BA407DB3BB7CB10B92CDB00EE9992
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478634   (1010200) от 20.06.2021
 
 Lane 8 - Summer 2021 Mixtape (2021-06-15) [MP3|320 Kbps] <Deep House, Progressive House>
@@ -687,64 +745,6 @@ Craig Connelly - Trance Classics Golden Years Mix (1997-2002) 2020-03-23 [MP3|32
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:940325B129C68D411257F4B80ED1DF5EE5AB65A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493580   (894223) от 04.09.2021
-
-Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Sound Bar Chicago, United States 2021-08-14) (2021-09-02) [MP3|320 Kbps] <Progressive House, Trance, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID
-02. Estiva - Metamorphoses
-03. Jerome Isma-Ae & Alastor - Timelapse
-04. LTN - When it Rains(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3769142D923094B8AB3963ADBED119C72FB189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101818   (892893) от 08.02.2017
-
-Aurosonic - Yearmix 2015-2016 (2016) [MP3|320 Kbps] <Progressive Trance, Melodic Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892893.jpg" />
-</div>
-
-
-###  Подробнее
-
-1) Aurosonic & Sue McLaren - Captured By Gravity (Intro Mix)
-2) Raz Nitzan feat. Jess Morgan - Not Like Everyone (Aurosonic progressive mix)
-3) Arctic Lake - Limits (Aurosonic progressive mix)
-4) Headstrong & Aurosonic ft. Stine Grove - I Wont Fall (original mix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 01:30:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D469822F56D6128826CF9627DCE42A2D3056FE5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1298038   (602646) от 25.04.2019
+
+Satin Jackets - Diamonds Are Forever (2018) Eskimo Recordings [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Latin Jackets (6:27)
+ 02. Got To Be Love (4:42)
+ 03. Hollywood (7:14)
+ 04. Olivia (Sirius XM Chill Edit) (5:00)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B045FCF2D7D718114DD5839D9FB573D4CC73F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232284   (602331) от 23.06.2018
 
 Modd - Mesmerize Me (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill House>
@@ -713,35 +742,6 @@ VA - Mixmag Germany presents Einmusik (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:291297818A0A6116C242727FBB22E77BB17E7850
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1552901   (584751) от 23.05.2022
-
-VA - Anjunabeats Worldwide 10 (Mixed By Fatum) (2022) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584751.jpg" />
-</div>
-
-
-###  Подробнее
-
-[5:56] 01. Tinlicker - You Take My Hand
-[5:25] 02. Luccio - Try
-[3:29] 03. Rodg - Sola
-[4:05] 04. Genix - I'm Awake (Anden Remix)(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53AEF700ABBA3E8C81B4806FA3D371BE221389C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

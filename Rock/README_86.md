@@ -1,3 +1,31 @@
+###  Публикация: 1590170   (189491) от 12.11.2022
+
+Stratovarius - Eagleheart (2002) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagleheart
+02. Run Away
+03. Eagleheart (Demo Version)Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:12:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDF06BF634F42325FADE8382F0995EE6D52AD96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1589891   (189489) от 12.11.2022
 
 Stratovarius - Father Time (1996) Single [OGG Vorbis|480 Kbps] <Rock, Heavy Metal, Power Metal>
@@ -716,35 +744,6 @@ Jimmy Martin - The Singles (2020) [MP3|320 Kbps] <Melodic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4F556E7169F3216FC4CEC039DDF458B9EA6C34C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665438   (182406) от 30.09.2023
-
-Steven Wilson - The Harmony Codex (2023) [MP3|320 Kbps] <Progressive rock, Art rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_182406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inclination (7:16)
-02. What Life Brings (3:39)
-03. Economies of Scale (4:18)
-04. Impossible Tightrope (10:44)(   Читать дальше...   )Жанр: Progressive rock, Art rockПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F804770C70A9F98E8FC37ECE9AD598FBF25DFFFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

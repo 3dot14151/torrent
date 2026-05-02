@@ -1,3 +1,61 @@
+###  Публикация: 1235000   (566008) от 08.07.2018
+
+Illinois Jacquet - The Illinois Jacquet Story: Flying Home (1944 - 1951) 2002, Proper Records [FLAC|Lossless|image + .cue] <Swing, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lester Leaps In [9:04]
+02. Blues [10:21]
+03. Body and Soul [10:28]
+04. I've Found a New Baby [9:26](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 01:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1B3E79D266CF816A3E94DB6C1F34A77C1DEB34F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234816   (566006) от 08.07.2018
+
+Teddy Wilson - Stomping At The Savoy (1969 - 1971) 1991, Black Lion [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stompin' at the Savoy [4:25]
+02. Moonglow [4:35]
+03. As Time Goes By [2:32]
+04. Honeysuckle RoseЖанр: Swing, Piano JazzПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE82E0A4FB66B756C5AA01E9FB257D45692A4D1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1152664   (565795) от 23.07.2017
 
 Lisa Casalino - Introducing Lisa Casalino (2011) Lisa Casalino Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -693,64 +751,6 @@ Mike Vax & Ron Romm - Collaboration (2018) [FLAC|Lossless|image + .cue] <Swing, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7A9EE11D555E7574F0302FBBC826A8F7D1AD7AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304760   (562092) от 27.05.2019
-
-Rosenberg Trio & Tim Kliphuis - Tribute To Stephane Grappelli (2008) Foreign Media Music [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R-Vingt-Six [3:36]
-02. My Melancholy Baby [2:58]
-03. Micro [2:52]
-04. Si Tu Savais [3:12](   Читать дальше...   )Жанр: Swing, GypsyПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBAF346B892653938410D1F94865193CD3BD5DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045135   (561895) от 22.08.2016
-
-Curtis Fuller - Meets Roma Jazz Trio (1982) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Impressions [06:47]
- 02.R.E.D.'s Delights [06:54]
- 03.Jazz Island [05:46]
- 04.Naima [08:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A997E02F7B1C8E18B6F044C12C14C5A106728C
 ```
 
 https://mybot314.ru/tekegram_catalog/

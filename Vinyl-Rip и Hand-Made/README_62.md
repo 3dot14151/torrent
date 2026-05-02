@@ -1,3 +1,177 @@
+###  Публикация: 1682358   (131508) от 07.12.2023
+
+Pyramaze - Studio Albums (7 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pyramaze — датская пауэр-метал группа, образованная в 2001 году.2004 - Melancholy Beast
+2006 - Legend Of The Bone Carver
+2008 - Immortal
+2015 - Disciples Of The SunЖанр: Progressive Power MetalПродолжительность: 06:18:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FD17833A6834C9759E877803F36D54D69A5A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682844   (131186) от 08.12.2023
+
+Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dream Sequencer
+02. My House On Mars
+03. 2084
+04. One Small Step(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:09:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C1A7E8EB5C90D93CB840A8050A257FA092949B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682573   (131167) от 08.12.2023
+
+Arjen Anthony Lucassen - Lost in the New Real (2012) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The New Real
+02. Pink Beatles In A Purple Zeppelin
+03. Parental Procreation Permit
+04. When I'm A Hundred Sixty-Four(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:30:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F08B0416DE78605A75E676BE1AAD55DEE51B6E25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682671   (131165) от 08.12.2023
+
+Ayreon - Into the Electric Castle (A Space Opera) (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome To The New Dimension
+02. Isis And Osiris
+03. Amazing Flight
+04. Time Beyond Time(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC295937AE4BA55A8BC75DBF7D1CE65845E5E42C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620165   (130690) от 09.12.2023
+
+КняZz (Князь; Андрей Князев; Король и Шут) - Студийные альбомы (10 релизов) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130690.jpg" />
+</div>
+
+
+###  Подробнее
+
+«КняZz» — российская рок-группа из Санкт-Петербурга, созданная в 2011 году Андреем Князевым, являвшимся на момент её создания участником панк-группы «Король и Шут». Весной того же года Андрей Сергеевич отказался от работы в театре над рок-оперой «TODD» совместно с Михаилом Горшенёвым и решил создать сайд-проект для реализации собственного творческого потенциала. (   Читать дальше...   )2005 - Любовь негодяя
+2011 - Письмо из Трансильвании
+2012 - Тайна кривых зеркал
+2013 - Роковой карнавалЖанр: Punk RockПродолжительность: 07:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D277B86D06D3816C4F580DA1E4B71CF5CE764C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682999   (129862) от 09.12.2023
+
+Cher - Cher's Greatest Hits 1965-1992. Volume 1 (1993) Compilation, Unofficial Release [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129862.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Oh No Not My Baby
+A2 Whenever You're Near
+A3 Many Rivers To Cross (Live From The Mirage)
+A4 Love And Understanding(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9190965DDD45DA2D9002C6F8CBC92C5D19BD4122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525536   (129209) от 21.01.2022
 
 Suburban Tribe - Дискография (10 Albums) (1994 - 2011) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Alternative Rock, Nu Metal>
@@ -565,180 +739,6 @@ Stam1na («Стойкость») — метал-группа из Леми, Юж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A2917C99B5A9A66F6BC38D910C9524F6672560B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684406   (127764) от 15.12.2023
-
-Ayreon - The Source (2017) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127764.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - The Day That The World Breaks Down
-A2 - Sea Of Machines
-A3 - Everybody Dies
-B1 - Star Of Sirrah(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:28:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684782   (127351) от 17.12.2023
-
-Phantasm - Keeper of Death (1993) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Thrash, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127351.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Rotten Plague
-A2 Stick In Back
-A3 Brainsuckers Spiders
-A4 Night Of The Living Dead(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4012276DE02FF8FE2771B1FBCE4542D673D0A223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685955   (126869) от 20.12.2023
-
-Atomkraft - Atomkraft (1987) Compilation [FLAC|24/96|tracks|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126869.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Queen Of Death
-A2 Protector
-A3 Demolition
-A4 Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36728EE6E92CB9444221B4731F58A1793CA2FDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685908   (126863) от 20.12.2023
-
-Atomkraft - Future Warriors (1985) [FLAC|24/96|tracks|Vinyl-Rip]<NWOBHM, Heavy Metal, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126863.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Future Warriors
-A2. Starchild
-A3. Dead Man's Hand
-A4. Total Metal(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:35:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD00F1A33906F55731AC18AD1B41DE8844088FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686072   (126770) от 21.12.2023
-
-Телевизор - Шествие Рыб (1988) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126770.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Люди В Ожидании
-A2 Муха На Стекле
-A3 Город
-A4 Я Не Виноват(   Читать дальше...   )Жанр: New WaveПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A8E83BFE7B47D0F7423EEA7FDC2BA3EDC1D1724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685934   (126751) от 21.12.2023
-
-Atomkraft - Queen of Death (1986) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126751.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Queen Of Death
-A2 - Protector
-B1 - Demolition
-B2 - Funeral Pyre(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Speed MetalПродолжительность: 00:17:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A600B9E64E2C32BB536B9F258DB90918870998AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

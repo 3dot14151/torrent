@@ -1,3 +1,119 @@
+###  Публикация: 1529674   (732495) от 07.02.2022
+
+Eddie 9V - Little Black Flies (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Black Flies (3:14)
+02. 3AM in Chicago (3:37)
+03. Dog Me Around (2:56)
+04. She Got Some Money (3:03)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CCF19ED4F4E016FC9F17AD19AC45EE1F252AFB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127347   (732223) от 21.04.2017
+
+Swoop - The Woxo Principle (1995) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Swingbeat>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woxo Prelude (0:41)
+02. Living How I'm Living (3:12)
+03. Ephemera (Drop The Vibe) (3:20)
+04. Rock Dog (5:50)(   Читать дальше...   )Жанр: Funk, Soul, SwingbeatПродолжительность: 01:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4E8613E001C288FACE3654020DAEF491519B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127387   (732216) от 21.04.2017
+
+Sky High - Stone & Gravel (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretty Young Women (& Dirty Old Men. Feat. Jon Paris)  (04:05) 
+02. One Step Back  (04:05) 
+03. A New Old Style ( Old Farts Boogie )  (03:15) 
+04. Holy Grounds (Feat. Per Wiberg)  (06:04) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F567C9336C4627E028AE5535B4DF669544ECE6EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127499   (732159) от 21.04.2017
+
+Joanne Shaw Taylor - White Sugar (2009) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Home  (04:50) 
+02. Just Another Word  (04:07) 
+03. Bones  (05:22) 
+04. Who Do You Want Me to Be?  (03:35) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1368BFD724E6C8B7BB1847AF009CB510008166A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1283682   (732132) от 18.02.2019
 
 VA - Wild, Cool & Swingin': Ultra Lounge Vol. 5 (1996) [FLAC|Lossless|tracks + .cue] <Jump Blues, Cabaret, Jazz>
@@ -629,122 +745,6 @@ King of the World - Royal Ten (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07F5FED3F790F1AB21C4010C3EEC841FD9CD1AAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531265   (722482) от 15.02.2022
-
-Willie Dave Willis - Spirits (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Folklore (Backwoods Version) (2:51)
-02. Ghost Train (3:12)
-03. Good Bad and Mostly in Between (3:50)
-04. Clean Slate (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F315ED711C842034D8D0648E1701F74863B80A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023877   (722373) от 06.06.2016
-
-Dave Steffen Band - Give Me A Thrill! (1993) [FLAC|Lossless|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Mover    03:14
-02. Gotta Love For You Baby    03:31
-03. Give Me A Thrill    02:56
-04. Rainy Blues    05:34(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:55:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6317B70EEFC73FE2F1469A6E1297D6BBCCEFFEA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129659   (720707) от 29.04.2017
-
-Robert Cray & Hi Rhythm - Robert Cray & Hi Rhythm (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Electric-Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Крей родился 1 августа 1953 года (Колумбус, Джорджия) в семье военнослужащего. С виду он весь какой-то не блюзовый, больно уж смазливый и чистенький, слишком рафинированный, чтобы показаться настоящим. От него не разит виски и табаком. От одного только его вида веет изысканной парфюмерией. Таков теперь современный блюз, что ли? Если не в целом, то блюз одного (   Читать дальше...   )01. The Same Love That Made Me Laugh (3:52)
-02. You Must Believe In Yourself (3:40)
-03. I Don't Care (5:28)
-04. Aspen, Colorado (4:20)(   Читать дальше...   )Жанр: Blues, Electric-Blues, SoulПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285919490D617F6AF3FC950D468A97C2E874E402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024077   (720667) от 07.06.2016
-
-Robby Z - I'm Your Man (2001) [FLAC|Lossless|tracks] <Blues, Blues Rock,>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is It You    04:15
-02. When Does it End    04:44
-03. Can't Live Without You    03:12
-04. Play    04:11(   Читать дальше...   )Жанр: Blues, Blues Rock,Продолжительность: 00:48:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B737082E41DD0C55ACCB78507CEB827B8A18EB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1203129   (788629) от 01.02.2018
+
+Radiohead - Pablo Honey (1993) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You (03:29)
+02. Creep (03:56)
+03. How Do You? (02:12)
+04. Stop Whispering (05:26)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7D708374DE3668F6A82E4B84F3054841F7ECD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511691   (788370) от 22.11.2021
+
+Nothing But Thieves - Moral Panic (The Complete Edition) (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unperson (3:25)
+02. Futureproof (3:28)
+03. Is Everybody Going Crazy? (3:58)
+04. Free If We Want It (3:53)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42FA7EA3B56593FA8CF395B30F08EFEF89AA1D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276589   (788232) от 16.01.2019
 
 VA - It's a Cool, Cool Christmas (2000) Compilation [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
@@ -686,64 +744,6 @@ The Wombats - Beautiful People Will Ruin Your Life (2018) [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C85D8E683FC03B35080D827165F6E6756056803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206935   (781308) от 16.02.2018
-
-Tonight Alive - Underworld (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Book Of Love (03:09)
-02. Temple (03:29)
-03. Disappear (feat. Lynn Gunn) (03:42)
-04. The Other (03:53)(   Читать дальше...   )Жанр: Alternative Rock, Pop PunkПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D61BA9F6FC96695E45D9B73A1C3DEBB3284F445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206868   (781287) от 16.02.2018
-
-U2 - The Unforgettable Fire (1984) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Sort Of Homecoming (05:28)
-02. Pride (03:49)
-03. Wire (04:19)
-04. The Unforgettable Fire (04:56)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63439F7DF627AFC2B61E026B10136AA3A41D8AD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

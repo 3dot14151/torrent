@@ -1,3 +1,29 @@
+###  Публикация: 1034297   (634033) от 13.07.2016
+
+Проекты - VideoHive - Emotional Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Emotional Slideshow - эмоциональное слайд-шоу с эффектом параллакса.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FD626DEE6DC452325BF0355E4A0CE26DE8E206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1228770   (633638) от 02.06.2018
 
 Проекты - Проект ProShow Producer - In the Frame [PSH]
@@ -657,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD9B2F9F6948E24B0C6E8A4C3BA09D3598033FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036291   (620838) от 20.07.2016
-
-Проекты - VideoHive - Summer Trip - 16804831 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA3966A47A7ED2F3BEF695AF4A6DF72EB7751C94
 ```
 
 https://mybot314.ru/tekegram_catalog/

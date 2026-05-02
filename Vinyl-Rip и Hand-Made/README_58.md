@@ -1,3 +1,177 @@
+###  Публикация: 1673467   (165395) от 01.11.2023
+
+Bernie Marsden - And About Time Too (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Blues Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165395.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. You"re The One
+A2. Song For Fran
+A3. Love Made A Fool Of Me
+A4. Here We Go Again(   Читать дальше...   )Жанр: Blues Rock, Hard RockПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63AA4C8085F665DC3F5E96FEEEC2B7A9E4D0B2E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673470   (165358) от 01.11.2023
+
+Electric Sun - Earthquake (1979) [FLAC|24/192|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Electric Sun (05:27)
+02 - Lilac (02:51)
+03 - Burning Wheels Turning (06:42)
+04 - Japanese Dream (04:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8C75D52A4E3CE89DB5FF78902F2D5749B6C8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576373   (164935) от 01.11.2023
+
+In This Moment - Studio Albums (8 Releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Industrial Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164935.jpg" />
+</div>
+
+
+###  Подробнее
+
+In This Moment — американская группа, образованная в Лос-Анджелесе вокалисткой Марией Бринк и гитаристом Крисом Хоувортом в 2005 году. Также к группе присоединился барабанщик Джефф Фабб. В начале творческого пути трио выступало под именем Dying Star. Недовольная своим музыкальным стилем, группа полностью изменила звучание, и сменила название на In This Moment и также (   Читать дальше...   )2007 - Beautiful Tragedy
+2008 - The Dream
+2010 - A Star-Crossed Wasteland
+2012 - BloodЖанр: Gothic/Industrial Metal, MetalcoreПродолжительность: 07:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E9C98D858F5000466361A1FFC82009093AEC33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554322   (163795) от 17.12.2022
+
+Stratovarius (Kotipelto, Cain's Offering) - Studio Albums (23 releases) (1989 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stratovarius — финская англоязычная пауэр-метал-группа, образованная в 1984 году, изначально под названием Black Water. Пришедший в группу в 1985 году гитарист Тимо Толкки стал основной движущей силой в группе и сформировал звучание в стиле спид-метал. Stratovarius стали одними из ранних исполнителей пауэра и существенно повлияли на развитие этого направления.1989 - Fright Night
+1992 - Twilight Time
+1994 - Dreamspace
+1995 - Fourth DimensionЖанр: Melodic Power MetalПродолжительность: 23:03:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3779ED687AD3D9EBE0DCD07CD9905A7BB50A4421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673744   (163596) от 03.11.2023
+
+Riverside - Out of Myself (2003) Reissue 2021, Sony Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163596.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - The Same River
+A2 - Out Of Myself
+A3 - I Believe
+A4 - Reality Dream(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC86F13BDF95ABAEA3E89E7F2A4644B0592ABF43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673749   (163549) от 03.11.2023
+
+Riverside - ID.Entity (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_163549.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Friend Or Foe?
+A2 - Landmine Blast
+A3 - Big Tech Brother
+B1 - Post-Truth(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:246AEE83850E959DFF7A93C94D0DC7BF6B17688D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673668   (163119) от 03.11.2023
 
 VA - Аракс / Веселые Ребята - Песни На Стихи Виктора Дюнина (1980) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
@@ -568,178 +742,6 @@ A3 Help! (Help!)(   Читать дальше...   )Жанр: Beat, Pop RockПр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C88A6C65591CF69EDDB3F37FD061C2C53813192B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600402   (157538) от 27.12.2022
-
-At the Gates - Studio Albums (7 releases) (1992 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157538.jpg" />
-</div>
-
-
-###  Подробнее
-
-At the Gates — шведская мелодик-дэт-метал-группа, образовалась в Гётеборге в 1990 году. Является прародителем метал-сцены Гётеборга и музыкального стиля мелодичный дэт-метал.1992 - The Red In The Sky Is Ours
-1993 - With Fear I Kiss The Burning Darkness
-1994 - Terminal Spirit Disease
-1995 - Slaughter of the Soul(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 05:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F95D624568EF20257BD4F6B1226F564DA8B37FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540441   (156942) от 13.11.2023
-
-Psycho Attack Over Europe! (3CD set) (1991-1994) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Psychobilly, Rockabilly, Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156942.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Психобилли», или, как правильно произносится название этого музыкального жанра, «сайкобилли», — жанр рок-музыки, сочетающий экспрессию и агрессивность панк-рока с мелодикой кантри и рокабилли. Жанр появился в 1975 г.
-В 1986 году голландаская фирма грамзаписи "Kix 4 U" выпускает первый сборник из серии "Psycho Attack Over Europe!". Он объединяет (   Читать дальше...   )1991 - Psycho Attack Over Europe! (part 1)
-1992 - Psycho Attack Over Europe! (part 2)
-1994 - Psycho Attack Over Europe! (part 3)Жанр: Psychobilly, Rockabilly, PunkПродолжительность: 03:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFE00208ECB83C0A81BD6E48D9A7608A1DE8267
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967301   (156915) от 23.12.2015
-
-VA - Мастера блюза 4: Большая машина (1990) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156915.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Бум-Бум-Бум. Boom Boom Boom. (Джон Ли Хукер)
-A2 - Чего ты хочешь? Baby What Yoy Want Me To Do. (Джимми Рид)
-A3 - Уезжай отсюдаю Leave This Neighborhood. (Эдди Тейлор)
-A4 - Я все еще люблю. I Love Her Still. (Пи Ви Крэйтон)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:667B6BE0C921CB732F2219A6EBE948D81DA623B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676276   (156887) от 13.11.2023
-
-The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless| image + .cue|Vinyl-Rip] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156887.jpg" />
-</div>
-
-
-###  Подробнее
-
-A.1 Angry
-A.2 Get Close
-A.3 Depending on You
-A.4 Bite My Head Off(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C9408988DFD6ADA33080DD4AF83A832037E878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676254   (156454) от 13.11.2023
-
-VA - Архив Популярной Музыки 1-12 (1988-1990) Unofficial Release [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, Funk, Hard Rock, Rock-n-Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156454.jpg" />
-</div>
-
-
-###  Подробнее
-
-Архив популярной музыки — серия пластинок, выпущенных фирмой грамзаписи «Мелодия» в 1988—1989 годах. Каждый диск представлял собой сборник песен одного из наиболее известных представителей англо-американской поп- и рок-музыки 1950-х—1970-х годов.
-Данная серия начала своё существование с выпуска в 1987 г. менее известной серии «Рок-архив», состоявшей всего из трёх (   Читать дальше...   )Жанр: Rock, Funk, Hard Rock, Rock-n-RollПродолжительность: 08:03:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF351CAD6C7E36CF394AD7107BFF46C27D755A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853948   (156257) от 27.12.2014
-
-Blue Oyster Cult - Fire Of Unknown Origin (1981)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156257.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fire Of Unknown Origin (4:12)
-A2. Burnin' For You (4:32)
-A3. Veteran Of The Psychic Wars (4:50)
-A4. Sole Survivor (4:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2E6C99E010067B0C8009E48F499565050784F83
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1076032   (308299) от 27.11.2016
+
+Проекты - Проект ProShow Producer - Wedding Library Proshow Producer Gold Particles Postcard Opener [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308299.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект создан в PSP-6. Римейк одноименного свадебного проекта для АЕ.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:703F0B7A0127E29E6C5A1DAEC7F74E7865F5C041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960448   (307568) от 28.11.2015
 
 Проекты - Pond5 - Photoalbum Slideshow [AEP]
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7491313E80424F06D6D283828CFE09AEBC182D97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333795   (300791) от 26.10.2019
-
-VideoHive - Epic Slideshow - 19923185 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300791.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Epic Slideshow" - это элегантный шаблон для фотографий или видео, где уникальные частицы создают особую романтическую фэнтезийную атмосферу с эффектом "золотой" россыпи. Вы можете использовать проект  для кинематографического вступления, веб-промо, церемоний награждения, свадеб, юбилеев, модного портфолио или любого слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DD948B3707073871900D984E50B2B4A6B63E22
 ```
 
 https://mybot314.ru/tekegram_catalog/

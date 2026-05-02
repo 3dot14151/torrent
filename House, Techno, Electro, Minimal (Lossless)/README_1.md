@@ -1,3 +1,32 @@
+###  Публикация: 1842164   (1048544) от 14.12.2025
+
+Boris Brejcha - Christmas Mix 2024 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowball (7:29)
+02. Wizard (7:23)
+03. You Take Me Higher (7:50)
+04. Ghost (7:08)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5542936868E55D6632590B4F4C460C65AA0849B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841220   (1047844) от 09.12.2025
 
 VA - 100% Ibiza (The Late Night Club Closings 2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -712,35 +741,6 @@ Gui Boratto - Backstage (2020) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C242A6E41DFAA8F4D21018CFC10296A8A29DCE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437993   (1041729) от 06.01.2021
-
-Kerala Dust - Light, West (2020) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Organic House, Downbeat, Electroacoustic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night Bell (Arizona) (7:28)
- 02. Untitled (Or the Evening Redness in the West) (8:02)
- 03. Lilac Dune (2:18)
- 04. Amsterdam (3:23)(   Читать дальше...   )Жанр: Deep House, Organic House, Downbeat, ElectroacousticПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F683C4FD34F8EA4E7C53BFFFFEE53E7DECF75B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

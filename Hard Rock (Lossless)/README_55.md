@@ -1,3 +1,125 @@
+###  Публикация: 577250   (358216) от 19.11.2012
+
+Skansis - Take Your Chance (2007) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_358216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is That Enough
+02. Will You Be There
+03. All I Care
+04. Changed My Mind
+05. Justice
+06. Dangermind
+07. Take Your Chance
+08. Never Let You Go
+09. Return Today
+10. Where Nobody Cries(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577304   (357172) от 18.09.2022
+
+Palace - One 4 The Road (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fifteen Minutes (3:44)
+02. Westbound (4:13)
+03. Too Old For This (4:11)
+04. Money Can Kill (3:06)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3655E9B3B05E2B3B100E5A520FCDA2D05C0FC396
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071773   (357126) от 11.11.2016
+
+Graham Bonnet Band - The Book (2016) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Into The Night 04:29
+02. Welcome To My Home 04:47
+03. Earth's Child (I Am Your Son) 04:07
+04. Rider 03:44(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BFFD537C64DA3913DED9DFC085CF137ACC94DA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577298   (357042) от 18.09.2022
+
+Dreamtide - Drama Dust Dream (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop Being Deep (4:23)
+02. Spin (5:32)
+03. Around (5:08)
+04. Ni Dos Ni Agua (2:47)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43168051FB153127D82EB193D3429ABBF6B2821F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1577129   (357039) от 18.09.2022
 
 House Of Lords - Saints And Sinners (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -644,122 +766,6 @@ Purpendicular - Venus To Volcanus (2017) [FLAC|Lossless|image + .cue] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:904117893A63F4A5355E2D2D0D7C7309D1A7A6FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578417   (343535) от 24.09.2022
-
-Kings Of Mercia - Kings Of Mercia (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrecking Ball [00:03:54]
-02. Humankind [00:04:13]
-03. Sweet Revenge [00:04:38]
-04. Set the World on Fire [00:04:16](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67D5E441603770549E33C9E15808563CC908778
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578623   (343525) от 24.09.2022
-
-Talas - 1985 (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Mounting Flame
-02. I'll Take The Night
-03. Crystal Clear
-04. Don't Try To Stop Me Tonight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E997A245ACE515C92E08ABAF7A4612F73C0DDBB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330244   (343522) от 09.10.2019
-
-Tom Keifer Band (ex-Cinderella) - Rise (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touching The Divine
-02. The Death Of Me
-03. Waiting On The Demons
-04. Hype(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1D1466B3D16AB584F05729EC7E7E8793870AE6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578507   (343192) от 24.09.2022
-
-Scream Taker - Kill The Beautiful (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kill The Beautiful
-02. Stone Cold
-03. Eternity
-04. Shattered Mirror(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40DB58863BCF6D67F095D315EE13D4DCE72657C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

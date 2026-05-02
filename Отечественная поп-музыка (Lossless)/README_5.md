@@ -1,3 +1,32 @@
+###  Публикация: 1385363   (797798) от 24.05.2020
+
+Татьяна Абрамова - Письмо (1995) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Анатолий
+02 - Гребешок
+03 - Мой, мой, мой
+04 - Письмо(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F8EF4042CC40BAF2465E0F7903036A7145AFDED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385379   (797142) от 25.05.2020
 
 Ёлка - Past Perfect (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Jazzy Hip-Hop, R&B, Swing>
@@ -714,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0033FD476F947C64EDCA8E557F0A8092A4E1A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1014306   (776331) от 07.05.2016
-
-Любэ - Рассея (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. От Волги До Енисея
-02. Русские
-03. Батька Махно
-04. Ясный Сокол(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F0079D15F42306778E2E3E4B501EAC96921E9A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

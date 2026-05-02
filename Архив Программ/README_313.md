@@ -1,3 +1,29 @@
+###  Публикация: 1370465   (896821) от 27.03.2020
+
+Insofta Cover Commander 6.0.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Insofta Cover Commander позволяет создавать профессиональные виртуальные коробки, книги, DVD-коробки, руководства, CD-диски, скриншоты. Всего несколько щелчков мыши все что нужно для выполнения этой работы. Исчерпывающие настройки освещения, камеры, тени, отражения позволяют вам создать изображение любого уровня сложности и увидеть готовый результат в реальном времени (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8377265A880D4755E9FAAFE5263E6E22481102FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993312   (896819) от 04.03.2016
 
 Nero Burning ROM 2016 17.0.00700 [Multi/Ru]
@@ -644,34 +670,6 @@ Recovery Partition for Acer Aspire 5253G / Windows 7 Home Basic (х64) SP1 [Russ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:288D90954AA17FBA5F6FE2DFC1C2F02C6BA06E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 183843   (895776) от 16.03.2010
-
-Uninstall Tool v2.9.6 build 5106 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895776.jpg" />
-</div>
-
-
-###  Подробнее
-
-Uninstall Tool - ультра маленькая программа, заменяющая неудобную и тяжеловестную стандартную программу установки и удаления программ Windows. Имеет множество опций, настроек и возможностей, которых нет в стандартном аналоге от Microsoft!
-
-Make your Computer Work Faster Now by using Uninstall Tool! It's a fast, secure and convenient way to remove unneeded applications and system components. Great, powerful and reliable alternative to standard Windows Add/Remove program. Uninstall Tool does its job great and performs a clean uninstall of the programs. During our testing on both XP and Vista, the software behaved as it should and did not try to pull anything on us. Softpedia ReviewЯзык интерфейса: Multi
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1629277   (254778) от 26.04.2023
+
+The Phil Woods Quartet - 'More' Live (1979) 1995, Genes [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milestones [10:43]
+02. Eiderdown [13:11]
+03. Strollin' [11:04]
+04. See Hunt & Liddy [10:29]Жанр: Post-BopПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88CB90D2C457F31C9CCBF52383BFBCD87C16CAF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629274   (254777) от 26.04.2023
+
+Woody Herman & His Bands - Their Finest Albums (1952 - 1963) 4CD, 2022, Enlightenment [FLAC|Lossless|tracks + .cue] <Swing, Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Brothers [3:35]
+02. Like Some Blues Man [10:04]
+03. Skoobeedoobee [4:35]
+04. Monterey Apple Tree [10:34](   Читать дальше...   )Жанр: Swing, Bop, Big BandПродолжительность: 04:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0E5A02499DE2AE3AAF80C290A8A15ABDE546179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1629662   (254753) от 27.04.2023
 
 Melani L. Skybell - Through The Years (1998) Self-Released [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -793,74 +851,6 @@ Ali Jackson, Aaron Goldberg, Omer Avital - Yes! (2012) [FLAC|Lossless]<Contempor
 07. Homeland
 08. The Shepherd
 09. Manic Depressive2012Жанр: Contemporary Jazz, Post-BopПродолжительность: 01:04:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493155   (248424) от 07.05.2012
-
-John Coltrane - The Best of John Coltrane (2009) [FLAC|Lossless]<Bop, Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just for the Love (3:42)
-02. Sonny's Crib (13:30)
-03. Monk's Mood (7:54)
-04. Epistrophy (4:30)
-05. Smoke Stack (11:01)
-06. Come Rain or Come Shine (7:28)
-07. Nita (6:32)
-08. Ball Bearing (8:10)2009Жанр: Bop, Hard Bop, Post-BopПродолжительность: 03:03:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489721   (246378) от 03.05.2012
-
-Muggsy Spanier - Muggsy Spanier  (1944) (1997) [FLAC|Lossless]<Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angry (Brunies, Cassard, Mecum )  (2:47)
-02. Weary Blues (Matthews )  (2:57)
-03. Snag It (King Oliver )  (3:11)
-04. Alice Blue Gown (McCarthy, Tierney )  (3:06)
-05. Sweet Lorraine (Burwell, Parish )  (3:51)
-06. Oh, Lady Be Good (Gershwin, Gershwin )  (3:25)
-07. Sugar (Alexander, Mitchell, Pinkard )  (3:02)
-08. September in the Rain (Dubin, Warren )  (4:19)
-09. Sweet Sue, Just You (Harris, Young )  (4:22)
-10. Memphis Blues (Handy, Norton )  (4:14)(   Читать дальше...   )1997Жанр: Dixieland, SwingПродолжительность: 01:04:33
 
 ## Скачать торент
 ```bash

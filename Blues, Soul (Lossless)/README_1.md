@@ -1,3 +1,119 @@
+###  Публикация: 1857845   (1059780) от 07.03.2026
+
+Red Guitar Pick - Давай Русскую 2 (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Где Пашут Трактора (3:53)
+02.  Не Надо Стесняться (3:57)
+03.  Будь Мужчиной (3:45)
+04.  Блюзы Петь (3:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA2BC74E650CCEB79F8E0EE53568C77EB0B4DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857846   (1059777) от 07.03.2026
+
+Ricky Z - Back to the Truth (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mister Please (4:13)
+02.  Congo Square (5:41)
+03.  Time Served (4:38)
+04.  Back to the Truth (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CA754B345163156007D4AC99A00A614B26612F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857847   (1059774) от 07.03.2026
+
+The Wildcat O'Halloran Band - Welcome to Sunderland (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Welcome Wagon (3:45)
+02.  What Part of Broken Up (4:18)
+03.  Check Her Mama (4:30)
+04.  Jody (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:555664324A9811D3221F104A9EB9A5779C8E2FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1857848   (1059771) от 07.03.2026
+
+Turquoise Steel - Homeland (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Turquoise Steel, Sage Cornelius - Hitchhiking Blues (4:29)
+02.  Turquoise Steel, Sage Cornelius - Next Big Thing (3:48)
+03.  Turquoise Steel, Levi Platero - Blue State of Mine (3:30)
+04.  Soul Dimension (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87F34E6A332FD6459ED38F66528E4352F07C60E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1857438   (1059741) от 05.03.2026
 
 VA - Smooth & Timeless Favorites (2026) [FLAC|Lossless|WEB-DL|tracks] <Soul, Jazz, Funk, Other>
@@ -629,122 +745,6 @@ March Larch - The Blues of March (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54502064738CBC41A4DEC8BF970BB9E39793CF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853043   (1056254) от 11.02.2026
-
-Muskogee Hotel, Knut Roppestad & Richard Gjems - Rory at The Hotel (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Lets go to work (4:17)
-02.  Keychain (4:37)
-03.  Rumble Strips (2:25)
-04.  As The Crow Flies (6:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:448F7BDE8FC523A3C8F568C38E0149ED557D6BED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853045   (1056252) от 11.02.2026
-
-Revelationary Recordings - WE BE THE BLUES "Songs From The Soil" (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dhymond Gurl - DOWN SOUTH BLUES (feat. Dhymond Gurl) (2:54)
-02.  Derrell "Mr. Lavish" White - COUNTRY BOY PRAISE (feat. Derrell "Mr. Lavish" White) (3:39)
-03.  DJ Sunny RE/Ray - ALL IN ME (feat. DJ Sunny RE/Ray) (5:04)
-04.  Geraldine West Hudley - MAMA'S PEARLS "Learning From Living" (feat. Geraldine West Hudley) (0:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C852ECB007E3239C5787F9629C82E155AAB9ADCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853047   (1056251) от 11.02.2026
-
-Turner Cody feat. The Soldiers of Love - Out for Blood (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  We Need Each Other  (4:13)
-02.  Recognize a Friend (3:00)
-03.  Cigarettes Inside  (4:18)
-04.  Out for Blood  (4:31)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D41B56977D4E9D07B72178BC13891B980F5B7C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852808   (1056057) от 09.02.2026
-
-Aelix Mie - Where the Whiskey Sings (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Honky-Tonk Blues at Midnight (2:59)
-02.  Letter with No Stamp (Whiskey Blues) (3:12)
-03.  Third Shelf Down (Whiskey Blues) (3:11)
-04.  Drink It Down for the Dead (Whiskey Blues) (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A0395FCB0FCB9514C805863D064DD2DEB2B7CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

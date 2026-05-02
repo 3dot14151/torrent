@@ -1,3 +1,119 @@
+###  Публикация: 1572542   (419137) от 28.08.2022
+
+Scott Bradlee's Postmodern Jukebox - Compilation (2022) [MP3|320 Kbps] <Pop, Jazz Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Dumb & Broke
+02. All of Me
+03. Far Away
+04. Straight Up(   Читать дальше...   )Жанр: Pop, Jazz PopПродолжительность: 07:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2F71BD6D48CD6E5B50A9215B67FEFECF5D2452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065786   (418578) от 23.10.2016
+
+VA - Твой голос. Русский сборник поп музыки (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418578.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Aisha - Сильно Сильно
+002.Alas Lito Feat. Vingilevskiy - Белица
+003.Alisher - Покемон
+004.Arti - Параллели(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D91AFFF0E227FAE3CAEBB38C882D00CE6DC9B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947653   (418263) от 17.10.2015
+
+Ruth Lorenzo - Planeta Azul (2015) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Planeta Azul
+02. 99
+03. Echo
+04. Gigantes(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:819D5AE4316649B189112FD88CB391E212645CEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 947371   (417972) от 17.10.2015
+
+Diana Ross - Good Songs (2015) [MP3|192 кб/с]<Pop, Disco, Soul, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovin Livin And Givin (Unedited T.G.I.F. Mix)
+02. Lovin Livin And Givin (Instrumental)
+03. Lovin Livin And Givin (1979)
+04. Lovin Livin And Givin (1978)(   Читать дальше...   )Жанр: Pop, Disco, Soul, R&BПродолжительность: 03:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:920F7233E3F2CF0294821E108E605AAF26EA5ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947565   (417807) от 17.10.2015
 
 VA - Турбомодные осенние хиты (2015) [MP3|256 кб/с]<Pop>
@@ -626,122 +742,6 @@ Lindsay Ell - Compilation (2022) [MP3|320 Kbps] <Pop, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E757A3B748BB43F4CA46326C815822C837BA9282
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167953   (412468) от 22.09.2017
-
-VA - Dинамик. Осень (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412468.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Макс Барских - Моя любовь
-002.Serebro - В космосе
-003.Анна Плетнёва - Игрушки
-004.Dan Balan & Вера Брежнева - Наше лето(   Читать дальше...   )Жанр: PopПродолжительность: 03:29:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:377AF4CE0F75ECFDC16480162DDF474895F9B55F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066475   (412384) от 26.10.2016
-
-VA - Популярный драйвовый хитовичок. Версия 7 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412384.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Linda Eder - When Autumn Comes
-002. Andreas - Нас Нет
-003. Jason Derulo - Want To Want Me
-004. Burito - Верхних Этажей Тайная Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1016A2958FA74D084823C0DD15B8890C311DFB13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573011   (412370) от 31.08.2022
-
-Miley Cyrus - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gimme What I Want
-02. Fu (Feat. French Montana)
-03. Two More Lonely People
-04. Clear(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BC421177A71E4FA90F771D080B0E7EC5517EF94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573086   (411764) от 31.08.2022
-
-VA - Свежий Русский Хит от ALEXnROCK часть 11 (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411764.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2022 год. Это 11я часть. Приятного прослушивания. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Filatov & Karas - Движ
-02. 4Etvergov, Dayren - Инсомния
-03. Reflex - Там Где Живет Любовь
-04. Эмин и JJONY - Лунная ночь(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DC58A85236A7CE30BD6663ACD7729D349ADF026
 ```
 
 https://mybot314.ru/tekegram_catalog/

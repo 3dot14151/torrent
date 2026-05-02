@@ -1,3 +1,119 @@
+###  Публикация: 1167953   (412468) от 22.09.2017
+
+VA - Dинамик. Осень (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412468.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Макс Барских - Моя любовь
+002.Serebro - В космосе
+003.Анна Плетнёва - Игрушки
+004.Dan Balan & Вера Брежнева - Наше лето(   Читать дальше...   )Жанр: PopПродолжительность: 03:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:377AF4CE0F75ECFDC16480162DDF474895F9B55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066475   (412384) от 26.10.2016
+
+VA - Популярный драйвовый хитовичок. Версия 7 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412384.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Linda Eder - When Autumn Comes
+002. Andreas - Нас Нет
+003. Jason Derulo - Want To Want Me
+004. Burito - Верхних Этажей Тайная Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1016A2958FA74D084823C0DD15B8890C311DFB13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573011   (412370) от 31.08.2022
+
+Miley Cyrus - Compilation (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gimme What I Want
+02. Fu (Feat. French Montana)
+03. Two More Lonely People
+04. Clear(   Читать дальше...   )Жанр: PopПродолжительность: 01:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC421177A71E4FA90F771D080B0E7EC5517EF94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573086   (411764) от 31.08.2022
+
+VA - Свежий Русский Хит от ALEXnROCK часть 11 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411764.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2022 год. Это 11я часть. Приятного прослушивания. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Filatov & Karas - Движ
+02. 4Etvergov, Dayren - Инсомния
+03. Reflex - Там Где Живет Любовь
+04. Эмин и JJONY - Лунная ночь(   Читать дальше...   )Жанр: PopПродолжительность: 02:54:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DC58A85236A7CE30BD6663ACD7729D349ADF026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1066647   (411674) от 26.10.2016
 
 VA - Любимая Музыка Для Твоей Тачки Зарубежный (2016) [MP3|256 Kbps] <Pop>
@@ -659,134 +775,6 @@ VA - German TOP100 Single Charts (13.10.2012) [MP3|192-320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0F0CE1A78D795FE9238ECB6FCA9D4CA974B0E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 559834   (406847) от 14.10.2012
-
-VA - D-скач 90-х Russian Dance Mix (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406847.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. MC Zali - Кайф (DFM Version)
- 002. Иванушки International - Тополиный пух (Андрей Харченко Remix)
- 003. Юра Шатунов - Розовый вечер (URAL DJS Dance Mix)
- 004. Саша Зверева (ex. Demo) - Солнышко (Free Djs Rework)
- 005. Дискотека Авария & Жанна Фриске - Малинки
- 006. Анжелика Варум - Зимняя вишня (URAL DJS Ritm Vers)
- 007. Руки Вверх - Студент (Free Dj's Rework)
- 008. Чай Вдвоем - А ты все ждешь
- 009. Shura - Don-don-don (DJ Fisun Remix)
- 010. Вирус - Счастье (Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DFFCB696CD2E5D29768C433DDFA397F82F8F71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413984   (406685) от 06.10.2020
-
-VA - Лучшие новинки сезона Vol.4 (осень 2020) (2020) [MP3|320 Kbps] <Club, Dance, Synth Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406685.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мишель - Соль (Original Radio Edit) (03:16)
-002. Артем Качер & Ирина Дубцова - Под Дождем (Dj Prezzplay) (04:03)
-003. Nataliya - Бармен, Налей (Original) (02:38)
-004. Саша Wave & Илага - Мой Сон (D-wave Remix) (03:53)(   Читать дальше...   )Жанр: Club, Dance, Synth PopПродолжительность: 05:46:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:554B797CEFF4EAB7ACFE867C33A3C27C94195E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 561025   (406396) от 16.10.2012
-
-VA - The Official UK Top 40 Singles Chart (14-10-2012) [MP3|320 кб/с]<Pop, Rok, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжаю традицию регулярной публикации UK Singles Chart — официального хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
-Составляется с 1952 года как аналог американского Billboard Hot 100.
-Существует и «братский» хит-парад альбомов — UK Albums Chart.
-Во все треки вшиты обложки альбомов.Жанр: Pop, Rok, R&BПродолжительность: 02:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69B1749BE1E1884CADE0B3078F6E118618D9C3C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 563581   (405075) от 21.10.2012
-
-VA - Позитивная музыкальная энергия (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вера Брежнева и DJ Smash - Любовь На Расстоянии
-02. Юлия Беретта - Такси
-03. Orbital - Where Is It Going (Live Style Mix)
-04. Иракли - Осень
-05. DJ HaLF & Женя Юдина - Два Сердца (Extended Mix)
-06. Cranksters - My First Love (Radio Edit)
-07. Arash feat. Sean Paul - She Makes Me Go
-08. Mariya (Мария) - Ты Тот (Kapler Remix)
-09. DJ Niki feat. SODA - Я это ты (cover radio remix)
-10. Leven Mervox - Waiting The Past (Running Man Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 08:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF9C1AED135BE60CC72A695819F990580AD21694
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1026699   (702311) от 16.06.2016
+
+VA - Deepalma Ibiza 2016 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dan Caster - Change (feat Leo)
+02. Juloboy & Toly Braun - I Remember
+03. Passenger 10 & Lika Morgan - Golden Sky (Sons Of Maria remix)
+04. Nora En Pure - U Got My Body (Return Of The Jaded remix)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 04:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D50D464B15B0D97CD03082AC3B3755D14917E1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 794044   (700377) от 07.06.2014
 
 Of Norway - Accretion (2014) [FLAC|Lossless|WEB-DL]<Tech House, Deep House>
@@ -712,35 +741,6 @@ Cassy - Donna LP (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AE5005471444A27D055DD11FC3845B53BCD3AA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028807   (686647) от 24.06.2016
-
-Roger Shah - Magic Island - Music for Balearic People, Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Trance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Laruso & John James Renfrow - Holding Closer (Intro Mix) [5:22]
-02. Rogier Dulac & Miss Autumn Leaves - Endless Dream (Original Mix) [5:08]
-03. Brian Laruso - The Way (Original Mix) [5:38]
-04. Raul Pablo Sanchez - Day Out (Original Mix) [6:53](   Читать дальше...   )Жанр: Deep House, TranceПродолжительность: 06:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E42583E405AB9C9F7FBB13FFBFF8C27E906D0D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

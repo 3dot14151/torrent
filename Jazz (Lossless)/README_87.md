@@ -1,3 +1,61 @@
+###  Публикация: 1279794   (764600) от 31.01.2019
+
+Harry Connick, Jr. - What a Night! A Christmas Album (2008) Columbia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's the Most Wonderful Time of the Year [3:29]
+02. What a Night! [3:25]
+03. Christmas Day [3:24]
+04. Have a Holly Jolly Christmas [4:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC6CB6E261A664168B7561AAB375D52A61730419
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279799   (764599) от 31.01.2019
+
+Domagoy Ralasic With Benny Bailey - The Bag Is Packed (1997) Timeless [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues For Lady 'J' [7:12]
+02. For All We Know [6:16]
+03. Lester Leaps In [4:28]
+04. Body & Soul [7:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FED658694227CBFCDA7A2BDA1BB239C0D37B495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279789   (764598) от 31.01.2019
 
 The Billy Taylor Trio - You Tempt Me (1989) Taylor-Made Recordings [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -687,64 +745,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4440CDF6BF3008F765FC7DCA6572DB41F9681F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215019   (761927) от 24.03.2018
-
-Frank Socolow - Sounds By Socolow (1956) 1999, Toshiba [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Finegold [03:04]
-02. But Not For Me [03:14]
-03. Swing Low Sweet Socolow [02:58]
-04. How About You [03:59](   Читать дальше...   )Жанр: BopПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB7D78EE20CE043E4BAE1867995601280B5C731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214882   (761926) от 24.03.2018
-
-Bud Freeman - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Found A New Baby [02:44]
-02. Easy To Get [02:47]
-03. China Boy [02:41]
-04. The Eel [02:45](   Читать дальше...   )Жанр: SwingПродолжительность: 01:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B3BB2445A15328F43717C30ACB205463DAF1AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

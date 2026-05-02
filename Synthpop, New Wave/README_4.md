@@ -1,3 +1,32 @@
+###  Публикация: 1286844   (705363) от 06.03.2019
+
+Silvia - Silvia (1982) Reissue CD, Genetic Music, 2003 [MP3|320 Kbps] <Synth-pop, Minimal, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zuerst Ich (3:14)
+02. Ich Bin Nicht Die (3:52)
+03. Mata Hari (4:20)
+04. Morderinnen Kusst Man Nicht (3:38)(   Читать дальше...   )Жанр: Synth-pop, Minimal, New WaveПродолжительность: 00:37:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ECC1670216F65B23F7ABABF9D88A42FB7238BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287309   (705069) от 06.03.2019
 
 Didier Marouani & Space - Legend (2019) [MP3|320 Kbps] <Electronic, Synthpop>
@@ -719,35 +748,6 @@ Wolf and Raven - Renegades (2016) [MP3|320 Kbps] <Synthpop, Synthwave, Retrowave
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BFE2F272739AECE47B0AA1D2DF6F6235E27C7AA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293414   (635497) от 04.04.2019
-
-VA - Pure Synthwave Vol. 1 (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Outrun, Electronic>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. September 87 - Ride All Night (5:56)
-02. The New Division - Vicious (3:15)
-03. Cosaquitos En Globo - Cruzando el Puente (Instrumental) (4:07)
-04. Oblique - I'm Your Mirror (4:45)(   Читать дальше...   )Жанр: Synthwave, Retrosynth, Outrun, ElectronicПродолжительность: 01:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864273FD6762FC1A6067233326F07B1231FC78DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

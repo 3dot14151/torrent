@@ -1,3 +1,32 @@
+###  Публикация: 1476637   (1011498) от 12.06.2021
+
+VA - Vintage Melody: Soul Funk Music (2CD) (2021) [MP3|320 Kbps] <Soul, Funk, Jazz, Lyric>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011498.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+001. Lance Reddick - Tick Tock
+002. The Spinners - O-O-H Child(   Читать дальше...   )Жанр: Soul, Funk, Jazz, LyricПродолжительность: 13:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE230F5D61327B775FF0D15DD8A2E3F6D9A6C631
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477604   (1010971) от 15.06.2021
 
 VA - Elegant Jazz Music (2021) [MP3|320 Kbps] <Jazz>
@@ -746,35 +775,6 @@ VA - Romantic Blues Collection Vol.4 (2013) [MP3|320 кб/с]<Pop,Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18B4D6F7D46D39E63FAFD8E597D0E993953007B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 979283   (959699) от 26.01.2016
-
-VA - Cafe Italiano, Vol. 1 (2016) [MP3|320 кб/с] <Nu Jazz, Lounge, ChillOut>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Florito - Brasil Gossa Party - Extended Mix (05:43)
-02. Peter Pearson - Your Gentle Eyes (05:40)
-03. Newton - Homerun (04:50)
-04. Michael Crueger - I'll See You Again (12:23)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChillOutПродолжительность: 02:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285EFC7AA29A63A5E1B1CFC42388FBF5F1884803
 ```
 
 https://mybot314.ru/tekegram_catalog/

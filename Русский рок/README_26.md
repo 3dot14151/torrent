@@ -1,3 +1,122 @@
+###  Публикация: 1114799   (831769) от 15.03.2017
+
+Глеб Самойлоff & The Matrixx - Субкоманданте (2017) Single [MP3|320 Kbps] <Neo-Post-Gothic, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831769.jpg" />
+</div>
+
+
+###  Подробнее
+
+Композиция посвящена революционеру и философу, ставшему Легендой и общепризнанным символом антиглобализма – субкоманданте Маркосу. «Простите за беспокойство, но это революция» ©1. СубкомандантеЖанр: Neo-Post-Gothic, AlternativeПродолжительность: 00:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB781075694D36FBCB239823AE527C64702E8D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381106   (829667) от 05.05.2020
+
+Чёрный Обелиск - Тени (2020) EP [MP3|320 Kbps] <Heavy Metal, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тени [3:23]
+ 02. Тем, кто... [3:23]
+ 03. Адреналин [3:37]
+ 04. Такси [3:27]Жанр: Heavy Metal, Thrash MetalПродолжительность: 00:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912EC30272534D7AD21697552D8888C3F2F84190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 653577   (829329) от 08.05.2013
+
+Черновик - Новое время (2011) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Новое время (3:44)
+02. Моя вина (3:29)
+03. Горячо (4:20)
+04. Война (3:33)
+05. Всё равно (3:31)
+06. Не со мной (4:16)
+07. Берег (4:30)
+08. Не моя любовь (4:15)
+09. Не тот герой (4:13)
+10. Оставлю (4:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12198130A2F82B64F95F8DAAFD982D8B83C8665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006459   (828964) от 11.04.2016
+
+Мамины Усы - Мама мыла раму (2014) [MP3|320 кб/с] <Punk, Humor Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бабушка умерла 2
+02. Отходняк
+03. Художник
+04. Некросадизм(   Читать дальше...   )Жанр: Punk, Humor RockПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00B8EDE3355E7349A8111216678E1F5D93DA0BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005897   (828782) от 11.04.2016
 
 iamthemorning - Lighthouse (2016) [MP3|320 кб/с] <Neoclassical, Acoustic Prog Rock, Chamber Pop>
@@ -625,122 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E7EF5DB296E80D851D12CD226272AAB4BADB22E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197063   (817290) от 06.01.2018
-
-Проект ХБ - Родина (2017) EP [MP3|320 Kbps] <Electronic Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Родины нет во мне
-02. Человек
-03. Рыба
-04. Карлсон(   Читать дальше...   )Жанр: Electronic Pop RockПродолжительность: 00:18:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD5C484C8659D8B22258F98D9DCF40DCDA9608CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382759   (817245) от 12.05.2020
-
-Ногу свело! - 4 Стадии Карантина (2020) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817245.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Золотое время
-2. Телезвезда
-3. Селекция
-4. Дышать!Жанр: RockПродолжительность: 00:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE340940A88533AC601AC4C172510E4F18CA4081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117620   (817045) от 23.03.2017
-
-Сруб - Восход (2017) [MP3|320 Kbps] <Post-Punk, Dark Folk, Occult Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817045.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Солнце не просто взошло, оно нахлынуло как поток и переполнило весь мир." (Рэй Брэдбери. Вино из одуванчиков)01. Восход
-02. Подпол
-03. Оклики
-04. Помни(   Читать дальше...   )Жанр: Post-Punk, Dark Folk, Occult PunkПродолжительность: 00:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E86633A537644D09F62FFA5F7CE9BA44C10EF3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503983   (815578) от 21.10.2021
-
-Юрий Шевчук и группа ДДТ - Сборник песен (2021) Vinyl-Rip [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815578.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Белая река
-2. В последнюю осень
-3. Просвистела
-4. Что такое осень(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D840EF812BD52FB3A51D0F3BE5A72AD8655721
 ```
 
 https://mybot314.ru/tekegram_catalog/

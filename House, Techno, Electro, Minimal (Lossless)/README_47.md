@@ -1,3 +1,32 @@
+###  Публикация: 1254683   (373193) от 14.10.2018
+
+VA - Figments Of Duality (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <Deep Techno, Dub Techno, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martin Schulte - Trolley Bus (Winter Trip) (6:52)
+02. Luss - Morning Sun (7:50)
+03. The White Man - Heliopausa (8:42)
+04. David Hausdorf - Club Fever (7:37)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 01:02:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAE71D49AF8EA9956145E780DA6BBD2828E77BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176434   (371924) от 21.10.2017
 
 Satori - Maktub (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, World>
@@ -711,35 +740,6 @@ VA - Greatest Kitts Vol.4 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C6EB9D2A838C5F48F5912DC2B8BDD78996E3F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329582   (352376) от 05.10.2019
-
-VA - I Love Mukke, Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Doering – Emma Wong (06:07)
-02. Lexer – You Give Me (06:47)
-03. KANT – Wow (06:25)
-04. Kollektiv Ost – Power | Sascha Braemer Remix (06:48)(   Читать дальше...   )Жанр: Deep House, Tech House, Nu DiscoПродолжительность: 01:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFDFCF303BE9244BD2593710F7C54509E748040
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1044563   (565350) от 20.08.2016
+
+VA - Euphoric Essential Space Uplifting (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruslan Radriges  -  Magnum (Original Mix)  5:05
+02. Bryan Kearney  -  Mexican Rave (Shugz Remix)  6:42
+03. Armin Van Buuren & Dave Winnel  -  The Race (Extended Mix)  5:15
+04. LTN  -  Ending The Wisdom (Original Mix)  6:22(   Читать дальше...   )Жанр: Trance, Melodic, Energy, ProgressiveПродолжительность: 08:11:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E788CD20B5DE8EDA137968F6AA3011982E91123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044533   (565330) от 20.08.2016
+
+VA - Bass Booster - Не По-Детски Давят Децибелы (2016) [MP3|320 Kbps] <Deep, G-House, Progressive, Techno, Tech>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565330.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.2Nica - Leave Me Lonely (Original Mix)
+002.2Night, 2907 - Dancefloor (Original Mix)
+003.123XYZ - It's Back (Original Mix)
+004.303Bastard - Nightingale (Original Mix)(   Читать дальше...   )Жанр: Deep, G-House, Progressive, Techno, TechПродолжительность: 57:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76234A260432DB05ABC2F274B5F1128D5CB8969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044665   (565167) от 20.08.2016
 
 VA - Tropical Thunder House Massive (2016) [MP3|320 Kbps] <House, Electro House, Future House, Progressive, Club, Dance>
@@ -693,64 +751,6 @@ VA - Beatport Trance Pack (22.08.) (2016) [MP3|320 Kbps] <Trance, Melodic, Energ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:961E48B7FF8332D96411BFD4DCD57CDB1D628E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045269   (559962) от 23.08.2016
-
-VA - Sound Trance Stardust (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaimo K & Sarah Russell  -  Why Can't You Love Me (Edit)  4:05
-02. U-Mount  -  Guard (Original Mix)  6:40
-03. Amir Hussain  -  Bombshell (Extended Mix)  7:39
-04. Driftmoon & Ferry Tayle  -  Titanfall (Radio Edit)  3:51(   Читать дальше...   )Жанр: Trance, Melodic, Energy, ProgressiveПродолжительность: 04:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD8475AA6DEF29F071BF5174B33A0624377A7A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304916   (559944) от 28.05.2019
-
-VA - Spring Sounds' Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559944.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bolier & Trobi - In The Water
-002. Biomin H - A New Day (Original Mix)
-003. Don Paolo - Make Your Body Move
-004. Jason Rivas - Supergroove(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09:19:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B7226F53FCD0DF4C9110A5912C5A71A60A91D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

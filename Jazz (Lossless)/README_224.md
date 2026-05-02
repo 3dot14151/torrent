@@ -1,3 +1,61 @@
+###  Публикация: 1334677   (293373) от 30.10.2019
+
+Silent Way - Standby - (B&P Production) (1996) [FLAC|Lossless|tracks + .cue] <Fusion, Cool Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. P.S. (08:23)
+02. Standby (11:23)
+03. September (08:49)
+04. Pearls (07:46)(   Читать дальше...   )Жанр: Fusion, Cool JazzПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46BDFC676965EF96DB65C0579EC6AC1FAB321F4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262662   (292985) от 16.11.2018
+
+ZAZ - Effet Miroir (2018) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Chanson, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Demain c'est toi
+02. Qué vendrá
+03. On s'en remet jamais
+04. J'aime j'aime(   Читать дальше...   )Жанр: Nu Jazz, Chanson, SoulПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78DE2184EBF637C00DAE561F48B9B38EEAF06114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079964   (292215) от 05.12.2016
 
 Buck Clayton & Buddy Tate - Buck & Buddy (1960) 1992, Original Jazz Classics[FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
@@ -687,64 +745,6 @@ Sweetbottom - Live The Reunion - (Urban Island Music) (2003) [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC29B4E3E7CA5F5F0CD3780BA8D2295A636AB866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335182   (289882) от 01.11.2019
-
-June Christy - Cocktail Hour 1950-e - 1960-e (2001) 2CD, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289882.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tampico [2:44]
-02. I Got the Sun in the Morning [2:59]
-03. Mean to Me [1:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5AC04A6F71F4827613DB7AB7D714512ED10E5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335263   (289877) от 01.11.2019
-
-The Plastic Waste Band - Crushed (2019) [FLAC|Lossless|tracks + .cue] <Fusion / Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289877.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Crushed. 4:06
-2. Strada Cuza Voda. 6:04
-3. Faith. 7:45
-4. Eve. 6:59(   Читать дальше...   )Жанр: Fusion Jazz-RockПродолжительность: 00:55:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AB6A58CF635C7E5A2A6D98FC584E9608257A555
 ```
 
 https://mybot314.ru/tekegram_catalog/

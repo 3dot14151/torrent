@@ -1,3 +1,148 @@
+###  Публикация: 988060   (922878) от 19.02.2016
+
+VA - Recoverworld Radio 005 (Mixed by Rich Smith) (2016) [MP3|320 кб/с] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rich Smith & Kimberly Hale - When the Sun Comes Up (6:53)
+02. Para X - Love Train (Janina T Remix) (7:06)
+03. Almar & Danny Stubbs - Midnight Sun (7:13)
+04. Para X - Love Train (6:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6618C2B2F1D421D1F6C473F70C9CA1E44C392A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095784   (922764) от 22.01.2017
+
+VA - Aria Selections Class Of 2016 (Mixed by David Forbes) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Maig Shaw - Odyssey (Original Mix)  6:21
+02.  Richard Lowe - Lakeside (Original Mix)  6:26
+03.  Denzo - Acid Burn (Original Mix)  8:02
+04.  Liam Melly - Dropzone (Original Mix)  7:20(   Читать дальше...   )Жанр: TranceПродолжительность: 02:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F086BFC0848F567FECD3BD4C1CA71C68EA6B7A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988064   (922718) от 19.02.2016
+
+Markus Schulz - City Series Collection (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz – Bayfront (Miami) (6:18)
+02. Markus Schulz & Tom Boxer – Bine Facut (Bucharest) (5:41)
+03. Markus Schulz – Golden Gate (San Francisco) (4:53)
+04. Markus Schulz – This Generation (Indio) (5:56)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EDAFAFF4B3037BFC5417FD1B6FC619F0EBA2334
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096368   (921090) от 23.01.2017
+
+VA - Redux Presents : The Progressive Selection Vol. 1 (2016) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_921090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vadim Bonkrashkov – Super 8 (original mix)
+02. Pulsar – One (Mino Safy "One World One Passion" remix)
+03. Darvo – Wandering Flames (Club mix)
+04. Taglo – San Antonio (Daniel Rise remix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0418757EAC622B70920B5ABC86B0CACFA1D97834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096397   (919395) от 24.01.2017
+
+VA - Redux Presents: The Finest Selection (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919395.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Para X - Extasia (original mix) (07:08)
+2. UDM - Omega (extended mix) (06:09)
+3. F.G. Noise & TrancEye - The Mist (original mix) (06:42)
+4. Kayan Code - False Reality (feat Juha V - Dreamy Banging vocal mix) (07:49)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 04:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4154ABE052B72972E4BAE3B95151D701F2D2D6CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989296   (917144) от 22.02.2016
 
 VA - Uplifting Only - Orchestral Trance Year Mix 2015 (Mixed by Ori Uplift) (2016) [MP3|320 кб/с] <Uplifting Trance>
@@ -600,148 +745,6 @@ VA - Black Hole Trance Music 04-20 (2020) [MP3|320 Kbps] <Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54D12D6A8316147E3E4BBACED88A478F90E949F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109590   (857441) от 28.02.2017
-
-VA - Trance In Space Vol.3 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sun Liquide - Celebrate The Light (Rene Ablaze Radio Edit)  3:57
-02.  Tranc Eye Presents Skull Crusher - Acidland (Radio Cut)  3:02
-03.  Opt-In - Zura (Radio Cut)  4:00
-04.  Maximal - Subject Lost (Radio Cut)  3:20(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAF5684BEE6A24634A12EE25AB5EB94FFCC66689
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001443   (853922) от 28.03.2016
-
-VA - Global DJ Broadcast Top 20 March (2016) [MP3|320 кб/с] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853922.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anske - Epika (Original Mix)
-02. Purple Stories - Slammer (Original Mix)
-03. Kyau & Albert - Falling Anywhere (20 Years Remake)
-04. Solid Stone - Get On My Vinyl (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064F73419A50C068F918C841183859A416FBBA22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 756711   (848874) от 26.03.2014
-
-Alex M.O.R.P.H. - 6 Albums , 7 Compilations (2006 - 2014) [MP3|320 кб/с]<Trance , Uplifting Trance , Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trance , Uplifting Trance , Progressive TranceПродолжительность: 02:23:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE734D7708BE4F61B0550149FA9850B86FEB90E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003791   (841894) от 04.04.2016
-
-VA - Trance Only Vol.6 (Future Club and Hardtrance Anthems) (2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841894.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Altek - 2nd Chance 07:46
-02 Blufeld - A World Less Ordinary (Mark Found Remix) 09:38
-03 Benya - Rhea (Fredin Remix) 07:12
-04 Arrakeen, Jaki Song - Time (Neo Kekkonen Remix) 07:18(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:18:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3779D53D3A5C2E7AED524AEF71322029B396A348
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003707   (841844) от 04.04.2016
-
-Gareth Emery - 100 Reasons to Live (2016) [MP3|320 кб/с] <Progressive Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gareth Emery - The Story So Far (06:43)
-02. Gareth Emery feat. Joseph - Cloudline (06:54)
-03. Gareth Emery feat. Gavrielle - Far From Home (03:50)
-04. Gareth Emery feat. Wayward Daughter - Reckless (03:22)(   Читать дальше...   )Жанр: Progressive Trance, Progressive HouseПродолжительность: 01:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C2E696155095A6A74E5D0430FC8FCD4BC16753
 ```
 
 https://mybot314.ru/tekegram_catalog/

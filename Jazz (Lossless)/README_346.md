@@ -1,3 +1,61 @@
+###  Публикация: 1778288   (70910) от 08.02.2025
+
+Louis Armstrong - Wonderful World: The Best Of Louis Armstrong (2024) Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Kiss to Build a Dream On [3:05]
+02. Hello, Dolly! [2:27]
+03. Dream a Little Dream of Me (feat. Ella Fitzgerald) [3:08]
+04. La Vie en Rose [3:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E392E6B5ED79219EEB85239EA2DB23C9B7107785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778364   (70908) от 08.02.2025
+
+Tape Five - Fizzy Far Niente (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bandit Town
+02. Bad Boy Good Man (Rmx 2023)
+03. Crazy Little Thing Called Swing (Fizzy Far Niente Edit)
+04. The Hepcats Blues(   Читать дальше...   )Жанр: Nu-Jazz, Electro SwingПродолжительность: 00:30:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F267AE64045CFD2ECB2D88355438D5C62F3748D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778283   (70880) от 08.02.2025
 
 Jimmy Raney - Here's That Raney Day (1980) 1990, Black & Blue [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
@@ -685,64 +743,6 @@ VA - Jazz Funk Instrumentals Vol. 5 (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21F2CD9AB23497EAFBC22E561848C0319A9A1D56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779668   (70625) от 14.02.2025
-
-Les McCann - How's Your Mother (1967) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love for Sale [7:11]
-02. I Can Dig It [8:24]
-03. Doin' That Thing [8:56]
-04. I Am in Love [6:09](   Читать дальше...   )Жанр: Hard Bop, Piano jazzПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8026C027612EFD6A1997FB233C80AB2DF59769D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779661   (70622) от 14.02.2025
-
-Dick Hyman - Plays The Great American Songbook (1994) 2CD, MusicMasters Jazz [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easter Parade [2:52]
-02. Liza [4:36]
-03. Woman's Prerogative [4:47]
-04. All Through the Night [4:31](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 02:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD2101B9897BDCC1A392EA09ECB728880512CD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

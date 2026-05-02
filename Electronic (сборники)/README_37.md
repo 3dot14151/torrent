@@ -1,3 +1,61 @@
+###  Публикация: 996407   (879519) от 14.03.2016
+
+VA - Ethno Chillin: Best World Lounge and Ethno Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Devankali - African Sunrise
+02. St Project - Hot Desert Wind
+03. Luigi Seviroli - Ethnical Views - Full Mix
+04. Brass - Mantra and Tantra(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE24B9B303C9D05350082CF62177AFEBC7DC96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 996744   (879517) от 14.03.2016
+
+VA - Massive House Future Running (2016) [MP3|255-320 кб/с] <Bigroom, Club, Progressive, Tropical>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879517.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joe Stone & Daser - Freak (And You Know It) (Edit) 03:14
+002. DVBBS - Never Leave (Radio Edit) 03:07
+003. D-wayne - Never Had (Radio Edit) 02:58
+004. Fight Clvb - HITA (Original Mix) 03:50(   Читать дальше...   )Жанр: Bigroom, Club, Progressive, TropicalПродолжительность: 10:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B3340CF03CDD4260E6B8B75C6A851C172C7248D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996746   (879406) от 14.03.2016
 
 VA - Returned Trance Around The World (2016) [MP3|320 кб/с] <Trance, Energy, Harmonic, Emotional, Melodic, Progressive>
@@ -693,64 +751,6 @@ VA - Euphonic Traveller: Tropical Chill Zoone (2017) [MP3|320 Kbps] <Downtempo, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0A5ACE72CF916A7CD2D5F45D66E1575C7BA7C95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106401   (873523) от 19.02.2017
-
-VA - Record Super Chart #475 (2017) [MP3|320 Kbps] <House, Club, Danc>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ofenbach - Be Mine (Amice Remix)  3:23
-02.  Klaas - Riot (Extended Mix)  4:00
-03.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  3:20
-04.  Грибы - Копы (Vincent & Diaz Remix)  4:10(   Читать дальше...   )Жанр: House, Club, DancПродолжительность: 02:13:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E1748728C2B4588263552370CE1250A843C9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496439   (873353) от 17.09.2021
-
-VA - Sound Of Quasicrystal (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873353.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Emmanuel - Era
-002. Fourm - Pylons
-003. Perdu - Rise Of F5
-004. Poima - Triglau(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66863600DA6B861EC7B77961889A453E5854EB39
 ```
 
 https://mybot314.ru/tekegram_catalog/

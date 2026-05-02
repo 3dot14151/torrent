@@ -1,3 +1,32 @@
+###  Публикация: 972011   (981936) от 06.01.2016
+
+Blues Doctors - Electric Gentlemen (2014) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Man (04:30)
+02. My Manifesto (03:38)
+03. By Your Side (03:07)
+04. Heartbreak Radio (05:13)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:19:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96959A3282A3939F63DCDAE802899568872D485B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972069   (981734) от 06.01.2016
 
 Александр Градский - Неформат (2011) [FLAC|image + .cue] <Rock, Vocal>
@@ -730,35 +759,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F7A0798E5E275E06B9252BC2A5457615EF305AEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360706   (959299) от 16.02.2020
-
-Альянс - Космические сны (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Навстречу холодному свету
-02. Космические сны
-03. Эй, мен, супермен!
-04. Ночь сомнения(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:32:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFA88DD613E8F29E00D56A722A9C18B59A7F44D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

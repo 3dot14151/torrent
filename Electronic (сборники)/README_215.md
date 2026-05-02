@@ -1,3 +1,73 @@
+###  Публикация: 455805   (94145) от 23.02.2012
+
+VA - Minimal Art v.12 (20.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Fortis - Disharmonic Orchestra (6:54)
+ 02. Antonio Forester – Fourth Reactor (Original Mix) (6:02)
+ 03. Cyberx, Manolow - Tag Gun (Tekhoover Remix) (7:07)
+ 04. Danase - Now What's That (7:10)
+ 05. Dapayk & Midnight - Emergency (7:30)
+ 06. Electronomica - Troupial (Djase Dub Remix) (5:59)
+ 07. Fabio Miotto - Dolmen (Original Mix) (7:00)
+ 08. Koobique - Fear Factory (Original Mix) (5:05)
+ 09. Luke Shayer - Absynth (Muto Remix) (7:15)
+ 10. Manu Sami - Musaka (Original Mix) (6:01)(   Читать дальше...   )20.02.2012Жанр: MinimalПродолжительность: 02:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1B4E78F8697A1A18BA98152CA8FDD5205C7D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455003   (94091) от 22.02.2012
+
+VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aiho - Purple Haze (Giuseppe Visciano Psychedelic Remix) (6:05)
+ 02. Artem Abdrakhmanov - Fire Blood (Original Mix) (7:33)
+ 03. Bodyscrub - Resolution (Original Mix) (8:42)
+ 04. Ciaran Osborne - Don't Hold Back (Original Club Mix) (6:59)
+ 05. Danase - Come On, We Play (6:25)
+ 06. Dani Sbert - Otherside (Original Mix) (7:01)
+ 07. Deep Inside Sistem - Violence (Original Mix) (7:11)
+ 08. Diamandy - Breezer (Original Mix) (8:07)
+ 09. Doubleton - Diluente (Original Mix) (6:20)
+ 10. Dubfloor - Tropa Tropa (Original Mix) (6:50)(   Читать дальше...   )18.02.2012Жанр: MinimalПродолжительность: 02:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE05E1089EA0849955044BA64E2D8CAC0A261CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454998   (94083) от 22.02.2012
 
 VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
@@ -789,64 +859,6 @@ VA - Spacesynth Forever 3 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E97B7D72D018699F4B843FD78594B6A90661705
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777169   (71071) от 05.02.2025
-
-VA - Spacesynth Forever 4 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71071.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 16th channel - Digital Alien (Vocoder Edition) (5:13)
-02. Apoxyz - Galactic Defense Force (4:24)
-03. Atomic Space Orchestra - Dawn of the Space (Mastered with Thunder at 60pct) (4:14)
-04. Berk van Ozden - Secret Power (4:32)(   Читать дальше...   )Жанр: Spacesynth, Synth-DanceПродолжительность: 04:19:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD43E26D606E9F67DF51F755B21B6BEEB7099B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777704   (70967) от 07.02.2025
-
-VA - Spacesynth Forever 5 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 16th channel - Final Station (4:15)
-02. Apoxyz - Moon Base (4:08)
-03. Atomic Space Orchestra - Enter The World (4:05)
-04. Cj Rise - Event Horizon (3:53)(   Читать дальше...   )Жанр: Spacesynth, Synth-DanceПродолжительность: 04:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9C0F524C8E1F69AB150F28DB22EE575EDCDBB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

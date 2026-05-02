@@ -1,3 +1,29 @@
+###  Публикация: 516010   (651160) от 29.06.2012
+
+Elina Garanca - 3 альбома (2007-2010) [MP3|320 кб/с]<Classical>
+
+>>Классика
+>>Классика (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651160.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ClassicalПродолжительность: 03:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5207B79B5308535C42377DDEC589417AA12FB41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031063   (651027) от 04.07.2016
 
 Vanessa-Mae - Greatest Hits (2010) 2CD [FLAC|Lossless|image + .cue] <Violin Techno-Acoustic Fusion>
@@ -732,39 +758,6 @@ Credo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:133E1E2F0841FE94766ECD9042B7826A14DF210B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 521765   (624830) от 12.07.2012
-
-Gioachino Rossini–Famous Overtures: Academy of St Martin in the Fields conductor Sir Neville Marriner (1974)/2002, Penta Tone Music/[APE|Lossless]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il Barbiere di Silvia                  [07:08]
-02. L'Italiana in Algeri		     [08:05]
-03. La Cambiale di matrimonio      [05:27]
-04. La Scala di sera		              [05:58]
-05. Tancredi		                	[05:48]
-06. Il Signor Bruschino		[04:59]
-07. Il Turco in Italia		[08:29]
-08. L'inganno felice		[05:54]Жанр: ClassicalПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B4597A748161DA99FB61E8B6B6BCE16A8E2A8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

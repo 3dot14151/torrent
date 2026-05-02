@@ -1,3 +1,380 @@
+###  Публикация: 1777205   (71101) от 05.02.2025
+
+Michael Gray (Reflex) - Больше чем жизнь (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тюльпаны [00:04:09]
+02. На одной орбите [00:02:46]
+03. Любовь - Ракета [00:03:05]
+04. Больше чем жизнь [00:03:59](   Читать дальше...   )Жанр: PopПродолжительность: 00:49:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B64C2A833351C38892887C25ECA793FCAF94B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778246   (70929) от 08.02.2025
+
+Муслим Магомаев - Воспоминания Об Арно Бабаджаняне и Роберте Рождественском (2006) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Загадай Желание    [0:03:24.39]
+02. Зимняя Любовь    [0:04:11.51]
+03. Приснилось Мне    [0:03:18.48]
+04. Воспоминания    [0:04:15.64](   Читать дальше...   )Жанр: PopПродолжительность: 01:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6844DD7E3D9949518275426236439A9F6B48F841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778648   (70849) от 09.02.2025
+
+Максим Бородін - Якби не ти (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Якби не ти (2:48)
+02. Скажи мені (2:49)
+03. З гори в гору (2:41)
+04. Зозуленька (4:13)(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4AF1A4932D59C997514BCBD91D60FDA3714351F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778710   (70823) от 09.02.2025
+
+Маленький оркестр, Алексей Гоман - Девочка-ветер (2025) [MP3|320 Kbps] <Ретро-поп>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70823.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Моя маленькая [00:01:50]
+02 - Прогулка [00:03:02]
+03 - Лето [00:02:55]
+04 - Поцелуй [00:02:22](   Читать дальше...   )Жанр: Ретро-попПродолжительность: 00:18:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68176993333486B5EDD4BB247DE17E866512F7ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778686   (70797) от 10.02.2025
+
+Роман Рябцев - Слушай воздух (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Нажми на кнопку [00:03:25]
+02 - Странные танцы [00:05:18]
+03 - Песни ни о чём [00:04:19]
+04 - Рано или поздно [00:04:02](   Читать дальше...   )Жанр: PopПродолжительность: 00:28:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BC2E7EA91660968316CA4012121627834051FE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778674   (70784) от 10.02.2025
+
+Сергей Марков - Зима без снега (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Зима без снега
+02. Я не шучу
+03. Мой милый ангел
+04. Дай мне весну(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB71D3080FBF46A50DA6DC52DDBF18326CFC3279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778679   (70783) от 10.02.2025
+
+Андрюс Роща - Без губ твоих (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Не отпускай [00:03:11]
+02 - Без губ твоих [00:03:11]
+03 - Соберу за столом друзей [00:03:41]
+04 - Спроси меня [00:03:16](   Читать дальше...   )Жанр: PopПродолжительность: 00:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53FDFE1FA687D4CE20C2C52BFF07B35047CAF97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778681   (70782) от 10.02.2025
+
+Владимир Широков - Дыхание (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Замело [00:03:21]
+02 - Давай сбежим в Петербург [00:03:58]
+03 - Твоя любовь придёт [00:03:16]
+04 - Я обниму тебя [00:03:07](   Читать дальше...   )Жанр: PopПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BFB327039F7126CE256AD847CA851B8231E17E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778712   (70779) от 10.02.2025
+
+Динара Швец - Бегу к тебе (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Бегу к тебе [00:03:38]
+02 - Ветром улечу [00:03:08]
+03 - Позвони [00:03:23]
+04 - Я скучаю по тебе [00:03:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B98E63FDDF21D391FD5027A001FB8013C7C6537C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778714   (70777) от 10.02.2025
+
+Андрей Таныч - Воспитала улица меня (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Влюбиться заново в жену [00:04:25]
+02 - Воспитала улица меня [00:03:54]
+03 - Оленька [00:04:48]
+04 - Облик твой [00:03:52](   Читать дальше...   )Жанр: PopПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DAB63971CB53C0F4345446C059CC31FC5C59EF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779525   (70699) от 13.02.2025
+
+Купание обезьяны в тёплой воде - КУПАНИЕ (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70699.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро КУПАНИЕ
+2. Бэтмен
+3. DVD
+4. Хоккей(   Читать дальше...   )Жанр: PopПродолжительность: 00:24:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E000050E4E31C61D33B890669FC57A2C567DA38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779634   (70654) от 14.02.2025
+
+Татьяна Буланова - Записная книжка (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70654.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Искусственный интеллект
+2. Годы летят десятками
+3. Издалека любить
+4. Записная книжка(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B3FD1CAEE2634BE2E95721120FCD7CE921891B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779636   (70627) от 14.02.2025
+
+Юлия Коган - Соло на нервах (2025) [MP3|320 Kbps] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70627.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Соло на нервах
+2. Таблетка
+3. Быть для тебя
+4. Влюбились и выжили(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:138C0C8891AC00A196443BA15C7C8AE6B0B3C469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779216   (70567) от 15.02.2025
 
 VA - Billboard Top Hits 1977 (1991) [OGG Vorbis|480 Kbps] <Rock, Pop, Soft Rock, Disco>
@@ -368,383 +745,6 @@ VA - Neue Hits '90 - Die Internationalen Super-Hits (1990) 2 CD [OGG Vorbis|480 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:170123EA171FD5C075215E080A66D15EEAB85A68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782455   (69979) от 01.03.2025
-
-Ольга Фаворская - Чувства в рифмах 2 (2025) [MP3|320 Kbps] <Pop, Эстрада>
-
->>Pop
->>Отечественная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Музыка не горит [00:01:03]
-02 - Мальчики в тёмно-зелёном [00:01:31]
-03 - Любовь жива [00:01:10]
-04 - Девочка Оля [00:01:21](   Читать дальше...   )Жанр: Pop, ЭстрадаПродолжительность: 00:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4DA3B1A52E8D9074796A8BBB6FF3DCF084D560B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782805   (69954) от 02.03.2025
-
-VA - One Shot '80 Volume 4 (1999) [OGG Vorbis|480 Kbps] <Pop, Dance-pop, Euro-Disco, Europop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falco - Der Kommissar
-02. A-Ha - Take On Me
-03. Captain Sensible - Wot!
-04. Orchestral Manoeuvres In The Dark - Enola Gay(   Читать дальше...   )Жанр: Pop, Dance-pop, Euro-Disco, EuropopПродолжительность: 01:15:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60BB5E0BD52926E99C0CC25C710B12A44B421DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782675   (69924) от 02.03.2025
-
-VA - One Shot '80 Volume 3 (1999) [OGG Vorbis|480 Kbps] <Synth-pop, Disco, Dance-pop, Europop, Pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - You're My Heart, You're My Soul
-02. F.R. David - Words
-03. The Alan Parson Project - Eye In The Sky
-04. William Pitt - City Lights(   Читать дальше...   )Жанр: Synth-pop, Disco, Dance-pop, Europop, PopПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9451AA592947AECCD84C75EA93DFCA1B9C0B4E5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783027   (69892) от 03.03.2025
-
-VA - One Shot '80 Volume 6 (1999) [OGG Vorbis|480 Kbps] <Pop, Italo-Disco, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Human Legue - Don't You Want Me
-02. Sandra - Maria Magdalena
-03. Rick Astley - Never Gonna Give You Up
-04. Samantha Fox - Touch Me (I Want Your Body)(   Читать дальше...   )Жанр: Pop, Italo-Disco, Synth-pop, DiscoПродолжительность: 01:15:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E54179E1D9F50B0D5CECBA46B01B27AFCE2B7BF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783055   (69891) от 03.03.2025
-
-VA - One Shot '80 Volume 7 (1999) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joan Jett & The Blackhearts - I Love Rock'n'roll
-02. The Knack - My Sharona
-03. Blondie - Call Me
-04. Yes - Owner of a Lonely Heart(   Читать дальше...   )Жанр: Rock, Pop, Pop Rock, Synth-popПродолжительность: 01:18:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6195821FB4634CA11F30B25C0C0AA1044131A280
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783014   (69888) от 03.03.2025
-
-VA - One Shot '80 Volume 5 (1999) 2 CD [OGG Vorbis|480 Kbps] <Pop, Italo-Disco, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandy Marton - People From Ibiza
-02. Spagna - Easy Lady
-03. Ryan Paris - Dolce Vita
-04. Gazebo - Masterpiece(   Читать дальше...   )Жанр: Pop, Italo-Disco, Synth-pop, DiscoПродолжительность: 02:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18335EC9E6C07D21309E5365EA5B39681CE62217
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783495   (69815) от 06.03.2025
-
-VA - One Shot '80 Volume 14 (2002) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terence Trent D'Arby - If You Let Me Stay
-02. Matt Bianco - Whose Side Are You On
-03. Hong Kong Syndikat - Too Much
-04. Fairground Attraction - Perfect(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-popПродолжительность: 01:16:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABD646E1E6FB8ADBF539EB7AB025220F44E0D26D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783415   (69811) от 06.03.2025
-
-VA - One Shot '80 Volume 13 (2002) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rick Astley - Together Forever
-02. Propaganda - P-Machinery
-03. The Psychedelic Furs - Heaven
-04. Bangles - Manic Monday(   Читать дальше...   )Жанр: Rock, Pop, Pop Rock, Synth-popПродолжительность: 01:15:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED1B517309557FE5AE2FCA4C920E38C8A6D7F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783504   (69808) от 06.03.2025
-
-VA - One Shot '80 Volume 15 (2003) 2 CD [OGGVorbis|480 Kbps] <Electronic, Pop, Italo-Disco, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toto Cutugno - L'Italiano
-02. Alan Sorrenti - Figli Delle Stelle
-03. Ivan Cattaneo - Polisex
-04. Ricchi e Poveri - Sara' Perche' Ti Amo(   Читать дальше...   )Жанр: Electronic, Pop, Italo-Disco, DiscoПродолжительность: 02:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658781092B2E9B9068373DD1627F2DCEEFA68B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783629   (69763) от 07.03.2025
-
-VA - One Shot '80 Volume 16 (2003) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olivia Newton-John - Physical
-02. Tears For Fears - Change
-03. Kylie Minogue - I Should Be So Lucky
-04. Johnny Hates Jazz - I Don't Want To Be A Hero(   Читать дальше...   )Жанр: Rock, Pop, Pop Rock, Synth-popПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67ADCF60D22743B4AAE43E4641434E7D0216B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783632   (69758) от 07.03.2025
-
-VA - One Shot '80 Volume 17 (2004) [OGG Vorbis|480 Kbps] <Electronic, Rock, Pop Rock, Synth-pop, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frank Stallone - Far From Over
-02. Modern Talking - Brother Louie
-03. Christopher Cross - Ride Like The Wind
-04. Gino Vannelli - Wild Horses(   Читать дальше...   )Жанр: Electronic, Rock, Pop Rock, Synth-pop, DiscoПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:999A33F9B54AF8EAF3D6C5CA2994BE8CB268B003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784021   (69634) от 09.03.2025
-
-VA - One Shot '80 Volume 18 (2006) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jermaine Jackson & Pia Zadora - When The Rain Begins To Fall
-02. A-Ha - The Sun Always Shines On Tv
-03. Tears For Fears - Mad World
-04. Tiffany - I Think We're Alone Now(   Читать дальше...   )Жанр: Rock, Pop, Pop Rock, Synth-popПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:597821DE14CEBFD73A10D774E98686204FC8BC3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784193   (69633) от 09.03.2025
-
-VA - One Shot '80 Volume 19 (2007) [OGG Vorbis|480 Kbps] <Rock, Pop, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bandolero - Paris Latino
-02. Mike Oldfield - Foreign Affair
-03. Doctor & The Medics - Spirit In The Sky
-04. The Belle Stars - Iko Iko(   Читать дальше...   )Жанр: Rock, Pop, Pop Rock, Synth-popПродолжительность: 01:15:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37939F605989B1F2A3770A0CB531E424F2F49820
 ```
 
 https://mybot314.ru/tekegram_catalog/

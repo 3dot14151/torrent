@@ -1,3 +1,119 @@
+###  Публикация: 1655432   (204312) от 26.08.2023
+
+VA - Calming Experience: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_204312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jero Nougues - The Ways of Life (Original Mix) (5:13)
+02. Matt Sour - One Thought (Binaural) (4:13)
+03. Filalete - Ambivalent (3:55)
+04. Michael E - Wind Chime (Original Mix) (5:53)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D36E8867AF13CEFA848CBB44E32EF19ECE7310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603387   (204281) от 09.01.2023
+
+Enigma - Best Of 3CD (2009) 3 x CD, Compilation, Reissue, 2012, Virgin Music [FLAC|Lossless|image + .cue] <New Age, Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204281.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Greatest Hits:
+01. Sadeness (Part 1)
+02. Mea Culpa (Orthodox Version)
+03. Principles Of Lust(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 03:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6588AA6271DFED328EB873A20E4B79E9FC8EF23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656220   (203592) от 29.08.2023
+
+Faro - Mosaic Of Thoughts (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Primal [00:05:00]
+02. Passion [00:05:36]
+03. Surya [00:05:12]
+04. Across the Ocean [00:06:30](   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E0A324D2D47C6C42FD9F23A86776A050426731A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1830041   (202437) от 26.10.2025
+
+VA - Deep Relax - Yoga & Chillout Grooves (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brockman - Everywhere We Go (Chillout Edit) (3:24)
+02. Stephen Rhodes - Immortal Thoughts (7:05)
+03. Luis Hermandez - Aura (4:22)
+04. Ingo Herrmann - Deepdown (2:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7019ACF8ADD0E36F971743CFA317C5B714814C29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618555   (201458) от 12.03.2023
 
 Schiller - Illuminate (2023) Limited Premium Deluxe Edititon [FLAC|Lossless|image + .cue] <Electronic, Chillout, Downtempo>
@@ -629,122 +745,6 @@ Artenovum - A Breeze of Melodies (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FFDD573B0011021A83387F2CA518E6EEB4C4855
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428915   (178316) от 04.12.2020
-
-VA - All Night Jazz: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefano Micarelli - La Genesi Del Fraseggio: Another Me, Another You (01:00)
-02. Belinha Bossa Duo - Carinhoso (04:34)
-03. Raquel Silva Joly - Estate (04:25)
-04. Lisa Maroni - Eu Sem Voce (Instrumental) (05:14)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F81079F943597626632F4B053833872C5858E0B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666846   (178259) от 06.10.2023
-
-VA - Chill with Colors: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abyss Deep Sound Lab - Je Sais (French Version) (6:24)
-02. thE fluiD musics lab. & Ritmo - 5 Minutes (5:06)
-03. Roberto Sol - Impress Me (Ohm-G Remix) (4:43)
-04. Lubay - Golden Hour (3:44)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:22:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDACBD7AE1CA418C56B99106B5ED575D1B08151A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666959   (178070) от 06.10.2023
-
-V.A. - Vintage Cafe – The Remixes Vol. 1-2 (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Pop,>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Os Digitalistas - Grizzly Bear (Javier Penna Remix)
-02. Nenei - Just the Two of Us (Luxury Remix)
-03. Bellestar - Can't Get You out of My Head (Nu Disco Mix)
-04. Natty Bong - No Rain (Ronan Remix)(   Читать дальше...   )Жанр: Downtempo, Lounge, Pop, |Продолжительность: 02:25:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6A0DE7FE1F380AEA3835FEE5B82D22EB40223E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594441   (177936) от 01.12.2022
-
-VA - Soothing Relaxation Lounge: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marie Therese - Contact (Original Mix) (3:56)
-02. Marga Sol - Reflections of You (Original Mix) (3:48)
-03. Malkou - Paris Á L'aube (Original Mix) (3:55)
-04. Roberto Sol - Sensuality (Ballad Mix) (4:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFE8E07CD95415E9810CCAB6CA9BFEC04E0338F
 ```
 
 https://mybot314.ru/tekegram_catalog/

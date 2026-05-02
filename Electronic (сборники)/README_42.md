@@ -1,3 +1,61 @@
+###  Публикация: 1378289   (846612) от 25.04.2020
+
+VA - Beatport Electro House: Sound Pack #69 (2020) [MP3|320 Kbps] <Electro House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846612.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Innellea - Imignie
+002. Marek Hemmann - Roundabout
+003. The Loco - Too Demanding
+004. Madmotormiquel - Daddy Are You Proud(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8007C39A9DEC404EBFF49033279F41B11931CB86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002917   (845399) от 02.04.2016
+
+VA - Spring Vocal Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iris Dee Jay - Xray Eyes - S.A.T & Seven24 Remix
+02. Seven24 - The Meaning - S.A.T Remix
+03. Alex Field - Wake Me - Bryan Milton Remix
+04. Seven24 - Performance - Moonnight Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B29B24598B717D862595D4DCD4CB536E1FC0F75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1003225   (845301) от 02.04.2016
 
 VA - LUXEmusic Топ Март (2016) [MP3|320 кб/с] <Dance, House Music, Mash Up, Pop>
@@ -687,64 +745,6 @@ VA - Deep Love Session (Mixed By Mark Bonk) (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:905D955E0579DCDD4FE437004015DF513BE32B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003825   (840305) от 05.04.2016
-
-VA - Lobby Bar Lounge Vol.2: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coolgrooves - Seventy Live (4:05)
- 02. Chick Le Chic - Guns and Colors - Modell & Mercier Mix (4:12)
- 03. Bassogroove - Kx Files (2:59)
- 04. Palinuro Groovers - Durante (4:59)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C965434D781BB4D32C43244E775434F205CD0E7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003942   (840206) от 05.04.2016
-
-VA - Luxemusic Dance Super Chart Vol.62 (2016) [MP3|320 кб/с] <House,  Electro House, Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adele - Hello (DJ PitkiN Remix) 05:07
-02. Alan Walker vs Oliver Heldens - Faded Wombass (Fabien Jora Festival Mashup) 04:10
-03. Alekseev - Пьяное Солнце (Oleg Perets & Ivan Flash Radio Remix) 03:11
-04. Andy B. Jones vs. Sergey Kutsuev - Make A Move (Markiza Mash Up) 03:34(   Читать дальше...   )Жанр: House,  Electro House, Vocal House
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920246FD4ED97DC664C338F4CA6BFDBDD71C7F8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

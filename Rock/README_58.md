@@ -1,3 +1,32 @@
+###  Публикация: 1412945   (413730) от 01.10.2020
+
+Robert Plant - Digging Deep: Subterranea (2020) 2xCD [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413730.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. Rainbow (04:17)
+ 02. Hurting Kind (I've Got My Eyes on You) (2006 Remaster) (04:11)
+ 03. Shine It All Around (2006 Remaster) (04:03)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 02:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E720A8A509AF4D841EAA88E47F33E87F778FDF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 395834   (413567) от 06.10.2011
 
 Jon Lord - 15 альбомов (1971-2010) [MP3|320 kbps]<Rock>
@@ -714,35 +743,6 @@ Versa - A Voyage / A Destination (2022) [MP3|320 Kbps] <Progressive Rock, Crosso
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:331B15E794C9625919E2EBB21E7F7F7F47CB6EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573916   (408864) от 02.09.2022
-
-Feather Mountain - To Exit a Maelstrom (2022) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. August Mantra (06:38)
-02. Beneath Your Pale Face (03:13)
-03. Pariah (04:17)
-04. Cloud-Headed (06:12)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:167EDDB939C518378EB355D247D511D6D44F85F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

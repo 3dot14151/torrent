@@ -1,3 +1,61 @@
+###  Публикация: 1210425   (778716) от 03.03.2018
+
+VA - Empire Records - Sound Clinic 10 (2017) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778716.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ G - Naked Truth (Tazer Remix)
+02. Liya Fran, WilyamDeLove - Is It Time (Original Mix)
+03. David Dsk - Up Music (Original Mix)
+04. Caal, Baum - Loved Hated (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6839E31FA89AEDCA49C84BF6D7599D4DFDB8D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210699   (778548) от 04.03.2018
+
+VA - The Official UK Top 40 Singles Chart 02.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drake - God's Plan (03:20)
+02. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (03:31)
+03. Dua Lipa - IDGAF (03:39)
+04. Post Malone Feat. Ty Dolla $ign - Psycho (03:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7157623DD0B29EDD1B4FF935B31BE1E6C5512D91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210643   (778533) от 04.03.2018
 
 VA - Record Super Chart #526 (2018) [MP3|320 Kbps] <House, Club, Dance>
@@ -687,64 +745,6 @@ VA - Top Club Music World Hits Vol.75 (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16740E968B02B195C9C2C835D12B488EA4865C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1211534   (777156) от 08.03.2018
-
-VA - Hed Kandi - 169 Best House Tracks In The Past 15 Years (2017) [Compiled by Firstlast] [MP3|320 Kbps] <Deep House, Nu-Disco, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пpодолжительность: 03:36:07
-01. DJ Spen & The MuthaFunkaz present Marc Evens - Given Me Joy (Lovebirds Suite Vocal) [6:38]
-02. Kaori - Goodlife (Good Vocal Mix) [5:29]
-03. Ralph Myerz And The Jack Herren Band - Think Twice [6:15](   Читать дальше...   )Жанр: Deep House, Nu-Disco, Funky HouseПродолжительность: 16:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4CE76764C18B9EFAC939F9987199D83EC56FC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013900   (776969) от 06.05.2016
-
-VA - Girls like Summer Lounge (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elevator Speach - Beyond the Woods - Kiss Mix
-02. Pilots on Strike - Broken Flowers - Buddha Lounge Cafe Bar Mix
-03. Chinatown Perls - Bells of Eternity - Catch 22 Edit
-04. Purple Owl - Ola! Ola! - Hello Clouds Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B04BFEA0216EE9943019F9A806638F5E58F8CDCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

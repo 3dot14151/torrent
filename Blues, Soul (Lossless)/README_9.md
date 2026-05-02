@@ -1,3 +1,119 @@
+###  Публикация: 1611124   (1041618) от 10.02.2023
+
+Mark Thomann - Plastic Flowers (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plastic Flowers (4:54)
+02. Bush Rocket (4:30)
+03. Ain't No Way (3:44)
+04. My Father's Voice (4:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B39945F4A4502E31FD4458B1EBAC7599942DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611127   (1041616) от 10.02.2023
+
+Mississippi MacDonald - Heavy State Loving Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Howlin' Wolf (4:10)
+02. Heavy State Loving Blues (4:20)
+03. Vaneese Thomas -- Blind Leading The Blind (4:08)
+04. Heading South (3:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77327F3C564C3398B7C4E0A80824A8DBFAD65AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611128   (1041615) от 10.02.2023
+
+Tas Cru - Riffin' The Blue (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riffin' The Blue (4:50)
+02. Brown Liquor Woman (3:21)
+03. Stand Up! (3:33)
+04. One More Time (7:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15872365E05E2D8B458406C01C431916D35A644B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611122   (1041603) от 10.02.2023
+
+Johnny Tsunami and the Hurricanes - Blowin' the Roof off the Motha (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Enigma (3:48)
+02. Red Cloud (3:38)
+03. Cried All Night (3:29)
+04. Dimples (6:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BCCC272A0C3413AA784EC1235F63119C3737AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437936   (1041456) от 07.01.2021
 
 Antonio Hidalgo - Perseides (2015) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A4CFCC179FDA6F39BC3BEAF9BB137304ADFAAD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440254   (1039017) от 16.01.2021
-
-Ngguitarboy Project Band - Ten Years (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clouds on Me (5:00)
-02. Steps (2:54)
-03. Listen (3:42)
-04. She (5:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:938056BD73B7DD29B327FE0C44D65C7C17CBEA1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440250   (1039013) от 16.01.2021
-
-Michael Allman - Blues Travels Fast (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Travels Fast (4:22)
-02. Goin' Back to Daytona (4:32)
-03. New Minglewood Blues (4:20)
-04. Midnight Blues (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966D10DC9B5209A10447F1A4DC6B1456C45AC114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440233   (1038992) от 16.01.2021
-
-Brad Palmer - Street Sessions Vol. 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Risin' Moon (5:04)
-02. 'Bout the Break of Day (6:26)
-03. Catalina (6:32)
-04. Won't Let the Blues (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4544D69B91E6296BC10573F62E48C4BFEBE60476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614317   (1038825) от 21.02.2023
-
-Imperial Crowns - The Calling (2016) [FLAC|Lossless|image + .cue] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Gotta Right (3:16)
-02. The Calling (3:41)
-03. Grace Under Pressure (5:04)
-04. Wasn't Love At First Sight (4:37)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:425955931A5E36BDF1E5ECD42F4DD272497E9110
 ```
 
 https://mybot314.ru/tekegram_catalog/

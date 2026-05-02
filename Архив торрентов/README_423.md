@@ -1,3 +1,55 @@
+###  Публикация: 1358800   (966967) от 09.02.2020
+
+Internet Download Manager 6.36 Build 7 RePack by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D64FDF6C9A8A5405C643829D8EEDD71585021A8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358666   (966935) от 09.02.2020
+
+Total Commander 9.50 Final RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966935.jpg" />
+</div>
+
+
+###  Подробнее
+
+Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F43664E5940EA1F4A5F0B6E33BB29DCE8A1308C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1358693   (966932) от 09.02.2020
 
 CCleaner 5.63.7540 (08.02.2020) Business | Professional | Technician Edition RePack (& Portable) by D!akov [Multi/Ru]
@@ -667,58 +719,6 @@ Yoink представляет собой посредника, который �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBD75F5B74A9F12400CFFA39A6A346F206FD61EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977152   (966665) от 20.01.2016
-
-Aiseesoft HD Video Converter 8.1.10 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966665.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мощная программа для конвертирования видео файлов разных форматов в видео высокой четкости, список поддерживаемых форматов можно просмотреть на официальном сайте, он достаточно обширный, смысла все перечислять нет.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A94F4A423BFDF3B7F6510DDC6671445F9914CAA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977141   (966655) от 20.01.2016
-
-Aiseesoft Audio Converter 6.3.12 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966655.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aiseesoft Audio Converter - простой в использовании аудио конвертер, конвертер AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA аудио, извлечение аудио из видео файлов MPG, MPEG, MPEG2, MOV, QT, MP4, M4V, RM, RMVB, WMV, ASF, MKV, TS, MPV, AVI, 3GP, 3G2, FLV, MPV, MOD, TOD видео в AAC, AC3, AIFF, AMR, AU, FLAC, MP3, M4A, MP2, OGG, WAV, WMA аудио, конвертер (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF7D13560C2E40216A1FBAC2116F5D25113BE292
 ```
 
 https://mybot314.ru/tekegram_catalog/

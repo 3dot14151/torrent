@@ -1,3 +1,119 @@
+###  Публикация: 1657215   (193135) от 02.09.2023
+
+Diamonds and Guns - Making Cash For Heartless Crooks (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Making Cash For Heartless Crooks (Intro) [00:01:04]
+02. So Long, Chicago [00:03:39]
+03. Nevertheless [00:03:54]
+04. September [00:04:14](   Читать дальше...   )Жанр: Hard Rock, Punk RockПродолжительность: 00:17:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2A4B648EAE8ACCDBA3FDC782B7B950DC855BB4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657225   (193116) от 02.09.2023
+
+Art of Dysfunction - Art of Dysfunction (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bedford Blues (2:32)
+02. Hypnotise (5:00)
+03. Before The Moment Dies (2:52)
+04. Sunset Rider (4:13)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DEAD19A7EB5D65ED761306FAD0F3C036C46C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657229   (193113) от 02.09.2023
+
+Chris Manning - Reach the Sky - Reach the Sky (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing But Time (5:19)
+02. Reach the Sky (4:50)
+03. Fly Over the Walls (feat. Bruce Kulick) (5:45)
+04. Freedom (5:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B1CC06F41913458EF07651B458BDF38AC013AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1657143   (193082) от 02.09.2023
+
+H.E.A.T - Extra Force (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom (3:06)
+02. Will You Be (4:18)
+03. Rise (Kenny Leckremo Version) (4:17)
+04. One by One (Kenny Leckremo Version) (3:47)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C466B333CFC397AE09A2F6B0A77628DE5D1F55AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587204   (192999) от 30.10.2022
 
 Silver Phantom - Crimson Cabaret (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
@@ -628,122 +744,6 @@ Ugly Kid Joe - Rad Wings Of Destiny (2022) [FLAC|Lossless|image + .cue] <Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45902E4D77683C48AB807E46BC655ABE49A2D5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658384   (191323) от 08.09.2023
-
-Craver - Torch Of Wisdom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191323.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreams Of The Night [00:03:55]
-02. Harbor Lane [00:04:49]
-03. Sign Of The Circle [00:04:22]
-04. Sweet Flame [00:04:32](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1786B343AB66CF7CB09249E0982E9495FD019342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658403   (191322) от 08.09.2023
-
-Montra - Against All Odds (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone Too Long [00:03:55]
-02. Good Times & Rock N' Roll [00:05:06]
-03. Old Dixie Hwy [00:04:26]
-04. Warning [00:05:03](   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319739D29A06E8C9048AFB4D07F3DD7AC0B6BEB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588783   (191101) от 06.11.2022
-
-Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Galacticus (1:11)
-02. Vagabond Rise (4:04)
-03. Here Be Dragons (4:38)
-04. Firefly (4:31)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E9C8F8D2DA3D2D76ACFD0DE670B7B729F0076B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589009   (190912) от 07.11.2022
-
-Burning Sister - Mile High Downer Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Doom>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leather Mistress [00:06:31]
-02. Acid Night Vision [00:07:11]
-03. The Messenger [00:01:57]
-04. Cloven Tongues [00:07:25](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, DoomПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B4B497F325621C0DCF7820EA80B855095040F53
 ```
 
 https://mybot314.ru/tekegram_catalog/

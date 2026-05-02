@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1867473   (1067060) от 27.04.2026
+
+VA - Audio Testing Guide Test Machine No. 1 (2008) K2HD mastering [WAV|Lossless|tracks] <Classic, Folk, Pop>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony Victory Overture (2:39)
+02. A World Apart by Water (Vocal) (3:37)
+03. The Four Seasons – Violin Rhapsody (3:22)
+04. Smoke Rise Again (Vocal) (4:16)(   Читать дальше...   )Жанр: Classic, Folk, PopФормат: 44.1 kHz / 16‑bit / StereoПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A578BD3DAB7294DAB37611F6FF77BF98FA2681E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452938   (1018570) от 29.04.2021
 
 PinocchioP - Best Album 2009-2020 Kotobuki (2021) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
@@ -718,35 +747,6 @@ Masayoshi Takanaka - Saudade (1982) 1995, Kitty Records [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E895CA5B098FC18AFFBADA837AF8F8D1F76D7AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1180240   (341959) от 03.11.2017
-
-Masayoshi Takanaka - Ukulele Seychelles (2011) Lagoon Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oh! Tengo Suerte [04:44]
-02. Tokyo Legie [03:58]
-03. Shinkirou no Shima E [04:28]
-04. Akogare no Seychelles Shotou [05:33](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5546470D62A054FE240B0FF7167BA6EFB790C70
 ```
 
 https://mybot314.ru/tekegram_catalog/

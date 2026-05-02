@@ -1,3 +1,61 @@
+###  Публикация: 1703088   (114831) от 01.03.2024
+
+VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darles Flow, José Sierra & Tibetania - Sahra (6:06)
+02. Project Blue Sun & Tibetania - Desert Girl (Dacosta Remix) (5:46)
+03. Tibetania & Hansonic - Streets of Khartoum (6:40)
+04. The Mystic & Tibetania - Johera (6:45)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:08:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8BAC9B36BD1963844A7820922EB504E79AEAE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720488   (110325) от 03.05.2024
+
+VA - Nomadica 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Juantxo Munoz & Robric & Tibetania - Desert Moon (Original Mix) (6:42)
+02. DJ Arte & Alsur & Tibetania feat. DJ Mell - Eunoia (Original Mix) (5:07)
+03. Juantxo Munoz & Robric & Tibetania - Oman (Original Mix) (6:22)
+04. Indiano & Tibetania - White Love (Original Mix) (7:18)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD09ABE447896D9B65E5D806A2DA0214451CD84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1725452   (109008) от 24.05.2024
 
 VA - The Orient Collective: Golden Sand (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -711,64 +769,6 @@ VA - The Orient Collective: Golden Dunes (2025) [FLAC|Lossless|WEB-DL|tracks] <W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2123017CA30D6DCAD9FF998B999784DF73964870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1777815   (70947) от 07.02.2025
-
-VA - The Orient Collective: Dunes & Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Slick & Tibetania - Astral Illusion (Original Mix) (7:18)
-02. Arcaans & Tibetania - Dunes (Vadim Bogac Remix) (6:10)
-03. v^connections & Tibetania - Dune (Original Mix) (6:07)
-04. Ale Rauen & Cris Proença & Tibetania - Nae (Original Mix) (6:16)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:58:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6D199CD5F8DF21668644AE87BC563BF760D162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778843   (70769) от 10.02.2025
-
-VA - The Orient Collective: Echoes Beyond Borders (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gabriel Slick - Astral Illusion (7:18)
-02. Kalico Jak - Across the Sands (7:36)
-03. Tibetania - Nomad (4:56)
-04. Tibetania - Terra (6:12)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F97428616A64F7BDF6556F8B33E65BF1BF08ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1636043   (241248) от 28.05.2023
+
+VA - Zen Garden Experience: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_241248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Sour - Spelunca 432Hz (4:32)
+02. Free Spirit Muse, M-Sol MUSIC - Breath-Ful Moments (20:21)
+03. Filalete - Virtue (4:16)
+04. Matt Sour - Pax Mane 432Hz (4:35)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:14:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6954EAC1D897CF72BCBFB7AB9F9B9DE592A72A4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571648   (239849) от 22.08.2022
+
+Röyksopp (Royksopp) - Profound Mysteries II (2022) [FLAC|Lossless|tracks + .cue] <Downtempo, House, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Denimclad Baboons (3:43)
+02. Let's Get It Right (feat. Astrid S) (5:06)
+03. Unity (feat. Karen Harding) (5:05)
+04. Oh, Lover (feat. Susanne Sundfør) (6:14)(   Читать дальше...   )Жанр: Downtempo, House, AmbientПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AFA076A5B53FB0B703D6A2B484E07DEF0B1F3F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638236   (239410) от 07.06.2023
+
+Speakers Corner Quartet - Further Out Than The Edge (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_239410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On Grounds (3:10)
+02. Acute Truth (3:41)
+03. fix (2:40)
+04. Wavelet (3:26)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFFFB14CCF8F704030A0E71ACCA12F08B2813EAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636056   (239313) от 28.05.2023
+
+Fridge - Happiness (Anniversary Edition) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melodica & Trombone (Remastered) (6:02)
+02. Drum Machines & Glockenspiel (Remastered) (13:18)
+03. Cut Up Piano & Xylophone (Remastered) (2:35)
+04. Tone Guitar & Drum Noise (Remastered) (4:46)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:09:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72228FE2ED7414D7999187967FF48944FE307C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1628619   (238641) от 23.04.2023
 
 V.A. - Cafe del Mar Ibiza Chillout Mix II (DJ Mix) (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Downtempo>
@@ -627,122 +743,6 @@ VA - Feeling Relaxed Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36BCC31486048EDCE4C95B877BC08A0F6A2BA4EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514248   (219605) от 02.12.2021
-
-VA - Calm Winter Sea: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Can Summer Last Forever (Original Mix) (5:05)
-02. Michael E - It's Like Floating (Original Mix) (4:45)
-03. Beamy - Daybreak (4:00)
-04. Martin Hiska, Michael Moses - Sandy (4:48)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8B089B49EEB98C004CE1C35ECFD69E78D0236D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084703   (218790) от 19.12.2016
-
-VA - Private Room - The Lounge Session Vol. 17 (2016) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Guenter Haas - Secret Diary [05:38]
- 02 Michael e - Serenity [04:42]
- 03 North Coast Vibes - Sunny [05:46]
- 04 Claude Chagall - Sunset Buddha [05:33](   Читать дальше...   )Жанр: Downtempo, LoungeПродолжительность: 02:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA95607B6E45221D49C879B98FF3F8753390EA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269979   (217730) от 16.12.2018
-
-VA - Buddha Bar: The Ultimate Chillout Lounge Collection (2018) [FLAC|Lossless|tracks] <Lounge, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Last Boy  (3:19)
-02. The Hunt  (1:20)
-03. Drunk Dopes  (3:40)
-04. Tiny Spiders  (4:54)(   Читать дальше...   )Релиз состоялся: 22 October 2018Жанр: Lounge, ChilloutПродолжительность: 01:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A874BC36DB56102E3954353DDB3432B782BAD0DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514501   (217607) от 03.12.2021
-
-GARRISON (Игорь Савосин) - 3 альбома (2017, 2021) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life (4:46)
-02. Forest Night (5:23)
-03. East Wind (6:33)
-04. Submarine (4:07)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 02:52:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D25A17F055472643294272D38BF852B0F8CC1410
 ```
 
 https://mybot314.ru/tekegram_catalog/

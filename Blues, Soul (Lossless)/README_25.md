@@ -1,3 +1,119 @@
+###  Публикация: 1489432   (925282) от 16.08.2021
+
+Thorbjorn Risager & Emil Balsgaard - Taking The Good With The Bad (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Insomniac Boogie (2:56)
+02. I Know You Rider (4:48)
+03. It Ain?t Right (3:06)
+04. If I Could (4:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9054E713C8AB598A10F69CF43AEEC422F8CF77EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095214   (924564) от 21.01.2017
+
+Alastair Greene - Through The Rain (2011) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Before The Storm  (00:43) 
+02|  Through The Rain  (04:28) 
+03|  By The Way  (04:21) 
+04|  Get Your Evil On  (04:37) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7D13CDD3988AE5B9543B3D60A5377EFC2305659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095304   (924555) от 21.01.2017
+
+Skinny Blue - Skinny Blue (2017) [FLAC|WEB-DL|Lossless|tracks + .cue] <Blues, Alternative Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Where Ya Been (02:39)
+02 No Surprise (03:08)
+03 You Feel It Too (04:58)
+04 Hit The Gas (04:01)(   Читать дальше...   )Жанр: Blues, Alternative Blues RockПродолжительность: 00:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8D510F2D76150BC086EDD2A6A62AA12E0F68736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1095216   (924553) от 21.01.2017
+
+Mark Cook - An Evening With The Blues (2000) [FLAC|Lossless|image + .cue] <Blues Rock, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  All Your Lovin'  (03:20) 
+02|  Nasty Old Feeling  (05:02) 
+03|  Bad Reputation  (03:05) 
+04|  Let it Go  (04:04) (   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:49:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CD677A3A55A6F43664F99AC96F2212B724268CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095488   (924540) от 21.01.2017
 
 Ronnie Baker Brooks - Times Have Changed (2017) [FLAC|Lossless|image + .cue] <Blues Rock, Electric Blues>
@@ -640,122 +756,6 @@ J.J. Cale - Okie (1974) Japan Edition, 2013, Mercury [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB2173244C49A12D749BFF67DDF076155222FFE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367204   (918965) от 14.03.2020
-
-VA - Women Of Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ruth Brown - Takin' Care Of Business (2:19)
-02 Betty Lavette - Here I Am (Single Version) (2:48)
-03 Louise Hoffsten - When It Rains It Really Pours (4:34)
-04 Aretha Franklin - Today I Sing The Blues (4:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC301434754CE9C0F005E35C05FE1A85DC211CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 313414   (918228) от 14.03.2020
-
-Vaya Con Dios, Purple Prose - 9 альбомов (1988 - 2009) [FLAC, APE|Lossless] <Blues, Rock, Jazz, Chanson, Ballad>
-
->>След.
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918228.jpg" />
-</div>
-
-
-###  Подробнее
-
-Vaya Con Dios - всемирно известная группа, созданная музыкантами, объединившимися вокруг певицы  Dani Klein (родилась 31.12.1953), фантастической женщины, в начале своей карьеры работавшей в качестве вокалистки во многих бельгийских группах.Список альбомов:
-Vaya Con Dios
-1988 - Vaya Con Dios
-1990 - Night Owls(   Читать дальше...   )Жанр: Blues, Rock, Jazz, Chanson, BalladПродолжительность: 07:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30CDD579DC759EE9F3BE9666A4F986D80D9468A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096967   (917801) от 25.01.2017
-
-Eldon Brown Band - I'd Be A Fool (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, West Coast Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'd Be A Fool (03:54)
-02. Aloha Richmond (04:42)
-03. Elaine (03:09)
-04. Got Your Number (02:59)(   Читать дальше...   )Жанр: Blues, West Coast BluesПродолжительность: 00:33:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1898C856073246250F0DDC5631218D4A25825A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096879   (917782) от 25.01.2017
-
-The Hollywood Blue Flames - Soul Sanctuary (2005) [FLAC|Lossless|image + .cue] <Blues, West Coast Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flambed 1'55
-02. Nit Wit 2'19
-03. The Land Of Calio 3'30
-04. Soon Forgotten 3'59(   Читать дальше...   )Жанр: Blues, West Coast BluesПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FA30E70F4631589AFFBFAF00D492A88E324858
 ```
 
 https://mybot314.ru/tekegram_catalog/

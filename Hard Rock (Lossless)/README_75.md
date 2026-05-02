@@ -1,3 +1,119 @@
+###  Публикация: 1651185   (223432) от 05.08.2023
+
+AMH (Adam and The Metal Hawks) - Hurry Up And Wait (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiptoe [00:03:02]
+02. Underground [00:03:24]
+03. Backwards [00:03:21]
+04. Mr. Jimmy [00:03:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA380398DE21C9392A7B5C4FF3B230FFE55E6C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651171   (223428) от 05.08.2023
+
+Roosterz - Brutal Nuggetz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone N' Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Man Who Forgot His Name [00:03:18]
+02. Unathletic [00:03:35]
+03. Jocelyne [00:04:48]
+04. Fist vs Face [00:04:30](   Читать дальше...   )Жанр: Heavy Rock, Stone N' RollПродолжительность: 00:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AABE047017D627603BDBB8514776A24BE139DA00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651132   (223017) от 05.08.2023
+
+Renaud Hantson s Furious Zoo - Fishnet - Furioso X (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Down
+02. Why Dontcha
+03. Fishnet
+04. What Is Life(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB930652D3629F8183F74672F9D8B2714E0965B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585217   (222919) от 21.10.2022
+
+The New Roses - Sweet Poison (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Kinda Crazy
+02. Playing With Fire
+03. All I Ever Needed
+04. The Usual Suspects(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFEE5D344E12A0A8D8A9DFF116B5872E2483D192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585271   (222912) от 21.10.2022
 
 Stryper - The Final Battle (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
@@ -629,122 +745,6 @@ Disc One - Heaven Calls:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:872F75519DAE8A125B86BCA82AE6E3B62E1D1E4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425648   (220952) от 21.11.2020
-
-Black Cats NYC - Free Cake (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220952.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Want You (02:18)
-02. She Got What I Need (04:21)
-03. Dirty Little Hipster (03:38)
-04. Cry Baby (03:07)(   Читать дальше...   )Жанр: Hard Rock, Rock'n'RollПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12B3506A3A7538218C97566421B8D09CC288B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585632   (220744) от 23.10.2022
-
-Steelover - Stainless (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dealer (3:50)
-02. Give It Up (3:57)
-03. Get Out (5:09)
-04. Remember (4:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19EBD98518BD43EFF522652283EF13F24A37DBEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585637   (220723) от 23.10.2022
-
-C.T.P. Christian Tolle Project - Now & Then Encore (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Gonna Let It Slide (5:31)
-02. Never Had It So Good (4:14)
-03. Sword And Stone (4:13)
-04. Angel (6:19)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD7D4AA33D93C2E89AC8AD685B9AEE747B4E49CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651922   (219730) от 09.08.2023
-
-Jovian Queen - Jovian Queen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, 70's>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirt [00:04:22]
-02. Catatonic Smile [00:04:58]
-03. Death Machine [00:04:48]
-04. Nostromo's Demise [00:05:25](   Читать дальше...   )Жанр: Heavy Rock, Stoner, 70'sПродолжительность: 00:33:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A75EC1FEBE1A9E9C79436DC363EDA0A28B0C7BC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

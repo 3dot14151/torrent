@@ -1,3 +1,61 @@
+###  Публикация: 1580652   (329980) от 02.10.2022
+
+Mary Osborne - A Girl & Her Guitar (1945 - 1959) 2015, El [FLAC|Lossless|tracks + .cue] <Bop, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love Paris [2:53]
+02. I Let a Song Go Out of My Heart [2:52]
+03. How High the Moon [2:55]
+04. When Your Lover Has Gone [3:51](   Читать дальше...   )Жанр: Bop, Guitar JazzПродолжительность: 01:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:498EE823D1A42A2B637ABBB0E5E8CBFF6253E00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956685   (329482) от 15.11.2015
+
+Art Farmer - Yesterday's Thoughts (1975) 2015, Universal[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.What Are You Doing The Rest Of Your Life [09:53]
+ 02.How Insensitive [06:36]
+ 03.Namely You [05:59]
+ 04.Alone Together [09:32](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D7F85705BD7EC66EDCEB62BFAEA989068E01DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956695   (329451) от 15.11.2015
 
 VA - Conception: Lee Konitz, Miles Davis, Stan Getz, Gerry Mulligan (1949-1951) 2013, Universal[FLAC|tracks+.cue]<Mainstream Jazz, Cool>
@@ -685,63 +743,6 @@ Oscar Peterson - Time After Time (1986) 2000, Pablo Records[FLAC|tracks+.cue]<Ma
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03F0D4056E86C75B6E3FE75DB2A34232415EF4AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958572   (323960) от 21.11.2015
-
-Lettuce - Crush (2015) [FLAC|tracks|WEB-DL]<Funk, Jazz Fusion, Jam Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Force
-02. Get Greasy
-03. Chief
-04. 'Lude, Pt. 1(   Читать дальше...   )Жанр: Funk, Jazz Fusion, Jam BandПродолжительность: 01:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3FF3A913837FFD6D33C63E2A56A505BCCDC838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181454   (323841) от 07.11.2017
-
-Phil Woods - Freedom Jazz Dance (1969) 1990, Moon Records [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stolen Moments [17:43]
-02. Freedom Jazz Dance [11:54]
-03. Alive and Well [12:05]Жанр: Post-BopПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA68FAFCA523BC428A514FD025178A9552572298
 ```
 
 https://mybot314.ru/tekegram_catalog/

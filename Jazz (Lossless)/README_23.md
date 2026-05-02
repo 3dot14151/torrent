@@ -1,3 +1,61 @@
+###  Публикация: 1355607   (982297) от 27.01.2020
+
+David Benoit - David Benoit And Friends (2019) Shanachie [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballad of Jane Hawk (feat. Peter White) [4:09]
+02. Make It Real (feat. Lindsey Webster) [4:30]
+03. Vernazza (feat. Dave Koz) [4:04]
+04. Moon and Sand (feat. Marc Antoine) [5:45](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBA78B24B50B10AE61FF8A24CCC2C86EC0FE0C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972214   (982171) от 06.01.2016
+
+Freddie Hubbard - Super Blue (1978) Remaster, 2007, Sony[FLAC|tracks+.cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Super Blue [07:52]
+ 02.To Her Ladyship [06:01]
+ 03.Take It To The Ozone [07:03]
+ 04.The Gospel Truth [05:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97A9F1965D378A56B51235616E6963AD260CE08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972623   (982169) от 06.01.2016
 
 Grant Green - Grantstand (1961) 2003, Blue Note[FLAC|tracks+.cue] <Hard Bop>
@@ -693,63 +751,6 @@ Art Blakey And The Jazz Messengers - Buhaina (1973) Remaster, 2014, Universal[FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C189CB3311F0A2946D0CE82F04B1DEBD7D4A9EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973408   (980321) от 08.01.2016
-
-Howard Alden, Lloyd Ellis, Cal Collins - Famous Door: Ace Guitarists (1976/1978/1987) 3CD, 2015, Famous Door[FLAC|tracks+.cue] <Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980321.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Howard Alden:
-01.Make Believe [04:31]
-02.Blue Because Of You [04:26]
-03.Intimacy Of The Blues [05:14](   Читать дальше...   )Жанр: Mainstream Jazz, Guitar JazzПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369DEAD84930FA7D7384EC1BFFC7B9FF1C438D1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973447   (980319) от 08.01.2016
-
-Johnny Griffin & Art Taylor Quartet - The Jamfs Are Coming! (1975/1977) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Jamfs Are Coming, Wee Dot [16:24]
- 02.Wee [01:23]
- 03.All The Things You Are [19:34]Жанр: Post-Bop, Hard BopПродолжительность: 00:37:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230B13FB4F573D8F5CA8082706B2C672BC9582BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

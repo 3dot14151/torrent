@@ -1,3 +1,119 @@
+###  Публикация: 1531265   (722482) от 15.02.2022
+
+Willie Dave Willis - Spirits (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Folklore (Backwoods Version) (2:51)
+02. Ghost Train (3:12)
+03. Good Bad and Mostly in Between (3:50)
+04. Clean Slate (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F315ED711C842034D8D0648E1701F74863B80A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023877   (722373) от 06.06.2016
+
+Dave Steffen Band - Give Me A Thrill! (1993) [FLAC|Lossless|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Mover    03:14
+02. Gotta Love For You Baby    03:31
+03. Give Me A Thrill    02:56
+04. Rainy Blues    05:34(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6317B70EEFC73FE2F1469A6E1297D6BBCCEFFEA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129659   (720707) от 29.04.2017
+
+Robert Cray & Hi Rhythm - Robert Cray & Hi Rhythm (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Electric-Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720707.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роберт Крей родился 1 августа 1953 года (Колумбус, Джорджия) в семье военнослужащего. С виду он весь какой-то не блюзовый, больно уж смазливый и чистенький, слишком рафинированный, чтобы показаться настоящим. От него не разит виски и табаком. От одного только его вида веет изысканной парфюмерией. Таков теперь современный блюз, что ли? Если не в целом, то блюз одного (   Читать дальше...   )01. The Same Love That Made Me Laugh (3:52)
+02. You Must Believe In Yourself (3:40)
+03. I Don't Care (5:28)
+04. Aspen, Colorado (4:20)(   Читать дальше...   )Жанр: Blues, Electric-Blues, SoulПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285919490D617F6AF3FC950D468A97C2E874E402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024077   (720667) от 07.06.2016
+
+Robby Z - I'm Your Man (2001) [FLAC|Lossless|tracks] <Blues, Blues Rock,>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is It You    04:15
+02. When Does it End    04:44
+03. Can't Live Without You    03:12
+04. Play    04:11(   Читать дальше...   )Жанр: Blues, Blues Rock,Продолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B737082E41DD0C55ACCB78507CEB827B8A18EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1531479   (720526) от 16.02.2022
 
 The Alan Greene Band - Heard A Rumor (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Dean Owens - Sinner's Shrine (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Singer
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:250D7D177B7416EBF17E5906C89C74607CD99208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532595   (712578) от 20.02.2022
-
-Brandon Reeves - There's No Going Back (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Until It Takes a Hold (3:57)
-02. Good News (4:25)
-03. There's No Going Back (4:04)
-04. Room (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4C45C3867A620CD228ADBC33EC6A750B09F4B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025282   (712215) от 11.06.2016
-
-Big Mike Griffin - Sittin' Here With Nothing (1995) [FLAC|Lossless|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody's Been Talkin'    04:12
-02. Satisfied    02:43
-03. Love is Growing Cold    04:24
-04. Sittin' Here With Nothing    03:53(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F7A8757CDA2203ACF15B199279BCE5062FD3AF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025095   (712211) от 11.06.2016
-
-Kees Dusink - Forever Blue (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues / Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever Blue
-02. Harbor Swing
-03. Albatross
-04. Blues To The Bone(   Читать дальше...   )Жанр: Modern Electric Blues / InstrumentalПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F932F88958245CEBD036680132D013979555819A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025306   (712201) от 11.06.2016
-
-Adrian Galysh - Into The Blue (2016) [FLAC|Lossless|image + .cue] <Blues-rock, Instrumental-guitar-rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Your Hammer Ring (4:12)
-02. Barstool Monarchy (3:27)
-03. Unloveable Me (3:35)
-04. Messin' with the Kid (5:09)(   Читать дальше...   )Жанр: Blues-rock, Instrumental-guitar-rockПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4076D591770CDFFB1D66BB5BA8CE3A3616A5EA15
 ```
 
 https://mybot314.ru/tekegram_catalog/

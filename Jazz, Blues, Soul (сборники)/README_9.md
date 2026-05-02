@@ -1,3 +1,32 @@
+###  Публикация: 1393503   (767594) от 30.06.2020
+
+VA - Sexy Bedtime Instrumental (2020) 2CD [MP3|320 Kbps] <Easy Listening, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Relaxing Instrumental Jazz Ensemble - The Weight of a Moonbeam (Beautiful Dreams)
+02. The Erotic, Sexy, Smooth Jazz, Romantic Saxophone, Love Making Music Band - Music for Lovers
+03. Orchester Anthony Ventura - If I Only Had Time / Save the Last Dance for Me
+04. Relaxing Instrumental Jazz Ensemble - Zephyr's Waltz (Relaxing Sleep Music)(   Читать дальше...   )Жанр: Easy Listening, JazzПродолжительность: 09:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C300A999782DDE25FD86E23BBECBA58400CA9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279128   (766861) от 28.01.2019
 
 VA - The Lyric Country and Blues (2019) [MP3|320 Kbps] <Country, Blues>
@@ -716,35 +745,6 @@ VA - Total Eclipce: Sweet Sound Jazz (2016) [MP3|320 кб/с] <Swng, Smoth Jazz,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85A38B36EE4C70F0C1C36FDF3DABB4D8C0C41D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127679   (730701) от 22.04.2017
-
-VA - Blues Collection 8 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Geoff Everett Band - Lost At Sea (Feat. Mollie Marr...)  (06:29) 
-02. Brad Curtis & The SOME x 6 Band - Be Still 2017  (04:49) 
-03. Mark Selby - Back Door To My Heart  (04:01) 
-04. Dizzroxx - Nuclear Shit  (03:33) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 04:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59C57A0052F3E16BFBA957F72F3B91A29379901
 ```
 
 https://mybot314.ru/tekegram_catalog/

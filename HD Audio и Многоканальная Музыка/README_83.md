@@ -1,3 +1,177 @@
+###  Публикация: 1684388   (127770) от 15.12.2023
+
+Jorgen (Jørgen) Sandvik - The Overview (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Permanent Vacation (3:34)
+02. The Scandinavian Way (3:52)
+03. Regrets (3:49)
+04. Grov (6:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450108A57A6E5777DA15E7DE4A89244BA151F2D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684391   (127769) от 15.12.2023
+
+Saverio Maccne - Southern Light (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No One Does That Magic Like You (3:25)
+02. Ain't Got Nothing But My Sorrow (Bad Gambler) (5:15)
+03. Mysterious Love (5:08)
+04. Riding On My Mind (4:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82A8E068C5BDEF4A22E337FD54B44F8FB2F82822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684406   (127764) от 15.12.2023
+
+Ayreon - The Source (2017) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127764.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - The Day That The World Breaks Down
+A2 - Sea Of Machines
+A3 - Everybody Dies
+B1 - Star Of Sirrah(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:28:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86A06234F38696A441327A6E05F51148AEDF0800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684644   (127607) от 16.12.2023
+
+The Rolling Stones - Hackney Diamonds (2023) Live Edition, Explicit, 2023, Polydor Records [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shattered (Live at Racket, NYC) (4:52)
+02. Angry (Live at Racket, NYC) (4:20)
+03. Whole Wide World (Live at Racket, NYC) (4:29)
+04. Tumbling Dice (Live at Racket, NYC) (4:28)(   Читать дальше...   )Жанр: RockПродолжительность: 2CD, 01:23:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4488B173C4392F679A437BCD1C0593C092645B21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684649   (127595) от 16.12.2023
+
+Placebo - Collapse Into Never - Live In Europe (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever Chemicals (5:09)
+02. Beautiful James (4:01)
+03. Scene of the Crime (3:28)
+04. Hugz (4:54)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:32:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18D80364644D87BE572597BF4BC74F699D00FFFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684639   (127586) от 16.12.2023
+
+The Black Crowes - The Southern Harmony And Musical Companion (1992) Super Deluxe, 2023, American Recordings Catalog P&D [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues rock, Rock & Roll, Sou ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Speak No Slave (Live In Houston, TX. 2/6/1993) (5:14)
+02. Sting Me (Live In Houston, TX. 2/6/1993) (5:02)
+03. My Morning Song (Live In Houston, TX. 2/6/1993) (8:53)
+04. Jam (Live In Houston, TX. 2/6/1993) (7:41)(   Читать дальше...   )Жанр: Blues rock, Rock & Roll, Southern Rock, Hard RockПродолжительность: 3CD, 02:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C2FFAF8DF80FD0634140DDA7423691C2EB0F1E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684666   (127542) от 16.12.2023
 
 Troll - Trolldom (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Black Metal>
@@ -571,180 +745,6 @@ Dusk - Dissolve Into Ash (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom, Dea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C7D47993F392C9F0B78A0C1786790E75FFE3DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686589   (126272) от 24.12.2023
-
-VA - Oktoberfest Drinking Songs 2023 Traditional German Beer Festival Music (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oktoberfest Band - Festival Beer Atmosphere (2:59)
-02. Oktoberfest Masters - Folk Music Germany (3:16)
-03. Oktoberfest Akademie - Rhythm of the World (3:17)
-04. Glenn Milton - Drinking Beer Festival Music (3:17)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEAD2B65D0012D8FAB1932EDC10A6711E9E3927E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686580   (126248) от 24.12.2023
-
-Various Artists - Best Carnival Party Jazz 2023 Brazilian Vibes (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soft Jazz Mood - Caribbean Cafe (Ocean Waves) (4:34)
-02. Cuban Latin Collection - Chillin Bossa Nova Vibes (3:19)
-03. Coffee Lounge Collection - Sunset Walk (3:47)
-04. Soft Jazz Mood - Costa Del Mar (3:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:177C5AD7E2BC9DA6F3849ADF1DE254E1E37B9DB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686585   (126244) от 24.12.2023
-
-VA - Morning Bells Coffee Jazz Music for A Cozy Christmas Mood (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazz Sax Lounge Collection - Families United (3:23)
-02. Christmas Time - The Reindeer's Bells (3:25)
-03. Smooth Jazz Sax Instrumentals - Peace on Earth (3:23)
-04. Jazz Sax Lounge Collection - Under a Tree (3:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187CC206691BCE2B24348B89E33108DBB07B95D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686575   (126232) от 24.12.2023
-
-Vibe Brothers Band - Everyday (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vibe Brothers (3:20)
-02. Come On (5:55)
-03. Bad Love (4:12)
-04. Find You (4:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:281356F1A5F3C5FACBB9FD5CD49DC516BA6BD758
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686843   (126224) от 24.12.2023
-
-Freya Ridings - Blood Orange (Live at Apollo) (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Introduction (Live at Apollo)
-02 – Dancing In A Hurricane (Live at Apollo)
-03 – Weekends (Live at Apollo)
-04 – Bite Me (Live at Apollo)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:57:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBF90C16D41FCC5668921C1DBB04CE941345DF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686907   (126218) от 24.12.2023
-
-Neil Levin - Cosmic Blues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Worthwhile (4:04)
-02. Gone Away Prelude (0:19)
-03. Gone Away (2:45)
-04. Roses On The Grave (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3949B28361FFC4C98E7C6C278DAF658E5146000
 ```
 
 https://mybot314.ru/tekegram_catalog/

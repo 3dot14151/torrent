@@ -266,7 +266,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761282.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_761282.jpg" />
 </div>
 
 
@@ -607,7 +607,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Native *Nix Games
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663756.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_663756.jpg" />
 </div>
 
 

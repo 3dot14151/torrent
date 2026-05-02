@@ -1,3 +1,206 @@
+###  Публикация: 1159747   (482107) от 21.08.2017
+
+Devakant - Earth And Sky (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night In The Mountains
+02. Standing Rock
+03. Nature Spirits
+04. Homage To The Whales(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:59:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9A6FAB74557F8BE962D39B8D76E02179AD05D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159749   (481864) от 21.08.2017
+
+Paul Mauriat - Penelope & Holidays (1972, 1973) Remastered 2017, Vocalion [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Penelope
+01. Penelope (L'eternel Retour)
+02. Melancholy Man
+03. La Bikina(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:10:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE66B9E5503B93FAE798E8315D9CEEE57630CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159842   (481859) от 21.08.2017
+
+Terry Oldfield - Temple Moon (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481859.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Terry Oldfield - Mangalam (7:27)
+2. Terry Oldfield - Guru Stotra (9:00)
+3. Terry Oldfield - Sri Ram Jaya Ram (5:56)
+4. Terry Oldfield - Hallelujah Gate Gate (7:29)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C5AE3AC37FA69BD63ECD644BE7CEDDF867D9D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938404   (481829) от 18.09.2015
+
+Brian Crain - Impressions from Paris to Prague (2015) [MP3|320 кб/с]<Piano, Instrumental, New Age, Neoclassical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris Lights
+02. Midnight Rain in Venice
+03. Light Hearts
+04. Reflections in the Windows(   Читать дальше...   )Жанр: Piano, Instrumental, New Age, NeoclassicalПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19839CE9996199C231D30D5C897B938490A27BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244494   (481695) от 01.09.2018
+
+Yoshio Kimura & Hidehiko Matsumoto - Uta No Nai Ryukoka 150 (1969-1971) (2014) 6CD Box Set [FLAC|Lossless|image + .cue] <Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1:
+01. 港町ブルース / Minatomachi Blues
+02. 夜明けのスキャット / Yoake No Scat
+03. ブルー・ライト・ヨコハマ / Blue Light Yokohama(   Читать дальше...   )Жанр: Easy Listening, Instrumental |Продолжительность: 07:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61197293EFB895ED566C9C74CE83DF470FFE94FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938458   (481605) от 18.09.2015
+
+Blackmore's Night - All Our Yesterdays (2015) [FLAC|Lossless|WEB-DL]<Folk Rock, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Our Yesterdays
+02. Allan Yn n Fan
+03. Darker Shade of Black
+04. Long Long Time(   Читать дальше...   )Жанр: Folk Rock, CelticПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DECFE265080D9AE7D3D3796C024F01EEB82DAEA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056217   (481109) от 25.09.2016
+
+Enigma - Love Sensuality Devotion: Greatest Hits & Remixes (2001) 2016 Remastered, 2CD [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Around (Northern Lights Club Mix)
+02. Age Of Loneliness (Enigmatic Club Mix)
+03. Push The Limits (ATB Remix)
+04. Gravity Of Love (Judgement Day Club Mix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:14:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60DCA6B0CEC8FEF08D16919F0290531805E01B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 545932   (480451) от 12.09.2012
 
 VA - Веселої забави! ч.2 (2011) [MP3|256 кб/с]<Folk-Pop>
@@ -556,209 +759,6 @@ Art Of Noise - The Best Of The Art Of Noise - The Art Of Love (1992) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A299B01B2345E24D15B4CE47DD771CAAD973D2E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 319910   (475882) от 01.08.2022
-
-Запрещенный прием (расширенный) - Sucker Punch (2011) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Official soundtrack:
-
-01. Emily Browning - Sweet Dreams (are made of this) (05:19)
-02. Björk feat. Skunk Anansie - Army Of Me (Sucker Punch Remix) (06:51)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8FE9868030C705BFDDEAA2CC2AEFEF2263DB58E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245066   (475788) от 04.09.2018
-
-VA - Diamond Best Mood Tenor Sax Best (2CD)(2006) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening,Sax>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaoru Akimoto - Harlem Nocturne
-02. Kaoru Akimoto - Ronriwan
-03. Kaoru Akimoto - Mona Lisa
-04. Kaoru Akimoto - Stardust(   Читать дальше...   )Жанр: Instrumental, Easy listening,SaxПродолжительность: 01:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79C63406474FFE62FDFB41E6D3369C9387778BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320106   (475071) от 16.08.2019
-
-Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475071.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Aqua Opening
-2. Aqua Balalaika
-3. Aqua Icebergs
-4. Aqua Waves(   Читать дальше...   )Жанр: OST, Cello MetalПродолжительность: 00:24:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26E50B71718450F629F2F195EF9C59E01C3B10FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406562   (474910) от 03.09.2020
-
-Christopher Phillips - Piano Chill: Songs of Simon & Garfunkel (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. America (3:31)
- 02. The Sound of Silence (3:24)
- 03. Mrs. Robinson (3:29)
- 04. El Condor Pasa (If I Could) (3:18)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:39:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:831D42D346AE54B989C22E09B3303BE2F1B3CCC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566577   (474325) от 02.08.2022
-
-Marina Raye and Olabayo - Drumming into Paradise (2000) [FLAC|Lossless|tracks + .cue] <Native American>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gateway to Paradise
-02. Rim of the World
-03. The Circle Within
-04. Ejiogbe Revealed(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 01:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7718C81B3B4FCD52A9F83CE65D9D008A460BBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701625   (474277) от 19.09.2013
-
-Jean Michel Jarre - Equinoxe (1978) Remaster, 1983, Polydor [FLAC|Lossless|image + .cue] <Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Equinoxe Part 1 (2:26)
-02. Equinoxe Part 2 (5:00)
-03. Equinoxe Part 3 (5:10)
-04. Equinoxe Part 4 (6:59)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82163399DE3FD901D9F41769D0CC1E1518636DFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 701718   (473930) от 19.09.2013
-
-The BBC Concert Orchestra - Cinema Silver Screen Classic (2012) [FLAC|Lossless]<Instrumental, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francis Lai: Love Story  [06:12]
-02. Georges Auric: Moulin Rouge  [02:28]
-03. Charles Chaplin: Limelight  [03:01]
-04. Max Steiner: A Summer Place  [03:03](   Читать дальше...   )Жанр: Instrumental, ScoreПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEFDED7411F4489E857DBF32CFEC538AE0346C17
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 936863   (491574) от 13.09.2015
+
+Проекты - VideoHive - Tape It Old Burned Photo Look [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491574.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект (видео, фото, текст, презентация), сделанный в After Effects CS4. Этот замечательный проект можно использовать для различного применения.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1518C356E0C8021E5224958E165FAFE32C361F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158099   (491524) от 16.08.2017
 
 Проекты - VideoHive - Relax Brush Slideshow - 20258979 [AEP]
@@ -654,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D31FC00153F181F8144AC39264798D76D659684
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055948   (482970) от 24.09.2016
-
-Проекты - VideoHive - VR 360 Photo Gallery [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482970.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слайд-шоу в 360 градусов для просмотра в очках или шлеме виртуальной реальности (Oculus rift, Gear VR).Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FDFA1408CDFDE349490B8544B7280B601400BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

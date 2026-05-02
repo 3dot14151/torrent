@@ -1,3 +1,61 @@
+###  Публикация: 1290839   (674182) от 22.03.2019
+
+VA - Hardstyle Music For Sports (2019) [MP3|256 Kbps] <Hardstyle, Dance, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674182.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andу Thе Cоrе - Itаliаn Psусhо
+002. Aksуs - Nо Esсаре
+003. Dj Dеll & Sсоtt Brоwn - Aсid Anthеm
+004. F.Nоizе Vs Anhаtеmа - Gеt Dоwn(   Читать дальше...   )Жанр: Hardstyle, Dance, ElectroПродолжительность: 09 :55 :21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA43627136E21A1E4636EAF5F4D55599E5F4495
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030519   (673924) от 30.06.2016
+
+VA - Hits of My Soul Vol. 03 (2016) [MP3|320 кб/с]<House, Electronic, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Lambert - Ghost Town (Original Mix) (03:29)
+02. Vinai feat. Harrison - The Wave (Original Mix) (03:27)
+03. Moguai - Kixs (Original Mix) (05:38)
+04. Mike Posner - I Took A Pill In Ibiza (Seeb Extended Edit) (04:00)(   Читать дальше...   )Жанр: House, Electronic, Pop, DanceПродолжительность: 03:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCEA83D38F845C73943ACA2971CD89779240BB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1136680   (673238) от 23.05.2017
 
 VA - Dangerous Dance Vol 2 (2017) [MP3|320 Kbps] <Funky, Tech House, Minimal>
@@ -693,64 +751,6 @@ VA - Сегодня на радио хиты FM Vol.5 (2019) [MP3|256 Kbps] <Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:397DCE8B5022E166BFA34DF6CBF993759EF60584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030845   (670478) от 02.07.2016
-
-VA - Loungers 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flashbaxx - Ampurdan (06:36)
-02. Ingo Herrmann - Mojito (03:55)
-03. Kulyela - Uprising (04:56)
-04. JetTricks - Atama's Ocean (04:04)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD8D5E64C01B0C7DC92FDFDDFB856FE7CE57A70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031060   (670471) от 02.07.2016
-
-VA - Chill out Summer Sounds (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stars Over Foy - Until We Meet Again in Heaven - Vechigen Alternative Chillout Remix
-02. The Rex-Factor - Dog Ate My Shoe - Chill Mix
-03. Dr. J. James - Mind Peace - Healing Nature Mix
-04. Jamie Duvel - Gift of Magic(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:52:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:180FAE8609498683B704E64AC4B5C2C6A7F6420C
 ```
 
 https://mybot314.ru/tekegram_catalog/

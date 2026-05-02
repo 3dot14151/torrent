@@ -1,3 +1,31 @@
+###  Публикация: 1030772   (672412) от 01.07.2016
+
+Phon.O - Fractions EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run (06:31)
+02. Brooklyn Shuffle (05:03)
+03. Fractions (06:19)Жанр: Techno, HouseПродолжительность: 00:17:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F31565237194182AEDC692D5EEF3221FA8C757B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291076   (672326) от 23.03.2019
 
 VA - Cafe del Mar ChillWave 3 (2019) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chillout, Downtempo, Electronic>
@@ -710,35 +738,6 @@ Alesso - Forever (2015) Deluxe Edition [FLAC|Lossless|WEB-DL]<Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8757430E4EE93AB3448F350D40657B9C4668B7F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139799   (659289) от 03.06.2017
-
-Adam Jay - Maxia Zeta (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro, IDM, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maxia Zeta (06:17)
-02. Distant Origin (06:41)
-03. Dynaform (06:46)
-04. Locating The Ecosphere (05:51)(   Читать дальше...   )Жанр: Electro, IDM, TechnoПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768D7BE3838A5C145F8F016286656DC2074F03DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

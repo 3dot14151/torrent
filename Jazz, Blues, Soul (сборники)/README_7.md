@@ -1,3 +1,32 @@
+###  Публикация: 1118812   (811223) от 26.03.2017
+
+VA - Road Blues: Soul Collection (2017) 2CD [MP3|256-320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeff Beck - Scared For The Children 06:07
+02. Beth Hart - Woman You've Been Dreaming Of 04:25
+03. Larry Miller - Black Oak Arkansas Hangman 04:12
+04. Ray Fuller And The Bluesrockers - Long Black Train 02:59(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 11:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:373935DBC2E25F2E1802B644E0EE7AEFAA1B7D7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119255   (808903) от 27.03.2017
 
 VA - Blues Collection 7 (2017) [MP3|320 Kbps] <Blues Rock. Blues>
@@ -717,35 +746,6 @@ VA - Blues Collection (Winter) (2018) [MP3|320 Kbps] <Blues. Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDE20B1F9012E65AB6327F2E4AA47E641CA25503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276312   (788549) от 15.01.2019
-
-VA - Empire Records - Bar (2019) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Lee Hooker - You Know I Love You
-02. Greyhounds - Late Night Slice
-03. Jerimiah Marques And The Blue Aces - What Will Lucy Do
-04. Harbor Drive Hookup - Summer Heat(   Читать дальше...   )Жанр: BluesПродолжительность: 02:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B82793454380402B2666D59CAB96BA74648C1B74
 ```
 
 https://mybot314.ru/tekegram_catalog/

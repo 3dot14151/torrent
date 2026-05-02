@@ -1,3 +1,87 @@
+###  Публикация: 628083   (937999) от 09.03.2013
+
+CentOS 6.4 [i386] (2xDVD+2xCD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел CentOS 6.4 (англ. Community ENTerprise Operating System) - дистрибутив Linux, основанный на коммерческом Red Hat Enterprise Linux компании Red Hat и совместимый с ним.
+
+Red Hat Enterprise Linux состоит из свободного ПО с открытым кодом, но доступен в виде дисков с бинарными пакетами только для платных подписчиков. Как требуется в лицензии GPL и других, Red Hat предоставляет все исходные коды. Разработчики CentOS используют данный исходный код для создания окончательного продукта, очень близкого к Red Hat Enterprise Linux и доступного для скачивания.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 628087   (937858) от 09.03.2013
+
+CentOS 6.4 [x86-64] (2xDVD+2xCD)
+
+>>Linux, Unix и другие ОС
+>>ОС Linux
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937858.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел CentOS 6.4 (англ. Community ENTerprise Operating System) - дистрибутив Linux, основанный на коммерческом Red Hat Enterprise Linux компании Red Hat и совместимый с ним.  Изменено содержимое 31 пакета, среди которых: anaconda, firefox, gnome-desktop, httpd, initscripts, kde-settings, kernel, ntp, openssl098e, plymouth, thunderbird, xulrunner и yum; Удалено 25 пакетов, среди которых: libehca, libservicelog, lsvpd, libvpd, openssl-ibmca, powerpc-utils, ppc64-diag, ppc64-utils, python-rhsm, redhat-*, rhn-*, servicelog, s390utils, yaboot, yum-rhn-plugin.
+
+Red Hat Enterprise Linux состоит из свободного ПО с открытым кодом, но доступен в виде дисков с бинарными пакетами только для платных подписчиков. Как требуется в лицензии GPL и других, Red Hat предоставляет все исходные коды. Разработчики CentOS используют данный исходный код для создания окончательного продукта, очень близкого к Red Hat Enterprise Linux и доступного для скачивания.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985747   (932177) от 13.02.2016
+
+Dynamic A-D Ports for Applications [Авторский релиз] 1.0 [x86, x64]
+
+>>Linux, Unix и другие ОС
+>>*Nix. Программы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dynamic A-D Ports for Applications - addon for gufw - ufw (DAD Ports for App); License: GNU GPL version 3; Creator: Ragnor; E-Mail: Ragnor369@mail.ru
+
+Программа является дополнением для фаервола Gufw-ufw. Она предназначена для автоматического управления соединениями в зависимости от используемых программ, которые определены для этих соединений. Если программа включается, (   Читать дальше...   )Язык интерфейса: без GUI (описание на русском языке)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2689B0F37340DF5793ECE1D419003DE211AF64C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1093981   (932114) от 16.01.2017
 
 Debian GNU/Linux 8.7.0 Jessie [x86-64] 3xDVD
@@ -602,85 +686,6 @@ Xubuntu — дистрибутив Linux, основанный на проект
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:306049D0D4935D2D82662C0E5960C84357A48C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366655   (920070) от 13.03.2020
-
-Ctlos Linux Openbox 1.2.0 [x86-64] 1xDVD
-
->>Linux, Unix и другие ОС
->>Сборки ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920070.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ctlos Linux — базируется на Arch Linux, iso образ собран с помощью archiso скриптов, полностью совместим с Arch Linux, в работе используются оригинальные репозитории, в том числе и Aur.
-Включана поддержка Aur репозитория: пакетный менеджер yay, это говорит о том, что проблем с поиском ПО быть не должно.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9D45FFFC78D6DC32E7AFC78CA2A0519CBEBB7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490373   (918633) от 20.08.2021
-
-EuroLinux 8.4 [совместим с Red Hat Enterprise Linux] [amd64] 2xDVD
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918633.jpg" />
-</div>
-
-
-###  Подробнее
-
-Состоялся релиз дистрибутива EuroLinux 8.4, подготовленного путём пересборки исходных текстов пакетов дистрибутива Red Hat Enterprise Linux 8.4 и полностью бинарно совместимого с ним. Для загрузки подготовлены установочные образы, размером 9.7 ГБ (appstream) и 1.4 ГБ. Дистрибутив в том числе может использоваться для замены ветки CentOS 8, сопровождение которой будет (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF542AD21C10EF5F4CC89A2E53AEA0394DD75CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490456   (918496) от 20.08.2021
-
-BlackArch Linux 2021.09.01 [Хакинг, аудит, безопасность] [x86_x64] 3xDVD + 1xOVA
-
->>Linux, Unix и другие ОС
->>ОС Linux
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опубликованы новые сборки BlackArch Linux, специализированного дистрибутива для исследований в области безопасности и изучения защищённости систем. Дистрибутив построен на пакетной базе Arch Linux и включает около 2700 связанных с безопасностью утилит. Поддерживаемый проектом репозиторий пакетов совместим с Arch Linux и может использоваться в обычных установках Arch (   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:539FDD69A760DA1EDB69BFCCD35841306B85EC69
 ```
 
 https://mybot314.ru/tekegram_catalog/

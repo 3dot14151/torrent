@@ -1,3 +1,61 @@
+###  Публикация: 980049   (957471) от 28.01.2016
+
+Teddy Charles And His Sextet - Salute To Hamp (1958) Remaster, 2014, Solid Records[FLAC|tracks+.cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Air Mail Special [05:13]
+ 02.Midnight Sun [02:44]
+ 03.On The Sunny Side Of The Street [02:27]
+ 04.He's Gone Again [02:22](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B050D004D0663948FD64AEA8A500A31648416A74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980232   (957469) от 28.01.2016
+
+Clark Terry - Clark Terry 1955 (1997) [FLAC|tracks+.cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Swahili [06:10]
+ 02.Double Play [03:40]
+ 03.Slow Boat [04:31]
+ 04.Co-op [03:50](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED867BB3132548BFC090D03CB9C742611416D9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 980053   (957465) от 28.01.2016
 
 Dave McKenna - My Friend The Piano (1986) 1990, Concord[FLAC|tracks+.cue] <Mainstream Jazz, Piano Jazz>
@@ -684,64 +742,6 @@ Paul Smith - Brazilian Detour (1966) Remaster, 2013, Warner [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F381A3D6B8B7A95575A4E91A043F1E64A7FD98D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089753   (950789) от 04.01.2017
-
-Chico Hamilton Trio - Introducing Freddie Gambrell (1958) Remaster, 1991, Toshiba[FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lullaby Of The Leaves [05:42]
- 02.Reservation Blues [04:56]
- 03.These Foolish Things [04:09]
- 04.Ex-Ray's Friends [04:11](   Читать дальше...   )Жанр: West Coast Jazz, Cool, Piano JazzПродолжительность: 00:46:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936235B397324A2ACB1643C0D99AB2B957E6752C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089234   (950788) от 04.01.2017
-
-Woody Herman - Memorial: The 40th Anniversary Carnegie Hall Concert (1988) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950788.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Introdcution
-2. Woody's Theme (Blue Flame) And Acknowledgements
-3. Apple Honey
-4. Sweet And Lovely(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B5A23A41B767B42221D7A0F072C74A918505573
 ```
 
 https://mybot314.ru/tekegram_catalog/

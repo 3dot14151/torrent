@@ -1,3 +1,177 @@
+###  Публикация: 1753891   (41198) от 07.10.2024
+
+Вячеслав Добрынин - Три Альбома (1981-1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Pop Rock, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41198.jpg" />
+</div>
+
+
+###  Подробнее
+
+00:38:44
+
+A1. Вячеслав Добрынин - Синий Туман
+A2  Валентина Легкоступова - Капля В Море(   Читать дальше...   )Жанр: Pop, Pop Rock, DiscoПродолжительность: 01:52:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76863F6018B4B30CCD5C9186C5077AFF96E7BDB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753992   (41178) от 07.10.2024
+
+Coldplay - Moon Music (Full Moon Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41178.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1:
+01 - MOON MUSiC [4:37]
+02 - feelslikeimfallinginlove [3:57]
+03 - WE PRAY [3:54](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:19:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E7DA3B618BC8F621E193B3807E684CAEB3BC64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753879   (41152) от 07.10.2024
+
+Soror Dolorosa - Mond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Goth Rock, Post Punk, Post Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tear It Up (3:35)
+02. You're Giving Me (5:40)
+03. Red Love (7:17)
+04. Souls Collide (5:24)(   Читать дальше...   )Жанр: Goth Rock, Post Punk, Post WaveПродолжительность: 00:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8574A7F9D14921CE229E4EBCAA79022A460FE869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672010   (40998) от 01.10.2025
+
+Bal-Sagoth - Studio Albums (6 releases) (1995-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Epic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40998.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bal-Sagoth — английская группа, играющая в жанре симфонический блэк-метал, существующая с 1993 года. Как представитель эпик-метала, Bal-Sagoth тяготеют к крупным эпическим формам, создавая сюжетные концептуальные альбомы в жанре фэнтэзи.1995 - A Black Moon Broods over Lemuria
+1996 - Starfire Burning Upon The Ice-Veiled Throne Of Ultima Thule
+1997 - Battle Magic
+1999 - The Power CosmicЖанр: Symphonic/Epic Black MetalПродолжительность: 05:17:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C8936449B0F7493FC1146813EAB6EE5EFE99884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592127   (40997) от 01.10.2025
+
+Drowning Pool - Studio Albums (7 releases) (2001-2025) hand made [restored, declipped] [FLAC|44.1/16|tracks +.cue] <Post-Grunge, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40997.jpg" />
+</div>
+
+
+###  Подробнее
+
+Drowning Pool — американская рок-группа из Далласа (Техас). Образована в 1996 году.2001 - Sinner
+2004 - Desensitized
+2007 - Full Circle
+2010 - Drowning PoolЖанр: Post-Grunge, Nu MetalПродолжительность: 06:28:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4678C39DE13D135B7F6D5CC8E578198CFC092F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754237   (40876) от 09.10.2024
+
+Steve Roach - One Day of Forever (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Ambient, Drone>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Roach - All I Know (19:26)
+02. Steve Roach - Slow Emotion (19:15)
+03. Steve Roach - In Twilight's Shadow (12:33)
+04. Steve Roach, Linda Kohanov - One Day (9:14)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 01:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F45EE357D558C8B9CA4AD944216D119E307BA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754251   (40875) от 09.10.2024
 
 Juke Joint, The Everblades - Can’t Slow Me (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -568,180 +742,6 @@ Duran Duran - Danse Macabre (2023) Deluxe Edition, 2024, BMG [FLAC 24/96|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C77009811FD26D3C406A7492CEF88835212663B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695340   (40673) от 11.10.2024
-
-Ad Infinitum - Studio Albums (5 releases) (2020-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ad Infinitum — швейцарско-немецкая симфо-метал группа. Первоначально это был сольный проект швейцарской певицы Мелиссы Бонни, который преобразовался в полноценную группу с приходом барабанщика Никласа Мюллера, басиста Йонаса Асплинда и гитариста Адриана Тесенвитца.2020 - Chapter I: Monarchy
-2020 - Chapter I: Revisited
-2021 - Chapter II: Legacy
-2023 - Chapter III: DownFall(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 03:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5BB6ED316B3FCDC8FC10C3C88A10E24A298DA49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755305   (40392) от 14.10.2024
-
-Океан Ельзи (Okean Elzy) - Lighthouse (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voices Are Rising [00:03:13]
-02. Lighthouse (feat. John Rzeznik) [00:03:15]
-03. Might Have Been a Dream [00:03:16]
-04. Love on Fire [00:03:39](   Читать дальше...   )Жанр: RockПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D25D389D0E2E0978A7822AC141F2238F67E27F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755320   (40389) от 14.10.2024
-
-October London - October Nights (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slander My Name [00:02:43]
-02. Touch on Me [00:03:10]
-03. A Beautiful Woman [00:03:24]
-04. 3rd Shift [00:02:46](   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 00:53:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CC8422696C367B89F59E48F88360CBE55DD66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755094   (40382) от 14.10.2024
-
-Marina Viotti / Fred Chappuis / Vincent Flückiger - Melankhôlia: In Darkness Through The Light (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical, Vocal Music (Secular and Sacred),  ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude [00:01:45]
-02. Mourn, Mourn, Day is with Darkness Fled [00:00:55]
-03. Stay Time a While Thy Flying (Version for Voice, Archlute and Electric Guitar) [00:02:48]
-04. Old Man [00:03:23](   Читать дальше...   )Жанр: Classical, Vocal Music (Secular and Sacred), Vocal RecitalsПродолжительность: 00:58:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCFACB03D3DF017E1605904266E5330F398A0321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580496   (40372) от 14.10.2024
-
-Death Angel - Studio Albums (11 releases) (1987-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40372.jpg" />
-</div>
-
-
-###  Подробнее
-
-Death Angel — филиппино-американская трэш-метал-группа из города Конкорд, штат Калифорния, образованная в 1982 году.1987 - The Ultra-Violence
-1988 - Frolic Through The Park
-1990 - Act III
-2004 - The Art Of DyingЖанр: Thrash MetalПродолжительность: 08:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1738461AB73FF03163965EB876B1CA5658BE31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755123   (40370) от 14.10.2024
-
-Andrea Bignasca - Stranger (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Song (3:58)
-02. Stranger (4:00)
-03. Together Whatever (4:43)
-04. Only Love (4:14)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DA99BE29E0C72D9822755009398009DD22AE693
 ```
 
 https://mybot314.ru/tekegram_catalog/

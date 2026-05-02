@@ -1,3 +1,119 @@
+###  Публикация: 1340114   (264278) от 22.11.2019
+
+Ten - 21 Альбом Collection (1996-2018) 23 CD  [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264278.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1996 - Ten (X)
+1996 - The Name Of The Rose
+1997 - The Robe(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 22:02:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EB155A80282EBD8D31A6517E2B65FD50CEFE13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340375   (264021) от 23.11.2019
+
+Theocracy - 3 Альбома Collection (2003-2011) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264021.jpg" />
+</div>
+
+
+###  Подробнее
+
+Theocracy начал свою жизнь как проект одного музыканта – Мэтта Смита (Matt Smith), который сыграл все партии на дебютном альбоме, вышедшем в конце 2003 года на MetalAges Records. Альбом получил фантастические отзывы и признание по всему миру среди металлистов.
+После выхода альбома к проекту присоединились барабанщик Shawn Benson и гитарист Jon Hinds, и в этом составе (   Читать дальше...   )Список альбомов:
+2003 - Theocracy (Remix 2013)
+2008 - Mirror of Souls (Deluxe Edition 2011)
+2011 - As The World Bleeds  (Japanese Edition 2012)Жанр: Progressive Power MetalПродолжительность: 03:33:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A0FD68572BB67856DE9D889B41328AC7069657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340240   (264020) от 23.11.2019
+
+Platitude - Discography  3 альбома (2003-2005) [FLAC|Lossless|image + .cue] <Melodic Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264020.jpg" />
+</div>
+
+
+###  Подробнее
+
+Основанные в далеком 1995, шведы PLATITUDE приступили к записи своего дебютного альбома “Secrets Of Life” только в августе 2002. Процесс происходил под руководством продюсера Tommy Hansen в его вcемирно известной Jailhouse Studios. Японская версия альбома вышла в феврале 2003 и в последующие несколько месяцев на группу буквально обрушились позитивные отзывы и рецензии (   Читать дальше...   )Список альбомов:
+2003 - Secrets Of Life
+2004 - Nine
+2005 - Silence SpeaksЖанр: Melodic Progressive Power MetalПродолжительность: 02:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E74A9EED6295BA31FBEB86F60E61DD740EEA0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340521   (263627) от 24.11.2019
+
+Fools Faith - 2 Альбома Collection (2007-2011) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263627.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2007 - Undone
+2011 - Sinister FЖанр: Melodic Heavy MetalПродолжительность: 01:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC3ED4364D32E787A3BB33DE1309928C1DC5CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340515   (263623) от 24.11.2019
 
 Winterborn - 2 Альбома Collection (2006-2008) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
@@ -646,128 +762,6 @@ Alcatrazz - легендарная рок-группа, сольный прое�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:914036C197E3B2A88639C4D51257D56BE612E759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 397912   (251907) от 31.05.2023
-
-The Answer - 8 альбомов (2006 - 2023) 13 CD [FLAC|Lossless|tracks + .cue, image + .cue]<Hard Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251907.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Answer — североирландская рок-группа, образовавшаяся в 2000 году в Ньюкасле и Даунпатрике, Даун, Северная Ирландия, и исполняющая тяжелый блюз-рок и хард-рок с элементами хэви метал (согласно Allmusic - коллаж влияний Led Zeppelin, AC/DC, Free, Thin Lizzy). В начале 2008 года The Answer начали продолжительные гастроли с AC/DC, в результате которых, кстати, получился (   Читать дальше...   )Список альбомов:
-2007 - Rise: Special Edition
-2009 - Everyday Demons
-2011 - 412 Days Of Rock'n'Roll(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 11:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DBAB69F9A59685D1B3E10776B55F06EA5934133
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1835664   (251704) от 07.11.2025
-
-Alcatrazz - Prior Convictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Transylvanian Requiem (02:19)
- 02 - Stand And Wait Your Turn (05:48)
- 03 - Jet To Jet (04:22)
- 04 - Starr Carr Lane (03:52)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85102222026138C372841B025EEDBE2356DE16D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 494624   (251159) от 11.05.2012
-
-Europe - Bag Of Bones (2012) Japan edition [FLAC (tracks+cue)|Lossless]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riches To Rags
-02. Not Supposed To Sing The Blues
-03. Firebox
-04. Bag Of Bones
-05. Requiem
-06. My Woman My Friend
-07. Demon Head
-08. Drink And A Smile
-09. Doghouse
-10. Mercy You Mercy Me(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1834711   (250503) от 05.11.2025
-
-Scorpions - From The First Sting (2025) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250503.jpg" />
-</div>
-
-
-###  Подробнее
-
-В честь своего шестидесятилетия легенды немецкого хард-рока SCORPIONS выпустили From The First Sting - захватывающий сборник, демонстрирующий неистощимую энергию, незабываемые гимны и знаковые моменты их славной карьеры. На протяжении всей своей карьеры SCORPIONS рассматривали свою музыку как мост между культурами. Они выступали в странах бывшего Советского Союза, (   Читать дальше...   )01. In Search of the Peace of Mind (4:58)
-02. This Is My Song (Live) (4:08)
-03. Speedy's Coming (3:34)
-04. In Trance (4:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE5EEE3B0659943DE2131D0A43CA552FC85A681
 ```
 
 https://mybot314.ru/tekegram_catalog/

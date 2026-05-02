@@ -1,3 +1,61 @@
+###  Публикация: 913460   (600995) от 30.06.2015
+
+Moby - Best275z (1992-2013) [MP3|320 кб/с]<Electronic, Downtempo, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go
+02. Electricity
+03. Bad Days.
+04. Sound(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 05:33:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:063A33547E6C383639A4E45A3C92558FFE102556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1149464   (600976) от 10.07.2017
+
+VA - Record Super Chart #494 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tiesto & Sevenn - Boom  3:03
+02.  Yellow Claw & Moksi feat. Jonna Fraser - Open  3:31
+03.  C-BooL - Never Go Away  3:49
+04.  Scooter - Bora! Bora! Bora!  4:00(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD82CE593F13FE1B651AC65E097A0E060818824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548153   (600140) от 02.05.2022
 
 VA - Beatport Chill Electronic: Sound Pack #515 (2022) [MP3|320 Kbps] <Chillout, Electronic, Relax>
@@ -687,70 +745,6 @@ VA - Deep House Collection Vol.176 (2018) [MP3|320 Kbps] <Deep House, Club House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35C189966DFA2254B892D9ABFAA1F6E604D16028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039538   (595945) от 01.08.2016
-
-VA - Best Hits Hot Eternal Sound (2016) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595945.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bad Boys Blue -  You're a Woman (Reloaded Album Version) 3:05
-002. DJ Smash & DJ Miller feat. Anya -  Angels (Radio Edit) 3:36
-003. Global Deejays & Frontload -  Get Up! (Radio Edit) 3:07
-004. Pullbaxx & C.R. Easy -  Waves of Time (Bigroom Edit) 3:54(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 12:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18074F3436D8B1F48BAF1B3EC9ABADBEDF011A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526687   (595929) от 25.07.2012
-
-VA - Soul of Ibiza Volume 40 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595929.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Neev Kennedy - The Unknown (DNS Project Extended)
-002. Mark Sixma feat. Amba Sheperd - Cupid`s Casualty (Original Mix)
-003. Mike Koglin feat. LCK - Varana (Original Mix)
-004. Omnia & IRA - The Fusion (Original Mix)
-005. Paul van Dyk feat. Austin Leeds - Verano (PvDs Full Fire Mix)
-006. Progressiver - Searching For The Truth (Original Mix)
-007. Rake feat. Natalie Griffiths - Expectation (Original Mix)
-008. Remy Le Duc, The EC Twins & Zen Freeman feat. Shakeh - In Motion (Original Mix)
-009. Ruben de Ronde & Aelyn - She's Already Gone Vocal Mix
-010. Sou Kanai - A Fragment Of The Memory (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:50:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E327BEAF1187B82FC7A8C222BC4920CFF8A49870
 ```
 
 https://mybot314.ru/tekegram_catalog/

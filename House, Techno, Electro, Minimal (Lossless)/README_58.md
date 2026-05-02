@@ -1,3 +1,29 @@
+###  Публикация: 1664478   (185448) от 26.09.2023
+
+Autograf - Affirmations (2023) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Melodic House & Techno, Dance, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185448.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, Progressive House, Melodic House & Techno, Dance, ElectronicПродолжительность: 2 CD, 01:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4673D521FABA45DDB62C24BBF066AF715BAD6A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663898   (184472) от 27.09.2023
 
 David Guetta - 7 (2018) 3CD, Anniversary Edition, 2023, Parlophone UK [FLAC|Lossless|WEB-DL|tracks] <Synth-pop, Deep House, Reggaeton>
@@ -702,35 +728,6 @@ Gui Boratto - Pentagram (2018) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:511386E27D28934D9BBA23799C784A61D6D08349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516192   (166845) от 10.12.2021
-
-VA - Armada Music 2022 (2021) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tinlicker, Helsloot - Because You Move Me (03:16)
-02. Kidnap, Leo Stannard - Moments (Ben Bohmer & Nils Hoffmann Remix) (04:10)
-03. Loud Luxury, Thutmose - Red Handed (02:51)
-04. Armin van Buuren, Davina Michelle - Hold On (03:28)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 03:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2B7585A722C47AE20EF12D115AAAC600103635D
 ```
 
 https://mybot314.ru/tekegram_catalog/

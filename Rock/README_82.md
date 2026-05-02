@@ -1,3 +1,32 @@
+###  Публикация: 1342992   (221065) от 04.12.2019
+
+BrainStorm - Sbornik, Vol.1 (2019) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221065.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ветер
+2. Контакты
+3. Выходные
+4. Thunder Without Rain(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:58:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02791F0884CBFC096A160F913C1B9B81E22F7CA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585497   (220811) от 23.10.2022
 
 Half Gramme of Soma - 3 Albums (2013-2022) [MP3|320 Kbps] <Stoner Rock>
@@ -720,35 +749,6 @@ Bon Jovi - Crush (2000) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99CAD945E3360C6FAC94257259876E3896D1D87C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586752   (215838) от 27.10.2022
-
-Bon Jovi - Have A Nice Day (2005) [OGG Vorbis|480 Kbps] <Rock, Hard Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have A Nice Day
-02. I Want To Be Loved
-03. Welcome To Wherever You Are
-04. Who Says You Can't Go Home(   Читать дальше...   )Жанр: Rock, Hard Rock, Pop RockПродолжительность: 00:53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C0B24EC73F7486C70E312889BB3A8280527E26
 ```
 
 https://mybot314.ru/tekegram_catalog/

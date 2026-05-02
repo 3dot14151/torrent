@@ -1,3 +1,119 @@
+###  Публикация: 1422583   (308572) от 09.11.2020
+
+VA - Pop Dance Exclusive Megamixes (2020) [MP3|320 Kbps] <Pop, Dance, Electropop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308572.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Millie Turner - Jungle
+002. Pouring - Burn
+003. The Disco Boys - Around The World
+004. Deborah Cox - Easy Way(   Читать дальше...   )Жанр: Pop, Dance, ElectropopПродолжительность: 08:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B148452DB1EC76D2C511F2DE0A21AECB24F9A377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422599   (308045) от 09.11.2020
+
+VA - New Disco Hits 2020 от DON Music (2020) [MP3|320 Kbps] <Italo Disco, Pop, Dance, Electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Savage - Every Second Of My Life
+02. Amadeus Angelus - One Step From Heaven
+03. Spatial Vox - Cause Of Shining In Your Eyes
+04. Bad Boys Blue - Killers(   Читать дальше...   )Жанр: Italo Disco, Pop, Dance, ElectronicПродолжительность: 05:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41B140403EB3A3BABCF47B18A1B0607C6F1FEFBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183645   (307784) от 14.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 022 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Третий Подъезд - Август ( 1991 )
+02. Амадеус - Маленькая Верочка ( 1991 )
+03. Горбашов Алексей - Твой Самолёт ( 1989 )
+04. Поп-Сервис ( Ольга Фаворская ) - Хрустальные Замки ( 1989 )(   Читать дальше...   )Жанр: PopПродолжительность: ~01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E684606F54BFCAE96E861D65CD2D09B4EF42CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960422   (307729) от 28.11.2015
+
+VA - Дискотека забытых хитов (зарубежная) - 19 (2015) [MP3|160 - 320 кб/с]<Pop, Disco, Italo Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Attack - Special Love (06:54)
+02. Righeira - Disco Volante (04:49)
+03. E.G.Daily - Love In The Shadows - Remix (08:46)
+04. Hot Cold - I Can Hear Your Voice (Vocal Version) (05:30)(   Читать дальше...   )Жанр: Pop, Disco, Italo DiscoПродолжительность: 04:07:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA189773E929F94612DD723DDC38B54FEC93980
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960394   (307724) от 28.11.2015
 
 VA - Жаркие осенние хиты (2015) [MP3|256 кб/с]<Pop>
@@ -629,122 +745,6 @@ VA - Отрывайся С Лучшими Хитами. Выпуск #3 (2016) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E6753E1EBD3071257B98841B5CDD6B0EA82AE3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184881   (297146) от 19.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 024 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MГК - Свечи ( 1997 )
-02. Первоуральск - Наташка ( 1990 )
-03. Новые Амазонки - Синий Лёд В Твоих Глазах ( Новая Версия 1990 )
-04. Ритм Любви - Леди С Именем Ночь ( 1989 )(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:269ADF1144A878CC4B945CE8FF2AE67DB6D6B1B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334263   (296655) от 28.10.2019
-
-Tom Jones - Classic Songs (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's A Lady
-02. Green Green Grass Of Home
-03. (Ghost) Riders In The Sky
-04. My Girl Maria(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:4501:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51D3E4D2E2AC8856C96D4AA09C70A79EC732DBD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962105   (296563) от 03.12.2015
-
-VA - Бомба года 2016 от Хит FM (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296563.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Дмитрий Колдун - Время
-002. Лена Катина - An Invitation
-003. Лион Feat. Тиана - Тишина
-004. Archi-M Feat. Timaro - Сколько Боли Во Мне(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD019306F2FCE94C3F3FC6956DEAA8E4BF68668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079187   (296240) от 03.12.2016
-
-VA - German Top 100 Single Charts 02.12. (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296240.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rag'n'Bone Man - Human 3:19
-002. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) 4:11
-003. The Weeknd - Starboy 3:51
-004. Mark Forster - Chore 3:28(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F030C6FF069104C232255119927A3B65B766927
 ```
 
 https://mybot314.ru/tekegram_catalog/

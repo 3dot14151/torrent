@@ -1,3 +1,61 @@
+###  Публикация: 930268   (516344) от 22.08.2015
+
+VA - Office Sounds – Chillout Edition (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillo – Let the Night Come (4:57)
+02. Roxano de Santiago – La Isla (5:55)
+03. Alice Shelton – Lost Fear (3:46)
+04. John Soultek – Whisper (3:52)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68742265430FE5273A2C61D0F81D5D7F7CFEF26F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 930174   (516314) от 22.08.2015
+
+VA - Cafe Chillout Music Club Bar Music (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_516314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belloq - De Longpre
+02. Jox Talay - Groove Theory
+03. Uncle Feaster - The Trafalgar
+04. Elton Ames - Beach House(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28E3A9EFDDBA27B1DFED6105D6E6A0F9782AC956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1242166   (516244) от 21.08.2018
 
 VA - House 100 August 2018 (6) (2018) [MP3|320 Kbps] <House>
@@ -696,68 +754,6 @@ VA - eXXXplicit chill (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32BDC5B38245994264696ECE853BB42AD479B52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536666   (511411) от 21.08.2012
-
-VA - Pumping Storm - 11 (Back to Underground) (2012) [MP3|320 кб/с]<Pumping House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511411.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Pumping Storm - 11 (Back to Underground) (2012)
-
-Год: 2012
-Жанр: Pumping House
-Продолжительность: 00:56:57Кодек: MP3 (Tracks)
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. XS Project vs. Konnekt - Ты такой  (Cocaine)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D27E37FE12DC304B8E32D305949278D5283F8BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931878   (511115) от 27.08.2015
-
-VA - Carnaval House (2015) [MP3|320 кб/с]<Progressive House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shashaf - Beat of Ganesh (4:56)
-02. Pasqual Merell - Night Start (5:53)
-03. Paul Schulleri - Induktion (Guevara Remix) (6:43)
-04. Dan & Hell - Venus (7:47)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 04:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8622BC0910E40EADDA286B1D7D7A1FC878B7461
 ```
 
 https://mybot314.ru/tekegram_catalog/

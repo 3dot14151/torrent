@@ -1,3 +1,61 @@
+###  Публикация: 1461797   (1021639) от 11.04.2021
+
+VA - Beatport Techno Electronic: Sound Pack #270 (2021) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тут нет места уютным диванам и прочим атрибутов ленивого отдыха, тут можно найти танцпол и быстрый мегаполис, движение и энергию! Под такую музыку хочется сесть в машину и колесить по пустынному городу!001. Anything Else - Obscure
+002. Tamsis - Shame
+003. Sven And Haris - I Like
+004. Nae-tek, Deeperwalk - Individuation(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 10:50:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339645FF8DBC9BE8D185706B961B64004A4BD78C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461791   (1021635) от 11.04.2021
+
+VA - Beatport Deep House: Sound Pack #272 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021635.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представляем Вам легкую и очень позитивную подборку танцевальных треков от Beatport 272-го релиза в стиле Deep House. Настроение мгновенно повышается, появляется что-то вроде эйфории и легкости. Очень мелодичные композиции, чем-то напоминающие творчество грантов EDM сцены из 2000 годов, однако с совершенно другой современной энергетикой.001. Enamour - Sleep Paralysis
+002. Charlie Hesen - Travelling Sound
+003. Dave Mayer - Chicago Jazz
+004. Beije - Exquiro(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A07B69BC3C0930B11B2A0CE852D793D090B853DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461871   (1021634) от 11.04.2021
 
 VA - Tech House: The Club Shock Party (2021) [MP3|320 Kbps] <Club, Tech House, Electro, Dance>
@@ -687,64 +745,6 @@ VA - Крутые пушки Весна 2 2021 [MP3|320 Kbps] <Club, Dance, Othe
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:966142C990B176D4DAF6010AC3579C1DB8C94789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465894   (1018829) от 28.04.2021
-
-VA - Specific techno Electronic (2021) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вашему вниманию релиз самых интересных треков в стиле техно электроники "Specific Techno Electronic". Хиты, которые будоражат сознание любителей электронной музыки уже ждут Вас!001. Art Frequency - Evolution
-002. Atilla The Hvn - Tasi Beni Cehenneme
-003. Watboman - Insomniac
-004. Dj Mell G - Work That Shit Out!(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 10:16:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:839F4FA249D214B88491076043E876AC052B7093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465871   (1018815) от 28.04.2021
-
-VA - Beatport Future House: Electro Sound Pack #278 (2021) [MP3|320 Kbps] <Electro, Tech House, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сегодня мы порадуем Вас отличным миксом в стиле Future House с подачи Beatport. Представленные треки пусть не всегда, но периодически достигают верхних позиций европейских радиостанций и чартов, да и просто знакомы широкой аудитории, для которой словосочетание "электронная музыка" — это не пустой звук!001. Elated - Absolute Zero
-002. Kenshi Kamaro - We Are Ready
-003. Hedowiec - Bedouin
-004. Rick Pier O’neil - Rebrox(   Читать дальше...   )Жанр: Electro, Tech House, Future HouseПродолжительность: 10:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0472F4896AAFC6573F54391354E0C77D7B52B09A
 ```
 
 https://mybot314.ru/tekegram_catalog/

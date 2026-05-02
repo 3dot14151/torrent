@@ -1,25 +1,23 @@
-###  Публикация: 1847558   (1054009) от 26.01.2026
+###  Публикация: 1852229   (1055625) от 06.02.2026
 
-Vayper - Матерные частушки (Алексей Иванов) (2026) [MP3|~190 Kbps (V2)] <Russian Folk Pop>
+Капитан Крюк / Hook (1991) UHD BDRip [H.265/1080p] [10-bit]
 
->>Other Styles
->>Folk
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055625.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Матерные частушки 01 (Алексей Иванов) MIX[00:02:47]
-02. Матерные частушки 02 (Алексей Иванов) MIX[00:02:41]
-03. Матерные частушки 03 (Алексей Иванов) MIX[00:03:25]
-04. Матерные частушки 04 (Алексей Иванов) MIX[00:04:22]Жанр: Russian Folk PopПродолжительность: 2 CD, 00:24:52
+Питер Пэн стал взрослым и перестал быть Питером Пэном. Теперь ему сорок лет, у него другое имя, семья и серьёзная работа. Не осталось и следа от чудесного ребенка, который когда-то умел летать... Но старые враги не забыли мальчика.
+Капитан с острым стальным крюком вместо руки снова бросает вызов своему противнику, похитив его детей. Питер отправляется вслед за ним (   Читать дальше...   )Производство: США / Amblin Entertainment, TriStar PicturesЖанр: фэнтези, комедия, приключения, семейныйРежиссер: Стивен СпилбергАктеры: Дастин Хоффман, Робин Уильямс, Джулия Робертс, Боб Хоскинс, Мэгги Смит, Кэролайн Гудолл, Чарли Корсмо, Эмбер Скотт, Гвинет Пэлтроу, Лорел КронинПеревод: дублированный официальный (Варус Видео), профессиональный многоголосый (Blu-Ray EUR, Супербит, Эй Би Видео, Первый канал), профессиональный двухголосый (REN-TV), авторский (Вартан Дохалов, Юрий Живов, Владимир Сонькин, Василий Горчаков)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:21:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64CFB9D31FDEC22FD9BE35B4C69183026A63BC8C
+magnet:?xt=urn:btih:96CF05F929F03A23E0A847BA2515A4E1238DC429
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,516 +25,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846965   (1054008) от 26.01.2026
+###  Публикация: 1852126   (1055624) от 06.02.2026
 
-Vayper - Dancing Music fo NY 2026 at Vayper@SWH (2025) [MP3|~190 Kbps (V2)] <Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 12 месяцев (SWH, Disco) [00:06:04]
-02. 12 месяцев (SWH, Folk Rock) [00:05:15]
-03. Анчар (А.C. Пушкин, Synth Rock) [00:04:48]
-04. Иди на свет (SWH, Synth Rock) [00:03:58](   Читать дальше...   )Жанр: Chanson, PopПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F93F4FBD3E9D465EA704174B0A24092835B9127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849589   (1054007) от 26.01.2026
-
-VA - Sounds of the 70s (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. December, 1963 (Oh What a Night!) - Frankie Valli & The Four Seasons  - (03:20)
- 02. Feel like Makin’ Love (2015 Remaster) - Bad Company  - (05:15)
- 03. Right down the Line - Gerry Rafferty  - (04:28)
- 04. Right Back Where We Started From - Maxine Nightingale  - (03:12)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D53F162B83AE056F00B1EF291D9CE8EEC380EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850084   (1054006) от 26.01.2026
-
-Chris Dent | Mastering PowerShell Scripting. Automate repetitive tasks and simplify complex administrative tasks using PowerShell. 5th Edition (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054006.jpg" />
-</div>
-
-
-###  Подробнее
-
-Master PowerShell to automate real-world administrative tasks, streamline workflows, and enhance security across Windows environments
-Book Description
-Mastering PowerShell Scripting, Fifth Edition, is your comprehensive guide to harnessing PowerShell’s full potential. This edition introduces new chapters on debugging, troubleshooting, and creating GUIs while covering (   Читать дальше...   )Жанр: Windows Server Guides, Windows Administration, Microsoft OS GuidesЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6CE36992E4CC39F52E6A6C36099FEC7F636F92C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850082   (1054005) от 26.01.2026
-
-Dan Gookin | Microsoft 365 Word For Dummies. 2nd Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Word, Microsoft's powerful and popular word processor, is capable of extraordinary things. From template building to fancy formatting and even AI-powered editing and proofing, your copy of Word stands ready to help you supercharge your productivity and save you time and energy. You just need to learn how it's done. And, thanks to this easy-to-understand book, learning (   Читать дальше...   )Жанр: Word Processing Books, Microsoft Word Guides, Software Suite BooksЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DB04A9B20D1F65B2A2FFD461BC3DD81E7A71ED2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850081   (1054004) от 26.01.2026
-
-George Mount | Modern Data Analytics in Excel. Using Power Query, Power Pivot, and More for Enhanced Data Analytics (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054004.jpg" />
-</div>
-
-
-###  Подробнее
-
-If you haven't modernized your data cleaning and reporting processes in Microsoft Excel, you're missing out on big productivity gains. And if you're looking to conduct rigorous data analysis, more can be done in Excel than you think. This practical book serves as an introduction to the modern Excel suite of features along with other powerful tools for analytics. (   Читать дальше...   )Жанр: Business Intelligence Tools, Data Mining, Spreadsheet BooksЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007DC5BD07B780EF5E52BEE3E00237FA27C042FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850080   (1054003) от 26.01.2026
-
-Dick Kusleika | Microsoft 365 Excel VBA Programming For Dummies. 7th Edition (2025) [PDF] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054003.jpg" />
-</div>
-
-
-###  Подробнее
-
-Your step-by-step guide to doing more with Microsoft Excel
-
-Fully updated for the latest version of Office 365, Excel VBA Programming For Dummies will take your Excel knowledge to the next level. With a little background in Visual Basic for Applications (VBA) programming, you can go well beyond basic spreadsheets and functions. Learn the coding basics and syntax (   Читать дальше...   )Жанр: Microsoft VBA, Microsoft Excel Guides, Spreadsheet BooksЯзык: АнглийскийИздательство: John Wiley & SonsФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A51AD5B2DAF550C7A976E8B8D2E5B255C598C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850076   (1054002) от 26.01.2026
-
-Хун Чжоу | Машинное обучение сквозь призму Excel. Примеры и упражнения (2025) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изучение датамайнинга на примерах и упражнениях в этой книге позволит вам заглянуть за кулисы сложных методов и научиться эффективно работать с данными. По мнению автора, постигать датамайнинг и модели анализа данных лучше всего на практике, выполняя действия одно за другим. В отличие от большинства специализированных инструментов, которые работают по принципу «черного (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: ДМК ПрессФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33BEF6E4441DB26AFC94ED5BD6FD4FC6D379F79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850075   (1054001) от 26.01.2026
-
-А. Колоколов, М. Зеленский, К. Королева и др. | Азбука визуализации Power BI (2024) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга будет полезна и тем, кто уже работает с Power BI, а также для всех, кто хочет
-повысить свою визуальную грамотность. Power BI остается самым легким в освоении и
-бесплатным BI-инструментом, и продолжает работать на территории РФ. А если хотите
-еще глубже освоить дизайн дашбордов, их интерактивные сценарии и(   Читать дальше...   )Жанр: Компьютерная литература, Бизнес-аналитикаИздательство: Институт Бизнес-АналитикиФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7073129E39D444E3EAEEAFCAD7AA5191FC5756CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850074   (1054000) от 26.01.2026
-
-Chris Minnick | Microsoft Copilot For Dummies (2025) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Straightforward guidance on the AI tool that's built into Windows, Microsoft 365, and more
-
-Microsoft is enhancing all its most widely used productivity software―including Windows and apps like Word and Excel―with the power of AI. And now you can learn to make the most of this revolutionary new tool with Microsoft Copilot For Dummies!
-(   Читать дальше...   )Жанр: Microsoft Office Guides, Software Suite Books, Natural Language ProcessingЯзык: АнглийскийИздательство: WileyФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9453630C4CFA3744036AC64A60DE3E4D0E3C36FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850073   (1053999) от 26.01.2026
-
-А.В. Погорелов | Аналитическая геометрия (2019) [PDF]
-
->>Научная и техническая литература
->>Учебники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Классический учебник по аналитической геометрии выдающегося ученого-математика с мировым именем А.В. Погорелова выдержал уже много изданий. За прошедший период книга совсем не устарела и остается лучшим и основным учебником. В предлагаемом курсе лекций излагаются основы метода аналитической геометрии в применении к простейшим геометрическим объектам. Учебник отличается (   Читать дальше...   )Жанр: МатематикаИздательство: Регулярная и хаотическая динамикаФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42CABC9CD9942C9E488BF4D789424CFE66A70A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850072   (1053998) от 26.01.2026
-
-И. Спира | Microsoft Excel и Word 2013. Учиться никогда не поздно (2014) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга посвящена новым версиям Microsoft Word и Excel 2013. Она предназначена для тех, кто хочет научиться работать в этих популярных многофункциональных программах. В ней нет сложных определений и заумных терминов. Большое количество иллюстраций делает процесс обучения максимально наглядным, а практические примеры значительно ускоряют освоение материала. Прочитав (   Читать дальше...   )Жанр: Компьютерная литература, Excel, WordИздательство: ПитерФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBB3CFD9A4F230DD56EFBD4FC39F86154C7E85B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850071   (1053997) от 26.01.2026
-
-В.Д. Кильдишов | MS Excel и VBA для моделирования различных задач. Практическое руководство (2023) [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Книга является практическим руководством по моделированию задач с использованием приложения MS Excel и VBA.
-Пособие предназначено для школьников, студентов и преподавателей, которые хотят быть знакомы с MS Excel и VBA «на Вы» и научиться моделированию, разработке моделей, алгоритмов и программ, а также приложений с формами.
-Прочитав эту книгу, Вы научитесь использовать (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: СОЛОН-ПрессФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C74CCFF62227E1A2370645EA04AA32DCF405F634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850070   (1053996) от 26.01.2026
-
-Jack McLarney | The Book of Batch Scripting. From Fundamentals to Advanced Automation (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053996.jpg" />
-</div>
-
-
-###  Подробнее
-
-In this era of advanced programming languages, the simplicity, universality, and efficiency of Batch scripting holds undeniable value.
-
-Whether you’re maintaining legacy systems or seeking to understand the foundations of command line automation, The Book of Batch Scripting shows you how to become proficient with this tool included in every version of Windows.
-(   Читать дальше...   )Жанр: Computer Network Administration, Microsoft Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: No Starch PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD51282399CFEF77457E97EA2316E57CA9110F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850067   (1053995) от 26.01.2026
-
-Jen Stirrup, Thomas J. Weinandy | Artificial Intelligence with Microsoft Power BI. Simpler AI for the Enterprise (2024) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Advance your Power BI skills by adding AI to your repertoire at a practice level. With this practical book, business-oriented software engineers and developers will learn the terminologies, practices, and strategy necessary to successfully incorporate AI into your business intelligence estate. Jen Stirrup, CEO of AI and BI leadership consultancy Data Relish, and (   Читать дальше...   )Жанр: Business Intelligence Tools, Data Processing, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D559D1F816E481CCD1CDDF4AC29FA81108A33224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850066   (1053994) от 26.01.2026
-
-Aaron Guilmette, Darryl Kegg, Ed Fisher | Microsoft 365 Administration Inside Out. 3rd Edition (2023) [PDF, EPUB] [EN]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Conquer Microsoft 365 administration, from the inside out!
-
-Dive into Microsoft 365 administration and harness the full power of cloud scaling, automation, and availability in Microsoft 365! This supremely well-organized reference packs hundreds of time-saving solutions, tips, and workarounds; all you need to continually enhance organizational agility, productivity, (   Читать дальше...   )Жанр: Client-Server Networking Systems, Software Suite Books, Microsoft Office GuidesЯзык: АнглийскийИздательство: Microsoft PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C39E63F0F0D36C48D5BE5216AC0C4CBBF76728AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850065   (1053993) от 26.01.2026
-
-В.С. Мхитарян, В.Ф. Шишов, А.Ю. Козлов | Анализ данных в MS Excel. Учебное пособие. Основные сведения о MS Excel. Статистические таблицы и графики. Статистические функции. Пакет анализа (анализ дан ...
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053993.jpg" />
-</div>
-
-
-###  Подробнее
-
-Учебное пособие содержит подробное описание «Статистических функций» и средств анализа данных (инструментов) «Пакета анализа», входящих в настоящее время в MS Excel. В пособии также изложены сведения по основам работы в Excel, представлению первичной статистической информации в виде статистических таблиц и графиков; рассмотрены теоретические основы статистических (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: КУРСФормат: PDFКачество: OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09A9A29D66C65CB169E09CE057FB2AF2260D4A9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850030   (1053992) от 26.01.2026
-
-Womanizer (2024) [Ru/Multi] (Build 20905236/dlc) Repack Let'sРlay [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Способен соблазнить любую девушку одним лишь взглядом, но перед ним стоит почти невыполнимая задача. Обаятельный сердцеед поспорил с лучшим другом, что в течение недели уложит в постель пятерых девушек из городской сборной по художественной гимнастике, недавно выигравшей национальные соревнования. Смогут ли звёздные спортсменки устоять перед опытным ловеласом?Тип издания: RepackРазработчик: kamtiЖанр: Приключeние, Визуальные новеллыЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BC04400B5CA5767F9F59506BB460F973F63C56E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850005   (1053991) от 26.01.2026
-
-Three Kingdoms Story: Conussia (2020) [Ru/Multi] (Build 17653291/dlc) Repack Let'sРlay [18+]
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053991.jpg" />
-</div>
-
-
-###  Подробнее
-
-"История трех королевств: Конуссия" - это история о Герое, оказавшемся втянутым в дворцовые интриги королевства Конуссия. Король пропал, Принцесса должна стать Королевой, но похоже этого не случится. Армия и маги уничтожены, жрецы и благородные претендуют на то, чтобы быть лучшими правителями, чем Принцесса. И все они в серьезной опасности, Силы тьмы непрерывно (   Читать дальше...   )Тип издания: RepackРазработчик: kamtiЖанр: Приключeние, Визуальные новеллыЯзык субтитров: Русский, Английский, Корейский, Японский и другиеЯзык интерфейса: Русский, Английский, Корейский, Японский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73519BF5798FF021FF2C27C9AC0007480A1231CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850055   (1053990) от 26.01.2026
-
-Максим Данилов | Одиночка (2025) [MP3, Роман Ефимов]
+Ян Бадевский | Инквизитор (Книга 1). Провидец (2024) [MP3, Роман Волков]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055624.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Олег - простой парень, любящий машины и красивую беззаботную жизнь. Закоренелый холостяк, циничный, эгоистичный и дерзкий торговый в одночасье теряет всё под безжалостным шквальным ракетным огнём. Очнувшись от переживаний в избушке на опушке глухого леса, парень пытается выжить, изменяя свои жизненные принципы. Получится ли у городского пижона выжить на просторах (   Читать дальше...   )Жанр: Боевая фантастика, ПостапокалипсисИздательство: Аудиокнига своими рукамиПродолжительность: 10:22:46
+Я – Гримаун. Великий волшебник, потомок богов, истребитель нечисти. Вся моя жизнь была посвящена защите людей от всякой грязи, лезущей из Разломов, и я добился немалых успехов на этом поприще. Сражение с Легендарной Тварью было эпичным, и я победил, но…
+Умер, чтобы воскреснуть в новом мире. Здесь вроде как нет магии, зато имеются сверхспособности – телекинез, ясновидение, (   Читать дальше...   )Жанр: Фэнтези, ПопаданцыИздательство: ИДДКПродолжительность: 11:21:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:56957D0D4FF023AF8246D38619993459DD903663
+magnet:?xt=urn:btih:23AF54487AD645CA699C18C618D4A884C95B9BBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -544,28 +52,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850037   (1053989) от 26.01.2026
+###  Публикация: 1852127   (1055623) от 06.02.2026
 
-Poppy - Empty Hands (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Metalcore, Electronic>
+Ян Бадевский | Инквизитор (Книга 2). Семинарист (2024) [MP3, Роман Волков]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055623.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Public Domain [00:04:00]
-02. Bruised Sky [00:03:40]
-03. Guardian [00:03:14]
-04. Constantly Nowhere [00:00:28](   Читать дальше...   )Жанр: Alternative-Metal, Metalcore, ElectronicПродолжительность: 00:38:36
+Я теперь не хрен с бугра, а послушник Туровской духовной семинарии. Сходу «повезло» стать учеником легендарного отца Бронислава - карателя, которого боится даже собственное отражение в зеркале. И да, мне вновь предстоит отправиться в Пустошь, где затаилось неведомое зло. Вот только одного не пойму. Как управлять поместьем, если меня нет дома?Жанр: фэнтези, ПопаданцыИздательство: ИДДКПродолжительность: 09:19:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3E200C54957DD7EF4709B0B2D3BA40DDD07D95B
+magnet:?xt=urn:btih:9A9426FB41E08606E9F8B57F330D57ECFBEF6F18
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,28 +78,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850035   (1053988) от 26.01.2026
+###  Публикация: 1851595   (1055622) от 14.02.2026
 
-Ai - No name compilation part 46 Slow Pop Rock Ballad (2026) [MP3|320 Kbps] <Slow Pop Rock Ballad>
+Книжная серия | "Белая ворона" (компиляция) [обновляемая] (2026) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055622.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Белая ворона» - цикл книг и сборников избранных произведений различных авторов. Где предпочтение отдаётся в основном современному женскому роману с динамично развивающимся сюжетом в котором сочетаются традиции классики и актуальные темы сегодняшнего дня.Жанр: Женский романИздательство: Интернет-издание (компиляция)Формат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93BFDAD7465566BAC79C26546D770C65316B0F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852224   (1055621) от 06.02.2026
+
+VA - No name compilation part 47 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055621.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Love Wasn’t Wrong (I Was)
-02 - All Your Love
-03 - You Whispered Forever
-04 - Midnight Caress    After the Lights Go Low(   Читать дальше...   )Жанр: Slow Pop Rock BalladПродолжительность: 00:40:46
+01 - Dakota Lane - Shanelle – My Little Star
+02 - Diazza - White Night
+03 - Xezzo - Coffee
+04 - Mr Salama - First Snow(   Читать дальше...   )Жанр: Electronic, Eurodisco, EurodanceПродолжительность: 01:51:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7328AC30A97698F808926E3B32DC411D50BFA8BF
+magnet:?xt=urn:btih:4DE4F3D114C89447B9D71C4CC94E18858CBC8C46
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -602,28 +133,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850033   (1053987) от 26.01.2026
+###  Публикация: 1852220   (1055620) от 06.02.2026
 
-VA - No name compilation part 45 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance>
+Виктор Молотов | Эра мутантов (Том 3). Судный день (2024) [MP3, Василий Канделаки]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055620.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Adex - Broken Code
-02 - Dova Music - Fading Winter Love
-03 - Hamidshax - You Are Gone
-04 - A-Sultan - Here I Am(   Читать дальше...   )Жанр: Electronic, Eurodisco, EurodanceПродолжительность: 01:52:31
+Третий том серии «Эра мутантов» Что может пойти не так на свидании с девушкой, по которой сохли все парни? Всего лишь упавший рядом с нами метеорит, от которого мы получили такую дозу радиации, что должны были сдохнуть. Но нет. То что должно было нас убить, сделало сильней. Теперь я Мор – повелитель радиации, а моя девушка Лавина – богиня льда и холода. Отныне нам (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, ПостапокалипсисИздательство: ЛитРес: чтец, авторПродолжительность: 07:37:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7210E10252E0BF7F2FDF09A01871730FE9AAFE19
+magnet:?xt=urn:btih:254D86A3B20D74917B0A1287844C59A370E4B9D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -631,28 +159,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850032   (1053986) от 26.01.2026
+###  Публикация: 1852216   (1055619) от 06.02.2026
 
-VA - No name compilation part 44 Electronic Assorted (2026) [MP3|320 Kbps] <Electronic, Eurodisco, Eurodance>
+Р. Рихтмайер | Принципы современной математической физики [2 книги] (1982) [DJVU]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Научная и техническая литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055619.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Nezon - New Horizon
-02 - Lynoria - After You
-03 - Mr Salama - Lies
-04 - Nezon - Future Love(   Читать дальше...   )Жанр: Electronic, Eurodisco, EurodanceПродолжительность: 01:35:56
+В книге известного американского ученого, знакомого советскому читателю по переводу его трудов, излагается математический аппарат современной теоретической физики (некоторые разделы функционального анализа, теория вероятностей, эволюционные задачи и т. д.) и показываются его применения к квантовой механике и гидродинамике. В отличие от многотомника М.Рида и Б.Саймона (   Читать дальше...   )Жанр: МатематикаИздательство: МирФормат: DJVUКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:751C9842A9A9EB8533A1BD6AB9EC1BD6802C0B63
+magnet:?xt=urn:btih:42E198DB4C2D21D7200D91FF9CE4CA487A7F54AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -660,28 +185,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849997   (1053985) от 26.01.2026
+###  Публикация: 1852214   (1055618) от 06.02.2026
 
-Spiral Fracture - Grace in Decay (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power-Metal, Heavy-Metal>
+Виктор Молотов | Эра мутантов (Том 2). Буря в бункере (2024) [MP3, Василий Канделаки]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055618.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Derelicts of Delusion [00:03:22]
-02. Soul Allegiance [00:04:04]
-03. Defiance [00:03:25]
-04. Scars [00:04:35](   Читать дальше...   )Жанр: Power-Metal, Heavy-MetalПродолжительность: 00:36:55
+Второй том серии «Эра мутантов» Что может пойти не так на свидании с девушкой, по которой сохли все парни? Всего лишь упавший рядом с нами метеорит, от которого мы получили такую дозу радиации, что должны были сдохнуть. Но нет. То что должно было нас убить, сделало сильней. Теперь я Мор – повелитель радиации, а моя девушка Лавина – богиня льда и холода. Отныне нам (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, ПостапокалипсисИздательство: ЛитРес: чтец, авторПродолжительность: 08:07:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C807006F4624ED93A5DFC4FCEDE688A299F6B704
+magnet:?xt=urn:btih:9171BFB07D5649F116D0BBBA181BEAA5A309950B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -689,25 +211,490 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849876   (1053984) от 26.01.2026
+###  Публикация: 1852213   (1055617) от 06.02.2026
 
-Олег Болдырев | Травма, ПТСР, КПТСР практическое руководство для перезагрузки мозга и тела после психологических потрясений (2025) [MP3, Алексей Кизуб]
+Виктор Молотов | Эра мутантов (Том 1). Радиация и лёд (2024) [MP3, Василий Канделаки]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что может пойти не так на свидании с девушкой, по которой сохли все парни? Всего лишь упавший рядом с нами метеорит, от которого мы получили такую дозу радиации, что должны были сдохнуть. Но нет. То что должно было нас убить, сделало сильней. Теперь я Мор – повелитель радиации, а моя девушка Алина – богиня льда и холода. Отныне нам предстоит не только выжить, но (   Читать дальше...   )Жанр: Боевая фантастика, Попаданцы, ПостапокалипсисИздательство: ЛитРес: чтец, авторПродолжительность: 08:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807F362F3773942E4111F06BB3ADD5654C422034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852202   (1055616) от 06.02.2026
+
+Дж. Мэтьюз, Р. Уокер | Математические методы физики (1972) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055616.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге излагаются математические методы, наиболее часто используемые при решении физических, задач. В отличие от других учебников аналогичной тематики авторы делают ударение на обучение математическим методам посредством решения простых примеров. Во многих примерах содержатся нетривиальные трюки, дающие возможность быстро и красиво решить поставленную проблему. (   Читать дальше...   )Жанр: МатематикаИздательство: АтомиздатФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7FB698614E868C8F76376E3075847BF3FD61C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852201   (1055615) от 06.02.2026
+
+Ф.М. Морс, Г. Фешбах | Методы теоретической физики [2 книги] (1958 - 1960) [DJVU]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055615.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двухтомный курс Ф. Морса и Г. Фешбаха занимает особое место в литературе по математической физике. Он написан физиками для физиков и инженеров и показывает в действии математические методы, наиболее успешно применяемые при изучении различных полей.
+В книге излагается ряд важнейших разделов современной математики в плане их применения к задачам физики и техники. Большим (   Читать дальше...   )Жанр: МатематикаИздательство: Издательство иностранной литературыФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9BC504AB07997E08DCD0FEDA7D66375C3B4A049
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852200   (1055614) от 06.02.2026
+
+Луи Жиро | Праздник вкуса. Блюда на каждый день (2025) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отныне раздумья о том, что приготовить по тому или иному случаю, останутся в прошлом – это уникальное издание предложит вам более 60 пошаговых рецептов вкуснейших, при этом несложных блюд, в сопровождении ярких иллюстраций и оригинальных советов. Быстрые завтраки, сытные обеды и роскошные ужины – здесь найдется все необходимое для ежедневного меню: начните утро с (   Читать дальше...   )Жанр: КулинарияПеревод: Ангелина ПушкинаИздательство: КоЛибриФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E032549A94614A839F2AF8C204406D59E80DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852181   (1055613) от 06.02.2026
+
+VA - Ori Uplift - Uplifting Only Episode 678 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BarWall & Ria Joyse – Tell Me Why
+02. BiXX & That Girl – Walk On Water (Pre-Release Pick)
+03. Vinny DeGeorge – Entrancing Love (Orchestral Uplifting Classic)
+04. Aly & Fila, Jwaydan – We Control The Sunlight (Darren Porter Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220891A3A20306C88165CD9E4F3095556CF78CB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852177   (1055612) от 06.02.2026
+
+VA - Armin van Buuren - A State Of Trance 1263 (2026) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Gate ft. Ava Silver – Let It All Out
+02. Estiva – Running
+03. OTTAGON ft. Lake Silver – What The Future Holds
+04. Armin van Buuren & Glockenbach – Sun Shines On Me (Rising Star Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E02A9098AFD5770A5A022E8D7661F4541C659216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852171   (1055611) от 06.02.2026
+
+Никита Игошев | Книга рецептов (2025) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы все хотим есть вкусные блюда и при этом оставаться стройными.
+Так и появилась книга рецептов Никиты Игошева — дипломированного фитнес-тренера и нутрициолога, автора курса по похудению. Здесь он собрал свои лучшие рецепты, придуманные в процессе собственного похудения.
+Эта книга не о диетах и ограничениях, а о рациональном подходе: готовьте быстро из доступных (   Читать дальше...   )Жанр: КулинарияИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9EF6EE57E7C42B82BCD88402E8868FD420958CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852161   (1055610) от 06.02.2026
+
+Иван Путилин | Сорок лет среди грабителей и убийц (2023) [MP3, Алексей Воскобойников]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055610.jpg" />
+</div>
+
+
+###  Подробнее
+
+Русский Шерлок Холмс, гений дедукции, легенда уголовного сыска – всё это о первом начальнике Санкт-Петербургской сыскной полиции Иване Путилине.
+Самые яркие преступления, прогрессивные по тем временам методы работы, психологические уловки, секреты уголовного мира – обо всем он расскажет сам в своих воспоминаниях! Иван Дмитриевич Путилин (1830–1893) – легенда отечественного (   Читать дальше...   )Жанр: Биографическая проза, Дореволюционная РоссияИздательство: ИДДКПродолжительность: 09:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92B4320B2F6622C36F3A6A39A4C5A4179A6C07CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852146   (1055609) от 06.02.2026
+
+Юрий Мороз | Ваше кредо вечно второй? Истина в тезисах. Юрий Мороз (2007) [MP3, Воронин Александр]
 
 >>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
+>>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга исследует причины, типы и последствия психотравм и ПТСР, предлагая стратегии самопомощи для разработки персонального плана восстановления. Она раскрывает: • как распознать признаки ПТСР; • современные научные подходы и эффективные лайфхаки для постепенного улучшения самочувствия и восстановления психической целостности; • методы перезагрузки мозга и тела для (   Читать дальше...   )Жанр: ПсихологияИздательство: БОМБОРАПродолжительность: 08:27:20
+...А теперь, как и положено в наше время - рекламная пауза. Несколько слов обо мне, то есть об авторе.
+Ну что сказать. На момент написания этой книги я уже 14 лет как предприниматель. То есть живу на доходы, а не на зарплату. Явился учредителем и совладельцем за это время более тридцати фирм. Начиная от аудиторских фирм и кончая, ну, например, кооперативом по закупке (   Читать дальше...   )Жанр: БизнесИздательство: ООО "Диск Про" МоскваПродолжительность: 09:59:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:182B24BA438D5E18008F2705E91B0E53E3EFC0A5
+magnet:?xt=urn:btih:AAD341896417DAB0C338F13B4906078FFC5136BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852103   (1055608) от 06.02.2026
+
+Себастьян Фитцек | Календарная девушка (2024) [FB2, EPUB, MOBI]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте: ваша дочь умирает. Ей срочно нужен донор костного мозга, а вы — приёмная мама и не можете помочь. В секретных документах об усыновлении — зловещая запись: «Мать в смертельной опасности, ни в коем случае не раскрывать!»
+   Чтобы спасти ребёнка, психолог Оливия бросается на поиски биологических родителей. Но чем глубже она копает, тем страшнее правда: всё (   Читать дальше...   )Жанр: Детектив, триллерПеревод: Иван ВисычЯзык: русскийИздательство: Droemer KnaurФормат: FB2, EPUB, MOBIКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7E042663775763B688AC908E3B8FBB5A7ABB2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851643   (1055607) от 06.02.2026
+
+Madonna - Like A Prayer  1989 (2005) Reissue [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055607.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop Rock
+Производитель диска (релиза): JapanПродолжительность: 00:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6435190956256CBE0BBAC11E465B1CD018F2DC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851791   (1055606) от 06.02.2026
+
+Terra Incognita (Prem Joshua, Chinmaya Dunster) - No Goal but the Path (1993) [FLAC|Lossless|tracks + .cue] <World Fusion>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shepherd’s Dream
+02. Amazonas Juan
+03. Darshan
+04. Bop Du Bop(   Читать дальше...   )Жанр: World FusionПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7DC97AB27878F28CB7865A2D2D0696E42D632F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851891   (1055605) от 06.02.2026
+
+Дем Михайлов | Компиляции циклов [6 циклов] (2011-2026) [FB2, EPUB]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055605.jpg" />
+</div>
+
+
+###  Подробнее
+
+Руслан Алексеевич Михайлов (творческий псевдоним Дем Михайлов) — русский писатель-фантаст, один из основоположников русского литРПГ. Родился 23 ноября 1979 года в городе Заравшан Узбекской ССР, СССР.
+Известен своими произведениями в жанрах фэнтези, LitRPG и реалРПГ, в частности, по циклу «Господство клана Неспящих»(ГКН).Жанр: Фантастика, Боевая фантастика, Антиутопия, ЛитРПГ, ФэнтезиИздательство: СамиздатФормат: FB2, EPUBКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD7F0D7466DAC2A37C4206B83C1F2FC7A2D38BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851937   (1055604) от 06.02.2026
+
+One Direction - Up All Night (2012) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Makes You Beautiful [0:03:18.54]
+02. Gotta Be You [0:04:01.59]
+03. One Thing [0:03:17.14]
+04. More Than This [0:03:48.52](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B268081388719C74CA7BD92F45F684AAF5D2B638
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852057   (1055603) от 06.02.2026
+
+Олег Сапфир, Юрий Винокуров | Цикл "Повар. Правила волшебной кухни" [2 книги] (2025-2026) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055603.jpg" />
+</div>
+
+
+###  Подробнее
+
+“Всё не то, чем кажется” (с) Официальный слоган книги
+
+Мой дед привел род к величию, а мои родители… Нет, не уничтожили его и не ослабили. Даже наоборот - род процветает, как никогда раньше. Вот только методы, которыми они используют наш родовой дар (и которыми зарабатывают), заставили бы перевернуться деда в гробу. Да, к чёрту приуменьшения! Уверен, что он сейчас (   Читать дальше...   )Жанр: Городское фэнтези, Бытовое фэнтези, ЮморИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984DFAF8935EC7155B7C394113EE84B2341A0EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852122   (1055602) от 06.02.2026
+
+Тим Волков, Андрей Посняков | Земский докторъ (Книга 1). Новая жизнь (2025) [MP3, Николай Бырев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Не думал, не гадал талантливый столичный хирург Артем, что, вступившись за незнакомую девушку, самым трагическим образом очнется в теле юного земского врача Ивана Палыча Петрова. Уезд – жуткое захолустье, и столь же жуткая больница, которую надо еще поднимать. Нет ни лекарств, ни наркоза, ни дезинфекции – вообще ничего нет! Но есть пациенты, и их надо лечить – на (   Читать дальше...   )Жанр: фантастика, приключения, попаданцыИздательство: ИДДКПродолжительность: 08:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA2D11089488E1CB3B47A2D7418D9FAE36BC6A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852110   (1055601) от 06.02.2026
+
+Влад Техномак | Механоид (Книга 1). Механоид (2023) [MP3, Радион Нечаев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055601.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё вчера он был обычным кадетом, а сегодня – уже в теле боевого робота защищает людей от монстров Роя. Правда, его «железка» устарела лет так на сто… Но ничто не помешает прокачивать и апгрейдить новое тело за собранную эссенцию.В руках оружие, в груди мистическое ядро, а рядом верный напарник. И цель – найти тех, кто ответственен за появление Роя на планете.Жанр: LitRPG, Боевая фантастика, Героическая фантастика, Космическая фантастика, РеалРПГИздательство: Аудиокнига своими рукамиПродолжительность: 09:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5133CEB74EC707C6A2ACA7CA8F6DCCBD33B0D1C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852111   (1055600) от 06.02.2026
+
+Влад Техномак | Механоид (Книга 2). Сердце Роя (2023) [MP3, Радион Нечаев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ещё вчера он был обычным кадетом, а сегодня — уже в теле боевого робота защищает людей от монстров Роя. Правда, его «железка» устарела лет так на сто... Но ничто не помешает прокачивать и апгрейдить новое тело за собранную эссенцию.
+В руках оружие, в груди мистическое ядро, а рядом верный напарник. И цель — найти тех, кто ответственен за появление Роя на планете. (   Читать дальше...   )Жанр: Биотехнологии, Боевая фантастика, Космос, ПриключенияИздательство: Аудиокнига своими рукамиПродолжительность: 08:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:026A58C56CBFF423B81E7F802B7D59AAA5182CFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

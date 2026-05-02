@@ -1,3 +1,280 @@
+###  Публикация: 576793   (364347) от 17.11.2012
+
+Butterfly - Favorite Colors Episode 058 (17.11.2012) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kattoo -  Violin (Intro Original Mix)
+02. Danilo Ercole -  London Eye (Original Mix)
+03. Twenty Three & Jesper Olesen -  Once A Stranger (Original Mix)
+04. Robert Nickson pres. RNX -  Suffer (Shingo Nakamura Remix)
+05. Anna Lee vs Alex TeeB -  Driving Juke (Original Mix)
+06. Jjoo -  Restless (Original Mix)
+07. Pizz@dox -  Scarlet (Snow Flakes & Rishabh Joshi Remix)
+08. Wezz Devall -  The Great White Buffalo (Original Mix)
+09. Alan Morris & Sequenita -  Contact (Original Mix)
+10. Giuseppe Ottaviani feat. Amba Shepherd -  Lost For Words (On Air Mix)Жанр: Progressive Trance, Melodic TranceПродолжительность: 00:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C2CA77D6B088C00E46C109A187B5EA0AB3964F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576637   (364346) от 17.11.2012
+
+VA - Monster Tunes Autumn Collection (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364346.jpg" />
+</div>
+
+
+###  Подробнее
+
+[06:31] 01. Stannis - Sky Drops - Original Mix
+[07:44] 02. James Hannan - Borderline - Original Mix
+[07:44] 03. Ad Brown - Transmission - Original Mix
+[06:47] 04. Oza - Small Planet - Original Mix
+[07:40] 05. INCA - Three Sunrises - Original Mix
+[07:09] 06. Timur Shafiev - Can't Stop - Original Mix
+[07:43] 07. Mark Eteson - Universal Language - Tritonal Club Mix
+[07:43] 08. Corderoy - Mechanical Tears - Club Dub
+[07:06] 09. Cold Blue - Coconut - Original Mix
+[07:30] 10. Reorder - Sunrise - Original Mix(   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D281699D432CB905420D28FE4B054090E9EB9439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576734   (364345) от 17.11.2012
+
+Trolley Snatcha - Subtext (EP) (2012) [MP3|320 кб/с]<Dubstep, Grime>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Make My Whole World 5:12
+02. Nasty Sh*t 4:39
+03. Giving Up 4:41
+04. Flying Missiles 4:14
+05. The Jungle 5:43Жанр: Dubstep, GrimeПродолжительность: 00:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17649675F098C08B27C1A348BDEF39B814CD388E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575524   (364344) от 17.11.2012
+
+Fragrant flowers Wallpapers (13.11.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C2EA725248E8CA9DEA821F01ECBD870A73BAE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576470   (364343) от 17.11.2012
+
+Агата Клери/ Agathe Cléry (2008) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364343.jpg" />
+</div>
+
+
+###  Подробнее
+
+Агата Клери больна. Симптомы болезни не такие уж редкие: снобизм, безжалостность, нетерпимость, расизм. Но совсем другая болезнь станет для неё — успешного менеджера по маркетингу крупной косметической компаний — настоящим испытанием. Болезнь Аддисона, редкое заболевание, которое за одну ночь изменит цвет кожи героини, заставит её пересмотреть свои взгляды на межнациональные взаимоотношения в обществе.Жанр: Мюзикл, КомедияРежиссер: Этьен ШатильеАктеры: Валери Лемерсье (Valérie Lemercier), Энтони Кэвэна (Anthony Kavanagh), Доминик Лаванан (Dominique Lavanant), Изабель Нанти (Isabelle Nanty), Жак Буде (Jacques Boudet), Артюс де Пенгерн (Artus de Penguern), Жан Рошфор (Jean Rochefort), Валентайн Варела (Valentine Varela)Перевод: Профессиональный (двухголосый)Продолжительность: 01:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5092B5E90FAB5AED7498075EF3BC95396E1BAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576502   (364342) от 17.11.2012
+
+VA - Dream Trance Hits Of The Year (2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364342.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Dream Trance Hits Of The Year (2012)
+Год: 2012
+Лэйбл: Sounds United
+Жанр: Trance
+Продолжительность: 01:49:19Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01.Frozen Skies - "Coming Back" (feat Yana Vetrova - radio version) - (3:47)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:912F2EDE421552CEF1DC9CAF67CA4DB165E68BCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 576510   (364338) от 17.11.2012
+
+VA - Vocal Trance Temptation Volume 11 (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364338.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Vocal Trance Temptation Volume 11 (2012)
+Год: 2012
+Жанр: Vocal Trance
+Продолжительность: 02:58:10Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+001. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
+002. Beat Service feat. Gemma Pavlovic - Masquerade (Original Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA12EECCBBD1E2FFB2C29AC93D69FD33E57D7D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575962   (364335) от 17.11.2012
+
+Hallywood X - Origen (EP) (2012) [MP3|320 кб/с]<Dubstep, Electro>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hallywood X - Origen (Intro)
+02 - Hallywood X - Flash Ya Lighter
+03 - Hallywood X - Feel Da Bass
+04 - Hallywood X - Rescue Me
+05 - Hallywood X - Fyah Dem Dem Bun
+06 - Hallywood X - Revolución
+07 - Skrillex - Right In (Hallywood X Remix)
+08 - Above & Beyond Ft Zoë Johnston - You Got To Go (Hallywood X Remix)Жанр: Dubstep, ElectroПродолжительность: 00:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F611F28E2B45ECA7AB8EB1025DA0C38CA8DE6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070886   (364332) от 08.11.2016
+
+Kaspersky Lab Products Remover 1.0.1176 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364332.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменная утилита для полного удаления с компьютера антивирусных продуктов Лаборатории Касперского, поскольку при удалении с помощью стандартных средств Windows они могут не удалиться или будут удалены частично.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C836E5476C34EFC569A7415535E603F37F4A17A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070899   (364328) от 08.11.2016
 
 DU Meter 7.20 Build 4761 [Multi/Ru]
@@ -467,250 +744,6 @@ The M Machine - Metropolis Pt. 1 (2012) [MP3|320 кб/с]<Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B7BBC2B1443C26F47CAA5AF111F7451FEFDA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576271   (364212) от 17.11.2012
-
-Best HD Wallpapers Pack (16.11.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364212.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9FBAF9B07F894D1B326047A10EEE9933102F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576263   (364211) от 17.11.2012
-
-Bobina - Russia Goes Clubbing 219 (14.11.12) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MaDi & Kristofer - Hot Balloon - Silent Shore
-02. Josh Gabriel pres. Winter Kills - Forward Facing (Walsh & McAuley remix) - Different Pieces
-03. Sean Tyas feat. Julie Thompson - What I Am - Tytanium
-04. Mike Saint-Jules feat. J9 - Waited Too Long - Itwt
-05. Peter Santos - Solarstorm (Vitodito remix) - Kill the lights
-06. Oen Bearen - Nusantara - Black hole
-07. Rene Ablaze & Dima Krasnik - Stars - Redux
-08. The Noble Six - For Her (Type 41 remix) - Blue soho
-09. Right Face - Spring - Digital society
-10. Alex Morph with Hannah - When I Close My Eyes (Aly & Fila remix) - Asot(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD5E498F7896A3C4B7D9D39F12ED7B80E044F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071040   (364158) от 08.11.2016
-
-Adobe InCopy CC 2017.0 12.0.0.81 RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe InCopy CC - программа для профессионального создания и редактирования материалов, тесно связанная с программой Adobe InDesign CC для улучшения взаимодействия команд дизайнеров и редакторов. Adobe InCopy CC идеально подходит для крупных проектов, в рамках которых над текстом и графическим дизайном работает много людей. InCopy позволяет копирайтерам и редакторам (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D43CBB540B3DD5778E3D9119E46F1DD18E2D25A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255512   (364129) от 18.10.2018
-
-Twinkstar 4.8.1000.1810 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Twinkstar - китайский браузер на базе Chromium. В Twinkstar убраны как все второстепенные, так и многие базовые функциональные возможности. Во многом за счет этого разработчикам удалось достичь небывало высокой производительности и отличной скорости загрузки веб-страниц.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF35730C832E25FEE1F7778BCDFF24FE93C8F067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255493   (364110) от 18.10.2018
-
-Movavi Screen Recorder 5 v5.4.3 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем простую и функциональную программу для записи всего, что происходит на экране вашего Mac. Захватывайте и сохраняйте на жесткий диск видео и музыку из интернета, записывайте разговоры в Skype и игровой процесс, создавайте собственные видеоуроки.Программа крайне проста в освоении и не требует никаких специальных навыков. Установите настройки записи, снимите (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.08.2018Разработчик: Movavi Software, Ltd.Поддерживаемая ОС: macOS 10.7 +Язык интерфейса: Русский, Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:376649162907B7CCE7B7B4E3AA37389D9513A076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576778   (364108) от 15.09.2022
-
-FanControl V128 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364108.jpg" />
-</div>
-
-
-###  Подробнее
-
-FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22738FD8E6F7940D6BA90C2F17D6203BA2A8A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070869   (364107) от 08.11.2016
-
-Парни со стволами / War Dogs  (2016) BDRip [H.264/1080p] [EN]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Реальная история о приятелях-планокурах из Майами, умудрившихся выбить в Пентагоне контракт на 300 миллионов долларов на поставку оружия.Производство: СШАЖанр: драма, комедия, криминал, военныйРежиссер: Тодд ФиллипсАктеры: Майлз Теллер, Джона Хилл, Ана де Армас, Кевин Поллак, Брэдли Купер, Джейби Бланк, Шон Тоуб, Патрик Ст. Эсприт, Андрей Финти, Эдди Джемисон, Стив Лэнц, Грегг УэйнерПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CAC12DD2655CF7A63AC6F7CF8E89BD8360332C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070686   (364103) от 08.11.2016
-
-SolveigMM Video Splitter 6.1.1611.7 Business Edition + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364103.jpg" />
-</div>
-
-
-###  Подробнее
-
-SolveigMM Video Splitter - редактор для MPEG-2, AVI, WMV, ASF, MP4, MKV, MOV, AVCHD, WEBM, FLV, MP3, WMA файлов. Основные функции программы - возможность быстро сохранить или вырезать произвольное количество медиа фрагментов из видео / аудио файла,  а также объеденение медиа файлов. Все операции выполняются с сохранением исходного качества и без потери видео/аудио (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:206ED0F1E22CB9BC919D29F233C7B25AA3664F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576697   (364099) от 15.09.2022
-
-NIUBI Partition Editor 7.9.2 Professional / Technician / Server / Enterprise Edition RePack (& Portable) by 9649 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364099.jpg" />
-</div>
-
-
-###  Подробнее
-
-NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
-В отличие от других менеджеров разделов в программу NIUBI Partition Editor внедрена защитная (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBBC69AD33A0B76D1617040AC3D60C3A0549D6F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

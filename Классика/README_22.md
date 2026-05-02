@@ -1,3 +1,32 @@
+###  Публикация: 1223248   (677387) от 03.05.2018
+
+The New London Chorale - The Christmas Album (1989) Reissue [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677387.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.		When A Child Is Born
+2.		Good King Wenceslas
+3.		Amazing Grace
+4.		Panis Angelicus(   Читать дальше...   )Жанр: Сrossover Classical, PopПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3311B14C303711B765CD5D199A09256C11A5D9C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223083   (677290) от 03.05.2018
 
 The New London Chorale - Young Forever 15 Jaar Successen (1996) Compilation [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop, Ballad>
@@ -746,32 +775,6 @@ VA - Современное звучание Мировой Классики (20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8B8A1000EA0E59B20FFBE82A614BF6E65BF3316
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516010   (651160) от 29.06.2012
-
-Elina Garanca - 3 альбома (2007-2010) [MP3|320 кб/с]<Classical>
-
->>Классика
->>Классика (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalПродолжительность: 03:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5207B79B5308535C42377DDEC589417AA12FB41D
 ```
 
 https://mybot314.ru/tekegram_catalog/

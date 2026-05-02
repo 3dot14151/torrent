@@ -1,3 +1,119 @@
+###  Публикация: 1587453   (192578) от 31.10.2022
+
+Gary Moore - The Best of the Blues (2002) 2CD [FLAC|Lossless|image + .cue] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking by Myself
+02. Oh Pretty Woman
+03. Still Got the Blues (full version)
+04. Separate Ways(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 02:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE702EE24C68035E0820A280CB0F98A04D2C6A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587495   (192568) от 31.10.2022
+
+Joanne Shaw Taylor - Nobody's Fool (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody's Fool (3:37)
+02. Bad Blood (3:49)
+03. Won't Be Fooled Again (feat. Joe Bonamassa) (4:54)
+04. Just No Getting Over You (Dream Cruise) (4:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457F4C439091491C819F4BC91E1484D1200ACA6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587986   (192159) от 02.11.2022
+
+Grant Dermody - Behind The Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble No More (3:10)
+02. Don't Boss Me (3:09)
+03. Forgive Me (6:06)
+04. Lost John (1:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42A4445F97411A59B8A881CC016288B61A5AB20C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587984   (192150) от 02.11.2022
+
+Carlos Segarra - Segarra Inn Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Talking About You (2:31)
+02. Dimpless (2:36)
+03. Eso Es Blues (Y No Lo Que Cantas Tú) (3:40)
+04. Six Days on the Road (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A624E7099CC23873822D2AA304CA009A5E82EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1587989   (192143) от 02.11.2022
 
 Jed Potts & the Hillman Hunters - Swashbucklin' (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Stan Webb With Chicken Shack - Plucking Good and Changes (2022) 2CD [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C40B2017C5D7FF1B79A7D5D155732431F671D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660376   (189392) от 13.09.2023
-
-Mick Kolassa - Essentially Not Serious (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WPD (3:22)
-02. I’m Getting Late (2:53)
-03. My Hurry Done Broke (3:46)
-04. Whiskey in the Mornin’ (5:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:268413C742ECB5A304DB105A8DDA0F52C16E9A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660373   (189388) от 13.09.2023
-
-Garnetta Cromwell - Time To Shine (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Marva Ann (Remix 2023) (4:07)
-02. Weekend (3:13)
-03. Open Jam (On Hess Street) (4:05)
-04. Singing The Blues (3:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16143D32510D8143E3B5E89992B81E83F104813C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590448   (188887) от 14.11.2022
-
-Will McCarty - Belonging (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Belonging (4:33)
-02. Trouble Follows (8:02)
-03. Pathways (4:11)
-04. Jones (6:19)Жанр: BluesПродолжительность: 00:23:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF4032313DD802D3E821D01474E5FF0BFBA49D2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590442   (188878) от 14.11.2022
-
-The Victor Lawson Blues Band - Mainstreet Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Woman Has a Black Cat Bone (4:11)
-02. House of the Rising Sun (4:49)
-03. Killing Floor (3:53)
-04. I'm Going Home (To Live with God) (3:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88839BD7E3A85EF8CF4F930EF638784718564EB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 1354874   (986222) от 24.01.2020
+
+Paul Desmond - The Ballad of Paul Desmond 1961 - 1965 (1996) BMG [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night Has a Thousand Eyes [4:46]
+02. Samba de Orfeu [4:21]
+03. Take Ten [3:08]
+04. Curacao Doloroso [4:30](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521DD3D651180B6FEA6B8CF9067A8C2D55415EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 612388   (986210) от 02.02.2013
+
+Various Artists - Smooth Jazz for a Rainy Day (1999) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Fuentes - Slow Brew
+02. Darren Motamedy - Maybe Someday
+03. Nite Flyte - The Love I Give
+04. Duncan Millar - Lazy Days
+05. Soft Sugar - Sunset del Mar
+06. Deems - Romance Blue
+07. James Branch/Oneness - Near the Castle at Elmina
+08. Mark Hasselbach - Across the Canyon
+09. Chris Standring - Solitaire
+10. Michael Mcevoy - Cycles of Re-ElevationЖанр: Smooth JazzПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 612372   (986198) от 02.02.2013
 
 Various Artists - Miles From India (2008) [FLAC|Lossless]<Jazz>
@@ -706,64 +770,6 @@ Vainoras and the altar of the drill - Maim that tune slowly...soothe the savage 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B235A46B707BC8B85239F0F49EE594C6A79B284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1355607   (982297) от 27.01.2020
-
-David Benoit - David Benoit And Friends (2019) Shanachie [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982297.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballad of Jane Hawk (feat. Peter White) [4:09]
-02. Make It Real (feat. Lindsey Webster) [4:30]
-03. Vernazza (feat. Dave Koz) [4:04]
-04. Moon and Sand (feat. Marc Antoine) [5:45](   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FBA78B24B50B10AE61FF8A24CCC2C86EC0FE0C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972214   (982171) от 06.01.2016
-
-Freddie Hubbard - Super Blue (1978) Remaster, 2007, Sony[FLAC|tracks+.cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_982171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Super Blue [07:52]
- 02.To Her Ladyship [06:01]
- 03.Take It To The Ozone [07:03]
- 04.The Gospel Truth [05:02](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A9F1965D378A56B51235616E6963AD260CE08D
 ```
 
 https://mybot314.ru/tekegram_catalog/

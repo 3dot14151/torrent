@@ -1,3 +1,119 @@
+###  Публикация: 1641486   (235378) от 22.06.2023
+
+Lou Ann Barton - Natural Born Lover (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Natural Born Lover (3:41)
+02. Not Even Me (3:37)
+03. Rock 'N' Roll 800 (4:52)
+04. Scratch My Back (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D541EF59A27F53153812601CFDF2851E252B74F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641491   (235361) от 22.06.2023
+
+Peter Skandera & Dave Maybee - "blue grit & rhyme" (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Maybee (Feat. Peter Skandera) -- Get Rhythm (3:49)
+02. Dave Maybee & Peter Skandera -- She Caught the Katy (4:23)
+03. Billy the Kid (3:42)
+04. Juke (2:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:17:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:811A1C24212327ED96ACA3AFE8BF0A10D284AF0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641468   (235347) от 22.06.2023
+
+Bettye LaVette - LaVette! (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. See Through Me (Feat. Pedrito Martinez) (3:48)
+02. Don't Get Me Started (5:11)
+03. Lazy (And I Know It) (5:17)
+04. Sooner Or Later (Feat. Anthony Hamilton, Ray Parker Jr. & Rev. Charles Hodges) (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C36BA1174DB8449675BFB240DC3876FDA667E385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641461   (235343) от 22.06.2023
+
+Ben Granfelt - Gratitude (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got The Blues From You (4:11)
+02. Life Goes On (4:19)
+03. Remember, Never Forget (4:41)
+04. Desire, The Sirens Call (3:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A674AC76AFA67AB1F1202D12C7C6DDED1D32FC02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641481   (235328) от 22.06.2023
 
 Jungle Jim Smith - Electric Boogieland (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Little Magic Sam - Step Back (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0A3FECE1808454D6B77578672991A5F82000A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635773   (233006) от 27.05.2023
-
-The Daybreakers - Get Through This & Live (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tear The Walls Down (3:56)
-02. Black Beatles On The Radio (4:40)
-03. Bluesbreaker (3:14)
-04. I Hate Rock'n'Roll (4:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64257E930C512F665F1628EE4CC0A0C5D34F6F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635774   (232986) от 27.05.2023
-
-Ticket West - Chucufu (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here In The Corner (2:31)
-02. Living Day To Day (5:34)
-03. Don´t Wait Too Long (2:11)
-04. Bastrop Jail (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F90EFDDC65EEE43FC523C22CDBC83ED122FA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635757   (232970) от 27.05.2023
-
-Richard Koechli - Transcendental Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Transcendental Blues, The Whole Trip (29:44)
-02. Dark Night Of The Soul (7:35)
-03. New Morning (5:00)
-04. Love Endures Everything (4:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:30:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5239E1041E7F033C96542E0D4A3FE5F1FE6D7C12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635751   (232946) от 27.05.2023
-
-Gwen Hughes - Native Land (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz Blues, Country, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Fell In Love (3:02)
-02. These Years (1:41)
-03. In Our Hearts (4:51)
-04. Watch The Moon (5:15)(   Читать дальше...   )Жанр: Jazz Blues, Country, SoulПродолжительность: 00:50:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D3D84B83A01EA02859C095FD347F5501502B94
 ```
 
 https://mybot314.ru/tekegram_catalog/

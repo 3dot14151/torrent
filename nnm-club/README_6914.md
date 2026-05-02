@@ -1,158 +1,24 @@
-###  Публикация: 1124597   (785682) от 11.04.2017
+###  Публикация: 1276925   (787261) от 18.01.2019
 
-Adobe Photoshop Lightroom CC 2015.10 (6.10) [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lightroom объединяет фотографии в «коллекции» — виртуальные сборища файлов, по которым может быстро делать поиск. Он хранит информацию о ключевых словах, превью и метаданных не в каждом графическом файле, а в централизованной базе данных (движок SQLite). Поэтому к базе можно обращаться и по поводу фотографий, которые сейчас в архиве на DVD. Размер программы существенно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB67E7AFB046B47F88D71E8CD3054AF2E7BE2F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099059   (785681) от 11.04.2017
-
-Родина / Чужой среди своих / Homeland (2017) WEB-DLRip (сезон 6, серии 1-12 из 12) SDI Media
-
->>Зарубежные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя несколько месяцев после событий предыдущего сезона, Кэрри вернулась в США и живёт в Бруклине, Нью-Йорке. Сейчас она работает в фонде, задачей которого является оказание помощи мусульманам, живущим в США. В 6 сезоне действия разворачиваются между днём выборов президента США и днём инаугурации.Производство: США / Teakwood Lane Productions, Cherry Pie Productions, Keshet BroadcastingЖанр: триллер, драма, криминал, детективРежиссер: Кит Гордон, Лесли Линка Глаттер, Алекс ГрейвзАктеры: Клэр Дэйнс, Руперт Френд, Элизабет Марвел, Ф. Мюррэй Абрахам, Мэнди Пэтинкин, Назанин Бониади, Лайла Робинс, Трэйси Леттс, Хилл Харпер, Роберт Неппер и др.Перевод: Многоголосый закадровый, профессиональный - SDI Media по заказу AmediaСубтитры: русские (отдельным файлом), английские (отдельным файлом)Продолжительность: ~00:51:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329E23858C63EA5436FF1C9259A16C41AD421BD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094068   (785680) от 11.04.2017
-
-Youjo Senki / Saga of Tanya the Evil / Военная хроника маленькой девочки [2016, TV, 12] HDTV 720p raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Где-то в параллельном мире идет война. В первых рядах, среди суровых мужчин, командующая немного не мало целым отрядом, затесалась юная белокурая девушка по имени Таня Дегручова. Ну, или, по крайней мере, так кажется со стороны. Мало кто знает, что на самом деле она — это он.
-Еще будучи в Японии очередным представителем офисного планктона, пускай и очень успешным, (   Читать дальше...   )Производство: Япония, NUTЖанр: приключенияРежиссер: Уэмура ЮтакаПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A62A7288A584ECC7165EA617AFBF7D4BCFE22F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123640   (785679) от 11.04.2017
-
-KMSAuto Net 2016 1.5.0 Portable [Multi/Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785679.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMSAuto Net — автоматический KMS-активатор для операционных систем Windows VL-редакций: Vista, 7, 8, 8.1, 10, Server 2008, 2008 R2, 2012, 2012 R2, а также Office 2010, 2013, 2016. Дополнительно программа активирует: Windows 8.1 Single Language; Windows 8.1 Core; Windows 8.1 Core N; Windows 8.1 Pro WMC; Windows Embedded 8.1 Industry Pro; Windows Server 2012 R2 Standard; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE4E4ACC839A9CF485E990766330F84864EB2126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116523   (785678) от 12.04.2017
-
-Биатлон. Кубок Мира 2016/2017. 8-й Этап. Контиолахти (Финляндия). Одиночная смешанная эстафета (12.03.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785678.jpg" />
-</div>
-
-
-###  Подробнее
-
-12 марта 2017 года, воскресенье. 15:30 МСК
-Кубок Мира 2016/2017. 8-й Этап. Контиолахти (Финляндия)
-Одиночная смешанная эстафета (Супермикст)Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71EF5BF7C2A80A0EA9E183B68A89EAD3D0E53F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124814   (785677) от 12.04.2017
-
-Cookie 5.5.2 [Multi]
+ShredIt X 6.2.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787261.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cookie  - Программа для полного удаления cookie-файлов, очистки кэшей и истории посещения веб-страниц в браузерах. Cookie поможет сохранить безопасность и приватность пользователя в сети.
+ShredIt X - удобная в использовании утилита, позволяющая удалить любые пользовательские файлы, без возможности восстановления. ShredIt X - отличный выбор, если нужно полностью очистить диск, на котором хранились важные данные, или просто освободить место.
 
-•  Безопасное удаление нежелательных данных, и спокойно отдыхать, зная, что внешние угрозы не могут восстановить личные данные.
-•  Устали от целевых объявлений, которые таинственным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12 апреля 2017Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и др.
+ShredIt X отлично работает не только с локальными дисками, но и внешними носителями, CD-RW дисками и др.Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Mireth TechnologyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3ECD005AD676844E11B7116573AF2A473B668115
+magnet:?xt=urn:btih:79FEED530371DCF50575973CB79F635F49987F3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -160,57 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124855   (785676) от 12.04.2017
+###  Публикация: 1276919   (787260) от 18.01.2019
 
-Gadboa - Trance5x (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Will Hold You [04:04]
-02. Work It Out [05:03]
-03. Erica [03:37]
-04. Trancemission [03:33](   Читать дальше...   )Жанр: TranceПродолжительность: 00:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DC312ED61DB6A4F6DBBFF1EB86DB3514603E312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124569   (785675) от 12.04.2017
-
-Cookie 5.5.1 [En]
+MediaHuman Youtube Downloader 3.9.9.11 (1701) [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785675.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787260.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cookie  - Программа для полного удаления cookie-файлов, очистки кэшей и истории посещения веб-страниц в браузерах. Cookie поможет сохранить безопасность и приватность пользователя в сети.
+YouTube Downloader - Удобная программа-загрузчик для тех, кто хочет скачать свой любимый видеоклип, музыкальное видео или трейлер нового фильма с YouTube или подобных сервисов.
 
-•  Безопасное удаление нежелательных данных, и спокойно отдыхать, зная, что внешние угрозы не могут восстановить личные данные.
-•  Устали от целевых объявлений, которые таинственным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11 апреля 2017Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и др.
+Закачка нескольких файлов одновременно
+Сохранение видео целиком, либо только звуковой дорожки(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: MediaHumanПоддерживаемая ОС: macOS 10.6 +Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C33E0B41FE61969FFEC2E2DD0C63AAB10DF1925
+magnet:?xt=urn:btih:A3E26EB4106B7A6E6345ECC7151A85FE1C7F805D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -218,401 +55,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124841   (785674) от 12.04.2017
+###  Публикация: 1276982   (787259) от 18.01.2019
 
-VA - Contemporary New Lounge. Aperitif Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady White - The Rules of Love - Oversise Mix
-02. Monowork - Dapper - Lake Version
-03. Roben Bucks - Shallow - Keep Mix
-04. Ephemeral - Frogs Rain - Stereo Version(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A27EEB4A256004E64944E2177E070BBBA45E0E75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124421   (785673) от 12.04.2017
-
-Ray-bot - мягкий плавающий робот, прототипом которого является морская манта
-
->>Поговорим
->>DailyTechInfo
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_785673.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа исследователей из университета Чжэцзяна (Zhejiang University), Ханчжоу, Китай, возглавляемая профессором Тифенгом Ли (Tiefeng Li), создала мягкого робота, который плавает под водой, подобно манте, одному из видов больших морских скатов. Изначально этот робот разрабатывался для исследований жизни подводного мира, но его с успехом можно использовать для исследований (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124859   (785672) от 12.04.2017
-
-VA - Uplifting Only Top 15 April (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DreamLife - Fly Away (original mix) (07:56)
-02. Ikerya Project - Ra (original mix) (06:24)
-03. Illitheas - Moments With You (Maratone remix) (05:29)
-04. Syntouch & Angel Falls - Alone (Plutian remix) (07:51)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2739771E4351CA734713C7020237B3C223158FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124818   (785671) от 12.04.2017
-
-Brоekhuіs, Kellеr & Schоnwаlder - Rеd Lіvе @ USА (2017) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 St. Marys, Philadelphia
-02 Music with Space, Princeton
-03 Stars End FMЖанр: AmbientПродолжительность: 02:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AD6AD01CDB175FA5A8828288B4F8C7C167ECC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124477   (785670) от 12.04.2017
-
-VA - Драйвовый весенний молодежный музон. Выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785670.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анжелика Агурбаш - Лучше Тебя Нет 3:05
-002. Джулия & Игорь Шаров - Ты Только Мой 3:42
-003. Мэрикона - Копия Верна 3:33
-004. Бамбинтон - Зая 3:40(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4290331D07BAF46DF33111E12ED3064084E8E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124589   (785669) от 12.04.2017
-
-Lay Down Rotten - Gospel of the Wretched (2009) [WavPack|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hours Of Infinity 05:18
-02. Thy Won't Be Done 05:20
-03. Where Spirits Lie Dead 05:06
-04. Altering The Whore 05:34(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FF68FF81FAF9D0B8C0AAC24B4CAFA343479302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124680   (785668) от 12.04.2017
-
-Richard Bennett - Contrary Cocktail (2015) [FLAC|Lossless|image + .cue] <Instrumental Jazz, Instrumental Rock, Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Girl Was Northern (4:04)
-02. Segue To Sundown (3:09)
-03. Tresero (5:18)
-04. Tawny (3:45)(   Читать дальше...   )Жанр: Instrumental Jazz, Instrumental Rock, PopПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:128E510BB81D6E338F68ABFCFC674DB929190861
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124851   (785667) от 12.04.2017
-
-VA - Wialenove - The Path IV (2017) [MP3|320 Kbps] <Ambient>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785667.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dance Of The Galaxies (07:41)
-2. Unravel (07:28)
-3. Dust Of Dreams (09:00)
-4. Three Billion Light Years Away (06:58)(   Читать дальше...   )Жанр: AmbientПродолжительность: 01:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCFFC83F9A49C983A76CC729FC7030919AB8C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124485   (785666) от 12.04.2017
-
-VA - Весна. Высшая лига. Часть № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785666.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Алиса Кожикина - В Стране Чудес 3:32
-002. Натали Янковских - Ты Мой 3:34
-003. Кристина Орбакайте - Жду 3:37
-004. Vavan Aka Вова Селиванов - Хулиганка 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8F866CE78390C614141FB819FAFE0FB43C2CD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124863   (785665) от 12.04.2017
-
-VA - Electronic Wunderland Vol.2: 20 Chill out Master Pieces (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peewee Durante - Still Wait a Little - Original Mix
-02. Montefroid - Baby Lemonade - Original Mix
-03. Blade - Masquenada - Original Mix
-04. D-Chill - Interlude - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFD5804C01351C600B64428AD3E36825619C0E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124874   (785664) от 12.04.2017
-
-Solarstone - .---- (2017) [MP3|~245 Kbps|image + .cue] <Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785664.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leap Of Faith (7:02)
-02. Eclipse (6:03)
-03. Untitled Love (with Rabbii) (5:21)
-04. Choosing His Angels (with Alex Karweit) (4:41)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255010DBDCF077148DC3DE1C976D341CCD281E43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124678   (785663) от 12.04.2017
-
-Tin Pan - The Home Bartender's Song Book (2011) [FLAC|Lossless|image + .cue] <Blues,Vocal Jazz, New York Street Band, New Orlean Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Found a New Baby (3:35)
-02. My Babe (2:28)
-03. Come Home (3:02)
-04. Glory Land (2:53)(   Читать дальше...   )Жанр: Blues,Vocal Jazz, New York Street Band, New Orlean JazzПродолжительность: 00:40:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADF47E9300937091878510F2D271345846D94FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124489   (785662) от 12.04.2017
-
-VA - Весенняя танцевальная вечеринка. Выпуск № 11 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785662.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. София Ротару - Не Забывай Меня 3:25
-002. Автобус - Слышишь 3:26
-003. Funpills - Страсти 3:23
-004. Mainstream One - Любил Так Жить 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78268C572D2E43E42BEA6587667C24F5805FC9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124726   (785661) от 12.04.2017
-
-VA - Spring Party Paradise (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
+VA - Minimal Love Vol. 5. (2019) [MP3|320 Kbps] <Minimal>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Firecrash – Native 05:18
-02. Josh Nor – Dwi 05:00
-03. Forever 80 – Equivalence 05:45
-04. James Black Pitch – Captain 05:52(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:48:48
+01. Minimal Flex - Diquis (Original Mix)
+02. MiamiSoul - The Pink Panzer (Morry Remix)
+03. Milair - Dark Of God (Original Mix)
+04. Milair - Minicore (Original Mix)(   Читать дальше...   )Жанр: MinimalПродолжительность: 01:09:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:241C27F30EEC14A306F5CE2A215B9FAD2826344D
+magnet:?xt=urn:btih:4BCDBF7DB1F91BDA6B2A8CBFF6B23C14B0DB136A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -620,28 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124476   (785660) от 12.04.2017
+###  Публикация: 1276973   (787258) от 18.01.2019
 
-VA - Любимые хиты весны выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
+VA - Beats And Grooves (30 Top House Tunes),Vol.3 (2019) [MP3|320 Kbps] <House>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785660.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Митя Фомин - Звезды Вселенной 3:42
-002. Kaminski & Platon - Круговорот 4:20
-003. Витольд Петровский - Память Из Прошлого 3:26
-004. Нюша - У Меня Появился Другой 3:34(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+01. Encure feat. Brett Miller Extended Mix - You Lead, I Follow (Extended Mix)
+02. Zinner, Orffee - Someday (Instrumental Radio Edit)
+03. Fijin feat. Nessa Sovi Remix - The One (Sovi Remix)
+04. Ben Weber - My People(   Читать дальше...   )Жанр: HouseПродолжительность: 02:31:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C049461E27B894E9738D09F97B40F8E0C83D523B
+magnet:?xt=urn:btih:48FEA7A73E7A2A6B0CCAF650E016A47AB1FB45B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -649,28 +113,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124478   (785659) от 12.04.2017
+###  Публикация: 1276812   (787257) от 18.01.2019
 
-VA - Весенние заводные хиты. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
+К. Каутский | Аграрный вопрос (1926) [PDF]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785659.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Влад Ульянич - Love You More 2:51
-002. Olstan Van Guard - Все Сначала 4:11
-003. Даша Данилова - Останься В Прошлом 4:15
-004. Татьяна Решетняк - Не Люби 2:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:00
+Предисловие:
+
+Издательство „Пролетарий", выпустившее в 1923 г. перевод „Аграрного вопроса" Каутского, ныне выпускает новое издание этого перевода. Мое предисловие, написанное три года тому назад, ныне нуждается в некоторых изменениях и дополнениях. Моя оценка работы Каутского для настоящего времени не изменилась. В коренном пункте наше расхождение с „ортодоксальным (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9E9C82C707DD35D0D4C73C44191626BA563F8F49
+magnet:?xt=urn:btih:0A9E7F481C096AA4DC7C8A8FA04FC922014C7D9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,28 +141,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124703   (785658) от 12.04.2017
+###  Публикация: 1276830   (787256) от 18.01.2019
 
-VA - Wouldn't It Be Nice: A Jazz Portrait Of Brian Wilson (2000) Horipro [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+Пути подготовки производственно-технической интеллигенции из людей рабочего класса (1931) [PDF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Don Grusin - Surfer Girl (Prelude) [01:47]
- 02.Don Grusin - Surfer Girl [05:24]
- 03.Clark Burroughs Group - Can't Wait Too Long [01:01]
- 04.Jeffrey Osborne - Wouldn't It Be Nice [04:28](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:06:03
+Не разрешив проблемы пролетарских кадров, не осветив ее с различных сторон светом марксистско-ленинской теории, не скрепив ее во всех частях мощным неразрывным цементом целеустремленного единого социалистического плана, — нам не разрешить общих и частных задач социалистического строительства.
+
+В этом смысле проблема кадров является, как никогда более острой хозяйственной (   Читать дальше...   )Жанр: История, политология, искусство, педагогика, культурология, публицистика, гносеологияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52E37FA675AF26D931C835C27C20D54D3F4B57C2
+magnet:?xt=urn:btih:1457FDB35D48A1D7AA4F926B33CAB9FFE4F39306
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -707,25 +169,546 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124636   (785657) от 12.04.2017
+###  Публикация: 1277040   (787255) от 18.01.2019
 
-Virgin Australia Supercars Championship. Сезон 2017. Tasmania. Этап 2. Гонка 1 (8.04.2017) HDTVRip [H.264/720p-LQ] [VO]
+Aevin - Gravity (2019) [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Electro, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. L1 (01:37)
+ 02. Neptune Trojan (05:03)
+ 03. Halo Orbit (05:18)
+ 04. L2 (01:40)(   Читать дальше...   )Жанр: IDM, Industrial, Electro, ExperimentalПродолжительность: 00:41:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D635C360B283081352CACD0149DFA481AEB9DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276958   (787254) от 18.01.2019
+
+WebScraper 4.8.1 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785657.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Австралийский чемпионат по шоссейно-кольцевым автогонкам среди легковых автомобилей сезона 2017 года - Этап 2Жанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:27:39
+WebScraper использует механизм Integrity v8 для быстрого сканирования веб-сайта и может выводить извлеченные данные (в настоящее время) в виде CSV или JSON. Плюс загружайте изображения в папку.Тип издания: macOS SoftwareРелиз состоялся: январь 2019Разработчик: PeacockMediaПоддерживаемая ОС: macOS 10.8 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF188A914F384BF2F79250F6777BE2E2ABEE93B1
+magnet:?xt=urn:btih:BD7CDB990E375FA4DD73EEC23D7B31E361CBAF9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276979   (787253) от 18.01.2019
+
+iShowU Instant (Advanced) 1.2.11(beta version) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787253.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный редактор видео поможет вам записывать видео и аудио контент, а затем обработать результаты, сделать свои собственные аннотации, и многое другое.
+
+iShowU Studio предоставляет эффективные инструменты для редактирования видео в стильной, организованной среде, и направлена на оказание помощи для создания качественных проектов, не тратя слишком много времени.Тип издания: macOS SoftwareРелиз состоялся: 11.12.2018Разработчик: shinywhitebox ltdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0CA9770A729F357811063AF1D845B0EA83AD21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276953   (787252) от 18.01.2019
+
+Eloy de Jong - Kopf aus - Herz an (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Schritt fur Schritt
+02. Repeat
+03. Eloy de Jong, Marianne Rosenberg : Liebe kann so weh tun (im Duett mit Marianne Rosenberg)
+04. Risiko(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CE82385EF2B4F8A8C2E77546651D4DF05F0457E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276810   (787251) от 18.01.2019
+
+Hedge 18.3.9 [Multi/Ru]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787251.jpg" />
+</div>
+
+
+###  Подробнее
+
+Резервное копирование и проверка файлов
+Есть много вариантов, когда речь заходит об утилитах копирования и проверки. Одна из новейших программ, называется Hedge For Mac. Hedge For Mac позволяет пользователю создавать несколько резервных копий своих мультимедийных носителей и полностью проверять эти копии. Программа использует очень простой пользовательский интерфейс, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2019Разработчик: hedgeformacПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87AE6FB57EFFDC657200255CE0E6F7593BAABFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276831   (787250) от 18.01.2019
+
+Г. Н. Голиков | Очерк истории Великой Октябрьской социалистической революции (1959) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787250.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1917 году над миром взошло солнце Великого Октября, озарившее своим немеркнущим светом путь поступательного развития человечества к светлому будущему — коммунизму. Впервые в жизни общества совершилась самая грандиозная по масштабам, самая глубокая по своим задачам и целям социальная революция, осуществившая вековые чаяния трудящихся о свободной и счастливой жизни; (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37BBD6ABD90BD9D20043448FA09B67D5E99A07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276823   (787249) от 18.01.2019
+
+Adverb - Collection 6 Releases (2013-2019) Etoka Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Deep Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Volatile (07:54)
+ 02. Dub Protocol (09:30)
+ 03. Manipulate (05:28)Тип издания: WEBЖанр: Dub Techno/Deep TechnoПродолжительность: 00:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5A5FC6C0377290EEAFD78F6E61B62ABAE2AB36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276921   (787248) от 18.01.2019
+
+TextSoap 8 v8.4.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787248.jpg" />
+</div>
+
+
+###  Подробнее
+
+TextSoap для Mac OS - Поможет подчистить текстовые документы различных форматов. TextSoap удалит из текста ненужные символы, пробелы и отступы. Грамотно отформатирует параграфы и устранит множество других проблем и ошибок в оформлении, позволив придать документу желаемый, опрятный вид. TextSoap автоматически исправляет множество проблем и ошибок в тексте, экономя (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Unmarked Software, LLCПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF77FF9DD8488133D003F911623F6B6222B3C0D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276843   (787247) от 18.01.2019
+
+VA - Markus Schulz - Global DJ Broadcast Top 20 January (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Jam El Mar - Lotus (Extended Mix)
+02. Moogwai - Viola (Elevation Extended Remix)
+03. Fisherman - The JaguarЖанр: TranceПродолжительность: 02:21:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7831F7349E573352D0A764236ED6ED5BC0687EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277037   (787246) от 18.01.2019
+
+Aesop Rock & TOBACCO are Malibu Ken - Malibu Ken (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corn Maze (3:23)
+02. Tuesday (3:30)
+03. Save Our Ship (3:29)
+04. Sword Box (4:01)(   Читать дальше...   )Производство: Rhymesayers - 826257025661Жанр: Hip-HopПродолжительность: 00:34:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486651C77CD7F3E5887C5ED7A9E91B8DA3026C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277011   (787245) от 18.01.2019
+
+Анеко Юсаги | Становление Героя Щита [Книга 11] (Adrenalin28, 2017) [m4b|HE-AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787245.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановление деревни Рафталии идёт полным ходом по всем фронтам: появление новых жителей, строительство, обучение ремёслам, повышение уровней. Но лояльная гвардия - это одно. А вот то, что три других священных героя по-прежнему в бегах - реально проблема. Слабые, разрозненные, сбитые с толку, они могут не только наломать дров, но и попросту погибнуть, чего нельзя (   Читать дальше...   )Тип издания: аудиокнига своими рукамиЖанр: ЛитРПГ, Фэнтези, ПриключенияФормат: m4b
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:429BA3DFCC730A0C6640FD172C6CB1B6D571DB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276804   (787244) от 18.01.2019
+
+MarginNote 3 v3.2.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787244.jpg" />
+</div>
+
+
+###  Подробнее
+
+Делать аннотации и примечания к книгам, организовывать их в карты разума или быстро создавать карточки, чтобы быстрее запоминать их содержимое. MarginNote предлагает новый подход к чтению книг и созданию ярких, примечательных или аннотаций. Утилита отслеживает каждую запись и позволяет вам организовывать данные в карты разума или карточки.
+
+Независимо от вашей профессии, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: Sun MinПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, традиционный китайский и упрощенный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40874E390AF53E50B4091A8F12EDB2F1E9CE6914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277014   (787243) от 18.01.2019
+
+Анеко Юсаги | Становление Героя Щита [Книга 12] (Adrenalin28, 2017) [m4b|HE-AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Наофуми продолжает развивать и укреплять деревню, не забывая и о собственных тренировках. А тем временем верные рабы находят яйцо самого настоящего летающего ездового дракона, ещё не подозревая, к чему приведёт такая удачная находка...Тип издания: аудиокнига своими рукамиЖанр: ЛитРПГ, Фэнтези, ПриключенияФормат: m4b
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63CDF3D11F80F3295E2A3CFBFF55C0E6AA3632AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276959   (787242) от 18.01.2019
+
+Sabu - Sabu (1979) LP [MP3|320 Kbps] <Electronic, Funk/Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Rollin' (7:17)
+02. We're Gonna Rock (7:23)
+03. You're Mine Forever (5:48)
+04. Loose Lucy Is On The Loose (6:40)(   Читать дальше...   )Жанр: Electronic, Funk/Soul, DiscoПродолжительность: 00:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E98BD63DD87D00CE8F2E30BF8608488345840A88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276964   (787241) от 18.01.2019
+
+A-Zippr 1.2 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787241.jpg" />
+</div>
+
+
+###  Подробнее
+
+A-Zippr - это простая, быстрая и мощная утилита для открытия zip, RAR и других архивов, таких как 7z, SIT, TAR и 70 различных форматов файлов, и сжатия в 8 широко используемых форматах архивов. Это сделано вручную, чтобы сделать его наиболее настраиваемым для архивирования и разархивирования файлов на MAC.Тип издания: macOS SoftwareРелиз состоялся: 28.01.2019Разработчик: AppYogi SoftwareПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB2F8EA5B334674C02B4C544E19B50D1A36657E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276916   (787240) от 18.01.2019
+
+Silverstack Lab 6.4.9 [En]
+
+>>Программы для macOS
+>>Аудио и видео редакторы для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787240.jpg" />
+</div>
+
+
+###  Подробнее
+
+Silverstack Lab - это первое программное обеспечение, которое позволяет одновременно обрабатывать и  управлять данными и создавать ежедневные заметки в одном инструменте. Резервное копирование видеозаписей может быть надежно организовано и прозрачно - в то же время можно создавать ежедневные газеты. Благодаря такому одновременному подходу все цифровые активы становятся (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2019Разработчик: Pomfort GmbHПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8424BEF7D91D02217F3E13A3C9FFFE1D9F856EC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276790   (787239) от 18.01.2019
+
+Анеко Юсаги | Становление Героя Щита [Книга 8] (Adrenalin28, 2016) [m4b|HE-AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787239.jpg" />
+</div>
+
+
+###  Подробнее
+
+Смело прыгнув в портал, ведущий в параллельный мир, в погоне за Кё, Наофуми оказывается в странном месте. Все уровни его развития обнулились, в руке самый примитивный щит, а рядом из всех спутников только Лисия. Что произошло? Что это за странные монстры? Где все? И что это за симпатичная девушка с удочкой наперевес, ловко уделывающая монстров?Тип издания: аудиокнига своими рукамиЖанр: ЛитРПГ, Фэнтези, ПриключенияФормат: m4b
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0AD5429704A07DAE8F5359652C572B76488D67B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276846   (787238) от 18.01.2019
+
+VA - Black Hole Trance Music 01-19 (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Profetik Feat. Mandy Jones - Memories (Extended Mix)
+02. Orkidea - Forward Forever (Extended Mix)
+03. Maarten De Jong - Goodbye (Extended Mix)
+04. Myon & Late Night Alumni - Hearts & Silence (Super8 & Tab Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31539303922E83B569F86F12658E50DAA715211
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276783   (787237) от 18.01.2019
+
+Maggie Rogers - Heard It In A Past Life (2019) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give a Little (03:46)
+02. Overnight (03:20)
+03. The Knife (03:59)
+04. Alaska (03:08)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDFA7E44AF2D604C8A90F5319439E39EA4289CC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276784   (787236) от 18.01.2019
+
+Анеко Юсаги | Становление Героя Щита [Книга 9] (Adrenalin28, 2016) [m4b|HE-AAC]
+
+>>Аудио и Видео
+>>Аудиокниги (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перешагнув границы между мирами, Герой Щита вот-вот готов настигнуть злодея Кё, хитроумного обладателя Клановой Книги, похитившего энергию зверя-защитника Лингуя, чем поставил мир, защищаемый Наофуми, на грань уничтожения. Осталось всего-то собраться с силами, да взять штурмом убежище коварного врага. Отчаянная погоня приближается к своей жестокой развязке.Тип издания: аудиокнига своими рукамиЖанр: ЛитРПГ, Фэнтези, ПриключенияФормат: m4b
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42A39815D1AF96F573215E6DB4EBBD2BB0CFC49
 ```
 
 https://mybot314.ru/tekegram_catalog/

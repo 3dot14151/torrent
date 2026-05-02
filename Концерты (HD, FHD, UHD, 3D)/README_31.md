@@ -1,3 +1,88 @@
+###  Публикация: 955862   (324870) от 20.11.2015
+
+Bon Jovi - Live At Nokia Theatre (2005) HDTVRip [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Живое выступление 19 сентября 200501. Last Man Standing
+02. You Give Love A Bad Name
+03. Livin` On A Prayer
+04. Born To Be My Baby(   Читать дальше...   )Жанр: Музыкальный
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1C2BC38580FCF8B3490672273B135C658AA34C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 955557   (324836) от 20.11.2015
+
+Bon Jovi - Rock in Rio V (2013) HDTVRip [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's What the Water Made Me
+02. You Give Love a Bad Name
+03. Raise Your Hands
+04. Runaway(   Читать дальше...   )Жанр: МузыкальныйАктеры: Bon JoviПродолжительность: 2:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:657A7CA24F35ED4E0B12D828C2DEA7045A7E57CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181212   (323359) от 07.11.2017
+
+Концерт Димы Билана. Билан 35 - Неделимые (2017.11.06) HDTV [H.264/1080i-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Певец, композитор, актер, самый эмоциональный и искренний наставник шоу "Голос" Дима Билан представляет грандиозный концерт в честь своего 35-летия.
+"Песни разные, но каждая прочувствована, в каждую вложено очень много. Некоторые полны драматизма, другие лиричны, третьи исполнены противоречий и даже ребячества. Композиции, проверенные временем - это (   Читать дальше...   )Телекомпания: Первый канал HDЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: ~ 01:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E0F9843CEE8B18F1FD2C17017B816A4BE52F67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958215   (323246) от 21.11.2015
 
 Roger Waters - The Wall (2015) [H.264] BDRip [H.264/1080p]
@@ -638,90 +723,6 @@ The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) BDRip [1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B75FB2C41D84A85B928D96E49B6D0324B2EA0DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 846015   (303670) от 01.12.2014
-
-Depeche Mode - Alive In Berlin (2014) WEB-DL 1080p
-
->>След.
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Welcome To My World
-03. Angel
-04. Walking In My Shoes(   Читать дальше...   )Жанр: Документальный, Музыка, КонцертРежиссер: Anton CorbijnАктеры: David Gahan, Martin Gore, Andrew Fletcher и приглашенные музыканты.Перевод: ОтсутствуетЯзык субтитров: English, Francais, Deutsch, Italiano, EspanolПродолжительность: 02:34:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85AC5159329A61F384C6E7E1EC2408821A68295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077946   (302216) от 30.11.2016
-
-Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302216.jpg" />
-</div>
-
-
-###  Подробнее
-
-В июне 2016 года легендарный гитарист Ричи Блэкмор (Ritchie Blackmore) воплотил в жизнь мечты многих фэнов, возродив свою группу RAINBOW для трех выступлений в Европе – двух в Германии и одного в Англии. Немецкие шоу в Лореляе и Битигхайме были запечатлены на видео и легли в основу релиза под названием "Memories In Rock - Live In Germany", который увидел (   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Hard RockПродолжительность: 01:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E5E0FDF772D65D9BF64586D03A5F721383B5D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078204   (302184) от 30.11.2016
-
-The Rolling Stones: Havana Moon (2016) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302184.jpg" />
-</div>
-
-
-###  Подробнее
-
-В ноябре 2016 года The Rolling Stones на лейбле Eagle Rock выпускают «HAVANA MOON (LIVE)» сразу в нескольких форматах: на Blu-ray, DVD, CD и в цифровом виде. 25 марта 2016 года состоялось уникальное событие - знаменитая британская группа The Rolling Stones приехала на Кубу, чтобы сыграть первый рок-концерт на Острове свободы. Тысячи людей собрались, чтобы послушать (   Читать дальше...   )01. It's About Time...
-02. Jumpin' Jack Flash
-03. It's Only Rock 'N Roll (But I Like It)
-04. Out Of Control(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Clasic Rock, КонцертРежиссер: Paul DugdaleСубтитры: Английские, немецкие, испанские, французские, итальянские, португальские, нидерландскиеПродолжительность: 01:50:05 + 00:28:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD9844E8AA4695A815803048B93D6A6B9A24562
 ```
 
 https://mybot314.ru/tekegram_catalog/

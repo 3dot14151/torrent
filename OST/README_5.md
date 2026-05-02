@@ -1,3 +1,62 @@
+###  Публикация: 1381165   (829743) от 05.05.2020
+
+Terry Scott Taylor - Neverhood Songs (1996) [MP3|192 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klayman Shuffle
+02. Olley Oxen Free
+03. Everybody Way Oh
+04. Rock'n'Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E6C3377A2FD3DA8294985027BC93EF7E193FB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005754   (828801) от 11.04.2016
+
+Аквариум и Борис Гребенщиков - Live "Весенний концерт" БГ60, Самара, КРЦ "Звезда", (2014) [AC3 5.1|448 кб/с] <Рок>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828801.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче аудио-дорожка (с потрековой разбивкой) от видеозаписи концерта, состоявшегося 25.05.2014г. в Самаре. Запись из зала "с воздуха".
+Видео можно найти >здесь< и >здесь<.01. Intro
+02. Губернатор
+03. Праздник Урожая Во Дворце Труда
+04. Не Было Такой И Не Будет(   Читать дальше...   )Жанр: РокПродолжительность: 02:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F65ACCCE8764770469A5088B085C02CDD2CB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381191   (827730) от 06.05.2020
 
 Terry Scott Taylor - Return To The Neverhood (Comic Book Soundtrack) (2012) [MP3|320 Kbps] <Soundtrack>
@@ -684,64 +743,6 @@ Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBA47AB3D833458B7F3FFB2421A8021A107A898E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119767   (805123) от 29.03.2017
-
-Clinton Shorter - The Expanse / Пространство - Season One (Original Television Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Expanse (01:04)
-02. Hostage (03:13)
-03. Signal (02:10)
-04. Welwala (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D34BC278818AABA31C62F21E7D9C621222A4A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119978   (805013) от 29.03.2017
-
-VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundtrack) (2017) [MP3|320 кб/с]<Rock, Rock & Roll, Jazz>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chambers Brothers - Time Has Come Today (11:02)
-02. Minh Xuan & Phuong Hoang - Mat Troi Den (Black Sun) (03:03)
-03. Jefferson Airplane - White Rabbit (02:31)
-04. The Hollies - Long Cool Woman (In A Black Dress) (03:18)(   Читать дальше...   )Жанр: Rock, Rock & Roll, JazzПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36BBEDDCB291A1E6208848EDB4E2C9FB48178E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

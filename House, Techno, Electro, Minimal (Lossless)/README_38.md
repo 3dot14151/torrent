@@ -1,3 +1,32 @@
+###  Публикация: 689841   (569841) от 15.08.2013
+
+VA - Eclettica (Compiled By Glass Coffee) - 2013 [FLAC|Lossless|WEB-DL|KLCD 081 ]<Deep House, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haraket - Taint (Mokadem remix)
+02. Glass Coffee - Shining Love
+03. Nosaj Thing - Eclipse/Blue (feat Kazu Makino)
+04. Allone - Look At The Doorway Boys(   Читать дальше...   )Жанр: Deep House, ElectronicПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07502A6E5D9CC94FC78CBAFBE5673BBCEC791A85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304008   (569485) от 23.05.2019
 
 Useless - Urban Jungle (1997) Single [FLAC|Lossless|tracks + .cue] <Techno>
@@ -713,35 +742,6 @@ Armin van Buuren - Feel Again Part 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7B35BCBFB25B7669F02E55A7F0F955E36DF76DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236040   (556277) от 15.07.2018
-
-VA - Schneeweiss 9 (Presented by Oliver Koletzki) (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monolink - Swallow (Oliver Koletzki remix) (07:16)
-02. Midas 104 - Carry On (07:45)
-03. Andhim - Stay Close To Me (feat Hogni) (07:28)
-04. Eagles & Butterflies - The Last Dance (09:24)(   Читать дальше...   )Жанр: Deep House, Tech House, TechnoПродолжительность: 03:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C141765342168FFC54442E6D95186591CE20CA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1422963   (302387) от 12.11.2020
+
+Final Conflict - The Rise Of The Artisan (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rise Of The Artisan (09:15)
+ 02. Life #1 (05:07)
+ 03. A Clockwork Echo (06:30)
+ 04. Stop & Stare (05:59)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:01:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00AD25E103EE61301940FEAEB5DCC223F9632A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1333719   (301586) от 26.10.2019
 
 Syrinx - Meteora (1980) LP [MP3|320 Kbps] <Electronic, Krautrock>
@@ -722,35 +751,6 @@ VA - Top Of The Pops 1979 (2007) CD, Compilation [MP3|320 Kbps] <Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A869E3EFA771048DAF54051C220533F2D5DBE799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335173   (289752) от 01.11.2019
-
-Peter Felippi - Blue Light (1982) LP [MP3|320 Kbps] <Electronic, Krautrock, Synth-pop, Ambient>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tageseifer (Keep Cool) (4:23)
-02. Dschungel (The Lost Ark) (5:43)
-03. Ambivalenz (6:01)
-04. Traumland (3:49)(   Читать дальше...   )Жанр: Electronic, Krautrock, Synth-pop, AmbientПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:807CB125662C9C3F5EAF39244AD242360FA44A2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

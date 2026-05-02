@@ -1,3 +1,119 @@
+###  Публикация: 1429972   (175165) от 08.12.2020
+
+VA - The R&B and SOUL Room (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papik - Sunny (Sunrise edit) (03:14)
+02. The Tangram - Awesome (03:48)
+03. Giorgia Zantei - Daughters (03:35)
+04. Lehmanns Brothers - I Wanna Be (05:00)(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 01:18:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6798AA6820FB732E4236A211B723F8D03FB60576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285725   (175015) от 10.10.2023
+
+Bill Perry - 9 Albums (1996 - 2011) 13 CD [FLAC|Lossless|tracks + .cue|image + .cue] <Modern Electric, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175015.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bill Perry (Уильям Сэнфорд Пэрри) родился и вырос в Честере, штат Нью-Йорк (25.12.1957 - 17.07.2007) - выдающийся американский блюзовый гитарист, певец, автор многочисленных песен, широко известный и гастролировавший по США и странам Европы. Билл начал играть на гитаре с 5 лет, в 13 лет уже участвовал в конкурсах талантов, играл в школьных группах, а к 1988 году (   Читать дальше...   )Список альбомов:
+1996 - Love Scars
+1998 - Greycourt Lightning
+2001 - Fire It UpЖанр: Modern Electric, Blues-RockПродолжительность: 11:33:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD67B02F73C709B96D0C096AFCFD1D9AA366C1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595890   (174153) от 08.12.2022
+
+Mick Kolassa - For The Feral Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running To You (2:46)
+02. Elegant Angel (3:58)
+03. Feeling Alright (6:11)
+04. Love Ain’t Supposed to Make You Cry (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679864AE92701CAA4F1FBB1C8728D01072BC4E97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595868   (174141) от 08.12.2022
+
+Blue Largo - Got to Believe (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,  Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A World Without Soul (6:08)
+02. Got to Believe (4:27)
+03. Soul Meeting (6:57)
+04. What We Gotta Do (5:33)(   Читать дальше...   )Жанр: Blues,  SoulПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B72B7470400F7D1B74EEECA4C18BA0A65A690C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595882   (174135) от 08.12.2022
 
 Kerosene Drifters - The Gun Announced Go (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ VA - Highway Boys - Country for the Road (2022) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF25A249C9A5B021136886D02A30F7F3FD9FD26B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672372   (169513) от 28.10.2023
-
-Joni Dangelo - NOW (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Everybody (4:59)
-02. She´s So fine (3:23)
-03. I´m Doing Better (4:43)
-04. Home Sweet Home (6:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D7D2A3AEAB462B408583F9C018678855B92E71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672373   (169464) от 28.10.2023
-
-Pacome (Pacôme) Rotondo - World of Confusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep With the Devil (3:26)
-02. Love Means Life (4:13)
-03. Burning Winds (3:32)
-04. Dancing Queen (4:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5146393357249FA5EC9EC2C5511A99AC7CC5A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672369   (169452) от 28.10.2023
-
-Frank Leguen - Rockin' the Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' the Blues (3:22)
-02. Tourist Blues (3:28)
-03. Sleepin' on the Street Blues (2:46)
-04. Eating Fish Again (5:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12E9BD87A70FEB9CA27CB7948E7BF595EAFF553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672310   (169446) от 28.10.2023
-
-VA - Groovy Blues & Jazz Mix (Male Singer-Songwriters Vol. 1) (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JJ Soul Band - Really Wild (2:49)
-02. David Becker - Kiss Me Baby (2:30)
-03. JJ Soul Band - At the Mall (2:53)
-04. James Kahu - Everything (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46525F3E5B320213FB223C4F88EB5E5B3DB51C3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

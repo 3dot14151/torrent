@@ -1,3 +1,177 @@
+###  Публикация: 1536471   (244006) от 12.03.2022
+
+David Essex - Rock On (1973) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244006.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Lamplight
+A2 Turn Me Loose
+A3 On And On
+A4 Streetfight(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDB6FEEFB2105AEBD52597198BD5C62A11236A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271662   (243948) от 03.08.2022
+
+The Philharmonia Slavonica. Henry Adolph Conducting - Ballet Music (Schubert, Tchaickovsky, Strauss, Verdi, Delibes, Rubenstein) (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+01. Adolphe Adam - ''Giselle''
+02. Franz Schubert - ''Rosamunde''
+(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7B27C7CCF2A0341908D3E180F3CA3D1F325508A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626412   (243825) от 14.04.2023
+
+Bucks Fizz - Writing On The Wall (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Europop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243825.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 New Beginning
+A2 You And Your Heart So Blue
+A3 Soul Motion
+A4 Magical(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E89FC969B8A8DF38CA19B97AD69536A4939BC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1626634   (243704) от 15.04.2023
+
+Barclay James Harvest - Gone To Earth (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243704.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Hymn - 5:05
+A2 - Love Is Like A Violin - 4:00
+A3 - Friend Of Mine - 3:33
+A4 - Poor Man's Moody Blues - 6:57(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E539E3075190C0CD52FB0717FAA74B039D6333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632846   (243695) от 12.05.2023
+
+Симф. Орк. Лен. Гос. Филармонии, дир. Е. Мравинский - Beethoven - Symphony No. 5 in C minor, Op. 67/Бетховен – 5-я Симфония До Минор, Соч. 67 (1961) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Class ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243695.jpg" />
+</div>
+
+
+###  Подробнее
+
+Л. Бетховен
+A1 1 Ч. – Allegro Con Brio
+A2 2 Ч. – Andante Con Moto
+B1 3 Ч. – Scherzo. Allegro(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE52C4596224ADEFDA85FDA277877F012F97E21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623202   (243651) от 01.04.2023
+
+Samantha Fox - Touch Me (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243651.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Touch Me (I Want Your Body) 3:44
+A2 I'm All You Need 4:25
+A3 Suzie, Don't Leave Me With Your Boyfriend 3:54
+A4 Wild Kinda Love 3:33(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E773B3FBA6941AA63F5E49F9A4743251D2143C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1542187   (243620) от 06.04.2022
 
 Lindemann (Rammstein, Pain) - Studio Albums (2015-2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Industrial Metal>
@@ -565,180 +739,6 @@ B2 III. Allegro Vivance(   Читать дальше...   )Жанр: Classical, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:859C363F4EC2DFB100ACF6E5157A4D94890FAA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624613   (242217) от 07.04.2023
-
-Dire Straits - Love Over Gold (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242217.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		Telegraph Road	14:20
-A2		Private Investigations 7:00
-
-B1		Industrial Disease	5:50(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5689AEFC2971FB9349215EB5769616E33F1CF2BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628253   (242193) от 22.04.2023
-
-VA - Мамина Пластинка (1991) Compilation [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242193.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Людмила Зыкина - Милая Мама
-А2 Дмитро Гнатюк - Ридна Мати Моя
-А3 Евгений Мартынов - Мамины Глаза
-А4 Валентина Толкунова - Поговори Со Мною Мама(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4AD04C121AD55CCD779A5F7B3426D392DF983E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569375   (242025) от 12.08.2022
-
-System of a Down - Studio Albums (6 releases) (1998 - 2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Nu Metal, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242025.jpg" />
-</div>
-
-
-###  Подробнее
-
-System of a Down (SOAD) — армяно-американская альтернатив-метал-группа, образованная в 1992 году в Лос-Анджелесе Сержем Танкяном и Дароном Малакяном под названием Soil, а в 1995 принявшая нынешнее название.1998 - System of a Down
-2001 - Toxicity
-2002 - Steal This Album!
-2005 - MezmerizeЖанр: Nu Metal, Heavy MetalПродолжительность: 03:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B52FC75A5D695BEDD3F19D3BACF06980CD2F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628389   (241973) от 23.04.2023
-
-Pet Shop Boys - Fundamental (2006) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psychological
-02. The Sodom And Gomorrah Show
-03. I Made My Excuses And Left
-04. Minimal(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A5187987BAECCFCCFD2433ACC6B1CA0F83A8CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624515   (241857) от 07.04.2023
-
-Алексей Глызин - Зимний сад (1990) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241857.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона A
-
-A1 Зимний сад
-A2 Африка(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22C4D5475C42CBA2075D845E1B8F7DB34A49285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628810   (241807) от 24.04.2023
-
-Kaja - Crazy Peoples Right to Speak (1985) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241807.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Do I
-A2 Shouldn't Do That
-A3 Your Appetite
-A4 Rivers(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FDFDCBE2C468F6C9F04B51657C0E345DA18C741
 ```
 
 https://mybot314.ru/tekegram_catalog/

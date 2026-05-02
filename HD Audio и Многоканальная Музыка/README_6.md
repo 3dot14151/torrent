@@ -1,3 +1,148 @@
+###  Публикация: 1461333   (1021778) от 10.04.2021
+
+Московский Камерный Оркестр. J. S. Bach – Brandenburg Concertos No. 1 in F Major BWV 1046 And No. 5 In D Major BWV 1050 (1981) [FLAC 2.0|192/24|image+.сue] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бранденбургский Концерт № 1 Фа Мажор, BWV 1046
+Violino Piccolo – Л. Полеес
+A1 Allegro
+A2 Adagio /  Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4708F9F7766C376C67139FD645986D2FFE5259A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461534   (1021712) от 10.04.2021
+
+Органная музыка. Антонио Вивальди - Времена Года (1984) - Евгения Лисицина (переложение для органа Е. Лисициной) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto E-dur , Op. 8 No.1, RV 269, ''Spring''/ми мажор, RV 269 «Весна»
+A1 Allegro
+A2 Largo
+A3 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5236157746BB91CE3AFF3CE651C42D4B7DFA30AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461738   (1021607) от 11.04.2021
+
+Ивао Судзуки - Гитара (1985) 1970, mono (repress) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021607.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Шесть Пьес Для Лютни
+A2 Павана
+A3 Матацин (Медленный Испанский Танец)
+A4 Прелюдия Из Сюиты №1 Для Виолончели(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:47:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21480DE1E677ECB37545423534545BAA5F3B1E58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461760   (1021538) от 11.04.2021
+
+Эдвард Григ - Пер Гюнт (1967) БСО Всесоюзного Радио, дир. Г. Рождественский [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пер Гюнт. Сюита N1, соч.46.
+A1 Утро / Dawn
+A2 Смерть Озе / Death Of Ase
+A3 Танец Анитры / Anitras's Dance(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A67462BC9BE8EFDE94623495A684805E25CF81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1463635   (1020248) от 19.04.2021
+
+Гарри Гродберг, орган - И. С. Бах. Токкаты (1989) 1971 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020248.jpg" />
+</div>
+
+
+###  Подробнее
+
+И. С. Бах (1685 - 1750)
+A1 Токката Ре Минор, B.565 / Toccata And Fugue In D Minor, S. 565
+Токката До Мажор, В.564 / Toccata, Adagio And Fugue In C, S. 564
+A2.1 Allegro(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F44E0BE346DD97196F02438510A01DA24385EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1463610   (1020216) от 19.04.2021
 
 И. С. Бах - Искусство Фуги. Московский Камерный Оркестр, дир. Р. Баршай (1984) 1972 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Classical, Baroque>
@@ -605,172 +750,6 @@ Korn - 8 альбомов (1995-2010) [FLAC 2.0 24/192 |image + .cue (Vinyl-Rip)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:529269659F8620015C01834221DB0789AD68489F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601413   (998297) от 10.01.2013
-
-Янка Дягилева - 4 кассеты (1988-1989) [APE 2.0 16/48|image+.cue (MC-Rip)]<Acoustic, Post-Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998297.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Acoustic, Post-PunkПродолжительность: 00:45:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0FCC7D753A8217534AD6EB0310235F119E4555E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601463   (998265) от 10.01.2013
-
-Чайф - 25 лет выдержки (2012) [WavPack 2.0 24/192 |image (Vinyl-Rip)]<Blues Rock, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998265.jpg" />
-</div>
-
-
-###  Подробнее
-
-LP1
-01. Шаляй-Валяй 2:58
-02. Кот 3:33
-03. Вольный Ветер 3:38
-04. Белая Ворона 3:04
-05. Оранжевое настроение 3:50
-06. Ой-Йо 4:26
-07. Всему Свое Время 3:37
-08. Давай Вернемся 5:29
-09. Поплачь О Нем 5:17Жанр: Blues Rock, AcousticПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AE7649474E6938373977D5CCE373FB407794CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601499   (997997) от 11.01.2013
-
-Ольга Кормухина - За гранью слов (1991) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ангел 3:10
-02. Ночь 3:34
-03. Желтая Дорога 3:47
-04. Плывущее Кафе 4:01
-05. Мне Уже Легко 3:13
-06. Алена 4:01
-07. Прощай 3:45
-08. Будь Со Мной 3:37
-09. Эпилог 3:23
-10. Корабль 3:25Жанр: RockПродолжительность: 00:35:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EDE047D20A25C8D40C182E5528C885AD093370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602537   (997489) от 13.01.2013
-
-Cyndi Lauper - She's So Unusual (1983) [FLAC 2.0 96/24|image (vinylRip)]<Contemporary Pop/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Money Changes Everything (5:04)
-02. Girls Just Want to Have Fun (3:57)
-03. When You Were Mine (5:05)
-04. Time After Time (4:01)
-05. She Bop (3:51)
-06. All Through the Night (4:31)
-07. Witness (3:39)
-08. I'll Kiss You (4:11)
-09. He's Son Unusual (0:46)
-10. Yeah Yeah (3:13)Жанр: Contemporary Pop/RockПродолжительность: 00:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08DE481F3E2E6CD4D024C9271EC82EFECC054612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603794   (996913) от 15.01.2013
-
-Гражданская Оборона - Звездопад (2011) [FLAC 2.0 24/96|image + .cue (Vinyl-Rip)]<Post-punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996913.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Песня Красноармейца 2:37
-A2. Песня О Циркаче 2:40
-A3. На Дальней Станции Сойду 4:28
-A4. Шла Война 3:09
-A5. Звездопад 2:58
-B1. Ветер Северный 2:08
-B2. Город Детства 5:07
-B3. На Всю Оставшуюся Жизнь 3:06
-B4. Слово - Товарищ 2:51
-B5. Каравелла 2:54(   Читать дальше...   )Жанр: Post-punkПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600F9F1D454EA5A2F649A031DFD80B2D7DB585E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1867473   (1067060) от 27.04.2026
+
+VA - Audio Testing Guide Test Machine No. 1 (2008) K2HD mastering [WAV|Lossless|tracks] <Classic, Folk, Pop>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Symphony Victory Overture (2:39)
+02. A World Apart by Water (Vocal) (3:37)
+03. The Four Seasons – Violin Rhapsody (3:22)
+04. Smoke Rise Again (Vocal) (4:16)(   Читать дальше...   )Жанр: Classic, Folk, PopФормат: 44.1 kHz / 16‑bit / StereoПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A578BD3DAB7294DAB37611F6FF77BF98FA2681E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1850400   (1054615) от 30.01.2026
 
 Crystal Lake - The Weight of Sound (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, progressive-metal, nu-metal, deathcore>
@@ -725,36 +754,6 @@ VA - Rose Quartz. The Rose Quartz Of Buddist (2005) [MP3|320 кб/с]<New age, I
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0CD60B37100EDE7B66F5A0D74848FA6B96DB1CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 597117   (1000485) от 02.01.2013
-
-VA - Crystal Avolokitesvara (2006) [MP3|320 кб/с]<New age, Relax>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000485.jpg" />
-</div>
-
-
-###  Подробнее
-
-(15:07) 1. Namo Avolokitesvara
-(15:34) 2. Avolokitesvara water purification
-(15:33) 3. Flower of Avolokitesvara
-(15:27) 4. Crystal Avoloitesvara
-(11:54) 5. Great MercyЖанр: New age, RelaxПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F7B8F941050A8E9673C32CEB74B0E3A8FA36E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,64 @@
+###  Публикация: 605041   (996236) от 18.01.2013
+
+Paolo Meneguzzi - Best Of - Sei Amore (2011) [MP3|320 кб/с]<pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sei Amore (3:41)
+02. Love (3:36)
+03. Musica (3:45)
+04. Imprevedibile (3:34)
+05. In Nome Dell'amore (3:31)
+06. Lei E (3:20)
+07. Verofalso (3:16)
+08. Non Capiva Che L'amavo (3:29)
+09. Quel Ti Amo Maledetto (3:59)
+10. Baciami (3:12)(   Читать дальше...   )Жанр: popПродолжительность: 01:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0173AFB4FEF73242AF4C786AE3B04385123C4FF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 604974   (996235) от 18.01.2013
+
+Сагалассос Забытый город / Sagalassos The forgotten city (2003) TVRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одним из главных городов римской провинции Писидия, находившейся на территории современной Турции, был Сагалассос. Расцвет города длился более трех столетий, но после эпидемии чумы и сильного землетрясения жители покинули город, память о нем стерлась. Лишь в XIX веке случайно была найдена надпись с упоминанием Сагалассоса, начались раскопки забытого города.Жанр: ДокументальныйРежиссер: Филипп АксельПеревод: Двуголосый закадровый, профессиональныйПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184956BB31B58D8020A17CD8A9AC62CE6726CBF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604586   (996231) от 18.01.2013
 
 VoxCor - Глава III: Мистерия (2013) [MP3|320 kbps] <Power Metal>
@@ -672,58 +733,6 @@ HQ Wallpapers for a desktop (13.01.13) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F331D5DE92FE80769EF46FE762804060D38C776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602913   (996153) от 18.01.2013
-
-Computer Desktop Wallpapers Collection (2/2013) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельный сборник Computer Desktop Wallpapers Collection для рабочего стола от FedExe ®Разрешение файлов: 1600X1200 - 7500x4219
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:950812E1B322EC0C61F6B53E813E0B66C2F6455C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602967   (996151) от 18.01.2013
-
-Macro Wallpapers (13.01.13) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996151.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C261CA70EE8E8F41F236E0C198390D74ADF7077B
 ```
 
 https://mybot314.ru/tekegram_catalog/

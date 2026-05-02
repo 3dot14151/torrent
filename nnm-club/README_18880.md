@@ -1,24 +1,25 @@
-###  Публикация: 1193804   (261821) от 23.12.2017
+###  Публикация: 1192204   (263374) от 16.12.2017
 
-Митрополит Иерофей (Влахос) | Господские праздники (2001) [DJVU]
+Шри Шри Рави Шанкар - Собрание всех  видео лекций, выступлений, медитаций, практик (2017) DVDRip [H.264] [MP4|1280x720]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вниманию читателей предлагается перевод книги одного из известнейших современных греческих богословов, Митрополита Навпакта и Святого Власия Иерофея (Влахоса) "Господские праздники"
-Автор подробно и систематически, с привлечением богатого святоотеческого материала, анализирует богословский и литургический смысл всех двенадцати Господских праздников.
-Примеры (   Читать дальше...   )Жанр: Литургическое богословиеФормат: DJVU
+Шри Шри Рави́ Шанка́р (англ. Sri Sri Ravi Shankar, род. 13 мая 1956) — индийский гуру и общественный деятель, основатель международной организации «Искусство Жизни». Основатель международного форума «За этику в бизнесе».
+В 2009 году занял 5 место в списке 7 самых влиятельных людей Индии по версии журнала Forbes India.
+
+Автор многочисленных книг и лекций (   Читать дальше...   )Жанр: ДокументальныйПеревод: Одноголосый закадровыйСубтитры: отсутствуют
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9683C3D1DFF8032C9F2F295AFF11CA1D59A524C
+magnet:?xt=urn:btih:05346D60C27342EA2F0935D37B110D0F3B2E12CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193885   (261820) от 23.12.2017
+###  Публикация: 1192188   (263373) от 16.12.2017
 
-VA - Euro Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+Electric Light Orchestra - Face The Music (1975) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Buckingham Palace  -  Give Me Your Name  3:48
-02.  ZITA  -  Shadow  5:14
-03.  Uffe Soderberg  -  Lady Lady  3:04
-04.  Wayne Scott  -  Rambo  5:27(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:16:12
+A1. Fire On High (5:31)
+A2. Waterfall (4:12)
+A3. Evil Woman (4:35)
+A4. Nightrider (4:22)(   Читать дальше...   )Производство: Jet Records - JZ 35527Жанр: Progressive RockПродолжительность: 00:36:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABADA4B8CF1A84D57DE05E1C92820BBFB5BA4265
+magnet:?xt=urn:btih:F7CE13A300953AD0CF2FA7DE81C7CF6E5F7A4F96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -55,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193873   (261819) от 23.12.2017
+###  Публикация: 1192238   (263372) от 16.12.2017
 
-VA - Ori Uplift & Darren Porter - Uplifting Only 254 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+Acrok Video Converter Ultimate 6.0.96.1129 RePack by вовава [Ru]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Мультимедиа и Графика
+>>Нелинейный Видеомонтаж, Авторинг, Кодировщики
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.FAN FAVORITE: illitheas - Levity
-02.FAN FAVORITE: Manuel Rocca - Amortentia
-03.Ross Rayer - Dreamer (Greg Dusten Remix) (EXCLUSIVE PREMIERE)
-04.Phynn Feat. Tiff Lacey - Try Again (Arctic Moon Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:10:20
+Acrok Video Converter Ultimate – это конвертер для Blu-ray, DVD и HD видео, позволяет конвертировать в любые видео форматы и с легкостью редактировать видео. С Acrok Video Converter можно легко конвертировать Blu-ray и DVD/HD-фильмы в форматы для программ редактирования или портативных устройствах, таких как iPad Air, iPad Pro, iPhone 6, iPad Mini 4, Android планшетов (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE4B4FF09F5D2943EEBD4B66A2B942ACE9881730
+magnet:?xt=urn:btih:0CBF5899AF9793D8066317EEA557BCC78EF261D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -84,28 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194089   (261818) от 23.12.2017
+###  Публикация: 1192107   (263371) от 16.12.2017
 
-Konstantin Klashtorni - Smooth Jazz I-IV (2011-2017) 4CD [FLAC|Lossless|image + .cue] <Smooth Jazz, Chillout>
+Сделка с дьяволом / The Covenant (2006) WEBRip [H.264/720p] [Open Matte]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. If I Told You (4:02)
-02. Hills and Valleys (4:02)
-03. I Feel It Coming (4:39)
-04. Everywhere I Go (4:07)(   Читать дальше...   )Жанр: Smooth Jazz, Chillout |Продолжительность: 00:43:50
+Четыре подростка, принадлежащих к древней касте людей, обладающих сверхъестесвенными способностями, должны остановить зло, которое они сами когда-то выпустили на волю. Но, чтобы успешно справиться со своей миссией, им необходимо научиться доверять друг другу.Производство: США / Eyetronics, Lakeshore Entertainment, Sandstorm Films, Screen GemsЖанр: Фэнтези, Ужасы, Триллер, БоевикРежиссер: Ренни ХарлинАктеры: Стивен Стрейт, Лаура Рэмси, Себастьян Стэн, Тейлор Китч, Чейс Кроуфорд, Тоби Хемингуэй, Джессика Лукас, Кайл Шмид, Венди Крюсон, Стивен МакХэттиПеревод: ДублированныйСубтитры: Русские, английскиеПродолжительность: 01:37:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B08A95ADAAA319A1581A07E5FE5833BF6B2EE96
+magnet:?xt=urn:btih:41A6D713F6597DAE3372EE7D6EAE17A1FA563154
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -113,28 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193902   (261817) от 23.12.2017
+###  Публикация: 1192025   (263370) от 16.12.2017
 
-The Auranaut - Divine Ordinance (2012) Power Circle Records [FLAC|Lossless|WEB-DL|tracks] <Breaks, Downtempo, Psybient, Ambient>
+Роман Злотников, Антон Корнилов | Последняя крепость. Том 2 (2017) [MP3]
 
->>Electronic
->>Psybient, Psychill, Psydub (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Divine Ordinance (07:54)
- 02. Highway At Night (08:33)
- 03. Phazey World (07:16)
- 04. Devision Man Made Decision (06:41)(   Читать дальше...   )Жанр: Breaks, Downtempo, Psybient, AmbientПродолжительность: 01:09:57
+Твари были и будут всегда. Твари Горного Порога, Твари Северного Порога, Твари Болотного Порога… Твари Тайных Чертогов. Где бы ни жил человек, Твари непременно туда доберутся. Сколько стоит мир, столько длится война с ними. Люди учатся уничтожать одних, но приходят другие, новые… еще более сильные. Не следует томиться ожиданиями: когда же они нанесут очередной удар? (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:58:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED994382CD1FD5BDFCF4ACC6B74BBFE4CD669CE0
+magnet:?xt=urn:btih:FCD725675B0714A7ABCCB4868A790EDD2621344A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -142,28 +134,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193937   (261816) от 23.12.2017
+###  Публикация: 1192091   (263369) от 16.12.2017
 
-VA - House Party (2017) [MP3|320 Kbps] <House>
+Internet Download Manager 6.30 Build 2 RePack by KpoJIuK [Multi/Ru]
 
->>Electronic
->>House
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Basement Jaxx  -  Do Your Thing (Robbie Rivera Acid Remix)  3:33
-02.  Kristine Blond & James Hype  -  Love Shy  2:52
-03.  Inner City  -  Good Life 2017  3:16
-04.  Harry Romero  -  Revolt  3:26(   Читать дальше...   )Жанр: HouseПродолжительность: 03:26:53
+Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:532C2D8A96EE3356BC33A158665EA947EE17608B
+magnet:?xt=urn:btih:7FC3692397B9C2BFA58F8420658E36385282BEAA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -171,28 +160,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194030   (261815) от 23.12.2017
+###  Публикация: 1192270   (263368) от 16.12.2017
 
-VA - Markus Schulz - Global DJ Broadcast - World Tour - Best of (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
+Shutter Pro 4.1 + Portable [Multi/Ru]
 
->>Electronic
->>Radioshow, Live Mixes
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Gabriel Moraes - Die Hölle
-02. Mauro Picotto & Riccardo Ferri - New Time, New Place (New World Punx Remix)
-03. Ray Kajioka - Chair Encounters Keyboard (Markus Schulz Big Room Reconstruction)
-04. Solid Stone - Detox(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:45
+Компактная многофункциональная утилита для управления питанием компьютера. Вы сможете выключить, перезагрузить, перевести в режимы гибернации / сна / ждущий ваш компьютер, а также доступно отключение монитора, регулирование громкости, запуск программ, воспроизведение звуков, закрытие процессов.Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B97DF54CD8F8E97B6D8B36B83AE529FA98FA4B2E
+magnet:?xt=urn:btih:C70FA0DF0EEE5BFE8E95282F799F903439265765
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,144 +186,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193835   (261814) от 23.12.2017
+###  Публикация: 1192028   (263367) от 16.12.2017
 
-VA - Euro Disco - The Lost Legends Vol. 5 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerome - Live It Up (5:48)
-02. Thomas Marin - Nobody Loves Me (4:34)
-03. Nick Letizia - Baby Blue (6:06)
-04. De Rogue - Night Life Fashion (5:41)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:18:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9189F4E02AC1DB5CE9D8F4DDF9266459EA47E473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193957   (261813) от 23.12.2017
-
-Oliver Nelson - Black, Brown And Beautiful (1969) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aftermath [05:32]
-02. Requiem [07:09]
-03. Lamb of God [02:35]
-04. Martin Was a Man, a Real Man [04:16](   Читать дальше...   )Жанр: Post-Bop, Big BandПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9635221558ECAA43C5004947B5486965B642001
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193951   (261812) от 23.12.2017
-
-Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone (2001) Cam Jazz [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addio Fratello Crudele [07:19]
-02. Mio Caro Dottor Grasler [06:32]
-03. La Voglia Matta [04:47]
-04. Just Beyond The Horizon [06:31](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 01:04:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE96A9F5BE00DC9E7E2A4B425348858C12E6B3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193848   (261811) от 23.12.2017
-
-VA - Euro Disco: The Lost Legends Vol. 6 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mr. Freaky  -  May Day Love  4:00
-02.  Go To  -  Girl Of The 80's  7:06
-03.  Martinique  -  Fantastic Life  5:28
-04.  L'Affair  -  Don't Fly Away  3:52(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99E029E0D9469C41D85AFEA89584AA4EF757DCC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193727   (261810) от 23.12.2017
-
-Chontaraz - Rondamauh (2017) [MP3|320 Kbps] <Black Metal>
+Бригада С - Дело № 8816/АШ-5 (2017) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Eyrusalem (4:11)
- 2. Shadowfall (4:59)
- 3. Am I Evil (3:57)
- 4. Rondamauh (4:21)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:33
+Navigator Records и группа «Бригада С» впервые в истории отечественной рок-музыки издают антологию легендарного коллектива под названием «Дело 8816/АШ-5». Это беспрецедентное событие в российской рок-музыки: концептуальный проект стилизован под секретное дело, находившееся в разработке Комитета государственной безопасности, и выходит далеко за общепринятые рамки (   Читать дальше...   )CD 1 Акция «Нонсенс»
+CD 2 Аллергии - нет!
+CD 3 Всё это рок-н-ролл
+CD 4 РекиЖанр: RockПродолжительность: 07:08:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D5F1F15791C4ACB831E817B4C75BF899B5D3032
+magnet:?xt=urn:btih:CD1B24DF0B46709E0A7E43CE94E0880208E08D93
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +215,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193811   (261809) от 23.12.2017
+###  Публикация: 1192032   (263366) от 16.12.2017
 
-VA - Euro Disco - The Lost Legends Vol. 3 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
+Михаил Баковец | Дом в Африке (2017) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263366.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это второй том из цикла «Создатель эхоров», о приключениях Санлиса Рекдога в альтернативном мире, где существует официальный гаремный закон для создания семьи. Оказавшись не по своей воле в Африке, главный герой решает там задержаться, так как в этом опасном месте ему спокойнее, чем в безопасной Москве. Впереди его ждут бои с механоидами, отражение ударов исподтишка (   Читать дальше...   )Жанр: Боевая фантастика, Альтернативная историяФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01274E7556C438BFE57B47B7C07E75CA7395B3DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191970   (263365) от 16.12.2017
+
+Hi-Fi - 5 альбомов (1998-2002) [FLAC|Lossless|image + .cue] <Рор>
 
 >>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Djalana - High Stakes (3:38)
-02. Cox - China (5:45)
-03. Kado - Tonight (6:12)
-04. Tommy Young - My Life Is Wonderful (5:42)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:18:09
+1998 - Первый контакт
+1999 - Репродукция
+2001 - Запоминай
+2002 - D & J Remixes(   Читать дальше...   )Жанр: РорПродолжительность: 03:34.58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:266243AE2F6C0A04197AFFD6CACCB098AEE6ECC7
+magnet:?xt=urn:btih:EDDE08C26595C14E33F816ECE2CAB36BEA34D873
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,25 +270,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193943   (261808) от 23.12.2017
+###  Публикация: 1192213   (263364) от 16.12.2017
 
-iFinance 4.3.6 [Multi/Ru]
+WhatsApp 0.2.7315 [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261808.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-iFinance 4 позволяет вам отслеживать доходы и расходы наиболее удобным и быстрым способом. Быстрый взгляд на диаграммы позволяет оценить на что вы тратите деньги и откуда поступает доход. Оптимизация ваших финансов - оказывается это интересно! Автоматическиое назначение категорий, ключевые слова, бюджеты и анализ данные превратят ваш банковский счёт в нечто большее, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.12.2017Разработчик: Synium Software GmbHПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+WhatsApp Messenger - это кросс-платформенное приложение, позволяющее обмениваться сообщениями и при этом не платить, как за SMS. WhatsApp Messenger использует тот же тарифный план Интернета, что и электронная почта с браузером, поэтому при передаче сообщений отдельная плата взиматься не будет, и вы всегда сможете оставаться на связи с друзьями. Кроме стандартного (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A32D0050DB0B43CFF3716DEE16E352CB0540101F
+magnet:?xt=urn:btih:701C0BF2A9294AA0D63D4BA1A2970C3E9FF5D5D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -400,335 +296,391 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193892   (261807) от 23.12.2017
+###  Публикация: 1192254   (263363) от 16.12.2017
 
-Anson Funderburgh & The Rockets - Blast Off: The Best Of Anson Funderburgh & The Rockets (2006) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tell Me What Have I Done Wrong? (03:09)
-02. A Man Needs His Loving (03:40)
-03. Come On (02:47)
-04. Rambling Woman (03:03)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33D353D6F44DFD779C521907BB5C51B13AA9F6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193950   (261806) от 23.12.2017
-
-План электрификации РСФСР [2-е изд.] (1955) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261806.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1920 г. Государственная Комиссия по электрификации России (ГОЭЛРО), в обстановке не окончившейся еще иностранной военной интервенции и гражданской войны, в условиях глубочайшей хозяйственной разрухи в нашей стране, разработала рассчитанный на 10—15 лет великий государственный план переустройства народного хозяйства Советской республики на основе крупной машинной (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688C25ACDF9A727C2AC61A2DD1EE4D641C8DF672
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193679   (261805) от 23.12.2017
-
-VA - Italo Disco: The Lost Legends Vol.9 (2017) [MP3|320 Kbps] <Italo-Disco>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tom Dollar  -  Love Is Something  6:44
-02.  C'Zar  -  I Remember (Look Me Baby)  6:29
-03.  Steve Martin  -  Roxide  6:30
-04.  Laura Angel  -  lf You Want  4:29(   Читать дальше...   )Жанр: Italo-DiscoПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81EB32E2CC724313D6FAB7245068AF0D2F4060EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194082   (261804) от 23.12.2017
-
-Журнал | Дачный спец №12 (декабрь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто стремится вести свое хозяйство грамотно, с умом. В каждом выпуске вы сможете найти для себя полезную информацию от известных ученых, агрономов-практиков, садоводов-опытников.Жанр: Садоводство, растениеводство, огородничестваФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A91F4455D93BE79FE8B4CD576ED7D28B34EF80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193802   (261803) от 23.12.2017
-
-VA - Euro Disco - The Lost Legends Vol. 2 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bam Boo - Foreign East Love (5:42)
-02. Claudia Benn - Mister Hasta La Vista (6:14)
-03. Alberto D'Arco - Dai Dai Dai (Dolce Vita) (6:21)
-04. Nadia Dorine - Help Is On It's Way (5:53)(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B490F9AF53D014881030C8521433567474F8B585
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193903   (261802) от 23.12.2017
-
-Расширенное заседание коллегии Министерства обороны России (22.12.2017) WEB-DL [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Путин посетил Военную академию Ракетных войск стратегического назначения имени Петра Великого (ВА РВСН), где принял участие в ежегодном расширенном заседании коллегии Министерства обороны Российской Федерации.Производство: Президент.РФЖанр: ПолитикаПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F29C7834034E29D4467701DD4CC997608E5AD83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194093   (261801) от 23.12.2017
-
-VA - The Official UK Top 40 Singles Chart 22.12.2017 [MP3|192-320 Kbps] <Alternative, Synthpop, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Sheeran - Perfect 4:23
-02. Eminem - River (Feat. Ed Sheeran) 3:41
-03. Wham! - Last Christmas 6:49
-04. Mariah Carey - All I Want For Christmas Is You 3:58(   Читать дальше...   )Жанр: Alternative, Synthpop, OtherПродолжительность: 02:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BD29143272D3BD971146608C9C48C7BA725DD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193887   (261800) от 23.12.2017
-
-Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Complex Chemistry (06:15)
- 02. Morning Rain (06:18)
- 03. Lost In The Jungle (07:03)
- 04. Low Center Of Gravity (06:56)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7117753AFC579D5D39A3150890FA000F21FB5C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193865   (261799) от 23.12.2017
-
-VA - Euro Disco: The Lost Legends Vol.7 (2017) [MP3|320 Kbps] <Euro-Disco, Synth-pop>
-
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Elvin  -  Luggi, Luggi, Ludwig  5:26
-02.  First Cut  -  Tell Me Tell Me  7:14
-03.  Thai Break  -  Flowers In The Rain  5:38
-04.  Kenny Masters  -  Time To Fly (Sing My Song)  6:02(   Читать дальше...   )Жанр: Euro-Disco, Synth-popПродолжительность: 01:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E59EF46014199B3F35BA633370448FB027BC66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193923   (261798) от 23.12.2017
-
-Журнал | Загадки истории №51 (2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны не только журналистами, но и писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Популярный журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8034EEAABE0E4333ECA3F952311AEED78950E786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193894   (261797) от 23.12.2017
-
-Faydee - Patterns (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Pop, House>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More (3:16)
- 02. Friendzone (feat. Demarco) (3:15)
- 03. Patterns (3:29)
- 04. When I'm Gone (3:13)(   Читать дальше...   )Жанр: Pop, HouseПродолжительность: 00:16:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33E5C4B145A30DD995E3D0574AFEDC9227669A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193904   (261796) от 23.12.2017
-
-Плавание. Чемпионат Европы на короткой воде 2017. Копенгаген (Дания). 5-й День Финалы (2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Microsoft Office 2007 Enterprise + Visio Premium + Project Pro + SharePoint Designer SP3 12.0.6777.5000 RePack by SPecialiST v17.12 [Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-17 декабря 2017 года
-Чемпионат Европы по плаванию на короткой воде 2017 года.
-Копенгаген (Дания). Финалы
-5-й День(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:30:04
+Office Enterprise 2007 — самый полный набор программ корпорации Майкрософт, предназначенный для тех, кому необходимы эффективные средства совместной работы и обработки информации, доступные независимо от местонахождения пользователя или состояния сети. Пакет Office Enterprise 2007 вобрал в себя все достоинства пакета Microsoft Office Professional Plus 2007 и дополнен (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDAFDCB268171A1901CCA9513C1149FE1DD48350
+magnet:?xt=urn:btih:A55E32EA9CBD7A8D652348C563886B0F730B8975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192142   (263362) от 16.12.2017
+
+Сделано в Америке / American Made (2017) Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263362.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он был самым юным пилотом Боинга 747 в США, а уже через несколько лет стал одним из богатейших людей в Америке. Его стиль жизни был столь же экстремальным, как и его бизнес. Закрытые приемы, роскошные блондинки, крутые тачки и рисковые сделки. Он обладал талантом делать деньги из воздуха...Производство: США, Cross Creek Pictures, Hercules Film Fund, Imagine EntertainmentЖанр: Боевик, триллер, драма, комедия, криминал, биография, историяРежиссер: Даг ЛайманАктеры: Том Круз, Донал Глисон, Сара Райт, Джесси Племонс, Калеб Лэндри Джонс, Лола Кёрк, Джейма Мейс, Алехандро Эдда, Бенито МартинесПеревод: Дублированный (Лицензия BD CEE)Субтитры: Английские, турецкие, чешские, польские, индонезийские, корейские, греческие, болгарские, хорватские, эстонские, латвийские, литовские, румынские, словенские, испанские, португальские, русские, венгерские, тайские, китайскиеПродолжительность: 01:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B1BCF6BB7E25488D6EF298C91D0DFCFC7FD3A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192108   (263361) от 16.12.2017
+
+Проекты - Motion Array - Cinematic Ink Parallax - 53455 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cinematic Ink Parallax - это художественный шаблон After Effects. Великолепно оформленное и элегантно анимированное слайд-шоу, с красивой анимацией чернильных размытий и стильными текстовыми анимациями.
+Очень простой в редактировании. Меняете текст, перетаскиваете в заполнители свои медиа файлы и приступаете к рендерингу.
+Cinematic Ink Parallax - это прекрасный способ (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1E3F9A0B13D91BFEF60FF63761542B720CB7336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173272   (263360) от 16.12.2017
+
+Netojuu no Susume / Recommendation of the Wonderful Virtual Life / Рекомендации из замечательной виртуальной жизни [2017, TV, 10] HDTV 720p raw
+
+>>Аниме с субтитрами
+>>Аниме (HD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцатилетняя Мориока Морико бросила к чертям офисную работу ради жизни NEET’а. Дабы скрасить своё одиночество и забыть о проблемах, она погрузилась в мир популярной ММОRPG, создав там персонажа — миловидного юношу-мечника по имени Хаящи. Однако первый день внутри игры шёл не слишком гладко, пока она не встретила прекрасную жрицу Лили.Жанр: приключения, комедия, романтикаРежиссер: Ягинума КадзуёсиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 10 серий по 25 мин
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF5A0AFC1BE5780013EC96168AE8A6CCB309BA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191647   (263359) от 16.12.2017
+
+Адвокаты Telegram обратились в ООН за защитой от действий ФСБ
+
+>>След.
+>>Новости
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Адвокаты «Агоры», которые представляют интересы Telegram, обратились в ООН за поддержкой в споре с российскими властями по поводу раскрытия ключей шифрования переписки. Член ассоциации Дамир Гайнутдинов отправил соответствующее письмо спецдокладчику ООН по вопросам права на свободу слова Дэвиду Кайе.В письме говорится, что Telegram в России оштрафовали за отказ передать (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192174   (263358) от 16.12.2017
+
+Анджей Сапковский | Кровь Эльфов (2017) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263358.jpg" />
+</div>
+
+
+###  Подробнее
+
+Найдя Цири, Геральт увозит ее на дальний север, в мрачный замок — обитель ведьмаков, где Цири постигает все премудрости ведьмачьего мастерства. Но даже здесь ее преследует кошмар из прошлого — рыцарь в шлеме с крыльями хищной птицы. А мир тем временем готовится к новой войне. Короли Севера объединяются против Императора Юга. Маленькое королевство, законные права (   Читать дальше...   )Жанр: ФэнтезиПродолжительность: 10:27:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45A91AFC7D86480FF113973B44CF4FB83AD3FD57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191802   (263357) от 16.12.2017
+
+Генрих Харрер | Семь лет в Тибете. Моя жизнь при дворе Далай-ламы (2016) [PDF, FB2, RTF, EPUB, HTML, TXT]
+
+>>Художественная литература
+>>Приключенческая проза
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263357.jpg" />
+</div>
+
+
+###  Подробнее
+
+Генрих Харрер (1912–2006) – австрийский альпинист, путешественник и писатель. Его книга «Семь лет в Тибете: Моя жизнь при дворе Далай-ламы», впервые опубликованная на немецком языке в 1952 году, была переведена на 53 языка и послужила основой для двух кинофильмов: британского документального фильма 1956 года и знаменитого американского художественного фильма 1997 (   Читать дальше...   )Жанр: Биографии и мемуары, Зарубежная публицистика, Зарубежные приключения, Книги о путешествияхФормат: PDF, FB2, RTF, EPUB, HTML, TXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68980E74CEB11B2CD9D71019CC88F10E91CDE50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192112   (263356) от 16.12.2017
+
+Человек-муравей / Ant-Man (2015) HDRip [H.264] [MP4|1920x1038]
+
+>>Мультимедиа и прочее
+>>Мобильное Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вооружившись удивительной способностью уменьшаться в размере, но обладать при этом большой силой, мошенник Скотт Лэнг должен стать героем и помочь своему наставнику, доктору Хэнку Пиму, сохранить в тайне существование костюма Человека-муравья от угроз нового поколения.Производство: США / Marvel Studios Inc.Жанр: Фантастика, Боевик, Комедия, ПриключенияРежиссер: Пейтон РидАктеры: Пол Радд, Майкл Дуглас, Эванджелин Лилли, Кори Столл, Майкл Пенья, Бобби Каннавале, Ти-Ай, Давид Дастмалчян, Эбби Райдер Фортсон, Джуди ГрирПеревод: Дублированный (Лицензия BD EUR)Субтитры: Русские (форсированные, полные), Английские (полные)Продолжительность: 01:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD59DA18604A684588F621590E60B14D7748134
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192149   (263355) от 16.12.2017
+
+Тайна 7 сестер / Seven Sisters / What Happened to Monday  (2017) BDRemux [H.264/1080p] [EN]
+
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263355.jpg" />
+</div>
+
+
+###  Подробнее
+
+В мире, где семейным парам разрешено иметь только одного ребенка, рождается семь сестер-близняшек. Родители решают сохранить всех и дают малышкам имена в честь дней недели. Так девочки и появляются на людях - каждая в свой день. Но однажды Понедельник пропадает...Производство: Великобритания, Франция, Бельгия / Nexus Factory, Raffaella Productions, SND, Title Media, uMedia Family, VendГґme PicturesЖанр: фантастика, боевик, триллерРежиссер: Томми ВирколаАктеры: Нуми Рапас, Гленн Клоуз, Уиллем Дефо, Марван Кензари, Кристиан Рубек, Пол Сверре Валхейм Хаген, Адетомива Едун, Кэсси Клер, Камерон Джек, Клара Рид, Кирсти ЭвертонПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 02:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD44FA98A5B6389FC208C9A4DBCAB359B4094858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192247   (263354) от 16.12.2017
+
+Удивительное превращение тираннозавра / T-Rex: An Evolutionary Journey (2016) DVB
+
+>>Зарубежные TV-бренды
+>>Доисторический мир
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тираннозавр - самый могущественный из динозавров, когда-либо обитавших на нашей планете. Тринадцатиметровый гигант, весивший шесть тонн, был умён, быстр и беспощаден. Но его предки были маленькими и слабыми. Как маленькие тираннозавры преобразились в гигантских доминирующих суперхищников? Ученые исследуют удивительную историю эволюции тираннозавров длиною в сто миллионов (   Читать дальше...   )Производство: Япония, NHKЖанр: Документальный, научно-популярный, палеонтология, исследованияРежиссер: Keimei YamazakiПеревод: Одноголосый закадровый, профессиональный (СВ Дубль)Субтитры: отсутствуютПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12800C9DCBEF5AED15478579523269E7BEDD25C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188777   (263353) от 16.12.2017
+
+Воздушные приключения / Those Magnificent Men in Their Flying Machines or How I Flew from London to Paris in 25 hours 11 minutes (1965) BDRip [H.264/1080p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Англия, 1910 год, начало эры авиации. Лорд Ронсли объявляет о проведении первых международных авиагонок по маршруту Лондон - Париж. Влюбленный в его дочь Ричард Мэйс должен доказать превосходство англичан не только на морях, но и в воздухе. Однако летчики со всего света — прохвост-англичанин, немецкий полковник, ловелас-француз, ковбойского вида американец и многодетный (   Читать дальше...   )Производство: Великобритания/Twentieth Century-FoxЖанр: Комедия, ПриключенияРежиссер: Кен ЭннакинАктеры: Стюарт Уитмэн, Сара Майлз, Джеймс Фокс, Альберто Сорди, Роберт Морли, Герт Фрёбе, Жан-Пьер Кассель, Ирина Демик, Эрик Сайкс, Ред СкелтонПеревод: Дублированный, многоголосый закадровый, одноголосый закадровыйСубтитры: Русские, английскиеПродолжительность: 02:18:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE4CE50DB9A3102B7DF205DE701CE9BC3E60DB53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192252   (263352) от 16.12.2017
+
+Microsoft Office 2013 Pro Plus + Visio Pro + Project Pro + SharePoint Designer SP1 15.0.4989.1000 VL (x86) RePack by SPecialiST v17.12 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2013 – лучший пакет прикладных программы для работы над документами различных типов. В его состав входят лучшие средства для развития бизнеса, а так же для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия, не важно, Office 2013 просто обязан быть установлен на любом (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7D7BE4CE01CD8386EA5783B21E7679394264D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192191   (263351) от 16.12.2017
+
+Конверт  (2017) WEB-DL [1080p] ATV
+
+>>Аудио и Видео
+>>Отечественное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Москва. Наши дни. В архитектурную компанию по ошибке приходит странное письмо. Секретарь, заметив недоразумение, просит водителя Игоря доставить конверт по нужному адресу. С этого момента в его жизни начинают происходить необъяснимые вещи: злосчастный конверт как будто преследует героя, целенаправленно ведя его к таинственному адресату.Производство: РоссияЖанр: Триллер, ужасыРежиссер: Владимир МарковАктеры: Юлия Пересильд, Игорь Лизенгевич, Ольга Медынич, Сергей Барковский, Дмитрий Куличков, Алексей Кирсанов, Диана Енакаева, Варвара Бородина, Станислав Лесной, Вилен БабичевПеревод: (Не требуется)Субтитры: НетПродолжительность: 01:14:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB486F553491045C0B33747DA1295FA28CB1E5ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191848   (263350) от 16.12.2017
+
+Xiaomi представила «полезную» электронную сигарету
+
+>>3
+>>След.
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263350.jpg" />
+</div>
+
+
+###  Подробнее
+
+На краудфандинговой площадке Xiaomi появился проект безопасной электронной сигареты A&D e-Cigarette, которая вместо никотина содержит витамины и полезные микроэлементы.Одноразовая электронная сигарета A&D e-Cigarette выполнена в форме маленькой трубки длиной 12 см и диаметром 1 см. Корпус выполнен из металла, а внутри разместили парительную жидкость и нагревательный (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192206   (263349) от 16.12.2017
+
+Microsoft Office 2013 SP1 Professional Plus + Visio Pro + Project Pro 15.0.4989.1000 RePack by KpoJIuK  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2013 SP1 – лучший пакет прикладных программы для работы с документами различных типов. В его состав входят лучшие средства для развития бизнеса, а также для достижения максимального комфорта в процессе учебы, ведения домашних финансов и прочего. Будь то сфера бизнеса или домашние условия - не важно, Office 2013 просто обязан быть установлен на компьютере (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E190AA93DF2C8ED3F2130D3B21B764B923DDD704
 ```
 
 https://mybot314.ru/tekegram_catalog/

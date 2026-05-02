@@ -1,3 +1,125 @@
+###  Публикация: 547918   (469947) от 17.09.2012
+
+VA - Осенний Муз-драйв (2012) [MP3|128-256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Onegin Feat. Nity - Рай (Radio Edit)
+02. Горячий Шоколад - Ты Обними
+03. Настя Любимова - I See You (DualState Remix Radio Cut)
+04. Сергей Жуков & Opium Project - Я Буду С Тобой (Club Mix)
+05. Инь - Ян - Oh, Yeah!
+06. DJ Tarantino feat. Oblico Morale - Танцуй Вместе С Нами
+07. All Давай feat. DJ Ihlas - Москва-Дубай
+08. Lilu - Пара-Паранойя
+09. Stacy - Не Хочу Войны
+10. KO (Настя Кочеткова) - Vanya(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F757A6E0F55C353685183C2FC10E415EFAE172F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245701   (469893) от 07.09.2018
+
+VA - Day At The Beach: Popular Dance Music (2018) [MP3|320 Kbps] <Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469893.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Honk! - So Geil Auf Malle
+002. Jerry Peghan - Children Are Kings
+003. Thedjlawyer - Signals From Mars
+004. The Chainsmokers - Sick Boy(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 09:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7723826C9F644AA18424732ADFBB526ECE038AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058570   (469068) от 01.10.2016
+
+VA - Осенняя Позитивная Сотка 2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469068.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Malika - Буду Рядом
+002. Feder Feat. Emmi - Blind
+003. Потап & Настя Feat. Бьянка - Стиль Собачки
+004. Eric Prydz Feat. Rob Swire - Breathe(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5EAD078D9205FEC4041300CBCAE3C3910419C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058555   (469059) от 01.10.2016
+
+VA - Любимая Волна Europa Plus (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469059.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Medas Feat. Кейс - Рутина
+002. Ya-Ya - Bad Girls
+003. 30.02 - Ты Самая Лучшая
+004. Florrie - Real Love(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2429426E3D9B9A79363B558C89EB4BF81DD640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245868   (467879) от 08.09.2018
 
 VA - German Top 50 Official Dance Charts 07.09.2018 (2018) [MP3|320 Kbps] <Dance>
@@ -671,122 +793,6 @@ Tina Turner - The Best song (2015) [MP3|320 кб/с]<Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9AF87B5CAA4AF234153956E29FBA5FDBEA34468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568666   (459622) от 09.08.2022
-
-VA - Playlist Summer Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Afro Beat, Synthpop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soolking - Suavemente
-02. Kendji Girac - Conquistador
-03. Dadju - Toko Toko
-04. Amel Bent - 1,2,3(   Читать дальше...   )Жанр: Electropop, Dancehall, Afro Beat, SynthpopПродолжительность: 03:54:38 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2746454BCF0D7F235308971646F7F8D80257A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059896   (459519) от 05.10.2016
-
-VA - Только Хиты на Хит FM 9 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459519.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ronan Keating - Shine Like Gold  3:39
-002. Юрий Федотов & A-Net - Птица  4:41
-003. Jay Hardway - Electric Elephants  3:09
-004. Ужезима - Магнолия  3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB64E919D557EDFAA64425494BBBFC3D03BE7AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162432   (458762) от 01.09.2017
-
-VA - Дикая Мята: Хит От Русского Радио (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458762.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анжелика Варум - Твой Свет
-002. Ольга Бузова - Малополовин
-003. Сергей Трофимов - Дождь
-004. Стас Пьеха - Аллегории(   Читать дальше...   )Жанр: PopПродолжительность: 12:10:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED946D1AB90619E9BCF737A5E305CF757DA58135
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941862   (457974) от 29.09.2015
-
-VA - Попсовая соточка MTV. Сборник 6 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457974.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. T-Killah - Невидимая
-002. Miriam Bryant - Adrenaline
-003. Юлия Волкова - Любовь В Каждом Мгновении
-004. Lorde - Yellow Flicker Beat(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D395FBDEB01F9A8B7E9C0BF2BEFFADC9D28D03C
 ```
 
 https://mybot314.ru/tekegram_catalog/

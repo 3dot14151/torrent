@@ -1,3 +1,119 @@
+###  Публикация: 1433698   (156683) от 21.12.2020
+
+Дора - Боже, храни кьют-рок (2020) [MP3|320 Kbps] <Pop Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - втюрилась [00:02:03]
+02 - быть с тобой [00:02:58]
+03 - больше [00:02:24]
+04 - осень пьяная [00:02:51](   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:26:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6EAAFB4FFBA1773AF28FFFD44201CDDAEC7490C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600642   (156105) от 28.12.2022
+
+Sila Slona - 3 Albums (2017-2022) [MP3|320 Kbps] <Contemporary Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2017 - Sila Slona
+2019 - Это всё не по-настоящему
+2022 - Бесконечная красотаЖанр: Contemporary PunkПродолжительность: 3 CD, 01:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ABE56F3745145A165C446CCAFAD6AB85163C394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600644   (156079) от 28.12.2022
+
+ктопоможет - 2 Albums (2019-2022) [MP3|320 Kbps] <Art Punk, Industrial Metal, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. О цветах и песнях (Intro) [00:03:36]
+02. Отблеск слезы [00:04:21]
+03. В чернеющем лесу (Skit) [00:01:36]
+04. По испуганным следам [00:04:52](   Читать дальше...   )Жанр: Art Punk, Industrial Metal, Psychedelic RockПродолжительность: 2 CD, 02:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2192523B8047B2BBE457C2FBE328AD8E39DAA9EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600666   (155979) от 28.12.2022
+
+One Last Day - Прости, что так (2022) [MP3|320 Kbps] <Alternative Rock, Ravecore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Шепот улиц [00:02:19]
+02 - Система [00:03:04]
+03 - Трип [00:02:49]
+04 - Завтра [00:02:28](   Читать дальше...   )Жанр: Alternative Rock, RavecoreПродолжительность: 00:34:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9079525652180A054C9D6BB392E6605767C38C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270755   (155919) от 20.12.2018
 
 Мастодонт / Masta Don’t - Несуществующий рыцарь (2018) [MP3|320 Kbps] <Rock>
@@ -625,122 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDAABD16363277A6D3995D0894A3116311BA00D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519299   (149759) от 23.12.2021
-
-ХИЛЛАРИ - Кассеты: Прости. Прощай (2021) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149759.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Тело
-2. Если хочешь
-3. Планета
-4. Красный череп(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85FC3A5B284C43B1BDFD29ECC7C8AD0764777A5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519301   (149731) от 23.12.2021
-
-JETE - Заживое (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149731.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Обстоятельства
-2. Обратный путь
-3. Своя война
-4. Река сестра(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B80F9B86448AA3C5B3A9F19A797824D2D6F41195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519297   (149713) от 23.12.2021
-
-Animal ДжаZ - Раритеты (2021) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149713.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Стекло
-2. Первый
-3. Новый год 2010
-4. Время — не деньги(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15BEAF60A3799D1F4A9E5E8C633D1AD7ECBCB9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434541   (149481) от 25.12.2020
-
-VA - Полигон Records. Всё самое лучшее 2020 [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. джинсы тарковского - 2020 (3:35)
-02. Гребля - Расстояния (3:48)
-03. Твой одуванчик, тапОК - Панк (1:59)
-04. БеZ Б - Все девчонки (2:59)(   Читать дальше...   )Жанр: RockПродолжительность: 03:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F47F31D564213DFF946E6DB4CBBBBBBC4567ACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

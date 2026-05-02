@@ -1,3 +1,61 @@
+###  Публикация: 1070575   (367012) от 07.11.2016
+
+Ofer Israeli - Clash (1989) [FLAC|Lossless|tracks + .cue] <Fusion, Post Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367012.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tzi-Tzi 4.25
+2. Nishitha 8.02
+3. 5.30 AM 7.29
+4. Blackbird Blues 5.00(   Читать дальше...   )Жанр: Fusion, Post BopПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F833FB67C6125EB0CA70D35256D631B196C08F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070462   (367009) от 07.11.2016
+
+Paul Motian - Sound Of Love (1997) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misterioso (13:28)
+02. Duke Ellington's Sound Of Love (9:13)
+03. Mumbo Jumbo (7:31)
+04. Once Around The Park (6:53)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD01460A4998A1ED78F37DDF032788C30C7FC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070505   (367008) от 07.11.2016
 
 The Paul Cacia Jazz Orchestra - Legacy – The Last Sessions (2006) [FLAC|Lossless|image + .cue] <Big Band>
@@ -693,64 +751,6 @@ Dave Brubeck - Just You, Just Me (1994) [FLAC|Lossless|tracks + .cue] <Jazz, Coo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0C635326F63FBEBE097535DC4708759F77BAF4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576683   (364281) от 15.09.2022
-
-Espen Eriksen Trio featuring Andy Sheppard - In The Mountains (2022) Rune Grammofon [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1974 [8:42]
-02. Anthem [8:17]
-03. Suburban Folk Song [9:30]
-04. In the Mountains [9:26](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C93920FC22507130B92140ABE43A3E4AB93472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951420   (363884) от 29.10.2015
-
-Martial Solal Trio - Balade du 10 Mars (1999) /Soul Note/[APE|image+.cue]<Post-Bop, Modern Creative, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Night And Day [05:48]
- 02.Gang of Five [06:40]
- 03.Softly, As in a Morning Sunrise [04:54]
- 04.'Round About Midnight [07:08](   Читать дальше...   )Жанр: Post-Bop, Modern Creative, Piano JazzПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52079084C6A1A1F2981F1A9312BBA532EEAFEC36
 ```
 
 https://mybot314.ru/tekegram_catalog/

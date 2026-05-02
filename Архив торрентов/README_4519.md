@@ -1,3 +1,270 @@
+###  Публикация: 483945   (99725) от 16.04.2012
+
+[Wallpapers] Desktop Wallpapers №18
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99725.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №18
+Название: Desktop Wallpapers №18
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBC632F8894D00C7E9EF1456D09EA2FFEE955AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483690   (99724) от 16.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (15.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99724.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E06E1B88449F5DD0EEBA3A96762D5F2DC24AF23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483083   (99714) от 15.04.2012
+
+VA - Heroes Of Trance (13.04.2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99714.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Heroes Of Trance (13.04.2012)Год: 13.04.2012
+Жанр: Trance
+Продолжительность: 03:49:14Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+01. Armin Van Buuren ft Laura V - Drowning (Avicii Remix)
+02. Chakra - Home (Above & Beyond Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C863A5DEA79B80E185C0E09A838D8F4DAE1E02C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483349   (99713) от 15.04.2012
+
+[Ukr/Ru] Украина имеет талант - 4 / Україна має талант - 4 (2012) SATRip (вып.-6)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99713.jpg" />
+</div>
+
+
+###  Подробнее
+
+В кастингах шоу телеканала СТБ «Україна має талант!-4», которое начнется 10 марта, участвовало около 30 тысяч человек.
+«В первых трех сезонах мы проводили отборочные туры в городах-миллионниках, а нынешние кастинги записывались в Киеве, - говорит руководитель проекта «Україна має талант!-4» Тала Онищук.
+
+- Причина в том, что в этом году у нас сложная сцена. Если артист показывает экстремальный номер, она трансформируется специально для этого выступления, а затем снова принимает традиционный вид. Эти метаморфозы сложно описать словами. Зрители увидят их уже в субботу, 10 марта, в 19 часов. Первым покажем кастинг, в котором участвовали таланты с Донбасса. Многие зрители помнят выступление в первом сезоне знаменитого силача Дмитрия Халаджи из Донецкой области. После этого у нас не было яркого силового шоу. И вот на наш проект пришли несколько блестящих атлетов. В субботу вы увидите один из силовых номеров. Это будет попытка установить рекорд Украины».Количество представленных в нынешнем сезоне жанров потрясающе: (   Читать дальше...   )Жанр: ТелепередачаПродолжительность: 03:29:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483453   (99705) от 15.04.2012
+
+Mozilla SeaMonkey 2.9 Beta 3 [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99705.jpg" />
+</div>
+
+
+###  Подробнее
+
+SeaMonkey — проект, основанный на добрых традициях Mozilla Suite. Классическая Mozilla развивалась много лет, обрела свой круг преданных фанатов, но так и не дошла до широких масс, выдвинув на эту роль красивый современный браузер Mozilla Firefox. За основу SeaMonkey взята Mozilla Suite, как проверенный годами продукт, обладающий колоссальной стабильностью и выверенным кодом. К этой основе было добавлено множество функций, ставших привычными для пользователей Mozilla Firefox и Mozilla Thunderbird. В состав SeaMonkey входит несколько компонентов.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482877   (99700) от 15.04.2012
+
+Conan - Monnos (2012) [MP3|320 кб/с]<Doom Stoner Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hawk as Weapon (6:19)
+ 02. Battle in the Swamp (4:44)
+ 03. Grom Tormentor (5:45)
+ 04. Golden Axe (5:39)
+ 05. Headless Hunter (7:48)
+ 06. Invincible Throne (8:55)2012Жанр: Doom Stoner MetalПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2E2D62C623A374D04F003D6ACE4D70F1EB7875
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483366   (99698) от 15.04.2012
+
+Ancestors - In Dreams And Time (2012) [MP3|320 кб/с]<Stoner Doom>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whispers 09:10
+ 02. The Last Return 06:15
+ 03. Corryvreckan 12:08
+ 04. On the Wind 09:31
+ 05. Running in Circles 09:44
+ 06. First Light 19:192012Жанр: Stoner DoomПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:670FF1A783229323AEA9DD7475F8D2BF4DCD5024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482281   (99696) от 15.04.2012
+
+Ectima - No Way Out (2009) [FLAC|Lossless]<Psy-Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ectima - Find The Way Out (07:20)
+ 02. Ectima - Logatone (08:16)
+ 03. Ectima - Evil Spirits (08:05)
+ 04. Ectima - Labyrinth (07:08)
+ 05. Ectima - Black Humor (08:07)
+ 06. Ectima & PhaseTech - Spliced (07:18)
+ 07. Ectima - Metal Isolation (Remix) (09:00)
+ 08. Ectima - Home Treatment (08:00)
+ 09. Ectima - Insufferable User (08:07)
+ 10. Talpa - Sleeping Beauty (Ectima Remix) (08:19)2009Жанр: Psy-Trance, Progressive TranceПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483556   (99694) от 15.04.2012
+
+Scion Versions - Label Pack (7 релизов) (2006-2010) [MP3|320 кб/с]<Dub Techno, Techno, Minimal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Немецкий даб-техно лейбл основанный двумя музыкантами Peter Kuschnereit (он же DJ Pete и Substance) и Rene Lowe (более известен как Vainqueur). На сегодняшний день на лейбле вышло 7 пластинок, каждая из которых звучит в лучших традициях немецкой техно-сцены.01. Vainqueur - Ranges - Expanded (9:20)
+02. Vainqueur - Ranges - Theme (9:43)Продолжительность: 00:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690CC24011E180323BA35F902BDC1D50DC6E722D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482861   (99684) от 14.04.2012
 
 Участковый (24 серий из 24) (2011) DVB
@@ -484,289 +751,6 @@ A State Of Trance - Radio Top 20 March And April (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3EAE961FC8BABF1F1E8297C2A4F1105F60CAC25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482608   (99595) от 14.04.2012
-
-Герои Комиксов - Погружение (2012) [MP3|320 кб/с]<Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Что ты видел? (skit)
-02. Мысли (feat. Денис Kore)
-03. Погружение
-04. Апокалипсис
-05. Не стал другим (feat. Сэл, Костлявый, Poga)
-06. Песок
-07. Hasta la vista
-08. Нечто важное (feat. CarMELO)
-09. С другой звезды (feat. Костлявый)
-10. №1(   Читать дальше...   )2012Жанр: Hip-HopПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A580B60F8A5155732F47DCDAFCE49984FB6E41C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483011   (99593) от 14.04.2012
-
-Gigantic Brain - They Did This To Me (2010) [MP3|192 кб/с]<Experimental Grindcore / Cybergrind / Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99593.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Heaven 02:31
- 2. Father 00:36
- 3. Calm 01:12
- 4. Crop Circles 03:28
- 5. Am I Breathing? 02:36
- 6. Nice to Meet You 04:15
- 7. Abandoned 04:33
- 8. Birth 02:45
- 9. Everyone is Lying to Me 03:43
- 10. Love 00:38(   Читать дальше...   )2010Жанр: Experimental Grindcore / Cybergrind / AmbientПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4555BCB6FB522DC7D7F707E7C42489A7726DDA5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483022   (99574) от 14.04.2012
-
-Short Bus Pile Up - Repulsive Display Of Human Upholstery (2010) [MP3|320 кб/с]<Slamming Brutal Death>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ball-peen Beating
- 02. Urethral Myiasis
- 03. Labia Beautification
- 04. Necrotic Skin Stitching
- 05. Stench of Her Burning Flesh
- 06. Fecal Matters
- 07. Appeasing the Butcher
- 08. Gagging on Dick
- 09. Repulsive Display of Human Upholstery
- 10. Labia Beautification (Bonus)(   Читать дальше...   )2010Жанр: Slamming Brutal DeathПродолжительность: 00:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97C16CD0358AD9968CDD11E67F9903BE14CDB0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482707   (99572) от 14.04.2012
-
-[Wallpapers] Desktop Wallpapers (14.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA860327786A30480AA4D78808723BF9AC6A7F7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482709   (99569) от 14.04.2012
-
-[Wallpapers] Nature Pictures №44
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99569.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №44
-Название: Nature Pictures №44
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 8600х5656
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3439E3C3D2BD2AFE582FA740300DEFA46F3C53C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483181   (99567) от 14.04.2012
-
-Газета | Ждём гостей №4 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99567.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучшие кулинарные рецепты к торжествам и праздникам. Газета поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B09F38FB125D7D3BA0BAB384F3C1E469DC9AFF4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482331   (99566) от 13.04.2012
-
-Время земляники (2008) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99566.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герой фильма — успешный молодой человек, в жизнь которого вмешивается его величество случай. Буквально за несколько дней он теряет работу, предает любовницу, попадает на войну, не считая таких мелочей, как участие в драках, гонках, бесконечных тусовках.Жанр: ДрамаРежиссер: Виталий ГалилюкАктеры: Владимир Колганов, Алексей Петренко, Ксения Каталымова, Александр Лыков, Сергей Мигицко, Анна Алексахина, Анна Слынько, Татьяна Колганова, Иван Паршин, Виталий Салтыков, Андрей ПеровичПродолжительность: 01:27:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB05276BF59966421FB9B7D8124C4A202345B4CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482311   (99556) от 13.04.2012
-
-Reflexion - 3 альбома (2006 - 2010) [FLAC,APE|Lossless]<Gothic Metal,Love Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Началось все также, как начинается у тысяч и тысяч групп - молодые ребята в свободное время играли вещи AC/DC, не рассчитывая ни на что, кроме признания среди окрестных девченок. Постепенно они перешли к сочинению своих вещей. Но им не хватало самого главного - харизматичного фронтмена! Меж тем, Juha Kilmanen репетировал в соседней комнате и только и ждал того, чтобы присоединиться к группе, которая позже стала называться Reflexion.01. Morning Sickness 04:20
-02. Moscow Nights 03:56
-03. Written on My Skin 03:52
-04. Unbreakable 03:45
-05. Generation Kill 03:32
-06. Couldn’t Care Less (The Cardigans Сover) 04:09
-07. On This Dawn 04:43
-08. No Roots on the Ground 03:40
-09. Undress the Beauty 03:35
-10. The Cage 04:36(   Читать дальше...   )Жанр: Gothic Metal,Love MetalПродолжительность: 00:50:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482467   (99552) от 13.04.2012
-
-State of Mind - Live! (2012) [MP3|256 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. State of Mind & Axiom - Back in the Deadzone
-02. State of Mind & Black Sun Empire - Dont You v Pitch Dryfter
-03. State of Mind & Concord Dawn - Aces High
-04. State of Mind - Dune
-05. State of Mind - Frankenfunk
-06. State of Mind, Black Sun Empire, Bulletproof - Roulette
-07. State of Mind - Fucking Sellouts
-08. Freeland - Under Control (Alex Metric Remix)
-09. State of Mind - Moneytrain VIP
-10. State of Mind - Space Chase(   Читать дальше...   )2012Жанр: Drum & BassПродолжительность: 01:23:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFD71F0826FA4B9BC0B023BFA238C159D0E1B7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

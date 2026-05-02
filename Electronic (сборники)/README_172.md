@@ -1,3 +1,66 @@
+###  Публикация: 1260086   (313448) от 06.11.2018
+
+VA - Самые Горячие Хиты Дискотек (2018) [MP3|320 Kbps] <Club, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Newclaess Feat. Adanna Duru - Where Are You
+02. Deep Divas & Sexycools - Baby Baby (Perfect Pitch Edit)
+03. Hollywood Hustlers - One Kiss (Bonkerz Remix)
+04. W&W X Darren Styles Feat. Giin - Long Way Down(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 03:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5A4A6ACF6E61FA72C4A449E96E3F8CA7BE1C78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 583436   (313082) от 02.12.2012
+
+Swedish House Mafia - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House / progressive house / electro house>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313082.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Swedish House Mafia feat. Usher – Euphoria (Original Mix)
+2.Swedish House Mafia feat. Tinie Tempah – Miami 2 Ibiza (Original Mix)
+3.Swedish House Mafia feat. John Martin – Save The World (Original Mix)
+4.Swedish House Mafia feat. John Martin  – Dont You Worry Child (Extended Mix)
+5.Swedish House Mafia and Laidback Luke feat. Deborah Cox – Leave The World Behind (Original Mix)
+6.Swedish House Mafia – One (Original Mix)
+7.Swedish House Mafia – Greyhound (Original Mix)
+8.Knife Party vs. Swedish House Mafia  – Antidote
+9.Coldplay – Every Teardrop Is A Waterfall (Swedish House Mafia Remix)Жанр: House / progressive house / electro houseПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FBC1D8BD9F9C73727EEFC4D96C95A823392CFDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076439   (312316) от 26.11.2016
 
 VA - Beatport Trance Pack (25.11.) (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting Trance, Vocal, Progressive, Harmonic>
@@ -699,64 +762,6 @@ VA - UNKLE  - Best275z (1998 - 2011) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:030F3333F1EBF4303F5A35DC3BDE8AF0A68BB546
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1077044   (308865) от 27.11.2016
-
-VA - Ibiza 2016. Best of Funky-House and Disco-House [Compiled by Mistik] (2016) [MP3|320 Kbps] <Funky House, Disco House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Off Da Hook - Journey To Paradise (Johan S Vocal Mix) (8:10)
-02. Kevin McKay - What U Want (J Paul Getto Classic mix) (7:12)
-03. Antonio Giacca & Fort Arkansas - What U Know (Original Mix) (5:19)
-04. Micky More & Andy Tee - I'm Another Man (Right To Life Remix) (6:14)(   Читать дальше...   )Жанр: Funky House, Disco HouseПродолжительность: 06:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A91D43D8855A5DB6FD3870387ABB018729CD1CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422575   (308696) от 09.11.2020
-
-VA - Beatport Psy Trance: Electro Sound Pack #197 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308696.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Solar Walker - Shapeshifter
-002. Lost & Found - Hands (Remix)
-003. Atomizers - Is There A Future
-004. Visua - Atomic Gathering(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFEADB62323CFE6E0427210B2724D7EEEBDE9A1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

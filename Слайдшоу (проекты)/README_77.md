@@ -1,3 +1,29 @@
+###  Публикация: 1325399   (414055) от 14.09.2019
+
+VideoHive - Photo Gallery - Beautiful Moments - 16115818 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект "Photo Gallery - Beautiful Moments" - это красивые и реалистичные сцены для ваших фото или видео файлов.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B578D86CD317D8D19615E563CA6DD5F250DC80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948342   (413343) от 19.10.2015
 
 Проекты - VideoHive - Epic Legends [AEP]
@@ -659,33 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7276B82421CE6501E2054945CC76D6548A114C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715692   (395324) от 27.10.2013
-
-VideoHive - The Day Of Happiness - 4856932 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395324.jpg" />
-</div>
-
-
-###  Подробнее
-
-ОТ автора: Проект можно использовать как свадебный, романтический, для демонстрации семейных фото, как трейлер, промо и т.д.
-От себя: более приемлемое применение: КВН, вечеринка, конкурсная программа и т.д.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EE942BB3DD07C4CCCA143C75070B40C8D0AF3F
 ```
 
 https://mybot314.ru/tekegram_catalog/

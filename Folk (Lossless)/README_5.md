@@ -1,3 +1,32 @@
+###  Публикация: 1289030   (686641) от 16.03.2019
+
+The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686641.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Principles of Salt (03:10)
+2. Frozen Through (02:35)
+3. She's Alright (03:12)
+4. Crooked Pines (04:29)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA1C180C41F51F4DA912CEE6BF4B417B38DC9AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223006   (680665) от 01.05.2018
 
 VA - Народные Золотые Хиты (2002) 2CD [FLAC|Lossless|tracks + .cue] <Folk>
@@ -717,35 +746,6 @@ Patty Loveless - Mountain Soul (2001) [FLAC|Lossless|image + .cue] <Country, Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A49B19CAC1F32A6FC5167E752529BB56389F548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295510   (618799) от 13.04.2019
-
-Alicia Deschênes (Alicia Deschenes) - Comme June aime Johnny (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock, Indie>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J'trouve ça beau (3:26)
-02. Les pieds dans le vide (3:09)
-03. Mon âme soeur est ailleurs (3:26)
-04. Années lumière (4:05)(   Читать дальше...   )Жанр: Folk Rock, IndieПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2C2F652E878C8B0E819734A91D278B08F215DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1103056   (886723) от 11.02.2017
+
+The Solus Project (2016) [Ru/Multi] (1.031) License GOG
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886723.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приключение для одного игрока, посвященное исследованиям и выживанию, действие которого происходит на таинственной и, на первый взгляд, необитаемой планете. Переживите все невзгоды и разгадайте тайны Gliese-6143-C. Игра от создателей "Unmechanical", продолжение "The Ball".Тип издания: LicenseРазработчик: Grip Games и HourencesЖанр: Action, 3D, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C3C03F6658DF121A2E5B8F28DCB63C847DBCE40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995239   (885612) от 10.03.2016
+
+Feelings Adrift (2016) [En] (1.0) License PLAZA
+
+>>Win Игры
+>>Action (FPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885612.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испытание страхом и трепещущим ужасом в Feelings Adrift - игре, в которой нужно посетить аттракцион страха. От безобидного, но не совсем обычного, колеса обозрения до тёмных подземелий со злобными клоунами-убийцами, каждое развлечение в Feelings Adrift уникально и имеет свой рейтинг. Поборите свои страхи, приняв вызов душещипательных испытаний.Тип издания: LicenseРазработчик: Dénis MúriasЖанр: Indie, Action (Survival horror)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49EF73DD5268D9FAF6CA52C8298CCD4DB5487D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995507   (883817) от 11.03.2016
 
 Call of Juarez: Gunslinger (2013) [Ru/Multi] (1.0.5.0/dlc) Repack R.G. Механики
@@ -620,58 +672,6 @@ Soldier of Fortune: Payback - пришло время снова вспомни�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE52BD2E14981474C908BF037A3B32DCD8C655EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104288   (860111) от 26.02.2017
-
-Among the Innocent: A Stricken Tale (2017) [En] (1.004) License CODEX
-
->>Win Игры
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Among the Innocent: A Stricken Tale — адвенчура от первого лица с фокусом на множество point’n’click паззлов, действие которой происходит на заброшенной ферме, затерянной в дебрях ЮАРТип издания: LicenseРазработчик: Zero Degrees GamesЖанр: Adventure, 1st PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD4DBCDD8ABEAA5AC12C764DD49B98BD73E660F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 646519   (857708) от 22.04.2013
-
-Far Cry Franchise [Ru/En/Multi] (Steam-Rip) 2004-2012 | R.G. Игроманы
-
->>След.
->>Action (FPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857708.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тип издания: Лицензия (Steam-Rip)Жанр: Action (Shooter) / 3D / 1st PersonСубтитры: Английский, Русский, Multi14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729639D53EE381A4767C78D640E9611B6C4CD287
 ```
 
 https://mybot314.ru/tekegram_catalog/

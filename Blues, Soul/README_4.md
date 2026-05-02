@@ -1,3 +1,32 @@
+###  Публикация: 1102469   (889570) от 10.02.2017
+
+Carl Wyatt & The Delta Voodoo Kings - Doing The Boogaloo (2016) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Do You Do Me the Way You Do (05:55)
+02. You're Just About to Lose Your Clown (03:33)
+03. Funny Bone (03:29)
+04. My Baby Likes to Boogaloo (03:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:276EDF45FD000C70E631C6620533F2C77918052E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 870089   (888183) от 17.02.2015
 
 Chris Beard - Barwalkin' (1997) [MP3|320 кб/с]<Blues>
@@ -713,35 +742,6 @@ VA - NOW Blues Classics (2020) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:243E09B53CBEA2C2D8021209FCDFB1B59FB580F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004332   (840313) от 05.04.2016
-
-Lisa Lystam Family Band - Give You Everything (2016) [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give You Everything (04:37)
-02. Changes (04:27)
-03. Mean Man (03:53)
-04. Worship Me (04:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76990D05088C1FC402BDCC7DFB6217A345F9D62
 ```
 
 https://mybot314.ru/tekegram_catalog/

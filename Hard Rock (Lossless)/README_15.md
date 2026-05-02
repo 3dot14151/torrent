@@ -1,3 +1,119 @@
+###  Публикация: 973036   (980663) от 07.01.2016
+
+Uriah Heep - It Was 40 Years Ago (2016) Compilation [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Me
+02. Illusion
+03. The Hanging Tree
+04. Crime Of Passion(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:10:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658180C20C20A3EA1ADD634A3336342745CBE6C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356275   (980562) от 29.01.2020
+
+Dangerous Curves - So Dirty Right (2018) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980562.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sensationable Submit (3:56)
+02. Art Of The Heart (4:12)
+03. Club Mile High (3:59)
+04. Funky Bonez (4:38)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:481E49C0A732522A5733B2F4777E66C39E368326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356476   (979124) от 30.01.2020
+
+Martina Edoff - Martina Edoff (2014) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On The Top
+02. Back Home
+03. Who You Are
+04. Hero(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:36:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53D814EA577A1D7E53614275536D1547C5A26814
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357198   (975455) от 02.02.2020
+
+AC/DC - Rock Or Bust (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Or Bust (3:03)
+02. Play Ball (2:47)
+03. Rock The Blues Away (3:24)
+04. Miss Adventure (2:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93B8336B743045F0A7B46A13BB4F04DD3789E762
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357412   (974210) от 03.02.2020
 
 Би-2 - Пекло (2020) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -628,122 +744,6 @@ Houston - 4 альбома (2010-2014) [FLAC|Lossless|image + .cue] <Melodic Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DD5EEEA11B5E1F80D1CA000A65CB08F465E53F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364688   (933705) от 05.03.2020
-
-Pride Of Lions - 6 альбомов Discography 7CD (2003-2017) [FLAC|Lossless|image + .cue] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933705.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2003 - Pride Of Lions
-2004 - The Destiny Stone
-2006 - Live In Belgium(   Читать дальше...   )Жанр: Melodic Rock/AORПродолжительность: 07:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6426328E12D4B3E040702A7A7C65448DD3CD8F98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365027   (933702) от 05.03.2020
-
-Martina Edoff - We Will Align (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn Our Pages [5:06]
- 02. Champions [3:58]
- 03. Alive [3:40]
- 04. We Will Align [4:02](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D105A3BBD7B719F30CBFE6370294B0F1D5812AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985534   (933676) от 12.02.2016
-
-Scorpions - Pure Instinct (1996) [FLAC|Lossless|image + .cue] <Rock , Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Wild Child 	04:16
-02. 	But The Best For You 	05:19
-03. 	Does Anyone Know 	05:55
-04. 	Stone In My Shoe 	04:37(   Читать дальше...   )Жанр: Rock , Hard RockПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A8D5641148047E3C7EEC9DE03C1A1FC587E5A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093915   (932363) от 16.01.2017
-
-Gotthard - Silver (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver River (3:39)
-02. Electrified (4:00)
-03. Stay With Me (4:00)
-04. Beautiful (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7192ABB97C65389CFD6AF7581B0EEBFF553EA5
 ```
 
 https://mybot314.ru/tekegram_catalog/

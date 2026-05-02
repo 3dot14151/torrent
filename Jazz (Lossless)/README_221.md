@@ -1,3 +1,67 @@
+###  Публикация: 1078273   (302995) от 30.11.2016
+
+Mezzoforte - No Limits (1986) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Icebreaker (4:10)
+02. No Limit (5:23)
+03. Joyride (4:35)
+04. Evolution (7:40)(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B76A8701C01AD2CA14560AABE0BA38A545E0115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585557   (302760) от 06.12.2012
+
+The Puppini Sisters - Дискография (5 альбомов) (2007 - 2011) [FLAC|Lossless]<Jazz Vocal, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_302760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hollywood (3:05)
+02. Diamonds Are A Girl's Best Friend (3:03)
+03. I Got Rhythm (4:01)
+04. Moi Je Joue (3:23)
+05. True Love (3:23)
+06. Good Morning (2:22)
+07. Get Happy (3:40)
+08. Moon River (3:55)
+09. I Feel Pretty (3:30)
+10. September Song (3:04)(   Читать дальше...   )Жанр: Jazz Vocal, SwingПродолжительность: 03:18:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423245   (302626) от 12.11.2020
 
 Joe Locke & Geoffrey Keezer Group - Live In Seattle (2006) Origin Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
@@ -687,64 +751,6 @@ The Sextet Of Orchestra U.S.A. Under The Direction Of Michael Zwerin - Mack The 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58A75B94300B0422BEE609C9BAD4D7A8768E1216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333994   (299135) от 27.10.2019
-
-Lenny Breau - Last Sessions (1988) Genes Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ebony Queen/Pam's Pad #2 [6:53]
-02. Meanwhile Back in L.A. [3:51]
-03. Paris [8:39]
-04. Ba De Da Da [2:45](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0C580F2F47001D85CDA23FB0B3759ACB11B837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333992   (299126) от 27.10.2019
-
-Count Basie & His Orchestra - Basie's Bag (of Swing) 1947 - 1959 (2007) 3CD, IMC Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299126.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. One O'Clock Boogie [3:26]
-02. Backstage At Stuff's [2:29]
-03. Don't You Want A Man Like Me? [2:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3640F0B58BCFDE9955AEC864F096A9DEEF41CBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1097205   (916069) от 26.01.2017
+
+Drawing Hands - March (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916069.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Siloa's Brook. (5:21)
+2. The Only Moving Thing. (1:21)
+3. Interlude #3. (2:52)
+4. Cold Fusion. (5:03)(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:44:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A9DE454251878C2E6D4037F1DD0D2CB6588B97D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097145   (916064) от 26.01.2017
+
+Maynard Ferguson - A Message From Newport (1958) 1989, Roulette[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Fugue [03:29]
+ 02.Fan it, Janet [03:17]
+ 03.The Waltz [04:05]
+ 04.Tag Team [05:09](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Big BandПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF734E79DBF78A394832092697F68EA6FB6D7958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097134   (916062) от 26.01.2017
 
 Gerry Mulligan - Jeru (1962) 2016, Sony Music[FLAC|Lossless|image + .cue] <Cool, West Coast Jazz>
@@ -686,64 +744,6 @@ Lou Donaldson - The Artist Selects (1952-1968) 2005, EMI[FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D41D4D6058F8A91B99C4E394E86B1720913AD99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097978   (910989) от 29.01.2017
-
-Donny McCaslin - Casting For Gravity (2012) Greenleaf Music[FLAC|Lossless|tracks + .cue] <Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Stadium Jazz [07:21]
- 02.Says Who [06:20]
- 03.Losing Track Of Daytime [07:41]
- 04.Alpha And Omega [04:14](   Читать дальше...   )Жанр: Modern CreativeПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5E6574F0A0601B37F4450CDC619423EA8FD0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097565   (910986) от 29.01.2017
-
-Michael Maxwell and His Orchestra - In The Big Band Mood (1997) Avalon Music[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In The Mood [03:30]
- 02.String Of Pearls [02:43]
- 03.Jumpin' At The Woodside [03:19]
- 04.When The Saints Come Marching In [03:15](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC54FCEA8B5DB4AB2F5E5EE5C4D911D010C45C71
 ```
 
 https://mybot314.ru/tekegram_catalog/

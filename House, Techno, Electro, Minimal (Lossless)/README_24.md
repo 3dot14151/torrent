@@ -1,3 +1,32 @@
+###  Публикация: 1211180   (777563) от 07.03.2018
+
+VA - Winter Chill 2018 (Relaxed Nu-Disco & Deep House Sounds) (2018) [FLAC|Lossless|tracks] <Nu-Disco, Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baltic Weather - Back Where I Belong (original mix) (5:51)
+02. Tikki Tembo & Yogi - Back To You (feat Natalie Conway - Tikki Tembo Main mix) (6:00)
+03. Giangi Cappai - Black Queen (feat Nia Martin) (6:56)
+04. Dmitrii G - Antidote (original mix) (6:05)(   Читать дальше...   )Жанр: Nu-Disco, Deep HouseПродолжительность: 02:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E9E527B0E592E9A1F843F9477E3702F4AD3CFAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211165   (777552) от 07.03.2018
 
 Kronos Quartet & Laurie Anderson - Landfall (2018) [FLAC|Lossless|tracks + .cue] <Modern Classical, Spoken Word>
@@ -710,35 +739,6 @@ VA - Sounds Of Instruments_02 (Mixed by Navid Tahernia) (2006) Compilation [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C939338493DAEA0A3F08ADC76E03997F8C6D952
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279695   (765461) от 30.01.2019
-
-VA - Sounds Of Instruments_01 (Mixed by Hiroshi Watanabe) (2005) Mixed, Compilation [FLAC|Lossless|image + .cue] <Minimal, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765461.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seiichiro Tanaka - Evening Glow (4:58)
-02. Sora a.k.a. DJ SODEYAMA & GONNO - I'm Not (4:13)
-03. Soda Inc. - Morning Prayer (4:12)
-04. Takayuki Higo - Fractal (4:36)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:10:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4641357732D54D9F653D3F039D7C8E2D9765B76
 ```
 
 https://mybot314.ru/tekegram_catalog/

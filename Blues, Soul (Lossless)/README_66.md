@@ -1,3 +1,131 @@
+###  Публикация: 1244920   (478097) от 03.09.2018
+
+Deák Bill Gyula - Hatvan csapás (2008) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hatvan csapas (3:48)
+02. A nagy generacio temetesere (2:53)
+03. Kene egy uveg bor (5:03)
+04. Let-e, aki let (2:38)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0483B4C1CC8BDCA8B08A9D95ABB9B7AE173D97AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1057088   (477706) от 27.09.2016
+
+The Dahman Beck Band - Ride the Night (2005) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give and Take   (04:10)
+02. Days of Missing You   (06:42)
+03. Hurricane of your Love   (07:55)
+04. Civilization Blues   (05:50)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2585E81D78C1A32F27BB60D0A296F72D04CA41A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546846   (476620) от 14.09.2012
+
+Buddy Whittington - Six String Svengali (2011) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back When the Beano Was Boss
+02. Deadwood and Wire
+03. My World Revolves Around You
+04. Ain't Got the Scratch
+05. I Had to Go and See Alice
+06. Fender Champ
+07. Six String Romance
+08. Texas Trios
+09. The Put On Song
+10. For Crystal Beach(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:38:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546837   (476479) от 14.09.2012
+
+Brother Jack Mcduff - A Change Is Gonna Come (1999) [FLAC|Lossless]<Jazz, Blues, Funk, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_476479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down In The Valley
+02. A Change Is Gonna Come
+03. Hotcha
+04. What'd I Say
+05. No Tears
+06. Gonna Hang Me Up A Sign
+07. Minha Saudade
+08. Same Old, Same Old
+09. Can't Find The Keyhole Blues
+10. But It's Alright(   Читать дальше...   )Жанр: Jazz, Blues, Funk, Hammond OrganПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057305   (475349) от 28.09.2016
 
 The Wicked Mercy - The Wicked Mercy (2013) [FLAC|Lossless|tracks] <Blues Rock, Southern Rock>
@@ -626,122 +754,6 @@ Snowy White - Driving On The 44 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29AFC18A22E58DF44FBB25B8D7E4ED4B1DB3B9BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940767   (464878) от 26.09.2015
-
-Johnny One Eye - Dirty (2015) [FLAC|Lossless|image +.cue]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Американская группа, названная по имени (или по фильму?, 1950) "народного" (типа Робин Гуда) гангстера. Здесь их второй альбом (первым был "Medication Blues", 2003). Играют на манер Creedence, Springsteen, Black Keys, Steve Earle, а также в собственном стиле.01. Company Man
-02. Dirty Sheets
-03. If I Had Money
-04. Someone Like Me(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340B84152A6E903D862A2EB0AE5DC144B6E62138
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059288   (464157) от 03.10.2016
-
-Neal Black & The Healers - Before Daylight (2014) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jesus & Johnny Walker   (05:35)
-02. Hangman's Tree   (04:48)
-03. The Peace Of Darkness   (03:55)
-04. Mama's Baby   (04:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EECB44F0935862E51DC4D284B02BEC1A02253C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941519   (462508) от 27.09.2015
-
-VA - Soul Moods: Contemporary Soul Classics (1994) 2CD [APE|image+.cue]<Funk, Soul, Rhythm & Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Душевное настроение: Современная классика Души - действительно хоть и выпущено это двухдисковое издание в далеком 1994 году, но и сегодня с удовольствием можно возвращаться к этим душевным трекам. Уж даже и не знаю чего в них больше танцевального ритма, горячего рок-блюза или душевной мелодичной музыки. Большинство из треков побывало в хит-параде журнала Billboard, (   Читать дальше...   )CD1:
-01. Marvin Gaye - (Sexual) Healing  (4:07)
-02. Anita Backer - Sweet Love  (4:22)
-03. Smokey Robinson & The Miracles - I Second That Emotion  (2:46)(   Читать дальше...   )Жанр: Funk, Soul, Rhythm & BluesПродолжительность: 02:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88324E7B8290D53B2A9D1774ECDB6710001AD429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059505   (462112) от 04.10.2016
-
-Neal Black & The Healers - Black Power (1994) [FLAC|Lossless|image + .cue] <Blues Rock, Texas Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misery   (05:02)
-02. Cadillac to Mexico   (04:19)
-03. Lost on a blue highway   (04:23)
-04. The black power rag   (03:09)(   Читать дальше...   )Жанр: Blues Rock, Texas BluesПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6829D22757408790C59FCD180734442FAEFC383D
 ```
 
 https://mybot314.ru/tekegram_catalog/

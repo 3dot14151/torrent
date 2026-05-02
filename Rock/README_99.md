@@ -1,3 +1,32 @@
+###  Публикация: 1802431   (66047) от 17.06.2025
+
+Neil Young - Talkin to the Trees (2025) [MP3|320 Kbps] <Country Rock, Roots Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Family Life [2:51]
+02 - Dark Mirage [5:40]
+03 - First Fire of Winter [4:44]
+04 - Silver Eagle [3:18](   Читать дальше...   )Жанр: Country Rock, Roots Rock, Folk RockПродолжительность: 00:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA7FE9FF9BD04302DF6377A3CD24AB9E213578D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802658   (65983) от 19.06.2025
 
 Avenged Sevenfold - Live At The GRAMMY Museum® (2017) Live [MP3|320 Kbps] <Rock, Acoustic>
@@ -717,35 +746,6 @@ Goat Generator - Goat Generator (2024) [MP3|320 Kbps] <heavy psych>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF9B3848BCCBCD5AE73CC2F73A9F3889AA85D587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746061   (45226) от 29.08.2024
-
-Jon Anderson and The Band Geeks - True (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True Messenger (05:50)
- 02. Shine On (04:18)
- 03. Counties And Countries (09:51)
- 04. Build Me An Ocean (03:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DC921B1C90638FADDC9E9CB9D9EBC336FD03F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

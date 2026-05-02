@@ -1,31 +1,22 @@
-###  Публикация: 476132   (98314) от 01.04.2012
+###  Публикация: 1822518   (100996) от 07.10.2025
 
-Burzum - Umskiptar (2012) [MP3|192 кб/с]<Black Metal, Ambient>
+Илья Рясной | Бандиты и психи (2024) [FB2]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98314.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blóðstokkinn (Soaked in Blood) (1:10)
-02. Jóln (Deities) (5:47)
-03. Alfadanz (Elven Dance) (9:18)
-04. Hit helga Tré (The sacred Tree) (6:48)
-05. Æra (Honour) (3:55)
-06. Heiðr (Esteem) (2:57)
-07. Valgaldr (Song of the Fallen) (7:58)
-08. Galgviðr (Gallow Forest) (7:13)
-09. Surtr Sunnan (Black from the South) (4:12)
-10. Gullaldr (Golden Age) (10:15)(   Читать дальше...   )2012Жанр: Black Metal, AmbientПродолжительность: 01:06:16
+Невероятные истории, рассказанные опером. «Наружка» сообщает по рации, что от гостиницы «Спорт», в которой состоялась сходка «авторитетов», со свистом ушел «ВАЗ-2106». Бандитская тачка проскакивает все светофоры, не обращая внимания на запрещающие сигналы. Выдает виражи. Но это ей не помогает. «Жигуль» нагоняют оперативные машины. Спецназовская «шестерка» подрезает (   Читать дальше...   )Жанр: Детектив, триллерИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68DDD8DBB695DB75DF541DAAE2707EFBDBEE2721
+magnet:?xt=urn:btih:50FC5FDA456889C9875F0B6CEF8B0E42D959E88D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,500 +24,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475978   (98313) от 01.04.2012
+###  Публикация: 1822509   (100995) от 07.10.2025
 
-Destruction - Best Of (1992) [MP3|320 кб/с]<Thrash Metal>
+В России отключили мобильный интернет для иностранных SIM и eSIM
 
->>Архив торрентов
->>Архив Музыки
+>>3
+>>След.
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98313.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1
-Продолжительность:01:08:38
-01 - Intro (1:15)
-02 - Total Desaster
-03 - Mad Butcher
-04 - Devil's Soldiers
-05 - Invincible Force
-06 - Death Trap
-07 - The Ritual
-08 - Tormentor(   Читать дальше...   )1992Жанр: Thrash MetalПродолжительность: 02:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C54B97E9B1F5B997B2E3A81C07A574F9A55AFD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476443   (98312) от 01.04.2012
-
-Авто плюс - Наши тесты / Volkswagen Passat Alltrack (2012) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98312.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Наши тесты" - это знакомство с новым, как правило еще не появившимся на рынке автомобилем. Только комплексный тест на полигоне и дорогах общего пользования способен выявить все преимущества и недостатки автомобиля. Ведущие сами испытывают новинку, моделируя всевозможные ситуации, от спортивных заездов до серьезного бездорожья.Жанр: ТелепередачаПродолжительность: 00:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9DCAC6BC80C33E0329CF68676668B37E014514
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476086   (98310) от 01.04.2012
-
-Continuo Renacer - The Great Escape (2011) [MP3|320 кб/с]<Progressive Technical Death / Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98310.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Great Scape[06:38]
- 2. Give Up Tomorrow [06:42]
- 3. For Those Things To Come [06:51]
- 4. Facing Fears [05:37]
- 5. The Newborn [15:12]2011Жанр: Progressive Technical Death / JazzПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D5E572B2F7330351BF705B9FD6EC3BB51DB4FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476788   (98308) от 01.04.2012
-
-VA - Avto Club April (2012) [MP3|320 kbps]<Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Coverage Feat. Rameez - Think About The Way (Extended Mix)
-02. Jaycee Madoxx - Never Say Never (Marc Korn Hands Up Radio Mix)
-03. Hands Up Squad - Alice In Wonderland 2k12 (Hardmaster Remix Edit)
-04. Topmodelz - Two Princes (Paramond Edit)
-05. Bodybangers Feat. Carlprit & Linda Teodosiu - One More Time (Tujamo Remix Edit)
-06. Junior Caldera feat. Billy Bryan - What You Get (Original Radio Mix)
-07. Horn E. - Balando Cachonda (I Wanna Fuck)
-08. Flo Rida - Good Feeling (DJ Kapuzen & DJ Spaty Radio mix)
-09. Eagles - Hotel California (Ivan Flash Remix)
-10. Ferry Corsten And Armin Van Buuren - Brute (Radio Edit)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E780DD63FE456BA4EDFD24C2D450FA062CDE79D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476093   (98302) от 01.04.2012
-
-Cause For Effect - Progressive And Minimalist Recording (2010) [MP3|320 кб/с]<Jazzgrind / grindcore / fusion / jazz / progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Forester 031 (0:31)
- 02 Servitor(0:48)
- 03 Classic galaxy(0:42)
- 04 Not ok radioactive situation(0:49)
- 05 Slug situation(0:47)
- 06 Hypnoconsultism(0:57)
- 07 Headless 200(0:51)
- 08 Diplomat 6(0:53)
- 09 Apparatus(0:46)
- 10 Multism(0:50)(   Читать дальше...   )2010Жанр: Jazzgrind / grindcore / fusion / jazz / progressiveПродолжительность: 00:19:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2C3B5BA047D13D26DB98FC8041FB71DDC1288AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474754   (98300) от 01.04.2012
-
-VA - HouseVip (22.03.12) [MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98300.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alya - Damelo (DJ Geny Tur & DJ МакsимOFF Remix) (3:52)
- 2. Bastille - One Night Love Affair (Aylen Remix) (4:28)
- 3. Benny Benassi feat. Sandy - Illusion (Ramirez Remix) (4:31)
- 4. Cascada - Summer Of Love (Michael Mind Project Remix) (4:52)
- 5. Cher Lloyd - Want U Back (Cahill Extended Mix) (5:52)
- 6. G&G feat. Jonny Rose & Chris Reeder - All Falls Down (Extended Mix) (4:16)
- 7. Klaas - Engelstrommeln (Radio Edit) (3:03)
- 8. Michael Telo - Ai Se Eu Te Pego (DJ Geny Tur Remix) (4:34)
- 9. Spring Emotions & Seaside Clubbers - Egoist (Mondo Remix) (7:05)
- 10. Wendel Kos & Big Fish - Ready To Rock (Original Mix) (6:16)22.03.12Жанр: Electro HouseПродолжительность: 00:48:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA64F19B724799C08378DC63E47A3D62D07470F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474757   (98297) от 01.04.2012
-
-VA - House Vip (23.03.2012) [MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98297.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ace Of Base - All For You (Critz & Lucas T. Remix) (5:26)
- 2. Ann Winsborn - Je N'ai Pas Compris (DJ Arctic ' Pump' Remix) (5:01)
- 3. Basshunter - Now You're Gone (Freaky DJs & Dima Project Remix) (4:48)
- 4. Bobina & Betsie Larkin - You Be Long To Me (Menny Strong Remix) (6:51)
- 5. Bodybangers feat. Gerald G! - Set The Night On Fire (Original Mix) (5:06)
- 6. Bodyrox feat. Chipmunk & Luciana - Bow Wow Wow (Bluestone vs. Loverush Radio Edit) (3:24)
- 7. Chris Brown with Rihanna - Turn Up The Music (Miami Life Remix) (5:15)
- 8. Compact Disco - Sound Of Of Hearts (Stereo Palma Remix) (7:10)
- 9. DJ Cargo vs. Locco Freakz - Reach Up (Freaky DJ's Mash Up 2k12) (3:48)
- 10. Dubsective - Shara (Original Mix) (5:00)23.03.2012Жанр: Electro HouseПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:228029AA41FAC340D27E99AC17CD8DDD493D68D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474499   (98296) от 01.04.2012
-
-Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012) [MP3|320 кб/с]<Electro House , House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98296.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dj VoJo - CLUB DESIRE vol.11: Spring Mood (27.03.2012)
-Год: 27.03.2012
-Жанр: Electro House , House
-Продолжительность: 01:02:32Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-1. Rene Rodrigezz & DJ Antoine feat. MC Yankoo - Shake 3x (Original Mix)
-2. Michael Woods - Last Day On Earth (DJ Solovey Remix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6FDC235DD9B1351D3AAC1CACC1BC9130078662
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476223   (98295) от 01.04.2012
-
-VA - Klubnye novinki Vol.60 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Sayz feat. Christina Skaar - Falling
-02. Alex Valenso - Sky (Club Mix)
-03. Andeeno Damassy vs. Natalia Kills - Mirrors  (Club Mix)
-04. Andrey Dubovitskiy Vs Dj Bobo - Love Is All Around (k Club Mix)
-05. Bang Bang - Music Is My Girlfriend
-06. Christopher S feat. Lisa - There For You
-07. Cristian Marchi & Syke'n'Sugarstarr feat. Lisa Millett - U Got Me Rockin' (Cristian Marchi & Paolo Sandrini Prog Mix)
-08. Digital Mass - God Is A DJ (Original Mix)
-09. Dirty South feat. Andreas - Glorious (Daddy's Groove Mix)
-10. DJ-Relay & Kathleen Moore - Spiel Mit Mir(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C664652BB3BFD26E81FA809A50262DC6A9733DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476549   (98294) от 01.04.2012
-
-VA - Trance Ministry 2CD (2012) [MP3|320 кб/с]<Trance, Hard Trance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98294.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Green Court - Inside Your Gates (Cosmic Gate remix) (7:50)
-2. Patrice Milan - Eternal Spirit (Wavetraxx remix) (7:06)
-3. Jake Nicholls - Decade (DJ Space Raven & Shokk remix) (7:19)
-4. S.Y.S. - Weiber (7:27)
-5. Antheya - High (original vocal mix) (7:32)
-6. Benya - Rhea (DJ Choose remix) (7:25)
-7. Crush - First Union (Riot 303, observer mix) (6:49)
-8. Junk Project - Beats Brings Silence (4:57)
-9. Silent Harmony - Save the Whales (Vincent De Moor mix) (6:38)
-10. Tectonic Shift - Silver Dusk (feat Andre Visior) (9:36)2012Жанр: Trance, Hard TranceПродолжительность: 02:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F109C7FB79AA18299CD622EE1D83B9B0BCC612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476627   (98292) от 01.04.2012
-
-VA - Trance Maniacs Party: Progressive Session #35 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98292.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Trance Maniacs Party: Progressive Session #35 (2012)Год: 2012
-Жанр: Trance
-Продолжительность: 03:46:29
-Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Akira Kayosa & Hugh Tolland feat. Stine Grove - Always With You (Lee Canning Remix)
-02. 100MG - Amorphism(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA8F210B8A62DBEE3CD957A731954FE4BDCEAFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476648   (98289) от 01.04.2012
-
-DJ Kocmoc - Red Station vol.3 (31.03.2012) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dubsective - Sanskrit (Original Mix)
-02. Friction vs Camo & Krooked feat. Dynamite MC - Stand Up (Sigma Remix)
-03. Hallucinator - Suicide (Cooh Remix)
-04. Logistics - Beatbox Master (Original Mix)
-05. Noisia - Machine Gun (Original Mix)
-06. Noisia - Thursday (Black Sun Empire Remix)
-07. Noisia - Soul Purge (Current Value Remix)
-08. Hallucinator - Motherfucker (Original Mix)
-09. Emalkay - Flesh and Bone (Delta Heavy Remix)
-10. Oscillatorz - The Miles (Original Mix)(   Читать дальше...   )31.03.2012Жанр: Drum & BassПродолжительность: 01:11:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D176E320C92D2709582BEDF48E97069BBAAA2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476089   (98288) от 01.04.2012
-
-The Aether Tree - Esperanza (2011) [MP3|320 кб/с]<Avant-Garde Metal / World Jazz / Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98288.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alma Hueca 09:47
- 2. Cracks in the Mirror 05:46
- 3. Pyrexia 07:10
- 4. Dewdrops at Dusk 10:03
- 5. The Art and the Equation 08:33
- 6. Mia Rosa 05:58
- 7. Menos Grande 06:01
- 8. Esperanza 08:22
- 9. Scratching at Clouds 06:40
- 10. Amor y Decadencia 10:472011Жанр: Avant-Garde Metal / World Jazz / Post-MetalПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83447A05CCF0A0A685D9319087018F72FA406965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476610   (98285) от 01.04.2012
-
-VA - 20 Progressive House Tunes Vol.2 (2012) [MP3|320 кб/с]<House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98285.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - 20 Progressive House Tunes Vol.2 (2012)
-Год: 2012
-Жанр: House, Trance
-Продолжительность: 02:43:34Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. 16 Bit Lolitas - You Are An Astronaut (Original Mix) (07:29)
-02. Matisse & Sadko - Amulet (Original Mix) (07:07)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:161AC159D9C65E8A64CDD02EF5B79BBE588D5774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475500   (98284) от 31.03.2012
-
-Аloe Blacc - Good Things (2010) [MP3|320 кб/с]<Soul>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Need A Dollar
-02. Green Lights
-03. Hey Brother
-04. Miss Fortune
-05. Life So Hard
-06. Take Me Back
-07. Femme Fatale
-08. Loving You Is Killing Me
-09. Good Things
-10. You Make Me Smile(   Читать дальше...   )Жанр: SoulПродолжительность: 00:47:18
+В ночь с пятого на шестое октября в Сети стали появляться многочисленные сообщения о неработающем интернете при использовании иностранных SIM и eSIM-карт, в том числе выпущенных сотовыми операторами стран СНГ. При этом голосовая связь и отправка SMS доступны. Предположительно, блокирование интернета на роуминговых SIM-картах связано с так называемым «периодом охлаждения», (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -538,34 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476245   (98280) от 31.03.2012
+###  Публикация: 1822561   (100994) от 07.10.2025
 
-VA - Erotic Feelings: 30 Sexy Lounge Tracks For Passionated Moments (2012) [MP3|320 kbps]<Chillout | Lounge | Downtempo>
+MAX Desktop 25.12.1 [Ru]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98280.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. That's the Way Love Goes - Yuliet Topaz
-02. Spacechild - Aries In Mars
-03. Wann ist es Liebe - Jazzamor feat. Publique
-04. The Mood Is Good - Vst
-05. 2 Becomes 3 (4.57m Edit) - Soulounge feat. Cultured Pearls
-06. A Joint After The Sex - Marcus Zelonka
-07. Femme fatale - Deeper Sublime & Eriq Johnson
-08. Mon coeur - Bloomfield
-09. Love Hungry - Weathertunes
-10. Bedtime - Naoki Kenji(   Читать дальше...   )2012Жанр: Chillout | Lounge | DowntempoПродолжительность: 02:30:33
+Быстрое и лёгкое приложение для общения и решения повседневных задач. Общайтесь в удовольствие благодаря высокому качеству связи и быстрому соединению даже в сетях со слабым сигналом. Анимированные стикеры, реакции в чатах, возможность отправки файлов до 4 ГБ – все необходимое для того, чтобы делиться настроением и важной информацией. В MAX можно войти сразу с нескольких (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43673DE6E75892DEFD9731D0E52851FF65489B73
+magnet:?xt=urn:btih:E87ABE00E19E818DFF5CE8C8CFD2250FF7C9B7F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -573,25 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476349   (98279) от 31.03.2012
+###  Публикация: 1488017   (100993) от 07.10.2025
 
-Прожекторперисхилтон. Сезон 4. Выпуск 24(124) (30.03.2012) DVBRip
+Пол Нёрс | Что такое жизнь? Понять биологию за пять простых шагов (2021) [PDF]
 
->>Архив торрентов
->>Архив Юмора
+>>Научная и техническая литература
+>>Точные и естественные науки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98279.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:29:45
+Что такое жизнь? Вслед за Докинзом, Хокингом и Аттенборо выдающийся британский ученый, лауреат Нобелевской премии в области медицины и физиологии Пол Нёрс стремится ответить на один из самых важных вопросов науки. Доступно и понятно объясняя базовые процессы и явления, без которых жизнь была бы невозможна, он представляет в книге основополагающие идеи, рассказывая, (   Читать дальше...   )Жанр: Научно-популярная литература, Общая биологияПеревод: Алексей ПоповИздательство: Азбука-Аттикус; КоЛибриФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:009553A4085F1F856F5172BE0ADB0DB617E5718B
+magnet:?xt=urn:btih:CC34E5ADAF450018C08B263269BCE494B20C30EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -599,34 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476173   (98278) от 31.03.2012
+###  Публикация: 1822353   (100992) от 07.10.2025
 
-Erik Jackson - Rainy Days (2012) [MP3|320 кб/с]<Acid Jazz>
+Книжная серия | Настоящее преступление [6 книг] (2022-2024) [FB2]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественная литература
+>>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98278.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100992.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Put On A Record (Intro)
-02 It's Time
-03 Now And Then
-04 Tonights Forecast (Interlude)
-05 Rainy Days
-06 Starlight
-07 Through The Storm
-08 Be Mine
-09 Genuinely
-10 Staying Home Tonight (with you)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 00:39:19
+Подлинные истории громких преступлений, настоящая классика жанра true crime, ставшая основой для популярных сериалов и фильмов. Нон-фикшн от профессионалов в области криминологии и психологического профилирования и исторические расследования о самых громких преступлениях прошлого и о том, как менялось само наше представление о преступлениях, убийствах и о том, что (   Читать дальше...   )Жанр: Детектив, криминалИздательство: АСТФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:584D8959A4CC21EEED9E429E1CE95246A3138CFB
+magnet:?xt=urn:btih:E0D20FA89DA4BB84828931655756C464D044C112
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -634,34 +128,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476236   (98276) от 31.03.2012
+###  Публикация: 1822510   (100991) от 07.10.2025
 
-Ladyhawke - Anxiety (2012) [MP3|320 кб/с]<Indie Rock, New Wave, Electronic, Synth, Female Vocal>
+Книжная серия | Шпионы. Дело №… [6 книг] (2022-2024) [FB2]
 
->>Архив торрентов
->>Архив Музыки
+>>Художественная литература
+>>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Girl Like Me
-02. Sunday Drive
-03. Black, White & Blue
-04. Vaccine
-05. Blue Eyes
-06. Vanity
-07. The Quick & the Dead
-08. Anxiety
-09. Cellophane
-10. Gone Gone GoneЖанр: Indie Rock, New Wave, Electronic, Synth, Female VocalПродолжительность: 00:36:09
+Перед вами книги новой серии «Шпионы. Дело №…», представляющей лучшие образцы советского шпионского романа. Расцвет этого жанра пришелся на 50 е годы прошлого века – эпоху глобального мирового противостояния. В этих книгах люди старшего поколения находили не только описания захватывающих приключений, интриг, многоходовых остросюжетных комбинаций, но и непременное (   Читать дальше...   )Жанр: Детектив, приключения, прозаИздательство: ВечеФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8A36A09BA1CA8529C37A67295CB980FE360ABDF
+magnet:?xt=urn:btih:119B7507551A0858AF1E285B920297A9E63D719E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,26 +154,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476403   (98275) от 31.03.2012
+###  Публикация: 1822568   (100990) от 07.10.2025
 
-Георгий Горностаев | Насекомые СССР [1979] [DJVU]
+Шнайдер против Бакса / Schneider vs Bax (2015) BDRip [H.264/720p]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98275.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100990.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красота и обилие форм делают насекомых интереснейшим объектом наблюдений и коллекционирования, придавая познавательный и эстетический смысл любительским занятиям энтомологией.
- В справочнике-определителе автор в популярной форме рассказывает о представителях мира насекомых Советского Союза, приводит цветные и черно-белые иллюстрации, которые помогут определить тот или иной вид.1979Жанр: Образование, развитиеФормат: DJVU
+Шнайдер – наёмный убийца-профессионал. Даже в день своего рождения он обязан подчиниться заказчику, некоему Мертенсу, и ликвидировать Рамона Бакса, писателя, живущего в домишке на берегу озера, окруженного болотами. Киллеру приходится спешить, ведь дома его ждёт праздничный обед в кругу семьи. Однако в этот день всё идёт наперекосяк. Непредвиденные обстоятельства (   Читать дальше...   )Производство: Нидерланды / Czar, Graniet Film BV, Mollywood, Verenigde Arbeiders Radio Amateurs (VARA)Жанр: комедия, триллерРежиссер: Алекс Ван ВармердамАктеры: Том Де Виспеларе, Алекс Ван Вармердам, Мария Краакман, Гене Бервутс, Аннет Мальэрб, Пьер Бокма, Анри Гарсен, Лоэс Хаверкорт, Ева ван де ВийдевенПеревод: дублированный (iTunes)Язык озвучки: русский, нидерландскийСубтитры: русские, английскиеПродолжительность: 01:36:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48530D97BE22D17F5AC28163289F6EA43845E14A
+magnet:?xt=urn:btih:20ACBA5B939D9BC6BBB71BBB2117C88193687040
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -696,34 +180,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476265   (98273) от 31.03.2012
+###  Публикация: 1822536   (100989) от 07.10.2025
 
-VA - Дискотека "Наступает Ночь" (2012) [MP3|256 kbps]<Disco | Dance>
+Душегубы (2025) HDTVRip [H.264] (сезон 2, серии 1-2 из 10) (обновляемая)
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Отечественные сериалы
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98273.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Мираж vs DJ Грув - Наступает ночь 2012
-002 Savage - Dont Cry Tonight (Alexandra Damiani Radio Mix)
-003 Дмитрий Маликов - До завтра (Andry Makarov Remix)
-004 Mirami - Venus (Extended Version)
-005 Иванушки International - Снегири (Aleksey Kraft Remix 2012)
-006 Emanuele Carocci Feat. Laura - Maria Magdalena (Pop Mix)
-007 Корни и Фабрика - Не обижай жених
-008 Frisco Disco feat. Ski - One Way Ticket (Radio Version)
-009 Отпетые Мошенники - Девушки бывают разные (DJ Bee Remix)
-010 Eagles - Hotel California (Ivan Flash Remix)(   Читать дальше...   )2012Жанр: Disco | DanceПродолжительность: 06:21:31
+1989 год. Самойлов находится в психбольнице и обследуется в институте Сербского в Москве. Известный психиатр Баженов лечит его уникальным методом, искренне веря в то, что маньяк исцелится. И даже готовит его к выписке, несмотря на то, что другие врачи против. Во время очередной перевозки из института в психбольницу Самойлову удается сбежать. Почти сразу же в Подмосковье (   Читать дальше...   )Производство: Россия / Амедиа ПродакшнЖанр: триллер, детектив, криминалРежиссер: Алексей Быстрицкий, Максим КубринскийАктеры: Сергей Марин, Зоя Бербер, Сергей Чирков, Софья Синицына, Вячеслав Крикунов, Александр Самойленко, Яна Сивакова, Наталия Колоскова, Мария Орлова, Юрий Тузов и др.Продолжительность: ~00:49:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E8F4C040F44335750B17AC439282E9AA9D111B0
+magnet:?xt=urn:btih:5C267EB68E1B187642D84AFB1F6C1983A2640F0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -731,25 +206,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476414   (98271) от 31.03.2012
+###  Публикация: 1822524   (100988) от 07.10.2025
 
-Open Xange 2012.04 RC1 [x86_64] (1xDVD)
+Minimal Firewall 2.4.2 Portable [En]
 
->>Архив торрентов
->>Архив *Nix
+>>Безопасность
+>>Firewalls
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98271.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Open Xange - легкий в использовании дистрибутив Linux, основанный на Fedora и использующий рабочий стол KDE по умолчанию. Fedora - дистрибутив Linux, который спонсируется фирмой Red Hat и поддерживается сообществом. Проект служит для тестирования новых технологий, которые в дальнейшем включаются в продукты Red Hat и других производителей. Компания Red Hat не предоставляет поддержку пользователям Fedora, поддержка осуществляется открытым сообществом.
+Minimal Firewall — это портативный интерфейс брандмауэра Windows, который оповещает пользователей о подключениях к Интернету без необходимости внесения специальных изменений в ядро ​​или отключения изоляции ядра, обеспечивая баланс между безопасностью Window Defender и функциональностью Simplewall.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B9CC4CA823CCBF8E071E38DD85D4A85CBF36A26
+magnet:?xt=urn:btih:99A664D5553A37C2EF7326FA6CCFA005C9D097E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -757,25 +232,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475953   (98269) от 31.03.2012
+###  Публикация: 1822521   (100987) от 07.10.2025
 
-Марджори Аллингхэм | Таинственная улика (2012) [MP3]
+Елена Дорош | Вечерний детектив Елены Дорош [14 книг] (2021-2024) [FB2]
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Марджори Аллингхэм — знаменитая английская писательница, из-под пера которой вышли более 30 детективных романов, в том числе популярнейшая серия об Альберте Кемпионе. В ее романах есть все — сатира и смех, убийства и шантаж, любовь и интриги. Книги М. Аллингхэм не уступают по напряженности повествования произведениям Агаты Кристи, с которой ее часто сравнивают. Новая (   Читать дальше...   )Жанр: ДетективПродолжительность: 10:00:08
+Елена Дорош пишет для тех, кто не впадает в уныние, не боится испытаний и ждет от жизни только хорошее. Ее книги — не просто детективы. Они не только о любви. Каждая открывает увлекательную, порой малоизвестную сторону человеческого бытия.Жанр: ДетективИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEDB0CEEF08109E6D96BD50494AC6B36023F0D14
+magnet:?xt=urn:btih:406E50FE3EEC57773413D1EB9B736CBB5327B63A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -783,34 +258,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475980   (98264) от 31.03.2012
+###  Публикация: 1822569   (100986) от 07.10.2025
 
-Susie Arioli - All The Way (2012) [MP3|192 кб/с]<Vocal Jazz, Swing, Easy Listening>
+Инкогнито - The Best (2025) 2CD [FLAC|Lossless|image + .cue] <Rock>
 
->>Jazz, Blues, Soul
->>Jazz
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Funny Valentine
-02. Time On My Hands
-03. Here's to the Losers
-04. All the Way
-05. Here's That Rainy Day
-06. It's Always You
-07. Forgetful
-08. There's a Lull In My Life
-09. Come Rain or Come Shine
-10. When Your Lover Has Gone(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Easy ListeningПродолжительность: 00:47:12
+01. Чистая вода
+02. Солнце теряет лучи
+03. Тени на теле
+04. Говорили долго (feat. Алёна Романова)(   Читать дальше...   )Жанр: RockПродолжительность: 01:41:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2F155E1F16DF8F2176CC6075FFBC829108C77254
+magnet:?xt=urn:btih:CBD01FFC9B4D77621065CC9FF434DBB6E8C6FC58
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -818,34 +287,391 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476391   (98263) от 31.03.2012
+###  Публикация: 1822511   (100985) от 07.10.2025
 
-cHAMBAo - Endorfinas En La Mente (2004) [MP3|320 кб/с]<Electronic, Latin, Flamenco>
+Что? Где? Когда? (2025) HDTV [H.264/1080р] (Осеняя серия: игра 1 из 4) (обновляемая)
 
->>Архив торрентов
->>Архив Музыки
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chambao
-02. Lo Verás
-03. Desconocido
-04. Ahí Estás Tú
-05. Vida
-06. Volando Voy
-07. Los Muchachos De Mi Barrio
-08. Mejor Me Quedo Aquí
-09. Una De Tantas
-10. As De Corazones(   Читать дальше...   )Жанр: Electronic, Latin, FlamencoПродолжительность: 01:19:56
+Интеллектуальная телевизионная игра, в которой команда из шести игроков, называемых «знатоками», ищет правильный ответ на любой заданный им вопрос при помощи мозгового штурма в течение одной минуты. За правильный ответ очко получает команда «знатоков», а если они дают неправильный ответ, очко начисляется их противникам. Побеждает сторона, первой набравшая шесть очков.Производство: Россия / Студия Эксперимент, ТВ ИграЖанр: ТВ-шоуРежиссер: Борис КрюкУчастники: Леонид Климович, Оксана Петрунько, Михаил Дюба, Александр Друзь, Борис Левин и капитан команды Виктор Сиднев.Язык озвучки: русскийСубтитры: отсутствуютПродолжительность: выпуски по ~01:00:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F64CE5D4CC414549AA66885B7B02F65CD4EAD38F
+magnet:?xt=urn:btih:00B29645D0B36A3B0E50FF4C481C5576C0B6335B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822573   (100984) от 07.10.2025
+
+Заклятие 4: Последний обряд / The Conjuring: Last Rites (2025) WEB-DL [H.264/1080p] [MVO]
+
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Исследователи паранормальных явлений Эд и Лоррейн Уоррен берутся за самый страшный случай в своей практике. Семья переезжает в новый дом, но вскоре жилище начинает проявлять признаки демонической активности, превращая жизнь новых жильцов в кошмар.Производство: США, Великобритания, Канада / Atomic Monster, New Line CinemaЖанр: ужасыРежиссер: Майкл ЧавесАктеры: Патрик Уилсон, Вера Фармига, Миа Томлинсон, Бен Харди, Стив Култер, Ребекка Калдер, Эллиот Кауэн, Бо Гадсдон, Кила Лорд Кэссиди, Джон БразертонПеревод: Многоголосый профессиональный (LineFilm)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 02:15:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A00C4A8017F29392A62B21BC6E29C6CDC5997F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822579   (100983) от 07.10.2025
+
+AIMP 5.40 Build 2696 RePack (& Portable) by Dodakaedr [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100983.jpg" />
+</div>
+
+
+###  Подробнее
+
+AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, белорусский, украинский, английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22DD72AEA46958895CC3AAD2A4C31EADCABC905C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822508   (100982) от 07.10.2025
+
+Книжная серия | Смешные детективы [258 книг] (2009-2024) [FB2]
+
+>>Художественная литература
+>>Многоавторские серии и сборники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100982.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Смешные детективы» - это серия детективной литературы, написанной известными авторами-женщинами. Героини книг попадают в нелепые и смешные ситуации, но с честью выходят из них и даже умудряются распутать сложные криминальные загадки. «Смешной детектив» - это, когда убили не тебя, и тебе поэтому не страшно и больно, а смешно; когда сажают другого - тебе весело, что (   Читать дальше...   )Жанр: Иронический детектив, Дамский детективный романИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C7C7A2A7DA07D582C3DD32DA109D76584670E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822581   (100981) от 07.10.2025
+
+Жизнь в военное время / Life During Wartime (2009) BDRip [H.264]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100981.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм является вольным продолжением фильмов Тодда Солондза «Счастье» (1998) и «Добро пожаловать в кукольный дом» (1995).
+Сюжет разворачивается вокруг сестёр Джордан: Триш, Джой и Хелен. Джой вышла замуж за бывшего соседа Хелен, Аллена Мелленкампа. Триш по-настоящему мечтает лишь о том, чтобы её новый муж стал хорошим приемным отцом её детей. Ведь настоящий отец мальчиков (   Читать дальше...   )Производство: США / Werc Werk WorksЖанр: драма, комедияРежиссер: Тодд СолондзАктеры: Ширли Хендерсон, Майкл Кеннет Уильямс, Рослин Рафф, Эллисон Джэнни, Майкл Лернер, Дилан Райли Снайдер, Киаран Хайндс, Рене Тейлор, Ребекка Чайлз, Пол Рубенс, Эмма Хинз, Шарлотта Рэмплинг, Элли Шиди, Рич Печчи, Гэби ХоффманнПеревод: профессиональный многоголосый (R5)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3C976E473FAE771677EDE80AB9C13E6618D191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822531   (100980) от 07.10.2025
+
+Soft Organizer Pro 10.32 [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Обслуживание ОС
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зачастую после удаления программ в системе остаются следы от них, ненужные файлы и папки на дисках и записи в реестре. Это происходит даже в том случае, если приложение удалялось по всем правилам, с использованием собственного деинсталлятора (инструмента для удаления программы, созданного его разработчиками). Программа Soft Organizer (ранее Full Uninstall) предназначена (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83EA4441BD1898643F981D5D2FE4042F2A8E3B88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822582   (100979) от 07.10.2025
+
+Floorp Browser 12.2.1 + Portable [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>ПО для Интернета и сетей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Floorp Browser – это модифицированная версия Firefox, созданная с акцентом на гибкость и настраиваемость. Браузер предлагает уникальные функции, такие как изменение интерфейса для имитации других браузеров, несколько рядов вкладок и оптимизацию памяти. Floorp Browser также исключает все функции телеметрии Firefox, обеспечивая уважение к приватности пользователей. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A87D34567E6E3118FFD93D0D78BC05C6087FCA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 440218   (100978) от 07.10.2025
+
+Пьяная лодка / Drunkboat (2010) HDRip
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ветеран войны во Вьетнаме по имени Морт приезжает к своей сестре Эйлин. Они погружаются в воспоминания о своей жизни, проблемах и неудачах. Сын Эйлин мечтает стать моряком и Морт хочет ему помочь в этом…Производство: СШАЖанр: ДрамаРежиссер: Боб МейерАктеры: Джон Малкович, Джон Гудмен, Дана Дилэйни, Якоб Закар, Скипп Саддат, Джим Ортлиб, Элизабет Хипвелл, Зэк Грэй, Тони Фарелла, Стив ХаггардПеревод: Профессиональный (многоголосный)Продолжительность: 01:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D34CF977895BDF96C4482FB3E78105AC1D347947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822528   (100977) от 07.10.2025
+
+Шрифты - GGBotNet - Correction Brush [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Correction Brush - это шрифт с ручной росписью, который привносит в ваш дизайн оригинальность. Этот очаровательный шрифт отражает суть городского уличного искусства и бунтарского творчества, как будто каждая буква была создана кистью, пропитанной городской суровостью и художественным вызовом.
+Независимо от того, создаете ли вы плакаты в стиле гранж, яркую графику (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A580A9721932434D4B88CE63149E82D2B95F3AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659242   (100976) от 07.10.2025
+
+Подстава (серии 1-4 из 4) (2012) DVB
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100976.jpg" />
+</div>
+
+
+###  Подробнее
+
+На пешеходном переходе сбита беременная Ирина Варламова, с места происшествия скрывается дорогой спортивный автомобиль. Ирина умирает в больнице, ее восьмимесячная дочь попадает в реанимацию в критическом состоянии. Сергею Варламову, владельцу небольшой автотюнинговой компании, врачи советуют готовиться к худшему. Сергей в шоке - его жизнь разрушена. Сергея утешают (   Читать дальше...   )Жанр: Триллер, ДетективРежиссер: Станислав НазировАктеры: Владимир Епифанцев, Анатолий Гущин, Кирилл Гребенщиков, Сергей Никоненко, Дарья Лузина, Владимир Скворцов, Михаил Богдасаров, Яна Гурьянова, Борис Шевченко, Екатерина ВиноградоваПродолжительность: 4 x ~ 00:48:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:403050B6F7A3241F5F612F9B0460B89E9A72F54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216775   (100975) от 07.10.2025
+
+Лабиринт Фавна / El laberinto del fauno (2006) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Испания, 1944 год. Группа повстанцев сражается с фашистами в горных лесах северной Наварры. Офелия — 10-летняя одинокая и мечтательная девочка — переезжает со своей беременной матерью Кармен в военный лагерь отчима, капитана Видаля. Видаль — высокомерный и жестокий офицер армии Франко, который должен очистить район от повстанцев любой ценой. Офелия, увлеченная волшебными (   Читать дальше...   )Производство: Испания, Мексика, США / Esperanto FilmojЖанр: фэнтези, драма, военныйРежиссер: Гильермо дель ТороАктеры: Ивана Бакероб, Серхи Лопес, Марибель Верду, Даг Джонс, Ариадна Хиль, Алех Ангуло, Маноло Соло, Рожер КазамажорПеревод: Дублированный (Лицензия)Субтитры: Русские, Испанские, АнглийскиеКачество: BDRip 1080pПродолжительность: 01:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E40D0C16FB582EB706F9281A78BDF48AF610E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822586   (100974) от 07.10.2025
+
+Ocenaudio 3.16 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Аудио Граббинг, Мастеринг, Обработка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ocenaudio — аудиоредактор, распространяемый авторами абсолютно бесплатно. Приложение имеет различные варианты сборок, поддерживающих работу в различных операционных системах (Windows, Mac OS X, Linux). Это невероятно простой способ вносить изменения в аудио треки. При наличии достаточно мощных функций, программа не вызовет осложнений при работе даже новичками. Однако (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4504AFA4E961A884159A493A8B8C906AF0F5A1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822513   (100973) от 07.10.2025
+
+Сергей Зверев | Танкисты «тридцатьчетверки». Они стояли насмерть [12 книг] (2018-2023) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100973.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Танкисты «тридцатьчетверки». Они стояли насмерть» - серия военных приключенческих боевиков известного писателя Сергея Зверева. Этому автору по силам любой жанр: жесткий боевик и военные приключения, захватывающий детектив и криминальная драма. Совокупный тираж книг С. Зверева составляет более 6 миллионов экземпляров. Его имя — неизменный знак качества каждой новой (   Читать дальше...   )Жанр: Боевик, приключенияИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFDCF3CC973F3B99CAB5A996C05C5758D1DC2B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822588   (100972) от 07.10.2025
+
+Душегубы (2025) HDTV [H.264/1080p] (сезон 2, серии 1-2 из 10) (обновляемая)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100972.jpg" />
+</div>
+
+
+###  Подробнее
+
+1989 год. Самойлов находится в психбольнице и обследуется в институте Сербского в Москве. Известный психиатр Баженов лечит его уникальным методом, искренне веря в то, что маньяк исцелится. И даже готовит его к выписке, несмотря на то, что другие врачи против. Во время очередной перевозки из института в психбольницу Самойлову удается сбежать. Почти сразу же в Подмосковье (   Читать дальше...   )Производство: Россия / Амедиа ПродакшнЖанр: триллер, детектив, криминалРежиссер: Алексей Быстрицкий, Максим КубринскийАктеры: Дмитрий Паламарчук, Любовь Баханкова, Александр Дьяконов, Анна Домникова, Денис Зыков, Артемий Черкашин, Тимофей Мадуев, Геннадий Стариков, Дария Любивая, Александр Мишин и др.Продолжительность: ~00:49:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2179A3A354A46D95415619E72D4B00C0E05D3DA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822517   (100971) от 07.10.2025
+
+Лев Брусилов | Губернский детективъ [4 книги] (2024-2025) [FB2]
+
+>>Художественная литература
+>>Собрания книг русскоязычных авторов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100971.jpg" />
+</div>
+
+
+###  Подробнее
+
+В губернском городе Татаяре есть множество всяких развлечений, и клубы, и даже свой салон восковых фигур. Его устроил купец первой гильдии Иван Пядников, что многие сочли чудачеством. Но однажды утром в салоне находят тело самого владельца. Казалось бы, ничего необычного в смерти от сердечного приступа нет, но доктор все же обнаружил некоторые странности. Полковник (   Читать дальше...   )Жанр: ДетективИздательство: ЭксмоФормат: FB2Качество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7023EFFE4B9CDE7ACBD135AAE03652367EA2BF1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

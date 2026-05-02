@@ -1,3 +1,61 @@
+###  Публикация: 1145656   (620099) от 26.06.2017
+
+Don Byron - Love, Peace And Soul (2012) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Modern Creative, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway To Heaven [06:09]
+02. When I've Sung My Last Song [06:25]
+03. It's My Desire [07:55]
+04. Sham Time [04:50](   Читать дальше...   )Жанр: Modern Creative, Vocal JazzПродолжительность: 01:13:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:162AC3127BE9335A658D4EFCC5C852731AF012F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145689   (620096) от 26.06.2017
+
+Modern Jazz Quartet - Longing For The Continent (1985) Remaster, 1989, LRC LTD [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Animal Dance (4:41)
+02. Django (4:44)
+03. Milano (2:50)
+04. Bluesology (2:13)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AF62CE11042684B63A791178A67A3E574C3459A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1145668   (619998) от 26.06.2017
 
 Michal Urbaniak - Manhattan Man (1992) [FLAC|Lossless|tracks + .cue] <Fusion>
@@ -692,64 +750,6 @@ Budapest Ragtime Band - Caravan (1994) BRB Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77AACDAE1B88E146C302489C7B441D2C66BB335D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911673   (616570) от 23.06.2015
-
-Illinois Jacquet - The Blues; That's Me! (1969) /2000, Original Jazz Classics/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blues: That's Me! [10:33]
-02. Still King [03:56]
-03. 'Round Midnight [06:55]
-04. The Galloping Latin [05:33](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9740922730DC95895B82C3632D7C1F418B1E70D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146037   (616500) от 28.06.2017
-
-Gilberto Gil - Sao Joao Vivo  (2001) 2002, Warner Music Brasil [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olha Pro Ceu (4:04)
-02. Oia Eu Aqui De Novo (3:23)
-03. Asa Branca (3:13)
-04. Baiao Da Penha (5:23)(   Читать дальше...   )Жанр: Brazilian Jazz, World FusionПродолжительность: 01:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01142BD4BAB39067A5763C3853D917AC4C455717
 ```
 
 https://mybot314.ru/tekegram_catalog/

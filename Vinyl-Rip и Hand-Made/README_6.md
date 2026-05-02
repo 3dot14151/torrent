@@ -1,3 +1,142 @@
+###  Публикация: 1478810   (1009773) от 22.06.2021
+
+Jean-Michel Jarre - Oxygene 3 (2016), Europe [FLAC 2.0|96/24|tracks +.cue|Vinyl-Rip] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009773.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Oxygene (Part 14)
+A2 Oxygene (Part 15)
+A3 Oxygene (Part 16)
+B1 Oxygene (Part 17)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:465CCBC0CF458A6A011CEA5FC3FB0CCA22D1F5A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482784   (1007305) от 10.07.2021
+
+Rudolf Dasek - Dialogues (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Free Jazz, Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007305.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Enchanted Mill
+A2 If You Wish
+A3 Return
+A4 He's Coming(   Читать дальше...   )Жанр: Free Jazz, Contemporary JazzПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0A8860950B8B00202F9E8DCB7B0A1BF801CC830
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488224   (1001742) от 12.08.2021
+
+Jon & Vangelis - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tracklist
+A1 I'll Find My Way Home
+A2 Italian Song
+A3 And When The Night Comes(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40978C9707A4FF25CDC49EFAB29533FEA6CBB31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600572   (998808) от 08.01.2013
+
+Ария - 3 магнитоальбома (1986-1987) [FLAC 2.0 24/48|tracks (MBRip)]<Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard Rock, Heavy MetalПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B425FAEE41CF5FDE429FC176AA2755AD8CE431AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600384   (998771) от 08.01.2013
+
+The Cranberries - 5 альбомов (1993-1999, 2012) [FLAC 2.0 24/192 |image + .cue, tracks (Vinyl-Rip)]<Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E2A1F65E223090CB68905398BACEA62AF0D4CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600155   (998741) от 08.01.2013
 
 The Prodigy - The Fat Of The Land (1997) [FLAC 2.0 24/96 |tracks(VinylRip)]<Breakbeat, Big Beat, Dubstep>
@@ -693,160 +832,6 @@ B4. Актриса Весна 5:46Жанр: RockПродолжительност
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EAF502A58B10900F96ACBAC8C0CE6A03C7720AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608562   (992496) от 26.01.2013
-
-Nirvana - 5 альбомов (Японские прессы) (1996, 2007) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992496.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. About A Girl 3:40
-A2. Come As You Are 4:14
-A3. Jesus Doesn't Want Me For A Sunbeam 4:38
-A4. The Man Who Sold The World 4:21
-A5. Pennyroyal Tea 3:41
-A6. Dumb 2:53
-A7. Polly 3:16
-B1. On A Plain 3:45
-B2. Something In The Way 4:02
-B3. Plateau 3:38(   Читать дальше...   )Жанр: GrungeПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60606D67144207DB7E92DDB1A76DB43F321DC14A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609730   (991978) от 27.01.2013
-
-Ozzy Osbourne - Down To Earth (2001)  [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_991978.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Gets Me Through [05:05]
-A2. Facing Hell [04:26]
-A3. Dreamer [04:45]
-A4. No Easy Way Out [05:06]
-A5. That I Never Had [04:23]
-A6. You Know... (Part 1) [01:07]
-B1. Junkie [04:19]
-B2. Running Out Of Time [05:06]
-B3. Black Illusion [04:21]
-B4. Alive [04:54](   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F38DFD1F80C422A7348C4BA05E17948BE0E20998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 692153   (987892) от 22.01.2020
-
-Ganymed - Takes You Higher (1978) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Space Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987892.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Disco, Space RockПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD221706D5CE2DBD3A7C14822756D2C650B7812
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708517   (987882) от 22.01.2020
-
-James Gang - Miami (1974) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987882.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Cruisin' Down The Highway [3:20]
-A2. Do It [3:39]
-A3. Wildfire [3:31]
-A4. Sleepwalker [3:59](   Читать дальше...   )Жанр: Classic RockФормат: Vinyl, LP, AlbumПродолжительность: 00:32:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9376BEAE5A29C18B47CE25A6EFCFE5EABF9CD87B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 698501   (987828) от 22.01.2020
-
-Chris Norman –Some Hearts Are Diamonds (1986) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987828.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Some Hearts Are Diamonds [3:45]
-A2. Hunters Of The Night [4:07]
-A3. Chain Reaction [3:43]
-A4. It's A Tragedy [3:46](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9111109BDBD0C64D61B0893E97538FC6A70C4DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

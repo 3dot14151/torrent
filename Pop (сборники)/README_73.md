@@ -1,3 +1,119 @@
+###  Публикация: 1237087   (552282) от 23.07.2018
+
+VA - Зайцев.нет: Лучшие новинки Июля 2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552282.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. GAZIROVKA - Яйца в кулак 2:49
+002. Эльбрус Джанмирзоев - Этой ночью 3:19
+003. RASA - Эликсир 3:40
+004. Хлеб - Шашлындос 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1F731205C0C8E27798B79D6A629A4669260F0AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309197   (551983) от 18.06.2019
+
+VA - Euro Pop Summer (2019) [MP3|320 Kbps] <Euro Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551983.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ariana Grande - Everytime
+002. Jérôme Charlebois - Old Orchard
+003. Alejandra Burgos - Crazy Little Woman
+004. Jessica 6 - Stars In Your Eyes(   Читать дальше...   )Жанр: Euro PopПродолжительность: 09:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4967BDB06144BC86F94F5285DA42CD807FE68023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046325   (551932) от 27.08.2016
+
+VA - Миллион облаков (2016) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551932.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мартин Дин - Падший Ангел
+002. Катя Нова & Dee Flack - Я Буду С Тобой
+003. Александр Вестов - Миллион Облаков
+004. Людмила Соколова - Сердце, Как Стекло(   Читать дальше...   )Жанр: PopПродолжительность: 06:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DF6E2732852518C55894D81AE7BD7C46ECCAA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046712   (551928) от 27.08.2016
+
+VA - Мега хиты хорошего настроения. Версия 4 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551928.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Steven Tyler - I Make My Own Sunshine
+002. Александр Антонов - Это Все Что Я Могу
+003. Sivik - Last Night
+004. Златаслава - Подруга Моего Детства(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B482D78D5C9BDA9153D4AF82F2040E9D20B779CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046965   (551094) от 28.08.2016
 
 VA - Осенний дискач №1 (2016) [MP3|256 Kbps] <Pop>
@@ -632,120 +748,6 @@ VA - German Top 50 Party Schlager Charts 24.06.2019 (2019) [MP3|320 Kbps] <Pop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6344FD9FD47057FD04AE25E0831306C23B3910C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238776   (544595) от 01.08.2018
-
-VA - Night Eurodance Music (2018) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544595.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cid - I Miss You
-002. Lika Morgan - Money for Love
-003. Ferry Corsten - Waiting
-004. Monoloop - UUCK(   Читать дальше...   )Жанр: EurodanceПродолжительность: 07:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3899A6168344CBD813A8A29ACADAC03788629080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310982   (544447) от 27.06.2019
-
-VA - Popular Summer Time (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544447.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Samantha Jade - Best Of My Love
-002. Defensa - Borremos
-003. Evalyn - Angels
-004. Joan Osborne - Buckets Of Rain(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51BFACA2BB18D6285D28A7F1F1AB98E483B1F13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311117   (543685) от 28.06.2019
-
-VA - German Top 100 Single Charts 28.06.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543685.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kalazh44, Capital Bra, Samra, Nimo, Luciano - Royal Rumble
-002. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:311FEAB937A3F52819F9D7D14CDD258CE664C576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049451   (543681) от 05.09.2016
-
-VA - Pop Rock Ballads - New And Classic (2016) [MP3|192~320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543681.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Soulwax  -  Too Many Dj's  4:30
-002. Lionel Richie & Diana Ross  -  Endless Love  4:27
-003. David Bowie  -  Legacy Megamix 2  6:04
-004. Kate Royal & Academy of St Martin in the Fields  -  In Trutina (Carmina Burana)  2:31(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 10:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4DB7AF0026D1293B7C8E0263F42087AF8F63AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

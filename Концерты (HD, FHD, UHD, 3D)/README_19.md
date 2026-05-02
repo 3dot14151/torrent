@@ -1,3 +1,84 @@
+###  Публикация: 907494   (625426) от 18.06.2015
+
+Slipknot - Rock am Ring (2015) HDTVRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rock am Ring — один из крупнейших рок-фестивалей, ежегодно проходящий в Германии в первый выходной июня.Жанр: Nu MetalПеревод: Не требуется
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5306BF2FA24D0F976530B67CF5F15CCB32D0C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 683113   (623550) от 26.07.2013
+
+Dream Theater - Live At Budokan (2011) Blu-Ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт в токийском Ниппон Будокане 26 апреля 2004 года. Релиз Eagle Rock в Blu-ray формате 18 октября 2011 года.01. As I Am
+ 02. This Dying Soul
+ 03. Beyond This Life
+ 04. Hollow Years(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCC92EB7CE351BE40D17A92731813C7C7FED2D4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145209   (623513) от 24.06.2017
+
+Алые паруса 2017. Выпускной бал в Санкт-Петербурге (2017.06.23) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623513.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трансляция праздника выпускников "Алые паруса" на Пятом канале - грандиозный проект, ставший традиционным для Телеканала. Пятый канал в который раз покажет стране одно из самых ярких европейских шоу в прямом эфире.Телекомпания: 5Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 03:06:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BF8AF980A3FC57856CAA3B7D1E2500760E527A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 683131   (623461) от 26.07.2013
 
 Rihanna - Good Girl Gone Bad Live (2008) Blu-Ray [1080p]
@@ -664,93 +745,6 @@ NieR Music Concert - серия концертов в Японии и Тайва
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D575DF746BCED6E4F7F59FC95346E66EB904A2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915429   (592205) от 05.07.2015
-
-Metallica - Francais Pour Une Nuit (2009) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592205.jpg" />
-</div>
-
-
-###  Подробнее
-
-7 июля 2009 года Metallica выступила на одной из самых запоминающихся концертных площадок в мире - в старом амфитеатре "Arenes de Nimes"древнем амфитеатре во французском городе Ним, который построили еще римляне и который считается одной из самых любопытных концертных площадок в мире. В результате получился "Francais Pour Une Nuit" (название переводится (   Читать дальше...   )01. Blackened
-02. Creeping Death
-03. Fuel
-04. Harvester Of Sorrow(   Читать дальше...   )Жанр: Hard Rock, Metal, ThrashПродолжительность: 02:12:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D3D89852D34F3CCEA5014EB49984ED400E3EE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 807702   (590543) от 26.07.2014
-
-Paul McCartney and Wings - Rockshow (1980/2013) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590543.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1975 и 1976 годах Paul McCartney и Wings совершили эпическое мировое турне, наиболее масштабное из всех, что они делали как группа когда-либо. Из этих двух легендарных туров и вышел тройной концертный альбом WINGS OVER AMERICA и фльм-концерт Rockshow.01. Venus and Mars
-02. Rock Show
-03. Jet
-04. Let Me Roll It(   Читать дальше...   )Жанр: RockПродолжительность: 02:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA249538E5CF6C56405C68A9558DE6EC0FC01A97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916507   (589580) от 11.07.2015
-
-Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка NATIVE AMERICANS  на выступлении в The Red Road Ensemble с группой североамериканских аборигенов. Первоначально разработанный в качестве фона на документальном TBS, Робертсон вернулся  к своим корням, смешивая традиционные ритмы коренных со звуком фолк и кантри. Звукозаписывающие компании думали, что это слишком "нетрадиционные" для основного радио (   Читать дальше...   )01 -  Ghost Dance (W/ Red Road Ensemble)
-02 -  Mahk Jchi (W/ Ulali)
-03 -  Golden Feather (W/ Red Road Ensemble)
-04 -  Eagle Dance (American Indian Dance Theater)Производство: США, The Red Road EnsembleЖанр: Native American, FolkРежиссер: The Red Road EnsembleАктеры: Robbie Robertson, Pura Fe Crescioni, Soni Moreno, Jennifer E Kreisberg, Laura Satterfield, Priscilla Coolidge, Rita Coolidge....Продолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14AA2CECFA94FB8725DC0737A497C60B241F094D
 ```
 
 https://mybot314.ru/tekegram_catalog/

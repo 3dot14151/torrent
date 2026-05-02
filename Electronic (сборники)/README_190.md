@@ -1,3 +1,67 @@
+###  Публикация: 1583912   (227591) от 16.10.2022
+
+VA - Sensual Lounge Chillout Your Mind (2022) CD, Compilation [MP3|320 Kbps] <Downtempo, Relax, Chill Out, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fake & True - Seas Of Passion (05:04)
+02. Michael E - Mind Games (feat Ashley Slater, Fabio Testa – original mix) (04:48)
+03. Peter Pearson - Cool Of The Night (original mix) (06:39)
+04. Beamy - Summer Dreams (03:00)(   Читать дальше...   )Жанр: Downtempo, Relax, Chill Out, LoungeПродолжительность: 01:09:11 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AC7D4668C09F0FCA8236B7638631DAA7302C14C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586332   (227563) от 09.12.2012
+
+Various Artists - The Best Of Energy Trance (2012) [MP3|320 кб/с]<Hard Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Artificial Dreamer ft. Catherine  - It Was You (Elucidate Remix)
+02 - Dereck Recay  - to the stars (original mix)
+03 - Facade  - Lunar One (Classic Mix)
+04 - Infite  - Euphoria (TranzLift Remix)
+05 - Luna Orbit Project  - To Be My Love (Radio Edit)
+06 - Paul Trainer  - Comply Or Die (Original Mix)
+07 - Sensi  - Fannera Above Paris (Original Mix)
+08 - Sensi  - Matri (Original Mix)
+09 - Signum  - Addicted (Manuel Le Saux Remix)
+10 - Alex Barlett, Andy Guess.  - Universe Inside (Talla 2xlc remix)(   Читать дальше...   )Жанр: Hard Trance, Progressive TranceПродолжительность: 04:53:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:623BEC9FD61439EAA919237CEA15BCEF40654785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512948   (227513) от 27.11.2021
 
 VA - Clubbing Electro House: E-Dance Mix (Vol.06) (2021) [MP3|320 Kbps] <Club, Dance, House>
@@ -711,64 +775,6 @@ VA - Future Horizon: Tech House Movements (2019) [MP3|320 Kbps] <Tech House, Ele
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11C6308927265FCF3A7F0E30211313E62C2D75B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965575   (224152) от 15.12.2015
-
-VA - Eurodance Radio Mix Club House (2015) [MP3|320 кб/с] <Club, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224152.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Snake & Alunageorge - You Know You Like It
-002. DJ Fresh ft Ella Eyre - Gravity
-003. Robin Schulz ft Francesco Yates - Sugar
-004. Hayden James - Something About You(   Читать дальше...   )Жанр: Club, Electro HouseПродолжительность: 06:12:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7EE1AF5D3A57E4AD2AD171A41C4024022EC592
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342309   (224143) от 02.12.2019
-
-VA - EDM Classical Melodies For The Dancefloor (2019) [MP3|320 Kbps] <Electro Dance, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224143.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Obsidian Project - U.F.O. 2019
-002. Huda Hudia - Grillin
-003. Social Fever - Why The Moon
-004. L'anno Neam - Victory(   Читать дальше...   )Жанр: Electro Dance, Club HouseПродолжительность: 12:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE74C8269E5933B4472AC79D1746133F5E00AE71
 ```
 
 https://mybot314.ru/tekegram_catalog/

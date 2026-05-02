@@ -1,3 +1,149 @@
+###  Публикация: 868792   (894588) от 13.02.2015
+
+Академическая русская хоровая капелла - Музыка эпохи Петра I (1975) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Sacred, Choral>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. «Стихи победительные во славу и честь Петру Алексеевичу…»  16:26
+Петровские торжественные песнопения. Десять номеров.
+Гаврюшов (бас), А. Лагуткин (тенор), Б. Шумилов (баритон).
+Сторона 2(   Читать дальше...   )Жанр: Sacred, ChoralПродолжительность: 00:34:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53769531F15E4849297DAFCE5D80FBD0CFC8123
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 859991   (892146) от 14.02.2015
+
+AC-DC - Rock Or Bust (2014) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892146.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Rock Or Bust (3:03)
+A2. Play Ball (2:47)
+A3. Rock The Blues Away (3:25)
+A4. Miss Adventure (2:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67C12FC1902186F85BEEDA0F14E0E0D6DC3CD8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102091   (890901) от 09.02.2017
+
+VA - RETROспектива, часть IX: Эстрадные оркестры IX (1934-1955) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Танц. орк. Лейпцигского радио п.у. К. Хенкельса - Караван (фокстрот)
+02. Танц. орк. Лейпцигского радио п.у. К. Хенкельса (вокал-К. Гросс) - Манон (медленный фокстрот)
+03. Оркестр ''Беллакорд'' - Вспомни море (фокстрот)
+04. Оркестр п.у. Р. Ренара - Женщины и розы (танго)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 01:04:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949F976A69CEE853170542992D59907ACF4F0F0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494092   (890865) от 06.09.2021
+
+Locomotiv GT. - In Warsaw. Recorded live at the Congress Hall (1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz-Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890865.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Tape Signal
+A2 Intro
+A3 Enfeleitett Szo • Forgotten Word
+A4 Es Jott A Dokto • And The Doctor Came(   Читать дальше...   )Жанр: Jazz-Rock, Prog RockПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2632D83DD71A5EC607A8CBCDDADC8E2DB2C3C62D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494111   (890699) от 06.09.2021
+
+Поющие сердца - Зима любви (1975) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890699.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Зима Любви
+A2 Где Найти Любовь
+A3 Все, Что Было
+A4 Стучись В Любую Дверь(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9D67C4A9E97236D4B232BA33B1624E130E1A45B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102512   (887401) от 11.02.2017
 
 VA - RETROспектива, часть X: Эстрадные оркестры X (1935-1960) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
@@ -605,152 +751,6 @@ Side A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2164BE1D2527B0E031CC974F3F52A392329077D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000790   (857180) от 26.03.2016
-
-Electric Light Orchestra - Time (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (1:15)
-02. Twilight (3:37)
-03. Yours Truly, 2095 (3:17)
-04. Ticket to the Moon (4:07)(   Читать дальше...   )Производство: Jet Records - 25AP 2111(JT)Жанр: Progressive RockПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E9F84897677346A07E5D1305DA4DE691DA79362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109802   (855326) от 01.03.2017
-
-VA - RETROспектива, часть XIII. Мелодии и песни из кинофильмов II (1947-1963) [[FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гуальтиеро Мизиано - Кумаре-кумарелла (песня из к.ф. ''Утраченные грёзы'')
-02. Михаил Новохижин - Родной мой завода (песня из к.ф. ''Неподдающиеся'')
-03. Майя Кристалинская - Два берега (песня из к.ф. ''Жажда'')
-04. Инстр квартет п.у. В. Дмитриева - Мелодия из к.ф. ''Там где кончается асфальт''(   Читать дальше...   )Жанр: Retro, SoundtrackПродолжительность: 00:53:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A9A096CFC57AE241C8735C91A2EB5DAA27A2000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110192   (853604) от 02.03.2017
-
-Ken Hensley - Proud Words On A Dusty Shelf (1973) [WavPack|192/32|image+.cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853604.jpg" />
-</div>
-
-
-###  Подробнее
-
-Имя Кена Хенсли (Ken Hensley) навсегда войдет в историю рок-музыки XX века как первого настоящего хитмейкера классической британской хард-роковой сцены 70-х. Безусловно, миллионы рок-поклонников видят в Кене прежде всего фактического музыкального лидера и харизматического клавишника и гитариста рок-монстров Uriah Heep периода 1970 — 1980 гг.
-Десять последующих лет (   Читать дальше...   )01. When Evening Comes (4:40)
-02. From Time To Time (3:45)
-03. King Without A Throne (3:58)
-04. Rain (3:18)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FD3C6E85140FE239F14BF4C99B443B5DD2EAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001585   (852186) от 29.03.2016
-
-VA - The Great Singers Of The Jazz/Големите Вокалисти На Джаза (1977) [FLAC 2.0|96/24|tracks+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ella Fitzgerald - A Tisket, A Tasket
-02. Ella Fitzgerald - Undecided
-03. Ella Fitzgerald - Flying Home
-04. Ella Fitzgerald - Smooth Sailing(   Читать дальше...   )Жанр: JazzПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E98D6DAB0D5FE1BA5F019FD1F8D46D7635B033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110767   (851754) от 03.03.2017
-
-Sam Brown - Stop! (1988) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851754.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Walking Back To Me (3:43)
-A2. Your Love Is All (4:10)
-A3. Stop (4:56)
-A4. It Makes Me Wonder (4:36)(   Читать дальше...   )Производство: A&M Records - 395 195-1Жанр: RockПродолжительность: 00:43:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D7B74C9687207F5BCF687A193EC843CBB9B74C
 ```
 
 https://mybot314.ru/tekegram_catalog/

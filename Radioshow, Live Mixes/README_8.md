@@ -1,3 +1,61 @@
+###  Публикация: 1531563   (720758) от 16.02.2022
+
+W&W - Rave Culture Live 003 (2022-02-12) [MP3|320 Kbps] <Big Room, Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NWYR - ID
+02. Robin S - Show Me Love (KEVU Remix)
+03. W&W - São Paulo ID
+04. Drive With Beats & Beachbag - Speed Of Light (AXMO Remix)(   Читать дальше...   )Жанр: Big Room, Hard DanceПродолжительность: 01:10:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A482C2CC508BEF3BA998567F4854893327FD442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1285659   (719154) от 27.02.2019
+
+VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Eno - An Ending (Ascent)
+02. Cosmic Gate & Foret - Need to Feel Loved
+03. Marshmello featuring Bastille - Happier (Markus Schulz Festival Mix)
+04. Andrew Bayer featuring Alison May - In My Last Life (In My Next Life Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C405A924F0F4651B7FE76844E1F175E34613603
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219068   (717667) от 12.04.2018
 
 VA - Aly & Fila - Future Sound of Egypt 543 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -687,63 +745,6 @@ VA - Ori Uplift - - Uplifting Only, Episode 223 (2017) [MP3|320 Kbps] <Trance, U
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5A27C03B12E1C01F46C4A45C452ADCC85C4DEA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135561   (677274) от 21.05.2017
-
-VA - Ori Uplift - Uplifting Only, Episode 222 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677274.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. (0:00:32): Alternate High - Invisible Walls (Trancer)
-2. (0:05:03): Chapter XJ - Let It Go (Derek Palmer Remix) (Beyond the Stars)
-3. (0:10:37): PRE-RELEASE PICK: Twin View - Eris (illitheas Remix) (SSD)
-4. (0:16:15): Fresh Code - Another Chance (Beyond the Stars)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C0130A770CD0D0829EC3A1DDC7D03A72D9A0E60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536856   (672785) от 13.03.2022
-
-Johnny de City - Live @ Epic Club Prague, Czech Republic (2022-03-04) [MP3|320 Kbps] <Trance, Various>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby Neon & Forces - Stardust (Johnny de City Intro Version) w/Johnny de City - ID w/Joel Corry & RAYE & David Guetta - BED (Acapella)
-02. Richard Durand vs. David Guetta & Anne-Marie vs. Magnificence & Seth Hills vs. Steve Aoki & Will Sparks - Don't Send Fire Perseverance (Johnny de City Mashup)
-03. Seven Lions & Blastoyz & Fiora (   Читать дальше...   )Жанр: Trance, VariousПродолжительность: 01:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D93266479D6D37A58C2E3EBB9406F5D24E2100
 ```
 
 https://mybot314.ru/tekegram_catalog/

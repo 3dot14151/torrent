@@ -1,3 +1,61 @@
+###  Публикация: 1366462   (922247) от 12.03.2020
+
+Andrew Swarbrick - The Runaways (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922247.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:22| 01. Hay
+|01:29| 02. Dead Reith
+|01:29| 03. Life's Rich Tapestry
+|01:18| 04. We've Got to Do Something(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61CC71626731D16294E0251C88E73903A64DA81D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366609   (922242) от 12.03.2020
+
+Benjamin Wallfisch - The Invisible Man / Человек-невидимка (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922242.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:42| 01. Cobolt
+|04:28| 02. Escape
+|03:37| 03. He's Gone
+|02:19| 04. This Is What He Does(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2886131B078C56912139153582BBE1D9AF109798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366602   (922234) от 12.03.2020
 
 Voidoid - The Greatest Movie Anthems of All Time (2018) [MP3|320 кб/с]<Soundtrack>
@@ -684,61 +742,6 @@ Hans Zimmer & Junkie XL - Batman v Superman: Dawn of Justice (Original Motion Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B8196549792A5932D30BF855D84B46F10788612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186871   (878432) от 27.03.2010
-
-V.A. - The Matrix (Full OST Collection) (1999..2004) [MP3|192, 320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 09:20:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106359   (873516) от 19.02.2017
-
-VA - Притяжение (Официальный Саундтрек) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ирина Старшенбаум - Когда я была маленькая (00:38)
-02. Иван Бурляев - Intro (01:26)
-03. Ирина Старшенбаум, Александр Петров - Готов вызволить принцессу из башни (00:17)
-04. L'One feat. Влади, Баста - Ракета (feat. Влади & Баста) (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF19EF67D8466DBABF4C51ECF729B1E05595E034
 ```
 
 https://mybot314.ru/tekegram_catalog/

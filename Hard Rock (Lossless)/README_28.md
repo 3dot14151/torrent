@@ -1,3 +1,119 @@
+###  Публикация: 1018921   (754086) от 21.05.2016
+
+Voodoo X - Vol. 1 The Awakening (1989) [APE|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm On Fire
+02. Voodoo Queen
+03. A Lover Like You
+04. Don't Bother Me(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:58:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9A26E9D9A471E342AB8ADB7AB0058A6A9851D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018900   (754085) от 21.05.2016
+
+Loverboy - Lovin' Every Minute Of It (1985) [APE|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovin' Every Minute of it (Robert John "Mutt" Lange)
+02. Steal the Thunder (Paul Dean, Mike Reno, Davitt Sigerson, Bill Wray)
+03. Friday Night (Patrick Mahassen, Wray, Dean, Sigerson)
+04. This Could Be the Night (Jonathan Cain, Dean, Reno, Wray)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10BBBA51726817E60743CC07C8815D13FFBAA86F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018792   (754011) от 21.05.2016
+
+Shiraz Lane - For Crying Out Loud (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Up (4:31)
+02. Momma's Boy (4:35)
+03. House Of Cards (4:41)
+04. Begging For Mercy (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8EF0B8E255EAF6BDF24C4E0C8B58D102967B551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523143   (753276) от 10.01.2022
+
+Dead Echoes - Twin Flames (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:38
+02. Get Out Alive 04:31
+03. Don't Count On Me 03:52
+04. Runaround 04:07(   Читать дальше...   )Жанр: Hard Rock, Alternative MetalПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5CF0B7B8264511FD9087FC5FD712F17EDFD86C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1523406   (751672) от 11.01.2022
 
 Bluetruth - Too Much (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,123 +745,6 @@ Electric Food
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15361E25C5BFC493485A1F7A054B8F484A2B6F34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177367   (735767) от 30.01.2022
-
-Cream - 11 albums, 4 Box Set, 54CD (1966-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Psychedelic Rock, Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cream — британская рок-группа, состоявшая из гитариста Эрика Клэптона, бас-гитариста Джека Брюса и барабанщика Джинджера Бэйкера. Часто называется первой супергруппой в истории рок-музыки. Смелые эксперименты в области утяжеления и уплотнения блюз-рокового звука позволяют считать Cream, наряду с Джими Хендриксом, одними из родоначальников хард-рока. В кинофильме (   Читать дальше...   )--------------------------
-
-01. I Feel Free (2:54)
-02. N.S.U. (2:45)(   Читать дальше...   )Жанр: Psychedelic Rock, Classic Rock, Hard Rock, Blues Rock |Продолжительность: 1d 22:25:44 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71EF0B92D82BC474AEA751FDFCC4DFC6F42B20FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528210   (735386) от 31.01.2022
-
-Praying Mantis - Katharsis (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry For The Nations
-02. Closer To Heaven
-03. Ain't No Rock 'N' Roll In Heaven
-04. Non Omnis Moriar(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28181BAB4B6B8EBA05DBF487A27D5DD4BC1FA0B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528644   (734440) от 02.02.2022
-
-Reckless Souls - Timeless (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro II (01:45)
-02. Where I Belong (05:40)
-03. All of Nothing (05:14)
-04. Remember N' Forget (04:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D921B8D1B90B098285BB9B4409B1DEADC9C84FA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528862   (733572) от 04.02.2022
-
-Crystal Ball - Crysteria (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock,  Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733572.jpg" />
-</div>
-
-
-###  Подробнее
-
-CRYSTAL BALL - швейцарская Melodic Power Metal группа.
-"Crysteria" - одиннадцатый полноформатный альбом CRYSTAL BALL, вышедший 28-го января 2022-го на Massacre Records. Продюсированием, сведением и мастерингом "Crysteria" занимался Стэфан Кауфманн, бывший барабанщик ACCEPT и гитарист U.D.O., работавший с альбомами групп VANIZE, EMPIRE и ACCEPT, (   Читать дальше...   )01. What Part Of No 03:54
-02. You Lit My Fire 03:58
-03. Call Of The Wild (Feat. Ronnie Romero) 03:14
-04. I Am Rock 03:16(   Читать дальше...   )Жанр: Hard Rock,  Heavy MetalПродолжительность: 00:54:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B6117FB5A2639D8AFB338FFDE2CA3EACD865D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

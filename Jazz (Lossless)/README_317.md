@@ -1,3 +1,59 @@
+###  Публикация: 1709117   (112899) от 23.03.2024
+
+Jazz Music Lovers Club - Music for Sexy Striptease (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smooth Rose (3:48)
+02. Spicy Little Dance (2:48)
+03. Pure Feelings (2:48)
+04. True Love Has Your Name (3:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AE2B0131FCD586DAE6A0360286390AFA3DA842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709058   (112884) от 23.03.2024
+
+Boris Tolstobokov - Quantum Satis (1988) 2023, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winter Imagination [19:28]
+02. Game In Beads [30:57]Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:50:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD7BD7B1DDF6320FB4C11DD7CC55E89DFC5E0684
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708926   (112861) от 23.03.2024
 
 Sidney Bechet - Hold Tight (1938 - 1946) 1989, Jazz & Jazz [FLAC|Lossless|image + .cue] <Dixieland, New Orleans Jazz>
@@ -687,64 +743,6 @@ Alex Podymkin & Abraham Burton Quartet - Concert At Cobra Music Hall (2008) 2023
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:260819FAE845170003F0C11EA5C9FF0266DFE702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712909   (112003) от 04.04.2024
-
-Владимир Иванов, Игорь Бутман - Ornithology (2009) Мистерия [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro-Still Walling [1:47]
-02. Before and After [7:06]
-03. Venewration [1:36]
-04. Miles-The Coming [5:04](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:05:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44B68EE8772F33937FC6181EC0EDE543642EE89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162634   (111986) от 05.04.2024
-
-Trix - Index (2004) King Record [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samrai [05:03]
-02. Dynasea [05:49]
-03. Recollection [05:24]
-04. Miller Light [05:18](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C329718405C10A39F9740042BE407A91F50BB011
 ```
 
 https://mybot314.ru/tekegram_catalog/

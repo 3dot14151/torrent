@@ -1,3 +1,60 @@
+###  Публикация: 489373   (101819) от 28.04.2012
+
+Aziza Mustafa Zadeh 3 CD [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holiday Blessings (4:30)
+02. Ladies Of Azerbaijan (5:00)
+03. Uv (Unutma Vjdani) (5:48)2002Жанр: JazzПродолжительность: 01:08:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764559   (101524) от 07.12.2024
+
+John Hicks - John Hicks (1982) 2003, Evidence [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pas de Trois (Dance for Three) [4:21]
+02. Steadfast [5:27]
+03. For John Chapman [5:52]
+04. Star-Crossed Lovers [5:24](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:706F56ABA76895953C2B9873C62551CA9DCEBD7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764625   (101498) от 08.12.2024
 
 Ella Fitzgerald - Ken Burns Jazz (2000) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
@@ -687,64 +744,6 @@ Mal Waldron - One Entrance, Many Exits (1982) 2003, Quicksilver [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BC54F771CA40CDBBE9D735BEF617631723A9C7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768745   (100888) от 26.12.2024
-
-Bill Harris - Holiday Improvisations (1998) Daddy Jazz Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Holiday [2:46]
-02. Christmas Song (Chestnuts Roasting on an Open Fire) [4:42]
-03. O Tannenbaum [3:50]
-04. White Christmas [2:57](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF8B4B40D44F0EC15621E9573DEBD1657A60CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768744   (100886) от 26.12.2024
-
-Dave Koz & Friends - Christmas Ballads: 25th Anniversary Collection (2022) Just Koz Entertainment [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Waltz [3:34]
-02. Away in a Manger/Silent Night [2:57]
-03. Happy Xmas (War Is Over)/Imagine (feat. Rebecca Jade) [4:57]
-04. Greensleeves [3:41](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC5DBCFA264657399240E82E65B597CB926DF0C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

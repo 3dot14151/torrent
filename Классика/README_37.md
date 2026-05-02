@@ -1,3 +1,32 @@
+###  Публикация: 1255649   (363264) от 18.10.2018
+
+2Cellos - Let There Be Cello (2018) [MP3|320 Kbps] <Symphonic, Neoclassical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Concept2
+02. Eye of the Tiger
+03. Pirates of the Caribbean
+04. Cadenza(   Читать дальше...   )Жанр: Symphonic, NeoclassicalПродолжительность: 00:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A2DBF834DA619BF8076239C81862524C670A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 576393   (362707) от 17.11.2012
 
 Прокофьев - The Five Piano Concertos; Nos. 1, 2, 3, 4, 5: op. 10, 16, 26, 53, 55: Ashkenazi, Previn, LSO (1997) [MP3|320]<Classical, Concerto, Instrumental>
@@ -741,35 +770,6 @@ Chiharu Naruse - Kenneth A. Kuhn: Piano Works (2018) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B34335270D9ABDC64D78A372D0E8E4EA6FBB55D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073545   (345217) от 16.11.2016
-
-Gustav Mahler - Symphony No. 10, completion by Rudolf Barshai - Vladimir Ashkenazy, Sydney Symphony 2012 (2012)[FLAC|Lossless|tracks + .cue]<Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andante - Adagio 25:18
-02. Scherzo. Schnelle Vierteln - Gemchliches Lndler-Tempo 11:24
-03. Purgatorio. Allegretto moderato 4:27
-04. Allegro pesante. Nicht zu schnell 11:05(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D4480890664E43FD182571EA6FA098C0E6463F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

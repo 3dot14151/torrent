@@ -1,3 +1,119 @@
+###  Публикация: 1823777   (126124) от 12.10.2025
+
+VA - Massage Music (Soothing Vibes for Massage Bliss, Bodywork, and Total Relaxation) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Subset - Brain Massage (07:07)
+ 02 - DreamAwaken - Last Bus (03:22)
+ 03 - Klartraum - Lucid Echoes (10:38)
+ 04 - Klartraum - Clarity (Liquid Version) (12:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65FBEE45F15301833ED0C1C209E80F4D937BF0FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1823819   (126122) от 12.10.2025
+
+VA - Relaxed & Refined (The Chillout Experience) (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kodium - Tiny Glimpses (04:27)
+ 02 - Hints of soul - Sparked Curiosity (04:06)
+ 03 - Boeklin - A Precise Path (04:11)
+ 04 - Klasse XXI - Echoes from the Edges (04:14)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF1F61301DD455F296B61E90153BE635FDEADD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687045   (125732) от 25.12.2023
+
+VA - Forest Retreat: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Spirit Muse - Waves of Shambala 432Hz (Original Mix) (5:12)
+02. Matt Sour - Bells of Glasgow (3:23)
+03. Eskadet - Garden of the Senses (4:16)
+04. Sole Spirit - World in Your Eyes (Ambient Mix) (3:27)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB05C869F5934314A90B0899566DC7D7A093A892
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687383   (125575) от 26.12.2023
+
+VA - Sunset Emotions, Vol. 8 (Compiled by Marco Celloni) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Lounge, Chill Out>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Shan - Ethernal Motion (3:22)
+02. Coskun Umut Oruc - Istanbulounge (3:48)
+03. Sole Spirit - Go Away (3:32)
+04. Fake and True - Seas of Passion (5:04)(   Читать дальше...   )Жанр: Electronic, Lounge, Chill OutПродолжительность: 01:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29D69DBCFA8D833C71C40C28A78D8FADC7E54B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688737   (125057) от 30.12.2023
 
 VA - Christmas in Paris: Chillout Your Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -625,122 +741,6 @@ VA - Calm Reflections: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0E45BDA5B2C052DCF8B534D97487C7ED4B6C0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702551   (115711) от 25.02.2024
-
-VA - Sea Melodies: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Pearson - Leading Me On (4:00)
-02. Velvet Dreamer - Eternal Beauty (Original Mix) (5:07)
-03. Lemongrass - Deep River (Original Mix) (6:28)
-04. Incognita Alma - Sentiment (6:24)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4667A55EFADE3D380D7813270FB5C38A4EF4CA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702448   (115707) от 25.02.2024
-
-VA - Pure Dreams, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keisuke Sakai - Mizu Sumu (Original Mix) (4:40)
-02. Gushi, Raffunk - The Way to You (Intro) (Original Mix) (1:48)
-03. L.M.F. - Raghupati (Traditional Song) (Original Mix) (4:13)
-04. Shortlab - Passionate Motivation (Extended Mix) (6:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63C49A7681C00BC782655692077AE2DDCA88FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704457   (114355) от 04.03.2024
-
-VA - Love & Lounge, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Urban Phunk Society - Spring 2 Summer (3:03)
-02. Lemongrass - Harmony (4:18)
-03. Tigerforest - Keep On Running (4:55)
-04. Steen Thottrup - Compassion (Remastered) (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9B46B61A62B6263CB3FC4E4FA9789B2247ABE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704482   (114352) от 04.03.2024
-
-VA - Rhapsodic Night Rythm (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matteo Vanetti - Red Vision (6:55)
-02. Jp-Juice - Cette Planete (3:41)
-03. Lounge Groove Avenue - Sensual Soul (3:33)
-04. Living Room - Rain (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1258FABE3C4DB3696EEE37902B7097A3029A5A8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

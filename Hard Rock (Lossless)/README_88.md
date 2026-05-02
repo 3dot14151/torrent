@@ -1,3 +1,122 @@
+###  Публикация: 1159460   (158733) от 12.11.2023
+
+Pretty Maids - 22 albums, 48 CD (1983-2023) Discography [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Pretty Maids — легендарная датская рок-группа, была создана гитаристом Кеном Хаммером и вокалистом Ронни Аткинсом в 1981 году в Хорсенсе, Дания. Позднее к ним присоединились гитарист Пит Коллинз, басист Джон Дарроу, клавишник Алан Оуэн и барабанщик Фил Мурхэд. Стиль группы можно определить как достаточно мелодичный, с использованием клавишных, мелодик хэви-метал, (   Читать дальше...   )--------------------------
+
+01. Trinity (4:30)
+02. Ode To A Madman (4:33)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'Heavy |Продолжительность: 38:16:36 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B207526106A6A49ED5589D72423DAA4DCF8413D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967394   (158682) от 20.12.2015
+
+Kingdom Come - In Your Face (1989) Japanese Edition, 2013,  Polydor [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Like It [03:39]
+02. Who Do You Love [04:16]
+03. The Wind [05:01]
+04. Gotta Go (Can't Wage A War) [04:24](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62E69D8E0836422A832706A84E3D9F6A89DCE026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853552   (158023) от 26.12.2014
+
+Deep Purple - Machine Head (1972) /1987, Warner Bros. Records/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158023.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Highway Star	6:05
+2.	Maybe I'm A Leo	4:51
+3.	Pictures Of Home	5:03
+4.	Never Before	3:56
+5.	Smoke On The Water	5:40
+6.	Lazy	7:19
+7.	Space Truckin'	4:31Жанр: Hard RockПродолжительность: 00:37:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EECFB95CE6751C370E791B9AE9040FA2BC6991AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1346592   (157883) от 20.12.2019
+
+Mastedon - 3 альбома Collection (1989-2009) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157883.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1989-It's A Jungle Out There! (Remastered 2009)
+1990-Lofcaudio
+2009-Mastedon 3Жанр: Melodic Hard Rock/AORПродолжительность: 02:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EA1EDC4D005B2EE8F7F6A47B0C2AF768898FF30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517990   (157828) от 18.12.2021
 
 Bon Jovi - Slippery When Wet (1986) [FLAC|Lossless|image + .cue] <Hard Rock, Soft Rock>
@@ -634,122 +753,6 @@ Boudreaux - Fallen Angel (1994) Reissue, 2021, Metallic Blue Records [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:243D1856F6BFD06EFD1D3C8E8FE751DBB7EB736A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347345   (152364) от 23.12.2019
-
-Black Rose - Fortune Favours The Brave (1993) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152364.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1998 - Broken Saviours
-1999 - Age Of Innocence
-2000 - Live2KЖанр: Hard RockПродолжительность: 04:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8059C0322BCD4E99D5C226486A826DCED4186AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826194   (152346) от 18.10.2025
-
-Cyanide - 21 Gun Salute (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152346.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Is Everybody High? (01:45)
- 02 - Fireball (03:24)
- 03 - Back the Fuck Off (04:16)
- 04 - 21 Gun Salute (04:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE51A2DE7F74960EB85935F0D076F5033CAB5F82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601157   (152308) от 30.12.2022
-
-Falcon Scream - Falcon Scream (1995) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152308.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Picture Frames
-02. Shadow In The Night
-03. Goin Blind
-04. 4 Lines(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:50:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D08D478E968B609CECD3ECDBBCD9C41705831E7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159159   (151373) от 18.10.2025
-
-Kiss - 25 Studio Albums, 11 Live, 15 Compilations, 5 Box Set (1974 - 2017) 158 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kiss - американская рок-группа, основанная в Нью-Йорке в январе 1973 года, играющая в жанрах глэм-рок, хард-рок и известная сценическими макияжами её участников, а также концертными шоу, сопровождающимися различными пиротехническими эффектами. По состоянию на 2016 год имеют более сорока пяти золотых и платиновых альбомов и более 100 миллионов проданных записей. Идея (   Читать дальше...   )Список альбомов:
-1974 Kiss
-1974 Hotter Than Hell
-1975 Dressed To KillЖанр: Hard Rock, Glam RockПродолжительность: 109:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC65E7D5EA5230E21A77CCD56329767C9A6E4FA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

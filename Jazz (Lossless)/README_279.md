@@ -1,3 +1,61 @@
+###  Публикация: 1670823   (171774) от 22.10.2023
+
+Bill Evans - Nardis (1965 - 1972) 2003, Absord Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How My Heart Sings [4:20]
+02. Time to Remember [5:20]
+03. 12 Toned Tune [4:57]
+04. Waltz for Debby [5:00](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AE91F099E8DE3F4D42872F93B696FC319A9AA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1670825   (171770) от 22.10.2023
+
+Howard Roberts - Good Pickin's (1959) 1999, Verve [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will You Still Be Mine [4:25]
+02. When the Sun Comes Out [4:18]
+03. All the Things You Are [2:45]
+04. Lover Man [4:30](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Guitar JazzПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BFBD5E63A6D0DEC1B5F60944D714CB8B163D54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1670812   (171769) от 22.10.2023
 
 Johnny Griffin Meets Horace Parlan - Close Your Eyes (2000) Minor Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
@@ -687,64 +745,6 @@ VA - Jazz Funk Instrumentals Vol. 4(Funky Soul Jazzy Instrumental Acid Tracks) (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A88FEAC7185CF65B923227B1EABC598913BB66D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671562   (171191) от 25.10.2023
-
-Chris Botti - Vol. 1 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danny Boy
-02. Bewitched, Bothered and Bewildered
-03. Two For The Road
-04. Paris (feat. John Splithoff)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5729425ED17F6935DA61A0531A1571EBC983FA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671820   (171086) от 26.10.2023
-
-Toshiyuki Miyama & The New Herd - Gallery (1979) Three Blind Mice [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flower Arrangement [5:28]
-02. Art Gallery [5:30]
-03. A Falling Star [5:39]
-04. Blue Sail [5:34](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7905C1AA491F047260854D93F9668AF31A3334CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

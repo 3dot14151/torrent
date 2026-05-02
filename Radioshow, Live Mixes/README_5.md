@@ -1,3 +1,61 @@
+###  Публикация: 1196676   (822425) от 03.01.2018
+
+VA - Ori Uplift - Uplifting Only 255 (Tune of the Year Vote - Top 25 Countdown) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.RAM & Arctic Moon with Stine Grove - A Billion Stars Above (Extended Mix)
+02.illitheas - Moments with You (Maratone Remix)
+03.Manuel Rocca & Illitheas - Enchanted
+04.Afternova feat. Andrea Becker - For You (Trance Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:17:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF736E282606A586DB41DD2E65C1A27D424C68ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196853   (819198) от 05.01.2018
+
+VA - Markus Schulz - Global DJ Broadcast - Classics Showcase 2018 (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sasha - Arkham Asylum
+02. Jam & Spoon - Follow Me
+03. Killahurtz - West on 27th (Original Subway Mix)
+04. Schiller - Ruhe (Humate Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31DFF9A7A7EE58692AEB79F04F973287AFF64E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196852   (819193) от 05.01.2018
 
 VA - Aly & Fila - Future Sound of Egypt 529 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -684,64 +742,6 @@ VA - Aly & Fila - Future Sound of Egypt 532 (2018) [MP3|320 Kbps] <Trance,Uplift
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D28F4D7337F9DFE3EB7F9BD2CED2B5A4E110921F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202106   (790548) от 28.01.2018
-
-VA - Ori Uplift & Marc Tatossian - Uplifting Only 259 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etasonic - When You're Gone (Intro Mix)
-02. PRE-RELEASE PICK: Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)
-03. FAN FAVORITE: InnerSync - Magnificence
-04. AirLab7 - Shy Lass (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5581E99893E81E646AF438A95CFE0A0B247D7D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202498   (789926) от 29.01.2018
-
-VA - Ahmed Romel - Orchestrance 218 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nery - Redawn (Andy Blueman Remix)
-02. Attens Feat. Martina Kay - If You Find A Way (Playme Dub Mix)
-03. Jericho Frequency Feat. Emma Chatt - Do You See Me (Original Mix)
-04. (FAVORITE OF THE WEEK) DreamLife & Laucco - Amaranth (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC7DFFF39736249A28AB16552D8BE3E2DCA1C454
 ```
 
 https://mybot314.ru/tekegram_catalog/

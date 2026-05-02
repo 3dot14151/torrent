@@ -1,3 +1,177 @@
+###  Публикация: 1694657   (120814) от 26.01.2024
+
+Bon Jovi - Bon Jovi (1984) Deluxe Edition, 2024, UMG Recordings, Inc. [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway (3:52)
+02. Roulette (4:41)
+03. She Don't Know Me (4:02)
+04. Shot Through The Heart (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:23:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1B5E390542E2F570FC618ECB65201F7CC7AC22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694651   (120799) от 26.01.2024
+
+Static-X - Project Regeneration, Vol. 2 (2024) [FLAC 24/48, 16/44.1|Lossless|WEB-DL|tracks] <Nu-Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Stay Alive [00:03:46]
+02 Z0mbie [00:03:11]
+03 Jic Boi [00:02:58]
+04 Black Star [00:04:00](   Читать дальше...   )Жанр: Nu-Metal, Industrial MetalПродолжительность: 00:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AA173B8BA7C78514785241100BA7D4C898EFE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694642   (120797) от 26.01.2024
+
+Robert Hart (Manfred Mann's Earth Band) - Circus Life (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overdrive [00:03:58]
+02. Stone Heart [00:04:42]
+03. Blame It on Me [00:03:33]
+04. I’m on Your Side [00:05:07](   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33903A65BC0E5CB3F2E1BDB391AE3117F07B973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694659   (120788) от 26.01.2024
+
+LP (Laura Pergolizzi) - Love Lines (2023) Deluxe Version, 2024, BMG Rights Management (US) LLC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop rock, alternative rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden (3:27)
+02. Wild (3:01)
+03. Dayglow (3:31)
+04. Long Goodbye (4:23)(   Читать дальше...   )Жанр: Pop rock, alternative rockПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F377CE74B9669AF7EB5DE18D570B70FCA3ECBD1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694658   (120770) от 26.01.2024
+
+The Gems - Phoenix (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora - Interlude (1:34)
+02. Queens (3:12)
+03. Send Me To The Wolves (3:10)
+04. Domino (3:07)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1150679ECC9E8959B7C63C72850EA9AB130008B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694570   (120769) от 26.01.2024
+
+Faith Circus - Bum In The Sun (2024) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Dancer (4:14)
+02. Bum In The Sun (3:36)
+03. Larger Than Life (4:12)
+04. Seven Mountain High (5:05)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB6EAF8B96F920E6F6582072FB9804A8B01C2F3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695092   (120655) от 27.01.2024
 
 Dolly Parton - Rockstar (2024) Deluxe Edition [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
@@ -571,180 +745,6 @@ DB & the Soho Nine-Six - DB & the Soho Nine-Six (2024) [FLAC 24/96|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F41111FEA684BDC1336D301135131BF1741525C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695433   (120278) от 29.01.2024
-
-Chris Buergi - You Make Me Rock (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whenever You Smile (03:14)
-02. You Make Me Rock (02:50)
-03. Peaceful Dream (02:57)
-04. Glorious Planet (02:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2AF1ED531D2D410DDA48E607F5FE2B27AEFCD2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695426   (120275) от 29.01.2024
-
-The Fried Seven - Late to the Party (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120275.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Henderson (3:08)
-02. Every Tub (3:19)
-03. Guess Who's in Town (2:51)
-04. The Chant (3:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BAFADEA570297A746743F13EB8774774F7F58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695421   (120270) от 29.01.2024
-
-Matthieu Chazarenc - CANTO III (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Les Sauvages (3:00)
-02. La Madone (3:28)
-03. Rue Marcelle (3:49)
-04. Torre del Mar (4:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7782ACF97AFB052623F6EA17B11F00AC557F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695407   (120269) от 29.01.2024
-
-Arve Henriksen - Touch of Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melancholia (4:01)
-02. The Beauty of Sundays (3:28)
-03. Redream (8:47)
-04. The Dark Light (4:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B20A89740574934254C16334E1C8D7DBCF67E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695419   (120268) от 29.01.2024
-
-Kinga Glyk (Kinga Głyk) - Real Life (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast Life (3:59)
-02. Unfollower (3:48)
-03. Who Cares (3:42)
-04. Island (5:28)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A89BDAF64E21A089735D05304C20D8D7F21FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695547   (120266) от 29.01.2024
-
-Beyond Border - Gathering (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Futurepop, Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Journey [00:05:16]
-02. Radiant [00:04:05]
-03. Hate Myself [00:04:11]
-04. Part Of Me [00:04:54](   Читать дальше...   )Жанр: Futurepop, SynthpopПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE52484C67F194508BEF81677CE3A37703D9DE9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

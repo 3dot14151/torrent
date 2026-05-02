@@ -1,3 +1,61 @@
+###  Публикация: 1705565   (113774) от 09.03.2024
+
+Brother Jack McDuff Quartet With Grant Green - Goodnight, It's Time to Go + The Honeydripper (1961) 2013, Groove Hut Records [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanctified Waltz [4:54]
+02. Goodnight, It's Time to Go [6:16]
+03. I'll Be Seeing You [7:40]
+04. A Smooth One [10:50](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8C35612366D21E0E4664EE78AD840B51C4B0CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1705564   (113773) от 09.03.2024
+
+Chuck Wayne - String Fever (1957) 2001, Euphoria [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby in Rhythm [3:08]
+02. Embraceable You [4:39]
+03. Love for Sale [5:09]
+04. Along with Me [3:19](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDBF974D60C3ACC930624FF5C8F72EF92FE37BAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705563   (113771) от 09.03.2024
 
 Wynton Marsalis - Marsalis Standard Time, Vol. 1 (1987) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
@@ -687,64 +745,6 @@ Sonny Stitt - Tune-Up! (1972) 1993, Muse Records [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:576C08CA1E7D60FD194721C3EF981CC715F8AEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706517   (113595) от 13.03.2024
-
-Sarah Jane Morris - Sisterhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sisterhood
-02. Couldn’t Be Without
-03. Tomorrow Never Happens
-04. So Much Love(   Читать дальше...   )Жанр: Nu Jazz, SoulПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16137A546291C66456BC0EAB61F471125543320F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706486   (113556) от 13.03.2024
-
-Stephane Grappelli - Stephane Grappelli with Strings (1961,1970) 2CD. 2020, Label Ouest [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gerba [2:52]
-02. Opportunity [2:20]
-03. Emotion [2:54]
-04. Hesitation [2:33](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F7D58401E3828EDDF3554FB4B1AF129234DAE2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

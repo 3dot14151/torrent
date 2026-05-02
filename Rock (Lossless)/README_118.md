@@ -1,3 +1,351 @@
+###  Публикация: 1081702   (282507) от 10.12.2016
+
+Chris Norman - The Complete Story Of Chris Norman (2008) 5CD Box Set [FLAC|Lossless|image + .cue] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Tragedy (3:46)
+02. Hunters of the Night (4:08)
+03. Love Is... (3:34)
+04. Chain Reaction (3:45)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 04:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC47493A20BC0C86E3F11B86BA47C1C5B2812BA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964203   (282422) от 11.12.2015
+
+Anastacia - Anastacia (2004) [FLAC|tracks+.cue]<Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seasons Change (4:17)
+02. Left Outside Alone (4:17)
+03. Time (3:33)
+04. Sick and Tired (3:30)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70A257658F0696AAECAF4AEB4E5CF506B5E1A46D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964161   (282240) от 11.12.2015
+
+Blondie - The Curse Of Blondie (2003) [FLAC|tracks+.cue]<Pop Rock, Synth-pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shakedown (5:05)
+02. Good Boys (4:18)
+03. Undone (4:28)
+04. Golden Rod (5:23)(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 01:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE07F3B5E78F84B4F964C952281631DF64AD3517
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964192   (282231) от 11.12.2015
+
+Texas - The Greatest Hits (2000) [FLAC|tracks+.cue]<Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Want a Lover (5:02)
+02. In Demand (4:25)
+03. Say What You Want (3:51)
+04. Summer Son (4:04)(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:01:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E0613BA0ACBB69AFF8AE03AA1112F3E4EDB40AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964438   (282097) от 11.12.2015
+
+Billy Joel - Greatest Hits Volume III: 1986-1997 (1997) [FLAC|tracks+.cue]<Pop Rock, Vocal, Ballad>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keeping the Faith (4:38)
+02. An Innocent Man (5:19)
+03. A Matter of Trust (4:12)
+04. Billy Joel feat. Ray Charles - Baby Grand (4:05)(   Читать дальше...   )Жанр: Pop Rock, Vocal, BalladПродолжительность: 01:10:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233FC0DAC80562AA3B2F576B67DA6E3DC38D6127
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081764   (281048) от 11.12.2016
+
+Realeaf - Possibly Not (2007) [FLAC|Lossless|tracks + .cue] <Psychedelic, Space Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281048.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Giant Bus in the Sky (8:22)
+2. Floating Underground (4:28)
+3. Something Breaks (PT.1) (5:24)
+4. The Rising (PT.1) (0:47)(   Читать дальше...   )Жанр: Psychedelic, Space RockПродолжительность: 00:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCC52B1D74840DC3C46F9DB8670DC67C7A7EEE60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336372   (280814) от 06.11.2019
+
+Frankie Valli & The 4 Seasons - Greatest Hits, Vol.2 (1991) [FLAC|Lossless|tracks + .cue] <Soft Rock, Ballad>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280814.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Rag Doll 3:00
+2 Let's Hang On 3:16
+3 Working My Way Back To You 3:03
+4 Opus 17 (Don't You Worry 'bout Me) 2:32(   Читать дальше...   )Жанр: Soft Rock, BalladПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F78C1D8B177A08F9E5B7C79A8CB15859068D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964624   (280783) от 12.12.2015
+
+Eloy - Destination (1992) Japanese Edition /1993, Victor [FLAC|image+.cue]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call Of The Wild 7:01
+02. Racing Shadows 7:11
+03. Destination 7:41
+04. Prisoner In Mind 4:27(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EC8A7090D896895A098A043AF3FFE9D0EEC97ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187206   (279877) от 28.11.2017
+
+Sting - Greatest Hits [2CD] (2017) [FLAC|Lossless|tracks + .cue] <Jazz, Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desert Rose
+02. Stolen Car
+03. After The Rain Has Fallen
+04. All This Time(   Читать дальше...   )Жанр: Jazz, Rock, PopПродолжительность: 02:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182816F8648B98F5E15F181B3AA11999B278FCF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264589   (279397) от 24.11.2018
+
+Mick Jagger - 6 Albums, 1 Single (8 CD) (1985 - 2017) Rock, Classic Rock, Blues Rock, Rock & Roll [FLAC|Lossless|image + .cue|tracks + .cue] <Rock, Classic Rock, Blues Rock, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279397.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mick Jagger - британский рок-музыкант, актёр, продюсер, вокалист рок-группы The Rolling Stones. Mick учился в Лондонской школе экономики и политических наук. Школа не представляла никакого интереса, единственное, что ему нравилось - это пение. Петь он старался как можно громче и однажды настолько увлёкся, что откусил себе кончик языка. Вскоре он ушёл из школы по (   Читать дальше...   )Список альбомов:
+1985 - She's The Boss
+1987 - Primitive Cool
+1993 - Wandering SpiritЖанр: Rock, Classic Rock, Blues Rock, Rock & RollПродолжительность: 06:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA664CCFCB3F1E9A479D8648F0C9A0DE9BDAE42B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336688   (279166) от 07.11.2019
+
+Herman Frank - Rare Metal (Unreleased Collection) (2019) [FLAC|Lossless|image + .cue] <Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sky Trooper (4:12)
+02. Princess (4:23)
+03. You Don't Know (4:25)
+04. 4 Auf Die Glocke (3:50)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47A4B2D297CCD0CFC3B16B9B23417E4B71406A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336656   (279161) от 07.11.2019
+
+The Presidents of the United States of America - II (1996) Japan, 1998 [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ladies And Gentlemen Part I (1:37)
+02. Lunatic To Love (2:57)
+03. Volcano (2:58)
+04. Mach 5 (3:16)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F6156A9BF9CED68F47B9EEC91BE93443C1B8D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336693   (279157) от 07.11.2019
 
 Angel - Risen (2019) [FLAC|Lossless|image + .cue] <Classic rock>
@@ -397,353 +745,6 @@ U2 - Songs Of Experience (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE9F43972F5BD4F104FE1E5BF5D1742077E3D85C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187946   (275640) от 01.12.2017
-
-The Rolling Stones - On Air (2017) Deluxe Edition [FLAC|Lossless|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Come On (Saturday Club, 1963) 2:03
-02.  (I Can't Get No) Satisfaction (Saturday Club, 1965) 3:47
-03.  Roll Over Beethoven (Saturday Club, 1963) 2:19
-04.  The Spider And The Fly (Yeah Yeah, 1965) 3:14(   Читать дальше...   )Жанр: RockПродолжительность: 01:24:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:529654531F5353A6C494AE3B0B028955AA17F210
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 425676   (275288) от 21.12.2011
-
-Rush - Sectors (1974-1989) 15CDs Box Set, remastered /2011, Anthem/ [FLAC|Lossless]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:53)
-02. The Big Money (5:58)
-03. Subdivisions (5:22)
-04. Marathon (6:39)(   Читать дальше...   )Жанр: Progressive Rock / Hard RockПродолжительность: 01:14:18
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083204   (274841) от 15.12.2016
-
-Danny B. Harvey & Mysti Moon - Hell Cat Stomp (2014) [FLAC|Lossless|image + .cue] <Rockabilly, Jump Blues>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (This Train Is Going) Straight To Hell (3:32)
-02. Black Betty (3:13)
-03. Shake It On Down (3:35)
-04. When The Levee Breaks (4:10)(   Читать дальше...   )Жанр: Rockabilly, Jump BluesПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6D741ABE4AA40CFC1AC03803EAF1C7AA15AA7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188531   (274728) от 02.12.2017
-
-Graham Gouldman - Play Nicely And Share (2017) E.P. [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274728.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если имя Graham Gouldman вам ничего не говорит, значит вам никогда не нравились композиции 10сс, потому как самыми мелодичными своими вещами они обязаны именно ему. К сожалению сольная его карьера очень небольшая, а уж на трекере он почти не представлен. Отреставрированный мной специально по этому случаю диск сможете найти по ссылке внизу. Ну и я уверен, что если (   Читать дальше...   )01. Let's Get Lost  (3:18)
-02. Come To Mine  (3:24)
-03. Do You Wanna' Go  (3:10)
-04. Rave On  (3:22)(   Читать дальше...   )Релиз состоялся: 22 сентября 2017 годаЖанр: RockПродолжительность: 00:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF3D5F649E5412C84B33099A056FF50497948E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188193   (274511) от 02.12.2017
-
-U2 - Songs Of Experience (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is All We Have Left 02:41
-02. Lights Of Home 04:16
-03. You're The Best Thing About Me 03:45
-04. Get Out Of Your Own Way 03:58(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E3EE25134AE4DC86F1E42B6AC98ED672F913052
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545518   (274450) от 02.12.2017
-
-Graham Gouldman - Love And Work (2012) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274450.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грэм Кит Гулдман (родился 10 мая 1946) — английский композитор и музыкант, который является давним членом британской группы 10cc. В 60-х годах он написал целую серию хитов для британских команд вроде Yardbirds, Hollies, Herman's Hermits. В 70-х был ключевой фигурой в составе прекрасных арт-поп-рокеров 10сс. В 80-х создал яркий нововолновый проект Wax. В 90-х возрождал (   Читать дальше...   )01. The Halls Of Rock 'n' Roll - 3:20
-02. Daylight - 3:58
-03. Ariella - 3:54
-04. Then It’s Gone - 2:50(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFCF5CD14FB1D1CF1588772DCA8ADEB6645B112C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580754   (273950) от 28.11.2018
-
-The Beatles - Red & Blue Albums (1962-1970) Japanese Edition, Remastered, 2010 [FLAC|Lossless|image + .cue] <beat, pop rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник представляет собой антологию лучших композиций The Beatles за период 1962-1970...
-
-Битлы принимали активное участие в подборке песен для обоих - как Красного, так и Синего альбомов, а также при разработке дизайна, подборе цветов и фотографий.Жанр: beat, pop rockПродолжительность: 02:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0B2C0F8ED37F8B4D8CA47310CE84C3999E21846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337620   (273765) от 11.11.2019
-
-The Presidents of the United States of America - Kudos to You (2014) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Slow Fly (3:26)
-02. Crappy Ghost (2:26)
-03. Good Morning Tycoon (2:30)
-04. Poor Little Me (2:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C809B58EC747121AFBDFB5671451E0AB8755B000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083715   (272325) от 17.12.2016
-
-King Crimson - Teatro Toniola, Mestre Venice, Italy (1995) 2010 [FLAC|Lossless|tracks] <Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indiscipline (07:20)
-02. Improv Two Sticks (0118)
-03. Elephant Talk (06:15)
-04. Prism (02:31)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 01:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C370E5C5E90B98DF7CC60F991BE83F4E3AB4BFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084135   (271361) от 18.12.2016
-
-King Crimson - Teatro Carlo Felice, Genova, Italy (2003) 2006 [FLAC|Lossless|tracks] <Progressive rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Dangerous Curves (05:54)
-02 - Larks' Tongues In Aspic Pt IV (12:49)
-03 - The Power To Believe III (08:56)
-04 - Three Of A Perfect Pair (04:08)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 02:04:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF536149BE0DE273C42EEDD4C3BCCDD8921E938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265868   (271003) от 01.12.2018
-
-Neil Young - Songs for Judy (2018) Live album [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Songs for Judy (Intro) (3:25)
-02. Too Far Gone (3:15)
-03. No One Seems to Know (2:29)
-04. Heart of Gold (2:53)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF9042EB52E5F95706468BAB05A7C031C9A93F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189551   (270352) от 06.12.2017
-
-Bob Seger - I Knew You When (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gracile (02:48)
-02. Busload of Faith (04:32)
-03. The Highway (03:38)
-04. I Knew You When (03:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8016EFEF6843D82BBE29309C9C60B9725FE025C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1508627   (796927) от 09.11.2021
+
+Wraith - Riot (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Russian Roulette
+02. Riot
+03. Cursed
+04. You've Got It Comin'(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:53:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C770E8B177E0A79FE002319F003E5DCFC5A981FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508694   (796857) от 09.11.2021
+
+Wraith - Danger Calling (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796857.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hungry (Shot Of Your Love)
+02. Crazy
+03. One Foot In The Grave
+04. Breakin' All The Rules(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E5A23731E90F75DC46C3AE937F816FB37E3146
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200118   (796381) от 20.01.2018
+
+Greg Lake - Greg Lake (1981) Reissue, 1993, Chrysalis [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nuclear Attack (4:32)
+ 02. Love You Too Much (3:56)
+ 03. It Hurts (4:30)
+ 04. Black And Blue (3:59)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, AORПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB01DD488DABF0BAC3878ED982D82873E0162076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508998   (796282) от 10.11.2021
+
+Pat O'May - Welcome To A New World (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Shall Never Surrender 08:36
+02. Grinch 03:43
+03. Anything I Want 04:45
+04. Please Tell Me Why 04:06(   Читать дальше...   )Жанр: Hard Rock, Heavy ProgressiveПродолжительность: 01:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55203B8DAE0FBE1EF05A3932F1A990B6AC2E0D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1508795   (796274) от 10.11.2021
 
 Crazy Lixx - Street Lethal (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -630,122 +746,6 @@ Macumbazilla - ...at a Crossroads (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFEDDD077764E11C04BE616DA528491841DF1473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510891   (790389) от 18.11.2021
-
-Mike Onesko's Guitar Army - The Last Solo (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fast Lane (Feat. Billy Morris Band, J.J. Farris, Aaron Akins) 07:03
-02. Chains On My Mind (Feat. Sid Solomon, Mike Varney, Stoney Curtis Band) 06:08
-03. Sabbeck (Feat. Steve Tabar) 03:54
-04. Poison (Feat. Frankie Starr, Butch Armstrong) 05:55(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3BE5ACA4AA054D34F27298580E3280D8B9B97FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511118   (789840) от 19.11.2021
-
-Cherokee - Blood & Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Classic Rock, Female Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bill Pullman
-02. My Sweet Tulip
-03. Just One Summer Long
-04. Il Grande Silenzio(   Читать дальше...   )Жанр: Melodic Hard Rock, Classic Rock, Female RockПродолжительность: 01:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEF924294D74031AE67B20B1C7951766C37E093
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511062   (789817) от 19.11.2021
-
-Barnabas Sky - Inspirations (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legends Rise (feat. Danny Vaughn)
-02. What Lies Beneath (feat. Zak Stevens)
-03. In My Mind (feat. Danny Martinez Jr.)
-04. Yesterday’s Gone (feat. Rob Rock)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:00:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:966A8FA3F0CE813C20DABCD9F02BF83D773EEBA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511069   (789809) от 19.11.2021
-
-Carl Sentance - Electric Eye (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judas
-02. Alright
-03. Electric Eye
-04. Overload(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0344558C13C1925EF9615D3276FAE350D75975F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

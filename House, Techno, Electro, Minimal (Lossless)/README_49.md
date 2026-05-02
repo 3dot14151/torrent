@@ -1,3 +1,32 @@
+###  Публикация: 1331752   (320647) от 17.10.2019
+
+VA - Sunset At Stonehenge (Mixed by Paul Oakenfold) (2019) [FLAC|Lossless|tracks|CD|scene] <Deep House, Progressive House, Classical>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. U2 - Love Is All We Have Left (2:37)
+02. The Grid - Floatation (Subsonic Grid Mix) (5:56)
+03. Empire Of The Sun - We Are The People (3:54)
+04. Clarian - Kill For Love (5:50)(   Читать дальше...   )Жанр: Progressive House, Deep House, ClassicalПродолжительность: 01:19:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3093D36389794DDEBA383666E2263E919943369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 263088   (320501) от 29.11.2010
 
 Penner & Muder - Same Monkeys Different Zoo (2010) [FLAC|Lossless]<Tech House, Deep House>
@@ -702,34 +731,6 @@ Rrose / Orphx - Summer Solstice Edition EP (2016) [FLAC|Lossless|WEB-DL|24Bit|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2421CC70206E74774D176F3AC759736B41707991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261887   (301292) от 12.11.2018
-
-MacroVision - Skyroom (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skyroom (Rework)   (08:15)
-02. Glow (Original Mix)  (10:52)
-03. Pollux (Original Mix) (09:38)Жанр: Progressive HouseПродолжительность: 00:28:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35FE9B7D6FD8B362EBEFBCAC9DF65673CF0C4055
 ```
 
 https://mybot314.ru/tekegram_catalog/

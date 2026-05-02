@@ -1,3 +1,122 @@
+###  Публикация: 921174   (577168) от 24.07.2015
+
+VA - Музыкальный кайф лета (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577168.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Профилактика - Это Не Сон
+002. Cheryl Cole - I Dont Care
+003. Mozgi (Потап) - Хлам
+004. Selena Gomez - Mas(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304841DA3A5824977F2A8404CF4E0AC105F408BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920942   (577153) от 24.07.2015
+
+VA - Попсовая Сотка MTV. Русский выпуск (2015) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лицей - Где-то
+02. Sasha Santa - Напицца
+03. Иван Дорн - Ты всегда в плюсе
+04. Артём Артемидов - Живи(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75909324D6345A0D08E8337600E8030E9EDD2670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527457   (576923) от 26.07.2012
+
+VA - Хиты пляжного сезона (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юлия Беретта - Лето
+02. Martin Solveig - The Night Out
+03. Потап и Настя - Прилелето
+04. Ирина Дубцова - Ешь, молись, люби
+05. Shakira - Addicted To Yo
+06. Сергей Жуков & Opium Project - Я буду с тобою
+07. Алина Гросу - Взрослая
+08. Elvira T - Все решено (Fresh Tunes remix)
+09. Rihanna - Where Have You Been
+10. Глюк'oza - Хочу мужчину (DFM mix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD60A2AE47FB589839B6D0D21F880C4A0BE3CC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 359245   (576871) от 10.07.2011
+
+VA - Авто Дискотека 2 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 12:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC07B1B45933833AFF9F67DA9809BDAD0964AA5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303130   (576460) от 19.05.2019
 
 VA - German Top 100 Single Charts 24.05.2019 [MP3|320 Kbps] <Pop>
@@ -623,122 +742,6 @@ VA - Now Thats What I Call The 80s Hits (2016) [MP3|320 Kbps] <Pop, Disco, R&B, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:149F5F5CF1E26B01CF3F831FE765E32AE4435459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043488   (572389) от 16.08.2016
-
-VA - World Top 100 DFM (2016) [MP3|128-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572389.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nick Jonas feat. Tove Lo - Close
-002. DJ Khaled feat. Drake - For Free
-003. Twenty One Pilots - Stressed Out
-004. James Bay - Let It Go(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:426DB1E9950435BA0347E8B0BFE7D84137113435
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151431   (572239) от 19.07.2017
-
-VA - 60 лучших песен на французском языке (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Alizee Jacotey - Moi... Lolita  4:23
-02.  Amel Bent - Ma philosophie  3:21
-03.  Charles Aznavour - La boheme  4:01
-04.  Charles Aznavour - Les deux guitares  3:47(   Читать дальше...   )Жанр: PopПродолжительность: 03:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:512BA7C0E9749D677AA9ADD349564B1F46193904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554759   (571810) от 02.06.2022
-
-VA - Hit Music: лето (2022) от Мяу [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571810.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vlad Brisby - Cause I'm in Luv
-002. DNCE - Move
-003. Filatov & Karas feat. Лигалайз - Будущие Мамы 2.0
-004. Parov Stelar feat. Anduze - Lights Off(   Читать дальше...   )Жанр: PopПродолжительность: 15:00:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0F72098ADEF64536A3C48ADE06CC4318DDC057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921739   (571647) от 27.07.2015
-
-VA - Хит топ 2015. Лирические баллады (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571647.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Филипп Киркоров - Иллюзия
-2.Emin - Начистоту
-3.Анжелика Варум - Я всегда с тобой
-4.Стас Михайлов - Семь дорог(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A14181988DF59ECE5FBEEE2045C70E5A48650EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1672184   (170284) от 27.10.2023
+
+Motley Crue - Shout At The Devil (40th Anniversary) (1983) Remastered, 2023, BMG [FLAC|Lossless|WEB-DL|tracks] <Arena Rock, Glam Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Beginning (1:14)
+02. Shout at the Devil (2021- Remaster) (3:14)
+03. Looks That Kill (4:08)
+04. Bastard (2:52)(   Читать дальше...   )Жанр: Arena Rock, Glam Rock, Hard RockПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67A9FDA1B8F87F44E1B35719AE1F1DB45794490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430845   (170000) от 11.12.2020
+
+Fuzzy Duck - Fuzzy Duck (1971) Reissue, 1993, Repertoire Records [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time Will Be Your Doctor (5:12)
+02. Mrs. Prout (6:49)
+03. Just Look Around You (4:24)
+04. Afternoon Out (5:00)(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:038A8FC8195DFCF21F5C99AC1B3CDFB834698AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430732   (169911) от 11.12.2020
+
+Silverhead | Detective - 4 albums (1972-2016) [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта группа, играющая глэм-рок, была образована в начале 70-х годов в Лондоне. Фронтмену Маклу Дес Барресу удалось подписать контракт с британской фирмой Purple Records (образована менеджерами Deep Purple), на которой был издан одноименный дебютный альбом, который критики сравнивали с T.Rex и Slade. После выхода альбома ушел гитарист Стив Форест, которого заменил (   Читать дальше...   )--------------------------
+
+01. Help Me Up (4:19)
+02. Competition (4:40)(   Читать дальше...   )Жанр: Rock, Hard Rock, Glam |Продолжительность: 02:40:00 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0428A0F5FB276E64C509CFE4DA7C8803A1AABDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596276   (169868) от 10.12.2022
+
+Journey - Live in Concert at Lollapalooza (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Separate Ways (Live) [00:05:41]
+02. Only the Young (Live) [00:04:20]
+03. Guitar Interlude (Live) [00:01:10]
+04. Stone in Love (Live) [00:05:18](   Читать дальше...   )Жанр: Hard Rock, RockabillyПродолжительность: 01:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84236113C072A1B19A2F0E07C1BCA9D7949ABAB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344594   (169836) от 11.12.2019
 
 Hannon Tramp - Hannon Tramp (2014) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
@@ -629,122 +745,6 @@ Smoking Martha - Universe (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03A94C7EB7D09A13DF2B89CE3F4F4C3545A4C474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516443   (166192) от 11.12.2021
-
-Carl Sentance - Electric Eye (2021) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judas
-02. Alright
-03. Electric Eye
-04. Overload(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA666CF940718A1664E717230455CDAD82CDBF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431588   (166176) от 15.12.2020
-
-Tokyo Motor Fist - Lions (2020) Japanese Еdition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Youngblood (3:29)
-02. Monster In Me (4:33)
-03. Around Midnight (2:48)
-04. Mean It (4:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3D6FCFF317BFA418338E5C2A19E06A12DB1824
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516557   (166167) от 11.12.2021
-
-Carmine Appice & Fernando Perdomo Project - Energy Overload (2021) [FLAC|Lossless|tracks + .cue] <Instrumental Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blown Speaker Boogie
-02. Funky Jackson
-03. Energy Overload
-04. Flower Child(   Читать дальше...   )Жанр: Instrumental Hard RockПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F3AFD0623E7A55A048D7C5586DA82980B4A0082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516451   (166162) от 11.12.2021
-
-The Darkness - Motorheart (2021) Limited Edition [FLAC|Lossless|tracks + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome Tae Glasgae
-02. It's Love, Jim
-03. Motorheart
-04. The Power and The Glory Of Love(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:45:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAB1A6344E45D27EA3ACA945EA75BB3E43CCC4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1264334   (281240) от 23.11.2018
+
+VA - Markus Schulz – Global DJ Broadcast (2 Hour Studio Mix) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz vs. Jam El Mar – The Lotus
+02. Ilan Bluestone ft. Ellen Smith – Rival (Rafaël Frost Remix)
+03. Raito – Dark Ritual
+04. Sam Laxton & Noire Lee – Thunderstorm (GXD Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA60187C52833AE6BC07964D478FEDA2724304C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264336   (281235) от 23.11.2018
+
+VA - Ori Uplift - Uplifting Only 302 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. FAN FAVORITE & PRE-RELEASE PICK: Playme - The Great Bay (Intro Mix)
+02. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
+03. Brian Flinn & Type 41 - Back to Yesterday
+04. Mike van Fabio & Kim Kiona - Don't Run Away(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8E4B2B03ED621B02E36AACAD472792A997FE7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 676376   (279792) от 11.12.2016
 
 Ori Uplift - Uplifting Only 001 - 200 / Promo & Guest Mixes (2013 - 2016) [MP3 | 320 кб/с] < Melodic / Uplifting / Emotional Trance >
@@ -685,64 +743,6 @@ Markus Schulz - Global DJ Broadcast World Tour: Australia (2025-11-13) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D325EF6E32AAD1750DB2271357F516BE063D271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837337   (256741) от 16.11.2025
-
-ARTBAT - Live @ Cercle Odyssey Paris, France (2025-05-29) [MP3|320 Kbps] <Techno, Melodic House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTBAT - Tabu
-02. ARTBAT & JOA - The Spot
-03. ARTBAT & Benny Benassi - Love Is Gonna Save Us
-04. ARTBAT - Dance(   Читать дальше...   )Жанр: Techno, Melodic HouseПродолжительность: 01:22:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3EE5AB49FDB13E7681FB6430A55F8D2D5E8B0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837007   (255881) от 14.11.2025
-
-VA - Ori Uplift - Uplifting Only Episode 666 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SouthDreamer – Miracle Of Life (Intro Mix) (Fan Favorite (664))
-02. Evebe ft. Danny Claire – Everything (Timo Pralle Remix)
-03. Mhammed El Alami – Dawn (Sunyella Remix) (Uplifting Classic)
-04. Ferry Tayle & Tonks pres. Mirage & Yolaine – Don’t Ever Let Go(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AB6BAD684584810EC7177A5CCD9BD837858F369
 ```
 
 https://mybot314.ru/tekegram_catalog/

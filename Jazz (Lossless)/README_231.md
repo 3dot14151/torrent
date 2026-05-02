@@ -1,3 +1,61 @@
+###  Публикация: 1188784   (272376) от 04.12.2017
+
+Chick Corea & Gary Burton - Hot House (2012) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't We Be Friends 07:26
+02. Eleanor Rigby 07:01
+03. Chega de Saudade 10:46
+04. Time Remembered 06:13(   Читать дальше...   )Жанр: JazzПродолжительность: 01:15:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9D829BA3AF36ECB61249D19376AB86824A2E19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266005   (272110) от 30.11.2018
+
+Sir Roland Hanna - Colors From A Giant's Kit (2011) IPO Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Colors from a Giant's Kit [2:11]
+02. Natalie Rosanne [3:22]
+03. A Story, Often Told but Seldom Heard [8:06]
+04. Robbin's Nest [4:29](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FADBD4E0FAC295FFAAF17A87711891C54696F224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084433   (271531) от 18.12.2016
 
 Ben Webster - Live At The Haarlemse Jazzclub (1972) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -687,64 +745,6 @@ Jay Thomas & Michael Van Bebber Quintet - The Promise (2019) CUG Records [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9851E5BEDFFF25824B27B9B6B214EC4A8C15B8D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338438   (269897) от 15.11.2019
-
-Wallace Roney - Munchin' (1995) Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solar [8:58]
-02. Ah-Leu-Cha [6:13]
-03. Bemsha Swing [7:40]
-04. Lost [6:11](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E1A536E5F22A804515F4F70314F942F2224C5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338430   (269812) от 15.11.2019
-
-De-Phazz & STUBAphilharmonie - De Capo (2019) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sabbatical (De Capo Edit)
-02. Roses (De Capo Edit)
-03. The Mambo Craze (De Capo Edit)
-04. Death by Chocolate (De Capo Edit)(   Читать дальше...   )Жанр: Nu JazzПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:514FC5516985951689C351CB12F906336B4236F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

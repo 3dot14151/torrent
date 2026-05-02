@@ -1,90 +1,3 @@
-###  Публикация: 1511414   (245817) от 21.11.2021
-
-bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3 в 1 [01:48]
-02. Дождь (feat. Kasha) [02:28]
-03. Магия [01:50]
-04. Хочу быть как все (feat. Бакей) [01:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2B46556536D604014EB5C803DD19173932F1B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624526   (242092) от 06.04.2023
-
-L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242092.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я готов ко всему
-2. Летать
-3. Она одна
-4. Верну до темноты(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19C1E3C94C6D4E4C5B1EB20E514E48022F5C58BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372032   (242064) от 03.04.2020
-
-ГАМОРА - THE BAD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вставляет нормально [04:55]
-02. Лови [06:07]
-03. Убойный камень [03:22]
-04. Решай неспеша [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:23:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:650E2E51CF6796034EA89698BEA34B6D564A00EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544516   (241976) от 16.04.2022
 
 Sagath - Страшные сказки (2022) [MP3|320 Kbps] <Alternative, Hip-Hop, Horrorcore>
@@ -745,6 +658,99 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2513F0D3CCE0F46EC156A3FA9C6CC4C60F227DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965158   (227633) от 13.12.2015
+
+Не будите спящих - Делай свое дело (2015) [MP3|320 кб/с]<Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227633.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WI-FI
+02. Фифа
+03. Давай уедем туда
+04. Каюсь(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 01:05:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3F1A066A30E1E480B4BE48A22FF07E46628D188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1513197   (225258) от 28.11.2021
+
+ATL - Радио Апокалипсис (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 66.6 FM [02:01]
+02. RESET [02:35]
+03. Ящик [03:28]
+04. Behemoth [02:35](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7851187BAFED7D613BE6FF9FB633B69AA407C89C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 587412   (223453) от 10.12.2012
+
+2rbina 2rista - HONDURAS (2012) [MP3|320 кб/с]<Hip-Hop, Reggae,>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_223453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дикий Дикий Урал
+ 02. РЖД
+ 03. Саша Грэй
+ 04. ПАРАГАМДАМ!
+ 05. Барракуды (ft. Жара)
+ 06. Сенсимилья
+ 07. Гондурас (ft. DJ Spot)
+ 08. Деньги - Шоу
+ 09. Пати пьяно
+ 10. Voodoo After Party(   Читать дальше...   )Жанр: Hip-Hop, ReggaeПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4174055BBA611B18BA8D447F16B773623211B705
 ```
 
 https://mybot314.ru/tekegram_catalog/

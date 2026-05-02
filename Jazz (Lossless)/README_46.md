@@ -1,3 +1,61 @@
+###  Публикация: 1104577   (880353) от 15.02.2017
+
+Sonny Fortune - Invitation (1987) 2010, Whynot [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's A Bird [06:51]
+ 02.Space In Time [08:17]
+ 03.Jamf [08:47]
+ 04.5/4 Train [05:47](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB04DF26B9383B6153763B4535475DD71BFA1B33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1104570   (880352) от 15.02.2017
+
+Martial Solal - Trio (1953-1955) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.La Chaloupee [02:48]
+ 02.The Champ [03:03]
+ 03.Ramona [02:58]
+ 04.Dinah [03:04](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E8B6CCCEDC765121158A980EAA216A0AD57A6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1104210   (880351) от 15.02.2017
 
 Jack Teagarden - At The Roundtable (1959) Remaster, 2016, Warner [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
@@ -687,64 +745,6 @@ Denny Zeitlin - Zeitgeist (1967) Remaster, 2015, Sony Music [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7B902E541AFC74F79A23E1C67F579950AE2EC3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105032   (876743) от 17.02.2017
-
-Art Pepper - Modern Art, Vol.2 (1956, 1957) 1988, Blue Note [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blues In [06:04]
- 02.Bewitched, Bothered And Bewildered [04:28]
- 03.Stompin' At The Savoy [05:07]
- 04.What Is This Thing Called Love [06:08](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF49E572259DB91ABD417F7CBF07FEA600C90291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1105037   (876742) от 17.02.2017
-
-Art Pepper - The Art Of Pepper, Vol.3 (1957) 1988, Blue Note [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Holiday Flight [05:12]
- 02.Too Close For Comfort [06:11]
- 03.Long Ago And Far Away [04:11]
- 04.Begin The Beguine [07:24](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:04:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:563895BCD9EB8417D27055F2225E8AA0EC55E9F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

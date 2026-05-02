@@ -1,3 +1,61 @@
+###  Публикация: 939093   (478022) от 20.09.2015
+
+VA - Atom 19.0 (Compiled and mixed by Deeper82) (2015) [MP3|320 кб/с]<Atmospheric Breaks, Progressive Breaks>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nikolay Mikryukov - Orbit (Original Mix)
+02. EZ Breaks, ARkLove - The Way To Charleroi (Cullen Remix)
+03. Omauha - Florence (Original Mix)
+04. Platunoff - Dive In Silence (Retroid Remix)(   Читать дальше...   )Жанр: Atmospheric Breaks, Progressive BreaksПродолжительность: 02:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18EE71291340161D82AC1826302A38A4F286ABEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 938972   (478014) от 20.09.2015
+
+VA - TOP Non-Stop 2010-2015 - Lounge & Chillout (2010-2015) [MP3|192 кб/с]<Chill, Lounge, New Age, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slacker - A Million Dreams (intro) [01:09]
+02. Ron Basejam - Into My Life (original mix) [05:55]
+03. Mino - Textures [07:20]
+04. Lip Service - Ocean (Nightgroove Mix) [04:31](   Читать дальше...   )Жанр: Chill, Lounge, New Age, AmbientПродолжительность: 05:09:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4515C3A5A32908D2691803BFEDC27E0FE6A401E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 938973   (477794) от 20.09.2015
 
 VA - Deep House and Techno - Dream Selection 2010-2015 vol.2 (2010-2015) [MP3|256 кб/с]<House, Techno>
@@ -726,64 +784,6 @@ VA - GNO: Top Tunes Disco Mix (2018) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:379E625F7FD9C0C4DBAA826A43E104EA63E00F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939836   (473584) от 22.09.2015
-
-VA - Herbst Chillout (2015) [MP3|320 кб/с]<Electronic, Downtempo, Lounge, Chill Out, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Turn Back Time (Chill Version) - Dreaming Way feat. Angel Falls
-02. Happy Hour (Cut Version) - Karim Le Mec
-03. Not Worry (Cut Version) - Devillas
-04. Wolken im Wind - Thomas Sopper & Herr Schmidt(   Читать дальше...   )Жанр: Electronic, Downtempo, Lounge, Chill Out, AmbientПродолжительность: 03:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:496DC8ED7C70DBAE77839CEB06A7DBF17F125AC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939893   (473580) от 22.09.2015
-
-VA - Chill Cakes Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Limitless Wave - Hope - Original Mix
-02. Taigai - Sleep Alone - Original Mix
-03. Tom Strobe - Lost in Dreams - Original Mix
-04. Autumn Storm - Pink Clouds - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F05687CFBCE4A04F1841293B1E993FF17B6D17CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

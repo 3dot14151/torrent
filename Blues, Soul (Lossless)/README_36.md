@@ -1,3 +1,119 @@
+###  Публикация: 1116747   (822907) от 20.03.2017
+
+Sean Chambers - Trouble & Whiskey (2017) [FLAC|Lossless|tracks] <Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| I Need Your Lovin'  (03:40) 
+02| Bottle Keeps Staring At Me  (04:03) 
+03| Trouble & Whiskey  (05:06) 
+04| Travelin' North  (03:38) (   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AEE006111D16B3D013030714D4BF849C1B542F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007549   (821619) от 15.04.2016
+
+Spirit Level - Kolossi Blues (2014) [FLAC|Lossless|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You See Is What You Get    03:47
+02. It's Gone    03:30
+03. It's A Hard Life    04:52
+04. Foolish Pride    03:08(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862A30F6918626DCADCA20DF4ED2C3F738CCE328
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116913   (821173) от 21.03.2017
+
+Shane Dwight Blues Band - Boogie King (2001) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Home Chicago (3:58)
+02. Snatch It Back & Hold It (3:09)
+03. I Need U So Bad (4:31)
+04. Just A Little Bit (1:59)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57DC037C285FC957353F5B886EF8FF1BB283E907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1117092   (821168) от 21.03.2017
+
+Rockocola - Rockocola (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Welcome  (02:11) 
+02| Free Road  (03:05) 
+03| Rollin' Man  (02:18) 
+04| Jam!  (02:47) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C31A3FBC5CCDCF07FF6E5B0F0CE7D64D747F190B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007800   (819745) от 16.04.2016
 
 Willie Phoenix & The Soul Underground - Blues My Soul (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
@@ -631,117 +747,6 @@ Bobby Womack - Resurrection (Japanese Edition) (1995) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2938175A84873E4B8CB4C76A7B06FCD43C17EDEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198075   (810132) от 10.01.2018
-
-Nai Palm - Needle Paw (2017) [FLAC|Lossless|tracks + .cue] <Soul, Female Vocal>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wititj (Lightning Snake), Pt. 1Жанр: Soul, Female VocalПродолжительность: 00:57:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC21D62385D6E9F26D96F50F5D2CE38FC0B533F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198020   (810123) от 10.01.2018
-
-Danielle M & The Glory Junkies - All My Heroes Are Ghosts (2017) [FLAC|Lossless|WEB-DL|tracks] <Swamp Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Heroes Are Ghosts  (02:57) 
-02. All On Fire  (02:34) 
-03. Monster  (03:53) 
-04. Everybodys Wrong  (02:47) (   Читать дальше...   )Жанр: Swamp BluesПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B60A9E3E483AD6AD19E21F6CDA7C43B9FC5961D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 317342   (809806) от 02.04.2011
-
-Howlin Wolf - The London Howlin Wolf Sessions (Deluxe Edition) 2 x CD (2002) [FLAC|Lossless]<blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: BluesПродолжительность: 00:56:15 + 00:52:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 884114   (809013) от 02.04.2015
-
-Joe Bonamassa - Muddy Wolf At Red Rocks (2015) 2CD [FLAC|Lossless]<Blues rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809013.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Muddy (00:50:50)
-CD2 - Wolf & Joe (01:16:35)Треклист CD1:
-01. We Went Down To The Mississippi Delta
-02. Muddy Waters Talking
-03. Tiger In Your Tank(   Читать дальше...   )Жанр: Blues rock |Продолжительность: 02:07:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAF1549EBD21AB1983E478A46ED618FB0A396671
 ```
 
 https://mybot314.ru/tekegram_catalog/

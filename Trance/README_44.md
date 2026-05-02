@@ -1,3 +1,145 @@
+###  Публикация: 1447584   (245993) от 14.02.2021
+
+Alexander Popov - Adagio (2021) Singles [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Alexander Popov - Adagio (Extended Mix)Жанр: TranceПродолжительность: 00:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A2B7116D65E80B2877DF378DF36CC1F22462A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607897   (245971) от 28.01.2023
+
+VA - World Of Trance (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liam Wilson & Grez Turner - The Optimist (Original Mix) [8:00]
+02. Lostly - Lost Angeles (Original Mix) [7:46]
+03. Ehren Stowers - Vainqueur (Original Mix) [6:21]
+04. Robbie Van Doe - Haywire (Original Mix) [8:29](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28504E4024424269FFF1A519D6EB15D654C7645E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630257   (245761) от 30.04.2023
+
+VA - Progressive Dreamland (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goblin Hulms - You're Not Alone (Extended Mix) [06:41]
+02. Humbaba - Back to Me (Extended Mix) [06:45]
+03. Mike van Olsen - Oblivion (Original Version) [05:00]
+04. Jacob Ireng - Nobody (Extended Mix) [04:15](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:45:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90EC9294249F3BF056D18A18E0AF6A6ACD9B307
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448875   (245546) от 19.02.2021
+
+VA - Exotic Paradise Vol.1 (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AlexRusShev - Christina (Emotional Anthem)
+02. AlexRusShev - Disconnection (Extended Mix)
+03. AlexZideyn & AlexRusShev - Waterfall (Original Mix)
+04. AlexZideyn & Margo Lane - I Want To Be With You (SHARK Remix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6133A0BD6C355EC88212C67E556D106757F37F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630572   (245512) от 02.05.2023
+
+Roger Shah & Ambedo - Tribute To Earth (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roger Shah & Ambedo - Tribute To Earth (Mixed) [6:34]
+02. Roger Shah & Ambedo - Sun And Moon (Mixed) [5:41]
+03. Roger Shah & Ambedo - Oceans (Mixed) [5:39]
+04. Roger Shah & Ambedo & Yélow feat. Capri - The Greatest Gift (Mixed) [6:19](   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B4E32522EFB145A13B10161E00266D86F99F273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1631155   (245244) от 04.05.2023
 
 VA - Best Essentials Hype SFR (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -598,151 +740,6 @@ VA - Uplifting Only Top 15: April 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE1FF54E0C4BB355C6327A678ABE959EC3BF7506
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618187   (241367) от 12.03.2023
-
-VA - Black Hole Trance Music 03-23 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig Connelly & Christina Novelli - Black Hole (Giuseppe Ottaviani Extended Remix) (06:12)
-02. Somna & NASH - Your Gravity (Extended Mix) (05:21)
-03. JES - You and Me Belong (ReOrder Extended Remix) (05:59)
-04. WHITEOUT, Norni & Malene - Cry (Extended Mix) (06:31)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EEBDAEF7EA187EE6B68D9949CE4D100F37ED951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631338   (241015) от 05.05.2023
-
-VA - Keep It Trance Vol. 11 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. #LoopMonkeys - The Smell (Original Mix) [7:46]
-02. 06R - One Night Snow (Original Mix) [7:04]
-03. 10Stage - My Heart & Soul (Cold Rush Remix) [7:45]
-04. 13 Region - Second Impulse (Original Mix) [6:51](   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C826A716BC147B9878327695CD7A1C9D549138F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619944   (240961) от 18.03.2023
-
-VA - Trance On The Beach 2023 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vicente Panach - Strobe (Original Mix) [6:36]
-02. MUTNT - Only You (Extended Mix) [6:09]
-03. Alessandro Conti - Unearthed (Original Mix) [6:45]
-04. Alex Al Onions - Those In Need Of Help (Extended Mix) [8:40](   Читать дальше...   )Жанр: TranceПродолжительность: 03:24:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D42282830E46BD77BCE476A40A16C6E17C4D29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620091   (240936) от 18.03.2023
-
-VA - Spirit of Trance, Vol. 1 (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniele Filaretti - Gunwharf Quays (Original Mix) (06:31)
-02. Veizo - Bloom for You (Original Mix) (08:53)
-03. Sothzanne String - The Day You Left (Original Mix) (08:15)
-04. Ocoro - Jikimi (Original Mix) (08:44)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1553A3FFDEC81871B87241BC854DFE91ACF059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626353   (240789) от 14.04.2023
-
-VA - Black Hole Trance Music 04-23 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Sheperd & Koni Blank & EKE (NL) - Limitless (Extended Mix) [5:50]
-02. Cosmic Gate & Nathan Nicholson - Just The Beginning (Extended Mix) [6:50]
-03. Fonzerelli - Forgiven (Extended Mix) [6:45]
-04. Sam Allan & Sarah De Warren - Secrets Of Your Heart (Extended Mix) [6:32](   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A9DD528DBF5071DF83CB2023B3274028CDBA798
 ```
 
 https://mybot314.ru/tekegram_catalog/

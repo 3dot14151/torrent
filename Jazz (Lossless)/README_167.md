@@ -1,3 +1,61 @@
+###  Публикация: 936393   (496497) от 11.09.2015
+
+Charles Lloyd - Discovery! (1964) /2014, Sony Music/[FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forest Flower [07:55]
+02. How Can I Tell You? [05:17]
+03. Little Peace [06:33]
+04. Bizzare [04:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E51ABEF2BE2D63DACCC1CC58774E20043667D802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936424   (496496) от 11.09.2015
+
+Art Tatum & Buddy DeFranco - The Art Tatum-Buddy DeFranco Quartet (1953-1954) /2015, Poll Winners Records/[FLAC|tracks+.cue]<Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496496.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Night [05:50]
+02. This Can't Be Love [04:41]
+03. Memories Of You [07:13]
+04. Once In A While [05:16](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:846D65EA6DB2C8B902CFB21D71368405B96E4CBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936249   (496492) от 11.09.2015
 
 Art Blakey & The Jazz Messengers - Live In Zurich 1958 (2010) /Solar Records/[FLAC|tracks+.cue]<Hard Bop>
@@ -717,64 +775,6 @@ Dave Burrell & Billy Martin - Consequences (2006) Amt [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:873E3039B821F1AEBBBEFBB78FE2A4FE7F670CA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158616   (492098) от 16.08.2017
-
-Stefan Kaempfert - Kaempfert Plays Kaempfert (2011) Edel Records [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Swingin' Safari [03:08]
-02. Spanish Eyes [02:44]
-03. Wonderland By Night [03:06]
-04. So What's New [02:16](   Читать дальше...   )Жанр: Jazz-Pop, Easy ListeningПродолжительность: 00:52:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD41048AC573B71CCA136FC9FA2D57E68FF1A97C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404583   (491590) от 26.08.2020
-
-Lionel Hampton And His All-Stars - Air Mail Special (1953, 1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air Mail Special [7:38]
-02. Soft Winds [6:13]
-03. It's Only A Paper Moon [6:52]
-04. The Way You Look Tonight [11:11]Жанр: Mainstream JazzПродолжительность: 00:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110A91FB5B445B08A76E60F4983D9F18CA2D81FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

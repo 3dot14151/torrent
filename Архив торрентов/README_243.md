@@ -1,3 +1,58 @@
+###  Публикация: 1351923   (1001682) от 12.01.2020
+
+Desiderii Marginis - Deadbeat (2001) Remastered 2018, Cyclic Law [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Drone, Dark Jazz, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadbeat I (5:24)
+02. Mantrap (4:24)
+03. In Harms Way (5:03)
+04. Gods Shadow on Earth (4:19)(   Читать дальше...   )Производство: Cyclic Law - 131st CycleЖанр: Dark Ambient, Drone, Dark Jazz, Experimental, SoundscapesПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97EC7CA39CBC26CDC62723AA488D71FF486D05E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351842   (1001680) от 12.01.2020
+
+E-Trophee Andros. Сезон 2019-2020. Этап 3. Исола-2000. Гонка 2 (11.01.2020) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001680.jpg" />
+</div>
+
+
+###  Подробнее
+
+E-Trophee Andros — французский национальный чемпионат по автогонкам на ледяных трассах.Телекомпания: A21 NetworkЖанр: СпортЯзык озвучки: РусскийПродолжительность: 03:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0587D26825F36E193F674AFD9ABFB38BB491B57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351910   (1001678) от 12.01.2020
 
 A-Sun Amissa - The Gatherer (2017) [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Dark Jazz, Drone, Post Rock>
@@ -630,61 +685,6 @@ Torrent File Editor 0.3.17 [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E32F4516D2AC151EE6DEE1F3333566E39C39B12D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488957   (1001459) от 13.08.2021
-
-Audiority - Polaris 1.8.1 VST, VST3, AAX (x64) [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001459.jpg" />
-</div>
-
-
-###  Подробнее
-
-Polaris - это плагин эхо/реверберации, вдохновленный ранними аппаратными цифровыми ревербераторами конца 1970-х годов (такими как Ursa Major SST-282) и способный обеспечивать эхо, атмосферу и реверберацию из одной многопозиционной линии задержки.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D131C29675C9D0339E9ABC270BFA078A06B36E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488938   (1001451) от 13.08.2021
-
-Paleowolf - Cenozoic (2021) Prometheus Studio [FLAC|Lossless|WEB-DL|tracks] <Tribal, Dark Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entelodon (03:58)
- 02. Sivatherium (06:36)
- 03. Deinotherium (06:10)
- 04. Paraceratherium (06:03)(   Читать дальше...   )Жанр: Tribal, Dark AmbientПродолжительность: 00:56:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5754E7D514FC1B057A09556FF1C4361E5C4F020A
 ```
 
 https://mybot314.ru/tekegram_catalog/

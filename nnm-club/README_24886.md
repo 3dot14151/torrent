@@ -1,25 +1,25 @@
-###  Публикация: 1790476   (67826) от 13.04.2025
+###  Публикация: 1785331   (69370) от 15.03.2025
 
-Алексей Ром - Всё к лучшему (2025) [MP3|320 Kbps] <Chanson>
+Karen Cheryl - Etonnamment Romantique Best Of (2025) Remastered [MP3|320 Kbps] <Disco, Electronic, Pop>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67826.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - В озере глаз твоих [00:02:59]
-02 - Всё к лучшему [00:03:25]
-03 - Бяссоннiца [00:04:18]
-04 - Зима [00:03:45](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:44:39
+01. La marche des machos (04:17)
+02. Chante pour nous Mama (03:17)
+03. Les nouveaux romantiques (03:23)
+04. Oh ! Cheri Cheri... (03:31)(   Читать дальше...   )Жанр: Disco, Electronic, PopПродолжительность: 03:50:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEE57D82431C9C929AE76F75D1E837E7F7FB66FC
+magnet:?xt=urn:btih:43F5DDF065CCA1F4933F4FC4F7DD97939405B563
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791427   (67825) от 13.04.2025
+###  Публикация: 1785227   (69369) от 15.03.2025
 
-Гарольд Ллойд. Странные выходки пациентов / Peculiar Patients Pranks (1915) WEBRip [H.264/720p]
+Шрифты - Pepper Type - MyFonts - Mazzard [TTF, EOT, WOFF, WOFF2]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67825.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Один из первых фильмов Гарольда Ллойда. Некоторые сцены не сохранились, но описаны в титрах. Хотя чего там описывать... Это ведь фарсовая комедия - с беготней, драками, гэгами, своеобразным черноватым юмором. В общем, смех да и только!Производство: США / Rolin FilmsЖанр: короткометражный, комедия, немое киноРежиссер: Хэл РоачАктеры: Гарольд Ллойд, Снуб Поллард, Биби Дэниелс, Джин Марш, Филлис ДэниелсПеревод: немой с интертитрамиСубтитры: английские (интертитры), русскиеПродолжительность: 00:12:57
+Шрифт c кириллицей 54 стиля.
+Разработчик: Pepper TypeФормат: TTF, EOT, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3703D4F47C54F424F37BCBF30C8DFEEAB54F8513
+magnet:?xt=urn:btih:4EF6C312B6E0E084EF1C219E9DF818058234E63E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791298   (67824) от 13.04.2025
+###  Публикация: 1785074   (69368) от 15.03.2025
 
-Destinity - Ascension (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+Coolio - Greatest Hits (2025) Compilation [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Rap, Dance>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67824.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ascension (1:18)
-02. Light up Your Sky (3:45)
-03. Dying Light (3:56)
-04. Crimson Portrait (4:27)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:41:08
+01 - Gangsta's Paradise (feat. L.V.) [4:02]
+02 - Ooh La La [4:06]
+03 - County Line [2:58]
+04 - Rollin' with My Homies [4:07](   Читать дальше...   )Жанр: Hip-Hop, Rap, DanceПродолжительность: 00:40:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16E1F73DEB171678C4E9FE07651D20D22E614B62
+magnet:?xt=urn:btih:507E132B2FEEC7E5BA267B50A835FB58F3F63EB5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +83,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791269   (67823) от 13.04.2025
+###  Публикация: 1785244   (69367) от 15.03.2025
 
-Mark Daly - Devil's Arms (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Hard Rock, Blues Rock>
+Журнал | Приусадебное хозяйство №2 (февраль 2025) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67823.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Better Off Alone [3:12]
-02 - Devil’s Arms [3:12]
-03 - You Lie [5:10]
-04 - Peace of Mind (Live from Sonic Ranch) [4:52](   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 00:35:02
+Журнал «Приусадебное хозяйство» знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не остались без внимания и владельцы домашних ферм — здесь они находят ответы на многие (   Читать дальше...   )Жанр: Дача, сад, огородИздательство: ООО "Приусадебное хозяйство"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE0CF9A8DA115DEAD68040B48110917A077C944B
+magnet:?xt=urn:btih:22376614172E41A581246840AB0AA8545BEF3F17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +109,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791361   (67822) от 13.04.2025
+###  Публикация: 1785219   (69366) от 15.03.2025
 
-Jason Wells - Worried Man Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Шрифты - Pepper Type - MyFonts - Daikon [TTF]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67822.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Worried Man Blues (2:54)
-02. Give A Lot Of Love (4:00)
-03. October Sky (3:19)
-04. For One (5:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:03
+Шрифт c кириллицей 16 стилей.
+Разработчик: Pepper TypeФормат: TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A1C0DDBA84C8CB8EDCE6A7E6AC30B7FF3DB53AC6
+magnet:?xt=urn:btih:DA2940BC9EE9E9C119E8C56E8D905FCDA0D4DC23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +136,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791377   (67821) от 13.04.2025
+###  Публикация: 1785250   (69365) от 15.03.2025
 
-Kustan Adam - Pretty Black Suit (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Дарья Воронова | Слышу тебя насквозь (2024) [MP3, Дарья Воронова]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67821.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69365.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Little Blue Man (2:48)
-02. I'm Above (4:32)
-03. We Were Born (3:26)
-04. Young Boy (3:02)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:49
+Как быстро окружающие составят о вас мнение? С первого взгляда. Как быстро они поймут, какой вы человек? С первого звука. Книга Дарьи Вороновой «Слышу тебя насквозь» предлагает новую неожиданную точку зрения на привычную часть личности – нашу речь. Голос хранит информацию о вас и невольно раскрывает душевные травмы. Помогает завоевать внимание слушателей – или разрушает (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 04:28:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26481B73095355FD7FEDB812A67DF3F8534A3513
+magnet:?xt=urn:btih:AE4AF735EAEA225287E33D947F905F006AFFDD3D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,25 +162,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791392   (67820) от 13.04.2025
+###  Публикация: 1785269   (69364) от 15.03.2025
 
-MotoGP. Этап 04 из 22. Гран-при Катара. Спринт (12.04.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+TrackChecker Mobile v2.28.1 Mod by Alex.Strannik [Ru/Multi]
 
->>Спорт и активный отдых
->>Авто, Мото
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67820.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 апреля 2025, суббота. 20:00 МСК. Этап 4, Доха. Гран-при Катара. Спринт (11 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:50:13
+Приложение для отслеживания перемещений посылок и подобных почтовых отправлений. Поддержка сканирования штрихкода. Проверка статусов. Сортировка.Тип издания: PremiumРелиз состоялся: 14.03.2025Разработчик: MetalSoftПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17E35957FA05C4C0286D6D53FE036D538D3E4F79
+magnet:?xt=urn:btih:448DF21798362D4B17EBF622E10D96565B8F446B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,83 +188,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791365   (67819) от 13.04.2025
+###  Публикация: 1784866   (69363) от 15.03.2025
 
-Первая передача на НТВ. Автомобильная передача (13.04.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Опасное вождение безопасно лишь для автохулигана, даже штраф пока не предусмотрен. За что же наказать могут жертву дорожной травли?
- ПТС на бумажном бланке: где получить документ в эпоху «цифры»?
- Зимние шины отправляются на летний отдых: безопасные условия хранения шин.
- Вторичный велорынок: выбираем подержанный МТВ, какова минимальная цена? И в чем покупателя могут (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DED9D853E54176098679E65C48859BBBEEA0B62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790475   (67818) от 13.04.2025
-
-Сергей Сухачёв - Колючая судьба (2025) [MP3|320 Kbps] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Колючая судьба [00:03:45]
-02 - На душе тишина [00:03:48]
-03 - Весна на плюс, года на минус [00:03:50]
-04 - Каюсь за грехи [00:03:38](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:39:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6401094F99AD86B3C72BC8E6D735AD94D6821079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790856   (67817) от 13.04.2025
-
-Тайная жизнь орангутанов / Secret Lives of Orangutans (2024) WEBRip [DVO] [AD]
+Операция Рааван / Operation Raavan (2024) WEBRip [H.265/1080p] [RU Sub] [AD]
 
 >>Остальное
 >>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69363.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Дэвид Аттенборо рассказывает о жизни семьи орангутанов из нескольких поколений: об их приключениях, достижениях и трудностях.Производство: Великобритания / Silverback FilmsЖанр: документальныйРежиссер: Хув КордиАктеры: Дэвид АттенбороПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:19:16Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+Серийный убийца выбирает невест в качестве жертв, а сын магната внедряется в новостной канал, что приводит к напряжённой игре в кошки-мышки.Производство: Индия, Sudhas MediaЖанр: БоевикРежиссер: Венката СатьяАктеры: Ракшит Атлури, Чаранрадж, Дивья Декате, Мурти ДевагуптхапуПеревод: ОтсутствуетЯзык озвучки: ХиндиСубтитры: Русские (hardsub)Продолжительность: 02:18:35Реклама: присутствуют вставки рекламных видео баннеров
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A118284D4A507EFCC6DA7576A6D81710D4175318
+magnet:?xt=urn:btih:CBCE10AF47ED798C50DFAF9F9B366A54D8DAB3A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,28 +214,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791129   (67816) от 13.04.2025
+###  Публикация: 1785329   (69362) от 15.03.2025
 
-Mindslip - Patient IV (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Alt.Metal, Post-Grunge>
+Чудеса случаются / Горчичное семя / The Girl Who Believes in Miracles (2021) BDRip [H.264/720p]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69362.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cobain in my brain [00:04:21]
-02. Only Human [00:04:17]
-03. Submarine(So Low) [00:04:50]
-04. Microscope [00:03:53](   Читать дальше...   )Жанр: Alternative Rock, Alt.Metal, Post-GrungeПродолжительность: 00:44:12
+12-летняя Сара Хопкинс самый обычный ребёнок. Но однажды во время поездки к своему дедушке она заявляет, что видела Иисуса на берегу реки. После этого видения Сара способна исцелять животных и людей. Вскоре все местные жители и даже пресса хотят узнать как можно больше об этой маленькой девочке, которая может творить чудеса...Производство: США / 120dB Films, Gerson Productions, The Mustard Seed ProductionЖанр: драма, семейныйРежиссер: Рич КорреллАктеры: Мира Сорвино, Остин Джонсон, Кевин Сорбо, Питер Койот, Бёрджесс Дженкинс, Томми Роуз, Стефани Куд, Пол-Микель Уильямс, Люк Хармон, Коллин ПлэйсПеревод: дублированный (Moygolos)Язык озвучки: русский, английскийСубтитры: русские (на места без перевода), английскиеПродолжительность: 01:39:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E943FB680B66180B79B491AE5DED497278BA8CA7
+magnet:?xt=urn:btih:46D504E2D5B70BB1971B0B7FA425BD2745A5EB20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,28 +240,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790477   (67815) от 13.04.2025
+###  Публикация: 1785370   (69361) от 15.03.2025
 
-Александр Терещенко - Сашкины истории (2025) [MP3|320 Kbps] <Chanson>
+Daff Moon Phase (Фазы Луны) v3.45 Mod by shv7net [Ru/En]
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69361.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Сашкина история. Часть 1 [00:03:36]
-02 - А мне из музыки сегодня [00:03:34]
-03 - Частушки. Часть 2 [00:04:01]
-04 - Большой вопрос стоит [00:02:14](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:41:30
+Приложение показывает текущую фазу Луны, фазы Луны на любой месяц, и другую информацию о Луне, Солнце и восьми планетах солнечной системы в реальном времени. Программа позволяет посмотреть положение светил на простейшей небесной сфере, которую можно поворачивать на произвольный угол!
+Изображение фазы Луны с высокой точностью соответствует реальному для данного момента (   Читать дальше...   )Тип издания: ModРелиз состоялся: 15.03.2025Разработчик: Evgeny FedorischenkoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2882CE748E65B9537C823484A6BBF814A91B09FC
+magnet:?xt=urn:btih:0E4DCC7122E049B6660C7C18F0BB9A7354CED6B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,27 +267,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791379   (67814) от 13.04.2025
+###  Публикация: 1785226   (69360) от 15.03.2025
 
-Чудо техники с Сергеем Малозёмовым (13.04.2025) WEBRip [H.264/720p]
+Шрифты - Pepper Type - MyFonts - Ruberoid [OTF]
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69360.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Какие домашние хлопоты действительно безопасно доверять искусственному интеллекту и какие есть подводные камни?
- Популярная добавка, которую употребляют многие посетители спортзалов, возможно сильно переоценена. Ученые из Австралии выяснили, насколько сильно креатин помогает наращивать мышцы.
- Материнский потенциал! Насколько достоверен популярный анализ АМГ? Можно (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:19
+Шрифт c кириллицей 19 стилей.
+Разработчик: Pepper TypeФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:31AC22DDEA00CAA53415F5CA029499065AB49E42
+magnet:?xt=urn:btih:6AB44E16676E2B18711C484EA18A1B4C9570F024
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,25 +294,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791294   (67813) от 13.04.2025
+###  Публикация: 1785289   (69359) от 15.03.2025
 
-Мания контроля / Контрол-фрик / Control Freak (2025) WEBRip [DVO] [AD]
+Picture Bird - Bird Identifier v2.9.32 Mod by youarefinished [Ru/Multi]
 
->>нет
->>нет
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69359.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Валери – преуспевающая американка азиатского происхождения. У неё есть слава, молодой спутник жизни, с которым они собираются завести первенца, и успешный бизнес. Валери выступает с мотивирующими программами, в которых учит аудиторию как поверить в себя, взять жизнь под полный контроль и преодолеть дурные привычки. Однако, у самой Валери возникает привычка, от которой (   Читать дальше...   )Производство: США / WorthenBrooksЖанр: ужасыРежиссер: Шал НгоАктеры: Келли Мари Чан, Майлз Роббинс, Кьеу Тинь, Тоан Ле, Калли Джонсон, Сабрина Дави, Стэнли Уайт мл., Фу Куок, Скотт Такеда, Саманта Коппола и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:44:41Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+Picture Bird позволяет легко распознать птиц вокруг вас по фото. Загрузите или сделайте фото птицы, и распознайте ее в считанные секунды. Узнайте названия разных птиц, информацию о каждом виде и многое другое!Тип издания: PremiumРелиз состоялся: 13.03.2025Разработчик: Next Vision LimitedПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:8C636EBC5C9B29C7DA4027AC6F1C31C313FC0143
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -391,26 +320,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791389   (67812) от 13.04.2025
+###  Публикация: 1785230   (69358) от 15.03.2025
 
-НХЛ 2024-2025. Вашингтон Кэпиталз - Коламбус Блю Джекетс (12.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Шрифты - Pepper Type - MyFonts - Mazzard Soft [OTF]
 
->>Спорт и активный отдых
->>Хоккей
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 апреля 2025, суббота. 19:30 МСК. Стадион: Нейшнвайд-Арена (Коламбус, США), 18 645 зрителей (98% при вместимости 19 115)
-Главный судья: Брайан Почмара (Детройт, США); Главный судья: Джон Макисаак (Труро, Канада); Линейный: Джесси Маркис (Буктуч, Канада); Линейный: Жонатан Дешам (Труа-Ривьер, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:53
+Шрифт c кириллицей 54 стиля.
+Разработчик: Pepper TypeФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44FF1505DD1D2937E8EB6FF7B5C3A8F4F4D3371E
+magnet:?xt=urn:btih:8E6F9FCD30803CED0DEC34804CAD93EEED09D990
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,26 +347,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791569   (67811) от 14.04.2025
+###  Публикация: 1785409   (69357) от 15.03.2025
 
-НХЛ 2024-2025. Бостон Брюинз - Питтсбург Пингвинз (13.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+Роберт Шекли | Безымянная гора (2020) [MP3, Puffin Сafe]
 
->>Спорт и активный отдых
->>Хоккей
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 апреля 2025, воскресенье. 22:30 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 976 зрителей (86% при вместимости 18 673)
-Главный судья: Брэндон Бландина (Сентенниал, США); Главный судья: Митч Даннинг (Текумсе, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:33:08
+Несколько тысяч рабочих и сотни единиц тяжелой техники занимается терраформингом очередной безымянной планеты, предназначенной для осврения. На их пути гигантская гора, судьба которой — стать портом или заливом согласно проекта. Но уже который день странные совпадения не позволяют приступить к сносу горы. Может быть в этом виноваты погодные условия, а может быть (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:36:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:001DB2216F5DF93C7304A2FC4384012B5EC49A7C
+magnet:?xt=urn:btih:B850CCA5944ECF4A4ABB4BBC270B2804C859F406
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,26 +373,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791571   (67810) от 14.04.2025
+###  Публикация: 1785149   (69356) от 15.03.2025
 
-НХЛ 2024-2025. Коламбус Блю Джекетс - Вашингтон Кэпиталз (13.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+VA - The World Series Of Trance, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
 
->>Спорт и активный отдых
->>Хоккей
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-14 апреля 2025, понедельник. 01:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
-Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:55:13
+01. Jaron Inc. vs. Wavetraxx - Summerbreeze (Jaron Inc. Mix) [3:43]
+02. Marc Dawn - Expander (Flutlicht Remix) [6:52]
+03. Green Court feat. De/Vision - Shining (Tiësto Mix) [9:23]
+04. Human Force - Sun Rising High (Reysan Khan Vocal Trance Mix) [5:49](   Читать дальше...   )Жанр: TranceПродолжительность: 01:57:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:85504A6558C0461AABE86CEDFBF5449C4C4F2EC6
+magnet:?xt=urn:btih:89FD22999CCDAB528CF8240A6F170A594A8856B4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -472,28 +402,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791592   (67809) от 14.04.2025
+###  Публикация: 1785257   (69355) от 15.03.2025
 
-Sylosis - Dormant Heart (2015) Re-Recorded, 2025, Nuclear Blast Records [FLAC|Lossless|WEB-DL|tracks] <Melodic Death, Thrash Metal, Metalcore>
+Шрифты - Creative Market - Trend Polaroid - Font Duo - 290816968 [OTF, TTF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Where the Wolves Come to Die
-02 – Victims and Pawns
-03 – Dormant Heart
-04 – To Build a Tomb(   Читать дальше...   )Жанр: Melodic Death, Thrash Metal, MetalcoreПродолжительность: 01:10:25
+Trend Polaroid — это современный дуэтный шрифт, сочетающий в себе элегантность утонченного шрифта с засечками и смелый, резкий стиль классического шрифта. Вечный шрифт с засечками и мягкий, насыщенный символами шрифт.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C415732FC55E9CDB6A682E4F0A350151E984677
+magnet:?xt=urn:btih:A7B3AB18DDCE896BD1D04E047C931A50D74FE46C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -501,85 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791565   (67808) от 14.04.2025
+###  Публикация: 1785202   (69354) от 15.03.2025
 
-Дмитрий Мамин-Сибиряк | Алёнушкины сказки (2015) [MP3, Татьяна Андрианова]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Детская страничка.
-Дмитрий Наркисович Мамин-Сибиряк (1852–1912) – подлинно народный русский писатель. В своих произведениях он проникновенно и правдиво отразил дух русского народа, его вековую судьбу, национальные его особенности – мощь, размах, трудолюбие, любовь к жизни, жизнерадостность.
-Детям многих поколений Дмитрий Наркисович известен как замечательный (   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 01:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95C06097F0D1BFB863F0A533C4579501A1EB069D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791331   (67807) от 14.04.2025
-
-Polaris - Collection (2017-2023) 3CD [FLAC|Lossless|tracks + .cue] <Metalcore, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67807.jpg" />
-</div>
-
-
-###  Подробнее
-
-Polaris — австралийская металкор-группа из Сиднея.Список альбомов:
-2017 - The Mortal Coil
-2020 - Death Of Me
-2023 - FatalismЖанр: Metalcore, Post-HardcoreПродолжительность: 02:10:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97E2270E0F23B394119B7036C99A146335384E03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791482   (67806) от 14.04.2025
-
-Elvenking - Reader Of The Runes - Luna (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Folk Metal, Melodic Power Metal>
+Jon Anderson - Perpetual Change (Live) (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Prog Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Season Of The Owl [5:20]
-02 - Luna [3:08]
-03 - Gone Epoch [4:58]
-04 - Stormcarrier (feat. Mathias Lillmåns) [4:53](   Читать дальше...   )Жанр: Folk Metal, Melodic Power MetalПродолжительность: 00:54:47
+01. Yours Is No Disgrace (Live) [00:09:56]
+02. Perpetual Change (Live) [00:09:31]
+03. Close To The Edge (Live) [00:18:23]
+04. Heart Of The Sunrise (Live) [00:11:43](   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:04:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E6E8F4715B914EE8D52F1A523689F149549960A
+magnet:?xt=urn:btih:8AAAC46320638E53AF00E081617FB95B6CEE730E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,25 +459,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791664   (67805) от 14.04.2025
+###  Публикация: 1785399   (69353) от 15.03.2025
 
-Бунтари / Les Revoltes (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
+Шрифты - Creative Market - Romantic History - 288202552 [OTF, TTF]
 
->>Зарубежные сериалы
->>Сериалы с рекламой
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Элеонора и Джейкоб - молодые адвокат с принципами и журналист-расследователь - объединяют усилия для обличения недостатков государственных институтов. Борясь с бюрократическим абсурдом, Элеонора и Джейкоб расследуют дела и помогают отчаявшимся людям обрести справедливость.Производство: Канада / Aetios ProductionЖанр: драмаРежиссер: Луи ШокеттАктеры: Сара-Джинн Лабросс, Пьер-Люк Фанк, Родни Александр, Джозеф Антаки, Nelson Coronado, Милен Маккэй, Луи Филипп Дандено, Мари-Ив Борежар, Тетчена Белланж, Randy Simons и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+Romantic History — это вневременной шрифт, черпающий вдохновение в классическом римском стиле, зародившемся в эпоху Древнего Рима между I и IV веками нашей эры. Этот созданный вручную шрифт демонстрирует красоту традиционной типографики с ее естественными формами засечек и изящными изгибами, напоминающими каллиграфию плоским пером.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F77DE89A8BFB3114EAF6E5910FF4E352A35976B3
+magnet:?xt=urn:btih:877BF38BFD664526123889D48F6C84487F385082
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -613,25 +487,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791567   (67804) от 14.04.2025
+###  Публикация: 1785433   (69352) от 15.03.2025
 
-MotoGP. Этап 04 из 22. Гран-при Катара. Гонка (13.04.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
+Opeth - Pale Communion (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock>
 
->>Спорт и активный отдых
->>Авто, Мото
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69352.jpg" />
 </div>
 
 
 ###  Подробнее
 
-13 апреля 2025, воскресенье. 20:00 МСК. Этап 4, Доха. Гран-при Катара. Гонка (22 круга)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:26:15
+01. Eternal Rains Will Come
+02. Cusp Of Eternity
+03. Moon Above, Sun Below
+04. Elysian Woes(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:10:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6784693C1F849E40CE8F66CFB224872492B34EE9
+magnet:?xt=urn:btih:73294D495F94F4F9FF190B6CFDBA342543D35C9C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,28 +516,85 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791523   (67803) от 14.04.2025
+###  Публикация: 1785363   (69351) от 15.03.2025
 
-Trueno Negro - Neogenesis (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+Шрифты - Creative Market - Podrich - Timeless Logo Font - 290897290 [OTF, TTF, WOFF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Podrich — элегантный вневременной шрифт с засечками для логотипа, вызывающий утонченность, классику и чувство изысканной роскоши. Он отличается значительным контрастом между толстыми и тонкими штрихами, что повышает читаемость и придает роскошный вид.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B68F24E4A67F7C3EC10C054364EF6D74B1711CFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785216   (69350) от 15.03.2025
+
+Sub Zero Project - Tomorrowland Friendship Mix (2025-03-13) [MP3|320 Kbps] <Hard Dance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sub Zero Project ft. Bryant Powell - Refuse To Speak
+02. Brennan Heart & Wildstylez - Lose My Mind (Sub Zero Project Remix)
+03. Sub Zero Project & Rebelion - Save Me
+04. Max Enforcer - Lost In Paradise(   Читать дальше...   )Жанр: Hard DanceПродолжительность: 00:59:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B592E1D0EAE6844597201E051F2DCF2E1A0E462
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785294   (69349) от 15.03.2025
+
+Death Angel - The Enigma Years (1987 - 1990) (2020) Box Set, Compilation, Reissue, Remastered [FLAC|Lossless|image + .cue] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. La Furia del Trueno (06:40)
- 02. Inmortalidad (04:19)
- 03. Alma Ardiente (04:46)
- 04. Ciega Enfermedad (05:01)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:51:03
+Disc 1 - The Ultra-Violence:
+01. Thrashers
+02. Evil Priest
+03. Voracious Souls(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 04:10:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98F4E05B3072D2CF1E20F67BEA671FCF19E92321
+magnet:?xt=urn:btih:B86FEE6F2B16650715A1ABA6B9ED51CBF78D5AAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,28 +602,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791467   (67802) от 14.04.2025
+###  Публикация: 1785274   (69348) от 15.03.2025
 
-Battle Beast - Circus of Doom (Live in Helsinki 2023) (2025) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+Шрифты - Creative Market - Klase - Cyberpunk Font - 286313411 [OTF, TTF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Intro (Live In Helsinki 2023) [2:09]
-02 - Circus of Doom (Live In Helsinki 2023) [4:42]
-03 - Straight to the Heart (Live In Helsinki 2023) [4:17]
-04 - Familiar Hell (Live In Helsinki 2023) [4:30](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:13:58
+Шрифт Klase Cyberpunk содержит более 250 глифов. Альтернативные символы были разделены на несколько функций Open Type, таких как Swash, Stylistic Sets, Stylistic Alternates и Ligature.
+
+Кириллица не поддерживается.Формат: OTF, TTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1236B5A84CE414CECC53A30120E8E11702559742
+magnet:?xt=urn:btih:3232F88A34A77EC1CD8F24E50007ED03BE35BF5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,28 +630,80 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791537   (67801) от 14.04.2025
+###  Публикация: 1785209   (69347) от 15.03.2025
 
-Michel Legrand - Michel Legrand By Michel Legrand (2002) Decca [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+Шрифты - Christoph Ulherr - MyFonts - Flacon [OTF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Will Wait For You [5:42]
-02. The Windmills Of Your Mind [5:40]
-03. The Summer Knows [4:51]
-04. How Do You Keep The Music Playing_ [3:55](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:10:02
+Шрифт без кириллицы.
+Разработчик: Christoph UlherrФормат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA071091D7EC51EE59387AA4CF4E3309365E16AF
+magnet:?xt=urn:btih:B96C514918535AF567F1229F01AA8823DE24D601
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785259   (69346) от 15.03.2025
+
+Шрифты - Ergibi - WAVE BLOCK [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69346.jpg" />
+</div>
+
+
+###  Подробнее
+
+WAVE BLOCK — это сырой и энергичный шрифт, созданный с помощью реалистичных мазков кисти, которые придают вашим проектам грубый, нарисованный вручную вид.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D851241CADE5BC0796EA488D368308797C611FAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785316   (69345) от 15.03.2025
+
+Чудеса случаются / Горчичное семя / The Girl Who Believes in Miracles (2021) BDRip [H.264]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69345.jpg" />
+</div>
+
+
+###  Подробнее
+
+12-летняя Сара Хопкинс самый обычный ребёнок. Но однажды во время поездки к своему дедушке она заявляет, что видела Иисуса на берегу реки. После этого видения Сара способна исцелять животных и людей. Вскоре все местные жители и даже пресса хотят узнать как можно больше об этой маленькой девочке, которая может творить чудеса...Производство: США / 120dB Films, Gerson Productions, The Mustard Seed ProductionЖанр: драма, семейныйРежиссер: Рич КорреллАктеры: Мира Сорвино, Остин Джонсон, Кевин Сорбо, Питер Койот, Бёрджесс Дженкинс, Томми Роуз, Стефани Куд, Пол-Микель Уильямс, Люк Хармон, Коллин ПлэйсПеревод: дублированный (Moygolos)Язык озвучки: русский, английскийСубтитры: русские (на места без перевода), английскиеПродолжительность: 01:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1DCA4FF617CAEC8F48243FA569631FF862AFE67
 ```
 
 https://mybot314.ru/tekegram_catalog/

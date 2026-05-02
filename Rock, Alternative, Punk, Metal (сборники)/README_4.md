@@ -1,3 +1,61 @@
+###  Публикация: 1482050   (1007763) от 07.07.2021
+
+VA - The Music Pie: Pop-Rock Indie (2CD) (2021) [MP3|320 Kbps] <Indie, Pop-Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007763.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+001. Bartees Strange - Far
+002. Pj Harvey - This Mess We're In(   Читать дальше...   )Жанр: Indie, Pop-Rock, AlternativeПродолжительность: 12:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:790FE77A964467DE4829940F08BCC5A227EA27F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482164   (1007722) от 07.07.2021
+
+VA - 100 Greatest Alternative 80s (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Smiths - How Soon Is Now? (2008 Remaster)
+02. Joy Division - Love Will Tear Us Apart (2010 Remaster)
+03. Pixies - Monkey Gone to Heaven
+04. New Order - Blue Monday(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 07:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:942E4B6A5E937898A7D7E14B6B1CA4ECD651B824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482080   (1007715) от 07.07.2021
 
 VA - Rock covers (2021) [MP3|320 Kbps] <Rock>
@@ -687,64 +745,6 @@ VA - Free Spirit: Advanced Rock Collection (2020) [MP3|320 Kbps] <Rock, Alternat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D5B9247A76AA7906F90FADE1768EE338AC07AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352250   (1001006) от 14.01.2020
-
-Steppenwolf - Greatest Hits (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Into The Wind
-02. A Girl I Knew
-03. Born To Be Wild
-04. Hootchie Cootchie Man(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D208CBAE9A3D5E54C74793F66D869D49251E7D2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352962   (993117) от 16.01.2020
-
-VA - Classic Rock timeless! 3 (2020) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Blues Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Judas Priest - Ram It Down
-02. Rammstein - You Hate (''Du Hast'' English Version)
-03. Slade - Thanks For The Memory
-04. Ringo Starr - It's Not Love That You Want(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 07:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A74B1E391A287B45668B70962EB2E74C9346CF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

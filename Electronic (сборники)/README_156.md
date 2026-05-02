@@ -1,3 +1,61 @@
+###  Публикация: 1253849   (379519) от 11.10.2018
+
+VA - Dubstep Generation (2018) [MP3|320 Kbps] <Dubstep, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379519.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. King Fatu - Furious Flash
+002. Dexter Dub - Sternengeschwader (Drumstep Version)
+003. Hive - Questionable Directions
+004. Brkchk - Pressure(   Читать дальше...   )Жанр: Dubstep, TrapПродолжительность: 08:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97BB372073D49AAC2FB2CCEE28C79EFC8EECDCDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253853   (379509) от 11.10.2018
+
+VA - Respect Drum & Bass (2018) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379509.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Derrick & Tonika - Vatra Spirit
+002. Linear - Anthem At Dusk
+003. Wax Motif - Legit
+004. Foureye - Air Raid(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 10:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCEE1FE1B26775BF6FEEE6A50171E4E24304798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 948883   (379470) от 22.10.2015
 
 VA - Vocal Deep House Vol.2 (Compiled by Zebyte) Russian Version (2015) [MP3|256-320 кб/с]<House, Deep House>
@@ -711,70 +769,6 @@ VA - Ethernal Optimism: Uplifting Trance Mix (2016) [MP3|320 Kbps] <Uplifting, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:824CFA8F9E1F3BC7D4B86CECAF8BAAC195BEEC2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574258   (376228) от 12.11.2012
-
-VA - Dub-Pack - Week 11 (2012) [MP3|320 кб/с]<Dub-Step>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376228.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 16bit – Ford Fiesta
-2. Addictive – Domino Effect (Shy Pony Remix)
-3. Afrojack feat. Eva Simons – Take Over Control (Adam F Remix)
-4. Allie Moss – Corner (Titch Remix)
-5. Antiserum – Skullfucked
-6. Avril Lavigne – When You're Gone (Alex Mind Remix)
-7. Bassnectar – Boombox (Datsik Remix)
-8. Bassnectar – Here We Go
-9. Clubroot – Cherubs Cry
-10. Crim – Distorbia(   Читать дальше...   )Жанр: Dub-StepПродолжительность: 01:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C50B18A95AA9F4B9429D302A311AC0A71618C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175715   (376129) от 19.10.2017
-
-VA - Beatport Top 100 Progressive House August (2017) [MP3|192-320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cristoph - Feel feat Jem Cooke (Original Mix)
-02. Victor Ruiz - Dying Of The Light (Victor's Interstellar Remake)
-03. Supacooks - Aftermath (Original Mix)
-04. Rolo Green - Napier(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 12:55:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:903E98F434D080D65E0B6AE73B86CF5F7083A87B
 ```
 
 https://mybot314.ru/tekegram_catalog/

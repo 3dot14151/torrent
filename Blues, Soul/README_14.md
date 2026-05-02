@@ -1,3 +1,32 @@
+###  Публикация: 904717   (653542) от 04.06.2015
+
+The Lucky Losers - A Winning Hand (2015) [MP3|320 кб/с]<Blues Soul, Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Change In The Weather (4:19)
+02. I Take What I Want (4:20)
+03. What Have I Done (Feat. Cathy Lemons & Phil Berkowitz) (3:51)
+04. A Winning Hand (Feat. Cathy Lemons, Kid Andersen, Phil Berkowitz & Steve Freund) (6:57)(   Читать дальше...   )Жанр: Blues Soul, Modern Electric BluesПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF4A2C93ADC406AC78890BA20C655A2F5BE84E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904843   (653465) от 04.06.2015
 
 Barbara Blue - Memphis Blue: Sweet, Strong, & Tight (2015) [MP3|320 кб/с]<Modern Electric Blues>
@@ -717,35 +746,6 @@ Left Lane Cruiser - Dirty Spliff Blues (2015) [MP3|320 кб/с]<Blues Rock, Punk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D71883A33F1868FB0F3FB24A3B44F12AA03CD25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032896   (642112) от 09.07.2016
-
-Royal Southern Brotherhood - Don't Look Back (2015) [MP3|320 Kbps] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642112.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wanna Be Free (5:25)
-02. Reach My Goal (5:00)
-03. Don't Look Back (4:59)
-04. Hit Me Once (4:37)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600AF6B867E52D7CFA724F6563947418F224FE72
 ```
 
 https://mybot314.ru/tekegram_catalog/

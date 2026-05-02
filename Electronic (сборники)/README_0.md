@@ -1,3 +1,61 @@
+###  Публикация: 1849999   (1054052) от 25.01.2026
+
+Jupiter Panic - Collection [MP3|320 Kbps] <New Age, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunrise (3:38)
+02. Time Surfer (5:59)
+03. Departure (4:07)
+04. Synthetique (4:53)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 04:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B678CCD23B786461B3CA1715DC21A33B18B641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849556   (1053747) от 23.01.2026
+
+CosmoDance - Collection (2026) [MP3|320 Kbps] <Spacesynth, Synthdance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chaotic Move (3:55)
+02. Rainbow (5:51)
+03. Galactic Racer (5:27)
+04. Rendezvous (6:23)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 03:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FDBB27FDF0E1D3B4CDD0A6BF459275B4D0598BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1845958   (1051073) от 04.01.2026
 
 VA - Лучшие песни Радио Рекорд за 2025 год (2026) [MP3|320 Kbps] <Pop, Dance>
@@ -687,64 +745,6 @@ VA - Party Mix 2022 (2023) [MP3|320 Kbps] <Groove, House, Club, Nu Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA979A2DA6DB1235F6023674223732D19C2B42C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604787   (1045168) от 15.01.2023
-
-VA - Chill Out Stories Vol. 4 (2023) [MP3|320 Kbps] <Downtempo, Future Jazz, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamhunter - Horizon in Blue (Original Mix)
-02. Roberto Bronco - Mad (Original Mix)
-03. Circles Of Sound - Floating (Original Mix)
-04. Marc Hartman - Voices Inside (Final Mix)(   Читать дальше...   )Жанр: Downtempo, Future Jazz, Chillout, LoungeПродолжительность: 02:29:24 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B2B7FD7AA88F093A7F0BCABB55DD20AA0E8564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607038   (1044206) от 24.01.2023
-
-VA - Beatport Tech House Top 100 January (2023) [MP3|320 Kbps] <Tech House, Techno, Soulful, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044206.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Abbud, Freenzy Music - Taka (Original Mix) 130
-002. Acraze - Do It To It (Extended Mix) 125
-003. Andruss, Fatboi - Agachalo (Original Mix) 130
-004. Anthony Attalla, Max Styler, Brux - Talk To Me (With Brux) (Extended Mix) 126(   Читать дальше...   )Жанр: Tech House, Techno, Soulful, Deep HouseПродолжительность: 09:18:42 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:290DDB4C1BE7AA371B3A3E8B64075283B98451D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

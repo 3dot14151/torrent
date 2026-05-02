@@ -1,3 +1,32 @@
+###  Публикация: 1127392   (731842) от 21.04.2017
+
+Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Jazz>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Burning Spider (feat. Lightnin Hopkins)
+02. Step Two (feat. Lilja Bloom)
+03. Soul Fever Blues (feat. Muddy Waters)
+04. Everything of My Haert(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4F8021EB31E8550E0AD8C782BC852C928A294F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1284293   (730057) от 20.02.2019
 
 Feral - Court Of Light (2019) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -712,35 +741,6 @@ VA - Beach Grooves Maretimo Vol.2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Beach Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:948285166DF911172EFCE9B590C2A9B997797E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400364   (719144) от 05.08.2020
-
-VA - Beach Grooves Maretimo Vol.1 (2018) [FLAC|Lossless|WEB-DL|tracks] <Beach House, Lounge>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phil Kinley - Partylife (Glitterpool Cut) (6:45)
-02. Housework - Culture Vibes (Drumflow Cut) (6:12)
-03. Clublife - Different Things (Poolside Mix) (6:17)
-04. Poolwave - Seaside (Laid Back Waves Cut) (5:36)(   Читать дальше...   )Жанр: Beach House, LoungeПродолжительность: 05:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC60469698DFE0A1DE05CE2A359EA5BA41DE68B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

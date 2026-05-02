@@ -1,105 +1,24 @@
-###  Публикация: 1695852   (120103) от 30.01.2024
+###  Публикация: 1693616   (121686) от 21.01.2024
 
-Ungoogled Chromium 121.0.6167.85-1.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120103.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ungoogled Chromium - версия веб-браузера Chromium без интеграции сервисов Google, ориентированная на приватность. Включает улучшения для конфиденциальности, прозрачности и контроля онлайн-активности.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:527741902F9622BE877AB1495503638B0B2B8675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695820   (120102) от 30.01.2024
-
-Photo Lab PRO v3.12.89 Mod by Balatan [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120102.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 28.01.2024Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B2B8AC0115B0A8DBFEE118105051796A4928234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695605   (120101) от 30.01.2024
-
-Inertia - The Human Element (2023) [FLAC|Lossless|WEB-DL|tracks] <Technical Death Metal, Progressive Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Pink Mist (02:59)
-02 - Trickster (03:58)
-03 - Riverbed (05:54)
-04 - Westboro BBQ (03:15)(   Читать дальше...   )Жанр: Technical Death Metal, Progressive Death MetalПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CCCFD53EB2C7B374D949EC307166C0599644EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695751   (120100) от 30.01.2024
-
-Карел Чапек | Сказка о почтальоне (2021) [MP3, Зиновий Гердт, Георгий Вицин и др.]
+Альберт Иванов | Приключения Хомы и Суслика (Союзмультфильм) (2002) [MP3, Александр Пожаров и др.]
 
 >>Аудио для детей и родителей
 >>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Серия/Цикл: Мелодия – детям, Из архива «Гостелерадиофонда».
-Детский спектакль «Сказка о почтальоне» по сказке «Почтарская сказка» Карела Чапека о почтовых гномиках…
-Если могут быть сказки о королях, принцессах, разбойниках, пастухах, рыцарях, волшебниках, почему бы ни рассказать о почтальонах? Ведь почта – это почти заколдованное место, таинственное и (   Читать дальше...   )Жанр: Зарубежная литература для детей, классика, сказкаИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:29:33
+Серия/Цикл: Союзмультфильм.
+Истории про Хому и Суслика написал известный детский писатель Альберт Иванов. Смешные приключения двух друзей много лет радуют детей во всем мире. Книги Альберта Иванова переведены на 10 языков. Мультфильмы про Хому и Суслика входят в золотой фонд Союзмультфильма.
+Для тех, кто еще не читал сказки Альберта Иванова и не смотрел мультфильмы (   Читать дальше...   )Жанр: Детская литература, приключения, сказкаИздательство: ТВИК-ЛИРЕК, ФГУП «Киностудия «Союзмультфильм»Продолжительность: 00:35:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89A4743847B39ED25935B5CF453D8963374AD7EC
+magnet:?xt=urn:btih:9B6A00C90058B4843196FA97DB34ABCFCA7E6096
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -107,54 +26,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695816   (120099) от 30.01.2024
+###  Публикация: 1693690   (121685) от 21.01.2024
 
-Infuse PRO 7.6.7 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120099.jpg" />
-</div>
-
-
-###  Подробнее
-
-Infuse - прекрасный способ смотреть практически любой формат видео на вашем iPhone, iPad, Apple TV и Mac. Не нужно конвертировать файлы! Infuse оптимизирован для macOS 11 с мощными параметрами потоковой передачи, синхронизацией Trakt и непревзойденной поддержкой AirPlay и субтитров. Великолепный интерфейс, точный контроль и плавное воспроизведение.Тип издания: macOS SoftwareРелиз состоялся: 30.01.2024Разработчик: © 2022 Firecore, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BB19789CC053ED32A8668554781298B53D232F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695709   (120097) от 30.01.2024
-
-Gianluca De Palo - My Kind Of Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+Caitlyn Smith - I Think of You (The Heartache Collection) (2024) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks] <Pop, Folk, World, Country>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Five Long Years (6:56)
-02. I'm Tore Down (3:57)
-03. Bad Boy (4:45)
-04. Got My Mojo Working (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:18
+01. I Think Of You [00:03:17]
+02. High [00:03:47]
+03. This Town Is Killing Me [00:03:46]
+04. Do You Think About Me [00:03:32](   Читать дальше...   )Жанр: Pop, Folk, World, CountryПродолжительность: 00:54:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D22D00CC2DD7CB8D58F8F1AB2BD6B1023AF65F59
+magnet:?xt=urn:btih:96906B7FCCFFBA2999FA7257EB08183AA67AA9BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -162,25 +55,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695664   (120096) от 30.01.2024
+###  Публикация: 1693704   (121684) от 21.01.2024
 
-AltTab for Mac 6.65.0 U2B [Multi/Ru]
+Bolts of Melody - Film Noir (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение AltTab дает возможность пользоваться функцией «alt-tab» от Windows на Mac.Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2024 lwouisПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+01. 555 [00:03:32]
+02. Hi-Rise Decade [00:03:16]
+03. The Village Sleeps [00:00:38]
+04. Harpsiglass [00:01:25](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:31:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C659B3A494897B1264717F5F3F4B53AE4B8B5B27
+magnet:?xt=urn:btih:C474814104E550F8EEB98D0F819B130FD1ADC420
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -188,28 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695647   (120095) от 30.01.2024
+###  Публикация: 1693691   (121683) от 21.01.2024
 
-C# - Me & 23 (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+South Of Salem - Death Of The Party (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kesuari (4:33)
-02. Once More Around the Moon (4:07)
-03. Take Wing, My Soul (3:39)
-04. Flightingale (4:00)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:44:25
+01. Vultures [00:04:20]
+02. Static [00:04:11]
+03. Jet Black Eyes [00:04:33]
+04. Stitch The Wound [00:04:40](   Читать дальше...   )Жанр: Hard Rock, Alternative MetalПродолжительность: 00:42:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA123ED8CD5D2C18E3E36793E00376E56112245B
+magnet:?xt=urn:btih:0927FC96625C96DA4D9ECE12C90E051990154868
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -217,27 +113,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695722   (120094) от 30.01.2024
+###  Публикация: 1693503   (121682) от 21.01.2024
 
-Карел Чапек | Рассказы из карманов (2008) [MP3, Всеволод Кузнецов]
+Сибирская Благозвонница | Святой Александр (2011) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121682.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Союз классика.
-В аудиокнигу «Рассказы из карманов» вошли аудиоверсии избранных произведений из сборников «Рассказы из одного кармана» и «Рассказы из другого кармана» самого известного чешского писателя, автора слова «робот», философа и защитника демократии Карела Чапека. «Рассказы из одного кармана» впервые были опубликованы в Праге в 1929 году.
-Карел (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказИздательство: Издательский дом «Союз»Продолжительность: 03:34:57
+Имя «Александр» происходит от древнегреческих слов «алекс» – защищать и «андрос» – муж, мужчина, то есть «защитник людей». Святые Александры ранних веков христианства – это в основном мученики, которые пострадали за исповедание Христа. О многих из них, кроме имени, история сохранила весьма скупые сведения. Первым русским святым с именем Александр считается князь (   Читать дальше...   )Жанр: ПравославиеИздательство: Сибирская БлагозвонницаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F31A52BB9FF2EE8D062B9421A93B0B3204D352A
+magnet:?xt=urn:btih:39A3A4106A6D951B15606C02CA3D5E97F345366F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,28 +139,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695708   (120093) от 30.01.2024
+###  Публикация: 1693713   (121681) от 21.01.2024
 
-Герман Грач - Яд (2012) [FLAC|Lossless|tracks + .cue] <Шансон>
+Circus Maximus - Studio Albums (5 releases) (2005-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121681.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Не проси
-02. Фараон
-03. Эта женщина
-04. Стена(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:41:54
+Circus Maximus — норвежская прогрессив-метал-группа. Основана в городе Осло в 2000 году.2005 - The 1st Chapter
+2007 - Isolate
+2012 - Nine
+2016 - HavocЖанр: Progressive MetalПродолжительность: 04:38:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A30127F3D837324DE0A279EA7804E531CD465EE3
+magnet:?xt=urn:btih:AEB2CB25F947163C6755F7403400E03EC34F3E9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,25 +168,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695872   (120092) от 30.01.2024
+###  Публикация: 1693697   (121680) от 21.01.2024
 
-Amadeus Pro 2.8.13 [Multi]
+Horskh - Body (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal>
 
->>Программы для macOS
->>Аудио и видео редакторы для macOS
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121680.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Amadeus Pro - многотрековый музыкальный редактор, который будет интересен как любителям, так и профессионалам. Приложение поддерживает работу с несколькими звуковыми дорожками, каждую из которых можно редактировать абсолютно независимо от других - изменять ее уровень громкости, накладывать различные фильтры, вставлять дополнительные фрагменты и т.д. Помимо этого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.01.2024Разработчик: © 2024 HairerSoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий, Французский и др.
+01. Tension [00:02:00]
+02. Do it [00:03:05]
+03. Interface [00:03:20]
+04. Body Building [00:03:40](   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:31:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7418BC1932232CD294FB46A569C104F75B9CEBD4
+magnet:?xt=urn:btih:2E1E8C0C7FFD7F8E6A1E1578A4CA6DD7FAD4A8A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,26 +197,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695729   (120091) от 30.01.2024
+###  Публикация: 1693630   (121679) от 21.01.2024
 
-Карел Чапек | Рассказы (2008) [MP3, Владимир Этуш, Ростислав Плятт и др.]
+Ион Попеску-Гопо | Мария Мирабела (Союзмультфильм) (2002) [MP3, Александр Пожаров и др.]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: «Открытая книга», шедевры радиотеатра.
-В аудиокнигу классика чешской литературы Карела Чапека (1890–1938) вошли избранные рассказы из сборников:Жанр: Зарубежная литература, классика, рассказИздательство: Радио России, МФГУП «Фирма Мелодия»Продолжительность: 01:08:48
+Серия/Цикл: Союзмультфильм.
+В конце восьмидесятых на киноэкранах страны появился этот «чудесный-расчудесный» фильм, в котором мультипликационные герои «играют» на ровне с живыми актерами. Лягушонок Кваки сказал неправду, и вода вокруг его лапок заледенела. Бабочка Амидэ не может научиться летать. А у светлячка Скипирича постоянно загораются его башмачки, когда он (   Читать дальше...   )Жанр: Детская литература, приключения, сказкаИздательство: ТВИК-ЛИРЕК, ФГУП «Киностудия «Союзмультфильм»Продолжительность: 01:05:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA8F985FCE06A8324B1B1F6956EB2F8AB48CFC50
+magnet:?xt=urn:btih:258F688C2FFDF51EBFA34DE68D8C841B023AA4FE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -327,25 +224,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695799   (120090) от 30.01.2024
+###  Публикация: 1693619   (121678) от 21.01.2024
 
-Native Instruments Kontakt 7 for Mac v.7.8.0 U2B [Multi]
+Николай Носов и др. | Бобик в гостях у Барбоса (Союзмультфильм) (2002) [MP3, Александр Пожаров и др.]
 
->>Архив торрентов
->>Архив 4Apple
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Kontakt - стандарт в мире семплеров. Native Instruments Kontakt 6 предоставляет набор высококачественных фильтров, начиная от классических аналоговых схем и моделей с переменным состоянием до современных форматных фильтров. Некоторые из 37 новых фильтров используют новую концепцию Adaptive Resonance, которая автоматически управляет характеристиками фильтра, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2024 Native Instruments GmbHПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и Японский
+Серия/Цикл: Союзмультфильм.
+Вы услышите сразу три сюжета на «собачью» тему. В сказке Николая Носова «Бобик в гостях у Барбоса» роли озвучили Юрий Никулин и Олег Табаков – более звездный дуэт трудно севе представить! Вторая сказка – самый настоящий детектив. Далматинский дог Том рассказывает о своих похождениях с самим Шерлоком Холмсом. Роль последнего исполняет, (   Читать дальше...   )Жанр: Детская литература, приключения, рассказ, сказкаИздательство: ТВИК-ЛИРЕК, ФГУП «Киностудия «Союзмультфильм»Продолжительность: 00:34:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:274E9DE13228337AABFA60098A7CBF1850DC6326
+magnet:?xt=urn:btih:4E28DD22BE6D4AB70F749B91078AC32686662064
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -353,25 +251,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695635   (120089) от 30.01.2024
+###  Публикация: 1693680   (121677) от 21.01.2024
 
-Шанхайская история / The Shanghai Story (1954) BDRip [H.264/720p] [VO]
+Победа или смерть! / Vittoria o morte! (1913) WEBRip
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121677.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После Второй мировой войны в Шанхае иностранцев с Запада держат под стражей в отеле «Вальдорф», коммунисты пытаются выявить среди них шпиона, но некоторые из заключенных пытаются перехитрить следователей и вооруженную охрану и сбежать.Производство: США / Republic Pictures (I)Жанр: фильм-нуар, боевик, триллер, драма, криминалРежиссер: Фрэнк ЛлойдАктеры: Рут Роман, Эдмонд О’Брайен, Ричард Джэкел, Бэрри Келли, Уит Бисселл, Бэзил Руисдейл, Марвин Миллер, Ивет Дугай, Пол Пицерни, Изабель РэндольфПеревод: Одноголосый любительский (Nastia)Язык озвучки: русский, английскийСубтитры: английские, русскиеПродолжительность: 01:30:11
+В Кинопоиске написано "драма". Но это не так. Это боевик, приключение, невероятный триллер! А главный герой, точнее героиня, кто бы вы думали? Несравненная Берта Нельсон! Одна завязка чего стоит - Бернар под вымышленным именем графа Де Мора — шпион, завоевавший любовь Бланше, дочери генерала Альберти. Генералу поручено хранить планы изготовления новой бомбы, (   Читать дальше...   )Производство: Италия, Itala FilmЖанр: драма, боевик, приключение, немое киноРежиссер: нет сведенийАктеры: Берта НельсонПеревод: Немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:40:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:232483BC59C55B615648E7C81E17A76A60AE4A0E
+magnet:?xt=urn:btih:8F3023F19AAA56991264CD0AD40D51984A824056
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -379,26 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695818   (120088) от 30.01.2024
+###  Публикация: 1693605   (121676) от 21.01.2024
 
-Sante DICOM Editor 10.0.4 [En]
+Bloodlost - Trashell (2011) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Sante DICOM Editor — это профессиональный редактор DICOM, средство просмотра 2D/3D, анонимайзер, конвертер, дикомайзер, клиент PACS, мини-сервер PACS, устройство для записи CD/DVD пациентов (со средством просмотра) и многое другое.
-Sante DICOM Editor — ведущее в отрасли приложение постобработки для редактирования, преобразования и обработки файлов DICOM, оно используется (   Читать дальше...   )Язык интерфейса: Английский
+01. Intro
+02. 57 Minutes to Die
+03. Bestial Butcher
+04. Chemical X(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:08:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C98B428723F6214CF59C42131895376A8330FDE2
+magnet:?xt=urn:btih:164151E6CCB2019ACEA26D15A23E4F25265D7DFC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,25 +306,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695668   (120087) от 30.01.2024
+###  Публикация: 1693518   (121675) от 21.01.2024
 
-Folder Hub for Mac 1.8.2 [En]
+Bloodlost - Hellcome (2008) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Программы для macOS
->>Утилиты для macOS
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Folder Hub — это инструмент повышения производительности для Mac, используемый для быстрого получения файлов в рабочем каталоге без открытия папок слой за слоем.Тип издания: macOS SoftwareРелиз состоялся: 21.01.2024Разработчик: © 2024 Lessimore TeamПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и Упрощенный китайский
+01. Hellcome
+02. Escape From Violence
+03. Stray
+04. Juge Red(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:52:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7E72B4B655F296431F6AEAF5F8D8B0EA64ED38D
+magnet:?xt=urn:btih:22AF86E1A1BAF41084302D5D60E0467CAABF9763
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,25 +335,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695839   (120086) от 30.01.2024
+###  Публикация: 1693705   (121674) от 21.01.2024
 
-AudFree Spotify Music Converter for Mac 2.11.0 [En]
+Abysmal Grief - Abysmal Grief (2007) [FLAC|Lossless|image + .cue] <Doom Metal>
 
->>Программы для macOS
->>Плееры, конвертеры, кодеки для macOS
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120086.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хорошо продуманный музыкальный конвертер Spotify для загрузки более 70 миллионов песен, плейлистов, альбомов, подкастов из Spotify в MP3, FLAC, WAV, AAC для прослушивания в автономном режиме на всех устройствах и плеерах.Тип издания: macOS SoftwareРелиз состоялся: 23.01.2024Разработчик: © 2024 AudFreeПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+01. The Necromass: Always They Answer (11:40)
+02. Dirges (01:38)
+03. Cultus Lugubris (09:40)
+04. Requies Aeterna (07:24)(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 01:14:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:456C63B2445BDE116C0685F828D7DE5AC734BBA0
+magnet:?xt=urn:btih:25B618E002179C1F6B018447DD2B25785804AA0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -458,25 +364,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695652   (120085) от 30.01.2024
+###  Публикация: 1693687   (121673) от 21.01.2024
 
-Юри Анфилада | Я подарю тебе новую жизнь (2023) [MP3, Григорий Андрианов и др.]
+Ahumado Granujo - Splatter-Tekk (2003) [FLAC|Lossless|image + .cue] <Grindcore>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120085.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Что делать, если твой мир рассыпается на осколки, а ты оказываешься пешкой в игре Вселенной, ходы которой заранее предначертаны?Как определить где реальность, а где иллюзия? Есть ли у тебя союзники, или все вокруг – лишь массовка?Восемнадцатилетняя студентка колледжа культуры и искусств – Эйприл Элванс отправляется в лапы неизведанного, дабы выполнить своё предназначение (   Читать дальше...   )Жанр: Любовно-фантастические романы, Попаданцы, Приключенческое фэнтезиИздательство: ЛитРес: чтецПродолжительность: 10:00:36
+01. Everyday Consumation (The Legend Continues...)
+02. Golden Intestinal Cyst
+03. To Mince and Fuck Up
+04. Dumplings, Cabbage, Techno(   Читать дальше...   )Жанр: GrindcoreПродолжительность: 00:34:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:263D3FB279B84B4658FEC0AC31050FCAA58BAF16
+magnet:?xt=urn:btih:5409A487CF8E3C6E6C9B59150755FF23B2C07211
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -484,26 +393,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695776   (120084) от 30.01.2024
+###  Публикация: 1693507   (121672) от 21.01.2024
 
-Крейг Оулсен | Говорящие (2024) [MP3, Puffin Сafe]
+Bloodlost - Diary of Death (2018) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120084.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Восприятие человеком окружающего мира ограничено физическими возможностями тела. Наши органы чувств малоразвиты. Даже домашние животные способны слышать, видеть и чувствовать в разы лучше человека. Но что будет если «выкрутить» все органы чувств на максимум? Или хотя бы слух, увеличив диапазон воспринимаемых частот?
-В психиатрической клинике оказался тот, кто, по (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:52:33
+01. Hell Collide Heaven
+02. Need Of Brutality
+03. Necromancer
+04. Evil To The Cross(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:34:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF71B1387A6E742915ECCDAAD0E83AF0DCA7F780
+magnet:?xt=urn:btih:F42DCCAA619F5DFA57B7EDDFC3E7E1781A6E530F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,25 +422,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695758   (120083) от 30.01.2024
+###  Публикация: 1693511   (121671) от 21.01.2024
 
-ForkLift 4 v.4.0.7 U2B [En]
+Bloodlost - Discover the Hell (2006) Demo [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120083.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ForkLift – это альтернативный файловый менеджер с функцией FTP-клиента. На ForkLift стоит обратить внимание, если вы очень много работаете с различными внешними носителями (поможет двухоконный режим) или активно пользуетесь FTP-серверами. В обоих этих случаях решающим фактором оказывается двухоконный режим. Он позволяет одновременно в одном окне ForkLift видеть две (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2024Разработчик: © 2024 BinaryNights LLCПоддерживаемая ОС: macOS X 12.0 +Язык интерфейса: Английский
+01. Dead Or Alive
+02. Evil Rage
+03. Signs Of Life
+04. Soldier Of War(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:22:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A30483DD2DCA49470014DF6091BE105F4C0966DE
+magnet:?xt=urn:btih:246D4F788D7A40EE02FCA2D3D60C85838674ED6B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,28 +451,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695718   (120082) от 30.01.2024
+###  Публикация: 1693681   (121670) от 21.01.2024
 
-Виктория Черенцова - Карантин (2021) [FLAC|Lossless|tracks + .cue] <Pop>
+Hellwell - Beyond The Boundaries Of Sin (2012) [FLAC|Lossless|image + .cue] <Epic Heavy Doom Metal>
 
->>Pop
->>Отечественная поп-музыка (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120082.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Карантин
-02. Не бойся
-03. Опять дожди
-04. Однажды ты соскучишься по мне(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
+01. The Strange Case Of Dr. Henry Howard Holmes
+02. Eaters Of The Dead
+03. Keepers Of The Devils Inn
+04. Deadly Nightshade(   Читать дальше...   )Жанр: Epic Heavy Doom MetalПродолжительность: 00:47:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BF91F793757273866E54F2CD8AC8F1BCA556363
+magnet:?xt=urn:btih:8A4345BD1F90D0FCCAE76123C5119C51635F86E0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -566,25 +480,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695760   (120081) от 30.01.2024
+###  Публикация: 1693712   (121669) от 21.01.2024
 
-File List Export for Mac 2.9.0 [En]
+Abysmal Grief - Misfortune (2009) [FLAC|Lossless|image + .cue] <Doom Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120081.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-File List Export (бывший File list to Excel) - простое в использовании приложение, которое поможет вам создать список файлов для какой-либо необходимости. Перечислите все свои фотографии, все ваши видео или все файлы. Если вам нужно создать список файлов, это приложение для вас. Новая версия с большим количеством 26 колонок метаданных и экспорта в CVS файл. Просто (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.01.2024Разработчик: © 2024 Giorgos TrigonakisПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+01. Ignis Fatuus
+02. Cadaver Devotion
+03. Crypt Of Horror
+04. The Arrival Of The Worm(   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:48:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE6D39B085AB98CB09FF79887D058AD637DD1753
+magnet:?xt=urn:btih:2CABEDDBDBD9B5B734EFA4930E6FCAD7DC8D1504
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -592,28 +509,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695651   (120080) от 30.01.2024
+###  Публикация: 1693564   (121668) от 21.01.2024
 
-The Breadmen - Rise of the Breadmen (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+Susannah McCorkle - How Do You Keep The Music Playing? (1985) 2000, The Jazz Alliance [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120080.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 3D-39 (7:40)
-02. Baked Oven (10:00)
-03. Dimes and Quarters (7:22)
-04. Solperplex (3:56)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:34:17
+01. While the City Sleeps [3:44]
+02. How Do You Keep the Music Playing? [4:08]
+03. A Fine Romance [4:10]
+04. There's No Business Like Show Business [6:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53A1B7F0B7CAD4A0B9BDFDDD4BF8013BD6647BA1
+magnet:?xt=urn:btih:E855883C69A7925DCD0273AC72881092700FDD7D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -621,28 +538,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695649   (120079) от 30.01.2024
+###  Публикация: 1693669   (121667) от 21.01.2024
 
-Coccolite - Extrasystole (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+Mosh-Pit Justice - Fighting the Poison (2019) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120079.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121667.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Exorde (1:07)
-02. Et Pour Finir (3:07)
-03. CPU 180 Degrés (4:17)
-04. Qu'il Est Agréable De Croiser Un Chevreuil En Forêt (4:07)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:37:41
+01. Bound to Decay 05:02
+02. Feed Me to the Flames 05:29
+03. God Wills It 05:08
+04. The Serpent's Call 05:42(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:41:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80AFDEBAAF565ABED477E030083D6DF1910A1E55
+magnet:?xt=urn:btih:78B3AC9FE9C525800AA6A55E97903F4E3FD5D811
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,28 +567,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695650   (120078) от 30.01.2024
+###  Публикация: 1693703   (121666) от 21.01.2024
 
-Grant Clarkson - South West Five (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
+Kari Antila - Dahill Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120078.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121666.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Are These Songs Or Not (3:08)
-02. Both Are Niether (3:38)
-03. Look Right (3:27)
-04. Back On The Underground (4:46)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:39:23
+01. For Toninho (5:19)
+02. Dahill Road (6:02)
+03. Moving Clouds (7:01)
+04. Wild Rooster (6:20)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64E1AC05200D6186620213B3ECE5AA7C5246FA13
+magnet:?xt=urn:btih:750EB53EC2B4A473BD20809A80E59C84F1A2B9D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,25 +596,134 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695665   (120077) от 30.01.2024
+###  Публикация: 1693654   (121665) от 21.01.2024
 
-NCH ClickCharts Diagram Pro 9.03 [En]
+Геннадий Цыферов | Книжка под подушкой. Сказки (2016) [MP3, Ольга Радченко, Татьяна Акимова]
 
->>Архив торрентов
->>Архив 4Apple
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120077.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121665.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легко создавайте блок-схемы и диаграммы с помощью этого программного обеспечения для Mac. Быстро создавайте четкие визуальные эффекты организации, процесса, интеллект-карты, UML-диаграммы и т. д. Найдите узкие места в процессе и способы оптимизации производительности. Начните процесс с опций шаблона или начните заново, выбрав формы, символы, стили соединительных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2024Разработчик: © 2024 NCH SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
+Серия/Цикл: Книжка под подушкой.
+Милые и добрые истории Цыферова знакомы каждому из нас. Кто не знаком с такими мультфильмами, как «Паровозик из Ромашково», «Лошарик», «Лягушонок ищет папу»? Помните трогательную историю про маленький Паровозик, который возил детей на станцию Ромашково? Во время поездок Паровозику так нравилось любоваться красотой окружающего мира, (   Читать дальше...   )Жанр: Детская литература, приключения, сказкаИздательство: Мастер FMПродолжительность: 00:25:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCEFFE7F4D125F80D0919690CE96B318A9A8714B
+magnet:?xt=urn:btih:97A61EC37E0F2586B04ABD19E8C74014EC85E286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693633   (121664) от 21.01.2024
+
+Horrorgraphy - A Knight's Tale (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Reputation and Honour
+02 – Prison
+03 – Theseus
+04 – Palamon(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F319E615E5A6067DBFAA43E8F8A11FD910AAA526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693535   (121663) от 22.01.2024
+
+Верховный суд причислил к движению ЛГБТ использующих слово «директорка»
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_121663.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание «Свободные новости» опубликовало копию текста решения ВС о ЛГБТ-движении
+В нем утверждается, что движение создано в США «как часть политики ограничения рождаемости», пропагандирует идеологию разрушения традиционных ценностей семьи и брака, а его участников объединяет в том числе «специфический язык»Саратовское издание «Свободные новости» опубликовало копию (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1481748   (121662) от 22.01.2024
+
+Пришествие конкистадоров / Conquistadores Adventum (2017) BDRip [H.264/1080p] (серии 1-8 из 8)
+
+>>След.
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121662.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сериал повествует об истории открытия и завоевания Америки, охватывает тридцатилетний период начиная с отплытия Христофора Колумба от берегов Испании на трех каравеллах в 1492 и заканчивая днями, когда Хуан Себастьян Элькано завершил первое кругосветное путешествие в 1522 году. Это история о приключениях и исследованиях, а также о жадности, предательствах и мести. (   Читать дальше...   )Производство: Испания, Global Set Spain, Movistar+Жанр: Документально-постановочный, историяРежиссер: Израэль дель СантоУчастники: Хорди Брау, Эдуардо Сан Хуан, Начо АсероПеревод: Двуголосый профессиональный (Видеофильм ТВ)Субтитры: отсутствуютПродолжительность: серии x ~00:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C264E26AA5B990756A54417EB78288131B990B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693293   (121661) от 22.01.2024
+
+Зорро / Zorro (2024) WEB-DL [H.264/1080p] (сезон 1, серии 1-10 из 10) HDRezka Studio
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Калифорния, 1834 год. Представителям коррумпированных властей противостоят местные жители. Сюда, в Лос-Анджелес, в спешке приезжает юный Дон Диего де ла Вега, вынужденный оставить учёбу в Испании, чтобы найти убийц отца и отомстить им. Он надевает маску Зорро и бросает вызов всесильному мексиканскому губернатору Педро Виктория, который мечтает избавиться от народного (   Читать дальше...   )Производство: Испания / C&T Mobs, NoStatusQuo Studios, Secuoya StudiosЖанр: боевик, триллер, приключения, мелодрамаРежиссер: Хавьер Кинтас, Хорхе Сааведра, Хосе Луис АлегрияАктеры: Мигель Бернардо, Рената Нотни, Далия Чукоатль, Эмильяно Зурита, Андрес Алмейда, Родольфо Санчо, Луис Тосар, Франциско Рейс, Феле Мартинес, Пако ТоусПеревод: Многоголосый профессиональный (HDRezka Studio)Язык озвучки: Русский, АнглийскийСубтитры: Русские (Forced), Английские (Forced, Full)Продолжительность: ~00:57:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6689805667031ADB530399C8BA20CAACD522954A
 ```
 
 https://mybot314.ru/tekegram_catalog/

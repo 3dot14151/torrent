@@ -1,3 +1,61 @@
+###  Публикация: 1672881   (167300) от 30.10.2023
+
+Jeff Lorber - The Definitive Collection (2000) Arista [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Funk, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tune 88 [4:32]
+02. Water Sign [4:37]
+03. Night Love [5:15]
+04. Fusion Juice [4:14](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, Jazz FusionПродолжительность: 01:11:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFA7F463C1EBE4784F3B43FCC153622B6DEE2B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672926   (167205) от 30.10.2023
+
+VA - Cool Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dave Brubeck Trio - Avalon (Album Version) (2:06)
+02. Modern Jazz Quartet - Rose Of The Rio Grande (2:13)
+03. The Dave Brubeck Trio - Perfidia (Album Version) (2:17)
+04. The Dave Brubeck Quartet - Lulu's Back In Town (2:21)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9F4CC772297F3B63A71D2B9C4DCB456F930EF24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1673033   (167193) от 30.10.2023
 
 Kammerflimmer Kollektief - Schemen (2023) [FLAC|Lossless|Web-DL|tracks] <Experimental, Ambient, Jazz Noir>
@@ -684,64 +742,6 @@ Erroll Garner - 1945-1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4E64CA6CAB94296E5061A2CF6C6D1F7D075EB60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1673358   (165493) от 01.11.2023
-
-Acker Bilk - Stranger On The Shore (The Best Of) (2001) Sanctuary Records [FLAC|Lossless|image + .cue] <Dixieland, Easy Listening, Traditional Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strangers On The Shore [3:21]
-02. The Windmills of Your Mind [3:29]
-03. Cavatina [2:49]
-04. Magnificent Mog [2:31](   Читать дальше...   )Жанр: Dixieland, Easy Listening, Traditional JazzПродолжительность: 01:12:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE79D60D07AF7E8C22596EE7C3EAB29388A371D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516656   (165480) от 12.12.2021
-
-Stephane Grappelli - Compact Jazz (1987) Verve Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Djangology [3:25]
-02. I'm Coming Virginia [3:03]
-03. Misty [3:46]
-04. Shine [3:37](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, Violin JazzПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:303FC41317923FE7B1338BB98DB29FA75A25DF9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

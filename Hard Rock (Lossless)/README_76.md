@@ -1,3 +1,119 @@
+###  Публикация: 1425648   (220952) от 21.11.2020
+
+Black Cats NYC - Free Cake (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Want You (02:18)
+02. She Got What I Need (04:21)
+03. Dirty Little Hipster (03:38)
+04. Cry Baby (03:07)(   Читать дальше...   )Жанр: Hard Rock, Rock'n'RollПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12B3506A3A7538218C97566421B8D09CC288B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585632   (220744) от 23.10.2022
+
+Steelover - Stainless (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dealer (3:50)
+02. Give It Up (3:57)
+03. Get Out (5:09)
+04. Remember (4:42)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19EBD98518BD43EFF522652283EF13F24A37DBEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585637   (220723) от 23.10.2022
+
+C.T.P. Christian Tolle Project - Now & Then Encore (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't Gonna Let It Slide (5:31)
+02. Never Had It So Good (4:14)
+03. Sword And Stone (4:13)
+04. Angel (6:19)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7D4AA33D93C2E89AC8AD685B9AEE747B4E49CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651922   (219730) от 09.08.2023
+
+Jovian Queen - Jovian Queen (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, 70's>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirt [00:04:22]
+02. Catatonic Smile [00:04:58]
+03. Death Machine [00:04:48]
+04. Nostromo's Demise [00:05:25](   Читать дальше...   )Жанр: Heavy Rock, Stoner, 70'sПродолжительность: 00:33:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A75EC1FEBE1A9E9C79436DC363EDA0A28B0C7BC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652066   (219607) от 09.08.2023
 
 Hanoi Rocks - Oriental Beat mix (1982) The 40th Anniversary Re(al)mix 2022, 2023, Sanctuary Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock>
@@ -635,122 +751,6 @@ Michael Bormann's Jaded Hard - Power To Win (2022) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:812015DCA193F4787E8F2460D2C6BECC33EB03CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193833   (213957) от 23.12.2017
-
-AC/DC - The Razors Edge (1990) X-Cellent only for sale in CIS, 2003 [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunderstruck (4:52)
-02. Fire Your Guns (2:53)
-03. Moneytalks (3:45)
-04. The Razors Edge (4:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F64CE9E71847E60932BFD936F0D7BB9EAE83CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587056   (213938) от 29.10.2022
-
-Dead City Ruins - Shockwave (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preacher
-02. Vision
-03. Madness
-04. Speed Machine(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFC95DEE7C3801FD46F139413548188C276BFB64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193840   (213929) от 23.12.2017
-
-AC/DC - Black Ice (2008) Digipack for sale in CIS 06573249 [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock N Roll Train 04:21
-02. Skies On Fire 03:34
-03. Big Jack 03:57
-04. Anything Goes 03:22(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0DB9E766060DE7589A50E0E6A1DA98DAA9EAF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586853   (213912) от 29.10.2022
-
-John Norum - Gone To Stay (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voices Of Silence
-02. Sail On
-03. Gone To Stay
-04. One By One(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7864BD68F75996DB986A1C6EE2E2F678BF20E73E
 ```
 
 https://mybot314.ru/tekegram_catalog/

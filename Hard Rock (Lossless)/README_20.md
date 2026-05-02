@@ -1,3 +1,119 @@
+###  Публикация: 1496393   (873366) от 17.09.2021
+
+Robin Red - Robin Red (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t Leave Me (With A Broken Heart)
+02. (I’m A) Bad Habit
+03. Everlyn
+04. Freedom(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B410EB84E61BD89F8A5F34F62DB07EFC08711A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496383   (873358) от 17.09.2021
+
+Spitfire - Do Or Die (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride It Like You Stole It
+02. Like A Lady
+03. Writings On The Wall
+04. Do Or Die(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:040F5C1C253B8BB81A8A3CE4BF18AB44544518A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374234   (872691) от 10.04.2020
+
+One Desire - Midnight Empire (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadowman
+02. After You’re Gone
+03. Down And Dirty
+04. Godsent Extasy(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A7EABE7DF0783DED014BA43F5D03DD1AB145995
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591036   (872454) от 10.04.2020
+
+Brazen Abbot - Guilty As Sin (2003) [FLAC|Lossless]<Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Life to Live [04:57]
+02. Eyes on the Horizon [04:34]
+03. I'll Be Free [03:58]
+04. Slip Away [04:53](   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 01:02:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36EC466840804BBD120F194A8A88CA41E6A91870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997836   (872042) от 18.03.2016
 
 Spiritual Beggars - Sunrise To Sundown (2016) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +745,6 @@ Inglorious - Heroine (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:882C886ADD129E962FDBC16AD805BA713119E60C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497855   (861363) от 24.09.2021
-
-All For The King - Let There Be Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Six-Winged Seraphim
-02. Let There Be Light
-03. I Am He
-04. The Way, Truth and Life(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:027F4B57FE950E072229E5282AAB9DD7E2C38A14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497850   (861180) от 24.09.2021
-
-Mad Invasion - Edge Of The World (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edge Of The World
-02. Scream'n Shout
-03. Crazy & Wild
-04. Devil's Calling(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA39CA4443E9446ECFF6FF77065BAA4E8E1739B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109023   (860995) от 26.02.2017
-
-The Hollerin Sluggers - The Promised Land (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On Over (4:03)
-02. String Of Pearls (6:18)
-03. Devil At The Liquor Store Blues (3:32)
-04. Reap What You Sow (4:46)(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 00:40:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927EE493E73C61F73F89FDC74B0B3CDF49820B60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498078   (859778) от 25.09.2021
-
-John Dallas - Love & Glory (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anymore
-02. Bad Sister
-03. Drive Me Tonight
-04. Glory(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6DEF79A67E578F790F8E477507A32DC8B3D1E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

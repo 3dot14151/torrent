@@ -1,3 +1,32 @@
+###  Публикация: 1011417   (796662) от 27.04.2016
+
+Зодиак (Zodiac) - Pacific Time (2014) [MP3|320 кб/с] <Electronic, Synth-pop, Disco>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Zodiac (04:11)
+02. Pacific Time (04:31)
+03. Disco In The Province (04:47)
+04. Distant Galaxy (05:43)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8FE80862DB5826289A34A6F7C4EC3591299B619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385795   (796648) от 26.05.2020
 
 Visage - 3 Albums (1980-1984) LP [MP3|320 Kbps] <Electronic, New Wave, Synth-pop>
@@ -717,35 +746,6 @@ The Reels - Beautiful (1982) LP [MP3|320 Kbps] <Electronic, New Wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87696516C57CC427181FFEB7CD2E3E514BEB7526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280900   (755204) от 06.02.2019
-
-Spacehawk - Laser Squad (2018) [MP3|320 Kbps] <Spacesynth, Spacedisco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:24)
-02. Zeratul's Return (3:55)
-03. Cosmic Expedition (4:28)
-04. Laser Squad (3:53)(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B219817E9050D21DB2AC5D591AA2C7E74C8DB9B
 ```
 
 https://mybot314.ru/tekegram_catalog/

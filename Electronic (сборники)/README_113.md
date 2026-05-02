@@ -1,3 +1,61 @@
+###  Публикация: 1301450   (584342) от 12.05.2019
+
+VA - New Gallery Soft House (2019) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584342.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Modell - Great Koma
+002. Vin Veli - Te Amo
+003. Gene Hunt - Deep House Thang
+004. Tony Cool - Gianfalla (Funk And Deep Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:53:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BBFE5B618E414765A14C11F02DF7430758B3FE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1301059   (584295) от 12.05.2019
+
+VA - Drum Report Bass Line (2019) [MP3|320 Kbps] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584295.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lymph Project - Heights
+002. Triple Sickz - Intro (The Sixth Sense)
+003. Damage Report - Monster
+004. Degwood - The Next Stage (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 10:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06C70B0782AD86541465C37E4C4504A990B74965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1301203   (584290) от 12.05.2019
 
 VA - Drum Rehab: Vocalize & Pressure Rhythm (2019) [MP3|320 Kbps] <Techno>
@@ -698,64 +756,6 @@ VA - Beatport Trance Pack (10.08.) (2016) [MP3|320 Kbps] <Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9908D9C624F8C921F96C3C03EEA926E19CABD0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042072   (580642) от 11.08.2016
-
-VA - 100 Nowadays Points Cross (2016) [MP3|320 Kbps] <House, Tropical, UK Garage, Club, Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580642.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gregory Esayan - Changes (Original Mix) 07:30
-002. Ambrosia - Happy (Dub) 08:16
-003. Sheree Hicks - Living All Alone (Djpope's Sound Of Baltimore Instrumental) 07:07
-004. Inaky Garcia And Misteralf Feat Sandy Soul - Paradise (Guido P Sunset Mix) 07:48(   Читать дальше...   )Жанр: House, Tropical, UK Garage, Club, Techno, ElectronicПродолжительность: 10:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3F8A342C35C9F33911D9D4AAF81E9C90146C712
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041733   (580595) от 11.08.2016
-
-VA - Moment Follow Trance Lights (2016) [MP3|128-320Kbps] <Trаnсе, Еmоtіоnаl>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Аlіgnmеnts - Stоnеm 08:12
-02. Drеаmsееkеrs - Hоmеlеss (Оrіgіnаl Mіх) 06:05
-03. Аlех Numаrk - Sublіmе Lоvе (Оrіgіnаl Mіх) 06:50
-04. Аіmооn - Frееdоm (Оrіgіnаl Mіх) 06:34(   Читать дальше...   )Жанр: Trаnсе, ЕmоtіоnаlПродолжительность: 09:01:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D3B08C3D79AC1E59FE6ED5ABB95DD7E652BAEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

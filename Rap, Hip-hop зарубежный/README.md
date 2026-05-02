@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1865961   (1065910) от 
+
+Conway The Machine - G.O.A.T. (2026) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.O.A.T [00:02:34]
+02. Trump [00:04:54]
+03.  Th3rd [00:05:43]
+04. Die On Xmas [00:04:26](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D20F0C78D3BD132134B354795F3FBA8376EABFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855427   (1058109) от 23.02.2026
 
 Mozzy - Not A Chance In Hell (2026) [MP3|320 Kbps] <Hip-Hop>
@@ -717,35 +746,6 @@ Die Antwoord - House Of Zef (2020) [MP3|320 Kbps] <Alternative Hip-Hop, Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FEADEACAA59C4BAB7B72D36ABD09F50E73E2E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368592   (909206) от 20.03.2020
-
-Pop Smoke - Meet The Woo (2019) [MP3|320 Kbps] <Rap, Hip-Hop, Drill>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_909206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meet the Woo [02:01]
-02. Welcome To The Party [03:35]
-03. Hawk Em [01:59]
-04. Better Have Your Gun [03:20](   Читать дальше...   )Жанр: Rap, Hip-Hop, DrillПродолжительность: 00:27:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8E8985653FDCB4FEEE88FF511B2E0A63434C653
 ```
 
 https://mybot314.ru/tekegram_catalog/

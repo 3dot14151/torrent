@@ -1,22 +1,25 @@
-###  Публикация: 1122352   (794152) от 05.04.2017
+###  Публикация: 1200397   (795730) от 21.01.2018
 
-Основатель / The Founder (2016) WEBRip [H.264/1080p-LQ] [AD]
+Maradando Karasodas - Husdaralo (2015) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Остальное
->>Фильмы с Рекламой
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795730.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм расскажет о жизни Рэя Крока, человека создавшего самую известную в мире сеть ресторанов быстрого обслуживания — McDonald`s.Производство: США, Faliro House Productions, FilmNation EntertainmentЖанр: ДрамаРежиссер: Джон Ли ХэнкокАктеры: Линда Карделлини, Ник Офферман, Майкл Китон, Патрик Уилсон, Лора Дерн, Джон Кэрролл Линч, Б.Дж. Новак, Кимберли Баттиста, Катрин Дайер, Девон ОгденПеревод: Многоголосый закадровый, любительскийОзвучка / Автор перевода: @MUZOBOZ@Субтитры: ОтсутствуютПродолжительность: 01:56:25Реклама: Присутствуют аудио и видео вставки рекламы
+01 - Egy Perc
+02 - Húsdaráló
+03 - Eltaposnak
+04 - Nyisd Ki A Szemed(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:28:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2B5A9F906E6BE537DFE1BFEC17B5BEC6E95FB43
+magnet:?xt=urn:btih:B33EFC2436CF8B5210666B591F395517DC968055
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122484   (794151) от 05.04.2017
+###  Публикация: 1200387   (795729) от 21.01.2018
 
-Проекты - VideoHive - HUD - UI Graphics for FILM, TV and GAMES - 19580362 [AEP]
+Deserted Fear - Dead Shores Rising (2017) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Проекты
->>Элементы (проекты)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795729.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HUD - UI Graphics for FILM, TV and GAMES - Этот графический пакет был создан для удовлетворения потребностей производства в различных типах проектов. Вы в любом случае найдете здесь что-нибудь полезное: работаете ли вы над коротким фильмом, снимаете ли научно-фантастический телесериал или создаете несколько игровых макетов. С более чем 1000 элементами дизайна, включая (   Читать дальше...   )Формат: AEP
+01. Intro 01:47
+02. The Fall of Leaden Skies 03:58
+03. The Edge of Insanity 04:04
+04. Open Their Gates 03:31(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:45:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E767A35C932C15D37FDD299731CFC6BF1ACE96B
+magnet:?xt=urn:btih:2BA71468921E6113567503288FFEF1C34B98A95E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122512   (794150) от 05.04.2017
+###  Публикация: 1200399   (795728) от 21.01.2018
 
-Джеки / Jackie (2016) BDRip [H.264]
+Masacre - Metal Medallo Attack (2012) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795728.jpg" />
 </div>
 
 
 ###  Подробнее
 
-О Жаклин Кеннеди - первой леди Соединенных Штатов в начале 60-х, самой популярной женщине своего времени, иконе стиля - написаны десятки книг и снято немало фильмов, но огромный интерес к ее жизни с годами не угасает. В этой ленте авторы воспроизвели один из трагических моментов в американской истории - убийство президента Кеннеди в Далласе - и последовавшие за ним (   Читать дальше...   )Производство: Чили, Франция, США, Гонконг / Bliss Media, FABULAЖанр: Биография, ДрамаРежиссер: Пабло ЛарраинАктеры: Натали Портман, Питер Сарсгаард, Грета Гервиг, Билли Крудап, Джон Хёрт, Ричард Э. Грант, Каспар Филлипсон, Бет Грант, Джон Кэрролл Линч, Макс КазеллаПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 01:40:07
+Ola De Violencia [1991]
+01 - Sangrienta Muerte
+02 - Mórbida Implosión
+03 - DecadenciaЖанр: Death MetalПродолжительность: 00:37:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:978F1DD7FE17A2EEC02504BCDD4D93B02C9B48EF
+magnet:?xt=urn:btih:866BF54FD96D8FDA8FFAFD0CADC2D08DB7C5AAEB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122482   (794149) от 05.04.2017
+###  Публикация: 1200547   (795727) от 21.01.2018
 
-Mass Effect: Andromeda (2017) [Ru/Multi] (1.0.4) Crack
+Global Goon - Rivers (2015) J-HOK records [FLAC|Lossless|WEB-DL|tracks] <IDM, Ambient>
 
->>Win Игры
->>NoCD/NoDVD/Crack для Игр
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Слегка изменённая таблетка от CPY. Добавляет в настройки игры возможность выбрать русский язык, без всяческих манипуляций с файлами. Убирает возможность выбрать французский язык.Разработчик: BioWareЯзык озвучки: Английский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+01. Boewsdf (02:23)
+ 02. Azztek (04:40)
+ 03. Snaphl (03:12)
+ 04. Starwhas (02:44)(   Читать дальше...   )Жанр: IDM, AmbientПродолжительность: 00:22:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:10344B9B61A38D40A50AE31F030527F48F8AFB84
+magnet:?xt=urn:btih:1F8F2D2616EA2B8F59327B9C912673E286D9B90B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +114,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122361   (794148) от 05.04.2017
+###  Публикация: 1200550   (795726) от 21.01.2018
 
-Revo Uninstaller Pro 3.1.9 RePack (& Portable) by elchupacabra [Ru/En]
+А. Апухтин и др. | Стихотворения (1910) [PDF]
 
->>След.
->>Архив Программ
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Revo Uninstaller - программа для удаления нежелательных приложений, установленных на вашем компьютере. Имеет продвинутый алгоритм сканирования системы до и после инсталляции и позволяет удалять оставшиеся после деинсталляции программы файлы, папки и ключи реестра. Уникальный "режим охотника" предлагает простые, но эффективные инструменты для управления (   Читать дальше...   )Язык интерфейса: Русский, Английский
+Сборник стихов русских поэтов для детей среднего возраста.Жанр: СтихиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45C1538D5EA801277603C31F68A6CD38724D7AF9
+magnet:?xt=urn:btih:F2C7364D5E62185418DC8CA2EA83604728E71BA4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,25 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122622   (794147) от 05.04.2017
+###  Публикация: 1200389   (795725) от 21.01.2018
 
-Мажор (2016) WEB-DL [H.264/1080p-LQ] (сезон 2, серии 1-12 из 12)
+Khaos Order - Hate - Blasphemy - Destruction (2014) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Отечественные сериалы
->>нет
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795725.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Неожиданно для всех Игоря Соколовского выпускают из СИЗО, сняв все обвинения в покушении на жизнь бизнесмена Игнатьева. Но Мажор выходит с одним-единственным желанием — отомстить, так как он считает Игнатьева виновным в смерти отца и матери. Соколовский возвращается на службу в полицию, возглавляет бизнес отца, который перешел ему по наследству, заводит красивый (   Читать дальше...   )Производство: Россия / Кинокомпания "Среда"Жанр: драма, криминалРежиссер: Николай Булыгин, Максим ПолинскийАктеры: Павел Прилучный, Карина Разумовская, Дмитрий Шевченко, Денис Шведов, Александр Обласов, Никита Панфилов, Дана Абызова, Олег Гаас, Анна Цуканова-Котт, Любовь Аксёнова и др.Продолжительность: ~00:50:00 серия
+01 - Hipocrisy Of Bastards
+02 - Oscuritan Lupus
+03 - Pest
+04 - Winter In The Blood(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:38:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7CFC60E3670020CE5294317C7E0EC9DE9AA34A4
+magnet:?xt=urn:btih:A3ECAED5BCC72B5B4352D50400706F7AF3B0F6C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -154,25 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122168   (794146) от 05.04.2017
+###  Публикация: 1200388   (795724) от 21.01.2018
 
-Anton Kreil (Антон Крил) | Professional Trading (Профессиональный трейдинг) (2013-2015) PCRec
+Drunken Bastards - Posercrusher (2007) [FLAC|Lossless|image + .cue] <Black Metal, Thrash Metal>
 
->>Обучающие видеоматериалы
->>Бизнес и Менеджмент (видеокурсы)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Антон Крил — профессиональный трейдер, бывший сотрудник мировых банков маркет-мейкеров Goldman Sachs, Lehman Brothers и JP Morgan. Карьеру трейдера начал в 16 лет, открыв торговый счет у фондового брокера. К двадцати годам, еще проходя учебу в университете, он сумел собрать внушительную торговую статистику — и в итоге был приглашен на работу в Goldman Sachs. На первом (   Читать дальше...   )Жанр: Трейдинг,управление капиталом,портфельный менеджерПеревод: Закадровый на русском языке. Поверх оригинала ENGПродолжительность: 23:48:10
+01 - Bordello Blues
+02 - Posercrusher
+03 - Alcoholic Big Tits
+04 - Drink With Satan!(   Читать дальше...   )Жанр: Black Metal, Thrash MetalПродолжительность: 00:24:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2C687A53A2624E01C2124F1FDC15D38844F2B313
+magnet:?xt=urn:btih:0E28540803D42138E1A1BEF818C6EBCF8885AA21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -180,25 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122568   (794145) от 05.04.2017
+###  Публикация: 1509221   (795723) от 11.11.2021
 
-Проекты - VideoHive - Dark Side - Cinematic Promo Trailer - 19639960 [AEP]
+VA - Krafted Chill 2021 (2021) [AAC|~332 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Проекты
->>Трейлеры (проекты)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795723.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Dark Side - Cinematic Promo Trailer - проект для создания эффектного трейлера к фильму. Вы также можете использовать эти эпические заголовки со вставками ваших видеокадров или фотографий в качестве начальных титров или кинематографического тизера. Важным преимуществом проекта является большое количество предварительно просчитанных готовых элементов анимации, состоящих (   Читать дальше...   )Формат: AEP
+01. Cuckoo Hill Orchestra - Driftwood (5:32)
+02. Steen Thottrup, Francesca Faggella - 1991 (5pm - London Love Mix) (4:31)
+03. Kris O'Neil, Waves On Waves - Till You Tell Me (Simon Sinfield Chill Mix) (4:44)
+04. Paul Sawyer, Laura Welle - The Wave (Poolside Mix) (7:10)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:50:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:493861D9A6DC01C7DF7B48785C0723C4D41DA328
+magnet:?xt=urn:btih:282D4DBF3464DBC356784AE7E4E31CD21F045092
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -206,25 +227,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122350   (794144) от 05.04.2017
+###  Публикация: 1509074   (795722) от 11.11.2021
 
-FlatOut 4: Total Insanity (2017) [Ru/Multi] (1.0) License CODEX
+Feeder 4 v4.3.1 [En]
 
->>3
->>След.
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FlatOut 4: Total Insanity - это очередная часть знаменитой гоночной аркадной серии, в которой игрокам позволено фактически все - в том числе и "стрелять" водителем автомобиля из лобового стекла, чтобы установить рекорд дальности полета. Подзаголовок Total Insanity немного неточен - полного безумия здесь нет. По крайней мере, в режиме карьеры, состоящем (   Читать дальше...   )Тип издания: LicenseРазработчик: Kylotonn Entertainment, Tiny Rebel GamesЖанр: Racing, Arcade, 3D, 3rd PersonЯзык интерфейса: Русский, Английский и другие
+Feeder - это полнофункциональное приложение для создания, редактирования и публикации RSS-лент и подкастов iTunes. Создать новый канал используя шаблоны, скачать каналы с веб-сайта или импортировать существующие файлы. Редактирование содержания так же просто, как написание электронной почты, так что вы будете знать, инстинктивно, что делать.
+С Feeder вы можете опубликовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.11.2021Разработчик: © 2021 ReinventedSoftwareПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5E6E0545FC80E1DAC6A66866E64C689776375E4
+magnet:?xt=urn:btih:64B12690CC3008C15461D3DD43AC1319BDC51025
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -232,26 +254,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122209   (794143) от 05.04.2017
+###  Публикация: 1509194   (795721) от 11.11.2021
 
-Когда российское кино совсем "не заходит"
+GoodNotes 5 v5.7.45 [Multi/Ru]
 
->>3
->>9
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_794143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795721.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Претензия
-Довожу до Вашего сведения, что мной 18 марта 2017 года был приобретен билет на просмотр фильма "Везучий случай".В кинозал я вошел в хорошем настроении. По заявлении кинотеатром и режиссером Самгиным фильм "Везучий случай" - комедия. Но заявленными характеристиками фильм не обладает. Шутки, которые используются в фильме уже были использованы (   Читать дальше...   )
+Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
+Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 11.11.2021Разработчик: © 2021 Time Base Technology LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2A66038BAF1661FD69C92E72673DDEBE8F28EBAF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,25 +281,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122580   (794142) от 05.04.2017
+###  Публикация: 1509155   (795720) от 11.11.2021
 
-LEGO City Undercover (2017) [Ru/Multi] (1.0) License CODEX
+VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 4 (2016) [AAC|~293 Kbps] <Lounge, Chill Out, Downtempo>
 
->>3
->>След.
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795720.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Присоединяйтесь к Чейзу! В игре LEGO® CITY Undercover вы примерите на себя роль Чейза Маккейна — офицера полиции, которому поручена операция под прикрытием по поиску преступника Рекса Фьюри. В совместном режиме для двух игроков можно исследовать открытый мир мегаполиса LEGO® City, состоящего из более чем 20 кварталов, в котором вас ждут расследования, угонщики, вождение (   Читать дальше...   )Тип издания: LicenseРазработчик: Traveller's TalesЖанр: Action, Arcade, 3D, 3rd Person, Open WorldЯзык озвучки: Русский, Английский и другиеЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+01. dgn - Put Me Out (Original Mix) (5:29)
+02. Cut Velvet - Hair Look (Original Mix) (7:24)
+03. Soul Fire Ensemble - Just as Well (Original Mix) (2:51)
+04. Ronny Starr - One Off (Original Mix) (2:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:26:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C10321EDC579E4E08FA6FEEF102978F941D4DEB8
+magnet:?xt=urn:btih:23A2D7551E760E75BF7C77ACCF1962151EE2FD0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,25 +310,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122362   (794141) от 05.04.2017
+###  Публикация: 1509160   (795719) от 11.11.2021
 
-Сплит / Split (2016) WEB-DLRip [H.264/1080p-LQ] [Line] [AD]
+VA - Balearic Lounge Winter 2021 (2020) [AAC|~320 Kbps] <Lo-Fi, Lounge, Chill Out>
 
->>нет
->>нет
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_794141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795719.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кевин — человек, в котором живет не менее двадцати трех личностей, вынужден похитить трех девушек подросткового возраста. Тем временем, пока они находятся в заточении, самая главная личность Кевина — Чудовище — материализуется.Производство: США, Blinding Edge Pictures, Blumhouse ProductionsЖанр: Ужасы, ТриллерРежиссер: М. Найт ШьямаланАктеры: Джеймс МакЭвой, Себастьян Арселус, Ameerah Briggs, Бетти Бакли, Иззи Коффи, Накия Диллард, Дэнн Финк, Jerome Gallman, Кэш Гойнс, Брэд Уильям ХенкеПеревод: Дублированный (Чистый звук)Субтитры: ОтсутствуютПродолжительность: 01:57:32Реклама: Присутствуют голосовые и текстовые вставки рекламы
+01. Mark Oakland, Ruben Lima - Remember (Original Mix) (5:28)
+02. Boyzen SA, Butler - Never Meant to Be (Original Mix) (6:11)
+03. Pier-O, Marga Sol - Air of Love (Original Mix) (5:50)
+04. Roberto Bronco - Rollin (Original Mix) (5:02)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:07:42
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:759F19439BCE175E61A98B28D2AABDEDB25BEDAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,25 +339,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122607   (794140) от 05.04.2017
+###  Публикация: 1509222   (795718) от 11.11.2021
 
-Максим Дорофеев | Джедайские техники. Как воспитать свою обезьяну, опустошить инбокс и сберечь мыслетопливо (2017) [FB2]
+VA - Dreams Boutique (2021) [AAC|~287 Kbps] <Lounge, Chill Out, Downtempo>
 
->>3
->>След.
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795718.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Почему, даже зная, как надо правильно работать, человек на практике делает все так, как привык… то есть плохо? Максим Дорофеев простым и доступным языком объясняет, почему так происходит. Прочитав его книгу, вы узнаете, как устроено ваше мышление и память; почему вы неэкономно тратите ресурсы своего мозга; как их сохранить, как правильно концентрироваться, формулировать (   Читать дальше...   )Жанр: Личностный рост, Самосовершенствование, Лайфхаки, Тренировка мышленияФормат: FB2
+01. Schriever - Sublime (5:48)
+02. Adaptationes Mirabiles - Near the Mill (5:53)
+03. Miraflores - Habanera (5:49)
+04. Aktnuance - Beautiful Beginning (5:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:48:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A65ABB3915C372DC3FDA15EAB64922F4832F6D26
+magnet:?xt=urn:btih:95948519613186961B45BF0E976738C14EA4FA7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,25 +368,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061927   (794139) от 05.04.2017
+###  Публикация: 1509149   (795717) от 11.11.2021
 
-Подшивка журналов | Советы профессионалов (2000-2017) [DJVU, PDF] [Обновляемая]
+VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 1 (2016) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
 
->>След.
->>Домоводство (журналы)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795717.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Советы профессионалов — это научно-популярный прикладной журнал-дайджест. Он будет полезным для тех, кто любит свой дом и стремится своими руками сделать его максимально удобным и красивым. Издание составлено из лучших материалов журналов «Дом», «Сам» и «Сам себе мастер» и концентрирует в себе лучшие тематические публикации и новые материалы об опыте работы мастеров (   Читать дальше...   )Жанр: Домоводство, Строительство и ремонт, Сделай сам, ДизайнФормат: DJVU, PDF
+01. Tlx 20 - Morder (Original Mix) (3:04)
+02. Key of Dreams Fiftheen - Hot Chocolate (Original Mix) (4:54)
+03. ITB Sea - Bacon Four (Original Mix) (4:50)
+04. Theo Lopez - The Bass (Original Mix) (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:25:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CEF7F8A9FC60A2940B3DEADD138D7F8C1C76F358
+magnet:?xt=urn:btih:0808E921A06725769F29A2FB1331A57696AEF219
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,25 +397,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122729   (794138) от 05.04.2017
+###  Публикация: 1509163   (795716) от 11.11.2021
 
-Krai Mira: Extended Cut (2017) [Ru/Multi] (1.0) License SKIDROW
+VA - Balearic Lounge Winter 2022 (2021) [AAC|~324 Kbps] <Lo-Fi, Lounge, Chill Out>
 
->>След.
->>RPG
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Krai Mira - пост-апокалиптическая РПГ игра в стиле Fallout и Fallout 2, место действия которой - радиоактивные пустоши и болота, мертвые города, пещеры и леса одноименного острова. Extended Cut версия порадует игроков новым контентом, системой интерактивной помощи, улучшенным интерфейсом. Новые предметы инвентаря, включая продвинутую броню и препараты, улучшенный (   Читать дальше...   )Тип издания: LicenseРазработчик: TallTech studioЖанр: Adventure, RPG, ArcadeЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+01. Alexandra Hampton, Merge Of Equals - Beautiful (Original Mix) (4:26)
+02. No Noise - Karma Shabda (Original Mix) (5:07)
+03. InnamoratoDellaMusica - Venice (Original Mix) (4:00)
+04. Lounge Groove Avenue - Smoking Jazz (Original Mix) (2:29)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:26:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C15F9AB9C46706E33765C05D32BEB217B556A069
+magnet:?xt=urn:btih:D81FB6C5FA9F9C885ABE7532134F484C144FD8AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,25 +426,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122369   (794137) от 05.04.2017
+###  Публикация: 1509152   (795715) от 11.11.2021
 
-Бессонная ночь / Sleepless (2017) WEB-DL [H.264/1080p-LQ] [AVO]
+VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 3 (2016) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 
->>3
->>След.
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795715.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Полицейские Винсент с напарником стали обладателями сумки с 25 килограммами кокаина. Но данный товар принадлежит одной крупной шишке и чтобы вернуть кокаин, у Винсента похищают его сына. Винсент идет возвращать своего сына.Производство: США, FilmNation Entertainment, Open Road Films (II), Riverstone Pictures, Vertigo EntertainmentЖанр: Боевик, ТриллерРежиссер: Баран бо ОдарАктеры: Мишель Монахэн, Гэбриэл Юнион, Дермот Малруни, Джейми Фокс, Скут МакНэри, Дэвид Харбор, Ти-Ай, Вероника МакКласки, Октавиус Дж. Джонсон, Тим КонноллиПеревод: Авторский (одноголосый, закадровый) - А.Важенин (BadBajo)Озвучка / Автор перевода: BadBajoСубтитры: Английские (отключаемые)Продолжительность: 01:35:11
+01. Polarity - Litu (Original Mix) (2:16)
+02. Natural Factor - Next Us Now (Original Mix) (3:33)
+03. Chill Art - Runi (Original Mix) (5:09)
+04. Mark Sia - Kalin Twins (Original Mix) (3:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4140119C65684E809F84198B74F729E84986F95F
+magnet:?xt=urn:btih:3A41A8806D0341CBD655075EFA7C1930F920E3E6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,25 +455,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066493   (794136) от 05.04.2017
+###  Публикация: 1200525   (795714) от 21.01.2018
 
-Ходячие мертвецы / The Walking Dead (2016) WEB-DL [H.264/720p-LQ] (сезон 7, серии 1-16 из 16) LostFilm
+О. В. Григорьева | Что было и чего не было (1909) [PDF]
 
->>3
->>4
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795714.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сериал рассказывает историю жизни семьи шерифа после того, как «зомби»-эпидемия апокалиптических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости. (   Читать дальше...   )Производство: США, AMC Studios, American Movie Classics (AMC), Circle of Confusion, Darkwoods Productions, Idiot Box Productions, 	Valhalla Motion PicturesЖанр: ужасы, фантастика, триллер, драмаРежиссер: Грег Никотеро, Олрик Райли, Дэвид Бойд, Майкл Э. Сатраземис и др.Актеры: Эндрю Линкольн, Норман Ридус, Стивен Юн, Лорен Коэн, Чендлер Риггз, Данай Джекесай Гурира, Мелисса Сюзанн МакБрайд, Майкл Кудлиц, Эмили Кинни, Чад Коулмэн и др.Перевод: многоголосый закадровый, профессиональный - LostFilmЯзык субтитров: русский, английскийПродолжительность: ~00:46:00 серия
+Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0C9E9F580C398D7CF46F3E275788A8AC19FB6DF
+magnet:?xt=urn:btih:E12BBECE746D96D7FF233536E5083A8C7DC04EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,109 +481,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122200   (794135) от 05.04.2017
+###  Публикация: 1200468   (795713) от 21.01.2018
 
-Mass Effect: Andromeda (2017) [Ru/Multi] (1.04/dlc) License CPY
-
->>3
->>18
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794135.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Mass Effect: Andromeda вы окажетесь в галактике Андромеды, далеко за пределами Млечного Пути. Там придется сражаться на враждебной территории, где пришельцы — МЫ. Возьмите на себя роль Следопыта и возглавьте отряд опытных исследователей. Вас ждет захватывающая история с множеством вариантов развития. Это — новая глава в истории человечества, и только от выбора (   Читать дальше...   )Тип издания: LicenseРазработчик: BioWareЖанр: Action (Shooter), RPG, 3D, 3rd PersonЯзык озвучки: Английский, Французский, НемецкийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289A4E7D90BC4AFEE16D40DFF7CE444327C1B36B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065946   (794134) от 05.04.2017
-
-Ходячие мертвецы / The Walking Dead (2016) WEB-DL [H.264/1080p-LQ] (сезон 7, серии 1-16 из 16) Fox Crime
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794134.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает историю жизни семьи шерифа после того, как «зомби» — эпидемия апокалиптических масштабов захлестнула земной шар. Шериф Рик Граймс путешествует со своей семьей и небольшой группой выживших в поисках безопасного места для жизни. Но постоянный страх смерти каждый день приносит тяжелые потери, заставляя героев почувствовать глубины человеческой жестокости.Производство: США / American Movie Classics (AMC), Circle of Confusion, Valhalla Motion PicturesЖанр: ужасы, фантастика, триллер, драмаРежиссер: Грег Никотеро, Эрнест Р. Дикерсон, Гай ФерлендАктеры: Эндрю Линкольн, Сара Уэйн Кэллис, Лори Холден, Стивен Юн, Чендлер Риггз, Норман Ридус, Айрон Э. Синглтон, Мелисса Сюзанн МакБрайд, Лорен Коэн, Джон Бернтал и др.Перевод: Многоголосый закадровый, профессиональный - Fox CrimeСубтитры: английскиеПродолжительность: ~00:46:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9121628E8FA32250B149F2392CE65E11715782
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274259   (794133) от 06.01.2019
-
-Pete Seeger - Waist Deep In The Big Muddy And Other Love Songs (1993) 1967 [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794133.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Oh Yes I'd Climb (The Highest Mountain Just For You)
-A2 Seek And You Shall Find
-A3 The Sinking Of The Reuben James
-A4 Waist Deep In The Big Muddy(   Читать дальше...   )Жанр: FolkПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C26BC584BA47B69EE368832E6EF611C4C2D147F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274223   (794132) от 06.01.2019
-
-VA - Record Super Chart 568 (2019) [MP3|320 Kbps] <House, Club, Dance>
+VA - Empire Records - Lounge 10 (2018) [MP3|320 Kbps] <Lounge>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795713.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Don Diablo feat. Emeli Sande & Gucci Mane  -  Survive
-02.  Fisher  -  Losing It
-03.  Gaulin  -  Moonlight
-04.  Merk & Kremont - Sushi(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:49:54
+01. Mark Eliyahu - Journey (Hakan Akkus & V-Dat Remix)
+02. Christos Fourkis, Joahn Dashi - Come in My Life (Bes and Meret Remix)
+03. W4velike - Lovin U
+04. Beat Sounds - In Zaire (Extended Mix).(   Читать дальше...   )Жанр: LoungeПродолжительность: 02:09:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:570B1561B2BDC170DEC49DE42B236FBAAE37CA4D
+magnet:?xt=urn:btih:4C5AAD0487CC22B3E4645FE78CE7758E3D0E470E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -551,28 +510,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274334   (794131) от 06.01.2019
+###  Публикация: 1200490   (795712) от 21.01.2018
 
-Michael Elliot - Undercover (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Synthwave>
+Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Club House, Funky>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795712.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Undercover (Original Mix) (6:05)
-02. Never Give Up (Original Mix) (6:08)
-03. Genuine (Original Mix) (5:58)
-04. Undercover (Radio Mix) (4:13)(   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:30:45
+01. Beat Of The Drum (4:54)
+ 02. Electric (5:15)
+ 03. Never (Glaccklich) (5:23)
+ 04. Loving You (6:01)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Club House, FunkyПродолжительность: 05:13:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98145744C762D6DFAE1030292E792DC709B5D2BA
+magnet:?xt=urn:btih:D60D8ED0F65CCB20FD9A3CB870FBD701C418A56F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,28 +539,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274254   (794130) от 06.01.2019
+###  Публикация: 1200222   (795711) от 21.01.2018
 
-VA - Billboard Hot 100 Singles Chart 05.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+Necrotomy - Inhuman Mankind (1991) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795711.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ariana Grande - thank u, next
-002. Halsey - Without Me
-003. Mariah Carey - All I Want for Christmas Is You
-004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:23:08
+01 - Selfmutilate
+02 - Insestance Devastation
+03 - Vision Of The Altar
+04 - Atomic Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25507347C1594BD337C16F848B3E780BC925F111
+magnet:?xt=urn:btih:9752E0190D2CD7C30F105F8E8A10EFF0343553D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,25 +568,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274266   (794129) от 06.01.2019
+###  Публикация: 1200147   (795710) от 21.01.2018
 
-В. В. Струве | История древнего Востока (1941) [PDF]
+VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
 
->>Научная и техническая литература
->>Историческая литература
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795710.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В основу настоящего учебника "Истории древнего Востока" положен курс лекций, читаемый на протяжении ряда лет акад. В. В.Струве на историческом факультете Ленинградского государственного университета. Первое издание курса акад. Струве, вышедшее в 1936 г. в качестве 1-го тома серии ГАИМК "История древнего мира", для настоящего издания подверглось (   Читать дальше...   )Жанр: История, культурология, искусство, археология, ассириологияФормат: PDF
+01.Brooklyn Bounce - Club Bizarre (Djs From Mars Rmx) (4:57)
+02.Groove Coverage - Innocent (Club Mix) (3:33)
+03.Basslover United - Ghetto Supastar (Extended Mix) (4:16)
+04.Franky 8 - Rhytm & Drums 2010 (3:09)(   Читать дальше...   )Жанр: Euro House, TranceПродолжительность: 02:13:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BEA843D32738AD2163908674F14796FC45C89BD1
+magnet:?xt=urn:btih:0F6DDE774AD81A5B0C890349B3D60119D2CEE120
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,25 +597,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274193   (794128) от 06.01.2019
+###  Публикация: 1200539   (795709) от 21.01.2018
 
-М. Хайд | Комната 3603. Рассказ о деятельности английского разведывательного центра во время второй мировой войны в Нью-Йорке (1967) [DJVU]
+Мария Федоровна Ростовская | Детские забавы (1909) [PDF]
 
->>Разное (категория книг)
->>Публицистика
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795709.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В публикациях, посвященных работе разведок, немалое место на западном книжном рынке занимают издания авторов, которые имеют или имели отношение к деятельности секретных служб. Сюда относятся различного рода воспоминания или обработанные рассказы, а иногда и исследования разведчиков и контрразведчиков, вроде «Искусство разведки» А. Даллеса, «Воспоминания» гитлеровского (   Читать дальше...   )Жанр: История, политология, документалистика, публицистикаФормат: DJVU
+Сборник рассказов для детей младшего возраста.Жанр: Детская прозаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:965331BFC9A7CD4FA5D2D8BFF07303214F725769
+magnet:?xt=urn:btih:F259252C256E9F2F127AE1C39F0131013323432E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,25 +623,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274380   (794127) от 06.01.2019
+###  Публикация: 1200670   (795708) от 21.01.2018
 
-Ю.С. Владимиров (ред.) | Взаимосвязь физической и религиозной картин мира [Выпуск 1] (1996) [DJVU]
+VA - Petit Boutique Vol.3 (20 Lounge Accessoires) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794127.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795708.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Юрий Сергеевич Владимиров (род. 16 июля 1938, Москва) — российский учёный, физик-теоретик и философ, доктор физико-математических наук (1976), профессор (1994). Область научных интересов — классическая и квантовая теория гравитации, проблема объединения физических взаимодействий, многомерные модели физических взаимодействий, философские проблемы теоретической физики. (   Читать дальше...   )Жанр: Философия, религиоведениеФормат: DJVU
+01.  Bar & Bar  -  Night in Rio (Radio Edit)  3:57
+02.  Marco Del Giudice & Daniele Soriani  -  Vuelvo Al Sur (Bandoneon Remix)  3:28
+03.  Juliana Pasini  -  Corcovado (Original Mix)  3:25
+04.  Bessie Boni & Massimo Mantovani  -  Stella By Starlight (Original Mix)  3:51(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E59EB27B98AEDD3DD1B69F8AC30E1573B96FE17
+magnet:?xt=urn:btih:7E03A7FE31D20AB75D6D170341DF5809819A4295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200520   (795707) от 21.01.2018
+
+World's End Girlfriend - Ending Story (2000) F.R.D Record [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Listening You (07:00)
+ 02. Magical Romantic Freestyle (04:52)
+ 03. Heartbreak Wonderland (06:13)
+ 04. Cruel Girl's Beauty (09:43)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 01:12:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D64AE7DE44433FED89443E773E682040DE4DD0C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200533   (795706) от 21.01.2018
+
+Вадим Радецкий (сост.) | Юный русский чтец-декламатор (1911) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795706.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник стихов для среднего и старшего школьного возраста.Жанр: СтихиФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1295444B6B1ECDB06570DF4401A3523F891A8F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200221   (795705) от 21.01.2018
+
+Numenor - Chronicles from the Realms Beyond (2017) [FLAC|Lossless|image + .cue] <Symphonic Black Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart of Steel
+02. Carvenstone
+03. Witching Hour
+04. Beyond the Doors of the Night(   Читать дальше...   )Жанр: Symphonic Black Power MetalПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D88B855BFDE04C81D61A40EB7A09D35EDA2110
 ```
 
 https://mybot314.ru/tekegram_catalog/

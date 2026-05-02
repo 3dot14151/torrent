@@ -1,3 +1,32 @@
+###  Публикация: 961019   (303231) от 30.11.2015
+
+Rachmaninov - Complete Works for Piano and Orchestra (Rafael Orozco & Royal Philharmonic Orchestra) (2CDs) (1993) [FLAC|image +.cue]<Classical, Romantic Period, Post-Romantic, Concerto, Vari ...
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Concerto No. 1 in F sharp minor, Op. 1
+01. Vivace - Moderato (12:44)
+02. Andante (06:29)
+03. Allegro vivace (07:59)(   Читать дальше...   )Жанр: Classical, Romantic Period, Post-Romantic, Concerto, Variations, RhapsodyПродолжительность: 02:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DDB8FF3194D95479E7463FC17C32B92745E68D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261039   (303106) от 11.11.2018
 
 David Garrett - Unlimited: Greatest Hits (Deluxe Version, Digipak) (2018) [FLAC|Lossless|image + .cue] <Classical, Crossover, Modern Classic>
@@ -713,35 +742,6 @@ Act Two
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:628B0EEE7BC2EE0D2DBC35FAC1A9010EE49A7430
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424140   (295444) от 15.11.2020
-
-Florian Christl - Episodes (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melodie (2:40)
- 02. Regen Intro (1:15)
- 03. Regen (3:13)
- 04. Melancholie (1:27)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A57FAF7E2EC421EF29E75E04E8000E43A0DD7C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

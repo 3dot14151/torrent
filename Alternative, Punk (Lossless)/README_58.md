@@ -1,3 +1,61 @@
+###  Публикация: 1656766   (202737) от 01.09.2023
+
+Escape The Fate - Out Of The Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forgive Me [00:05:03]
+02. Choke [00:03:13]
+03. LOW [00:03:14]
+04. Rather Be Dead [00:02:36](   Читать дальше...   )Жанр: Post-Hardcore, Alt.RockПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D96FADED00322164B252D802D0DC8ECF85D59DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624750   (200218) от 08.04.2023
+
+Linkin Park - Meteora (2003) 3CD, 20th Anniversary Edition [FLAC|Lossless|image + .cue] <Alternative Rock, Nu Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+CD1 - Original Album
+CD2 -  LPU Rarities 2.0
+CD3 - Live Rarities 2003-2004Жанр: Alternative Rock, Nu MetalПродолжительность: 3 CD, 02:19:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D744AAE7FA507D2C5B35BEF4E29EC537DF5E4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1627056   (199637) от 17.04.2023
 
 Our Hollow, Our Home - Burn in the Flood (2021) 2023, Deluxe [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
@@ -685,64 +743,6 @@ Limbs - Everything Under Heaven (2023) [FLAC|Lossless|WEB-DL|tracks] <Mathcore, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6282969A21BD5649FA3B237F31EDD24436C4AB57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1659188   (190158) от 11.09.2023
-
-Osaka Punch - Mixed Ape (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Funk Rock, Jazz Fusion>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heat Death Ray [00:05:26]
-02. Hall of Shame [00:04:34]
-03. How We Operate [00:04:31]
-04. Slink [00:01:11](   Читать дальше...   )Жанр: Alternative Rock, Funk Rock, Jazz FusionПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248F12733BFF2033CA0D2421DDAB78848C0B6D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589489   (189924) от 10.11.2022
-
-Garbage - Anthology 1995-2022 (2022) 2 x CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189924.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Vow
-02. Subhuman
-03. Only Happy When It Rains(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:20:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:055E8BCF84C1F61F94096BE3A592DF6A9FEEA46A
 ```
 
 https://mybot314.ru/tekegram_catalog/

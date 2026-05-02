@@ -1,3 +1,119 @@
+###  Публикация: 1564327   (500651) от 18.07.2022
+
+Nalien - Моя маленькая вселенная (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500651.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не снимаю ТикТок
+2. Моя маленькая вселенная (feat. Майтиори)
+3. Бесконечность ржавых струн
+4. Да, мы потеряны (feat. PROSTOЯ)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:20:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485648F91C223D8C3AE1831D78BA5399DE19044A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1435338   (500513) от 18.07.2022
+
+Seraphim Project - 2 Albums (2020-2021) [MP3|320 Kbps] <Heavy Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эйзенхорн(Eisenhorn) [00:05:14]
+02. Легион проклятых(Legion of the damned) [00:05:32]
+03. Кадия стоит!(Cadia stands!) [00:06:45]Жанр: Heavy Power MetalПродолжительность: 2 CD, 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BD2A6FA32AA3468E92EC94FF87E0D4F4AD6FD68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 138874   (499762) от 03.09.2009
+
+Бахыт Компот - Самые лучшие телки (2009) [MP3|320 kbps] <Рок, Панк, Поп>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Самые лучшие телки (Папа) (5:20)
+02. Мне ничего не снится (4:03)
+03. Маленький мой котёнок (3:50)
+04. Полупустая дискотека (4:46)(   Читать дальше...   )Жанр: Рок, Панк, ПопПродолжительность: 00:47:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564622   (499705) от 19.07.2022
+
+YARuGA - Карколист (2022) [MP3|320 Kbps] <Ritual, Dark Pagan Folk Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Затмение
+02. Яргвизир
+03. Зов
+04. Шаман(   Читать дальше...   )Жанр: Ritual, Dark Pagan Folk Metal, Female Vocal
+Страна исполнителя (группы): Tula, RussiaПродолжительность: 00:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:070D24E984AC58F560EB7DF18654A440DC5C1962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564542   (499594) от 19.07.2022
 
 Sorrowful Knight - Legacy of The Knight (Best of 2014-2020) (2022) [MP3|320 Kbps] <Symphonic Power Metal>
@@ -626,125 +742,6 @@ Otto Dix - Автократор (2020) [MP3|320 Kbps] <Darkwave, Alternative>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2395253F4F097F0547C5A225DB9EB41D8150B3DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159318   (486040) от 19.08.2017
-
-Ноль Секунд Тишины - Твой Мир Во Мне (2017) [MP3|320 kbps] <Alternative Metal, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Под Кожей (04:32)
-02. Остаться Собой (04:23)
-03. С Нуля (03:40)
-04. Последний Бой (04:35)(   Читать дальше...   )Жанр: Alternative Metal, Female VocalПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88633363A7371DB1D59717A7B774EC04414DA5E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159353   (485805) от 19.08.2017
-
-Наив - Я - панк-рокер и алкоголик (2017) Single [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485805.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Я - панк-рокер и алкоголикЖанр: Punk RockПродолжительность: 00:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A8991F0330B39C4033EB5347B1C874608F6637
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545515   (485082) от 10.09.2012
-
-Астра - Белые Снега (2003) [Mp3|320 kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Приходящие извне (04:07)
-02. Лети (04:52)
-03. Моя земля (05:38)
-04. Соловей и медальон (05:33)
-05. 39 лет (05:21)
-06. Город Жажда (05:43)
-07. Потерянный в INTERNET (04:41)
-08. Эксперимент (03:01)
-09. Марш мотоциклистов (03:58)
-10. Хочу домой (05:32)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB798C3D9E720E86AEDB1AE7E4E21570BE7766BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1056047   (483854) от 24.09.2016
-
-Артур Беркут - Сюита темы вечной (2016) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро
-02. Сто дорог
-03. Крыльев взмах
-04. Незваный гость(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00402CB7ED8F12947EC2F0D32C6515F71B81B71A
 ```
 
 https://mybot314.ru/tekegram_catalog/

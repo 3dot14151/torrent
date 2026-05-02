@@ -1,3 +1,61 @@
+###  Публикация: 1579189   (338911) от 26.09.2022
+
+Howard Rumsey's Lighthouse All-Stars - In The Solo Spotlight! (1954, 1957) 1990, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funny Frank [4:07]
+02. That's Rich [6:05]
+03. If You Are There [6:00]
+04. Stan [4:01](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949F7ED39584B90EC16644B5322BCA623D8CF371
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258270   (338832) от 29.10.2018
+
+Stephane Grappelli - 1935 - 1943 (1998) Giants Of Jazz [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alabamy Bound [2:52]
+02. I've Found A New Baby [2:38]
+03. You Took Advantage Of Me [2:57]
+04. Out Of Nowhere [3:18](   Читать дальше...   )Жанр: SwingПродолжительность: 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3739DCD47411DDED81AC1A720787AA005AEE41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 581570   (338165) от 27.11.2012
 
 Curtis Counce - Sonority (1989) [FLAC|Lossless]<Hard Bop>
@@ -694,64 +752,6 @@ John Coltrane - "Live" At The Village Vanguard (1961) 2007, Verve [FLAC|tracks+.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:487E9DCBAD03E78EB68B843E5CD5C4E0EA5CAB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420400   (333876) от 31.10.2020
-
-VA - Signora Ward Records - Doom Jazz/Dark Jazz/Funeral Jazz vol. 2 (2020) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Funeral Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last call at Nightowls - Veracruz (Roma version) (5:51)
-02. Lowering - A White Cat (5:36)
-03. Shadowed Silhouette - Boundless Graveyard (8:10)
-04. Joel Fausto & Illusion Orchestra - The Portal (4:42)(   Читать дальше...   )Жанр: Doom Jazz, Dark Jazz, Funeral Jazz, Noir Jazz, Noise, ExperimentalПродолжительность: 01:55:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09EDFBBF8E597188A06D1FF0BDE63EE7BBF3A1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955625   (333852) от 11.11.2015
-
-Glenn Miller - Chattanooga Choo Choo: The #1 Hits (1991) [FLAC|tracks+.cue]<Jazz, Swing, Contemporary Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wishing (Will Make It So) (02:53)
-02. Stairway to the Stars (02:54)
-03. Moon Love (02:54)
-04. Over the Rainbow (02:29)(   Читать дальше...   )Жанр: Jazz, Swing, Contemporary Big BandПродолжительность: 01:10:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0AF0A224C59AD867B96AFDCC837FD6CFE95F898
 ```
 
 https://mybot314.ru/tekegram_catalog/

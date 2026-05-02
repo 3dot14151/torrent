@@ -1,3 +1,61 @@
+###  Публикация: 1224026   (667174) от 09.05.2018
+
+VA - Psychedelic Chill Bass (2018) [MP3|256 Kbps] <DnB, Dubstep, Experimental>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Govinda - Try Again
+02. Wu Wei - Eternally Unfolding
+03. Templo - Deja
+04. Tipper - Lattice(   Читать дальше...   )Жанр: DnB, Dubstep, ExperimentalПродолжительность: 06:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81598CB05FAE139E3F88F4A84801808CAF1D1377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137705   (666784) от 27.05.2017
+
+VA - Psybreaks [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Psybreaks>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acidova & Too Dusty - Too Acid [07:12]
+02. Perpetual Present - Collision Course (Bear Moss Remix) [06:06]
+03. Magnus - Frozen Sun (Chris Voro Thumping Remix) [06:00]
+04. Tee-ex - Wonder (Retroid Remix) [05:21](   Читать дальше...   )Жанр: PsybreaksПродолжительность: 04:24:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94B9D2FA486D8AA0A9058425E7CDD2ACC59FED1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224400   (666063) от 10.05.2018
 
 VA - Elite Session Uplifting Trance (2018) [MP3|320 Kbps] <Uplifting Trance>
@@ -693,64 +751,6 @@ VA - Ibiza Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:287F673355F6B16C54ED5AC2583AC455926DB18E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139570   (659291) от 03.06.2017
-
-VA - Empire Records - Retromania 2 (2017) [MP3|320 Kbps] <House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Leandro Da Silva - I Love House Music (Club Mix) 5:58
-02.  Funk The Beat & Bruno V - Six Years (Original Mix) 6:08
-03.  Televisor Danyka Nadeau - Odyssey (Highway Superstar Remix) 3:43
-04.  Dimitri From Paris & DJ Rocca - Disco Shake (Jkriv Remix) 6:41(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 01:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86498BBBF2580210D0CF77BDD6B103D736A61F93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 903325   (659141) от 30.05.2015
-
-VA - Sexy Trance #86 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_659141.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Running Man - Turn Back Time (Original Mix) (08:24)
-002. Santerna feat. Vadim K - The Maze Of Ice (Club Mix) (07:25)
-003. Snatt & Vix & Denise Rivera - Here For The Rush (Tomas Heredia Uplifting Mix) (07:55)
-004. Solarstone with Aly & Fila - Fireisland (Extended Mix) (07:42)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE0E9D0EEBE2FE407C20DA2D861EBECF47AD1A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

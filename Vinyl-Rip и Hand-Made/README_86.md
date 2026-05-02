@@ -1,3 +1,176 @@
+###  Публикация: 1789539   (68253) от 05.04.2025
+
+Nightwish - Dark Passion Play (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Poet and the Pendulum
+02. Bye Bye Beautiful
+03. Amaranth
+04. Cadence of Her Last Breath(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A923C525758C4E7ABFEF868315057A498F9C75AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789587   (68231) от 05.04.2025
+
+Ne Obliviscaris - Studio Albums (6 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Extreme Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ne Obliviscaris - австралийская метал-группа из Мельбурна, сформированная в апреле 2003 года.2012 - Portal Of I
+2014 - Citadel
+2015 - Hiraeth (EP)
+2015 - Sarabande To Nihil (EP)Жанр: Extreme Progressive MetalПродолжительность: 04:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33948BD0E0D92516A1CA929615ABD7B2802C3E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783158   (68217) от 06.04.2025
+
+Fatal Embrace (Germany) - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fatal Embrace - трэш-метал-группа из Берлина, Германия, образованная в начале 1993 года под названием Nosferatu.2000 - The Ultimate Aggression
+2002 - Legions Of Armageddon
+2006 - Dark Pounding Steel
+2010 - The Empires Of InhumanityЖанр: Thrash MetalПродолжительность: 05:08:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD947D813C35DC373CEE754CA10FFBE71E514546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789703   (68209) от 06.04.2025
+
+Manowar - Battle Hymns (1982) Reissue, 1987, Liberty [DSD|tracks|Vinyl-Rip] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68209.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Death Tone
+A2 Metal Daze
+A3 Fast Taker
+A4 Shell Shock(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E2ED05EF6FE0C72B96C9CE05E069E1EE027D524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789640   (68207) от 06.04.2025
+
+Fear Factory - Fear Is the Mindkiller (1993) (EP) [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Martyr (Suffer Bastard Mix)
+02. Self Immolation (Vein Tap Mix)
+03. Scapegoat (Pigfuck Mix)
+04. Scumgrief (Deep Dub Trauma Mix)(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D44B320084E461C851CC99C60CF820B566F894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789687   (68202) от 06.04.2025
+
+Nightwish - Bye Bye Beautiful (2008) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Beautiful
+02. The Poet and the Pendulum (Demo Version)
+03. EscapistЖанр: Symphonic Power MetalПродолжительность: 00:22:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECDEBF2F9C9068A3E0529E52C240EB509F9B7486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1789747   (68196) от 06.04.2025
 
 Manowar - Defender (1983) (Single) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
@@ -569,179 +742,6 @@ Manowar - Fighting the World (1987) [APE|24/96|image + .cue|Vinyl-Rip] <Heavy Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F52A4B11ABB53EDF7C9CAE2277412FA2AFFBFA27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791908   (67768) от 17.04.2025
-
-Jimi - Джими (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67768.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 You Wanna Love Me • Ты Снова Хочешь Меня Любить
-A2 Everybody Knows • Всем Известно
-A3 Bad Girl • Плохая Девчонка
-A4 I Feel The Heat Of The Night • Я Чувствую Жар Ночи(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D87B9C631605660766791C2BDC4A3E6F87046EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791357   (67762) от 17.04.2025
-
-Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Music
-02. Noise
-03. Shoemaker
-04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13A9D05148E448F7B57F62B866C2D20A315C7588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791405   (67759) от 17.04.2025
-
-Manowar - Fighting the World (1987) Reissue, 2018, Metal Blade Records [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67759.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fighting The World
-A2 Blow Your Speakers
-A3 Carry On
-A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EE362D7BB4F8975E2E84D7050B8705647A7EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791931   (67757) от 17.04.2025
-
-Damnation Plan - Studio Albums (3 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Damnation Plan - метал-группа из Эспоо, Финляндия, образована в 2004 году.2013 - The Wakening
-2017 - Reality Illusion
-2023 - The New HorizonЖанр: Progressive/Melodic Groove MetalПродолжительность: 02:25:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1683E08EECD22897B0BC9C3A35ACCEB85624A8BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791741   (67756) от 17.04.2025
-
-Soulfly - Soulfly (1998) [DSD128|image|Vinyl-Rip] <Thrash Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67756.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1-Eye For An Eye
-A2-No Hope = No Fear
-A3-Bleed
-A4-Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCF9F0D8C0D076FDFEDBBC808DAA98297268B6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791398   (67753) от 17.04.2025
-
-Fear Factory - The Industrialist (2012) Reissue, 2023, Nuclear Blast Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67753.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - The Industrialist
-A2 - Recharger
-A3 - New Messiah
-B1 - God Eater(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:16:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A54E354492DA761104DFEF7EF8216CCC5FE4127B
 ```
 
 https://mybot314.ru/tekegram_catalog/

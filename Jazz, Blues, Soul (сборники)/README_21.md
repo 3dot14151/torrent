@@ -1,3 +1,32 @@
+###  Публикация: 1638483   (211669) от 12.06.2023
+
+VA - Hey, what's that sound - Hammond Organ! (2023) 2CD [MP3|320 Kbps] <Jazz, Hammond, Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down to the Bone - Vinyl Junkie [05:25]
+02. Eloy - Inside (Remastered) [06:42]
+03. John McLaughlin - My Favourite Things (Instrumental) [06:17]
+04. Elvis Costello & The Attractions - Watch Your Step [02:59](   Читать дальше...   )Жанр: Jazz, Hammond, RockПродолжительность: 11:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B551F4CD020B5BF572EC59F5942FB0E50E6F38B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641397   (210540) от 25.06.2023
 
 VA - Blues On My Soul (2023) [MP3|320 Kbps] <Blues>
@@ -716,35 +745,6 @@ VA - Feeling Blues (2020) [MP3|320 Kbps] <Blues, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6276F0644E423C44963F2C7A6C5F47FB272DB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668142   (173871) от 12.10.2023
-
-VA - Blues Sweet Sadness (2023) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roosevelt Sykes - I Hate To Be Alone [01:58]
-02. Johnny Drummer - Is It Love Or Is It Lust [04:20]
-03. Chris Beard - All Night Lng [06:16]
-04.  The Black Tornado - Never Givin In [04:55](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 05:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7D0BD7710221B1159E8A29161079ABFE6E69C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

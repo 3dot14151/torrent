@@ -1,3 +1,119 @@
+###  Публикация: 1734228   (107166) от 02.07.2024
+
+Knut Nordhagen & Bluepack - Maximum R & B (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Muddy Water (3:59)
+02. Lost in the Groove (3:55)
+03. Eye of the Spy (4:42)
+04. Slave to the Rhythm (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1E13D5FC3B22E97D0E841BF99B77362A8B4012B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734271   (107165) от 02.07.2024
+
+Berk Jodoin - Fly Away (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aces & 8's (3:11)
+02. Weather The Storm (3:38)
+03. Gascoigne Choir (4:23)
+04. Slow Down (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B22F85CDBF510F9D2AD8EB2ADE41B9841148F480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734272   (107162) от 02.07.2024
+
+BRTHR - Brother (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartache Street (4:44)
+02. Holding On So Tight (2:51)
+03. Bridges (4:47)
+04. Cool Water (3:05)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC0234D017DE9CF29675FEF6DB82458E09226055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734276   (107161) от 02.07.2024
+
+Grand Causse - Sauvages Celestes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BARELY INNOCENT (3:52)
+02. ORDERLY ROWS (2:55)
+03. DESINTEGRATION (1:34)
+04. MEMORIES OF JANE (2:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82C9119B19AA14FE84F933EB394D34FBFBD9100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734225   (107160) от 02.07.2024
 
 Karen Lawrence - The Blues Is Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Dwayne Dopsie, Zydeco Hillraisers - Now Is The Time (2024) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65CE18AB9C32211AD6D643F5E6D4CABF9D7164A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737048   (106545) от 16.07.2024
-
-Bluesnake - New Chapter (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Food for the Soul (3:31)
-02. Silence is Calling (3:30)
-03. Nighttime (4:48)
-04. Was it You? (4:07)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E11CC1696F1B6D9E9D68970C597BE617CE8A9A98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737044   (106544) от 16.07.2024
-
-Anthony Q - Rebirth of Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Full of Dat Oil (2:58)
-02. Get in (2:36)
-03. Sound (3:09)
-04. Hard on these hoes (3:14)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:35:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E008E0D4EC2F8836D13D10A202E073DADB274915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737060   (106543) от 16.07.2024
-
-Dennis Jones - About Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Condition Blue (4:07)
-02. Don't Stop (3:45)
-03. You're Killin' Me (3:48)
-04. Mother Earth (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10655E877CA5F70E4990ECF3CDBDFFE526AA6A6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737061   (106541) от 16.07.2024
-
-Diana Braithwaite & Chris Whiteley - Forever Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoodoo Man Blues (3:30)
-02. You're the Boss (2:48)
-03. Mean Old Frisco (5:21)
-04. The Moon Is Rising (5:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EA112D54F251B078B1D6CDF1E22EEB7DB01D60
 ```
 
 https://mybot314.ru/tekegram_catalog/

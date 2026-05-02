@@ -1,3 +1,61 @@
+###  Публикация: 744688   (583941) от 12.05.2019
+
+VA - Баллады Русского Рока (2014) [MP3|192-320 кб/с]<Rock, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Azazello - Осень
+02. De'cadenta - Босиком
+03. Materia Prima - Царство Теней
+04. R-Genium - Будь со мной(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 12:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4750D1B7431A278256897CD86EA9046FFA7BCEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 690392   (583872) от 12.05.2019
+
+VA - Heavy Japan Vol.01 - Vol.10 (2013-2015) [MP3|192-320 кб/с]<metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scorpions - Cold [00:03:53]
+02. Altaria - Metality [00:05:02]
+03. Epica - Triumph Of Defeat [00:03:58]
+04. Tony Iommi - Let It Down Easy [00:04:31](   Читать дальше...   )Жанр: metalПродолжительность: 11:20:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21E0DDE1D3AC6BE34A6A75E37373E2BFE416E88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553394   (582881) от 25.05.2022
 
 Bloodhound Gang - The Bad Touch (1999) [MP3|320 Kbps] <Alternative, Punk>
@@ -687,64 +745,6 @@ VA - Kings of Classic Rock (2016) [MP3|320 Kbps] <Rock, ArtRock, HardRock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85E7402D7B68F6301065C1D258328736288CBE62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304920   (559921) от 28.05.2019
-
-VA - Right To Life: Punk Rock Collection (2019) [MP3|231-320 Kbps] <Punk Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559921.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bad Religion - The Kids Are Alt
-002. Nations Afire - I'm A Brick In The Ocean
-003. Bye Bye California - Imperio
-004. Camiches - Damariz(   Читать дальше...   )Жанр: Punk RockПродолжительность: 06:00:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37469F444C70CF16F9400E9135F6C160A37DE401
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924716   (557307) от 04.08.2015
-
-VA - Музыка Нашествия 2015 (2015) [MP3|320 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.25-17 - Просыпайтесь! (02:48)
-02.7000$ - Хозяин леса feat. Noize MC, Staisha (03:45)
-03.7Б - Холодно (vs. Влад Демьян) (04:26)
-04.Brainstorm - Эпоха (03:19)(   Читать дальше...   )Жанр: RockПродолжительность: 04:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF515C226C0BA282D849EA3062FC4C315F445835
 ```
 
 https://mybot314.ru/tekegram_catalog/

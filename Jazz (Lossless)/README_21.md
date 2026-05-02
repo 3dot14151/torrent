@@ -1,3 +1,73 @@
+###  Публикация: 609610   (992214) от 27.01.2013
+
+Various Artists - Basstorius - Music Inspired by the Genius of Jaco Pastorius (1993) [FLAC|Lossless]<Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notorius (Laurence Cottle) (5:28)
+02. Nude Descending a Staircase (T De Winkel & Matteo Garrison) (4:15)
+03. Madrid (Carlos Benavent) (4:48)
+04. Yoto (Randy Bernsen Trio) (5:49)
+05. Juanita (Dave LaRue) (2:40)
+06. Basstorius (Koono) (6:43)
+07. The Cat (Ben Hullenkrember & Kai Eckhardt) (4:34)
+08. Tribute (Stefan Rademacher) (6:12)
+09. If Only (Alan Thomson & Dave Lewis) (3:06)
+10. The Man From The Everglades (Mo Foster) (4:02)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609637   (992178) от 27.01.2013
+
+Pasadena Roof Orchestra - Licensed To Swing (2011) [FLAC|Lossless]<Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992178.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. You're the Top (3:41)
+ 2. At the Jazz Band Ball (3:12)
+ 3. Bel Ami (3:16)
+ 4. No Strings (3:10)
+ 5. Futuristic Rhythm (2:59)
+ 6. Polka Dot Rag (2:54)
+ 7. About a Quarter to Nine (3:26)
+ 8. I Heard (2:25)
+ 9. Without That Certain Thing (3:22)
+ 10. Am Sonntag Will Meine Süsse Mit Mir Segeln Gehn (2:36)(   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609593   (992096) от 27.01.2013
 
 Modern Gustin Trio - The Beatles Go Jazz (1995) [FLAC|Lossless]<Jazz>
@@ -710,70 +780,6 @@ Tony Bennett - The Playground (1998) Columbia [FLAC|Lossless|tracks + .cue] <Voc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16CCDADE4CE561611B3DAAD27AB39FD3FDE12360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1354874   (986222) от 24.01.2020
-
-Paul Desmond - The Ballad of Paul Desmond 1961 - 1965 (1996) BMG [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Has a Thousand Eyes [4:46]
-02. Samba de Orfeu [4:21]
-03. Take Ten [3:08]
-04. Curacao Doloroso [4:30](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:521DD3D651180B6FEA6B8CF9067A8C2D55415EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 612388   (986210) от 02.02.2013
-
-Various Artists - Smooth Jazz for a Rainy Day (1999) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe Fuentes - Slow Brew
-02. Darren Motamedy - Maybe Someday
-03. Nite Flyte - The Love I Give
-04. Duncan Millar - Lazy Days
-05. Soft Sugar - Sunset del Mar
-06. Deems - Romance Blue
-07. James Branch/Oneness - Near the Castle at Elmina
-08. Mark Hasselbach - Across the Canyon
-09. Chris Standring - Solitaire
-10. Michael Mcevoy - Cycles of Re-ElevationЖанр: Smooth JazzПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

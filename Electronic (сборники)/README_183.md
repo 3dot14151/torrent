@@ -1,3 +1,61 @@
+###  Публикация: 1190579   (266904) от 10.12.2017
+
+VA - Hed Kandi - Diamond Collection of Beach House 2000-2017 (2017) [Compiled by Firstlast] [MP3|320 Kbps] <Chill House, Disco House, Funky House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266904.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжительность: 05:07:39
+01. Julius Papp - Pacific State (12'' mix) [7:01]
+02. Factor 15 - Summer Love (Beach House Dub) [7:12]
+03. Nightsource - Just Right [7:01](   Читать дальше...   )Жанр: Chill House, Disco House, Funky HouseПродолжительность: 08:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B01D8EE4F284B7B4BE64ECD23200E02532240641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1267312   (266730) от 06.12.2018
+
+VA - We Are Humans: Synth Electronics Mix (2018) [MP3|320 Kbps] <Synthetic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266730.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Klangstrahler Projekt - Adore
+002. Alberto Remondini - Double Bacon (Radio Edit)
+003. Astrovoyager - We Are Humans
+004. Carles Dj - Action Soul(   Читать дальше...   )Жанр: SyntheticПродолжительность: 10:15:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4926209B3C2C2C83503F3C542D50AC33CEDF31A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1267520   (266573) от 06.12.2018
 
 VA - Options Remake Of Tracks November -D- (2018) [MP3|320 Kbps] <Electronic, Club, House>
@@ -687,64 +745,6 @@ VA - Zone Remixes - Fundamental Trance (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DFEDD41F2373988F9B6E3FCCD6BBE0E224DAA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192381   (263199) от 17.12.2017
-
-VA - Record Super Chart #516 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Diablo  -  Momentum  3:28
-02.  EKTONIX  -  Vuono Matyn  2:30
-03.  Alan Walker  -  The Spectre  3:14
-04.  Katy Perry feat. Nicki Minaj  -  Swish Swish (Mikis Remix)  4:30(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD8A72516D19C90410CE6D58EAA4BD4FA43EF86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341144   (262938) от 26.11.2019
-
-VA - Sounds Of New Generation (2019) [MP3|320 Kbps] <Electronic, Synth Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262938.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Three Women In Charge - Dilly Dally
-002. Mentallo & The Fixer - Sacrilege
-003. Low Tape - Walking The Streets
-004. Beatamines - I Got (Original Mix)(   Читать дальше...   )Жанр: Electronic, Synth ElectronicПродолжительность: 13:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7355135B1E05DC2B937815E46F49BB701BE3583
 ```
 
 https://mybot314.ru/tekegram_catalog/

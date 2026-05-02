@@ -1,3 +1,62 @@
+###  Публикация: 1414051   (387592) от 07.10.2020
+
+Rob Barron - From This Moment On (2020) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rob Barron - оплот лондонской джазовой и студийной сцены. Постоянно пользующийся спросом, высоко ценимый за его импровизационное чутье, врожденную музыкальность и ловкость, которые раскрывают влияния, вдохновленные великими музыкантами Blue Note greats Cedar Walton, Wynton Kelly and Sonny Clark.
+Его любовь к фортепиано возникла в раннем возрасте и быстро превратилась (   Читать дальше...   )01. Lover Man (04:56)
+02. Pure Imagination (05:59)
+03. My Foolish Heart (06:25)
+04. Butch and Butch (04:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC608141C030A1F75143DA4CEF734290A17A8E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174125   (387540) от 14.10.2017
+
+Jessica Williams - In The Key Of Monk (1997) 1999, Jazz Focus [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bemsha Swing [04:39]
+02. Just a Gigolo [04:32]
+03. Reflections [06:03]
+04. I Love You Sweetheart of All My Dreams [03:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D304C21C7CBD6B531C75BD0E9C3B9D147D2A8EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326272   (387433) от 19.09.2019
 
 Herbie Mann - Windows Opened & The Inspiration I Feel (1968) 2001, Collectables [FLAC|Lossless|tracks + .cue] <World Fusion, Jazz-Pop>
@@ -687,64 +746,6 @@ Joe Locke & 4 Walls of Freedom - Dear Life (2004) Sirocco Jazz Limited [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42A967F50C6A458869989062ADC755BCCF35AE95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253419   (383570) от 09.10.2018
-
-The Four Freshmen - 22 Legendary Hits: Portrait of the Artists (1950-e - 1960-e) 1995, CEMA Special Markets [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's a Blue World [2:56]
-02. Graduation Day [3:04]
-03. Charmaine [2:18]
-04. Satin Doll [2:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D77AC8E6838E4A54183DAE63776F0E66489178F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1174912   (383405) от 16.10.2017
-
-Peter Ecklund - Eclund At Elkhart The Classic Jazz All-Stars (1995) Jazzology Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening Remarks [05:56]
-02. Sweethearts On Parade [06:20]
-03. Yatch Club Swing [03:21]
-04. Trees [04:30](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB1CAD06856C102511111FA121D104B0FC95541B
 ```
 
 https://mybot314.ru/tekegram_catalog/

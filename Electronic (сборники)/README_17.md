@@ -1,3 +1,61 @@
+###  Публикация: 971890   (984772) от 04.01.2016
+
+VA - Fantasy Chillout Selection (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shin Elto - Deep Mundo [04:49]
+02. XM Ensemble - Dark & Blonde [03:47]
+03. Reverb Time - Beautiful You [03:32]
+04. Double T Project - Behind the Mirror [04:17](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7253E9002D64BDECE182817B536325ED1E19387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971799   (984654) от 04.01.2016
+
+VA - Water Show: Matrix Bass (2016) [MP3|320 кб/с] <Dubstep, DnB>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984654.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taptone x Capitale - Breathing
+002. Fabian Mazur - Everybody Jack
+003. Royal Blood - Sawdust
+004. Skrux - Essence(   Читать дальше...   )Жанр: Dubstep, DnBПродолжительность: 09:12:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61915BDEEB1C6EC46ECA0DEEA2C3F4A26A287869
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971870   (984594) от 04.01.2016
 
 VA - Explosion Samples Tropic House (2016) [MP3|230-320 кб/с] <Tech House, Soulful, Nu Disco, Progressive, Tropical House>
@@ -699,64 +757,6 @@ VA - Club Hits (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FDC2259B26060ACA554E483325232967FF02CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973507   (979208) от 09.01.2016
-
-VA - Best Of Vocal Trance (2016) [MP3|320 кб/с] <Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenishia - Strong (Radio Edit)
-02. Stargazers - Black Diamond (Radio Edit)
-03. Kaimo K - Love Will Never Leave (Radio Edit)
-04. Hazem Beltagui - Silent For So Long (Maratone Radio Edit)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:31:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E6DCCAA2B8E3772ADFB4C38ABF0AA25C0991670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356380   (979190) от 30.01.2020
-
-VA - Keep Growing: Deep Techno Electronic (2020) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979190.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Chosen Two - Neue Mattheit
-002. Christopher Ivor - 3am Tribute
-003. Angerfist - The Desecrated
-004. Il Gualdo - Satans Laughter(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 14:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3873AA0C64A9AA61071FA0BDDAB08DD3A7BEFCB
 ```
 
 https://mybot314.ru/tekegram_catalog/

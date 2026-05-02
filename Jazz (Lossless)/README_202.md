@@ -1,3 +1,61 @@
+###  Публикация: 949942   (373137) от 25.10.2015
+
+Omer Avital - Asking No Permission (2006) [APE|image+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Know What I Mean
+02. Lullaby Of The Leaves
+03. Ballad
+04. Devil Head(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:14:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B23E429FA335C17F48FE1956149FBACFDDC2CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949937   (373121) от 25.10.2015
+
+Omer Avital - New Song (2014) [FLAC|Lossless|WEB-DL]<Post-Bop, World Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hafla
+02. New Song
+03. Tsafdina
+04. Avishkes(   Читать дальше...   )Жанр: Post-Bop, World Fusion, Contemporary JazzПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48AF37ACAEFDA39084B755DDBBD01B7CFF9DCC23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 949777   (373091) от 25.10.2015
 
 VA - The Elevator Collection (1997) /BMG/[FLAC|tracks+.cue]<Swing, Big Band, Easy Listening>
@@ -687,64 +745,6 @@ Toshiko Akiyoshi - Lew Tebackin Big Band (2009) /Mosaic Select 33, LE, 3CD/ [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7409C1632307C849AE8BA45B755699DA458A988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950062   (370400) от 26.10.2015
-
-Pat Metheny and Ornette Coleman - Song X (1985) [FLAC|tracks+.cue]<Jazz, Free Jazz, Post-Bop, Avant-Garde, Modern Creative, Free Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song X (05:39)
-02. Mob Job (04:13)
-03. Endangered Species (13:20)
-04. Video games (05:22)(   Читать дальше...   )Жанр: Jazz, Free Jazz, Post-Bop, Avant-Garde, Modern Creative, Free FunkПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1893BA35F4D1D306AD5478E7DD531CA575F973
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950173   (370395) от 26.10.2015
-
-One For All - No Problem (2003) /Venus Records/[FLAC|tracks+.cue]<Post-Bop, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370395.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Our Father Who Art Blaky [08:19]
- 02.No Problem [08:24]
- 03.Moanin' [08:32]
- 04.Whisper Not [07:54](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:925E7BE532ECDBBAB4F410679D40D1E0CAF0C8AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

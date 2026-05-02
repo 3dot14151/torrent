@@ -1,3 +1,235 @@
+###  Публикация: 1686697   (126461) от 23.12.2023
+
+Maggie Lindemann - SUCKERPUNCH (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. intro - welcome in
+02. take me nowhere
+03. she knows it
+04. casualty of your dreams(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FFB01A2BCDE3185C0045EB6FFBC0FFB514A2A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686677   (126251) от 24.12.2023
+
+TV Girl - Death of a Party Girl (2018) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Hypnotic Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Pretty Boys (02:46)
+02.7 Days til Sunday (03:35)
+03.Blue Hair (03:37)
+04.Lonely Girls (02:55)(   Читать дальше...   )Жанр: Hypnotic PopПродолжительность: 00:38:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459B281917CF3CAD7E101426CF739B7CC3980032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687165   (125604) от 26.12.2023
+
+VA - Pop Christmas Songs (2023) [FLAC|Lossless|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pentatonix - We Need A Little Christmas (00:02:26)
+02. nsync - Merry Christmas, Happy Holidays (00:04:12)
+03. Elle King - Please Come Home for Christmas (00:02:57)
+04. Darlene Love - Christmas (Baby Please Come Home) (00:02:46)(   Читать дальше...   )Жанр: PopПродолжительность: 03:14:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC873B187D4E08F74B5A332EA06DC079A99893E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690198   (124043) от 06.01.2024
+
+Gesaffelstein - Hyperion (2019) Digital Album [FLAC|Lossless|WEB-DL|tracks] <Pop/R&B>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hyperion (2:53)
+02.Reset (3:25)
+03.Lost in the Fire (with The Weeknd) (3:22)
+04.Ever Now (1:38)(   Читать дальше...   )Жанр: Pop/R&BПродолжительность: 40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC1EA4620A79A9A606C6D32BF0EA921323D711E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690713   (123813) от 08.01.2024
+
+Dan Balan - Freedom, Pt. 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allegro Ventigo (feat. Matteo) (3:42)
+02. Balzam (feat. Lusia Chebotina) (3:38)
+03. Домой (feat. Тина Кароль) (4:25)
+04. Numa Numa 2 (feat. Marley Waters) (3:24)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:876C2C2D7BEC15B3ABD4733C68DA9EE53C1B9240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690723   (123781) от 08.01.2024
+
+Penfield - We All Fall Apart (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Caleb + Sophia
+02 - Hang On
+03 - We Belong
+04 - We All Fall Apart(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7B2C2EF3D0FA575F80C903109A95F6F2EC9FFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1688158   (121938) от 20.01.2024
+
+A-HA - Hunting High And Low (1985) 1st German Press Gold disc [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take On Me (3:49)
+02. Train Of Thought (4:14)
+03. Hunting High And Low (3:45)
+04. The Blue Sky (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 37:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769A6B65E5AE8AAFDA0EBB1806B24346D259678B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693234   (121900) от 20.01.2024
+
+Hurts - Happiness (2010) 1st EU Press [APE|Lossless|image + .cue] <SynthPop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver Lining (4:57)
+02. Wonderful Life (4:14)
+03. Blood, Tears & Gold (4:18)
+04. Sunday (3:53)(   Читать дальше...   )Жанр: SynthPopПродолжительность: 48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F2FEECB4DA9FD1C824EB85DEF52BA0D34017D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690347   (121888) от 20.01.2024
 
 A-HA - Scoundrel Days (1986) 1st German Press [APE|Lossless|image + .cue] <Pop>
@@ -511,238 +743,6 @@ VA - 70s & 80s Greatest Hits (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ot
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A61F92C19B9B04CBABC52A6C851E7F656D6BAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701246   (116546) от 20.02.2024
-
-Spandau Ballet - The Twelve Inch Mixes (1986) Compilation, Reissue, Disky [FLAC|Lossless|image + .cue] <Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spandau Ballet - британская группа, созданная в 1979 году и конкурировавшая с Duran Duran за внимание американских и европейских слушателей. Поначалу играли синти-поп с налётом фанка, однако уже к 1981 году эволюционировали в сторону романтической поп-музыки, рассчитанной на самого широкого слушателя ("new romantic"). Песня "True" (1983), лидер (   Читать дальше...   )01. Gold (7:22)
-02. Lifeline (5:22)
-03. Round And Round (12" Version) (5:35)
-04. Only When You Leave (12'' Version) (6:24)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83BAB0162D6DA9C5A95DA078AED9372A7B14B0B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701577   (116235) от 22.02.2024
-
-The Weeknd - The Highlights (2021) Deluxe, 2024, Universal Republic Records [FLAC|Lossless|WEB-DL|tracks] <R&B>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Die For You [00:04:20]
-02. Starboy [00:03:50]
-03. Save Your Tears [00:03:35]
-04. Blinding Lights [00:03:20](   Читать дальше...   )Жанр: R&BПродолжительность: 02:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3622CD53569CD264D89BDBA9F8AE6CF57E42558D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701610   (116209) от 22.02.2024
-
-Nada (Nada Malanima) - Collection (1969-2022) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In mezzo al mare (2:58)
-02. Io ci sono (3:53)
-03. Sorridimi (2:51)
-04. Chi non ha (3:47)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 09:20:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C291927830820B21557A29D1E6301D7FC88CA86A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701362   (116183) от 22.02.2024
-
-Chromeo - Adult Contemporary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance-pop, Nu-Disco, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116183.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. (I Don’t Need A) New Girl
-2. Got It Good
-3. Lost And Found
-4. BTS(   Читать дальше...   )Жанр: Dance-pop, Nu-Disco, Synth-popПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D69933353D97C9B2211D6FB8E771ED970FB27D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701991   (116018) от 23.02.2024
-
-Rod Stewart with Jools Holland - Swing Fever (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Swing>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby of Broadway (5:03)
-02. Oh Marie (2:33)
-03. Sentimental Journey (2:55)
-04. Pennies from Heaven (2:59)(   Читать дальше...   )Жанр: Pop, Rock, SwingПродолжительность: 00:38:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:346B7E2318A4B807F6ECD46A4AC2F5688374CC82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702159   (116016) от 23.02.2024
-
-Al Corley - Square Rooms (1984) [FLAC|Lossless|WEB-DL|tracks] <Pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Square Rooms (03:42)
-02. Hungry for Your Love (04:13)
-03. Lie Detector (03:31)
-04. One of a Kind (05:33)(   Читать дальше...   )Жанр: Pop, Synth-popПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EFCEDB3F613904BD03518B1B83BE13269522D59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702063   (116005) от 23.02.2024
-
-Elsa Esnoult - 7 (2024) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guerrier de l'amour (3:21)
-02. Sauvage (3:04)
-03. Comme une petite fille (2:56)
-04. Avec toi (3:24)(   Читать дальше...   )Жанр: French PopПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31CA993C10B4610C608014102672033ADA6043F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702598   (115726) от 25.02.2024
-
-Celine Dion - Courage (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying On My Own
-02. Lovers Never Die
-03. Falling In Love Again
-04. Lying Down(   Читать дальше...   )Жанр: PopПродолжительность: 01:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA1A009248BDD02D7730B317A4983E339CFE61C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

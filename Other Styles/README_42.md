@@ -1,3 +1,206 @@
+###  Публикация: 1198988   (801720) от 15.01.2018
+
+Padma Previ - Saraswati (2012) [FLAC|Lossless|image + .cue] <Meditative, Mantras, Chants>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upa Brahmani 07:29
+02. Vayavindrashca 08:20
+03. Upa Nah Savana 06:16
+04. Mahanabhistirojasa 07:13(   Читать дальше...   )Жанр: Meditative, Mantras, ChantsПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87410EE0D3D63784A675897A0558B2899139D8E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199103   (801690) от 15.01.2018
+
+New Sun Pops Orchestra - Guitar Mood (1976) 2 Альбома, LP [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jambalaya  (03:03) 
+02. Rain Rain  (02:52) 
+03. El Condor Pasa  (02:36) 
+04. Yesterday Once More  (03:26) (   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:14:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B0EE62643A855F09AC04254B6B7AD355BABD3C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384563   (801687) от 21.05.2020
+
+LEYA - Flood Dream (2020) [FLAC|Lossless|tracks + .cue] <Avant - Folk, Chamber Music>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weight (feat. GABI) (03:52)
+02. Wave (04:11)
+03. INTP (03:48)
+04. ABBA (04:34)(   Читать дальше...   )Жанр: Avant - Folk, Chamber MusicПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8981BF670AFDDB11217456623A52C5D5291E8C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384631   (801678) от 21.05.2020
+
+Евгений ( Zagot ) Загот - Парад планет  (2005) [FLAC|Lossless|tracks + .cue]<Instrumental, Piano, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro ( Ambient Dream )
+02. Париж
+03. Я тебя читаю
+04. Аквамарин(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1CB53B577B0CB4B9DA73408EDF0B59F1ED27A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120288   (801195) от 01.04.2017
+
+VA - From Russia With Song: 20 Greatest Russian Hits (2000) [MP3|320 Kbps] <Pop, Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Владимир Трошин - Подмосковные вечера
+02. Краснознамённый им. Александрова Ансамбль песни и пляски Советской Армии - Калинка (солист Алексей Мартынов)
+03. Тамара Синявская - Катюша
+04. Пётр Лещенко - Чубчик(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:06:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E4CA21831370071CA988322FE9BA4D9EAC68BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199611   (801093) от 16.01.2018
+
+Terry Lee Nichols & Rebekah Eden - We Have Only Come to Dream (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phantasmagorical Voyage (3:40)
+02. The Anasazi (3:57)
+03. We Have Only Come to Dream... (3:37)
+04. 1492 (2:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2398322E9AC0ADF03889D79E185D9EE196D9A8DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1199485   (801080) от 16.01.2018
+
+Jon Thebur - Sansula (2017) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From The Beginning (4:28)
+02. Finding And Founding (4:49)
+03. Long, Long Trip (4:28)
+04. Inside (4:27)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0042972EB5B3FBBEAD846A7532803E87BEBC7D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1506178   (801041) от 30.10.2021
 
 Sax Project - Saxo and Movies (2011) 3CD [MP3|320 Kbps] <Easy Listening, Sax>
@@ -539,206 +742,6 @@ Mark Mancina, VA - Moana / Моана (Оригинальный саундтре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC844DABD9D997E66CEC77949CB26AD0945EE33D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121221   (800026) от 02.04.2017
-
-Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now You See Me 2 Fanfare (03:20)
-02. Now You See Me 2 Main Titles (03:01)
-03. 300 Seconds (07:26)
-04. The Setup (05:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDBCB21C4D32E23E87DD1808CB27309A6724755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121218   (800022) от 02.04.2017
-
-Brian Tyler - Now You See Me 2 / Иллюзия обмана 2 (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now You See Me 2 Fanfare (03:20)
-02. Now You See Me 2 Main Titles (03:01)
-03. 300 Seconds (07:26)
-04. The Setup (05:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D734CBC8CC082A022960D14D1227A9B89DB31A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121740   (799631) от 03.04.2017
-
-Aenigmatica - Enigmatic (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigmatic (05:42)
-02. Occulta Mysteria (05:23)
-03. Hypnosis (06:03)
-04. Lakota Myths (05:23)(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 01:18:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7FB225874958CAE48F992A7DE825247218D1432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 49378   (799510) от 03.04.2017
-
-G.E.N.E. [Полная дискография] [1991-2000] [MP3|160 CBR] <New Age, Ethnic, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_799510.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New Age, Ethnic, MeditativeФормат: MP3Продолжительность: 59:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273797   (799396) от 03.01.2019
-
-Andreas Vollenweider - Down to the Moon (1986) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down to the Moon 02:27
-02. Moon Dance 04:10
-03. Steam Forest 04:59
-04. Water Moon 02:15(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A22C00EF998AA85A4A7FF4EF996D7490D275D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272439   (799394) от 03.01.2019
-
-Doyle W. Donehoo - Battlefleet Gothic Armada (2016) Gamerip [FLAC|Lossless|tracks] <Soundtrack, Epic, Battle>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Main Theme. 2,13
-03. Narrative 02.    9,27
-04. Schindelgeist. 14,5
-05. Campaign 01. 	14,19(   Читать дальше...   )Жанр: Soundtrack, Epic, BattleПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E824BE52A943351233A691CFDE7C4797B8FB2FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121803   (799220) от 04.04.2017
-
-Mehdi - Christmas Treasures II (2005) 2009, SoothingMusic [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holly Jolly Christmas
-02. So This Is Christmas
-03. We Wish You A Merry Christmas/Feliz Navidad
-04. Jingle Bell Rock(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:31:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4007DB576F91C49C97336FCE1F375674FDAAB55A
 ```
 
 https://mybot314.ru/tekegram_catalog/

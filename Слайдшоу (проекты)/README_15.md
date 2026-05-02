@@ -1,3 +1,30 @@
+###  Публикация: 994004   (893376) от 06.03.2016
+
+Проекты - VideoBlocks - Event Promo [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893376.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C7AA9CF10D2C838090718EAE8D88C59DCDF738D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101942   (892511) от 08.02.2017
 
 Проекты - VideoHive - Slideshow - 19314970 [AEP]
@@ -652,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A4BF1492256C368032EB921C7270737EB1BA66B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103292   (887260) от 11.02.2017
-
-Проекты - Motion Array - Minimal Promo [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Minimal Promo - это свежий взгляд и творческий подход для того, что бы предать Вашим медиа-файлам стильный внешний вид. Проект прост в настройке. Включает в себя 12 редактируемых заполнителей для фото-видео материалов и 43 заполнителя для титров.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDDCDF6C981D2DE83A817902E061A27E4E64692C
 ```
 
 https://mybot314.ru/tekegram_catalog/

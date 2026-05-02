@@ -1,3 +1,119 @@
+###  Публикация: 1452687   (1027347) от 08.03.2021
+
+Georgia Van Etten - Deep Black Water (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude - Take Me Down (1:20)
+02. Deep Black Water (4:31)
+03. Emma Lee (4:08)
+04. Oh Mother (5:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD3F29CC755DCFB1CA603E9A2839264535CDD098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1452688   (1027343) от 08.03.2021
+
+Mojo Mafia - Looking for Redemption (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues; Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Looking for Redemption (3:35)
+02. You Better Be Gone (3:43)
+03. Don't Leave Me This Way (4:59)
+04. Ten Miles (3:45)(   Читать дальше...   )Жанр: Blues; Blues RockПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89F920C8D85C8EA3CE4A66955B36F8A4FAC93983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453351   (1026911) от 11.03.2021
+
+VA - Swamp Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Greg Hooper - City Blues - [3:53]
+ 02. Patrick Mcmanus, Essey Smith - Too Good - [2:16]
+ 03. Robert Styles - Swampy - [2:22]
+ 04. Sergey Kolosov, Ross Gidney - Soul Sister - [2:10](   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A9306D749F907A9F12071652D812B7410F565C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453349   (1026909) от 11.03.2021
+
+VA - St. Louis Blues Society Presents 19 in 19 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amanda Fish - Lower Your Defenses - [2:22]
+ 02. Brother Jefferson;Rich McDonough - The Mirror - [4:49]
+ 03. Joe Metzka - Another Disaster - [5:22]
+ 04. Tru Born - Soon - [4:49](   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFD733D873D0EF71F49E25755CA7E28B5EA9EE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453344   (1026898) от 11.03.2021
 
 VA - Legendary Soul (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues; Soul; R&B>
@@ -629,122 +745,6 @@ Zoe Schwarz Blue Commotion - Chameleon (2020) [FLAC|Lossless|image + .cue] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC061D6F3A3FFB6980F0C31D2450765A288F119D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456724   (1024880) от 23.03.2021
-
-Van Kery - New Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Runaway (2:49)
-02. One Thing I Learned (3:26)
-03. Perfect Love (5:00)
-04. Not My Time (3:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F068ECFE191349FBAE7BBD4444C672792164485B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456711   (1024876) от 23.03.2021
-
-Chris Catena' Rock City Tribe - Truth In Unity (2020) [FLAC|Lossless|image + .cue] <Hard Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel City (4:48)
-02. The Trickster  (3:50)
-03. Down In The Black (3:57)
-04. Motorcycle Killers (4:34)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4A5BE16DF89E6561E5A450FA36088497EA6CF11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456717   (1024874) от 23.03.2021
-
-Ry Bradley - I've Got You Covered (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock 'n' Roll>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Sister (3:42)
-02. My Babe (2:55)
-03. Johnny B. Goode (2:40)
-04. (You're the) Devil in Disguise (2:54)(   Читать дальше...   )Жанр: Blues Rock 'n' RollПродолжительность: 01:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B035B7B59AF30F48B6069068E09AB4FDFAFE4106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456555   (1024863) от 23.03.2021
-
-VA - The Classics: Rock 'n' Roll Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Company - Feel Like Makin' Love (5:13)
-02. ZZ Top - Jesus Just Left Chicago (3:30)
-03. Foghat - I Just Want to Make Love to You (Single Version) (4:19)
-04. Robben Ford - Talk to Your Daughter (4:10)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D387D9A2FFAC4674CCBBC3BE90772882DBB261
 ```
 
 https://mybot314.ru/tekegram_catalog/

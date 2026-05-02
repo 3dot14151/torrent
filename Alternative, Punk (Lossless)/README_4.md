@@ -1,3 +1,61 @@
+###  Публикация: 1351961   (1001643) от 12.01.2020
+
+Bobina - Targets (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hardcore, Rapcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agent Orange (4:21)
+ 02. 10 Years Later (3:51)
+ 03. Falling All In (3:04)
+ 04. The Mission (5:31)(   Читать дальше...   )Жанр: Alternative Rock, Hardcore, Rapcore, ElectronicПродолжительность: 00:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8091760E74A41776AD694D82961DC53C82A1E391
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352503   (1001011) от 14.01.2020
+
+Twenty One Pilots - TOPxMM (The Mutemath Sessions) EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heathens (feat. MUTEMATH) (04:35)
+ 02. Heavydirtysoul (feat. MUTEMATH) (04:00)
+ 03. Ride (feat. MUTEMATH) (03:49)
+ 04. Tear in My Heart (feat. MUTEMATH) (03:49)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, PopПродолжительность: 00:21:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDABA3A5218EE7597128403A5D5B60594031B09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600524   (998550) от 09.01.2013
 
 Dropkick Murphys - Signed And Sealed in Blood (2013) [FLAC|Lossless]<Celtic Punk>
@@ -718,64 +776,6 @@ Destroyer - Have We Met (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Altern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92C4F9E99CD390557E0234A9C3E6EA0EA721C024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974628   (975798) от 12.01.2016
-
-Diamanda Galas - Guilty Guilty Guilty (2008) [FLAC|Lossless|image + .cue] < Piano Blues, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 8 Men and 4 Women
-02 - Long Black Veil
-03 - Down so Low
-04 - Interlude (Time)(   Читать дальше...   )Жанр: Piano Blues, AvantgardeПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:669F7806C49B6544115DA48C9E80BC9170C39471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974925   (972113) от 15.01.2016
-
-Reverend and The Makers - Mirrors (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Britpop, Classic Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amsterdam (01:13)
-02. Black Widow (03:16)
-03. Makin' Babies (01:58)
-04. Stuck On You (02:31)(   Читать дальше...   )Жанр: Alternative, Britpop, Classic Indie RockПродолжительность: 01:05:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B40DE55ABCF3D81F86D2CFB1DC9BB4E86636F2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

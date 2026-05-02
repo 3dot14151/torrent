@@ -1,3 +1,61 @@
+###  Публикация: 1119767   (805123) от 29.03.2017
+
+Clinton Shorter - The Expanse / Пространство - Season One (Original Television Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Expanse (01:04)
+02. Hostage (03:13)
+03. Signal (02:10)
+04. Welwala (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D34BC278818AABA31C62F21E7D9C621222A4A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119978   (805013) от 29.03.2017
+
+VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundtrack) (2017) [MP3|320 кб/с]<Rock, Rock & Roll, Jazz>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chambers Brothers - Time Has Come Today (11:02)
+02. Minh Xuan & Phuong Hoang - Mat Troi Den (Black Sun) (03:03)
+03. Jefferson Airplane - White Rabbit (02:31)
+04. The Hollies - Long Cool Woman (In A Black Dress) (03:18)(   Читать дальше...   )Жанр: Rock, Rock & Roll, JazzПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36BBEDDCB291A1E6208848EDB4E2C9FB48178E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119709   (805005) от 29.03.2017
 
 Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный день (Original Soundtrack Recording) (2017) Remastered 2016 [MP3|320 кб/с]<Soundtrack>
@@ -687,64 +745,6 @@ Audiomachine - Volturnus (2018) [MP3|320 Kbps] <Soundtrack, Trailer music, Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E73897B238AD9BF9B577EAF2869886F10AFFCBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015474   (774993) от 10.05.2016
-
-Peter Kater - Heart of the World - Colorado's National Parks (2016) [MP3|320 кб/с] <New Age, Soundtracks, Easy Listening>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Odyssey
-02. After Rainfall
-03. Petroglyphs
-04. Ancient Pathways(   Читать дальше...   )Жанр: New Age, Soundtracks, Easy ListeningПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1D24220F9A14D0965EE90F20BE447F13DD35CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125287   (768590) от 14.04.2017
-
-VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [MP3|320 кб/с]<Soundtrack, Hip-Hop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young Thug, 2 Chainz, Wiz Khalifa & PnB Rock - Gang Up (03:52)
-02. Lil Uzi Vert, Quavo & Travis Scott - Go Off (03:38)
-03. G-Eazy & Kehlan - Good Life (03:46)
-04. PnB Rock, Kodak Black & A Boogie Wit da Hoodie - Horses (04:09)(   Читать дальше...   )Жанр: Soundtrack, Hip-HopПродолжительность: 00:49:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208FB825F5C00E334256B41DC93FDC1435C30043
 ```
 
 https://mybot314.ru/tekegram_catalog/

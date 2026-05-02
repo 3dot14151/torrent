@@ -1,3 +1,119 @@
+###  Публикация: 1614207   (243094) от 21.02.2023
+
+Outpost 11 - 4 Albums (2018-2023) [MP3|320 Kbps] <electro-industrial, EBM>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243094.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2018 - Resonate
+2022 - Structural Defects
+2022 - В глубине(   Читать дальше...   )Жанр: electro-industrial, EBMПродолжительность: 4 CD, 03:13:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA12CC3A00FE5B8D118DA77CC6D28E66117A47E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614724   (242988) от 23.02.2023
+
+Минус Три - .!. (2023) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Любовь миллионов [00:03:24]
+02 - Значок [00:03:31]
+03 - Напролом [00:03:36]
+04 - Обнуляй [00:02:52](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C705D6FD334777EEEB8E6D84874529F0DD6901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457043   (242910) от 25.03.2021
+
+Авард - Судный век (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Великая ложь [00:05:08]
+02. Хищные птицы [00:04:15]
+03. Выбор есть всегда [00:03:54]
+04. Одинокие души (feat. Денис Машаров) [00:04:27](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3878C339A93122139DA075D3739953FD21F6F7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540692   (242908) от 31.03.2022
+
+Hvstle Hype - Лето V (2022) [MP3|320 Kbps] <Nu-Metal, Modern Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро [00:00:28]
+02 - Дети рисуют мир [00:03:00]
+03 - Вагон тишины [00:03:18]
+04 - Тело хочет в землю [00:03:33](   Читать дальше...   )Жанр: Nu-Metal, Modern Metal, MetalcoreПродолжительность: 00:18:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7FFE44AADE0DED7E40721BAE3C5DD2AD8D52D16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360399   (242850) от 15.02.2020
 
 Зимовье зверей - 11 бис (2020) Live [MP3|320 Kbps] <Rock>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B2D7E76AF965BB3E92BFDAD4B0EA20B83DCE844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554125   (240264) от 30.05.2022
-
-Math Marriage Abel and Krell - Откровение (2021) [MP3|320 Kbps] <Extreme Metal, Deathcore, Mathcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Найти и потерять [00:04:25]
-02 - Волны [00:02:57]
-03 - Блеск плоскостей [00:04:18]
-04 - Флёр [00:06:36](   Читать дальше...   )Жанр: Extreme Metal, Deathcore, MathcoreПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C101229E1DADBE8DC0272FD63A208F39A68F7BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626705   (240199) от 17.04.2023
-
-Алексей Глухов и ''МОЛОТ РОДИНЫ'' - ''Трибьют Сибирскому Панку'' (2023) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Война (И.П.В.cover) [00:03:42]
-02-Лютая погодка (''Флирт''cover) [00:03:15]
-03-Новый 37-й (Гр.Об.cover) [00:02:04]
-04-Новый День (Гр.Об.cover) [00:02:40](   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:58:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B731A602C4123244A297BFC8693ABD64515C60B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466894   (239926) от 01.05.2021
-
-Антоха Гумбин - Эпицентр (2021) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239926.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Эпицентр [00:03:44]
-02.Машина [00:05:40]
-03.Петь и Танцевать [00:03:54]
-04.Растение [00:04:29](   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75A850C6BC2740A21E097C66AF6656FC3FC8756D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569855   (239840) от 22.08.2022
-
-Кино - Черный Альбом (1996) [OGG|485 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кончится Лето	5:56
-02. Красно-Желтые Дни	5:50
-03. Нам С Тобой	4:49
-04. Звезда	4:30(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0ECD4301AFAA1FF0FC485EC1B196F2F2E397134
 ```
 
 https://mybot314.ru/tekegram_catalog/

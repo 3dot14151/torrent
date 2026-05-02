@@ -1,3 +1,29 @@
+###  Публикация: 1091819   (940941) от 10.01.2017
+
+Adobe Flash Player 24.0.0.194 Final [3 в 1] RePack by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Adobe Flash Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4842426F648F3B54E4BF9BE1F1E48CD69B7C957B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091773   (940938) от 10.01.2017
 
 Skype 7.31.32.104 RePack (& portable) by KpoJIuK [Multi/Ru]
@@ -648,32 +674,6 @@ Avast Free Antivirus - ультралегкая и современная защ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9F3F33E03B205EE45453CDCA6AE1BD6BD739AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363786   (940465) от 29.02.2020
-
-Avast Premium Security 20.1.2397 Final [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Комплексный антивирус Avast Premium Security – расширенная версия антивируса Avast, включающая дополнительные функции: брандмауэр, защита от программ-вымогателей, инструменты защиты конфиденциальности.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E6D3890C8B254425755A32DAB0C61B6AB40A0E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

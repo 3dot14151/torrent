@@ -1,3 +1,177 @@
+###  Публикация: 1810310   (17448) от 03.08.2025
+
+Greg Foat & Jihad Darwish - Opening Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Her Love Is All I Need (5:06)
+02.  Skipping Tones (4:28)
+03.  Opening Time (3:25)
+04.  Redemption (7:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424D269D50C344E0820276B509387A07BC78BBEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810311   (17447) от 03.08.2025
+
+Gutta Verse Moon - Unusual Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Matter To Handle (4:09)
+02.  Dive Into The Flame (5:38)
+03.  Last Light Of The Rainbow (4:42)
+04.  Close Of The Day (5:18)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D4BFD470C0961A606C1643F26568BE359747F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810312   (17446) от 03.08.2025
+
+Jazzy Coffee - Noir Notes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Cigarette Skies (3:20)
+02.  Café Without a Name (2:32)
+03.  Coffee Stains (2:55)
+04.  Kites After Midnight (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BEE695C3AB28D2B15216648BE6989752B2C308D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810315   (17423) от 03.08.2025
+
+Lisa Price - Priceless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Can't Hold on Forever (3:29)
+02.  Heartache (4:25)
+03.  Everywhere I Go (3:23)
+04.  No One's Business (3:35)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B8757FB2477325676FE081DD57152AF3A10302
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810322   (17422) от 03.08.2025
+
+Tenkiller - Burn the Boats (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tennessee Hills (3:13)
+02.  If You Wanted To (3:58)
+03.  Break up Song (4:00)
+04.  Valentine (4:42)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BD30AF70045F7DA748C3B7A91CF49739A26A6B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810324   (17421) от 03.08.2025
+
+Thaddeus Moss - Strip Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Strip Down (4:46)
+02.  Hi (2:44)
+03.  Trust Yourself (2:51)
+04.  Lulu (3:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA53E90B84C90A9E8B20045729E47D0481C48080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810409   (17341) от 04.08.2025
 
 Arcana - Studio Albums (9 releases) (1996-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neoclassical Darkwave>
@@ -572,180 +746,6 @@ Onslaught — британская трэш-метал-группа из Бри�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C69785BD8DAE0C1C9820C5A2B38DE7E2519DC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798841   (16971) от 25.05.2025
-
-Группа «Визит» - Ночь Без Тебя (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16971.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Тяжелый Случай
-A2 Последний Миг
-A3 Пляжное Регги
-A4 Откровение(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F6703F0D9199ECCB8BEB909CB03E8E4B07CE31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799072   (16967) от 25.05.2025
-
-VA - Arabtronic 2025 - The Best Eastern Rhythms, Arabic Electro House, Ethnic Chill House, Oriental & Tribal Ambient (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Eastern Rhythms, Arabic Ele ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imad Saad - Sweet day (4:49)
-02. Morad Abu - Aïcha (4:38)
-03. Khaled Youssef - Strugglin' (5:22)
-04. Mo-Omar - Ya Tabtab Wa Dallaa (5:24)(   Читать дальше...   )Жанр: Eastern Rhythms, Arabic Electro House, Ethnic Chill House, Oriental, Tribal AmbientПродолжительность: 01:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8291431616E40FB13507D1194B6C09C35151CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810772   (16945) от 06.08.2025
-
-Tush - Thunder Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Thunder Road (03:40)
- 02 - Ride to the Rhythm (02:30)
- 03 - Living Easy (02:22)
- 04 - Keep On Dancing (03:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B0C1B53EEBF10A9BD211C355A82F7FF8070A1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810758   (16921) от 06.08.2025
-
-Slaughter To Prevail - Studio Albums (4 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Deathcore, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16921.jpg" />
-</div>
-
-
-###  Подробнее
-
-Slaughter to Prevail — российская дэткор-группа, основанная в 2014 году в Екатеринбурге. В настоящее время группа базируется в Орландо, Флорида.2016 - Chapters Of Misery (EP)
-2017 - Misery Sermon
-2021 - Kostolom
-2025 - GrizzlyЖанр: Deathcore, Nu MetalПродолжительность: 02:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:318497F6114A7D202D9D796F776F4AD04A8F687E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810902   (16753) от 07.08.2025
-
-W.A.S.P. - First Blood..Last Cuts (1993) Compilation, Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Animal (Fuck Like A Beast)
-02. L.O.V.E. Machine (Remix)
-03. I Wanna Be Somebody (Remix)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EB70398CAD6116FC82BBE5A7E0FCB2E6F44969C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799335   (16752) от 07.08.2025
-
-Shadecrown - Studio Albums (4 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_16752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadecrown - метал-группа из Финляндии, основанная в 2012 году.2016 - Agonia
-2019 - Riven
-2021 - Solitarian
-2025 - 0Жанр: Melodic Death/Doom MetalПродолжительность: 03:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82230B47378BF6291E4641FF5FB1D8BA9B6F7DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

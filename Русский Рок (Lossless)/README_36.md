@@ -1,3 +1,32 @@
+###  Публикация: 1073428   (345218) от 16.11.2016
+
+Дельфин - Она (2016) [FLAC|Lossless|tracks + .cue] <Rock, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рябиновые птицы
+02. Помни
+03. Небо
+04. Чудо(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B2313692BEB33DBCA3C5D0359DBFD5F3EDB4160
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180384   (341947) от 03.11.2017
 
 Король и шут - Будь Как Дома, Путник...! (1996) Remastered, 2017, Шумный Рекордс [FLAC|Lossless|image + .cue] <Punk Rock>
@@ -721,35 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A8FD8C3A85E892194090380AFBDFAF15190EF93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 842654   (327410) от 19.11.2014
-
-Маша и Медведи - Гусеницы (2014) EP [FLAC|image + .cue]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Правдивая   (4:16)
-02.  Аве Мария   (3:17)
-03.  Яйцо (feat. Инна Желанная)   (4:05)
-04.  Нева (cover 5'nizza)   (4:56)Жанр: RockПродолжительность: 00:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB11091553CBEF70A783A9EA4E949AD6ADBCE3E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

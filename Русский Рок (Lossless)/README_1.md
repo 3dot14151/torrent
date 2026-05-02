@@ -1,3 +1,32 @@
+###  Публикация: 1606147   (1044567) от 21.01.2023
+
+Zuname - Vertigo (2022) [FLAC|Lossless|WEB-DL|tracks] <Celtic Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Night in Rostock [00:03:22]
+02. You Have to Be Strong [00:02:17]
+03. I'm Not Afraid [00:03:22]
+04. Señor Diego [00:03:35](   Читать дальше...   )Жанр: Celtic PunkПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7EB1DA00482A822E2DEBBBC17010E340CCB591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1606137   (1044562) от 21.01.2023
 
 h84u - Кали - Юга (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
@@ -718,35 +747,6 @@ Shiningstar - Songs of the Northern Lands - Chapter One (2023) [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97FA640C405792EB7A459BF708237DF19B18B10F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612034   (1040635) от 14.02.2023
-
-Dzen (Андрей Нагорный) - Глаза Анютины (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Хинди [00:03:09]
-02. Элемент Криминала [00:03:44]
-03. Война и Мир [00:04:02]
-04. Аляска [00:03:44](   Читать дальше...   )Жанр: RockПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EFCBF5637976109B4AB842582357EB60387231A
 ```
 
 https://mybot314.ru/tekegram_catalog/

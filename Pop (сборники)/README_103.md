@@ -1,3 +1,119 @@
+###  Публикация: 1184881   (297146) от 19.11.2017
+
+VA - Русская Дискотека ХХ Века от Ovvod7 - 024 (2017) [MP3|320 Kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MГК - Свечи ( 1997 )
+02. Первоуральск - Наташка ( 1990 )
+03. Новые Амазонки - Синий Лёд В Твоих Глазах ( Новая Версия 1990 )
+04. Ритм Любви - Леди С Именем Ночь ( 1989 )(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:269ADF1144A878CC4B945CE8FF2AE67DB6D6B1B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334263   (296655) от 28.10.2019
+
+Tom Jones - Classic Songs (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's A Lady
+02. Green Green Grass Of Home
+03. (Ghost) Riders In The Sky
+04. My Girl Maria(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:4501:08:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D3E4D2E2AC8856C96D4AA09C70A79EC732DBD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962105   (296563) от 03.12.2015
+
+VA - Бомба года 2016 от Хит FM (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296563.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дмитрий Колдун - Время
+002. Лена Катина - An Invitation
+003. Лион Feat. Тиана - Тишина
+004. Archi-M Feat. Timaro - Сколько Боли Во Мне(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD019306F2FCE94C3F3FC6956DEAA8E4BF68668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079187   (296240) от 03.12.2016
+
+VA - German Top 100 Single Charts 02.12. (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296240.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rag'n'Bone Man - Human 3:19
+002. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) 4:11
+003. The Weeknd - Starboy 3:51
+004. Mark Forster - Chore 3:28(   Читать дальше...   )Жанр: PopПродолжительность: 05:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F030C6FF069104C232255119927A3B65B766927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1262392   (295005) от 15.11.2018
 
 VA - New Music Releases Week 45 (2018) [MP3|320 Kbps] <Dance, Pop, Rock>
@@ -629,122 +745,6 @@ VA - German Top 100 Single Charts 16.11.2018 (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8B268257FCFF44D5B948208B63BBEF2F9A94C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185627   (291212) от 22.11.2017
-
-VA - Русская Дискотека ХХ Века от Ovvod7 - 028 (2017) [MP3|320 Kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Маки - Расскажи ( 1987 )
-02. Фристайл - Принцесса ( 1989 )
-03. Глызин Алексей - Новый Танец Робинзон ( 1986 )
-04. Николаев Игорь и Владимир Матецкий - Катя, Катерина ( 1987 )(   Читать дальше...   )Жанр: PopПродолжительность: 01:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70F0C3C643D0866ED912D742595D25F13B83403F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334796   (290591) от 31.10.2019
-
-VA - Shazam Хит-парад Russia Top 100 Октябрь (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290591.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Tones And I - Dance Monkey (3:29)
-2.SAINt JHN - Roses (Imanbek Remix) (2:55)
-3.FILV & Edmofo feat. Emma Peters - Clandestina (2:28)
-4.GAYAZOV$ BROTHER$ - Увезите меня на Дип-Хаус (3:42)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:21:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6883BD6D48953F330399014A99BC289CD0198B5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185937   (289822) от 23.11.2017
-
-VA - German Top 100 Single Charts 24.11.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289822.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bausa - Was du Liebe nennst
-002. Camila Cabello - Havana (feat. Young Thug)
-003. Ed Sheeran - Perfect
-004. Post Malone - rockstar (feat. 21 Savage)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ACA53BA3576D6FFDA93A03761DF2AF0D999ECFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079819   (289652) от 06.12.2016
-
-VA - Новогодний хит-парад. Новинки (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289652.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Катерина Красильникова - Новогодняя Сказка
-002. Kylie Minogue - Christmas Lights
-003. Karen Harding - Open My Eyes
-004. Sia - Angel By The Wings(   Читать дальше...   )Жанр: PopПродолжительность: 06:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:458DA239A7DA0430402B10ED51FF330BA39171F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

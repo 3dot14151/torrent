@@ -1,3 +1,30 @@
+###  Публикация: 1179111   (348899) от 31.10.2017
+
+Шаблоны - Под ногами снег скрипит, новый год к тебе спешит [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348899.jpg" />
+</div>
+
+
+###  Подробнее
+
+Многослойная PSD Шаблон-рамка. для фото
+Автор: lunar.elfФормат: PSDРазрешение файлов: 3889х5500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18F19141E3641BD23FB492B0FFB6E13A011109E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072507   (347263) от 15.11.2016
 
 Шаблоны - GraphicRiver - Multi Devices Mockup [PSD]
@@ -653,32 +680,6 @@ Coffee Shop - Trifold Brochure - шаблон для Вашего творчес
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE9D23FF1D0545FF9D5369EE224FE47AE9D8DE3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1074374   (337961) от 19.11.2016
-
-Шаблоны - GraphicRiver - Organic food poster / flyer template [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Organic food - рекламный шаблон постера, флаера.Формат: PSDРазрешение файлов: 3579x5031 / 300dpi, 852x316 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3451786D766D3F361C897A1D6099D61DFCB9FDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

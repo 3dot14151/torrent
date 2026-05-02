@@ -1,3 +1,32 @@
+###  Публикация: 1269308   (221530) от 14.12.2018
+
+VA - Utopia (2017) Rebellion der Traumer [FLAC|Lossless|WEB-DL|tracks] <Melodic Techno & House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bernstein (CH) – Odlicht (06:56)
+02. Schattenspiel – Tiefsicht feat. René Van Munster (07:47)
+03. Ben Bohmer – Zweisamkeit (05:11)
+04. GYRL – Tesseract (07:33)(   Читать дальше...   )Жанр: Melodic Techno & HouseПродолжительность: 01:04:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C042F38E4F41580106730E17EF6F04A5309FC751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513816   (221318) от 01.12.2021
 
 VA - Vocal House Essentials (2021) [FLAC|Lossless|WEB-DL|tracks] <House>
@@ -707,35 +736,6 @@ VA - Extreme Street Workout Songs For Fitness & Workout 2023 (Fitness Version 12
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A74DB6C9EFA7745609DC7CDF9AFA9999187A0CFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656685   (203083) от 31.08.2023
-
-VA - Augmented 010  Dowden x Mango (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203083.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cheric - Stories [7:06]
-02. Niceshot - Temporal [7:27]
-03. Alex O'Rion - Ukko (Alternative Mix) [7:05]
-04. Fran Garay - Deductions [7:50](   Читать дальше...   )Жанр: Minimal,Tech HouseПродолжительность: 02:28:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD497A1EFF899DCC4DCB4E11AA78FF3E14C8DB6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

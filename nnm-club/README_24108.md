@@ -1,22 +1,25 @@
-###  Публикация: 1734350   (107146) от 03.07.2024
+###  Публикация: 1726492   (108693) от 29.05.2024
 
-Process Lasso Pro 14.2.0.32 RePack (& Portable) by elchupacabra [Multi/Ru]
+Celestial Season - Mysterium III (2024) [FLAC|Lossless|WEB-DL|tracks] <doommetal, doomdeath>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108693.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Fecund Universe [00:06:16]
+02. Black Goat Of The Woods [00:04:34]
+03. Empty Corridors [00:04:54]
+04. Daughter Of The Lake [00:03:41](   Читать дальше...   )Жанр: doommetal, doomdeathПродолжительность: 00:38:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:321C34E875D956B1BD10513DCF6B24BFF60ADDA4
+magnet:?xt=urn:btih:15CA3A1DD5EDA9A352D03FA251B479465AF26B4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734438   (107145) от 03.07.2024
+###  Публикация: 1726559   (108692) от 29.05.2024
 
-Евгений Капба | Не читайте советских газет (Книга 5). Бритва Оккама в СССР (2024) [MP3, TED]
+Mary Lou Williams - Mary Lou's Mass (1975) 2005, Smithsonian Folkways [FLAC|Lossless|tracks + .cue] <Bop, Soul-Jazz, Piano Jazz>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108692.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цели определены, задачи поставлены: Белозор идёт в литературу! Творческий отпуск, глубинка, внутреннее умиротворение и деревенская пастораль вокруг. Садись да пиши свой великий фантастический роман! Тишь да гладь, да Божья благодать? Как бы не так… В тихом омуте, как известно, черти водятся, а значит – Герман наш Викторович в этот омут нырнет, чертей – вытащит и (   Читать дальше...   )Жанр: Историческая фантастика, ПопаданцыИздательство: Аудиокнига своими рукамиПродолжительность: 08:08:06
+01. Willis [3:41]
+02. O.W. [2:20]
+03. Praise the Lord [2:13]
+04. Old Time Spiritual [1:14](   Читать дальше...   )Жанр: Bop, Soul-Jazz, Piano JazzПродолжительность: 01:02:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13C852BEDFB7213B1A37C101A23DFC4338A46545
+magnet:?xt=urn:btih:2A0D1949839B3075BD84B6570CFD40156F08EFBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734501   (107144) от 03.07.2024
+###  Публикация: 1726506   (108691) от 29.05.2024
 
-Auslogics Driver Updater 1.26.0.2 RePack (& Portable) by Dodakaedr [Ru/En]
+Dead Head - Kill Division (1999) [FLAC|Lossless|image + .cue] <Thrash, Death Metal>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108691.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Auslogics Driver Updater – программа представляющая собой очень простой, удобный и в тоже время эффективный инструмент для обновления драйверов операционной системы Windows. Она просканирует ваш компьютер и после сканирования Вашего компьютера на присутствие драйверов ко всем устройствам, она составит список устройств которые требуют установки драйверов и предложит (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. Kill Division
+02. old Being
+03. Waste Of Skin
+04. Six(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:37:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8601A43B862BBDEFF6A4B5338157968113E39FD2
+magnet:?xt=urn:btih:7200E41EF8636B8D65658E173D23BAD3A2B432DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -76,25 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734515   (107143) от 03.07.2024
+###  Публикация: 1726599   (108690) от 29.05.2024
 
-MagicMouseTrails 3.96 + Portable [Multi/Ru]
+Зёрна | Благоверный князь Роман Рязанский (2019) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107143.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108690.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MagicMouseTrails создает треки Magic Mouse на рабочем столе Windows с красивыми эффектами и различными темами для индивидуальной настройки. Следы мыши настраиваются и могут быть скорректированы от очень незаметных следов мыши до очень эффектных, в зависимости от потребностей пользователя Windows. Это действительно очень декоративный инструмент для мышиных следов, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+В данной брошюре представлены житие святого благоверного князя Романа Рязанского, акафист (для келейного чтения), а также молитвы святому.Жанр: ПравославиеИздательство: ЗёрнаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A5032A8FCE0C2E34A26497DE4590F0092C921D4
+magnet:?xt=urn:btih:013A7992BCC542D837DA9940399179280C74BDD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -102,25 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734456   (107142) от 03.07.2024
+###  Публикация: 1726393   (108689) от 29.05.2024
 
-Мартингейл / Повышение ставок / Martingale (2024) WEB-DLRip [DVO] [AD]
+VA - Enjoyable Easy Listening Alluring Chill Jazz Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>Остальное
->>Фильмы с Рекламой
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107142.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108689.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После гибели юной девушки от передозировки наркотиками все быстро забывают о случившемся, как о трагическом, но ординарном явлении. И только мать погибшей уверена, что её дочь изнасиловали и убили, скрыв двойное преступление инсценировкой передоза. Женщина пускается на поиски парня, которого полицейские обнаружили возле тела умершей девушки и отпустили, как невиновного. (   Читать дальше...   )Производство: США / Adventus FilmsЖанр: криминалРежиссер: Джереми БергАктеры: Уильям Шокли, Келли Салливан, Кортни Карл, Константин Мелихов, Raúl E. Peyret, Рейчел Генри, Дарлен Селлерс, Джеймс Дэвид Гриксони, Дэйв Шектер, Денни НоланПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:42:45Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+01. Chillaxing Jazz Kollektion - Memories of Us (4:32)
+02. Love Suggestions - Clarity (4:36)
+03. Kool&Klean - Kiss & Dance (4:44)
+04. eJazz Artistry - Always Be My Baby (3:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:08:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E4A01B668B6B3557E0AE9DF2FB7756E65E2F7D7
+magnet:?xt=urn:btih:CAC9E45030351DED6912692A664F7D72E26405FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -128,28 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734424   (107141) от 03.07.2024
+###  Публикация: 1726689   (108688) от 29.05.2024
 
-Футбол. Чемпионат Европы 2024. 1/8 Финала. Австрия - Турция (02.07.2024) HDTVRip [H.264/720p-LQ]
+Jeff Shirley - Contigo (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107141.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108688.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Футбол. Чемпионат Европы 2024. 1/8 Финала. Австрия - Турция (02.07.2024)
-СУДЬЯ Диаш Артур (Португалия)
-Судья на линии 1: Соареш Паулу (Португали)
-Судья на линии 2: Рибейру Педру (Португалия)(   Читать дальше...   )Телекомпания: Матч! Футбол 1Жанр: Спорт, ФутболЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: 02:55:12
+01. Mount Meru (5:36)
+02. Con Vaquero (4:53)
+03. Hero of Charities (4:55)
+04. Time for Fun (4:25)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:37:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFF34D01CACCFA3512CCF0595959628DCBFF1C9A
+magnet:?xt=urn:btih:90D422A0E1460DD4DEC8BEEAE7954D68DEDA6488
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -157,25 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734370   (107140) от 03.07.2024
+###  Публикация: 1726696   (108687) от 29.05.2024
 
-Клео от 5 до 7 / Cleo de 5 a 7 (1962) BDRip [H.264/720p] [DVO]
+Kurt Flavin - Six String Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108687.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Начинающая певица Флоранс обеспокоена своим здоровьем и, в ожидании результатов медицинского теста, идёт к гадалке. Карты Таро показывают смерть, и, хотя гадалка пытается это скрыть, Клео окончательно теряет душевный покой. Не находя ни понимания, ни сочувствия своим тревогам, охваченная смятением, Клео не может оставаться дома и выходит на улицу. Она заходит в кафе, (   Читать дальше...   )Производство: Франция, Италия / Ciné Tamaris, Rome Paris FilmsЖанр: драма, комедия, музыкаРежиссер: Аньес ВардаАктеры: Коринн Маршан, Доротея Бланк, Антуан Бурселье, Анна Карина, Жан-Люк Годар, Хосе-Луис де Вилаллонга, Мишель Легран, Доминик Даврэй, Жан-Клод Бриали, Сами ФрейПеревод: профессиональный двухголосый, любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские (на песни и полные - 3 варианта), английские (2 варианта), французскиеПродолжительность: 01:30:23
+01. May I Never Say Never (3:54)
+02. Clear Day By The Shore (3:29)
+03. Love You Two Times (4:32)
+04. Out Of Left Field Flying (5:01)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:39:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3713F5039004D1356E2430FB92C21B96477B1A00
+magnet:?xt=urn:btih:73A260B6E1E9BD24A37496863CE6EF7389C13025
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,28 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734193   (107139) от 03.07.2024
+###  Публикация: 1726391   (108686) от 29.05.2024
 
-Climie Fisher - 3 Albums (1988-2020) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Synth-pop>
+VA - Alluring Sweet Relaxing Chill Lounge Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107139.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108686.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Список альбомов:
-Climie Fisher - 1988 - Everything
-Climie Fisher - 1989 - Coming In for the Kill (Expanded Edition 2024)
-Climie Fisher - 2020 - Love Changes Everything (Compilation)Жанр: Pop Rock, Synth-popПродолжительность: 3 CD,
+01. Kool&Klean - Morning Mist (5:00)
+02. Love Suggestions - Clarity (4:36)
+03. Chillaxing Jazz Kollektion - Memories of Us (4:32)
+04. Chillaxonic - Island Getaway (5:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:08:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2D9D76E5978FD6116B7F5C3A021DACAF00E68B6
+magnet:?xt=urn:btih:0DFF4C1FBEC4873D24FF70957FF35D1090EA944E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734477   (107138) от 03.07.2024
+###  Публикация: 1726397   (108685) от 29.05.2024
 
-Process Lasso Pro 14.2.0.32 Portable by FC Portables [Multi/Ru]
+VA - Jazz Tempoe Doeloe (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108685.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Chaka Khan - Through the Fire (4:47)
+02. Michael Bublé - For Once in My Life (2:34)
+03. George Benson - Breezin’ (5:42)
+04. Michael Franks - The Lady Wants to Know (4:46)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:10:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C92790EA21BFF2F2223EE1BA32AA53C2F59512A1
+magnet:?xt=urn:btih:85BD14D8F6A47496DE3DF08571EC3E97A34BA50E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,28 +256,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734319   (107137) от 03.07.2024
+###  Публикация: 1726691   (108684) от 29.05.2024
 
-Чай Вдвоем - 10 Тысяч Слов О Любви (2005) (Reissue) [WavPack|Lossless|image + .cue] <Pop>
+Jeff Shirley - Modes of Nature (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
 
->>Pop
->>Отечественная поп-музыка (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107137.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108684.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Чай Вдвоем–Ты Не Одна
- 02. Чай Вдвоем–Милая
- 03. Чай Вдвоем–Желанная
- 04. Чай Вдвоем–День Рождения(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:54
+01. Rule of Thumb (6:33)
+02. Transients (4:21)
+03. Zentangle (5:14)
+04. Organ Trail (6:33)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:41:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:36B28C7A8096F9111C6C0E1876C431B4B668186B
+magnet:?xt=urn:btih:317BB5B17378404A89A5934590F16CB2F5F0912E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,25 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734338   (107136) от 03.07.2024
+###  Публикация: 1726410   (108683) от 29.05.2024
 
-Елена Арифуллина | Последние станут первыми (2024). [MP3, Мария Веденеева]
+VA - Sweet Enjoyable Intimate Soft Jazz Playlist (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107136.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В провинциальном городке на юге России душевнобольные внезапно обретают сверхспособности, а обычные люди, наоборот, лишаются разума. Город охвачен хаосом. Психиатр Вера готова пойти на всё, чтобы спастись самой и спасти сына своего погибшего возлюбленного. Но ей противостоят Шестеро – таинственные и всесильные повелители города безумцев…Жанр: Социальная фантастика, МистикаИздательство: Издательство АСТПродолжительность: 08:12:09
+01. Chillaxonic - Aurora (5:13)
+02. Kool&Klean - Islands in Tranquility (5:06)
+03. eJazz Artistry - Story of My Life (5:06)
+04. Chillaxing Jazz Kollektion - Wherever I Go (4:19)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:05:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCAC3F8EDD61D853ED626BDBE4CDD876534885BC
+magnet:?xt=urn:btih:DEA1E5B64B742C1705D20B7FD52E4C41CC8FA73A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,28 +314,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734295   (107135) от 03.07.2024
+###  Публикация: 1726412   (108682) от 29.05.2024
 
-Lightnin' Rod & The Thunderbolts - Another Moment In Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+VA - The Groove Funk Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Dance>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stato Brado - Black Hole (4:54)
+02. Ltj Xperience - Don't Let The System  Get You Down (Regrooved Mix) (7:33)
+03. Blade & Masquenada Family - Sex Cat (4:56)
+04. Lainz - P-Lainz (6:23)(   Читать дальше...   )Жанр: Jazz, Funk, DanceПродолжительность: 01:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F07466E4139D17EFA613BEE50D607FE1C1D9C5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726349   (108681) от 29.05.2024
+
+After Dark - Memories Gone (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forevermore [00:03:30]
+02. The Darkness Inside [00:04:34]
+03. Release My Mind [00:04:14]
+04. Illusive Sky [00:04:59](   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:55:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95400738FC8E6AD1CFEF71086AB1AAD6E635CA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726705   (108680) от 29.05.2024
+
+7he Myriads - Planetarium (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Indie, Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Altair [00:06:10]
+02. Omicron Persei [00:05:57]
+03. Sirius [00:06:13]
+04. Betelgeuse [00:07:28](   Читать дальше...   )Жанр: Progressive Rock, Indie, Space RockПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399876DEAC950555A6327DCA8A92E52E591518DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726378   (108679) от 29.05.2024
+
+Allen Gilliland - Revenge (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Never Should Have Went To Mexico (3:41)
-02. Hole In My Heart (4:02)
-03. Ordinary Day (3:49)
-04. The Lady Has The Blues (4:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:51
+01. Revenge (6:16)
+02. The Captain's Chair (7:22)
+03. Stringman Blues (3:45)
+04. What Went Wrong (3:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0754700D3C3319854905EB5722106FD87E90B6C5
+magnet:?xt=urn:btih:C7448B96FD4CABAECB2956BBD224C8FBC78EC6CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -322,26 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734415   (107134) от 03.07.2024
+###  Публикация: 1726347   (108678) от 29.05.2024
 
-Bharti Bed (editor) | Inventions. Facts at Your Fingertips (2016) [PDF] [EN]
+Pleasurekraft - On Growth and Form (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107134.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108678.jpg" />
 </div>
 
 
 ###  Подробнее
 
-From the first tools to the latest gadgets, Pocket Genius: Inventions showcases key inventors and inventions that changed the world from air, space, water, and land transportation to everyday objects in the home, medical tools and aids, plus telescopes, roller coasters, satellites, and robots, and a look at future technologies.
-Catalog entries packed with facts provide (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
+01. The Optimist [00:06:48]
+02. Ritual [00:07:00]
+03. Umbilicis Universalis [00:05:56]
+04. Fear [00:06:45](   Читать дальше...   )Жанр: TechnoПродолжительность: 00:57:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1C623A385B6A440A5AFEB7CD1C3425C83A431AD
+magnet:?xt=urn:btih:961EBEAFD072A8BE1BF5D15BC638CC1B994C07BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,28 +459,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734292   (107133) от 03.07.2024
+###  Публикация: 1726594   (108677) от 29.05.2024
 
-Katie Knipp - Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Благовест | Акафистник в душевных болезнях «Помощь и защита» (2018) [PDF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108677.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акафистник в душевных болезнях «Помощь и защита» содержит акафисты Пресвятой Богородице в честь Ее икон «Неупиваемая Чаша», «Утоли моя печали», «Отрада» («Утешение»), «Умягчение злых сердец», «Всех скорбящих Радость» и святым – великомученице Анастасии Узорешительнице, святителю Тихону Задонскому, мученику Вонифатию, Алексию человеку Божию, священномученику Киприану (   Читать дальше...   )Жанр: ПравославиеИздательство: БлаговестФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EE5A36E9FE334DE90BC1E64DE498480F23689DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726413   (108676) от 29.05.2024
+
+VA - Ultimate Enjoyable Sweet Intimate Lounge Chill Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108676.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mud (5:04)
-02. Outlaw Doc (3:49)
-03. Vampire (4:10)
-04. Time and Space (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:53
+01. Kool&Klean - Islands in Tranquility (5:06)
+02. Chillaxing Jazz Kollektion - Wherever I Go (4:19)
+03. Konstantin Klashtorni - Together Again (4:07)
+04. Chillaxonic - Quintessence (4:26)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:05:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDDE2D117705DD8705632111E78E2237CBF13327
+magnet:?xt=urn:btih:FD82EBEC01BA90EE01C6AAC4952568348EF242A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -378,25 +514,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734256   (107132) от 03.07.2024
+###  Публикация: 1726601   (108675) от 29.05.2024
 
-Buddy Daddies | Напарники-папаши | Папаши-дружбаны [2023, TV, 12 из 12] BDRip 1080p HEVC 10-bit raw+rus
+Зёрна | Блаженная Любовь Рязанская (2006) [PDF, FB2, EPUB, MOBI, TXT]
 
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107132.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108675.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Решение двух наёмников-напарников взять под крыло четырехлетнюю девочку оборачивается семейной жизнью, которая не всегда по зубам даже опытным киллерам. Ведь новоявленную дочку нужно и накормить, и отвести в садик, и поиграть с ней… а ведь и о работе забывать нельзя! Да и их подопечная далеко не простая — она незаконнорождённая дочка именитого бандита, на которого (   Читать дальше...   )Производство: P.A. WorksЖанр: приключения, комедияРежиссер: Асай ЁсиюкиЯзык озвучки: Японский, русский (AniLibria, Studio Band)Субтитры: Русские (AniLibria, Crunchyroll)Продолжительность: 12 эп. по 25 мин.
+Данная книга является дополненным переизданием брошюры “Блаженная Любовь Рязанская”, выпущенной под редакцией митрополита Симона (Новикова) в 2001 году.
+
+Настоящее издание содержит точные, документально подтвержденные даты рождения и кончины, места рождения и крещения, архивные данные о составе семьи и местах проживания блж. Любови Рязанской (Любови Семеновны Сухановской).Жанр: ПравославиеИздательство: ЗёрнаФормат: PDF, FB2, EPUB, MOBI, TXTКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB0826849FC71C57ED16946DC3EAC2E0F70903E3
+magnet:?xt=urn:btih:DF508765A13FC2011A0BBB01491431F1FCF09332
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -404,25 +542,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734493   (107131) от 03.07.2024
+###  Публикация: 1726635   (108674) от 29.05.2024
 
-Skype 8.123.0.203 RePack (& Portable) by KpoJIuK [Multi/Ru]
+Sun Ra - Excelsior Mill (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108674.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Beyond Hiroshima [00:42:23]Жанр: JazzПродолжительность: 00:42:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E93887CCBC90A28C4EDA6EE988B608876C6EF700
+magnet:?xt=urn:btih:990EA97BDCA6B1128F5CD2C37356032BD68D801E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,25 +568,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734490   (107130) от 03.07.2024
+###  Публикация: 1726556   (108673) от 29.05.2024
 
-Игра королевы / Firebrand (2023) WEB-DLRip [H.264] [звук с TS]
+The Birdland Big Band - Live (2019) Birdland Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
 
->>нет
->>нет
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107130.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108673.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Историческая драма о Екатерине Парр, последней жене британского короля Генриха VIII. Несмотря на привычную жестокость Генриха к своим супругам, Екатерине удалось пережить монарха.Производство: Великобритания, США / Brouhaha Entertainment, FilmNation Entertainment, Magnolia Mae FilmsЖанр: драма, историяРежиссер: Карим АйнузАктеры: Алисия Викандер, Джуд Лоу, Эдди Марсан, Сэм Райли, Брайони Ханна, Миа Триплтон, Руби Бенталл, Саймон Расселл Бил, Эрин Доэрти, Амр ВакедПеревод: Дублированный (Мосфильм-Мастер) звук с TSЯзык озвучки: Русский, УкраинскийСубтитры: ОтсутствуютПродолжительность: 02:00:39
+01. Lullaby of Birdland [5:55]
+02. On the Street Where You Live [5:26]
+03. Let's [4:56]
+04. Taking Flight [7:21](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:08:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:0811E679AB9AB01ED8E0DEF7F352C7A77691BB73
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -456,25 +597,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734491   (107129) от 03.07.2024
+###  Публикация: 1726558   (108672) от 29.05.2024
 
-Игра королевы / Firebrand (2023) WEB-DL [H.264/1080p] [звук с TS]
+Horace Parlan - In Copenhagen (1999) 2008, Storyville [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
 
->>нет
->>нет
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108672.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Историческая драма о Екатерине Парр, последней жене британского короля Генриха VIII. Несмотря на привычную жестокость Генриха к своим супругам, Екатерине удалось пережить монарха.Производство: Великобритания, США / Brouhaha Entertainment, FilmNation Entertainment, Magnolia Mae FilmsЖанр: драма, историяРежиссер: Карим АйнузАктеры: Алисия Викандер, Джуд Лоу, Эдди Марсан, Сэм Райли, Брайони Ханна, Миа Триплтон, Руби Бенталл, Саймон Расселл Бил, Эрин Доэрти, Амр ВакедПеревод: Дублированный (Мосфильм-Мастер) звук с TSЯзык озвучки: Русский, Украинский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:00:39
+01. Parker's Mood [5:30]
+02. Broken Promises [4:27]
+03. Two Sleepy People [7:00]
+04. I'm Getting Sentimental over You [5:14](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:15:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:2FB8DF37EA647CF8EA44B507502D8BC309905B43
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,25 +626,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734432   (107128) от 03.07.2024
+###  Публикация: 1726466   (108671) от 29.05.2024
 
-Канава / Dobu / The Ditch (1954) DVDRip [H.264] [JP / RU, EN Sub]
+Decortication - Necrolatry: A Morbid Worship (2023) [FLAC|Lossless|image + .cue] <Death Metal>
 
->>Зарубежное кино
->>Фильмы в оригинале (SD, DVD)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107128.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108671.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Току и Пин живут в трущобах возле болота. Их жизнь такая же непутевая, как и их жилье. Они прожигают дни в тщетной надежде выиграть на тотализаторе. И вот появляется грязная и безумная Цуру, наивность и искренность которой может изменить их жизнь. Воспользуются ли они этим шансом?Производство: ЯпонияЖанр: драмаРежиссер: Канэто СиндоАктеры: Нобуко Отова, Таидзи Тонояма, Дзюкити УноПеревод: субтитрыЯзык озвучки: японскийСубтитры: русские (дед_сто_лет), английскиеПродолжительность: 01:51:16
+01. Funeral Mask
+02. Begotten Of Pests
+03. Necrosadistic Desires
+04. Grotesque Impulse(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E314A06A431AC19B1F061EE4A2B3B7E1C65E644D
+magnet:?xt=urn:btih:7FF2EE63B7FB25EC044FCF66818EFAE61860D0A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -508,136 +655,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734386   (107127) от 03.07.2024
+###  Публикация: 1726761   (108670) от 30.05.2024
 
-Topaz Gigapixel AI 7.2.1 RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz A.I. Gigapixel — это приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются.
-Эти традиционные методы (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BEF59F4D02D758E0A629D0D18266203F8CE0493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734508   (107126) от 03.07.2024
-
-Pulsar Modular Complete Effects Bundle 2024.7.2 VST3, AAX (x64) RePack by TCD [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107126.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полный набор плагинов от Pulsar Modular для микширования, мастеринга и работы с эффектами.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17E6E3D7E93A5FC161D6579ADE89B5973C778BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734377   (107125) от 03.07.2024
-
-Keane – Glastonbury (2024) HDTVRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление английской группы Keane на ежегодном фестивале современного искусства в Glastonbury, Англия. Группа Кин заслужила множество похвал от фанатов во время выступления на фестивале в Гластонбери 2024 года, а вокалист Том Чаплин покорил сердца тысяч своих поклонников.  Альтернативная рок-группа вышла на сцену Pyramid в субботу днем 29 июня во 2-й день фестиваля. (   Читать дальше...   )01. Keane - Bend And Break
-02. Keane - Silenced By The Night
-03. Keane - Nothing In My Way
-04. Keane - We Might As Well Be Strangers(   Читать дальше...   )Производство: Великобритания / BBCЖанр: Alternative rock, rock, post-BritpopУчастники: Tom Chaplin, Richard Hughes, Tim Rice-Oxley, Jesse QuinПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF7AC50027CD44D288154167207A614A326591B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734418   (107124) от 03.07.2024
-
-Kingshuk Ghosha (editor) | Bugs (2016) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Profiling more than 200 insects and bugs, from beetles and butterflies to spiders and scorpions, find out what bugs eat, which are poisonous, which live the longest, and which can be found in your own backyard. Plus, learn about the products we get from bugs, such as honey, ink, silk, and jewelry, and how bugs and insects play important roles in our world. Catalog (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA5A849ED968250747001F08F8BAEAF55779DF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734358   (107123) от 03.07.2024
-
-VA - Trance Selected Vol. 1 (2024) [MP3|320 Kbps] <Trance>
+VA - Uplifting Only Top 15: June 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107123.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108670.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ Kazal - Artemis' Love (Extended Mix) [6:54]
-02. Super Luminal - Dark Robe Lane (Extended Mix) [7:33]
-03. Steve Sunrise - Agua (Original Mix) [4:46]
-04. Static State (UK) - Transcended (Extended Mix) [7:03](   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:11
+01. JINGYAN - Yonshaku-dama (Intro Mix) [3:50]
+02. Illitheas - Catch The Sunrise (Extended Mix) [7:12]
+03. Mark Versluis & Emy Smith - Next To Me (Extended Mix) [7:31]
+04. Rowan Van Beckhoven - Return To Dust (Extended Mix) [8:04](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:42:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2231E130BCF9B3DDCE48E58C40D2CB24DEF81FB1
+magnet:?xt=urn:btih:F865004AAA14624BA97A672E0CAAC3BE13AED09F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,25 +684,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734434   (107122) от 03.07.2024
+###  Публикация: 1726713   (108669) от 30.05.2024
 
-Владислав Конюшевский | Попытка возврата (Книга 3). По эту сторону фронта (2024) [MP3, Виктор Бабков]
+Чингиз Абдуллаев | Дронго (Книга 61). Покушение на власть (Том 3): Объект власти (2024) [MP3, Татьяна Некрасова]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107122.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108669.jpg" />
 </div>
 
 
 ###  Подробнее
 
-До конца войны остаются считанные месяцы и бойцы Особой группы Ставки, нацеленные на поиск объектов Аненербе, неожиданно получают другой приказ. На этот раз действовать им придется не в немецком тылу, а на освобожденной территории. Недовольный Илья Лисов считает это «отрывом от основной работы», не предполагая, во что может вылиться выполнение нового задания.Жанр: Историческая фантастика, Альтернативная историяИздательство: Издательство (АСТ)Продолжительность: 11:07:46
+Дело о покушении на Президента России далеко еще не закончено, и специальный агент Дронго, сумевший предотвратить это преступление буквально в последний момент, снова вступает в рискованную игру. Потому что по-прежнему живы и по-прежнему скрываются от закона таинственные заказчики покушения, и по-прежнему ведет охоту исполнитель – гениальный киллер, не смирившийся (   Читать дальше...   )Жанр: Детектив, триллерИздательство: ЛитРес: чтецПродолжительность: 05:36:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6EAD9E68F379EC5EE168BE20AF07AED55C34675
+magnet:?xt=urn:btih:3BFC683FC3C6F4F2AAE20FB12812A8B9B6EEA190
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,28 +710,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734313   (107121) от 03.07.2024
+###  Публикация: 1726799   (108668) от 30.05.2024
 
-Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Experimental>
+Евгения Михайлова | Жажда расплаты (2024) [MP3, Елена Калиниченко]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Kembatinan Premaster
-A2 Pious Breath
-A3 Bloud And Souls
-A4 Melancholike(   Читать дальше...   )Жанр: Black Metal, ExperimentalПродолжительность: 00:34:43
+Даша Смирнова – невероятная красавица, в которую влюбляются все мужчины. Но она выбрала своего коллегу Влада, хотя тот женат, а она замужем. Однажды жена Влада застала любовников вместе, и начался настоящий кошмар… Сотрудники фирмы, где работают Даша и Влад, в курсе их отношений. Знают они и о том, что во Влада отчаянно и безответно влюблена начальница Даши… Буря (   Читать дальше...   )Жанр: детектив, триллерИздательство: ЭксмоПродолжительность: 06:59:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E29ED58EA0DA8B7EA234A476CCF052BAFDACECC1
+magnet:?xt=urn:btih:6483169509BB92EAEB6EF762E582BC95C5C884A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

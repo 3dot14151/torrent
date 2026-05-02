@@ -1,3 +1,32 @@
+###  Публикация: 1576919   (359381) от 17.09.2022
+
+Пневмослон - В душе не ### (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359381.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Жора наращивает массу
+2. Что ни день, то поебень
+3. А мне   не на всё
+4. Страшный вес(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:20:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EA4AE0846963BA723AC3D4C999D3CC14F4490D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178317   (357472) от 27.10.2017
 
 Пикник - Искры и канкан (2017) [FLAC|Lossless|image + .cue] <Rock>
@@ -719,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4685944D1246F67A7EC9FC6ECB76F89293D7920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073428   (345218) от 16.11.2016
-
-Дельфин - Она (2016) [FLAC|Lossless|tracks + .cue] <Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рябиновые птицы
-02. Помни
-03. Небо
-04. Чудо(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 00:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B2313692BEB33DBCA3C5D0359DBFD5F3EDB4160
 ```
 
 https://mybot314.ru/tekegram_catalog/

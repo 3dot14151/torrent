@@ -1,3 +1,125 @@
+###  Публикация: 523481   (614957) от 17.07.2012
+
+VA - Загорелые Хиты Лета! (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614957.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Фоксы и Бурановские бабушки - Европати по-мордовски (2:49)
+ 2. Gabry Ponte Feat. Pitbull & Sophia Del Carmen - Beat On My Drum (EU Radio Edit) (3:44)
+ 3. MC Zali & Fidel Wicked - Носом по кокосам (3:21)
+ 4. Oceana - Endless Summer (Single Mix) (3:28)
+ 5. Дилайс - Нежно-Нежно (3:27)
+ 6. Mike De Ville - Amada Mia Amore Mio (2:50)
+ 7. Пропаганда & MC Джимми - Хабиби (3:06)
+ 8. Eleftheria Eleftheriou - Aphrodisiac (2:58)
+ 9. Юрий Шатунов - А лето цвета (4:40)
+ 10. Romano & Sapienza feat. Rodriguez - Tacata (3:28)(   Читать дальше...   )Жанр: PopПродолжительность: 05:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D3E13C9FE19DCAF3605010773C897BE382108DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295842   (614828) от 15.04.2019
+
+VA - Music for Car 14 (2019) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cleo - WRRRA 3:24
+02. KAZKA - CRY 3:44
+03. Calvin Harris & Rag'n'Bone Man - Giant 3:49
+04. The Bosshoss - Ayo 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 03:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C02F6EA8DAE3B2F521C890B6D42819AB07A6657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 911820   (614081) от 24.06.2015
+
+Madonna - Madonna's 40 Biggest Billboard Hits (2015) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like a Virgin (Like a Virgin)
+ 02. Vogue (I'm Breathless)
+ 03. Crazy For You (Vision Quest)
+ 04. Take a Bow (Bedtime Stories)(   Читать дальше...   )Жанр: PopПродолжительность: 03:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E333AD4035461ADAFD3387586605547AD81B0B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1037436   (613666) от 24.07.2016
+
+VA - Ballads for Lovers Vol.1 (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frankie Goes To Hollywood - The Power Of Love
+02. Stevie B. - Because I Love You (The Postman Song)
+03. Chris Rea - Ace Of Hearts
+04. Commodores - Nightshift(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28BC0FEF1684031557BDE7967E99C3E154AF6D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037405   (613568) от 24.07.2016
 
 VA - Бомба Года Выпуск 50+50 (2016) [MP3|256 Kbps] <Pop>
@@ -641,128 +763,6 @@ VA - Самые Популярные Новинки Года. Зарубежны
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6570C28565A5F73F439A50D1B1A4A9010CAF2FBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297015   (606557) от 20.04.2019
-
-VA - Music for Car 12 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papa Roach - Elevate
-02. Emin - Bring Me Home
-03. Ava Max - Sweet But Psycho
-04. Meghan Trainor - ALL THE WAYS(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384778E792F25A0999DC378D0DE331635A218054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297016   (606427) от 20.04.2019
-
-VA - Music for Car 13 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amy Shark - I Said Hi
-02. Dido - Hell After This
-03. Maxthor - Run
-04. Bebe Rexha - I'm A Mess(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC3793A906071F0CC58891D1878162DDAF9DE52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546516   (605936) от 24.04.2022
-
-La Bionda - Compilation (2022) [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandstorm
-02. So Sad
-03. Tutto Va Benne
-04. You're So Fine(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:19:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB316C9A40CA3E875F6AF6D1D9EEE4B335D206F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525506   (605781) от 22.07.2012
-
-VA - Хитовые летние треки (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пропаганда & MC Джимми - Хабиби
-02. Tune Up Vs. Italobrothers - Colours Of The Rainbow (Alex Ch Remix 2K12)
-03. Размер Project - My Moscow Love
-04. Вирус - За Тобой
-05. E - Rotic - Sexual Healing
-06. Серебро - Мальчик
-07. Ольга Плотникова - Лето
-08. Gazebo - Tears For Galileo (Dancefloor Radio)
-09. Дима Билан - Так не бывает
-10. Fancy Ft. Sabrina - Flames Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DE27A821069D964B8A6E6EAF7A21984EDAC73B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1510399   (791274) от 16.11.2021
+
+CCleaner 5.87.9306 Free / Professional / Business / Technician_Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791274.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58339E6F84E6DA3BDFBB902F5D6DC2BAEE8146EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1387537   (791267) от 02.06.2020
+
+Allavsoft Video Downloader Converter 3.22.6.7457 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCB307D4A39BA7F1D950A21E6B1A26CA1466B13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510500   (791246) от 16.11.2021
 
 CCleaner 5.87.9306 Free / Professional / Business / Technician Edition RePack (& Portable) by Dodakaedr [Multi/Ru]
@@ -623,58 +675,6 @@ Slimjet 17.0.7.0 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2006032DFF13082511861BE2EB347D4F268DFA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201922   (791015) от 27.01.2018
-
-Soft4Boost Document Converter 5.2.1.711 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкий и функциональный инструмент для просмотра и конвертации документов в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25DB48AA7772FBF93068224BDBC04BAB4E27759C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275134   (791005) от 10.01.2019
-
-Mozilla Firefox Quantum 64.0.2 Final [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791005.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55FAAC2A0609BBA1B2FF288B6B33CFEA9F4AE75
 ```
 
 https://mybot314.ru/tekegram_catalog/

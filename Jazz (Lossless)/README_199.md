@@ -1,3 +1,61 @@
+###  Публикация: 1253419   (383570) от 09.10.2018
+
+The Four Freshmen - 22 Legendary Hits: Portrait of the Artists (1950-e - 1960-e) 1995, CEMA Special Markets [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's a Blue World [2:56]
+02. Graduation Day [3:04]
+03. Charmaine [2:18]
+04. Satin Doll [2:53](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:06:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D77AC8E6838E4A54183DAE63776F0E66489178F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1174912   (383405) от 16.10.2017
+
+Peter Ecklund - Eclund At Elkhart The Classic Jazz All-Stars (1995) Jazzology Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Remarks [05:56]
+02. Sweethearts On Parade [06:20]
+03. Yatch Club Swing [03:21]
+04. Trees [04:30](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB1CAD06856C102511111FA121D104B0FC95541B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1174911   (383403) от 16.10.2017
 
 Bobby Troup - The Feeling Of Jazz (1994) Star Line [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -692,64 +750,6 @@ Peter Bernstein - Signs Of Life (1995) Criss Cross Jazz [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33DA815648FA886A3CA7C8BBC4042CE3F87887E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415173   (379247) от 11.10.2020
-
-Sonny Clark - The Best Of The Blue Note Years (1957 - 1961) 2001, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoutin' on a Riff [6:45]
-02. Dial S for Sonny [7:26]
-03. Speak Low [6:50]
-04. Sonny's Crib [13:30](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441CBDFCB228E5D4B357E63842DC0815342A6F0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415178   (379110) от 11.10.2020
-
-Walter Bishop, Jr. Trio - Speak Low + 3 (1961) 1987, Tokuma [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes I'm Happy (alternate take) [7:30]
-02. Sometimes I'm Happy [6:34]
-03. Blues in the Closet (alternate take) [3:55]
-04. Blues in the Closet [4:04](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19AEE630D315816596E6932937EAB0C7E3ABBDB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

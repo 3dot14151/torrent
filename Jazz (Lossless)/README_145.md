@@ -1,3 +1,61 @@
+###  Публикация: 1234369   (572810) от 04.07.2018
+
+Nina Lynn - 2am Kinda Night (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing The Moon
+02. Threads
+03. My Little Love
+04. Running(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DF34D595756A7DBA9BF666CD061EEF33A8C7F06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1043384   (572705) от 16.08.2016
+
+Incognito - In Search Of Better Days (2016) [FLAC|Lossless|image + .cue] <Funk, Rhythm & Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Born In Flames
+02. Just Say Nothing
+03. Everyday Grind
+04. Racing Through The Bends(   Читать дальше...   )Жанр: Funk, Rhythm & Blues, SoulПродолжительность: 01:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:212E7C141FE879C347D97FB87952A79032D1CBDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922183   (571871) от 27.07.2015
 
 Curtis Fuller - The Magnificent Trombone Of Curtis Fuller (1961) /2014, Sony Music/[FLAC|tracks+.cue]<Jazz, Hard Bop, Mainstream Jazz>
@@ -712,64 +770,6 @@ Egberto Gismonti - Em Familia (1981) EMI[FLAC|Lossless|tracks + .cue] <World Fus
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0E3A3853004DB773079D3E9C974029232016BBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043888   (569261) от 18.08.2016
-
-Nora McCarthy & The People Of Peace Quintet - Blessings (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Modern Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569261.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Love Poem For The People
-2. Akara Moi Moi
-3. Nimbus
-4. Into The Middle Of Something(   Читать дальше...   )Жанр: Vocal Jazz, Modern JazzПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E7161A407BDB23B5CB944425948A93D4628424E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043885   (569258) от 18.08.2016
-
-Tara Kannangara - Some Version Of The Truth (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Contemporary>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sound the Alarm
-02. Stand in Line (Intro)
-03. Stand in Line
-04. Atoms for Peace(   Читать дальше...   )Жанр: Vocal Jazz, ContemporaryПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC411EDEF1E6C52831CA7604D49E7AB02B16AC9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

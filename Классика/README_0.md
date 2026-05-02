@@ -1,3 +1,34 @@
+###  Публикация: 1414966   (1029937) от 21.02.2021
+
+NeoBarock – J.S. Bach: Metamorphose (2019) Ambitus [FLAC 2.0|44.1/24|tracks|WEB-DL] <Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как уже отмечали музыковеды ХХ века, некоторые композиционные структуры Иоганна Себастьяна Баха (1685–1750) ясно показывают, что они основаны на транскрипциях.
+
+NeoBaroque делает эти находки слышимыми и представляет реконструкцию предполагаемых оригинальных версий знаменитого Двойного концерта для двух скрипок (BWV 1043), скрипичной сонаты ля мажор (BWV 1015) и двух (   Читать дальше...   )Sonate G-Moll (Rekonstruktion der vermuteten Urfassungen für 2 Violinen und Basso continuo nach BWV 1029):
+01. I. Vivace (04:52)
+02. II. Adagio (05:06)
+03. III. Allegro (03:54)Жанр: ClassicalПродолжительность: 00:56:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23D4647130A7023034B4987D026378C801B16F6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1412712   (1029929) от 21.02.2021
 
 Mao Fujita - Chopin: Impromptus and Scherzos (2020) Naxos [FLAC 2.0|96/24|tracks|WEB-DL] <Classical>
@@ -718,35 +749,6 @@ Piano Sonata no. 18 in E-flat major, op. 31 no. 3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D0D2E8EFC1E79BA73324E2FCE873D0EBC9DCDE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469721   (1016289) от 13.05.2021
-
-Святослав Рихтер - Бетховен - 33 вариации на вальс Диабелли (1994) [FLAC|Lossless|image + .cue] <Chamber, Instrumental, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tema. Vivace (0:53)
-02. Var. 1. Alla marcia maestoso (2:25)
-03. Var. 2. Poco allegro (0:56)
-04. Var. 3. L'istesso tempo (1:20)(   Читать дальше...   )Жанр: Chamber, Instrumental, PianoПродолжительность: 00:52:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABBBFD7A481F70A9C71B2D95537E6A9B589DB25
 ```
 
 https://mybot314.ru/tekegram_catalog/

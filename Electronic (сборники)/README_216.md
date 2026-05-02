@@ -1,3 +1,61 @@
+###  Публикация: 1777169   (71071) от 05.02.2025
+
+VA - Spacesynth Forever 4 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 16th channel - Digital Alien (Vocoder Edition) (5:13)
+02. Apoxyz - Galactic Defense Force (4:24)
+03. Atomic Space Orchestra - Dawn of the Space (Mastered with Thunder at 60pct) (4:14)
+04. Berk van Ozden - Secret Power (4:32)(   Читать дальше...   )Жанр: Spacesynth, Synth-DanceПродолжительность: 04:19:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD43E26D606E9F67DF51F755B21B6BEEB7099B49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777704   (70967) от 07.02.2025
+
+VA - Spacesynth Forever 5 (2025) [MP3|320 Kbps] <Spacesynth, Synth-Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 16th channel - Final Station (4:15)
+02. Apoxyz - Moon Base (4:08)
+03. Atomic Space Orchestra - Enter The World (4:05)
+04. Cj Rise - Event Horizon (3:53)(   Читать дальше...   )Жанр: Spacesynth, Synth-DanceПродолжительность: 04:17:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C9C0F524C8E1F69AB150F28DB22EE575EDCDBB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778745   (70709) от 13.02.2025
 
 VA - Musical kaleidoscope part 27 Easy listening (2025) [MP3|320 Kbps] <Electronic, Instrumental, Easy listening>
@@ -681,64 +739,6 @@ VA - Hypnotized [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:952E0AC7CF294A008AB729E51C5F46345FC83F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790939   (67971) от 11.04.2025
-
-VA - ЖЖ Was Here [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marmion - Schoneberg (Marmion remix)
-02. X-Cabs - Neuro 99
-03. Silverblue - Do U Know
-04. Vincent De Moor - Flowtation(   Читать дальше...   )Жанр: TranceПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BF6B69280155587F7E82DC863251097F6B8B085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791009   (67915) от 12.04.2025
-
-Triangle Square - Compilation (2025) [MP3|320 Kbps] <Electronic, Deep House Remix>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Midnight Dose
-  02.  I'm Alive
-  03.  Lost in Time
-  04.  Love Me Harder(   Читать дальше...   )Жанр: Electronic, Deep House RemixПродолжительность: 00:25:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB6E6043E6ED601A0F0DE23E37AB4345114115EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

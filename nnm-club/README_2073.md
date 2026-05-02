@@ -1,22 +1,24 @@
-###  Публикация: 1477206   (1011172) от 14.06.2021
+###  Публикация: 26662   (1012760) от 03.06.2021
 
-Растровый клипарт - Elements Collage 160 [PNG, PSD, JPG]
+Тайны забытых побед (2006) DVDRip
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Документалистика и Телепередачи
+>>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012760.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 190x211-1824x1866
+Каждый фильм этого цикла действительно о забытых, а порой и неизвестных, скрытых строжайшими секретами победах. Великих победах наших ученых, инженеров, конструкторов, о которых важно знать всем нам, которыми нужно гордиться.
+
+Когда вышел первый фильм этого цикла о крылатой ракете "Буря", как две капли воды похожей на нынешний американский "Шаттл" (   Читать дальше...   )Жанр: Документальный циклПеревод: ОригинальныйПродолжительность: 35 x ~ 00:26:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:452B237343ED926BB4620C6FF50D6F6AF0E7FAC4
+magnet:?xt=urn:btih:142B31AF7B103916408B0B7E4447152E475EDFCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,50 +26,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477205   (1011171) от 14.06.2021
+###  Публикация: 1474594   (1012759) от 03.06.2021
 
-Растровый клипарт - Elements Collage 159 [PNG, PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011171.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 140x548-1800x863
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7402392F10FED19A80165FDE1EA9760310D211B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477308   (1011170) от 14.06.2021
-
-Selva - Selva (2021) EP [MP3|320 Kbps] <Alternative Rock>
+Чернобыль (2020) WEBRip
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012759.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Я и ты [00:02:51]
-02 - Подруги [00:03:06]
-03 - Зверь [00:03:00]
-04 - Потеряться вот так [00:02:49](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:15:19
+Алексей Карпушин — обычный молодой советский парень, пожарный в Припяти, который впервые начинает строить планы длиннее, чем на выходные или отпуск — он влюбляется в парикмахера Олю. В прошлом у них уже были отношения, но тогда Алексей упустил свой шанс. Теперь у Оли есть маленький сын Леша, но Алексей намерен никогда больше не повторять прежних ошибок: он признается (   Читать дальше...   )Производство: Россия, Централ Партнершип, DK Entertainment, ГПМ КИТ, Нон-стоп ПродакшнЖанр: Драма, ИсторияРежиссер: Данила КозловскийАктеры: Данила Козловский, Филипп Авдеев, Оксана Акиньшина, Николай Козак, Равшана Куркова, Игорь Черневич, Петр Терещенко, Артур Бесчастный, Андрей Арчаков, Самвел ТадевосянПеревод: Не требуется (Русский)Субтитры: ОтсутствуютПродолжительность: 02:15:30
 
 ## Скачать торент
 ```bash
@@ -79,73 +52,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477209   (1011169) от 14.06.2021
+###  Публикация: 1017012   (1012758) от 03.06.2021
 
-Растровый клипарт - Elements Collage 162 [PNG, PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011169.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 200x658-1800x851
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4022DCA3C20470FA67326ADCAC5A27F9137497D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477204   (1011168) от 14.06.2021
-
-Растровый клипарт - Elements Collage 158 [PNG, PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 163x125-2701x3051
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF6EA766A0A56EA52BAD5FBB9E736A7EA2686EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477352   (1011167) от 14.06.2021
-
-Мэйбл Норманд. Драматическая карьера Мэйбл / Mabels Dramatic Career (1913) DVDRip
+Biosphere | Geir Jenssen - Discography 65 Releases (1991-2021) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Techno, Downtempo, Experimental, Techno Ambient>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011167.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012758.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мак сделал предложение кухарке Мэйбл, но вскоре увлёкся другой девушкой, а Мэйбл уволили. Она отправилась в город искать работу, и стала киноактрисой. Через несколько лет Мак увидел свою бывшую возлюбленную на киноэкране, и горько пожалел о своём поступке. Вот такая вот американская история.Производство: США, Keystone Film CompanyЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Мэйбл Норманд, Мак Сеннет, Элис Девенпорт, Вирджиния Кёртли, Чарльз Эйвери, Форд Стерлинг, Роско Арбакл, Билли Джейкобс, Чарльз Инсли, Энди АндерсонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:14:03
+CD1
+01. The Fires Of Ork I (07:48)
+ 02. Gebirge (21:28)
+ 03. Talk To The Stars (11:48)(   Читать дальше...   )Тип издания: CD, Web, VinylЖанр: Ambient, Techno, Downtempo, Experimental •Продолжительность: 60:57:46 •
 
 ## Скачать торент
 ```bash
@@ -157,21 +81,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477212   (1011166) от 14.06.2021
+###  Публикация: 1463649   (1012757) от 03.06.2021
 
-Растровый клипарт - Elements Collage 164 [PNG, PSD, JPG]
+Мейр из Исттауна / Mare of Easttown (2021) WEB-DL [H.264/1080p] (сезон 1, серии 1-7 из 7) Novamedia
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012757.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 228x760-3600x3600
+Мейр Шиэн — женщина-детектив из маленького городка в Пенсильвании, расследующая местное убийство, пока ее личная жизнь рушится.Производство: США / Home Box Office (HBO), Mayhem Pictures, wiip studiosЖанр: драма, криминалРежиссер: Крэйг ЗобелАктеры: Кейт Уинслет, Джулианна Николсон, Джин Смарт, Энгаури Райс, Эван Питерс, Кэйли Спэни, Гай Пирс, Дэвид Денман, Джон Дуглас Томпсон, Джо ТиппеттПеревод: Многоголосый профессиональный (Novamedia)Язык озвучки: Русский, английскийСубтитры: Русские, английскиеПродолжительность: ~00:58:00 серия
 
 ## Скачать торент
 ```bash
@@ -183,28 +107,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477298   (1011165) от 14.06.2021
+###  Публикация: 1442426   (1012756) от 03.06.2021
 
-Nishubert - Молодости не будет (2021) [MP3|320 Kbps] <Русский пост-панк>
+SamDrivers 21.5 - Сборник драйверов для Windows [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>След.
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011165.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012756.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Молодости не будет [00:03:06]
-02 - VHS [00:03:27]
-03 - Площадь [00:03:31]
-04 - Лето прошло [00:04:00](   Читать дальше...   )Жанр: Русский пост-панкПродолжительность: 00:21:31
+Сборник драйверов от SamLab для всех 32-х и 64-битных операционных систем Windows, начиная от Windows 2000 и до Windows 10, включая серверные платформы.
+В качестве оболочек-установщиков, для автоопределения вашего оборудования и автоматической установки необходимых драйверов, использованы специализированные утилиты:
+DriverPack Solution 16.20 Plus / Drivers Installer (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:424C7201AAB37589C3E3B25516B8BA8DA888F8C7
+magnet:?xt=urn:btih:E284311F91DC860D04788E02D299261800336D90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,25 +135,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477159   (1011164) от 14.06.2021
+###  Публикация: 1474135   (1012755) от 03.06.2021
 
-Журнал | evo [UK] №7 (июль 2021) [PDF] [En]
+Портал / Doors (2021) WEB-DL [H.264/1080p-LQ]
 
->>Автомобили
->>Автомобильные журналы
+>>След.
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011164.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012755.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Evo - ежемесячный журнал, посвященный исключительно автомобилям самых желанных для водителей - от доступных хэтчбеков GTI до итальянских суперкаров со скоростью 200 миль в час. Основное внимание журнала уделяется технологиям, качеству, эксклюзивности и производительности на всех уровнях. Evo стремится усадить читателя за руль, чтобы оставить прекрасные впечатления (   Читать дальше...   )Жанр: Автомобильный журналФормат: PDF
+Миллионы таинственных инопланетных «дверей» внезапно появляются по всему земному шару. Чтобы определить причину их прибытия, учёные разных стран должны работать вместе. Странные события, происходящие вокруг этих порталов, заставляют человечество сомневаться в собственном существовании и окружающей реальности.Производство: США / Bloody Disgusting, BoulderLight PicturesЖанр: ФантастикаРежиссер: Саман Кешаварц, Джефф Дэсом, Дуган О’НилАктеры: Джош Пек, Лина Эско, Уилсон Бетел, Кип Мэлоун, Кэти Хан Нгуйен, Джулианна Коллинз, Арик Флойд, Рори Энн Даль, Christopher Black, Трэйси РозенблюмПеревод: Дублированный, авторскийСубтитры: Русские, английскиеПродолжительность: 01:24:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D3F17E9B3BD10159196D3B3F35324936BD282D9
+magnet:?xt=urn:btih:3D7313A5B62E65A125DAF7962653F6211DB71A6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,25 +161,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477220   (1011163) от 14.06.2021
+###  Публикация: 1474317   (1012754) от 03.06.2021
 
-Растровый клипарт - Elements Collage 169 [PNG, PSD, JPG]
+Microsoft Office: оповещение Ваша лицензия не является подлинной...
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012754.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 209x400-3000x2804
+Microsoft Office: оповещение Ваша лицензия не является подлинной...
+В последнее время участились жалобы пользователей на появление оповещения от майкрософт, что они стали жертвами нелицензионного ПО и предложение купить лицензию. При этом офис активирован. Эмпирическим путем было выяснено, что при запуске офиса происходит проверка канала обновлений, сравнение с каналом (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB80ECCBA1CD71BAD515096B336BC0149BDC2FE0
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -264,25 +188,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477231   (1011162) от 14.06.2021
+###  Публикация: 1432845   (1012753) от 03.06.2021
 
-Растровый клипарт - Elements Collage 172 [PNG, PSD, JPG]
+Snappy Driver Installer 1.21.2 (R2102) | Драйверпаки 21.06.0 [Multi/Ru] (официальная раздача)
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012753.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 276x800-1500x1000
+Snappy Driver Installer (SDI) - портативная программа для установки и обновления драйверов, не требующая подключения к интернету. Является переработкой оригинальной программы SDIO от Glenn Delahoy. Так же, как и SDIO, является лидером среди программ этого класса по точности подбора драйверов и скорости работы. При ранжировании драйверов отдает приоритет более подходящим (   Читать дальше...   )Язык интерфейса: русский, английский и ещё 39 языков
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2101124C9F1218E153C9FE886A52EB3B69EA3E37
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,132 +214,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477202   (1011161) от 14.06.2021
+###  Публикация: 1474850   (1012752) от 04.06.2021
 
-Растровый клипарт - Elements Collage 157 [PNG, PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 128x530-2190x2603
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F281EB5608364CAFA8E40A16F6FF73FE579FC02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477146   (1011160) от 14.06.2021
-
-Преподобный Иустин Челийский (Попович) | Философские обрывы (2021) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл философско-лирических очерков прославленного в 2010 году в лике святых архимандрита Сербской Православной Церкви преподобного Иустина (Поповича) «Философские обрывы» — одна из самых удивительных и впечатляющих богословских книг ушедшего века. Ни на что не похожий стиль размышлений прп. Иустина (Поповича) сплавляет в себе философию и лирику, богословскую мысль (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD34B35F88006C42433F7A03FD7AD1A0990A599A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477192   (1011159) от 14.06.2021
-
-Футбол. Чемпионат Европы 2020. Групповой этап. Обзор матчей (14.06.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Футбол. Чемпионаты Европы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат Европы по футболу 2020 года. Обзор матчей. 1й тур.3й день (14.06.2021)Телекомпания: Матч!Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F752680A2C181A6C37D9AB71DEDF7966178324A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477217   (1011158) от 14.06.2021
-
-Растровый клипарт - Elements Collage 167 [PNG, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, JPGРазрешение файлов: 138x497-2315x988
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04BD55DA2CFF610FA71A595425D7AB70DB3BC43B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477227   (1011157) от 14.06.2021
-
-Flotsam And Jetsam - Drift (1995) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
+Val Santos - 1986 (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011157.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012752.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Me
-02. Empty Air
-03. Pick A Window
-04. 12 Year Old With A Gun(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:42:37
+01. Fire 03:48
+02. Cross The Line 05:23
+03. Destruction 04:45
+04. Dreamer 03:57(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:49:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCECCF9786D27F05FBD72049050D2184A01CFE19
+magnet:?xt=urn:btih:4CFDA46CC6B43C653EBAE45E1AF4A4B6FB107444
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,80 +243,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477207   (1011156) от 14.06.2021
+###  Публикация: 1474917   (1012751) от 04.06.2021
 
-Растровый клипарт - Elements Collage 161 [PNG, PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 123x550-1898x1789
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C9CE4E2E24BA5BCA4C836748C46C605CC4A42EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477234   (1011155) от 14.06.2021
-
-Растровый клипарт - Elements Collage 174 [PNG, PSD, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 171x416-2223x2327
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A8414E8862B9130C18488297306AEC4C1543BAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477167   (1011154) от 14.06.2021
-
-Karcinoma - Invictus (2020) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Symphonic Metal>
+Revel - War Inside (2021) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal, Alt.Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012751.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Incantamentum [00:03:34]
-02. Invictus [00:08:20]
-03. La Casa Sotto La Tredicesima Luna [00:08:41]
-04. Mama [00:05:30](   Читать дальше...   )Жанр: Gothic Metal, Symphonic MetalПродолжительность: 01:06:25
+01 Haunted [00:03:46]
+02 War Inside [00:04:14]
+03 Lying Beneath [00:04:05]
+04 Into Nothing [00:03:16](   Читать дальше...   )Жанр: Nu-Metal, Alt.MetalПродолжительность: 00:47:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C76B13B40341D2A51ECF127A6B9BB74952363465
+magnet:?xt=urn:btih:9910B89DCF654AFD77FC84B94590EBE13DE15C01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -504,25 +272,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477216   (1011153) от 14.06.2021
+###  Публикация: 1474915   (1012750) от 04.06.2021
 
-Растровый клипарт - Elements Collage 166 [PNG, PSD, JPG]
+Мэйбл Норманд. Свадьба Элен / Helen's Marriage (1912) DVDRip
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012750.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 137x850-1833x1321
+Чтобы жениться на Элен, парень устроил пред её домом фиктивные съёмки кинофильма.Производство: СШАЖанр: Комедия, короткометражный, немое киноРежиссер: Мак СеннетАктеры: Мэйбл Норманд, Эдвард Диллон, Фрэнк Опперман, Грэйс Хендерсон, Фред Мейс, Делл Хендерсон, Уильям Дж. Батлер, Чарльз Уэст, Мак Сеннет, Уильям БодайнПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:07:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6010AFE6A9814B066DD0B559888F9ABA17BCDE50
+magnet:?xt=urn:btih:DE3E357314DE46285B3529FA0CF1DB8AE31DD54E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,24 +298,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477221   (1011152) от 14.06.2021
+###  Публикация: 1474861   (1012749) от 04.06.2021
 
-ICD-10 - Differential Diagnosis (2019) Hands Productions [FLAC|Lossless|tracks+.cue] <Industrial, Techno>
+David Larsen - The Mulligan Chronicles (2021) Self-Released [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
 
->>нет
->>нет
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011152.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012749.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Congestion (05:32)
- 02. White Surfaces (04:17)
- 03. Dark Channels (05:44)
- 04. Jittered Visions (06:20)(   Читать дальше...   )Жанр: Industrial, TechnoПродолжительность: 01:13:44
+01. Walkin' Shoes [6:18]
+02. Curtains [6:19]
+03. Festive Minor [5:28]
+04. Good Neighbor Thelonius [4:31](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E88B49911C1D8B9F42D231DBB5C994AF257256A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474920   (1012748) от 04.06.2021
+
+Atreyu - Baptize (2021) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strange Powers Of Prophecy (1:03)
+02. Baptize (2:49)
+03. Save Us (2:21)
+04. Underrated (3:00)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:41:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C53C0E234FE835F9F386D85D0640C604E8D875E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474931   (1012747) от 04.06.2021
+
+Mara - Poetry & Motion (1992) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sentimental Warning
+02. Justify
+03. 1/2 Way 'Till Tomorrow
+04. Second Best(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:27
 
 ## Скачать торент
 ```bash
@@ -559,25 +385,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477213   (1011151) от 14.06.2021
+###  Публикация: 1474877   (1012746) от 04.06.2021
 
-Растровый клипарт - Elements Collage 165 [PNG, PSD, JPG]
+Del Amitri - Fatal Mistakes (2021) [FLAC|Lossless|image + .cue] <Rock, Soft Rock, Pop Rock>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011151.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012746.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 188x624-2869x2609
+01. You Can't Go Back
+02. All Hail Blind Love
+03. Musicians and Beer
+04. Close Your Eyes and Think Of England(   Читать дальше...   )Жанр: Rock, Soft Rock, Pop RockПродолжительность: 00:45:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF04343092D89DE864D3852AAD51C6AA03ACADA5
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,28 +414,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477311   (1011150) от 14.06.2021
+###  Публикация: 1474741   (1012745) от 04.06.2021
 
-Teach Every Mary - Сотня фунтов за голову Тича (2021) [MP3|320 Kbps] <Heavy Metal, Folk Metal, Pirate Metal>
+Blazon Rite - Endless Halls Of Golden Totem (2021) [MP3|320 Kbps] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012745.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Баба на корабле [00:03:31]
-02 - Сотня фунтов за голову Тича [00:03:10]
-03 - Слава Безумцам! [00:03:23]
-04 - Королева пиратов [00:03:39](   Читать дальше...   )Жанр: Heavy Metal, Folk Metal, Pirate MetalПродолжительность: 00:31:34
+01. Legends Of Time And Eidolon (05:44)
+ 02. Put Down Your Steel (Only For The Night) (04:00)
+ 03. The Executioners Woe (03:35)
+ 04. Endless Halls Of Golden Totem (05:42)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F52EDDC4D3ADCC8A6D61EEBAAAAF94C60CB516C5
+magnet:?xt=urn:btih:9CEA66965E2B23AB0F812233694A09691F047A88
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,25 +443,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477210   (1011149) от 14.06.2021
+###  Публикация: 1474897   (1012744) от 04.06.2021
 
-Растровый клипарт - Elements Collage 163 [PNG, PSD, JPG]
+Lisa Hilton - American Impressions (2012) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012744.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 205x760-1500x1000
+01. Too Hot (Hilton) - 4:34
+02. Anatomy of the Blues (Hilton) - 3:56
+03. When It Rains (Hilton) - 4:34
+04. Subway (Hilton) - 3:46(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:49:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9BF2AD6FE33BF6CE9AEA204111FDDAE0FA017B56
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,25 +472,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477224   (1011148) от 14.06.2021
+###  Публикация: 1474919   (1012743) от 04.06.2021
 
-Растровый клипарт - Elements Collage 171 [PNG, PSD, JPG]
+Гарольд Ллойд. Осторожно, профессор / Professor Beware (1938) DVDRip
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011148.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012743.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 210x262-1862x1588
+Профессор Ламберт занимается расшифровкой древних египетских табличек Неферуса и Аниби. И обнаруживает удивительные параллели между прочитанным там и своей собственной жизнью.Производство: СШАЖанр: КомедияРежиссер: Эллиотт НаджентАктеры: Гарольд Ллойд, Филлис Уэлш, Рэймонд Уолбёрн, Лайонел Стэндер, Уильям Фроули, Тьюрстон Холл, Кора Уизерспун, Стерлинг Холлоуэй, Артур Эйлсворт, Ирвинг БэйконПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: Русские отдельным файломПродолжительность: 01:32:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9DF5D90B95F0364BC6DD439FB9D5F6095606DD67
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,25 +498,226 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477219   (1011147) от 14.06.2021
+###  Публикация: 1474865   (1012742) от 04.06.2021
 
-Растровый клипарт - Elements Collage 168 [PNG, PSD, JPG]
+VA - The Ethnic Dance House (2021) [MP3|320 Kbps] <EDM, Dance House>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012742.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, PSD, JPGРазрешение файлов: 136x531-1789x2255
+001. Keene - Ehcoprieta
+002. Hajna - The Dream
+003. Nitos Tulum, Vruno - Agua Ft. Zaratustra
+004. Ray Md - Los Colores Del Mundo(   Читать дальше...   )Жанр: EDM, Dance HouseПродолжительность: 11:08:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:45C27463A3404473F61090A174C7335005874919
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474905   (1012741) от 04.06.2021
+
+Poison - Poison's Greatest Hits 1986-1996 (1996) [FLAC|Lossless|image + .cue] <Glam Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothin’ but a Good Time (3:43)
+02. Talk Dirty to Me (3:44)
+03. Unskinny Bop (3:47)
+04. Every Rose Has Its Thorn (4:17)(   Читать дальше...   )Жанр: Glam MetalПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF2AADCDCB1130C5EC7EF35C20573BE572658A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474922   (1012740) от 04.06.2021
+
+Van Canto - To The Power Of Eight (2021) [FLAC|Lossless|WEB-DL|tracks] <A Capella Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Power of Eight (1:58)
+02. Dead by the Night (3:37)
+03. Faith Focus Finish (4:56)
+04. Falling Down (5:11)(   Читать дальше...   )Жанр: A Capella Power MetalПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250EBD9CCF156721FF2A1AFE194F507D74E7654C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474916   (1012739) от 04.06.2021
+
+Люси Мод Монтгомери | Энн из Зелёных Крыш (2020) [MP3]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012739.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Энн из Зелёных Крыш» – один из самых известных романов канадской писательницы Люси Монтгомери (англ. Lucy Montgomery, 1874-1942). ***
+Марилла и Мэтью Касберт из Грингейбла, что на острове Принца Эдуарда, решают усыновить мальчика из приюта. Но по непредвиденному стечению обстоятельств к ним попадает девочка Энн Ширли.Жанр: Детская литератураПродолжительность: 12:06:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474879   (1012738) от 04.06.2021
+
+Andy Dune - Death in Wonderland (2020) [FLAC|Lossless|WEB-DL|tracks] <Gothic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1000 Years
+02. This Place Is Burning
+03. Visions
+04. Sacrifice(   Читать дальше...   )Жанр: Gothic RockПродолжительность: 00:45:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:875D9E3AA3DC8D9536BB82B6C9328F3E2F196D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474838   (1012737) от 04.06.2021
+
+Caging Elliott - Under The Blackened Sky (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Enough
+02. Never Gonna
+03. Whiskey Down
+04. Don't Tread On Me Pt 1(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E628521AB1E2A5CB62BA600DF1A12FB590FAB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474940   (1012736) от 04.06.2021
+
+Rise Against - Nowhere Generation (2021) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Numbers [00:04:59]
+02. Sudden Urge [00:03:46]
+03. Nowhere Generation [00:03:52]
+04. Talking To Ourselves [00:03:24](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDE9767341584340AC599AB58A953A4A7365C734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474896   (1012735) от 04.06.2021
+
+Opera 76.0.4017.177 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012735.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FFEE687B17C36192C8B544947B90026914ACFA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

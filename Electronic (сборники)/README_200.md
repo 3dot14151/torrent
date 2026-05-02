@@ -1,3 +1,61 @@
+###  Публикация: 1345981   (165222) от 17.12.2019
+
+VA - Hi Games Vol1 Mix (Chiptune Edition) (2018) [MP3|320 Kbps] <Chiptune>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zalza - Nudel Soppa Blues
+02. Anamanaguchi - Planet
+03. Street of Rage - Round 3
+04. Jredd - Neon Alley(   Читать дальше...   )Жанр: ChiptuneПродолжительность: 02:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E765BCE30E66EF5B6FD8E3EE2C010736EB2678
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345958   (165147) от 17.12.2019
+
+VA - Beautiful Sound Of Trance Music (2019) [MP3|320 Kbps] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165147.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Max Trumpetz - Free For All (Radio Edit)
+002. A.L.Y.S. - Arctic Stream (Air Project Remix)
+003. Fractal Rider - Disorder
+004. Roxy June - Let Them Fight (Original Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 12:22:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C41C566BAB01BAFDF3F10DC559EC44FCAEED6EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1516795   (165094) от 12.12.2021
 
 VA - Record Super Chart 11.12.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -687,64 +745,6 @@ VA - Soft Shades Of Deep House (2023) [MP3|320 Kbps] <Deep-House, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E161D077E7E7589555A4C3802483DE3ADBC9421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674726   (160759) от 06.11.2023
-
-VA - Крутые пушки Осень 2023 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MACAN - ASPHALT 8 (DJ LEV Radio Remix) (2:32)
-02. Makkeno Special Set Track #11 - Party Till We Die (Extended Mix) (3:07)
-03. Masters at Work - Work (DJ LEV Remix) (5:20)
-04. Navai & Timati, Misha Goda, Rakurs - Lambo (Dj Petrosian Mash-Up Radio) (2:34)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F67161FDB14F8FA3F17E0D7B69E0D603D5E5E928
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675250   (160188) от 09.11.2023
-
-VA - Electronic compilation part 39 (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mzade - Move
-02. Samelo - La Meno
-03. Imran Khan - Arrival
-04. Samelo - Deep Distance(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F2282DA3AF93E9E9C78B108734ED1AC0178016
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,162 @@
+###  Публикация: 1484919   (1005813) от 22.07.2021
+
+Microsoft Windows 10.0.19041.1110, Version 2004 (Updated July 2021) - Оригинальные образы от Microsoft MSDN [Ru]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.1110.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F011063C7607DF212013DC37DE6FC58CD832FE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484921   (1005805) от 22.07.2021
+
+Microsoft Windows 10.0.19042.1110, Version 20H2 (Updated July 2021) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1110.
+Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890C5B214E3F278519D422B41688166D39BD0B3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1484916   (1005770) от 22.07.2021
+
+Microsoft Windows 10.0.17763.2061, Version 1809 (Updated July 2021) - Оригинальные образы от Microsoft MSDN [En]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1005770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оригинальные образы MSDN - Windows 10 Version 1809 Build 17763.2061.
+Оригинальные образы business_edition.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5B28CCD81FEF4D59F4C3EECB22E1810F83B85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 437914   (975927) от 18.01.2012
+
+Microsoft Windows 7 N SP1 Updated 13.05.2011 - Оригинальные образы от Microsoft MSDN [English]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975927.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 7 с интегрированным пакетом обновления SP1. Пакет обновления 1 (SP1) для Windows 7* и содержит ранее выпущенные обновления, распространявшиеся через Центр обновления Windows, а также добавочные обновления для указанных платформ.Язык интерфейса: английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 857041   (954286) от 07.01.2015
+
+Windows Embedded 8.1 with Update [November 2014] - Оригинальные образы от Microsoft MSDN [Ukr]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 8.1 — это еще большие возможности персонализации и новые, великолепные приложения и службы. Windows Embedded 8.1 Industry является новым продуктом в линейке так называемых «вертикальных» продуктов, к которым относится, также, Windows Embedded POSReady. Основное отличие от POSReady – ядро Windows 8.1Язык интерфейса: Український
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768A21E9E24ECD87F333191D95E2FAD5A83FC851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 861420   (931169) от 22.01.2015
+
+Windows 8.1 Professional WMC with Update 3 [November 2014] [Ukr]
+
+>>ОС Windows
+>>Оригинальные версии Windows
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 8.1 ProfessionalWMC with UpdateЯзык интерфейса: Український
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF1545C7A87F9D81D73E1F8BE23C66CA85EDE73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 861105   (931163) от 22.01.2015
 
 Windows 8.1 Single Language with Update 3 [November 2014] [Ru/En]
@@ -526,167 +685,6 @@ Windows 8.1 (ранее известная как «Windows Blue») являет
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5356D672026189DCAEEDB18B1ECB1DF2EF4738DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500117   (834742) от 10.10.2021
-
-Microsoft Windows 11 [10.0.22000.194] - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы - Windows 11 Build 22000.194.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63DD5E5BF8A4802F8224A25DAC4C08B14414DEE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 336864   (832224) от 04.04.2014
-
-Microsoft Windows 7 SP1 Updated (12.05.2011) - Оригинальные образы от Microsoft MSDN [Russian]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Windows 7 с интегрированным пакетом обновления SP1. Пакет обновления 1 (SP1) для Windows 7 и содержит ранее выпущенные обновления, распространявшиеся через Центр обновления Windows, а также добавочные обновления для указанных платформ.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503644   (817642) от 20.10.2021
-
-Microsoft Windows 10.0.19041.1288, Version 2004 (Updated October 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817642.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.1288.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACC35437942A49B58C71D3D0264FB9B36759598B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503645   (817631) от 20.10.2021
-
-Microsoft Windows 10.0.19041.1288, Version 2004 (Updated October 2021) - Оригинальные образы от Microsoft MSDN [Ru]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817631.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 2004 Build 19041.1288.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF571EC6025910C5958993F0A0C86C144F4AAB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503647   (817367) от 20.10.2021
-
-Microsoft Windows 10.0.19042.1288, Version 20H2 (Updated October 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы MSDN - Windows 10 Version 20H2 Build 19042.1288.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9668C76AB19F18EB3125BDA356EF7EB57A71BE01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503650   (817363) от 20.10.2021
-
-Microsoft Windows 11 [10.0.22000.258], Version 21H2 (Updated October 2021) - Оригинальные образы от Microsoft MSDN [En]
-
->>ОС Windows
->>Оригинальные версии Windows
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_817363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальные образы - Windows 11 Build 22000.258.
-Оригинальные образы business_edition и consumer_edition.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5835DE13A01BE5D23413FA6764DDD72F53CB8ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

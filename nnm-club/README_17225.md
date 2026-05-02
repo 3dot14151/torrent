@@ -1,25 +1,22 @@
-###  Публикация: 1579109   (336499) от 27.09.2022
+###  Публикация: 954411   (339121) от 08.11.2015
 
-Seventh Storm - Maledictus (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Progressive Gothic Metal>
+WSUS Offline Update 10.2 Portable [En]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pirate's Curse [00:06:24]
-02. Saudade (English version) [00:06:38]
-03. Sarpanit [00:02:21]
-04. Gods Of Babylon [00:06:48](   Читать дальше...   )Жанр: Hard Rock, Progressive Gothic MetalПродолжительность: 01:13:07
+WSUS Offline Update - незаменимая программа для пользователей, которым необходимо установить свежие обновления Windows и Microsoft Office на компьютер с отсутствующим подключением к сети Интернет (в режиме оффлайн). Утилита позволяет скачивать обновления для мультиязычных версий Windows, причем для каждой локации можно скачивать отдельные обновления.Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35858978EC0ACD2343D14DA08FCEC06C179AEF66
+magnet:?xt=urn:btih:104B6E8E28BEBDB533AFB67302D7EBCBF0F36A90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579404   (336498) от 27.09.2022
+###  Публикация: 954157   (339120) от 08.11.2015
 
-Dr Pickup - Hiding in Plain Sight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Путешествие 2: Таинственный остров / Journey 2: The Mysterious Island (2012) BDRip [H.264/720p] [hand made 60fps]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Остальное
+>>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336498.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Life Gets in the Way (3:45)
-02. The General Motors Blues (2:58)
-03. Shrimp City Slim (4:12)
-04. Creedance Clearwater Revival (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:30
+На этот раз Шон Андерсон получает закодированный сигнал с просьбой о помощи, причем с загадочного острова, из места, где никакого острова и быть не может. Там обитают странные формы жизни, скрываются горы золота, смертоносные вулканы и не одна ошеломляющая тайна. Отчиму Шона, не сумевшему остановить его, ничего не остается, как тоже присоединиться к поискам. Вместе (   Читать дальше...   )Производство: США / New Line CinemaЖанр: Фантастика, фэнтези, боевик, комедия, приключения, семейныйРежиссер: Брэд ПейтонАктеры: Дуэйн Джонсон, Джош Хатчерсон, Ванесса Энн Хадженс, Майкл Кейн, Луис Гусман, Кристин Дэвис, Анна Колвелл, Стивен Кодилл, Брэнском Ричмонд, Уолтер БэнксонПеревод: Дублированный (Лицензия)Субтитры: Вшитые, отключаемыеЯзык субтитров: Русский (Full), Английский (Full)Продолжительность: 01:34:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8423BA172376897B7C34FB74919A17D176828BE
+magnet:?xt=urn:btih:CD5F2D21B4D51D1436C18C31B66F1CEB394A12E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579431   (336497) от 27.09.2022
+###  Публикация: 954797   (339119) от 08.11.2015
 
-Frozen Factory - 3 Albums (2020-2022) [MP3|320 Kbps] <Progressive Rock>
+Растровый клипарт - Motorcycle vintage [JPG]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Murder in the Depths [00:03:01]
-02. Host With the Most [00:04:00]
-03. Solar Windfalls [00:04:34]
-04. Equalise Power [00:04:26](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 3 CD, 02:07:02
+Клипарт с байкерскими эмблемами.Формат: JPGРазрешение файлов: 2668х2263 - 4238х3298 (300 dpi)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:146D7E248F2CF445C73950AB69E4D766700CBCFE
+magnet:?xt=urn:btih:B8608AC84B3409BDCDBE0B1A60D3EB8FA27B9FE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579415   (336496) от 27.09.2022
+###  Публикация: 954538   (339118) от 08.11.2015
 
-VA - Redux Selection Vol.10 (2022) [MP3|320 Kbps] <Trance>
+Барби и щенки в поисках сокровищ / Barbie and Her Sisters in the Great Puppy Adventure (2015) DVDRip
 
->>Electronic
->>Trance
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. KBK & Agata Pasternak - In My Dreams (Extended Mix)
-02. Mark van Rijswijk - Nothing (Extended Mix)
-03. 2passion - Stranger @ Night (Extended Mix)
-04. Claas Inc. - Hamwoofer (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:17:06
+Однажды летом Барби и её сестры Скиппер, Стейси и Челси приезжают погостить к бабушке. Девочек ждет сюрприз: недавно у бабушкиной собаки родились чудесные щенки, и каждая из сестер выбирает себе любимца. Играя в прятки на чердаке, щенки находят старую карту и приносят ее девочкам. Бабушка рассказывает внучкам, что карта может привести их к давно потерянным сокровищам, (   Читать дальше...   )Производство: СШАЖанр: МультфильмРежиссер: Эндрю ТэнПеревод: ДублированныйПродолжительность: 01:15:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:013D66363F7CFBA77E2AF4BD6AA4D822CECDF005
+magnet:?xt=urn:btih:0880C251BE16F89E25729A7DF32929994D133F60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +102,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579505   (336495) от 27.09.2022
+###  Публикация: 954685   (339117) от 08.11.2015
 
-VA - Silent Shore Trance - Autumn (2022) [MP3|320 Kbps] <Trance>
+Arch Linux 2015.11.01 [i686, x86-64] 1xCD
 
->>Electronic
->>Trance
+>>Linux, Unix и другие ОС
+>>ОС Linux
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bluespark - Magic Solstice (Extended Mix)
-02. Redchild - Alertness (Extended Mix)
-03. Db Mokk - Millennium (Extended Mix)
-04. District 5 - Heartless (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:48
+Arch — «легковесный», простой и гибкий дистрибутив Linux, оптимизированный для архитектур i686 и x86-64, использующий последние стабильные версии программ и дополняемый поддерживаемым сообществом репозиторием AUR. Arch «будет тем, что вы из него сделаете», и рассчитан не на новичков, а на более опытных пользователей. Дистрибутив был создан Джаддом Винетом.
+
+В Arch (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDB085EF2C008B6087626A6036226B73FB2F6DC1
+magnet:?xt=urn:btih:2CA62704BC6F0D23581CA3ED6ECA611431B7A4C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,394 +130,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579411   (336494) от 27.09.2022
+###  Публикация: 954654   (339116) от 08.11.2015
 
-Hog Branch - Hog Branch (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let the Music Take Your Mind (4:03)
-02. Getting to the Groove (3:39)
-03. Nights on Broadway (4:34)
-04. Slow Grind (6:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F38C920B788B2526F94F80B9BA5EE7133575B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579406   (336493) от 27.09.2022
-
-Dr. John - Things Happen That Way (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funny How Time Slips Away (4:38)
-02. Ramblin’ Man (3:52)
-03. Gimme That Old Time Religion (feat. Willie Nelson) (3:25)
-04. I Walk On Guilded Splinters (feat. Lukas Nelson & Promise of the Real) (4:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2275CD58A38DC4E0CB774AD82231941D639B6A1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579308   (336492) от 27.09.2022
-
-Black Debbath - 11 Albums (1999-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Age of Kørka [00:02:57]
-02. Hobby dommedagsprofet [00:04:49]
-03. Hvor i helvete blir det av Satan? [00:04:50]
-04. Pastor Gjøk [00:05:04](   Читать дальше...   )Жанр: Heavy Stoner Doom MetalПродолжительность: 11 CD, 08:12:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5AC49CEDEB37807A22CC0F2CA2ADDD4DFC3F1B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579408   (336491) от 27.09.2022
-
-El Oso y Sus Sabandijas - Magic Hooker Rush (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay Mad (3:25)
-02. Every Day and Every Night (3:14)
-03. Sit Down (2:39)
-04. Easy Baby (3:09)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:24:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:932581F32649A165BA69F9C972B979CCEDD8F607
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579397   (336490) от 27.09.2022
-
-3S - Play the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Man (3:29)
-02. Easy Way Out (6:54)
-03. I'm Goin' Home (3:01)
-04. Duck & Walk (4:41)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA664311A556DE417897DD49D8FF79366F2FB01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579361   (336489) от 27.09.2022
-
-Decapitated - Collection 9CD (2000 - 2022) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336489.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	From the Nothingness with Love
-2.	Cancer Culture
-3.	Just a Cigarette
-4.	No Cure(   Читать дальше...   )Жанр: Technical Death Metal, Groove MetalПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF4523B877C39873464EBE65DAF972351C5C5F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579358   (336488) от 27.09.2022
-
-Fleesh - 13 Albums (2017-2022) [MP3|320 Kbps] <Progressive Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manhã dos 33 (Sagrado Coração da Terra Version) [00:04:22]
-02. Nights in White Satin (Moody Blues Version) [00:04:56]
-03. Miracle Of Love (Eurythmics Version) [00:04:37]
-04. Sometimes You Can't Make It On Your Own (U2 Version) [00:05:08](   Читать дальше...   )Жанр: Progressive Rock, Female VocalПродолжительность: 13 CD, 17:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9546BCF4E4C4D02300E9F9F67DE98F713714EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579183   (336487) от 27.09.2022
-
-Billy Talent - Crisis of Faith (2022) [FLAC|Lossless|image + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgiveness I + II
-02. Reckless Paradise
-03. I Beg To Differ (This Will Get Better)
-04. The Wolf(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:251B937C5DAF248E9DD2A6B3D14E758E1068F00B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579447   (336486) от 27.09.2022
-
-Missio - VILLAIN (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Villain [00:03:13]
-02. Demons [00:04:01]
-03. Say Something [00:02:01]
-04. I Wanna Fight And You Know It [00:03:46](   Читать дальше...   )Жанр: Alternative, ElectronicПродолжительность: 00:36:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73C745A39B12D6CD90E0AEF1ED30FC77F949B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579534   (336485) от 27.09.2022
-
-Сердца разлученные / Hearts in Exile (1915) VHSRip [PR]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336485.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм «Сердца разлученные», поставленный весьма успешным и продуктивным режиссером американского немого кино Джеймсом Янгом в 1915 году, является одним из первых американских полнометражных фильмов, всё действие которого происходит в России, и все персонажи – русские.
-Перед нами весьма мелодраматичная история о том, как добродетельный (sic!) любовный треугольник (   Читать дальше...   )Производство: США, World FilmЖанр: драма, мелодрама, историяРежиссер: Джеймс ЯнгАктеры: Клара Кимболл Янг, Монтегю Лав, Клод Флеминг, Вернон Стил, Фредерик Трусделл, Пол МакАллистер, Берт Старки, Clarissa SelwynneПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81595D6E82F6B74EEBF0B200E79A05E4EAC24EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579422   (336484) от 27.09.2022
-
-Бабушка-Метелица / Матушка-Метелица / Perinbaba (1985) BDRip [H.264] [DVO]
-
->>Видео, Кино и Сериалы для детей и родителей
->>Зарубежные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм-сказка по мотивам сказки братьев Гримм о Матушке-Метелице, повелительнице снежных бурь, о её помощнике, мальчике Якубе, который не боялся Смерти, а также о бедной и доброй девушке-сироте, eё завистливой сестре и жадной и злой мачехе... И конечно о том, что Любовь побеждает Смерть...Производство: Чехословакия, Германия (ФРГ), Италия, Австрия, Österreichischer Rundfunk (ORF), MR Film, Omnia Film München, Radiotelevisione Italiana (RAI), SFT Koliba, Studio Hraných Filmu, Zweites Deutsches Fernsehen (ZDF)Жанр: сказка, мелодрама, семейныйРежиссер: Юрай ЯкубискоАктеры: Джульетта Мазина, Петра Ванчикова, Тобиас Хёсль, Соня Валентова, Павол Микулик, Валери Капланова, Лудовит Рейтер, Карел ЭффаПеревод: профессиональный двухголосый, авторский (Антон Алексеев)Субтитры: русские (leburs), английскиеПродолжительность: 01:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A952D3E3341DBB1F72E489F1649D2658F3489011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579508   (336483) от 27.09.2022
-
-VA - Uplifting Trance Top 25 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Laxton & Katty Heath - Forever As One (Original Mix)Жанр: Uplifting TranceПродолжительность: 01:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DAB1FADAFFFC9DB29C8F85188BB1EDD99003B97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579216   (336482) от 27.09.2022
-
-Монгол Шуудан - Чересчур. (1995) Реконструкция, 2022, Navigator Records [FLAC|Lossless|WEB-DL|tracks] <Rock, Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не моя забота [00:03:07]
-02. Пение ветра [00:03:48]
-03. Птица фортуна [00:03:26]
-04. Олух царя [00:04:26](   Читать дальше...   )Жанр: Rock, Punk RockПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71AA6BCF1421B28130796F29BC7518B3A4586CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330755   (336481) от 12.10.2019
-
-Е.П. Брандис (сост.) | Белый камень Эрдени [сборник] (1982) [FB2]
+Книжная серия | Великие сыщики [91 книга] (2012-2015) [FB2]
 
 >>Художественная литература
->>Фантастика, Фэнтези
+>>Многоавторские серии и сборники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336481.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Трудолюбивый, выдающийся биолог Евгений, его любимая женщина Ольга и сын Ольги, умный мальчик Юрка, отобраны из миллиардов землян и оказались на инопланетном корабле. Им предлагают добровольно отправиться в полет на встречу с иной цивилизацией. Всем вместе или по отдельности.Жанр: Фантастика, Фэнтези, Научная фантастикаФормат: FB2
+Книжная серия «Великие сыщики» выходит с 2012 года в издательствах «Амфора» и «Петроглиф». В раздаче представлены книги серии о знаменитых сыщиках: Джиме Квиллере, Ирене Адлер, Ниро Вульфе и Шерлоке Холмсе. Романы публикуются как от авторов знаменитых персонажей, так и от подражателей, вдохновленных знаменитыми сыщиками и придумавших свои сюжеты для любимых персонажей. (   Читать дальше...   )Жанр: ДетективФормат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9BCB5EE6BFD903BFE3174FD29E3C8A6FD7E80F7
+magnet:?xt=urn:btih:63D08FE06B99E3C58551551FFAB561D261B06BD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,25 +156,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330824   (336480) от 12.10.2019
+###  Публикация: 954574   (339115) от 08.11.2015
 
-IObit Smart Defrag Pro 6.3.5.189 RePack (& Portable) by TryRooM [Multi/Ru]
+Destroy Windows 10 Spying 1.5 Build 648 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336480.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+После выхода Windows 10 пользователи стали изучать лицензионное соглашение, и заметили там пункты о том, что Microsoft следит за ними, и пользователи сами на это подписываются. Все ваши данные отсылаются на сервера Microsoft и остаются там. Получается что при любом взломе Microsoft (а это реально, вспомните как взломали Google, и слили все почты) все ваши данные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B5B2005C1ABF0CA17433B5E1480BEE01C10CF36E
+magnet:?xt=urn:btih:55D4C1685E95D6E724BD909F495948FC6AC818FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,25 +182,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330905   (336479) от 12.10.2019
+###  Публикация: 954591   (339114) от 08.11.2015
 
-Mozilla Firefox Quantum 69.0.3 Portable by PortableApps [Ru]
+Футажи - Happy New Year 2016 [MOV]
 
->>Архив торрентов
->>Архив Программ
+>>Материалы для мультимедиа и дизайна
+>>Футажи
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+Новогодний футаж 2016г.Формат: MOVРазрешение файлов: 1920×1080
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3940278E374C6A8400B99B4BCDA92930D54A9AE
+magnet:?xt=urn:btih:BB2E744F37C8525E0AD19B43A8B1AC60BBF20AE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,28 +208,194 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024725   (336478) от 12.10.2019
+###  Публикация: 1330574   (339113) от 11.10.2019
 
-Butthole Surfers - Independent Worm Saloon / Electriclarryland (1993/1996)  [FLAC|Lossless|image + .cue]<Acid Punk>
+Apoptose - Die Zukunft (2018) Tesco Organisation [FLAC|Lossless|WEB-DL|tracks] <Ambient, Downtempo, Dark Ambient, Synthwave, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Hours (04:53)
+ 02. What Power Art Thou (Cold Song) (05:19)
+ 03. Time-Lapse City (05:03)
+ 04. Medizin (04:47)(   Читать дальше...   )Жанр: Ambient, Downtempo, Dark Ambient, Synthwave, ExperimentalПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F5D84F6071C45B84875C356625E8A4677C43669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330587   (339112) от 11.10.2019
+
+Jimmy Rushing - Four Classic Albums Plus (1952 - 1960) 2CD, 2012, Avid Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339112.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Akansas Blues [2:44]
+02. Down Hearted Blues [3:29]
+03. How Come You Do Me Like You Do [2:27](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:38:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69946DE28E586BA505D15C3BA54495E66289AE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862235   (339111) от 08.11.2015
+
+International Snooker 2012 (2013) [En] (1.0) Unofficial
+
+>>Win Игры
+>>Simulation (Sport)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разработчики проекта International Snooker 2012 порадовали нас симпатичным симулятором бильярда. Эту игрушку отличает масса обновленных возможностей. Это не просто кий, которым можно лупить по шарикам. А там уже закатится или нет, неважно. Можно ударить еще разок. У вас появится возможность выбора наилучшей траектории удара.Тип издания: UnofficialРазработчик: Big Head GamesЖанр: Sport (Pool/Snooker) / 3DЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A92DDC4A8C67BECFD4DD93CB3D6FAAA8B066183D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954816   (339110) от 08.11.2015
+
+Охота на монстра / Zhuo yao ji / Monster Hunt (2015) HDRip
+
+>>Зарубежное кино
+>>Азиатское кино (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда-то давно люди и демоны мирно сосуществовали, но затем человеческая жадность привела род демонов на грань исчезновения.
+Спасаясь от преследования, Королева Монстров вселяет своего нерожденного малыша в первого попавшегося человека — обычного парня Тяньиня. Теперь Тяньиню и его подруге Сяолань придется защищать новорожденного монстрика от злых демонов и коварных (   Читать дальше...   )Производство: Китай, Гонконг, White Rabbit Entertainment, The, Base FX, Industrial Light & Magic (ILM)Жанр: Фэнтези, Комедия, Семейный, БоевикРежиссер: Раман ХюиАктеры: Тан Вэй, Сюэ Бай, Эрик Цан, Цзин Божань, У Цзян, Яо ЧэньПеревод: Двуголосый закадровый (DeadSno & den904)Продолжительность: 01:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2ADD24694B1BFF131539866B1018E67D6987DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330566   (339109) от 11.10.2019
+
+Si Matthews - Decoding Signals (2019) Fantasy Enhancing [FLAC|Lossless|tracks+.cue] <Ambient, Downtempo, Techno Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Signal 1 (08:08)
+ 02. 3rd Planet (13:37)
+ 03. Syntagma (10:09)
+ 04. Chemtrails (12:24)(   Читать дальше...   )Жанр: Ambient, Downtempo, Techno AmbientПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C72EEAB21B5835F0E4CC3F237170FBD8B145C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954036   (339108) от 08.11.2015
+
+Монстервилль  / R.L. Stine's Monsterville: The Cabinet of Souls  (2015) BDRip [H.264/720p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339108.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда путешествующий Зал Ужасов прибывает в Дэнвилль, друзья из старшей школы решают посетить ужасное шоу. Монстры, зомби и упыри на самом деле похожи на реальных существ, а зловещий шоумен Доктор Хистерия и его очаровательная помощница Лилит реально знают, как напугать людей. Но вдруг Бет обнаруживает странное помещение за кулисами, где таятся души потерянных подростков. (   Читать дальше...   )Производство: США, EveryWhere Studios, Universal PicturesЖанр: комедияРежиссер: Питер ДеЛуисАктеры: Кэтрин МакНамара, Дав Камерон, Райан МакКэртан, Лэйн МакНил, Бриана Бакмастер, Тиффани Эспенсен, Фиона Врум, Карин Коновал, Браден Лемастерс, Шон Квон, Кэйси Дюбуа, Коннор СтэнхоупПеревод: ДублированноеЯзык субтитров: РусскийПродолжительность: 01:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6ED4BA92B1145E13696B154193E14325F4F7F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330576   (339107) от 11.10.2019
+
+Big Thief - Two Hands (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339107.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Birds
-02. Cough Syrup
-03. Pepper
-04. Thermador(   Читать дальше...   )Жанр: Acid PunkПродолжительность: 01:53:43
+01. Rock and Sing (02:03)
+02. Forgotten Eyes (03:31)
+03. The Toy (04:16)
+04. Two Hands (03:52)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:018857316AD2EB903193EF307A9E2635DE8AC44F
+magnet:?xt=urn:btih:7DE7AC7751517AC070495CD188F23A93C2BEED53
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -619,28 +403,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330597   (336477) от 12.10.2019
+###  Публикация: 952816   (339106) от 08.11.2015
 
-VA - Зайцев.нет Лучшие новинки Октября (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+Разлом Сан-Андреас / San Andreas (2015) BDRip [H.264/1080p]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339106.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kavabanga Depo Kolibri - Нет новостей 3:53
-02. Bahh Tee - Моей последней бывшей 3:14
-03. Мишель Барави - Милли 3:37
-04. Lera feat. Folkbeat - Волынка 3:03(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:43:33
+Рэй - пилот спасательного вертолета, который всю свою жизнь помогал другим людям. За все время работы он насмотрелся на множество жутких вещей и не раз оказывался в очень сложных ситуациях. Несмотря на все преграды он спешил на помощь, даже не предполагая, что самое страшное ждет его впереди. На Калифорнию обрушивается мощное землетрясение, в результате которого (   Читать дальше...   )Производство: США,Flynn Picture Company, New Line Cinema, Village Roadshow Pictures, Warner Bros. PicturesЖанр: Боевик, Триллер, ДрамаРежиссер: Брэд ПейтонАктеры: Дуэйн Джонсон, Карла Гуджино, Александра Даддарио, Йоан Гриффит, Арчи Панджаби, Пол Джаматти, Хьюго Джонстон-Барт, Арт Паркинсон, Уилл Юн Ли, Кайли Миноуг, Колтон Хэйнс, Тодд Уильямс, Мэтт Джералд, Алек Утгофф, Марисса Нейтлинг, Морган Гриффин, Бриэнн Хилл, Лоуренс Кой, Фиона Пресс, Дэннис КордПеревод: ДублированныйСубтитры: SRT Русские (форс, полные), Английские (SDH)Формат: MKVПродолжительность: 01:54:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:884A401F69091832654F36856779D54D2B9BF89A
+magnet:?xt=urn:btih:1B6023FB5CEA8E8C18324D0C1B7EE3B3180323D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -648,25 +429,187 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330831   (336476) от 12.10.2019
+###  Публикация: 952972   (339105) от 08.11.2015
 
-CPU-Z 1.90.1 Portable [En]
+Охотники за привидениями 2 / Ghost Busters II (1989) WEB-DL [H.265/2160p-LQ]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Через пять лет все забыли о знаменитых охотниках, равно как и о самих привидениях. Но они и не думали исчезать… А это значит, что для отважной четвёрки снова есть работа. Теперь в их распоряжении новое современное оружие, которое поможет им одолеть даже самого страшного монстра. Облако чёрной энергии нависло над городом, а в городской канализации течёт река зловещего (   Читать дальше...   )Производство: США / Columbia Pictures CorporationЖанр: Фантастика, Фэнтези, Боевик, КомедияРежиссер: Айвен РайтманАктеры: Билл Мюррей, Дэн Эйкройд, Сигурни Уивер, Харольд Рэмис, Рик Морэнис, Эрни Хадсон, Энни Поттс, Питер МакНикол, Харрис Юлин, Дэвид МаргулисПеревод: Многоголосый закадровый, Авторский одноголосыйСубтитры: Вшитые отключаемыеЯзык субтитров: Русский (форсированные, полные), Английский (полные, комментарий)Продолжительность: 01:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DEFC01CE8510988F00615C02E41F175F1DEB3C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330600   (339104) от 11.10.2019
+
+Юрий Нагибин | Тьма в конце туннеля. Моя золотая тёща (2008) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339104.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга произведений, которые представляют собой особый феномен позднего Ю.Нагибина: своеобразный итог, черту, которая подводится под литературной деятельностью этого неординарного писателя. Повести "Тьма в конце туннеля" и "Моя золотая теща" пронизаны болью о горькой судьбе России в XX веке.Жанр: ПовестьПродолжительность: 13:25:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5909462575FAE8BC669D47196D321DD76B8FAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954729   (339103) от 08.11.2015
+
+HitmanPro 3.7.10 Build 251 [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339103.jpg" />
+</div>
+
+
+###  Подробнее
+
+HitmanPro – мощный cканер для выявления различных вредоносных программ. Особенность HitmanPro в том, что он использует при проверке базы данных других приложений для обнаружения и удаления шпионских модулей (Ad-Aware SE Personal, Spy Sweeper, Spybot Search & Destroy, CWShredder, SpywareBlaste, Spyware Block List, Sysclean Package, SuperDAT VirusScan). После завершения (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC120463CABCADE053F122B4218C4B1A0D58DEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330350   (339102) от 11.10.2019
+
+VA - Live @ Ultra Music Festival Japan (2019) [MP3|~245 Kbps (V0)] <Trance, Techno, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dash Berlin @ Mainstage, Ultra Music Festival Japan 2019-09-15:
+01. Intro
+02. Omnia & Whiteout - U
+03. Alan Walker - Faded (Dash Berlin Remix)(   Читать дальше...   )Жанр: Trance, Techno, Progressive HouseПродолжительность: 05:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E76AA7417BBC868A94F157961D278A9B1D2CB708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954610   (339101) от 08.11.2015
+
+Nation Red / Зомбилэнд (2009) [Ru/En] (1.00.1000) Lossless Repack R.G. Origami
+
+>>Win Игры
+>>Action/Arcade/Platformer (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339101.jpg" />
+</div>
+
+
+###  Подробнее
+
+Впервые ожившие мертвецы попробовали Америку на зубок еще при Рейгане. Тогда разрозненные группы зомби удалось быстро ликвидировать. Но – только на время. И теперь, спустя годы, они вернулись за мозгами американских граждан. Армия бессильна, солдаты гибнут почем зря. Страну охватила паника. Тех, кто суетился больше всех, скушали первыми.Тип издания: Lossless RepackРазработчик: DiezelPower StudiosЖанр: Arcade / 3D / 3rd Person / Top-downЯзык озвучки: Русский, АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764938C80CE2D743A4A40CCF442252A81F2F9A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330747   (339100) от 11.10.2019
+
+Dominique Guiot - L'Univers De La Mer (1978) LP [MP3|320 Kbps] <Electronic, Leftfield, Synthpop, Ambient>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wind Surf Ballad (2:24)
+02. La Danse Des Meduses (2:39)
+03. Une Ballade Pour Une Goelette (1:19)
+04. Les Deux Poissons (2:58)(   Читать дальше...   )Жанр: Electronic, Leftfield, Synthpop, AmbientПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06503F703070551276573944413D0374BC2894A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954266   (339099) от 08.11.2015
+
+Loaris Trojan Remover 1.3.8.9 Portable by 9649 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339099.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется "разогнанность" процессора. Кроме того, информация о кэше первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием (   Читать дальше...   )Язык интерфейса: Английский
+Loaris Trojan Remover — это программа, с помощью которой Вы сможете целиком очистить свой компьютер от всех агрессивных угроз! Вас забрасывают popup объявлениями, видите новую панель инструментов в вашем браузере, ваша домашняя страница изменяется на нежеланные сайты, или вы забросаны раздражающим спамом? Тогда данная программа для Вас! Антивирус был разработан именно (   Читать дальше...   )Язык интерфейса: Русский, Английский  и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1E68EEB2551C68DB483D7229848CF7B243128242
+magnet:?xt=urn:btih:B5460320F29A1621CC47835FCCF8A66B208AEE0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,25 +617,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 642351   (336475) от 12.10.2019
+###  Публикация: 1330634   (339098) от 11.10.2019
 
-Алексей Леонов. Судьба моя — я сам (2010) SATRip
+VA - Yo También Bailaba con Súper Pop, Vol. 1 + Vol. 2 (2019) 4CD [MP3|320 Kbps] <Pop>
 
->>Документалистика и Телепередачи
->>Космос
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336475.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339098.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Художник, психолог, дизайнер, садовод, снайпер, каменщик, столяр, а сейчас еще и банкир. Хотя для всего советского народа он — летчик-космонавт, человек, который первым вышел в космос.Жанр: ДокументальныйПродолжительность: 00:25:29
+Vol.1, CD1:
+01. Michael Jackson - Thriller (Single Version)
+02. Whitney Houston - I Wanna Dance with Somebody (Single Version)
+03. Leif Garrett - I Was Made for Dancin'(   Читать дальше...   )Жанр: PopПродолжительность: 05:05:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C46BB93B4F0669C86FF4BF2DB44363B71A355AC5
+magnet:?xt=urn:btih:48AD20075F6E339EB4079E7D535DE7728312CCFA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,25 +646,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330884   (336474) от 12.10.2019
+###  Публикация: 1330661   (339097) от 11.10.2019
 
-Последние тайны Третьего рейха / Nazi Underworld (2011-2012) HDTVRip [H.264/720p-LQ] (сезоны 1-2, серии 1-11 из 11)
+SYNTHEVER - Around The World Hits Vol. 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthpop>
 
->>Документалистика и Телепередачи
->>История
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336474.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339097.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Предок Генриха Гиммлера в XVII веке был обвинён в колдовстве и убит. Родственница Генриха Гиммлера, жившая в 17 веке, была сожжена на костре как ведьма. Адольф Гитлер, возможно, предполагал, что он сам имел еврейские корни. Эрвин Роммель бросил мать своего незаконнорожденного ребенка. Альберт Шпеер был патологическим лжецом, и это спасло ему жизнь. Фюрер притворялся (   Читать дальше...   )Производство: США, Германия, Loopfilm, Februar Film, ZDF-Mediathek, National GeographicЖанр: Документальный, война, история, исследованиеРежиссер: Фредерик Шеррер, Тим ВерстедженПеревод: Документальный дубляж студии ««АРК-ТВ»» (голос рассказчика - полный дубляж, интервью - слышна оригинальная речь)Продолжительность: 11 х ~ 00:45:00
+01. Here Comes The Rain Again (Rainy Mix) (5:15)
+02. Big In Japan (Samurai Mix) (6:25)
+03. Love Comes Quickly (Piano Mix) (4:17)
+04. Is This Love (Space Orchestral Mix) (5:00)(   Читать дальше...   )Жанр: Spacesynth, SynthpopПродолжительность: 01:06:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F54D78CE9EB7896C2C09BDBF8E7832E5E3ED0CF8
+magnet:?xt=urn:btih:60C005A7AAA7DF733961B7EBBE6060581954AFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330725   (339096) от 11.10.2019
+
+Фатима Фархин Мирза | Место для нас (2019) [FB2]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339096.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот дебютный роман покорил читателей и критиков по всему миру, стал лучшей книгой года по версии Washington Post, получил более 6 международных премий и стал блестящим дебютом издательства SJP Сары Джессики Паркер.
+Если жить так, как хочется, – значит разочаровать родителей…
+Старшая дочь, Хадия, выходит замуж по любви вопреки традициям. Ее сестра Худа не сняла хиджаб, (   Читать дальше...   )Жанр: Современная прозаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41AFD1FCB135742F0B9872A0F45616898B729934
 ```
 
 https://mybot314.ru/tekegram_catalog/

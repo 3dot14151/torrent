@@ -1,24 +1,133 @@
-###  Публикация: 480052   (88153) от 13.04.2012
+###  Публикация: 455252   (94163) от 23.02.2012
 
-The Prince of Tennis / Tennis no Ouji-sama / Принц тенниса OVA-5 [2011, OVA, 3 из 4] DVDrip  raw
+November's Flame - На Обочине Больного Мира (ЕР) (2012) [MP3|320 kbps]<Alternative,Nu Metal>
 
 >>Архив торрентов
->>Архив Аниме
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94163.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многие (например world art) были введены в заблуждение сообщением о том, что данная ОВА состоит из двух эпизодов, но это неверно. Она состоит из двух томов, каждый из которых в свою очередь состоит из двух эпизодов. Таким образом всего четыре серии.
+01. Другие Глаза  [03:21]
+02. Земля В Огне  [02:40]
+03. Краски Мая  [04:17]
+04. Обманутый Мир  [03:30]
+05. Сон  [04:28]
+06. Погоня За Мечтой  [03:17]
+07. Другие Глаза (instumental)  [03:21]2012Жанр: Alternative,Nu MetalПродолжительность: 00:24:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29FE15E1DD9E417875218DB2ADED1CE08AA6A9F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455805   (94145) от 23.02.2012
+
+VA - Minimal Art v.12 (20.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Fortis - Disharmonic Orchestra (6:54)
+ 02. Antonio Forester – Fourth Reactor (Original Mix) (6:02)
+ 03. Cyberx, Manolow - Tag Gun (Tekhoover Remix) (7:07)
+ 04. Danase - Now What's That (7:10)
+ 05. Dapayk & Midnight - Emergency (7:30)
+ 06. Electronomica - Troupial (Djase Dub Remix) (5:59)
+ 07. Fabio Miotto - Dolmen (Original Mix) (7:00)
+ 08. Koobique - Fear Factory (Original Mix) (5:05)
+ 09. Luke Shayer - Absynth (Muto Remix) (7:15)
+ 10. Manu Sami - Musaka (Original Mix) (6:01)(   Читать дальше...   )20.02.2012Жанр: MinimalПродолжительность: 02:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E1B4E78F8697A1A18BA98152CA8FDD5205C7D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455836   (94140) от 22.02.2012
+
+VA - Black Box One (2012) [MP3|320 кб/с]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maldini, Vegas, Sylo - re-animator (06:01)
+02. The Upbeats - thinking cap (05:08)
+03. Bad Company UK - bullet time (spor remix) (05:49)
+04. Audio - control freak (07:20)
+05. Maldini, Sylo - oceanic (05:32)
+06. BLOKHE4D - last days of disco (04:52)
+07. Loki - splash damage (06:22)
+08. BLOKHE4D - great cites (05:22)
+09. Prolix - no pressure (06:04)
+10. BLOKHE4D - beyond the void (04:58)(   Читать дальше...   )2012Жанр: Drum & BassПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F09AD1E47890CF648B511AECBE277536070E63D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456118   (94129) от 22.02.2012
+
+Paul van Dyk - Vonyc Sessions 286 (17.02.2012) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94129.jpg" />
+</div>
+
+
+###  Подробнее
+
+Paul van Dyk in the mix:
+ 01. Cosmic Gate & Arnej - Sometimes They Come Back for More (Alex O'Rion Bigger Room Mix)
+ 02. Paul van Dyk with Austin Leeds - Verano (Paul van Dyk's Evolution Mix)
+ 03. DNS Project - Exclusive (Bigroom Mix)
+ 04. Rank 1 & Jochen Miller feat. Sarah Bettens - Wild And Perfect Day
+ 05. Michael Woods - Full Access
+ 06. Envotion - Recoder (Extended Mix)
 
-world-artЖанр: спорт, комедия, сёнэнРежиссер: Тада ШунскеПеревод: Informator & KuroamberПродолжительность: 4 эп., 25 мин.
+Spotlight mix Moguai:
+ 07. Mord Fustang - We Are Now Connected(   Читать дальше...   )17.02.2012Жанр: TranceПродолжительность: 00:58:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:59A5DCEB0323E1A2408063E325F71DC8A4A8ADA4
+magnet:?xt=urn:btih:3678B38707735F40D87041ADB55EE6F4F338D0A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +135,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480341   (88146) от 13.04.2012
+###  Публикация: 455948   (94125) от 22.02.2012
 
-Дорогая / Darling (1965) DVDRip
+Karin Krog - Raindrops, Raindrops (2002) [FLAC|Lossless]<Contemporary Female Vocal Jazz>
 
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История о том, как простая девушка Диана Скотт достигла самых заоблачных вершин в обществе, стала хозяйкой прекрасного дворца в итальянском стиле и попала на обложки модного журнала...Но достигла ли она счастья?Жанр: Драма, МелодрамаРежиссер: Джон ШлезингерАктеры: Дирк Богард, Лоуренс Харви, Джули Кристи, Хосе Луис де Вильялонга, Роланд Керрэм, Бейзил Хенсон, Хелен Линдсей, Карло Палмуччи, Данте Позани, Умберто Рахо, Марика Ривера, Алекс Скотт, Брайан Уайльд, Полин Йэтс, Питер Бэйлисс, Т.Р. Бауэн, Сильвия ДионисиоПеревод: Двуголосый закадровыйПродолжительность: 02:07:26
+01. Meaning Of Love (5:06)
+02. Hold Out Your Hands (2:23)
+03. Raindrops, Raindrops (3:45)
+04. New Spring (6:51)
+05. We Could Be Flying (6:03)
+06. Round About Midnight (6:59)
+07. Maiden Voyage - Lazy Afternoon (9:17)
+08. Time To Go (3:07)
+09. I'll Wait For You (6:44)
+10. Karima Two (4:55)(   Читать дальше...   )2002Жанр: Contemporary Female Vocal JazzПродолжительность: 01:05:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AA16B4739E312024945F051DF291D9BEE20D76F9
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,112 +170,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480094   (88144) от 13.04.2012
+###  Публикация: 455878   (94120) от 22.02.2012
 
-CIFRAmagazine.com | Электронный журнал CIFRAmagazine №03 [2012] Screencast
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88144.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео уроки по различным полезным программам, плагинам и скриптам.Жанр: обучающее видеоПродолжительность: ~ 10-15 минут (общее 1:34:35)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E516E5D3B40A8DE988539A86B6CF71A9762C2D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480082   (88143) от 13.04.2012
-
-CIFRAmagazine.com | Электронный журнал CIFRAmagazine №01 [2012] Screencast
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Видео уроки по различным полезным программам, плагинам и скриптам.Жанр: обучающее видеоПродолжительность: ~ 10-15 минут (общее 1:39:01)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:663AA13080C45658BDAA416A3A83D43AA824A66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482340   (88142) от 13.04.2012
-
-Джентльмен в коричневом (ТВ) / The Man in the Brown Suit (1989) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88142.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие происходит на Средиземноморье. На борту прогулочного судна в одной из кают помещен тайник с украденными в Южной Африке бриллиантами. Записка, указывающая на тайник, случайно попала в руки юной американской туристки. С этого момента за ней начинается охота…Жанр: ДетективРежиссер: Алан ГринтПродюсер: Алан ШэйнАктеры: Ру МакКлэнахэн, Тони Рэндолл, Эдвард Вудворд, Стефани Зимбалист, Кен Хауард, Николас Грэйс, Саймон Даттон, Мария Касал, Федерико Лучано, Роуз МакВей, Хорхе Боссо, Хосе Каналейяс, Роберт Кейс, Джеймс Дагган, Гэбриел Эду, Билл Холден, Антонио Росс, Альдо Самбрелл, Джек Тейлор, Клаудио ВинсентПеревод: Двуголосый закадровыйПродолжительность: 01:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA3E5DD12E75014E859A06DA90F00AA7FF2F2DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482577   (88140) от 13.04.2012
-
-Paul Wardingham - Assimilate Regenerate (2011) [MP3|320 кб/с]<Progressive Metal / Futuristic Instrumental Metal>
+VA - Wine Lovers Vintage (2010) [MP3|-V0 ~245 кб/с]<Lounge, Jazz, Soul>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88140.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Assimilate Regenerate (06:00)
-02. Futureshock (06:08)
-03. Ghost in the Machine (05:16)
-04. Brain Interactive Construct (04:54)
-05. Fields of Utopia (05:54)
-06. Enter the Metaverse (05:11)
-07. Mindwarp (05:04)
-08. Clones (06:25)
-09. Cyber Warfare (04:54)
-10. Orbital Decay (04:59)(   Читать дальше...   )2011Жанр: Progressive Metal / Futuristic Instrumental MetalПродолжительность: 01:00:03
+01.Sergio Mendes And The Black Eyes Peas - Mas Que Nada (4:27)
+02.Gabor Szabo - Breezin' (3:13)
+03.Andrй Previn, David Fnick Gershwin - Embraceable You (4:55)
+04.Wes Montgomery - Georgia On My Mind (2:48)
+05.Mark Murphy - My Foolish Heart (5:16)
+06.Ella Fitzgerald - My Funny Valentine (3:55)
+07.Tony Bennett - Isn't It Romantic (3:25)
+08.Johnny Hartman - Stairway To The Stars (3:08)
+09.Herbie Hancock - The Man I Love (5:59)
+10.Terry Callier - What Color Is Love (4:07)(   Читать дальше...   )2010Жанр: Lounge, Jazz, SoulПродолжительность: 02:05:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E0826ED6ACB243232500497F019C2C36B58F9ED
+magnet:?xt=urn:btih:5FFA317FE5F68BFF2A189601E73B52958F521026
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -165,69 +205,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482546   (88139) от 13.04.2012
+###  Публикация: 456059   (94114) от 22.02.2012
 
-Data Flow Accelerator 3.4.2.26 Beta + Portable [русский, английский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88139.jpg" />
-</div>
-
-
-###  Подробнее
-
-Data Flow Accelerator - бесплатный менеджер закачек, с функцией мультисекционной закачки с файлообменников.
-
-Основные особенности:
-+ Ускоренная закачка с использованием многосекционности (закачка одного файла с нескольких серверов)
-+ Многопоточность
-+ Ручная установка реферер-ссылок
-+ Мультиязычность
-+ Интеграция в браузеры: Google Chrome, Opera, FireFox, Internet Explorer
-+ Фрагментация скачиваемых файлов
-+ Русскоязычная поддержка(   Читать дальше...   )Название программы: Data Flow AcceleratorЯзык интерфейса: русский, английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480074   (88138) от 13.04.2012
-
-VA - The Next Generation - Compiled by Hypersonic (2006) [FLAC|Lossless]<Psychedelic / Full On>
+Technicolour - FabricLive Bukem In Session (2012) [MP3|320 кб/с]<Drum and Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88138.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hypersonic - Another Dimension
- 02. X-Noize & Assi - 15,000 Micrograms
- 03. PsyCraft - Bad Girl
- 04. DNA - The Music (Hypersonic Remix)
- 05. DNA - Sound Blaster
- 06. Stereomatic - Stereo Blaster
- 07. Hypersonic - Larger Then Life (Kamasutrance Remix)
- 08. Enta Project - El Hilwa (Hypersonic Remix)
- 09. Hypersonic - Zuma (Live At The Zoom Festival - Switzerland)
- 10. Magnetica - The Gedi2006Жанр: Psychedelic / Full OnПродолжительность: 01:11:51
+01. Calibre - Windows (Signature)
+02. Komatic - Make The Most Of Now (Technicolour remix) (Spearhead)
+03. Technicolour - The Harp Tune (Fokuz)
+04. Pennygiles - Au Revoir Blackbird (GLR)
+05. Bungle - The Siren (feat. Ayah) (Bladerunner remix) (Spearhead)
+06. dRamatic & dbAudio - 6 Degrees (Mars)
+07. Calibre - Hummer (Samurai Red Seal)
+08. Technicolour & Komatic - Those Feelings (Shogun LTD)
+09. Level 2 - No Time VIP (Liquid V)
+10. Atom - Dolly (Lynx remix) (Sonorous)(   Читать дальше...   )2012Жанр: Drum and BassФормат: Mp3, mixedПродолжительность: 01:11:00
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:5A0B8C3F67E76CE9C5C9C28E1D1DE39CF0FC5CCD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -235,21 +240,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482375   (88135) от 13.04.2012
+###  Публикация: 455888   (94101) от 22.02.2012
 
-Анжелика Ильес | Холодные закуски. Ждем гостей [1994] [PDF]
+Nick Colionne - Keepin' It Cool (2006) [FLAC|Lossless]<Smooth Jazz>
 
->>Разное (категория книг)
->>Кулинария
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94101.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В наше время наконец-то по достоинству оценили преимущество холодных закусок и вообще холодных блюд, которыми принято потчевать гостей. И в самом деле, многие из этих блюд можно заранее не только приготовить, но и красиво разложить, а к приходу гостей остается лишь подать. Благодаря этому у хозяев и хлопот будет меньше, и времени для гостей останется больше. Наша книга предлагает большой выбор таких блюд. Среди предлагаемых нами блюд вы можете выбрать закуски на любой вкус, для любого приема. В вступительной части книги содержатся полезные советы, как организовать процесс приготовления холодных блюд, что позволит составить оптимальное меню. Дополнительно к закускам приводятся рецепты приготовления вкусных и красочных коктейлей, а также советы, как оригинально и изысканно оформить блюда.Формат: PDF
+01. Can You Feel It (4:00)
+02. Keepin' It Cool (3:37)
+03. Always Thinkin' Of You (4:11)
+04. If You Ask Me (3:38)
+05. You Were There For Me (5:16)
+06. This Is The Song (3:59)
+07. John L (4:54)
+08. From Me to You (4:03)
+09. A Moment With You (4:02)
+10. Liquid (3:27)(   Читать дальше...   )2006Жанр: Smooth JazzПродолжительность: 00:54:32
 
 ## Скачать торент
 ```bash
@@ -261,32 +275,69 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480396   (88133) от 13.04.2012
+###  Публикация: 455896   (94094) от 22.02.2012
 
-Select And Dismember - Annihilation Foretold (2012) [MP3|320 кб/с]<Technical Brutal Death>
+Toronzo Cannon - Leaving Mood (2011) [APE|Lossless]<Blues>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Loved Me (3:48)
+02. Chico's Song (4:06)
+03. Come Home (3:40)
+04. I Believe (5:10)
+05. Hard Luck (5:36)
+06. Open Letter (To Whom It May Concern) (4:18)
+07. I Can't Take Her Nowhere (4:18)
+08. Leaving Mood (3:42)
+09. She's Too Much (3:56)
+10. You're A Good Woman (4:14)(   Читать дальше...   )2011Жанр: BluesПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 456083   (94093) от 22.02.2012
+
+VA - Words Matter LP (2012) [MP3|320 kbps]<Drum and Bass>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Residual Individual 04:01
- 02. In Contempt of Nature 04:42
- 03. Spawned Creation Manifold 03:49
- 04. Might As Well, Got No Choice 03:25
- 05. A Cannabilistic Offering 03:22
- 06. A Vision For The Blind 04:59
- 07. The Myopia Syndrome 03:56
- 08. The Stench of Aristocracy 04:332012Жанр: Technical Brutal DeathПродолжительность: 00:32:47
+01. Motta - Let Me Know [06:00]
+02. Celerity & DBR UK - Sonic Step [05:42]
+03. Undersound - Meet Me In My Shadow [06:52]
+04. Rene LaVice - Maintain [05:30]
+05. 2ndCityBlue - Bermudaz [06:55]
+06. Flatliners - Human Beings [06:25]
+07. SoliD - Blue Grooves [05:30]
+08. Grimm - Hunters March [06:20]
+09. Soultec Ft. Grimm - Last Call Of The Sun [06:12]
+10. Pouyah - Fooled [07:05](   Читать дальше...   )2012Жанр: Drum and BassФормат: WEBПродолжительность: 01:32:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F9706A991C3C782D22A75A57CB918E3242377F1
+magnet:?xt=urn:btih:11B8DCEADEC99BC0CD0A52F44D8083A7CEA093B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -294,25 +345,331 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482600   (88129) от 13.04.2012
+###  Публикация: 455925   (94092) от 22.02.2012
 
-Йозеф Гелинек | Десятая симфония [2011] [FB2]
+Mark May Band - Release My Soul (2011) [APE|Lossless]<Blues>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Six Strings or Two Legs (6:28)
+02. Move On (5:16)
+03. I Gotta Know (6:23)
+04. Eyes of India (6:35)
+05. Release My Soul (7:02)
+06. World of Suffering (7:13)
+07. Drifter (5:53)
+08. Vindablues (6:57)
+09. Devils Playpen (6:03)
+10. She Don't Shine (6:31)(   Читать дальше...   )2011Жанр: BluesПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455003   (94091) от 22.02.2012
+
+VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aiho - Purple Haze (Giuseppe Visciano Psychedelic Remix) (6:05)
+ 02. Artem Abdrakhmanov - Fire Blood (Original Mix) (7:33)
+ 03. Bodyscrub - Resolution (Original Mix) (8:42)
+ 04. Ciaran Osborne - Don't Hold Back (Original Club Mix) (6:59)
+ 05. Danase - Come On, We Play (6:25)
+ 06. Dani Sbert - Otherside (Original Mix) (7:01)
+ 07. Deep Inside Sistem - Violence (Original Mix) (7:11)
+ 08. Diamandy - Breezer (Original Mix) (8:07)
+ 09. Doubleton - Diluente (Original Mix) (6:20)
+ 10. Dubfloor - Tropa Tropa (Original Mix) (6:50)(   Читать дальше...   )18.02.2012Жанр: MinimalПродолжительность: 02:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEE05E1089EA0849955044BA64E2D8CAC0A261CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454669   (94087) от 22.02.2012
+
+VA - Minimal Art v.3 (11.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94087.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AC Slater & Xaphoon Jones - Believe Me (Botnek Remix) (5:50)
+ 02. Angelo Dore, Minimal Law - Experimental (Original Mix) (6:03)
+ 03. Atix - Divagation (Original Mix) (7:15)
+ 04. Audiowomb - Zoophyta (Original Mix) (7:56)
+ 05. Avrosse, Louie Cut - Double Trouble (Original Mix) (6:06)
+ 06. Danalog - Baked Beams (Original Mix) (8:13)
+ 07. On the Train (Derrick Carter Remix) (5:59)
+ 08. Deep Voice - I'm Freak (Andrea Roma Rmx) (6:56)
+ 09. Dima German - 2012 (D-Quattro Remix) (7:26)
+ 10. Emrah Celik - Let's Get Dangerous (Daniele Petronelli Remix) (6:05)(   Читать дальше...   )11.02.2012Жанр: MinimalПродолжительность: 02:17:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E581143ED7E60AEE91BFF68673F08AC316E8B2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454998   (94083) от 22.02.2012
+
+VA - Minimal Art v.8 (16.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afonso Maia - D Rather (Original Mix) (6:42)
+ 02. Andres Guerra - Bheis (Original Mix) (6:38)
+ 03. Brunno Santos - I'm Done With You (Juliano Silva Remix) (7:10)
+ 04. Cryteque - Sunny Flash (Original mix) (7:01)
+ 05. Daniele Petronelli and Steve Russell - Kat-I (Original Mix) (6:45)
+ 06. Domshe – Temptation (Tobias Hertz & Stefan Rieger Remix) (7:38)
+ 07. Hakan Ludvigson & Joachim Broeckers - Audiovit (Original Mix) (7:14)
+ 08. Ian F - Coming Back (Original) (7:15)
+ 09. Jill Bellac & Suspect One - Shaped (Min & Mal Remix) (6:11)
+ 10. Joel Fletcher & JDG - China Town (Original Mix) (7:03)(   Читать дальше...   )16.02.2012Жанр: MinimalПродолжительность: 02:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA2B6992696D22FBF66562B0F79D2F2A677FE610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455928   (94076) от 22.02.2012
+
+VA - Jumpin' With The Big Swing Band (2003) [FLAC|Lossless]<Jazz, Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94076.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Jimmy Lunceford & his Orchestra - Call The Police (2:59)
+02.Louis Prima & his Orchestra - Robin Hood (3:05)
+03.Harry James & his Orchestra - Tuxedo Junction (3:02)
+04.Earle Warren & his Orchestra - Tush (2:52)
+05.Jimmy Lunceford & his Orchestra - Cement Mixer (Put-Ti Put-Ti) (2:45)
+06.Harry James & his Orchestra - Hodge Podge (3:00)
+07.Jimmy Lunceford & his Orchestra - Margie (3:01)
+08.Ray McKinley & his Orchestra - Down The Road Apiece (2:58)
+09.Jimmy Lunceford & his Orchestra - Water Faucet (2:40)
+10.Harry James & his Orchestra - Boog It (3:22)(   Читать дальше...   )2003Жанр: Jazz, Swing, Big BandПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 454675   (94067) от 22.02.2012
+
+VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acid Lupe - Orchestra (Original Mix) (7:10)
+ 02. Chabud - Souk (Mad Raf Tom Zenith Remix) (6:00)
+ 03. Dani San - Clikity Clack (Original Mix) (6:44)
+ 04. David Prap & Willy Real - Burnout (Manel Diaz Crazy Drum Mix) (6:09)
+ 05. David San & Richie Dane – Colotina (Original David Mix) (6:17)
+ 06. Edoardo Spolaore - Bastard Clap (Original Mix) (8:16)
+ 07. Emanuele Millozzi & Claudio Petroni - Rauco (Manel Diaz Remix) (6:12)
+ 08. Leeks - Amoeba (Original Mix) (7:17)
+09. Lowboys - Hall Of Panic (7:30)
+ 10. MCJ - Pooomp (Manu Sami Remix) (6:09)(   Читать дальше...   )12.02.2012Жанр: MinimalПродолжительность: 02:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C7836E0C2716C4052BD382EEFD8E7CFAD4BB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455981   (94063) от 21.02.2012
+
+Газета | Сад, огород – кормилец и лекарь. Спецвыпуск №2 (2012) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94063.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждый спецвыпуск издания "Сад, огород – кормилец и лекарь" посвящен определенной теме, волнующей читателей. На их письма отвечают специалисты и журналисты. А также сами читатели делятся опытом и дают мудрые советы.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB12F93F5D6C9FA36FA77476ED5E083A60A1AE98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455673   (94058) от 21.02.2012
+
+VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitry Globa - La Aurora Boreal
+02. John '00' Flemming - The Astrophysical Nebula
+03. Paul Oakenfold & Robert Vadney - Pop Star (Yahel Remix)
+04. Matisse & Sadko - Amulet
+05. Limbo - Paradox
+06. Solarstone feat. Alex Karweit - Breakaway (Solarstone's Phuture Mix)
+07. Talpa - The Moon (Flegma & Nerso Remix)
+08. Aggresivnes - Futurasia (Blazer Remix)
+09. Oakenfold feat. Tamra Keenan - Maybe It's Over (Organ Donors Perfecto Mix)
+10. Tim Jirgenson - Get Ready(   Читать дальше...   )2012Жанр: Trance, Progressive TranceПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455992   (94037) от 21.02.2012
+
+Albert King & Otis Rush - Door To Door (1998) [FLAC|Lossless]<General Electric Blues>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albert King - Searchin' For A Woman (2:49)
+02. Albert King - Bad Luck (3:06)
+03. Otis Rush - So Close (3:03)
+04. Albert King - Callin' For My Darlin' (2:47)
+05. Otis Rush - I Can't Stop (3:06)
+06. Albert King - Won't Be Hangin' Around (2:17)
+07. Otis Rush - I'm Satisfied (2:57)
+08. Otis Rush - All Your Love (2:26)
+09. Otis Rush - You Know My Love (2:56)
+10. Albert King - Merry Way (2:43)(   Читать дальше...   )1998Жанр: General Electric BluesПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455849   (94013) от 21.02.2012
+
+Журнал | Автомир [Россия] №8 [февраль 2012] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88129.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94013.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Величайшая мечта профессора истории музыки Даниэля Паниагуа - найти рукопись Десятой симфонии Людвига ван Бетховена. Впрочем, нет никакой уверенности в том, что это произведение вообще было написано. Неожиданно молодой человек оказывается втянутым в расследование жестокого убийства знаменитого английского музыковеда. Перед самой смертью тот исполнил на частном концерте в Мадриде первую часть Десятой симфонии, якобы воссозданную им по бетховенским черновикам и наброскам. Но Даниэль уверен, что речь идет о подлинном произведении гениального композитора...2011Формат: FB2
+АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D5FF7A16BB0EF0875746BD06258DAD4A3F461CC
+magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,74 +677,65 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482000   (88128) от 13.04.2012
+###  Публикация: 455058   (94011) от 21.02.2012
 
-Змеиная яма / The Snake Pit (1948) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88128.jpg" />
-</div>
-
-
-###  Подробнее
-
-ДеХэвиллэнд в роли Вирджинии Стюарт Каннингэм, психически неуравновешенной молодой женщины, помещенной в психиатрическую лечебницу ее мужем Робертом Каннингэмом. Он любит свою жену, но понимает, что помощи, которую он способен оказать ей, недостаточно. К счастью, случай Вирджинии привлекает внимание доктора Марка Кика, терпеливого, вдумчивого и внимательного врача. Он уделяет ей большую часть своего времени. Хотя больница переполнена, а персонала не хватает, доктору удается сосредоточиться на ее болезни, одновременно изо всех сил стараясь сделать все возможное, чтобы больница не превратилась в «змеиную яму», как называют «психушки». Хотя и сами болезни, и способы их лечения показаны упрощенно, фильм был первым серьезно затронувшим тему с настоящим реализмом.Жанр: ДрамаРежиссер: Анатоль ЛитвакАктеры: Оливия Де Хэвиллэнд, Марк Стивенс, Лео Генн, Селеста Холм, Гленн Ланган, Хелен Крэйг, Лейф Эриксон, Бела Бонди, Ли Патрик, Ховард Фриман, Натали Шафер, Рут Доннелли, Фрэнк Конрой, Фил Арнольд, Бобби БарберПродолжительность: 01:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:781A171CAC9979914B46272DF133756810B67E00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482448   (88127) от 13.04.2012
-
-Военно-воздушные силы / Air Force (1943) DVDRip
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88127.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это один из лучших американских пропагандистских фильмов, созданных во время второй мировой войны, как нельзя лучше подошел для режиссера Хауарда Хоукса, добившегося совершенства в постановке масштабных боевых действий. Хоукс рассказывает историю "Мэри Энн", бомбардировщика Б-17, и его экипажа. Конечно, в картине много неизбежной антияпонской риторики, но завораживающая режиссура Хоукса и уверенная, эмоциональная работа всех актеров, особенно Гарфилда и Кэри, полностью захватывают внимание зрителя. Сейчас, к сожалению, картина начинает устаревать, но сценарий Николса достаточно силен, а диалоги наполнены смыслом и достоверны. Для съемок использовалась настоящая "летающая крепость", позже упавшая в Тихий океан и утерянная, а интерьерные съемки велись в модели стоимостью 40 тыс. долларов. Хоукс сам был ветераном военно-воздушных сил, его собственный опыт и уважение к военной авиации очевидны в каждой сцене. Эта черно-белая лента будет настоящим подарком для видеоманов, помешанных на военной тематике.Жанр: Драма, ВоенныйРежиссер: Ховард ХоуксАктеры: Джон Риджли, Гиг Янг, Артур Кеннеди, Чарльз Дрэйк, Гарри Кэри ст., Джордж Тобиаш, Уорд Вуд, Рэй Монтгомери, Джон Гарфилд, Джеймс БраунПеревод: Одноголосый закадровый (Сергей Визгунов)Продолжительность: 02:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD3BA6CBB2263F094D81B41BF3DF4AEFA3C09A30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481095   (88126) от 13.04.2012
-
-Случайный свидетель (8 серий из 8) (2011) DVD9
+Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
 
 >>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88126.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-На молодую девушку Марию Лялину совершено покушение: улик нет, свидетелей тоже. Внезапно обрывается и последняя ниточка -девушка погибает в больнице. Расследовать бесперспективное преступление поручают следователю Волгину. Неожиданное известие меняет скучный ход затянувшегося дела. К Волгину приходит игуменья Прасковья, настоятельница одного из монастырей, и сообщает следователю тайну — Мария Лялина жива и скрывается за крепкой монастырской оградой. Из больницы девушка сбежала, инсценировав свою гибель.
-Следователь встречается с девушкой и она рассказывает ему невероятную историю, которая еще пуще запутывает следователя: Маша носила ребенка от своего жениха Павла, пока однажды не застала его в одной постели с его же собственной… матерью. Дальше — сплошные загадки: у Маши случаются преждевременные роды, ребенок пропадает, а на саму Машу совершено покушение, после которого она оказывается сначала в больнице, а после — в монастыре… Сможет ли следователь разобраться в перипетиях семейной драмы? Найдется ли пропавший (   Читать дальше...   )Жанр: ДетективРежиссер: Дмитрий ПетруньАктеры: Ольга Павловец, Станислав Бондаренко, Владимир Жеребцов, Михаил Ефремов, Евгений Пронин, Людмила Нильская, Павел Баршак, Константин Милованов, Сергей Сосновский, Светлана Чуйкина, Ольга Сухарева, Константин Лавроненко, Алена БабенкоПеревод: Оригинальный (русский)Продолжительность: 8 серий ~00: 45:00 минут
+1. Too Lazy (6:01)
+2. Play (5:51)
+3. Sweet Nothings (4:55)
+4. Fluffy Cloud (8:13)
+5. Endless Games (3:31)
+6. The Sun Come Up (7:16)
+7. Razorskit (1:52)
+8. Berlin Summer Nights (5:56)
+9. Take These Scissors (5:42)
+10. Backyard (4:33)(   Читать дальше...   )2012Жанр: Tech-houseПродолжительность: 01:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455910   (93995) от 21.02.2012
+
+Julian Sas - Bound To Roll (2012) [FLAC|Lossless]<Blues-Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_93995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life On The Line (5:01)
+02. Mercy (4:00)
+03. Bound To Roll (3:59)
+04. How Could Iґve Been So Blind (4:36)
+05. Shadow Play (4:40)
+06. Swamplands (4:14)
+07. 30 Days In The Hole (3:25)
+08. The Blues Wonґt Stay (4:19)
+09. Tear It Up (3:08)
+10. Burninґ Brides (5:15)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:53:16
 
 ## Скачать торент
 ```bash
@@ -399,113 +747,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 482417   (88125) от 13.04.2012
+###  Публикация: 455256   (93994) от 21.02.2012
 
-[Wallpapers] Нравятся! Сотня № 001 (1920х1080-2560х1600)
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Хотя на вкус и цвет...
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99B1D9D6DA53E9EC4E4F5C436AB27903713580B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482426   (88122) от 13.04.2012
-
-Google Chrome 18.0.1025.162 Stable [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88122.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome - веб-браузер производства Google с открытым исходным кодом, сочетающий поддержку веб-приложения и удобный поиск с высокой скоростью и стабильностью. В Chrome использованы наработки Apple WebKit и Mozilla Firefox. Из особенностей Chrome разработчики особо выделяют изолированные вкладки, предотвращающие сбой работы программы и обеспечивающие более надёжную защиту от опасных сайтов. Кроме этого, в Chrome реализован новый движок JavaScript V8, который позволит браузеру работать с веб-приложениями нового поколения.Название программы: Google ChromeЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479533   (88121) от 13.04.2012
-
-22-20s - Got It If You Want It (2012) [MP3|320 кб/с]<Indie Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring It Home
-02. Pocketful Of Fire
-03. White Lines
-04. Heart And Soul
-05. Purple Heart
-06. Cuts And Bruises
-07. Only Way You Know
-08. My Creation
-09. A Good Thing
-10. Little Soldiers(   Читать дальше...   )2012Жанр: Indie Rock, Blues-RockПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E88CECA5C5CAA2F81779C16BEE46893EC81512DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482651   (88120) от 13.04.2012
-
-[Wallpapers] Обои для рабочего стола - Лучшие С 2007-2012 [1680x1050 - 4117x2728] [431 шт.] (2012) JPG
+[Wallpapers] Обои для рабочего стола.
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Равнодушным не останется никто!!!
+Обои для рабочего стола,на любой вкус(280 шт.)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:857E99A36D1E28E1ED14AAEDE0BD255C124099F1
+magnet:?xt=urn:btih:FB3B6219028615B61FCF322DBDB04046C682A70C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -513,25 +773,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481877   (88117) от 12.04.2012
+###  Публикация: 454996   (93989) от 21.02.2012
 
-Windows 7x86x64 Professional UralSOFT v.4.3.12 (2012) (Rus)
+VA - Minimal Art v.7 (15.02.2012) [MP3|320 kbps]<Minimal>
 
->>След.
->>Архив Программ
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В данной сборке, в одном образе представлены две операционные системы Windows 7 Professional (32-bit+64-bit). Интегрирован загрузчикНазвание программы: Windows 7x86x64 Professional UralSOFT v.4.3.12Язык интерфейса: русский
+01. Adelmo - Angela (Oscar And Chester Remix) (7:08)
+ 02. Anton Ishutin - April 12 (Original Mix) (7:17)
+ 03. Damolh33 - Sweep (Original Mix) (6:27)
+ 04. David Temessi – De Ja Vu (Zareh Kan Remix) (7:05)
+ 05. Dich - Erza Fire (Dub Dummies Remix) (8:21)
+ 06. Droplex - Descript (Mr. Wise Remix) (6:30)
+ 07. Edoardo Spolaore - Hope (Original Mix) (7:10)
+ 08. Emrah Celik - Let's Get Dangerous (Gokhan Guney, Emrah Celik Remix) (6:08)
+ 09. Gianni Ruocco – Caribean Week (Original Mix) (6:45)
+ 10. Marcel Knopf - Blood Smell (Dapayk Remix) (7:19)(   Читать дальше...   )15.02.2012Жанр: MinimalПродолжительность: 02:21:54
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:FD329286EA85C203B56C73047C2CC297A937952E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -539,25 +808,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477146   (88114) от 12.04.2012
+###  Публикация: 455001   (93985) от 21.02.2012
 
-Шаповалов (16 серий из 16) (2012) SATRip
+VA - Minimal Art v.9 (17.02.2012) [MP3|320 kbps]<Minimal>
 
->>3
->>След.
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88114.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Майор милиции Юрий Шаповалов трудится оперативником в одном из столичных ОВД. Начальство навязывает ему в помощники вчерашнего выпускника юрфака, молодого оперативника по фамилии Гусь. Герои притираются друг к другу, однако сближение не мешает им продолжать конфликтовать по любому поводу. Помимо работы в уголовном розыске, у Шаповалова есть ещё один, нелегальный, источник дохода: за помощью к Шаповалову, имеющему заслуженную репутацию классного сыщика, то и дело обращаются многочисленные знакомые и знакомые знакомых. По их просьбе он проводит неофициальные расследования. Причём берётся Шаповалов не за всё подряд, а лишь за те дела, которые представляют для него особый интерес, профессиональный и, что тоже играет не последнюю роль, финансовый.Вниманием со стороны женщин Шаповалов не обделён. Он же поддерживает длительные отношения с Анной, женой весьма состоятельного человека, который за границей проводит больше времени, чем на родине. Гибель бывшей жены вносит существенные коррективы в жизнь героя: пятнадцатилетняя (   Читать дальше...   )Жанр: Детектив, Криминал, МелодрамаРежиссер: Илья Максимов (II)Актеры: Александр Балуев, Евгений Пронин, Екатерина Стриженова, Валерий Баринов, Наталия Лесниковская, Николай Сердцев, Александр Кузнецов, Михаил Скачков, Дмитрий Буренков, Александр Сергеев (IV), Александра Живова, Наталья Бардо, Вероника Лысакова, Александр Числов, Андрей Москвичев, Дмитрий Артаев, Александр Сигуев, Денис Березин, Макс Уральский, Максим Дромашко, Кристина Савина, Маргарита Иванова-Донская (IV)Продолжительность: ~ 00:45:00 - серия
+01. Afonso Maia - Playhead (Original Mix) (6:03)
+ 02. Cristian Glitch - One (Alessandro Grops Remix) (6:24)
+ 03. Destructo - Technology feat. Oliver (Original Mix) (5:09)
+ 04. Insect Elektrika - Man In Love With Fish (Original Mix) (6:43)
+ 05. Johnny Kaos – Lsd (7:40)
+ 06. Keira - Sguitara (Min & Mal Remix) (6:01)
+ 07. Was Bleibt (Jimpster Vocal Remix) (8:01)
+ 08. Kontak - Triangle (Minimal Law Remix) (6:00)
+ 09. Kriece - Ginger Explosion (Original Mix) (7:45)
+ 10. Lazy M - Stranger (Dani Sbert Big Bully Remix) (7:01)(   Читать дальше...   )17.02.2012Жанр: MinimalПродолжительность: 02:16:06
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:41C9E3BF5BF53918349DE66079E0DEB9A40E73D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -565,155 +843,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481925   (88112) от 12.04.2012
+###  Публикация: 454665   (93983) от 21.02.2012
 
-Rise and Fall: Civilizations at War / Rise & Fall: Война цивилизаций [Ru]  (P) 2006
+VA - Minimal Art v.1 (09.02.2012) [MP3|320 kbps]<Minimal>
 
->>Win Игры
->>Strategy Tactical (RTS/TBS)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это компьютерная игра в жанре RTS, разработанная чикагской студией Midway Games. Игра повествует о войнах, происходящих в древности между Грецией, Египтом, Персией и Римом. В игре присутствует небольшое отличие от других стратегий, это так называемая изюминка - главным героем можно управлять от 3-его лица, и в это время он становится невероятно силён, что даёт вам возможность месить противников в капусту. Плюс герой с каждым уровнем становится намного сильнее.Тип издания: ПираткаЖанр: Стратегия в реальном времениЯзык озвучки: АнглийскийЯзык интерфейса: Русский
+01. A.K.O - Rolling (Original Mix) (8:11)
+ 02. Artem Abdrakhmanov - Back Flip (Original Mix) (6:26)
+ 03. Bedoya - Minimetrico (Original Mix) (7:03)
+ 04. Bricklake - Reaktor (Chris Lawyer Remix) (6:07)
+ 05. Caiwo - Playing Games (Caiwo aka Music Supervisor ReWork) (7:38)
+ 06. D-Funkshion - Bim Bam (Original Mix) (7:11)
+ 07. Daniel Mehes - Highend (Andy Notalez Niaz Arca Remix) (6:37)
+ 08. Glitter - Vigilante (Original Mix) (6:09)
+ 09. Hertzman - Gift (Original Mix) (6:17)
+ 10. Jey Pee Razz - No Melody (Gaga Remix) (6:34)(   Читать дальше...   )09.02.2012Жанр: MinimalПродолжительность: 02:27:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9558B2F457F680233A835D683E75CD66C9EEC73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481789   (88110) от 12.04.2012
-
-Legend of Grimrock [En] (L) 2012
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legend of Grimrock - ролевая игра с видом от первого лица, события которой разворачиваются в мрачных подземельях, населенных многочисленными врагами, изобилующими головоломками, секретами и ценными сокровищами. Под вашим управлением окажется команда из четырех человек, переключаться между которыми можно в любой момент.Тип издания: ЛицензияЖанр: Adventure, RPG, IndieЯзык озвучки: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:202D45D59BB7D62C6441801DE6D12D8D526E68C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481874   (88107) от 12.04.2012
-
-Вышибала / Goon (2011) BDRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88107.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даг — простой вышибала, работающий в провинциальном баре. Однажды, ввязавшись в драку на хоккейном матче с одним из игроков, он попадает в поле зрения тренера команды мастеров. Ему срочно нужен игрок, который сможет защитить на льду ведущего нападающего клуба. Даг не умеет стоять на коньках, но этому можно научиться, зато в драке ему нет равных! У команды-главного (   Читать дальше...   )Производство: США, Канада |  No Trace Camping, Caramel Film, Don Carmody ProductionsЖанр: Комедия, СпортРежиссер: Майкл ДаусАктеры: Шонн Уильям Скотт, Джей Барушель, Лив Шрайбер, Юджин Леви, Элисон Пилл, Марк-Андре Гронден, Ким Коутс, Дэвид Петкау, Шон Скин, Джонатан ЧерриПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:30:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7132BFA4FC4D87FECCD607EAF781E3F8804024DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481854   (88097) от 12.04.2012
-
-Василий Леонов | Самоучитель Mac OS X Lion [2012] [PDF]
-
->>Компьютерная литература
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта книга поможет проложить вам кратчайший путь в мир богатых возможностей операционной системы Mac OS X Lion. С ее помощью читатель познакомится с самыми различными сторонами операционной системы.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C591E95ED47DD4A1A8E36E3C37F0DB1B243378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481712   (88093) от 12.04.2012
-
-Том и Джерри: Золотая коллекция Том 1 / Tom & Jerry Golden Collection: Volume One (1940-1948) BDRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кот Том и мышонок Джерри — парочка, прославившаяся на весь мир. Уже несколько десятков лет Том гоняется за Джерри с неослабевающим азартом. Том придумывает всё новые и новые хитроумные уловки, чтобы поймать Джерри, но мышонок всё время выкручивается с не меньшей изобретательностью.Жанр: Мультфильм, комедия, семейныйРежиссер: Джозеф Барбера, Ханна УильямВ ролях: Том и ДжерриПеревод: Профессиональный многоголосыйСубтитры: Русские, английскиеФормат: MKVПродолжительность: 37 x ~ 00:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F67BFBF496BD932B7B1F13BD6F7573CC9BB2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370267   (88088) от 12.04.2012
-
-Трасса 60 / Interstate 60 (2002) DVDRip
-
->>След.
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88088.jpg" />
-</div>
-
-
-###  Подробнее
-
-В легендах и мифах есть персонажи, главная задача которых — исполнять желания. У арабов — это джинны, у ирландцев — лепреконы, у китайцев — драконы, у европейцев — феи и лесные духи. А в Америке есть некто О. Ж. Грант — довольно странный и забавный человек, который тоже может исполнить любое Ваше желание. Но будьте осторожны — он очень проказлив! Вот его-то и встречает (   Читать дальше...   )Жанр: Фэнтези, Комедия, ПриключенияРежиссер: Боб Гэйл / Bob GaleАктеры: Джеймс Марсден, Пол Брогрен, Кристофер Ллойд, Уэйн Робсон, Гари Олдман, Майкл Дж. Фокс, Мэттью Эдисон, Мелисса Эд, Джон Буржуа, Роз Майклс, Эми СтюартПеревод: Авторский (одноголосый)Формат: AVIПродолжительность: 01:56:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77EF642165F363A9B2A2B838F6FD5FB6F54F1800
+magnet:?xt=urn:btih:A6C4CF8D9E190CCEDDEEBDDAC3EA4247698424E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

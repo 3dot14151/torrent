@@ -1,3 +1,59 @@
+###  Публикация: 599128   (999780) от 05.01.2013
+
+[Wallpapers] New 2013 Nature Wallpaper Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999780.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] New 2013 Nature Wallpaper Pack 2
+Название: New 2013 Nature Wallpaper Pack 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BCDC30C1D102114AD6F663A8EF75111664884CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 598787   (999779) от 05.01.2013
+
+Nature Wallpapers (04.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999779.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1AE04603E5F7668416C13134CCFDC15C1A439F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 598742   (999777) от 05.01.2013
 
 Sexy Girls Wallpapers (03.01.13) [Wallpapers 16+]
@@ -654,62 +710,6 @@ Sonny Rollins - Reel Life (1982) [MP3|320 кб/с]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599205   (999730) от 05.01.2013
-
-[Wallpapers] New 2013 Nature Wallpaper Pack 3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999730.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] New 2013 Nature Wallpaper Pack 3
-Название: New 2013 Nature Wallpaper Pack 3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 08:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C84B75799E81CD1BC0746B69580976AAE67B43FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599076   (999729) от 05.01.2013
-
-Sexy Girls Wallpapers (05.01.13) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999729.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F8A840C500A16729D244C084DAC5CCFB09B7E57
 ```
 
 https://mybot314.ru/tekegram_catalog/

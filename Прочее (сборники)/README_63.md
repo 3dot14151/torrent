@@ -1,3 +1,263 @@
+###  Публикация: 1218156   (725035) от 08.04.2018
+
+VA - Top 100 Зайцев.Нет Март 2018 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ SLON & KATYA ft. Роман Василенко - LIFE IS GOOD
+02. MATRANG - Медуза
+03. Элджей - Минимал
+04. GAZIROVKA - Black(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E7F2C59FF3A4C1F19F0B7C40303CDB2E9DA72D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128980   (724844) от 27.04.2017
+
+VA - Dancefloor Everyday Mix (2017) [MP3|192-320 Kbps] <Progressive, Electro, Indietronica, Bigroom, Future House, Club, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Smooth & Tony Arzadon – Turn Up The Bass (Original Club Mix) 03:21
+02. Dan Slater & Jimjam F. Nalaya Brown – Minute Of You (Dirty Disco Club Mix) 07:28
+03. Rene Amesz – Liam (Rene Amesz Club Mix) 03:24
+04. Dan Slater & Jimjam F. Nalaya Brown – Minute Of You (George Figares & Dj Blacklow Club Mix) 06:17(   Читать дальше...   )Жанр: Progressive, Electro, Indietronica, Bigroom, Future House, Club, SynthpopПродолжительность: 09:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C53037791CD022A313F6FCF183C0F1D0BAFC5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217984   (724733) от 08.04.2018
+
+ZODIAC - Reload (2017) Remix [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724733.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Reload
+2. DJ YASTREB
+3. Up MusicЖанр: Electro HouseПродолжительность: 00:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99C3155BF67BD19387A904A002C243585BAB0C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023515   (724547) от 05.06.2016
+
+VA - 100% Proof Pop! Friction Hits (2016) [MP3|320 кб/с] <Gospel, Alternative, Country, Latin Urban, Synthpop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724547.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Flo Rida - That's What I Like (feat. Fitz) 03:16
+002. The Piano Guys - Kung Fu Piano: Cello Ascends 04:06
+003. Yandel - No Sales de Mi Mente (feat. Nicky Jam) 03:25
+004. Carrie Underwood - Choctaw County Affair 03:31(   Читать дальше...   )Жанр: Gospel, Alternative, Country, Latin Urban, SynthpopПродолжительность: 08:20:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:397D6EC4C01FEFE0AC41A3CA46FDD4571BD5346C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128887   (724237) от 27.04.2017
+
+VA - Singles Chart Hot 100 Billboard (05 May) (2017) [MP3|320 Kbps] <Pop, Rap, Soul, R&B, Alternative, Bro-Country, Dancehall>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724237.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Kendrick Lamar - Humble  2:58
+002.  Ed Sheeran - Shape Of You  3:54
+003.  Luis Fonsi feat. Daddy Yankee - Despacito  3:48
+004.  The Chainsmokers & Coldplay - Something Just Like This  4:08(   Читать дальше...   )Жанр: Pop, Rap, Soul, R&B, Alternative, Bro-Country, DancehallПродолжительность: 06:13:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B64963DBFEEAE437CFD273D4FDEBA69505B4213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129182   (724224) от 27.04.2017
+
+VA - Music for Your Car Vol.3 (2017) [MP3|320 Kbps] <Club , Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724224.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abramo & DJ Lacros - U Know Y (Original Mix) 3:01
+002. Adam De Great - Pretty Sick (Original Mix) 3:19
+003. Aleo - Hospital (Original Mix) 6:41
+004. Aleo - Sex Orgazm (Original Mix) 4:26(   Читать дальше...   )Жанр: Club , DanceПродолжительность: 07:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F77C8D08AEFD5A1401447F782C1D5CACC8DACFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129187   (724219) от 27.04.2017
+
+VA - Need For Speed Vol.5 (2017) [MP3|320 Kbps] <Dance , Hands Up>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724219.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kris Mctwain - Stuck on replay (Radio Edit) 3:54
+002. Bloodhound Gang - The Bad Touch (Michele Pletto Bootleg) 3:31
+003. MKH - You can run You can hide (Alari Remix Edit) 4:05
+004. Sunbase Inc - Next to You (Radio Cut) 3:50(   Читать дальше...   )Жанр: Dance , Hands UpПродолжительность: 06:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C4C4027C3FAB4DFF6EE2CFFCFC172ED8F89D3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129050   (724096) от 27.04.2017
+
+Bad Boys Blue - The Best (By Reloaded) (2017) [MP3|320 Kbps] <Eurodance, Europop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jungle In My Heart (Reloaded)  3:28
+02.  Come Back And Stay (Reloaded)  4:04
+03.  Hungry For Love (Reloaded)  4:10
+04.  Kiss You All Over, Baby (Reloaded)  4:07(   Читать дальше...   )Жанр: Eurodance, Europop, DiscoПродолжительность: 01:23:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5119F5FD7DEFF773C3C90CE83CBD17D8E5D7FE3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1128932   (723708) от 27.04.2017
+
+VA - Discoteka 2017 Dance Club. The Best and  Newest Hits  [MP3|320 Kbps] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723708.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Feder - Blame Me (Denis First Radio Remix)
+002. Cascada - Playground
+003. Stereo Palma feat. Myra - Because The Night (Roberto Rios X Dan Sparks Remix)
+004. Sal De Sol - Happy Ending (Short Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 08:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17FAB6BDC5FF242FF069106752ED8E3D5C84B112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023533   (723337) от 05.06.2016
 
 VA - Space Synth Disco 80s (2016) [MP3|320 кб/с] <Space Disco, Synth Disco>
@@ -482,267 +742,6 @@ VA - Top 100 Club Tracks (May 2016) (2016) [MP3|320 кб/с] <Dance, Club, Club 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE05BDA0327695429010C4E96848CD2AE53B65CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285644   (719053) от 27.02.2019
-
-VA - New Music Releases Week 8 of 2019 (2019) [MP3|320 Kbps] <Pop, Hip Hop, Alternative>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719053.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adam Lambert - Feel Something
-002. Aldous Harding - The Barrel (Radio Edit)
-003. Alex Cuba - Yo No Sé
-004. Alma - Starlight(   Читать дальше...   )Жанр: Pop, Hip Hop, AlternativeПродолжительность: 15:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015E8997896EA759A115BBACBDF73EBF6BE71BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129929   (718831) от 30.04.2017
-
-VA - Mush-Up Dance Music (2017) [MP3|320 Kbps] <Club, Dance, House, Mush Up>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718831.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kindervater - Eight (Extended Mix)
-002. Dj Matrix - Cr9
-003. O-Zone - Dragostea Din Tei (Dj Zed Remix)
-004. Laidback Luke Feat. Majestic - Pogo (Deorro Remix)(   Читать дальше...   )Жанр: Club, Dance, House, Mush UpПродолжительность: 07:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0543F8EE33C1E305B4FA8600CA52C91BB4C8E561
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130019   (718710) от 30.04.2017
-
-VA - Empire Records - Club Hit 13 (2017) [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kim McNichols - Better off Alone (Summer Pool Party Mix)
-02. Michael Ribeira - Ecuador (Slowsphere Remix)
-03. Damon Paul, Beccy - I Was Made for Lovin' You (Patricio Amc Remix)
-04. Tenishia & Sue Mclaren - Strong (Chill Out Mix)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 01:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B5C245789D100C4151EC8A01991C20BE63DBDF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129927   (718354) от 30.04.2017
-
-VA - Disco 80 Dance Premium (2017) [MP3|320 Kbps] <Disco, Euro-Pop, Italo-Disco, Synthpop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718354.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roger Meno - I Find The Way  6:47
-02.  Modern Talking - Your'e My Heart, Your'e My Soul (Paul Masterson's Extended Remix)  7:19
-03.  C.C.Catch - One Night's Not Enough (Maxi Version)  5:17
-04.  K.B.Caps - Do You Realy Need Me (Extended Version)  6:36(   Читать дальше...   )Жанр: Disco, Euro-Pop, Italo-Disco, Synthpop, DanceПродолжительность: 13:23:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E11783A1E29733A74B74CBE3F1376FAE3AAEDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129773   (717871) от 30.04.2017
-
-VA - Nostalgia Collection (Volume Second) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717871.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Francis Goya - Nostalgia  3:53
-002.  Liza Minelli - Cabaret  3:37
-003.  Boyz II Men - End Of The Road  5:54
-004.  SuperMax - Camillo  4:05(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 10:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:143CBF4077D35A42828E80B9808BA903E8A3EF9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129696   (717870) от 30.04.2017
-
-VA - Nostalgia Collection (Volume One) (2017) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717870.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Demis Roussos - From Souvenirs To Souvenirs  2:38
-002.  F.R.David - Words  3:28
-003.  Enigma - Principles Of Lust  4:13
-004.  Earth, Wind & Fire - Fantasy  3:48(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 09:34:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E912F2350EEED93428E62175E7ABF41CFEC12C6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129954   (717868) от 30.04.2017
-
-VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск # 44) (2017) [MP3|256-320 Kbps] <Eurodance, Disco, Italo Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bad Boys Blue - I Totally Miss You (DJ X-KZ & DJ Anatolevich Remix 2015) (Eurodance Version)  5:38
-02.  Joy - Touch By Touch   (DJ Arkadiy Gabana & DJ Alex Dolce Remix Radio)  4:07
-03.  Pulsedriver & Andrew Spencer - Тouch Мe (Topmodelz Remix)  4:38
-04.  F.R. David - Taxi (Dance Remix)  3:46(   Читать дальше...   )Жанр: Eurodance, Disco, Italo DiscoПродолжительность: 04:52:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B215EFE86112E2E8C335E41EBEA31506A54317F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218965   (717527) от 12.04.2018
-
-VA - For Your Disco Pleasure (2018) [MP3|320 Kbps] <Italo Disco, Pop, New Generation>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717527.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Atlanta - Romantic Break
-002. Brooklyn Guy - Cold Stuff (Original Mix)
-003. Eucariontes - Tell Me More (Original Mix)
-004. The Fans - M.A.F.I.A.(   Читать дальше...   )Жанр: Italo Disco, Pop, New GenerationПродолжительность: 10:11:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1590A0DE51C8D9CF71D46DF83164E0CBCC292A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219108   (717405) от 12.04.2018
-
-VA - Salsa Fiesta 2018 [MP3|256-320 Kbps] <Salsa, Bachata, Kizomba, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_717405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los 4 - Tu de Que Vas
-02. Ciclon Cubano - Echale Salsa
-03. Damian/Los Desiguales/El Principe - Eso Es Bola (Salsa Version)
-04. El Pequeno De La Salsa - Te Quiero(   Читать дальше...   )Жанр: Salsa, Bachata, Kizomba, OtherПродолжительность: 04:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EFF8390FBDB78AF095553B7C757291351765EB1
 ```
 
 https://mybot314.ru/tekegram_catalog/

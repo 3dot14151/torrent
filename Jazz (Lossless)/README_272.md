@@ -1,3 +1,61 @@
+###  Публикация: 1660408   (189374) от 13.09.2023
+
+VA - Unforgettable Romantic Moments Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Like a River (5:23)
+02. eJazz Artistry - Colder Weather (3:59)
+03. Kool&Klean - Guessing Game (4:17)
+04. Konstantin Klashtorni - Used to Love You (4:08)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA33622AEC365F6BA9165847D85D386CBA7D8DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1660384   (189371) от 13.09.2023
+
+VA - Jazz music to concentrate (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles Davis - Générique (Bande originale du film "Ascenseur pour l'échafaud") (2:49)
+02. Tommy Flanagan Trio - In The Blue Of The Evening (3:42)
+03. Wes Montgomery - Days Of Wine And Roses (3:48)
+04. Wayne Shorter - Footprints (Remastered) (7:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF278BAEA733617C38985A6769B4C89C7B9C01D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660381   (189362) от 13.09.2023
 
 VA - Bar Lounge Costes, Vol. 6 Lounge & Smooth Jazz Flavors (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -686,64 +744,6 @@ Roy Eldridge - Decidedly (1975) 2002, Pablo [FLAC|Lossless|tracks + .cue] <Mains
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D16A627A0CAEF234DD9AD696EBE829257119736C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663513   (186595) от 22.09.2023
-
-Renee Rosnes - And The Danish Radio Big Band (2001) 2003, Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Big Band, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancestors [9:02]
-02. Bulldog's Chicken Run [7:55]
-03. In This Moment [9:17]
-04. Black Holes [9:19](   Читать дальше...   )Жанр: Post-Bop, Modern Big Band, Piano JazzПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACCE1E68B59D56DF7677BB7697D7936A729AC0BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663730   (186490) от 23.09.2023
-
-Sahib Shihab - Summer Dawn (1963) 2008, Rearward [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lillemor [7:59]
-02. Please Don't Leave Me [9:47]
-03. Waltz for Seth [6:20]
-04. Campi's Idea [8:27](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30AA929E44AD1D3C4CA85114EE8F1FE72F4416D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

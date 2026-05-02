@@ -1,3 +1,61 @@
+###  Публикация: 1215020   (761146) от 24.03.2018
+
+VA - Наше Радио: Чартова дюжина Top13  Март (2018) [MP3|320 Kbps] <Рок, Поп-Рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ундервуд  -  Ракеты на Марс  3:27
+02.  СерьГа  -  Я люблю поезда  3:24
+03.  Сплин  -  Тепло родного дома  3:51
+04.  Zdob Si Zdub feat. Loredana & Лигалайз  -  Балкана мама  2:42(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DDB66FC4FCA057E5544E87EBEBDC462E16E216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394825   (760514) от 07.07.2020
+
+VA - Chasing Sunrise: Heroes Of Modern Rock Vol.02 (2020) [MP3|320 Kbps] <Rock, Hard, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760514.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Silence - Sarabande
+002. Stonefield - The Eyes Of The Dawn
+003. Gatsby In A Daze - Summer Mushi
+004. The Morganatics - Gloria(   Читать дальше...   )Жанр: Rock, Hard, AlternativeПродолжительность: 08:05:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25E3212C7D0B1F49FC4977942FBC454BB8F85BB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280581   (760427) от 03.02.2019
 
 VA - Heavy Metal Collections Vol. 7 (3CD) (2018) [MP3|320 Kbps] <Heavy, Power, Symphonic Metal>
@@ -687,61 +745,6 @@ VA - Кавер Rock (2015) [MP3|128-320 кб/с] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:821636FA8B7C24C1E58121B70B2971571040334D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217172   (744356) от 03.04.2018
-
-Григорий Лепс - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock, Shanson>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744356.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли лучшие песни самого мощного отечественного вокалиста. Весь материал взят с оригинальных CD альбомов. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK001 Люди (Полный вперед!)
-002 Парус
-003 Бессонница
-004 Водопад(   Читать дальше...   )Жанр: Rock, ShansonПродолжительность: 05:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A65DDD83FA7BD3C24B71AAA3E603F03D7FB0E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 783349   (744054) от 05.05.2014
-
-VA - Alterportal HITS 14 Vol. 68  - April (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative, Metal, RockПродолжительность: 02:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC102DE24102E57BEE9E52964EAE243ECD76DCBB
 ```
 
 https://mybot314.ru/tekegram_catalog/

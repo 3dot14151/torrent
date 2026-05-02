@@ -1,3 +1,32 @@
+###  Публикация: 1756432   (39667) от 21.10.2024
+
+VA - Non-religious  Gospel music (2024) [MP3|320 Kbps] <Jazz, Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crowder - Lift Your Head Weary Sinner (Chains) [03:45]
+02. Cultura do Ceu, Davi Fernandes, Kaleb e Josh - Nada Mais [06:32]
+03. Darrell Mansfield, Larry Howard & Glenn Kaiser - Where Would I Be? [06:33]
+04. David Cardoso, ONE-Sounds,  Alessandro Vilas Boas - Maranata [17:24](   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 05:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE1F970EBABDABDB9A2B2366A184AF003FF9571B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1757017   (39306) от 25.10.2024
 
 VA - The Intrigue Of Jazz (2024) [MP3|320 Kbps] <Jazz, Blues>
@@ -716,35 +745,6 @@ Tony Joe White - Collection от ALEXnROCK (2025) [MP3|320 Kbps] <Blues Rock)>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AC6BAF807587C838A01F0A01CBEB534C2543B8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797548   (17973) от 17.05.2025
-
-VA - Hammond Blues Music (2025) [MP3|320 Kbps] <Jazz, Blues, Hammond>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Larry Carlton, Robben Ford - Burnable [11:19]
-02. Michael Falkenstein - Cry! Until You're Feeling Good (Mayday in Space) [04:16]
-03. Tony Monaco - Acid Wash / The Tony Monaco Trio [07:08]
-04. George & the Highlanders - The Hawk [03:06](   Читать дальше...   )Жанр: Jazz, Blues, HammondПродолжительность: 08:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C746F2B500D50FE329D5C5B5E91E22695420D0FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

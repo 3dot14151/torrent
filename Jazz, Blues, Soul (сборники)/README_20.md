@@ -1,3 +1,32 @@
+###  Публикация: 1833102   (246161) от 01.11.2025
+
+Мария Варгас - Favorites Collection (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_246161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ночной звонок
+ 02 - Не для меня
+ 03 - Забудь меня
+ 04 - С любимыми не расставайтесь(   Читать дальше...   )Жанр: Blues, Blues Rock, AIПродолжительность: 00:29:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0733ACD61D93B5A4F961D174E5F30C2CAC9D18AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1833019   (246124) от 31.10.2025
 
 Chicago Blues Radio - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Blues, Blues Rock, AI>
@@ -716,35 +745,6 @@ Chicago Blues Radio - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D57338D7F9AA758524D1E7FEFD55CA966BF2094
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638483   (211669) от 12.06.2023
-
-VA - Hey, what's that sound - Hammond Organ! (2023) 2CD [MP3|320 Kbps] <Jazz, Hammond, Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down to the Bone - Vinyl Junkie [05:25]
-02. Eloy - Inside (Remastered) [06:42]
-03. John McLaughlin - My Favourite Things (Instrumental) [06:17]
-04. Elvis Costello & The Attractions - Watch Your Step [02:59](   Читать дальше...   )Жанр: Jazz, Hammond, RockПродолжительность: 11:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B551F4CD020B5BF572EC59F5942FB0E50E6F38B3
 ```
 
 https://mybot314.ru/tekegram_catalog/

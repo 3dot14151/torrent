@@ -1,3 +1,177 @@
+###  Публикация: 1436103   (138880) от 30.12.2020
+
+VA - The Greatest Old Traditional Christmas Songs 1942-2017 (2020) Unofficial Release [FLAC 2.0|44.1/24|image+m3u|MC-Rip] <Pop, Traditional>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Gene Autry - Rudolph the Red-Nosed Reindeer
+Ultimate Christmas, Vol. 1
+1994 compilation - Collectables - Marks(   Читать дальше...   )Жанр: Pop, TraditionalПродолжительность: 01:23:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE42AAD15DE06B40A307BB5F86301B14A7F2561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679464   (138537) от 25.11.2023
+
+Mirror - Pyramid of Terror (2019) [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138537.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Pyramid Of Terror
+A2 I Am The Freak
+A3 Secrets Of Time
+A4 Master Of The Deep(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1486F1F1ADA50A18A99DE57232FB9633CF3BA5F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679363   (138112) от 25.11.2023
+
+Foster & Allen - Reflections. 20 Best Loved Favorites (1987) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Celtic, Folk, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138112.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 True Love
+A2 Ramblin' Rose
+A3 I Love You Because
+A4 Goodnight Irene(   Читать дальше...   )Жанр: Celtic, Folk, Easy ListeningПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A7AA0F1D98679ACFBF1ACB9AD27491F0398F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088514   (138074) от 31.12.2016
+
+John Lennon & Yoko Ono - Double Fantasy (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138074.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. (Just Like) Starting Over (3:57)
+A2. Kiss Kiss Kiss (2:43)
+A3. Clean Up Time (2:59)
+A4. Give Me Something (1:35)(   Читать дальше...   )Производство: Geffen Records - GHS 2001Жанр: RockПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EB95406EDB5EC49270208A11177AFDD1E23A082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349159   (137949) от 31.12.2019
+
+Michel Legrand - Legrand Jazz (1958) [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jitterbug Waltz (5:21)
+ 02. Nuages (2:26)
+ 03. A Night in Tunisia (5:55)
+ 04. Blue and Sentimental (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9664897486EBDB6E8D5CA8CF1AADEF4ABB3A8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088306   (137699) от 31.12.2016
+
+Uriah Heep - 12 Albums (1970-1978)  USA release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Classic Rock, Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137699.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1  One More Night (Last Farewell)
+A2  Falling In Love
+A3  Woman Of The Night
+A4  I'm Alive(   Читать дальше...   )Жанр: Classic Rock, Prog RockПродолжительность: 04:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1BA2F737F46C0D386C8682EC6C51D1C277974D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1195922   (137613) от 31.12.2017
 
 Queen - The Miracle (1989) Remastered,  Reissue, 2015, Virgin [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
@@ -567,180 +741,6 @@ Edguy - 5 альбомов (2001-2011) /10LP/ [FLAC 2.0 192/24 |tracks (VinylRip
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682358   (131508) от 07.12.2023
-
-Pyramaze - Studio Albums (7 releases) (2004-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pyramaze — датская пауэр-метал группа, образованная в 2001 году.2004 - Melancholy Beast
-2006 - Legend Of The Bone Carver
-2008 - Immortal
-2015 - Disciples Of The SunЖанр: Progressive Power MetalПродолжительность: 06:18:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FD17833A6834C9759E877803F36D54D69A5A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682844   (131186) от 08.12.2023
-
-Ayreon - Universal Migrator Part 1 - The Dream Sequencer (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dream Sequencer
-02. My House On Mars
-03. 2084
-04. One Small Step(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C1A7E8EB5C90D93CB840A8050A257FA092949B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682573   (131167) от 08.12.2023
-
-Arjen Anthony Lucassen - Lost in the New Real (2012) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The New Real
-02. Pink Beatles In A Purple Zeppelin
-03. Parental Procreation Permit
-04. When I'm A Hundred Sixty-Four(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F08B0416DE78605A75E676BE1AAD55DEE51B6E25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682671   (131165) от 08.12.2023
-
-Ayreon - Into the Electric Castle (A Space Opera) (1998) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome To The New Dimension
-02. Isis And Osiris
-03. Amazing Flight
-04. Time Beyond Time(   Читать дальше...   )Жанр: Progressive Metal, RockПродолжительность: 01:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC295937AE4BA55A8BC75DBF7D1CE65845E5E42C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620165   (130690) от 09.12.2023
-
-КняZz (Князь; Андрей Князев; Король и Шут) - Студийные альбомы (10 релизов) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130690.jpg" />
-</div>
-
-
-###  Подробнее
-
-«КняZz» — российская рок-группа из Санкт-Петербурга, созданная в 2011 году Андреем Князевым, являвшимся на момент её создания участником панк-группы «Король и Шут». Весной того же года Андрей Сергеевич отказался от работы в театре над рок-оперой «TODD» совместно с Михаилом Горшенёвым и решил создать сайд-проект для реализации собственного творческого потенциала. (   Читать дальше...   )2005 - Любовь негодяя
-2011 - Письмо из Трансильвании
-2012 - Тайна кривых зеркал
-2013 - Роковой карнавалЖанр: Punk RockПродолжительность: 07:56:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D277B86D06D3816C4F580DA1E4B71CF5CE764C54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682999   (129862) от 09.12.2023
-
-Cher - Cher's Greatest Hits 1965-1992. Volume 1 (1993) Compilation, Unofficial Release [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129862.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Oh No Not My Baby
-A2 Whenever You're Near
-A3 Many Rivers To Cross (Live From The Mirage)
-A4 Love And Understanding(   Читать дальше...   )Жанр: Pop Rock, Synth-popПродолжительность: 00:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9190965DDD45DA2D9002C6F8CBC92C5D19BD4122
 ```
 
 https://mybot314.ru/tekegram_catalog/

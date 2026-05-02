@@ -1,3 +1,61 @@
+###  Публикация: 1011931   (795680) от 29.04.2016
+
+VA - Neon Adrenaline Trance (2016) [MP3|320 кб/с] <Trance, Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795680.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ciro Visone - The Drive (Glynn Alan Remix) 08:37
+002. Omniks And Eufonica - Adelia (R3dub Rmx) 07:49
+003. Smith & Robbo - Start Again (James Allan Remix) (feat. McCallion) 06:44
+004. Lema & Shafer Ft Roxanne Emery - Summer Air (Chris Metcalfe Remix) 07:12(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 10:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D07E7A2BA545CBE6B06EB9297AB8184B29A84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1011133   (795635) от 29.04.2016
+
+VA - Massive Groove EDM Kits (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795635.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Digital Militia & Vanze ft. Tyler Fiore -  You Found Me (Original Mix)  4:15
+002. Mario Valley -  Don't (Radio Edit)  3:56
+003. Pixel Palmera -  ButtSoda (Original Mix)  3:32
+004. Reyko And John Meets Solid Rave -  Industry (Radio Edit)  3:22(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 08:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2C0075D7FAC9A3F4313731A8D63BD31AD1F28B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011944   (795629) от 29.04.2016
 
 VA - Universe Trance Uplifting Mix April (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, Vocal Trance>
@@ -687,64 +745,6 @@ VA - Beatport Synth Electronic: Sound Pack #366 (2021) [MP3|320 Kbps] <Synthwave
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:03C76E5D0795C8F2BDBB3F29C79BD9B670981079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012505   (793833) от 01.05.2016
-
-VA - Hands Up Essentials Vol.2 (2016) [MP3|320 кб/с] <Club, Dance, Hand Up>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Gollum feat. DJ Cap vs. NICCO -  Together Forever (Easter Rave Hymn 2k16) (Radio Edit)  3:34
-02. Manian -  Ravers in the UK (Ti-Mo Radio Edit)  3:39
-03. DJ THT -  Best Day (Radio Edit)  3:51
-04. Jens O -  Last Time (Radio Edit)  3:05(   Читать дальше...   )Жанр: Club, Dance, Hand UpПродолжительность: 03:52:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81CC389F7F2AFCD1B0E6A94E22FD40597D2EBC6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012517   (793823) от 01.05.2016
-
-VA - Electro Synth - Mcity Edition (2015) [MP3|320 кб/с] <Synth-pop, Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793823.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Yuri Sosnin - Reflection
-02. Abbsynth - Space Wanderer
-03. Boney M feat. Baby's Gang - Hapy Song (KsN Remix)
-04. Italover - Tonight In Love (Long 24 Bit Version)(   Читать дальше...   )Жанр: Synth-pop, SpacesynthПродолжительность: 01:11:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764E8E307987ADFC93E6686F8CE10FA8F961B84A
 ```
 
 https://mybot314.ru/tekegram_catalog/

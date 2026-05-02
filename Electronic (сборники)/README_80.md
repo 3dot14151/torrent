@@ -1,3 +1,61 @@
+###  Публикация: 1024104   (720197) от 07.06.2016
+
+VA - Charitable Foundation - Last Night Saved DJ (2016) [MP3|257-320 кб/с] <Tech House, Tribal, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endorphine - Our Night (Tanya Aura Remix) 07:15
+02. Dennis GRKN - Winner (Original Mix) 05:21
+03. DJ Sandro Mix - The Sick (Original Mix) 05:00
+04. Abel Ramos & Hurt - Believe (Extended Mix) 04:42(   Читать дальше...   )Жанр: Tech House, Tribal, Electro, ProgressiveПродолжительность: 09:30:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0588B7B970C84C39E1C2B3DE7A032C6631B83FF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024090   (720080) от 07.06.2016
+
+VA - Workout Mix vol.5 (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Porn Kings vs DJ Supreme Feat. Spencer & Hill - Up To The Wildstyle (Alexx Slam Remix)
+02-DMX - Party Up (DJ Zarubin & DJ Chippon Remix)
+03-Fatman Scoop feat. Snavs & Tropkillaz - Here We Go Now (Max Maikon Bootleg)
+04-DJ Fresh x DJ Schimolli  - Power Dibby Sound (DJ Oleg Petroff & DJ Cvet Mashup)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive House, TrapПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:632A07650403EB6957BDC8FD2CB810F031646A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 327471   (719674) от 24.04.2011
 
 Сборник - 30 Best Trance (2011) [MP3|320 kbps]<Trance>
@@ -692,64 +750,6 @@ VA - Chill Vibes (2016) [MP3|320 кб/с] <Deep House, Electro pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:451B575C270CE3A88047A64088B101AF9F22BC87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024499   (716037) от 09.06.2016
-
-VA - Vision Of The Future (Compiled by Breeeze) (2016) [MP3|320 кб/с] <House, Nu-Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alain Chamfort - Paradis (Paradis Reprise) (6:21)
-02. Darius - Espoir (4:02)
-03. Douze - Twilight (Instrumental Mix) (6:14)
-04. Else - 1979 (4:11)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8279DF0D7E8AB31E06D035C7D2FF9E5A2FFE795A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024594   (715950) от 09.06.2016
-
-VA - Spencer Vocal Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715950.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robbie Rivera feat. Blake Lewis - All We Are (Marco V Remix)
-002. David Tort feat. Dirty Vegas - Safe From Harm (Original Mix)
-003. Matt Darey feat. Kate Louise Smith - See The Sun (Original Mix)
-004. Christian Burns feat. Paul Oakenfold & Jes - As We Collide (Jesse Voorn Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 11:57:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:289D20A850D6F94DA1A38495F83D247B9B6ED7B9
 ```
 
 https://mybot314.ru/tekegram_catalog/

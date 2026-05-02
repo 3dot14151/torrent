@@ -1,3 +1,228 @@
+###  Публикация: 477985   (98866) от 07.04.2012
+
+Necronomicon - Invictus (2012) [FLAC|Lossless]<Thrash Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invictus (6:45)
+02. Unleashed (4:05)
+03. Bloody Bastards (4:03)
+04. Thoughts Running Free (5:49)
+05. Unconquered (5:56)
+06. Upon Black Wings (4:40)
+07. Face To The Wall (5:16)
+08. Pandora's Box (4:03)
+09. Before The Curtain Falls (4:42)
+10. Possessed By Evil 2011 (5:01)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:10:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479365   (98863) от 07.04.2012
+
+Return To Base - Behind The Sun (2011) [MP3|320 кб/с]<Drum'n'Bass / Industrial Djent>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Biopunk
+ 02. Collective Mind
+ 03. Alive Creature
+ 04. Devastator
+ 05. Behind The Sun2011Жанр: Drum'n'Bass / Industrial DjentПродолжительность: 00:21:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC82207169C45C0FE1E587E2F3C931041C4D4206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477759   (98862) от 07.04.2012
+
+Ферма Альбино / Albino Farm (2009) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Четверо студентов-друзей, исследующих местность известную как Горы Озарка, забрели на чужую ферму, чтобы уже никогда с нее не выбраться. Их ждал тепленький, смоченный кровью прием в лице семейки генетических уродов…Жанр: УжасыРежиссер: Джо АндерсонАктеры: Таммин Сурсок , Крис Джерико , Санкриш Бала , Ник Ричи , Алисия ЛаганоПеревод: Двуголосый закадровыйЯзык субтитров: испанскийПродолжительность: 01:25:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479733   (98858) от 07.04.2012
+
+[Wallpapers] Desktop Wallpapers №12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98858.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №12
+Название: Desktop Wallpapers №12
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DB8F26E8FE92D189ED8284322376CFF846CFCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479461   (98856) от 07.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98856.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFE9AB6F213EBB2179068C7BB67B412185A091F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479460   (98855) от 07.04.2012
+
+[Wallpapers] Music Wallpapers (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C0012E43631A02E3A6E2222FC1700A51E94B87D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479154   (98850) от 07.04.2012
+
+Каникулы в Мексике - 2. Выпуск №25 (2012.04.06) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98850.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C47074E21C44AC9A7B9D1944CEA662A7E20A72B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479465   (98849) от 07.04.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (07.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34037B6326A7EC36F94E0CE650F39B2D34F6FFA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479487   (98846) от 07.04.2012
 
 [Wallpapers] Wallpapers Sexy Girls Pack (08.04.12)
@@ -497,243 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9909F1F839812D790DD84E5C174CB3C78A832968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479700   (98822) от 07.04.2012
-
-[Wallpapers] Anime Wallpaper (08.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D16F16A6A4501B465E48D27681373BF7B345D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479466   (98819) от 07.04.2012
-
-[Wallpapers] Best Wallpapers (07.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C871BB0F09C4A26B020C6354F348C7AC498522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479679   (98816) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98816.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №5
-Название: Desktop Wallpapers №5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0467081298E42C9E6F930623C1E5B3E49DFAE429
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479683   (98815) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98815.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №7
-Название: Desktop Wallpapers №7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED07577EAA4D376DBA2B972775530E3EA48DC967
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479732   (98814) от 07.04.2012
-
-[Wallpapers] Desktop Wallpapers №11
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98814.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №11
-Название: Desktop Wallpapers №11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AB3FC1EB44CFE4186286C62B0A11114176969DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478648   (98806) от 06.04.2012
-
-VA - High Heels Feeling Vol 3: Finest Lounge Music For Intimate Relaxation & Pleasure (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solanos - Palabras y Sentimientos
-02. Blue Wave - Falling Skies
-03. The Sura Quintet - Walking On the Sand
-04. Don Gorda Project - Take a Rest
-05. Enrico Donner - Temptalizing Me (Feat. Judy Georges)
-06. Christian Hornbostel - Schakunta - Bossamba Mix
-07. Cane Garden Quartet - Love Goddess
-08. Diario - What I Would Miss About You
-09. Arrojas - The Last Day of Summer
-10. Aquarius - Dissonant Looks(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E136F225F69DC810C214186EE3B7EE0382DEDCC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479244   (98805) от 06.04.2012
-
-VA - Dash Berlin Top 20 April (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98805.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Dash Berlin Top 20 April (2012)Год: 2012
-Жанр:Trance
-Продолжительность: 02:35:16Кодек: MP3
-Битрейт:320 кб/с
-Тип битрейта: CBRТрек лист:
-1. James Dymond - Sunset Bench (Original Mix) (8:28)
-2. Cerf, Mitiska & Jaren with Rank 1 - Witness (Tomas Heredia Remix) (7:37)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478787   (98804) от 06.04.2012
-
-Природа зверя / The Nature of the Beast (1995) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бизнесмен Джек подбирает в окрестностях Невады «бродягу» Эдриана. Эдриен оказывается слишком назойливым попутчиком, и Джек хочет избавиться от него. Но Эдриена не так-то просто потерять из виду, потому что он знает один страшный секрет Джека и грозится сообщить об этом в полицию.
-
-В это время по радио в машине передают криминальные новости: в районе орудует серийный убийца по прозвищу Рубщик. Возможно, или Эдриен или Джек, и есть убийца, но природа зверя раскроется лишь к концу фильма…Жанр: Ужасы, Триллер, ДетективРежиссер: Виктор СэлваАктеры: Эрик Робертс, Лэнс Хенриксен, Саша Дженсон, Ана Гэбриэл, Илой Касадос, Брайон Джеймс, Лайла Гэрретт, Фрэнк Новак, Элиза Робертс, Эрл Теро, Уильям Э. Темпл, Холлэс Колберн, Лин Шэй, Сэра Янг, Боб МэйПеревод: Одноголосый закадровый (Михаил Иванов)Язык субтитров: английский, испанскийПродолжительность: 01:30:33
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 938801   (478025) от 20.09.2015
+
+Rose Room - The High Life (2015) [FLAC|tracks|WEB-DL]<Jazz, Swing, Gypsy>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The High Life (2:37)
+02. Edge of Love (3:54)
+03. I'm Confessin' (3:45)
+04. Sleads Street (2:51)(   Читать дальше...   )Жанр: Jazz, Swing, GypsyПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:808A4BB26CAE79E1AE1CB22A97131ACF74BD0D37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939100   (477923) от 20.09.2015
+
+Nils - Alley Cat (2015) [FLAC|Lossless]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Of A Kind
+02. Alley Cat
+03. Don't Hold Back
+04. Saturday Night(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C34C6EC457D178FB1385BDB26193F1FFD8527799
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057186   (477721) от 27.09.2016
 
 Art Blakey And The Jazz Messengers - Reflections In Blue (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -717,64 +775,6 @@ Mette Juul - There Is A Song(2015) - There Is A Song (2015) [FLAC|tracks|WEB-DL]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:342C0F0518B053D57102EB9DF86ADB2CD984DB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939307   (473560) от 22.09.2015
-
-Donna Hightower - Take One! & Gee, Baby, Ain't I Good To You? (2009) [FLAC|tracks+.cue]<Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Donna Hightower "Take One!" with Sid Feller's All-Star Group (Capitol T 1133)
-01. Perfidia (Albert Dominguez-Milton Leeds) (02:30)
-02. Maybe You'll Be There (Rube Bloom-Sammy Gallup) (02:49)
-03. Lover Come Back To Me (Sigmund Romberg-Oscar Hammerstein II) (01:59)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:00:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E0CC0CC9D4CABFD33A6D384027802982EBCE30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939539   (473464) от 22.09.2015
-
-Fourplay - Silver (2015) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quicksilver
-02. Horace
-03. Sterling
-04. A Silver Lining(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4FED083390A57A0DD4BD9E590CB766AF174E8E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

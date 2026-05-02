@@ -1,3 +1,61 @@
+###  Публикация: 1277804   (775164) от 22.01.2019
+
+John Coltrane - Gold (1957 - 1964) 2CD, 2006, Hip-O Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775164.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Blue Train [10:44]
+02. Giant Steps [4:46]
+03. Naima [4:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D545C53983D62F142B0E00E33B1A9322D7C62CED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015416   (774995) от 10.05.2016
+
+Curtis Fuller - Four On The Outside (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Four On The Outside [04:55]
+ 02.Suite Kathy [13:05]
+ 03.Hello Young Lovers [05:12]
+ 04.Little Dreams [07:50](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9F25541F2A336606429D5259A67324E3847188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278052   (774409) от 23.01.2019
 
 Ari Brown - Ultimate Frontier (1996) Delmark [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -686,64 +744,6 @@ Swingle Singers - Best Of The Classic Years (1963 - 1968) 2003, Helicon [FLAC|Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0826A2BE089BFFA6D2417FAEF8123C68C35886AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278433   (771993) от 25.01.2019
-
-Kazutoki Umezu - Diva (1988) NEC Avenue [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diva [3:56]
-02. Nishibi no Ataru Heya [8:12]
-03. Hinobashi no Tamoto [3:23]
-04. Poi [7:25](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03AE2DD05074E78F513CA5DF77A3DE0945C9B4D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278456   (771985) от 25.01.2019
-
-Bohren & Der Club Of Gore - Piano Nights (2014) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Downtempo, Dark Ambient>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Im Rauch (5:29)
-02. Bei Rosarotem Licht (6:41)
-03. Fahr Zur Hölle (5:35)
-04. Irrwege (3:39)(   Читать дальше...   )Производство: Ipecac Recordings – IPC155Жанр: Electronic, Dark Jazz, Downtempo, Dark Ambient, Contemporary JazzПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A3112F065FE397ABA3F54E37782F341599F2EB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

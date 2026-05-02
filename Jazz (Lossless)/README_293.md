@@ -1,3 +1,61 @@
+###  Публикация: 1678323   (146016) от 21.11.2023
+
+Tom Braxton - Comfort and Joy (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy to the World (5:16)
+02. The Christmas Song (6:40)
+03. Silent Night (4:36)
+04. O Come All Ye Faithful (4:52)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE53FCE8DAA31DFE66FE41D838897D4CF12F9509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272223   (146002) от 26.12.2018
+
+Roy Hargrove - The Vibe (1992) BMG Novus [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Vibe [6:34]
+02. Caryisms [7:04]
+03. Where Were You? [5:03]
+04. Alter Ego [6:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192A0D2ED2311EAA43C6DFBD7E1FCC86F4E90A50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1678314   (145998) от 21.11.2023
 
 VA - Cookin' Jazz vol. 2 (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -687,64 +745,6 @@ The Lenny Hambro Quintet - The Nature Of Things (1956) Remaster, 2015, Sony Musi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C81467E5FD31C3B965A72E648FED1218B5E08E8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970265   (143865) от 29.12.2015
-
-Arnett Cobb - Live (1982) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Cobb's Idea [11:01]
- 02.Sweet Georgia Brown [10:57]
- 03.Just A Closer Walk With Thee [07:54]
- 04.Body And Soul [06:35](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7304E7FC40B5FF062367D0CBDF3B36482E33EB98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348538   (143784) от 28.12.2019
-
-Urbie Green - Five Classic Albums 1953 - 1956 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143784.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cherokee [2:42]
-02. I Ain´t Got Nobody [3:31]
-03. Stella By Starlight [3:06](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E85C78B27DC673597F4A0170ACEE761DC48166
 ```
 
 https://mybot314.ru/tekegram_catalog/

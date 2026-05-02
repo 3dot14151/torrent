@@ -1,3 +1,119 @@
+###  Публикация: 1805072   (65524) от 03.07.2025
+
+Tim O'Brien, Jan Fabricius - Paper Flowers (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Atchison (3:14)
+02.  Fat Pile of Puppies (3:00)
+03.  Hungry Heart (3:04)
+04.  Paper Flowers (4:23)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA12E03F1A3F84CE01563B6E2E0B517F815CED1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805063   (65523) от 03.07.2025
+
+Mick Simpson - Changing Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Louisiana 1927 (4:37)
+02.  Deeper Than the Blues (3:29)
+03.  Fall Back Down (3:37)
+04.  Changing Times (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:445E583A9A7504E2669C7EC152E9EB3274BDA467
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805056   (65522) от 03.07.2025
+
+Gina Coleman - Unequivocally Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  No More To Give (4:37)
+02.  Days Gone By (3:21)
+03.  Unequivocally Blue (3:09)
+04.  Let Them Blues (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:885E3949DAD2CCCE0162948C6E44E216FC773FEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805066   (65520) от 03.07.2025
+
+Sugar Blue - Cross Roads (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Another Man Done Gone (2:19)
+02.  War Zone (4:41)
+03.  Shed No Tears (3:12)
+04.  Who's Been Talkin' (6:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61C58B323825700744789BC0A7FFF30D6450DB8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805071   (65518) от 03.07.2025
 
 The Cold Stares - The Southern, Pt. 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ The Matt Cahill Combo - The Midnight Show (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB461D7495780DB83763C4DC4F16F1B8431E71A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808430   (64982) от 24.07.2025
-
-The Mighty Redox - Love's A Demon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Love's A Demon (5:17)
-02.  What's My Name (2:59)
-03.  Why Wait (4:30)
-04.  Bad Light (3:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D806C1A63167052A80D6E85B995CC68ED81E0AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316225   (62694) от 17.03.2024
-
-Lonnie Brooks - 12 Albums (1975 - 1999) 14 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lonnie Brooks (born Lee Baker Jr., December 18, 1933 - April 1, 2017) американский блюзовый певец, гитарист. На протяжении своей долгой музыкальной карьеры он перепробовал множество стилей, начав с рок-н-ролла и ритм-энд-блюза. Но с годами он выработал свой индивидуальный блюзовый почерк. В конце 90-х Лонни Брукс стал очевидным лидером чикагского блюза. Лонни Брукс (   Читать дальше...   )Список альбомов:
-1975 - Sweet Home Chicago
-1979 - Bayou Lightning
-1980 - Turn On The NightЖанр: Chicago BluesПродолжительность: 11:28:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29B5BC7081FFAB0FC49AFC6937ED6429BB013BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708497   (62229) от 21.03.2024
-
-VA - Country Blues & Whiskey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sturgill Simpson - All Around You (3:36)
-02. Kaleo - Broken Bones (4:06)
-03. Zach Bryan - Oklahoma Smokeshow (3:32)
-04. Willie Nelson - Whiskey River (4:04)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 01:48:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:759CAD6E5BFA64BC5F0D6D80C565A3823AB3E459
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344161   (61627) от 27.03.2024
-
-Coco Montoya - 12 Albums (1994 - 2023) 13 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61627.jpg" />
-</div>
-
-
-###  Подробнее
-
-После выхода дебютного альбома “Gotta Mind To Travel” о Coco Montoya стали говорить как о талантливом гитаристе и вокалисте, как о “новом имени” в блюзе, но истинный ценитель блюза сказал бы куда больше. Продолжительная игра этого молодого гитариста сначала вместе с величайшим мастером телекастера блюзмэном Albert Collins, а потом и с ветераном британского блюза (   Читать дальше...   )Список альбомов:
-1994 - Gotta Mind To Travel
-1996 - Ya Think I'd Know Better
-1997 - Just Let GoЖанр: Modern Electric BluesПродолжительность: 12:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B12031017FD314F50F885B64F0E647A1237CA98
 ```
 
 https://mybot314.ru/tekegram_catalog/

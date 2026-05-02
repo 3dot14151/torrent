@@ -1,3 +1,177 @@
+###  Публикация: 1134776   (601963) от 30.04.2022
+
+VA - RETROспектива часть XX. Зарубежные исполнители IV (1955-1962) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Джика Петреску (Румыния) - Тебя я полюбил, Москва
+02. Джика Петреску (Румыния) -Я тебя люблю (на румынском языке)
+03. Виктор Симон (Бразилия) - Карнавал в Рио (на португальском языке)
+04. Виктор Симон (Бразилия) - Площадка в Яйя (на португальском языке)(   Читать дальше...   )Жанр: Pop, Retro
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE66C27B17D5DF7B2609ED8FC6E6497062986E66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122116   (601962) от 30.04.2022
+
+VA - Мелодии экрана, 9 серия (1962) [FLAC 1.0|96/24|tracks|Vinyl-Rip] <Soundtrack, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вокальный квартет - Песня подруг (из к.ф. ''Девчата'')
+02. Люсьена Овчинникова и Николай Погодин - Старый клён (из к.ф. ''Девчата'')
+03. Оркестр - Липси (из к.ф. ''Озорные повороты'')
+04. Майя Кристалинская - Позови меня (из к.ф. ''Мальчик мой'')(   Читать дальше...   )Жанр: Soundtrack, RetroПродолжительность: 00:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C871B9FA6E8EE259BECE614FB616DC4419B1FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126527   (601959) от 30.04.2022
+
+VA - RETROспектива, часть XVII. Зарубежные исполнители I (1939-1967) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анс. "Филипинки" - Валентина
+02. Пиляр и Элена Гарсия - Пичирильо
+03. Предраг Гойкович - Маленькая девочка
+04. Луиджи Ионеско - Тюльпаны(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18FD43E55A64EF0B77E42C5304BA11003F404DF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139402   (601943) от 30.04.2022
+
+Elton John - Captain Fantastic And The Brown Dirt Cowboy (1975) Reissue, 1980 [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classic Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601943.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Captain Fantastic And The Brown Dirt Cowboy
+A2 Tower Of Babel
+A3 Bitter Fingers
+A4 Tell Me When The Whistle Blows(   Читать дальше...   )Жанр: Classic Rock, Pop RockПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52221C668449D2F6388AB942984951CCC20E3AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298844   (601561) от 29.04.2019
+
+Bad Boys Blue - Super 20. Greatest Hits (1995) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Electronic, Synth-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. You're A Woman
+02. I Wonna Hear Your Heartbeat (Sunday Girl)
+03. A World Without You (Michelle)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB03C6BC398D09687432ECC0BED1F22DC13E89E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 686920   (601259) от 06.08.2013
+
+Melody Gardot - 3 Альбома (2008-2012)[FLAC 2.0 24/96|image (Vinyl-Rip)]<Jazz, Easy listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mira
+02. Amalia
+03. So Long
+04. So We Meet Again My Heartache(   Читать дальше...   )Жанр: Jazz, Easy listening |Продолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842F7247551AACCB6C88176ABB74324705A3A885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 686820   (601064) от 06.08.2013
 
 БГ - Живьем в Темяшкинхолле (1982) [FLAC 2.0 24/192|image (OpenReel-Rip)]<Singer/Songwriter>
@@ -569,180 +743,6 @@ A4 Carmen McRae - Exactly Like You(   Читать дальше...   )Жанр: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC26ADCA15833D7CA36C185E8FAB32048C1FE669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039535   (594568) от 02.08.2016
-
-VA - Famous Jazz Singers/Знаменитые Джазовые Вокалисты (1977) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Smooth Jazz, Jazz-Funk, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594568.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Louis Armstrong - I Get A Kick Out Of You
-A2 Nat King Cole - Stardust
-A3 Frank Sinatra - I've Got You Under My Skin
-A4 Tony Bennett - I've Grown Accustomed To Her Face(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Funk, SwingПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C9C3382778439949BC6EDAB0034DD6BE31F43BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039556   (594516) от 02.08.2016
-
-Московский Диксиленд "Капелла Дикси" (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Dixieland>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Олимпийский Сувенир
-02. Негритянская Песня
-03. Две Забытые Мелодии
-04. В Раздумье(   Читать дальше...   )Жанр: Jazz, DixielandПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0C29062D77F0B1F8A3577109D6BD00F8AF65079
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039521   (594514) от 02.08.2016
-
-Арсенал - Своими Руками (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Fusion>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594514.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Тайна (Mystery)
-А2 Посвящение Махавшину (Dedication To Mahavishnu)
-В1 Свет На Пути (Light On The Way)
-В2 Сюита В Фа Миноре (Suite In F Minor)Жанр: Jazz, FusionПродолжительность: 00:34:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9258C86254D062CB9A287D909694D832CD4FDD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 806923   (594171) от 22.07.2014
-
-Van Halen - 1984 (1984)  [FLAC 2.0 24/192|image (Vinyl-Rip)]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594171.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. 1984 (1:07)
-A2. Jump (4:04)
-A3. Panama (3:33)
-A4. Top Jimmy (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D06854D4B32B2584F86081D4E764026D44453965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150247   (594036) от 15.07.2017
-
-VA - Песни На Стихи Андрея Вознесенского (1981) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594036.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Николай Гнатюк - Танец На Барабане
-A2 Ольга Пирак - Два Стрижа
-A3 Петер Тилс - Белый Шиповник
-A4 Яак Йоала - Подберу Музыку(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0D1A40407AA866ADF95FB8C0E354A6F8A8D043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548801   (593957) от 06.05.2022
-
-The Ray Conniff Singers - It's The Talk Of The Town (1959) 1971 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593957.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 It's The Talk Of The Town
-A2 You're An Old Smoothie
-A3 Buttons And Bows
-A4 Let's Put Out The Lights (And Go To Sleep)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:29:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D554410E59E11D75E351C627B965CC74770AC44A
 ```
 
 https://mybot314.ru/tekegram_catalog/

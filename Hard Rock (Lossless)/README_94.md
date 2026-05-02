@@ -1,3 +1,119 @@
+###  Публикация: 1715051   (111540) от 12.04.2024
+
+Secta - Panzer (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. C'mon [00:03:46]
+02. Panzer [00:03:45]
+03. Dulce Dinamita [00:04:48]
+04. Todo o Nada [00:03:56](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4B59ACF8B3ADACAC8BD9F8A63AA81B1E101442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1715603   (111474) от 13.04.2024
+
+The Dead Daisies - Resurrected, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yesterday (3:50)
+02. Writing on the Wall (3:19)
+03. Bible Row (3:02)
+04. Tomorrow (2:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E1FBEB2459F504273C0CB383E3BFDE62139701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717456   (111168) от 20.04.2024
+
+Whitecross - Fear No Evil (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way We Rock 04:03
+02. Lion Of Judah 05:04
+03. Jackhammer 01:18
+04. Man In The Mirror 04:39(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC2AD5378EB821BE7A85F209017A52C2EEB9AE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716975   (111155) от 20.04.2024
+
+Junkyard Drive - Look At Me Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somewhere To Hide [00:03:42]
+02. Shoot From The Hip [00:03:46]
+03. Tearaway [00:03:25]
+04. Black Wolf [00:04:22](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61096204E20ACCB5BEF831E4F9B6073D10DBF205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717824   (111123) от 21.04.2024
 
 Lionheart - The Grace of a Dragonfly (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -629,122 +745,6 @@ The Hazytones - Wild Fever (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, ston
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78C063B182F440E94D44E847802915841BC3064E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723542   (109501) от 16.05.2024
-
-Red Dead Halo - No Country For Despicable Men (2024) [FLAC|Lossless|WEB-DL|tracks] <southern rock, melodic hard rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awake [00:03:18]
-02. Diabolical [00:03:49]
-03. Gunslinger [00:04:41]
-04. Live It Up [00:03:29](   Читать дальше...   )Жанр: southern rock, melodic hard rockПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DAD5CA52D5F0004B9D02C9AF313B6962E0DA57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723761   (109451) от 16.05.2024
-
-Universe III - Universe III (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Am (4:35)
-02. To Serve And Protect (5:35)
-03. Casa De Los Pollos (4:38)
-04. Why (5:40)(   Читать дальше...   )Жанр: Melodic Hard Rock, Heavy MetalПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DD5535E5A2963B6F4DBD07D278BBE87E3CD11B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723572   (109442) от 16.05.2024
-
-Intelligent Music Project - VIII: Miracles Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Thunder
-03. Days Rollin'
-04. For You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDCFEE9EAF01CD3232D2028ACA26E4B5DDACFBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724172   (109352) от 18.05.2024
-
-Motörhead - Remorse? No! (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ace of Spades (Alternate Version) (3:02)
-02. Motörhead (Live at Hollywood Palladium, Oct 1984) (2:29)
-03. Jailbait (Alternate Version) (3:31)
-04. Stay Clean (Live at Newcastle City Hall, 29/3/1981) (2:42)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216D20FF1E2262CCA7AD6458F3EE66B50968CE72
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1337689   (272626) от 12.11.2019
+
+VA - Female Vocal Trance: Hedkandi Mix (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darren Porter Feat. Ana Criado - Dream Like I Do
+02. Dream Travel - Transit (Radio Edit)
+03. Armin Van Buuren - Shivers
+04. Dream Travel - Coral Odyssey (Radio Edit)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 04:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4E0C04435BF8DF4D4F211548618F7B262D01EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265695   (271954) от 30.11.2018
+
+VA - Empire Records - Enigma Alive 4 (2018) [MP3|320 Kbps] <Chillout, Downtempo. Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Smith - Bull Drake (Original Mix)
+02. Richard Bonne - My Tears Of Elements (Artenovum Mystic Chillout Mix)
+03. Frank Borell - Photon (Deep West Cut)
+04. L'Enigme Sacree - Sanctus And Angus Dei (Original Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo. LoungeПродолжительность: 03:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3EB59AF9438FD15D0134BC72DC93FF80FDBF89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1084647   (271463) от 18.12.2016
 
 VA - Clear Deep House (2016) [MP3|320 Kbps] <Deep House, Electro>
@@ -684,64 +742,6 @@ VA - Лучшие клубные новинки Vol.6 (2017) [MP3|320 Kbps] <Upl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA3AE335B72EBF7928A48202E7E52E82E346DE14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190579   (266904) от 10.12.2017
-
-VA - Hed Kandi - Diamond Collection of Beach House 2000-2017 (2017) [Compiled by Firstlast] [MP3|320 Kbps] <Chill House, Disco House, Funky House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266904.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 05:07:39
-01. Julius Papp - Pacific State (12'' mix) [7:01]
-02. Factor 15 - Summer Love (Beach House Dub) [7:12]
-03. Nightsource - Just Right [7:01](   Читать дальше...   )Жанр: Chill House, Disco House, Funky HouseПродолжительность: 08:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B01D8EE4F284B7B4BE64ECD23200E02532240641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267312   (266730) от 06.12.2018
-
-VA - We Are Humans: Synth Electronics Mix (2018) [MP3|320 Kbps] <Synthetic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266730.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Klangstrahler Projekt - Adore
-002. Alberto Remondini - Double Bacon (Radio Edit)
-003. Astrovoyager - We Are Humans
-004. Carles Dj - Action Soul(   Читать дальше...   )Жанр: SyntheticПродолжительность: 10:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4926209B3C2C2C83503F3C542D50AC33CEDF31A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

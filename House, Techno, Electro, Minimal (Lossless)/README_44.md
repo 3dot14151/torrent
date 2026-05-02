@@ -1,3 +1,32 @@
+###  Публикация: 1248428   (442253) от 20.09.2018
+
+The XX - Remixes (2018) Compilation [FLAC|Lossless|tracks + .cue] <Deep House, Tech House, Downtempo, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01/10. VCR (Four Tet Remix) (8:38)
+ 02/10. Chained (John Talabot and Pional Blinded Remix) (8:33)
+ 03/10. Reconsider (Jamie xx Edit) (5:32)
+ 04/10. Sunset (Jamie xx Edit) (6:18)(   Читать дальше...   )Жанр: Deep House, Tech House, Downtempo, MinimalПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DA261D099B7B6C5B201D544D8B0E8ECEED81F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248926   (440186) от 21.09.2018
 
 Cherie Lily - The Dripping Wet EP (2013) [FLAC|Lossless|tracks + .cue] <Electro House>
@@ -713,35 +742,6 @@ VA - Summer Compilation 2022 (2022) [FLAC|Lossless|WEB-DL|tracks] <Deep Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC16488B1E8395324C95DA063BF7BFF11761D028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064309   (428366) от 19.10.2016
-
-VA - Mixmag Germany Presents Dantze (Curated by Nicone) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moosefly – Ohmagine (6:47)
-02. Autotune – Revolution (Ryan Mathiesen Interpretation) (7:07)
-03. Sid Le Rock – Boulder Holder (6:40)
-04. Stefan Mint & Leman & Dieckmann – Mayan (Jonas Saalbach Remix) (7:53)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC68063C141E4BC4C29C91EE6AFF3714BBE98EB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

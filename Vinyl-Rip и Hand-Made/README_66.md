@@ -1,3 +1,177 @@
+###  Публикация: 1700250   (117224) от 16.02.2024
+
+Pain of Salvation - Road Salt Two (2011)[FLAC|24/96|tracks|Vinyl-Rip]  <Progressive Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117224.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road Salt Theme (00:43)
+02. Softly She Cries (04:16)
+03. Conditioned (04:17)
+04. Healing Now (04:30)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25316204F1BB05EB2891AF2A1F5C435EE38D063
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700149   (117218) от 16.02.2024
+
+Pain of Salvation - Road Salt One (2010) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117218.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 No Way
+A2 She Likes To Hide
+A3 Sisters
+A4 Of Dust(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:50:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53375725C461C26074992730EDB370C5D40C3126
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700256   (117217) от 16.02.2024
+
+Pain of Salvation - Panther (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117217.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Accelerator
+A2 Unfuture
+A3 Restless Boy
+B1 Wait(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:08:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF8D8FA6344948FC164B95169AB8CB38BB42C3BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700102   (117142) от 16.02.2024
+
+Lost World Order - Studio Albums (4 releases) (2008-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117142.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lost World Order - метал-группа из Билефельда, Северный Рейн-Вестфалия, Германия.2008 - This Apparatus Must Be Earthed!
+2009 - Marauders
+2011 - Parasites
+2016 - TyrantsЖанр: Thrash/Death MetalПродолжительность: 03:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99183AA6CB3511A05835BBD7020EBAF0419F116A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700658   (117028) от 17.02.2024
+
+Mystic Prophecy - Studio Albums (12 releases) (2001-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Speed/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mystic Prophecy — немецкая пауэр-метал группа из Меммингена, Бавария, образованная в 2000 году.2001 - Vengeance
+2003 - Regressus
+2004 - Never Ending
+2006 - Savage SoulsЖанр: Power/Speed/Thrash MetalПродолжительность: 09:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90FFD83813694DCC87F2524CF74DC682CD0250CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1700648   (117011) от 17.02.2024
+
+Unheilig - Phosphor (2001) [FLAC|24/192|image + .cue|Vinyl-Rip] <Gothic Metal, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Die Macht
+02. Willenlos
+03. Ikarus
+04. Sage Ja!(   Читать дальше...   )Жанр: Gothic Metal, Industrial MetalПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F173CF113DF006299B249C8FA710A050ABA4816
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700462   (117008) от 17.02.2024
 
 Gardenian - Studio Albums (3 releases) (1997-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
@@ -571,180 +745,6 @@ Kyuss — американская стоунер-рок-группа, обра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B93F25AEA29F1A18F38064095A3A9A56D4AB36F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702543   (115680) от 25.02.2024
-
-Yes - Drama (1993 (1980)) [FLAC 24/192|Lossless|tracks] <Prog Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-01 Machine Messiah
-02 White Car
-03 Does It Really Happen?(   Читать дальше...   )Жанр: Prog Rock, Classic RockПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C22259174722198FBDA1B17E0E78CA4C4919794A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703178   (115170) от 28.02.2024
-
-Puddle of Mudd - Studio Albums (8 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Hard Rock, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115170.jpg" />
-</div>
-
-
-###  Подробнее
-
-Puddle of Mudd — американская рок-группа, сформированная в Канзас-Сити, штат Миссури в 1992 году.1994 - Stuck (EP)
-2002 - Come Clean
-2003 - Life On Display
-2007 - FamousЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 06:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E656F305261954EE47E70024E8270AEC3DC6048
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703238   (115066) от 29.02.2024
-
-2 Unlimited - No Limits (1993) [FLAC 24/192|Lossless|tracks] <Eurodance, Euro House, Techno>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 No Limit
-2 Tribal Dance
-3 Mysterious
-4 Where Are You Now(   Читать дальше...   )Жанр: Eurodance, Euro House, TechnoПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEBC3B58AD6E6DB9FE834D19748206D60A2985E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703061   (115057) от 29.02.2024
-
-VA - Улетай, туча (1980) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115057.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 сторона
-01 - Олимпиада-80 (6.23) Д. Тухманов — Р. Рождественский
-Тынис Мяги
-02 - Крестики-Нолики (2.38) В. Баснер — М. Матусовский(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FE8F59E82977F9DAFDAD4667A396FE78773272E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703213   (115049) от 29.02.2024
-
-«Рок-Ателье» Криса Кельми - Мы знаем (1988) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01 - Мы знаем (М. Пушкина)
-02 - Альбатрос (А. Маркевич)
-03 - Хамелеон (М. Пушкина)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A05DE17838DCD1B077DD57B9E6D67AD2622E5D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703547   (115048) от 29.02.2024
-
-Автограф - Рок-группа "Автограф" (1985) [FLAC 24/192|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115048.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. S.O.S. (А.Ситковецкий) — 4:25
-02. Реквием (памяти Джона Леннона) (А.Ситковецкий – М. Пушкина, Б. Баркас) — 8:29
-Сторона 2:(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F598DCA5F10B0C9F64D1F08A05BB166034DED015
 ```
 
 https://mybot314.ru/tekegram_catalog/

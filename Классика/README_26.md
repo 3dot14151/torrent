@@ -1,3 +1,32 @@
+###  Публикация: 914300   (598167) от 02.07.2015
+
+Brahms - Piano works (Claudio Arrau) (3CDs) (1991) [FLAC|image+.cue]<Classical, Romantic Period, Chamber Music, Recitals, Sonata, Ballades>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Variations and Fugue for Piano in B flat major on a theme by Handel, Op. 24 (29:07)
+Variations (28) for Piano on a theme by Paganini, Op. 35
+02. Livre 1 (14:07)
+03. Livre 2 (11:29)Жанр: Classical, Romantic Period, Chamber Music, Recitals, Sonata, BalladesПродолжительность: 02:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4198C8C3F3BE553CC6EEEABBA21D1F337AD8912
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525998   (596979) от 24.07.2012
 
 Joaquin Rodrigo - The Rodrigo Edition (1992) Concertos & Symphonic Works, 4 CDs [FLAC|Lossless]<Classical, Chamber Music>
@@ -717,35 +746,6 @@ Sergei Prokofiev - The complete piano sonatas 2 (1991) [FLAC|Lossless]<classical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:952D5EB7136597EAB767A914D10C386CE73F700A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303031   (575984) от 19.05.2019
-
-Ludovico Einaudi - Seven Days Walking (Day 3) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Low Mist (Day 3) (5:55)
- 02. Gravity (Day 3) (5:53)
- 03. Golden Butterflies (Day 3) (5:53)
- 04. The Path Of Fossils (Day 3) (8:51)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413E118386B7D7543A40DEC1B785796E6300E481
 ```
 
 https://mybot314.ru/tekegram_catalog/

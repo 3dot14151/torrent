@@ -1,3 +1,235 @@
+###  Публикация: 1002655   (846928) от 01.04.2016
+
+Amelia Brightman - Amelia Brightman (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop Rock, Pop, Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Confide In Me [04:14]
+02. Fly [03:56]
+03. Your House [03:58]
+04. Rain [03:37](   Читать дальше...   )Жанр: Pop Rock, Pop, VocalПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB362477ADC2617A39F9ED150E61D1D532E84B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002972   (845197) от 02.04.2016
+
+SPC ECO - All We Have Is Now (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Dream Pop, Shoegaze Electronic, Trip Hop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Troubles Deep
+02. All Gone
+03. All You Need
+04. Slow Down(   Читать дальше...   )Жанр: Indie Dream Pop, Shoegaze Electronic, Trip HopПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D441ADE136020F293A1B59ADEA356D98A17EE060
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378582   (844802) от 26.04.2020
+
+Charles Aznavour - After love (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson francaise>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Tu te laisses aller
+02 Les deux guitares
+03 J’ai perdu la tete
+04 Après l’amour(   Читать дальше...   )Жанр: Pop, Chanson francaiseПродолжительность: 00:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D447F9C107A7E4DFCE122E43C86E8BDFA9BD2DBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112190   (844226) от 07.03.2017
+
+Demis Roussos - Complete 28 Original Albums (2016) [FLAC|Lossless|image + .cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844226.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - On the Greek Side Of Mind (1971)
+CD02 - Forever And Ever (1973)
+CD03 - My Only Fascination (1974)
+CD04 - Auf Wiedersehen (1974)Жанр: PopПродолжительность: 27:05:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B3383117064A315938E15B1CCA22198568B95C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1112474   (843306) от 08.03.2017
+
+Luigi Tenco - Tenco (1966) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lontano, Lontano
+02. Io Sono Uno
+03. Uno Di Questi Giorni Ti Sposerò
+04. Come Tanti Altri(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A0529F16A5BA4064E09D052941BDC7F7E88336C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378965   (843042) от 27.04.2020
+
+a-ha - Scoundrel Club (1987) EP, Compilation [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry Wolf (Extended Version) (8:14)
+ 02. We're Looking For The Whales (Live) (3:51)
+ 03. I've Been Losing You (Dub) (4:29)
+ 04. Manhattan Skyline (Extended Remix) (6:50)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, New Wave, SynthpopПродолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EE0EC5DA55EB6311D7F0CC72533D6F9AB4FB91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378815   (843035) от 27.04.2020
+
+Noémie Wolfs (ex.Hooverphonic) - Lonely Boy’s Paradise (2020) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Notorious [04:51]
+02. On The Run [02:55]
+03. Drive [03:56]
+04. Wake Me Up [04:13](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A531C8CE2D92BC7B211FA2B342963CE90C99F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378823   (842976) от 27.04.2020
+
+Noémie Wolfs (ex.Hooverphonic) - Hunt You (2016) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night [03:13]
+02. All You Ever Wanted [03:55]
+03. Sleeper [03:04]
+04. Burning [03:12](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:00.35.10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566775920D2F08A680AF640C4D4A07280039EB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378820   (842910) от 27.04.2020
 
 a-ha - Hunting High And Low (1985) 2015, Rhino, 4CD, 30th Anniversary Edition, Dlx. Ltd. RM. [FLAC|Lossless|tracks + .cue] <Electronic, Pop-Rock, New Wave, Synthpop>
@@ -511,235 +743,6 @@ M83 - Junk (2016) [FLAC|Lossless|tracks + .cue] <Indie-Pop, Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD427C35ED402B2F7AF884A16CBEFD34D96B1699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501756   (833546) от 11.10.2021
-
-VA - 538 Hitzone 98 (2021) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как то давно на трекере не было выпусков от известной нидерландской радиостанции 538. Последний был 91-й аж почти два года назад. Между тем Sony Music с завидной периодичностью выпускает сборники хитов по итогам ротации на радиостанции. А Universal Music сборники лучших треков по итогам года (следите за анонсами трекера, скоро появиться лучшее за 2020).01. Coldplay - Higher Power  (3:30)
-02. Chef'Special - Afraid of the Dark  (3:08)
-03. Majestic X Boney M. - Rasputin  (3:06)
-04. Tom Grennan - Little Bit of Love  (3:45)(   Читать дальше...   )Тип издания: CD, CompilationРелиз состоялся: 2 июля 2021Жанр: Pop, Rock, DanceПродолжительность: 01:18:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EEE929A68319B5B04213D4CD22877B0BA20CF64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501761   (833543) от 11.10.2021
-
-VA - 538 Hitzone: Best Of 2020 (2020) Box Set, 2CD [FLAC|Lossless|tracks + .cue] <Pop, Dance, Hip-hop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833543.jpg" />
-</div>
-
-
-###  Подробнее
-
-Восполняю пробел по ежегодным сборникам нидерландской радиостанции 538. Все релизы этой серии вы как всегда сможете найти по ссылке внизу. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию. Так что наслаждайтесь...CD1:
-01. The Weeknd - Blinding Lights  (3:23)
-02. Sheppard - Die Young  (3:24)
-03. Davina Michelle & Snelle - 17 Miljoen Mensen (Live@538 In Ahoy)  (1:48)(   Читать дальше...   )Тип издания: Box Set, 2CD, CompilationРелиз состоялся: 13 ноября 2020 годаЖанр: Pop, Dance, Hip-hop, ElectronicПродолжительность: 02:14:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04DF26EFC6173072BE0520CBEE92CAAF819C5A4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114344   (832156) от 15.03.2017
-
-Teeth & Tongue - Give Up On Your Health (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Indie Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give Up On Your Health
-02. Do Harm
-03. Small Towns
-04. When We Met(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, Indie RockПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E9509366F0A3428CEE055DCA253A35362939BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114657   (831980) от 15.03.2017
-
-VA- Ike & Tina Turner - Revue Live (1964) 2007, P-Vine Records [FLAC|Lossless|tracks + .cue] <Pop, Funk, Soul, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ike & Tina Turner - Please, Please, Please [06:57]
-02. Jerry Thomas - Feel So Good [03:22]
-03. Vanetta Fields - The Love Of My Man [04:01]
-04. Bobby John - Think [02:32](   Читать дальше...   )Жанр: Pop, Funk, Soul, BluesПродолжительность: 00:36:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0035ED37B91C3416FF1B0D564A8509D155D41B17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380697   (831666) от 04.05.2020
-
-Monkey See - Monkey Do - Album No. 1 (1988) [FLAC|Lossless|image + .cue] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Crash My Car [0:03:53.70]
-02. Rich People [0:04:32.20]
-03. Empty Rooms [0:04:23.55]
-04. Eyes Of Africa [0:04:44.50](   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE003B9FEFA4880DE95866970869273E540F6AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380531   (831451) от 04.05.2020
-
-VA - NOW Love Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, Ballad>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UB40 - (I Can't Help) Falling In Love With You (3:24)
-02. Bryan Ferry - Slave To Love (4:18)
-03. Cat Stevens - Wild World (3:20)
-04. Carpenters - We've Only Just Begun (3:04)(   Читать дальше...   )Жанр: Pop, Rock, BalladПродолжительность: 02:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:881E026BE3B2BD874CF17E14F5EE8E01F38B9258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380767   (831360) от 04.05.2020
-
-VA - NOW That's What I Call Music! 73 (2020) USA version[FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый выпуск нового десятилетия состоялся в январе 2020 г. Очередной сборник новинок из топов США (и немножко Великобритании) получился несколько более спокойным и "приглушенным" по сравнению с общим тоном предыдущих выпусков. Пожалуй, энергия на короткое время дает всплеск на 11 и 12 треках с дивами следующей волны Camila Cabello и Dua Lipa, но в остальном (   Читать дальше...   )01. Maroon 5 - Memories  (3:05)
-02. Taylor Swift feat. Shawn Mendes - Lover (Remix)  (3:39)
-03. Halsey - Graveyard  (3:01)
-04. Shaed & Zayn - Trampoline  (3:02)(   Читать дальше...   )Релиз состоялся: 24 января 2020Жанр: Pop, Rock, DanceПродолжительность: 01:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35D15955FCB7FE75CBAD1724A5FEBF44FEE80D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 133754   (830999) от 15.03.2017
-
-Supermax - The Box (10 CD) (2009) [FLAC|lossless]<Soul, Reggae / Electronic, Funk>
-
->>След.
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Курт ХАУНСТЕЙН родился в Вене и еще в юности увлекся музыкой. Однако, поняв, что в Австрии особого успеха на этом поприще не добьешься, он решил перебраться в Германию. Там Курт познакомился с Фрэнком ФАРИАНОМ, продюсером BONEY M, и какое-то время поработал с ним. Также ХАУНСТЕЙН участвовал в различных танцевальных и фанк-проектах. Особенно ему нравились выступления (   Читать дальше...   )Жанр: Soul, Reggae / Electronic, Funk
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

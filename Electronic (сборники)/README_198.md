@@ -1,3 +1,61 @@
+###  Публикация: 1429844   (175178) от 08.12.2020
+
+VA - Beatport Tech House: Electro Sound Pack #205 (2020) [MP3|320 Kbps] <Edm, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текст001. Uhlenhorst - Panamera
+002. Dannyo - Smoke And Mirrors
+003. Johnny Electro - Acid Rain
+004. Maurice Myers - Supermod(   Читать дальше...   )Жанр: Edm, Tech HouseПродолжительность: 12:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A050D7B4D7A439A172C2664F89E8A70EF3E98D86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429839   (175149) от 08.12.2020
+
+VA - Beatport Deep House: Electro Sound Pack #206 (2020) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175149.jpg" />
+</div>
+
+
+###  Подробнее
+
+В созвучии наступившей зимы  с её морозным дыханием предлагаем вам новую подборку Дип Хаус музыки в 206-м миксе от Beatport. Треки сборника даруют вам долю отличного настроя и скрасят ваш вечер великолепной клубной музыкой.001. Black Garden - So Close To Me
+002. Sensorica - Lullaby Jet
+003. Sam (Col) - Concept Of People
+004. Oscar G - Warehouse Girl(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:48:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E05529CF01B33D7666488F97014639EBEF29BC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1429850   (175145) от 08.12.2020
 
 VA - Sound Times: Advanced Club House (2020) [MP3|320 Kbps] <Club, Dance, House>
@@ -687,64 +745,6 @@ VA - 60 minutes. Old School Dance Music vol.14 (mixed by Dj V) (2022) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB56ACA391749849ECEC36640B85565E87838669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672471   (169248) от 28.10.2023
-
-VA - Dark Electronic Symphony (2023) [MP3|320 Kbps] <Darkwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169248.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rosegarden Funeral Party - Black Waters' Embrace
-02. Cut Hands - Witness The Spread Of The Dream
-03. Terminal - The Course Of Empire
-04. Precenphix - Postdrome(   Читать дальше...   )Жанр: Darkwave, ElectronicПродолжительность: 05:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0CF5E0061625223D45281E4992183B4AF4630D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672475   (169180) от 28.10.2023
-
-VA - Soothing Harmonies (2023) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illinformed - Hear About It
-02. Jasmon - The Fog Is Lifting
-03. Mama Aiuto - Ghost Town
-04. Marc Hartman - Cloudbuster(   Читать дальше...   )Жанр: Lounge, Downtempo, Chillout, RelaxПродолжительность: 04:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D321D295E95B49EDF3CE2AE988567DD2BA0A5BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

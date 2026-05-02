@@ -1,3 +1,32 @@
+###  Публикация: 996840   (877199) от 15.03.2016
+
+Ivan Moravec - Plays Chopin (2001) [FLAC|Lossless|tracks] <Classical, Keyboard>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade for piano No. 1 in G minor, Op. 23, CT. 2  10:11
+02. Ballade for piano No. 2 in F major, Op. 38, CT. 3  07:41
+03. Ballade for piano No. 3 in A flat major, Op. 47, CT. 4  07:52
+04. Ballade for piano No. 4 in F minor, Op. 52, CT. 5  12:03(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1476D7DAA5338279075CEF7090985B0476AD0899
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997045   (877193) от 15.03.2016
 
 VA - Favourite Classics (1999) S&V #12/1999 [FLAC|Lossless|tracks + .cue] <Baroque, Romantic, Classical>
@@ -722,35 +751,6 @@ Symphony No. 4 in E flat major 'Romantic' (1874-80)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AE143D3B82C5213C95FD254BC03A83C277503BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997660   (869954) от 19.03.2016
-
-Maurice Ravel - The Complete Piano Works / Walter Gieseking (1954) [FLAC 2.0|96/24|Lossless|tracks] <Classical>
-
->>Классика
->>Классика (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Menuet antique, for piano (or orchestra)
-02 Pavane pour une infante défunte, for piano (or orchestra)
-03 Jeux d'eau (Très doux), for piano
-Sonatine for piano in F sharp minor(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9FDB05CB6C0E3F8FE5F7BB2D573413D12E1D89
 ```
 
 https://mybot314.ru/tekegram_catalog/

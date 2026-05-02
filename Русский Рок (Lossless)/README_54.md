@@ -1,3 +1,32 @@
+###  Публикация: 1594807   (177238) от 02.12.2022
+
+Алиса - Легенды русского рока (1996) Remastered, 2022, Moroz Records [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Вот так
+2. Трасса Е-95
+3. Апрель
+4. Веретено(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4788732DA9BF15D6C68C248B569FFEDBE50CF48B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594681   (177236) от 02.12.2022
 
 Чёрный Кофе - Слёзы Дождя (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -716,35 +745,6 @@ Assbuka - Ипортозамещение (2023) [FLAC|Lossless|WEB-DL|tracks] <M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6289220EA2CD2F8B50E31F9B9C9961A8DAEC1B1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668273   (174054) от 12.10.2023
-
-Нэил Шери - Больше (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пристегните ремни [00:03:58]
-02. Судья [00:03:59]
-03. Одержимость [00:03:52]
-04. Она [00:03:52](   Читать дальше...   )Жанр: RockПродолжительность: 00:30:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C13DB5972741082E414B342FE00E330F857C082
 ```
 
 https://mybot314.ru/tekegram_catalog/

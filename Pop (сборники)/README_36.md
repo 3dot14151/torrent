@@ -1,3 +1,119 @@
+###  Публикация: 1126443   (765534) от 18.04.2017
+
+VA - Душевный сборник Русского радио (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765534.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mainstream One - Любил Так Жить 3:34
+002. Владимир - Веселая История 3:32
+003. Денис Майданов - Час-Пик 3:34
+004. Loka Up Feat. Anthony El Mejor - Дай Огня 3:33(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CED56503EF24AB27C8B5F6161ABF68878B8B253
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126455   (765532) от 18.04.2017
+
+VA - Популярные весенние новинки выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765532.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анна Тинс - Прощай И Прости Меня 3:28
+002. Hann - На Больничном 4:04
+003. Loren - Люби 3:36
+004. Tiana - Телеграммы 3:33(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3028DD3199D73822DC9D85A4B1ED0CF040BC01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126610   (765478) от 18.04.2017
+
+VA - Любимые хиты весны. Сборник 10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765478.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lalo Project - Честная Весна 2:58
+002. Tiana - Мне Так Жаль 3:44
+003. Pasha Leem - Чую 3:47
+004. Dante - Не Вздумай 3:24(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6032762CE94F3423FDEEA735FAD291395C06F9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126642   (765420) от 18.04.2017
+
+VA - Лучшая дискотека на Europa Plus выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765420.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rozhden - Планы На Любовь 3:58
+002. Галина Боб - Сладкие Вещи 3:04
+003. Melinda - Бесконечность 4:08
+004. Андрей Ковалев - Ты Моя Любовь Сумасшедшая 3:02(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5914ED5177DFA2830B5E41DBC90C46E7ACA891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521361   (765059) от 02.01.2022
 
 VA - Music for Highway (2022) [MP3|320 Kbps] <Pop, Dance>
@@ -626,122 +742,6 @@ Eighth Wonder - Compilation (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C875376E6A0BF94BD2EA37CB4B17BB9DDD968F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280712   (758073) от 04.02.2019
-
-VA - Club Dance Ambience vol.171 (2019) [MP3|320 Kbps] <Dance, Club, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758073.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. #2Маши  - Мама, я танцую  (Assel Remix)
-002. Alex Mota - Samba (Original Mix)
-003. A-Mase - Снегом Стать  (Cover Radio Mix)
-004. A-Mase & Sharliz - Nobody's Home  (G-House Cover Mix)(   Читать дальше...   )Жанр: Dance, Club, HouseПродолжительность: 07:08:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8E370255D76C3F7BEF2257DA7413A3701AE0F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522733   (756777) от 08.01.2022
-
-Gin Wigmore - Compilation (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Ever After
-02. Sweet Hel
-03. Beatnik Trip
-04. Hallelujah(   Читать дальше...   )Жанр: PopПродолжительность: 02:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532C79A071488C037D183B36FCA43F249CD60716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522728   (756642) от 08.01.2022
-
-Patricia Kaas - Compilation (2019) [MP3|320 Kbps] <Pop, Chanson Francaise>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mademoiselle chante le blues
-02. Patou Blues
-03. Space In My Heart
-04. Alone(   Читать дальше...   )Жанр: Pop, Chanson FrancaiseПродолжительность: 04:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0094EDEBFD09573767A2FC5EA8DE9F70E0008E0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522677   (756329) от 08.01.2022
-
-VA - Наше Радио. Лучшее '2021 (2022) MP3 от DON Music [MP3|320 Kbps] <Русский Рок>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_756329.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. J-МОРС - Здравствуй
-002. Сурганова и Оркестр - Волчица
-003. СерьГа - Своим чередом
-004. Майк Привалов - Пароль(   Читать дальше...   )Жанр: Русский РокПродолжительность: 12:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75F897216B48B9AA2A78B8455D33E549B77F9205
 ```
 
 https://mybot314.ru/tekegram_catalog/

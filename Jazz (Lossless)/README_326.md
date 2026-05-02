@@ -1,3 +1,61 @@
+###  Публикация: 1726558   (108672) от 29.05.2024
+
+Horace Parlan - In Copenhagen (1999) 2008, Storyville [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parker's Mood [5:30]
+02. Broken Promises [4:27]
+03. Two Sleepy People [7:00]
+04. I'm Getting Sentimental over You [5:14](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:15:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB8DF37EA647CF8EA44B507502D8BC309905B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726806   (108631) от 31.05.2024
+
+The Birdland Big Band - Storybook: The Music Of Mark Miller (2023) Birdland Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Storybook [6:45]
+02. Water Lily [6:56]
+03. Tenderly [4:16]
+04. Chorale and Alleluia [7:38](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C7DF47949366AB22949823BDB4C0CE613335F11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726807   (108614) от 31.05.2024
 
 Mary Lou Williams - Zodiac Suite (1945) 1991, Vintage Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
@@ -687,64 +745,6 @@ VA - Acid Jazz Summer Grooves Pure Acid Jazz 2024 (2024) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BD7FABCE9B88BB83F260B509F63629882182F9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727845   (108382) от 04.06.2024
-
-The Charlie Byrd Trio & Guests - Byrd At The Gate: At The Villiage Gate (1963) 1986, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shiny Stockings [4:58]
-02. More (Theme from Mondo Cane) [2:54]
-03. Blues for Night People [7:07]
-04. Butter and Egg Man [3:40](   Читать дальше...   )Жанр: Bossa Nova, CoolПродолжительность: 00:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5695AF3F36096FE2A1781BB1F980FBB344423E54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727841   (108381) от 04.06.2024
-
-The Charlie Byrd Trio & Ken Peplowski - The Bossa Nova Years (1991) 2003, Concord Picante [FLAC|Lossless|tracks + .cue] <Bop, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditation [5:07]
-02. One Note Samba [4:50]
-03. Corcovado [7:17]
-04. Triste [4:35](   Читать дальше...   )Жанр: Bop, Bossa NovaПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A098CB4C6B67FFA3EC868355B93D17C51534FBA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

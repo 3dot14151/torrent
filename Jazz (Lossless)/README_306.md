@@ -1,3 +1,61 @@
+###  Публикация: 1695195   (120412) от 28.01.2024
+
+JD Allen - Toys / Die Dreaming (2020) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're My Thrill [9:33]
+02. The G Thing [6:41]
+03. Die Dreaming [5:58]
+04. Red Label [6:30](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8D5AFD95C59CA64D80C6735B8E0409404AE4374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695187   (120410) от 28.01.2024
+
+Mel Torme & Carmen McRae - Ralph J Gleason's Jazz Casual (1962, 1964) 2001, Koch Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We've Got a World That Swings [2:10]
+02. Interview [7:24]
+03. Comin' Home Baby [2:31]
+04. Mel Speaks [1:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62A1C218FC83FEE3C881EE7DC459984C9F8EF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695178   (120409) от 28.01.2024
 
 Mel Torme - Two Darn Hot (1990) 2CD, 2002, Concord Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Anita O'Day - Live At Ronnie Scott's (1986) Wadham [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBEEDDF40FBF908EB7E7D2C7C58D15E214330FA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696579   (119434) от 03.02.2024
-
-Abdullah Ibrahim & The NDR Big Band - Ekapa Lodumo (2001) Tiptoe [FLAC|Lossless|tracks + .cue] <Post-Bop, African Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kramat [7:43]
-02. Announcement [0:15]
-03. Mindif [12:04]
-04. Announcement [0:10](   Читать дальше...   )Жанр: Post-Bop, African JazzПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE92E0A235305E57F77C03F206A21DBA5214EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696609   (119430) от 03.02.2024
-
-Art Blakey & The Jazz Messengers - Cu-Bop (1957) 1989, Fresh Sound Records [FLAC|Lossless|image + .cue] <Hard Bop, Afro-Cuban Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woodyn' You [6:15]
-02. Sakeena [12:00]
-03. Shorty [4:39]
-04. Dawn on the Harvest [12:49]Жанр: Hard Bop, Afro-Cuban JazzПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:561A2F7DAD105EDEFFB44F8104D009D86F631D11
 ```
 
 https://mybot314.ru/tekegram_catalog/

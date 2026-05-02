@@ -1,3 +1,119 @@
+###  Публикация: 1716440   (59610) от 15.04.2024
+
+VA - Lounge Delicious, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - One Love (Original Mix) (5:24)
+02. Peter Pearson - Message in a Dream (Original Mix) (5:22)
+03. Karen Gibson Roc - We Can Shine Together (Original Mix) (4:39)
+04. Roberto Sol, Ines Prados - Momentos Azules (El Sur Mix) (5:24)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58E6DCE1A876C8D41E58616A03792FE6B964099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695219   (59381) от 17.04.2024
+
+Koan - Dell'arte (Side A-B) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Psychedelic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicot (The Dream for Jesters Mix) [00:07:34]
+02. The Pale Blue Eye [00:09:56]
+03. Harmony (1956 Mix) [00:07:43]
+04. Ghost Jugglers [00:07:39](   Читать дальше...   )Жанр: Chillout, Downtempo, PsychedelicПродолжительность: 2 CD, 02:15:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDFA60D37D2AE57D36E2A07AF3865F8DEEFF80C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718266   (58660) от 24.04.2024
+
+VA - Sensual Chillout Beats (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_58660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hohe Minne - Quiet Soul (4:29)
+02. Logophilia - Puddle Reflections (4:20)
+03. Azeotrop - Glamorous Thoughts (4:27)
+04. Zirkadian Sender - Aeonium (4:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B6C0F590C1871AD48D470CDA14FECA11842C4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721563   (57303) от 07.05.2024
+
+VA - Beach Sunset Mood: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autonne - Small Talk (3:08)
+02. Marga Sol - Moonfall (4:12)
+03. Marie Therese - Soul Talk (Original Mix) (4:33)
+04. Schwarz & Funk - Fate of Destiny (Original Mix) (6:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:52:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E08D77F65C98E52A33C77402D8C70827E5713E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722418   (56883) от 11.05.2024
 
 VA - Big City Afternoon Chill Lounge (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -629,122 +745,6 @@ VA - Hidden Chill out Cafe, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC0294633822345657EFCFEEFF08F87A16B04AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750036   (43271) от 17.09.2024
-
-VA - Fashionable Music London (Sophisticated Lounge Tunes from the Fashion Shows) (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lemongrass, Karen Gibson Roc - On the Edge of Time (Original Mix) (4:54)
-02. Marc Hartman - Autumn Leaves, Hello Winter (3:58)
-03. Steen Thottrup - Thirteen Smiles (Original Mix) (4:11)
-04. Roberto Bronco - On the Moon (Original Mix) (5:29)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:12:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91DFCA897A43F4C8E01BB3134A442B8EBE47A03D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750044   (43241) от 17.09.2024
-
-VA - Morning Lounge Retreat: Chillout Your Mind (2024) (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luis Hermandez - Chill Coast (3:41)
-02. Ian Otta - 3Am (3:30)
-03. Marie Therese - White Air (Soultekk Remix) (4:39)
-04. Digby Jones - Shimmer (Original Mix) (3:30)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB2402A46F86E13AAA18E3CA786899C2B72FAE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750081   (43166) от 18.09.2024
-
-Schwarz & Funk - The Terrace Sessions, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill House>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Floating (Beach House Mix Extended Version) (feat. Melon Monkey Club)
-02. Deep Talk (Extended Version) (feat. Melon Monkey Club)
-03. Flying High (Deep House Mix) (feat. Melon Monkey Club)
-04. Lonely Waves (Extended Mix) (feat. Melon Monkey Club)(   Читать дальше...   )Жанр: Lounge, Chill HouseПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFEAE6F7776BFF035E75707196C67D56EBE3FBD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750151   (43156) от 18.09.2024
-
-VA - Ibiza Autumn 2024 (2024) Chill Out Cookies From The Heart [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room - Amber (2:25)
-02. Ajuna - Miracle (Anderson Doyle Remix) (4:49)
-03. Calmabohain - Silent Ocean (Balearic Islands Remix) (3:08)
-04. Faro - Surya (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:02:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EDDD4B91DE2C965BAF48A876F6B18DC0335DA7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

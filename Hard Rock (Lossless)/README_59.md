@@ -1,3 +1,119 @@
+###  Публикация: 1422561   (308695) от 09.11.2020
+
+S.O.T.O. - Origami (2019) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HyperMania
+02. Origami
+03. BeLie
+04. World Gone Colder(   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A18D9FEE837EF20CB13647925CB81EF063EEE77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 845559   (308359) от 29.11.2014
+
+AC/DC - Rock Or Bust (2014) [FLAC|Lossless]<Hard Rock, Aussie Rock, Heavy Metal, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Or Bust (3:03)
+02. Play Ball (2:47)
+03. Rock The Blues Away (3:25)
+04. Miss Adventure (2:56)(   Читать дальше...   )Жанр: Hard Rock, Aussie Rock, Heavy Metal, Arena RockПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C21218A7E392838A7640264A0B7ECD51BB62A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960296   (307835) от 28.11.2015
+
+Asia - Classic Asia - The Universal Masters Collection (2001) [FLAC|tracks+.cue]<Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go (4:09)
+02. The Smile Has Left Your Eyes (3:14)
+03. Sole Survivor (4:49)
+04. Heat of the Moment (3:51)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:12:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:595A4D523325EBA0DB9F0F0F3EC5BF40E8CEEC47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960246   (307726) от 28.11.2015
+
+Guns N’ Roses - Appetite for Destruction (1987) [FLAC|tracks+.cue]<Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Jungle (4:33)
+02. It's So Easy (3:22)
+03. Nightrain (4:28)
+04. Out ta Get Me (4:23)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68500CB5158916C8878DD9B8318A781AECC5DE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584583   (307549) от 04.12.2012
 
 Dio - The Last In Line (1984) 24 KT + Gold CD /2012, Audio Fidelity/ [FLAC|Lossless]<Hard Rock, Heavy Metal>
@@ -626,122 +742,6 @@ Uriah Heep - Salisbury (1970) 2CD, Remastered, 2016, Sanctuary Records [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6C06E3B2D0D57634AE315FA1BC94501F71291FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962447   (290617) от 06.12.2015
-
-AC/DC - The Razors Edge (1990) 2003, Epic [FLAC|tracks+.cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunderstruck (4:52)
-02. Fire Your Guns (2:53)
-03. Moneytalks (3:45)
-04. The Razors Edge (4:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F6503FD5860FA588144AFA2DB1CFDA7E4BD89E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186363   (287437) от 24.11.2017
-
-Scorpions - Born To Touch Your Feelings - Best of Rock Ballads (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born to Touch Your Feelings (Studio Edit)
-02. Still Loving You
-03. Wind of Change
-04. Always Somewhere(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBAB58FFD70C709A093E1354897FBA66B7303BC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963605   (286893) от 08.12.2015
-
-Scorpions - Best (1999) [FLAC|tracks+.cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Loving You Sunday Morning (5:39)
-02. Rock You Like a Hurricane (4:14)
-03. Wind of Change (5:12)
-04. Is There Anybody There? (4:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B974D202FC1FF1EC50967F38B84E14DED766DF25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1263296   (286459) от 20.11.2018
-
-Snakes In Paradise - Step Into The Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wings of Steel [04:12]
-02.  Silent sky [05:30]
-03.  Will You Remember Me [03:44]
-04.  Angelin [04:25](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED1D5BAA724E76554D44457D08635E2EAF8DFD7
 ```
 
 https://mybot314.ru/tekegram_catalog/

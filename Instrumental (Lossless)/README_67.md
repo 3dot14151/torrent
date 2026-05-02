@@ -1,3 +1,119 @@
+###  Публикация: 940767   (464878) от 26.09.2015
+
+Johnny One Eye - Dirty (2015) [FLAC|Lossless|image +.cue]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американская группа, названная по имени (или по фильму?, 1950) "народного" (типа Робин Гуда) гангстера. Здесь их второй альбом (первым был "Medication Blues", 2003). Играют на манер Creedence, Springsteen, Black Keys, Steve Earle, а также в собственном стиле.01. Company Man
+02. Dirty Sheets
+03. If I Had Money
+04. Someone Like Me(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:340B84152A6E903D862A2EB0AE5DC144B6E62138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059288   (464157) от 03.10.2016
+
+Neal Black & The Healers - Before Daylight (2014) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jesus & Johnny Walker   (05:35)
+02. Hangman's Tree   (04:48)
+03. The Peace Of Darkness   (03:55)
+04. Mama's Baby   (04:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EECB44F0935862E51DC4D284B02BEC1A02253C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941519   (462508) от 27.09.2015
+
+VA - Soul Moods: Contemporary Soul Classics (1994) 2CD [APE|image+.cue]<Funk, Soul, Rhythm & Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Душевное настроение: Современная классика Души - действительно хоть и выпущено это двухдисковое издание в далеком 1994 году, но и сегодня с удовольствием можно возвращаться к этим душевным трекам. Уж даже и не знаю чего в них больше танцевального ритма, горячего рок-блюза или душевной мелодичной музыки. Большинство из треков побывало в хит-параде журнала Billboard, (   Читать дальше...   )CD1:
+01. Marvin Gaye - (Sexual) Healing  (4:07)
+02. Anita Backer - Sweet Love  (4:22)
+03. Smokey Robinson & The Miracles - I Second That Emotion  (2:46)(   Читать дальше...   )Жанр: Funk, Soul, Rhythm & BluesПродолжительность: 02:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88324E7B8290D53B2A9D1774ECDB6710001AD429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059505   (462112) от 04.10.2016
+
+Neal Black & The Healers - Black Power (1994) [FLAC|Lossless|image + .cue] <Blues Rock, Texas Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462112.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misery   (05:02)
+02. Cadillac to Mexico   (04:19)
+03. Lost on a blue highway   (04:23)
+04. The black power rag   (03:09)(   Читать дальше...   )Жанр: Blues Rock, Texas BluesПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6829D22757408790C59FCD180734442FAEFC383D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 241213   (462074) от 30.09.2010
 
 Eric Clapton - Clapton (2010) [FLAC|Lossless]<Blues,rock>
@@ -626,122 +742,6 @@ Climax Blues Band (The Climax Chicago Blues Band) - 17 albums, 2 Box sets, 26 CD
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B95FC63D3A4B21E92A79AEA30D8A3674AD7ADC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409908   (440868) от 19.09.2020
-
-Super Vintage - Shining Light (2020) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down The Road
-02. Birds On A Wire
-03. Southern Son
-04. Take A Ride(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EAD76BD4D62CF13971BD287548ABF353DFBB1BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164622   (439050) от 10.09.2017
-
-Bobby Flurie - Hole In The Ozone (2008) [FLAC|Lossless|image + .cue] <Blues Rock, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hole in the Ozone   (04:07) 
-02.  The Cry   (03:21) 
-03.  Evening in Paradise   (03:19) 
-04.  So Right   (02:54) (   Читать дальше...   )Жанр: Blues Rock, InstrumentalПродолжительность: 00:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EBB136AB545CABA66D1E1B8E76352B534F2974D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164673   (438927) от 10.09.2017
-
-George Thorogood - Party Of One (2017) [FLAC|Lossless|image + .cue] <Blues, Blues rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438927.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. I’m a Steady Rollin’ Man
-2. Soft Spot
-3. Tallahassee Women
-4. Wang Dang Doodle(   Читать дальше...   )Жанр: Blues, Blues rockПродолжительность: 00:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A09FAD666B490B76A6984404923CEF167B4807AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410246   (438623) от 20.09.2020
-
-Melly Frances & The Distilled Spirits - Nine Pound Hammer Heart (2011) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bootlegger's Ball - 04:53
-02. Dollar Bill - 05:18
-03. All I Seen - 05:57
-04. I Got More Soul Than You - 05:36(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5B5D840CE441D7943D38F32E302CB3F4DE3010E
 ```
 
 https://mybot314.ru/tekegram_catalog/

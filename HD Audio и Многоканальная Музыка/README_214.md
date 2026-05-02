@@ -1,3 +1,175 @@
+###  Публикация: 1807733   (65097) от 20.07.2025
+
+Абсолютный Ресурс - Человек человеку товар (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Режим грабежа [00:02:18]
+02. Предсмертный крик этого мира [00:02:11]
+03. Улицы просят огня [00:02:43]
+04. Терпим [00:02:05](   Читать дальше...   )Жанр: Hardcore-PunkПродолжительность: 00:21:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DDE0328A63F17291AE533BC32939EE3F6B2A2A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807709   (65095) от 20.07.2025
+
+The Black Zodiac - The Tyrant (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gallow's Call (3:36)
+02.  Dark Arts (3:44)
+03.  Ride, My Dearie (2:38)
+04.  Black Lilies (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0F43CB654428957A531F0B976D1B432A568AEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807906   (65091) от 21.07.2025
+
+Grand Alchemist - Studio Albums (2 releases) (2003; 2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65091.jpg" />
+</div>
+
+
+###  Подробнее
+
+Grand Alchemist - метал-группа из города Холмэстранд, Норвегия.2003 - Intervening Coma Celebration
+2012 - Disgusting HedonismЖанр: Symphonic Black MetalПродолжительность: 01:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:611AC3F9BD47C43F5EC663AAAB2AF11C07824863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807928   (65089) от 21.07.2025
+
+Magneton - Jo Fiu Leszek [Magneton 2] (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65089.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Jo Fiu Leszek
+A2 Blues
+A3 Szerelem
+A4 Szomoru Dal(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832F053FF7AA0A1FD77AA61D8B7289042E12D0B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807957   (65088) от 21.07.2025
+
+Паранойя (Paranoia) - Месть Зла (Evil's Revenge) (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Power, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65088.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Повелитель Снов
+A2 - Месть Зла
+A3 - Слуги Дьявола
+A4 - Мертвый Марш(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6054A0F427B01883500A2D9777DDE5F2496DFD71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807965   (65086) от 21.07.2025
+
+Aswekeepsearching - kyun? (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Rock, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. why? [00:02:35]
+02. you left something [00:06:23]
+03. into the mind [00:04:07]
+04. enter the heart [00:05:52](   Читать дальше...   )Жанр: Post-Rock, AmbientПродолжительность: 00:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C747FCABAB61F9FBA6D6246DB5D9FD1DE75927B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808125   (65044) от 22.07.2025
 
 Dwellers - Corrupt Translation Machine (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
@@ -571,180 +743,6 @@ Blood Vulture - Die Close (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom, Goth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21D050981A551BF655AD29914B05BF30379EDCAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808290   (64976) от 24.07.2025
-
-Sly & The Family Stone - Live At Winchester Cathedral 1967 (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Ain't Got Nobody (For Real) (Live At Winchester Cathedral 1967) [00:03:51]
-02. Skate Now (Live At Winchester Cathedral 1967) [00:04:27]
-03. Show Me (Live At Winchester Cathedral 1967) [00:04:58]
-04. What Is Soul? (Live At Winchester Cathedral 1967) [00:06:02](   Читать дальше...   )Жанр: SoulПродолжительность: 00:48:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A59FE94132D1BDE4EC2FE83985BC2CD155E6FD9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808517   (64949) от 25.07.2025
-
-Bruce Dickinson - More Balls to Picasso (1994)(2025 Reimagined Version) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cyclops (2025 Reimagined Version) (07:58)
- 02 - Hell No (2025 Reimagined Version) (05:08)
- 03 - Gods of War (2025 Reimagined Version) (05:05)
- 04 - 1000 Points of Light (2025 Reimagined Version) (04:24)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB0F2763B3B7EC690C059C207A8D86FEF80AF2F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808571   (64935) от 25.07.2025
-
-Honeymoon Suite - Wake Me Up When The Sun Goes Down (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Fly (3:19)
-02.  Way Of The World (3:10)
-03.  Every Minute (2:49)
-04.  Way Too Fast (3:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF30A8B74B11828A691AF3CC7060B7EF107397C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808573   (64916) от 25.07.2025
-
-Roulette - Go! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Answer To My Prayers (3:08)
-02.  Fire In Your Eyes (3:21)
-03.  We Remember You (3:42)
-04.  Strangers (2:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099736B434363F9EAEC208680BC3A74DDAD54A1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808812   (64876) от 26.07.2025
-
-Enuff Z'Nuff - Xtra Cherries (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbeat [00:02:48]
-02. No Cold Feeling [00:03:08]
-03. Sanibel Island (It's Outta Control) [00:04:09]
-04. Heavy Metal [00:05:21](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CE3A098DFF80A49A1D2FC3C482F7C80D744DEC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808968   (64805) от 27.07.2025
-
-Roscoe Bowie and the Federal City Swingers - Relationships (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cry To Me (3:14)
-02.  He Will Fix It (4:49)
-03.  I Didn't Think She Would Do That (4:10)
-04.  Man Meets Woman (Thoughts) (4:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC532FAC37E092EE55C6395D8AFF2226FE3A449
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1031518   (652010) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 56 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teenrock - Make Up Your Mind ( 1997 )
+02. Italo Boot Mix Vol. 4 ( Part 2 ) ( 1985 )
+03. Neoton Familia - Maniac ( Flashdance 1984 )
+04. Bandolero - Cocoloco ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C43A1C0EA9A838852B0455055F43051EB2060F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031539   (652008) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 59 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roxanne - Give A Little Love ( 1986 )
+02. Bad Boys Blue - Charlene ( Roxanne Cover 1986 )
+03. Airplay - For Your Love ( 1987 )
+04. Righeira - Arruinado ( 1986 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:16:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CDCC4DE809D72345DF497C990780822A1AAB34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031530   (652007) от 04.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 57 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Computer People - Little Computer People ( 1998 )
+02. Queen - Radio Ga Ga ( 1984 )
+03. Blue System - Magic Symphony ( 1989 )
+04. E-Rotic - Willy Use A Billy... Boy ( 1995 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3C25C6377BB9DAD42E6BC7FA06CFBD9F3512A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031556   (652005) от 04.07.2016
+
+VA - Русская Дискотека ХХ Века - 24 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Линда - Ворона - 2 ( Remake & Remix 1997 )
+02. Месмер - Идеальная Любовь ( 1998 )
+03. Комин Сергей - Девочка, Здравствуй! ( 1994 )
+04. Ковалева Нина - Синие Цветы ( 1992)(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:15:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9FB7A1733AB92934076F728F537B9EED1EE8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031552   (652003) от 04.07.2016
 
 VA - Русская Дискотека ХХ Века - 22 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
@@ -671,122 +787,6 @@ VA - Музыка для катания на велосипеде - iBike Real R
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291856   (650614) от 27.03.2019
-
-VA - German Top 100 Single Charts 01.04.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650614.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Capital Bra x Samra - Wir ticken
-002. MERO - Wolke 10
-003. UFO361 - Pass auf wen du liebst
-004. KC Rebell - Alleen(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01E57F4E2946C46C7FC526BCD1716FE59465DB65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141585   (650096) от 10.06.2017
-
-VA - German Top 100 Single Charts 09.06.2017 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650096.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi - Despacito (feat. Daddy Yankee)
-002. Robin Schulz - OK (feat. James Blunt)
-003. Ed Sheeran - Shape of You
-004. Alice Merton - No Roots(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:616F36A85A57094247BDF5EF17047BDC86D35750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031788   (649688) от 05.07.2016
-
-VA - Keep Calm & Be Happy [2CD] (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649688.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Пpодолжительность: 01:11:57
-
-01. Pharrell Williams - Happy (From "Despicable Me 2") (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0052EDF53109DFFCDCE165E276DDCAE3904C5CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031797   (649672) от 05.07.2016
-
-VA - I Love Summer - Ministry of Sound (2016)(3CD)[MP3|256 Kbps] <Pop, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649672.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-Пpодолжительность: 01:11:56
-
- 1. Sigala Feat. John Newman & Nile Rodgers – Give Me Your Love(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 03:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80316CF43FDE8681CB79008562A3FCB94BB950AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

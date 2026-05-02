@@ -1,3 +1,61 @@
+###  Публикация: 1069792   (244701) от 05.11.2016
+
+VA - Finding Around Happiness (Energy Tech Trance) 010 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aurora Night - Romel (Original Mix)  6:41
+02. Vadim Bonkrashkov - Ode (Extended Mix)  7:06
+03. Alex Ender - Ares (Extended Mix)  5:39
+04. Ahmed Helmy - Lapetus (Original Mix)  5:35(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 01:11:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD3D2FBABBFBF0258F5F39C24E8147CBC047F8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530706   (244653) от 12.02.2022
+
+VA - Beatport Techno: Sound Pack #402 (2022) [MP3|320 Kbps] <Techno, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку фестивали по всему миру отменены, мы переносим фестивальную атмосферу прямо на дом! Этот 402-й релиз от Beatport предоставляет вам все, что есть в техно: мрачные зловещие бас-линии, мощные индустриальные ударные, кислотные синтезаторы и многое другое. Всего внутри вы найдете 110 самых глубоких и жестких техно треков, которые с невероятной легкостью впишутся (   Читать дальше...   )001. Ressurectz - Love Yourself
+002. Luca La Rocca - Imprinting
+003. Aske - Objective Measure
+004. Temudo - Equívoco(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 10:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17EB88711D3D27EEDB220748C785561BB268399E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1070139   (244548) от 06.11.2016
 
 VA - Tech & House Vocals Outstanding (2016) [MP3|209-320 Kbps] <Dance, Club, House>
@@ -687,64 +745,6 @@ VA - Consciousness Melodies Phonetics (2016) [MP3|320 Kbps] <Trance, Harmonic, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C864DCFDA2FF58C274E1F465FA5EC97F6D0777A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360586   (242844) от 15.02.2020
-
-VA - Record Super Chart 625 (2020) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carla Morrison - Disfruto 3:57
-02. SAINt JHN - Roses (Imanbek Remix) 3:58
-03. Meduza feat. Becky Hill & GOODBOYS - Lose Control 2:48
-04. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:44:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A7F70D182D564AAF5CF6BB3A74BAA3B4759167C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458052   (242551) от 27.03.2021
-
-VA - Beatport Techno Electronic: Sound pack #263 (2021) [MP3|320 Kbps] <Techno, Electronic, Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляемый 263-й релиз - это сбалансированная смесь клубного техно хауса и танцевальной электроники. Треки не оставят равнодушным ни слушателя, ни ди-джея, который ищет подходящий материал для своего сета. А все потому, что здесь, прежде всего, приятная позитивная мелодика, обыгранная множеством инструментов: от гитары до винтажных синтов, упругий и качающий (   Читать дальше...   )001. Daniel De Roma - La Sangre De La Hermosa
-002. Ancient Dub - Lunar Exploration
-003. Amethysts - Ponte Dei Sospiri
-004. Dstm - Afterschool Activity(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 10:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8473A97FA439512B6298307BA4BDEF5A46E2C261
 ```
 
 https://mybot314.ru/tekegram_catalog/

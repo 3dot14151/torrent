@@ -1,3 +1,32 @@
+###  Публикация: 1025618   (710191) от 12.06.2016
+
+Frame - Frame Of Mind (1972) [MP3|320 кб/с] <Rock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710191.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Frame Of Mind
+2. Crusical Scene
+3. All I Really Want Explain
+4. If(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CA1374BD696FDB71B47398D433995666B38B05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219720   (710041) от 16.04.2018
 
 Everly Brothers - The Very Best Of The Cadence Era (2005) [MP3|320 Kbps] <Rock & Roll, Pop Rock>
@@ -719,35 +748,6 @@ VA - Rock Now (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2F4679F15756182A3E9EEFBFDB1B41DDF81D185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133658   (693325) от 13.05.2017
-
-Alice Jayne - Inside The Cover (2017) [MP3|320 Kbps] <Rockabilly, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693325.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Crazy (04:13)
-02. One Good Reason (03:07)
-03. You Need To Fall In Love (02:34)(   Читать дальше...   )Жанр: Rockabilly, Blues RockПродолжительность: 00:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D6B8061C4AE9D168ECCC971F665AC360203F97
 ```
 
 https://mybot314.ru/tekegram_catalog/

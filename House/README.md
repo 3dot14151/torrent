@@ -1,4 +1,207 @@
 https://t.me/izofen
+###  Публикация: 1868272   (1067460) от 
+
+VA - A-Mase - Deep Relax, Vol. 3 (2026) [MP3|320 Kbps] <Deep House, Melodic House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase & Natune - My Way (Deep Immersion Remix) [6:29]
+02. A-Mase & Ladynsax - Lily Was Here (Original Mix) [5:41]
+03. A-Mase & Alysia Sun - Mystic Time (Original Mix) [5:06]
+04. A-Mase & Kristen Black - Part Of Me (Original Mix) [5:06](   Читать дальше...   )Жанр: Deep House, Melodic House, Progressive HouseПродолжительность: 01:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E064FB43FD334CBC13FAC7C90ED994A72251C209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867895   (1067204) от 27.04.2026
+
+VA - Sweet Dream Compilation Dream House Progressive (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cello's Out - Children [04:10]
+02. Red News - Black Jack [04:52]
+03. Spaceshuttle - Mission [03:49]
+04. Free Spirit - Dream Flamenco (Sevilla) [05:40](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCEABFF4338FA9EE3B7173C12DF092260569831
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867834   (1067046) от 27.04.2026
+
+VA - 9 Years Label Anniversary, Pt. 3 (2026) [MP3|320 Kbps] <Organic House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. pumbum - Deep Water (Extended Mix) [5:31]
+02. Ver-dikt & Andy Dav - In the Dark (Instrumental Mix) [6:59]
+03. Sense IS - Do You Dream (Extended Mix) [7:33]
+04. Alexey Sonar - Sandy Dessert (Extended Mix) [5:46](   Читать дальше...   )Жанр: Organic House, Progressive HouseПродолжительность: 01:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA29BFDBFAFFC2ED44EAAEE73C2F8A1A6E511397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867745   (1067044) от 27.04.2026
+
+VA - 9 Years Label Anniversary, Pt. 1 (2026) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmonaut - Milky Way (Extended Mix) [7:46]
+02. Tryger - Waiting (Extended Mix) [7:22]
+03. Eriva - Butterfly (Extended Mix) [6:42]
+04. Alexey Sonar & Sebastian Weikum - Monsoon (Unterberg Remix) [5:03](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7020C06DA26830B301494D3F975AB98F6706C5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867757   (1067043) от 27.04.2026
+
+VA - 9 Years Label Anniversary, Pt. 2 (2026) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Days & Levitone - Alter (Original Mix) [6:24]
+02. Cosmonaut - Milky Way (Kamilo Sanclemente Extended Remix) [7:00]
+03. Alexey Sonar - Speedtest (Supacooks Extended Remix) [7:03]
+04. Sebastian Weikum - Taurus (Extended Mix) [5:49](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:36:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1795FB95CBBC54143AF6C6EBD3C662EEB2483D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866211   (1065795) от 19.04.2026
+
+VA - Ibiza Opening Season Deep Sampler 2026 (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homo Novo - Tutankhamon (Club Mix) 05:36
+02. James The Plan - Way (Extended Mix) 04:24
+03. Larry Scottish - Testify (Extended Mix) 05:31
+04. Keyklova - Squander (Extended Mix) 05:08(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2AFC708D0FC4205AE03BF5B4EEA32EF41AC2CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866183   (1065794) от 19.04.2026
+
+VA - The Fifth Year of Stellar Black (2026) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Berdu - Elementos 07:13
+02. Damian Russo - Landing Treshold (Gareth Cole Remix) 06:25
+03. Evaki 14 & Airwave (SL) - Edge of Dissociation 06:57
+04. IVADRO - Galaxy 07:24(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:23:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EE0FC72E5519069BCA78FF92BBFE81321BB77DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865764   (1065510) от 17.04.2026
 
 VA - Ibiza Nights 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
@@ -543,209 +746,6 @@ VA - DEEP HOUSE RELAX 2026: The Pulse (2026) [MP3|320 Kbps] <Deep House, Organic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8803B913E58524653A984EBB00B870948B6AA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857773   (1059805) от 07.03.2026
-
-VA - Ibiza Spring 2026 (Deep-House Smoothies from the Heart) (2026) [MP3|320 Kbps] <Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059805.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Francesco Diaz, Denis the Menace & Karl Frierson - In the Sunshine (Francesco Diaz Mix) 07:50
-02. Steen Thottrup & Nice Therapy - While We Are Dreaming (Nice Therapy Dreamcatcher Remix) 07:37
-03. Calmabohain - Take Me Away 03:26
-04. Hi.5 - Done With You (Extended Mix) 04:11(   Читать дальше...   )Жанр: Deep House, Dance, ClubПродолжительность: 02:12:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6805F53FF6CF8D891013B20AB2A0501F2C8E0FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855513   (1058310) от 23.02.2026
-
-VA - Dance Report, Vol. 4 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leonora Garcia - Get High (3:59)
-02. MUPHUS - Momentum (2:15)
-03. Rob Olsen - Arrival (Original Mix) (5:21)
-04. Alex Nocera, Nico Zandolino & Roy Batty - Out of My Head (2:50)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6719F2471A1A0C8FE439FEA51DECE055CA9BCC31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855220   (1057997) от 21.02.2026
-
-VA - Dance Report, Vol. 3 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stylezz & Ametisto feat. Ticia - Let You Go (Original Mix) (2:46)
-02. Mojo - Blue Paradise (Original Version) (3:56)
-03. Sam Collins & Chuwe - Pancake (3:29)
-04. Amon - Get Loud (Extended Mix) (4:10)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15B85B405EC0C99429FABC8BFDE4AD8997A04F38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854537   (1057572) от 18.02.2026
-
-VA - Ultimate Dance 2026 (2026) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kevin Havis - Feel to Be lose 02:25
-02. Jayanth Ak - Stranger 02:28
-03. Harmonize - Show Me Love 05:10
-04. Abee Sash - Memories 03:36(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D1822D51395935C38F76288B62E5271D8DDD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854556   (1057569) от 18.02.2026
-
-VA - Dance Report, Vol. 2 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057569.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ingo Herrmann - Away (Original Mix) (3:20)
-02. Chris Simmons - My Heart (Original Mix) (4:15)
-03. Josh Gardner - Let Me Feel (Original Mix) (3:17)
-04. NDEE & ROOMS - Antidote (Extended Mix) (3:20)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A017D5759D397F3B7153C79A2412CADB48085BEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854053   (1057155) от 15.02.2026
-
-VA - Top 20 Melodic Techno 2026 February (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jacoob - Indeleble (Extended Mix) [7:02]
-02. Milad E - Echo Dimension (Extended Mix) [5:29]
-03. Mata - I Am Persian (Extended Mix) [5:04]
-04. Alton - Between Us (Extended Mix) [4:19](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:58 :29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:420FD0C4633C4268AEDD78F5E5B5C37DDCB8F2E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1853724   (1057048) от 14.02.2026
-
-Cosmic Gate - Perspectives (Extended Mixes) (2026) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Gate & James French - I'm On Fire (Extended Mix) [5:56]
-02. Cosmic Gate & Cmd/Ctrl - Need A Little Love (Extended Mix) [6:20]
-03. Cosmic Gate - You (Extended Mix) [6:00]
-04. Cosmic Gate & Diana Miro - Never Erase You (Extended Mix) [5:57](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 01:26:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:473888DB4BFE0DBFBE571A0FB188EAC424B5728A
 ```
 
 https://mybot314.ru/tekegram_catalog/

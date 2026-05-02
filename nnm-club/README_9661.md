@@ -1,48 +1,22 @@
-###  Публикация: 899502   (669277) от 21.05.2015
+###  Публикация: 1136741   (672416) от 23.05.2017
 
-Привет, призрак / Hello Ghost (2010) BDRip [H.264/720p][VO]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669277.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того, как Канг Санг Ман решил в очередной раз свести счеты, с опостылевшей ему до невозможности жизнью, он вдруг чудесным образом обретает способность видеть души умерших, говоря попросту, призраков. Не на шутку перепугавшись, свалившемуся ему на голову "счастью" Санг Ман отправляется к медиуму-экстрасенсу с просьбой освободить его от незваных гостей. (   Читать дальше...   )Производство: Южная КореяЖанр: комедия, мистика, драмаРежиссер: Ким Ен-так / Kim Yeong-takАктеры: Ча Тай-хьон / Cha Tae-hyeon, Канг Е-вон / Kang Ye-won, Ли Мун-су / Lee Moon-soo, Ко Чан-сок / Ko Chang-seokПеревод: Любительский (одноголосый закадровый) @PDЯзык субтитров: нетПродолжительность: 01:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:519971B67B271A8D7EBA997F0ACA15A059B82EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 900138   (669274) от 21.05.2015
-
-ProgDVB 7.09.2 Professional Edition + Channels [Multi/Ru]
+Джон Уик 2 / John Wick: Chapter Two (2017) WEB-DLRip [576p] iPad
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669274.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672416.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отличный инструмент для просмотра более 4000 каналов Интернет TV, аналогового TV, спутникового (DVB-S) и кабельного (DVB-S2, DVB-C) телевидения, IPTV и прослушивания цифрового радио. Кроме этого с помощью программы можно искать, просматривать видеоролики с (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+Когда бывший коллега Джона решает взять под свой контроль таинственную гильдию убийц, Уик вынужден выйти из отставки. Ведомый кровавой клятвой Джон отправляется в Рим, где ему придется сразиться с одними из самых опасных киллеров в мире.Производство: СШАЖанр: Боевик, триллер, криминалРежиссер: Чад СтахелскиАктеры: Киану Ривз, Риккардо Скамарчо, Иэн МакШейн, Руби Роуз, Коммон, Клаудия Джерини, Лэнс Реддик, Лоренс Фишбёрн, Тобиаш Сигал, Джон ЛегуизамоПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:57:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C84B5F04BFA7415A3A3F4FC6D16BC9D761191F6
+magnet:?xt=urn:btih:B3603F3F311121724EE4A0B7A6301DDBB875BCE0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,194 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 900275   (669272) от 21.05.2015
+###  Публикация: 1136670   (672415) от 23.05.2017
 
-Daum PotPlayer 1.6.54266 Stable RePack (& Portable) by KpoJIuK [Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669272.jpg" />
-</div>
-
-
-###  Подробнее
-
-Daum PotPlayer - мультимедийный плеер от авторов KMPlayer. Его отличают высокое качество воспроизведения, поддержка всех современных видео- и аудиоформатов, а также наличие встроенных видеокодеков DXVA. Potplayer обладает современным дизайном, удобен в настройке, (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB3BE9015E3B3CE0EA6E4871764D0870B0211E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537128   (669266) от 15.03.2022
-
-VA - Sunrise Avenue, Vol. 8 (20 Lounge & Chill-Out Pearls) (2016) [AAC|~355 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Moore - In the Sunshine (Original Mix) (4:08)
-02. Scott Navarro - Tell Me Why (Original Mix) (6:38)
-03. Nigel Scott - Disco Salsa (Original Mix) (6:24)
-04. Peter Cox - White Star (Original Mix) (4:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13C01A0BA00ECA4B23A8E1B0ADB3363522CAB851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537150   (669264) от 15.03.2022
-
-Wes Montgomery - A Day In The Life (1967) 1984 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669264.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 A Day In The Life
-A2 Watch What Happens
-A3 When A Man Loves A Woman
-A4 California Nights(   Читать дальше...   )Жанр: JazzПродолжительность: 00:35:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:136C5507E207F16C4F3C12B39B404209A033BEA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537060   (669262) от 15.03.2022
-
-King Gizzard & The Lizard Wizard - The Dripping Tap (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Dripping Tap [18:17]Жанр: Psychedelic RockПродолжительность: 00:18:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2F9A5F53F2DC366BF3A3B62FCEE485C1F1145F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537179   (669260) от 15.03.2022
-
-VA - Mastermix Pro Disc 258 (2021) [MP3|320 Kbps] <House, Dance, Dubstep, Disco>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ACRAZE feat. Cherish - Do It To It
-02. Adele - Easy On Me
-03. ArrDee - Flowers (Say My Name)
-04. Beyonce - Be Alive (Original Song from the Motion Picture King Richard)(   Читать дальше...   )Жанр: House, Dance, Dubstep, DiscoПродолжительность: 01:16:12 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4971316C51384A8C8D20DD9E004D3E817DC5C4EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536795   (669258) от 15.03.2022
-
-Konvent - Call Down the Sun (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Death Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into the Distance (5:23)
-02. Sand is King (4:12)
-03. In the Soot (4:52)
-04. Grains (6:05)(   Читать дальше...   )Жанр: Death Doom MetalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD37A70841818ED5ABEA4C1A7CBED1B627A1398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 798469   (669257) от 22.06.2014
-
-Зной / Swelter (2014) BDRip [720p] [EN]
+Джон Уик 2 / John Wick: Chapter Two (2017) WEB-DL [720p] ATV
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История о четырех сбежавших заключенных, которые прибывают в пыльный, маленький городок Калифорнии, где стоит невыносимая жара.
-Беглецы ищут пятого сбежавшего, который скрылся с $10 миллионами наличнымиПроизводство: США |  Grand Peaks Entertainment, Film Invaders, Exchange Peaks Film CapitalЖанр: Боевик, Триллер, ДрамаРежиссер: Кит ПармерАктеры: Ленни Джеймс, Грант Боулер, Каталина Сандино Морено, Альфред Молина, Джош Хендерсон, Жан-Клод Ван Дамм, Минди Робинсон, Фрея Тингли, Брэд Картер, Эбби МиллерПеревод: ОтсутствуетПродолжительность: 01:36:01
+Когда бывший коллега Джона решает взять под свой контроль таинственную гильдию убийц, Уик вынужден выйти из отставки. Ведомый кровавой клятвой Джон отправляется в Рим, где ему придется сразиться с одними из самых опасных киллеров в мире.Производство: СШАЖанр: Боевик, триллер, криминалРежиссер: Чад СтахелскиАктеры: Киану Ривз, Риккардо Скамарчо, Иэн МакШейн, Руби Роуз, Коммон, Клаудия Джерини, Лэнс Реддик, Лоренс Фишбёрн, Тобиаш Сигал, Джон ЛегуизамоПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:57:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7381ABFDC469F35C546D52BF9E55FA531429202
+magnet:?xt=urn:btih:D881BB34BBDFAB624B8FE41762079E806F0D1AB2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -245,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536784   (669256) от 15.03.2022
+###  Публикация: 1029179   (672414) от 01.07.2016
 
-Cloven Hoof - Time Assassin (2022) [FLAC 2.0|44.1/24|WEB-DL|tracks] <Heavy Metal>
+Волейбол. Мировая лига 2016. Мужчины. Предварительный этап. 1-й дивизион. Группа B1. 1-й тур. Бразилия - Иран (16.06.2016) WEB-DLRip [H.264/720p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Hi-Res)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Guardians of the Universe (4:34)
-02. Liquidator (3:20)
-03. Lords of Death (4:24)
-04. After Forever (4:06)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:41:30
+16 июня 2016, четверг. 20:10 МСК
+ Первая игровая неделя. 1-й дивизион. Группа B1. 1-й тур
+Стадион: Арена Кариока 1 (Рио-де-Жанейро, Бразилия) , вместимость: 16000
+(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: Русский (Татьяна Грачева, Леонид Сапранов)Продолжительность: 01:43:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89D0A425FBCAC2B17483705226FA2156C5037BA8
+magnet:?xt=urn:btih:52B604D1D0255060B8E68A093EAC52A3C981D170
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,114 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537123   (669254) от 15.03.2022
+###  Публикация: 1030642   (672413) от 01.07.2016
 
-VA - Sunrise Avenue, Vol. 4 (20 Lounge & Chill-Out Pearls) (2015) [AAC|~342 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nick Parker - Orange Lights (Original Mix) (4:54)
-02. Gil Ward - Fluctuate (Original Mix) (4:32)
-03. Bennett Robinson - Mister Key (Original Mix) (5:10)
-04. Jason Torres - Dorme Il Mare (Original Mix) (6:00)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59A92FC4C1B078341D5AF941D5AE5A8B46FEECE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537081   (669252) от 15.03.2022
-
-Atlantic - Power (1994) Reissue, 2008, Escape Music [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Only Love
-02. Power Over Me
-03. When The War Is Over
-04. Bad Blood(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537296   (669251) от 15.03.2022
-
-Дарья Донцова | Джентльмен сыска Иван Подушкин (Книга 11). Яблоко Монте-Кристо (2022) [MP3, Денис Белых]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669251.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детективное агентство «Ниро» снова взялось за расследование очень загадочного преступления. После разговора с призраком умершего сына от шока умерла клиентка агентства Зоя Вяземская.
-
-Хозяйка «Ниро» Элеонора на все сто уверена, что никакого призрака не было, а Зою кто-то убил таким вот изощренным образом. Расследовать же все это безобразие предстоит не кому иному, (   Читать дальше...   )Жанр: Иронический детективПродолжительность: 10:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EBA70CFAAD0B05B8FE4CA63BDAEBD5337C5395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537214   (669250) от 15.03.2022
-
-VA - Hipster Punk (Hipster Punk) [MP3|320 Kbps] <Punk, Rock Punk, Alternative>
+VA - Chartboxx 4 (2016) [MP3|256 Kbps] <R&B, Latin, Dance-Pop, Tropical>
 
 >>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это продукт рефлекторной попытки оглянуться назад и отыскать что-то светлое в прошлом, которая оборачивается довольно печальной констатацией факта, что и там на самом деле было мало хорошего. Но несмотря ни на что — это было не самое худшее время.001. Revenge Of The Psychotronic Man - Rrose Selavy
-002. The Thirtysevens - The Fools
-003. Grillijono K.O. - Kuluta Mut Loppuun
-004. Tove Lo - Are U Gonna Tell Her(   Читать дальше...   )Жанр: Punk, Rock Punk, AlternativeПродолжительность: 09:11:47
+01. Sigala Feat. Bryn Christopher - Sweet Lovin 03:24
+02. Stereoact - Der Himmel Reisst Auf 02:57
+03. Topic Feat. Nico Santos - Home 03:25
+04. Major Lazer Feat. Nyla & Fuse Odg - Light It Up (Remix) 02:46(   Читать дальше...   )Жанр: R&B, Latin, Dance-Pop, TropicalПродолжительность: 01:10:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F2FD6980C7607F8C9FDEC7E2A0CA233874CF676
+magnet:?xt=urn:btih:DE6D11446693024F807005582C92785E0E42A98F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,28 +108,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536256   (669248) от 15.03.2022
+###  Публикация: 1030772   (672412) от 01.07.2016
 
-Wolves At The Gate - Eulogies (2022) [MP3|320 Kbps] <Metalcore, Post-Hardcore>
+Phon.O - Fractions EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Shadows
-02. Peace That Starts the War
-03. Kiss the Wave
-04. Lights & Fire(   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:46:44
+01. Run (06:31)
+02. Brooklyn Shuffle (05:03)
+03. Fractions (06:19)Жанр: Techno, HouseПродолжительность: 00:17:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D84B62EAD4F311AD5AF7433E6F4F67D580910BAD
+magnet:?xt=urn:btih:2F31565237194182AEDC692D5EEF3221FA8C757B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,26 +136,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 798597   (669247) от 22.06.2014
+###  Публикация: 1030639   (672411) от 01.07.2016
 
-Жена астронавта / The Astronaut's Wife (1999) BDRip [H.264/720p-LQ]
+VA - Soft Clouds Over Paradise (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Находясь в открытом космосе, астронавт Спенсер Армакост (Джонни Депп) на несколько минут потерял связь с Землей. Но все обошлось, и экипажу удалось вернуться назад. Спенсер и его жена опять были вместе.
-Но вскоре Джиллиан (Шарлиз Терон) начинает подозревать, что ее муж стал другим. И если прежде она тревожилась за его жизнь, то теперь стала бояться за свою. Она оказалась (   Читать дальше...   )Производство: США / Mad Chance, New Line CinemaЖанр: Фантастика, Триллер, ДрамаРежиссер: Рэнд РэвичАктеры: Джонни Депп, Шарлиз Терон, Джо Мортон, Клеа ДюВалл, Донна Мерфи, Ник Кассаветис, Саманта Эггар, Гэри Граббс, Блэр Браун, Том НуненПеревод: Дублированный, авторскийПродолжительность: 01:49:09
+001. Counting Clouds - Sex on the Beach
+002. Pretzeltronik - First Movement
+003. Susy Seven - Come with Me
+004. The Thin Man - Dream Machine - Dance Pop Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 08:22:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:847EDBBE084BB6F358168824D3AF5165C4AE8BEC
+magnet:?xt=urn:btih:F13C453523F94561B1BDD08A111623E8B8DCAC12
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,25 +165,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537181   (669246) от 15.03.2022
+###  Публикация: 1030649   (672410) от 01.07.2016
 
-Лиссабонская история / Lisbon story (1994) BDRip [H.264/720p] [AVO]
+VA - Sunset Breeze: Chill and Lounge Collection Vol.13 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Звукооператор Филипп Винтер получает открытку от своего друга, снимающего фильм в Лиссабоне, с просьбой помочь записать звуковую дорожку к фильму. Проезжая через всю Европу и добравшись, наконец, до Португалии, Филипп селится в квартире друга и, не найдя его самого, но обнаружив незаконченный фильм, приступает к работе. Проходив день с микрофоном, он возвращается (   Читать дальше...   )Производство: Германия, Португалия, Madragoa Filmes, Road Movies Filmproduktion, Wim Wenders StiftungЖанр: драма, музыкаРежиссер: Вим ВендерсАктеры: Рюдигер Фоглер, Патрик Бошо, Вашку Сикейра, Канту-и-Каштру, Вириату Жозе да Силва, Жуан Канижу, Рикарду Колариш, Жуэл Кунья Феррейра, София Бенар да Кошта, Вера Кунья РошаПеревод: авторский (Юрий Сербин)Субтитры: русские, английские, немецкие (SDH)Продолжительность: 01:44:43
+01. Lazy Hammock - Set Me Free
+02. Weathertunes - Nothing Without You
+03. Chambre 3 - L'impression De St.Tropez
+04. Jens Buchert - Plastic Heart(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:32:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ADD88193741398457D93A0DA7625B9139A1FC8EA
+magnet:?xt=urn:btih:CFBD750E5F8B695D6CDED5AC390F6947A270084A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,25 +194,308 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537302   (669244) от 15.03.2022
+###  Публикация: 1030762   (672409) от 01.07.2016
 
-Ти Джей Клун | Дом в лазурном море (2022) [MP3, Дмитрий Стрелков]
+Stan Kenton Orchestra - The Stuttgart Experience (1972) 2016, Jazz Haus[FLAC|Lossless|tracks + .cue] <Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Chiapas [08:30]
+ 02.Theme From 'Love Story' [06:11]
+ 03.The Peanut Vendor [09:01]
+ 04.Rhapsody In Blue [07:14](   Читать дальше...   )Жанр: Modern Big BandПродолжительность: 01:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DCD5E33993263FF76CC03D9C606CC890DD9229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030625   (672408) от 01.07.2016
+
+VA - JOOF 18 Years (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Progressive House, Breaks>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ar52 - Timegate (Basil O'Glue Remix) (8:05)
+02. Rick Pier O'Neil - Loud And Proud (Pt. 3) (6:37)
+03. Wes Straub - Sunrise Over Xamanha (2016 Beach Version) (5:52)
+04. John 00 Fleming - 5000 Light Years From Earth (Simon Templar Tribute Remix) (9:25)(   Читать дальше...   )Жанр: Trance, Psy-Trance, Progressive House, BreaksПродолжительность: 02:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D72CF60CF306654FFEE89A2D75573A68CBB8C22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030764   (672407) от 01.07.2016
+
+Mozilla Firefox 48.0 beta 5 (x86/x64) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Firefox - очень интересный продукт, который принадлежит компании Mozilla – свободно распространяемый, мощный во всех отношениях веб-браузер. Данная программа имеет большое количество преимуществ перед остальными браузерами, в ее создании участвует огромное сообщество разработчиков. Firefox отличается стабильностью и безопасностью в работе в сочетании с высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C17DA35CB3D4FFED379EC8FE5E36CC52541B69D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030616   (672406) от 01.07.2016
+
+The Cheaters - Train to Wilderness (2008) [FLAC|Lossless|image + .cue] <British Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Hip GirlЖанр: British Blues-RockПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCB56D61031C945045F0D042F5CB8DCD0328A4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030775   (672405) от 01.07.2016
+
+Tim Bowman - Paradise (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light Of Love [04:55]
+02. Paradise [04:49]
+03. The Only One [04:41]
+04. I'll Never Forget [04:51](   Читать дальше...   )Жанр: Smooth Jazz, Guitar JazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F42A6B964C9393607D64C9D5779E73CFD1CC362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030320   (672404) от 01.07.2016
+
+VA - Desert Dream Lounge (2016) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672404.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Prem Gulshan - Far Away Shores
+ 002. Alyssa Zezza - Lovely Day
+ 003. Belinha Bossa Duo - Acontece
+ 004. Copponi - Deep Blue(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 09:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F903F84C7AE2BD3341651DF006B0DCAE7875570
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030644   (672403) от 01.07.2016
+
+VA - Country Fever (2016) [MP3|320 Kbps] <Blues, Folk, Gospel, Soft Rock>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waylon Jennings - Don't Think Twice It's Alright 02:38
+02. Willie Nelson - One Step Beyond 02:03
+03. Kenny Rogers - Ruby Don't Take Your Love To Town 02:51
+04. Lynn Anderson - Rose Garden 02:54(   Читать дальше...   )Жанр: Blues, Folk, Gospel, Soft RockПродолжительность: 03:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222B8CB9824CED3D8FF57DA5D929906306F17F48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030698   (672402) от 01.07.2016
+
+Forecast Bar 2.6.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Forecast Bar - точный прогноз погоды  Forecast.io  прямо в строке меню. С красивыми фоновыми изображениями в соответствии с текущими погодными условиями и времени суток, и всё это в  простом и понятном интерфейсе.
+
+Панель Forecast Bar, кроме информации о погоде, отображает в том числе:
+- Текущие условиях, высокие и низкие температуры, условия облачности, а также относительная (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 июня 2016Разработчик: Real Casual Games, LLCПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+* показания прогноза погоды можно сделать на русском (в настройках программы)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7D9EE33D68C1FD9D1E69355717AF862EB94498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030626   (672401) от 01.07.2016
+
+VA - Electro-Bass Rock It Again (2016) [MP3|320 Kbps] <Bigroom, Dutch, Bounce>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pat Farrell - Mintaka 04:17
+02. Hardwell Feat Jake Reese - Mad World (Radio Edit) 02:38
+03. Slammer - Ashes 04:52
+04. Hardwell & Thomas Newson - 8Fifty (Extended Mix) 03:48(   Читать дальше...   )Жанр: Bigroom, Dutch, BounceПродолжительность: 05:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639994AB20B992E3F9738AC785DFFBB4BC98CD8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030802   (672400) от 01.07.2016
+
+Франсуа Эве | Экуменика (1995) [FB2, EPUB, MOBI]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга посвящена изучению вопросов, связанных с воссоединением христианских церквей. В ней приведен как краткий очерк истории современного экуменического движения, так и анализ экуменической деятельности в настоящее время. Подробно разобраны католические принципы экуменизма и отношения с протестантами и Восточными Церквами.Жанр: ЭкуменизмФормат: FB2, EPUB, MOBI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90ADA98B2BAA286ECCF4D5B0FA37D537B395389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509971   (672399) от 13.06.2012
+
+Джек Вэнс | Последний Замок [2012] [MP3]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Линус Бейкер живет четко по расписанию: утром – работа инспектора в Департаменте по делам магической молодежи, вечером – уютные посиделки дома с кошкой и старыми пластинками. Линус не собирается ничего менять в своей жизни, пока в один прекрасный день не получает от Чрезвычайно Высокого Руководства серьезное задание… Инспектору предстоит отправиться в сиротский приют (   Читать дальше...   )Жанр: Героическое фэнтези, Городское фэнтези, Зарубежное фэнтезиПродолжительность: 12:29:12
+Люди, наслаждаясь плодами многих веков прогресса, окружили себя роскошью. Одна из составляющих этой роскоши - слуги, искусственно выведенные на базе специально подобранных внеземных существ. И эти слуги внезапно и непостижимо взбунтовались против своих хозяев. Смогут ли изнеженные и погрязшие в абстракциях и увеселениях обитатели замков противостоять суровой реальности?
+Удивительно, как великому маэстро удалось уместить многогранность на удивление проработанного и самобытного мира, увлекательные приключения и глубокомысленные философские беседы в столь тоненькой книжке, не забыв приправить ее парой щепоток своего фирменного юмора. С другой стороны, не спроста же он был награжден за нее аж двумя престижнейшими литературными премиями.Жанр: Фантастика
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD04762E341E02B5362F1E932A2472E1B274CA5B
+magnet:?xt=urn:btih:530A6AFAE15221025EF496BC3D57787335D4C848
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,28 +503,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535968   (669242) от 15.03.2022
+###  Публикация: 509904   (672390) от 13.06.2012
 
-Within Temptation - The Heart Of Everything (2007) 4CD, 2022, Special Edition [MP3|320 Kbps] <Sympho Gothic Metal>
+NG: Известная Вселенная. От атома до космоса / The Known Universe. Sizing up the Universe (2009) [H.264/1080p-LQ] HDTV
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Зарубежные TV-бренды
+>>National Geographic
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Howling (Instrumental) (05:39)
-02. What Have You Done (Instrumental) (05:14)
-03. Frozen (Instrumental) (04:29)
-04. Our Solemn Hour (Instrumental) (04:17)(   Читать дальше...   )Жанр: Sympho Gothic MetalПродолжительность: 04:16:17
+В огромной вселенной, в которой мы существуем крошечные атомы составляют строительные блоки всего вокруг нас. Размер имеет значение, когда речь заходит о понимании космоса. Начиная с нашей Солнечной системы, мы рассмотрим истинном значении слова "большой". Добро пожаловать в путешествие по Вселенной.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:46:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:559BD303AB144CDE5B7372EE5EE54469EBAD7994
+magnet:?xt=urn:btih:2E3798807D6D50F2C5265F0544651531E4845781
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -526,78 +529,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537142   (669239) от 15.03.2022
+###  Публикация: 336302   (672387) от 17.05.2011
 
-VA - Hardstyle XXL Megamix 2022 [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gunz For Hire - Ongedierte van de Nacht
-02. D-block & S-te-fan - Twilight Zone (Headhunterz Remix)
-03. Ran-DSound RushLePrince - We Are the Storm (Radio Edit)
-04. JDXSander Nijbroek - Tides (Performance Mix)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 03:40:08 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A58868CFA388DB9301D5083D734F664E711ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776506   (669238) от 22.06.2014
-
-Ryuugajou Nanana no Maizoukin | Nanana's Buried Treasure | Сокровища Нананы [2014, TV, 11 эп.] HDTV 720p raw
+Вампиры / Vampires (1998) [1080p] BDRemux
 
 >>Архив торрентов
->>Архив Аниме
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669238.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главным героем выступает ОЯШ по имени Дзюго, от которого отрёкся родной отец, в результате чего парень был вынужден перевестись в старшую школу в «Особой Студенческой Зоне» на искусственном острове. Имея за душой всего 40 000 (около $400) месячного довольствия, Дзюго снимает самую дешёвую квартиру, где знакомится с Нананой, призраком прекрасной девушки, которая, однако, при жизни было NEET’ом. Причем, не смотря на сомнительный социальный статус, у Нананы было некое «сокровище, обладающее таинственной силой», которое ныне спрятано где-то на острове. К охоте за этим самым сокровищем и подключается главный герой, вместе с членами школьного клуба любителей приключений.
-
-© K-GЖанр: комедия, романтика, сверхъестественноеРежиссер: Камэй КантаПродолжительность: 11 серий по 24 минуты
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A23BA3ECB9E38CA3CDC8A23A19368EFD7F09AD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537190   (669237) от 15.03.2022
-
-Firefox Browser 98.0.1 Portable by PortableApps [Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_669237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
+По заданию Ватикана Джек Кроу, потомственный охотник на вампиров, и его друг, и напарник Монтойя безжалостно расправляются с вурдалаками, но их главная цель — особо опасный вампир Валек, уроженец Праги, 1300-го года рождения. В охоте на вампира Джеку и Монтойе помогает молодой священник, вооруженный знаниями из древних трактатов о кровососах. Валек ищет в Штатах (   Читать дальше...   )Производство: США / JVC Entertainment, Film Office, Largo EntertainmentЖанр: Ужасы, Боевик, ТриллерРежиссер: Джон КарпентерАктеры: Джеймс Вудс, Дэниэл Болдуин, Шерил Ли, Томас Йен Гриффит, Максимилиан Шелл, Тим Гини, Марк Бун Джуниор, Грегори Сьерра, Кэри-Хироюки Тагава, Томас Розалес мл.Перевод: Дублированный, Многоголосый закадровый, Одноголосый закадровыйЯзык субтитров: Русский, АнглийскийПродолжительность: 01:47:47
 
 ## Скачать торент
 ```bash
@@ -609,28 +555,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1536014   (669235) от 15.03.2022
+###  Публикация: 509838   (672384) от 13.06.2012
 
-Пламя - Время "Пик" (1982) [AAC|~344 Kbps] <Pop>
+VA - Жизненные Песни Шансона (2012) [MP3|256 kbps]<Шансон>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Неофициальные сборники
+>>Шансон, Авторская и Военная песня (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669235.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672384.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Снег кружится (4:14)
-02. Лабиринт (4:23)
-03. Сказка (3:49)
-04. Колосок золотой (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:04
+001 Денис Майданов - Мама
+002 Рада Рай - Прости, мама
+003 Андрей Бандера - Мама
+004 Демидыч - Мамина сирень
+005 Мафик - Спасибо тебе, мамочка
+006 Таисия Повалий - Мама-мамочка
+007 Стас Михайлов - Мама
+008 Елена Ваенга - Курю
+009 Игорь Наджиев - Мамина память
+010 Сергей Трофимов - 5000 миль(   Читать дальше...   )2012Жанр: ШансонПродолжительность: 06:32:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34BF8B304174F1CA3A7C43686EE92C0F05BD19AC
+magnet:?xt=urn:btih:AACFC7A61B87D92459ECAB83E4281B7021FB89B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,25 +590,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537167   (669234) от 15.03.2022
+###  Публикация: 338326   (672383) от 17.05.2011
 
-Лиссабонская история / Lisbon story (1994) BDRip [H.264] [AVO]
+"Березка". Капитализм из-под полы (2011) SATRip
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669234.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672383.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Звукооператор Филипп Винтер получает открытку от своего друга, снимающего фильм в Лиссабоне, с просьбой помочь записать звуковую дорожку к фильму. Проезжая через всю Европу и добравшись, наконец, до Португалии, Филипп селится в квартире друга и, не найдя его самого, но обнаружив незаконченный фильм, приступает к работе. Проходив день с микрофоном, он возвращается (   Читать дальше...   )Производство: Германия, Португалия, Madragoa Filmes, Road Movies Filmproduktion, Wim Wenders StiftungЖанр: драма, музыкаРежиссер: Вим ВендерсАктеры: Рюдигер Фоглер, Патрик Бошо, Вашку Сикейра, Канту-и-Каштру, Вириату Жозе да Силва, Жуан Канижу, Рикарду Колариш, Жуэл Кунья Феррейра, София Бенар да Кошта, Вера Кунья РошаПеревод: авторский (Юрий Сербин)Субтитры: русские, английскиеПродолжительность: 01:44:43
+Об этих магазинах ходили легенды. Сюда мечтал попасть каждый. Здесь бывали едва ли не все советские знаменитости, и даже сам американский президент.
+Воплощение коммунистической мечты о благополучии и материальном достатке – магазины Внешпосылторга, больше известные как "Березки". Одних они восхищали, других приводили в ярость. Против "Березок" протестовали диссидент Сахаров и режиссер Говорухин.
+Здесь рубль – уже не деньги, здесь расплачиваются только запрещенной в СССР валютой и специальными сертификатами Внешпосылторга. Именно эти чеки разбили советское общество на касты.
+В 1988 году программа "Время" неожиданно объявляет: магазины "Березка" закрываются, "параллельные" деньги, чеки, отменяются. Это сообщение повергло в шок многих советских граждан. Ведь только здесь, не считая "черного рынка", можно было купить все или почти все…
+Когда были созданы "Березки"? Какие товары там продавались, кто имел туда доступ? Были ли подобные магазины в странах (   Читать дальше...)Жанр: ДокументальныйПродолжительность: 00:43:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9975AC5C7BCFDCF8252FF0E5F47BF6D48447748E
+magnet:?xt=urn:btih:4FB6E66B2EED943E74FC67E196DF88959B5F9EF9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,28 +620,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537019   (669233) от 15.03.2022
+###  Публикация: 510132   (672382) от 13.06.2012
 
-VA - Rock Reel (2022) [MP3|320 Kbps] <Rock>
+Джефф, живущий дома / Jeff, Who Lives at Home (2011) HDRip
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669233.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672382.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paramore - Misery Business (3:31)
-02. Skillet - Feel Invincible (3:49)
-03. Linkin Park - Numb (3:07)
-04. Slipknot - Wait and Bleed (2:27)(   Читать дальше...   )Жанр: RockПродолжительность: 02:58:37
+Картина станет хроникой одного дня из жизни двух братьев — живущего дома лузера и его уравновешенного и властного родственника.Жанр: КомедияРежиссер: Джей Дюпласс, Марк ДюплассАктеры: Джейсон Сигел, Эд Хелмс, Сьюзен Сарандон, Джуди Грир, Рей Дон ЧонгПеревод: Одноголосый закадровыйПродолжительность: 01:23:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0476332C60810C0DC76FD9342F0FDABD8F75F9CE
+magnet:?xt=urn:btih:672F1E89F2DEDB53ADD21B07402684099D62E462
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,25 +646,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537129   (669232) от 15.03.2022
+###  Публикация: 510120   (672379) от 13.06.2012
 
-Дорога к дому / Jibeuro / The Way Home (2002) BDRip [H.264/720p]
+Футбол. Чемпионат Европы. Группа D. Украина - Швеция (2012) HDTV [H.264/1080i]
 
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
+>>Спорт и активный отдых
+>>Футбол. Чемпионаты Европы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669232.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вредный избалованный мальчишка вынужден некоторое время жить вдали от привычной ему городской суеты со своей немой бабушкой. Казалось бы, беспомощная старая женщина - удобный объект для проявления детской жестокости. Но бабушка терпелива и мудра, она обладает даром, против которого жестокость бессильна - даром любви.Производство: Южная Корея / CJ Entertainment, Tube EntertainmentЖанр: драма, семейныйРежиссер: Ли Джон-хянАктеры: Ким Ыль-бун, Ю Сын-хо, Тон Хё-хи, Мин Гён-хун, Лим Ын-гёнПеревод: Многоголосый профессиональныйЯзык озвучки: Русский, КорейскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:27:49
+11 июня 2012 года, понедельник. 22:45 мск
+Группа D. 1-й тур
+Киев (Украина). Стадион НСК Олимпийский.
+Главный судья: Джюнейт Чакыр (Стамбул, Турция)Жанр: СпортПродолжительность: 00:51:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF462AD253AD2214B25897190174EAA15C7B4D33
+magnet:?xt=urn:btih:6150B038487D9FE7080A46492F134B3D6F97EB95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 509951   (672378) от 13.06.2012
+
+[Графика] Большая подборка творчества Stanley Lau (Artgerm), Сингапур (2012)
+
+>>Графика, Арт, Разное
+>>Книжная иллюстрация
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672378.jpg" />
+</div>
+
+
+###  Подробнее
+
+Большая подборка творчества Stanley Lau (Artgerm), Сингапур
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84D1A01C5DBCC0D9EEB5DDFF68298063867C048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291053   (672356) от 23.03.2019
+
+VA - The Official UK Top 40 Singles Chart 22.03.2019 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672356.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved
+02. Calvin Harris, Rag'n'Bone Man - Giant
+03. Mabel - Don't Call Me Up
+04. Tom Walker - Just You and I(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DE66B11F45BA65CAA0ABEE07347BDB18D95CF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

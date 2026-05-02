@@ -1,3 +1,208 @@
+###  Публикация: 1762395   (36139) от 25.11.2024
+
+VA - Tantric ASMR Bliss: Sensual Voice of Passion (Seductive Edition) (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Relax, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tantric Music! - Sensual Bliss Embracing Intimacy (3:33)
+02. Sex Zone - Euphoric Desires Erotic Trance (3:48)
+03. Sexy Chillout Music Cafe - Passionate Whispers Seductive Moments (3:33)
+04. Tantric Music! - Midnight Dreams Sensual Escapade (3:24)(   Читать дальше...   )Жанр: Chillout, Relax, New AgeПродолжительность: 00:37:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A576EED91DF420EA254D7527A8B732DE5057553D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760219   (35873) от 28.11.2024
+
+Руки Вверх! - Руки Вверх! (2024) [FLAC|Lossless|WEB-DL|tracks] <OST, Pop>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35873.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Студент (Саундтрек из фильма "Руки вверх!")
+2. Крошка моя (Саундтрек из фильма "Руки вверх!")
+3. Чужие губы (Саундтрек из фильма "Руки вверх!")
+4. Бандито (Саундтрек из фильма "Руки вверх!")(   Читать дальше...   )Жанр: OST, PopПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55D733582C1482944F05519CC7C8A0D2AB81A10C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762732   (35831) от 28.11.2024
+
+Herencias - Spirit Songs (2008) [MP3|320 Kbps] <Native American, New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ly-O-Lay-Aleloya [05:20]
+02. Puyumuyumuwuan [06:06]
+03. Paway Anka [06:10]
+04. Brave Hearts [04:51](   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 01:07:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FFDBD61D226CD6AA8DA36DC81F3C87BEEBFD206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762588   (35830) от 28.11.2024
+
+Dammerland - Dammerland (2024) [FLAC|Lossless|image + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35830.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мальте Хойер (Versengold) и Ханнес Браун (Kissin' Dynamite) представют уникальное аудиоприключение на стыке фэнтези и музыки. Речь идет о новых, захватывающих мирах звука и фантастических альтернативных мирах: добро пожаловать в DÄMMERLAND.
+
+DUSKLAND – это эпическое аудиоприключение на стыке фэнтези и музыки.
+(   Читать дальше...   )01. Dämmerland (feat. Malte Hoyer (Versengold), Hannes Braun (Kissin Dynamite), Chris Harms (Lord of the Lost), Alea (Saltatio Mortis), Annie Hurdy Gurdy (ex-Eluveitie), Marina La Torraca (Exit Eden), Anna Brunner (Exit Eden) & Tetzel (Asenblut) 04:05
+02. Verlorene Traume (feat. Annie Hurdy Gurdy (ex-Eluveitie) & Salatio Mortis) 03:54
+03. Was muss, das (   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:54:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9E3B67E2B6598220EAF6E3D53CB2EC6B6DD8834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762291   (35628) от 30.11.2024
+
+Les Paul & Mary Ford - The Best of the Capitol Masters (1992) [FLAC|Lossless|tracks + .cue] <Jazz, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lover (2:49)
+02. Nola (2:37)
+03. Tennessee Waltz (3:10)
+04. Mockin' Bird Hill (2:19)(   Читать дальше...   )Жанр: Jazz, Folk, World, & CountryПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78E9FA1E19EC19D91861D55890DED35BADF9AD4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761933   (35627) от 30.11.2024
+
+David Arkenstone - In The Wake Of The Wind (1991) [FLAC|Lossless|tracks + .cue] <Electronic, Jazz, Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35627.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papillon (On the Wings of the Butterfly) (5:21)
+02. Dark Dunes (3:14)
+03. Not Too Far to Walk (4:15)
+04. Borderlands (5:38)(   Читать дальше...   )Жанр: Electronic, Jazz, RockПродолжительность: 01:00:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7C0F00BBB111BA0F1FAA46F4E9DA2511D27346
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763331   (35431) от 02.12.2024
+
+Бурановские бабушки - Лудорвай (2024) [MP3|320 Kbps] <Folk Pop>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Туннэ [00:02:47]
+02 - Добро [00:03:47]
+03 - Валенки [00:02:47]
+04 - Салют [00:02:04](   Читать дальше...   )Жанр: Folk PopПродолжительность: 00:31:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A488E57CBC18694C5A2346AD78E0EC50C84849
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763614   (35403) от 02.12.2024
 
 VA - The Orient Collective: Timeless Sands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -542,209 +747,6 @@ Tomas Lanquist - On Faery Wings (2015) [MP3|320 кб/с]<New Age, Electronic, Am
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57FD5B12107664E33A1BA6261AE35ECD173D0ACE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911636   (31903) от 05.01.2025
-
-Eleni Violaris - Rainstriker (2015) [MP3|320 кб/с]<New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Believe in Magic
-02. Rainstriker
-03. The Linden
-04. Ceridwen's Lament(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 01:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8C58AF76E20C5FF641C8855864596A7CE1F7BE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055977   (31845) от 06.01.2025
-
-Vangelis - Rosetta (2016) [MP3|320 Kbps] <Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Origins (Arrival)
-02. Starstuff
-03. Infinitude
-04. Exo Genesis(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD9C749752E0A179913136A1796E290B2A51799
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771685   (31567) от 08.01.2025
-
-VA - Only the Best Music (2024) [MP3|320 Kbps] <New-Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DePNEIM - Seagull (Remake 2024) (6:15)
-02. Strannik - DQ (4:27)
-03. Cosmview - The Road to Nowhere (10:01)
-04. Yakuro - Seclussion in the Elements (6:57)(   Читать дальше...   )Жанр: New-Age, RelaxПродолжительность: 01:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F704E5595F848810347B963C0CAECEA87BB973D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771686   (31566) от 08.01.2025
-
-VA - Only the Best Music (2024) [FLAC|Lossless|WEB-DL|tracks] <New-Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31566.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DePNEIM - Seagull (Remake 2024) (6:15)
-02. Strannik - DQ (4:27)
-03. Cosmview - The Road to Nowhere (10:01)
-04. Yakuro - Seclussion in the Elements (6:57)(   Читать дальше...   )Жанр: New-Age, RelaxПродолжительность: 01:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1405EED19F38DADF9CCB5D856A1FE9910EB79036
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772394   (31364) от 10.01.2025
-
-VA - The Orient Collective: Spirits of the East (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Portobello - Reconstruct (7:12)
-02. Tibetania - Jaley Ka (8:12)
-03. Krestovsky - Rishi Tech (6:10)
-04. Florian Gasperini - Emergence (8:31)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823AEC571300B548D4D52C55EA99F39E642ED107
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772674   (30868) от 15.01.2025
-
-Volker Bertelmann - The Day of the Jackal (Original Series Soundtrack) (2024) [FLAC|Lossless|WEB-DL|tracks] <Film Scores>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opening [00:04:11]
-02. The Jackal [00:01:49]
-03. Pinwheel [00:02:23]
-04. Observation [00:02:49](   Читать дальше...   )Жанр: Film ScoresПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F14529F36CF769C1A8198788DFE55CE5E4A69A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1775087   (29923) от 24.01.2025
-
-Armik - Gitano Amor (2025) [FLAC|Lossless|WEB-DL|tracks] <Flamenco, Instrumental, Guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Gitano Amor (04:18)
- 02 - Tears In Paradise (04:56)
- 03 - Libertad (04:00)
- 04 - Intro To Donatella (03:05)(   Читать дальше...   )Жанр: Flamenco, Instrumental, GuitarПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53715FF24196061FC5D63069C75A9AEAB3C4B5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

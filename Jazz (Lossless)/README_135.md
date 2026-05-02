@@ -1,3 +1,61 @@
+###  Публикация: 1547171   (603422) от 27.04.2022
+
+Dave Brubeck - Take Five: Portrait Of A Legend (1946 - 1960) 10CD, 2014, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603422.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD01 - Dave Brubeck Octet:
+01. The Way You Look Tonight [3:02]
+02. Love Walked In [2:39]
+03. What Is This Thing Called Love? [2:43](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 10:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A6D665B0AA42E2A04079A33A5E5E5F9B9EA44E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231804   (603278) от 21.06.2018
+
+Jimmie Lunceford - 1935 - 1937 (1990-1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Blue Heaven [3:15]
+02. I'm Nuts About Screwy Music [3:06]
+03. The Best Things In Life Are Free [3:24]
+04. The Melody Man [3:04](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BED613775048D0C9DD13931815650068CE9E77D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231954   (603277) от 21.06.2018
 
 Mose Allison - The Best of Mose Allison (1962 - 1970) 1988, Atlantic Jazz [WavPack|Lossless|image + .cue] <Hard Bop, Vocal Jazz, Piano Jazz>
@@ -686,64 +744,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:078BC1AD6A380FD9C4BE4F05A6F3D99BBC7ED903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298577   (601757) от 28.04.2019
-
-Isao Suzuki & Tsuyoshi Yamamoto - Samba Club (1980) 2012, King Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture [6:01]
-02. Tenderly [7:22]
-03. Night and Day [5:38]
-04. Sweet Georgia Brown [4:38](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FBDFE5992263BE27E9F4CFFDB9728376968D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298927   (601638) от 29.04.2019
-
-Tia Fuller - Healing Space (2007) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breakthrough [6:14]
-02. Just A Journey [5:12]
-03. Ebonics [5:49]
-04. Katrina's Prayer [1:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A63DE8E11B05EAF53ABA93BA67065F765F82306F
 ```
 
 https://mybot314.ru/tekegram_catalog/

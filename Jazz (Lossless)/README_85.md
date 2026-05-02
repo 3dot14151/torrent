@@ -1,3 +1,61 @@
+###  Публикация: 1125769   (767883) от 15.04.2017
+
+Candy Dulfer - Together (2017) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How It's Done (4:41)
+02. Together (7:26)
+03. Show Ur ID (4:42)
+04. Age (5:53)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E54DC25A23FD7708B04D8F691B36C82D42C6FA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278792   (767793) от 27.01.2019
+
+Louis Hayes And The Cannonball Adderley Legacy Band - Live at Cory Weeds' Cellar Jazz Club (2014) Cellar Live ‎ [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exodus [9:43]
+02. Chant [7:31]
+03. Arriving Soon [9:53]
+04. Dat Dere [8:16](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0977963561599042202E0E5F00E2AA0D8971BAB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393411   (767772) от 30.06.2020
 
 Olivia Trummer Trio - Westwind (2008) Neuklang [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -687,64 +745,6 @@ Hank Crawford - Don't You Worry 'Bout A Thing (1974) 2011, Masterworks Jazz ‎ 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0EB5E953ED32165CFBA705A4299205A442997C19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279447   (766187) от 29.01.2019
-
-Bo Ramsey - Wildwood Calling (2016) [FLAC|Lossless|tracks + .cue] <Chicago Blues, Delta Blues, Country Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly On (Part 2) (2:23)
- 02. Through The Trees (3:10)
- 03. Feather Trail (2:22)
- 04. Glide (2:22)(   Читать дальше...   )Жанр: Chicago Blues, Delta Blues, Country BluesПродолжительность: 00:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7EF4B5A11DC1A603FF9E282BBAD9375253D479A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1521217   (766185) от 01.01.2022
-
-John Coltrane - My Favorite Things (1960) 1987, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Favorite Things [13:44]
-02. Everytime We Say Goodbye [5:43]
-03. Summertime [11:36]
-04. But Not for Me [9:34]Жанр: Hard Bop, Post-Bop, Avant-Garde JazzПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E4648046B126ABA0102D9949DA6AF72DC8CF01
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1617149   (1035292) от 06.03.2023
+
+Among Lynx - Once In A Blue Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Put Your Love In Me [00:03:42]
+02. Someone's Gotta Go [00:03:22]
+03. The Bridge [00:04:43]
+04. Once In a Blue Moon [00:04:49](   Читать дальше...   )Жанр: Blues Rock, Female VocalПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B353EE5BAB698EC3D7577CB501C73E7D302192
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443901   (1034890) от 31.01.2021
+
+Beiztegui - Back to Groove Town (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034890.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sweet Liquor (feat. Manuel Moreno Garrido)  [3:08]
+ 2. It's Hurt to Live Keeling Down Before This Scum [3:36]
+ 3. Dog and Cat Blues [2:32]
+ 4. Hot Stew Blues (feat. Antonio Mellado Sánchez) [3:09](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:25:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D926076490144F9969F852CCC4C85EF20C1FAEDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443909   (1034880) от 31.01.2021
+
+Cotton Belly's - Kingfisher's Session (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tried (3:47)
+02. I Won't Lie (6:54)
+03. Wild Camels (4:11)
+04. Nineteen Forty Nine (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8396449815729D9802A653A7B7018FDE5E0AC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443905   (1034879) от 31.01.2021
+
+Black Ink River - Through the Unknown (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through the Unknown (1:06)
+02. Sulphur Sky (Album Remix) (2:30)
+03. No No No (Album Remix) (4:18)
+04. Midnight Cowboy (6:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBEC960CBD145B3F19EB33918991AEF774AC7FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443907   (1034876) от 31.01.2021
 
 Christopher Shayne - Ten High (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Sauce Boss - Peanuts (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18BABE720EBA5BD3444BE8611E1AC59BA64C7897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446232   (1032978) от 08.02.2021
-
-Jumpin' Jacks - Summertime Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Girls Girls Girls (2:58)
-02. I Got a Girls (2:43)
-03. Mess Around (3:15)
-04. Summertime Blues (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B7F11754511CC1C3704EFEE624010C8087D5C33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619493   (1032961) от 16.03.2023
-
-Bai Kamara Jr. and The Voodoo Sniffers - Traveling Medicine Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shake It, Shake It, Shake It (2:37)
-02. Surrounded (3:28)
-03. Good, Good Man (3:57)
-04. If You Go (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B9C0FD220941A7C460F8495A90FBB081BA1C897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619499   (1032958) от 16.03.2023
-
-Jenn Howard - Valiant Women (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Better Than You Think (3:53)
-02. Take A Hand (3:23)
-03. Microphone (3:12)
-04. Hold On (5:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3BBD21D146BC69C7C60C22730FE25266023A5A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446263   (1032954) от 08.02.2021
-
-BoogieBunker - Special Guests Simone Roerade & Wouter Kiers (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little by little (3:41)
-02. Everytime I roll the dice (4:09)
-03. Tennessee whisky (4:23)
-04. Dr. Feelgood (love is a serious business) (5:09)(   Читать дальше...   )Жанр: Blues R&BПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5592137E6B4DAEEC52F46BEBF03B889685B8E226
 ```
 
 https://mybot314.ru/tekegram_catalog/

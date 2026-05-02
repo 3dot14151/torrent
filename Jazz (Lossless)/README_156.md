@@ -1,3 +1,61 @@
+###  Публикация: 1154680   (535422) от 02.08.2017
+
+Members Of The Woody Herman Orchestra - A Tribute To Woody Herman (1997) Green Hill [FLAC|Lossless|image + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four Brothers [03:23]
+02. Woodchopper's Ball [04:53]
+03. Apple Honey [03:34]
+04. Goosey Gander [03:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76DB95F0096A68D3751EF492422FE75D847798B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154953   (535416) от 02.08.2017
+
+Weather Report - This Is This (1986) [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is This (7:08)
+02. Face The Fire (2:34)
+03. I'll Never Forget You (7:51)
+04. Jungle Stuff, Part I (4:44)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC95C2DFE037013342B9039B4360EC01FFC41DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1154952   (535415) от 02.08.2017
 
 Weather Report - Domino Theory (1984) [FLAC|Lossless|image + .cue] <Jazz-Rock, Fusion>
@@ -687,64 +745,6 @@ Jose James - Yesterday I Had The Blues - The Music Of Billie Holiday (2015) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5578867057BDE9DF516C0AAFF8E0FD5217BC416
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1155700   (531574) от 04.08.2017
-
-Quincy Jones - Complete Recordings 1955-1959 (2013) 4CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531574.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Pogo Stick [06:16]
-02. Liza [05:32]
-03. Jones Bones [05:39](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 04:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D2FB4A5466B0DDD748EC2964EDF787C9F6E3C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240090   (531397) от 09.08.2018
-
-Sonny Rollins - Trio & Quartet: Paris 1965 - Copenhagen 1968 (2008) 2CD, Gambit [APE|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531397.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Medley: I Can't Get Started, Three Little Words, St. Thomas [18:15]
-02. There Will Never Be Another You [23:04]
-03. Three Little Words [31:52](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 02:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12027B1A62629DE574FE174D768C431639E7BFD4
 ```
 
 https://mybot314.ru/tekegram_catalog/

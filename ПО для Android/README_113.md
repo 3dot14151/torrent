@@ -1,3 +1,29 @@
+###  Публикация: 1754767   (103697) от 12.10.2024
+
+PowerDirector – Video Editor v14.5.0 Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103697.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 12.10.2024Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B65A71529A4A7372B9A37157E0D80762C8B474
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754771   (103666) от 12.10.2024
 
 PhotoDirector v19.7.1 Mod by Balatan [Ru/Multi]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E49FF2F8B48F7B5984E91B33F8CB6E89C4D3A188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822188   (100868) от 05.10.2025
-
-Moon+ Reader Pro v10.2 (b1002000) Mod by Lucky Las [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 03.10.2025Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA31A7C96C053CA446C0BB97B51F8D01E7690042
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,22 @@
-###  Публикация: 480010   (99004) от 08.04.2012
+###  Публикация: 1765502   (101415) от 13.12.2024
 
-Величайшие автомобили. Самые старые автомобили / Great Cars: Oldest cars (Michael Rose) (2005) SATRip
+Журнал | Цветок №23 (декабрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101415.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Едва появившись автомобили сразу же привлекли внимание людей по всему миру - этим сказочным аппаратам предстояло заменить лошадей и преобразить мир. Автомобильные первооткрыватели торопили время, им приходилось преодолевать громадные препятствия - нужно было убедить публику, что автомобили это не просто мечты. Они шли этим путем, учась на своих ошибках, чтобы наконец посадить всех нас за руль.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
+Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: Цветоводство, садоводство, огородничествоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:747BC471BCCFFD6C20717B1F0DFB031E50767ECF
+magnet:?xt=urn:btih:21918D4B8D7E9D6177703838B118E8D88DF97122
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,36 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478833   (99003) от 08.04.2012
+###  Публикация: 1765535   (101414) от 13.12.2024
 
-Eric Sneo - Polarity (2012) [MP3|320 кб/с]<Techno>
+David Hasselhoff - You Are Everything (1993) [FLAC|Lossless|tracks + .cue] <Pop>
 
->>Архив торрентов
->>Архив Музыки
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101414.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Polarity (The Intro)
-2. Polarity
-3. Sensation (feat. Marq Figuli)
-4. Apoptose
-5. Omnipotent Nights 2012
-6. Sao Paulo
-7. Inside Shadows
-8. Woodpacker From Mars
-9. Quantum Reality
-10. Morningsun(   Читать дальше...   )2012Жанр: TechnoПродолжительность: 01:27:57
-
-Широкий диапазон электронной музыки и эмоции были отражены в новом альбоме художника электронных звуков - Eric Sneo. "Polarity" наполнен мелодичной последовательностью Technoid Peaktime, атмосферным углублением и тяжёлой драм-машиной. Это своего рода уникальная комбинация, которая ещё не была использована ни кем из современных музыкантов.
+01. Dance Dance D'Amour 3:18
+02. Miracle Of Love 4:45
+03. Hot Shot City 3:48
+04. Give Me Something Real 3:44(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5F94CBFFDC9CA65966127B4D5026EEB1D186FE80
+magnet:?xt=urn:btih:660552DF5FE1E872DE7285FF79B6437E0F758D4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -61,34 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480006   (99001) от 08.04.2012
+###  Публикация: 1765541   (101413) от 13.12.2024
 
-VA - Easy Listening (2012) [MP3|320 кб/с]<Downtempo, Lounge>
+Молли Магуайерс / The Molly Maguires (1970) BDRip [H.264]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101413.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Enrico Donner - Sensual Education (5:58)
-2. Mellow Cloud - Traveling (4:18)
-3. Schwarz & Funk - Angles (6:48)
-4. Pater Rob - Blade (7:20)
-5. The Sura Quintet - Floating (5:22)
-6. FQP - Lang Syne (2:00)
-7. Loungeside - Palm Island (5:22)
-8. Cane Garden Quartet - Flying With No Wings (5:54)
-9. Sunset System - Sylt Sunrise (7:06)
-10. Goo-Boot - For Always (3:45)2012Жанр: Downtempo, LoungeПродолжительность: 05:41:02
+Фильм основан на книге Артура Х. Льюиса «Плач по Молли Магуайерс» о реальных событиях... Угольные шахты Пенсильвании. 1876 год. Группа ирландских шахтёров-эмигрантов, известная под именем "Молли Магуайерс" борется против жестокости добывающей компании, устраивая саботаж с убийством. Детектив МакПерлан, также являющийся ирландцем, должен вывести на чистую (   Читать дальше...   )Производство: США / Paramount Pictures, Tamm Productions See moreЖанр: драма, историяРежиссер: Мартин РиттАктеры: Шон Коннери, Ричард Харрис, Саманта Эггар, Фрэнк Финлей, Энтони Зербе, Bethel Leslie, Арт Ланд, Филип Бурнюф, Энтони Костильо, Брендан Диллон, Фрэнсис Хефлин, Джон Алдерсон, Мэлаки МакКорт, Сьюзэн Гудман, Иэн ЭберкромбиПеревод: профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:04:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D93689B17465657318F8E8508BBC6497CA81AB3
+magnet:?xt=urn:btih:8F2B798FEABA3E7C664A71A462E3C500781A93F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -96,25 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479612   (99000) от 08.04.2012
+###  Публикация: 1765508   (101412) от 13.12.2024
 
-Биатлон. "Гонка чемпионов" в Москве. Мужчины / Масс-старт (2012) SATRip
+Helloween - Live At Budokan(Live) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Power Metal>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101412.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мужской масс-старт на "Гонке Чемпионов" в Москве.Жанр: Спорт / БиатлонПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:24
+01. Orbit (Live) (1:59)
+02. Skyfall (Live) (12:52)
+03. Eagle Fly Free (Live) (8:04)
+04. Mass Pollution (Live) (4:58)(   Читать дальше...   )Жанр: Heavy Power MetalПродолжительность: 02:00:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20F32667E27E23A41ACC8912379805D8BCE2EA2D
+magnet:?xt=urn:btih:9853C8B851DF5E1052766752A08CA240AC8CF63D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -122,29 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479842   (98999) от 08.04.2012
+###  Публикация: 1765585   (101411) от 13.12.2024
 
-[Wallpapers] Avto Desktop Wallpapers Pack 5
+VA - The Orient Collective: The Guardian (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Other Styles
+>>Other (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101411.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Avto Desktop Wallpapers Pack 5 
-Название:  Avto Desktop Wallpapers Pack 5 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+1. Darles Flow - Atreides (5:20)
+2. Florian Gasperini - No Need to Know More (8:00)
+3. Tibetania - Dau Ayuni (6:06)
+4. The Friend - The Road to Egypt (6:36)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD4EC4C61B150750220F89F7B14C7114315C6E30
+magnet:?xt=urn:btih:82C4969557B1D22E1784BAA505C00A5D44D4504F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -152,34 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479945   (98998) от 08.04.2012
+###  Публикация: 1765398   (101410) от 13.12.2024
 
-VA-Trance Eve Volume 24 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+Jessica Simpson - Sweet Kisses (1999) CD, Album [FLAC|Lossless|tracks + .cue] <Pop,  Ballad, Vocal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101410.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) (8:28)
-2. DNS Project feat. Madelin Zero - Another Day (Markus Schulz Big Room Reconst) (7:40)
-3. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix) (7:59)
-4. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Chris Schweizer Remix) (7:52)
-5. Avion - Brilliant (Original Mix) (8:29)
-6. Dennis Sheperd & Jonathan Mendelsohn - Bring Me Back (Album Extended Mix) (6:20)
-7. Beat Service feat. Neev Kennedy - But I Did (Space Rockerz vs. Daniel Heatcliff Remix) (8:31)
-8. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix) (8:49)
-9. Vincent De Jager feat. Emma Lock - Dive (Original Mix) (7:30)
-10. Cressida & Natalie Paris - Easy To Forget (Club Mix) (8:12)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:27:14
+01. I Wanna Love You Forever (4:26)
+02. I Think I’m in Love With You (3:19)
+03. Where You Are (4:33)
+04. Final Heartbreak (3:40)(   Читать дальше...   )Жанр: Pop,  Ballad, VocalПродолжительность: 00:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:89DDAEAEB0D5D26C0276AE4B22E72F2F3C0F4DBC
+magnet:?xt=urn:btih:3E00CC6FF0AE63BD00D233CA07341481DC6660F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,332 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479617   (98996) от 08.04.2012
+###  Публикация: 1765550   (101409) от 13.12.2024
 
-Биатлон. "Гонка чемпионов" в Москве. Женщины / Масс-старт (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женский масс-старт на "Гонке Чемпионов" в Москве.Жанр: Спорт / БиатлонПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73450AEC8DE398A269AAFE80AAAF429ADC44BCDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480050   (98995) от 08.04.2012
-
-Величайшие автомобили: Вольво / Great Cars: Volvo (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98995.jpg" />
-</div>
-
-
-###  Подробнее
-
-На латинском слово "Вольво" обозначает "Я качусь". Но для большинства людей "Вольво" - синоним "безопасности"...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D1360B928E663054C5A69249268519B81F7512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480252   (98991) от 08.04.2012
-
-Bennie Green - Mosaic Select (Box Set 3CD) (2003) [MP3|320 кб/с]<Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98991.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-1. I Love You
-2. Melba's Mood
-3. Just friends
-4. You're Mine You
-5. Bennie Plays The Blues
-6. Green Street
-7. The Shouter
-8. Green Leaves
-9. This Love Of Mine(   Читать дальше...   )2003Жанр: JazzПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BED3953C2AB5F00750F4340DB4D77ACB8432B7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478416   (98990) от 08.04.2012
-
-Sector F - Рядом с улицей Бога (2007) [MP3|320 кб/с]<rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98990.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Интро
-2. Улицы Кипят (feat.Killa M)2007Жанр: rapПродолжительность: 01:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F980EE6D5FE56528B226193D224B64655D15F927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480032   (98987) от 08.04.2012
-
-Величайшие автомобили: Packard / Great Cars: Packard (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98987.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сотни автомобильных компаний появлялись и исчезали. Но лишь немногие оставляли после себя такое же наследие как - Packard. Эти машины любили президенты, дипломаты, голливудские звезды и просто состоятельные люди, которым нужно было все лучшее. У этой марки до сих пор сохранились преданные поклонники. Packard оставил неизгладимый след в автомобильной истории и затем исчез.....Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB1F16DB29C72054C9816C7EC7CBDE497CF09B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480169   (98985) от 08.04.2012
-
-[Wallpapers] Avto Wallpapers №2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98985.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Wallpapers №2
-Название: Avto Wallpapers №2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:697C277ACE5819164E9F97F1E1B50ECDAB9FED70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479731   (98983) от 08.04.2012
-
-[Wallpapers] Desktop Wallpapers №10
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98983.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №10
-Название: Desktop Wallpapers №10
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75EF90A2AACC949790F04DFBF32C87673186AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480167   (98981) от 08.04.2012
-
-[Wallpapers] HD Wallpapers №8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98981.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №8
-Название: HD Wallpapers №8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5E75DE50E126C88EB28D1C96C0E1E9F3E38C44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480184   (98980) от 08.04.2012
-
-Tiёsto - Club Life 262 (07-04-2012) [MP3|192 кб/с]<Trance ,Progressive House, Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hour 1
-Swedish House Mafia - Greyhound
-Tiesto - Chasing Summers
-Calvin Harris feat. Ne-Yo - Let's Go
-Tiesto & Mark Knight feat. Dino - Beautiful World (Gina Star Remix)
-Basto! & Yves V - Cloudbreaker (Basto! Remix)
-Hotlife - Laguna
-Norman Doray - Leo
-Parachute Youth - Can't Get Better Than This (Patrick Hagenaar Remix)
-Sebastien Drums feat. Mitch Crown - Fly Again(   Читать дальше...   )07-04-2012Жанр: Trance ,Progressive House, Electro HouseПродолжительность: 01:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6C7A02C615C611746F130C3993240E0DD70E026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479755   (98979) от 08.04.2012
-
-Blue Steel - International Hu$$la (2012) [MP3|320 кб/с]<Dirty South>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Redlight Greenlight
-03. Live Large
-04. Fast Life (Feat. Floda Fresh)
-05. Power Up
-06. Do Me
-07. Baller Fan (Feat. Iceberg)
-08. Every Nigga Aint Real
-09. Drop It Low (Feat. Quis)
-10. Freezy(   Читать дальше...   )Жанр: Southern RapПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8634DE8B784FB586B780E1F04B4ED5CFE79E6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479567   (98977) от 08.04.2012
-
-Evadne - The Shortest Way (2012) [FLAC|Lossless]<Death Doom Metal>
+Nanowar of Steel - XX Years of Steel (2024) 3CD [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98977.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101409.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. No Place For Hope (6:52)
-02. Dreams In Monochrome (7:49)
-03. This Complete Solitude (9:08)
-04. One Last Dress For One Last Journey (8:21)
-05. All I Will Leave Behind (10:54)
-06. The Wanderer (4:26)
-07. Further Away The Light (8:02)
-08. Gloomy Garden (9:27)Жанр: Death Doom MetalПродолжительность: 01:04:59
+01 - Stormwarrior of the Storm [4:23]
+02 - HelloWorld.java [3:59]
+03 - Afraid to shoot into the eyes of a stranger in a strange land [6:39]
+04 - Armpits of Immortals (feat. Ross the Boss) [4:12](   Читать дальше...   )Жанр: Heavy Metal, Power Metal, Hard RockПродолжительность: 02:28:01
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6AC96EA5731FB6FBA5E72E3A0549EBF55CF1E256
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -520,25 +195,106 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480041   (98976) от 08.04.2012
+###  Публикация: 1765602   (101408) от 13.12.2024
 
-Величайшие автомобили: MG / Great Cars:MG (2004) SATRip
+Snoop Dogg - Missionary (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Rap>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fore Play [00:01:15]
+02. Shangri-La [00:01:37]
+03. Outta Da Blue [00:02:39]
+04. Hard Knocks [00:04:13](   Читать дальше...   )Жанр: Hip-Hop/RapПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65A6140ACB689D76F318E6D73AA73302131BDAFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765416   (101407) от 13.12.2024
+
+Журнал | Homebuilding & Renovating №11 (2024) [PDF][EN]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101407.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0601AF58AA90DC0BBBCAF7C0694A5F1AA0385394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765546   (101406) от 13.12.2024
+
+Молли Магуайерс / The Molly Maguires (1970) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101406.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм основан на книге Артура Х. Льюиса «Плач по Молли Магуайерс» о реальных событиях... Угольные шахты Пенсильвании. 1876 год. Группа ирландских шахтёров-эмигрантов, известная под именем "Молли Магуайерс" борется против жестокости добывающей компании, устраивая саботаж с убийством. Детектив МакПерлан, также являющийся ирландцем, должен вывести на чистую (   Читать дальше...   )Производство: США / Paramount Pictures, Tamm Productions See moreЖанр: драма, историяРежиссер: Мартин РиттАктеры: Шон Коннери, Ричард Харрис, Саманта Эггар, Фрэнк Финлей, Энтони Зербе, Bethel Leslie, Арт Ланд, Филип Бурнюф, Энтони Костильо, Брендан Диллон, Фрэнсис Хефлин, Джон Алдерсон, Мэлаки МакКорт, Сьюзэн Гудман, Иэн ЭберкромбиПеревод: профессиональный многоголосый, профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DA03FDE8B654EF2ECBFBEA91988C81AAD9D82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765560   (101405) от 13.12.2024
+
+Все коды регионов. Штрафы ГИБДД v10.00.05 Mod от Alex.Strannik [Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98976.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101405.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Классические родстеры MG подарили радость управления легким, резвым автомобилем миллионам людей по всему миру.Эта машина была послушной, создавала ощущение скорости и оправдывала каждый доллар вложенный в нее. MG продолжает доказывать что удовольствие от вождения может быть не дорогим, не нужно быть богатым чтобы выехать на дорогу на MG.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
+Узнать откуда машина - не проблема! 🚗🚙. По гос.номеру автомобиля вы можете определить из какого региона этот автомобиль, к какому роду войск принадлежит, или за посольством какой страны закреплен. Удобный инструмент для определения региона регистрации автомобиля по индексу в номере. Встроена база по регионам СНГ. Присутствует встроенная игра на запоминание (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 13.12.2024Разработчик: RunIQ SoftПоддерживаемая ОС: Android 7.0+Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8E741161D36C25D9C87C687EE27C067480BE4F1
+magnet:?xt=urn:btih:D1C42C28AD7D8F8CBA861699055ACEAC36D2B269
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -546,25 +302,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479028   (98973) от 07.04.2012
+###  Публикация: 1765417   (101404) от 13.12.2024
 
-Паутина (3-й сезон, серии 1-12(12)) (2009) 2 х DVD 9
+Журнал | Homebuilding & Renovating №12 (2024) [PDF][EN]
 
->>Архив торрентов
->>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98973.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101404.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В новом сезоне легендарному оперу майору Туманову предстоит распутать очередные хитросплетения преступного мира. И в этом ему помогут капитан Греков и криминалист Мушкаренко они — команда. Друзья по жизни напарники в деле, люди для которых честь мундира не просто пафосная фраза.Жанр: ДетективРежиссер: Андрей ХрулевВ ролях: Александра Солянкина, Владислав Резник, Олег Филипчик, Оксана Тимановская, Эдуард Марцевич, Юлия Михайлова, Юрий Брешин, Владимир Никитин, Дмитрий Митюрич, Рашит БиляловФормат: DVD-Video
+Английский журнал Homebuilding & Renovating посвящен строительству и отделке загородных домов и коттеджей. Строительство и все, что с ним связано. Обзоры материалов, инструментов и технологий. В каждом выпуске новые проекты, идеи и советы профессионалов. Знание английского языка не обязательно, так как в журнале очень много иллюстраций и чертежей.Жанр: Строительство, ремонт, дизайнЯзык: АнглийскийИздательство: Ascent Publishing Ltd.Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E7365A239369C479C3118882313F148532A6408E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,25 +328,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479633   (98969) от 07.04.2012
+###  Публикация: 1765568   (101403) от 13.12.2024
 
-McAfee Avert Stinger Portable 10.2.0.574 [англ]
+НХЛ 2024-2025. Вашингтон Кэпиталз - Коламбус Блю Джекетс (12.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Архив торрентов
->>Архив Программ
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101403.jpg" />
 </div>
 
 
 ###  Подробнее
 
-McAfee Avert Stinger - это бесплатный, не требующий установки антивирусный сканер, предназначен для выявления и удаления с компьютера вирусов, троянов, интернет-червей и прочего вредоносного ПО. Антивирусная база программы постоянно обновляется. McAfee Avert Stinger не имеет постоянного монитора и предназначен для пользователей, имеющих дело с уже зараженной вирусами системой.Название программы: McAfee Avert Stinger PortableЯзык интерфейса: (англ)
+13 декабря 2024, пятница. 03:00 МСК. Стадион: Нейшнвайд-Арена (Коламбус, США), 15 962 зрителя (84% при вместимости 19 115)
+Главный судья: Гарретт Рэнк (Эльмира, Канада); Главный судья: Кори Сиврет (Милгров, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:47
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E827E4D0BD801B83B0F253696DAF02C03AFF60AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,25 +355,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479492   (98968) от 07.04.2012
+###  Публикация: 1765572   (101402) от 13.12.2024
 
-Джиган - Нас больше нет (2012) [H.264/720p] WEBRip
+НХЛ 2024-2025. Питтсбург Пингвинз - Монреаль Канадиенс (12.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Театр и Музыкальное видео
->>Музыкальные клипы
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101402.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Pop, Hip-HopПродолжительность: 00:04:19
+13 декабря 2024, пятница. 03:00 МСК. Стадион: Белл-центр (Монреаль, Канада), 21 105 зрителей (100% при вместимости 21 105)
+Главный судья: Гислейн Эбер (Батерст, Канада); Главный судья: Кайл Реман (Стеттлер, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:41:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C99C2926B8B611E33FE757B8ABBBE81391EAC03D
+magnet:?xt=urn:btih:B271AB66E98A5FF295141F5EABD42A020B28A44D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,28 +382,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479570   (98967) от 07.04.2012
+###  Публикация: 1765513   (101401) от 13.12.2024
 
-Марк Тарловский | Боги и герои Древнего Рима [2007] [MP3]
+Alberto Rigoni - Nemesis Call (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Prog>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98967.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101401.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Клянусь Юпитером!" - говорили древние римляне. И эта клятва считалась самой священной и нерушимой - как и сама Римская империя.
-Что может сильнее взволновать воображение ребенка, чем удивительные мифы древности? Подвиг Прометея, легенда о Ромуле и Реме, рождение Осириса...
-Увлекательные предания тысячелетий помогут детям лучше понять культуру и историю минувших эпох, они узнают много интересного не только о мифах
-и богах, но и о настоящих героях и полководцах Древнего Рима.Жанр: История
+01. Rage of Olympus (3:01)
+02. Blade of Despair (3:51)
+03. Paradox (4:03)
+04. Poseidon (3:58)(   Читать дальше...   )Жанр: Heavy ProgПродолжительность: 00:59:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2C71FC611C1E001A1997AFF9088D620B5EC12AE
+magnet:?xt=urn:btih:D46B011E0DDEF7523293563F714684261E6ADE17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,25 +411,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479692   (98966) от 07.04.2012
+###  Публикация: 1765374   (101400) от 13.12.2024
 
-BWMeter v6.2.0 [английский]
+Shelly Manne & Bill Russo - Deep People (1951, 1952) 1992, Savoy Jazz [FLAC|Lossless|image + .cue] <Cool, Bop, West Coast Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98966.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101400.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BWMeter это мощный Измеритель скорости, монитор, контроллер движения и брандмауэр, который измеряет, отображает и контролирует весь трафик к / от компьютера или в локальной сети. В отличие от других продуктов, он может анализировать пакеты данных (откуда они, где они идут, какой порт и протокол они используют). Программа позволяет различать локальный  интернет-трафик, например. BWMeter может также использоваться для управления движением, установив ограничение скорости для всех видов соединений или ограничивать доступ приложений к определенным сайтам Интернета. Программа создает статистику для всех компьютеров в вашей сети, измеряет и отображает весь входящий и исходящий трафик. Вы даже можете определить фильтры, которые показывают ваши передачи с определенных адресов Интернета. BWMeter идеален как для домашних пользователей, так и для больших предприятий.Название программы: BWMeterЯзык интерфейса: английский
+01. The Princess of Evil [3:19]
+02. Slightly Brightly [2:38]
+03. Deep People [3:04]
+04. The Count on Rush Street [3:10](   Читать дальше...   )Жанр: Cool, Bop, West Coast JazzПродолжительность: 00:40:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:64D9742DDA1AD7735358B69173DB3377E7EBDE16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -679,26 +440,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479358   (98962) от 07.04.2012
+###  Публикация: 1765524   (101399) от 13.12.2024
 
-Сумасшедший дом / Madhouse (1990) DVDRip
+Trouble County - Blacken the Sky (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98962.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101399.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Марку и Джесси везет в жизни. У них есть все, о чем можно мечтать: счастливый брак, прекрасная работа, и недавно приобретенный дом в Санта-Монике почти на берегу океана, в котором они могут наслаждаться одиночеством вдвоем. Но вот один за другим к ним на постой потянулись многочисленные родственники, число непрошеных гостей достигает критической точки, и уютное семейное гнездышко превращается в настоящий «сумасшедший дом».
-Супруги не только должны спать на кухонном полу и терпеливо дожидаться позволения войти в собственную ванную — они даже не могут побыть наедине друг с другом. И когда один из гостей приводит в дом слона, терпение Марка и Джесси окончательно лопается: вооружившись подручными средствами, они открывают против своих незваных гостей боевые действия…Жанр: КомедияРежиссер: Том РопелевскиАктеры: Джон Ларрокетт, Кёрсти Элли, Alison La Placa, Джон Дил, Джессика Ланди, Брэдли Грегг, Дэннис Миллер, Роберт Гинти, Уэйн Типпит, Пол АйдингПеревод: Многоголосый закадровыйПродолжительность: 01:26:18
+01. Wasted (5:14)
+02. Awake (5:02)
+03. Rapturous Me (3:48)
+04. Gotta Try (4:26)(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB1E9FD877932A1AF371DED652E9A0B5E1FCC63C
+magnet:?xt=urn:btih:C8F9DDBE871E8B7A64F6F03ADFD0AEE945BA28E2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -706,34 +469,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478693   (98961) от 07.04.2012
+###  Публикация: 1765618   (101398) от 13.12.2024
 
-Dark Moor - Best Ballads (2012) [MP3|320 кб/с]<Symphonic Power Metal>
+Reviver - Carnival of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Wind of Destiny (0:58)
+02. What's In Thy Command (3:54)
+03. Along the Crusade (3:57)
+04. Carnival of Chaos (4:09)(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 00:48:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7594CF980A2C24C9CF90FFE0DD779EE41DB9D56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765635   (101397) от 13.12.2024
+
+After Lapse - Pathways (2024) [FLAC 24/48|Lossless|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Shadow People (4:54)
+02. Clones (5:46)
+03. Dust to Dust (4:08)
+04. Thanks But No Thanks (5:02)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A66577F41F8D9A1F7C4495B93C756DC440C88C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765521   (101396) от 13.12.2024
+
+Blue Oyster Cult - 50th Anniversary Live - Third Night (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Career Of Evil (Live) (4:18)
+02. Subhuman (Live) (5:02)
+03. Dominance And Submission (Live) (5:17)
+04. M E 262 (Live) (8:36)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:16:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6338912EBFA95E64AC68972838C773E13DF584BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765447   (101395) от 13.12.2024
+
+Nine Days - The Madding Crowd (2000) CD, Album [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98961.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101395.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mist In The Twilight (Instrumental)
- 02. Green Eyes
- 03. A Lament Of Misery
- 04. The Sound Of The Blade
- 05. A Music In My Soul
- 06. The Shadow Of The Nile
- 07. Wood's Song
- 08. Your Symphony
- 09. The Mysterious Maiden
- 10. The King's Sword(   Читать дальше...   )2012Жанр: Symphonic Power MetalПродолжительность: 00:52:19
+01. So Far Away (3:56)
+02. Absolutely (Story of a Girl) (3:09)
+03. If I Am (4:18)
+04. End Up Alone (3:58)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Pop RockПродолжительность: 00:53:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:831E7D12207BE75B61062AF1E2DB93864ECA2466
+magnet:?xt=urn:btih:D0DF3F303383AEE6C190C18EEB3574F8CEC6093F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -741,27 +585,137 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479424   (98960) от 07.04.2012
+###  Публикация: 1765578   (101394) от 13.12.2024
 
-XS [Ru] (RePack) 1996 | Pilotus, saslazoid
+Violet - Mysteria (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
 
->>Архив торрентов
->>Архив Игр
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98960.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101394.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Взрывоопасный трехмерный боевой симулятор:
-Революционно улучшенный искусственный интеллект противников, истинно многоуровневый трехмерный мир, реалистичная анимация персонажей -
-Взятое в совокупности, все это делает ХС могильщиком традиционных спрайтовых 3D игр и позволяет вести понастоящему свободный бой даже в режиме single play. Самое близкое приближение к Deathmatch! Готовьтесь к гладиаторским боям будущего, где вы встретите ожесточенное сопротивление 60 безжалостных искуссных оппонентов и более 20 насыщенных боями уровней. Режим сетевой игры конечно тоже есть.Тип издания: RePackЖанр: Трехмерный шутер от первого лица (sci-fi)Язык озвучки: АнглийскийЯзык интерфейса: Русский (GSC)
+01. Sex in Harmony (4:18)
+02. Angelina (Talk to Me) (4:50)
+03. Bad Dream (4:59)
+04. That Night (4:14)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:46:12
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D9FDC813CA675D7A14ED7A9FAFFEECAECE78F9D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765510   (101393) от 13.12.2024
+
+The Drowning - Studio Albums (7 releases) (2005-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101393.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Drowning - группа из Уэльса, Великобритания. Основана в 2003 году.2005 - Withered (EP)
+2006 - When the Light Was Taken from Us
+2008 - This Bleak Descent
+2010 - Black Lights And Silent RoadsЖанр: Melodic Doom/Death MetalПродолжительность: 05:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DEDA3B6CC9F506BA68A6A11F134267D17A85B82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765705   (101392) от 14.12.2024
+
+A Haunting Novel: Burton Hotel / Проклятый роман: Отель "Бартон" (2024) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101392.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте новую мистическую серию игр. Добро пожаловать в отель «Бартон»! Этот просторный особняк, превращенный в отель, достался последнему члену семьи после смерти патриарха. Новый владелец готов к тому, чтобы его отполировали, вычистили и выставили на продажу. Только есть проблема. Прошлое отеля, тесно переплетённое с историей вашей семьи, возвращается странным (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09416A84E426878B1671BDCF8FD008DF25505EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765765   (101391) от 14.12.2024
+
+Н.В. Иноземцева, С.И. Прач. | Подшипники скольжения и их расчет (2023) [PDF]
+
+>>Научная и техническая литература
+>>Техническая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101391.jpg" />
+</div>
+
+
+###  Подробнее
+
+В разработанном учебно-методическом пособии приведены сведения, относящиеся к подшипникам скольжения.
+Содержит методики и примеры расчета и выбора посадки с зазором для подшипника скольжения по дисциплине «Нормирование точности и технические измерения».
+Основной целью данного пособия являлось оказание помощи студентам при выполнении курсовой работы по дисциплине (   Читать дальше...   )Жанр: учебное пособие, детали машинИздательство: Гомельский государственный технический университетФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B4508D3792D2D3F38C18D5CC15AB62A3A33A94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765803   (101390) от 14.12.2024
+
+Игорь Евдокимов | Архив Корсакова (Сборник). Зимнее дело Корсакова (2024) [MP3, Игорь Князев]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новые дела расскажут жуткие истории о самом страшном стихийном бедствии, налетевшем на Петербург в ноябре 1824 года, принесшем к дверям вдовы гроб с покойным мужем. Об особняке в петербургской Коломне, где статуя балерины в саду скрывает мрачную тайну. О занесенном снегом поместье в окрестностях Стрельны, где загадочным образом исчезают люди… Преступник – человек, (   Читать дальше...   )Жанр: альтернативная история, детектив, мистикаИздательство: ЭксмоПродолжительность: 04:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:478D610230BF04035F862BBF7F31AD42FCBCAEE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

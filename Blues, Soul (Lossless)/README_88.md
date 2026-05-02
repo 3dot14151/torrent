@@ -1,3 +1,119 @@
+###  Публикация: 1637870   (230509) от 06.06.2023
+
+Clay LeBlanc - Salvation (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Salvation (5:34)
+02. Take Me (4:30)
+03. Sunrise To Sunset (3:46)
+04. Keeping Me Alive (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCA43087886BB1B80F17A3D9A25DE4818BBE8857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1268101   (229580) от 09.12.2018
+
+Swamp Dogg - Love, Loss, And Auto-Tune (2018) [FLAC|Lossless|tracks + .cue] <Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Answer Me, My Love
+02. Lonely
+03. I'll Pretend
+04. I'm Coming With Lovin' On My Mind(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 00:36:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9566D9BBE5320F3927D22740D522433535574EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512780   (229299) от 26.11.2021
+
+Camile Baudoin - This Old House (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Old House (3:11)
+02. Tell Me How Do You Feel? (3:32)
+03. Gemini Blues (feat. Sonny Landreth) (4:48)
+04. You Never Can Tell (3:37)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:38:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AECFADAEE4793223FD5C9E953B46E8587A40B239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512782   (229184) от 26.11.2021
+
+Geir Bertheussen Blues Machine - Health Disease (2021) [FLAC|Lossless|WEB-DL|tracks] <Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Health Disease (3:50)
+02. Blonde Headed Woman (3:24)
+03. Tell Me (4:17)
+04. Tumbleweed (2:46)(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F05FCB34342DD939F1D31626FD857EAF427E9D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512783   (228878) от 26.11.2021
 
 Steve Shanholtzer - Blues That You Choose (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -638,122 +754,6 @@ Nada - Panta Rei (2001) Naxos Jazz[APE|image+.cue] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04F1F9066F6426BA0B9D4E4CADB7150EB68422BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343155   (218383) от 06.12.2019
-
-Chris Rea - Hofner Blue Notes (2003) Reissue 2019 [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218383.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Spy 5:05
-2. Expectations 3:59
-3. Hofner Blue Notes 2:52
-4. Paris In Minneapolis 5:05(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A651E15D42FAB096C5606DBC0705712583430DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425926   (218230) от 22.11.2020
-
-VA - Funky Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jonny Lang - Before You Hit The Ground (Album Version)
-02. Etta James - Welcome To The Jungle (Album Version)
-03. Robben Ford - Supernatural
-04. Jimmy Thackery And The Drivers - Blues for Sale(   Читать дальше...   )Жанр: BluesПродолжительность: 01:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA5B5F8425CF943946BAD7AD7B2BAFF61D39F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343194   (218187) от 06.12.2019
-
-Chris Rea - Blue Street (Five Guitars) (2003) Reissue 2019 [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218187.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Blue Miles 6:18
-2. Blue Street 7:04
-3. Big C 5:49
-4. Big C Bid Sea 2:42(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAEE5D41A5464C862F74C9C3332C81E279312918
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343250   (218100) от 06.12.2019
-
-Chris Rea - Still So Far To Go...The Best Of Chris Rea (2009) 2CD [FLAC|Lossless|image + .cue] <Blues, Pop Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218100.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Fool (If You Think It's Over)
-02. On The Beach
-03. Let's Dance(   Читать дальше...   )Жанр: Blues, Pop RockПродолжительность: 02:33:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B41FF2D3FB92B4FAF039A145D57B1462DEA041
 ```
 
 https://mybot314.ru/tekegram_catalog/

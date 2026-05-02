@@ -1,3 +1,61 @@
+###  Публикация: 1110637   (852179) от 03.03.2017
+
+Don Ralke And His Orchestra - But You've Never Heard Gershwin With Bongos & The Savage And The Sensuous Bongos (1960) 2008, Collectables [FLAC|Lossless|tracks + .cue] <Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Fascinating Rhythm [02:56]
+ 02.How Long Has This Been Going On [02:30]
+ 03.Clap Yo' Hands [03:02]
+ 04.Our Love Is Here To Stay [03:40](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 01:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE16DA4A23474808B048D492F5B98A3B916C3479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1110167   (852085) от 03.03.2017
+
+Dave Brubeck - The Real... Dave Brubeck (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. Take Five
+2. When You Wish Upon a Star
+3. Taking a Chance on Love(   Читать дальше...   )Жанр: JazzПродолжительность: 03:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0A5671286FBA914FBF5B76F99F0BBC6158035C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1377586   (851950) от 22.04.2020
 
 Ehud Asherie With Harry Allen - Lower East Side (2013) Posi-Tone Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
@@ -685,64 +743,6 @@ Kenny Burrell - Blue Lights, Volume 2 (1958) Remaster, 2000, Toshiba[FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B53210A759CE283B491B49E97351864B5890DBE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002894   (847008) от 01.04.2016
-
-Ceu - Tropix (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfume Do Invisivel
-02. Arrastarte-Ei
-03. Amor Pixelado
-04. Varanda Suspensa(   Читать дальше...   )Жанр: Vocal Jazz, Pop, SoulПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C12B319FB6335B2E218A14D695DE7127F8025560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111742   (846806) от 06.03.2017
-
-Isham Jones - 1929-1934 (2008) Jazz Oracle [FLAC|Lossless|tracks + .cue] <Early Jazz, Dance Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When My Sugar Walks Down The Street [03:06]
- 02.Jealous [03:31]
- 03.Miss Hannah [03:09]
- 04.There's A Wah-Wah Gal In Agua Caliente [03:11](   Читать дальше...   )Жанр: Early Jazz, Dance BandПродолжительность: 01:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14148B77A6F835E9388EFFACA827769540B52A5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

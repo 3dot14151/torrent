@@ -1,3 +1,61 @@
+###  Публикация: 1680354   (134209) от 29.11.2023
+
+Cal Tjader - Several Shades Of Jade & Breeze From The East (1963) 1997, Verve [FLAC|Lossless|tracks + .cue] <Latin Jazz, Cool, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fakir [3:19]
+02. Cherry Blossoms [5:02]
+03. Borneo [4:14]
+04. Tokyo Blues [4:14](   Читать дальше...   )Жанр: Latin Jazz, Cool, World FusionПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F653F495FDAA75AB887055357DD2F88438C83609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680637   (133979) от 30.11.2023
+
+The Jack Wilson Trio - Live at the Pied Piper + 2 (1967) 2011, Interplay [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulin' (Introduction) [0:36]
+02. Impressions [5:16]
+03. Mercy, Mercy, Mercy [4:55]
+04. I'll Drown in My Own Tears [4:31](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505C2676BD7513721A5091BBF021A5F6D6A18D87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1680634   (133974) от 30.11.2023
 
 Dorothy Ashby - The Jazz Harpist (1956) 1992, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop, Mainstream Jazz>
@@ -716,70 +774,6 @@ Scott Henderson, Steve Smith, Victor Wooten - Vital Tech Tones (1998) [WavPack|L
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596118   (131562) от 30.12.2012
-
-VA - JazzCD.no - Jazz From Norway 5th set (2012) 3CD[FLAC|Lossless]<Abstract, Contemporary Jazz, Jazz-Funk, Acid Jazz, Modern Classical Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zanussi 5 - The Afreet [06:50]
-02. Motland / LonbergHolm / Solberg / Gjerstad - NBGB [07:23]
-03. Sphinx - On Th e Rise [03:28]
-04. Sekstett - 6.1 [05:01]
-05. Splashgirl - Ravine [04:25]
-06. Huntsville - Star Spangled Pillow [04:52]
-07. 1982 - 01:53 [01:54]
-08. Ballrogg - Swedish Country [08:00]
-09. Pocket Corner - Naked Horse Ride [03:40]
-10. Mari Kvien Brunvoll - Wake Up [06:45](   Читать дальше...   )Жанр: Abstract, Contemporary Jazz, Jazz-Funk, Acid Jazz, Modern Classical JazzПродолжительность: 01:15:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682483   (131491) от 07.12.2023
-
-Toshiyuki Miyama & The New Herd - A Love Story: This Is Latin Music (1970) 2006, Nippon Crown [FLAC|Lossless|tracks + .cue] <Big Band, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tico Tico [2:35]
-02. El Cumbanchero [2:54]
-03. Mambo No.5 [2:26]
-04. Besame Mucho [3:00](   Читать дальше...   )Жанр: Big Band, Latin JazzПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7914E4F49F96AD61FA9118BFB54BEAB50A14261
 ```
 
 https://mybot314.ru/tekegram_catalog/

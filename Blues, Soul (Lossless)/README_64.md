@@ -1,3 +1,119 @@
+###  Публикация: 1564581   (499710) от 19.07.2022
+
+Seth Loveless - Win or Lose (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now I Know (4:32)
+02. Win or Lose (5:28)
+03. I’m Okay (5:02)
+04. Friends We’ll Remain (5:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E70BC28572335546AD98945D4E55075C6EF1832C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564571   (499709) от 19.07.2022
+
+Dennis Johnson - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Down (4:29)
+02. Talk to You (3:23)
+03. Revelation (3:41)
+04. Salvation Bound (3:16)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA9903B8F8F09E9FCBF4B40DB71BBD12C35257A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564579   (499707) от 19.07.2022
+
+Patty Tuite - Hard Case Of The Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothin' But Trouble (3:12)
+02. I Just Wanna Play (2:36)
+03. Glad I'm Through With You (4:11)
+04. Diggin' Up Outta This Hole (2:43)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:38:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B7480AA9E0C5934225EF3496C877A250E1B54AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564575   (499706) от 19.07.2022
+
+Kozmic Blue - Odyssee Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kozmic Blues (5:51)
+02. Might Makes Right (7:16)
+03. I'll Keep Trying (3:56)
+04. On Slick Avenue (5:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:22:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F38F3EAFA06982C1F93EDB13FC76EE770EE9A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1564576   (499703) от 19.07.2022
 
 Mick Kolassa - I'm Just Getting Started! (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -646,133 +762,6 @@ Billy The Kid & The Regulators - I Can't Change (2015) [FLAC|image+.cue]<Electri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B42E334C26935F55840C147C49A0FE40C4AF8EFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159206   (486141) от 19.08.2017
-
-Adriana Evans - Walking With The Night (2010) Expansion Records [FLAC|Lossless|tracks + .cue] <R'n'B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting [04:16]
-02. Suddenly [04:16]
-03. Midnight [04:02]
-04. Love Me On The One [04:13](   Читать дальше...   )Жанр: R'n'B, SoulПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BEBD220E5F1A7CE7574D80219CA990AD3D00FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1055669   (486113) от 23.09.2016
-
-Magic Red - 4 Альбома (2003 - 2011) [FLAC|Lossless|image + .cue] <Blues-Rock, Rock, Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open Road   [03:41]
-02. Valentine   [04:03]
-03. H2O   [03:15]
-04. Little Red Ball   [03:56](   Читать дальше...   )Жанр: Blues-Rock, Rock, InstrumentalПродолжительность: 03:09:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C56E537D0975FEF59E16E8131805E2D0216D6CA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544157   (485264) от 10.09.2012
-
-Blues Trio - This Train (1994) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_485264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Train/My Babe
-02. Big Mama Boogie
-03. Belgrade Blues
-04. Mama Keep Your Big Mouth Shut
-05. Walk On
-06. Custard Pie
-07. 900 Miles From My Home
-08. Joe's Run
-09. Room To MoveЖанр: BluesПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545731   (483342) от 11.09.2012
-
-Bo Wilson Band - Magic Man (1996) [APE|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic Man
-02. Chevrolet
-03. I’m Tore Down
-04. Trick Bag
-05. Boogie Man
-06. Stormy Monday
-07. Don’t Take Advantage Of Me
-08. Statesboro Blues
-09. Shake The Room
-10. If You Have To Know(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

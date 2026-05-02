@@ -1,3 +1,177 @@
+###  Публикация: 1658504   (191294) от 08.09.2023
+
+Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various - "Party Time" (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Latin, Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191294.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mambo Jambo (Que rico el mambo)/Mambo No. 8
+A2 Siboney/Maria-La-O
+A3 Ay Mama Ines (Mama Ines)/Carioca
+A4 Don Juan/Yira Yira(   Читать дальше...   )Жанр: Latin, Jazz, Easy ListeningПродолжительность: 01:00:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5279328D692FF53B1057A0E3BF3C053F93BE3F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012354   (191028) от 06.11.2022
+
+Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Here Comes The Nights
+02. Got To Get You Into My Life
+03. Rain
+04. Tell All The World About You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658727   (190968) от 09.09.2023
+
+Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190968.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Remember
+A2 Drivin' Drivin'
+A3 U Can't Stand It
+A4 Looser(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059507   (190749) от 07.11.2022
+
+George Benson - Tell It Like It Is (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Funk, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190749.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Soul Limbo
+A2 Are You Happy?
+A3 Tell It Like It Is
+A4 Land Of 1000 Dances(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:33:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F901F4E26586C0E9AA9BDB3AA95AC0BAEC1D2340
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658993   (190636) от 10.09.2023
+
+OSI - Дискография (4 releases) (2003-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190636.jpg" />
+</div>
+
+
+###  Подробнее
+
+OSI — американская прогрессив-рок-группа, первоначально созданная гитаристом Fates Warning Джимом Матеосом в 2002 году.2003 - Office of Strategic Influence
+2006 - Free
+2009 - Blood
+2012 - Fire Make ThunderЖанр: Progressive MetalПродолжительность: 04:42:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658763   (190478) от 10.09.2023
+
+Village People - Go West (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Funk, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190478.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 In The Navy
+A2 Get Away Holiday
+A3 Citizens Of The World
+B1 Y.M.C.A.(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCC63DF0768043A9CFC2C9264393260FE0CED17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1660218   (189703) от 12.09.2023
 
 The Royal Military School Of Music - Gilbert & Sullivan - Selectiohs from "The Gondoliers" and "Yeomen Of The Guard" (1959) [FLAC 1.0|24/96||side-tracks|Vinyl-Rip] <Class ...
@@ -565,178 +739,6 @@ Heavenly — пауэр-метал-группа из Франции, основ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DF8B9D744853AD7EC24D5300D0FD0381DE80251
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591175   (187128) от 18.11.2022
-
-Rage Against The Machine - Studio Albums (4 releases) (1992 - 2000) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187128.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rage Against the Machine (RATM) — американская рок-группа из Лос-Анджелеса, штат Калифорния. Образованная в 1991 году, группа состоит из вокалиста Зака де ла Роча, басиста и бэк-вокалиста Тима Коммерфорда, гитариста Тома Морелло и барабанщика Брэда Уилка.1992 - Rage Against The Machine
-1996 - Evil Empire
-1999 - The Battle Of Los Angeles
-2000 - RenegadesЖанр: Alternative Rock, Funk MetalПродолжительность: 03:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57E928B10BFEAB8F77CE1EED003113981F02D571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546406   (187108) от 20.09.2023
-
-Heathen - Studio Albums (5 releases) (1987 - 2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Speed/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187108.jpg" />
-</div>
-
-
-###  Подробнее
-
-Heathen — группа из США, играющая в стиле спид/трэш-метал. Группа была основана в 1984 году гитаристом Ли Элтусом и ударником Карлом Сэкко.1987 - Breaking the Silence
-1991 - Victims of Deception
-2010 - The Evolution Of Chaos
-2020 - Empire Of The BlindЖанр: Technical Speed/Thrash MetalПродолжительность: 04:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3F67AB7F0FAA9CAD2F25CBEEE20A8E1EA2D17AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572601   (187065) от 20.09.2023
-
-Myrath - Дискография (8 albums) (2005-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Oriental Progressive Metal, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_187065.jpg" />
-</div>
-
-
-###  Подробнее
-
-Myrath (араб. ميراث‎, наследие) — ориентал-метал-группа, основанная в 2001 году в Тунисе.2005 - Double Face
-2007 - Hope
-2010 - Desert Call
-2011 - Tales of the SandsЖанр: Oriental Progressive Metal, Power MetalПродолжительность: 07:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB5B44803276518C7572F62433471C016577E89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663324   (186830) от 21.09.2023
-
-The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell Ceremonial Theater And Chamber Music (1975) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186830.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Trumpet Overture From «The Indian Queen»
-Suite From Abdelazer
-A2 (a) Overture - Allegro
-A2 (b) Rondeau(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663746   (186451) от 23.09.2023
-
-The Halle Orchestra · Conducted by Sir John Barbirolli - Sibelius - Finlandia · Karelia Suite · Valse Triste, etc. (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Romantic>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186451.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Symphonic Poem ''Finlandia'', Op. 26
-''Karelia'' Suite, Op. 11
-A2 Intermezzo
-A3 Ballade(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:50:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3340FE0ABF6323E7917186F9C08D0600F10BC1DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663882   (186440) от 23.09.2023
-
-Mortemia - Studio Albums (2 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mortemia — готик-метал сайд-проект Мортена Веланда, норвежского музыканта, который является одним из основателей Tristania и основателем Sirenia.2010 - Misere Mortem
-2022 - The Pandemic Pandemonium SessionsЖанр: Symphonic Gothic MetalПродолжительность: 01:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0CD45A1431C2E03A5ADEBD2348E1D64C41CE36
 ```
 
 https://mybot314.ru/tekegram_catalog/

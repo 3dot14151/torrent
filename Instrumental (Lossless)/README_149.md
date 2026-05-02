@@ -1,3 +1,119 @@
+###  Публикация: 1813094   (7202) от 17.08.2025
+
+Jelly Ellington - Glow (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Glow (4:07)
+02.  Sail On (3:45)
+03.  Somebody To Love (4:38)
+04.  Nick Perri - The Night (feat. Nick Perri) (4:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5E8A17A90CDB982ABB37736FB2D9489514D69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813085   (7199) от 17.08.2025
+
+DB Cohen - On Target (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All In Vain (2:32)
+02.  For The Love Of Ella (2:13)
+03.  Hiding To Nothing (3:33)
+04.  Walk On (3:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC1B79CA1E8459065ECEA8CD36BF5C5F624367F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813091   (7198) от 17.08.2025
+
+James Day - Frequencies (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  One More River (3:31)
+02.  Work Song (4:01)
+03.  Area Grey (3:40)
+04.  Ghost Train (4:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9013FD3FB49310262AC0BC5043C9C58A89C0F498
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813013   (7195) от 17.08.2025
+
+Angelique Francis - Not Defeated (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sugarcane Jukejoint (5:10)
+02.  Christone "Kingfish" Ingram - Escape (4:31)
+03.  Watch Me Grow (3:36)
+04.  Not Defeated (4:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD2CF46F9DF2F21DB5553C4EE554BCD25A70311C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813120   (7193) от 17.08.2025
 
 The Homewreckers - 6th & Union (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -627,122 +743,6 @@ Monster Mike Welch - Keep Living Til I Die (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBE42B81A1C928457EB626E21D11D163E55C4ACB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818003   (2915) от 13.09.2025
-
-Mikey Junior - Tribute to Aleck "Rice" Miller (Sonny Boy Williamson) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eyesight to the Blind (2:43)
-02.  Don't Start Me Talkin' (2:39)
-03.  She Got Next to Me (2:44)
-04.  Little Village (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:105764766C37119D8B0D0F92E0C58171C90053A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817990   (2914) от 13.09.2025
-
-Antonio Vergara - Vergara Street (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pay Day (3:32)
-02.  Asphalt Brothers (3:08)
-03.  My Name Is Heritage (5:13)
-04.  The Street (3:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:20:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E5A33D21FF15CACF6297625635759995D5FAF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818002   (2911) от 13.09.2025
-
-Michele Biondi - World Traveler (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Joy (4:28)
-02.  Cotton & Moonshine (3:10)
-03.  Mrs. Camelia (4:12)
-04.  Lonely and Lost (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBE5D4B109FD58A54E1AB755357BC2D241F2FD5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1818014   (2910) от 13.09.2025
-
-Willie Phoenix - Happy Vibrations (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Happy Vibrations (2:51)
-02.  In The Soul Of The Night (4:01)
-03.  She's A Little Like You (3:50)
-04.  Cherry Little Sherry (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69428C249A0E3A555A3B859406FE16BF60CECB47
 ```
 
 https://mybot314.ru/tekegram_catalog/

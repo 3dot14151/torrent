@@ -1,3 +1,38 @@
+###  Публикация: 554609   (436304) от 01.10.2012
+
+Johann Sebastian Bach-Violin Double Concerto (BWV 1041-43, 1056): English Chamber Orchestra violin Pinchas Zukerman (1717-1726)/1991, BMG Records/[FLAC|Lossless]<Chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436304.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto a-moll BWV 1041
+1. Allegro 3:53
+2. Andante 6:34
+3. Allegro assai 3:55
+Concerto E-Dur BWV 1042
+4. Allegro 7:54
+5. Adagio 6:23
+6. Allegro assai 2:35
+Concerto g-moll BWV 1056
+7. Allegro 3:31(   Читать дальше...   )Жанр: ChamberПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D931AF56A35A08EBE569AD17473B8955137374B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944329   (435984) от 09.10.2015
 
 Mahler - Symphony No.10 (Sir Simon Rattle & Bournemouth Symphony Orchestra) (1985) [FLAC|image +.cue]<Classical, Romantic Period, Symphony>
@@ -713,35 +748,6 @@ Septet in E flat major, op.20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:067331F274A926CFFCF1CF74A0A86A9E98343345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167546   (416639) от 20.09.2017
-
-David Garrett - Rock Revolution (2017) Deluxe Edition [MP3|320 Kbps] <Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_416639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Air Tonight
-02. Born In the USA
-03. Stairway To Heaven
-04. Superstition(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED2D51761324C319CB4A6E5EFFB02736ACCF391
 ```
 
 https://mybot314.ru/tekegram_catalog/

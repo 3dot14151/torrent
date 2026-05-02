@@ -1,3 +1,61 @@
+###  Публикация: 1192133   (263396) от 16.12.2017
+
+Seal - Standards (2017) Japan SHM-CD [FLAC|Lossless|image + .cue] <Vocal Jazz, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Luck Be A Lady
+02 Autumn Leaves
+03 I Put S Spell On You
+04 They Can't Take That Away From Me(   Читать дальше...   )Жанр: Vocal Jazz, Funk, SoulПродолжительность: 00:55:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:062D9D8FA4A8C4FEA93AC5E5C072DFFD0BE7D837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1340706   (263302) от 25.11.2019
+
+Farmers Market - Slav to the Rhythm (2012) [FLAC|Lossless|tracks + .cue] <Jazz Rock, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slav to the Rhythm (07:13)
+02. You're the Prototypical (06:04)
+03. Friend (01:31)
+04. Dusty Traditions (05:23)(   Читать дальше...   )Жанр: Jazz Rock, ExperimentalПродолжительность: 00:53:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9110B32C6F803AE18C72C663E8EAF531C0AE37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340744   (263296) от 25.11.2019
 
 Radare - Der Endless Dream (2019) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Experimental Jazz, Drone>
@@ -687,64 +745,6 @@ Harry James - Things Ain't What They Used To Be (1948, 1949) 1989, Object Enterp
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32C673B5829CB64C7E0D5C80378378CBC2676067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193527   (262000) от 22.12.2017
-
-Lewis Nash - Rhythm Is My Business (1993) Evidence Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Try [07:05]
-02. 106 Nix [10:18]
-03. Sing Me a Song Everlasting [08:12]
-04. My Shining Hour [03:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6E15D3322AE5BDC8622CCA09DEC3492B0AF285F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193722   (261999) от 22.12.2017
-
-Eric Alexander & Vincent Herring - Friendly Fire: Live At Smoke (2012) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pat n Chat [08:18]
-02. Sukiyaki [09:51]
-03. Inception [08:47]
-04. Dig Dis [08:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AB5765B92D1579AEF5DEA25FA23635B6D6E1B0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

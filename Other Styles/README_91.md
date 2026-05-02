@@ -1,3 +1,206 @@
+###  Публикация: 1303521   (570666) от 22.05.2019
+
+Vyanah - Zen Relaxation (2019) [MP3|320 Kbps] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ancient Spirit (5:08)
+02.Echoes of Life (6:24)
+03.The River of Wisdom (5:38)
+04.Silent Mind (4:40)(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:007BD0616FE446106D698AFA5A11DAE3B435ACD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554702   (570367) от 03.06.2022
+
+TagTraumer - Zuviel ist nicht genug (2001) [MP3|320 Kbps] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tausend Tage
+02. Ich vermisse Dich
+03. Träumen und Hoffen
+04. Für immer(   Читать дальше...   )Жанр: Enigmatic, New Age
+Страна: GermanyПродолжительность: 00:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD127F635E61401AF66D2935104CBD2BA1FE0EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554891   (570249) от 03.06.2022
+
+Angel X (Andy Jonas) - 8 Relises (1993-2021) [FLAC|Lossless|WEB-DL|tracks|tracks + .cue] <Enigmatic, Pop Rock, Synth Pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light the Stars [00:02:59]
+02. Return to Innocence [00:03:07]
+03. I Will Never Let You Go [00:03:18]
+04. Reach Your Heart [00:02:58](   Читать дальше...   )Жанр: Enigmatic, Pop Rock, Synth PopПродолжительность: 8 CD, 02:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA4F757954FCF4EC42D70BDA43A35BF134467074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555393   (570244) от 03.06.2022
+
+Olga Stankevich - Дискография (2010-2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inspiration (3:40)
+02. Inspiration (Justin Fry Extended Club Mix) (6:14)
+03. Inspiration (Justin Fry Radio Edit) (4:00)Жанр: Instrumental Pop, PianoПродолжительность: 02:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A2F6C47C00312DEEA287EDD248BD55C346DC2A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303459   (570187) от 22.05.2019
+
+Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music from the HBO Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title (From Game Of Thrones: Season 8) (01:52)
+02. The Rains of Castamere (03:44)
+03. Arrival at Winterfell (03:44)
+04. Flight of Dragons  (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FAAEB3E9129D16814E9250102FF6826B60ADEA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303546   (570180) от 22.05.2019
+
+Ramin Djawadi, VA - Game of Thrones / Игра престолов: Season 1-8 (Collection Music from the HBO Series) (2011-2019) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maren Morris - Kingdom of One (03:36)
+02. SZA, The Weeknd, Travis Scott – Power is Power (03:31)
+03. The Lumineers - Nightshade (03:01)
+04. Ellie Goulding - Hollow Crown (02:51)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 11:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FE723375E976B262D49ACE38CEAEDFA5E1567C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922026   (569802) от 28.07.2015
+
+Jean Michel Jarre - Cities In Concert Houston Lyon (2014) Live [MP3|320 кб/с]<Electronic>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene Part 5 (1:16)
+02. Ethnicolor (9:39)
+03. Magnetic Fields Part 1 (4:35)
+04. Souvenir Of China (3:32)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B5D6E16D10E1C169AD52FCC221461F1CCB762F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 528069   (569357) от 30.07.2012
 
 Medusa - Exploration (2000) [MP3|320 кб/с]<New age,Enigmatic>
@@ -572,227 +775,6 @@ Katee Kross - Beautiful Dreamer (2016) [FLAC|Lossless|tracks] <Country>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:56BE07D9A2DA62C8B2561ABB4B34EC2F786535C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044088   (564895) от 20.08.2016
-
-FAUN - Midgard (2016) Deluxe Edition [MP3|320 Kbps] <Folk, Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midgard Prolog
-02. Federkleid
-03. Sonnenreigen (Lughnasad)
-04. Alba II Intro(   Читать дальше...   )Жанр: Folk, PopПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8237C27FA9D84FA5188450C287AE16BADAE9064D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529934   (564594) от 01.08.2012
-
-Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [MP3|320 кб/с]<OST Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564594.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lolita (2:22)
- 2. Love in the Morning (3:38)
- 3. I'm in the Mood for Love (2:57)
- 4. Amor (2:58)
- 5. Take Me to Bed (2:53)
- 6. Lolita on Humbert's Lap (3:36)
- 7. Tain't What You Do (It's the Way That You Do It) (2:57)
- 8. Lolita in My Arms (1:38)
- 9. Requiescant (2:13)
- 10. Civilization (Bongo, Bongo, Bongo) (3:20)(   Читать дальше...   )Жанр: OST ScoreПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0A0C41614EA60C659374A3B6B25F6371E262BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 923497   (564488) от 31.07.2015
-
-VA - Simply Chillout (2005) 4CD[FLAC|image+.cue]<Electronic, Ambient, Pop, Rock, Classica>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Большая проблема была с определением раздела для этого релиза. Все четыре диска хоть и объединены общим названием, но каждый из них в соответствии со своим названием и к классики отнести можно и к музыкальному сопровождению фильмов и к электронной музыке. Но все же все они предназначены для того, чтобы отдых слушающего был полноценным. А ведь перед выходными это (   Читать дальше...   )CD1 - Chilled Beat
-CD2 - Smooth Pop Classics
-CD3 - Film&TV Themes
-CD4 - Classical ChilloutЖанр: Electronic, Ambient, Pop, Rock, ClassicaПродолжительность: 04:25:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A54CC10C0C8F0D5E4558BCB9B6550CB7A31B8A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304483   (563984) от 26.05.2019
-
-Michele McLaughlin - Memoirs (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Thankful
-02 Pure Joy
-03 Dark Moon
-04 Triumph(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1F4540FFD130A90827233666B1F51AE188C669
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152193   (563145) от 24.07.2017
-
-Joel Kanning - Ubiquitous Frequency Oscillation (UFO) Vol.1,2 (2009-2017) [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Departure (1:41)
-02. Cosmic Rhythms (6:00)
-03. Redshift (3:40)
-04. Dawn Of Time (5:47)(   Читать дальше...   )Жанр: Electronic, New Age, Downtempo |Продолжительность: 01:50:00 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141217946456D8B3CF30A13D064CB06BD2051F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528328   (562951) от 02.08.2012
-
-David & Steve Gordon - Sacred Spirit Drums (1994) [MP3|320 кб/с]<New Age, Native American, Spiritual, Healing, Nature>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562951.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sunrise Ritual
-2. Calling The Sacred Beat
-3. Shaman's Dance
-4. Path With A Heart
-5. Within The Cloud Lodge
-6. Spirit Vision
-7. Mother Earth, Father Sky
-8. Gift Of The Eagle
-9. Flowering Tree
-10. Rainbow HoopЖанр: New Age, Native American, Spiritual, Healing, NatureПродолжительность: 00:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C56A2BBF02EF28B63AB47D237DD49CD9B374FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529933   (562947) от 02.08.2012
-
-Nelson Riddle & Bob Harris - Lolita / Лолита (Режиссёр Stanley Kubrick) (1962) [MP3|320 кб/с]<OST Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562947.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Bob Harris - Lolita Main Title (2:00)
- 2. Nelson Riddle - Quilty (Quilty's Theme) (2:55)
- 3. James Mason, Peter Sellers - Dialogue: Quilty As Charged (0:51)
- 4. Nelson Riddle - Ramsdale (Arrival In Town) (0:47)
- 5. Shelley Winters, James Mason - Dialogue: Cherry Pies (0:30)
- 6. Nelson Riddle - Lolita Ya Ya (3:26)
- 7. Sue Lyon, Shelley Winters - Dialogue: Hula Hoop (0:12)
- 8. Nelson Riddle - Quilty's Caper (School Dance) (1:52)
- 9. Peter Sellers, Shelley Winters - Dialogue: A Lovely, Lyrical, Lilting Name (0:25)
- 10. Paul Mann & Steohen Weis - Put Your Dreams Away (for Another Day) (3:03)(   Читать дальше...   )Жанр: OST ScoreПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E58585C16733D801484100295AD87D8E44CB33
 ```
 
 https://mybot314.ru/tekegram_catalog/

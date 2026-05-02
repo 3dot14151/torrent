@@ -1,3 +1,119 @@
+###  Публикация: 1818003   (2915) от 13.09.2025
+
+Mikey Junior - Tribute to Aleck "Rice" Miller (Sonny Boy Williamson) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eyesight to the Blind (2:43)
+02.  Don't Start Me Talkin' (2:39)
+03.  She Got Next to Me (2:44)
+04.  Little Village (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105764766C37119D8B0D0F92E0C58171C90053A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817990   (2914) от 13.09.2025
+
+Antonio Vergara - Vergara Street (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Pay Day (3:32)
+02.  Asphalt Brothers (3:08)
+03.  My Name Is Heritage (5:13)
+04.  The Street (3:49)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:20:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E5A33D21FF15CACF6297625635759995D5FAF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818002   (2911) от 13.09.2025
+
+Michele Biondi - World Traveler (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Joy (4:28)
+02.  Cotton & Moonshine (3:10)
+03.  Mrs. Camelia (4:12)
+04.  Lonely and Lost (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE5D4B109FD58A54E1AB755357BC2D241F2FD5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818014   (2910) от 13.09.2025
+
+Willie Phoenix - Happy Vibrations (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_2910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Happy Vibrations (2:51)
+02.  In The Soul Of The Night (4:01)
+03.  She's A Little Like You (3:50)
+04.  Cherry Little Sherry (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69428C249A0E3A555A3B859406FE16BF60CECB47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1818060   (2756) от 14.09.2025
 
 The Bleary Eyed Bastards - Good Enough for Who It's For (2025) (2CD) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Robert Urban & The Evil Eyes - If I Had My Way (2025) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90260B7D7FDCBD4690C90539ACE9751B9EA03458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819141   (1773) от 20.09.2025
-
-Shirley Johnson - Selfish Kind of Gal (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I'm Going To Find Me A Lover (3:53)
-02.  Selfish Kind Of Gal (3:47)
-03.  You Should't Have Been There (5:20)
-04.  Just Like That (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF9DAE3D1F256B4E7E1897C1C40B679CE92ECBC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819146   (1771) от 20.09.2025
-
-Special Hot Sauce - Go Get Gone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Go Get Gone (3:13)
-02.  Little Pretty Baby (2:32)
-03.  Wanna Keep You (4:07)
-04.  I Like Your Style (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48C85FD4FC388432A84A529C7D3C054964D6219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819136   (1769) от 20.09.2025
-
-Piper and The Hard Times - Good Company (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Good Company (3:57)
-02.  Now I'm Lovin' You (4:13)
-03.  Tear It Down (5:15)
-04.  Cowboy Gucci (3:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2FC19E658570FF4F6737C9412BD722FC2AC23CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1819072   (1767) от 20.09.2025
-
-Mike Zito & Albert Castiglia - Help Yourself (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help Yourself
-02. Can’t Be A Prophet
-03. Alive
-04. Soulard Serenade(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD128E59560989EBC81A67832FB690C8E4B5E03
 ```
 
 https://mybot314.ru/tekegram_catalog/

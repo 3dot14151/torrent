@@ -1,3 +1,176 @@
+###  Публикация: 702389   (469994) от 21.09.2013
+
+Хвост & Аукцыон - Чайник вина (1992) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок / Авангард>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Орландина (4:20)
+A2. И ночь и день (2:11)
+A3. Тайна (3:01)
+A4. Слепой (1:57)(   Читать дальше...   )Жанр: Рок / АвангардПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506E6A04F5BB2BBB92AFF19BB721F51E5BE209C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306433   (468008) от 05.08.2022
+
+T. Texas Tyler - His Great Hits (1967) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468008.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Courtin' In The Rain
+A2 I Ain't Got A Lick Of Sense
+A3 Remember Me
+A4 Filipino Baby(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:28:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:238BDC466E87923AECC91BE43A9655112EB54803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1246023   (467664) от 08.09.2018
+
+Jack Dorsey's Big Band Gold - 50 Years Of Swing (The Ronco Music Library) (1983) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, Big Band, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tape 1
+A1 Night Train
+A2 Skyliner
+A3 Carnival(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 01:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62F7E442900F898B14CE8CC31E4B9BC3A627BEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245021   (467442) от 08.09.2018
+
+Peter Gabriel - Up (2002) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive Rock, New Wave, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Darkness
+02 - Growing Up
+03 - Sky Blue
+04 - No Way Out(   Читать дальше...   )Жанр: Progressive Rock, New Wave, PopПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B068C1F660AB66DB123712053D37A44DE2A8A52E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245731   (467329) от 08.09.2018
+
+Genesis - Anthology 1970-1998 (2007) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive Rock, AOR, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - On The Shoreline
+02 - Hearts On Fire
+03 - Do The Neurotic
+04 - Feeding The Fire(   Читать дальше...   )Жанр: Progressive Rock, AOR, PopПродолжительность: 45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C1389C8554C8F5BC14F2F0ACA1441F54CFCFFCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568222   (464086) от 07.08.2022
+
+Down (Phil Anselmo, Pantera) - Дискография (6 releases) (1995 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Sludge Metal, Stoner Metal, Southern Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Down — метал-группа из США, основанная в 1991 году в Новом Орлеане. Первоначально являлась сайд-проектом музыкантов Pantera, Crowbar, Corrosion of Conformity и Eyehategod, но со временем превратилась в полноценную группу.1995 - Nola
+2002 - A Bustle in Your Hedgerow
+2007 - Over the UnderЖанр: Sludge Metal, Stoner Metal, Southern RockПродолжительность: 05:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:735A1C9C5D74E5EAACCD17ECD327F5DE6C9684C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059513   (462105) от 04.10.2016
 
 Jack Bruce - Songs For A Tailor (1969) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Art Rock, Prog Rock>
@@ -569,180 +742,6 @@ Rattle That Lock («Греми замкОм») — четвёртый сольн
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AC1920B556EC91436F70CF88776260920C8C67D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853402   (441849) от 20.09.2018
-
-VA - Антология советского киношлягера - Любимые песни из кинофильмов: Обыкновенное чудо и др. (1996) [FLAC 2.0 (image+.cue)|16/44,1 (MC-Rip)]<Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441849.jpg" />
-</div>
-
-
-###  Подробнее
-
-Песни и музыкальная тема из т/ф "Двенадцать стульев"
-
-01. Белеет мой парус - Андрей Миронов
-02. Танго любви - Андрей Миронов(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED43C6456353DABE26831DCE11BD04540C1EEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164020   (441150) от 09.09.2017
-
-Pink Floyd - Wish You Were Here (2016) 1975 [DSD2.0|5,64MHz/1bit|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine On You Crazy Diamond (1 - 5) (13:28)
-02. Welcome To The Machine (7:36)
-03. Have A Cigar (5:10)
-04. Wish You Were Here (5:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACA3DF70C50ECF5949B642CB3C139DAE637F1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570537   (440363) от 18.08.2022
-
-Children of Bodom - Studio Albums (12 releases) (1997 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Children of Bodom — финская англоязычная группа из города Эспоо, исполнявшая музыку в стиле мелодик-дэт-метал с элементами различных других направлений метала.1997 - Something Wild
-1999 - Hatebreeder
-2000 - Follow The Reaper
-2003 - Hate Crew Deathroll(   Читать дальше...   )Жанр: Melodic Death/Power MetalПродолжительность: 10:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:187216DAFA8327AEF0CB682A3E84BD586894F08B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323333   (437700) от 03.09.2019
-
-Audrey Hepburn, Rex Harrison - My Fair Lady (The Original Sound Track Recording) (1964) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Soundtrack, Musical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture
-02. Why Can't The English?
-03. Wouldn't It Be Loverly
-04. I'm Just An Ordinary Man(   Читать дальше...   )Жанр: Soundtrack, MusicalПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CB27A7C81D69A4BC7AADFDC0284D0A3CF12253
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063057   (436936) от 15.10.2016
-
-Rainbow - Difficult to Cure (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436936.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. I Surrender (4:05)
-A2. Spotlight Kid (4:56)
-A3. No Release (5:37)
-A4. Magic (4:09)(   Читать дальше...   )Производство: Polydor - 20MM 9233Жанр: Hard RockПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A1D7CEE68453C8F35F1F24CF03080D1DAEF669E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062947   (436773) от 15.10.2016
-
-Porcupine Tree - The Delerium Years 1994-1997 (2016) Box Set [FLAC 2.0|192/24|image+cue|Vinyl-Rip]<Art Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_436773.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Sky Moves Sideways (1995)
-Signify (1996)
-Come Divine (1997)
-Additional Material (EP) (2016)Жанр: Art RockПродолжительность: 04:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2E64ACFFC0C28BED4A082D7AE7F507D8C2E85A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

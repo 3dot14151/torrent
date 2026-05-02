@@ -1,3 +1,61 @@
+###  Публикация: 1231285   (607054) от 17.06.2018
+
+VA - 110 Electro House: Most Rated June (2018) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607054.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marc Moosbrugger - From Now On
+002. Damon Rush - Where U At
+003. The Sloppy 5Th's - Tushy (Original Mix)
+004. Nora En Pure - Sphinx(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 08:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3FAB282D7BDE9A016C5CE68183C34276B0AF073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1231282   (607048) от 17.06.2018
+
+VA - Sexy Deep House Grooves (2018) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607048.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Peter Brown - Alegria
+002. Roberto Stecini - Deep In My Soul
+003. Umut Dogan - Can You Feel It
+004. Savi Leon - Get Serious (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:13:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6A16AA8736C5A1EFE2DC077DD4CB53AA4D3050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1231294   (606965) от 17.06.2018
 
 VA - Record Super Chart 541 (2018) [MP3|320 Kbps] <House, Dance>
@@ -697,64 +755,6 @@ VA - Record Super Chart 23.04.2022 [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D742FCF6B948147F42A7C9177F93CEED4B715013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231639   (604076) от 19.06.2018
-
-VA - Club Dance Ambience Vol.152 (2018) [MP3|256-320 Kbps] <Dance, Club House, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604076.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 4aKkyboy - Ула ла (Original Mix)
-002. 10Digits & Mellow Dee - Closer (feat. Mellow Dee) (Original Mix)
-003. Adassiya - La Vida (Original Mix)
-004. Addal - Lies (Original Mix) (Original Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF717C96F9C5820BCC15EB2D0288871551DC65B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297329   (604041) от 22.04.2019
-
-VA - Hits of My Soul Vol. 46 (2019) [MP3|320 кб/с]<DubStep, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apollo 440 - Ain't Talkin' 'Bout Dub (04:30)
-02. Flight Facilities - Crave You (Adventure Club Dubstep Remix) (03:58)
-03. Steve Aoki feat. Wynter Gordon - Ladi Dadi (04:46)
-04. T.I. feat. Christina Aguilera - Castle Walls (Fauxs Dub Step Remix) (05:15)(   Читать дальше...   )Жанр: DubStep, Electronic •Продолжительность: 03:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B27B0CB7938EC6F762946663FB94AFB10C09443
 ```
 
 https://mybot314.ru/tekegram_catalog/

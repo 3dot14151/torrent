@@ -1,3 +1,61 @@
+###  Публикация: 1604727   (1045195) от 15.01.2023
+
+Wild Bill Davison - Quadromania (1943 - 1952) 4CD, 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045195.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. At The Jazz Band Ball [3:01]
+02. That’s A Plenty [4:18]
+03. Baby, Won't You Please Come Home [2:57](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 03:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A570ED3D1A450B443F6C82AD447C34DC3D29434
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604987   (1045103) от 16.01.2023
+
+Paul Bernewitz - Someday (2022) Unit Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Seven (Take Five) [10:51]
+02. I Hear a Rhapsody [7:25]
+03. Alfie [5:58]
+04. Someday My Prince Will Come [6:14](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4752020B17FF15EC002FAE0085484E1C484D35EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604985   (1045092) от 16.01.2023
 
 Dany Doriz & Michel Pastre - Fathers & Sons: The Lionel Hampton/Illinois Jacquet Ceremony (2022) Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
@@ -687,64 +745,6 @@ VA - Piano: Jazz 'Round Midnight (1949 - 1970) 1991, Verve Records [APE|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B938A9F55A6770F7763F60BC758FA87A31F366D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607556   (1043975) от 27.01.2023
-
-George Shearing - A Jazz Date With George Shearing (1949 - 1953) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish Pastry [2:41]
-02. Lonely Moments [3:23]
-03. Bop, Look And Listen [2:59]
-04. Conception [2:56](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Piano JazzПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D3467932904A36A11174D22DC48C7065DFC8BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607553   (1043971) от 27.01.2023
-
-Fats Waller - 1935 - 1936 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Somebody Thinks You're Wonderful [3:41]
-02. I've Got My Fingers Crossed [2:41]
-03. Spreadin' Rhythm Around [2:45]
-04. A Little Bit Independent [2:59](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83E0BE3155957A83AFB7B701E2439CB06AE09D48
 ```
 
 https://mybot314.ru/tekegram_catalog/

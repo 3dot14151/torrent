@@ -1,3 +1,61 @@
+###  Публикация: 1446189   (237942) от 08.02.2021
+
+James Moody - 1948 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Fuller Bop Man [2:58]
+02. Workshop [3:17]
+03. Oh Henry [2:31]
+04. Moodamorphosis [3:01](   Читать дальше...   )Жанр: BopПродолжительность: 01:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3B6E4A62E5514ADB7D890CA70EC0C583AA1E470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581668   (237934) от 07.10.2022
+
+Diego Rivera - Indigenous (2019) 2021, Posi-Tone [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marabi [4:22]
+02. Indigenous [5:31]
+03. The Secret Life of Plants [5:05]
+04. Sombras del Pasado [4:04](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A6CBF187E09CFA7E48A42EEACE313CEB4B34EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446184   (237926) от 08.02.2021
 
 Django Reinhardt - 1934 - 1935 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
@@ -687,64 +745,6 @@ Willie ''The Lion'' Smith - 1937 - 1938 (1992) Classics [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3464346FB44E1766A5F042076DD9EDC8D7995A0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638604   (237194) от 12.06.2023
-
-Relaxing Piano Crew - Jazz Ballad Piano Played in a Hideaway Restaurant (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keeping a Great Secret (2:30)
-02. Induvidual Eating Moods (2:08)
-03. Listening to Some Ballads (2:10)
-04. Rampant Restaurant Ragtime (2:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67FD5081D56F77078B2CAE5D7F24EEFFAF3AE838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607564   (237192) от 27.01.2023
-
-Fats Waller - 1936 - 1937 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hallelujah! Things Look Rosy Now (vocal) [2:49]
-02. Hallelujah! Things Look Rosy Now (instrumental) [2:48]
-03. 'Tain't Good (Like a Nickel Made of Wood) (vocal) [2:31]
-04. 'Tain't Good (Like a Nickel Made of Wood) (instrumental) [2:30](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347B0262B4E8CBD748F2D2E0BD919ACE61FA00DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

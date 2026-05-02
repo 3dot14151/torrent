@@ -1,3 +1,205 @@
+###  Публикация: 1531705   (718654) от 17.02.2022
+
+At The Movies - The Soundtrack Of Your Life - Vol. 2 (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting For A Star To Fall (Boy Meets Girl cover from "Three Men And A Little Lady")
+02. King Of Wishful Thinking (Go West cover from "Pretty Woman")
+03. The One And Only (Chesney Hawkes cover from "Doc Hollywood")
+04. When You Say Nothing At All (Ronan Keating cover from "Notting Hill")(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A4AFB13F1A5B788BC2E16FDFC63D0F9096E47A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1530463   (718648) от 17.02.2022
+
+Anne Dudley - Искушение / Benedetta (2021) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beata Viscera
+02. A Bride of Christ
+03. Flames Will Not Burn Me
+04. A False Prophet(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:30:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFAFDE707F5E172BD4EA27E287E02725B7440368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 168945   (718545) от 05.08.2020
+
+VA - Guitarras Virtuosas (2006) [MP3|320 kbps]<Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paco De Lucia - Rнo Ancho (4:31)
+02. Manu - Mestizo (3:58)
+03. Al Di Meola - Mediterranean Sundance (5:09)
+04. Embrujo Flamenco - Huapango (8:21)(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 01:12:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1583A8CF14DCF44C4604E520D876BDD86233CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 226304   (718542) от 05.08.2020
+
+Tommy Emmanuel - Midnight Drive (1997) [FLAC|Lossless|image + .cue] <Instrumental, Smooth Jazz>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Enough (04:28)
+02. Villa De Martin (04:23)
+03. Midnight Drive (04:09)
+04. Stay Close To Me (03:12)(   Читать дальше...   )Жанр: Instrumental, Smooth JazzПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F417EC29D4C55D6345AA711CCCA8679049665DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 150041   (718539) от 05.08.2020
+
+Константин Чугунов и Константин Беляков - Гитарная музыка (2003) [OGG|320]<Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. С. Абреу - Бразильский Карнавал 	(02:24)
+02. Н. Паганини - Соната			(03:58)
+03. Испанский танец - Сальвадор		(02:19)
+04. В. Гомес - Романс			(02:20)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:29:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7B8F84B598BB4759680FA366D5BA7EBA6549511
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 791181   (718325) от 29.05.2014
+
+Инверсия - Под горою диво + 2 EP (2010-2014) [MP3|128-320 кб/с]<Folk, Punk-rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инверсия – это синтез панк-рока и  аутентичных русских народных песен. Это мощь и глубина древних напевов и драйв захватывающей энергетики современности. Это завораживающий саунд фольк-вокала и неистовая мощь панк-музыкантов. Это чистые звуки  этнических инструментов и жёсткий роковый ритм.
+Уникальность Инверсии - в её близости к фольклорным корням. Этнические напевы (   Читать дальше...   )(3:35) 1. Як человече
+(3:26) 2. Ой, немаеЖанр: Folk, Punk-rockПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C850668E356E5C44A2414231A141E615CE80C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024302   (718142) от 08.06.2016
+
+Ryuichi Sakamoto, Alva Noto, Bryce Dessner - Выживший / The Revenant (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_718142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Revenant Main Theme (02:41)
+02. Hawk Punished (02:14)
+03. Carrying Glass (03:07)
+04. First Dream (03:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:10:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9649590417B07F47C6DE54738E2BF645B9DE4111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024500   (717916) от 08.06.2016
 
 VA - Deadpool Reloaded / Дэдпул (More Music from the Motion Picture) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
@@ -539,209 +741,6 @@ Toby Fox - Undertale Soundtrack (2015) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8AF64E51716FB6E9D11C4FCEC47ADDC99D7CA529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285604   (715076) от 01.03.2019
-
-The Innocence Mission - Sun On The Square (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Records From Your Room (02:46)
-02. Green Bus (04:28)
-03. Look Out From Your Window (03:21)
-04. Shadow Of The Pines (04:00)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844D849D0581634D1CB5128AB673FC45F3F078FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285977   (714911) от 01.03.2019
-
-Jim Brickman - Relax to the Hits of Jim Brickman (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Destiny
-02 – My Love Is Here
-03 – Angel Eyes
-04 – The Gift(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2988B4CC1B20F623A8F85BB71460A010B389AB99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285689   (714910) от 01.03.2019
-
-Meditation Music Zone & Ensemble de Musique Zen Relaxante - Bouddha 2019: Bar, lounge, méditation [FLAC|Lossless|WEB-DL|tracks] <Meditation, Relax, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ensemble de Musique Zen Relaxante - Bouddha 2019
-02. Meditation Music Zone - La visualisation
-03. Ensemble de Musique Zen Relaxante - Séances de relaxation
-04. Meditation Music Zone - La vie est belle(   Читать дальше...   )Жанр: Meditation, Relax, New AgeПродолжительность: 01:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE0A94FB8D29FD6FF7434520DB9EDE5CF3F159F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285613   (714825) от 01.03.2019
-
-Lee Scratch Perry - The Black Album (2018) [FLAC|Lossless|tracks + .cue] <Dub, Roots Reggae>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Brown in Town (04:28)
-02. Mr. Brown Dub (04:11)
-03. Trendsetter (04:18)
-04. Trendsetting Dub (04:17)(   Читать дальше...   )Жанр: Dub, Roots ReggaeПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B1E758CF8FAE5E5A3A493688965088F17847B58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285605   (714718) от 01.03.2019
-
-Two Steps From Hell - Dragon (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbreakable (4:17)
-02. First Contact (4:09)
-03. Bravestone (3:18)
-04. Dragon (3:44)(   Читать дальше...   )Жанр: Modern Classical, New AgeПродолжительность: 01:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD423EC8D1FC8371161FA4BDB05DDFC4E060ECC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024869   (714143) от 10.06.2016
-
-Shannon Rae - Shannon Rae (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blame It on the Radio (3:48)
-02. Gotta Let Go (3:23)
-03. Beer Trucks & Girls (3:40)
-04. Gasoline (2:53)(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E0D7B740E118A3756D9272583081AA0EDC266E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1024867   (714139) от 10.06.2016
-
-Alex Hart - On This Day (2014) [MP3|320 кб/с] <Country, Alt Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (4:35)
-02. Bonita (3:16)
-03. Bad Boy Bill (3:27)
-04. Keep Britain Tidy (3:42)(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 00:54:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1A908D7FBDFCD8DDEA46C2F3EAEBFC2E84B8C85
 ```
 
 https://mybot314.ru/tekegram_catalog/

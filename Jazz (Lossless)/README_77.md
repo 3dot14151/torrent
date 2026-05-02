@@ -1,3 +1,61 @@
+###  Публикация: 1124696   (785636) от 12.04.2017
+
+Thomas Hardin Trio - Moonlight Cafe (1999) Victor Entertainment [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Romantse ‘Second Movement from Eine Kleine Nachtmusik’ [04:23]
+ 02.Ave Maria [04:48]
+ 03.Variations on Twinkle 'Twinkle Little Star' [03:26]
+ 04.Serenade [04:01](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF74B5A362906399CEC74012B7D748C55018521
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277406   (785480) от 20.01.2019
+
+Art Farmer - The Complete Albums Collection 1958-1961 (2016) 4CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785480.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Back In The Cage [5:08]
+02. Stablemates [4:36]
+03. The Very Thought Of You [5:44](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 05:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983F7310C16ACDB1BD0F033D60E5528323F94386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277442   (785479) от 20.01.2019
 
 Sonny Rollins - Complete Sonny Rollins in Japan (1973) 2CD, 2018, JVC [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -687,64 +745,6 @@ Norah Jones - Pick Me Up Off The Floor (2020) [FLAC|Lossless|WEB-DL|tracks] <Con
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F652931C3B32FFFFBB1FE077E0862CAD112AA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205072   (784109) от 08.02.2018
-
-Joe Morello - Joe Morello (1961, 1962) 1989, Bluebird [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shortnin' Bread [02:10]
-02. When Johnny Comes Marching Home [06:08]
-03. Brother Jack [02:58]
-04. Every Time We Say Goodbye [03:06](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 01:01:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6093C90E42A7796CA2B8B5F5D4F2EB071749491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205077   (784098) от 08.02.2018
-
-The George Shearing Trio with Ray Brown and Marvin "Smitty" Smith - Breakin' Out (1987) Concord [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Squeeze Me (But Don't Tease Me) [05:58]
-02. Day Dream [04:25]
-03. Hallucinations [03:55]
-04. In the Wee Small Hours of the Morning [06:00](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 00:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03E96FBCF38F725EB4A4EAB3BC71BD3FF43589D
 ```
 
 https://mybot314.ru/tekegram_catalog/

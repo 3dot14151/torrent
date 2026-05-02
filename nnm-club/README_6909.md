@@ -1,25 +1,25 @@
-###  Публикация: 1124240   (785812) от 11.04.2017
+###  Публикация: 1512158   (787391) от 24.11.2021
 
-Howard Givens & Madhavi Devi - Source of Compassion (2016) [FLAC|Lossless|tracks] <Ambient, Drone, Downtempo>
+VA - Soundbar Deluxe Chill Lounge, Vol. 3 (2017) [AAC|~329 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Архив торрентов
->>Архив Музыки
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787391.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Intention (11:19)
-2. Emergence (8:45)
-3. Omkara (16:53)
-4. Source Of Compassion (10:29)(   Читать дальше...   )Жанр: Ambient, Drone, DowntempoПродолжительность: 01:06:32
+01. Aqualuna - Fall in Love (Vocal Chill Mix) (6:00)
+02. Richard Bonnee - My Tears of Elements (Artenovum Mystic Chillout Mix) (3:53)
+03. Dream Project - Anywhere in the World (Sphere Chillout Cut) (5:06)
+04. Jean Mare - Desert Moon (Chillout Deluxe Mix) (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:31:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8827760DD8A9914BF084E4CBEB56386B221FF99
+magnet:?xt=urn:btih:671367273D50C7EAAD13430E90557080974155C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124364   (785811) от 11.04.2017
+###  Публикация: 1512164   (787390) от 24.11.2021
 
-Bunny Brunel & Friends - Bass Ball (2017) [FLAC|Lossless|image + .cue] <Jazz>
+VA - Soundbar Deluxe Chill Lounge, Vol. 6 (2020) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787390.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nothing But The Bass [04:42]
-02. Slap & Tickle [05:21]
-03. Stand Out [05:19]
-04. Lopsy Lu [06:14](   Читать дальше...   )Жанр: JazzПродолжительность: 01:05:45
+01. Jean Mare - Discover a Nu World (In the Light Mix) (5:11)
+02. Artenovum - Innocence (Mystic Voices World Mix) (4:43)
+03. Book of Dreams - Trancephonia (Psytrance Chillout Mix) (8:02)
+04. Dave Neville - Focus (Deep Electronic Groove Mix) (6:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:18:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:01F516ABEF4238F97AEB899E9450B75F52A3FA37
+magnet:?xt=urn:btih:D385ADA5DE3A477E327502E54060CF8AB3C9279A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124377   (785810) от 11.04.2017
+###  Публикация: 1512163   (787389) от 24.11.2021
 
-Jay Jesse Johnson - Set The Blues On Fire (2015) [FLAC|Lossless|image + .cue] <Blues, Blues-Rock>
+VA - Soundbar Deluxe Chill Lounge, Vol. 5 (2019) [AAC|~318 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785810.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787389.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hell Or High Water (3:54)
-02. Ghosts In Texas (4:21)
-03. Since My Baby's Gone (4:57)
-04. Wheelhouse Boogie (5:03)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:56:48
+01. Artenovum - Colours of My Mind (Deep East Cut) (4:51)
+02. Jean Mare, Svetlana - Everything (5:58)
+03. For Found Future - A Place in the Sun (Sunset Chillout Mix) (4:56)
+04. Be Free - Belletic (Chillout Mix) (3:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:58:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FC6D70F62265F393524B6A13738C3607915B63FB
+magnet:?xt=urn:btih:93BDE7EA0622D6C6AB76740F4B7159E712C5CA70
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,83 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124415   (785809) от 11.04.2017
+###  Публикация: 1512182   (787388) от 24.11.2021
 
-VA - Armada - The Remixes 2017 Vol.2 (The Future House Edition) (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Low Steppa - Runnin' (feat. Kelli-Leigh) (Scott Diaz Extended Remix)  4:58
-02.  MOWE & Daniel Nitt - Lovers Friends (Adventurer Extended Remix)  4:03
-03.  Showtek vs. Technoboy & Tuneboy - Mellow (Calvo Remix)  4:26
-04.  Armin van Buuren - Another You (feat. Mr. Probz) (CID Remix)  4:36(   Читать дальше...   )Жанр: HouseПродолжительность: 01:08:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF28B2DA3ABC430E7D2FAD66FB952E7749A8E4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124615   (785808) от 11.04.2017
-
-Showaddywaddy - Step Two (1975) Reissue, 2001,  7T's Records [MP3|320 Kbps] <Rock & Roll, Rockabilly, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Steps to Heaven
-02. If You Know What I Mean
-03. Sing on Louise
-04. Big Big Star(   Читать дальше...   )Жанр: Rock & Roll, Rockabilly, GlamПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F7F9CE6A7A08216E8F9412FB823D42025874E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124425   (785807) от 11.04.2017
-
-Вечерний Ургант (2017.04.10) SATRip
+Аляска - Внутренний проход / Alaska - Sailing the Inner Passage (2021) WEBRip [H.264/2160p]
 
 >>Документалистика и Телепередачи
->>Телешоу
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787388.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Каждый вечер с понедельника по четверг за полчаса до полуночи Иван Ургант провожает этот день вместе с вами. С хорошим настроением, хорошей музыкой и теми людьми, которые ему интересны. "Вечерний Ургант" с понедельника по четвергТелекомпания: Первый каналЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 00:26:19
+4 друга отправляются в эпическое путешествие на парусной лодке, чтобы получить незабываемые впечатления.Производство: СШАЖанр: документальный, видовойРежиссер: Джо СаймонПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B64B541C48114C179A7489B1E3536880739F18E
+magnet:?xt=urn:btih:2BF18BB4E4128568DFC66532445CB9A1B70E700D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,25 +111,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124410   (785806) от 11.04.2017
+###  Публикация: 1512183   (787387) от 24.11.2021
 
-В. И. Ленин | Вопросы строительства социализма и коммунизма в СССР (1959) [DJVU, PDF]
+Лето / Sumarid (2021) WEBRip [H.264/2160p]
 
->>Научная и техническая литература
->>Историческая литература
+>>Документалистика и Телепередачи
+>>Релакс / Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787387.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вопросы строительства социализма и коммунизма нашли глубокую разработку и всестороннее освещение в многочисленных трудах В. И. Ленина особенно периода социалистической революции и начавшихся под его руководством социалистических преобразований в нашей стране. В настоящий сборник включена лишь часть этих трудов — последние статьи и речи Владимира Ильича, в которых (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
+Коллаж из моментов путешествия по Исландии весной и летом 2021 годаПроизводство: ИсландияЖанр: документальный, видовойРежиссер: Олафур Мар БьорнссонПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96FEF5AA42121264F09D4A97CD81DD4CB80A4A6E
+magnet:?xt=urn:btih:79D16653A20FD93869C3F3A13A9CCECDEE8F0D00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124545   (785805) от 11.04.2017
+###  Публикация: 1512213   (787386) от 24.11.2021
 
-Joey Gilmore - Brandon's Blues (2015) [FLAC|Lossless|image + .cue] <Chicago Blues>
+Oбработка Александра Афанасьева | Русские народные сказки (2013) [MP3, Ирина Мохова]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787386.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Good Thing Go Bad   (04:19) 
-02. Cheaper To Keep Her  (05:18) 
-03. Brandon's Blues  (04:29) 
-04. Somebody Have Mercy  (04:13) (   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 00:52:57
+Александр Николаевич Афанасьев является одним из самых известных исследователей русского фольклора – преданий, обычаев и верований. Собранные и пересказанные им русские народные сказки являются источником настоящего, живого русского языка, воскрешают основы русских традиций и мышления. Кроме того, представленные на сайте сказки помогут взрослым и детям через необычайные (   Читать дальше...   )Жанр: Детская литератураПродолжительность: 02:02:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:16EAC420B00285E721DD08394266E1F94EDCBC87
+magnet:?xt=urn:btih:7E07B45A5DE11AE878ADC4C25AE160EE77B5FBC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +163,195 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124208   (785804) от 11.04.2017
+###  Публикация: 1512344   (787385) от 24.11.2021
 
-VA - Chillout Hits Vol.4 (2017) [MP3|320 Kbps] <Chillout, Chillstep>
+Завещание доктора Мабузе / Das Testament des Dr. Mabuse (1933) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главврач психиатрической больницы профессор Баум находит конспекты гипнотизёра и криминального гения доктора Мабузе, который сошёл с ума. Изучив записи, Баум решает воплотить криминальные планы Мабузе...Производство: Германия, Nero-Film AGЖанр: ужасы, криминал, детектив, триллерРежиссер: Фриц ЛангВ ролях: Рудольф Кляйн-Рогге, Томи Бурдель, Густав Диссль, Рудольф Шюндлер, Оскар Хёкер, Тео Линген, Моника Роллан, Морис Мэйллот, Камилла Спира, Жинетт ГоберПеревод: профессиональный многоголосый (Film Prestige)Субтитры: русские, английскиеПродолжительность: 02:01:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D7F330C45EDDED87E21D530BB0885657F7A0DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512340   (787384) от 24.11.2021
+
+K-Lite Codec Pack Update 16.5.7 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787384.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, лёгкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96D48DF1381AFA4EE996034C1837F609D58DC542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512165   (787383) от 24.11.2021
+
+VA - Soundbar Deluxe Chill Lounge, Vol. 7 (2021) [AAC|~302 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Mare - Beautiful Sunset (4:15)
+02. Guardians of Secret - Pigments (Voices World Cut) (4:07)
+03. Richard Bonnee - Sequence (6:29)
+04. Artenovum - Beyond The Sky (4:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D529236769B70DC12421D5AFAE93A490BFFE5896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512161   (787382) от 24.11.2021
+
+VA - Soundbar Deluxe Chill Lounge, Vol. 4 (2018) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - Wide Country (Relax Sphere Cut) (6:42)
+02. Richard Bonnee - Morning Sitar (Atmosphere Mix) (4:43)
+03. Jean Mare - Space Moments (Ambient Lounge Sphere Mix) (5:48)
+04. Mare et Monti - Way of Life (Sunny Island Mix) (5:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D4D53F38E6884EE86EF14806C3C18B08D71DC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512155   (787381) от 24.11.2021
+
+VA - Soundbar Deluxe Chill Lounge, Vol. 2 (2016) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artenovum - X Dreams (5:43)
+02. Jean Mare - Skydrops (Nu Chill Groove Mix) (5:08)
+03. For Found Future - The Forest Dreams (Artenovum Piano Mix) (5:02)
+04. Guardians of Secret - Gregorian Temple (Nu Artenovum Mix) (4:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C30252093AA1582C680AA9992A90673D4A904C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512357   (787380) от 24.11.2021
+
+Элис Хоффман | «Практическая магия» Книга 3. Уроки магии (2021) [MP3, Марина Никитина]
+
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787380.jpg" />
+</div>
+
+
+###  Подробнее
+
+У каждой саги есть начало.
+История многовекового проклятья семьи Оуэнс началась с необычного младенца – девочки, найденной в заснеженном поле. Оказавшись под опекой доброй женщины, сведущей в Непостижимом искусстве, Мария Оуэнс, ведьма по рождению, с раннего детства наблюдала, что с женщинами может сотворить любовь.
+Будучи еще ребенком, Мария клянется никогда не (   Читать дальше...   )Жанр: Зарубежные любовные романы, легкая прозаПродолжительность: 14:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23EB4613A6A1FEE3E40756D27A27C977FF21851B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512315   (787379) от 24.11.2021
+
+VA - Antistress Meditation (2021) [MP3|320 Kbps] <Ambient, Relax, New Age>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787379.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Galavant - Falling  2:55
-02.  Baghira - Nightbeat  5:58
-03.  Liv Dawson - Open Your Eyes  3:28
-04.  Steve Angello & Laidback Luke - Show Me Love (Feat Robin S) (Boeboe Remix)  5:00(   Читать дальше...   )Жанр: Chillout, ChillstepПродолжительность: 02:57:05
+001. Alex Somers - Avalanche
+002. Ctm & August Rosenbaum - Angel
+003. The Green Kingdom - In Shadow
+004. Mauro Rawn - Count Up(   Читать дальше...   )Жанр: Ambient, Relax, New AgeПродолжительность: 07:47:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83DE6541456E318FB64E20DADB9FE1F4765D504F
+magnet:?xt=urn:btih:F69EA1E64F76633C38FDC1F3F0FD402EB380BDA3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,25 +359,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124298   (785803) от 11.04.2017
+###  Публикация: 1512168   (787378) от 24.11.2021
 
-Виль Липатов | Любовь в Старокороткино (1981) [MP3]
+VA - Ethno Trip (2021) [AAC|~333 Kbps] <Chill Out, Downtempo, Organic House>
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787378.jpg" />
 </div>
 
 
 ###  Подробнее
 
-О жителях села Старокороткино. О большой любви, сложных взаимоотношениях, связавших судьбы 18-летних Ивана Мурзина, Любы Ненашевой и НастиЖанр: Драма, радиоспектакльПродолжительность: 01:51:38
+01. Neyoud - Raml (Billy Esteban Remix) (8:37)
+02. Billy Esteban, Cafe De Anatolia, Gabriela Novevska - Katerina (5:00)
+03. Aliye Mutlu, Majnoon, Erdi Arslan - Demedin Mi? (Billy Esteban Remix) (5:19)
+04. Billy Esteban, Cafe De Anatolia, Gabriela Novevska - Bay Nikola (6:02)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:54:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC42D5D2A2778F584DB4F2EF79444BA800766C01
+magnet:?xt=urn:btih:FF3DAEC9C0A946E2AF39AB0E7BF591661A58B170
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,25 +388,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124194   (785802) от 11.04.2017
+###  Публикация: 1512362   (787377) от 24.11.2021
 
-Преподобный Феодор Студит | Огласительные поучения (2007) [PDF]
+VA - Flyin Bye: Sensual Blues And Jazz (2021) [MP3|320 Kbps] <Blues, Rock Blues, Jazz>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787377.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Преподобный Феодор, игумен Студийский (759-826), - византийский богослов, реформатор монастырской жизни (основоположник строгого «студийского» монашеского устава), писатель. Одной из традиций Студийского монастыря во времена игуменства преподобного Феодора было трижды в неделю говорить братии «оглашения» - особые душеспасительные поучения. В книгу вошли проповеди (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
+001. Peter Crow C - The Angels Message To Me
+002. Tim Staffell - Low Rent Blues
+003. Blues Cousins - Perfect Killer
+004. Mississippi Heat - Your Cheating Heart(   Читать дальше...   )Жанр: Blues, Rock Blues, JazzПродолжительность: 08:17:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94F7E0CBEA682D422B73E333FBE222550315E88C
+magnet:?xt=urn:btih:D349D76D681B014F447B487FF3ED42815CC95FE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,111 +417,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124411   (785801) от 11.04.2017
+###  Публикация: 1512446   (787376) от 24.11.2021
 
-П. М. Чирков | Решение женского вопроса в СССР [1917-1937 гг.] (1978) [DJVU]
-
->>Научная и техническая литература
->>Историческая литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785801.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге анализируется опыт решения женского вопроса в СССР в период строительства социализма. Автор показывает работу среди женщин, которую проводили Коммунистическая партия Советского Союза, Советы, профсоюзы, кооперация и комсомол. В книге исследуются пути, формы и методы вовлечения женщин в общественное производство, повышения их активности в общественно-политической (   Читать дальше...   )Жанр: История, политология, культурологияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51781A3536DCDA671555375F7BAAFAF910EB4F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124444   (785800) от 11.04.2017
-
-Sinner - Tequila Suicide (2017) Limited Edition [FLAC|Lossless|image + .cue] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Go Down Fighting (2:38)
-02.Tequila Suicide (3:14)
-03.Road To Hell (3:31)
-04.Dragons (5:02)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C601135036DD0589AB3486E6CD8B6A05AAA085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124532   (785799) от 11.04.2017
-
-Persian Frequency - The Higher State of Consciousness (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Archetype 8:01
-02. Ayahuasca Experience 7:18
-03. Consciousness 7:15
-04. Devil Game 7:53(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:03:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F42C530E1E7A99B10B9B8A5A30E6FFE1D8A1CABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124365   (785798) от 11.04.2017
-
-EverWeb (Standalone) 2.2 [En]
+Adobe Substance 3D Sampler 3.1.1 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787376.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С EverWeb любой может создать профессиональный веб-сайт, просто перетаскивая его. Используйте один из встроенных шаблонов или начинайте с нуля и создавайте идеальный веб-сайт для вашего бизнеса или личного хобби. Добавьте текст, фотографии, видео, виджеты и многое другое, чтобы легко создать нужный веб-сайт.
-
-EverWeb даже создает мобильные сайты, которые отлично (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07 апреля 2017Разработчик: RAGE Software.Поддерживаемая ОС: OS X 10.7 +Язык интерфейса: Английский
+Оцифруйте и обогатите ресурсы для 3D. Substance 3D Sampler лежит в основе вашего рабочего процесса 3D. Легко трансформируйте реальное изображение в фотореалистичную поверхность или среду HDR.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2021Разработчик: © 2021 Adobe SystemsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6700BD8DF83F2BDE6CA59CB0C3266FD090721CD
+magnet:?xt=urn:btih:25FCF15E59F6B2F730130D9109BC43ADB691F941
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,26 +443,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123882   (785797) от 11.04.2017
+###  Публикация: 1512151   (787375) от 24.11.2021
 
-Александр Стрижев (сост.) | О цели христианской жизни (1999) [PDF, DJVU]
+Свайп: связь в эпоху цифровых технологий / Swiped: Hooking Up in the Digital Age (2018) WEB-DL [H.264/1080p]
 
->>Разное (категория книг)
->>Религиозная литература
+>>Документалистика и Телепередачи
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787375.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Впервые публикация полного текста «Беседы Преподобного Серафима Саровского с Н. А. Мотовиловым» сопровождается богословскими толкованиями отечественных мыслителей и подвижников русской духовной культуры: святителя Вениамина (Федченкова), старца Силуана Афонского, протоиерея Георгия Флоровского, философа Владимира Лосского и др.
-Книга рассчитана на широкий круг православных (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+40 миллионов американцев знакомятся онлайн, а люди в возрасте от 18 до 30 лет проводят в дэйтинг-приложениях до 10 часов в неделю. Для того, чтобы осмыслить триумф Tinder, создатели фильма заходят в кабинеты исследователей, чужие спальни и на безбашенные студенческие попойки — академические рассуждения о кризисе моногамии перемежаются немудреными девичьими мыслями (   Читать дальше...   )Производство: США, Consolidated Documentaries, HBO Documentary Films, LovelessЖанр: Документальный, научно-популярный, исследованияРежиссер: Нэнси Джо СэйлсПеревод: двуголосый профессиональный (SDI Media по заказу Amedia)Субтитры: русские, английскиеПродолжительность: 01:26:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C6A1077C5B621E9C3FB16029F7B91072C49F1CD8
+magnet:?xt=urn:btih:4E21B3267242C4EFFDB4894354C8F526D3E31FD4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,54 +469,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124427   (785796) от 11.04.2017
+###  Публикация: 1512317   (787374) от 24.11.2021
 
-Журнал | Эксперт №15 (1025) (апрель 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Эксперт» — одно из самых влиятельных еженедельных деловых аналитических изданий России. За 14 лет своего существования в непростых политических и экономических условиях изданию удалось не только выжить и сохранить своих читателей, но и расширить их круг, заслужив репутацию несомненного лидера российской деловой журнальной прессы. Все наши знания и опыт нацелены (   Читать дальше...   )Жанр: Экономика, политикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4261780933DE9095645FD9594073CE0176B0395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124575   (785795) от 11.04.2017
-
-Havok - Conformicide (2017) Limited Edition  [MP3|320 Kbps] <Thrash Metal>
+Ленинград - Рыба (2012) [FLAC|Lossless|image + .cue] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. F.P.C.
-02. Hang 'Em High
-03. Dogmaniacal
-04. Intention to Deceive(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:02:38
+01. Москва (03:14)
+02. Мы за! (02:32)
+03. Вода (02:20)
+04. Рыба (02:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9717C658ABA56DB46EF4EB8561A335AC46FEA06
+magnet:?xt=urn:btih:AAF17EB4638CFDAD11E299F2EBEA5827D6384D17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,172 +498,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124374   (785794) от 11.04.2017
+###  Публикация: 1512265   (787373) от 24.11.2021
 
-Bosé - Papito (2007) [FLAC|Lossless|image + .cue] <Soft Rock, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morena Mia (Con Julieta Venegas)  (03:45) 
-02. Si Tu No Vuelves (Con Shakira)  (05:13) 
-03. Bambu (Con Ricky Martin)  (04:58) 
-04. Nada Particular (Con Juanes)  (06:21) (   Читать дальше...   )Жанр: Soft Rock, LatinПродолжительность: 01:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA351DE8D44B907EF8E7338B0EC4B96E039D7FE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124431   (785793) от 11.04.2017
-
-Журнал | Всему свету по совету. Спецвыпуск №5. На даче (апрель 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал содержит информацию познавательного характера, а также практические советы как редакции, так и читателей в области здоровья, красоты, кулинарии, домоводства, садоводства.
-
-Тема специального выпуска - 11 полезных советов начинающим огородникам. На страницах журнала: Цветник - лучшее украшение участка; Подготовка почвы перед посевом; Чем и когда опрыскивать (   Читать дальше...   )Жанр: Домоводство, сад, огородФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73DEF1CCF7AAE953E9338C160059FFCF596FFB92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124501   (785792) от 11.04.2017
-
-Cromonic - Time (2017) [MP3|320 Kbps] <Power Metal>
+King Crimson - Music Is Our Friend (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Eclectic Prog>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787373.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Another World
-2. Time
-3. Tale Of Pain
-4. Mental Cry(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0418995B19DB20E0F2C5EAAA52D2495C4ACE2CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124372   (785791) от 11.04.2017
-
-The Hot 8 Brass Band - On the Spot (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Funk, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 8 Kickin' It Live (7:09)
-02. Get It How You Live (6:39)
-03. Bottom Of The Bucket (6:49)
-04. On The Spot (5:32)(   Читать дальше...   )Жанр: Funk, New Orleans JazzПродолжительность: 01:09:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3BADF876F7D11FC40C1597AA55EEDC4A9020B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124610   (785790) от 11.04.2017
-
-Faro - Shape Of Sense (2009) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shape Of Sense (6:02)
- 02. Love Without The Self (5:35)
- 03. Cold Days (6:05)
- 04. Bridge Of Sighs (5:04)(   Читать дальше...   )Жанр: Chillout, DowntempoПродолжительность: 01:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36397E0683DB54BCE8162CA879BCCC93E36F275
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124439   (785789) от 11.04.2017
-
-Газета | Оракул №4 (апрель 2017) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оракул - журнал эзотерических знаний - астрологические прогнозы, гадания, сонники и многое другое. Газета открывает читателям возможность по-новому видеть и думать, помогает понять себя, окружающий мир и найти путь к гармонии.
+King Crimson (рус. Кинг кримзон , на английском читается Кин Кримзн  в пер. с англ. малиновый король ) — британская рок-группа, созданная гитаристом Робертом Фриппом и барабанщиком Майклом Джайлзом в 1968 году. Музыка группы стилистически представляет собой прогрессивный рок. King Crimson признаётся одной из лучших групп этого жанра .
 
-В номере:
-- Законы костюма - законы мироздания;(   Читать дальше...   )Жанр: Магия, эзотерикаФормат: PDF
+Заметная часть истории King (   Читать дальше...   )01. Introductory Soundscape (Live at The Anthem, Washington DC) (06:53)
+02. The Hell Hounds Of Krim (Live at The Anthem, Washington DC) (03:35)
+03. Larks' Tongues In Aspic, Pt. I (Live at The Anthem, Washington DC) (08:04)
+04. Pictures Of A City (Live at The Anthem, Washington DC) (08:35)(   Читать дальше...   )Жанр: Progressive Rock, Eclectic ProgПродолжительность: 02:15:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A954F70A70B599E6F836AEADA2B2F49E8466D4B1
+magnet:?xt=urn:btih:A1B5FDACBA0D92B961102F7D31F7889132BD30D4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -672,28 +529,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124315   (785788) от 11.04.2017
+###  Публикация: 1512342   (787372) от 24.11.2021
 
-VA - Timeless Piano Instrumental: Smooth Jazz Collection (2017) [MP3|320 Kbps] <Jazz>
+Microsoft Edge 96.0.1054.34 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Piano Atmosphere Ensemble - Timeless Piano Instrumental
-02. Sentimental Piano Jazz Club - Late Night Date
-03. Relaxing Piano Jazz Music Ensemble - Smooth Restaurant Music
-04. Jazz Piano Bar Academy - Deep Relax(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:04
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:27CAE78993083E551C4FE9CEE8BFFFE095FA1FFC
+magnet:?xt=urn:btih:52F84DB0568484DA7F734EDAD419A6AAF9F552B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,26 +555,161 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124457   (785787) от 11.04.2017
+###  Публикация: 1512153   (787371) от 24.11.2021
 
-AudioFinder 5.9.7 [En]
+VA - Soundbar Deluxe Chill Lounge, Vol. 1 (2015) [AAC|~344 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean Mare - Deep in Thoughts (Mystic Moments Mix) (5:55)
+02. Richard Bonnee - Chillin Minds (6:36)
+03. Dream Project - Diving a Dream (Ambient Groove Mix) (6:30)
+04. For Found Future - Dream Your Dreams (Dreamscape Mix) (5:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:57:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54D41EAF771CA88B2F44C3991F93A55418F6A59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512175   (787370) от 24.11.2021
+
+Мавик 3 - Визуализация превыше всего / Mavic 3 - Imaging Above Everything (2021) WEBRip [VP9/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787370.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два месяца назад DJI прислал нам новый Mavic 3. Нам было очень интересно протестировать и создать промо-видео, полностью снятое на новый Mavic 3 CineПроизводство: Россия, Timelab ProЖанр: документальный, видовойПеревод: не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E245FBC3F829C308AD7311AC59C9DF3962527FEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512162   (787369) от 24.11.2021
+
+Сапёр / The Demine (2017) WEBRip [H.264/1080p-LQ]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_787369.jpg" />
+</div>
+
+
+###  Подробнее
+
+Портрет курдского полковника, который разоружил тысячи придорожных бомб и мин, вооруженный только своим мужеством и парой кусачек. Полковник Фахир Бервари, родом из Курдистана, посвятил жизнь поиску и обезвреживанию мин. Даже тяжелое ранение не заставило его отказаться от своего долга. После окончания войны в Ираке и вывода американских войск из Мосула мир на Ближнем (   Читать дальше...   )Производство: Швеция, Ginestra FilmЖанр: документальныйРежиссер: Хогир Хирори, Шинвар КамальПеревод: одноголосый профессиональныйСубтитры: турецкие (неотключаемые)Продолжительность: 01:23:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512397   (787368) от 24.11.2021
+
+PDF Reader Pro Edition 2.8.4.1 [Multi/Ru]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_787368.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Reader Pro - это приложение для редактирования PDF, имеющее широкий спектр инструментов. Основываясь на надежных функциях, таких как аннотации, заполнение форм и создание закладок, распознавание текста. PDF Reader Pro позволяет вам «маневрировать» в ваших файлах PDF. PDF Reader Pro Edition предлагает еще больше - объединяет несколько документов, разбивает ваш (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.09.2021Разработчик: © 2021 PDF Technologies, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512190   (787367) от 24.11.2021
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 5. Динамо (Киев, Украина) - Бавария (Германия) (23.11.2021) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_787367.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2021-2022. Групповой этап. Группа ''E''. Тур 5. Динамо (Киев, Украина) - Бавария (Германия) (23.11.2021)
+СУДЬЯ Мелер Халил (Измир, Турция)
+Судья на линии 1: Эйсой Мустафа (Турция)
+Судья на линии 2: Уярджан Ибрахим Чаглар (Турция)(   Читать дальше...   )Телекомпания: Матч! Футбол 2Жанр: Спорт, ФутболЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:54:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1512444   (787366) от 24.11.2021
+
+Adobe Substance 3D Painter 7.4.0 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787366.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AudioFinder — программа для управления вашей фонотекой.
-С ее помошью можно организовать каталог ваших медиа-файлов и мгновенно находить нужный вам звук, именно тогда, когда он вам необходим, сэкономит вам кучу времени. Используйте AudioFinder для создания пользовательских наборов для всех категорий и конкретных проектов, при быстром просмотре файла и прослушивании, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 19 марта 2017Разработчик: Iced AudioПоддерживаемая ОС: OS X 10.8 +Язык интерфейса: Английский
+В Substance 3D Painter есть инструменты, необходимые для текстурирования ваших 3D-ресурсов, от расширенных кистей до интеллектуальных материалов, которые автоматически адаптируются к вашей модели. Вдохните жизнь в свое искусство.Тип издания: macOS SoftwareРелиз состоялся: 24.11.2021Разработчик: © 2021 Adobe SystemsПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E84736572ACE7095DD226477C527213FD3F62EA4
+magnet:?xt=urn:btih:6E991B7D849BD711B381BFEC3C9AF4B47A8991F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

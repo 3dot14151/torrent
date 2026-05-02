@@ -1,3 +1,119 @@
+###  Публикация: 1558696   (529905) от 21.06.2022
+
+VA - Мы вышли из Кино 2. Трибьют Кино (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529905.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 25/17 - Апрель
+2. Комсомольск - Ночь
+3. Диктофон - Печаль
+4. Стереополина - Разреши мне...(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03A6BDEEF313CF6DB47A052EA6F696C701869C2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 915156   (529624) от 12.08.2015
+
+Liorinkarmic - 6 альбомов (2014-2015) [MP3|320 кб/с]<Post-rock, Experimental, Minimal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The lost forgotten girl [05:16]
+02. Tecollection [05:24]
+03. Double black death butterfly [03:52]
+04. Jealous of the kind and lovely [02:49]Жанр: Post-rock, Experimental, MinimalПродолжительность: 03:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C139AC2D887F600A8C82960FE87409FEEA3C412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240421   (528741) от 11.08.2018
+
+Вертепъ - СтополСта (2017) [MP3|320 Kbps] <Rock, Blues Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Белая сплошная
+02. Правда
+03. Стополста
+04. Три чернушечки(   Читать дальше...   )Жанр: Rock, Blues Rock, BluesПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E682BD43A183C512F872390258D7E3A5C6673EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1240369   (528673) от 11.08.2018
+
+Вертепъ - Снег (2018) [MP3|320 Kbps] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тремор
+02. Косяк
+03. Озноб и лихорадка
+04. Всё(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C8FF67DB84237D4FAE27F5BAA6732D2864BB4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240479   (528672) от 11.08.2018
 
 Вертепъ - Шизгара. Избранное (2013) 2CD [MP3|320 Kbps] <Rock, Blues Rock, Blues>
@@ -626,119 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DABBE15CF33B37B46BA1BAE5D486CA6E38D47AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561940   (512589) от 07.07.2022
-
-Йорш - 2007 (2022) single [MP3|320 Kbps] <Punk Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2007Жанр: Punk Rock, AlternativeПродолжительность: 0:03:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC6B1DC3246EC5E0464B451F27510EC9DDD50B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561736   (512586) от 07.07.2022
-
-Чино - Взмах крыла, упавший на лад (2022) [MP3|320 Kbps] <Russian Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Надо попробовать [00:01:42]
-02 - Воин дороги [00:02:20]
-03 - Моё лето [00:02:30]
-04 - Продула [00:02:45](   Читать дальше...   )Жанр: Russian Pop-RockПродолжительность: 00:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BA1CE7C3462BEB363E2C49A8F61217BFFA0A000
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561731   (512517) от 07.07.2022
-
-Павел Кузин - Гравитация (2022) [MP3|320 Kbps] <Russian Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Лети-лети [00:02:10]
-02 - Ты танцевала [00:02:45]
-03 - Навсегда [00:03:13]
-04 - Какое счастье [00:03:03](   Читать дальше...   )Жанр: Russian Pop-RockПродолжительность: 00:31:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F832C0E12FCCD0003581126768C9D0D5F897C408
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315794   (511798) от 21.07.2019
-
-Сахарный человек - Ветер цвета смеющихся радуг (2019) [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыкальные корни коллектива уходят в психоделический рок 1960-х с сильным влиянием американского фолка и блюза. Любой город, в котором проходит концерт "Сахарного Человека", превращается в Сан-Франциско 60-х, улица - в Хейт-Эшбери, а фестиваль - в Вудсток. Группа играет психоделический буги, свинг и эйсид-рок для танцев, трипов и любви.1. Ветер цвета смеющихся радуг
-2. Ножи утилизации
-3. Сочетания
-4. Шоколадный омлет(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8452E5A87EE3ADCA9034D0534B4F28E6EFA5507F
 ```
 
 https://mybot314.ru/tekegram_catalog/

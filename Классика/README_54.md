@@ -1,3 +1,32 @@
+###  Публикация: 1750897   (42724) от 22.09.2024
+
+VA - Classical Piano Masters (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Axel Gillison - 3 Gymnopédies No. 1, Lent et douloureux (3:52)
+02. Henrik Måwe - Nocturnes, Op. 9 No. 2 in E-Flat Major. Andante (4:07)
+03. Axel Gillison - Suite Bergamasque, L. 75 III. Clair de lune (5:56)
+04. Henrik Måwe - Gnossiennes No. 1, Lent (3:08)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DFEB8DC50EF5182C643B6D1871507A7A0ECA9E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752915   (41700) от 02.10.2024
 
 VA - The 50 Most Essential Autumn Classics (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -713,35 +742,6 @@ André Rieu, Johann Strauss Orchestra - Jewels Of Romance (2023) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F63A22452A1FDBB8B7F8EEE1D709592DCB72184
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791011   (21759) от 11.04.2025
-
-Andre Rieu - Power of Love (Live in Maastricht 2024) (2025) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entry of the Gladiators (ARV) (Live) (4:50)
-02. Blaze Away (Live) (2:31)
-03. Granada (Live in Maastricht, 2024) (5:53)
-04. Ob Blond, Ob Braun (Live) (3:30)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FEE6F2AAE103B5546DCF9F5D676C7CCD5921939
 ```
 
 https://mybot314.ru/tekegram_catalog/

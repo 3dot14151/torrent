@@ -1,3 +1,55 @@
+###  Публикация: 981974   (950102) от 02.02.2016
+
+Stargazers & Cynthia Hall - Scattered Pieces (2016) Single [MP3|320 кб/с] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Scattered Pieces (Original Mix) (06:31)Жанр: TranceПродолжительность: 00:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB1631A13C8AF29FE38D6FB9F6F9802BCE8433E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089551   (950093) от 04.01.2017
+
+Party Hard (2015) [Ru/Multi] (1.3.1 Hotfix) SteamRip Let'sPlay
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950093.jpg" />
+</div>
+
+
+###  Подробнее
+
+В Party Hard вы играете тем, кто действительно устал от шумных соседей, которые всю ночь отрываются на вечеринке. Вместо того, что бы вызвать копов, вы решили просто убить их всех – используя свой нож и другие подручные средства.Тип издания: SteamRipРазработчик: Pinokl GamesЖанр: Action, Indie, Strategy (Tactical)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86F47C319EDFE65B2E4357FE065C2EB63310B9FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981966   (950092) от 02.02.2016
 
 Cenk Basaran - Daywalker (2016) Single [MP3|320 кб/с] <Trance>
@@ -643,64 +695,6 @@ A Tribe Called Quest - The Low End Theory (1991) [FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6AB0723C4997F2DFBD73824533C5B281F42492B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981958   (949809) от 02.02.2016
-
-beaTunes 4.5.9 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949809.jpg" />
-</div>
-
-
-###  Подробнее
-
-BeaTunes - отличная утилита для поддержания вашей медиатеки в тонусе, если число альбомов в вашей коллекции больше нескольких десятков.
-beaTunes анализирует музыкальные композиции, определяя их темп и стиль. С ней можно автоматически создавать новые плейлисты, основанные на полученной информации.
-
-К сожалению, программа не может обрабатывать музыкальные треки, защищенные (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 января 2016Разработчик: Tagtraum IndustriesПоддерживаемая ОС: OS X 10.7.3 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63C1606D6A95B5C4F1CBFB4BDCC145888CA0605D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981997   (949802) от 02.02.2016
-
-Sash! - The Best Of (2008) 2CD [MP3|185 ~241 кб/с (V2)] <Trance, Euro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ecuador (Joan Reyes Remix) 06:17
-02. Ecuador (Will Bailey & Calvertron Remix) 06:14
-03. Ecuador (Bad Behaviour Remix) 06:22
-04. Stay (Cedric Gervais Vocal Remix) 07:04(   Читать дальше...   )Жанр: Trance, Euro HouseПродолжительность: 01:16:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:901B4CE0B0A3C2EBBCBD83B0B0A65A19FDA7AA07
 ```
 
 https://mybot314.ru/tekegram_catalog/

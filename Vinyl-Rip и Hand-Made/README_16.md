@@ -1,3 +1,141 @@
+###  Публикация: 1015595   (774042) от 11.05.2016
+
+Мирей Матье (Mireille Mathieu) – Французская коллекция (1986) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Браво, ты выиграл (Bravo Tu As Gagne)  4:40
+2. Влюбленная женщина (Une Femme Amoureuse - Woman In Love)  4:10
+3. У голубой реки (A Blue Bayou)  3:58(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B170818E4BB94D80B712BDFC4BE6C5DB9DDD178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949781   (773924) от 11.05.2016
+
+The Beatles - Let It Be (1970) [FLAC 2.0|192/24|tracks|Vinyl-Rip]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Two Of Us  3:36
+2. Dig A Pony  3:54
+3. Across The Universe  3:48(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1F26D630AF5C5EB577FAF4E2AB95463A30728F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269706   (772790) от 21.06.2020
+
+Кино - Атаман (2018) [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772790.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:15] 01. КИНО - Атаман (версия 2012 г.)
+[3:04] 02. КИНО - Атаман (версия 1990 г.)
+[4:17] 03. КИНО - Атаман (демо-версия 2012 г.) BONUS CDЖанр: RockПродолжительность: 00:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD6BAC84384FED12CF8400D3A33D813975AFC40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616265   (772491) от 21.06.2020
+
+Кино (Виктор Цой) - Неизвестные Песни Виктора Цоя (1992) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772491.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 00:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCF3778D92E0673B6A03A8630B32D552E81D453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 660735   (771959) от 25.05.2013
+
+Vaya Con Dios - Night Owls (1990) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop, Pop-Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Pop-JazzПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA3F0249265CBB61A1FF2B0A8C30AB9302B5DC7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 661199   (770500) от 26.05.2013
 
 Abba - 7 Альбомов (1975-1981) /Polar-Disco mate, Japan/ [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop>
@@ -604,148 +742,6 @@ A4 Believer (Верящий)(   Читать дальше...   )Жанр: Heavy 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1093B42A25CC5F36E0B57C13CFDA653138B1FFB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396183   (748532) от 14.07.2020
-
-Toto - Stranger In Town (Dance Mix) (1984) 12", 45 RPM, Single [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748532.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Stranger In Town (Dance Mix)
-
-
-(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:11:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50D1736179C1208ADABB4B60D83FBA6B8EEB0D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396333   (748525) от 14.07.2020
-
-Toto - Fahrenheit (1987) [FLAC|FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748525.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Till The End
-A2 We Can Make It Tonight
-A3 Without Your Love
-A4 Can't Stand It Any Longer(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7CD35271646095C8214DB499F06230FD7BE04D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 335611   (748033) от 14.07.2020
-
-Diana Krall - 10 альбомов (1996-2009) [FLAC/APE 2.0 24/96 | tracks (VinylRip)]<Jazz>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_748033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дайана Кролл (Diana Krall) имеет такую внешность, какую называют "мечта продюсера" — по выражению одного западного журнала. Натуральная блондинка с зелеными глазами.Издали на обложках пластинок ее принимают за Селин Дион (Celine Dion). Дион, кстати, тоже из Канады. Именно в этом порядке: Дион тоже из Канады. Как и Дайана Кролл. А не наоборот. Потому что (   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C390C9A8511FE61C78E55F93B4469D16DAA6F02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396481   (746922) от 15.07.2020
-
-Billie Holiday - Billie Holiday (1975) Mono [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746922.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 I Don't Stand A Ghost Of A Chance With You
-A2 Please Don't Talk About Me When I'm Gone
-A3 Nice Work If You Can Get It
-A4 God Bless The Child(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:313CBB8C30B09244837A7887109597C4D942DA18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396520   (746920) от 15.07.2020
-
-Lift - Lift (1977) Russian text on labels [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Art Rock, Krautrock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746920.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Wasser Und Wein
-A2 ...Fallt Der Erste Reif
-A3 Und Es Schuf Der Mensch Die Erde
-A4 Jeden Abend(   Читать дальше...   )Жанр: Art Rock, KrautrockПродолжительность: 00:41:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D3BCDADD3CAACA5CA9B3EB783667458A8E77B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

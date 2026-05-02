@@ -1,3 +1,176 @@
+###  Публикация: 1733876   (107213) от 01.07.2024
+
+Kasbo - 6 Albums (2018-2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, Easy Listening, House, Deep House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107213.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Kasbo - 2018 - Places We Don't Know
+Kasbo - 2019 - Places We Don’t Know Remix EP
+Kasbo - 2020 - The Making of a Paracosm(   Читать дальше...   )Жанр: Downtempo, Easy Listening, House, Deep HouseПродолжительность: 6 CD, 03:20:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:979B53487C853ED62E0E8493A4864D875EB52ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733961   (107203) от 01.07.2024
+
+Luca Turilli (Dreamquest; Rhapsody) - Studio Albums (7 releases) (1999-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лука Турилли — итальянский рок-музыкант, гитарист-виртуоз, клавишник и композитор. Сооснователь пауэр-метал-группы Rhapsody of Fire и соавтор большей части её песен.1999 - King Of The Nordic Twilight
+Luca Turilli's Dreamquest
+Luca Turilli's Rhapsody
+Turilli / Lione RhapsodyЖанр: Symphonic Power MetalПродолжительность: 07:13:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1E9CD184C7FD6E4F368E3A1430FCD067C28574
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733875   (107198) от 01.07.2024
+
+Benjamin Finger - Beyond (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melancholic Drone, Drone Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Closer [00:19:42]
+02. Distance [00:16:42]
+03. Return [00:02:39]Жанр: Melancholic Drone, Drone AmbientПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26DFA125EC12129969C91D2C769BEA86087891AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734019   (107196) от 01.07.2024
+
+Outlander - Acts of Harm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Shoegaze, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107196.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bound [00:06:09]
+02. Want No More [00:07:50]
+03. II: Nuclear [00:01:53]
+04. Orbit [00:03:44](   Читать дальше...   )Жанр: Shoegaze, RockПродолжительность: 00:42:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE5F94ADC44BABD6D3BF8D1866F7A80E748F63AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734137   (107164) от 02.07.2024
+
+Kaipa - Sommargryningsljus (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Progressive Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sommarskymningsljus (1:33)
+02. Seven Birds (9:49)
+03. Like Thousand Dawns (11:09)
+04. Revelationview (9:28)(   Читать дальше...   )Жанр: Symphonic Progressive Metal, Progressive RockПродолжительность: 01:20:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A35F921FD4FAE12309D3A4338DD14AEFE235E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734313   (107121) от 03.07.2024
+
+Havohej - Kembatinan Premaster (2009) [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107121.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Kembatinan Premaster
+A2 Pious Breath
+A3 Bloud And Souls
+A4 Melancholike(   Читать дальше...   )Жанр: Black Metal, ExperimentalПродолжительность: 00:34:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29ED58EA0DA8B7EA234A476CCF052BAFDACECC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1734694   (107102) от 04.07.2024
 
 Visions Of Atlantis - Pirates II Armada (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic, Symphonic Power Metal>
@@ -571,178 +744,6 @@ B1 - When Thousand Moon Have Circled(   Читать дальше...   )Жанр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DAEC1A599786F0C45FBF7F2C9F154790CDC5E63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735362   (106974) от 07.07.2024
-
-Buddha Chill House & Dj. Juliano BGM - Buddha Open Bar: Summer in Hotel, Party on the Beach, EDM All the Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buddha Tropical Deep Lounge [00:03:15]
-02. The Land of Sands [00:03:11]
-03. Holidays in Costa Rica [00:03:11]
-04. Fiji Paradise Lounge [00:03:26](   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0262DFB2EC8404ABD0F0841946C95C89081FC164
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735187   (106961) от 07.07.2024
-
-Fink - Beauty In Your Wake (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Folk, Indie Pop, Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Would You Call Yourself [00:05:27]
-02. The Only Thing That Matters [00:04:37]
-03. Be Forever Like A Curse [00:05:29]
-04. It's Like You Ain't Mine No More [00:04:04](   Читать дальше...   )Жанр: Indie Folk, Indie Pop, BluesПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BD76E8067E2F886A4935CD04DE067F10C43596F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735366   (106952) от 07.07.2024
-
-Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropolis (2016) EP, Released, 2017, W.T.C. Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106952.jpg" />
-</div>
-
-
-###  Подробнее
-
-A - The Burning Voice
-B - HamartiaЖанр: Black MetalПродолжительность: 00:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C9D194A745C8DEC837854B8951547E5E852457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735364   (106951) от 07.07.2024
-
-Shrine of Insanabilis - Disciples of the Void (2015) Released, 2016, Fallen Empire [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106951.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - End All
-A2 - Ruina
-A3 - Acausal Paths
-A4 - (..............)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49F9D088B770907E2FB7B1472FD02776E87CE433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735325   (106950) от 07.07.2024
-
-Faber - Addio (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouverture [00:02:14]
-02. Du kriegst mich nicht zurück [00:03:27]
-03. Sie ist wieder in der Stadt [00:03:14]
-04. Ayurveda [00:03:19](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DC0DED25BC04F0C5596707EF742E1DE5B6CBECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735320   (106948) от 07.07.2024
-
-Yellow House - Psalms of Yellow House (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dream Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saviour Complex [00:03:13]
-02. Trouble Always Finds Me [00:04:01]
-03. Milk & Honey [00:03:10]
-04. Say You Will [00:03:15](   Читать дальше...   )Жанр: Dream PopПродолжительность: 00:26:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E015BBE2873F581FCDFA0E0467BC096529C79E
 ```
 
 https://mybot314.ru/tekegram_catalog/

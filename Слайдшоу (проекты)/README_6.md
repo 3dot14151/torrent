@@ -1,3 +1,30 @@
+###  Публикация: 982632   (946721) от 04.02.2016
+
+Проекты - Pond5 - Fashion Gallery [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C5D96F6F4396DF6D28E99F850582308EB9F0B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362875   (946431) от 25.02.2020
 
 Проекты - VideoHive - Grunge Ink Flow - 21867323 [AEP]
@@ -656,33 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D29B822A7C1875A99A1D0EC1A73A598BCE61B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984322   (939986) от 08.02.2016
-
-Проекты - Pond5 - Dubstep Presentation [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания Вашего фото-слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:015CED2395384BEBFF4CD7036D3E29017A00D1F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1102404   (890328) от 09.02.2017
+
+Проекты - VideoHive - Corporate Promotion Video - 19360762 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890328.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания видео-ролика на корпоративную тематику. А так же для рекламы Ваших товаров, услуг и пр.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4411D6CDE7F78986E865B5B9F9F7BEE13A77100
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101607   (890326) от 09.02.2017
+
+Проекты - VideoHive - Corporate Timeline - 19242032 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_890326.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corporate Timeline - проект для создания корпоративной презентации вашей компании, услуги, или сайта.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832EE895252442FA853062BFD866E30B60BC7F49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994467   (889521) от 08.03.2016
 
 Проекты - VideoHive - Believe [AEP]
@@ -622,60 +674,6 @@ RevoStock - Techno Panels - 707274 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D81AE18ED574BDE87E3D208FDA1A2A10BD02A54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997835   (871359) от 18.03.2016
-
-Проекты - VideoHive - Fashion Video Gallery [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fashion Video Gallery - Проект для полноценного 3 минутного видеоклипа. Создайте современный,  рекламный или музыкальный клип. Содержит 76 медиа-заполнителей.
-Подходит для фотографов, портфолио, фэшн и гламурного видео, клипа для группы или певца.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6303A109A2E50D02A9256173B43FCCA205FD2BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106741   (870900) от 20.02.2017
-
-Проекты - VideoHive - Elegant Architecture Promo - 19170642 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_870900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Elegant Architecture Promo - проект, который можно использовать в различных направлениях - реклама, промо-видео и т.д.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FBFCDE30E94AFE703AEBE453CF9E4A11C6B0184
 ```
 
 https://mybot314.ru/tekegram_catalog/

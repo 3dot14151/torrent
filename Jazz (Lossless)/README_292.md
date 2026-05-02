@@ -1,3 +1,61 @@
+###  Публикация: 1271772   (147783) от 25.12.2018
+
+Gene Krupa Big Band - Drummer Man (1956) Verve [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Off Uptown [3:24]
+02. Rockin' Chair [3:19]
+03. Opus 1 [3:36]
+04. Fish Fry [3:07](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19A4E1D33637F7BF3EC50378F835083B83BD59F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271904   (147770) от 25.12.2018
+
+Michel De Villers - Low Reed: Complete Small Groups Sessions 1946-1956 (2018) Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How High the Moon [3:01]
+02. Sweet Lorraine [2:45]
+03. Shuffin' at the Hollywood [2:50]
+04. Blues at Eleven [2:54](   Читать дальше...   )Жанр: Swing, Big Band, Mainstream JazzПродолжительность: 01:14:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E904A1BE2D7B82C5EA970647669DAF07AD191E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271768   (147758) от 25.12.2018
 
 P.J. Perry And The Edmonton Symphony Orchestra (1999) Justin Time [FLAC|Lossless|tracks + .cue] <Post-Bop, Mainstream Jazz>
@@ -687,64 +745,6 @@ VA - Dinner for One - Jazz (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC2C23B187AB9E3780AC6E2ADE0CA9269735D900
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1678323   (146016) от 21.11.2023
-
-Tom Braxton - Comfort and Joy (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy to the World (5:16)
-02. The Christmas Song (6:40)
-03. Silent Night (4:36)
-04. O Come All Ye Faithful (4:52)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE53FCE8DAA31DFE66FE41D838897D4CF12F9509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1272223   (146002) от 26.12.2018
-
-Roy Hargrove - The Vibe (1992) BMG Novus [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Vibe [6:34]
-02. Caryisms [7:04]
-03. Where Were You? [5:03]
-04. Alter Ego [6:34](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:192A0D2ED2311EAA43C6DFBD7E1FCC86F4E90A50
 ```
 
 https://mybot314.ru/tekegram_catalog/

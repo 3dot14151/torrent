@@ -1,3 +1,32 @@
+###  Публикация: 1732723   (107446) от 26.06.2024
+
+Glenn Marais & The Mojo Train - Red, Hot And Blue (2024) [MP3|320 Kbps] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's Where My Mojo's At (03:09)
+ 02. Superfunk (04:04)
+ 03. Love Denied (03:57)
+ 04. Red, Hot And Blue (04:23)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F888C9B6AC97AA51F2438B2218F04DE7D3827702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745657   (105017) от 27.08.2024
 
 Of Books & Blues - That Ain't It (2024) [MP3|320 Kbps] <Blues, Rock>
@@ -755,35 +784,6 @@ Beth Hart - You Still Got Me (2024) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:24921CB39BC1B0DC1D31ECA89407F2C637452B7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771623   (31704) от 07.01.2025
-
-KAT Blue & The True Believers - Start Believin'... (2024) [MP3|320 Kbps] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Me Right 04:40
-02. Close To My Fire 05:07
-03. Hard Times 03:39
-04. Bad Woman Blues 03:28(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93EEA1D164573DC99E930865595C8DB61D02F9E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

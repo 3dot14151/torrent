@@ -1,3 +1,29 @@
+###  Публикация: 1324077   (429482) от 07.09.2019
+
+VideoHive - View Master Slideshow - 15058042 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429482.jpg" />
+</div>
+
+
+###  Подробнее
+
+View Master Slideshow - стильный проект для создания ретро слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6326426FBC5A64E85CEDCBF302D7586208B46D58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249993   (428230) от 26.09.2018
 
 Проекты - VideoHive - 80s Retro Titles VHS Effect - 6563134 [AEP]
@@ -655,32 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10AE1B70523A76B949A6933542899F3EA3862F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947288   (419903) от 16.10.2015
-
-Проекты - VideoHive - Liquid Parallax - Slideshow Opener - 12837509 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C554995C52064C22A65734CA6B9969A6E7F564C
 ```
 
 https://mybot314.ru/tekegram_catalog/

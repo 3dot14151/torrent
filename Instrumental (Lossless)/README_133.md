@@ -1,3 +1,119 @@
+###  Публикация: 1784401   (69564) от 10.03.2025
+
+Chris Bell & 100% Blues - Blues 2001 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Down Home Cookin' (3:05)
+02.  Ain't Seen Nothing Yet (2:59)
+03.  Elevator to Heaven (9:00)
+04.  Mr. Chill (2:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF0808709972266DA5294F7F8885DE2387B026AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785583   (69267) от 16.03.2025
+
+VA - Grandes Del Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  B.B. King - Chains And Things (4:57)
+02.  The Allman Brothers Band - Midnight Rider (2:58)
+03.  J.J. Cale - After Midnight (2:22)
+04.  Gary Moore - Still Got The Blues (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:54:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E4355EEC05EF7728AF0DBB5F4EDC922ED72C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785606   (69242) от 16.03.2025
+
+Mike Anton - New Rhythm & Soul 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Fading Memories (3:34)
+02.  Dangerous Game (3:07)
+03.  Under the Night Lights (2:54)
+04.  Fading Love (2:51)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:27:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF4196E52612DFA3F5E244FDD355FEB5928555B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785599   (69230) от 16.03.2025
+
+Marco J & The Jaywalkers - Dynamite (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I'm Good (3:12)
+02.  Dynamite (2:49)
+03.  Give Me One More Chance (3:05)
+04.  The Best That I Can (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67D7B1F72A8117B9695D9C2AE75B81E9D98A3714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785597   (69224) от 16.03.2025
 
 HeavyDrunk, Watermelon Slim - BluesLand Theme Park (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Between the Lines (Norway) - Back to the Blues EP (2025) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:613EBF41C97AE748E931B711C49ABA00016B6AF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788935   (68414) от 01.04.2025
-
-Cisco Herzhaft - Roots & B4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Just One More Day (3:39)
-02.  Handworking Blues n°2 (4:08)
-03.  Step it up and Go (3:03)
-04.  Good Imitation of the Blues (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8709CA2F6F433D3C29575ECC8FACF88826FF6D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788936   (68413) от 01.04.2025
-
-Delta Cream - El Desierto (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boogie Woogie Man (3:13)
-02.  Ledbetter (4:14)
-03.  Lost in the Rain (7:05)
-04.  Railway Rhythm (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B2D6722EA3F9B51EE9271F330938F96A5B4344
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788933   (68412) от 01.04.2025
-
-Bob Corritore - Doin' The Shout (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Thornetta Davis - Say Baby Say (3:25)
-02.  Oscar Wilson - Woman Wanted (3:17)
-03.  Nora Jean - Doin' The Shout! (4:35)
-04.  Duke Robillard - I Guess I'm A Fool (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E4A154089E5FFE02326A6804399E7FC2E17F9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788941   (68411) от 01.04.2025
-
-Derek Mc Gowan - Live at Matts (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Fake Alien (3:57)
-02.  One Way Ticket (4:38)
-03.  Love Song (4:24)
-04.  Rusty Goldmines (3:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB4A68053143D46F887D2415ED602667C2766EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

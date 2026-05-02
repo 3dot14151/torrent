@@ -1,3 +1,29 @@
+###  Публикация: 1045389   (559111) от 23.08.2016
+
+Шаблоны - Fassion Passion V5 PSD Flyer Template + Facebook Cover [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флаер и Facebook Cover для Вашего творчества. Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 1275x1875 / 3546х1313 / 300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F26C54CFBD72961C35CC1C8D8A7E589A96B7B36F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045541   (559108) от 23.08.2016
 
 Шаблоны - Kids Salon V1 Flyer PSD Template + Facebook Cover [PSD]
@@ -655,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC1496D61C1E6AB5CC12FCCD1FC70F27B7345721
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049112   (544415) от 04.09.2016
-
-Шаблоны - Фотокнига - Здравствуй, школа! [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотокнига посвященная школе: "первый раз - в первый класс!".
-Автор:Формат: PSDРазрешение файлов: 5906x2953 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:542BDE4FBC36E238ABF4C20B6EB9EE71A8745C64
 ```
 
 https://mybot314.ru/tekegram_catalog/

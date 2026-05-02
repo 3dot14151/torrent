@@ -1,3 +1,61 @@
+###  Публикация: 1001828   (852100) от 29.03.2016
+
+VA - Masters Of Hardcore Chapter XXXVIII (2016) [MP3|320 кб/с] <Hardcore & Hardstyle, Speedcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852100.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss K8 & MC Nolz - Raiders Of Rampage (MOH 2016 Anthem) [04:01]
+02. Dyprax - The Future (Tha Playah Remix Edit) [03:58]
+03. Korsakoff & Furyan - A New Dawn (Edit) [03:38]
+04. Angerfist & MC Nolz - Raise & Revolt (Radio Edit) [03:27](   Читать дальше...   )Жанр: Hardcore & Hardstyle, SpeedcoreПродолжительность: 04:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80C76A96C22A0D4E3D994F866A5585EEFF74F90D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001342   (851924) от 29.03.2016
+
+AC/DC - Bedlam In Belgium (2016) EP [MP3|320 кб/с] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Shake Your Foundations
+02 – The Furor
+03 – Danger
+04 – Burnin’ Alive(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95D2D4BFB1D18D4D731D2A36F19A2375ABC1002D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376727   (851739) от 22.04.2020
 
 VA - Great Artists of My Heart Vol. 02 (2020) [MP3|320 кб/с]<Modern Metal>
@@ -681,64 +739,6 @@ VA - Acoustic Rock vol.6 (2020) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B5A5A61F1A6A999E642EA74BAAFA83C01DF3D0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379570   (839340) от 29.04.2020
-
-VA - Acoustic Rock vol.7 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839340.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Cash - Hurt (03:36)
-02. Alice In Chains - Down In A Hole - Live at the Majestic Theatre, Brooklyn, NY - April 1996 (05:46)
-03. Eagle-Eye Cherry - Falling In Love Again (03:30)
-04. Howie Day - Brace Yourself - Acoustic Version (03:48)(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:132A713463356208E5D49A1A4B8E7006AB3FF613
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1379373   (839192) от 29.04.2020
-
-Krokus - 100% Krokus (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock The Block
-02. Drive It In
-03. Eat the Rich (Remastered)
-04. Save Me(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:26:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B0FBE918D92C3455B97A278426D068B7D7ED0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1837918   (257869) от 20.11.2025
+
+VA - No name compilation Deep Chill Vocal House part 11 (2025) [MP3|320 Kbps] <Deep Chill Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lost in Your Light
+ 02 - Tears of Love
+ 03 - I`m Falling
+ 04 - Left Me(   Читать дальше...   )Жанр: Deep Chill Vocal HouseПродолжительность: 01:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF2D9C380E0D042D9257C5473A8F1DC29CA32B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837841   (257592) от 19.11.2025
+
+LIYNA - Favorites Collection (2025) [MP3|320 Kbps] <Vocal Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - In Your Silence
+ 02 - Tease
+ 03 - The Last Level
+ 04 - Unnamed(   Читать дальше...   )Жанр: Vocal Deep HouseПродолжительность: 00:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED13B8003BE14AC443511A925986ADD4B636C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1837086   (256847) от 15.11.2025
 
 Delih - Favorites Collection (2025) [MP3|320 Kbps] <Electronic>
@@ -747,70 +805,6 @@ VA - Soul of Ibiza Volume 29 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A3052498A1627E3BB3164A03008FD67A68DA80E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305379   (247149) от 06.07.2023
-
-VA - Deep House & Nu Disco Top 100 (Compiled by ZeByte) (2019) [MP3|320 Kbps] <Deep House, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Filatov & Karas Feat. Rada - Lirika [03:36]
-02. Inward Universe - Residues Lives [03:57]
-03. Osaka Feat. Brianna - Find Me (The Distance & Igi Remix) [04:36]
-04. Snap! Feat. Rukmani - Rame (Mi-8 Deep Version) [06:04](   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 07:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E40BFCE4F526FF6C0A442BF2DBA567A9E3CE96A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 491598   (246500) от 04.05.2012
-
-VA - Only DubStep Vol. 1 (2012) [MP3|128-320 кб/с]<DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Obernik, The Str8jackets – Love & Oxygen (Xilent Remix)
-02. Lazy Rich – The Chase Feat. Belle Humble (Habstrakt Remix)
-03. Joe Jonas – Love Slayer (Invader! Remix)
-04. Sixstring King & Invader! – Natural High (Original Mix)
-05. Dubsidia & Balkansky – Annoying Dog
-06. Invader! – Innocent
-07. Fearless Ft. Sonna Rele – Everywhere & Nowhere (1uP Remix)
-08. Ry Legit – Dreamer
-09. Skrillex – Kill Everybody (Bare Noize Remix)
-10. Mantis – Ruthless (Original Mix)(   Читать дальше...   )2012Жанр: DubStepПродолжительность: 02:38:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F515E43D6807619DC45BA36044AD78D362B03915
 ```
 
 https://mybot314.ru/tekegram_catalog/

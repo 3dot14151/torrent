@@ -1,3 +1,61 @@
+###  Публикация: 1684620   (127612) от 16.12.2023
+
+Erotic Jazz Music Ensemble, Erotic Stimulation Academy - Jazz for Erotic Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Check It Out (4:29)
+02. Kinda Sexy (4:19)
+03. Sexy Lounge Suit (3:40)
+04. Seductive Sexcapade (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:634265CD58B5E4C8D81BF78A67DA1B02244ED6F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684642   (127556) от 16.12.2023
+
+Monty Alexander - Solo (1980, 1987) 1998, Kingston World [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song for Susan [4:48]
+02. Mango Song [4:25]
+03. My One and Only Love [4:12]
+04. Tricotism [3:31](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Piano JazzПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2433988695D7EF09E18FA81B89DDB2F1380DDCFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1684585   (127545) от 16.12.2023
 
 Bill Evans Quintet - Interplay (1962) 1996, Riverside [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ The Brecker Brothers - Score (1988) 1991, Jazz Door [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7B22CB68260C85402914640F74C0AF3EF94C8E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685890   (126768) от 21.12.2023
-
-Ella Fitzgerald & Louis Armstrong - Ella & Louis Wish You A Swinging Holiday (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz vocal, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleigh Ride [00:02:55]
-02. Cool Yule [00:02:56]
-03. Let It Snow! Let It Snow! Let It Snow! [00:02:43]
-04. I've Got My Love To Keep Me Warm [00:03:10](   Читать дальше...   )Жанр: Jazz vocal, SwingПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9632E059BA37F6EF7B0870A9806F82F97EA6DDEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686097   (126749) от 21.12.2023
-
-Benny Goodman - Undercurrent Blues (1940 - 1949) 1995, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely Moments [3:08]
-02. Whistle Blues [2:48]
-03. Shirley Steps Out [3:11]
-04. Stealin' Apples [3:10](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA5EEE0B4B34C572B4D42A43DF7F5A7342A8E02
 ```
 
 https://mybot314.ru/tekegram_catalog/

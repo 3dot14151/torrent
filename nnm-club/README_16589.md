@@ -1,167 +1,25 @@
-###  Публикация: 1576488   (364380) от 15.09.2022
+###  Публикация: 1070281   (367006) от 07.11.2016
 
-Solar Storm - 3 Relises (2018-2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. За Линией Горизонта [00:02:13]
-02. Демон Твой [00:04:40]
-03. Тетрадь Смерти [00:04:51]
-04. Your Name Is Gerda [00:03:18](   Читать дальше...   )Жанр: MetalcoreПродолжительность: 3 CD, 01:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0E17502F98A264DF4703570E2939844057B0B2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 253971   (364376) от 04.11.2010
-
-Апачи / Apachen (1973) DVD5
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие фильма происходит в пограничной области между США и Мексикой в 1848 году, когда Мексике пришлось уступить Америке территорию нынешних штатов Аризона, Нью-Мексико, Юта и Колорадо. Апачи племени мимбреньо в "Новой Испании" заключают с мексиканской горнопромышленной компанией договор, позволяющий мексиканцам производить разведочные работы. Однако (   Читать дальше...   )Жанр: Вестерн, ДрамаРежиссер: Конрад ПетцольдАктеры: Гойко Митич /Ульзана/, Милан Бели, Колеа Рауту, Герри Вольфф, Рольф Хоппе, Леон Немчик, Фред Дельмаре, Эльза Грубе-Дайстер, Фред Людвиг, Хартмут Беер и др.Перевод: ДублированныйПродолжительность: 01:27:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96FE53CA7664153C53F4F3B73753D2E8EB37347F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576747   (364374) от 15.09.2022
-
-Shambles - Oneiric Visions (2022) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal, Doom Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Ophidian Way (08:52)
-02 - Formulas of Magic Death (06:59)
-03 - Oneiric Visions (08:11)
-04 - Gate of the Occult (01:29)(   Читать дальше...   )Жанр: Brutal Death Metal, Doom Death MetalПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F2C3DF0035442D6B3FBA1F885EC77209A5CFED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576315   (364373) от 15.09.2022
-
-Innumerable Forms - 3 Albums (2013-2022) [FLAC|Lossless|WEB-DL|tracks] <Doom, Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364373.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2013 - Split
-2018 - Punishment in Flesh
-2022 - Philosophical CollapseЖанр: Doom, Death MetalПродолжительность: 01:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D69EB968857B8B94D9704CD7F0ABC67DBE0B9B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576730   (364372) от 15.09.2022
-
-Forgotten North - Ara II (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hinter den Wolken [00:04:48]
-02. Rette sich wer kann [00:05:06]
-03. Auf der Düne [00:05:15]
-04. Bis der letzte fällt [00:03:53](   Читать дальше...   )Жанр: Symphonic Folk MetalПродолжительность: 00:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3C6450870647A24021432C3FF07897D5EDCA3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255663   (364371) от 18.10.2018
-
-Motion City Soundtrack - Commit This To Memory (2005) [FLAC|Lossless|tracks + .cue] <Rock, Pop Punk, Alternative Rock>
+Фигурное катание. Гран-при сезона 2016-2017 "Кубок Ростелеком-2016". Мужчины. Произвольная программа (05.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364371.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Attractive Today (1:43)
- 02. Everything Is Alright (3:26)
- 03. When "You're" Around (2:52)
- 04. Resolution (3:48)(   Читать дальше...   )Жанр: Rock, Pop Punk, Alternative RockПродолжительность: 00:39:15
+05 ноября 2016, суббота. 15:50 МСК
+3-й Этап серии Гран-при сезона 2016-2017
+"Кубок Ростелеком-2016". Москва (Россия)
+(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:54:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C721F6B144998CED4F5FF4F7CF3CFE5C443FA6D5
+magnet:?xt=urn:btih:B4109BF0BF88326FCCEF7120A08B029E6E82AA0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576698   (364370) от 15.09.2022
+###  Публикация: 1070720   (367005) от 07.11.2016
 
-Forgotten North - Ara II (2022) [MP3|320 Kbps] <Symphonic Folk Metal>
+Pagandom - Hurt as a Shadow (2016) [MP3|320 Kbps] <Technical Thrash, Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364370.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Hinter den Wolken [00:04:48]
-02 - Rette sich wer kann [00:05:06]
-03 - Auf der Dune [00:05:15]
-04 - Bis der letzte fallt [00:03:53](   Читать дальше...   )Жанр: Symphonic Folk MetalПродолжительность: 00:53:48
+01. Forever (03:07)
+02. An Entity, A Ghost (03:28)
+03. Hurt as a Shadow (04:27)
+04. Behind the Words (04:05)(   Читать дальше...   )Жанр: Technical Thrash, Progressive MetalПродолжительность: 00:43:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:641891BC1D4598563F86A89C0BB823AC96971DD1
+magnet:?xt=urn:btih:03E2499D209D51F0FEC22B53685A6C60053F66E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255669   (364369) от 18.10.2018
+###  Публикация: 1070712   (367004) от 07.11.2016
 
-Moving Mountains - Foreword (2008) EP [FLAC|Lossless|tracks + .cue] <Rock, Post Rock, Indie Rock>
+Painted In Exile - The Ordeal (2016) [MP3|320 Kbps] <Progressive Death Metal, Metalcore, Experimental>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364369.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Foreword (9:37)
- 02. With One's Heart In One's Mouth (9:49)
- 03. Armslength (7:12)
- 04. Lights And Shapes (9:38)Жанр: Rock, Post Rock, Indie RockПродолжительность: 00:36:16
+01. House Of Cards
+02. Welcome (One And Come All)
+03. The Bazaar
+04. Jupiter(   Читать дальше...   )Жанр: Progressive Death Metal, Metalcore, ExperimentalПродолжительность: 00:47:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D326558F39CFC41A20A0716CBB4EAC1502F4DDE
+magnet:?xt=urn:btih:E1391DF7BAF52BF36423727D8C113363FB779469
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,28 +85,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576632   (364368) от 15.09.2022
+###  Публикация: 1070487   (367003) от 07.11.2016
 
-SDI - 80s Metal Band (2020) [FLAC|Lossless|image + .cue] <Speed Metal, Thrash, Heavy Metal>
+Футбол. Лига Европы 2016-2017. 4-й тур. Обзор матчей (03.11.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367003.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обзор матчей 4-го тура группового этапа Лиги Европы 2016-2017.
+Группа A
+Фенербахче (Турция) – Манчестер Юнайтед (Англия)
+Заря (Украина) – Фейеноорд (Нидерланды)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: Русский (Станислав Минин, Роман Трушечкин)Продолжительность: 00:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9376D12D36CC8A2567567D35C7EDEC2115A9EFB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070305   (367002) от 07.11.2016
+
+Pighead - Until All Flesh Decays (2016) [MP3|320 Kbps] <Brutal Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364368.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 80s Metal Band	4:14
-02. Freeride	4:18
-03. Porno	3:36
-04. Action	3:05(   Читать дальше...   )Жанр: Speed Metal, Thrash, Heavy MetalПродолжительность: 00:44:34
+01. Transcend the Unknown 01:00
+02. Twitching Xenomorphic Shades 03:28
+03. Eliminate Alien Elements 03:18
+04. State Of Absolute Misery 03:04(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:34:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F40424287CDAB49644C2A6744EE6589A73A43357
+magnet:?xt=urn:btih:D3DA6C253B9F2A8BB39B79772CD86C3EA0F2A7C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -256,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255629   (364367) от 18.10.2018
+###  Публикация: 1070690   (366999) от 07.11.2016
 
-La Dispute - Somewhere At The Bottom Of The River Between Vega And Altair (2009) [FLAC|Lossless|tracks + .cue] <Rock, Hardcore, Punk>
+Scarecrow Avenue - Medusa (2016) [MP3|320 Kbps] <Alt.Metal, Metalcore>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364367.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Such Small Hands (1:36)
- 02. Said The King To The River (4:01)
- 03. New Storms For Older Lovers (5:00)
- 04. Damaged Goods (2:56)(   Читать дальше...   )Жанр: Rock, Hardcore, PunkПродолжительность: 00:51:39
+01. Legado 02:33
+02. El Juramento 04:18
+03. Siete 05:40
+04. Inercia 04:09(   Читать дальше...   )Жанр: Alt.Metal, MetalcoreПродолжительность: 00:38:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29C24023BA5E9CA58474F665AB2B59842FD7F58F
+magnet:?xt=urn:btih:1E4D9440737F2B3D9D6082B52925EA71E0044D1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,28 +172,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576573   (364366) от 15.09.2022
+###  Публикация: 1070650   (366998) от 07.11.2016
 
-Polychrome - Equilibrium (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+Место встречи. Советский дух?! (07.11.2016) SATRip
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Документалистика и Телепередачи
+>>Телешоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364366.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Welcome 03:54
-02. Cycle Of Life 05:20
-03. En Grandissant 01:39
-04. Funky Jam 04:45(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:08:46
+Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 01:35:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77B91F19B5F201DB6C798D4215CAD4DF45D39ECE
+magnet:?xt=urn:btih:18AC284BF7049FF033DB034959623A240ED9F3B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,28 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255624   (364365) от 18.10.2018
+###  Публикация: 1070515   (366997) от 07.11.2016
 
-The Magic Band - Back To The Front (2003) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Blues Rock, Jazz-Rock>
+Mark May - Doll Maker (2002) [FLAC|Lossless|image + .cue] <Modern Electric Blues, Blues Rock>
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364365.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Human Gets Me Blues (3:12)
- 02. Click Clack (4:04)
- 03. Abba Zaba (2:44)
- 04. I'm Gonna Booglarize You Baby (4:24)(   Читать дальше...   )Жанр: Alternative Rock, Blues Rock, Jazz-Rock, AvantgardeПродолжительность: 00:55:44
+01. Doll Maker 05:49
+02. I'm A Gambler 05:47
+03. Dig Your Ride 05:54
+04. Gangsta's Blues 05:53(   Читать дальше...   )Жанр: Modern Electric Blues, Blues RockПродолжительность: 01:13:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:111A1AB8E59459AFD0B720F68438A04C1E8C14D8
+magnet:?xt=urn:btih:B7014B74385174FA6E3E7077B794A6DECE94806F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,303 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576804   (364364) от 15.09.2022
+###  Публикация: 1070365   (366996) от 07.11.2016
 
-Александр Фадеев | Метелица (1948) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364364.jpg" />
-</div>
-
-
-###  Подробнее
-
-В рассказе советского писателя Александра Фадеева "Метелица" описываются события гражданской войны на Дальнем Востоке. В центре событий - молодой человек по фамилии Метелица, бесстрашный командир взвода Партизанского отряда. Выполняя задания командира отряда, Метелица попадает в плен...
-Для детей младшего школьного возраста. Иллюстрации В.Ладягина.Жанр: Рассказ, ПовестьФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59AD44A1438B4FAC3F7D5B052BA2443925086DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255418   (364363) от 18.10.2018
-
-Кэрол Мортимер | Мучительно прекрасная связь (2018) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364363.jpg" />
-</div>
-
-
-###  Подробнее
-
-Грегорио Де ла Круза совсем не волнует, что Лия Фэрбенкс считает его виновным в смерти ее отца. Он не может выбросить образ рыжеволосой красавицы из головы, но Лия продолжает пресекать попытки Грегорио сблизиться, хотя ее тело предательски реагирует на его малейшее прикосновение. Она знает, что не может ему доверять, но Грегорио не остановить, и очень скоро она уже (   Читать дальше...   )Жанр: Современная зарубежная прозаПеревод: А. Ю. ТкачеваФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDA76334778BD7D737551E83564D4C1376EBF568
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576559   (364362) от 15.09.2022
-
-Audrey Horne - Devil's Bell (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364362.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ashes to Ashes (06:48)
-2. Animal (04:09)
-3. Break Out (05:23)
-4. Return to Grave Valley (04:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEA268E870C99F83D13B74D4247954818B335F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255497   (364361) от 18.10.2018
-
-VA - Progressive House Autumn Essentials (2018) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elypsis – Adrift At Sea (Original Mix)
-02. Skyline Drive, Allay & Astroleaf – Ocean Boulevard (Original Mix)
-03. LOOPer & Andy Wooding – All We Are (Shomu Remix)
-04. Terry Da Libra – Eunoia (Original Mix)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F0AF7FF4D952C87B75C25F4905211F0EB9339DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576659   (364360) от 15.09.2022
-
-Sweet Oblivion Feat. Geoff Tate - Sweet Oblivion Feat. Geoff Tate (2019) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True Colors
-02. Sweet Oblivion
-03. Behind Your Eyes
-04. Hide Away(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964D0AE240EEF4EA78C31EAF6B2226AEB963BF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255320   (364359) от 18.10.2018
-
-Соня Дивицкая | Замуж срочно! (2018) [FB2]
-
->>Художественная литература
->>Современная поэзия и проза
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364359.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трудно найти девушку, которая не стремилась бы выйти замуж. Ни одна не скажет: «Ой, мне не к спеху». Как только начинает попахивать ЗАГСом – все как ненормальные бегут. И неважно, женщина молода и привлекательна, как Кармен, или невзрачна и великовозрастна, как Анна, полненькая, как Риммочка, или худенькая, как Надин, у нас в России замуж – это всегда срочно. В книге (   Читать дальше...   )Жанр: Современная отечественная прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785604AE3A22CAF9B12040B449F7EE993C8D0D71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576783   (364358) от 15.09.2022
-
-Эрнст Любич. Жена фараона / Das Weib des Pharao (1922) HDTVRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364358.jpg" />
-</div>
-
-
-###  Подробнее
-
-Последняя масштабная костюмная мелодрaма, созданная Любичем в Германии, но уже на американские деньги. Новая продюсерская компания Europäische Film-Allianz предоставила немецкому режиссеру финансовые и технические средства для создания этого грандиозного фильма. Сюжет построен по уже отработанной в «Мадам Дюбарри» схеме – любовный треугольник на фоне бурной (   Читать дальше...   )Производство: Германия, Ernst Lubitsch-Film, Europäische Film-AllianzЖанр: драма, мелодрама, история, немое киноРежиссер: Эрнст ЛюбичАктеры: Эмиль Яннингс, Пауль Бинсфельдт, Фридрих Кюне, Альберт Бассерманн, Гарри Лидтке, Пауль Вегенер, Лида Салмонова, Дагни Сервес, Мади Кристианс, Тина ДитрихПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские встроенные отключаемыеПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F32F50E2857B7B88C57BFD7DF226D061AFA9C0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255602   (364357) от 18.10.2018
-
-Журнал | House Beautiful [USA] №11 (ноябрь 2017) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B99D09EEF3775916DECDCC976547F3AB057863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576510   (364356) от 15.09.2022
-
-The Mars Volta - The Mars Volta (2022) [MP3|320 Kbps] <Progessive Rock, Neo-Psychodelia>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Blacklight Shine [00:02:55]
-02 - Graveyard Love [00:03:14]
-03 - Shore Story [00:03:15]
-04 - Blank Condolences [00:03:27](   Читать дальше...   )Жанр: Progessive Rock, Neo-PsychodeliaПродолжительность: 00:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E1683DAC19D61B092251D0612E256CB805E82EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255496   (364355) от 18.10.2018
-
-TableEdit Pro 1.4.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364355.jpg" />
-</div>
-
-
-###  Подробнее
-
-TableEdit - это простое, чистое и элегантное приложение для электронных таблиц, разработанное специально для macOS. TableEdit отличается минималистичным, но интуитивно понятным интерфейсом и имеет удобные функции, такие как формулы, графики и исчерпывающие варианты стилей ячейки, а также широкие возможности импорта и экспорта.
-
-TableEdit был разработан с нуля, чтобы (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.07.2018Разработчик: CoreCode LimitedПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB15BACA6AD462B1935AFF58AA156791A8829CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255480   (364354) от 18.10.2018
-
-Gabor Szabo - 1969 (2004) Air Mail [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+Anat Cohen & Trio Brasileiro - Alegria Da Casa (2016) [FLAC|Lossless|tracks + .cue] <World Fusion, Latin Jazz, Brazilian Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364354.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dear Prudence [2:42]
-02. Sealed With A Kiss [2:46]
-03. Both Sides Now [2:57]
-04. Walk Away Renee [2:49](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:35:52
+01. Murmurando (4:50)
+02. Waiting For Amalia (3:21)
+03. Alegria Da Casa (3:27)
+04. Baiao Guri (3:15)(   Читать дальше...   )Жанр: World Fusion, Latin Jazz, Brazilian JazzПродолжительность: 00:44:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:43C44183393377A7A5856904ED882EC9A977B72D
+magnet:?xt=urn:btih:53EAC5BAB7556EB8D27408CF2994AFDBA167D576
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -647,34 +256,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 576350   (364351) от 17.11.2012
+###  Публикация: 722102   (366984) от 13.11.2013
 
-VA - Супервечеринка: Хиты без перерыва 4 (2012) [MP3|256 кб/с]<Pop>
+Смурфики 2 / The Smurfs 2 (2013) HDRip
 
->>Архив торрентов
->>Архив Музыки
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364351.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Потап и Настя - Улелето
-002. Mandy Santos feat. Xuso Jones - Animal
-003. Алена Винницкая - Виноград
-004. Alexandra Stan - Cliche (Hush Hush)
-005. Иван Дорн - Идолом
-006. Rihanna - Diamonds (Shahaf Moran Radio Edit)
-007. ДжаниРадари - Блины
-008. Xonia - Remember (Radio Edit)
-009. Анна Гуричева и Школа - Слезы неба
-010. Leona Avrelina Verano(   Читать дальше...   )Жанр: PopПродолжительность: 05:19:51
+Гаргамел создаёт Хакуса и Векси, как две капли воды похожую на смурфиков злобную парочку, надеясь всё-таки обрести магическую силу.
+Когда он узнаёт, что лишь настоящий смурф может дать ему то, что он хочет, и лишь Смурфетта способна превратить Хакуса и Векси в настоящих смурфов,
+Гаргамел похищает Смурфетту и берёт её с собой в Париж, планируя сделать её своей прислужницей. (   Читать дальше...   )Производство: США / Columbia Pictures, Sony Pictures AnimationЖанр: Фэнтези, Комедия, СемейныйРежиссер: Раджа ГоснеллАктеры: Хэнк Азария, Нил Патрик Харрис, Брендан Глисон, Джейма Мейс, Джонатан Уинтерс, Кэти Перри, Кристина Риччи, Дж.Б. Смув, Джордж Лопес, Антон ЕльчинПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:44:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C896D2571227303668581FB70D5C756D061CCC79
+magnet:?xt=urn:btih:2168F7EAF2AF2D7AA434941827CB5312E8592408
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,29 +284,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 576647   (364349) от 17.11.2012
+###  Публикация: 720833   (366983) от 13.11.2013
 
-MitiS - Deliverance (EP) (2012) [MP3|320 кб/с]<Dubstep>
+Тихоокеанский рубеж / Pacific Rim (2013) Blu-ray [1080p] 3D [3D/2D]
 
->>Архив торрентов
->>Архив Музыки
+>>След.
+>>Зарубежные Фильмы (3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Deliverance (4:31)
- 02. Don’t Know (4:29)
- 03. Elevation (4:34)
- 04. Let’s Go (6:09)
- 05. Shapes & Sizes (5:08)Жанр: DubstepПродолжительность: 00:24:54
+Производство: США | Warner Bros., Legendary Pictures, 32Ten StudiosЖанр: Фантастика, Фэнтези, Боевик, ПриключенияРежиссер: Гильермо дель ТороАктеры: Чарли Ханнэм, Идрис Эльба, Ринко Кикути, Роберт Казински, Макс Мартини, Чарли Дэй, Берн Горман, Клифтон Коллинз мл., Рон Перлман, Диего Клаттенхофф, Брэд Хенке, Ларри Джо Кэмпбелл, Мана Ашида ...Перевод: Дублированный, Многоголосый закадровыйСубтитры: (PGS, 3D): Вшитые отключаемыеЯзык субтитров: English, Russian - Полные (2 варианта) и ФорсированныеПродолжительность: 02:07:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:37E8F44A117F840FEFCF560B06AD32639FB3619F
+magnet:?xt=urn:btih:E55B49E30F4C59BE70844FEF388E1F262EC63A07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -712,28 +310,392 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 576727   (364348) от 17.11.2012
+###  Публикация: 722149   (366979) от 13.11.2013
 
-Trolley Snatcha - One Trick Pony (EP) (2010) [MP3|320 кб/с]<Dubstep>
+Killzone 3 [PS3] [+MOVE] [EUR] [RUSSOUND] [3.55] [Cobra ODE / E3 ODE PRO ISO] (2011)
 
->>Архив торрентов
->>Архив Музыки
+>>След.
+>>PS3
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pass Me By 05:09
-02. Always On My Mind 05:12
-03. Rocco's Revenge 05:09
-04. We Go Deep 05:12Жанр: DubstepПродолжительность: 00:20:44
+События игры продолжаются сразу же после событий Killzone 2, где мы узнаем, что император Висари, лидер Хелгастов, умирает у ног Сева и Рико. Но это не означает, что война уже выиграна. После смерти Висари, на планете Хелган развиваются политические интриги, междоусобицы и убийства. Теперь два самых влиятельных человека на планете сражаются за полное и абсолютное господство. С небольшим количеством запасов и без подкрепления, организация ISA должна сражаться не за победу в войне, а хотя бы за выживание.
+В Killzone 3 вы вновь столкнетесь с враждебной армией Хелгастов и с огромными трудностями в борьбе за выживание человечества. Наряду с однопользовательской кампанией, в игре будет полнофункциональный многопользовательский режим. (   Читать дальше...   )Тип издания: Rip (вырезано 3D)Разработчик: Guerrilla GamesЖанр: First-Person ShooterЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8DCEC90DDBF6F8EA4AA7315F3DF6A699325B202
+magnet:?xt=urn:btih:AD7F9EFE21C8F5963787A312435E28B6A4D910A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719405   (366973) от 13.11.2013
+
+Крик совы (Особые полномочия) (2013) SATRip (сезон 1, серии 1-10 из 10)
+
+>>След.
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366973.jpg" />
+</div>
+
+
+###  Подробнее
+
+1957 год, время хрущевской "оттепели". Городок Остров Псковской области сотрясает череда дерзких преступлений. При стычке бандитов с правоохранительными органами тяжело ранен один из лучших сотрудников местной милиции – капитан Юрий Сиротин. В бессознательном состоянии он разговаривает по-немецки, что приводит к служебному расследованию, которое поручено (   Читать дальше...   )Производство: Россия, кинокомпания "Щука"Жанр: Детектив, КриминалРежиссер: Олег ПогодинАктеры: Сергей Пускепалис, Андрей Мерзликин, Мария Миронова, Евгений Дятлов, Андрей Феськов, Анатолий Васильев, Игорь Савочкин, Серафима Низовская, Василий Бочкарёв, Сергей Юшкевич, Наталья Высочанская, Александр Марушев, Евгения Дмитриева, Эрнст Романов, Эра Зиганшина, Евгений Ганелин, Николай Харитонов, Владимир Матвеев, Анна Уколова, Олег Алмазов, Александр Нестеров, (   Читать дальше...   )Продолжительность: 00:51:16 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:418B5E411C9544A0FE05D7A2BAB5610CD6DE5276
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176943   (366970) от 23.10.2017
+
+Ночной мир  / Nightworld (2017) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американец Бретт, бывший полицейский, устраивается охранником в древний замок в Софие в Болгарии. Вскоре в замке начинают происходить странные пугающие события. Бретт решает разобраться в истории замка и узнать больше о предыдущих работниках и выясняет, что в глубинах замка затаились злые силы, которые во что бы то ни стало хотят вырваться наружу.Производство: БолгарияЖанр: Ужасы, ТриллерРежиссер: Патрисио ВальядаресАктеры: Джейсон Лондон, Роберт Инглунд, Джанни Капальди, Лорина Камбурова, Диана Любенова, Атанас Сребрев, Николай Валентинов ЛукановПеревод: Многоголосый закадровый, любительский (Синема УС)Субтитры: отсутствуют.Продолжительность: 01:31:47Реклама: присутствуют аудио и видео вставки рекламы.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94531103D90198EF21AC600369AFF2F17302A2BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176807   (366969) от 23.10.2017
+
+Водила / Wheelman (2017) WEB-DLRip [H.264/1080p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Водитель, работающий на преступные группировки, после не очень гладко прошедшего ограбления вынужден спасаться от преследователей в машине с украденными деньгами.Производство: СШАЖанр: Боевик, триллерРежиссер: Джереми РашАктеры: Фрэнк Грилло, Кэйтлин Кармайкл, Гаррет Диллахант, Венди Мониз, Джон Ченатьемпо, Слэйн, Уильям Ксифарас, Прешес Уайт, Сет Айотт, Майк ФиерроПеревод: Любительский многоголосый (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:23:47Реклама: Присутствуют вставки видео, голосовой и текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A39C10BDC773E0A784D367B48DA80C3543ED2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176649   (366968) от 23.10.2017
+
+Футажи - Fotosearch Gold Footage - Flames of Fire [MOV]
+
+>>Материалы для мультимедиа и дизайна
+>>Футажи
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Огненные футажи. Различные виды пламени - от горящей спички до стены огня. Сборник содержит 32 видео-клипа в MOV-формате.Формат: MOVРазрешение файлов: 720x486
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A67474F156FECFA241ECC091FAB0280DEDB1BF2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176797   (366967) от 23.10.2017
+
+В последний раз прощаюсь (2017) SATRip (2 серии из 2)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366967.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жарким летним днем 24-летний Андрей спасает утопающую школьницу Веру. Девушка безответно влюбляется в своего спасителя, а тот видит в ней лишь малюсенькую робкую девчонку. Вскоре Андрей уезжает в город и женится на своей ровеснице. А у Веры остаются его рисунки, медальон и щенок Джим, которого они вместе спасли. Прошли годы, из неловкой девчонки Вера превратилась (   Читать дальше...   )Производство: Украина / FILM.UAЖанр: МелодрамаРежиссер: Андрей ЧерныхАктеры: Ксения Роменкова, Константин Самоуков, Валерия Ходос, Мальвина Салийчук, Мария Трепикова, Андрей Фединчик, Александра Польгуй, Игорь Петрусенко, Нина Антонова, Инна КапиносЯзык озвучки: РусскийСубтитры: Украинские (хардсаб)Продолжительность: 01:36:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68634A931D75A106A3A0EE44C73012BC31AF7318
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176867   (366966) от 23.10.2017
+
+Выходя / Walking Out (2017) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Городской подросток едет в Монтану к отцу-отшельнику, чтобы вместе отправится на охоту. Но захватывающее путешествие превращается в борьбу за выживание, когда отец с сыном сталкиваются с медведем гризли.Производство: СШАЖанр: Триллер, драма, детектив, приключенияРежиссер: Алекс Смит, Эндрю Дж. СмитАктеры: Мэтт Бомер, Лили Гладстоун, Алекс Нюстадтер, Билл Пуллман, Кен Уайт, Джош Уиггинс ...Перевод: Любительский многоголосый (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:37:12Реклама: Присутствуют вставки видео, голосовой и текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9A1940BEDB526319AC27D017299AE50FE53D0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176922   (366965) от 23.10.2017
+
+Naked / Голышом (2017) WEBRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366965.jpg" />
+</div>
+
+
+###  Подробнее
+
+День свадьбы Роба Андерсона превращается в «день сурка», который будет повторяться снова и снова, пока злополучный жених не доберётся до венца. Проблема в том, что каждый раз Роб просыпается на полу лифта, без одежды и в беспамятстве, а до свадьбы остаётся всего час...Производство: СШАЖанр: КомедияРежиссер: Майкл ТиддесАктеры: Реджина Холл, Марлон Уайанс, Нил Браун мл., Деннис Хейсбёрт, Лоретта Дивайн, Дейв Шеридан, Кори Хардрикт, Жуль Хевн, Джейсон Дэвис, Джондэйс КэндесПеревод: Любительский многоголосый (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:36:37Реклама: Присутствуют вставки голосовой и текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC60E2D902EEC950CCC2D81841A3097EF9FF77B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176860   (366963) от 23.10.2017
+
+Стена / The Wall (2017) WEB-DLRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время войны в Ираке двое американских военных оказываются засечены вражеским снайпером. Однако одному из солдат удается поймать радиочастоту иракца. Между противниками находится лишь полуразрушенная бетонная стена, поэтому исход битвы зависит не столько от физической силы, сколько от находчивости и силы воли вражеских сторон.Производство: СШАЖанр: Триллер, драма, военныйРежиссер: Даг ЛайманАктеры: Аарон Тейлор-Джонсон, Джон Сина, Спенсер Томас, Лэйт НаклиПеревод: Любительский многоголосый (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:29:09Реклама: Присутствуют вставки голосовой и текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44462FB97C6885F870EB6D67A51B6E1791BBB8C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176992   (366962) от 23.10.2017
+
+War Front: Turning Point / War Front: Другая мировая (2007) [Ru] (1.00) Repack Other s
+
+>>Win Игры
+>>Strategy Tactical (RTS/TBS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366962.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как сложилась бы мировая история, погибни Гитлер в самом начале войны? Что стало бы с немецкой военной машиной, если бы пал тоталитарный режим фюрера? И что, если бы правдой оказались легенды о сверхоружии, которое тайно разрабатывали ученые Третьего Рейха? Перед вами альтернативная история Второй мировой войны; стратегия в которой реальные модели танков, ракетниц (   Читать дальше...   )Тип издания: RepackРазработчик: Digital RealityЖанр: RTS, 3DЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:297C41775BD7FA26BBD00544A8BC4F09FC227217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176872   (366961) от 23.10.2017
+
+Наталья Караванова | Английский для русских. Курс английской звучащей речи + CD (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366961.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие посвящено развитию навыков аудирования – слушания и понимания звучащей речи на слух. Его задача – научить легко понимать звучащую английскую речь и говорить по-английски, правильно используя ритмику слова, интонацию и темп речи. Авторская методика обучения аудированию основана на сопоставительном изучении звуковых систем русского и английского языков.
+
+В (   Читать дальше...   )Жанр: Иностранный языкФормат: PDF, MP3
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B8FE19123907FA4556DD3B7D0DDD94FC5D5B408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176874   (366960) от 23.10.2017
+
+Вооружённый ответ / Armed Response (2017) HDRip [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366960.jpg" />
+</div>
+
+
+###  Подробнее
+
+Команда высокопрофессиональных оперативников оказывается в ловушке внутри воинской части. Без того удушающую атмосферу накаляет тот факт, что в этом самом здании уже погибла группа их предшественников.Производство: СШАЖанр: Ужасы, триллерРежиссер: Джон СтокуэллАктеры: Уэсли Снайпс, Энн Хеч, Дэйв Эннэйбл, Джин Симмонс, Колби Лопес, Энтони Азизи, Мэтт Галлини, Эйас Юнис, Морган РобертсПеревод: Профессиональный многоголосый (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:34:53Реклама: Присутствуют вставки видео, голосовой и текстовой рекламы!
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAD8D064EDB70C473DDAE4EAB99F677FAA40602C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176899   (366959) от 23.10.2017
+
+Fernbus Simulator (2016) [Ru/Multi] (1.14.12800/dlc) Repack Other s
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366959.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fernbus Coach Simulator — первый симулятор, позволяющий присоединиться к популярным междугородним перевозкам. Благодаря сотрудничеству с компанией FlixBus, Fernbus Coach simulator передает мир пассажирских перевозок по немецким автобанам и мелким дорогах в мельчайших подробностях.Тип издания: RepackРазработчик: TML-StudiosЖанр: Simulator, 3DЯзык озвучки: НемецкийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6CBB47A0F9E9D58A34C09E7154A7839D1677D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176923   (366958) от 23.10.2017
+
+Real Farm (2017) [Ru/Multi] (1.0.0) License SKIDROW
+
+>>Win Игры
+>>Simulation (Other)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вперед к успеху в игре Real Farm! Станьте рабочим в режиме карьеры или фермером в свободном режиме. Займитесь урожаем или скотом. Покупайте земли и нанимайте рабочих. Ваши действия влияют на экономику! Real Farm воссоздает жизнь на современной ферме.Тип издания: LicenseРазработчик: Triangle StudiosЖанр: Simulator, 3DЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E007C58CFDDCAC07A65098FF7BB0198BA93ECEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1056523   (366957) от 23.10.2017
+
+Sly Cooper: Thieves in Time / Sly Cooper: Прыжок во времени (2013) [PSVita] [EUR] 3.60 [NoNpDrm] [License] [Ru]
+
+>>Консольные Игры
+>>PS Vita
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как и прошлые игры в серии, данная игра представляет собой платформер с элементами стелс-экшена. Игрок управляет одним из ряда персонажей, каждый из которых обладает своим уникальным набором способностей и заданий. Игрок может переключаться между персонажами, среди которых Слай, Бентли, Мюррей, а также Кармелита и одни из предков Слая в зависимости от эпохи, в которой (   Читать дальше...   )Тип издания: LicenseРазработчик: Sanzaru GamesЖанр: ПлатформерЯзык озвучки: РусскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA5571CC08672D9BBA69CB54A1AB713246C878EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

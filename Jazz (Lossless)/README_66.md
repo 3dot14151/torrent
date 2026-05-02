@@ -1,3 +1,61 @@
+###  Публикация: 1119823   (806061) от 29.03.2017
+
+John Pizzarelli with The George Shearing Quintet - The Rare Delight of You (2002) Telarc [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.If Dreams Come True [03:51]
+ 02.The Lady's In Love With You [02:44]
+ 03.Everything Happens To Me [03:47]
+ 04.Lulu's Back In Town [02:57](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F23EED3F66181E1016B1840934871F35C400ECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505213   (804622) от 27.10.2021
+
+Sadao Watanabe - Go Straight Ahead 'n Make A Left (1997) Verve Records [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Post Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk Around the Corner [4:10]
+02. Maji [5:57]
+03. Nightly Yours [4:15]
+04. Episode [5:45](   Читать дальше...   )Жанр: Crossover Jazz, Post BopПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41CB40FB7889B470DD3EF8259F8865EB60CD468B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505426   (804559) от 27.10.2021
 
 Dado Moroni & Tom Harrell - Humanity (2007) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -684,64 +742,6 @@ Konrad Paszkudzki Trio - Isn't Romantic: Richard Rodgers Song Book (2017) Venus 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB580B655A6B44F60ED23DEFE98F860EA92E4904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384799   (801679) от 21.05.2020
-
-Aardvark Jazz Orchestra - Faces of Souls (2020) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Free Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meltdown (3:57)
-02. Sisyphus (7:05)
-03. Consecration (11:56)
-04. Greta (8:13)(   Читать дальше...   )Жанр: Contemporary Jazz, Free JazzПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00A9E898200B2670FF8D21F930FB5DF5A18DB5ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120689   (801287) от 01.04.2017
-
-Erroll Garner - Soliloquy & At The Piano (1953, 1957) 1989, CBS Records [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You'd Be So Nice To Come Home To [06:26]
- 02.No More Time [06:37]
- 03.I Surrender Dear [06:55]
- 04.If I Had You [04:32](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:14:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F14283DEEA717BA49C7D53BC39DF0BA4160D8CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

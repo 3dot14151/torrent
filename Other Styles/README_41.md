@@ -1,3 +1,206 @@
+###  Публикация: 1119942   (805362) от 29.03.2017
+
+VA - Acoustic Covers The Album (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexa Goddard - Say You Won't Let Go
+02. Adam Christopher - Shape of You
+03. Sleeping At Last - As Long as You Love Me
+04. John Adams - I'm Like a Bird(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:04:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7D03C102FFB15A9825D571B33FB6CBAA872AB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119732   (805255) от 29.03.2017
+
+Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young David (05:06)
+02. David in Clockworks (00:46)
+03. 174 Hours (08:47)
+04. Seeing Things Hearing Things (04:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F954D1F9F3B78163727397FED7865EB79D418399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119630   (805242) от 29.03.2017
+
+Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survival of the Fittest (02:24)
+02. Baby Brother (03:58)
+03. Welcome to Baby Corp (03:12)
+04. You Can't Get Away from Johnny Law (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBA47AB3D833458B7F3FFB2421A8021A107A898E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119767   (805123) от 29.03.2017
+
+Clinton Shorter - The Expanse / Пространство - Season One (Original Television Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Expanse (01:04)
+02. Hostage (03:13)
+03. Signal (02:10)
+04. Welwala (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D34BC278818AABA31C62F21E7D9C621222A4A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119632   (805015) от 29.03.2017
+
+Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survival of the Fittest (02:24)
+02. Baby Brother (03:58)
+03. Welcome to Baby Corp (03:12)
+04. You Can't Get Away from Johnny Law (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F9D3FB3C4F89AF53ECFAC62E50A92AB33754D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119978   (805013) от 29.03.2017
+
+VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundtrack) (2017) [MP3|320 кб/с]<Rock, Rock & Roll, Jazz>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Chambers Brothers - Time Has Come Today (11:02)
+02. Minh Xuan & Phuong Hoang - Mat Troi Den (Black Sun) (03:03)
+03. Jefferson Airplane - White Rabbit (02:31)
+04. The Hollies - Long Cool Woman (In A Black Dress) (03:18)(   Читать дальше...   )Жанр: Rock, Rock & Roll, JazzПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E36BBEDDCB291A1E6208848EDB4E2C9FB48178E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119784   (805006) от 29.03.2017
+
+Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildlands (04:05)
+02. Night Encounters (05:35)
+03. Koani Salt Flats (00:53)
+04. Hunting La Santera (03:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB40C1AF89EF560FC9072B84A1BA72631F28F15B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119709   (805005) от 29.03.2017
 
 Brad Fiedel - Terminator 2: Judgment Day / Терминатор 2 Судный день (Original Soundtrack Recording) (2017) Remastered 2016 [MP3|320 кб/с]<Soundtrack>
@@ -542,209 +745,6 @@ Padma Previ - Goddess Chants (2008) [FLAC|Lossless|image + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A612A52EE519974B4688A2D3D0F0F230B786F57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198988   (801720) от 15.01.2018
-
-Padma Previ - Saraswati (2012) [FLAC|Lossless|image + .cue] <Meditative, Mantras, Chants>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upa Brahmani 07:29
-02. Vayavindrashca 08:20
-03. Upa Nah Savana 06:16
-04. Mahanabhistirojasa 07:13(   Читать дальше...   )Жанр: Meditative, Mantras, ChantsПродолжительность: 00:50:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87410EE0D3D63784A675897A0558B2899139D8E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199103   (801690) от 15.01.2018
-
-New Sun Pops Orchestra - Guitar Mood (1976) 2 Альбома, LP [FLAC|Lossless|tracks] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jambalaya  (03:03) 
-02. Rain Rain  (02:52) 
-03. El Condor Pasa  (02:36) 
-04. Yesterday Once More  (03:26) (   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:14:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0EE62643A855F09AC04254B6B7AD355BABD3C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384563   (801687) от 21.05.2020
-
-LEYA - Flood Dream (2020) [FLAC|Lossless|tracks + .cue] <Avant - Folk, Chamber Music>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weight (feat. GABI) (03:52)
-02. Wave (04:11)
-03. INTP (03:48)
-04. ABBA (04:34)(   Читать дальше...   )Жанр: Avant - Folk, Chamber MusicПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8981BF670AFDDB11217456623A52C5D5291E8C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384631   (801678) от 21.05.2020
-
-Евгений ( Zagot ) Загот - Парад планет  (2005) [FLAC|Lossless|tracks + .cue]<Instrumental, Piano, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro ( Ambient Dream )
-02. Париж
-03. Я тебя читаю
-04. Аквамарин(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CB53B577B0CB4B9DA73408EDF0B59F1ED27A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120288   (801195) от 01.04.2017
-
-VA - From Russia With Song: 20 Greatest Russian Hits (2000) [MP3|320 Kbps] <Pop, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Владимир Трошин - Подмосковные вечера
-02. Краснознамённый им. Александрова Ансамбль песни и пляски Советской Армии - Калинка (солист Алексей Мартынов)
-03. Тамара Синявская - Катюша
-04. Пётр Лещенко - Чубчик(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:06:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E4CA21831370071CA988322FE9BA4D9EAC68BF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199611   (801093) от 16.01.2018
-
-Terry Lee Nichols & Rebekah Eden - We Have Only Come to Dream (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phantasmagorical Voyage (3:40)
-02. The Anasazi (3:57)
-03. We Have Only Come to Dream... (3:37)
-04. 1492 (2:51)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2398322E9AC0ADF03889D79E185D9EE196D9A8DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199485   (801080) от 16.01.2018
-
-Jon Thebur - Sansula (2017) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Beginning (4:28)
-02. Finding And Founding (4:49)
-03. Long, Long Trip (4:28)
-04. Inside (4:27)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0042972EB5B3FBBEAD846A7532803E87BEBC7D1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

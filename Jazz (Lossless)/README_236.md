@@ -1,3 +1,61 @@
+###  Публикация: 1193527   (262000) от 22.12.2017
+
+Lewis Nash - Rhythm Is My Business (1993) Evidence Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let Me Try [07:05]
+02. 106 Nix [10:18]
+03. Sing Me a Song Everlasting [08:12]
+04. My Shining Hour [03:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6E15D3322AE5BDC8622CCA09DEC3492B0AF285F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193722   (261999) от 22.12.2017
+
+Eric Alexander & Vincent Herring - Friendly Fire: Live At Smoke (2012) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pat n Chat [08:18]
+02. Sukiyaki [09:51]
+03. Inception [08:47]
+04. Dig Dis [08:42](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AB5765B92D1579AEF5DEA25FA23635B6D6E1B0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193718   (261998) от 22.12.2017
 
 Clark Terry & Bob Brookmeyer Quintet - Gingerbread Men (1966) 1991, Mainstream Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
@@ -717,64 +775,6 @@ Electro Swing Radio - Coffin Candy Charleston (House Electro Swing) (2025) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD87C6B9F06D96B3127A0C909F8C20DE6AA8555
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837755   (257688) от 18.11.2025
-
-Soundify Background Music, Pub Music, Electronic Music - Electro Swing Cocktail (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257688.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Swing Machine (2:46)
-02.  Time Travel Affair (2:52)
-03.  Electro Swing (3:22)
-04.  Syncopation Nation (3:15)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84556F9DA4D3B0D0B83CF4B16012A21B7B76AE0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1837757   (257686) от 18.11.2025
-
-VA - Electro Swing & More (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Salade Tomate - Cocktail (4:57)
-02.  Hey Alan! - Electro Swing 3 (6:04)
-03.  Adln - Hey Listen (Deja-Move Mix) (4:11)
-04.  Hey Alan! - Jackin Swing (Swing House Mix) (6:40)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D565326608C3035B26072982983EB2BEC2152166
 ```
 
 https://mybot314.ru/tekegram_catalog/

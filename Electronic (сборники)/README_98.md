@@ -1,3 +1,67 @@
+###  Публикация: 1032004   (648018) от 06.07.2016
+
+VA - Amazing Vocal Sound — Summer (2016) [MP3|320 Kbps] <Progressive House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris & Rihanna — This Is What You Came For (Original Mix) (3:42)
+ 02. Disciples & David Guetta — No Worries (Original Mix) (3:28)
+ 03. DVBBS & Shaun Frank feat. Delaney Jane — La La Land (Extended Mix) (3:36)
+ 04. Flume feat. Tove Lo — Say It (Original Mix) (4:22)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 02:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF0A24DC473579C9F11A51E860C1B93440625EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517260   (647914) от 01.07.2012
+
+VA - Beach Chill Las Salinas. The Ibiza Chill Out Album (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647914.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Monodeluxe - At the Beach - Original Version
+2. Cosmic Funk - I'll Never Stop - Axel B. Sunset Mix
+3. Treasure Room - Nobody - Original Mix
+4. Stereo Mutants - I Wanna Go - Afterlife Remix
+5. Twentyeight - Hope - Original Mix
+6. Michael E - Barcelona - Original Version
+7. Marc Ozz - Bondai Beach - Original Mix
+8. Lady White - Let Me Try - Original Mix
+9. Mauro Mondello - Bamboja - After Teneriffa Mix
+10. Bang Bang - Hate Fleeting - Da Sunlounge Remix(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38925B07592F95BFBA4A01193E521B8144B2E642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032153   (647901) от 06.07.2016
 
 VA - Sexy Chillout Cafe (2016) [MP3|320 Kbps] <Lounge>
@@ -693,73 +757,6 @@ VA - Chill Out Dreams 4 (2012) [MP3|320 кб/с]<ChillOut, Electronic, Downtempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C477B5BCD2ECF3BE3A8577AD2B155C5E675D0AE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517983   (645598) от 02.07.2012
-
-Mission Ibiza - Including 50 ibiza House Anthems (2012) [MP3|320 кб/с]<Club House, Funky>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Etienne Ozborne - Been a Long Time 2012 (feat. Paula B.)  [06:31]
- 02. Francesco Gomez - Conga (feat. Lety)  [06:33]
- 03. Tune Brothers - Feel the Groove (Pink Fluid Remix) [05:31]
- 04. Dave Kurtis - Last Night in Miami (Conga) (Horny United Rework) [05:48]
- 05. Bream, The Henchmen - All Over Again (feat. Lardoo)  [07:07]
- 06. Boogie Pimps - 24Seven (Sanya Shelest & Esc.Ape Remix) [06:22]
- 07. Peter Brown - The Movement (feat. Jonathan Ulysses)  [06:18]
- 08. Javi Ortiz, X-Guerrero, Tony Cox - T.H.M (Kid Shakers Remix) [06:22]
- 09. Matty Menck, Terri B! - Sky (Tony Romera Remix) [06:14]
- 10. Futuristic Polar Bears - Bring the Heat (feat. Chrom3)  [06:38](   Читать дальше...   )Жанр: Club House, FunkyПродолжительность: 05:17:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:799AEB70BF961AD53FFDD12E25111D3CCC4B0B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517627   (645365) от 02.07.2012
-
-VA - The Very Best of Sexy Guitar Lounge Summer Chillout (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645365.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Massive Gold - Lady Love - Radio Gaga Lounge Mix (5:50)
-2. Lounge Aura - Today - Smooth Bar Cafe Mix (5:41)
-3. Lullaby Lounge - Chill De La Mer - Blank Guitar Cafe Relax Mix (6:08)
-4. Red Dance 2 Chill - Angel - Simply the Best Guitar Mix (4:27)
-5. Melounge - Maledives Beach - Islands of Chill Del Mar Cafe Mix (5:01)
-6. Sweet Velvet - Brightness - Cafe Del Mar Sunset Vocal Mix (5:16)
-7. Soleil Fisher - Ask the Rain - Chill Lounge Del Mar Mix (5:02)Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760E3C61843F8ECCB1DAD17395CD75DDE8222D33
 ```
 
 https://mybot314.ru/tekegram_catalog/

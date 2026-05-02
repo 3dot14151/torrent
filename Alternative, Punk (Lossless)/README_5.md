@@ -1,3 +1,61 @@
+###  Публикация: 974628   (975798) от 12.01.2016
+
+Diamanda Galas - Guilty Guilty Guilty (2008) [FLAC|Lossless|image + .cue] < Piano Blues, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 8 Men and 4 Women
+02 - Long Black Veil
+03 - Down so Low
+04 - Interlude (Time)(   Читать дальше...   )Жанр: Piano Blues, AvantgardeПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669F7806C49B6544115DA48C9E80BC9170C39471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974925   (972113) от 15.01.2016
+
+Reverend and The Makers - Mirrors (2015) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Britpop, Classic Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amsterdam (01:13)
+02. Black Widow (03:16)
+03. Makin' Babies (01:58)
+04. Stuck On You (02:31)(   Читать дальше...   )Жанр: Alternative, Britpop, Classic Indie RockПродолжительность: 01:05:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B40DE55ABCF3D81F86D2CFB1DC9BB4E86636F2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974817   (972109) от 15.01.2016
 
 Diamanda Galas - La serpenta canta (2003) [FLAC|Lossless|image + .cue] <Piano Blues, Avantgarde>
@@ -693,64 +751,6 @@ Ned's Acoustic Dustbin - Ned's Acoustic Dustbin (2019) [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:377F92E86345E7EEA301D74CC6876811591CF781
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362615   (948217) от 24.02.2020
-
-Little Scream ‎ - Cult Following (2016) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Brain (00:53)
-02. Love as a Weapon (04:53)
-03. Dark Dance (04:21)
-04. Introduction to Evan (00:31)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90BF3FBEED5AC99157534564EAE3DC32E90FB5DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362617   (948214) от 24.02.2020
-
-Little Scream - The Golden Record (2011) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lamb (03:37)
-02. Cannons (03:48)
-03. The Heron And The Fox (05:02)
-04. Your Radio (05:14)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0D26C9A6A1BFC041336EA97D0E937EA5344E4B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

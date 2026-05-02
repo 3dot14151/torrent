@@ -1,3 +1,61 @@
+###  Публикация: 1623077   (1029606) от 31.03.2023
+
+Red Norvo - Improvisations (1944) 1987, Mercury [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subtle Sextology [3:49]
+02. Blues A La Red (alternate take) [4:16]
+03. Blues A La Red [4:04]
+04. The Man I Love [4:17](   Читать дальше...   )Жанр: SwingПродолжительность: 00:57:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:495B9654E38F409380259E4C740D960EC70032C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449819   (1029591) от 23.02.2021
+
+Lucky Millinder - 1943 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Me [2:47]
+02. That's All [2:04]
+03. Trouble in Mind [2:41]
+04. Rock Daniel [2:40](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1665B458746E33FA22DE4449C5A47056719CA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449821   (1029587) от 23.02.2021
 
 Duke Ellington - Live And Rare (1965 - 1973) 3CD, 2002, Bluebird [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -687,64 +745,6 @@ VA - Jazz Dictionary T (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91BF27905B0AAE5938580F7D1563D61C70708487
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454252   (1026440) от 14.03.2021
-
-Art Pepper - Unreleased Art, Vol.11: Atlanta (1980) 2CD, 2020, Widow's Taste [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026440.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Blues for Blanche [10:25]
-02. Talk: Band Intros [2:00]
-03. The Trip [11:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1285B4F1C84E36B9FC9CBC80FDF2B8C40D264DA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1454539   (1026268) от 15.03.2021
-
-Ahmad Jamal - Tranquility & Outertimeinnerspace (1968, 1972) 2015, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Say A Little Prayer [2:28]
-02. The Look Of Love [2:50]
-03. When I Look In Your Eyes [4:20]
-04. Illusions Opticas [2:31](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E640ABAE897963F3E76C53CAF78B048F8D7BCB4F
 ```
 
 https://mybot314.ru/tekegram_catalog/

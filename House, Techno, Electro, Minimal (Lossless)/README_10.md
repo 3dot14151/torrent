@@ -1,3 +1,32 @@
+###  Публикация: 1363454   (942601) от 28.02.2020
+
+Tim Dash - Afterlight 001 (2020) [FLAC|Lossless|image + .cue] <Deep Techno, Progressive House, Melodic Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Novakk - Hela (Ivory Hypnotic Treatment) (5:40)
+02. Booka Shade - Atlantic Beam (5:56)
+03. Enamour & Nox Vahn - Sleep Paralysis (5:39)
+04. Nico Morano & Radeckt - Resilio (Night Talk Remix) (6:44)(   Читать дальше...   )Жанр: Deep Techno, Progressive House, Melodic TechnoПродолжительность: 01:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76BD224A4A37445A75F70F271EC286AFAE0C3BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363002   (942597) от 28.02.2020
 
 Omar S - You Want (2020) [FLAC|Lossless|tracks + .cue] <House, Deep House, Techno>
@@ -716,35 +745,6 @@ VA - Espectrum: The Avantroots Dub Techno Compilation (2016) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04BF6E53C5A770A73E1CD0D83A5755486F4B867F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366484   (924122) от 11.03.2020
-
-Nils Hoffmann - Once in a Blue Moon (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic House & Techno, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924122.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1.16699016 x 10^-8 hertz (02:03)
-02. Once in a Blue Moon (03:25)
-03. Wherever You Are (feat. Margret) (03:28)
-04. Second Sun (03:44)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, DowntempoПродолжительность: 00:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2727127D7E8D7F5903E0307F8CAB5422B50961DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

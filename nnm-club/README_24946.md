@@ -1,25 +1,22 @@
-###  Публикация: 1801042   (66264) от 07.06.2025
+###  Публикация: 1791664   (67805) от 14.04.2025
 
-Игорь Балан - Я тебя помню (2025) [MP3|320 Kbps] <Chanson>
+Бунтари / Les Revoltes (2023) WEBRip [H.264/1080p] (сезон 1, серии 1-10 из 10) ViruseProject [AD]
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Зарубежные сериалы
+>>Сериалы с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67805.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Я тебя помню [00:04:32]
-02 - Виновница [00:03:05]
-03 - К тебе одной [00:03:03]
-04 - Сон [00:04:14](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:39:27
+Элеонора и Джейкоб - молодые адвокат с принципами и журналист-расследователь - объединяют усилия для обличения недостатков государственных институтов. Борясь с бюрократическим абсурдом, Элеонора и Джейкоб расследуют дела и помогают отчаявшимся людям обрести справедливость.Производство: Канада / Aetios ProductionЖанр: драмаРежиссер: Луи ШокеттАктеры: Сара-Джинн Лабросс, Пьер-Люк Фанк, Родни Александр, Джозеф Антаки, Nelson Coronado, Милен Маккэй, Луи Филипп Дандено, Мари-Ив Борежар, Тетчена Белланж, Randy Simons и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BD31CB2EB9BC359199399B927CED5DBCE8C4C601
+magnet:?xt=urn:btih:F77DE89A8BFB3114EAF6E5910FF4E352A35976B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801010   (66263) от 07.06.2025
+###  Публикация: 1791567   (67804) от 14.04.2025
 
-МакЛинток! / McLintock! (1963) BDRip [H.264] [DVO]
+MotoGP. Этап 04 из 22. Гран-при Катара. Гонка (13.04.2025) WEBRip [H.264/1080p-LQ] [hand made 50fps]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Спорт и активный отдых
+>>Авто, Мото
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67804.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Джордж Вашингтон МакЛинток — крупнейший в округе скотовод; ему принадлежат многочисленные стада и пастбища; и его имя носит находящийся здесь городок. Как человеку, обладающему властью, ему приходится решать возникающие проблемы: то на равнинах появятся переселенцы, не осознающие всех трудностей фермерства на этой засушливой земле, то правительство своими неразумными (   Читать дальше...   )Производство: США / Batjac ProductionsЖанр: комедия, вестернРежиссер: Эндрю В. МакЛагленАктеры: Джон Уэйн, Морин О`Хара, Патрик Уэйн, Стефани Пауэрс, Джек Крушен, Чилл Уиллс, Ивонн Де Карло, Джерри Ван Дайк, Эдгар Бьюкенен, Брюс Кэбот, Перри Лопес, Стразер Мартин, Гордон Джонс, Роберт Лоури, Хэнк УорденПеревод: профессиональный двухголосый (СВ Дубль), авторский (Сергей Кузнецов)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:07:18
+13 апреля 2025, воскресенье. 20:00 МСК. Этап 4, Доха. Гран-при Катара. Гонка (22 круга)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 01:26:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B14CAC4F55F4188336BC211B3C688084CDEBFCA7
+magnet:?xt=urn:btih:6784693C1F849E40CE8F66CFB224872492B34EE9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800908   (66262) от 07.06.2025
+###  Публикация: 1791523   (67803) от 14.04.2025
 
-Растровый клипарт - Luv Bijou - Creative Fabrica - Budgerigar Watercolor Clipart Bundle [PNG]
+Trueno Negro - Neogenesis (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (иллюстрации)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67803.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельный клипарт с волнистыми попугайчиками.Формат: PNGРазрешение файлов: 3600 x 3600
+01. La Furia del Trueno (06:40)
+ 02. Inmortalidad (04:19)
+ 03. Alma Ardiente (04:46)
+ 04. Ciega Enfermedad (05:01)(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:51:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B511D380C9F03658BD1EBCB72BB50F08EA50B3F5
+magnet:?xt=urn:btih:98F4E05B3072D2CF1E20F67BEA671FCF19E92321
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,132 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800911   (66261) от 07.06.2025
+###  Публикация: 1791467   (67802) от 14.04.2025
 
-Книжная иллюстрация - E A G L E - Creative Fabrica - 325 Koala Mandala Coloring Pages - KDP [JPG, PNG, PDF]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскраски с изображением коалы в стиле мандалы.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED01356860188982EC5737AC83915690C9FDDE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800915   (66260) от 07.06.2025
-
-Растровый клипарт - Graphic Studio - Creative Fabrica - Romantic Floral Seamless Patterns [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66260.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цветочные бесшовные орнаменты (паттерны).Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A3FA885C7A4832ADF12D9531B67FD72640CEC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800896   (66259) от 07.06.2025
-
-Книжная иллюстрация - E A G L E - Creative Fabrica - 250 Stained Glass Dragon Coloring Pages [JPG, PNG, PDF]
-
->>Графика, Арт, Разное
->>Книжная иллюстрация
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Раскраски с изображением витражного стекла с драконами.Формат: JPG, PNG, PDFРазрешение файлов: 960 x 1248 - 2550 x 3300
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7320E1A6AD4E206B0E11FDAD5F599F23CE54448B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800947   (66258) от 07.06.2025
-
-Среди серых камней (1983) DVDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странная атмосфера, причудливая вереница мимолетных, но ярких человеческих образов, калейдоскоп индивидуальных и коллективных ценностей, лицевая сторона бытия и изнанка переживаний, параллели и пересечения детского и взрослого взгляда на мир, полифония жизни и смерти — то, о чем нельзя сказать, но во что можно проникнуть…Производство: СССР, Одесская киностудияЖанр: драма, историяРежиссер: Кира МуратоваАктеры: Игорь Шарапов, Оксана Шлапак, Станислав Говорухин, Роман Левченко, Сергей Попов, Виктор Аристов, Виктор Гоголев, Федор Никитин, Владимир Пожидаев, Нина РуслановаСубтитры: отсутствуютПродолжительность: 01:23:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F3B8742CC6E4A33E6B7D5528CE0324C0C307BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800907   (66257) от 07.06.2025
-
-Ice Nine Kills - I Heard They Kill Live 2 (2025) Live in Lowell 2022 [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Alternative Metal>
+Battle Beast - Circus of Doom (Live in Helsinki 2023) (2025) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67802.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Funeral Derangements (Live in Lowell / 2022) [4:28]
-02 - Wurst Vacation (Live in Lowell / 2022) [3:53]
-03 - Hip To Be Scared (Live in Lowell / 2022) [4:09]
-04 - IT Is The End (Live in Lowell / 2022) [5:06](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, Alternative MetalПродолжительность: 00:48:30
+01 - Intro (Live In Helsinki 2023) [2:09]
+02 - Circus of Doom (Live In Helsinki 2023) [4:42]
+03 - Straight to the Heart (Live In Helsinki 2023) [4:17]
+04 - Familiar Hell (Live In Helsinki 2023) [4:30](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 01:13:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AC83A9DC9AB4B7134EF8E0D2CA93F05F79F1B48
+magnet:?xt=urn:btih:1236B5A84CE414CECC53A30120E8E11702559742
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -212,144 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801031   (66256) от 07.06.2025
+###  Публикация: 1791537   (67801) от 14.04.2025
 
-Reverend Freakchild - A Bluesman of Sorts (2025) (2CD) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Big Boss Man (4:13)
-02.  Ode to Billie Joe (6:54)
-03.  Hellhound on My Trail (5:43)
-04.  I Know You Rider (3:12)(   Читать дальше...   )Жанр: Blues
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62259E5B35B20D2B2723197F4948659439ABAE6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801039   (66255) от 07.06.2025
-
-Sean Poluk - Gamut (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Classified Ads (3:49)
-02.  Nickel Brass and Rhyme (3:38)
-03.  Seven (2:44)
-04.  Great Friends Good Times (3:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB13E5E08BB2A73827C027FD52D2ADF0556A4E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801047   (66254) от 07.06.2025
-
-The Christopher Dean Band - Steppin out Tonight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  My Road Is Rough and Rocky (4:16)
-02.  Serves Me Right to Suffer (5:11)
-03.  Here with Me (5:29)
-04.  Walk Around Time (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D312CF63BEC31B89B93FB1E5F8EE33D70FC14AC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801048   (66253) от 07.06.2025
-
-The River Arkansas - Tin Years (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Blue Hill Maine (3:31)
-02.  People Call Me Crazy (4:23)
-03.  Cosmic Soup (4:19)
-04.  Flies in the Butter (3:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E9E4799C1EAAE2F96D06B7B26A91257CE2BB225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801036   (66252) от 07.06.2025
-
-Ronny Smith - Cruisin (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+Michel Legrand - Michel Legrand By Michel Legrand (2002) Decca [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67801.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Cruisin (3:54)
-02.  Cool Groove (3:54)
-03.  Kool Kat (3:48)
-04.  Urban Nights (3:58)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:54
+01. I Will Wait For You [5:42]
+02. The Windmills Of Your Mind [5:40]
+03. The Summer Knows [4:51]
+04. How Do You Keep The Music Playing_ [3:55](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:10:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AF8587A0EE2478B0574D1C76309F4A2D3C2E094
+magnet:?xt=urn:btih:FA071091D7EC51EE59387AA4CF4E3309365E16AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,25 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801011   (66251) от 07.06.2025
+###  Публикация: 1791594   (67800) от 14.04.2025
 
-Своя игра (07.06.2025) WEBRip [H.264/1080p]
+Своя игра (22.03–13.04.2025) WEBRip [H.264/1080p]
 
 >>Документалистика и Телепередачи
 >>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67800.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Арсений Голубь, Аркадий Либерман, Анна ТрушкинаЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:00
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:41:00 выпуск
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3F8F39DAC6C1D35B4279C92D24D6F0206077074
+magnet:?xt=urn:btih:872CF4FE6C0C3B19BC6342F803F1966842DCCA47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -383,28 +163,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801032   (66250) от 07.06.2025
+###  Публикация: 1791598   (67799) от 14.04.2025
 
-Ron D Bowes - Vampire in the Basement (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Erasure - Freedom (2000) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Don't Care (3:51)
-02.  Sure Tastes Sweet (4:19)
-03.  If I Don't Rock (3:34)
-04.  Vampire In The Basement (2:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:39
+01 – Freedom (2009 Remastered Version)
+02 – Better
+03 – Freedom (Acoustic Single Version)
+04 – Freedom (Motiv 8 Radio Mix)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:55:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABCC0BFF97A4CCF3AC682A2DC50AEC263E553C99
+magnet:?xt=urn:btih:2A57ABE86DFBAC24234C47642E7BD4B75207DEE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -412,28 +192,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801045   (66249) от 07.06.2025
+###  Публикация: 1791663   (67798) от 14.04.2025
 
-Strong Bow & Wry - Rosin N' Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Растровый клипарт - STCrafts - Creative Fabrica - Colorful Floral Swirl Summer Mug Wrap Sublimation Design [PNG]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67798.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Mess with My Blues (3:50)
-02.  Travellin' by Boxcar (5:17)
-03.  Rollin' and Tumblin' (2:34)
-04.  Red Light & Blue (3:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:56
+Красочный дизайн сублимационной упаковки кружки со вьющимися цветами.Формат: PNGРазрешение файлов: 2925 × 1425
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7D1460041A90CB1FC83F8F576D083FDA28C5F86
+magnet:?xt=urn:btih:79C480FBF8AE281EEF072B40BDE3852829EC59D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,28 +218,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801041   (66248) от 07.06.2025
+###  Публикация: 1791434   (67797) от 14.04.2025
 
-Simon Kinny-Lewis - Pouring Water On A Drowning Man (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Джуманджи / Jumanji (1997-1998) DVDRip [AV1/2160p] [4K, SDR, 10-bit] (сезон 2, серии 1-13 из 13) СТС [hand made Upscale AI]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Мультфильмы
+>>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67797.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Alligator Wine (4:23)
-02.  The Creeper (3:59)
-03.  Pouring Water On A Drowning Man (4:09)
-04.  Invisible Chain (3:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:55
+Вместе со своими любимыми героями Джуди, Питером и Аланом Пэрришом зритель вновь отправится в волшебный мир самой непредсказуемой игры, где его ждут новые удивительные приключения и неожиданные встречи.Производство: США / Adelaide Productions Inc., Columbia TriStar Children's Television, Columbia TriStar Television, Interscope, Interscope Communications, Teitler FilmЖанр: мультфильм, фэнтези, боевик, триллер, комедия, приключения, семейныйРежиссер: Боб Хэчкок, Энди Том, Дэвид ШварцАктеры: Билл Фагербакки, Деби Дерриберри, Эшли Джонсон, Мелани Чартофф, Шерман Ховард, Тим Карри, Дэнни Манн, Ричард Алан, Билли Уэст, Уильям СэндерсонПеревод: Дублированный (СТС)Язык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: ~00:22:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:55C12F14C38D0B0EC5DDEFA739F1D8D6E2959B1A
+magnet:?xt=urn:btih:C2832A11E50DB01089BA4DF8B7BA19D610EA9B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,28 +244,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801043   (66247) от 07.06.2025
+###  Публикация: 1791685   (67796) от 15.04.2025
 
-Sol Raven - Wanderer No More (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Растровый клипарт - STCrafts - Creative Fabrica - Cute Pink Hearts Pattern [PNG]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67796.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Trouble's Comin' (3:54)
-02.  Wanderer No More (3:12)
-03.  Blue Murder (3:18)
-04.  Wearin' Me Down (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:41
+Бесшовные узоры в виде розовых сердечек.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F88898E2232FC71C43FE70D1C131C8209860189
+magnet:?xt=urn:btih:49F2A0A695ACAEFB136BD4FF62B0CF1E70DF890D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -499,28 +270,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800977   (66246) от 07.06.2025
+###  Публикация: 1791693   (67795) от 15.04.2025
 
-Jimmy Barnes - DEFIANT (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Растровый клипарт - STCrafts - Creative Fabrica - Ombre Pink & Turquoise Glitter Tumbler Wrap [PNG]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67795.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. That's What You Do For Love
-02. New Day
-03. Beyond the River Bend
-04. Never Stop Loving You(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:09
+Обертывание для бокалов с розовым и бирюзовым блеском в стиле омбре.Формат: PNGРазрешение файлов: 2790 × 2460
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F93DC6ECB307BB72A70815EC1E9C04C61E67F06D
+magnet:?xt=urn:btih:0D3E50EB73EBAF1271F58CE8AF243423C6789710
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,28 +296,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801050   (66245) от 07.06.2025
+###  Публикация: 1791682   (67794) от 15.04.2025
 
-Unna & Helge Tallqvist Band - Today I Sing the Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Растровый клипарт - STCrafts - Creative Fabrica - Cute Kawaii Hearts Stars Rainbow Mug Wrap Sublimation Design [PNG]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67794.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Where Can I Go (2:44)
-02.  Voodoo Man (4:46)
-03.  Use What You Got (3:04)
-04.  Somebody's Always Trying (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:35
+Сублимационные изображения - сердца, звезды, радуги для кружки.Формат: PNGРазрешение файлов: 2925 × 1425
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E3C6DAE216C4B2C03AB860FEDCABEFF6539A1CE
+magnet:?xt=urn:btih:A2E6BB2EF1C56CBA4862B7BB9B02F01FB5801625
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -557,27 +322,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801009   (66244) от 07.06.2025
+###  Публикация: 1791689   (67793) от 15.04.2025
 
-Александр Куприн | Осенние цветы (1996) [MP3, Людмила Сапожникова]
+Растровый клипарт - STCrafts - Creative Fabrica - Red Green Watercolor Christmas Pattern [PNG]
 
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67793.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Звучащая библиотека. Малая проза.
-Александр Иванович Куприн (1870–1938) – русский писатель, яркий представитель демократических и гуманистических традиций русской литературы, автор блестящих произведений, отражающих разные стороны русской жизни конца XIX – начала XX века.
-«Осенние цветы» – грустный рассказ А.И. Куприна об утраченной любви, написан в 1899 (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:25:34
+Красно-зелёные акварельные рождественские узоры.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0514E0F6AF4288B4907CA952FDB9634468E4647
+magnet:?xt=urn:btih:E65215BC9DDF615D353B90BB6342C666F2B40A96
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,28 +348,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801035   (66243) от 07.06.2025
+###  Публикация: 1791672   (67792) от 15.04.2025
 
-Two Wolf - Two Wolf (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Southern Rock>
+Растровый клипарт - STCrafts - Creative Fabrica - Winter Flowers Watercolor Clipart Bundle [PNG]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66243.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67792.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Keep On Movin' (04:21)
- 02 - Too Hard To Handle (04:17)
- 03 - Will I Believe (03:30)
- 04 - Traveler (03:06)(   Читать дальше...   )Жанр: Hard Rock, Southern RockПродолжительность: 00:48:37
+Набор акварельных изображений с зимними цветами.Формат: PNGРазрешение файлов: 2500 x 2500
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D2660CE98BD0902E67A12D2BDC0BC284AD29F79
+magnet:?xt=urn:btih:5928E508C7459B4B71665BA8C8D1115AAC5C0385
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,28 +374,164 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801170   (66242) от 08.06.2025
+###  Публикация: 1791622   (67791) от 15.04.2025
 
-The Temptations - Reflections (2006) CD, Album [FLAC|Lossless|tracks + .cue] <Dance, Soul, R&B, Funk>
+Satori (Satøri) - Pillars Of Salt (2025) [FLAC|Lossless|WEB-DL|tracks] <Industrial, Power Electronics>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Humiliate Me
+02 – Razors In My Head
+03 – Intruder
+04 – Piggies At The Trough(   Читать дальше...   )Жанр: Industrial, Power ElectronicsПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D4DB5B0ADC61D610BA0C9DE0FA52C406D6AA0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791604   (67790) от 15.04.2025
+
+Trevor Something - The Shadow (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>Electronic
+>>Synthpop, New Wave (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – In The Night
+02 – Emptiness
+03 – So Cold
+04 – It Meant Nothing(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468DCAE8E954C9F75527076D662B00A0C8A608B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791676   (67789) от 15.04.2025
+
+Растровый клипарт - Creative Fabrica - Black and Gold Roses Mug Wrap Sublimation Design [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67789.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дизайн сублимационной упаковки для кружек с чёрными и золотыми розами.Формат: PNGРазрешение файлов: 2925 × 1425
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FC762F8195ADEAAD2AE7C2FB39DC955E7F4948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791679   (67788) от 15.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Blue Stained Glass Floral Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67788.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага под голубое витражное цветочное стекло.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0CDF8D87A769D363151D97C2B96ACE59FCD092E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791658   (67787) от 15.04.2025
+
+Растровый клипарт - STCrafts - Creative Fabrica - Botanical Line Art Floral Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67787.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ботаническое изобразительное искусство, Цветочная цифровая бумага.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB56781F1F5D6E3A626FF1784A35401FD9FB9FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791688   (67786) от 15.04.2025
+
+VA - Now That's What I Call Music! 29 (1994) 2 CD [OGG Vorbis|480 Kbps] <Pop, Pop Rock, House, HipHop, Euro House>
 
 >>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66242.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67786.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Can I Get a Witness    [0:05:19.63]
-02. Reflections    [0:04:07.16]
-03. How Sweet It Is (to Be Loved by You)    [0:03:37.28]
-04. Don't Leave Me This Way    [0:03:15.37](   Читать дальше...   )Жанр: Dance, Soul, R&B, FunkПродолжительность: 01:02:46
+01. Pato Banton With Robin And Ali Campbell - Baby Come Back
+02. Cyndi Lauper - Hey Now (Girls Just Wanna Have Fun)
+03. Big Mountain - Baby I Love Your Way
+04. Take That - Sure(   Читать дальше...   )Жанр: Pop, Pop Rock, House, HipHop, Euro HouseПродолжительность: 02:28:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C0BC2E3B9B2CE84BE6228470F35B3E485E90F68
+magnet:?xt=urn:btih:DFB7074DCF3516294C9FA0172122227170D68011
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,27 +539,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801135   (66241) от 08.06.2025
+###  Публикация: 1791596   (67785) от 15.04.2025
 
-Первая передача на НТВ. Автомобильная передача (08.06.2025) WEBRip [H.264/720p]
+Пройдоха / Хитрая лисица (1937) WEBRip [H.264/1080p]
 
->>Документалистика и Телепередачи
->>За рулем
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66241.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67785.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Силовое задержание в подземном паркинге элитной высотки: у юноши нет водительских прав, зато есть трехлитровый GLE и талант решать вопросы. Неужели все могут короли?
- Гужевая повозка в потоке: с какой стороны от нее лучше держаться и бывает ли у кобылы страховка ОСАГО — транспорт все-таки?
- Отзывная кампания корейской марки машин: кто устранит неисправность, ведь автопроизводитель (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:19
+Лисица отругала мужа за то, что он вернулся домой без добычи. Тот вновь ушел искать пропитание. С помощью веревки хитрый Лис поймал маленького зайчика, сделал вид, что спас его, и сразу вернул родным. Потом он притворился беззубым, подружился с Зайчихой...Производство: СССР / Киностудия Грузинской ССРЖанр: рисованная анимация, детский, сказкаРежиссер: Владимир МуджириСубтитры: отсутствуютПродолжительность: 00:12:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDAA817949A15E1B81DD54D02DF8697B5872D594
+magnet:?xt=urn:btih:1045135B67DD7E4839B8981210DC65B4F471F014
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -671,28 +565,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801088   (66240) от 08.06.2025
+###  Публикация: 1791674   (67784) от 15.04.2025
 
-Brian Owens - Compilation (2025) [MP3|320 Kbps] <Soul, Jazz, R&B>
+Текстуры - STCrafts - Creative Fabrica - Peacock Stained Glass Texture Digital Paper [PNG]
 
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66240.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67784.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lord Knows (Ain't Personal) [04:03]
-02. Looking for a Daddy (feat. Theresa Payne) [04:41]
-03. Soul Anthem (Bring It Back) [01:49]
-04. Got to Give It Up (Japan Bonus Track) [11:00](   Читать дальше...   )Жанр: Soul, Jazz, R&BПродолжительность: 04:46:01
+Цифровая бумага с текстурой витражного стекла "Павлин".Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B41EE941BA7C677B128CC3F24D2370DC869CD29D
+magnet:?xt=urn:btih:CFCF76CDB8D269CFD03455B1670388FABC90489B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,28 +591,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801149   (66239) от 08.06.2025
+###  Публикация: 1791593   (67783) от 15.04.2025
 
-Pretenders - The Singles (1987) [FLAC|Lossless|tracks + .cue] <Rock, New Wave, Pop Rock>
+Don Amore - One More Time (2025) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Italo-Disco, Euro-Disco, Synth-Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - One More Time (Extended Vocal Amore Mix) [5:56]
+02 - One More Time (Extended Instr Amore Mix) [5:56]
+03 - One More Time (Short Vocal Amore Mix) [4:08]
+04 - One More Time (Extended Vocal Crazy Mix) [5:35](   Читать дальше...   )Жанр: Electronic, Italo-Disco, Euro-Disco, Synth-PopПродолжительность: 00:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE82F909AFC5734E2AA3C1CD802716AED4C71128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791835   (67782) от 15.04.2025
+
+Slayer - Seasons In The Abyss (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66239.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67782.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stop Your Sobbing    [0:02:38.30]
-02. Kid    [0:03:04.37]
-03. Brass in Pocket    [0:03:05.50]
-04. Talk of the Town    [0:03:13.60](   Читать дальше...   )Жанр: Rock, New Wave, Pop RockПродолжительность: 00:57:37
+01. War Ensemble (4:52)
+02. Blood Red (2:48)
+03. Spirit in Black (4:07)
+04. Expendable Youth (4:10)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65AAAF3480D38FC1C69AA84A2B962035848B11A6
+magnet:?xt=urn:btih:0ED1AE636B75C6C61A6FEF698DAD16D6924E9C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791673   (67781) от 15.04.2025
+
+Текстуры - STCrafts - Creative Fabrica - Wild Roses Texture Digital Paper [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67781.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цифровая бумага с текстурой диких роз.Формат: PNGРазрешение файлов: 3600 x 3600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE2F8C493AEDCF55366851DDBA19D451CBED236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791780   (67780) от 15.04.2025
+
+Theocracy - Mirror Of Souls (2008) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67780.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Tower Of Ashes 4:44
+2. On Eagles' Wings 4:11
+3. Laying The Demon To Rest 9:37
+4. Bethlehem 5:51(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 01:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:963C75686C70BAA2C785FBC71239C095DC660400
 ```
 
 https://mybot314.ru/tekegram_catalog/

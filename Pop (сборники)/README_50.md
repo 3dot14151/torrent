@@ -1,3 +1,119 @@
+###  Публикация: 1030255   (674573) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 6 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_674573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рок-Острова - Ой, Мороз, Мороз ( 1991 )
+02. Санкт-Петербург - Очарована, Околдована ( 1996 )
+03. Кальянов Александр - Карабас-Барабас ( 1986 )
+04. Белоусов Евгений - Девчонка-Девчоночка ( 1988 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D77D2547769BF86EAB1D9306C2F9CCA2F6F53F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030266   (674426) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 9 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кар-Мэн - Прощай, Лондон ( 1990 )
+02. Мираж - Где Я ( 1988 )
+03. Каир - Снежная Королева ( 1991 )
+04. Бисквит - Наша Любовь ( 1992 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233ACFA4A3B4E36138883B68341B6ED3F9BF3E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030269   (674412) от 30.06.2016
+
+VA - Русская Дискотека ХХ Века - 10 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Волков & Дискотека Альянс ( 1992 )
+02. Принцесса Nova - Дом Зеленых Глаз ( 1994 )
+03. Рок-Острова - Стежки ( 1991 )
+04. Фея ( Светлана Разина ) - Забытая Песня ( 1990 )(   Читать дальше...   )Жанр: Disco, Dance, Pop.Продолжительность: 01:18:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08943D580BD9E7CC3D9531BF90394579DF1A16E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030212   (674409) от 30.06.2016
+
+VA - Зарубежная Дискотека ХХ Века - 35 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deborah Kinley - Surprise ( 1986 )
+02. Ago - It Will Never Be ( 1982 )
+03. Monte Kristo - Money For Your Love ( 1986 )
+04. Groove Twins - Poison ( Extended Mix 1994 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207E95F2433FA482E42748AAA4450D4E6701DED7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030227   (674034) от 30.06.2016
 
 VA - Русская Дискотека ХХ Века - 1 (2010) [MP3|320 Kbps]<Disco, Dance, Pop>
@@ -647,122 +763,6 @@ VA - Зарубежная Дискотека ХХ Века - 37 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:404BF378BD630BBF8292A97B77C45153B03229F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030936   (670466) от 02.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 43 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Digital Emotion - Go Go Yellow Screen ( 1984 )
-02. Blue System - Under My Skin ( 1988 )
-03. C. C. Catch - Heartbreak Hotel ( 1986 )
-04. Bobby Orlando - All People Are The Same ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FDCE6519AC68B34783C6F740B72AD7A951909E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030930   (670465) от 02.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 40 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Murray - Commedia ( 1991 )
-02. Body Power - Dancing In The Tears ( 1985 )
-03. Radiorama - Yeti ( Remix 1989 )
-04. Mike Hammer - Supersonic Love ( Energy Mix 1992 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B9BDC76AB34B98C9C4224543C9264645056E56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030933   (670464) от 02.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 41 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gentle Touch - The Fire Of Love ( 1986 )
-02. John Christian - Ebony Eyes ( 1987 )
-03. Key West - Jesahel ( 1988 )
-04. Alphatown - Hot Stuff ( 1990 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688DB21829BC5DF32AB5C8AA91A0AC9AF6F407CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030925   (670463) от 02.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 38 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ryan Simmons - Lucky Guy ( Radio Version 1984 )
-02. Bronski Beat - Why ( 1985 )
-03. Aquarius - It Feels Like Summer ( Radio Version 1994 )
-04. Charlie - Spacer Woman ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158A7D3977C3C7536FFD86C351E8EAAD73193541
 ```
 
 https://mybot314.ru/tekegram_catalog/

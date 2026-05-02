@@ -1,3 +1,206 @@
+###  Публикация: 1337347   (274641) от 10.11.2019
+
+VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 8 (1994) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carmen Disco (from Carmen) - Ron Barden's Computer Symphonics (7:15)
+02. Poem - New Rock Philharmonics (2:37)
+03. A Hard Day's Night / All My Loving - Symphonic Rock Orchestra (6:26)
+04. Menuett - Jacques Winter Orchestra & Singers (2:58)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3D9774B1D733C0EE9D41BC77A13BD4C8E8F859E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337354   (274582) от 10.11.2019
+
+VA - Greatest Hits of Classical Rock Vol. 4 (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air / Philharmonic Orchestra London - Johann Sebastian Bach (8:13)
+02. Hornkonzert Nr. 4 / Fatra String Sound Orchestra - Wolfgang Amadeus Mozart (3:47)
+03. Can't Buy Me Love / Philharmonics of London - Lennon, McCartney (2:27)
+04. Concerto / Ziliniana String Sound Orchestra - Antonio Vivaldi (3:07)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4BE2640995D9B99C7191C0287974481E7794388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336706   (274580) от 10.11.2019
+
+Back to Earth - Peace of Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274580.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Away from Home 05:16
+2. Open Skies 04:00
+3. As Beautiful as You	04:44
+4. Hope in Sight	04:35(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE7F66C2438D59F0D623A5AA06F5885F6C28286E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083546   (273638) от 16.12.2016
+
+Molly Valentine - Fantasyland (2016) [MP3|320 Kbps] <New Age, Neo-Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Luchia [00:05:01]
+02 -  Fantasyland [00:06:05]
+03 -  Quasi Una Fantasia [00:05:54]
+04 -  The Blue Whale vs. the Giant Squid [00:07:31](   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 01:01:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A7BCE20829DC3007DC10ACE9FE130F218A3CEB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083589   (273630) от 16.12.2016
+
+James Horner & Simon Franglen - The Magnificent Seven / Великолепная семерка (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273630.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rose Creek Oppression (01:55)
+02. Seven Angels of Vengeance (03:25)
+03. Lighting the Fuse (01:22)
+04. Volcano Springs (02:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49758CBB3D0D54C6C1005E6229BD11B4DFCF132
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083416   (273554) от 16.12.2016
+
+Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёздные войны. Истории (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He's Here For Us (03:20)
+02. A Long Ride Ahead (03:56)
+03. Wobani Imperial Labor Camp (00:54)
+04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4385431F23DDBD6921A8C54494670E35CF284DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083590   (273551) от 16.12.2016
+
+James Horner & Simon Franglen - The Magnificent Seven / Великолепная семерка (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rose Creek Oppression (01:55)
+02. Seven Angels of Vengeance (03:25)
+03. Lighting the Fuse (01:22)
+04. Volcano Springs (02:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB4A57C439AC79A5EE881AE1504CC6B0AB679B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188865   (273520) от 03.12.2017
 
 Deuter, Parijat and Kamal - Spa Lounge (2017) [MP3|320 Kbps] <New Age>
@@ -540,206 +743,6 @@ Daniel Roeder & Jacob Yates - Music for Meditation (2016) [MP3|320 Kbps] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A0C6D2965083D4574C7E6382D3459C75130D7E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189394   (271274) от 05.12.2017
-
-Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Erda 05:08
-02. The Ruin 05:24
-03. Runatal 05:40
-04. Boudicca 04:54(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF677BD76ED160C61B9F3315FFB63A8D0E253FCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189337   (271062) от 05.12.2017
-
-Emmanuele Landini - Zodiac: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acquarius
-02. Aries
-03. Cancer
-04. Capricorn(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:08:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CCE051CE6BDD57F633531A7997A2CCAADF34059
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266378   (270963) от 01.12.2018
-
-Blonker - The Sound Of Blonker (1995) 3CD-Box [MP3|320 Kbps] <Instrumental Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270963.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дитер Гайке (нем. Dieter Geike, 25 декабря 1946 года) — немецкий композитор и музыкант, мультиинструменталист, известный как «Blonker». Играл на клавишных, бас-гитаре, гитаре, мандолине, перкуссии и драм-машине. В его музыке можно услышать переплетения разных стилей и жанров: джаз, рок, классика и нью-эйдж.01. Indigo (4:27)
-02. The Rose (3:52)
-03. When A Man Loves A Woman (2:45)
-04. Inside (3:21)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 03:26:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D555910EB0A744D121637AFE436A9D6C1E3E7CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 499255   (270685) от 01.12.2018
-
-Геннадий Заволокин - Играй, Гармонь! - 12 альбомов (1994 - 2002) [MP3|224 кб/с]<Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270685.jpg" />
-</div>
-
-
-###  Подробнее
-
-В начале 90-х годов, американский миллионер Джим Роджерс, случайно став свидетелем съёмок передачи "Играй,гармонь!" в Находке, был потрясён этим инструментом и назвал Заволокина "русским Элвисом Пресли". Впоследствии он приезжал к нему и на дачу в Новосибирск, а затем пригласил Заволокина в Америку на фестиваль кантри-музыки в штат Алабама.Жанр: FolkПродолжительность: 13:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8263A2D7C966129913B3647B35926F84D07B0FDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338039   (270637) от 14.11.2019
-
-Brian Tyler - Charlie's Angels / Ангелы Чарли (Original Motion Picture Score) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Tyler - Charlie's Angels Theme (02:19)
-02. Brian Tyler - Angel's Wings (02:09)
-03. Brian Tyler - Identity Crisis (03:19)
-04. Brian Tyler - Charlie's in 7 (02:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:071B60BCD3EDF99DDBBD84E6E2DAFD8EB1121697
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338176   (270621) от 14.11.2019
-
-Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Complete Score) (2019) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harald Kloser, Thomas Wander, Thomas Schobel - Prologue for Logos (00:48)
-02. Harald Kloser & Thomas Wander - Ridiculous Traditions (01:25)
-03. Harald Kloser, Thomas Wander, Thomas Schobel - Nobody Wants A War (02:30)
-04. Harald Kloser, Thomas Wander, Thomas Schobel - Arizona Attack (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C5436A65A3E30E8C3D828807222996E0BF1639D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1338174   (270600) от 14.11.2019
-
-Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thomas Wander, Harald Kloser - Nobody Wants A War (01:45)
-02. Thomas Wander, Harald Kloser - Midway Main Theme (05:18)
-03. Thomas Wander, Harald Kloser - See You In China (03:34)
-04. Thomas Wander, Harald Kloser - Morgue (02:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:370CC4F6450DB22CD8AC4AD1F494475D8CDE2634
 ```
 
 https://mybot314.ru/tekegram_catalog/

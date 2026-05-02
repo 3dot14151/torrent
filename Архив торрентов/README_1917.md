@@ -1,3 +1,237 @@
+###  Публикация: 522660   (621316) от 14.07.2012
+
+[Wallpapers 16+] Gilrs Wallpaper (14.07.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621316.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 4360x2900
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:597FAFA9CF3C60CDF8E7BEF5B54208C5B2649455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522948   (621315) от 14.07.2012
+
+[Wallpapers] Nature Wallpapers (15.07.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621315.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6654286A671C7B336C87216D5463BA69574C8FB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910354   (621281) от 20.06.2015
+
+XMind 6 Pro 3.5.3 Build 201506180105 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621281.jpg" />
+</div>
+
+
+###  Подробнее
+
+XMind — помогает пользователю фиксировать свои идеи, организовывать их в различные диаграммы, использовать эти диаграммы совместно с другими пользователями. XMind часто используется для управления знаниями, на совещаниях, в управлении задачами и тайм-менеджменте. XMind совместима с FreeMind. Для начала работы вам надо выбрать стиль схемы, добавить нужное количество (   Читать дальше...   )Язык интерфейса: Русский, английский и др. (зависит от системного)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24E6C2D8D5534AA08FA2958E2947B913E176FA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909939   (621262) от 20.06.2015
+
+Microsoft Windows 10 Insider Preview 10.0.10147 (x64) [En] + Language Pack [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:505F0D2DF2FE694387B156BEB5A756461162FFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522653   (621260) от 14.07.2012
+
+[Wallpapers] Nature Wallpapers (14.07.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE567E67BBEE53CF07EC88CCC6365EDB44D2A0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522953   (621259) от 14.07.2012
+
+[Wallpapers 16+] Wallpapers Sexy Girls (15.07.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 3993х2421
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D0E8B2904DF543F52870A946E6B9A7D91AA5BFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522903   (621258) от 14.07.2012
+
+Газета | Сезон у дачи №14 (111) (2012) [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал для садоводов. Множество практических советов и рекомендаций специалистов, овощеводов-любителей помогут вам в выращивании и получении гарантированного и высокого урожая. Очень много интересной и полезной информации.Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CAE7A95B41566280ECC9F273F09341FF97E2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522210   (621257) от 14.07.2012
+
+[Wallpapers 16+] Gilrs Wallpaper (13.07.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 5251х3470
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C7AF35F2DD924D65E2C8C2975973B93A0CEE664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 522657   (621256) от 14.07.2012
+
+[Wallpapers 16+] Sexy Girls Pack Wallpapers (14.07.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 2600x1730
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E93FDA35CF4B92C336BABB707843162C848DB25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522108   (621255) от 14.07.2012
 
 [Wallpapers] Best HD Wallpapers Pack (13.07.12)
@@ -449,267 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:921E9D6DC148697B5541646C546E1D0DB20C863E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036443   (621167) от 20.07.2016
-
-VA - Terry Da Libra Presents Best Of Trance Vol.01 (2016) [MP3|320 Kbps] <Trance, Progressive Trance, Melodic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terry Da Libra - Best Of Trance 2016 (Continuous Mix) 00:59:26
-02. Terry Da Libra - Moonspell (Original Mix) 08:41
-03. Jacob Henry & Coastal - Serengeti (Original Mix) 08:07
-04. Schodt - White Tiger Feat. Aida Fenhel (Matt Lange 2012 Re-Master) 08:41(   Читать дальше...   )Жанр: Trance, Progressive Trance, MelodicПродолжительность: 02:17:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C1668EBA95C1BC2F97FA5BAA78F0B5692F238E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036256   (621159) от 20.07.2016
-
-Together 3.5.14 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621159.jpg" />
-</div>
-
-
-###  Подробнее
-
-Together - Программа для хранения и организации файлов.
-Благодаря поддержке функции drag-and-drop, Together позволяет собирать изображения, текст, закладки и другие файлы, и хранить их в порядке. Все файлы можно делить на группы и папки, добавлять теги и ярлыки. А встроенная функция поиска поможет быстрой найти нужный файл.
-
-Приложение может хранить в своей базе (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 18 июля 2016Разработчик: ReinventedSoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A73215EE7B861226EA724ABC9CC1D062C8C2F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522876   (621155) от 14.07.2012
-
-VA - Русский Avto Club Vol.2 (2012) [MP3|320 кб/с]<Dance, Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Sandro Escobar & Katrin Queen vs. Reflex - Non Stop (extended mix)
-02. A-Lika & Korol Lir - Любовь подставила (DJ Pomeha mix)
-03. Вера Брежнева - Реальная жизнь (DJ Vengerov remix)
-04. MaXimA - Так тихо (Fidel Wicked radio edit)
-05. Иракли vs. Бьянка - Белый пляж (DJ Kirill Clash & DJ Dmitriy Nema remix)
-06. Shyma - Ветрами (Flashtronica remix)
-07. Makhno Project - De Janeiro (extended mix)
-08. Lika Star - Точка росы (Tone Project club mix)
-09. Карина Крит feat. Chris Parker - Мое сердце (Radio edit)
-10. KOLA Project - Время (original mix)Жанр: Dance, ClubПродолжительность: 04:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0D65910A5A194A82E9FDED7D7D0419CCF1B8DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522661   (621154) от 14.07.2012
-
-[Wallpapers 16+] Beautiful Girls Wallpapers (14.07.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621154.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 11680х1050 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4E0BD5E432A8AF0FA7CED8930D0A14B119C39F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522443   (621147) от 14.07.2012
-
-[картинки] Native American Art
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621147.jpg" />
-</div>
-
-
-###  Подробнее
-
-На мой взгляд довольно интересные художники пишущие картины с индейцами.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:061A3E7AC2546D336BA408B6DB2E9973B48D6921
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522243   (621145) от 14.07.2012
-
-[Wallpapers]Cool Mixed HQ Colorful Wallpapers 06
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621145.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17EBC007A9253403526FF48F8E71D54CC13F74C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522241   (621143) от 14.07.2012
-
-[Wallpapers]Водопады
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0890B701B9AF5A72F7387E38BD55D4F1E8F05EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522582   (621140) от 14.07.2012
-
-VA - Paradise Islands (Sicily Beach Chillhouse Lounge Edition) (10-July-2012) [MP3|320 кб/с]<Chill House, Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621140.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lovebirds - Running Backwards (6:36)
-2. Roberto De Carlo - Never Forget - Jay-J's Shifted Up Mix (7:13)
-3. Ricky Inch - Summer - Ricky Inch Trumpy Mix (8:02)
-4. Coeo - Get Down - Fex Fellini Remix (7:25)
-5. Roed Svensk - Never Be the Same - Main Mix (6:09)
-6. Raw Artistic Soul - Flores para ti - Can 7 Part 1 (6:53)
-7. Simon Grey - Signs - Pete Gust & Lefthander Remix (5:34)
-8. Urban Bang - The Birch (5:27)
-9. Ben Hart - Perfect Love Song - Original Mix (7:05)
-10. Ben From Corduroy - Come Together (4:22)(   Читать дальше...   )Жанр: Chill House, LoungeПродолжительность: 01:29:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC3B9BC02CC5FBE33F525E81F2C7A643B09669C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036263   (621091) от 20.07.2016
-
-VA - Goa Year 2016, Vol.2 (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Psychedelic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. D-Tek -  The Maschine 7:01
-02. Sixsense & Rammix -  Migdalindia 7:17
-03. M-Kamikaze -  Rebirth 6:47
-04. Retronic -  Creative Visions 5:56(   Читать дальше...   )Жанр: Trance, Psy-Trance, PsychedelicПродолжительность: 03:05:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B7EFCF9B5EFD075852FC57DB990C162330BBF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

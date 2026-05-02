@@ -1,3 +1,119 @@
+###  Публикация: 1030936   (670466) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 43 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Emotion - Go Go Yellow Screen ( 1984 )
+02. Blue System - Under My Skin ( 1988 )
+03. C. C. Catch - Heartbreak Hotel ( 1986 )
+04. Bobby Orlando - All People Are The Same ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FDCE6519AC68B34783C6F740B72AD7A951909E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030930   (670465) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 40 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Murray - Commedia ( 1991 )
+02. Body Power - Dancing In The Tears ( 1985 )
+03. Radiorama - Yeti ( Remix 1989 )
+04. Mike Hammer - Supersonic Love ( Energy Mix 1992 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B9BDC76AB34B98C9C4224543C9264645056E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030933   (670464) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 41 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gentle Touch - The Fire Of Love ( 1986 )
+02. John Christian - Ebony Eyes ( 1987 )
+03. Key West - Jesahel ( 1988 )
+04. Alphatown - Hot Stuff ( 1990 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688DB21829BC5DF32AB5C8AA91A0AC9AF6F407CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1030925   (670463) от 02.07.2016
+
+VA - Зарубежная Дискотека ХХ Века - 38 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ryan Simmons - Lucky Guy ( Radio Version 1984 )
+02. Bronski Beat - Why ( 1985 )
+03. Aquarius - It Feels Like Summer ( Radio Version 1994 )
+04. Charlie - Spacer Woman ( 1983 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158A7D3977C3C7536FFD86C351E8EAAD73193541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030923   (670462) от 02.07.2016
 
 VA - Зарубежная Дискотека ХХ Века - 36 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -629,119 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 48 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A730AB73C9DF9DCBD2D42197AD5E9D6BBAF882D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031377   (668660) от 03.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 49 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atrium - Hey Tonight ( 1985 )
-02. Denise & Baby's Gang - Disco Maniac ( 1988 )
-03. A La Carte - Dong Dong Diki Diki Dong ( 1983 )
-04. Chris Norman - Too Many Hearts Have Been Broken ( 1982 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AF1D4250C3E96B2C799361AC5C65F16A04C0185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031383   (668654) от 03.07.2016
-
-VA - Зарубежная Дискотека ХХ Века - 50 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Pozzoli - Love Is Alive ( 1987 )
-02. Savage - Computerized Love ( 1985 )
-03. Bommbastic - 99 Luftballons ( Club Dance Mix 1994 )
-04. Exotica - Can You Imagine ( Extended Version 1995 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D12920F0B89B2B619706B290866D62CCF417C0A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 338843   (668621) от 19.05.2011
-
-VA - Ах, какая женщина! (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_668621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604FBAC8D5CBDD495F880C74C6E24B5175F5CA18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224063   (668183) от 08.05.2018
-
-VA - German Top 50 Party Schlager Charts 07.05.2018 (2018) [MP3|265-320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anna-Maria Zimmermann - Scheiß egal
-02. Beatrice Egli - Verliebt, verlobt, verflixt nochmal
-03. Helene Fischer - Nur mit Dir
-04. Ben Zucker - Was fur eine geile Zeit(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A05CA4C9929536517AE4B60366F5B98534754F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1131423   (707084) от 06.05.2017
+
+Phil Perry - Breathless (2017) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, R'n'B, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathless (4:46)
+02. Never Can Say Gooodbye (4:06)
+03. Do Whatcha Gotta Do (3:45)
+04. Love's in Need of Love Today (4:32)(   Читать дальше...   )Жанр: Smooth Jazz, R'n'B, SoulПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95209E5849BD112B7C20E2258385C08D560AF24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026292   (706245) от 14.06.2016
+
+Joe Van Enkhuizen & Horace Parlan - Ellington Ballads (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blue Reverie [06:01]
+ 02.Prelude To A Kiss [03:50]
+ 03.Just A Sittin' And A Rockin' [04:13]
+ 04.Creole Blues / Tonight I Shall Sleep [05:16](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:52:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:978836FFC88E6DA7F127B45D9C1417FE2BE2825B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026171   (706243) от 14.06.2016
 
 Masabumi Kikuchi Trio - Feel You (1993) Remaster, 2015, King Record[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Miles Davis - The Real... Miles Davis (2011) [FLAC|Lossless|tracks + .cue] <Jazz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3A85FD805C0F1E203D960BEDAD72E04F1652AC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220448   (704492) от 19.04.2018
-
-The Manhattan Transfer - The Junction (2018) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704492.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cantaloop (Flip Out!)
-02. Swing Balboa (Down On Riverside)
-03. The Man Who Sailed Around His Soul
-04. Blues For Harry Bosch(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E12A0425941259596403E7B89D11395F1897D05E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026527   (704167) от 15.06.2016
-
-Gary Peacock - Voices (1971) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Modern Creative, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ishi [11:53]
- 02.Bonsho [06:18]
- 03.Hollows [07:56]
- 04.Voice From The Past [11:22](   Читать дальше...   )Жанр: Modern Creative, Post-BopПродолжительность: 00:53:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D1C9F677E0ADFBAE1C72880EECEB95E4DE57188
 ```
 
 https://mybot314.ru/tekegram_catalog/

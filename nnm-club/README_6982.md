@@ -1,22 +1,22 @@
-###  Публикация: 1389899   (783907) от 12.06.2020
+###  Публикация: 1124632   (785485) от 12.04.2017
 
-Айрин Кох | Крушение или мир в котором ты живешь (2020) [EPUB]
+Active@ Boot Disk (LiveCD) 10.5.0 RePack by WYLEK (x64) [Ru]
 
->>Художественная литература
->>Фантастика, Фэнтези
+>>След.
+>>LiveCD/DVD/Flash
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783907.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ещё вчера Карина Алтуева планировала отпуск в Италию – утром она села в самолет, предвкушая прогулки по древним улицам, а сегодня она одна из переживших крушение посреди огромного океана. Одна из тех, кому повезло быть спасенными командой проходящего корабля. Но так уж ей повезло? Что за тайны хранят эти странные люди? Возможно, ответы разрушат её привычный мир. (   Читать дальше...   )Жанр: Детективная фантастика, МистикаФормат: EPUB
+Active@ Boot Disk - включает в себя набор мощных инструментов, которые позволят Вам восстановить потерянные данные, сбросить пароли учетных записей Windows, создать резервные копии системы и надежно стирать данные без возможности восстановления. Active@ Boot Disk является загрузочным CD, и может использоваться даже для компьютеров, на которых не загружается основная (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:318144432F2EBF9135B6C4A34A694F84F7A2B00C
+magnet:?xt=urn:btih:E6EFA586F544B96B004AFC495A5E584BEB72F7BC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,281 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389815   (783906) от 12.06.2020
+###  Публикация: 1114032   (785484) от 12.04.2017
 
-CPU-Z 1.92.2 Portable [En]
+Реальные пацаны (2017) SATRip (сезон 10, серии 1-20 из 20)
+
+>>След.
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785484.jpg" />
+</div>
+
+
+###  Подробнее
+
+В отличие от предыдущих сезонов, в 10-ом сезоне "Реальных пацанов" события станут еще более яркими. Герои сюжета будут впутаны в незамысловатые истории с неожиданными поворотами событий. Тут Николай желал развода со своей супругой, а вот они уже целуются и уединяются в самых странных местах. Также немало отличились и его лучшие друзья, которые снова спешат (   Читать дальше...   )Производство: Россия / Гуд Стори МедиаЖанр: комедияРежиссер: Жанна КадниковаАктеры: Николай Наумов, Зоя Бербер, Антон Богданов, Владимир Селиванов, Станислав Тляшев, Мария Скорницкая, Валентина Мазунина, Марина Федункив, Армен Бежанян, Игорь Ознобихин и др.Продолжительность: ~00:23:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18E0DBE4C08CD492AD29CA1A70A9F6AB2B853694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124809   (785483) от 12.04.2017
+
+Autodesk 3ds Max 2018 [Multi]
+
+>>3
+>>9
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Autodesk 3ds Max – популярный программный пакет, предназначенный для редактирования 3-мерной графики и ее визуализации. 3ds Max великолепно подходит для создания простых и сложнейших структурированных трехмерных объектов – животных, людей, зданий. Программа также позволяет выполнять глубокое моделирование природной среды, включая освещение, воду, деревья, ветер. (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и пр.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B32EA6FCF41DDBBCF8C9F85CBE4F500778F05229
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277382   (785482) от 20.01.2019
+
+Beyond Creation - Algorythm (2018) [WavPack|Lossless|image + .cue] <Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Disenthrall (1:44)
+02 - Entre Suffrage Et Mirage (4:20)
+03 - Surface's Echoes (6:54)
+04 - Ethereal Kingdom (5:19)(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBAEEFFAB4F58885CAD21D446F425DF80A93C68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277369   (785481) от 20.01.2019
+
+Ethereal Sin - Kakuriyo (2019) Japan [FLAC|Lossless|image + .cue] <Symphonic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn of Yata-Garasu
+02. Thy the Ancient Wyvern
+03. Sea of Sacrifice
+04. For Whom the Bell of Ruin Tolls(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803145ADD9ABC9F0249773DFA3B6BCF93C0F7D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277406   (785480) от 20.01.2019
+
+Art Farmer - The Complete Albums Collection 1958-1961 (2016) 4CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785480.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Back In The Cage [5:08]
+02. Stablemates [4:36]
+03. The Very Thought Of You [5:44](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 05:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:983F7310C16ACDB1BD0F033D60E5528323F94386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277442   (785479) от 20.01.2019
+
+Sonny Rollins - Complete Sonny Rollins in Japan (1973) 2CD, 2018, JVC [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785479.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Powaii [18:48]
+02. St. Thomas [5:26]
+03. Alfie [13:06](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD8BFF7A69873627D5F73F2373C8452AD9F90E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277446   (785478) от 20.01.2019
+
+Donald Byrd - Fancy Free (1969) 2017, Universal [FLAC|Lossless|tracks + .cue] <Soul Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy Free [12:07]
+02. I Love the Girl [8:48]
+03. The Uptowner [9:17]
+04. Weasil [9:00]Жанр: Soul Jazz, Hard BopПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B1D1B567C416D2FA012B00F706AFD669B3D16A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277221   (785477) от 20.01.2019
+
+Disgorge (US) - Parallels of Infinite Torture (2005) [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Revealed in Obscurity (5:13)
+ 02. Enthroned Abominations (4:05)
+ 03. Atonement (2:57)
+ 04. Abhorrent Desecration of Thee Iniquity (4:17)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B34DB33933DCD120DFEC776B10A314F4D6BFFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277241   (785476) от 20.01.2019
+
+Lividity - Show Us Your Tits "Live" (1999) Live [FLAC|Lossless|tracks + .cue] <Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rectal Wench (2:50)
+ 02. Feasting on Mankind (1:51)
+ 03. Devour Humanity (2:00)
+ 04. Lacerations of an Unclean Twat (2:42)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B36D34041F44C52F8791AE997E30D4AC97265829
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277320   (785475) от 20.01.2019
+
+Wondershare Recoverit 7.4.2 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785475.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CPU-Z способен показать различную информацию о вашем процессоре, такую как название и производитель, частота, техпроцесс изготовления, коэффициент умножения частоты, частично определяется "разогнанность" процессора. Кроме того, информация о кэше первого и второго уровня, поддерживаемых наборах команд и прочее... Иногда процессоры с одним и тем же наименованием (   Читать дальше...   )Язык интерфейса: Английский
+Комплексный набор для восстановления данных (был Wondershare Data Recovery).
+Wondershare Recoverit - профессиональное приложение, которое поможет вам восстановить удаленные, отформатированные и потерянные данные с любого внешнего диска установлена на вашем Mac.Тип издания: macOS SoftwareРелиз состоялся: 15.01.2019Разработчик: Wondershare Software Co., Ltd.Поддерживаемая ОС: macOS 10.8 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:289CD1ACEE5EA0D84039C5E02818DDFB576E0767
+magnet:?xt=urn:btih:0F9292713D32260A385525D2E8664CA62A086EDC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +306,231 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389514   (783905) от 12.06.2020
+###  Публикация: 1277418   (785474) от 20.01.2019
 
-VA - Training Hits: Workout Music (2020) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+Nat King Cole - Legends (1994) [FLAC|Lossless|image + .cue] <Jazz, Swing, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somebody Loves Me
+02. I've Grown Accustomed To Her Face
+03. Unforgettable
+04. This Can't Be Love(   Читать дальше...   )Жанр: Jazz, Swing, Easy ListeningПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92844172832B086571BC5B8CE0C2B7059D519879
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277068   (785473) от 20.01.2019
+
+Jim Bryson - Tired Of Waiting (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785473.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Flurry Of Strikes
+2. Labour Drive
+3. Cerulean
+4. Cut Bait(   Читать дальше...   )Жанр: FolkПродолжительность: 00:19:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DBABB335F1B8E32D1FDAE886FD6EC487AD72ACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277390   (785472) от 20.01.2019
+
+Metal Inquisitor - Panopticon (2019) [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free Fire Zone
+02. Change of Front
+03. Beyond Nightmares
+04. Trial by Combat(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075FEE05577A5E3F9D9B95A2F67F9E4AB728B463
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204001   (785471) от 04.02.2018
+
+Piero Odorici Quartet - First Play (1989) 1992, RED Distribution [FLAC|Lossless|image + .cue] <Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Domino [04:22]
+02. Old Folks [06:44]
+03. My Little Red Nose [05:51]
+04. Sweet Love Of Mine [05:44](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:46:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD7EC6B1310C8F76BF2361E651E3CE98F619F92B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203868   (785470) от 04.02.2018
+
+VA - The Sound Of Progressive House Vol.08 (2018) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dennis Bune  -  Dark Sky (Original Mix)  8:52
+02.  DiCristino  -  Infinite (Micfreak Remix)  5:46
+03.  Foxt & Prodeeboy  -  New Era (Original Mix)  7:43
+04.  Dezza  -  Looking For (Extended Mix)  7:16(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4428D786DEB4109447208266A2A7083E2D8F84E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204055   (785469) от 04.02.2018
+
+VA - Rhodes Journey To The Light (2017) [MP3|320 Kbps] <Balearic, Downtempo>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Homme - Mountains Of Prologomena (feat Nefeli) (04:05)
+02. Outpass - Apela (05:19)
+03. Craun - Birds Of Dissonance (04:14)
+04. Melorman - Mrs Sun In Her Eyes (03:39)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFE5F7AF6B8077AD3A23E07BB1231E2A28B638E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204147   (785468) от 04.02.2018
+
+VA - Selective Deep House Vol.4 (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  ThC Brothers - Bring Me Back To The Underground (original mix)
+02.  Gosha, Dessy Slavova & Anton Ishutin - I Know You (Anton Ishutin remix)
+03.  Albena Flores & Indira Boka - Rondo Minimale (original mix)
+04.  Jaques Le Noir - Oopart (original mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:52:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A567E9A94F6E2D0A2D5167F0615B04CB9776017A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204128   (785467) от 04.02.2018
+
+Occer - Imperfect (2017) Zenon Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Psy-Trance>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785467.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Death Team - Kids
-02. Jacob Banks - Move with You
-03. Sam And The Womp - Bom Bom (Radio Edit)
-04. Anitta - Totalmente demais (feat. Flávio Renegado)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:41:02
+01. Affection (06:22)
+02. Imperfect (06:05)
+03. Nefario (06:21)
+04. Tumult (06:31)Жанр: Techno, Psy-TranceПродолжительность: 00:25:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4CFAF32607411C96DB6D3B894871BD02C023F366
+magnet:?xt=urn:btih:08F071207FF8593B7FFA146CA557B7C9712A5EC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +538,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389468   (783904) от 12.06.2020
+###  Публикация: 1204004   (785466) от 04.02.2018
 
-Анатолий Арлычев | Саморегуляция, деятельность, сознание (1992) [PDF]
+Святитель Иоанн Златоуст | Духовный жемчуг (2013) [PDF]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785466.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В монографии намечена программа решения комплексного изучения проблем сознания на пути органического объединения принципа отражения с принципом человеческой деятельности на основе выявления информационно-регулятивных процессов. В работе подробно представлена знаковая теория идеального, анализируется внутренняя структура субъекта сознания, человеческого общения и (   Читать дальше...   )Жанр: ФилософияФормат: PDF
+Книга содержит избранные места из творений Иоанна Златоуста — архиепископа Константинопольского. Святитель Иоанн оставил нам огромное богословское наследие. В своем изъяснении Священного Писания он показывал, как Библия может стать подлинной наставницей человека. И сегодня слова святителя, обращенные к каждому из нас, дышат силой Святого Духа: «Грех не в нашей природе; (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8A0B5F9B1F6E2993ECE058834B925557C09CE30
+magnet:?xt=urn:btih:7B9F1DE1FE83AF6D21F6F7EB87A110F04CE4FF01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,25 +564,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389758   (783903) от 12.06.2020
+###  Публикация: 1203990   (785465) от 04.02.2018
 
-CoolUtils Total Image Converter 8.2.0.217 RePack (& Portable) by elchupacabra [Multi/Ru]
+Charles Tolliver - Mosaic Select 20 (1970) 3CD, 2005, Mosaic Records [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785465.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Drought [09:23]
+02. Felicite [08:26]
+03. Orientale [17:38](   Читать дальше...   )Жанр: Post-BopПродолжительность: 03:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C61BA379B1D96B9851C3EFA55F4A330F7A9F18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204007   (785464) от 04.02.2018
+
+А. Алтаев | Старая песня яблонь (1911) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B131BC0E4478C35DDCEA27CB180B3CF1A676608
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1203907   (785463) от 04.02.2018
+
+VA - The Elegance Of Electronic Music - Deep House Edition #2 (2018) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2Gemeinsam - Want Some Love (Radio Edit)
+02. Scheinizzl - One More (Radio Edit)
+03. Mike Dem, Sanna Hartfield - Day Dream (Radio Edit)
+04. Biskuwi - Sadness Is A Reason To (Radio Edit)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:726136EE51E1B50E8375A3AD18F899C3177972DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204136   (785462) от 04.02.2018
+
+Indian Wells - Where The World Ends (2017) Japanese Edition [FLAC|Lossless|tracks + .cue] <Ambient, Experimental, IDM, Techno>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785462.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CoolUtils Total Image Converter преобразует изображения в желаемый вами формат, изменит размеры и перевернёт фотографии и картинки. Total Image Converter сделает всё, что вам потребуется: вы сможете преобразовывать большие TIFF изображения в маленькие JPEG, подгонять картинки под размеры веб-страницы или преобразовать RAW фотографии в более популярные форматы. Это (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01. Voices (4:42)
+ 02. Cascades (4:56)
+ 03. Forest Hills (5:30)
+ 04. Some Stripes (6:37)(   Читать дальше...   )Жанр: Ambient, Experimental, IDM, TechnoПродолжительность: 01:02:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E35769C0EFCB68FCE3B5C884B20E68DA99328E5F
+magnet:?xt=urn:btih:D1B6C276B3D73FAC67BD97FEF3BE092B80F0BA6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,572 +677,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389654   (783902) от 12.06.2020
+###  Публикация: 1203991   (785461) от 04.02.2018
 
-Найк Борзов - Капля Крови Создателя (2020) [MP3|320 Kbps] <Rock>
+Св. Аммон и др. | Творения древних отцов-подвижников (2012) [DJVU]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемые читателю «Творения древних отцов-подвижников» являются переизданием ставшей библиографической редкостью книги, вышедшей в 1990-е годы. В издании представлены переводы святоотеческих аскетических сочинений таких известных авторов Египетской пустыни IV века, как св. Аммон, св. Серапион Тмуитский, преп. Макарий Египетский, Стефан Фиваидский, блж. Иперехий, (   Читать дальше...   )Жанр: ПравославиеПеревод: А.И. СидоровФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA581B9E8CE3E48E84A7A51876BD763027F8506A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277375   (785460) от 20.01.2019
+
+Ashes of Ares - Well of Souls (2018) [FLAC|Lossless|image + .cue] <Progressive Metal, Power Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785460.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Не предел
-02. Слышу тьму
-03. Фрагмент
-04. Пойми и прости(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:29
+01. Consuming the Mana
+02. The Alien
+03. Unworthy
+04. Soul Searcher(   Читать дальше...   )Жанр: Progressive Metal, Power MetalПродолжительность: 00:58:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4838D63D2A18CE1A1AE69956E14F2F00395A269
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389865   (783901) от 12.06.2020
-
-Марина Аист | Хорошие роды. Что нужно знать и как самостоятельно подготовиться (2020) [EPUB]
-
->>Научная и техническая литература
->>Здоровье и медицина
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Беременность – это волшебное время для каждой женщины. Осознание того, что в тебе зарождается новая жизнь, – это что-то таинственное и само по себе прекрасное. Марина Аист – акушер, перинатальный психолог и руководитель клуба для будущих мам «Аист» – за годы своей практики приняла более 3000 родов. В этой книге собран ее многолетний опыт, который поможет вам успешно (   Читать дальше...   )Жанр: Акушерство и гинекология, ЗдоровьеФормат: EPUB
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDF406BCF05DE3DF0CCBA245EC0343C67F14B854
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389852   (783900) от 12.06.2020
-
-VA - 80s Love Songs (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783900.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Chicago - Hard to Say I'm Sorry (2007 Remaster) (3:41)
-2. Air Supply - All Out of Love (4:01)
-3. The Police - Every Breath You Take (4:11)
-4. John Lennon - Woman (3:32)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 03:34:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389740   (783899) от 12.06.2020
-
-Фигурное катание. Чемпионат России 2020. Красноярск (Россия). 4-й День (2019) DVBRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783899.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ростелеком-Чемпионат России по фигурному катанию на коньках 2020 — соревнование по фигурному катанию среди российских фигуристов сезона 2019 - 2020 года, проходившее с 24 по 29 декабря 2019 года.
-29 декабря 2019 года, воскресенье. 4-й День:
-1. Церемония награждения
-2. Показательные выступления(   Читать дальше...   )Телекомпания: Первый каналЖанр: Спорт, Церемония, ШоуЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:40:00 — 02:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F17623A772E29796B5F54992C6030AD1C32B5DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389770   (783898) от 12.06.2020
-
-Topaz Gigapixel AI 4.9.4 RePack (& Portable) by TryRooM [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783898.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz A.I. Gigapixel — это первое и единственное приложение, использующее силу искусственного интеллекта для увеличения ваших изображений, добавляя естественные детали для удивительного результата. Используя технологию глубокого обучения, A.I.Gigapixel ™ может увеличить изображение и заполнить детали, которые другие продукты для изменения размеров не учитываются. (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79515F05BCAFE8AAEB56E590A46BC02C5E440216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389862   (783897) от 12.06.2020
-
-Светлана Морозова | Злитесь, чтобы не болеть! Как наши эмоции влияют на наше здоровье (2020) [EPUB]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Когда врачи говорят: «Все болезни от нервов…» – они забывают добавить: «…непризнанных и невысказанных». Звучит странно, но это так! Автор книги Светлана Морозова – врач, кандидат медицинских наук, психотерапевт – поможет разобраться в том, какая связь существует между нашими эмоциями и нашим телом и почему мы заболеваем из-за переживаний и грустных мыслей. А главное (   Читать дальше...   )Жанр: Здоровье, Практическая психологияФормат: EPUB
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389699   (783896) от 12.06.2020
-
-Konomi Suzuki - Redo (2016) [FLAC|Lossless|image+.cue] <J-Pop>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783896.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redo (4:18)
-02. Mobius (4:17)
-03. Sekai wa Kizu wo Dakishimeru (Acoustic ver.) (4:45)
-04. Redo (instrumental) (4:18)(   Читать дальше...   )Тип издания: CommercialПроизводство: KADOKAWAПродолжительность: 00:21:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389918   (783895) от 12.06.2020
-
-Евгений Хата, Николай Люстигер | Богатство. Как получить экономическое и военное превосходство? (2018) [EPUB]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783895.jpg" />
-</div>
-
-
-###  Подробнее
-
-Читатель, тебе придется быть внимательным!
-Эта книга не для всех. Она содержит массу секретной и даже запрещенной к распространению информации, которая способна кардинально поменять твое состояние и навсегда изменить твое понимание происходящего. Увы, это не самый простой текст, с которым тебе приходилось сталкиваться: «Богатство» содержит такое количество примеров (   Читать дальше...   )Жанр: Мировая экономика, Социально-экономическое развитие, ПублицистикаФормат: EPUB
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389763   (783894) от 12.06.2020
-
-Мумий Тролль - Лето без интернета (2020) Maxi-Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783894.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мумий Тролль - Лето без интернета
-2. iX - Off the Grid
-3. SHEEP - Summer
-4. Carnaval Youth - Vasara bez internetiem(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71FD33AEB90FB5ACD0949B9CC3249F9A465EB395
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389858   (783893) от 12.06.2020
-
-Twisted Sister - The Platinum Collection (2020) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783893.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. What You Don't Know (Sure Can Hurt You) (04:46)
- 02. We're Not Gonna Take It (03:41)
- 03. Love Is For Suckers (03:26)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:27:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F78F087FDA03DB3350E0A46C6B682A18FF398C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389703   (783892) от 12.06.2020
-
-Rie Takahashi & Inori Minase - Stay Alive (2016) [FLAC|Lossless|image+.cue] <J-Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stay Alive (4:27)
-02. Wishing (6:00)
-03. Bouya no Yume yo (3:31)
-04. Stay Alive (instrumental) (4:26)(   Читать дальше...   )Тип издания: CommercialПроизводство: KADOKAWAПродолжительность: 00:27:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CFD6C74F6CDFD020ECF35DCD26502B65FBE18BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389834   (783891) от 12.06.2020
-
-Убийство есть убийство / Un meurtre est un meurtre (1972) DVDRip [H.264] [AVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поль — достойный человек, попавший в неприятную ситуацию. Его жена, ставшая инвалидом на второй год семейной жизни, превратилась в озлобленную мегеру. Когда она погибает в автокатастрофе, он вздыхает с облегчением, но ненадолго: приезжает сестра покойной и поселяется у него в доме. По непонятным причинам она пытается воссоздать облик погибшей сестры и даже пользуется (   Читать дальше...   )Производство: Италия, Франция / Films de l'Épée, Peel, Planfilm, Tritone CinematograficaЖанр: Драма, Криминал, ДетективРежиссер: Этьен ПерьеАктеры: Жан-Клод Бриали, Стефан Одран, Робер Оссейн, Мишель Серро, Катрин Спаак, Мишель Кретон, Мадлен Дамьен, Джинн Перез, Изабель Дель Рио, Антониа ЛотитоПеревод: Авторский, Р. ЯнкелевичСубтитры: ОтсутствуютПродолжительность: 01:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B10827126350E850D7EE97E80F901C5A01554CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389789   (783890) от 12.06.2020
-
-PicPick 5.1.1 Pro + portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783890.jpg" />
-</div>
-
-
-###  Подробнее
-
-PicPick - приложение, объединяющее в себе возможности простого графического редактора и утилиты для захвата изображений с экрана компьютера. PicPick обладает простым и удобным интерфейсом. Среди особых возможностей стоит выделить возможность захвата целого рабочего экрана (в том числе, и на мультимониторных системах), захват только активного окна, отдельной области, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDDB7F4F147A5C7735C7B13950347B316F8AF234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389769   (783889) от 12.06.2020
-
-Вера Брежнева - V. (2020) Deluxe Edition [MP3|320 Kbps] <Pop>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783889.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro V.
-2. Просто люди (Intro)
-3. Просто люди
-4. Тихо (Intro)(   Читать дальше...   )Жанр: PopПродолжительность: 00:24:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389729   (783888) от 12.06.2020
-
-Илья Брижак | Будни бортпроводника (2020) [MP3]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783888.jpg" />
-</div>
-
-
-###  Подробнее
-
-Все самые необычные, забавные, омерзительные и поучающие истории, посвященные профессии бортпроводника.
-Пристегните ремни, откройте створки иллюминаторов, полет начинается!
-Многие из нас летают в самолетах, но есть те, кто делает это постоянно, те, чья работа – и в небе, а на земле, те, кто делает каждый ваш полет лучше!Жанр: Книги о путешествиях, Юмор и сатираПродолжительность: 05:50:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389897   (783887) от 12.06.2020
-
-CrystalDiskInfo 8.6.0 Final + Portable [Multi/Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783887.jpg" />
-</div>
-
-
-###  Подробнее
-
-CrystalDiskInfo - отслеживает состояние жестких дисков, поддерживающих технологию S.M.A.R.T. Производит мониторинг и дает общую оценку "здоровья" вашего диска. Отображает детальную информацию о жестких дисках, установленных в компьютере (прошивка, серийный номер, стандарт, интерфейс, общее время работы и др.). Выводит параметры атрибутов системы самодиагностики (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389647   (783886) от 12.06.2020
-
-Volume Slider Like Android P Volume Control 3.5 [Ru/En]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управляйте громкостью на смартфоне при помощи современного приложения Volume Slider Like Android P Volume Control, а виджет на главном экране устройства поможет это сделать в один клик.Тип издания: PremiumРелиз состоялся: 10.06.2020Разработчик: Yogesh DamaПоддерживаемая ОС: Android 4.1+Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63FA6D22E80DD259F856228C750D28976A40CDC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389782   (783885) от 12.06.2020
-
-Центральный вокзал / Central do Brasil / Central Station (1998) DVDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывшая учительница — Дора зарабатывает тем, что пишет письма для неграмотных людей, приезжающих на Центральный вокзал Рио-де-Жанейро. Безразличная к своим клиентам, она берет по доллару за письмо, и еще доллар, если просят его отправить. Но отправляет она не все письма...Производство: Бразилия, Франция / Audiovisual Development Bureau, Ministerio da Cultura, BEI Comunicações, Bahiatursa, Canal+Жанр: ДрамаРежиссер: Вальтер СаллесАктеры: Фернанда Монтенегро, Марилия Пера, Винициус де Оливейра, Сойя Лира, Отон Бастос, Отавиу Аугусту, Стела Фрейташ, Матеус Наштергаэли, Кайо ЖункейраПеревод: Многоголосый профессиональный (R5)Субтитры: Русские, Английские, Французские, Испанские, ПортугальскиеПродолжительность: 01:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C530FC1A9F769890BDB9C53F5B76BBAD21550728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389871   (783884) от 12.06.2020
-
-Анастасия Скрипкина | #Лучшие салаты на каждый день (2018) [PDF]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гуру пошаговых кулинарных рецептов Анастасия Скрипкина в книге новых рецептов поможет: научиться делать необычные салаты и интересно их подавать, освоить базовые и всем, полюбившиеся классические салаты, приготовить знаменитый оригинальный цезарь с вустерским соусом, узнать рецепт домашнего полезного майонеза, правильно жарить стейки из тунца и отваривать кальмары (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389786   (783883) от 12.06.2020
-
-Ветеран / Beterang / Veteran (2015) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Детектив Со Ду Чхоль пытается засадить за решетку Чо Тэ О. Но сделать это не так просто как кажется. Ведь парень не кто-нибудь, а наследник крупной компании с хорошими связями...Производство: Южная Корея / CJ Entertainment, CJ E&M Film Financing & Investment Entertainment & Comics, Filmmaker R&KЖанр: Боевик, комедия, криминалРежиссер: Рю Сын-ванАктеры: Хван Джон-мин, Ю А-ин, Ю Хэ-джин, О Даль-су, Чан Юн-джу, Ким Щи-ху, О Дэ-хван, Чон Ун-ин, Чон Ман-щик, Сон Ён-чханПеревод: Двухголосый любительский (DeadSno & den904)Субтитры: Русские, английскиеПродолжительность: 02:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF702D77C03447531E1B15EF6A1B8A435B742190
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389737   (783882) от 12.06.2020
-
-Кен Армстронг, Т. Кристиан Миллер | Невероятное. История преступления, в которое никто не поверил (2020) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_783882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утром Мари Адлер позвонила в полицию, чтобы заявить об изнасиловании. Она несколько раз рассказала о происшествии, но ни следователи, ни близкие ей не поверили. Тогда Мари решила, что проще будет отозвать заявление – с этого момента ее жизнь превратилась в кошмар. Эта мощнейшая драма рассказывает историю одной ошибки, которая породила целую серию преступлений, разрушив (   Читать дальше...   )Жанр: ПублицистикаПродолжительность: 08:48:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B65BB838C33D49AE7BA540C65471B6EB22D1EEC
+magnet:?xt=urn:btih:AB66231F38A7E1CD4BD13CC6B06AA8098E86F21E
 ```
 
 https://mybot314.ru/tekegram_catalog/

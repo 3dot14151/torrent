@@ -1,3 +1,32 @@
+###  Публикация: 1790344   (68133) от 08.04.2025
+
+Orbital - Radiccio (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Deepest (feat. Tilda Swinton)
+02 – Halcyon
+03 – The Naked And The Dead
+04 – Sunday(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 00:43:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C58D228655000B17C4AF509F8C7394484535487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790258   (68123) от 08.04.2025
 
 VA - Sports Club Charts 2025 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -713,35 +742,6 @@ VA - Summer Jam 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance, Club, House, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:128CC744A00657C062BA2AB7793C28F335C4C9DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708820   (62115) от 22.03.2024
-
-Scooter - Open Your Mind And Your Trousers (2024) [FLAC|Lossless|WEB-DL|tracks] <Techno, Hardstyle, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thirty, Rough And Dirty
-02. Rave & Shout (feat. Harris & Ford)
-03. Posse Reloaded (feat. FiNCH)
-04. Techno Is Back (feat. Harris & Ford)(   Читать дальше...   )Жанр: Techno, Hardstyle, DanceПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9EFAEC4878DF3C98060C2A688C9643BDEEFEB9
 ```
 
 https://mybot314.ru/tekegram_catalog/

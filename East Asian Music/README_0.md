@@ -1,3 +1,33 @@
+###  Публикация: 597117   (1000485) от 02.01.2013
+
+VA - Crystal Avolokitesvara (2006) [MP3|320 кб/с]<New age, Relax>
+
+>>East Asian Music
+>>Other Asian
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000485.jpg" />
+</div>
+
+
+###  Подробнее
+
+(15:07) 1. Namo Avolokitesvara
+(15:34) 2. Avolokitesvara water purification
+(15:33) 3. Flower of Avolokitesvara
+(15:27) 4. Crystal Avoloitesvara
+(11:54) 5. Great MercyЖанр: New age, RelaxПродолжительность: 01:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F7B8F941050A8E9673C32CEB74B0E3A8FA36E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599274   (999327) от 06.01.2013
 
 VA - Livin'G. Phleng Sawan Ban Na. Mon Spa Luk Thung (3CD) (2009) [MP3|320 кб/с]<New age, Instrumental, Relax, Sounds of nature>
@@ -773,33 +803,6 @@ BTS - Map of the Soul: 7 (2020) [FLAC|Lossless|tracks + .cue] <K-pop, Pop Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D15DA5F5356EEED53E672C4E439C74B2BE2529C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983729   (939712) от 08.02.2016
-
-4minute - Дискография (2010-2015) [FLAC|Lossless|tracks + .cue] <KPop, JPop, Electropop, Dance, R&B, Hip-Pop>
-
->>East Asian Music
->>Asian Pop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939712.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:14] Lee Hyori - Bring It Back (feat. Bekah, Jiyoon)
-[03:19] Navi - Nunmuldo Akkawo (feat. Hyun A from 4minute)Жанр: KPop, JPop, Electropop, Dance, R&B, Hip-PopПродолжительность: 02:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA964F83F9308D6C6017A92E224BA5838A8647FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

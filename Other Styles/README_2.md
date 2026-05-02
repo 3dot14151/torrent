@@ -1,3 +1,206 @@
+###  Публикация: 1616943   (1034536) от 09.03.2023
+
+VA - Enigma-Forest-Transit 3 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Physical Motion - Ave Maria
+02. Gregoria - The Rhythm
+03. Karunesh - Call of the Tribes
+04. Beautiful World - The Silk Road(   Читать дальше...   )Жанр: Electronic, Ambient, New AgeПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:996CDC8270F2E41DB4B988B74ECA92C64E451783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618145   (1034352) от 10.03.2023
+
+Blackmore's Night - Shadow of the Moon (1997) 25th Anniversary Edition, 2023, Minstral Hall Music [MP3|320 Kbps] <Folk, Medieval>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034352.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Shadow of the Moon (25th Anniversary New Mix)
+2. The Clock Ticks On (25th Anniversary New Mix)
+3. Be Mine Tonight (25th Anniversary New Mix) 
+4. Play Minstrel Play (25th Anniversary New Mix)(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:862D72FEDAC63EF45FB986D0EF5DB8B8023CE2D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444936   (1033969) от 04.02.2021
+
+Yakuro - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:47)
+02. Blue...The Color of Dreams (11:28)
+03. Voices of Infinity (8:27)
+04. Pink...The Color of Love (9:56)(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 02:27:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F7DD9CA78DCCA5EE8BB4AE3DAF871515EB6CAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445331   (1033513) от 06.02.2021
+
+Flaer Smin - The Best (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wish U Were Here (Re-Edition 18 Mix) (7:41)
+02. Alone In The Dark (6:59)
+03. Adagio For Love (7:41)
+04. Catharsis (7:08)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:54:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB3258AA985A1AD47FA4C79D8C4993410D718734
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445334   (1033506) от 06.02.2021
+
+Flaer Smin - Karma (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Namaste (3:56)
+02. The Highway (5:21)
+03. Can You Hear Me (6:07)
+04. aXe (5:21)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:02:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E57018010E627245FBB55975C4C1FD2DD8C5DBB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445333   (1033495) от 06.02.2021
+
+Yakuro - My Space (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:16)
+02. Fragment of Sun (6:12)
+03. Signal from the Nebula (8:02)
+04. Hymn to the Wind (6:50)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 02:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3FDF4D90C4AA22F2A3BE51FC3347DA697EB32BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618812   (1033396) от 14.03.2023
+
+Baran Yildiz - Interbeing (2019) [FLAC|Lossless|WEB-DL|tracks] <Handpan, World, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tranquillity, Pt. 1
+02. Tranquillity, Pt. 2
+03. Interbeing
+04. Hope(   Читать дальше...   )Жанр: Handpan, World, InstrumentalПродолжительность: 00:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA1997EABB8C0AF2B4B2603D028D6EDC18C172EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618785   (1033392) от 14.03.2023
 
 Таверна - Не о средневековье (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
@@ -540,209 +743,6 @@ VA - La collection Latina Tango (2007) Compilation, Digipak [APE|Lossless|image 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC7EED3996B8319A87BE11BB10C7D883FDEFE7C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 375546   (1030579) от 18.02.2021
-
-VA - Erotica (1977) [FLAC|Lossless] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фонтан эмоций и чувств на фоне прекрасной музыки. Эта подборка выходила под разными названиями, встречаются как минимум три - Les Vibrations, Erotheque, или просто - Erotica. Кстати, в те далекие года, в нашем народе этот сборник называли никак иначе как ...секс музыка.01. Nathalie Et Serge - Je T' Aime...Moi Non Plus 	(05:30)
-02. Nathalie Et Christine Avec Les Vibrations - Kiss 	(05:12)
-03. Les Vibrations - Emmanuelle 			(03:41)
-04. Andrea E Nicole - Sa Prima Volta 			(03:57)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F48589D2A95E0BE1E37403FDD19B7A034BFD5261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 214614   (1030578) от 18.02.2021
-
-VA - Cosmic Chill Lounge Vol.1-4 (2007-2010) [FLAC|Lossless|image + .cue] <Chillout>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man Behind C. feat. Miriam - See You Again 	(06:08)
-02. Magica Fe - Words					(06:47)
-03. Soulcraft feat. Jill Noom - Rain In My Hair		(05:34)
-04. Sine - Always					(05:03)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 04:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9092AF1C9FFEC87046D39C28CAAFAEBFD474F521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288278   (1030576) от 18.02.2021
-
-Harry Holland ‎– Superhits '85 Im Magic Accordion-Sound (1985) [FLAC|Lossless|image + .cue] <Instrumental, Accordion>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Magdalena 		   (04:15)
-02. You can win if you want 	   (03:25)
-03. Die Glocken von Rom 	    	   (03:12)
-04. Spanish Eddie 		   (03:42)(   Читать дальше...   )Жанр: Instrumental, AccordionПродолжительность: 00:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:964F111ABE7009748ACAB5B7FA0B70D7572C480A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621134   (1030509) от 27.03.2023
-
-VA - Mystera IX (2002) [OGG Vorbis|480 Kbps] <Downtempo, Synth-pop, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Era - Divano
-02. Vangelis - Light And Shadow
-03. Highland - Quo Vadis
-04. Oliver Shanti & Friends - Journey To Shambala(   Читать дальше...   )Жанр: Downtempo, Synth-pop, AmbientПродолжительность: 01:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B02B8AC6D07218B7F039AB4FD84BFC1F036D4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622038   (1030508) от 27.03.2023
-
-VA - Mystera V (2000) [OGG Vorbis|480 Kbps] <Electronic, New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigma - Gravity Of Love
-02. Highland - Bella Stella (Non Rap Radio Mix)
-03. Clannad - Ri Na Cruinne
-04. Michael Flatley's Lord Of The Dance - The Lord Of The Dance(   Читать дальше...   )Жанр: Electronic, New Age, AmbientПродолжительность: 01:20:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE7221D496B8DB0B1DE0BBE26D7454D9BED1E6E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621122   (1030497) от 27.03.2023
-
-VA - The Best Of Mystera (2001) 2 CD [OGG Vorbis|480 Kbps] <New Age, Synth-pop, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Era - Ameno
-02. Enigma - Sadness Part 1
-03. Highland - Veni, Vedi, Vici
-04. Vangelis - Conquest Of Paradise(   Читать дальше...   )Жанр: New Age, Synth-pop, AmbientПродолжительность: 02:22:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD6924DC8D258F964F36CCA3EBCBEFC307301106
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357836   (1030410) от 19.02.2021
-
-Markus Klepper - Akkordeon Classics (2000) [FLAC|Lossless|image + .cue] <Classical, Akkordeon>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chopinianas, for accordion, Mazurka in A flat minor	(03:11)
-02. Chopinianas, for accordion, Mazurka in A major	(02:41)
-03. Chopinianas, for accordion, Mazurka in E major	(02:34)
-04. Chopinianas, for accordion, Mazurka in G major	(03:20)(   Читать дальше...   )Жанр: Classical, AkkordeonПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA72A07A8599DA516A80B7C8C4F5E34185B67158
 ```
 
 https://mybot314.ru/tekegram_catalog/

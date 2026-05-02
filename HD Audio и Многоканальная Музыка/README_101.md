@@ -1,3 +1,177 @@
+###  Публикация: 1703278   (115217) от 28.02.2024
+
+Viktoria Mullova, Tchaikovsky / Sibelius, Boston Symphony Orchestra, Seiji Ozawa - Violin Concertos • Violinkonzerte (1985) SACD, 2022, Decca Classics [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Classica ...
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115217.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tchaikovsky - Violin Concerto in D Major, Op. 35, TH 59
+01. I. Allegro moderato (18:13)
+02. II. Canzonetta. Andante (6:03)
+03. II. Finale. Allegro vivacissimo (9:54)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:06:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEE03D34F0F60C29B49CC3136D1D0F6D55D3AEC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703178   (115170) от 28.02.2024
+
+Puddle of Mudd - Studio Albums (8 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Hard Rock, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Puddle of Mudd — американская рок-группа, сформированная в Канзас-Сити, штат Миссури в 1992 году.1994 - Stuck (EP)
+2002 - Come Clean
+2003 - Life On Display
+2007 - FamousЖанр: Post-grunge, Hard Rock, Nu MetalПродолжительность: 06:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E656F305261954EE47E70024E8270AEC3DC6048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703111   (115160) от 28.02.2024
+
+Benny Andersson - Piano (2017) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.I Let The Music Speak
+2.You And I
+3.Aldrig
+4.Thank You For The Music(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:16:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1933138BCFA8530AB7FA82BD879F6B4FD7C27EFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703344   (115151) от 28.02.2024
+
+Ace Frehley - 10,000 Volts (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - 10,000 Volts [3:25]
+02 - Walkin’ on the Moon [3:45]
+03 - Cosmic Heart [3:54]
+04 - Cherry Medicine [3:40](   Читать дальше...   )Жанр: Hard Rock, RockПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6C0AEF753DE745309D3794208398884605637C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703238   (115066) от 29.02.2024
+
+2 Unlimited - No Limits (1993) [FLAC 24/192|Lossless|tracks] <Eurodance, Euro House, Techno>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115066.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 No Limit
+2 Tribal Dance
+3 Mysterious
+4 Where Are You Now(   Читать дальше...   )Жанр: Eurodance, Euro House, TechnoПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEBC3B58AD6E6DB9FE834D19748206D60A2985E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703061   (115057) от 29.02.2024
+
+VA - Улетай, туча (1980) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115057.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 сторона
+01 - Олимпиада-80 (6.23) Д. Тухманов — Р. Рождественский
+Тынис Мяги
+02 - Крестики-Нолики (2.38) В. Баснер — М. Матусовский(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE8F59E82977F9DAFDAD4667A396FE78773272E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703213   (115049) от 29.02.2024
 
 «Рок-Ателье» Криса Кельми - Мы знаем (1988) [FLAC 24/192|Lossless|tracks] <Rock>
@@ -571,180 +745,6 @@ Side One.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4ED4D581A5C263E8B86E37D92F8FEFEFFD39D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703799   (114803) от 01.03.2024
-
-Blind Channel - Exit Emotions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, Alternative Rock, Rap Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Where'S The Exit [2:38]
-02 - Deadzone [2:51]
-03 - Wolves In California [2:42]
-04 - Xoxo [2:54](   Читать дальше...   )Жанр: Nu Metal, Alternative Rock, Rap MetalПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DB484FB4F9F2A40DFE24100F6CF4FFF459EA09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703767   (114799) от 01.03.2024
-
-Asher Monroe - Songs of the Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pure Imagination [00:01:56]
-02. Over the Rainbow [00:04:36]
-03. Nature Boy [00:04:58]
-04. Unchained Melody [00:03:44](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DD106D39D278275E74BF9ED1556FA1403B55EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703657   (114793) от 01.03.2024
-
-Liv Kristine - Deus ex Machina (1998) Remastered, 2024, Metalville [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic rock, synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Heart of Juliet (Forever Mix (Remastered)) (5:01)
-02. Huldra Part II (Remastered) (3:07)
-03. Good Vibes Bad Vibes (Dance on the Ocean Mix (Remastered)) (6:22)
-04. 3 a.m. (Late Night Version (Remastered)) (5:03)(   Читать дальше...   )Жанр: Gothic rock, synthpopПродолжительность: 01:59:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E8DFB22826DAB89DD0E57E3A80F3847F9BF7EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703790   (114792) от 01.03.2024
-
-Jacob Collier - Djesse Vol. 4 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 100,000 Voices [00:04:44]
-02. She Put Sunshine [00:03:30]
-03. Little Blue [00:04:25]
-04. WELLLL [00:02:38](   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8254C200CAAA233BADC4E8D4F90A192C4A068A71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703666   (114791) от 01.03.2024
-
-Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless|tracks] <Hard-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Blue Moon (Larsson–Hjalmarsson)
-02. Can’t Get You Out Of My Mind (Larsson–Hjalmarsson)
-03. Dance, Dance (Larsson–Hjalmarsson)
-04. Hey Bulldog (Lennon–McCartney)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65453187EE9F0473BB4082D16DE905E72E562239
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703916   (114698) от 02.03.2024
-
-Nirvana - Studio Albums (5 releases) (1989-1994) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Grunge, Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114698.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nirvana — американская рок-группа, созданная вокалистом и гитаристом Куртом Кобейном и басистом Кристом Новоселичем в Абердине, штат Вашингтон, в 1987 году. В составе коллектива сменились несколько барабанщиков; дольше всех с группой играл ударник Дэйв Грол, присоединившийся к Кобейну и Новоселичу в 1990 году.1989 - Bleach
-1991 - Nevermind
-1992 - Incesticide
-1993 - In Utero(   Читать дальше...   )Жанр: Grunge, Punk RockПродолжительность: 04:15:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A87467B8D4A96BE9606020ADC1F5EF02C25CC2
 ```
 
 https://mybot314.ru/tekegram_catalog/

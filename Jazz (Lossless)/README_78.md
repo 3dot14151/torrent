@@ -1,3 +1,61 @@
+###  Публикация: 1205072   (784109) от 08.02.2018
+
+Joe Morello - Joe Morello (1961, 1962) 1989, Bluebird [FLAC|Lossless|tracks + .cue] <Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shortnin' Bread [02:10]
+02. When Johnny Comes Marching Home [06:08]
+03. Brother Jack [02:58]
+04. Every Time We Say Goodbye [03:06](   Читать дальше...   )Жанр: Cool, Hard BopПродолжительность: 01:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6093C90E42A7796CA2B8B5F5D4F2EB071749491
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205077   (784098) от 08.02.2018
+
+The George Shearing Trio with Ray Brown and Marvin "Smitty" Smith - Breakin' Out (1987) Concord [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Squeeze Me (But Don't Tease Me) [05:58]
+02. Day Dream [04:25]
+03. Hallucinations [03:55]
+04. In the Wee Small Hours of the Morning [06:00](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A03E96FBCF38F725EB4A4EAB3BC71BD3FF43589D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1389744   (783948) от 12.06.2020
 
 Benny Golson - Four Classic Albums 1957 - 1958 (2018) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -687,64 +745,6 @@ Mike Garson - Mike Garson's Jazz Hat (2008) Reference Recordings [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F28EC1362FCD2C99508A41CDB335B36C3136C2F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206522   (782144) от 14.02.2018
-
-Robert Moore - Outta My Soul (2012) 2014, Reference Recordings [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Time [03:42]
-02. Waltz for Debby [04:59]
-03. If You're Still in Love with Me [02:41]
-04. The April Fools [03:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12332AF7C8272784A0AF0218FCB20B47F3536124
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1206276   (782142) от 14.02.2018
-
-Adam Shulman Sextet - Full Tilt (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantasy in Db
-02. Lonesome Dream
-03. The Conquerer
-04. San Francisco National Cemetery(   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E051DB47CDAF2C33FD85DEC5837FAB47FC135E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

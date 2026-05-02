@@ -1,3 +1,32 @@
+###  Публикация: 1681437   (132549) от 03.12.2023
+
+VA - Romantic Relaxing and Nostalgic Blues Music (2023) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132549.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Chris Beard - All Night Long [06:16]
+002. Doug MacLeod - Mystery Woman [05:02]
+003. Mighty Sam McClain - I'm Tired of These Blues [07:00]
+004. ZZ Top - Blue Jean Blues (2005 Remaster) [04:40](   Читать дальше...   )Жанр: BluesПродолжительность: 20:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69457AB884B635D2D67E3E30F2523535EC4D0F64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682142   (130780) от 09.12.2023
 
 VA - 120 Best Slow Songs For Relax [part II] (2023) [MP3|320 Kbps] <Blues-Rock, Country, Ballad>
@@ -716,35 +745,6 @@ VA - Blues Melancholy (2024) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65D33E602DCB345AF3A0E01873232959ACCB6CC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719013   (57841) от 02.05.2024
-
-VA - Jazz Blues (2024) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57841.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. BBM - Naked Flame [06:07]
-002. Big Daddy Wilson - I'm Walking [04:17]
-003. Boney James - Solid [04:05]
-004. Dana Gillespie - Who's Got The Blues To Blame [05:04](   Читать дальше...   )Жанр: BluesПродолжительность: 12:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC71576AE6426859E7FE5CF06FD6778195E0EF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

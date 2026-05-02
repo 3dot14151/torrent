@@ -1,3 +1,32 @@
+###  Публикация: 1424140   (295444) от 15.11.2020
+
+Florian Christl - Episodes (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melodie (2:40)
+ 02. Regen Intro (1:15)
+ 03. Regen (3:13)
+ 04. Melancholie (1:27)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:47:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A57FAF7E2EC421EF29E75E04E8000E43A0DD7C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 962068   (295187) от 04.12.2015
 
 Joseph-Guy Ropartz - Symphonies Nos 2 & 5 (Sebastian Lang-Lessing & Orchestre Symphonique de Nancy) (2006) [FLAC|Lossless]<Classical, Romantic Period, Orchestral, 20th Century Period, Sy ...
@@ -713,32 +742,6 @@ New London Chorale - Christmas with the New London Chorale (1994) [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCBD34399022FFAA96CE7905D2DED9A2E1DD184F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 73873   (276069) от 26.11.2018
-
-Федор Иванович Шаляпин-Полное собрание граммофонных записей 1907-1936 гг.[2002][mp3|192]<Классическая музыка>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276069.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1Жанр: Классическая музыкаПродолжительность: 12ч:24мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F11636096599C932E19896EDD27A69DD805AAA82
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1305718   (556144) от 01.06.2019
+
+Laura Cantrell - Kitty Wells Dresses: Songs Of The Queen Of Country Music (2011) [FLAC|Lossless|tracks + .cue] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Kitty Wells Dresses  (3:26)
+02 - I Don't Claim To Be An Angel  (3:04)
+03 - Poison In Your Heart  (2:31)
+04 - One By One  (2:58)(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 00:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F245505D8414AC36A474C1CF781DED451C3599C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305571   (556142) от 01.06.2019
 
 Kacey Musgraves - Same Trailer Different Park (2013) [FLAC|Lossless|tracks] <Country, Folk>
@@ -737,35 +766,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318954   (490886) от 08.08.2019
-
-Bon Iver - i,i (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yi (00:31)
-02. iMi (03:16)
-03. We (02:22)
-04. Holyfields, (03:07)(   Читать дальше...   )Жанр: Folk-Rock, Indie FolkПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49731ADAEF42674A5B0F6BE589F178EC8E1675DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

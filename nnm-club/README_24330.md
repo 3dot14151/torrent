@@ -1,106 +1,25 @@
-###  Публикация: 1822394   (100755) от 06.10.2025
+###  Публикация: 1762954   (102881) от 28.11.2024
 
-Remigio Ducros and Luciano Simoncini - America amore amaro (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bus Stop (2:37)
-02.  Mawil (2:42)
-03.  Subways (2:19)
-04.  Magnolia Boulevard (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:31:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C78BE1AE692A1614EE2373487AA20CD2E69BE55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822393   (100754) от 06.10.2025
-
-3D print - MyMiniFactory - 55mm - Ghost Strikers - 384198 [STL]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100754.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вооружённые передовым оружием и облачённые в устрашающую броню, «Ghost Strikers» неустанно стремятся к правосудию. Известные своей безжалостной эффективностью и призрачным присутствием, эти каратели вселяют страх в сердца преступников и бандитов.Формат: STL
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55D035E4D6E96999F09530BB670E9413A96AB79F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822220   (100753) от 06.10.2025
-
-Звёзды в Джунглях (2025) WEB-DL [H.264/720p] (сезон 2, выпуск 1-2 из 15)
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100753.jpg" />
-</div>
-
-
-###  Подробнее
-
-В новом 2 сезоне звёздные участники будут выживать на Карибах в Доминиканской республике. Хотя главный фактор выживания вовсе не в месте, а в тех, кто будет рядом. В новом сезоне примут участие как новички реалити, так и те, кто уже прошёл боевое крещение и хитро улыбается при слове коалиция. Участники проходят различные испытания, в которых зарабатывают монеты на (   Читать дальше...   )Телекомпания: Россия, "План Б Медиа" по заказу ТНТ-ТелесетьЖанр: Реалити-шоуУчастники: Ася Резник, Ирина Пинчук, Аристарх Венес, Вадим Дубровин, Сергей Романович, Маша Малиновская, Екатерина Шкуро, Джефф Монсон, Альбина Кабалина, Ян ДиланСубтитры: ОтсутствуютПродолжительность: ~02:59:53 выпуск
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBD410E8F161FA5CC94513EF25EC18950310409
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822399   (100752) от 06.10.2025
-
-Richard D. Johnson - Warm Embrace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+Oz Noy Quartet - Fun One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz Fusion>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100752.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  East of the Sun (3:58)
-02.  Warm Embrace (4:45)
-03.  Moonlight In Vermont (4:28)
-04.  Ruby My Dear (7:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:34
+01. Fun One (6:05)
+02. Solar (5:52)
+03. Ruby My Dear (7:08)
+04. Wee (4:59)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:54:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3CB161B0E6AD51560477C8D27927E832A7EACF83
+magnet:?xt=urn:btih:C77A80B559194CF02B744680624A01C6868E47B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +27,339 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822404   (100751) от 06.10.2025
+###  Публикация: 1763110   (102880) от 29.11.2024
 
-Riot Jazz Brass Band - Ginja (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Спортинг (Португалия) - Арсенал (Англия) (26.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Спортинг (Португалия) - Арсенал (Англия) (26.11.2024)
+СУДЬЯ Марциняк Шимон (Плоцк, Польша)
+СТАДИОН «Жозе Алваладе» (Лиссабон) Зрителей: 47386Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:431822628037DA98D8F3098ED00E957B32821808
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763124   (102879) от 29.11.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Динамо (Загреб, Хорватия) - Боруссия (Дортмунд, Германия) (27.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Динамо (Загреб, Хорватия) - Боруссия (Дортмунд, Германия) (27.11.2024)
+СУДЬЯ Тюрпен Клеман (Улинс, Франция)
+СТАДИОН «Максимир» (Загреб)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C558DD459D16FEDE6ED45532819C93B11CD049F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763132   (102878) от 29.11.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Монако (Франция) - Бенфика (Португалия) (27.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Монако (Франция) - Бенфика (Португалия) (27.11.2024)
+СУДЬЯ Обренович Раде (Словения)
+СТАДИОН «Луи II» (Монако) Зрителей: 13581Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82E797DC3E93F2195BF33B95411875B87EADCDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763096   (102877) от 29.11.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Слован (Словакия) - Милан (Италия) (26.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й.  Слован (Словакия) - Милан (Италия) (26.11.2024)
+СУДЬЯ Санчес Мартинес (Лорка, Испания)
+СТАДИОН «Тегельне поле» (Братислава)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E31875B83254EC712E5F2C599BA195EFA39BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763099   (102876) от 29.11.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Бавария (Германия) - ПСЖ (Франция) (26.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Бавария (Германия) - ПСЖ (Франция)  (26.11.2024)
+СУДЬЯ Ковач Иштван (Румыния)
+СТАДИОН «Альянц Арена» (Мюнхен) Зрителей: 75000Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:54:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6677432116B9820FA57C2A7A677F7A36FC97A7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763133   (102875) от 29.11.2024
+
+Fish On Friday - 8mm (2023) [FLAC|Lossless|image + .cue] <Progressive Rock, Crossover Progressive>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 8MM
+02. Collateral Damage
+03. Overture To Flame
+04. Flame(   Читать дальше...   )Жанр: Progressive Rock, Crossover ProgressiveПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51C64E4A03264E79F8407B4AC230EBA335A7974
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762949   (102874) от 29.11.2024
+
+Тайны Затмения - 3 Альбома (2005-2010) [APE|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайны затмения (3:59)
+02. Источник власти (5:21)
+03. Эвридика (4:28)
+04. Травник (4:38)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D016AA77A015918553782636A04C120D3DEE0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763128   (102873) от 29.11.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. ПСВ (Нидерланды) - Шахтёр (Украина) (27.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. ПСВ (Нидерланды) - Шахтёр (Украина) (27.11.2024)
+СУДЬЯ Шнайдер Урс (Швейцария)
+СТАДИОН «ПСВ» (Эйндховен)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0419C3061BE23D724D0A967F49AD9E69FC7D4C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763144   (102872) от 29.11.2024
+
+Markus Schulz - Global DJ Broadcast Dream Sequence (Uplifting Trance Mix) (2024-11-28) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tastexperience - Closer (Traveller Mix)
+02. Daxson & Numa - Peaks & Valleys
+03. Novaspace - Cygnus (Dan Thompson Remix)
+04. Spektre vs. Bryan Kearney - Remember the Future(   Читать дальше...   )Жанр: TranceПродолжительность: 02:01:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86CD8DAF16C79BF04DCAAAB2DCC933523CED809C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763134   (102871) от 29.11.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Болонья (Италия) - Лилль (Франция) (27.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Болонья (Италия) - Лилль (Франция) (27.11.2024)
+СУДЬЯ Оливер Майкл (Нортумберленд, Англия)
+СТАДИОН «Ренато Даль Ара (Литториале)» (Болонья) Зрителей: 22420Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:41:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C605B86AB807AE54A33D68599FCCCBCCE5D31E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763121   (102870) от 29.11.2024
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й.  Ливерпуль (Англия) - Реал (Мадрид, Испания) (27.11.2024) HDTVRip [H.264/1080p]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Ливерпуль (Англия) - Реал (Мадрид, Испания) (27.11.2024)
+СУДЬЯ Летексье Франсуа (Франция)
+СТАДИОН «Энфилд» (Ливерпуль)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04A885D116AD947F9150F8E75CBB3201A50FA9B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763052   (102869) от 29.11.2024
+
+Bullet For My Valentine - The Poison (20th Anniversary Edition) (2006) Remaster, 2024, Sony Music Entertainment [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Heavy Metal, Metalcore>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Ginja (3:00)
-02.  Paradox (3:43)
-03.  Frisky (3:00)
-04.  Soundwave (3:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:45
+01 - Intro (Live at Brixton) [0:15]
+02 - Her Voice Resides (Live at Brixton) [4:21]
+03 - 4 Words (To Choke Upon) (Live at Brixton) [3:42]
+04 - Suffocating Under Words Of Sorrow (What Can I Do) (Live at Brixton) [3:45](   Читать дальше...   )Жанр: Rock, Heavy Metal, MetalcoreПродолжительность: 02:16:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CE841E62C6303B2C511D7C99D1F6E6FFDBB887E6
+magnet:?xt=urn:btih:3941C27BD2F7C36177BAE2E5AAF91E104B64CFF4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +367,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822409   (100750) от 06.10.2025
+###  Публикация: 1763013   (102868) от 29.11.2024
 
-Sam Siefert Ensemble Project - Realization (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
+VA - Armin van Buuren - A State Of Trance 1201 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren & Moby – Extreme Ways (Tune Of The Week)
+02. John Grand X Sendr – Don’t Stop
+03. Ferry Corsten & 22Bullets ft. Couché – Belong To You
+04. Kadett – Overdrive (Progressive Pick)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DB0AFD6110BE43ACFB223C4082F5E46C33440A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762893   (102867) от 29.11.2024
+
+Storm Inside - Фрагменты прошлой жизни (2023) [FLAC|WEB-DL|Lossless|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102867.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Планеты (00:04:03)
+✧ 02 - Достать до звёзд (00:03:17)
+✧ 03 - Сквозь сотни ветров (00:03:39)
+✧ 04 - В океане (00:03:09)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:47:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CFEDCF1FFB88250F5DFBFA706291F48C8C10C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762479   (102866) от 29.11.2024
+
+Eihwaz - AmadeuS (2012) [FLAC|Lossless|image + .cue] <Symphonic Metal, Power Metal>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Intro (02:02)
+02 - Delusion (04:50)
+03 - Ангелы (05:37)
+04 - The Heart Of The World (04:43)(   Читать дальше...   )Жанр: Symphonic Metal, Power MetalПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E388257563C8A8E8ED32C86D9015FFF2B8EE8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763030   (102865) от 29.11.2024
+
+Konkhra - Sad Plight of Lucifer (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Death Metal>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102865.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Mirrored (3:03)
-02.  Despite Everything (5:59)
-03.  Facing the Opposite (5:20)
-04.  March for Peace (8:26)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:57:37
+01. Sad Plight of Lucifer (4:30)
+02. Revolution (3:41)
+03. Seven Plagues (5:38)
+04. Nothing Can Save You (4:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA8FEDD59FBE479B87A85B9269E6ACD31997FE07
+magnet:?xt=urn:btih:82DC85371E712120A7090E2D3E5737AEB9B38E2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +483,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822412   (100749) от 06.10.2025
+###  Публикация: 1763076   (102864) от 29.11.2024
 
-Schlussakkord - Drehbuch (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Bobby Hutcherson - Skyline (1999) Verve Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100749.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102864.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Intro (2:11)
-02.  Wir sind wieder da (3:34)
-03.  Kein Weg zu lang (3:03)
-04.  Für immer verbunden (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:10
+01. Who's Got You? [7:30]
+02. I Only Have Eyes for You [6:45]
+03. Delilah [6:30]
+04. Chan's Song [5:23](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:58:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:521A684D362C45934A71091E23E765450F85DB2B
+magnet:?xt=urn:btih:10B79574032090666674CC226313792E4232B11F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +512,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822414   (100748) от 06.10.2025
+###  Публикация: 1763098   (102863) от 29.11.2024
 
-Smokey Brights - Dashboard Heat (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Спарта (Чехия) - Атлетико (Мадрид, Испания) (26.11.2024) HDTVRip [H.264/1080p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102863.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Northgate Way (4:05)
-02.  Never Hurts Never Mind (4:07)
-03.  All in Who You Know (3:32)
-04.  Peace Sign Pentagram (4:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:45
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Спарта (Чехия) - Атлетико (Мадрид, Испания) (26.11.2024)
+СУДЬЯ Маккели Данни (Нидерланды)
+СТАДИОН «Генерали Арена (Летна, Тойота)» (Прага)Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:42:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92E0F5D9504FF523A789B8519238CD47EFEE9DED
+magnet:?xt=urn:btih:D58A67D79051670ABCDF5FBA6F3174309858F933
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,25 +540,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822416   (100747) от 06.10.2025
+###  Публикация: 1763017   (102862) от 29.11.2024
 
-Дополнения - Blender Addons Bundle 1 October 2025 [ZIP]
+Steel Inferno - Rush Of Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
 
->>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102862.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пакет дополнений для Blender на 1 октября 2025 г.Формат: ZIP
+1. The Abyss
+2. Cut Down By The Chainsaw
+3. Hunt The Rush
+4. Power Games(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:062E752B741A81597950CD1F3B7D93AF3E46900E
+magnet:?xt=urn:btih:3785F5C10143B50B71B8A230E0F2E3E47385BEC5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,28 +569,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822418   (100746) от 06.10.2025
+###  Публикация: 1763032   (102861) от 29.11.2024
 
-Sophia Oster Quartet - Praise (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+Konkhra - Sad Plight of Lucifer (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102861.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Praise / Strong Woman (9:35)
-02.  Freedom Song (4:54)
-03.  Woodstock / Go (7:48)
-04.  No Mind (6:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:09
+01. Sad Plight of Lucifer (4:30)
+02. Revolution (3:41)
+03. Seven Plagues (5:38)
+04. Nothing Can Save You (4:25)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:46:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1137566A863DA2F584A29CB23FBBC3CBD3BC9DBC
+magnet:?xt=urn:btih:FEDCBDC25F207417820D12661E1FB8FCC4F31AB1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,28 +598,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822419   (100745) от 06.10.2025
+###  Публикация: 1763103   (102860) от 29.11.2024
 
-Soul City Collective - Soul City Collective (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Интер (Италия) - Лейпциг (Германия) (26.11.2024) HDTVRip [H.264/1080p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Soul Brass (3:22)
-02.  CITY COLLECTIVE (3:10)
-03.  Piano Strumming (3:11)
-04.  Da Simplicity (3:03)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:21:36
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Интер (Италия) - Лейпциг (Германия) (26.11.2024)
+СУДЬЯ Пиньейру Жоау (Португалия)
+СТАДИОН «Джузеппе Меацца (Сан-Сиро)» (Милан) Зрителей: 63174Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:43:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B77F81635E1B112F2C6D6E1B8139BCDDC3207DEA
+magnet:?xt=urn:btih:6DC5DE9D9E8A98C3698F5E93D9BC898B5A248239
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,25 +626,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822420   (100744) от 06.10.2025
+###  Публикация: 1763109   (102859) от 29.11.2024
 
-Цветок 1001 ночи / Il fiore delle mille e una notte (1974) BDRip [H.264/720p]
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Байер (Германия) - Зальцбург (Австрия) (26.11.2024) HDTVRip [H.264/1080p]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102859.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом фильме, вдохновлённом древними эротическими и волшебными сказками Ближнего Востока, центральный сюжет посвящён застенчивому юноше, который влюбляется в прекрасную девушку. Но из-за глупой ошибки, судьба их разлучает. И юноша отправляется на поиски, чтобы найти возлюбленную и освободить её от демонов... Фильм состоит из 15 частей, содержащих отдельные истории (   Читать дальше...   )Производство: Италия, Франция / Les Productions Artistes Associes, Produzioni Europee Associati (PEA)Жанр: фэнтези, драма, мелодрама, комедия, историяРежиссер: Пьер Паоло ПазолиниАктеры: Нинетто Даволи, Франко Читти, Тесса Буше, Маргарет Клементи, Инес Пеллегрини, Франко Мерли, Франкелис Ноэль, Али Абдулла, Кристиан Алигни, Жанна Гоффин МатьеПеревод: профессиональный многоголосый (R5), авторский (Сергей Кузнецов)Язык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 02:10:39
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Байер (Германия) - Зальцбург (Австрия) (26.11.2024)
+СУДЬЯ Балакин Николай (Украина)
+СТАДИОН «БайАрена (Ульрих Хаберланд)» (Леверкузен) Зрителей: 29211Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:41:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1595BC7A574BB7FF97E75C1961A2A4AEA234B3FA
+magnet:?xt=urn:btih:0C75DC59BB9C3D2DFCF7E45BBCCD595A3C1EDD6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -334,28 +654,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822422   (100743) от 06.10.2025
+###  Публикация: 1763114   (102858) от 29.11.2024
 
-Stella Anning - Yellow Brick Veneer (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Янг Бойз (Швейцария) - Аталанта (Италия) (26.11.2024) HDTVRip [H.264/1080p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102858.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Yellow Brick Veneer (6:10)
-02.  Don't Want to Follow You (4:48)
-03.  Watching You as You Fall (4:55)
-04.  Travels (6:19)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:52:40
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Янг Бойз (Швейцария) - Аталанта (Италия) (26.11.2024)
+СУДЬЯ Лукьянчукас Манфредас (Литва)
+СТАДИОН «Стад де Суисс (Ванкдорф)» (Берн) Зрителей: 31500Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:34:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78CD0D84D1792CEA0D71AE665D84BFE769FF0D96
+magnet:?xt=urn:btih:45DD8260CB3D080778491C11FB21C560BE5C7310
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,25 +682,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 298053   (100742) от 06.10.2025
+###  Публикация: 1763116   (102857) от 29.11.2024
 
-Шрифты - Коллекция шрифтов для Photoshop [TTF]
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Црвена Звезда (Сербия) - Штутгарт (Германия) (27.11.2024) HDTVRip [H.264/1080p]
 
->>След.
->>Шрифты
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102857.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Уникальная коллекция из 9 наборов шрифтов самых различных направлений. Вы без труда сможете подобрать и шрифт для особенных случаев, и универсальный шрифт на все случаи жизни. В сборник входит множество шрифтов от пиксельных и арабских до шрифтов в виде льда и огня.Формат: TTFПоддержка кириллицы: Частичная
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Црвена Звезда (Сербия) - Штутгарт (Германия) (27.11.2024)
+СУДЬЯ Ламбрехтс Эрик (Бельгия)
+СТАДИОН «Райко Митич (Црвена Звезда)» (Белград) Зрителей: 41372Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:48:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1677BD523C8F935EEF8C5FD5389CBA386525E6A5
+magnet:?xt=urn:btih:92D4BBCA39B55688B34CF57D5F3BE67EFDC219F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,327 +710,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822425   (100741) от 06.10.2025
+###  Публикация: 1763123   (102856) от 29.11.2024
 
-The Scott Rednor Band - Where You Wanna Go (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Селтик (Шотландия) - Брюгге (Бельгия) (27.11.2024) HDTVRip [H.264/1080p]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100741.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102856.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  It's Your Life (4:03)
-02.  Where You Wanna Go (4:17)
-03.  Turn Back Time (4:01)
-04.  Come Home (3:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:09
+Футбол. Лига Чемпионов 2024-2025. Основной турнир. Тур 5-й. Селтик (Шотландия) - Брюгге (Бельгия) (27.11.2024)
+СУДЬЯ Кабаков Георгий (Болгария)
+СТАДИОН «Селтик Парк» (Глазго) Зрителей: 57456Телекомпания: OkkoЖанр: Спорт, ФутболЯзык озвучки: русскийПродолжительность: 01:37:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:39A97783A3A735CA706D5A990D88EC310B7DE453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822430   (100740) от 06.10.2025
-
-Что? Где? Когда? (2025) HDTVRip [H.264/720p] (Осеняя серия: игра 1 из 4)
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Интеллектуальная телевизионная игра, в которой команда из шести игроков, называемых «знатоками», ищет правильный ответ на любой заданный им вопрос при помощи мозгового штурма в течение одной минуты. За правильный ответ очко получает команда «знатоков», а если они дают неправильный ответ, очко начисляется их противникам. Побеждает сторона, первой набравшая шесть очков.Телекомпания: Первый HDЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: ~ 01:13:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D63AD718817DCA7B384FD6614E1644031194F9D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822435   (100739) от 06.10.2025
-
-Venna - Malik (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Yoshi’ Intro (0:40)
-02.  Numero Uno (4:13)
-03.  Myself (feat. Jorja Smith) (2:59)
-04.  Prophet (4:56)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A82C3E13681320C47998BBF2A067A1E39023D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822219   (100738) от 06.10.2025
-
-The Red Jumpsuit Apparatus - X’s For Eyes (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alt. Rock, Mall Emo>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Always The King (feat. Kellin Quinn) (3:15)
-02. - Purple Halo (3:38)
-03. - Perfection (3:19)
-04. - X’s For Eyes (2:56)(   Читать дальше...   )Жанр: Alt. Rock, Mall EmoПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53E41E1E5726D02E5139A356545E1A913C9B039A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822445   (100737) от 06.10.2025
-
-Vera Norea - Daughter of Eve (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Second Ark (4:17)
-02.  Heartsick (3:13)
-03.  Stumble Into Town (4:25)
-04.  Just Keep Playing (4:45)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763E5BC0634603B3F0E24EF674C8F0F1B1EF2609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822448   (100736) от 06.10.2025
-
-Yoav Eshed - Guitar Hearts (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sad Song For Happy Times (4:46)
-02.  Free Them (Intro) (1:20)
-03.  Free Them (7:54)
-04.  Remember That Space? (6:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CDE7D0FBD87236EAD49AC63854BD76BF754779F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822446   (100735) от 07.10.2025
-
-Kekkon Yubiwa Monogatari II | Tales of Wedding Rings Season 2 | Легенда свадебных колец [ТВ-2] [2025, TV, 1 из 13 эп.] WebRip 720p raw
-
->>Аниме с субтитрами
->>Онгоинги
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100735.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сато - старшеклассник, влюбленный в свою лучшую подругу Химэ, неземную красавицу из другого мира. Когда она возвращается на свою родину, чтобы выйти замуж, Сато не раздумывая отправляется за ней и срывает свадьбу. Химэ решает поцеловать его вместо своего жениха, что по местным законам связывает их с Сато магическими узами брака! Но она - принцесса Кольца Света, а (   Читать дальше...   )Производство: студия Staple Entertainment / ステイプルエンタテインメントЖанр: приключения, фэнтезиРежиссер: Наоя ТакасиПеревод: CrunchyRollЯзык озвучки: ЯпонскийСубтитры: Английские; РусскиеПродолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76E554BACB8EC9237303B3357ECC52EFC3A479E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 60932   (100734) от 06.10.2025
-
-(Pop) Sandra [1985-2009] [Дискография]
-
->>След.
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100734.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POPПродолжительность: 09:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25FFEF25B6C6F1004FB62E30C29E6F5412DCE36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822453   (100733) от 06.10.2025
-
-StartAllBack 3.9.16 build 5320 [Multi/Ru]
-
->>Утилиты, Офис, Интернет
->>Разное (Утилиты, Офис, Интернет)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100733.jpg" />
-</div>
-
-
-###  Подробнее
-
-StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0A3CA0B3BAF54B14D027091B87C44A670B03B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822401   (100732) от 06.10.2025
-
-Мандинго / Mandingo (1975) BDRip [H.264/1080p] [Handmade correction AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый Орлеан, 1840 год. История об отношениях на одной американской ферме. Рабы и их хозяева. Что будет, если чёрный работник влюбится в белую девушку из "приличной" семьи? Что будет, если она забеременеет от него?
-Название фильма отсылает к народу мандинка, которых называют "мандинго" и описывают как хороших рабов для проведения боевых поединков.Производство: США / Dino De Laurentiis Productions, Paramount PicturesЖанр: драма, мелодрама, историяРежиссер: Ричард ФлейшерАктеры: Джеймс Мейсон, Сьюзен Джордж, Перри Кинг, Ричард Уорд, Бренда Сайкес, Кен Нортон, Лиллиэн Хейман, Рой Пул, Чи-Ту Кумбука, Пол БенедиктПеревод: Авторский (В.Рутилов), любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английские (SRT, PGS)Продолжительность: 02:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70649A3B8174F9938045477F44EA2EA8AEB4C42F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822454   (100731) от 06.10.2025
-
-Шрифты - Rosetta Type Foundry - Skolar Sans Pan-European (PE) [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100731.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы разработали шрифт Skolar Sans, чтобы удовлетворить потребности современных типографов и справиться с трудностями, с которыми они сталкиваются: постоянно меняющимся спектром устройств и форматов, среди которых серьёзная типографика может потеряться. Шрифт Skolar Sans разработан для комфортного чтения и справляется со сложными редакционными текстами и интерфейсами (   Читать дальше...   )Формат: TTFПоддержка кириллицы: Есть
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F17E959D364E8B709567FD03DE414BCC8A5FE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822391   (100730) от 06.10.2025
-
-Into the Dead: Our Darkest Days (2025) [Ru/Multi] (0.7.2.14566) Repack Let'sРlay [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100730.jpg" />
-</div>
-
-
-###  Подробнее
-
-Into the Dead: Our Darkest Days представляет собой сайд-скроллер, посвященный выживанию в убежищах. Вам предстоит возглавить и вывести в безопасное место группу людей, уцелевших посреди зомби-апокалипсиса. Изготавливайте оружие, собирайте ресурсы, поддерживайте баланс потребностей вашей группы и постарайтесь, чтобы все выжили и спаслись!Тип издания: RepackРазработчик: PikPokЖанр: Экшены, Симуляторы, СтратегииЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04F18744D930DA7CFD3204AE76588B9E97163D94
+magnet:?xt=urn:btih:628CB31BCF0A95C3651F78E66DCAA7A9E7A26950
 ```
 
 https://mybot314.ru/tekegram_catalog/

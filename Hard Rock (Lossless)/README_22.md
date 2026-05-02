@@ -1,3 +1,119 @@
+###  Публикация: 1499859   (844629) от 04.10.2021
+
+Mainline - The Unholy Idol (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sanctum
+02. Out of the Shadows
+03. The Red Line
+04. A Distant Memory(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BBD17B3F3846D0A82EC1D6DC85DF041D51D9AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003464   (843488) от 03.04.2016
+
+Dead Bang - Dancin' On The Edge (1994) Remastered, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843488.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dancin' On The Edge
+2. Take It All
+3. Shoot It Down
+4. Satisfaction(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E7A3488F1F2C58867B39E314153EE5343E4C58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003411   (843406) от 03.04.2016
+
+Rage Of Angels - The Devils New Tricks (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R.O.A (7:30)
+02. All Your Own Way (6:01)
+03. The Devil's New Tricks (5:46)
+04. One Step Closer (5:36)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:06:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6026B4BAB9F759B807B12B15C13C38A61ECE418
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003613   (843210) от 03.04.2016
+
+Bonfire - Pearls (2016) 2CD [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Strike Back
+02. Under Blue Skies
+03. Diamonds in the rough
+04. Proud of My Country(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:909D1514D329F62B2A8FFCB1140EB5BF3E0BCBF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500028   (842817) от 05.10.2021
 
 Secret Alliance - Revelation (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
@@ -632,122 +748,6 @@ Kingdom Come (Lenny Wolf,  Stone Fury: pre-Kingdom Come) - 19 Albums, 1 Box Set 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8016EAE9DE594350442EAB922DD18017C067128
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502638   (826939) от 15.10.2021
-
-Frank Marino - Full Circle (1986) [FLAC|Lossless|tracks + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826939.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Breakin' Away
-2. Imagine
-3. When Love Is Lost
-4. Razor's Edge(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3A16B4900C0B6944EB03254B3B0AD8F6288BDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115837   (824967) от 19.03.2017
-
-Scarlet Rain - Eleventh Hour (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fall (4:38)
-02. Beyond The Sky (5:56)
-03. Nameless (5:30)
-04. Adamante (4:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49CC6FE0D58DCE8CCB704181628CD85457F4CA2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502574   (824942) от 16.10.2021
-
-Wicked Smile - Wait For The Night (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824942.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Date With The Devil
-02. Wait For The Night
-03. We Fall
-04. Sign Of Times(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E871543A997528B18107B8E36DA6F3E3D4BD569
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502609   (824940) от 16.10.2021
-
-Alcatrazz - V (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_824940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Guardian Angel
-02. Nightwatch
-03. Sword Of Deliverance
-04. Turn Of The Wheel(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:830178860AA6A584D84ED2C907EAB637CC014EDD
 ```
 
 https://mybot314.ru/tekegram_catalog/

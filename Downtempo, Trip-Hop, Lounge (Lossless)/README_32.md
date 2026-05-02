@@ -1,3 +1,119 @@
+###  Публикация: 1759775   (103230) от 10.11.2024
+
+VA - La Isla Del Sol, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Steen Thottrup - Diversities (04:11)
+ 02 - Calmabohain - Calma (On The Beach Mix) (03:08)
+ 03 - San Dakla - Rainy Day (Smooth Mix) (03:23)
+ 04 - Zara Mailo - Taj (05:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60A4235696334A3BFFA128D19186408FC6AFBDFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762693   (102905) от 26.11.2024
+
+Black Shaman - Black Shaman (2020) [FLAC|Lossless|Web-DL|tracks] <Dark Chill, Downtempo, Dark Jazz>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plug Out (3:49)
+02. Inedit Time (4:22)
+03. Liturgy (5:40)
+04. Gold Silence (4:29)(   Читать дальше...   )Жанр: Dark Chill, Downtempo, Dark JazzПродолжительность: 00:34:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1F810D55F3EC76B43946184960C25018440B27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764395   (102703) от 07.12.2024
+
+Moby - always centered at night - remixes (2024) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102703.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - should sleep (Prins Thomas diskomix) [5:20]
+02 - precious mind (cassette remix) [5:05]
+03 - dark days (Vanco remix) [6:46]
+04 - dark days (Undercatt remix) [4:30](   Читать дальше...   )Жанр: Downtempo, Ambient, ElectronicПродолжительность: 05:15:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B3836AB9D2D25EE5DA6D7EB689CFA03F810618
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822594   (101681) от 07.10.2025
+
+Tricky & Marta - Out the Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Trip-Hop, Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101681.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Dance [00:02:48]
+02. Out The Way [00:04:08]
+03. Leave The Lights [00:02:45]
+04. Surface [00:03:30](   Читать дальше...   )Жанр: Trip-Hop, ElectronicПродолжительность: 00:28:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EF5120EFF18EA1087818546D2FF6767CBCBF19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764448   (101547) от 07.12.2024
 
 Seekae - The Worry (2014) 10th Anniversary Edition, 2024, Future Classic [FLAC|Lossless|WEB-DL|tracks] <IDM, Experimental, Downtempo>
@@ -654,122 +770,6 @@ VA - Chillout & Lounge Moods (2025) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0697BAD9124EC25BF6166BD77FB135741479CD72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783689   (69755) от 07.03.2025
-
-VA - Venice Piano Sonata: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holly Jones - Jellies (2:45)
-02. Bob Yonker - The Third Day Dawns (4:11)
-03. Eric Bikales - Reasoning with the Wind (3:37)
-04. Robin Spielberg - Love Story Theme (Where Do I Begin) (5:05)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1F83EBA65B6E9A29FCFCC7ACF6E9818C0124EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783914   (69681) от 08.03.2025
-
-VA - Ease & Flow: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gian Delly - Wonder Why (3:51)
-02. Beamy - Breakwater (5:27)
-03. Demarco Project, Isa Tatagiba - Flores Do Jardim (4:47)
-04. Cj Arthur, ART DEI - I Read Your Thoughts (2:44)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D95D4FF7A24A86097A92B1F416B954ABD68381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783977   (69676) от 08.03.2025
-
-VA - City Skyline: Chillout Your Mind (2025) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Unimaginable (5:25)
-02. Lennart Richter - Sunset Drift (Original Mix) (3:30)
-03. Eddie Silverton - When Everyone (5:49)
-04. Schwarz & Funk - Paresse (Original Mix) (5:45)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:13:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4636CB6C06CFFD70B4AD0FD21BA3E3541ACE1623
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785353   (69379) от 15.03.2025
-
-V.A. - Buddha-Bar XXVII (2025) 2CD [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69379.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. EASTERN WIZARD – Le Baiser Du Sorcier
-02. Orange Blossom – Alsira
-03. Mashti & Adam Dreisler – Maine Pyaar Kiya(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill Out, Trip Hop |Продолжительность: 02:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5117293465B2E5116004BE9B410955D9B83F58A
 ```
 
 https://mybot314.ru/tekegram_catalog/

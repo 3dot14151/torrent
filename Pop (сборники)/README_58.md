@@ -1,3 +1,125 @@
+###  Публикация: 518157   (643505) от 03.07.2012
+
+VA - Звездные хиты от Europa plus (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643505.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лавика - Все В Моей Душе (3:40)
+2. Lmfao Feat. Lauren Bennett & Goon Rock - Party Rock Anthem (4:33)
+3. Madonna - Masterpiece (4:01)
+4. Женя Вилль - Ты Для Меня (4:11)
+5. The Cats - Пополам (4:02)
+6. Анастасия Приходько - Романс (3:10)
+7. Елена Терлеева - Просто (5:20)
+8. 140 Ударов В Минуту - На Расстояни Дыхания (Light) (3:42)
+9. Cher - Strong Enough (Dj Ozeroff & Dj Sky Feat. Lebedev Radio Remix) (3:20)
+10. Диана Гурцкая - Забываю Тебя (3:46)Жанр: PopПродолжительность: 06:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB76FA309D663DA702DF7E5F165AA4B46CF67924
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906514   (643406) от 09.06.2015
+
+Kylie Minogue - Super Hits Collection (2015) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cant Get You Out Of My Head
+02. Spinning Around
+03. I Should Be So Lucky
+04. Love At First Sight(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AA4CD021E43388FF5C95B838720929059F763F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292845   (643303) от 31.03.2019
+
+VA - Top 50 Party Schlager Charts 01.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrea Berg - Mosaik
+02. Kerstin Ott - Regenbogenfarben
+03. Maite Kelly - Heute Nacht für immer
+04. Roland Kaiser - Stark(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F539AB26A3921B207B2FE4477C91AE05AB1BF57F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292763   (643293) от 31.03.2019
+
+VA - Stars Dance 2 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunset Neon - Kiss (3:10)
+02. Turbotronic - Disco Night (Original Mix) (3:52)
+03. David Guetta feat. Jess Glynne & Stefflon Don - She Knows How To Love Me (3:02)
+04. Sultan + Shepard feat. Nadia Ali & Iro - Almost Home (3:39)(   Читать дальше...   )Жанр: Pop, Dance, Euro-HouseПродолжительность: 02:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA5E5C9CE79EA527A8872D84558D9098656D29D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518410   (643053) от 03.07.2012
 
 VA - Дискотека Руки Вверх 18 (2012) [MP3|320 кб/с]<Pop>
@@ -644,122 +766,6 @@ VA - Maxweb Dance (2017) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF4EB1523205F720CD538806D330D83DC233F20A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293337   (637274) от 03.04.2019
-
-VA - This Merry Planet: Super Rare Disco Vol.1 (2019) [MP3|320 Kbps] <Disco, Funk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01.Neil Cloud - Time Of The Season (TK 12'' Vocal)(1979) (00:07:16)
-02.Destination - The Beginning (1979) (00:03:50)
-03.A.D. - Return Of Vader (1978) (00:09:40)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 02:29:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920A591C2B15F74A6221CDE255EB78625446C1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293309   (637134) от 03.04.2019
-
-VA - Capriccio All’italiana: Italian Hit Parade Vol.01-30 (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Zucchero  -  Baila (Sexy Thing)  4:08
-02.  Raffaella Carra  -  Tanti Auguri (Com'e Bello Far L'amore)  3:53
-03.  Umberto Tozzi  -  Al Sud  5:12
-04.  Serena Rizzetto  -  E Tutto Un Attimo  3:17(   Читать дальше...   )Жанр: PopПродолжительность: 67:32:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1FE9C388CD15C91CE39E5394F6976DEEEF84DD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143422   (636942) от 17.06.2017
-
-VA - German Top 100 Single Charts 16.06.2017 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636942.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Luis Fonsi - Despacito (feat. Daddy Yankee)
-002. Robin Schulz - OK (feat. James Blunt)
-003. David Guetta - 2U (feat. Justin Bieber)
-004. Imagine Dragons - Thunder(   Читать дальше...   )Жанр: PopПродолжительность: 05:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2DDA578ECD8215EA9D7EC167A1F4F6B9BC28B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033747   (636031) от 12.07.2016
-
-VA - Едем На Моря Vol.2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Женя Mad Feat. Katya Tu - Только Пой
-02. Geo Da Silva - I Love U Baby
-03. Andrea Bocelli & Ariana Grande - E Piu Ti Penso
-04. Coldplay - Adventure Of A Lifetime(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:418AC19D95B28199A96E9273A6DE0F937D35C6FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

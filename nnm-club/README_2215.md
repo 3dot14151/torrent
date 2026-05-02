@@ -1,25 +1,25 @@
-###  Публикация: 1482491   (1007465) от 09.07.2021
+###  Публикация: 1480288   (1009047) от 28.06.2021
 
-Spearfish - The English Project (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+Bobby Shock - Street Angels (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007465.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Never Happen To Me (feat. Jon English)
-02. Wheels Keep On Turning (feat. Bernie Torme & Pontus Snibb)
-03. Crossing Lines (feat. John Lawton)
-04. Six Ribbons (feat. Dan McCafferty)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:01
+01. Street Angels (20:01)
+02. It's Gonna Shake You Up (04:16)
+03. I Quit My Job (03:22)
+04. Sidewalk Surfin' (07:01)(   Читать дальше...   )Жанр: Psychedelic Rock, Progressive RockПродолжительность: 00:41:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:409F3E2C9C13EF12F37AB3570F9171689296CCBF
+magnet:?xt=urn:btih:56F06995E493FF61A6B798369A2D6CC578E0AB4B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,54 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482680   (1007464) от 09.07.2021
+###  Публикация: 1480347   (1009046) от 28.06.2021
 
-Eluvium - For Thousands Of Miles (2021) [FLAC 2.0|48/24|tracks|WEB-DL] <Ambient, Drone>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Open (06:53)
- 02. Currents (07:08)
- 03. Movements (04:13)
- 04. Small Positives (05:28)(   Читать дальше...   )Жанр: Ambient, DroneПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:247A035CDC591A7D47D8AD15805E7357240C42F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482695   (1007463) от 09.07.2021
-
-Neural Mix Pro 1.1 [En]
+BetterZip 5 v5.1.1 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007463.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Добро пожаловать в Neural Mix ™ Pro, музыкальный проигрыватель и редактор на базе искусственного интеллекта для продюсеров, ди-джеев и музыкантов. Вы можете создавать «петли» с точным ритмом, изменять темп и транспонировать тональность песни, при этом удаляя вокальные, ударные или гармонические партии в реальном времени. Усовершенствованный автономный экспорт позволяет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.07.2021Разработчик: algoriddim GmbHПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+Если на жестком диске есть данные, которые используются редко, в целях экономии дискового пространства имеет смысл упаковать такие файлы и папки в архивы. Для этой цели необходимо воспользоваться программой архиватором, например, утилитой BetterZip.
+Приложение позволяет сжимать данные, используя разные алгоритмы упаковки, уменьшая при этом исходный размер файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 24.06.2021Разработчик: MacItBetterПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE050BC5F35F4AF8E0437C040B16881E272714B4
+magnet:?xt=urn:btih:5D09AFDDF49B1B74FE79A8F5324DF58703FF90F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,24 +54,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482671   (1007462) от 09.07.2021
+###  Публикация: 1480515   (1009045) от 28.06.2021
 
-Inkipak - Inkipak (2021) Mighty Force [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Breaks, Electro, Acid>
+Gabor Lesko - Velvet (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz , Fusion>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007462.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009045.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Eight Thirty Seven (08:34)
- 02. Fragment (06:48)
- 03. Unobtainable (06:00)
- 04. Live In Hope (05:39)(   Читать дальше...   )Жанр: IDM, Breaks, Electro, AcidПродолжительность: 01:16:16
+01. Velvet (00:03:29)
+02. Guantanamera (00:03:33)
+03. Riding Your Life (00:04:07)
+04. Toy Soldier (00:03:31)(   Читать дальше...   )Жанр: Jazz , FusionПродолжительность: 00:49:07
 
 ## Скачать торент
 ```bash
@@ -111,25 +83,168 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482699   (1007461) от 09.07.2021
+###  Публикация: 1480308   (1009044) от 28.06.2021
 
-4K Stogram Pro for Mac 3.4.2 [Multi/Ru]
+Класы духовные (изд.) | Да увижу вас всех в раю! Румынский старец архимандрит Клеопа Илие (2010) [PDF, DJVU]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Настоящая книга посвящена одному из наиболее почитаемых румынских старцев, архимандриту Клеопе Илие, известному не только у себя на родине, но и во всём православном мире. Описание его молитвенных и постнических трудов, отшельнической жизни в лесу похоже на житие древнего святого, но отец Клеопа — наш современник. Своими духовными подвигами он стяжал главную из христианских (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480215   (1009043) от 28.06.2021
+
+V.A. - Satisfaction Guaranteed! Motown Guys 1961-69 (2014) [FLAC|Lossless|tracks + .cue] <Funk ,  Soul>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bobby Taylor & The Vancouvers - Satisfaction Is Guaranteed
+02. Marv Johnson - Safety Zone
+03. Johnny Bristol - Tell Me How To Forget A True Love
+04. The Hit Pack - Show Me You Can Dance(   Читать дальше...   )Жанр: Funk ,  SoulПродолжительность: 01:06:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480304   (1009042) от 28.06.2021
+
+Джоконда - Каждый охотник желает знать (2021) [MP3|320 Kbps] <Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состав группы:
+Елена Минина - вокал, рояль, музыка, тексты
+Кирилл Поставной - гитара
+Ринат Насыров - бас-гитара(   Читать дальше...   )01. Симфония [4:55]
+02. Каждый охотник желает знать [4:26]
+03. На краю [4:09]
+04. Костры из книг [3:54](   Читать дальше...   )Жанр: RockПродолжительность: 00:42:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480420   (1009041) от 28.06.2021
+
+iReal Pro 2021.2.1 [Multi]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложение предлагает простой в использовании инструмент, чтобы помочь музыкантам всех уровней освоить свое искусство, а также - предоставит вам имитацию реально звучащего «бэнда» так, как вы этого ожидаете.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2021Разработчик: Technimo LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480493   (1009040) от 28.06.2021
+
+VA - Beatport Psy Trance: Electro Sound Pack #306 (2021) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009040.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nobot - The Future
+002. Gms, Dickster - Neurological
+003. Amtinaous - Biotron
+004. Fertile - Savage(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:20:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480539   (1009039) от 28.06.2021
+
+Shortcut Bar 2.9.4 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007461.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009039.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 08.07.2021Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+Shortcut Bar - невероятно удобное приложение, с его помощью вы получите быстрый доступ к файлам, папкам и приложениям, которые вам необходимы.
+Приложение «живет» в меню баре и позволяет добавлять ярлыки в неограниченном количестве. Всякий раз, когда вам требуется доступ к этим важным файлам и папкам, просто нажмите на иконку в строке меню и выберите элемент из раскрывающегося (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.06.2021Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D82CC8121E97D5A39CEE8A6B792A2CD2A269180
+magnet:?xt=urn:btih:DE7D495F6699C0B8D81AEEBB722A7BA20EFF98B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,414 +252,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482674   (1007460) от 09.07.2021
+###  Публикация: 1480439   (1009038) от 28.06.2021
 
-Chase Dobson - perpetual motion (2021) c.db.sn [FLAC 2.0|48/24|tracks|WEB-DL] <Dub Techno, Techno>
-
->>Electronic
->>Trance, House, Techno (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. inertia (07:11)
- 02. momentum (06:11)
- 03. repetition_motion (05:55)
- 04. ad infinitum (07:52)(   Читать дальше...   )Жанр: Dub Techno, TechnoПродолжительность: 00:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F25A8F7343CB697268669980A6DD519D832EF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482696   (1007459) от 09.07.2021
-
-Robert Hood - The Blueprint EP (2021) Rekids [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chroma Light (05:37)
- 02. The Majestic (Deeper Edit) (06:28)
- 03. The Majestic (06:18)
- 04. Ultrasonic Room (05:44)Жанр: TechnoПродолжительность: 00:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAAE47ECF8DF873716C03AADB60F081327315C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482506   (1007458) от 09.07.2021
-
-Sonic Weapon - Vanity (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Crossing The Line (0:04:32)
-02 - Feed My Monkey (0:04:43)
-03 - Go a Litlle Higher (0:02:28)
-04 - My Shell (0:04:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04015288840394D2D006CA425CD922E9267B05D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482653   (1007457) от 09.07.2021
-
-FBackup 9.1.357 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007457.jpg" />
-</div>
-
-
-###  Подробнее
-
-FBackup — это свободно распространяемое программное обеспечение для резервного копирования. Предназначена программа и для личного и для коммерческого использования. Она защищает важные данные, сохраняя их автоматически на любой USB / Firewire накопитель, локальную или сетевую папку. Резервное копирование данных может быть сжатым, при этом, используется стандарт сжатия (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2B1D7691CF8E6EDFBAFD1E77C37E1A1C78F306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479473   (1007456) от 09.07.2021
-
-Александр Пушной - Каверы Пушного (2021) [AAC|~331 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Трава у дома (cover version) (2:53)
-02. От винта! (cover version) (2:56)
-03. 6 кадров (cover version) (2:33)
-04. День рожденья (cover version) (3:09)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04DD1C9C57B5C22F18510B5A258A6F3EDC1A4BD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482374   (1007455) от 09.07.2021
-
-Vicious Rumors - Celebration Decay (2020) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celebration Decay
-02. Pulse Of The Dead
-03. Arrival Of Desolation
-04. Any Last Words(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C1666B345EC5E99351D54DBAB61C8648643915C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482582   (1007454) от 09.07.2021
-
-Dave Holland - Another Land (2021) Edition Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grave Walker [7:00]
-02. Another Land [9:19]
-03. Gentle Warrior [8:46]
-04. 20 20 [8:24](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482497   (1007453) от 09.07.2021
-
-Истоки анимации.  Дад сбегает из дома / Dud Leaves Home (1919) WEBRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снова Дад-мечтатель. Что необходимо для того, чтобы ухаживать за девушкой? Правильно - денежки. Во всяком случае в Америке точно. Вот и у Дада эта проблема.Производство: СШАЖанр: Анимация, короткометражный, немое кино.Режиссер: Уоллес А. КарлсонПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские отдельным файломПродолжительность: 00:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380E9C58386FD8B7C9341505CC8C032FD105848F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482646   (1007452) от 09.07.2021
-
-Растровый клипарт - Сборник клипарта #11 [PNG, TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 270x191-6500x6500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A642CF25F92054091021130BB558309CFF1E525
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482713   (1007451) от 09.07.2021
-
-Microsoft Edge 91.0.864.67 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5DBA056ECF728B3CAF2072B7E0C5A8CBEF03EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482683   (1007450) от 09.07.2021
-
-Fractal - A Unique Hybrid (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Ambient, Glitch, Abstract>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modernity (02:26)
- 02. Red Shadow (04:55)
- 03. Plan B (05:03)
- 04. A Unique Hybrid (05:15)(   Читать дальше...   )Жанр: IDM, Ambient, Glitch, AbstractПродолжительность: 00:52:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:263492B53F42724241442CA7296E6C37CB25DC61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482685   (1007449) от 09.07.2021
-
-Fractal - Human Error (2021) Aliens Production [FLAC 2.0|44.1/24|tracks|WEB-DL] <IDM, Ambient, Glitch, Techno>
-
->>Electronic
->>Experimental, Industrial (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Collision (02:14)
- 02. Bio - Security (03:53)
- 03. Vox 7bq (04:55)
- 04. Nostromo (04:41)(   Читать дальше...   )Жанр: IDM, Ambient, Glitch, TechnoПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2078D57643853F8971DEC507FB6736B4F9812AFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482642   (1007448) от 09.07.2021
-
-Растровый клипарт - Сборник клипарта #10 [PNG, TIF]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 200x214-5983x4960
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482649   (1007447) от 09.07.2021
-
-Растровый клипарт - Сборник клипарта #12 [PNG, TIF]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007447.jpg" />
-</div>
-
-
-###  Подробнее
-
-Клипарт для вашего творчества на прозрачном фонеФормат: PNG, TIFРазрешение файлов: 254x640-6000x4500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56FE99358F7CAC462B6C7E5671E9FDD1A4249FFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482727   (1007446) от 09.07.2021
-
-AnyTrans for iOS 8.8.3 [Multi]
+RAW Power 3.3.2 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AnyTrans предназначен для быстрой и удобной передачи файлов с компьютера на iPhone/iPad и наоборот. Музыку, фото, видео, приложения, книги, контакты, sms и другие данные можно добавить в ваш iOS-девайс буквально в два счёта и так же просто вытащить их оттуда.
-AnyTrans, не в пример iTunes, прост и интуитивен. Каждое устройство отображается на отдельной вкладке, где (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.07.2021Разработчик: iMobie Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский, Немецкий и т.д.
+Сделайте ваши лучшие снимки еще лучше с Raw Power. Raw Power раскрывает мощь от Apple's RAW с простым, легким в использовании элементами управления. Используйте его в качестве продолжения редактирования внутри Apple Photos как расширение, или как автономный редактор фотографий.
+Если бы вы любили дополнительные регулировки RAW обработки апертуры, вы будете чувствовать (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.06.2021Разработчик: Gentlemen Coders, LLCПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Китайский и Французский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0EB9FA7D7004EA99DA150D2324188C7EB30AA44D
+magnet:?xt=urn:btih:B58005431867CA6E7F5D322A5871D9C67D676BEA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -552,24 +279,22 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482166   (1007445) от 09.07.2021
+###  Публикация: 1480366   (1009037) от 28.06.2021
 
-Marek Grechuta - Spiewajace Obrazy (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Classical, Folk>
+PDFpen 13 v13.1 [Multi]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009037.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Kawiarnia W Nocy - Van Gogh • Patrz, Juz Wszyscy Poszli •
-A2 Niedzielne Popoludnie Na Wyspie Grande Jatte - Seurat • Cisza Oddechu Trawy •
-A3 Akrobatka Na Pilce - Picasso • Szary Golab Na Ramieniu •
-A4 Parasole - Renoir • Miec Taki Deszcz, Gdy Swieci Slonce •(   Читать дальше...   )Жанр: Pop, Classical, FolkПродолжительность: 00:40:09
+Мощное редактирование PDF-файлов на вашем Mac.
+Добавляйте подписи, текст и изображения. Вносите изменения и исправляйте опечатки. Отсканированные документы с оптическим распознаванием текста. Заполните формы.Тип издания: macOS SoftwareРелиз состоялся: 24.06.2021Разработчик: SmileOnMyMac, LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
@@ -581,28 +306,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482542   (1007444) от 09.07.2021
+###  Публикация: 1480496   (1009036) от 28.06.2021
 
-VA - Vocal Bliss Lounge (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+VA - Beatport Techno: Electro Sound Pack #307 (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009036.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. College Of Dreams - Show Me the Love (Chillwave Vocal Mix) (05:03)
-02. Debora Vilchez - The Words You Said (Smooth Vocal Flair Mix) (05:22)
-03. Blue Lagoona - Be As I Am (Soulful Pop Mix) (04:00)
-04. Creamy Dip - Remember (Sweet Soul Vocal Mix) (03:58)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:40:44
+001. Techno Mama - Powerful Sine
+002. Jardin, Certain Smith - 5th Generation
+003. Hryggur - Power Cuts
+004. Hatelove - Betrayed By Gods(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:46:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D8D8B8F9C8805319ED198D65CE89778164BFB5D
+magnet:?xt=urn:btih:0E52F7316E1F317E0A611AECEBA75E80E8215F22
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,25 +335,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482560   (1007443) от 09.07.2021
+###  Публикация: 1480363   (1009035) от 28.06.2021
 
-И.В. Сазанова | Гражданское право. Часть особенная (2011) [PDF]
+Адриана Мэзер | Как повесить ведьму (2019) [MP3, Таисия Тришина]
 
->>Научная и техническая литература
->>Учебники
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Настоящее учебно-методическое пособие предназначено для студентов юридических специальностей, изучающих курс «Гражданское право» Оно содержит программу курса, планы семинарских занятий, задачи к ним, список нормативного материала, дополнительной литературы, рекомендованной к изучению, вопросы к экзамену по гражданскому праву (часть особенная)Жанр: Гражданское право, учебная литератураФормат: PDF
+Роман «Как повесить ведьму» переносит нас в Салем – столицу колдовства и чёрной магии, которая окутана тайнами прошлого по сей день.
+
+У рода Мэзеров дурная репутация в Салеме. Много веков назад из-за священника Коттона Мэзера в городе объявили охоту на ведьм. По обвинению в колдовстве казнили десятки людей. Их потомки до сих пор хранят память о мрачной трагедии.Жанр: Зарубежные детективы, ТриллерыПеревод: Валерия СавельеваПродолжительность: 09:13:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE5D81D9450EAB5ADD6F89DDE38ACB609FC1BD2D
+magnet:?xt=urn:btih:063562C34A9885E07D8D75BB760B0B7CBF78161A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,82 +363,349 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482584   (1007442) от 09.07.2021
+###  Публикация: 1480397   (1009034) от 28.06.2021
 
-VA - Vocal Progressive House (2021) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj-Elven, D-Myo, Fybear, VINS, DaWTone - The Last Unicorn - DaWTone Remix (5:43)
-02. AVR, Mateus Ghaldino - Coming Home With Me - Original Mix (4:13)
-03. Raveland - To The Ones We Hate - Original Mix (3:45)
-04. Vanesh - Sexual - Original Mix (4:26)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:02:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482660   (1007441) от 09.07.2021
-
-Opera GX 76.0.4017.227 + Portable [Multi/Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
-Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
-Но вот зачем-то разработчики отказались от этой функции (впрочем, она ещё может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482709   (1007440) от 09.07.2021
-
-RogueKiller Anti-Malware 15.0.7 + Portable [Multi]
+AnyGo 4.0.0 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-RogueKiller Anti-Malware можно использовать бесплатно для сканирования и очистки. Однако, приложение имеет дополнительные платные функции, которые обеспечивают защиту в режиме реального времени, более высокий уровень безопасности и позволяют более детально настраивать поведение программы. Среди дополнительных возможностей: автоматическое обновление, использование (   Читать дальше...   )Язык интерфейса: Английский и другие
+С приложением AnyGo легко имитируйте местоположение координат GPS на вашем iPhone / iPadТип издания: macOS SoftwareРелиз состоялся: 24.06.2021Разработчик: iToolabПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:145E0F392B04109A603EE587027E2FD730431ACF
+magnet:?xt=urn:btih:817BAA205694BA153D8FC1FD05CD0B840AE39975
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480430   (1009033) от 28.06.2021
+
+VA - Beatport Deep House: Electro Sound Pack #305 (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009033.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Rimmel - Petals And Love
+002. Dubbyjenkins - All Of You Tonight
+003. Simplex Motive - You Make Me Loungey
+004. Stranger Danger - The Next Man(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 13:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F97BDC851FE68F9DA4178275C3BD289834C7143
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480441   (1009032) от 28.06.2021
+
+SoundSource 5.3.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009032.jpg" />
+</div>
+
+
+###  Подробнее
+
+SounceSource позволяет настроить прямо из строки меню входные, выходные данные и звуковые эффекты устройства и настройки громкости в считанные минуты. С SoundSource, вы получаете быстрый доступ к наиболее важным настройкам звука вашего Mac.
+Мгновенное переключение аудио-устройств - c помощью всего двух щелчков мыши, вы можете переключить аудио устройство вашего Mac, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.06.2021Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:695E85B0907C6D37B79462AF3E7C41DBB4BF1E3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480370   (1009031) от 28.06.2021
+
+Sketch 73 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sketch - это новаторский и свежий взгляд на векторную графику. Его намеренно минималистичный дизайн основан на пространстве для рисования неограниченного размера и слоев, без палитр, панелей, меню, окон и элементов управления. Несмотря на простоту использования, он предлагает мощные инструменты для векторного рисования и текста, такие как совершенные логические операции, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.06.2021Разработчик: Bohemian CodingПоддерживаемая ОС: 10.15 or laterЯзык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F21E0702EBA45A26D96FD5302321DED61D100C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480354   (1009030) от 28.06.2021
+
+Live Home 3D Pro Edition 4.0.5 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Live Home 3D, преемник Live Interior 3D, является мощным, но интуитивно понятным программным обеспечением для домашнего дизайна, которое позволяет вам строить дом своей мечты прямо на вашем Mac.
+Не имеет значения, планируете Вы просто сделать улучшения в своем доме или, как профессиональный дизайнер, хотите иметь инструмент для визуализации своих идей. Live Home (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.06.2021Разработчик: Belight Software, Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B52E2506228500B8E46252EA6936CD220B8EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480447   (1009029) от 28.06.2021
+
+Николай Некрасов | Цифровой призрак (2020) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Реальность хакнула меня, или я ее — непонятно. Воспоминания стерты, перед глазами навязчивый интерфейс. Я могу украсть деньги, угнать машину и без труда заполучить любую девушку! Мне подвластно всё, ведь я — цифровой призрак.
+Но ничто не длится вечно. И когда на пути появляются охотники за призраками, остается только одно — бежать.
+Чтобы потом встретить врага во (   Читать дальше...   )Жанр: ЛитРПГФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A0BE04D752773B3E8C691B9D083C0CD7EF29C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480390   (1009028) от 28.06.2021
+
+Дженни Колган | Шоколадная лавка в Париже (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Анна Трент, невольная виновница аварии на шоколадной фабрике, теряет работу. Благодаря случайной встрече со своей школьной учительницей французского она отправляется в Париж, где знакомится с гениальным шоколатье Тьерри Жираром. После захолустного английского городка, в котором Анна провела всю жизнь, Париж ошеломляет и пугает, а всё, чему она научилась на фабрике, (   Читать дальше...   )Жанр: Легкая проза, Современная зарубежная литератураПеревод: Анна ОсиповаПродолжительность: 12:40:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D8118F77BB9E838AD570EBF0B21AA03D7FD5BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480459   (1009027) от 28.06.2021
+
+Microsoft Edge 91.0.864.59 Portable by Cento8 [Ru/En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Edge – кроссплатформенный веб-браузер на базе Chromium с поддержкой Windows 10, 8.1 и 7. Отличается высокой скоростью работы, хорошей производительностью и совместимостью со всеми современными веб-стандартами. Microsoft Edge – это скорость, производительность и совместимость со всеми вашими любимыми сайтами и расширениями. Начните работу с браузером так, (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480361   (1009026) от 28.06.2021
+
+PDF Office Max: Acrobat Expert 6.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009026.jpg" />
+</div>
+
+
+###  Подробнее
+
+PDF Office Max - это приложение для повышения производительности, которое предлагает многофункциональный способ работы с документами PDF. Используя PDF Office Max, вы можете загружать неограниченное количество PDF-файлов в iCloud и получать доступ к данным с любого iPhone, iPad и Mac.Тип издания: macOS SoftwareРелиз состоялся: 16.06.2021Разработчик: heytopiaПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEF3C4521AF973B4D000039C3223680AEDDF92B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480283   (1009025) от 28.06.2021
+
+VA - The Bass Attack (2021) [MP3|320 Kbps] <Drum & Bass, Jungle, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009025.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nymfo - Battlefish Undefined
+002. Nu-tone - Instincts
+003. Raz - Gun Slinga
+004. Jaxx - Same Old Story(   Читать дальше...   )Жанр: Drum & Bass, Jungle, Electro BassПродолжительность: 08:12:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182D25A52F2C08436CD26957A671A67A2EEAD5CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480431   (1009024) от 28.06.2021
+
+RapidWeaver 9.0 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009024.jpg" />
+</div>
+
+
+###  Подробнее
+
+RapidWeaver - очень популярный WYSIWYG-редактор, по праву заслуживший множество наград от таких известных изданий как: MacFormar, MacWorld и MacUser. В отличие от других WYSIWYG-редакторов, он действительно не требует знания HTML, используя для построения сайта множество готовых шаблонов.
+RapidWeaver отлично подойдет тем, кто ищет ПО для разработки красивого веб-сайта. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.06.2021Разработчик: Realmac Software LimitedПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37D5B2FFE04B02B6D13A307E1AEAF0C5369A861A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480350   (1009023) от 28.06.2021
+
+Colibri 2.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009023.jpg" />
+</div>
+
+
+###  Подробнее
+
+Нативный Lossless Audio проигрыватель, созданный на основе технологии BASS.
+Colibri поддерживает воспроизведение всех популярных форматов без потерь, использует только небольшое количество вычислительной мощности и предлагает чистый и интуитивно понятный пользовательский интерфейс.Тип издания: macOS SoftwareРелиз состоялся: 23.06.2021Разработчик: Gabor HargitaiПоддерживаемая ОС: macOS 10.10 или новееЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9790EB52C742F9958B57F49B6E3DC09118C5963
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480342   (1009022) от 28.06.2021
+
+4K YouTube to MP3 4.1.4 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009022.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K YouTube to MP3 — приложение, которое позволяет скачивать аудио с YouTube, Vimeo, Facebook и сохранять его в MP3, M4A, OGG. Никаких сложных настроек, ничего лишнего, только загрузка аудио! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Вставить Url".Тип издания: macOS SoftwareРелиз состоялся: 25.06.2021Разработчик: OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D16B207C5F2D5DD75F18CCB0D93FF15076383FC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1619292   (201229) от 15.03.2023
+
+Microsoft  Visual C++ Runtimes AIO v0.68.0 x86-x64 Repack by abbodi1406 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Visual C++ Redistributable Package – это распространяемые пакеты, которые устанавливают компоненты среды выполнения библиотек Visual C++. Данные компоненты необходимы для выполнения приложений, разработанных с помощью среды программирования Visual Studio. В состав этих компонентов входят: среда выполнения C (CRT), стандартный C++, MFC, C++ AMP и OpenMP. (   Читать дальше...   )Язык интерфейса: Русский, английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2425FC9B9B34498ACAC23E326AE1B29DE098B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619343   (201226) от 15.03.2023
+
+PC HelpSoft Driver Updater 6.3.924 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201226.jpg" />
+</div>
+
+
+###  Подробнее
+
+PC HelpSoft Driver Updater автоматически сканирует разные базы данных. Идентификация устройства пользователя будет проводиться в автоматическом режиме. Позволяет моментально находить рабочие, новейшие драйвера.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F36380404195E2B0489EEDE24872E12E5C90742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619667   (201224) от 17.03.2023
 
 Stardock Fences 4.1.1.0 (x64) RePack by xetrin [Multi/Ru]
@@ -621,58 +673,6 @@ Mirillis Action! 4.31.1 RePack (& Portable) by KpoJIuK [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0D6B2990AEBF7A0C79324401FA2B1CEFBEDC470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620458   (201079) от 20.03.2023
-
-HitPaw Video Converter 2.8.0.15 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201079.jpg" />
-</div>
-
-
-###  Подробнее
-
-HitPaw Video Converter позволяет пользователям редактировать и конвертировать свои видео в любой формат, чтобы использовать их на любом устройстве и загружать видео с более чем 1000 веб-сайтов, таких как YouTube, Facebook и Vimeo.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F06DCD2A7C9F1D937EE5DB78822F05794F23B320
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620064   (201076) от 18.03.2023
-
-Rufus 3.22 (Build 2003) Beta Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201076.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rufus - небольшая утилита помогает отформатировать и создавать загрузочные USB флэш-накопители (USB ключи, карты памяти и т.д.). Несмотря на свои небольшие размеры, Rufus предоставляет все, что вам нужно для создания установочного USB носителя с загрузочными ISO (Windows, Linux и т.д.) или микропрограммами из DOS.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71A7732072679A42CC80C89FB2536D6A015BC7DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

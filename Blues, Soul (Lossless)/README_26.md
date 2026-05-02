@@ -1,3 +1,119 @@
+###  Публикация: 1367204   (918965) от 14.03.2020
+
+VA - Women Of Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Ruth Brown - Takin' Care Of Business (2:19)
+02 Betty Lavette - Here I Am (Single Version) (2:48)
+03 Louise Hoffsten - When It Rains It Really Pours (4:34)
+04 Aretha Franklin - Today I Sing The Blues (4:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC301434754CE9C0F005E35C05FE1A85DC211CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 313414   (918228) от 14.03.2020
+
+Vaya Con Dios, Purple Prose - 9 альбомов (1988 - 2009) [FLAC, APE|Lossless] <Blues, Rock, Jazz, Chanson, Ballad>
+
+>>След.
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vaya Con Dios - всемирно известная группа, созданная музыкантами, объединившимися вокруг певицы  Dani Klein (родилась 31.12.1953), фантастической женщины, в начале своей карьеры работавшей в качестве вокалистки во многих бельгийских группах.Список альбомов:
+Vaya Con Dios
+1988 - Vaya Con Dios
+1990 - Night Owls(   Читать дальше...   )Жанр: Blues, Rock, Jazz, Chanson, BalladПродолжительность: 07:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30CDD579DC759EE9F3BE9666A4F986D80D9468A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096967   (917801) от 25.01.2017
+
+Eldon Brown Band - I'd Be A Fool (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, West Coast Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'd Be A Fool (03:54)
+02. Aloha Richmond (04:42)
+03. Elaine (03:09)
+04. Got Your Number (02:59)(   Читать дальше...   )Жанр: Blues, West Coast BluesПродолжительность: 00:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1898C856073246250F0DDC5631218D4A25825A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1096879   (917782) от 25.01.2017
+
+The Hollywood Blue Flames - Soul Sanctuary (2005) [FLAC|Lossless|image + .cue] <Blues, West Coast Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flambed 1'55
+02. Nit Wit 2'19
+03. The Land Of Calio 3'30
+04. Soon Forgotten 3'59(   Читать дальше...   )Жанр: Blues, West Coast BluesПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FA30E70F4631589AFFBFAF00D492A88E324858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096674   (917779) от 25.01.2017
 
 Carl Verheyen - Slingshot (1998) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock>
@@ -627,122 +743,6 @@ Jack Biilmann - Full Circle (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6414D4AE28C9716E9FA1884667266FE9F8136AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491081   (913746) от 23.08.2021
-
-Until the Sun - Drowning in Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drowning in Blue (3:39)
-02. Shadow of the Valley (3:31)
-03. New Delilah (4:59)
-04. 1,000 Miles Away (5:18)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E511A861A8BECFEFDC593C06685942DF5D01C85D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491075   (913736) от 23.08.2021
-
-Tom Craig - Good Man Gone Bad (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Working Too Hard (2:59)
-02. What a Man's Gotta Do (2:57)
-03. You Made a Good Man Go Bad (2:44)
-04. It's All My Fault (4:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4578D3B63F5593CF040FAC78239E44D8D3B9C898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491063   (913730) от 23.08.2021
-
-Superdownhome - No Balls No Blues Chips (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Sweep Away (3:15)
-02. Homework (3:21)
-03. Stop Breaking Down Blues (Feat. Popa Chubby) (3:11)
-04. Booze Is My Self-Control Device (3:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77868F8DB3311BC4489E96255D7383D1B1033E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490883   (913725) от 23.08.2021
-
-VA - Grooveyard Records The Sound Of Guitar Rock Best Of Volume 5 (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LANCE LOPEZ: 'Love / Hate Relationship' (5:48)
-02. VINCE HAWKINS & COMPANY SLAVE: 'Room Full Of Mirrors' (3:25)
-03. BRETT ELLIS: 'Twice Removed From Yesterday' (4:51)
-04. VOODOO ROOM: 'In The Net' (4:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:535048A3C7C763D41962E5D18342B9701D96BE85
 ```
 
 https://mybot314.ru/tekegram_catalog/

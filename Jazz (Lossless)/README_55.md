@@ -1,3 +1,61 @@
+###  Публикация: 1111912   (845226) от 07.03.2017
+
+Erroll Garner - The Real... Erroll Garner (2016) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+1. When You're Smiling
+2. Lover
+3. The Way You Look Tonight(   Читать дальше...   )Жанр: JazzПродолжительность: 02:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E919A10836E07509BF334827D74DBFE8495F273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003105   (845199) от 02.04.2016
+
+Tuba Skinny - Blue Chime Stomp (2016) [FLAC|Lossless|WEB-DL|tracks] <New Orleans Jazz, Dixieland, Street Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maple Leaf Rag
+02. Running Down My Man
+03. Oh Papa
+04. Blue Chime Stomp(   Читать дальше...   )Жанр: New Orleans Jazz, Dixieland, Street BandПродолжительность: 01:01:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D9DEE854A26A92359525312E31D782218E900E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112070   (845044) от 07.03.2017
 
 Rick Braun - Around The Horn (2017) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -690,64 +748,6 @@ Charlie Sepulveda & The Turnaround - Mr. EP: A Tribute to Eddie Palmieri (2017) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BCC3E83AEB0A2485F5621A55FD9398BE3C09EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500373   (841400) от 06.10.2021
-
-Roy Eldridge - The Nifty Cat (1970) 1986, New World Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jolly Hollis [9:51]
-02. Cotton [5:01]
-03. 5400 North [6:04]
-04. Ball of Fire [4:03](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEEA2CD118EC58C180C9FB2B19491E82D6A29E70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500372   (841399) от 06.10.2021
-
-Roy Eldridge & Richie Kamuca Quintet - At The Half Note (1965, 1966) 2017, Sounds of Yester Year [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Sue [5:35]
-02. Stompin' at the Savoy [8:07]
-03. Comin' Home Baby [6:58]
-04. Hackensack [6:02](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304ACF4575B42A296D8809D165FA7FF80F56C3E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

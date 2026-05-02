@@ -1,3 +1,32 @@
+###  Публикация: 910387   (622116) от 20.06.2015
+
+Bill Wyman - Back To Basics (2015) [MP3|320 кб/с]<Classic Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What & How & If & When & Why (03:38)
+02. I Lost My Ring (03:37)
+03. Love, Love, Love (03:41)
+04. Stuff (Can't Get Enough) (Back To Basics Version 2015) (04:05)(   Читать дальше...   )Жанр: Classic Rock, Blues RockПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEFEBE3C2CBE924AFEBC4001D81A930812582D9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544412   (622067) от 15.04.2022
 
 Suzi Quatro - The Rock Box 1973 - 1979 (2022) 7CD [MP3|320 Kbps] <Rock>
@@ -740,35 +769,6 @@ Taylor's Code - Mirrors (2015) [MP3|320 кб/с]<Crossover Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:997D5288E0C9CE65B9E9BF75448E74CC73AC5E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911888   (612990) от 25.06.2015
-
-Reno Bo - Lessons from a Shooting Star (2015) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweetheart Deal (3:35)
-02. How Do You Do (3:02)
-03. Just Say Go (3:05)
-04. Strange Maps (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E313149A9867F459530EFF1347E87B6D8027A72C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1014259   (776572) от 07.05.2016
+
+Aidan - Chapter One (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Hail for Brian Setzer (02:25)
+02. A Road to Knowhere (04:09)
+03. Last Call (03:37)
+04. I Got the Blues (05:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:480D082C6E87400895FA9558386F01DB2758CB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014374   (776568) от 07.05.2016
 
 Johnny Rieger Band - Come Closer (2013) [MP3|320 кб/с] <Blues Rock>
@@ -724,35 +753,6 @@ Muddy Waters -  Les Genies du Rock - Got My Mojo Working (1993) [MP3|320 кб/с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAD4F7D3F3A400C28C4C4E68947C1E9E6D37B8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019338   (752266) от 22.05.2016
-
-Nick Moss Band - From The Root To The Fruit (2016) 2CD Set [MP3|320 кб/с] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_752266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before the Night Is Through (03:11)
-02. Make Way For Me (03:25)
-03. Dead Man's Hand (04:19)
-04. From the Root to the Fruit (03:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 02:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDBFD4FEBD6FD9219515A3A556313886C644BCEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

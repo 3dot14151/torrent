@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1867172   (1066802) от 
+
+Real McCoy - One More Time (1997) [FLAC|Lossless|image + .cue] <Electronic, Eurodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		One More Time (Original Radio Mix)	3:51
+2		Give A Little Love	3:32
+3		The Sky Is The Limit	3:39
+4		Tomorrow	4:05(   Читать дальше...   )Жанр: Electronic, EurodanceПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:633F78F49ACE493296A05DBE0AAC8BE391B39E27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865859   (1066000) от 
+
+Alexia - The Party Alexia (1998) [FLAC|Lossless|image + .cue] <Euro House, Italodance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Uh La La La (Almighty Edit) 3:42
+2		Gimme Love (Pump Friction Vs Precious Paul Edit) 3:39
+3		Music I Like (Metro Club Edit) 3:20
+4		Keep On Movin'	3:38(   Читать дальше...   )Жанр: Euro House, ItalodanceПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD286E2D0B6BC2813D0D1FB7E315A533DFFC4FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849620   (1053688) от 24.01.2026
 
 2 Unlimited - Get Ready! (1992) 1st German Press [APE|Lossless|image + .cue] <Eurodance, Techno>
@@ -687,64 +745,6 @@ VA - The Best Of Hotsound Vol. 1 (1989) [FLAC|Lossless|image + .cue] <Italo-Disc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43BC98BC3FAFCEBF4664E2A21F83CCDD47B0EC5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350606   (1002937) от 07.01.2020
-
-Rashni - Baboushka (2007) [FLAC|Lossless|image + .cue] <Euro House, Trance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002937.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Baboushka (Radio Mix) 3:06
-2 Baboushka (Kolchose Mix) 5:14
-3 Baboushka (Punkbusters Remix) 6:08
-4 Baboushka (Video Mix) 3:38Жанр: Euro House, TranceПродолжительность: 00:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B49B6850994C3CB697183FD12D4B3295E2B4F822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351563   (1001893) от 11.01.2020
-
-ICE MC - Cinema (2011) [FLAC|Lossless|image + .cue] <Hip-House, Pop Rap>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001893.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Cinema 3:48
-2 Scream 4:05
-3 Peace 3:51
-4 Gone With The Wind 4:47(   Читать дальше...   )Жанр: Hip-House, Pop RapПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E337E0F09AF6166C7FC5CA0B5C6997F8C6659C08
 ```
 
 https://mybot314.ru/tekegram_catalog/

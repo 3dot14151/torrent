@@ -1,25 +1,25 @@
-###  Публикация: 1808155   (65066) от 22.07.2025
+###  Публикация: 1798560   (66607) от 22.05.2025
 
-Александр Кальянов - De Luxe Collection (2003) [MP3|320 Kbps] <Chanson>
+Евгения Калина - Кокон (2025) [MP3|320 Kbps] <Авторская песня>
 
 >>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Здравствуйте-здравствуйте [00:03:09]
-02 - Таганка [00:03:13]
-03 - Старое кафе [00:03:44]
-04 - Путана [00:04:07](   Читать дальше...   )Жанр: ChansonПродолжительность: 01:19:27
+01 - Здравствуй [00:02:42]
+02 - Я прячу тело под мутоном [00:01:41]
+03 - В вашем городе [00:01:16]
+04 - Мука [00:00:17](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:43:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:18A61B9A812B9FA3412064368CD5395B8A623CB8
+magnet:?xt=urn:btih:6B024DC36F1823455279C275DFFF7F012ECE0C6F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,161 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807879   (65065) от 22.07.2025
+###  Публикация: 1798482   (66606) от 22.05.2025
 
-RAR Extractor - Unarchiver (vip) 6.5.1 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65065.jpg" />
-</div>
-
-
-###  Подробнее
-
-RAR Extractor, распаковать и открыть любой файл. RAR Extractor - Unarchiver - это специализированная прикладная утилита, предназначенная для Rar, Zip, Tar, 7-zip, Gzip, Bzip2, XZ, Tar.gz, bz2, iso, pkg, swf, exe, jar, xip, dms… и десятки других сжатых файлов, вы можете использовать ее для удобного извлечения архивных файлов. Дважды щелкните, чтобы распаковать, быстро (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: © 2024 qing qing yuПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97ED112FEA6E4BB9C6AA3918658DF9EC418516B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808086   (65064) от 22.07.2025
-
-Mari Kattman - Year Of The Katt (2025) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Industrial>
-
->>Electronic
->>Synthpop, New Wave (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Typical Girl [00:03:43]
-02. Sharp Shooter [00:04:04]
-03. Take [00:03:55]
-04. Ascending [00:03:24](   Читать дальше...   )Жанр: Synthpop, IndustrialПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9992FD4E6EC7FA8AFB6255F6989FCDE060195B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808159   (65063) от 22.07.2025
-
-Звуковые библиотеки - Splice - Epic Stock Media-Designed Game Footsteps Part 1 [WAV]
-
->>Материалы для мультимедиа и дизайна
->>Звуковые библиотеки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Designed Game Footsteps Part 1 — это игровая библиотека звуков шагов, содержащая более 2400 эффектов для более чем 25 типов поверхностей и различных видов обуви. Эта специализированная звуковая библиотека предлагает гибридный микс реалистичных и оригинальных наборов звуков для обычных и абстрактных персонажей, таких как игровые существа, роботы, NPC, динозавры, гиганты, (   Читать дальше...   )Формат: WAV
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3330F30C1977938399AF682256BA6F887485EC45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808049   (65062) от 22.07.2025
-
-Журнал | Тайны ХХ века №30 (1176) (июль 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65062.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC69BE6D2353F8D52F38BB7AC677C59C20A62342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808011   (65061) от 22.07.2025
-
-Яков Миркин | Потрясенные общества. Правила жизни в эпоху перемен (2025) [MP3, Алексей Воскобойников]
-
->>Художественные аудиокниги и публицистика
->>Публицистика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы все знаем выражение «общественные потрясения». Но как жить в «потрясенном» обществе, как сохранить в нем имущество, достоинство, душевное равновесие – и саму жизнь? Как выдержать первый удар, когда привычный мир вдруг рухнул? Как выйти из кризиса умудренным и окрепшим? Кто, как не Россия, даст ответы на эти вопросы, ведь нас столетиями кидает из крайности в крайность.Жанр: Публицистика, Философские притчиИздательство: АзбукаПродолжительность: 11:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97133A7F5CC9F36499CCE3D498681CDCFBF652DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807988   (65060) от 22.07.2025
-
-Black - Wonderful Life (1987) 1st German Press [APE|Lossless|image + .cue] <Pop>
+PinkPantheress - Fancy That (2025) Mixtape [FLAC|Lossless|tracks + .cue] <Dance-pop>
 
 >>Pop
 >>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wonderful Life (04:48)
-02. Everything's Coming Up Roses (04:06)
-03. Sometimes For The Asking (04:09)
-04. Finder (04:15)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:29
+01. Illegal (02:29)
+02. Girl Like Me (02:24)
+03. Tonight (02:56)
+04. Stars (02:21)(   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:20:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC67BE73C321F822597C2BB720252FD735A8511D
+magnet:?xt=urn:btih:73279A498F681767F10D029B673A6459AF5DD19E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -189,208 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808098   (65059) от 22.07.2025
+###  Публикация: 1798780   (66605) от 23.05.2025
 
-Векторный клипарт - True Grit Texture Supply - Hardwear [AI, AIA]
-
->>Материалы для мультимедиа и дизайна
->>Векторный клипарт
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65059.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текстурируйте, придавайте шероховатость, состаривайте и разрушайте с нашим набором Hardwear Vector Distressing Kit для Adobe Illustrator. Вдохновленный потертой упаковкой, значками и печатными эфемерами винтажных электроинструментов, набор Hardwear упрощает создание эффектов состаривания печатного качества прямо в Illustrator.Формат: AI, AIA
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBD0E40F138624ACFB283E0EC5E6AEBB2467B10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808057   (65058) от 22.07.2025
-
-Текстуры - Creative Market - Rolled ink textures volume 01 - 42523 [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65058.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flux — это коллекция из 20 экспериментальных абстрактных текстур. Эта коллекция исследует цифровую обратную связь и визуальные искажения.Формат: JPGРазрешение файлов: 2428x8139 - 6786x9333
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA007B6CB89C2EA3E7B289929C06E4418A0CFC43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808017   (65057) от 22.07.2025
-
-Пресеты - Wildlife Lightroom Presets [LRTEMPLATE]
-
->>Материалы для мультимедиа и дизайна
->>Дополнения
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65057.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор из 10 пресетов для фотографий дикой природы.Формат: LRTEMPLATE
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A54EB7667E7A83AB25685FA4269CD5BB0D45DE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808085   (65056) от 22.07.2025
-
-Иконки - Envato - Cleaning and Housekeeping 3D Illustration - NB7MRJ8 [PNG]
-
->>Графика, Арт, Разное
->>Иконки и аватарки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поднимите на новый уровень свои проекты по дизайну мобильных приложений, UI/UX и веб-дизайну с помощью набора иконок Cleaning and Housekeeping 3D Illustration, добавив уникальный и привлекательный элемент в свои проекты.Формат: PNGРазрешение файлов: 3000x3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FE9CA624CD37C5D950A59394C3C87B36DCC98A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808054   (65055) от 22.07.2025
-
-Шрифты - MyFonts - Urbana [TTF, OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Urbana — современный, естественно сжатый шрифт без засечек, вдохновлённый традиционными надписями на колумбийских городских автобусах. Его уникальные формы сочетают в себе элементы модернизма, рукописного письма, загромождения пространства и импровизации. Urbana был разработан для экономии места и привлечения внимания читателя, сохраняя при этом высокую читаемость (   Читать дальше...   )Формат: TTF, OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6344F0B2ED8C7B1CCBC53958FE3F49A4D5BAAA3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808048   (65054) от 22.07.2025
-
-Начни бегать v5.12 Mod by Alex.Strannik [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65054.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удобный помощник для желающих начать тренироваться посредством бега и спортивной ходьбы. Подборка готовых планов упражнений. Возможность создания собственного плана занятий. Статистика тренировок.
-Начать бегать? Легко! Не думай о дистанции, темпе, скорости. Все это потом. Слушай инструкции и беги так, как тебе комфортно. Не фокусируйся на технике бега. Самое важное (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 22.07.2025Разработчик: AxiomMobileПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805AAC2065759D64C714EE76A1BF4876CF4C1588
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808014   (65053) от 22.07.2025
-
-Журнал | Приусадебное хозяйство №7 (июль 2025) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал «Приусадебное хозяйство» знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не остались без внимания и владельцы домашних ферм — здесь они находят ответы на многие (   Читать дальше...   )Жанр: Дача, сад, огородИздательство: ООО "Приусадебное хозяйство"Формат: PDFКачество: Необработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEBA6CEE5CB6696988FA5BB85A4EF51031A919E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808079   (65052) от 22.07.2025
-
-Мятная содовая / Diabolo menthe / Peppermint Soda (1977) BDRip [H.264/720p] [FR / RU Sub]
+Восток есть восток / East is East (1916) WEBRip [H.264/720p]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66605.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 1976 году Диана Кюрис пишет автобиографический роман, на следующий год превратившийся в сценарий её дебютного фильма «Мятная содовая», события которого происходят в 1963 г., когда старшей сестре, ей самой и её подругам было по 13-15 лет...Производство: Франция / Alexandre Films, Films de L'AlmaЖанр: драма, мелодрамаРежиссер: Диана КюрисАктеры: Элеонора Кларвейн, Одиль Мишель, Анук Фержак, Мишель Пютерфлам, Ив Ранье, Робер Римбо, Мари Вероника Морен, Коринн Дакла, Корали Клементе, Валери СтаноПеревод: субтитрамиЯзык озвучки: французскийСубтитры: русские (Lisok; К. Семенюк), французскиеПродолжительность: 01:40:58
+Лирическая и забавная история. Восток, упоминаемый в названии - это Ист-Энд, восточный район Лондона. Район самый простецкий, может и не совсем нищенские трущобы, но что-то близкое к этому. И вот живет в этом районе девочка, каких там полно - рано лишилась родителей, ходит в драных чулках, подрабатывает на сборе урожая, но шустра, мила, сообразительна. А дальше, (   Читать дальше...   )Производство: Великобритания / Florence Turner ProductionsЖанр: драма, мелодрама, немое киноРежиссер: Генри ЭдвардсАктеры: Флоренс Тернер, Генри Эдвардс, Рут Маккэй, У.Г. Саундерс, Эдит ЭвансПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русскиеПродолжительность: 01:11:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68E6E8FB5659E6EB7B02726CEDC8D545312392BE
+magnet:?xt=urn:btih:8FE1ECF0AA95F8757654BE2B7E88DF5C1DCAABD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,27 +82,477 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808126   (65051) от 22.07.2025
+###  Публикация: 1798741   (66604) от 23.05.2025
 
-Пресеты - Creative Market - Black & White Lightroom Presets - 147952 [LRTEMPLATE]
+НХЛ. Кубок Стэнли 2025. Восток - Финал. 2-й матч. Флорида Пантерз - Каролина Харрикейнз (22.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66604.jpg" />
+</div>
+
+
+###  Подробнее
+
+23 мая 2025, пятница. 03:00 МСК, 1/2 финала. 2-й матч. Стадион: Леново Центр (Роли, США), 18 971 зритель (100% при вместимости 19 041)
+Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Райан Дейзи (Мансфилд, США); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: Setanta Storts 2Жанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 02:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98B6DCF3A52737F7FAA6B3BEE75D12F192F30145
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798740   (66603) от 23.05.2025
+
+Lila Tirando A Violeta - Dream of Snakes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Abstract, Ambient, Experimental, Deconstructed Club>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unworthy Praise [00:03:38]
+02. New Flesh [00:02:37]
+03. Ostrich/Ñandú [00:03:27]
+04. Heavy is the Soul [00:03:41](   Читать дальше...   )Жанр: Abstract, Ambient, Experimental, Deconstructed ClubПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE90468FC8BC08527F4033178919EAE266FFD250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798647   (66602) от 23.05.2025
+
+VA - Armin van Buuren - A State Of Trance 1226 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gouryella ft. Saskia Lie-Atjam – Marama (Moon & Stars)
+02. Going Deeper & Judgemxnt ft. CVKES – Holy Fire
+03. Nicole Moudaber – Soul Brothers
+04. Laura van Dam – Deep Shadow (Future Favorite)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A1FF4758AD13F2D1F8D384C99DFC97573521194
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798117   (66601) от 23.05.2025
+
+Rah - Orile to Berlin (2 Albums) (2024,2025) [FLAC 24/44.1,48|Lossless|WEB-DL|tracks] <Afro-House, Deep-House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rodeo (Kid Fonque Refix) [00:08:13]
+02. MoonSun (Dead Rabbit Remix) [00:03:07]
+03. Agidi (Ben Gomori's Ego Trip) [00:05:14]
+04. MoonSun (møødify Remix) [00:04:33](   Читать дальше...   )Жанр: Afro-House, Deep-HouseПродолжительность: 2 CD, 01:26:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06134F4E69B3ACACD29098807850FFCD61CB78F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798701   (66600) от 23.05.2025
+
+Moonlight Haze - Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond [00:02:19]
+02. Tame The Storm [00:03:30]
+03. Crystallized [00:03:01]
+04. Chase The Light [00:03:41](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:36:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:017270BDB52A892596C45997E381EF8AE7986D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798766   (66599) от 23.05.2025
+
+Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [MP3|320 Kbps] <Electronic, Dance>
+
+>>Electronic
+>>Techno, Electro, Minimal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Let It Ride [3:36]
+02 - Let It Ride (Jamie Jones Remix) [3:27]
+03 - Let It Ride (Kungs Remix) [3:43]
+04 - Let It Ride (Wongo Remix) [3:03](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE0B21D008C63D1B52B94A288F4E5669C21C86B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798765   (66598) от 23.05.2025
+
+Lenny Kravitz - Let It Ride Remixes, Pt. 1 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Let It Ride [3:36]
+02 - Let It Ride (Jamie Jones Remix) [3:27]
+03 - Let It Ride (Kungs Remix) [3:43]
+04 - Let It Ride (Wongo Remix) [3:03](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:24:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C50F90FBD261BED0385469B4EFCACC154FC83F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798660   (66597) от 23.05.2025
+
+Ronnie Romero - Live At Rock Imperium Festival (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66597.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Cast Away On The Moon (03:57)
+ 02 - I've Been Losing You (04:59)
+ 03 - Chased By Shadows (05:45)
+ 04 - Ferrymen (05:39)(   Читать дальше...   )Жанр: Heavy Metal, RockПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B189DE729685A83D9BC91C710415B0F29F114142
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798643   (66596) от 23.05.2025
+
+Макс Вебер | Аграрная история Древнего мира (2006) [MP3, Станислав Федосов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перевод с немецкого под редакцией Д. Петрушевского
+Макс Вебер - немецкий социолог и экономист, крупнейшая фигура в мировой гуманитарно-социальной мысли XX века. Вебер внес особый вклад в философию истории, поставив на рельсы эмпирического исследования вопросы, доступные, как до него казалось, лишь отвлеченно-теоретическому, а то и вовсе умозрительно-спекулятивному (   Читать дальше...   )Жанр: Экономическая историяИздательство: АРДИСПродолжительность: 17:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B5CB6694132D1BA6FCEC756480D83812B8ACA1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798580   (66595) от 23.05.2025
+
+Козлов Игорь - 3 Albums (1990,1991) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1990 - Мальчики-налётчики
+1991 - Одесские дворики
+1991 - Привет от не уехавшего эмигрантаЖанр: ChansonПродолжительность: 4 CD, 02:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1F338E796CA6212986B43F38EF62DDF998B70C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798683   (66594) от 23.05.2025
+
+Skunk Anansie - The Painful Truth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - An Artist Is An Artist [3:12]
+02 - This Is Not Your Life [3:25]
+03 - Shame [4:07]
+04 - Lost and Found [4:16](   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7DEA183473D97B2E9F69F86BF42429DBF6FC9BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798641   (66593) от 23.05.2025
+
+Эльвис Каримов | Привет, я Эльвис! Бизнес без фильтров (2025) [MP3, Эльвис Каримов]
+
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга о том, как обычный парень шаг за шагом добивался своих целей и благодаря настойчивости в итоге пришел к построению компании – лидера рынка в сфере логопедии. История написана простым языком, в ней нет наставлений, но она мотивирует вас к действию и, возможно, поможет избежать некоторых ошибок. Книга не столько о бизнесе, сколько о жизни, о том, как важно следовать (   Читать дальше...   )Жанр: БизнесИздательство: Writer's WayПродолжительность: 07:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90C2F90301374D69C7B7DF6FAE83CA0AFE15092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798703   (66592) от 23.05.2025
+
+Энциклопедия Стамбула / Istanbul Ansiklopedisi (2025) WEBRip (сезон 1, серии 1-8 из 8) ViruseProject [AD]
+
+>>Зарубежные сериалы
+>>Сериалы с рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Доктор Несрин пытается разгадать загадку и доработать «Стамбульскую энциклопедию», написанную Решадом Экремом Кочу. Однажды в её дом приезжает Зехра — молодая девушка, которая приходится ей родственницей по материнской линии. Несрин помогает ей поступить в университет и знакомит с ритмом жизни большого города. Но далеко не все правила нового дома нравятся Зехре. (   Читать дальше...   )Производство: Турция / Tims & B ProductionsЖанр: драмаРежиссер: Selman NacarАктеры: Джанан Эргюдер, Хелин Кандемир, Каан Мирач Сезен, Незакет Эрден, Толга Текин, Эджем Сена Байыр, Ebrar Karabakan, Kerem Atasavun, Эрдем Шеноджак, Virgile Mangiavillano и др.Перевод: Двухголосый профессиональный (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:50:00 серияРеклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E24A512F57765791E7FDC9D4EAE47396495E889
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798773   (66591) от 23.05.2025
+
+Lenny Kravitz - Let It Ride Remixes, Pt. 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Let It Ride (HoneyLuv Remix) [3:32]
+02 - Let It Ride (DJ Ruckus & Nez Remix; Edit) [3:13]
+03 - Let It Ride (Notre Dame Remix; Edit) [4:10]
+04 - Let It Ride (Solardo Remix; Radio) [3:12](   Читать дальше...   )Жанр: Electronic, DanceПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12FEE7786874EC93847E486236546FEB85819E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798728   (66590) от 23.05.2025
+
+Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66590.jpg" />
+</div>
+
+
+###  Подробнее
+
+A. The Sword Woman (05:23)
+B. Voyage of the Sunchaser (05:33)Жанр: Epic Heavy, Doom MetalПродолжительность: 00:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CF38DEEC841A7DB49543DFD00A7CBBB67A7002
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798679   (66589) от 23.05.2025
+
+VA - Ori Uplift - Uplifting Only Episode 641 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Fletcher & Ruslan Aschaulov & Juan Almiñana Obando – Unforgettable Memories (Intro Mix)
+02. Bryce Keuris X Henry Moe X Aylin – Between The Stars
+03. Tycoos & Daisy Lou – Darkness Into Light (Daniel Kandi Remix)
+04. Ahmed Romel – Cupertino (SoundLift Remix) (Orchestral Uplifting Classic)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E506F61049E010F7DE3D0903B28BFB0ADD5159
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797344   (66588) от 24.05.2025
+
+Растровый клипарт - inpixell.studio - Creative Fabrica - Coquette Bow Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Дополнения
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66588.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Silvertone — это коллекция черно-белых пресетов Lightroom, которая мгновенно придаст вашим фотографиям монохромный характер.
-
-С момента изобретения первой камеры чёрно-белая фотография стала классикой среди таких известных фотографов, как Ансель Адамс и Роберт Франк. Эта коллекция пресетов позволит вам добиться тех же эффектов, создавая насыщенные и тонкие оттенки (   Читать дальше...   )Формат: LRTEMPLATE
+Клипарт с бантами.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F63D73B98B6CACA9A97906B83A21C5159F7F539
+magnet:?xt=urn:btih:68F401D14EDF57F39185AD11B70E884FDAEE9617
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -426,51 +560,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808088   (65050) от 22.07.2025
+###  Публикация: 1797179   (66587) от 24.05.2025
 
-Проекты - VideoHive - Music Visualizer Pack - 23792830 [AEP]
-
->>Проекты
->>Элементы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Light Studio представляет шаблон визуализации музыки для After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF481CECCE4E2A0838D2F4C699E1233E0B8F84B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808101   (65049) от 22.07.2025
-
-Шаблоны - Design Syndrome - Album Art Pack VOL.1 [PSD]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Watercolor Hat Clipart [PNG]
 
 >>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
+>>Растровый клипарт (иллюстрации)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66587.jpg" />
 </div>
 
 
 ###  Подробнее
 
-5 полностью настраиваемых PSD-шаблонов обложек.Формат: PSDРазрешение файлов: 3500x3500 - 4204x4204
+Акварельный клипарт с головными уборами.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B1B8DDB852A550E30237E7544742893DC26DE82E
+magnet:?xt=urn:btih:F8FC4E8BA289120A08905299BEC3F30EB58FD944
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -478,28 +586,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808053   (65048) от 22.07.2025
+###  Публикация: 1798706   (66586) от 24.05.2025
 
-Styx - Circling From Above (2025) [FLAC|Lossless|image + .cue] <Progressive Rock>
+VA - Kings of Ibiza 2025 (Real Deep Touch Downs) (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66586.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Для тех, кто не в курсе: группа Styx образовалась в Chicago в 1972 году, поднявшись от выступлений в местных барах до статуса звёзд рока. Несмотря на перемены в составе за десятилетия - в частности, уход одного из основателей Dennis DeYoung в 1999 году - нынешний состав, в который входят Tommy Shaw, James JY Young, Lawrence Gowan, Chuck Panozzo, Ricky Phillips, Todd (   Читать дальше...   )01. Circling From Above (1:56)
-02. Build and Destroy (3:52)
-03. Michigan (3:03)
-04. King of Love (3:29)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:41:09
+01. Kenhya - In the Ocean (Summer Dub Mix) (02:18)
+02. Calmabohain - Take Me Away (03:26)
+03. Lemongrass - Easy Rider (05:14)
+04. Mia Lemar - Drop by Drop (04:35)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:17:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1174F96EE8EABD1EEA8A5EDED907C7655D37DAB
+magnet:?xt=urn:btih:DCAF04FC58E94420EEE45530E1C787184BBB9970
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,25 +615,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807876   (65047) от 22.07.2025
+###  Публикация: 1797175   (66585) от 24.05.2025
 
-The Unarchiver - Unzip RAR ZIP 3.4.0 [Multi/Ru]
+Растровый клипарт - inpixell.studio - Creative Fabrica - Summer Vacation Clipart [PNG]
 
->>Программы для macOS
->>Утилиты для macOS
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Unarchiver - Unzip RAR ZIP - простое в использовании приложение, которое позволяет распаковывать десятки форматов архивов, такие как: Rar, Zip, 7z, Tar, Xz, Iso, Lha, bz2, Lzh, cab, cpio, jar, exe, pkg, dms, tbz, swf, Gzip, Bzip2. Также может сжимать и шифровать любые типы файлов, чтобы сделать личные данные более безопасными.Тип издания: macOS SoftwareРазработчик: © 2025 qing qing yuПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+Клипарт на тему летнего отпуска.Формат: PNGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F5BD30235E9B060BC313A163018AE177A43F6E3
+magnet:?xt=urn:btih:851CCD2FF664E44691A03B61BB430CB1D84AE294
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,25 +641,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808059   (65046) от 22.07.2025
+###  Публикация: 1797112   (66584) от 24.05.2025
 
-Алексей Широков | СССР 2010 (Книга 8) И вновь продолжается бой!  (2025) [MP3, Дмитрий Кузнецов]
+Паттерны - Free PSD Templates - Floral Patterns [PNG, AI, PSD, EPS]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С момента попадания Семёна «Чобота» Чеботарёва в реальность альтернативного Советского Союза прошло два года. И за этот период очень много изменилось в жизни хулигана и раздолбая, обернувшись такими событиями, представить который он раньше категорически не мог. Нашёлся родной дед, генерал-майор Калинин, Семён запустил и успешно развил целый ряд кооперативов. в конце (   Читать дальше...   )Жанр: Альтернативная история, ПопаданцыИздательство: ЛитРес: Чтец, АвторПродолжительность: 08:23:34
+Цветочные узоры в векторе и растре.Формат: PNG, AI, PSD, EPSРазрешение файлов: 5766 x 5800 - 5834 x 5828
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E1A694258FD5CE34B5815D628AF3CD32EB55C44
+magnet:?xt=urn:btih:D7C48FF099033107F3BFD961850000AEA56B9623
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,28 +667,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807989   (65045) от 22.07.2025
+###  Публикация: 1797708   (66583) от 24.05.2025
 
-Bryan Ferry - Boys And Girls (1985) 1st German Press [APE|Lossless|image + .cue] <Pop>
+Текстуры - MiksKS - Experimental Textures [JPG]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sensation (5:05)
-02. Slave To Love (4:27)
-03. Don't Stop The Dance (4:19)
-04. A Waste Land (1:02)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:22
+Бесплатные разнообразные текстуры.
+Разработчик: MiksKS
+Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 4096 x 4096
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:09E35676629DEB9CF7D590DC8B295CF08FF5063E
+magnet:?xt=urn:btih:FC5E56B065AB957BFEA0E43214FD87123696AC71
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,115 +695,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808125   (65044) от 22.07.2025
+###  Публикация: 1797962   (66582) от 24.05.2025
 
-Dwellers - Corrupt Translation Machine (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+Фоны - Graphic Studio - Creative Fabrica - Abstract Hearts Backgrounds [PNG]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66582.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Headlines (4:04)
-02.  Spiral Vision (4:21)
-03.  Old Ways (4:33)
-04.  The Beast (5:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:35
+Абстрактные фоны с сердечками.Формат: PNGРазрешение файлов: 3600 x 3600
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F22344EC37C579CF8C07D20C6C3DBBCC29CBB355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808087   (65043) от 22.07.2025
-
-Cyanide Grenade - Cannibal Era (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psychic Driving [00:02:06]
-02. Cannibal Era [00:04:33]
-03. No Place For Me [00:03:34]
-04. Keep Running [00:04:05](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8CFAC92ED1DE033EB0D2A6D335DB9847EF59FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808132   (65042) от 22.07.2025
-
-Florian Grey - Beautiful Nightmares (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  A.†.N. (4:12)
-02.  Dead by Dawn (4:09)
-03.  Forever (3:38)
-04.  A Beautiful Nightmare (3:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1AFC7430196A51B9CEC5102F5B0965DF4AAA951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808138   (65041) от 22.07.2025
-
-Galactic & Irma Thomas - Audience With the Queen (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65041.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  How Glad I Am (3:08)
-02.  Where I Belong (3:27)
-03.  Love's Gonna Find A Way Again (3:13)
-04.  Lady Liberty (3:18)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C397C0CE5ACE577E1C49D7FD55F3CC40EA1068B
+magnet:?xt=urn:btih:22C659EDFE5F6C2C8329EDB69C03E09126D586E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

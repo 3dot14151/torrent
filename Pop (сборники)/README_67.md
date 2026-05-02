@@ -1,3 +1,116 @@
+###  Публикация: 1041404   (583415) от 08.08.2016
+
+VA - Billboard TOP100 Single Charts (13.08.2016) (2016) [MP3|128-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sia feat. Sean Paul - Cheap Thrills
+02. Major Lazer feat. Justin Bieber & M0 - Cold Water
+03. Drake feat. Wizkid & Kyla - One Dance
+04. Calvin Harris feat. Rihanna - This Is What You Came For(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7AC71A0AEA27462CD23568072229B6EFB02BC12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041409   (583407) от 08.08.2016
+
+VA - Drive Best Hits Compilation Vol.10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583407.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaya Stewart - Sleepover
+02. Dj Marcous Feat. Aria - Tourist
+03. Cade - Care
+04. Chris Brown - Liquor(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DBB73B11A61C16EFDD066531DAD5722E6D0B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358985   (583097) от 05.07.2011
+
+VA - Музыкайф Европы Плюс Часть 3 (2011) [MP3|256 kbps]<Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583097.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: DanceПродолжительность: 06:00:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D688212839FC78BE2A7DB37AD1308AEAC617A78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553143   (582812) от 25.05.2022
+
+VA - Новички в попсе Vol 12 (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582812.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Manou - Против (2:55)
+002. NИКОЛЬ - Гори (2:22)
+003. NIKA DUBIK - Галлюцинации (2:36)
+004. Феодор - Цветочный аромат (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33B2759D7687363A771576D06796ACD1C04FC06A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919479   (582688) от 19.07.2015
 
 VA - Дискотека забытых хитов (зарубежная) - 15 (2015) [MP3|128 - 320 кб/с]<Pop, Disco>
@@ -596,116 +709,6 @@ VA - 1000% Ballads  (2011) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DDF0DCFF0C742BAB29A58AE51409662F15A0B793
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359429   (580885) от 07.07.2011
-
-VA - Лучшие Песни Русского Радио 3 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 11:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55273BCADD15E5F6DAFA001825CD44ADBFAA6423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920031   (580862) от 21.07.2015
-
-VA - Союз летних хитов на Europa Plus. Часть 6 (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580862.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Young Professionals Feat. Anna F - All Of It But Me (03:09)
-002. Анастасия Приходько - Ника (03:27)
-003. Chris Parker - Robot Romantic Love (03:39)
-004. Виктор Романченко - Я Услышу (03:31)(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C60ED180011B14CE33ED758CDA5A09464F4FF68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302519   (580258) от 16.05.2019
-
-VA - Records That You Play (2019) [MP3|320 Kbps] <Pop Dance, Electro Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580258.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Feel Ikx - E.D.P.
-002. Cooki - I Love You (Radio Edit)
-003. Wilson Netto - Flute
-004. Greazy Puzz - Broccoli(   Читать дальше...   )Жанр: Pop Dance, Electro DanceПродолжительность: 09:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC0999763A643AD2CF196B07D5AA8DF1008661C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 360339   (579914) от 08.07.2011
-
-VA - Зажигательное лето (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:129B91F68DE02600FB5DC8A8B6B124D8336F4921
 ```
 
 https://mybot314.ru/tekegram_catalog/

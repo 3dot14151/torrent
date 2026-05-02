@@ -1,3 +1,214 @@
+###  Публикация: 547992   (468859) от 17.09.2012
+
+Обитель зла: Возмездие / Resident Evil: Retribution (by Tomandandy) (2012) (tracks+.cue), [FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hexes (ft. Chino Moreno) [03:00]
+02. Flying Through the Air [03:48]
+03. First Blood [01:12]
+04. Tokyo Revisited [02:05]
+05. Corridor [02:52]
+06. Planting [04:05]
+07. Axemen [02:47]
+08. Fall Back [01:51]
+09. Imprinted [00:57]
+10. Suburbia [02:50](   Читать дальше...   )Жанр: ScoreПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058563   (468832) от 01.10.2016
+
+Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks] <Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Secret Meditation [00:12:15]
+02. Believe the Mental Power [00:13:20]
+03. On the Wings of Time [00:13:17]
+04. Reincarnation [00:08:22](   Читать дальше...   )Жанр: MeditationПродолжительность: 01:03:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA244E70745E24651D5FA118BC5C81A8DC8AC3E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 92549   (468156) от 06.09.2020
+
+VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы устали, и ничего не радует?
+Может быть, это стресс отнимает у Вас силы и лишает возможности радоваться жизни?
+Остановитесь на мгновение. Расположитесь поудобнее, включив этот диск. Вы обретете состояние равновесия и душевного покоя, почувствуете, как легкость и тепло разливаются по Вашему телу. Мир вокруг наполнится красками и ароматами экзотических цветов. Придут (   Читать дальше...   )01. Kowa - Rising Sun (4:39)
+02. Magec - Rainy Day (8:14)
+03. Arno - From a Distance (5:20)
+04. Mind Over Matter - The Lotus is opening (3:52)(   Читать дальше...   )Жанр: DreamMusicПродолжительность: 00:58:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E61CC34F48863399C4F75C7679C98F7B0D7E5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 377804   (468155) от 06.09.2020
+
+Richard Clayderman - Plays The Music Of ABBA (2010) Compilation [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mamma Mia (3:15)
+02. Waterloo (3:01)
+03. Dancing Queen (3:46)
+04. The Winner Takes It All (3:04)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:55:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8E4F884CFC74CB375B2E758F22EEF6B618E529C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245978   (467787) от 08.09.2018
+
+VA - Mystera V (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigma - Gravity Of Love
+02. Highland - Bella Stella (Non Rap Radio Mix)
+03. Clannad - Ri Na Cruinne
+04. Michael Flatley's Lord Of The Dance - The Lord Of The Dance(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:20:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D1A44E6C89AA911665408F5EF23B53F58B63BB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245937   (467670) от 08.09.2018
+
+VA - Mystera (1998) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morana - Mystera
+02. Era - Ameno
+03. Enigma - Sadness Pt. 1
+04. Gregorian - So Sad...(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:12:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A888C41B88618A382A2DD3197629A1EB0957CACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245999   (467669) от 08.09.2018
+
+VA - Mystera IX (2002) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467669.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Era - Divano
+02. Vangelis - Light And Shadow
+03. Highland - Quo Vadis
+04. Oliver Shanti & Friends - Journey To Shambala(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:16:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04FEDF1A66922FB5B154A9CDF0EC0020242E9555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1246006   (467658) от 08.09.2018
 
 VA - The Best Of Mystera (2001) 2CD [FLAC|Lossless|tracks + .cue] <NewAge>
@@ -537,209 +748,6 @@ Joel Nielsen - Black Mesa Source Soundtrack (2012) [MP3|320 кб/с]<Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D49FF2007F203724193D6D550894766B9E023C3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058890   (464044) от 03.10.2016
-
-Patrick Watson - The 9th Life of Louis Drax / Девятая жизнь Луи Дракса (2016) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Louis Drax
-02. Helicopter0
-03. Clouds
-04. The Red Dress(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FE60D8B8667E179C3CB140251843D62501D80BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058835   (464024) от 03.10.2016
-
-Oliver Scheffner - Ambient Dream Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Under the Rainbow
-02. Summer Night of Starfalls
-03. Fly to the Dream
-04. Forest of Sprites(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 01:13:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6D7D09D0F2796CC162C83B9B42583CE0AAF49DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161968   (463649) от 30.08.2017
-
-Jules Calmer - Deserted Paradise (2017) [MP3|320 Kbps] <Ambient, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cold Dream (Original Mix)
-02. For The First Time (Original Mix)
-03. In The Stories (Original Mix)
-04. King Emar (Original Mix)(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 00:41:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98D8761851E7FA604B359AF787820C8E0C5BDF1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1161403   (463225) от 30.08.2017
-
-VA - Baby Driver / Малыш на драйве (Music from the Motion Picture) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Jon Spencer Blues Explosion - Bellbottoms (05:16)
-02. Bob & Earl - Harlem Shuffle (02:48)
-03. Jonathan Richman - Egyptian Reggae (02:37)
-04. Googie Rene - Smokey Joe's La La (02:55)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68D2F3D4631B2F889D03FDD63BC0A59121922EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941550   (462714) от 27.09.2015
-
-Peter Kater - Love (2015) [MP3|320 кб/с]<New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love
-02. Innocence
-03. Deeply
-04. Intimacy(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:11:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EA8D163E62C6ACE98DA303424BCA361CAEC8AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941221   (462056) от 27.09.2015
-
-Blackmore's Night - All Our Yesterdays (2015) [FLAC|image+.cue]<Folk Rock, Rock, Celtic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All of Our Yesterdays
-02. Allan Yn N Fan
-03. Darker Shade Of Black
-04. Long Long Time(   Читать дальше...   )Жанр: Folk Rock, Rock, CelticПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B503EE9DBD4FC02CA0B94883410B6285B91EEF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059478   (461967) от 04.10.2016
-
-Traces - The Rivers Of Belief (2002) [APE|Lossless|image + .cue] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rivers Of Belief
-02. Pray
-03. Sweet Dreams
-04. S.O.S. For Love(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20D5502C23D95C6A2242D951901BFF27B130B8A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

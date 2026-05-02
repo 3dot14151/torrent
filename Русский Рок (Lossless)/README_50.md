@@ -1,3 +1,32 @@
+###  Публикация: 1621576   (200878) от 25.03.2023
+
+ДДТ (DDT) - Творчество в пустоте - 2 (2022) Digibook [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200878.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Эволюция, ре…
+3. Ваши вещи мертвы
+4. Лажа(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13088CE332255BBCF1538E2B441308517B4B981B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623449   (200308) от 04.04.2023
 
 Воскресение - Юбилей с симфоническим оркестром (2023) 2xCD [FLAC|Lossless|image + .cue] <Classical Rock>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBEABA416703D4077FDC07413C9537321F0FC760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658548   (191000) от 09.09.2023
-
-60mm - Тринадцать + (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Два часа [00:03:06]
-02. Буря [00:03:13]
-03. Мы готовы [00:03:36]
-04. Мыслями смелой [00:03:22](   Читать дальше...   )Жанр: Alt.Rock, Female VocalsПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97ABE268D0D4D2B24410BB769C80A4821D809D7A
 ```
 
 https://mybot314.ru/tekegram_catalog/

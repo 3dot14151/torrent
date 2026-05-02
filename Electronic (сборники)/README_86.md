@@ -1,3 +1,61 @@
+###  Публикация: 1133117   (696780) от 11.05.2017
+
+VA - Kiss FM TOP 40: Май (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Platon feat. Joolay - Last (Radio Edit)  3:32
+02.  Ed Sheeran - Shape Of You (Holderz Remix)  4:07
+03.  Armin van Buuren & Garibay feat. Olaf Blackwood - I Need You (Extended Club Mix)  5:30
+04.  Raving George - You're Mine (DJ Antonio & Astero Club Remix)  4:43(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D9900C4ED12DEA324452E5378E08AE52770B69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133216   (696779) от 11.05.2017
+
+VA - Best Chillout Vol.29 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696779.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AK - Memories (Original mix) 3:17
+002. Alex Greenhouse, Julia Cage - I Don't Know  (Chillout Mix) 3:45
+003. AnimoEx - Depth 6:07
+004. Antonio - Emotion (ft. Charles) (Endless R Remix) 3:36(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 07:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:659275FAFBDCE6C18EAF37296535300D5EBC7B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133254   (696708) от 11.05.2017
 
 VA - Keep Moving: 100 Progressive Mix (2017) [MP3|320 Kbps] <Progressive House, Electro House>
@@ -687,64 +745,6 @@ VA - Intellectual House [Compiled by Zebyte] (2017) [MP3|256-320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A160E9E5969AECB27C17033480A437A244D84A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133610   (691657) от 14.05.2017
-
-VA - Damned Thoughts: Drumm And Bass Mix (2017) [MP3|320 Kbps] <Drumm and Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691657.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Concord Dawn - The Fuzz 5:14
-002. Curtis B - Residual Pixie Dust 4:02
-003. Dj Magic Mike - Eruption 5:33
-004. Dolphin - Snow Hill Massacre 5:13(   Читать дальше...   )Жанр: Drumm and BassПродолжительность: 04:35:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6216733B5D09D481B7A979173033E542940C90F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133608   (691649) от 14.05.2017
-
-VA - Inner Harmony (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691649.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Arms And Sleepers - Miami 3:38
-002. Amure - First Contact 6:40
-003. Alkemx - Time To Lounge 4:49
-004. Amateur Dance - Love System 7:16(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 07:50:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20BF2D307ED70B0F740F787FA17DCD3464DEFC40
 ```
 
 https://mybot314.ru/tekegram_catalog/

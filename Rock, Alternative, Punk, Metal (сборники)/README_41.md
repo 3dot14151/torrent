@@ -1,3 +1,61 @@
+###  Публикация: 1634266   (198204) от 21.05.2023
+
+VA - Rock & Ballads Part 21 Compilation (2023) [MP3|320 Kbps] <Rock Ballads>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandra Hall - Jump Into My Fire
+02. Tas Cru - Can't Get Over Blues (Again)
+03. Floyd Lee - When You Break A Young Girls' Heart
+04. Tas Cru - Brand New Shoes(   Читать дальше...   )Жанр: Rock BalladsПродолжительность: 01:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64AFE0AE5F8466EC8530E398B8D930BC22C7125B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634248   (198192) от 21.05.2023
+
+Helloween - Collection (2023) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_198192.jpg" />
+</div>
+
+
+###  Подробнее
+
+Helloween люблю с юности. Почти все альбомы сильные. Крутой вокал. До появления интернета, я понятия не имел, что начиная с 94 года, музыканты сменили вокалиста. Настолько голоса похожи, что если не знаешь, то и не поймёшь, что это другой поёт. К концу 90х, группа не поддалась на веяние ядовитой моды и не ушла в сторону скучной, примитивной альтернативы. Команда (   Читать дальше...   )001. Initiation
+002. I'm Alive
+003. A Little Time
+004. Twilight Of The Gods(   Читать дальше...   )Жанр: MetalПродолжительность: 14:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6050E387A42540695A93DE83E8B880FF98A65284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647115   (195643) от 17.07.2023
 
 VA - Modern Rock (2023) [MP3|320 Kbps] <Rock>
@@ -687,64 +745,6 @@ Janiva Magness - Compilation (2022) [MP3|320 Kbps] <Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC9C25FFF130769EB7EA4E9092A72DCCBFE3B468
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594588   (176686) от 03.12.2022
-
-VA - Female pop rock part  11 Compilation (2022) [MP3|320 Kbps] <Pop Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iyeoka - Simply Falling (Instrumental Mix)
-02. Kaz Hawkins - At Last
-03. Meena Cryle - Try Me
-04. Iyeoka - Broken Hearts Anthem (Walk Away)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA495EC5235C354CDB248517B74998C54C6230E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429307   (176523) от 06.12.2020
-
-VA - Classic Rock Melody (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_176523.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рок — одно из самых «живучих» и любимых музыкальных направлений на протяжении нескольких десятков лет. «Монстры» рок-сцены и перспективные новички из поколения в поколение находят своих преданных поклонников, а многие из них и вовсе стали настоящим олицетворением эпохи!001. Stereophonics - This Life Ain't Easy
-002. Pinch Points - Stainless Steel
-003. Dylan Leblanc - I See It In Your Eyes
-004. Ken Hensley - From Time To Time(   Читать дальше...   )Жанр: RockПродолжительность: 06:59:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F5FEFA4049BE427D5F577458800DCA64FEBF34
 ```
 
 https://mybot314.ru/tekegram_catalog/

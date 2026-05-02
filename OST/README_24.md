@@ -1,3 +1,60 @@
+###  Публикация: 1322251   (170462) от 10.12.2019
+
+VA - The Texas Chainsaw Massacre: The Beginning / Техасская резня бензопилой: Начало (2006) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170462.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free - All Right Now
+02. The Ides of March - Vehicle
+03. The Dixon Brothers - A Church At The Foot Of The HillЖанр: SoundtrackПродолжительность: 00:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5CE58F38588D6C0F27CAE7826658F347DFC1AEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596632   (168200) от 12.12.2022
+
+John Debney - Один дома / Home Sweet Home Alone (2021) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cousin Chaos
+02. What's With You Today
+03. Hunter And Uber Jeff
+04. It's A Christmas Miracle(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D82B716AA36B1783D166D8426803082DE9048B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344711   (166481) от 15.12.2019
 
 Sean Kolton - MechWarrior 5: Mercenaries Digital Deluxe Edition (2019)  [MP3|320 Kbps] <OST, Soundtrack>
@@ -720,64 +777,6 @@ Ennio Morricone - Il Grande Silenzio / Un Bellissimo Novembre (1968) Reissue, 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9098AE8F3F85C9B93609265AE862FC237C795575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696601   (119517) от 03.02.2024
-
-VA - Александр Зацепин. 31 июня (2021) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Оркестр п/у М. Фадеева - Вступление
-02. Жанна Рождественская - Песня леди Джейн
-03. Лариса Долина - Драконография
-04. Татьяна Анциферова - Чарльстон(   Читать дальше...   )Жанр: <Soundtrack>Продолжительность: 01:17:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F08E2E23990C9FAC124C894B4B7477B99288CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733148   (107358) от 28.06.2024
-
-Иванушки International - Тур с Иванушками (2024) [MP3|320 Kbps] <OST, Pop>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107358.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Кукла
-2. Поверь, мне тоже очень жаль
-3. Вселенная
-4. Миллионы огней(   Читать дальше...   )Жанр: OST, PopПродолжительность: 01:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64B78F4AFB36957B6FCF01FD5BC03386E949DFB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,52 +1,24 @@
-###  Публикация: 1527533   (736936) от 28.01.2022
+###  Публикация: 1397561   (739899) от 21.07.2020
 
-Mirror for Panasonic TV 3.7.3 [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Panasonic. Никаких проводов и дополнительных аппаратных средств не требуется.
-Mirror for Panasonic позволяет отображать экран вашего Mac на любом телевизоре Panasonic Smart TV. Никаких проводов и дополнительного оборудования не требуется. Вы также можете передавать отдельные видеофайлы с (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C026EDE02BCAF24A2C84DCAEF08D43D54162CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527431   (736935) от 28.01.2022
-
-ArchCommander 2.2 [Multi]
+Kiwi for Gmail 2.0.36 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736935.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739899.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение ArchCommander - это легкий файловый менеджер архивов для macOS.
-• Browsing
-• Просмотр элементов
-• Создание новых архивов(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2010-2022 Marcin LabenskiПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и Польский
+Kiwi for Gmail - Полноценный клиент электронной почты для Gmail на Mac. С точки зрения функциональности он мало отличается от веб-сайта, зато дизайн порадует ценителей красивых интерфейсов.
+
+Kiwi for Gmail единственное в своем роде приложение, которое поддерживает все функции Gmail, По сути это тот же веб-интерфейс, но обернутый в дружелюбную оболочку и не зависим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2020Разработчик: Zive, Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BFA2C6F7F189172AD51D9A3BF5B050C1720BF18
+magnet:?xt=urn:btih:FA7CEF44D21EB08CD3703453266AF79310D9D446
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,25 +26,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527469   (736934) от 28.01.2022
+###  Публикация: 1397445   (739898) от 21.07.2020
 
-4K Stogram Pro for Mac 4.2.3 [Multi/Ru]
+Disbelief - The Ground Collapses (2020) [FLAC|Lossless|tracks] <Death Metal, Sludge Metal>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_739898.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ground Collapses (06:00)
+02. Scaring Threat (05:35)
+03. The Awakening (03:07)
+04. Killing to the Last (03:50)(   Читать дальше...   )Жанр: Death Metal, Sludge MetalПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397628   (739897) от 21.07.2020
+
+ExactScan Pro 20.7.13 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736934.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739897.jpg" />
 </div>
 
 
 ###  Подробнее
 
-4K Stogram — это десктопный клиент Instagram для Mac, который позволяет скачивать и сохранять фотографии любого пользователя Instagram. Приложение, кроссплатформенно и имеет открытый исходный код. Просто введите имя пользователя или вставьте ссылку на фотографию и нажмите «Follow User». Попробуйте! Также вы можете использовать 4K Slideshow Maker для создания слайд-шоу.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2022 OpenMedia LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+ExactScan – современное решение для сканирования, в состав которого входит более 400 различных драйверов для сканеров документов от таких изготовителей как Avision, Canon, Fujitsu, HP, Kodak, Oki, Panasonic, Visioneer и Xerox. для которых изготовитель не предоставляет драйверы под операционную Mac OS, и, соответственно, без таких драйверов они не могут работать под (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.07.2020Разработчик: ExactCODE GmbHПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0443FC014220226BD61D61C5B7CDFC3E4D7B9339
+magnet:?xt=urn:btih:10DAB2193B3ABA8567C4C05E926A58629C756BC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -80,54 +81,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527494   (736933) от 28.01.2022
+###  Публикация: 1397660   (739896) от 21.07.2020
 
-VA - Cafe Deluxe Chillout - Nu Jazz / Lounge, Vol. 8 (2022) [AAC|~297 Kbps] <Easy Listening, Lounge, Nu Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nightview - Deep Flow (3:43)
-02. Soundset City - Sweeping (3:55)
-03. Jean Mare - Break of Day (3:10)
-04. Soundset City - Smooth and Funky (2:59)(   Читать дальше...   )Жанр: Easy Listening, Lounge, Nu JazzПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8210F5B8474FD4B118B9D70DD04A74EAB891887E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527356   (736932) от 28.01.2022
-
-NetWorker Pro 8.2.5 [Multi]
+Футбол. Примера Дивисьон (Ла Лига). Чемпионат Испании 2019-2020. Обзор 34-го тура (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736932.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739896.jpg" />
 </div>
 
 
 ###  Подробнее
 
-NetWorker - это приложение, которое удобно отображает информацию о сети в строке меню. А также имеет окно с дополнительной информацией о текущем активном сетевом адаптере.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2016-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5+Язык интерфейса: Английский и др.
+Примера Дивисьон (Ла Лига). Чемпионат Испании по футболу 2019-2020.
+Обзор матчей 34-го тура.Телекомпания: Матч! Футбол 1 HDЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:41:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FD1FB5F503E86FF66862E42314F17BF68298332D
+magnet:?xt=urn:btih:699B6EAEB880E00718C3E932C716B68864D6FE87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,28 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527344   (736931) от 28.01.2022
+###  Публикация: 1397558   (739895) от 21.07.2020
 
-Insania - V (Praeparatus Supervivet) (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Power Metal>
+Nicky Romero - Live @ Another World (DJ Mag Top 100 DJs Virtual Festival 2020-07-18) [MP3|320 Kbps] <Electro House, Big Room>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736931.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_739895.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Praeparatus Supervivet
-02. Solur
-03. Prometheus Rise
-04. Moonlight Shadows(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:10:18
+01. Armin van Buuren & Nicky Romero ft. Ifimay - I Need You To Know (Intro Edit)
+02. Thomas Feelman & Almero ft. OMZ - Rise Above w/Axwell ft. Errol Reid - Nothing But Love (Acappella)
+03. Jamie Lewis ft. Michael Watford - For You (Put Your Hands Up In The Air Acappella)
+04. Camarda & Almero - They Don't Know(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 01:57:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DCF255E05E9A7ACD10979FC75C697C9B8EEDDA4
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -164,54 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527482   (736930) от 28.01.2022
+###  Публикация: 1397342   (739886) от 21.07.2020
 
-Клоун Коко и его добыча / KoKo's Catch (1928) TVRip [H.264]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Макс, похоже, еще тот ходок. Во всяком случае, когда у него появилась новая секретарша, все его внимание сосредоточилось на ней. А от своих старых друзей Коко и Фитца он просто отмахнулся. И они остались предоставлены сами себе...Производство: США, Inkwell StudiosЖанр: Рисованная анимация, короткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: Немой с интертитрамиСубтитры: Английские интертиры, русские встроенные отключаемыеПродолжительность: 00:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49EFF8CFA9FCF64214AEEC13DE184A1FA2F6E766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527333   (736929) от 28.01.2022
-
-Dianthus - Realms (2022) [MP3|320 kbps] <Alternative, Progressive Metal, Female Vocal>
+Datum X - Burn The Soul (2020) [MP3|320 Kbps] <Melodic Death Metal, Gothic Metal, Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736929.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Realms (05:42)
-02. My First Breath (03:10)
-03. Don't Change (04:01)
-04. Creeping In (02:41)(   Читать дальше...   )Жанр: Alternative, Progressive Metal, Female VocalПродолжительность: 00:45:22
+01. Images ( Memories, Pt. 1) (03:29)
+ 02. Burn The Soul (04:56)
+ 03. By My Side (04:29)
+ 04. Into Resurrection (01:45)(   Читать дальше...   )Жанр: Melodic Death Metal, Gothic Metal, Symphonic MetalПродолжительность: 01:39:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A00C7ECAEBDFAE76291D194B553E4F0B5BA4658
+magnet:?xt=urn:btih:F4555C1F24B76DA97B036D9865DF21E182DF8BBD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,26 +166,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527526   (736928) от 28.01.2022
+###  Публикация: 1397500   (739885) от 21.07.2020
 
-EverWeb (Standalone) 3.6.1 [En]
+Синица (1944) WEBRip [H.264] [hand made colored]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739885.jpg" />
+</div>
+
+
+###  Подробнее
+
+При встрече с Воробьём Синица расхвасталась, что она может поджечь море. Скоро молва об этом облетела всех обитателей леса. Множество зверей собралось посмотреть на то, как Синица будет поджигать море… Цветной.Производство: СССР, СоюзмультфильмЖанр: Рисованная анимация, Детский, БасняРежиссер: Александр Иванов, Мстислав ПащенкоСубтитры: отсутствуютПродолжительность: 00:07:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CB38D5423689BB090061182DD98A5ED19FA511F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397609   (739884) от 21.07.2020
+
+Шоу-группа "Киндер Сюрприз" - Танцы на крыше (2004) [MP3|320 Kbps]<Детские песни>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Дед Мороз
+02. Кораблик детства
+03. Бархатный сезон
+04. Венеция(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73BBB52337EF92FF4BF18AFAED2D2305F40F34BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397524   (739883) от 21.07.2020
+
+Mate Translate 7.0.0 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736928.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С EverWeb любой может создать профессиональный веб-сайт, просто перетаскивая его. Используйте один из встроенных шаблонов или начинайте с нуля и создавайте идеальный веб-сайт для вашего бизнеса или личного хобби. Добавьте текст, фотографии, видео, виджеты и многое другое, чтобы легко создать нужный веб-сайт.
-EverWeb даже создает мобильные сайты, которые отлично смотрятся (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2022 RAGE SoftwareПоддерживаемая ОС: OS X 10.13 +Язык интерфейса: Английский
+Прекращайте изучать языки и заниматься переводом старыми неэффективными способами. Mate Translate – это исчерпывающие словари 103 языков мира, разговорники, синхронизация переводов и фраз между всеми вашими устройствами и прямой доступ через вашу панель меню Mac.
+
+Mate Translate обладает невероятно полной базой данной словарей для мгновенного перевода между 103 языками. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.07.2020Разработчик: Twopeople Software LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F64013588D39BD3BDC5E73A5A92C707199136524
+magnet:?xt=urn:btih:41428294F1B3396C0035CFE317F8838282169CCF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,25 +249,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527477   (736927) от 28.01.2022
+###  Публикация: 1397487   (739882) от 21.07.2020
 
-Мэри Пикфорд. Стопроцентная американка / One Hundred Percent American (1918) DVDRip
+Футбол. Кубок России  2019-2020. 1/2 Финала. Урал — Химки (2020) IPTVRip [H.264/1080p-LQ]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Четвертый Займ Свободы, выпущенный в конце 1918 года так увлек Мэри Пикфорд, что распространились слухи, будто она собирается отбыть за океан и помогать там армии. Она снялась в короткометражном пропагандистском фильме «Стопроцентная американка», где сыграла Мэйм, бедную девушку, которая отказывается от поездок на трамвае и идет две мили пешком, чтобы сберечь пять (   Читать дальше...   )Производство: США, Famous Players-Lasky Corporation / Liberty Loan CommitteeЖанр: Короткометражка, немое киноРежиссер: Артур РоссонАктеры: Мэри Пикфорд, Лоретта Блейк, Теодор Рид, Генри Бергман, Монте Блу, Джоан МаршПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские встроенные отключаемыеПродолжительность: 00:14:24
+Олимп — Кубок России по футболу 2019-2020. 1/2 Финала.
+19 июля 2020, воскресенье. 13:00 МСК
+Урал (Екатеринбург) — Химки (Химки)
+Стадион: Екатеринбург Арена (Екатеринбург, Россия), 3407 зрителей (10 % при вместимости 35696)(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:53:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:905CC1BD17F076FC4A6911FE99AC242AF15A5847
+magnet:?xt=urn:btih:F6E0FBCCABEDF7FED7BB6B1B82660A09E2F8CBBE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -272,28 +278,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527258   (736926) от 28.01.2022
+###  Публикация: 1397525   (739881) от 21.07.2020
 
-VA - Best of Cafe De Anatolia 3 (2020) [AAC|~317 Kbps] <Chill Out, Downtempo, Organic House>
+Футбол. Примера Дивизион (Ла Лига). Чемпионат Испании 2019-2020. 34-й тур. Вильярреал — Барселона (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jose Solano - Kanun (8:06)
-02. Martin Hiska - Dust (4:59)
-03. Serkan Eles - Tevafuk (6:29)
-04. Elias Fassos, RisK (Gr) - Sunset in Ayia Napa (7:08)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 04:03:55
+Примера Дивизион (Ла Лига). Чемпионат Испании по футболу 2019-2020. 34-й тур
+Вильярреал (Вильярреал) — Барселона (Барселона)
+Стадион: Керамика - Эль-Мадригал (Вильярреал, Испания), вместимость: 25000
+Главный судья: Карлос Дель Серро Гранде (Испания);(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:44:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5466EE284D2FB3807B2D9D1550591D6337169FE3
+magnet:?xt=urn:btih:38B57B2F494E3353CCF658273B43B61E79972A56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -301,30 +307,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527337   (736925) от 28.01.2022
+###  Публикация: 1397612   (739880) от 21.07.2020
 
-Pyramaze - Epitaph (2020) [FLAC|Lossless|image + .cue] <Power Metal, Progressive Metal>
+Шоу-группа "Киндер Сюрприз" - Фантазёры (2011) [MP3|320 Kbps]<Детские песни>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PYRAMAZE - ведущая Progressive/Power Metal группа из Дании, сформированная в 2001-ом году.
-В 2007 году бывший вокалист Iced Earth Matt Barlow предстал в качестве нового вокалиста Pyramaze и записал с ними альбом "Immortal" (2008).
-С 2011-го года к составу группы в качестве гитариста присоединился самый известный датский продюсер Jacob Hansen.01. Epitaph
-02. A Stroke Of Magic
-03. Steal My Crown
-04. Knights In Shining Armour(   Читать дальше...   )Жанр: Power Metal, Progressive MetalПродолжительность: 01:01:46
+01. Русская мозаика
+02. Фантазёры
+03. Мама
+04. Облако чудес(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:30:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C45B02FD9019D5323A22F2050EF387139A3C7964
+magnet:?xt=urn:btih:3A2B427EF55CBCDC226C88EDBEC656670BEF9DD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -332,28 +336,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527500   (736924) от 28.01.2022
+###  Публикация: 1397483   (739879) от 21.07.2020
 
-VA - Vintage Remix Cafe (2022) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo, Pop>
+Kenny Segal & Serengeti - AJAI (2020) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sarah Menescal - Here Comes the Sun (Remix) (2:38)
-02. Urban Love, Bellestar - Love is in the Air (Bellestar Remix) (3:13)
-03. Banda Do Sul, Cherie Currie - Here Today, Gone Tomorrow (Positive Remix) (2:49)
-04. Banda Do Sul, Natalie Renoir - Watermelon Sugar (Ronan Remix) (2:42)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, PopПродолжительность: 00:56:16
+01. Ajai (3:01)
+02. dont wear that suit ajai (2:38)
+03. company softball (1:38)
+04. summary (2:13)(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:43:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F11220FECC9F937C9C0A510AA713131C0E57879
+magnet:?xt=urn:btih:1EC5768FD0F2A4B0BFB67A2FECBC167684336F3C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -361,28 +365,190 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527426   (736923) от 28.01.2022
+###  Публикация: 1397505   (739878) от 21.07.2020
 
-MaxCommander 2.3.1 [Multi]
+Уилл Фергюсон | Черные фигуры (2020) [MP3, Всеволод Кузнецов]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английский писатель Уильям Блэр Фергюсон по большей части жил в США. Первые его книги были посвящены жокеям и скачкам. Однако главным образом его творчество было отдано детективу. Его лучшим романом стал «Черные фигуры» (другой вариант названия «Черные»).
+«Черные фигуры». Всем известно, что пьянство до добра не доводит. Пришло время Питеру убедиться в этом лично. (   Читать дальше...   )Жанр: ДетективПродолжительность: 05:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78821873EBF136ED713D2945704DA6A8F0056E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397493   (739877) от 21.07.2020
+
+Футбол. Кубок России  2019-2020. 1/2 Финала. Зенит — Спартак (2020) IPTVRip [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Олимп — Кубок России по футболу 2019-2020. 1/2 Финала.
+19 июля 2020, воскресенье. 18:30 МСК
+Зенит (Санкт-Петербург) — Спартак (Москва)
+Стадион: Газпром Арена (Санкт-Петербург, Россия), 7548 зрителей (11 % при вместимости 68134)(   Читать дальше...   )Телекомпания: Матч! Премьер HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:57:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00AE35D25461E7E9E13C17CA68F1AA024025073
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397620   (739876) от 21.07.2020
+
+Австралийский Чемпионат суперкаров. Этап 4. Сидней СуперСпринт. Гонка 1-3 / Virgin Australia Supercars Championship. Truck Assist Sydney SuperSprint. Race 1-3 (18-19.07.2020) WEB-DL [H.264/720p-LQ]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_739876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Австралийский чемпионат по шоссейно-кольцевым автогонкам среди легковых автомобилей сезона 2020 года — Этап 4.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: РусскийПродолжительность: 1:44:33 + 1:28:47 + 1:28:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397461   (739875) от 21.07.2020
+
+Серия Кубков NASCAR-2020. Техас 500 / NASCAR Cup Series 2020. O’Reilly Auto Parts 500 (2020) WEB-DL [H.264/720p-LQ]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_739875.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 этап Nascar Cup Series, O'Reilly Auto Parts 500, Texas Motor Speedway (334 Laps, 501 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортПродолжительность: 04:55:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397563   (739874) от 21.07.2020
+
+Воинственные бобры (1939) TVRip [H.264] [hand made colored]
+
+>>Мультфильмы
+>>Отечественные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мультфильм о том, как бобры отстроились после наводнения и прогнали рысь со своего острова. Цветной.Производство: СССР, СоюзмультфильмЖанр: Рисованная анимация, Детский, СказкаРежиссер: Александр Беляков, Дмитрий БабиченкоСубтитры: отсутствуютПродолжительность: 00:09:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFB64D625F90BDF4FDE5C53B2C501EFDDC3A21F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397499   (739873) от 21.07.2020
+
+Серия Кубков NASCAR 2020. 18-й Этап. Техас 500. Гонка / NASCAR Cup Series 2020. Round 18. O'Reilly Auto Parts 500. Race (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_739873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия Кубков NASCAR 2020 года - 72-й сезон профессиональных гонок серийных автомобилей NASCAR (Национальная Ассоциация гонок серийных автомобилей) в США и 49-й сезон Кубка современной эры.
+19 июля 2020 года. Форт-Уэрт (штат Техас, США).
+18-й Этап. Техас 500 (O'Reilly Auto Parts 500)
+Гонка(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: АвтоспортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 03:57:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397594   (739872) от 21.07.2020
+
+SimpleMind Pro 1.26.1 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MaxCommander - это все, что вам нужно для управления файлами на локальных дисках и удаленных файловых серверах. Приложение поддерживает следующие операции:
-• Просмотр папок
-• Предварительный просмотр файлов с помощью QuickLook
-• Редактирование файлов(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © © 2010-2022 Marcin LabenskiПоддерживаемая ОС: macOS 10.13.6+Язык интерфейса: Английский, Немецкий и Польский
+Визуальная фиксация и организация идей, мыслей, информации и их взаимосвязей при помощи ментальных карт. С этой программой сразу же можно заняться именно построением ментальных карт, простота и удобство, плюс приятный дизайн и синхронизация с Dropbox.
+
+SimpleMind - это инструмент для построения интеллект-карт, который превращает ваш Мас в устройство для мозгового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.04.2020Разработчик: SimpleappsПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7342FA241FF5BB066C9127816B4E3C0E39394E0B
+magnet:?xt=urn:btih:4A24B712BAF082C342B614E718B2673A42E565C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,57 +556,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527262   (736922) от 28.01.2022
+###  Публикация: 1397600   (739871) от 21.07.2020
 
-Stone - Studio Albums (1988 - 1991) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Speed/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Stone - финская трэш-метал-группа, образованная в Кераве в 1985 году.1988 - Stone
-1989 - No Anaesthesia!
-1990 - Colours
-1991 - Emotional PlaygroundЖанр: Speed/Thrash MetalПродолжительность: 03:20:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE6EECB4FD1BFAAE3121B78F44340EB12F02333B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527194   (736921) от 28.01.2022
-
-VA - Chilled Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Trip-Hop>
+VA - After Sunset Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
 
 >>Electronic
 >>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Angelina Astle - Tomorrow (3:57)
-02. Gerald Peklar & India - Crossword (Gerald's Gone Mix) (4:04)
-03. Greta Gaia - Parallel Universe (News 2122 Mix) (3:19)
-04. India & The Reflex Artists - I Don't Wanna Cry (Remaster) (3:20)(   Читать дальше...   )Жанр: Chillout, Downtempo, Trip-HopПродолжительность: 02:14:23
+01 Peter Pearson - Your Gentle Eyes (Original Mix)
+02 Michael E - Lovely as a Summer Day
+03 Michael E, Tim Gelo - All That We Are
+04 Tigerforest - Azure(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:23:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EFE959CF7DD1ED2262652DB45E8C0BA9C977F598
+magnet:?xt=urn:btih:F2111CE13EB6C7D23997F5DC5A76B12AAA3E9D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,193 +585,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527343   (736920) от 28.01.2022
+###  Публикация: 1397608   (739870) от 21.07.2020
 
-St. Paul & The Broken Bones - The Alien Coast (2022) [FLAC|Lossless|WEB-DL|tracks] <Soul, Jazz, Vocal>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 3000AD Mass (1:21)
- 02. Bermejo And The Devil (2:19)
- 03. Minotaur (4:38)
- 04. Atlas (2:12)(   Читать дальше...   )Жанр: Soul, Jazz, VocalПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B3C41A7783175FF40799951DD8A03F01D54E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527352   (736919) от 28.01.2022
-
-Grids for Instagram 7.0.17 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grids переносит лучшее из Instagram на ваш Mac. Grids for Instagram - простая и удобная программа имеющая чистый не отвлекающий пользовательский интерфейс на Русском языке, позволит вам просматривать свою учетную запись в популярном сервисе Instagram. Самый большой плюс приложения в том, что вы сможете подключать к нему несколько аккаунтов и потом между ними легко (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: ©2017 ThinkTime CreationsПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CD15ECEA11CB59C3ED6AAAE2CA1B646BBBDF173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527252   (736918) от 28.01.2022
-
-VA - Best of Cafe De Anatolia 2 (2019) [AAC|~310 Kbps] <Chill Out, Downtempo, Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Professor - Sabali (5:19)
-02. Kerem Gell - Eskitme (6:09)
-03. Billy Esteban - Gipsy Melody (Remastered Mix) (5:12)
-04. Tebra - Nada (7:54)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 01:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D1F3B000276BDA1D393461C6C7DEFF4FF744297
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527404   (736917) от 28.01.2022
-
-VA - Blind Raccoon & Nola Blue Collection, Vol. 4 (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736917.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:20] 01. Mark Cameron - Sorry
-[04:41] 02. Peter Veteska - So Far so Good
-[04:17] 03. Michele D'amour and the Love Dealers - Devil in the Dark
-[03:19] 04. Blind Lemon Pledge - Black Eyed Susie(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579EFE0699FB3F94075F05DB6DE807C8D043C08A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527397   (736916) от 28.01.2022
-
-Eric Gales - Crown (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death of Me (4:35)
-02. The Storm (6:16)
-03. Had to Dip (0:30)
-04. I Want My Crown (4:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF127F2351CCC9C046FC52A40AF1878BB6394FD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527367   (736915) от 28.01.2022
-
-Project Office Pro 9.6 [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736915.jpg" />
-</div>
-
-
-###  Подробнее
-
-Познакомьтесь с вашим личным экспертом по диаграммам Ганта. Project Office - это полнофункциональное приложение для управления проектами, которое поможет вам управлять как простыми, так и сложными проектами на устройствах macOS.Тип издания: macOS SoftwareРелиз состоялся: 27.01.2022Разработчик: © 2015 – 2022 by DK ConsultingПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC61DE8A053D78051BD64C65BC8EAF702F724B76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527228   (736914) от 28.01.2022
-
-Альфред Хичкок - Ранние фильмы (1925-1934) / Alfred Hitchcock - Films De Jeunesse (1925-1934) (2004) DVDRip [FR / RU, EN Sub]
+Сокровища Европы. Ирландия / Tresors D'Europe. Irlande (2017) HDTV [H.264/1080i]
 
 >>Документалистика и Телепередачи
->>Посвящение искусству
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736914.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В фильме рассказывается о годах становления Альфреда Хичкока в качестве режиссёра. Киновед Бернар Эйзеншиц и кинорежиссер Клод Шаброль анализируют фильмы раннего периода его творчества и делятся от них своими впечатлениями. Также в фильме присутствуют фрагменты из беседы кинорежиссёра Франсуа Трюффо с Альфредом Хичкоком, состоявшейся в 1966 году.Производство: ФранцияЖанр: документальный, история, кинематографРежиссер: Ноель СимсолоПеревод: субтитрыЯзык озвучки: французскийСубтитры: русские (krigararr, внешние), английские (внешние)Продолжительность: 00:52:22
+Республика Ирландия, западная цитадель Европы – это остров, где туристу легко прочувствовать его величие. Дублин, собор Святого Патрика и его библиотека, национальный парк Уиклоу, тюрьма, ставшая свидетелем всех страданий, творившихся на протяжении истории, замок Эшфорд и пони из легендарной Коннемары – вот пять сокровищ Ирландии, объединивших её красоту, суровость (   Читать дальше...   )Производство: Франция, Roche ProductionsЖанр: Документальный, познавательный, путешествияРежиссер: Жульен БурПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F962DB41F13CF156F6AE8A5150C1496C6572B315
+magnet:?xt=urn:btih:DF218F050B320C8B12BF598CA951805E6649C9FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -642,25 +611,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527483   (736913) от 28.01.2022
+###  Публикация: 1397648   (739869) от 21.07.2020
 
-Mac FoneLab Android Data Recovery 3.1.20 [En]
+The Hardkiss - Акустика. Live (2020) [MP3|320 kbps] <Acoustic, Pop Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736913.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вы случайно удалили и потеряли данные на телефоне Android? Попробуйте это быстрое, мощное и простое в использовании средство восстановления файлов Mac FoneLab Android Data Recovery. Оно позволяет восстанавливать утерянные удаленные контакты, сообщения, историю звонков, фото, музыку, видео и документы на телефонах Android. С помощью этого восстановления данных Android (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 FoneLab Studio.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
+01. Мелодія (Acoustic Live) (05:18)
+02. 00:00 (Acoustic Live) (04:11)
+03. Антарктида (Acoustic Live) (04:21)
+04. Андромеда (Acoustic Live) (01:42)(   Читать дальше...   )Жанр: Acoustic, Pop RockПродолжительность: 01:15:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB67416F92C52C037141D9E56354EA251CE325D1
+magnet:?xt=urn:btih:E9B12A242C430C8B6FBB0DFC0FFDAACA7C941B65
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,25 +640,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527419   (736912) от 28.01.2022
+###  Публикация: 1397490   (739868) от 21.07.2020
 
-Cleaner-App Pro 8.2.3 [En]
+Прп. Паисий Святогорец, Свт. Нектарий Эгинский и др. | Непрестанно молитесь. Советы и мысли святых отцов и современных греческих проповедников (2019) [FB2, EPUB]
 
->>Программы для macOS
->>Утилиты для macOS
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736912.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Cleaner-App - это приложение «все в одном», которое помогает легко освободить место на вашем Mac. Если ваш диск заполнен, у вас есть тонны дубликатов файлов или вы просто хотите посмотреть, что занимает ваше место, Cleaner-App - это идеальное решение для вас.Тип издания: macOS SoftwareРелиз состоялся: 25.01.2022Разработчик: © 2022 NektonyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+Как научиться молиться непрестанно? Возможно ли это среди многих житейских забот и повседневной суеты? На страницах сборника «Непрестанно молитесь» святые отцы и современные греческие духовники доступными словами расскажут о молитве и о том, как преображается жизнь человека, приступающего к ней.Жанр: Православие. Духовно-просветительское изданиеФормат: FB2, EPUB
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8A0AC78C541120AC48D04FABEA4C92FC20D9C9FF
+magnet:?xt=urn:btih:0A7EED8CE2279F88D9E281874BA2951869129CD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,26 +666,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1527351   (736911) от 28.01.2022
+###  Публикация: 1397610   (739867) от 21.07.2020
 
-BlueHarvest 8 v8.0.12 [Multi/Ru]
+Сокровища Европы. Хорватия / Tresors D'Europe. Croatie (2017) HDTV [H.264/1080i]
 
->>Архив торрентов
->>Архив 4Apple
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736911.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739867.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BlueHarvest - утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
-Данное приложение будет полезно для тех, кто любит включенную опцию показа скрытых и системных файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.01.2022Разработчик: © 2022 Ross TullochПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+Хорватия страна поражающая своей красотой - природной и рукотворной. Располагающаяся в южной части Центральной Европы и на западе Балканского полуострова, она становится излюбленным местом отдыха для очень многих туристов.Производство: Франция, Roche ProductionsЖанр: Документальный, познавательный, путешествияРежиссер: Жульен БурПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D12464C80002E2067A48BED5B946F6248C07D2D3
+magnet:?xt=urn:btih:05F0B6AE25DC2A01386AF6264DE01BD48BF32DC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283612   (739846) от 17.02.2019
+
+Paul Bley - Four Classic Albums (1954 - 1961) 2CD, 2016, Avid Jazz [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739846.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Opus 1 [4:15]
+02. Teapot [4:34]
+03. Like Someone In Love [4:09](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 02:26:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9331210DEC4A974B85F1210F120D80B31BB8504
 ```
 
 https://mybot314.ru/tekegram_catalog/

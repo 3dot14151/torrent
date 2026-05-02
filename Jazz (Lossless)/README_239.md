@@ -1,3 +1,71 @@
+###  Публикация: 493155   (248424) от 07.05.2012
+
+John Coltrane - The Best of John Coltrane (2009) [FLAC|Lossless]<Bop, Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just for the Love (3:42)
+02. Sonny's Crib (13:30)
+03. Monk's Mood (7:54)
+04. Epistrophy (4:30)
+05. Smoke Stack (11:01)
+06. Come Rain or Come Shine (7:28)
+07. Nita (6:32)
+08. Ball Bearing (8:10)2009Жанр: Bop, Hard Bop, Post-BopПродолжительность: 03:03:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 489721   (246378) от 03.05.2012
+
+Muggsy Spanier - Muggsy Spanier  (1944) (1997) [FLAC|Lossless]<Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angry (Brunies, Cassard, Mecum )  (2:47)
+02. Weary Blues (Matthews )  (2:57)
+03. Snag It (King Oliver )  (3:11)
+04. Alice Blue Gown (McCarthy, Tierney )  (3:06)
+05. Sweet Lorraine (Burwell, Parish )  (3:51)
+06. Oh, Lady Be Good (Gershwin, Gershwin )  (3:25)
+07. Sugar (Alexander, Mitchell, Pinkard )  (3:02)
+08. September in the Rain (Dubin, Warren )  (4:19)
+09. Sweet Sue, Just You (Harris, Young )  (4:22)
+10. Memphis Blues (Handy, Norton )  (4:14)(   Читать дальше...   )1997Жанр: Dixieland, SwingПродолжительность: 01:04:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447638   (246023) от 14.02.2021
 
 Kandace Springs - The Women Who Raised Me (2020) [FLAC|Lossless|image + .cue] <Jazz, Soul>
@@ -687,64 +755,6 @@ Duke Ellington & His Famous Orchestra - Happy-Go-Lucky Local (1946) 1992, Musicr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33D2909F68C5516548841D63E1844A3FA1A99F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063365   (245219) от 16.10.2016
-
-Janet Klein - Come Into My Parlor (1998) Coeur De Jeanette Productions[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245219.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In A Great Big Way [02:02]
- 02.Mountain Greenery [03:27]
- 03.What A Night For Spooning [02:22]
- 04.Wasting My Love On You [03:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 00:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF4AB0CA667F56A4D72D07F09B48E7DD9A0FD577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063352   (245211) от 16.10.2016
-
-Peggy Lee - Miss Wonderful (1959) 1992, MCA Victor[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mister Wonderful [03:22]
- 02.They Can't Take That Away From Me [02:59]
- 03.Where Flamingos Fly [02:31]
- 04.You've Got To See Mama Every Night [02:49](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4849728D8DC6AE7587C06B8431B7ACF0A2AFCAF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

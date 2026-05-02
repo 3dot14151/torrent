@@ -1,3 +1,32 @@
+###  Публикация: 1382995   (815449) от 13.05.2020
+
+VA - I Feel Blues In My Roots (2020) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Richie Milton - Running Outa Dreams (2:36)
+02 Bobby Cole - Dirty Blues Music (2:58)
+03 Last Chance Saloon - Riding With The Blues (3:10)
+04 J Goldfinger - Laughing Devil (2:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B7AF115FFDDB3811BFC5248DB0A634EC60CED80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1009115   (812182) от 20.04.2016
 
 Big Harp George - Wash My Horse In Champagne (2016) [MP3|320 кб/с] <West Coast Blues>
@@ -716,35 +745,6 @@ Gov't Mule - Heavy Load Blues (2021) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0099D4532BE38A16114268FD5978049169367D82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509117   (795496) от 11.11.2021
-
-VA - Ритм & Блюз Радиостанция (All Tracks Remastered) (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ray Charles - Hit the Road Jack (Remastered 2019)
-02. Ben E. King - Stand by Me (Remastered 2015)
-03. Nina Simone - My Baby Just Cares for Me (Remastered 2013)
-04. The Chiffons - He's so Fine (Remastered)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 02:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9A3E8EEB96E4D873AB1FB8D1685782EC1802A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

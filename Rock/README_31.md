@@ -1,3 +1,32 @@
+###  Публикация: 1133658   (693325) от 13.05.2017
+
+Alice Jayne - Inside The Cover (2017) [MP3|320 Kbps] <Rockabilly, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693325.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Crazy (04:13)
+02. One Good Reason (03:07)
+03. You Need To Fall In Love (02:34)(   Читать дальше...   )Жанр: Rockabilly, Blues RockПродолжительность: 00:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D6B8061C4AE9D168ECCC971F665AC360203F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1221678   (693175) от 25.04.2018
 
 Aaron Fink (ex. Breaking Benjamin) - Galaxies (2017) [MP3|320 Kbps] <Classic Rock>
@@ -716,35 +745,6 @@ Titanic - Titanic (1970) Reissue, 2000, Repertoire Records [MP3|320 Kbps] <Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B40DFC0C91E908F517E48D8367D1DD926B3DEA4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134994   (684865) от 17.05.2017
-
-VA - Acoustic Classics. Rock Anthems (2017) [MP3|320 Kbps] <Rock, Acoustic>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graham BLVD - Wild World
-02. The New Merseysiders - Norwegian Wood
-03. Graham BLVD - My Sweet Lord (From "Guardians of the Galaxy 2")
-04. Laura Stein - Where You Lead(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 01:27:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11549ACD2132F4F3020FEBCC3609B63BB8A4C809
 ```
 
 https://mybot314.ru/tekegram_catalog/

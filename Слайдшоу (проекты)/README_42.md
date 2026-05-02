@@ -1,3 +1,30 @@
+###  Публикация: 1026786   (701820) от 16.06.2016
+
+Проекты - Pond5 - Lensflare-Transitions [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lensflare-Transitions - это проект с переходами-вспышками для оформления слайд-шоу.
+Шаблон полностью настраиваемый.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3515CF00A449705548544A5B44F2E7179BFC61B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026627   (701721) от 16.06.2016
 
 Проекты - VideoHive - Photo Projection Kit [AEP]
@@ -649,32 +676,6 @@ Photo Slideshow – классический проект для создани�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A33BA45611E1DBF009956AC94D70DD9C4B85D7AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133626   (692748) от 13.05.2017
-
-Проекты - VideoHive - Short Energy Motion Opener - 19882174 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692748.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания высоко-энергичного, с необычными переходами, динамичного слайд-шоу или промо-видео.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6B61AACA29E5A1519190F0194094B7EE21E11B
 ```
 
 https://mybot314.ru/tekegram_catalog/

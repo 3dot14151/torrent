@@ -1,3 +1,38 @@
+###  Публикация: 480775   (87513) от 10.04.2012
+
+Kato - Discolized (2010) [FLAC|Lossless]<Electronic, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My House [04:19]
+02. Turn The Lights Off [02:57]
+03. Desert Walk [03:31]
+04. Makka [05:07]
+05. Discolized [03:21]
+06. Alive [05:50]
+07. It's My Life [03:22]
+08. Opa [04:13]
+09. Remember My Name [03:37]
+10. Crowd Control [06:10](   Читать дальше...   )2010Жанр: Electronic, HouseФормат: CD, AlbumПродолжительность: 01:01:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479127   (86918) от 07.04.2012
 
 Jam & Spoon - Remixes & Club Classics (2CD) (2006) [APE|Lossless]<Trance, Techno>
@@ -732,35 +767,6 @@ The Black Dog - Live at the ICA (London 2024) (2025) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29ABF9C3C1E543AE27F5B35A11FD2A51024DA578
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790344   (68133) от 08.04.2025
-
-Orbital - Radiccio (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Deepest (feat. Tilda Swinton)
-02 – Halcyon
-03 – The Naked And The Dead
-04 – Sunday(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 00:43:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C58D228655000B17C4AF509F8C7394484535487
 ```
 
 https://mybot314.ru/tekegram_catalog/

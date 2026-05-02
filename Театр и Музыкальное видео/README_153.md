@@ -1,3 +1,90 @@
+###  Публикация: 681704   (45712) от 25.08.2024
+
+Deep Purple 1972/1973 Copenhagen - New-York (2005) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несжатая версия двух ремастеров концертов группы Deep Purple в Копенгагене (1972) и в Нью-Йорке (1973).Copenhagen
+01. Highway Star
+02. Strange Kind Of Woman
+03. Child In Time(   Читать дальше...   )Жанр: Hard RockФормат: DVD VideoКачество: DVD9Продолжительность: 01:38:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:207CECD633C1CE4C8FB27C1133F800BA6A92A22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 53450   (45640) от 26.08.2024
+
+Uriah Heep / Acoustically Driven (Classic Rock Legends) [2001, Classic Rock, DVD5]
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45640.jpg" />
+</div>
+
+
+###  Подробнее
+
+THE ACOUSTIC SET FROM URIAH HEEP + BONUS (PRESSRELEASE, INTERVIEWS, PHOTOGRAPHY,....)01. ECHOES IN THE DARK (Hensley)...................................4:52
+02. WHY DID YOU GO? (Byron/Box/Hensley/Kerslake)........3:55
+03. THE EASY ROAD (Hensley)............................................2:45
+04. COME BACK TO ME (Kerslake/Hensley).........................4:56(   Читать дальше...   )Жанр: Classic RockРежиссер: Edited and Directed by CHRIS GORMLIEВ ролях: MICK BOX - Guitar And Vocals
+LEE KERSLAKE - Drums And Vocals
+TREVOR BOLDER - Bass Guitar And Vocals
+PHIL LANZON - Keyboards And Vocals(   Читать дальше...   )Формат: DVD videoКачество: DVD5Продолжительность: 01:15:19 + 00:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB1AABB9D054FBA55E1A5CE033CCFB07F1FCAAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 61055   (45636) от 26.08.2024
+
+Kiss: "Rock the nation. Live!" (2005)  DVD9x2
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45636.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной праздник на улице фэнов KISS вышел в свет двойной DVD "Kiss - Rock The Nation Live!". Издание включает в себя лучшие моменты концертов команды в Вашингтоне и Вирджинии, заснятые во время тура Rock The Nation 2004 г.  В обширном трек-листе DVD-коллекции поклонников легендарного коллектива ждут настоящие находки, ибо многие из представленных композиций (   Читать дальше...   )Жанр: Hard Rock, GlamФормат: DVD videoКачество: DVD9Продолжительность: 01:09:40 / 01:06:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6582C18BB9E36431DBCDE8AD7E8B3A7C3F157AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 722745   (45615) от 26.08.2024
 
 Cheap Trick - Silver (1999/2005) DVD9 <Hard Rock, Power Pop>
@@ -632,93 +719,6 @@ Drummatix — сценическое имя Екатерины Бардыш, и�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:481DD81CB9FEDB027CF94824C48C4CEFDE7FD816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 307909   (43535) от 15.09.2024
-
-Manfred Mann's Earth Band - Unearthed. The Best of 1973-2005 (2006) DVD5 <Rock>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43535.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник концертных выступлений, рекламных роликов и видеоклипов известной британской группы «Manfred Mann's Earth Band».01. Blinded By The Light (Top Of The Pops, BBC TV UK - 1976)
-02. Joybringer (Hits A Go-Go, Swiss TV - 1973)
-03. Don't Kill It Carol (Promo Video - 1979)
-04. Brothers And Sisters Of Africa (Tour Cartoon - 1983)(   Читать дальше...   )Жанр: Rock, Jazz-Rock, Pop-Rock, British Invasion, Prog-Rock, Art RockПродолжительность: 01:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FEE1B41FFFF741D81F9C0A698A45C2E517D7262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 163517   (43505) от 15.09.2024
-
-B.B.King - The jazz channel presents (2000) DVD5 <Jazz>
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот DVD представляет собой запись живого концерта в «Black EntertainmentTelevisionStudio» в Вашингтоне.01. Two I Shoot Blues
-02. Let The Good Times Roll
-03. I'll Survive
-04. Bad Case Of Love(   Читать дальше...   )Жанр: Jazz, Муз.видеоРежиссер: Bet On JazzУчастники: Би Би Кинг & CoПродолжительность: 01:20:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3ABEB30C8CA170545A43AD7EB6DE16297464841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749681   (43457) от 15.09.2024
-
-Квартирник у Маргулиса. Юбилей Александра Реввы (14.09.2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александру Ревве — 50! Певец, актер, продюсер, актер озвучки и шоумен устроил юбилейный концерт на сцене «Квартирника». Ревва давно вышел за рамки своего юмористического амплуа: его герой-мачо Артур Пирожков, придуманный 15 лет назад, стал не просто самостоятельным артистом00:00:05 Запутался
-00:07:45 Красивая песня
-00:14:10 Плачь, детка!
-00:19:00 Летим со мной(   Читать дальше...   )Производство: Россия | ООО "ФРИДОМ"Жанр: PopСубтитры: ОтсутствуютЯзык: РусскийПродолжительность: 01:18:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FC6CE7AB380F55D5D700093BC596D42E8588EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

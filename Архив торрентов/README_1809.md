@@ -1,3 +1,275 @@
+###  Публикация: 518174   (643871) от 03.07.2012
+
+Oliver/Dawson Saxon - Motorbiker (2012) [MP3|320 кб/с]<Heavy Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chemical Romance
+02. Motorbiker
+03. Whippin' Boy
+04. No Way Out
+05. Just Another Suicide
+06. Sinternet
+07. Ghost
+08. Nevada Beach
+09. Screaming Eagles
+10. World's Gone Crazy(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8007F7AA9EBD62909B6AD08C046911C796AD87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518279   (643870) от 03.07.2012
+
+VA - Dance Club Party Vol.5 (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643870.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Young Rebels & Francesco Diaz - Timbuktu (Original Mix) (6:15)
+2. Victoria Aitken - Weekend Lover (Sean Finn Radio Edit) (3:58)
+3. Voxxmore feat. Starla Edney - Zero21 (Never Let You Go) (Radio Mix) (4:35)
+4. Darius & Finlay feat. Carlprit & Nicco - Do It All Night 2k12 (CK Stone Mix Edit) (2:59)
+5. Scooter & Lavelle & Sue Cho - Beats Inside My Head (Minero Remix) (5:48)
+6. Pryda - You (Original Mix) (6:58)
+7. Mike - D Feat. Nensi - All I Want (Infected Culture Radio Edit) (3:26)
+8. Andrea Verona Feat. Jama - La Pasion (Ratatouille Radio Edit) (3:22)
+9. Picco & Pleasurekraft - Mi Cafe (Stanislav Shik & Denis Rook Mashup) (5:39)
+10. Medina - Forever (DJ Tonka True House Mix) (4:32)Жанр: Dance, ClubПродолжительность: 08:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95AB753E0C46FA7DEA43B12DEC2341280B4E2EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 518503   (643869) от 03.07.2012
+
+Black Messiah - The Final Journey (2012) [MP3|320 кб/с]<Symphonic Black/Power/Folk/Viking Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643869.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Windloni
+2. Der Ring Mit Dem Kreuz
+3. To Become A Man
+4. Into The Unfathomed Tower (A Tribute To Candlemass)
+5. Feld Der Ehre
+6. Lindisfarne
+7. The Naglfar Saga: Prologue - The Final Journey
+8. The Naglfar Saga: Mother Hel
+9. The Naglfar Saga: On Board
+10. The Naglfar Saga: Sailing Into EternityЖанр: Symphonic Black/Power/Folk/Viking MetalПродолжительность: 00:55:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E584D7F1DC6740DCC5E53A8410E75AF7C16B5D43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346766   (643859) от 06.06.2011
+
+NHL 10/11, SC: Финал, матч №2: Boston Bruins vs Vancouver Canucks (04.06.2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. NHL. Кубок Стэнли, финал, 2-й матч, Boston Bruins против Vancouver Canucks.Жанр: Спорт, хоккейТелекомпания: Формат: MPEG-4Продолжительность: 01:49:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739666AFD4FBEFA611F51A2F6CC4BE2621C2146D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 346216   (643847) от 06.06.2011
+
+Очная ставка. Мать - убийца (2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_643847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Они забеременели, чтобы удержать своих любовников.
+А когда план не сработал, дети им оказались не нужны…
+Почему ребенок превращается в средство шантажа и как матери становятся безжалостными убийцами?Жанр: ДокументальныйПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09CF1ACF8FB5AC40441D8CB646BABCC569C6EA1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906756   (643817) от 09.06.2015
+
+Специальный репортаж. Приговор долгу (2015.06.08) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643817.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 июля в Литве будет оглашён заочный приговор бывшим командирам вильнюсского ОМОНа, которые в начале 1991 года отказались подчиниться новым республиканским властям. Тогда во время политического двоевластия погибли 14 человек.Телекомпания: ТВЦЖанр: ДокументальныйПродолжительность: ~ 00:26:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FF298FA09592714ACB28D38C7943981299FA99C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906486   (643816) от 09.06.2015
+
+Noturnall - Back to F*ck You Up! (2015) [MP3|320 кб/с]<Progressive Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enquanto a Tregua Nao Vem... 00:40
+02. Back to Fuck You Up! 03:28
+03. Zombies (The Holy Trinity) 06:03
+04. Fight the System 04:31(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F95762EDD88523465CE454C0992F847C2909796
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032676   (643813) от 08.07.2016
+
+SiteSucker 2.8.4 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643813.jpg" />
+</div>
+
+
+###  Подробнее
+
+SiteSucker. Альтернативный менеджер загрузки сайтов
+SiteSucker это приложение для Macintosh, которое автоматически загружает веб-сайты из Интернета. Она делает это путем асинхронного копирования веб-страниц сайта, изображений, PDF-файлов, таблиц стилей и других файлов на локальном жестком диске, дублируя структуру каталогов сайта.
+
+SiteSucker умеет загружать сайт (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 08 июля 2016Разработчик: Richard CraniskyПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский, Испанский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08A4D6C27A37218E78C09BA20A316CDF9FF0DDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032573   (643810) от 08.07.2016
+
+Ivy Sole - Eden (2016) LP [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lost Without You (2:35)
+02. All Mine (3:46)
+03. The Vow (2:58)
+04. You Don't Know My Name (4:09)(   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:37:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599F3B7122C3E79ED843417507753CBF599F52B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032805   (643809) от 08.07.2016
 
 VA - A State Of Trance Radio Top 20 July (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
@@ -471,269 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79408BBE0E22544205B86DE373C361822A9745F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518030   (643622) от 03.07.2012
-
-VA - Summer Slammers (2012) [MP3|320 кб/с]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643622.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Summer Slammers (2012)
-
-Год: 2012
-Жанр: Drum & Bass
-Продолжительность: 02:02:31Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01. Matrix & Futurebound feat. Luke Bingham - All I Know (M&F Rolling Out DJ Mix) (04:20)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C637B638D2E90116DF62D6FA27D2A85A51105134
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518541   (643621) от 03.07.2012
-
-Журнал | Караван. Коллекция историй №06 июнь [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "Коллекция. Караван историй" — это эксклюзивные интервью со знаменитостями, самые громкие материалы из архива "Каравана историй. Полноцветное, красочное, иллюстрированное издание. Это самые захватывающие истории, связанные с известнейшими людьми, историческими событиями, традициями. Уникальность издания – в нестандартном для женских журналов содержании: материалы о ярких интересных личностях подаются в очень глубоком и объемном изложении и иллюстрируются эксклюзивными фотографиями, часто из личных архивов героев.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7333A6E6F056ACCAFB0F503B5DC0C74CE7B61C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517872   (643618) от 03.07.2012
-
-Виктор Столбов - Слепой сын (2000) [MP3|320 кб/с]<Шансон>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Облака [04:01]
-02. Зимний вечер [03:33]
-03. Черный цвет [03:26]
-04. Прокурор [02:54]
-05. Весна придет [03:36]
-06. Нищий [02:52]
-07. Что происходит [04:20]
-08. Волк [04:48]
-09. Ива [04:41]
-10. Такси [03:15](   Читать дальше...   )Жанр: ШансонПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E377CE673349DB8C9C6DC8A54F86BE8761E43224
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515267   (643610) от 03.07.2012
-
-VA - Дискотека в Овсюках № 35 (2012) [MP3|128 кб/с]<Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643610.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Michel_Tel_e_Alex_Ferrari_-_Bar.studio RuWI. 0:03:41
-002 Oceana_-_Endless_Summer_(Radio_Edit) 0:03:12
-003 Biffguyz_-_Ya_tebya_boom_boom_-studio RuWI. 0:04:22
-004 Para_Normalnyh-Nevesta-studio RuWI. 0:03:31
-005 MMDance_feat._Dj_Smash_-_Subbota_(Radio_Edit)_.stud 0:03:20
-006 NikitA_-_Avokado_.studio RuWI. 0:03:17
-007 Tacabro_-_Tacata_(Dany_Lorence_Remix)-sp. 0:03:30
-008 Michel_Telo_feat._Pitbull_-_Ai_Se_Eu_Te_Pego_()_.studio 0:03:35
-009 Svetlana_Loboda_-_Oblaka_.studio RuWI. 0:03:42
-010 Dilajs_-_Nezhno-Nezhno_.studio RuWI. 0:03:29(   Читать дальше...   )Жанр: DanceПродолжительность: 06:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08E51489297EB430DF6A11980077EAADF22A24F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 347024   (643591) от 06.06.2011
-
-Above & Beyond - Group Therapy (2011) /ANJCD024D/ [FLAC|Lossless]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_643591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: TranceПродолжительность: 01:16:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906530   (643588) от 09.06.2015
-
-Dabs - Rawbot EP (2015) [MP3|320 кб/с]<Drum'n'Bass, Neurofunk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grindwerk (feat. RymeTyme)
-02. Dabs & A-Cray – Hysteria
-03. Dabs & L 33 – Rawbot
-04. That DoorЖанр: Drum'n'Bass, NeurofunkПродолжительность: 00:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D460142FF6AEB48F6396E5E280164D95ACE58F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906623   (643580) от 09.06.2015
-
-Adobe AIR 18.0.0.144 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe AIR - (Adobe Integrated Runtime) - платформенно-независимая среда для запуска приложений, позволяющая использовать HTML/CSS, Ajax, Adobe Flash и Adobe Flex для переноса веб-программ на настольные компьютеры.
-Adobe AIR включает в себя возможность создания инсталляционного пакета, который может быть установлен на компьютер пользователя. Приложения, написанные (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4AE405AD9F0DBCE51522A43EBAA4359CD48D306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906554   (643579) от 09.06.2015
-
-Формула 1. Гран-При Канады. Гонка (2015) HDTVRip [720p/50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643579.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чемпионат мира по авто гонкам в классе Формула 1. Этап 7. Гран-при Канады. Автодром имени Жиля Вильнёва. ГонкаТелекомпания: SkySports HD (видео) + Россия 2 (голос)Жанр: Спорт, автоПродолжительность: 01:56:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EAF032AF97073329D8ED53B62A84CFF34884945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906606   (643571) от 09.06.2015
-
-Slimjet 4.0.8.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643571.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет вам быстро и безопасно осуществлять веб-серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47FC635BFB714012EEAABE697DDBD669A9579E39
 ```
 
 https://mybot314.ru/tekegram_catalog/

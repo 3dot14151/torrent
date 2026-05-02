@@ -1,3 +1,61 @@
+###  Публикация: 1578223   (348157) от 22.09.2022
+
+Supergrass - Supergrass (1999) 2CD, Remaster, 2022, Echo [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Britpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moving (John Leckie 2022 Remix) [00:05:23]
+02. Beautiful People (2022 Remix) [00:03:54]
+03. Pumping On Your Stereo (John Leckie & Mick Quinn 2022 Remix) [00:03:46]
+04. Born Again (2022 Remix) [00:03:34](   Читать дальше...   )Жанр: Alternative Rock, BritpopПродолжительность: 01:57:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F927E3E3BC05DF688042DB105BB82F3699B1B28E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578221   (348056) от 22.09.2022
+
+Alice in Chains - Dirt (1992) Remaster, 2022, Columbia [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them Bones (2022 Remaster) [00:02:29]
+02. Dam That River (2022 Remaster) [00:03:09]
+03. Rain When I Die (2022 Remaster) [00:06:01]
+04. Down In A Hole (2022 Remaster) [00:05:38](   Читать дальше...   )Жанр: Alternative Rock, Grunge, Hard RockПродолжительность: 00:57:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7427A487A9DC59F7410D683015BC1AFB2053B9B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329851   (348008) от 07.10.2019
 
 Surf Curse - Heaven Surrounds You (2019) Scene [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
@@ -685,64 +743,6 @@ Nothing - The Great Dismal (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F3C84171F5AE72815E2D0450A39C3D5C1C3EAFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841002   (330997) от 15.11.2014
-
-Nickelback - No Fixed Address (2014) [FLAC|Lossless|WEB-DL]<Rock, Alternative Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Million Miles An Hour (4:11)
-02. Edge Of A Revolution (4:04)
-03. What Are You Waiting For? (3:39)
-04. She Keeps Me Up (3:58)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Post-GrungeПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19F23A9C11FC83DB66BF3674C72513552B37F4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580519   (330811) от 01.10.2022
-
-Icon For Hire - 5 Albums (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список Альбомов:
-2011 - Scripted
-2013 - Icon for Hire
-2016 - You Can't Kill Us(   Читать дальше...   )Жанр: Alt. Rock, Female VocalПродолжительность: 03:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB65B615DE0009D63F8DBEBDEE401886B4BF55A
 ```
 
 https://mybot314.ru/tekegram_catalog/

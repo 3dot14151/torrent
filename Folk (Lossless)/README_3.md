@@ -1,3 +1,32 @@
+###  Публикация: 1015741   (772555) от 12.05.2016
+
+Emir Kusturica & The No Smoking Orchestra - The Best Of... (2009) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Gypsy Punk, Balkan>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bubamara (Main Version)
+02. Kana O Del Barvarel
+03. Upside Down
+04. Unza Unza Time(   Читать дальше...   )Жанр: Folk-Rock, Gypsy Punk, BalkanПродолжительность: 01:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CA5781B3ED5233A4E56D1ABE0986D7E9C64B074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016015   (772552) от 12.05.2016
 
 Hang Massive - Beats For Your Feet (2012) [FLAC|Lossless|tracks] < Folk, World, New Age>
@@ -716,35 +745,6 @@ Scotch On The Rocks - The Songs Of Anfield Road (2002) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2035890401F2CFA411BE311B28BF8787FC466EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219318   (715508) от 13.04.2018
-
-Danheim - Munarvagr (2017) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 0:44
-02. Vindöld 3:28
-03. Tyrfing 3:27
-04. Tyr 3:40(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:37:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62E35A0A3BE856A95EA7689A391C46B19AD6E93
 ```
 
 https://mybot314.ru/tekegram_catalog/

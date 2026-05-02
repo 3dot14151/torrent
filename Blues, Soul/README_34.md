@@ -1,3 +1,32 @@
+###  Публикация: 1188437   (274730) от 02.12.2017
+
+Supersonic Blues Machine - Californisoul (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Am Done Missing You (04:28)
+02. Somebody's Fool (feat. Robben Ford) (04:43)
+03. L.O.V.E. (04:31)
+04. Broken Heart (feat. Billy F. Gibbons) (03:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F7120238F595431368E3A793F7A1B9B50C6A2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1188704   (273605) от 03.12.2017
 
 Big Papa and the TCB - Let Your Hair Down (2017) [MP3|320 Kbps] <Blues, Swing>
@@ -716,35 +745,6 @@ Eric Mcfadden - Does ACDC (Acoustic Tribute) (2018) [MP3|320 Kbps] <Blues, Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA1CA4D1363F5E6867BEFB337F618FDAB0D291F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1426199   (216101) от 23.11.2020
-
-VA - Christmas Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216101.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Koko Taylor – Merry, Merry Christmas (4:29)
-02. Elvin Bishop – The Little Drummer Boy (2:52)
-03. Tinsley Ellis – Santa Claus Wants Some Lovin’ (3:23)
-04. Marcia Ball – Christmas Fais Do Do (3:15)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5CF1793083326BAC333A63336C67FEA1DA3017B
 ```
 
 https://mybot314.ru/tekegram_catalog/

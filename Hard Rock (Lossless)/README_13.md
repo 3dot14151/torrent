@@ -1,3 +1,119 @@
+###  Публикация: 1482999   (1007179) от 11.07.2021
+
+Waysted - The Harsh Reality (2007) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Propaganda
+02.Samaritan Man
+03.Rockin' The Cliche
+04.Keepin' It Sweet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B203B95CACB4E8BCA69EB7FB81B4BB6CFD0B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483214   (1007026) от 12.07.2021
+
+Reverend Jack - A Mile from Home (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crimson Seed (03:42)
+02. Fire Down Below (03:19)
+03. Greed (03:39)
+04. Crawling Inside (03:12)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D83557EA491FAE5A5794D749F68539A2CD1068ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266804   (1006861) от 13.07.2021
+
+VA - The Many Faces Of KISS: A Journey Through The Inner World Of KISS (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006861.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - The Many Faces of Kiss
+01 | Ain't Gonna Die (Bruce Kulick feat Gene Simmons) | 04:11
+02 | Johnny's In Love (Ritchie Starlet feat Ace Frehley) | 03:25
+03 | American Man (Shameless) | 03:44(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C92D35F6D5389108BB8F66862EF2FABA432EF48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483696   (1006672) от 15.07.2021
+
+Appice - Sinister (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinister
+02. Monsters And Heroes
+03. Killing Floor
+04. Danger(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D7A259A2C9427B6E680908FBF6A940C9EE1D5D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483871   (1006536) от 16.07.2021
 
 Escape Lane - The Ineluctable Truth (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,123 +745,6 @@ Spektra - Overload (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6436FE6CAE62B06CCF6C3548BD93508F6F0E1EFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487576   (1003310) от 06.08.2021
-
-Night Ranger - ATBPO (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming For You
-02. Bring It All Home To Me
-03. Breakout
-04. Hard To Make It Easy(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F605F33628A7BA2E54F4C56DCF8D2FAA22E6BC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487622   (1002814) от 08.08.2021
-
-Vanilla Fudge - 16 Albums, 1 Box-set, 26CD (1967-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Psychedelic Rock, Acid Rock, Proto-Prog, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002814.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сущности, "Vanilla Fudge" были пионерами тяжелой музыки в США, хотя в одном из интервью сами музыканты определили свой стиль как "психоделический симфо-рок". "Vanilla Fudge" являлись связующим звеном между психоделией 60-х и тем жанром, которому в будущем суждено было назваться "хэви-метал". Группа очень долго не получала (   Читать дальше...   )--------------------------
-
-01. Lady (5:10)
-02. Surrender (4:18)(   Читать дальше...   )Жанр: Psychedelic Rock, Acid Rock, Proto-Prog, Hard Rock |Продолжительность: 24:56:28 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547913FED815FC676582FC5D32B9E16ABC42B228
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487892   (1002809) от 08.08.2021
-
-Night Ranger - ATBPO (And The Band Played On) (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002809.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легенды тяжелого рока Night Ranger выпускают свой 12-й студийный альбом ATBPO (And The Band Played On). Альбом вышел 6 августа 2021 года на лейбле Frontiers Music Srl.
-Группа начала писать альбом в начале 2020 года, на фоне роста глобальной пандемии. Сузив выбор песен и приблизив их к своему хорошо известному рок-н-ролльному саунду, группа отправилась в студию. Из-за (   Читать дальше...   )01. Coming For You (4:39)
-02. Bring It All Home To Me (4:33)
-03. Breakout (4:15)
-04. Hard To Make It Easy (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3CF678D59967B42A8A8ECE5787E3EEBA70709A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 330487   (1002697) от 08.08.2021
-
-Scorpions - Best Of Scorpions (1984) [FLAC|Lossless] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steamrock Fever (3:40)
-02. Pictured Life (3:26)
-03. Robot Man (2:47)
-04. Backstage Queen (3:14)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:39:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBE5FB5B433AE4FD3D10FADA4B8541DD80A2B810
 ```
 
 https://mybot314.ru/tekegram_catalog/

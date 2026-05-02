@@ -1,3 +1,32 @@
+###  Публикация: 1046200   (552923) от 26.08.2016
+
+VA - Relax with Electro Jazz (2016) [MP3|320 Kbps] <Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mark Dorricott - Paris Back Streets
+02. Morris Lionel - Again
+03. Eddie Caldwell - Smooth
+04. Leon Ayers Jr - Head Spinning(   Читать дальше...   )Жанр: JazzПродолжительность: 01:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E6AB539377BDE70F72FC3A7689F6D27F213E600
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046740   (551784) от 27.08.2016
 
 VA - Erotic Jazz Moments (Essential Collection) (2016) [MP3|320 Kbps] <Jazz, Lounge, Chillout>
@@ -722,35 +751,6 @@ VA - Soul Deep 08: Smooth Jazz Review (2017) [MP3|320 Kbps] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:416117E4AB0CA26EC2335D1961F4EA9E535FD07D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159856   (479828) от 22.08.2017
-
-VA - Jazz Chill: Romantic Female Vocals (2017) [MP3|320 Kbps] <Vocal Jazz, Smooth Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_479828.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Norah Jones - It's A Wonderful Time For Love  3:54
-002.  Nina Simone - Blue Prelude  3:20
-003.  Ella Fitzgerald - A Man And A Woman  3:18
-004.  Basia - The Sweetest Illusion  5:00(   Читать дальше...   )Жанр: Vocal Jazz, Smooth JazzПродолжительность: 08:31:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3C5BA753A7C3528AD1F47A3777023E8A160B048
 ```
 
 https://mybot314.ru/tekegram_catalog/

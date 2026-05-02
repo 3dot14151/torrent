@@ -1,3 +1,32 @@
+###  Публикация: 1114048   (834999) от 13.03.2017
+
+Blues Cousins - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoochie Coochie Man
+02. Nobody Knows
+03. The Brother
+04. The thrill is gone(   Читать дальше...   )Жанр: BluesПродолжительность: 02:52:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A33909306A523C81046D7BFA430BF3182B950D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005076   (834365) от 08.04.2016
 
 VA - Nu Jazz Instrumentals (2016) [MP3|320 кб/с] <Nu Jazz, Lounge Jazz, Jazz House>
@@ -716,35 +745,6 @@ Climax Blues Band - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E9B2CD6C4C17600D01E51133705E63148DFD98A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118812   (811223) от 26.03.2017
-
-VA - Road Blues: Soul Collection (2017) 2CD [MP3|256-320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_811223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeff Beck - Scared For The Children 06:07
-02. Beth Hart - Woman You've Been Dreaming Of 04:25
-03. Larry Miller - Black Oak Arkansas Hangman 04:12
-04. Ray Fuller And The Bluesrockers - Long Black Train 02:59(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 11:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:373935DBC2E25F2E1802B644E0EE7AEFAA1B7D7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

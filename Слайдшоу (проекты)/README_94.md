@@ -1,3 +1,30 @@
+###  Публикация: 1579167   (207251) от 26.09.2022
+
+Проекты - VideoHive - Between the Branches Slideshow - 22170232 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207251.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Between the Branches Slideshow» - стильный элегантный проект для создания яркого, красочного слайд шоу собранного в зеленых ветвях деревьев, кустов.
+Многие оценят по достоинству.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5437EAAE87880A5762A4CC098AEC4A21A997BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582953   (206072) от 12.10.2022
 
 Проекты - NNM-Club - Winter Photo Album - 1582953 [AEP]
@@ -648,32 +675,6 @@ Ink Slideshow - интересный вариант слайд-шоу, испо�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C57DB867E79E255DF1B83896EC27E6D639A19AD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433747   (155826) от 21.12.2020
-
-Проекты - VideoHive - Beautiful Moments Slideshow - 29725197 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155826.jpg" />
-</div>
-
-
-###  Подробнее
-
-При помощи стильного проекта «Beautiful Moments Slideshow», запечатлейте ваши лучшие моменты жизни.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C68FCBA6F2D48505D50EF7AAB6EF9FCA092132
 ```
 
 https://mybot314.ru/tekegram_catalog/

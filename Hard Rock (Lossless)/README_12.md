@@ -1,3 +1,119 @@
+###  Публикация: 1477593   (1010848) от 16.06.2021
+
+Ian Parry's Rock Emporium - Brute Force (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Isolation (00:05:00)
+02. Darkest Secrets (00:03:42)
+03. Til the Day I Die (00:04:50)
+04. My Confession (00:04:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1286D82D0CA054D174990400043A0E0305A356D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477776   (1010841) от 16.06.2021
+
+Mammoth WVH - Mammoth WVH (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Ed (03:44)
+02. Horribly Right (03:39)
+03. Epiphany (04:28)
+04. Don’t Back Down (03:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B263EF5A6627A1BC7F6A67F6C48E7CF2202D579E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477706   (1010840) от 16.06.2021
+
+Dobermann - Shaken To The Core (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shaken To The Core
+02. Staring At The Black Road
+03. Stiff Upper Lip
+04. Dropping Like Flies(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B24F16355CE9632B956EC4E80DE936F30A9FA62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478017   (1010525) от 18.06.2021
+
+Niva - Incremental IV (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don’t You Know
+02. Crush
+03. Better Just Forgotten
+04. Magnitude(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454B6F3B24E6F824D877AF2A04BD49D685E44F93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478174   (1010512) от 18.06.2021
 
 Social Disorder - Love 2 Be Hated (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +745,6 @@ The Ivory Lies - The Ivory Lies (2021) [FLAC|Lossless|WEB-DL|tracks] <Stoner, Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:72DCBE98B55F7919182E530F8A37D1BF304F951D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482999   (1007179) от 11.07.2021
-
-Waysted - The Harsh Reality (2007) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Propaganda
-02.Samaritan Man
-03.Rockin' The Cliche
-04.Keepin' It Sweet(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B203B95CACB4E8BCA69EB7FB81B4BB6CFD0B04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483214   (1007026) от 12.07.2021
-
-Reverend Jack - A Mile from Home (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crimson Seed (03:42)
-02. Fire Down Below (03:19)
-03. Greed (03:39)
-04. Crawling Inside (03:12)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D83557EA491FAE5A5794D749F68539A2CD1068ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266804   (1006861) от 13.07.2021
-
-VA - The Many Faces Of KISS: A Journey Through The Inner World Of KISS (2017) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006861.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - The Many Faces of Kiss
-01 | Ain't Gonna Die (Bruce Kulick feat Gene Simmons) | 04:11
-02 | Johnny's In Love (Ritchie Starlet feat Ace Frehley) | 03:25
-03 | American Man (Shameless) | 03:44(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C92D35F6D5389108BB8F66862EF2FABA432EF48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483696   (1006672) от 15.07.2021
-
-Appice - Sinister (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1006672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinister
-02. Monsters And Heroes
-03. Killing Floor
-04. Danger(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D7A259A2C9427B6E680908FBF6A940C9EE1D5D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

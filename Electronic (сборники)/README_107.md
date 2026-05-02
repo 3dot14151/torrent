@@ -1,3 +1,61 @@
+###  Публикация: 1037871   (610228) от 26.07.2016
+
+VA - The Best - In Music We Trust Vol.3 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610228.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Quintino -  Rock It To The Beat 3:38
+002. Blasterjaxx & DBSTF -  Parnassia (Edit) 3:10
+003. Dimitri Vegas & Like Mike Ft. Wolfpack & Katy B -  Find Tomorrow (Ocarina) (Bodybangers Remix) 5:41
+004. Nicky Romero -  Ready 2 Rumble (Original Mix) 2:59(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 06:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3993BC968772AE1DE3FACA19FF18BC1EC1A4DC2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036535   (610195) от 26.07.2016
+
+VA - Deep, Dark & Dangerous: Volume 1 (DDDC01) (2016) [MP3|320 Kbps] <Dubstep, Deep dubstep, Dark dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abstrakt Sonance - Circuit (5:02)
+02. Akcept - Gacrux (5:12)
+03. Arkwright - Icycole (7:27)
+04. Bisweed - Screaming Target (6:06)(   Читать дальше...   )Жанр: Dubstep, Deep dubstep, Dark dubstepПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C9C8BA2C60B0D686EC831D16EF1A92A046055A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147416   (609180) от 02.07.2017
 
 VA - Aesthetical Progressive House (2017) [MP3|320 Kbps] <Progressive House, Electro>
@@ -687,64 +745,6 @@ VA - Vocal Trance Seduction Vol 4 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1850DC3ADB2326AB3F17978AB82F92222F3E37B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231285   (607054) от 17.06.2018
-
-VA - 110 Electro House: Most Rated June (2018) [MP3|320 Kbps] <Club, Dance, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Marc Moosbrugger - From Now On
-002. Damon Rush - Where U At
-003. The Sloppy 5Th's - Tushy (Original Mix)
-004. Nora En Pure - Sphinx(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 08:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3FAB282D7BDE9A016C5CE68183C34276B0AF073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231282   (607048) от 17.06.2018
-
-VA - Sexy Deep House Grooves (2018) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607048.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Peter Brown - Alegria
-002. Roberto Stecini - Deep In My Soul
-003. Umut Dogan - Can You Feel It
-004. Savi Leon - Get Serious (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:13:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6A16AA8736C5A1EFE2DC077DD4CB53AA4D3050
 ```
 
 https://mybot314.ru/tekegram_catalog/

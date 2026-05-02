@@ -1,3 +1,119 @@
+###  Публикация: 395302   (1021651) от 10.04.2021
+
+Cheap Trick - 20 Studio, 5 Live, 7 Compilations, 1 Box Set (1977 - 2021) 83 CD [FLAC|Lossless|image+.cue|tracks+.cue]<Hard Rock, Power Pop, Arena Rock>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021651.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часто бывает так, что музыкант по полной программе выкладывается в своих первых работах, а дальше записывает один невнятный альбом за другим и если остается в строю, то лишь в уважение былых заслуг. С американской командой Cheap Trick дела обстоят совершенно противоположным образом. Пройдя через долгий и мучительный поиск своего лица, «трюкачи» стали настоящими рок-звездами (   Читать дальше...   )Список альбомов:
+1977 - Cheap Trick
+1977 - In Color
+1978 - Heaven TonightЖанр: Hard Rock, Power Pop, Arena RockПродолжительность: 71:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936AC6BDB1959E44D45E6713D5A3E4C934AB7035
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461668   (1021638) от 11.04.2021
+
+Bride - Scarecrow Messiah (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beast
+02. Place
+03. Murder
+04. Scarecrow(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:109AB6DBB5E5F55CE2E1EB96A44B102CE5493641
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461672   (1021631) от 11.04.2021
+
+Harem Scarem - Mood Swings (1993) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saviors Never Cry
+02. No Justice
+03. Stranger Than Love
+04. Changes Come Around(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D891DD4FD8A0CC0CFF2075FDAD7B58D4D392AD09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461700   (1021623) от 11.04.2021
+
+Sons Of Angels - Sons Of Angels (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cowgirl
+02. Spend The Night
+03. Look Out For Love
+04. Lonely Rose(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2D15C560E9FDD55EA6E0B24974913BA79908E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1462168   (1021325) от 13.04.2021
 
 The End Machine - Phase2 (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ Y & T (Yesterday And Today) - 26 albums, 1 Box set, 45 CD (1976-2018) [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A72B8B73A690D03A6F573E384A0D84616C50DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465794   (1018780) от 28.04.2021
-
-Serpentine - А Тоuсh Оf Неаvеn (2010) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Touch Of Heaven
-02. Whatever Heartache
-03. Lonely Nights
-04. For The Love Of It All(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C803EFB2D72ED8BFF350A18CEFFFA669C72BE1FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466181   (1018648) от 29.04.2021
-
-Faithful Grace - A New Era (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devil In Disguise 5:13
-02. High On Believin’ 4:11
-03. Get Off My Back 5:06
-04. Tear It All Down 3:43(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C5593865ACE5FF94A839B0A2A6A2D557509A295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466355   (1018446) от 30.04.2021
-
-Doogie White - As yet Untitled - Then There Was This (2021) 2xCD, Bonus CD [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018446.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. Come Taste the Band (05:32)
-02. Time Machine (03:57)
-03. Dreams Lie Down and Die (05:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:579C832110A1A354E632E4D03D4189446EC7318F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1466663   (1018264) от 01.05.2021
-
-Soulkick - No Turning Back (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Turning Back
-02. No Shelter
-03. Mirror Eyes
-04. When the Lights Are Gone(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:316825CB28D80D11046BD03C8F5D8760A3715987
 ```
 
 https://mybot314.ru/tekegram_catalog/

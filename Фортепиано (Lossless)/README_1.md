@@ -1,3 +1,32 @@
+###  Публикация: 1033602   (637927) от 11.07.2016
+
+Maria Grinberg - Beethoven: Piano Sonatas (vol 1,2) 1968 (2 Альбома) [FLAC|Lossless|image + .cue] <Classical, Solo Instrumental, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sonata No.1 in F minor Op.2-1 - I. Allegro    03:34
+02.  Sonata No.1 in F minor Op.2-1 - II. Adagio    04:04
+03.  Sonata No.1 in F minor Op.2-1 - III. Menuetto. Allegretto.    02:44
+04.  Sonata No.1 in F minor Op.2-1 - IV. Prestissimo    04:30(   Читать дальше...   )Жанр: Classical, Solo Instrumental, PianoПродолжительность: 02:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73ED975BA8B5FF55094FEC6AABD5A77290EC8C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036370   (620850) от 20.07.2016
 
 Steven Osborne - Beethoven: Bagatelles (2012) [FLAC|Lossless|image + .cue] <Classical, Keyboard>
@@ -737,35 +766,6 @@ Piano Sonata No. 8 in C minor ("Pathtique"), Op. 13
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9E1035171262EF73A2E87114D4CB4B9A8505B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409365   (447232) от 16.09.2020
-
-Craig Armstrong - Piano Works (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In My Own Words (2:44)
- 02. Heatmiser 2 (4:02)
- 03. Hidden (1:50)
- 04. Gentle Piece (2:55)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:56:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D521CB9F723E204E0AA2F713C8901954143392
 ```
 
 https://mybot314.ru/tekegram_catalog/

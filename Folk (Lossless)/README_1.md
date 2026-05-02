@@ -1,3 +1,32 @@
+###  Публикация: 1107114   (868003) от 22.02.2017
+
+Cyndi Lauper - At Last (2003) [FLAC|Lossless|image + .cue] <Pop, Pop Rock, New Wave>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. At Last
+02. Walk On By
+03. Stay
+04. La Vie En Rose(   Читать дальше...   )Жанр: Pop, Pop Rock, New WaveПродолжительность: 00:50:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:466B0A73BF4AE7527A6573317AB19D84E2E77735
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 645083   (867140) от 17.04.2013
 
 Deep Forest - Deep Africa (2013) /Promo CD/ [APE|Lossless]<World, New Age>
@@ -715,35 +744,6 @@ Fred Neil является вторым альбомом от Фреда Нил�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A408C20A973602E3A95E32B2761E516ED16BF0AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386533   (793568) от 30.05.2020
-
-Buck Owens And His Buckaroos - I've Got A Tiger By The Tail (1965) Reissue 1995 [FLAC|Lossless|tracks] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got A Tiger By The Tail (2:13)
-02. Trouble And Me (1:56)
-03. Let The Sad Times Roll On (2:16)
-04. Wham Bam (2:03)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6485F00740B3967C0DE7042043577E045C6889FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

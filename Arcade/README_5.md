@@ -1,3 +1,29 @@
+###  Публикация: 1089401   (951704) от 03.01.2017
+
+Hypersensitive Bob (2016) [En] (1291928) Repack Other s
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hypersensitive Bob — это аркадный платформер, главный герой которого - аллергик Боб, который путешествует по миру в поисках лекарства от своей "аллергии на все".Тип издания: RepackРазработчик: SIEIDI LtdЖанр: Arcade, Action, IndieЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0463415FFCF76AAA1CAEA0FABBB2B3CFFBD71C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1089282   (951661) от 03.01.2017
 
 Dragon Ball: Xenoverse (2015) [Ru/Multi] (1.08.00/dlc) SteamRip Let'sPlay
@@ -647,32 +673,6 @@ LEGO MARVEL's Avengers (2016) [Ru/Multi] (1.0) License CODEX
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A210057ABD175C3281B14D2628DF048C7EA603EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958858   (927175) от 16.02.2016
-
-Guns, Gore and Cannoli (2015) [Ru/Multi] (1.2.5) SteamRip Let'sРlay
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в 1920-ые в город Тантаун, во времена запрета алкоголя. Приготовьтесь к нон-стоп убийственному экшнену, быстро развивающийся, аркадный двухмерный шутер-платформер. Восстань против гангстерского расцвета 20-ых. Перенесись в захватывающий, запутанный иной мир, где ты станешь свидетелем дружбы, предательства и мести.Тип издания: SteamRipРазработчик: Crazy Monkey Studios ,	Claeys BrothersЖанр: Arcade (Platform)Язык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Немецкий, Французский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76BE49F0A58D1DB5AB044B4296F3B2ECC8110A1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

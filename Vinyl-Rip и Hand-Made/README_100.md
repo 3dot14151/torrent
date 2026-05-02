@@ -1,3 +1,177 @@
+###  Публикация: 1598761   (21968) от 09.04.2025
+
+Sunstorm - Studio Albums (8 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Heavy Metal/Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sunstorm — американский музыкальный проект AOR , первоначально в котором участвовали ведущий вокалист Джо Линн Тернер, басист/вокалист Деннис Уорд , клавишник Йохен Вейер, а также гитарист Уве Рейтенауэр и барабанщик Крис Шмидт. В альбомах также участвовали такие исполнители, как Дэнн Хафф и Джим Петерик , в качестве дополнительных авторов песен.2006 - Sunstorm
+2009 - House Of Dreams
+2012 - Emotional Fire
+2016 - Edge Of Tomorrow(   Читать дальше...   )Жанр: Melodic Heavy Metal/Hard RockПродолжительность: 06:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08EF47E75616750593AA285C5DC4B01C4B91E422
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551047   (21792) от 11.04.2025
+
+Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21792.jpg" />
+</div>
+
+
+###  Подробнее
+
+Epica — нидерландская группа, образована в 2003 году ритм-гитаристом и вокалистом Марком Янсеном после его ухода из After Forever. Визитной карточкой Epica являются женский вокал в сочетании с мужским гроулингом и скримингом. Также в группе используется струнный оркестр и хор.2003 - The Phantom Agony
+2005 - Consign To Oblivion
+2007 - The Divine Conspiracy
+2009 - Design Your Universe(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 16:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE55D1D117A0951BA575A8AB0A4F50CAD457BF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791518   (21109) от 17.04.2025
+
+Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The Song Of Songs (1986) Repress, Quadraphonic [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Renaissance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21109.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Osculetur Me	2:55
+A2 Trahe Me	2:50
+A3 Nigra Sum, Sed Formosa	4:25
+A4 Vineam Meam Non Custodivi	2:50(   Читать дальше...   )Жанр: Classical, RenaissanceПродолжительность: 01:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DE0C8427675FD79E66C2AB4E67F0EBB79FA3CCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548427   (20958) от 19.04.2025
+
+Arch Enemy - Дискография (17 albums) (1996-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arch Enemy (от англ. arch-enemy — заклятый враг) — шведская группа, играющая в стиле мелодичный дэт-метал. Была основана в 1996 году братьями Майклом и Кристофером Эмоттами.1996 - Black Earth
+1998 - Stigmata
+1999 - Burning Bridges
+2001 - Wages of SinЖанр: Melodic Death MetalПродолжительность: 15:29:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21199E5141DDE66AE81B10185873A6AABFE05A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1603407   (20464) от 24.04.2025
+
+Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cradle of Filth — английская метал-группа, основанная в 1991 году вокалистом Дэниелом Ллойдом Дэви, выступающим под псевдонимом Дэни Филт. Стиль группы менялся от альбома к альбому, но в среднем представляет собой смесь симфонического блэк-метала и готик-метала.1994 - The Principle Of Evil Made Flesh
+1996 - Dusk And Her Embrace
+1998 - Cruelty And The Beast
+2000 - MidianЖанр: Death Metal, Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 33:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D1816D9F39B4FFBF4B7C60D68773544DAABED03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1535212   (20431) от 24.04.2025
+
+Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Groove/Thrash Metal, Nu-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Machine Head — американская грув-метал-группа, образованная гитаристом и вокалистом Роббом Флинном 12 октября 1991 года в Окленде, Калифорния1994 - Burn My Eyes
+1997 - The More Things Change
+1999 - The Burning Red
+2001 - SuperchargerЖанр: Thrash/Groove Metal, Nu-MetalПродолжительность: 18:18:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0C40BFEAF2C79B77DD98732F7E83D1A8B3D2C8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688359   (20404) от 24.04.2025
 
 Bleed From Within - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
@@ -573,181 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCD334B6E2FD61E022688C8968F04F3540EC0A9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798047   (17669) от 20.05.2025
-
-Rodmir - Родмир (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Glam>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17669.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Тебе • To You
-A2 Инквизитор • Inquisitor
-A3 Посвящение • Dedication
-A4 Русская Рулетка • Russian Roulette(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25D23E69C54D65E0269803C37953A0DA104B129D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798193   (17533) от 21.05.2025
-
-Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain
-02. Shining Kingdom
-03. Angel's Decay
-04. My Saviour(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE2468F6BBB35BE34D3D4BE5A749CDE8902495FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810409   (17341) от 04.08.2025
-
-Arcana - Studio Albums (9 releases) (1996-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neoclassical Darkwave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17341.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arcana — шведская группа, созданная в 1994 году Петером Бьяргё.
-Творчество группы часто сравнивают с Dead Can Dance1996 - Dark Age Of Reason
-1997 - Cantar De Procella
-2000 - ...The Last Embrace
-2002 - Inner Pale SunЖанр: Neoclassical DarkwaveПродолжительность: 06:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F266C0245DD4BDBDD788F68303F9828FC19BCAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810399   (17340) от 04.08.2025
-
-VA - Jan Sparring/Nils-Borge Gardh/Linda Hutchens/Bobby Jones & New Life - Till Gladje (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17340.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Linda Hutchens - Det Ar Langesen
-A2 Linda Hutchens - Harlig Ar Jorden
-A3 Linda Hutchens - Operator
-A4 Bobby Jones & New Life - Amazing Grace(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:631B51482C395D4E3EA54C67960B5FB85C840B7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586285   (17002) от 25.05.2025
-
-Onslaught - Studio & Live Albums (10 releases) (1985-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17002.jpg" />
-</div>
-
-
-###  Подробнее
-
-Onslaught — британская трэш-метал-группа из Бристоля, существовавшая с 1983 по 1991 годы и вновь собравшаяся в 2004 году.1985 - Power From Hell
-1986 - The Force
-1989 - In Search of Sanity
-2007 - Killing PeaceЖанр: Thrash MetalПродолжительность: 08:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C69785BD8DAE0C1C9820C5A2B38DE7E2519DC24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798841   (16971) от 25.05.2025
-
-Группа «Визит» - Ночь Без Тебя (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16971.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Тяжелый Случай
-A2 Последний Миг
-A3 Пляжное Регги
-A4 Откровение(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9F6703F0D9199ECCB8BEB909CB03E8E4B07CE31
 ```
 
 https://mybot314.ru/tekegram_catalog/

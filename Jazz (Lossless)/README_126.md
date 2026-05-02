@@ -1,3 +1,61 @@
+###  Публикация: 1034853   (632676) от 14.07.2016
+
+Jeremy Steig - Fusion (1970) Groove Merchant[APE|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Home [04:40]
+ 02.Cakes [04:53]
+ 03.Swamp Carol [04:12]
+ 04.Energy [04:51](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E0A53DAAADBB867A3BF97F965E7D81457D9CDA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908665   (632493) от 15.06.2015
+
+Bobby Hutcherson - Linger Lane (2012) [FLAC|Lossless]<Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People Make The World Go Round [08:53]
+02. Theme from 'M*A*S*H' [04:33]
+03. NTU [05:55]
+04. Manzanita [04:04](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA5BFAA585261995916C62B730F7F3527121970B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908670   (632488) от 15.06.2015
 
 Ornette Coleman - New York Is Now! Vol. 1 (2014) [FLAC|Lossless]<Jazz, Avant-Garde Jazz, Free Improvisation>
@@ -703,64 +761,6 @@ McCoy Tyner - Dimensions (1984) /2005, Collectables/[FLAC|tracks+.cue]<Jazz, Pos
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E5EE789314BC85BF615A22858F56C6521BA1DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229318   (628222) от 05.06.2018
-
-Sammy Davis, Jr. & Carmen McRae - Boy Meets Girl & Porgy and Bess (1957, 1959) 2005, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy to Make Your Acquaintance [3:15]
-02. Tea for Two [2:37]
-03. They Didn't Believe Me [2:57]
-04. You're the Top [3:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2621682E0305B6D21F2C756B7C03C0DD31BF0B3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144547   (627911) от 22.06.2017
-
-Jerome Sabbagh - Plugged In (2012) Bee Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive [05:23]
-02. Special K [03:58]
-03. Aisha [07:10]
-04. Jeli [05:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5171A59C686281232BA70DA1DA51D93B12308FD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1437117   (1042484) от 03.01.2021
+
+Your Universal MultiBoot Installer UEFI 0.0.3.2 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042484.jpg" />
+</div>
+
+
+###  Подробнее
+
+YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF27464E049771A6507B32A4A5FEEA94109EA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1437014   (1042482) от 03.01.2021
+
+Your Universal MultiBoot Installer (YUMI) 2.0.8.2a Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042482.jpg" />
+</div>
+
+
+###  Подробнее
+
+YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:823FEFFBB4A067FABE519F9D640BEF3F71B1B5CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437019   (1042479) от 03.01.2021
 
 Камеди Клаб / Комеди Клаб / Comedy Club (31.12.2020) WEB-DL [H.264/1080p-LQ] (выпуск 1)
@@ -629,59 +681,6 @@ HDCleaner – многофункциональный программный пр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5521F9FB37BCEDDEA3284AA4D47D814820ABCC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437279   (1042271) от 04.01.2021
-
-Exif Pilot 5.22.0 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042271.jpg" />
-</div>
-
-
-###  Подробнее
-
-Exif Pilot - EXIF редактор используется для просмотра EXIF, EXIF GPS, IPTC и XMP данных, редактирования, создания EXIF, EXIF GPS и IPTC данных. Импорт/экспорт из/в XML, MS Excel формат, текстовый файл. Exif Pilot поддерживает следующие форматы: JPEG, TIFF, PNG, DNG, NEF, PEF, CRW, JP2 - читает, редактирует и создает метаданные. RAW изображения, включая CR2, MRW, (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E08A427F94790408B7F425FF04D7DCB4D35D66D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437243   (1042269) от 04.01.2021
-
-HiBit Uninstaller 2.5.80 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042269.jpg" />
-</div>
-
-
-###  Подробнее
-
-HiBit Uninstaller - идеальное решение для удаления программ Windows, которое позволяет вам деинсталлировать программы быстро и полностью, используя простой и дружественный к пользователю интерфейс. Так же, в программе имеется множество средств для очистки и управления вашей системой.
-Удобной функцией в HiBit Uninstaller является удаления программ посредством менеджера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6520FD82398774F6C90B0E100EA5AB70EA83736D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,248 @@
+###  Публикация: 469497   (96876) от 17.03.2012
+
+[Wallpapers] Nature Pictures №27
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96876.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №27
+Название: Nature Pictures №27
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200 - 1600x1280
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27165C807B44472C913B16A56ECC418A594F652E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468491   (96875) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96875.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 12 
+Название:  Desktop Wallpapers Pack 12 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FE9F4006378F4E354C6A8969C8790214A1FF8D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 468497   (96874) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96874.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 14 
+Название:  Desktop Wallpapers Pack 14 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA395318E05FA2606C98564DE300F1F902AE3AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469455   (96872) от 17.03.2012
+
+VA - TMP : Vanilla Dreams 062 (2012) [MP3|320 kbps]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Doppler Effect feat. Carol Lee - Beauty Hides In The Deep (John O'Callaghan Radio Edit)
+02. Sean Bay feat. Arabella - Deep Inside (Intro Mix 2011)
+03. Hannah - Falling Away (Armin van Buuren Remix)
+04. Vegas Baby feat. Angelic - For The Love Of You (Tydi Remix)
+05. Snoww & Dj T.H. feat. Di - On & On (Manida Remix)
+06. Michelle Cecchi - One (Original Mix)
+07. NatLife feat. Inesse - Road To The Far East (Asia 2011 Mix)
+08. Spark7 - Sound Of Tommorow (Solid Stone Remix)
+09. Tom Colontonio feat. CiBon - The Sun (Original Mix)
+10. Laura Jansen - Use Somebody (Armin van Buuren Rework)2012Жанр: Vocal TranceПродолжительность: 01:07:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B27F1D00C06382687101C333BFBF80BFE0BD83C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469217   (96871) от 17.03.2012
+
+[Wallpapers] Nature Pictures №24
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96871.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №24
+Название: Nature Pictures №24
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B2C7314608EE5ABC03E04C0A74FAF056F01500
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469225   (96870) от 17.03.2012
+
+[Wallpapers] Avto Wallpapers Pack 10
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96870.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers Pack 10
+Название: Avto Wallpapers Pack 10
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C479F400A815C6E8997DE7318B6ED18DC263F8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469549   (96869) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 89
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96869.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 89
+Название: Desktop Wallpapers Pack 89
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03D4855959CF304904400ACED07879B69B627B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469195   (96867) от 17.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 72
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96867.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 72
+Название: Desktop Wallpapers Pack 72
+Тип раздаваемого: Wallpapers
+Разрешение файлов: от 1920x1080 до 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48633E7B795982B8995877898438FC0F4F499657
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469529   (96866) от 17.03.2012
 
 [Wallpapers] Desktop Wallpapers Pack 85
@@ -529,241 +774,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:686F2BF189AB6E1A59139192D3A8777387A49BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 466334   (96843) от 16.03.2012
-
-Slava Черный & Roma Белый - Фольксваген (1995) [FLAC|Lossless]<Pop-Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.Ч. & R.Б. [4:02]
-02. Фольксваген [4:17]
-03. Просто сон [4:20]
-04. Где-то там [4:22]
-05. Город Палермо [4:22]
-06. Панама [4:05]
-07. Море волнуется раз, 2, 3 [4:09]
-08. П.Р. Автобус [4:27]
-09. Нет пути назад [4:50]
-10. Остров [4:38](   Читать дальше...   )1995Жанр: Pop-DanceПродолжительность: 00:59:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467710   (96842) от 16.03.2012
-
-Karl Denson - Dance Lesson #2 (2001) [FLAC|Lossless]<Jazz-Funk, Acid Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance Lesson #2 (6:11)
-02. Like Like Dope (7:33)
-03. Rumpwinder (6:27)
-04. Flute Down (6:10)
-05. A. J. Bustah (6:29)
-06. A Shorter Path #1 (1:35)
-07. A Shorter Path #2 (7:26)
-08. I Want the Funk (7:29)
-09. Who Are You? (11:54)2001Жанр: Jazz-Funk, Acid JazzПродолжительность: 01:01:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468519   (96838) от 16.03.2012
-
-Эрл Стэнли Гарднер | Не жилец [2010] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл «Приключения Пола Прая» The Adventures of Paul Pry
-Не жилецЖанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA664B7278C638DF62ABF3039D97B35EDEF346BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468945   (96834) от 16.03.2012
-
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №10 (2012.03.16) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96834.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C944B5095E3472986449C37A57A7BC5CB6337D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468859   (96833) от 16.03.2012
-
-Биатлон. Кубок Мира 2011-12. 9-й этап. Ханты-Мансийск (Россия). Женщины. Спринт 7,5 км (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96833.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спринтерская женская гонка на 9 этапе кубка мира по биатлону в Ханты-Мансийске.Жанр: СпортПеревод: Одноголосый закадровый, профессиональный (Дмитрий Губерниев)Продолжительность: 01:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B33274A3F1A65848F68347667326088757DDE828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468504   (96827) от 16.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 15
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96827.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 15 
-Название:  Desktop Wallpapers Pack 15 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080D10C9C3707990C3E16F2809283B1390853103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468996   (96818) от 16.03.2012
-
-[Wallpapers] Anime Desktop Wallpapers Pack
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96818.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Anime Desktop Wallpapers Pack 
-Название:  Anime Desktop Wallpapers Pack 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 6970х4764
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9146DB94A18AF015043AB526D066A1FFB4385E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468531   (96817) от 16.03.2012
-
-Эрл Стэнли Гарднер | Честная игра [2010] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл «Приключения Пола Прая» The Adventures of Paul Pry
-Честная играЖанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2271600727F3E93A05D4DD6850A2D904BF0CCBA
 ```
 
 https://mybot314.ru/tekegram_catalog/

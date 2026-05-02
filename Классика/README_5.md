@@ -1,3 +1,32 @@
+###  Публикация: 983517   (943613) от 06.02.2016
+
+Saint-Saens - Carnival of the Animals, Danse macabre, Symphony 3 (2009) (Ormandy, Entremont, Power Biggs) [FLAC|Lossless|Track+.cue] <Классическая музыка, Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943613.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony no. 3 in C major, op. 78 "Organ"
+01 -1a- Adagio
+02 -1b- Allegro moderato
+03 -1c- Poco adagio(   Читать дальше...   )Жанр: Классическая музыка, Classical, Romanticism, SymphonyПродолжительность: 01:15:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5ADADC77874E07BB8589A8390EB8F7C09822EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091907   (941199) от 10.01.2017
 
 Daniil Trifonov - Transcendental - Daniil Trifonov Plays Franz Liszt (2016) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -722,36 +751,6 @@ Piano Sonata No. 18 in G Major, D. 894, "Fantasie"
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3E4B71D31F62FED8A7093960A3329026E7AF00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991780   (904032) от 29.02.2016
-
-Pascal Roge - Debussy: Clair de lune (1978 - 1981) VIRTUOSO, 2013, Decca [FLAC|Lossless|tracks + .cue] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904032.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Suite bergamasque, состоящая из четырех частей, является одним из самых известных фортепианных сюит французского композитора Клода Дебюсси. Мелодии сюиты навеяны неуклюжими деревенскими танцами, которые присущи уроженцам Бергамо в Италии. Жители этого городка слыли очень неловкими и их манеры и танец Bergomask ассоциируется с клоунами или шутовством.
-Самой известной (   Читать дальше...   )01. Clair de lune (Suite bergamasque)  (5:34)
-02. La fille aux cheveux de lin (Preludes - Book 1)  (2:30)
-03. La cathedrale engloutie (Preludes - Book 1)  (6:29)
-04. Minstrels (Preludes - Book 1)  (2:19)(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:19:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1DDF113A246D0FF840258BDC8D950ADB611CD4B
 ```
 
 https://mybot314.ru/tekegram_catalog/

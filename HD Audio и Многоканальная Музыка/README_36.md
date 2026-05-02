@@ -1,3 +1,177 @@
+###  Публикация: 1162167   (461335) от 31.08.2017
+
+Barclay James Harvest - XII (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461335.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Fantasy: Loving Is Easy (4:04)
+A2. Berlin (4:56)
+A3. Classics: A Tale Of Two Sixties (3:35)
+A4. Turning In Circles (3:32)(   Читать дальше...   )Производство: Polydor - POLD 5006Жанр: Progressive RockПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13DFB3F1B800C00EBC337220436272A56DFF494D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162027   (458746) от 01.09.2017
+
+Мираж - Звёзды нас ждут (1987) [DSD2.0 (DFF)|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Звёзды нас ждут (06:18)
+02. Видео (04:29)
+03. Электричество (04:30)
+04. Безумный мир (04:02)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:119B0A483678636826F666896191C10049CE198E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569146   (455565) от 11.08.2022
+
+Shinedown - Studio Albums (7 releases) (2004 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shinedown — американская рок-группа, основанная в Джэксонвилле, штат Флорида в 2001 году Брентом Смитом (вокал), Бредом Стюартом (бас), Джасином Тоддом (гитара) и Барри Керчем (ударные).2004 - Leave A Whisper
+2005 - Us and Them
+2008 - The Sound Of Madness
+2012 - AmaryllisЖанр: Hard Rock, Post-grungeПродолжительность: 06:37:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7D23DD6DAF667EA772FC0C16774500CB38BF9AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568954   (455559) от 11.08.2022
+
+Gamma Ray (Helloween, Iron Savior, Unisonic) - Studio Albums (1990 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Gamma Ray — немецкая метал-группа, созданная в 1989 году Каем Хансеном, бывшим гитаристом и вокалистом группы Helloween.1990 - Heading For Tomorrow
+1991 - Sigh No More
+1993 - Insanity And Genius
+1995 - Land Of The FreeЖанр: Heavy/Power/Speed MetalПродолжительность: 12:16:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EE1918D93BF6902C636FB2CDFD2DE185537AA30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060136   (454809) от 07.10.2016
+
+Richard Clayderman - 7 Albums (1978-1984) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip]<Easy Listening, Instrumental, Piano>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454809.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ballade Pour Adeline (piano et orchestre)
+02. Secret Of My Life (one)
+03. L'Enfant Et La Mer
+04. Lys River(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 05:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F00D51FEE3F07827505FF8324B11EA85C66953D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1163009   (454573) от 03.09.2017
+
+Rockets - Plasteroid (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454573.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Electric Delight (5:10)
+A2. Astral World (4:26)
+A3. If You Drive (4:50)
+A4. Legion Of Aliens (3:37)(   Читать дальше...   )Производство: Rockland Records - 900.500Жанр: Space RockПродолжительность: 00:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42E6D37D98E03BEF65A23D665C2EF3794717E9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1569401   (453352) от 12.08.2022
 
 Harumi Nomoto Trio - Another Ordinary Day (2020) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
@@ -578,180 +752,6 @@ I Am Woman (1972)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D76E159760F37B6090273D7BF4B116B9DB2BB30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249082   (434943) от 23.09.2018
-
-Валерий Ободзинский - Золотые Шлягеры 60-70 гг. (1996) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434943.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Неотправленное Письмо
-A2 Что-то Случилось
-A3 Олеандр
-A4 Белые Крылья(   Читать дальше...   )Жанр: PopПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B005C39F9CA7D9D58D742A9593ABB00646151C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410619   (433861) от 22.09.2020
-
-Puhdys - Far From Home (1981) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433861.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Prison Walls Are Silent = Doch Die Gitter Schweigen
-A2 The Times I've Cried Over You = Nie Wieder Werd' Ich Weinen Um Dich
-A3 But Not For Ever = Bis Ans Ende Der Welt
-A4 Journey To The Centre Of The World = Reise Zum Mittelpunkt Der Erde(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C268CC30659A4323C4A5E5CB29BE7CE444C5829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410612   (433857) от 22.09.2020
-
-VA - Мы Друг Друга Нашли Песни на стихи В. Харитонова (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Soul, Schlager>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433857.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ансамбль п/у А. Слизунова - Что Прошло, То Прошло
-A2 Ансамбль п/у А. Слизунова - Бывают В Мае Холода
-A3 Я. Йоала - Что-То Было
-A4 В. Дьяконов - День, В Котором Жил Я(   Читать дальше...   )Жанр: Pop Rock, Soul, SchlagerПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76DB32256656BCB23CFB5E9AEC011DFAAE0C1A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410614   (433750) от 22.09.2020
-
-Wings - Venus And Mars (1994) Recorded 1975 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433750.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Venus And Mars
-A2 Rock Show
-A3 Love In Song
-A4 You Gave Me The Answer(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BDF5DC1E86CB1F425135296872F490FA1598BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959688   (433726) от 21.08.2022
-
-Helen Reddy - Free And Easy (1974) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433726.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Angie Baby
-A2	Raised On Rock
-A3	I've Been Wanting You So Long
-A4	You Have Lived(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5A77064A5F4D73D15E37FC4A86E203D5B5C9E2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165600   (432118) от 13.09.2017
-
-VA - 80's Dance Classic (2001) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop Rock, Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Opus - Life Is Life
-02. Status Quo - You're In The Army Now
-03. Desireless - Voyage(   Читать дальше...   )Жанр: Pop Rock, Pop, DiscoПродолжительность: 01:19:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DC71C62A866B850A365E729AE0EBCDF881E4F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

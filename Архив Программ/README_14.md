@@ -1,3 +1,29 @@
+###  Публикация: 1609224   (1043354) от 02.02.2023
+
+GPU Caps Viewer 1.58.0.0 + Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1043354.jpg" />
+</div>
+
+
+###  Подробнее
+
+GPU Caps Viewer - информационная утилита, позволяющая получить информацию о графической карте, провести несколько OpenGL и OpenCL тестов и вести мониторинг различных параметров GPU карт в реальном времени. Программа отображает OpenGL, OpenCL и CUDA информацию для всех графических карт имеющихся в системе, а также предлагает GPU мониторинг карт NVIDIA GeForce и AMD (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:635B360A21BD5B71FBFEB6AEFBDB590C3A07C31A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1609293   (1043346) от 02.02.2023
 
 EssentialPIM Pro 11.2.4 RePack (& portable) by Dodakaedr [Multi/Ru]
@@ -647,32 +673,6 @@ Cockos Reaper является одной из самых продвинутых
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6E9E05E55D2C17D7B41BB75E80B492AA314B3E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609360   (1043266) от 03.02.2023
-
-Topaz Photo AI 1.1.9  (x64) RePack (& Portable) by elchupacabra [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Topaz Photo AI — это универсальный инструмент для уменьшения шума, повышения резкости и увеличения фотографий с помощью искусственного интеллекта. Topaz Labs объединила некоторые функции Denoise AI , Sharpen AI и Gigapixel AI в один мощный инструмент, чтобы сделать ваш рабочий процесс быстрее и проще.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0658CBBF54E5CDD18C6936ED2C46AAEF9A64FCA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

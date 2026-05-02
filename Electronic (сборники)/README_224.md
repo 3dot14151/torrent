@@ -1,3 +1,61 @@
+###  Публикация: 1788128   (23206) от 28.03.2025
+
+VA - Musical kaleidoscope part 35 Easy listening (2025) [MP3|320 Kbps] <Electronic, Easy listening>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flaer Smin - Ad Se Ipsum
+02. Aleksey Boychenko - Enigma Forever
+03. Sisco Le Voyageur - L' Amour Voyageur
+04. Flaer Smin - My Religion(   Читать дальше...   )Жанр: Electronic, Easy listeningПродолжительность: 01:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A28C19E070FB16C7E94EE070DD1C52B4AAB1F7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788243   (23166) от 29.03.2025
+
+VA - Cosmic Heaven (2025) [MP3|320 Kbps] <Synthpop, Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23166.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Unusual Cosmic Process - Stellar (00:07:03)
+002. 7He Myriads - Spacer (00:05:10)
+003. Ernestronix - Italo Space Dance (00:05:33)
+004. Sigma_Algebra - Orthogonal Projection (00:04:35)(   Читать дальше...   )Жанр: Synthpop, Pop, Dance, ElectronicПродолжительность: 10:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBFF376EFDA5BFA669D6E181E5430BEAB78BA9B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788231   (23132) от 29.03.2025
 
 VA - Progressive Euphoric: Surf Trance Mixtape (2025) [MP3|320 Kbps] <Progressive, Trance, Electro>
@@ -687,64 +745,6 @@ VA - Compilation Part 162 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACAF5AD00924CFCFF2DCAA9325B4B74EAAFEE8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791978   (17621) от 21.05.2025
-
-VA - Mixed by DJ Юrkanik (2025) [MP3|320 Kbps] <Progressive House, Trance, Drum & Bass> [Обновляемая]
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block & Crown - Summer Party (Original Mix)
-02. Block & Crown, Devante - We Are The Players
-03. Malive - Quintal (Emanuel Satie, Tim Engelhardt Remix)
-04. MIDI Maxi Efti - Bad Bad Boys (DJ Golden Love & Igor Frank Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, Drum & Bass, House, Nu Disco, Melodic...Продолжительность: 19:16:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:886F9F101D0CD4E9FC1E915606A5878FCFADFF70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810105   (17481) от 03.08.2025
-
-VA - Compilation Part 180 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Akmalov & Dilmurat Oglu - Continue
-02 - Jumanov - Charger
-03 - Azimov - Echo Drift
-04 - Jumanov - Single Girl(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:26:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:593E5664626E4806F4DB9A90E2CD1A5F7F7D9CBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

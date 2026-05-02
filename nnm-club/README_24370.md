@@ -1,24 +1,25 @@
-###  Публикация: 478582   (98709) от 05.04.2012
+###  Публикация: 1766244   (101259) от 17.12.2024
 
-Ночная посылка / Overnight Delivery (1998) DVD5
+VA - Gym Mode 2025 (2024) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101259.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Кто из нас не совершал опрометчивые поступки, будучи всецело поглощенным жгучим чувством ревности? Услышав по телефону, что его девушка «ушла гулять с Рике-ром», Уайт первым делом напился. А так как она учится в другом колледже, он по совету случайной знакомой отправил прощальное письмо.
-
-В конверт срочной доставки он также вложил использованный презерватив и пару соответствующих фотографий. Утреннее сообщение на автоответчике гласило, что «Рикер» — это собака. Попробуй догони теперь эту ночную посылку.Жанр: Комедия, МелодрамаРежиссер: Джейсон БлумАктеры: Пол Радд , Кристин Тейлор , Риз Уизерспун, Сара Силверман , Баффи Седлачек , Ричард Коуди , Гари Вульф , Карл Энтони Пэйн II , Тим Макнифф , Гэйл ПлевацкиПеревод: Двуголосый закадровыйЯзык субтитров: русский, английскийПродолжительность: 01:27:57
+01. David Guetta - Forever Young (2:36)
+02. Charli XCX - Apple (2:31)
+03. BL3SS - Kisses (feat. bbyclose) (2:18)
+04. Linkin Park - The Emptiness Machine (3:10)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:31:56
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:55C2CEAE6E7141A52CE94649F78FCA6901FE017E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,34 +27,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478364   (98707) от 05.04.2012
+###  Публикация: 1766299   (101258) от 17.12.2024
 
-VA - Made In The 90s (2012) [MP3|224-283 kbps]<Pop | Dance>
+НХЛ 2024-2025. Вашингтон Кэпиталз - Даллас Старз (16.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98707.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101258.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Des'ree - Life
-02. Lisa Stansfield - Never, Never Gonna Give You Up
-03. Swv - Right Herehuman Nature
-04. Backstreet Boys - Everybody (Backstreet's Back)
-05. Britney Spears - ...Baby One More Time
-06. Anastacia - I'm Outta Love (Radio Edit)
-07. Jimmy Cliff - Reggae Night
-08. Dr. Alban - It's My Life (Radio Edit)
-09. Alcazar - Crying at the Discoteque (Radio Edit)
-10. Kylie Minogue - Confide in Me (Radio Mix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 02:57:04
+17 декабря 2024, вторник. 04:00 МСК. Стадион: Американ Эйрлайнс-центр (Даллас, США), 18 532 зрителя (98% при вместимости 18 889)
+Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Гислейн Эбер (Батерст, Канада); Линейный: Джо Махон (Калгари, Канада); Линейный: Трэвис Туми (Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:50:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E539371B52F56136F879BD997DAD657753BFA10
+magnet:?xt=urn:btih:7D493F7F60A36BC6AEA4774EB0BF565688FBB2C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -61,29 +54,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478588   (98706) от 05.04.2012
+###  Публикация: 1766261   (101257) от 17.12.2024
 
-[Wallpapers] Nature HD Wallpapers Pack 13
+Terrifier - Studio Albums (3 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98706.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101257.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Nature HD Wallpapers Pack 13 
-Название:  Nature HD Wallpapers Pack 13 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 4320х3240
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Terrifier - трэш-метал группа из Канады, основана в 2012 году.2012 - Destroyers Of The Faith
+2017 - Weapons Of Thrash Destruction
+2023 - Trample the Weak, Devour the DeadЖанр: Thrash MetalПродолжительность: 02:14:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B421A45D44DA87FFF31AC9FAC1F3D4A537D41E8A
+magnet:?xt=urn:btih:8A890C50D23FB662FE30E045530C55ED322E9D5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -91,154 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478083   (98705) от 05.04.2012
+###  Публикация: 1766243   (101256) от 17.12.2024
 
-Psycraft - Art Of Work (2008) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98705.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. New Dance 06:10
- 2. Memories Inside (with Dali) 07:42
- 3. Take Control (Remake) (with X-NoiZe) 06:50
- 4. Follow The Line (feat. Michele Adamson) 06:12
- 5. Electromance (feat. Mikela) 04:05
- 6. Frozen (feat. Efrat Darky) 03:46
- 7. Electromance (Club Mix) (Bonus Track) 06:542008Жанр: Psychedelic / ProgressiveПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478742   (98704) от 05.04.2012
-
-[Wallpapers] HD Wallpapers №5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98704.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers №5
-Название: HD Wallpapers №5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680x1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB52E88ED8A32983BF5449BA8D9E540E113BBB5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478363   (98703) от 05.04.2012
-
-Tetuna - Crazy Trips (2012) [MP3|320 кб/с]<Psy Trance,  Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connexus 8:06
-02. Mistakes 7:32
-03. Spintronics 7:54
-04. Rain Of Fire (Voice Version) 8:24
-05. Circus Light (Live Mix) 7:36
-06. Crazy Squeak 7:32
-07. Atmostrips 7:37
-08. Hallisa 7:38
-09. Virtual Light - Castlevania (Te Tuna Remix) 7:50
-10. Sheitan (Vs Axone) 7:502012Жанр: Psy Trance,  Full OnПродолжительность: 01:17:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB8CE0831575645A2EB32A20C765072E33C79573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478421   (98702) от 05.04.2012
-
-[Wallpapers] Desktop Wallpapers Pack 40
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98702.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 40 
-Название:  Desktop Wallpapers Pack 40 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х720 - 4224х3168
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8F0B55E534127045877F48F7349D7084B0807A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477936   (98700) от 05.04.2012
-
-Antropofagus - Architecture Of Lust (2012) [MP3|320 кб/с]<Brutal Death Metal>
+Revolting - Night Of The Horrid (2024) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Architecture Of Lust
-02. Sanguinis Bestiae Solium
-03. Demise Of The Carnal PrincipleЖанр: Brutal DeathПродолжительность: 00:34:18
+01. Seven Severed Heads
+02. Blades Will Cut
+03. Night Of The Horrid
+04. Hell From The Sky(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:33:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCC42BF0138D6BC755162F0B749BA971EBA590CD
+magnet:?xt=urn:btih:A26AC6E21D34850DAADFF6FC3CBDEBC3649F5150
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -246,34 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478404   (98699) от 05.04.2012
+###  Публикация: 1766332   (101255) от 17.12.2024
 
-VA - Топ 100 3айцев.нет (04.04.2012) [MP3|128-320 кб/с]<Alternative, Chanson, Club, Dance, Disco, Pop, Rap, RnB, Rock>
+Desert Near The End - Tides Of Time (2024) [FLAC|Lossless|image + .cue] <Power Metal, Thrash Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101255.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Michel telo - Ai Se Eu Te Pego [02:43]
- 02. Hits 2012 - Самый реальный клубняк [04:00]
- 03. Иракли & Даша Суворова - Нелюбовь [03:24]
- 04. Шима (Shyma) - Океан [03:22]
- 05. Aura Dione Feat. Rock Mafia - Friends [03:43]
- 06. Slow Train - In The Black Of Night [03:15]
- 07. Полина Гагарина - Спектакль Окончен [04:00]
- 08. Винтаж и DJ Smash - Москва [03:45]
- 09. 5sta Family - Вместе Мы (Prod by T.Y.) [03:40]
- 10. David Guetta - Turn Me On (feat. Nicki Minaj) [03:19](   Читать дальше...   )04.04.2012Жанр: Alternative, Chanson, Club, Dance, Disco, Pop, Rap, RnB, RockПродолжительность: 06:17:48
+1. City Of Eternal Flame 7:44
+2. Ascension 5:23
+3. Oceans Of Time 5:50
+4. Children Of Lethe 6:52(   Читать дальше...   )Жанр: Power Metal, Thrash MetalПродолжительность: 00:56:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DCC035A67D1B3694EACA02982703A459AA2863F8
+magnet:?xt=urn:btih:D647A2E0D6D8231A9470946C78D824D7C80E6AD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -281,34 +140,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478209   (98697) от 05.04.2012
+###  Публикация: 1766251   (101254) от 17.12.2024
 
-VA - Танцевальный клубный поп хит vol.5 (2012) [MP3|256 кб/с]<Pop,Dance, Club>
+VA - Top 11 October 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Архив торрентов
->>Архив Музыки
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101254.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. 3D-Mix - Танго (3:08)
-2. 5sta Family - Тук-тук (Alex Curly remix) (4:25)
-3. 69 Lovers Vs. Lanfranchi & Farina - Think (3:09)
-4. A. Klimik - Blizhe (3:21)
-5. AivaR vs. N'Lezzon - Let's Party (Electro Banger Extended Mix) (4:47)
-6. Alex Mica - Dalinda (Radio Edit) (3:25)
-7. Allexinno Starchild - Yasera (Official Radio Edit) (3:20)
-8. Ana$tezia - Лирика (3:36)
-9. Andrew Mastilias - Time (Remix) (3:08)
-10. Andrew Spencer - Hippie Dreams (Movetown Remix Edit) (3:33)2012Жанр: Pop,Dance, ClubПродолжительность: 06:47:56
+01. C37 - Loved into Submission (Heert Joon Remix) (04:18)
+02. Carlos Adonis - Kuriboh (Original Mix) (05:43)
+03. Terry Noise - Solarflower (Original Mix) (07:01)
+04. DJ Dani - We Should Be Lovers (Original Mix) (06:07)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:50:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94CA42FEFF0691FABD1531B589FC8A149197560A
+magnet:?xt=urn:btih:6DBC9AD987174CE75D3FF3D74866C79276021FBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,33 +169,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478092   (98695) от 05.04.2012
+###  Публикация: 1766254   (101253) от 17.12.2024
 
-Ix Lam At - Kin Ethics (2008) [FLAC|Lossless]<Psychedelic / Progressive>
+VA - Extrema Global Music - Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Музыки
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101253.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Ix Lam At - Pizza Trick 07:26
- 2. Ix Lam At - Beat Botanical 06:18
- 3. Ix Lam At - Crash Window 06:57
- 4. Ix Lam At - Plant Attack 07:48
- 5. Yotopia - Consciousness (Ix Lam At Rmx) 05:43
- 6. Ix Lam At - Arrival 08:21
- 7. Ix Lam At - Release 06:23
- 8. Ix Lam At - Savilax 06:00
- 9. Ix Lam At - Cachai 16:202011Жанр: Psychedelic / ProgressiveПродолжительность: 01:11:16
+01. Kohta Imafuku - Paradiso (04:30)
+02. Fisco & Shaka - Freeman (03:14)
+03. Spy - Dark Star (03:22)
+04. Db Mokk & Dny'l - I Still Breathe (03:23)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:55
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A7EF22053DB6620F801E47594E67C44E443BEB82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,25 +198,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478656   (98694) от 05.04.2012
+###  Публикация: 1766632   (101252) от 19.12.2024
 
-Каникулы в Мексике - 2. Выпуск №24 (2012.04.05) SATRip
+Mick Clarke - Dirty Work (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:50:37
+01. Dirty Work (4:16)
+02. Walking Doctor Bill (3:07)
+03. Just Dropped In (4:13)
+04. Gonna Miss You Like the Devil (3:00)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:40:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:73E256D6A8AF2D3F47DF1ED9D437371857C97FEA
+magnet:?xt=urn:btih:2CEC68BFC80016BC9D33BE0D0AFCA7D3C52B7DBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -376,29 +227,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478244   (98693) от 05.04.2012
+###  Публикация: 1766649   (101251) от 19.12.2024
 
-[Wallpapers] HD Wallpapers №1
+Футбол. Чемпионат Португалии 2024/2025. 14-тур АФС - Бенфика (15.12.2024) WEBRip [H.264]
 
->>Графика, Арт, Разное
->>Обои для рабочего стола
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] HD Wallpapers №1
-Название: HD Wallpapers №1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+15 декабря 2024 года. Стадион: Эштадиу Авеш
+АФС (Вила-даш-Авеш) – Бенфика (Лиссабон). Португальская "Примэра" 14-тур.
+
+«Бенфика» является явным фаворитом этого матча, и не только из-за своего положения в таблице, но и благодаря отличной форме. Они на ходу и продолжают выигрывать, в то время как «АВС» испытывает серьезные проблемы как в атаке, так и в обороне. (   Читать дальше...   )Телекомпания: СтартЖанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:43:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62882D5BD883D92D1550A05CECEE6E91D14DF945
+magnet:?xt=urn:btih:0B0068840A59D2A6AF922B444389D02C1D9133E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,31 +256,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478087   (98691) от 05.04.2012
+###  Публикация: 1766525   (101250) от 19.12.2024
 
-Egorythmia - Remixes 2011 EP (2011) [FLAC|Lossless]<Psychedelic / Progressive>
+Журнал | Народный доктор №22 (668) (ноябрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beyond Gravity (AquaFeel Remix) (07:42)
- 02. We can fly (Hi Profile Remix) (08:10)
- 03. Night Sight (Flegma and Nerso Remix) (06:10)
- 04. Eternal (Prisma Remix) (08:45)
- 05. Eternal (Gaudium Remix) (08:36)
- 06. Eternal (Optiloop Remix) (07:20)
- 07. Eternal (Pop Art Remix) (07:05)2011Жанр: Psychedelic / ProgressiveПродолжительность: 00:53:48
+Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:DADA1470D52CC452415DCE3ECE093B323F9ECA0F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -438,34 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478259   (98690) от 05.04.2012
+###  Публикация: 1766552   (101249) от 19.12.2024
 
-VA - Энергия ночных дискотек 50/50 (2012) [MP3|256 кб/с]<Pop>
+66crusher - Studio Albums (4 releases) (2007-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Thrash Metal>
 
->>Неофициальные сборники
->>Pop (сборники)
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98690.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Lena Katina - Stay
-002 Serebro - Mama Lover (Radio Rip)
-003 Armin Van Buuren, Christian Burns, Bagga Bownz - Neon Hero feat. Christian Burns feat. Bagga
-004 Д. Колдун & Jacqueline - Out Of The Blue
-005 Chris Brown Feat Soulja Boy - Bad
-006 Анна Седокова - Love U
-007 Nirvana - Smells Like Teen Spirit
-008 Борис Шварцман - Мадемуазель
-009 Kelly Rowland - Shake Them Haters Off
-010 Джиган Feat. Жанна Фриске - Ты Рядом2012Жанр: PopПродолжительность: 06:28:04
+66crusher - метал-группа из Норвегии, образована в 2000 году.2007 - Truth Unmasked
+2011 - Blackest Day
+2015 - Wanderer
+2023 - LimboЖанр: Progressive/Thrash MetalПродолжительность: 04:03:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:890F14E1BCF5EDF5E28E6BC8C682BB224AD87EE8
+magnet:?xt=urn:btih:8FA50DA32A028335598A6B2D14258F6EE92C9CF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -473,33 +311,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478089   (98689) от 05.04.2012
+###  Публикация: 1766526   (101248) от 19.12.2024
 
-E-Clip - Shuma (2011) [FLAC|Lossless]<Psychedelic / Progressive>
+Журнал | Народный доктор №23 (669) (декабрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101248.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Life Is Enough [7:00]
-02. Asia Tribe [7:17]
-03. Crow [9:00]
-04. New Level Of Being (Feat. Egorythmia) [7:58]
-05. Chandra [7:39]
-06. Reactor [7:46]
-07. ostalgic [7:17]
-08. Existence [7:28]
-09. Cosmic Energy [7:20]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:08:45
+Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:BC793EA61E077AE68ED8837C29A8C6FFC738AACA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,25 +337,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477776   (98688) от 05.04.2012
+###  Публикация: 1766617   (101247) от 19.12.2024
 
-[Ukr/Ru] Аферисты (29 выпуск) (2012) SATRip
+JoJo Meerstal - Blues from Belgium (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Граждане! Будьте осторожны - в городе орудует банда опасных преступников. Сначала они обманут Вас и заберут последнее, а потом еще и покажут по телевизору, как это было! Вы и моргнуть глазом не успеете, как эта четверка доберется до Вашего кошелька, присвоит себе только что купленный Вами телефон, а кроме этого сможет посидеть в ресторане на круглую сумму за Ваш счет! Приветливая и обаятельная Елена-Кристина Лебедь, двое харизматичных мужчин - Дмитрий Суммар и Денис Розгон, а также главарь банды Анастасия Касилова уже готовы втянуть Вас в аферу только для того, чтобы потом Вас больше никогда не смогли обмануть! Вы узнаете психологические приемы настоящих аферистов и увидите на практике, как действуют самые невероятные мошеннические схемы. Вам станет известно, как можно получить новенькую видеокамеру за... чашку кофе. Или как можно украсть из ювелирного бутика платиновое колье просто на глазах у продавцов.Жанр: Телепередача, ДокументальныйПродолжительность: 00:45:00
+01. Moonshine Dreams (3:22)
+02. Route 65 Blues (3:11)
+03. By The River (2:51)
+04. Cotton field Groove (3:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34506E1C263783E04044332EE4EB241463D6CD68
+magnet:?xt=urn:btih:A4A469CF29B11F500A64E85FA200118A7DA34293
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,34 +366,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477984   (98687) от 05.04.2012
+###  Публикация: 1766528   (101246) от 19.12.2024
 
-VA - Весенний шквал новинок (2012) [MP3|256 кб/с]<Pop>
+Журнал | Народный доктор №24 (670) (декабрь 2024) [PDF]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101246.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Алина Гросу - Взрослая (3:11)
-2. Seventeen - Танцуй, Даже Если Это Конец Света (Volta Remix) (3:47)
-3. Вельвет - Все забудется (3:47)
-4. Влад Дарвин (Darwin) - Пассажир Дождя (Remix) (3:44)
-5. Quest Pistols - Ты была светом (3:14)
-6. 5sta Family - Вместе Мы (3:40)
-7. ВИА Гра - Диско (3:06)
-8. Би - 2 - Девушки (3:43)
-9. Земфира - Деньги (3:37)
-Батишта & Shaplin feat. Ульяна Глушкова - Когда Наступит Ночь (Rusky Rusk Remix) (3:33)2012Жанр: PopПродолжительность: 05:55:12
+Журнал составлен из писем читателей, в которых они делятся испытанными рецептами здоровья, красоты и долголетия, рассказывают необычные истории исцеления. На страницах издания вы найдете народные и традиционные методы лечения и профилактики различных заболеваний, полезную информацию о лекарственных растениях. В каждом номере — советы высококвалифицированных специалистов (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92CF31744645A4B3F0A97C8D530B708BBAC28951
+magnet:?xt=urn:btih:90C58383577E4C50C672F9D6FE82902E95901C1A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -568,27 +392,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478531   (98685) от 05.04.2012
+###  Публикация: 1766608   (101245) от 19.12.2024
 
-Low Gravity - Incarnadine (2012) [MP3|320 кб/с]<Stoner Sludge Metal>
+Hard Shine - Next Best Thing (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. (The) Crushing Black 08:30
- 02. Satellite 08:25Жанр: Stoner Sludge MetalПродолжительность: 00:46:12
-Страна: Spain
+01. Bootstraps (3:11)
+02. Gone (4:01)
+03. Daddy O (2:38)
+04. Next Best Thing (2:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A29722F5D070E4C69896DD633E839B4374BA2110
+magnet:?xt=urn:btih:CEE4856CFCAAFE1CB0D3915DA4C0BC0B6A3C606C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -596,25 +421,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478672   (98684) от 05.04.2012
+###  Публикация: 1766561   (101244) от 19.12.2024
 
-[Wallpapers] Desktop wallpapers (05.04.12)
+Эмпирия - Власть времени (2013) [MP3|256 Kbps] <Instrumental rock, Metal>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Вавилонская башня [3:52]
+02. Варфоломеевская ночь [5:30]
+03. Курская битва [3:37]
+04. Третий рейх [4:42](   Читать дальше...   )Жанр: Instrumental rock, MetalПродолжительность: 00:44:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF7023C462C6AEA00070465753734092677B5B46
+magnet:?xt=urn:btih:7BA954AECFD99D9467E68C31FEE3E2706508C13C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,34 +450,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478084   (98683) от 05.04.2012
+###  Публикация: 1766520   (101243) от 19.12.2024
 
-Various Artists - Tranceffect 14 (2012) [MP3|320 кб/с]<Trance>
+The Oscar Peterson Trio - Another Day (1970) 2024, MPS [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fallen Angel (Album Extended Mix) - Dennis Sheperd And Cold Blue Feat Ana Criado
- 02. Love To Be (Original Mix) - Benya Feat Emma Lock
- 03. In Deep - Pulser Feat Molly Bancroft
- 04. One Love (Album Club Mix) - Roger Shah Feat Carla Werner
- 05. Ace Of Hz ({am} Extended Mix) - Ladytron
- 06. Destiny (Original Mix) - NHeaven Feat Emma Lock
- 07. Miracle (James Dymond Remix) - Gerome Feat Pamela Baz
- 08. Lost In You (Paul Todd Remix) - Defcon Audio Feat Julie Harrington
- 09. Come To Me - Simon Patterson And Greg Downey Feat Bo Bruce
- 10. I Can Hear You ({am} Extended Mix) - Aly & Fila feat. Sue McLaren(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:20:07
+01. Blues for Martha [5:13]
+02. Greensleeves [4:30]
+03. I'm Old Fashioned [4:11]
+04. All the Things You Are [6:16](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:39:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62F417D0C1FA1D12417C9A5A788C08BDC9BE6E00
+magnet:?xt=urn:btih:67B0DA0D17EE235D34B04687560DD2BB928E3F09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,29 +479,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478661   (98682) от 05.04.2012
+###  Публикация: 1766558   (101242) от 19.12.2024
 
-[Wallpapers] Desktop Wallpapers №2
+Газета | Загадки истории №29 (604) (2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101242.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers №2
-Название: Desktop Wallpapers №2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:770040F3BF223937A4059807F3F8A41B665EA179
+magnet:?xt=urn:btih:A289D5C4EA57FEA9D326B50151782832850F7528
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -687,34 +505,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478267   (98681) от 05.04.2012
+###  Публикация: 1766555   (101241) от 19.12.2024
 
-VA - Best-Of-Ka Высшая Лига 50x50 №45 (2012) [MP3|256 кб/с]<Pop>
+Газета | Загадки истории №11 (586) (2024) [PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98681.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001 Митя Фомин - Хорошая Песня (Жизнь Одна, Хочется Жить)
-002 David Guetta - Without you (feat. Usher)
-003 Авраам Руссо и Рухшона - Благодарю
-004 Lmfao - Sexy and i know it
-005 Алисия - Улетаю (DJ Fisun remix)
-006 Rihanna feat. Calvin Harris - We found love
-007 Иракли & Даша Суворова - Нелюбовь
-008 Topmodelz - L esperanza (Single mix)
-009 Reflex - Я Буду Небом Твоим
-010 Example - Changed the way you kiss me (Mike Candys rmx)2012Жанр: PopПродолжительность: 05:48:59
+«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D09C77AB2FBEBF1CD657DF3764C97B917F95ED1F
+magnet:?xt=urn:btih:4641001ED1681041AFEBADE3CBF05A22BF50A41E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -722,29 +531,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478744   (98680) от 05.04.2012
+###  Публикация: 1766551   (101240) от 19.12.2024
 
-[Wallpapers] Desktop Wallpapers №3
+Iana - Native Dancer, Vol. 2 (2013) [MP3|320 Kbps] <Native American, New Age, World>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Other Styles
+>>New Age/Meditative/Relax
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98680.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101240.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers №3
-Название: Desktop Wallpapers №3
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1620x1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Qarwa Yaku [06:02]
+02. Nina Tusuy [06:03]
+03. Zisary Lucero [04:16]
+04. The Last of the Mohicans [04:58](   Читать дальше...   )Жанр: Native American, New Age, WorldПродолжительность: 01:16:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6641E1CE65B50E0800D2A823F3D0FFD6DD65289
+magnet:?xt=urn:btih:38D409E1E3D3B4BBC8556613B505C846523A3266
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -752,25 +560,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478668   (98678) от 05.04.2012
+###  Публикация: 1766566   (101239) от 19.12.2024
 
-[Wallpapers] Best HD Wallpapers Pack (05.04.12)
+Журнал | Цветок №24 (декабрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98678.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Практический журнал для цветоводов и дачников. Хотите еще больше узнать о выращивании растений? Мечтаете превратить свой садовый участок в райский сад? «Цветок» рассказывает об уходе за садовыми и комнатными растениями, о возможностях ландшафтного дизайна. На страницах журнала собран лучший опыт цветоводов — профессионалов и любителей!Жанр: Цветоводство, садоводство, огородничествоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D203FFAC266941C94B84A4964A9424433F1F33AB
+magnet:?xt=urn:btih:F2CB1723327AEF9D6AC9B2A22E6A6A0B211A87D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -778,25 +586,140 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478707   (98677) от 05.04.2012
+###  Публикация: 1766607   (101238) от 19.12.2024
 
-[Wallpapers] Best HD Wallpapers Pack (06.04.12)
+Американка (1930) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98677.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101238.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Об организации большевиками первой подпольной типографии в Москве. "Американка" - это сленговое название модели типографской печатной машины тех времен. В основу сценария фильма, написанного одним из организаторов этой типографии, Георгием Стуруа, положены документальные факты. Съемки фильма проводились на местах, где происходили описываемые события (ул. (   Читать дальше...   )Производство: СССР / Госкинпром ГрузииЖанр: драма, историко-революционный, немое киноРежиссер: Лео ЭсакияАктеры: Захарий Беришвили, Аркадий Хинтибидзе, Александр Громов, Георгий Мдивани, А. Кусакова, Н. Смирников, Иван ЛавровСубтитры: грузинские, английские (интертитры), русскиеПродолжительность: 01:18:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F9EA97D0100D54E609057980959D5B0F122F5F5D
+magnet:?xt=urn:btih:054AEB3871D82D93FF41F9A534C005198222A3EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766629   (101237) от 19.12.2024
+
+Luis Oliart & The Hinges - Luis Oliart and The Hinges at Seahorse Sound (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Down (2:38)
+02. Chuck's Boogie (4:10)
+03. Lord Make My (4:30)
+04. Dear Prudence (5:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105C09F6B26ECABFFA17065F1DF727E2E3D8A10E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766628   (101236) от 19.12.2024
+
+Lefty - What A Life - The Lost LA Sessions (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What A Life (3:55)
+02. Don't Stop (3:30)
+03. Nothin New (3:58)
+04. I'll Be There (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9196ED9093B533A291A4AC9F70A2440BB51F78B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766588   (101235) от 19.12.2024
+
+Футбол. Клубный ЧМ 2024. Финал. Реал (Мадрид, Испания) - Пачука (Пачука-де-Сото, Мексика) (18.12.2024) HDTV [H.264/1080i]
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101235.jpg" />
+</div>
+
+
+###  Подробнее
+
+Футбол. Клубный ЧМ 2024. Финал. Реал (Мадрид, Испания) - Пачука (Пачука-де-Сото, Мексика) (18.12.2024)
+СУДЬЯ Валенсуэла Хесус (Венесуэла)
+СТАДИОН «Лусаил Айконик» (Лусаил, Катар)Телекомпания: Setanta SportsЖанр: Спорт, ФутболЯзык озвучки: русский, английскийПродолжительность: 02:14:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:712C55D7B2096FE6D4E1F47DE8B42F5077B01FD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766609   (101234) от 19.12.2024
+
+Hook Herrera - No Matter What I Do (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Harmonica>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Matter What I Do (3:52)
+02. Just How I Feel (4:07)
+03. Sweet Memory (5:14)
+04. Flamenco Soul (5:15)(   Читать дальше...   )Жанр: Blues, HarmonicaПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9CCF400F675536F4670C556060F229EC3BD576
 ```
 
 https://mybot314.ru/tekegram_catalog/

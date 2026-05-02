@@ -1,3 +1,119 @@
+###  Публикация: 1593084   (181159) от 26.11.2022
+
+Bad Sister - 2 Albums (2009-2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lose Or Win [00:04:18]
+02. Feels Like Love [00:03:51]
+03. Bright Lights [00:04:19]
+04. Don't Need Me [00:04:38](   Читать дальше...   )Жанр: Melodic Hard Rock, Female VocalПродолжительность: 2 CD, 01:56:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E33E491183BFD3115255991CC48D6995412138
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593218   (181139) от 26.11.2022
+
+Elder - Innate Passage (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psych, Stoner, Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catastasis
+02. Endless Return
+03. Coalescence
+04. Merged In Dreams - Ne Plus Ultra(   Читать дальше...   )Жанр: Heavy Psych, Stoner, ProgПродолжительность: 00:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAD66A90D78CF0013D42CC007310358FB892FF73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665814   (180905) от 02.10.2023
+
+Backwater - Rock Me To The Limits (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Me To The Limits [00:03:44]
+02. Hey You Gin [00:04:15]
+03. Butterfly Rock [00:03:59]
+04. I Do My Best [00:05:10](   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:643385CAE7D07CA43834AA50D4D96E77D87C6820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1665953   (180874) от 02.10.2023
+
+Shy - Sunset And Vine (2005) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Time
+02. Open Your Heart
+03. Soul Searching
+04. Where Is The Love(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4AECD71272CEC15994B3B08E8ECE92E4B1BC55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1593589   (180051) от 28.11.2022
 
 Trillion Ton Beryllium Ships - TTBS (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Doom>
@@ -629,122 +745,6 @@ Racy Glow - Into the Wild (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:00303A6DCBA6CFCDBCE21022EA45F8318B4CF79C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594688   (177389) от 02.12.2022
-
-Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vacation In The Underworld
-02. Like A Bullet
-03. Sharpen The Sword
-04. The Reason(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A93981317AB6AED6062D181E74B732178640F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 352876   (177106) от 07.10.2023
-
-Black Stone Cherry - 11 альбомов, 1 EP (2006 - 2023) [FLAC|Lossless|tracks + .cue|image + .cue]<Hard Rock, Southern Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177106.jpg" />
-</div>
-
-
-###  Подробнее
-
-Black Stone Cherry образовалась в 2001 году в Эдмонтоне, штат Кентуки, США, который расположен в самом центре сухого графства. Оказывается, на бескрайних просторах Соединённых Штатов Америки есть многочисленные заповедные территории, на которых законом запрещена продажа алкогольных напитков, так вот эти земли как раз и называют сухими графствами. Видимо, это пережитки (   Читать дальше...   )Список альбомов:
-2006 - Black Stone Cherry
-2008 - Folklore And Superstition
-2011 - Between The Devil & The Deep Blue Sea (Special Edition)Жанр: Hard Rock / Southern Rock / Post-GrungeПродолжительность: 11:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3FCA76CBAE6958801AF8242AA4FC8D3FF4FD61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594761   (176883) от 03.12.2022
-
-Vambier - Prost Mortem (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Vino Veritas (01:33)
-02. All Night Long (04:02)
-03. Freight Train Hopper (04:22)
-04. Best Regards (03:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8393F424E60FE5A9EFE34E16F2BACB224E4D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429397   (176864) от 06.12.2020
-
-Gentlemans Pistols - Hustler's Row (2015) [FLAC|Lossless|image + .cue] <Hard Rock, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Searcher (3:12)
-02. Devil's Advocate On Call (4:01)
-03. Time Wasters (5:49)
-04. Private Rendezvous (4:37)(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3F6DAC301D49F75059126A0057E2A5D01C71D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

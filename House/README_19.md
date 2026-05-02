@@ -1,3 +1,206 @@
+###  Публикация: 1201573   (791570) от 26.01.2018
+
+VA - Ministry Of Sound: Piano House Classics (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Alison Limerick  -  Where Love Lives (Radio Edit)  3:48
+02.  Bizarre Inc.  -  Playing with Knives  3:18
+03.  Black Box  -  Ride On Time  4:32
+04.  K.Klass  -  Let Me Show You  3:35(   Читать дальше...   )Жанр: HouseПродолжительность: 07:58:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52D47BCC4DAA18952C98C213EFB02A6DAF1C44C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275193   (791162) от 10.01.2019
+
+VA - Best Of LW Soulful House III (2019) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louie Vega Ft. Jocelyn Brown-You Are Everything (Morales Tribute To Frankie Knuckles Mix)
+02. Marc Dennis-Storm (Original Mix)
+03. Secret Sinz-The Fool (Original Mix)
+04. Soulbridge Ft. Ms Onyie-Perceptions (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CF7DB8DF1FA257C3F73D3241D1475C8DA21483
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275200   (791157) от 10.01.2019
+
+VA - Winter Super Beats '19 (2019) [MP3|320 Kbps] <Electronic, Future House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Walker - Ocean (Original Mix) 5:09
+02. WDX - Late Night Kiss (Original Mix) 4:17
+03. Ian Deluxe - Feels Like This (Original Mix) 4:40
+04. Steven Turner & Murrell - So Close (Original Mix) 4:53(   Читать дальше...   )Жанр: Electronic, Future House, DanceПродолжительность: 02:17:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F5498947EEC3BD14C2E3DA6DC0D08F62B36E00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275207   (791154) от 10.01.2019
+
+VA - Deep House Grooves, Vol. 14 (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loic Hoffman & Brrak - The Wind (Brrak Remix)
+02. Mert Avci - Forget Me Not (Original Mix)
+03. Superkluster - Timelapse (Original Mix)
+04. Lawrence Dix & Matt Prehn - Anima (Matt Prehn Remix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD26567AFDD90E9EC31F834C3CA7FD08D30996AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201928   (790904) от 27.01.2018
+
+VA - Best of Ibiza 2018 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MYNC - I Feel Love (Illyus & Barrientos Remix - Radio Edit) (Feat. Wynter Gordon) [4:25]
+02. Carl Cox - I Want You (Forever) (Josh Butler Remix - Radio Edit) [4:06]
+03. Fedde Le Grand - Put Your Hands Up for Detroit (TV Rock & Dirty South Remix) [6:50]
+04. DJ Wady - Hulk (Camelphat 2017 Re-Fix - Radio Edit) [3:31](   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 04:43:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6E4EB3D4A53274B1D03A6EF409F5855F440776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275638   (789903) от 12.01.2019
+
+VA - EDM Workout (2019) [MP3|320 Kbps] <Progressive House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pierce Fulton - Noon Gun (Original Mix) 5:31
+02. Lahox & Crusy - Africa (Original Mix) 5:12
+03. Tiny Ducks & Zai - Please Don't Go (Ryoji Takahashi 2018 VIP) 3:59
+04. Miami Rockets - Storm (Nicola Fasano Re-Edit) 4:39(   Читать дальше...   )Жанр: Progressive House, DanceПродолжительность: 01:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991E8CC5F1FD66539B925CE24005BA2252ECE2EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202490   (789775) от 29.01.2018
+
+VA - Winter Collective 01 (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sunlight Project  -  Tierra Del Fuego (Original Mix)  5:43
+02.  ArchX  -  Cape Mulinu'u Sunrise (Original Mix)  5:45
+03.  Firas Tarhini  -  Hanker Sore (Original Mix)  5:32
+04.  Nistad  -  Memory Lane (Original Mix)  6:27(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:58:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55430AF3B6F3330DEB460CECD42D284FA08D25F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202547   (789542) от 30.01.2018
 
 VA - Dance Empire 11 (2018) [MP3|320 Kbps] <House, Progressive House, Vocal>
@@ -542,209 +745,6 @@ VA - Late Night Disco House, Vol. 1 (2018) [MP3|320 Kbps] <House, Tech House, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:490239B99EB655D16E82567043CEC4D6BD087EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276745   (787576) от 17.01.2019
-
-VA - The Best Workout Dance Tracks (2019) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MadMe - Breathe Fire (Extended Mix) 4:35
-02. Skif Bazzaty feat. Dave T - Cinderella (Original Mix) 3:31
-03. Vénia - Watching You (Original Mix) 3:18
-04. Klissmoon - Not Today (Radio Mix) 3:31(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF3F0AFEE084CF75B03D960F81DD034E7153666
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276982   (787259) от 18.01.2019
-
-VA - Minimal Love Vol. 5. (2019) [MP3|320 Kbps] <Minimal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minimal Flex - Diquis (Original Mix)
-02. MiamiSoul - The Pink Panzer (Morry Remix)
-03. Milair - Dark Of God (Original Mix)
-04. Milair - Minicore (Original Mix)(   Читать дальше...   )Жанр: MinimalПродолжительность: 01:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BCDBF7DB1F91BDA6B2A8CBFF6B23C14B0DB136A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276973   (787258) от 18.01.2019
-
-VA - Beats And Grooves (30 Top House Tunes),Vol.3 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Encure feat. Brett Miller Extended Mix - You Lead, I Follow (Extended Mix)
-02. Zinner, Orffee - Someday (Instrumental Radio Edit)
-03. Fijin feat. Nessa Sovi Remix - The One (Sovi Remix)
-04. Ben Weber - My People(   Читать дальше...   )Жанр: HouseПродолжительность: 02:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48FEA7A73E7A2A6B0CCAF650E016A47AB1FB45B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417742   (787103) от 25.11.2021
-
-Michel Suhov - From Ghetto With Love (2015) [MP3|320 Kbps|image+.CUE,tracks] <Afro House, Funky House, Soulful House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michel Suhov - From Ghetto With Love (Continuous DJ Mix) (01:04:26)
-02. Milty Evans - So Very Happy (06:36)
-03. Simba - 5 Minutes With Beaumont (Le Babar Remix) (04:19)
-04. Furniture is Music - Furnitures Preselected Love (2011 Remastered) (05:20)(   Читать дальше...   )Жанр: Afro House, Funky House, Soulful HouseПродолжительность: 02:08:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86FE51F6F3C844A937585CDA930FB1C619A89189
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277248   (787030) от 19.01.2019
-
-VA - Dance Mix Vol.7 (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caleb Weiss - Crowd Control (Original Mix) 7:33
-02. Nacim Ladj - Mind Control (Original Mix) 5:53
-03. Guido Bruzzese - Time Control (Original Mix) 6:38
-04. Umai Move & Kamikaze Bird Squad feat. Ellena Grace - Control Issues (Original Mix) 6:41(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:25:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063F08019A7E51B6A22DA9AB4371B6367ED8F7D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277235   (787029) от 19.01.2019
-
-VA - Dance Mix Vol.5 (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unhappiness - Leaving Behind The Darker Days (Original Mix) 5:08
-02. March - Behind The Dark Matter (Original Mix) 1:36
-03. Roberth - Behind (Original Mix) 7:30
-04. Fortune - Behind You (Original Mix) 5:22(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECA1F74586435EA1C2B5D6C59AA7E8F06A109AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277230   (787027) от 19.01.2019
-
-VA - Dance Mix Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Electro>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitry Hertz - When It Happens (Original Mix) 3:52
-02. Israel Toledo & Lathan - When The Sun Goes Down (Paul Feris Remix) 6:57
-03. Israel Toledo & Lathan - When The Sun Goes Down (Otalora Remix) 7:02
-04. Nacim Ladj - When The End Comes (Original Mix) 6:18(   Читать дальше...   )Жанр: House, Dance, ElectroПродолжительность: 01:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCED6C595754207308D2BBA415B9F47273045FCC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1324417   (425371) от 09.09.2019
+
+VA - Record Super Chart 603 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425371.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) (3:25)
+2.C-BooL - Catch You (3:13)
+3.Billie Eilish - Bad Guy (3:14)
+4.Aaron Smith - Dancin (Krono Remix) (4:15)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:43:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E8C1CE0086347BDE991B53235C67435DB97F47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946598   (425056) от 14.10.2015
+
+VA - Creative Music Box 26 (2015) [MP3|320 кб/с]<Dubstep, Glitch Hop, Trapstep, Drumstep, Drum'n'Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Day To Remember- If It Means A Lot To You (Sullivan King Remix)
+02. Aquilo - Losing You (Vanic Remix)
+03. Barely Alive, Astronaut - Bad Fellas
+04. Borgore, Half Empty, Pouya  - Goddes(   Читать дальше...   )Жанр: Dubstep, Glitch Hop, Trapstep, Drumstep, Drum'n'BassПродолжительность: 02:07:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F42592CA43B9FE665ED05BBEC07576C9207BC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 556671   (425039) от 06.10.2012
 
 VA - Vocal Trance Essentials Vol.1 (2012) [MP3|320 кб/с]<Uplifting Trance>
@@ -693,64 +751,6 @@ VA - TOP Non-Stop 2010-2019 - Deep House. Volume 2 (2022) [MP3|192-320 Kbps] <De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D4F81E258C4AF8E125DE448DAE928A1C54CACA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324856   (418987) от 12.09.2019
-
-VA - Ectoplasm: Techno Electronic Set (2019) [MP3|320 Kbps] <Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418987.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Robben Cepeda - Dream Station
-002. Dj Dextro - Razor Sharp (Original Mix)
-003. Vini Pistori - The Magic Coin (Marcus Sur Remix)
-004. Kareem Smith - The Brothers (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C42B12C1530B23242760B5BCDA0B92C07D34C851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572703   (418979) от 28.08.2022
-
-VA - Record Super Chart 27.08.2022 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elley Duhe - Middle Of The Night (3:04)
-02. Purple Disco Machine feat. Sophie And The Giants - In The Dark (3:05)
-03. James Hype & Miggy Dela Rosa - Ferrari (5:38)
-04. Robin Schulz, David Guetta - On Repeat (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C26B8FD8E5D35B6DA5B0758947541CD74EA4E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

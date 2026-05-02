@@ -1,3 +1,177 @@
+###  Публикация: 1735823   (106821) от 10.07.2024
+
+Sting - Fields Of Gold: The Best Of Sting 1984 - 1994 (1994) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106821.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1:
+A1 When We Dance
+A2 If You Love Somebody Set Them Free
+A3 Fields Of Gold(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DFC1969522EA9D7873EAFFDF3B52E02FE58BAA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735921   (106789) от 10.07.2024
+
+Mr. Big - Mr. Big (1989) Remastered, 2023, evoXS [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addicted To That Rush (4:45)
+02. Wind Me Up (4:10)
+03. Merciless (3:55)
+04. Had Enough (4:55)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E852EC4EAEE720DE4C2EB89249646BF4AED876
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735894   (106786) от 10.07.2024
+
+The Supersoul Brothers - By The Way (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Toy Party Time (2:56)
+02. By The Way (4:49)
+03. Time Is Right (3:38)
+04. Gimme Some Soul (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BC51050BED50DC9ED4B6801ACBC772B0EB2345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735937   (106780) от 10.07.2024
+
+Mr. Big - Ten (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Luck Trying (4:06)
+02. I Am You (4:32)
+03. Right Outta Here (4:38)
+04. Sunday Morning Kinda Girl (4:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588C5E5E493A3B71386B45666DD7501CC6876131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735885   (106778) от 10.07.2024
+
+Seasick Steve - A Trip A Stumble A Fall Down On Your Knees (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Move to the Country (4:53)
+02. Internet Cowboys (4:05)
+03. San Francisco Sound '67 (5:14)
+04. A Trip and a Stumble (For Leya) (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:601F63929C7DEBCC1C293012CE99D8FE106BC0B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735807   (106776) от 10.07.2024
+
+The Yardbirds - The Ultimate Live At The BBC (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Most Likely You'll Go Your Way (And I'll Go Mine) (Live at Saturday Club, recorded 4 April 1967) [00:02:54]
+02. My Baby (Live at Saturday Club, recorded 4 April 1967) [00:02:29]
+03. Keith Relf interview (Live at Saturday Club, recorded 4 April 1967) [00:00:58]
+04. Little Games (Live at Saturday Club, recorded 4 April 1967) [00:02:24](   Читать дальше...   )Жанр: Blues RockПродолжительность: 4 CD, 03:58:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4DFD38812895DB9FE5398C48579DB4982A38589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735893   (106768) от 10.07.2024
 
 The Skintight Revue - The Ever Lovin' Travelin' Show (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -571,177 +745,6 @@ Clairo - Charm (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Bedroom Pop, Dream Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B81B53F45B3380507683AD24A86E93712441C5C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736612   (106663) от 13.07.2024
-
-Van Halen - For Unlawful Carnal Knowledge (1991) Expanded Edition, 2024, Remaster, 2023, Rhino - Warner Records [FLAC 24/44.1,96|Lossless|WEB-DL|tracks] <Hard rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Right Now (Organ Version)Жанр: Hard rockПродолжительность: 2CD, 01:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C241359C1AB786DD3A0EE7D8A0CB9E99690B866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736611   (106651) от 13.07.2024
-
-John Lennon - Mind Games (1973) The Ultimate Collection, 2024, UMC [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock, Pop rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Games (Out-take, Take 7)  (4:23)
-02. Tight A$ (Out-take, Take 6)  (2:08)
-03. Aisumasen (I'm Sorry) (Out-take, Take 2)  (4:40)
-04. One Day (At A Time) (Out-take, Take 18)  (3:15)(   Читать дальше...   )Жанр: Rock, Pop rockПродолжительность: 6CD, 04:53:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEEF4F68A07AD7864BC72DB6A3CCDFC753327CE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736669   (106627) от 13.07.2024
-
-Seth - La France des Maudits (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106627.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris des Maléfices (5:09)
-02. Et Que Vive le Diable ! (5:35)
-03. La Destruction des Reliques (5:51)
-04. Dans le Coeur un Poignard (5:43)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71D07DC24DD3EA83C5C8E4CDD5EF0F507F91DD82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736608   (106624) от 13.07.2024
-
-Travis - L.A. Times (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Soft rock, Britpop, Alternative rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bus (3:24)
-02. Raze the Bar (3:05)
-03. Live It All Again (3:24)
-04. Gaslight (3:24)(   Читать дальше...   )Жанр: Soft rock, Britpop, Alternative rockПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E49116F861BBD5FB6B7693B46AD7EBA10CCE7A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736725   (106622) от 13.07.2024
-
-Grand River and Abul Mogard - In uno spazio immenso (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Space Ambient, Drone>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dissolvi [00:07:08]
-02. Frantumi di luce [00:09:42]
-03. Altrove, lontano [00:04:52]
-04. Archi [00:07:41](   Читать дальше...   )Жанр: Space Ambient, DroneПродолжительность: 00:44:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89910D3CA704D5C670D7192AABD2FC8E02CD1FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736622   (106621) от 13.07.2024
-
-Phish - Evolve (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Rock, Psychedelic, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Stranger (4:48)
-02. Oblivion (6:04)
-03. Evolve (4:12)
-04. Wave of Hope (5:05)(   Читать дальше...   )Жанр: Progressive Rock, Psychedelic, FunkПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9698E2F2B6F6FA851809A323ED6469E24AEC4080
 ```
 
 https://mybot314.ru/tekegram_catalog/

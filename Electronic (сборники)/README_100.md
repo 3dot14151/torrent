@@ -1,3 +1,67 @@
+###  Публикация: 518620   (641396) от 04.07.2012
+
+VA - Kiss FM - Top-40 (03.07.2012) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Parachute Youth - Can't Get Better Than This (Original Mix)
+ 02. Gotye - Somebody That I Used To Know (Dberrie Rmx)
+ 03. Adam F - When The Rain Is Gone
+ 04. Armin van Buuren - Orbion
+ 05. Orjan Nilsen - Amsterdam (Original Mix)
+ 06. Skrillex & Members of The Doors - Breakn' A Sweat (Zedd Rmx)
+ 07. Emma Hewitt - Colours (Armin Van Buuren Rmx)
+ 08. Правительственный Гаражный Бэнд - Гимн Казантипа 2012 (Original)
+ 09. Dada Life - Rolling Stone T-Shirt (Cazzette Remix)
+ 10. DJ Fresh feat. Rita Ora - Hot Right Now (Extended mix)(   Читать дальше...   )Жанр: DanceПродолжительность: 03:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43BF4A59B414C480E05E06AC2A3002CF0F8F30B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292967   (641359) от 01.04.2019
+
+VA - Connection Through Sound (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641359.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Leavon - When Im With You
+002. Aly & Fila With Sue Mclaren - Surrender
+003. Ana Criado & Alan Morris - Border Line (Radio Edit)
+004. Haris C & Michael Angelo - Take It All Back (Original Mix)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 11:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2728B88150318AFB41ECC5A8F6CE6B54D861634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292969   (641357) от 01.04.2019
 
 VA - Music Fop A Bright Dream (2019) [MP3|320 Kbps] <Psychedelic, Goa Trance>
@@ -712,64 +776,6 @@ VA - Empire Records - Trance Disco (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D12D43F4E52B8147770265ADD8CC718592CE55A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143228   (637469) от 17.06.2017
-
-VA - Empire Records - Space Disco 3 (2017) [MP3|320 Kbps] <House, Nu-Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Natasha Baccardi - Voices (Dub Mix)  5:51
-02.  Platinum Monkey - Heavenly Garden (Original Mix)  5:56
-03.  Tube & Berger feat. Kingdom - Burning Road (Original Mix)  5:07
-04.  Kris O'Neil & Eric Rose - Heroic (Haxxy Remix)  5:15(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BD9D29264588E66DCFD05BB3D960871B1D1BBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033515   (636342) от 12.07.2016
-
-VA - Generation Trance Shadows (2016) [MP3|320 Kbps] <Trance, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyau & Albert -  Be There 4 U (Ferry Tayle Radio Edit) 3:06
-02. Project 8 -  Injector (Original Mix) 7:00
-03. Jorn Van Deynhoven -  Flashback 3:15
-04. Sean Tyas & Darren Porter -  Relentless (Extended Mix) 6:56(   Читать дальше...   )Жанр: Trance, Energy, ProgressiveПродолжительность: 03:33:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FA1D4F440F9A401A4AA67B85B3C4BF30B6FB15A
 ```
 
 https://mybot314.ru/tekegram_catalog/

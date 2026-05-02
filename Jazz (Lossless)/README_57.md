@@ -1,3 +1,65 @@
+###  Публикация: 310271   (837803) от 18.03.2011
+
+Buster Williams - Griot Liberte (2004) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837803.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nomads  (08:38)
+2. Related To One  (05:45)
+3. The Triumphant Dance Of The Butterfly  (07:48)
+4. The Wind Of An Immortal Soul  (09:28)
+5. Every Time We Say Goodbye  (06:29)
+6. Joined At The Hip  (08:39)
+7. Concierto De Aranjuez  (05:15)
+8. After The Ninth Wave  (03;00)Жанр: JazzПродолжительность: 00:55:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 651850   (837778) от 03.05.2013
+
+VA - 100 Hits: 50s (2009) 5CD, Box Set [FLAC|Lossless]<Soul, rock'n'roll, funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dean Martin - Volare
+02. Rosemary Clooney - Mambo Italiano
+03. Perry Como - Hot Diggity (Dog Ziggity Boom)
+04. Doris Day - Whatever Will Be, Will Be (Que Sera, Sera)(   Читать дальше...   )Жанр: Soul, rock'n'roll, funkПродолжительность: 00:55:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 310263   (837707) от 18.03.2011
 
 The Gil Evans Orchestra - Out Of The Cool (2007) [FLAC|Lossless]<Jazz>
@@ -690,64 +752,6 @@ Lisa Ekdahl - Nar alla vagar leder hem (2017) [FLAC|Lossless|WEB-DL|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BCB783ABEF739AA17C516B936FD6605691E8108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380475   (833323) от 03.05.2020
-
-Sidney Bechet - Five Classic Albums Plus: Second Set 1952 - 1955 (2017) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833323.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Le Marchand De Poissons [2:47]
-02. Si Tu Vois Ma Mere [3:15]
-03. Wabash Blues [3:08](   Читать дальше...   )Жанр: Dixieland, Revival, New Orleans JazzПродолжительность: 02:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08489E53B2FCD3EF53A2300CCCD8159AC683DEFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380587   (833316) от 03.05.2020
-
-VA - NOW Jazz Classics (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thelonious Monk - 'Round Midnight (3:10)
-02. John Coltrane - Blue Train (Remastered 2003) (10:40)
-03. Herbie Hancock - Cantaloupe Island (5:32)
-04. Art Blakey - Dat Dere (8:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:120EDFB17140989A7D6A9086B51F8E0C682B8380
 ```
 
 https://mybot314.ru/tekegram_catalog/

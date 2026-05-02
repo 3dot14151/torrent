@@ -1,3 +1,144 @@
+###  Публикация: 1846433   (1051342) от 07.01.2026
+
+Entwine - Studio Albums (8 releases) (1999-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Entwine - финская рок-группа из Лахти, основанная в 1997 году.1999 - The Treasures Within Hearts
+2001 - Gone
+2002 - Time Of Despair
+2004 - DiEversityЖанр: Gothic MetalПродолжительность: 06:19:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BEF360E09BBD9913A8B8D5D7E86A3C5BA741D3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845776   (1051000) от 03.01.2026
+
+Miss May I - Studio Albums (9 releases) (2007-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Miss May I - американская метал-группа из города Трой, штат Огайо. Основана в 2007 году.2007 - Vows for a Massacre (EP)
+2009 - Apologies Are For The Weak
+2011 - Monument
+2012 - At HeartЖанр: MetalcoreПродолжительность: 05:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85FA17A1B59F9927BDBEBD12ECB9E23405D36F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845545   (1050835) от 
+
+Sinamore - Studio Albums (2 releases) (2006-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050835.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sinamore - финская метал-группа, основанная в 2004 году, из участников которой впоследствии была сформирована группа Kaunis Kuolematon2006 - A New Day
+2007 - Seven Sins a SecondЖанр: Gothic Metal/RockПродолжительность: 01:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C7FE65827C0D5AEDF52D9631CD1D02431B9D179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845558   (1050827) от 
+
+End of Aeon - Studio Albums (2 releases) (2012-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050827.jpg" />
+</div>
+
+
+###  Подробнее
+
+End of Aeon - финская метал-группа, участники которой также входят в состав групп Sinamore и Kaunis Kuolematon2012 - Ever
+2016 - Through Infant EyesЖанр: Melodic Doom/Death MetalПродолжительность: 01:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32C1C3607B2C5BC7F0B53B9EEE2BAA777E8BF4FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1845291   (1050570) от 30.12.2025
+
+Kaunis Kuolematon - Studio Albums (5 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kaunis Kuolematon - метал-группа из Финляндии, образованная в 2012 году.2014 - Kylma kaunis maailma
+2017 - Vapaus
+2020 - Syttykoon Toinen Aurinko
+2023 - Mielenvalta(   Читать дальше...   )Жанр: Melodic Doom/Death MetalПродолжительность: 04:47:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CDA80B9E86F4B9D53C56471ECB828D1554A44EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844998   (1050367) от 29.12.2025
 
 Bloodbath - Studio Albums (6 releases) (2002-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
@@ -600,152 +741,6 @@ A4 Gwiazda Na Kiju(   Читать дальше...   )Жанр: Pop Rock, FunkП
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:777FB3100117D2AA13CAE8293BCA015E18E8E9F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606807   (1044308) от 23.01.2023
-
-Skaldowie - Szanujmy Wspomnienia (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044308.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Wszystko Kwitnie WkoloA2 Zyczenia Z Calego Serca
-A3 Zgadzam Sie Na Ten Swiat
-A4 Slowa Do Matki
-A5 Szanujmy Wspomnienia(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B702E12FBDB5C1E1E3A0823688A228309BF034C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607185   (1044158) от 25.01.2023
-
-Татьяна Кочергина и Рок-группа «XX Век» - «Добром за добро» (1988) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044158.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Добром За Добро
-A2 Наказ Сыну
-A3 Симфония, Часть 1
-A4 Тiнi(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A17A4CE643D8847CE7E1CFD22E22534E740929BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607410   (1044058) от 26.01.2023
-
-Рок-группа «Мост» - Музыка Сергея Баневича (1983) [FLAC 2.0|192/24|image+.cue] <Art Rock, Prog Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044058.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Ночной Полет
-A2 Ау, Улетевшее Детство
-A3 Корабль
-A4 Ночь(   Читать дальше...   )Жанр: Art Rock, Prog Rock, Pop RockПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3707E093ACCEBFD19C32638E27DB699A89A05FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607472   (1044025) от 26.01.2023
-
-Falkenbach - Studio Albums (6 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Viking/Black/Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Falkenbach — немецко-исландский метал-проект.
-Группа на самом деле представляет сольное творчество Маркуса Тюммерса (Vratyas Vakyas). По происхождению немец, большую часть своей жизни он прожил в Исландии. Потом переехал в Германию, сейчас живёт в Дюссельдорфе, где у него собственная студия звукозаписи Skaldik Art, специализирующаяся на поддержке молодых языческих (   Читать дальше...   )1996 - ...En Their Medh Riki Fara...
-1998 - ...Magni Blandinn Ok Megintiri...
-2003 - Ok Nefna Tysvar Ty
-2005 - Heralding The FirebladeЖанр: Viking/Black/Folk MetalПродолжительность: 04:39:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE5FE7B3487FF74257B3A15564CCA03BF213E88A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608024   (1043805) от 28.01.2023
-
-Alice in Chains - Studio Albums (8 releases) (1990 - 2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Grunge, Heavy/Sludge Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alice in Chains — американская рок-группа из Сиэтла, образованная Джерри Кантреллом и Лейном Стейли в 1987 году. В начале 90-х годов коллектив получил широкую известность на волне роста популярности гранжа, наряду с Nirvana, Pearl Jam и Soundgarden.1990 - Facelift
-1992 - Dirt
-1995 - Alice In Chains
-1999 - Music Bank(   Читать дальше...   )Жанр: Grunge, Heavy/Sludge Metal, Hard RockПродолжительность: 11:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4321F77154E854F08DB88D4B5D9FAFA56DCF662
 ```
 
 https://mybot314.ru/tekegram_catalog/

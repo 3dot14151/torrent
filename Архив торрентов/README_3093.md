@@ -1,3 +1,245 @@
+###  Публикация: 879609   (364732) от 28.10.2015
+
+SimCity BuildIt v1.7.8.34921 + Mod Money [Ru]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364732.jpg" />
+</div>
+
+
+###  Подробнее
+
+Возводите свой собственный город, управляйте им и наблюдайте, как он наполняется жизнью. ПРИВЕТСТВУЕМ ВАС, МЭР! Мы рады, что Вы с нами. Первый пункт Вашей повестки дня -- создайте свой уникальный город, в который будут стекаться жители. Чем больше будет становиться Ваш город, тем больше нужд будет у Ваших горожан. Решайте проблемы реального города и создавайте городские (   Читать дальше...   )Тип издания: ЛицензионноеРелиз состоялся: 20 октября 2015 г.Разработчик: Electronic ArtsПоддерживаемая ОС: 2.3.3+Жанр: СимуляторыЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60DC6E47D06AF8CD6F64BF4F4714AFF0CC4F28F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177192   (364709) от 24.10.2017
+
+CCleaner 5.36.6278 Business | Professional | Technician Edition RePack (& Portable) by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364709.jpg" />
+</div>
+
+
+###  Подробнее
+
+CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991D4EA05807EE7A5580B0BCFAB8D3E2347272A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 280669   (364699) от 24.10.2017
+
+DV: (BBC) История математики / The Story of Maths (2008) SATRip (4 серии из 4)
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Математика - универсальный язык Вселенной, фундамент, на котором основаны все другие науки. Как человечество смогло открыть тайны этого универсального языка? Начиная с древнейших времен, прослеживается история математики до наших дней и завершается рассказом о наиболее важных проблемах современности. За решение каждой из этих "проблем тысячелетия" полагается (   Читать дальше...   )Жанр: Документальный, познавательный, исследование, наукаПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 1- 00:46:02 +3x~00:58:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10DBB4124F3A2A97FE97435FD0C422106ACEDBEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070863   (364669) от 08.11.2016
+
+PaintCode 3.0.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364669.jpg" />
+</div>
+
+
+###  Подробнее
+
+PaintCode является отличным приложением для создания графических элементов, как в Photoshop . Но в этом случае эта программа генерирует не изображение, а Core Graphics код.
+Причины уникальности этого приложения заключаются в следующем:
+- Экономия времени разработки. Если бы Вы стали писать код для Core Graphics в ручную, то это заняло бы очень много времени, чем (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 ноября 2016Разработчик: PixelCut s.r.oПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9D3B22E786DDAAAEA3D6508E06251D8FA98004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416580   (364598) от 17.10.2020
+
+Windows 8.1 with Update [9600.19847] AIO (x86-x64) by adguard (v20.10.13) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборка сделана на основе оригинальных образов от MSDN. Были интегрированы обновления по 13 октября 2020 года, а также интегрирован SmartFix 2.3.5 и Microsoft DaRT. В ней нет никаких косметических изменений и ничего не вырезано!Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7D8ECA7443117174779A08C9044B63A6DB795A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416699   (364591) от 17.10.2020
+
+Microsoft Office 2010 Pro Plus + Visio Premium + Project Pro + SharePoint Designer SP2 14.0.7258.5000 VL (x86) RePack by SPecialiST v20.10 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Microsoft Office 2010 — один из лучших наборов офисных приложений для компьютеров, телефонов и браузеров, включающий функции, на которые можно положиться уже сегодня, и возможности, которые могут потребоваться в будущем. Данный набор приложений позволяет уверенно принять вызов сегодняшней экономической ситуации, не упуская из виду факторы, необходимые для достижения (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7EE21B8AEF1A0639BC7520CD8399AFEC3E4EF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540479   (364585) от 31.10.2014
+
+Телеформат.Телеведущие (2007) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Передача о известных телеведущих СССР и РосииЖанр: Телепередача, ДокументальныйПродолжительность: 00:27:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D158B60CC852DAB1E9C955A0ADE4B829BF526BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070887   (364558) от 08.11.2016
+
+Alex M.O.R.P.H. - Not All Superheroes Wear Capes (Extended Version) (2016) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H. - Not All Superheroes Wear Capes (Album Opening Mix) (2:53)
+02. Alex M.O.R.P.H. - Awakening (Original Mix) (4:37)
+03. Alex M.O.R.P.H. - Eureka (Original Mix) (6:26)
+04. Alex M.O.R.P.H. - Meeon feat. Kim Kiona (Original Mix) (8:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54B10AD7B0223314413DECB73D1E3E7C93D7CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070494   (364553) от 08.11.2016
+
+VA - Jump Up Injection Vol.21 (2016) [MP3|320 Kbps] <Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koznik And Khavy - Monster (Nightfang Remix) (4:26)
+02. Mr Quiet And Symon - We Run the City (4:35)
+03. Divided - You Scream (4:40)
+04. Koznik And Khavy - Huge Nose (4:29)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:08:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF812DAB45B79F3DBD245777442DB814E6D6D021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416880   (364529) от 17.10.2020
 
 Alishev | Практика для начинающих в Java (2020) PCRec
@@ -478,283 +720,6 @@ Trolley Snatcha - One Trick Pony (EP) (2010) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8DCEC90DDBF6F8EA4AA7315F3DF6A699325B202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576793   (364347) от 17.11.2012
-
-Butterfly - Favorite Colors Episode 058 (17.11.2012) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kattoo -  Violin (Intro Original Mix)
-02. Danilo Ercole -  London Eye (Original Mix)
-03. Twenty Three & Jesper Olesen -  Once A Stranger (Original Mix)
-04. Robert Nickson pres. RNX -  Suffer (Shingo Nakamura Remix)
-05. Anna Lee vs Alex TeeB -  Driving Juke (Original Mix)
-06. Jjoo -  Restless (Original Mix)
-07. Pizz@dox -  Scarlet (Snow Flakes & Rishabh Joshi Remix)
-08. Wezz Devall -  The Great White Buffalo (Original Mix)
-09. Alan Morris & Sequenita -  Contact (Original Mix)
-10. Giuseppe Ottaviani feat. Amba Shepherd -  Lost For Words (On Air Mix)Жанр: Progressive Trance, Melodic TranceПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C2CA77D6B088C00E46C109A187B5EA0AB3964F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576637   (364346) от 17.11.2012
-
-VA - Monster Tunes Autumn Collection (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364346.jpg" />
-</div>
-
-
-###  Подробнее
-
-[06:31] 01. Stannis - Sky Drops - Original Mix
-[07:44] 02. James Hannan - Borderline - Original Mix
-[07:44] 03. Ad Brown - Transmission - Original Mix
-[06:47] 04. Oza - Small Planet - Original Mix
-[07:40] 05. INCA - Three Sunrises - Original Mix
-[07:09] 06. Timur Shafiev - Can't Stop - Original Mix
-[07:43] 07. Mark Eteson - Universal Language - Tritonal Club Mix
-[07:43] 08. Corderoy - Mechanical Tears - Club Dub
-[07:06] 09. Cold Blue - Coconut - Original Mix
-[07:30] 10. Reorder - Sunrise - Original Mix(   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D281699D432CB905420D28FE4B054090E9EB9439
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576734   (364345) от 17.11.2012
-
-Trolley Snatcha - Subtext (EP) (2012) [MP3|320 кб/с]<Dubstep, Grime>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make My Whole World 5:12
-02. Nasty Sh*t 4:39
-03. Giving Up 4:41
-04. Flying Missiles 4:14
-05. The Jungle 5:43Жанр: Dubstep, GrimeПродолжительность: 00:24:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17649675F098C08B27C1A348BDEF39B814CD388E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575524   (364344) от 17.11.2012
-
-Fragrant flowers Wallpapers (13.11.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C2EA725248E8CA9DEA821F01ECBD870A73BAE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576470   (364343) от 17.11.2012
-
-Агата Клери/ Agathe Cléry (2008) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364343.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агата Клери больна. Симптомы болезни не такие уж редкие: снобизм, безжалостность, нетерпимость, расизм. Но совсем другая болезнь станет для неё — успешного менеджера по маркетингу крупной косметической компаний — настоящим испытанием. Болезнь Аддисона, редкое заболевание, которое за одну ночь изменит цвет кожи героини, заставит её пересмотреть свои взгляды на межнациональные взаимоотношения в обществе.Жанр: Мюзикл, КомедияРежиссер: Этьен ШатильеАктеры: Валери Лемерсье (Valérie Lemercier), Энтони Кэвэна (Anthony Kavanagh), Доминик Лаванан (Dominique Lavanant), Изабель Нанти (Isabelle Nanty), Жак Буде (Jacques Boudet), Артюс де Пенгерн (Artus de Penguern), Жан Рошфор (Jean Rochefort), Валентайн Варела (Valentine Varela)Перевод: Профессиональный (двухголосый)Продолжительность: 01:47:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5092B5E90FAB5AED7498075EF3BC95396E1BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576502   (364342) от 17.11.2012
-
-VA - Dream Trance Hits Of The Year (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364342.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Dream Trance Hits Of The Year (2012)
-Год: 2012
-Лэйбл: Sounds United
-Жанр: Trance
-Продолжительность: 01:49:19Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-01.Frozen Skies - "Coming Back" (feat Yana Vetrova - radio version) - (3:47)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912F2EDE421552CEF1DC9CAF67CA4DB165E68BCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576510   (364338) от 17.11.2012
-
-VA - Vocal Trance Temptation Volume 11 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364338.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Vocal Trance Temptation Volume 11 (2012)
-Год: 2012
-Жанр: Vocal Trance
-Продолжительность: 02:58:10Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-001. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
-002. Beat Service feat. Gemma Pavlovic - Masquerade (Original Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FA12EECCBBD1E2FFB2C29AC93D69FD33E57D7D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 575962   (364335) от 17.11.2012
-
-Hallywood X - Origen (EP) (2012) [MP3|320 кб/с]<Dubstep, Electro>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Hallywood X - Origen (Intro)
-02 - Hallywood X - Flash Ya Lighter
-03 - Hallywood X - Feel Da Bass
-04 - Hallywood X - Rescue Me
-05 - Hallywood X - Fyah Dem Dem Bun
-06 - Hallywood X - Revolución
-07 - Skrillex - Right In (Hallywood X Remix)
-08 - Above & Beyond Ft Zoë Johnston - You Got To Go (Hallywood X Remix)Жанр: Dubstep, ElectroПродолжительность: 00:25:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F611F28E2B45ECA7AB8EB1025DA0C38CA8DE6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070886   (364332) от 08.11.2016
-
-Kaspersky Lab Products Remover 1.0.1176 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364332.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фирменная утилита для полного удаления с компьютера антивирусных продуктов Лаборатории Касперского, поскольку при удалении с помощью стандартных средств Windows они могут не удалиться или будут удалены частично.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C836E5476C34EFC569A7415535E603F37F4A17A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

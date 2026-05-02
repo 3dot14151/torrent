@@ -1,3 +1,119 @@
+###  Публикация: 1653860   (213760) от 18.08.2023
+
+Gato Gordo - Sobreviviente (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sin nada que hacer (Spanish) (4:12)
+02. God Bless You New Orleans (5:17)
+03. Let me Out (8:35)
+04. The Hucklebuck (5:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DC959E4D5501473A7C182C9C841F948218122FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653865   (213750) от 18.08.2023
+
+Nic Clark - Everybody's Buddy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laughing At The Rain (3:38)
+02. It'll Be Alright (3:34)
+03. Try To Understand (3:50)
+04. Good Advice (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:459D0E955A3C00CE96A97E48BA4B521D85CC9A03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653862   (213724) от 18.08.2023
+
+Kristy Lee - The Olive Tree (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213724.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Olive Tree (4:45)
+02. Time (3:18)
+03. Expired (3:23)
+04. Fake Friend (3:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2CE9AEDAB513B5667FC3FCD06AFB50A4144E447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1653868   (213714) от 18.08.2023
+
+Ross Cirri - Don't Mean Nothin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Livin in a House of Blues (4:58)
+02. Jumpin Jehoshaphat (5:53)
+03. These Blues (4:18)
+04. Welcome to the Blues (4:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D040AAFE53DBF1BA0D536DE51DD38C4BB0EFADF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1653870   (213711) от 18.08.2023
 
 The Band Ham - I'll Take That Drink Now (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -627,122 +743,6 @@ Rory Gallagher «All Around Man: Live In London» — это 23-трековый
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:591D3EA98D4360421F371A5E413729D062A7368F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650774   (207254) от 03.08.2023
-
-Joanne Shaw Taylor - Nobody's Fool (2022) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207254.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody's Fool (3:37)
-02. Bad Blood (3:49)
-03. Won't Be Fooled Again (4:54)
-04. Just No Getting Over You (Dream Cruise) (4:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E263D81ADFFF72942208BC592677C68CE9C705F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002241   (207130) от 27.09.2022
-
-Too Slim And The Taildraggers  - 25 альбомов (1988 - 2022) [FLAC|Lossless|image + .cue|tracks+.cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207130.jpg" />
-</div>
-
-
-###  Подробнее
-
-Too Slim & The Taildraggers сформировано в 1986 году. Лидер - Tim "Too Slim" Langford (Guitar/Vocals). Выпущено почти два десятка альбомов, не считая сольных проектов. Неоднократно признавались, награждались разными блюзовыми сообществами, как лучшая блюз-роковая группа, лучший альбом, песня, гитарист, барабанщик и т.д.
-Группа разделяла сцену со многими (   Читать дальше...   )1988 - Swingin' In The Underworld
-1990 - Rock 'Em Dead
-1992 -  El Rauncho GrundgeЖанр: Blues-RockПродолжительность: 25:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E3773CB5245AADC2F803D07A9FFE2096AB62B56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613972   (206860) от 20.02.2023
-
-Joe Louis Walker - Weight of the World  (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weight Of The World (4:25)
-02. Is It A Matter Of Time? (3:11)
-03. Hello, It's The Blues (6:46)
-04. Waking Up The Dead (4:33)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FC755B81C6B9FF802E644B4A286D4A56D8CE96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156484   (206073) от 12.10.2022
-
-Anthony Gomes - Discography: 15 albums, 16CD (1997-2022) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Канадский гитарист и певец Энтони Гомес (Anthony Gomes) родился в 1975 в в Торонто. Признанный критиками исполнитель, возглавляющий чарты, играет в стиле современного электрического блюза, включающего элементы рока, соула, R&B и кантри. После выхода его дебютного альбома Blues in Technicolor в 1998 году он начал гастролировать по Соединенным Штатам и Канаде и (   Читать дальше...   )--------------------------
-
-01. Painted Horse (3:45)
-02. Fur Covered Handcuffs (3:24)(   Читать дальше...   )Жанр: Blues Rock |Продолжительность: 12:05:27 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:993E47CB83D3E7AB4F59F0FEF73CDC9F16530E3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

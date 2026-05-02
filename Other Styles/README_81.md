@@ -1,3 +1,206 @@
+###  Публикация: 1035548   (626580) от 17.07.2016
+
+VA - Ghostbusters / Охотники за привидениями (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk The Moon - Ghostbusters (03:45)
+02. G-Eazy - Saw It Coming (Feat. Jeremih) (03:30)
+03. Elle King - Good Girls (02:59)
+04. 5 Seconds Of Summer - Girls Talk Boys (03:36)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81573188F13F784EF161975CABF29A79C905B981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035547   (626517) от 17.07.2016
+
+VA - Ghostbusters / Охотники за привидениями (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk The Moon - Ghostbusters (03:45)
+02. G-Eazy - Saw It Coming (Feat. Jeremih) (03:30)
+03. Elle King - Good Girls (02:59)
+04. 5 Seconds Of Summer - Girls Talk Boys (03:36)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B9B484F3153D607621C42170ED31F045DE46021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229263   (626463) от 06.06.2018
+
+VA - Eamonn Karran - I’ll Be With You (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The River (5:19)
+02. Guiding Light (4:30)
+03. I'll Be With You (4:20)
+04. Morning Light (4:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:810B6871D4F8792DF0A872AB45156E0A57AE22E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035549   (626378) от 17.07.2016
+
+Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейцарский нож (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Song (feat. Paul Dano) (02:27)
+02. Where Did You Come From? (feat. Paul Dano) (02:43)
+03. Cave Ballad (feat. Paul Dano) (01:46)
+04. Hank Drinks (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365BBB2C96BBD2A022A81AA2593797BC196FE300
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035552   (626241) от 17.07.2016
+
+Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейцарский нож (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro Song (feat. Paul Dano) (02:27)
+02. Where Did You Come From? (feat. Paul Dano) (02:43)
+03. Cave Ballad (feat. Paul Dano) (01:46)
+04. Hank Drinks (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4301B005B315B4A7A9FE27C6876E6645E68DD0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144565   (625526) от 23.06.2017
+
+Empire Of Love - Mysterious I-II (2016-2017) [MP3|320 Kbps] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of The Sun (4:54)
+02. Heya (5:45)
+03. In The Dream Of The Monk (4:32)
+04. Inside You (4:36)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:31:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FDD83595B7688500A775CBD1605D783592C103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035668   (624720) от 18.07.2016
+
+Brian Tyler, Keith Power - Criminal (Original Motion Picture Soundtrack) (2016) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drift and Fall Again (feat. Lola Marsh) (4:07)
+02. Criminal (Madsonik Remix) (3:55)
+03. Pope (3:17)
+04. Division (4:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4907639295B96BAC5657E56EE3D7AE080999BF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1035719   (624662) от 18.07.2016
 
 Craig Armstrong - Me Before You / До встречи с тобой (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Soundtrack, Score>
@@ -566,221 +769,6 @@ CD 01:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6498A6B484BF91B21D37774F304F15EF14520BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219679   (621686) от 20.07.2010
-
-Namaste - True Crystals (2009) [MP3|256 kbps]<New age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_621686.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:12) 01. Hematite
-(6:32) 02. Citrine
-(6:09) 03. Amber
-(7:10) 04. Rose Quartz
-(6:33) 05. Adventurine
-(6:11) 06. Aquamarine
-(5:55) 07. Celestite
-(6:40) 08. Amethyst
-(6:33) 09. Clear Quartz
-(6:05) 10. Onyx(   Читать дальше...   )Жанр: New age, MeditativeПродолжительность: 01:16:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145511   (621548) от 25.06.2017
-
-Wuauquikuna - VII: The Sun Of The Inka's (2016) [FLAC|Lossless|image + .cue] <Native American, Chillout, World>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andean Winds
-02. Dance Of Fire
-03. Maldito Licor
-04. The Sun Of The Inka's(   Читать дальше...   )Жанр: Native American, Chillout, WorldПродолжительность: 01:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2470BD5CD96534ACAA5CE009DDC55EFCFDFA6723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036338   (621078) от 20.07.2016
-
-Patty Loveless - Mountain Soul (2001) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621078.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Boys Are Back In Town
-02. The Richest Fool Alive
-03. Daniel Prayed
-04. Someone I Used To Know(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:46:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A49B19CAC1F32A6FC5167E752529BB56389F548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 803307   (621019) от 09.07.2014
-
-Marc Shaiman - Семейка Аддамс / The Addams Family (2014 (1991)) [FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Carol of the Bells* / The Fa-La-La Song** / Deck the Halls**
- 02 - Main Title#
- 03 - Morning
- 04 - Chess*(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7F3B646B2FBA84E5FD25A38657D22B8B546D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036320   (621005) от 20.07.2016
-
-VA Hit Country - Hit Country (2014) [MP3|320 Kbps] <Country, Alt Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Florida Georgia Line - Get Your Shine On
-2. Kenny Chesney - Pirate Flag
-3. Carrie Underwood - Two Black Cadillacs
-4. Jasmine Rae - If I Want To(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 1:16:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249D5DBC8C1981E711DABE1119D45E0C3AE492F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508866   (620973) от 14.07.2012
-
-The Guggenheim Grotto - 3 альбома [MP3|128-320 кб/с]<Folk-pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trust Me I'm A thief (3:56)
-02. Map of the Human Heart (3:54)
-03. Wings and Feathers (3:53)
-04. Never Before (2:54)
-05. Concentrate (5:09)
-06. Wisdom (3:35)
-07. Ruby Heart (3:33)
-08. The Spiegel Song (3:25)
-09. The Universe Is Laughing (3:07)
-10. Diamond (3:00)Жанр: Folk-popПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:441CFD7A61DF7E4EBB90C446384FE0AED9D057F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229871   (620962) от 09.06.2018
-
-Сергей Гримальский - West (2003) [FLAC|Lossless|image + .cue] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ветер времени (3:52)
-02. Колыбельная (3:35)
-03. Цветные сны (5:53)
-04. Золотой ангел (5:11)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:54:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:624B2755B382427AC41842620435D9C37230ADA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,60 @@
+###  Публикация: 640515   (884842) от 08.04.2013
+
+VA - Electro Life 24 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Electro Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_884842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 30 Second To Mars - From Yesterday (Tony Igy Remix)
+02. Alexey Romeo ft. Gerald G - This Is Your Life (Heartbeat Re-Mode)
+03. Avicii - UMF (Ultra Music Festival Anthem) -Жанр: Electro House, Electro Progressive, Progressive House, Vocal HouseПродолжительность: 02:12:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF10FA8484633C86BB5943091BE22DD12DB2988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995246   (884796) от 11.03.2016
+
+VA - Soulful Nights-The Dance Music Playlist (2016) [MP3|320 кб/с] <Nu Disco, Funky, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roberto Conrado - 2 Lovers (Vocal).mp3
+02. Roberto Conrado - Choosy (Vocal).mp3
+03. Roberto Conrado - Freedom (Vocal).mp3
+04. Roberto Conrado - I Wanna (Vocal) .mp3(   Читать дальше...   )Жанр: Nu Disco, Funky, ClubПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52C637515FA43381DA666D2F71663F6AAF4F1A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995400   (884752) от 11.03.2016
 
 VA - Chill House Diamonds Vol.2 (2016) [MP3|320 кб/с] <Deep House, Chill House>
@@ -687,64 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E55B667230C244CB37EA60C87CEC25627D72FFF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996407   (879519) от 14.03.2016
-
-VA - Ethno Chillin: Best World Lounge and Ethno Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Devankali - African Sunrise
-02. St Project - Hot Desert Wind
-03. Luigi Seviroli - Ethnical Views - Full Mix
-04. Brass - Mantra and Tantra(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AE24B9B303C9D05350082CF62177AFEBC7DC96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996744   (879517) от 14.03.2016
-
-VA - Massive House Future Running (2016) [MP3|255-320 кб/с] <Bigroom, Club, Progressive, Tropical>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879517.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joe Stone & Daser - Freak (And You Know It) (Edit) 03:14
-002. DVBBS - Never Leave (Radio Edit) 03:07
-003. D-wayne - Never Had (Radio Edit) 02:58
-004. Fight Clvb - HITA (Original Mix) 03:50(   Читать дальше...   )Жанр: Bigroom, Club, Progressive, TropicalПродолжительность: 10:00:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B3340CF03CDD4260E6B8B75C6A851C172C7248D
 ```
 
 https://mybot314.ru/tekegram_catalog/

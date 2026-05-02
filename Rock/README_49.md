@@ -1,3 +1,37 @@
+###  Публикация: 536840   (512534) от 20.08.2012
+
+Phish - Lawn Boy (1990) [MP3|320 кб/с]<Progressive rock, Jazz-Rock, Fusion, Avantgarde>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Squirming Coil (6:05)
+02. Reba (12:27)
+03. My Sweet One (2:08)
+04. Split Open and Melt (4:43)
+05. The Oh Kee Pa Ceremony (1:41)
+06. Bathtub Gin (4:29)
+07. Run Like an Antelope (9:52)
+08. Lawn Boy (2:32)
+09. Bouncing Around the Room (3:56)Жанр: Progressive rock, Jazz-Rock, Fusion, AvantgardeПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99D5B37065B16B43282EDAFF2CDF64642BFAA11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 537020   (512462) от 20.08.2012
 
 Bente Smaavik - 1979-2011 (2012) [MP3|320 кб/с]<Melodic Rock>
@@ -763,35 +797,6 @@ The Beatles - Abbey Road [Toshiba Black Triangle] (1969) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4F57697E99E4F76B7C225C3F49647068D0D0740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563127   (506322) от 12.07.2022
-
-Loud - The Black Pill (Compilation) (2022) [MP3|320 Kbps] <Psych, Stoner Rock, Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Acid Queen [00:02:43]
-02 Dracul [00:02:00]
-03 Dark Nightmare [00:04:39]
-04 Black Drug [00:06:19](   Читать дальше...   )Жанр: Psych, Stoner Rock, Doom MetalПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:140C8FC9BF875AFED103AD9CFA2777912621A4C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

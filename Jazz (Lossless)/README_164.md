@@ -1,3 +1,61 @@
+###  Публикация: 933159   (507256) от 31.08.2015
+
+Kenny Burrell - For Charlie Christian And Benny Goodman (1966/1967) /1991, Par Media Music/ [APE|image+.cue]<Bop, Hard Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. As Long As I Live [02:44]
+02. Poor Butterfly [05:50]
+03. Stompin' At The Savoy [06:11]
+04. I Surrender Dear [04:49](   Читать дальше...   )Жанр: Bop, Hard Bop, Mainstream JazzПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F712FF5488526ED9789CAFBD25108EB914E59066
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933227   (507254) от 31.08.2015
+
+Emily McEwan - In The Wee Small Hours (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Wee Small Hours (3:46)
+02. Never Let Me Go (4:44)
+03. End of A Love Affair (4:43)
+04. Turn Out The Stars (6:04)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87141F74A4E4B864413646720EFE6ADCD04028EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933093   (507250) от 31.08.2015
 
 John Coltrane - The Golden Age Of Jazz: My Favorite Things in Concert & Other Rarities (1965) /1991, Suisa/[APE|tracks+.cue]<Post-Bop, Avant-Garde Jazz>
@@ -708,64 +766,6 @@ Essiet Okon Essiet - Shona (2014) /Space Time Records/ [FLAC|tracks+.cue]<Crosso
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9EF34F5034C56FB0C66DE152BC1E7847531DE94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933916   (504619) от 03.09.2015
-
-Donald Byrd - With Strings & Byrd Blows On Beacon Hill (1956/1959) /2013, Phoenix Records/ [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stardust [03:29]
-02. Indian Summer [02:47]
-03. I'm A Fool To Want You [03:31]
-04. Someday My Prince Will Come [02:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:860B19884AEC8C217982341F9CCFA30C87D2B04A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933924   (504613) от 03.09.2015
-
-Shorty Rogers & The Giants - You Shorty, Me Tarzan! (1956-1959) /2010, Giant Steps Records/ [FLAC|tracks+.cue]<West Coast Jazz, Score>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Elephant Wail [03:26]
-02. Los Barbaros [01:41]
-03. Paradise Found [03:06]
-04. Trapped [01:56](   Читать дальше...   )Жанр: West Coast Jazz, ScoreПродолжительность: 00:55:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B42CD4080A7B379D1EA855F2555C8C5BAC31AE3D
 ```
 
 https://mybot314.ru/tekegram_catalog/

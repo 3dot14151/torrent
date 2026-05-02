@@ -1,3 +1,61 @@
+###  Публикация: 1417092   (360693) от 19.10.2020
+
+Duke Ellington - Love Songs (1948 - 1962) 2001, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Satin Doll [2:45]
+02. Do Nothing Till You Hear From Me [3:06]
+03. I Got It Bad (And That Ain't Good) [3:09]
+04. Body and Soul [4:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:02:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2CC603D3DD327DC90ACE700BE49A68B06FAAB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1417185   (360613) от 19.10.2020
+
+Herbie Hancock - Riot: The Newly Discovered Takes from Blue Note Sixties Sessions (1999) Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riot (first alternate take) [4:57]
+02. Riot (second alternate take) [4:41]
+03. Blind Man, Blind Man (alternate take) [8:33]
+04. Mimosa (alternate take) [10:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58A8B4EB70CC39E576125519F73ECF52A9FE203F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415169   (360599) от 19.10.2020
 
 Allen Farnham - The Common Thread (1986 - 1994) 1995, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -687,64 +745,6 @@ Peter Guidi Qartet & Trio - Forbidden Flute (1999) Munich Records [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:649BB0B60EE3765BA2105F634127D6489689A634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952253   (356213) от 01.11.2015
-
-Kurt Elling - Passion World (2015) /Concord/[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Verse [01:40]
- 02.After the Door [03:57]
- 03.Loch Tay Boat Song [07:04]
- 04.Si Te Contara [05:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C70379FB783788D22D8E92C7C8EE8FA5F77024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417610   (355906) от 21.10.2020
-
-Tito Puente & His Orchestra - Live at the 1977 Monterey Jazz Festival (2008) Monterey Jazz Festival Records [FLAC|Lossless|tracks + .cue] <Latin Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction by Jimmy Lyons [0:20]
-02. Para los Rumberos [5:59]
-03. Oye Como Va [6:18]
-04. Babarabatiri [8:40](   Читать дальше...   )Жанр: Latin Jazz, Big BandПродолжительность: 01:05:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81CFF169EE2869221323EB9B46988D4989BE6969
 ```
 
 https://mybot314.ru/tekegram_catalog/

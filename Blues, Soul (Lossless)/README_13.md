@@ -1,3 +1,119 @@
+###  Публикация: 1447169   (1032057) от 12.02.2021
+
+Early Times and the High Rollers - The Corner (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On, Let's Ride (2:42)
+02. On the Corner (3:55)
+03. Do What She Do (2:58)
+04. She's About to Lose Her Mind (3:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D966FAAB7E3AC18CD66CF66219C10D1B59E8D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447147   (1032051) от 12.02.2021
+
+Joyann Parker - Out of the Dark (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone so Long (4:12)
+02. Carry On (4:26)
+03. Bad Version of Myself (3:25)
+04. What Did You Expect (3:10)(   Читать дальше...   )Жанр: Blues R&BПродолжительность: 00:41:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A08F5D1EF82D93AC8B0583DB68C1D135A523085B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620691   (1031868) от 21.03.2023
+
+Deb Callahan - Backbone (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What I'm Workin With (3:34)
+02. Crazy Ride (4:05)
+03. Big Girl Pants (3:54)
+04. Rogue (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F865658C85B08148F52073E924AEDD497DD2D04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620670   (1031865) от 21.03.2023
+
+Ain’t No Square - Taking Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belly Dancing (4:26)
+02. Millionaire (5:34)
+03. What Goes Around comes around (5:04)
+04. Happy Day (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F82DC55B3BE3DA8DCBE3295061676B8914E02F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620671   (1031864) от 21.03.2023
 
 Angels Of Libra - Revelations (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
@@ -629,122 +745,6 @@ Scott Ellison - Zero-2-Sixty (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:937AEA9B54C78023EA01CCB0375AE2A477FEF7E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621569   (1030754) от 26.03.2023
-
-Peter Rudzinski - Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hear Me Knocking (3:52)
-02. Open the Gate (3:26)
-03. Move (3:21)
-04. For J (1:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE11785B359642FB873521C0815A2151B9E5EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621587   (1030749) от 26.03.2023
-
-Skylar Rogers - Among the Insanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love in the Left Lane (3:52)
-02. Among the Insanity (4:35)
-03. One Last Kiss (4:18)
-04. Ride That Lightning (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16F000F3194D572E0AD36814835426D2EB1B33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621609   (1030747) от 26.03.2023
-
-The Four Breakers - Dry Rivers (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Think (4:55)
-02. Hotel Room (2:59)
-03. Independent Woman (4:40)
-04. I Follow You (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75E800C65BEEA5E7BD2D1F349AD7EEAA5E2DC08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621606   (1030746) от 26.03.2023
-
-The Cold Stares - Voices (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothing But The Blues (3:22)
-02. Come For Me (3:30)
-03. The Joy (3:46)
-04. Lights Out (2:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8BBFC97B9D2997115CA419F58C30015CA5571C
 ```
 
 https://mybot314.ru/tekegram_catalog/

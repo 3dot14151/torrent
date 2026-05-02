@@ -1,3 +1,32 @@
+###  Публикация: 1380048   (835900) от 01.05.2020
+
+Drake - Dark Lane Demo Tapes (2020) Mixtapes [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835900.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Pockets (03:42)
+02. When To Say When (03:43)
+03. Chicago Freestyle (03:40)
+04. Not You Too (04:29)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91B1B7CF8C9A94CAB6AE4A9FD7FCC7D8EB9F7BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116873   (820441) от 21.03.2017
 
 Drake - More Life (2017) [MP3|320 Kbps] <Hip-Hop, Rap>
@@ -716,35 +745,6 @@ Snoop Dogg - Neva Left (2017) [MP3|320 kbps] <Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:071218B731360372EBD2F62DB606AFF880C06EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030420   (674153) от 30.06.2016
-
-Kevin Gates - Islah (2016) [MP3|320 Kbps] <Hip-Hop, Trap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not The Only One (04:41)
-02. Really Really (03:52)
-03. 2 Phones (04:00)
-04. Pride (04:06)(   Читать дальше...   )Жанр: Hip-Hop, TrapПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD325B255D09F1737BC52694EF0DFFD48146804C
 ```
 
 https://mybot314.ru/tekegram_catalog/

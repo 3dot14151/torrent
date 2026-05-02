@@ -1,3 +1,61 @@
+###  Публикация: 1731583   (107650) от 21.06.2024
+
+Ervin Pope - Anomaly (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107650.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Khaiden Defines Anomaly (1:12)
+02. Anomaly (3:26)
+03. Aiesha Johnson (3:34)
+04. Sunshine (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:21:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52053CC7E39C02D0FDB6A3D9E4281FA53B9EEDEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731755   (107588) от 22.06.2024
+
+Antonio Sanchez - Channels Of Energy (2016) 2CD, 2018, CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Life [11:01]
+02. Grids and Patterns [10:05]
+03. Imaginary Lines [9:35]
+04. Channels of Energy [14:16](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Big BandПродолжительность: 01:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:497773C5F080EDBB77BBAF768E07C3B780A94439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1732024   (107570) от 23.06.2024
 
 Sexy Lovers Music Collection - Good Morning Sex (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -687,64 +745,6 @@ Anita O'Day - An Evening With Anita O'Day (1956) 1990, Polygram [FLAC|Lossless|i
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4CAEEE708847679B75C36A47B3F4E9E0EC658EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733223   (107292) от 28.06.2024
-
-Kevin Casteel - Shadows of the Past (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mississippi Mud (5:26)
-02. Shadows of the Past (4:26)
-03. Johnny (feat. Alvin Jones) (4:53)
-04. Theo (feat. Terrence 'TJ' Johnson) (5:13)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:05:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE78284F3D54419B690E71340E47611EC0594EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1733468   (107289) от 29.06.2024
-
-Louis Prima - 1944 - 1945 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Very Thought of You [2:34]
-02. Way Down Yonder in New Orleans [2:15]
-03. Beloved [3:02]
-04. Let's Take the Long Way Home [2:46](   Читать дальше...   )Жанр: SwingПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:082D5F188E5F08466313FAF7B876149002E34B9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1824539   (128856) от 15.10.2025
+
+Павел Черепанов - Чб (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Где взять мне сил (4:00)
+02.  Rock-n-Roll о любви (3:54)
+03.  Давным-давно в далекой (4:03)
+04.  Февраль (С Днем Рождения февральчата!) (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E1B4CBA13D81D437A48336CF2C3FA19BE5A57DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824522   (128820) от 15.10.2025
+
+Jon Hines - Memphis Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Memphis Sun Blues (2:55)
+02.  Me & the Devil (3:38)
+03.  Until the Wheels (3:32)
+04.  Holy Ground (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F96597F8167CE711D5732D00C3439C793125B0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824524   (128818) от 15.10.2025
+
+Kinland Station - LoFi (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Let the Music Pull You Through (3:53)
+02.  Little Sister (3:48)
+03.  I Don't Need No Doctor (5:10)
+04.  Everything Is Broken (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C571034ECB54161E5CC8564A913E2F1F5F64D195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683115   (128733) от 10.12.2023
+
+Jackie Venson - Ghost in the Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B, Soul, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Home
+02 – Home (Outro)
+03 – Go My Way
+04 – Go My Way (Outro)(   Читать дальше...   )Жанр: Blues, R&B, Soul, RockПродолжительность: 01:23:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743CE0EA8BA93D3303EC9CE63F6E051790AAF688
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683174   (128710) от 10.12.2023
 
 Bernie Marsden - Working Man (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Darnell Cole & The Vibe - A Man Of Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE600908F4E33741AA117602FD0D137BDECCE44F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685930   (126744) от 21.12.2023
-
-DGonemanband - Clown Show (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trudeau Is a Crazy Man (2:37)
-02. What’s My Name (2:22)
-03. Hold Me Down (3:29)
-04. Trudeau Radio (2:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72EC91E201F2CC804AC08C5D156C80B0A14938F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686489   (126466) от 23.12.2023
-
-The Derek Trucks Band - 8 Albums (1997 - 2010) 10 CD (1997 - 2010) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock, Southern Rock, Jazz-Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Derek Trucks (родился 8 июня 1979 г.) - американский гитарист, автор песен и основатель группы The Derek Trucks Band. Он стал официальным участником The Allman Brothers Band в 1999 году. В 2010 году он вместе со своей женой, блюзовой певицей и гитаристкой Susan Tedeschi сформировал группу Tedeschi Trucks Band. Его музыкальный стиль охватывает несколько жанров, он (   Читать дальше...   )Список альбомов:
-1997 - The Derek Trucks Band
-1998 - Out Of The Madness
-2002 - Joyful NoiseЖанр: Blues Rock, Southern Rock, Jazz-BluesПродолжительность: 09:10:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2559D2FCE97755A513BECEBB9424FFE9F2E8998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686359   (126429) от 23.12.2023
-
-Jay Doe & The Blues Preachers - Bluestime (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got My Mojo Working (4:00)
-02. Walking to My Baby (2:31)
-03. Call Me the Breeze (3:43)
-04. Next Time You See Me (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69BEF7CB6C8FF1155A9168B9A0EF62C1FB3C66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686361   (126421) от 23.12.2023
-
-Jimmy Lewis and Peggy Scott-Adams - Christmas With Miss Butch Records (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Friends of Mine (4:48)
-02. Can Reindeer Fly? (4:33)
-03. Wild Horses Two Mules and a Tractor (3:36)
-04. Light You up Like a Christmas Tree (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714DF69475161C44FF8FA2B23D0FEFE39F6D4D6D
 ```
 
 https://mybot314.ru/tekegram_catalog/

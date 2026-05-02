@@ -1,3 +1,57 @@
+###  Публикация: 600003   (999140) от 07.01.2013
+
+Журнал | Здоровье от природы №1 [январь 2013] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999140.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Здоровье от природы" - журнал о красоте, здоровье и активном образе жизни. Издание сочетает актуальную информацию о современных wellness-тенденциях с практическими рекомендациями по выбору индивидуальных способов поддержания красоты и укрепления здоровья. В журнале представлен широкий спектр традиционных оздоровительных методик с применением природных средств, а также последние научные разработки в области медицины, питания, косметологии.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF796C6D40BDD4B58D99FC632396A8378C292AE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 599994   (999136) от 07.01.2013
+
+Frugalware Linux 1.8-rc1 [x86-64] (5xDVD+2хCD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999136.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вышел релиз-кандидат Linux дистрибутива общего назначения Frugalware 1.8, разработанного для опытных пользователей, не боящихся командной строки - уровень сложности Slackware. Основное направление развития дистрибутива - максимальное упрощение. Концепция построения дистрибутива похожа на Slackware, в качестве пакетного менеджера задействован pacman из Arch Linux. При создании пакетов разработчики стараются публиковать программы как есть, избегая внесения дополнительных патчей.
+
+Основные изменения по сравнению со старой версией: Package updates: ядро Linux 3.7.1; Boost 1.50.0; KDE 4.9.5, а также в дистрибутив добавлены mesa 7.11 драйверы.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599887   (999133) от 07.01.2013
 
 PGWare PCBoost 4.1.7.2013 [Multi/Русский]
@@ -664,76 +718,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C319F2AA40A1E91FA4D5777C2673CE84DC487C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599854   (998976) от 08.01.2013
-
-Castles - You, The Organ Grinder (2012) [MP3|~245 кб/с (V0)]<Mathcore/Stoner/Noise Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You, The Organ Grinder
-02. The Reverend
-03. I Started Rattling
-04. Diamond Heel
-05. Dispute in A#
-06. Streets, Streams and Shallows
-07. Colossus Cnut
-08. Transylvania
-09. Twist Your Blood
-10. PyramidsЖанр: Mathcore/Stoner/Noise RockПродолжительность: 00:32:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B29B37EB7E8F135B6B88A33677000C6616B1AF1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599709   (998975) от 08.01.2013
-
-Tad Morose - Undead (2000) [WavPack|Lossless]<Power / Heavy Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:52]
-02. Servant Of The Bones [04:54]
-03. Another Time Around [04:06]
-04. Where The Sun Never Shines [04:00]
-05. Order Of The Seven Poles [04:45]
-06. Undead [03:39]
-07. No Tears In The Rain [04:27]
-08. Intro/Lord On High [05:51]
-09. Corporate Masters [03:20]
-10. No Wings To Burn [03:46](   Читать дальше...   )Жанр: Power / Heavy MetalПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

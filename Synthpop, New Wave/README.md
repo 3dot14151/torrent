@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1868093   (1067386) от 
+
+Lazer Club - Forevermore (2026) [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pizza Planet (5:07)
+02. Friday Night (4:47)
+03. In the Fire of the Night (4:31)
+04. Lost (6:59)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 01:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E01E0E57E9CF3450CBC37DB61DDC18C7659C582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855601   (1058576) от 25.02.2026
 
 Max Damage - 3 Albums (2026) AI-generated content [MP3|320 Kbps] <synthwave, darkwave, darkpop>
@@ -181,7 +210,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1047249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047249.jpg" />
 </div>
 
 
@@ -715,35 +744,6 @@ Aviators - Dreams Of The Deep (2021) [MP3|320 Kbps] <Synthwave, Cinematic Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A300B38F8D1747849CA285EB5D0783F92735AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461180   (1021933) от 09.04.2021
-
-W O L F C L U B (Wolfclub) - 6 Albums (2017-2021) [MP3|320 Kbps] <Electronic, Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strangers Forever (feat. Kieran Scragg) (3:32)
-02. Driving Through the Night to You (feat. Indigo) (2:40)
-03. Nightwave (feat. Indigo) (3:15)
-04. Never Stop (feat. Indigo) (3:37)(   Читать дальше...   )Жанр: Electronic, Synthwave, RetrowaveПродолжительность: 03:30:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:996F3580801507344EF6425444A8265B04C80560
 ```
 
 https://mybot314.ru/tekegram_catalog/

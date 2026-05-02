@@ -1,3 +1,32 @@
+###  Публикация: 1548311   (598027) от 03.05.2022
+
+VA - Velour Mood (2CD) (2022) [MP3|320 Kbps] <Soul, Funk, Jazz>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598027.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мягкость, меланхоличность и лиричность композиций сборника "Velour Mood", а так же аранжировка в духе классических "барных" инструментальных джаз компиляций раскрывается в совершенно неожиданном ключе и за счет вокала, который является центральным образом музыкальной картины.CD 01:
+
+001. Sault - London Gangs
+002. Damos Room - Soft Bodied(   Читать дальше...   )Жанр: Soul, Funk, JazzПродолжительность: 13:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21D857444D2BB3FBE5AAD00CA171985E246F9335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039099   (597486) от 31.07.2016
 
 VA - Hot Sex (Smooth Jazz for Sensual, Sexy Love Making) (2016) [MP3|320 Kbps] <Jazz>
@@ -715,35 +744,6 @@ VA - Heartbreack Hotel Vol. 02 (2019) [MP3|320 Kbps] <Jazz, Blues, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC5C5C5E2235D218D9A8C7CA46C824519A8C974D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046200   (552923) от 26.08.2016
-
-VA - Relax with Electro Jazz (2016) [MP3|320 Kbps] <Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Dorricott - Paris Back Streets
-02. Morris Lionel - Again
-03. Eddie Caldwell - Smooth
-04. Leon Ayers Jr - Head Spinning(   Читать дальше...   )Жанр: JazzПродолжительность: 01:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6AB539377BDE70F72FC3A7689F6D27F213E600
 ```
 
 https://mybot314.ru/tekegram_catalog/

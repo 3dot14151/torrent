@@ -1,3 +1,211 @@
+###  Публикация: 1291586   (668668) от 25.03.2019
+
+Baba Yaga's Stew - Baba Yaga's Stew (2019) [FLAC|Lossless|tracks + .cue] <Folk, Contra Dance>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668668.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lörincreve, Amari Szi (3:20)
+02. Tirontanita, Anaconda (3:51)
+03. La Bruja (3:38)
+04. Koga Ke Odish Mome Za Voda, Üsküdar (4:54)(   Читать дальше...   )Жанр: Folk, Contra DanceПродолжительность: 00:49:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13DCA18FF7268318EBE5CACDCA1CFB12ED931091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031229   (668647) от 03.07.2016
+
+Midori - Soul Healing / The Best of Midori (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Promise of Love [00:05:08]
+02. Energy [00:09:03]
+03. Pure [00:05:51]
+04. Seraphim (The Spirits of Love) [00:07:39](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEE3EB6D93A6B94B7D917B6DC87896741D8715DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031371   (668646) от 03.07.2016
+
+VA - Sleep, Rest, Relax (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radiance [00:10:20]
+02. Cloud Dancing [00:03:36]
+03. In a New Light [00:06:27]
+04. Sungrass [00:06:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4217E1B9098877B0B02223A7B6FD5E4066CFD368
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031242   (668644) от 03.07.2016
+
+Midori - Soul Healing / The Best of Midori (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668644.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Promise of Love
+02. Energy
+03. Pure
+04. Seraphim (The Spirits of Love)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C217C1E8C734FB8AA310C767388EFF63A225FB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031143   (668594) от 03.07.2016
+
+John Williams - The BFG / Большой и добрый великан (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (01:19)
+02. The Witching Hour (04:41)
+03. To Giant Country (02:34)
+04. Dream Country (10:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFD8BC4782AA459629EF123978629C92D171BF0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031139   (668587) от 03.07.2016
+
+John Williams - The BFG / Большой и добрый великан (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|CD|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture (01:19)
+02. The Witching Hour (04:41)
+03. To Giant Country (02:34)
+04. Dream Country (10:11)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673DA5528A9549D5D4B6DA3B024DB76DE2D56648
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510748   (668470) от 15.06.2012
+
+Set Fire to Flames - 2 albums (2001-2003) [FLAC|Lossless] <Post-Rock, Instrumental, Ambient, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_668470.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1. Telegraphs in Negative: (00:43:56)
+01. Deja, Comme Des Trous De Vent, Comme Reproduit (06:43)
+02. Small Steps Against Inertia / Echo Of A Dead End (03:01)
+03. Measure De Mesure (04:45)
+04. Holy Throat Hiss Tracts To The Sedative-Hypnotic (03:38)
+05. When Sorrow Shoots Her Darts (03:11)
+06. Kill Fatigue Frequencies (01:28)
+07. In Prelight Isolate (15:11)
+08. Tehran In Seizure / Telegraphs In Negative (05:56)2001-2003Жанр: Post-Rock, Instrumental, Ambient, ExperimentalПродолжительность: 01:28:09
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031237   (668441) от 03.07.2016
 
 James Last - Instrumental Forever (1998) [APE|Lossless|image + .cue] <Instrumental, Pop, Latin>
@@ -558,214 +766,6 @@ David Garcia Diaz - RiME (2017) Deluxe Soundtrack [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8527A324B9D7DA4A35A130990E1A181CE0033F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 511564   (664684) от 18.06.2012
-
-VA - Союз нерушимый... - Песни и танцы народов СCCP (2007) 5 CD [MP3|320 kbps] <Retro, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Государственный гимн Советского Союза Оркестр Государственного Академического Большого Театра СССР, Юрий Симонов
-02. Государственный гимн Украинской ССР Хор и оркестр Государственного академического театра оперы и балета имени Т.Шевченко, Стефан Турчак
-03. Государственный гимн Белорусской ССР Хор и эстрадно-симфонический оркестр Белорусского Гостелерадио, Б. (   Читать дальше...   )Жанр: Retro/FolkПродолжительность: 05:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87D5F1A8D7C0417003BEA067A2677AB85F93BAC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537973   (664342) от 19.03.2022
-
-Diane Arkenstone & David Arkenstone - Avalon: Between Earth and Sky (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Reigns Through Tears (04:14)
-02. The Crystal Shores (03:49)
-03. If a Heart Could Speak (04:10)
-04. A Queen Reborn (03:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574002EB34F6C2BAC5A2428CC1CDF47A566F58DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138151   (664194) от 29.05.2017
-
-The Romantic Strings and Orchestra - Stardust Moods (1989) [MP3|320 Kbps] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664194.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Some Enchanted Evening (3:36)
-2. All The Things You Are (3:55)
-3. Tenderly (3:39)
-4. With A Song In My Heart (2:59)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196DFF8DCC450A07A96E6450F9EA7C0E24191D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 901360   (663350) от 26.05.2015
-
-Eilen Jewell - Sundown Over Ghost Town (2015) [MP3|320 кб/с]<Americana, Country, Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_663350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worried Mind (03:15)
-02. Hallelujah Band (02:54)
-03. Rio Grande (03:23)
-04. Half-Broke Horse (03:27)(   Читать дальше...   )Жанр: Americana, Country, FolkПродолжительность: 00:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8FA3D2C9A50CA7E569DABD4C09BCA17BA56A51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139042   (661293) от 01.06.2017
-
-VA - Deep Silence Meditation: Best New Age 2017 Asian Garden Chinese Music [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yoga Training Music Sounds — Calm Waves
-02. Buddha Music Sanctuary — Asian Zen
-03. Reiki Music Zone — Fire (Tranquility)
-04. Buddha Music Sanctuary — Chinese Meditation (Sanxian)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5D7E6BDDFF5ACA3D713922FEC07415470529B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139237   (661291) от 01.06.2017
-
-KoolSax - Meditation (Relax Your Mind to Save the World) (2014) [MP3|320 Kbps] <New Age & Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels Echoes - Meditation Mix (05:47)
-02. Face to Face - Caress Mix (05:54)
-03. Harmonie - Angel Mix (05:40)
-04. Sign of Life - Esoteric Mix (05:55)(   Читать дальше...   )Жанр: New Age & MeditationПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E13EC5F55A8876C7EDAB20850DA4B64F43ACF846
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513743   (660499) от 22.06.2012
-
-Берлинский Симфонический Оркестр - Charlie Chaplin - The Film Music (1996) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_660499.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Opening Music (2:41)
- 2. Garret Walz (1:29)
- 3. Blue Eyes (1:51)
- 4. Kidnap (3:39)
- 5. Doss House (4:31)
- 6. Overture And Storm (2:41)
- 7. Thanksgiving Dinner (2:59)
- 8. Georgia (3:53)
- 9. Dance Of The Rolls (1:25)
- 10. Rejected (2:05)(   Читать дальше...   )1996Жанр: OSTПродолжительность: 01:17:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:997A501CA5562CD0E290C20FE98E7083ED56AAC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

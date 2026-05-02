@@ -1,3 +1,177 @@
+###  Публикация: 1645217   (14545) от 15.06.2025
+
+Katatonia - Studio Albums (15 releases) (1993-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal; Gothic/Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Katatonia — шведская группа, основанная в 1991 году в Стокгольме Йонасом Ренксе и Андерсом Нюстрёмом. Раннее творчество коллектива принято характеризовать как дэт-дум-метал, а сама группа, наряду с My Dying Bride, Anathema и Paradise Lost, считается лидером этого жанра. Однако после записи альбома Brave Murder Day, в котором вокальные партии исполнил Микаэль Окерфельдт, (   Читать дальше...   )1993 - Dance Of December Souls
+1996 - Brave Murder Day
+1998 - Discouraged Ones
+1999 - Tonight's DecisionЖанр: Doom/Death Metal; Gothic/Progressive RockПродолжительность: 16:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9012591C944A59D0CE949CB8FFD63505E05606A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802322   (14413) от 16.06.2025
+
+Dante - Studio Albums (5 releases) (2007-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dante - метал-группа из Германии, основана в 2006 году.2007 - The Inner Circle
+2010 - Saturnine
+2013 - November Red
+2016 - When We Were BeautifulЖанр: Progressive MetalПродолжительность: 05:10:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD54FE933B31F4845E5217A1A6F3231B2844A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802319   (14412) от 16.06.2025
+
+Smoulder - Times of Obscene Evil and Wild Daring (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14412.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Ilian of Garathorm (06:22)
+A2. The Sword Woman (05:29)
+A3. Bastard Steel (06:04)
+B1. Voyage of the Sunchaser (05:57)(   Читать дальше...   )Жанр: Epic Heavy, Doom MetalПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5DC5BD2B2D8E79A0EE47A020B7A2C217A390187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702422   (14222) от 18.06.2025
+
+Paul McCartney (Пол Маккартни) - Снова в СССР (1989) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14222.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Kansas City (Jerry Leiber / Mike Stoller)
+02. Twenty Flight Rock (Eddie Cochran / Ned Fairchild)
+03. Lawdy Miss Clawdy (Lloyd Price)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50CC9DA2A3D60A720C56D60F0BA3E89F9EAF1B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802999   (13990) от 20.06.2025
+
+Manowar - Kings of Metal (1988)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Wheels Of Fire (04:11)
+02 - Kings Of Metal (03:44)
+03 - Heart Of Steel (05:12)
+04 - Sting Of The Bumblebee (02:49)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E52DB2772D1ED42A8E523CA506A0F3D2838866EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637929   (13718) от 23.06.2025
+
+Alestorm - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13718.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alestorm — фолк/пауэр-метал-группа из города Перт (Шотландия). Песни Alestorm посвящены пиратам, и свою музыку они называют «Настоящий шотландский пиратский метал» (англ. True scottish pirate metal).2008 - Captain Morgan's Revenge
+2009 - Black Sails at Midnight
+2011 - Back Through Time
+2014 - Sunset On The Golden AgeЖанр: Folk/Power MetalПродолжительность: 07:19:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F09C05E399CFB1186F78012C64093F1FDB5723D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1716189   (13571) от 24.06.2025
 
 Хаме-леоН - Студийные альбомы (6 изданий) (2013-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
@@ -568,181 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3E6F03F6667EA84FADC95BE0E7C7B5C51A71D1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808739   (10007) от 29.07.2025
-
-Yello - 12 студийных альбомов (1983-2020) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Electronic, synthpop, new wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Yello (Йеллo) — швейцарская электронная группа, образованная в 1978 году в Цюрихе. В те времена в состав группы входили композитор-аранжировщик Бoрис Бланк (Boris Blank, родился 15 января 1952) (клавишные, сэмплинг, ресэмплинг, перкуссия, бэк-вокал,) и Карлос Перон, покинувший группу в 1983. В 1979 в группу в качестве вокалиста и автора песен был приглашен Дитер (   Читать дальше...   )1983 You Gotta Say Yes To Another Excess (LP, DSD, Germany, Vertigo - 812 166-1Q)
-1985 Stella (LP, DSD, Germany, Vertigo # 822 820-1Q)
-1987 One Second (LP, DSD, Germany, Mercury # 830 956-1)
-1988 Flag (LP, DSD, USA, Mercury # 836 426-1)Жанр: Electronic, synthpop, new waveПродолжительность: 08:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CA75CFE6613C2FE66937F4BEDCA25C0B9364FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809185   (9951) от 29.07.2025
-
-VA - Evangelion Finally (2020) [FLAC 2.0|48/24|image +.cue|MC-Rip] <J-pop, Synth-pop, Kayokyoku>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-A1 高橋洋子 - 残酷な天使のテーゼ / Yoko Takahashi - Cruel Angel's Thesis
-A2 高橋洋子 - 無限抱擁 / Yoko Takahashi - Infinite Embrace
-A3 高橋洋子 - 魂のルフラン / Yoko Takahashi (   Читать дальше...   )Жанр: J-pop, Synth-pop, KayokyokuПродолжительность: 01:19:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2ACC00C21EADC6F64FB29EF100222FE5DE2E929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809415   (9859) от 30.07.2025
-
-Chris Rea - Collection (1979-2017) [DSD 128|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Крис Ри - Кристофер Энтон Риа (Christopher Anton Rea). Вершины своего успеха певец добился в конце 1980-х — начале 1990-х годов, с выпуском своего десятого студийного альбома «The Road to Hell» (1989), который многие считают одним из его лучших, а также с последующим альбомом «Auberge» (1991). Свой первый контракт в качестве сольного исполнителя Крис Ри подписал (   Читать дальше...   )1979 - Deltics(UK, MAGL 5028 LP)
-1980 - Tennis (UK, MAGL 5032 LP)
-1981 - Chris Rea (Germany, 713016 LP)
-1983 - Water Sign (Germany, 823 077-1 LP)Жанр: RockПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50009BAFDBF26E5F2C1116A906A253F5F502315C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809512   (9777) от 31.07.2025
-
-Chilly - Collection (1978-1982) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chilly - западногерманская диско-группа, получившая наибольшую популярность в конце 70-х — начале 80-х годов. В 1978 году молодой 32-летний продюсер Бернт Мёрле (Bernt Mohrle) при участии аранжировщиков Кристиана Колоновица и Штэфана Клинкхаммера, известных по работе с такими звёздами как Boney M., Eruption, Supermax, Silver Convention и другими, приступил к созданию (   Читать дальше...   )1978 - For Your Love (Germany, Polydor - 2417 122)
-1979 - Come To L.A. (Germany, Polydor - 2417 124)
-1980 - Showbiz (Germany, Polydor - 2417 137)
-1982 - Secret Lies (Germany, Polydor - 2372 086)Жанр: Disco, soul, funkПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2CE49C8A6B9A610D19041CA169C0EC62E0F40E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809657   (9767) от 31.07.2025
-
-Boney M. - Collection (1976-1984) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Boney M. (Бони Эм.) — диско-группа, созданная в 1975 году в ФРГ. Франк Фариан, экспериментируя с новым стилем диско, записывает необычную композицию Baby Do You Wanna Bump? в конце 1974 и публикует её под псевдонимом Boney M., по имени героя популярного тогда австралийского детективного сериала. В композиции он использовал исключительно свой голос, записав в многоканальном (   Читать дальше...   )1976 - Take The Heat Off Me (Hansa International - 27 573 OT, Germany)
-1977 - Love For Sale (Carrere - 67.193, France)
-1978 - Nightflight To Venus (Hansa International - 26 026 OT, Germany)
-1979 - Oceans Of Fantasy (Hansa International - 200 888-320 , Germany)Жанр: Disco, soul, funkПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80E497E45FC1067CF3A187122EB9B623ED2B2C0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810108   (9547) от 02.08.2025
-
-Supermax - Collection (1977-1990) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Disco, funk, reggae, electronic, rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9547.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Supermax» — музыкальный проект австрийского композитора Иогана Курта Хауэнштайна (1949—2011), созданный в сотрудничестве с продюсером Петером Хауке на студии «Europasounds Studio» (Франкфурт-на-Майне, ФРГ) в 1976 году. Пик популярности проекта пришелся на период 1977-83 гг., период активного студийного развития на 1977-93 гг. Недостаточный объём достоверной информации (   Читать дальше...   )1977 - Don't Stop The Music (Germany, Atlantic – ATL 50 325)
-1977 - World Of Today (Germany, Atlantic – ATL 50 423)
-1979 - Fly With Me (Germany, Elektra – ELK 52 128)
-1980 - Types Of Skin (Germany, Elektra – ELK 52 253)Жанр: Disco, funk, reggae, electronic, rockПродолжительность: 00:41:29
-Источник/релизер:
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58DF6D39AE8A45904FA395B0ABE78E0191C99F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

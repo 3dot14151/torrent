@@ -1,3 +1,177 @@
+###  Публикация: 1699225   (117928) от 12.02.2024
+
+Riot - Fire Down Under (1981) Reissue, 2023, Rhino[FLAC 24/192|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swords and Tequila (3:19)
+02. Fire Down Under (2:32)
+03. Feel the Same (4:53)
+04. Outlaw (4:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AB703F9E8D2E7449EA1DF6EFB1BFF0B5714250E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699231   (117922) от 12.02.2024
+
+Gregory Aigersson - White Morning & Valentine Coffee (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cupid's Cappuccino (4:15)
+02. Snowy Sunrise (4:09)
+03. Double Rainbow (3:38)
+04. Heartwarming Espresso (4:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EDD4A133922C2F25053D68EA477F4CEB5A6AD3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699141   (117920) от 12.02.2024
+
+Crush++ - Power Pleasure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Pop Punk, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Machine [00:02:09]
+02. Like A Fever Dream [00:03:54]
+03. No Lids, No Love [00:02:56]
+04. Dread It (Until I Can't Remember It) [00:03:56](   Читать дальше...   )Жанр: Post-Hardcore, Pop Punk, ElectronicПродолжительность: 00:44:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC5F7867D6F63C492E503DC689300894758C7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699232   (117918) от 12.02.2024
+
+Iolanda Lomuscio - Jazzscape Harmony (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulful Riverside Reflections (2:37)
+02. Chill Beats (2:15)
+03. Island Dreamin' Jazz (2:32)
+04. Cosmic Journey (2:51)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:02:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6BC6F1076EAB4A5A26CFEC283BBA89A3598A119
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699445   (117789) от 13.02.2024
+
+Die Sterne - Grandezza (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Was hat dich bloss so ruiniert (Single Mix) (00:03:29)
+02 - Wichtig (00:04:05)
+03 - Fickt das System (00:03:54)
+04 - Universal Tellerwascher (Radio Edit) (00:02:59)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6DA81201D15AFF4760AB2762B112B0D4F1B79A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1699566   (117780) от 13.02.2024
+
+Seth James - Lessons (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Glamour Of Life [00:00:13]
+02. Honky Tonkin’ (I Guess I Done Me Some) [00:03:20]
+03. Real Good Itch [00:02:34]
+04. Who's Foolin' Who [00:02:51](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C17643CD1F8B0733BC20577D0A6442E50A5966A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699573   (117776) от 13.02.2024
 
 Lyna Mahyem - Mon âme (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soul/Funk/R&B R&B>
@@ -568,180 +742,6 @@ Boris Blank (Yello) - Resonance (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B54C07245E7F81D30F7408F21EB282526CB7B19F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700250   (117224) от 16.02.2024
-
-Pain of Salvation - Road Salt Two (2011)[FLAC|24/96|tracks|Vinyl-Rip]  <Progressive Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road Salt Theme (00:43)
-02. Softly She Cries (04:16)
-03. Conditioned (04:17)
-04. Healing Now (04:30)(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25316204F1BB05EB2891AF2A1F5C435EE38D063
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700149   (117218) от 16.02.2024
-
-Pain of Salvation - Road Salt One (2010) [FLAC|24/96|tracks|Vinyl-Rip] <Progressive Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117218.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 No Way
-A2 She Likes To Hide
-A3 Sisters
-A4 Of Dust(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53375725C461C26074992730EDB370C5D40C3126
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700256   (117217) от 16.02.2024
-
-Pain of Salvation - Panther (2020) [FLAC|24/192|tracks|Vinyl-Rip] <Progressive Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117217.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Accelerator
-A2 Unfuture
-A3 Restless Boy
-B1 Wait(   Читать дальше...   )Жанр: Progressive Rock, MetalПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF8D8FA6344948FC164B95169AB8CB38BB42C3BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700424   (117215) от 16.02.2024
-
-Love Romance Music Zone, Music to Relax in Free Time - Sexy Massage for Valentine’s Day 2024 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe (Increase Intimacy) (5:36)
-02. Desire (Attractive Pose) (5:46)
-03. Effect of Deep Love (5:30)
-04. Erotic Pleasure (Massage Time) (5:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:29:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE5D4E87429B128C04E7C94F3B904CB5891E415
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700266   (117204) от 16.02.2024
-
-Steve Hackett - The Circus and the Nightwhale (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Rock, Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - People of the Smoke [4:51]
-02 - These Passing Clouds [1:36]
-03 - Taking You Down [4:18]
-04 - Found and Lost [1:50](   Читать дальше...   )Жанр: Pop Rock, Rock, Progressive RockПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0585EE37BE0B3A2F6A4CF1363F2BD47F8DCC1BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700292   (117196) от 16.02.2024
-
-AC/DC - AC/DC: Live in Maryland, 1979 (2024) (Live) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Live Wire (Live) [3:43]
-02 - Shot Down In Flames (Live) [6:36]
-03 - Hell Ain't A Bad Place To Be (Live) [4:28]
-04 - Sin City (Live) [5:14](   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A1E2F0E78453AECAB9336CCEAFBB8275B32BAD
 ```
 
 https://mybot314.ru/tekegram_catalog/

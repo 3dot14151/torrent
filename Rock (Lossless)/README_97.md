@@ -1,3 +1,352 @@
+###  Публикация: 1063529   (434489) от 16.10.2016
+
+Kiss - Hotter Than Hell (1974) + Unmasked (1980) (1999) [WavPack|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hotter Than Hell
+01. Got To Choose (3:56)
+ 02. Parasite (3:04)
+ 03. Goin' Blind (3:38)(   Читать дальше...   )Жанр: RockПродолжительность: 01:13:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77817348537C33A1DF6390FCDE615239581BFB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 375819   (434298) от 16.10.2016
+
+Bigelf - 5 альбомов (1996 - 2014) [FLAC|image+.cue|tracks+.cue|Lossless]<Psychedelic, Progressive, Hard rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434298.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bigelf - одна из самых харизматичных групп хэви-прога. Когда разговор заходит о Bigelf, в их плюсы сперва заносят удачно смешанный коктейль жанров. Описывая его на примере мэтров, можно заметить, что важное место здесь отведено тяжелым, забойным риффам и мистической стилистике в духе Black Sabbath. Конечно, огромное влияние также оказали мэтры прога, включая King (   Читать дальше...   )Список альбомов:
+1996  Closer To Doom
+2000  Money Machine
+2003  Hex(   Читать дальше...   )Жанр: Psychedelic, Progressive, Hard rockПродолжительность: 05:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99F08C7C12DE381E2C66D51A2D97F26BDB92660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571129   (434036) от 21.08.2022
+
+Magic Dance - Remnants (2020) [FLAC|Lossless|image + .cue] <Melodic  Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh No
+02. Long And Lost Lonely Nights
+03. Zombie Breath Surprise
+04. Cut Me Deep(   Читать дальше...   )Жанр: Melodic  RockПродолжительность: 00:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D2384D118ECAC7745EC4C50E09D31D0E72488D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571243   (434032) от 21.08.2022
+
+Bill Champlin - Livin' For Love (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_434032.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reason To Believe (4:20)
+02. Especially Me (4:40)
+03. Livin’ For Love (4:51)
+04. Show Me (3:33)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 01:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:423F745E4C8A9B96658A3268A5DE9B263D3E90F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571120   (433945) от 21.08.2022
+
+Generation Radio - Generation Radio (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Are You Calling Me Now? (Vocals: Jason Scheff)
+02. Angels (Vocals: Jay DeMarcus, Jason Scheff & Deen Castronovo)
+03. All Night To Get There (Vocals: Jay DeMarcus)
+04. I Hope You Find It (Vocals: Jason Scheff)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:45:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE84A477F6F4E54B1E54C8D6A10CA37FD1E18AFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571139   (433841) от 21.08.2022
+
+Deep Purple - Bombay Calling (Live in 95) (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe I'm a Leo (Live in 95)
+02. Black Night (Live in 95)
+03. The Battle Rages On (Live in 95)
+04. Woman from Tokyo (Live in 95)(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A29DADFCC8D2507A2875D6E0FF00FCD901443F96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945377   (433813) от 10.10.2015
+
+Bad Company - Rock 'N' Roll Fantasy: The Very Best Of Bad Company (2015) [FLAC|tracks+.cue]<Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Get Enough (Single Edit)
+02. Bad Company
+03. Movin' On
+04. Ready For Love(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:026A5CAD8D976435E6B89A055C8EF55643BD2B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410646   (433733) от 22.09.2020
+
+Smokie - Gold (2020) 3xCD [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433733.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Pass It Around (3:08)
+02. Couldn't Live (2:26)
+03. Goin' Tomorrow (3:44)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 03:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C0A0C7EBE9FB5EB3A27A556606CAAF4D42A3761
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602262   (433102) от 10.10.2015
+
+Antimatter - 6 альбомов + компиляция (2001 - 2015) Discography [FLAC, APE |Lossless]<Psychedelic Atmospheric Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Eyed Man
+02. Killer
+03. Comrades
+04. Stillborn Empires(   Читать дальше...   )Жанр: Psychedelic Atmospheric Rock |Продолжительность: 08:44:27
+Есть группы, музыка которых способна удивительным образом отражать состояние души. Она чарует и умиротворяет, восхищает и заставляет мечтать, она – союзник в грусти и путешествии по собственному внутреннему миру. Музыка Antimatter настолько многогранна, что порой кажется непостижимой до конца.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:834EA70A42C389829A0E77B3A240C61F5908CBF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063784   (432688) от 17.10.2016
+
+Gary Hoey - Monster Surf (2005) [FLAC|Lossless|tracks + .cue] <Surf, Instrumental>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pipeline   (03:11)
+02. Hawaii Five-O   (02:31)
+03. California Dreamin'   (02:57)
+04. Fun, Fun, Fun   (03:02)(   Читать дальше...   )Жанр: Surf, InstrumentalПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA979B712079FC359DDBC74C250EC65C20BEDF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063667   (432521) от 17.10.2016
+
+Colin James - Blue Highways (2016) [FLAC|Lossless|image + .cue] <Blues Rock, Blues, Americana>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432521.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boogie Funk - 3:12
+02. Watch Out - 4:37
+03. Big Road Blues - 3:02
+04. Bad Bad Whiskey - 3:58(   Читать дальше...   )Жанр: Blues Rock, Blues, AmericanaПродолжительность: 00:44:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D16275C2E154D7BD96B6112FF03E23870B33A72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1063644   (432143) от 17.10.2016
+
+Phil Collins - The Singles (2016) Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432143.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Air Tonight (1981) - 5:36
+02. I Missed Again (1981) - 3:44
+03. If Leaving Me Is Easy (1981) - 4:56
+04. Thru' These Walls (1982) - 5:05(   Читать дальше...   )Жанр: Rock, Pop Rock, Classic Rock, Progressive Rock, BalladПродолжительность: 03:21:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0338418C4B86316E356AC532B798D3175FC4DD23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410670   (431984) от 23.09.2020
 
 En Minor - When The Cold Truth Has Worn Its Miserable Welcome Out (2020) [FLAC|Lossless|image + .cue] <Southern Rock>
@@ -396,349 +745,6 @@ Jethro Tull - Original Masters (1985) remaster, 1998 DCC Compact Classics [WavPa
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35FC37AEE8CE7C6BD846EEED6534437C479B6FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410809   (425722) от 26.09.2020
-
-The Kings of Frog Island - 3 CD: The Kings of Frog Island IV-VI (2013-2020) [FLAC|Lossless|WEB-DL|tracks] <Stoner Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monotron [00:01:36]
-02. Ever and Forever [00:04:02]
-03. Bad Trip [00:06:11]
-04. Toxic Heart [00:04:55](   Читать дальше...   )Жанр: Stoner Rock, Psychedelic RockПродолжительность: 3 CD, 02:12:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E49C88796F5B7A52C5535DC490BF6DFBA50731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411634   (425468) от 26.09.2020
-
-Matthew Lee - PianoMan (2018) [FLAC|Lossless|image + .cue] <Pop rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425468.jpg" />
-</div>
-
-
-###  Подробнее
-
-Matthew Lee, которого пресса называет «выдающимся исполнителем», - пианист, певец и любитель рок-н-ролла. Он самоучка у великих мастеров жанра и обладает безграничным талантом; а также считается «феноменом 88 клавиш».
-Matthew Lee родился в Пезаро (Италия) 6 января 1982 года. В 11 лет он начал посещать консерваторию в Пезаро. Он сразу же изучил технику игры на фортепиано, (   Читать дальше...   )01. Rock On Classic (03:48)
-02. Splish Splash (03:22)
-03. Just The Way You Are (02:58)
-04. Hey Ho (03:48)(   Читать дальше...   )Жанр: Pop rockПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FF4423BDBE0158AC39D610EA7DC3911C830B2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064874   (424220) от 21.10.2016
-
-Feeder - The Singles (2006) Remastered [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_424220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Back Around (3:13)
-02. Buck Rogers (3:12)
-03. Shatter (2:58)
-04. Just The Way I'm Feeling (4:19)(   Читать дальше...   )Жанр: RockПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F201D8D0F035D5C6A78C54023803717FD8F18312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 247104   (423995) от 18.10.2010
-
-Mike & The Mechanics - Hits (1996) [FLAC|Lossless]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_423995.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166595   (423924) от 17.09.2017
-
-Chris Norman - Don't Knock The Rock (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Knock The Rock
-02. Crawling Up The Wall
-03. Sun Is Rising
-04. You Are The Light(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED4DDFE53B20CCA4B51A63432F380F2825A2FF2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064938   (423890) от 21.10.2016
-
-The Guess Who - The Best Of The Guess Who (1971) remaster, 2014, Audio Fidelity [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. These Eyes (3:45)
-02. Laughing (2:44)
-03. Undun (3:28)
-04. No Time (3:50)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1A01EC914CDEB63C2779550C2F9FAA588EAB76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411833   (423331) от 27.09.2020
-
-Griot - Elisabeth (2020) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chapter I, Pt.I: A Weak Foundation
-02. Chapter I, Pt.II: Lights Out
-03. Chapter II, Pt.I: Atonement
-04. Chapter II, Pt.II: Retrospection(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:03:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BE582D7FA8393FE826F7DF5898A664881468F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064721   (423178) от 21.10.2016
-
-Phil Collins - The Singles (2016) 3CD Deluxe Edition [FLAC|Lossless|tracks + .cue] <Soft Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом Singles является отражением всей сольной карьеры Коллинза: от невероятно успешного дебютного хита In The Air Tonight 1981 года до заглавного трека с его последнего студийного альбома Going Back, выпущенного в 2010 году.Жанр: Soft RockПродолжительность: 03:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C72C712CC1F995A4B1A4CCA4C66999498CF7F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1411974   (423066) от 27.09.2020
-
-Bon Jovi - These Days (1995) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_423066.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey God
-02. Something For The Pain
-03. This Ain't A Love Song
-04. These Days(   Читать дальше...   )Жанр: RockПродолжительность: 01:03:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497C5D35654C4F04EBBF4324D01A4CDE8BA0BDD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250890   (422460) от 29.09.2018
-
-Riverside - Wasteland (2018) Special Edition [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Day After
-02. Acid Rain
-03. Vale Of Tears
-04. Guardian Angel(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:55:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D1F4848B54FB695A3378D65D43F64FB928F58C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1250565   (422375) от 29.09.2018
-
-Rod Stewart - Blood Red Roses (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look In Her Eyes (4:12)
- 02. Hole In My Heart (3:27)
- 03. Farewell (4:16)
- 04. Didn't I (feat. Bridget Cady) (4:01)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 01:02:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:492155FFC9912222A15583E847C1D36EB616817E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065208   (421480) от 22.10.2016
-
-Marillion - F E A R (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_421480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Dorado (i) Long-Shadowed Sun
-02. El Dorado (ii) The Gold
-03. El Dorado (iii) Demolished Lives
-04. El Dorado (iv) F E A R(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4242AE0EF8C55CE3944D42838C75F548F733004B
 ```
 
 https://mybot314.ru/tekegram_catalog/

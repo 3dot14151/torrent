@@ -1,3 +1,61 @@
+###  Публикация: 1284829   (726532) от 23.02.2019
+
+VA - Total Trance: Selections February (2019) [MP3|320 Kbps] <Trance, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726532.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Physical Phase - Maecenas
+002. Main Engine - Through Thorns
+003. Adip Kiyoi - The Agent (Extended Mix)
+004. Dj Dmitrii - Dance City(   Читать дальше...   )Жанр: Trance, ElectronicПродолжительность: 08:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DCCA387B68DE75A7EC9980956E18725DE2862F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284825   (726410) от 23.02.2019
+
+VA - Melodic & Deep: Vocal House Mastermix (2019) [MP3|320 Kbps] <Vocal, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726410.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A1Bert - Full Control
+002. Bearson - Its Not This
+003. Bellaire - Respect
+004. Anymood - In Your Eyes(   Читать дальше...   )Жанр: Vocal, Deep HouseПродолжительность: 08:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7358231684DF8FB26D768D091BA2727169F5C857
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 326333   (726166) от 21.04.2011
 
 VA - Дискотека Klub from AGR (2011) [MP3|320 kbps]<Pop, Club>
@@ -698,64 +756,6 @@ VA - Early Morning Raga: Chill House Music (2019) [MP3|320 Kbps] <Chill, Deep Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12C627DF869224756DF089874FD195BB30C7EF62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128970   (724511) от 27.04.2017
-
-VA - Into The Night: Club Party (2017) [MP3|192-320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724511.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 3Logy - The Banjo (Dj Desving Refresh) 4:52
-002. Cygnus X - Superstring (Matson Remix 2017) 4:28
-003. Groove Gangsters - Funky Beat (Red Line Remix) 4:28
-004. Madd Dave - Alpha (Original Mix) 3:38(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3A5A10EF38B547BFD4FE9A835CF7BC4274A531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023527   (724409) от 05.06.2016
-
-VA - Traxsource Top 100 April - May (2016) [MP3|320 кб/с] <Club, House, Minimal, Soulful, Indie Dance, Nu Disco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724409.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kevin McKay - What U Want (J Paul Getto Classic Mix) 07:13
-002. Alaia & Gallo - Who Is He? feat. Kevin Haden (Original Mix) 05:52
-003. Luca Debonaire - Dance! (Club Mix) 05:53
-004. Tonja Dantzler - In And Out Of My Life (Dario D'Attis Remix) 08:01(   Читать дальше...   )Жанр: Club, House, Minimal, Soulful, Indie Dance, Nu DiscoПродолжительность: 19:50:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB32377DCE50CF253A3A2773B063EE9F36F25B39
 ```
 
 https://mybot314.ru/tekegram_catalog/

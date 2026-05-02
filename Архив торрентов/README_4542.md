@@ -1,3 +1,244 @@
+###  Публикация: 474886   (97943) от 29.03.2012
+
+[Wallpapers] Full HD Desktop Wallpapers Pack
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97943.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Full HD Desktop Wallpapers Pack 
+Название:  Full HD Desktop Wallpapers Pack 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6263B5F2D409A34D2058251FD8C730FC726D39E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475269   (97940) от 29.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 32
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97940.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 32 
+Название:  Desktop Wallpapers Pack 32 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D6C806C06216DA1BB54F12400EE28B7095549F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474765   (97936) от 29.03.2012
+
+[Wallpapers] Macro Desktop Wallpapers Pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97936.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Macro Desktop Wallpapers Pack 2 
+Название:  Macro Desktop Wallpapers Pack 2 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1919х1150 - 4288х2848
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:288A78CFD9423BF4FE22A4B83D8D78934048A90B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474786   (97934) от 29.03.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 14
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97934.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers Pack 14 
+Название:  Girls Desktop Wallpapers Pack 14 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92AB198A1930FBC25E38229F509AA680920131DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474996   (97929) от 29.03.2012
+
+РарогЪ - Сыны Сокола (2012) [MP3|320 кб/с]<Pagan / Folk Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сын сокола
+ 02. Невидаль
+ 03. Сердечная
+ 04. Пятый снег
+ 05. Огненный меч
+ 06. Рогнеда
+ 07. После победы
+ 08. Перунова рень
+ 09. Вещий сокол
+ 10. Сердце воеводы(   Читать дальше...   )2012Жанр: Pagan / Folk MetalПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:748C6EC2281B4A1A880406278F6601D63C462AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475266   (97925) от 29.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 31
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97925.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 31 
+Название:  Desktop Wallpapers Pack 31 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55CAE106BD7E318F061A3F9D0B5EB7CCD9903752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475227   (97924) от 29.03.2012
+
+[Wallpapers] Best HD Wallpapers Pack (30.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EF0ADBDD640CA08C5D647556ECFF792EB7A7186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474799   (97921) от 29.03.2012
+
+[Wallpapers] Nature HD Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97921.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature HD Wallpapers Pack 4 
+Название:  Nature HD Wallpapers Pack 4 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 4288х2848
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C21FC1BCBD621712645A6DAB6DB3B1476ECD9BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471986   (97920) от 29.03.2012
 
 Game Over - NESperado (2006) [MP3|256 кб/с]<Experimental/Nintendo Metal>
@@ -495,233 +736,6 @@ VA - Trance Maniacs Party Melody Of Heartbeat #79 (26.03.2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1371A36BF0F5581AB24FAB29679CE7D11036E586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474285   (97873) от 28.03.2012
-
-DJ Kocmoc - Electro Russian Dance vol.4 (24.03.2012) [MP3|320 кб/с]<Electro House, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97873.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Anna FOX & Extasy Project - Мне все равно (DJ Melnikoff & DJ Andy Max Remix)
-2. Cloud Dj' s Project & Альмароин - Небо Над Нами (Extended Mix)
- 3. Лерика - Небо И Земля (DJ Vengerov Remix)
- 4. DJ Mixer Euro feat. Nika Belaya - Зажигаем (Ser Twister Remix)
-5. Клипса - Шаг (Dj Kutsek Club Remix)
- 6. DJ Sandro Escobar feat. Katrin Queen vs Nyusha - Vyshe (DJ Solovey Remix)
-7. Biffguyz - Bum bum bum (Big Four & DJ Demonhouse Remix)
-8. Тяга - Он уходил (Ser Twister Remix)24.03.2012Жанр: Electro House, HouseПродолжительность: 03:02:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A834CA45BB0B081BC242ED7E9E33504595C747F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474669   (97870) от 28.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (29.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DB600511D309A954C812150727721573447969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474672   (97868) от 28.03.2012
-
-[Wallpapers] Films Wallpapers (29.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AECFF332AA944BC6F18E3A70955F1F5E78B3A79F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474668   (97867) от 28.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (29.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97867.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2E7781308A186A1F6BE39BC46F6B9F18C96765E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473463   (97865) от 28.03.2012
-
-VA - House Vip (20.03.2012) [MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97865.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adrian Lux Feat. Lune - Fire (R3hab's Bigroom Remix) (5:45)
- 2. Alex Hilton vs. Mirko Delago - Dare me (Slin Project & Rene de la Mone Remix) (5:26)
- 3. Ben DJ - Rock It (Total Sound & D-Seven Remix) (6:05)
- 4. DeadWave - Dark Time (Original Mix) (5:54)
- 5. Far East Movement feat. Rye Rye - Jello (Michael Woods Remix) (6:45)
- 6. Feed Me - Trichitillomania (Original Mix) (6:45)
- 7. Freq Maverick - Batteries Not Included (Dubble JD Remix) (5:44)
- 8. Lunde Bros - Tell Me (Original Mix) (5:17)20.03.2012Жанр: Electro HouseПродолжительность: 00:47:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D28EC0654B21004658CC60AC9562B0EE3CB8264E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474694   (97864) от 28.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 28
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97864.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 28 
-Название:  Desktop Wallpapers Pack 28 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C4689EC39BA600CA8B0222B3A0810B017AA164F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474663   (97862) от 28.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (28.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97862.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCA5105C8AFE94B2585391B1056AFAC3E46114A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474768   (97861) от 28.03.2012
-
-Журнал | Вкус №2 [2012 март-апрель] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97861.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "ВКУС" - это специализированное издание  посвященное гастрономии, напиткам и табакам. Мы являемся экспертами в области ресторации и имеем огромный опыт проведения алкогольных, сигарных и гастрономических дегустаций и презентаций.
- Аудиторию журнала "ВКУС" составляют гурманы и любители. Наших читателей интересуют мировые гастрономические тенденции, новые вина, экзотические продукты и кулинарные путешествия. На страницах журнала они узнают, где продается масала, с чем сочетать хамон, как разделать омара и что такое кивано.2012 март-апрельФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BC1ECC505D762F5013EFD4451A9CC312F7E6B5
 ```
 
 https://mybot314.ru/tekegram_catalog/

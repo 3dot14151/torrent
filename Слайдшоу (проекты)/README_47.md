@@ -1,3 +1,29 @@
+###  Публикация: 1226611   (654544) от 21.05.2018
+
+Проекты - Motion Array - History Slideshow - 74580 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654544.jpg" />
+</div>
+
+
+###  Подробнее
+
+History Slideshow - шаблон AE с визуальными эффектами, текстовой анимацией и переходами. Подходит для создания слайд-шоу, презентаций, видео событий.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F5A15706E6C93378117F9F03D288DEE7D718CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226357   (654528) от 21.05.2018
 
 Проекты - Motion Array - History Slideshow - 78320 [AEP]
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B925B764014E42AACEB2D66BEC4025F810993AF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031863   (649221) от 05.07.2016
-
-Проекты - VideoHive - Summer Fashion [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649221.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкий, динамичный проект для Ваших фото-видео материалов, сделанных во время летнего отпуска.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83BC48CF13C4FA11173C4BB4FDB965ABFD54932B
 ```
 
 https://mybot314.ru/tekegram_catalog/

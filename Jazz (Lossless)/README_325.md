@@ -1,3 +1,61 @@
+###  Публикация: 1726011   (108859) от 26.05.2024
+
+VA - Smooth Jazz Italian Songs Vol. 3 (2024) Canzoni Italiane In Versione Smooth Jazz [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz, Chill Out>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108859.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walter Ricci, Sylvain Luc - Caruso (3:45)
+02. Lo Greco Bros, Trio A.G.E. - Io Vivo Come Te (4:22)
+03. Papik, Michele Ranieri - Due Destini (4:44)
+04. Felice Del Gaudio, Giorgia Faraone - Vagabondo (4:26)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal Jazz, Chill OutПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA228DBB7706F10EF842ED41C256F73269A21F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726135   (108820) от 27.05.2024
+
+Christian De Mesones - You Only Live Twice (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Only Live Twice (Album Version) (4:14)
+02. Sexy Beast (Album Version) (4:03)
+03. Throb! (Bass Godz Remix) (4:58)
+04. Arrival (New York Mix) (3:01)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FD7FDF52975D025800AB3F1E356605B4CF7F24E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726074   (108818) от 27.05.2024
 
 Tommy Turrentine - Tommy Turrentine (1960) 1993, Bainbridge Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -687,64 +745,6 @@ The Birdland Big Band - Live (2019) Birdland Records [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0811E679AB9AB01ED8E0DEF7F352C7A77691BB73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726558   (108672) от 29.05.2024
-
-Horace Parlan - In Copenhagen (1999) 2008, Storyville [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parker's Mood [5:30]
-02. Broken Promises [4:27]
-03. Two Sleepy People [7:00]
-04. I'm Getting Sentimental over You [5:14](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:15:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB8DF37EA647CF8EA44B507502D8BC309905B43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726806   (108631) от 31.05.2024
-
-The Birdland Big Band - Storybook: The Music Of Mark Miller (2023) Birdland Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Storybook [6:45]
-02. Water Lily [6:56]
-03. Tenderly [4:16]
-04. Chorale and Alleluia [7:38](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7DF47949366AB22949823BDB4C0CE613335F11
 ```
 
 https://mybot314.ru/tekegram_catalog/

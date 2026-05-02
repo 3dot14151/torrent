@@ -1,3 +1,148 @@
+###  Публикация: 1197594   (812137) от 09.01.2018
+
+VA - The Best Of Silent Shore Records 2017 (2018) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AirLab7 & Allen Belg – Kyla (07:06)
+02. Space Raven & Madwave – What We Used To Be (SSR300 Anthem) (07:40)
+03. Nago – Me & You (08:03)
+04. Mat Coste – Flight 527 (07:04)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:21:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFD9F2BBCB166EC4FB5C2CEAAB098388D1A7DE80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197685   (812136) от 09.01.2018
+
+VA - Dark Sessions 043 (Mixed by Chris Hampshire) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  G8  -  Babayaga (Original Mix)  7:00
+02.  Kyfu  -  Vitamins (Original Mix)  7:07
+03.  John Askew  -  Battery Acid (Zach Zlov Haunted House Remix)  6:35
+04.  Oberon  -  Dangrous Journey (Oberon's Underground Mix)  7:26(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32FCD6D19520DB29DD4ED4F25F6F3685F4092FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197711   (812132) от 09.01.2018
+
+VA - Best Of Trancer 2017 (Mixed by Nick Turner) (2018) [MP3|320 Kbps] <Trance, Orchestral Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  JosephAli  -  New World (Etasonic Remix)  8:30
+02.  AirLab7 & Andrew Wu  -  Be Yourself (Original Mix)  7:26
+03.  Dreamlife  -  Walk Alone (Original Mix)  7:11
+04.  Alternate High  -  Invisible Walls (Original Mix)  7:50(   Читать дальше...   )Жанр: Trance, Orchestral TranceПродолжительность: 01:49:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79530C1A4FA8462BC3A5CC439C624232104A7CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197927   (812131) от 09.01.2018
+
+Luke Terry - Supersonic (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luke Terry - Prelude (Original Mix)
+02. Luke Terry - Minerva (Original Mix)
+03. Luke Terry - Eternal (Original Mix)
+04. Luke Terry - Skylab (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B07ECBF45CCB940836925D6492FDF2AD148E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197688   (812130) от 09.01.2018
+
+VA - The Best Of Levitated Music 2017 (2018) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sergey Lagutin  -  Lazure (Original Mix)  6:23
+02.  Dachs  -  Flower Master (Original Mix)  6:10
+03.  Mart Sine  -  Atlantis (Original Mix)  6:05
+04.  Braulio Stefield  -  Chain Of Memories (Original Mix)  7:39(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:23:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:198C6BABE9C8C97F22E3E3A93EE179BE2EA922C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1504575   (812105) от 23.10.2021
 
 VA - Trance Classics Collection (2021) [MP3|320 Kbps] <Trance>
@@ -598,151 +743,6 @@ Tioan - Cinemagic (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF9B540D351B37643A725BC7ABF0065B2BBDDDEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199967   (797532) от 18.01.2018
-
-VA - We Are Trance - January (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797532.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DIM3NSION – Once a Day
-02. Ralphie B. – Homestead
-03. Mike Saint-Jules – Luna
-04. Solarstone – A State of Mind(   Читать дальше...   )Жанр: TranceПродолжительность: 01:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE89823B49E0352029A96AF25E14CA75136B895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200066   (797007) от 19.01.2018
-
-VA - AVA Seasons Selected By Somna - Winter (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Moor, Somna & Diana Leah - There Is Light
-02. Holbrook & SkyKeeper - Time Of The Long Shadows (extended mix)
-03. Somna & Melissa Loretta - Brave
-04. Fahjah & Michele C - I Choose You(   Читать дальше...   )Жанр: TranceПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FF26A45173275BE0EA59CFEF109B2D3F865F6F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200097   (797003) от 19.01.2018
-
-VA - Tech-Trance Essentials Vol. 1 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Talla 2XLC - Force of Nature (Original Mix)
-02. DJ T.H. - Haunting (Darren Porter Remix)
-03. Paul Webster - Hold On (Quest 4 Trance Beach Anthem 2014)
-04. Paul Denton - The Middle (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:28:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0517EA8B1EEEB6A4678212B290CF0B839FAA03A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200047   (796998) от 19.01.2018
-
-VA - Amsterdam Trance Sessions Vol.14 (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Psycho Motion  -  Supernova (Original Mix)  8:06
-02.  Naoufal Lamrani & First Sight  -  Misery (Radio Edit)  3:14
-03.  Emme  -  Hydra (Original Mix)  4:08
-04.  BarTar  -  East Direction (Original Mix)  6:03(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E975FE7A873E12DCEE4EA5804B65AF036076673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200085   (796993) от 19.01.2018
-
-VA - Markus Schulz - Global DJ Broadcast - Top 20 January (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz Presents Dakota - The Spirit Of The Warrior (Transmission 2017 Theme - extended mix)
-02. Dennis Sheperd - Copenhagen (extended mix)
-03. Ayla - Ayla (Ben Nicky & Luke Bond remix)
-04. Gabriel & Dresden - White Walls (extended mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F9C4DECEAA850CBE5C2F7C707AE16A827A01402
 ```
 
 https://mybot314.ru/tekegram_catalog/

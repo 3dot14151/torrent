@@ -1,3 +1,178 @@
+###  Публикация: 1808739   (10007) от 29.07.2025
+
+Yello - 12 студийных альбомов (1983-2020) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Electronic, synthpop, new wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10007.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yello (Йеллo) — швейцарская электронная группа, образованная в 1978 году в Цюрихе. В те времена в состав группы входили композитор-аранжировщик Бoрис Бланк (Boris Blank, родился 15 января 1952) (клавишные, сэмплинг, ресэмплинг, перкуссия, бэк-вокал,) и Карлос Перон, покинувший группу в 1983. В 1979 в группу в качестве вокалиста и автора песен был приглашен Дитер (   Читать дальше...   )1983 You Gotta Say Yes To Another Excess (LP, DSD, Germany, Vertigo - 812 166-1Q)
+1985 Stella (LP, DSD, Germany, Vertigo # 822 820-1Q)
+1987 One Second (LP, DSD, Germany, Mercury # 830 956-1)
+1988 Flag (LP, DSD, USA, Mercury # 836 426-1)Жанр: Electronic, synthpop, new waveПродолжительность: 08:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18CA75CFE6613C2FE66937F4BEDCA25C0B9364FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809185   (9951) от 29.07.2025
+
+VA - Evangelion Finally (2020) [FLAC 2.0|48/24|image +.cue|MC-Rip] <J-pop, Synth-pop, Kayokyoku>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9951.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 高橋洋子 - 残酷な天使のテーゼ / Yoko Takahashi - Cruel Angel's Thesis
+A2 高橋洋子 - 無限抱擁 / Yoko Takahashi - Infinite Embrace
+A3 高橋洋子 - 魂のルフラン / Yoko Takahashi (   Читать дальше...   )Жанр: J-pop, Synth-pop, KayokyokuПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2ACC00C21EADC6F64FB29EF100222FE5DE2E929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809415   (9859) от 30.07.2025
+
+Chris Rea - Collection (1979-2017) [DSD 128|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9859.jpg" />
+</div>
+
+
+###  Подробнее
+
+Крис Ри - Кристофер Энтон Риа (Christopher Anton Rea). Вершины своего успеха певец добился в конце 1980-х — начале 1990-х годов, с выпуском своего десятого студийного альбома «The Road to Hell» (1989), который многие считают одним из его лучших, а также с последующим альбомом «Auberge» (1991). Свой первый контракт в качестве сольного исполнителя Крис Ри подписал (   Читать дальше...   )1979 - Deltics(UK, MAGL 5028 LP)
+1980 - Tennis (UK, MAGL 5032 LP)
+1981 - Chris Rea (Germany, 713016 LP)
+1983 - Water Sign (Germany, 823 077-1 LP)Жанр: RockПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50009BAFDBF26E5F2C1116A906A253F5F502315C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809512   (9777) от 31.07.2025
+
+Chilly - Collection (1978-1982) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9777.jpg" />
+</div>
+
+
+###  Подробнее
+
+Chilly - западногерманская диско-группа, получившая наибольшую популярность в конце 70-х — начале 80-х годов. В 1978 году молодой 32-летний продюсер Бернт Мёрле (Bernt Mohrle) при участии аранжировщиков Кристиана Колоновица и Штэфана Клинкхаммера, известных по работе с такими звёздами как Boney M., Eruption, Supermax, Silver Convention и другими, приступил к созданию (   Читать дальше...   )1978 - For Your Love (Germany, Polydor - 2417 122)
+1979 - Come To L.A. (Germany, Polydor - 2417 124)
+1980 - Showbiz (Germany, Polydor - 2417 137)
+1982 - Secret Lies (Germany, Polydor - 2372 086)Жанр: Disco, soul, funkПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2CE49C8A6B9A610D19041CA169C0EC62E0F40E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809657   (9767) от 31.07.2025
+
+Boney M. - Collection (1976-1984) [DSD 128|tracks|Vinyl-Rip] <Disco, soul, funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Boney M. (Бони Эм.) — диско-группа, созданная в 1975 году в ФРГ. Франк Фариан, экспериментируя с новым стилем диско, записывает необычную композицию Baby Do You Wanna Bump? в конце 1974 и публикует её под псевдонимом Boney M., по имени героя популярного тогда австралийского детективного сериала. В композиции он использовал исключительно свой голос, записав в многоканальном (   Читать дальше...   )1976 - Take The Heat Off Me (Hansa International - 27 573 OT, Germany)
+1977 - Love For Sale (Carrere - 67.193, France)
+1978 - Nightflight To Venus (Hansa International - 26 026 OT, Germany)
+1979 - Oceans Of Fantasy (Hansa International - 200 888-320 , Germany)Жанр: Disco, soul, funkПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80E497E45FC1067CF3A187122EB9B623ED2B2C0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810108   (9547) от 02.08.2025
+
+Supermax - Collection (1977-1990) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Disco, funk, reggae, electronic, rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9547.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Supermax» — музыкальный проект австрийского композитора Иогана Курта Хауэнштайна (1949—2011), созданный в сотрудничестве с продюсером Петером Хауке на студии «Europasounds Studio» (Франкфурт-на-Майне, ФРГ) в 1976 году. Пик популярности проекта пришелся на период 1977-83 гг., период активного студийного развития на 1977-93 гг. Недостаточный объём достоверной информации (   Читать дальше...   )1977 - Don't Stop The Music (Germany, Atlantic – ATL 50 325)
+1977 - World Of Today (Germany, Atlantic – ATL 50 423)
+1979 - Fly With Me (Germany, Elektra – ELK 52 128)
+1980 - Types Of Skin (Germany, Elektra – ELK 52 253)Жанр: Disco, funk, reggae, electronic, rockПродолжительность: 00:41:29
+Источник/релизер:
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DF6D39AE8A45904FA395B0ABE78E0191C99F1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810155   (9424) от 03.08.2025
 
 Sting - Collection (1985-2006) [DSD 128|tracks, image + .cue|Vinyl-Rip] <Soft rock, pop rock, jazz, new wave>
@@ -570,180 +745,6 @@ Halestorm — американская хард-рок-группа, образ�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A473361BBB8B32C810BBF4223D057B0C8145849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554805   (7390) от 17.08.2025
-
-Bruce Dickinson (Iron Maiden) - Studio Albums (8 releases) (1990-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пол Брюс Ди́кинсон — британский рок-музыкант, писатель, спортсмен (фехтовальщик), пилот гражданской авиации, теле- и радиоведущий, автор книг и сценарист, продюсер, прежде всего известный как фронтмен хеви-метал-группы Iron Maiden.1990 - Tattooed Millionaire
-1994 - Balls To Picasso
-1996 - Skunkworks
-1997 - Accident Of BirthЖанр: Heavy MetalПродолжительность: 08:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3762E1D75422B46A3FCAB7E527138362B8E7A89C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580786   (7330) от 17.08.2025
-
-Chevelle - Studio Albums (10 releases) (1999-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-grunge, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Chevelle (Шевелл) — американская рок-группа, сформированная в 1995 году в Грейслейке, штат Иллинойс.1999 - Point #1
-2002 - Wonder What's Next
-2004 - This Type Of Thinking
-2007 - Vena SeraЖанр: Post-grunge, Nu MetalПродолжительность: 08:08:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA32F5FD685E70468BC3E1F9FE3DBF76B658920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813216   (7083) от 18.08.2025
-
-Madonna - Platinum Hits 2 (2000) MTV History/Pop Extended [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Pop, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Frozen
-02. Take A Bow
-03. Holiday(   Читать дальше...   )Жанр: Electronic, Pop, Synth-popПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E4A437A507F39D765E67F2C0602DA03559499D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813253   (7053) от 18.08.2025
-
-The Book Of Revelations - Studio Albums (4 releases) (2021-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7053.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Book Of Revelations - группа основана мультиинструменталистом и композитором Джерардом Фрименом летом 2017 года. Творчество группы сочетает в себе рок, оркестровую и фолк-музыку с остроумной лирикой и поэзией. Необычные размеры такта и сложные ритмы дополняют оркестровые и акустические слои, которые лежат в основе текстов, грациозно сочетающих классические мифологические (   Читать дальше...   )2021 - The Prologue (EP)
-2023 - Chapter One: The Plumes of Enceladus
-2024 - The Epigraph (EP)
-2025 - Chapter Two: Olympus Mons(   Читать дальше...   )Жанр: Prog RockПродолжительность: 02:32:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F8823F87482023CA37FADE8B35E7841CAC0173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813219   (7037) от 18.08.2025
-
-Architects - Studio Albums (12 releases) (2006-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Architects — металкор-группа, сформирована в 2004 году в Брайтоне, Восточный Сассекс, Англия.2006 - Nightmares
-2007 - Ruin
-2009 - Hollow Crown
-2011 - The Here And Now(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 09:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A892276B5387AC3A070AE92593EC742A57CE13C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813232   (7032) от 18.08.2025
-
-Byzantine - Studio Albums (8 releases) (2004-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Byzantine — американская метал-группа из Чарльстона, Западная Вирджиния, образована в 2000 году.2004 - The Fundamental Component
-2005 -...and They Shall Take Up Serpents
-2008 - Oblivion Beckons
-2013 - ByzantineЖанр: Groove/Thrash MetalПродолжительность: 06:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030FD15EB786615F6D0333359BC4EEC8000E4BDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1403895   (686579) от 22.08.2020
+
+VA - The Buddy Holly Story (1978) 2020 / Original Motion Picture Soundtrack / Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That’ll Be The Day (Unedited Film Version) [01:50]
+02. Mockin’ Bird Hill (Film Version) [01:30]
+03. Rock Around With Ollie Vee (Unedited Film Version) [02:14]
+04. Tennessee Waltz [01:53](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BA1B9353C5123262AC56298282A643762F1DD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289563   (686476) от 16.03.2019
+
+VSOP (Vienna Symphonic Orchestra Project) - Classic Meets Pop (1989) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686476.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Hand In Hand
+2.	Medley: Golden Slumbers, Carry That Weight, You Never Give Me Your Money, The End
+3.	Orinoco Flow
+4.	The First Time(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A72142843CFD029653773E743E02C4A076F258
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288699   (686470) от 16.03.2019
+
+VSOP - Vienna Symphonic Orchestra Project (1986) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Rock Me Amadeus / The Classic Touch
+02.	Kyrie
+03.	Brothers In Arms
+04.	St. Elmo´s Fire(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D6B40AB761E450F541AC3E363C7F8CD6574474A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288923   (686469) от 16.03.2019
+
+VSOP (Vienna Symphonic Orchestra Project) - Classic & Rock - Die Neue Dimension (1988) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686469.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Sledgehammer
+2.	They Dance Alone
+3.	Man In The Mirror
+4.	Invisible Circus(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:268056C2E40119C7AFEE78C1B14EFE2EC9D48181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1288732   (686462) от 16.03.2019
+
+VSOP (Vienna Symphonic Orchestra Project) - Symphonic Rock (1987) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686462.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.	Medley: Bohemian Rhapsody / We Are The Champions / Radio Ga Ga
+2.	Dreamer
+3.	Hard To Say I'm Sorry
+4.	Satisfaction(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEB525550068BA2AB63AADDF552899996B45C99C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1028817   (686253) от 24.06.2016
+
+Marcin Przybylowicz & PERCIVAL - The Witcher 3 Wild Hunt (Pre-Order EP Soundtrack) (2014) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcin Przybyłowicz & Percival - Ladies of the Woods (01:51)
+02. Marcin Przybyłowicz - The Fields of Ard Skellig (03:08)
+03. Marcin Przybyłowicz & Percival - Merchants of Novigrad (03:09)
+04. Marcin Przybyłowicz & Percival - Hunt or Be Hunted (02:25)Жанр: Soundtrack, ScoreПродолжительность: 00:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7439BB4843F01355432FCF374C93E6B7C4C7254
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289162   (686124) от 16.03.2019
+
+Ivan Torrent - Reverie: The Compilation Album (2014) [FLAC|Lossless|WEB-DL|24/48] <Trailer Music, Epic, Instrumental, New Age>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686124.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Human Legacy (4:59)
+ 2 - Icarus (feat. Julie Elven) (4:35)
+ 3 - Remember Me (feat. Roger Berruezo) (3:45)
+ 4 - The Awakening (4:29)(   Читать дальше...   )Жанр: Trailer Music, Epic, Instrumental, New AgeПродолжительность: 01:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C117A92FBAA6718397752E541521B1377EB8D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289624   (686102) от 16.03.2019
 
 Ivan Torrent - Immortalys (2017) [FLAC|Lossless|WEB-DL|24/44.1-88.2 kHz] <Trailer Music, Electronic, Instrumental, New Age>
@@ -561,212 +764,6 @@ Rupert Gregson-Williams - The Legend of Tarzan / Тарзан. Легенда (O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA83C134922C7BCB08D00599FBEC72AC2C640DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028929   (682204) от 26.06.2016
-
-Johnny Cash - Les Genies du Rock -  I Walk The Line (1993) [MP3|320 кб/с] <Country Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cry ! Cry ! Cry ! (2:26)
- 02.  Hey Porter (2:12)
- 03.  Blue Train (2:01)
- 04.  Hey Good Lookin' (1:41)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:32:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3565099C48119BD8ECDCCCAC0DA9473931568CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029120   (682194) от 26.06.2016
-
-Alex Vanderberg (Van Der Berg)  Orquestra - Music To Make Love (1991) [MP3|160 кб/с] <Classical, Romantic, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_682194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Blue
-02. I Am Sailing
-03. Memories
-04. Words(   Читать дальше...   )Жанр: Classical, Romantic, InstrumentalПродолжительность: 00:54:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEC3ACBD1B743FB8334BCE8674E719ED7618F0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289569   (681977) от 18.03.2019
-
-James Last - Jahrhundert Melodien (1982) [FLAC|Lossless|image + .cue] <Pop, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La vie en rose
-02. Spanish Eyes
-03. Lili Marleen
-04. Überall blühen Rosen (L'important C'est La Rose)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1165663E6D27AEA2DD574138A609AB9962CAD25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289576   (681974) от 18.03.2019
-
-VSOP Vienna Symphonic Orchestra Project - The 5th (Die Wiener Symphoniker Spielen Meisterwerke Aus Klassik Und Pop) (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_681974.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Boat On The River
-2.	It's Raining Again
-3.	Sailing
-4.	Bridge Over Troubled Water(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:081C44C1BF8D5649B0A27C40CDE6E17B86317389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222453   (680939) от 01.05.2018
-
-Jennifer Nettles (Дженнифер Неттлз) - To Celebrate Christmas (2016) Big Machine Records [MP3|320 Kbps] <Country, Pop>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дженнифер Неттлз - американская кантри-певица, автор песен, гитаристка, пианистка и гармонистка. Участница группы «Sugarland» с 2003 года. В 2014 году вышел дебютный сольный альбом Дженнифер - «That Girl», спродюсированный Риком Рубином. Во время записи альбома певица сотрудничала с Бутчем Уокером, Ричардом Марксом и Сарой Бареллис. Альбом дебютировал на № 5 в чарте (   Читать дальше...   )01. Go Tell It On The Mountain 2:48
-02. God Rest Ye Merry Gentlemen 3:04
-03. Little Drummer Boy 5:03
-04. Celebrate Me Home 4:05(   Читать дальше...   )Жанр: Country, PopПродолжительность: 00:36:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4720E4F820AB34980E023F07F2B45C131722AF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222444   (680936) от 01.05.2018
-
-Jennifer Nettles (Дженнифер Неттлз) - That Girl (2014) Mercury Nashville, Target Exclusive Deluxe Edition [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680936.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дженнифер Неттлз - американская кантри-певица, автор песен, гитаристка, пианистка и гармонистка. Участница группы «Sugarland» с 2003 года. В 2014 году вышел дебютный сольный альбом Дженнифер - «That Girl», спродюсированный Риком Рубином. Во время записи альбома певица сотрудничала с Бутчем Уокером, Ричардом Марксом и Сарой Бареллис. Альбом дебютировал на № 5 в чарте (   Читать дальше...   )01. Falling 3:23
-02. Me Without You 3:37
-03. Moneyball 3:13
-04. That Girl 4:00(   Читать дальше...   )Жанр: CountryПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49B3ED083C3CB38D20767E439DF234EF79242CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222435   (680798) от 01.05.2018
-
-VA - Viva Latina 2018 (2018) 2CD [MP3|320 Kbps] <Latin, Pop>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680798.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-Продолжительность: 01:09:55
-
-01. Luis Fonsi - Echame La Culpa(   Читать дальше...   )Жанр: Latin, PopПродолжительность: 01:12:05
-
-01. Shakira - Perro Fiel
-02. Nacho - Báilame(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D6DA298865FDEA8158215B0321BC9F60F143F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

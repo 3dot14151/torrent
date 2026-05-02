@@ -1,193 +1,25 @@
-###  Публикация: 1735532   (106912) от 08.07.2024
+###  Публикация: 1727378   (108459) от 02.06.2024
 
-Чарльз Шеффилд | Мыслями в Джорджии (2024) [MP3, Puffin Сafe]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106912.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Специалист по компьютерной технике и истории, обнаруживает в глухом месте в Новой Зеландии невозможную находку - это остатки вычислительной машины середины 19 века и руководство по программированию. Изучив обрывки дневника, в котором упоминаются контакты с внеземной цивилизацией, он понял, что в одиночку ему не справиться. Поэтому к поискам истины присоединяется (   Читать дальше...   )Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765D9F6384E3CCF90A7F4D083C8B35AC1B80876B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735247   (106911) от 08.07.2024
-
-Гелена Великанова - Великие Исполнители России XX Века (2005) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Жаль, что время ушло
-(М. Табачников - А. Завальнюк)
-02. Ты запой мне эту песню(   Читать дальше...   )Жанр: PopПродолжительность: 02:34:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28FE62D32C366B6937D1CFE2C5C0E2877D902BEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735517   (106910) от 08.07.2024
-
-Судьба человека с Борисом Корчевниковым. Судьба певца Сереги (05.07.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106910.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Судьба человека" - это откровенное портретное интервью о судьбе главного героя, об интересных и малоизвестных фактах его биографии, о чувствах и эмоциях, которые переживал человек на главных поворотах своей судьбы. Героями программы "Судьба человека" будут не только известные артисты и политики, но и простые люди с непростой судьбой.
-
-Автор таких (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: телепередача, биография, интервьюУчастники: певец СерёгаЯзык озвучки: РусскийПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B52D6732F2A7106C1A2EBA2A2AE8DD7EB60DDEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735406   (106909) от 08.07.2024
-
-Виктория Шиманская, Александра Чканикова | Мама, я боюсь! (2024) [MP3, Виктория Шиманская, Александра Чканикова]
-
->>Обучающие аудиоматериалы
->>Популярная психология и саморазвитие (аудиоматериалы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как отличить страх от тревоги? Что делать, если ребенок боится общаться со сверстниками? Как говорить о войне, смерти и других пугающих вещах? Книга поможет заботливым взрослым найти подход к детским страхам, экологично успокоить напуганного ребенка и научить его извлекать пользу из древней и естественной эмоции.
-Познавая мир, ребенок может найти в нем много страшного: (   Читать дальше...   )Жанр: ПсихологияИздательство: МИСОПродолжительность: 04:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6687A08CE2F10D928A5D0D174C2EEAA5E62D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735376   (106908) от 08.07.2024
-
-Scarlet Bandit - Lose Your Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Emo, Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything Will Be Alright I [00:00:49]
-02. Young and Feral [00:03:29]
-03. Leak in the Roof [00:03:34]
-04. California [00:04:01](   Читать дальше...   )Жанр: Alternative Rock, Emo, Glam RockПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:723D48AB6BB4FE20A50CB74C53C9C76B95B460B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735417   (106907) от 08.07.2024
-
-Louis Hayes - Artform Revisited (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Bebop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tour de Force (5:27)
-02. Milestones (4:05)
-03. My Little Suede Shoes (5:21)
-04. You're Looking at Me (5:51)(   Читать дальше...   )Жанр: Jazz, BebopПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101992F22F6EC2B7527E64EDA33BE5A440D42CC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735418   (106906) от 08.07.2024
-
-Royce Campbell - 6 x 6 (1994) King Record [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
+Jon Faddis - Legacy (1985) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106906.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108459.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Happy Blues (with Larry Coryell) [6:17]
-02. Love for Sale (with Larry Coryell) [6:45]
-03. Milestones (with Pat Martino) [8:12]
-04. Naima (with Pat Martino) [5:34](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 01:09:29
+01. West End Blues [5:40]
+02. Little Jazz [5:42]
+03. A Night in Tunisia [6:07]
+04. Instigator [4:49](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 00:42:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94883B93DBF9FE559FF71245CB5886A7545F2B74
+magnet:?xt=urn:btih:328AFBEA5F6643CD101E605599538B4B3CA6BE62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735433   (106905) от 08.07.2024
+###  Публикация: 1727753   (108458) от 03.06.2024
 
-Chris Boudreaux - Who Made Who (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
+Подвиг / Jin gang chuan / The Sacrifice (2020) BDRemux [H.264/1080p]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106905.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108458.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Who Made Who (4:10)
-02. Turn Away Eyes (5:11)
-03. The Beat (2:37)
-04. Strange Fascination (3:18)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 01:12:28
+12 июля 1953 года, Корейская война. Для подготовки к битве за Кымсон отважные китайские добровольцы героически защищают от американской авиации стратегически важный мост через реку Пукханган.Производство: Китай / China Film Group Corporation (CFGC)Жанр: военный, боевик, драма, историяРежиссер: Гуань Ху, Франт Гво, Лу ЯнАктеры: Чжан И, Джеки У, Ли Цзюсяо, Вижен Вэй, Дэн Чао, Охо Оу, Цю Тянь, Чжоу Сыюй, Лю Сяньда, Владимир ЕршовПеревод: Дублированный (СиПиАй Филмз / CPI Films)Субтитры: Русские (Forced), английскиеПродолжительность: 02:02:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D59CDF2CB3BC6D50F595B0A98597CF8C32832FFB
+magnet:?xt=urn:btih:8969C7517884C25EF9FB864D9E00F67D78CC03DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735466   (106904) от 08.07.2024
+###  Публикация: 1727752   (108457) от 03.06.2024
 
-Sunbomb - Light Up The Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+VA - DJ Hits 28 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Pop
+>>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106904.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108457.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unbreakable
-02. Steel Hearts
-03. In Grace (We'll Find Our Name)
-04. Light Up The Sky(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:11
+01. Jessica Jay - Casablanca (Jay In The Mix)
+02. On T.V. - Set Me Free
+03. Unity Loops - Part Of You
+04. K. Da Cruz - Love Is Lifting Me Higher(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:10:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BBA74950E336BAE5CC57113D116EBBAE31EE0C5D
+magnet:?xt=urn:btih:60D6DFC12DA486DBEB31D5CF4766F9315805C477
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735477   (106903) от 08.07.2024
+###  Публикация: 1726477   (108456) от 03.06.2024
 
-Sear Bliss - Heavenly Down (2024) [MP3|320 Kbps] <Atmospheric Black Metal>
+PhotoRoom v4.9.8 b1427 Mod by Mixroot [Ru/Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Infinite Grey (06:17)
- 02. Watershed (04:42)
- 03. The Upper World (05:56)
- 04. Heavenly Down (04:36)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:16
+Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 03.06.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC50686C490914AAD66EE7913A90209B9989A950
+magnet:?xt=urn:btih:F32BEB343C89A8AF6B83BA056B7C3019D531CADA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735413   (106902) от 08.07.2024
+###  Публикация: 1727597   (108455) от 03.06.2024
 
-Goodbye June - Deep in the Trouble (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+ApowerREC 1.6.9.18 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106902.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Hard Way (3:03)
-02. Riding Through (2:39)
-03. Angel (3:14)
-04. My Place (3:56)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:14
+ApowerREC - это программа которая может записывать что угодно на вашем экране, включая ваши действия на рабочем столе, видео в прямом эфире, веб-встречи, переговоры в онлайн чатах и так далее. Вы можете захватывать свою работу на полном экране или в специально настроенной области вместе со звуком, софт способен поддерживать синхронизацию видео с аудио потоком, это (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BA6C0F021EC8D572DDE4729F6AC1DF0BA45E87C
+magnet:?xt=urn:btih:AA3DDEF1F3684828FEF0A717794559A04F34C8E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,25 +134,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735554   (106901) от 08.07.2024
+###  Публикация: 1727659   (108454) от 03.06.2024
 
-Проповедник из Уэйкфилда / The Vicar of Wakefield (1910) WEBRip [H.264/720p]
+Журнал | Машины и Механизмы №6 (225) (июнь 2024) [PDF]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106901.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108454.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшая мелодрама по мотивам некогда очень известного литературного произведения. Это даже не экранизация, а скорее конспект. Главная интрига в том что молодой эсквайр (мажор тех времен), негодяй и подлец, соблазняет благочестивую дочь викария. Даже не столько соблазняет, сколько обманывает лживым обещанием женитьбы. Стандартная схема...Производство: США / Thanhouser Film CorporationЖанр: короткометражный, драма, немое киноРежиссер: Теодор МарстонАктеры: Мартин Фауст, Фрэнк Холл Крэйн, Anna Rosemond, Уильям Гарвуд, Мари Элайн, Берта Бланчард, Люсиль Янг, Уильям РасселлПеревод: немой с интертитрамиСубтитры: немецкие (интертитры), русскиеПродолжительность: 00:13:18
+"Машины и Механизмы" - издание для всех, кто интересуется устройством современного мира. Журнал не ограничивается обзорами передовых технологий и последних изобретений. В сферу интересов «ММ» входят вопросы развития общества, новейшие социальные и даже геополитические тенденции. «ММ» отличается от прочих профильных изданий глубиной подачи материала, так (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: Фонд научных исследований “XXI век”Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D39B150FF8AE877020DF7A3D411AD72654C50847
+magnet:?xt=urn:btih:D06F14907840F16645AF9367CB6B6ED50E3E0DF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,28 +160,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735546   (106900) от 08.07.2024
+###  Публикация: 1727630   (108453) от 03.06.2024
 
-Harpazo - The Crucible (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
+Adrian Wallwork | Word Games, Riddles and Logic Tests (2017) [PDF] [EN]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Научная и техническая литература
+>>Иностранные языки (литература)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106900.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108453.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ichor
-02. Legion Program
-03. I Am God
-04. Golden Crown(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:10:51
+Tax Your Brain and Boost Your English
+This book contains exercises connected with some of the fun or more unusual aspects of the English languageand with games that typically a native English speaker would do. The games have been adapted into a manageable format, but the actual vocabulary contained has not been changed.
+The types of games include: lateral thinking (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9D907EDA5BAB8E6BE31D53A222ED196DC4ECB37C
+magnet:?xt=urn:btih:61C80478D7D798F2CB850E7FA06492F755F5B989
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -366,28 +188,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735456   (106899) от 08.07.2024
+###  Публикация: 1727315   (108452) от 03.06.2024
 
-Big Sun - Rite De Passage (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+Неожиданные связи / Cocorico (2024) WEB-DLRip [H.264] [UKR звук с TS] [AD]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Горячие новинки
+>>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106899.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. The Sun
-2. I Was Loving You
-3. Stronger Than Anyone
-4. Directions(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:32:38
+Алис и Франсуа решили пожениться и собираются познакомить своих родителей. По случаю встречи Алиса дарит родителям результаты ДНК-тестов, которые раскроют тайну их происхождения.
+Но сюрприз обернется фиаско, когда важная аристократическая семья Бувье-Соваж и более простая семья Мартен обнаружат, мягко говоря, неожиданные результаты!Производство: Франция / Beside Productions, Canal+ Жанр: комедияРежиссер: Жюльен ЭрвеАктеры: Кристиан Клавье, Дидье Бурдон, Сильви Тестю, Марианн Деникур, Жюльен Пестель, Хлоя Куллу, Софи Фруассар, Йохан Дионне, Патрик Прежан, Лоик РожанПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:31:12Реклама: Плавающий баннер
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:29B4BE40BFEA677342F0BB3720BB9893D6ADA906
+magnet:?xt=urn:btih:6FAD250BA5D59A1BC2B7C7D2477ABA635038D688
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -395,28 +215,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735574   (106898) от 08.07.2024
+###  Публикация: 1727581   (108451) от 03.06.2024
 
-Isle of the Cross - Faustus The Musical (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Symphonic Metal>
+Станислав Дробышевский | Достающее звено (Книга 2). Люди (2019) [MP3, Максим Суслов]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106898.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Prologue (1:01)
-02. Wittenberg, 1587 (1:59)
-03. Metaphysics Of Magicians (5:43)
-04. The Divine Apostate (7:42)(   Читать дальше...   )Жанр: Progressive Metal, Symphonic MetalПродолжительность: 00:58:11
+Великолепный юмор, отточенный стиль, легкость изложения даже самого сложного научного материала, огромное количество интересных фактов и достоверных историй – эта аудиокнига ответит на все ваши вопросы об эволюции и развитии жизни на земле.
+Начиная с первой публикации книги Ч. Дарвина «Происхождение видов путем естественного отбора», среди ученых пошли споры о «недостающем (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: Аудиокнига АСТПродолжительность: 18:52:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:06C35756BF58B4FA8A951C8BA315345E29B47E19
+magnet:?xt=urn:btih:5E46ECDB15945829338DBEC02FABA1DD11CED953
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,28 +242,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735412   (106897) от 08.07.2024
+###  Публикация: 1727736   (108450) от 03.06.2024
 
-DS Caw - Nothing To Fight For (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Ventusky: Прогноз погоды v35.0 Mod by Alex.Strannik [Ru/Multi]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106897.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108450.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Endless Rain (3:46)
-02. Nothing To Fight For (3:11)
-03. Static On The Radio (3:22)
-04. Demon In My Pocket (3:28)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:04
+Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 02.06.2024Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A95EECF353CB7B0F74770BAF8ED70CD931B80D15
+magnet:?xt=urn:btih:77799D8556FADE375DE4DE36EA7BFE229CC6F040
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,28 +268,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735469   (106896) от 08.07.2024
+###  Публикация: 1727706   (108449) от 03.06.2024
 
-Sunbomb - Light Up The Sky (2024) [MP3|320 Kbps] <Heavy Metal>
+Rainlendar Lite 2.21.1 Build 178 [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106896.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108449.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unbreakable (03:56)
- 02. Steel Hearts (03:38)
- 03. In Grace We'll Find Our Name (06:00)
- 04. Light Up The Skies (04:54)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:12
+Rainlendar Lite — календарик для рабочего стола с поддержкой списка задач на тот или иной день.
+Допускается изменение внешнего вида сменой скина, а также изменение уровня прозрачности календаря.
+Для управления программой возможно задание горячих клавиш. Поддерживаются плагины.
+Интерфейс может быть на разных языках; требуемый языковой файл можно загрузить прямо из (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C0B8490064FBC20058A54BB693BD2336E4288814
+magnet:?xt=urn:btih:3C46F3968F46046FEBD319CA95E8A3DC3999B4FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,28 +297,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735487   (106895) от 08.07.2024
+###  Публикация: 1727328   (108448) от 03.06.2024
 
-Sabïre - Jätt (2024) [MP3|320 Kbps] <Heavy Metal>
+Одна жизнь / One Life (2023) WEB-DLRip [H.264/1080p] [UKR звук с TS] [AD]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Горячие новинки
+>>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106895.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108448.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Doorway (Entry) (03:43)
- 02. Pure Fucking Hell (03:56)
- 03. Ice Cold Lust (05:02)
- 04. I'm A Rock (04:40)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:38
+Скромного и непубличного джентльмена Николаса Уинтона приглашают на телевизионное ток-шоу, где он наконец-то узнает всю правду о событиях Второй мировой войны, когда он пытался спасти сотни детей от гибели в концлагере. Одна жизнь может изменить судьбы сотен людей — как в прошлом, так и в настоящем.Производство: Великобритания / See-Saw Films, MBK Productions, BBC FilmЖанр: драма, биография, историяРежиссер: Джеймс ХоузАктеры: Энтони Хопкинс, Хелена Бонем Картер, Джонни Флинн, Лена Олин, Тим Стид, Матильда Торпе, Дэниэл Браун, Алекс Шарп, Иржи Симек, Ромола ГарайПеревод: Профессиональный многоголосый (звук с TS)Язык озвучки: УкраинскийСубтитры: ОтсутствуютПродолжительность: 01:48:59Реклама: Плавающий баннер
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C9E392F24F65F2CDF3D02210C8781F8FE8C73A3
+magnet:?xt=urn:btih:09391EFCD2B8F45B881E77EE1D4D26391162D708
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,28 +323,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735436   (106894) от 08.07.2024
+###  Публикация: 1727618   (108447) от 03.06.2024
 
-Hawkestrel - Presents Pre-Med - Old Habits Die Hard (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Space Rock, Psychedelic Rock>
+Мёртвые не причиняют боли / The Dead Don't Hurt (2023) TS [H.264] [звук с TS] [AD]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108447.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Long Gone (4:13)
-02. In Between The Black And White (4:19)
-03. Courage Or Conviction (7:04)
-04. Least Of All You (4:13)(   Читать дальше...   )Жанр: Progressive Rock, Space Rock, Psychedelic RockПродолжительность: 00:56:21
+1860-е. Мечты Вивиан и ее мужа Хольгера о светлом будущем разрушены войной. В эти сложные времена супруги пытаются сохранить свою любовь.Производство: США, Дания, Мексика, Великобритания, Канада / Perceval Pictures, Recorded Picture Company (RPC), Talipot StudioЖанр: вестерн, драма, мелодрамаРежиссер: Вигго МортенсенАктеры: Вики Крипс, Вигго Мортенсен, Солли Маклауд, Гаррет Диллахант, У. Эрл Браун, Дэнни Хьюстон, Шэйн Грэхэм, Rafel Plana, Алекс Бро, Джейсон КларкПеревод: Дублированный (СиПиАй Филмз / CPI Films) звук с TSЯзык озвучки: РусскийСубтитры: Русские (Forced, hardsub)Продолжительность: 02:02:00Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8038504E2A1F9F4199AEC4CDB474E54080E05CFA
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -540,28 +349,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735426   (106893) от 08.07.2024
+###  Публикация: 1727729   (108446) от 03.06.2024
 
-The Commoners - Restless (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+Журнал | Знание-сила №6 (1164) (июнь 2024) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Журналы
+>>Научно-популярные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108446.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Devil Teasin' Me (4:24)
-02. Shake You Off (3:56)
-03. The Way I Am (3:34)
-04. Restless (5:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:44
+Журнал «Знание-сила» мыслит себя как «мост между наукой и обществом». Основной своей задачей он видит разговор с думающими людьми всех возрастов и специальностей о новых тенденциях в науке и обществе, о связях между разными областями науки и мысли и главное – выявления человеческого смысла всякого знания.Жанр: Научно-популярный журналИздательство: АНО "Редакция журнала "Знание-сила"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1FA1426FC9C75AAE8397162F1A987207AC170286
+magnet:?xt=urn:btih:6D981AC556621CA28C651FE33239C706293569CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735537   (106892) от 08.07.2024
+###  Публикация: 1727645   (108445) от 03.06.2024
 
-Illdisposed - In Chambers Of Sonic Disgust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
+VA - Music News vol.384 (2024) [MP3|320 Kbps] <Pop, Dance, Other>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Spitting Your Pain
-02. I Walk Among The Living
-03. Lay Low
-04. The Ill-Disposed(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:44:23
+001. Bianca Tilici - Inamici (02:50)
+ 002. Alesha Dixon - Ransom (03:17)
+ 003. Ana Farelo feat. Marta Melle & Galician - A Quien Le Importa (02:50)
+ 004. Andrei Banuta - Inima Mea E Locul Tau (02:40)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:00:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D63318A360D68E4BB15C92941C13E80EA29C340
+magnet:?xt=urn:btih:A4873ED1FE04A882F821C9ABD41DFF048A4E9806
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,28 +404,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735414   (106891) от 08.07.2024
+###  Публикация: 1727614   (108444) от 03.06.2024
 
-Kissin Dynamite - Back With A Bang (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Echoes of Despair (2024) [En] (1.0) Repack FitGirl
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Win Игры
+>>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108444.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Back With A Bang (3:34)
-02. My Monster (4:07)
-03. Raise Your Glass (3:38)
-04. Queen Of The Night (3:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:18
+"Эхо отчаяния" приглашает вас на мрачное путешествие в самое сердце заброшенной психиатрической больницы. Возьмите на себя роль Сары, расследовательского журналиста, и исследуйте тайны, окружающие трагическое прошлое этой больницы. Раскройте правду за бесчеловечными экспериментами и давно забытыми секретами, перемещаясь по коридорам, наполненным сверхъестественными (   Читать дальше...   )Тип издания: RepackРазработчик: MiddleNightGameЖанр: Приключенческие игрыЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C5C6D0CABD25294D31BACEAAE7FD79EDC9B5BA1
+magnet:?xt=urn:btih:366BCE22A4158ACA140D2371FA3CA01C02D01E8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,28 +430,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735542   (106890) от 08.07.2024
+###  Публикация: 1727539   (108443) от 03.06.2024
 
-Heavy Star - Ride On (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+Flamingosis - Better Will Come (2024) [FLAC|Lossless|WEB-DL|tracks] <disco, funk, electronic>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108443.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. My Lady Firefly
-02. Razor Blade
-03. Lexi Love
-04. Rock 'N' Roll Again(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:44
+01. After The Pain [00:04:08]
+02. Soulsearcher [00:04:08]
+03. Never A Coincidence [00:03:58]
+04. The Truth About It [00:03:33](   Читать дальше...   )Жанр: disco, funk, electronicПродолжительность: 00:48:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C72CA1D37A0ACF5AF03F79881480BF216B37D7B
+magnet:?xt=urn:btih:7E4466EF3EEE90BBA497D063115A522DC531A91B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,28 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735525   (106889) от 08.07.2024
+###  Публикация: 1727651   (108442) от 03.06.2024
 
-Limbonic Art - Opus Daemoniacal (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+VA - Ibiza Season Opening 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106889.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108442.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Ad Astra Et Abyssos
-2. Deify Thy Master
-3. Consigned To The Flames
-4. Vir Triumphalis(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:50:01
+01. Chillelektro - Spud Point (4:29)
+02. Roy Bell - Noche Hermosa (3:46)
+03. Engtanz - Likewise (4:21)
+04. Klasse XXI - Recurring Dreams (4:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3920EF2CB0A09F24A90663D4C5246F254EBB511
+magnet:?xt=urn:btih:E5E2066CD59252395D153F9FD91EE0B819183F75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -685,28 +488,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735424   (106888) от 08.07.2024
+###  Публикация: 1726999   (108441) от 03.06.2024
 
-Sunbomb - Light Up The Sky (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metal>
+Марина Серова | Телохранитель Евгения Охотникова. Подруга подколодная (2024) [MP3, Элеонора Лимановская]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108441.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unbreakable (3:56)
-02. Steel Hearts (3:38)
-03. In Grace We'll Find Our Name (6:00)
-04. Light Up The Skies (4:54)(   Читать дальше...   )Жанр: MetalПродолжительность: 00:46:12
+Любимый мужчина телохранителя Евгении Охотниковой в печали – убит его старший брат. И благородное сердце Жени дрогнуло: она взялась за расследование. Но отношения между бывшими и будущими женами убитого, его секретаршами, возлюбленными, их подругами оказались такими запутанными, что не только выяснить, кто убийца, но и разобраться в этом деле непросто.Жанр: детектив, триллерИздательство: ЛитРесПродолжительность: 04:43:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:25D87193E2F404F7043F96F4C407FB0A94C8FDF9
+magnet:?xt=urn:btih:66A9B6CE9E9D3D3883C9CF91B73F8D51E60291DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -714,28 +514,190 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735476   (106887) от 08.07.2024
+###  Публикация: 1727610   (108440) от 03.06.2024
 
-Sear Bliss - Heavenly Down (2024) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Black Metal>
+Журнал | Военно-исторический журнал №6 (770) (июнь 2024) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Infinite Grey
-2. Watershed
-3. The Upper World
-4. Heavenly Down(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00:44:15
+«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FADB00ACA8428F3D02DB14A02AE5866ED22C4AFB
+magnet:?xt=urn:btih:6234997894DFD2EE800C69F7F2EC0892F254986C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727648   (108439) от 03.06.2024
+
+VA - DJ Hits Vol. 27 (1995) [OGG Vorbis|480 Kbps] <Electronic, Pop, Euro House>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Jackson & Janet Jackson - Scream (D.J. Version)
+02. Corona - Baby, Baby
+03. Sound Of RELS - Love Is the Powa!
+04. Scatman John - Scatman's World(   Читать дальше...   )Жанр: Electronic, Pop, Euro HouseПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B7325F31BBB000BD64C6EC510145BBF9C1491E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727709   (108438) от 03.06.2024
+
+Сорок сердец (1931) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Кинолетопись Страны Советской
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чёрно-белый немой агитационный фильм. В картине соединены документальные и игровые кадры, а также мультипликационные вставки, выполненные одним из основателей советской мультипликации Иваном Ивановым-Вано.
+Фильм был снят к 10-летию плана ГОЭЛРО. Сорок сердец - образное определение для сорока строящихся районных электростанций, призванных обеспечивать электроэнергией (   Читать дальше...   )Производство: СССР / МежрабпомфильмЖанр: агитфильм, документальный, немое киноРежиссер: Лев КулешовСубтитры: русские (интертитры)Продолжительность: 00:48:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A691E23AEB08F7501EE8287AE8509FCA23E52349
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727583   (108437) от 03.06.2024
+
+Ольга Сульчинская | Личные границы (2024) [MP3, Ольга Сульчинская]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108437.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часто испытываете чувство вины? Боитесь говорить «нет»? Сомневаетесь в своих желаниях? Терпите плохое обращение?
+Рекомендации опытного психолога Ольги Сульчинской помогут вам эффективно отстаивать личные границы!
+Ольга Сульчинская – психолог-консультант и писатель, член Профессиональной Психотерапевтической Лиги и Союза писателей Москвы. Психологией занимается с (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига АСТПродолжительность: 10:07:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60583616B3F3FEEE0104BCA9F3DD908DC09B4CDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727762   (108436) от 03.06.2024
+
+Александр Пушкин | Борис Годунов. Маленькие трагедии (2006) [MP3, Павел Масальский, Михаил Яншин, Владимир Высоцкий и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108436.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+Лучшие драматические произведения А.С. Пушкина:
+• Борис Годунов – показана Россия в период Смутного времени, а также подробно описана личность царя (   Читать дальше...   )Жанр: Русская литература, классика, драмаИздательство: СиДиКом, Элитайл, ГостелерадиофондПродолжительность: 03:23:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A7CA6960D435112B4F6D638896E1197F5153FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727604   (108435) от 03.06.2024
+
+Журнал | Армейский сборник №6 (июнь 2024) [PDF]
+
+>>Журналы
+>>Научно-популярные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108435.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Армейский сборник» — ежемесячный иллюстрированный военно-технический и практико-методический журнал. На его страницах – объективная информация о строительстве Вооруженных Сил России, боевой и специальной подготовке войск, а также об их тыловом и техническом обеспечении. Объект журналистского внимания – виды Вооруженных Сил и рода войск, охватывающие сферы земля, (   Читать дальше...   )Жанр: Научный, практико-методический журналИздательство: ФГБУ "РИЦ "Красная звезда" МО РФФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC6B2182F7CA980C7CE836D84C9496423FBDD18E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727686   (108434) от 03.06.2024
+
+Плохие спят спокойно / Warui yatsu hodo yoku nemuru (1960) BDRip [H.264/720p] [VO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108434.jpg" />
+</div>
+
+
+###  Подробнее
+
+Послевоенная Япония. Молодой человек Коити Ниси жаждет отомстить за смерть отца, которого принудил к самоубийству вице-президент крупной земельной компании. Ради того, чтобы посадить в тюрьму соучастников преступления, Ниси использует чужие документы, нанимается секретарём в ту самую компанию, входит в доверие к вице-президенту Ивабути и сыну Ивабути, даже женится (   Читать дальше...   )Производство: Япония / Kurosawa Production Co. Ltd., Toho CompanyЖанр: драма, криминал, триллерРежиссер: Акира КуросаваАктеры: Тосиро Мифунэ, Масаюки Мори, Кёко Кагава, Тацуя Михаси, Такаси Симура, Ко Нисимура, Такэси Като, Каматари Фудзивара, Тисю Рю, Сэйдзи МиягутиПеревод: любительский одноголосыйЯзык озвучки: русский, японскийСубтитры: английскиеПродолжительность: 02:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:855864E7B6198949063B89B6C8B0D0D6494ECBD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

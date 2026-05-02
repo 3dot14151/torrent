@@ -1,3 +1,30 @@
+###  Публикация: 939088   (475163) от 21.09.2015
+
+Проекты -VideoHive - Walking In The Park [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.
+Превью, инструкция - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ED88A89BD395D650D440D84B1C42306A8AEBE44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057561   (475005) от 28.09.2016
 
 Проекты - Проект ProShow Producer - Plaid Patterns [PSH]
@@ -656,32 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:83EAF3E51EF7D9843EDA2548D82870999C304A33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940290   (468415) от 24.09.2015
-
-Проекты - Проект ProShow Producer - Magic Lines Pack [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468415.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет "Magic Lines Pack" от известного автораФормат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E8FC1946C4569C5E78E373ABAB5F4A00A5A019E
 ```
 
 https://mybot314.ru/tekegram_catalog/

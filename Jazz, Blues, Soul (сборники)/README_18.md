@@ -1,3 +1,32 @@
+###  Публикация: 1422050   (313158) от 07.11.2020
+
+VA - Blues for Christmas (2020) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Lee - Christmas Blues
+02. Brent Johnson - Christmas Tears
+03. Bryan Lee - Santa Claus Is Messin' with the Kid
+04. Beau Kavanagh & The Broken Hearted - Santa Claus Is Back in Town(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C09F236E1D4E8F25082BBE6B873E28D58864533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183105   (311908) от 12.11.2017
 
 VA - Blues Collection 13 (The End) (2017) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -716,35 +745,6 @@ VA - Country Night Top 130 (2019) [MP3|320 Kbps] <Country, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10E4C42E15DDFA5CA3EE5B943F98DB60C3393437
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341473   (262307) от 28.11.2019
-
-VA - Soul And Love Song (2019) [MP3|320 Kbps] <Soul, R&B, Other>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262307.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Allуshа Jоу - Fnfl
-002. Jеаn Dеаux - It’s Whаtеvеr
-003. Quеntin Mооrе - Swееt Sроt
-004. K'nуа - Cоnstаnt(   Читать дальше...   )Жанр: Soul, R&B, OtherПродолжительность: 09:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44E27A3ABAB293B47A12F351A3FF1111A86404BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

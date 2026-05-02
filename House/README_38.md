@@ -1,3 +1,206 @@
+###  Публикация: 1037017   (617282) от 22.07.2016
+
+VA - Sexy B*Tch 003 (2016) [MP3|320 Kbps] <House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617282.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Reign - All I Want Is Your Love (04:38)
+2. Teo Mandrelli - The Rhythm Of Love (03:44)
+3. Sweet La - Take Me There (Beedeep remix) (06:08)
+4. Soul Cartel - Dirty Trumpeter (BeatFlashers remix) (05:00)(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 00:54:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5662E40EFD096D609640112D512A4F41D27AAD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 209157   (616642) от 14.04.2019
+
+VA - Pumping Storm 7 Special Release (2010) [MP3|160-320 kbps]<Hardbass, Pumping House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616642.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. INTRO PUMPING STORM 7!
+01. XS Project – The Real Bass!
+02. XS Project – Pumping Storm ( Dj Relakz Rmx )
+03. BEAT OF BASS (feat. Dj dANGER) – Hard Bass Power(   Читать дальше...   )Жанр: Hardbass, Pumping HouseПродолжительность: 01:14:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94D8D1C2B9A8B1045C3896231BF5CB7BFCA35B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146209   (616509) от 28.06.2017
+
+VA - Main Stage Festival (2017) [MP3|320 Kbps] <House, Trance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ryos & Envy Monroe - Discover Love (Original Mix)  3:45
+02.  Tritonal - Waiting 4 U (Original Mix)  3:27
+03.  Cuebrick & Karra - Smoke & Fire (Original Mix)  3:17
+04.  Mike Shiver - Stay (Original Mix)  3:02(   Читать дальше...   )Жанр: House, TranceПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDCF24FEACBCC8901C7BAC47D8A45E2664EE268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146093   (616476) от 28.06.2017
+
+VA - Summer Party Dance Hits 2017 [MP3|320 Kbps] <Progressive House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southree & Wayck - Carousel (feat Nick Tart - radio edit)
+02. Stephan F - Color Of Love (feat Tony T - Tropical edit)
+03. Federico Seven & William Tag - Amelie (original mix)
+04. Charlie Atom & Michael Fall - Gone (feat Drew Darcy - original mix)(   Читать дальше...   )Жанр: Progressive House, DanceПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E96C6F7EA3335A55953B3C24E3C3DFCC63551ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036601   (615747) от 23.07.2016
+
+VA - Back in Time  Best Progressive (2016) (2016) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be-Pack -  Frozen 4:55
+02. Reynald & G-MX -  Gladiator 7:12
+03. Sam Junk -  Treptow Groove 5:26
+04. Project KF & Jey Fever -  Polaris 6:09(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:27:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D4672F61372FC2448EC6B365E59945324101E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036590   (615746) от 23.07.2016
+
+VA - Future EDM Essentials Vol.01 (2016) [MP3|320 Kbps] <House, Electro House, Future House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tieries Azzier -  Fires Of Maria (Original Mix) 5:41
+02. YoungHwan -  Moodang (Original Mix) 5:06
+03. Mpohj -  Fire Fuel (Original Mix) 5:10
+04. Hypster & Raff -  Candy Hearts (Tieries Azzier Remix) 5:49(   Читать дальше...   )Жанр: House, Electro House, Future HouseПродолжительность: 01:57:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D703E2B968420012DEA15ED08FCE07FEE5AAE98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230397   (615634) от 12.06.2018
+
+VA - Latin Workout Hits 2018 [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Euro Latin Beats - Cosita Bella (Original Mix)
+02. Sorrenti Bros - Bandù (Radio Edit)
+03. Charly Rodriguez, Kike Puentes - Sexy Gyal (Original Mix)
+04. Emcidues - Pa Quitar El Estres (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 02:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68C4DEEF1D7C2E2659BC11C47FBB219764B81DF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230355   (615632) от 12.06.2018
 
 VA - Bike Ride Experience Music (2018) [MP3|320 Kbps] <Progressive House>
@@ -560,209 +763,6 @@ VA - Miami to Ibiza (2019) [MP3|320 Kbps] <Funky, Deep Groove, Minimal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CA2A258B313DD92FACCC80F952F21EA9CF3A508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297874   (602667) от 25.04.2019
-
-VA - Milano Fashion Nights, Vol. 8 (2019) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Carbonero - On Top of The
-02. Endy Dj - That's All I Need
-03. Che Cherry - Oblivious (Radio Edit)
-04. Sal'm Raisov - Gui (Radio Edit)(   Читать дальше...   )Жанр: House, Tech House, Deep House, ElectronicПродолжительность: 02:18:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DB5835D023E62EB6D93F28CAB3706C421155292
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148946   (602581) от 09.07.2017
-
-VA - How to Squat Lifting Bodyworkout (2017) [MP3|320 Kbps] <Big Room, Deep House, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phatt – Button
-02. Pabla Tevo – Giant
-03. Nadeem Ruil – Mylan
-04. Laura Nes – High School(   Читать дальше...   )Жанр: Big Room, Deep House, Tech HouseПродолжительность: 01:18:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D6FECB79A1B8D7B268A6FB9D1013E14EEF3A790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298115   (602209) от 26.04.2019
-
-VA - The Sounds Of Minimal Techno (2019) [MP3|320 Kbps] <House, Electronic, Progressive, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve Kid - I Am Nobody
-02. Ebony Willis - Nobody
-03. Sammy La Marca - Jungle
-04. Jus Deelax - Jagermeister(   Читать дальше...   )Жанр: House, Minimal, Techno, ProgressiveПродолжительность: 04:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0269B5F4B0BE4E0EE646668DFDDC26959D833AF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298380   (601761) от 28.04.2019
-
-VA - The Remixes, Vol.04 (2019) [MP3|320 Kbps] <House, Progressive House, Minimal, TechHouse>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 11th Dimension - Beat Goes On (Tom Novy Remix) 6:15
-02. 1st Place - Feel The Groove (Delighters & Mark Grande Remix) 4:35
-03. Kit Mason - Big Suze (Tony Waller Remix) 5:46
-04. Graeme Vass - Craze (Carl Shawn Remix) 6:34(   Читать дальше...   )Жанр: House, Progressive House, Minimal, TechHouseПродолжительность: 02:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90F0B4161BF4A868A6B89BC954501F7AE7F2C94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149322   (601155) от 10.07.2017
-
-VA - Bodybuilding Music: No More Words Needed (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Page Two – Horsin
-02. Pacey Rookz – Bespoken
-03. Oceane Ripped – Punch
-04. Niki Taylor – Coach(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957A819A6A8FCB66872BBDBAB460DFDADC4F2B73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299200   (600858) от 30.04.2019
-
-VA - Delicious Bar Grooves Barcelona (2019) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Delano's Friends - Top Of The Rhythm (Miami Rhythms's Deep Machinery) 3:33
-02. Yoshi Yoky - Gypsy Rain (Tokyo Deep Mix) 3:23
-03. Steven Light - The Magic Box (5th Avenue Mix) 3:12
-04. Long Island Groove - Gonna Meet You (Original Mix) 3:17(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D0070727D9E1D75290571D1BC8D973631A3D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299209   (600852) от 30.04.2019
-
-VA - Sunset Lovers the Harmony of Sounds (2019) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ronix - Cascada 04:19
-02. Robert Thrill - Bonsai 04:22
-03. Rix Rama - Noisy 04:22
-04. Rich Franklin - Tudor 04:22(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 04:14:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69AC1A299A520ED1FE539386FCF14E645E1C16F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,23 @@
-###  Публикация: 1792417   (67669) от 19.04.2025
+###  Публикация: 1785526   (69214) от 16.03.2025
 
-Фоны - Artnoy - Creative Fabrica - Unicorn Blur Background Digital Papers [JPG]
+НХЛ 2024-2025. Вашингтон Кэпиталз - Сан-Хосе Шаркс (15.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67669.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69214.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цифровая бумага с размытыми фоном.Формат: JPGРазрешение файлов: 3600 x 3600
+16 марта 2025, воскресенье. 00:00 МСК. Стадион: Эс-Эй-Пи-центр (Сан-Хосе, США), 17 435 зрителей (99% при вместимости 17 562)
+Главный судья: Крис Руни (Бостон, США); Главный судья: Грэм Скиллитер (Ла Ронж, Канада); Линейный: Дерек Нансен (Оттава, Канада); Линейный: Джо Махон (Калгари, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:39:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C50382CD4A6B12FAD87967405F2AAB35CC2713DA
+magnet:?xt=urn:btih:36907FD4FFF7BDFE9E55AB6F1025024CE03D0556
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +25,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792354   (67668) от 19.04.2025
+###  Публикация: 1785527   (69213) от 16.03.2025
 
-VA - Black Hole House Music 04 - 25 (2025) [MP3|320 Kbps] <House, Progressive House>
+НХЛ 2024-2025. Нью-Джерси Дэвилз - Питтсбург Пингвинз (15.03.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
->>Electronic
->>House
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67668.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69213.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Krismi - Set Me Free (Extended Mix) (06:22)
-02. PARAFRAME & Avis Vox - Bird Life (Extended Mix) (06:06)
-03. Dennis Sheperd, Freak E Beatz & Katty Heath - Afraid to Feel (Extended Mix) (03:48)
-04. Amun Starr, DirtyHertz & ARANAVA - Dreaming (Extended Mix) (04:58)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 02:15:52
+15 марта 2025, суббота. 22:00 МСК. Стадион: Пи-Пи-Джи Пэйнтс-Арена (Питтсбург, США), 15 442 зрителя (83% при вместимости 18 673)
+Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Франсуа Сен-Лорен (Гринфилд Парк, Канада); Линейный: Джеймс Тобиас (Баффало, США); Линейный: Джонни Мюррей (Бипорт, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:48:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:084774244322BC4BE213EB0A4BF1224D0AAD6867
+magnet:?xt=urn:btih:A3F3303A9021362740FFE8220F5C1282D999F4C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +52,113 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792550   (67667) от 19.04.2025
+###  Публикация: 1785463   (69212) от 16.03.2025
 
-Meredith Brooks - Meredith Brooks: I Wouldn’t Want It Any Other Way (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Sonny Rollins - In Denmark, Vol.1 (1968) 1992, Moon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Four [47:55]
+02. Naima [10:32]Жанр: Hard Bop, Post-BopПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A997D80EBBB11152F93D75171FC97144CEA07F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785429   (69211) от 16.03.2025
+
+Rioghan - Kept (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Gothic Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dreams (00:04:15)
+02 - Hands (00:04:34)
+03 - Skin (00:04:26)
+04 - Edge (00:04:27)(   Читать дальше...   )Жанр: Alternative Metal, Gothic Metal, Progressive MetalПродолжительность: 00:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C106BA04BD5C6E8CCB4A78173C3DA4886552FA70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785465   (69210) от 16.03.2025
+
+Sonny Rollins - In Denmark, Vol.2 (1968) 1992, Moon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three Little Words [31:53]
+02. St. Thomas [3:02]
+03. Sonnymoon for Two [19:39]
+04. Medley [2:09](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:57:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A662F835EC7CDB6214E3871A43E27FD9A0400964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785580   (69209) от 16.03.2025
+
+Malevolent Hand - Entropic Immolation (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy, Thrash Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67667.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69209.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bitch (4:13)
-02. Bad Bad One (4:46)
-03. Shatter (4:00)
-04. Queen Latifah - Lay Down (Candles In The Rain) (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:25:27
+01 - From Shadows Emerge... (01:38)
+02 - All Consuming Hunger (04:21)
+03 - Fractured (04:07)
+04 - Misplaced Hate (04:08)(   Читать дальше...   )Жанр: Heavy, Thrash MetalПродолжительность: 00:36:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB47C5D484FE67266D0AFFEBAB187A76F23123FF
+magnet:?xt=urn:btih:49B92A991AB542E1520C75ECCCC500A80FCD3546
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,26 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792557   (67666) от 19.04.2025
+###  Публикация: 1785623   (69208) от 16.03.2025
 
-Живая еда с Сергеем Малозёмовым (19.04.2025) WEBRip [H.264/720p]
+Dead Rabbitts, Judge & Jury, Escape the Fate - Redefined (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hardcore, Post-Hardcore, Alternative Metal>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67666.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69208.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Творожная пасха: сырая, заварная, ленивая, из творога, тофу и в виде эскимо! Почему на юге и на севере России «пасхой» называют совершенно разные блюда, какой рецепт одобряет церковь, а какой — диетологи, как выбрать самый подходящий творог и неужели этим десертом легко отравиться?
- Луковая шелуха: от чего ею лечатся и чем опасны такие процедуры? Правда ли, что в (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:35
+01 - Artificial Gods [2:59]
+02 - T/R/A/P/P/E/D [3:19]
+03 - Oxygen [3:16]
+04 - Crowned Clown [3:54](   Читать дальше...   )Жанр: Hardcore, Post-Hardcore, Alternative MetalПродолжительность: 00:38:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3CB502662486B1B1939716B1E541095EA890364
+magnet:?xt=urn:btih:6E51AA17BBAEA948DA16E44A6DBC9B37A42C85BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -109,25 +195,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792648   (67665) от 19.04.2025
+###  Публикация: 1785369   (69207) от 16.03.2025
 
-Фоны - Artnoy - Creative Fabrica - Digital Paper Watercolor Background [JPG]
+Vermilia - Karsikko (2025) [FLAC|Lossless|WEB-DL|tracks] <Atmospheric Pagan, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Karsikko (00:04:44)
+02 - Vakat (00:07:07)
+03 - Kivutar (00:04:32)
+04 - Suruhymni (00:05:08)(   Читать дальше...   )Жанр: Atmospheric Pagan, Black MetalПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A62398263F3B45F9139C358197E4676201AA23B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785783   (69206) от 17.03.2025
+
+ScreenToGif 2.41.2 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69206.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScreenToGif — удобный бесплатный инструмент, с помощью которого можно записывать действия на экране и сохранять в формат анимированного .gif-файла (в народе называют гифками). После запуска нужно выбрать необходимую область захвата: весь экран, окно или вручную заданный размер и положение рамки захвата. Также можно указать количество FPS от 1 до 60 кадров в секунду. (   Читать дальше...   )Язык интерфейса: Русский, Украинский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDD5F9612D498B4FC2ABB5840971FA4EC7C29E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785760   (69205) от 17.03.2025
+
+Шрифты - Patrick Griffin - MyFonts - Marvin [TTF, WOFF, WOFF2, EOT]
 
 >>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67665.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Акварельные фоны на цифровой бумаге.Формат: JPGРазрешение файлов: 3600 x 3600
+Шрифт c кириллицей.
+Разработчик: Patrick GriffinФормат: TTF, WOFF, WOFF2, EOT
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB734BCD12299F7C691D3A0998E7D938B20C547B
+magnet:?xt=urn:btih:C84FF07DDDF2509D6370C7C09A21F131415F8E16
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -135,25 +277,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792602   (67664) от 19.04.2025
+###  Публикация: 1785805   (69204) от 17.03.2025
 
-Трилби / Trilby (1915) WEBRip [H.264/720p]
+Шрифты - Ivan Lisichkin - Behance - Шрифт Крыжовник - 115156561 [OTF]
 
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот фильм является экранизацией очень популярного некогда романа. Очень драматическая и немного мистическая история. Во Франции красивая молодая модель по имени Трилби встречает трех представителей богемы (Малыша Билли, Лэрда и Таффи), и все они становятся друзьями. Трилби и Билли влюбляются, но их счастью мешает злой гипнотизер по имени Свенгали , который становится (   Читать дальше...   )Производство: США / Equitable Motion Pictures CorporationЖанр: драма, немое киноРежиссер: Морис ТурнёрАктеры: Wilton Lackaye, Клара Кимболл Янг, Пол МакАллистер, Честер Барнетт, D.J. Флэнеган, Филлис Нильсон-Терри, Джеймс ЯнгПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русскиеПродолжительность: 01:02:59
+Бесплатный шрифт с кириллицей для коммерции и персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D2FCD7816D911DCAD218A0FE53E40062EED13E7E
+magnet:?xt=urn:btih:CFF8FDB6830A1FBB19BA5F98001533648F921751
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -161,28 +306,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792558   (67663) от 19.04.2025
+###  Публикация: 1785808   (69203) от 17.03.2025
 
-Buddy Rich - Birdland (2015) Lightyear [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz>
+Шрифты - Ivan Lisichkin - Behance - Шрифт Брусника - 98633367 [OTF]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67663.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69203.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mexicali Nose [3:16]
-02. Birdland [7:07]
-03. Milestones [5:41]
-04. Just Friends [7:37](   Читать дальше...   )Жанр: Big Band, Mainstream JazzПродолжительность: 00:58:13
+Бесплатный шрифт с кириллицей для коммерции и персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED1992EA115AE95E1965700AAA417881A6494629
+magnet:?xt=urn:btih:9EFE00EE8939204A67DD1FC982A8F493ACF32C2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -190,28 +335,242 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792491   (67662) от 19.04.2025
+###  Публикация: 1785694   (69202) от 17.03.2025
 
-Cold Iron - Return To Darkness (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Пингвин / The Penguin (2024) BDRemux [H.264/1080p] (сезон 1, серии 1-8 из 8) HDRezka, Lostfilm, NewComers, TVShows, КвК, RHS, 1WinStudio, LE-Production
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спин-офф «Бэтмена» Мэтта Ривза. После смерти босса мафии Кармайна Фальконе его «правая рука» Освальд Кобблпот по прозвищу Пингвин решает, что он вправе занять место своего начальника. Но у Фальконе осталась дочь София, которая не готова отказываться от преступного наследия своего отца. В криминальном мире Готэма разгорается кровавая битва за власть.Производство: США / 6th & Idaho, DC Studios, Dylan Clark Productions, Warner Bros. TelevisionЖанр: фэнтези, драма, криминалРежиссер: Крэйг ЗобелАктеры: Колин Фаррелл, Кристин Милиоти, Рензи Фелиз, Майкл Келли, Шохре Агдашлу, Дирдри О’Коннелл, Клэнси Браун, Джеймс Мадио, Скотт Коэн, Майкл Зеген, Тео Росси, Кармен Эджого, Марк СтронгПеревод: Дублированный (Red Head Sound), Многоголосый (HDRezka, Lostfilm, NewComers, TVShows, 1WinStudio, LE-Production), Двухголосый (Кубик в Кубе)Язык озвучки: Русский, украинский, английскийСубтитры: Русские (Forced, Full), английские (Full, SDH)Продолжительность: ~01:06:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7736AF9860D353DCAE5874892327ECA1253BA3C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785731   (69201) от 17.03.2025
+
+Пресеты - G-Presets - Photobug Presets [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69201.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это сотрудничество с Photobug представляло собой уникальную задачу: как создать одинаково универсальные пресеты для сообщества художников, которые разделяют среду, но сильно различаются по стилю и методу. Непростая задача, скажу я вам. Поэтому мы собрали наши лучшие идеи и переработали их в великолепную коллекцию пресетов, которые закреплены в чистой и вневременной (   Читать дальше...   )Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5759646DCE0FF78E4ED5EFF72D38753F5599905C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785806   (69200) от 17.03.2025
+
+Шрифты - Ivan Lisichkin - Behance - Шрифт Клюква - 145290893 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей для коммерции и персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7585DA779071FAF480121BBF4B375059542BD914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785727   (69199) от 17.03.2025
+
+Марина Кулинич | Лингвокультурология юмора (на материале английского языка) (1999) [DOC]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69199.jpg" />
+</div>
+
+
+###  Подробнее
+
+Монография посвящена лингвистическому изучению юмора на материале английского языка. Рассматриваются проблемы социолингвистики, этно-лингвистики, прагмалингвистики и лингвистической семанотики при описании способов выражения юмора на уровне слова, предложения и текста. Анализируются юмористические речевые акты и формы бытования юмора в англоязычной культурной общности: (   Читать дальше...   )Жанр: Монография. Лингвокультурология. Этнолингвистика.Издательство: СамГПУФормат: DOCКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC9F6250259A08E8D7045DDAF214430CDE7B18D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785649   (69198) от 17.03.2025
+
+Draw.io 26.1.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вам доступно бесплатное программное обеспечение под названием Draw.io - это отличный инструмент для создания диаграмм и лучшей организации вашей работы. Если вы студент и вам нужно сделать диаграмму для иллюстрации презентации или задания, или вы менеджер проекта и вам нужно управлять своей командой, данный софт практически на сто процентов способен удовлетворить (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:449762F840EED98D730FF48558435BA1B65613A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785809   (69197) от 17.03.2025
+
+Шрифты - Ivan Lisichkin - Behance - Font Stoneberry - 221080219 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт - Костяника с кириллицей для персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2026687E1A3032D1CCFB4218D491CDCC01183A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785724   (69196) от 17.03.2025
+
+Ms. Holmes 7: The Death of Peter Blackheart / Мисс Холмс 7: Смерть Питера Блэкхерта (2025) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение детективных историй Ms. Holmes. После череды успешных дел Шарлотта Холмс наконец-то может немного отдохнуть, но вскоре ей уже не терпится взяться за новую загадку. Как будто по заказу, на пороге дома Оскара появляется его старый школьный друг, отчаянно нуждающийся в помощи. Он подозревается в убийстве Питера Брэдли. Он просит мисс Холмс осмотреть место (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC914345F64A3E55F9617F4678B402E8DE05E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785710   (69195) от 17.03.2025
+
+Jigsawscapes® - Пазлы v3.8.2 Mod by vadj [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пазлы — игра-головоломка для взрослых в хорошем качестве. Любимая миллионами, увлекательная игра в магазине Google Play. Вы можете скачать бесплатную игру в пазлы для телефона или планшета Android. Она поможет вам держать мозг в тонусе и отвлечься от повседневных забот. Пазлы развивают ваше логические мышление и укрепляют память. Игра в пазлы - это хороший способ (   Читать дальше...   )Тип издания: VIPРелиз состоялся: 16.03.2025Разработчик: Oakever GamesПоддерживаемая ОС: Android 7.0+Жанр: Головоломка, ПазлыЯзык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB5EAD949ECF28A89DDBE83895D43A6CC511B7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785699   (69194) от 17.03.2025
+
+Madonna - Star Collection vol.2 (2000) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <Pop, Synth-pop, Dance-pop>
 
 >>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67662.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69194.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Return To Darkness (03:30)
- 02 - Shipwreck In Hell (04:41)
- 03 - One Sided (03:53)
- 04 - Rise (04:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:37
+Side A:
+01. Beautiful Stranger
+02. Frozen
+03. Secret(   Читать дальше...   )Жанр: Pop, Synth-pop, Dance-popПродолжительность: 01:13:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D3D9B06EB26988EF3352EBCA96CA0A3E6EB0D1C
+magnet:?xt=urn:btih:26C0C4EE524952A83EF80D462A488C9CF55146D2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -219,28 +578,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792576   (67661) от 19.04.2025
+###  Публикация: 1785779   (69193) от 17.03.2025
 
-Storm Orchestra - Get Better (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie>
+Харитон Мамбурин | Гремучий коктейль (Книга 2) (2024) [MP3, Евгений Бочкарев]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69193.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Bright Soul [00:02:59]
-02. Drummer [00:03:32]
-03. Crush The Mirrors (feat. Chunk! No, Captain Chunk!) [00:03:56]
-04. Superplayer [00:02:48](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:38:17
+Господин Дайхард Кейн, начинающий студент-ревнитель Петербуржской Ратной академии. Негодяй, убийца, наглец, подлый дуэлянт и совершенно омерзительный везунчик, которого знает каждая продажная девка в городе! Во всяком случае, так тебя видят студенты Петербужской Ратной академии, будущие благородные ревнители, защитники земли Русской. А что можешь сказать сам? Цензурно? (   Читать дальше...   )Жанр: Городское фэнтези, ПопаданцыИздательство: ЛитРес: чтецПродолжительность: 10:52:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FFF51C365EDBF8D32DDD10A227E2B03E09AFF2FE
+magnet:?xt=urn:btih:54121E4BEA555C8BEB04E65CE99517BCCBE269DD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -248,86 +604,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792371   (67660) от 19.04.2025
+###  Публикация: 1785650   (69192) от 17.03.2025
 
-Beirut - A Study of Losses (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Folk, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Disappearances and Losses
-02 – Forest Encyclopedia
-03 – Oceanus Procellarum
-04 – Villa Sacchetti(   Читать дальше...   )Жанр: Indie Folk, Alternative RockПродолжительность: 00:57:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C566F7A30D52936C8D0BE0E94B61CB4896F7BF3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792560   (67659) от 19.04.2025
-
-Buddy Rich - Trios (1976, 1977) 2023, Lightyear [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just Friends [7:32]
-02. There Will Never Be Another You [6:14]
-03. Like Someone in Love [9:11]
-04. Groovin' High [4:20](   Читать дальше...   )Жанр: Swing, Mainstream Jazz, BopПродолжительность: 01:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01B40E473A5413B1D86F4ECFAE7D00DDA15E859C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792392   (67658) от 19.04.2025
-
-The Quill - In Triumph (2006) Remastered and Expanded Edition, 2025, Metalville Records [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+AC/DC - The Fly Is Rockin' (2010) 2 x CD, Limited Edition, Numbered [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67658.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69192.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Keep the Circle Whole [00:03:34]
-02. Yeah [00:03:38]
-03. Slave Master [00:05:02]
-04. Broken Man [00:03:15](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:09
+CD1 - Live In Austin, Texas – October The 11th, 1985:
+01. Fly On The Wall
+02. Back In Black
+03. Shake Your Foundations(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:25:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F1E6272288631BD2B9927E7DD18B26F40DC9C98
+magnet:?xt=urn:btih:FD80CFAD344669A67A62CEB064A8BE57D7AA1102
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -335,219 +633,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792450   (67657) от 19.04.2025
+###  Публикация: 1785775   (69191) от 17.03.2025
 
-Пятеро на одного (19.04.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBE6507C077FE6B46962E393728517D157C917DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792528   (67656) от 19.04.2025
-
-Пасхальный выпуск: путешествие по самым главным святыням России | «Поедем, поедим!» (19.04.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67656.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди и «Поедем, поедим!» готовятся к Светлому празднику Пасхи. Поэтому ведущий отправился в путешествие по самым главным святыням России: прошел подземные лабиринты и поднялся в горы, стал звонарем-паломником, попробовал кофейный сыр и пельмени с кальмарами и приготовил рыбную кулебяку с тремя видами блюд.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02D329B5315AA24B403CCAAE3797E9DCA2CF9366
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792600   (67655) от 19.04.2025
-
-Confidence Man - 5AM (LA LA LA) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Knows What You’ll Find? (Spriitzz Remix) [00:04:16]
-02. I Can’t Lose You (Airwolf Paradise Remix) [00:03:10]
-03. Control (Paige Tomlinson Remix) [00:05:31]
-04. So What (Prozak Remix) [00:04:01](   Читать дальше...   )Жанр: DanceПродолжительность: 01:10:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8764281EB7BCD45DEA34AFCD08A30D969FE308AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792554   (67654) от 19.04.2025
-
-Sir Dinha Blues Band - VISO (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Águas Lamacentas (4:00)
-02. Wanna Make it Right (3:35)
-03. Rita (4:00)
-04. Betinho de Alvalade (Não Me Traias) (2:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABDFE748679067013B7FDE76AA2FFE8409F28A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792559   (67653) от 19.04.2025
-
-Tracy Weinberg & Friends - Another Saturday Night (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Side Effects of Love (3:38)
-02. Satan's Salon (3:21)
-03. Scarlet Woman (4:29)
-04. Baby, Oh Baby (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54E267B896B5DCB591DDEC1904E7E5952A583BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792552   (67652) от 19.04.2025
-
-Pepe Bueno & Os Estranhos - Confissões e Outros Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Diablues (3:20)
-02. Denny Caldeira - Atrás do Pôr do Sol (3:12)
-03. O Blues e a Prancha (4:06)
-04. Real Valor (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B4EC49055A9B2452094F3CAC766272A7EBAA58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792577   (67651) от 19.04.2025
-
-Своя игра (19.04.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Ольга Дубровская, Владимир Автайкин, Григорий ЕрдомаевЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB4EAC370D35E0ECAE8A7AEC4E71BB2DA8FB675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792418   (67650) от 19.04.2025
-
-Растровый клипарт - STCrafts - Creative Fabrica - Turquoise Teal Pastel Flowers Mug Wrap Sublimation Design [PNG]
+Шрифты - Creative Market - Belitha - Script Handwritten - 290852197 [OTF, TTF, WOFF, WOFF2]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67650.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69191.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Изображения с бирюзовыми цветами для сублимационного дизайна.Формат: PNGРазрешение файлов: 2925 × 1425
+Belitha — очаровательный рукописный шрифт, который излучает элегантность и теплоту своими плавными, естественными штрихами. Каждый символ тщательно разработан для создания плавного и связного стиля, что делает его идеальным для создания сложных и личных дизайнов.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3A0EDD24B7554B9580A3985FBAB51395AA5DD57
+magnet:?xt=urn:btih:D1E9B85DB9C0203B07B5A1758457DB97DB50F05C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,28 +661,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792517   (67649) от 19.04.2025
+###  Публикация: 1785725   (69190) от 17.03.2025
 
-VA - Nothing But... Trancetopia, Vol. 25 (2025) [MP3|320 Kbps] <Trance>
+PhotoDirector v19.12.2 Mod by Balatan [Ru/Multi]
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67649.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69190.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ron with Leeds - Even (Original Mix) [3:46]
-02. FAWZY & Andy Lizard - Eventide (Original Mix) [3:27]
-03. Mike Bound - One Hundred Light Years Ago (Radio Edit) [2:39]
-04. Novel & DJ Spaceman & Dj X-Tromic - Sigmaland Q1 (Extended Mix) [7:33](   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:35
+PhotoDirector - функциональный, но весьма простой в управлении фоторедактор предлагающий пользователям обширный набор инструментов с интуитивной навигацией. Полный контроль над цветовой палитрой с помощью кривых, коррекция баланса белого, указание места фокуса, зоны размытия, использование эффектов и фильтров, устранение дефектов кожи, "вырезание" лишних (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 18.03.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E344FC10E6B53D663BDEC1E05A66F57E0938259C
+magnet:?xt=urn:btih:292B3654BFE1F86ED74C48CE735EAC5DE6A9684D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -584,132 +687,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792555   (67648) от 19.04.2025
+###  Публикация: 1785406   (69189) от 17.03.2025
 
-Тест-драйв SOUEAST S07 — Минтранс (19.04.2025) WEBRip [H.264/720p]
+Лучший Самый День - Вселенная онлайн (2025) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
 
->>Документалистика и Телепередачи
->>За рулем
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67648.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69189.jpg" />
 </div>
 
 
 ###  Подробнее
 
-🔸 Необычное ДТП. Кто будет платить за аварию, если автомобиль получил повреждения о распахнувшуюся створку ворот при выезде с парковки автосервиса?
-🔸 Тест-драйв SOUEAST S07: все слабые и сильные стороны автомобиля.
-🔸 Лайфхак: как с помощью монеты измерить глубину протектора шин?
-🔸 Дорожные правила: можно ли развернуться на перекрестке?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:45:32
+01 - Лучший Самый День - Клоуны II [00:04:10]
+02 - Лучший Самый День - Нирвана [00:04:08]
+03 - Лучший Самый День; Наконечный - Я остаюсь [00:04:05]
+04 - Лучший Самый День - Вселенная онлайн [00:04:04](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:30:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E9840248E52B5AD0457DF8B7135F5590EB62C929
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792692   (67647) от 20.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Summer Wonderland Seamless Patterns [JPEG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесшовные узоры на летнюю тему. Сгенерировано ИИ.Формат: JPEGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73CC10A21627805EAD4F78F3869A64D5A5CAF76D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792746   (67646) от 20.04.2025
-
-Журнал | Тайны ХХ века №16 (1162) (апрель 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67646.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C942A06CFD4ACB352E46DFC8DCB246A8262F4817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792549   (67645) от 20.04.2025
-
-JoJo no Kimyou na Bouken Part 5: Ougon no Kaze | Невероятные Приключения ДжоДжо Часть 5: Золотой ветер (1995) [17 томов, 155 глав] [Манга] [Русский] [PNG] [Complete]
-
->>Манга и Арт
->>Манга, Манхва, Маньхуа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Место действия переносится в Италию. Джорно Джованна - паренёк, пробивающийся на место крёстного отца главной итальянской мафии. А в мафии почему-то опять все главные люди со способностями, а у некоторых даже волшебные стрелы имеются...Жанр: боевик, мистика, сёнэн, сверхъестественноеФормат: PNGПродолжительность: 28 ноября 1995 - 23 марта 1999
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAC9890498768800BC4FD31F97244C19B077EA57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792706   (67644) от 20.04.2025
-
-Формула 1. Сезон 2025. Этап 5. Гран-при Саудовской Аравии. Квалификация (19.04.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
-
->>Спорт и активный отдых
->>Формула 1
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67644.jpg" />
-</div>
-
-
-###  Подробнее
-
-19 апреля 2025, суббота 20:00 МСК. Этап 5, Джидда. Гран-при Саудовской Аравии. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: ОтсутствуютПродолжительность: 01:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBCA9C56048B4A561B6D0EE5385C21D0EBB01905
+magnet:?xt=urn:btih:E06F17DFA3F2875CBA0879E4BFB1940CB0B54DD6
 ```
 
 https://mybot314.ru/tekegram_catalog/

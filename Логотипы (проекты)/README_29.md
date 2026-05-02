@@ -1,3 +1,81 @@
+###  Публикация: 922875   (566259) от 30.07.2015
+
+Проекты - VideoHive - Big Booom Particles [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон для оригинального появления логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8615F05B9C7D709FBF83734F8A662F7A3A6B0B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922568   (566198) от 30.07.2015
+
+Проекты - VideoHive - Organic Particle Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566198.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания Вашего логотипа. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA08522D24F79F7A589E0C9DA58BFB7733E60ECF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922932   (566192) от 30.07.2015
+
+Проекты - VideoHive - Clean Hand Opener [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566192.jpg" />
+</div>
+
+
+###  Подробнее
+
+В протянутой к зрителю открытой руке - ваш логотип. Легко и спокойно испытайте проект в своих работахФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8441E104583FDAA50C34AD42216A5547BC40BC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922664   (566129) от 30.07.2015
 
 Проекты - VideoHive - Glowing Particles Logo Reveal Pack : 01 [AEP]
@@ -591,84 +669,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2D5CBF11A0E575C544655122A75FCAC7A2192D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047823   (548009) от 31.08.2016
-
-Проекты - VideoHive - 3D Elegant Logo - 16460465 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548009.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания демонстрации логотипа. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664C24BA5A1EC9E71E201316A668DB24F01D8BCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048661   (546301) от 02.09.2016
-
-Проекты - VideoHive - Atomic Fire Light Logo - 77308 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации Вашего логотипа или слогана.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C86069A2017CA17392BAE25E95C182BD63D38BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048728   (545526) от 03.09.2016
-
-Проекты - VideoHive - Elegant Ring Logo - 148353 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для стильной и элегантной демонстрации Вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7D86F31A557CB5545BC673C8E071DD91DE72D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

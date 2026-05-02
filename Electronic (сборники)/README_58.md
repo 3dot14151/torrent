@@ -1,3 +1,61 @@
+###  Публикация: 1202669   (789524) от 30.01.2018
+
+VA - Deep Disco (2018) [MP3|320 Kbps] <Deep House, Nu Disco, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  N.A.G  -  Dream Girl (Original Mix)  5:29
+02.  Electro Beat Orchestra  -  Make Me Fly (Extended Mix)  6:41
+03.  Andrey Exx feat. Diva Vocal & BSKF  -  Need To Feel Loved (Original Mix)  6:53
+04.  Michael Grand & Disko Disko  -  Set Set Set (Julian Thomas Remix)  6:40(   Читать дальше...   )Жанр: Deep House, Nu Disco, ElectroПродолжительность: 03:54:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBF0BA06A03F7B7218AE495BAC3B91AFA7D22E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202836   (789515) от 30.01.2018
+
+VA - SunSet On The Coast Original Chillout Mix (2018) [MP3|320 Kbps] <Chillout Lounge Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789515.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lazy Hammock - You Were The One (Original Mix)
+002. Peter Sefkow - S.H.E.
+003. 108 Music - On My Way Home (Original mix)
+004. Curtis McLaw - Magic Woman(   Читать дальше...   )Жанр: Chillout Lounge DowntempoПродолжительность: 10:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CCB2D3E2BFB09D69B3ABF419AFD956655F7FDA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1275790   (789446) от 13.01.2019
 
 VA - Techno Biogram (2019) [MP3|320 Kbps] <Techno, Minimal, Electro>
@@ -684,64 +742,6 @@ VA - Nu Disco Vol.6 (Compiled by ZeByte) (2018) [MP3|320 Kbps] <Nu Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B585DA5AFF8058B8A93ACBBF417F1508C0E4CFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203588   (788120) от 02.02.2018
-
-VA - Impulse №9 - Super Music for Super Car (2018) [MP3|320 Kbps] <Club, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zedd & Grey Feat. Maren Morris - The Middle (Original Mix) 3:05
-02. Kike Puentes - Life (Original Mix) 4:23
-03. Dome Ft. Edith Brinca - I Feel Alive (Extended Mix) 3:26
-04. Paris & Simo Ft. Nikon - Glow (Original Mix) 2:56(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 06:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:322932CD038E950A30CFC9FAA03DD6485DEDDBEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511743   (787811) от 23.11.2021
-
-VA - SVS Collection vol. 6 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обязательно для прослушивания в машине!001.  A-Mase & Sharliz - Diamonds (Radio Mix)
-002.  A-Mase & Sharliz - Say It Right (Original Mix)
-003.  A-Mase & Sharliz - Ты Не Верь Слезам (Shura Cover) (Original Mix)
-004.  A-Mase feat. NINO - Toxic (Original Mix)(   Читать дальше...   )Жанр: Deep House, Electro House, OtherПродолжительность: 13.29.32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A5EF00DBC0EC9DB3F7CDB9FF208512051B767EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1208196   (780124) от 21.02.2018
+
+Bernard Primeau Jazz Ensemble - Virage (1997) Swing'in Time Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southend Stomp [06:36]
+02. Numbly [07:05]
+03. Con Alma [08:19]
+04. Traffic Jamm'n [09:15](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDF3335887AB994274ABCC312E717F37283A7A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207957   (780123) от 21.02.2018
+
+Chico Hamilton with Paul Horn (1954, 1956, 1957) 2010, P-Vine Records [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Porch Light [04:02]
+02. Autumn Landscape [03:44]
+03. Uyawda [04:43]
+04. Lolly Pop [02:19](   Читать дальше...   )Жанр: West Coast Jazz, CoolПродолжительность: 00:32:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89AC385F6961D8D016C29EDE8FC31202DDDC48C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1208198   (780122) от 21.02.2018
 
 Orchestre National de Jazz de Montreal - Christine Jensen: Under the Influence Suite (2017) Justin Time Records [FLAC|Lossless|tracks + .cue] <Modern Creative, Third Stream>
@@ -687,64 +745,6 @@ Curtis Fuller - Smokin' (1972) 2017, Solid Records [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B3715C66D917DC192E3BC39A758F1297B081E59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210960   (778269) от 05.03.2018
-
-Curtis Fuller - Crankin' (1971) 2017, Solid Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crankin' [07:10]
-02. Maze [11:30]
-03. Black Bath [09:54]
-04. Ballade [05:08](   Читать дальше...   )Жанр: Hard Bop, Jazz FusionПродолжительность: 00:39:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1CBE8411C0D2E0CD19271D4A782DD6B24FB8D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013235   (778004) от 03.05.2016
-
-Rein de Graaff Quintet - New York Jazz (1979) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fifty Six [03:57]
- 02.A Monk's Dream [10:08]
- 03.Wail [03:27]
- 04.Solar [05:49](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24575AD6D649FA87F42A65973235200802294518
 ```
 
 https://mybot314.ru/tekegram_catalog/

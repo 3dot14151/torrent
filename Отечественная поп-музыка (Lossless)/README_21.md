@@ -1,3 +1,29 @@
+###  Публикация: 1700147   (117202) от 16.02.2024
+
+Мария Ермакова - Мы разбиваемся (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117202.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Мы разбиваемсяЖанр: PopПродолжительность: 00:02:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16F7859FA795686C4551B4C599B208C42FCEA5A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700006   (117192) от 16.02.2024
 
 Моя Мишель - Медленная Звезда (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -708,35 +734,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36B28C7A8096F9111C6C0E1876C431B4B668186B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734320   (107110) от 03.07.2024
-
-Чай Вдвоем - Вечернее Чаепитие (2005) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А Ты Все Ждешь
- 02. Камчатка
- 03. Не Родная
- 04. Белая Ночь(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5BD222BB2C69996158037C26E6AF44D4E9A3EDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1543441   (629666) от 11.04.2022
+
+VA - Beatport Trance: Electro Sound Pack #508 (2022) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весеннее настроение, первые лучи нежного солнца, которые согревают своей нежностью и обволакивают теплом душу. Всё это наталкивает творческих людей на разнообразные творческие идеи и находящие своё выражение в музыкальном творчестве. Тому примером будет 508-й релиз актуальной музыки в стиле Trance с портала Beatport.001. Philippe El Sisi - Lights
+002. Chris Johnson - Locomotion
+003. Rubens Hard - First Feeling
+004. Rino Da Silva - Nirvana(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 11:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B2AB23FA6A3E23F74F1D8E36B20FB1FC92C953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1229115   (629558) от 04.06.2018
+
+VA - Club Dance Ambience Vol.150 (2018) [MP3|320 Kbps] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629558.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adam K & Soha feat. Matthew Steeper & HALIENE - Twilight vs Breathe  (Club Edit)
+002. al l bo & Pavel Gerasimoff - Where Is Your Prince (Pavel Gerasimoff Remix)
+003. al l bo - Falling (Artful Fox Remix)
+004. al l bo - The Fuel Of My Life (Alexdi & The Soap Opera Remix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 08:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751B2807111B022A3300DA76C58BF344B97398C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 520988   (629443) от 10.07.2012
 
 VA - Voices in my Head Volume 37 (2012) [MP3|320 кб/с]<Vocal Trance>
@@ -723,64 +781,6 @@ CD 1. Время звучания: 01:14:10
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:496E7BE20FC4D733F75C0A1E4AD6431A8D863E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 802975   (624959) от 07.07.2014
-
-VA - Lounge At The Seashore 15 (2014) [MP3|320 кб/с]<Lounge, Chill Out>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624959.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fly Project - En Camargue
-002. Sannan - Kataton
-003. Mo'jardo - Fly Away
-004. Le Griser - If You Are(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:03:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0237EE36A93FD40D8FE452467D7B8A517F05B5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144864   (624893) от 23.06.2017
-
-VA - Лучшие хитовые треки в стиле Electro, Deep, Techno House & Trance от LORDEGRAF Vol.10 (2017) [MP3|320 Kbps] <Electro, Deep, Techno House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624893.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Imagine Dragons - Thunder  3:08
-002.  Norma - Oblivion (Original Mix)  6:42
-003.  DJ Nil & Anthony El Mejor feat. Mischa - Closer (MBNN Remix)  4:25
-004.  Kate Ryan - Voyage (George Airbullet Remix)  4:29(   Читать дальше...   )Жанр: Electro, Deep, Techno House, TranceПродолжительность: 08:28:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:509491817133ABE9A513E6CAB84E317A24EB37E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1748612   (104546) от 10.09.2024
+
+Gotfire - Free Again (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104546.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Do Your Want Fire?
+2. The Escape (Liberation Pt. III)
+3. She's This Way
+4. Hide Away(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16589225808CDB784A36CB0DFF6A947983D0AF4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749133   (104528) от 13.09.2024
+
+Wake The Nations - Heartageddon (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive
+02. Don't Call Me Tonight
+03. Never Say
+04. Bulletproof(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CEE2DE3D28A59E34D6A9D8D35FA3FF3FDF67AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749308   (104328) от 14.09.2024
+
+Victory - Circle of Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tonight We Rock [00:03:53]
+02. American Girl [00:05:34]
+03. Count on Me [00:03:52]
+04. Surrender My Heart [00:04:25](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32949240780BD1665426EC3546823C84AE8C2F1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1749625   (104297) от 15.09.2024
+
+Roulette - From Now Until Today (2024) EP [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104297.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love's A Dying Drug (4:52)
+2. Ready For Friday Night (3:45)
+3. Life Will Go On (3:39)
+4. Summer Day (3:57)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EECD5DE9F27A8C853DDAA2B0B34E9A08A90E0F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1749641   (104279) от 15.09.2024
 
 Prayer - Wrong Address (2005) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ Lonerider - Down In The Dust (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26A8E938A00B3EB3D0629D0A9A7776EF307DAD2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761007   (103100) от 17.11.2024
-
-Eden On Fire - Unresolved (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Brigade (05:49)
-02 - Love Bomb (Remastered) (04:10)
-03 - Parasite (05:58)
-04 - Set Me Free (04:19)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:04:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E80A4EE61913E651172E37A06D59C287F3765659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761162   (103072) от 18.11.2024
-
-Skol Bandit - Resurrection (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claymore Strike 04:16
-02. 20th Century 04:09
-03. Nevermore 05:27
-04. Lovebreak 05:29(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE00D68222B07DCF3986E42FD8B84AAF61436C26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762341   (102957) от 24.11.2024
-
-Torchlight Parade - Children of the Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children of the Night (01:52)
-02. Howl'n Wolf (04:13)
-03. Frankenstein of Death (04:37)
-04. Shadow Run (01:42)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CF62AF1C817105F54B0A34B547C56396DC5176D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762608   (102906) от 26.11.2024
-
-Zero One Zero - Traces Of Yesterday (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Me Again 03:58
-02. I Am Calling 03:28
-03. Crumble 04:51
-04. Get In Line 04:25(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47BA640193233F205797ACA4D5C0FB888DE2D15F
 ```
 
 https://mybot314.ru/tekegram_catalog/

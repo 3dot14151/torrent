@@ -1,3 +1,131 @@
+###  Публикация: 1074774   (336223) от 20.11.2016
+
+The Bob Lanza Blues Band - Time to Let Go (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_336223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Your Own Business 03:57
+02. Time to Let Go 03:25
+03. When the Sun Comes Up 05:38
+04. Your Turn to Cry 04:24(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2978A11115E9DC13B9EF00B223456932F913906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355477   (335349) от 30.10.2020
+
+Smokin' Joe Kubek & Bnois King - 16 Albums (1991 - 2015) [FLAC|Lossless|tracks + .cue|image + .cue] <Texas Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Smokin' Joe Kubek (30 ноября 1956 - 11 октября 2015) был американским техасским блюзовым электрогитаристом, автором песен и исполнителем. Bnois King (родился 21 января 1943 года)  - техасский блюзовый и джазовый гитарист, вокалист и композитор. Он чаще всего играл на гитаре и ритм-гитаре и выступал в качестве основного вокалиста и автора песен для Smokin' Joe Kubek (   Читать дальше...   )Список альбомов:
+1991 - The Axe Man
+1991 - Steppin' Out Texas Style
+1992 - Chain Smokin' Texas StyleЖанр: Texas Blues, Blues RockПродолжительность: 12:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:570B93AE2356B27DC4649BA6C4B0263198DE01C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259423   (334612) от 17.11.2010
+
+Steve Guyger - Radio Blues (2008) [APE|Lossless]<Blues , Harmonica>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334612.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Lookie Here
+2. You're So Fine
+3. Cool in the Evening
+4. Little Rita
+5. Blues Won't Let Me Be
+6. School Is Over
+7. Afghan Rumble
+8. I'm Shakin'
+9. Oh Red
+10. I Can See by Your Eyes(   Читать дальше...)Жанр: Blues , HarmonicaПродолжительность: 00:53:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 259430   (334610) от 17.11.2010
+
+BluesMotel - Built for Comfort (2010) [FLAC|Lossless]<Chicago Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_334610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Built For Comfort 04:02
+02. Hoochie Coochie Man 04:59
+03. Spoonful 03:10
+04. Key To The Highway 05:40
+05. Just A Dream 02:51
+06. Don't Stay Out All Night 04:16
+07. I Just Wanna Make Love To You 03:43
+08. I'm Free 02:08
+09. Boom Boom, Out Go The Lights 02:41
+10. Smokestack Lightnin' 05:53(   Читать дальше...   )Жанр: Chicago Electric BluesПродолжительность: 00:52:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 259129   (334365) от 17.11.2010
 
 B.B. King (Би Би Кинг) - Anthology (5CD) (2007) [APE|Lossless]<Blues>
@@ -642,128 +770,6 @@ God's Property - From Kirk Franklin's Nu Nation (1997) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3C796FAEC247C25FC667EE4EE40DC409332AFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075277   (321282) от 22.11.2016
-
-Eddy "The Chief" Clearwater - Reservation Blues (2000) [FLAC|Lossless|image + .cue] <Blues, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Winds Of Change  (04:54) 
-02|  I Wouldn't Lay My Guitar Down  (04:26) 
-03|  Find Yourself  (05:34) 
-04|  Reservation Blues  (06:14) (   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEA7EC319DFCD717C980E763F6EFF8F5833961E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182167   (319329) от 09.11.2017
-
-Grainne Duffy - Where I Belong (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where I Belong  (03:15) 
-02. My Love  (04:12) 
-03. Don't You Wanna Know  (03:23) 
-04. Home  (04:15) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:300D0214D43D1EB2199F9475A0A49358A5B4EDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351539   (314926) от 06.11.2020
-
-Shannon Curfman - 4 Albums (1999 - 2010) [FLAC|Lossless|tracks + .cue]<Blues/Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314926.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 14 лет, когда вышел ее первый альбом Loud Guitars, Big Suspicions (1999) и достиг третьей позиции в блюзовом чарте "Billboard", она поразила публику неудержимой гитарной дерзостью, взрослой лирикой и знойным голосом. Уроженка Фарго (Северная Дакота), впервые заявила о себе на местном конкурсе юных талантов в возрасте семи лет. А в десять уже вовсю лабала (   Читать дальше...   )Список альбомов:
-1999 - Loud Guitars, Big Suspicions
-2007 - Fast Lane Addiction
-2010 - What You're Getting IntoЖанр: Blues/RockПродолжительность: 02:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBBF358678481E7854A0838CD5E7D29CCCFCC4B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583551   (313361) от 02.12.2012
-
-Various Artists - Blues Piano-Rama (2010) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_313361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kenny Blues Boss Wayne - Boogie Woogie Showdown
-02. Bobby Dean Blackburn - 24 Hours A Day
-03. Bobby Dean Blackburn and Julian Fauth - All Night Long
-04. Julian Fauth - Blues For Mel Brown
-05. Kenny Blues Boss Wayne - I Took The Wrong Road
-06. Julian Fauth and Curley Bridges - The Blues Ain't Nothing
-07. Curley Bridges - Rock Me Baby
-08. Julian Fauth - Sorry Don't Cut No Ice
-09. Curley Bridges - You're The One
-10. Julian Fauth - Loved And Lost(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:46
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1298577   (601757) от 28.04.2019
+
+Isao Suzuki & Tsuyoshi Yamamoto - Samba Club (1980) 2012, King Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture [6:01]
+02. Tenderly [7:22]
+03. Night and Day [5:38]
+04. Sweet Georgia Brown [4:38](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:35:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50FBDFE5992263BE27E9F4CFFDB9728376968D65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298927   (601638) от 29.04.2019
+
+Tia Fuller - Healing Space (2007) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breakthrough [6:14]
+02. Just A Journey [5:12]
+03. Ebonics [5:49]
+04. Katrina's Prayer [1:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63DE8E11B05EAF53ABA93BA67065F765F82306F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913935   (601355) от 30.06.2015
 
 Illinois Jacquet with Kenny Burrell - Desert Winds (2004) [FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
@@ -689,76 +747,6 @@ CD1
 05. George Benson - Walk On By
 06. The Temptations - My Girl
 07. Luther Vandross - Goin' Out Of My Head(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:38:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 525524   (596972) от 24.07.2012
-
-Various Artists - Blue Note Trip Vol. 10: Late Nights / Early Mornings 2CD (2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_596972.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Lou Rawls - Lifetime Monologue (2005 digital remaster)
-02. Donald Byrd - Kofi
-03. Marlena Shaw - Woman Of The Ghetto (live)
-04. Reuben Wilson - Bambu (digital remastered)
-05. Moacir Santos - Off & On
-06. Doris - Beatmaker
-07. Grant Green - Let The Music Take Your Mind (live 2002 digital remaster)
-08. Horace Silver - The Sophisticated Hippie
-09. Nancy Wilson - Goin' Out Of My Head(   Читать дальше...   )Жанр: JazzПродолжительность: 02:14:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356906   (596946) от 29.06.2011
-
-VA - Coffee Time Jazz (2007) [FLAC|Lossless]<Jazz, Bossa Nova, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_596946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ella Fitzgerald - Black Coffee[03:30]
-02.Noro Morales & His Orchestra - Isla Verde [02:38]
-03.Paul Desmond - El Condor Pasa [03:06]
-04.Lalo Schifrin - Rapaz De Bem [02:35]
-05.Joe Henderson - Boto [06:37]
-06.Les McCann - Guantanamera [02:56]
-07.Cal Tjader - It Didn't End [03:58]
-08.Kenyon Hopkins - Hard Latin [02:13]
-09.Baja Marimba Band - Flyin' High [02:08]
-10.Chico O'Farrill - A Man And A Woman [02:31](   Читать дальше...)Жанр: Jazz, Bossa Nova, Smooth JazzПродолжительность: 01:01:43
 
 ## Скачать торент
 ```bash

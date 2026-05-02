@@ -1,3 +1,206 @@
+###  Публикация: 1286288   (711138) от 03.03.2019
+
+Бурановские бабушки - Внучка (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+02. Иван-чай
+03. Внучка-сучка
+04. Мне снова 18(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:46:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A826178750883806A742D16CFA7CCAA7A491A8F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286402   (709083) от 04.03.2019
+
+Jim Brickman - Soothe, Vol. 4: Subzero - Sounds That Spark the Senses (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Starbeam (4:30)
+ 02. Cool Vibes (3:54)
+ 03. Poolside Chill (3:49)
+ 04. Drive North (3:33)(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:54:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D27825A2BF16276605F24D51FF5D2AD0CC908646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286397   (708971) от 04.03.2019
+
+Sam Taylor - Ketteiban Sam Taylor Natsumero Best (2016) 2CD [MP3|320 Kbps] <Instrumental, Sax>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708971.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Kage Wo Shitai Te
+02. Sendou Kouta
+03. Sake Ha Namida Ka Tameiki Ka(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:55:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4060A685E62962053581E2A39A4F21A76A049D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894230   (708949) от 01.05.2015
+
+VA - Die Hit-Giganten: Best Of One Hit Wonder (2013) [FLAC|Lossless]<Pop, Dance, Rock, Pop-Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаем начатую здесь серию. На очереди - Исполнители одного хита. Да уж бывает так, что всего один хит у исполнителя, но зато какой! И все его помнят. Вот и получается, что все три диска - это 100% хиты.CD1:
+01. Crazy Town - Butterfly  (3:36)
+02. Dante Thomas - Miss California  (4:09)
+03. Toploader - Dancing in the Moonlight  (3:48)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Pop-RockПродолжительность: 03:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B8D26B15CDAB9E81FC2F288BFE248B56241FB0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131372   (708917) от 05.05.2017
+
+Jim Beckwith and Hans Christian - Be Love (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Open Me (feat. Hans Christian) 9:53
+02. Om Namah Shivaya (feat. Hans Christian) 6:14
+03. Jai Ma (feat. Hans Christian) 5:59
+04. Be Love (feat. Hans Christian) 6:56(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90824202E9EDD076ACCBA249B2464D5064726E4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131300   (708908) от 05.05.2017
+
+VA - 50 Vinyasa Chill Yoga: Healing & Relaxing Yoga Exercises (2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Yoga Healing Sounds Unit - Vinyasa Chill Yoga  3:57
+02.  Kundalini Yoga Group - Emotional Healing  4:01
+03.  Yoga Music Masters - Relaxing Yoga  4:02
+04.  Chakra Healing Music Academy - Basic Yoga  3:36(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 03:06:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4514D4B8632D8C5E2801D8D0ECC9A672196837BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131361   (708561) от 05.05.2017
+
+Jed Kurzel - Alien: Covenant / Чужой: Завет (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jed Kurzel - Incubation (01:07)
+02. Jed Kurzel - The Covenant (03:25)
+03. Jed Kurzel - Neutrino Burst (02:57)
+04. Jed Kurzel - A Cabin on the Lake (01:56)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0413B49AC1FE70E8B02298BACE17326B1D05F8C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025614   (708203) от 13.06.2016
 
 Jonn Serrie - Flightpath (1989) Reissue, 1995, Miramar, BMG [MP3|320 кб/с] <Ambient, New Age, Space>
@@ -539,209 +742,6 @@ Midori - Island Paradise (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BDF5C16C32A9EA87C0B62A71EB6C4202D994BF14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025857   (705873) от 14.06.2016
-
-Air - Twentyears (2016) [MP3|320 кб/с] <Electronic, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La femme dargent 07:06
-02. Cherry Blossom Girl 03:39
-03. Kelly Watch The Stars 03:45
-04. Playground Love (with Gordon Tracks) 03:32(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78750FDF6ADD70BEF84BDF6D5AB67C5E4AF0E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026102   (705868) от 14.06.2016
-
-Joseph Bishara - The Conjuring 2 / Заклятие 2 (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enfield Opening (00:46)
-02. As Close to Hell (03:31)
-03. Conjuring 2 (00:46)
-04. It Isn’t Real (00:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C0472ED1DC3B12614CE9EAFD1D6F974423AEF7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401958   (705614) от 12.08.2020
-
-VA - Music For Quick Morning Yoga (2020) [FLAC|Lossless|WEB-DL|tracks] <New age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spirit - Om Ha Hung (07:16)
-02. Foundations - Deep Loneliness (09:55)
-03. Power Shui - Bombay Nights (04:14)
-04. Spirit - Balayogi Pahi Mam (03:41)(   Читать дальше...   )Жанр: New ageПродолжительность: 01:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D967AFC749FE622D8C3D0E9515BAB153BA9538AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533098   (705331) от 24.02.2022
-
-Kamal - Reiki Whale Song (2001) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705331.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whale Dreaming
-02. Song Of The Deep
-03. Enchanted Worlds
-04. Travellers Of The Seas(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD36D9FD6C788E07B748EC432011F639BE64F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 894657   (704893) от 03.05.2015
-
-Armik - Romantic Spanish Guitar Vol.2 (2015) [FLAC|Lossless]<Latin, Flamenco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds of Passion (4:35)
-02. Breathless (4:55)
-03. Guitanova (4:39)
-04. Isla Mujeres (4:39)(   Читать дальше...   )Жанр: Latin, FlamencoПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F8FA9DB6467FB07219F5E163CE33DC9355A2005
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026199   (704154) от 15.06.2016
-
-Juliana - Earth Goddess (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prithivi - Earth    11:48
-02. Jala - Water    12:12
-03. Agni - Fire    10:44
-04. Aria - Air    12:04Жанр: New Age, Relax, VocalПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3543842A0C032F8C674D8BAF026DDA282DD587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026264   (703961) от 15.06.2016
-
-Brian Bennett - Shadowing John Barry (2015) [FLAC|Lossless|tracks] <Contemporary, Soundtrack, Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703961.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thunderball    02:57
-02. Out Of Africa    03:33
-03. You Only Live Twice    03:12
-04. The Appointment    03:17(   Читать дальше...   )Жанр: Contemporary, Soundtrack, ClassicalПродолжительность: 00:46:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE266EDBE5F53808063014AC2FD856F7506E7487
 ```
 
 https://mybot314.ru/tekegram_catalog/

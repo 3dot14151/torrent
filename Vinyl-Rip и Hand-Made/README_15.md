@@ -1,3 +1,148 @@
+###  Публикация: 1201963   (789501) от 30.01.2018
+
+George Gershwin – with Todd Duncan and Anne Brown - Porgy And Bess (1939) 4×Shellac [FLAC|Lossless]<Jazz, Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789501.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Alexander Smallens And Anne Brown - Overture And Summertime
+B Anne Brown With Eva Jessye Choir - My Man's Gone Now
+C Todd Duncan With Eva Jessye Choir - I Got Plenty O' Nuttin'
+D Todd Duncan With Eva Jessye Choir - Buzzard Song(   Читать дальше...   )Жанр: Jazz, ClassicalПродолжительность: 00:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B9E82E3C995C53FED2F8AC41156887BB76CE81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202804   (789500) от 30.01.2018
+
+Сергей Курёхин - Популярные Зооэлементы (1998) [FLAC|Lossless|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789500.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tracklist Hide Credits
+A	Популярные Зооэлементы
+B1	Духовные Минералы
+Piano – Сергей Курёхин(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F53772CD7D0F267625D8E80793695C7D38AC8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276232   (788574) от 15.01.2019
+
+Лариса Долина - Погода В Доме (1997) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788574.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Погода В Доме
+A2 Хочу Быть Любимой
+A3 Просто Танго
+A4 Увижу, Узнаю(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:03:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAB094A46908BD52C495E2A06464C3BF808767D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276336   (788507) от 15.01.2019
+
+A-Ha - Headlines And Deadlines: The Hits Of A-Ha Vol.2 (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788507.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Move To Memphis (4:17)
+A2. I've Been Losing You (4:27)
+A3. The Living Daylights (4:16)
+A4. Crying In The Rain (4:22)(   Читать дальше...   )Производство: Not On Label - RGM 7030Жанр: New WaveПродолжительность: 00:36:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:365EC4B13142CA1BF1868B2AFD46426DCC9B8AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202075   (788096) от 02.02.2018
+
+Дуговка - 10 - Фестиваль бардовской песни (1999) [FLAC|Lossless|tracks] <Ballad, Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788096.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Е. Гангаев, О. Селицкая, С. Каплан - Приветствие слету
+02. КСП города Хайфа - Пиратская лирическая
+(Б. Окуджава)
+03.Н. Якимов - Возок(   Читать дальше...   )Жанр: Ballad, VocalПродолжительность: 01:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A26CF19BBEDECF335AAAE346FE0B578BE3BA8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202935   (788095) от 02.02.2018
 
 Александр Слободяник - Фредерик Франсуа Шопен (1977) [WavPack|Lossless|tracks] <Classical>
@@ -603,144 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2CD66E8A5ED1CFFE72699A595E97ABF2795062F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015595   (774042) от 11.05.2016
-
-Мирей Матье (Mireille Mathieu) – Французская коллекция (1986) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774042.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Браво, ты выиграл (Bravo Tu As Gagne)  4:40
-2. Влюбленная женщина (Une Femme Amoureuse - Woman In Love)  4:10
-3. У голубой реки (A Blue Bayou)  3:58(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B170818E4BB94D80B712BDFC4BE6C5DB9DDD178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949781   (773924) от 11.05.2016
-
-The Beatles - Let It Be (1970) [FLAC 2.0|192/24|tracks|Vinyl-Rip]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773924.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Two Of Us  3:36
-2. Dig A Pony  3:54
-3. Across The Universe  3:48(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1F26D630AF5C5EB577FAF4E2AB95463A30728F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1269706   (772790) от 21.06.2020
-
-Кино - Атаман (2018) [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772790.jpg" />
-</div>
-
-
-###  Подробнее
-
-[4:15] 01. КИНО - Атаман (версия 2012 г.)
-[3:04] 02. КИНО - Атаман (версия 1990 г.)
-[4:17] 03. КИНО - Атаман (демо-версия 2012 г.) BONUS CDЖанр: RockПродолжительность: 00:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD6BAC84384FED12CF8400D3A33D813975AFC40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616265   (772491) от 21.06.2020
-
-Кино (Виктор Цой) - Неизвестные Песни Виктора Цоя (1992) [APE 2.0 24/96|image + .cue (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: RockПродолжительность: 00:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EBCF3778D92E0673B6A03A8630B32D552E81D453
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 660735   (771959) от 25.05.2013
-
-Vaya Con Dios - Night Owls (1990) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Pop, Pop-Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, Pop-JazzПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3F0249265CBB61A1FF2B0A8C30AB9302B5DC7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

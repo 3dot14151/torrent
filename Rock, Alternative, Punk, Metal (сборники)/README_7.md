@@ -1,3 +1,61 @@
+###  Публикация: 1098447   (908206) от 30.01.2017
+
+VA - Rock в дорогу Vol.6 (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_908206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Beyond The Black - In the Shadows
+02 In This Moment - Whore
+03 The Rasmus - No Fear
+04 W.A.S.P. - Golgotha(   Читать дальше...   )Жанр: RockПродолжительность: 04:59:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB5EB09BEAF32FB5F966DBDDC6181974CC24367D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990934   (907537) от 27.02.2016
+
+VA - The Best Rock (2016) [MP3|256 кб/с] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907537.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. AC DC - Highway To Hell.mp3
+002. Aerosmith - Heart's Done Time.mp3
+003. The Who - Out In The Street.mp3
+004. Jethro Tull - Aqualung.mp3(   Читать дальше...   )Жанр: RockПродолжительность: 07:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA3C328C1679330543EA2578C9F87AE3E10ECE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368319   (907414) от 21.03.2020
 
 Foo Fighters - Essentials (2020) [MP3|320 Kbps] <Rock, Alt.Rock, Post-Grunge>
@@ -687,64 +745,6 @@ VA - Heavy Metal Edition Vol.31 (2017) [MP3|320 Kbps] <Heavy Metal, Power Metal,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93A98A3F6B675945994E97FC202A96D84456802B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101819   (892784) от 08.02.2017
-
-VA - Indie & Soft Rock Edition Vol.31 (2017) [MP3|320 Kbps] <Rock, Acoustic, Psychedelic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892784.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bear Hands - Too Young 3:45
-002. Birdy - Wild Horses 3:02
-003. Broods - Couldn't Believe 4:04
-004. Broods - Hold The Line 3:33(   Читать дальше...   )Жанр: Rock, Acoustic, Psychedelic RockПродолжительность: 06:44:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB2AE2F1475A5549A3E9EC3415DB3069F22D35E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101805   (892782) от 08.02.2017
-
-VA - Gothic Metal Edition Vol.31 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892782.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bliss In The Abyss - Tales Of Time 4:40
-002. Cascade - Mental Effort 3:53
-003. Circle Unbroken - Vampire 3:27
-004. Dark Sarah - Ash Grove 4:13(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Symphonic MetalПродолжительность: 07:59:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FEEF882A493EEE9AEECB8C400AC4995C6E32C9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

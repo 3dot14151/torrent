@@ -1,3 +1,119 @@
+###  Публикация: 1706587   (113549) от 13.03.2024
+
+Arms Grace - Summit (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Have You Ever Wondered (4:21)
+02. If I Said (3:53)
+03. Oh Yay, The Blues Has Got Me (3:52)
+04. Don't Give up on Love (5:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4FED416DEA2532E3A6808B1B61637A73E52061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706610   (113545) от 13.03.2024
+
+Ty Clayton - An Animist Hymnal (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invocation (2:54)
+02. No Man's Land (4:28)
+03. Love-Drunk (3:06)
+04. Gunslinger (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A791EA7C066D2441251C3EA59BAA71C6E060A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706603   (113544) от 13.03.2024
+
+Nine Below Zero - Denmark (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Story Of Nathan John (3:40)
+02. What's Going On (3:48)
+03. You Made Your Bed (So You Better Lie In It) (2:12)
+04. Ice Cream Man (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:28:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1AE68AF3A4F861F41D2D749BCE935A4A1BD31C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706594   (113541) от 13.03.2024
+
+Cosmic Promise - Navigator (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Navigator (4:07)
+02. C'est La Vie, My Darling (3:16)
+03. Then There Were You (2:50)
+04. Roots (3:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3554E8C34C8D62A46FB6C34360519062ABAA9397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706592   (113540) от 13.03.2024
 
 Ben Hemming - Darkness Before Dawn (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Paul Butterfield - North South (1980) Reissue, 2006, Wounded Bird Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E362A0CCB0415141656614F694CD252ADB48BD4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714884   (111631) от 11.04.2024
-
-Electric Blues - Time Passed Me By (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sometimes (4:02)
-02. Night Train (3:50)
-03. So Many Roads (6:13)
-04. Gave You My Word (4:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D728E54AE259ABDE5EC34689FF4A47531E70A345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714906   (111620) от 11.04.2024
-
-Session Americana - The Rattle and The Clatter  Twenty Years (so far) of Session Americana (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pack Up The Circus (3:46)
-02. Making Hay (Live at the Haybarn Theater) (4:44)
-03. Beer Town (4:18)
-04. Helena (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B87420AEA136CCE3B6FFAFF88569B6143E7882DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714875   (111587) от 11.04.2024
-
-Copenhagen Blues Band - I'm Not in a Hurry - Copenhagen Blues Band - I'm Not in a Hurry (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111587.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Not in a Hurry (4:19)
-02. Long Times Fight (4:14)
-03. Highway Man (5:40)
-04. Get a Hobby (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30777167C923B13400E6BC5870FA217C372201B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714892   (111584) от 11.04.2024
-
-Leif De Leeuw Band - Mighty Fine (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rosalie (5:23)
-02. Hard to Hold (3:51)
-03. Southern Man (feat. Berget Lewis) (4:37)
-04. Lone Star (5:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9EB477B6889E4C451D2D712D163D15991668481
 ```
 
 https://mybot314.ru/tekegram_catalog/

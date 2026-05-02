@@ -1,3 +1,32 @@
+###  Публикация: 911152   (618317) от 22.06.2015
+
+Project NT - Имена и Тени (2015) [FLAC|image + .cue]<Experimental, Psychedelic, Post Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618317.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Князь 06:54
+2. Неизвестный 03:38
+3. День П 04:14
+4. Егор 04:28(   Читать дальше...   )Жанр: Experimental, Psychedelic, Post PunkПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0204B91C85A00B2298F86E5612E226FCA991449
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1544943   (616707) от 18.04.2022
 
 Свечение Чёрного - Культ Солнца (2021) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Experimental Rock>
@@ -712,35 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:229529D60FD394FD710379CA1E5FE8A5B22414A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297875   (602617) от 25.04.2019
-
-Альянс - Альянс 87 На Заре (2019) 2CD, Remaster [FLAC|Lossless|Web-DL|tracks] <Pop Rock, New Wave, Synthpop>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Фальстарт (5:56)
-02. День освобождения (3:28)
-03. Падение взлёт (5:07)
-04. Порабощённые трудом (4:35)(   Читать дальше...   )Жанр: Pop Rock, New Wave, SynthpopПродолжительность: 01:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B94CCCD864CDC5BEE20E5016D3E17EDEFD514988
 ```
 
 https://mybot314.ru/tekegram_catalog/

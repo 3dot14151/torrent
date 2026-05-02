@@ -1,3 +1,30 @@
+###  Публикация: 1618205   (1034302) от 10.03.2023
+
+Земфира - PODNHA (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034302.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. PODNHA
+2. PODNHA (Archive Remix)Жанр: RockПродолжительность: 00:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFC402177790DC0B6A0CE975D5D3E5652E516363
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618201   (1034128) от 11.03.2023
 
 кис-кис - ламповый альбом (acoustic) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -713,35 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D23FF5B803DD82CC202D66F34B90B14878F7A9CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623461   (1029238) от 02.04.2023
-
-Автоматические удовлетворители - Любимые песни мамы (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ерунда [00:02:38]
-02. Буржуи [00:03:14]
-03. Юнкера [00:04:37]
-04. Крюк [00:04:37](   Читать дальше...   )Жанр: Funeral Punk RockПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA99D534758B4B518C37AE8D88B7009A6282F8CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

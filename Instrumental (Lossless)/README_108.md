@@ -1,3 +1,119 @@
+###  Публикация: 1685930   (126744) от 21.12.2023
+
+DGonemanband - Clown Show (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trudeau Is a Crazy Man (2:37)
+02. What’s My Name (2:22)
+03. Hold Me Down (3:29)
+04. Trudeau Radio (2:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72EC91E201F2CC804AC08C5D156C80B0A14938F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686489   (126466) от 23.12.2023
+
+The Derek Trucks Band - 8 Albums (1997 - 2010) 10 CD (1997 - 2010) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock, Southern Rock, Jazz-Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126466.jpg" />
+</div>
+
+
+###  Подробнее
+
+Derek Trucks (родился 8 июня 1979 г.) - американский гитарист, автор песен и основатель группы The Derek Trucks Band. Он стал официальным участником The Allman Brothers Band в 1999 году. В 2010 году он вместе со своей женой, блюзовой певицей и гитаристкой Susan Tedeschi сформировал группу Tedeschi Trucks Band. Его музыкальный стиль охватывает несколько жанров, он (   Читать дальше...   )Список альбомов:
+1997 - The Derek Trucks Band
+1998 - Out Of The Madness
+2002 - Joyful NoiseЖанр: Blues Rock, Southern Rock, Jazz-BluesПродолжительность: 09:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2559D2FCE97755A513BECEBB9424FFE9F2E8998
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686359   (126429) от 23.12.2023
+
+Jay Doe & The Blues Preachers - Bluestime (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got My Mojo Working (4:00)
+02. Walking to My Baby (2:31)
+03. Call Me the Breeze (3:43)
+04. Next Time You See Me (3:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69BEF7CB6C8FF1155A9168B9A0EF62C1FB3C66C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686361   (126421) от 23.12.2023
+
+Jimmy Lewis and Peggy Scott-Adams - Christmas With Miss Butch Records (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas Friends of Mine (4:48)
+02. Can Reindeer Fly? (4:33)
+03. Wild Horses Two Mules and a Tractor (3:36)
+04. Light You up Like a Christmas Tree (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714DF69475161C44FF8FA2B23D0FEFE39F6D4D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686352   (126418) от 23.12.2023
 
 Frankie Moreno - RED (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ The Professor Underfunk - Just Build It (2023) [FLAC|Lossless|WEB-DL|tracks] <Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DB2389B3C205AF9496CF7DA455538B17183953D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689535   (124561) от 03.01.2024
-
-Roadhouse Redeemers - From Gospel to Grit (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel from Montgomery (4:01)
-02. Fever (4:06)
-03. Ain't No Grave (3:47)
-04. Keep Your Hands to Yourself (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33428C8D5344158C633C03F81095014FF9C2A04E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689532   (124529) от 03.01.2024
-
-Otilia Donaire - Bluesin' It Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wrong Side Of 45 (2:47)
-02. Without You (3:23)
-03. The Queen Bee (3:16)
-04. Love Sick Blues (2:44)(   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:39:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B11AAB09253D5299465C60FF629414E33E7CDBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689538   (124505) от 03.01.2024
-
-The Austrian Blues Combo - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunshine Blues (5:19)
-02. Misery Blues (3:37)
-03. Blues for You (5:37)
-04. Hangover Blues (2:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9E84D1C99B3AD6116D28B96E7C038E99D98A0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690492   (123927) от 07.01.2024
-
-MasterPeace - The Dylan Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - New Morning
-02 - All Along The Watchtower
-03 - Forever Young
-04 - Going Going Gone(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F51C4A4A0160053FA62386409EF24DD45733C55
 ```
 
 https://mybot314.ru/tekegram_catalog/

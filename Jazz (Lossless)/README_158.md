@@ -1,3 +1,61 @@
+###  Публикация: 1313074   (528290) от 07.07.2019
+
+Marty Ehrlich's Traveler's Tales - Malinke's Dance (2000) [FLAC|Lossless|tracks + .cue] <Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rhymes (8:41)
+ 02. The Cry Of (9:52)
+ 03. Malinke's Dance (8:19)
+ 04. Line on Love (7:42)(   Читать дальше...   )Жанр: Free JazzПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D5A3F75429F9CCE94354849DF30036590CA510F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052429   (528199) от 14.09.2016
+
+The Don Pullen & George Adams Quartet - Breakthrough (1986) Blue Note[APE|Lossless|image + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mr. Smoothie [06:10]
+ 02.Just Foolin' Around [06:21]
+ 03.Song From The Old Country [08:15]
+ 04.We've Been Here All The Time [09:10](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D1DF480419E07FD607E873E9AD5703BD4CF039E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052396   (528198) от 14.09.2016
 
 Raphael Imbert & Co - Music Is My Home (2016) [FLAC|Lossless|tracks + .cue] <Jazz, Blues>
@@ -687,64 +745,6 @@ Bob James - The Genie (1983) 2006, Koch Jazz [FLAC|Lossless|tracks + .cue] <Smoo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B0627A7E8F0803E000BD8A5BFF839CBF713B382
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157566   (525233) от 12.08.2017
-
-Miguel "Anga" Diaz - Echu Mingua (2005) World Circuit [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Juan Y Martínez [01:46]
-02. Rezos [04:10]
-03. Pueblo Nuevo [04:30]
-04. Tume Tume [02:56](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BDD536DF8873228CC103B9285BDE4CCCB94DC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1157822   (524780) от 13.08.2017
-
-Paul Bley - Early Trios (1953, 1954) 2005, Fresh Sound [APE|Lossless|image + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like Someone In Love [04:09]
-02. Opus 1 [04:14]
-03. Walkin' [04:33]
-04. Spontaneous Combustion [04:20](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:08:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9A54166EEC507D45C55F898F484CB15DB9FEFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 1220539   (703872) от 19.04.2018
+
+Проекты - VideoHive - Hi-Tech Corporate Slideshow - 13498261 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Высокотехнологичный проект для корпоративного видео или презентации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1467CE4D66AEE44BCBAEE8F67B3F5ABFB235FB95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026333   (703573) от 15.06.2016
+
+Проекты - VideoHive - Flat Corporate Motion Design [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Flat Corporate Motion Design - пакет для создания неповторимых корпоративных презентаций.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F984651019255EC7786EC4199C41DC96D5444E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026366   (703434) от 15.06.2016
 
 Проекты - VideoHive - Freeze Frames: Comic Pack [AEP]
@@ -619,58 +671,6 @@ Multiplicity - современный энергичный промо-ролик
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A4D61FF0344A408DE4771B600AF4D5191EEDB8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 674855   (690428) от 01.07.2013
-
-Проекты - VideoHive - Vintage Opener - 1823937 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд-шоу, вступительных титров к фильму, трейлера и прочее.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34F2C57548438309297433776A17223101A70A6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028398   (690275) от 22.06.2016
-
-Проекты - VideoHive - Flat App Promo [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_690275.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flat App Promo - презентационный промо-ролик. Это версия №2 от 4 июня 2015.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E074427422C981D090B21B30EF31E2D3F9A3E639
 ```
 
 https://mybot314.ru/tekegram_catalog/

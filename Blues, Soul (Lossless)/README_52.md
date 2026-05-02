@@ -1,3 +1,119 @@
+###  Публикация: 1541757   (642473) от 04.04.2022
+
+Eb & Hal - On My Way Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm on My Way Home (4:26)
+02. Can't Run Away from Love (5:10)
+03. In the Morning Light (4:25)
+04. Wishing (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D73EA540617BCF384697AAC2E198B12A3BEE70B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541773   (642468) от 04.04.2022
+
+Gregg Wright - Big Dawg Barkin' (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Help Is on the Way (4:31)
+02. Don't Talk to My Woman (4:57)
+03. Hey L'il Girl (5:10)
+04. Crank It Up! (4:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6DEC85F49FAE4BEE87A70CA3C4E238415C7A0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541756   (642467) от 04.04.2022
+
+Dino McGartland - Hometown Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bright Lights, Big City (3:20)
+02. Stop Breakin' Down (4:42)
+03. I Wonder Who (5:32)
+04. Got You On My Mind (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096C6B2BC62B5DDB738B509D1D09A702D3E57FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541761   (642464) от 04.04.2022
+
+Eddie Blues Barney - Give It All You Got (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give It All You Got (6:49)
+02. Welcome To The Party (5:04)
+03. Tell Me Who You Want To See (4:45)
+04. Brand New Set Of People (5:56)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:884BB7F4C7CF9CA552ED45AF239A4F1CFD685DB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541762   (642463) от 04.04.2022
 
 Electrified Soul - 61 (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -629,122 +745,6 @@ Lee Fields & The Expressions - It Rains Love (2019) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E12C0E61979FD104B0D6E5E50DF512EE95FBFB16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143296   (637473) от 17.06.2017
-
-David Gogo - Change Of Pace (2000) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sad And Lonely  (03:54) 
-02. (It's All Over Now) Baby Blue  (03:38) 
-03. Sad And Beautiful  (04:19) 
-04. By Your Side  (03:20) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0729244E9234603A5087048ECCE804E2EF639D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293458   (635505) от 04.04.2019
-
-Happy Day Singers - Gospel Songs (2000) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635505.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01.	Glory Glory Halleluja
-02.	Put A Little Love In Your Heart
-03.	We Are Going Down, Jordan(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 02:20:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B553F2F82C555C2DDA5A1BBE3804EA6802FB4C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143373   (635387) от 18.06.2017
-
-Mcdougall - Reaching for Some Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roads  (03:59) 
-02. Stranger on the Prairie  (04:55) 
-03. Shaken  (04:14) 
-04. Ten Speed  (04:28) (   Читать дальше...   )Жанр: Blues, Folk, RockПродолжительность: 00:48:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E564A74A43DFE3DC5838D70814FA97717E46E6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143389   (635381) от 18.06.2017
-
-Miss Tess - Baby, We All Know (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, World, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride That Train  (03:09) 
-02. Little Lola  (04:08) 
-03. It's So Easy To Tell  (03:16) 
-04. I Can't Help Myself  (04:36) (   Читать дальше...   )Жанр: Blues, World, CountryПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B18F7129E8A010EC1F4888CA695521810DE18B95
 ```
 
 https://mybot314.ru/tekegram_catalog/

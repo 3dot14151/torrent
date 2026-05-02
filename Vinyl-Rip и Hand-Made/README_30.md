@@ -1,3 +1,177 @@
+###  Публикация: 1157784   (495428) от 14.08.2017
+
+VA - Мельница - Песни Игоря Николаева (1987) [DSD2.0|5,64MHz/1bit|image+.cue|Vinyl-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Игорь Николаев - Незнакомка (04:18)
+02. Александр Кальянов - Старый друг (06:56)
+03. Алла Пугачева - Любимчик Пашка (03:20)
+04. Игорь Скляр - Понедельник (02:54)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CB922EAE8B71F9F5347E5FD3A4BCB4E23CB8AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404264   (494936) от 24.08.2020
+
+Rainbow - On Stage (1977) 2LP [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494936.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Intro: Over The Rainbow
+A2 Kill The King
+A3.a Man On The Silver Mountain
+A3.b Blues(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:05:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96584AF4318C25805A10726CAE2BB607AF72A563
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936557   (494011) от 12.09.2015
+
+Beth Hart - My California (2010) /2014/ [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My California (4:35)
+02. Life is Callin (3:51)
+03. Happiness... Any Day Now (4:23)
+04. Love is the Hardest (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33EB41B1872DB0A0154020F4522E08B47ED7D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243449   (491710) от 27.08.2018
+
+Sting - Brand New Day (1999) [FLAC 2.0|48/24|tracks|DVD-Audio] <Pop, Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491710.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Thousand Years
+02 - Desert Rose
+03 - Big Lie Small World
+04 - After The Rain Has Fallen(   Читать дальше...   )Жанр: Pop, Soft RockПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27E2CD874E0636EC9096A84BD77EAC022BEE7DCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1318014   (490675) от 08.08.2019
+
+София Ротару - Звёздная Коллекция (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лаванда
+02. Хуторянка
+03. Люби меня
+04. Луна-луна(   Читать дальше...   )Жанр: PopПродолжительность: 01:13:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA58E8605695D09B1A6EEDE0876797CE1396BD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1055400   (488166) от 22.09.2016
+
+Ансамбль Мелодия играет танго Оскара Строка (1979) [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Retro, Tango>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Черные глаза  3:24
+02. Неаполитанское танго  3:10
+03. Когда весна придет опять  3:06(   Читать дальше...   )Жанр: Retro, TangoПродолжительность: 00:38:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36FFACB1A13245B5EB6F20CF6E4E0E8784D8A237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 937659   (487780) от 15.09.2015
 
 AC/DC - For Those About To Rock (1981) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
@@ -571,179 +745,6 @@ Walter Trout - Survivor Blues (2019) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Blues R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CE2E97977248B4A73A38A5F2ED7A72A00288B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 702389   (469994) от 21.09.2013
-
-Хвост & Аукцыон - Чайник вина (1992) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Рок / Авангард>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469994.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Орландина (4:20)
-A2. И ночь и день (2:11)
-A3. Тайна (3:01)
-A4. Слепой (1:57)(   Читать дальше...   )Жанр: Рок / АвангардПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506E6A04F5BB2BBB92AFF19BB721F51E5BE209C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306433   (468008) от 05.08.2022
-
-T. Texas Tyler - His Great Hits (1967) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468008.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Courtin' In The Rain
-A2 I Ain't Got A Lick Of Sense
-A3 Remember Me
-A4 Filipino Baby(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:28:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:238BDC466E87923AECC91BE43A9655112EB54803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246023   (467664) от 08.09.2018
-
-Jack Dorsey's Big Band Gold - 50 Years Of Swing (The Ronco Music Library) (1983) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Jazz, Big Band, Swing>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467664.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tape 1
-A1 Night Train
-A2 Skyliner
-A3 Carnival(   Читать дальше...   )Жанр: Jazz, Big Band, SwingПродолжительность: 01:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62F7E442900F898B14CE8CC31E4B9BC3A627BEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245021   (467442) от 08.09.2018
-
-Peter Gabriel - Up (2002) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive Rock, New Wave, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Darkness
-02 - Growing Up
-03 - Sky Blue
-04 - No Way Out(   Читать дальше...   )Жанр: Progressive Rock, New Wave, PopПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B068C1F660AB66DB123712053D37A44DE2A8A52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245731   (467329) от 08.09.2018
-
-Genesis - Anthology 1970-1998 (2007) [FLAC 2.0|88.2/24|tracks|SACD] <Progressive Rock, AOR, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - On The Shoreline
-02 - Hearts On Fire
-03 - Do The Neurotic
-04 - Feeding The Fire(   Читать дальше...   )Жанр: Progressive Rock, AOR, PopПродолжительность: 45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1389C8554C8F5BC14F2F0ACA1441F54CFCFFCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568222   (464086) от 07.08.2022
-
-Down (Phil Anselmo, Pantera) - Дискография (6 releases) (1995 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Sludge Metal, Stoner Metal, Southern Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464086.jpg" />
-</div>
-
-
-###  Подробнее
-
-Down — метал-группа из США, основанная в 1991 году в Новом Орлеане. Первоначально являлась сайд-проектом музыкантов Pantera, Crowbar, Corrosion of Conformity и Eyehategod, но со временем превратилась в полноценную группу.1995 - Nola
-2002 - A Bustle in Your Hedgerow
-2007 - Over the UnderЖанр: Sludge Metal, Stoner Metal, Southern RockПродолжительность: 05:53:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:735A1C9C5D74E5EAACCD17ECD327F5DE6C9684C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

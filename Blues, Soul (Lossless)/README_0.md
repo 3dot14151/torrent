@@ -1,3 +1,119 @@
+###  Публикация: 1862462   (1064134) от 30.03.2026
+
+Nurse Boogz - Sabina Olamina 1 (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Siamese Angel Heart (6:04)
+02.  Heartprints (4:06)
+03.  HumanKind (3:09)
+04.  A Little Big Love (3:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C565403683E75E2AA8D99AB785A8D52624BBAF5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862464   (1064133) от 30.03.2026
+
+Paul Gemmell & The Black Magic Blues Band - Walkin' On Broken Souls (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Together we are strong (3:26)
+02.  You gimme that Friday feelin' (2:57)
+03.  Mercy (6:02)
+04.  Runnin' away tonight (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB10B0A0443AD7166403AB6F259C85AA68E1B09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862478   (1064130) от 30.03.2026
+
+Robben Ford - Two Shades Of Blue (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064130.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Make My Own Weather (4:27)
+02.  Jealous Guy (4:30)
+03.  Perfect Illusion (4:15)
+04.  Black Night (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B74AF932E212102E922C1848692ADEC99C50E75E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1862481   (1064129) от 30.03.2026
+
+Roy Rogers - The Sky's the Limit (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1064129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Those Bygone Days (4:11)
+02.  Just Dodgin' Bullets (3:56)
+03.  There Ain't No Goin' Back for Me (3:14)
+04.  He's a Legend (In His Own Mind) (3:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:668A61398F4CF0EA45B4BB17AF5B86E48B9C614C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1862483   (1064128) от 30.03.2026
 
 Ruben Bertrands - Roots (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Pontchartrain Shakers - Love, Peace, & Chicken Grease (2026) [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:88A356A0CEAA30CB569F7A196895C02DD6FCAEB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857845   (1059780) от 07.03.2026
-
-Red Guitar Pick - Давай Русскую 2 (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Где Пашут Трактора (3:53)
-02.  Не Надо Стесняться (3:57)
-03.  Будь Мужчиной (3:45)
-04.  Блюзы Петь (3:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA2BC74E650CCEB79F8E0EE53568C77EB0B4DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857846   (1059777) от 07.03.2026
-
-Ricky Z - Back to the Truth (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059777.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mister Please (4:13)
-02.  Congo Square (5:41)
-03.  Time Served (4:38)
-04.  Back to the Truth (4:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CA754B345163156007D4AC99A00A614B26612F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857847   (1059774) от 07.03.2026
-
-The Wildcat O'Halloran Band - Welcome to Sunderland (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Welcome Wagon (3:45)
-02.  What Part of Broken Up (4:18)
-03.  Check Her Mama (4:30)
-04.  Jody (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:555664324A9811D3221F104A9EB9A5779C8E2FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857848   (1059771) от 07.03.2026
-
-Turquoise Steel - Homeland (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1059771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Turquoise Steel, Sage Cornelius - Hitchhiking Blues (4:29)
-02.  Turquoise Steel, Sage Cornelius - Next Big Thing (3:48)
-03.  Turquoise Steel, Levi Platero - Blue State of Mine (3:30)
-04.  Soul Dimension (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87F34E6A332FD6459ED38F66528E4352F07C60E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

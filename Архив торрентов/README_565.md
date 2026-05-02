@@ -1,3 +1,55 @@
+###  Публикация: 1094136   (929868) от 17.01.2017
+
+Хеллоуин Мэдеи / Boo A Madea Halloween  (2016) BDRemux [H.264/1080p] [EN / EN, Sp Sub]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Беспокойный папаша переживает, чтобы его дочка-подросток не натворила дел на Хэллоуин. Она собирается отпраздновать его с друзьями и провести время на улетной вечеринке. Ее отец просит пожилую Мэдею последить за ней и обещает за это заплатить. Мэдея соглашается, но она и не предполагала, что ей придется столкнуться в эту ночь с призраками, киллерами, паранормальными (   Читать дальше...   )Производство: СШАЖанр: ужасы, комедияРежиссер: Тайлер ПерриАктеры: Тайлер Перри, Кассандра Дэвис, Патрис Ловели, Белла Торн,  Андре Холл, Брок О’Херн, Лиза Коши, Даймонд Уайт, Киан ЛоулиПеревод: ОтсутствуетЯзык озвучки: АнглийскийЯзык субтитров: английский, испанскийПродолжительность: 01:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79C68F4C477C4D36C182F6D57B86355CC617A327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093757   (929867) от 17.01.2017
+
+Windows Repair (All In One) 3.9.22 Pro RePack by tolyan76 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Repair (All In One) - инструмент для ремонта системы. Предназначен для восстановления различных параметров Windows к их значениям по умолчанию. Помогает исправить большинство известных проблем, в том числе ошибки реестра и права доступа к файлам, а также проблемы с Internet Explorer, Windows Update, Windows Firewall и многое другое. Перед запуском Windows (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88FD505C66B6AAA8732A29B34E440DF465F4FC62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094445   (929864) от 17.01.2017
 
 CCleaner 5.26.5937 Free | Professional | Business | Technician Edition RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -661,64 +713,6 @@ Clearview - Программа для удобного чтения электр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DC83DAE4E47DBDFAA3A97994DB34A99A718D09E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094553   (929383) от 18.01.2017
-
-VA - Utopia Electrifying (By Cortex) (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cortex - Ouija (Original Mix) 08:01
-02. D-Ther - Human Nature (Original Mix) 08:10
-03. Cortex - The Enter Sandman (Original Mix) 06:07
-04. Paradox - Trendy Things (Original Mix) 07:29(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:12:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAF32CF9FC1CE823230B4BB8CC6FB4B65DC2668
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094456   (929377) от 18.01.2017
-
-Command Strange - Episode 91 (2011) [FLAC|Lossless|image + .cue] <Drum & Bass, Liquid Funk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. True Love (5:17)
-02. Sweet Nightmare (5:11)
-03. Dreams (5:11)
-04. Miracles (5:12)(   Читать дальше...   )Жанр: Drum & Bass, Liquid FunkПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77F6B4A59FA2F42C8E3CCD32307F59476C800C3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1077644   (243364) от 01.12.2016
+
+National Youth Jazz Orchestra - Portraits (1990) [FLAC|Lossless|image + .cue] <Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues At The Bull (3:41)
+02. Woody (5:04)
+03. Basie (4:48)
+04. Dizzy (4:41)(   Читать дальше...   )Жанр: Big BandПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C38B9F29EFFED64853428140E57E7F7B87B807
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633560   (243363) от 15.05.2023
+
+Kei Marimura - P.S. I Love You (1983) 1986, Teichiku Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Autumn Leaves [3:35]
+02. You'd Be So Nice to Come Home To [2:36]
+03. Day by Day [4:09]
+04. Cheek to Cheek [3:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52A5FD52DDA63F4B05261DDA0CA37A314FAC6887
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456188   (243360) от 21.03.2021
 
 VA - Quarantine Doom Jazz vol. 4 (2021) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Jazz Noir>
@@ -687,64 +745,6 @@ Paul Gonsalves - Gettin' Together! (1960) 1987, Original Jazz Classics[FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E7195811996005F3C720E894FFA95D204186220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098201   (242815) от 29.01.2017
-
-Guy Barker - Timeswing (1996) 2000, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Timeswing [07:42]
- 02.Cat Strut [10:15]
- 03.Duke Ellington's Sound Of Love [06:09]
- 04.The Whole Bit [06:07](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:07:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8031FDF864A8FFD57A9312F8DFCCBC385182F523
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1098182   (242796) от 29.01.2017
-
-Sonny Fortune - From Now On (1996) Blue Note[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Glue Fingers [09:55]
- 02.This Side Of Infinity [06:30]
- 03.From Now On [07:26]
- 04.Come In Out Of The Rain [10:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19E8ADBA477E8554163C73D152F4C5D6AF97534B
 ```
 
 https://mybot314.ru/tekegram_catalog/

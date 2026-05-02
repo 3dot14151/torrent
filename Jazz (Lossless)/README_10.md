@@ -1,3 +1,61 @@
+###  Публикация: 1447833   (1031406) от 15.02.2021
+
+Django Reinhardt - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Melancholy Baby [2:50]
+02. Japanese Sandman [3:08]
+03. Tea for Two [3:14]
+04. I Wonder Where My Baby Is Tonight? [2:48](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 01:03:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:841FBD348EC40726019A3D038BC1CC1C04DA3199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1447839   (1031404) от 15.02.2021
+
+Django Reinhardt - 1937 - 1938 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Had to Be You [2:45]
+02. Sweet Sue, Just You [2:30]
+03. Honeysuckle Rose [2:55]
+04. Sweet Georgia Brown [3:09](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25ACAB0C9492EB0AEEADFAA62A1D849B372194B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1447816   (1031396) от 15.02.2021
 
 Dakh Daughters - Make Up (2021) [FLAC|Lossless|WEB-DL|tracks] <Cabaret, Jazz, Folk>
@@ -689,64 +747,6 @@ Vince Guaraldi - Alma-Ville (1969) 2005, Wounded Bird Records [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:627FE901BA6227FEC41B2A30D6F1482EBD33F94F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623077   (1029606) от 31.03.2023
-
-Red Norvo - Improvisations (1944) 1987, Mercury [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Subtle Sextology [3:49]
-02. Blues A La Red (alternate take) [4:16]
-03. Blues A La Red [4:04]
-04. The Man I Love [4:17](   Читать дальше...   )Жанр: SwingПродолжительность: 00:57:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:495B9654E38F409380259E4C740D960EC70032C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449819   (1029591) от 23.02.2021
-
-Lucky Millinder - 1943 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Me [2:47]
-02. That's All [2:04]
-03. Trouble in Mind [2:41]
-04. Rock Daniel [2:40](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1665B458746E33FA22DE4449C5A47056719CA50
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,24 +1,24 @@
-###  Публикация: 1790719   (68060) от 10.04.2025
+###  Публикация: 1784177   (69608) от 09.03.2025
 
-И.И. Новошинский, Н.С. Новошинская | Органическая химия. Учебник для 11 (10) класса  (углублённый уровень) (2018) [PDF]
+Чёрные дыры. Белые пятна (01.03.25) WEBRip [H.264]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник «Органическая химия» углублённого уровня соответствует Федеральному государственному образовательному стандарту среднего (полного) общего образования.
-
-В основу курса положена классификация органических соединений по функциональным группам. Особое внимание уделено генетической связи не только между классами органических соединений, но и между всеми веществами (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: Русское слово - учебникФормат: PDFКачество: Изначально электронное (ebook)
+Черные дыры остаются таким же символом смелой научной гипотезы, как белые пятна – символом научной тайны.
+"Черные дыры. Белые пятна"— телеальманах, цикл познавательных программ.
+В этом выпуске: новые штаммы вирусов, новости робототехники, "сильный" искусственный интеллект.Телекомпания: КультураЖанр: телепередача, документальный, наукаРежиссер: Александр МитрошенковПродолжительность: 00:39:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD24F933334323736A42FAF40BA34223DCFBC598
+magnet:?xt=urn:btih:77D3D1CB7D8BACFDBA14AE03DB5B5379A50450D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,25 +26,228 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790765   (68059) от 10.04.2025
+###  Публикация: 1783726   (69607) от 09.03.2025
 
-Растровый клипарт - STCrafts - Creative Fabrica - Rainbow Liquid Marble Digital Paper [PNG]
+Gary Numan - Berserker (1984) Extended; Remaster;  2025; BMG [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Berserker (2025 Remaster)
+02 – This Is New Love (2025 Remaster)
+03 – The Secret (2025 Remaster)
+04 – My Dying Machine (2025 Remaster)(   Читать дальше...   )Жанр: Synthpop, New WaveПродолжительность: 01:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17640F56DEA11D0F92D9F06807215BDF22463197
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784105   (69606) от 09.03.2025
+
+Bud Powell - The Bud Powell Trio Plays (1947, 1953) 1990, Roulette Jazz [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Remember April [2:47]
+02. Indiana [2:39]
+03. Somebody Loves Me [2:48]
+04. I Should Care [2:55](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F38817CA99273D1AA8032BF737A04922E66B4C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784152   (69605) от 09.03.2025
+
+Sun Ra - Lights On A Satellite: Live At The Left Bank (1978) 2CD, 2024, Resonance Records [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cocktails for Two [4:27]
+02. Watusi [11:23]
+03. They Plan to Leave [9:10]
+04. Images in a Mirror [4:09](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Jazz, Big BandПродолжительность: 01:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89A5CA76DF0F81B83CAD5381DC62CDFF55A827BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784102   (69604) от 09.03.2025
+
+Art Pepper - So In Love (1979) 2004, Analogue [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69604.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight No Chaser [6:24]
+02. Blues for Blanche [6:47]
+03. So in Love [11:36]
+04. Diane [12:17](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFAB2D7F5C7B815F5BE7EFA1F69A4582E6A15DE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784156   (69603) от 09.03.2025
+
+Max Roach & Dizzy Gillespie - Max + Dizzy: Paris (1989) 2CD, 1990, A&M Records [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Dreaming [2:34]
+02. Nairobi [9:27]
+03. Allen's Alley [5:04]
+04. The Theme [0:54](   Читать дальше...   )Жанр: BopПродолжительность: 02:06:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:255CA4F1A3D78389593A3E19CDDE8C096459C96C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784224   (69602) от 09.03.2025
+
+Drunkskull - Realive (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69602.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Of My Head
+02. Don’t Thread On Me
+03. Nigthmare
+04. 4 AM(   Читать дальше...   )Жанр: Heavy Thrash MetalПродолжительность: 01:07:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DA4AC961379DBA84F7042F7A2CF20037B6852D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1783743   (69601) от 09.03.2025
+
+Kaiser - 2nd Sound (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Stoner Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brotha [05:14]
+02. 1.5 Dozen [04:13]
+03. Meteorhead [05:31]
+04. Oversized Load [04:44](   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F21624B50793E560A6E005567AF5A3D736E92D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784069   (69600) от 09.03.2025
+
+Растровый клипарт - Dealjumbo.com - Deeezy - Modern Metalic - Free 3D Lettering - 26070 [PNG]
 
 >>Материалы для мультимедиа и дизайна
 >>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Изображения под мрамор.Формат: PNGРазрешение файлов: 3600 x 3600
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 x 800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DDACCAA5EFB16BAC9C7398DDB306FD7123F358E
+magnet:?xt=urn:btih:B3546B6E4D469B153614D49B24F6EA3F1FF5B3E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -52,25 +255,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790605   (68058) от 10.04.2025
+###  Публикация: 1784070   (69599) от 09.03.2025
 
-В.В. Еремин, А.А. Дроздов, В.В. Лунин | Химия. Введение в предмет. Учебник для 7 класса (2023) [PDF]
+Растровый клипарт - Dealjumbo.com - Deeezy - Bullets - Free 3D Lettering - 30804 [PNG]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69599.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник написан преподавателями химического факультета МГУ им. М. В. Ломоносова и готовит обучающихся к восприятию нового предмета. Отличительными особенностями книги являются простота и наглядность изложения материала, высокий научный уровень, большое количество иллюстраций, экспериментов и занимательных опытов, что позволяет использовать её в классах и школах с (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 x 800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B7DE2D6C2F4EB7EA337DB47341A62071B881F2E1
+magnet:?xt=urn:btih:F68C9E707B704FA94C99782514E1531537C9ADED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -78,25 +281,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790607   (68057) от 10.04.2025
+###  Публикация: 1784067   (69598) от 09.03.2025
 
-В.В. Еремин, Н.Е. Кузьменко, А.А. Дроздов и др. | Химия. Учебник для 8 класса (2022) [PDF]
+Растровый клипарт - Dealjumbo.com - Deeezy - Parings - Free 3D Lettering - 30394 [PNG]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69598.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник написан преподавателями химического факультета МГУ им. М. В. Ломоносова. Отличительными особенностями книги являются простота и наглядность изложения материала, высокий научный уровень, большое количество иллюстраций, экспериментов и занимательных опытов, что позволяет использовать её в классах и школах с углублённым изучением естественно-научных предметов.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 × 800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6354D206FF3BFF106E1924273C3710244D1E7F1B
+magnet:?xt=urn:btih:C523BB8F335EF0C77DA5A4A666845EC6DA27C95A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -104,25 +307,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790828   (68056) от 10.04.2025
+###  Публикация: 1783738   (69597) от 09.03.2025
 
-XYplorer 27.00.0200 + Portable [Multi/Ru]
+Sadist - Something to Pierce (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Death Metal>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69597.jpg" />
 </div>
 
 
 ###  Подробнее
 
-XYplorer – удобный многовкладочный файловый менеджер, ориентированный на пользователей, которые хотят найти достойную замену стандартному проводнику Windows. Внешне напоминает стандартный проводник, но обладает большей функциональностью и множеством дополнительных возможностей для удобной работы с файлами. Особенностью XYPlorer является возможность открытия каждого (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+01 – Something to Pierce
+02 – Deprived
+03 – No Feast for Flies
+04 – Kill Devour Dissect(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:38:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B45F4E15F00C251D9188F7E56B080BA8E1659304
+magnet:?xt=urn:btih:F1A0909CA39A48D24E386D903A4AF827A22F2B59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -130,25 +336,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790608   (68055) от 10.04.2025
+###  Публикация: 1784075   (69596) от 09.03.2025
 
-В.В. Еремин, Н.Е. Кузьменко, А.А. Дроздов и др. | Химия. Учебник для 9 класса (2022) [PDF]
+Растровый клипарт - Dealjumbo.com - Deeezy - Safety Pins - Free 3D Lettering - 30350 [PNG]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68055.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69596.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учебник написан преподавателями химического факультета МГУ им. М. В. Ломоносова. Отличительными особенностями книги являются простота и наглядность изложения материала, высокий научный уровень, большое количество иллюстраций, экспериментов и занимательных опытов, что позволяет использовать её в классах и школах с углублённым изучением естественно-научных предметов.Жанр: УчебникЯзык: РусскийИздательство: ПросвещениеФормат: PDFКачество: Изначально электронное (ebook)
+Бесплатный алфавит-латиница. Материал раздается с официальной документацией.Разработчик: Dealjumbo.comФормат: PNGРазрешение файлов: 800 x 800
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E838525CA6FA94AA19D24639E63A74A3B394F6CB
+magnet:?xt=urn:btih:3C965F8641B90B9971F63590E299C263C1ADA481
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -156,25 +362,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790609   (68054) от 10.04.2025
+###  Публикация: 1784213   (69595) от 09.03.2025
 
-И.И. Новошинский, Н.С. Новошинская | Химия. Пропедевтический курс. Учебное пособие для 7 класса (2020) [PDF]
+Первая передача на НТВ. Автомобильная передача (09.03.2025) WEBRip [H.264/720p]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68054.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69595.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Содержание пропедевтического курса составляют первона­чальные сведения о чистых веществах и смесях веществ, рас­творах, простых и сложных веществах, физических и химичес­ких явлениях, основных классах неорганических соединений, веществах, окружающих нас в повседневной жизни. Изучение этого материала позволяет подготовить обучающихся к воспри­ятию систематического (   Читать дальше...   )Жанр: Учебное пособиеЯзык: РусскийИздательство: Русское слово - учебникФормат: PDFКачество: Обработанный скан
+«Подкрадули» для шоферов: обувь безопасная для дорожного движения и для здоровья водителя.
+ Кто и зачем отслеживает, и глушит «умные» машины?
+ «Я вам не дойная корова!»: участницу ДТП затаскали по судам. Почему размер ущерба может увеличиться?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:25:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77854A6D0A6016519B9278386059C6C5E9B5DE36
+magnet:?xt=urn:btih:E64697AD6EAE27FDAA0205DA308CFB73C7906C54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -182,26 +390,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790803   (68053) от 10.04.2025
+###  Публикация: 1784017   (69594) от 09.03.2025
 
-discoDSP - OB-Xd 3.7.3 STANDALONE, VSTi, VSTi 3 (x64) [En]
+Sadao Watanabe - A Night With Strings (1993) Elektra [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Mainstream Jazz>
 
->>Архив торрентов
->>Архив Программ
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68053.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69594.jpg" />
 </div>
 
 
 ###  Подробнее
 
-OB-Xd — это классический синтезатор с неподвластным времени звучанием, которое продолжает очаровывать как музыкантов, так и продюсеров. OB-Xd был разработан для воссоздания звучания и поведения Oberheim OB-X
-Благодаря насыщенным, полноценным тембрам и широким возможностям звукового дизайна OB-Xd — идеальный выбор для тех, кто хочет придать своей музыке винтажный (   Читать дальше...   )Язык интерфейса: Английский
+01. I Thought About You [6:15]
+02. Beautiful Love [4:25]
+03. The Christmas Song [5:10]
+04. In the Wee Small Hours of the Morning [5:33](   Читать дальше...   )Жанр: Smooth Jazz, Mainstream JazzПродолжительность: 01:07:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3DDFBB218FFF388D632466765F38A22D7E9D009D
+magnet:?xt=urn:btih:9B26C0514340A49B828D59DE7055C130747027EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -209,25 +419,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790798   (68052) от 10.04.2025
+###  Публикация: 1784397   (69593) от 10.03.2025
 
-Magic Eraser / Магический ластик v2.21.9 Mod by Maximoff⁠ [Ru/En]
+Bluebird, Skoko - Trust Your Mojo, Sista (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68052.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69593.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Magic Eraser - это революционное приложение для редактирования фотографий, созданное для трансформации ваших фотографий в великолепные визуальные образы с помощью профессиональных инструментов редактирования. Используя мощь интеллектуального искусственного интеллекта, это приложение предлагает широкий спектр функций, которые подойдут как любителям фотографии, так (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 09.04.2025Разработчик: AI Photo Editor & AI Art GeneratorПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Английский
+01.  Girls' Minds are Tricky (4:19)
+02.  Sugarbabe, Sugarbabe (3:44)
+03.  This Soul is Mine (6:26)
+04.  Trust Your Mojo, Sista (5:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:325A06BC69A84CB1814F2256905E1159471610B6
+magnet:?xt=urn:btih:1AAA1FC078C3F2427BDFAAAEF9EC7BAE8EDE3D83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -235,27 +448,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790611   (68051) от 10.04.2025
+###  Публикация: 1784377   (69592) от 10.03.2025
 
-И.И. Новошинский, Н.С. Новошинская | Химия. Учебник для 8 класса (2013) [PDF]
+Ernestronix (Ernesto) - Synths Earth Orbit (New Dimensions) (2025) [MP3|320 Kbps] <Spacesynth, Space-Dance>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Electronic
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68051.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69592.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данный учебник предназначен для общеобразовательных учреждений: школ, гимназий и лицеев. В нём изложены первоначальные основы химии. Его отличает нетрадиционный подход к структурированию материала.
-
-Книга знакомит школьников с основными химическими понятиями, важнейшими классами неорганических соединений, строением атома и Периодической системой химических элементов (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: Русское слово - учебникФормат: PDFКачество: Изначально электронное (ebook)
+01. Legacy (4:15)
+02. Vision (6:58)
+03. Interceptor Adventure in the Hyperspace (6:16)
+04. Tunnel of Long Time (5:22)(   Читать дальше...   )Жанр: Spacesynth, Space-DanceПродолжительность: 01:57:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0F79FDD70F06B60CAA8AED246A97ADB6D411ABC
+magnet:?xt=urn:btih:A5C745C50FED961EF380A9CA0B25D73514C8DC9A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -263,27 +477,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790659   (68050) от 10.04.2025
+###  Публикация: 1784226   (69591) от 10.03.2025
 
-Шрифты - Creative Market - Classic BarberShop - 3700965 [OTF, TTF, WOFF, WOFF2]
+Edge of Paradise - Prophecy (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69591.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Death Note [00:04:04]
+02. Give it to Me (Mind Assassin) (feat. Ludovico Technique) [00:03:53]
+03. Prophecy Unbound [00:04:19]
+04. Sad Life of a Rose [00:04:23](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE61EF649FF00DEC6B8E873C8698CBA3CB7D5CBE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784283   (69590) от 10.03.2025
+
+Александр Пушкин | Руслан и Людмила (Радиоспектакль) (2025) [MP3, Вадим Прохоров, Юрий Елагин и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Театр у вас дома.
+Александр Сергеевич Пушкин (1799–1837) – великий русский поэт, драматург, прозаик, историк, литературный критик и журналист, создатель современного русского литературного языка.
+Первая законченная поэма А.С. Пушкина «Руслан и Людмила» дарит нам удивительный, чарующий мир пушкинских стихов. Мы словно наяву видим, как герои сражаются с (   Читать дальше...   )Жанр: Русская литература, классика, поэмаИздательство: Радио России – Санкт-ПетербургПродолжительность: 01:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9C1E2FC139EFB3D08C0BBFF53EDBBE4CABC76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784343   (69589) от 10.03.2025
+
+Шрифты - MyFonts - Qualion Round [OTF]
 
 >>Материалы для мультимедиа и дизайна
 >>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68050.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69589.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем шрифт в винтажном стиле под названием "Classic BarberShop". Этот шрифт имеет 7 стилей (включая стили с эффектом наложения слоев). Бонусом к шрифту идут готовые четыре дизайна футболок в формате EPS10, JPG и PNG (с прозрачным фоном).
+Qualion Round™ — мягкий геометрический шрифт без засечек с множеством росчерков и лигатур, родной брат успешного семейства Qualion.
 
-Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+Кириллица не поддерживается.Формат: OTF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5EE5EC01F006B36238FC5B943650D990121209F6
+magnet:?xt=urn:btih:F0FFFBA77C856E55DE8145E61691383908153621
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,25 +562,113 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790563   (68049) от 10.04.2025
+###  Публикация: 1784410   (69588) от 10.03.2025
 
-Газета | Загадки истории №10 (636) (2025) [PDF]
+Ellis Mano Band - Morph (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Virtually Love (2:58)
+02.  Count Me In (3:13)
+03.  20 Years (4:39)
+04.  For All I Care (4:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EF4D69C0AC4BDC5D62E7CE9A0E1952E3AC3A1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784386   (69587) от 10.03.2025
+
+19-Twenty - Call It What You Want (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Boogie Man (3:06)
+02.  Just Don't Understand It (2:52)
+03.  Havin' A Good Time (3:07)
+04.  Everybody Knows (5:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3602F073D3C14D17CABA8FA80D34D0BC48B570E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784362   (69586) от 10.03.2025
+
+Пресеты - We Are Memory Catchers - The Wildling Collection [XMP]
+
+>>Материалы для мультимедиа и дизайна
+>>Дополнения
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69586.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мечтаете о снимках в землистых тонах с мгновенной глубиной и драматизмом? Я вас понимаю.
+
+Встречайте коллекцию Wildling.
+(   Читать дальше...   )Формат: XMP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39AF00B4D85CD695535B9FC796625CE81449C0E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784304   (69585) от 10.03.2025
+
+Журнал | Монокль №11 (1379) (10-16 марта 2025) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68049.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69585.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+Деловой журнал «Монокль» – новое и старое издание одновременно. С 16 октября 2023 года его издает команда журналистов, которая в течение 28 лет делала журнал «Эксперт».
+В «Монокле» вы найдете макроэкономический анализ, прогнозы, обзоры конъюнктурных рынков и отраслей – от природного газа до изготовления манекенов, анализ финансовых рынков и новости финансовой политики (   Читать дальше...   )Жанр: Деловой журналИздательство: Александр ПопцовФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2916326C581395FDF5A655BD589C771D15E3B2CB
+magnet:?xt=urn:btih:DFA1D331AB41001DF594F0A2757BD916A20E8660
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -317,25 +676,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790795   (68048) от 10.04.2025
+###  Публикация: 1784390   (69584) от 10.03.2025
 
-PowerDirector – Video Editor v15.0.2 Mod by Balatan [Ru/Multi]
+Billy F Gibbons - Cruising with Billy F Gibbons (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69584.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отмеченный «Выбором редакции» Google Play, PowerDirector является ведущим мобильным полнофункциональным видеоредактором, позволяющим создавать видео в разрешении 4К, редактировать в многодорожечном режиме и публиковать полученный результат на YouTube, Instagram и Facebook! Завоевав любовь и доверие 70 миллионов пользователей по всему миру, о чем свидетельствуют 4.5-звездочные (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 09.04.2025Разработчик: Cyberlink CorpПоддерживаемая ОС: Android 8.0+Язык интерфейса: Русский / Мульти
+01.  Livin' It Up Down In Texas (4:45)
+02.  Missin’ Yo’ Kissin’ (3:19)
+03.  My Lucky Card (2:34)
+04.  Rollin’ And Tumblin’ (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:24:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:46421C592556058A64C48BED11272212C36C3A4B
+magnet:?xt=urn:btih:A0424562A662E4941CD31EEAE9549DFE7C564089
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,350 +705,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790772   (68047) от 10.04.2025
+###  Публикация: 1784434   (69583) от 10.03.2025
 
-Лиса и волк (1937) WEBRip
-
->>Мультфильмы
->>Отечественные Мультфильмы 20-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68047.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первый цветной фильм киностудии "Мосфильм". По мотивам народных сказок.
-Лиса утащила у деда с бабой пирожок и обменяла его на бычка. Смастерила тележку, впрягла бычка и поехала, но по дороге встретила притворившегося больным Волка.Производство: СССР / МосфильмЖанр: кукольный, детский, короткометражныйРежиссер: Сарра МокильАктеры: В. Градова, Михаил ДагмаровСубтитры: отсутствуютПродолжительность: 00:18:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ECA4DC7C057F2C0859E936FA0D6F83207316DFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790565   (68046) от 10.04.2025
-
-Газета | Загадки истории №11 (637) (2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68046.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCFF9848A765B4F5BD6D3C0B86CADA40E21B19DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790681   (68045) от 10.04.2025
-
-Bob Sinclar - Born in 69 (2009) Remixed, 2024, Yellow productions [FLAC|Lossless|WEB-DL|tracks] <House, Electro House, Dance-pop>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New New New (Avicii Remix Edit) [00:03:06]
-02. Lala Song (Tocadisco Remix) [00:05:35]
-03. Love You No More (Chuckie Remix) [00:05:41]
-04. What A Wonderful World (Greg Cerrone Remix) [00:03:03](   Читать дальше...   )Жанр: House, Electro House, Dance-popПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B57543787A79B3303CFAF9E364D97EE810D7D06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790800   (68044) от 10.04.2025
-
-Smart AudioBook Player Pro v11.2.2 Mod by Alex.Strannik [Ru/Multi]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68044.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа разработана специально для проигрывания аудиокниг. Предполагается, что у Вас есть аудиокниги и Вы их уже скопировали на телефон. Воспроизведение форматов: opus, mp3, m4a, m4b, awb, ogg, wma (можно слушать книги, конвертированные для Nokia).Тип издания: FullРелиз состоялся: 10.04.2025Разработчик: Александр КравченкоПоддерживаемая ОС: Android 11+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB71AEB9A22B61162A8B65259D2D21E88A5F0C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790818   (68043) от 10.04.2025
-
-VA - The Sound of 2025, Chapter 3: London (Sunset Mix) (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Testas - Flowering Heather (Original Mix - Mixed) [6:31]
-02. Rama (AR) & AØVA - 1974 (Zy Khan Remix - Mixed) [4:44]
-03. Jody Vukas - Tomahawk (Original Mix - Mixed) [5:07]
-04. Ger Marino - The End Is The Beginning (Original Mix - Mixed) [5:26](   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, TranceПродолжительность: 02:22:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA02FA28DA13D10337230658444002BAA82BA35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790767   (68042) от 10.04.2025
-
-Растровый клипарт - Pattern Universe - Creative Fabrica - Sparse Flowers Seamless Patterns [JPG]
+Шрифты - Envato - Royall Milku - Playful & Kids Display Font - 6BSB5PF [OTF, TTF, WOFF]
 
 >>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
+>>Шрифты
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68042.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69583.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 бесшовных узоров (орнаментов) в виде цветов.Формат: JPGРазрешение файлов: 3600 x 3600
+Представляем Royall Milku - шрифты имеют заглавные и строчные буквы, цифры и знаки препинания, многоязычную поддержку и функции Opentype.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFB2CE4780F9EACFD01010ADAA3AF0D91DB2795B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790769   (68041) от 10.04.2025
-
-Растровый клипарт - Rose Art - Creative Fabrica - Spring Blue Orchid Sublimation Clipart [PNG]
-
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (элементы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Изображения орхидей c разрешением 300 DPI.Формат: PNGРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10413439843C4D2F25BF751B4F6D6D0A7ED3C69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790713   (68040) от 10.04.2025
-
-VA - Cosmic [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Progressive HouseПродолжительность: 00:53:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:430B527030D5AB87836DEE3BB100F6D948EDBB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790700   (68039) от 10.04.2025
-
-VA - Vodoley [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kandi & Fitch, Estella Warren - Sunset Beach (Deep House Mix)
-02. Denis A - Another
-03. Qubica - Prisma (Original Mix)
-04. Mylo - Paris Four Hundred(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7910774B32341731879B8E8054EB1EF38B51EB66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790731   (68038) от 10.04.2025
-
-VA - Night [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Амирчик - Эта любовьЖанр: Progressive HouseПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A351161BF40FD222D4CCE4149F73F464F3C485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790710   (68037) от 10.04.2025
-
-VA - Vesna [mixed by DJ Юrkanik] (2025) [MP3|320 Kbps] <Nu Disco, Funky House, Jackin House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68037.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Michael Zager Band - Band Let's All Chant
-02. Purple Disco Machine - Beat Fantasy
-03. Mike Chenery - Dirty Funkin' Beats
-04. King Midas; Mike Chenery - Clubbing All WeekЖанр: Nu Disco, Funky House, Jackin HouseПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BD59A862E13F334B7081BFE2EB17490EEE30D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790637   (68036) от 10.04.2025
-
-Spin Rhythm XD (2023) [Ru/Multi] (1.5.0/dlc) Repack FitGirl
-
->>Win Игры
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Spin Rhythm XD - яркая и динамичная ритм-игра, в которой вам предстоит подбирать в такт мелодиям соответствующие цвета. Доступна полоса, на которой расположены ноты. Требуется вращать доску, нажимать необходимые клавиши в такт песне и исследовать вселенную в поисках самых сочных ритмов. Все песни, звучащие в Spin Rhythm XD выполнены в электронном стиле. Все задники (   Читать дальше...   )Тип издания: RepackРазработчик: Super Spin DigitalЖанр: Экшены, Казуальные игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:812C7A36E6455D97F66068D83EACAA3CE96E450C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790696   (68035) от 10.04.2025
-
-И.И. Новошинский, Н.С. Новошинская | Химия. Учебник для 10 (11) класса  (базовый уровень) (2016) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материал учебника направлен на обобщение и углубление знаний, полученных учащимися в курсе химии 8–9 классов. В учебнике изложены теоретические основы общей химии: современные представления о строении атома и природе химической связи; основные закономерности протекания химических процессов, в том числе электролиза, коррозии; общие свойства неметаллов и металлов; (   Читать дальше...   )Жанр: УчебникЯзык: РусскийИздательство: Русское слово - учебникФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92BF1696827B9CD49FDEFF5FD2B51A6C9F3FDC81
+magnet:?xt=urn:btih:277216046B02BDE09F3A83A3FD637D3913AD87EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

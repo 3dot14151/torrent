@@ -1,3 +1,32 @@
+###  Публикация: 1575855   (373364) от 11.09.2022
+
+Stratovarius - Twilight Time (1992) Remastered, 1993, Victor [OGG Vorbis|485 Kbps] <Rock, Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.		Break The Ice	4:42
+02.		The Hands Of Time	5:35
+03.		Madness Strikes At Midnight	7:19
+04.		Metal Frenzy	2:20(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:42:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05AF427BDB3360B115C808F2D9EDBA66981416CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254546   (373185) от 14.10.2018
 
 VA - Running with Rock!!! 2018 Session [MP3|320 Kbps] <Rock, Miscellaneous>
@@ -728,35 +757,6 @@ Nutz - Nutz Too... (1975) LP, First Press, A&M Records [MP3|320 Kbps] <Rock, Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1227809A3B3B96244462A2D23F9D5DB5D866C978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416035   (367501) от 16.10.2020
-
-ZZ Top - ZZ Top FM Broadcast June 1980 (2020) [MP3|320 Kbps] <Blues Rock, Southern Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Thank You (Live)
-02. Jesus Just Left Chicago (Live)
-03. I'm Bad, I'm Nationwide (Live)
-04. Low Down In The Street (Live)(   Читать дальше...   )Жанр: Blues Rock, Southern Rock, Classic RockПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ACA10101817645C27B3EE9171F608C2033EE0F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

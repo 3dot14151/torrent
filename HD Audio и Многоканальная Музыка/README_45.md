@@ -1,3 +1,177 @@
+###  Публикация: 1185670   (291218) от 22.11.2017
+
+Kylie Minogue - Kiss Me Once (2014) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291218.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Into The Blue (4:08)
+A2. Million Miles (3:28)
+A3. I Was Gonna Cancel (3:32)
+B1. Sexy Love (3:31)(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E11EB57202FECA161229462EE4BAEE05DFBD690
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185592   (291034) от 22.11.2017
+
+ABBA - Ring Ring (1973) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Vocal, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291034.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ring, Ring 3:05
+A2 Another Town, Another Train 3:12
+A3 Disillusion 3:03
+A4 People Need Love 2:45(   Читать дальше...   )Жанр: Vocal, PopПродолжительность: 00:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BA908E30EA0636C0755049A73F492ADDF4F91EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185452   (291016) от 22.11.2017
+
+Amy Winehouse - Back To Black (2007) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rhythm & Blues, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291016.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Rehab
+A2 You Know I'm No Good
+A3 Me & Mr Jones
+A4 Just Friends(   Читать дальше...   )Жанр: Rhythm & Blues, SoulПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D8CBB97A133E7372398210D86F9DE6A5DB65E7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1185733   (290893) от 22.11.2017
+
+Queen - The Works (1984) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290893.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Radio Ga Ga (5:49)
+A2. Tear It Up (3:29)
+A3. It's A Hard Life (4:08)
+A4. Man On The Prowl (3:29)(   Читать дальше...   )Производство: EMI - 1C 064 2400141Жанр: RockПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831CE912F07CC99C2040D0273DC663436025ED9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080374   (290157) от 06.12.2016
+
+Barclay James Harvest - Everyone Is Everybody Else (1974) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290157.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Child of the Universe (5:07)
+A2. Negative Earth (5:34)
+A3. Paper Wings (4:20)
+A4. The Great 1974 Mining Disaster (4:38)(   Читать дальше...   )Производство: Polydor - 2383 286Жанр: Progressive RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F0AA08A7A344B5A54BBF4625937C76445773682
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263131   (289767) от 18.11.2018
+
+Lehotka Gabor - J. S. Bach. Organ Music (1966) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Classical, Baroque>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289767.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 C-Dur Preludium Es Fuga BWV 545
+A2 F-Moll Preludium Es Fuga BWV 534
+   Esz-Dur Trioszonata BWV 525
+A3a I. Allegro Moderato(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:043DB6865AC7A3DA3B7E74CC914180D2B0C857A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 269645   (289373) от 13.12.2010
 
 Pink Floyd - The Dark Side of the Moon (1973) (Vinyl Rip 24/192) [FLAC|Lossless] <Rock>
@@ -571,176 +745,6 @@ I. Musical Demonstration Section: Classical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B9FB46C50AC457080CCCE4DB3E0ADACE17AE624
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 101957   (267273) от 05.12.2018
-
-Vivaldi - Flute Concerti, Op. 10 (2005) [MLP 5.1 48/24 |DVD-Audio]<Classical>
-
->>HD Audio и Многоканальная Музыка
->>DVD-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267273.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ClassicalФормат: DVD-Audio, MLP 5.1 48/24, DD 5.1, DTS 5.1Продолжительность: 1:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4326582C7AF522858631E014508B6B98605F0029
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191929   (263708) от 15.12.2017
-
-Electric Light Orchestra - A New World Record (1976) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263708.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Tightrope (5:04)
-A2. Telephone Line (4:40)
-A3. Rockaria! (3:12)
-A4. Mission(A World Record) (4:27)(   Читать дальше...   )Производство: United Artists - GP 530Жанр: Progressive RockПродолжительность: 00:36:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDBD5D10CE6E703E5EE4343BB379C0BDBBA1EEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192188   (263373) от 16.12.2017
-
-Electric Light Orchestra - Face The Music (1975) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263373.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fire On High (5:31)
-A2. Waterfall (4:12)
-A3. Evil Woman (4:35)
-A4. Nightrider (4:22)(   Читать дальше...   )Производство: Jet Records - JZ 35527Жанр: Progressive RockПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7CE13A300953AD0CF2FA7DE81C7CF6E5F7A4F96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838993   (261627) от 26.11.2025
-
-Haunted by Silhouettes - Studio Albums (3 releases) (2018-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Haunted by Silhouettes - метал-группа из Норвегии, основана в 2013 году.2018 - Shortcuts to Dead Ends
-2019 - The Last Day on Earth
-2022 - No Man Isle (EP)Жанр: Melodic Death MetalПродолжительность: 01:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C614B7F2E75D8E9D51360923AC3473313262EDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838847   (261510) от 25.11.2025
-
-VA - Original Artistes. 15 Mersey Hits (1976) Compilation, Stereo, Mono [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Garage Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261510.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Gerry & The Pacemakers - Ferry Cross The Mersey
-A2 Freddie & The Dreamers - If You Gotta Make A Fool Of Somebody
-A3 Gerry & The Pacemakers - I'm The One
-A4 Freddie & The Dreamers - I'm Telling You Now(   Читать дальше...   )Жанр: Garage Rock, Pop RockПродолжительность: 00:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:462C044F630419F28029E0955596572EFFA70FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838434   (260910) от 23.11.2025
-
-The Cliff Adams Singers - Sing Something Simple (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260910.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Born With A Smile On My Face
-A2.a I Want A Girl Just Like The Girl That Married Dear Old Dad
-A2.b I'm Following In Father's Footsteps
-A3.a Green Green(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83786203FBC1C93B2EC2AC60ACB8DA97D7B35E78
 ```
 
 https://mybot314.ru/tekegram_catalog/

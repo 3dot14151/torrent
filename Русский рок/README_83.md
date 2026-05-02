@@ -1,3 +1,119 @@
+###  Публикация: 1575262   (236229) от 09.09.2022
+
+Треустье - Т​ё​м​н​ы​е б​ы​л​и​н​ы (2022) [MP3|224 Kbps] <Dark folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Скоморошья [00:03:52]
+02 - Песня Блаженной [00:03:46]
+03 - 1612 [00:04:22]
+04 - Лебедь белая [00:03:15](   Читать дальше...   )Жанр: Dark folkПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:870E2359A29D7037E89E677671A9EAE16C9E6B47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611102   (236171) от 11.02.2023
+
+Thunder Volt - 4 Relises (2021-2023) [MP3|320 Kbps] <Grunge, Stoner, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2021 - Entering the Cave (Single)
+2021 - Initial
+2021 - Wanted Man(   Читать дальше...   )Жанр: Grunge, Stoner, Doom MetalПродолжительность: 4 CD, 03:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C290B2190E7A84BA91757C3FB10D248089ADAC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611096   (236147) от 11.02.2023
+
+Lim Okrava - 3 Albums (2019-2023) [MP3|320 Kbps] <Industrial Rock, Alternative Metal, Synth>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2019 - Пятно контакта
+2022 - Театр боевых действий
+2023 - КапканЖанр: Industrial Rock, Alternative Metal, SynthПродолжительность: 3 CD, 01:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF30D2CE42AB77878738C1891EB93162C0BCFE63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457287   (236098) от 26.03.2021
+
+МВВМ - Поэмы Гаражных Дней (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Поэма гаражных дней [00:05:23]
+02 - Последний Антигерой Моего Поколения [00:03:32]
+03 - Под Прицелом [00:04:12]
+04 - Корабли [00:05:51]Жанр: RockПродолжительность: 00:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEFC77AB2A1D8C6C64D3C5D090B05D30FC681547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615296   (235746) от 25.02.2023
 
 Pretty School - 2 Albums (2023) [MP3|320 Kbps] <Punk Rock>
@@ -624,122 +740,6 @@ Noed - No One Escapes Death (2023) [MP3|320 Kbps] <Strong Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2FF144C2CC3BD24D0C6451C7DC152DBFA2A6191D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645199   (232015) от 08.07.2023
-
-MelloW - Полураспад (2023) [MP3|320 Kbps] <Nu-Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_232015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весна
-02. Паразиты
-03. Эвтаназия
-04. Хронос(   Читать дальше...   )Жанр: Nu-MetalcoreПродолжительность: 00:29:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AC15673086A03C890F97E8BF9D066B0684FCD87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645210   (231994) от 08.07.2023
-
-SoulSplit - Пустой ад. Часть 1-2 (2021-2023) [MP3|320 Kbps] <Gothic, Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вспомнить всё [00:03:55]
-02. Вампир [00:05:49]
-03. Пустой aд [00:04:47]
-04. Под землёй [00:04:20](   Читать дальше...   )Жанр: Gothic, Alternative MetalПродолжительность: 00:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3803489F4452DCD9CF724823091A11F5B7588632
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645203   (231967) от 08.07.2023
-
-Шумбрат - Чёрный лебедь (2023) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Черный лебедь
-02 - Кукла вуду
-03 - Бумажный билет
-04 - Фотографии(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BCF5A63C0120DF7D9448FD75525ECC43F6467A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645179   (231954) от 08.07.2023
-
-Громоверж - Издревле (2023) [MP3|320 Kbps] <Pagan Metal, Black Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Очервлённые Брега (Вступление)
-02. Повергая Неисконное
-03. В Ладонях Зари
-04. Земля Молчаливых Камней(   Читать дальше...   )Жанр: Pagan Metal, Black Metal, Folk MetalПродолжительность: 01:12:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885157939291B818B377A3758F8EA9E0B20744E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

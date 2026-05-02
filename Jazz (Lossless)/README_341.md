@@ -1,3 +1,73 @@
+###  Публикация: 467246   (96569) от 13.03.2012
+
+Carol Welsman - Memories Of You: Carol Welsman sings Benny Goodman and Peggy Lee (2009) [FLAC|Lossless]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96569.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Be That Way (3:49)
+02. Why Don't You Do Right (2:45)
+03. Moonglow (3:29)
+04. Stompin' At The Savoy (3:10)
+05. As Time Goes By (5:47)
+06. When You're Smiling (4:50)
+07. Johnny Guitar (4:11)
+08. Fever (4:02)
+09. Goody Goody (2:54)
+10. The Very Thought Of You (3:09)(   Читать дальше...   )2009Жанр: Vocal JazzПродолжительность: 01:00:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 467414   (96543) от 13.03.2012
+
+Alex Skolnick Trio - Veritas (2011) [FLAC|Lossless]<Modern Jazz, Fusion, Guitar Virtuoso>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panna
+02. Bollywood Jam
+03. Song Of The Open Road
+04. Veritas
+05. Fade To Black
+06. Alone In Brooklyn
+07. 99/09
+08. Path Of Least Resistance
+09. Flections
+10. The River Lethe(   Читать дальше...   )2011Жанр: Modern Jazz, Fusion, Guitar VirtuosoПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467206   (96531) от 13.03.2012
 
 Thelonious Monk - The Essential (2003) [FLAC|Lossless]<Jazz>
@@ -804,76 +874,6 @@ Lena Horne - Love Songs (1999) [FLAC|Lossless]<Vocal Jazz>
 08. Someone To Watch Over Me (3:15)
 09. At Long Last Love (2:41)
 10. I'm Confessin' (That I Love You) (3:28)(   Читать дальше...   )1999Жанр: Vocal JazzПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453735   (93707) от 18.02.2012
-
-Gray Sargent - Shades of Gray (1993) [FLAC|Lossless]<Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Get Lost (5:04)
-02. Gray Haze (3:58)
-03. Don't Take Your Love From Me (7:21)
-04. I Know Why \ My Foolish Heart (7:03)
-05. A.P. in the P.M. (4:15)
-06. You Don't Know What Love Is (8:36)
-07. A Nightingale Sang In Berkeley Square (6:32)
-08. This Time The Dream's On Me (5:17)
-09. My Ideal (6:25)
-10. Long Ago And Far Away (5:08)(   Читать дальше...   )1993Жанр: Guitar JazzПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453234   (93559) от 16.02.2012
-
-VA - Piano Jazz (2009) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93559.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Count Basie - I'm Confessin' (That I Love You) (4:51)
-02.Billy Taylor Trio - La Petite Mambo (4:49)
-03.Paul Desmond - Alice In Wonderland (4:06)
-04.Bill Evans - For Heaven's Sake (4:26)
-05.Thelonious Monk - It Don't Mean A Thing (If It Ain't Got That Swing) (4:40)
-06.Oscar Peterson - Georgia On My Mind (3:46)
-07.Eugen Cicero  - Autumn Leaves (6:24)
-08.Earl Hines - Moonlight In Vermont (3:13)
-09.Erroll Garner - Misty (2:48)
-10.George Shearing - Someone To Watch Over Me (2:35)(   Читать дальше...   )2009Жанр: JazzПродолжительность: 01:08:50
 
 ## Скачать торент
 ```bash

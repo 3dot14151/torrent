@@ -1,3 +1,212 @@
+###  Публикация: 609967   (990195) от 29.01.2013
+
+VA - Romantic Instrumentals. Candle In The Wind (2CD) (1998) [MP3|320 кб/с]<Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990195.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:07) 01. Orchester Bruno Bertone - One Moment In Time
+(4:15) 02. Orchester Bruno Bertone - Forever Young
+(2:53) 03. Orchester Bruno Bertone - Orinoco Flow
+(3:33) 04. Orchester Tony Anderson - Dolannes-Melodie
+(2:39) 05. Orchester Tony Anderson - Ballade Pour Adeline
+(2:20) 06. Orchester Tony Anderson - Swanee River
+(3:35) 07. Orchester Tony Anderson - Septemberwind
+(2:58) 08. Orchester Tony Anderson - Woman
+(3:24) 09. Orchester Tony Anderson - Josie
+(2:02) 10. Orchester Tony Anderson - Banks Of The Ohio(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:53:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F53BA7E4A39C7F6C708BC76678EC93ABB6B43A47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353843   (989888) от 20.01.2020
+
+Atom Music Audio - Wild Planet (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Islands [02:27]
+02. The Harmony of Nature [02:50]
+03. Moutains [01:51]
+04. Birth of a Wildflower [02:37](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:27:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73D18BD764A57DF68F71AEACC6D894A736715C1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353849   (989883) от 20.01.2020
+
+Atom Music Audio - Sinner: Antihero Themes (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Boundless [02:21]
+02. Deceiver [02:30]
+03. Such a Heroine [03:20]
+04. Kill Zone [02:07](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3C9E5AC7315AD3EDE5718E1BFC5EE2B0DF27C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353840   (989850) от 20.01.2020
+
+Atom Music Audio - Spirit (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit [06:12]
+02. Sun Dance [04:27]
+03. The Essence of Being [05:06]
+04. Sacred Pipe [03:07](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:12:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19B4365735C0915B9ABEE02C9EFF235E2A960AB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353853   (989837) от 20.01.2020
+
+Atom Music Audio - Thunderbolt (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alien [02:01]
+02. Cyborg Ranger [01:44]
+03. Time Shift [02:25]
+04. Iron Plague [02:47](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:30:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DDE08BA698ACEF5928ACF6C974F33DAEEB6ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353854   (989829) от 20.01.2020
+
+Atom Music Audio feat. Alexa Ray - From the Ashes (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unstoppable [02:48]
+02. Elysium [03:19]
+03. Died Inside [03:35]
+04. From the Ashes [04:18](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 01:12:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:298AF03D0AACE722C082D0391B36D75F9AD124CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353845   (989774) от 20.01.2020
+
+Atom Music Audio - Abyss (2019) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_989774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark [02:52]
+02. Meet the Unknown [02:27]
+03. Abyss [02:20]
+04. Aftermath [02:42](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:26:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FC6BC209E176F62D764504DC4A25F1B890DC91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 432626   (989619) от 07.01.2012
 
 Deus Ex: Human Revolution (by Michael McCann) (2011) [FLAC|Lossless]<OST>
@@ -571,212 +780,6 @@ Disc 1:
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 741925   (981913) от 04.01.2014
-
-David Arkenstone - Dream Palace. Pan Pipes with String Orchestra (2005) [FLAC|Lossless] <New Age, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Free (4:10)
-02. As Time Goes By (4:36)
-03. Moon River (4:00)
-04. A Man and a Woman (4:32)(   Читать дальше...   )Жанр: New Age, Easy ListeningПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96C920EEA9CE8E329EF940052F75B8518E73F096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971622   (981863) от 06.01.2016
-
-VA - Los clasicos argentinos Tango - Vol.05 (1996) [MP3|128 кб/с] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tita Merello - A media luz
-02. Tita Merello - Cuando tallan los recuerdos
-03. Tita Merello - El milagro
-04. Tita Merello - Para lucirse(   Читать дальше...   )Жанр: TangoПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25192D518830E346FAC8D6C605BA0841B02D0260
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972624   (981844) от 06.01.2016
-
-Deep Forest - World Mix (1992) 1994 Columbia [FLAC|Lossless|tracks + .cue] <House, Tribal, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Forest (5:33)
-02. Sweet Lullaby (3:53)
-03. Hunting (3:27)
-04. Night Bird (4:18)(   Читать дальше...   )Жанр: House, Tribal, Downtempo, AmbientПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244CFE89F4F011A1E699164FFFD5AC92B2DFD728
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 164052   (981529) от 11.01.2010
-
-Eric Serra - The Fifth Element / Пятый элемент (Complete Score) (2CD) (1997) [MP3|192 kbps]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 02:14:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613940   (981148) от 05.02.2013
-
-VA - Волшебные мелодии. Коллекция Ридерз дайджест (5CD) (2006) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981148.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 Влюбленные в любовь76. In The Chapel In The Moonlight
-77. A Kiss In The Dark
-78. All Through The Night
-79. Serenade In The Night
-80. Moonlight Love
-81. Magic Is The Moonlight
-82. Fly Me To The Moon
-83. Moonlight In Vermont
-84. Stairway to the Stars
-85. Fool Moon And Empty Arms(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:07:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694A12A031A637F1F6CFDEE8E5C06483977403A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356005   (980899) от 28.01.2020
-
-Angelo Badalamenti - Twin Peaks (1990) [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980899.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Twin Peaks Theme [5:09]
-2. Laura Palmer’s Theme [4:55]
-3. Audrey’s Dance [5:20]
-4. The Nightingale (vocals by Julee Cruise) [4:59](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D51D3D8981C616A6EBAA59F79B85978B7385D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972428   (980712) от 07.01.2016
-
-Jim Brickman - Pure (2006) Japanese Edition [FLAC|Lossless|image + .cue] <New Age, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Believe (2:50)
- 02. Journey (3:02)
- 03. Amazing Grace (3:14)
- 04. All I Ever Wanted (4:07)(   Читать дальше...   )Жанр: New Age, Solo PianoПродолжительность: 00:59:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A681FD06DC66BC753FFA7C4051FEBAC4592440
 ```
 
 https://mybot314.ru/tekegram_catalog/

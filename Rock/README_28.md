@@ -1,3 +1,32 @@
+###  Публикация: 1020847   (743795) от 27.05.2016
+
+Marty Balin - Balin (1981) [MP3|320 кб/с] <Soft Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hearts    04:18
+02. You Left Your Mark On Me    04:43
+03. Lydia    03:41
+04. Atlanta Lady (Something About Your Love)    03:48(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:35:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF729DF27E8D8740736A2F2497F564925D471F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 890527   (743492) от 21.04.2015
 
 Total-Empty - Novel Horizons (2014) EP Авторская раздача [MP3|320 кб/с]<Post-Progressive Rock>
@@ -720,35 +749,6 @@ Les Discrets - Predateurs (Prédateurs) (2017) Deluxe Edition [MP3|320 Kbps] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:503A4A79C6DB71DB05D33433F23CDBFE535465B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022627   (728820) от 02.06.2016
-
-The Hillbilly Moon Explosion - My Love for Evermore (2015) [MP3|320 кб/с] <Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Are You Gay? (03:07)
-02. Chick Habit (02:12)
-03. Maniac Lover (03:40)
-04. Dead Cat Boogie (03:19)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:50:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C0B9378C91DABB5E78A49BBC00274999080B820
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1747423   (44511) от 05.09.2024
+
+Neil Young & Crazy Horse - Fu##in’ Up (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44511.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. City Life (Country Home) 6:38
+2. Feels Like a Railroad (River of Pride) (White Line) 2:58
+3. Heart of Steel (Fuckin’ Up) 5:52
+4. Broken Circle (Over and Over) 9:05(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A4B332F47740ADE657B602654A134598F87E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748199   (44198) от 08.09.2024
+
+Thin Lizzy - 1976 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Back (Demo) [00:04:41]
+02. Johnny The Fox Meets Jimmy The Weed (4 Track Demo) [00:07:22]
+03. Suicide (Live On 100.7FM WMMS Cleveland Radio Broadcast / 11th May 1976) [00:05:16]
+04. Don't Believe A Word (Alternate Version 2) [00:02:18](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F02C2382589833C81C7B55DEE1AFE040B28DEE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748687   (43882) от 11.09.2024
+
+The Many Colored Death - The Comfort In Telling (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolves (6:03)
+02. Paralyze (4:03)
+03. Ashes (3:32)
+04. Out of Time (4:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB008BD63EF165CCFA67CEE03C37C9F474FCC72A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1748683   (43880) от 11.09.2024
+
+One More Shot - Railroad to Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One More Shot (4:00)
+02. Oh Girl! (6:11)
+03. S (3:28)
+04. U Care (8:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5A78D9D60A3AEA6F1C867D5DEAE2758E7D5DBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1748686   (43879) от 11.09.2024
 
 Steve Cone - Autonomous (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +745,6 @@ Circles Of Illusion - Lionheart (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Hea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D88CA71695CA603399E88C8C33BC81234BF7A288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760479   (37283) от 14.11.2024
-
-Wildheart - Music to Survive (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock , Heavy Metal , Female vocals>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All About You (04:35)
-02. Time to Move (04:12)
-03. Boss Ass (05:02)
-04. Music to Survive (04:51)(   Читать дальше...   )Жанр: Hard Rock , Heavy Metal , Female vocalsПродолжительность: 00:59:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB830A724D36865FB22580AC614E610297FD2AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760519   (37282) от 14.11.2024
-
-Voltage Arc - Sextasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' Man
-02. Make It To The Top
-03. I Don't Know You
-04. Throw It All Away(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A34B640C4CCE5B07D5D664403A5FB0A0E82727C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760612   (37181) от 15.11.2024
-
-Voodoo Circle - Hail To The King (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37181.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay Down Your Lovin'
-02. Let It Rock
-03. On The Edge
-04. Sweet Little Sister(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C821B0D5A534D853FA16BD8018BA6525F3511CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761115   (36858) от 18.11.2024
-
-Stone Whiskey - Scream For Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's A Live Wire 04:40
-02. Sweet Elixir 04:22
-03. Scream For Rock 03:50
-04. Nowhere To Go 06:45(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D347C7ADB6FC68BC818238C056D0952350EB30D
 ```
 
 https://mybot314.ru/tekegram_catalog/

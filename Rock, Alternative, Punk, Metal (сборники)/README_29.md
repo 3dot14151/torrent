@@ -1,3 +1,61 @@
+###  Публикация: 1316537   (505805) от 26.07.2019
+
+Nirvana - Come As You Are (2019) (Compilation) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smells Like Teen Spirit
+02. The Man Who Sold The World
+03. Come As You Are
+04. About A Girl(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4450EDF9F56CB9B50E21FBE351D22A2EBE251262
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934264   (503470) от 04.09.2015
+
+VA - Mojo Presents: David Gilmour & Friends (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503470.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. David Crosby & Graham Nash - Don't Dig Here (6:09)
+2. Ulver - Everybody's Been Burned (3:25)
+3. Phil Manzanera - Sacred Days (3:56)
+4. David & Joe Gilmour - Here, There & Everywhere (3:12)(   Читать дальше...   )Жанр: RockПродолжительность: 01:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F3082551D841AEEAF2664AD51895466F484534D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1563599   (502601) от 16.07.2022
 
 Shivaree - Compilation (2022) [MP3|320 Kbps] <Alternative>
@@ -693,64 +751,6 @@ Suzi Quatro - The best of the Best (2015) [MP3|320 кб/с]<Rock, Hard Rock, Gla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB62D76DFCAD1B7358C19F8352DD01A743EDA1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406752   (471000) от 05.09.2020
-
-VA - Alternative World: Indie Pop-Rock Music (2020) [MP3|320 Kbps] <Indie, Alternative, Pop-Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_471000.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Nolan Potter's - Nightmare Forever
-002. Guise - Brother In Arms
-003. Pleil - Offener Kanal
-004. Honey Cutt - Vacation(   Читать дальше...   )Жанр: Indie, Alternative, Pop-RockПродолжительность: 08:11:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D191ECCBAFC134196875AF2C1908E7E0D41F9A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1406596   (470839) от 05.09.2020
-
-VA - Music for You vol.12 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pomegranate Tiger - Gift of Tongues (01:26)
- 02. The Omnific - Pharaoh (04:45)
- 03. Imperial Triumphant - Transmission to Mercury (06:41)
- 04. Circles - Blueprints for a Great Escape (04:48)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 04:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE8D72554128649F1B1AEF1ACB0FCF47981F9457
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,212 @@
+###  Публикация: 1423003   (304166) от 11.11.2020
+
+Wychazel - Tao: A Path of Peace (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304166.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Path of Peace (8:04)
+2. Sunlight Through Trees (7:40)
+3. Raindrops on Leaves (6:56)
+4. Temples in the Mist (10:00)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:48:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B09BC2961379726796C7F3C25903647375705F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422593   (304160) от 11.11.2020
+
+Theodor Bastard - Pathologic 2 OST (2019) [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Darkness [3:49]
+ 2. Children Are Burying The Doll [2:07]
+ 3. Drops In The Endless [4:23]
+ 4. Mourning Of The Gone [2:24](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A9BC3AFF8F525B5D468A22EEC10839E46DA988E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422800   (304158) от 11.11.2020
+
+VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John - Step Into Christmas (4:32)
+02. Bob Seger - Little Drummer Boy - Remastered (3:32)
+03. Frank Sinatra - Have Yourself A Merry Little Christmas - Remastered (3:26)
+04. Bobby Helms - Jingle Bell Rock - Single Version (2:11)(   Читать дальше...   )Жанр: Christmas MusicПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547C7AEBA2ACC62F7A00D17EEABD9D4E00845626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422657   (304155) от 11.11.2020
+
+Tantric Massage Experts - Open New Erotic Feelings of Pleasure and Excitement (2020) [MP3|320 Kbps] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Free a Tension (3:33)
+02. No More Taboo (3:54)
+03. Sexual Experience (3:05)
+04. Intimacy Between Us (3:28)(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:54:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D81116F10EC976C2BFC5A72D4803B6CDDE08573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 585721   (303581) от 06.12.2012
+
+Anibal Palazolo - Flamenco Entre Cuerdas (2009) [MP3|320 кб/с]<Instrumental, Flamenco, Acoustic guitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303581.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:53) 01. El Extranjero
+(3:30) 02. Silencio
+(3:14) 03. El Circo
+(2:11) 04. La Pequena Fiesta
+(2:49) 05. Sus Ojos En Mi Mente
+(3:40) 06. Noches Blancas
+(2:39) 07. Maestro Manolo
+(3:27) 08. Entre Cuerdes
+(3:52) 09. El Extranjero
+(3:05) 10. El Jinete(   Читать дальше...   )Жанр: Instrumental, Flamenco, Acoustic guitarПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B382B98F1A383AFDB68B59EB1675D9316B4C5068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 961110   (303364) от 30.11.2015
+
+Kevin Kern - Always Near / A Romantic collection (2014) [FLAC|image+.cue]<New Age,Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love's First Smile (6:11)
+ 02. A Time Remembered (4:18)
+ 03. Sundial Dreams (4:48)
+ 04. Le Jardin (4:54)(   Читать дальше...   )Жанр: New Age,PianoПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF0C2682D439E2CEB9121B384367A71C035614B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333407   (303280) от 25.10.2019
+
+Electric Youth - Breathing (Original Motion Picture Soundtrack From A Lost Film) (2017) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Soundtrack, Electronic, New Wave>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Was Our House (From "Breathing") (02:01)
+02. Where Did You Go (04:05)
+03. Breathing (02:50)
+04. It's Them (04:35)(   Читать дальше...   )Жанр: Score, Soundtrack, Electronic, New WaveПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AE3A68A9B8DB1D88ACD8892FBF5965A90F3BD9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961021   (303247) от 30.11.2015
 
 VA - Master & Mistress  Tango 50 Original Favourites (2010) [MP3|192 кб/с]<Tango>
@@ -540,209 +749,6 @@ Various artists - Chip & Crack - best of (1995-2019) [OGG|128-350 Kbps] <Demosce
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C23EDF98234F67E72D55DD1841965BC1B72E3E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261790   (301079) от 12.11.2018
-
-Mark Dwane - Astrology (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301079.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Astrology - 5:47
-2. Planetary Rulers - 6:15
-3. Midheaven - 4:54
-4. Fire Signs - 5:20(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11C080C606251794F007C8B69CAE904055BA95E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261681   (300995) от 12.11.2018
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock Vol. 3 (1990) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300995.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Swan Lake/ Pathetique/Peer Gynt - Tchaikowsky/Beethoven/Grieg - Symphonic Rock Orchestra
-   2. Reverie/ Ave Maria – Schumann/ Schubert - Wave's Computer Orchestra
-   3. New World – Dvorak - Philharmonics of London
-   4. Bach goes to the beach – Bach -Wave's Computer Orchestra(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D91084522EF2E652119060F6A231ED7C4BFE2A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423585   (299651) от 13.11.2020
-
-Riccardo Cocciante - Notre Dame De Paris  (2000) English Version [FLAC|Lossless|tracks + .cue] <Musical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Live for the One I Love - Céline Dion (4:02)
-02. The Age of the Cathedrals - Bruno Pelletier (3:24)
-03. The Refugees - Luck Mervil (3:36)
-04. The Bohemienne Song - Tina Arena (5:24)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:03:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8445BD0743EEDECCB9D8501F4DA1252AA5014FE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961621   (299087) от 02.12.2015
-
-Astrocolor - Lit Up - Music for Christmas (2015) [MP3|320 кб/с]<New Age, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Hear What I Hear?
-02. We Three Kings
-03. Rudolph the Red-Nosed Reindeer
-04. Sleigh Ride(   Читать дальше...   )Жанр: New Age, Easy ListeningПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823980506B846EA0982F31A5C9E0FCB8A7ADBD30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423560   (299056) от 13.11.2020
-
-Riccardo Cocciante - Notre Dame De Paris, Opera Tratta Dal Romanzo Di Victor Hugo (2001) Italian Version [FLAC|Lossless|image + .cue] <Musical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Il tempo delle cattedrali (3:20)
-02. I clandestini (3:32)
-03. Zingara (5:22)
-04. Bella (4:36)(   Читать дальше...   )Жанр: MusicalПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C25BCFC8BA531DB90C5D22A84322B38469AF2167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333646   (298941) от 27.10.2019
-
-Tron Syversen - Sacred Dreams (2005) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby for You (6:04)
-02. Dreamland (6:03)
-03. Cradle Song (4:28)
-04. In a Silent Place (5:55)(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:57:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6073EF9C6422A229E5416AC40CF62FDFC2061C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961636   (298919) от 02.12.2015
-
-Llewellyn - Ancient Lands (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ancient Lands (feat. Juliana & Chris Conway)
-02. Return of the King (feat. Juliana)
-03. Merlyn and the Dragons
-04. The Quest Begins(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0358E3FB3A9DF7EF06D001CD0E2133D5FD3A5AFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

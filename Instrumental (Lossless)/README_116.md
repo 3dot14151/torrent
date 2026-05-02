@@ -1,3 +1,119 @@
+###  Публикация: 1720846   (110042) от 06.05.2024
+
+Dango Torres - TBI (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Man of My Word (4:42)
+02. Back to Houston (2:58)
+03. Justify (4:01)
+04. Feelin' Down Blues (2:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5895DEBADE55CF4550B38348FF85DE8EAEC98659
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721611   (110001) от 08.05.2024
+
+Little Bobby - Dealing from the Bottom of the Deck (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110001.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing but Trouble (3:52)
+02. Set You Free (4:13)
+03. Dealing from the Bottom of the Deck (5:47)
+04. Fast Food Mama (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C0EF9E7041EF580C3CE4AD753EC4D178CA9675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721617   (109980) от 08.05.2024
+
+Richard Dean - Billionaire Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diving Duck Blues (2:12)
+02. Billionaire Blues (2:28)
+03. Halfway There (3:07)
+04. Good Luck (2:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE8B7D4E8A758B7E38CCDFEF91F44C94458C633D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721618   (109978) от 08.05.2024
+
+Son Henry - Grace (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grace (4:17)
+02. Josie (4:28)
+03. Ribbon of Tar (4:11)
+04. Waiting on a Sign (4:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28B02C21AAB229E63659523AC2897801EFB44228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721328   (109977) от 08.05.2024
 
 Onus Blues - My Lonely Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Geezer - Interstellar Cosmic Blues & The Riffalicious Stoner Dudes (2024) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:104D8C0D29536ED1C9FB41E827BC305B013EC920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726175   (108822) от 27.05.2024
-
-John Haydock - Solitary Traveller (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night Ain't Through With Us Yet (3:49)
-02. The Coast Road (5:00)
-03. Three More Trains (3:52)
-04. Chasing Down a Hurricane (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EDA0DD86922DF4AA1C3C57F6F88131CF7B6C00A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726167   (108810) от 27.05.2024
-
-John Haydock - A Few More Miles (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Jerusalem (4:09)
-02. Sunset over Broadway (3:48)
-03. Apocalypse Blues (4:53)
-04. Runaway Love (4:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42580CA44C4C67BF215DDF5D71E6B23B5C6F34D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726154   (108798) от 27.05.2024
-
-dB Bluesband - Do You Need a Ring (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do you need a ring (3:01)
-02. Laissez le bon temps rouler (3:33)
-03. Too fast (2:32)
-04. Show me Suzanne (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F930958DDF56EF2B92A4CA73DE3DF77CC3C28FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726160   (108784) от 27.05.2024
-
-Greg Wilson - It's My Soul (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Midnight (Cover) (5:01)
-02. Rock with Me (Cover) (4:20)
-03. It’s My Soul (3:38)
-04. Check up on My Baby (Cover) (3:46)(   Читать дальше...   )Жанр: Blues, R&BПродолжительность: 00:48:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85CF0BDF2E2E37F7824CECC90997DE5083406CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

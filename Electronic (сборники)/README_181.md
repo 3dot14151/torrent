@@ -1,3 +1,61 @@
+###  Публикация: 1265105   (275949) от 26.11.2018
+
+VA - Deep House Collection Vol.191 (2018) [MP3|320 Kbps] <House, Deep House, Club Hose>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275949.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren feat. Josh Cumbee - Sunny Days (Ryan Riback Remix) 3:40
+002. Bee Gees - Stayin Alive (Delabella Remix) 3:40
+003. Calvin Harris & Sam Smith - Promises (Illyus & Barrientos Extended Remix) 6:00
+004. R3HAB & Conor Maynard - Hold On Tight (Denis First & Reznikov Remix) 4:24(   Читать дальше...   )Жанр: House, Deep House, Club Hose, ProgressiveПродолжительность: 13:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205FF3C394B4FF345916C44768F6DC4EAA27C863
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083101   (275909) от 14.12.2016
+
+VA - Bass Killer 9 (2016) [MP3|320 Kbps] <Dubstep, Big Room, Trap, Future Bass, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 4B x HOLLY — JUICE (3:46)
+ 02. Baauer feat. Chaki Zulu, KEPHA, JB, kZm, PETZ (YENTOWN) — Night Out (3:02)
+ 03. Excision — Virus (5:31)
+ 04. Excision & Space Laces — Throwin’ Elbows (Original Mix) (3:02)(   Читать дальше...   )Жанр: Dubstep, Big Room, Trap, Future Bass, ElectroПродолжительность: 01:29:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA63341977D9BEB247E1D186B1E4A032F1DA1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337093   (275553) от 09.11.2019
 
 VA - Top50: Tracks Deep House Ver.15 (2019) [MP3|320 Kbps] <House, Deep House, Club House>
@@ -684,64 +742,6 @@ VA - Empire Records - Recccord 2 (2018) [MP3|320 Kbps] <Future House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C2B03CC236E8795DD207EF4C73CE0AB2EB237E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337689   (272626) от 12.11.2019
-
-VA - Female Vocal Trance: Hedkandi Mix (2019) [MP3|320 Kbps] <Vocal, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darren Porter Feat. Ana Criado - Dream Like I Do
-02. Dream Travel - Transit (Radio Edit)
-03. Armin Van Buuren - Shivers
-04. Dream Travel - Coral Odyssey (Radio Edit)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 04:53:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD4E0C04435BF8DF4D4F211548618F7B262D01EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265695   (271954) от 30.11.2018
-
-VA - Empire Records - Enigma Alive 4 (2018) [MP3|320 Kbps] <Chillout, Downtempo. Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Smith - Bull Drake (Original Mix)
-02. Richard Bonne - My Tears Of Elements (Artenovum Mystic Chillout Mix)
-03. Frank Borell - Photon (Deep West Cut)
-04. L'Enigme Sacree - Sanctus And Angus Dei (Original Mix)(   Читать дальше...   )Жанр: Chillout, Downtempo. LoungeПродолжительность: 03:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA3EB59AF9438FD15D0134BC72DC93FF80FDBF89
 ```
 
 https://mybot314.ru/tekegram_catalog/

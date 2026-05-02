@@ -1,3 +1,55 @@
+###  Публикация: 1353830   (990796) от 19.01.2020
+
+Hides 5.3.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990796.jpg" />
+</div>
+
+
+###  Подробнее
+
+Повысьте производительность с помощью Hides!Тип издания: macOS SoftwareРелиз состоялся: 18.01.2020Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B55C9859174048BCE7C4BCC796D8632B01E1EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1353742   (990795) от 19.01.2020
+
+Opera GX 64.0.3417.167 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990795.jpg" />
+</div>
+
+
+###  Подробнее
+
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7AB8AEE86509530F6ADA5B4C2064ABA1A37E278
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353828   (990794) от 19.01.2020
 
 Гандбол. Чемпионат Европы 2020. Предварительный раунд. Группа E. 3-й тур. Исландия – Венгрия (15.01.2020) WEB-DL [H.264/720p-LQ] [EN]
@@ -678,69 +730,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ECDD1C44699974303D230FDB44EC966919AC698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610612   (990588) от 29.01.2013
-
-At The Dawn - From Dawn to Dusk (2013) [MP3|320 кб/с]<Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Prelude
-02 At the Dawn
-03 Red Baron's Kiss
-04 Winter Storm
-05 Balthazar
-06 Post Fata Resurgo
-07 Countdown to Infinity
-08 Louder to Heaven
-09 Sunset Rider
-10 Wake Up At Dusk(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC389B949194B0DCB1335EDF71D3E8AFFB471B5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610615   (990585) от 29.01.2013
-
-Beckwith - Craymal EP (2012) [FLAC|Lossless]<Deep House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craymal (Original Mix) (7:51)
-02. Birds (Original Mix) (7:08)
-03. All I Need (Original Mix) (6:37)Жанр: Deep HouseПродолжительность: 00:21:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

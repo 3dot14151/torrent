@@ -1,3 +1,125 @@
+###  Публикация: 1561848   (513617) от 06.07.2022
+
+Janiva Magness - Hard to Kill (2022) [FLAC|Lossless|tracks + .cue] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Strong as Steel (00:04:09)
+02 - The Last Time (00:04:34)
+03 - Don't You Forget About Me (00:03:27)
+04 - Fireman (00:03:27)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA77C37A544EFDF680CD4B7EBAC89E94028273F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538786   (508589) от 24.08.2012
+
+Mick Martin & The Blues Rockers - Blues Rock U. S. A. (2002) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got To Play the Blues [03:43]
+02. Blues All Night [04:31]
+03. Backseat Boogie [02:26]
+04. Takin' My Time [05:35]
+05. I Can't Get Enough [04:04]
+06. Pick Up Baby [06:37]
+07. Baby's Coming Home for Christmas [03:46]
+08. Find That Girl [03:55]
+09. High-Heel Baby [04:58]
+10. Wonderful World [04:46](   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:13:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562610   (508068) от 10.07.2022
+
+Tony Testa - Back To The Basics (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Green Onions (00:04:16)
+02 - Singin' The Blues (00:05:32)
+03 - Mannish Boy (00:07:17)
+04 - Boom Boom (00:05:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC218061ABB095B1E3E54C7817AB6EAF5C38296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316294   (507752) от 24.07.2019
+
+John Mayall - Jazz Blues Fusion (1972) Reissue, 2015, PolyGram Records Inc. [FLAC|Lossless|WEB-DL|tracks] <Jazz, Rock, Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Country Road (6:55)
+02. Messin' Around (2:40)
+03. Good Times Boogie (8:20)
+04. Change Your Ways (3:25)(   Читать дальше...   )Жанр: Jazz, Rock, Blues, Blues RockПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB8358321E844F0E51387C0728B7C996D2FAA5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316268   (506922) от 25.07.2019
 
 USA Gospelchor Feat. Joan Orleans - Higher And Higher (1997) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
@@ -645,122 +767,6 @@ Dylan Triplett - Who Is He? (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F89231B7553F4F82D9B9835215634E4694EA9EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564581   (499710) от 19.07.2022
-
-Seth Loveless - Win or Lose (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now I Know (4:32)
-02. Win or Lose (5:28)
-03. I’m Okay (5:02)
-04. Friends We’ll Remain (5:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E70BC28572335546AD98945D4E55075C6EF1832C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564571   (499709) от 19.07.2022
-
-Dennis Johnson - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Down (4:29)
-02. Talk to You (3:23)
-03. Revelation (3:41)
-04. Salvation Bound (3:16)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:37:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EA9903B8F8F09E9FCBF4B40DB71BBD12C35257A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564579   (499707) от 19.07.2022
-
-Patty Tuite - Hard Case Of The Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nothin' But Trouble (3:12)
-02. I Just Wanna Play (2:36)
-03. Glad I'm Through With You (4:11)
-04. Diggin' Up Outta This Hole (2:43)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B7480AA9E0C5934225EF3496C877A250E1B54AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564575   (499706) от 19.07.2022
-
-Kozmic Blue - Odyssee Blue (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kozmic Blues (5:51)
-02. Might Makes Right (7:16)
-03. I'll Keep Trying (3:56)
-04. On Slick Avenue (5:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:22:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F38F3EAFA06982C1F93EDB13FC76EE770EE9A6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

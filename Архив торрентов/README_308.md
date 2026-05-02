@@ -1,3 +1,61 @@
+###  Публикация: 608734   (993713) от 25.01.2013
+
+Wallpapers - Traveling the world vol.2 (25.01.13) [JPG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wallpapers - Traveling the world vol.2 (25.01.13) [JPG]Название: Traveling the world vol.2 (25.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE324116594916631E6AE85D04F9838CE4635312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 608690   (993712) от 25.01.2013
+
+Wallpapers - Traveling the world (25.01.13) [JPG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wallpapers -  Traveling the world (25.01.13)[JPG]Название: Traveling the world (25.01.13)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: С 08:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADA962E5479B05090F951CFF836AAC495CD8C9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608735   (993711) от 25.01.2013
 
 Wallpapers - Traveling the world vol.3 (25.01.13) [JPG]
@@ -655,58 +713,6 @@ Radiocent - это онлайн радио и ТВ мирового уровня
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608190   (993583) от 25.01.2013
-
-Wallpapers Anime №1(Pavel) [JPEG]
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола 50 штФормат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBCFC16BE8E840D50F8F4F8CA54F951C54FF751E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608154   (993582) от 25.01.2013
-
-Фотография - Фотографы Alain Degre и Sylvie Robert (jpg)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотографы Alain Degre и Sylvie Robert
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560A20E41274FE3191267FAC9D6C5939CFF1A889
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,122 @@
+###  Публикация: 547100   (475893) от 14.09.2012
+
+Deep Purple - Machine Head (1972) Remastered /2011, KronStudioLab Int'l/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Highway Star (6:09)
+02. Maybe I'm A Leo (4:47)
+03. Pictures Of Home (5:02)
+04. Never Before (4:02)
+05. Smoke On The Water (5:37)
+06. Lazy (7:24)
+07. Space Truckin' (4:20)Жанр: Hard RockПродолжительность: 00:37:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567318   (474429) от 02.08.2022
+
+Mutharoad - Midnight Stalker (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In The Saddle 06:14
+02. Heart Of Gold 04:12
+03. Born To Roll 04:53
+04. Midnight Stalker 04:28(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F61B879BE501C0F5BB0D02F11C7522FEEB48082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567295   (474427) от 02.08.2022
+
+The Ragged Saints - The Sound Of Breaking Free (2013) Reissue, 2021, Lions Pride Music [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sound Of Breaking Free (3:21)
+02. A Place Where I Belong (3:59)
+03. Don't Let Me Go (3:40)
+04. I'll Never Give Up On Love (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F5ED13DC204C678EA459CA4A66D802D92C7C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245367   (474097) от 05.09.2018
+
+Ultraphonix - Original Human Music (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baptism (04:44)
+02. Another Day (04:50)
+03. Walk Run Crawl (03:50)
+04. Counter Culture (03:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F01D4D6F5B6325D7F6012D7FCCF4FF9D80713E7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057657   (473184) от 29.09.2016
 
 David Mark Pearce - Strаngе Аng3ls (2011) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -641,121 +760,6 @@ Andrew W.K. - Close Calls With Brick Walls (2006) Japan [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84588059920549F2854117F1BA721A46FA7951A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246703   (459234) от 12.09.2018
-
-Andrew W.K. - The Wolf (2003) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victory Strikes Again (2:10)
- 02. Long Live the Party (4:11)
- 03. Tear It Up (3:56)
- 04. Free Jumps (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEBAA1A1A95727DFF7348502264609F6CD4E7F04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1246810   (459175) от 12.09.2018
-
-The Union - 3 Albums (2010 - 2013) [FLAC|Lossless|tracks + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа The Union была образована в 2009 году бывшим гитаристом Thunder Люком Морли и Питером Шоулдером. После распада Thunder в 2009 году, Морли объявил о создании нового проекта вместе с Питом Шоулдером, чья группа Winterville распалась ещё в 2007-ом. В качестве остальных членов группы к ним присоединились басист Крис Чайлдс (Thunder) и барабанщик Фил Мартини (Down (   Читать дальше...   )2010 - The Union
-2011 - Siren's Song
-2013 - The World Is YoursЖанр: Hard Rock, Blues RockПродолжительность: 02:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C8007E989722497327A4F59A4FB50AD1F195B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941487   (458106) от 29.09.2015
-
-Bonafide - Ultimate Rebel (2012) [FLAC|Lossless]<Hard-Rock, Blues-Rock, Heavy Rock'n'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458106.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD: Bonafide - Ultimate Rebel
-
-01. Make My Own Rules    [0:03:20.41]
-02. The Mess    [0:04:00.70](   Читать дальше...   )Жанр: Hard-Rock, Blues-Rock, Heavy Rock'n'RollПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:970E2EC6BBD2A18F260B9B5724AAB976E14B4BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162812   (456816) от 02.09.2017
-
-Sweet - Level Headed Tour Rehearsals 1977 (2014) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Action (3:49)
-02. Yesterday's Rain (5:00)
-03. California Nights (4:14)
-04. Stairway To The Stars (3:11)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2B60074199AEBFEAB8ADCC71EEE7BB3BCB797C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

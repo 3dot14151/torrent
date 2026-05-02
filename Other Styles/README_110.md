@@ -1,3 +1,206 @@
+###  Публикация: 942740   (453911) от 01.10.2015
+
+VA - Music Selection for the Best Macrobiotic Restaurants (2015) [MP3|320 кб/с]<New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alessandro Boriani - Roiol
+02. Claudio Agostini & Cesare Ferioli - Flock of Seagulls
+03. Giacomo Bondi - Field of Dreams
+04. Cristiano Heredia - Love Me Now(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:07:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4160BCC28CD775F110941C33A77C5C49D7618A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568851   (453497) от 12.08.2022
+
+Slavik...Kemmler - Close To Heaven (1998) [OGG|485 Kbps] <New Age, Tribal>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indian Spirits               	3:30
+02. Close To Heaven            	3:49
+03. Can You Heal Me?         	4:18
+04. Believe In Your Dreams!	4:04(   Читать дальше...   )Жанр: New Age, TribalПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:574A3FFC11787C1B88272D3338BBD23369621442
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569198   (453494) от 12.08.2022
+
+Enigma - MCMXC a.D. (1990) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voice Of Enigma	2:20
+02. Principles Of Lust (Sadeness) 4:04
+03. Principles Of Lust (Find Love) 4:50
+04. Principles Of Lust (Sadeness (Reprise) 2:48(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF97AB2438AFA8099E1553B63A013BDDA6DE1B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 825825   (453178) от 30.09.2014
+
+Тролль Гнёт Ель - 8 Альбомов + Совместные проекты (2003-2013) [MP3|320 кб/с]<Folk-Rock, Beer Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453178.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тролль Гнёт Ель и Михаил Горшенев - Пивоварня Ульва
+02. Альфа-Стрекозы и Тролль Гнёт Ель - Чернокнижник
+03. Алтырь и Тролль Гент Ель - Гимн вину
+04. Garlic Kings и Тролль Гнет Ель - Мёртвая шлюха(   Читать дальше...   )Жанр: Folk-Rock, Beer FolkПродолжительность: 00:19:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28003E6DDBC017B2984ADF60E6254B7B6DCEF738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1060366   (452464) от 08.10.2016
+
+Wardruna - Runaljod - Ragnarok (2016) [MP3|320 Kbps] <Dark Folk, Pagan Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyr (06:30)
+02. UruR (10:11)
+03. Isa (07:13)
+04. MannaR - Drivande (04:09)(   Читать дальше...   )Жанр: Dark Folk, Pagan FolkПродолжительность: 00:58:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A93834C9412CFFD5CC9E6CF8384E1741B936BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247753   (451216) от 16.09.2018
+
+Adam Andrews - Soar (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glow
+02. No More Shame
+03. While the World Passed Me By
+04. Here I Am(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:40:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B95AA942C8541B8389761C5A82F96BD93769A2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942588   (451029) от 02.10.2015
+
+VA - Лучшие цыганские песни конца ХХ века - Альбом №3 (2000) [APE|image+.cue]<Folk, Gypsy>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Цыганский талисман - Бричка
+ 02. Цыганский талисман - Снова слышу голос твой
+ 03. Цыганский талисман - Кай ёнэ
+ 04. Цыганский талисман - Ванёнок(   Читать дальше...   )Жанр: Folk, GypsyПродолжительность: 01:11:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32BA0AEB67232155E6294C103A28E55F8C128C7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061183   (450981) от 09.10.2016
 
 Dark Territory - Libera Me (2005) [FLAC|Lossless|image + .cue] <Gothic, Medieval Folk , Neo-Classic , Etheral>
@@ -567,210 +770,6 @@ The Corrs - 3 альбома - 5CD (2001-2007) [FLAC|Lossless]<Pop rock, Celtic,
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943333   (447469) от 04.10.2015
-
-VA - Музыка из т/с «Два Антона» (2009-2010) [MP3|128 кб/с]<Expanded Score / Unofficial>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Беззаботный мегаполис
-02.Вдоль по Питерской
-03.Верность
-04.Война(   Читать дальше...   )Жанр: Expanded ScoreПродолжительность: 01:57:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B66D5DD986DBEF6E7AB07364C6325AAD2171560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943809   (447333) от 04.10.2015
-
-Guy Sweens - Universal Language (2015) [MP3|320 кб/с]<New Age, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Approaching the Desert
-02. Yaatri
-03. Mount Loura
-04. Japanese Ceremony(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFC95E660F8A8B2BF7E0DCDFFDF5B034030E22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569309   (447088) от 15.08.2022
-
-Enigma - The Cross Of Changes (1993) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Second Chapter	2:16
-02. The Eyes Of Truth	7:13
-03. Return To Innocence	4:17
-04. I Love You ... I'll Kill You	8:51(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 00:44:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EADC6E3243D8BA9A1B77DE83CA366CAC48B309A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 154434   (446680) от 16.09.2020
-
-James Last - 16 альбомов (1987 – 2019) [FLAC|Lossless|image, track + .cue] <Jazz, Pop, Folk, World & Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446680.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джеймс Ласт был лидером немецкого биг-бэнда с большим количеством фанов в Европе, хотя у него никогда не было подобной популярности в Соединенных Штатах. Фирменным знаком Ласта была аранжировка поп-хитов в стиле биг-бэнда. За свою карьеру он продал более 50 миллионов альбомов.
-Он научился играть на фортепиано в детстве, а подростком перешел на бас. Он присоединился (   Читать дальше...   )Альбомы:
-1987 James Last spielt Bach
-1988 Abendglocken (Вечерний звон)
-1990 James Last - Classics By Moonlight(   Читать дальше...   )Жанр: Pop, Easy Listening, InstrumentalПродолжительность: 37:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA63E01C760892AC3DFB211AC77580EA3F6D6C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 706139   (446618) от 01.10.2013
-
-VA - Vargo Lounge Summer Celebration 1 (2013) [FLAC|Lossless|image + .cue]<Chillout, Lounge, Downtempo>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Halo(Side Mix)   (4:54)
-02.  Need to Feel Loved   (3:44)
-03.  Speak to Me   (5:12)
-04.  Love   (4:54)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8EDAA8A732F1FA62AE7920994370FD6CEB224B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248108   (446500) от 18.09.2018
-
-Acoustic Ocean - Blue Moon Rising (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Hui Hou (Until We Meet Again) (3:44)
-02. Blue Moon Rising (3:27)
-03. Recalling Beauty (4:28)
-04. Deep Grace-Scarborough Fair (6:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D6C9EC57C61E323F0885169E269DA90992A7F61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061877   (446430) от 11.10.2016
-
-Jon Richards - Earthlight (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earthlight
-02. Falling Star
-03. Daybreak
-04. Satellites(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDDCA3B85B3DA1B6E092DDA7381EEB6FCF6BAA54
 ```
 
 https://mybot314.ru/tekegram_catalog/

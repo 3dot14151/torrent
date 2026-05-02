@@ -1,3 +1,119 @@
+###  Публикация: 1397929   (736690) от 24.07.2020
+
+Airstream - The Book of Sounds (2020) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Downtempo, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medianoche (Aftersun Mix) (5:58)
+02. Let Me Go (Jazz City Mix) (6:55)
+03. Night Affair (1 Am Mix) (7:31)
+04. Pray (Smooth Clouds Cut) (6:00)(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:985D6E440F8C49F1BDE8E79665CFF8478B233DAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397930   (736682) от 24.07.2020
+
+Alle Farben - Out Of Space (2020) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alle Farben & Chill Mafia - Intro (1:12)
+02. Alle Farben & Graham Candy - She Moves (Far Away) (Out Of Space Mix) (6:48)
+03. Alle Farben & Justin Jesso - As Far As Feelings Go (Out Of Space Mix) (5:16)
+04. Alle Farben & Chill Mafia - Luminous Bright (6:46)(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:42:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:353115A8B744C8F56EAA0D6BA334D493CCD56157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 68614   (736505) от 17.05.2014
+
+Massive Attack - 4 Albums (1991-2003) [FLAC|Lossless|image + .cue] <Trip Hop, Leftfield, Downtempo, Abstract Hip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все началось в далеком 1988 году, когда на обломках распавшегося хип-хоп коллектива The Wild Bunch Роберт 3D Дель Найа (Robert Del Naja), Грант Daddy G Маршалл (Grant Marshall) и Эндрю Mushroom Воулэз (Andrew Vowles) решили сформировать новую музыкальную группу Massive Attack.Список альбомов:
+1991 - Blue Lines
+1994 - Protection
+1998 - Mezzanine(   Читать дальше...   )Жанр: Trip Hop, Leftfield, Downtempo, Abstract Hip HopПродолжительность: 03:57:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 816589   (736372) от 29.01.2022
+
+V.A. - Cafe Del Mar - XX (Volumen Veinte) (2014) 2CD [FLAC|Lossless]<Lounge, Chill Out, Easy Listening>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736372.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Nightmares On Wax - So Here We Are
+02. Goldfrapp - Jo
+03. Seahawks - Look At The Sun(   Читать дальше...   )Жанр: Lounge, Chill Out, Easy Listening |Продолжительность: 01:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F7DBB1274290F49FBB604800F2B46300C0BD567
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528379   (734964) от 01.02.2022
 
 VA - Lo-Fi Dose to Chill: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -629,122 +745,6 @@ Dinka - Sundry: The Chillout Collection (2016) [FLAC|Lossless|WEB-DL|tracks] <Lo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5762FBE153EE6121FA2B048F6502D459987341F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288753   (694307) от 12.03.2019
-
-Igor Cold (Igor Dyachenko) - The Crying Room (2014) [FLAC|Lossless|WEB-DL|tracks] <Electronica, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694307.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mono Cry (03:32)
-02. Had Black Orchard (06:14)
-03. 57 Navigational Stars (04:01)
-04. Crying Room (07:00)(   Читать дальше...   )Жанр: Electronica, Downtempo, AmbientПродолжительность: 01:22:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA50F6AD87BE7DB65535B5F24DA458139168293
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133636   (693425) от 13.05.2017
-
-Nite Jewel - Real High (2017) [FLAC|Lossless|WEB-DL|tracks] <Electropop, Chillwave, Neo Soul>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Nite (2:47)
-02. Had to Let Me Go (4:27)
-03. 2 Good 2 Be True (3:43)
-04. Real High (4:06)(   Читать дальше...   )Жанр: Electropop, Chillwave, Neo Soul, SynthpopПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6101DD8840C0F245C2CFD19B116526D6015A5D84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403403   (692230) от 19.08.2020
-
-VA - Acoustic Dinner Accompaniment (2020) [FLAC|Lossless|WEB-DL|tracks] <Easy Listening, Pop, Chillout>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_692230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acoustic Beatles - Blackbird
-02. Acoustic Beatles - In My Life
-03. Acoustic Bee Gees - How Deep Is Your Love
-04. Acoustic Bee Gees - To Love Somebody(   Читать дальше...   )Жанр: Easy Listening, Pop, ChilloutПродолжительность: 00:54:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3475C37E14527440B5B311D3EA0C2BD5214668CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221956   (689675) от 27.04.2018
-
-1954 - A Part of Me (2018) Project: Mooncircle [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flowers of the Dead Man (03:09)
- 02. It Was Love (03:18)
- 03. Hermann's Dream (02:59)
- 04. Colored Lies (03:41)(   Читать дальше...   )Жанр: Leftfield, DowntempoПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99ABC9C7F4D421ADC959A7D3A69D2EC1D3934095
 ```
 
 https://mybot314.ru/tekegram_catalog/

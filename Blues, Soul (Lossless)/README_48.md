@@ -1,3 +1,119 @@
+###  Публикация: 897273   (687750) от 12.05.2015
+
+Jeff Golub - The Vault (2015) [FLAC|Lossless]<Blues, Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Funky Is As Funky Does
+02. One More Excuse to Play the Blues
+03. Open Up
+04. Gimmie Some(   Читать дальше...   )Жанр: Blues, Funk, SoulПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7491107E3F71044E909A0C219923003A2C6F6FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289135   (686636) от 16.03.2019
+
+VA - Memory Motel: Inside the World of Keith Richards (2019) [FLAC|Lossless|tracks + .cue] <Blues, Soul, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686636.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Funkadelic – Lunchmeataphobia (Think! It Ain't Illegal Yet) (04:12)
+2. Buckwheat Zydeco – The Wrong Side (04:28)
+3. Benny Spellman – Fortune Teller (02:11)
+4. Dion – The Wanderer (03:10)(   Читать дальше...   )Жанр: Blues, Soul, FunkПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72E716C6897D904A6C1AFE53DC4EAB37923CA02E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403872   (686580) от 22.08.2020
+
+Neal Black And The Healers - A Little Boom Boom Boom (2020) [FLAC|Lossless|image + .cue] <Modern Electric Blues, Texas Blues, Harmonica Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Follow Me There (05:31)
+02. Why Do People Act Like That (04:13)
+03. All For Business (04:55)
+04. Green Bean Swing (03:23)(   Читать дальше...   )Жанр: Modern Electric Blues, Texas Blues, Harmonica BluesПродолжительность: 00:56:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83A4E21060F99E910F3767319ECF7EB97D91702
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289410   (686474) от 16.03.2019
+
+VA - I Wanna Sex You Up - R'n'B For Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Color Me Badd - I Wanna Sex You up (Single Version)
+02. Silk - Freak Me
+03. Keith Sweat - I'll Give All My Love to You (Single Version)
+04. En Vogue - Hooked On Your Love(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 01:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:474B7463C73957373F7BF237A0581548A1EBA0F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1535121   (686420) от 06.03.2022
 
 CeeBee - Hopes (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -633,122 +749,6 @@ Nils Landgren - Funky Abba (2004) [FLAC|Lossless]<Free funk, Soul, R&В>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223659   (671528) от 06.05.2018
-
-Marcia Ball - Shine Bright (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_671528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shine Bright
- 02. I Got To Find Somebody
- 03. They Don't Make 'Em Like That
- 04. Life Of The Party(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABF53D8279FCD577BA35858D91849FDDAFEC926F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537050   (670616) от 14.03.2022
-
-Dom Cours & Company - Dom Cours & Co. Live At DUP Studio (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue  (4:40)
-02. Canyon  (3:58)
-03. Six String Gun  (3:46)
-04. Michael Malone (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B190D06DBF332F97F2083A5982E3B0A0E4C4F3FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030837   (670476) от 02.07.2016
-
-Delta Generators - Hipshakers And Heartbreakers (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Day That I Met You    02:48
-02.  Elephant In The Room    04:23
-03.  Two Headed Snake    02:18
-04.  Feel No Pain    02:47(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75656254CD6E2BF2333E24C15A509CD283806920
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030515   (670473) от 02.07.2016
-
-The Rockin Daddies - Rev It (2016) [FLAC|Lossless|tracks] <Blues, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don't Run Away    03:31
-02.  Paralyzed    02:49
-03.  Alpo Diablo    03:44
-04.  One and Only    03:00(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6780F6E5685772F4362659294F07451E22C1AEB
 ```
 
 https://mybot314.ru/tekegram_catalog/

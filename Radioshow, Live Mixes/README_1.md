@@ -1,3 +1,61 @@
+###  Публикация: 1844409   (1050110) от 26.12.2025
+
+VA - Armin van Buuren - A State Of Trance 1257 (Yearmix 2025) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050110.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren & Bon Jovi – Take The Leap (A State Of Trance Year Mix 2025 Intro)
+002. Armin van Buuren ft. JAI RYU – Let It Be For Love
+003. Armin van Buuren & Omnia – Love
+004. Ruben de Ronde & Amber Revival – Illuminate(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B787F9C082E8B56064EAC082D1E4AFA61BEF7A79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843219   (1049244) от 19.12.2025
+
+VA - Ori Uplift - Uplifting Only Episode 671 (Ori’s Top 50 Instrumental Uplifters of 2025 [Part 2]) (2025) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cedric Paul – Harmonic Skies (Intro Mix)
+02. Phil Dinner – The Battle
+03. Ruslan Khatmullin – Romantic Wave
+04. Shadows&Nightmares – Hallucinogen(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:05:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E56047820EFF0ABD10F12E60A49DAD552FB59B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843212   (1049243) от 19.12.2025
 
 VA - Armin van Buuren - A State Of Trance 1256 (Top 50 Of 2025) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -686,64 +744,6 @@ VA - Armin van Buuren & Ferry Corsten - A State of Trance 1002 (2021) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE655AECBF1A6A95D3336A7227F6D9D7D2ACD19E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438496   (1033498) от 06.02.2021
-
-VA - Live @ Tomorrowland NYE Edition (2020-12-31) [MP3|~245 Kbps (V0)] <Electro House, Progressive House, Big Room,Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Melodia Stage:
-Jack Back (David Guetta) @ Melodia Stage, Tomorrowland NYE Edition 2020-12-31:
-01. Jack Back - MicroFreak
-02. Agoria ft. STS - Call Of The Wild (Maxim Lany Remix)(   Читать дальше...   )Жанр: Electro House, Progressive House, Big Room,TechnoПродолжительность: 21:51:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4422319D7290F01D19CFF964F7AD20CAEFD9936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446365   (1032991) от 08.02.2021
-
-David Guetta - Live @ United At Home, Burj Al Arab Dubai, United Arab Emirates (2021-02-06) [MP3|320 Kbps] <Electro House, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta ft. Sia - Titanium (David Guetta & MORTEN Future Rave Remix)
-02. CamelPhat & Will Easton - Witching Hour (David Guetta 2020 Rework)
-03. David Guetta ft. Ne-Yo & Akon - Play Hard (David Guetta & MORTEN Future Rave Remix)
-04. David Guetta & Sia - Let's Love (David Guetta & MORTEN Future Rave Remix)(   Читать дальше...   )Жанр: Electro House, Progressive HouseПродолжительность: 01:05:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D613D4E7ABF2EBAA82A24DA554C2216C07180BD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

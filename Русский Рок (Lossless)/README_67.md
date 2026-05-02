@@ -1,3 +1,32 @@
+###  Публикация: 1717497   (111182) от 20.04.2024
+
+Бахыт-Компот - Бог, клубника и павлин (1999) [FLAC|Lossless|tracks + .cue] <Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Крабовые палочки
+02. Осень в поле рыскает
+03. Дылда
+04. Синие глаза(   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:46:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08939BAF534F4A8B3EDD524D7D92D608917B5BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717074   (111154) от 20.04.2024
 
 Dee_Waste - Всем, кто остался (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Metal, Cybercore, Alternative Metal>
@@ -716,35 +745,6 @@ S.T.D. - Шум и грязь (2024) [FLAC|Lossless|WEB-DL|tracks] <Grunge, Punk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D403DA15C5B44DA5A965D2B94E9522EBB01C9A19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721932   (109900) от 09.05.2024
-
-VA - Праздник русской авиации (2001) [FLAC|Lossless|tracks + .cue] <Rock. Folk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А. Хвостенко - Праздник русской авиации
-02. Д. Шагин - Беседка в городе Черкассы
-03. К. Тер-Амбарцумян - Брод через небо
-04. А. Хвостенко - Авиатор(   Читать дальше...   )Жанр: Rock. FolkПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65D7FEE9F6C1309E9B1926B55E2594B91D5336CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1310035   (548567) от 22.06.2019
+
+Freddie Mercury - Time Waits For No One (2019) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548567.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Time Waits For No OneЖанр: RockПродолжительность: 00:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A400A0780DE424C56CD375E4975DEC749AF6EBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1238390   (547027) от 29.07.2018
 
 VA - Rock Road Trip: The Ultimate Collection (2018) 5CD [MP3|320 Kbps] <Rock, Alternative, Hard Rock, Pop Rock>
@@ -716,35 +742,6 @@ Tennessee Iron - Better Late Than Never (2016) [MP3|320 Kbps] <Tennessee Boogie 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E3AD2C0A7C94579A75BB641A87EBC8120B5B655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050871   (536368) от 09.09.2016
-
-The Beatles - Live At The Hollywood Bowl (1977) Remastered, 2016, Universal [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новый альбом — это переиздание диска 1977 года, в который вошли записи трёх шоу, состоявшихся в 1964 и 1965 годах. В новую версию попали четыре ранее не издававшиеся песни. Пластинка вышла в поддержку нового документального фильма о The Beatles. Картина «Eight Days a Week: The Touring Years» рассказывает о жизни ливерпульской четвёрки в период с 1962 по 1966 год.01. Twist And Shout (1965)
-02. She's A Woman (1965)
-03. Dizzy Miss Lizzy (1965)
-04. Ticket To Ride (1965)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B117FA31C97CB4D464B7E3EC56208F78C7B2502
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1650774   (207254) от 03.08.2023
+
+Joanne Shaw Taylor - Nobody's Fool (2022) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nobody's Fool (3:37)
+02. Bad Blood (3:49)
+03. Won't Be Fooled Again (4:54)
+04. Just No Getting Over You (Dream Cruise) (4:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E263D81ADFFF72942208BC592677C68CE9C705F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002241   (207130) от 27.09.2022
+
+Too Slim And The Taildraggers  - 25 альбомов (1988 - 2022) [FLAC|Lossless|image + .cue|tracks+.cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_207130.jpg" />
+</div>
+
+
+###  Подробнее
+
+Too Slim & The Taildraggers сформировано в 1986 году. Лидер - Tim "Too Slim" Langford (Guitar/Vocals). Выпущено почти два десятка альбомов, не считая сольных проектов. Неоднократно признавались, награждались разными блюзовыми сообществами, как лучшая блюз-роковая группа, лучший альбом, песня, гитарист, барабанщик и т.д.
+Группа разделяла сцену со многими (   Читать дальше...   )1988 - Swingin' In The Underworld
+1990 - Rock 'Em Dead
+1992 -  El Rauncho GrundgeЖанр: Blues-RockПродолжительность: 25:11:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3773CB5245AADC2F803D07A9FFE2096AB62B56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613972   (206860) от 20.02.2023
+
+Joe Louis Walker - Weight of the World  (2023) [FLAC|Lossless|WEB-DL|tracks] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Weight Of The World (4:25)
+02. Is It A Matter Of Time? (3:11)
+03. Hello, It's The Blues (6:46)
+04. Waking Up The Dead (4:33)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FC755B81C6B9FF802E644B4A286D4A56D8CE96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156484   (206073) от 12.10.2022
+
+Anthony Gomes - Discography: 15 albums, 16CD (1997-2022) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_206073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Канадский гитарист и певец Энтони Гомес (Anthony Gomes) родился в 1975 в в Торонто. Признанный критиками исполнитель, возглавляющий чарты, играет в стиле современного электрического блюза, включающего элементы рока, соула, R&B и кантри. После выхода его дебютного альбома Blues in Technicolor в 1998 году он начал гастролировать по Соединенным Штатам и Канаде и (   Читать дальше...   )--------------------------
+
+01. Painted Horse (3:45)
+02. Fur Covered Handcuffs (3:24)(   Читать дальше...   )Жанр: Blues Rock |Продолжительность: 12:05:27 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993E47CB83D3E7AB4F59F0FEF73CDC9F16530E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1830791   (205630) от 27.10.2025
 
 Willie Phoenix - Flower Machine (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Lindsey Buck - The Laundry and the Ecstasy (2025) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:434FE44E240AC5D6A35169E7AF60174D45156FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830484   (202472) от 26.10.2025
-
-Tempra Rose - Blues Of The Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tempra Rose - Back to St. Louis (4:29)
-02.  Tempra Rose - Thighs and Prayers (4:35)
-03.  Tempra Rose - Blues of The Soul (5:03)
-04.  Tempra Rose - The Old Time Religion (3:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:409A08FD22F34C5C076A1F4F54C7B7182A6A4B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351241   (202203) от 26.02.2023
-
-Lonnie Mack - 14 Albums (1963 - 2002) 15 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Memphis Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lonnie McIntosh (18 июля 1941 года - 21 апреля 2016 года), известный под псевдонимом Lonnie Mack, был пионером американского блюзового рока и соло на рок-гитаре. Один из наиболее интересных гитаристов, хотя и поныне не оцененный по достоинству, добился единственного крупного успеха в чартах с инструментальной версией хита Chuck Berry "Memphis". Он интересен (   Читать дальше...   )Список альбомов:
-1964 - The Wham of that Memphis Man!
-1969 - Glad I'm in the Band
-1969 - Whatever's Right(   Читать дальше...   )Жанр: Modern Electric, Memphis BluesПродолжительность: 11:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A76AD410DF443EAC40C780D6862D14E2F62E204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616996   (201746) от 05.03.2023
-
-The Cadillac Kings - Crash And Burn (2023) [FLAC|Lossless|WEB-DL|tracks] <Rockin' Blues, Swing>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Doubtin' Thomas [00:04:24]
-02. Betty Lou Broke Outa Jail [00:03:44]
-03. Bona Fide [00:04:06]
-04. Cadillac Boogie [00:03:17](   Читать дальше...   )Жанр: Rockin' Blues, SwingПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08CECBBB24260BAE899D7719A1C8C0F9BCAB950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619161   (201344) от 14.03.2023
-
-John Haydock - Brush With The Blues, Town Full Of Blues, Brand New Blues (2022) 3xCD [FLAC|Lossless|image + .cue] <Blues Rock, Pop Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201344.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джона Хейдок — музыкант из Сиднея, Австралия, выросший в Англии и иммигрировавший в Австралию со всей семьей в возрасте 17 лет. Для фанатов Dire Straits.CD1 - Brush With The Blues:
-01. Pale Rider 5:57
-02. Lipstick Lies 4:18
-03. Slow Moving Westbound Train 5:27(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 02:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5750915B96639240376BDD873254741C0E6F4D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

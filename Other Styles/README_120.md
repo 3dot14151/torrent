@@ -1,3 +1,212 @@
+###  Публикация: 250572   (382578) от 27.10.2010
+
+VA - The Worlds Most Beautiful Flute Music. Instrumental Dreams (2004) [MP3|320 кб/с]<New age, Instrumental, Flute>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382578.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:26) 01. East Wind Associates - Wooden Ship
+(2:27) 02. Djivan Gasparyan - Ask Me No Questions
+(2:05) 03. J. Loman, N. Schulman - Gymnopedie #2
+(3:49) 04. Spotted Eagle - In Sunrise I Walk
+(4:13) 05. Richard Warner - Tao
+(4:12) 06. Joanie Madden - Women of Ireland
+(2:45) 07. Kay Gardner - Lydian Dreams
+(1:55) 08. Ensemble Villa Musica - Adagio from Flute Quartet in D
+(4:10) 09. Omar Faruk Tekbilek - Moment of Doubt
+(3:20) 10. Riley Lee - Melting Snow(   Читать дальше...   )Жанр: New age, Instrumental, FluteПродолжительность: 00:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:421FBFDB7B6E009E4CAAA0C47D2E605C7C23696E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253593   (381765) от 10.10.2018
+
+Constance Demby - Sonic Immersion (1996) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chakra #1 (07:35)
+02. Chakra #2 (06:30)
+03. Chakra #3 (05:28)
+04. Chakra #4 (05:27)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3E2B4D0B6847C10BBCD3367004B2981A2C63447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253602   (381764) от 10.10.2018
+
+Constance Demby - Attunement (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bringing Down The Silence (14:53)
+02. Strings of my Heart (06:56)
+03. Out of the Mist (03:29)
+04. Eyes in the Mirror (04:40)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:10:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC8FF65AD57F7C8D71142FA8F8865F7FD7BB86B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253547   (381762) от 10.10.2018
+
+Constance Demby - Skies Above Skies (1978) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Om Mani Padme Hum (09:58)
+02. Endless (08:59)
+03. Peace of God (11:55)
+04. El Mie (08:10)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EABAFEE5B7AD9561BDA8B0F0FA4C03507C42668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253560   (381760) от 10.10.2018
+
+Constance Demby - Sunborne (1980) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381760.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Dawning (08:22)
+02.Darkness of Space (06:38)
+03.Lift Thine Eyes (09:14)
+04.Sunborne (14:58)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 00:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95830E67178A34019F0110B8DFB4904531335AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253563   (381687) от 10.10.2018
+
+Constance Demby - Light of This World (1987) [FLAC|Lossless|tracks + .cue] <NewAge>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light of This World (06:57)
+02. Sunborne (04:21)
+03. The Flying Bach (06:09)
+04. Radiance (04:53)(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B4B05C7B2008C2A160E76BB1740CC300B5DF386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1253706   (381605) от 10.10.2018
+
+Junichi Kamiyama - The Best Musics for Recovery from Fatigue and to Get Healthy (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relaxation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_381605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction Commentary
+02. Fly
+03. Gentle Wind
+04. Hikari No Nakade(   Читать дальше...   )Жанр: New Age, RelaxationПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67394FE2439EAC76E47F8CC38C21FBA99E126F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1253341   (381504) от 10.10.2018
 
 VA - Александр Зацепин: Песни из к-ф 31 июня (1996) [FLAC|Lossless|image + .cue] <Soundtrack>
@@ -545,197 +754,6 @@ Paul Haslinger - Halt and Catch Fire (2016) [MP3|320 Kbps] <Soundtrack, Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:756AF940DCCA31F94F3D32904F8AF583AA034F3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415398   (376345) от 12.10.2020
-
-Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9803936CE5F4EEA93D687D3D62D42BE9CED5D3E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415397   (376341) от 12.10.2020
-
-Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5123F6ECB4719995E254054370ED545E73EFEEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415399   (376176) от 12.10.2020
-
-Hans Zimmer - Themyscira (OST from Wonder Woman 1984) (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53DB8C43649B8E8FC708AEB152763C3EAD698447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414580   (376166) от 12.10.2020
-
-Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Darkwave, Synthwave, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376166.jpg" />
-</div>
-
-
-###  Подробнее
-
-[01:36] 01. Intro
-[03:21] 02. Blood Machines Theme
-[03:19] 03. Attack Of The Amazons
-[02:24] 04. The Ceremony(   Читать дальше...   )Жанр: Darkwave, Synthwave, SoundtrackПродолжительность: 00:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CBDA0513D4AC097AB948B8BFEA3FA0A597CF52D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414498   (376026) от 12.10.2020
-
-Gregorian Prayers - 50 Must-Have Mystic Gregorian Pop Remixes (2012) [MP3|320 Kbps] <New Age, Enigmatic, Choral>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning Procession
-02. Misereris
-03. Christus factus est
-04. Halleluja I(   Читать дальше...   )Жанр: New Age, Enigmatic, ChoralПродолжительность: 05:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11CA38E148FE29903538BD113965F226A0EA5C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415368   (376011) от 12.10.2020
-
-Hans Zimmer - Eclipse (OST from Dune) [Trailer Version] (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 01. Eclipse (From Dune - Original Motion Picture Soundtrack)Жанр: SoundtrackПродолжительность: 00:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DACD0C952F9C66B6FB0A4E3676215C5755CACF2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069010   (375962) от 03.11.2016
-
-David Lanz - Norwegian Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Norwegian Rain [00:03:43]
-02. The Approaching Storm [00:04:53]
-03. Cloud Burst (Interlude) [00:01:31]
-04. And Skies Opened Up [00:04:00](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:03:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABB69AD400C84B3A3CC987BDB1C128C341DAD25
 ```
 
 https://mybot314.ru/tekegram_catalog/

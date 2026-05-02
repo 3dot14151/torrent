@@ -1,3 +1,32 @@
+###  Публикация: 1038036   (608364) от 27.07.2016
+
+Elgar - Enigma Variations, Cello Concerto (2012) [FLAC|Lossless|image + .cue] <Classical, Оркестровая>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_608364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cello Concerto in E minor, Op.85
+01. I. Adagio - Moderato (7:47)
+02. II. Lento - Allegro molto (4:08)
+03. III. Adagio (5:03)(   Читать дальше...   )Жанр: Classical, ОркестроваяПродолжительность: 01:14:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E53BFA67F5408CE26DAD5DBC8FA88909AB537A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913235   (607086) от 28.06.2015
 
 Shostakovich - Piano Concertos No.1, 2, Concertino (Alexander Toradze & Frankfurt Radio Symphony Orchestra) (2012) [FLAC|Lossless]<Classical, Orchestral, Symphonic, 20th Century Period, Mode ...
@@ -720,35 +749,6 @@ Sergei Prokofiev - The complete piano sonatas 1 (1991) [FLAC|Lossless]<classical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:408CA19469D93A4B6B395471AE57A4C6F16F7111
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 914300   (598167) от 02.07.2015
-
-Brahms - Piano works (Claudio Arrau) (3CDs) (1991) [FLAC|image+.cue]<Classical, Romantic Period, Chamber Music, Recitals, Sonata, Ballades>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_598167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Variations and Fugue for Piano in B flat major on a theme by Handel, Op. 24 (29:07)
-Variations (28) for Piano on a theme by Paganini, Op. 35
-02. Livre 1 (14:07)
-03. Livre 2 (11:29)Жанр: Classical, Romantic Period, Chamber Music, Recitals, Sonata, BalladesПродолжительность: 02:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4198C8C3F3BE553CC6EEEABBA21D1F337AD8912
 ```
 
 https://mybot314.ru/tekegram_catalog/

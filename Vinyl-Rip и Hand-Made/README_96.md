@@ -1,3 +1,175 @@
+###  Публикация: 1755693   (40054) от 17.10.2024
+
+Сергей Беликов - Вечерний Звонок (1997) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Ballad, Schlager>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Вечерний Звонок
+02. Возвращение
+03. Подари Мне Свой Взгляд(   Читать дальше...   )Жанр: Ballad, SchlagerПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F04C0C9B805E13C53449FD475EA39ABB7EBEC5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637597   (39975) от 18.10.2024
+
+Kamelot - Studio Albums (13 releases) (1995-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39975.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kamelot — американская метал-группа, играющая симфонический пауэр-метал с примесями других жанров. Группа создана в 1991 году Томасом Янгбладом и Ричардом Ворнером и получила название в честь мифического города Камелот с намеренной ошибкой (K вместо C). Несмотря на своё североамериканское происхождение, Kamelot отличается типично «европейским» звучанием.1995 - Eternity
+1996 - Dominion
+1998 - Siege Perilous
+1999 - The Fourth LegacyЖанр: Progressive/Melodic Power MetalПродолжительность: 12:20:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D40E16D6498A4D79E1105B2DBFC9FD66DCF90E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755911   (39864) от 19.10.2024
+
+Сергей Скачков - Избранное (2024) Compilation, Unofficial Release [FLAC 2.0|64/24|image +.cue|MC-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Меня нет дома
+02. Маска гетто
+03. Не буди её(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CFFF06C59F653359D559A2D186875AAF4077F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756468   (39675) от 21.10.2024
+
+Frozen Crown - Studio Albums (5 releases) (2018-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Frozen Crown — итальянская пауэр-метал-группа, образованная в 2017 году в Милане, Ломбардия.2018 - The Fallen King
+2019 - Crowned In Frost
+2021 - Winterbane
+2023 - Call of the NorthЖанр: Power MetalПродолжительность: 04:12:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FF40EA7C93198F3AC17161FCFE5F5A8DEE0CC5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756454   (39654) от 21.10.2024
+
+Divinefire - Studio Albums (5 releases) (2004-2011) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39654.jpg" />
+</div>
+
+
+###  Подробнее
+
+Divinefire — пауэр-метал-группа, основанная весной 2004 года финским гитаристом Яни Стефановичем и шведским певцом Кристианом Лильегреном.2004 - Glory Thy Name
+2005 - Hero
+2006 - Into a New Dimension
+2008 - FarewellЖанр: Power MetalПродолжительность: 03:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF969602EA3C361FF63C4E0A6CEA48B7B6147AF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756594   (39561) от 22.10.2024
+
+Sunburst - Studio Albums (2 releases) (2016-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sunburst - пауэр/прогрессив-метал группа из Лариссы, Греция, образованная в 2010 году.2016 - Fragments of Creation
+2024 - ManifestoЖанр: Power/Progressive MetalПродолжительность: 01:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5654B825A67E656CA34616BA72AAFDE318491B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756591   (39551) от 22.10.2024
 
 New Horizon - Studio Albums (2 releases) (2022-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Heavy Metal>
@@ -570,180 +742,6 @@ Nightmare - французская пауэр-метал группа из Гр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5A8A59EA31FFF7DF07ADCB267D11E1E33028810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648817   (38123) от 06.11.2024
-
-Sonata Arctica - Studio Albums (16 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38123.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sonata Arctica — пауэр-метал-группа из Кеми, Финляндия, действующая с 1999 года.
-Первоначально основанная в 1996 году как хард-рок-группа Tricky Beans (позже Tricky Means), группа остановилась на названии Sonata Arctica в 1999 году, поскольку их музыкальный стиль изменился на пауэр-метал, вдохновленный Stratovarius.1999 - Ecliptica
-2001 - Silence
-2003 - Winterheart's Guild
-2004 - Reckoning NightЖанр: Power MetalПродолжительность: 16:10:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:255B3A5253A42123A7784089EF934C2F28358006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684807   (37977) от 07.11.2024
-
-Astral Doors - Studio Albums (10 releases) (2003-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37977.jpg" />
-</div>
-
-
-###  Подробнее
-
-Astral Doors — шведская хеви-метал-группа, основанная в 2002 году гитаристом Йоахимом Нордлундом и барабанщиком Йоханом Линдстедтом.2003 - Cloudbreaker
-2005 - Evil Is Forever
-2006 - Astralism
-2007 - New RevelationЖанр: Heavy/Power MetalПродолжительность: 09:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722C79342F8CBDFF4720B923B4FEE2E896A76563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544792   (37910) от 08.11.2024
-
-Eldest 11 - Studio Albums (10 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Modern Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eldest 11 - группа загадка. Группа, не дающая концерты и интервью. Группа, от года к году не меняющая свое звучание, при этом умудряющийся оставаться самобытной и уникальной в плане создаваемой атмосферы и эмоций.2009 - Worst Part of a Decade
-2010 - Lovers & Haters
-2011 - Message to U
-2013 - The Morning StarЖанр: Nu Metal, Modern RockПродолжительность: 09:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB08FBBC9AE4A5F325A7CBDB28010A4DFCD20D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613178   (37797) от 09.11.2024
-
-Delain - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Delain — нидерландская группа, исполняющая музыку в стиле симфоник-метал. Коллектив был основан в 2002 году Мартейном Вестерхольтом, бывшим клавишником Within Temptation.2006 - Lucidity
-2009 - April Rain
-2012 - We Are The Others
-2013 - Interlude (Compilation)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 11:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBC5BC3AC9D0E497883D3A3F4BE7C621DB8C686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696895   (37774) от 09.11.2024
-
-Depressive Witches - Studio Albums (3 releases) (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black Metal/Black 'n' Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блэк-метал группа Depressive Witches была основана в 2018 году в Пикардии, Франция2021 - Bad Flask
-2022 - Distant Kingdoms
-2024 - Lost, Forgotten and HeartbrokenЖанр: Black Metal/Black 'n' RollПродолжительность: 01:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18795B0E9A75DA019FE904BCA4104F41352A33F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721063   (37759) от 09.11.2024
-
-Paragon - Studio Albums (13 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paragon — немецкая метал-группа из Гамбурга, играющая в стиле пауэр-метал. Была основана в 1990 году Мартином Кристианом.1995 - World Of Sin
-1998 - The Final Command
-1999 - Chalice Of Steel
-2001 - SteelboundЖанр: Power/Speed MetalПродолжительность: 11:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:290C6BEDC1568C3E6DF61492DB572AFBEFA44F78
 ```
 
 https://mybot314.ru/tekegram_catalog/

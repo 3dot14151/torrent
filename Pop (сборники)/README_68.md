@@ -1,3 +1,113 @@
+###  Публикация: 359429   (580885) от 07.07.2011
+
+VA - Лучшие Песни Русского Радио 3 (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580885.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 11:41:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55273BCADD15E5F6DAFA001825CD44ADBFAA6423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920031   (580862) от 21.07.2015
+
+VA - Союз летних хитов на Europa Plus. Часть 6 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580862.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Young Professionals Feat. Anna F - All Of It But Me (03:09)
+002. Анастасия Приходько - Ника (03:27)
+003. Chris Parker - Robot Romantic Love (03:39)
+004. Виктор Романченко - Я Услышу (03:31)(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C60ED180011B14CE33ED758CDA5A09464F4FF68E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1302519   (580258) от 16.05.2019
+
+VA - Records That You Play (2019) [MP3|320 Kbps] <Pop Dance, Electro Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580258.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Feel Ikx - E.D.P.
+002. Cooki - I Love You (Radio Edit)
+003. Wilson Netto - Flute
+004. Greazy Puzz - Broccoli(   Читать дальше...   )Жанр: Pop Dance, Electro DanceПродолжительность: 09:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FC0999763A643AD2CF196B07D5AA8DF1008661C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360339   (579914) от 08.07.2011
+
+VA - Зажигательное лето (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_579914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:129B91F68DE02600FB5DC8A8B6B124D8336F4921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 360318   (579874) от 08.07.2011
 
 VA - Жаркие Хиты Лета (2011) [MP3|256 kbps]<Pop>
@@ -608,125 +718,6 @@ VA - 100ня взрывных хитов Русский (2011) [MP3|256 kbps]<Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:268B64DEF391925B294A5217222BCE5C3B759627
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921174   (577168) от 24.07.2015
-
-VA - Музыкальный кайф лета (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577168.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Профилактика - Это Не Сон
-002. Cheryl Cole - I Dont Care
-003. Mozgi (Потап) - Хлам
-004. Selena Gomez - Mas(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:304841DA3A5824977F2A8404CF4E0AC105F408BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 920942   (577153) от 24.07.2015
-
-VA - Попсовая Сотка MTV. Русский выпуск (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лицей - Где-то
-02. Sasha Santa - Напицца
-03. Иван Дорн - Ты всегда в плюсе
-04. Артём Артемидов - Живи(   Читать дальше...   )Жанр: PopПродолжительность: 06:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75909324D6345A0D08E8337600E8030E9EDD2670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527457   (576923) от 26.07.2012
-
-VA - Хиты пляжного сезона (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Юлия Беретта - Лето
-02. Martin Solveig - The Night Out
-03. Потап и Настя - Прилелето
-04. Ирина Дубцова - Ешь, молись, люби
-05. Shakira - Addicted To Yo
-06. Сергей Жуков & Opium Project - Я буду с тобою
-07. Алина Гросу - Взрослая
-08. Elvira T - Все решено (Fresh Tunes remix)
-09. Rihanna - Where Have You Been
-10. Глюк'oza - Хочу мужчину (DFM mix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD60A2AE47FB589839B6D0D21F880C4A0BE3CC2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 359245   (576871) от 10.07.2011
-
-VA - Авто Дискотека 2 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC07B1B45933833AFF9F67DA9809BDAD0964AA5E
 ```
 
 https://mybot314.ru/tekegram_catalog/

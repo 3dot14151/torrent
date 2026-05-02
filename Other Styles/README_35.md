@@ -1,3 +1,206 @@
+###  Публикация: 1004934   (834355) от 08.04.2016
+
+Katzenjammer - A Kiss Before You Go (2011) [FLAC|Lossless|tracks] <Pop, Folk, Vocal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Kiss Before You Go    01:16
+02. I Will Dance (When I Walk Away)    03:50
+03. Cherry Pie    03:01
+04. Land Of Confusion    03:39(   Читать дальше...   )Жанр: Pop, Folk, VocalПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FCE9563B7547CF03CC8AC8D7B3325BC2E2A38DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1004097   (834354) от 08.04.2016
+
+Club 8 - Pleasure (2015) [MP3|320 кб/с] <Pop, Rock, Electronic>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834354.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Love Dies 02:44
+2. Skin 02:48
+3. Late Nights 02:57
+4. Kinky Love 02:55(   Читать дальше...   )Жанр: Pop, Rock, ElectronicПродолжительность: 00:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD8793BBC85F58BAA1EBD1BE842DC3BC7711124D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501567   (833634) от 11.10.2021
+
+Gheorghe Zamfir - Golden Pan Flute Melodies (1988) [FLAC|Lossless|image + .cue] <Instrumental, Folk, World>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833634.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флейта Пана (Pan Flute) - общее название многоствольных флейт, древнейшего музыкального инструмента, существовавшего еще до нашей эры. Название связано с мифом о древнегреческом боге Пане, покровителе пастухов. На всех изображениях Пан играет на сиринге (греческое название флейты Пана), а в Помпеях найдена скульптура, на которой Пан обучает Дафниса игре на сиринге. (   Читать дальше...   )01. The Brîu of Oltenie (2:19)
+02. Song of Iancu Jianu (3:16)
+03. An Ill Blackbird (2:34)
+04. Hora Slow (1:57)(   Читать дальше...   )Жанр: Instrumental, Folk, WorldПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:344D4EA1D0501B412203BD1E81CA4C3C719359D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114030   (833505) от 14.03.2017
+
+Bino Dola, Luna Blanca, Fuegoitaliano - New Flamenco (2014) [MP3|320 Kbps] <Flamenco, Latin, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luna Blanca - El Dorado
+02. Fuegoitaliano - Rumba Del Sol
+03. Bino Dola - Venta De Vargas
+04. Luna Blanca - Rio Mamoré(   Читать дальше...   )Жанр: Flamenco, Latin, InstrumentalПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE14E9240E2A76465641230318FD29D710015A90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114304   (833502) от 14.03.2017
+
+Oliver Scheffner - Relax Lounge. Soothing Music for Recreation (2014) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chilling Funk Nights
+02. October Sun
+03. White Couch
+04. Schwabing Nights(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C420D652B826B04D280C7CF4B42FF7BDB9066504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114252   (833295) от 14.03.2017
+
+Clinton Shorter - The Expanse: Season One (Original Television Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks] <Score, Soundtrack, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Expanse (01:04)
+02. Hostage (03:13)
+03. Signal (02:10)
+04. Welwala (02:17)(   Читать дальше...   )Жанр: Score, Soundtrack, AmbientПродолжительность: 00:46:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:991D3C1477CEC19C7DFDB2F10ED6362578ECCF21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379923   (832525) от 03.05.2020
+
+Salvador Candel - Reflejos (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832525.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cuando te miro 04:12
+2. Los secretos del viento 04:38
+3. Ángeles	05:34
+4. Reflejos	03:53(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD70DE05449FC0B1B4C71A5CC16BE8220B6E232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 195076   (832121) от 24.04.2010
 
 Shastro - 8 альбомов (1994-2001) [MP3|320 kbps]<NewAge, Meditative, World>
@@ -544,210 +747,6 @@ VA - Gregorian Chants: Sanctus (2009) Limited Edition, Box Set [MP3|320 Kbps] <E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC7A5FF30950027F0977F444A58485C8D39438DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515786   (828959) от 05.05.2020
-
-VA - The Crow/из к/ф "Ворон" (1994) Compilation [FLAC|Lossless|tracks + .cue] <OST, Rock & Roll, Soft Rock, Alternative Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828959.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Ворон» (англ. «The Crow») - дебютный кинофильм Алекса Пройаса, экранизация одноимённого чёрно-белого комикса Джеймса О’Барра. У фильма есть три сиквела, также имеется телесериал с Марком Дакаскосом, показывающий альтернативную версию сюжета фильма. На съёмках Брэндон Ли был случайно ранен из реквизитного револьвера выстрелом актёра Майкла Масси, который играл одного (   Читать дальше...   )01. The Cure - Burn (06:38)
-02. Machines Of Loving Grace - Golgotha Tenement Blues (03:59)
-03. Stone Temple Pilots - Big Empty (04:56)
-04. Nine Inch Nails - Dead Souls (04:53)(   Читать дальше...   )Жанр: OST, Rock & Roll, Soft Rock, Alternative RockПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5AB5E9BC1BD584D38F390298D7C70F0EA124399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005754   (828801) от 11.04.2016
-
-Аквариум и Борис Гребенщиков - Live "Весенний концерт" БГ60, Самара, КРЦ "Звезда", (2014) [AC3 5.1|448 кб/с] <Рок>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828801.jpg" />
-</div>
-
-
-###  Подробнее
-
-В раздаче аудио-дорожка (с потрековой разбивкой) от видеозаписи концерта, состоявшегося 25.05.2014г. в Самаре. Запись из зала "с воздуха".
-Видео можно найти >здесь< и >здесь<.01. Intro
-02. Губернатор
-03. Праздник Урожая Во Дворце Труда
-04. Не Было Такой И Не Будет(   Читать дальше...   )Жанр: РокПродолжительность: 02:30:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F65ACCCE8764770469A5088B085C02CDD2CB72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380925   (827809) от 06.05.2020
-
-Salvador Candel & Carlos Fiel - Tengo Un Gran Amor (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827809.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tengo un gran amor 04:26
-2. Colores de amanecer 04:13
-3. Encuentros luminosos 04:02
-4. Canción para un amigo 03:16(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79BB95385943A55093BA33CFCF4077E089BBEDEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381012   (827807) от 06.05.2020
-
-David Hollandsworth - Imagine a World (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827807.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. A New Horizon 03:06
-2. Depths of Love 02:43
-3. Limitless	 02:10
-4. Imagine a World 03:44(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:56:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00EE00000C7E00AECA103D6D0CE729A6560C05A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1380801   (827735) от 06.05.2020
-
-Asian Zen - Yoga Meditation Edition 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827735.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Zen Healing 03:14
-2. Calm Mind 03:16
-3. Relax Therapy	 03:34
-4. Mantra 03:58(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30419B2C9E6E765B9ADF9CF551FECF5E9939E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381191   (827730) от 06.05.2020
-
-Terry Scott Taylor - Return To The Neverhood (Comic Book Soundtrack) (2012) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overture: The Return
-02. Let's Get This Ball Rolling!
-03. Over The Deeporama
-04. Out Of The Clay And Mud & Coilsssss And Sssssspringsssss(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4288F6CCB9C24605AF4AF99056BFEDECA551C03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381201   (827649) от 06.05.2020
-
-Power Glove - Far Cry 3 Blood Dragon OST (2013) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rex Colt [1:47]
-02. Blood Dragon Theme [3:04]
-03. HELO-73 [1:17]
-04. Warzone [2:37](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 1:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE95613D43D82C93454FE6A4543623743EC659E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

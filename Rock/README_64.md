@@ -1,3 +1,32 @@
+###  Публикация: 1071729   (356816) от 11.11.2016
+
+Pink Floyd - Cre/ation: The Early Years 1967 - 1972 (2016) 2CD [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356816.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Arnold Layne
+02. See Emily Play
+03. Matilda Mother (2010 Mix)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F633930459FC90F9ADBFBC3792659BEEF5AC3EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952200   (356055) от 01.11.2015
 
 Spirit Of John Morgan - Spirit Of John Morgan (1971) /1993, Repertoire Records / [MP3|320 кб/с]<Prog, Psych, Blues Rock>
@@ -720,35 +749,6 @@ Stratovarius - Dreamspace (1994) Remastered, 1994, T&T [OGG Vorbis|484 Kbps] <Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC335291AAE17EEF1CF2C0027A593FD7C1521CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578287   (348162) от 22.09.2022
-
-Stratovarius - Enigma: Intermission II (2018) [OGG Vorbis|484 Kbps] <Rock, Power Metal, Ballad>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigma
-02. Hunter
-03. Hollowed
-04. Burn Me Down(   Читать дальше...   )Жанр: Rock, Power Metal, BalladПродолжительность: 01:15:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4055A801266A687250634CF97BC271C2C211DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

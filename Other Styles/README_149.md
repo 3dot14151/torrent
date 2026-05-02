@@ -1,3 +1,206 @@
+###  Публикация: 1633781   (233762) от 18.05.2023
+
+VA - Meditation Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Meditation, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RIOPY - Meditation (4:55)
+02. Matteo Myderwyk - Pastorale (2:04)
+03. Carlos Cipa - Sonata Fragment (3:28)
+04. Bertrand Chamayou - 5 Lieder, Op. 49 No. 4, Wiegenlied (Transcr. Reger) (1:41)(   Читать дальше...   )Жанр: Meditation, PianoПродолжительность: 01:25:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D571D6CC3AD2B7D057AE834988F3D740C22347F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634325   (233688) от 19.05.2023
+
+J.J. Hurtak, Desiree Hurtak & Steven Halpern - Sacred Name Sacred Codes (2012) [FLAC|Lossless|tracks + .cue] <New Age, Healing, Chant>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue
+02. El De'ot YHWH
+03. Y-H-W-H Echad
+04. Y-H-W-H Elohekha Esh'oklah(   Читать дальше...   )Жанр: New Age, Healing, ChantПродолжительность: 00:49:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7CD993984F2C923B019220D6A6B7D19A150C51B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635136   (232236) от 27.05.2023
+
+Василий Васин (Вася Васин) - Песни казаков (2023) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_232236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Черный ворон [00:04:01]
+02. Ойся ты ойся [00:05:37]
+03. Из-за острова на стрежень [00:04:13]
+04. По Дону гуляет казак молодой [00:04:48](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9564700A1E3C7D4745353109B7BC7B2336B9E94B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647520   (231510) от 19.07.2023
+
+Jason Allen - Something I Dreamed (2001) [FLAC|Lossless|image + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I've Got To Say (3:04)
+02. Next In Line (3:07)
+03. Body And Fender Man (2:38)
+04. Love Me (3:16)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77A7A9E741C66E06FD13EAB5950A7B92D9172B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1647667   (231073) от 21.07.2023
+
+Alexey Nechaev - Inmost (2020) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Inmost - Unleash the Pain.mp3
+02 Hide and seek.mp3
+03 Spark.mp3
+04 Escape.mp3(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E94C3809D03D9263D11190D38A4AC32EC773597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637092   (231026) от 02.06.2023
+
+Гасан Багиров ( Музыкальные композиции Александра Морозова ) - Мелодии для души (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_231026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Горница
+02. Душа болит
+03. Малиновый звон
+04. Остановите землю(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9332F1D2DAF0E4F0C73849DF307A74AF8BD8453
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637288   (230963) от 03.06.2023
+
+Mike Oldfield - Tubular Bells III (1998) [FLAC|Lossless|tracks + .cue] <New Age, Progressive Rock, Art rock>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_230963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Source Of Secrets
+02. The Watchful Eye
+03. Jewel In The Crown
+04. Outcast(   Читать дальше...   )Жанр: New Age, Progressive Rock, Art rockПродолжительность: 00:46:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1479B478154E2DE38B3069975A5091C8266A98D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582723   (230094) от 14.10.2022
 
 Kirtan Raga - Longing (2016) [FLAC|Lossless|WEB-DL|tracks] <Mantras>
@@ -553,209 +756,6 @@ Laura Sullivan - Serenity: Music for Meditation and Inner Peace [FLAC|Lossless|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36FA2117DD445A7F276CD9BD00EA99DEEF8AA5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268705   (226345) от 11.12.2018
-
-Laura Sullivan - A Magical Christmas (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Bells of Christmas
-02. Up on the Housetop / Ode to Joy
-03. Ave Maria
-04. The First Noel(   Читать дальше...   )Жанр: Instrumental, New ageПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22BC191376C861965C094727BC34B6AD8F037828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268601   (226188) от 11.12.2018
-
-Gente de Zona - En Letra de Otro (2018) [MP3|320 Kbps] <Reggaeton, Cubaton>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_226188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Si Tu No Estas
-02 - Cuando Calienta el Sol
-03 - Manantial de Corazon
-04 - Despues de Ti(   Читать дальше...   )Жанр: Reggaeton, CubatonПродолжительность: 00:35:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D6BD0FE63B82B64EBB6342DF3CA93A82653A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 965272   (225799) от 14.12.2015
-
-Goran Bregovic - Music Inspired And Taken From Underground (1995) [FLAC|Lossless|tracks + .cue] <Gypsy Jazz, Tango, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kalasnjikov (3:22)
-02. Goran Bregovi feat. Cesria vora - Ausncia (3:48)
-03. Meseina / Moonlight (3:59)
-04. Ya Ya (Ringe Ringe Raja) (2:30)(   Читать дальше...   )Жанр: Gypsy Jazz, Tango, SoundtrackПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E60BD2054B1726D2D7B15428A7118D0BE3E26D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513194   (225393) от 28.11.2021
-
-Georg Philipp Telemann, Markus Kuikka - Fantasias For Viola Da Gamba (2021) [FLAC|Lossless|image + .cue] <Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fantasia I in C minor - I. Adagio - Allegro - Adagio - Allegro
-02. Fantasia I in C minor - II. Allegro
-03. Fantasia II in D major - I. Vivace
-04. Fantasia II in D major - II. Andante(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:11:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72620AC933A17BCCC220DFAFCFC860AAE6B7619A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 811661   (225052) от 18.11.2020
-
-Collapse Under The Empire - 7 Albums, 4 EP, 3 Singles (2009-2020) [MP3|320 кб/с] <Post-Rock, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225052.jpg" />
-</div>
-
-
-###  Подробнее
-
-Albums:
-2009 - Systembreakdown
-2010 - Find A Place To Be Safe
-2011 - Shoulders & Giants(   Читать дальше...   )Жанр: Post-Rock, InstrumentalПродолжительность: 07:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F9D80954B96F92ADD34DCB6E4A45432478453EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513199   (224968) от 28.11.2021
-
-Blizzard Composer - Starcraft / Starcraft II OST (2007-2015) 5 CD [FLAC|Lossless|tracks + .cue] <Electronic, Stage & Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный саундтрек к легендарной серии видеоигр "Blizzard Intertainment" - "Starcraft"StarCraft
-StarCraft II - Wings of Liberty
-StarCraft II - Heart of the Swarm
-StarCraft II - Legacy of the VoidЖанр: Electronic, Stage & ScreenПродолжительность: 05:13:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:186D381F07D50A0C59575EB0A02CB5F8FA92C651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650693   (224766) от 03.08.2023
-
-Kevin Braheny - Secret Rooms (1990) [FLAC|Lossless|tracks + .cue] <Electronic, New Age, Space>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_224766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passage 1: Ingress
-02. 'Til You Get There
-03. Passage 2
-04. Shadowcatcher(   Читать дальше...   )Жанр: Electronic, New Age, SpaceПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2195668545B1D3FB7C60F5B46DDBFA65722C061
 ```
 
 https://mybot314.ru/tekegram_catalog/

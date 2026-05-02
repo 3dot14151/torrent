@@ -1,3 +1,73 @@
+###  Публикация: 471228   (97419) от 22.03.2012
+
+VA - Into The Cosmic Jungle (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Liquid Soul - Hypnotic Energy (Egorythmia remix) (7:06)
+02. Sixty9 feat. Double Click - Underground Beats (6:33)
+03. Naturalize - Dont Lie (7:00)
+04. Aioaska - Higher Consciousness (original mix) (9:32)
+05. Faders - Bass Destroyer (original mix) (7:40)
+06. Tryptamoon - Phoenix From The Ashes (10:21)
+07. Kularis - Fruitopia (7:13)
+08. Chemogen - Winter Is Coming (7:19)
+09. Infected Mushroom - Pink Nightmares (album mix) (6:06)
+10. Bizzare Contact - Bizzare Adventures (8:13)2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 04:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD93DBA03CB9BD42D5274A5F370A263DD5CEC6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471566   (97415) от 21.03.2012
+
+VA - 50 Chillout Lounge Tracks (2012) [MP3|320 кб/с]<Downtempo, ChillOut, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain On Me Baby - Hornbostel & Donner
+02. The Turn Nearly Begins - Clark Parker
+03. Urban Exploration - Baghira
+04. Praia Brava - Miraflores
+05. Drops Of Remembrance - Cane Garden Quartet
+06. Afreakatum (Suntheca Lounge Mix) - The Mask
+07. Tastin' - Cesar Martinez Ensemble
+08. On The Lake - Enrico Donner
+09. Barefoot In The Park - Rey Salinero
+10. Dedicado - Don Gorda Project(   Читать дальше...   )Жанр: Downtempo, ChillOut, LoungeПродолжительность: 04:39:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E82130866613BFBAE5B98F18DB60C25E0C5A013
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470439   (97243) от 19.03.2012
 
 VA - Get Sexy vol.1 (2012) [MP3|320 кб/с]<Electro House, House>
@@ -808,76 +878,6 @@ VA - Progressive Music (20.02.2012) [MP3|320 kbps]<Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDD9F888C57903B51D72C45C78B504CF348DEA84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455805   (94145) от 23.02.2012
-
-VA - Minimal Art v.12 (20.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Fortis - Disharmonic Orchestra (6:54)
- 02. Antonio Forester – Fourth Reactor (Original Mix) (6:02)
- 03. Cyberx, Manolow - Tag Gun (Tekhoover Remix) (7:07)
- 04. Danase - Now What's That (7:10)
- 05. Dapayk & Midnight - Emergency (7:30)
- 06. Electronomica - Troupial (Djase Dub Remix) (5:59)
- 07. Fabio Miotto - Dolmen (Original Mix) (7:00)
- 08. Koobique - Fear Factory (Original Mix) (5:05)
- 09. Luke Shayer - Absynth (Muto Remix) (7:15)
- 10. Manu Sami - Musaka (Original Mix) (6:01)(   Читать дальше...   )20.02.2012Жанр: MinimalПродолжительность: 02:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E1B4E78F8697A1A18BA98152CA8FDD5205C7D2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455003   (94091) от 22.02.2012
-
-VA - Minimal Art v.10 (18.02.2012) [MP3|320 kbps]<Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aiho - Purple Haze (Giuseppe Visciano Psychedelic Remix) (6:05)
- 02. Artem Abdrakhmanov - Fire Blood (Original Mix) (7:33)
- 03. Bodyscrub - Resolution (Original Mix) (8:42)
- 04. Ciaran Osborne - Don't Hold Back (Original Club Mix) (6:59)
- 05. Danase - Come On, We Play (6:25)
- 06. Dani Sbert - Otherside (Original Mix) (7:01)
- 07. Deep Inside Sistem - Violence (Original Mix) (7:11)
- 08. Diamandy - Breezer (Original Mix) (8:07)
- 09. Doubleton - Diluente (Original Mix) (6:20)
- 10. Dubfloor - Tropa Tropa (Original Mix) (6:50)(   Читать дальше...   )18.02.2012Жанр: MinimalПродолжительность: 02:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE05E1089EA0849955044BA64E2D8CAC0A261CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

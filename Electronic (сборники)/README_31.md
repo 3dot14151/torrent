@@ -1,3 +1,61 @@
+###  Публикация: 991166   (907810) от 27.02.2016
+
+VA - Nude Mix #1 (2016) [MP3|320 кб/с] <Drum & Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam F - Circles (dRamatic & dbAudio Unofficial Remix V2) (06:45)
+02. Crush & NYD feat. Jordan Howell - Conscious (04:19)
+03. Desh - Polaris (04:16)
+04. Bad Company UK - Equilibrium (04:43)(   Читать дальше...   )Жанр: Drum & Bass, DubstepПродолжительность: 00:51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7737B75BA67700818EEF842C370C1F81D4BA9A75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099173   (907350) от 31.01.2017
+
+VA - Trance Traveling 85 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  UCast & Magnus - Echo (Extended Mix)  5:34
+02.  Chris Metcalfe - Orbit (Extended Mix)  4:52
+03.  ReOrder - Spirit Of Ecstasy (Extended Mix)  5:23
+04.  Fabio XB & Marell feat. Christina Novelli - Can't Let Go (Extended Mix)  4:09(   Читать дальше...   )Жанр: Trance, Melodic, Uplifting, Energy, Tech Trance, Blissful, VocalПродолжительность: 04:19:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E50F9BC6799809C06C67175EE66CFC1C3AF6692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1098879   (907324) от 31.01.2017
 
 VA - Chillout Dream. Winter (2017) [MP3|320 Kbps] <Chillout>
@@ -691,64 +749,6 @@ VA - Chillstep Master Pack (2016) [MP3|266-320 кб/с] <Chillstep, Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCB12ABAD00170C728B81D2A32E910D42A1D49C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992347   (902521) от 01.03.2016
-
-VA - Liquid Bass Drive (2016) [MP3|320 кб/с] <Drum and Bass, Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902521.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fred V & Grafix - Constellations
-002. Mob Tactics - Get Dirty
-003. Mob Tactics - Shark Tank
-004. Krakota - Lust Thrust(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 09:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC18B3B01E6B0043DBA01678EF4B433F5FBCC2D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1492087   (902476) от 30.08.2021
-
-VA - Beatport Hardstyle: Sound Pack #336 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902476.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Watchmen - Hostile
-002. B-Freqz - Rebirth
-003. Hirohiro - Not This Time
-004. Marlo & Matrick - This Way(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 09:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B78A924DDBD67BEA36E0D55DCD5D2C92E60B8BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1027645   (696762) от 19.06.2016
+
+Bernie Senensky - Homeland (1991) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.New Life Blues [06:29]
+ 02.Leira [09:29]
+ 03.Guys And Dolls [07:07]
+ 04.Falling [05:43](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:15:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBD13F8C2FC6972163F1525BB0086596E002BD81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027650   (696656) от 19.06.2016
+
+Phil Woods & Michel Legrand And Orchestra - Images (1975) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Modern Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Windmills Of Your Mind [04:19]
+ 02.A Song For You [04:05]
+ 03.Nicole [03:34]
+ 04.The Summer Knows [03:02](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Modern Big BandПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BF00935ABF8506255D62A9DF4AD48E9496EAF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1534297   (696072) от 01.03.2022
 
 Black Flower - Magma (2022) [FLAC|Lossless|tracks + .cue] <World Fusion>
@@ -682,64 +740,6 @@ Chet Baker - September Song (1990) 2002, M&I Company [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91EF6F56CAD35F286B5A10759AE9A7F3A26E9A7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133520   (693542) от 13.05.2017
-
-The Dave Pike Quartet - Pike's Peak (1962) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Not [06:47]
-02. In A Sentimental Mood [06:33]
-03. Vierd Blues [06:00]
-04. Besame Mucho [06:55](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0F66994BE5FB891AB128418F98C10A8B0BD809A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133656   (693438) от 13.05.2017
-
-Paul Desmond - Desmond Blue (1961, 1962) 2016, Sony Music [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Funny Valentine  [03:53]
-02. Desmond Blue  [03:41]
-03. Then I'll Be Tired of You  [04:07]
-04. I've Got You Under My Skin  [04:43](   Читать дальше...   )Жанр: CoolПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551BE83F7F04ED2C708BE9F6B59157C6A57A53E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

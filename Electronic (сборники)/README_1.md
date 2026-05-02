@@ -1,3 +1,61 @@
+###  Публикация: 1604787   (1045168) от 15.01.2023
+
+VA - Chill Out Stories Vol. 4 (2023) [MP3|320 Kbps] <Downtempo, Future Jazz, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamhunter - Horizon in Blue (Original Mix)
+02. Roberto Bronco - Mad (Original Mix)
+03. Circles Of Sound - Floating (Original Mix)
+04. Marc Hartman - Voices Inside (Final Mix)(   Читать дальше...   )Жанр: Downtempo, Future Jazz, Chillout, LoungeПродолжительность: 02:29:24 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B2B7FD7AA88F093A7F0BCABB55DD20AA0E8564
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607038   (1044206) от 24.01.2023
+
+VA - Beatport Tech House Top 100 January (2023) [MP3|320 Kbps] <Tech House, Techno, Soulful, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044206.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Abbud, Freenzy Music - Taka (Original Mix) 130
+002. Acraze - Do It To It (Extended Mix) 125
+003. Andruss, Fatboi - Agachalo (Original Mix) 130
+004. Anthony Attalla, Max Styler, Brux - Talk To Me (With Brux) (Extended Mix) 126(   Читать дальше...   )Жанр: Tech House, Techno, Soulful, Deep HouseПродолжительность: 09:18:42 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:290DDB4C1BE7AA371B3A3E8B64075283B98451D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607034   (1044202) от 24.01.2023
 
 VA - Beatport Progressive House Top 100 January (2023) [MP3|320 Kbps] <Deep Progressive, Electronica, Melodic House & Techno>
@@ -687,64 +745,6 @@ VA - Beatport D&B: Electro Sound Pack #218 (2021) [MP3|320 Kbps] <Drum And Bass,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78D45C304A45DF5C678307AEDB27C830CF687ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439080   (1040370) от 11.01.2021
-
-VA - Merry Chrirtmas EDM Party (2021) [MP3|320 Kbps] <Dance, Electro, Techno, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040370.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рады представить Вашему вниманию весеннюю новогоднюю новинку - отличную позитивную подборку электронной популярной музыки под названием "Merry Christmas EDM Party". Композиции лонгплея завоюют внимание слушателя своей танцевальной энергетикой и эмоциональной насыщенностью.001. Soultekk - I Can Do
-002. Dj Xris2 - Dancing Queen
-003. Solon - Together All
-004. Sound Breakers - The Fog(   Читать дальше...   )Жанр: Dance, Electro, Techno, HouseПродолжительность: 08:50:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:598E606A53F3FF69D0BF157E66744153382E1EAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1439291   (1040116) от 12.01.2021
-
-VA - Forever Love: Syntpop Mix (2021) [MP3|320 Kbps] <Synthpop, Electropop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040116.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лонгплей будет интересен не только тем слушателям, которые хотят просто послушать качественную и популярную музыку, но и тем кто находится в поисках чего-нибудь необычного и непохожего на основную массу электронной музыки.01. Phonon - 1469 (Original Mix)
-02. Irrlicht - Neuland
-03. Latin Lover - Casanova Action
-04. Blaqk Audio - Consort(   Читать дальше...   )Жанр: Synthpop, ElectropopПродолжительность: 05:28:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83489E28E7E2C890E08DC5D6C9BB2766D09ACC0E
 ```
 
 https://mybot314.ru/tekegram_catalog/

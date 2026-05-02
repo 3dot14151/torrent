@@ -1,90 +1,3 @@
-###  Публикация: 1220663   (702334) от 20.04.2018
-
-Horus - Прометей роняет факел (2018) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Земля мертвых
-02. Желтая стрела (feat. Зараза)
-03. Гири
-04. Огонек (feat. Murda Killa)(   Читать дальше...   )Жанр: RapПродолжительность: 00:35:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCA0E6CE1C88E7315A1742ED67E3C29AD77CF362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1402251   (701705) от 14.08.2020
-
-POR.NORAP - Бронетрусы (2019) [MP3|320 Kbps] <Comedy Rap, Electronic>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Муж на час 4:02
-02. Гуляй нога 3:58
-03. Раненный дракон 4:07
-04. MOROZOFF DEAD 4:29(   Читать дальше...   )Жанр: Comedy Rap, ElectronicПродолжительность: 00:39:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94EA98DE3571FFFC728E5D25C4F8C45878307B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132808   (698494) от 10.05.2017
-
-Грот - Клавиши (2017) EP [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698494.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пуля (Акустика)
-2. Дорога к себе (Акустика)
-3. Наследство (Акустика)
-4. Бумажные крылья (Акустика)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C51ECA70CBF28251345613FF4D973441ED3077B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027501   (696284) от 19.06.2016
 
 VA - Chillhop Essentials Summer (2016) [FLAC|Lossless|Web-DL|tracks] <Hip Hop, Jazz, Broken Beat>
@@ -745,6 +658,93 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D815120971B04E68575D2DBACA8E399B59E3E08A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537976   (665396) от 18.03.2022
+
+Макулатура - избранное (2009–2021) 2022, Compilation [FLAC|Lossless|Web-DL|tracks] <Alternative Rap, Abstract Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 30 лет как мертв (5:17)
+02. альбатрос (3:20)
+03. альцгеймер (3:40)
+04. в огне (4:31)(   Читать дальше...   )Производство: РусПродЗвукЖанр: Alternative Rap, Abstract Hip-HopПродолжительность: 02:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92999C4AE3F987520893FAC5A205147E408D6D74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537877   (665388) от 18.03.2022
+
+Cypress Hill - Back in Black (2022) [FLAC 2.0|44.1, 48/24|WEB-DL|tracks] <Hip-Hop, Hardcore, Latin, Rapcore>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop, RnB, Reggae (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665388.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takeover
+02. Open Ya Mind
+03. Certified (feat. Demrick)
+04. Bye Bye (feat. Dizzy Wright)(   Читать дальше...   )Жанр: Hip-Hop, Hardcore, Latin, RapcoreПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D46AE67CFF8785A67C36FD8C2F4BB6E066A015ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1537858   (665381) от 18.03.2022
+
+Cypress Hill - Back in Black (2022) [FLAC|Lossless|WEB-DL|tracks] <Hip-Hop, Hardcore, Latin, Rapcore>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takeover
+02. Open Ya Mind
+03. Certified (feat. Demrick)
+04. Bye Bye (feat. Dizzy Wright)(   Читать дальше...   )Жанр: Hip-Hop, Hardcore, Latin, RapcoreПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFF9F8E14653D0487667190E19274985A1A7B844
 ```
 
 https://mybot314.ru/tekegram_catalog/

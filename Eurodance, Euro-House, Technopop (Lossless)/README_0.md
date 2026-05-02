@@ -1,3 +1,61 @@
+###  Публикация: 1350606   (1002937) от 07.01.2020
+
+Rashni - Baboushka (2007) [FLAC|Lossless|image + .cue] <Euro House, Trance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002937.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Baboushka (Radio Mix) 3:06
+2 Baboushka (Kolchose Mix) 5:14
+3 Baboushka (Punkbusters Remix) 6:08
+4 Baboushka (Video Mix) 3:38Жанр: Euro House, TranceПродолжительность: 00:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B49B6850994C3CB697183FD12D4B3295E2B4F822
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351563   (1001893) от 11.01.2020
+
+ICE MC - Cinema (2011) [FLAC|Lossless|image + .cue] <Hip-House, Pop Rap>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001893.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Cinema 3:48
+2 Scream 4:05
+3 Peace 3:51
+4 Gone With The Wind 4:47(   Читать дальше...   )Жанр: Hip-House, Pop RapПродолжительность: 01:19:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E337E0F09AF6166C7FC5CA0B5C6997F8C6659C08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1352191   (1001302) от 13.01.2020
 
 One-eyed Jacks - Falling (1991) [FLAC|Lossless|image + .cue] <Breaks, Ambient>
@@ -716,64 +774,6 @@ DJ BoBo - Pirates Of Dance (2004) [FLAC|Lossless|tracks + .cue] <Euro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0887E6A097344DBA26B222762D405BA6D9EB7AE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 319179   (858120) от 18.04.2020
-
-Bad Boys Blue - In The Mix (80s Best) (2002) [FLAC|Lossless|tracks + .cue]<Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're A Woman (Maxi Version)
-02. Pretty Young Girl (Extended Version)
-03. Kisses And Tears (Remix 1994)
-04. I Wanna Hear Your Heartbeat - Sunday Girl (Maxi Version)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:592E1BB83B548F97247FD39A08B23AB8249E81F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498493   (856047) от 27.09.2021
-
-Papaya -  Pink (1999) [FLAC|Lossless|tracks + .cue] <Bubblegum>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Operator 3:42
-02. Hero 3:34
-03. Pink Dinosaur 3:10
-04. Supergirl (Original Single Version) 3:38(   Читать дальше...   )Жанр: BubblegumПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE72DC4C6A4FE797986DAA34196DDA07E94EEC3
 ```
 
 https://mybot314.ru/tekegram_catalog/

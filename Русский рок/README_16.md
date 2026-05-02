@@ -1,3 +1,119 @@
+###  Публикация: 1365918   (927268) от 09.03.2020
+
+VA - Из Нави В Явь (Compilation) (2011-2014) [MP3|~190 Kbps (V2)] <Pagan Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Далiна - Бескрайние просторы Матери-Земли (BLR) [00:03:18]
+02 - Omut - ... (BLR) [00:05:10]
+03 - Веремій - Гуляйполе (UKR) [00:03:19]
+04 - Бастион - Моя Земля (RUS) [00:05:25](   Читать дальше...   )Жанр: Pagan Folk MetalПродолжительность: 3 CD, 08:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F551891903BE0AF96CAF4FA6A1D7B1DAD1F5BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365920   (927263) от 09.03.2020
+
+VA - Славянский Хардкор (Compilation) (2013-2017) [MP3|320 Kbps] <Hardcore, Metalcore, Beatdown, Hatecore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_927263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Камаедзiца - Беларуская Песня [00:07:00]
+02. Вервь - Расход [00:04:07]
+03. CG Bros. - Роктолераст [00:02:51]
+04. Grimfire - За Спиной [00:03:05](   Читать дальше...   )Жанр: Hardcore, Metalcore, Beatdown, HatecoreПродолжительность: 3 CD, 03:11:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67F1ABBDAC5DF2AC2B1C27ED7168A0AFE826CB7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 871610   (925916) от 17.02.2016
+
+Ругер - Путь 4 (2015) [MP3|320 кб/с]<Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ярость (03:47)
+02. Часть 1: Свет (04:32)
+03. Часть 2: Тьма (05:46)
+04. Выход (03:46)(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE0DA3501FEA5BAAE38165025F422F9CA26903FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366024   (925846) от 10.03.2020
+
+Stay Away - Дисклеймер. Часть 2 (2019) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925846.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Рип
+2. На карусели
+3. Фэйворит шкура
+4. Майнер с порнохаб(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C059B1D376D10B129FB74598106071E4652BFE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1366022   (925832) от 10.03.2020
 
 Sergey Golovin - Satellite (2019) [MP3|320 kbps] <Progressive Metal, Djent, Instrumental Rock>
@@ -635,125 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF3FB8639F56BDFD7F3FDF24E8A86D58EA3F4EDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289430   (918749) от 31.01.2011
-
-Каллисто - Дорога (2011) [MP3|320 kbps]<Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Все одно
-02. Муза
-03. Мертвая петля
-04. Там где
-05. Руины
-06. Резвая тройка
-07. Каллисто
-08. Дорога
-09. Крылья ворона
-10. Мольба(   Читать дальше...)Жанр: Heavy MetalПродолжительность: 00:55:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2F5B49C15C0866D24440E8255E7210AB580A5C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096739   (918715) от 24.01.2017
-
-Би-2 - The Best Of (Crocus City Hall, 26/11/16) (2017) Bootleg [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Зажигать
-02. Революция
-03. Хипстер
-04. Забрали в армию(   Читать дальше...   )Жанр: RockПродолжительность: 02:10:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F34F7E5E33A6A834DE8214F5148916D31CA38E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162530   (918209) от 14.03.2020
-
-Океан Ельзи (Океан Эльзы) - Дискография (1996-2009) [MP3|320 Kbps] <Folk-Rock>
-
->>След.
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918209.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk-RockПродолжительность: 10:27:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD111326C2C9958A2AB1A38B6396CA7F52FD0980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367456   (917420) от 15.03.2020
-
-WastedSky - Мы все нули и единицы (2020) EP [MP3|320 Kbps] <Nu Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Искры [00:01:17]
-02 На краю [00:03:27]
-03 Карма [00:03:45]
-04 Бессонница [00:03:56](   Читать дальше...   )Жанр: Nu Metal, RapcoreПродолжительность: 00:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6905441882723A75D7320F15F4B8BA453464BF8
 ```
 
 https://mybot314.ru/tekegram_catalog/

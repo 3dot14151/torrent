@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1865985   (1065999) от 
+
+Ravdina (СЛОТ) - Комната (2026) [MP3|320 Kbps] <Alternative, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065999.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Демон [00:03:05]
+2. Мёртвый бонсай [00:04:05]
+3. В сентябре [00:03:26]
+4. Обезьянка ноль [00:03:45](   Читать дальше...   )Жанр: Alternative, Nu-MetalПродолжительность: 00:30:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C583A94C7400FD65247F604E21B11718D9F10ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865988   (1065991) от 
+
+Дёргать! - Мир станет лучше (2026) [MP3|320 Kbps] <Рок, Панк Рок>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065991.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мир станет лучше [00:03:52]
+2. Разрушитель границ [00:03:26]
+3. Верь в себя [00:03:49]
+4. Бабочки [00:03:19](   Читать дальше...   )Жанр: Рок, Панк РокПродолжительность: 00:35:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9178F289890B326870E8350AFA250EEFE31A37E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866049   (1065913) от 
+
+VintergatA - Зверобой (2026) [MP3|320 Kbps] <Symphonic-Black-Metal, Dark-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065913.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Зверобой [00:06:25]
+2. Морозко [00:05:50]
+3. Вольна Волюшка [00:04:56]
+4. Кощей [00:05:54](   Читать дальше...   )Жанр: Symphonic-Black-Metal, Dark-MetalПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95FE8FFD8D10EB21FEE8C7AAAE40D600969E5320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866060   (1065911) от 
+
+Вася Васин - НИИ ИИ (2026) [MP3|320 Kbps] <Alternative-Rock, Hip-Hop, Experimental>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Увертюра [00:01:57]
+02. Будь начеку [00:02:31]
+03. Рэп это кал 2 [00:03:39]
+04. Дайте мне кайф [00:02:57](   Читать дальше...   )Жанр: Alternative-Rock, Hip-Hop, ExperimentalПродолжительность: 00:32:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3496B9AE34DE95F15EDE34F95C48201CCB970199
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864598   (1065419) от 13.04.2026
 
 Молот Родины (Алексей Глухов) - Ты Выстоишь! (2026) [MP3|320 Kbps] <Rock, Hardcore>
@@ -629,121 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9BE0396FD8FB31A24CE1B2074D0F2E8C60CFF238
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1852066   (1055744) от 07.02.2026
-
-ЗакЛинания & popCup - Песни "Неспящего Пи..." (2026) tribute [MP3|320 Kbps] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055744.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Грязь обетованная 2:48
-02 - Демоны 5:51
-03 - Жертва Аборта 4:01Жанр: PunkПродолжительность: 00:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600A4228D278DC7F73B3CD6110D7C2D80893C7A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851733   (1055237) от 03.02.2026
-
-Би-2 - Сердцебиение (2026) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055237.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Би-2 feat. Лу Геворкян (Louna) - Никто не спросит
-2. Чулпан Хаматова - Это не игра
-3. Би-2 - Как будто падает
-4. Би-2 feat. Данила Козловский - Он повернулся(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1E14158128AFAA4C00CD097C4E8E42AD189AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1851337   (1055108) от 02.02.2026
-
-Вадим Гареев - Пропади,тухляк! (2026) [MP3|320 Kbps] <Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Пропади,тухляк! [00:01:45]
-02-Быки [00:01:54]
-03-Асоциальная (Позор семьи) [00:02:45]
-04-Панк-рок-жизн [00:02:11](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:16:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB5C3C44CC72682C302F2EF76322BB8BFCD1556B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850026   (1054042) от 25.01.2026
-
-Алкоголь После Спорта (АПС) - Весёлые истории (2026) [MP3|320 Kbps] <Alternative, Russian-Rap, Hip-Hop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Весёлые истории [00:02:07]
-02. Как в старые добрые [00:02:24]
-03. Диванные войска [00:02:24]
-04. Тост [00:03:07](   Читать дальше...   )Жанр: Alternative, Russian-Rap, Hip-HopПродолжительность: 00:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEEC06EBE5E83B50B6A9C8C81857DE9847E63BA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

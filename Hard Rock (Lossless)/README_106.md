@@ -1,3 +1,119 @@
+###  Публикация: 1760479   (37283) от 14.11.2024
+
+Wildheart - Music to Survive (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock , Heavy Metal , Female vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All About You (04:35)
+02. Time to Move (04:12)
+03. Boss Ass (05:02)
+04. Music to Survive (04:51)(   Читать дальше...   )Жанр: Hard Rock , Heavy Metal , Female vocalsПродолжительность: 00:59:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB830A724D36865FB22580AC614E610297FD2AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760519   (37282) от 14.11.2024
+
+Voltage Arc - Sextasy (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Man
+02. Make It To The Top
+03. I Don't Know You
+04. Throw It All Away(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:56:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A34B640C4CCE5B07D5D664403A5FB0A0E82727C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1760612   (37181) от 15.11.2024
+
+Voodoo Circle - Hail To The King (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lay Down Your Lovin'
+02. Let It Rock
+03. On The Edge
+04. Sweet Little Sister(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C821B0D5A534D853FA16BD8018BA6525F3511CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761115   (36858) от 18.11.2024
+
+Stone Whiskey - Scream For Rock (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's A Live Wire 04:40
+02. Sweet Elixir 04:22
+03. Scream For Rock 03:50
+04. Nowhere To Go 06:45(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D347C7ADB6FC68BC818238C056D0952350EB30D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761317   (36755) от 19.11.2024
 
 Grand Funk Railroad - Grand Funk (1969) Reissue, 2002, Toshiba [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ Todd Michael Hall - Off the Rails (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6F26C3C83C4B3C59E46B3CC7FE699C0E094385A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1765567   (34286) от 13.12.2024
-
-Nazareth - Razamanaz (1973) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Belle Antique [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Razamanaz
-02. Alcatraz
-03. Vigilante Man
-04. Woke Up This Morning(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFC0F404B31FADD8E4C06996ED8A350F4C7D1EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766132   (33997) от 16.12.2024
-
-Nazareth - Rampant (1974) SHM-CD, Japanese Edition, Reissue, Remastered, 2024, Belle Antique [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Dollar Forger (Parts 1 & 2)
-02. Glad When You're Gone
-03. Loved And Lost
-04. Shanghai'd In Shanghai(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920D44C4C35BB4422F31E0488A99006E202728E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1769771   (32567) от 30.12.2024
-
-Godsmack - Godsmack Power Hour (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32567.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sick Of Life [00:03:51]
-02. I Fucking Hate You [00:04:07]
-03. The Enemy [00:04:08]
-04. Whatever [00:03:26](   Читать дальше...   )Жанр: Hard Rock, Alternative RockПродолжительность: 00:32:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF2D6F8DABBA7680ED527DB50F8355533436D8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770169   (32403) от 31.12.2024
-
-Fast Eddie Clarke - The Rock 'n' Roll Story of Fast Eddie Clarke (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snakebite (New version) [00:03:20]
-02. Laugh at the Devil (New version) [00:03:53]
-03. All Over Bar the Shouting [00:04:31]
-04. No Satisfaction [00:05:01](   Читать дальше...   )Жанр: Hard-Rock, Rock, BluesПродолжительность: 00:49:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8758C8C2908EA44D19CA39B56ED9F55AD117A308
 ```
 
 https://mybot314.ru/tekegram_catalog/

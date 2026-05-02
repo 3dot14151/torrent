@@ -1,3 +1,61 @@
+###  Публикация: 1169486   (403142) от 27.09.2017
+
+VA - Deep House Collection Vol.137 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403142.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1Kilo - Deixe Me Ir (Bruno Be, Monkeys, Eternal Soul Remix) 5:20
+02. Alexander Orue & Sharapov - Never Give Up (Original Mix) 5:23
+03. Alex Kenji - 'Cause It's Cool (Original Club Mix) 5:29
+04. Alex Niggemann - Luminance (Daniel Bortz Remix) 7:02(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 13:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FB3F9DD173FCAA438F81DA5A04DA7BCF990EF5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169385   (403116) от 27.09.2017
+
+VA - Music For Racing (2017) [MP3|320 Kbps] <Hands Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403116.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Rednex - Cotton Eye Joe (C. Baumann Hands Up Remix)  4:41
+002.  DJ D-Rave vs. Ravergizer feat. Sakura - Trust Yourself (Marc Kiss Remix)  5:18
+003.  Loona - Summer Of Love (Dance Style Extended Mix)  4:57
+004.  Sia - Move Your Body (Alan Walker Remix)  3:38(   Читать дальше...   )Жанр: Hands Up, Club, DanceПродолжительность: 07:32:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564EA5ADEBF156D9D54432025BAF4E53D8E6ED28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 562672   (403032) от 23.10.2012
 
 VA - Astro Lounge (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
@@ -735,70 +793,6 @@ VA - Impulse 7: Супермузыка для супермашин (2017) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ACA583574BE58F0EA4607D2BD84B44B819E82F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1172559   (392826) от 08.10.2017
-
-VA - Beatport Top 100 Downloads September (2017) [MP3|320 Kbps] <Electro, Indie, Nu Disco и другие>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Chapman - La Fiesta (Original Mix)
-02. CamelPhat, Elderbrook - Cola (Original Mix)
-03. Jamie Jones - Kooky Chords (Original Mix)
-04. Roberto Capuano, Luigi Madonna - Midfield (Original Mix)(   Читать дальше...   )Жанр: Electro, Indie, Nu Disco и другиеПродолжительность: 11:02:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:956EA05CF9DBE34C3212CA395D82254C16C1BAE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569697   (392292) от 03.11.2012
-
-VA - Trance Universe Vol.8 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_392292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivica Vanevski - Irriversibility (7:44)
- 02. Esprit Fort - Rise - Club Mix (7:24)
- 03. Arman Bas - The Lonely Shepherd (7:25)
- 04. Vol Deeman - Purple Rain (7:26)
- 05. Matt Pincer - One Night in July (8:43)
- 06. Corn Flakes 3D - All in One (6:29)
- 07. Rene Ablaze - Destination Daylight (Feat. Stine Grove) - Rene Ablaze Remix (8:11)
- 08. M.C.K. - Relax (8:55)
- 09. Mindsurfer - Hidden Secrets (5:23)
- 10. Sivan Khan - As Time Shifts (7:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:03:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0B2D641E80145FF3D260A64C1BEE75DDEED7FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

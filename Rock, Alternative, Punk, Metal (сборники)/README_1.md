@@ -1,3 +1,61 @@
+###  Публикация: 1605364   (1044953) от 17.01.2023
+
+VA - Music For You vol. 27 (2023) [MP3|320 Kbps] <Metal, Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044953.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gnarbot - Thrapticious (10:02)
+ 02. Soft Machine - Hazard Profile Part 5 (05:29)
+ 03. The Groundhogs - Garden (05:24)
+ 04. All Them Witches - Real Hippies Are Cowboys (08:08)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:58:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76327E2918956351ECFDED71DF6D00E3C499EA31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606484   (1044373) от 22.01.2023
+
+VA - Classic Rock (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Petty And The Heartbreakers - American Girl (3:34)
+02. The Doors - Roadhouse Blues (4:03)
+03. Whitesnake - Here I Go Again 87 (4:35)
+04. Foreigner - Cold as Ice (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 04:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14E3F83387861325EFE670F9D215465164A36413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607133   (1044129) от 25.01.2023
 
 VA - Music For You vol. 28 (2023) [MP3|320 Kbps] <Rock, Metal, Other>
@@ -687,64 +745,6 @@ VA - Impressive Sound 2022.2: Volume V (2022) [MP3|320 Kbps] <Instrumental, prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:542E9066C69F2836210E13E0AA47D468E65AE5A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616321   (1036147) от 03.03.2023
-
-VA - Impressive Sound 2022.2: Volume VI (2022) [MP3|320 Kbps] <Hardcore, metalcore, mathcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ithaca - The Future Says Thank You
-02. End - Eden Will Drown
-03. Amongst The Giants - Adversary
-04. Glassing - Sulk(   Читать дальше...   )Жанр: Hardcore, metalcore, mathcore, deathcore, post-hardcore, grindcoreПродолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972D663CB678B3E1827986437AB74725745CDD2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444849   (1034202) от 03.02.2021
-
-VA - Prog Metal Rock Compilation (2021) 2xCD [MP3|320 Kbps] <Progressive Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034202.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
- 01. Maestrick - Origami (05:36)
- 02. Pyramid Theorem - Closer to the End (07:11)
- 03. Glasswork - Blackspot (06:07)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A9DF365622008048AA023AAE0DC20D0B25B15B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

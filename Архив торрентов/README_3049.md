@@ -1,3 +1,239 @@
+###  Публикация: 1069496   (373764) от 04.11.2016
+
+Be Focused Pro (aka Pomodoro Time Pro) 1.6 [En/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Be Focused Pro - Создание задач, настроить перерывы и отслеживать ваши успехи в течение дня, недели или произвольный промежуток.
+«Помидорная техника» планирования В основе этой методики лежит принцип 25 минутной работы без прерываний. Но через 25 минут вы обязаны прерваться на 3-5 минут.
+Be Focused Pro: Сосредоточьтесь на производительности. Be Focused Pro поможет (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 03 ноября 2016Разработчик: Denys YevenkoПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Русский и Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19500A4F1F86E009024DB8F8707CBE82105175C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252467   (373757) от 31.10.2010
+
+[En] Восход солнца / Рассвет: Песня двух человек / Sunrise: A Song of Two Humans (1927) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Декадентского вида красотка приезжает на отдых в калифорнийскую деревню и, влюбив в себя молодого, недавно женатого фермера, подговаривает его утопить жену, для чего он должен устроить лодочную прогулку, заранее припрятав на суденышке связку тростника, с помощью которого убийца спасется сам и отведет подозрения следствия. Сходя с ума от страсти к чернокудрой горожанке (   Читать дальше...   )Производство: СШАЖанр: Мелодрама, драма, криминалРежиссер: Фридрих Вильгельм МурнауВ ролях: Джордж О`Брайэн, Джанет Гейнор, Маргарет Ливингстон, Дж. Фаррелл МакДональд, Джейн Уинтон, Артур Хаусман, Эдди БоланПеревод: немое кино, перевод субтитрамиСубтитры: РусскиеФормат: mkvПродолжительность: 01:34:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F819AD4D396BB6909DA61EB14F5FF11529D61B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252016   (373750) от 31.10.2010
+
+Ночь демонов / Night of the Demons (2009) DVDRip [VO]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фабула ленты практически неотличима от исходной постановки: в пользующемся дурной славой особняке Бруссаров, где восемь лет назад бесследно исчезло шесть человек, а прознавшая об этом хозяйка покончила с собой, Мэдди Кертис, Лилли, Сюзанна и Анжела устраивают вечеринку, на которую заявляются их бывшие дружки Колин и Декс. После того, как шумных гостей увозит полиция, (   Читать дальше...   )Жанр: УжасыРежиссер: Адам ГирашАктеры: Эдвард Ферлонг, Шеннон Элизабет, Моника Кина, Бобби Сью Лютер, Джон Бич, Майкл Копон, Тиффани Шепис, Тиффани Дж. Биллиот , Эрик Ф. Адамс, Майкл Арата и другие.Перевод: ОдноголосыйФормат: AVIПродолжительность: 01:32:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC60F2C2270D335D61AE5211D2819FA9DD33F79E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574486   (373715) от 13.11.2012
+
+Sexy Girls Pack Wallpapers (11.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373715.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F7D36A7532B4911CF1DBFD4570E3A09B0106979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574500   (373714) от 13.11.2012
+
+Sexy Girls (12.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 5616х3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5254C65505B9E15309F7EC3F0C3A821801A74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574497   (373713) от 13.11.2012
+
+Wallpapers Sexy Girls Pack (12.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4068x2593
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CCD4E6C026C4B25852CCF9A84E0A48F85A635F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574498   (373712) от 13.11.2012
+
+Wallpapers Sexy Girls (12.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 6048х3948
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66F4BDB24F2F0AB27057EFCAD528286B4D3D9877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574495   (373711) от 13.11.2012
+
+Sexy Girls Pack Wallpapers (12.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCD796AB3163E9B73C840338CAAAD2D687EEC70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574487   (373709) от 13.11.2012
+
+Wallpapers Sexy Girls Pack (11.11.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547655D8862EF3851A506373C3472C2F22E45934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1176041   (373704) от 20.10.2017
 
 Windows 10 Manager 2.1.8 DC 20.10.2017 RePack (& portable) by KpoJIuK  [Multi/Ru]
@@ -466,271 +702,6 @@ Moom небольшая, но очень полезная утилита, за �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EDC548E00FFB3ABC6F1A429AC980D34F4FA6E3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069688   (373547) от 04.11.2016
-
-Zoner Photo Studio X 19.1610.2.7 RePack by KpoJIuK [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373547.jpg" />
-</div>
-
-
-###  Подробнее
-
-Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54921BA924CAA4A64B2B1FA2BEFBF890B9DFBDB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069474   (373545) от 04.11.2016
-
-LibreOffice 5.2.3 Stable Portable by PortableApps [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373545.jpg" />
-</div>
-
-
-###  Подробнее
-
-LibreOffice — мощный офисный пакет, полностью совместимый с 32/64-битными системами. Переведён более чем на 30 языков мира. Поддерживает большинство популярных операционных систем, включая GNU/Linux, Microsoft Windows и Mac OS X. Программы LibreOffice — это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C7E61C54EB8459227FB3BCB825FB097A8B13750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415840   (373531) от 13.10.2020
-
-Office 2013-2019 C2R Install + Lite 7.07 b12 Portable by Ratiborus [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа для онлайн установки Microsoft Office 2013-2019 на ваш ПК.
-Преимуществом программы есть возможность установки отдельных компонентов офис 2013-2019, а так же выбора языка устанавливаемого офисного пакета и выполнить активацию
-
-Помимо нового дизайна, выполненного в стилистике Windows 10, пакет получил несколько важных нововведений в плане функциональности.(   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:398909519221D70E0DCE5D0E73C0F544B2818DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415867   (373521) от 13.10.2020
-
-iStat Menus 6 v6.41 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373521.jpg" />
-</div>
-
-
-###  Подробнее
-
-iStat Menus 6 — лучшее приложение для контроля работы Mac с новым дизайном и поддержкой macOS Mojave и macOS Catalina.
-Одни владельцы Mac предпочитают пользоваться компьютером без оглядки на процессы, происходящие «под капотом» операционной системы и самого устройства, другие любят держать все под пристальным контролем. Первым хочется пожелать и дальше наслаждаться (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.11.2019Разработчик: Bjango Pty LtdПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1903E11C0F155C81C4A6B257ED24530F4CEA5E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1415666   (373520) от 13.10.2020
-
-АудиоМАСТЕР 3.21 RePack (& Portable) by TryRooM [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373520.jpg" />
-</div>
-
-
-###  Подробнее
-
-АудиоМАСТЕР - это многофункциональный аудиоредактор от AMS Software, предназначенный для записи и обработки звука в домашних условиях. Утилита позволяет быстро редактировать любой аудиофайл. К числу основных возможностей относятся: обрезка и соединение, наложение многочисленных эффектов, создание атмосферы и многое другое.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80ED16E29189C61F4EC1FCB3EA3A05EC05BAC01D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574516   (373473) от 13.11.2012
-
-Aeon - Aeons Black (2012) [MP3|320 кб/с]<Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still They Pray 03:50
-02. The Glowing Hate 04:12
-03. The Voice of the Accuser 00:51
-04. I Wish You Death 04:54
-05. Garden of Sin 03:49
-06. Neptune the Mystic 01:12
-07. Nothing Left to Destroy	05:24
-08. Passage to Hell 01:05
-09. Aeons Black	03:42
-10. Dead Means Dead 04:03(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D2F4E1507ED81188195CA47E122A70D626E9A99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574502   (373471) от 13.11.2012
-
-Dj Sveta & Mixon - Gray way (2012) [MP3|320 кб/с]<Tech House, Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Francys - People (Nico Lahs & Ahmet Sisman Remix)
-02 Dubspeeka - Waterfall (Original Mix)
-03 Nino Mora - Warning (Original Mix)
-04 Nick Muir, John Digweed - Raise (Electric Rescue Blue Remix)
-05 Danny Daze - Zone (Original Mix)
-06 Paperclip People - 4 My Peepz (Dubfire Rework)
-07 Maverickz - Fundamental (Citizen Kain Remix)
-08 Andre Galluzzi, Dana Ruh - Voyage (Original Mix)
-09 KAGO DO - All Right, Marley (Andrew K Remix)
-10 Taras Bazeev - MonocleЖанр: Tech House, TechnoПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9203E6B1CF41619D08099A4AFD086A7DC91D11F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574069   (373461) от 13.11.2012
-
-Computer Desktop Wallpapers Collection (11.11.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373461.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D7E97AFE77061B7D258CE2C1F9504BDB269E9B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574567   (373460) от 13.11.2012
-
-Swanky Tunes - Vodafone Night Owls (Live, Germany) (11.11.2012) [MP3|128 кб/с]<House, Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fun vs. Norman Doray & Eddie Thoneick – We Are Young Celsius (Swanky Tunes MashUp)
-02. Calvin Harris feat. Ne-Yo – Let’s Go (Hard Rock Sofa & Swanky Tunes Remix) 
-03. R3hab & Swanky Tunes feat. Max’C – Sending My Love 
-04. Deniz Koyu feat. Wynter Gordon – Follow You
-05. Tiesto – Maximal Crazy (R3hab & Swanky Tunes Remix)
-06. Nordean & Minx feat. Erik Hecht – You & I (Ken Loi Alternative Remix)
-07. Hard Rock Sofa & Swanky Tunes – Here We Go
-08. Red Hot Chili Peppers – Otherside (Third Party Remix)
-09. Swedish House Mafia & Knife Party – Antidote (Vocal Mix)
-10. Alesso feat. Matthew Koma – Years (Vocal Mix) (   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B891DD1EAABBEA89029C5BA0822221709D0C300
 ```
 
 https://mybot314.ru/tekegram_catalog/

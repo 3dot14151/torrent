@@ -1,3 +1,264 @@
+###  Публикация: 971570   (985684) от 03.01.2016
+
+VA - DFM. Новогодний эфир (2015) [MP3|233-320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985684.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren, W&W - If It Ain’t Dutch (Radio Edit)
+002. Lucas Nord, Urban Cone, John Dahlback - We Were Gods (Original Mix)
+003. Caminita Feat. Jan Peter - Tonite (Original Mix)
+004. Almyron - Tonight (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C386D432C87E24AD605DD3EFD059A19F75F488B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971759   (985239) от 03.01.2016
+
+VA - Top 100 Club Tracks (December 2015) (2015) [MP3|320 кб/с] <Dance, Club, Club House, Electro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A & D - Dancing In My Head (Original Mix)
+02. Adele - Hello (Dj Denis Rublev & TPaul Sax Mix)
+03. Adele - Hello (Layn Korel Remix) [2015]
+04. Antoine Cortez - Spektrum (Original mix)(   Читать дальше...   )Жанр: Dance, Club, Club House, ElectroПродолжительность: 08:13:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2D762DCA0147B67C0B9EDFB8173304A83C1C43B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355137   (984925) от 25.01.2020
+
+VA - The Official UK Top 40 Singles Chart 24.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eminem - Godzilla (feat. Juice WRLD)
+02. Roddy Ricch - The Box
+03. Stormzy - Own It (feat. Ed Sheeran & Burna Boy)
+04. The Weeknd - Blinding Lights(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:11:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D535127353A48CDA4F4653F7A2F5D4D51F8E9900
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355071   (984866) от 25.01.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 24.01.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984866.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) 3:42
+02. Rompasso - Paradise 2:51
+03. Zivert - Credo 3:04
+04. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC1B92A178B65F265DA86BF15523D75A4E9E3FEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971991   (984376) от 04.01.2016
+
+VA - EuroHit Top 40 - Итоговый выпуск (2015) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Smith - I'm Not The Only One (04:00)
+02. Charli XCX - Boom Clap (02:47)
+03. Gorgon City & Katy Menditta - Imagination (03:00)
+04. Ellie Goulding - Love Me Like You Do (04:11)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:18:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C165C19C7F78A65440BF91F6359FDE13A895750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972210   (983512) от 05.01.2016
+
+VA - The Dance Space Innovative (2016) [MP3|192-320 кб/с] <Club, Hands Up, Vocal, Commercial>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enveloperz! - Last Christmas (Radio Mix) 02:41
+02. Robin Schulz & Jasmine Thompson - Sun Goes Down (Enveloperz! Bootleg Mix) 04:43
+03. Flip Capella - Danger (Short Edit) 03:34
+04. Justin Point - Motherwort 04:46(   Читать дальше...   )Жанр: Club, Hands Up, Vocal, CommercialПродолжительность: 03:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A672CA0D527EEEC944EEA27CC9E8BC3BD776977
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972211   (983422) от 05.01.2016
+
+VA - Royalty - Free Nu School Deep & Garage (2015) [MP3|223-320 кб/с] <House, Soulful, Nu Disco, Funky, Indie Dance, UK Jackin>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983422.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. David Tort - Bad Habits 06:54
+002. Dopp - Bahija (Original) 07:24
+003. Discorocks & Nakia - Moving On Up (Alaya & Gallo Remix) 06:22
+004. C.K - S Jam 07:21(   Читать дальше...   )Жанр: House, Soulful, Nu Disco, Funky, Indie Dance, UK JackinПродолжительность: 12:02:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB33E4A0C275CFC9F270B29ABF1EEA522C5A67F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972091   (983284) от 05.01.2016
+
+VA - Winter Music (2016) [MP3|320 кб/с] <Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983284.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Robin Schulz - Sugar (feat. Francesco Yates)
+2. Anna Naklab - Supergirl (feat. Alle Farben & YOUNOTUS) (DJ Antonio Remix)
+3. Елена Темникова - Наверно (feat. Natan)
+4. Feder - Blind (feat. Emmi) (Radio Edit)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE55FBCB743B72B89F514621791612602FF2CB90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355387   (983134) от 26.01.2020
+
+VA - Radio DFM Top D-Chart Январь 2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_983134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey (DJ Noiz Remix) 4:00
+02. The Black Eyed Peas & J Balvin - RITMO (Vadim Adamov & Hardphol Remix) 2:38
+03. Dua Lipa - Don't Start Now (Sergey Raf & ARROY Remix) 3:00
+04. SAINt JHN - Roses (Imanbek Remix) 3:58(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:33:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D1B15E552DD7BAD5B8C349D4D2EB817AEEFD8AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971860   (982901) от 05.01.2016
 
 VA - Итоговый Record Super Chart 2015 (27.12.2015) [MP3|128-320 кб/с] <Dance, Club House, Electro House, Drum & Bass, Trap>
@@ -490,276 +751,6 @@ VA - Big Workout Hits 2016 - 40 Essential Fitness And Workout Hits (2016) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4AA90CE515BA82E3C3082BBC9ED7566CDD96F92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974040   (978163) от 10.01.2016
-
-VA - Dance Tropic (2016) [MP3|320 кб/с] <Dance, Club, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978163.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Turbotronic - Bba Ra Bam (Radio Edit)
-002. TK - Hello (A.R. Mix)
-003. 2NICA - Moorland (Satour Remix)
-004. Mario Sem - Run Again (Stephan F Remix Edit) (feat. John Mood)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 06:30:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C24272E0D939A056CCC55576A71024CB80885DCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973823   (977993) от 10.01.2016
-
-VA - Хиты на KISS FM. ТОП 40 (2016) [MP3|320 кб/с] <Club, Dance, Remix>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Disciples - How Deep Is Your Love (3:32)
-02. Imany - Don't Be So Shy (Filatov & Karas Remix) (3:09)
-03. Adele - Hello (eSQUIRE Remix) (3:49)
-04. Tiesto & KSHMR feat. Vassy - Secrets (Radio Edit) (3:14)(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 03:01:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA3DE3E737E61A8D86A298E5222F7EF784C6A43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614665   (977909) от 08.02.2013
-
-VA - Модный Зимний Выпуск Зарубежный (2013) [MP3|256 кб/с]<Pop,Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977909.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Deepside Deejays - Look Into My Eyes
- 002. Antares Nds Tom E - Ride On A Meteorite
- 003. Joao Lucas e Marcelo - Eu Quero Tchu Eu Quero Tcha
- 004. Roma Pafos feat. Sarkis Edwards - Say Goodbye (Radio Edit)
- 005. Michael Mind Project feat. Bobby Anthony Rosette - Rio De Janeiro
- 006. Isamin - Shade Shadam
- 007. Jeffree Star - Legs Up
- 008. Sebastian Ingrosso & Alesso Feat. Ryan Tedder - Calling (Lose My Mind) (Radio Edit)
- 009. Amelia Lily - You Bring Me Joy
- 010. Arash feat. Sean Paul feat. Ice MC - She Makes Me Go (DJ Amor Remix)(   Читать дальше...   )Жанр: Pop,DanceПродолжительность: 06:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E02BDD38E06BD91B0C021DBD03A7E78D61F2D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 437515   (977759) от 17.01.2012
-
-VA - Новинки радио Maximum 2011 (2011) [MP3|192-320 kbps]<Pop-rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_977759.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011Жанр: Pop-rockПродолжительность: 6:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6917D62F3B8670E5FBCCEF0C1CE908F5C3A604CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 974491   (976937) от 11.01.2016
-
-VA - 50 Modern Club Tracks Party Beats (2016) [MP3|320 кб/с] <Funky, Club House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VINAI & Harrison - Sit Down (Extended Mix) [03:42]
-02. Giorno - The Floor (Mainfloor Edit) [03:12]
-03. The Squatters, Little Nikki - Rude Boy (Extended Mix) [04:23]
-04. Criminal Vibes Ft Kilian - Pump It Up [04:01](   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 04:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2695D58972A3DBC22D0B544939C2C06A68E8D0C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356845   (976863) от 01.02.2020
-
-VA - The Official UK Top 40 Singles Chart 31.01.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lewis Capaldi - Before You Go
-02. The Weeknd - Blinding Lights
-03. Roddy Ricch - The Box
-04. Eminem - Godzilla(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:580529C2F4FE64B5788F73AC08F94A2124C215F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356773   (976766) от 01.02.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 31.01.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976766.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SAINt JHN - Roses (Imanbek Remix) 2:56
-02. Billie Eilish - Everything I Wanted 4:05
-03. Rompasso - Paradise 2:51
-04. The Weeknd - Blinding Lights 3:22(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:05:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B09B65EB5F8D32F5A143D98AC3725EC869438B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614551   (976615) от 09.02.2013
-
-VA - Cубботний TWIST (2013) [MP3|320 кб/с]<Twist>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Константин Беляев - Гимн холостяков
- 02.Lana Bittencourt - La Lecon de Twist
- 03.Theo Schumann Combo - Wer war gestern bei Dir
- 04.Nora Nova - Maenner Gibts Wie Sand Am Meer
- 05.Ola & The Janglers - Reelin And Rockin
- 06.Fredy Brock & Die Twist Makers - Boogie Woogie Twist
- 07.Крекерс - Субботний Твист
- 08.Жанна Агузарова - От Москвы до Ленинграда
- 09.Britta Martell & Tanzorchester Gerhard Narholz - Ich bin allein
- 10.Korda Gyorgy - Hippy, Hippy, Shake(   Читать дальше...   )Жанр: TwistПродолжительность: 01:00:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EC13363BDF0775DEF23D6E0FEAD5D91A800BCB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356707   (976573) от 01.02.2020
-
-VA - Night Dreams (2020) [MP3|320 Kbps] <Instrumental, Easy listening, Relax>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Nimerfro - My Heart Won't Move On - Birds in the Trap Mix
-02. Curtis McLaw - Magic Woman
-03. Burning Lipps - Near or Far - Erotic Beach Love Mix
-04. Barry White - I've Found Someone(   Читать дальше...   )Жанр: Instrumental, Easy listening, RelaxПродолжительность: 04:10:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90C06BE20BF7E59347725186FCCBC9BD6EEB488E
 ```
 
 https://mybot314.ru/tekegram_catalog/

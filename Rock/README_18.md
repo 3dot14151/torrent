@@ -1,3 +1,32 @@
+###  Публикация: 1381589   (826241) от 07.05.2020
+
+Jimmy Urine and Serj Tankian - Fuktronic (2020) [MP3|320 Kbps] <Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chase
+02. Parole
+03. Shot
+04. Frenchy(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 00:39:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2347FAAD6F2A5FA1DB17ACF929A1E30539F925F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196301   (826045) от 01.01.2018
 
 Lindi Ortega (Линди Ортега) - The Drifter (2009) EP [MP3|320 Kbps] <Country Rock, Folk Rock, Alternative Rock>
@@ -705,35 +734,6 @@ Doc Holliday - Doc Holliday Rides Again... (1981) Remastered, 2005, Rock Candy [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:414C92C032B753B9CB7E606CE105AB1D2E75BDDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 370584   (818806) от 11.05.2020
-
-Little Richard - The Specialty Sessions (1989)  [MP3|320 kbps]<Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818806.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Wop Bop A Loo Bop A Lop Bam Boom
-CD2 - Peepin' And A' Hidin'
-CD3 - Duck Back In The Alley
-CD4 - Can't Believe You Wanna LeaveЖанр: Rock & RollПродолжительность: 00:34:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4B626B5B5AF5F5DAF66FD3473941B6AF447202
 ```
 
 https://mybot314.ru/tekegram_catalog/

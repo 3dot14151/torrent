@@ -1,3 +1,61 @@
+###  Публикация: 1493665   (894122) от 04.09.2021
+
+VA - Best New DnB Hype (2021) [MP3|320 Kbps] <D&B, Bassline, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894122.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Krusty - Friction
+002. Psyek, Spoi - Graham's Number
+003. Alcemist - Repression
+004. Radist - Paralel(   Читать дальше...   )Жанр: D&B, Bassline, Electro BassПродолжительность: 11:59:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835C803523E8BABE5AE8CDC1F07C438BFB8CE9B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1493689   (894088) от 04.09.2021
+
+VA - NRW: Clubbing Future House (2021) [MP3|320 Kbps] <House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894088.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eugenio Tokarev - Time
+002. Kiral - Again
+003. Eskuche - The Sun
+004. Storgards - Be Kind(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 11:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFD26C64F2AA092C6AAB1C53CDF43A9F1004E654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993510   (894046) от 06.03.2016
 
 VA - Sports Megamix 2016.1 (2016) [MP3|320 кб/с] <House>
@@ -693,64 +751,6 @@ VA - Underwater The Shadow Of Life (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C47C82429D678126AF75DE080E58F255344E44A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102669   (889333) от 10.02.2017
-
-VA - The Best - In Music We Trust Vol.12 (2016) [MP3|320 Kbps] <House, Electro House, Hand Up, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andy Jay Powell - The Bankster (Calderone Inc Remix)  6:05
-02.  DJ Wajs - This Is How We Party (DNF & Vnalogic Remix)  4:57
-03.  Simon Lee & Alvin - Xcelerate (Extended Mix)  5:03
-04.  Borgeous - Wildfire (Original Mix)  5:00(   Читать дальше...   )Жанр: House, Electro House, Hand Up, Club, DanceПродолжительность: 07:33:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:014CC3F0C19BC017AC74ABA749189E998054521B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102795   (889218) от 10.02.2017
-
-VA - The Best - In Music We Trust Vol.13 (2017) [MP3|320 Kbps] <House, Melbourne Bounce, Dutch, Electro House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dr. Alban & Yamboo ft. Cuzzins - Sing Hallelujah (Melbourne Bounce Project Remix)  6:32
-02.  Global Deejays - Hardcore Vibes (Feeling Beat Bootleg)  5:06
-03.  Adoel Smidt - Show Me Space (Original Mix)  4:15
-04.  Onur Aktemur - Bass (Original Mix)  3:19(   Читать дальше...   )Жанр: House, Melbourne Bounce, Dutch, Electro House, Club, DanceПродолжительность: 06:36:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BA787584C596BD5BFDAA8111FF8A470FFE2266
 ```
 
 https://mybot314.ru/tekegram_catalog/

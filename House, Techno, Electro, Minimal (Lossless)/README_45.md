@@ -1,3 +1,32 @@
+###  Публикация: 1064309   (428366) от 19.10.2016
+
+VA - Mixmag Germany Presents Dantze (Curated by Nicone) (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moosefly – Ohmagine (6:47)
+02. Autotune – Revolution (Ryan Mathiesen Interpretation) (7:07)
+03. Sid Le Rock – Boulder Holder (6:40)
+04. Stefan Mint & Leman & Dieckmann – Mayan (Jonas Saalbach Remix) (7:53)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC68063C141E4BC4C29C91EE6AFF3714BBE98EB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250298   (427183) от 27.09.2018
 
 VA - Mark Slee plays 7v (2018) Seven Villas Music [FLAC|Lossless|WEB-DL|tracks] <Deep House, Deep Techno, Downtempo>
@@ -718,35 +747,6 @@ VA - Incepto Deep Hybrid (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC1DDF714E933996D90AC7F3ACAAC25DFC9F2A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168620   (408887) от 24.09.2017
-
-VA - Summer Vibes - Part VI (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno, Dubstep>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408887.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ed Marquis – Alone (Proone Remix) (04:55)
-02. MISIGII – Solomon (Oliver Petkovski Remix) (06:22)
-03. Matthew Damon – Open Space (Volkan Erman Remix) (09:25)
-04. Rabbit One – N33d U (07:28)(   Читать дальше...   )Жанр: Progressive House, Deep House, Techno, DubstepПродолжительность: 01:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7B3483FCA83CB66BCB04A7C3C65D2FD94DCFA72
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1180240   (341959) от 03.11.2017
+
+Masayoshi Takanaka - Ukulele Seychelles (2011) Lagoon Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh! Tengo Suerte [04:44]
+02. Tokyo Legie [03:58]
+03. Shinkirou no Shima E [04:28]
+04. Akogare no Seychelles Shotou [05:33](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5546470D62A054FE240B0FF7167BA6EFB790C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181264   (321204) от 08.11.2017
 
 MONACA — DRAG-ON DRAGOON 3 Original Soundtrack (2014) [FLAC|tracks] <Soundtrack, Vocal>

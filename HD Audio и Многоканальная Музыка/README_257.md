@@ -1,3 +1,175 @@
+###  Публикация: 1813814   (6582) от 21.08.2025
+
+Dashiell Royston - Soul and Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Another Round (4:13)
+02.  Seeking Romance (4:26)
+03.  Dead Zone (3:46)
+04.  Blues Be Gone (4:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27B2E47B2C086FAC4DBF603B4B08D18BC8AC79AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582401   (6505) от 22.08.2025
+
+Deftones - Studio Albums (12 releases) (1995-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6505.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deftones — рок-группа из Сакраменто, Калифорния, США. Первый их альбом «Adrenaline» вышел в 1995 году, на год позже дебютного диска Korn. Эти группы считаются основателями жанра «нью-метал», но Deftones играли намного раньше Korn, в конце 80-ых — андерграундные странствия без издателя. Хотя Korn и остаются куда более коммерчески выгодным проектом, однако стилистика (   Читать дальше...   )1995 - Adrenaline
+1997 - Around The Fur
+2000 - White Pony
+2003 - DeftonesЖанр: Nu Metal, Alternative MetalПродолжительность: 10:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A4775F3E5855982F91B52D7CA83A426C8AED52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704390   (6498) от 22.08.2025
+
+Burning Witches - Studio Albums (6 releases) (2017-2025) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Burning Witches — метал-группа, основанная гитаристкой Романой Калкуль в Бругге, Аргау, Швейцария.2017 - Burning Witches
+2018 - Hexenhammer
+2020 - Dance With The Devil
+2021 - The Witch Of The NorthЖанр: Heavy/Power MetalПродолжительность: 05:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74A45862329C724F1E269750EF7A5A238494E397
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615148   (6484) от 22.08.2025
+
+Meshuggah - Studio Albums (15 releases) (1991-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Groove/Thrash Metal, Djent, Math Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6484.jpg" />
+</div>
+
+
+###  Подробнее
+
+Meshúggah — шведская метал-группа, играющая в направлении мат-метал и являющаяся основателем этого жанра. Образована в 1987 году в городе Умео. Название группы являет собой вошедшее в английский язык из идиша слово משוגע (сумасшедший)1991 - Contradictions Collapse
+1995 - Destroy Erase Improve
+1998 - ChaosphereЖанр: Technical Groove/Thrash Metal, Djent, Math MetalПродолжительность: 14:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758FE6A67DB2A881237F6EA2FEF344DB89A233FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1697282   (6475) от 22.08.2025
+
+Blackbriar - Studio Albums (6 releases) (2017-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Blackbriar — голландская метал-группа из Ассена, основана в 2012 г.2017 - Fractured Fairytales (EP)
+2018 - We'd Rather Burn (EP)
+2019 - Our Mortal Remains (EP)Жанр: Gothic Rock, Symphonic MetalПродолжительность: 03:30:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B52FAD296F3167B8834BDBCC38D98A4C2AC097
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813869   (6425) от 22.08.2025
+
+Deftones - Private Music (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Nu-Metal, Shoegaze, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Mind Is A Mountain [00:02:50]
+02 - Locked Club [00:02:52]
+03 - Ecdysis [00:03:28]
+04 - Infinite Source [00:03:32](   Читать дальше...   )Жанр: Nu-Metal, Shoegaze, Alternative MetalПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:312185FD02C38ECE339DF2D88BA2D037814D851E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1814076   (6415) от 22.08.2025
 
 Myrath - Reflections: Best Of (2025) [FLAC 24/44.1, 24/48|Lossless|WEB-DL|tracks] <Oriental Progressive Metal, Middle Eastern Folk, Power Metal>
@@ -572,179 +744,6 @@ Incite — американская метал-группа из Финикса,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:175E249D13BC8F5201ADCE86A959921A24581ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814805   (5801) от 26.08.2025
-
-The Hives - The Hives Forever Forever The Hives (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Garage Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. (introduction) (0:28)
-02. Enough Is Enough (2:46)
-03. Hooray Hooray Hooray (2:33)
-04. Bad Call (3:31)(   Читать дальше...   )Жанр: Garage RockПродолжительность: 00:33:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E476E6F9E21CD599266FD66FDCA1BF7623138C06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814703   (5786) от 26.08.2025
-
-Warmen - Studio Albums (7 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5786.jpg" />
-</div>
-
-
-###  Подробнее
-
-Warmen - финская метал-группа, основана в 2000 году клавишником "Children of Bodom" Янне Вирманом.2000 - Unknown Soldier
-2002 - Beyond Abilities
-2005 - Accept The Fact
-2009 - Japanese HospitalityЖанр: Power Metal, Melodic Death MetalПродолжительность: 05:15:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1EA4E8246F039BD4776E82FF769D33F13C97EA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638527   (5690) от 27.08.2025
-
-Fueled By Fire - Studio Albums (4 releases) (2006-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fueled By Fire - трэш-метал группа из Норуолка, Калифорния, США.2006 - Spread The Fire
-2010 - Plunging Into Darkness
-2013 - Trapped In PerditionЖанр: Thrash MetalПродолжительность: 02:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2514FFA1BF1C4F671993EC2C256F7275D0EF250B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1814857   (5653) от 27.08.2025
-
-Orchestra Electrecord - Famous Romanian Tangos (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Latin, Tango>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tangouri Celebre Romanesti – Famous Romanian Tangos
-A1 Tangoul De Demult
-A2 Vrei Sa Ne-ntilnim Simbata Seara?
-A3 Ilona(   Читать дальше...   )Жанр: Latin, TangoПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:770F6A5A497BB0F1C768AE8F34E9EA7B43480F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815126   (5509) от 28.08.2025
-
-In Mourning - The Immortal (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metal, Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Immortal (1:07)
-02. Silver Crescent (5:28)
-03. Song of the Cranes (6:08)
-04. As Long as the Twilight Stays (7:17)(   Читать дальше...   )Жанр: Progressive Metal, Melodic Death MetalПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739BE5DDE7782EB5C97FA45401AB8A5105063A3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1815057   (5508) от 28.08.2025
-
-Щурците - Shtourtsite (1978) [FLAC 2.0|24/96|image +.cue|Vinyl-Rip] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5508.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Някои От Вас • Some Of You
-A2 Гатанки, Ладанки • Riddles
-A3 Бяла Светлина • White Light
-A4 Звезден Път • Star Way(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393D7668E3DA47E62A80F040BF2DF9D929E9EDA6
 ```
 
 https://mybot314.ru/tekegram_catalog/

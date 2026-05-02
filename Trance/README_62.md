@@ -1,3 +1,145 @@
+###  Публикация: 1768678   (100884) от 26.12.2024
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 07 (2024) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AaYmin - By Your Light (For Saylee) (Extended Mix) (05:53)
+02. Liudicrous & Nini - Comical (Cosmaks Remix) (05:20)
+03. Toffk - Remoted (Mark Van Rijswijk Remix) (06:57)
+04. Pavel Koreshkov - New Regeneration (Mixed) (03:41)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7BC09A27646541B1FD9B28B94555B2E2375608B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769171   (100706) от 27.12.2024
+
+VA - Interplay Highlights 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passive Progressive & Sentient Mullet – Like a WaveЖанр: Trance, Progressive, ElectronicПродолжительность: 01:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9F9773EA9DA878B64171D0777ED919F4D6F764
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769425   (100688) от 28.12.2024
+
+VA - Reason II Rise: Realms Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jake Crooker - New World (Mixed) [04:48]
+02. Menno Veda - Orbit (Mixed) [02:00]
+03. Afterus - Sparta (Mixed) [04:43]
+04. Pinkque & Darren Porter - Divergent (Mixed) [04:21](   Читать дальше...   )Жанр: TranceПродолжительность: 00:59:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:805A759EB9C359A19DB18A4DC32DEE1B6569E77A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769418   (100686) от 28.12.2024
+
+VA - Coldharbour Reflections 2024 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Ram Attack (03:46)
+02. DIM3NSION & Daxson - Ardora (03:12)
+03. Mike EFEX - Malfunction (02:39)
+04. Stoneface & Terminal - In My Mind (02:48)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:46:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C69FBF08E537E392EC1983A5FCCEDF1B5F52E06B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769469   (100684) от 28.12.2024
+
+VA - Reason II Rise Best Of 2024 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pinkque - Ghost Of You (Mixed) [03:23]
+02. Airdream & Victor Special - Autumn Haze Before Sunrise (Mixed) [05:36]
+03. Kvaii - Sunshine (Mixed) [05:01]
+04. Cenk Basaran - Coming From Paradise (Mixed) [04:20](   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73DDFC6E70083306DF213093BE62A2C5C7EC4A31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769458   (100679) от 28.12.2024
 
 VA - Reason II Rise: Uplift Best Of 2024 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -603,151 +745,6 @@ VA - Noetic Resonance - Best of 2024 (2024) [MP3|320 Kbps] <Trance, Progressive,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C1BD887194F6FCB72B1B948B957A949016B64937
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772874   (71733) от 12.01.2025
-
-VA - Cooperation Trance Selection: Year of the Loong (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tsuki Shizumutoki & CO1N - A Place Where My Heart Belongs To (Extended Mix) [7:23]
-02. pixeFiruta - Equinox (Extended Mix) [8:09]
-03. LESSISLESS - Halo (Extended Mix) [6:23]
-04. Fallen Order - Merrow (Extended Mix) [7:19](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2AD2D1283E5A630D1478BD099F0DE1C5F082E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773743   (71682) от 17.01.2025
-
-VA - Black Hole Trance Music 01-25 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RAM, Richard Durand & Digital Culture - Underneath the Sky (Extended Mix) (05:47)
-02. Leon Bolier & Amber Revival - Wearing the Darkness (Extended Mix) (05:47)
-03. Johan Gielen, Airscape & Arkayne - In The Dust Where Love Is Gone (Extended Mix) (05:19)
-04. Solarstone - Touchstone (Aeon Shift Extended Remix) (07:44)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:32:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB6197A5FD8A5650FA1DDE974FE26479F60BC8F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773776   (71666) от 17.01.2025
-
-VA - Trance Party 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artyom Kitsenko - Atlas (Original Mix) [6:33]
-02. Alexander Pakhomov - Eternity (Original Mix) [3:36]
-03. Cybercat LPR - Space Party (Original Mix) [6:02]
-04. Dmitry Bereza - Abstract (Original Mix) [3:22](   Читать дальше...   )Жанр: TranceПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C1C9851E64E9469B88B6ECE484238E952BC604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774065   (71557) от 19.01.2025
-
-VA - Progressive Trance Awakening, Vol. 02 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Geri - In Order To Be Irreplaceable (Original Mix) [4:45]
-02. OLBI - Sky (Original Mix) [2:46]
-03. Nat Dankir - Fireball (Extended Mix) [5:46]
-04. Rob Jakk - Touch Of Insanity (Original Mix) [5:51](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:21:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C9724FD4C6079A3E2CAE51B481DB90648C26F76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1774445   (71540) от 21.01.2025
-
-VA - Uplifting Only Top 15: January 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dreamira & Tsuki Shizumutoki - Revive (Intro Mix) [5:37]
-02. Etasonic - In The Valley Of The Blue River (Extended Mix) [9:40]
-03. Jericho Frequency & Kate Miles - Blink Of An Eye (Extended Mix) [7:14]
-04. Dalmoori & RillLua with Euphoric Heart - Wheel Of Fortune (Harmonic Wave Extended Remix) [5:38](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D67EA0974A8C9985108BBA60F531B6BEB5E087B
 ```
 
 https://mybot314.ru/tekegram_catalog/

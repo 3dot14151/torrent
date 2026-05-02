@@ -1,3 +1,119 @@
+###  Публикация: 1699904   (117382) от 15.02.2024
+
+Always Naked - Just Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Not Your Baby (2:32)
+02. Do I (2:35)
+03. Hope You Die (One More Time) (2:14)
+04. Where Is My Mind / Under Your Spell (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0EE1A3E68CC83B4B91A2CAB38A6451038DE9102
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701214   (116501) от 20.02.2024
+
+Motorowl - This House Has No Center (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Night (1:43)
+02. All Bells Ring (5:13)
+03. Lie to the Creator (5:01)
+04. Fences (2:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413A7D10D12201339F20DC7504B1AFA72EC4EAD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701213   (116497) от 20.02.2024
+
+Eynomia - Break Free (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cleansing (5:00)
+02. Someday Maybe (4:14)
+03. Till We Meet Again (5:32)
+04. Break Free (4:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3A68083F61873120FD2F7FBDECEC159D72FAFFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1701745   (116168) от 22.02.2024
+
+Danny Steel - Diamond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me High (3:55)
+02. Stop in the Middle (5:29)
+03. Bad Boy (3:58)
+04. Diamond (6:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E165C7D004345272E8DEC5A4287AE9BA374486ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1702707   (115471) от 26.02.2024
 
 Sons of Liberty - The Detail Is In The Devil (2024) [FLAC|Lossless|WEB-DL|tracks] <Southern Hard Rock>
@@ -629,122 +745,6 @@ Blue Oyster Cult - Ghost Stories (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B152EAF8DC88B92A377AC8DC90C15AF9963D30EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715051   (111540) от 12.04.2024
-
-Secta - Panzer (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. C'mon [00:03:46]
-02. Panzer [00:03:45]
-03. Dulce Dinamita [00:04:48]
-04. Todo o Nada [00:03:56](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4B59ACF8B3ADACAC8BD9F8A63AA81B1E101442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715603   (111474) от 13.04.2024
-
-The Dead Daisies - Resurrected, Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yesterday (3:50)
-02. Writing on the Wall (3:19)
-03. Bible Row (3:02)
-04. Tomorrow (2:46)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34E1FBEB2459F504273C0CB383E3BFDE62139701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717456   (111168) от 20.04.2024
-
-Whitecross - Fear No Evil (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Way We Rock 04:03
-02. Lion Of Judah 05:04
-03. Jackhammer 01:18
-04. Man In The Mirror 04:39(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FC2AD5378EB821BE7A85F209017A52C2EEB9AE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716975   (111155) от 20.04.2024
-
-Junkyard Drive - Look At Me Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somewhere To Hide [00:03:42]
-02. Shoot From The Hip [00:03:46]
-03. Tearaway [00:03:25]
-04. Black Wolf [00:04:22](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61096204E20ACCB5BEF831E4F9B6073D10DBF205
 ```
 
 https://mybot314.ru/tekegram_catalog/

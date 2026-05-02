@@ -1,3 +1,61 @@
+###  Публикация: 1779668   (70625) от 14.02.2025
+
+Les McCann - How's Your Mother (1967) 1998, 32 Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love for Sale [7:11]
+02. I Can Dig It [8:24]
+03. Doin' That Thing [8:56]
+04. I Am in Love [6:09](   Читать дальше...   )Жанр: Hard Bop, Piano jazzПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8026C027612EFD6A1997FB233C80AB2DF59769D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779661   (70622) от 14.02.2025
+
+Dick Hyman - Plays The Great American Songbook (1994) 2CD, MusicMasters Jazz [FLAC|Lossless|tracks + .cue] <Stride, Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easter Parade [2:52]
+02. Liza [4:36]
+03. Woman's Prerogative [4:47]
+04. All Through the Night [4:31](   Читать дальше...   )Жанр: Stride, Swing, Piano JazzПродолжительность: 02:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD2101B9897BDCC1A392EA09ECB728880512CD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779839   (70582) от 15.02.2025
 
 The Phil Woods Quintet - American Songbook II (2007) Kind of Blue Records [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
@@ -687,64 +745,6 @@ Kenny Burrell - Prestige Profiles (1956 - 1963) 2005, Prestige [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D749DD8B82D2474218AB7B380285D84540D24695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780627   (70381) от 19.02.2025
-
-Nick Brignola & Sal Salvador - A Tribute To Gerry Mulligan (1982 - 1984) 1993, Stash Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bernie's Tune [6:56]
-02. Five Brothers [4:19]
-03. Song for Stray Horn [4:02]
-04. Elevation [4:18](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:077857BC6CFFC997FFEF24A304E08A2E9E311389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780628   (70380) от 19.02.2025
-
-Kenny Barron - Beyond This Place (2024) Artwork Records [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Nearness of You [6:35]
-02. Scratch [5:35]
-03. Innocence [8:18]
-04. Blues on Stratford Road [6:41](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:52:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D9218E935C89C599B7A25965E9168776DACF8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

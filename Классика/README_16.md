@@ -1,3 +1,38 @@
+###  Публикация: 653376   (821213) от 12.05.2013
+
+Ансамбль Мадригал, Андрей Волконский - Cерия Тысяча лет музыки (после 1981) 16 LP [FLAC|Lossless]<Сlassic>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. У. БЁРД (1543—1623): Месса для пяти голосов (24.32)
+- Kyrie eleison
+- Gloria in excelsis
+- Credo
+- Sanctus
+- Benedictus
+- Agnus Dei
+02. У. БЁРД (1543—1623): Callino Casturame, вариации для клавесина (3:55)
+03. Дж. ДОУЛЕНД (1562—1626): What if I never speede, мадригал (2:44)
+04. Дж. ДОУЛЕНД (1562—1626): If my complaints, песня (3:36)(   Читать дальше...   )Жанр: classicПродолжительность: 0:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36201740E449FA53B87A89E1EE7B8B0F764066A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196695   (820525) от 04.01.2018
 
 David Lanz - French Impressions (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Classical, New Age>
@@ -717,35 +752,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECF1147D4A0909153D6AB1EEAFE7960F5261B0BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010170   (803621) от 24.04.2016
-
-Andre Rieu - Magic Of The Waltz (2016) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Windsor Waltz (6:14)
-02. The Blue Danube (8:01)
-03. The Merry Widow (3:05)
-04. Valse Triste (4:41)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7DD63BF4A1E943806D899B924F5959175D16D40
 ```
 
 https://mybot314.ru/tekegram_catalog/

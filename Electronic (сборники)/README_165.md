@@ -1,3 +1,61 @@
+###  Публикация: 1418832   (344557) от 26.10.2020
+
+VA - Record Super Chart 659 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rauf & Faik feat. NILETTO - Если тебе будет грустно (3:11)
+02. Bastard! - F..k That (3:38)
+03. Jason Derulo - Take You Dancing (3:10)
+04. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A68F4EDF501191A61F37CD9C4C417BE524EF9BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1418948   (344435) от 26.10.2020
+
+VA - Listen To Your Heart: Vocal House Session (2020) [MP3|257-320 Kbps] <Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344435.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Block & Crown - Can't Get You Out
+002. Kastomarin - Mindreader
+003. Vzxx - Want U More
+004. Slippy And Ash - Swing (Extended Mix)(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:17:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B2FAFCA11226E150F505502ABB79450FBB2158A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1418952   (344431) от 26.10.2020
 
 VA - Open Air House (2020) [MP3|320 Kbps] <Club, Dance, Future House>
@@ -729,64 +787,6 @@ VA - Deep House Collection Vol.189 (2018) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29D3A2849734186CE44C96C034E7ED0B6AE47CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954675   (340103) от 08.11.2015
-
-VA - Bassleader (07.11.2015) [MP3|320 кб/с]<Techno, Hardstyle>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Psyko Punkz - Frozen Planet (Official Bassleader 2015 Anthem) (Extended Mix) 05:59
-02. Max Enforcer And Coone - Love X Hate (Radio Version) 03:50
-03. Psyko Punkz - Like A Loco (Extended Version) 04:44
-04. Noisecontrollers - Wolfs (Radio Version) 03:03(   Читать дальше...   )Жанр: Techno, HardstyleПродолжительность: 10:26:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:329084195A4132638D4C550CA3891711F527601F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 954652   (340097) от 08.11.2015
-
-VA - Resident Advisor Top 50 Charted Tracks October (2015) [MP3|320 кб/с]<Electronica, Techno, Minimal, Tech House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tale Of Us & Mind Against - Astral (Original Mix) 06:43
-02. Blue Mondays - Everything (Soulphiction Remix) 06:18
-03. Jimmy Edgar - Let Me Tell U (Original Mix) 07:16
-04. Butch - Dope (Original Mix) 08:30(   Читать дальше...   )Жанр: Electronica, Techno, Minimal, Tech House, Deep HouseПродолжительность: 06:01:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694F1C55CF1EB772637C6971B80F85E1EF0983FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1186326   (288114) от 24.11.2017
+
+Опера - Пророк (2017) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288114.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. На краю (5:20)
+(музыка - Д. Щербинин, А. Губарев / слова - А. Губарев)
+2. Пророк (4:40)
+(музыка - Д. Щербинин, А. Губарев/ слова - А. Губарев)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9E2D2DD7CFD8EFBFE5244A1AF6F9576F3F832B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1080815   (287978) от 07.12.2016
+
+Чиж & Co, Свободный полёт - Волопас (2016) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287978.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Волопас (Левосторонний)
+2. Волопас (Правосторонний)
+3. Волопас
+4. Волопас (Версия 2)Жанр: RockПродолжительность: 00:21:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D662E610D1559E0A7593FFC3258E85915D67F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263601   (287816) от 19.11.2018
+
+Смысловые Галлюцинации - Remixes (2013) [MP3|320 Kbps] <Rock, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287816.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Настоящие герои (Remix)
+2. Вечно молодой (DJ Nejtrino Radio Mix)
+3. Демоны (Mike Crystal Remix)
+4. Розовые очки (Fashion Beat Remix)(   Читать дальше...   )Жанр: Rock, ElectronicПродолжительность: 01:00:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B1A0F05E6A421474A118F9984011E7EBB3CE85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186144   (287607) от 24.11.2017
+
+Нуки (Слот) - Исключения (2017) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287607.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ау
+2. Before I Die
+3. Исключения
+4. Вверх(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5DCADF314EC29353340957711D47E7DFDDB91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1186204   (287605) от 24.11.2017
 
 Александр Ф. Скляр и Ва-Банкъ - Оставайтесь, друзья, моряками! Песни Владимира Высоцкого (2017) [MP3|320 Kbps] <Rock>
@@ -625,122 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4173989D0494C1CC20D018366CCFD0B0852B248E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336691   (278702) от 07.11.2019
-
-АнимациЯ - ВО! (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278702.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Красиво
-2. Белая берёза
-3. Голая зима
-4. Утопаем(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADBDB12A5FF385A3B79CA336B148BC87B497562D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336591   (278687) от 07.11.2019
-
-Гарик Сукачёв - 246 (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 246
-02. Маленькая девочка
-03. Танго Gitanes
-04. Научи меня жить(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3E51863E214AF2254BFB9F71F2406F09BCE0BF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336852   (277332) от 08.11.2019
-
-Чёрный обелиск - DISCO 2020 (2019) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277332.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Танцы
-2. Так и живём
-3. Параллельно
-4. Карусель(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BDBE2EC35398522E078F559FFCF9E585135927B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187959   (277064) от 30.11.2017
-
-Грай - Ashes (2017) [MP3|320 Kbps] <Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haze
-02. Song of Dead Water
-03. A Water Well
-04. Darkness with Me(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:993C6418314EC69BCB98556A8CC61B306027E3CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 995241   (886364) от 10.03.2016
+
+Library Tapes - Escapism (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, InstrumentaI>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction I
+02. Running by the roads, running by the fields
+03. A summer by the sea II
+04. Tristesse/Escapism(   Читать дальше...   )Жанр: Modern Classical, InstrumentaIПродолжительность: 00:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D97082076B840997CCB13BD3277D4429F5D30F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995105   (886328) от 10.03.2016
 
 Ferenc Liszt - Complete Symphonic Poems - Arpad Joo (1994) [FLAC|Lossless|tracks+.cue] <Orchestral>
@@ -709,35 +738,6 @@ Rudolf Innig - Nowowiejski - Complete Organ Symphonies (1998) 3CD [FLAC|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9D1039EF445822BD9A5C07EBD1F57A512C49FADF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996840   (877199) от 15.03.2016
-
-Ivan Moravec - Plays Chopin (2001) [FLAC|Lossless|tracks] <Classical, Keyboard>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballade for piano No. 1 in G minor, Op. 23, CT. 2  10:11
-02. Ballade for piano No. 2 in F major, Op. 38, CT. 3  07:41
-03. Ballade for piano No. 3 in A flat major, Op. 47, CT. 4  07:52
-04. Ballade for piano No. 4 in F minor, Op. 52, CT. 5  12:03(   Читать дальше...   )Жанр: Classical, KeyboardПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1476D7DAA5338279075CEF7090985B0476AD0899
 ```
 
 https://mybot314.ru/tekegram_catalog/

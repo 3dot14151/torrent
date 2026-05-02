@@ -1,3 +1,206 @@
+###  Публикация: 1598039   (162279) от 19.12.2022
+
+Simon Franglen - Аватар: Путь воды / Avatar: The Way of Water (2022) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing Is Lost (You Give Me Strength) – The Weeknd
+02. Hometree – Simon Franglen
+03. Happiness Is Simple – Simon Franglen
+04. A New Star – Simon Franglen(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:16:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C935D1D845064098381BDE0FB5FB809BE44A855E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432410   (161940) от 19.12.2020
+
+VA - Romeo & Juliette (Gerard Presgurvic) (2000) [FLAC|Lossless|tracks + .cue] <Electronic, Pop, Ballad>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161940.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vérone (3:40)
+02. La Haine (3:52)
+03. J'ai Peur (3:40)
+04. Les Rois Du Monde (3:27)(   Читать дальше...   )Жанр: Electronic, Pop, BalladПродолжительность: 01:01:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DAD106A6D128F05307B060E79DBD0C8D329BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432553   (161883) от 19.12.2020
+
+VA - Иисус Христос - Суперзвезда (Театр им. Моссовета) (1995) 2 СD [FLAC|Lossless|image + .cue] <Рок-опера>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тайная вечеря (5:44)
+02. Гефсиманский сад (6:21)
+03. Арест (4:18)
+04. Пилат и Кайафа (1:43)(   Читать дальше...   )Жанр: Рок-операПродолжительность: 01:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E2C1A25EF93045BDD5A94A7E11DC1E4121DA6E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674875   (160639) от 07.11.2023
+
+Pasărea Colibri - Ciripituri (1996) [APE|Lossless|image + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renunюare veselг 1:20
+02. Peste rгbdгri 3:46
+03. Оn tren 3:20
+04. Ploaia care va veni 3:12(   Читать дальше...   )Жанр: FolkПродолжительность: 01:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B9602661BE49259FDA09C707D4D2878AF3244F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1674880   (160636) от 07.11.2023
+
+Pasarea Colibri - Cantece de bivuac (1999) [APE|Lossless|image + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Incripюie pe-o tobг 0:19
+ 02. Vis de primгvarг 2:38
+ 03. Pe Corso 3:54
+ 04. Dealul cu dor 3:13(   Читать дальше...   )Жанр: FolkПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D090BC548F5171377180F749B81B2353DA4E38F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599135   (160026) от 22.12.2022
+
+Lindsey Stirling - Snow Waltz (2022) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening, Christmas>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160026.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lindsey Stirling (21.09.1986) - американская скрипачка, автор песен и танцовщица. Stirling исполняет самые разные музыкальные стили, от классики до поп-музыки и от рока до электронной танцевальной музыки. Помимо оригинальных работ, в ее дискографии есть каверы на песни других музыкантов и различные саундтреки. Ее дебютный альбом вышел в 2012, а уже к августу 2014 (   Читать дальше...   )01. Sleigh Ride (3:02)
+02. God Rest Ye Merry Gentlemen (3:16)
+03. feat. Bonnie McKee - Crazy for Christmas (3:44)
+04. Feliz Navidad (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy listening, ChristmasПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3576DAE55422C37A6341CED4CD24B13E33F86F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597602   (159825) от 23.12.2022
+
+VA - Country Rock Delights (2022) [FLAC|Lossless|WEB-DL|tracks] <Country Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gram Parsons -- Brass Buttons (3:30)
+02. John Prine -- Come Back to Us Barbara Lewis Hare Krishna Beauregard (3:21)
+03. The Byrds -- Laughing (5:40)
+04. Emmylou Harris -- Wrecking Ball (4:49)(   Читать дальше...   )Жанр: Country RockПродолжительность: 01:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F62EEAB8D50FFA91993DF3C4D94B963C3A539F12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599495   (159619) от 24.12.2022
 
 Mountain Silence - Harmonia Coeli (Sri Chinmoy, Шри Чинмой) (2008) [FLAC|Lossless|tracks + .cue] <New Age, World, Christian>
@@ -546,209 +749,6 @@ Francis Goya - The Best World Instrumental Hits (2009) 2CD [APE|Lossless|image +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F04FF2A82397BD428C422F5449D3ACFE88C4A26F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085945   (154854) от 23.12.2016
-
-Jeffrey Hilton - Velvet Skies (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever
-02. Learning to Fly
-03. The Unbreakable Spirit
-04. The Gift(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F10BB479AB22C2717E830C2B8AEF466568EB27A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085828   (154753) от 23.12.2016
-
-Anousheh & Tom - Silence (Secrets of Persian Ney) 2016 [MP3|320 Kbps] <Newage, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Secret One  (19:57) 
-02|  Secret Two  (12:31) 
-03|  Secret Three  (22:48) 
-04|  Secret Four  (19:20) (   Читать дальше...   )Жанр: Newage, MeditativeПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC41DC1832C90DF015E2628758B0BCF7FD3FC41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1518158   (154696) от 19.12.2021
-
-Maitreya Bland - Tranquility (1999) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tranquility
-02. The Divine
-03. Back to Eternity
-04. Tenderness(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F27F73B418F362E9DAAB22EC8EE7BE1D71BDD294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085913   (154584) от 23.12.2016
-
-Ветер всем - Колыбель (2010) [FLAC|Lossless|tracks] <Folk-Rock, World Music, Ethno>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154584.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. У Егорья
-02. Полно
-03. Девушка
-04. Ходом водом(   Читать дальше...   )Жанр: Folk-Rock, World Music, EthnoПродолжительность: 00:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C8077C76C9F68E474B621F402C08027EC1889A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270982   (154231) от 21.12.2018
-
-Laura Sullivan - Healing Music for Meditation and Well Being (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154231.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. In the Palm of My Hand
-2. Ocean Sunrise
-3. Forgiveness
-4. Lighter Than AirЖанр: Instrumental, New AgeПродолжительность: 01:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56B39BBD40AE714362FF56E36664F6862244B9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194532   (154211) от 26.12.2017
-
-Zen Buddhismus Regeneration - Musik fur Yoga Ubungen (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Musik fur Yoga Ubungen - 03:50
-02. Beruhigende Musik New Age - 03:25
-03. Autogenes Training fur spirituelle Entwicklung - 03:20
-04. Ruhe und Einschlafmusik - 03:37(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26B905F7D313793038C8ADA17A25714481418007
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194526   (154176) от 26.12.2017
-
-Kari Arnett - Midwestern Skyline (2015) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Heavy Heart (4:04)
-02 - Lake Michigan (5:12)
-03 - When We Were Young (5:16)
-04 - Casualties (3:38)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5508C62C689094E6AB03510A5BAF1D68523FF7CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

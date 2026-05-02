@@ -1,3 +1,29 @@
+###  Публикация: 1015068   (775608) от 09.05.2016
+
+Проекты - Pond5 - Sharing Memories [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775608.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sharing Memories - Этот шаблон идеально подходит для всех торжеств: свадьбы, юбилея, дня рождения, помолвки и семейных событий.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40899C99233AF40EF6C9F9D1FFD4B011E8B097E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212716   (774976) от 13.03.2018
 
 Проекты - VideoHive - Ink Freeze Frame - 21467189 [AEP]
@@ -660,32 +686,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69C6E9C31A3FC3DA2E6753E3C58524E029CB2520
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125591   (767722) от 15.04.2017
-
-Проекты - VideoHive - Summer Holiday II [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкий и стильный проект для создания динамичного слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F521FA90EBDF571B59AB56B0867D6A7B912E7FF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

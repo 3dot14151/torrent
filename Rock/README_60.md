@@ -1,3 +1,38 @@
+###  Публикация: 569732   (391931) от 03.11.2012
+
+Unheilig - Lichter der Stadt Live (2012) [MP3|320 кб/с]<Gothic/Synth Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391931.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01.Das Licht (Intro).mp3
+02.Herzwerk.mp3
+03.Lichter Der Stadt.mp3
+04.Unter Deiner Flagge.mp3
+05.Grosse Freiheit.mp3
+06.Auf ewig.mp3
+07.Unsterblich.mp3
+08.Nachtschicht.mp3
+09.Ein Grosses Leben.mp3(   Читать дальше...   )Жанр: Gothic/Synth RockПродолжительность: 01:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6470FA12BD2BB5AC0109455D746F2B47D7D795DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 569752   (390880) от 04.11.2012
 
 Madness - Oui, Oui, Si, Si, Ja, Ja, Da Da (2012) [MP3|320 кб/с ]<Rock>
@@ -730,35 +765,6 @@ Wings - Wings Greatest (1978) [MP3|256 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62E2FBD407C54A2F3B091172DA44B4157F147423
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326998   (380921) от 22.09.2019
-
-The Rings - The Rings (серия "Другие восьмидесятые") (1981) Vinyl, LP, Album [MP3|320 Kbps] <Pop Rock, Power Pop, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380921.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Opposites Attract
-A2. Who's She Dancin' With
-A3. This One's for the Girls
-A4. Let Me Go(   Читать дальше...   )Жанр: Pop Rock, Power Pop, New WaveПродолжительность: 00:35:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3145DB3A8A9B7798AB260619706781D88517C6BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

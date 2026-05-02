@@ -1,3 +1,61 @@
+###  Публикация: 1304341   (564192) от 26.05.2019
+
+Activa - Live @ Union Club London (2019-05-11)[MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Activa - The One You Need (Sonic Element Remix)
+02. Ronski Speed vs Stoneface & Terminal - Incognition (Original Mix)
+03. Activa & Simon Bostock - Contour (Original Mix)
+04. UDM - Freefall (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89C3323D799C18AADB2CB57F043FB22D370B76F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304767   (562090) от 27.05.2019
+
+Maria Healy - Live @ Civic Underground Sydney, Australia (2019-05-03)[MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562090.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key4050 - Gianfranco
+02. John O'Callaghan - Space & Time
+03. Sneijder - Back Home
+04. Billy Gillies - Open Your Mind(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C4377E6F8A7F86D27838BA02C8B122F9F77277
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304759   (555483) от 06.06.2019
 
 VA - Live @ quantumVALLEY, EDC Las Vegas (2019-05-18)[MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ Lane 8 - Summer 2022 Mixtape (2022-06-29) [MP3|320 Kbps] <Progressive House, Dee
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E92E28596FCA3C727966A43D577C35FB24A36676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560982   (517714) от 02.07.2022
-
-Markus Schulz - Global DJ Broadcast (Sunrise Set) (2022-06-30) [MP3|320 Kbps] <Progressive House, Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jon Hopkins - Love Flows Over Us in Prismatic Waves
-02. Chicane - Offshore (Disco Citizens Evolution Mix)
-03. Marsh - Free
-04. Nora En Pure - Thermal(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:645F8A983F787DFA265C286AB8013FCF29E4A247
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560899   (517661) от 02.07.2022
-
-Tiesto - Tomorrowland Friendship Mix (2022-06-30) [MP3|320 Kbps] <Electro Pop, Big Room, Bass House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto & Charli XCX - Hot In It
-02. Alesso & Tove Lo vs. Galantis & Becky Hill - Heroes (We Could Be) vs. Run (Ango & Luke Alexander Edit)
-03. Sigala - Melody (Tiësto Remix)
-04. DallasK & Dark Heart - Time (Sevek Remix)(   Читать дальше...   )Жанр: Electro Pop, Big Room, Bass HouseПродолжительность: 01:00:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA1C96A19E5258A76C71851AE7A77E3FE4C8501
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1366484   (924122) от 11.03.2020
+
+Nils Hoffmann - Once in a Blue Moon (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Melodic House & Techno, Downtempo>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1.16699016 x 10^-8 hertz (02:03)
+02. Once in a Blue Moon (03:25)
+03. Wherever You Are (feat. Margret) (03:28)
+04. Second Sun (03:44)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, DowntempoПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2727127D7E8D7F5903E0307F8CAB5422B50961DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1340010   (923675) от 17.08.2021
 
 As One (Kirk Degiorgio) - Discography 21 Releases (1994-2020) New Electronica, Clear, ART, Ubiquity [FLAC|Lossless|tracks+.cue, tracks] <Techno, Ambient, IDM, Downtempo, Future Jazz>
@@ -705,35 +734,6 @@ VA - Global Underground: Select #2 (2017) [FLAC|Lossless|WEB|tracks|image] <Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91195DDF3AE416BBE65B85927CE3591C99D60F53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368140   (912279) от 18.03.2020
-
-VA - Faze #28: Adriatique (2014) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Tech House, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adriatique - Faze DJ-Set 28 (Continuous DJ Mix) [01:15:54]
-02. Mattheis - Klrnoe [09:06]
-03. Adriatique - Lophobia [06:53]
-04. David August - Epikur [08:08](   Читать дальше...   )Жанр: EDM, Deep House, Tech House, MinimalПродолжительность: 02:19:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2688D3A0CDD8ADFE0D874E39F06812464056851
 ```
 
 https://mybot314.ru/tekegram_catalog/

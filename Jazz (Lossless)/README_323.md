@@ -1,3 +1,61 @@
+###  Публикация: 1722158   (109753) от 10.05.2024
+
+VA - Modern Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ltj Xperience - Don't Let The System  Get You Down (Regrooved Mix) (7:33)
+02. Les Jeux Sont Funk - Take Me To The Top (5:29)
+03. Bebo Best - Uncle T Boogie (3:27)
+04. Lainz - Sfrombolus (Gaudi Cosmic Remix) (6:05)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD80059502420E9162837565684B41CD72C7A5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722165   (109751) от 10.05.2024
+
+VA - Acid Jazz Beats & Breaks Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vito Lalinga (Vi Mode Inc. Project) - Bua (4:09)
+02. S-Tone Inc. - Get Freaky Now (feat. Marlon) (Acid Jazz Mix) (5:25)
+03. The Funk Soul Brothers - Love Jazz Funk Bla Bla Bla (3:50)
+04. Ltj Xperience - Best Life (7:39)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817FEAB98020F214DF0B54CB10159E00CADC0480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722397   (109701) от 11.05.2024
 
 Gigi Gryce - The Rat Race Blues (1960) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
@@ -687,64 +745,6 @@ The Barney Kessel Trio - Jellybeans (1981) 1996, Concord Jazz [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0870E1303AA83D79A3A3AB45F8142446B99DB8AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723895   (109363) от 17.05.2024
-
-Joachim Caffonnette Extended - Bittersweet Times (2021) Hypnote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bittersweet Times [7:24]
-02. Nostalgie du Futur [7:21]
-03. Presidential Blues [6:08]
-04. Any Where Out of the World [6:27](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7DC972BDD86060F70FF5F09B4B0DE1C456D8890
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723863   (109362) от 17.05.2024
-
-Scott Hamilton & Jesper Thilo - Scott Hamilton Meets Jesper Thilo (2011) Stunt Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Lou [6:07]
-02. Good Bait [10:02]
-03. Just Friends [8:22]
-04. Blue Monk [9:18](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:57:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A92CAFCEACA2D64DF36B654DC6E1ABA2B2A23B6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

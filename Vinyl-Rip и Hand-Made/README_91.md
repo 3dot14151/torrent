@@ -1,3 +1,177 @@
+###  Публикация: 1808052   (65031) от 22.07.2025
+
+Dio - Lock Up The Wolves (1990) Reissue, 2021, Vertigo [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65031.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Wild One
+A2. Born On The Sun
+A3. Hey Angel
+B1. Between Two Hearts(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1714BC883CFB7745D916978CBB72608436C162E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809037   (64770) от 28.07.2025
+
+Night Tempo - Night Tempo Presents The Showa Idol Groove (Rare Groove From 80s) (2021) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Synth-pop, Synthwave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64770.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Deja Vu (Night Tempo Showa Groove Mix)
+A2 Nice-catch! (Night Tempo Showa Groove Mix)
+A3 淋しい熱帯魚 - Glowing tropical fish (Night Tempo Showa Groove Mix)(   Читать дальше...   )Жанр: Electronic, Synth-pop, SynthwaveПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93AF4075B841A08C23BD8ECE29C0CE1AF42FD07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809797   (64655) от 01.08.2025
+
+Tomoko Aran – Fuyu-Kukan = Floating Space = 浮遊空間 (1983) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, New Wave, City Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Body To Body
+A2 Lonely Night
+A3 I'm In Love(   Читать дальше...   )Жанр: Electronic, New Wave, City PopПродолжительность: 00:45:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2127C96833163B25D9A419C8EF12198A11B1ADD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810070   (64614) от 02.08.2025
+
+The Alan Parsons Project - Collection (1976-1987) [DSD 128|tracks|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64614.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Alan Parsons Project — рок-группа из Великобритании, творившая с 1975 по 1990 годы в стилях арт-рок, симфонический рок и прогрессивный рок. Основана Аланом Парсонсом (Alan Parsons) и Эриком Вульфсоном (Eric Woolfson). После 1990 года группа официально не существует, но Алан Парсонс и Эрик Вульфсон продолжали выпускать сольные альбомы, близкие к творчеству группы. (   Читать дальше...   )1976 Tales Of Mystery And Imagination (UK, Charisma – CDS 4003 LP)
+1977 - I Robot (Japan, Arista – IES-80885 LP)
+1978 Pyramid (UK, Arista – SPART 1054 LP)
+1979 - Eve (Japan, Arista – 20RS-36 LP)Жанр: Pop Rock, AOR, Soft RockПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C8FA323DC7C23C2EDFA43C9EF2A7C3FF27ABCC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821665   (63877) от 03.10.2025
+
+VA - XVI. Album Supraphonu (1977) Compilation, Partially Mixed, Sampler [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63877.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 K. Gott, L. Staidl Se Svym Orchestrem - Divkam
+A2 M. Vobornikova A Sbor L. Panka, Tanecni Orchestr Cs. Rozhlasu - Rada Silne Muze Mam
+A3 W. Matuska A O. Blechova, Studiovy Orchestr Mojmir Balling - Kdo Ma Rad
+A4 H. Zagorova, K. Vagner Se Svym Orchestrem - Kdyz Pisne Lzou(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B13E718F16DDE7C1C74DFA46CCFC99FDA4D753
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763031   (63850) от 03.10.2025
+
+Bloodred Hourglass (BRHG) - Studio Albums (7 releases) (2012-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death/Thrash Metal; Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bloodred Hourglass - мелодик-дэт/трэш-метал группа из г. Миккели, Финляндия.2012 - Lifebound
+2015 - Where The Oceans Burn
+2017 - Heal
+2019 - GodsendЖанр: Melodic Death/Thrash Metal; MetalcoreПродолжительность: 05:50:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2098A30025A295504E35B673077EC1A650370101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705130   (63706) от 07.03.2024
 
 ВИА «Ариэль» - Ариэль (1975) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
@@ -571,180 +745,6 @@ A4 Ticket To The Moon 4:07(   Читать дальше...   )Жанр: Synth-po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B95B1511F533879E0DBEC3D5D6A86035D3C1E8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708364   (62343) от 20.03.2024
-
-Samson - Survivors (1979) Reissue, 1983, Thunderbolt [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62343.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 It's Not As Easy As It Seems
-A2 I Wish I Was The Saddle Of A Schoolgirl's Bike
-A3 Big Brother
-A4 Tomorrow Or Yesterday(   Читать дальше...   )Жанр: NWOBHM, Heavy Metal, Hard RockПродолжительность: 00:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2404DBFEB2E64487085BF680B21AD48C86134655
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708351   (62339) от 20.03.2024
-
-Валерий Леонтьев - Дискоклуб-16 (Б). Поет Валерий Леонтьев (1986) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62339.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01 - Горькие яблоки (Д. Тухманов — А. Поперечный)
-02 - Конь мой, конь (И. Николаев — И. Шаферан)
-03 - Кабаре, из к/ф «Испанский вариант» (Р. Паулс — Н. Денисов)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7562574396C2176BABC70BA70746B23C355BA3CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572453   (62268) от 21.03.2024
-
-Korn (Jonathan Davis) - Studio Albums (16 releases) (1994-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Korn (стилизуется как KoЯn) — американская метал-группа, основанная в городе Бейкерсфилд (Калифорния) в 1993 году. Группа примечательна тем, что стала пионером жанра Nu-Metal и вывела его в мейнстрим.1994 - Korn
-1996 - Life Is Peachy
-1998 - Follow The Leader
-1999 - IssuesЖанр: Nu MetalПродолжительность: 15:17:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975522801195F2D11115D9F03DE89BC096B0B21D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708540   (62237) от 21.03.2024
-
-Доктор Шлягер - То, что доктор прописал... (Песни Вячеслава Добрынина) (1990) [FLAC 24/96|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - То, что доктор прописал. (М.Рябинин)
-02 - Когда-нибудь. (С.Осиашвили)
-03 - Что скажешь - так и будет. (М.Рябинин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578F606D274EBC3C8A68FE28723E6589E60F8D63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708562   (62226) от 21.03.2024
-
-Здравствуй, песня - Мы любим диско (1980) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Венера (Ван Леевен - М. Вереш)
-02-03. Огонь. Мы любим диско (А.Бедду, Л. Вандербильд)
-04. Ленивый ковбой (автор неизвестен)
-05. Я жду тебя (А. Челентано)(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478A9071F84424DE6D33C5EBC3CF97A89F959DDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708539   (62215) от 21.03.2024
-
-Yello - Baby (1991) 1992 [FLAC 24/192|Lossless|tracks] <Synth-Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A.
-01 - Homage To The Mountain.
-02 - Rubberbandman.
-03 - Jungle Bill.(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 00:39:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED6FE613E3F711AC15D1E03EE2F017462ABF5828
 ```
 
 https://mybot314.ru/tekegram_catalog/

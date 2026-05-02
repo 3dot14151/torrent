@@ -1,3 +1,119 @@
+###  Публикация: 1470725   (1015509) от 18.05.2021
+
+The Party Boys - She's A Mystery: Greatest Hits (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. He's Gonna Step On You Again (4:10)
+02. She's A Mystery (3:28)
+03. Is This The Way To Say Goodbye (3:01)
+04. Gloria (3:32)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B9F5C18FA50E1920891A1DDD711775D49E27AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471345   (1015168) от 20.05.2021
+
+Liar Thief Bandit - Deadlights (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadlights 04:17
+02. Brand New Day 03:48
+03. Good Enough 03:21
+04. Catch And Release 03:44(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5238E835F8B0AD112C9507A54A1EFCE8E45477E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471347   (1015164) от 20.05.2021
+
+Tesla Shamans - Electric Storm (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1015164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Shit (03:08)
+02. Believe (03:39)
+03. Wasted (03:03)
+04. Down on the Road (04:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCD893E12D815688CCC893F9FC9CA9BBD6A0FD3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1471686   (1014911) от 21.05.2021
+
+Robin McAuley - Standing on the Edge (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thy Will Be Done
+02. Standing On The Edge
+03. Late December
+04. Do You Remember(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAE67718C3E8BDA4A43844AFFE5D19F3875F090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1471780   (1014701) от 23.05.2021
 
 V-Project - New Machine (2008) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -627,122 +743,6 @@ Slaughter - 7 Albums (1990 - 1999) 12 CD [FLAC|Lossless|image + .cue, tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9FE86D87CF91DCE9F4D9E8019E92BBFED050A69B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477593   (1010848) от 16.06.2021
-
-Ian Parry's Rock Emporium - Brute Force (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Isolation (00:05:00)
-02. Darkest Secrets (00:03:42)
-03. Til the Day I Die (00:04:50)
-04. My Confession (00:04:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1286D82D0CA054D174990400043A0E0305A356D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477776   (1010841) от 16.06.2021
-
-Mammoth WVH - Mammoth WVH (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Ed (03:44)
-02. Horribly Right (03:39)
-03. Epiphany (04:28)
-04. Don’t Back Down (03:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B263EF5A6627A1BC7F6A67F6C48E7CF2202D579E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477706   (1010840) от 16.06.2021
-
-Dobermann - Shaken To The Core (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shaken To The Core
-02. Staring At The Black Road
-03. Stiff Upper Lip
-04. Dropping Like Flies(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B24F16355CE9632B956EC4E80DE936F30A9FA62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478017   (1010525) от 18.06.2021
-
-Niva - Incremental IV (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don’t You Know
-02. Crush
-03. Better Just Forgotten
-04. Magnitude(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454B6F3B24E6F824D877AF2A04BD49D685E44F93
 ```
 
 https://mybot314.ru/tekegram_catalog/

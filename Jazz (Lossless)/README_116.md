@@ -1,3 +1,61 @@
+###  Публикация: 1137987   (665711) от 28.05.2017
+
+Francesco Cafiso New York Quartet - New York Lullaby (2006) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lullaby Of Birdland [07:58]
+02. Reflections [04:11]
+03. Polka Dots And Moonbeams [06:26]
+04. My Old Flame [09:45](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48390C35968CD84E94C026994323CFF51031BC38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138226   (665709) от 28.05.2017
+
+Aaron Parks, Ben Street, Billy Hart - Find The Way (2017) ECM [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrift [05:47]
+02. Song for Sashou [06:23]
+03. Unravel [04:44]
+04. Hold Music [04:20](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4822DB7F8C5844AA8BE0F66A0AC771045FC83EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 901073   (665604) от 24.05.2015
 
 Dee Alexander - Songs My Mother Loves (2014) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
@@ -690,64 +748,6 @@ The John Klemmer Quartets - Involvement (2003) Verve [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76E3E0C60E60742D4CEBC222C20C193E6DDEC9EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139247   (661408) от 01.06.2017
-
-Herb Steward / Marky Markowitz - The Three Horns of Herb Steward & Marky's Vibes (1971, 1981) 2002, Progressive Records [FLAC|Lossless|tracks + .cue] <Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take The 'A' Train [06:31]
-02. Serenata [04:21]
-03. The Song Is For You [04:20]
-04. Madeleine [05:10](   Читать дальше...   )Жанр: Bop, Post-BopПродолжительность: 01:14:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA03500BB9F5C40B4F9A2320CB37D4EDEAB8EE46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139083   (661404) от 01.06.2017
-
-The Chet Baker Quintet - Cools Out (1956) 1991 [WavPack|Lossless|image + .cue] <Cool Jazz, Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_661404.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Route (5:06)
-2. Lucius Lou (5:39)
-3. Pawnee Junction (4:05)
-4. Extra Mild (5:21)(   Читать дальше...   )Жанр: Cool Jazz, Bop, Hard BopПродолжительность: 00:29:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D49CC62266A439E912FB2B7E57195897C9B2AFA
 ```
 
 https://mybot314.ru/tekegram_catalog/

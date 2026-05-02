@@ -1,3 +1,119 @@
+###  Публикация: 1592979   (181867) от 25.11.2022
+
+Erich Lindenthaler - 4u Some Blues Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hotspot
+02. Burning Light
+03. Fire Burning
+04. Angel Child(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9AA3C2C6058177320C15171A41AD4E9FAE1CCEFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592716   (181854) от 25.11.2022
+
+Ruthie Foster - Healing Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul Searching (3:58)
+02. Lie Your Way to the Truth (4:14)
+03. What Kind of Fool (4:15)
+04. I Was Called (4:19)(   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45FD970AC7E4902ED5BDB5FE5BB3DD44CA1D054D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592720   (181800) от 25.11.2022
+
+Sunny Bleau & The Moons - Breakfast Served Cold (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181800.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let It Slide (3:40)
+02. He's My Peach (Alt. Mix Version) (3:09)
+03. On Your Way to Me (3:32)
+04. Holy Water and Hell Fire (Alt. Mix Version) (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3D3B0D33E0557673B30FD29E0C2A44AC535751D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427835   (181548) от 30.11.2020
+
+Shawn Pittman & Jay Moeller - Straight Blues from Crooked Fools (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rattlesnakes (2:04)
+02. Everybody Wants To Know (4:02)
+03. Smarten Up Baby (3:29)
+04. The Set Up (3:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E736AFD5F441DDBEA690683761DB68E9185F48F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427841   (181521) от 30.11.2020
 
 The Dirty Knobs - Wreckless Abandon (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Bri Bradley - Covers at The Roost (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4EFF0D88C1973048E3443E1E2B69DE2CA4E27C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594562   (178202) от 01.12.2022
-
-D. K. - Above The Clouds (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whiskey And The Blues (3:49)
-02. Housekeeping Blues (4:06)
-03. Stay A Little While (3:58)
-04. When I Die (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE57EB9838B9A1713304A6F74140629E7910F2FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594494   (178163) от 01.12.2022
-
-Karma Jack - Lights Out Ep. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm On Fire (3:56)
-02. Fallen Man (3:41)
-03. Lights Out (4:13)
-04. Days of Old (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:679F38B8D5308A3C297689C440FA9087BC5D8731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594510   (178161) от 01.12.2022
-
-Nidaros Blueskompani - Live in Nidaros studio (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's allright, it's all good. (Live) (3:11)
-02. Stick with me baby. (Live) (4:25)
-03. Cool rockin' grandpa. (Live) (4:20)
-04. Tuff little cookie. (Live) (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D6571544986F61591845E6D74C24219F8E56A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594482   (178159) от 01.12.2022
-
-Sara Bae - Deep South (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep South (3:16)
-02. King of love (3:21)
-03. Moon and sun (3:21)
-04. Mama bear (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F1B16011F1E3D8944763D22AE11D52725D4EA3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

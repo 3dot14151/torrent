@@ -1,3 +1,29 @@
+###  Публикация: 1038075   (610029) от 26.07.2016
+
+Шаблоны - CreativeMarket - Mobile App Flyer 02 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610029.jpg" />
+</div>
+
+
+###  Подробнее
+
+2 флаера с полным редактированием и обрезом для печати.Формат: PSDРазрешение файлов: 2539х3567\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8562BBC0E22B8DD05186286D668E68CA96390FE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1038031   (610024) от 26.07.2016
 
 Шаблоны - CreativeMarket - Macbook, iPhone, iPad - Mockups V02 [PSD]
@@ -648,32 +674,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB1A65A406435BC8D5E42AB267D14BF3D0186CEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045389   (559111) от 23.08.2016
-
-Шаблоны - Fassion Passion V5 PSD Flyer Template + Facebook Cover [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559111.jpg" />
-</div>
-
-
-###  Подробнее
-
-Флаер и Facebook Cover для Вашего творчества. Многие оценят их по достоинству.Формат: PSDРазрешение файлов: 1275x1875 / 3546х1313 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F26C54CFBD72961C35CC1C8D8A7E589A96B7B36F
 ```
 
 https://mybot314.ru/tekegram_catalog/

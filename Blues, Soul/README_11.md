@@ -1,3 +1,32 @@
+###  Публикация: 1397735   (739363) от 22.07.2020
+
+Spencer MacKenzie - Cold November (2018) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_739363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fine Place To Start (04:15)
+ 02. Move On Down The Track (04:44)
+ 03. Shut The Door (Baby Don't Look Back) (04:01)
+ 04. Cold November (04:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE6BF963257F8F13DDD2254F30608FCAC5C6F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528953   (733529) от 04.02.2022
 
 Robertas Semeniukas Aleksandr Belkin - Amber Blues (2021) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -716,35 +745,6 @@ Allison August - Holy Water (2016) [MP3|320 кб/с] <West Coast Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDFBE7DB8CF953534F8A53CE38D3C6F267B873B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220341   (706093) от 18.04.2018
-
-The Blues Mystery - Soul Memories (2018) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 25 degress below zero (03:47)
-02. Sit down (04:14)
-03. Has humankind lost its soul (04:27)
-04. I'm afraid of the next blues (03:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13AB3E761339FD714468EBF06972F49BADD8487F
 ```
 
 https://mybot314.ru/tekegram_catalog/

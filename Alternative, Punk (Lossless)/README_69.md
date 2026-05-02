@@ -1,3 +1,61 @@
+###  Публикация: 1762135   (102973) от 24.11.2024
+
+Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Brazil, 9362498095, AA0003000 Pressing [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Step Closer (4:07)
+02. From The Inside (3:25)
+03. No More Sorrow (5:06)
+04. Given Up (3:16)(   Читать дальше...   )Тип издания: DigipakЖанр: Alternative / Nu-MetalПродолжительность: 01:17:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5251FF51EB6DAA51C6D98D6971A509EF3A7598AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762083   (102963) от 24.11.2024
+
+Deep As Ocean - Dance With Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dance With Death [00:00:57]
+02. Dark Place [00:03:16]
+03. Minefield [00:03:45]
+04. Lunar [00:00:52](   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D103F184BAF2982B00D91581F8F93BC7C518ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762339   (102961) от 24.11.2024
 
 Lost in Hollywood - The Beauty of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt Metal>
@@ -706,64 +764,6 @@ The Weepies - Hideaway (2008) [FLAC|Lossless|tracks + .cue] <Acoustic, Indie Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3172792EC8CA60EE382C321D56BE36F3C6FED7DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794023   (67284) от 28.04.2025
-
-Goose - Shenanigans Nite Club (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 So Ready(04:35)
-02 (setellite)(04:37)
-03 Madhuvan(10:16)
-04 SOS(03:41)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 01:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:664EFE910D9814976A9FC7CE49FC040FDB17DD01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796177   (67003) от 08.05.2025
-
-Area - Crac! (1975) Japanese Edition, Reissue, 2007, Strange Days Records [FLAC|Lossless|image + .cue] <Experimental, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67003.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'elefante bianco
-02. La mela di Odessa
-03. Megalopoli
-04. Nervi scoperti(   Читать дальше...   )Жанр: Experimental, Prog RockПродолжительность: 00:37:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DCDBA6ABDC37548610F5B5BD0285DEB01723BB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

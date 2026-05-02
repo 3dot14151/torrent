@@ -1,3 +1,61 @@
+###  Публикация: 1201791   (791059) от 27.01.2018
+
+Miles Davis & Stan Getz - Move (1950 - 1952) 2003, Dynamic Entertainment [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Conception [04:09]
+02. Ray's Idea [05:56]
+03. That Old Black Magic [02:18]
+04. Max Is Making Wax [04:02](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:15:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E572B1A61BA1DDE3E28BD5B2A15D395943485F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201990   (791056) от 27.01.2018
+
+Ben Webster - Three Classic Albums Plus (1954, 1957, 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791056.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tangerine [05:24]
+02. La Rosita [05:06]
+03. Cocktails For Two [02:44](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 02:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A563A1BB6AD7ECABE65EFEC9BA552AAD72CBEBBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1201995   (790973) от 27.01.2018
 
 Maynard Ferguson - Primal Scream (1976) 2004, Wounded Bird [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Big Band>
@@ -687,64 +745,6 @@ Nat Adderley - "That's Nat" Adderley (1955) 1991, Savoy Jazz [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:159A3D64DEE7324D4FDB3C7405CCB23A9F58A912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275521   (789918) от 12.01.2019
-
-Alex Skolnick Trio - Conundrum (2018) [FLAC|Lossless|tracks + .cue] <Fusion, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbound
-02. Django Tango
-03. Conundrum
-04. Gymnopedie No.1(   Читать дальше...   )Жанр: Fusion, JazzПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:844FA36D0A1A1457F8A12EDED066F1D787D7CA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275491   (789916) от 12.01.2019
-
-Denny Jiosa - Mueve Tu Cuerpo (2018) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fumarlo Bebe
-02. Mueve Tu Cuerpo
-03. Missing You
-04. Dance In Heaven(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF818EA76F2BFE374B074BA406424327E491F8B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1520825   (139510) от 30.12.2021
+
+Johnny Letman Quartet & Quintet - The Four Faces Of Johnny (1959 - 1960) 2020, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mabel's Dream [4:32]
+02. Tina [4:22]
+03. This Time the Drinks' on Me [2:27]
+04. The Room Upstairs [3:39](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9171AD9A664BC8188B17376867FB017AF7982F77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970735   (139486) от 31.12.2015
+
+Joe Henderson - Lush Life: The Music Of Billy Strayhorn (1992) 2004, Verve Records[FLAC|tracks+.cue] <Post-Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Isfahan [05:59]
+ 02.Johny Come Lately [06:30]
+ 03.Blood Count [07:20]
+ 04.Rain Check [05:50](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184CC5D57E6AD5C9D790600562C57DC714DDBFF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970586   (139452) от 31.12.2015
 
 Herbie Hancock - Dedication (1974) Remaster, 2014, Sony Music[FLAC|tracks+.cue] <Jazz Fusion, Post-Bop>
@@ -687,64 +745,6 @@ David Wilson - Easy to Love: The Music of Cole Porter (2001) Swallowtail Records
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3798AF354D56AA7617DFCD68432B2AC66DBA5370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679412   (137917) от 25.11.2023
-
-The Puppini Sisters - Christmas At Home (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction
-02. Here Comes Santa Claus
-03. Mr Santa
-04. Last Christmas(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:33:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75E0BB2D64DD2F0E53073F97E8C75F7817159162
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273243   (137908) от 31.12.2018
-
-Jack Jezzro - Christmas Jazz Guitar (2018) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Christmas>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Be Home for Christmas [4:10]
-02. Happy Holiday [4:52]
-03. The Holly and the Ivy [3:01]
-04. Up on the Housetop [2:36](   Читать дальше...   )Жанр: Smooth Jazz, ChristmasПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7ADD360BE40F75F5A9D6C1240D0406BBAB6A34F
 ```
 
 https://mybot314.ru/tekegram_catalog/

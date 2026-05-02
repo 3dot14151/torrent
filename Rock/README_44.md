@@ -1,3 +1,32 @@
+###  Публикация: 922171   (571876) от 27.07.2015
+
+Gun Club - Les Genies Du Rock - Death Party (1993) [MP3|320 кб/с]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rail road bill (1:50)
+02.  Sex beat (2:12)
+03.  She's Like Heroin To Me (3:08)
+04.  Devil in the woods (2:55)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:55:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B8466BC7B414DC1C67516A94D42063E92060691
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922128   (571866) от 27.07.2015
 
 Flamin' Groovies - Les Genies du Rock - Shake Some Action (1993) [MP3|320 кб/с]<Rock & Roll, Psychedelic Rock>
@@ -718,35 +747,6 @@ Rachael Yamagata - Happenstance (2004) [MP3|320 кб/с]<Soft Rock, Pop Rock, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71F1D2D05149C926832EC0193CA18BE0DA977591
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045324   (559686) от 23.08.2016
-
-Detroit With Mitch Ryder - Detroit (1971) Reissue, 1987, MCA Records [MP3|320 Kbps] <Blues Rock, Rock 'n' Roll, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559686.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Long Neck Goose
-2. Is It You (Or Is It Me)
-3. Box Of Old Roses
-4. It Ain't Easy(   Читать дальше...   )Жанр: Blues Rock, Rock 'n' Roll, Hard RockПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58DE0901748B6F898CB55B7CF162E0F95F227A0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

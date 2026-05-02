@@ -1,3 +1,206 @@
+###  Публикация: 205091   (757704) от 28.05.2010
+
+Русская дружина - Русские народные песни (2003) [MP3|320 kbps]<Folklore>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ой, ты, Россия-матушка
+02. Гуляю я, гуляю
+03. Зародилась красна ягодка
+04. Ах ты, Дуня(   Читать дальше...   )Жанр: FolkloreПродолжительность: 01:04:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1017687   (757563) от 19.05.2016
+
+Jon Brion - Паранорман, или Как приручить зомби / ParaNorman (2012) [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zombie Attacks in the Eighties
+02. Norman at the Piano / Main Title
+03. Norman's Walk
+04. Alvin Attacks(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB4333D78484C30477DF82DFFCB8E0EAF02E24BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522785   (756765) от 08.01.2022
+
+OVA - Дискография (2011-2012) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Ambient>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Доброе утро (1:32)
+02. Ты где-то рядом (2:47)
+03. Встреча (3:27)
+04. Весна в твоих глазах (3:21)(   Читать дальше...   )Жанр: Instrumental, Piano, AmbientПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3EE7951814A72E216DA8B5494C43849A986FC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922038   (756436) от 05.02.2019
+
+Юлия Славянская - шесть альбомов (2002-2016) [MP3|320 кб/с]<Православная духовная музыка> [Обновлено 04.02.2019]
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. За окном вагона (02:56)
+02. Стихи на снегу (03:19)
+03. За Россию! (03:58)
+04. Помолись за меня (03:35)(   Читать дальше...   )Жанр: Православная духовная музыкаПродолжительность: 04:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D495584F85B81270E1BE7042F8B543763A39FB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215791   (756349) от 27.03.2018
+
+Gregorianika - Ora et Labora (2009) [FLAC|Lossless|tracks + .cue] <New Age, Gregorian Chant>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	In Spiritu Sancti	2:58
+02.	Ave Verum	2:43
+03.	Believe In You	4:31
+04.	Ave Maria	2:17(   Читать дальше...   )Жанр: New Age, Gregorian ChantПродолжительность: 00:41:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88D5B965958397DD27E51779AE0CD1F77CF9D6E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018055   (755820) от 20.05.2016
+
+VA - In Too Deep (Original Motion Picture Soundtrack) (1999) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Funk, Soul>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NAS & Nature - In Too Deep (3:42)
+02. Method Man & Redman - Tear If Off (4:13)
+03. Ali Vegas - The Specialist (3:32)
+04. R Kelly - Use To Me Spending (5:03)(   Читать дальше...   )Жанр: Hip-Hop, Funk, Gangsta, Neo Soul, R'n'B, Soundtrack, Thug RapПродолжительность: 01:01:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B310BA4518177D3D41C10B76D71E69EDAF0220AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018615   (755677) от 20.05.2016
+
+Douglas Blue Feather - Rhythms of the Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Ride [5:49]
+ 02. Eagle And Condor [4:52]
+ 03. Cool Breeze [6:59]
+ 04. Rhythms Of The Night [3:51](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17F99F30187B963CDAD21875A97395E5F88BB877
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1017963   (755591) от 20.05.2016
 
 VA - OST - The Angry Birds Movie (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <Pop, Rock>
@@ -542,209 +745,6 @@ Ernesto Cortazar - Concertos Vol. I (2012) [FLAC|Lossless|WEB-DL|tracks] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED7ECC697C43058CAA94B02BD778348B7F50A7CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281347   (749916) от 09.02.2019
-
-Audiomachine - Exogenesis (2019) [MP3|320 Kbps] <Soundtrack, Trailer music, Classical Crossover>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749916.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:24] 1 - Formation
-[2:38] 2 - Infected
-[2:49] 3 - Octane Test
-[2:19] 4 - The Wheel of Fire(   Читать дальше...   )Жанр: Soundtrack, Trailer music, Classical CrossoverПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6ED2BF7CEC719E101810F9828730A2CC38D6C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216592   (749422) от 31.03.2018
-
-Singular Mind - Find Myself (2017) [MP3|320 Kbps] <Ambient, Chill Out, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never change 2:30
-02. Wander 5:20
-03. Skyfall 4:48
-04. Inside 4:15(   Читать дальше...   )Жанр: Ambient, Chill Out, DowntempoПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F66078CB839089A74D7E10BB896E69734E34030F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216784   (747839) от 01.04.2018
-
-VA - Impressions from Da Vinchi (2006) 3CD [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_747839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Massini - Enae Volare Mezzo (4:24)
-02. Mary McDowell - Only Be One (3:53)
-03. Emerald Singers - Song of Tears (4:01)
-04. Tranceparence - Return to Innocence (4:01)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 03:25:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72F540F085FD2DDACFA72775C4469DA33AF3B6A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020083   (746900) от 25.05.2016
-
-2002 - Land of forever (1998) [FLAC|Lossless|tracks + .cue] <New Age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Summer of 300 years.
-02 - Sea of dreams.
-03 - Land of forever.
-04 - Realms of splendor.(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A84AECD921B38EDB6B75FAB841E5D11060D4996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020033   (746814) от 25.05.2016
-
-Morgan Frazier - The Best (2015) [MP3|~245 кб/с (V0)] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part Of My Show (4:01)
-02. Hallelujah Instead (3:16)
-03. Way That He Loves Me (3:07)
-04. One Of Those Nights (2:21)(   Читать дальше...   )Жанр: Modern CountryПродолжительность: 00:32:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A9755822D028E2B94888D36CAC1E7863F0FF54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216953   (746006) от 02.04.2018
-
-VA - Playing For Change - PFC 2 - Songs Around the World (2011) [MP3|320 Kbps] <Blues-Rock, Reggae, World Music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Little Birds
-02. Gimme Shelter
-03. La Tierra del Olvido
-04. Satchita(   Читать дальше...   )Жанр: Blues-Rock, Reggae, World MusicПродолжительность: 00:43:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E47E5F85C3BAE2D5362B2AD90EB7C05A8F8082A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217096   (744865) от 03.04.2018
-
-Doug Blair - The End of Chaos (2018) [MP3|320 Kbps] <New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karmic Harmonic (3:09)
-02. Coming Home (3:29)
-03. Ambient Neon (3:39)
-04. Cool Waters (3:37)(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEE661458007C569EDD56E0C4BB87B0E9C48ACF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

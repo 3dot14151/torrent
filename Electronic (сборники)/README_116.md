@@ -1,3 +1,61 @@
+###  Публикация: 1151337   (574179) от 18.07.2017
+
+VA - Vocal Trance Collection Vol.3 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ej - One More Night (Extended Mix)
+02. Radion6 & Katty Heath - Beautiful Nothing (Radio Edit)
+03. Mark Sherry & Dark Fusion Feat. Jan Johnston - Deja Vu (James Dymond Extended Remix)
+04. Mike Shiver & Shannon Hurley - A Little Rain (Allen & Envy Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 10:25:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:010EFBCB0A5042E9BB048BA064D099F739BB9FCE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 908663   (574145) от 20.05.2019
+
+VA - Chillout - 100 Original Hits (2015) [MP3|320 кб/с]<Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574145.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Brian Eno - Under Stars [04:21]
+002. London Philharmonic Orchestra, Karl Jenkins, Adiemus - Adiemus [04:01]
+003. Michael Nyman - The Heart Asks Pleasure First The Promise (Edit) [03:13]
+004. Roxy Music - Avalon [04:15](   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 07:44:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:692A95422CD84573A700548F8820AB6CEA5B139B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1043168   (573869) от 15.08.2016
 
 VA - Club Dance Ambience Vol.82 (2016) [MP3|320 Kbps] <House, Progressive, Dance, Club>
@@ -688,64 +746,6 @@ VA - Beatport Trance Pack (17.08.) (2016) [MP3|320 Kbps] <Trance, Progressive, M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F76C51978890880F88DA33D04906AF370528419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043934   (569093) от 18.08.2016
-
-VA - Goa Genetics (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Double Collision  -  Steak & Potatoes (Original Mix)  9:15
-02. Psymon  -  Keep The Frequency (Original Mix)  7:00
-03. Audio-X  -  Glicerine (Original Mix)  8:05
-04. Deep Cleave  -  Lantern (Original Mix)  6:27(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 06:10:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BCE20F57D4A0D21C2494D37935DFA6C0BEC54CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922319   (568360) от 29.07.2015
-
-VA - Lounge Party Collection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Feeling Free
-02. Cane Garden Quartet - Close To You
-03. Suntheca Productions - Blue Horizon
-04. Arrojas - Textpectations(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0FB40262183E666529391FAB283B76FB9D378EA
 ```
 
 https://mybot314.ru/tekegram_catalog/

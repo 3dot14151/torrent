@@ -1,3 +1,32 @@
+###  Публикация: 1578913   (341079) от 25.09.2022
+
+Galaxy Hunter - We Came From Space (2008) [OGG Vorbis|484 Kbps] <Electronic, Italo-Disco, Ambient>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_341079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (Tribute To Challenger)	1:57
+02. We Came From Space	5:15
+03. Children Of Planet Earth	5:32
+04. Another World	5:33(   Читать дальше...   )Жанр: Electronic, Italo-Disco, AmbientПродолжительность: 01:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DCC540160D5CA7745096DF5293BB69A5FDBF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1330710   (338969) от 11.10.2019
 
 Oblivion - Light of a Distant Star (2015) [MP3|320 Kbps] <Synthpop, Spacesynth>
@@ -714,35 +743,6 @@ Nova - 2 Albums (1982, 1983) LP [MP3|320 Kbps] <Electronic, Synth-pop, Space>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB25C962BB721C2E96F37B17CF328A0B91086024
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266709   (269175) от 03.12.2018
-
-Mi-Sex - 5 Studio Albums (1979-2016) Collection [MP3|320 Kbps] <New Wave, Pop Rock, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ново-зеландская группа новой волны, возглавляемая Стивом Гилпиноном (вокал). Так же в состав вошли Кевин Стэнтон как гитарист и автор песен и Дон Мартин как басист. Популярность получили у себя на родине и в Австралии благодаря таким хитам как "Computer Games", "People". Их первые два альбома достигли в Новой Зеландии топ-10: "Graffiti Crimes" (   Читать дальше...   )Список альбомов:
-1979 - Graffiti Crimes
-1980 - Space Race
-1981 - Shanghaied(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-popПродолжительность: 03:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BC9D3BD6740E99A7E05526CF7BD9C1003419B8E
 ```
 
 https://mybot314.ru/tekegram_catalog/

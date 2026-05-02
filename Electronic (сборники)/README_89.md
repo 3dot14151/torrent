@@ -1,3 +1,61 @@
+###  Публикация: 1222439   (685052) от 29.04.2018
+
+VA - Nassau Beach Club Ibiza 2018 (2018) [MP3|320 Kbps] <Electronic, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blackloud - Insider (Original Mix)
+02. Neja - The Role of Love (Sounds of Soul Retouch)
+03. Sandy Rivera feat. DaNii - You Work Hard for Your Enemy (Extended Mix)
+04. Sue Avenue feat. Marta Del Grandi - Try (Original Mix)(   Читать дальше...   )Жанр: Electronic, Dance, HouseПродолжительность: 05:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17CDE33DF53ECA2A7C117C2B7B90E7D1188B0BF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134917   (684853) от 17.05.2017
+
+VA - Deep House Collection Vol.121 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684853.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A. Rassevich - Give It To Me (Original Mix) 5:34
+002. Acidbro & Sasha 4Time - Diplow (Original Mix) 7:26
+003. Alateya, Lisitsyn, MBNN - Call Me Now (Namatria Remix) 5:08
+004. Aldo Bergamasco feat. Tommie Cotton - In My House  (Instrumental Mix) 6:24(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:19:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2B507976396D6D092CCBD94AF642E8FA101B673
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1029058   (684756) от 25.06.2016
 
 VA - Global Club Anthems Vol.5 (2016) [MP3|320 кб/с] <House, Electro House, Club>
@@ -699,64 +757,6 @@ VA - Future Trance Energy 001 June TOP (2016) [MP3|320 кб/с] <Trance, Uplifti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:908BAA79F99E55232DF83ACA3F3087300918DB47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029521   (680353) от 27.06.2016
-
-VA - The Best of Trance 47 (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen & Envy -  Ulysses (Original Mix) 7:53
-02. VEIZO -  Devotion (Original Mix) 8:11
-03. Valerio Reali -  Southpaw (Original Mix) 6:56
-04. John Sander -  Filling Hearts (Original Mix) 7:09(   Читать дальше...   )Жанр: TranceПродолжительность: 03:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67C70F589A2F6D05B58CF3B9C2B375F6FD2C11A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1029556   (680352) от 27.06.2016
-
-VA - Trance Hot June Paradise (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ReOrder -  Sky Harbour (Allen Watts Extended Mix) 6:59
-02. Brian Magix Ft Jess Morgan -  things that shine (original mix) 6:15
-03. Giuseppe Ottaviani & Orkidea -  North Star (Extended Mix) 6:43
-04. Yuri Kane & Ana Criado -  Running Wild (Liam Wilson Remix) 6:33(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 03:31:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8339ABF974C2BAF03E6BAC56F984A2CC0C717047
 ```
 
 https://mybot314.ru/tekegram_catalog/

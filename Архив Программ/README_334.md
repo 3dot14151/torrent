@@ -1,3 +1,29 @@
+###  Публикация: 1372793   (883394) от 04.04.2020
+
+SamDrivers 20.3 LAN [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883394.jpg" />
+</div>
+
+
+###  Подробнее
+
+Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.20 / Drivers Installer Assistant 8.02.20 / Snappy Driver Installer 1.20.0 (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21137835FE0F091AD9BAFEF84B80C92692A35AAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372776   (883392) от 04.04.2020
 
 inPixio Photo Editor 10.1.7389 RePack (& Portable) by TryRooM [Ru/En]
@@ -655,32 +681,6 @@ ThunderSoft Video to GIF Converter - удобный инструмент для 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8473F35A1DA051C8E3D257931D4F1BE60F647908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995786   (882310) от 12.03.2016
-
-Total HTML Converter 4.1.92 RePack by Manshet [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882310.jpg" />
-</div>
-
-
-###  Подробнее
-
-CoolUtils Total HTML Converter — это функциональная программа для преобразования HTML файлов в PDF, DOC, XLS, JPEG, TIFF, RTF и TXT (как тестовых так и юникодных). Total HTML Converter может конвертировать сложные HTML документы или папки за один раз.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:679279DFC54AF0CC05C8DF8B9EC49F20653852F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

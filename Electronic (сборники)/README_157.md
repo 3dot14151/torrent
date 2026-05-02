@@ -1,3 +1,67 @@
+###  Публикация: 574258   (376228) от 12.11.2012
+
+VA - Dub-Pack - Week 11 (2012) [MP3|320 кб/с]<Dub-Step>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 16bit – Ford Fiesta
+2. Addictive – Domino Effect (Shy Pony Remix)
+3. Afrojack feat. Eva Simons – Take Over Control (Adam F Remix)
+4. Allie Moss – Corner (Titch Remix)
+5. Antiserum – Skullfucked
+6. Avril Lavigne – When You're Gone (Alex Mind Remix)
+7. Bassnectar – Boombox (Datsik Remix)
+8. Bassnectar – Here We Go
+9. Clubroot – Cherubs Cry
+10. Crim – Distorbia(   Читать дальше...   )Жанр: Dub-StepПродолжительность: 01:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43C50B18A95AA9F4B9429D302A311AC0A71618C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175715   (376129) от 19.10.2017
+
+VA - Beatport Top 100 Progressive House August (2017) [MP3|192-320 Kbps] <Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cristoph - Feel feat Jem Cooke (Original Mix)
+02. Victor Ruiz - Dying Of The Light (Victor's Interstellar Remake)
+03. Supacooks - Aftermath (Original Mix)
+04. Rolo Green - Napier(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 12:55:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:903E98F434D080D65E0B6AE73B86CF5F7083A87B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069033   (375965) от 03.11.2016
 
 VA - Beatport Top 100 02.11. (2016) [MP3|320 Kbps] <House, Tech House, Dance>
@@ -693,64 +757,6 @@ Hits of My Soul - сборник электронной и инструмент�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AA8080C471A3736E450E8E75F6A14CA1ED29BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176433   (371939) от 21.10.2017
-
-VA - Record Super Chart #508 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  CamelPhat & Elderbrook - Cola (Denis First Remix)  2:30
-02.  Twoloud vs. DJ Kuba & Ne!tan - Mirror On The Wall  2:30
-03.  EKTONIX - Vuono Matyn  2:30
-04.  Mari Ferrari feat. Miss Mary - Maria Maria  3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6085F1522D0E3A368B6810735461CDA36CD46C89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176167   (371919) от 21.10.2017
-
-VA - Miss Caramelle: Classic Vocal House (2017) [MP3|320 Kbps] <Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371919.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Solid Stone & Michael Gin - Xonic
-002. Disco Fries - Moving On (Original Mix)
-003. One Second For Chill - We See the Light
-004. Forerunners - Watercolour(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FFC8F1F01746D1409167D280E982D5C34A9C62
 ```
 
 https://mybot314.ru/tekegram_catalog/

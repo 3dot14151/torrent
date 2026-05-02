@@ -1,3 +1,61 @@
+###  Публикация: 1338438   (269897) от 15.11.2019
+
+Wallace Roney - Munchin' (1995) Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Solar [8:58]
+02. Ah-Leu-Cha [6:13]
+03. Bemsha Swing [7:40]
+04. Lost [6:11](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2E1A536E5F22A804515F4F70314F942F2224C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338430   (269812) от 15.11.2019
+
+De-Phazz & STUBAphilharmonie - De Capo (2019) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sabbatical (De Capo Edit)
+02. Roses (De Capo Edit)
+03. The Mambo Craze (De Capo Edit)
+04. Death by Chocolate (De Capo Edit)(   Читать дальше...   )Жанр: Nu JazzПродолжительность: 00:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514FC5516985951689C351CB12F906336B4236F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338509   (269766) от 15.11.2019
 
 VA - Simply Jazz After Dark (2014) Box Set, 4CD [FLAC|Lossless|tracks + .cue] <Jazz, Cool-Jazz>
@@ -687,64 +745,6 @@ Sinne Eeg - Dreams (2017) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2D32207395C68B15AFF907626F57E0B12FBAA33E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339166   (266998) от 18.11.2019
-
-Dexter Gordon - Those Were The Days 1967 - 1971 (2014) Boundee [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soy Califa [7:27]
-02. The Rainbow People [8:29]
-03. Those Were The Days [9:47]
-04. Fried Bananas [10:25]Жанр: Hard Bop, Post-BopПродолжительность: 00:36:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23B3B0214E26BC620A0B61D3E68EDCC41BFBFC73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267427   (266737) от 06.12.2018
-
-Bunny Berigan - 1937 - 1938 (1994) Classics [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trees [3:22]
-02. Russian Lullaby [3:07]
-03. Can't Help Lovin' Dat Man [2:38]
-04. Piano Tuner Man [3:34](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58BC09CF3F3E4BCF8B5D78C23533F58465F104F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

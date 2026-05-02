@@ -1,3 +1,261 @@
+###  Публикация: 516691   (652272) от 29.06.2012
+
+Bobina - Russia Goes Clubbing 199 (Erick Strong Guestmix) (2012-06-27) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Bobina - Russia Goes Clubbing Intro	(00:36)
+02.	Justin Prime - R!se	(06:06)
+03.	Beat Service - Fortuna	(05:36)
+04.	Ashley Wallbridge feat. Audrey Gallagher - Bang the Drum (Omnia remix)	(05:56)
+05.	Sunny Lax - Spring	(05:26)
+06.	Ledo - Between the Clouds (7 Baltic remix)	(03:51)
+07.	Koko B. feat. Ally Irwin - In Search For (Sou Kanai remix)	(07:34)
+08.	Daniel Kandi & Ferry Tayle - Flying Blue	(05:11)
+09.	Binary Finary & Genix - Smoking Gun (Sequentia remix)	(04:43)
+10.	Dark Matters feat. Neev Kennedy - Loneliness Won't Leave Me Alone (Sebastian Brandt remix)	(06:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C409DA67EBB2E4128BF2C2E6EC21EC426EBAEB9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515469   (652270) от 29.06.2012
+
+VA - To Sexy 4 The Club! (2012) [MP3|320 кб/с]<Funky, Club House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Syntheticsax & Laura Grig - Hear The Sound
+02. Loleatta Holloway - Stand Up (feat Johnny Vicious - Peter Parker remix)
+03. Soul-Ty - Que Pasa Carino
+04. Rob Renson - Get Down
+05. Deadstar - You Touch My Love (Charlie Nathan radio mix)
+06. Miqro - You Will See (feat Ronar - Zweiklang vocal mix)
+07. Audio Assembly - Sway (feat Paul Mahos & New Life Crisis - Nick Harvey instradub)
+08. Collective Sound Members - Reach Out
+09. V I F & Lola Palmer - Wish
+10. Dario Martino - Time Will Gonna ChangeЖанр: Funky, Club HouseПродолжительность: 03:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC6388E43A96B90064D9451F0D3F453A546F2EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517026   (652267) от 29.06.2012
+
+Каникулы в Мексике - 2. Выпуск №85 (2012.06.29) (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652267.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCB1EC80DB44D9FF4A57C1C71E47D40ABF83AF42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291721   (652256) от 26.03.2019
+
+Photo Mechanic 6 6.0 (build 2725) [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Mechanic — фотобраузер и фоторедактор оперативно обрабатывающий тысячи снимков в одиночном и пакетном режимах, отбирает из них самые удачные, обрезает, добавляет информацию к фото, рейтинг, корреспондируется с цифровыми камерами, интегрируется со многими редакторами в т.ч. Adobe Photoshop, позволяет легко экспортировать данные. Программа предназначена для профессиональных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Camera Bits, Inc.Поддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C76670D914C13498600142526AD5A1AE76DCD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 344264   (652247) от 02.06.2011
+
+Pedro Del Mar - Mellomania Deluxe 489 (30-05-2011) [MP3|256 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652247.jpg" />
+</div>
+
+
+###  Подробнее
+
+PEDRO DEL MAR IN THE MIX:
+
+01. jan martin feat. hysteria! - save me now (beat service proglifting remix)Жанр: TranceПродолжительность: 02:02:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1C9FECEF24561A214912F92D6D205F5F96BCE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 345208   (652237) от 02.06.2011
+
+NHL 10/11, SC: Финал, матч №1: Boston Bruins vs Vancouver Canucks (01.06.2011) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хоккей. NHL. Кубок Стэнли, финал, 1-й матч, Boston Bruins против Vancouver Canucks.Жанр: Спорт, хоккейТелекомпания: Формат: MPEG-4Продолжительность: 01:56:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79E0D3E8E642E5E0A55C50F1AB3BE38BA45A18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 345145   (652229) от 02.06.2011
+
+Paul Kalkbrenner - Icke Wieder (2011) /PKM 002CD/ [MP3|192-320 kbps]<Tech House, Minimal Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_652229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Tech House, Minimal TechnoПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FED574381A2F0FB947F3AAF3B8B248E3D932BDB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227051   (652204) от 23.05.2018
+
+VA - Israel Rising (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk, World>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652204.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Davis & Baruch Maoz - Aaronic Benediction (Birkat Hacohenim)
+02. Jonathan Settel - Sh'ma Yisrael
+03. Barry and Batya Segal - Al Chomatayeech Yerushalayim (On Your Walls O Jerusalem)
+04. Ted Pearce - Zealous over Zion(   Читать дальше...   )Жанр: Folk, WorldПродолжительность: 00:56:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53ACAA7657336A1B5A8A0700FA8269235176ACA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226981   (652197) от 23.05.2018
+
+SMPlayer 18.5.0 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652197.jpg" />
+</div>
+
+
+###  Подробнее
+
+SMPlayer - мощный мультимедиа проигрыватель, который позволяет воспроизводить большинство известных аудио и видео форматов без потребности в дополнительных кодеках. Также умеет воспроизводить DVD диски и видео-потоки из Internet.
+Приложение представляет собой полноценную графическую оболочку для MPlayer, обеспечивающую как базовые функции MPlayer (воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:758968B663487D2848C7E3D4010D88B58463A694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227047   (652192) от 23.05.2018
 
 Find Any File 1.9.3 [Multi]
@@ -458,252 +716,6 @@ Duality - Duality (2015) [MP3|320 кб/с]<Progressive Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED278B0CCD9E7618A2B38139F9348972BB547D62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905106   (652105) от 05.06.2015
-
-Анатомия дня (04.06.2015) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652105.jpg" />
-</div>
-
-
-###  Подробнее
-
-С момента появления жанра телевизионных новостей прошло более полувека. За это время то, что мы привыкли считать новостями, изменилось до неузнаваемости. Другой объем информации, невероятное количество спикеров и иное понимание самой сути информационного повода. Ответом на эту эволюцию станет новое ежедневное шоу «Анатомия дня», сочетающее в себе практически все (   Читать дальше...   )В выпуске: Леди-бой: в Перми автолюбительницу задержали за регулярные драки с другими водителями на дороге.Мигранты по разнорядке: Евросоюз отправляет в страны Прибалтики беженцев из Африки и арабских стран. Неужели они — замена русскоязычным негражданам?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:32:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:125A6877CA5BC67291E1E5996E55099419AD0A94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905254   (652103) от 05.06.2015
-
-TesseracT - Odyssey (Live) (2015) [MP3|320 кб/с]<Progressive Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Singularity (Live In Moscow, Russia)
-02. Deception - Concealing Fate, Pt. 2 (Live In Birmingham, UK)
-03. The Impossible - Concealing Fate, Pt. 3 (Live In Nottingham, UK)
-04. Perfection/Epiphany - Concealing Fate, Pt. 4 & 5 (Live In Rome, Italy)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B48CB89F893B114782D3B0B71A1E40FE9B808077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905290   (652102) от 05.06.2015
-
-Sigh - Graveward (2015) [MP3|320 кб/с]<Avant-garde, Black Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaedit Nos Pestis
-02. Graveward
-03. The Tombfiller
-04. The Forlorn(   Читать дальше...   )Жанр: Avant-garde, Black MetalПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9CCA311320E6213D7D3DBAC619FFE3A197A3C72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905157   (652100) от 05.06.2015
-
-Cardinal - Ambivalence: A Threat to the I (2015) [MP3|320 кб/с]<Heavy / Progressive Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652100.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Anhedonia [17:26]
-2. Circadian Disruption [04:56]
-3. Obsolete (Feat. Leo Jiménez ) [05:56]
-4. What Lies Beyond [06:13]Жанр: Heavy / Progressive MetalПродолжительность: 00:34:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAC86D5D5787AFE9EA660F31441ABF3D080735B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905068   (652099) от 05.06.2015
-
-Ian Moss - Six Strings (2015) 10th Anniversay Edition [MP3|320 кб/с]<Classic Rock, Blues>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652099.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Tempted
-2 The Party’s Over
-3 All Alone On A Rock
-4 Bow River(   Читать дальше...   )Жанр: Classic Rock, BluesПродолжительность: 01:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73C8A8655699A9D3D2DF1560DD12E70729278BCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1276354   (652082) от 26.03.2019
-
-Tensei Shitara Slime Datta Ken / That Time I Got Reincarnated as a Slime / О моём перерождении в слизь [2018, TV, 25 ep] WEB-DL 1080p Rus
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Миками Сатору — 37-летний одинокий сотрудник строительной компании, не слишком довольный своей рутинной жизнью, пока однажды в оной не случается крутой поворот. Получив удар ножом в спину от грабителя, перед смертью Миками слышит странный голос, а после его разум оказывается в теле слепого слизня в другом мире, напоминающем своим устройством ролевую игру. Встретив (   Читать дальше...   )Жанр: приключения, комедия, фэнтезиРежиссер: Кикути ЯсухитоЯзык озвучки: Японский и РусскийФормат: MKVПродолжительность: 25 эпизодов по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50CA604EE6BEA367BC8657AA50A05E353523ABCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291739   (652077) от 26.03.2019
-
-SketchUp Pro 2019 19.0.685 RePack by KpoJIuK [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652077.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google SketchUP Pro - является профессиональной версией приложения, позволяющего создавать 3D-модели, демонстрировать их в качестве презентации, обмениваться ими. Программа будет полезна везде, где есть необходимость применения 3D-моделей, будь-то проектирование пристройки для дома, обучение школьников геометрии или же создание модели для Google Earth. Множество (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:086CE6BCB85F96328D48553994C9DC5E38C9C52E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 345111   (652062) от 02.06.2011
-
-VA - Sechs (Chris Tietjen DJ mix) - 2011 /CORMIX 033DIGITAL/ [MP3|320 kbps]<Tech House, Minimal Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_652062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Minimal TechnoПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB173F652C7E41E2352FDF22F34CC0EA96946F5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344924   (652056) от 02.06.2011
-
-VA - Don't Stop Energy (2011) [MP3|256 kbps]<Dance/Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_652056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance/ClubПродолжительность: 05:49:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E96B0A3DC1333D07473B0FC0E652A65A8DFA58DB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 842654   (327410) от 19.11.2014
+
+Маша и Медведи - Гусеницы (2014) EP [FLAC|image + .cue]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Правдивая   (4:16)
+02.  Аве Мария   (3:17)
+03.  Яйцо (feat. Инна Желанная)   (4:05)
+04.  Нева (cover 5'nizza)   (4:56)Жанр: RockПродолжительность: 00:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB11091553CBEF70A783A9EA4E949AD6ADBCE3E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957247   (327376) от 17.11.2015
 
 Линда - Карандаши и Спички (2015) [FLAC|tracks|WEB] <Alternative, Trip-hop>
@@ -720,35 +749,6 @@ Jhonny Box - Proxima (2022) [FLAC|Lossless|WEB-DL|tracks] <Industrial Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82693B39A8B4C5F8C2DBCBEC54BADF6AF71B3B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583038   (314319) от 13.10.2022
-
-Midnight Spirit - Emptiness Outside (2022) [FLAC|Lossless|WEB-DL|tracks] <Metal, Core, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [00:02:36]
-02. Shrouding Madness [00:03:51]
-03. Sadist [00:06:00]
-04. Emptiness Inside [00:04:23](   Читать дальше...   )Жанр: Metal, Core, RockПродолжительность: 00:51:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA1A54F295251BA4D0FF74811AD72B64AA5C8049
 ```
 
 https://mybot314.ru/tekegram_catalog/

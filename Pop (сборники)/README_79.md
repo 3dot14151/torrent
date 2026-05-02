@@ -1,3 +1,137 @@
+###  Публикация: 1243640   (490102) от 28.08.2018
+
+VA - Pop Summer Candy (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490102.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Michael Head - Something Like You
+002. Dynoro - In My Mind
+003. Laura Veirs - Margaret Sands
+004. Aris - S.O.S. (DJ Antonio Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 11:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2748BFAC916C524F4C9CCBE1FE6D75A1C1639947
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543958   (489331) от 08.09.2012
+
+VA - Радио Шторм - Русский Шторм - 71 (2012) [MP3|320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489331.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. All Davaj & Mika - Это Любовь (Radio Edit)
+2. Bahh Tee - Я Наверное (Mike Crystal Remix)
+3. Bass Ace & Dj Skazka - Твоё Лето (3:32)
+4. Dan Balan Dj Favorite - Не Любя (Alex Life S Mash Up)
+5. Danila Rastv Ft. Alexey Sender - Ядами
+6. Di Bronks I Natali - Все Пройдет (Dj Garik Vertuha Remix 2012)
+7. Erika (Erika) - Последний Раз
+8. F. Jay & Олеся - Любовь
+9. Hi-Fi - Земляничный Дождь
+10. Jandro - Не УходиЖанр: Pop, DanceПродолжительность: 02:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65899F330D4BC0D62EE4CAE892B698B582687436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543963   (489325) от 08.09.2012
+
+VA - Радио Шторм - NeРусский Шторм - 72 (2012) [MP3|128-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489325.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Adrian Sina - Hypnotised (Original Edit)
+2. Annagrace - Alive (Radio Edit)
+3. Chanee - Fallen
+4. Ciara - Livin It Up
+5. Clinton Sparks feat. Pitbull And The Disco Fries - Watch You
+6. Connect-R - Love Is The Way
+7. Deejaymas feat. Any & Catalin D - Don't Break My Heart (Extended Version)
+8. Devin - Un Amor (Ai Le Le Song) (Radio Edit)
+9. Dj Dark And Shidance Ft. Violet - Turn It Up (Radio Edit)
+10. Dyland And Lenny feat. Pitbull And Beatriz Luengo - Sin TiЖанр: Pop, DanceПродолжительность: 02:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6317D9F7822376A4C7A93991C3A886CB3BE4309
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 544665   (489227) от 08.09.2012
+
+VA - Горячая Сотка Новинок 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hi-Fi - Земляничный Дождь (Новая Версия)
+02. Maroon 5 - One More Night
+03. Galla - NY Лето (Нью-Йоркское Лето)
+04. Mc Lion - Breathing (Dance Mix)
+05. Ksenona - Далеко-Далеко
+06. Nas feat. Mary J. Blige - Reach Out
+07. Pulse - Ты Убиваешь Меня
+08. Rita Ora - Roc The Life
+09. Vetra-N - Долго Нельзя
+10. The Cataracs - Roll The Dice(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7FD5A64E91D3C879347FA2F4156B0A7587C040C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404795   (489176) от 27.08.2020
 
 VA - Rare Disco Play (2020) [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
@@ -677,122 +811,6 @@ VA - Summer Europop Music (2019) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:260C184FB793ED241BBBCD7CD91F60EEE946F2C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566891   (478495) от 31.07.2022
-
-Sofia Carson - Compilation (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love is the Name
-02. Two Tears in a Bucket
-03. Loud
-04. Stay(   Читать дальше...   )Жанр: PopПродолжительность: 00:28:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D8EE14529EEDF6A35714FCECA67937FCD224496
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566875   (478417) от 31.07.2022
-
-VA - German Top 100 Single Charts 29.07.2022 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478417.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dj Robin & Schürze - Layla (3:05)
-002. Liaze - PARADISE (3:12)
-003. Luciano - Beautiful Girl (2:59)
-004. Kontra K & Sido & Leony - Follow (2:25)(   Читать дальше...   )Жанр: PopПродолжительность: 04:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7957F5F79480AF2A3FEFFDE9F65BDF3CBD062ED8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1244737   (477736) от 03.09.2018
-
-VA - Русское Радио. Лучшее 2018 от DON Music (08.2018) [MP3|256/320 Kbps] <Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477736.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Filatov & Karas vs. В. Цой - Остаться с тобой (02:49)
-002. Зара - Негордая (03:58)
-003. Руки Вверх! - Танцы (04:04)
-004. МакSим - Здесь и сейчас (03:12)(   Читать дальше...   )Жанр: ПопПродолжительность: 06:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D94AAEBD6E77188CF17854379539DE2323CA878
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939055   (477553) от 20.09.2015
-
-VA - Top 100 Твои любимые хиты (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 30.02 - Но Tы
-02. Afrojack & Sting - Catch Tomorrow
-03. Aisha - Сильно, Сильно
-04. Alex Kafer - Всё Для Тебя(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA25D6C6A17168C55955B4C971D576F8850E792F
 ```
 
 https://mybot314.ru/tekegram_catalog/

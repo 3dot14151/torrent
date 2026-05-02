@@ -1,3 +1,32 @@
+###  Публикация: 1398035   (736641) от 24.07.2020
+
+Dirk Maassen - Avalanche (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, New Age>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eclipse (4:42)
+ 02. Helios (feat. Deutsches Filmorchester Babelsberg) (4:30)
+ 03. Nocturne (3:45)
+ 04. Gravity (4:12)(   Читать дальше...   )Жанр: Modern Classical, Piano, New AgeПродолжительность: 00:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7E7BB42AA4D3B401D712CD9A826CBF83ABA5A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 125533   (734814) от 01.02.2022
 
 Мария Каллас / Maria Callas - 100 Best Classics (2006) [FLAC|LossLess]<Вокал>
@@ -716,35 +745,6 @@ David Garrett - Caprice (2014) [FLAC|Lossless]<Classical Crossover>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A056E496E26077C1F1B7D07995DF4EBFEB0AA5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026927   (700213) от 17.06.2016
-
-Narcis - Narcis (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caruso (3:05)
-02. O Mio Rabbino Caro (2:21)
-03. The Sweetest Kiss Of All (3:13)
-04. Lascia Ch'io Pianga (3:31)(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4097508498F6D41143C2D896012330FCB5747582
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1194973   (152133) от 27.12.2017
+
+Orianthi - Violet Journey (2006) Not On Label, Australia [MP3|320 Kbps] <Pop Rock, Guitar>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lights of Manos 3:01
+02. He's Gone 3:23
+03. Violet Journey 3:12
+04. Everyday 4:49(   Читать дальше...   )Жанр: Pop Rock, GuitarПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F277EF627C49D08C61823D8FD92BD336859F78A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531530   (151489) от 22.12.2018
 
 Led Zeppelin - Led Zeppelins Swan Songs (4CD) /Сборник/ (2011) [MP3|320 Kbps] <Rock>
@@ -736,35 +765,6 @@ RSO - Rise (2017) EP, Orianthi feat. Richie Sambora [MP3|320 Kbps] <Pop Rock, Gu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:224CEF9C9A46B13FA089C3A56AA036AD3407E3C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970300   (143843) от 29.12.2015
-
-Polydeluxe - Behind The Backdoor (2015) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backdoor (04:12)
-02. Runaway (03:41)
-03. Memphis (05:05)
-04. Pack Of Lies (03:57)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB40ECBAF09FE4F58A7405BA0DB90B2962FCCFC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

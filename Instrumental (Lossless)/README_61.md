@@ -1,3 +1,119 @@
+###  Публикация: 1050485   (536589) от 09.09.2016
+
+Tasha Taylor - Honey For The Biscuit (2016) [FLAC|Lossless|tracks + .cue] <Blues, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feels So Good (3:59)
+02. Wedding Bells (4:28)
+03. Family Tree (Feat. Keb' Mo') (3:52)
+04. Weathernan (2:56)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:48:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE99721B68425F02A31A219B021FC5039CDA1E2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926148   (535473) от 09.08.2015
+
+Dan Patlansky - Dear Silence Thieves (2014) [FLAC|image+.cue]<Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backbite 03:52
+02. Pop Collar Jockey 04:23
+03. Fetch Your Spade 03:52
+04. Hold On 05:03(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:42:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19D0695919616B9C31C8D9F765D813D05EADD0EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926140   (535472) от 09.08.2015
+
+Josh Smith - Over Your Head (2015) [FLAC|image+cue]<Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Long 06:34
+02. Over Your Head (with Joe Bonamassa) 06:46
+03. When I Get Mine 04:42
+04. Still Searching 04:12(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9D9501EA293291D127FDB4446B88DD4D9C2DF6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239970   (533070) от 08.08.2018
+
+Chris Rea - The Platinum Collection (2006) [FLAC|Lossless|image + .cue] <Blues, Rock Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road To Hell (Part 2)
+02. You Can Go Your Own Way
+03. Josephine
+04. Let's Dance(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 01:02:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A80F01D0F0F938EBD8797317E7E2757B0941B39F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1558349   (531871) от 20.06.2022
 
 Dave Specter - Six String Soul 30 Years On Delmark (2021) 2xCD, Compilation [FLAC|Lossless|image + .cue] <Chicago Blues, Electric Blues, Modern Electric Blues>
@@ -629,122 +745,6 @@ Oberg - Blues As Blues Can Get (2009) [APE|Lossless|image + .cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECD3A32DBEF93BD25986E38EE37D96ADDE72E873
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053808   (524353) от 18.09.2016
-
-Neal Black & Larry Garner - Guilty Saints (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God Today   [04:24]
-02. Guilty   [04:41]
-03. A Friend Like You   [03:52]
-04. Saints Of New Orleans   [05:09](   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12C5975C3E5C64EDA2815355CF678848287E9FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053775   (524266) от 18.09.2016
-
-Rocky Athas - Let My Guitar Do The Talking... With My Friends (2014) [FLAC|Lossless|tracks + .cue] <Blues Rock, Guitar Instrumental>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Think About It   [03:38]
-02. To My Friend   [04:52]
-03. D Boogie   [04:04]
-04. On the Move   [04:25](   Читать дальше...   )Жанр: Blues Rock, Guitar InstrumentalПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7543D29FE161494F1DD2C9E479BA1B8BA500269D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559791   (522773) от 27.06.2022
-
-Digging Roots - Zhawenim (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Calls Me (3:55)
-02. Tall Grass (3:54)
-03. The Healer (3:53)
-04. SKODEN (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F24B127CDB30052061F32D213BE45FB054F7C7C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559802   (522661) от 27.06.2022
-
-G. Love & Special Sauce - Philadelphia Mississippi (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522661.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love from Philly (feat. Schoolly D & Chuck Treece) (4:43)
-02. Mississippi (feat. Alvin Youngblood Hart, R.L. Boyce & Speech) (4:01)
-03. My Ball (feat. Freddie Foxxx & Jontavious Willis) (4:19)
-04. Guitar Man (feat. Christone "Kingfish" Ingram) (3:06)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:47:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDE1AA55CA757F752771748A3B1CDC1BC1A25F00
 ```
 
 https://mybot314.ru/tekegram_catalog/

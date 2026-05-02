@@ -1,3 +1,177 @@
+###  Публикация: 1730339   (107918) от 15.06.2024
+
+Eduardo Cardinho - Not far from paradise (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Was Just a Dream (7:08)
+02. Anxiety (4:58)
+03. November 17 (5:32)
+04. Life Contemplation (6:48)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F49DF0E7C27057E18B29D1D1D22A194C54AAFF5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730371   (107915) от 15.06.2024
+
+Mariah Carey - Rainbow (1999) 25th Anniversary Expanded Edition, 2024, Columbia Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Soul, Funk, R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heartbreaker [00:04:45]
+02. Can't Take That Away (Mariah's Theme) [00:04:32]
+03. Bliss [00:05:43]
+04. How Much [00:03:30](   Читать дальше...   )Жанр: Pop, Soul, Funk, R&BПродолжительность: 02:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7F4F1348C9B37289C51DCF02CDD488F41992B2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730440   (107914) от 15.06.2024
+
+Zsela - Big For You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lily of the Nile [00:03:51]
+02. Fire Excape [00:03:18]
+03. Not Your Angel [00:02:59]
+04. Still Swing [00:03:40](   Читать дальше...   )Жанр: PopПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531553C897EA802F174A284E172301EA697E58D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730347   (107911) от 15.06.2024
+
+Golgotha - Spreading The Wings Of Hope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For Every Tear (6:04)
+02. Gilded Cage (6:00)
+03. A Solitary Soul (5:56)
+04. Hear Their Cries (5:40)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D6360294275BBAC220D922B55415A52C5400A01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730342   (107906) от 15.06.2024
+
+Equal Spirits - Wise and Waiting (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back Again (7:19)
+02. Egoli Affirmation (2:40)
+03. Skip (6:43)
+04. Dancing Under The Sun (5:26)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:16:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804EA5859531B18CA65A8F21E2D8F3561F2B521D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730430   (107904) от 15.06.2024
+
+Isobel Campbell - Bow to Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Falls Apart [00:03:10]
+02. Do or Die [00:02:34]
+03. Spider to the Fly [00:02:21]
+04. Second Guessing [00:02:07](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:43:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB6DF23C2A08E662F4ABD79FF94EF3782987436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730331   (107903) от 15.06.2024
 
 Ben Sidran - Rainmaker (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -571,180 +745,6 @@ Tarkan - Kuantum 51 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E5CFC7BDA180CB3500089D86B0A7D02FEFDF905
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730943   (107803) от 18.06.2024
-
-Sam Morton - Daffodils & Dirt (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highwood House [00:01:28]
-02. Hungerhill Road [00:04:16]
-03. Purple Yellow [00:04:23]
-04. The Little White Cloud That Cried [00:03:42](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD845E6E6E520604C45F94CF3C32C28C91702FCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730953   (107792) от 18.06.2024
-
-Shades of Thunder - Big Break (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Retrowave, Synthwave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - School's Out (00:02:55)
-02 - Airborne (00:04:00)
-03 - Shoreline (00:03:17)
-04 - Meltemi Club (00:02:44)(   Читать дальше...   )Жанр: Retrowave, SynthwaveПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B892DA971D02FEC5BFA6531226218CD078E5792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731022   (107779) от 19.06.2024
-
-Timmy Trumpet - Timmy Trumpet's SINPHONY No. 2 (2024) EP [FLAC 16/44.1; 24/44.1|Lossless|WEB-DL|tracks] <Electronic, House, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let's Get Raving [4:01]
-02 - Drunk On A Friday [2:09]
-03 - Addicted To Rave [2:49]
-04 - Snake Pit [2:19](   Читать дальше...   )Жанр: Electronic, House, DanceПродолжительность: 00:13:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D19BE792B39AD766F73906D5BC63CBE41F4EDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731231   (107772) от 20.06.2024
-
-Vintage Culture - Promised Land (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Disco, Euro Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Promised Land [00:04:13]
-02. Nothing Ever Changes [00:03:46]
-03. Hero [00:03:52]
-04. Chemicals [00:03:37](   Читать дальше...   )Жанр: Pop, Disco, Euro DiscoПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE60622CD04348101AC8EE7D69334BDF9AD5286B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731374   (107759) от 20.06.2024
-
-My Diligence - The Matter, Form and Power (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <heavy psych, posthardcore, powerfull rock, stoner rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Matter, Form and Power [00:04:32]
-02. On The Wire [00:05:32]
-03. Sail To The Red Light [00:03:56]
-04. Celestial Kingdom [00:07:42](   Читать дальше...   )Жанр: heavy psych, posthardcore, powerfull rock, stoner rockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BAA52B1C3550B92D0764AB33BB3730401E5B1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731377   (107757) от 20.06.2024
-
-Detroit Hills - Us (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Alone [00:03:19]
-02. A Star To Guide [00:04:41]
-03. Breathe [00:04:25]
-04. Sapphire [00:03:58](   Читать дальше...   )Жанр: Post RockПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A2C6E06566ECFB3290D5D1249AD69BB313F5ADC
 ```
 
 https://mybot314.ru/tekegram_catalog/

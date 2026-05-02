@@ -1,30 +1,153 @@
-###  Публикация: 454927   (93945) от 20.02.2012
+###  Публикация: 475698   (98073) от 30.03.2012
 
-VA - Cinema Of Consciousness 2 (2012) [MP3|192-320 kbps]<Psychedelic / Progressive>
+Oscar Penas - From Now On (2011) [FLAC|Lossless]<Modern Jazz, Guitar Jazz, Fusion>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98073.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Continuum (10:01)
+02. Choro#1 (Corpo) (4:51)
+03. From Now On (7:47)
+04. Samuel Smith (6:32)
+05. Encuentro (6:10)
+06. Choro#2 (Corpo) (3:43)
+07. Julia (6:29)
+08. Adeu (1:40)2011Жанр: Modern Jazz, Guitar Jazz, FusionПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474952   (98072) от 30.03.2012
+
+Девушка из Джерси / Jersey Girl (2001) DVD5
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98072.jpg" />
+</div>
+
+
+###  Подробнее
+
+На рождественской вечеринке Олли Тринке знакомится с красавицей Гертрудой, женится на ней и готовится стать отцом. Однако его счастье длится недолго — молодая жена умирает при родах, оставляя ему дочку.
+
+Потеряв работу, Олли переезжает в пригород к своему отцу, где спустя некоторое время знакомится с милой девушкой Майей. Вместе, Майя и его подросшая дочь, возвращают Олли вкус к жизни…Жанр: Драма, Мелодрама, КомедияРежиссер: Кевин СмитАктеры: Бен Эффлек, Лив Тайлер , Джордж Карлин , Ракель Кастро , Джейсон Биггс , Дженнифер Лопез , Стивен Рут , Майк Старр, Бетти Эберлин , Мэтт Дэймон , Джейсон Ли, Кит МойерПеревод: ДублированныйЯзык субтитров: русскийПродолжительность: 01:38:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475240   (98071) от 30.03.2012
+
+VA - Jazz Legends 3CDs (Collection) (1998) [MP3|320 кб/с]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jazz Legends 1:
+
+01. Ella Fitzgerald, Louis Armstrong - They Can't Take That Away From Me
+02. Bing Crosby, Mills Brothers - Shine
+03. Fats Waller - It's A Sin To tell A Lie
+04. Coleman Hawkins - On The Sunny Side Of The Street
+05. Ella Fitzgerald, Louis Armstrong - A Foggy Day In London Town
+06. Nat King Cole - It's Only A Paper Moon
+07. Bing Crosby - Dinah
+08. Count Basie - One O'Clock Jump(   Читать дальше...   )1998Жанр: JazzПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F40944F2A7442D7D5CBE05198BAA6343D42EC4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475718   (98070) от 30.03.2012
+
+Saline OS 1.6 [i386 + x86_64] (2xDVD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энтони Нордквист представил SalineOS 1.6 – новую версию легковесного и быстрого открытого дистрибутива, построенного на репозиториях Debian GNU/Linux 6.0.4 и использующего рабочее окружение Xfce. Особенностью выпуска является набор пользовательских действий и сценариев, значительно увеличивающих функциональность файлового менеджера Thunar: открытие с правами root каталогов и запуск теринала, возможность присвоения файлу атрибута «executable», запуск MD5SUM, конвертация образов специфических форматов (NGG, MDF) в стандартные ISO-образы, простая утилита использования диска, mount/unmount для ISO, конвертация в ODT, экспорт в PDF, поиск файлов или папок с использованием Catfish, простые преобразования изображений (поворот, изменение размера, масштабирование, конвертация форматов), запись файлов ISO или IMG на USB-носитель, редактирование текстовых файлов с правами суперпользователя.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB66D97D0040A159EC3474813671A3698170B243
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475303   (98069) от 30.03.2012
+
+VA - Дискотека Русские Звезды (2012) [MP3|128 kbps]<Pop>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Philter - Stairway To Heaven 07:53
- 02. Dual Lane - Yalta Journey 07:59
- 03. Solar Groove - Heretic 09:47
- 04. Hypnos - Disco Doll 06:27
- 05. Bio-Psy - Cheap Thrill 08:05
- 06. Lightsphere - Faith 08:26
- 07. Krystaline - Science Of Signs 08:00
- 08. Peak Processor - White Rabbit 07:35
- 09. Lunar Surface - Cosmic Base 07:052012Жанр: Psychedelic / ProgressiveПродолжительность: 01:11:17
+001. Юрий Шатунов - Это Лето
+002. Reflex - Первый Раз 2012
+003. DJ Грув & Гарик DMCB - Я Не Знаю Кто Мы
+004. Alyosha (Aлешa) & Влад Дарвин - Больше Чем Любовь
+005. Алисия & Master Spensor - Почему
+006. Лиза Лукашина feat. LikbeZ - Олимпиада 2014
+007. Hi-Fi - Не Покидай
+008. Николай Басков - Странник
+009. Couple - Дым
+010. София Ротару - Мы Будем Вместе(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:55:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83F15EFFAD576BA34D34ACA6D11FBF307CA13456
+magnet:?xt=urn:btih:885D505FAC580E02DB542CEA9EDDA405B3F47195
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -32,34 +155,99 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455085   (93942) от 20.02.2012
+###  Публикация: 475567   (98067) от 30.03.2012
 
-VA - Progressive Music (19.02.2012) [MP3|320 kbps]<Progressive House>
+Ghost Town Blues Band - Dark Horse (2012) [FLAC|Lossless]<Blues-Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another Lover (3:27)
+02. Memphis Train (4:30)
+03. Finish What You Started (2:50)
+04. Dark Horse (3:30)
+05. Meet Me At The Juke Joint (3:53)
+06. Blues Box Breakdown (0:38)
+07. Memphis Blues (4:16)
+08. Before You Hit The Ground (4:07)
+09. Messin' With The Kid (3:00)
+10. Good To Be Me (3:14)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475610   (98066) от 30.03.2012
+
+Scream Silence - Scream Silence (2012) [FLAC|Lossless]<Gothic Metal, Gothic Rock>
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wayfare (8:15)
+02. One (4:06)
+03. New Flood (4:42)
+04. Dreamer's Court (4:53)
+05. Blushed (4:12)
+06. In These Words (5:21)
+07. Surd (4:08)
+08. Horizons (4:00)
+09. Downside (3:28)
+10. Days of Yore (4:06)(   Читать дальше...   )Жанр: Gothic Metal, Gothic RockПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475463   (98061) от 30.03.2012
+
+[Wallpapers] Nature HD Wallpapers Pack 7
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93942.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98061.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andy King - Sativa (Original Mix) (7:52)
- 02. Basto & Yves V - Cloudbreaker (Original Mix) (6:22)
- 03. Carbon - Only Those Who Believe (Fusi Johnson Own Space Mix) (6:46)
- 04. Conrad S - Night Active (Original Mix) (6:46)
- 05. Dave Romans - Wrapped Up Happiness (Original Mix) (6:33)
- 06. David Puentez Feat. Max C. - Things We Do 4 Love (Dani Veiga Remix) (7:03)
- 07. Dyro - Metaphor (Original Mix) (4:38)
- 08. Hardsoul & Baggi Begovic - Survival (Robbie Taylor Iberican Mix) (6:40)
- 09. Psycatron - Memories of The Moment (John Digweed & Nick Muir Remix) (7:45)
- 10. Shopping Therapy - Sofia Diaries (Original Mix) (6:47)19.02.2012Жанр: Progressive HouseПродолжительность: 01:07:16
+[Wallpapers] Nature HD Wallpapers Pack 7 
+Название:  Nature HD Wallpapers Pack 7 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 7800х5658
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C4D4A730BBE1972CD28C27A0EBFB0B6690FF1752
+magnet:?xt=urn:btih:C4823FDA1FAFDF95A263606DCEBB68B1FC1AC98C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -67,29 +255,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455454   (93938) от 20.02.2012
+###  Публикация: 475569   (98060) от 30.03.2012
 
-VA - Living The Dream EP pt.3 (2012) [MP3|320 kbps]<Drum & Bass>
+VA - Планета танцевальных хитов (2012) [MP3|320 кб/с]<Pop, House, Dance>
 
->>Архив торрентов
->>Архив Музыки
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93938.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98060.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cybass - it's a new life for me (big bud remix) (06:01)
-02. Random Movement - dropping the chips (06:29)
-03. Flaco - choose me (insiders remix) (06:42)
-04. Blue Motion, Grimm, Remo - we used to be good (06:47)
-05. Kubiks, Sicko - mad men (04:59)2012Жанр: Drum & BassПродолжительность: 00:30:18
+01. Adele - Set Fire To The Rain
+ 02. Akki & Jodie - Russian Love (Radio Edit)
+ 03. Alessia - Everyday (Radio Edit)
+ 04. Babaeff Dark & DJ China & Leyla Kafari - Eurovision 2012 ( DJ Fair Wind Remix )
+ 05. Bad Meets Evil & Bruno Mars - Lighters (Explicit Edit)
+ 06. Bruno Mars - Marry You
+ 07. Calvin Harris - Feel So Close
+ 08. Chris Brown & Benny Benassi - Beautiful People
+ 09. Coldplay & Rihanna - Princess Of China
+ 10. Dappy - No Regrets(   Читать дальше...   )2012Жанр: Pop, House, DanceПродолжительность: 03:08:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:91477090D9B93F041D754DC742C9BDCFDB684C4F
+magnet:?xt=urn:btih:8D96F30B3323C1B04971C59EC9441930C21C553A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -97,266 +290,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455183   (93936) от 20.02.2012
+###  Публикация: 475504   (98059) от 30.03.2012
 
-Trance Therapy - Volume 7 (2012) [MP3|320 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ferry Corsten - I Love You-Original 2003 Version [07:38]
- 02. Gouryella - Ligaya-Ferry Corsten Remix [08:45]
- 03. Ferry Corsten - Sweet Sorrow-Ferry Corsten Fix [07:37]
- 04. Breakfast - River Of Light [10:06]
- 05. Ferry Corsten - Masquerade [08:00]
- 06. Embrace - Embrace-Leon Bolier Remix [07:42]
- 07. Ferry Corsten - Galaxia-Symphonic Remake [03:44]
- 08. Gouryella - Tenshi-Ochestra Cyber France De Paris [04:44]
- 09. Tritonal Feat. Soto - Piercing Quiet [08:33]
- 10. Ferry Corsten Pres. Pulse - Rendition [07:50](   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:53:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F369CA086D3486466CFC894F78F748DD46ACB37E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455461   (93935) от 20.02.2012
-
-VA - The Beach 2011 (2011) [MP3|320 kbps]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. G.M.S - Pray For Japan 06:45
- 02. 1200 Micrograms - Let It Roll 06:59
- 03. Bizzare Contact - Vibrations 07:56
- 04. Space Cat - In The Air 07:13
- 05. Dynamic vs. Melicia - Go Back 07:03
- 06. Perplex vs. Intersys - Dirty Bytes 07:20
- 07. Black & White - Transition Mode 06:51
- 08. X-Noise - Streptococcus A 07:03
- 09. Nick Callaghan & Will Atkinson - Blizzard (Liquid Soul Remix) 08:122011Жанр: Psychedelic / Full OnПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:332D0D12E0F1F8D67D5884BB69D8F7D0E3A32193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455433   (93930) от 20.02.2012
-
-VA - Paul Oakenfold: DJ Box - February 2012 (2012) [MP3|320 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oakenfold - Maybe It's Over (feat Tamra Keenan - Organ Donors Perfecto mix) (06:36)
-02. Planet Perfecto Knights - ResuRection (Beatman & Ludmilla remix) (05:50)
-03. Symphonix - Dirty Minds (Osher remix) (08:01)
-04. HJM - 222 (Marco V remix) (06:36)
-05. Trance Arts & Sonic Element - Reformation (original mix) (08:03)
-06. Destroyers & Aggresivnes - The Untouchables (original mix) (06:20)
-07. Federation - Innocent Desire (Nick Sentience remix) (08:42)
-08. Orison - Mutation (original mix) (06:57)
-09. East Cafe - Flashback (Aeron Aether remix) (06:52)
-10. Limbo - Paradox (original mix) (08:16)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC9A800F45DDBCB0248D2EFE2B01488CDAC9ACD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454746   (93925) от 19.02.2012
-
-VA - Metal Violin (2011) [MP3|320 kbps]<Symphonic Metal, Gothic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eluveitie - Of Fire, Wind & Wisdom (03:05)
-03. Jelonek - Vendome 1212 (03:05)
-03. Korpiklaani - Wooden Pints (03:42)
-04. Septem Voices - Для Тебя (04:30)
-05. Morgul - The Murdering Mind (06:20)
-06. Троль гнет ель - Октоберфест (05:23)
-07. Haggard - Of A Might Divine (08:21)
-08. The Sins Of Thy Beloved - Until The Dark (06:41)
-09. Skyclad - Still Small Beer (03:10)
-10. Anabioz - Родная сторона (06:53)(   Читать дальше...   )2011Жанр: Symphonic Metal, Gothic MetalПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C44649E0A99D8BF17C4B45546F445B3C45E4DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454604   (93919) от 19.02.2012
-
-Горе в табакерке / ТРК Петербург (1989) VHSRip
-
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93919.jpg" />
-</div>
-
-
-###  Подробнее
-
-Телеспектакль по мотивам произведения Самуила Яковлевича Маршака "Горя бояться - счастья не видать", из огромной коллекции телепостановок для популярнейшей передачи "Сказка за сказкой".Производство: СССРЖанр: сказка, спектакльРежиссер: Анатолий СлясскийАктеры: Сергей Паршин, Ростислав Катанский, Иван Краско, Вадим Яковлев, Юлия Яковлева, Андрей Ургант, Ирина СоколоваПродолжительность: 00:51:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C17EBF685BB1C64ABDEB4481264A50FB7BE96AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454990   (93913) от 19.02.2012
-
-Владимир Поляков | Шаг за грань [2012] [FB2,RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многие мечтают заглянуть в бездну. Оккультные науки манят, обещая даровать невиданную силу и могущество. Человек, вставший на этот путь, никогда не станет прежним.
- Именно это происходит с героями романа. Стилет, Клим, Висельник и Ханна - сотрудники Третьего Отделения, которые занимаются поиском террористов и увлекаются оккультизмом, отвергая традиционную религию. Неожиданно на их пути возникает таинственный граф Черепанов. Кто он, этот обладающий огромной властью человек, в руках которого - четки из серебряных черепов? Это проводник в мир бессмертных воинов и магов, где не поклоняются богам, а стремятся ими стать. Здесь гордость - наивысшая добродетель, а смирение и покорность стоят наравне с трусостью и предательством.
- Героям осталось сделать последний шаг. Шаг за грань.2012Формат: FB2,RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8F596399D1A053B831DD513D0E8EB1ADEB52DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454973   (93906) от 19.02.2012
-
-Дмитрий Манасыпов | За нами – Россия! [2012] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Середина 60-х годов ХХ века. Война с фашизмом продолжается. Не было капитуляции Германии и парада на Красной площади. Противник силен как никогда! У него теперь не только танки и самолеты, но и вертолеты, и даже боевые шагоходы панцер-шрайтеры. Но фашистам и этого мало. В секретной лаборатории в катакомбах под Куйбышевом они создают монстров – смертоносных, почти непобедимых генетически модифицированных .....2012Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AF745C52D4B54649133B4959743B3F7023A2FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454957   (93904) от 19.02.2012
-
-Прожекторперисхилтон. Сезон 4. Выпуск 18(118) (17.02.2012) DVBRip
-
->>Архив торрентов
->>Архив Юмора
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93904.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Прожектор Пэрис Хилтон» — проект Первого канала, ведущими которого стали Гарик Мартиросян, Иван Ургант, Саша Цекало и Сергей Светлаков. Это программа, где нет ничего обязательного. Ведущие делают практически все, что хотят. Обсуждают темы, которые интересны зрителям, проводят «политинформацию» для населения. На столе в студии разложено много газет — ведь где еще, как не в свежих газетах, черпать актуальные новости, которые произошли на прошедшей неделе.Жанр: Телепередача, Новости, КомедияПродюсер: Александр ЦекалоПродолжительность: 00:29:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E69C0F3B084692D2662972628F6B42F752E9AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454822   (93892) от 19.02.2012
-
-Большое разочарование / The Big Chill (1983) DVDRip
+Родители / Parenthood (1989) DVD5
 
 >>Архив торрентов
 >>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_93892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98059.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жили-были в Южной Каролине восемь друзей детства. Разъехались в разные края и стали профи каждый в своём деле: журналюга Майкл, вояка Ник, звезда телеэкрана Сэм и влюбленная в него Кэрин, молодые супруги Хэролд и Сара, а также Мег и заводила компании Алекс. Последний, кстати, умер. Точнее — покончил с собой. Именно похороны и стали причиной встречи этой семёрки и (   Читать дальше...   )Производство: СШАЖанр: Драма, КомедияРежиссер: Лоуренс КэзданАктеры: Том Беренджер, Гленн Клоуз, Джефф Голдблюм, Уильям Херт, Кевин Клайн, Мэри Кэй Плэйс, Мег Тилли, ДжоБет Уильямс, Дон Гэллоуэй, Джеймс Гиллис, Джон Кэсдан, Мюриэль Мур, Патриция ГолПеревод: Профессиональный многоголосыйПродолжительность: 01:40:00
+Быть главой большой семьи — задача не из легких. Тем более, если ты, как любой уважающий себя родитель, хочешь, чтобы твои дети выросли приличными людьми. Вот Гилу Бакмену и приходится «крутиться», чтобы делать успешную карьеру, и одновременно быть любящим мужем и заботливым отцом.Жанр: КомедияРежиссер: Рон ХовардАктеры: Стив Мартин, Рик Моранис, Киану Ривз, Мэри Стинберджен,Том Халс, Джейсон Робардс-Младший, Дайэн УистПеревод: Одноголосый закадровый (А. Михалев)Язык субтитров: английские, испанскиеПродолжительность: 02:04:00
 
 ## Скачать торент
 ```bash
@@ -368,25 +316,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454745   (93880) от 19.02.2012
+###  Публикация: 475364   (98058) от 30.03.2012
 
-Журнал | Selber Machen [февраль 2012] [PDF]
+Роберт Пайк | Жертва [2011] [MP3]
 
->>Журналы
->>Хобби (журналы)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93880.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98058.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Selber Machen - немецкий журнал для домашних мастеров: советы по ведению домашнего хозяйства, создание изделий из дерева для дома и сада своими руками, обустройство приусадебного участка, навыки обращения с рабочим инструментом, мелкий ремонт, идеи по оформлению интерьерафевраль 2012Формат: PDF
+Из тюрьмы Синг-Синг сбежали четверо заключенных, которых ничто никогда не связывало, ни в тюрьме, ни до нее. Причем один из них имел возможность через несколько месяцев досрочно освободиться. Что толкнуло его связаться с этой компанией и пойти на побег? Не оправдались и расчеты преследователей на то, что неожиданный беглец постарается спрятаться где-нибудь подальше. Он отправился в Нью-Йорк. Что задумал преступник и какие события последуют за этим?2011Жанр: Детектив
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4B8484A705827BDD2E424FEE5B0F464BB0B04D5
+magnet:?xt=urn:btih:AD7A67679FA87001D934E28CF887082C98CCA066
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,28 +342,153 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454753   (93873) от 19.02.2012
+###  Публикация: 475032   (98057) от 30.03.2012
 
-Пяточка - Ах, какая шаурма! [Single] (2012) [MP3|320 kbps]<Electro-Punk, Steb, Rap>
+Anthony Gomes - Up 2 Zero (2012) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To The Start  (3:34)
+02. One Last Time  (4:55)
+03. Love Sweet Love  (3:30)
+04. Fly Away  (3:40)
+05. Darkest Before The Dawn  (3:53)
+06. Room 414  (2:47)
+07. Voodoo Moon  (4:16)
+08. Anywhere You Run  (3:57)
+09. Last Bluesman Gone  (2:10)
+10. Up 2 Zero  (3:13)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:39:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475735   (98056) от 30.03.2012
+
+Журнал | АиФ. Спецвыпуск. Дача №4 [2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98056.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот номер "Аиф. Спецвыпуск. Дача" посвящён животрепещущей теме, волнующей каждого дачника, - весенней обрезке сада.
+   Пользуясь советами экспертов, вы сможете понять главные задачи обрезки и освоить простые приёмы их выполнения.
+   Попробуйте - ведь в результате Ваш сад станет аккуратным, урожайным, здоровым и долговечным.
+   Следующий номер спецвыпуска будет (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B9FE193805C00ACDD0AC35E507D770792FB1F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475360   (98053) от 30.03.2012
+
+Ю.М. Ключников | Лики русской культуры [2010] [PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга известного поэта, публициста, философа, путешественника, автора десяти книг стихов и прозы Юрия Ключникова «Лики русской культуры» представляет собой сборник статей, эссе, очерков, посвященных выдающимся русским писателям, поэтам, музыкантам, ученым, полководцам. Перед взором читателя встают образы и творческие судьбы2010Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51285048883AC79F6AEAEC7EB1110D7DB99204C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475686   (98052) от 30.03.2012
+
+Jeff Cascaro - The Other Man (2012) [FLAC|Lossless]<Soul, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98052.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gettin' Started (0:49)
+02. Roots (4:58)
+03. The Other Man (4:11)
+04. The Girl Who Got Away (Back In The Days) (4:10)
+05. Stop! (3:59)
+06. Beale Street (4:34)
+07. You (5:25)
+08. Swing Thing (4:22)
+09. Going Home (4:03)
+10. Give It To Me (5:15)(   Читать дальше...   )2012Жанр: Soul, Vocal JazzПродолжительность: 00:51:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472953   (98050) от 30.03.2012
+
+Unisonic - Ignition [MCD] (2012) [FLAC|Lossless]<Power Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93873.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Леопардовые трусы (04:18)
-02. Шаурма (03:30)
-03. Завязал (Crank version) (03:12)
-04. Завязал (Punk version) (03:01)2012Жанр: Electro-Punk, Steb, RapПродолжительность: 00:14:03
+01. Unisonic (03:22)
+02. My Sanctuary (04:13)
+03. Souls Alive (Demo Version) (05:11)
+04. I Want Out (Live Version) (05:32)Жанр: Power MetalПродолжительность: 00:18:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB3E83ACCEF25489CF75622E8C4F017319D36E51
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,26 +496,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454987   (93872) от 19.02.2012
+###  Публикация: 475545   (98049) от 30.03.2012
 
-Игорь Гаврилов | Стальной арбитр [2012] [FB2,epub,rtf]
+Журнал | Загородная резиденция №1 [2012 февраль-март] [PDF]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93872.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Этот мир очень похож на наш. В нем те же материки и те же народы, но у него совсем другая история, творимая не только мечом, но и магией…
-Еще в Средние века европейские страны объединились и образовали Континентальный Имперский Союз, или просто - Империю. Но даже в этой Империи нет мира. Чудовищная и непостижимая эпидемия мгновенно превращает заболевшего человека в зловещего монстра, именуемого эаром. Монстров расплодилось так много, что люди вынуждены начать против них войну. Один из виднейших сановников Империи, герцог Александр Стил, он же Стальной Арбитр, проникает в главную тайну эаров - их создают рнайхи, пришельцы, уже не первый раз пытающиеся захватить Землю. В схватке с рнайхами герцог погибает, но битва еще не проиграна. Совершенно неожиданно для себя Стальным Арбитром становится Юрий Кириллов - россиянин, живущий в нашем времени и в нашем мире…2012Формат: FB2,epub,rtf
+Загородная резиденция - журнал о ценностях загородной жизни, будет интересен тем, кто живет в частном доме или только собирается его себе приобрести. В каждом номере советы от ведущих специалистом, обзор рынка, примеры удачных проектов.2012 февраль-мартФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:500F2206BBF3D732E947B4ADBE5305DCF8E6C817
+magnet:?xt=urn:btih:AAEAB4C48655FC6A67BFBECDABCB24C4D3D7DFCB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,104 +522,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454742   (93859) от 19.02.2012
+###  Публикация: 475313   (98048) от 30.03.2012
 
-Semargl - Satanic Pop Metal (2012) [MP3|256 kbps]<Melodic Industrial Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hunger (03:24)
-02. Sweet Suicide (03:24)
-03. Drag Me to Hell (03:31)
-04. God Is Not Love (03:29)
-05. Tak, Kurwa (03:53)
-06. Suck My Dick (02:47)
-07. Labyrinth (03:22)
-08. Join in Fire (02:43)
-09. I Hate You (03:26)
-10. Opium (04:01)(   Читать дальше...   )2012Жанр: Melodic Industrial MetalПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2FB02F09F02D864A302E04FD7FB4498750E6B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 455074   (93853) от 19.02.2012
-
-Little G Weevil - The Teaser (2011) [MP3|320 kbps]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Real Men Don`t Dance (03:23)
-02. The Teaser (03:42)
-03. Big City Life (04:40)
-04. Back Porch (03:44)
-05. Highway 78 (05:11)
-06. Apple Picker (04:45)
-07. Dad`s Story (02:34)
-08. 8. 47 (04:41)
-09. Liquor Store (02:40)
-10. She Used To Call Me Sugar (04:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F1121A71E490833139AEBE184E8E13CEB3741D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453831   (93848) от 19.02.2012
-
-Voices From The Lake Feat. Donato Dozzy & Neel - Voices from the Lake (Album) (2012) [MP3|320 kbps]<Techno>
+VA - Горячий Автохит (2012) [MP3|256 kbps]<Club | Dance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93848.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Iyo 9:53
-02. Vega 4:13
-03. Manuvex 4:56
-04. Circe 4:30
-05. S.T. (VFTL Rework) 8:17
-06. Meikyu 9:09
-07. In Giova 7:25
-08. Twins In Virgo 5:14
-09. Twins In Virgo (Reprise) 4:04
-10. Mika 5:51(   Читать дальше...   )2012Жанр: Techno, Ambient, Deep TechПродолжительность: 01:11:34
+01. Loverush Uk! Feat. Bryan Adams - Tonight In Babylon (Radio Edit)
+02. Robkay Feat. David Posor - Dein Lied (Dein Radio Edit)
+03. Dj Hara Feat. Chriss - Bring It To Me (Radio Edit)
+04. Dj Tatiana Feat. Topsax - Love Drop (Sax Version The Original Mix)
+05. Dj Winn Feat. Freeman Drilla - All About You (Radio Edit)
+06. John Dubs Dj Kenny - Life Arel (Radio Edit)
+07. Sarah West - Black Blue
+08. Nadia Oh - Fqn Amazing
+09. T.I. Feat. Meek Mill - Who What When
+10. Alex Sergius Feat. Роман Гвоздев - Дежавю(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:01:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6AF95E2DBC7B80389EC059CCD0F90EDBD9655091
+magnet:?xt=urn:btih:CCF1FF0A5AA5D39CD9D4F15B6D9F1C432DD6AA97
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,34 +557,198 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454694   (93845) от 19.02.2012
+###  Публикация: 475538   (98047) от 30.03.2012
 
-VA - Record Super Chart № 228 (18.02.2012) [MP3|~142-320 kbps]<House, Trance, Dance>
+Mozilla SeaMonkey 2.9 Beta 2 [Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98047.jpg" />
+</div>
+
+
+###  Подробнее
+
+SeaMonkey — проект, основанный на добрых традициях Mozilla Suite. Классическая Mozilla развивалась много лет, обрела свой круг преданных фанатов, но так и не дошла до широких масс, выдвинув на эту роль красивый современный браузер Mozilla Firefox. За основу SeaMonkey взята Mozilla Suite, как проверенный годами продукт, обладающий колоссальной стабильностью и выверенным кодом. К этой основе было добавлено множество функций, ставших привычными для пользователей Mozilla Firefox и Mozilla Thunderbird. В состав SeaMonkey входит несколько компонентов.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475466   (98044) от 30.03.2012
+
+VA - Club Music Energy 50/50 (2012) [MP3|192-256 kbps]<Club>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adriana & А.Арабов feat. Stilet - Прости Меня (DJ Nejtrino Version)
+02. Катя Лель - Твоя (Ural Djs mix)
+03. Алена Высоцкая - С Ума Сходил (Dj Prosvirin Dfm Mix)
+04. Bobina feat. Betsie Larkin - You Belong To Me
+05. Lena Katina (ex. t.A.T.u) - Never Forget (Trojan Project Radio Remix)
+06. David Guetta - Titanium (Feat. Sia)
+07. Severiano Deejay Feat. K - Flow & Rella Roxx - Unspoken Feelings
+08. Pem D - White Feat. Adrianna Szojda - Take Me Away (Original Mix)
+09. Всё Включено - Солнце на закат (Версия 2011) (сlub extended)
+10. MM Dance - Отдыхаем (Dj Alfred extended mix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3B3A32EAB38C60D4E93D619C23B3AC69467555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475492   (98043) от 30.03.2012
+
+VA - Самый, Самый! Русский (2012) [MP3|256 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вера Брежнева - Sexy Bambina
+02. Шахзода - Нереально без тебя
+03. DIK - Вселенная
+04. Тамерлан и Алена Омаргалиева - Hey Yo
+05. Митя Фомин - Садовник (Radio Edit)
+06. Алисия & Влад Корса - Здесь и сейчас
+07. Ирина Ортман - Медленно
+08. Шиншиллы - Пушкин Саша
+09. Ажур - Город
+10. Марта - Из тысячи лиц(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDF93365B1D159B2CAFC6813960642C857068B2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475036   (98040) от 30.03.2012
+
+145 th Street - Where the Blues Lives (2012) [FLAC|Lossless]<Chicago Blues, Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where the Blues Lives (5:18)
+02. Tell Me, Baby (4:45)
+03. Before Its Time (6:26)
+04. Your Little Show (5:35)
+05. Blues Never Sleeps (5:43)
+06. What Am I S'posed to Do (7:38)
+07. Make Love to You (5:48)
+08. Seven Days (4:40)
+09. Good Mornin' Blues (5:45)
+10. Give Her What She Wants (6:10)2012Жанр: Chicago Blues, Electric BluesПродолжительность: 00:57:47
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475026   (98039) от 30.03.2012
+
+Gary Smulyan - Smul's Paradise (2012) [FLAC|Lossless]<Post-Bop, Mainstream Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunny (9:01)
+02. Up In Betty's Room (6:42)
+03. Pistaccio (4:44)
+04. Smul's Paradise (8:27)
+05. Little Miss Halfsteps (4:53)
+06. Aires (8:15)
+07. Blues for DP (6:36)
+08. Heavenly Hours (4:02)2012Жанр: Post-Bop, Mainstream JazzПродолжительность: 00:52:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 474764   (98038) от 30.03.2012
+
+VA - House Vip (27.03.2012) [MP3|320 кб/с]<Electro House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93845.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98038.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Klaas - Changes (Original Mix)
-02. LMFAO - Sexy And You Know It
-03. Niels van Gogh vs. Emilio Verdez - Beatrocker (Original Mix)
-04. Dj Kuba & Ne!tan - Deejay Deejay (Peppermint Remix)
-05. Knife Party - Internet Friends (Original Mix)
-06. DJ SMASH FEAT MAURY - Rendez Vous (Sebastien Lintz Extended Mix)
-07. Roisin Murphy feat. The Crookers - Royal T
-08. Sarvi - Amore (Chuckie Remix)
-09. Dj Antoine vs. Empire Of The Sun - Walking On A Dream (Dj Pitchugin Booty Mix)
-10. Rihanna Feat. Calvin Harris - We Found Love (Chuckie Remix)18.02.2012Жанр: House, Trance, DanceПродолжительность: 02:42:53
+1. Christopher S feat. Jamayl Da Tyger - Jump! (Mike Candys Remix) (4:36)
+ 2. Cobra Starship vs. Purple Project - You Make Me Feel (Denis First ft. P.P Booty) (5:46)
+ 3. Corey Andrew, Liz Mugler, Riviera Kidd - Symphony Of Life (Riviera Kidd Remix) (7:31)
+ 4. Fragma – Thousand Times (Marc Lime & K Bastian Remix) (6:29)
+ 5. Jason Derulo - Breathing (Michael Mind Project Remix) (5:39)
+ 6. Jordan Rivera - One Night (Jack Ferreira Vocal Club Mix) (6:00)
+ 7. Labrinth - Last Time (R3hab Mix) (6:00)
+ 8. LMFAO - Sorry For Party Rocking (R3hab Remix) (5:12)
+ 9. Movetown feat. Nana - Lonely (Mario Lopez Remix) (6:31)
+ 10. Tito Torres & Ella - Sunrise (Slin Project Remix) (5:52)27.03.2012Жанр: Electro HouseПродолжительность: 00:59:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:949BBB3E7E949D069EE0C09BE1893F296608BE1B
+magnet:?xt=urn:btih:7BBA65DA366CB75581C8A0E7196DC26C2CC39AD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,34 +756,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 454329   (93843) от 19.02.2012
+###  Публикация: 475486   (98035) от 30.03.2012
 
-VA - Psychology Vol.3 (2012) [MP3|320 kbps]<Psychedelic / Ambient, Psy Chill>
+VA - Самый, Самый! Зарубежный (2012) [MP3|256 kbps]<Pop | Dance>
 
->>Electronic
->>Psychedelic, psytrance, fullon
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93843.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98035.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lauge & Baba Gnohm - Nordlys 13:39
- 02. Bob Tracker - 17 Grand Way 07:44
- 03. Bahramji and Mashti - All About You 04:56
- 04. MIC - Visite Champetre 16:53
- 05. Nalepa - Snowflakes 06:00
- 06. Metaphorical Cloud - Substance 06:04
- 07. E-Mantra - If there is Nothing 07:29
- 08. Soulalive - Undercurrent 05:10
- 09. Easily Embarrassed - Blurred Clouds Under The Gloomy Moon 08:02
- 10. Side Liner - A Hand To Hold 09:02(   Читать дальше...   )2012Жанр: Psychedelic / Ambient, Psy ChillПродолжительность: 01:41:48
+01. Britney Spears - Criminal
+02. Mylene Farmer - Lonely Lisa
+03. JLS - Do You Feel What I Feel
+04. R.J. feat. Pitbull - U Know It Aint Love (David May Original Radio Mix)
+05. Beyonce - Dance For You
+06. Pixie Lott feat. Pusha T - What Do You Take Me For
+07. Kazaky - Dance For Change
+08. Marlon Roudette - Riding Home
+09. Nero - Reaching Out
+10. Nicole Scherzinger - Try With Me(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:58:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20EFC983498F7E72FA4968BCC5ECD551FAE0A697
+magnet:?xt=urn:btih:80E3760E54A58E892DC58923D3928BD15190D419
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,172 +791,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 455014   (93842) от 19.02.2012
+###  Публикация: 475549   (98034) от 30.03.2012
 
-Н.В.Мельникова | Семейный обед [2012] [DJVU]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93842.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаем читателям рецепты для совместных трапез из недорогих и простых в приготовлении продуктов. Соберитесь всей семьей на обед!2012Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F80CF5E3A22240237880469C61C8260FC80733C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454455   (93832) от 19.02.2012
-
-VA - Derrick & Tonika, Shyma - Remix EP (2012) [MP3|320 kbps]<Drum & Bass>
+Журнал | Жилая среда №3 [март 2012] [PDF]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93832.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98034.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Derrick & Tonika - bird 1 (derrick & tonika remix) (05:18)
-02. Shyma - by the wind (derrick & tonika remix) (05:39)2012Жанр: Drum & BassПродолжительность: 00:10:57
+Журнал «Жилая среда» представляет на своих страницах самые интересные реализованные интерьеры архитекторов и дизайнеров Санкт-Петербурга. Помогает читателю разобраться в многообразии стилей и направлений, рассказывает о тенденциях в интерьерном дизайне, о новинках мировых и отечественных брендов, являясь эффективным навигатором, позволяющим ориентироваться в многообразии (   Читать дальше...   )Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:451CEEC97E1E446D6402B26E5AB99EE70329FDA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454308   (93829) от 19.02.2012
-
-Sanathana - Saraswati (2012) [MP3|192-320 kbps]<Psychedelic / PsyAmbient, Electronika>
-
->>Electronic
->>Psychedelic, psytrance, fullon
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Land of Nod 7:02
- 02. Raghupati Raghava Rajaram 9:50
- 03. Monsoon Dreams 9:43
- 04. The Tree That Swayed Me 9:47
- 05. Light Seeking Dancer 8:49
- 06. The Purpose of Existence 9:12
- 07. Down The Memory Lane 8:26
- 08. Dark is So Bright 11:152012Жанр: Psychedelic / PsyAmbient, ElectronikaПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D54CD38EDF12F71D8C065AFA68683E403D25D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454916   (93826) от 19.02.2012
-
-Журнал | Conde Nast Traveller [Россия] №4 (февраль 2012) [PDF]
-
->>Журналы
->>Хобби (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93826.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Condé Nast Traveller» — журнал для путешественников, издаваемый международной корпорацией Condé Nast Publications. Издание принято называть библией для туристов.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C92BBBF14D4A51647E52490D96C4D2067F6AEEB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452554   (93817) от 19.02.2012
-
-VA - The Best Of Trance & Progressive 19 (2011) [MP3|320 kbps]<Trance, Progressive Trance, Uplifting Trance, House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93817.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Hard Rock Sofa & St. Brothers - Blow Up (Thomas Gold Vs. Axwell Remix) (6:15)
-2. Ferry Corsten - Punk (Arty Rock N Rolla Mix) (6:25)
-3. Ferry Corsten - Feel it (Original Extended Mix) (6:16)
-4. Sander van Doorn - Koko (Original Mix) (5:39)
-5. Orjan Nilsen - Between the Rays (3:56)
-6. leon bolier - cape town
-7. abstract vision and elite electronic - rise again
-8. jaco - excuses (original mix)
-9. John O Callaghan - Ride The Wave (feat. Giuseppe Ottaviani)
-10. juventa - dionysia (original mix)(   Читать дальше...   )Жанр: Продолжительность: 19:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5582C334190A3F7DD03187D299B8B201AAF772E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454378   (93815) от 19.02.2012
-
-VA - Stax Does the Beatles (2008) [APE|Lossless]<Southern Soul, Jazz Soul>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Otis Redding - Day Tripper2008Жанр: Southern Soul, Jazz SoulПродолжительность: 01:08:20
-
-## Скачать торент
-```bash
-нет
+magnet:?xt=urn:btih:9B3CBB267539E52B4E0CFDD82173918874BCA381
 ```
 
 https://mybot314.ru/tekegram_catalog/

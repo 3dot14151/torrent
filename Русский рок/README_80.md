@@ -1,3 +1,119 @@
+###  Публикация: 1608082   (245794) от 29.01.2023
+
+Хранитель - 3 альбома (2018-2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245794.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2018 - Дети севера
+2022 - Наука побеждать
+2022 - Пётр ВеликийЖанр: RockПродолжительность: 3 CD, 01:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94CB408A5A1C78F791A557ECC1DD0A9C219705EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448785   (245523) от 19.02.2021
+
+Nagart - Вы это слышали? (2021) EP [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245523.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Золото мёртвых
+2. Карнавал
+3. Умрун
+4. Пугало(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72C33BDD60B3D183A8E4724C65336DE8FF3983E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608749   (245508) от 31.01.2023
+
+Рогатая Нога - Первая кровь (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Цепеш [00:03:52]
+02 - Распутин [00:02:56]
+03 - Царь [00:05:05]
+04 - Вдова [00:03:12]Жанр: RockПродолжительность: 00:15:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04BF8DEDA34048728A579CCADD33E8929CB859F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608693   (245477) от 31.01.2023
+
+Аvалон Rock - Странник (2023) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Странник [00:07:19]
+02 - Тряпичная кукла [00:05:34]
+03 - Там, где слово [00:04:37]
+04 - Живыми казаться [00:05:11](   Читать дальше...   )Жанр: RockПродолжительность: 01:04:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D766C6571962FE33108CFAB4C3D559C84FEF2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608690   (245449) от 31.01.2023
 
 Номер 13 - Запрещено к прослушиванию (2022) [MP3|320 Kbps] <Rock>
@@ -630,122 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E6CC979A43102F0FE09584A7BC56C76D36F850A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614207   (243094) от 21.02.2023
-
-Outpost 11 - 4 Albums (2018-2023) [MP3|320 Kbps] <electro-industrial, EBM>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243094.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2018 - Resonate
-2022 - Structural Defects
-2022 - В глубине(   Читать дальше...   )Жанр: electro-industrial, EBMПродолжительность: 4 CD, 03:13:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA12CC3A00FE5B8D118DA77CC6D28E66117A47E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1614724   (242988) от 23.02.2023
-
-Минус Три - .!. (2023) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Любовь миллионов [00:03:24]
-02 - Значок [00:03:31]
-03 - Напролом [00:03:36]
-04 - Обнуляй [00:02:52](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C705D6FD334777EEEB8E6D84874529F0DD6901
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457043   (242910) от 25.03.2021
-
-Авард - Судный век (2021) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Великая ложь [00:05:08]
-02. Хищные птицы [00:04:15]
-03. Выбор есть всегда [00:03:54]
-04. Одинокие души (feat. Денис Машаров) [00:04:27](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:51:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3878C339A93122139DA075D3739953FD21F6F7AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1540692   (242908) от 31.03.2022
-
-Hvstle Hype - Лето V (2022) [MP3|320 Kbps] <Nu-Metal, Modern Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_242908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Интро [00:00:28]
-02 - Дети рисуют мир [00:03:00]
-03 - Вагон тишины [00:03:18]
-04 - Тело хочет в землю [00:03:33](   Читать дальше...   )Жанр: Nu-Metal, Modern Metal, MetalcoreПродолжительность: 00:18:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7FFE44AADE0DED7E40721BAE3C5DD2AD8D52D16
 ```
 
 https://mybot314.ru/tekegram_catalog/

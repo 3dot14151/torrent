@@ -1,3 +1,61 @@
+###  Публикация: 1124103   (785942) от 10.04.2017
+
+VA - Music For Everyone - Breaks & Breakbeat Vol.5 (2017) [MP3|320 Kbps] <Breaks, Breakbeat>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785942.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. GRiZ feat. Mike Avery - The Anthem (Original Mix)
+2. Hannah Williams & The Tastemakers - Get It (CMC & Silenta Remix)
+3. Jayl Funk - Keep On Dancing (Original Mix)
+4. Marky Mark & The Funky Bunch - Good Vibrations (Original Mix)(   Читать дальше...   )Жанр: Breaks, BreakbeatПродолжительность: 01:24:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE2C44C2A94FECD3CE7E971DA64860EDFD76C7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124226   (785823) от 11.04.2017
+
+VA - Color Emotion Vocal In House (2017) [MP3|212-320 Kbps] <Vocal House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785823.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andrey Keyton, Sharapov - I Want Your Sou
+002. Beat Service Ft Ana Criado - An Autumn Tale
+003. BT & Senadee Feat. Dragon & Jontron - Lifeline
+004. David Guetta Vs Ryan Blyth - The World Is Mine(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 07:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B4BC663D8CDC92451E5B2223D4828BC6886B80E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124357   (785815) от 11.04.2017
 
 VA - Beatport Trance  Pack (10.04.) (2017) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Emotional, Blissful, Harmonic>
@@ -690,64 +748,6 @@ VA - Beatport Vocal House: Sound Pack #100 (2020) [MP3|320 Kbps] <Vocal House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7310BDA3368C93FBA97B35F577973CC6E4287F99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390130   (783383) от 14.06.2020
-
-VA - Record Super Chart 640 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cream Soda & ХЛЕБ - Плачу на техно 2:40
-02. Little Big - Hypnodancer 3:08
-03. El Capon - Shut Up Chicken 2:31
-04. Topic & A7S - Breaking Me 2:47(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34ABEECBB745D5F178A4F9078B28D77AF5FA2D1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1205756   (783232) от 11.02.2018
-
-VA - Water Melodies (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daminika  -  Snatches Of Memory (Original Mix)  4:54
-02.  Lauge & Baba Gnohm feat. Sarah Lynn  -  My Innocence (Original Mix)  5:16
-03.  Alastair Pursloe  -  36 Degrees In The Shade (Original Mix)  6:15
-04.  Bryan Milton feat. Natune  -  Let Love Live (S.A.T Sunrise Remix)  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF424A277034F644D637D1E5560AAE69FBB31867
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1460934   (1022188) от 07.04.2021
+
+Vikings of Blues, Vargas Blues Band & Jessy Howe - Soul Food (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Let Fear
+02. Heart Go Blind
+03. Give Back
+04. Open Up(   Читать дальше...   )Жанр: Rock BluesПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF37CDD10F82E00AE0C80D96513ADA6155952A2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461320   (1021888) от 09.04.2021
+
+Chris Cain - Raisin Cain (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hush Money (4:14)
+02. You Won't Have A Problem When I'm Gone (3:07)
+03. Too Many Problems (3:40)
+04. Down On The Ground (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B0856B39CC95A6EC3F2470F606CB16746AC181
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461790   (1021540) от 11.04.2021
+
+Black Lung Lucy - Black Lung Lucy (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thousand Men (3:22)
+02. Watch Me Bleed (3:52)
+03. Lana (4:22)
+04. Right by Me (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA321DC43209E061B03B4DAF075C5D980B1EC63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1461792   (1021536) от 11.04.2021
+
+Jim Preen - Cat in the Spirit House (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shopping for Clothes (3:39)
+02. Big Red Cars (3:28)
+03. Armani Suit, New Guitar (3:12)
+04. Framed (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943FDC1531F86DF3AAF8E74ABE417AF02EF646C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1461795   (1021535) от 11.04.2021
 
 Pete Wain - When the Blues Get You Baby (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -623,122 +739,6 @@ Kyle Culkin - Pork Chops & Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AFCF69D4C78B4AFE98D2CC83039321E2ECBBCEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473665   (1013482) от 30.05.2021
-
-Awek - Awek (2021) [FLAC|Lossless|WEB-DL|tracks] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Gonna Make It Through - 05:34
-02. Bring It On - 04:57
-03. She's All Mine - 04:57
-04. Smoking Mambo - 04:00(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 01:06:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07C2E3A342642DE6FAEE456DC9B752DC50E4C99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1474882   (1012718) от 04.06.2021
-
-Dayde - Dayde (1971) Unofficial Release [FLAC|Lossless|image + .cue] <Blues-Rock, Psychedelic Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Very Well (Part One) (2:01)
-02. Can I Live My Life (2:30)
-03. Confusion (3:11)
-04. See Here (3:31)(   Читать дальше...   )Жанр: Blues-Rock, Psychedelic RockПродолжительность: 00:39:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE37F8BB27880F34B80792B0D5095D7520EEFD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475108   (1012520) от 05.06.2021
-
-Eldon Backhouse And The Electric Blues Band - Portrait Gallery (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby Please Don't Go (3:20)
-02. Corrugated Iron (6:00)
-03. Parchman Farm (3:16)
-04. What a Shame (3:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55BA9ABEE0AFAB6C87251E2C7A3FFA83895A0D21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1475118   (1012515) от 05.06.2021
-
-Turner Cody and The Soldiers of Love - Friends in High Places (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boozing and Losing (3:22)
-02. The Four Thousand Dollar Days (2:51)
-03. Lonely Days in Hollywood (4:05)
-04. The Beginning (2:38)(   Читать дальше...   )Жанр: Blues FolkПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:319D11D4FC75E901D8E6D6091343187026EB8F49
 ```
 
 https://mybot314.ru/tekegram_catalog/

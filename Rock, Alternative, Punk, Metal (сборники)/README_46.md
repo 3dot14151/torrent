@@ -1,3 +1,61 @@
+###  Публикация: 1783667   (69747) от 07.03.2025
+
+Sin City - Compilation (2025) [MP3|320 Kbps] <Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Believe You [04:41]
+02. Hellectric [04:57]
+03. Riff Revolution [03:59]
+04. Tires On Fire [03:36](   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51D92140272BCA970A1C464E6D86E607D13F81A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789529   (68234) от 05.04.2025
+
+Misfits - Compilation (1979-2016) [MP3|320 Kbps] <Punk rock,  Horror punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kong At The Gates (Famous Monsters 1999)
+02. Where Do They Go (The Devil's Rain 2011)
+03. Where Eagles Dare (Night Of The Living Dead EP 1979)
+04. Scream (Famous Monsters 1999)(   Читать дальше...   )Жанр: Punk rock,  Horror punkПродолжительность: 02:40:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:723C2CB16ECB79F71524DE68FEA7C0D665C913E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795976   (66935) от 12.05.2025
 
 Black Stone Cherry - Compilation (2003-2025) [MP3|320 Kbps] <Hard rock, Southern rock>
@@ -688,64 +746,6 @@ VA - 100 Greatest Rock Songs (2024) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D94F28D81074D8ED4E63EE05886F9C943FB23406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754219   (40829) от 10.10.2024
-
-VA - Hard & Heavy (2024) [MP3|320 Kbps] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40829.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rob Zombie - The Man Who Laughs [09:44]
-002. Ratt - As Good as It Gets [04:38]
-003. The Cult - Dirty Little Rockstar [03:41]
-004. Heavy Heavy Low Low - Texas Chainsaw Mascer-Uh [01:15](   Читать дальше...   )Жанр: Hard RockПродолжительность: 07:11:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E049749F08E34E79F1869B4083743AA8B989E78E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754577   (40675) от 11.10.2024
-
-VA - Riffing To The Top (2024) [MP3|320 Kbps] <Rock, Hard Rock, Hardcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40675.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Saint Renascence - Reverend Of Hell
-002. Shayne Malone - Rock Tonight
-003. 3 Leaks, No Heat - Take Me In Your World
-004. Praying Mantis - I Surrender(   Читать дальше...   )Жанр: Rock, Hard Rock, HardcoreПродолжительность: 12:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C511DE8A3AF141693C403BB9AB1266EA2DA3F0A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

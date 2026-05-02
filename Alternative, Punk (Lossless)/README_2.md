@@ -1,3 +1,61 @@
+###  Публикация: 1299923   (1026731) от 12.03.2021
+
+The Paper Kites - Collection 5 Albums (2013-2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop, Folk, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026731.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2013 - States
+2015 - twelvefour
+2018 - On the Corner Where You Live(   Читать дальше...   )Жанр: Indie Rock, Indie Pop, Folk, Acoustic |Продолжительность: 03:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:850625B0BF160EC27C6B446F39ABEA61B650445A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1453645   (1026545) от 13.03.2021
+
+Evanescence - The Bitter Truth (2021) Scene [FLAC|Lossless|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artifact/The Turn (02:27)
+02. Broken Pieces Shine (03:50)
+03. The Game Is Over (04:22)
+04. Yeah Right (03:29)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E61BB14D2B967E94E82E5CBA16495940282A2AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455610   (1025637) от 19.03.2021
 
 Serj Tankian - Elasticity (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Alt. Metal, Experimental>
@@ -683,64 +741,6 @@ Lilith Czar (ex- Juliet Simms) - Created From Filth And Dust (2021) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A317642FD4E9493DF4133CC108DDD3AA7BB85AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465366   (1019047) от 26.04.2021
-
-Kaleo - Surface Sounds (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brother Run Fast (3:44)
-02. Break My Baby (4:26)
-03. Alter Ego (4:08)
-04. Free the Slave (4:08)(   Читать дальше...   )Жанр: Indie Rock, Blues RockПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BFD42E2EF81ADE9A8780C3F55BFC54C08644D3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465648   (1018920) от 27.04.2021
-
-The Offspring - Let The Bad Times Roll (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative, Pop Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is Not Utopia
-02. Let The Bad Times Roll
-03. Behind Your Walls
-04. Army Of One(   Читать дальше...   )Жанр: Alternative, Pop Punk RockПродолжительность: 00:40:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91EFC061F5503C81A521DDADC27DF59B5E350747
 ```
 
 https://mybot314.ru/tekegram_catalog/

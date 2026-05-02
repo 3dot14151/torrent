@@ -1,3 +1,206 @@
+###  Публикация: 1499169   (849649) от 01.10.2021
+
+Diaspora - Meditation (1998) [MP3|320 Kbps] <Native American, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_849649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Song of the Sun
+02. Chisy Muspuyalay
+03. Savry Nan
+04. May Yoe Walk in Sunshine(   Читать дальше...   )Жанр: Native American, EthnicПродолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2EF1DCFBC32628F5B6D580B04F2CF853CFF7E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111247   (848365) от 05.03.2017
+
+Adrian Von Ziegler - Moonsong (2016) [FLAC|Lossless|WEB-DL|tracks] <Celtic Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancient Storm [00:04:48]
+02. High Tide [00:04:01]
+03. Moonsong [00:03:36]
+04. Daydream Melody [00:02:10](   Читать дальше...   )Жанр: Celtic FolkПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B19CE20DC083C0290EF3C9D2D96D2DF3898C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111353   (848175) от 05.03.2017
+
+Vangelis - Delectus (1973-1985)  Remaster, 2017, Universal International Music, 13 CD Box Set [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848175.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vangelis - Come On (Remastered)
+02. Vangelis - We Are All Uprooted (Remastered)
+03. Vangelis - Sunny Earth (Remastered)
+04. Vangelis - He-O (Remastered)(   Читать дальше...   )Жанр: Electronic, Ambient, New Age |Продолжительность: 09:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D48D0F5A5ACED87D26947B9067D0B78D7726E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002499   (846832) от 01.04.2016
+
+Gelka - Stardust Memories (2015) [MP3|128 кб/с] <Electronica>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Have You Kept Your Ticket 04:06
+02 Flying Clouds (feat. Phoenix Pearle) 03:40
+03 These Days (feat. Sena) 03:53
+04 Inside Galaxies (feat. Phoenix Pearle) 03:50(   Читать дальше...   )Жанр: Chillout, Lounge, PopПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:203A489A4E12A0A854A4FAAC1B82D70A47801F67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378595   (846600) от 25.04.2020
+
+Atom Music Audio - Blood Crave (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craft of War [02:13]
+02. Blood Crave [01:52]
+03. Bleak Profecy [02:15]
+04. Dark Ritual [01:54](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:23:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A2EE74C6D5F8BC654620BAF9FD66DD8ED272350
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1378593   (846599) от 25.04.2020
+
+Atom Music Audio - Leviathan: Monster Themes (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wicked [02:35]
+02. The Freak [02:05]
+03. Megaprimatus [03:16]
+04. Creature [02:22](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:888537672FE146D2C9B9AC29DA00EE1FE5E05B44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111911   (846572) от 06.03.2017
+
+VA - Somewhere My Love: Romantic Guitar  (1995) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chet Atkins - Somewhere My Love (Lara's Theme From Dr, Zivago) (2:39)
+02. Laurindo Almeida - The Girl From Ipanema (2:30)
+03. Gregg Galbraith - Mack the Knife (Moritat) (2:23)
+04. Francis Goya - You Belong to My Heart (Solamente Una Vez) (3:07)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:58:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C9DA02FA91367EA57CA98109DC5772C1C569BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1378594   (846538) от 25.04.2020
 
 Atom Music Audio - Dystopia (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -539,203 +742,6 @@ Sacred Earth - Breathing Space (2014) [FLAC|Lossless|tracks] <New Age, Relax, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAD34DB1ABE4D0B35AB9EBF89332220F680015F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003651   (841687) от 04.04.2016
-
-Alice Gomez - Sleep Cycles of the Native American Flute (Over an Hour of Soothing Native Flute Melodies) (1998) [MP3|320 кб/с] <Native American, Ethnic Fusion, Meditation, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep Cycles of the Native American FluteЖанр: Native American, Ethnic Fusion, Meditation, New AgeПродолжительность: 01:01:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19587600545F4B69745A91C0A3AC124D005119F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003509   (841586) от 04.04.2016
-
-Hans Zimmer and Junkie XL - Batman v Superman: Dawn Of Justice (2016) 2CD, Deluxe Edition [FLAC|Lossless|image + .cue] <Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Lie (3:47)
-02. Their War Here (4:36)
-03. The Red Capes Are Coming (3:32)
-04. Day Of The Dead (4:02)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:31:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C2576C07FC415500A9321ED2DBB238092BE74E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003894   (841364) от 04.04.2016
-
-Armik - Romantic Spanish Guitar Vol. 1,2,3 (2014-2016) [MP3|320 кб/с] <Instrumental, Nuevo Flamenco, Acoustic Guitar>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing In The Clouds (4:19)
-02. Guitarra Poeta (4:21)
-03. Romance De La Luna (4:39)
-04. Lagrimas (4:49)(   Читать дальше...   )Жанр: Instrumental, Nuevo Flamenco |Продолжительность: 02:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4173075C4B5DB9F64AC278ACECCA5630A31723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378705   (840692) от 28.04.2020
-
-Nicholas Gunn - Pacific Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840692.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Into the Vastness	04:55
-2. And I	03:13
-3. Sailing	04:25
-4. Chasing the Light	04:23(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:40:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:401077FD743A38CC3E58D74BBBC9AAFC761C1899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003472   (840196) от 05.04.2016
-
-Alan Howarth - The Dentist 1-2 / Дантист 1-2 (1996, 1998) [MP3|320 кб/с] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dentist Theme (1 & 2 Combo)
-02. Toothache
-03. Not Again
-04. Perfect Fit(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DFBEB7FA3A3683C73688372F5374E656BA16D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757071   (839206) от 29.04.2020
-
-Diane Arkenstone - Jewel in the Sun (2002) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jewel in the Sun (6:35)
-02. Adrift (5:20)
-03. Under the Blue Sky (5:06)
-04. Beyond Borders (6:07)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94D5014C66120360BAB2BE692F0AB76967DCC90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113056   (838525) от 11.03.2017
-
-Bridget McMahon - Celtic Woman - Black Is the Colour (2016) Single [FLAC|Lossless|WEB-DL|tracks] <New Age, Vocal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_838525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celtic Woman Black Is the Colour [00:04:55]Жанр: New Age, VocalПродолжительность: 00:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C40C317F2219E9A2CBF795163D90DCB2A89B18
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1375956   (862271) от 16.04.2020
+
+Lagowski - Secret Of Numbers (2020) Zoharum [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RUR (07:06)
+ 02. Bomkele (08:50)
+ 03. Pulse (06:51)
+ 04. Huhu 5 mix 1b (12:20)(   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 01:16:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:508FE6CDF43DD89EDF9D6E3653E5320FE0608CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376405   (860616) от 17.04.2020
 
 VA - Best Of Disco Balls Records 2018, Pt. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-Disco, Indie-Dance, Jackin' House>
@@ -711,35 +740,6 @@ Super8 & Tab - Empire 10 (Part 2) (2021) Remixes [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA74E9E79D490092E660DA0E4038BED5C2523D09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501398   (836410) от 09.10.2021
-
-Stephan Bodzin - Boavista (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Techno, Minimal>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth (7:33)
- 02. LLL (6:52)
- 03. Astronautin (7:33)
- 04. Boavista (7:37)(   Читать дальше...   )Жанр: Tech House, Techno, MinimalПродолжительность: 02:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6166A474DA1D86358215A07E1291FB19908E55
 ```
 
 https://mybot314.ru/tekegram_catalog/

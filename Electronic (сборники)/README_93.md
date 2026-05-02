@@ -1,3 +1,61 @@
+###  Публикация: 1030845   (670478) от 02.07.2016
+
+VA - Loungers 2016 (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flashbaxx - Ampurdan (06:36)
+02. Ingo Herrmann - Mojito (03:55)
+03. Kulyela - Uprising (04:56)
+04. JetTricks - Atama's Ocean (04:04)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD8D5E64C01B0C7DC92FDFDDFB856FE7CE57A70B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031060   (670471) от 02.07.2016
+
+VA - Chill out Summer Sounds (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stars Over Foy - Until We Meet Again in Heaven - Vechigen Alternative Chillout Remix
+02. The Rex-Factor - Dog Ate My Shoe - Chill Mix
+03. Dr. J. James - Mind Peace - Healing Nature Mix
+04. Jamie Duvel - Gift of Magic(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:52:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:180FAE8609498683B704E64AC4B5C2C6A7F6420C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030826   (670252) от 02.07.2016
 
 DJ AFFecta - Dream About You (2016) [MP3|320 Kbps] <Deep House, House>
@@ -683,64 +741,6 @@ VA - Finest Electro House Music (2018) [MP3|320 Kbps] <Club, Dance, Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C915D15A40ED16D2DF3C4D5F2EE8AE9B56498B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1224026   (667174) от 09.05.2018
-
-VA - Psychedelic Chill Bass (2018) [MP3|256 Kbps] <DnB, Dubstep, Experimental>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Govinda - Try Again
-02. Wu Wei - Eternally Unfolding
-03. Templo - Deja
-04. Tipper - Lattice(   Читать дальше...   )Жанр: DnB, Dubstep, ExperimentalПродолжительность: 06:08:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81598CB05FAE139E3F88F4A84801808CAF1D1377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137705   (666784) от 27.05.2017
-
-VA - Psybreaks [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Psybreaks>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_666784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acidova & Too Dusty - Too Acid [07:12]
-02. Perpetual Present - Collision Course (Bear Moss Remix) [06:06]
-03. Magnus - Frozen Sun (Chris Voro Thumping Remix) [06:00]
-04. Tee-ex - Wonder (Retroid Remix) [05:21](   Читать дальше...   )Жанр: PsybreaksПродолжительность: 04:24:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94B9D2FA486D8AA0A9058425E7CDD2ACC59FED1
 ```
 
 https://mybot314.ru/tekegram_catalog/

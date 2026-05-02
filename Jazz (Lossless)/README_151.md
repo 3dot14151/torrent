@@ -1,3 +1,61 @@
+###  Публикация: 1045958   (553128) от 26.08.2016
+
+Fattburger - Time Will Tell (1989) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Put The Meat In My Bed (4:02)
+02. Oh Girl (4:10)
+03. Amazon (5:44)
+04. For The Father (1:14)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:065504C9C3BFD0929595A5749274AF50034230B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046177   (553125) от 26.08.2016
+
+Bobby Hutcherson - Un Poco Loco (1980) 1999, Koch Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Sailor's Song [04:45]
+ 02.Silver Hollow [04:13]
+ 03.Un Poco Loco [08:22]
+ 04.Love Song [04:39](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B07B3418378EA3D9DD1FA4CDEE1D55A775C0304D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046004   (553123) от 26.08.2016
 
 Christopher Hollyday - And I'll Sing Once More (1992) [FLAC|Lossless|image + .cue] <Jazz>
@@ -687,64 +745,6 @@ Toots Thielemans - The Soul of Toots Thielemans (1959) 2010, FSR [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17D603A74ACA8FDC40D9892DB875D917B9AF2542
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046838   (550361) от 29.08.2016
-
-Sadao Watanabe - Orange Express (1981) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Crossover Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Orange Express [04:39]
- 02.Ride On [04:42]
- 03.Call Me [05:08]
- 04.Good For All Night [06:36](   Читать дальше...   )Жанр: Post-Bop, Crossover JazzПродолжительность: 00:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30BAE24336F6E05129DE9B02F2872C87AC56F1B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047346   (550357) от 29.08.2016
-
-Nadiamori - Nadiamori Electro Jazz (2005) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lounge, Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nadiamori (04:30)
-02. Drum'n Blues (04:50)
-03. Money Back Guarant... (05:26)
-04. Free In Love (04:58)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Electro SwingПродолжительность: 00:40:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A8C059F13CFCD4A66527C3ED7EEAEEEB49F8A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

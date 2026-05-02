@@ -1,3 +1,32 @@
+###  Публикация: 1752033   (103972) от 28.09.2024
+
+Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Lossless|image + .cue] <Slamming Brutal Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Collapse 2:05
+02. Spatial Deformation 3:20
+03. Extraterrestrial Paradox 3:20
+04. Absolute Elimination of Existence 3:07(   Читать дальше...   )Жанр: Slamming Brutal Death MetalПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77DCCC215C954FD2E85F0E3A093C2B5304FF8010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756396   (103499) от 20.10.2024
 
 Beorn - Time To Dare (2015) [FLAC|Lossless|image + .cue] <Symphonic Power Metal>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBD01FFC9B4D77621065CC9FF434DBB6E8C6FC58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822147   (100847) от 05.10.2025
-
-Адаптация Пчёл - Остановка Май (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По условиям любви [00:03:19]
-02. Панама [00:03:16]
-03. Я звонил и узнавал [00:04:09]
-04. Улица Есенина [00:04:03](   Читать дальше...   )Жанр: Alternative Rock, ElectronicПродолжительность: 00:40:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8620F816DC10110CCDC037953EA84CD6C4B6EB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

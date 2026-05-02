@@ -1,3 +1,119 @@
+###  Публикация: 1802666   (66025) от 18.06.2025
+
+Fred Hostetler - Blues Back Pages (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hey Corporate Vandals (3:22)
+02.  Your Mind Is on Vacation (4:15)
+03.  Taming the Wolf (7:13)
+04.  Deep Deep Well (5:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294CFA61F8239B254C910B8CF5927DE30A99585C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802672   (66024) от 18.06.2025
+
+Leo Cookman - Everyone Left (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You Don't Know (3:44)
+02.  In Mine (3:26)
+03.  Let Her Go (3:09)
+04.  Sleeping Dogs (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66A3A70A4397936A2CE5BBB383118092190A8A7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802659   (66023) от 18.06.2025
+
+David Cooper - David Cooper (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66023.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  On My Way Back Home (3:56)
+02.  Shine On (4:01)
+03.  This Rain's Just Passing Through (3:30)
+04.  We Give You Praise (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E596BEDFB50AADBDDF24E14AC28AF58D9606D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802671   (66022) от 18.06.2025
+
+Kjartan Hesthagen, Ledfoot, Markus O. Klyve, Tim Scott McConnell - Plain Simple Honesty (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66022.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  All You Ever Had (4:10)
+02.  Plain Simple Honesty (3:48)
+03.  My Empty Heart (4:57)
+04.  Burning Blue (2:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1F04359E2C1D883773CA6549477454AD149AC1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802652   (66021) от 18.06.2025
 
 Clementine Moss - Clem & Clearlight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ The Alexis P. Suter Band - Just Stay High (2025) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84907CD659A128EC068C8AD03FE985B07952DFA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805072   (65524) от 03.07.2025
-
-Tim O'Brien, Jan Fabricius - Paper Flowers (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Atchison (3:14)
-02.  Fat Pile of Puppies (3:00)
-03.  Hungry Heart (3:04)
-04.  Paper Flowers (4:23)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA12E03F1A3F84CE01563B6E2E0B517F815CED1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805063   (65523) от 03.07.2025
-
-Mick Simpson - Changing Times (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Louisiana 1927 (4:37)
-02.  Deeper Than the Blues (3:29)
-03.  Fall Back Down (3:37)
-04.  Changing Times (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:445E583A9A7504E2669C7EC152E9EB3274BDA467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805056   (65522) от 03.07.2025
-
-Gina Coleman - Unequivocally Blue (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65522.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  No More To Give (4:37)
-02.  Days Gone By (3:21)
-03.  Unequivocally Blue (3:09)
-04.  Let Them Blues (3:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:885E3949DAD2CCCE0162948C6E44E216FC773FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805066   (65520) от 03.07.2025
-
-Sugar Blue - Cross Roads (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Another Man Done Gone (2:19)
-02.  War Zone (4:41)
-03.  Shed No Tears (3:12)
-04.  Who's Been Talkin' (6:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61C58B323825700744789BC0A7FFF30D6450DB8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

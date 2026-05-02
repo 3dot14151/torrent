@@ -1,3 +1,61 @@
+###  Публикация: 1029521   (680353) от 27.06.2016
+
+VA - The Best of Trance 47 (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen & Envy -  Ulysses (Original Mix) 7:53
+02. VEIZO -  Devotion (Original Mix) 8:11
+03. Valerio Reali -  Southpaw (Original Mix) 6:56
+04. John Sander -  Filling Hearts (Original Mix) 7:09(   Читать дальше...   )Жанр: TranceПродолжительность: 03:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67C70F589A2F6D05B58CF3B9C2B375F6FD2C11A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029556   (680352) от 27.06.2016
+
+VA - Trance Hot June Paradise (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ReOrder -  Sky Harbour (Allen Watts Extended Mix) 6:59
+02. Brian Magix Ft Jess Morgan -  things that shine (original mix) 6:15
+03. Giuseppe Ottaviani & Orkidea -  North Star (Extended Mix) 6:43
+04. Yuri Kane & Ana Criado -  Running Wild (Liam Wilson Remix) 6:33(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 03:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8339ABF974C2BAF03E6BAC56F984A2CC0C717047
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290202   (680306) от 19.03.2019
 
 VA - YR Best Chillout Vol.43 (2019) [MP3|320 Kbps] <Downtempo, ChillOut, Relax>
@@ -681,64 +739,6 @@ VA - Nude Mix #4 (2016) [MP3|320 Kbps] <Drum & Bass, Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0934B339F826E98CA2FC1C9204CCAC551573D38B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290596   (678252) от 20.03.2019
-
-VA - Running Workout 2019 [MP3|320 Kbps] <House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flo Rida - GDFR (feat. Sage The Gemini & Lookas)
-02. Galantis - Peanut Butter Jelly
-03. Clean Bandit - Solo (feat. Demi Lovato)
-04. Anne-Marie - 2002(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A9CB36CC58C5F5437B23B1BB66BFF931C8D1EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290496   (678238) от 20.03.2019
-
-VA - YR Best Chillout Vol.38 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ATB - Feel Like Me (R.I.B & Soty Chillout Version) 1:35
-02. FATE - Black Magic (Original Mix) 3:00
-03. Katy Perry - Rise (Acoustic Version) (Ali Brustofski Сover) 3:16
-04. Ana Criado - Vulnerable (Nowhere To Hide) (Mark Otten Downtempo Remix) 5:02(   Читать дальше...   )Жанр: Chillout, Downtempo, Lounge, Trap, AmbientПродолжительность: 06:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:323DA300B372035F1942E7ADFC8715397C37696B
 ```
 
 https://mybot314.ru/tekegram_catalog/

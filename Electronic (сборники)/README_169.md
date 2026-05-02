@@ -1,3 +1,61 @@
+###  Публикация: 957776   (326712) от 18.11.2015
+
+VA - A Smile and a Tear Best Chillout (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Magical Corner - Laguna
+02. Logophilia - Igualmente
+03. Hannes Im Glьck - Ach und Lach
+04. Mind Conventions - Sweet Fever(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64DE6E9B0AF061F1AAEE24BEE28B484B0D97541
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958031   (324998) от 20.11.2015
+
+VA - White Sunset - 20 Smooth Sexy and Relaxing Chillout Tunes - Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deja-Move - Sweetdub - Original Mix
+02. Mr. V - Sunset Landscapes - Original Mix
+03. Shakra - Earth Song - Original Mix
+04. Jen - Asleep - Album Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45E5E89F4A8D5F503E243467EDE81BACE3F3FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958646   (324035) от 21.11.2015
 
 VA - Winterzeit Chillout and Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -699,64 +757,6 @@ VA - Best Of Trance Victory (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Emot
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C01CF8AC8C52243BC767DB4365454DD582856ED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959133   (319489) от 23.11.2015
-
-VA - White Chill-Out Vol 3 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dennis Bailey - Kafan - Radio Edit
-02. Bastian Clark - Take a Break - Original Mix
-03. Chuck Mertens - Moshy - Original Mix
-04. Alec Gonzalez - Lia - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA86EFC93FB61EAF6CB5FFE2296F51FEECB54C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959159   (319487) от 23.11.2015
-
-VA - Bermuda Island: Uplifting Vocal Trance (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319487.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jennifer Rene, Somna - Back to Life (Original Mix) 07:01
-002. Ana Criado - Arms Of Surrender - Original 06:13
-003. Special - Express To Callisto (Stella Project Remix) 09:24
-004. Stephane Badey & DJ T.h. With Eva Kade - Checkmate (Denis Sender Radio Edit) 03:23(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 09:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32FBA142369DBA2A31835673039F501EF1F32B25
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,235 @@
+###  Публикация: 1413020   (411894) от 02.10.2020
+
+VA - Heartbreak Hits (2020) [FLAC|Lossless|WEB-DL|tracks] <Pop, Pop-Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Justin Bieber - That Should Be Me (Album Version) (3:52)
+02. Dean Lewis - Waves (4:00)
+03. OneRepublic - Apologize (Album Version) (3:26)
+04. Whitley - More Than Life (2:55)(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 01:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:084CEC7DEF07994B89632AA4BDC3AEC438512F72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948624   (411403) от 20.10.2015
+
+VA - Guilty Pleasures|The Songs You Secretly Love (2011) 2CD [FLAC|tracks + .cue]<Synth-pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Electric Light Orchestra - Sweet Talkin' Woman (3:49)
+02. Daryl Hall & John Oates - Private Eyes (3:36)
+03. The Steve Miller Band - Abracadabra (3:40)
+04. Laura Branigan - Self Control (4:05)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 02:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B2B9C6D0B07198C231D53CC5FBE866377754C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 948598   (411262) от 20.10.2015
+
+Maroon 5 - Singles (2015) [FLAC|tracks|WEB-DL]<Pop, Pop Rock, Soft Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Love (2002) - 3:27
+02. Payphone (feat. Wiz Khalifa) (2012) - 3:51
+03. She Will Be Loved (2002) - 4:14
+04. One More Night (2012) - 3:39(   Читать дальше...   )Жанр: Pop, Pop Rock, Soft RockПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99983FBFEEA6E439B27775F16CA93FE7B7F0B9A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251752   (410979) от 04.10.2018
+
+VA - Latin Party Hits 2018 [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Latin>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Alicata feat. Giuseppe Alicata - Tu sei la mia vita (Radio Version)
+02. Loona - Summer of Love (Dance Mix)
+03. Outatime - Last Night a DJ Saved My Life (Coma's Danceton Remix)
+04. Ferry G - Bailar Vida (Radio Edit)(   Читать дальше...   )Жанр: Pop, Dance, LatinПродолжительность: 03:02:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530CF13AD5DADF40C2415D6EFD752D7BFD4785C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1168263   (410353) от 23.09.2017
+
+Fergie - Double Dutchess (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hungry (feat. Rick Ross)
+02. Like It Ain't Nuttin'
+03. You Already Know (feat. Nicki Minaj) (Interlude Version)
+04. Just Like You(   Читать дальше...   )Жанр: PopПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA49AA2576545E221EF97FD7B31F7F194301B47E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413303   (410002) от 03.10.2020
+
+Robson Green - Moment In Time (2002) [FLAC|Lossless|image + .cue] <Rock, Pop Rock, Folk Rock, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410002.jpg" />
+</div>
+
+
+###  Подробнее
+
+[3:13] 01. Love Hurts
+[3:31] 02. Make It With You
+[3:18] 03. Me And Mrs. Jones
+[3:45] 04. If Tomorrow Never Comes(   Читать дальше...   )Жанр: Rock, Pop Rock, Folk Rock, BalladПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62F36DC1CA284E146E27FDC937AAC1D90FAAD061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066947   (409759) от 27.10.2016
+
+Oonagh - Märchen enden gut (2016) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Ethno-Pop, Pop-Folk>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409759.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aulë und Yavanna (3:36)
+02. Numenor (3:44)
+03. Das Mädchen und die Liebe (feat. Santiano) (2:56)
+04. Niënna (3:35)(   Читать дальше...   )Жанр: Pop, Folk, World, Ethno-Pop, Pop-Folk, Ethnic Fusion, Celtic, Fantasy MusicПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DEEB14C4531832D3BC4D7F90449D3D13493F2D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066878   (409757) от 27.10.2016
+
+Christina Aguilera - Stripped (2002) [APE|Lossless|image + .cue] <Pop, RnB, Pop Rap>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409757.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stripped (intro)
+02. Christina Aguilera feat. Lil’ Kim / Can't Hold Us Down
+03. Walk Away
+04. Fighter(   Читать дальше...   )Жанр: Pop, RnB, Pop RapПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BC38AF21E897F81A59C6E8A5E33F0335D38B7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252244   (409085) от 05.10.2018
 
 VA - Italian Lover Sexual Hits (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Pop>
@@ -514,238 +746,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7531EAC15FB0A811D5FC0F3EC291FA9A16FF3AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 718401   (389260) от 03.11.2013
-
-Katy Perry - Prism (Deluxe Edition) (2013) Capitol Records [FLAC 2.0 44.1/24|WEB-DL]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_389260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roar (03:43)
- 02. Legendary Lovers (03:44)
- 03. Birthday (03:35)
- 04. Walking on Air (03:42)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2235A9C1DE285870F81937B58BD892B2FA3E1F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173945   (388804) от 13.10.2017
-
-Pink (P!nk) - Beautiful Trauma (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388804.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beautiful Trauma (4:10)
-2. Revenge (3:46)
-3. Whatever You Want (4:03)
-4. What About Us (4:30)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF9C53B1E07CBEF76A60B3D8E6884AC52F2568A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252718   (388020) от 07.10.2018
-
-Vicki Brown - Lady Of Time (1989) [FLAC|Lossless|image + .cue] <Pop,  Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388020.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Just For You. Music By – Brahms
-2.	To Me You Are So Beautiful Written-By – A. Lee, J. Brown
-3.	Sunflower. Written-By – Smith , Chappelle , Taylor
-4.	Jesu, Joy Of Man's Desiring.   Music By – Bach(   Читать дальше...   )Жанр: Pop,  ClassicalПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D0FB9840A19A7813D7B50068EF9ACC0E1C8FF85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252732   (387907) от 07.10.2018
-
-Vicki Brown - Vicki Brown (1987) [FLAC|Lossless|image + .cue] <Pop,  Classical>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387907.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Look At Me
-2.	Once Again
-3.	Can't Let Go
-4.	Plaisir D'Amour(   Читать дальше...   )Жанр: Pop,  ClassicalПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:223A4325BF877F2D181DF49D010AB045E001EB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067613   (387379) от 29.10.2016
-
-Madness - Can’t Touch Us Now (2016) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Touch Us Now 04:13
-02. Good Times 02:54
-03. Mr. Apples 03:39
-04. I Believe 03:44(   Читать дальше...   )Жанр: PopПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50836888C1582F81F460859F7E4D107DFC86CD95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067705   (387377) от 29.10.2016
-
-Andy Williams - Reflections (1977) Compilation [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387377.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Moon River
-2. Sad
-3. Both Sides Now
-4. Home Lovin' Man(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10332C3F7ECBF3EC3904A85703C3E337CEE5AB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326261   (387303) от 19.09.2019
-
-Mabel - High Expectations (2019) [FLAC|Lossless|tracks + .cue] <Pop, R&B, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387303.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 High Expectations (Intro) 1:29
-2 Bad Behaviour 3:26
-3 Don't Call Me Up 2:58
-4 FML 3:13(   Читать дальше...   )Жанр: Pop, R&B, DanceПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4EF6779B6D10FAC2BDB586BE0FF7D02CC4A8C42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067459   (387128) от 29.10.2016
-
-Empire Of The Sun - Two Vines (2016) [FLAC|Lossless|tracks] <Electropop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_387128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before
-02. High and Low
-03. Two Vines
-04. Friends(   Читать дальше...   )Жанр: Electropop, Indie PopПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45497817D5451C603D6AB9CB6163D02B5907AC56
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1613937   (1039135) от 20.02.2023
+
+Sonny Rollins - Work Time (1955) 2004, Prestige [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. There's No Business Like Show Business [6:20]
+02. Paradox [4:59]
+03. Raincheck [6:02]
+04. There Are Such Things [9:29](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11E39A1DAE35190276033F0CFEDCBB96306968F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613965   (1039104) от 20.02.2023
+
+Bobby Watson - Advance (1984) 1997, Enja [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. But Not for Me [10:16]
+02. Karita [8:05]
+03. Round Midnight [7:58]
+04. You're Lucky to Me [5:15](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D54D0D255E2165991E8586B86DD2963F3EA9AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440419   (1038855) от 17.01.2021
 
 Nat King Cole - Just One Of Those Things (1957) 2011, Analogue Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Buddy Rich - Time Out (1977, 1978) 2007, Lightyear [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8A0296441648DDA7EE0BD52437CE6BB7FB3A83F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615770   (1037292) от 27.02.2023
-
-Sophie Milman - Her Very Best... So Far (2013) Linus Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agua de Beber (Water to Drink) [3:58]
-02. I Concentrate on You [4:19]
-03. Speak Low [4:28]
-04. Be Cool [4:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B016263B00C0D2C76C6A1F1FB84AC50149E26425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615614   (1037288) от 27.02.2023
-
-VA - Chilly Intimate Love Smooth Playlist for You & Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening, Lounge>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Riding on a Cloud (5:15)
-02. Kool&Klean - Sunrise (5:12)
-03. Konstantin Klashtorni - Humble and Kind (4:06)
-04. Chillaxonic - Iridescent (5:09)(   Читать дальше...   )Жанр: Smooth Jazz, Easy Listening, LoungeПродолжительность: 02:16:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:525914E0AE1068E7749EA1518BBC51A7C5025487
 ```
 
 https://mybot314.ru/tekegram_catalog/

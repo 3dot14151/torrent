@@ -1,3 +1,61 @@
+###  Публикация: 1063194   (437262) от 15.10.2016
+
+VA - Beatport Top 100 EDM Songs & DJ Tracks September (2016) [MP3|320 Kbps] <House, EDM, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437262.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Groove Armada - Superstylin' (Riva Starr Edit)
+002. Kolsch - Grey (Original Mix)
+003. Leandro Da Silva - I Love House Music (Club Mix)
+004. Raumakustik - Dem A Pree (Patrick Topping Remix)(   Читать дальше...   )Жанр: House, EDM, Deep HouseПродолжительность: 10:41:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C582C599D15E78884DD1B96A96A163086F7EE615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164997   (437239) от 11.09.2017
+
+VA - Empire Records - Chill Out 12 (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arnold T - Summertime Sadness
+02. E-motive - Street Waves
+03. Gt 55 - Red Color (Gray Clouds Mix)
+04. Miper - Hide(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D90A90E3780D7231BC76AF9DB55CE99615F96AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945330   (435993) от 09.10.2015
 
 VA - Trance Desire Volume 56 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
@@ -696,64 +754,6 @@ VA - Beatport Techno September (2016) [MP3|320 Kbps] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:631913E3613090E1EB94B067C591776F92F4B44B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063839   (430357) от 18.10.2016
-
-VA - Progressive Trap House: October Mix (2016) [MP3|320 Kbps] <Progressive House, Electro, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430357.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Simon Sim's & Tymers - I Feel You (Extended Mix) (feat. Luny)
-002. The Aston Shuffle - Make A Wrong Thing Right (Dom Dolla Remix)
-003. Afrojack & Fais - Used To Have It All
-004. Ibiza Bitches - Be Happy (Radio Version)(   Читать дальше...   )Жанр: Progressive House, Electro, ClubПродолжительность: 05:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3988CE8FB580F07F62E5E33F804EC735EB523996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165768   (430295) от 14.09.2017
-
-VA - Music for Your Car Vol.6 (2017) [MP3|256-320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430295.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Flying Decibels – The Road
-02. Kygo & Selena Gomez – It Ain’t Me
-03. Tujamo – Make U Love Me (Diplate & Hang Mos Radio mix)
-04. DLMT & Ellis – How Does It Feel (ft. AWR)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:32:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D60D79D40FEE20A54E77D7DA39D02CC63E0C906
 ```
 
 https://mybot314.ru/tekegram_catalog/

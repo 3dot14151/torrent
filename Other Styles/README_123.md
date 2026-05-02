@@ -1,3 +1,212 @@
+###  Публикация: 951522   (363296) от 29.10.2015
+
+Ottmar Liebert - Waiting n Swan (2015) [OGG| 459-495 кб/с]<Instrumental, Acoustic Guitar, Reggae, Tangos Flamenco, Covers>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Is This Love (Li Mo Mix)
+02. Heart Still / Beating (Reggae Version)
+03. Swan
+04. Could You Be Loved(   Читать дальше...   )Жанр: Instrumental, Acoustic Guitar, Reggae, Tangos Flamenco, CoversПродолжительность: 00:56:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E3260C5DDE5C95506F9D01FDC792E7C2BE9330C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 575642   (363215) от 17.11.2012
+
+Ennio Morricone - So Sweet,So Sensual Erotica Morricone (2004) [MP3|320 кб/с]<Instrumental, Music for sex, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mariangela E La Seduzione
+02.Sauna
+03.Gocce Di Pioggia
+04.Terrazza
+05.Quella Donna
+06.L'assoulto Naturale
+07.Come Un Madrigale
+08.Sospesi Tra Le Nuvole
+09.Piume Di Cristallo
+10.Come Un Miracolo(   Читать дальше...   )Жанр: Instrumental, Music for sex, SoundtrackПродолжительность: 00:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B09F10E507120504C41B31066599BE56D3065BAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328533   (363108) от 30.09.2019
+
+Angel Olsen - All Mirrors (2019) [FLAC|Lossless|tracks + .cue] <Indie Folk, Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lark (06:18)
+02. All Mirrors (04:42)
+03. Too Easy (02:57)
+04. New Love Cassette (03:26)(   Читать дальше...   )Жанр: Indie Folk, Dark FolkПродолжительность: 00:48:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:774461401C84D2746F094EA401E7F88DAC3AB57A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951361   (363067) от 29.10.2015
+
+Govi - The High Road (2015) [FLAC|Lossless]<New Age, New Flamenco>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Passage To Paradise
+02. The High Road
+03. Almeria
+04. Cabriolet(   Читать дальше...   )Жанр: New Age, New FlamencoПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322F6B260A2CEF84DE8C5DD3C2B4D9D662077936
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1071064   (361674) от 09.11.2016
+
+VA - Acoustic 90s Covers (2016) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - Torn
+02. Anjali Joseph - Angel
+03. Thom Cooper - Scar Tissue
+04. Meg Birch - I Wouldn't Believe Your Radio(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 00:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59FF69E961D66C545DE8764AA67C09BC3C825B65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070841   (361664) от 09.11.2016
+
+Taylor Davis - Odyssey (2016) [MP3|320 Kbps] <Instrumental, Soundtrack>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361664.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй альбом собственных композиций Taylor Davis.01. Gateway (3:17)
+02. The Summit (3:29)
+03. Wilderness (3:10)
+04. Hunter's Frontier (4:06)(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 00:43:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A83D03DBDEF41F5D7009B094C0CAB6026BF8465
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328638   (361019) от 01.10.2019
+
+Longhouse - Native Chants (2019) [MP3|192 Kbps] <Native American, World, Folk>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Warrior Is Born
+02. The Guardian
+03. The Wisdom of One
+04. Grandfather's Teaching(   Читать дальше...   )Жанр: Native American, World, FolkПродолжительность: 00:55:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D9D5D5B40AFD8C014157408AABA3487E1990C1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416392   (360369) от 19.10.2020
 
 Yoga Music Masters - Life Balance Meditations (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -558,209 +767,6 @@ Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Moti
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B767A3CC194821AD9B66AB0F3AAE46D3BDEE2D47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329071   (356637) от 03.10.2019
-
-Brian Tyler - The Devil We Know / Дьявол, которого мы знаем (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devil We Know (02:15)
-02. The Devil We Know Main Title (03:11)
-03. Liable Motion (05:17)
-04. The Voice Of The EPA (02:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5219B60E23FB76262FAAC490F0083FBD29E436F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329102   (356636) от 03.10.2019
-
-Jуhann Jуhannsson - The Theory of Everything / Вселенная Стивена Хокинга (Original Motion Picture Soundtrack) (2014) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cambridge, 1963 (01:42)
-02. Rowing (01:42)
-03. Domestic Pressures (02:37)
-04. Chalkboard (01:05)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF3EBAD0FDC86A95BF2ABEB1EC85E41732D791F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329090   (356632) от 03.10.2019
-
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356632.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010B545F1DADF20478E467A6567FE3A5D215594D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329084   (356631) от 03.10.2019
-
-Brian Tyler & John Carey - Escape Room / Клаустрофобы (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escape Room (03:40)
-02. Escape Room (Madsonik and Kill The Noise Remix) (03:52)
-03. The Invitation (04:43)
-04. Coaster (05:08)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80C8CD68B55419531012CF4FC6D129C685A5F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329091   (356630) от 03.10.2019
-
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356630.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B893CFE9751C9CE235E3DE209EA28A3A9731B45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256459   (356560) от 21.10.2018
-
-Jennifer Thomas - The Fire Within (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fire Within (feat. The Rogue Pianist)
-02. Awakening
-03. Girl in the Mirror
-04. Rise of the Phoenix(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:153642211E77EF2B11516D4D18EA5CB2691343DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1329092   (356504) от 03.10.2019
-
-Hildur Gudnadottir, Johann Johannsson - Mary Magdalene / Мария Магдалина (Original Motion Picture Soundtrack) (2018) [FLAC 2.0|24/48|tracks|WEB-DL] <Soundtrack>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356504.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Cana (01:40)
-002. The Mustard Seed (02:11)
-003. The Dress (01:31)
-004. Messiah (03:37)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09E3C8667E81CF36489939735230CC69E3E6BDE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

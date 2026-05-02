@@ -1,3 +1,32 @@
+###  Публикация: 1050871   (536368) от 09.09.2016
+
+The Beatles - Live At The Hollywood Bowl (1977) Remastered, 2016, Universal [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый альбом — это переиздание диска 1977 года, в который вошли записи трёх шоу, состоявшихся в 1964 и 1965 годах. В новую версию попали четыре ранее не издававшиеся песни. Пластинка вышла в поддержку нового документального фильма о The Beatles. Картина «Eight Days a Week: The Touring Years» рассказывает о жизни ливерпульской четвёрки в период с 1962 по 1966 год.01. Twist And Shout (1965)
+02. She's A Woman (1965)
+03. Dizzy Miss Lizzy (1965)
+04. Ticket To Ride (1965)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B117FA31C97CB4D464B7E3EC56208F78C7B2502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051126   (534368) от 10.09.2016
 
 VA - Absolute Rock Ballads Classics (2001) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Pop Rock, Classic Rock>
@@ -719,35 +748,6 @@ Jimmy Barnes - Best Of The Soul Years (2015) [MP3|320 кб/с]<Rock, Soul, Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F497AFC6512E86B75DCCB53041E2470472BB7019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928564   (522526) от 16.08.2015
-
-Tito & Tarantula - Tarantism (1997) Remastered /2015/ [MP3|320 кб/с]<Rock, Blues Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Dark (3:44)
-02. Smiling Karen (4:01)
-03. Slippin' & Slidin' (3:44)
-04. Strange Face (5:40)(   Читать дальше...   )Жанр: Rock, Blues Rock, Southern RockПродолжительность: 00:54:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B115E107350F4CA39193A19B9708D0C5B6BA58A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

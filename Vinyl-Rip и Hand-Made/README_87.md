@@ -1,3 +1,176 @@
+###  Публикация: 1791908   (67768) от 17.04.2025
+
+Jimi - Джими (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67768.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 You Wanna Love Me • Ты Снова Хочешь Меня Любить
+A2 Everybody Knows • Всем Известно
+A3 Bad Girl • Плохая Девчонка
+A4 I Feel The Heat Of The Night • Я Чувствую Жар Ночи(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D87B9C631605660766791C2BDC4A3E6F87046EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791357   (67762) от 17.04.2025
+
+Nightwish - Human. :||: Nature. (2020) [DSD128|tracks|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Music
+02. Noise
+03. Shoemaker
+04. Harvest(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:21:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A9D05148E448F7B57F62B866C2D20A315C7588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791405   (67759) от 17.04.2025
+
+Manowar - Fighting the World (1987) Reissue, 2018, Metal Blade Records [FLAC|24/96|tracks|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67759.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Fighting The World
+A2 Blow Your Speakers
+A3 Carry On
+A4 Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94EE362D7BB4F8975E2E84D7050B8705647A7EBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791931   (67757) от 17.04.2025
+
+Damnation Plan - Studio Albums (3 releases) (2013-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Melodic Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67757.jpg" />
+</div>
+
+
+###  Подробнее
+
+Damnation Plan - метал-группа из Эспоо, Финляндия, образована в 2004 году.2013 - The Wakening
+2017 - Reality Illusion
+2023 - The New HorizonЖанр: Progressive/Melodic Groove MetalПродолжительность: 02:25:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1683E08EECD22897B0BC9C3A35ACCEB85624A8BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791741   (67756) от 17.04.2025
+
+Soulfly - Soulfly (1998) [DSD128|image|Vinyl-Rip] <Thrash Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67756.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1-Eye For An Eye
+A2-No Hope = No Fear
+A3-Bleed
+A4-Tribe(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DCF9F0D8C0D076FDFEDBBC808DAA98297268B6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791398   (67753) от 17.04.2025
+
+Fear Factory - The Industrialist (2012) Reissue, 2023, Nuclear Blast Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67753.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - The Industrialist
+A2 - Recharger
+A3 - New Messiah
+B1 - God Eater(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 01:16:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A54E354492DA761104DFEF7EF8216CCC5FE4127B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791728   (67752) от 17.04.2025
 
 Brainstorm - Ambiguity (2000) Reissue, 2023, Atomic Fire [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy, Power Metal>
@@ -569,178 +742,6 @@ A4 Spaceball Ricochet(   Читать дальше...   )Жанр: Classic Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87504053DF098095672B8E3DCE58F715D5140216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792958   (67499) от 24.04.2025
-
-Soulfly - Primitive (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67499.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Back To The Primitive
-A2. Pain
-A3. Bring It
-A4. Jumpdafuckup(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 00:52{33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA8B0D0700FFB19EC69B448304603F53A3E0990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792937   (67498) от 24.04.2025
-
-Samael - Blood Ritual (1992) Reissue, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67498.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Epilogue
-A2 Beyond The Nothingness
-A3 Poison Infiltration
-A4 After The Sepulture(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECCF188262971A46E1F542335356873E7D982DE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793414   (67497) от 24.04.2025
-
-System Shock - Studio Albums (3 releases) (2004-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67497.jpg" />
-</div>
-
-
-###  Подробнее
-
-System Shock - группа из Норрчёпинга, Швеция. Основана в 2003 году.2004 - Arctic Inside
-2006 - Escape
-2008 - Urban RageЖанр: Melodic Death MetalПродолжительность: 02:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC6080A6E0A9083B2BBB289CB07A8EE4AF827E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793246   (67496) от 24.04.2025
-
-Hilastherion - Studio Albums (3 releases) (2007-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67496.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hilastherion - метал-группа из Ваасы, Финляндия, основана в 2003 году.2007 - Taken From Darkness
-2014 - Signs Of The End
-2019 - Psalm 59 (EP)Жанр: Melodic Death MetalПродолжительность: 02:21:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F29F081AB93076B68DF849FC02E47D19B6AEA357
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793385   (67494) от 24.04.2025
-
-Darkness By Oath - Studio Albums (4 releases) (2005-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Darkness By Oath - испанская метал-группа. Основана в 2002 году в г. Аррасате.2005 - Confidential World Of Lies
-2009 - Fear Yourself
-2012 - Near Death Experience
-2014 - Seeds Of DesolationЖанр: Melodic Death MetalПродолжительность: 02:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9CC669AC4F7ED6ACA7CC188939FC64EB106332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792906   (67493) от 24.04.2025
-
-Fractal Gates - Studio Albums (4 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67493.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fractal Gates - французская метал-группа, образована в Париже в 2007 году.2009 - Altered State Of Consciousness
-2013 - Beyond The Self
-2018 - The Light That Shines
-2024 - One With DawnЖанр: Progressive Melodic Death MetalПродолжительность: 03:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB10FA859A3C6C71F719489FD8DD642742800F85
 ```
 
 https://mybot314.ru/tekegram_catalog/

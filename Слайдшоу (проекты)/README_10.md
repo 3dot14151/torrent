@@ -1,3 +1,29 @@
+###  Публикация: 1096381   (920413) от 23.01.2017
+
+Проекты - Motion Array - Lovely Slideshow - 23920 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920413.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lovely Slideshow - это прекрасный проект для создания удивительно-красивого слайд-шоу, которое можно применить для начального видео, презентации, или свадебного видео-альбома.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D35508E8DEB0643CF9856D47AF7B9DFD0C8F8D50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988694   (920397) от 20.02.2016
 
 Проекты - VideoHive - Clean Corporate Slideshow [AEP]
@@ -653,35 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D1FA292F68C30966CC528C50D78250B94326080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757869   (915293) от 17.02.2014
-
-Videohive - Timeless Memories - 3829010 [AEP]
-
->>След.
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915293.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый романтический проект на фоне листопада.
-Возможности;
- - 3 min 10 sec long animation;
- - 15 Place holders (All after effects so you can resize and increase the number);(   Читать дальше...   )Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C4A7405DB639CE792C847380B05E8047B286999
 ```
 
 https://mybot314.ru/tekegram_catalog/

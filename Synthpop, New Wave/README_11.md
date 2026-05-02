@@ -1,3 +1,32 @@
+###  Публикация: 1342077   (227221) от 30.11.2019
+
+Harry Thumann - Andromeda (1982) LP [MP3|320 Kbps] <Electronic, Rock, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andromeda (7:50)
+02. I'm Happy To Be In The Sun (5:32)
+03. Out Of Tune , Welcome Back, Jolette (7:28)
+04. Bitch (3:38)(   Читать дальше...   )Жанр: Electronic, Rock, Synth-popПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:842578BB8B8146B5766DA4A3924198321AB9C4B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1513166   (227212) от 27.11.2021
 
 VA - Созвездие хитов: Synthesizer Hits. Vol. 1 (2006) [MP3|320 Kbps] <Synthpop>
@@ -716,35 +745,6 @@ Neuroklast - 2 Albums (2021-2022) [MP3|320 Kbps] <Electro-Industrial, Cyberpunk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76E509D0951746E0420A288D2B9E0F5D2D9619D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666064   (178929) от 05.10.2023
-
-Alexey Teplykh - Different Styles (2023) [MP3|320 Kbps] <Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Simply the Best Hit [00:04:56]
-02 - Through the Flickering Stars [00:04:41]
-03 - From the Morning to the Dark [00:04:11]
-04 - Lonely Moon [00:03:53](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6C833B48E9FD29EB0ED2EBA688F6178E9F23C1C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,70 @@
+###  Публикация: 508605   (677062) от 11.06.2012
+
+Steve Von Till - 3 albums (2000-2008) [FLAC|Lossless] <Acoustic, Neofolk, Ambient>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Grave Is A Grim Horse (04:02)
+02. Clothes Of Sand (02:30)
+03. The Acre (03:28)
+04. Willow Tree (03:42)
+05. Valley Of The Moon (06:27)
+06. The Spider Song (03:25)
+07. Looking For Dry Land (06:42)
+08. Western Son (04:46)
+09. Brigit's Cross (04:12)
+10. Promises (03:06)(   Читать дальше...   )2000-2008Жанр: Acoustic, Neofolk, AmbientПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 507629   (676899) от 11.06.2012
+
+Jakob - 5 albums (1999-2006) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malachite (06:34)
+02. Pneumonic (05:34)
+03. Lonesome (08:00)
+04. Oran Mor (05:17)
+05. Safety In Numbers (07:53)
+06. Everything All Of The Time (09:38)
+07. Saint (09:01)1999-2006Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 509995   (672202) от 13.06.2012
 
 Gregor Samsa - 6 albums (2002-2009) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
@@ -769,70 +836,6 @@ Marissa Nadler & Stephen Brodsky - Droneflower (2019) [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FF4B27FFB8A818FA7B481A732D2B9B3E618BE97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238633   (545449) от 31.07.2018
-
-Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <country, southern rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545449.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dream You (Craig Wiseman, Jerry Phillips) – 2:47
-2. I Quit Lyin' in 1986 (Roger Murrah, John Schweers, Mark Wright) – 3:01
-3. The Night They Rocked the Grand Ole Opry (Rich Alves, Gary Harrison) – 4:19
-4. The Wild Side of Life (Arlie Carter, William Warren) – 2:41(   Читать дальше...   )Жанр: country, southern rockПродолжительность: 00:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07254E5E757E15209592F3BE5B24AD3ECD7223F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530990   (542289) от 05.08.2012
-
-Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542289.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Namania (4:09)
-2. N'tesse (4:31)
-3. Africa (4:50)
-4. Fimani (4:26)
-5. N'ba (4:38)
-6. Mali Ba (4:42)
-7. Barra (3:46)
-8. N'Teri (4:34)
-9. Nta Dima (3:03)
-10. Massake (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:54
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

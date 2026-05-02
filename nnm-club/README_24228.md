@@ -1,219 +1,25 @@
-###  Публикация: 1752018   (104003) от 28.09.2024
+###  Публикация: 1742431   (105553) от 11.08.2024
 
-Б. Серафин | Преобразование солнечной энергии (1982) [PDF]
-
->>Научная и техническая литература
->>Точные и естественные науки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104003.jpg" />
-</div>
-
-
-###  Подробнее
-
-В книге написанной ведущими специалистами США, ФРГ, Франции, рассмотрены вопросы физики полупроводников, определяющие эффективность преобразователей солнечной энергии.
-Описаны исследования селективных оптических поверхностей и материалов тепловых коллекторов, фотолиза с полупроводниками в качестве электродов, времени жизни носителей в кремнии и его влияние на характеристики (   Читать дальше...   )Жанр: ФизикаИздательство: ЭнергоиздатФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17B3E496B979BE2E96BDA3AD98CFB64437D09EDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752002   (104002) от 28.09.2024
-
-Antigua Jazz Band - Swing City Sessions #10 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Neo Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Erastus Plays His Old Kazoo (3:11)
-02. Someday Sweetheart (3:36)
-03. Caravan (4:31)
-04. Clarinet Lament (3:21)(   Читать дальше...   )Жанр: Neo SwingПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2BFFAD1E331839527EB614388CE820E8C952B2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752076   (104001) от 28.09.2024
-
-Живая еда с Сергеем Малозёмовым (28.09.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104001.jpg" />
-</div>
-
-
-###  Подробнее
-
-Арбузы: чего в них больше — пользы или вреда, как быстро они портятся, правда ли мякоть арбуза — идеальная среда для бактерий, почему случаются отравления и что будет, если есть эту ягоду без ограничений?
- Можно ли псиллиумом заменять муку, что из него готовят диетологи и повара, а тажке — почему его обязательно нужно запивать водой?
- Овсяный отвар: чудо-средство из (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E78DE2B2516F170D86803F5EDA809BD7A7F136F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752102   (104000) от 28.09.2024
-
-MotoGP. Этап 15 из 20. Гран-при Индонезии. Спринт (28.09.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104000.jpg" />
-</div>
-
-
-###  Подробнее
-
-28 сентября 2024, суббота. 10:00 МСК Этап 18 Мандалика. Гран-при Индонезии. Спринт (13 кругов)Телекомпания: MotoGPЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE68E9088B4DE94DB212A22C74FE0430BFA98DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752095   (103999) от 28.09.2024
-
-VA - Redux Selection Vol. 10 (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryn Whiting - See The Sign (Extended Mix) [7:33]
-02. Andre Wildenhues - Oceans Symphony (Extended Mix) [7:11]
-03. STNX - Destruction (Extended Mix) [6:35]
-04. Vapour Trail - The Furthest Sense (Extended Mix) [7:05](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:22:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FE00A47D621803B6C4694EEE252AA7568875FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752053   (103998) от 28.09.2024
-
-Frank Sinatra - Frank Sinatra: Legend (1998) Hey Presto! [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Surrey With The Fringe On Top [2:20]
-02. The Devil And The Deep Blue Sea [2:12]
-03. That Old Black Magic [2:26]
-04. I Don't believe In Rumours [2:44](   Читать дальше...   )Жанр: Vocal Jazz, Swing, Easy ListeningПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A6D3FDEE5531D70E772FE0A8C3F9F6E51A84360
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752106   (103997) от 28.09.2024
-
-Поедем, поедим! Карелия: горный парк Рускеала, ретропоезд и 3 блюда из одной форели (28.09.2024) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103997.jpg" />
-</div>
-
-
-###  Подробнее
-
-Федерико Арнальди побывал в Карелии! Ведущий прокатился на ретропоезде, посетил горный парк Рускеала, нашел свою карельскую бабушку, сходил на гастросмотрины, ознакомился с карельской кухней и приготовил три блюда из одной форели.Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:911756A5DB6F328D94B478715066F8EFA45DF87F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752134   (103995) от 28.09.2024
-
-Kreator - Hordes Of Chaos (2009) Reissue, Remastered, 2024, Nuclear Blast [FLAC|Lossless|image + .cue] <Thrash Metal>
+Rewind - I'm In Rewind (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hordes Of Chaos (A Necrologue For The Elite)
-02. War Curse
-03. Escalation
-04. Amok Run(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:34
+01. I'm in Rewind [00:03:58]
+02. Freakshow [00:05:16]
+03. Smell the Fear [00:04:07]
+04. Feed the Savage [00:04:30](   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 01:18:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78D80331D39C286292C6D5754E137676E48667D8
+magnet:?xt=urn:btih:089F74C9B26A22595B2C2B1EB212A6C7AF818ABD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,28 +27,254 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752068   (103994) от 28.09.2024
+###  Публикация: 1742399   (105552) от 11.08.2024
 
-Van Morrison - New Arrangements And Duets (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
+Schnallo - white fluffy (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Punk / New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ich weiss [00:02:55]
+02. cherry [00:03:11]
+03. la fête des fatigués [00:04:02]
+04. schismogenesis [00:05:10](   Читать дальше...   )Жанр: Punk / New WaveПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3CCBEF6D502A2AB1035C38AD423C44F72140E3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742339   (105551) от 11.08.2024
+
+Jim Peterik & World Stage - Roots & Shoots Volume One (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dangerous Combination (Featuring Kevin Cronin of REO Speedwagon) (4:26)
+02. Before Anyone Knows We're Gone (Featuring Colin Peterik) (4:17)
+03. Last Dream Home (Featuring Don Barnes) (4:29)
+04. Forever's The Last Place You Look (Featuring Paul Childers) (4:46)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:46:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3CCFB5B07127BC807D95AEE28964CDD3724722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742307   (105550) от 11.08.2024
+
+Sinergy - Studio Albums (3 releases) (2000-2006) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105550.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sinergy — финская супергруппа, исполнявшая музыку в стиле пауэр-метал. Группа основана американской вокалисткой Кимберли Госс и гитаристом группы In Flames Еспером Стрёмбладом в 1998 году.2000 - To Hell and Back
+2002 - Suicide By My Side
+2006 - Beware The HeavensЖанр: Power MetalПродолжительность: 02:10:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9746D5ED176D51B297AA801ABC6F9A14BA47A0AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742445   (105549) от 11.08.2024
+
+Bronnie - Jaded (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Punk, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaded [00:03:08]
+02. Back And Forth [00:03:01]
+03. OH! [00:02:59]
+04. Paranoid [00:03:03](   Читать дальше...   )Жанр: Pop Punk, Female VocalПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3FCB7BA66649FC0CC00DD4487F96E4DAB554128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742459   (105548) от 11.08.2024
+
+Месье / Monsieur (1911) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сентиментальная история. Французский граф старинной благородной фамилии, по-видимому, вдовец, воспитывает дочь. Но новые времена разоряют его. Он переезжает вместе с дочерью в Америку в надежде начать новую жизнь. Но и в Америке, похоже, графья не в цене. Сумел устроиться только официантом в ресторане (не умеет же ничего). Но тщательно скрывает это, голубая кровь (   Читать дальше...   )Производство: США / Edison CompanyЖанр: короткометражный, драма, мелодрама, немое киноРежиссер: нет сведенийАктеры: Марк МакДермотт, Мириам Несбитт, Роберт Коннесс, Нэнси АврилПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:14:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBB759E8603193FF8B86B4707F851CD2BABCB5FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742371   (105547) от 11.08.2024
+
+Dagoba - Different Breed (2024) [FLAC|Lossless|WEB-DL|tracks] <Groove, Industrial Metal, Melodic Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Genes15 (1:12)
+02. Arrival of the Dead (5:24)
+03. Distant Cry (3:07)
+04. Different Breed (5:29)(   Читать дальше...   )Жанр: Groove, Industrial Metal, Melodic DeathПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D98C7A92EC9F0AE3C3FEFE3BBDE8A7635CE57B16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742332   (105546) от 11.08.2024
+
+Revolution Saints - Against The Winds (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Against The Winds (4:57)
+02. Changing My Mind (4:16)
+03. Fall On My Knees (4:23)
+04. Can't Find It Right Now (4:48)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506572E578D3689EF5B1586D889FA2B7750748E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742573   (105545) от 12.08.2024
+
+Фёдор Сологуб | Звериный быт (2011) [MP3, Вадим Яковлев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105545.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Проза Серебряного Века.
+В авторский сборник произведений Фёдора Кузьмича Сологуба (1863–1927) – выдающегося прозаика и поэта, представителя старшего поколения русских символистов и одного из ярких представителей «Серебряного Века», вошли рассказы в исполнении Вадима Яковлева.Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 04:46:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFC62024DA1E23D4D9D810A2EDA5B466C141EDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742526   (105544) от 12.08.2024
+
+Phineas Newborn, Jr. - Look Out - Phineas Is Back (1976) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ain’t Gonna Moan No More (feat. Kurt Elling)
-02. Broken Record (feat. Kurt Elling)
-03. Avalon Of The Heart
-04. Close Enough For Jazz (feat. Curtis Stigers)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 01:10:58
+01. Salt Peanuts [5:43]
+02. The Man I Love [5:18]
+03. You Are The Sunshine Of My Life [6:21]
+04. Abbers Song [4:20](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:45:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C5A3C6A1B3F13B246A0CE95ACAD88A1B5AA41022
+magnet:?xt=urn:btih:857D7DED97F55008DD2225CF6B108AC0DC4CE45F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,28 +282,200 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752027   (103993) от 28.09.2024
+###  Публикация: 1742580   (105543) от 12.08.2024
 
-VA - Free To Dance, Vol. 2 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+Фёдор Сологуб | Творимая легенда (Книга 2). Королева Ортруда (2013) [MP3, Аркадий Бухмин]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Русская классика.
+Фёдор Кузьмич Сологуб (1863–1927) – русский поэт, писатель, драматург, публицист. Один из виднейших представителей символизма.
+В романе Фёдор Сологуб выразил свои философско-художественные идеи, обозначенные им ранее в статьях и эссе. Изначально, задуманный им цикл романов назывался «Навьи чары», и первая часть называлась «Творимая легенда» (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: МедиаКнигаПродолжительность: 12:05:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:277BEC826D651044FCFB48303AE889173C60D668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742581   (105542) от 12.08.2024
+
+Фёдор Сологуб | Красногубая гостья (2011) [MP3, Вадим Яковлев]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105542.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Проза Серебряного Века.
+Фёдор Кузьмич Сологуб (1863–1927) – русский поэт, писатель, драматург, публицист. Один из виднейших представителей символизма.
+В сборник вошли рассказы одного из ярких представителей «Серебряного Века» Федора Сологуба в исполнении Вадима Яковлева.Жанр: Русская литература, классика, рассказИздательство: Вира-М (аудио)Продолжительность: 01:22:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F13DAB86E80E6C55376FEE31F16AF0C8AEC625F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742497   (105541) от 12.08.2024
+
+Nathan Haines - Notes (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, soul, analog, jazz, saxophone>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love You More [00:06:58]
+02. Night Moves [00:05:47]
+03. Just Holdin' On [00:03:48]
+04. Journey To The Peak [00:07:05](   Читать дальше...   )Жанр: House, soul, analog, jazz, saxophoneПродолжительность: 01:14:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9B0EB321FDF6310EFA95EBFF043298E2BCAE56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742638   (105540) от 12.08.2024
+
+Newman - Colour In Sound (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godspeed
+02. In Euphoria
+03. Wake Of The Wanderlust
+04. Afterglow(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE13B4EB73BE2ADB7A8FE646D76872C782F2CB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742485   (105539) от 12.08.2024
+
+Ann Wilson & Tripsitter - Live in Concert (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Even It Up (Live) [00:07:57]
+02. Ruler of the Night (Live) [00:04:21]
+03. Love Alive (Live) [00:05:39]
+04. Isolation (Live) [00:03:04](   Читать дальше...   )Жанр: Classic Rock, Blues Rock, Hard RockПродолжительность: 01:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E294144061A3E16AA3D495C1FE738C96CF778566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742697   (105538) от 12.08.2024
+
+Bill Wyman - Drive My Car (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105538.jpg" />
+</div>
+
+
+###  Подробнее
+
+Билл Уайман (Rolling Stones) выпустил свой девятый сольный альбом "Drive My Car" 9-го августа. "Drive My Car", представляющий собой мастерскую смесь его уникального англо-американского ритм-энд-блюза, является первым альбомом Уаймена с 2015 года, который будет доступен в цифровом формате, на CD и виниловых пластинках.01. Thunder on the Mountain (3:13)
+02. Drive My Car (3:23)
+03. Bad News (3:24)
+04. Storm Warning (3:44)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10F43A5A99974023497E1772A6D5E5C08E2E7DE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742434   (105537) от 12.08.2024
+
+DJ Love (Sherwin Tuna) - Budots World (Reloaded) (2024) [FLAC|Lossless|WEB-DL|tracks] <edm, electronic, philippines, budots, club, dance, filipino>
 
 >>Electronic
->>House
+>>Industrial, EBM, Dark Electro (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. ENSIEL - With U (02:25)
-02. A-Park & DJ Polique - For You (Extended Mix) (03:16)
-03. Chris Simmons - My Heart (04:15)
-04. Narra - Bodyrock (04:52)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:03:26
+01. TiwTiw [00:03:48]
+02. Sabak Sa DJ Basuri [00:02:53]
+03. Mura Kag Erfs [00:03:46]
+04. Y Que Fue Bomb DJ [00:04:26](   Читать дальше...   )Жанр: edm, electronic, philippines, budots, club, dance, filipinoПродолжительность: 00:57:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C786F6A2A74115DCCE6E1DA55B900383C380110A
+magnet:?xt=urn:btih:2CCAD071D195C95DBE7A9B80F633D100993D4179
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,28 +483,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752038   (103992) от 28.09.2024
+###  Публикация: 1742548   (105536) от 12.08.2024
 
-VA - Vocal Anthems Amsterdam (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+Alien Ant Farm - Mantras (2024) [FLAC|Lossless|tracks + .cue] <Alt. Rock, Post-Grunge>
 
->>Electronic
->>Trance
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Roman Messer & NoMosk - Statue (Extended Mix) [3:37]
-02. SMR LVE & Caitlin Potter - Love Story (Extended Mix) [6:57]
-03. Roman Messer & Richard Bedford - Breathe (Alex M.O.R.P.H. Extended Remix) [7:44]
-04. Adip Kiyoi - Closer (Around Me) (Extended Mix) [4:58](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 02:02:25
+01. The Wrong Things
+02. Last dAntz
+03. Fade
+04. No. 1(   Читать дальше...   )Жанр: Alt. Rock, Post-GrungeПродолжительность: 00:40:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B30D0AAEF1B064A0A3BAD3E45B6D980B5E1A94E3
+magnet:?xt=urn:btih:2A4D3E8793766069888593FDB830766A6BBC3D63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -308,28 +512,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751939   (103991) от 28.09.2024
+###  Публикация: 1742100   (105535) от 12.08.2024
 
-David Eugene Edwards - Best (as Part of 16 Horsepower, Wovenhand) (1995-2012) Compilation Album [MP3|320 Kbps] <Alternative Rock, Folk Rock, Country Rock>
+Heavenwood - 5 Albums, 3 Singles (1996-2024) [FLAC|Lossless|WEB-DL|tracks] <Gothic Metal, Doom Metal>
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105535.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. 16 Horsepower - American Wheeze
-02. 16 Horsepower - Black Bush
-03. 16 Horsepower - Black Soul Choir
-04. 16 Horsepower - Dead Run(   Читать дальше...   )Жанр: Alternative Rock, Folk Rock, Country RockПродолжительность: 01:33:06
+Список альбомов:
+1996 - Diva (Reissue 1997, Avalon - MICY-1024)
+1998 - Swallow (Massacre Records - MAS CD0158)
+2008 - Redemption (Remaster 2016)(   Читать дальше...   )Жанр: Gothic Metal, Doom MetalПродолжительность: 8 CD, 05:14:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE3B6EBCAB312FF85C62C2CF499792E4C90D9A13
+magnet:?xt=urn:btih:092F5C1C5DA383CE5B5E92CFC6AE877A806E472A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -337,25 +541,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752149   (103990) от 28.09.2024
+###  Публикация: 1742568   (105534) от 12.08.2024
 
-High-Logic FontCreator Professional Edition 15.0.0.3003 [En]
+Black Jack - Black Jack (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Times Trouble
+02. Celebrate Love
+03. The Way
+04. When She Looks at Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B67A12B393E01E82843EDB85E9FF70DD03F573C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742807   (105533) от 13.08.2024
+
+JetBrains RubyMine 2024.2 Repack by Sitego [En]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FontCreator - Редактор шрифтов FontCreator может создавать свои собственные шрифты, переводить в файл шрифта любой шрифт с бумаги через сканирование, редактировать уже установленные шрифты. Для создания собственного рукописного шрифта можно просто написать на бумаге от руки (если нет планшета) все русские и английские буквы, цифры, специальные знаки, знаки препинания (   Читать дальше...   )Язык интерфейса: Английский
+RubyMine — умная и удобная интегрированная среда разработки для языка Ruby и веб-фреймворка Rails, которая включает в себя все необходимые разработчику инструменты и поддерживает наиболее востребованные технологии из мира Ruby.
+Как и все IDE, разработанные на основе платформы IntelliJ, RubyMine обладает уникальным механизмом анализа кода, который лежит в основе таких (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1B60BCE8F821902677203D5E607C174098EE73A3
+magnet:?xt=urn:btih:68983C3DFF11121A2944099D6B7B701513886341
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,26 +597,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752075   (103989) от 28.09.2024
+###  Публикация: 1742792   (105532) от 13.08.2024
 
-Главная дорога (28.09.2024) WEBRip [H.264/720p]
+Журнал | Кухонька Михалыча №7 (227) (июль 2024) [PDF]
 
->>Документалистика и Телепередачи
->>За рулем
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105532.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жертвы ОСАГО: когда полис не защищает от автоподставщиков.
- Вечный спор водителей — разбитые дороги проезжать лучше на скорости или, наоборот, лучше замедлиться, проваливаясь и чувствуя каждую ямку?! Андрей Федорцов и Денис Юченков проверили на прочность себя и автомобиль: вместе с врачами, гонщиками и испытателями ведущие рассказали, как сэкономить не только на ремонте, (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:26:05
+Журнал кулинарных советов для всей семьи. Каждый номер посвящен определенной кулинарной теме или продукту. На страницах издания вы найдете новые и давно забытые рецепты, научитесь печь пироги, готовить вкусные супы и салаты, мясо и рыбу, найдете полезные блюда для детей.Жанр: КулинарияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9688B1350A1E2A0D9F2A0CF6D1B2F189F56B1E4
+magnet:?xt=urn:btih:99724CFF0DFCED3251B0BF6CCB2918EA6304FC8E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -390,25 +623,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751941   (103988) от 28.09.2024
+###  Публикация: 1742901   (105531) от 13.08.2024
 
-Markus Schulz - Global DJ Broadcast (In Search of Sunrise 20 Companion Mix) (2024-09-26) [MP3|320 Kbps] <Progressive House, Trance, Melodic House, Techno>
+Levantis - Music For Mother & Baby (Музыка для мамы и малыша) (2007) [WavPack|Lossless|image + .cue] <Ambient, New Age>
 
->>Electronic
->>Radioshow, Live Mixes
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105531.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chicane - Sunstroke (DC Symphonic Rehearsal Mix)Жанр: Progressive House, Trance, Melodic House, TechnoПродолжительность: 02:00:40
+01		Heartbeat (The Beginning)	6:43
+02		Connection	6:44
+03		Intimate Moments	6:07
+04		Gift Of Love	2:47(   Читать дальше...   )Жанр: Ambient, New AgeПродолжительность: 01:01:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C034CF35BD896DB172569D8B8A72E10065BD6A53
+magnet:?xt=urn:btih:DBE284D59F68EA67D2BDC2DFD38C09F8AB3837B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -416,54 +652,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752111   (103987) от 28.09.2024
+###  Публикация: 1742733   (105530) от 13.08.2024
 
-VA - Sunset Dreamer (Lounge & Chill out Sessions), Vol. 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Cataldo - Inoubliable Homme (Original Mix) (06:40)
- 02 - TAWO - Had Love (03:15)
- 03 - Man In A Room - The Confidential (Original Mix) (06:01)
- 04 - Calmabohain - Liquid Star (04:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7840AEB767C3B5F686ADDBF39DBD2CF10AEFDFA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751978   (103985) от 28.09.2024
-
-Димитрий Ростовский | Жития святых. Месяц июнь (2023) [MP3, Л. Лепшина]
+Люк Перино | Нулевой пациент (2021) [MP3, Андрей Зверев]
 
 >>Обучающие аудиоматериалы
->>Религия (аудиоматериалы)
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жития святых издавна были основным содержанием Миней-Четьих - произведений русской церковно-исторической и духовно-учительной литературы. Повествования о жизни святых Православной Церкви излагаются в Минеях-Четьих по порядку месяцев и дней каждого месяца. Из четырех известных сочинений такого рода Минеи-Четьи Св. Димитрия Ростовского, написанные на церковно-славянском (   Читать дальше...   )Жанр: ПравославиеИздательство: Неофициальное изданиеПродолжительность: 21:06:00
+Говоря об истории медицины и открытиях, которые позволили успешно лечить болезни, мы всегда вспоминаем имена гениальных врачей и ученых. Но забываем о тех, кто сделал эти открытия возможными. Книга Люка Перино посвящена пациентам, чьи случаи двигали медицину вперед и сделали ее такой, какой мы знаем сейчас. Вас ждет интересное приключение длиной в несколько веков, (   Читать дальше...   )Жанр: Научно-популярная литератураИздательство: БОМБОРАПродолжительность: 06:04:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAC65747DD98023FA3CCF7B1A7079466E875BBC1
+magnet:?xt=urn:btih:92DC4131C1381A10C048F14CAE7A2B0763A7A845
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -471,25 +678,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752005   (103984) от 28.09.2024
+###  Публикация: 1742853   (105529) от 13.08.2024
 
-PhotoRoom v5.3.6 Mod by Mixroot [Ru/Multi]
+Возраст Христа / Kristove roky (1967) BDRip [H.264] [VO]
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105529.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение автоматически вырезает объекты и людей на ваших фотографиях. Всего одним нажатием вы сможете убрать фон и создать красивое изображение для презентации вашего продукта или модели. Выберите фон белого или любого другого цвета. Отрегулируйте освещение, добавьте текст, логотип или стикеры, создайте коллаж или воспользуйтесь одним из наших **многочисленных (   Читать дальше...   )Тип издания: ProРелиз состоялся: 27.09.2024Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский / Мульти
+Это рассказ о любовном треугольнике — двух братьях, художнике и лётчике, и девушке, за которым угадываются беспокойные поиски смысла жизни, настоящих человеческих отношений... Всю жизнь преодолевающий страх авиакатастрофы, лётчик нелепо погибает в обычной автомобильной аварии на сельской дороге. Только после его смерти художник узнаёт, что у его женатого брата был (   Читать дальше...   )Производство: Чехословакия / Studio Hraných FilmuЖанр: драма, комедияРежиссер: Юрай ЯкубискоАктеры: Иржи Сикора, Яна Стегнова, Владо Мюллер, Мириам Канторкова, Мария Сикорова, Виктор Благо, Иржи Стехно, Роберт КрасныйПеревод: любительский одноголосыйЯзык озвучки: русский, словацкийСубтитры: русские,Продолжительность: 01:36:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8FAAE2C376197FE319F4FEC97C5CEBBB27CA792
+magnet:?xt=urn:btih:3A84BF94ECC354C1A11661CD86248366D588DC19
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -497,227 +704,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752100   (103982) от 28.09.2024
+###  Публикация: 1742739   (105528) от 13.08.2024
 
-Хоккей. КХЛ 2024-2025. Лада (Тольятти) - Нефтехимик (Нижнекамск) (27.09.2024) WEBRip [H.264/720p]
+Журнал | Приусадебное хозяйство №8 (август 2024) [PDF]
 
->>Спорт и активный отдых
->>Хоккей
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103982.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105528.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хоккей. КХЛ 2024-2025. Лада (Тольятти) - Нефтехимик (Нижнекамск) (27.09.2024)
-СУДЬИ Мочалов Владимир (Москва, Россия) Соин Александр (Москва, Россия)
-СТАДИОН «Лада-Арена» (Тольятти) Зрителей: 4556Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:46:35
+Журнал «Приусадебное хозяйство» знакомит садоводов, огородников, цветоводов с современными технологиями и народным опытом возделывания овощных, плодовых, ягодных и лекарственных культур, с огромным разнообразием садовых и комнатных цветов, с новыми и незаслуженно забытыми сортами. Не остались без внимания и владельцы домашних ферм — здесь они находят ответы на многие (   Читать дальше...   )Жанр: Дача, сад, огородИздательство: ООО "Журнал "Приусадебное хозяйство"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9BED9AD2F455222899B709142DB4396648C2225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752092   (103981) от 28.09.2024
-
-Хоккей. КХЛ 2024-2025. СКА (Санкт-Петербург) - Северсталь (Череповец) (27.09.2024) WEBRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103981.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. СКА (Санкт-Петербург) - Северсталь (Череповец) (27.09.2024)
-СУДЬИ Метальников Эдуард (Россия) Сидоренко Максим (Белоруссия)
-СТАДИОН «МСРК «Ледовый Дворец»» (Санкт-Петербург) Зрителей: 12156Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:33:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:115C047DC03CC33E33B85D7459763DC326B302A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752083   (103980) от 28.09.2024
-
-Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Авангард (Омск) (27.09.2024) WEBRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103980.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Трактор (Челябинск) - Авангард (Омск) (27.09.2024)
-СУДЬИ Белов Алексей (Ярославль, Россия) Оскирко Юрий (Ярославль, Россия)
-СТАДИОН «Арена Трактор» (Челябинск) Зрителей: 7500Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:16:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D749E40D8AA3F5D104F18DF3B6CFA5A1EE41597E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752089   (103979) от 28.09.2024
-
-Хоккей. КХЛ 2024-2025. Металлург (Магнитогорск) - Ак Барс (Казань) (27.09.2024) WEBRip [H.264/1080p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103979.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Металлург (Магнитогорск) - Ак Барс (Казань) (27.09.2024)
-СУДЬИ Беляев Сергей (Воскресенск, Россия) Кочетов Евгений (Россия)
-СТАДИОН «Арена Металлург» (Магнитогорск) Зрителей: 6845Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC664D873B2FA3347856AEAD162C9856A88E5C1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751995   (103978) от 28.09.2024
-
-Alex Kautz - Where We Begin (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chorinho (4:40)
-02. Bebe (6:15)
-03. Mira Eso (6:18)
-04. Within (6:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BB830422E05A31750BAD841892AC562B79E3E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751998   (103977) от 28.09.2024
-
-Amos Hoffman - Minor Operation (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aunt Sharon (6:02)
-02. Minor Operation (7:02)
-03. Hidden Garden (4:30)
-04. All Alone (3:10)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:42:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42ED2F0CFFEE11C49ECF0D52D8F1607E9842E01E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752009   (103976) от 28.09.2024
-
-Diz and the Doormen - Diz-Connected (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Same Old Blues (2:57)
-02. I'd Do It All Again (2:59)
-03. Diz-Connected (3:20)
-04. Mess Around (4:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:195301866E2DEEC882F4129AD13F373C04C155E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752011   (103975) от 28.09.2024
-
-El Poder de la Infancia - El Poder de la Infancia (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclesiástica (0:54)
-02. Lluvia en Atacama (7:37)
-03. Buscaminas (3:51)
-04. Agente Libre (3:49)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:43:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA3B9E6DCFB5182ACBF535EE1D10E871DA2DA88
+magnet:?xt=urn:btih:5876772BA464DDAF2ACB3253E44A114DBC6B86F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

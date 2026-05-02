@@ -1,3 +1,61 @@
+###  Публикация: 1500373   (841400) от 06.10.2021
+
+Roy Eldridge - The Nifty Cat (1970) 1986, New World Records [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jolly Hollis [9:51]
+02. Cotton [5:01]
+03. 5400 North [6:04]
+04. Ball of Fire [4:03](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEEA2CD118EC58C180C9FB2B19491E82D6A29E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500372   (841399) от 06.10.2021
+
+Roy Eldridge & Richie Kamuca Quintet - At The Half Note (1965, 1966) 2017, Sounds of Yester Year [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Sue [5:35]
+02. Stompin' at the Savoy [8:07]
+03. Comin' Home Baby [6:58]
+04. Hackensack [6:02](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:52:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:304ACF4575B42A296D8809D165FA7FF80F56C3E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1500379   (841397) от 06.10.2021
 
 Warne Marsh Groups - Noteworthy (1956 - 1979) 1988, Discovery Records [FLAC|Lossless|tracks + .cue] <Cool>
@@ -704,68 +762,6 @@ Horace Parlan - Joe Meets The Rhythm Section (1986) Remaster, 2015, Solid Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53E8E145EE22592C72E78E3C3DFF144BDCAD7B41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 310271   (837803) от 18.03.2011
-
-Buster Williams - Griot Liberte (2004) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837803.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nomads  (08:38)
-2. Related To One  (05:45)
-3. The Triumphant Dance Of The Butterfly  (07:48)
-4. The Wind Of An Immortal Soul  (09:28)
-5. Every Time We Say Goodbye  (06:29)
-6. Joined At The Hip  (08:39)
-7. Concierto De Aranjuez  (05:15)
-8. After The Ninth Wave  (03;00)Жанр: JazzПродолжительность: 00:55:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 651850   (837778) от 03.05.2013
-
-VA - 100 Hits: 50s (2009) 5CD, Box Set [FLAC|Lossless]<Soul, rock'n'roll, funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_837778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dean Martin - Volare
-02. Rosemary Clooney - Mambo Italiano
-03. Perry Como - Hot Diggity (Dog Ziggity Boom)
-04. Doris Day - Whatever Will Be, Will Be (Que Sera, Sera)(   Читать дальше...   )Жанр: Soul, rock'n'roll, funkПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

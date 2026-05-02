@@ -1,3 +1,32 @@
+###  Публикация: 38336   (160493) от 07.11.2023
+
+Bela Bartok - Bartok Complete Edition (2000) 29CD [APE|Lossless|image + .cue]<Classical>
+
+>>Классика
+>>Полные собрания сочинений (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Vocal Orchestral Works
+	 Vocal Orchestral Works.ape (276.79 megabyte)
+	 Vocal Orchestral Works.cue (6.06 kilobyte)
+	 02-03 Stage Works(   Читать дальше...   )Жанр: ClassicalПродолжительность: 10:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F57BBD9F5AD8CB18F46162A583B16778750A4626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 34841   (160490) от 07.11.2023
 
 Johannes Brahms Complete Edition (1996) 46CD Box Set [APE|Lossless|image + .cue]<Classical>
@@ -709,35 +738,6 @@ Karl Jenkins - Symphonic Adiemus (2017) [FLAC|Lossless|tracks + .cue] <Classical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0DB96D6BFF1E1D078573118254AC3301F331E32F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 440818   (137187) от 31.12.2019
-
-bond - Play (2011) [FLAC|Lossless]<Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137187.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Diablo - 3:59
-2. Jai Ho - 3:38
-3. Elysium - 4:05
-4. Pump It - 3:40(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 00:50:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:118CB9E55A35405AC9C42813EB68F7040C88DDE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

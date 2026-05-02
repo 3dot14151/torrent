@@ -1,3 +1,240 @@
+###  Публикация: 477313   (98408) от 02.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers Pack 22
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98408.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Girls Desktop Wallpapers Pack 22 
+Название:  Girls Desktop Wallpapers Pack 22 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 6668х4992
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44C52C23EA89452190D60C2C8CFE3C36A3569630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476899   (98405) от 02.04.2012
+
+Fjorsvartnir - Legions of the north (2012) [MP3|320 кб/с]<Melodic Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begyndelsen (2:09)
+ 02. Legions of the North (9:43)
+ 03. Levende Begreavet (9:55)
+ 04. Nat og dag (8:59)
+ 05. True Elite (6:36)
+ 06. Den sidste rejse (6:20)2012Жанр: Melodic Black MetalПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302F3F570B252021492CD6986455577CCBA219D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 475798   (98404) от 02.04.2012
+
+Memoira - Memoira (2008) [FLAC|Lossless]<Gothic Metal,Melodic Metal (Female Vocal)>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arise (Intro) 02:06
+02. Experimenters Farewell 04:26
+03. Haunted 04:27
+04. Destiny Of Yours 05:00
+05. Incurable 06:00
+06. Shadow On My Name	04:33
+07. Half Alive 04:15
+08. Liberation 04:56
+09. Amortization 05:25Жанр: Gothic Metal,Melodic Metal (Female Vocal)Продолжительность: 00:41:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477107   (98401) от 02.04.2012
+
+Пестрые сумерки (2009) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыкант необыкновенный. Слепой. Слепой от рождения без всякой надежды когда-нибудь увидеть мир (свет).
+Но случилось волшебство. Он увидел свой свет — музыку! Музыка пришла, зазвучала из дедушкиного проигрывателя. Дедушка ставил свои любимые пластинки, а мальчик вдруг переставал плакать и слушал, слушал, а потом подползал к пианино и начинал… играть!
+Играл все, что слышал. С точными гармониями. Играл не только песни, но и хоровые произведения, и марши духовых оркестров.
+Слушал радио и к четырем годам играл по слуху Первый концерт Чайковского.
+В четыре года дедушка повез его из Ейска, где мальчик родился, в Армавир в спецмузшколу для слабовидящих и слепых детей. Один из фрагментов ранних выступлений Олега Аккуратова — так зовут мальчика — вставлен в фильмЖанр: мелодрама, музыкаРежиссер: Дмитрий Коробкин, Людмила ГурченкоАктеры: Людмила Гурченко, Дмитрий Кубасов, Владимир Ильин, Александр Ширвиндт, Сергей Фролов, Виктор Раков, Ася Дубровская, Аслан Ахмадов, Александр Сирадекиан, Давид Геворков, Роман Андрейкин, Светлана Зимагорова, Дарья Вельчинская, Богдан Якушин, Мария Максумова, Алексей Павлов, Тамерлан Насрутдинов, Рустам Сатыбалов, Геннадий Оникиенко, Анна Рябова, Анастасия Меленова, Константин Адаев, Георги СмилевскиПеревод: оригинальныйПродолжительность: 01:31:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18D6C7AD16172514D47E6656AB6231F392A59C66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477188   (98400) от 02.04.2012
+
+[Wallpapers] Nature Wallpapers (03.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BB3F4FDE97160A909CDFDFFC33AFF72CF250962
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 476582   (98399) от 02.04.2012
+
+Isis - Live VI (16/11/2007) (Released: 14 Feb 2012) [MP3|256 кб/с]<Post-Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hive Destruction
+ 02. So Did We
+ 03. Not In Rivers, But In Drops
+ 04. Gentle Time
+ 05. In Fiction
+ 06. Holy Tears
+ 07. Weight
+ 08. Red Sea
+ 09. CarryЖанр: Post-MetalПродолжительность: 01:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C11D60249203F20682B808EC26180AF6F7B1D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477155   (98398) от 02.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (01.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98398.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AF149F248A23E9A53A0E21AFD8D54AD83A53BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477186   (98396) от 02.04.2012
+
+[Wallpapers] Best HD Wallpapers Pack (03.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B4321A26A1038E785BC62FE68B5F7A23CD07AA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477156   (98395) от 02.04.2012
 
 [Wallpapers] Best HD Wallpapers Pack (01.04.12)
@@ -515,245 +752,6 @@ WinISO - лучшая программа из всех подобных для �
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476701   (98362) от 01.04.2012
-
-Журнал | iGamer №4 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98362.jpg" />
-</div>
-
-
-###  Подробнее
-
-«iGamer» — новый ежемесячный игровой журнал в который входят следующие рубрики: Компьютерные игры, обзоры, рецензии, коды к играм, прохождения.март 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB0C3C05EEEC47BBC775D387EBAC81944A97A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476574   (98358) от 01.04.2012
-
-Журнал | Техника - молодежи №4 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98358.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Техника молодежи» - сенсации науки и техники, открытия, изобретения, патенты. История техники, футурология, фантастика, оружие, боевая техника. Компьютеры, самоделки и моделизм. Смелые проекты и гипотезы. Антология таинственных случаев. Загадки забытых цивилизаций.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:242264A4D25E1D91B669D0E5D9B818BDB3BB4FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476681   (98355) от 01.04.2012
-
-[Wallpapers] Коллекция обоев для рабочего стола
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция обоев для рабочего столаНазвание: Обои для рабочего стола
-Тип раздаваемого: JPЕG
-Разрешение файлов: 1600x1200 - 2560x1600
-Количество: 520Описание:
-Очередная коллекция обоев для рабочего стола!Время раздачи: С 13.00 до 23.00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7686691FBAD15DDB0B071672ED532E0323543F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475327   (98350) от 01.04.2012
-
-Osher - Twilight (2011) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Staring At The Moon [08:44]
-02. Twilight [07:29
-03. Age Of Love [08:46]
-04. Fight Club [07:05]
-05. The Music Of Yourself [08:43]
-06. Sweeping Up (Osher Remix Live Edit) [07:01]
-07. Miles & More [06:40]
-08. Beauty Free [07:27]
-09. Backspace [07:54]
-10. Alcohol A Buzz [07:27]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476141   (98341) от 01.04.2012
-
-Hammer Horde - Vinlander (2012) [MP3|320 кб/с]<Melodic Death Metal / Viking Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Infinite Warthirst [06:01]
- 02. Vinlander [05:59]
- 03. Hero's Heart [05:07]
- 04. Oathkeeper [05:22]
- 05. Hymn Of The Fjords [06:43]
- 06. Riders Of Annihilation [05:46]
- 07. Archaic Offerings [05:32]
- 08. Led By The Ancient Light [06:20]
- 09. Midgårdian Revelry [04:27]
- 10. Hoddmimir's Holt [02:26](   Читать дальше...   )2012Жанр: Melodic Death Metal / Viking MetalПродолжительность: 00:59:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07F24B9129B1E94389370E1686396CC723E37081
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474895   (98340) от 01.04.2012
-
-Дикий Юг. Бола - предсказуемое бедствие / Wild South. Bola-the predictable disaster (1990-1999) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Перевод: Одноголосый закадровый, профессиональныйПродолжительность: 00:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F998DB222638520325C32A3F282FC629F491BFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476578   (98339) от 01.04.2012
-
-VA - Trance Mutation Vol.1 (Best of Top Trance Killer) (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Green Court- Inside Your Gates (Original Mix)
-02. Patrice Milan- Eternal Spirit (Wavetraxx Remix)
-03. Michael Dow- Emerald (Akira Kayosa Mix)
-04. Sequenza & Wag -This Feels Like Love (Axel Coon Remix)
-05. Xtranova -The Way We Were (Leon Bolier Remix)
-06. DJ Choose, Scificon -Unnamed Desire (Original Mix)
-07. DJ Centaury, Wavetraxx -Lazarus (Original Mix)
-08. Spaceplanet- Summer Rain 1 (DJ S.i.one, DJ Sky Remix)
-09. Human Force -Odyssey 3000 (Aquaplex Remix)
-10. Mainbrain, Somville – Euphoria (Dave Joy, Emphasysts Remix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 02:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF141DD1FCD3753628C3E02B577AD70A308A77F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475544   (98338) от 01.04.2012
-
-Галина Уланова (1963) DVDRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98338.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о творчестве великой русской балерины Галины УлановойЖанр: ДокументальныйПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D1A6FDD411805DAE7ADD7E5BA969E35C185D3CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

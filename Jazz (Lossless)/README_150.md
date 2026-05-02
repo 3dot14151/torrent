@@ -1,3 +1,61 @@
+###  Публикация: 1306048   (555941) от 02.06.2019
+
+Sofia Hoffmann - One Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Easy
+02 – One Last Time
+03 – Push It Or Pull It
+04 – Vaisakhan(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF1A36ACA63BE2D047F6B69BDEEA63FDDFBF93CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1306213   (555836) от 03.06.2019
+
+The Prestige Blues-Swingers - Outskirts Of Town (1958) 1992, Original Jazz Classics [APE|Lossless|image + .cue] <Bop, Cool, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Gonna Move to the Outskirts of Town [6:20]
+02. Blue Flute [6:22]
+03. Blues A-Swingin' [6:15]
+04. Jelly Jelly [6:08](   Читать дальше...   )Жанр: Bop, Cool, Hard BopПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54BA258534751A79A6998F93C3564BF9A74D9C70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306375   (555692) от 04.06.2019
 
 Dave (David) Kikoski - Dave Kikoski (1994) Sony Epicure [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -685,64 +743,6 @@ Cannonball Adderley Quintet - Music, You All (1972) 2016, Real Gone Music[FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16076F547D9B4DFC42897A2AB8F0CD9AB58A9070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045958   (553128) от 26.08.2016
-
-Fattburger - Time Will Tell (1989) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Put The Meat In My Bed (4:02)
-02. Oh Girl (4:10)
-03. Amazon (5:44)
-04. For The Father (1:14)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:065504C9C3BFD0929595A5749274AF50034230B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046177   (553125) от 26.08.2016
-
-Bobby Hutcherson - Un Poco Loco (1980) 1999, Koch Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Sailor's Song [04:45]
- 02.Silver Hollow [04:13]
- 03.Un Poco Loco [08:22]
- 04.Love Song [04:39](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B07B3418378EA3D9DD1FA4CDEE1D55A775C0304D
 ```
 
 https://mybot314.ru/tekegram_catalog/

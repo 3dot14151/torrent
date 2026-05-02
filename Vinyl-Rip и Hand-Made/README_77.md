@@ -1,3 +1,173 @@
+###  Публикация: 1729959   (107994) от 13.06.2024
+
+Olshanoe - Как Велик И Печален Мир (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk Metal, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107994.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Зима Р-254
+A2 - Лён
+A3 - Плач Нау
+B1 - Последнее Лето Детства(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk Metal, AmbientПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92E7E2FE5A7C240A4962C3D616519224A4BE9F63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729872   (107978) от 13.06.2024
+
+Ensiferum - Ensiferum (2001) Remastered, 2014, Blood Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107978.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Intro
+A2 Hero In A Dream
+A3 Token Of Time
+A4 Guardians Of Fate(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5761AB89AA1D4CC1021616C5413B4464536BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730009   (107946) от 14.06.2024
+
+Aetherian - Studio Albums (3 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107946.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aetherian — мелодик-дэт-метал группа из Афин, Греция, образованная осенью 2013 года.2015 - Tales Of Our Times
+2017 - The Untamed Wilderness
+2023 - At Storm's EdgeЖанр: Melodic Death MetalПродолжительность: 02:24:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C11AED30D94D4AEFA5B933CD125A9D2EC342AC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730062   (107943) от 14.06.2024
+
+Ensiferum - From Afar (2009) Released, 2010, Drakkar Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107943.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. By The Dividing Stream
+02. Fram Afar
+03. Twilight Tavern
+04. Heathen Throne(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C4ADECB2FB4D4A4FA96B19A424FA5BA37343A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730146   (107939) от 14.06.2024
+
+Ensiferum - Victory Songs / From Afar (2017) Compilation [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Epic Folk MetalПродолжительность: 01:47:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82692E7A2750CFD9B924D0A24A66E9B6A3829B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730008   (107935) от 14.06.2024
+
+Ensiferum - Victory Songs (2007) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ad Victoriam
+02. Blood Is the Price of Glory
+03. Deathbringer from the Sky
+04. Ahti(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D6FDCD32DC8E10EB165B687A40B67F0CE0FFB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730093   (107934) от 14.06.2024
 
 Ensiferum - Unsung Heroes (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
@@ -566,178 +736,6 @@ Shokran — российская рок-группа, исполняющая п�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EC85FF1B7C284F0FBADE8D1A26E35EFF69222F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737969   (106438) от 20.07.2024
-
-Santana - Santana's Greatest Hits (1974) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106438.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Evil Ways
-A2 Jingo
-A3 Hope You're Feeling Better
-A4 Samba Pa Ti(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A15D39BD18C031583CF1CD31F6ACEC3100D84B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737952   (106419) от 20.07.2024
-
-Kenny Rogers - Greatest Hits (1984) With The First Edition Group (P) 1969 [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106419.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Sunshine
-A2 Goodtime Liberator
-A3 Ruben James
-A4 Always Leaving, Always Gone(   Читать дальше...   )Жанр: Folk, CountryПродолжительность: 00:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE2EB46186F4CD03851D90B98F0696ACCAF9BA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737833   (106397) от 20.07.2024
-
-Nonpoint - Studio Albums (13 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106397.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nonpoint — американская рок-группа, образованная в 1997 году в городе Форт-Лодердейл, штат Флорида.1997 - Separate Yourself
-2000 - Statement
-2002 - Development
-2004 - Recoil(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 10:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE88F362409B874F713D03209FF37B07FB8206F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738483   (106330) от 22.07.2024
-
-Ontborg - Studio Albums (2 releases) (2019-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106330.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ontborg - мелодик-дэт-метал группа из Мерано, Южный Тироль, Италия.2019 - Within the Depths of Oblivion
-2023 - Following the Steps of DamnationЖанр: Melodic Death MetalПродолжительность: 01:45:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C58410043C9F42253DDA1B1E9CFCB3DBC512B22E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738265   (106315) от 22.07.2024
-
-Riverside - Studio Albums (8 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock/Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106315.jpg" />
-</div>
-
-
-###  Подробнее
-
-Riverside — польская рок-группа, образовавшаяся в 2001 году в Варшаве.2003 - Out of Myself
-2005 - Second Life Syndrome
-2007 - Rapid Eye Movement
-2009 - Anno Domini High DefinitionЖанр: Progressive Rock/MetalПродолжительность: 11:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EA5A946EB3399EC006EFD379ED67DEC271FED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1739107   (106160) от 26.07.2024
-
-Kiss - MTV Unplugged (1996) Club Edition [FLAC 2.0|48/24|image +.cue|MC-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106160.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1:
-01. Comin' Home
-02. Plaster Caster
-03. Goin' Blind(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:750255A87788D8E4166172FA9B201E35ECB01E99
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,203 @@
+###  Публикация: 1788562   (68479) от 31.03.2025
+
+VA - Interplay Miami 2025 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaWTone – Tropical DreamЖанр: Progressive House, Melodic House & TechnoПродолжительность: 01:16:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD34D57AAB75464D8599ECB9803BBCFB7F85E311
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789465   (68317) от 04.04.2025
+
+VA - DJ MIX (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Denver, Nowakowski & Fuentez - SINNER (Orginal-mix) (03:06)
+02. FaraoN & Nowakowski - Crush (Croatia Summer edit) (06:58)
+03. FaraoN - Circles (04:20)
+04. Nowakowski - Run Alone (04:54)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA564B2B8A01B5F9F7754B1B9C2638CC7F0C3172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789484   (68299) от 04.04.2025
+
+VA - Spring Emotions (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A-Mase - Unfrozen Hearts (05:29)
+02. Alysia Sun & A-Mase - Good Bye! (extended mix) (04:03)
+03. A-Mase & Natune - My Way (album version) (04:35)
+04. A-Mase & Sharliz - Beautiful Things 2.0 (07:03)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, ElectronicПродолжительность: 00:57:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3BC92992A7EF38FF441EBD7B085E8239DC6FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789434   (68296) от 04.04.2025
+
+VA - Miami Dance Vibes 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Eclipse - Better With You (02:56)
+02. Marcelo Flexx - Give You Up (Piano mix) (02:43)
+03. Code Xpand - Go You On My Mind (02:27)
+04. Ghosts Of Mars - Space Sign (02:36)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6682EB8634515C1C5F69917C01A23576C8A9DDD9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790046   (68169) от 07.04.2025
+
+VA - 25 Years Of Anjuna Mixed By Eli & Fur (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (01:07:55)
+01. Eli & Fur – Feel The Fire (Journeyman Remix (Mixed)) (06:56)
+02. Dee Montero – Headspace (feat. Meliha) (Mixed) (06:05)
+03. M.O.S. – Khimiya (Mixed) (04:50)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 03:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E3B0AE57BD63ED3029F25181AB91DFF7816B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790141   (68164) от 07.04.2025
+
+VA - EDM Dance 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - Pray For Me (03:09)
+02. 90bangerz - Lost In Time (02:28)
+03. Stephan F & YA-YA - In Your Arms (03:00)
+04. Dani Corbalan - Out of Time (02:55)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A3C55E824E1870BD9939AA245CB9FF275DEC1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790454   (68083) от 09.04.2025
+
+VA - Luminaries 01 (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grafine - Feel [2:45]
+02. Dias Ridge - Moment [3:00]
+03. Hayyoo - Goes Away [2:36]
+04. Fløa - Unlock [3:24](   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 00:47:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A63A3F52D922994F9BA30E5B9C6D29348199F77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790690   (68012) от 10.04.2025
 
 Bob Sinclar - III (2003) Remixed, 2025, Yellow productions [MP3|320 Kbps] <House, Electro House, Dance-pop>
@@ -542,209 +742,6 @@ VA - Ibiza Blue Deluxe 2025 (Complied by Marga Sol) (2025) [MP3|320 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:731986B96C9D924B930AA865E7DFBD07BF505EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799693   (66402) от 29.05.2025
-
-VA - Best Dance Music Summer 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jose Correa - Happy Cosmonaut (03:13)
-02. Dżeju - Breaking Grounds (04:21)
-03. SAMMY & LESEN - Moonlight (Radio Edit) (01:58)
-04. Lost House Rhythms & Falcos Deejay - A Sad Story (03:21)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:28:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3B111367A30EA5A5A8FFB5C898E6B9E9BEC82E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800210   (66285) от 01.06.2025
-
-VA - Sounds Like Summer, Vol. 3 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steen Thottrup & Kaia Mainz - Dreamers (Calmabohain Remix) (03:20)
-02. VS Prjct - Hey Girl (05:07)
-03. Mostly Unfamous - So Different (03:46)
-04. Flauschig - The Way You Give (Radio Edit) (02:45)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:13:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E4F4F7337299C6AB1EDC30745A2519E03D8470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801536   (66201) от 11.06.2025
-
-VA - Nothing But... Late Night Deep House, Vol. 02 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LAGO - The Peace Of God [03:23]
-02. SpeakNice & DaFake - Flip Side Feel [06:09]
-03. CreatunEdeep & Da Jose - Obsession (Sage Mode) [06:42]
-04. Zeni N - Crush (Musicalmind Edit) [02:33](   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:00:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A833EC799BC58B411E60640A23DE1AF72A986802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802466   (66052) от 17.06.2025
-
-VA - Dancefloor Sessions, Vol. 02 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lukkino & Hecate - Aliens (Full Instrumental) (05:59)
-02. Jasper Cruz - Peaceful Limits (04:00)
-03. Swift Vibe - Sakhumbula (04:29)
-04. Max Dolan - Come On (VIP Mix) (03:16)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21BC8AC72F6DE479D6B090BDD179A21870FA9336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802487   (66051) от 17.06.2025
-
-VA - Spring Deep House Hits 2025 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Melodream & Jaime Deraz - Restart (02:37)
-02. Acko, CHXBB & N@OM1 - Senorita (02:54)
-03. Switchblade & Gojko - Too Sweet (02:42)
-04. PressPlays, Lintrepy & Milera - Say It Right (02:45)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 01:00:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CF99460E30EB78832A14C097D0E060B72B94C7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802462   (66049) от 17.06.2025
-
-VA - Club Vibes 2025 - The Dance Anthems (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Esox & Tech'1 - Let the Beat Flow (02:19)
-02. Hi.5, Dry & Bolinger - Satellites (03:02)
-03. Dazz, Calvo & Micah - Love Somebody (02:40)
-04. Perfect Pitch, Rocco & L'EXAIS - World Gone Dark (02:01)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:48:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FFC9D9B41BBA3255C02C865E6C40139548FB47B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803298   (65863) от 22.06.2025
-
-VA - Sounds Like Summer, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calmabohain - Loving (03:11)
-02. Steen Thottrup & Kaia Mainz - Dreamers (Freisig Funky Remix) (06:51)
-03. Squib - Potzblitz (Radio Edit) (03:03)
-04. Benny Heyman - Beating (Beat Amusement Remix) (05:02)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:07:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A67A02DFD94F36A2691AC0F30EDEF4A5B21D10FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

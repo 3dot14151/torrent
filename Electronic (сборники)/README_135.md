@@ -1,3 +1,67 @@
+###  Публикация: 1405421   (483532) от 30.08.2020
+
+VA - Record Super Chart 651 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaBro - Юность (3:39)
+02. twocolors - Lovefool (3:10)
+03. MARUV & Boosin - I Want You (2:55)
+04. Billie Eilish - ilomilo (MBNN Remix) (4:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3394C2FF2B9DDCD91DAF28DF4294CEC200522EE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 546126   (483520) от 11.09.2012
+
+VA - Euphoric Emotions Vol.34 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483520.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Filo & Peri feat. Audrey Gallagher - This Night (Dash Berlin Remix)
+002. Conjure One & Jaren - Like Ice (Marcus Schossow Remix)
+003. Arctic Quest - Glaze (Original Mix)
+004. Armin van Buuren ft. Fiora - Breathe In Deep (The Blizzard Remix)
+005. Cerf, Mitiska & Jaren - Another World (Original Vocal)
+006. Arnej feat. Josie - Strangers We've Become (Vocal Mix)
+007. FKN feat. Jahala - Tonight (Take Me Away) (Mohamed Ragab & Brave Dub Mix)
+008. Estiva feat. Josie - Better Days (Norin & Rad Remix)
+009. Federation - Synchronized (Protoculture Remix)
+010. DNS Project feat. Madelin Zero - Another Day(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF25F542D6E060F61462AEA2F9645124DAB400F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1405453   (482869) от 30.08.2020
 
 VA - crazyДвиж (2020) [MP3|320 Kbps] <Club, Dance>
@@ -696,64 +760,6 @@ VA - Deep House Excitation Two - 15 Finest Deep-and Chillhouse Tunes (2015) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A7A94ADC2175147AECD850B9ABD0C80E6A7D4F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939093   (478022) от 20.09.2015
-
-VA - Atom 19.0 (Compiled and mixed by Deeper82) (2015) [MP3|320 кб/с]<Atmospheric Breaks, Progressive Breaks>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nikolay Mikryukov - Orbit (Original Mix)
-02. EZ Breaks, ARkLove - The Way To Charleroi (Cullen Remix)
-03. Omauha - Florence (Original Mix)
-04. Platunoff - Dive In Silence (Retroid Remix)(   Читать дальше...   )Жанр: Atmospheric Breaks, Progressive BreaksПродолжительность: 02:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18EE71291340161D82AC1826302A38A4F286ABEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938972   (478014) от 20.09.2015
-
-VA - TOP Non-Stop 2010-2015 - Lounge & Chillout (2010-2015) [MP3|192 кб/с]<Chill, Lounge, New Age, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478014.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slacker - A Million Dreams (intro) [01:09]
-02. Ron Basejam - Into My Life (original mix) [05:55]
-03. Mino - Textures [07:20]
-04. Lip Service - Ocean (Nightgroove Mix) [04:31](   Читать дальше...   )Жанр: Chill, Lounge, New Age, AmbientПродолжительность: 05:09:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4515C3A5A32908D2691803BFEDC27E0FE6A401E
 ```
 
 https://mybot314.ru/tekegram_catalog/

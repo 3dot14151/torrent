@@ -1,3 +1,29 @@
+###  Публикация: 1363786   (940465) от 29.02.2020
+
+Avast Premium Security 20.1.2397 Final [Multi/Ru]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Комплексный антивирус Avast Premium Security – расширенная версия антивируса Avast, включающая дополнительные функции: брандмауэр, защита от программ-вымогателей, инструменты защиты конфиденциальности.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E6D3890C8B254425755A32DAB0C61B6AB40A0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363584   (940439) от 29.02.2020
 
 Wallpaper Engine 1.1.341 RePack by Butter_[Multi/Ru]
@@ -642,32 +668,6 @@ Windows 10 Manager — утилита все-в-одном для Microsoft Wind
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F8C7722474C2F11595DC6AE202C40CE6FEBE030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092119   (939740) от 11.01.2017
-
-Cumulative Update KB3213986 for Windows 10 [Ru/En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939740.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кумулятивное обновление KB3213986 для x86-x64 платформ, повышающее номер сборки Windows 10 Anniversary Update до 14393.693. Также в раздаче присутствует обновление для Adobe Flash Player KB3214628.Язык интерфейса: Русский,Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C195BBF8791D4EA3280F136C0476D43BB5265F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1032142   (647374) от 06.07.2016
+
+VA - Disco Хиты 80 - 90. Выпуск 3 (2008) [APE|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647374.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Технология / Полчаса [3:22]
+02 - Комбинация / American Boy [4:43]
+03 - Рома Жуков / Млечный путь [4:28]
+04 - Мираж / Скорость [4:20](   Читать дальше...   )Жанр: PopПродолжительность: 01:11:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D888A8B3E8C008AB9D3CC60BF1D240F8B18BF07E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1227501   (646712) от 26.05.2018
 
 Восток - Best микс (1998) [FLAC|Lossless|image + .cue]<Pop>
@@ -721,35 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DDCEDF5DB75177EC3E92C87BEDFDD6923CDF4FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228980   (631978) от 03.06.2018
-
-VA - Ещё одна вечеринка!! (1995) [FLAC|Lossless|image + .cue]<Pop, Dance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_631978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Каролина - Вот и всё
-02. Лариса Черникова - Подари мне ночь
-03. Кай Метов - А ты меня не поняла (Techno Mix)
-04. Юла и Джимми Джи - Рэйв Тайм (Sovok Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B85882F0058BEC2735DC0C08C8F4D895F1B6A52F
 ```
 
 https://mybot314.ru/tekegram_catalog/

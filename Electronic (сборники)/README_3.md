@@ -1,3 +1,61 @@
+###  Публикация: 1443378   (1035763) от 28.01.2021
+
+VA - Beatport Electro House: Sound Pack #231 (2021) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035763.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы не из числа людей, которые любят переслушивать одну и туже композицию по сто раз? Вам нужно как можно больше разнообразной музыки? Тогда Вы попали по адресу. Представляем вашему вниманию эксклюзивную подборку длинною в целых девять часов, которая составлена из ста композиций эксклюзивной музыки!001. Anthony King - Sex Tonight Again
+002. Ivan Herb - Follow Me
+003. Vin Carter - Special Fat Boy
+004. Art Object - Panaram(   Читать дальше...   )Жанр: HouseПродолжительность: 09:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B64F3559A86A354EDDC4247649BC58014017E08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443369   (1035753) от 28.01.2021
+
+VA - Beatport D&B: Electro Sound Pack #229 (2021) [MP3|320 Kbps] <D&B, Bassline, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035753.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прекрасный сборник лучшей музыки линейки BassLine зимнего сезона от Beatport. В подборку вошли сто десять потрясающих композиций, каждая из которых выполнена в своем уникальном звучании, отличном от общей массы музыкальных треков жанра. Более восьми часов молодежной музыки, которая явно сможет поднять вам настроение, даже в самый унылый день.001. Mikal - Scrapyard Dub
+002. Gevolgen - Tortilla Moon
+003. DJ Jann - Lightworks
+004. Hadiex - Lonely(   Читать дальше...   )Жанр: D&B, Bassline, ElectroПродолжительность: 08:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:844358A00CCFB82609E04600864132F3162096EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1443375   (1035752) от 28.01.2021
 
 VA - Beatport Chill House: Electro Sound Pack #230 (2021) [MP3|320 Kbps] <Chill House, Deep House>
@@ -687,64 +745,6 @@ VA - Event Of The Week: Progressive Trance Mix (2021) [MP3|320 Kbps] <Progressiv
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8E80DA6BE649DB6A3E6C840BEDBBEDE53EFAA12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445960   (1033303) от 07.02.2021
-
-VA - Minimal Jam: Techno Clubbing Set (2021) [MP3|320 Kbps] <Minimal, Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отличная подборка клубного электро техно от известных ди-джеев европы. Лонгплей наверняка будет интересен поклонникам жанра и просто слушателям, которые находятся в постоянном поиске чего-нибудь нового из мира электронной музыки.001. Jks - Emergence
-002. Lorenzo Colombini - Pasec
-003. Melt - Centrum Beats
-004. Pure Infinity - Pulse(   Читать дальше...   )Жанр: Minimal, Techno, Tech HouseПродолжительность: 11:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C2BB69DF0827DD0C7862B338FC208E1A1F2F2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445880   (1033301) от 07.02.2021
-
-VA - Flash Dance Hit: Set Electro House (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033301.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неиссякаемое число звуковых инструментальных проигрышей, легкое и не утомляющее звучание глубоких басов и чувственный вокал, которому на альбоме предоставляется не последняя роль. Музыкальный микс "Flash Dance Hit" затронет струны души слушателя своей "танцевальностью" и позитивным настроем.001. Urban Life - Love City
-002. Bart B More And Tai - Night Bus
-003. Superfitness - Only You
-004. Albert Breaker - Birdo(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 09:49:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:222E137E82DC4918EB63615F2A54FDEE7B22EDDA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1641493   (236450) от 22.06.2023
+
+White Noise Band - Bite the Road (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triton (5:35)
+02. Gathering (4:33)
+03. Sing'n Ride (6:36)
+04. Shadow and Sun (4:45)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C530D7E06151485753AF73834EE721E4B44834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1641474   (236401) от 22.06.2023
+
+Jack Biilmann - Divided Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hot Blood (3:45)
+02. Drink The Water (4:07)
+03. Trouble's Coming (3:33)
+04. Skipping Stone (3:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACD2E9231183B7343CFC957B2757A2C7E01E583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629906   (236385) от 28.04.2023
+
+Taj Mahal - Savoy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stompin at the Savoy
+02. I'm Just a Lucky So and So
+03. Gee Baby Ain't I Good to You
+04. Summer Time(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9384723895036AE8B894F99EA110EFAB3CFB308A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1640360   (236330) от 17.06.2023
+
+Gov't Mule - Peace...Like A River (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Same As It Ever Was
+02. Shake Our Way Out (feat. Billy F Gibbons)
+03. Made My Peace
+04. Peace I Need(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:16:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:599DD4A41D2890342AC8953E8F4EA96675FCE98E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1641473   (236305) от 23.06.2023
 
 Jabo - Jabo Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Jeau James - Fated (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECF2897366DF58FBC0C597490E469D877AD0F9D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641486   (235378) от 22.06.2023
-
-Lou Ann Barton - Natural Born Lover (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Natural Born Lover (3:41)
-02. Not Even Me (3:37)
-03. Rock 'N' Roll 800 (4:52)
-04. Scratch My Back (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D541EF59A27F53153812601CFDF2851E252B74F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641491   (235361) от 22.06.2023
-
-Peter Skandera & Dave Maybee - "blue grit & rhyme" (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dave Maybee (Feat. Peter Skandera) -- Get Rhythm (3:49)
-02. Dave Maybee & Peter Skandera -- She Caught the Katy (4:23)
-03. Billy the Kid (3:42)
-04. Juke (2:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:17:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:811A1C24212327ED96ACA3AFE8BF0A10D284AF0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641468   (235347) от 22.06.2023
-
-Bettye LaVette - LaVette! (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. See Through Me (Feat. Pedrito Martinez) (3:48)
-02. Don't Get Me Started (5:11)
-03. Lazy (And I Know It) (5:17)
-04. Sooner Or Later (Feat. Anthony Hamilton, Ray Parker Jr. & Rev. Charles Hodges) (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C36BA1174DB8449675BFB240DC3876FDA667E385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641461   (235343) от 22.06.2023
-
-Ben Granfelt - Gratitude (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got The Blues From You (4:11)
-02. Life Goes On (4:19)
-03. Remember, Never Forget (4:41)
-04. Desire, The Sirens Call (3:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A674AC76AFA67AB1F1202D12C7C6DDED1D32FC02
 ```
 
 https://mybot314.ru/tekegram_catalog/

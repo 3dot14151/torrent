@@ -1,3 +1,61 @@
+###  Публикация: 1220448   (704492) от 19.04.2018
+
+The Manhattan Transfer - The Junction (2018) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cantaloop (Flip Out!)
+02. Swing Balboa (Down On Riverside)
+03. The Man Who Sailed Around His Soul
+04. Blues For Harry Bosch(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12A0425941259596403E7B89D11395F1897D05E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026527   (704167) от 15.06.2016
+
+Gary Peacock - Voices (1971) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Modern Creative, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704167.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ishi [11:53]
+ 02.Bonsho [06:18]
+ 03.Hollows [07:56]
+ 04.Voice From The Past [11:22](   Читать дальше...   )Жанр: Modern Creative, Post-BopПродолжительность: 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1C9F677E0ADFBAE1C72880EECEB95E4DE57188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026421   (704166) от 15.06.2016
 
 Gary Peacock Trio - Eastward (1970) Remaster, 2015, Sony Music[FLAC|Lossless|tracks + .cue] <Modern Creative, Post-Bop>
@@ -684,64 +742,6 @@ Louis Armstrong - The Ultimate Collection (1994) Remastered [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3192035B099FB9685B90931729AE4FD0A4F26803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287674   (701772) от 08.03.2019
-
-Louis Armstrong - Hello Louis! (1990) 2CD [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701772.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Hello Dolly
-02. Georgia On My Mind
-03. La Vie En RoseЖанр: JazzПродолжительность: 01:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC7E1D06C2145693F824536B15F569BAB0D82BD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1287503   (701766) от 08.03.2019
-
-VA - Sentimental Midnight Jazz (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701766.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dexter Gordon - Guess I'll Hang My Tears Out To Dry
-02. Ella Fitzgerald Feat. Ben Webster - Sophisticated Lady
-03. Billie Holiday - Strange FruitЖанр: JazzПродолжительность: 02:40:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C9E8374522375A2180822084FE059299B4B85C
 ```
 
 https://mybot314.ru/tekegram_catalog/

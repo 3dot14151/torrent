@@ -1,3 +1,125 @@
+###  Публикация: 397912   (251907) от 31.05.2023
+
+The Answer - 8 альбомов (2006 - 2023) 13 CD [FLAC|Lossless|tracks + .cue, image + .cue]<Hard Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251907.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Answer — североирландская рок-группа, образовавшаяся в 2000 году в Ньюкасле и Даунпатрике, Даун, Северная Ирландия, и исполняющая тяжелый блюз-рок и хард-рок с элементами хэви метал (согласно Allmusic - коллаж влияний Led Zeppelin, AC/DC, Free, Thin Lizzy). В начале 2008 года The Answer начали продолжительные гастроли с AC/DC, в результате которых, кстати, получился (   Читать дальше...   )Список альбомов:
+2007 - Rise: Special Edition
+2009 - Everyday Demons
+2011 - 412 Days Of Rock'n'Roll(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 11:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DBAB69F9A59685D1B3E10776B55F06EA5934133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1835664   (251704) от 07.11.2025
+
+Alcatrazz - Prior Convictions (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Transylvanian Requiem (02:19)
+ 02 - Stand And Wait Your Turn (05:48)
+ 03 - Jet To Jet (04:22)
+ 04 - Starr Carr Lane (03:52)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85102222026138C372841B025EEDBE2356DE16D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 494624   (251159) от 11.05.2012
+
+Europe - Bag Of Bones (2012) Japan edition [FLAC (tracks+cue)|Lossless]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_251159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Riches To Rags
+02. Not Supposed To Sing The Blues
+03. Firebox
+04. Bag Of Bones
+05. Requiem
+06. My Woman My Friend
+07. Demon Head
+08. Drink And A Smile
+09. Doghouse
+10. Mercy You Mercy Me(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834711   (250503) от 05.11.2025
+
+Scorpions - From The First Sting (2025) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_250503.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь своего шестидесятилетия легенды немецкого хард-рока SCORPIONS выпустили From The First Sting - захватывающий сборник, демонстрирующий неистощимую энергию, незабываемые гимны и знаковые моменты их славной карьеры. На протяжении всей своей карьеры SCORPIONS рассматривали свою музыку как мост между культурами. Они выступали в странах бывшего Советского Союза, (   Читать дальше...   )01. In Search of the Peace of Mind (4:58)
+02. This Is My Song (Live) (4:08)
+03. Speedy's Coming (3:34)
+04. In Trance (4:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFE5EEE3B0659943DE2131D0A43CA552FC85A681
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562659   (250320) от 10.07.2022
 
 City Fixx - Fire Your Guns (1990) Compilation, 2022, Steelheart Memories, The "Lost US Jewels" Collectors Series – Vol. 12 [FLAC|Lossless|image + .cue] <Hard Rock, Glam>
@@ -628,122 +750,6 @@ Powerhouse - Powerhouse (1986) [FLAC|Lossless|image + .cue] <Hard Rock, Classic 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3AAB5B8F6F44F0998E901EB1943684D9A932B8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624558   (245113) от 07.04.2023
-
-Coiotes S.A. - Daqui Pra Frente Eh Nois (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqueles Olhos [00:03:31]
-02. Cola Com Nois [00:03:46]
-03. Longe Sem Mais Dor [00:03:48]
-04. Última Gota [00:05:17](   Читать дальше...   )Жанр: Heavy Rock, Stoner MetalПродолжительность: 00:38:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3FE45C5B24E20B33B84610BB82B10F03EEB2DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631372   (245051) от 05.05.2023
-
-Winger - Seven (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proud Desperado
-02. Heaven's Falling
-03. Tears Of Blood
-04. Resurrect Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D42F77609DD4D49E064E05A1E053353BEDD83D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631385   (245030) от 05.05.2023
-
-Tygers Of Pan Tang - Bloodlines (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Edge Of The World
-02. In My Blood
-03. Fire On The Horizon
-04. Light Of Hope(   Читать дальше...   )Жанр: Hard Rock, Melodic Heavy MetalПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBFC619C8081DCB53DA523F02D791701E4D625C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451098   (244883) от 28.02.2021
-
-Hardline - Double Eclipse (1992) Japan [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life's a Bitch (04:22)
-02. Dr. Love (05:31)
-03. Love Leads the Way (04:05)
-04. Rhythm from a Red Car (03:41)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC170A5415B44029E90A400EFCE681BF63BFC96
 ```
 
 https://mybot314.ru/tekegram_catalog/

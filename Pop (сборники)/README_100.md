@@ -1,3 +1,119 @@
+###  Публикация: 956077   (330988) от 13.11.2015
+
+VA - Танцуют все с DFM (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330988.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Boston Feat. Solis - Go With Me
+002. Аня Добрыднева - Бабочка
+003. K. Michelle - Maybe I Should Call
+004. Kbdm - Иду На Свет(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF85502D64D8FA8BD1634E91F162C7CF7065960F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580551   (330715) от 01.10.2022
+
+VA - German Top 100 Single Charts 30.09.2022 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330715.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luciano, Aitch & Bia - Bamba (3:23)
+002. Nina Chuba - Wildberry Lillet (2:11)
+003. Miksu - Macloud & Makko - Nachts wach (2:58)
+004. Sam Smith & Kim Petras - Unholy (2:36)(   Читать дальше...   )Жанр: PopПродолжительность: 04:59:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DC84BB8EFF84BDF4EB750FA4D1D8868AD45DF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956241   (330153) от 14.11.2015
+
+VA - Старое Диско в Новом Формате: Выпуск 09 (2015) [MP3|313-320 кб/с]<Disco, Pop-Remix>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330153.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mark Ashley - Touch By Touch 04:36
+002. Dieter Bohlen - Love Me On The Rocks (Dj Alex Dolce Remix ) 03:25
+003. Disco Service - Come And Dance 05:09
+004. A-Ha - Early Morning (DJ Amure Remix ) 03:37(   Читать дальше...   )Жанр: Disco, Pop-RemixПродолжительность: 09:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:113CFCFC8940B82ACF926F3687CA07DA967A1023
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956913   (329315) от 15.11.2015
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 (Зарубежный выпуск - 18 ) (2015) [MP3|318 - 320 кб/с]<Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. London Boys - London Nights (PWL Remix) (07:34)
+02. Bad Boys Blue - Pretty Young Girl (Tarantino ReFresh) (04:29)
+03. C. C. Catch - Backseat of your cadillac (Mix exclusive 2015) (04:04)
+04. Roger Meno - What My Heart Wanna Say (Wolfback's Remix) (09:11)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:57:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:589A8E1DF69F14E8C3B45C1D976D2FD84324FE92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957019   (328406) от 16.11.2015
 
 VA - Fetenhits: Best Of 80’s (2015) [MP3|320 кб/с]<Disco, Pop>
@@ -629,122 +745,6 @@ VA - German Top 100 Single Charts 10.11.2017 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0904924607255E3C6FE9BF01F81A2447FE2D38C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259460   (319046) от 04.11.2018
-
-VA - German Top 100 Single Charts 05.11.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319046.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Capital Bra - Roli Glitzer Glitzer feat. Luciano und Eno
-002. KitschKrieg - Standard feat. Trettmann, Gringo, UFO361 und Gzuz
-003. Dynoro und Gigi D.Agostino - In My Mind
-004. Calvin Harris und Sam Smith - Promises(   Читать дальше...   )Жанр: PopПродолжительность: 05:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABD1AFBE2CF80C224DB0B05B84C856F33B6A473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075524   (318683) от 23.11.2016
-
-VA - Отрывайся C Лучшими Хитами #2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318683.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mseven - Листья 3:53
-002. Helena Shadia - Твоя Девочка 3:32
-003. Валенсия & Андрей Гражданкин - Лепестки Белых Роз 4:14
-004. Hardwell - Blackout 5:13(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04ABE9577A31247A8EEB046A34033E5AD23DE750
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331921   (318354) от 18.10.2019
-
-VA - Funky Fever: Disco Party Show (2019) [MP3|320 Kbps] <Dance, Disco, Funk>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318354.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dr Spice - Cherri Pie
-002. Alex Rossi - Tutto Va Bene Quando
-003. Austin Ato - When Love Gets Cold
-004. Nyra - Neon Glance(   Читать дальше...   )Жанр: Dance, Disco, FunkПродолжительность: 12:10:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB39198806E46E74FA52CBB0D171E56CBE3D7493
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259907   (316166) от 05.11.2018
-
-VA - Love Radio: Big Love 20 04.11.2018 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kazka - Плакала
-02. Мари Краймбрери - AMORE
-03. Luxor feat. Люся Чеботина - No cry
-04. Miyagi & Эндшпиль feat. KADI - In Love(   Читать дальше...   )Жанр: PopПродолжительность: 01:07:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D00B2C08AE39A0F61A5041944D36541B085D87BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

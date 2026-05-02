@@ -1,3 +1,207 @@
+###  Публикация: 515786   (828959) от 05.05.2020
+
+VA - The Crow/из к/ф "Ворон" (1994) Compilation [FLAC|Lossless|tracks + .cue] <OST, Rock & Roll, Soft Rock, Alternative Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828959.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Ворон» (англ. «The Crow») - дебютный кинофильм Алекса Пройаса, экранизация одноимённого чёрно-белого комикса Джеймса О’Барра. У фильма есть три сиквела, также имеется телесериал с Марком Дакаскосом, показывающий альтернативную версию сюжета фильма. На съёмках Брэндон Ли был случайно ранен из реквизитного револьвера выстрелом актёра Майкла Масси, который играл одного (   Читать дальше...   )01. The Cure - Burn (06:38)
+02. Machines Of Loving Grace - Golgotha Tenement Blues (03:59)
+03. Stone Temple Pilots - Big Empty (04:56)
+04. Nine Inch Nails - Dead Souls (04:53)(   Читать дальше...   )Жанр: OST, Rock & Roll, Soft Rock, Alternative RockПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5AB5E9BC1BD584D38F390298D7C70F0EA124399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005754   (828801) от 11.04.2016
+
+Аквариум и Борис Гребенщиков - Live "Весенний концерт" БГ60, Самара, КРЦ "Звезда", (2014) [AC3 5.1|448 кб/с] <Рок>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828801.jpg" />
+</div>
+
+
+###  Подробнее
+
+В раздаче аудио-дорожка (с потрековой разбивкой) от видеозаписи концерта, состоявшегося 25.05.2014г. в Самаре. Запись из зала "с воздуха".
+Видео можно найти >здесь< и >здесь<.01. Intro
+02. Губернатор
+03. Праздник Урожая Во Дворце Труда
+04. Не Было Такой И Не Будет(   Читать дальше...   )Жанр: РокПродолжительность: 02:30:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4F65ACCCE8764770469A5088B085C02CDD2CB72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380925   (827809) от 06.05.2020
+
+Salvador Candel & Carlos Fiel - Tengo Un Gran Amor (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827809.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tengo un gran amor 04:26
+2. Colores de amanecer 04:13
+3. Encuentros luminosos 04:02
+4. Canción para un amigo 03:16(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79BB95385943A55093BA33CFCF4077E089BBEDEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381012   (827807) от 06.05.2020
+
+David Hollandsworth - Imagine a World (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827807.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A New Horizon 03:06
+2. Depths of Love 02:43
+3. Limitless	 02:10
+4. Imagine a World 03:44(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00EE00000C7E00AECA103D6D0CE729A6560C05A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380801   (827735) от 06.05.2020
+
+Asian Zen - Yoga Meditation Edition 2020 [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827735.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zen Healing 03:14
+2. Calm Mind 03:16
+3. Relax Therapy	 03:34
+4. Mantra 03:58(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30419B2C9E6E765B9ADF9CF551FECF5E9939E55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381191   (827730) от 06.05.2020
+
+Terry Scott Taylor - Return To The Neverhood (Comic Book Soundtrack) (2012) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture: The Return
+02. Let's Get This Ball Rolling!
+03. Over The Deeporama
+04. Out Of The Clay And Mud & Coilsssss And Sssssspringsssss(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4288F6CCB9C24605AF4AF99056BFEDECA551C03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381201   (827649) от 06.05.2020
+
+Power Glove - Far Cry 3 Blood Dragon OST (2013) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rex Colt [1:47]
+02. Blood Dragon Theme [3:04]
+03. HELO-73 [1:17]
+04. Warzone [2:37](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 1:01:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE95613D43D82C93454FE6A4543623743EC659E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006491   (826905) от 12.04.2016
 
 Motoi Sakuraba, Yuka Kitamura - Dark Souls III (Original Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
@@ -539,208 +743,6 @@ VA - Just Spice Of Duduk (part 3) (2002) [FLAC|Lossless]<Duduk/Instrumental>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECF2DBCB3B83530A5D0AD0F7355E8585257136E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116163   (822758) от 20.03.2017
-
-VA - Imaginary Tibetan Journey Music Soothing Atmosphere, Namaste Yoga, Deep Meditation (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ageless Tibetan Temple - Imaginary Tibetan Journey Music
-02. Brain Stimulation Music Collective - Asian Meditation (Cello & Waves)
-03. Reiki Healing Zone - Deep Sleep: Calming Music
-04. Deep Aura Meditation Ambient - Breathing Light(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50C79BDEA0970731A789B86BC84A45EECA445685
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116615   (822748) от 20.03.2017
-
-Кукуруза - Там, где солнечный свет (1993) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Old Widow Woman (Traditional) (4:41)
-02. Poor Wayfaring Stranger (Traditional) (3:27)
-03. Ты мне не был чужим / You Were Not A Stranger To Mе (Andrew Shepelev) (3:49)
-04. Coming Back To You (Leonard Cohen) (3:31)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:45:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B516203AC7708EBAE6EDF8F3892B82E96CA2BA10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381839   (822654) от 09.05.2020
-
-Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Lossless|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaymen Shuffle
-02. Olley Oxen Free
-03. Everybody Way Oh!
-04. Rock And Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:11:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A5E070B9F9ACC7E5824D6EDC8CBFCFC38F7EAFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115379   (822615) от 20.03.2017
-
-Alan Menken & VA - Beauty and the Beast / Красавица и чудовище (Original Motion Picture Soundtrack) (2017) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Menken - Main Title: Prologue (03:02)
-02. Alan Menken - Belle Meets Gaston (00:54)
-03. Alan Menken - Your Mother (02:14)
-04. Alan Menken - The Laverie (01:22)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 02:11:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7627050750363C03F8215CE040F18CA970A11CBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502730   (822568) от 17.10.2021
-
-Jim Brickman - The Ultimate Christmas Playlist (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joy To The Night (3:56)
-02. O Christmas Tree (3:58)
-03. Little Drummer Boy (3:28)
-04. Christmas Time Is HereO Christmas Tree (3:58)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:57:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5FBC4F99939CEA0B2EE2F6E29C4E0D379D99F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116501   (822476) от 20.03.2017
-
-Болот Байрышев - 2 альбома (2012) [FLAC|Lossless|tracks + .cue] <World Music, Ethno, Throat Singing, Altai Горловое пение>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822476.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - Алас
-2012 - Ай эскидеЖанр: World Music, Ethno, Throat Singing, Altai Горловое пениеПродолжительность: 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6701557CBF61EDA506D0AA3A3A77FFB3B6BFAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115382   (822475) от 20.03.2017
-
-Alan Menken & VA - Beauty and the Beast / Красавица и чудовище (Original Motion Picture Soundtrack) (2017) Deluxe Edition [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Menken - Overture (03:06)
-02. Alan Menken - Main Title: Prologue Pt. 1 (00:43)
-03. Audra McDonald - Aria (01:03)
-04. Alan Menken - Main Title: Prologue Pt. 2 (02:22)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 02:11:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32F18EFAF754743095426E6FDD9CED03DB5E05F
 ```
 
 https://mybot314.ru/tekegram_catalog/

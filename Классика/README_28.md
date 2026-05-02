@@ -1,3 +1,32 @@
+###  Публикация: 1305765   (555743) от 03.06.2019
+
+VA - Шедевры классической музыки в рок-обработке  том 2 (Unknown) [FLAC|Lossless|tracks + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Richard Clauderman  - Capriccio Romantico (2:55)
+02. Rondo Veneziano  - Musica... Fantasia (2:50)
+03. The Ventures  - the William Tell Overture (3:13)
+04. Jan Holland  - Dreamlover (2:53)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 02:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF7FCF5DE3EADB87AD175A65C177244F1B945EB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1306759   (555460) от 06.06.2019
 
 Adya - Classic (2011) [FLAC|Lossless|image + .cue] <Classical Crossover, Pop, Instrumental>
@@ -723,35 +752,6 @@ Paul Anthony Adams - Sonates au Clair De Lune (Moonlight Sonata) (2014) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1731D6A9CD6F4EB1D25BF4F8E05D62BCBABA7ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927339   (528577) от 13.08.2015
-
-Rimsky-Korsakov - The Legend of the Invisible City of Kitezh, Sheherazade (Yuri Temirkanov & St.Petersburg Philharmonic Orchestra) (2013) [FLAC|image +.cue]<Classical, Opera, Tone Poem, Symp ...
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528577.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Legend of the Invisible City of Kitezh
-01. Pean to the Wildrness (04:38)
-02. Wedding Procession and Tartar Invasion (03:24)
-03. Battle of Kershenets (04:09)(   Читать дальше...   )Жанр: Classical, Opera, Romantic Period, Tone Poem, Symphonic SuiteПродолжительность: 00:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2EFA9DE58C91135193159917298C139B1993FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

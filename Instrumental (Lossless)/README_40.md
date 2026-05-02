@@ -1,3 +1,119 @@
+###  Публикация: 1207025   (780814) от 17.02.2018
+
+Rick Springfield - The Snake King (2018) [FLAC|Lossless|tracks + .cue] <Blues Rock, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780814.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Land Of The Blind (4:51)
+02. The Devil That You Know (3:03)
+03. Little Demon (5:22)
+04. Judas Tree (3:21)(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2582BF31D7709850BC5E5FC5378495D81F5232DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209191   (779519) от 25.02.2018
+
+Janiva Magness - Love Is An Army (2018) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back To Blue
+02. Hammer (ft. Charlie Musselwhite)
+03. On And On (ft. Rusty Young)
+04. Tell Me(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB67500BE59FBC4E880E8680FC82D1033BAD9A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211897   (776861) от 09.03.2018
+
+Jill Fulton - Southern Breeze (2018) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776861.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Python Boots (4:11)
+02. Girls' Night Out In Nashville (3:21)
+03. Memphis (3:29)
+04. Big City Girl (3:19)(   Читать дальше...   )Жанр: Blues, Rock, CountryПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3952CE245431830517D94D3EF2C0C6620BD96FFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1014062   (776533) от 07.05.2016
+
+Michael Juan Nunez - Rise (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776533.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Betta
+2. Come into the Light
+3. Lost It
+4. Trouble(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11897304D0DAFDCBFA86C9D0A51D69A8E064490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1014419   (776487) от 07.05.2016
 
 VA - Blind Pig Presents: Night Time Blues (2016) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -624,120 +740,6 @@ Jocelyn & Chris Arndt - Go (2017) [FLAC|Lossless|tracks + .cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF3EB4B4683D8CC212CEEA4E762BE3A9E36A6B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126385   (766375) от 17.04.2017
-
-Lillian Boutte & Christian Willisohn - Lipstick Traces: A New Orlean RnB Session (1991) [FLAC|Lossless|tracks + .cue] <Piano Blues, New Orlean Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lipstick Traces (3:07)
-02. Why Don't You Do Right? (4:24)
-03. One for the Highway (3:24)
-04. Music is My Life (4:56)(   Читать дальше...   )Жанр: Piano Blues, New Orlean BluesПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB8A6D1AECE529039892320AC4A1B0F8CE29BE50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126372   (766328) от 17.04.2017
-
-Goapele - 2 Album (2002, 2011) [FLAC|Lossless|tracks + .cue] <R'n'B, Neo Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766328.jpg" />
-</div>
-
-
-###  Подробнее
-
-2002 - Even Closer
-2011 - Break of DawnЖанр: R'n'B, Neo SoulПродолжительность: 01:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84C768BB5793A9DBED94A463B50F55D8B54EDDEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126062   (766327) от 17.04.2017
-
-Freddie King - The Complete King Federal Singles (2012) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Got To Love Her With A Feeling (1960)  (03:16) 
-02. Have You Ever Loved A Woman (1960)  (03:08) 
-03. Hide Away (1961)  (02:39) 
-04. I Love The Woman (1961)  (02:50) (   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 02:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4566574C7A5CF34A37B79F9BF1F718ABE51554
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126213   (766321) от 17.04.2017
-
-Songhoy Blues - Music In Exile (2015) [FLAC|Lossless|tracks + .cue] <Desert Blues, Ethnic Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766321.jpg" />
-</div>
-
-
-###  Подробнее
-
-Songhoy Blues - квартет из Мали, который сегодня базируется в Лондоне. История группы складывалась драматично. Весной 2012 года радикальные исламисты и повстанцы-туареги захватили север Мали с целью создать собственное независимое государство. Они ввели новые законы, которые запрещали местным жителям курить сигареты, пить алкоголь и играть музыку. Публичным избиениям (   Читать дальше...   )01. Soubour (3:32)
-02. Irganda (3:21)
-03. Al Hassidi Terei (3:44)
-04. Sekou Oumarou (3:34)(   Читать дальше...   )Жанр: Desert Blues, Ethnic BluesПродолжительность: 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA838C7644FF3BC2A0A5ED9DE227D23A8D4410E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

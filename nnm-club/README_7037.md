@@ -1,357 +1,25 @@
-###  Публикация: 199929   (782287) от 11.05.2010
+###  Публикация: 1204930   (784051) от 08.02.2018
 
-Затойчи / Zatoichi (2003) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Азиатское кино (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Япония, XIX век. Затоичи - слепой странник, который зарабатывает на жизнь игрой в кости и массажем. Но за этим скромным фасадом скрывается боец, искусно владеющий мечом, обладающий молниеносной реакцией и наносящий удары с потрясающей точностью.
-Затоичи приходит в расположенный высоко в горах городок, находящийся во власти шайки Гиндзо. Безжалостный Гиндзо уничтожает (   Читать дальше...   )Производство: Япония, Office Kitano, Bandai Visual Co. Ltd., Dentsu Inc.Жанр: Боевик, Драма, КомедияРежиссер: Такеши КитаноАктеры: Такеши Китано, Таданобу Асано, Юко Дайке, Акира Эмото, Така Гатаруканару, Сабуро Ишикура, Иттоку Кисибе, Юи Натсукава, Мичиё Огусу, Дайгоро ТачибанаСубтитры: РусскиеПродолжительность: 01:55:43
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 198526   (782284) от 11.05.2010
-
-Claymore / Клеймор [2007, TV,  26 серий] BDrip 1080p raw
-
->>След.
->>Аниме (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Claymore / Клеймор Год выпуска: 2007
-Жанр: приключения, фэнтези, драма
-Тип: TV-сериал(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 200149   (782281) от 11.05.2010
-
-Железный человек 2 / Iron Man 2 (2010) TS
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782281.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: фантастика, боевик, приключенияРежиссер: Джон ФавроВ ролях: Роберт Дауни мл., Гвинет Пэлтроу, Дон Чидл, Скарлетт Йоханссон, Сэм Рокуэлл, Микки Рурк, Сэмюэл Л. Джексон, Кларк Грегг, Джон Слэттери, Гарри ШендлингФормат: AVI (XviD)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 199664   (782277) от 11.05.2010
-
-Парад Победы 2010 г. Красная Площадь (2010) IPTVRip
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Парад на Красной площади в честь Дня Победы. Военный парад в честь 65-летия Победы в Великой Отечественной войне станет рекордным за последние годы.
-В параде 9 мая 2010 года принимают участие 161 единица военной техники, а в небе над Москвой пролетят 127 самолетов и вертолетов. Торжественным маршем по Красной площади пройдет около 10,5 тысяч российских военнослужащих (   Читать дальше...   )Телекомпания: Первый КаналЖанр: Телепередача, ДокументальныйПродолжительность: 01:14:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390832   (782273) от 17.06.2020
-
-Protest The Hero - Palimpsest (2020) [MP3|320 Kbps] <Metalcore>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Migrant Mother (03:50)
- 02. The Canary (04:28)
- 03. From The Sky (06:15)
- 04. Harborside (01:01)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390900   (782272) от 17.06.2020
-
-Литл Бэйби Бам - Детские стишки для веселых детишек (2020) [MP3|192 Kbps]<Детские песни>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Письмо
-02. Колёса у автобуса (Части автобуса)
-03. У Мэри была овечка (Куда ушла Мэри)
-04. Лис(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43368EDB45C3D891F62EA58099C43B2CEF2ACB4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390869   (782271) от 17.06.2020
-
-J. Albert - Measuring Things Up (2020) EXTRO jp [FLAC|Lossless|WEB-DL|tracks] <Techno, Tech House, Deep House, Dub>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Radio (08:22)
- 02. Inward (05:20)
- 03. Peripheral (08:22)
- 04. Woo (06:09)(   Читать дальше...   )Жанр: Techno, Tech House, Deep House, DubПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C73F5ADBD79DF5446A5D5D4DD358508BBF5BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390853   (782270) от 17.06.2020
-
-Mitti 1.5.7 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782270.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mitti - это современное, многофункциональное, но простое в использовании профессиональное программное обеспечение для видеовоспроизведения в театральных, аудиовизуальных шоу, выступлениях и выставках.
-
-Mitti имеет понятный, интуитивно понятный пользовательский интерфейс с легким в освоении и использовании рабочим процессом, современным 64-битным аудио с низкой задержкой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.05.2020Разработчик: ImimotПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246E754F4E2421BA0ECC972FE773B00A50959A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390752   (782269) от 17.06.2020
-
-Timer Utility 5 v1.01 [En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Timer Utility 5 - это универсальный инструмент синхронизации, с помощью него вы можете отдельно устанавливать будильник, таймер или секундомер на ваш Mac.Тип издания: macOS SoftwareРелиз состоялся: 16.06.2020Разработчик: Lumenbyte, LLC.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390678   (782268) от 17.06.2020
-
-Lori Lewis - Carmina Romanus (2020) [MP3|320 Kbps] <Symphonic Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782268.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sol Invictus (03:55)
- 02. Mercury (04:12)
- 03. Venus (03:20)
- 04. Tellus (03:40)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:39:47
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390889   (782267) от 17.06.2020
-
-BetterZip 5 v5.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если на жестком диске есть данные, которые используются редко, в целях экономии дискового пространства имеет смысл упаковать такие файлы и папки в архивы. Для этой цели необходимо воспользоваться программой-архиватором, например, утилитой BetterZip.
-
-Приложение позволяет сжимать данные, используя разные алгоритмы упаковки, уменьшая при этом исходный размер файлов. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.06.2020Разработчик: MacItBetterПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ADF2AE6A5FE0F435EDD4B2A86BBBC8FA5A64C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390886   (782266) от 17.06.2020
-
-PDFpen Pro 12 v12.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782266.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDFpen Pro - приложение для создания и редактирования PDF-документов. С помощью PDFpen Pro вы сможете добавлять тексты, картинки, подписи, заполнять формы, делать исправления, добавлять, удалять и изменять порядок страниц. Помимо этого вы можете создавать собственные формы и таблицы контента. В дополнение PDFpen Pro может сконвертировать PDF-файл в Word-документ, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.06.2020Разработчик: SmileOnMyMac, LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2CF2D55FBDDB810AB3B9C518B65FF84D6BA33C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390867   (782265) от 17.06.2020
-
-Quicksilver Messenger Service - Happy Trails (1969) Remastered, 1992, BGO Records [FLAC|Lossless|tracks + .cue] <Rock, Psychedelic Rock, Classic Rock>
+MGMT - Little Dark Age (2018) [FLAC|Lossless|tracks + .cue] <Alternative, Indie, Electronic>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782265.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784051.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Who Do You Love Suite, Who Do You Love (Part 1) (3:33)
-02. When You Love (5:15)
-03. Where You Love (6:07)
-04. How You Love (2:46)(   Читать дальше...   )Жанр: Rock, Psychedelic Rock, Classic RockПродолжительность: 00:50:24
+01. She Works Out Too Much (04:38)
+02. Little Dark Age (05:00)
+03. When You Die (04:24)
+04. Me and Michael (04:50)(   Читать дальше...   )Жанр: Alternative, Indie, ElectronicПродолжительность: 00:44:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1BA0EF7BE8440966E68E307C7DC22B3331700121
+magnet:?xt=urn:btih:47B99C313944093A0DC8AE9A3BEEDA697AE78774
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -359,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390896   (782264) от 17.06.2020
+###  Публикация: 1205107   (784050) от 08.02.2018
 
-Литл Бэйби Бам - Давайте потанцуем! (2020) [MP3|320 Kbps]<Детские песни>
+VA - Pioneer Studio - World In My Eyes (2018) [MP3|320 Kbps] <Dance, Disco>
 
->>нет
->>нет
+>>Неофициальные сборники
+>>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782264.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784050.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Наряжаемся в костюмы (принцессы, пираты и самолёты)
-02. Малыш акула (Акулья семья)
-03. Песенка о звуках разных животных
-04. Семья поросят(   Читать дальше...   )Жанр: Детские песниПродолжительность: 00:34:52
+01. Alex Neo & Neon People - Сумасшедшее желанье (Radiorama - Desire)
+02. Alex Neo & Antony Ganion - Стрелка на часах (Blue System - Do you wanna be my girlfriend)
+03. Alex Neo, Tatyana Kravtsova & Zlatko Woykova - Чужой (Alphaville - Big In Japan)
+04. Alex Neo & Antony Ganion - Дай мне (Bad Boys Blue - Gimme gimme your loving)(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 01:23:34
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B8CA2F02E8060F530B09120872897421E3AAE3F0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -388,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390761   (782263) от 17.06.2020
+###  Публикация: 1205049   (784049) от 08.02.2018
 
-The Soft Machine - The Soft Machine (1968) Limited Edition, Reissue, 2013, ABC Records [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Psychedelic Rock>
+iDatabase 3.25 [En]
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782263.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784049.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hope For Happiness (4:22)
-02. Joy Of A Toy (2:50)
-03. Hope For Happiness (Reprise) (1:40)
-04. Why Am I So Short? (1:38)(   Читать дальше...   )Жанр: Jazz-Rock, Psychedelic RockПродолжительность: 00:46:43
+iDatabase - это самый простой способ организовать ваши данные, т.е. содать базу данных используя один из 22 готовых шаблонов, легко настроив их "под себя" или создайте новую базу данных с нуля. В список готовых шаблонов входят бухгалтерия, компьютеры, контакты, клиенты, расходы, доходы, инвентаризация, рецепты, мобильные телефоны, фильмы и многое, многое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2018Разработчик: ApimacПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:D2D6AD6A33A5BC78293E5C85DFBAD7D5C082182A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -417,28 +82,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390805   (782262) от 17.06.2020
+###  Публикация: 1205115   (784048) от 08.02.2018
 
-VA - The Best Workout Love Boy (2020) [MP3|320 Kbps] <Electro House>
+David Duchovny - Every Third Thought (2018) [MP3|320 Kbps] <Rock, Singer-Songwriter>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782262.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784048.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fabloo - Make Me Complete (Original Mix)
-02. Amos Dj - Popcorn (Remix)
-03. Dj Marco Marzo - Open for Lunch
-04. Gipsybeat - Muzika Tambuza (Gipsy Extended Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:47:55
+01. Half Life
+02. Every Third Thought
+03. Maybe I Can’t
+04. Stranger in the Sacred Heart(   Читать дальше...   )Жанр: Rock, Singer-SongwriterПродолжительность: 00:51:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC5149FD5AAA418E0A83B50958748CCB1496CAE8
+magnet:?xt=urn:btih:EBA421909A540A5F28D2F1F119D5D356CE5F758F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -446,170 +111,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390802   (782261) от 17.06.2020
+###  Публикация: 1205043   (784047) от 08.02.2018
 
-VA - Workout Music 2020 [MP3|320 Kbps] <Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyranix And Firman JP - Megapolis (Original Mix)
-02. Roman Hayez - Take Over (Original Mix)
-03. Mike Zaloxx - Voltage (Original Mix)
-04. Mat1ne - High Bounce (Original Mix)(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:19:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CB028B8423BB710AD6D7E21A58788999B81EB0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390920   (782260) от 17.06.2020
-
-James Grant - The Anjunadeep Edition 300 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nikola Melnikov & Max Sorokin - Sun Wakes Up Earlier Than All (Mixed) (04:59)
-02. Nordfold - Trondheim (Mixed) (04:22)
-03. Nikola Melnikov & Max Sorokin - Pandawa (Mixed) (03:49)
-04. Rezident - Pure (Mixed) (04:04)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 03:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297937A22264F215BBA54AA124A65F01D7B1A8C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390923   (782259) от 17.06.2020
-
-VA - Quadrophobia V.1 (1998) Pendragon Records [FLAC|Lossless|tracks+.cue] <IDM, Electro, Industrial>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gridlock - Enzyme (04:30)
- 02. Gridlock - Headache (04:12)
- 03. Gridlock - Sickness (Second Disease) (04:14)
- 04. Gridlock - Retina (Reconstructed By Individual Totem) (05:41)(   Читать дальше...   )Жанр: IDM, Electro, IndustrialПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4194BD44A9239A6B66413A3C696DE6205454A073
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390755   (782258) от 17.06.2020
-
-VA - EDM Pool Party: Night Session (2020) [MP3|320 Kbps] <Club, Dance, House, Edm>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782258.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Matoma - The Bender
-002. Headlinerz - Heat Of The Night
-003. Reepr - Drugs, Dance & Tekno
-004. Miami Shakers - City Lights(   Читать дальше...   )Жанр: Club, Dance, House, EdmПродолжительность: 09:36:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390859   (782257) от 17.06.2020
-
-Nick Drake - Five Leaves Left (1969) [FLAC|Lossless|tracks + .cue] <Rock, Folk Rock>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 'Cello Song (4:48)
-02. Day Is Done (2:29)
-03. Fruit Tree (4:49)
-04. Man in a Shed (3:55)(   Читать дальше...   )Жанр: Rock, Folk RockПродолжительность: 00:41:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390669   (782256) от 17.06.2020
-
-AMA Supercross Championship: Salt Lake City (11.06.2020) WEB-DL [H.264/720p-LQ]
+Матч всех звёзд НХЛ 2018 / 2018 NHL All-Star Game (28.01.2018) WEB-DL [H.264/1080p-LQ]
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_782256.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Вячеслав Брыкин)Продолжительность: 03:01:47
+29 января 2018 года, понедельник. 00:00 МСК
+63-й Матч всех звёзд НХЛ состоялся 28 января 2018 года, в городе Тампе, штат Флорида, на домашней арене клуба «Тампа-Бэй Лайтнинг». Этот матч звёзд стал 2-м проводимым в Тампе. Матч звёзд проходит в формате мини-турнира 3 на 3. Команда победившая в финале получает $ 1 млн.
+В программе Матча всех звёзд НХЛ 2018:
+1/2 финала:(   Читать дальше...   )Телекомпания: Setanta Sports Eurasia HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:45:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6B4CED2E26E59FF9486DAD09B79A7466CB3E5F3
+magnet:?xt=urn:btih:2E358A782F4FF45CBFEA0DFC147D0CE0EEA43E82
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,50 +140,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390861   (782255) от 17.06.2020
+###  Публикация: 1205001   (784046) от 08.02.2018
 
-Серия Кубков NASCAR-2020. 11-й Этап. Мартинсвилль 500. Гонка / NASCAR Cup Series 2020. Round 11. Blue-Emu Maximum Pain Relief 500. Race WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782255.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 этап Nascar Cup, Blue-Emu Maximum Pain Relief 500, Martinsville Speedway (500 Laps, 263 Miles).Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Никита Дмитриев)Продолжительность: 03:05:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5664AB2C87D3EAA894B66D3162B4FC4C7F6106F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390839   (782254) от 17.06.2020
-
-VA - Beatport Trance: Electro Sound Pack #103 (2020) [MP3|320 Kbps] <Trance>
+Растровый клипарт - Shutterstock - Christmas Balls on the Christmas Tree [JPG]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784046.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. 2d Project - Superstar
-002. Akatosh - Goblin's Dinner
-003. Jean Clemence - Ajna (Original Mix)
-004. Paracozm - Riding The Glass(   Читать дальше...   )Жанр: TranceПродолжительность: 09:47:47
+Рождественские шары на елку с Shutterstock, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 2823x3359-7468x7742
 
 ## Скачать торент
 ```bash
@@ -672,28 +166,525 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390760   (782253) от 17.06.2020
+###  Публикация: 1204917   (784045) от 08.02.2018
 
-Robert Wyatt - EPs (1974-1978) 1999 Box Set 5 CD, Compilation [FLAC|Lossless|tracks + .cue] <Jazz, Folk, World, & Country>
+Greg Lake - 7 альбомов, 10 CD (1981-2015) [FLAC|Lossless|image + .cue] <Progressive Rock, Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Британский бас-гитарист, гитарист, вокалист, автор песен и продюсер, наиболее известный как участник King Crimson и супергруппы Emerson, Lake and Palmer. Грег Лэйк (Greg Lake) родился 10 ноября 1947-го года в городе Борнемут. У него характерный тембр голоса и свой стиль игры на гитаре. Лейка считают одним из крупнейших талантов британской сцены прогрессивного рока (   Читать дальше...   )--------------------------
+
+01. Money Talks  (3:34)
+02. Love Under Fire (5:21)(   Читать дальше...   )Жанр: Rock, Hard Rock, Progressive Rock, Art Rock |Продолжительность: 08:49:24 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D16F02F83591FDAC93A66B24EE22C65C9FB2A07D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205201   (784044) от 08.02.2018
+
+Телефон доверия - Прости меня (1994) [MP3|320 Kbps] <Pop, Retro>
+
+>>Pop
+>>Советская эстрада, Ретро
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прости меня
+02. Телефонный звонок
+03. Пора отчалить кораблю
+04. Да и нет(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75274C435FB349068FCF7873DE612E7810E37B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204998   (784043) от 08.02.2018
+
+Векторный клипарт - Puzzle Infographics Backgrounds 23 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784043.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Головоломка Инфографика Фоны
+4 AI +TIFF PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3104FE8FDCB28772B8D34DDEE9C46B5FF16503C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205053   (784042) от 08.02.2018
+
+Матч всех звёзд НХЛ 2018 / 2018 NHL All-Star Game (28.01.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784042.jpg" />
+</div>
+
+
+###  Подробнее
+
+29 января 2018 года, понедельник. 00:00 МСК
+63-й матч всех звёзд Национальной хоккейной лиги состоялся 28 января 2018 года, в городе Тампе, штат Флорида, на домашней арене клуба «Тампа-Бэй Лайтнинг». Этот матч звёзд стал 2-м проводимым в Тампе. Матч звёзд проходит в формате мини-турнира 3 на 3. Команда победившая в финале получает $ 1 млн.
+В программе Матча всех (   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:38:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C68E061FF2938766D56B139036CD8C42A3041B68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204962   (784041) от 08.02.2018
+
+Седьмое знамение / The Seventh Sign (1988) BDRip [H.264/720p]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784041.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время на исходе. Грядет Апокалипсис — реки наполняются кровью, пустыни покрываются льдом, а луна светит зловещим багровым сиянием. Перед лицом обреченного человечества проходят все шесть знамений конца света. Самым страшным, седьмым знамением судного дня должен стать еще не рожденный ребенок, и горе матери, носящей его под сердцем.Производство: США / Interscope Communications, ML Delphi Premier Productions, TriStar PicturesЖанр: Драма, Триллер, Ужасы, ФэнтезиРежиссер: Карл ШульцАктеры: Деми Мур, Майкл Бин, Юрген Прохнов, Питер Фридман, Мэнни Джекобс, Джон Тейлор, Ли Гарлингтон, Акошуа Бусиа, Гарри Бейзил, Арнольд ДжонсонПеревод: Дублированный, Многоголосый, Двухголосый, Авторский х2Субтитры: Русские, АнглийскиеПродолжительность: 01:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A72BD243393A7CD524EAB2E1BE1FB2D5C819ED27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204134   (784040) от 08.02.2018
+
+Jeremiah Kane - The New Dawn (2017) [FLAC|Lossless|WEB-DL|tracks|24Bit] <80s, Retrowave, Synthwave>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784040.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nightmoon (feat. Turbo Knight) (4:32)
+ 2. The Killer Grid (3:54)
+ 3. Ghost Lanes (4:42)
+ 4. Anticitizen (4:43)(   Читать дальше...   )Жанр: 80s, Retrowave, SynthwaveПродолжительность: 00:39:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38934F0AE9E5459A4E58ABCB51A952BD7C835AA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204996   (784039) от 08.02.2018
+
+Растровый клипарт - Creative Market - Watercolor rustic flowers clip art - 2174732 [PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (элементы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Акварельный деревенский клипарт: 9 png элементов (прозрачный фон)Формат: PNGРазрешение файлов: 362x945-1181x1032
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4967D56D00CA9F21008E3D08DA9D61F3AC553F3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204963   (784038) от 08.02.2018
+
+TechSmith Snagit 2018.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784038.jpg" />
+</div>
+
+
+###  Подробнее
+
+TechSmith Snagit облегчает захват изображений с экрана благодаря возможности использования специальных профилей захвата, ориентированных на определенные цели. В продукт включены профили захвата, привязанные к соответствующим комбинациям клавиш. Профили обеспечивают возможность захвата как всего экрана в целом, так и отдельных его частей – текста из окна текстового (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2018Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B52A40046F510304AB7369513CE7A5B43BD0014C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205076   (784037) от 08.02.2018
+
+Блейк Пирс | Когда Пора Отступиться (2017) [FB2]
+
+>>Художественная литература
+>>Боевики, Детективы, Триллеры
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Седьмой роман цикла «Райли Пейдж».
+
+Когда специальный агент Райли Пейдж наконец решает взять заслуженный и необходимый перерыв от службы в ФБР, просьба о помощи приходит оттуда, откуда её ждёшь меньше всего: от собственной дочери. Лучшая подруга Эприл раздавлена смертью своей сестры, новенькой студентки из Джорджтауна. Что ещё хуже, она уверена, что самоубийство (   Читать дальше...   )Жанр: Зарубежные детективы, Полицейские детективы, Современные детективы, ТриллерыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD8A294FF6EA51B375195E38C53B9834B74FDE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205020   (784036) от 08.02.2018
+
+Александра Бракен | Странник (2018) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй роман цикла «Пассажирка».
+
+Этту и Николаса вновь разделяет время и пространство.
+Девушке нужно закончить начатое, узнать правду о своих родителях и сделать выбор, способный бесповоротно изменить будущее.(   Читать дальше...   )Жанр: Зарубежное фэнтези, Зарубежные любовные романы, Историческое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506EAFB2066A979BBA48F7FB6BD373761AFA9380
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205166   (784035) от 08.02.2018
+
+Therion - Beloved Antichrist (2018) [MP3|320 Kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn From Heaven
+02. Where Will You Go?
+03. Through Dust, Through Rain
+04. Signs Are Here(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 03:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3857492065A332009273AF92917A727295AB5942
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205010   (784034) от 08.02.2018
+
+Battery Health 3 v1.0.10 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784034.jpg" />
+</div>
+
+
+###  Подробнее
+
+Battery Health является наиболее полным инструментом для получения жизненно важной информации о вашей батареи MacBook, таких как текущий уровень заряда, емкость батареи, энергопотребления, температуры, циклов заряда и т.д.
+
+Battery Health предоставляет подробные сведения о здоровье аккумулятора MacBook (макс расход, уровень здоровья в процентах), время использования (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: FIPLAB LtdПоддерживаемая ОС: OS X 10.10 or laterЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E05E324F39F9059C1BCD882E5D9FCA4FA89D577
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204994   (784033) от 08.02.2018
+
+Кун Лакрас Ракшас-Син | Игра онлайн или реальность: бесшумный убийца (2017) [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784033.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта история об одном мальчике. Он рано потерял родителей и, осознав всю реальность этой жизни, ушел в компьютерный мир онлайн игр. Изучая интернет, мальчик натолкнулся на интересную ММОРГ с полным погружением. Он ушел в неё с головой под персом - ассасин. Тот мир разных рас, демонов, гномов, эльфов, людей, нежити и т.д. был полон магии и эфирных потоков силы. Впоследствии (   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтезиФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13DE9896594135539A6B764B1927C607850E223A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204949   (784032) от 08.02.2018
+
+NGW: Королева скорости / Queen of the chase (2016) HDTVRip [H.264/1080p-LQ]
+
+>>Зарубежные TV-бренды
+>>National Geographic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Африканские леса акаций и зелёные луга стали домом для гепардов, известных своей грациозностью и невероятной скоростью. Этот трогательный фильм расскажет историю самки, которая охотится, сражается с врагами и защищает своих пятерых детенышей на равнинах Серенгети в Танзании.Производство: Великобритания, Nature Conservation Films WW, National GeographicЖанр: Документальный, природа, фаунаРежиссер: Алан Миллер, Джохем ван РейсПеревод: Дублированный (Велес)Субтитры: отсутствуютПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4439E44C33E73AACBC289570B19AECE7A9E2F5A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204264   (784031) от 08.02.2018
+
+Haydn- Das Niederländische Philharmonische Orchester - Symphonie Nr. 100,Symphonie Nr. 94 (1951) [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784031.jpg" />
+</div>
+
+
+###  Подробнее
+
+Symphony No. 100 G Major "Military"
+A1	Band 1: Adagio; Allegro
+A2	Band 2: Allegretto
+A3	Band 3: Menuetto: Moderato(   Читать дальше...   )Жанр: ClassicalПродолжительность: 43:03.59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C311D4914A78901EEA13542F8A800A530B2C6B8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204932   (784030) от 08.02.2018
+
+Марина Лукьянцева (сост.) | 1000 лучших впечатлений, которые все мечтают испытать (2017) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784030.jpg" />
+</div>
+
+
+###  Подробнее
+
+"1000 лучших впечатлений, которые все мечтают испытать" - это книга для тех, кто хочет брать от путешествий максимум! Стать настоящим путешественником и преодолеть джунгли с рюкзаком за плечами или пройтись по самым красивым улицам планеты? Может быть, затеряться на бескрайних просторах земли и увидеть северное сияние? Выбор за вами! Мы собрали для вас (   Читать дальше...   )Жанр: Туризм, путеводители, фотоальбомФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AADF2BC00DEB7566BD3DE2B4347D2CF453A7A19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204964   (784029) от 08.02.2018
+
+Седьмое знамение / The Seventh Sign (1988) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Время на исходе. Грядет Апокалипсис — реки наполняются кровью, пустыни покрываются льдом, а луна светит зловещим багровым сиянием. Перед лицом обреченного человечества проходят все шесть знамений конца света. Самым страшным, седьмым знамением судного дня должен стать еще не рожденный ребенок, и горе матери, носящей его под сердцем.Производство: США / Interscope Communications, ML Delphi Premier Productions, TriStar PicturesЖанр: Драма, Триллер, Ужасы, ФэнтезиРежиссер: Карл ШульцАктеры: Деми Мур, Майкл Бин, Юрген Прохнов, Питер Фридман, Мэнни Джекобс, Джон Тейлор, Ли Гарлингтон, Акошуа Бусиа, Гарри Бейзил, Арнольд ДжонсонПеревод: Дублированный, Многоголосый, Двухголосый, Авторский х2Субтитры: Русские, АнглийскиеПродолжительность: 01:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E37F57187BB5DE1A290A8113B44A55AB435D80B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1204982   (784028) от 08.02.2018
+
+VA - Музыка, Которая То, Что Надо (Sound Clinic - Just Relax Edition) (2018) [MP3|320 Kbps] <Jazz-Hop, Jazzy, Chill-Hop, Trip-Hop и другие>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784028.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 2Late - Beneath The Funk
+2. 2Late - Kickit
+3. 40 Bliss - Alone
+4. 9th Wonder - FightGood(   Читать дальше...   )Жанр: Jazz-Hop, Jazzy, Chill-Hop, Trip-Hop и другиеПродолжительность: 10:35:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7534E82B2C4DC05B45061C3B05890BADF57CAB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205086   (784027) от 08.02.2018
+
+Jeff Russo - Видоизмененный углерод | Altered Carbon (Original Series Soundtrack) (2018) Lakeshore Records [FLAC|Lossless|WEB-DL|tracks] <Ambient, Soundtrack>
 
 >>Other Styles
->>Folk (Lossless)
+>>OST (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782253.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784027.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Роберт Уайатт (англ. Robert Wyatt; 28 января 1945, Бристоль) — британский музыкант, один из создателей влиятельной в прогрессивном роке группы Soft Machine. Женат на английской художнице и авторе песен Альфреде Бенж.01. Was a Friend (5:48)
-02. Maryan (6:46)
-03. A Sunday In Madrid (6:58)
-04. Free Will and Testament (4:33)Жанр: Jazz, Folk, World, & CountryПродолжительность: 00:24:06
+01. Altered Carbon Main Titles (01:40)
+02. Consciousness (05:23)
+03. Last Stand Kovacs V1 (00:34)
+04. Bancroft Shows Kovacs (03:45)(   Читать дальше...   )Жанр: Ambient, SoundtrackПродолжительность: 00:28:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F43DE6C0F10792791C640F8A64A7A8C0D4998697
+magnet:?xt=urn:btih:5487561DFD14A73353003D8EA0D27629C3CF23C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -701,25 +692,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390673   (782252) от 17.06.2020
+###  Публикация: 1166330   (784026) от 08.02.2018
 
-AMA Supercross Championship: Salt Lake City (15.06.2020) WEB-DL [H.264/720p-LQ]
+Подшивка журналов | HolzWerken (2017) [PDF] [De]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Журналы
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784026.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AMA Supercross Championship — американская гоночная серия. Гонки AMA Supercross Championship, основанные Американской ассоциацией мотоциклистов в 1974 году, проводятся с января по начало мая.Телекомпания: A21 Network Russian Motorsport TelevisionЖанр: СпортЯзык озвучки: Русский (Вячеслав Брыкин)Продолжительность: 02:47:30
+Немецкий журнал для всех любителей работать с деревом в качестве хобби или из-за необходимости в повседневной жизни: изготовление мебели, резьба или токарные работы по дереву - от основ до продвинутого искусства.Жанр: Столярное делоФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D8ECF38DE4683FC862F2F068DC1660378C13278
+magnet:?xt=urn:btih:B33BBE692AC07B8A6507CCB6864519E657D65004
 ```
 
 https://mybot314.ru/tekegram_catalog/

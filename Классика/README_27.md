@@ -1,3 +1,32 @@
+###  Публикация: 1303031   (575984) от 19.05.2019
+
+Ludovico Einaudi - Seven Days Walking (Day 3) (2019) Decca Records [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Ambient, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Low Mist (Day 3) (5:55)
+ 02. Gravity (Day 3) (5:53)
+ 03. Golden Butterflies (Day 3) (5:53)
+ 04. The Path Of Fossils (Day 3) (8:51)(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:413E118386B7D7543A40DEC1B785796E6300E481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554571   (575667) от 31.05.2022
 
 Lars Vogt, Orchestre De Chambre De Paris - Mendelssohn: Piano Concertos, Capriccio Brillant (2022) [FLAC|Lossless|image + .cue] <Classical>
@@ -733,35 +762,6 @@ VA - Шедевры классической музыки в рок-обрабо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66AE1C1CDCD4F3180BDDBD77422BD757B7571B80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305765   (555743) от 03.06.2019
-
-VA - Шедевры классической музыки в рок-обработке  том 2 (Unknown) [FLAC|Lossless|tracks + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Richard Clauderman  - Capriccio Romantico (2:55)
-02. Rondo Veneziano  - Musica... Fantasia (2:50)
-03. The Ventures  - the William Tell Overture (3:13)
-04. Jan Holland  - Dreamlover (2:53)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 02:29:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF7FCF5DE3EADB87AD175A65C177244F1B945EB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

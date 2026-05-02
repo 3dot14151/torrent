@@ -1,3 +1,67 @@
+###  Публикация: 1028799   (671839) от 01.07.2016
+
+VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marcin Przybylowicz - Blood and Wine (02:57)
+02. Mikolai Stroinski - Fanfares and Flowers (03:11)
+03. Piotr Musial - For Honor! for Toussaint! (02:04)
+04. Piotr Musial - Blood Run (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 07:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BA2888041D1BA1B8C17FFCFEE21C8E254FD0EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 510072   (670316) от 14.06.2012
+
+Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670316.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Black Grass - Yesterday's gone (4:42)
+2. Free The Robots - Yoga Fire (2:56)
+3. Clark - Vengeance Drools (3:41)
+4. Dj Shadow - This Time (3:07)
+5. Kno (of Cunninlynguists) - My First Song (3:10)
+6. Amon Tobin - Get Your Snack On (4:22)
+7. CunninLynguists - Hellfire (2:29)
+8. Ministry - Jesus Built My Hotrod (4:52)
+9. Damian Marley - Something For You(One Loaf of Bread) (3:17)
+10. DJ Krush - Song for John Walker (feat. Anticon) (Sticky mix) (5:33)2008Жанр: SoundtrackПродолжительность: 00:38:13
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031143   (668594) от 03.07.2016
 
 John Williams - The BFG / Большой и добрый великан (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -726,70 +790,6 @@ VA - Super Runabout - San Francisco Edition (2000) [MP3|320 кб/с]<Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:772F9DE3D19AC1A9C2E856E106BAC0CB7A24D2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906894   (641624) от 10.06.2015
-
-Michael Giacchino - Мир Юрского периода / Jurassic World (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bury the Hatchling (01:56)
-02. The Family That Strays Together (01:00)
-03. Welcome to Jurassic World (02:08)
-04. As the Jurassic World Turns (05:30)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9B752D0EBDC7F62614A0818AA3BB54C0559FC45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517966   (639259) от 05.07.2012
-
-Miss Congeniality / Мисс Конгениальность (1-2 части) (2000-2005) [MP3|320 кб/с]<Score, OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639259.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли саундтреки из фильма Мисс Конгениальность, а также музыка и песни со второго фильма Мисс Конгениальность 2: Прекрасна и опасна.1. Esthero - Wikked Lil' Grrrls (4:17)
- 2. Natasha Bedingfield - I'm a Bomb (3:42)
- 3. Pink - Trouble (3:12)
- 4. Spiderbait - Black Betty (3:26)
- 5. Paul Anka - (You're) Having my Baby (2:32)
- 6. Carl Carlton - She's a Bad Mama Jama (3:54)
- 7. Ohio Players - Fire (4:31)
- 8. Thelma Houston - Don't Leave me This Way (5:39)
- 9. Staple Singers - I'll Take You There (4:38)
- 10. Ike & Tina Turner - Proud Mary (3:28)(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3C0E1850EA919601FE185B496ADAFABC772C0E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

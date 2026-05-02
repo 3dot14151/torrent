@@ -1,3 +1,32 @@
+###  Публикация: 1424379   (227994) от 17.11.2020
+
+Avi Rosenfeld & Caz Mera - It's Late (2020) [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raise Your Sails (04:16)
+ 02. When The Night (03:58)
+ 03. Been Born That Summer Day (04:00)
+ 04. And If You Love Me (03:54)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1AB74CEC600CDDB9F2390E08448F22D3C2B72E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1424566   (227974) от 17.11.2020
 
 Ady & The Hop Pickers - Are You Ready Guys? (2020) [MP3|320 Kbps] <Rockabilly>
@@ -720,35 +749,6 @@ Realisea - 2 Albums (2020-2022) [Mp3|320 kbps] <Progressive Rock, Neo-Prog, Fema
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:492D3548BB0C7C396DD27D1166B9D443E9D56823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584768   (224787) от 19.10.2022
-
-Silver Nightmares - 2 Albums (2020-2022) [MP3|320 Kbps] <Crossover Prog, Prog-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saphiens [00:04:29]
-02. Nefertiti [00:04:28]
-03. Etemenanki [00:04:26]
-04. Sea of Sikelia [00:03:48](   Читать дальше...   )Жанр: Crossover Prog, Prog-MetalПродолжительность: 2 CD, 01:12:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1114011523A755DB74008ADB63CD1E0153A92508
 ```
 
 https://mybot314.ru/tekegram_catalog/

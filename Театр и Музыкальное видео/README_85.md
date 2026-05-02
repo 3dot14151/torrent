@@ -1,3 +1,87 @@
+###  Публикация: 1060386   (454721) от 07.10.2016
+
+Гудгора. Концерт Вячеслава Бутусова (03.12.2015) HDRip [H.265/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454721.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт группы "Ю-Питер" в Питере, в БКЗ "Октябрьский", 3 декабря 2015 года.01. Апокалиптическая
+02. Возьми меня с собой
+03. Чёрная птица-белые крылья
+04. Одинокая птица(   Читать дальше...   )Жанр: МузыкаАктеры: Вячеслав БутусовПродолжительность: 01:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15E7E010729BB43618257D5B7C3EAF767226E27A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 704629   (454126) от 28.09.2013
+
+The Bacon Brothers - No Food Jokes Tour (2003) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454126.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woman's Got a Mind to Change
+02. Getting There
+03. Grace
+04. Sooner Or Later(   Читать дальше...   )Жанр: Country Rock, RockРежиссер: Майкл Драмм / Michael Drumm
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3662D14F61D5BF0735A14E59D4BAF610BB78AD31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 389409   (453773) от 19.09.2011
+
+Миша Маваши - Среди высоток и аллей (2011) [720p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453773.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаРежиссер: Миша МавашиПродолжительность: 00:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B33EAB2A34808E042CD1A6040C428671E1BE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 389423   (453750) от 19.09.2011
 
 Миша Маваши - Помнить должен (2011) [720p] WEB-DLRip
@@ -607,87 +691,6 @@ Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/720p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D2EF4EF27A88E3F56CA9BFAE733B6C5F70C09AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175198   (446721) от 03.10.2014
-
-Avril Lavigne - Live in Calgary Alberta (2007) HDTVRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_446721.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Avril Lavigne в Calgary Alberta (Canada) 2 апреля 2007.01. Girlfriend
-02. I Can Do Better
-03. Sk8er Boi
-04. My Happy Ending(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:06:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 390809   (446661) от 22.09.2011
-
-Selena Gomez and The Scene - Love You Like A Love Song / Селена Гомес (2011) HDTVRip [1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ВидеоклипПродолжительность: 00:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08D6EF8360E953AF7C9E6C62AF3BC0820146EB78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552688   (446413) от 27.09.2012
-
-Barillo - Dust (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 00:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3284B7ACEFBFD2B12301C91AE02C3208F78FE8E6
 ```
 
 https://mybot314.ru/tekegram_catalog/

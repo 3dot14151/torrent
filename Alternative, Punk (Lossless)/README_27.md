@@ -1,3 +1,61 @@
+###  Публикация: 1295344   (618816) от 13.04.2019
+
+PUP - Morbid Stuff (2019) [FLAC|Lossless|tracks + .cue] <Punk Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morbid Stuff (02:44)
+02. Kids (03:30)
+03. Free At Last (02:34)
+04. See You At Your Funeral (03:40)(   Читать дальше...   )Жанр: Punk Rock, Pop PunkПродолжительность: 00:36:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81D2206A62F1C7D4B799560560B9A42B4B4EDAAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295527   (618815) от 13.04.2019
+
+Shovels And Rope - By Blood (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Comin' Out (03:43)
+02. Mississippi Nuthin' (03:52)
+03. The Wire (02:56)
+04. C'mon Utah! (03:46)(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:38:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD55BAF1352C23B58C030C92534C9ABE96671FD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1295370   (618714) от 13.04.2019
 
 Circa Waves - What’s It Like Over There? (2019) Prolifica Inc. [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
@@ -686,64 +744,6 @@ Kaada and Patton - Bacteria Cult (2016) [FLAC|Lossless|tracks + .cue] <Experimen
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4125E3EA502368531F73FD066D267FFDCC07C100
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299888   (596176) от 03.05.2019
-
-Frank Carter & The Rattlesnakes - End of Suffering (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why a Butterfly Can't Love a Spider (3:40)
- 02. Tyrant Lizard King (2:40)
- 03. Heartbreaker (3:19)
- 04. Crowbar (2:23)(   Читать дальше...   )Жанр: Alternative Rock, PunkПродолжительность: 00:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46DF181EAF56F33020E1006E3ACF2398918CC675
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299516   (596084) от 03.05.2019
-
-Bad Religion - Age of Unreason (2019) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaos From Within (01:50)
-02. My Sanity (02:58)
-03. Do the Paranoid Style (01:45)
-04. The Approach (02:25)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:393C21C602C256ADE9F17214C8689EAC506A02AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,357 @@
+###  Публикация: 592839   (135628) от 22.12.2012
+
+Los Lobos - By The Light Of The Moon (1987) Hybrid SACD /2012, Mobile Fidelity Sound Lab./ [FLAC|Lossless]<Chicano rock, Roots rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Time One Night [04:50]
+02. Shakin' Shakin' Shakes [04:36]
+03. Is This All There Is ? [04:00]
+04. Prenda Del Alma [03:26]
+05. All I Wanted To Do Was Dance [03:57]
+06. Set Me Free (Rosa Lee) [03:55]
+07. The Hardest Time [03:15]
+08. My Baby's Gone [03:52]
+09. River Of Fools [02:55]
+10. The Mess We're In [03:02](   Читать дальше...   )Жанр: Chicano rock, Roots rockПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679809   (135287) от 26.11.2023
+
+The Black Owl - Let Us Prey (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Point My Fingers [00:04:36]
+02. Pretty Baby [00:03:48]
+03. From F To A [00:04:35]
+04. Let Me Feed You [00:04:02](   Читать дальше...   )Жанр: Classic Rock / Blues Rock / Rock'n'RollПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA15174AF7527E6966A1567FCA23D727740E5183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679542   (135283) от 26.11.2023
+
+Trapeze - Lost Tapes, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135283.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cool Water [00:03:49]
+02. Lover [00:03:58]
+03. Breakdown [00:03:35]
+04. Don't Let Them Push You [00:04:57](   Читать дальше...   )Жанр: Classic Hard RockПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158F7573FE7DE7D65EB7EF1BA0D0EF5CD5F6B35D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679813   (135277) от 26.11.2023
+
+The Black Owl - The Black Owl Band (2020) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Blues Rock, Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life in Prison [00:05:41]
+02. Let Us Pray [00:03:38]
+03. Toad On the Road [00:03:42]
+04. Crash or Rise [00:03:35](   Читать дальше...   )Жанр: Classic Rock / Blues Rock / Rock'n'RollПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A7B67FDA29E914A07470027F75C4AA8BD133B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680220   (134337) от 29.11.2023
+
+Widespread Panic - Boone 1999 (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Southern Rock, Blues-rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Disco [00:04:58]
+02 - Red Hot Mama [00:05:11]
+03 - Rock [00:04:17]
+04 - Impossible _ Rock [00:08:22](   Читать дальше...   )Жанр: Southern Rock, Blues-rock, Progressive-RockПродолжительность: 02:23:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63567D4FE2ECCCBB9BB35EC23026B458DF424979
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680180   (134332) от 29.11.2023
+
+VA - ROCK para el trabajo (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GIT - Es Por Amor (5:11)
+02. Serú Girán - Popotitos (Live) (3:39)
+03. Los Twist - Cleopatra, La Reina Del Twist (2:31)
+04. Los Abuelos De La Nada - No Te Enamores Nunca De Aquel Marinero Bengalí (5:48)(   Читать дальше...   )Жанр: RockПродолжительность: 01:28:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88AA5E808681533F312F07C15014FE0B15153A27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680391   (134329) от 29.11.2023
+
+Mike Vickers - I Wish I Were A Group Again (1968) Remaster, 1999, Parlophone UK[FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Pop Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matthew & Son (1999 Remaster) [00:02:35]
+02. Semi-Detached Suburban Mr James (1999 Remaster) [00:03:25]
+03. Waterloo Sunset (1999 Remaster) [00:02:16]
+04. Proper Charles (1999 Remaster) [00:01:59](   Читать дальше...   )Жанр: Classic-Rock, Pop-Rock, Jazz-RockПродолжительность: 00:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A0B81588B29F1B9B5C35068ACA5536A13CB8AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680183   (134297) от 29.11.2023
+
+VA - Sleaze Rock (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faces - Stay with Me (4:40)
+02. The Cherry Bombz - House of Ecstasy (3:12)
+03. Dogs D'Amour - How Come It Never Rains (4:45)
+04. The Quireboys - Tramps and Thieves (4:28)(   Читать дальше...   )Жанр: RockПродолжительность: 01:55:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9753640E06D11A934C754113D1191AA1015655BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680178   (134255) от 29.11.2023
+
+VA - Radio (Rádio) FM Rock Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nickelback - Someday (3:27)
+02. Linkin Park - In the End (3:37)
+03. Raimundos - Mulher de fases (3:33)
+04. Red Hot Chili Peppers - Californication (5:30)(   Читать дальше...   )Жанр: RockПродолжительность: 01:22:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BDADF8E566828D9138899FF07F0EC1A9FB5E0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680177   (134179) от 29.11.2023
+
+VA - Twenties Rock Fifty Bangers (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shinedown - Planet Zero (3:43)
+02. Billie Joe Armstrong - That's Rock 'n' Roll (2:59)
+03. Disturbed - Bad Man (3:22)
+04. Mastodon - The Beast (6:03)(   Читать дальше...   )Жанр: RockПродолжительность: 03:13:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3171C566643114041F12FB69712DAA424FF292F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680774   (133744) от 30.11.2023
+
+Peter Gabriel - i/o (2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133744.jpg" />
+</div>
+
+
+###  Подробнее
+
+DISC 1:
+01. Panopticom (Bright Side Mix)
+02. The Court (Bright-Side Mix)
+03. Playing For Time (Bright-Side Mix)(   Читать дальше...   )Жанр: Art Rock |Продолжительность: 02:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D7923DEAE6F54006CDA96F7F3723A33698ED8F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1681014   (133507) от 01.12.2023
+
+The Moody Blues - Long Distance Voyager (1981) Reissue, 2008, Decca [FLAC|Lossless|tracks + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Voice
+02. Talking Out Of Turn
+03. Gemini Dream
+04. In My World(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED12597213EB4C59707915E3EC9FEB44B3EE1448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595000   (133180) от 27.12.2012
 
 Presto Ballet - 5 CD (2005 - 2012) [FLAC|Lossless]<Crossover Prog>
@@ -416,353 +770,6 @@ Anyone - Miracles In The Nothingness (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01C84CE0CD35C7E011B20E6CB075116C7787BDB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682240   (131493) от 07.12.2023
-
-The Runaway Wild - Wild Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Synthwave, Retrowave>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He Rises [00:02:28]
-02. Wild Night [00:04:04]
-03. The Test (feat. Kyla Karnage) [00:04:07]
-04. Battle Prep [00:02:04](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:23:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900EEEB4BFBD0A65E251590E3549C3C2CF332ED7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682578   (131191) от 08.12.2023
-
-Prog Mountain - Wasteland (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The New [00:04:02]
-02. Warship Archer [00:06:23]
-03. Guillame Le Million [00:02:06]
-04. Klaasje On The Run [00:04:34](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5AA5488A0576217C54CA8640744C94FB095C028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682586   (131175) от 08.12.2023
-
-Mos Eisley Spaceport - Further (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131175.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ashes To Ashes [00:10:02]
-02. Drop Out [00:05:31]
-03. Space Shift [00:09:29]
-04. Raised By A Lioness [00:08:42](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:58:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D29E30ADFCCA4258E280D45F5BEE8AF6405B4BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682774   (131169) от 08.12.2023
-
-Spirits Burning & Michael Moorcock - The End Of All Songs - Part 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic / Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End Of Every Song [00:04:25]
-02. Try And Try Again [00:05:27]
-03. Child Of The Moon [00:03:38]
-04. Paleozoic Eons [00:03:56](   Читать дальше...   )Жанр: Psychedelic / Progressive RockПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:139097406F26B7BB353D242DC4E484DB73246CF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682769   (131155) от 08.12.2023
-
-VA - Modern Rock Cuts (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yonaka - Rockstar (3:43)
-02. Disturbed - The Eye of the Storm (1:21)
-03. Linkin Park - Robot Boy (4:29)
-04. Shinedown - CREATURES (3:56)(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C109325CD96603426162ED417CFD5DE748B9B5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682820   (131132) от 08.12.2023
-
-Paul Reed Smith - Eightlock - Lions Roaring in Quicksand (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sarah (4:43)
-02. Never Give Up On Livin' (5:24)
-03. I'm Ready (3:26)
-04. Love And Happiness (5:06)(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:03:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A331A76E593A751FD3ACA8B3F3C76987067BF07C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682765   (131109) от 08.12.2023
-
-VA - Melodic Rock Throwback (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Foreigner - Break It Up (4:14)
-02. Desmond Child - Do Me Right (4:21)
-03. Hericane Alice - I Walk Alone (4:40)
-04. White Lion - Goin' Home Tonight (4:48)(   Читать дальше...   )Жанр: RockПродолжительность: 03:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A092B8E87D88078BD81A1FCADEB703C0FDB6209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135273   (130860) от 08.12.2023
-
-Bad Company - 25 Albums (1974 - 2018) 47 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Blues Rock, Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сформированная в 1973 году команда "Bad Company" являлась настоящей супергруппой, поскольку все ее участники ранее зарекомендовали себя в других известных проектах. Так, главные зачинщики всего дела Пол Роджерс (вокал) и Саймон Кирк (ударные) снискали себе славу во "Free", гитарист Мик Ральфе пришел из "Mott The Hoople", а басист Боз (   Читать дальше...   )Список альбомов:
-1974 Bad Company
-1975 Straight Shooter
-1976 Run With The PackЖанр: Blues Rock, Classic Rock, Hard Rock |Продолжительность: 41:45:32 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:694FC0499D357A7E973DA582722E22148911693E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524897   (130124) от 19.01.2022
-
-Cat Power - Covers (2022) Japanese Edition [FLAC|Lossless|tracks + .cue] <Rock, Blues, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Religion (04:21)
- 02. Unhate (02:44)
- 03. Pa Pa Power (03:10)
- 04. White Mustang (03:01)(   Читать дальше...   )Жанр: Rock, Blues, FolkПродолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27EC67CC0F1FE3A38071AA52F009B6B5B93D7936
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525294   (130059) от 19.01.2022
-
-Windom End - Perspective Views (2020) 2xCD, Japanese Edition [FLAC|Lossless|image + .cue] <Progressive Rock, Neo-Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_130059.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1 - Perspective Views:
-01. The Dream (10:58)
-02. Starless Sky (8:07)
-03. Walk this way (7:33)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 01:14:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C8238804D6DD30ED08E3F61F4B7A986295C7DA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683048   (129939) от 09.12.2023
-
-Dan McCafferty - In Memory of Dan McCafferty - No Turning Back (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129939.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children's Eyes
-02. Into The Ring
-03. Starry Eyes
-04. Sunny Island(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417C0962992784DF8C0FAAA1B80F7E93906CC31B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682994   (129869) от 09.12.2023
-
-Tarja Turunen - All I Want For Christmas Is You (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Symphonic Rock / Neoclassical>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Want For Christmas Is You [00:05:18]
-02. Last Christmas [00:04:30]
-03. O Christmas Tree [00:03:39]Жанр: Symphonic Rock / NeoclassicalПродолжительность: 00:13:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C2A8658699ED46DE37329B0FB06D757D44F4C06
 ```
 
 https://mybot314.ru/tekegram_catalog/

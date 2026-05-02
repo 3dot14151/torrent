@@ -1,3 +1,114 @@
+###  Публикация: 1198075   (810132) от 10.01.2018
+
+Nai Palm - Needle Paw (2017) [FLAC|Lossless|tracks + .cue] <Soul, Female Vocal>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wititj (Lightning Snake), Pt. 1Жанр: Soul, Female VocalПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC21D62385D6E9F26D96F50F5D2CE38FC0B533F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198020   (810123) от 10.01.2018
+
+Danielle M & The Glory Junkies - All My Heroes Are Ghosts (2017) [FLAC|Lossless|WEB-DL|tracks] <Swamp Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All My Heroes Are Ghosts  (02:57) 
+02. All On Fire  (02:34) 
+03. Monster  (03:53) 
+04. Everybodys Wrong  (02:47) (   Читать дальше...   )Жанр: Swamp BluesПродолжительность: 00:34:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B60A9E3E483AD6AD19E21F6CDA7C43B9FC5961D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 317342   (809806) от 02.04.2011
+
+Howlin Wolf - The London Howlin Wolf Sessions (Deluxe Edition) 2 x CD (2002) [FLAC|Lossless]<blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809806.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: BluesПродолжительность: 00:56:15 + 00:52:33
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 884114   (809013) от 02.04.2015
+
+Joe Bonamassa - Muddy Wolf At Red Rocks (2015) 2CD [FLAC|Lossless]<Blues rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809013.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Muddy (00:50:50)
+CD2 - Wolf & Joe (01:16:35)Треклист CD1:
+01. We Went Down To The Mississippi Delta
+02. Muddy Waters Talking
+03. Tiger In Your Tank(   Читать дальше...   )Жанр: Blues rock |Продолжительность: 02:07:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF1549EBD21AB1983E478A46ED618FB0A396671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119506   (807350) от 28.03.2017
 
 Michael Harrison Blues - Simple Bird (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +740,6 @@ The Bluesbones - Live at the Bosuil (2013) [FLAC|Lossless|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18D6FF272D765085020D63341D529FB6057AFFBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011427   (797029) от 27.04.2016
-
-Magic Sam Blues Band - Black Magic (1969),2015,Delmark Records [FLAC|Lossless|tracks + .cue] <Blues, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Just Want A Little Bit (03:04)
-02. What Have I Done Wrong (03:11)
-03. Easy, Baby (04:24)
-04. You Belong To Me (04:08)(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8471A7609FC2172B78E3CF71F48F8EFFD7FA0E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386532   (794471) от 29.05.2020
-
-Dusty Springfield - A Girl Called Dusty (1964) Reissue 1997 [FLAC|Lossless|tracks] <Funk / Soul, Pop>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama Said (2:14)
-02. You Don't Own Me (2:41)
-03. Do Re Mi (2:57)
-04. When The Lovelight Starts Shining Thru His Eyes (2:53)(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 00:56:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5BDB5F0DB9CDA8A4354C1EC8F1F8A506F3ED385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012365   (793726) от 01.05.2016
-
-Bugs Henderson And The Shuffle Kings - Four Tens Strike Again (1996) [FLAC|Lossless|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lucille    03:36
-02. Can't Find Love    05:28
-03. Highway 61 Revisited    04:56
-04. Black Spring    04:12(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:06:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E452A40403AE453039B48199669CC4D9728E65B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122966   (793622) от 06.04.2017
-
-Bill Thomas Trio - Rough Draft (2017) EP [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Been Bad (02:44)
-02. Daddy Told Me (04:44)
-03. Your Time Has Come (04:38)
-04. Don't You Know (03:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E0AC6536B6AEB1F0C57ACC5B61688497759D6EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

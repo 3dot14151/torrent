@@ -1,3 +1,178 @@
+###  Публикация: 1798047   (17669) от 20.05.2025
+
+Rodmir - Родмир (1990) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Glam>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17669.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Тебе • To You
+A2 Инквизитор • Inquisitor
+A3 Посвящение • Dedication
+A4 Русская Рулетка • Russian Roulette(   Читать дальше...   )Жанр: Pop Rock, GlamПродолжительность: 00:34:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25D23E69C54D65E0269803C37953A0DA104B129D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798193   (17533) от 21.05.2025
+
+Samael - Passage (1996) Released, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rain
+02. Shining Kingdom
+03. Angel's Decay
+04. My Saviour(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:42:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE2468F6BBB35BE34D3D4BE5A749CDE8902495FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810409   (17341) от 04.08.2025
+
+Arcana - Studio Albums (9 releases) (1996-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neoclassical Darkwave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17341.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arcana — шведская группа, созданная в 1994 году Петером Бьяргё.
+Творчество группы часто сравнивают с Dead Can Dance1996 - Dark Age Of Reason
+1997 - Cantar De Procella
+2000 - ...The Last Embrace
+2002 - Inner Pale SunЖанр: Neoclassical DarkwaveПродолжительность: 06:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F266C0245DD4BDBDD788F68303F9828FC19BCAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810399   (17340) от 04.08.2025
+
+VA - Jan Sparring/Nils-Borge Gardh/Linda Hutchens/Bobby Jones & New Life - Till Gladje (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Folk, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17340.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Linda Hutchens - Det Ar Langesen
+A2 Linda Hutchens - Harlig Ar Jorden
+A3 Linda Hutchens - Operator
+A4 Bobby Jones & New Life - Amazing Grace(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 00:50:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:631B51482C395D4E3EA54C67960B5FB85C840B7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586285   (17002) от 25.05.2025
+
+Onslaught - Studio & Live Albums (10 releases) (1985-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17002.jpg" />
+</div>
+
+
+###  Подробнее
+
+Onslaught — британская трэш-метал-группа из Бристоля, существовавшая с 1983 по 1991 годы и вновь собравшаяся в 2004 году.1985 - Power From Hell
+1986 - The Force
+1989 - In Search of Sanity
+2007 - Killing PeaceЖанр: Thrash MetalПродолжительность: 08:57:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C69785BD8DAE0C1C9820C5A2B38DE7E2519DC24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798841   (16971) от 25.05.2025
+
+Группа «Визит» - Ночь Без Тебя (1991) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16971.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Тяжелый Случай
+A2 Последний Миг
+A3 Пляжное Регги
+A4 Откровение(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9F6703F0D9199ECCB8BEB909CB03E8E4B07CE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810758   (16921) от 06.08.2025
 
 Slaughter To Prevail - Studio Albums (4 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Deathcore, Nu Metal>
@@ -564,180 +739,6 @@ Charlie McCoy - Two Albums (1973, 1975) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5229224C856971504507DB44B3B63871D46C71DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645217   (14545) от 15.06.2025
-
-Katatonia - Studio Albums (15 releases) (1993-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal; Gothic/Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Katatonia — шведская группа, основанная в 1991 году в Стокгольме Йонасом Ренксе и Андерсом Нюстрёмом. Раннее творчество коллектива принято характеризовать как дэт-дум-метал, а сама группа, наряду с My Dying Bride, Anathema и Paradise Lost, считается лидером этого жанра. Однако после записи альбома Brave Murder Day, в котором вокальные партии исполнил Микаэль Окерфельдт, (   Читать дальше...   )1993 - Dance Of December Souls
-1996 - Brave Murder Day
-1998 - Discouraged Ones
-1999 - Tonight's DecisionЖанр: Doom/Death Metal; Gothic/Progressive RockПродолжительность: 16:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9012591C944A59D0CE949CB8FFD63505E05606A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802322   (14413) от 16.06.2025
-
-Dante - Studio Albums (5 releases) (2007-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dante - метал-группа из Германии, основана в 2006 году.2007 - The Inner Circle
-2010 - Saturnine
-2013 - November Red
-2016 - When We Were BeautifulЖанр: Progressive MetalПродолжительность: 05:10:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CD54FE933B31F4845E5217A1A6F3231B2844A31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802319   (14412) от 16.06.2025
-
-Smoulder - Times of Obscene Evil and Wild Daring (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14412.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Ilian of Garathorm (06:22)
-A2. The Sword Woman (05:29)
-A3. Bastard Steel (06:04)
-B1. Voyage of the Sunchaser (05:57)(   Читать дальше...   )Жанр: Epic Heavy, Doom MetalПродолжительность: 00:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DC5BD2B2D8E79A0EE47A020B7A2C217A390187
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702422   (14222) от 18.06.2025
-
-Paul McCartney (Пол Маккартни) - Снова в СССР (1989) [FLAC 24/192|Lossless|tracks] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Kansas City (Jerry Leiber / Mike Stoller)
-02. Twenty Flight Rock (Eddie Cochran / Ned Fairchild)
-03. Lawdy Miss Clawdy (Lloyd Price)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:47:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50CC9DA2A3D60A720C56D60F0BA3E89F9EAF1B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802999   (13990) от 20.06.2025
-
-Manowar - Kings of Metal (1988)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy, Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Wheels Of Fire (04:11)
-02 - Kings Of Metal (03:44)
-03 - Heart Of Steel (05:12)
-04 - Sting Of The Bumblebee (02:49)(   Читать дальше...   )Жанр: Heavy, Power MetalПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E52DB2772D1ED42A8E523CA506A0F3D2838866EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637929   (13718) от 23.06.2025
-
-Alestorm - Studio Albums (9 releases) (2008-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13718.jpg" />
-</div>
-
-
-###  Подробнее
-
-Alestorm — фолк/пауэр-метал-группа из города Перт (Шотландия). Песни Alestorm посвящены пиратам, и свою музыку они называют «Настоящий шотландский пиратский метал» (англ. True scottish pirate metal).2008 - Captain Morgan's Revenge
-2009 - Black Sails at Midnight
-2011 - Back Through Time
-2014 - Sunset On The Golden AgeЖанр: Folk/Power MetalПродолжительность: 07:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F09C05E399CFB1186F78012C64093F1FDB5723D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

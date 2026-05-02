@@ -1,3 +1,29 @@
+###  Публикация: 1037247   (615369) от 23.07.2016
+
+Шаблоны - CreativeMarket - Devices And Food - Mockups [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615369.jpg" />
+</div>
+
+
+###  Подробнее
+
+4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38E831A26B7ED449FA66ABD6B6AF81DED090C6D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1037165   (615288) от 23.07.2016
 
 Шаблоны - CreativeMarket - Corporate Flyer [PSD]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F44E0478B43F72FF6284121F523D77D434AEC955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038075   (610029) от 26.07.2016
-
-Шаблоны - CreativeMarket - Mobile App Flyer 02 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610029.jpg" />
-</div>
-
-
-###  Подробнее
-
-2 флаера с полным редактированием и обрезом для печати.Формат: PSDРазрешение файлов: 2539х3567\300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8562BBC0E22B8DD05186286D668E68CA96390FE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

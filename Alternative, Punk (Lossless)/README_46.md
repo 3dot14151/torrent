@@ -1,3 +1,61 @@
+###  Публикация: 958718   (317200) от 24.11.2015
+
+Limp Bizkit - Интервью с Фредом Дерстом на радио ULTRA (22.11.2015) [FLAC|Lossless]<Nu-Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лидер LIMP BIZKIT, ставших иконой ню-метала и объединивших рэп и металл, ответит на вопросы ULTRA-слушателей и поклонников группы, расскажет о том, каким будет новый альбом и почему он любит Россию. Песни, которые звучат в программе, были выбраны самим Фредом Дерстом!1. Take A Look Around
+2. Behind Blue Eyes
+3. Gold Cobra
+4. Rollin(   Читать дальше...   )Жанр: Nu-Metal, RapcoreПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC7C9F3A9804B51F0E2E32508BB3E30BF7BB71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259784   (316919) от 05.11.2018
+
+Crazy Backwards Alphabet - Crazy Backwards Alphabet (1987) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Avantgarde, Free Improvisation>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blood and the Ink (5:05)
+ 02. Det Enda Raka? (2:02)
+ 03. Get To You (4:34)
+ 04. The Welfare Elite (3:56)(   Читать дальше...   )Жанр: Alternative Rock, Avantgarde, Free ImprovisationПродолжительность: 01:06:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EAFB80124E77BA10B524EA5220FF5512FA53C00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1259981   (316917) от 05.11.2018
 
 Primus - Sailing the Seas of Cheese (1991) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -684,64 +742,6 @@ Bring Me The Horizon - POST HUMAN: SURVIVAL HORROR (2020) EP [FLAC|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2396EEFC6465029AEDBCAE1489212346E1A594B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184192   (301178) от 17.11.2017
-
-Stereophonics - Scream Above The Sounds (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caught By The Wind (3:38)
- 02. Taken A Tumble (3:37)
- 03. What's All The Fuss About? (5:45)
- 04. Geronimo (4:15)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 00:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:520E0F125122B73EBE73DBF310C57B216420D7CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333958   (298949) от 27.10.2019
-
-Editors - Black Gold (2019) Compilation 2CD [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violence
-02. Walk the fleet road
-03. Blood
-04. Let your good heart lead you home(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 01:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C400A4B3C064FF05924D2E757652C55EA787EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

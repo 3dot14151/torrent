@@ -1,3 +1,58 @@
+###  Публикация: 1120070   (567127) от 22.07.2017
+
+Cerrone - Brigade Mondaine: Original Soundtracks (1978-1980) 2014, Because Music, Remastered, 3 CD Box Set [MP3|320 Kbps] <Disco, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567127.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Disco, SoundtrackФормат: 3хCD, Box Set, Compilation, Limited Edition, Numbered, RemasteredПродолжительность: 01:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81508589C3B6A78750328DE8CED15C181813C080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152189   (566849) от 22.07.2017
+
+Hans Zimmer - Dunkirk / Дюнкерк (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566849.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hans Zimmer - The Mole (05:36)
+02. Hans Zimmer - We Need Our Army Back (06:28)
+03. Hans Zimmer - Shivering Soldier (02:52)
+04. Hans Zimmer - Supermarine (08:03)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:59:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B6391B532DC859FF29DD1DB3E9A4A741E397DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 529934   (564594) от 01.08.2012
 
 Ennio Morricone - Lolita / Лолита (Режиссёр Adrian Lyne) (1997) [MP3|320 кб/с]<OST Score>
@@ -709,64 +764,6 @@ Bear McCreary - Child's Play / Детские игры (Original Motion Picture 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66442FE165D161662163CBFA8FFCB3FD8DBE7E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312205   (530816) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Оригинальный саундтрек) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я твой хороший друг (02:05)
-02. Ты не вздумай (02:09)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:17:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76FFE5C462ACE91464C32947ADB8EF5112F4AEC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312200   (530814) от 05.07.2019
-
-Randy Newman - Toy Story 4 / История игрушек 4 (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Got a Friend in Me (02:04)
-02. I Can't Let You Throw Yourself Away (02:06)
-03. The Ballad of the Lonesome Cowboy (01:45)
-04. Operation Pull Toy (05:19)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D107D105DCF431293E2655AB7063222911768785
 ```
 
 https://mybot314.ru/tekegram_catalog/

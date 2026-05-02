@@ -1,3 +1,61 @@
+###  Публикация: 1728785   (108230) от 09.06.2024
+
+Terminal Zero - Brace for the End (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever [00:03:41]
+02. Brace [00:03:28]
+03. Turn the World Around [00:03:26]
+04. Sirens [00:03:25](   Читать дальше...   )Жанр: Alt Metal, Hard RockПродолжительность: 00:37:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D08723FE6D69EE37CC69E321D9390D34F3A548
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731127   (107750) от 20.06.2024
+
+Psychic Graveyard - Wilting (2024) [FLAC|Lossless|WEB-DL|tracks] <synth punk, industrial rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Your Smile is a Hoax [00:02:43]
+02. Eyes Are Turning [00:02:08]
+03. Stuffed With Secrets [00:03:13]
+04. Sword Through My Neck [00:03:53](   Читать дальше...   )Жанр: synth punk, industrial rockПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A479739D9330867B55C55415743786F295D31BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1731622   (107603) от 22.06.2024
 
 The Used - MEDZ (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, EmoCore>
@@ -687,64 +745,6 @@ Linkin Park - Live In Texas (2003) 2003+, China, 7-88000-508-0 [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6A90F68AB75F63976AAF28AC152BD6D712310A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762135   (102973) от 24.11.2024
-
-Linkin Park - Road To Revolution: Live At Milton Keynes (2008) Brazil, 9362498095, AA0003000 Pressing [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Step Closer (4:07)
-02. From The Inside (3:25)
-03. No More Sorrow (5:06)
-04. Given Up (3:16)(   Читать дальше...   )Тип издания: DigipakЖанр: Alternative / Nu-MetalПродолжительность: 01:17:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5251FF51EB6DAA51C6D98D6971A509EF3A7598AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762083   (102963) от 24.11.2024
-
-Deep As Ocean - Dance With Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dance With Death [00:00:57]
-02. Dark Place [00:03:16]
-03. Minefield [00:03:45]
-04. Lunar [00:00:52](   Читать дальше...   )Жанр: Alternative Metal, MetalcoreПродолжительность: 00:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D103F184BAF2982B00D91581F8F93BC7C518ADB
 ```
 
 https://mybot314.ru/tekegram_catalog/

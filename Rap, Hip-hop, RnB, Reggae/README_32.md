@@ -1,96 +1,3 @@
-###  Публикация: 1679702   (134852) от 27.11.2023
-
-Apashe - Antagonist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Simphonic Hip-Hop, Dubstep, Trap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King (feat. Busta Rhymes) [00:02:47]
-02. Catch Me [00:04:03]
-03. Devil May Cry [00:04:11]
-04. Human [00:04:00](   Читать дальше...   )Жанр: Alternative, Simphonic Hip-Hop, Dubstep, TrapПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93F4CB9AA89146D4A284E0266200889B7584E28C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680294   (134226) от 29.11.2023
-
-Grebz - MC Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134226.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Клок [00:04:10]
-02. FBI [00:03:45]
-03. Мама говорила [00:02:16]
-04. Парикмахер [00:03:18](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11BF08D26F4B0BD3EA8EDCD049C8240ACA6C08A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594691   (133420) от 26.12.2012
-
-Rita Ora - Ora (2012) [FLAC (tracks+.cue)|Lossless]<R&B, Dance>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Facemelt
-02. Roc The Life
-03. How We Do (Party)
-04. R.I.P. (ft. Tinie Tempah)
-05. Radioactive
-06. Shine Ya Light
-07. Love & War (ft. J. Cole)
-08. Uneasy
-09. Fall in Love (ft. Will.I.Am)
-10. Been Lyin(   Читать дальше...   )Жанр: R&B, DanceПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1681123   (132979) от 02.12.2023
 
 Гио ПиКа, Кравц - 60 секунд до зимы (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
@@ -751,6 +658,93 @@ VA - Infiniti Night Club R&B Collection No. 1 (2006) [WavPack|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4514FEAF9FBB5D80D19D75BBEEDDC583073F497B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732762   (107294) от 28.06.2024
+
+Negativ Nein - Negativ Nein (1996) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ein Leben im Rausch [00:04:17]
+02. Was geschieht mit mir? (Leben) [00:02:42]
+03. Negativ-Nein [00:02:15]
+04. Demokratie [00:04:32](   Читать дальше...   )Жанр: Hardcore Hip-HopПродолжительность: 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:085A9BE255B996B1880E8BDF6BC88DFC6C07DB73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1734925   (106925) от 08.07.2024
+
+Chernovik - Космос во мне (2014) [WavPack|Lossless|image + .cue] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро
+ 02. По душе
+ 03. Было
+ 04. В прямом эфире(   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A5AA3BCFE4646DC8145308442E73EF5976E2F4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739030   (106226) от 25.07.2024
+
+Geegun - The Best Of (2008) [WavPack|Lossless|image + .cue] <Thug Rap, Gangsta, Pop Rap, Hardcore Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Только Тебе
+ 02. Мы Завели
+ 03. На Первом
+ 04. Skit(   Читать дальше...   )Жанр: Thug Rap, Gangsta, Pop Rap, Hardcore Hip-HopПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7426D7BE9DFAC58C45BF390DAF2C60C8091A6462
 ```
 
 https://mybot314.ru/tekegram_catalog/

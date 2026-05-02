@@ -1,3 +1,61 @@
+###  Публикация: 1286841   (709094) от 04.03.2019
+
+Bobby van Deusen - The Naked Piano: Trio (2003) Melcome Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709094.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [7:18]
+02. All the Things You Are [5:30]
+03. Summer Wind [3:45]
+04. Someone to Watch over Me [7:43](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:01:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A96A7516D913EEF4A8200D5958FF300A6D38C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286839   (709093) от 04.03.2019
+
+Dinah Washington - Queen Of The Juke Box ''Live'' 1949-1955 (2000) Baldwin Street Music [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want to Cry [3:27]
+02. It's Too Soon to Know [3:01]
+03. I'll Never Be Free [1:57]
+04. I Cross My Fingers [2:16](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:13:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E433BAF946E41EE0CB337DEB4162452BEDB5486
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131154   (709007) от 05.05.2017
 
 Ben Webster - Ballads (1954, 1955) 2011, Phoenix Records [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -687,64 +745,6 @@ Miles Davis - 1958 Miles (2001) Remaster, Sony Music [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4743EEB1BE05AC436F3949F3808EFAE613F1188D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131423   (707084) от 06.05.2017
-
-Phil Perry - Breathless (2017) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, R'n'B, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathless (4:46)
-02. Never Can Say Gooodbye (4:06)
-03. Do Whatcha Gotta Do (3:45)
-04. Love's in Need of Love Today (4:32)(   Читать дальше...   )Жанр: Smooth Jazz, R'n'B, SoulПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95209E5849BD112B7C20E2258385C08D560AF24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026292   (706245) от 14.06.2016
-
-Joe Van Enkhuizen & Horace Parlan - Ellington Ballads (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Blue Reverie [06:01]
- 02.Prelude To A Kiss [03:50]
- 03.Just A Sittin' And A Rockin' [04:13]
- 04.Creole Blues / Tonight I Shall Sleep [05:16](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978836FFC88E6DA7F127B45D9C1417FE2BE2825B
 ```
 
 https://mybot314.ru/tekegram_catalog/

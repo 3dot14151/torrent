@@ -1,3 +1,32 @@
+###  Публикация: 908126   (634262) от 14.06.2015
+
+Jazz Gillum: The Essential (2CD) (2003) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Key To The Highway (2:42)
+02.  Sarah Jane (3:03)
+03.  My Old Suitcase (3:01)
+04.  You Are Doing Me Wrong (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:43:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ED60F94AA3C80FF6F5935947B70E54018679F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 908116   (634258) от 14.06.2015
 
 Johnnie "Geechie" Temple - The Essential (2003) 2CD[MP3|320 кб/с]<Blues>
@@ -748,35 +777,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC2ABF3651F9B62F1BA8AB7FEFB1497F6E2E2FE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910003   (624240) от 19.06.2015
-
-Brilleaux - Pictures Of The Queen (2015) [MP3|320 кб/с]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellas McDaniels (3:10)
-02. Hand Me Downs (3:52)
-03. Strapped For Cash (5:19)
-04. Jack The Lad (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DDDAC2B8EFEA08D8259A4DA662396AD926CF0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

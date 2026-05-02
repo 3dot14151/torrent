@@ -1,3 +1,29 @@
+###  Публикация: 1046545   (551685) от 27.08.2016
+
+Проекты - VideoHive - Simple Big Typo Slides - 17285169 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:450D45F1C9926DD368E27A6942464FE8F8889719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046533   (551641) от 27.08.2016
 
 Проекты - VideoHive - Modern Fashion Opener // Fast Glitch Slideshow - 17273819 [AEP]
@@ -655,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A27DC1215D7E26615496DB4BBAED8C95734CAE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 817680   (544891) от 31.08.2014
-
-VideoHive - Vintage Black - A Photo Slideshow - 6859329 [AEP]
-
->>След.
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Динамичный, стильный, винтажный проект для вашего слайдшоу.
-Превью, туториал - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20035DCEA64D25A622C8C5243A927F1AE0F59CDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

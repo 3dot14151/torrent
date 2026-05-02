@@ -1,3 +1,61 @@
+###  Публикация: 1066524   (412398) от 26.10.2016
+
+Nat King Cole - 10th Anniversary (1955) 2007, Collectors' Choice Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dream A Little Dream Of Me [02:55]
+ 02.There I've Said It Again [03:12]
+ 03.Lulubelle [02:16]
+ 04.I'm An Errand Boy For Rhythm [02:21](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A640D8746DCB6D4A035B2D9ABD47B54AA65236FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1066534   (412394) от 26.10.2016
+
+June Christy - Sings The Standards (1956-2001) 2002, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.For All We Know [02:49]
+ 02.Do Nothin' Till You Hear From Me [04:07]
+ 03.Fly Me To The Moon (In Other Words) [03:16]
+ 04.Blue Moon [03:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:722FBBFFAADDA2E8E70B2034BF82A9C7E21D8519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413012   (411910) от 02.10.2020
 
 Louis Armstrong - Collected (1920-e - 1960-e) 2018, 3CD, Universal [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Vocal Jazz>
@@ -687,64 +745,6 @@ Elvin Jones - The Ultimate (1968) /2014, Universal/[FLAC|tracks+.cue]<Post-Bop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B61E8341E41AE85E139C0372846667C8847C944
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948789   (409800) от 21.10.2015
-
-The Billy Taylor Trio - A Touch Of Taylor (1955) /2013, Universal/[FLAC|tracks+.cue]<Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ever So Easy [03:17]
- 02.Radioactivity [03:46]
- 03.A Bientot [04:20]
- 04.Long Tom [02:50](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CA52CC51E7C971D207C7B7C7ACFA283281EC1D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948792   (409654) от 21.10.2015
-
-Pharoah Sanders - Africa (1987) /2015, Timeless Records/[FLAC|tracks+.cue]<Avant-Garde Jazz, Free Improvisation, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.You've Got To Have Freedom [10:07]
- 02.Naima [05:32]
- 03.Origin [06:55]
- 04.Speak Low [08:09](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free Improvisation, Post-BopПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FC727533A1B7505FA1C9C08A6F7AC4182D864F
 ```
 
 https://mybot314.ru/tekegram_catalog/

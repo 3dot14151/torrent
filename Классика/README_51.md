@@ -1,3 +1,38 @@
+###  Публикация: 483708   (88811) от 16.04.2012
+
+Antonio Vivaldi - 12 Concertos Op. 8 incl. Le quattro stagioni: VA, Musici di San Marco, conductor Alberto Lizzio (1723) /2000, Tring International/[FLAC|Lossless]<Baroque>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto in Mi maggiore «La Primavera» (Весна), RV 269
+01.	I. Allegro - 3:34
+02.	II. Largo e pianissimo sempre - 2:54
+03.	III. Danza pastorale: Allegro - 4:32
+Concerto in Sol minore «L'Estate» (Лето), RV 315
+04.	I. Allegro non molto - 5:56
+05.	II. Adagio. – Presto - 2:25
+06.	III. Presto - 3:06
+Concerto in Fa maggiore «L'Autunno» (Осень), RV 293
+07.	I. Allegro - 5:29(   Читать дальше...   )2000-2007Жанр: BaroqueПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28D4E271BC30CF5A1E14D0371BF3549DD86D0E0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483506   (88662) от 15.04.2012
 
 Yehudi Menuhin - Vivaldi - Violin Concertos (2003) 2CD [FLAC|Lossless]<Classical>
@@ -798,41 +833,6 @@ David Garrett - Virtuoso (2007) [FLAC|Lossless]<Classical Crossover, Instrumenta
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467524   (82243) от 15.03.2012
-
-Иоганн Себастьян Бах - Магнификат |Magnificat in D major BWV 243 (1984) [MP3|192 кб/с]<Classic>
-
->>Классика
->>Вокал
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82243.jpg" />
-</div>
-
-
-###  Подробнее
-
-001-Magnificat
-002-Et exultavit spiritus meus
-003-Quia respexit humilitatem
-004-Omnes generationes
-005-Quia mihi fecit magna
-006-Et misericordia
-007-Fecit potentiam
-008-Deposuit potentes
-009-Esurientes implevit bonis
-010-Suscepit Israel(   Читать дальше...   )1984Жанр: ClassicПродолжительность: 00:27:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B141A29E295432F3BA03E959197383B957D5F53E
 ```
 
 https://mybot314.ru/tekegram_catalog/

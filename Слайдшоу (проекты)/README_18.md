@@ -1,3 +1,30 @@
+###  Публикация: 997274   (875258) от 16.03.2016
+
+Проекты - Creativity Unbound Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания фото-видео сладшоу. Так же подойдет для корпоративного видео и видео-презентаций.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D42F2F0302AFA770AA09EB7649020808CBBEA35D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997243   (875245) от 16.03.2016
 
 Проекты - VideoHive - Slideshow - 14736021 [AEP]
@@ -653,32 +680,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA349C04F3CB61E63DAA1351FFA5E93D47E35B4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106677   (869234) от 21.02.2017
-
-Проекты - VideoHive - Unfold Slideshow [AEP]
-
->>След.
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869234.jpg" />
-</div>
-
-
-###  Подробнее
-
-Unfold Slideshow - шаблон является очень полезными и выполнен таким образом, чтобы по особому показать ваши изображения или видео. Этот проект содержит 10 настраиваемых заполнителей графики и текстов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1870B1104E50CFE2E6F0A81475CB3622B56F942
 ```
 
 https://mybot314.ru/tekegram_catalog/

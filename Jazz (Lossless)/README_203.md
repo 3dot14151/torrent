@@ -1,3 +1,61 @@
+###  Публикация: 950062   (370400) от 26.10.2015
+
+Pat Metheny and Ornette Coleman - Song X (1985) [FLAC|tracks+.cue]<Jazz, Free Jazz, Post-Bop, Avant-Garde, Modern Creative, Free Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Song X (05:39)
+02. Mob Job (04:13)
+03. Endangered Species (13:20)
+04. Video games (05:22)(   Читать дальше...   )Жанр: Jazz, Free Jazz, Post-Bop, Avant-Garde, Modern Creative, Free FunkПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA1893BA35F4D1D306AD5478E7DD531CA575F973
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950173   (370395) от 26.10.2015
+
+One For All - No Problem (2003) /Venus Records/[FLAC|tracks+.cue]<Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_370395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Our Father Who Art Blaky [08:19]
+ 02.No Problem [08:24]
+ 03.Moanin' [08:32]
+ 04.Whisper Not [07:54](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:925E7BE532ECDBBAB4F410679D40D1E0CAF0C8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1327831   (370260) от 27.09.2019
 
 Joshua Redman Quartet - Come What May (2019) Nonesuch Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -687,64 +745,6 @@ Katie Melua - Album No. 8 (2020) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95BD12B3EA4B58842A9B9BEC7A1898F80B048318
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070575   (367012) от 07.11.2016
-
-Ofer Israeli - Clash (1989) [FLAC|Lossless|tracks + .cue] <Fusion, Post Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367012.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tzi-Tzi 4.25
-2. Nishitha 8.02
-3. 5.30 AM 7.29
-4. Blackbird Blues 5.00(   Читать дальше...   )Жанр: Fusion, Post BopПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F833FB67C6125EB0CA70D35256D631B196C08F61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070462   (367009) от 07.11.2016
-
-Paul Motian - Sound Of Love (1997) [FLAC|Lossless|image + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Misterioso (13:28)
-02. Duke Ellington's Sound Of Love (9:13)
-03. Mumbo Jumbo (7:31)
-04. Once Around The Park (6:53)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD01460A4998A1ED78F37DDF032788C30C7FC0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

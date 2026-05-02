@@ -1,3 +1,67 @@
+###  Публикация: 587873   (219534) от 11.12.2012
+
+Two Steps From Hell - Two Steps From Heaven/SkyWorld (2012) /WEB/ [FLAC (tracks)|Lossless]<Trailer Music>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Is Hell That Ends Well
+02. Titan Dream
+02-1. Titan Dream (No Solo Voice)
+02-2. Titan Dream (No Choir)
+03. Skyworld
+04. El Dorado
+05. The End Is The Beginning
+05-1. The End Is The Beginning (No Choir)
+06. All The Kings Horses
+07. Realm Of Power(   Читать дальше...   )Жанр: Trailer MusicПродолжительность: 02:26:26
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1654716   (205013) от 22.08.2023
+
+VA - The Orient Collective: Echoes of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael Simon - Natalia (8:16)
+02. Mikhail Catan - Lucid Dream (6:30)
+03. Marga Sol - Hidden Tribes (A X L Remix) (5:36)
+04. Efrén Atienza - Apollonia (Stephane Salerno Remix) (6:03)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:22:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D13457E7D0FA5076B12457C66E91092975BA7D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1654724   (205011) от 22.08.2023
 
 VA - The Orient Collective: Oriental Expedition (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
@@ -708,64 +772,6 @@ VA - The Orient Collective: Mystic Dunes (2023) FLAC Lossless|WEB-DL|tracks] <Wo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EEE747DC8E5C609051D8FE870842FEB46A98E18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703088   (114831) от 01.03.2024
-
-VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darles Flow, José Sierra & Tibetania - Sahra (6:06)
-02. Project Blue Sun & Tibetania - Desert Girl (Dacosta Remix) (5:46)
-03. Tibetania & Hansonic - Streets of Khartoum (6:40)
-04. The Mystic & Tibetania - Johera (6:45)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8BAC9B36BD1963844A7820922EB504E79AEAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720488   (110325) от 03.05.2024
-
-VA - Nomadica 2024 [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juantxo Munoz & Robric & Tibetania - Desert Moon (Original Mix) (6:42)
-02. DJ Arte & Alsur & Tibetania feat. DJ Mell - Eunoia (Original Mix) (5:07)
-03. Juantxo Munoz & Robric & Tibetania - Oman (Original Mix) (6:22)
-04. Indiano & Tibetania - White Love (Original Mix) (7:18)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6AD09ABE447896D9B65E5D806A2DA0214451CD84
 ```
 
 https://mybot314.ru/tekegram_catalog/

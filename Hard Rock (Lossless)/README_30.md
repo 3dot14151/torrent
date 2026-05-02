@@ -1,3 +1,119 @@
+###  Публикация: 1400263   (721288) от 04.08.2020
+
+FM - Synchronized (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Synchronized (04:35)
+02. Superstar (05:07)
+03. Best of Times (04:03)
+04. Ghosts of You and I (04:27)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:59:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC2F71D2AA85434978085E3CBD8A1B641EE5529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129676   (720790) от 29.04.2017
+
+Big Apple - Rock Area (1995) Japanese Edition 1-st Press [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:11
+02. Groovy 05:09
+03. Fly 05:15
+04. Livewire 06:16(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1F361547BED473DEA37CC123268A725D52F757
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531585   (720750) от 16.02.2022
+
+Praying Mantis - Katharsis (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry For The Nations
+02. Closer To Heaven
+03. Ain't No Rock 'n' Roll In Heaven
+04. Non Omnis Moriar(   Читать дальше...   )Жанр: Melodic Hard Rock, Melodic Heavy MetalПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB5147DD8EBF70B5B30F863137747CCDEA5EA172
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129652   (720712) от 29.04.2017
+
+Rhino Bucket - The Last Real Rock N’ Roll (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Citizens (4:03)
+02. Everything You Do (3:15)
+03. Last Call (3:38)
+04. I'm Your Doctor (2:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBA4EE488570182B24381AE02A37BE2CAC743E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024175   (720435) от 07.06.2016
 
 Krokus - Metal Rendez - vous (1980) [APE|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ Uriah Heep - Look At Yourself (1971) 2CD, Remastered, 2017, Sanctuary Records [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DEE4FD4EB96A4E46F329B107E038FABF2E67B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130384   (714050) от 02.05.2017
-
-Deep Purple - Infinite (2017) +6 bonus tracks [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time For Bedlam 04:35
-02. Hip Boots 03:23
-03. All I Got Is You 04:42
-04. One Night In Vegas 03:23(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2CFED80ABB755D7593449F130FE464DB5F6958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129997   (714045) от 02.05.2017
-
-Dire Straits & Mark Knopfler - Private Investigations (The Best Of) (2005) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sultans of Swing [05:48]
-02. Love Over Gold [06:18]
-03. Romeo & Juliet [06:00]
-04. Tunnel of Love [08:10](   Читать дальше...   )Жанр: RockПродолжительность: 01:17:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98F813F2FE58ADAE8A2ECC10C64D6A4F37323394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1219453   (713781) от 14.04.2018
-
-Bonfire - Temple of Lies (2018)  [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713781.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Beginning
-02. Temple Of Lies
-03. On The Wings Of An Angel
-04. Feed The Fire (Like The Bonfire)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:928CCBC9668FA417B96C0D93A44128A2F9D979A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1532491   (713105) от 20.02.2022
-
-Enuff Z'Nuff - Hardrock Nite (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кавер-версии "Битлз"01. Magical Mystery Tour (5:07)
-02. Cold Turkey (4:07)
-03. Eleanor Rigby (4:19)
-04. Live and Let Die (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C53FA047B3736C0E1891FA8FF9E671834867F97
 ```
 
 https://mybot314.ru/tekegram_catalog/

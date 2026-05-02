@@ -1,3 +1,125 @@
+###  Публикация: 1183437   (310195) от 13.11.2017
+
+Саша Самойленко & Tomas Band (Томас, Томас Гавк) - 12 альбомов, 1 ЕР, 4 сингла (1989-2017) [MP3|256-320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310195.jpg" />
+</div>
+
+
+###  Подробнее
+
+1989 - Дочь ушла в дождь
+1991 - Томас Гавк
+1995 - Ночные собаки
+1998 - Слёзы дьявола(   Читать дальше...   )Жанр: RockПродолжительность: 09:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86E5D4A6448C7AEF13764847D94C05E929F593A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1332810   (309314) от 22.10.2019
+
+Горшенев - Крутится карусель (2019) EP [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309314.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Крутится карусель
+2. Разорванные фото
+3. Рождённый быть звездой
+4. Царь Зверей (Kukremix by Michael Thompson)Жанр: RockПродолжительность: 00:15:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD4F1A285BAB0686EB4DA7A1C26AC313F2877CE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422635   (308691) от 09.11.2020
+
+Миссия - Оно (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. На старт! (feat.Евгений Егоров) (04:28)
+ 02. Легион (feat.Пётр Елфимов) (04:31)
+ 03. Зверь близко! (04:00)
+ 04. Оно (feat.Роман Стамбулджан) (05:04)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60FEA730975A654314B6BEE658E522D4F3321551
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 264432   (308304) от 04.12.2010
+
+Слот - The Best Of... (2010) [MP3|320 kbps]<Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308304.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лего
+2. Бумеранг
+3. Одни
+4. Предательская
+5. Капли
+6. 2 войны
+7. Пуля
+8. 7 звонков
+9. Пластика
+10. Нет(   Читать дальше...   )Жанр: AlternativeПродолжительность: 01.10.00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCF68FF82DC52E2B0EDC7B4072E89EAD9DE7F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261116   (307793) от 09.11.2018
 
 Загоны! (Zагоны!) - Это не про тебя (2016) [MP3|320 Kbps] <Punk & Rock>
@@ -629,128 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C6C865D948F89ECD5E023EFF88146590D62F950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961043   (303076) от 30.11.2015
-
-Мара - Война и мир (2015) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Будет так!
-02. За мной
-03. Раненые города
-04. Беда(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4E246CF78332872ADEB9A429C460FB87396BF04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078387   (302834) от 30.11.2016
-
-Arida Vortex - Wild Beast Show (2016) [MP3|320 Kbps] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escaping From Hell
-02. Ghost Rider
-03. Dance Of The Walking Dead
-04. Strangers In Space(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:805AD1C68527EFBD56BB1D44ED2699D7840325C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584882   (302303) от 06.12.2012
-
-Ленинград - Вечерний Ленинград (2012) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. WWW (Instrumental)
-02. Любит наш народ (Instrumental)
-03. …мба (Instrumental)
-04. Вода (Instrumental)
-05. Супергуд (Instrumental)
-06. Нет и ещё раз нет (Instrumental)
-07. Рас…дяй (Instrumental)
-08. Терминатор (Instrumental)
-09. Без тебя …дец (Instrumental)
-10. Надоел (Instrumental)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F2C4E19011102BAF0F66147CD5A0C672EE26777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1261736   (301269) от 12.11.2018
-
-Морэ&Рэльсы (Морэ & Рэльсы) - Ломая Суть Демо (ЛСД) (2018) [MP3|320 Kbps] <Indie Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legal
-02. Похоже ты тоже
-03. Трусики в руках
-04. Вдоль стен(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:26:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4226B876C0FCE76818B0B553878381A4F92D90FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

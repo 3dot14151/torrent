@@ -1,3 +1,61 @@
+###  Публикация: 1095157   (926278) от 20.01.2017
+
+Donald Byrd And 125th Street, N.Y.C. - Words, Sounds, Colours & Shapes (1982) 2007, Wounded Bird Records[FLAC|Lossless|image + .cue] <Jazz-Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sexy Dancer [05:12]
+ 02.Midnight [05:08]
+ 03.So Much In Love [04:01]
+ 04.High Energy [05:48](   Читать дальше...   )Жанр: Jazz-FunkПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4195EC01180D13D9680208AAC9E6F562844C617F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 987439   (926223) от 17.02.2016
+
+Herbie Hancock - Quartet (1981) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_926223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Well You Needn't [06:28]
+ 02.'Round Midnight [06:41]
+ 03.Clear Ways [05:03]
+ 04.A Quick Sketch [16:28](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE893850B8F6543BF3E8C49BD7A83179735F4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095075   (926208) от 20.01.2017
 
 Ray Anderson Lapis Lazuli Band - Funkorific (1998) [FLAC|Lossless|image + .cue] <Mainstream Jazz>
@@ -692,64 +750,6 @@ Nancy Harms - Ellington At Night (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB3C05474835BAA5B3186C9E65606C6DF7586953
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095941   (922868) от 22.01.2017
-
-Scott Wilkie - Home Again The Solo Piano Sessions (2008) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The One [5:15]
-02. Home Again [5:05]
-03. Pier 39 [5:08]
-04. Claire's Lullaby [3:29](   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A03EC4C10B6904D11319F2B58867BB3B08160589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988308   (922758) от 19.02.2016
-
-VA - Мастера Джаза (2000) S&V #07/2000 [FLAC|Lossless|tracks + .cue] <Bop, Soul-Jazz, Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wes Montgomery - California Dreaming (3:09)
-02. Ella Fitzgerald - Mack The Knife (5:09)
-03. Toots Thielemans - Bluesette (4:47)
-04. Gerry Mooligan - Makin' Woopee (4:06)(   Читать дальше...   )Жанр: Bop, Soul-Jazz, Latin Jazz, Contemporary Jazz, Cool JazzПродолжительность: 00:58:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5C153C4BD3AE2E8D08A47B1F73158AD54A534C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1414533   (383297) от 09.10.2020
+
+VA - Кроссфит 2 (2020) [MP3|320 Kbps] <Alternative Rock, Hard Rock, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rise Against - Savior (4:02)
+02 - The Romantics - What I Like About You (2:55)
+03 - Fall Out Boy - My Songs Know What You Did In The Dark (Light Em Up) (3:06)
+04 - Rick Springfield - Jessie's Girl (3:14)(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, OtherПродолжительность: 03:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:929674FCD887875909F821AF10714173EBC02387
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326966   (380781) от 22.09.2019
+
+VA - House Of The Rising Sun (2019) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380781.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Beak - The Brazilian
+002. Steady Hands - Drop D And Dance Beats
+003. Newman - Ghost In The Night
+004. Tuka Tuka Version - House Of The Rising Sun(   Читать дальше...   )Жанр: RockПродолжительность: 09:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B32C3FC93BF57958F88AA96916CFAC2F85A86DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326899   (380777) от 22.09.2019
 
 VA - Rock Drive 7 (2019) 4CD [MP3|320 Kbps] <Rock, Hard Rock, Heavy Metal, Blues Rock>
@@ -689,64 +747,6 @@ VA - Рок в Авто (vol. 5) (2012) [MP3|320 кб/с]<Heavy Metal, Power Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CB753A9FE50DB8475F14B68E54FFDBD9F9FD955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 495525   (360286) от 30.10.2015
-
-VA - Русский рок - Новая генерация (2012) [MP3|256-320 кб/с]<Heavy Metal, Alternative Metal, Metalcore, Symphonic Metal, Progressive Metal, Industrial Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5diez - Моя Весна
- 02. 7000$ - Я вернусь
- 03. Atakama - Холодное Сердце (feat. Кэш (Слот) и К.Немоляев)
- 04. Bog-morok - г.м.о.(   Читать дальше...   )Жанр: Heavy Metal, Alternative Metal, Metalcore, Symphonic Metal, Progressive Metal, Industrial MetalПродолжительность: 04:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26C5E41840D99092F8B4D4B33EB8EFBC4987BCD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545045   (360285) от 30.10.2015
-
-VA - Рок в Авто (vol. 4) (2012) [MP3|214-320 кб/с]<Heavy Metal, Glam Metal, Thrash Metal, Alternative Metal, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audioslave - Be yourself
-02. Helloween - Fast As A Shark (Accept Cover)
-03. Three Days Grace - I Hate Everything About You
-04. Guano Apes - Storm(   Читать дальше...   )Жанр: Heavy Metal, Glam Metal, Thrash Metal, Alternative Metal, Power MetalПродолжительность: 05:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3777D4189E42E345E8906898A4CD2FC695CDE653
 ```
 
 https://mybot314.ru/tekegram_catalog/

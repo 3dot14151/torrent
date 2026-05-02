@@ -1,3 +1,182 @@
+###  Публикация: 696921   (538090) от 04.09.2013
+
+Nicole - Alles fliesst (2005) [DTS 5.1 CD-Extra|44.1/16| .bin+.cue (Audio-DVD)] <pop>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alles Fließt 4:05
+2. Engel Ohne Flügel 3:50
+3. Gib Mir Eine Stunde 3:48
+4. Mehr Davon 4:22(   Читать дальше...   )Жанр: PopПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4F9578FFFEAF93FD029DDEE1B0484BE6EE009BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049566   (537639) от 08.09.2016
+
+Genesis - SACD Anthology (1970-1998) [FLAC 2.0|96/24|tracks+.cue|SACD] <Progressive Rock, Pop Rock, Art Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invisible Touch (3:29)
+02. Tonight, Tonight, Tonight (8:54)
+03. Land Of Confusion (4:46)
+04. In Too Deep (5:03)(   Читать дальше...   )Жанр: Progressive Rock, Pop Rock, Art RockПродолжительность: 14:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B345F4CCF1B7F126269C2A5139016902BCAF921C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 531394   (537637) от 07.08.2012
+
+Чиж - 2 альбома (1996, 2010) [DTS 5.1|Image (Upmix)]<Рок, блюз-рок, фолк-рок, рок-н-ролл>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_537637.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01. Перекресток (7:01)
+02. Она не вышла замуж... (6:48)
+03. Такие дела (5:56)
+04. Вечная молодость (2:59)
+05. Поход (3:31)
+06. Сен Семилья (5:45)
+07. Дополнительный 38 (5:09)
+08. Русская (хочу чаю) (3:31)
+09. Hoochie Coochie Man (3:44)(   Читать дальше...   )Жанр: Рок, блюз-рок, фолк-рок, рок-н-роллПродолжительность: 02:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE2F95331D04C6F21AD361DC4C94DE12F80E0D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050670   (536363) от 09.09.2016
+
+Форум - Никто Не Виноват (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Electronic, New Wave, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мечтатель • Dreamer
+02. Закодирована Дверь • Door With A Code
+03. Ты Пожалеешь • Yo'll Be Sorry
+04. Серенада • Serenade(   Читать дальше...   )Жанр: Electronic, New Wave, Synth-popПродолжительность: 00:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2781746B23F41AAC5533DBE83DE5B44D4BDF962C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 819259   (535792) от 06.09.2014
+
+Electric Light Orchestra - Balance Of Power (1986)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535792.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Heaven Only Knows (2:57)
+A2. So Serious (2:44)
+A3. Getting To The Point (4:31)
+A4. Secret Lives (3:32)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:34:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D68EE1D2F2D7B42967397EC7B1B19EB322D412FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557908   (535704) от 18.06.2022
+
+Triptykon - Studio Albums (2010 - 2020) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Death/Black/Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535704.jpg" />
+</div>
+
+
+###  Подробнее
+
+Triptykon — швейцарская экстремальная метал-группа из Цюриха, основанная в 2008 году Томасом Габриэлем Фишером, одним из основателей новаторских хэви-металлических групп Hellhammer, Celtic Frost и Apollyon Sun.2010 - Eparistera Daimones
+2014 - Melana Chasmata
+2020 - Requiem (Live At Roadburn 2019)Жанр: Death/Black/Doom MetalПродолжительность: 03:46:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8858B6C68B50D2C584EB7AF16EE12E55E915DF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1155340   (535070) от 02.08.2017
 
 Каролина (Люба Орлова/Гусева) - Дискобар (1990) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
@@ -570,174 +749,6 @@ A4. Ticket to the Moon (4:07)(   Читать дальше...   )Произво�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B4EDA75A73593D727ECC5A0C8403C68FA1D9CA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932261   (507957) от 30.08.2015
-
-Antonio Vivaldi - The Four Seasons (1982) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<classic,organ>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507957.jpg" />
-</div>
-
-
-###  Подробнее
-
-Антонио Вивальди "Времена года"
-Четыре концерта для скрипки с оркестром
-Переложение для органа Евгении Лисициной
-(   Читать дальше...   )Жанр: classic,organПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10065BBF2F627A103D82DBF637E9841EC005C1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 232130   (507316) от 02.09.2010
-
-Bill Mize - Coastin' (1998) (DTSCD OF) <new age, bakersfield sound>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507316.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Guitar New AgeПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932943   (507063) от 31.08.2015
-
-VA - Дискоклуб 4Б: Популярные русские песни и романсы (1982) [APE 2.0 24/96|image+.cue (Vinyl-Rip)]<Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Эх, Настасья (нар. песня) – Е.Нестеренко
-02. Утро туманное (В.Абаза – И.Тургенев) – Е.Образцова
-03. Нет, не тебя так пылко я люблю (А.Шишкин – М.Лермонтов) – Б.Штоколов(   Читать дальше...   )Жанр: RetroПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB0188D47472CFDD46A430BBAB422BBD1C2D9E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605609   (506070) от 01.09.2015
-
-Табула Раса - Сказка Про Май (1997) [APE 2.0 24/48 |image+.cue (MC-rip)] <Indie-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шейк 'Шей, шей' (03:54)
-02. Утренний белый луч (04:51)
-03. Вельветовый пиджак (03:42)
-04. Мой дом (03:34)(   Читать дальше...   )Жанр: Indie-RockПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B81FD225909EEEE9648BD330F058F2F2CA90265
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539943   (505316) от 27.08.2012
-
-VA - Concord Jazz: SACD Sampler. volume 1 (2003) [DTS 5.1 44.1/16 | .wav+.cue (SACD)] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1  Beija-Flor – The Jim Hall QuartetЖанр: JazzПродолжительность: 01:07:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57D7C5C5D3E60B176A198E9E337CB63DC9E15FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933169   (505286) от 02.09.2015
-
-Francoise Hardy - Le Double Disque D'or De Francoise Hardy (1977) [FLAC 2.0 24/96|image+.cue (Vinyl Rip)]<Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505286.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1	Tous Les Garcons Et Les Filles
-A2	Le Temps De L'amour
-A3	Mon Amie La Rose
-A4	Le Premier Bonheur Du Jour(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:163C29272355029070F6791E9154ADFBDFC27D4C
 ```
 
 https://mybot314.ru/tekegram_catalog/

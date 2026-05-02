@@ -1,3 +1,206 @@
+###  Публикация: 1791925   (67544) от 23.04.2025
+
+Светлана Калачёва, Александр Ганичев - Песни русской души (2025) [MP3|320 Kbps] <Фолк>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Песни русской души [00:04:01]
+02 - Сердце матери [00:03:56]
+03 - Земля и люди [00:03:42]
+04 - Дочки матери [00:03:36](   Читать дальше...   )Жанр: ФолкПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8845381C81404F61255A48B4FEB21CCC9BC8665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798459   (66626) от 22.05.2025
+
+VA - The Wedding Singer: Music From the Motion Picture (1997) CD, Compilation [FLAC|Lossless|tracks + .cue] <New Wave, Electro, Pop Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Presidents of the United States of America / Video Killed the Radio Star    [0:03:21.30]
+02. Culture Club / Do You Really Want to Hurt Me    [0:04:19.60]
+03. The Police / Every Little Thing She Does Is Magic    [0:04:18.55]
+04. The Smiths / How Soon Is Now?    [0:06:41.73](   Читать дальше...   )Жанр: New Wave, Electro, Pop RockПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:111B29578A100FE43C253C185513C9D19400B5DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797565   (66609) от 22.05.2025
+
+Willie Nelson - Oh What A Beautiful World (2025) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66609.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. What Kind of Love (3:42)
+2. Banks of the Old Bandera (3:26)
+3. The Fly Boy & The Kid (3:51)
+4. Forty Miles from Nowhere (4:27)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC1FB5FB1D06118D027170D17A2F462D37D2FCEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799064   (66430) от 29.05.2025
+
+Gandharva Loka Orchestra (Оркестр "Гандхарва Лока", Sri Chinmoy, Шри Чинмой) - Gratitude (2014) [FLAC|Lossless|tracks + .cue] <New Age, World, Orchestral>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sundara Hate
+02. Purna Kariya
+03. Sonali Jyotir, Mishe Phulla Dale, Oi Akashe, Sukhero Lagiya, Chitta Dolai
+04. I Can Lift Up 240 Pounds(   Читать дальше...   )Жанр: New Age, World, OrchestralПродолжительность: 01:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D877FBB8B566AFC58C89FBA4333ACC77ACC8FC98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1799469   (66386) от 29.05.2025
+
+George Strait - One Step at a Time (1998) CD, HDCD, Album [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Just Want to Dance With You    [0:03:30.65]
+02. One Step at a Time    [0:04:06.30]
+03. True    [0:03:34.00]
+04. Remember the Alamo    [0:04:31.17](   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:38:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA8FF7FDB0C0B37E361F9BD62B643A96369F0BFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801427   (66208) от 11.06.2025
+
+Hank Williams Sr. - Lonesome Blues (1992) [FLAC|Lossless|tracks + .cue] <Folk, World & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Ain’t Got Nothin’ but Times    [0:02:43.55]
+02. Cold, Cold Heart    [0:02:45.10]
+03. Jambalaya (on the Bayou)    [0:02:54.58]
+04. I’m So Lonesome I Could Cry    [0:02:48.20](   Читать дальше...   )Жанр: Folk, World & CountryПродолжительность: 00:32:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE6F717A16A18A56A1A775687511389A14D208C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802082   (66086) от 15.06.2025
+
+Van Morrison & The Chieftains - Irish Heartbeat (1988) CD, Album [FLAC|Lossless|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star of the County Down    [0:02:42.15]
+02. Irish Heartbeat    [0:03:51.65]
+03. Tá Mo Chleamhnas Déanta    [0:03:31.35]
+04. Raglan Road    [0:04:56.25](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2689FFC7BFC786A5832CCD905593CE567ED7490E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802786   (65998) от 19.06.2025
 
 Shujaat Khan - Call of the River (2008) 2024 Saregama India Ltd [FLAC|Lossless|WEB-DL|tracks] <World>
@@ -542,200 +745,6 @@ Sex Pistols - The Filth & The Fury (Original Motion Picture Soundtrack) (2024) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF1F727DD49BF37A7A9AE521301E368154076C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719501   (57945) от 01.05.2024
-
-Brian Eno - Eno (Original Motion Picture Soundtrack) (2024)  [FLAC|Lossless|WEB-DL|tracks] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Remember [00:03:52]
-02. The Secret Place (Remastered 2019) [00:03:31]
-03. Cmon [00:05:20]
-04. Ho Renomo [00:05:11](   Читать дальше...   )Жанр: Rock, OSTПродолжительность: 01:14:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27088EED4DF91A14653ADC3F8A2562727FB0554D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719560   (57832) от 02.05.2024
-
-Ramin Djawadi - Fallout (Original Amazon Series Soundtrack) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <OST, Bandas sonoras de cine>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brotherhood of Steel (Full Version) [00:06:27]
-02. The Ghoul [00:05:41]
-03. Ice Cream and Apple Pie [00:03:10]
-04. Vault 33 [00:04:54](   Читать дальше...   )Жанр: OST, Bandas sonoras de cineПродолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629A8E9E4D08B38B82E4F64BEA34F7F6E52132C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340109   (57538) от 05.05.2024
-
-Leonard Cohen - Thanks for the Dance (2019) Columbia Records [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happens to the Heart (4:33)
- 02. Moving On (3:12)
- 03. The Night of Santiago (4:15)
- 04. Thanks for the Dance (4:13)(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:29:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A86D36DCCD1B3AF6EDCD82336A963B6881048B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722753   (56558) от 14.05.2024
-
-Mark Ashley - Instrumentals Vol. 1 (2024) [MP3|320 Kbps] <Instrumental Pop>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Love, You're My Life (Instrumental 2020) (3:47)
-02. It's All Over (Instrumental Version) (4:12)
-03. Hot Like Fire (Instrumental Remix) (3:46)
-04. Cinderella's Heart (Instrumental Remix) (4:50)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 02:10:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38247591BAB8C2FE0A6389C097EE26D26D625D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713843   (55852) от 21.05.2024
-
-Моторадио | Частная коллекция (Подкаст) (2023) Часть 2 [MP3, Александр Цыпин, Алексей Смирнов, Александра Ромашова]
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55852.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частная коллекция - программа с участием известных петербургских коллекционеров музыки, представляющих в этой вечерней передаче свои любимые пластинки и компакт-диски, свой взгляд на рок-музыку, свои пристрастия и симпатии в этом жанре, показывая слушателям порой музыку уникальную, редкую и удивительную! В этой ленте как новые выпуски , так и архивы передач этой (   Читать дальше...   )Производство: МоторадиоЖанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 37:58:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6901F6FA8F591A0025378D898B0926ACCEED3188
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712866   (55848) от 21.05.2024
-
-Моторадио | Частная коллекция (Подкаст) (2023) Часть 1 [MP3, Александр Цыпин, Алексей Смирнов, Александра Ромашова]
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55848.jpg" />
-</div>
-
-
-###  Подробнее
-
-Частная коллекция - программа с участием известных петербургских коллекционеров музыки, представляющих в этой вечерней передаче свои любимые пластинки и компакт-диски, свой взгляд на рок-музыку, свои пристрастия и симпатии в этом жанре, показывая слушателям порой музыку уникальную, редкую и удивительную! В этой ленте как новые выпуски , так и архивы передач этой (   Читать дальше...   )Производство: МоторадиоЖанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 44:30:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D502D55E3315C937366549095DF65B522F1BFD8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714612   (55832) от 21.05.2024
-
-Моторадио | Long Hair Show (подкаст) (2023) [MP3, Дарья Ефремова, Евгений Корнев, Павел Обиух, Профессор Тихий]
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Еженедельное радиошоу про рок-музыку, где звучит всё: от рок-н-ролла до грайндкора! Вас ждёт рассказы о некоторых интересных фактах того отрезка времени, когда одно из самых значительных культурных явлений второй половины XX века, рок-музыка, только зарождалось, а также отличная подборка композиций, которые стали отправной точкой всемирной рокомании.Производство: МоторадиоЖанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 66:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:394F4AE4D12E9349592DE796A0FE185FCFF8BDCD
 ```
 
 https://mybot314.ru/tekegram_catalog/

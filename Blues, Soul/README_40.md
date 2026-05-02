@@ -1,3 +1,32 @@
+###  Публикация: 1771623   (31704) от 07.01.2025
+
+KAT Blue & The True Believers - Start Believin'... (2024) [MP3|320 Kbps] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31704.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Me Right 04:40
+02. Close To My Fire 05:07
+03. Hard Times 03:39
+04. Bad Woman Blues 03:28(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93EEA1D164573DC99E930865595C8DB61D02F9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1701497   (30780) от 16.01.2025
 
 Blues Beatles - Get Back To The Blues (2016) [MP3|320 Kbps] <Blues, Blues Rock>

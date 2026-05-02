@@ -1,3 +1,61 @@
+###  Публикация: 1416733   (363020) от 18.10.2020
+
+VA - Exotic Chillout Sounds (Vol.02) (2020) [MP3|320 Kbps] <Chillout, Downtempo, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363020.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lounge Groove Avenue - Sunset Soul
+002. John Abbruzzese - Analogical Fit
+003. Sean Norvis - Our Life - La Primavera
+004. L' Art Mystique - Beautiful Things(   Читать дальше...   )Жанр: Chillout, Downtempo, AmbientПродолжительность: 09:23:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BE18470EDB249558F509B53484A02EFC6B2E116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416731   (363016) от 18.10.2020
+
+VA - Euronics Big Room Electro House (2020) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363016.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Chart - Freaky
+002. Manuel De Diego - You're In The Army Now
+003. Shytsee - Departure (Original Mix)
+004. Sound Of Venice - Save The Rhythm(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:55:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:877719A71CE68207BDB1D33243417FF12D521F1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416730   (363014) от 18.10.2020
 
 VA - Don't Stop The Melody (2020) [MP3|320 Kbps] <Deep House, Electro>
@@ -703,68 +761,6 @@ VA - Trance Eve Volume 45 (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F83ABFF0AAD5D05F0F4CCFD17A7EBA1140237BBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577557   (358551) от 19.11.2012
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #102 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358551.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #102 (2012)
-Год: 2012
-Жанр: Vocal Trance
-Продолжительность: 02:53:19Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-001. Rank 1 & Jochen Miller - Wild and Perfect Day (Extended Mix)
-002. Rave Channel - Illusion (Original Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FD38A88CBD389F26A573AFFCCC158A9334F7BFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328718   (358174) от 02.10.2019
-
-VA - Club Panorama: House Dance Party (2019) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358174.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Fatum - Chocolate
-002. Cosimo Pagano - All The Girls Bounce
-003. Ricardo Piedra - Enceladus
-004. Sunny Lax - Sheeverz(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 10:17:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F8E2A340E473D880E9315DD2EC568B95718B078
 ```
 
 https://mybot314.ru/tekegram_catalog/

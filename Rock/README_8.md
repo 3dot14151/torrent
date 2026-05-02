@@ -1,3 +1,32 @@
+###  Публикация: 1487263   (1003835) от 04.08.2021
+
+Paul Mccartney - Mccartney III (2021) Deluxe Edition [MP3|320 Kbps] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Long Tailed Winter Bird (05:16)
+ 02 - Find My Way (03:54)
+ 03 - Pretty Boys (02:58)
+ 04 - Women And Wives (02:52)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:13:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F668E60B2C6F52599A49DD8A69703E889A4A3128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1487598   (1003357) от 06.08.2021
 
 Santiano - Top Hits - die größten Santiano Hymnen (2021) EP [MP3|320 Kbps] <Folk Rock>
@@ -789,35 +818,6 @@ Pride Of Lions - The Destiny Stone (2004) Japanese Ed. [MP3|320 кб/с]<Melodic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D001FA5DEEBE32444CB8C50B232CA3329C11CD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352959   (993120) от 16.01.2020
-
-Queen - Greatest Hits In Japan (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Somebody To Love (2011 Mix)
-02. Don’t Stop Me Now (2011 Mix)
-03. Teo Torriatte (Let Us Cling Together) (2011 Mix)
-04. Spread Your Wings (2011 Mix)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D725027581C0E8C5B5DA30DE21EC65CD907A85D
 ```
 
 https://mybot314.ru/tekegram_catalog/

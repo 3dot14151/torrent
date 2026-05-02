@@ -1,25 +1,22 @@
-###  Публикация: 1011810   (796446) от 28.04.2016
+###  Публикация: 1428908   (798023) от 06.11.2021
 
-George Garzone - Moodiology (1999) [FLAC|Lossless|tracks + .cue] <Jazz>
+Подшивка | Practical Electronics (2021) [PDF] [En]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Журналы
+>>Журналы по электротехнике и радиоэлектронике
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796446.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798023.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Moodiology (Prologue) (Garzone) - 02:30
-02. Hey, Open Up (Garzone) - 06:37
-03. Farewell to Athens (Garzone) - 05:28
-04. Summertime (Gershwin-Gershwin-Heyward) - 08:11(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:41
+Английский журнал по электронике для радиолюбителей. С апреля 2019 года выходит под новым названием - Practical Electronics. В каждом номере публикуются конструкции для повторения различного уровня сложности с описанием, схемами, печатными платами и прошивками для микроконтроллеровЖанр: ЭлектроникаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2ED59E7609B8E7D892EFD8F3A94BA6952CA2DBAD
+magnet:?xt=urn:btih:5511A5381B192B2FDD16FD10F30D2FA1E7EB3713
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011706   (796445) от 28.04.2016
+###  Публикация: 1507962   (798022) от 06.11.2021
 
-Blue Mitchell & Sonny Red - Baltimore 1966 (2016) Uptown Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
+Forza Horizon 5 (2021) [Ru/Multi] (1.405.2.0/dlc) License EMPRESS [Premium Edition]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>3
+>>10
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796445.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798022.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.If I Should Lose You [15:30]
- 02.All Members [14:27]
- 03.Fungi Mama [10:24]
- 04.Blue Spring Variation (Shifting Down, Blue Spring, Blue Spring Shuffle) [10:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:10:51
+Forza Horizon 5 – продолжение популярной гоночной серии Forza Horizon, в котором вам ждет еще более разнообразный и обширный открытый мир. За рулем величайших автомобилей вы промчитесь по невероятно красивому миру Мексики. Вас ожидает масштабная кампания с сотнями испытаний на любой вкус. Вы посетите пустыни, затерянные руины, густые джунгли, покрытый снегом вулкан (   Читать дальше...   )Тип издания: LicenseРазработчик: Playground GamesЖанр: Racing, Arcade, Simulator, Open World, 3DЯзык озвучки: Английский, Французский, Немецкий и другиеЯзык субтитров: Русский, Английский, Французский и другиеЯзык интерфейса: Русский, Английский, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:067877D310EE80008AE997D7BA319D64043D6A84
+magnet:?xt=urn:btih:BF5726578A45AB657442AB43D308544412D149FA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011776   (796444) от 28.04.2016
+###  Публикация: 1508281   (798021) от 07.11.2021
 
-VA - Melodic Dreams Vol.4 (2016) [MP3|320 кб/с] <Trance>
+Monte Pittman - The Power of Three (2014) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796444.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798021.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DJ I. GlazkoV -  Earlier Sound  5:00
-02. Dj Amigo -  Summer Time  6:33
-03. Dredd DJ -  Prizma  5:07
-04. Filek -  All Be O.k.  6:11(   Читать дальше...   )Жанр: TranceПродолжительность: 00:50:34
+01. A Dark Horse
+02. Delusions Of Grandeur
+03. Everything's Undone
+04. Blood Hungry Thirst(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:57:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:94CFD4C3B01BB16ABFD0DF2460A815412DE5B5DC
+magnet:?xt=urn:btih:F73904AE8E1E60F10FBEBA3889BE44F751370359
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011600   (796443) от 28.04.2016
+###  Публикация: 1508280   (798020) от 07.11.2021
 
-VA - Dance Floor Hits Destinations (2016) [MP3|320 кб/с] <House, Trance, Bigroom>
+Monte Pittman - Inverted Grasp Of Balance (2016) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796443.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798020.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Max Styler & Charlie Darker -  D2b (Steve Aoki Remix)  3:53
-02. Borgeous -  Souls (Andres Fresko Remix) (Feat. M.Bronx)  4:08
-03. TIA Milano -  Wizard (Dirty Mix)  4:38
-04. DJoly -  Volcano (Original Mix)  4:52(   Читать дальше...   )Жанр: House, Trance, BigroomПродолжительность: 06:07:06
+01. Panic Attack
+02. Arisen In Broad Daylight
+03. Guilty Pleasure
+04. The Times Are Changing(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB9AABA709BB3991C5570212CAAC4928DEA4FC5C
+magnet:?xt=urn:btih:A80170D26C6D8B2215C4A68526029247A0C46520
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011779   (796442) от 28.04.2016
+###  Публикация: 1508142   (798019) от 07.11.2021
 
-VA - Pearls Deep House Selection (2016) [MP3|320 кб/с] <Deep House>
+VA - Lounge Theme (Sofa Grooves), Vol. 2 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796442.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798019.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Guy Goldstone - Please Full - Deepfully Mix
-02. Carl Kennedy - Skank Henz - King Size's Cool Groove
-03. Claude Roberts - Ready for the Trip - Deephouse Mix
-04. George Deep - A Touch of Elegance - Pure Deep Mix(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:12:04
+01. Two Elements - Let's Start (Sun Rising Mix) (3:40)
+02. Marc Hartman - Into the Stone (Original Mix) (4:16)
+03. Worldtraveller - The Rory Glory Smokadelic Bloomdub (Living Room's Dubalicious Edit) (4:11)
+04. Peter Pearson - Chilled to the Heart (Original Mix) (4:34)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:26:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2BB9F230921F5DA82F609140A278B03CBBC118FC
+magnet:?xt=urn:btih:4283A2228553D6010E51B02AB17AEA48D33C6B89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011620   (796441) от 28.04.2016
+###  Публикация: 1508123   (798018) от 07.11.2021
 
-VA - Dance Map, Electro Stops Vol.3 (2016) [MP3|320 кб/с] <House, Progressve House>
+VA - Bar Essentials, Vol. 2 (2019) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Electronic
->>House
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796441.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798018.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fuji -  Burn  6:39
-02. KountDown Project -  Moon Bass  7:56
-03. Sello -  Such as More  7:25
-04. DJ Afreek -  Orgasmo  6:30(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 02:02:22
+01. Vovich, Sexy Girl - Don t Break my Heart (Victor Vine Remix) (3:19)
+02. The Groover - Show Me (Playa D'en Bossa Edit Mix) (4:02)
+03. King Bizza Keys - Ticket to Europe (5:54)
+04. Monodeluxe - Playa del Sol (5:12)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F78ECD807F9B493B94EDC8E91BFDA070E353B8B
+magnet:?xt=urn:btih:3BCCB014A4F1A078EDCBE78B64925A8764C91CC6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,28 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011608   (796440) от 28.04.2016
+###  Публикация: 1508124   (798017) от 07.11.2021
 
-VA - Club Music Junior Union (2016) [MP3|320 кб/с] <House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, Soulful>
+VA - Bar Essentials, Vol. 3 (2020) [AAC|~300 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796440.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798017.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fabtrap - Your Love 03:35
-02. Bali Bandits - Mr. Meow (Extended Mix) 03:51
-03. Bobby Puma Feat. Katt Rockell - Deeper Than Love (Extended Mix) 04:29
-04. Felix Leiter - Just Can't Dance No More (Original Mix) 04:58(   Читать дальше...   )Жанр: House, Electro, Tech, Funky, Tribal, Progressive, Bigroom, SoulfulПродолжительность: 07:20:49
+01. Area Code 51 - Hurt Again (3:14)
+02. Charles Edison - Find You (3:18)
+03. Peter Pearson - Distant Waves (4:38)
+04. The Soul Crusaders - Open Sea (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4556B1F12D2E942077C36BE3CA50E7640C16CD7
+magnet:?xt=urn:btih:2694935749C0357E44FA79D2BCCDD7D2088F8EE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -201,27 +195,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011627   (796439) от 28.04.2016
+###  Публикация: 1508196   (798016) от 07.11.2021
 
-Metadatics 1.5.6 [En]
+VA - Chilling Winter Best Playlist (2021) [AAC|~307 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aktnuance - Beautiful Beginning (5:53)
+02. Habermohl - An Immense Feeling (5:44)
+03. Performative Mode - Morning Air (6:24)
+04. Cesar Martinez Ensemble - Sol y Sombra (5:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:476D92F955DBC2EE18464B45BC943248E9A6C399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508132   (798015) от 07.11.2021
+
+VA - Beach Grooves Maretimo, Vol. 3 - House & Chill Sounds to Groove and Relax (2020) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Kinley - I Got the Feeling (Rock da Pool Cut) (6:32)
+02. Adriatic Grooves - Ibiza Overflight (Vibes & Bytes Mix) (6:14)
+03. Pascal Dubois - House on the Beach (Chillers Mix) (4:36)
+04. Groove Gauchos - Conga Morena (Latin Bossa Cut) (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F50061E9897060F34E980775FBD00CD3F1DCE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508127   (798014) от 07.11.2021
+
+VA - Bar Essentials, Vol. 4 (2021) [AAC|~322 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Room - Waikiki Beach Dreaming (2:10)
+02. Roberto Bronco - Monkeys (4:51)
+03. Pier-O - Humble Bumblebee (5:38)
+04. Chillson - Pappas do Pappas Don t (4:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B4B61F77A866964FF999F6B3497972E88FEE6E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508307   (798013) от 07.11.2021
+
+SiteSucker Pro 4.2 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796439.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798013.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Metadatics является мощным и продвинутым редактором аудио метаданных. Поддерживает пакетное редактирование наиболее распространенных типов аудио файлов, включая MP3, M4A, AIFF, WAV, FLAC, APE, OGG, WMA, и многие другие.
-
-Metadatics предоставляет возможности поиска метаданных из интернет-источников, переименование файлов на основе метаданных, или манипулировать метаданными, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 апреля 2016Разработчик: Mark VerstraeteПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский
+SiteSucker Pro - это расширенная версия SiteSucker, которая может загружать встроенные видео, включая встроенные видео YouTube и Vimeo. Вы можете загружать более 100 файлов за раз.Тип издания: macOS SoftwareРелиз состоялся: 06.11.2021Разработчик: Richard CraniskyПоддерживаемая ОС: macOS 11.1 +Язык интерфейса: Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:733EE3902448E015C2D0F781B57BCFA1AFF4749C
+magnet:?xt=urn:btih:BABB0110B1AFD44E2A444DF5A9C539073DD8C8F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,25 +308,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011726   (796438) от 28.04.2016
+###  Публикация: 1508137   (798012) от 07.11.2021
 
-Время покажет с Петром Толстым (28.04.2016) SATRip
+VA - Lounge Theme (Sofa Grooves), Vol. 1 (2021) [AAC|~309 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jane Maximova - Puppets (Original Mix) (4:58)
+02. Velvet Dreamer, Tim Gelo, Mike Tourne - No More Tears (Original Mix) (5:00)
+03. FIN Project - Mind Travel (Original Mix) (5:41)
+04. Weber - The Meaning (Original Mix) (4:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D518C0257754CB6EE3448AF207F0255A1229BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508177   (798011) от 07.11.2021
+
+Screen Wonders 1.9.3 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798011.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В студии программы «Время покажет» обсуждают то, что волнует каждого из нас, жителей России. В дискуссии принимают участие как эксперты – политики, политологи, журналисты, предприниматели, так и просто неравнодушные россияне.Телекомпания: Первый каналЖанр: Тв-ШоуПродолжительность: 01:36:00
+Если вам надоели неподвижные картинки на рабочем столе, если вы готовы приветствовать волшебство разных мест по всему миру и даже параллельных вселенных, мы собрали лучшие живые обои в этом приложении. Вам обязательно придется по душе разнообразие тем, времен года и праздничных сцен и это все - Screen Wonders.
+Говорят, красота требует жертв, но вам не о чем беспокоиться, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.10.2021Разработчик: 3PlanesoftПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED8D37139A5C1BC22FF80A372FEC56F9BBCC5272
+magnet:?xt=urn:btih:CF17FCF5EE397EE702289918590CDEB296432952
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -255,28 +364,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011537   (796437) от 28.04.2016
+###  Публикация: 1508131   (798010) от 07.11.2021
 
-Футбол. Лига Чемпионов 2015-2016. 1/2 финала. Первый матч. Атлетико (Мадрид, Испания) - Бавария (Германия). (27.04.2016) HDTVRip [H.264/720p-LQ]
+VA - Beach Grooves Maretimo, Vol. 2 - House & Chill Sounds to Groove and Relax (2019) [AAC|~326 Kbps] <Lounge, Chill Out, Chill House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Maretimo - Costa Balear (The Beachfloor Cut) (5:42)
+02. Poolwave - African Market (Jazzman´s Cut) (6:11)
+03. Airstream - Back in Time (The Golden Beach Cut) (6:54)
+04. Pascal Dubois - Send Me Away (The Chillhouse Mix) (4:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D05CC0F954E46C12B7F38111DFA07BF4058DB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508194   (798009) от 07.11.2021
+
+VisualDiffer 1.8.3 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-27 апреля 2016, среда. 21:45 МСК
-1/2 финала. 1-й матч
-
-Стадион: Висенте Кальдерон (Мадрид, Испания) , 52 127 зрителей (95 % при вместимости 54 960)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Роман Гутцайт, Нобель Арустамян) / ИнтершумПродолжительность: 01:52:13
+VisualDiffer сравнивает бок-о-бок папки и файлы с помощью цвета, чтобы визуально показать различия. Из интерфейса можно выполнять операции с папками и файлами, такие как копирование или удаление.
+Это можно сравнить с быстрым выбором базы каталогов папки из контекстного меню. Использование фильтра файлов особенностью является возможность скрыть от визуализации конкретных (   Читать дальше...   )Тип издания: macOS X SoftwareРелиз состоялся: 07.11.2021Разработчик: © 2021 Davide FicanoПоддерживаемая ОС: macOS X 10.12 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:744264D086DB7C4C06595DDB947CCE19C3965A5A
+magnet:?xt=urn:btih:580FD98EFA89FD1C66FFB3713DAC1EDC896641DE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -284,25 +420,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011829   (796436) от 28.04.2016
+###  Публикация: 1508133   (798008) от 07.11.2021
 
-В теме. Эффект Бумеранга (28.04.2016) SATRip
+VA - Beach Grooves Maretimo, Vol. 4 - House & Chill Sounds to Groove and Relax (2021) [AAC|~323 Kbps] <Lounge, Chill Out, Chill House>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798008.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ряд стран ЕС выступил за снятие антироссийских санкций. Прислушаются ли ко мнению несогласных Германия и другие страны, определяющие курс ЕС? Об этом смотрите в программе "В теме"Телекомпания: Москва 24Жанр: ДокументальныйПродолжительность: 00:26:00
+01. Airstream, Phil Kinley - Coffee Bar (Sunnys Pool Mix) (4:50)
+02. DJ Maretimo, Vladi Strecker - Rio (Take Me on Mix) (5:31)
+03. Cinematic - Sunset Love (The Funky Light Mix) (4:32)
+04. Jazzy James Jr. - Get on Funky (Cosmo Cut) (4:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 01:45:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6DE96168EFF159F1787F4D935CFB501D16BCE8BA
+magnet:?xt=urn:btih:83D4F2CCAAB6EDEB7AA9C96ACBBCDE50482B803F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -310,25 +449,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011826   (796435) от 28.04.2016
+###  Публикация: 1508121   (798007) от 07.11.2021
 
-Вести в 20-00. Большие Вести. Россия 1 (28.04.2016) SATRip
+VA - Bar Essentials, Vol. 1 (2018) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Документалистика и Телепередачи
->>Тележурналистика
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796435.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире - смотрите в последних выпусках новостей телеканала «Россия».В этом выпуске: Поехали! Наши ворота в космос распахнуты. 3 спутника на орбите. На Восточном за секунды до старта и сразу же после него. Павел Зарубин заглянул после запуска в шахту. Первый в ЕС. Французский парламент потребовал отменить антироссийские санкции. Что скажут в Брюсселе? Город сдан. К годовщине сожжения собственных граждан украинские власти ввели в Одессу фашистский (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:51:00
+01. Bes & Meret - Love Yourself (5:47)
+02. Tom Appl - Arabian Rose (Radio Cut) (3:40)
+03. Ralf Harris - I Get It (4:49)
+04. Buben - Point in History (5:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:03:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AFC3DDA33434B8A355B4DDB8FA9FE7266FDD0CFA
+magnet:?xt=urn:btih:CA2C19C8AD996554CE0E15A259F996B5E8D56214
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,28 +478,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011741   (796434) от 28.04.2016
+###  Публикация: 1508219   (798006) от 07.11.2021
 
-VA - Sexy Deep House Tracks (2016) [MP3|320 кб/с] <Deep House>
+File Juicer 4.96 [Multi/Ru]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796434.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798006.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hairy Orchard - Bad Teen (Houzee Mix)
-02. Delirious Bird - Seven up Confusion (Vocal Deep Mix)
-03. Audrey Langston - Another Day in the Lake (Frank Castle's Deep Mix)
-04. Harry Ashton - Bye Bye Mivar (Martin Franklin Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:40:26
+File Juicer - уникальная утилита, позволяющая извлекать мультимедийные документы, вложенные в другие файлы. Утилита находит и извлекает изображения, видеоролики, звуки и текст следующих форматов: PNG, PDF, JPEG, JP2, GIF, BMP, WMF, EMF, PICT, TIFF, Flash, Zip, MOV, WAV, MP3, HTML, AVI , MPG, WMV, MP4, AU, AIFF или текстовые файлы.
+File Juicer может быть использован (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04.11.2021Разработчик: Echo OneПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2EBDEE5B21C30FF42A11332E86001C87D7FA55B3
+magnet:?xt=urn:btih:F8F00F3C49F1F571EBDE2F67E9C22F0878863210
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -365,28 +505,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011601   (796433) от 28.04.2016
+###  Публикация: 1508297   (798005) от 07.11.2021
 
-VA - Metal For The Masses 7th Deadly (2008) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Hardcore>
+Коко выводит цыплят / Koko Gets Egg-Cited (1926) WEBRip
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 20-го века (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798005.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коко решил заняться птицеводством. Ну, там курочки, яички всякие. Инкубатор конечно же. Только он ведь клоун. Вот у него все и получается по-клоунскиПроизводство: США, Out of the Inkwell FilmsЖанр: Рисованная анимацияРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E7446D9489A25BFDB7BC84AE4CCAE53995FDCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508329   (798004) от 07.11.2021
+
+Stormbreaker - Strike The Match (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD 1 01
-01. In This Moment - The Great Divide (4:13)
-02. Suicide Silence - No Pity for a Coward (live) (3:16)
-03. Arsonists Get All the Girls - Scobra Vs. Cupcake: The Battle of the Bulge (4:02)(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, HardcoreПродолжительность: 02:28:46
+01. Standing On The Edge
+02. The Voice Inside
+03. Never Again
+04. Give In To Me(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:46:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5B206BD549DD63FC2B6D7FD1EAE00183DB68CFB0
+magnet:?xt=urn:btih:42C147DD11A8BFDFD111ACFFF7FDC702690AB52C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -394,25 +560,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011239   (796432) от 28.04.2016
+###  Публикация: 1508135   (798003) от 07.11.2021
 
-Графеновые микроботы могут очистить воду от токсичных соединений и тяжелых металлов
+VA - Ski Resort Best Lounge Music Playlist (2021) [AAC|~292 Kbps] <Lounge, Chill Out>
 
->>Поговорим
->>DailyTechInfo
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_796432.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Многие из процессов, используемых людьми в настоящее время, являются источниками загрязнения окружающей среды. При производстве солнечных и аккумуляторных батарей, электронных устройств и многого другого в воду и почву выбрасывается достаточно большое количество тяжелых металлов, таких, как свинец, мышьяк, ртуть, кадмий и хром, которые образуют соединения, неблагоприятные, (   Читать дальше...   )
+01. Aktnuance - Beautiful Beginning (5:53)
+02. Habermohl - An Immense Feeling (5:44)
+03. Kalokagathia Union - Ascending Mind (6:00)
+04. Performative Mode - Morning Air (6:24)(   Читать дальше...   )Жанр: Lounge, Chill OutПродолжительность: 01:46:20
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:B276153419C9BFF41901556B53333F742C5E0706
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -420,28 +589,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011730   (796431) от 28.04.2016
+###  Публикация: 1508129   (798002) от 07.11.2021
 
-VA - Club Vibes: European EDM Mix (2016) [MP3|320 кб/с] <Trance, Electro, Dance, EDM>
+VA - Beach Grooves Maretimo, Vol. 1 - House & Chill Sounds to Groove and Relax (2018) [AAC|~324 Kbps] <Lounge, Chill Out, Chill House>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796431.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Chase, Sunlounger, Roger Shah - Surrender feat. Chase (Pierre Pienaar Remix)
-002. Robin Schulz - Sugar
-003. Felix Jaehn - Eagle Eyes (Lucas & Steve Remix) ( feat. Lost Frequencies & Linying)
-004. Jordi Castillo - Darth (Original Mix)(   Читать дальше...   )Жанр: Trance, Electro, Dance, EDMПродолжительность: 08:15:11
+01. Phil Kinley - Partylife (Glitterpool Cut) (6:45)
+02. Housework - Culture Vibes (Drumflow Cut) (6:12)
+03. Clublife - Different Things (Poolside Mix) (6:17)
+04. Poolwave - Seaside (Laid Back Waves Cut) (5:36)(   Читать дальше...   )Жанр: Lounge, Chill Out, Chill HouseПродолжительность: 05:47:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D92D62A8E3C06CB98A2A38886C2164755577CCCA
+magnet:?xt=urn:btih:CFE662F83AA63C7B8A27604721A8FFECE1B0376C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -449,216 +618,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011386   (796430) от 28.04.2016
+###  Публикация: 1508150   (798001) от 07.11.2021
 
-Короли без капусты (2009) DVB
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796430.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1959 году на волне хрущевской оттепели и Первого фестиваля молодежи и студентов в Москве появилось совершенно дикое для того времени явление – черный валютный рынок. В июле 1961 года ВС РСФСР приговорил "королей" черного валютного рынка к высшей мере наказания – расстрелу. Что предшествовало громким приговорам? Кто были эти люди?Телекомпания: Россия, ТВ ЦентрЖанр: ДокументальныйРежиссер: Наталия МитрошинаПродолжительность: 00:38:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FE9A4CE7E76C36727877B75BD47C9BDD9E0A4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011610   (796429) от 28.04.2016
-
-Газета | Поварешка №7 (2016) [PDF]
-
->>Журналы
->>Кулинарные журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796429.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выпуск поможет хозяюшкам подготовится к светлому празднику всех христиан - Пасхе, а именно с составлением праздничного меню: определиться в огромном количестве вариантов с рецептом "своего" кулича, сырной пасхи или другой пасхальной выпечки. В издании вы найдете не только рецепты самой разной выпечки, но и секреты приготовления пасок, узнаете о традициях (   Читать дальше...   )Жанр: КулинарияФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00C4F6C63E0DAC4E14C57C6EB9896A6896994332
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200376   (796428) от 20.01.2018
-
-Cyberfox 52.6.0 for AMD + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из лучших версий веб-браузера Firefox, имеющая 64-разрядную архитектуру, что делает ее быстрее, надежнее и стабильнее. Cyberfox использует Windows 8 SDK и оптимизирован под процессоры AMD. Браузер поддерживает дополнения и работает со своим профилем, отдельным от Firefox - это дает возможность использовать собственные закладки и историю.Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3187E4C47A5C698696258110DB4C1C48F56307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200459   (796427) от 20.01.2018
-
-Primal Code - Konstrukt 008 (2018) Konstrukt [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artemisia (07:06)
- 02. Allysum (05:51)
- 03. Acaulis (05:58)
- 04. Alpine Violet (07:08)Жанр: Techno, AmbientПродолжительность: 00:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7FC2FB1300D5C71C67F3475DBD77A9A000FFF00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200368   (796426) от 20.01.2018
-
-CoolUtils PDF Combine 5.1.0.115 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796426.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Combine - надежный инструмент и незаменимая программа для быстрого склеивания нескольких файлов PDF в один. Утилита работает с любыми типами PDF файлов очень быстро и качественно, что позволяет в считанные секунды получить нужный нам результат. Результат работы всегда точен и аккуратен, что важно для инвойсов, контрактов, банковских указов и других документов. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB218B2D255C723F06887F5579AC7BD1887399A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200481   (796425) от 20.01.2018
-
-VA - The Official UK Top 40 Singles Chart 19.01.2018 [MP3|320 Kbps] <Electropop, Alternative, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eminem - River (Feat. Ed Sheeran) 3:41
-02. Ramz - Barking 3:21
-03. Ed Sheeran - Perfect 4:23
-04. Clean Bandit - I Miss You (Feat. Julia Michaels) 3:26(   Читать дальше...   )Жанр: Electropop, Alternative, OtherПродолжительность: 02:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63B0DCE9FB960A70D5C8C6B9793529E78359478B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200284   (796424) от 20.01.2018
-
-VA - Dance Hits (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796424.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: HouseПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66998614DB3904FB7C64A0974017B354297AA56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200288   (796423) от 20.01.2018
-
-David Gogo - Soul-Bender (2011) [MP3|320 Kbps] <Blues Rock>
+Joe Henderson - The Complete Blue Note Studio Sessions (1963 - 1967) 5CD, 2021, Mosaic Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796423.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Please Find My Baby (03:34)
-02. Slow It Down (04:01)
-03. Was It Love (03:24)
-04. Time Is Killing Me (05:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:28
+CD1:
+01. Una Mas (One More Time) [15:19]
+02. Straight Ahead [8:58]
+03. Sao Paulo [7:20](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 06:10:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8B0AC39EF57600BABE4FC5F032C1B0D7CA707F43
+magnet:?xt=urn:btih:A48810A48C9B88542DD7E283DE302AF0B6F07C0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,25 +647,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200058   (796422) от 20.01.2018
+###  Публикация: 1508207   (798000) от 07.11.2021
 
-Н. Н. Михайлов и др. (сост.) | Беседы об общественном и государственном устройстве СССР [2-е изд.] (1948) [DJVU]
+Гидеон Стерер | Ночные рыцари (2019) [PDF]
 
->>Научная и техническая литература
->>Историческая литература
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга «Беседы об общественном и государственном устройстве СССР» (второе, переработанное и дополненное издание) предназначена для комсомольских политкружков по изучению основ общественного и государственного устройства СССР и Устава ВЛКСМ. Она является учебным пособием при прохождении соответствующего раздела программы этих кружков. Книга рассчитана в первую очередь (   Читать дальше...   )Жанр: История, политология, экономика, правоведение, культурология, искусствоФормат: DJVU
+Красивая и атмосферная сказка о том, что ночью не надо бояться чудищ, ведь ночные рыцари всегда начеку.
+Книга начинается с заката: солнце садится, и мальчик волн волнуется из-за наступления темноты, призывая ночных рыцарей. Каждый дом превращается в замок, на страже которого встают смелые рыцари, лучники, капитаны и волшебные существа. У них одна цель — защитить (   Читать дальше...   )Жанр: Детская литература/СказкаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96C41188C7E92A2C612CB2090681F4C6F0D44F5E
+magnet:?xt=urn:btih:89D46A6EC1FB575B4767279B440259B60D1297CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,25 +674,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200271   (796421) от 20.01.2018
+###  Публикация: 1508202   (797999) от 07.11.2021
 
-Газета | 1000 секретов [Украина] №1 (январь 2018) [PDF]
+Сто к одному (07.11.2021) WEBRip [H.264/1080p-LQ]
 
->>Журналы
->>Домоводство (журналы)
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«1000 секретов» - это полная энциклопедия домашнего хозяйства, в которой можно найти советы на все случаи жизни: по обустройству квартиры, по уходу за собой и растениями, о взаимоотношениях в семье, кулинарные рецепты и схемы вязания, а также многие другие. Перед вами издание, которое не только собирает по крупицам народную мудрость, но и дает возможность каждому (   Читать дальше...   )Жанр: Народные советыФормат: PDF
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF3910B6795623370C5F5BBFE9F9B372DEC272D9
+magnet:?xt=urn:btih:C754470FAF8E3148A601175543B51CCD65BD0C87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508323   (797998) от 07.11.2021
+
+Dangerous Curves - Summertime Highs (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Those Eyes
+02. My Oh My (Get What You Need)
+03. I Like it
+04. Good And The Bad(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A171CFC1BF1E001DB3E943630EDD53469306E7B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

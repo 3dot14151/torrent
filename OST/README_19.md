@@ -1,3 +1,64 @@
+###  Публикация: 580404   (342465) от 25.11.2012
+
+Jack Wall & Trent Reznor - Call of Duty: Black Ops II (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 01:12:25
+26. Symphony No. 40 in Gminor, K550 (Allegro Molto) (8:37)
+27. Dockside (2:48)
+28. Go Home Gringos (1:59)
+29. The Invasion of Panama (1:47)
+30. Nexus Target (1:41)
+31. Panic Attack / P.T.S.D. (1:43)
+32. Cordis Die (2:29)
+33. Farid (6:10)
+34. Mason Enters / Yemenite Fight (2:48)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8FD26E3DD2706D31F4CA8950DF9D8CAD96872A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580499   (342036) от 25.11.2012
+
+Сумерки. Сага. Рассвет: Часть 2 - The Twilight Saga: Breaking Dawn - Part 2 (2012) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342036.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ScoreПродолжительность: 01:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95CED7840C080661537127A26D01C9249CA09051
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1074023   (340434) от 18.11.2016
 
 James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
@@ -696,70 +757,6 @@ VA - Xmas Jukebox 2016 (2016) [MP3|320 Kbps] <Soundtracks>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5C48070B7CB8E4258784C7DFDB7A330C3FAFC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582511   (312776) от 02.12.2012
-
-Патруль / End of Watch (2012) [MP3|320 кб/с]<OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Public Enemy -  Harder Than You Think
-02 David Sardy -  I Am The Police
-03 David Sardy -  My Evil Is Big
-04 The Delfonics -  Hey! Love
-05 David Sardy -  Follow Me Into The House
-06 David Sardy -  Heroes
-07 David Sardy -  Hold The Baby - You Can't Live Without Her
-08 The Latin Rascals -  Lisa's Coming
-09 David Sardy -  Take Care Of Janet
-10 David Sardy -  Minivan Tail(   Читать дальше...   )Жанр: OSTПродолжительность: 00:36:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:802C7C1F6C156936904EAF63B198044C9B01A7B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182841   (312206) от 12.11.2017
-
-VA - Disco Dancer (OST Танцор диско) (1982) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312206.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Vijay & Chorus - I Am A Disco Dancer  7:51
-02.  Parvati Khan - Jimmy Jimmy Jimmy Aaja  3:04
-03.  Usha Uthup, Bappi Lahiri & Chorus - Auva Auva Koi Yahan Nache  5:24
-04.  Kishore Kumar & Chorus - Ae Oh Aa Zara Mudke  5:47(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7B8044B4230C3CFF01BD812999E0AB9B4A8A9A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,121 @@
+###  Публикация: 1454504   (1026166) от 15.03.2021
+
+VA - Pop Remix (2021) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Evans, 220 KID, Billen Ted - Wellerman (Sea Shanty 220 KID x Billen Ted Remix) (1:56)
+02. Weird Genius, Sara Fajira, R3HAB - LATHI (R3HAB Remix]) (2:03)
+03. Hot Chip, Dillon Francis, Jarvis Cocker - Straight To The Morning (Dillon Francis vs. Hot Chip Remix) (2:22)
+04. Koosen, Strange Fruits Music - Mood (2:24)(   Читать дальше...   )Жанр: PopПродолжительность: 02:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44839DDE3242CDE35CB2D17961C72757B3384716
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456061   (1025298) от 21.03.2021
+
+VA - German Top 100 Single Charts 19.03.2021 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nathan Evans - Wellerman (Sea Shanty / 220 KID x Billen Ted Remix)
+02. Bausa & Apache 207 - Madonna
+03. Tiësto - The Business
+04. Masked Wolf - Astronaut In The Ocean(   Читать дальше...   )Жанр: PopПродолжительность: 04:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F8202B7AEA59838B4069E9266EDDB8DB874C06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456357   (1025111) от 22.03.2021
+
+VA - Welcome To Spring (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025111.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличная подборка поп музыки от европейских исполнителей, завёрнутая в весеннюю обертку солнечного позитива! Вы легко сможете подобрать для себя самые любимые треки, а также отсортировать, что и когда слушать: под хорошее настроение, солнечную погоду, веселую вечеринку дома, для пробежек или за рулём своего автомобиля.001. Little Mix - Break Up Song
+002. Baby Queen - Raw Thoughts
+003. Itzy - Wannabe
+004. Koda Kumi - I'm Lovin'(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:172C4F64A7DC3A4EC4BF1F8C149ED58D37CBA12F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1457300   (1024510) от 25.03.2021
+
+Юрий Антонов - Лучшее (1973-1991) от DON Music (2021) [MP3|320 Kbps] <Pop, Retro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неофициальный сборник.
+Только для ознакомления с самыми лучшими песнями
+Юрия Михайловичав авторском исполнении.01 У берез и сосен (1973)
+02 Нет, не я (1975)
+03 Несёт меня течение (1975)
+04 Отчего (1975)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 02:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9268E3CF43DAAF04FF7C0C5D9EB86D2938BB774
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458326   (1023814) от 29.03.2021
 
 VA - National Pop Dance Music (Vol.14) (2021) [MP3|320 Kbps] <Pop, Dance>
@@ -626,122 +744,6 @@ VA - Gold Italian Hits (2021) [MP3|320 Kbps] <Pop, Italian Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:971E11FD3202CEFC6F98F38AF1270E41E95FE178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468298   (1017202) от 07.05.2021
-
-VA - Soft Pop Hits 1 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Arthur, Anne-Marie - Rewrite The Stars (3:38)
-02. Hozier - Take Me to Church (4:01)
-03. Avril Lavigne - Head Above Water (3:40)
-04. John Mayer - Waiting On the World to Change (3:20)(   Читать дальше...   )Жанр: PopПродолжительность: 04:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38DB1D9E0FF17DD47B1D52C68EA0DCA8EC06451F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468750   (1016733) от 10.05.2021
-
-VA - Soft Pop Hits 2 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoobastank - The Reason (3:53)
-02. Matchbox Twenty - If You're Gone (4:34)
-03. Macy Gray - I Try (3:51)
-04. Bruno Mars - The Lazy Song (3:10)(   Читать дальше...   )Жанр: PopПродолжительность: 04:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A1128360FA36296B92BB81634DF70F6F6A8676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1468974   (1016706) от 10.05.2021
-
-VA - Новички в попсе Vol 8 (2021) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MAKF - Все мои здесь (2:56)
-02. Koles, Paha - Звездопад (2:50)
-03. Lima Osta - Без тепла (3:06)
-04. Luverance - Где я (3:27)(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9908B8F8FEBD8D06E10C75533D0F65716ACCC5C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1469321   (1016531) от 11.05.2021
-
-VA - 100 Hits Remixed (2021) [MP3|~245 Kbps (V0)] <Disco, Dance, House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016531.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adam van Hammer - Self Control (Radio Edit) (3:10)
-002. Aurora feat. Lizzy Pattinson - Summer Son (Radio Edit) (3:28)
-003. Dirty Disco - I Feel Dirty (Space City Remix) (6:35)
-004. Eiffel 65 - Move Your Body (D.J.Gabry Ponte Original Radio Edit) (4:29)(   Читать дальше...   )Жанр: Disco, Dance, HouseПродолжительность: 08:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5686BD3663C4577A5FE1609EB8C20E79CD45C47
 ```
 
 https://mybot314.ru/tekegram_catalog/

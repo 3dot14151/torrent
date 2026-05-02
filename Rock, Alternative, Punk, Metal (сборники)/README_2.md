@@ -1,3 +1,61 @@
+###  Публикация: 1616321   (1036147) от 03.03.2023
+
+VA - Impressive Sound 2022.2: Volume VI (2022) [MP3|320 Kbps] <Hardcore, metalcore, mathcore>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036147.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ithaca - The Future Says Thank You
+02. End - Eden Will Drown
+03. Amongst The Giants - Adversary
+04. Glassing - Sulk(   Читать дальше...   )Жанр: Hardcore, metalcore, mathcore, deathcore, post-hardcore, grindcoreПродолжительность: 01:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972D663CB678B3E1827986437AB74725745CDD2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444849   (1034202) от 03.02.2021
+
+VA - Prog Metal Rock Compilation (2021) 2xCD [MP3|320 Kbps] <Progressive Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034202.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+ 01. Maestrick - Origami (05:36)
+ 02. Pyramid Theorem - Closer to the End (07:11)
+ 03. Glasswork - Blackspot (06:07)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 02:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A9DF365622008048AA023AAE0DC20D0B25B15B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444782   (1034201) от 03.02.2021
 
 VA - Size Of My Heart (2021) [MP3|320 Kbps] <Rock>
@@ -684,64 +742,6 @@ Gary Eisenbraun - Kings Of Modern Rock (2003-2020) (2021) [MP3|320 Kbps] <Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:596AF243061A4A3E80DD2EEE7854B5E390A25A2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461864   (1021507) от 11.04.2021
-
-VA - Новинки русского рока (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021507.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Animal Джаz - Бессимптомно (3:24)
-02. Сплин - Вирус (4:39)
-03. Земфира - Ок (4:04)
-04. Северный Флот - Мой гори огонь (5:07)(   Читать дальше...   )Жанр: RockПродолжительность: 02:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E01ED8D1205884E9DE0AEE3DA81719925A6C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462588   (1020971) от 15.04.2021
-
-VA - Rock Music 2 (2021) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вадим Спирихин - Все мосты сожжены (4:51)
-02. ДМЦ feat. Йорш - Прости Не Помню (2:48)
-03. Zayde Wolf - Back At It (3:16)
-04. Наконечный & Растич - Сердце (4:24)(   Читать дальше...   )Жанр: RockПродолжительность: 05:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75857C9F889DBDF5436CC9A5E74374548CFE7A67
 ```
 
 https://mybot314.ru/tekegram_catalog/

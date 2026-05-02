@@ -1,3 +1,32 @@
+###  Публикация: 1320040   (475189) от 16.08.2019
+
+Sniff 'n' the Tears - 8 Studio Albums (1978-2017) CD [MP3|320 Kbps] <Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа «Sniff 'n' the Tears» была организована Полом Робертсом в Великобритании в 1977 г. Первый состав группы: Пол Робертс (вокал, гитара), Лоз Нетто (гитара), Мик Дайче (гитара), Крис Биркин (бас), Луиджи Сальвони (барабаны), Алан Фиэлдман (клавиши). В этом составе (плюс прилашенный клавишник Кейт Миллер) в 1978 г. был записан сингл «Driver s Seat», моментально (   Читать дальше...   )Список альбомов:
+1978 - Fickle Heart
+1980 - The Games Up
+1981 - Love Action(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 06:22:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0E4ED53093646531CF60F9C5B56433CB57A5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1320102   (475185) от 16.08.2019
 
 Paul Vincent - L.O.V.E. (2015) 4xCD Box Set [MP3|320 Kbps] <Classic Rock, Blues Rock, Blues>
@@ -730,35 +759,6 @@ Colombo-Harris - Astrolympix (1980) LP [MP3|320 Kbps] <Space Rock, Pop Rock, Pro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CF64DA45F645A9A06AC7A734FE32162EAD73823
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059410   (461834) от 04.10.2016
-
-Van Morrison - Keep Me Singing (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Rhyme
-02. Every Time I See A River
-03. Keep Me Singing
-04. Out In The Cold Again(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8426D9B4D0F08B21FCD0F988FA5BBEA39DEC75AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

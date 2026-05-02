@@ -1,3 +1,212 @@
+###  Публикация: 973157   (980200) от 08.01.2016
+
+VA - Deep Insane Sensation Vol 1 (2016) [MP3|320 кб/с] <Deep House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980200.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. De Morais - We All Fall Down (07:03)
+02. Hyzan - Booty (08:45)
+03. Hyzan - So Icey (07:18)
+04. OTTOO - Growl (06:49)(   Читать дальше...   )Производство: Deep InsaneЖанр: Deep House, Club HouseПродолжительность: 01:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4DD738E14EBE7AEAAEC8F1CEF06AB757A82DD42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356466   (979118) от 30.01.2020
+
+VA - Chic & Shock (House Music Selection 2020) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979118.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. House Boyzz - Now Baby Com (Boyzz Mix) 3:03
+2. Carl Carlton - I'll Wait Here (Deep Cut Mix) 3:07
+3. Piet Lorrigan - Baja Buggys (Root Mix) 2:59
+4. Paul Sandemann - Do It Yourself (Diy Edit) 2:58(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:16:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA1F2571268888711DCBDEF986A6D9C234EA816F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974010   (978179) от 10.01.2016
+
+VA - The Sounds Of The Night (2016) [MP3|320 кб/с] <Club, Future House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calabria – Ufo (Club Mix)
+02. Admiral Bob – Free Music And Free Beer (Serobeat Club Remix)
+03. Randy Norton Vs. Angelique – I’m Your Baby (Extended Commercial Mix)
+04. T & G Factory – Feel The Bounce(   Читать дальше...   )Жанр: Club, Future House, ElectroПродолжительность: 02:24:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B632BE297B60E9DE37A7F64CD403DC9AFB3BA8D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 614510   (976894) от 09.02.2013
+
+B'utiza - B'utiza (2013) [MP3|320 кб/с]<Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. S'momondiya
+02. Baphuma Ezulwini
+03. Somandla (Original Mix)
+04. Mshini Wam (Chris Sen Remix)
+05. Emaweni
+06. Ungi'shaya Ngaphakathi
+07. Uthando Lwakho
+08. Zinhle Intombi
+09. Idlozi
+10. Ziyawa (Original Mix)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B9A70730EEC0830BF7F27A28C2A44C31ADA7E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974512   (975682) от 12.01.2016
+
+VA - Deep Club Sounds, Vol. 1 (2016) [MP3|320 кб/с] <House, Club House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dennis Booka. Neal Porter - Hide Your Soul (Teenage Mutants Remix) (06:39)
+02. Benn Finn - Beautiful Instant (Beatamines Remix) (07:21)
+03. Marga Sol - Find Yourself (07:01)
+04. Mia Lemar - Squire Of Desire (Leon Rodt Remix) (07:06)(   Читать дальше...   )Производство: KarmablackЖанр: House, Club House, Deep HouseПродолжительность: 02:21:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF229C8F946C90BEB5F465F4536829AC3720F222
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356643   (975613) от 02.02.2020
+
+VA - Workout Women (2020) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.Ale B - Raid the Radio (6:24)
+2.Rossetti Matteo - Space Age (4:52)
+3.Andy Well - Neblina Del Verano (5:02)
+4.Supernocs - Chorando (4:03)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:03:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB3040807069F95EBD072FD4AAC276A6805AA05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356595   (975611) от 02.02.2020
+
+VA - Hit Sexy Groove (2020) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975611.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.One Track - Happiness (Happy Cut) (3:02)
+2.Piccadilly House Groove - London Beat (Piccadilly House Systems Remix) (3:16)
+3.Frankie Gada - Negrita (Original Mix) (5:57)
+4.Peter Gregersen - Tribal Jungle (Tribaland Mix) (3:04)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:20:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67A09678CC89214CA6B155330C76A5599FBC9E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356712   (975543) от 02.02.2020
 
 VA - Hot Ibiza Groove (2020) [MP3|320 Kbps] <House>
@@ -561,209 +770,6 @@ VA - Welcome 2017  [MP3|320 Kbps] <Funky, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35371969C4DAF87C521951F0716BF1C84213C906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088935   (955163) от 01.01.2017
-
-VA - Next Destination: Summer Chill-Out (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955163.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Loveliness 05:36
-02. Zero Feedback - Rien Ne Va Plus (Don Gorda Project remix) 06:59
-03. Enrico Donner - Yearning for More 05:25
-04. Joop & Aurelio - Macaracas 05:02(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:28:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A9B6BF67CB426D827D79207BCFC203C4C59987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088839   (955152) от 01.01.2017
-
-VA - The Best Running Beats 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suzie Kju - Baby! (Classic edit)
-02. Million Colours - I Hold On (radio edit)
-03. Cheap Sunglasses - Till The End (Endless mix)
-04. Ibiza Groove Squad - I Don't (DJ Absinth Fitness remix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:40:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F354D3FB8702D739658BA9C5AF0DAE67EC9617F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089207   (954005) от 02.01.2017
-
-VA - Syndicated Soul, Vol. 1 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kraak & Smaak - One of These Days (Balearic Soul Remix) 08:04
-02. Dominique Lucena - Cocktail d'amour 04:20
-03. Luca Guerrieri - Evolution X014 (Roberto Cavicchioni Remix) 04:32
-04. Adrian B - With You (Instrumental Mix) 10:50(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:15:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F719D43302A6C43E76551AD5D7996F338A06835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088997   (953885) от 02.01.2017
-
-VA - Best 10 Bigroom Dance Of The Year (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953885.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Cevelon - Neurotic (Original Mix) 02:54
-2. Manu3l - Tantrum (Igness Edit) 03:31
-3. Jozef - Aim High (Original Mix) 06:00
-4. Stan Castillo - Everybody Bounce (Original Mix) 04:31(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:988296D261D3190678FBCBF2BEDA503D2A474503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981198   (951462) от 01.02.2016
-
-VA - I Like to Move It (2016) [MP3|320 кб/с] <Dance, Club, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris & Simo - Avon
-02. Tim Shaft - Unstoppable
-03. Luke Carpenter - Breaking Away (Feat. Jonny Rose)
-04. Robyn The Bank - Collide (Mars2Mars Remix)(   Читать дальше...   )Жанр: Dance, Club, Electro HouseПродолжительность: 02:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CA2C4199544EDE453BD5D0085A3CCBA9F581A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1362200   (950996) от 22.02.2020
-
-VA - Touch Me with House (Sensual House Music Dance) (2020) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Carl Carlton - I'll Wait Here (Black Coffee Mix) 3:16
-02.Love Cascade - Six O┤nine (Universe & Dreams Mix) 4:20
-03.Godiva Street - What the Curate Really Did (Deep Love Mix) 3:32
-04.Cool Rhythms - The Force Beat (Maracuja Deep Mix) 3:21(   Читать дальше...   )Жанр: HouseПродолжительность: 01:33:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E13DA02862A2D6D5D9D638079BF6AB7B9CAC4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089271   (950760) от 04.01.2017
-
-VA - 6 Years Of CibiCaldi Records (2017) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sandro S - Just My Beat 07:53
-02. Sandro S, Mr Few - Walking On Hands 07:37
-03. Klaudio Greco - Italians Do It Better 05:50
-04. Sandro S - Reset Hall (Ozen Nouse) 07:33(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 04:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FF1242F61C1BFB26E6398D7DA4DE9E41B744EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

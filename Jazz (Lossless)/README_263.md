@@ -1,3 +1,61 @@
+###  Публикация: 1584130   (225620) от 18.10.2022
+
+Andre Previn & David Rose - Like Blue (1959) 2010, Hallmark [FLAC|Lossless|tracks + .cue] <Cool, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You and the Blues [2:46]
+02. The Blue Room [2:13]
+03. Serenade in Blue [3:09]
+04. Blue Holiday [2:23](   Читать дальше...   )Жанр: Cool, Easy ListeningПродолжительность: 00:33:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E196AA8BED0E85A62CDE8B2231FEFC4FD3198BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650630   (225458) от 02.08.2023
+
+Brian Bromberg - The Magic of Moonlight (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Magic of Moonlight
+02. Nico’s Groove
+03. A New Dawn
+04. So, You Think You’re All That?(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary Jazz, FusionПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2355A27B9A8553551D882D3F8142611C7D9D0C54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584338   (225402) от 18.10.2022
 
 Erika Paul - Jazz Just For Kids (2021) Jazz Q [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Tamara Kuldin - This May Only Be a Dream (2020) [FLAC|Lossless|tracks + .cue] <V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9CCA820FE4C20E211DBDB760E881744AD16A6F70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 966020   (222727) от 16.12.2015
-
-Miles Davis - So What? (1947-1962) 3CD, 2014, Le Chant Du Monde[FLAC|tracks+.cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222727.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.Mile Stone [02:42]
-02.Half Nelson [02:49]
-03.Move [02:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:16:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F70CD9B8454D13554A53F63914FF0BBC0FC9DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425182   (222722) от 20.11.2020
-
-Beegie Adair - Best Of Beegie Adair: Jazz Piano Christmas Perform (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frosty The Snowman (3:28)
-02. It's The Most Wonderful Time Of The Year (4:25)
-03. The Little Drummer Boy (5:04)
-04. The Christmas Waltz (2:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D477E38D10B51AE6F7F45F471140F7E0F8800805
 ```
 
 https://mybot314.ru/tekegram_catalog/

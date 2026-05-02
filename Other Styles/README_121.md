@@ -1,3 +1,194 @@
+###  Публикация: 1415398   (376345) от 12.10.2020
+
+Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376345.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9803936CE5F4EEA93D687D3D62D42BE9CED5D3E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415397   (376341) от 12.10.2020
+
+Hans Zimmer - Themyscira (From Wonder Woman 1984: Original Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5123F6ECB4719995E254054370ED545E73EFEEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415399   (376176) от 12.10.2020
+
+Hans Zimmer - Themyscira (OST from Wonder Woman 1984) (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Themyscira (From Wonder Woman 1984: Original Soundtrack) (03:51)Жанр: SoundtrackПродолжительность: 00:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DB8C43649B8E8FC708AEB152763C3EAD698447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414580   (376166) от 12.10.2020
+
+Carpenter Brut - Blood Machines / Кровь машин (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Darkwave, Synthwave, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376166.jpg" />
+</div>
+
+
+###  Подробнее
+
+[01:36] 01. Intro
+[03:21] 02. Blood Machines Theme
+[03:19] 03. Attack Of The Amazons
+[02:24] 04. The Ceremony(   Читать дальше...   )Жанр: Darkwave, Synthwave, SoundtrackПродолжительность: 00:35:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CBDA0513D4AC097AB948B8BFEA3FA0A597CF52D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414498   (376026) от 12.10.2020
+
+Gregorian Prayers - 50 Must-Have Mystic Gregorian Pop Remixes (2012) [MP3|320 Kbps] <New Age, Enigmatic, Choral>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Procession
+02. Misereris
+03. Christus factus est
+04. Halleluja I(   Читать дальше...   )Жанр: New Age, Enigmatic, ChoralПродолжительность: 05:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11CA38E148FE29903538BD113965F226A0EA5C84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415368   (376011) от 12.10.2020
+
+Hans Zimmer - Eclipse (OST from Dune) [Trailer Version] (2020) [FLAC 2.0|44/24|tracks|WEB-DL] <Soundtrack>
+
+>>Other Styles
+>>OST (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 01. Eclipse (From Dune - Original Motion Picture Soundtrack)Жанр: SoundtrackПродолжительность: 00:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DACD0C952F9C66B6FB0A4E3676215C5755CACF2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069010   (375962) от 03.11.2016
+
+David Lanz - Norwegian Rain (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norwegian Rain [00:03:43]
+02. The Approaching Storm [00:04:53]
+03. Cloud Burst (Interlude) [00:01:31]
+04. And Skies Opened Up [00:04:00](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:03:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DABB69AD400C84B3A3CC987BDB1C128C341DAD25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 574336   (375539) от 12.11.2012
 
 V.A. - Bappi Lahiri - Disco Dancer, Kasam Paida Karne Wale Ki, Tarzan (2000) [FLAC (tracks+cue)|Lossless]<Soundtrack>
@@ -546,206 +737,6 @@ VA - The Best Of Me - Original Motion Picture Soundtrack (2015) [FLAC|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50BB6C25308F1D01C3417C646EECB44330441E46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176678   (367474) от 23.10.2017
-
-Mariah Carey - The Star (2017) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Soul, Soundtrack, Christmas>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Star (4:01)Жанр: Pop, Soul, Soundtrack, ChristmasПродолжительность: 00:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E2DFB85231726E15DD733909C371C376452716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949731   (367406) от 27.10.2015
-
-VA - Ultimate Movies: 4CDs Of Great Hits From The Movies (2015) Box Set, 4CD [FLAC|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bill Medley & Jennifer Warnes - (I've had) The Time Of My Life [4:51]
-02. Celine Dion - My Heart Will Go On [4:41]
-03. Dolly Parton - 9 to 5 [2:46]
-04. The Four Tops - Loco In Acapulco [4:33](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 04:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC41FEBEC554D14B0C037D6582E2758EE0FC710C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950216   (367283) от 27.10.2015
-
-VA - Romantic Collection - Instrumental vol.3 (2000) [APE|image+.cue]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367283.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chi Mai - Ennio Morricone
- 02. My Serenade - Whitehall Mystery Orchestra
- 03. Love Story - Paul Mauriat
- 04. Bridge Over the Stars - Keiko Matsui(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:895AB3A6198AB1259BB34B470B29E1E650494B63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070689   (366531) от 07.11.2016
-
-Gustavo Santaolalla - Last of Us (2013) [FLAC|Lossless|tracks + .cue] <Soundtrack, Instrumental, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Quarantine Zone (20 Years Later) - [3:40]
-02. The Hour - [1:02]
-03. The Last of Us - [3:04]
-04. Forgotten Memories - [1:08](   Читать дальше...   )Жанр: Soundtrack, Instrumental, AmbientПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685733E4C8001A852F10DF93FDBA6446BCF44DA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255343   (366232) от 17.10.2018
-
-Howard Shore - Edge of Darkness (2010) [FLAC|Lossless|tracks + .cue] <Score, Modern>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Titles (2:18)
- 02. Mourning (3:24)
- 03. Beach (2:35)
- 04. Knife (2:25)(   Читать дальше...   )Жанр: Score, ModernПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18CDD4CBBEC8DF0493C4048E3BB2E8A05B892E57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576400   (366159) от 14.09.2022
-
-Leo Rojas - Colours of Nature (2022) [MP3|320 Kbps] <New Age, Instrumental, Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blinding Lights [03:29]
-02. Bad Habits [03:51]
-03. Wellerman (2k21 Native RMX) [02:12]
-04. Cold Heart [03:24](   Читать дальше...   )Жанр: New Age, Instrumental, Native AmericanПродолжительность: 00:50:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E5DF295B8C40CAC6C84EF65C513FEB25370154A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255367   (366059) от 17.10.2018
-
-The Cottars - Forerunner (2006) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waterlily (4:29)
- 02. Miss Casey Medley (2:00)
- 03. Byker Hill (2:47)
- 04. Atlantic Blue (4:15)(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ADEF5E69A8BA163B7E38D410770AC51389486A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

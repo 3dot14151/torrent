@@ -1,3 +1,61 @@
+###  Публикация: 943066   (451882) от 02.10.2015
+
+VA - Absolutely Techhouse (2015) [MP3|320 кб/с]<Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Claas Herrmann – Mineral 07:02
+02. Matthias Leisegang – S.A.B.S.E. (Kollektiv Klanggut Remix) 06:42
+03. Livio Sandro – Churches 06:31
+04. Tech Dealer – Plastic Vibes 07:10(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 03:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998240F02D5141074BDB0635EAEE70007126D3E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942980   (451767) от 02.10.2015
+
+VA - Trance Traveling 69 (2015) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ramon Vincent & Nathan Rux - Morning Sun (Original Mix) (05:31)
+02. Above & Beyond Feat. Zoe Johnston - Fly To New York (Above & Beyond vs. Jason Ross Club Mix) (04:16)
+03. Philippe El Sisi & LIONART - Comfort You (Original Mix) (04:01)
+04. Nic Toms - Arcade (Original Mix) (05:01)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB1D3E601C0142EFFD5CB4659FD861C29D19FEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 943005   (451753) от 02.10.2015
 
 VA - Acoustic Lounge (2015) [MP3|320 кб/с]<Chillout, Lounge>
@@ -710,64 +768,6 @@ VA - Disco Space Travels (2018) vol. 2 [MP3|320 Kbps] <Electronic, Space Disco>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D763E8AC9B29D3233183298C86453D6BB63E0D07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163645   (448422) от 06.09.2017
-
-VA - Digital Tech House (2017) [MP3|320 Kbps] <Tech House, Minimal Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448422.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Boris Brejcha - Anthurie
-002. Trump - Noteam
-003. Cut N Glue - Headliner
-004. Topmodel - Major(   Читать дальше...   )Жанр: Tech House, Minimal ElectroПродолжительность: 10:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25A8C94315F634FC72B70CC4D4162F0724A08EA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061722   (446763) от 11.10.2016
-
-VA - Trance Floor Astronomical (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Morris & Trance Arts - Innetic (Original Mix)  6:10
-02. Frainbreeze & Lucid Blue - Light My Way (Original Mix)  5:43
-03. Sean Tyas & Darren Porter - Relentless (Radio Edit)  3:40
-04. Binary Finary - The Annex (Original Mix)  7:50(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 05:49:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DFB38888B8C2F20BABCA8DABDDF16DA73C20EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1157566   (525233) от 12.08.2017
+
+Miguel "Anga" Diaz - Echu Mingua (2005) World Circuit [FLAC|Lossless|tracks + .cue] <Latin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Juan Y Martínez [01:46]
+02. Rezos [04:10]
+03. Pueblo Nuevo [04:30]
+04. Tume Tume [02:56](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BDD536DF8873228CC103B9285BDE4CCCB94DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157822   (524780) от 13.08.2017
+
+Paul Bley - Early Trios (1953, 1954) 2005, Fresh Sound [APE|Lossless|image + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Like Someone In Love [04:09]
+02. Opus 1 [04:14]
+03. Walkin' [04:33]
+04. Spontaneous Combustion [04:20](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 01:08:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A9A54166EEC507D45C55F898F484CB15DB9FEFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1157823   (524778) от 13.08.2017
 
 Bert Joris Quartet - Magone (2007) Dreyfus [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -688,64 +746,6 @@ Gabriele Mirabassi, Nando Di Modugno, Pierluigi Balducci - Amori Sospesi (2015) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87C1F3C41181F1C539C04F36383E6BF431EAC7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928430   (522550) от 16.08.2015
-
-Peter Erskine - Peter Erskine (1982) /1988, Contemporary Records/ [FLAC|image+.cue]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leroy Street [07:50]
-02. In Statu Nascendi [01:31]
-03. E.S.P. [02:57]
-04. Change of Mind [07:28](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:41:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C79ED1BB893766831F10DDE4B311DD030818CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928504   (522548) от 16.08.2015
-
-Fortadelis - The New Batch (2015) [FLAC|Lossless|WEB-DL]<Nu Jazz, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bossa (03:54)
- 02. Chillin In The Club (03:44)
- 03. Urban Vibe (05:18)
- 04. Unfolding Into Vastness (05:11)(   Читать дальше...   )Жанр: Nu Jazz, Jazz-FunkПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B686A5D40FA5266513C12CF782A28DA5014ABB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1101819   (892784) от 08.02.2017
+
+VA - Indie & Soft Rock Edition Vol.31 (2017) [MP3|320 Kbps] <Rock, Acoustic, Psychedelic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892784.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bear Hands - Too Young 3:45
+002. Birdy - Wild Horses 3:02
+003. Broods - Couldn't Believe 4:04
+004. Broods - Hold The Line 3:33(   Читать дальше...   )Жанр: Rock, Acoustic, Psychedelic RockПродолжительность: 06:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB2AE2F1475A5549A3E9EC3415DB3069F22D35E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101805   (892782) от 08.02.2017
+
+VA - Gothic Metal Edition Vol.31 (2017) [MP3|320 Kbps] <Gothic Metal, Doom Metal, Symphonic Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892782.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bliss In The Abyss - Tales Of Time 4:40
+002. Cascade - Mental Effort 3:53
+003. Circle Unbroken - Vampire 3:27
+004. Dark Sarah - Ash Grove 4:13(   Читать дальше...   )Жанр: Gothic Metal, Doom Metal, Symphonic MetalПродолжительность: 07:59:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEEF882A493EEE9AEECB8C400AC4995C6E32C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101842   (892756) от 08.02.2017
 
 VA - Nu Metal Edition Vol.31 (2017) [MP3|320 Kbps] <Alternative Metal, Modern Rock, Nu Metal>
@@ -690,64 +748,6 @@ CD 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:425A83F74B6611B0D0DFB16BFAD3F92CE05D5AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373697   (878489) от 07.04.2020
-
-VA - Heavy Metal Collections Vol.15 (3CD) (2019) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878489.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Beyond The Black - Songs Of Love And Death (2015) (4:18)
-02. Iron Savior - Roaring Thunder (2019) (4:23)
-03. Turilli - Lione Rhapsody - Zero Gravity (2019) (5:53)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8ED95AC05873E9268658D6567A799B9D7209D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373706   (878465) от 07.04.2020
-
-VA - Heavy Metal Collections Vol.16 (3CD +1CD LIVE) (2020) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878465.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Nozomu Wakai's Destinia - Rain (2018) (4:53)
-02. Dream Child - Under The Wire (2018) (5:43)
-03. Last Days Of Eden - Dead Man's Tale (2018) (4:24)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1CE027E93EFC42968BEF87F85C1B8CF1B7E7F98
 ```
 
 https://mybot314.ru/tekegram_catalog/

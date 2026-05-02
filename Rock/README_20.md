@@ -1,3 +1,29 @@
+###  Публикация: 199613   (805046) от 09.05.2010
+
+VA - The Best Air Guitar  Vol.1-3+The Best Of The Best Air Guitar (2001-2005) [MP3|320 kbps]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805046.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 11:04:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198729   (804413) от 13.01.2018
 
 VA - Awesome 80's Volumes One, Two & Three (2004) 3CD, Compilation [MP3|320 Kbps] <Pop Rock, Soul, Synth-pop>
@@ -716,35 +742,6 @@ Jonathan - Jonathan (1978) Reissue CD, 1993, L+R Records [MP3|320 Kbps] <Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DEF2BCA534F41D06FE42E6201D5EF4FF9997C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1122282   (799223) от 04.04.2017
-
-Faces - The First Step (1970) Reissue, 1990, Warner Bros. Records [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799223.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wicked Messenger
-2. Devotion
-3. Shake, Shudder Shiver
-4. Stone(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:47:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC3A28EA9336ED9E4A7EFEFA19B923206CB0078
 ```
 
 https://mybot314.ru/tekegram_catalog/

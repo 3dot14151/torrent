@@ -1,3 +1,32 @@
+###  Публикация: 1443684   (1035148) от 30.01.2021
+
+Martin Gore (from Depeche Mode) - The Third Chimpanzee E.P. (2021) [FLAC|Lossless|Web-DL|tracks] <Electro, Dub Techno, Experimental, Leftfield>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Howler (4:53)
+02. Mandrill (3:59)
+03. Capuchin (3:51)
+04. Vervet (8:28)(   Читать дальше...   )Производство: Mute/Grabbing HandsЖанр: Electro, Dub Techno, Experimental, Leftfield, Modular SynthПродолжительность: 00:23:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:250450A8381CD61AD651D96AE99534D3206C982E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1252375   (1035106) от 30.01.2021
 
 VA - Steyoyoke Perception, Vol. 1-8 (2017-2021) Steyoyoke Recordings [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Techno, Progressive House>
@@ -709,35 +738,6 @@ Rod Modell (DeepChord, Waveform Transmission, Shorelights, Imax, Global Systems 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6576D4B73CDC00B3F3D0630883CE48183A6D119D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452452   (1027758) от 06.03.2021
-
-Kaskade - Reset (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive Trance, Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaskade, Ella Vos - Miles To Go (03:18)
-02. Kaskade, Will K - Flip Reset (03:08)
-03. Kaskade - Closer (04:41)
-04. Kaskade - Solid Ground (03:20)Жанр: House, Progressive Trance, Progressive HouseПродолжительность: 00:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D88379D0C9A4874ED4718DB78293F659865040D
 ```
 
 https://mybot314.ru/tekegram_catalog/

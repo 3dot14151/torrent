@@ -1,3 +1,119 @@
+###  Публикация: 1222404   (685293) от 29.04.2018
+
+VA - German Top 100 Single Charts 27.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685293.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Calvin Harris & Dua Lipa - One Kiss
+002. Ariana Grande - No Tears Left To Cry
+003. Marshmello & Anne-Marie - FRIENDS
+004. Olexesh - Magisch (feat. Edin)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8BE1D6C2F411A68F31B207FE4061BEB739CCDF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1222427   (685170) от 29.04.2018
+
+VA - German Top 50 Official Dance Charts 27.04.2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685170.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fatboy Slim - Right Here, Right Now (CamelPhat Radio Edit)
+02. Moguai, Zonderling - Lee
+03. Bingo Players, Goshfather - Everybody
+04. Steve Aoki, Daddy Yankee, Play-N-Skillz & Elvis Crespo - Azukita(   Читать дальше...   )Жанр: DanceПродолжительность: 02:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B47E08B9FC7B7A297FE1C0629CE2095F96D4E46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134883   (685081) от 17.05.2017
+
+VA - Весенний хитовичок молодежный. Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685081.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sunsay Feat. Тося - Поезд 3:34
+002. Iowa - Немею 3:33
+003. Полиграф Шарикoff (Серега) - Гелик Вани 3:08
+004. Sha Man - Я Люблю Ее 3:44(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4F20B3572D33402FC34E1DCD7E51BC88CCA2272
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134891   (685075) от 17.05.2017
+
+VA - Звездная тусовочка. Отдыхаем с лучшими хитами выпуск № 11 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685075.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lila & Stitch - Город-Электрошок 3:25
+002. Сергей Славянский - На Пешеходном Переходе 3:18
+003. Пропаганда - Забываю 3:25
+004. Zac Samuel & Moon Willis Feat. Taya - Never Letting Go 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32506964C2B788AD76612D31B06208AE1BEF7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134904   (684974) от 17.05.2017
 
 VA - Топовая весенняя сотня выпуск № 7 (2017) [MP3|256 Kbps] <Pop>
@@ -647,122 +763,6 @@ VA - Весенняя 100-ка популярных треков выпуск �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:244F984D5D1376EFC02FF29DABAAD1DAEF7A542C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135738   (679283) от 20.05.2017
-
-VA - Русский отрыв на Русском радио. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679283.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Бордо - Будем 3:37
-002. Weel - Под Мой Пульс 3:03
-003. Kristina Si - Гасим Свет 3:58
-004. Андрей Леницкий - Она 4:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0CBA49A97190259A642693B4C073AE4E4CDF7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135729   (679238) от 20.05.2017
-
-VA - Хитовая весна на Europa Plus. Часть № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679238.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Катя Ирис - Солнце Мое 3:16
-002. Надежда Тэра - Птица 3:17
-003. Play - Виновата Сама 3:18
-004. Stereopulse - Зачем Ты Накачала Губы 3:15(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29659F8F0B30F12A4FF911D1A8DD00F54F949B91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223004   (678977) от 02.05.2018
-
-VA - Super Disco Party (2018) [MP3|320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678977.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Boney M. - Rivers Of Babylon (4:00)
-002. Gilla - Help! Help! (3:09)
-003. Village People - Y.M.C.A. (4:44)
-004. Eruption - Party, Party (3:05)(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 07:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27719452B456D8C005A2018DA6D8ADDFBD28B735
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135742   (678960) от 20.05.2017
-
-VA - Душевный сборник Русского радио выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678960.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Блокбастер - Детка 3:25
-002. Ирина Билык - Разреши 3:23
-003. Ирина Билык - Боже Мой 4:43
-004. Lilika - Город Не Спит 3:27(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AC1E23FDC6266F01441E203132DF5B78EE4D122
 ```
 
 https://mybot314.ru/tekegram_catalog/

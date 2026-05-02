@@ -1,3 +1,32 @@
+###  Публикация: 995347   (886033) от 10.03.2016
+
+VA - Romantic Collection: Tet-A-Tet (2000) [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Варум Анжелика, Агутин Леонид - Все В Твоих Руках (4:58)
+02. Пугачева Алла, Моисеев Борис - Две свечи (3:56)
+03. Рыбин Виктор, Сенчукова Наталья - Ни Слова О Любви (4:58)
+04. Иванов Александр - Счастье На Двоих (5:35)(   Читать дальше...   )Жанр: PopПродолжительность: 01:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A94BE4C70080920CE5C0A9A83E487AFDE1551AC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995317   (885995) от 10.03.2016
 
 VA - Romantic Collection: Лирика (1999) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -710,35 +739,6 @@ Zivert - Vinyl #2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDC14D9C2C4F1936E30826A82897667411714141
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114757   (831381) от 15.03.2017
-
-Потап и Настя - Золотые Киты (2017) [FLAC|Lossless|image + .cue] <Pop, R&B>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не Пара
-02. Крепкие Орешки
-03. Не Люби Мне Мозги
-04. Позвони Своей Зае(   Читать дальше...   )Жанр: Pop, R&BПродолжительность: 01:05:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68ECB0BA343F768E1C88E500A4C15344B07C755B
 ```
 
 https://mybot314.ru/tekegram_catalog/

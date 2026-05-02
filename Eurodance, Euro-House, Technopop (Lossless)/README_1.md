@@ -1,3 +1,61 @@
+###  Публикация: 319179   (858120) от 18.04.2020
+
+Bad Boys Blue - In The Mix (80s Best) (2002) [FLAC|Lossless|tracks + .cue]<Dance>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_858120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're A Woman (Maxi Version)
+02. Pretty Young Girl (Extended Version)
+03. Kisses And Tears (Remix 1994)
+04. I Wanna Hear Your Heartbeat - Sunday Girl (Maxi Version)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:16:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:592E1BB83B548F97247FD39A08B23AB8249E81F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498493   (856047) от 27.09.2021
+
+Papaya -  Pink (1999) [FLAC|Lossless|tracks + .cue] <Bubblegum>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_856047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Operator 3:42
+02. Hero 3:34
+03. Pink Dinosaur 3:10
+04. Supergirl (Original Single Version) 3:38(   Читать дальше...   )Жанр: BubblegumПродолжительность: 00:57:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE72DC4C6A4FE797986DAA34196DDA07E94EEC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002254   (848611) от 31.03.2016
 
 Q-Pow! - We're Only Here For The Party! (2000) [FLAC|Lossless|tracks] <Electronic, Pop, Euro House>
@@ -691,64 +749,6 @@ VA - N'Dance Vol. 1 (2004) [FLAC|Lossless|tracks + .cue] <Eurodance, Euro-House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6203FF93C15A104A2070AD3E67E32208CD5032C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292041   (648184) от 28.03.2019
-
-VA - N'Dance Vol. 2 (Mixed by Global Deejays) (2005) [APE|Lossless|image + .cue] <Eurodance, Euro-House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Global Deejays - What A Feeling (Short Progressive Mix)
-02. Heiko & Maiko - Glucklich (Russian Mix)
-03. Potatoheadz - Narcotic (Royal Gigolos Mix)
-04. Felix Da Housecat - Ready 2 Wear (Benny Benassi Remix)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A9172FE411FB78EC6E7EDE343AAA2880B1A526
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032097   (647624) от 06.07.2016
-
-Whigfield - Whigfield (1995) [APE|Lossless|image + .cue] <Euro House>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saturday Night (Radio Mix)
-02. Think Of You (Extended Mix)
-03. Another Day (Nite Mix)
-04. Don't Walk Away(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7738FC0280F87574DD4990D0756062979F459F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

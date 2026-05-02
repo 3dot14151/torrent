@@ -1,3 +1,119 @@
+###  Публикация: 1427050   (184167) от 27.11.2020
+
+Наконечный - Нищета и свобода. Сторона Б (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184167.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пой со мною, весна
+2. Сирень
+3. Подорожник
+4. Юра, мы всё проебали(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC3F350A7F62E626632BBEA5714D273358E0628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427046   (184095) от 27.11.2020
+
+Чичерина - Песни военных лет (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184095.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Рвать
+2. Пожалуйста
+3. Пересвет
+4. Воздушная гавань(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07704D41D83528A8482ED66F4DAAE4D01B740155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592424   (183954) от 22.11.2022
+
+Mashgot - Тишина... (2022) [MP3|320 Kbps] <Alternative Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 82
+02. Бруно
+03. Ересь
+04. Агент Orange(   Читать дальше...   )Жанр: Alternative Metal, Progressive MetalПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E042B1EA48A4980651B606C39D64D6027C3726
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592420   (183938) от 22.11.2022
+
+Firs - Власть (2022) [MP3|320 Kbps] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Волки
+02. Изыди В Ад
+03. Мертвец
+04. Труп(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FEB6F6900F6E7AC4E9998CD15524C19DCAD616C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592431   (183935) от 22.11.2022
 
 Yaoru - Эверсивность (2022) [MP3|320 Kbps] <Alternative Rock>
@@ -632,122 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6EAF82067C116948764FB3F5FDAB4DE79BFE621
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666418   (178912) от 05.10.2023
-
-Звероморье - В плену у сказки (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Звероморье черный лес [00:04:36]
-02 - Колобок-ледоруб [00:03:52]
-03 - Капище скомороха [00:04:39]
-04 - Зимняя ядерная былина [00:04:48](   Читать дальше...   )Жанр: RockПродолжительность: 00:21:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9431D15D3AEB34BE8D372A69ECEA844F69EBFD91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1666253   (178765) от 05.10.2023
-
-Красная плесень - Баллады 90-х (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белокурая девчонка (Original Version of the 90s) [00:02:42]
-02. Я бы хотел... (Original Version of the 90s) [00:02:33]
-03. Ночной экспресс (Original Version of the 90s) [00:04:16]
-04. Сон моей мечты (Original Version of the 90s) [00:04:12](   Читать дальше...   )Жанр: RockПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:226AB56536280DB7C0AC97A15E199C4DECC4F775
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1428855   (178372) от 04.12.2020
-
-Дайте два - Золото (2020) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_178372.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Джекилл и Хайд
-2. Против всего
-3. В роуминге
-4. Свитер с оленями(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040ACEBD9C6026194A3C0C8AD1E02E7A60703CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594435   (178247) от 01.12.2022
-
-Nutbreaker - 2 EP (2021-2022) [MP3|320 Kbps] <Nu-Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Остановись [00:03:38]
-02. Бей [00:03:26]
-03. Не Понять [00:03:56]
-04. Внутри [00:04:33](   Читать дальше...   )Жанр: Nu-Metal, RapcoreПродолжительность: 2 CD, 00:39:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E172C5E7934BC85B76DE13696D2D861B13B97DB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

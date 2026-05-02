@@ -1,3 +1,38 @@
+###  Публикация: 604651   (996061) от 18.01.2013
+
+Telemann, Albinoni, J.S. Bach, J-J. Mouret, Handel, Yon - Music for Trumpet and Organ: Festive Music (1999)/2003 Naxos [WavPack (iso.wv)|Lossless]<Chamber>
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996061.jpg" />
+</div>
+
+
+###  Подробнее
+
+Georg Philipp Telemann (1681-1767)
+1.	Air de trompette	0:57
+2.	Gayment		0:38
+3.	Air de trompette da capo	1:05
+Tommaso Albinoni (1671-1751)
+Concerto Saint Marc
+4.	Grave		2:10
+5.	Allegro	1:38
+6.	Andante	1:12
+7.	Allegro	1:54(   Читать дальше...   )Жанр: OrganПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5C3E599E01585967FDA7285D83529B8F83A9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605216   (995786) от 19.01.2013
 
 Wolfgang Amadeus Mozart–Mass C-Dur K.317, Exsultate K.165, Vesperae solennes K.339: Trevor Pinnock (1773-1780)/1994 Deutsche Grammophon/[WavPack](iso.wv)|Lossless]<Vocal>
@@ -814,35 +849,6 @@ Chopin - The Nocturnes (Maria Joao Pires)(2CDs) (1996) [FLAC|Lossless|image + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4A6CF46D8BC7009B7DF0CF1528A67B0AC2274CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973602   (978938) от 09.01.2016
-
-Rosetti - Sinfonies - Concerto Köln (Vol.1) (1995) [FLAC|Lossless|image + .cue] <Classical, Classical Period, Symphony>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony in G minor, K 1 No 27
-01. Vivace (06:51)
-02. Menuet fresco: Allegretto - Trio - Menuet (03:10)
-03. Andante ma Allegretto (03:23)(   Читать дальше...   )Жанр: Classical, Classical Period, SymphonyПродолжительность: 01:07:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42842A6B842E324C1E4CE7CCD060EB64CBF49AC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

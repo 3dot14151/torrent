@@ -1,3 +1,61 @@
+###  Публикация: 1727845   (108382) от 04.06.2024
+
+The Charlie Byrd Trio & Guests - Byrd At The Gate: At The Villiage Gate (1963) 1986, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bossa Nova, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108382.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shiny Stockings [4:58]
+02. More (Theme from Mondo Cane) [2:54]
+03. Blues for Night People [7:07]
+04. Butter and Egg Man [3:40](   Читать дальше...   )Жанр: Bossa Nova, CoolПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5695AF3F36096FE2A1781BB1F980FBB344423E54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727841   (108381) от 04.06.2024
+
+The Charlie Byrd Trio & Ken Peplowski - The Bossa Nova Years (1991) 2003, Concord Picante [FLAC|Lossless|tracks + .cue] <Bop, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meditation [5:07]
+02. One Note Samba [4:50]
+03. Corcovado [7:17]
+04. Triste [4:35](   Читать дальше...   )Жанр: Bop, Bossa NovaПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A098CB4C6B67FFA3EC868355B93D17C51534FBA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728087   (108376) от 05.06.2024
 
 The Scott Hamilton Quintet - The Second Set (1983) 1993, Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -687,64 +745,6 @@ Wallace Roney - No Room for Argument (2000) Stretch Records [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D28933356C7D8CAD375FD247AD144CCBB3966810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729642   (108012) от 12.06.2024
-
-Jack Walrath & The Masters of Suspense - Serious Hang (1992) 1994, Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108012.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anya and Liz on the Veranda [6:36]
-02. Get on the Good Foot [5:11]
-03. Better Get Hit in Your Soul [8:07]
-04. Izlyal e Delyo Haidoutin [7:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2159876B5FC003F4C02B0ECEE6080454AB197446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729712   (108006) от 12.06.2024
-
-Mel Torme - In Person (1962) Remaster, 2024, Warner Music Group [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Putting On the Ritz [00:02:24]
-02. Autumn in New York [00:03:22]
-03. Broadway [00:02:16]
-04. On Green Dolphin Street [00:02:56](   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2BD70D15062387C3CF50D562EA833D3F4F0C44
 ```
 
 https://mybot314.ru/tekegram_catalog/

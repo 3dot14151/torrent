@@ -1,3 +1,61 @@
+###  Публикация: 1823139   (121553) от 10.10.2025
+
+VA - Armin van Buuren - A State Of Trance 1246 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121553.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Dish – Fire (Peak Mix)
+02. Hausman – This Is Not a Drill
+03. Calvin Harris feat. Clementine Douglas – Blessings (Skytech Remix)
+04. YOUNA (KR) – Serotonin(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A39DB596B46DF10FEE591271C62BE5C7E6DE1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694664   (120802) от 26.01.2024
+
+VA - Armin van Buuren - A State Of Trance 1157 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seven Lions & Andrew Bayer ft. Fiora - Places I Belong (OPHELIA)
+02. Laura van Dam & Ginchy - Save Me (ARMIND)
+03. AVIRA - Hot Tub Time Machine (SPECTRUM MUSIC)
+04. LKX - Multiverse Wanderer (FUTURISING MUSIC)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:05:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:369E24C3F178A65B75B47DE3277A0F0F3AF5897F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694813   (120601) от 27.01.2024
 
 Vintage Culture - Live @ VNTG Is A Festival,Sao Paulo Brazil (2023-12-09) [MP3|320 Kbps] <Tech House, Melodic House, Techno>
@@ -694,64 +752,6 @@ VA - Armin van Buuren - A State Of Trance 1165 (2024) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:637C8ABB8181E392C93569A382C4C9077EEBA531
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711125   (112534) от 29.03.2024
-
-VA - Armin van Buuren - A State Of Trance 1166 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Cosmic Gate & Christian Burns - Brave
-02.	Laura van Dam & Ginchy - Save Me (Progressive Pick)
-03.	Jaytech - Nebula
-04.	JODA - Spark (Jono Grant & Harry Diamond Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D765666157FC26788A482B8C352951BA136A9DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1711325   (112529) от 29.03.2024
-
-GOODBOYS - Tomorrowland Friendship Mix (2024-03-28) [MP3|320 Kbps] <House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Culture & GOODBOYS - This Feeling (ID Remix)
-02. The Prodigy - Voodoo People (Josh Samuel Edit)
-03. Opus III vs. Skrillex & Fred Again.. & Flowdan - It's A Fine Day vs. Rumble (
-04. GOODBOYS & Biscits & Max Mylo - The Loop(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 00:59:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A34C98167536B2EE4F27C50FF128320191C873F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

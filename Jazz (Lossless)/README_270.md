@@ -1,3 +1,61 @@
+###  Публикация: 1656126   (203548) от 29.08.2023
+
+Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.2 (1953) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luau [3:52]
+02. Comin' Thru the Rye Bread [6:14]
+03. Taking a Chance on Love [4:06]
+04. The Bif Top [4:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:552FBA4295C50AD6B73B37BCE2E043CA141A1333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1656292   (203296) от 30.08.2023
+
+Wardell Gray - 1946 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dell's Bells [2:55]
+02. One For Prez [3:11]
+03. The Man I Love [3:05]
+04. Easy Swing [3:01](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 01:09:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57036E7F73F24BABA927A611768F07592C91DD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1656533   (203039) от 31.08.2023
 
 Mal Waldron - Left Alone (1959) 2000, Avenue Jazz [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
@@ -686,64 +744,6 @@ Enrico Pieranunzi, Marc Johnson, Joey Baron - Play Morricone 2 (2002) CAMJazz [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F056FE93E4B00380FFEE8260C4CD84C77B5C4724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1588945   (190906) от 07.11.2022
-
-Andre Ceccarelli, Pierre-Alain Goualch, Diego Imbert - Porgy & Bess (2021) Trebim Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ouverture [4:46]
-02. There's a Boat Dat's Leavin' Soon for New York [3:12]
-03. Bess, You Is My Woman Now [3:53]
-04. Here Come de Honey Man [2:27](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E06842676C3982F85D8D466DE12AE9946D15E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1589131   (190677) от 08.11.2022
-
-Sidney Bechet - 1938 - 1940 (1991) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ja Da [2:55]
-02. Really the Blues [3:39]
-03. When You and I Were Young, Maggie [2:44]
-04. Weary Blues [3:03](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:10:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C197B897E5A1D3B50C310CAEF4203278C91F29
 ```
 
 https://mybot314.ru/tekegram_catalog/

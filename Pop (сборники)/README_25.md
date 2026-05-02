@@ -1,3 +1,119 @@
+###  Публикация: 1114139   (835174) от 13.03.2017
+
+VA - Hits Cocktail vol.2 (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ida Una - One
+02. The Parakit & Alden Jacob - When I Hold You
+03. Laidback Luke & Ralvero feat. Ina - XOXO
+04. Diamm feat. Laura Green - Holding Back Your Love (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A1E28C6B4C0E21EBC7EF8EAD2EB2722CE587AB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1113991   (835103) от 13.03.2017
+
+VA - Radio Top Music FM - February (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) (4:11)
+02. Егор Крид - Мало так мало (3:06)
+03. Steve Aoki & Louis Tomlinson - Just Hold On (Original Mix) (3:19)
+04. Matthew Koma - Kisses Back (3:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:13:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC721A91C125028006425997CB04F74F3BC067CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501155   (835035) от 10.10.2021
+
+VA - Top 100: Deluxe Disco Party (2021) [MP3|320 Kbps] <Disco, Dance, Remastering>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835035.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ltg Long Travel Groove - Lost My Funk
+002. Flamingo Pier - Last Call
+003. Jackie Stoudemire - Flying High
+004. Rudy's Midnight Machine - La Cadenza(   Читать дальше...   )Жанр: Disco, Dance, RemasteringПродолжительность: 09:28:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C921131B5D32A77FB81098100C10E5D51E0D1CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114129   (834996) от 13.03.2017
+
+VA - Hits Cocktail Vol.3 (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charming Horses Feat. Jona Bird - Follow (Radio Edit)
+02. Kygo & Selena Gomez - It Ain't Me
+03. Krono feat. Paul Kostick - You're Beautiful (Extended Mix)
+04. Anne-Marie - Ciao Adios(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:07:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4771F9CF7644AA93A962088FE2DBB66E94322AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379985   (834978) от 02.05.2020
 
 VA - NEW от Виталия72  (1) (2020) [MP3|256-320 Kbps] <Поп, Дансе>
@@ -635,122 +751,6 @@ VA - Музыкальный кекс по Русски (2015) [MP3|192-256 кб/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5DDB9A97AA44D8B96CF9754D2DD316F0E664063C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006441   (827237) от 12.04.2016
-
-Руслана Собиева - Пообещай мне любовь (2016) [MP3|320 кб/с] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пообещай мне любовь
-02. Мечта
-03. Забывай (feat. Зарина Бугаева)
-04. Роман длиною в жизнь (feat. Шамхан Далдаев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43A61EEFCC3B3F553D6CF879A791C222F850F4AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1006587   (826897) от 12.04.2016
-
-VA - 100 Пудовый Auto hit №2 (2016) [MP3|128-320 кб/с] <Рор>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826897.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Неангелы - Ревную
-002 Faydee - Legendary
-003 Ozzy Osbourne - I Just Want You
-004 Toris-Badic-Breathe-Baby-Original-Mix(   Читать дальше...   )Жанр: РорПродолжительность: 05:37:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9BE4FD6BEDAFDAAD17720733DE525FE2F2F7420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115540   (826661) от 18.03.2017
-
-VA - Положительный заряд отличного настроения. Сборник №3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826661.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Стрелки - Любить Меня Поздно 3:10
-002. Любовь Попова - А Я Хотела 3:38
-003. Александр Побединский - Было Лишь Игрой 3:39
-004. Маша Кольцова - Ярче Помаду 3:37(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52B0033A5472EE26178597ECD3D1FD4998D20EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115552   (826656) от 18.03.2017
-
-VA - Отдыхаем с лучшими хитами. Звездная тусовочка выпуск № 2 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_826656.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Usher - Wait For It 3:29
-002. Great Good Fine Ok - Get Away 3:27
-003. Jojo - Vibe 3:08
-004. Ани Лорак - Сопрано 3:30(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34C6B66E56B1AC8029192543F96D564ADF9CF2E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

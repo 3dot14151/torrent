@@ -1,3 +1,61 @@
+###  Публикация: 1051036   (535024) от 10.09.2016
+
+VA - Oktoberfest Dance 2016 (2016) [MP3|320 Kbps] <Electronic, Progressive, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ N'Farmer - Jumpin [4:02]
+02. Brisby & Jingles - She's Like the Wind (Feat. Miloud) (Tim Verba Remix) [5:06]
+03. Tom Larusso - Suspicious Minds (Feat. King Presley) [4:15]
+04. DJ Maxx Fiesta vs Tony T - Feel It in My Heart (Michael Fall Remix) [5:06](   Читать дальше...   )Жанр: Electronic, Progressive, DanceПродолжительность: 01:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEC0EEC7FD2D267609A808AB4D4EB4F8485F035D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050992   (535009) от 10.09.2016
+
+VA - 100% Dance Party Cocktail (2016) [MP3|242320 Kbps] <Club, Dance, House, Electronic, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535009.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jack Holiday & Sash! - Encore Une Fois (Dany Lorence & Jack Holiday Radio Edit)
+002. Chuck & Norris Feat. E-Rockaz - World Whitout Music (Radio Edit)
+003. Dj Nanux - Take Me
+004. Doctor Jeep - Eccies(   Читать дальше...   )Жанр: Club, Dance, House, Electronic, TechnoПродолжительность: 08:56:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06E43BDB77BB09D3DFB5F4B61702B62F8C62CD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1051085   (534926) от 10.09.2016
 
 VA - Club Dance Ambience vol.85 (2016) [MP3|320 Kbps] <House, Club, Dance>
@@ -687,70 +745,6 @@ VA - Trance 55 Week Start Melody (2016) [MP3|320 Kbps] <Trance, Melodic, Energy>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:563BEC15738E102022FDE47E4A2EE3737AEE7483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 533212   (530758) от 11.08.2012
-
-VA - Kiss FM - Top-40 (09.08.2012) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_530758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Parachute Youth - Can't Get Better Than This (Original Mix).mp3
- 02. Gotye - Somebody That I Used To Know (Dberrie Rmx).mp3
- 03. Armin van Buuren - Orbion.mp3
- 04. Dada Life - Happy Violence (Vocal Extended Mix).mp3
- 05. Правительственный Гаражный Бэнд - Гимн Казантипа 2012 (Original)
- 06. Orjan Nilsen - Amsterdam (Original Mix)
- 07. Armin Van Buuren - We Are Here To Make Some Noise
- 08. Avicii - Levels (Original Mix)
- 09. Dada Life - Rolling Stone T-Shirt (Cazzette Remix)
- 10. Adam F - When The Rain Is Gone(   Читать дальше...   )Жанр: DanceПродолжительность: 03:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F6B48D9879FBB990EEAEA42F012335EC853E516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927251   (529944) от 12.08.2015
-
-Bombay Lounge - Sexy Lounge Music Sensuality Chill Songs Summer Collection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexy Lounge Music
-02. Happy (Party Time)
-03. Sensuality
-04. Bombay (Party Music)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3FA62118110A28A1B8D9D1304E8EA5F9EF27751
 ```
 
 https://mybot314.ru/tekegram_catalog/

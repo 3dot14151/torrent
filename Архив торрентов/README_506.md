@@ -1,3 +1,57 @@
+###  Публикация: 1363091   (945193) от 26.02.2020
+
+JetBrains ReSharper Ultimate 2019.3.3 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945193.jpg" />
+</div>
+
+
+###  Подробнее
+
+ReSharper – это расширение для Microsoft Visual Studio, помогающее повысить эффективность разработки и автоматизировать большинство рутинных процедур.
+Поддерживая C#, VB.NET, XAML, XML, ASP.NET, ASP.NET MVC, JavaScript, HTML и CSS, ReSharper делает программирование в Microsoft Visual Studio намного более быстрым и эффективным.
+Используя ReSharper, вы сможете создавать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598DB5BAD5B82BA5EF39963E323A2D3FED8B943A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363004   (945190) от 26.02.2020
+
+RogueKiller Anti-Malware 14.2.1.0 + Portable [Multi]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945190.jpg" />
+</div>
+
+
+###  Подробнее
+
+RogueKiller Anti-Malware можно использовать бесплатно для сканирования и очистки. Однако, приложение имеет дополнительные платные функции, которые обеспечивают защиту в режиме реального времени, более высокий уровень безопасности и позволяют более детально настраивать поведение программы. Среди дополнительных возможностей: автоматическое обновление, использование (   Читать дальше...   )Язык интерфейса: Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDC97D43E680FBFE2DEF76A837E28C92368C39E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 982851   (945162) от 05.02.2016
 
 Любит - не любит... / Homecoming (2009) BDRip [H.264/720p-LQ]
@@ -651,61 +705,6 @@ BusyCal - программа на Mac OS X, которая поможет вам
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9B382A6FF766D92F89C4380B786218BF4F2D7B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983128   (945008) от 05.02.2016
-
-Hotspot Shield Elite 5.20.13 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945008.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hotspot Shield VPN – самое полное решение проблем безопасности в Интернет. Защищает ваши сессии в веб-браузере, обнаруживает и блокирует вредоносное ПО, сохраняет конфиденциальность, обеспечивает доступ к заблокированным сайтам. Hotspot Shield делает безопасным просмотр веб-страниц, защищая ваше (проводное или беспроводное) соединение дома и в общественных местах. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38529EB037B83D0E32DA242FDE3C8FE427BDADE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091053   (945006) от 08.01.2017
-
-VA - Two Years Of Beyond Perception Music (Mixed by Akku & Arrakeen) (2017) [MP3|320 Kbps] <Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Akku - Two Years Of Beyond Perception Music, Pt. I: Akku In The Mix (Continuous DJ Mix) (79:36)
-02. Arrakeen - Two Years Of Beyond Perception Music, Pt. II: Arrakeen In The Mix (Continuous DJ Mix) (84:42)
-03. Neo Kekkonen - Kate (Intro Mix) (7:25)
-04. Starlyte - Hypernova (Six Senses Dreamy Remix) (7:45)(   Читать дальше...   )Жанр: TranceПродолжительность: 06:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F39F925F9DCB36DC56024D8A8A744956C14747F
 ```
 
 https://mybot314.ru/tekegram_catalog/

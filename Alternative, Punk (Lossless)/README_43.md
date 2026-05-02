@@ -1,3 +1,61 @@
+###  Публикация: 1255859   (359186) от 20.10.2018
+
+House Vs. Hurricane - Forfeiture (2008) EP [FLAC|Lossless|tracks + .cue] <Rock, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359186.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (1:02)
+ 02. Forfeiture (3:18)
+ 03. Comforting Our Thoughts In A Continuous Blue (2:24)
+ 04. Seeing Things Through Water (4:36)(   Читать дальше...   )Жанр: Rock, HardcoreПродолжительность: 00:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DF19BA60F0609E0A969F862B6CFAFD8DDA522BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256151   (359166) от 20.10.2018
+
+VA - Rock Sound: 100% Volume No. 147 (2011) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk, Post-Hardcore, Emo>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blackout - The Devil Inside (03:14)
+02. Max Raptor - Obey the Whips (03:40)
+03. Thursday - No Answers (04:49)
+04. The Saddest Landscape - Imperfect but Ours (04:40)(   Читать дальше...   )Жанр: Hardcore, Punk, Post-Hardcore, EmoПродолжительность: 01:09:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:785126B181BC503F96DE741DF781E0A0F59C4E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1256108   (359133) от 20.10.2018
 
 Creux Lies - The Hearth (2018) Cleopatra Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, New Wave>
@@ -687,64 +745,6 @@ VA (We Are Triumphant) - Hybrid Theory: an Encore (2020) Linkin Park Tribute [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A74E5E2B9A8D99E6D2697E1726C6DB2631D65F00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578223   (348157) от 22.09.2022
-
-Supergrass - Supergrass (1999) 2CD, Remaster, 2022, Echo [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Britpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving (John Leckie 2022 Remix) [00:05:23]
-02. Beautiful People (2022 Remix) [00:03:54]
-03. Pumping On Your Stereo (John Leckie & Mick Quinn 2022 Remix) [00:03:46]
-04. Born Again (2022 Remix) [00:03:34](   Читать дальше...   )Жанр: Alternative Rock, BritpopПродолжительность: 01:57:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F927E3E3BC05DF688042DB105BB82F3699B1B28E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578221   (348056) от 22.09.2022
-
-Alice in Chains - Dirt (1992) Remaster, 2022, Columbia [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them Bones (2022 Remaster) [00:02:29]
-02. Dam That River (2022 Remaster) [00:03:09]
-03. Rain When I Die (2022 Remaster) [00:06:01]
-04. Down In A Hole (2022 Remaster) [00:05:38](   Читать дальше...   )Жанр: Alternative Rock, Grunge, Hard RockПродолжительность: 00:57:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7427A487A9DC59F7410D683015BC1AFB2053B9B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

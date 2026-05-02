@@ -1,3 +1,32 @@
+###  Публикация: 1583142   (314504) от 13.10.2022
+
+Roxette - Crash! Boom! Bang! (1994) [OGG Vorbis|480 Kbps] <Rock, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harleys & Indians (Riders In The Sky)
+02. Crash! Boom! Bang!
+03. Fireworks
+04. Run To You(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:06:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3274B9666615A82C84D71EA4DF492935AFA623BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1582962   (314378) от 13.10.2022
 
 Cosmograf - 9 Albums (2011-2022) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
@@ -722,35 +751,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9F19641526FA54C54777291E8784763E057B7D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422963   (302387) от 12.11.2020
-
-Final Conflict - The Rise Of The Artisan (2020) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rise Of The Artisan (09:15)
- 02. Life #1 (05:07)
- 03. A Clockwork Echo (06:30)
- 04. Stop & Stare (05:59)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00AD25E103EE61301940FEAEB5DCC223F9632A5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

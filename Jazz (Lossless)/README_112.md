@@ -1,3 +1,61 @@
+###  Публикация: 1135851   (677392) от 21.05.2017
+
+Duke Ellington - The Essential Duke Ellington (1929 - 1960) 2CD, 2005, Columbia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677392.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. East St. Louis Toodle-Oo [03:07]
+02. Black and Tan Fantasy [03:27]
+03. Take It Easy [02:38](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:11:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96BAC747977A23F11744D21A69935342DC232B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135839   (677299) от 21.05.2017
+
+Duke Ellington - Love You Madly (1970) 2002, Collectables [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Star Spangled Banner [01:28]
+02. The Mooche [05:54]
+03. How High the Moon [06:26]
+04. Lullaby of Birdland [04:01](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E5184BFF10457A6A1F83C0DAA4F75F0E18A196F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135841   (677297) от 21.05.2017
 
 Duke Ellington - Paris Jazz Concert: The Champs-Elysees Theater, Jan 29-30th 1965, Part 2 (2002) LaserLight Digital [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -705,64 +763,6 @@ The Chet Baker Quintet - In Concerto (1956) 1995, Nel Jazz [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2545048464203E6CB9A00ED76FC7CD7AE1F6DEA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290787   (674455) от 22.03.2019
-
-Lars Gullin - Silhouette, Vol.7 (1951 - 1953) 2005, Dragon Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alone [2:55]
-02. The Continental [2:35]
-03. Stella by Starlight [3:24]
-04. For Goofers Only I [3:41](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:13:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3DFCD0BA38EC924B2CB91F0432F82DD9F342CDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290789   (674454) от 22.03.2019
-
-Marie Bergman - Fruit (1996) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674454.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down with Love [1:36]
-02. Wish Someone Would Care [4:24]
-03. Let Me Be the First to Know [5:42]
-04. Crazy He Calls Me [5:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC403A31230ACD5866794FD08749657612258646
 ```
 
 https://mybot314.ru/tekegram_catalog/

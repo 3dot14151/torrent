@@ -1,3 +1,177 @@
+###  Публикация: 1795331   (67089) от 04.05.2025
+
+Souldrainer - Studio Albums (4 releases) (2007-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Souldrainer - метал-группа из Остерсунда, Швеция, основана в 1999 году.2007 - Reborn
+2011 - Heavens gate
+2014 - Architect
+2022 - DepartureЖанр: Melodic Death MetalПродолжительность: 03:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760D7F93ED04DF444399E2ACCC0E9560CCE2F032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795297   (67080) от 04.05.2025
+
+Arch Enemy - Deceivers (2022) [FLAC|24/96|tracks|Vinyl-Rip] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Handshake With Hell
+02 - Deceivers, Deceivers
+03 - In The Eye Of The Storm
+04 - The Watcher(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4462BA1B631DF2D8E68FCFE6C155D06431F4DFE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795420   (67077) от 04.05.2025
+
+Christopher Cross - Christopher Cross (1979) Expanded Edition, 2025, Warner Records[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soft Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67077.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Say You’ll Be Mine (2019 Remaster)
+02 – I Really Don’t Know Anymore (2019 Remaster)
+03 – Spinning (2019 Remaster)
+04 – Never Be the Same (2019 Remaster)(   Читать дальше...   )Жанр: Soft RockПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2734FBF22D41CFBA6779378FA0CA98EC4EE724E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795502   (67060) от 05.05.2025
+
+Tom Wax - The Future Is Now (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Techno, Hard Trance, House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Tom Wax; Kevin Dukes - The Future Is Now [00:01:46]
+02 - Tom Wax - A Freak Like Me [00:05:28] (FLAC 24/44.1)
+03 - Tom Wax - Followers, Likes & Plays [00:03:18]
+04 - Tom Wax - Afraid of the Dark [00:06:13](   Читать дальше...   )Жанр: Techno, Hard Trance, HouseПродолжительность: 01:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABC2A2EBAC17608C892E214073340527EE13D164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795573   (67049) от 05.05.2025
+
+Augury - Illusive Golden Age (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67049.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Illusive Golden Age (05:50)
+A2. The Living Vault (06:10)
+B1. Carrion Tide (05:04)
+B2. Mater dolorosa (06:54)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:44:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D630BFAD5104F13A26E08EC4358F0DCEB58F6AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795552   (67048) от 05.05.2025
+
+Augury - Concealed (2004) Released, 2022, The Artisan Era [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67048.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Beatus (04:05)
+A2. ...Ever Know Peace Again (03:35)
+A3. Cosmic Migration (05:56)
+A4. Nocebo (05:22)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19E8C4B783D9087F942D866A93BBF0DF7C8B740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795473   (67045) от 05.05.2025
 
 Hate - Bellum Regiis (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Death Metal>
@@ -571,180 +745,6 @@ Leadpetal - Glass Teeth (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEFD28358CD25F061937B642C41C81D67BA36CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796128   (66995) от 08.05.2025
-
-Joharpo - Last Tides of Magnolias (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Poor Boy (1:29)
-02.  Believe (3:44)
-03.  Freight Train (3:58)
-04.  Line of Life (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5E685D5D79675EC96BEC52D7386903DE1C472EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796126   (66994) от 08.05.2025
-
-Joe Marcinek Band - The Groove Session (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Funky G Sus (Fast) (6:59)
-02.  Broad Strokes (7:16)
-03.  Liminal Event (0:55)
-04.  Liminoid (8:11)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A4722C21E2ECD08962313AEC763DE1F85EE672F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796507   (66973) от 10.05.2025
-
-Blood Incantation - Hidden History of the Human Race (2019) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66973.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Slave Species of the Gods (05:29)
-A2. Giza Power Plant (07:04)
-A3. Inner Paths (To Outer Space) (05:37)
-B. Awakening From the Dream of Existence to the Multidimensional Nature of Our Reality (Mirror of the Soul) (18:02)Жанр: Death MetalПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578DEB1B5AED7D68A0E1936AE309196A684FF734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796471   (66962) от 10.05.2025
-
-Manowar - Fighting the World (1987) [DSD128|Lossless|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66962.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fighting The World
-A2. Blow Your Speakers
-A3. Carry On
-A4. Violence And Bloodshed(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9662F3413D5DC4B92BEDD0CADF65ABB745B5A4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796657   (66950) от 11.05.2025
-
-Carrion - Evil Is There (1986) [FLAC|24/96|image + .cue|Vinyl-Rip] <Speed, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66950.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Shark Attack
-A2 Antichrist
-A3 Games Of Evil
-A4 Restless(   Читать дальше...   )Жанр: Speed, Thrash MetalПродолжительность: 00:36:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:961B776B4A590EBFCAA0FCE6F0AD12CD6C7AA0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796610   (66944) от 11.05.2025
-
-Believer - Sanity Obscure (1990) Released 1991, R/C Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive, Technical Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanity Obscure
-02. Wisdom's Call
-03. Nonpoint
-04. Idols of Ignorance(   Читать дальше...   )Жанр: Progressive, Technical Thrash MetalПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4698C29E334DD4E360F1CC314FF5D8395B6BECA
 ```
 
 https://mybot314.ru/tekegram_catalog/

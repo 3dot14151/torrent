@@ -1,3 +1,61 @@
+###  Публикация: 1790911   (67951) от 11.04.2025
+
+VA - Ori Uplift - Uplifting Only Episode 635 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitriy Kuznetsov - Elven Wind (Intro Mix)
+02. illitheas - Moments with You (Maratone Remix) (Orchestral Uplifting Classic)
+03. Cedric Paul & Rowan van Beckhoven - Elysium (Pre-Release Pick)
+04. Whylde featuring London Lawhon - Be My Gravity(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210F6EC89257A43C06950161ACE499E12768F1FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792251   (67745) от 18.04.2025
+
+VA - Ori Uplift - Uplifting Only Episode 636 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Phil Dinner - Epic (Intro Mix)
+02. Tycoos & Daisy Lou - Darkness Into Light
+03. Cedric Paul & Rowan van Beckhoven - Elysium (Fan Favorite (635))
+04. blurrrSAMA - 18TH (REX.W Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E20872821C7946F582AB2FA72F82594D5ED1009F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792377   (67684) от 19.04.2025
 
 YOTTO - Live @ We Belong Here (Historic Virginia Key Beach Park Miami) (2025-03-01) [MP3|320 Kbps] <Melodic House, Techno>
@@ -686,64 +744,6 @@ Markus Schulz - Global DJ Broadcast: Sunrise Set (2025-06-19) [MP3|320 Kbps] <Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95786FE7288722C9A7825891E7910EE0B257F516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803562   (65810) от 24.06.2025
-
-John Summit - Live @ Club Space Miami, United States (2025-05-03) [MP3|320 Kbps] <House, Tech House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Roddy Lima - Night Time
-02.  Shakedown - At Night (Anyma & Layton Giordani Remix)
-03.  SIDEPIECE - ELECTRIC BONGOS
-04.  Cassian - S.O.S(   Читать дальше...   )Жанр: House, Tech House, TechnoПродолжительность: 08:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F97BC5E8EA43AE14A3A89BB8DCE24D60F8EE543
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803716   (65768) от 25.06.2025
-
-GOODBOYS - Live From RADi Club @ INS Land, Shanghai, China (2025-04-30) [MP3|320 Kbps] <Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID w/MEDUZA ft. GOODBOYS - Piece Of Your Heart w/MEDUZA X Becky Hill X GOODBOYS - Lose Control
-02. Twisted Moon - Keep This w/Danny Tenaglia ft. Celeda - Music Is The Answer (Dancin' And Prancin') (Acappella)
-03. Diplo & SIDEPIECE - On My Mind w/Vintage Culture - Fractions
-04. Rebūke - Along Came Polly (Konstantin Sibold & ZAC & CARMEE Remix)(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 01:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357039FE7D219D0A96ABFD078DD3131148EC251D
 ```
 
 https://mybot314.ru/tekegram_catalog/

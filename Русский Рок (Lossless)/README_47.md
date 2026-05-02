@@ -1,3 +1,32 @@
+###  Публикация: 1646978   (231767) от 16.07.2023
+
+Агонист - Мир, которого нет (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Твоя утопия
+02. В агонии
+03. Новый день
+04. По грехам твоим(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:34:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0995D4C5AA71CB8787D9595C4EF854A294B4DA7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1647299   (231686) от 17.07.2023
 
 Forces United - Golden Ballads (2023) [FLAC|Lossless|image + .cue] <Heavy Metal>
@@ -725,35 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17A27F63147E1F127F17C5E5EEB09A6C4554387D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1513291   (225520) от 28.11.2021
-
-Ленинград - Бабье Лето (2006) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. По Пабам
-02. Любовь
-03. Карлсон
-04. Дача(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6B270922D0EB29931ADB4DC8FB6813831DB763A
 ```
 
 https://mybot314.ru/tekegram_catalog/

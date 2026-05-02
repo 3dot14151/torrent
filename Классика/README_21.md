@@ -1,3 +1,32 @@
+###  Публикация: 1026927   (700213) от 17.06.2016
+
+Narcis - Narcis (2016) Limited Edition [FLAC|Lossless|tracks + .cue] <Pop, Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Caruso (3:05)
+02. O Mio Rabbino Caro (2:21)
+03. The Sweetest Kiss Of All (3:13)
+04. Lascia Ch'io Pianga (3:31)(   Читать дальше...   )Жанр: Pop, Classical CrossoverПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4097508498F6D41143C2D896012330FCB5747582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133137   (696787) от 11.05.2017
 
 Jackie Evancho - Two Hearts (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical Crossover, Vocal Pop>
@@ -724,35 +753,6 @@ Royal Philharmonic Orchestra - Symphonic Queen: The Greatest Hits (2016) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED6E89EE892318AD810B93558DE0490871D96A6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223248   (677387) от 03.05.2018
-
-The New London Chorale - The Christmas Album (1989) Reissue [FLAC|Lossless|image + .cue] <Сrossover Classical, Pop>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677387.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.		When A Child Is Born
-2.		Good King Wenceslas
-3.		Amazing Grace
-4.		Panis Angelicus(   Читать дальше...   )Жанр: Сrossover Classical, PopПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3311B14C303711B765CD5D199A09256C11A5D9C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

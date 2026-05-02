@@ -1,25 +1,25 @@
-###  Публикация: 1729480   (108008) от 12.06.2024
+###  Публикация: 1723080   (109554) от 14.05.2024
 
-Amon Acid - Submerging (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Doom Metal>
+Couch Slut - You Could Do It Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <sludge metal>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108008.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109554.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Toad Venom [00:06:53]
-02. Crawling Chaos [00:03:50]
-03. Tetrahydron [00:13:02]
-04. Submerging [00:05:50](   Читать дальше...   )Жанр: Doom MetalПродолжительность: 00:47:53
+01. Couch Slut Lewis [00:03:30]
+02. Ode To Jimbo [00:03:11]
+03. CENSORED [00:05:34]
+04. The Donkey [00:05:16](   Читать дальше...   )Жанр: sludge metalПродолжительность: 00:38:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:78F5D595C55988BA3755DD0744D2845A356BB3C1
+magnet:?xt=urn:btih:07BFA5FB6EEA14374B5B7EE82BF205991001D568
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,57 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729770   (108007) от 12.06.2024
+###  Публикация: 1723145   (109553) от 14.05.2024
 
-Корней Чуковский | Сказки Корнея Чуковского (2005) [MP3, Людмила Лубенская]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108007.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Мир удивительных историй.
-Эта книга для тех, кто любит стихотворные сказки Корнея Ивановича Чуковского (1882–1969).
-Вам предстоит встреча с добрым доктором Айболитом и веселым Мойдодыром, гадким и нехорошим Бармалеем, жадным Крокодилом и с другими героями, полюбившимися не одному поколению детей.
-(   Читать дальше...   )Жанр: Русская литература для детей, классика, сказкаИздательство: Элитайл, СиДиКомПродолжительность: 03:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:575FFFB6446B17B975DA18400B63D40AE8F216C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729712   (108006) от 12.06.2024
-
-Mel Torme - In Person (1962) Remaster, 2024, Warner Music Group [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+Buck Hill - Relax (2006) Severn Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109553.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Putting On the Ritz [00:02:24]
-02. Autumn in New York [00:03:22]
-03. Broadway [00:02:16]
-04. On Green Dolphin Street [00:02:56](   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:38
+01. RH Blues [4:10]
+02. Relax [6:55]
+03. Old Folks [8:30]
+04. Little Bossa [7:55](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:51:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F2BD70D15062387C3CF50D562EA833D3F4F0C44
+magnet:?xt=urn:btih:47F7608AFC78F650BC644B77D54620885D64F890
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729495   (108005) от 12.06.2024
+###  Публикация: 1723438   (109552) от 15.05.2024
 
-Fjaak - Fjaak The System (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Techno>
+Microsoft Visual Studio 2019 Enterprise 16.11.36 (Offline Cache) [Ru/En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108005.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109552.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unity [00:00:58]
-02. And You Feel [00:03:21]
-03. Redemption [00:05:23]
-04. Horsepower [00:03:35](   Читать дальше...   )Жанр: TechnoПродолжительность: 01:16:44
+Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления имиЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7B2737E59E16BA815683A2E11EB998A2A6BCE50D
+magnet:?xt=urn:btih:93E6E4EEA788772F771E1D2EB21DEB5BD86A806A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +82,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729596   (108004) от 12.06.2024
+###  Публикация: 1722534   (109551) от 15.05.2024
 
-Hilltop Howlers - Alright, Alright! (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+Asian Meditation - Meditationsmusik (2007) [WavPack|Lossless|image + .cue] <Relax>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108004.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109551.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Procrastinator (2:38)
-02. Boys Don’t Lie (4:57)
-03. Face Of Jimmy (3:23)
-04. Get It On! (3:21)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:38:36
+01. Eststic Fullness Experiense. . .37:20
+02. To Tusan Takk. . . . . . . . . .04:40
+03. The Light Behind Dark Clouds . .23:50Жанр: RelaxПродолжительность: 01:05:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60256C0F45826A5DD7D56E74DD586E2D01A583A8
+magnet:?xt=urn:btih:39876765DE500BE78F02B629A0A12A3195134691
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,28 +110,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729693   (108003) от 12.06.2024
+###  Публикация: 1723420   (109550) от 15.05.2024
 
-Mortician (Austrian) - Studio Albums (4 releases) (2011-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+Opera One 110.0.5130.23 Portable by Cento8 [Ru/En]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108003.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109550.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Mortician - австрийская хэви-метал группа из Саттайнса и Фельдкирха, Форарльберг.2011 - Mortician
-2014 - Shout For Heavy Metal
-2020 - Titans
-2023 - 40 Years Of MetalЖанр: Heavy MetalПродолжительность: 02:33:14
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A30FF7E4D978422842777F0D8494B9A369EA02B4
+magnet:?xt=urn:btih:EBB547224CC20913441479A5A7912FECB86A71C9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -172,27 +136,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729766   (108002) от 12.06.2024
+###  Публикация: 1723375   (109549) от 15.05.2024
 
-Корней Чуковский | Лучшие стихи для детей (2007) [MP3, Клара Румянова и др.]
+VA - We Love Synthpop (2014) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Electropop, Futurepop>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108002.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109549.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Корней Иванович Чуковский (1882–1969). Настоящее имя – Николай Васильевич Корнейчуков. Русский писатель, поэт, переводчик, историк литературы.
-В книге собраны лучшие стихотворения детского писателя Корнея Ивановича Чуковского: «Муха-Цокотуха», «Телефон», «Мойдодыр»...
-CD-диск с записью стихов в исполнении Клары Румяновой, Ирины Муравьевой, Валентина Гафта, Алексея (   Читать дальше...   )Жанр: Русская литература для детей, классика, стихиИздательство: Студия «Самовар»Продолжительность: 00:45:17
+01. Bradley - Reaction (Original Mix) (5:19)
+02. vanished - Lighthouse (Original Mix) (3:38)
+03. ETH - No Room For Me (Original Mix) (4:51)
+04. Cold Connection - Arrival (Original Mix) (3:50)(   Читать дальше...   )Жанр: Synthpop, Electropop, FuturepopПродолжительность: 02:25:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D19AAD5D3EDB1443B7017E14B0EE4CA87DAFD161
+magnet:?xt=urn:btih:14CA83A879642BC4C8AC1A395324AA37179DB2CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -200,28 +165,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729733   (108001) от 12.06.2024
+###  Публикация: 1723385   (109548) от 15.05.2024
 
-Xaon - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Death Metal>
+Microsoft .NET 6.0.30 Runtime [Ru/En]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108001.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109548.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Xaon — швейцарская метал-группа, образованная в 2014 году.2016 - Face of Balaam (EP)
-2017 - The Drift
-2019 - Solipsis
-2022 - The LetheanЖанр: Symphonic Death MetalПродолжительность: 02:48:31
+Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
+С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:394D61CC015C19CB232D84A4F13B65C5D0B08831
+magnet:?xt=urn:btih:431DD3C7F1188E9D1A697651E24F8AA7FB51AD62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -229,28 +192,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729408   (108000) от 12.06.2024
+###  Публикация: 1723333   (109547) от 15.05.2024
 
-Libra - Follow The Light (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Perfectly Clear WorkBench 4.6.1.2660 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108000.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109547.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Journeying [00:03:39]
-02. Live Yourself [00:04:22]
-03. My Shining Soul [00:03:35]
-04. I'll Breathe For Me [00:04:24](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:03
+Perfectly Clear — приложение, которое позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D7CE32EEE15B4D7AD3CA5C4EF59E11200AD17B75
+magnet:?xt=urn:btih:9AB2F581EA98D86DEBB7E4AB9F096D39961C18B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -258,28 +219,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729588   (107999) от 12.06.2024
+###  Публикация: 1723383   (109546) от 15.05.2024
 
-When Nothing Remains - Studio Albums (3 releases) (2012-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic/Doom/Death Metal>
+Microsoft .NET 8.0.5 Runtime [Ru/En]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107999.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109546.jpg" />
 </div>
 
 
 ###  Подробнее
 
-When Nothing Remains - шведская дум/дэт-метал группа, в которую входят участники таких групп, как Nox Aurea, The Cold Existence, Rimfrost, Draconian, Doom: VS.
-Идея When Nothing Remains родилась в конце 2010 года, когда Питер Лаустсен «Rimfrost, Nox aurea, The Cold Existence» и Ян Салландер «The Cold Existence» захотели создать что-то очень мрачное и эмоциональное. (   Читать дальше...   )2012 - As All Torn Asunder
-2013 - Thy Dark Serenity
-2016 - In MemoriamЖанр: Gothic/Doom/Death MetalПродолжительность: 03:06:14
+Пакеты .NET Runtime и .NET Desktop Runtime содержат все необходимые компоненты для разработки и запуска приложений, разработанных в среде Microsoft .NET Core.
+С помощью среды разработки .NET, можно создавать различные приложения, включая веб-приложения и игры. Такие приложения могут быть разработаны для всех распространённых платформ: Windows, Android, iOS, MacOS (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:88278C64D1AB5C7A3E29DF0125E67A0C6DC749A7
+magnet:?xt=urn:btih:51E063DF9284141906975EF26C9118A9DFF5F011
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -287,28 +246,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729921   (107998) от 13.06.2024
+###  Публикация: 1723262   (109545) от 15.05.2024
 
-Shred - What They Say (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Игорь Вагин | Бизнес-тренинги. Как разработать, продать и провести (2024) [MP3, Маркиза]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Обучающие аудиоматериалы
+>>Бизнес и Менеджмент (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107998.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109545.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. What They Say (4:51)
-02. Nobody Knows Me (4:29)
-03. The Ride (3:39)
-04. Monster (4:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:40
+В книге подробно описан поэтапный процесс разработки программы тренинга от сценария и до режиссуры, включая психологическую и профессиональную подготовку самого тренера. Вторая часть книги посвящена базовым компетенциям тренера, инструментам проведения тренинга. Работе со сложными заказчиками и участниками тренинга. Как преодолеть сопротивление на тренинге и управлять (   Читать дальше...   )Жанр: БизнесИздательство: Аудиокнига своими рукамиПродолжительность: 16:06:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C3B7A544944D849486552D933115989F56D7DDD
+magnet:?xt=urn:btih:A1F48E4953782231D207914221015F14D0799CE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,28 +272,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729933   (107997) от 13.06.2024
+###  Публикация: 1723241   (109544) от 15.05.2024
 
-Ensiferum - Iron (2004) Remastered, 2014, Blood Music[FLAC|24/192|image + .cue|Vinyl-Rip]  <Epic Folk Metal>
+FanControl V190 + Portable [En]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107997.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109544.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Ferrum Aeternum
-A2 Iron
-A3 Sword Chant
-A4 Mourning Heart - Interlude(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 00:48:29
+FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7454BBFA23C158F5DA11FF22A25A741672747478
+magnet:?xt=urn:btih:0A365D368E54BD91189B64ED6005FC3D44A036B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,28 +298,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729741   (107996) от 13.06.2024
+###  Публикация: 1723226   (109543) от 15.05.2024
 
-Kickhunter - Greatest Kicks (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+Ventusky: Прогноз погоды v34.0 Mod by Alex.Strannik [Ru/Multi]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107996.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109543.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wild Emotions (Remix 2024) (3:31)
-02. Mine All Mine (Remastered 2024) (4:00)
-03. This Summer (3:48)
-04. To Hell and Back Again (Remix 2024) (3:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:51
+Приложение сочетает в себе классический прогноз погоды для определенного местоположения с картой, которая демонстрирует изменение погоды на более обширной территории. Это позволяет увидеть, откуда идут осадки или дует ветер. Уникальность приложения заключается в большом количестве отображаемых данных. Просматривая погоду, вы сразу узнаете прогноз осадков, скорости (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 14.05.2024Разработчик: InMeteoПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D08C4DA14E0D6EE5FD8C42D876271004C4CC5487
+magnet:?xt=urn:btih:B749D1C33AD8CCA494C8AB0F5CE526AE4DA631FD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -374,28 +324,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729739   (107995) от 13.06.2024
+###  Публикация: 1723417   (109542) от 15.05.2024
 
-Gustaf Westin featuring AGFF - Piece by Piece (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+Opera One 110.0.5130.23 + Portable [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107995.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109542.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Pressure (4:01)
-02. Messed Up Mind (4:42)
-03. Paria (3:37)
-04. Cotton Bear Road (4:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:29:11
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1322660EE3CB12F4DF7801A4401C1F6601413873
+magnet:?xt=urn:btih:24252847774AD4E13C682F763342F2E8A5DAE71D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,28 +350,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729959   (107994) от 13.06.2024
+###  Публикация: 1723246   (109541) от 15.05.2024
 
-Olshanoe - Как Велик И Печален Мир (2023) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Folk Metal, Ambient>
+RSS Guard 4.7.0 + Portable [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107994.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109541.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Зима Р-254
-A2 - Лён
-A3 - Плач Нау
-B1 - Последнее Лето Детства(   Читать дальше...   )Жанр: Atmospheric Black Metal, Folk Metal, AmbientПродолжительность: 00:40:23
+RSS Guard — простое C++ / QT графическое приложение для чтения новостных лент (RSS-каналов).
+RSS Guard предоставляет строгий и лаконичный пользовательский интерфейс (есть возможность изменения темы оформления), поддерживаются все наиболее распространённые форматы лент новостей (RSS, Atom, PDF и др) и предоставляет функциональные возможности присущие большинству RSS-агрегаторов, (   Читать дальше...   )Язык интерфейса: Русский, английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92E7E2FE5A7C240A4962C3D616519224A4BE9F63
+magnet:?xt=urn:btih:73DF794577C8865F9FB5258D245206FDED807B06
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -432,28 +377,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729882   (107993) от 13.06.2024
+###  Публикация: 1723440   (109540) от 15.05.2024
 
-Velvet Meadow - Velvet Meadow (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedeleic, indie rock, Space Rock>
+Microsoft Visual Studio 2022 Enterprise 17.9.7 (Offline Cache) [Ru/En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107993.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109540.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Cant Be Late (00:05:18)
-02 - Spring Song (00:04:55)
-03 - I Dont Like Money Anyways (00:03:48)
-04 - Colours (00:03:36)(   Читать дальше...   )Жанр: psychedeleic pop, indie rock, fadeaway, Space RockПродолжительность: 00:51:18
+Visual Studio Enterprise 2022 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EE8A8F8CCE1D2628FF4F26370686CB51B70E23BC
+magnet:?xt=urn:btih:520B1C7F4A0A2EBD4714EA918D42D73A8460B320
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -461,28 +403,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729920   (107992) от 13.06.2024
+###  Публикация: 1723314   (109539) от 15.05.2024
 
-Nestor (Néstor) - Teenage Rebel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Ashampoo WinOptimizer 27.00.02 Portable by 7997 [Multi/Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107992.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109539.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Law Of Jante (feat. Freya Miller) (1:27)
-02. We Come Alive (3:29)
-03. Teenage Rebel (4:32)
-04. Last To Know (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:52
+Windows хороша, но всегда есть, что улучшить. Вот тут то и появляется Ashampoo WinOptimizer 27! Потому что операционные системы со временем становятся медленнее, менее стабильными и захламлённее. А важные настройки или пропадают, или скрываются где-то в глубине системы. И ещё это постоянное вторжение в личную жизнь, появившееся в Windows 10 и 11, эвфемистически называемое (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:241DABD4B532719039C99F6B964B114BB527C1A5
+magnet:?xt=urn:btih:2FE82F4AEF916360695642A25D73747CAD71DFD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -490,28 +429,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729887   (107991) от 13.06.2024
+###  Публикация: 1723194   (109538) от 15.05.2024
 
-Velvet Meadow - Never Want To Leave My Head (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <psychedeleic pop, indie rock, fadeaway, Space Rock>
+VA - The Best of Italo Disco, Vol. 3 (2011) [FLAC|Lossless|WEB-DL|tracks] <Disco, Funk>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107991.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109538.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - If She Really Loved Me (00:04:40)
-02 - Slow Down (00:03:39)
-03 - My Reasons Why (00:05:03)
-04 - IVe Come To Realize (00:05:12)(   Читать дальше...   )Жанр: psychedeleic pop, indie rock, fadeaway, Space RockПродолжительность: 01:15:27
+01. Patty Johnson - I'm In Love (Europe Version) (6:03)
+02. Jimmy Ross - First True Love Affair (Larry Levan Remix) (7:09)
+03. International Music System - Dancing Therapy (128 Bpm) (6:05)
+04. Tom Hooker - Love Attack (Extended Mix) (5:25)(   Читать дальше...   )Жанр: Disco, FunkПродолжительность: 01:58:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CC2DC8C0247DB941D89C810DEB0CE838D4A9C036
+magnet:?xt=urn:btih:0E2938F1514B387EC76DE7352D3FFFFBC41C5B51
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -519,28 +458,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729812   (107990) от 13.06.2024
+###  Публикация: 1723376   (109537) от 15.05.2024
 
-Hypersonic - Existentia (2016) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy, Power Metal>
+Чистильщик бассейнов / Poolman (2023) TS [H.264] [звук с TS] [AD]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107990.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109537.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The First Sound of Life (Principium)
-02. The Eyes of the Wolf
-03. As an Angel
-04. Blind Sins(   Читать дальше...   )Жанр: Melodic Heavy, Power MetalПродолжительность: 01:10:22
+Лос-Анджелес. Даррен работает чистильщиком бассейна в многоквартирном доме в престижном районе. Однажды он решает, что наткнулся на величайший заговор, и начинает собственное расследование, привлекая к этому коррумпированные городские власти, прожженных типов из Голливуда и таинственных благотворителей.Производство: США /  Barry Linen Motion Pictures, Brickell & Broadbridge International (BBI), Catchlight StudiosЖанр: комедия, детектив, криминалРежиссер: Крис ПайнАктеры: Крис Пайн, Дженнифер Джейсон Ли, Дэнни ДеВито, Аннетт Бенинг, Афламу Джонсон, Стивен Тоболовски, Джон Ортис, Эрми Хикс мл., Холлис В. Чэмберс, Кристофер ЧенПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:34:26Реклама: Плавающий баннер
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A920003590971BD54B731444C1B7A7A7BA2BC6B1
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -548,28 +484,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729972   (107989) от 13.06.2024
+###  Публикация: 1723345   (109536) от 15.05.2024
 
-Ron Jameson Project - CrossRoad Blues: Rock'n'Roll for the King of Kings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Журнал | Психология и Я №05 (158) (май 2024) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107989.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109536.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Got to Get in Touch (2:41)
-02. Prodigal Son (4:50)
-03. Don't Be Dismayed (MD) (5:37)
-04. Walkin' Shoes (2:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:14
+Журнал для тех, кто любит жизнь, стремится к гармонии с окружающим миром и с самим собой. Главная тема каждого номера – взаимоотношения между мужчиной и женщиной, родителями и детьми. С помощью профессиональных психологов и жизненного опыта самих читателей Вы найдете ответы на сложные жизненные вопросы. В каждом номере Вас ждут советы и рекомендации, которые помогут (   Читать дальше...   )Жанр: ПсихологияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50C8C24A65B34F1ED9A153905EE8F0BBC5A3EAA4
+magnet:?xt=urn:btih:FA76C27A1902CC59E8E700C8F139115428C05EA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -577,28 +510,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729925   (107988) от 13.06.2024
+###  Публикация: 1723321   (109535) от 15.05.2024
 
-The Dead Daisies - Resurrected, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+Журнал | Лечитесь с нами №5 (221) (май 2024) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107988.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109535.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mine All Mine (3:33)
-02. How Does It Feel (3:09)
-03. Last Time I Saw The Sun (4:13)
-04. Mainline (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:59:50
+Журнал «Лечитесь с нами» - уникальное издание о здоровье. Каждый номер составляется по письмам читателей. На страницах представлены подборки советов и рекомендаций по лечению трёх конкретных заболеваний, перечень которых анонсируется заранее. В журнале также есть раздел, посвящённый здоровью детей, — «Румяные щёчки». Самые свежие читательские письма публикуются в (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6EE1F0D13B221DE459919371132A539FFEA78ADE
+magnet:?xt=urn:btih:D1F520A7CCCEF822FA949D8E18375F7E3C36DE05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -606,28 +536,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729935   (107987) от 13.06.2024
+###  Публикация: 1723413   (109534) от 15.05.2024
 
-Самуил Маршак | На улице Бассейной (1996) [MP3, Олег Басилашвили и др.]
+Soul Browser 1.4.19 Mod by AnBo39 [Ru/Multi]
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107987.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109534.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Самуил Яковлевич Маршак (1887–1964) советский поэт, драматург, переводчик, литературный критик.
-Самые любимые стихи Самуила Яковлевича Маршака в исполнении знаменитых актеров Олега Басилашвили Николая Литвинова, Зои Бокаревой и др.
-
- Самуил Маршак на NoNaMe ClubЖанр: Русская литература для детей, классика, стихи, сказкаИздательство: Inner Circle RecordsПродолжительность: 00:51:07
+Soul Browser - добротный браузер, что несмотря на своё минималистичное визуальное исполнение весьма функционален. И ко всему прочему прилагает максимум усилий для того, чтобы пользователи не сталкивались с различными трудностями и ненужными им факторами. Автоматическая борьба с рекламой, встроенная качалка, видеоплеер, тонкая настройка управления (есть поддержка (   Читать дальше...   )Тип издания: ModРелиз состоялся: 12.05.2024Разработчик: SoulSoftПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE713456B163352F9C4E5179CFFD4A4E9D0024FC
+magnet:?xt=urn:btih:B3DA21A36EA8D908F32704BA21CABD36360264B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +562,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729737   (107986) от 13.06.2024
+###  Публикация: 1723326   (109533) от 15.05.2024
 
-Blitz - Kicking Up A Storm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Журнал | Домашние цветы №5 (200) (май 2024) [PDF]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107986.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109533.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Break Neck (3:12)
-02. Shell Shock (3:15)
-03. C.O.G (3:04)
-04. Keep Moving On (3:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:28
+Журнал для настоящих любителей комнатных цветов. На страницах издания вы узнаете как добиться более быстрого и пышного цветения, защитить любимые растения от болезней и вредителей, размножить наиболее простым и эффективным способом. Своим личным опытом выращивания и ухода за цветами делятся цветоводы-любители и профессионалы — кандидаты и доктора биологических наук.Жанр: ЦветоводствоИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FA5DB3763A11C73193CB6D7AA7663BA275B4AB6
+magnet:?xt=urn:btih:923759E77DDD0DF09F55D3A1BA07892FD518FC7E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,28 +588,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729924   (107985) от 13.06.2024
+###  Публикация: 1723386   (109532) от 15.05.2024
 
-Wildstreet - IV (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Филип Фармер | Только во вторник (2022) [MP3, Puffin Сafe]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109532.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Heroes (3:10)
-02. Sick to Death (4:27)
-03. Won't Be Apart (3:58)
-04. Come Down (4:04)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:04
+"Том родился и прожил всю свою жизнь во вторнике. Однажды сгорел его дом, и переехав в новый, он увидел в сомнамбулической капсуле девушку, в которую влюбился с первого взгляда. Проблема в том, что те несколько часов, что разделяли его мир вторника и ее мир среды, были совершенно непреодолимой пропастью." (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:34:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9338A2ACA68C52BB9B53ED6EA8CB2F5F0E5A6E1
+magnet:?xt=urn:btih:87AB2888472986F7D67551125D8EC68A32854B83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,28 +614,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729749   (107984) от 13.06.2024
+###  Публикация: 1723426   (109531) от 15.05.2024
 
-Grand Slam - Wheel Of Fortune (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Opera GX 109.0.5097.90 + Portable [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107984.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109531.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. There Goes My Heart
-02. Starcrossed Lovers
-03. Come Together (In Harlem)
-04. Trail Of Tears(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:52
+Opera GX - это специальная версия браузера Opera, созданная служить дополнением к геймингу. Браузер включает в себя уникальные функции, которые помогут вам получить максимум от игр и просмотра веб-страниц в интернете.
+Ещё недавно можно было выбрать и настроить Светлую тему в браузере.
+Но вот зачем-то разработчики отказались от этой функции (впрочем, она уже вернулась!). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBF60F55DDD2E75E706B586BC86FC01DC12B8D92
+magnet:?xt=urn:btih:21275AE4B8DC5E9B38169A91D9E7CC38F0DAFA3B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -722,28 +642,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729754   (107983) от 13.06.2024
+###  Публикация: 1723344   (109530) от 15.05.2024
 
-Hour of Penance - Paradogma (2010) [FLAC|Lossless|image + .cue] <Technical, Brutal Death Metal>
+HWiNFO 8.03 Build 5445 Beta Portable [Multi/Ru]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109530.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paradogma
-02. Thousands of Christs
-03. The Woeful Eucharisty
-04. Malevolence of the Righteous(   Читать дальше...   )Жанр: Technical, Brutal Death MetalПродолжительность: 00:37:34
+HWiNFO32/64 - мощный информационный инструмент, который собирает важные данные о состоянии аппаратных частей компьютера, включая процессоры, видеокарты, RAM, жёсткие диски, сетевые карты, адаптеры, показания датчиков и т.д. Инструмент поставляется как в установочном варианте, так и портативном.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:934BF875B24F337A1C1D52B20683D267086AF1B6
+magnet:?xt=urn:btih:EC11F60612D805FE9E0982D1C3DDB24C7E7290A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723238   (109529) от 15.05.2024
+
+Vivaldi 6.7.3329.29 include standalone [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53B2E4B71B2C2A25E41CBBE9B182F1CF79257A63
 ```
 
 https://mybot314.ru/tekegram_catalog/

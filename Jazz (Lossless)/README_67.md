@@ -1,3 +1,61 @@
+###  Публикация: 1384799   (801679) от 21.05.2020
+
+Aardvark Jazz Orchestra - Faces of Souls (2020) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Free Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Meltdown (3:57)
+02. Sisyphus (7:05)
+03. Consecration (11:56)
+04. Greta (8:13)(   Читать дальше...   )Жанр: Contemporary Jazz, Free JazzПродолжительность: 01:10:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00A9E898200B2670FF8D21F930FB5DF5A18DB5ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120689   (801287) от 01.04.2017
+
+Erroll Garner - Soliloquy & At The Piano (1953, 1957) 1989, CBS Records [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.You'd Be So Nice To Come Home To [06:26]
+ 02.No More Time [06:37]
+ 03.I Surrender Dear [06:55]
+ 04.If I Had You [04:32](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:14:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F14283DEEA717BA49C7D53BC39DF0BA4160D8CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120695   (801285) от 01.04.2017
 
 Erroll Garner - Overture To Dawn: The Apartment Sessions, Vol. 1 (1944) 1995, Charlie Records [FLAC|Lossless|image + .cue] <Swing, Piano Jazz>
@@ -687,64 +745,6 @@ Stephane Grappelli - Le Toit de Paris (1969) 2002, RCA Victor [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0223119657B00EFD9CD5238F6A6E2117BA3072D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121871   (799691) от 03.04.2017
-
-The Buddy DeFranco (De Franco) Quartet - Jazz Tones (1954) Remaster, 2012, Universal [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.When Your Lover Has Gone [06:33]
- 02.The Things We Did Last Summer [08:04]
- 03.Jack The Field Stalker [03:08]
- 04.If I Should Lose You [04:25](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97C30F5F598118DAA203F53BC01BFDE6818211AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1121843   (799689) от 03.04.2017
-
-Art Pepper & Ted Brown - The Complete Free Wheeling Sessions (1956) 2006, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Aretha [05:03]
- 02.Long Gone [04:54]
- 03.Once We Were Young [03:52]
- 04.Foolin Myself [04:37](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:17:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C9175CADB4718623E4D60CE8691D7DFF3DDA5E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

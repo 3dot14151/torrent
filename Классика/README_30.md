@@ -1,3 +1,38 @@
+###  Публикация: 539371   (502009) от 30.08.2012
+
+VA - The Top 100 Masterpieces Of Classical Music: 1685-1928 (1991) [FLAC|Lossless]<Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_502009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Also Sprach Zarathustra - Fanfare [01:31]
+Orchestra – Hungarian State Orchestra Written-By – R. Strauss
+02. Symphony No. 5 - Adagietto [09:42]
+Orchestra – Budapest Festival Orchestra Written-By – Mahler
+03. Finlandia [08:58]
+Conductor – Rouslan Raychev Orchestra – Plovdiv Philharmonic Orchestra Written-By – Sibelius
+04. Dance Of The Bunble Bee [01:45]
+Cello – Miklos Perenyi Piano – Zoltan Kocsis Written-By – Rimsky-Korsakov
+05. Meditation, From "Thais"[05:05]
+Orchestra – Budapest Philharmonic Orchestra Written-By – Massenet(   Читать дальше...   )Жанр: ClassicalФормат: 10 CD BoxSetПродолжительность: 01:06:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BF198D54050AAE1F29390D91B3412EEB76E5C96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 541285   (500824) от 31.08.2012
 
 Антонио Вивальди - Концерты "Времена года" (2008) [MP3|320 кб/с]<Классическая музыка>
@@ -760,35 +795,6 @@ Christian Grovlen - BACH - Inside Polyphony (2017) [MP3|320 Kbps] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4E3E8C5200062361F41430987F92D239289B451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937665   (481722) от 18.09.2015
-
-Andrew Lloyd Webber - The Phantom of the Opera (1987) [FLAC|(image+.cue)]<Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OperaПродолжительность: 00:46:24
-
-01 - Entr'acte - Act Two - Six Months Later
-02 - Masquerade ; Why So Silent(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E3A807C2DA995FB6AD0C23BC0830ABC2B2E1279
 ```
 
 https://mybot314.ru/tekegram_catalog/

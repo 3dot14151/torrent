@@ -1,3 +1,125 @@
+###  Публикация: 1297015   (606557) от 20.04.2019
+
+VA - Music for Car 12 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Papa Roach - Elevate
+02. Emin - Bring Me Home
+03. Ava Max - Sweet But Psycho
+04. Meghan Trainor - ALL THE WAYS(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384778E792F25A0999DC378D0DE331635A218054
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297016   (606427) от 20.04.2019
+
+VA - Music for Car 13 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amy Shark - I Said Hi
+02. Dido - Hell After This
+03. Maxthor - Run
+04. Bebe Rexha - I'm A Mess(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC3793A906071F0CC58891D1878162DDAF9DE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546516   (605936) от 24.04.2022
+
+La Bionda - Compilation (2022) [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sandstorm
+02. So Sad
+03. Tutto Va Benne
+04. You're So Fine(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:19:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB316C9A40CA3E875F6AF6D1D9EEE4B335D206F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525506   (605781) от 22.07.2012
+
+VA - Хитовые летние треки (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Пропаганда & MC Джимми - Хабиби
+02. Tune Up Vs. Italobrothers - Colours Of The Rainbow (Alex Ch Remix 2K12)
+03. Размер Project - My Moscow Love
+04. Вирус - За Тобой
+05. E - Rotic - Sexual Healing
+06. Серебро - Мальчик
+07. Ольга Плотникова - Лето
+08. Gazebo - Tears For Galileo (Dancefloor Radio)
+09. Дима Билан - Так не бывает
+10. Fancy Ft. Sabrina - Flames Of Love(   Читать дальше...   )Жанр: PopПродолжительность: 05:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DE27A821069D964B8A6E6EAF7A21984EDAC73B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 525514   (605564) от 22.07.2012
 
 VA - Отдыхай на любимой волне Europa Plus (2012) [MP3|256 кб/с]<Pop>
@@ -638,119 +760,6 @@ VA - Пляжная 100-ка (2011) [MP3|256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CD42BC50BA7804A70D530BFFE644975A066297D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356778   (597045) от 29.06.2011
-
-VA - Мамы Дома Нет (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 11:46:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47E9971BB7E5624F21407109EAC21B9F88CBB1CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150013   (596332) от 13.07.2017
-
-VA - MTV Top 100 Single Charts (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596332.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Luis Fonsi feat. Daddy Yankee - Despacito  3:48
-002.  Robin Schulz - Ok (feat. James Blunt)  3:09
-003.  Jonas Blue feat. William Singe - Mama  3:03
-004.  DJ Khaled - Wild Thoughts (feat. Rihanna & Bryson Tiller)  3:25(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:53:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9787B35312D3D000B5C5DDC77A318A9629170A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548637   (596194) от 04.05.2022
-
-Jennifer Rush - Compilation (2022) [MP3|320 Kbps] <Pop, Synth-Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Than Words
-02. A Touch of Paradise
-03. A Broken Heart
-04. Nights in White Satin(   Читать дальше...   )Жанр: Pop, Synth-PopПродолжительность: 02:07:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E751F2134E9C44ABDD5322287C134946BB301733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299772   (596059) от 03.05.2019
-
-VA - Top 100 UK Chart 01.05.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596059.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Stormzy - Vossi Bop
-002. Lil Nas X - Old Town Road
-003. Lewis Capaldi  Pete Kelleher  Tom Barnes  Phil Cook  Benjamin Kohn - Someone You Loved
-004. Billie Eilish - bad guy(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6803DF0F0E36DC9D2EF8FE529662064EC3CB2674
 ```
 
 https://mybot314.ru/tekegram_catalog/

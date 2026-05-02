@@ -1,3 +1,32 @@
+###  Публикация: 1134994   (684865) от 17.05.2017
+
+VA - Acoustic Classics. Rock Anthems (2017) [MP3|320 Kbps] <Rock, Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Graham BLVD - Wild World
+02. The New Merseysiders - Norwegian Wood
+03. Graham BLVD - My Sweet Lord (From "Guardians of the Galaxy 2")
+04. Laura Stein - Where You Lead(   Читать дальше...   )Жанр: Rock, AcousticПродолжительность: 01:27:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11549ACD2132F4F3020FEBCC3609B63BB8A4C809
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1289846   (684335) от 17.03.2019
 
 Visitor 2035 - Visitor 2035 (1978) LP [MP3|320 Kbps] <Electronic, Rock, Prog Rock,  Jazz>
@@ -741,35 +770,6 @@ Curly Curve - Curly Curve (1973) Reissue, 1998, Repertoire Records [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D76F802A91EFB2C97EE351770E3A2E7F54FDFAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031217   (668504) от 03.07.2016
-
-Nick Johnston - Atomic Mind (2014) [MP3|320 Kbps] <Instrumental Guitar Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atomic Mind
-02. Ghost of the Robot Graveyard
-03. Last Deals of Dead Men
-04. Silver Tongued Devil(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F1D7B52889D09CA080482BDBF870B35E9D3FF27
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,89 @@
+###  Публикация: 974574   (975575) от 12.01.2016
+
+VA - Зимний марафон № 218: Зимняя волна новинок (2015-2016) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975575.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние (11.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Amna ft. Robert Toma - In oglinda (Marc Rayen and Electric Pulse Remix) (Official Video) (00:03:31)
+02. Bahh Tee - Взрослеем (С днём рождения) (Премьера!) (00:03:53)
+03. Cardiknox - On My Way (Official Video) (00:04:09)
+04. Cee Jay ft Laurish - Ar Dae Wonder (Official Video) (00:04:19)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, Шансон, House, TranceПродолжительность: 01:27:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D452665C4A2943974F06C4120C9A47CD6D2570E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356783   (975530) от 02.02.2020
+
+U-ka saegusa IN db Film Collection Vol.1 -Shocking Blue- (2003) DVDRip [H.264/480p]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975530.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый DVD группы U-ka saegusa IN db, содержит коллекцию клипов и запись двух живых выступлений.
+
+Источник: лицензионный DVD5VIDEO CLIPПроизводство: Япония, B-VisionЖанр: J-PopСубтитры: отсутствуютПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8828D1AAC427B78C977F18CEB6CB8E4CB1D7E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1354843   (975453) от 02.02.2020
+
+Behemoth - 6 Music Videos (2011-2020) WEB-DL [H.264|VP9/2560p/1080p/720p-LQ] <Death Metal, Black Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975453.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011 Behemoth - Lucifer (Uncensored) (1280 x 720).mp4
+2019 Behemoth - Bartzabel (1920 x 1080).mkv
+2019 Behemoth - Sabbath Mater (2560 x 1440).mkv
+2019 Behemoth - Wolves Ov Siberia (Radio 1 Session) (1920 x 1080).mkv(   Читать дальше...   )Жанр: MetalПродолжительность: 00:35:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CF6D6ADC1892DC95DE91088E1FFCA820422CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 615824   (975066) от 10.02.2013
 
 Alice Cooper - Live at Montreux (2005) BDRip
@@ -650,93 +736,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E14DFE4BACEA9B9948B0ED99B805A5166187042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975752   (970575) от 16.01.2016
-
-VA - Зимний марафон № 219: Самые сливки Нового года (2015-2016) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_970575.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зимние (15.01.2016) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Adriana - Just stay (Official Video) (00:03:03)
-02. Arash - Ba Man Soot Bezan (Official Video) (00:03:54)
-03. Barbee - Stranger (Official Video) (00:03:22)
-04. Catey Shaw - The Ransom (Official Video) (00:03:56)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Reggaeton, House, Trance, Indie, PunkПродолжительность: 01:24:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A7ACD558D137A28D2B2CB5BFC4644DAF5EF3A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744975   (969951) от 12.01.2014
-
-Океан Ельзи (Океан Эльзы) - Концерт на чемоданах (31.12.2013) HDTV [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969951.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главная группа Украины 24 декабря 2013 года дала предновогодний живой концерт в российском аэропорту Шереметьево в канун Нового года. В зоне вылета терминала D внутренних воздушных линий с девятью песнями выступили украинские «Океан Эльзы». Концерт, организатором которого стал независимый российский телеканал «Дождь», начался в 16.00 по московскому времени и длился (   Читать дальше...   )1. Там, де нас нема
-2. Джульєтта
-3. Відчуваю
-4. На небi(   Читать дальше...   )Телекомпания: Россия, т/к ДождьЖанр: Rock, концертПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5666532FA15E1C1967D16A762E0E620D24679B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975842   (969726) от 17.01.2016
-
-Adam And The Ants - Live In Tokyo (1981) VHSRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stand And Deliver
-02 - Magnificent Five
-03 - Ant Music
-04 - Don't Be Square Be There(   Читать дальше...   )Производство: UKЖанр: Post Punk , New WaveАктеры: Adam Ant, Marco Pirroni, Gary Tibbs, Terry Lee Miall, Chris "Merrick" HughesПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BB6B1D9F71739A350778B1A41715F678CAE5087
 ```
 
 https://mybot314.ru/tekegram_catalog/

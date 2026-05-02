@@ -1,3 +1,119 @@
+###  Публикация: 1622402   (1030268) от 28.03.2023
+
+VA - Lounge & Coffee, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo, Balearic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulavenue,Tamy - Cidade Sol (3:40)
+02. Can Blue - Katja's Dream (4:11)
+03. Karen Gibson Roc - Beautiful Flower (4:34)
+04. Jane Maximova,Dmirty Raschepkin - Morning Bird (5:53)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, BalearicПродолжительность: 02:16:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6631048DA2F769F553A4152A203CDABE6FF0D7C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449145   (1030242) от 20.02.2021
+
+VA - Ambient Lounge 15 (2012) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip Hop, House, Lounge, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moby - Lie Down In Dark (Radio Edit) (03:28)
+ 02. Afterlife - Let It Go (Original) (05:20)
+ 03. Wayne Martin feat. DJ Friction - Diary (04:31)
+ 04. Starbossa - Spacer (04:32)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Trip Hop, House, Lounge, Ambient •Продолжительность: 02:36:43 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:458113C1F424EA18588DDF0531FB4A1BABC5A36C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449144   (1030241) от 20.02.2021
+
+VA - Ambient Lounge 16 (2013) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip Hop, House, Lounge, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fritz Kalkbrenner - Sideways & Avenues (06:38)
+ 02. Visitor - Comin Home (Oliver Moldan Remix) (06:50)
+ 03. G-Starr pres. Big World - Morning Light (Coffee Shop Remix Edit) (03:54)
+ 04. Tiger Hifi - King Of My Castle (03:02)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Trip Hop, House, Lounge, Ambient •Продолжительность: 02:29:28 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158E3D0D880D5097C4A3199E0CF9FA57541C945A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449146   (1030238) от 20.02.2021
+
+VA - Ambient Lounge 14 (2012) Globe [FLAC|Lossless|tracks+.cue] <Downtempo, Trip Hop, House, Lounge, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Casanovy - Need Your Lovin' (Sin Plomo's Superlounger Mix) (05:34)
+ 02. DJ Antoine - Funky Kitchen Club (I'll Remain) (Soft Mix) (03:30)
+ 03. Dubtribe Sound System - Do It Now (Ibizarre Mix) (06:23)
+ 04. David Tort & Norman Doray - Chase The Sun (Musica Feliz Ibiza Dream Remix) (04:53)(   Читать дальше...   )Тип издания: CDЖанр: Downtempo, Trip Hop, House, Lounge, Ambient •Продолжительность: 02:35:30 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B434985AC99BF374A528052825109943A94D5DD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449131   (1030234) от 20.02.2021
 
 VA - Drizzly Chillin' Vol. 01-02 (2003-2004) Drizzly Music [FLAC|Lossless|tracks+.cue] <Trip Hop, Dub, Downtempo, Lounge, Ambient>
@@ -626,122 +742,6 @@ VA - Moments to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C3F13D796D9264EB55D9A4DB5EB26A1C059E9AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463616   (1020304) от 19.04.2021
-
-VA - Lo-Fi City Vibes: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beamy - Colours (5:05)
-02. Patiotic, Lohbe - Dream Forest (2:10)
-03. Dellasollounge - Break My Mind (Original Mix) (3:11)
-04. G.Pantelidis - Hypnotic Poem (4:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35B5508A973758774717351EFE82DF4B2C58F3A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1464508   (1019794) от 22.04.2021
-
-VA - Midnight Voyage: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ann Grace - Vega (7:11)
-02. Matej Blanusa - Suomi (5:22)
-03. Beamy - Gawain (4:00)
-04. Charlie North - Patient (5:48)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D218834354EFC614D46CBEC252F2B25D39F19FA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465517   (1019155) от 26.04.2021
-
-Giriu Dvasios - Sunkus (2021) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub, Ambient, Dub Techno>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Medis (03:50)
- 02. Plaukia (03:42)
- 03. Ziema (04:20)
- 04. Arti (04:15)(   Читать дальше...   )Жанр: Dub, Ambient, Dub TechnoПродолжительность: 00:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39614EBDDCE9F6938F2859D2CA581E157C84BF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1465854   (1018959) от 27.04.2021
-
-Michael E - Lost in Thought (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time (5:49)
-02 . Maybe This Time (feat Ashley Slater & Diego Porchile) (7:00)
-03. Happy Daze (3:42)
-04. Distant Lovers (5:12)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:59:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CD1F8228A748FE5D62E657A67C1AB79DADA6F56
 ```
 
 https://mybot314.ru/tekegram_catalog/

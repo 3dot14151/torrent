@@ -1,3 +1,32 @@
+###  Публикация: 1730449   (107867) от 16.06.2024
+
+The Iron Bees - Ржавый Тромбон (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska, Ska-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Парнишка молодой [00:02:46]
+02. вздрынч [00:02:09]
+03. Окурок на глазах [00:03:06]
+04. Заводская [00:02:35](   Читать дальше...   )Жанр: Ska, Ska-PunkПродолжительность: 00:27:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC900DBB8A18646FF58B25A90B739875F4E1AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730453   (107866) от 16.06.2024
 
 Storm Inside - Серый человек (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore, Post Hardcore, Electronic>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9690CF86C94703DAD65F691F93181C7F7577BAC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752033   (103972) от 28.09.2024
-
-Axiomatic Dematerialization - Absolute Elimination Of Existence (2024) [FLAC|Lossless|image + .cue] <Slamming Brutal Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Collapse 2:05
-02. Spatial Deformation 3:20
-03. Extraterrestrial Paradox 3:20
-04. Absolute Elimination of Existence 3:07(   Читать дальше...   )Жанр: Slamming Brutal Death MetalПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77DCCC215C954FD2E85F0E3A093C2B5304FF8010
 ```
 
 https://mybot314.ru/tekegram_catalog/

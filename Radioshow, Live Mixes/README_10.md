@@ -1,3 +1,61 @@
+###  Публикация: 1544243   (622208) от 15.04.2022
+
+MORTEN - Miami Rooftop Sessions, Miami Music Week, United States (2022-03-23) [MP3|320 Kbps] <Electro House, Big Room>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Öwnboss & Sevek - Move Your Body (Intro Edit) w/Wildchild - Renegade Master (Acappella) w/Usher ft. Ludacris & Lil Jon - Yeah!
+02. Swedish House Mafia ft. Sting - Redlight (Mark Roma Remix)
+03. David Guetta & MORTEN - Restless
+04. The Prodigy - No Good (Start The Dance) (MORTEN Edit)(   Читать дальше...   )Жанр: Electro House, Big RoomПродолжительность: 00:33:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D99A01AE9B4B7CBDC4A09754792E2F18254DB216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544424   (622183) от 15.04.2022
+
+Third ≡ Party - Tomorrowland Friendship Mix (2022-04-14) [MP3|320 Kbps] <Progressive House, Electro House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Third ≡ Party ft. Alfie Bass - Take Me Away
+02. Eli Brown & Love Regenerator - Moving
+03. Maddix - Activating w/Third ≡ Party ft. FMLYBND - Have No Fear
+04. Third ≡ Party - Arrival(   Читать дальше...   )Жанр: Progressive House, Electro HouseПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C14DE89A07F394BAE594DA3BB1E8F505FB71E76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1230901   (610586) от 15.06.2018
 
 VA - Ori Uplift & Delta IV - Uplifting Only 279 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
@@ -690,64 +748,6 @@ VA - Aly & Fila - Future Sound Of Egypt 505 (2017) [MP3|320 Kbps] <Trance,Uplift
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED165F9EF0621541F613BE35B18A27902D1CE80B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304341   (564192) от 26.05.2019
-
-Activa - Live @ Union Club London (2019-05-11)[MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Activa - The One You Need (Sonic Element Remix)
-02. Ronski Speed vs Stoneface & Terminal - Incognition (Original Mix)
-03. Activa & Simon Bostock - Contour (Original Mix)
-04. UDM - Freefall (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A89C3323D799C18AADB2CB57F043FB22D370B76F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1304767   (562090) от 27.05.2019
-
-Maria Healy - Live @ Civic Underground Sydney, Australia (2019-05-03)[MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_562090.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Key4050 - Gianfranco
-02. John O'Callaghan - Space & Time
-03. Sneijder - Back Home
-04. Billy Gillies - Open Your Mind(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C4377E6F8A7F86D27838BA02C8B122F9F77277
 ```
 
 https://mybot314.ru/tekegram_catalog/

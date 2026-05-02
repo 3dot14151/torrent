@@ -1,3 +1,61 @@
+###  Публикация: 1109655   (857491) от 28.02.2017
+
+Horace Parlan - Up & Down (1961) Remaster, 2005, Toshiba [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Book's Beat [09:50]
+ 02.Up And Down [06:12]
+ 03.Fugee [07:13]
+ 04.The Other Part Of Town [11:41](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D595A49DF397DF041D15BEBABA4DB81F3C3B021B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109652   (857461) от 28.02.2017
+
+Les McCann Ltd. - In San Francisco (1960) 2012, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Oh, Them Golden Gates [04:10]
+ 02.Red Sails In The Sunset [08:32]
+ 03.Big Jim [07:06]
+ 04.I Am In Love [05:02](   Читать дальше...   )Жанр: Hard Bop, Soul-Jazz, Piano JazzПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70490E3D300C7A0486905E759245E141C8695C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109883   (857459) от 28.02.2017
 
 Dave Brubeck - Live With the LSO (2001) [FLAC|Lossless|tracks + .cue] <Jazz>
@@ -688,64 +746,6 @@ Akiko Muto Trio - The Windmills Of Your Mind (2007) Jasnac [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC5F2DDC8D6B72373EC45DF9C822C14939165BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110637   (852179) от 03.03.2017
-
-Don Ralke And His Orchestra - But You've Never Heard Gershwin With Bongos & The Savage And The Sensuous Bongos (1960) 2008, Collectables [FLAC|Lossless|tracks + .cue] <Latin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Fascinating Rhythm [02:56]
- 02.How Long Has This Been Going On [02:30]
- 03.Clap Yo' Hands [03:02]
- 04.Our Love Is Here To Stay [03:40](   Читать дальше...   )Жанр: Latin JazzПродолжительность: 01:16:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE16DA4A23474808B048D492F5B98A3B916C3479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1110167   (852085) от 03.03.2017
-
-Dave Brubeck - The Real... Dave Brubeck (2012) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. Take Five
-2. When You Wish Upon a Star
-3. Taking a Chance on Love(   Читать дальше...   )Жанр: JazzПродолжительность: 03:40:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0A5671286FBA914FBF5B76F99F0BBC6158035C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1288180   (697640) от 10.03.2019
+
+VA - German Top 40 DBC Deutsche Black Charts 08.03.2019 (2019) [MP3|320 Kbps] <Rap, Hip-Hop, R&B>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyga - Girls Have Fun
+02. Chris Brown - Undecided
+03. Mustard - Pure Water
+04. Chaka Khan - Hello Happiness(   Читать дальше...   )Жанр: Rap, Hip-Hop, R&BПродолжительность: 02:08:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A7A91D9C56A5DA70573BCCBC5E802B493A77B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403586   (688464) от 21.08.2020
 
 VA - Honey Baby (2020) [MP3|320 Kbps] <R&B, Soul>
@@ -710,35 +739,6 @@ VA - Flowers Of The Sun (2018) [MP3|320 Kbps] <RnB, Hip-Hop, Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A10DD14092E46B9BA0674F70C3BB1675A0C75FAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549766   (592845) от 08.05.2022
-
-VA - Rap & Hip Beats (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592845.jpg" />
-</div>
-
-
-###  Подробнее
-
-Легкие подвижные ритмы и лирические мелодии в сборнике под названием "Rap & Hip Beats". Гармоничное сочетание мелодии и текста, которое слушать одно удовольствие.001. Yg - Swag
-002. Dimitry Killstorm - Jane
-003. Funky Dl - My Brother Taught Me
-004. Pacman Da Gunman - Zero Tolerance(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 09:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B46DCAFF712AC2862B585879FBDA56CFC72AFD16
 ```
 
 https://mybot314.ru/tekegram_catalog/

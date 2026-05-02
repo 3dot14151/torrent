@@ -1,3 +1,177 @@
+###  Публикация: 1729872   (107978) от 13.06.2024
+
+Ensiferum - Ensiferum (2001) Remastered, 2014, Blood Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107978.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Intro
+A2 Hero In A Dream
+A3 Token Of Time
+A4 Guardians Of Fate(   Читать дальше...   )Жанр: Epic Folk MetalПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E5761AB89AA1D4CC1021616C5413B4464536BEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729894   (107974) от 13.06.2024
+
+Fuzziliers - Sail the Seven Seas (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <psychedelic, baroquepop, britpop, artrock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sail the Seven Seas (00:03:47)
+02 - Goodnight (00:03:44)
+03 - This Is Love (00:02:33)
+04 - Lullaby (00:03:29)(   Читать дальше...   )Жанр: psychedelic, baroquepop, britpop, artrockПродолжительность: 00:30:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D36DDA6077919875556610B875F16ECAD8E6EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730051   (107968) от 14.06.2024
+
+Axel Rudi Pell - Risen Symbol (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Resurrection (Intro) (1:41)
+02. Forever Strong (4:41)
+03. Guardian Angel (5:27)
+04. Immigrant Song (5:47)(   Читать дальше...   )Жанр: Melodic Heavy MetalПродолжительность: 00:57:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3156FF963C6958FC5CED112F0A61448B9E7E7E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730140   (107961) от 14.06.2024
+
+Paul McCartney & Wings - One Hand Clapping Sessions [Live Studio Sessions 1974 / Remastered 2024] (2024) MPL Communications [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - One Hand Clapping (00:02:15)
+02 - Jet (00:04:00)
+03 - Soily (00:03:56)
+04 - C Moon-Little Woman Love (00:03:20)(   Читать дальше...   )Жанр: RockПродолжительность: 01:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:315FE7F76D5C8E83502E45BD8DC1ACC0B6AA2DEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730133   (107958) от 14.06.2024
+
+Jesse Dayton - The Hard Way Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hard Way (3:38)
+02. Night Brain (3:24)
+03. Talkin' Company Man Blues (4:10)
+04. Baby's Long Gone (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D11C9CC9DE5382208952C93E4566456B9E66B00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730141   (107956) от 14.06.2024
+
+The Andy MacFarlane Two Man Orchestr - My Old Suitcase (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Did (3:04)
+02. Vicky Straightaway (3:49)
+03. Over the Hill (3:22)
+04. Still Drunk, Still Crazy, Still Blue (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090D98EC37AAF56430E9482DDFEFE46759BE4E03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730136   (107955) от 14.06.2024
 
 Marcela de Campos - Dimmed Lights (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -567,180 +741,6 @@ Little Feat - Feats Don't Fail Me Now (1974) Deluxe Edition, 2024, Warner Record
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FF0A850EF68E8472CA0AEA318505D0DFE20D4E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730339   (107918) от 15.06.2024
-
-Eduardo Cardinho - Not far from paradise (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Was Just a Dream (7:08)
-02. Anxiety (4:58)
-03. November 17 (5:32)
-04. Life Contemplation (6:48)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:48:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F49DF0E7C27057E18B29D1D1D22A194C54AAFF5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730371   (107915) от 15.06.2024
-
-Mariah Carey - Rainbow (1999) 25th Anniversary Expanded Edition, 2024, Columbia Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop, Soul, Funk, R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartbreaker [00:04:45]
-02. Can't Take That Away (Mariah's Theme) [00:04:32]
-03. Bliss [00:05:43]
-04. How Much [00:03:30](   Читать дальше...   )Жанр: Pop, Soul, Funk, R&BПродолжительность: 02:14:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7F4F1348C9B37289C51DCF02CDD488F41992B2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730440   (107914) от 15.06.2024
-
-Zsela - Big For You (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107914.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lily of the Nile [00:03:51]
-02. Fire Excape [00:03:18]
-03. Not Your Angel [00:02:59]
-04. Still Swing [00:03:40](   Читать дальше...   )Жанр: PopПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531553C897EA802F174A284E172301EA697E58D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730347   (107911) от 15.06.2024
-
-Golgotha - Spreading The Wings Of Hope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom, Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Every Tear (6:04)
-02. Gilded Cage (6:00)
-03. A Solitary Soul (5:56)
-04. Hear Their Cries (5:40)(   Читать дальше...   )Жанр: Doom, Death MetalПродолжительность: 00:46:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D6360294275BBAC220D922B55415A52C5400A01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730342   (107906) от 15.06.2024
-
-Equal Spirits - Wise and Waiting (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107906.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back Again (7:19)
-02. Egoli Affirmation (2:40)
-03. Skip (6:43)
-04. Dancing Under The Sun (5:26)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:804EA5859531B18CA65A8F21E2D8F3561F2B521D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730430   (107904) от 15.06.2024
-
-Isobel Campbell - Bow to Love (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107904.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything Falls Apart [00:03:10]
-02. Do or Die [00:02:34]
-03. Spider to the Fly [00:02:21]
-04. Second Guessing [00:02:07](   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:43:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB6DF23C2A08E662F4ABD79FF94EF3782987436
 ```
 
 https://mybot314.ru/tekegram_catalog/

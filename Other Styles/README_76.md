@@ -1,3 +1,206 @@
+###  Публикация: 905454   (649057) от 06.06.2015
+
+Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярости / Mad Max: Fury Road (Original Motion Picture Soundtrack) (2015) Deluxe Version [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Survive (Extended Version) (01:40)
+02. Escape (Extended Version) (03:29)
+03. Immortan’s Citadel (Extended Version) (08:58)
+04. Blood Bag (Extended Version) (03:40)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 02:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B23E626A8FD16036EFBFCDFD207515D597DF63EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291804   (648641) от 28.03.2019
+
+Claire Hastings - Those Who Roam (2019) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648641.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lothian Hairst (04:44)
+02. Jack the Sailor (03:50)
+03. Seven Gypsies (03:33)
+04. Sailin's a Weary Life (04:16)(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:40:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C193470160CB672D17538CD63F671716DA69271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292020   (648635) от 28.03.2019
+
+Current 93 - Invocations Of Almost (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648635.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Untitled (10:22)
+2. Untitled (05:56)
+3. Untitled (03:40)
+4. Untitled (07:06)(   Читать дальше...   )Жанр: Folk, Country, AmbientПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF54BCC2D5296B199E6C6ACBA7EB29B8C2C0A499
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292135   (648625) от 28.03.2019
+
+VA - The Ultimate Country Love Songs Anthology (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Rich - The Most Beautiful Girl
+02. Forester Sisters - I Fell in Love Again Last Night
+03. Earl Thomas Conley - Angel in Disguise
+04. George Jones - I Always Get Lucky With You(   Читать дальше...   )Жанр: CountryПродолжительность: 01:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A38DD330EB6A5964627440585F6450F8E1579D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227078   (648472) от 25.05.2018
+
+VA - Quiero Fiesta (Club Hits 2018) [MP3|320 Kbps] <Latin Hip-Hop, Reggaeton, Bachata, Salsa>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Veronica Vega, Pitbull - Wicked (Dj Papi Electric Club Remix) 5:02
+02. Wilo D' New - Menea Tu Chapa 2:59
+03. Farina, El Micha, El Pocho, Honorebel - Mari (Dj Gangsta & Dj Unic Remix) 3:53
+04. Crossfire, Elephant Man - Hot Hot Hot (Extended Club Remix) 3:48(   Читать дальше...   )Жанр: Latin Hip-Hop, Reggaeton, Bachata, SalsaПродолжительность: 03:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A55FAA42DC1AA00BC7A4DC0EB9720A9B14ADF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541071   (648418) от 01.04.2022
+
+Вилы - Крапива (2022) [MP3|320 Kbps] <Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648418.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Дождик
+2. Крапива
+3. Млада
+4. Перепну я речушку(   Читать дальше...   )Жанр: FolkПродолжительность: 01:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9437F5C22089299A1DD3DAC5FBAF6A38B5B770F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032166   (647764) от 06.07.2016
+
+George Skaroulis - Sanctuary 2 (2015) [MP3|320 Kbps] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is The Key
+02. You're Still Here
+03. Misirlou
+04. Sky Blue(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50F2763FD0ED2C1272CE35450DB7C4211A1DBE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905722   (647694) от 07.06.2015
 
 Jack Menhorn & Ashton Morris - Lemma Original Soundtrack (2015) [MP3|128 кб/с]<Score>
@@ -558,215 +761,6 @@ VA - Defected Accapellas Deluxe Vol. 15 (2019) [MP3|320 Kbps] <Acapellas, DJ Too
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8526C06D5AB67E8DCACB047CB826EB350F9D621D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119918   (644260) от 13.06.2017
-
-ДиДюЛя - Лучшее. В исполнении симфонического оркестра Ли Отта (2015) [MP3|320 Kbps] <Instrumental, Neo-Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Водопад
-02. День рождения
-03. Путь домой
-04. Мечта(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C61AC253B1F978E92A7C46E0D30B4DB7B1470F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032520   (644034) от 08.07.2016
-
-John Fluker - 11:11 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awaken [00:02:39]
-02. In the Beginning [00:03:29]
-03. Artificial Time [00:05:33]
-04. The 4th Dimension [00:04:22](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:46:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28922E367850679542B0DFB60295157DEA24D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032545   (644027) от 08.07.2016
-
-Amy Lauren - Sulla Riva (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mahogany Cider [00:02:59]
-02. Black Creek Trail [00:04:29]
-03. Where Three Rivers Meet [00:05:18]
-04. Emmerson's Ballad [00:03:14](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E84847938C33BE8AF513E245D8507CEDE05374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 215448   (643987) от 08.07.2010
-
-Dan Gibson's Solitudes - Blue sky classics (2008) [MP3|256 kbps]<Релакс, New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_643987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - J.S. Bach - Prelude in C Major from The well tempered clavier
-02 - Beethoven - Adagio from Violin sonata No.5 in F Major, Op.24. Spring
-03 - Haydn - Largo from Symphony No.88 in G major
-04 - Debussy - Preludes, Book 1. No.8. Girl with the flaxen hair
-05 - Chopin - Larghetto from Piano concerto No.2 in F minor, Op.21
-06 - Mozart - Adagio from Violin concerto No.2 in G major
-07 - Schumann - Larghetto from Symphony No.1 in B flat major, Op.38. Spring
-08 - Schubert - Andante from String quartet No.12 in C minor
-09 - Corelli - Adagio from Sonata No.6, Op.1
-10 - Tchaikovsky - Andante cantabile from String quartet No,1 in D major, Op.11Жанр: Релакс, New Age, MeditativeПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032767   (643795) от 08.07.2016
-
-Jacob Pavek - Illume (2015) [FLAC|Lossless|tracks] <Modern Classical, Ambient, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stairs    02:48
-02.  Tonight, Tomorrow    01:45
-03.  Illume    03:35
-04.  Seasons    05:04(   Читать дальше...   )Жанр: Modern Classical, Ambient, PianoПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6353A7850A8D0EF79773EA10B0FE3276F12FE3E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032754   (643658) от 08.07.2016
-
-VA - The Melodic Relaxing Piano Collection Vol. 1 (2014) [MP3|320 Kbps] <Instrumental, Relax, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gonelb - In My Heart    03:49
-02. Cristiano Viti - No Way Out    05:37
-03. Gianluca Ricciardi - Classico    03:35
-04. Olga Bordas - Nocturne In C Sharp Minor    06:36(   Читать дальше...   )Жанр: Instrumental, Relax, PianoПродолжительность: 01:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA491C06702E6B75E3043F1F9107ED2336FA642F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906723   (643578) от 09.06.2015
-
-VA - E-Scape 2015 (2015) [MP3|320 кб/с]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Ward & John Dyson - Ride the Beach
-02. David Wright - Song for a Friend
-03. Eric van der Heijden - Strange Escapism
-04. Dreamerproject - Hymne(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA03776726512EDF814825D96056B7353019B7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

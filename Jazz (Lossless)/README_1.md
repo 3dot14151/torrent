@@ -1,3 +1,61 @@
+###  Публикация: 1602332   (1046119) от 05.01.2023
+
+Lee Wiley - Sings The Songs Of Rodgers & Hart And Arlen (1940 - 1943) 1986, Audiophile [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby's Awake Now [3:12]
+02. Here in My Arms [3:25]
+03. You Took Advantage of Me [2:53]
+04. A Little Birdie Told Me So [3:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0262E1D2BAF6CDCFB4A81DD3A3B17839F2D46ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602342   (1046115) от 05.01.2023
+
+John Patitucci & Andy James - An Evening With John Patitucci & Andy James (2021) 2CD, Le Coq Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046115.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Autumn in New York (feat. John Patitucci & Chris Potter) [4:23]
+02. Besame Mucho (feat. Chris Potter) [7:08]
+03. I Love You and Don't You Forget It (feat. Chris Potter) [3:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:22:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A568F49CE7E3E7B1A88A9679A166573954989F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602543   (1046054) от 06.01.2023
 
 Stan Getz - West Coast Jazz (1955) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Cool>
@@ -687,64 +745,6 @@ Don Ellis - Live In India (1978) 2010, Sleepy Night Records [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EAF372098F65D6947F34228C067DF61B74ECF5C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604727   (1045195) от 15.01.2023
-
-Wild Bill Davison - Quadromania (1943 - 1952) 4CD, 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045195.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. At The Jazz Band Ball [3:01]
-02. That’s A Plenty [4:18]
-03. Baby, Won't You Please Come Home [2:57](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 03:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A570ED3D1A450B443F6C82AD447C34DC3D29434
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604987   (1045103) от 16.01.2023
-
-Paul Bernewitz - Someday (2022) Unit Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Seven (Take Five) [10:51]
-02. I Hear a Rhapsody [7:25]
-03. Alfie [5:58]
-04. Someday My Prince Will Come [6:14](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:02:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4752020B17FF15EC002FAE0085484E1C484D35EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

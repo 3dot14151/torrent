@@ -1,3 +1,73 @@
+###  Публикация: 595789   (132215) от 29.12.2012
+
+VA - Best of Berlin Minimal Underground Vol.2 (2012) [MP3|320 kbps]<Progressive House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sven & Olav - Blissful World (Bonus Berlin Exclusiv Mix) (06:54)
+02. Chris Rockz - Dromedario (Cubic Egg Tech Mix) (08:20)
+03. Mauerpark Community - The Divine Circus (Outdoor Club Mix) (06:07)
+04. Berlin Minimal - Freitag Frei, Feierei (Original Mix) (06:17)
+05. Jason Duff vs. Miss Thunderpussy - BelleVille (Original Mix) (05:41)
+06. Jimmy(Ge) - Space (Original Mix) (06:37)
+07. Jens Riemann - Dirty Rolando (Original Mix) (05:37)
+08. Technodar - Funny Day (Original Mix) (05:08)
+09. Crazy Krauts - Frau Wunderlich geht baden (Original Mix) (06:10)
+10. Walter Native - Love Strings (Sirkhan Remix) (06:44)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C138730A719374CDC7DCB1BE03C7A1C6EB11333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595816   (132202) от 29.12.2012
+
+VA - Tunnel Trance Force: Best Of Vol.63 (2012) [MP3|320 kbps]<Trance, Hard Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Various - Tunnel Trance Force: Best Of Vol 63 (continuous DJ mix by DJ Dean) (58:15)
+02. DJ Dean vs DJ Analyzer - It's A Dream (5:37)
+03. Mike Nero - Spring 2013 (club mix) (5:03)
+04. Locanda & Kuznetsow - The Tournament (Round 1 mix) (6:57)
+05. Keamon - Watch Out (Impegment Syndrom remix) (5:17)
+06. Angel Beats & DJ Merlin - You Make My Dreams 2K12 (6:16)
+07. Alex M & Marc Van Damme - Rock The House 2012 (6:01)
+08. Sunset Project - Welcome Back (Empyre One remix) (5:47)
+09. DJ Fait - Love Will Save The Day 2  (Calderone Inc mix) (6:46)
+10. DJ Stardust & Benjamin Zane - Famous (Pulsedriver Oldschool Flavour mix) (5:14)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 03:40:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:169CEF3EB6FAEC3C7852CB26A4347E506FC467D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592045   (132149) от 29.12.2012
 
 VA - Fresh Meat (2012) [MP3|320 кб/с]<Dub Step/Heavy Electro/Metalstep>
@@ -719,64 +789,6 @@ ADIK - Compilation (2023) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:501CEB008770CE7F464E0530F8D6CB2398D50F7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684982   (127464) от 17.12.2023
-
-Azimov - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  World Hold On
- 02.  Angela
- 03.  The City of Love
- 04.  Memories(   Читать дальше...   )Жанр: ElectronicПродолжительность: 06:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77D8066836A05FEA31CA5572DDFBE9CA5698716C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684785   (127415) от 17.12.2023
-
-Karimov - Compilation (2023) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Stay With You
- 02.  Memories
- 03.  Soul
- 04.  Together(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F1DC6C28B69241487E6392772AC56FA916385BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

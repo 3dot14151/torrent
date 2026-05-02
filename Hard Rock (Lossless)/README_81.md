@@ -1,3 +1,119 @@
+###  Публикация: 1590741   (188550) от 15.11.2022
+
+Pieces Of Molly - Pieces Of Molly (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock'n'Roll, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188550.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Atomic Fuzz
+02 I Don't Wanna
+03 Banshee
+04 Don't Shine A Light Into The Dark(   Читать дальше...   )Жанр: Heavy Rock'n'Roll, StonerПродолжительность: 00:26:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCC04CBECCBF11F21B6514378EA6444E244AB25D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590742   (188547) от 15.11.2022
+
+Hydranaut - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock'n'Roll, Psych, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock n Roll Rabbit hole [00:01:51]
+02. Sweller [00:02:32]
+03. Who put the gutter here? [00:03:32]
+04. Chaser [00:02:52]Жанр: Heavy Rock'n'Roll, Psych, StonerПродолжительность: 2 CD, 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A435C615A2D6AFDD59F29645E821BEC2E1CB44B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590651   (188543) от 15.11.2022
+
+Jerky Dirt - Chirality (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adrift On Synaptic Seas
+02. Through The Mirror
+03. This Seems Familiar
+04. Another Life(   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, GrungeПродолжительность: 00:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F520D838B9E6C03543A083135FDDF9F661F943F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590744   (188540) от 15.11.2022
+
+Desert Dragon - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Luck [00:03:51]
+02. God Bless Miss America [00:04:42]
+03. Swamp Thing [00:04:53]
+04. What It Means to Me [00:04:46](   Читать дальше...   )Жанр: Hard RockПродолжительность: 3 CD, 01:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB2AE3061CB7B7ACE3D8B5A2321CE17F56348A8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590713   (188535) от 15.11.2022
 
 Wizards - Seven (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
@@ -629,122 +745,6 @@ Orbiter - A Goddamn Classic (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, St
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E611648BA69A1746DB03E5F34B7B2775B71598C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591808   (185573) от 20.11.2022
-
-Desert Wave - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Space>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Outside Pt.1 [00:03:58]
-02. Outside Pt.2 [00:03:40]
-03. Deafening Silence [00:05:22]
-04. Above [00:04:44](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, SpaceПродолжительность: 01:16:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C17A4BE7A87BAEBDE511ABD4C0DEBBB9412533B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664497   (185517) от 26.09.2023
-
-West Alley - A Night To Remember (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What A Night To Remember [00:03:28]
-02. Good Times [00:04:14]
-03. Fortune And Fame [00:04:16]
-04. Miracles Can Happen [00:04:24](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:250F79B4427375675BCD4CE14617240D64F90959
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591796   (185342) от 20.11.2022
-
-Odonata - Gravitational Perturbation (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Rock, Doom, Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oriental Memories (Long Version)
-02. Son Of Iron
-03. Red
-04. Metamorphosis(   Читать дальше...   )Жанр: Psychedelic Rock, Doom, Stoner RockПродолжительность: 00:41:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E6A6C1C79A380F0BF6F03DA32853E74480C309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591799   (185123) от 20.11.2022
-
-Snakebite Delight - Swamp Walker (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Psych, Garage>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swamp Walker
-02. Moonshine Madness
-03. Ice Giant
-04. Sunshine & Medicine(   Читать дальше...   )Жанр: Heavy Rock, Stoner, Psych, GarageПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D535780FC8903873CB091803CE99C83CEDCF9450
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,193 +1,52 @@
-###  Публикация: 1340628   (263540) от 24.11.2019
+###  Публикация: 1339702   (265374) от 20.11.2019
 
-Игорь Осипов | Охотники на попаданцев (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Попаданцы. Потеряшки между мирами. Зачастую они тысячами гибнут от голода, холода, болезней, от клыков хищников, на кострах дикарей и в рабстве кровожадных пиратов, а вместе с ними теряются бесценные знания, артефакты и приборы. Но есть мир, отстающий от нашего на одно столетие. Он похож на наш, но чуточку другой, и в нём осознают всю пользу от таких пришлых, и там (   Читать дальше...   )Жанр: Городское фэнтези, Попаданцы, СтимпанкПродолжительность: 14:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95453C564956E376EEC3A889C30E7110F5CE23CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340683   (263539) от 24.11.2019
-
-Час очищения / The Cleansing Hour (2019) BDRip [H.264/720p-LQ] [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263539.jpg" />
-</div>
-
-
-###  Подробнее
-
-Друзья Дрю и Макс проводят веб-трансляции ритуала экзорцизма в реальном времени, но на самом деле каждое шоу - тщательно продуманная мистификация. На одной такой веб-трансляции им не везет, и они сталкиваются с действительно реальным демоном.Производство: США / SkubalonЖанр: УжасыРежиссер: Дэмиен ЛеВекАктеры: Райан Гузман, Кайл Галлнер, Тара Карсиан, Джоэнна Дэвид, Эмма Холцер, Аликс Анджелис, Крис Лью Кум Хой, Джулия Намани, Мэтт Раймо, Дэниэл Хоффман-ГиллПеревод: Многоголосый закадровый, любительский (MUZOBOZ)Субтитры: ОтсутствуютПродолжительность: 01:31:16Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7C550AC64D40568312796AE5E22786724039625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192079   (263538) от 16.12.2017
-
-Lionel Hampton - Hamp's Blues & Flying Home (1969, 1974) 2CD, 1992, Lester Recording Catalog [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263538.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Hamp's Blues:
-01. Air Mail Special [06:48]
-02. E.G. [08:44]
-03. Psychedelic Sally [06:20](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:340FB57A90D83041930EC9A377B872E182DF2D36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191833   (263537) от 16.12.2017
-
-VA - Inspectrum Recordings Best Of (Mixed by DJ Chris) (2017) [MP3|320 Kbps] <Uplifting Trance, Orchestral Trance, Emotional>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Chris  -  Inspectrum (Intro Mix)  2:11
-02.  Carl Daylim  -  Remember My Name (Original Mix)  8:44
-03.  O.B.M Notion  -  Special Reflections (Original Mix)  6:51
-04.  Junior & Ash K feat. Karim Farouk  -  Destiny (Original Mix)  8:07(   Читать дальше...   )Жанр: Uplifting Trance, Orchestral Trance, EmotionalПродолжительность: 03:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC87D3252BC7303FB1D637F8F85A70C735518AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191918   (263536) от 16.12.2017
-
-Earl Hines - Here Comes Earl 'Fatha' Hines & Spontaneous Explorations (1964, 1966) 2CD, 1993, Red Baron [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263536.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Here Comes Earl 'Fatha' Hines:
-01. Save It, Pretty Mama [03:24]
-02. Bye, Bye, Baby [03:46]
-03. Smoke Rings [02:55](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0A4CB3CEE65C02A086FDF7D68D0FFF4FBCFA41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191993   (263535) от 16.12.2017
-
-Benjamin Herman featuring Daniel von Piekartz - Trouble (2014) Dox Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263535.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Slow Hot Wind [04:27]
-02. Smoke Dreams of You [03:12]
-03. Blue Velvet [04:11]
-04. You Got Me On So Bad [03:58](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2BFE2D534398C7FF9AD1140C9F389B32241817
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192119   (263534) от 16.12.2017
-
-File Cabinet Pro 5.4 [En]
+A Better Finder Rename 11 v11.05 [Multi]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-File Cabinet Pro  - менеджер документов из строки меню
-Вы можете открыть множество типов файлов в программе File Cabinet Pro или открыть файлы запустив другие приложения. File Cabinet Pro является универсальным и очень простым в использовании приложением.
+A Better Finder Rename является лучшим решением для автоматизации процесса переименования большого количества файлов. Программа работает как отдельное приложение, однако может быть вызвано и из контекстного меню Finder.
+Под простым и понятным интерфейсом A Better Finder Rename скрываются гибкие настройки переименования файлов. В программе есть полный комплект настроек, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2019Разработчик: Frank ReiffПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C8AA06F2DF77EEC9016FEE528D112AD9192F12B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339736   (265373) от 20.11.2019
+
+IconJar 2.1.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Все ваши иконки отлично организованы в удобный интерфейс
+Разработанный, чтобы сделать жизнь разработчиков приложений и дизайнеров немного легче, IconJar представляет собой легкий и удобный органайзер иконок для вашего Mac.
 
-Приложение File Cabinet Pro поставляется со встроенным текстовым редактором, вьювером изображений и PDF файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: декабрь 2017Разработчик: Writes for All Inc.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+Если вы дизайнер или просто-напросто кто-то, чья линия работы включает в себя работу со значками (или глифы), то вы знаете, как громоздким оказывается (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: Davey Heuser and Curtis HardПоддерживаемая ОС: macOS 10.10 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A376FC79A8CF0F6A378246321BACC60EA32D9D05
+magnet:?xt=urn:btih:8DD18C90B69AB425F36CFA5992896B3A0E7AA51A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,28 +54,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192010   (263533) от 16.12.2017
+###  Публикация: 1339670   (265372) от 20.11.2019
 
-VA - Enhanced Progressive - Best of 2017 (Mixed by Marcus Santoro) (2017) [MP3|320 Kbps] <Trance>
+SpamSieve 2.9.38 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Axis – Over You (Original Mix)
-02. Steve Brian – Kyoto (Original Mix)
-03. East & Atlas – Casablanca (Original Mix)
-04. Marcus Santoro – Flashpoint (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:07
+Без преувеличения можно сказать, что SpamSieve - лучший спам-фильтр для Mail.app и многих других почтовых клиентов для macOS. Если ваши почтовые фильтры уже не справляются с непрекращающимся потоком спама, то это плагин несомнно вам поможет.
+
+Хотя SpamSieve имеет свою огромную базу спам-слов и серверов, все же какое-то время придётся потратить на обучения спам фильтра, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.11.2019Разработчик: C-Command SoftwareПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Мультиязычный, включая русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BCE3A7A908478B17F34A76DD189A2362E8F6D6DA
+magnet:?xt=urn:btih:C498BCE102F77AF16356995BCCED62A5E5C176FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,28 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191951   (263532) от 16.12.2017
+###  Публикация: 1339738   (265371) от 20.11.2019
 
-Junichi Akagawa - Consistency Test (2017) Hz-records [FLAC|Lossless|WEB-DL|tracks] <Experimental, Glitch, IDM, Minimal, Techno, Ambient>
+Soulver 3.1.3 [Multi]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Flip In It (04:55)
- 02. Array Drift (05:11)
- 03. A Thing Not Mild (05:17)
- 04. New Field (03:13)(   Читать дальше...   )Жанр: Experimental, Glitch, IDM, Minimal, Abstract, Techno, AmbientПродолжительность: 00:49:38
+Soulver 3 - это умный блокнот со встроенным калькулятором. Он дает мгновенные ответы на любые вычисления, которые он находит в вашем тексте. Это лучший способ для работы, чем с традиционным калькулятором, и более легкий инструмент для быстрых вычислений, чем электронная таблица.Тип издания: macOS SoftwareРазработчик: Acqualia SoftwareПоддерживаемая ОС: macOS 10.14 или вышеЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2206A930AB5EAA6736CE30CCB32C872B6D95517B
+magnet:?xt=urn:btih:65F65059A94876219C91EE13D1FA0A64B85F5BE2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -253,28 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192141   (263531) от 16.12.2017
+###  Публикация: 1339374   (265370) от 20.11.2019
 
-Art Farmer with Joe Henderson - Yama (1979) 2017, King Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+Hank Mobley - No Room For Squares 1963 (1989) Blue Note Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dulzura [04:14]
-02. Stop (I Think Again) [06:50]
-03. Young And Fine [06:47]
-04. Lotus Blossom [08:26](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:33:15
+01. No Room for Squares [7:00]
+02. No Room for Squares (alternate take) [6:48]
+03. Three Way Split [7:52]
+04. Comin' Back [6:25](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:52:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7943AE3F5C8593D1D4D8D1E77B8EB10812843C32
+magnet:?xt=urn:btih:ED3E602513C4B9C4D6575BB0E0A5FCFA857B4177
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -282,28 +137,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192130   (263530) от 16.12.2017
+###  Публикация: 1339735   (265369) от 20.11.2019
 
-VA - Empire Records - Vanilla Sky (2017) [MP3|320 Kbps] <Trance>
+Cookie 6.0.6 [Multi]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Steve Bengaln - Broken Heart Phase 2 (Radio Cut)
-02. Nivaya & Pillow - White Pegasus (Mike Shivers Catching Sun Radio Cut)
-03. Izzy Meusen Presents 12.24 - Utopia Come Home (Radio Cut)
-04. Mark Lovett - Who's Turn (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:07:52
+Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
+
+Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРазработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.14 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4ABC6A74B8B02F64D6EDF97E4D71A2722CA94070
+magnet:?xt=urn:btih:0C838E3E602F0671B8BA56DA84CB8C23D3A18513
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -311,28 +165,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192220   (263529) от 16.12.2017
+###  Публикация: 1339604   (265368) от 20.11.2019
 
-VA - Best of Trance (2017) [MP3|320 Kbps] <Trance>
+George Mraz - My Foolish Heart (1995) Milestone [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Electronic
->>Trance
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265368.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The-Thirst For-Flight - Seven Seconds of Happiness
-02. 2D project - Gladiator
-03. James Fiby feat. Anna Miracles - History Love (Vocal Mix)
-04. DJ Grand Defence - First Contact(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:50
+01. Alice in Wonderland [5:46]
+02. Sunday's Song [6:31]
+03. Picturesque [5:36]
+04. Passion Flower [6:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:04:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B3833623630A0F2039C7F2482993642C13A1B54A
+magnet:?xt=urn:btih:FB84452FF6AD55ED2E03D101794B1A111DB9CF33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,28 +194,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192072   (263528) от 16.12.2017
+###  Публикация: 1339507   (265367) от 20.11.2019
 
-Vintage Reserve - Vintage Reserve (2017) [MP3|320 Kbps] <Rock>
+Declutter 2.5 [En]
 
->>Rock, Alternative, Punk, Metal
->>Rock
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265367.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love divine (02:56)
-02. Addicted to you (04:27)
-03. Frisco nights (03:34)
-04. Something good (03:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:45
+Declutter является решением проблемы, с которой сталкивается каждый пользователь Mac - беспорядок на рабочем столе. Declutter позволяет создавать интеллектуальные папки с помощью правил, основанных на именах файлов и расширениях, так что Программа может автоматически перемещать файлы в соответствующие папки на рабочем столе и сохранять рабочий стол всегда чистым.Тип издания: macOS SoftwareРелиз состоялся: 01.03.2018Разработчик: George Sargunaraj CПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6FAEDE49F6887AA3786ECAB69FBB3C474863A7E
+magnet:?xt=urn:btih:F2FF991F9B2531BB48E08E92958464C187B328D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,28 +220,247 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191882   (263527) от 16.12.2017
+###  Публикация: 1339632   (265366) от 20.11.2019
 
-Vexovoid - Call Of The Starforger (2017) [MP3|320 Kbps] <Progressive Thrash Metal>
+ScreenFlow 9 v9.0.0 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265366.jpg" />
+</div>
+
+
+###  Подробнее
+
+ScreenFlow - создаем свои скринкасты
+Бывает, нужно записать видео с экрана для каких-либо ознакомительных целей, либо объяснить непонятливому товарищу, как и что делается в его свежекупленном маке. Именно тогда и встает вопрос — как это сделать? Вот тут ScreenFlow и раскрывается во всем своем великолепии.
+
+Простая, но крайне мощная программа для захвата и записи (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Telestream, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский, Немецкий, Французский и Японский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3DE008A44C658DA5F1CEEC58CBD9A44E561AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339372   (265365) от 20.11.2019
+
+Louis Armstrong - The Complete 1951 Pasadena Concerts (2017) 2CD, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Dixieland>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265365.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. When It's Sleepy Time Down South [0:57]
+02. Back Home Again in Indiana [5:30]
+03. Someday You'll Be Sorry [4:00](   Читать дальше...   )Жанр: New Orleans Jazz, DixielandПродолжительность: 02:36:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F51FEAFA18C1F6A911C397B5AD25C5D55C852DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339622   (265364) от 20.11.2019
+
+SILKYPIX Developer Studio Pro 9E v9.0.15.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265364.jpg" />
+</div>
+
+
+###  Подробнее
+
+SILKYPIX Developer Studio Pro — мощная программа, которая предназначена для редактирования, обработки и конвертации цифровых фотографий в различных форматах. SILKYPIX Developer Studio Pro обладает множеством профессиональных возможностей и позволяет качественно производить конвертацию файлов в RAW формате.
+
+С помощью этого мощного инструмента вы сможете решить множество (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Ichikawa Soft Laboratory Co.,Ltd.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0825053DB43D31CC7E4A4B6F4C6B46299201BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339608   (265363) от 20.11.2019
+
+Audirvana 3.5.26 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265363.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: AudirvanaПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский, Упрощенный Китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B684F5B0AF39E0500C1B82C2A594028263975279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339557   (265362) от 20.11.2019
+
+Сатисъ (изд.) | Канон за болящего (2011) [FB2]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265362.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге помещён канон, чтомый за болящего.
+Милость покажи, Владыко, в болезни раба Твоего, и скоро исцели, милостиве Христе Боже, и еще смерти не предаждь судней, да Ти покаяние воздаст.Жанр: ПравославиеФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6768B9E18AE05255925EDBD52D7D8AC751A4DD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339650   (265361) от 20.11.2019
+
+Fantastical 2 v2.5.13 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы.
+
+Основным отличием от аналогичных программ такого типа, является возможность добавления события на естественном (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 20.11.2019Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55B47E3BBAE8B47A83BF6430E80F6673C5482666
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339726   (265360) от 20.11.2019
+
+Журнал | Дачный сезон №7 (июль 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265360.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBDEAEE2E1BF15F94F3364ABEAE73F9A0E42C7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339728   (265359) от 20.11.2019
+
+Журнал | Дачный сезон №9 (сентябрь 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265359.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BEB00532CDE7C3EC5DB6C5E79115C12FC0CC04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339657   (265358) от 20.11.2019
+
+Mustasch - Killing It For Life (2019) [MP3|320 Kbps] <Heavy Metal, Stoner Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Omega Virus
-2. Infinite Collector
-3. Quantic Rupture
-4. Waking Mars(   Читать дальше...   )Жанр: Progressive Thrash MetalПродолжительность: 00:47:49
+1 - Where Angels Fear To Tread (Album Version) [4:08]
+ 2 - Ransacker [5:13]
+ 3 - Before A Grave [5:06]
+ 4 - Freddie Mercury [4:53](   Читать дальше...   )Жанр: Heavy Metal, Stoner MetalПродолжительность: 00:36:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA83FB9773FF8167E1AF889EE98671FCC12CBD0D
+magnet:?xt=urn:btih:6FD3E002AD2CB4D7C9F714F9CE96F1EB3946E7A6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,25 +468,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192055   (263526) от 16.12.2017
+###  Публикация: 1339725   (265357) от 20.11.2019
 
-Журнал | Всему свету по совету №1 (252) (январь 2018) [PDF]
+Журнал | Дачный сезон №6 (июнь 2019) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал "Всему свету по совету" - содержит информацию познавательного характера, а также практические советы как редакции, так и читателей в области здоровья, красоты, кулинарии, домоводства, садоводства. В каждом номере – актуальная тема сезона: будь то встреча Нового года или празднование Пасхи, защита от простудных заболеваний, секреты высадки рассады (   Читать дальше...   )Жанр: Сад, огород, домоводствоФормат: PDF
+Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2282B1DFE110A45F3D505B88A3CF65E5F07BF595
+magnet:?xt=urn:btih:76111F6DE00B3115329C15D8A2F4EEC496862104
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,28 +494,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192097   (263525) от 16.12.2017
+###  Публикация: 1339713   (265356) от 20.11.2019
 
-VA - Trance Nation: Cyber Party (2017) [MP3|320 Kbps] <Progressive, Uplifting, Vocal Trance>
+Path Finder 9.0.4 [Multi/Ru]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265356.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Armin van Buuren - My Symphony
-002. Mike Meade - Silvermoon (Club Mix)
-003. ATB & Andrew Rayel - Connected
-004. Apollo 94 - Regalia (Original Mix)(   Читать дальше...   )Жанр: Progressive, Uplifting, Vocal TranceПродолжительность: 07:26:41
+Path Finder - один из лучших файловых менеджеров, с продуманным до мелочей интерфейсом: наличие вкладок, предварительный просмотр документа или аудио/видео файлов,  управление процессами, работа с архивами, установка/удаление приложений, возможность изменять горячие клавиши в системе, конвертировать образы CD/DVD/BlueRay-дисков, двухпанельность и многое, многое другое. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: CocoatechПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:315B66788A3CCA64969880700F1D0A7AAE1CAB46
+magnet:?xt=urn:btih:0E663F9CB0FE3DCD4A1A0991C9075BE9901172F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -453,28 +520,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192045   (263524) от 16.12.2017
+###  Публикация: 1339634   (265355) от 20.11.2019
 
-My Vitriol - 2 Albums (2001-2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Shoegaze>
+TouchCopy 16.36 [En]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265355.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. We've Lost Our Way (4:52)
-02. It's So Damn Easy (4:16)
-03. If Only... (God Only Knows) (3:44)
-04. (All these) Days (3:00)(   Читать дальше...   )Жанр: Alternative Rock, Shoegaze |Продолжительность: 00:45:14
+Передача музыки с вашего iPod, iPad и iPhone в iTunes
+TouchCopy позволяет копировать вашу iPod, iPhone и iPad музыку на жесткий диск. Вы даже можете передавать музыку, плейлисты и видео прямо на iTunes, включая все ваши данные песни, ваши рейтинги и обложки альбомов
+
+TouchCopy позволяет просматривать данные, хранящиеся на сенсорных устройствах iPhone, iPAD, или iPod, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: Wide Angle Software LtdПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FDCAB63582FFEF5CEC6239648E0D56BD16FDCD90
+magnet:?xt=urn:btih:CB85BC97C85328EE0FD4DCFE30AA80040E698FBB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -482,28 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192104   (263523) от 16.12.2017
+###  Публикация: 1339619   (265354) от 20.11.2019
 
-VA - Techno Disco (2017) [MP3|320 Kbps] <House, Electro, Techno>
+MacCleaner PRO 1.5.2 [En]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265354.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Paul Weekend - That On
-02. Roger Mills - U and I
-03. Mooqee, Beatvandals - Player (Original Mix)
-04. Mutehead - Bee(   Читать дальше...   )Жанр: House, Electro, TechnoПродолжительность: 06:17:54
+Очистите Mac и оптимизируйте его производительность. Ускорьте медленный Mac, освободите место на диске, удалите ненужные файлы, предотвратите ошибку «Startup Disk Full».Тип издания: macOS SoftwareРелиз состоялся: 2019Разработчик: NektonyПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C3C17D2D78F2A6867799ECCB716DD8884ACAFB3C
+magnet:?xt=urn:btih:0F7C2B5103DD0C1D7B4010F91D023E99C64BBAD0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -511,25 +575,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192050   (263522) от 16.12.2017
+###  Публикация: 1339727   (265353) от 20.11.2019
 
-Газета | АиФ. На даче №23 (495) (декабрь 2017) [PDF]
+Журнал | Дачный сезон №8 (август 2019) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265353.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Аиф. На Даче" — Популярное издание по “дачной” тематике для владельцев огородов, садовых участков, совхозов, питомников, дач и усадеб, а также для тех, кто только собирается ими стать.Жанр: Дом, сад, огород, дача, цветоводство, ландшафтный дизайнФормат: PDF
+Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D52F0EE83B51B0E1CBBC1D68B05212CEF230A944
+magnet:?xt=urn:btih:BD087888A595B2F35C89794026F8BBD4D8352344
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -537,186 +601,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192146   (263521) от 16.12.2017
+###  Публикация: 1339729   (265352) от 20.11.2019
 
-Herbie Hancock - Dancin' Grooves (1999) SME Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
+Журнал | Дачный сезон №10 (октябрь 2019) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Замечательный журнал для садоводов и огородников — секреты больших урожаев. Издание полностью составлено из писем читателей, которые делятся своим опытом, советами и успехами. На страницах журнала - советы по посадке и уходу за растениями, рекомендации умелого мастера, консультации специалистов и многое другое.Жанр: Дом, сад, огород, дачаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E86D267592D14F7E2ED654160F1F5B96A246CC3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339652   (265351) от 20.11.2019
+
+Tom Rod - Understand (1978) LP [MP3|320 Kbps] <Electronic, Pop Rock, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Understand (4:23)
+02. Depressed (2:38)
+03. The New York Rock (3:31)
+04. I've Found Love (3:17)(   Читать дальше...   )Жанр: Electronic, Pop Rock, DiscoПродолжительность: 00:34:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA30D180452378CBCA20C642B04715E84162159E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339636   (265350) от 20.11.2019
+
+Typeface 2 v2.6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Typeface 2 поможет вам выбрать идеальный шрифт из коллекции.
+
+Хорошая типография прекрасна и является одним из важнейших аспектов дизайна. Но зачастую трудно найти шрифт, который передает только нужные эмоции, особенно если вы не уверены, что ищете.
+С минимальным интерфейсом и полным вниманием к вашим шрифтам Typeface старается сделать просмотр вашей коллекции увлекательным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 30.10.2019Разработчик: Floor SteegПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47207DD0E9E48B819996C3F445E72773EECA226A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1339602   (265349) от 20.11.2019
+
+Ella Fitzgerald & Her Fellas - The Complete 1942-1953 Vocal Duets (2018) 2CD, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263521.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Chameleon [02:52]
-02. Watermelon Man [02:56]
-03. Sly [02:46]
-04. Butterfly [03:07](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-FunkПродолжительность: 00:56:12
+CD1:
+01. I'm Getting Mighty Lonesome for You (with The Four Keys) [2:46]
+02. When I Come Back Crying (Will You Be Laughing at Me?) (with The Four Keys) [2:57]
+03. All I Need Is You (with The Four Keys) [3:02](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:35:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1F443BE7A1135BD7279279D02F28EC9A8795E14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192054   (263520) от 16.12.2017
-
-Журнал | Домашние цветы №12 (123) (декабрь 2017) [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263520.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для настоящих любителей комнатных цветов. На страницах издания вы узнаете как добиться более быстрого и пышного цветения, защитить любимые растения от болезней и вредителей, размножить наиболее простым и эффективным способом. Своим личным опытом выращивания и ухода за цветами делятся цветоводы-любители и профессионалы — кандидаты и доктора биологических наук.Жанр: ЦветоводствоФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60D1588489B1870C0C8220DDF4BEC62BC70BC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192077   (263519) от 16.12.2017
-
-The Chi Factory - Red Lantern At The Kallikatsou (2017) Astral Industries [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Techno Ambient>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263519.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Part One (feat. Hanyo van Oosterom) (21:01)
- 02. Part Two (feat. Hanyo van Oosterom) (21:01)Жанр: Ambient, Experimental, Techno AmbientПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:101180212BC0D7DA68F3CB30E4AA5D56C3EFB903
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340614   (263518) от 24.11.2019
-
-VideoHive - Winter Photo Gallery - 10340369 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263518.jpg" />
-</div>
-
-
-###  Подробнее
-
-Winter Photo Gallery - красивый проект AE. Дает вам возможность создавать совершенно потрясающий видеоклип с вашими фотографиями, видеофайлами и текстами.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A94F32B1BD3C4C5C8AE57F9020B94C655685C0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340739   (263517) от 24.11.2019
-
-Спасти или погибнуть / Sauver ou perir (2018) HDRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263517.jpg" />
-</div>
-
-
-###  Подробнее
-
-Франк — обычный парижский пожарный и счастливый семьянин, отец близнецов. Во время очередного вызова он жертвует собой ради спасения людей. Очнувшись в больнице, Франк узнает, что его лицо изуродовано пламенем. Теперь ему предстоит согласиться на свое спасение и заново научиться жить.
-Основано на реальных событиях.Производство: Франция / Single Man Productions, Mars Films, France 3 CinémaЖанр: ДрамаРежиссер: Фредерик ТелльеАктеры: Пьер Нинэ, Анаис Демустье, Венсан Ротье, Хлоя Стефани, Сами Буажила, Элизабет Коммелен, Amélie Bénady, Mostepha Bouabane, Calypso Buijtenhuijs, Ясин УишаПеревод: Многоголосый закадровый, профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:56:33Реклама: Присутствует баннер.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E81A4F502A2CE2FE56347D37E14067BB8D524A21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340592   (263516) от 24.11.2019
-
-VideoHive - Christmas Memories Album - 25131654 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263516.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект Christmas Memories Album отлично подойдет для Рождества, Нового года, любого вступления или слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A824941903FD314957DCA0002D58FF0D3DE58310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340558   (263515) от 24.11.2019
-
-Хорошая жена (2018) HDTVRip (сезон 1, серии 1-20 из 20)
-
->>Отечественные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263515.jpg" />
-</div>
-
-
-###  Подробнее
-
-В течение одного дня жизнь Алисы меняется. Её муж, прокурор ленинградской области, Пётр Филиппов становится героем сразу нескольких громких скандалов. Репутация, которую он так долго выстраивал оказалась разрушена. Алиса с детьми переезжает в простую, но просторную квартиру свекрови в центре Питера.Производство: Россия / "Sony Pictures Television Russia", Team FilmsЖанр: драмаРежиссер: Станислав ЛибинАктеры: Александра Урсуляк, Александр Домогаров, Дмитрий Миллер, Марина Зудина, Сабина Ахмедова, Наиль Абдрахманов, Сергей Погосян, Алексей Барабаш, Арсений Гусев, Елизавета Зарубина и др.Продолжительность: ~00:50:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E834CD5430D71A523BFCABC36D3AE151716075E
+magnet:?xt=urn:btih:A70D086E0B5AF268DC5EAC62079AC46F127E6AE6
 ```
 
 https://mybot314.ru/tekegram_catalog/

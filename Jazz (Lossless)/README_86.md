@@ -1,3 +1,61 @@
+###  Публикация: 1279447   (766187) от 29.01.2019
+
+Bo Ramsey - Wildwood Calling (2016) [FLAC|Lossless|tracks + .cue] <Chicago Blues, Delta Blues, Country Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fly On (Part 2) (2:23)
+ 02. Through The Trees (3:10)
+ 03. Feather Trail (2:22)
+ 04. Glide (2:22)(   Читать дальше...   )Жанр: Chicago Blues, Delta Blues, Country BluesПродолжительность: 00:31:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7EF4B5A11DC1A603FF9E282BBAD9375253D479A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521217   (766185) от 01.01.2022
+
+John Coltrane - My Favorite Things (1960) 1987, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Favorite Things [13:44]
+02. Everytime We Say Goodbye [5:43]
+03. Summertime [11:36]
+04. But Not for Me [9:34]Жанр: Hard Bop, Post-Bop, Avant-Garde JazzПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E4648046B126ABA0102D9949DA6AF72DC8CF01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1279440   (766120) от 29.01.2019
 
 Eva Cassidy - Songbird (1998) [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Ballad, Easy Listening>
@@ -687,64 +745,6 @@ Mel Torme & Rob McConnell - And The Boss Brass (1986) Concord Jazz [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C58FF01F196305AA747D8B0119A6148629776CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279794   (764600) от 31.01.2019
-
-Harry Connick, Jr. - What a Night! A Christmas Album (2008) Columbia Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's the Most Wonderful Time of the Year [3:29]
-02. What a Night! [3:25]
-03. Christmas Day [3:24]
-04. Have a Holly Jolly Christmas [4:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC6CB6E261A664168B7561AAB375D52A61730419
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279799   (764599) от 31.01.2019
-
-Domagoy Ralasic With Benny Bailey - The Bag Is Packed (1997) Timeless [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues For Lady 'J' [7:12]
-02. For All We Know [6:16]
-03. Lester Leaps In [4:28]
-04. Body & Soul [7:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FED658694227CBFCDA7A2BDA1BB239C0D37B495
 ```
 
 https://mybot314.ru/tekegram_catalog/

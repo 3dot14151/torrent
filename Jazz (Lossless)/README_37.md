@@ -1,3 +1,61 @@
+###  Публикация: 988850   (919290) от 21.02.2016
+
+The Paul Bley Quartet - Solemn Meditation (1957) 2008, Fresh Sound Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Birk's Works [06:04]
+ 02.O Plus One [03:18]
+ 03.Porgy [03:41]
+ 04.Solemn Meditation [03:35](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde JazzПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26CC41464D8586F27337612DA651A29D6B66F923
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 988530   (919273) от 21.02.2016
+
+Bill Evans - Empathy + Pike's Peak (1961-1962) 2013, Essetial Jazz Classics[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.The Washington Twist [06:27]
+ 02.Danny Boy [03:42]
+ 03.Let's Go Back To The Waltz [04:33]
+ 04.With a Song in My Heart [09:13](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:514D72BC661046100EE3BABC9D632BE71FB9F922
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498478   (919214) от 24.01.2017
 
 Bennie Green - Bennie Green (1960) 1980, Bainbridge Records [FLAC|Lossless]<Bop>
@@ -706,64 +764,6 @@ Kenny G - Brazilian Nights [Deluxe Edition] (2015) [FLAC|Lossless|WEB-DL]<Smooth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13A0822DB4763232652C9BF1B491C147863BDE08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097205   (916069) от 26.01.2017
-
-Drawing Hands - March (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Contemporary Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916069.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Siloa's Brook. (5:21)
-2. The Only Moving Thing. (1:21)
-3. Interlude #3. (2:52)
-4. Cold Fusion. (5:03)(   Читать дальше...   )Жанр: Contemporary Jazz, Jazz FusionПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A9DE454251878C2E6D4037F1DD0D2CB6588B97D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097145   (916064) от 26.01.2017
-
-Maynard Ferguson - A Message From Newport (1958) 1989, Roulette[FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Fugue [03:29]
- 02.Fan it, Janet [03:17]
- 03.The Waltz [04:05]
- 04.Tag Team [05:09](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Big BandПродолжительность: 00:44:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF734E79DBF78A394832092697F68EA6FB6D7958
 ```
 
 https://mybot314.ru/tekegram_catalog/

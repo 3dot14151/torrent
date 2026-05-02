@@ -1,3 +1,61 @@
+###  Публикация: 1337054   (276381) от 09.11.2019
+
+Terell Stafford - This Side Of Strayhorn (2011) MaxJazz [FLAC|Lossless|image + .cue] <Post-Bop, Trumpet Jazz, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raincheck [7:56]
+02. Smada [8:58]
+03. My Little Brown Book [7:20]
+04. Lush Life [7:44](   Читать дальше...   )Жанр: Post-Bop, Trumpet Jazz, Straight-Ahead JazzПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B8984366A9CB081B3296385C3760CD95FD39976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337046   (276380) от 09.11.2019
+
+Emil Viklicky Quartet - 'Round Midnight (1991) Arta Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overflown [6:28]
+02. Little Rootie Tootie [5:20]
+03. Not Yet [5:36]
+04. Bradley's Blues [4:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:54:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9806BA9BD48778A86A24CE5EE21A922FEE539DF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1337043   (276376) от 09.11.2019
 
 Jon Faddis - Hornucopia (1991) Epic [FLAC|Lossless|image + .cue] <Post-Bop, Trumpet Jazz>
@@ -698,64 +756,6 @@ CD 1:
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187845   (274574) от 02.12.2017
-
-Various Artists - Verve & Blue Note Today 2017 (2017) [FLAC|Lossless|tracks + .cue] <Jazz,  Mainstream Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charles Pasi - Love Me Or Leave Me
-02. Kandace Springs - The World Is A Ghetto
-03. Trombone Shorty - Tripped Out Slim
-04. Miles Mosley - Abraham(   Читать дальше...   )Жанр: Jazz,  Mainstream Jazz, Vocal JazzПродолжительность: 01:17:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46226F8779BEE4771A90925DDD8E4E39C6B0204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265559   (274213) от 28.11.2018
-
-Bunny Berigan - 1936 - 1937 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That Foolish Feeling [2:55]
-02. Where Are You? [3:18]
-03. In A Little Spanish Town [2:48]
-04. The Goona Goo [2:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E486E004F7418CB3D14EEE8A60C4956420EC585
 ```
 
 https://mybot314.ru/tekegram_catalog/

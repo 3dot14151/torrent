@@ -1,3 +1,61 @@
+###  Публикация: 1632974   (234803) от 13.05.2023
+
+Teresa James & The Rhythm Tramps - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Time Low
+02. I Know I Ain't Been So Perfect
+03. I Know What Love Can Do
+04. Here In Babylon(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB0B6185DBD6CC2B4F3F46108560E24D71E8B5F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632976   (234772) от 13.05.2023
+
+Danielle Nicole - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawl
+02. I'm Going Home
+03. Hot Spell
+04. Take It All(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2F936D8DAF0EC3D4AF64DB63459246F34DE1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1633073   (234645) от 13.05.2023
 
 VA - Beat It Guitar Solos (2023) [MP3|320 Kbps] <Rock>
@@ -687,64 +745,6 @@ VA - MyTones - Heavy Metal Ringtones (2023) [MP3|320 Kbps] <Rock, Hard Rock, Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:414A6F9E552D9E9060A7FE8BBA2717E95571BFA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640763   (211009) от 19.06.2023
-
-MyTones - Ultimate ACDC Tones (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In Black (Originally Performed by AC/DC) [00:29]
-02. For Those About To Rock (Originally Performed by AC/DC) [00:29]
-03. Heatseeker (Tribute in the Style of AC/DC) [00:29]
-04. Hell's Bells (Originally Performed by AC/DC) [00:29](   Читать дальше...   )Жанр: RockПродолжительность: 00:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F135A63809375E7CE61C9696D22CE012CA4FF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642023   (210578) от 25.06.2023
-
-VA - Assorted rock, blues rock, ballads part  25 Compilation (2023) [MP3|320 Kbps] <Rock. Ballads, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scott Ellison - Loaded Gun Tonight
-02. Scott Ellison - Shakin With the Blues
-03. Paul Mark and the Van Dorens - Don't Get Me Started
-04. Scott Ellison - These Blues Got a Hold on Me(   Читать дальше...   )Жанр: Rock. Ballads, BluesПродолжительность: 02:27:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EA1DE759C21B3414C3E3EDF6E6D39D52BF993C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

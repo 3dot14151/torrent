@@ -1,3 +1,56 @@
+###  Публикация: 1349752   (1004022) от 03.01.2020
+
+Macrium Reflect v 7.2.4601 Free Edition [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004022.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrium Reflect Free обладает интуитивно понятным пользовательским интерфейсом, состоит из набора полезных утилит для резервного копирования и восстановления данных.
+Бесплатная утилита получила высокие оценки за выполнение задач резервного копирования. Она способна защитить ваши личные документы, фотографии, музыку, сообщения электронной почты от утери, просто нужно (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8A616F3CB88E2F4C34546F9A4C34CDAE6A8874C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487099   (1003999) от 03.08.2021
+
+Movavi Video Editor Plus 21.4.0 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Editor, это один из лучших видео-редакторов на рынке мультимедийных продуктов, ориентированных на массового пользователя, профессиональных требований не требуется, вам достаточно владеть опытом работы с простыми мультимедийными программами. Movavi Video Editor дает возможность юзеру заниматься редактированием своих видео-файлов на хорошем базовом уровне. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0696FE08EB55F233E8F9DFB53BD1390DB4A24DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349896   (1003984) от 03.01.2020
 
 Isoo Backup 4.3.1.762 RePack (& Portable) by elchupacabra [Ru/En]
@@ -628,64 +681,6 @@ Master PDF Editor — простая, но эффективная програм
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2B5C1DB3AFC8B3274B1D95B9070E8CAD4E17046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350116   (1003813) от 04.01.2020
-
-The Star Pillow - Music For Sad Headbangers (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Drone, Post Rock, Dark Jazz>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003813.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruno Martino Is My Tom Araya (5:20)
-02. Departures (11:11)
-03. Circle Of Events (5:30)
-04. Moving Grey (6:01)(   Читать дальше...   )Производство: Midira Records – MIDIRA 059Жанр: Ambient, Drone, Post Rock, Doom Metal, Dark JazzПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B925184A82B54F888157C90041A4C5DA3A8B6C43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350130   (1003812) от 04.01.2020
-
-Atrium Carceri & Cities Last Broadcast - Black Stage Of Night (2019) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mind Turns To Night (4:16)
-02. Attic And Wormwood (3:37)
-03. A Glass Of Sleep For An Elegant Dream (3:12)
-04. All Things Nocturnal (5:36)(   Читать дальше...   )Производство: Cryo Chamber – CRYO 128Жанр: Dark Ambient, AmbientПродолжительность: 00:34:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:745CC0DDD868C52FDEA87F37748A0B673579F173
 ```
 
 https://mybot314.ru/tekegram_catalog/

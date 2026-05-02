@@ -1,3 +1,61 @@
+###  Публикация: 1864029   (1063025) от 07.04.2026
+
+Daniele Gazzarin - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Last Curve
+02 - The Hunt in the Night
+03 - Hero
+04 - March 8 - Woman(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:987BDA832A39F323BCB062AF11F1D9A5325E3CC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861683   (1062777) от 27.03.2026
+
+Сплин best (1994-2025) [MP3|320 Kbps] <rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062777.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:37] . 01-Звери
+[5:36] . 02-Сказка (remake 1994)
+[5:05] . 03-Что ты будешь делать?
+[3:24] . 04-Нечего делать внутри(   Читать дальше...   )Жанр: rockПродолжительность: 04:49:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC4F4A9656BCA7F1F60742F84E3ED1A6C01E0642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1861212   (1062599) от 24.03.2026
 
 Мумий Тролль best (1985-2022) [MP3|320 Kbps] <rock>
@@ -687,64 +745,6 @@ VA - Blues & Rock part  15 Compilation (2023) [MP3|320 Kbps] <Blues & Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C77403EBBEEC2B079A90E3A6A9B3AD8BDD9B7D9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605364   (1044953) от 17.01.2023
-
-VA - Music For You vol. 27 (2023) [MP3|320 Kbps] <Metal, Rock, Other>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044953.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gnarbot - Thrapticious (10:02)
- 02. Soft Machine - Hazard Profile Part 5 (05:29)
- 03. The Groundhogs - Garden (05:24)
- 04. All Them Witches - Real Hippies Are Cowboys (08:08)(   Читать дальше...   )Жанр: Metal, Rock, OtherПродолжительность: 02:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76327E2918956351ECFDED71DF6D00E3C499EA31
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606484   (1044373) от 22.01.2023
-
-VA - Classic Rock (2023) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tom Petty And The Heartbreakers - American Girl (3:34)
-02. The Doors - Roadhouse Blues (4:03)
-03. Whitesnake - Here I Go Again 87 (4:35)
-04. Foreigner - Cold as Ice (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 04:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14E3F83387861325EFE670F9D215465164A36413
 ```
 
 https://mybot314.ru/tekegram_catalog/

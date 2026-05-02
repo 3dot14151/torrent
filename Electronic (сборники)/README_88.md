@@ -1,3 +1,61 @@
+###  Публикация: 1222175   (687491) от 28.04.2018
+
+VA - Ibiza Kickoff (2018) [MP3|320 Kbps] <House, Funky, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Jay - Your Own Way (feat. Sarah Brickel)
+02. Danceheat - I'll Be by Your Side (Extended Mix)
+03. Loungeside - No Longer Used (Alternative Mix)
+04. Tiziara - Save Me (Extended Mix)(   Читать дальше...   )Жанр: House, Funky, Club HouseПродолжительность: 04:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DF281FE7A15E0C206460A325CD8BA419A70637B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134563   (687451) от 16.05.2017
+
+VA - Under The Influence New Trance Music (2017) [MP3|320 Kbps] <Vocal, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687451.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Delta - Back In My Life (DJ Osip Radio Edit)
+002. Jaren - Man On The Run
+003. Dave Pearce & Farius - Sundar (Original Mix)
+004. Illitheas - Last Forever (Original Mix)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 08:18:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455457A0F678282C0A857BC260B651676E3CA90D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1134622   (687434) от 16.05.2017
 
 VA - Synthetic vol.4 - Futurepop Edition (2017) [MP3|320 Kbps] <Futurepop, Synthpop, EBM>
@@ -685,64 +743,6 @@ VA - LUXEmusic - Dance Super Chart Vol.117 (2017) [MP3|320 Kbps] <Club House, De
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:431DA38891A9BE617854841596DA5697E77D037C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222439   (685052) от 29.04.2018
-
-VA - Nassau Beach Club Ibiza 2018 (2018) [MP3|320 Kbps] <Electronic, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackloud - Insider (Original Mix)
-02. Neja - The Role of Love (Sounds of Soul Retouch)
-03. Sandy Rivera feat. DaNii - You Work Hard for Your Enemy (Extended Mix)
-04. Sue Avenue feat. Marta Del Grandi - Try (Original Mix)(   Читать дальше...   )Жанр: Electronic, Dance, HouseПродолжительность: 05:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17CDE33DF53ECA2A7C117C2B7B90E7D1188B0BF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134917   (684853) от 17.05.2017
-
-VA - Deep House Collection Vol.121 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684853.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A. Rassevich - Give It To Me (Original Mix) 5:34
-002. Acidbro & Sasha 4Time - Diplow (Original Mix) 7:26
-003. Alateya, Lisitsyn, MBNN - Call Me Now (Namatria Remix) 5:08
-004. Aldo Bergamasco feat. Tommie Cotton - In My House  (Instrumental Mix) 6:24(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B507976396D6D092CCBD94AF642E8FA101B673
 ```
 
 https://mybot314.ru/tekegram_catalog/

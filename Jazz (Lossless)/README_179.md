@@ -1,3 +1,61 @@
+###  Публикация: 1247392   (452879) от 15.09.2018
+
+Ahmed Abdul-Malik, Ray Nance, Seldon Powell - Spellbound (1964) 2013, Real Gone Music [FLAC|Lossless|tracks + .cue] <Hard Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spellbound [4:57]
+02. Never on Sunday [5:14]
+03. Body and Soul [7:14]
+04. Song of Delilah [7:02](   Читать дальше...   )Жанр: Hard Bop, World FusionПродолжительность: 00:32:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F29A661C150A3B6CF22F8CC7918F5E00E381072
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1247384   (452878) от 15.09.2018
+
+Joey Alexander - Joey.Monk.Live! (2017) Motema [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Round Midnight [5:47]
+02. Evidence [8:26]
+03. Ugly Beauty [7:11]
+04. Rhythm-A-Ning [6:27](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:344D64D5B8C5D93D5E7B87F83E5C300CB77F4F16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247383   (452875) от 15.09.2018
 
 Joey Alexander - Eclipse (2018) Motema [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
@@ -688,64 +746,6 @@ VA - Bar Jazz Vol.2 (2010) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B73EE090883C30F74880397F83BD2860FA5F4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 705698   (448911) от 30.09.2013
-
-VA - Cocktail Jazz (2008) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mel Torme - 'Round Midnight [3:15]
-02.  Blossom Dearie - Manhattan [4:19]
-03.  Count Basie - Watermelon Man [3:13]
-04.  Shirley Horn - Hit The Road, Jack [3:11](   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A619214A19ABF5ADE5B1DE898EE2530D6398CE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061451   (448870) от 10.10.2016
-
-Carlos Santana - Blues For Salvador (1987) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448870.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bailando/Aquatic Park (5:47)
-02. Bella (4:29)
-03. I'm Gone (3:09)
-04. 'Trane (3:10)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67C7821E186C94595C908731EDEDDA123A100358
 ```
 
 https://mybot314.ru/tekegram_catalog/

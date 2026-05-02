@@ -1,3 +1,61 @@
+###  Публикация: 1704646   (114103) от 05.03.2024
+
+Stephane Grappelli Trio - I Got The World On A String (1996) 1998, West Wind [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Took Advantage of Me [3:37]
+02. Do You Know What I Mean [4:05]
+03. How About You [4:15]
+04. Looking at You [4:22](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8227A031027F827BDC9ED98518D98AB44E65E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704637   (114101) от 05.03.2024
+
+Lionel Hampton - 1945 - 1946 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vibe Boogie [5:27]
+02. Screamin' Boogie [5:48]
+03. Doublin' with Dublin [3:09]
+04. Ribs and Hot Sauce [2:32](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD14B3A8C561033C68D3B63865E67F1D23992BF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704626   (114100) от 05.03.2024
 
 Wynton Marsalis - Hot House Flowers (1984) CBS [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -687,64 +745,6 @@ Cedar Walton - Firm Roots (1972 - 1990) 2СD, 1999, Camden [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:971E141F06B31655FF924C99522AC0E4E588B915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705565   (113774) от 09.03.2024
-
-Brother Jack McDuff Quartet With Grant Green - Goodnight, It's Time to Go + The Honeydripper (1961) 2013, Groove Hut Records [FLAC|Lossless|tracks + .cue] <Soul-Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanctified Waltz [4:54]
-02. Goodnight, It's Time to Go [6:16]
-03. I'll Be Seeing You [7:40]
-04. A Smooth One [10:50](   Читать дальше...   )Жанр: Soul-Jazz, Hard BopПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8C35612366D21E0E4664EE78AD840B51C4B0CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705564   (113773) от 09.03.2024
-
-Chuck Wayne - String Fever (1957) 2001, Euphoria [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby in Rhythm [3:08]
-02. Embraceable You [4:39]
-03. Love for Sale [5:09]
-04. Along with Me [3:19](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Guitar JazzПродолжительность: 00:57:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDBF974D60C3ACC930624FF5C8F72EF92FE37BAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

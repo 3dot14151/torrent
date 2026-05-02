@@ -1,3 +1,58 @@
+###  Публикация: 1215898   (754775) от 28.03.2018
+
+Chiara Civello - Canzoni (2014) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Via con me (3:49)
+02. Io che non vivo senza te (feat. Gilberto Gil) (3:34)
+03. Con una rosa (4:25)
+04. Que me importa el mundo (4:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048983557848C0BCD50C3B79BB3D51995E34D053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018800   (754014) от 21.05.2016
+
+VA - Swingers (2CD) (1997) [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Jazz, SwingПродолжительность: 01:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6BA850A0A882833A7BF75F130BDAD082D638329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1395563   (753828) от 11.07.2020
 
 Dakota Staton - Isn't This A Lovely Day (1995) Muse Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -685,64 +740,6 @@ Pharoah Sanders - Love In Us All (1973) 2007, Universal [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E13457CF5E362624D84F19A03D41213FA0784827
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396408   (748686) от 14.07.2020
-
-Rez Abbasi Acoustic Quartet - Intents and Purposes (2015) [FLAC|Lossless|tracks + .cue] <Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748686.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Market (Zawinul) - 7:57
-02. Butterfly (Hancock) - 7:36
-03. Joyous Lake (Martino) - 8:00
-04. Medieval Overture (Corea) - 4:56(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3860CF1D84DAA4264AF548376FF52CEAAB4A0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019769   (748653) от 24.05.2016
-
-Phil Woods & Gene Quill Sextet - Phil And Quill (1956) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Sax Fifth Avenue [03:15]
- 02.Ready Rudy [03:04]
- 03.Cabeza [03:17]
- 04.Twin Funkies [03:32](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:37:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03CC45F29EB7D64AA35351A811FA49856D50414D
 ```
 
 https://mybot314.ru/tekegram_catalog/

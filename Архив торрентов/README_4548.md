@@ -1,3 +1,235 @@
+###  Публикация: 472091   (97494) от 23.03.2012
+
+Claudio Merlini - Enchantment WEB (2012) [FLAC|Lossless]<Electronic, New Age, Chill Out, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Claudio Merlini - Enchantment WEB (2012)
+Год: 2012
+Жанр: Electronic, New Age, Chill Out, Ambient
+Продолжительность: 01:18:37Кодек: FLAC
+Битрейт: Lossless
+Тип рипа: tracks + .cueТрек лист:
+01. Desire (3:40)
+02. Portraits (3:50)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04B3DBA0ABE2D3CDCA976E7638574089887C0BD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472193   (97492) от 23.03.2012
+
+Журнал | Империя вкуса №2 [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Специализированное издание, посвященное алкогольным и безалкогольным напиткам, а также ресторанному бизнесу, удачно сочетающее профессиональную и популярную подачу материалов, полезную и интересную информацию.2012Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1756D55CC8D2B0B88F54411C07BAFBFE4EF63198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471959   (97491) от 23.03.2012
+
+VA - XXXL Блатной Весна (2012) [MP3|256 кб/с]<Шансон>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Анатолий Полотно и Федя Карманов - За друзей!
+02. Александр Новиков - Три дня
+03. Ирина Круг - Любить не страшно
+04. Кира Дымов и Любовь Успенская - Берегу и Кораблю
+05. Афина и Кронштадт - Голос
+06. Ляля Размахова и Джалал Аббасов - Хочется
+07. Андрей Федосеев - Вошла несмело
+08. Семен Канада - Как мне быть
+09. Алена Андерс - Рябина
+10. Михаил Загот - Не закрывай глаза2012Жанр: ШансонПродолжительность: 06:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D10E37FE112433B263FC5B3CD3B8B931D11CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472413   (97490) от 23.03.2012
+
+[Wallpapers] HD Pictures №8
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97490.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Pictures №8
+Название: HD Pictures №8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 4000х3000
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E095870BA53047A9F376006D0D5E1D7E12870743
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472076   (97489) от 23.03.2012
+
+[Wallpapers] Girls Wallpapers (23.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:718B15E6A13E31FCFCDDB9151ED783DF717519F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472417   (97488) от 23.03.2012
+
+[Wallpapers] Green Wallpapers 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97488.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Green Wallpapers 2
+Название: Green Wallpapers 2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AADC260185796E0E93E11FA777B67CD0BEDA3CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472267   (97487) от 23.03.2012
+
+[Wallpapers] Best HD Wallpapers Pack (24.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E84069836F16B43C288CB1D5ECC0657C608F423A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472439   (97486) от 23.03.2012
+
+Формула 1. Гран-При Малайзии. 1-ая свободная практика (2012) HDTV [1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97486.jpg" />
+</div>
+
+
+###  Подробнее
+
+Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4EA46EFBA73774396301ADA253AAF413A6B739B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 472444   (97480) от 23.03.2012
 
 Формула 1. Гран-При Малайзии. 2-ая свободная практика (2012) HDTV [1080i]
@@ -476,260 +708,6 @@ Various Artists - Tranceffect 17 (2012) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:832469C8237D598969050E9926F9A7634DE8DE68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471309   (97441) от 22.03.2012
-
-VA - Organic Wick (2011) [MP3|320 кб/с]<Psychedelic / Psy-Prog, Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silicon Sound - Hyperion (Screenagers remix) 08:24
-02. Cabal - Roll The Drums 07:44
-03. Osher & Avshi - The 60s 08:14
-04. Interval - Nautilus (original mix) 07:31
-05. Sideform - Santo Daime (Relativ remix) 08:42
-06. Twina and Aza Syndrom - Cutting Edge (Science remix) 07:52
-07. Dimension X - Night Sensations 09:45
-08. Ace Ventura & Intelabeam - The John (Mute remix) 08:52
-09. Aqualize - Land of 2 Suns (Klopfgeister remix) 10:02
-10. NOK - Messed Up 08:07(   Читать дальше...   )2011Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BEF255561CAF4D4C5A0AC7FC4664C3576434025
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471980   (97440) от 22.03.2012
-
-[Wallpapers] HD Pictures №6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97440.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Pictures №6
-Название: HD Pictures №6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23163F83939E5FF186C063FC0DDD96F690842ED1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471884   (97439) от 22.03.2012
-
-Водная жизнь (серия 4 из 26) / Water Life (2007)  BDRip [720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Снято во всем мире на протяжении трех лет, используя четыре типа камер Canon HD, серия была произведена в Испании. Каждая глава это различные экосистемы, с акцентом на цикл от воды и последствий загрязнения и изменения климата на эти экосистемы. Описан весь цикл воды, в том числе испарения, осадки, роса и подземных водоносных горизонтов.История воды является историей жизни. От диких и чистых горных озер, рек, где начинаются, великолепные коралловые рифы, это эпический портрет богатого разнообразия жизни, а также поучительное свидетельство об опасностях, которые окружают нашу голубую планету.Жанр: ДокументальныйПродолжительность: 00:27:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF763FB9D51FE7772BEA9C9903999239DB43432
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470990   (97438) от 22.03.2012
-
-SRS - Совместный [DNИL, DiZou, Benny] (2012) [MP3|256, 320 кб/с]<Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97438.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (DiZou, DNИL, Benny)
-02. О своём (Benny, DNИL, DiZou, Alex Grey, SLY)
-03. Отрадный (solo: DNИL)
-04. Возвращение (DNИL & KSENIA)
-05. Все реже (DNИL & DiZou)
-06. Каждому своё (DNИL & DiZou)
-07. НеделА (DiZou, DNИL, Benny)
-08. Давай братан (solo: DiZou) 256 кб/с
-09. Время (DNИL & DiZou)
-10. Пару историй (Benny & DNИL)(   Читать дальше...   )2012Жанр: Rap, Hip-HopПродолжительность: 01:22:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F021582CD9904FB29AFFBA08EADF2E645C623D8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471442   (97437) от 22.03.2012
-
-Borknagar - Urd (2012) [MP3|192 кб/с]<Black Metal / Progressive Viking/Folk Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97437.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Epochalypse 06:08
-2. Roots 05:55
-3. The Beauty of Dead Cities 04:15
-4. The Earthling 06:51
-5. The Plains of Memories 04:27
-6. Mount Regency 06:08
-7. Frostrite 04:50
-8. The Winter Eclipse 08:45
-9. In a Deeper World 05:422012Жанр: Black Metal / Progressive Viking/Folk MetalПродолжительность: 00:53:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A21BBAD42D6D82304EB39EFA7302D9765B4C1751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471671   (97436) от 22.03.2012
-
-Pybus Groove Quartet - Good Evening (2011) [MP3|192 кб/с]<Jazz, Funk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97436.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Good Evening (6:02)
-2.Natural Blend (6:17)
-3.Green Tea (5:18)
-4.Chatterbox (5:57)
-5.Sweet Soul (6:32)
-6.Fot-li (3:57)
-7.Misterios al Descubierto (6:21)
-8.Shamtime (5:15)2011Жанр: Jazz, FunkПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3418B4286ADBB410358C360A46F8E56AE1CD8F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471952   (97432) от 22.03.2012
-
-Каникулы в Мексике - 2. Выпуск №14 (2012.03.22) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97432.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:46:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49259657152DE75F5CA90AE8D9EA4981509D7077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471601   (97430) от 22.03.2012
-
-VA - XXXL Танцевальный 50/50 Весна (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. LMFAO - Sexy & I Know It
-02. MaXimA - Так Тихо (Fidel Wicked Radio Edit)
-03. Jai Alexander & Sarah - The Legend (Radio Edit)
-04. Samo'L feat A-Sen - Малиновие сны (DJ Movskii & DJ Karasev Remix)
-05. Serge Devant - Sweet Harmony (Mike Candys Higher Level Bootleg Rework)
-06. Алена Высотская - С ума сходил (DJ Prosvirin Mix)
-07. Andrey Dubovitskiy & Dj Bobo - Love Is All Around (2012 Club Mix)
-08. DJ Nejtrino & DJ Siluyanova & MC Shayon - Любовь
-09. Yolanda Be Cool feat. Crystal Waters - Le Bump (Original Mix)
-10. F. Jay feat. Olesya - Держи меня за руку (DJ Melnikoff feat. DJ Prado Remix)2012Жанр: Pop,DanceПродолжительность: 06:24:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EF0D45CE5EE5331FB0BD8FDE093357C97691B2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

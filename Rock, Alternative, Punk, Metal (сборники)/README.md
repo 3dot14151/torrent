@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1867114   (1066567) от 
+
+Daniele Gazzarin - Favorites Collection Part 9 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066567.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dust and Rust
+ 02 - The Silent Phones
+ 03 - The Minister and the Bar
+ 04 - Dust and Rust Passionate Version(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABA95287EFEA0FE6DE2A0F2EECC7CC84BD9B25E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866067   (1065788) от 19.04.2026
+
+Daniele Gazzarin - Favorites Collection Part 8 (2026) [MP3|320 Kbps] <Country, RootsRock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Lovers Ii
+ 02 - The Chosen One
+ 03 - Me and You
+ 04 - Take My Hand(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:33:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DDB5C6F493CC94B9FE393667C3F1B01ABF0AB76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865489   (1065652) от 16.04.2026
 
 Daniele Gazzarin - Favorites Collection Part 7 (2026) [MP3|320 Kbps] <Country, RootsRock>
@@ -682,64 +740,6 @@ Joe Bonamassa - mix (2026) Part Two [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78277DD7AAB4E0235D7DAA284DA5C4A15A77F266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864029   (1063025) от 07.04.2026
-
-Daniele Gazzarin - Favorites Collection Part 2 (2026) [MP3|320 Kbps] <Country, RootsRock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Last Curve
-02 - The Hunt in the Night
-03 - Hero
-04 - March 8 - Woman(   Читать дальше...   )Жанр: Country, RootsRockПродолжительность: 02:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:987BDA832A39F323BCB062AF11F1D9A5325E3CC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861683   (1062777) от 27.03.2026
-
-Сплин best (1994-2025) [MP3|320 Kbps] <rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062777.jpg" />
-</div>
-
-
-###  Подробнее
-
-[2:37] . 01-Звери
-[5:36] . 02-Сказка (remake 1994)
-[5:05] . 03-Что ты будешь делать?
-[3:24] . 04-Нечего делать внутри(   Читать дальше...   )Жанр: rockПродолжительность: 04:49:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4F4A9656BCA7F1F60742F84E3ED1A6C01E0642
 ```
 
 https://mybot314.ru/tekegram_catalog/

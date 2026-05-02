@@ -1,3 +1,206 @@
+###  Публикация: 1127164   (732076) от 21.04.2017
+
+Alice Coltrane - World Spirituality Classics 1 (2017) [MP3|320 Kbps] <New Age, Female Vocal, Spiritual>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732076.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Om Rama – 9:39
+2. Om Shanti – 6:52
+3. Rama Rama – 7:35
+4. Rama Guru – 5:52(   Читать дальше...   )Жанр: New Age, Female Vocal, SpiritualПродолжительность: 01:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296CC8D84C697A3E71AB0550D9B646726E7C9412
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021740   (732002) от 30.05.2016
+
+The Sleep Principle - Dreams of Luna (Music for Sleeping) (2016) [MP3|320 кб/с] <New Age, Miscellaneous>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eyes Closed 00:01:39
+02. Drift Away 00:01:46
+03. Dreaming of Luna 00:01:40
+04. Weightlessness 00:01:39(   Читать дальше...   )Жанр: New Age, MiscellaneousПродолжительность: 00:42:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5AC0A231C965A199D35252C58A035A495FBAF67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1529917   (731857) от 08.02.2022
+
+Евгений Алексеев - Piano Tribute to Гражданская Оборона, Vol. 2 (2022) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731857.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Сияние
+2. Кайф или больше
+3. Никто не хотел умирать
+4. После нас(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491F5CE7FB914D70E812C83B2CE7B99FFC829473
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283785   (731836) от 18.02.2019
+
+СурМеж - Рингтон Сюита (2019) [MP3|320 Kbps] <Instrumental, New Age, NeoClassical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Улыбка
+02. Сын
+03. Путь капли
+04. Ожидание(   Читать дальше...   )Жанр: Instrumental, New Age, NeoClassicalПродолжительность: 00:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D49D35A5FD9E2051E14C4EF2273B11455C941507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021552   (731640) от 30.05.2016
+
+Paul Mauriat - The Seven Seas & Summer Has Flown (2016) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731640.jpg" />
+</div>
+
+
+###  Подробнее
+
+"The Seven Seas"
+01. The Seven Seas   [04:00]
+02. So Bad - Pipes of Peace    [03:47]
+03. Thriller    [04:22](   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7540F1C2311F6A9EAE32A6281BC0D9E6620451
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1021948   (731047) от 31.05.2016
+
+VA - Absolute Country (1995) [APE|Lossless|image + .cue] <Country, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carleene Carter - Every Little Thing
+02. Billy Ray Cyrus - Achy Breaky Heart
+03. Johnny Cash & Martin Delray - Get Rhythm
+04. Tom Kell - The Girl With The Single Rose(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CDFDF806C49E7AD3155324AAD6974575676B9C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1284049   (731000) от 19.02.2019
+
+John Carpenter, Cody Carpenter and Daniel Davies - Halloween (Original 2018 Motion Picture Soundtrack) (2018) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731000.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Intro
+2. Halloween Theme
+3. Laurie’s Theme
+4. Prison Montage(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC4453334C33B5677D38C90E5A7A29B68293B2E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127618   (730981) от 22.04.2017
 
 VA - Los clasicos argentinos - Tango - Vol.14 - Eladia Blazquez: La cuidad y su gente (1996) [MP3|192 Kbps] <Tango>
@@ -539,209 +742,6 @@ Emily Rowe - Daydream (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Viol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1A80EA0E3365F003C69CAB6C98F94F5B5E79E58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127928   (729742) от 23.04.2017
-
-VA - Los clasicos argentinos - Tango - Vol.15 - Hugo Del Carril: El cantor del pueblo (1996) [MP3|192 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729742.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Osvaldo Pugliese - El Monito | Osvaldo Pugliese
-02. Francisco Fiorentino - Maria
-03. Francisco Rotundo - Sobre El Pucho
-04. Raul Garello - Che, Buenos Aires(   Читать дальше...   )Жанр: TangoПродолжительность: 00:42:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C85859FE943FAC20E810CE5352AA43ABE6302E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284400   (728905) от 21.02.2019
-
-Sleepthief - Mortal Longing (2018) [FLAC|Lossless|tracks + .cue] <New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728905.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airmid (04:31)
-02. The Sandshaper (03:59)
-03. Dust & Cloud (04:10)
-04. The Falcon in the Snow (04:32)(   Читать дальше...   )Жанр: New Age, DowntempoПродолжительность: 01:10:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD25CBCD7517C8966114E35B8F25F8DF010B8ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283989   (728895) от 21.02.2019
-
-Lalo Schifrin - Magnum Force: The Original Score (1973) Remaster, 2005, Aleph Records [FLAC|Lossless|tracks + .cue] <Jazz-Funk, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title (02:11)
-02. The Cop (02:21)
-03. Harry's Ostinato (01:01)
-04. Magnum Force (01:59)(   Читать дальше...   )Жанр: Jazz-Funk, ScoreПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6DBF24093C8ECC166267A2344BF5E727E12BA571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128231   (728673) от 24.04.2017
-
-VA - Los clasicos argentinos - Tango - Vol.16 - Osvaldo Fresedo: El aristocrata (1996) [MP3|192 Kbps] <Tango>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anibal Troilo - Danzarin
-02. Alberto Marino - De tardecita
-03. F.Ruiz-F.Rotundo - Las vueltas de la vida
-04. Carlos Gardel - Pan(   Читать дальше...   )Жанр: TangoПродолжительность: 00:50:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5963C9D6C55C03ECA24DA73C14222506F0C34C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128296   (728671) от 24.04.2017
-
-VA - Enigmatic (2006) [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terry Oldfield - Resurrection
-02. Wendy Stark - Animus Anima
-03. Terry Oldfield - Voices in the Wind
-04. John Richardson - The Power of Grace(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15F473D83042382FF9D720EC34E80FB2776332D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284488   (728655) от 21.02.2019
-
-VA - The Most beautiful musical hits the songs of Andrew Lloyd Webber (Unknown) Box Set, 3CD [MP3|320 Kbps] <Instrumental, Stage & Screen>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728655.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Amigos Papa Siempre - Barcelona Olympics
-02. Don’t cry for me Argentina -Evita
-03. Another suitcase in another hall - Evita(   Читать дальше...   )Жанр: Instrumental, Stage & ScreenПродолжительность: 02:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBB681101B5EFC53B7DFC1FCA7AA8264BFF50438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022626   (728585) от 02.06.2016
-
-Antoinette Ventura & The London Starlight Orchestra - Unforgettable (1992) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Needed Me (R. Goodrun) [00:03:58]
-02. Unforgettable (N.Cole/N.K. Cole/T. Gordon) [00:04:05]
-03. I Do It For You (B. Adams/R.G. Lange/M. Kamen) [00:04:08]
-04. La Colegiala (Leon) [00:03:31](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E5D09B3176D9BA736FCA3808260B85DA3F5A476
 ```
 
 https://mybot314.ru/tekegram_catalog/

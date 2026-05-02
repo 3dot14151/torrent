@@ -1,3 +1,55 @@
+###  Публикация: 981839   (949365) от 02.02.2016
+
+7 Days to Die (2013) [En] (Alpha 13.7 b9) Repack NIK220V
+
+>>Архив торрентов
+>>Архив Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949365.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 Days to Die - это воксельная игра про выживание среди зомби-апокалипсиса, в которой игроки могут сообща строить свои общины, отбиваться от толп зомби и стараться выжить. В 2034 году случилась ядерная война, которая практически уничтожила Землю и все человечество.Тип издания: RepackРазработчик: The Fun PimpsЖанр: Action (Shooter), 3D, 1st PersonЯзык озвучки: -/-Язык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8600033B6D559ADEBF384CB515D49A88AF1040DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362348   (949361) от 23.02.2020
+
+EZ CD Audio Converter 9.1.0.1 (x86) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949361.jpg" />
+</div>
+
+
+###  Подробнее
+
+EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5862F96E895ECBD54D85A7180ACBD051517B1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362321   (949350) от 23.02.2020
 
 EZ CD Audio Converter 9.1.0.1 (x86) RePack (& Portable) by KpoJIuK  [Multi/Ru]
@@ -658,63 +710,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4DF6488B0A80EA19B4F47DB2B8B99AE385C362B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090083   (949077) от 05.01.2017
-
-IP Scanner Pro 3.53 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949077.jpg" />
-</div>
-
-
-###  Подробнее
-
-IP Scanner Pro - сканер локальной сети для Mac OS X
-IP Scanner - приложение сканирует локальную сеть для установления всех компьютеров и устройств с IP-адресом. Результаты сканирования могут быть организованы так, как вам будет удобно. Как только устройство будет определено, ему можно присвоить любое имя и иконку, для более легкого распознавания в общем списке.
- (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 04 января 2017Разработчик: 10base-t interactiveПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7340B7B972FF1FBEE9F61CD413529BEECCD5F45F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089879   (949072) от 05.01.2017
-
-VA - Discoveries Of The Deep (2006) [FLAC|Lossless|image + .cue] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_949072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Implex - The Shape Of Time (5:05)
-02. Drum Origins - The 16th Chapter (5:49)
-03. BCee & Lomax - Letting Go (3:21)
-04. Syncopix - Treat Me Right (4:01)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B477DE8122BEC2AC24E792CA741812F50B768853
 ```
 
 https://mybot314.ru/tekegram_catalog/

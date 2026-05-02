@@ -1,3 +1,125 @@
+###  Публикация: 1571723   (429764) от 23.08.2022
+
+Soft City - Settle for the Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Settle for the Moon (3:18)
+02. Ramblin' Around (4:41)
+03. Here Comes the Roll (3:44)
+04. Fool to Love You (4:18)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE521E3313666EC26EA3363D7EC0D1107C906C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1571712   (429763) от 23.08.2022
+
+Coco O'Connor - Big Reveal (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't No Shame (3:19)
+02. No Crossroads (3:14)
+03. Big Reveal (3:24)
+04. Flower in the Sidewalk (4:40)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C90661646705791252E6B155A3273426A66EDB89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 553730   (429438) от 04.10.2012
+
+Peabo Bryson - 4 альбома (1983-2007) [FLAC|Lossless]<Soul, Ballad>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_429438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heavenly [04:36]
+02. Count On Me [04:41]
+03. Waiting For Tomorrow [04:05]
+04. I Promis I Do [05:19]
+05. Missing You [03:57]
+06. To Love About [04:26]
+07. Donґt Make Me Cry [05:09]
+08. 10,000 Reasons [04:09]
+09. Donґt Give Your Heart [04:48]
+10. I Try [05:06](   Читать дальше...   )Жанр: Soul, BalladПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945839   (429403) от 12.10.2015
+
+Snowy White And The White Flames - Little Wing (1997) /2006, Remastered/ [FLAC|image+.cue]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Discoveri 3:42
+02. Long Distance Loving 8:21
+03. I'll Be Moving On 5:54
+04. The More You Live 4:32(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1914E888BFDECC1671DD7434DFB55AA3A660C7BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250160   (428934) от 26.09.2018
 
 Melvin Taylor - 8 Albums (1982 - 2013) 9CD [FLAC|Lossless|image + .cue] <Electric Chicago Blues>
@@ -635,122 +757,6 @@ Emil & The Ecstatics - Ballad Of The Doright Man (2022) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAD928FA61815CEE48994934B347BA7F0F8D52CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573361   (412667) от 31.08.2022
-
-Back2Blues - The Brazilian Texas Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Midnight Hour (3:12)
-02. Good Time Darling (3:14)
-03. She's a Keeper (3:40)
-04. When There's No Feeling (3:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AABBDC29875AFE37E38EC80D8C3175AE920536E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573359   (412660) от 31.08.2022
-
-A Family Curse - A Family Curse (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cast A Curse (3:07)
-02. Desert Blues (3:42)
-03. Cemetery Blues (3:33)
-04. LA Blues (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAB7250B862E74EAF750586A732358A5272737F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573362   (412656) от 31.08.2022
-
-Christina Skjolberg - I´m on fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar and love (2:31)
-02. I´m on fire (2:52)
-03. Beautiful (3:32)
-04. Strange man (3:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6F6A430805E65D7FEE10CC986E708E2788B628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573376   (412652) от 31.08.2022
-
-Justine Blazer - Girl Singing the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretend in the Dark (3:33)
-02. Cold Day in Hell (4:20)
-03. Big Bright Beautiful Day (3:04)
-04. Tears of Blue (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD239B5B4976BFDDDA501C98B28FFFF6BDF2884
 ```
 
 https://mybot314.ru/tekegram_catalog/

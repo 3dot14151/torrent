@@ -1,3 +1,119 @@
+###  Публикация: 427972   (41440) от 05.10.2024
+
+Colin James - 20 альбомов (1988 - 2024) [FLAC|Lossless|image + .cue|tracks + .cue] <Blues, Rock, Swing>
+
+>>След.
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41440.jpg" />
+</div>
+
+
+###  Подробнее
+
+Colin James вне всякого сомнения один из самых заметных персонажей современной блюзовой сцены Канады, о чём говорят например 6 наград Juno (местный эквивалент Грэмми) за 90-е годы. Одно время его называли даже канадским Stevie Ray Vaughan, имея в виду прежде всего виртуозный искромётный гитарный стиль. Именно бессмертный Stevie Ray взял девятнадцатилетнего Colin (   Читать дальше...   )Список альбомов:
+1988 - Colin James
+1990 - Sudden Stop
+1993 - And The Little Big BandЖанр: Blues / Rock / SwingПродолжительность: 16:26:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:975FF2C7443B9677329B7019FB178459C1EA414E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753962   (41160) от 07.10.2024
+
+Gavin Harper - Mixed Emotions (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Howl of the Wolf (3:46)
+02. 3 Hearts of Gold (4:24)
+03. Autumn Leaves (3:05)
+04. Too Cold to Cry (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6E02F3619B84F24219F80ECCAFADA9FADFB799F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753966   (41157) от 07.10.2024
+
+Greyhound's Washboard Band - Don't Ditch It (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blues (Will Not Leave Me Alone) (4:28)
+02. Don't Tell Me About The Future (3:41)
+03. Things Ain't Going Your Way (3:16)
+04. Bad Temper Joe - Don't Ditch It (5:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF24F52D3A45B316CC23595019B7A1B5F427EB0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753960   (41156) от 07.10.2024
+
+Eric Turner Band - Midnight Train (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Might Be The Midnight Train (3:44)
+02. Glory To God (0:34)
+03. Wonderful One (2:27)
+04. Every Good And Perfect Gift (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E385A4F2CA4E41FD85252182DCA3C7D8FB13E3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753964   (41155) от 07.10.2024
 
 Gohobo - Open Door (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -630,122 +746,6 @@ Harry Connick, Jr. - 20 (1988) [FLAC|Lossless|tracks + .cue] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5BBDC4BFB6F16A153B1F27BC2FFAF6BAC012AFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756664   (39550) от 22.10.2024
-
-John Haydock - Haunted Eyes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Haunted Eyes (4:57)
-02. Who You Gonna Run to? (4:19)
-03. I Get Lost (Last Dream of My Soul) (5:25)
-04. Shadows (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ADE31371064F611C237E4BA0D0BD93D4E22D1A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756654   (39549) от 22.10.2024
-
-Augie Meyers - Chicken Fried Bacon Grease (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lodi (3:59)
-02. Dig His Money (3:42)
-03. I Gotta Talk to You (2:50)
-04. Too Damn Many Dues (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66A3E101BB17B133F47E756B6AD22E45B355BC26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756663   (39547) от 22.10.2024
-
-Catfish - London (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. London (4:01)
-02. Chocolate Jesus (3:31)
-03. So Many Roads (10th Anniversary Recording) (9:12)
-04. Days Long Gone (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8E461236AC46FA016DD7FBD24A2DC6846A60C94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756682   (39494) от 23.10.2024
-
-Beth Hart - You Still Got Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Savior With A Razor (feat. Slash) (4:48)
-02. Suga N My Bowl (feat. Eric Gales) (3:33)
-03. Never Underestimate A Gal (3:07)
-04. Drunk On Valentine (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A64BC716FC6FA46B39CA10F54443A6976D202B09
 ```
 
 https://mybot314.ru/tekegram_catalog/

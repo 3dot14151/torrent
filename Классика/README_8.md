@@ -1,3 +1,33 @@
+###  Публикация: 993441   (894963) от 05.03.2016
+
+И. С. Бах (J. S. Bach) - Полное собрание произведений (Teldec 154 CD) (1999) [MP3|320 кб/с] <Classical>
+
+>>Классика
+>>Полные собрания сочинений
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Иоганн Себастьян Бах (нем. Johann Sebastian Bach; 21 марта 1685, Эйзенах, Саксен-Эйзенах — 28 июля 1750, Лейпциг, Саксония, Священная Римская империя) — великий немецкий композитор, представитель эпохи барокко, органист-виртуоз, музыкальный педагог.
+За свою жизнь Бах написал более 1000 произведений. В его творчестве представлены все значимые жанры того времени, кроме (   Читать дальше...   )Bach 2000. The Complete Bach Edition, Volume 1 (001): Sacred Cantatas (BWV 1-3)
+
+    01. Kantate, BWV 1 'Wie schn leuchtet der Morgenstern': I. Coro 'Wie schn leuchtet der Morgenstern'
+    02. Kantate, BWV 1 'Wie schn leuchtet der Morgenstern': II. Recitativo (Tenore) 'Du wahrer Gottes und Marien Sohn'(   Читать дальше...   )Жанр: ClassicalПродолжительность: 159:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC269A5CD7A852B56A4BD1F3EB70EC30FDF9D93F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 994055   (893904) от 06.03.2016
 
 Tessarini Consort: Joza Caras (conductor), Lisa Rautenberg (violin), Jaroslaw Lis - Carlo Tessarini LA STRAVAGANZA (2004) [FLAC|Lossless|tracks + .cue] <Classical, Baroque>
@@ -715,35 +745,6 @@ Die Kompletten Werke, Volume 1 (4001-2): Kantaten, BWV 1-10, 12, 13 (feat. condu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27600329A839B303F908AAC1BC34C2C593082741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995241   (886364) от 10.03.2016
-
-Library Tapes - Escapism (2016) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, InstrumentaI>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction I
-02. Running by the roads, running by the fields
-03. A summer by the sea II
-04. Tristesse/Escapism(   Читать дальше...   )Жанр: Modern Classical, InstrumentaIПродолжительность: 00:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D97082076B840997CCB13BD3277D4429F5D30F3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1669806   (172518) от 18.10.2023
+
+Eddie "Lockjaw" Davis & Johnny Griffin Quintet - The Complete Sessions (1960, 1961) 4CD, 2011, Jazz Dynamics [FLAC|Lossless|image + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Walked BudЖанр: Bop, Hard BopПродолжительность: 05:00:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34DA21B644F811C8D4D5765DB34F4E914B8BE624
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1669816   (172513) от 18.10.2023
+
+Grant Green - The Holy Barbarian, St. Louis (1959, 1960) 2012, Uptown Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opening Credits [0:19]
+02. There Will Never Be Another You [12:41]
+03. The Holy Barbarian Blues [10:54]
+04. Caramu (Blue Caribou) [7:46](   Читать дальше...   )Жанр: Hard Bop, Mainstream jazzПродолжительность: 01:09:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81071E3E46B6451AEE1B78487E205F742152F581
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1669812   (172499) от 18.10.2023
 
 Toshiko Akiyoshi - New York Sketch Book (2004) Ninety-One [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -687,64 +742,6 @@ John Pizzarelli - Stage & Screen - Stage & Screen (2021) 2023, Palmetto Records 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64623A75BE544741918E6492269D57BD6C423146
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670823   (171774) от 22.10.2023
-
-Bill Evans - Nardis (1965 - 1972) 2003, Absord Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How My Heart Sings [4:20]
-02. Time to Remember [5:20]
-03. 12 Toned Tune [4:57]
-04. Waltz for Debby [5:00](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9AE91F099E8DE3F4D42872F93B696FC319A9AA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670825   (171770) от 22.10.2023
-
-Howard Roberts - Good Pickin's (1959) 1999, Verve [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will You Still Be Mine [4:25]
-02. When the Sun Comes Out [4:18]
-03. All the Things You Are [2:45]
-04. Lover Man [4:30](   Читать дальше...   )Жанр: Cool, Mainstream Jazz, Guitar JazzПродолжительность: 00:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6BFBD5E63A6D0DEC1B5F60944D714CB8B163D54
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1309337   (551891) от 18.06.2019
+
+David Byron - 5 albums, 6CD (1975-2008) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551891.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дэвид Байрон - британский музыкант, легендарный вокалист одной из популярнейших хард-рок группп Uriah Heep, записавший совместно с ней 10 студийных альбомов. Немалая заслуга в этом принадлежала Байрону, обладавшему мощным, пронзительным вокалом. После ухода из Uriah Heep Байрон пытался начать сольную карьеру, но коммерческого успеха добиться не сумел. Певец умер (   Читать дальше...   )--------------------------
+
+01. Rock'N'Roll (3:28)
+02. Lookin' For You (4:07)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 05:07:45 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D978BC69CA8CA58AFABE69FC4614B1BC2E80372C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046725   (551028) от 28.08.2016
+
+Blue Tears - The Innocent Ones (2006) [FLAC|Lossless|tracks + .cue] <Hard Rock, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drive  04:04
+02. Let It Rain  03:07
+03. Run For Your Life  03:41
+04. The Innocent Ones  03:18(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F334ADDAA0E8FF77281E19EBB2567AE55F5E6EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047654   (549326) от 30.08.2016
+
+Snаке Неаd Rituаl - Сеrеmоniаl Тhundеr (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mama
+02. These Blues
+03. Strange World
+04. Gone When I Get Home(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BF59EEA6B602028852E7D805B45A315975BA0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047610   (549243) от 30.08.2016
+
+Andy Timmons - And-Thology I & II - The Lost Ear X-tacy Tapes (2001) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freedom (Jimi Hendrix)
+02. Sometimes
+03. There Before You
+04. Wishing Well(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B0836A215A99EF42E113C989C414DEA87B0917F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047650   (549174) от 30.08.2016
 
 The Screaming Jets - Do Ya (2008) [FLAC|Lossless|tracks + .cue] <Hard Rock>
@@ -632,122 +748,6 @@ CD - 1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B8AFFEAAF2251F98E915A4F9587B9DA771C447C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050618   (536586) от 09.09.2016
-
-Michael Sweet - One Sided War (2016) [FLAC|Lossless|image + .cue] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536586.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bizarre
-02. One Sided War
-03. Can't Take This Life
-04. Radio(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:46:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D71C530A164C400F535186F4577B38C34094618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049507   (536575) от 09.09.2016
-
-Humble Pie - Smokin' (1972) Reisue, 1990, A&M Records [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot 'N' Nasty (3:22)
-02. The Fixer (5:02)
-03. You're So Good For Me (3:51)
-04. C'mon Everybody (5:13)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Blues RockПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6DBBEE886363A2319ABC350BC8C9C76987A63F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050611   (536371) от 09.09.2016
-
-Charm City Devils - Let's Rock'N'Roll / Sin (2009, 2012) [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spite (3:33)
-02. Unstoppable (3:20)
-03. Man Of Constant Sorrow (Dick Burnett Cover) (3:43)
-04. Still Alive (3:45)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'HeavyПродолжительность: 01:15:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:600907A46151532BFBB8547D7B8DDC595B0A5370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557994   (535682) от 18.06.2022
-
-Edge Of Forever - Native Soul (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three Rivers (1:48)
-02. Native Soul (4:31)
-03. Promised Land (3:55)
-04. Carry On (3:19)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:716179D705E22402CDBFC035D392A898BA133119
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1430816   (169699) от 11.12.2020
+
+Браво - Браво 1984-1985 (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169699.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кошки (MC)
+2. Желтые ботинки (MC)
+3. Верю я (MC)
+4. Медицинский институт (MC)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A079401ED304D0FC7CBF51B77B67B5BE8D661E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672535   (169335) от 28.10.2023
+
+Ауткаст - Культ (2023) [MP3|320 Kbps] <Nu Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мгла
+02. Пропасть
+03. Лабиринт
+04. Дотла(   Читать дальше...   )Жанр: Nu Metal, Alternative RockПродолжительность: 00:36:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC67F4C981D5F83E66102A065FB0CF18F1E1161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1596768   (169319) от 11.12.2022
+
+Sutura Apparatus - 2 Albums (2020-2022) [MP3|320 Kbps] <Depressive rock, Doom metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сон [00:04:45]
+02. Быстрые ветра [00:04:37]
+03. Разложение [00:07:50]
+04. Остаться под ясенем [00:07:41](   Читать дальше...   )Жанр: Depressive rock, Doom metalПродолжительность: 2 CD, 01:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC4A8A67D9B493C0BC43AC5F332CF7ABAC2238A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344355   (169072) от 12.12.2019
+
+Игра Миров - Мир неизведанный (2019) 2CD [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Эхо [5:00]
+ 02 - Танец ветра [4:50]
+ 03 - Сихотэ-Алинь [4:14]
+ 04 - По течению [4:20](   Читать дальше...   )Жанр: RockПродолжительность: 01:31:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3CB04D55C668B55A0EAD801373CBA77AF06E88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1344944   (168937) от 12.12.2019
 
 Вольная стая - Джекпот (2019) [MP3|320 Kbps] <Heavy Metal>
@@ -623,122 +739,6 @@ Crimson Cry - Playing Gods (2020) [MP3|320 Kbps] <Progressive Power Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6702F064D6D2D7FB7F577C381D158831011E7D85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432240   (164434) от 17.12.2020
-
-Мистер Гро… - Не бойся огня (2020) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. В космос! [00:03:27]
-02. Сибирь [00:02:54]
-03. Деревянный макинтош [00:03:54]
-04. Таран [00:04:27](   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4102C01F2B2BD7ABA83D96CBDFB59465CD14039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432249   (164422) от 17.12.2020
-
-ЛМД - Когда идёт дождь (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Когда идёт дождь [00:04:02]
-02 - Ток [00:03:54]
-03 - Свинцовый дирижабль [00:05:23]
-04 - Выходи танцевать [00:03:25](   Читать дальше...   )Жанр: RockПродолжительность: 00:57:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52FE83FFA0954FF14DFAFAEFD57DD93C56C9EFA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597947   (164247) от 17.12.2022
-
-Котик ДжеймS - 2 Albums (2021-2022) [MP3|320 Kbps] <Soft punk,  Alternativo, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мечты [00:03:51]
-02. Королева [00:04:23]
-03. Муравей [00:05:00]
-04. Наркоман [00:03:10](   Читать дальше...   )Жанр: Soft punk,  Alternativo, RockПродолжительность: 2 CD, 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:962F0545285FF0C13ED45A1AAB4F43F980DCF72D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1432403   (164234) от 17.12.2020
-
-Торба-на-Круче - Ветер дует из Макондо (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164234.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лето
-2. Осень
-3. Зима
-4. ВеснаЖанр: RockПродолжительность: 00:21:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A27D452E085E1ED8495117107F04A81B78DBB54
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,188 @@
+###  Публикация: 359638   (581771) от 06.07.2011
+
+Billy Idol - Rebel Yell (1983) [APE 2.0 24/192|image (Vinyl-Rip)]<Pop Rock/Synth-Рop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+A1 Rebel Yell [04:47]
+A2 Daytime Drama [04:04]
+A3 Eyes Without A Face [04:58]
+A4 Blue Highway [05:08]
+Side 2
+B1 Flesh For Fantasy [04:37]
+B2 Catch My Fall [03:43]
+B3 Crank Call [04:00]
+B4 (Do Not) Stand In The Shadows [03:12](   Читать дальше...   )1983Жанр: Pop Rock/Synth-РopПродолжительность: 00:38:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 360094   (580828) от 07.07.2011
+
+Sandra - Into A Secret Land (1988) [APE 2.0 24/96|image (Vinyl-Rip)]<Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Secret Land [04:42]
+ 02.  We'll Be Together [04:09]
+ 03.  Heaven Can Wait [04:02]
+ 04.  Just Like Diamonds [05:28]
+ 05.  Around My Heart [03:16]
+ 06.  Crazy Joliet [04:09]
+ 07.  La Vista De Luna [03:43]
+ 08.  Celebrate Your Life [03:26]
+ 09.  Children of England [03:51]Жанр: Synth-popПродолжительность: 00:36:46
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042170   (580390) от 11.08.2016
+
+Uriah Heep - Firefly (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hanging Tree (3:43)
+02. Been Away Too Long (5:04)
+03. Who Needs Me (3:39)
+04. Wise Man (4:43)(   Читать дальше...   )Производство: Bronze Records - 28 520 XOTЖанр: Hard RockПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A18598CB474D2996289B3A154775FAF9A1859A05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554401   (577365) от 30.05.2022
+
+Def Leppard - Diamond Star Halos (2022) 2xLP [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Classic Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577365.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Take What You Want
+A2. Kick
+A3. Fire It Up
+A4. This Guitar(   Читать дальше...   )Жанр: Classic Rock, Hard RockПродолжительность: 01:01:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF43303927AE49C36F90EDDB911E2110F73B111D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303227   (575535) от 19.05.2019
+
+Rammstein - Rammstein (2019) [FLAC|192/24|Lossless|tracks|Vinyl] <Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deutschland
+02. Radio
+03. Zeig Dich
+04. Ausländer(   Читать дальше...   )Жанр: Industrial MetalПродолжительность: 00:46:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AF67764A229D91956D541E6046AE755E136003E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921490   (575418) от 25.07.2015
+
+Supertramp - ...famous last words... (1982) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575418.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Crazy (4:45)
+A2. Put On Your Old Brown Shoes (4:21)
+A3. It's Raining Again (4:26)
+A4. Bonnie (5:39)(   Читать дальше...   )Производство: A&M RecordsЖанр: Progressive RockПродолжительность: 00:47:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15F840FC44121FF0E328E6774C5C2D9CF99DCE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921097   (575279) от 25.07.2015
 
 Владимир Высоцкий - Vladimir Vissotsky (1977) [APE|image + .cue|2.0 24/192(Vinyl-Rip)]<Авторская песня>
@@ -567,178 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B656221AD61289DCF82480F0FA1066A83985867C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046074   (556831) от 25.08.2016
-
-Оризонт - Мой Светлый Мир (1982) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой Светлый Мир
-02. Сани С Бубенцами
-03. Колыбельная
-04. Парус На Волне(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9619F222C9A03A8D61F87A188DE83CAFCFD6B977
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045939   (556778) от 25.08.2016
-
-Илья Словесник - Мы так любили Beatles (1988) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Провинция
-02. Мы так любили «Битлз»
-03. Биополе
-04. Солёное море(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47F05248CF781B8327BAEFD0BB5AF1BDD4E78380
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046065   (556681) от 25.08.2016
-
-Автограф (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Prog Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. S.O.S.
-02. Реквием (Памяти Джона Леннона) · Requiem (In Memory Of John Lennon)
-03. Истина · The Truth
-04. Монолог · Monologue(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:38:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F3AE99E620FBD454DC8BAF5E628B300D19E84B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046001   (556678) от 25.08.2016
-
-Ann Mortifee - Into the Heart of the Sangoma (2005) [DTS 5.0 CD-DA|44.1/16|image+cue|SACD] <Pop-Rock, African Word music>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nomkumbulwana	5:49
-02. I Am Glad That You Are Here1:51
-03. Africa 7:28
-04. I Will Meet You There 0:51(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:550CFA4E98CE19847235AD25605C8CE4E6FC26E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556588   (556392) от 12.06.2022
-
-Rob Halford (Judas Priest, Fight, Two) - Studio Albums (12 releases) (1993 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556392.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Джон Артур «Роб» Хэ́лфорд (англ. Robert John Arthur "Rob" Halford; род. 25 августа 1951 года) — британский музыкант, автор песен и продюсер, в первую очередь известный как вокалист британской хеви-метал-группы Judas Priest (в 1973—1991 гг. и с 2003 года по нынешнее время). По версии журнала Classic Rock, занимает 9-е место в рейтинге лучших (   Читать дальше...   )2000 - Resurrection
-2002 - Crucible
-2007 - Metal God Essentials Vol.1
-2009 - Halford III - Winter Songs(   Читать дальше...   )Жанр: Heavy metalПродолжительность: 13:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC3C4DF92479B9230212355039647A85BB6367C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557157   (556383) от 12.06.2022
-
-Mike Oldfield - Crises (1983) Deluxe Edition, remaster 2013 [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Art Rock, Prog-Rock, Progressive Electronic>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crises - 20:38
-02. Moonlight ShadowПродолжительность: 00:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C840A53633A8B526BBFBD091D1C095BDB39EDEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

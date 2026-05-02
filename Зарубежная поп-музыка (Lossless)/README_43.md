@@ -1,3 +1,235 @@
+###  Публикация: 1036589   (619095) от 21.07.2016
+
+Savage Garden - Savage Garden (1997) 2CD, Mixed [APE|Lossless|image + .cue] <Synth-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Want You (Xenomania Funky mix)
+02. Break Me Shake Me (Broken mix)
+03. Santa Monica (Bittersweet mix)
+04. Tears of Pearls (Tears on the Dancefloor mix)(   Читать дальше...   )Жанр: Synth-PopПродолжительность: 01:56:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:215EA7CA71DC9F16EB2462780D8596EE2AA36C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036532   (618984) от 21.07.2016
+
+ABBA - The Album (1977) Reissue, Deluxe Edition, 2007, Polar [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eagle (5:53)
+02. Take A Chance On Me (4:07)
+03. One Man, One Woman (4:34)
+04. The Name Of The Game (4:54)(   Читать дальше...   )Жанр: PopПродолжительность: 01:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B4E81C9976FAF7A529FDCC6CEDA2D9DDDF362E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230156   (618977) от 10.06.2018
+
+VA - The Mojo Machine Turns You On 1 (1997) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618977.jpg" />
+</div>
+
+
+###  Подробнее
+
+Напомню, что MOJO - это британский музыкальный журнал, выходящий ежемесячно и издающийся с 1993 года. Иногда он выпускает вот такие сборники групп и солистов, представленных в журнале. Как правило выпуск сопровождается достаточно интересным буклетом, являющимся как бы продолжением журнала. Сборники в продажу не поступают, а распространяются по подписке, о чем на (   Читать дальше...   )01. Gary Moore - Afraid of Tomorrow  (5:00)
+02. Steve Winwood - Fill Me Up  (4:27)
+03. Prefab Sprout - Whoever You Are  (2:49)
+04. John Mayall - Stone Cold Deal  (4:19)(   Читать дальше...   )Жанр: Pop, Rock, DanceПродолжительность: 01:13:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FD550C67812BB5050B4099CE0420ED268C2E5E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1544983   (618298) от 17.04.2022
+
+VA - The British Pop Collection (60 Original Artists 60 Original Hits) (1983) Axis, Australia [FLAC|Lossless|tracks + .cue] <Pop, Rock, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618298.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мнению австралийских продюсеров EMI (а первое издание на LP было от EMI (Australia) Limited) в 1983 году эти 60 исполнителей представляли цвет британской популярной музыки. Мне трудно почти через 40 лет давать оценку правильности этого выбора, но вот что точно можно сказать, что часть из представленных Artists действительно были в то время на слуху у продвинутой (   Читать дальше...   )CD1:
+01. Hermans Hermits - My Sentimental Friend  (3:17)
+02. Cilla Black - You're My World  (2:57)
+03. Brian Poole & The Tremeloes - Do You Love Me?  (2:21)(   Читать дальше...   )Тип издания: BoxSetЖанр: Pop, Rock, DanceПродолжительность: 02:47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC807E9A69795F23EE08936A9563AEB01A8C4B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145854   (618083) от 27.06.2017
+
+Lucho Gatica - Historia de un amor (2013) [FLAC|Lossless|image + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Historia de un amor - duet with Laura Pausini
+02. No me platiques - duet with Beto Cuevas
+03. Bésame mucho - duet with Nelly Furtado
+04. Quizás quizás quizás - duet with Michael Bublé(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5638D3AF7201E905E8B432AF498FE13F03AC091
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146051   (617978) от 27.06.2017
+
+Carole King - The Real... Carole King (The Ultimate Collection) (2017) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617978.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. I Feel The Earth Move
+02. Nightingale
+03. Brother, Brother(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:43:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC9E7B1249D66D8A8AE26D8176A15B48615AF289
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295785   (617024) от 14.04.2019
+
+Bibio - Ribbons (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_617024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beret Girl (01:56)
+02. The Art of Living (03:16)
+03. Before (03:11)
+04. Curls (03:17)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Pop RockПродолжительность: 00:51:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8611EEA91D86BEFE4F5E1AD0D9B5FD046DB4374
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146275   (616197) от 28.06.2017
+
+Harry Nilsson - The Real... Harry Nilsson (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. 1941
+02. Cuddly Toy
+03. You Can't Do That(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:47:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A089409366427FB651A2D7890A03B271B5D7C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036999   (615745) от 23.07.2016
 
 Rainhard Fendrich - Lieder Mit Gefuhl (1994) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -515,238 +747,6 @@ HONNE - Warm On A Cold Night (2016) Deluxe Edition [FLAC|Lossless|tracks] <Alter
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A8DB29C4FD7E54681703FB61835129F924C91AAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297294   (604736) от 21.04.2019
-
-Bee Gees - Odessa (1969) Deluxe Edition, 2017 [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604736.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Odessa (City On The Black Sea) [07:31]
-02. You'll Never See My Face Again [04:24]
-03. Black Diamond [03:30]
-04. Marley Purt Drive [04:28](   Читать дальше...   )Жанр: PopПродолжительность: 02:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:603A73706D25E8FD503ACBBCF77AA3636F5176DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148217   (604471) от 05.07.2017
-
-Patrick Lindner - Die kleinen Dinge des Lebens (1990) [FLAC|Lossless|image + .cue] <Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604471.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Die kleinen Dinge des Lebens
-2. Und wenn i tanz mit dir (des is a Wahnsinn)
-3. A bisserl Abschied gibt's halt nicht
-4. Und wenn's Nacht wird, gibt's a Busserl(   Читать дальше...   )Жанр: FolkПродолжительность: 00:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F84D7EA9E0011209AED6C4DACBAC1BFAB9A82D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546632   (604419) от 25.04.2022
-
-Lucius - Second Nature (2022) [FLAC|Lossless|tracks + .cue] <Disco, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604419.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Second Nature (03:31)
-2. Next to Normal (03:10)
-3. 24 (04:14)
-4. Heartbursts (03:55)(   Читать дальше...   )Жанр: Disco, Indie PopПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECFE677CA95F6368323E1B38A40E7A0BF9E3A149
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148179   (604314) от 05.07.2017
-
-VA - Romantic Serenade (2001) [FLAC|Lossless|image + .cue] <Traditional Pop, Vocal, Easy Listening>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Engelbert Humperdinck - You'll Never Know (2:51)
-02. Vic Damone - Love Letters (3:15)
-03. Kenny Rogers - It Had To Be You (2:42)
-04. Tony Bennett - My Heart Stood Still (3:09)(   Читать дальше...   )Жанр: Traditional Pop, Vocal, Easy ListeningПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD2EB98D3D8C7BDCF08334BC56EE64736AF3B3EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064602   (604245) от 25.04.2022
-
-Enrique Iglesias - Latin Collection 2000 (2000) [APE|Lossless|image + .cue] <Pop, Latin>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm Divine
-02. Bailamos
-03. Ruleta Rusa
-04. Al Despertar(   Читать дальше...   )Жанр: Pop, LatinПродолжительность: 01:18:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B56E4817A5BB4DE14BB170F12AEF33C18C08252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297407   (604057) от 22.04.2019
-
-Bananarama - In Stereo (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love in Stereo
-02. Dance Music
-03. I'm on Fire
-04. Intoxicated(   Читать дальше...   )Жанр: PopПродолжительность: oo:36:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B755F23979392C13570B9F8D9F5E470D276BD45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148666   (603495) от 07.07.2017
-
-Rebbie Jackson - Yours Faithfully (1998) [FLAC|Lossless|image + .cue] <Pop, R&B, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 What You Need 04:34
-02 Play Your Game 04:42
-03 Yours Faithfully 04:34
-04 Get Back To You 04:00(   Читать дальше...   )Жанр: Pop, R&B, SoulПродолжительность: 00:50:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A375595A5B58DED0E064657EEC6023172E27B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547189   (603386) от 27.04.2022
-
-Chris Isaak - Forever Blue (1995) [FLAC|Lossless|image + .cue] <Pop Rock, Soft Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603386.jpg" />
-</div>
-
-
-###  Подробнее
-
-Forever Blue - пятый альбом американского музыканта Chris Isaak'а вышедший 23 мая 1995. 15 марта 1996 года альбом был сертифицирован RIAA как платиновый, в Австралии альбом стал трижды платиновым, а в Канаде получил золото. Forever Blue был номинирован на Grammy в категории Best Rock Album, а сингл Somebody's Crying получил номинацию Grammy в категории Best Male (   Читать дальше...   )01. Baby Did a Bad Bad Thing (2:54)
-02. Somebody's Crying (2:48)
-03. Graduation Day (3:10)
-04. Go Walking Down There (2:50)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:39:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773B995ECB4B70A249997263C4EF57E2304705C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

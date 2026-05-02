@@ -1,3 +1,29 @@
+###  Публикация: 136408   (59876) от 13.04.2024
+
+Калинов Мост - SWA (2006) [APE|Lossless]<Folk, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_59876.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 ЛараЖанр: Folk, RockПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:472DD3BDDA32D3EBEC4ECD1F762E66010021D724
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 384888   (59873) от 13.04.2024
 
 Мумий Тролль - Звездная Серия (1999) [APE|Lossless]<Рок>
@@ -724,35 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:705CB5ABBBAE0BEE082FF319CD8E205FAECE427F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722454   (56880) от 11.05.2024
-
-Александр Барыкин - Нелли (2006) [WavPack|Lossless|image + .cue] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ну и пусть
- 02. К тебе
- 03. Её зовут Нелли
- 04. Судьба(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7439ADB7F1BF7515D9FF288A6440DABFC520159B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1106824   (871560) от 20.02.2017
+
+2002 - Celtic Fairy Lullaby (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871560.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seoithín Seo Hó Gartan Mother's Lullaby
+02. Cariad
+03. Bí Thusa Mo Shúile
+04. Away from the Roll of the Sea(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5C576E9B2AD3BE8703D2896DCE9C780B38D882
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997648   (871459) от 18.03.2016
+
+Romantic Collection - HARP (2002) [MP3|320 кб/с] <Instrumental, vocal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erotica (05:23)
+02. Dee (03:49)
+03. Snowcaps (04:12)
+04. Peligroso Amor (03:44)(   Читать дальше...   )Жанр: Instrumental, vocalПродолжительность: 01:15:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A443639C09ECF53C11D15E07B9E5553190A77E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496505   (871397) от 18.09.2021
+
+Sarah Patterson - Buddhasongs (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, World, Mantras>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871397.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Heart Sutra
+02. Buddha of the Wild and Green
+03. Deer in the Morning (Chenrezig)
+04. Medicine Buddha Healing(   Читать дальше...   )Жанр: New Age, World, MantrasПродолжительность: 00:58:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A406732959A4E7C5FD8AE63ACF7E6F4EDF772C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106831   (871391) от 20.02.2017
+
+2002 - Celtic Fairy Lullaby (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871391.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seoithín Seo Hó Gartan Mother's Lullaby
+02. Cariad
+03. Bí Thusa Mo Shúile
+04. Away from the Roll of the Sea(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:55:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23EAF3FFF7DD4436495704E6EF134AA11F9CECDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106771   (871220) от 20.02.2017
+
+VA - Ёлки 5 (Музыка к фильму) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Секрет - На любой стороне земли (03:44)
+02. Павел Есенин - The Beginning (01:40)
+03. Павел Есенин - The Arctic Life (00:50)
+04. Павел Есенин - Vova & Varya (00:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:36:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D3C855C2D2AC03333B148A3C7FDF50613DBD538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106840   (871209) от 20.02.2017
+
+Aenigmatica - Sanctum (2016) [FLAC|Lossless|tracks] <New Age, Chillout, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Enigmatic  (05:42) 
+02|  Back to the Past  (06:44) 
+03|  Awakening  (05:49) 
+04|  Eyes of Truth  (06:39) (   Читать дальше...   )Жанр: New Age, Chillout, AmbientПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97DA2F20EA27ECC86985CC04AE51297647316FB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997888   (871135) от 18.03.2016
+
+Photek - Need for Speed (EA Games Soundtrack) (2016) [MP3|320 кб/с] <Electronic, Drum & Bass, Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crew
+02. Pursuit Low
+03. Pursuit Hi
+04. Cool Down(   Читать дальше...   )Жанр: Electronic, Drum & Bass, SoundtrackПродолжительность: 00:31:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94E39EB4863FA08D7EEF69C0AA3DDB3752B9DB2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496473   (871066) от 18.09.2021
 
 Hans Zimmer - Dune Sketchbook (2021) Music from the Soundtrack [FLAC2.0|24/48|tracks|WEB-DL] <Soundtrack, Score>
@@ -536,207 +739,6 @@ Phillip Norman Watson - Mists (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:833A3495829665121E0ED0BD4F6FF8A3FFD0BF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 221512   (866892) от 01.03.2011
-
-Mike Rowland - 24 albums (1982-2006) [MP3|192-320 kbps]<New age, Neoclassical, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866892.jpg" />
-</div>
-
-
-###  Подробнее
-
-(10:33) 01. Part 1
-(08:12) 02. Part 2
-(06:57) 03. Part 3
-(10:50) 04. Part 4
-(03:39) 05. Part 5Жанр: New age, Neoclassical, InstrumentalПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA78EA324471661B90919695399E96BCB306ABE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374472   (866847) от 13.04.2020
-
-Enigma - 100% Enigma (2020) [MP3|320 Kbps] <Enigmatic, New age, Pop>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadeness
-02. Mea Culpa
-03. Le Roi Est Mort, Vive Le Roi!
-04. Return To Innocence(   Читать дальше...   )Жанр: Enigmatic, New age, PopПродолжительность: 03:29:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0147A29BCBBDD8915DFC3D9A9530739C43622AF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 188876   (866445) от 03.04.2010
-
-VA - New Age Hits - Relax (2010) [MP3|320 kbps]<New age, Relax, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: New age, Relax, MeditativeПродолжительность: 01:54:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999132   (865724) от 21.03.2016
-
-Jason Graves - Far Cry Primal (Original Game Soundtrack) (2016) [MP3|320 кб/с] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Shaman's Story
-02. Save the Wenja
-03. Prowl of the Snowblood Wolves
-04. The Fires of Conquest(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F16F3ADB1117A0751960FC7BD15175E8087F407
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375666   (865391) от 14.04.2020
-
-Slowgold - Aska (2020) [FLAC 2.0|88.2/24|tracks|WEB-DL] <Folk, Indie Rock>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865391.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aska (03:25)
-02. En dag till (06:03)
-03. Nåt (03:42)
-04. Inte här (03:44)(   Читать дальше...   )Жанр: Folk, Indie RockПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5FE2B05D316A09297C31D006426C7D91C769D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497510   (864785) от 22.09.2021
-
-VA - Sirtaki Planet: The Best Of Sirtaki (1998) [FLAC|Lossless|image + .cue] <Folk, Country, Laiko>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. M. Teodorakis - Zorba's Dance (2:55)
-02. Various Artists - Trici, Trici (2:29)
-03. Various Artists - Mia Parentesis Ke Mono (3:10)
-04. Various Artists - Pira Luludia (2:25)(   Читать дальше...   )Жанр: Folk, Country, LaikoПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4F3F73335E62E28B94CBAE4D535A8F4DEBF4C63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108251   (864641) от 24.02.2017
-
-Govannen - Celtic Air (2016) [MP3|320 Kbps] <New Age, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sea Air
-02. The New Land. Hyp Noz Fest
-03. Give Me Your Hand
-04. Open Air. Pachpi Kozh(   Читать дальше...   )Жанр: New Age, CelticПродолжительность: 00:52:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70329CE8EE8B360BAC7F98B77D634FE1A48B398F
 ```
 
 https://mybot314.ru/tekegram_catalog/

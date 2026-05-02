@@ -1,3 +1,29 @@
+###  Публикация: 1441672   (1037402) от 22.01.2021
+
+Google Chrome 88.0.4324.104 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037402.jpg" />
+</div>
+
+
+###  Подробнее
+
+Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5170D61D7FBDE664DA3ED73F6640E0C8776DFAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441649   (1037400) от 22.01.2021
 
 4K Video Downloader 4.14.2.4070 RePack (& Portable) by Dodakaedr [Ru/En]
@@ -650,32 +676,6 @@ Revo Uninstaller Pro 5.1.0 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2638FEF5F402F3B02E49D04687D4959098DD1FCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615908   (1037237) от 27.02.2023
-
-YT Downloader 7.22.5 RePack (& Portable) by Dodakaedr [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037237.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C35EAA808D4DA0F8AB699B9E0D40B4896EB4A4E
 ```
 
 https://mybot314.ru/tekegram_catalog/

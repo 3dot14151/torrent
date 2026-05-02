@@ -1,3 +1,67 @@
+###  Публикация: 1088946   (953882) от 02.01.2017
+
+VA - Bright Moments: Chillout Compilation (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953882.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bes & Meret - Ko Samui Nights 4:20
+002. Satellite Soul - Red - Original Version 4:19
+003. Agent Juno - Sunstorm - Soundtrack Version 4:03
+004. Lazy Hammock - Fading Into Oblivion - Original Mix 5:55(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 08:26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B80FBBB3CFBC557EF69F354AC26F7621C270515
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 623855   (953784) от 27.02.2013
+
+VA - Creative Music Box 9 (2013) [MP3|320 кб/с]<Dub Step, Drumstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953784.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 1Up - Whip-It
+2. A Girl And A Gun feat. Cool Project vs. Mashur and Headrum - Russian Winter (Assault Terror Remix)
+3. AFK feat. Messinian - On The Floor (Rekoil Remix)
+4. Altazer - My Bad (The Wobbler Remix)
+5. Breezer - Beast Virus
+6. Cottonmouth - Dubrime
+7. Cottonmouth - Sleepy Hollow
+8. Dirtyphonics - Walk In The Fire (Culprate Remix)
+9. Dubba Jonny - Blockbuster
+10. Hai5Gohst - Anomaly(   Читать дальше...   )Жанр: Dub Step, DrumstepПродолжительность: 02:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6CAF5D20B88E3455EEAFB1227DD4E7CD2DA0526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981093   (953068) от 31.01.2016
 
 VA - House Lounge (2016) [MP3|320 кб/с] <Deep House, Chill House>
@@ -687,64 +751,6 @@ VA - Deep House + Kizomba (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07D5F9AEBBE0D6BC9931E9C7974878A61C0CB458
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090156   (947436) от 06.01.2017
-
-VA - Traxsource Top 200 Tracks of (2016) [MP3|320 Kbps] <House, Deep House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947436.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Soul Speech - Soul Speech (Original Mix)
-002. Sante Sansone - Rising (Original Mix)
-003. Alaia & Gallo - Who Is He feat. Kevin Haden (Original Mix)
-004. Detroit Swindle - Howsmusic (Original Mix)(   Читать дальше...   )Жанр: House, Deep House, Tech HouseПродолжительность: 22:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0A8761A3041EDC661AE6E414B37DB6D138AA8BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090053   (947235) от 06.01.2017
-
-VA - Dream Dance Vol.82 (2017) [MP3|320 Kbps] <Trance, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dream Dance Alliance & Kai Tracid - Your Own Reality 2017 (Radio Edit) 3:41
-02.  Armin Van Buuren & Sarah Decourcy - Face of Summer (Qulinez Remix) 3:33
-03.  Dash Berlin ft. Do - Heaven 3:19
-04.  Ferry Corsten & Cosmic Gate - Event Horizon 2:51(   Читать дальше...   )Жанр: Trance, House, DanceПродолжительность: 03:59:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:484931662B7F8B7A82D81A73E7125DDC1A7E65AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

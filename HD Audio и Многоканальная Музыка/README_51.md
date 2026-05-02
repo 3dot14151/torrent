@@ -1,3 +1,177 @@
+###  Публикация: 1572762   (238688) от 28.08.2022
+
+The Eagles - Hotel California (1976) 2011 [DTS 5.1 CD-DA|44.1/16|image+.cue|SACD] <Classic Rock, Country Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238688.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hotel California 06:31
+02. New Kid In Town 05:04
+03. Life In The Fast Lane 04:46
+04. Wasted Time 04:57(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C004DD414FBDA0CE6D7969B09FC0FD8175984FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628957   (238506) от 25.04.2023
+
+Duran Duran - Notorious (1986) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238506.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Notorious
+A2 American Science
+A3 Skin Trade
+A4 A Matter Of Feeling(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18B0B3CA005E4E029B8627AEA5DB9DBB3F4830C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628701   (238489) от 24.04.2023
+
+Amon Amarth - Studio Albums (13 releases) (1996-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Amon Amarth — шведская метал-группа, играющая в жанре мелодичный дэт-метал. Название группы значит «Роковая гора» на синдарине, эльфийском языке, и отсылает к горе Ородруин из романа Дж. Р. Р. Толкина «Властелина Колец». Основной тематикой группы является германо-скандинавская мифология. Музыку Amon Amarth составляет сочетание гроулинга с «тяжелыми» мелодиями и эпическими (   Читать дальше...   )1996 - Sorrow Throughout The Nine Worlds
+1998 - Once Sent From The Golden Hall
+1999 - The Avenger
+2001 - The CrusherЖанр: Melodic Death MetalПродолжительность: 10:30:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5951C6CF42EB48D5DADE0E5EF44A5514BEAC3E60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1639148   (238458) от 12.06.2023
+
+Shakra - Studio Albums (13 releases) (1998-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Shakra — швейцарская рок-группа, основанная в конце 1990-х годов.1998 - Shakra
+1999 - Moving Force
+2001 - Power Ride
+2003 - RisingЖанр: Hard RockПродолжительность: 11:20:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:817EAB28176C895D92D157F58724122BEE6215DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137826   (238423) от 30.04.2022
+
+VA (Юрий Антонов, Александр Серов, Александр Градский) - Снегири (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238423.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Юрий Антонов - Снегири
+A2 Александр Серов - Признание
+B  Александр Градский - Памяти Джордано Бруно
+=================================(   Читать дальше...   )Жанр: PopПродолжительность: 00:11:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87FB0F582AB4026A874A9029F2DF0EF5D2CE59C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1628719   (238422) от 24.04.2023
+
+Дискоклуб 4 - Ансамбль Мелодия/VA - Популярная Зарубежная Мозаика / Популярные Русские Песни и Романсы (1982) 2 LPs [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Folk, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238422.jpg" />
+</div>
+
+
+###  Подробнее
+
+LP1
+Мелодия – С 60—17297-98
+00:37:26
+Популярная Зарубежная Мозаика(   Читать дальше...   )Жанр: Jazz, Folk, Easy Listening
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C24632EB75B7B83B40E4204A830CFA1C6EBE7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1141505   (238403) от 30.04.2022
 
 VA - RETROспектива часть XXI. Зарубежные исполнители V (1950-1962) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Pop, Retro>
@@ -569,181 +743,6 @@ A4 Эта Рена(   Читать дальше...   )Жанр: PopПродол�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01940AFC53BFABA545CD4072615D960EE8E4B80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166051   (237777) от 03.05.2022
-
-VA - Убойная Сила. Любимые песни из телесериалов (2002) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Pop, Chanson, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237777.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. ''Любэ'' - Позови меня тихо по имени
-02. Михаил Круг и Вика Цыганова - Приходите в мой дом
-03. Виктор Королёв - Непутёвая(   Читать дальше...   )Жанр: Pop, Chanson, SoundtrackПродолжительность: 01:00:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1400E62F41648F4FAA2221D1A194DEE66AA2B4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171308   (237749) от 03.05.2022
-
-VA - XXXL Европейский 5 (2000) [FLAC 2.0|44,1/16|image+.cue|MC-Rip] <Electronic, Eurobeat>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A:
-01. Modern Talking - Win The Race
-02. Modjo - Chillin'
-03. Billy More - Come On And Do It(   Читать дальше...   )Жанр: Electronic, EurobeatПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13452A78F5566CADF54DF1ED2A537EA91F320E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548519   (237707) от 03.05.2022
-
-Poets of the Fall - Дискография (12 releases) (2005 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative/Soft/Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237707.jpg" />
-</div>
-
-
-###  Подробнее
-
-Poets of the Fall (с англ. — «Поэты Осени») — финская рок-группа, записывающаяся на собственном лейбле «Insomniac». Образовалась в Хельсинки 25 апреля 2003 года из дуэта старых друзей: вокалиста Марко Сааресто и гитариста Олли Тукиайнена, а также клавишника и продюсера Маркуса "Капитана" Каарлонена. Концертный состав «Poets of the Fall» включает (   Читать дальше...   )2005 - Signs of Life
-2006 - Carnival of Rust
-2008 - Revolution Roulette
-2010 - Twilight Theater(   Читать дальше...   )Жанр: Alternative/Soft/Indie RockПродолжительность: 10:57:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83A0D503523CFEB6F1CB88310E877900D4AECB00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630078   (237690) от 29.04.2023
-
-Holy Moses (& Temple Of The Absurd) - Studio Albums (16 releases) (1986-2023) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Speed/Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Holy Moses — немецкая трэш-метал-группа, одна из первых групп на немецкой трэш-метал-сцене.
-Лидер группы — вокалистка Сабина Классен.1986 - Queen Of Siam - Walpurgisnight Demo
-1987 - Finished With The Dogs
-1989 - The New Machine Of Liechtenstein
-1990 - World ChaosЖанр: Speed/Thrash MetalПродолжительность: 13:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:541FD872CC3ABEE3863ADF7EE3741935A22B6904
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630201   (237599) от 30.04.2023
-
-Красные Маки - Если Не Расстанемся... (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237599.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Встречай Меня
-А2 Если Не Расстанемся
-А3 Скажет Девчонка
-А4 Давай Попробуем Вернуть(   Читать дальше...   )Жанр: PopПродолжительность: 00:35:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E6CDF7484CFC3EF2251AAEFB65F308B95B16B3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630250   (237534) от 30.04.2023
-
-Dee D. Jackson - Thunder & Lightning (1980) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237534.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1		S.O.S. (Love To The Rescue)	4:21
-A2		Which Way Is Up	4:26
-A3		Living In A Dream	4:56
-A4		Teach You How To Dance	5:31(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C5254D9BB5A34611EB66977C6F87B0DCBA08C3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

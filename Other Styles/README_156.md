@@ -1,3 +1,206 @@
+###  Публикация: 1591262   (187518) от 17.11.2022
+
+VA - Хочу замуж (к\ф «Хочу замуж» официальный саундтрек) (2022) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187518.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. POLINA - Что-то пошло не так
+2. Люся Чеботина - Главная причина
+3. Николай Ростов - Где ты была вчера?
+4. Апрелия - Белая птица(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591297   (187179) от 18.11.2022
+
+Constance Demby - Sacred Space Music (1988) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Longing
+02. RadianceЖанр: New AgeПродолжительность: 00:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB56D70E64BBF7B8E3649F0B9B147E6277C46E3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 224151   (185858) от 25.11.2020
+
+VA - Celtic Chill Out Lounge (2010) [FLAC|Lossless|image + .cue] <Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aethera - The Mountain Side (3:56)
+02. Kieran - Drowning (5:48)
+03. Conner O'Reilly - Hear The Angels Call (5:07)
+04. John Flighten - Water And Tears (5:12)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:55:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF449EA5B0FC3A365040B5CA25F35F8521BC93CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 290832   (185846) от 25.11.2020
+
+Wes - Welenga (1996) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185846.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wes Madiko (Вес Мадико) родился 15 января 1964 года в небольшой камерунской деревне в семье бухгалтера.
+Еще в детстве дед начал обучать Веса игре на традиционном музыкальном инструменте — санса, основам древней медицины, истории и философии банту.
+С десятилетнего возраста мальчик стал выступать в составе Kwa Kwassi Orchestra на различных торжественных мероприятиях (   Читать дальше...   )01. Awa Awa (4:29)
+02. Alane (3:43)
+03. Kekana (3:19)
+04. Wezale (4:40)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C622899CCA277622A2F65C32B78A4849E9980E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1591191   (185460) от 20.11.2022
+
+Basteiro-Bertoli - Boh (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Songwriter, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grey
+02. Cofing
+03. Ladies in Black (feat. Ian Anderson)
+04. Mirror(   Читать дальше...   )Жанр: Folk Rock, Songwriter, RockПродолжительность: 00:28:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4BD952D1E860EA31B3DD1C400217C2FE65E33DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252371   (184769) от 26.11.2020
+
+VA - Romantic Melodies - Moonlight Sax (2004) [APE|Lossless|image + .cue] <Instrumental, Smooth Jazz, Saxophone>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184769.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acker Bilk - A Rainy Night in Georgia - Acker Bilk - A Rainy Night in Georgia (4:21)
+02. Samantha Blue - Orfeo Negro - Samantha Blue - Orfeo Negro (4:25)
+03. Lalo Shiffrin - Dim - Lalo Shiffrin - Dim (2:50)
+04. Grover Washington Jr - In the name of love - Grover Washington Jr - In the name of love (5:27)(   Читать дальше...   )Жанр: Instrumental, Smooth Jazz, SaxophoneПродолжительность: 01:07:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0979A8896E5A669C7496AB4043B68A27D897CFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1662299   (184735) от 27.09.2023
+
+John S. Weekley - Dread Templar (Original Game Soundtrack) (2023) [FLAC|Lossless|tracks] <Electronic, Stage&Screen>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I. The Beginning [1:08]
+02. The Dread Templar [4:40]
+03. Flesh Against Steel [5:33]
+04. Bloodstained Hollows [5:39](   Читать дальше...   )Жанр: Electronic, Stage&ScreenПродолжительность: 02:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00182F68AB71EC7C5D988B2946E9A49059484C97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592237   (184275) от 21.11.2022
 
 V.A. - Yoga Music Session, Vol. 4:  Relaxation & Meditation (2022) [FLAC|Lossless|WEB-DL|tracks] <Relax, Chillout, Downtempo>
@@ -541,209 +744,6 @@ Cult Of Youth - With Open Arms (2022) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:18E0FF8E88510DFBADBB2E9C95F3F550314CEACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344599   (175018) от 08.12.2020
-
-Rodrigo Y Gabriela - 11:11 (2010) [FLAC|Lossless|tracks + .cue] <Latin, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hanuman
-02. Buster Voodoo
-03. Triveni
-04. Logos(   Читать дальше...   )Жанр: Latin, FolkПродолжительность: 00:45:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6D063AB5ADC9A5033DDB39C210273F82759648E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668166   (173691) от 12.10.2023
-
-Samantha Delight - Passionately Sexy & Sensual Jazz Music with Orgasmic Vocal (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexually Twisted (3:14)
-02. Ignite The Spark (3:25)
-03. Provocative Girl (3:35)
-04. Seductive Mind (3:22)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:07:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E1A3E1D01D3694B969B777321FA0F886DD9ED22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668360   (173656) от 12.10.2023
-
-VA - Body Language: Hot Sexual Piano (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexual Piano Jazz Collection - Body Language (3:31)
-02. Jazz Erotic Lounge Collective - Sink in You (3:52)
-03. Sensual Lounge Music Universe - Motel 69 (3:00)
-04. Sexual Piano Jazz Collection - Nasty Thoughts (4:33)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA2C35EFA208592CD20A02860258E96B16C8DD9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1826920   (173516) от 19.10.2025
-
-VA - The Orient Collective: Mystic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indiano - The Moon of Flowers (7:43)
-02. Noam Garcia - The Dreams (9:40)
-03. Tibetania - Zawadi (8:58)
-04. Juantxo Munoz - Black Empire (7:28)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF86EB36FFE7576EA3E14427F4ED732EF8E0748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668634   (173341) от 13.10.2023
-
-VA - Love & Passion: The Sexiest Tantric Sensual Music for Sex (2023) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neo Tantra - Sensual Mood (4:05)
-02. Erotic Massage Music Ensemble - Slow Hands (3:14)
-03. Erotic Music Zone - Temple of Love (3:14)
-04. Neo Tantra - Into Ecstasy (3:00)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB45D998F78F0223C2DD5EDDF34989013969BC7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668923   (172829) от 16.10.2023
-
-Nytt Land - Torem (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olenmet [00:01:51]
-02. Nord [00:06:15]
-03. Risu Raknar [00:05:21]
-04. Johem Ar [00:04:31](   Читать дальше...   )Жанр: Dark Folk, AmbientПродолжительность: 00:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5C9CAD497C4C246E3254B84274EF8B832D44D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262197   (172732) от 16.10.2023
-
-VA - Геннадий Гладков. Обыкновенное Чудо (2002) Серия "Музыка и песни из лучших кино и телефильмов", записи 1977, 1980 гг. [FLAC|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_172732.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обыкновенное чудо
-01. Л. Серебренников - Песня Волшебника
-02. М. Боярский - Песня Охотника
-03. А. Миронов - Куплеты Администратора(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:31:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7873FFF54448D54E1BC1D74CC8E6C1F2533DB92
 ```
 
 https://mybot314.ru/tekegram_catalog/

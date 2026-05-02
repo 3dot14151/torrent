@@ -1,3 +1,84 @@
+###  Публикация: 712155   (404232) от 18.10.2013
+
+Tristeria - Epoka (clip) [H.264 720p](2013) WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Darkness
+02. Ashrouk
+03. Liburnae
+04. I Love You (Dimitra)(   Читать дальше...   )Жанр: Музыкальный, New age, EnigmaticРежиссер: Kiruha5432101Продолжительность: 01:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A14BF95914BF996D8CEBAF4A554C21C55FD820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 397080   (401864) от 11.10.2011
+
+Ace Of Base - Greatest Hits (2008) DVD5
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: МузыкаПеревод: Не требуетсяПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38B3729A008B31CD1A0D2DD7F7DE2AC7C1A8E78A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169279   (401473) от 29.09.2017
+
+Глеб Корнилов и группа «Опасные» (2012-2017) WEBRip [H.264/720p-1080p-LQ] (44 выпуска)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа «Опасные» была создана в 2011 году братьями Глебом и Романом Корниловыми. Стихи песен пишет отец Леонид Корнилов. Солист группы Глеб Корнилов. Вокалистки - Ксения Распорская, Марина Андриянова, Екатерина Тюпова. Гитарист - Владимир Грачёв. Бас - Алексей Ганс. Ударные - Павел Смит. Клавиши - Максим Малыко. На творчество группы сильно повлияли события на Украине (   Читать дальше...   )Производство: РоссияЖанр: Hip-Hop, Pop-Rock, Русский РокСубтитры: отсутствуютПродолжительность: 08:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E60AF257C402CD7D850C25DF4DD1DFD537EC021
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169431   (401138) от 29.09.2017
 
 Сборник клипов - Best Pop Hits от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
@@ -660,87 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0BB12A08FD9E3336D5ACF950F3F21B433B93727
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715926   (395610) от 27.10.2013
-
-Звёзды 60-х / 60's All Stars [Часть 2] (2003) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Petula Clark - Downtown
-02. Bill Meadley & Bobby Hatfield - You've lost that lovin' feelin'
-03. Them - Baby please don't go
-04. Sonny & Cher - I got you baby(   Читать дальше...   )Производство: Germany, Waterfall StudiosЖанр: Pop, rock, rock'n'roll
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF2EDC8D233B97FBE06EB7A8CB1FCAB1CF08B62F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 150065   (395211) от 01.11.2009
-
-Scorpions - World Wide Live (1985) DVD-5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжительность: 00:58:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 567576   (394688) от 31.10.2012
-
-Сборник клипов - VA - Various Music part. 36 (2012) WEBRip 720p, 1080p
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance, Pop, Trance, House, RapПродолжительность: ~04:17:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81E57B1A2ECAE76A3B5196B9DAC3DBE937BD9207
 ```
 
 https://mybot314.ru/tekegram_catalog/

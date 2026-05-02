@@ -1,3 +1,261 @@
+###  Публикация: 1277007   (787004) от 19.01.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 18.01.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gaulin  -  Moonlight
+02.  Calvin Harris & Sam Smith  -  Promises
+03.  HUGEL & Taio Cruz  -  Signs
+04.  KAZKA  -  Плакала(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F6B4A3493C040162994035738597BA8F0778067
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277215   (786969) от 19.01.2019
+
+VA - Kiss FM: Top 100 Итоговый 2018 (2019) [MP3|320 Kbps] <Pop, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786969.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Platon feat. Joolay - Melt 3:48
+002. Vanessa Da Mata - Ai Ai Ai (Felguk & Cat Dealers Remix) 3:20
+003. KAZKA - Плакала (Shnaps & Sanya Dymov Remix) 3:47
+004. MARUV - Focus On Me 2:55(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 10:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0D3A5B74C9CA0CE0688B746A048BA46F5FAA84C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1277212   (786906) от 19.01.2019
+
+Света - Хватит довольно (2018) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786906.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Света - Хватит Довольно Remix(Chad Radio Edit)Жанр: Club, DanceПродолжительность: 00:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3CD45CDC8B031BDB5717FC111FFE9541FA3CA8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388530   (786753) от 06.06.2020
+
+VA - The Official UK Top 40 Singles Chart 05.06.2020 [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DaBaby - ROCKSTAR
+02. Lady Gaga - Rain On Me
+03. S1mba - Rover (feat. DTG)
+04. Drake - Toosie Slide(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:04:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F119DA8A75FE1C499A4F3BEC28957EAF94AFE5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388362   (786717) от 06.06.2020
+
+VA - ЕвроХит Топ 40 Europa Plus 05.06.2020 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Topic & A7S - Breaking Me 2:47
+02. NRD1 - All Good Things (Come To An End) 3:27
+03. Regard - Ride It 2:38
+04. Zivert - ЯТЛ 3:44(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9730B8B20B2CC92FDEBAC245D0C7493AD0990444
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1388547   (786635) от 06.06.2020
+
+VA - Авторадио: Золото дискотек Vol. 1 (2020) [MP3|320 Kbps] <Euro Disco, Italo Disco, Euro Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786635.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys Blue - From Heaven To Heartache 3:33
+02. C.C. Catch - Stay (Maxi-Version) 5:47
+03. Grant Miller - Colder Than Ice 5:35
+04. DJ's Project - Vision Of Love 6:40(   Читать дальше...   )Жанр: Euro Disco, Italo Disco, Euro DanceПродолжительность: 06:29:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E26576B916745F1D4E46FD946ACFB63CDA539F2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123303   (786418) от 07.04.2017
+
+VA - Best Hits Of 90! Vol.1 (2017) [MP3|320 Kbps] <Eurodance, Pop, Techno, Rap, House, Dance>
+
+>>След.
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786418.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Ace Of Base - All That She Wants  3:31
+002.  Mr. President - Coco Jamboo  3:37
+003.  Yaki-Da - I Saw You Dancing  3:51
+004.  Jam & Spoon Feat Plavka - Right In The Night  6:05(   Читать дальше...   )Жанр: Eurodance, Pop, Techno, Rap, House, DanceПродолжительность: 09:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52D1837B8D64839C2D3367EAD8D2A149708F8872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123983   (786044) от 09.04.2017
+
+VA - 100 Новых Красивых Песен (2017) [MP3|320 Kbps] <Pop, Rock, Chanson>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michelle Branch - Hopeless Romantic (03:31)
+02. Matthew Koma - Kisses Back (03:47)
+03. James Blunt - Bartender (03:13)
+04. LP(Laura Pergolizzi) - No Witness (03:28)(   Читать дальше...   )Жанр: Pop, RnB, Rock, ChansonПродолжительность: 06:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE545E4A73B18D0603F70B007E5CA4E4E8B56F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124216   (785903) от 10.04.2017
+
+VA - Absolute Dance Spring (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785903.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Township Rebellion - Gaia (Original Mix)
+002. Rod Veldt - Her Beauty (Original Mix)
+003. Buttkick - Magical Evening Dance (Original Mix)
+004. JSG - Aurora (Original Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760C92625D3790451DB473926A4BEC300FAB37DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1124721   (785614) от 12.04.2017
 
 VA - Disco - Greatest Hits (2017) [MP3|320 Kbps] <Disco, Soul>
@@ -480,261 +738,6 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0020 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:539E08E44908AD462456AF03067A68E6B969608F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389096   (784562) от 10.06.2020
-
-VA - Music News vol.17 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Эллаи - Шрамы (02:41)
- 02. Allegro - Falling (03:33)
- 03. Andreea Ilie feat. M.A.N. - Bella Ciao (Andaro Remix) (03:01)
- 04. Antoine Simar - Be Alright (03:01)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 02:34:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C611A921996157D8F1D49E45E231E5443ACAED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389395   (784555) от 10.06.2020
-
-VA - Music News vol.18 (2020) [MP3|320 Kbps] <Pop, Soul, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тимати feat. Джиган & Даня Милохин - Хавчик (03:05)
- 02. Akord - Strada Zilelor Senine (03:38)
- 03. Amir - La Fete (03:13)
- 04. Ana Baston - По Сердцам (03:30)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 03:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A43053D3D9B375A0488E472C3E304D2E9FFBDEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204485   (784528) от 06.02.2018
-
-Alan Walker - Sing Me to Sleep (2017) Remix [MP3|256 Kbps] <House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784528.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sing Me to Sleep
-2. DJ Amice Remix
-3. Up MusicЖанр: HouseПродолжительность: 00:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5B44BC59F53BD81C81666484FEE8106924E4153
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204462   (784525) от 06.02.2018
-
-Benny Benassi - Satisfaction (2017) Remix [MP3|320 Kbps] <G-House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784525.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Satisfaction
-2. Tony Ferrera Remix
-3. Up MusicЖанр: G-HouseПродолжительность: 00:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B34BA93CDA0E63F659D5FA33B34CDD2F3C25589C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204480   (784522) от 06.02.2018
-
-Enigma - Sadeness (2017) Remix [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784522.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sadeness
-2. Dj Nik Remix
-3. Up MusicЖанр: HouseПродолжительность: 00:03:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46AA3E2212E742D720E3C3B2946233A487E79457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1389137   (784466) от 10.06.2020
-
-VA - не Громкие новинки недели 70 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784466.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alions - На этой станции метро (3:55)
-2. ARUBA ICE - Выпускной (3:28)
-3. Barinova - Самый-Самый (Taranoff Remix) (4:41)
-4. Caramel - Без Чувств (2:57)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:42:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8D06E438F59E9420FFC34413913B5E9285FA73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204624   (784234) от 07.02.2018
-
-Goldroom - Till Sunrise (2017) Remix [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784234.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Till Sunrise
-2. Epatage Soul Remix
-3. Up MusicЖанр: Deep HouseПродолжительность: 00:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2138534F71287BEAD27F20D9D8639256C2608CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204423   (784233) от 07.02.2018
-
-Arilena Ara - Nentori (2017) Remix [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784233.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nentori
-2. Mike Temoff Remix
-3. Up MusicЖанр: HouseПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EEA4CC4FE2F630E539222A3CB89E0CB162977CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204434   (784232) от 07.02.2018
-
-The Beloved - Sweet Harmony (2017) Remix [MP3|192 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784232.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sweet Harmony
-2. B&G Remix
-3. Up MusicЖанр: Deep HouseПродолжительность: 00:05:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8C3F4E328BB497E1E12D36FF748DE8C36284D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

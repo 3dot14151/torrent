@@ -1,3 +1,61 @@
+###  Публикация: 1079022   (296502) от 03.12.2016
+
+Los Amigos Invisibles - A Typical & Autoctonal Venezueland Dance Band (1995) 2004, Gozadera [FLAC|Lossless|tracks + .cue] <Funk, Pop, Latin>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dame tu color
+02. En el cielo o en tu boca
+03. Dime
+04. El Humo que respiro cuando estoy contigo(   Читать дальше...   )Жанр: Funk, Pop, LatinПродолжительность: 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F5C911EBC0512AAA94F34640DD445CD7400BB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079088   (296499) от 03.12.2016
+
+Michael Lee Thomas - Far Away Near (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Fast for Gravity [00:04:26]
+02. Separate Tables [00:04:09]
+03. Changing Ghosts [00:04:32]
+04. Jealous Coffee [00:04:43](   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EB3B4D5C3B6D7CC925B3C305170E18FE343F08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079028   (296493) от 03.12.2016
 
 Los Amigos Invisibles - The New Sound Of The Venezuelan Gozadera (1998) [FLAC|Lossless|tracks + .cue] <Acid Jazz, Funk, Latin>
@@ -687,64 +745,6 @@ Eddie Daniels - Memos From Paradise (1988) GRP Records [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E87769AFCC50066425447E44B88EB58F4323FAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334677   (293373) от 30.10.2019
-
-Silent Way - Standby - (B&P Production) (1996) [FLAC|Lossless|tracks + .cue] <Fusion, Cool Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293373.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. P.S. (08:23)
-02. Standby (11:23)
-03. September (08:49)
-04. Pearls (07:46)(   Читать дальше...   )Жанр: Fusion, Cool JazzПродолжительность: 00:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46BDFC676965EF96DB65C0579EC6AC1FAB321F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262662   (292985) от 16.11.2018
-
-ZAZ - Effet Miroir (2018) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Chanson, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Demain c'est toi
-02. Qué vendrá
-03. On s'en remet jamais
-04. J'aime j'aime(   Читать дальше...   )Жанр: Nu Jazz, Chanson, SoulПродолжительность: 00:52:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78DE2184EBF637C00DAE561F48B9B38EEAF06114
 ```
 
 https://mybot314.ru/tekegram_catalog/

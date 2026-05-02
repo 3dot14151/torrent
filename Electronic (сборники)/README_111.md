@@ -1,3 +1,67 @@
+###  Публикация: 1039538   (595945) от 01.08.2016
+
+VA - Best Hits Hot Eternal Sound (2016) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595945.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bad Boys Blue -  You're a Woman (Reloaded Album Version) 3:05
+002. DJ Smash & DJ Miller feat. Anya -  Angels (Radio Edit) 3:36
+003. Global Deejays & Frontload -  Get Up! (Radio Edit) 3:07
+004. Pullbaxx & C.R. Easy -  Waves of Time (Bigroom Edit) 3:54(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 12:48:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18074F3436D8B1F48BAF1B3EC9ABADBEDF011A4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 526687   (595929) от 25.07.2012
+
+VA - Soul of Ibiza Volume 40 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595929.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Neev Kennedy - The Unknown (DNS Project Extended)
+002. Mark Sixma feat. Amba Sheperd - Cupid`s Casualty (Original Mix)
+003. Mike Koglin feat. LCK - Varana (Original Mix)
+004. Omnia & IRA - The Fusion (Original Mix)
+005. Paul van Dyk feat. Austin Leeds - Verano (PvDs Full Fire Mix)
+006. Progressiver - Searching For The Truth (Original Mix)
+007. Rake feat. Natalie Griffiths - Expectation (Original Mix)
+008. Remy Le Duc, The EC Twins & Zen Freeman feat. Shakeh - In Motion (Original Mix)
+009. Ruben de Ronde & Aelyn - She's Already Gone Vocal Mix
+010. Sou Kanai - A Fragment Of The Memory (Original Mix)(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:50:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E327BEAF1187B82FC7A8C222BC4920CFF8A49870
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526105   (595759) от 25.07.2012
 
 VA - Trance Desire Volume 23 (Mixed by Oxya^) (2012) [MP3|320 кб/с]<Vocal Trance>
@@ -693,62 +757,6 @@ VA - Resident Advisor Top 50 Charted Tracks For June (2015) [MP3|320 кб/с]<Ho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:795F23B0378EE2634F14C2675AFAB209E3D4E375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915264   (592337) от 05.07.2015
-
-VA - Vocal Trance Seduction Vol 5 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Miller, Nicole McKenna - This Time Last Year (Original Mix) (07:04)
-02. Jan Martin - There's You (LTN Remix) (06:55)
-03. Lisaya ft. Hanna Finsen - Time To Live (Original Mix) (07:25)
-04. Julie Thompson with Dragon & Jontron - Loved (Sied van Riel Remix) (06:38)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:19:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED1E1FA3FF9883D0AF7C221B2A95229B7668AC20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916165   (591399) от 07.07.2015
-
-VA - Beatport Indie Dance / Nu Disco Top 100 June (2015) [MP3|320 кб/с]<Indie Dance / Nu Disco, G-House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Croatia Squad - Back to Life (Original Mix)
-02. Lika Morgan - Relax (Don't Do It) (Original Mix)Жанр: Indie Dance / Nu Disco, G-HouseПродолжительность: 10:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7978BF10EBEBB5F8344796BFA37AE459546655A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

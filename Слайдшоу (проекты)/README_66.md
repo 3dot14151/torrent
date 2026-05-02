@@ -1,3 +1,29 @@
+###  Публикация: 1316858   (503961) от 28.07.2019
+
+Проекты - VideoHive - History Glitchy Opener - 22589536 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503961.jpg" />
+</div>
+
+
+###  Подробнее
+
+History Glitchy Opener - это шаблон кинематографического качества с эффектом цифровых помех. Шаблон можно использовать как угодно... Всё зависит от Вас!... Дерзайте!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A32C3BC1C87716F80D1528237443B64E8EA664
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317039   (502119) от 30.07.2019
 
 Проекты - Проект ProShow Producer - Modern Slideshow [PSH]
@@ -653,32 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A94C005B68EC6852D58523CCD78333F99583ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936863   (491574) от 13.09.2015
-
-Проекты - VideoHive - Tape It Old Burned Photo Look [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491574.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект (видео, фото, текст, презентация), сделанный в After Effects CS4. Этот замечательный проект можно использовать для различного применения.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1518C356E0C8021E5224958E165FAFE32C361F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1717608   (111173) от 20.04.2024
+
+VA - Pure Dreams, Vol. 3 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111173.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zaranka - Last Journey (2:45)
+02. Prana Tones - Inner Peace (Original Mix) (4:56)
+03. Openzone Bar - Caribbean Nights (Original Mix) (3:45)
+04. Ajuna - Miracle (Anderson Doyle Instrumental Remix) (4:49)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:23:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D7F52C884E81B06E22B001BF1B29C451BB68824
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717810   (111124) от 21.04.2024
+
+VA - Pure Dreams, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MONGOA - Eternal (No Beat Mix) (4:54)
+02. Peter Pearson - Calming Influences (Original Mix) (3:28)
+03. Okira - Morning Sun (Ambient Version) (4:27)
+04. Aiko Katana - Hope in the Air (4:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:20:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D925D074287F0ABC183D42786C1EFED2BB31D7E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718666   (110832) от 26.04.2024
+
+VA - Ocean Experience: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary B - Akoya (3:10)
+02. Matt Sour - Nessie (3:36)
+03. Martin Hiska - Highway (5:26)
+04. Marga Sol - Solstice (6:04)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:17:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CF2D0DCF25E5BDC35B9993BA930497E2E303A2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719716   (110507) от 30.04.2024
+
+VA - Ethernal Motion Downtempo: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dellasollounge - Odyssey (5:52)
+02. Matt Sour - One Thought (Binaural) (4:13)
+03. Incognita Alma - Rendez Vous (5:52)
+04. Dj Shan - Ethernal Motion (Original Mix) (3:22)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:04:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A45FC6F22816622DCEC97DFC61576D6925D480F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720289   (110426) от 02.05.2024
 
 VA - Lounge Sexiest Ladies, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -629,122 +745,6 @@ Nightmares On Wax - Carboot Soul (1999) Deluxe Edition, 2024, Warp Records [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E40D0C76F33D115B76763B66B633519DA56148A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727812   (108384) от 04.06.2024
-
-VA - Lounge Rendezvous, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circles Of Sound - Sunrays (7:36)
-02. Marc Hartman - Waterfront (4:19)
-03. Takt 3 - Fake Agent (8:28)
-04. Luis Hermandez - Broken Love (4:40)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:30:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:713ECDFE4C7EE3DEB85C645E6BCC8B2726510969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728984   (108208) от 09.06.2024
-
-VA - This Is Chill Music 2024 (2024) Original Mix [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Soul Focus - Feel the Time (Original Mix) (3:22)
-02. Alan Bradshaw - Melody (Original Mix) (3:17)
-03. Sandra Wilson - Invest in Me (Original Mix) (3:19)
-04. David Parson - Paradise Village (Original Mix) (3:20)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:05:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BDBB8F13BFF81480333650868B939CF6B18CC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729305   (108135) от 10.06.2024
-
-VA - Sunset Dreamer: Chillout Your Mind (2024) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirage Of Deep - Lost Island (432 Hz) (4:06)
-02. Marc Hartman - Crystal Sea (5:16)
-03. Ljay - Let Me Chill (3:58)
-04. Marga Sol - My Core (Chill Mix) (4:13)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D37CE617AC881A74118DE9150AD2445CD9E73BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729788   (108076) от 12.06.2024
-
-VA - Travel In The Universe, Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julie Bernardt - Misty Cave (Mystic Kaio Instrumental) (5:18)
-02. Mirage Of Deep - The Mountain (7:25)
-03. Borkahi - Far Away (Chris Jaw Instrumental) (5:28)
-04. CaPa - Alesian Wind (4:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63AE1F561B721904B2F70E22C26BBD02F9A6C6CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

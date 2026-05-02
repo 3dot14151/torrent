@@ -1,3 +1,61 @@
+###  Публикация: 1637612   (239797) от 05.06.2023
+
+Bruce Torff - Look Again (2013) Summit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look Again [4:49]
+02. One and Only [4:41]
+03. In the Flow [4:19]
+04. When I Said Goodbye [2:50](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:49:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455952A4E983CC67FEF56F649415E2D5411BBA8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621763   (239768) от 26.03.2023
+
+Benny Golson - Turning Point & Free (1962) 2013, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. How Am I to Know? [3:50]
+02. The Masquerade Is Over [4:40]
+03. Dear Kathy [4:49]
+04. Three Little Words [4:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:12:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33727B5C576C48665D67C44FD909BB8F22F8EE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621766   (239752) от 26.03.2023
 
 Benny Golson Funky Quintet - That's Funky (1994) 2000, Arkadia Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -687,64 +745,6 @@ Pasquale Grasso - Solo Masterpieces (2021) Sony Music [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:780E4B355E6BA0AE1EA3B6250BA3D7C062B14D6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636724   (238913) от 31.05.2023
-
-Sarah Lancman - Le pouvoir des mots (2023) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, French chanson>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nostalgia In Paris
-02. Boléro nocturne No.3
-03. Que feras-tu de ta vie?
-04. Le pouvoir des mots(   Читать дальше...   )Жанр: Vocal Jazz, French chansonПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EDCFCF931B34794F9D4092095A673667C363D4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577302   (238910) от 18.09.2022
-
-The Charlie Rouse Band - Cinnamon Flower (1977) 1987, Rykodisc [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238910.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backwoods Echo [5:14]
-02. Disenchantment [3:53]
-03. A New Dawn [5:49]
-04. Quiet Pictures [3:41](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:31:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA2400B9F21A2A5A9840647CD125F697C67028C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

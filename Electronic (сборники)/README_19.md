@@ -1,3 +1,61 @@
+###  Публикация: 975400   (973350) от 14.01.2016
+
+VA - Beatport Top 100 Deep House December 2015 (2016) [MP3|320 кб/с] <Deep House, House, Electronica>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973350.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dele Sosimi Afrobeat Orchestra - Too Much Information (Laolu Remix) (Edit) 08:33
+002. Mat.Joe - Make A Living (Original Mix) 07:23
+003. Crookers feat. WILLS - Withdrawals (Original Mix) 05:12
+004. Sonny Fodera feat. Yasmin - Feeling U (Deep Mix) 06:10(   Читать дальше...   )Жанр: Deep House, House, ElectronicaПродолжительность: 11:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DEFC069236B0A5ECBBEE39519C0B8E52BC26EE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975389   (973299) от 14.01.2016
+
+VA - Extra House (New year edition) (2016) [MP3|320 кб/с] <House, Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bequest - Bright Lights (Original Mix) (05:29)
+02. Denis Neve - Like You (Original Mix) (07:17)
+03. Kay-D - Hydraulic Pressure (Frosun Remix) (07:37)
+04. Soundprank - Obsidian (Original Mix) (07:35)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 02:01:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:205CCCCEB442661F4DFFEFED893B900A1B0FC480
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1357770   (973170) от 04.02.2020
 
 VA - Beatport Progressive Trance: Pack 05 (2020) [MP3|320 Kbps] <Trance, Progressive>
@@ -703,70 +761,6 @@ VA - Best Of Dubstep 2012 (2012) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C16C4F06281A92BCEE01933642DB1F986FA858E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618351   (967913) от 16.02.2013
-
-VA - Club Dubstep №28 (2013) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Litov - You by Tim Ismag (Litov Remix)
- 02. MitiS - Identity
- 03. Moxix, Mojo - Shaolin Funk (Quartus Saul ft. Maksim Remix)
- 04. Phrenik, Kezwik - Ready For Impact (feat. PLS DNT STP) (Original Mix)
- 05. Quartus Saul - Dream Sequence (Original Mix)
- 06. Reflux Ft. Romy Harmony - Prometheus (Fidgi edited)
- 07. Roksonix - Ready To Rumble
- 08. SirensCeol - Perpetual Motion
- 09. Team Brooklyn ft. Chihiro - Friend No More
- 10. Those Usual Suspects feat. Erik Hecht - Can't Hold On (Phetsta Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:58:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3EEA2EE783557E155DECD8A00DE52AA9B1EED19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976873   (967868) от 19.01.2016
-
-VA - Luxury Chill Grooves - Cool Winter Edition (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charly'n Black - C17H21N04 (03:28)
-02. Stuce The Sketch. Kim - Chillin' - Stuce The Sketch (03:20)
-03. Dub Mars - Always And Everywhere (05:52)
-04. Florent Campana - Et Dieu Pour Tous (03:55)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:559BF223F2A8DA12F0E83B72D25C51AFFEE926F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

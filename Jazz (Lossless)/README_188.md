@@ -1,3 +1,61 @@
+###  Публикация: 1572098   (425606) от 25.08.2022
+
+Red Garland - Misty Red (1982) 1991, Timeless [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Can't Be Love [8:01]
+02. Misty [5:29]
+03. But Not For Me [5:04]
+04. Over The Rainbow [6:56](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F4F371C988047F279E0389D964F8893B8E9004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946689   (425349) от 14.10.2015
+
+Herman Foster - The One And Only (1984) /2015, Solid Records/[FLAC|tracks+.cue]<Mainstream Jazz, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Softly As In A Morning Sunrise [07:46]
+ 02.The Shadow Of Your Smile [07:03]
+ 03.Smoke Gets In Your Eyes [07:24]
+ 04.Over The Rainbow [07:32](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Piano JazzПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97D6E07E63918895B506A21640DAE23B403ACFEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946677   (425347) от 14.10.2015
 
 Tete Montoliu - Live At The Keystone Corner (1979) /2015, Solid Records/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
@@ -688,64 +746,6 @@ Ricardo Silveira - Small World (1992) Verve Forecast [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:307876F15A5129846D392D404C586A437014A99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166985   (422171) от 18.09.2017
-
-Don Ewell - Man Here Plays Fine Piano! (1957) 1995, Good Time Jazz [FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422171.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everybody Loves My Baby [03:54]
-02. Blue Turning Grey Over You [03:49]
-03. Am I Blue? [06:03]
-04. Frisco Rider [03:06](   Читать дальше...   )Жанр: Stride, Piano JazzПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A216E5DD257AEEFAB2D6E2CF2E632CA700F9A8E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166989   (422070) от 18.09.2017
-
-Kumquat - Quick & Dirty (2008) Zig-Zag [FLAC|Lossless|image + .cue] <Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In Bed With Igor [09:29]
-02. La Revanche De l'ogresse [06:07]
-03. Mandarine Suite [09:44]
-04. Le Mouton Ou Le Cafe? [01:51](   Читать дальше...   )Жанр: Modern CreativeПродолжительность: 00:50:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C5F482C66DC8076EF62672F0363D2A1EB7DA40
 ```
 
 https://mybot314.ru/tekegram_catalog/

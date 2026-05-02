@@ -1,3 +1,61 @@
+###  Публикация: 964953   (281062) от 12.12.2015
+
+VA - Winter Lounge Solden (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steven Moore - In the Sunshine - Original Mix
+02. Monodial - Beat Flowers - Original Mix
+03. The Channel - Casta - Original Mix
+04. Michele Taylor - Morning Light - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A42615FF4E946887BE7B893DACBBC46FE890DBF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 964983   (281060) от 12.12.2015
+
+VA - Sexy Lounge Shades For Christmas (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dave Lampert - Trumpet Infusion
+02. Acoustique Parfum - A Taste of Within Pt. 2 - feat. Thomas Helwig
+03. Openzone Bar - Cocktail Flavour
+04. Elastic Field - No Money for Caipirinha(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7AF187D7519EEB96C44E97A1E19180389B4E88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1082134   (281046) от 11.12.2016
 
 VA - Trance Elegance On This Year 001 (2016) [MP3|320 Kbps] <Trance, Melodic, Uplifting, Vocal, Tech Trance, Blissful>
@@ -684,64 +742,6 @@ VA - Beatport Trance Pack (Best Of December) (14.12.) (2016) [MP3|320 Kbps] <Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5AED4666934ED1FECC87CAA0860D3525FF8FA85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1265105   (275949) от 26.11.2018
-
-VA - Deep House Collection Vol.191 (2018) [MP3|320 Kbps] <House, Deep House, Club Hose>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275949.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren feat. Josh Cumbee - Sunny Days (Ryan Riback Remix) 3:40
-002. Bee Gees - Stayin Alive (Delabella Remix) 3:40
-003. Calvin Harris & Sam Smith - Promises (Illyus & Barrientos Extended Remix) 6:00
-004. R3HAB & Conor Maynard - Hold On Tight (Denis First & Reznikov Remix) 4:24(   Читать дальше...   )Жанр: House, Deep House, Club Hose, ProgressiveПродолжительность: 13:33:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:205FF3C394B4FF345916C44768F6DC4EAA27C863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083101   (275909) от 14.12.2016
-
-VA - Bass Killer 9 (2016) [MP3|320 Kbps] <Dubstep, Big Room, Trap, Future Bass, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 4B x HOLLY — JUICE (3:46)
- 02. Baauer feat. Chaki Zulu, KEPHA, JB, kZm, PETZ (YENTOWN) — Night Out (3:02)
- 03. Excision — Virus (5:31)
- 04. Excision & Space Laces — Throwin’ Elbows (Original Mix) (3:02)(   Читать дальше...   )Жанр: Dubstep, Big Room, Trap, Future Bass, ElectroПродолжительность: 01:29:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA63341977D9BEB247E1D186B1E4A032F1DA1F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

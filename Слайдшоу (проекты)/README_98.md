@@ -1,3 +1,31 @@
+###  Публикация: 1781520   (26666) от 23.02.2025
+
+Проекты - VideoHive - Documentary Historical Vintage Slideshow - 56452689 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_26666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неплохой, черно-белый проект для создания исторических слайдшоу.
+
+Музыка предоставлена в демо режиме.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9A1BFAF16AADA7A32C41D3FACA60968E8F100C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781966   (26347) от 26.02.2025
 
 Проекты - VideoHive - Modern Art Photo Gallery - 56519864 [AEP]
@@ -678,34 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F0DAB4C78902214224BE012DE6370FB6678A1E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807932   (10780) от 21.07.2025
-
-Проекты - VideoHive - Memories Slideshow - 57170499 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10780.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект фотостены поможет вам показать любую фотоисторию вашей жизни в одном атмосферном видео.
-
-Музыка очищена и предоставлена.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F94352930B8029C8CC804CD049BB9FB874A6B4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,91 @@
+###  Публикация: 960998   (301135) от 01.12.2015
+
+New Order, Live In Glasgow (2008) DVD9 + DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301135.jpg" />
+</div>
+
+
+###  Подробнее
+
+DVD1: Концерт в Глазго. Съёмки - октябрь 2006 года. (DVD-9)
+DVD2: Редкие и ранее не опубликованные съёмки. (DVD-5)1	Crystal	7:07
+2	Turn	4:33
+3	True Faith	5:49
+4	Regret	4:05(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, House, New Wave, Electro, Synth-popПеревод: ОтсутствуетЯзык субтитров: English, French, German, Spanish, Brazilian Portuges.Продолжительность: DVD1:~ 01:47:00, DVD2:~ 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C77EBF0A19EA969F743901AAE6661DBB1C12AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184348   (301086) от 17.11.2017
+
+Rainbow - Memories In Rock (Live In Germany) (2016) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301086.jpg" />
+</div>
+
+
+###  Подробнее
+
+В июне 2016 года легендарный гитарист Ричи Блэкмор (Ritchie Blackmore) воплотил в жизнь мечты многих фэнов, возродив свою группу RAINBOW для трех выступлений в Европе – двух в Германии и одного в Англии. Немецкие шоу в Лореляе и Битигхайме были запечатлены на видео и легли в основу релиза под названием "Memories In Rock - Live In Germany", который увидел (   Читать дальше...   )1. Intro
+2. Highway Star (Deep Purple cover)
+3. Spotlight Kid
+4. Mistreated (Deep Purple cover)(   Читать дальше...   )Производство: Eagle Vision ‎Жанр: Hard RockПродолжительность: 01:50:16+00:29:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE3AE731457A9E88ED299CAB2FC433B39E4E657D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184354   (300992) от 17.11.2017
+
+Queen - Live At The Rainbow '74 (2014) BDRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертный альбом британской рок-группы Queen, вышедший в 2014 году. Доступен в форматах двойного CD, двойного винила, DVD, Blu-Ray.01 - Procession
+02 - Now I'm Here
+03 - Ogre Battle
+04 - Father To Son(   Читать дальше...   )Производство: Eagle VisionЖанр: Art Rock, Hard Rock, Glam RockПродолжительность: 01:20:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F572D8E555AC98A4D6B14AD3D25AB1668F6C1AD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1184098   (300976) от 17.11.2017
 
 Slipknot - Day Of The Gusano (2017) BDRip [H.264/1080p]
@@ -631,90 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF54D5903ED92CBD62018A2CE3F78EEBE8BC9C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915191   (296684) от 19.11.2017
-
-AC/DC - Live at River Plate (2009/2011) BDRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296684.jpg" />
-</div>
-
-
-###  Подробнее
-
-Запись грандиозного тура AC/DC «Black Ice World Tour», снятая 32 HD камерами в декабре 2009 года. 200 000 фанатов, собравшихся на три шоу в Буэнос Айресе, приветствовали группу после 13 лет отсутствия в Аргентине.01. Rock n Roll Train
-02. Hell Ain't a Bad Place to Be
-03. Back in Black
-04. Big Jack(   Читать дальше...   )Производство: США, Columbia RecordsЖанр: Hard RockРежиссер: David MalletПродолжительность: 01:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86EF71C25062ADEFAE472ED386C87285F9D2B1A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961813   (296560) от 03.12.2015
-
-VA - Official UK Top 40 Video Chart (27-11-2015) WEB-DL [1080p-LQ]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296560.jpg" />
-</div>
-
-
-###  Подробнее
-
-Достаточно много времени прошло с момента размещения на трекере последнего Топ-40 (Видео). 27 ноября 2015 года опубликован очередной UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю. В релизе в основном использованы официальные видеоролики.01. Justin Bieber - Sorry (3:25)
-02. Justin Bieber - Love Yourself (4:32)
-03. Adele - Hello  (6:07)
-04. Justin Bieber - What Do You Mean  (4:58)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, Top40Перевод: ОтсутствуетПродолжительность: 02:38:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AED724C2BCD02ABD5B2496C60A778465B4FB2D50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424085   (295563) от 15.11.2020
-
-Квартирник НТВ у Маргулиса. Группа Элизиум (14.11.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295563.jpg" />
-</div>
-
-
-###  Подробнее
-
-На сцене «Квартирника» — российский космос-рок ансамбль «Элизиум». В этом году коллектив отметил 25-летие: за этот период состав группы неоднократно менялся, но это никогда не сказывалось на их популярности. В гостях у Евгения Маргулиса участники «Элизиума» поделились интересными воспоминаниями и исполнили хиты в жанре, который они сами называют космос-роком.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AADB80A1A9AEA938E83A0F5BE1AE3D68524EE8DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

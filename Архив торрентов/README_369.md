@@ -1,3 +1,61 @@
+###  Публикация: 973012   (980779) от 07.01.2016
+
+VA - Perfecto Records: Best Of 2015 (2015) [MP3|320 кб/с] <Trance, Progressive House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Oakenfold feat. Tiff Lacey - Hypnotized (Markus Schulz Remix) (05:41)
+02. Paul Oakenfold feat. Angela McCluskey - You Could Be Happy (Paul Oakenfold Future House Mix) (04:03)
+03. Greg Downey & Bo Bruce - These Hands I Hold (07:02)
+04. DedRekoning feat. Sophie Ellis-Bextor - Only Child (Paul Oakenfold Deep Down Mix) (04:42)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3986775E43E10214850702D51ABE6CFE946D70BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972930   (980778) от 07.01.2016
+
+VA - Abora Recordings Best of 2015 (Mixed by Ori Uplift) (2016) [MP3|320 кб/с] <Trance , Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex van Reeve - Hope (Intro Edit) (feat. Geert Huinink & Kim Kiona) (6:43)
+02. Ikerya Project - Family (Original Mix) (6:32)
+03. Kelly Andrew - Xanadu (Orchestral Trance Mix) (8:34)
+04. Afternova - Into The Sky (2015 Remake) (7:18)(   Читать дальше...   )Жанр: Trance , Uplifting TranceПродолжительность: 02:59:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ED5F1C19A5EB017CB11C8E9F2491541F8E27CA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1355973   (980752) от 28.01.2020
 
 Reg Organizer 8.43 Repack (& Portable) by elchupacabra [Multi/Ru]
@@ -630,59 +688,6 @@ XnView Shell Extension 3.51 + Portable [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4157792BF4455EBD2ED6A7F55C7D491C966224EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972998   (980600) от 07.01.2016
-
-One-Punch Man / Ванпанчмен [2015, TV, 2 из 12 + 1 из 6 SP] BDRip 1080p 10bit Raw
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980600.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы устали от запоминания супер-атак и бесконечных доспехов, но душа просит адреналина и драк? Тогда эта новая экшен-комедия от студии Madhouse для вас!
-Главный герой не размахивает мечом, не выкрикивает боевой клич и вообще не отличается ничем особенно героическим. Всё в этом молодом человеке по имени Сайтама так и вопит: «заурядный» — и его лысая голова, и его хилое (   Читать дальше...   )Производство: Madhouse StudiosЖанр: приключенияРежиссер: Нацумэ СингоСубтитры: РусскиеПродолжительность: 12 серий по 25 минут
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A044A8EE6ED81C40F03F4BD48D7D54B5F296A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972887   (980595) от 07.01.2016
-
-Ужастики / Goosebumps (2015) WEB-DL [H.264/1080p-LQ]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Зак переезжает с родителями в провинциальный городок, где знакомится с очаровательной соседкой Ханной. Он узнает, что ее отец — Роберт Стайн, знаменитый писатель, автор популярной серии триллеров для подростков «Ужастики», у которого есть мрачная тайна. Стайн — пленник собственных историй: монстры из его произведений вполне реальны, и он пишет свои книги для того, (   Читать дальше...   )Производство: США, АвстралияЖанр: Фэнтези, комедия, приключенияРежиссер: Роб ЛеттерманАктеры: Дилан Миннетт, Одейя Раш, Эми Райан, Райан Ли, Джиллиан Белл, Джек Блэк, Кен Марино, Холстон Сейдж, Стивен Крюгер, Кит А. Болден, Аманда Ланд, Тимоти С. Саймонс, Каран Сони, Р.Л. Стайн, Калеб Эмери, Габриэла Фрайле, Нэйт Андраде, Шелдон Браун, Мелисса Брюэр, Маршалл ЧокаПеревод: Дублированный (iTunes)Субтитры: отсутствуютПродолжительность: 01:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3A3F8E4125930966B931255F0F2C307666A328B
 ```
 
 https://mybot314.ru/tekegram_catalog/

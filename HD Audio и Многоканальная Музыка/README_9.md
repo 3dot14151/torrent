@@ -1,3 +1,148 @@
+###  Публикация: 977789   (965548) от 21.01.2016
+
+The Alan Parsons Project - The Turn Of A Friendly Card (1980) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965548.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. May Be A Price To Pay (5:01)
+A2. Games People Play (4:22)
+A3. Time (5:15)
+A4. I Don't Wanna Go Home (4:51)(   Читать дальше...   )Производство: Arista Records - 203 000-320Жанр: Progressive RockПродолжительность: 00:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1883993E489AEE3F250B83A177995D57B6A4DB6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978515   (962043) от 24.01.2016
+
+Агата Кристи - Декаданс (1991) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Щекотно
+02 - Мотоциклетка
+03 - Его там не было
+04 - Эпидемия(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24917008C646FD9D006309704719CF3F8041296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 747132   (958184) от 27.01.2016
+
+Deep Purple - The House Of Blue Light (Дом голубого света) (1987) [FLAC 2.0|192/24|traсks|Vinil-Rip]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958184.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Плохое отношение (Bad Attitude)  4:44
+2. Неписаный закон (The Unwritten Law)  4:36
+3. Зов предков (Call Of The Wild)  4:52(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F36FFF8B65C0DB540D2481BD2AEE6CF8BFF4D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 278226   (957828) от 05.01.2011
+
+George Harrison - My Sweet Lord / Isn’t It A Pity (1970) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side 1
+A - My Sweet Lord (04:35)
+Side 2
+B - Isn’t It A Pity (6:59)Жанр: RockПродолжительность: 00:11:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980168   (957106) от 28.01.2016
+
+Fleetwood Mac - Tusk (Deluxe edition) (1979/2015) [DTS 5.1|44.1 /16|image+cue|Audio-DVD] <rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Over & Over
+02. The Ledge
+03. Think About Me
+04. Save Me a Place(   Читать дальше...   )Жанр: rockПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE1A6969BD57D60149B9E0812459073E383B41F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 171737   (955211) от 19.02.2020
 
 Scorpions - Taken By Force (1977) [Vinyl Rip 24Bit/96kHz]<Classic Rock>
@@ -600,153 +745,6 @@ Bee Gees - Size Isn't Everything (1993) [FLAC|24Bit/96kHz] <pop-rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ACA23A69194F656517C72AC23134A407C7EEB865
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983980   (941862) от 07.02.2016
-
-Владимир Кузьмин - ...пока не пришел понедельник... (1986) 1989, Мелодия, ТЗГ [FLAC 2.0|96/24|image|Vinyl-Rip]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_941862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ...пока не пришел понедельник... (3:49)
-02. Странные дни (4:57)
-03. Симона (4:05)
-04. Шлифовщик (4:24)(   Читать дальше...   )Производство: Мелодия ТЗГ - С60 27993 009Жанр: RockПродолжительность: 00:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E23248726A484D194DA36E1C0BDE604537663C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 144897   (940464) от 29.02.2020
-
-Demis Roussos - Souvenirs (1975) [FLAC|24Bit/96kHz]<pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940464.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1   Sing An Ode To Love   (4:12)
-A2   Midnight Is The Time I Need You   (3:03)
-A3   I'll Be Your Friend (Schön Wie Mona Lisa)  (4:12)
-A4   Action Lady  (3:01)(   Читать дальше...   )Жанр: Electronic, Funk / SoulПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFDABC9F4D57F1675E28B397A9093B3754752951
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092259   (939750) от 11.01.2017
-
-Fiona Joy Hawkins - Blue Dream (2009) 2008 [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <New Age, Acoustic>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fiona Joy Hawkins (род. 1964) австралийская композитор и пианистка. Она родилась в Cessnock (Новый Южный Уэльс) в творческой семье, получила профессиональное классическое образование по классу фортепьяно.
-
-Ее первый альбом, Portrait of a Waterfall (Портрет у водопада), занял первое место в хит-параде New Age Reporter (NAR) в 2005 году. Ее классический релиз, Angel (   Читать дальше...   )01. Freedom (1:51)
-02. Feeling Sunshine (2:54)
-03. From the Outside (4:32)
-04. Sapphire Interlude (1:43)(   Читать дальше...   )Жанр: new ageПродолжительность: 01:09:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FA2430EC69D99EE7C46050088112CC5F3335F12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983264   (939717) от 08.02.2016
-
-Boney M - Ma Baker, Sunny, Daddy Cool (1977) Japan [WavPack 2.0|192/32|tracks|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Ma Baker
-02 Love For Sale
-03 Belfast
-04 Gloria, Can You Waddle(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CECA1DC88959E5B08A4C21111C5F6133239EBEB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983234   (939704) от 08.02.2016
-
-Michael Jackson - Thriller (1982) Japan [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Funk / Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanna Be Startin' Somethin'
-02. Baby Be Mine
-03. The Girl Is Mine
-04. Thriller(   Читать дальше...   )Жанр: Funk / Soul, PopПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD5DDCE3A0B0C1C5A7A6E931DF6B17FD86F1A2C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

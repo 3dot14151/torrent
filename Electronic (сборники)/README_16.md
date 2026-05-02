@@ -1,3 +1,69 @@
+###  Публикация: 608314   (990590) от 29.01.2013
+
+VA - Club Dubstep №26 - Club Dubstep №26 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bassnectar feat. Tina Malia -Nothing Has Been Broken (05:48)
+02. Butch Clancy -Lonely (05:12)
+03. Cross Them Out -Disorientated (04:10)
+04. Dabin -Wildfire (Original Mix) (04:52)
+05. DOCTOR P feat JENNA G -Neon (Mizuki remix) (04:41)
+06. Filthzilla -Atlantis (Original mix) (04:33)Жанр: DubstepПродолжительность: 02:22:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF371F64A32F15AF1A74A635DC629A5C2F643445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 610447   (990574) от 29.01.2013
+
+VA - Drum and Bass Pro V.3 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shapeshifter - Twin Galaxies (The Upbeats Remix)
+02. Awakening State - Out There (Subsonik VIP Mix)
+03. Edward Oberon, Blade, Sopheye - Butterflies (Original Mix)
+04. Sunny Crimea - Ain't No Game (Original Mix)
+05. Hammock - I Can Almost See You (Need a Name Tribute)
+06. Switch Technique - Rude Soul
+07. mSdoS - Dimensions (LM1 Remix)
+08. PostML - It's Time
+09. Skyweep - Sweet Sunday (Original Mix)
+10. Paul SG - Do It But Do It Right (Original Mix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9E9F2C0F07684300FCDB025EF66E9C7194CF5E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 609373   (990509) от 29.01.2013
 
 VA - Drum and Bass Pro v.1 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
@@ -720,64 +786,6 @@ VA - Cinema Lounge Vol 1 (2015) [MP3|320 кб/с] <Lounge, Chill Out, Easy Liste
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEE255A4932DAD55081D41B803E197246AF6B125
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971890   (984772) от 04.01.2016
-
-VA - Fantasy Chillout Selection (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shin Elto - Deep Mundo [04:49]
-02. XM Ensemble - Dark & Blonde [03:47]
-03. Reverb Time - Beautiful You [03:32]
-04. Double T Project - Behind the Mirror [04:17](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7253E9002D64BDECE182817B536325ED1E19387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971799   (984654) от 04.01.2016
-
-VA - Water Show: Matrix Bass (2016) [MP3|320 кб/с] <Dubstep, DnB>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_984654.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Taptone x Capitale - Breathing
-002. Fabian Mazur - Everybody Jack
-003. Royal Blood - Sawdust
-004. Skrux - Essence(   Читать дальше...   )Жанр: Dubstep, DnBПродолжительность: 09:12:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61915BDEEB1C6EC46ECA0DEEA2C3F4A26A287869
 ```
 
 https://mybot314.ru/tekegram_catalog/

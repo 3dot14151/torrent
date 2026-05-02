@@ -1,3 +1,61 @@
+###  Публикация: 774127   (830576) от 05.04.2014
+
+Sting - 25 Best Songs (2014) [MP3|256 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mad About You 1991
+02. Shape Of My Heart 1993
+03. Fragile 1987
+04. La Belle Dame Sans Regrets 1996(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D5488B425E405A9FA92F6F721FAB5A3C3EE4F81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005861   (830556) от 10.04.2016
+
+VA - Legends of Metal (2016) [MP3|320 кб/с] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slipknot - The Devil In I (5:43)
+02. Disturbed - The Vengeful One (4:12)
+03. Killswitch Engage - The End of Heartache (4:58)
+04. Trivium - Pull Harder On the $trings of Your Martyr (4:51)(   Читать дальше...   )Жанр: MetalПродолжительность: 02:36:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17888F309EB282C1C183EB9AF8696CEDA1803823
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1005954   (830483) от 10.04.2016
 
 VA - Best Rock at all times (2016) [MP3|128-320 кб/с] <Rock, Glam Rock>
@@ -688,64 +746,6 @@ VA - Dr. Metal Presents: Vol.1 (2014) [MP3|224 кб/с]<Heavy, Speed, Power Meta
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6EA0B99435D309AC5914AC3B16CD584FB319AB88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273389   (800572) от 01.01.2019
-
-Deep Purple - Love Conquers All (Greatest Ballads) (2019) [MP3|320 Kbps] <Hard Rock, Classic Rock, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Conquers All
-02. When A Blind Man Cries
-03. Fortuneteller
-04. Lalena(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, RockПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC4317ED698AF5B25D13FF44F3A0907AD7F380A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385164   (800393) от 23.05.2020
-
-Павел Карачин - Вавилон (2020) [MP3|256 Kbps] <Punk, Necessary, Экспрессивная Мелодекламация>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800393.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.1 Вавилон
-1.2 Время
-1.3 Бури песнь
-1.4 Беглец(   Читать дальше...   )Жанр: Punk, Necessary, Экспрессивная МелодекламацияПродолжительность: 01:22:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73D19495A327E8E54A2013EC04C7EE55402B3A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

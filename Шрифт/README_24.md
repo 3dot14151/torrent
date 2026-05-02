@@ -1,3 +1,284 @@
+###  Публикация: 1785550   (69225) от 16.03.2025
+
+Шрифты - Creative Market - CS Violeta 3D - 290819910 [OTF, TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Классический шрифт без засечек с ретро-вдохновением 90-х CS Violeta 3D — смелый классический шрифт без засечек, который передает энергию и стиль 90-х, привнося ностальгическую, но современную нотку в ваши проекты.
+
+Кириллица не поддерживается.Формат: OTF, TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81F82FF70F54391CA6093E8343EFFE97910C680A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785545   (69215) от 16.03.2025
+
+Шрифты - Creative Market - Coretan Komedi Fun Brush Comic Font - 290848899 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69215.jpg" />
+</div>
+
+
+###  Подробнее
+
+Coretan Komedi — игривый и смелый шрифт-кисть, который идеально подходит для добавления юмора и энергии в ваши проекты.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A40C8E9FA563C6D40FBC9BCBB78BCDBE7FCE14D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785760   (69205) от 17.03.2025
+
+Шрифты - Patrick Griffin - MyFonts - Marvin [TTF, WOFF, WOFF2, EOT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69205.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Patrick GriffinФормат: TTF, WOFF, WOFF2, EOT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84FF07DDDF2509D6370C7C09A21F131415F8E16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785805   (69204) от 17.03.2025
+
+Шрифты - Ivan Lisichkin - Behance - Шрифт Крыжовник - 115156561 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69204.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей для коммерции и персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFF8FDB6830A1FBB19BA5F98001533648F921751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785808   (69203) от 17.03.2025
+
+Шрифты - Ivan Lisichkin - Behance - Шрифт Брусника - 98633367 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей для коммерции и персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EFE00EE8939204A67DD1FC982A8F493ACF32C2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785806   (69200) от 17.03.2025
+
+Шрифты - Ivan Lisichkin - Behance - Шрифт Клюква - 145290893 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69200.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт с кириллицей для коммерции и персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7585DA779071FAF480121BBF4B375059542BD914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785809   (69197) от 17.03.2025
+
+Шрифты - Ivan Lisichkin - Behance - Font Stoneberry - 221080219 [OTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69197.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатный шрифт - Костяника с кириллицей для персонального использования.
+Разработчик: Ivan Lisichkin
+
+Материал раздаётся с официальной документацией.Формат: OTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2026687E1A3032D1CCFB4218D491CDCC01183A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785775   (69191) от 17.03.2025
+
+Шрифты - Creative Market - Belitha - Script Handwritten - 290852197 [OTF, TTF, WOFF, WOFF2]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Belitha — очаровательный рукописный шрифт, который излучает элегантность и теплоту своими плавными, естественными штрихами. Каждый символ тщательно разработан для создания плавного и связного стиля, что делает его идеальным для создания сложных и личных дизайнов.
+
+Кириллица не поддерживается.Формат: OTF, TTF, WOFF, WOFF2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E9B85DB9C0203B07B5A1758457DB97DB50F05C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785738   (69182) от 17.03.2025
+
+Шрифты - Andriy Dykun - MyFonts - Asterlight [TTF]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69182.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Andriy DykunФормат: TTF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4CD701EF0AF01143EE47E585DB50154BAF0F68B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1785746   (69180) от 17.03.2025
+
+Шрифты - Andriy Dykun - MyFonts - Voguer Sans [ TTF, WOFF, WOFF2, EOT]
+
+>>Материалы для мультимедиа и дизайна
+>>Шрифты
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шрифт c кириллицей.
+Разработчик: Andriy DykunФормат: TTF, WOFF, WOFF2, EOT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95453046A9C800B07B4A05FF6E7978FAC96CB074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1785754   (69179) от 17.03.2025
 
 Шрифты - Andriy Dykun - MyFonts - Gunhill [TTF, WOFF, WOFF2, EOT]
@@ -436,279 +717,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E648C405B1BD0A0B4B30ED0F5FD405FA094403C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786397   (69041) от 20.03.2025
-
-Шрифты - Denis Serebryakov - MyFonts - Myster [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Denis SerebryakovФормат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B50120AADC23965CC63B76DE232224D3A7D803A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786442   (69033) от 20.03.2025
-
-Шрифты - Konstantin Kuznetsov - Behance - Amiak NHZDN 1.0 Free font - 221604737 [OTF, TTF, WOFF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бесплатный шрифт c кириллицей.
-Разработчик: Konstantin Kuznetsov
-
-Материал раздаётся с официальной документацией.(   Читать дальше...   )Формат: OTF, TTF, WOFF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B3C6E5F3373F868B2CBE73729FFD0C3A07F6695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786298   (69028) от 20.03.2025
-
-Шрифты - Denis Serebryakov - MyFonts - Nekst Mono [OTF, TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69028.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Denis SerebryakovФормат: OTF, TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FF2CB2EAEB1A52066831B6CE56CBC2E2A5C911C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786447   (69026) от 20.03.2025
-
-Шрифты - Monotype Imaging Inc. - Archive [TTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69026.jpg" />
-</div>
-
-
-###  Подробнее
-
-Использованный в различных проектах The Entente в течение последних трех лет студийной практики, ARCHIVE развился в свою окончательную форму.
-
-Pro версии шрифта поддерживают кириллицу.Формат: TTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7BB56531184F3D9FD52BE6CC912FEACA7A7E14E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786304   (69025) от 20.03.2025
-
-Шрифты - Denis Serebryakov - MyFonts - Canapa [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Denis SerebryakovФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:724276F47074E307CC7E187FFE77B524D9B48CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786405   (69024) от 20.03.2025
-
-Шрифты - Denis Serebryakov - MyFonts - Gik [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Denis SerebryakovФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0657A3C4F8EF99110DFB0628D9E7A92DC768A2AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786416   (69021) от 20.03.2025
-
-Шрифты - Denis Serebryakov - MyFonts - Appetite Pro Rounded [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Denis SerebryakovФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6314A366BD673C38F9BB8132A3689118DC5C02B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786308   (69020) от 20.03.2025
-
-Шрифты - Denis Serebryakov - Behance - Taler - 127688031 [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Denis SerebryakovФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF8BE3C675BB878406349EE68C3143839A391C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786299   (69019) от 20.03.2025
-
-Шрифты - Denis Serebryakov - MyFonts - Displace 2.0 [TTF, WOFF, WOFF2, EOT]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Denis SerebryakovФормат: TTF, WOFF, WOFF2, EOT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83B3B9019484857D19DF357977885C1CB0FE7B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786422   (69017) от 20.03.2025
-
-Шрифты - Denis Serebryakov - MyFonts - Appetite Pro [OTF]
-
->>Материалы для мультимедиа и дизайна
->>Шрифты
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69017.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шрифт c кириллицей.
-Разработчик: Denis SerebryakovФормат: OTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1DDADD6FFD47BDFFE036ACF4B386CDB394F8665
 ```
 
 https://mybot314.ru/tekegram_catalog/

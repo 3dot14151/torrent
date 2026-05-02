@@ -1,3 +1,212 @@
+###  Публикация: 520920   (630865) от 09.07.2012
+
+Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Country, Folk Rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630865.jpg" />
+</div>
+
+
+###  Подробнее
+
+В музыке нынешних лидеров джем-движения, группы Great American Taxi, джазовых вибраций, пожалуй что, меньше, а кантри, госпела, блюза и старого доброго рок-н-ролла - больше, чем у прочих. Немолодые, в сущности, люди играют ядерную, невероятно заводную смесь всего, из чего складывается то, что нынче принято называть модным словечком «Американа».01. Poor House :: 04:30
+02. A.M. Radio :: 02:46
+03. Blair Mountain :: 03:34
+04. Angel Dust :: 03:00
+05. Olden Days :: 04:43
+06. Maud Only Knows :: 03:03
+07. Penny Arcade :: 03:41
+08. Silver Fiddle :: 03:21
+09. Radiation Blues :: 03:25
+10. Gonna Make A Record :: 03:02(   Читать дальше...   )Жанр: Americana, Blues, Country, Folk RockФормат: CD, AlbumПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035223   (630511) от 15.07.2016
+
+Theodore Shapiro - Ghostbusters / Охотники за привидениями (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Aldridge Mansion (02:58)
+02. The Garrett Attack (01:30)
+03. Never Invited (01:24)
+04. Distinct Human Form (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:518A925E9B5B0ED57CD82D72AAA64CA1C338EEFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034115   (630510) от 15.07.2016
+
+Douglas Spotted Eagle - Voices (1999) [MP3|320 Kbps] <Native American, Folk, World>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dance    06:04
+02.  Voices    06:18
+03.  My Little One    02:12
+04.  Closer to Heaven    04:41(   Читать дальше...   )Жанр: Native American, Folk, WorldПродолжительность: 00:55:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2BF6758CEE50B14BCB1C099842CF16A21D9DEF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294323   (630095) от 07.04.2019
+
+Angela Little - Chocolate Oyster (2018) OST [MP3|320 Kbps] <Easy Listening, Progressive Jazz, Acoustic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chocolate Oyster
+02. Frenemy
+03. Daytime Baby Blues
+04. Weekend(   Читать дальше...   )Жанр: Easy Listening, Progressive Jazz, AcousticПродолжительность: 00:23:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080D8D2C1246B71BE6E959269C5AF181AB5F817A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294294   (629992) от 07.04.2019
+
+Boy Howdy - Welcome to Howdywood (1992) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bring On The Teardrops [0:03:01.40]
+02. Love Is Easy [0:03:07.68]
+03. If This Is Love [0:05:20.25]
+04. In Another Tear From Now [0:03:27.02](   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:39.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3E1A7BF68028AB8FED47D2F3B85FFC76DBD3315
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542931   (629517) от 11.04.2022
+
+Emily Jane White - Alluvion (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Show Me the War (00:03:45)
+02 - Crepuscule (00:04:55)
+03 - Heresy (00:03:42)
+04 - Poisoned (00:03:52)(   Читать дальше...   )Жанр: Neo-FolkПродолжительность: 00:43:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06CB7AFC912438FAF7CA6B32CB247BBD009EDBFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143345   (629502) от 21.06.2017
+
+Ива - Сновидения (2005) [TAK|Lossless|image + .cue] <Easy Listening, Other>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - intro
+02 - Колыбельная
+03 - Во мне
+04 - Летящая(   Читать дальше...   )Жанр: Easy Listening, OtherПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:581A08D9F63DBDA47D7544FD258EEF5EBFD278FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144142   (629362) от 21.06.2017
 
 Karushanti - Celtic New Age  (2017) [MP3|320 Kbps] <New Age, Celtic>
@@ -557,209 +766,6 @@ Ennio Morricone - Film Music - 5 Альбомов (1987-2004) [MP3|320 кб/с]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD44401BCC9F58EE988F8752F3955D155A15FB23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035548   (626580) от 17.07.2016
-
-VA - Ghostbusters / Охотники за привидениями (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk The Moon - Ghostbusters (03:45)
-02. G-Eazy - Saw It Coming (Feat. Jeremih) (03:30)
-03. Elle King - Good Girls (02:59)
-04. 5 Seconds Of Summer - Girls Talk Boys (03:36)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81573188F13F784EF161975CABF29A79C905B981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035547   (626517) от 17.07.2016
-
-VA - Ghostbusters / Охотники за привидениями (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk The Moon - Ghostbusters (03:45)
-02. G-Eazy - Saw It Coming (Feat. Jeremih) (03:30)
-03. Elle King - Good Girls (02:59)
-04. 5 Seconds Of Summer - Girls Talk Boys (03:36)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B9B484F3153D607621C42170ED31F045DE46021
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229263   (626463) от 06.06.2018
-
-VA - Eamonn Karran - I’ll Be With You (2018) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The River (5:19)
-02. Guiding Light (4:30)
-03. I'll Be With You (4:20)
-04. Morning Light (4:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:810B6871D4F8792DF0A872AB45156E0A57AE22E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035549   (626378) от 17.07.2016
-
-Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейцарский нож (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Song (feat. Paul Dano) (02:27)
-02. Where Did You Come From? (feat. Paul Dano) (02:43)
-03. Cave Ballad (feat. Paul Dano) (01:46)
-04. Hank Drinks (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:365BBB2C96BBD2A022A81AA2593797BC196FE300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035552   (626241) от 17.07.2016
-
-Andy Hull and Robert McDowell - Swiss Army Man / Человек – швейцарский нож (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Song (feat. Paul Dano) (02:27)
-02. Where Did You Come From? (feat. Paul Dano) (02:43)
-03. Cave Ballad (feat. Paul Dano) (01:46)
-04. Hank Drinks (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4301B005B315B4A7A9FE27C6876E6645E68DD0CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144565   (625526) от 23.06.2017
-
-Empire Of Love - Mysterious I-II (2016-2017) [MP3|320 Kbps] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Children Of The Sun (4:54)
-02. Heya (5:45)
-03. In The Dream Of The Monk (4:32)
-04. Inside You (4:36)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:31:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FDD83595B7688500A775CBD1605D783592C103
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035668   (624720) от 18.07.2016
-
-Brian Tyler, Keith Power - Criminal (Original Motion Picture Soundtrack) (2016) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drift and Fall Again (feat. Lola Marsh) (4:07)
-02. Criminal (Madsonik Remix) (3:55)
-03. Pope (3:17)
-04. Division (4:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4907639295B96BAC5657E56EE3D7AE080999BF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

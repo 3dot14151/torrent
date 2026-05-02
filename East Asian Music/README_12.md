@@ -1,3 +1,29 @@
+###  Публикация: 707192   (430030) от 08.10.2013
+
+Yuyoyuppe - 13 альбомов, 30 компиляций, 1 сингл (2009-2013) [MP3|192-320 кб/с]<J-Rock, J-Pop, J-Trance, Metal, Screamo, Vocaloid>
+
+>>East Asian Music
+>>Doujin Music
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430030.jpg" />
+</div>
+
+
+###  Подробнее
+
+Yuyoyuppe (ゆよゆっぺ) - бокаро (с не давнего времени и не только)-композитор, дебютировавший в 2008 году. Пишет песни в жанрах Post-Hardcore и Metal. Вместе с meolа образуют сёркл Draw the Emotional. Вокалист/композитор в группе My Eggplant Died Yesterday (MEDY). Один из продюсеров проекта BABYMETAL. Также известен под псевдонимом DJ'TEKINA//SOMETHING работает в EDM/House/Dubstep направлении.Жанр: J-Rock, J-Pop, J-Trance, Metal, Screamo, VocaloidПродолжительность: 26:61:75
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CCB71E5C081557C7D80087BB5818E1F0D67AC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946146   (428822) от 12.10.2015
 
 Chuantong Orchestra - China: Traditional Music (2015) [OGG| 422-484 кб/с]<World Music>
@@ -744,38 +770,6 @@ signum/ii - 3 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2AA9373E128A56957977DC65EA6C28A32F5F79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 833389   (384705) от 22.10.2014
-
-Draw the Emotional - 7 альбомов (2010-2012) Touhou Vocal, Vocaloid /Doujin/ [FLAC|Lossless] <Metalcore>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384705.jpg" />
-</div>
-
-
-###  Подробнее
-
-2010.02.07 For a Sick Boy
-2010.08.14 (YYYP-0003) Collapse of the sky (C78)
-2010.09.06 Solitude Freak
-2011.01.16 Planetary Suicide
-2011.05.08 (YYYP-0005) Funny party in the Fog (Reitaisai 8)
-2011.12.30 (YYYP-0007) Ghost and your heart (C81)
-2012.12.30 (YPFE-0001) Seated With Liquor (C83)Тип издания: DoujinЖанр: MetalcoreФормат: Touhou Vocal, VocaloidПродолжительность: 00:04:31:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF924BE3D952614E7A0CD4FC8DE4C4CF2D83F910
 ```
 
 https://mybot314.ru/tekegram_catalog/

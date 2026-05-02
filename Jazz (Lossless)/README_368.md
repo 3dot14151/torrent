@@ -1,3 +1,61 @@
+###  Публикация: 1806793   (11491) от 14.07.2025
+
+VA - The Black Lodge (David Lynch's Tribute) (2025) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Noir Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lovecraft Sextet - In Heaven (5:58)
+02. Michael Arthur Holloway - The Moon Divers (3:16)
+03. Trigg & Gusset - Krakau (6:03)
+04. Neononne - To Laura (New Mix) (4:01)(   Читать дальше...   )Жанр: Dark Jazz, Doom Jazz, Noir Jazz, Ambient JazzПродолжительность: 03:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFF37A5FBAED9DE93B7A8C205FE5178820134B73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807219   (11185) от 17.07.2025
+
+VA - Sting in Jazz: A Jazz Tribute to Sting (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nils Landgren - If You Love Somebody Set Them Free
+02 - Paola Arnesano - Roxanne
+03 - Hagenlocher-Schurmann Quartett - Walking on the Moon
+04 - Ulf Wakenius - Message in a Bottle(   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AC69B4E4E90116673530D7B844D72192DCEA842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1808432   (10471) от 24.07.2025
 
 VA - The Best Smooth Female Jazz: Timeless Voices (2025) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
@@ -687,64 +745,6 @@ Leroy Vinnegar Quintet - Leroy Walks Again!! (1962, 1963) 1990, Original Jazz Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5578893A1A506EF18F51F8FC0A0F69A2281D11D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816004   (4647) от 02.09.2025
-
-Hans Koller - Minor Meetings (1958) 2014, Sonorama Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Blues [2:28]
-02. Hi-Fi [4:14]
-03. Blues Around Joe [3:29]
-04. Saba [4:03](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:53:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD47D61BA080AD686E066D8180BBE8E15AA7321A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816204   (4381) от 04.09.2025
-
-Zoot Sims - On The Korner (1983) 1994, Pablo [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Hear a Rhapsody [8:20]
-02. Tonight I Shall Sleep [6:40]
-03. Pennies from Heaven [8:20]
-04. If You Could See Me Now [5:40](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:51:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F2DA6745BC114B7932DA369F3C8DDE854150FA0
 ```
 
 https://mybot314.ru/tekegram_catalog/

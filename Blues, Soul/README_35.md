@@ -1,3 +1,32 @@
+###  Публикация: 1426199   (216101) от 23.11.2020
+
+VA - Christmas Blues (2020) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koko Taylor – Merry, Merry Christmas (4:29)
+02. Elvin Bishop – The Little Drummer Boy (2:52)
+03. Tinsley Ellis – Santa Claus Wants Some Lovin’ (3:23)
+04. Marcia Ball – Christmas Fais Do Do (3:15)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5CF1793083326BAC333A63336C67FEA1DA3017B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1426450   (215027) от 24.11.2020
 
 Muddy Manninen - River Flows (2020) [MP3|320 Kbps] <Blues Rock>
@@ -710,35 +739,6 @@ Rory Gallagher - Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8891CA974E827E4E2ACC5DF4071D5275BC735CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429708   (175709) от 07.12.2020
-
-Taj Mahal - Live at Ultrasonic Studios (2020) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Up To The Country, Paint My Mailbox Blue (Live) (03:22)
- 02. Good Morning Little Schoolgirl (Live) (05:32)
- 03. Black Jack Davey (Live) (04:51)
- 04. Why Did You Have To Desert Me (Live) (10:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:591A29539EC9982B2FC972FE1599900739608559
 ```
 
 https://mybot314.ru/tekegram_catalog/

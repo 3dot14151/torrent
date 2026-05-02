@@ -1,3 +1,61 @@
+###  Публикация: 1324940   (418983) от 12.09.2019
+
+Good Charlotte - Generation Rx (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock, Post-Punk, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Generation Rx (2:07)
+ 02. Self Help (3:24)
+ 03. Shadowboxer (3:05)
+ 04. Actual Pain (3:44)(   Читать дальше...   )Жанр: Pop-Rock, Post-Punk, MetalcoreПродолжительность: 00:31:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6713493783FF08F914B8BACCF2FB51A78A9BE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1251227   (417609) от 01.10.2018
+
+Billy Idol - Vital Idol: Revitalized (2018) Remixes [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417609.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. White Wedding (CRAY Remix) (03:28)
+02. Dancing With Myself (RAC Remix) (03:33)
+03. Eyes Without A Face (Tropkillaz Remix) (03:50)
+04. Rebel Yell (The Crystal Method Remix) (05:23)(   Читать дальше...   )Жанр: Punk Rock, New WaveПродолжительность: 01:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363D6A875F89607B122FC4A6AD4C6732D027F772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065343   (416640) от 24.10.2016
 
 Nick Cave - HTV Music History (2001) Compilation [FLAC|Lossless|image + .cue] <Alternative Rock>
@@ -688,64 +746,6 @@ Oasis - 12 Albums, 2 Box Set (1994 - 2016) 50 CD, Japan [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8745DF5C3D9FE80493983AA15CD80D78A1FF64F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169419   (402468) от 28.09.2017
-
-Blood Youth - Beyond Repair (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hardcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Making Waves (3:12)
- 02. What I'm Running From (3:50)
- 03. Savanna (3:09)
- 04. Parasite (3:15)(   Читать дальше...   )Жанр: Alternative Rock, Hardcore, MetalcoreПродолжительность: 00:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51FEC0F975BA03568BDF56439B18D15C23827AF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171589   (395578) от 05.10.2017
-
-Marilyn Manson - Heaven Upside Down (2017) [FLAC|Lossless|tracks] <Alternative Rock, Heavy Metal, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Revelation #12  4:42
-02.  Tattooed In Reverse  4:24
-03.  We Know Where You F'cking Live  4:32
-04.  Say10  4:19(   Читать дальше...   )Жанр: Alternative Rock, Heavy Metal, IndustrialПродолжительность: 00:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84F00906135D6685F8394BBE5E137CE0312B4CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

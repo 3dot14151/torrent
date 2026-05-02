@@ -1,3 +1,206 @@
+###  Публикация: 319910   (475882) от 01.08.2022
+
+Запрещенный прием (расширенный) - Sucker Punch (2011) [MP3|320 kbps]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Official soundtrack:
+
+01. Emily Browning - Sweet Dreams (are made of this) (05:19)
+02. Björk feat. Skunk Anansie - Army Of Me (Sucker Punch Remix) (06:51)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8FE9868030C705BFDDEAA2CC2AEFEF2263DB58E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245066   (475788) от 04.09.2018
+
+VA - Diamond Best Mood Tenor Sax Best (2CD)(2006) [FLAC|Lossless|image + .cue] <Instrumental, Easy listening,Sax>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaoru Akimoto - Harlem Nocturne
+02. Kaoru Akimoto - Ronriwan
+03. Kaoru Akimoto - Mona Lisa
+04. Kaoru Akimoto - Stardust(   Читать дальше...   )Жанр: Instrumental, Easy listening,SaxПродолжительность: 01:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79C63406474FFE62FDFB41E6D3369C9387778BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1320106   (475071) от 16.08.2019
+
+Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475071.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aqua Opening
+2. Aqua Balalaika
+3. Aqua Icebergs
+4. Aqua Waves(   Читать дальше...   )Жанр: OST, Cello MetalПродолжительность: 00:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E50B71718450F629F2F195EF9C59E01C3B10FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1406562   (474910) от 03.09.2020
+
+Christopher Phillips - Piano Chill: Songs of Simon & Garfunkel (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. America (3:31)
+ 02. The Sound of Silence (3:24)
+ 03. Mrs. Robinson (3:29)
+ 04. El Condor Pasa (If I Could) (3:18)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:831D42D346AE54B989C22E09B3303BE2F1B3CCC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566577   (474325) от 02.08.2022
+
+Marina Raye and Olabayo - Drumming into Paradise (2000) [FLAC|Lossless|tracks + .cue] <Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gateway to Paradise
+02. Rim of the World
+03. The Circle Within
+04. Ejiogbe Revealed(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 01:00:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D7718C81B3B4FCD52A9F83CE65D9D008A460BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701625   (474277) от 19.09.2013
+
+Jean Michel Jarre - Equinoxe (1978) Remaster, 1983, Polydor [FLAC|Lossless|image + .cue] <Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474277.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Equinoxe Part 1 (2:26)
+02. Equinoxe Part 2 (5:00)
+03. Equinoxe Part 3 (5:10)
+04. Equinoxe Part 4 (6:59)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82163399DE3FD901D9F41769D0CC1E1518636DFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 701718   (473930) от 19.09.2013
+
+The BBC Concert Orchestra - Cinema Silver Screen Classic (2012) [FLAC|Lossless]<Instrumental, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Francis Lai: Love Story  [06:12]
+02. Georges Auric: Moulin Rouge  [02:28]
+03. Charles Chaplin: Limelight  [03:01]
+04. Max Steiner: A Summer Place  [03:03](   Читать дальше...   )Жанр: Instrumental, ScoreПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEFDED7411F4489E857DBF32CFEC538AE0346C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160669   (473914) от 25.08.2017
 
 The Romantic Strings Orchestra - The Greatest Love Of All (1998) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
@@ -551,217 +754,6 @@ Paco De Lucia - Flamenco Virtuoso (2008) [FLAC|Lossless]<Flamenco>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547992   (468859) от 17.09.2012
-
-Обитель зла: Возмездие / Resident Evil: Retribution (by Tomandandy) (2012) (tracks+.cue), [FLAC|Lossless]<Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hexes (ft. Chino Moreno) [03:00]
-02. Flying Through the Air [03:48]
-03. First Blood [01:12]
-04. Tokyo Revisited [02:05]
-05. Corridor [02:52]
-06. Planting [04:05]
-07. Axemen [02:47]
-08. Fall Back [01:51]
-09. Imprinted [00:57]
-10. Suburbia [02:50](   Читать дальше...   )Жанр: ScoreПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058563   (468832) от 01.10.2016
-
-Gomer Edwin Evans - Tibetan Chant Meditation (2016) [FLAC|Lossless|WEB-DL|tracks] <Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Meditation [00:12:15]
-02. Believe the Mental Power [00:13:20]
-03. On the Wings of Time [00:13:17]
-04. Reincarnation [00:08:22](   Читать дальше...   )Жанр: MeditationПродолжительность: 01:03:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA244E70745E24651D5FA118BC5C81A8DC8AC3E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 92549   (468156) от 06.09.2020
-
-VA - When Lotus is opening (2005) [FLAC|Lossless|tracks] <DreamMusic>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вы устали, и ничего не радует?
-Может быть, это стресс отнимает у Вас силы и лишает возможности радоваться жизни?
-Остановитесь на мгновение. Расположитесь поудобнее, включив этот диск. Вы обретете состояние равновесия и душевного покоя, почувствуете, как легкость и тепло разливаются по Вашему телу. Мир вокруг наполнится красками и ароматами экзотических цветов. Придут (   Читать дальше...   )01. Kowa - Rising Sun (4:39)
-02. Magec - Rainy Day (8:14)
-03. Arno - From a Distance (5:20)
-04. Mind Over Matter - The Lotus is opening (3:52)(   Читать дальше...   )Жанр: DreamMusicПродолжительность: 00:58:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E61CC34F48863399C4F75C7679C98F7B0D7E5EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 377804   (468155) от 06.09.2020
-
-Richard Clayderman - Plays The Music Of ABBA (2010) Compilation [FLAC|Lossless|tracks + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mamma Mia (3:15)
-02. Waterloo (3:01)
-03. Dancing Queen (3:46)
-04. The Winner Takes It All (3:04)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E4F884CFC74CB375B2E758F22EEF6B618E529C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245978   (467787) от 08.09.2018
-
-VA - Mystera V (2000) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enigma - Gravity Of Love
-02. Highland - Bella Stella (Non Rap Radio Mix)
-03. Clannad - Ri Na Cruinne
-04. Michael Flatley's Lord Of The Dance - The Lord Of The Dance(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:20:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D1A44E6C89AA911665408F5EF23B53F58B63BB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245937   (467670) от 08.09.2018
-
-VA - Mystera (1998) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morana - Mystera
-02. Era - Ameno
-03. Enigma - Sadness Pt. 1
-04. Gregorian - So Sad...(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A888C41B88618A382A2DD3197629A1EB0957CACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245999   (467669) от 08.09.2018
-
-VA - Mystera IX (2002) [FLAC|Lossless|tracks + .cue] <NewAge>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Era - Divano
-02. Vangelis - Light And Shadow
-03. Highland - Quo Vadis
-04. Oliver Shanti & Friends - Journey To Shambala(   Читать дальше...   )Жанр: NewAgeПродолжительность: 01:16:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04FEDF1A66922FB5B154A9CDF0EC0020242E9555
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 992102   (902583) от 01.03.2016
+
+Tony Carey  - Retrospective: 1982-1999 (2000) [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classic Rock, Hard RockПродолжительность: 01:10:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F0F4515A6C18837C7376A720798790F207C3BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 991947   (902435) от 01.03.2016
+
+Gorky Park ‎ - The Best (1999) Compilation [FLAC|Lossless|image + .cue] <Rock , Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Stare 	05:02
+02. 	I'm Going Down 	04:33
+03. 	My Generation 	04:50
+04. 	Don't Make Me Stay 	05:40(   Читать дальше...   )Жанр: Rock , Hard RockПродолжительность: 01:09:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843AFDE62EA2EDB82025305ED122689BB0734428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100383   (899860) от 04.02.2017
+
+FM - Indiscreet 30 (2016) Reissue [FLAC|Lossless|image + .cue] <AOR, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  That Girl  (04:32) 
+02|  Other Side Of Midnight  (04:09) 
+03|  Love Lies Dying  (05:23) 
+04|  I Belong To The Night  (04:31) (   Читать дальше...   )Жанр: AOR, Arena RockПродолжительность: 01:17:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E178B71066253806108BD05A39E25B578447D54F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100398   (899548) от 04.02.2017
+
+Dario Mollo's Crossbones - Rock The Cradle (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Red  (04:36) 
+02|  Take Me High  (04:09) 
+03|  Navigation  (04:09) 
+04|  Rock The Cradle  (04:30) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6EABBC3AFF7D98F3D1F8F9C3BA2E2FD01BF4767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100965   (897535) от 05.02.2017
 
 Black Sabbath - The Ultimate Collection (2017) 2CD Compilation remastered [FLAC|Lossless|tracks] <Hard Rock, Heavy Metal>
@@ -622,120 +735,6 @@ Jim Crean - Insatiable (2016) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EFE657D1D994492958E1E13687A73D0A3EA1C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103149   (887701) от 11.02.2017
-
-Thunder - Wonder Days (2015) Limited Deluxe Edition, 2CD [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предтечей "Thunder" был проект "Nuthing Fancy", появившийся в Лондоне в конце 70-х, в котором играли вокалист Дэнни Боус, гитарист Люк Морли, басист Мак Маккензи и ударник Крис Хасси. Эта формация выпустила один сингл и в начале 80-х сменила вывеску на "Terraplane". Под новым названием коллектив оказался более плодовитым и выпустил ряд (   Читать дальше...   )CD 1 - Wonder Days
-CD 2 - Live At Waken 2013Жанр: Melodic Hard RockПродолжительность: 01:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3F071BE9DEB3979625FA78B1B0494C14C2E01A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103161   (887643) от 11.02.2017
-
-Jack Russell’s Great White - He Saw it Comin' (2017) [FLAC|lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sign Of The Times (03:37)
-02. She Moves Me (03:34)
-03. Crazy (03:40)
-04. Love Don't Live Here (03:38)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D05706E5054911FF7D2D616036394B99DCBE5972
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372040   (887085) от 02.04.2020
-
-Hollywood Monsters - 3 Albums (2014-2019) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_887085.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hollywood Monsters является детищем французского эмигранта, вокалиста, гитариста и композитора Стефана «Steph» Хонде, живущего в Калифорнии с 2012 года. Впервые музыкант обратил на себя внимание в составе Mamooth, где получил репутацию виртуозного гитариста. В 2004 году он присоединился к французской рок-группе Café Bertrand, которые нередко играли на многотысячных (   Читать дальше...   )--------------------------
-
-01. A Scream Looking For A Mouth (2:51)
-02. Speak Of The Evil (3:52)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'Heavy |Продолжительность: 02:20:19 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFDABA8D2D15FEE3AF03D0527D6ACFE1F5F7F334
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995077   (886318) от 10.03.2016
-
-Guns N’ Roses - Live Era '87 - '93 (1999) Japan [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Out ta Get Me
-02 Pretty Tied Up
-03 Yesterdays
-04 Move to the City(   Читать дальше...   )Жанр: Hard RockПродолжительность: 02:24:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2848A21FD56B45D0873DBE407CE6064F4A7D508F
 ```
 
 https://mybot314.ru/tekegram_catalog/

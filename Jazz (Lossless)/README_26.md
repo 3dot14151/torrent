@@ -1,3 +1,61 @@
+###  Публикация: 976722   (968836) от 18.01.2016
+
+George Cables - In Good Company (2015) HighNote[FLAC|tracks+.cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.After The Morning [08:40]
+ 02.Mr. Anonymouse [05:04]
+ 03.Naima's Love Song [06:52]
+ 04.It Don't Mean A Thing (If It Ain't Got That Swing) [04:37](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D297E81B87B1729A02C699A142528A1E664BE54C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1358543   (968825) от 08.02.2020
+
+Ivan Paduart - Alone (2005) Alone Blue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So [4:20]
+02. Renaissance [2:34]
+03. Arythmie [1:49]
+04. Spring in Your Mind [1:26](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EDF17AA0241D189D633EFDD74C9E5F507AA921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976673   (968814) от 18.01.2016
 
 Даниил Крамер (Daniel Kramer) - Вальс для прелестной жены (Waltz For A Lovely Wife) (2000) Ermatell Records[FLAC|tracks+.cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
@@ -687,64 +745,6 @@ Ariane Nielsen - It's About Time (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D3F9A2C811FFCAAE899909B657BCF0294B346E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978432   (963719) от 23.01.2016
-
-Anandi - Anandi (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unchained Melody
-02. Night & Day
-03. Perennial
-04. Old Devil Moon(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40E1789C43AA0675E026511355EB831AC03DFF59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978314   (963717) от 23.01.2016
-
-Wes Montgomery & The Billy Taylor Trio (1963/1965) 2005, Lonehill[FLAC|tracks+.cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.There Will Never Be Another You [03:07]
- 02.The More I See You [02:09]
- 03.A Night For Swinging [02:25]
- 04.A Bientot [02:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:19:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2401C91F9758FE30FAB2654079B436753388E37E
 ```
 
 https://mybot314.ru/tekegram_catalog/

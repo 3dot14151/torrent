@@ -1,3 +1,32 @@
+###  Публикация: 1206959   (781318) от 16.02.2018
+
+Abney Park (Эбни Парк) - The Death Of Tragedy (2005) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781318.jpg" />
+</div>
+
+
+###  Подробнее
+
+Abney Park (Эбни Парк) - индастриал-группа, основана в Сиэттле, США Робертом Брауном в 1997. В своем творчестве использует элементы индастриала, электроники и народной музыки разных стран мира. В 1998 они выпустили свой первый альбом Abney Park, и в 1999 Return to the Fire. Трэки с этих двух альбомов, и несколько новых сформировали третий релиз, названный Cemetery (   Читать дальше...   )01. Stigmata Martyr 5:05
+02. The Wrong Side 3:31
+03. Dear Ophelia 4:51
+04. Witch Cult 0:25(   Читать дальше...   )Жанр: Folk Rock, Alternative RockПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CA49C1DD22F6AFC12A5F72E77C50306F05E9550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207034   (781314) от 16.02.2018
 
 Abney Park (Эбни Парк) - The Circus At The End Of The World (2013) Not On Label [MP3|320 Kbps] <Folk Rock, Alternative Rock>
@@ -724,35 +753,6 @@ The Temperance Movement - британская(вернее Шотланская
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10AE784B2D53FFFC7ED7007477AF38DA7137C8B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1013476   (777632) от 04.05.2016
-
-Peter Frampton - Acoustic Classics (2016) [MP3|320 кб/с] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777632.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fig Tree Bay [03:49]
-2. Wind of Change [03:05]
-3. All I Want to Be (Is by Your Side) [04:33]
-4. Show Me the Way [04:05](   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:47:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBC2BFEDC88FB3F54D9BFE047947D7A066C0F2D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1338323   (270663) от 14.11.2019
+
+VA - Markus Schulz - We Are the Light (the Remixes) (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - Flight Of The Phoenix (Monoverse Extended Remix)
+02. Markus Schulz - Heaven (Lostly Extended Remix)
+03. Markus Schulz & JES - Calling For Love (Michael Gin Extended Remix)
+04. Markus Schulz & Emma Hewitt - Safe From Harm (Kawooya Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:02:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1016DCDC2B6311621148A8FCEA79AF7BDF52F571
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189636   (270481) от 06.12.2017
+
+VA - Future Sound Of Egypt: Best Of (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aly & Fila – Beyond The Lights (Original Mix)
+02. Dan Stone & Ferry Tayle – Vona (Original Mix)
+03. Chris Schweizer & James Dymond – Spectrum (Original Mix)
+04. The Thrillseekers – In These Arms (The Thrillseekers pres. Hydra Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E06C3C5BB3B7817FCB98148D065EF9A06FB6FFB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266630   (270079) от 02.12.2018
+
+VA - Progressive Trance Vol. 5 (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Adip Kiyoi & Susie Ledge - Wild Rose (Extended Mix)
+02.FEEL & Broning - Warmup (Extended Mix)
+03.Ruslan Radriges & Lucid Blue - Over & Out (Extended Mix)
+04.Millennial Vs Bigtopo & Omar Diaz - Bassa Marea (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:18:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34924ABA0170887B2F5E1E6781A830D07807A607
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266647   (270045) от 02.12.2018
+
+VA - The VERSE Uplifting Trance Journey (Mixed by Philip Langham) (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melodic Culture & Magdalen Silvestra – Light Is Life (Original Mix)
+02. Hoyaa – Polaris (Original Mix)
+03. Arman Bas & Melodic Culture – De Profundis (The Sixth Sense Remix)
+04. InnerSync – Above The World (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 05:22:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD5B0F90602F72002FFF0CE90ED6F60DF60477C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338570   (269826) от 15.11.2019
+
+VA - Markus Schulz - Global DJ Broadcast - Top 20 November (2019) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & Lachi - Far (Fisherman Extended Festival Mix)
+02. Richard Durand & Christina Novelli - Save You (Extended Mix)
+03. Cosmic Gate - FAV (Patrick White Extended Remix)
+04. Tinlicker & Run Rivers - Lost (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BAE4D99BB41E1361FD935CA66A43D02AD0627ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189796   (269621) от 07.12.2017
 
 VA - Amsterdam. The End Of Year Album (Mixed by Three Drives) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -600,151 +745,6 @@ VA - Black Hole Trance Music (11-19) (2019) [MP3|320 Kbps] <Trance, UpliftingTra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C450259941CCD4F376A9A618B43E94F237618A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340371   (263933) от 23.11.2019
-
-VA - A State Of Trance: Future Favorite Best Of 2019 (2019) Extended Version [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Turn It Up (Extended Mix) 6:45
-02. Gareth Emery & Emma Hewitt - Take Everything (STANDERWICK Extended Remix) 5:17
-03. Ferry Corsten & Gouryella - Surga (Extended Mix) 8:03
-04. Above & Beyond vs. Armin van Buuren - Show Me Love (Extended Mix) 6:40(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Progressive Trance, Vocal TranceПродолжительность: 02:33:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C914506CD1B099094C706391F5386E92E2B08723
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191774   (263895) от 15.12.2017
-
-VA - The Best Of Suanda Voice (Mixed by Dennis Graft) (2017) [MP3|320 Kbps] <Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shawn Davis & Roman Messer  -  Tonight (Original Mix)  3:40
-02.  Vadim Spark & Cari  -  Beat Of My Heart (Original Mix)  3:39
-03.  Maria Milewska & Dennis Graft  -  Until (Original Mix)  2:42
-04.  Jan Johnston & Feel  -  Skysearch (Ruslan Radriges Radio Edit)  3:05(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 02:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0765A679D5A9919C66A47C3F09201CA9A8D86D18
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191973   (263842) от 15.12.2017
-
-Gabriel & Dresden - The Only Road (2017) [MP3|320 Kbps] <Trance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Gabriel And Dresden Ft. Sub Teal - Only Road
-02 Gabriel And Dresden - Free Your Mind
-03 Gabriel And Dresden Ft. Sub Teal - White Walls
-04 Gabriel And Dresden Ft. Sub Teal - This Love Kills Me(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 02:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64E78624DE1478DA0C53E0A99E43A11B1E8F0D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191833   (263537) от 16.12.2017
-
-VA - Inspectrum Recordings Best Of (Mixed by DJ Chris) (2017) [MP3|320 Kbps] <Uplifting Trance, Orchestral Trance, Emotional>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  DJ Chris  -  Inspectrum (Intro Mix)  2:11
-02.  Carl Daylim  -  Remember My Name (Original Mix)  8:44
-03.  O.B.M Notion  -  Special Reflections (Original Mix)  6:51
-04.  Junior & Ash K feat. Karim Farouk  -  Destiny (Original Mix)  8:07(   Читать дальше...   )Жанр: Uplifting Trance, Orchestral Trance, EmotionalПродолжительность: 03:05:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC87D3252BC7303FB1D637F8F85A70C735518AF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192220   (263529) от 16.12.2017
-
-VA - Best of Trance (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The-Thirst For-Flight - Seven Seconds of Happiness
-02. 2D project - Gladiator
-03. James Fiby feat. Anna Miracles - History Love (Vocal Mix)
-04. DJ Grand Defence - First Contact(   Читать дальше...   )Жанр: TranceПродолжительность: 02:43:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3833623630A0F2039C7F2482993642C13A1B54A
 ```
 
 https://mybot314.ru/tekegram_catalog/

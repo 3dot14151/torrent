@@ -1,3 +1,200 @@
+###  Публикация: 992428   (900906) от 02.03.2016
+
+Ryuichi Sakamoto, Alva Noto & Bryce Dessner - The Revenant / Выживший (2015) [MP3|128-256 кб/с] <ost, score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alva Noto & Bryce Dessner - Hawk Punished (02:15)
+02. Bryce Dessner - Imagining Buffalo (02:41)
+03. Bryce Dessner - Looking for Glass (02:52)
+04. Ryuichi Sakamoto - Arriving at Fort Kiowa (01:23)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:11:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9487F1838B0112A77ED2C62D6129BFD6B77162C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100486   (899532) от 04.02.2017
+
+Klaus Back & Tini Beier - Enigma Of Faith (1995) [MP3|320 Kbps] <New Age, Enigmatic, Gregorianic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Works Of Charity (11:30)
+02. Love And Faith (9:25)
+03. Faith Is Bliss (9:03)
+04. Faith-Healing (8:49)(   Читать дальше...   )Жанр: New Age, Enigmatic, GregorianicПродолжительность: 00:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20F17C56DBA6832868860B3DCDD866B4B24D7392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284677   (899486) от 25.03.2020
+
+Звуки природы - Океанский прибой (1997) [FLAC|Lossless|image] <Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899486.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Океанский прибой (01:03:07)Жанр: RelaxПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F0F1B3C0B59C7678DD024E6F1DC8CD72E55BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992788   (899214) от 03.03.2016
+
+Spirit Of Africa 2 - The Unforgettable Musical Journey Continues (2008) [MP3|320 кб/с] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899214.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tribal Celebration (2:48)
+02. Southern Lullaby (6:23)
+03. Call To The Dark Spirit (7:28)
+04. Traveller's Song (6:37)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 01:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:485039A198B3B42894C630CA2142D296B6A2AE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 992784   (899165) от 03.03.2016
+
+Spirit Of Africa - Sacred Verses And Tribal Chants Of Native Africa (1996) [MP3|320 кб/с] <New Age, Enigmatic, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dawn On The Plain (2:46)
+02. Song Of The Wild (Uma Uma) (5:15)
+03. Sacred Chant (Sinarah Pt. 1) (4:17)
+04. Sacred Chant (Sinarah Pt. 2) (3:21)(   Читать дальше...   )Жанр: New Age, Enigmatic, WorldПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA65FACBA09C2CBC47A1450DA4C7EFB01F4D1338
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 183008   (898667) от 14.03.2010
+
+VA - Give Ireland Back To The Irish (10 CD) (2000) [MP3|320 kbps]<Irish folk, traditional>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Irish folk, traditionalПродолжительность: 07:36:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370048   (898533) от 26.03.2020
+
+Maurizio Filardo - Perfetti sconosciuti (Colonna sonora originale del film) (2016) [FLAC|Lossless|WEB-DL|tracks] <Ambient, Jazz>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maurizio Filardo - Non ci conosciamo (6:30)
+02. Maurizio Filardo - Arrivo (1:27)
+03. Maurizio Filardo - Sofia (2:07)
+04. Maurizio Filardo - Non ci conosciamo (Bianca version) (3:07)(   Читать дальше...   )Жанр: Ambient, JazzПродолжительность: 00:26:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90EE06A23E405EEFDC5CAACC0DBF1ACAFAD595C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370180   (898335) от 26.03.2020
 
 Влад Нежный - Стрём-частушки (2020) [MP3|320 Kbps] <Частушки>
@@ -539,214 +736,6 @@ Greg Maroney - Quiet Piano Improvisations, Vol. 2 (2017) [MP3|320 Kbps] <New Age
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E69C6D0BF856CB53F48CA4F29B293DDEE19BDAE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101989   (892922) от 08.02.2017
-
-Chronotope Project - Passages (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <New-Age, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892922.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Churning the Ether (10:30)
-2. The Water of Life (09:34)
-3. Solaris (11:25)
-4. Moontide (08:40)(   Читать дальше...   )Жанр: New-Age, Electronic, AmbientПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBCE8F70C7A64C10AF975E9F18E72FDFED67BB63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 184230   (892528) от 18.03.2010
-
-Русско-Кельтский оркестр Reelroadъ - Дискография [MP3|320 kbps]<Celtic-Slavic Folk/Post-Folk/Instrumental]
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. А в нашем садочке (4:36)
-02. Растоплялась парна баенка (4:04)
-03. Верба (4:39)
-04. На дворе дождь! (2:28)
-05. Ты заря (1:55)
-06. Гуляю, гуляю (3:33)
-07. А на горе мак (4:58)
-08. Павлин (5:39)
-09. Тюря (3:25)
-10. Лён (3:41)(   Читать дальше...)Жанр: Celtic-Slavic Folk/Post-Folk/InstrumentalФормат: MP3
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371159   (892019) от 30.03.2020
-
-Alexander Ryabtsev (Александр Рябцев) - Europe: Space Theme Vol. 12 (2007) [FLAC|Lossless|tracks + .cue] <Instrumental, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892019.jpg" />
-</div>
-
-
-###  Подробнее
-
-Александр Иванович Рябцев родился 12 марта 1963 году в семье военнослужащего. Окончил радиотехнический факультет Новороссийского высшего инженерного морского училища. Начинал работать на судах загранплавания Новороссийского морского пароходства начальником радиостанции. В 1998 году заочно окончил судоводительский факультет Новороссийской государственной морской академии (   Читать дальше...   )01. Make A Wish (4:50)
-02. In Harmony (3:32)
-03. On The Crest Of A Wave (4:06)
-04. Between The Past And The Future (4:48)(   Читать дальше...   )Жанр: Instrumental, AmbientПродолжительность: 01:09:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93CFB1D28204DB0152A3B1565C50E32ED6273B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 776937   (892010) от 08.02.2017
-
-Ennio Morricone - Collected (2014) 3CD Box Set [MP3|320 кб/с]<Soundtrack, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892010.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эннио Морриконе родился 10 ноября 1928 года в семье профессионального джазового трубача Марио Морриконе и домохозяйки Либеры Ридольфи, он был старшим из 5 детей.01. The Fascist (Theme) (From the movie 'The Fascist') (2:04)
-02. A Fistful Of Dollars (Theme) (From the movie 'A Fistful Of Dollars') (1:48)
-03. Bullets Don't Argue (Theme) (From the movie 'Bullets Don't Argue') (2:34)
-04. A Gun For Ringo (Theme) (From the movie 'A Gun For Ringo') (2:19)(   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 03:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8738D6B1C3F3229CC0016BCD762BF04CB7451A20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371009   (891872) от 30.03.2020
-
-Keiichi Okabe - NieR Orchestral Arrangement Album - Addendum (2020) Soundtrack /2CD/Limited Edition [FLAC|Lossless|tracks + .cue] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alien Manifestation (J'Nique Nicole Vocals)
-02. Peaceful Sleep
-03. Vague Hope (Emi Evans Vocals)Жанр: ScoreПродолжительность: 00:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D029FCD30A538693A768A904B3D6BAD71B747955
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994266   (891618) от 07.03.2016
-
-Golana - Feather On The Wind (2000) [FLAC|Lossless|image + .cue] <New Age, International>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891618.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Closer To You  04:54
-02. All Good Medicine  06:03
-03. Allaluia  03:50
-04. Mojava Morning  03:52(   Читать дальше...   )Жанр: New Age, International, InstrumentalПродолжительность: 00:53:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A64B838E7C3A7DDDCE6C8CC46CF8196B0A5FB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 994398   (891606) от 07.03.2016
-
-Richard Laurence - A Busy Couple of Years (2016) [MP3|320 кб/с] <Classical, New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_891606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Life Changes Key
-02. Final Words from a Best Man
-03. Song for Grey Skies
-04. Rainbow Moonstone(   Читать дальше...   )Жанр: Classical, New Age, PianoПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F4D6AA5B019071EEEAC418C9C5240115F75F3E9
 ```
 
 https://mybot314.ru/tekegram_catalog/

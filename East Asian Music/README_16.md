@@ -1,3 +1,32 @@
+###  Публикация: 1084164   (272149) от 17.12.2016
+
+Sojiro - Forest Of The Ocarina (2016) 2 CD [MP3|320 Kbps] <New Age, Ethnic Fusion>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Morning of The Small Birds  (03:01) 
+02|  Back In The Woods  (05:46) 
+03|  Echoes of The Forest  (01:53) 
+04|  An Echo Become The Wind, And Then  (04:19) (   Читать дальше...   )Жанр: New Age, Ethnic FusionПродолжительность: 01:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57750EFD3BDC7357E3221A57062185020CE069DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189009   (272054) от 04.12.2017
 
 VA - Animelo Summer Live 2005 -THE BRIDGE- (2005) [MP3|112 Kbps] <JPop, JRock, Anison>
@@ -788,34 +817,6 @@ Tsugumi - 3 альбома (2012-2013) [FLAC|Lossless] <Touhou, Vocal, Doujin On
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:40AE14A257B87D88A6C432F70C1C42E4B6C034F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 735061   (227453) от 19.12.2013
-
-Stygian Riverside - 6 альбомов (2008-2011) [FLAC|Lossless] <Touhou, Vocal, Instrumental, Doujin Ongaku, J-Metal>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227453.jpg" />
-</div>
-
-
-###  Подробнее
-
-[03:53] 01. 黒江 - Sink In Stygian
-[04:41] 02. MAX BEAT - A Dream Within A Dream
-[03:52] 03. MAX BEAT - Sink In Stygian(Inst.Ver)Жанр: Touhou, Vocal, Instrumental, Doujin Ongaku, J-MetalПродолжительность: 00:00:12:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34B64710E3C1087DFCADA5B8E92237A616BE2122
 ```
 
 https://mybot314.ru/tekegram_catalog/

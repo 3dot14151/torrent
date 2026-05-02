@@ -1,3 +1,61 @@
+###  Публикация: 1488399   (1002060) от 11.08.2021
+
+VA - Electro Voice: Mixtape Techno (2021) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002060.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Perdu - Dystopia feat. Tjade
+002. Meyer Bergy - Retrograde
+003. Room 99 - Breathe
+004. Boglin - Sea Kelp(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 11:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84AFE0BDAA66B90E045C9B560BE7855F655A359
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1488407   (1002054) от 11.08.2021
+
+VA - Jungle Cruise: Bass Sounds Music (2021) [MP3|320 Kbps] <Jungle, Drum & Bass, Electro Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002054.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dreaman - Gabriel
+002. Re8ma - My Mind
+003. The Brainkiller - To Night
+004. Ly Da Buddah - Lemon Punch(   Читать дальше...   )Жанр: Jungle, Drum & Bass, Electro BassПродолжительность: 09:13:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D6D3C2E97BC79CBF2FCFA7187309E022485A05A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488411   (1002046) от 11.08.2021
 
 VA - The Hypnotic Nights (2021) [MP3|320 Kbps] <Relax, Chillout, Lounge>
@@ -734,76 +792,6 @@ VA - Voices in my Head Volume 53 (2013) [MP3|320 кб/с]<Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE37CCDC3F13D641E5C850120ABBAEAE8217C897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 602050   (997498) от 13.01.2013
-
-VA - Dubstep Collection (2013) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. J.O.B & MadV & 12th Planet ft. Anjulie - Warrior
-02. Kaskade ft. Mindy Gledhill - Eyes (Alvin Risk Remix)
-03. Katy Perry - Wide Awake (Xilent Remix)
-04. Maria Maria - Ты Обо Мне Не Вспоминай (Dj Bengalsky Popstep Remix)
-05. Nero - Must Be The Feeling (Kill The Noise Remix)
-06. Sub Focus ft. Kenzie May - Falling Down (xKore Remix)
-07. Алина Артц - Со Мной По-другому Нельзя (Stilet Remix)
-08. Sub Focus ft. Kenzie May - Falling Down (Original Mix)
-09. Nero - Promises (Skrillex & Nero Remix)
-10. Т.А.Т.У. - Нас Не Догонят (LoadedFist Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:05:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8D41D00B8E20A2221BC43B7A8810196199512B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 603648   (995322) от 21.01.2013
-
-VA - Vocal Passion Vol.51 (2012) [MP3|320 kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serge Devant feat. Emma Hewitt - Take Me With You (05:51)
-02. Omnia & IRA - The Fusion (Original Mix) (06:08)
-03. Ronski Speed, Stoneface & Terminal - I Didn`t Know I Was Looking For Love (Club Mix) (05:47)
-04. Susana & Rex Mundi - All Time Low (Original Mix) (08:03)
-05. The Attic feat. Oh Laura - Release Me (Kevin Sunray Remix) (07:20)
-06. Tritonal feat. Jeza - Can't Keep It In (Tritonal Club Mix) (06:40)
-07. Will Holland feat. Jeza - Every Heartbeat (Beat Service Intro Mix) (06:08)
-08. Protoculture - Ode To The Ocean (Original Mix) (07:54)
-09. W&W feat. Bree - Nowhere To Go (Shogun Remix) (06:36)
-10. Roger Shah feat. Inger Hansen - Dance With Me (Extended Mix) (06:48)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DCB5DDE4D478C67BA848996977B70A7B30BE9A5
 ```
 
 https://mybot314.ru/tekegram_catalog/

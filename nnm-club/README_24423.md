@@ -1,65 +1,31 @@
-###  Публикация: 465747   (96203) от 10.03.2012
+###  Публикация: 479787   (99012) от 08.04.2012
 
-Мясо. История всероссийского обмана (2009) DVDRip
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если верить статистике, каждый житель России за год съедает 37 килограммов мясных продуктов.
-
-Яичница с докторской колбасой - на завтрак, бутерброд с ветчиной в полдник, мясной борщ и котлеты на обед, аппетитный бифштекс или куриная грудка - на ужин.
-
-На почетном месте в центре праздничного стола всегда стоит тарелочка с "нарезочкой": копченая колбаса, грудинка, карбонат, салями. И конечно, какой пикник без шашлыка?
-
-Мясо - часть нашего национального характера, и даже схема разделки коровьей туши чем-то напоминает карту родной страны.
-
-Специально для НТВ научные лаборатории в двух столицах провели масштабное исследование. Под микроскоп разом попали несколько десятков сортов колбасы и пельменей, почти сотня видов тушенки. Истина оказалась весьма любопытной...Жанр: Документальный, ТелепередачаПродолжительность: 01:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0542847A03D490D5B54592E8058DF274590FB46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465672   (96202) от 10.03.2012
-
-VA - A State Of Trance 2012 (Mixed by Armin van Buuren) (01.03.2012) [FLAC|Lossless]<Trance>
+Twin Vi - Крестовый Поход (2012) [MP3|320 кб/с]<Rap>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96202.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1: On The Beach (01:13:46)
-
- 01. Omnia & IRA – The Fusion (Armin van Buuren’s Intro Edit)
- 02. VillaNaranjos – Granadella
- 03. Sunlounger feat. Zara Taylor – Try To Be Love (Roger Shah Naughty Love Mix)
- 04. The Blizzard – Piercing The Fog
- 05. Audien – Keep This Memory
- 06. Alexander Popov – When The Sun (Eximinds Remix)
- 07. Nash & Pepper – Ushuaia Memories
- 08. Mike Foyle & ReFeel – Universal Language(   Читать дальше...   )01.03.2012Жанр: TranceПродолжительность: 03:31:21
+01. Интро (Ваня Рейс prod.)
+02. Кто не спрятался, я не виноват (butwho prod.)
+03. Потерянное поколение (2AR prod.)
+04. Выжить любой ценой (butwho prod.)
+05. Чудесный День (Скит) (Ваня Рейс prod.)
+06. Жизнь Злых Людей (ft. Franky Freak, Тони Раут) (Ваня Рейс prod.)
+07. По ту сторону (Ваня Рейс prod.)
+08. Две петли (Ваня Рейс prod.)
+09. На желтой ветке (ft. Гарри Топор) (Talibal prod.)
+10. Модель 1990 (qq prod.)(   Читать дальше...   )2012Жанр: RapПродолжительность: 00:28:44
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:FA5E8256671E8378B1FEBFC4EEE4B8787653E9F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -67,32 +33,62 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465119   (96201) от 10.03.2012
+###  Публикация: 479729   (99011) от 08.04.2012
 
-Ashley Wallbridge - The Inner Me (2012) [MP3|320 кб/с]<Trance>
+[Wallpapers] Desktop Wallpapers №9
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99011.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №9
+Название: Desktop Wallpapers №9
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2733х1581
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F50194C3120FB95130FE788A8CE05288810507B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479816   (99009) от 08.04.2012
+
+Smoke DZA - Cuz I Felt Like It Ep (2012) [MP3|320 кб/с]<Rap>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96201.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ashley Wallbridge - The Inner Me (2012)
-Год: 2012
-Жанр: Trance
-Продолжительность: 01:09:06Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:
-1.Ashley Wallbridge - Emotions
- 2.Ashley Wallbridge feat Elleah - These Walls(   Читать дальше...   )
+1. 2 AM Monday Night
+2. Hollywood Smoke Hogan
+3. E.T s Finger Feat Jae Millz
+4. Spottieottiedopajetshit
+5. Less Smoking More Rapping
+6. Two One Two
+7. Imaginary Member
+8. Cuz I Felt Like It Feat Den102012Жанр: Rap, Hip-HopПродолжительность: 00:16:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0FFD516CEC172CC1FAFDF5EABF4E7C96CF282DA1
+magnet:?xt=urn:btih:EC02FF549B24F19148DFC39E8281D6AF94ED98EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -100,25 +96,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465572   (96200) от 10.03.2012
+###  Публикация: 479946   (99007) от 08.04.2012
 
-Вестникъ Моды. Журналъ моды, хозяйства и литературы [1906] [PDF]
+VA - Trance Eve Volume 25 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96200.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99007.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ред.-изд. Николай Павлович Аловерт (1847—1927) — русский журналист, литератор писал: Выпуская въ свѣтъ первый номеръ «Вѣстника моды», я нахожу необходимымъ сказать нѣсколько словъ по поводу причинъ, вызвавшихъ появленіе этого новаго моднаго журнала. Вслѣдствіе историческихъ причинъ, о которыхъ здѣсь не мѣсто говорить, Франція во главѣ съ Парижемъ сделалась законодательницей моды не только для Европы, но и для всего міра. куда проникала европейская цивилизація. Мы, русскіе, конечно, не избѣгли общей участи, и было бы естественнымъ, чтобы мы знакомились съ французской модой непосредственно, т. е. получали бы ее, такъ сказать, прямо изъ Парижа. Случилось, однако, это не такъ. Всѣ существовавшіе и существующiе русскiе модные журналы, эти «вѣстники моды», есть не больше, какъ нѣмецкіе модные журналы (Modenwelt, Bazar) съ русскимъ, текстомъ, а такъ какъ нѣмцы заимствуютъ моду изъ того же Парижа, видоизмѣняя ее по своему національному вкусу (   Читать дальше...   )1906Жанр: Раритеты, журнал, модаФормат: PDF
+1. Luke Bond feat. Emel - Amaze (Original Mix) (7:32)
+2. John Askew - Bastard (Original Mix) (7:56)
+3. Sean Tyas feat. David Berkeley - Believe (Original Mix) (8:11)
+4. Super8 - Cre8 (Mike Saint-Jules Remix) (7:51)
+5. Sarah Rogers - Do It Again (Gianni Kosta Extended Mix) (4:25)
+6. Sander Van Doorn - Drink To Get Drunk (Extended Version) (5:59)
+7. JIR3H-3 - Fly (Original Mix) (8:01)
+8. Solid Stone feat. Hanna Finsen - Helpless (Original Mix) (7:18)
+9. Roger Shah & Sian Kosheen - Hide U (Pumpin' Island Mix) (6:00)
+10. Ilya Bezlepkin feat. Monique - Hold On (Original Mix) (6:30)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:14:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3EA33C794A7D2C999D04F8A112D169EF4C16DDA5
+magnet:?xt=urn:btih:F8807A4D60334DCA3804113C19084B4B482123BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -126,60 +131,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465480   (96198) от 10.03.2012
+###  Публикация: 479693   (99005) от 08.04.2012
 
-Журнал | Школа кулинара №5 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рецепты, присланные в редакцию читателями, готовятся профессиональными шеф-поварами. Подробные фотоиллюстрации всех этапов приготовления. Рецепты сопровождают практические советы, экскурс в историю продуктов и другая полезная информация.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D560C0E2C0014C9660F81420EE93B69132D36CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465647   (96196) от 10.03.2012
-
-Lord of Speed vs DJ Kaos - Split (2012) [MP3|320 кб/с]<Speedcore, Noise>
+VA - Paul Oakenfold DJ Box - April (2012) (2012) [MP3|320 кб/с]<Trance, Progressive, Uplifting>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99005.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Lord Of Sp33d – Fock Off You Twat (2012 Refix)  (2:38)
-2. DJ Kaos – Chainsaw	  (5:41)
-3. Lord Of Sp33d – Youtube Poop (2011 Refix)  (3:09)
-4. DJ Kaos – The Only Stars I Know Are In The Sky VIP  (3:10)
-5. Lord Of Sp33d – Attackieren (2012 Refix)  (2:20)
-6. DJ Kaos – Pissing In Your Seething Stigmata Wounds VIP (3:13)
-7. Lord Of Sp33d – Dit Liedje Is Nee (2012 Refix)  (2:52)
-8. DJ Kaos – Jugular  (5:17)
-9. Lord Of Sp33d – Gentle Noise (2012 Refix)  (3:16)
-10. DJ Kaos – Heroin Activist VIP 5  (3:17)(   Читать дальше...   )2012Жанр: Speedcore, NoiseПродолжительность: 00:40:34
+1. Oakenfold, Paul/Varios - Glow In The Dark (original mix)[07:37]
+2. Senadee - Life Support Machine (16 Bit Lolitas remix)[08:35]
+3. Cold Blue - Coconut (radio edit)[03:40]
+4. Paul Oakenfold - Pop Star (feat Robert Vadney - Eximinds remix)[06:54]
+5. Remy Le Duc, The EC Twins, Zen Freeman - In Motion (feat Shakeh - original mix)[06:29]
+6. Magnus - Hypnotic (original mix) [08:09]
+7. AJ Myst & Red Ant - Dune (Too Dusty remix)[05:19]
+8. Way Out West - Killa (Orkidea 2011 remix)[07:41]
+9. Rebels Without A Cause & York - Red Violin (Mario Hammer Lonely Robot remix)[07:57]
+10. Oliver Prime - Hello World (take 1)[07:35](   Читать дальше...   )2012Жанр: Trance, Progressive, UpliftingПродолжительность: 01:12:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DED9B5C665EE7403E3CBD8414A855638C7388551
+magnet:?xt=urn:btih:15190C295DE5FE427EDCF4FD2CB9FCA5C4BD8B47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,51 +166,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465670   (96194) от 10.03.2012
+###  Публикация: 480010   (99004) от 08.04.2012
 
-Подборка журналов | Готовим дома [2010-2011] [DJVU, PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал кулинарных рецептов, составленный из писем читателей. Особенность журнала в том, что каждый рецепт комментирует повар. Он советует, как улучшить блюдо и ускорить процесс его приготовления. Кроме того, вы здесь найдете рекомендации врача-диетолога, который подскажет, каким образом сделать то или иное блюдо более здоровым и менее калорийным.2010-2011Формат: DJVU, PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14ED9FB8EC9B57A84FE2AB7366C18F14F2A69FD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465649   (96189) от 10.03.2012
-
-Лев Яшин (1971) SATRip
+Величайшие автомобили. Самые старые автомобили / Great Cars: Oldest cars (Michael Rose) (2005) SATRip
 
 >>Архив торрентов
 >>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Рассказ о жизни лучшего вратаря мира - Льва Яшина. Журналисты задают ему и его жене вопросы о том как он живёт на футбольном поле и вне его, а комментатор рассказывает как складывалась его футбольная карьера и через что ему пришлось пройти чтобы добиться мировой славы и сколько трудностей, падений было на его пути до того как он получил признание всего мира!Жанр: ДокументальныйРежиссер: С. ТолкачевПродолжительность: 00:26:59
+Едва появившись автомобили сразу же привлекли внимание людей по всему миру - этим сказочным аппаратам предстояло заменить лошадей и преобразить мир. Автомобильные первооткрыватели торопили время, им приходилось преодолевать громадные препятствия - нужно было убедить публику, что автомобили это не просто мечты. Они шли этим путем, учась на своих ошибках, чтобы наконец посадить всех нас за руль.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2716B309F3E7B5300482E041253510FE0B8DA2D2
+magnet:?xt=urn:btih:747BC471BCCFFD6C20717B1F0DFB031E50767ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -239,32 +192,71 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465817   (96188) от 10.03.2012
+###  Публикация: 478833   (99003) от 08.04.2012
 
-VA - High Rankin presents This Is Suicide Dub Volume 1 (2010) [MP3|320 кб/с]<Dubstep>
+Eric Sneo - Polarity (2012) [MP3|320 кб/с]<Techno>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99003.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Polarity (The Intro)
+2. Polarity
+3. Sensation (feat. Marq Figuli)
+4. Apoptose
+5. Omnipotent Nights 2012
+6. Sao Paulo
+7. Inside Shadows
+8. Woodpacker From Mars
+9. Quantum Reality
+10. Morningsun(   Читать дальше...   )2012Жанр: TechnoПродолжительность: 01:27:57
+
+Широкий диапазон электронной музыки и эмоции были отражены в новом альбоме художника электронных звуков - Eric Sneo. "Polarity" наполнен мелодичной последовательностью Technoid Peaktime, атмосферным углублением и тяжёлой драм-машиной. Это своего рода уникальная комбинация, которая ещё не была использована ни кем из современных музыкантов.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F94CBFFDC9CA65966127B4D5026EEB1D186FE80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480006   (99001) от 08.04.2012
+
+VA - Easy Listening (2012) [MP3|320 кб/с]<Downtempo, Lounge>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sekklow – Be Alright (original mix) (04:56)
-02. High Rankin – Losing My Way (original mix) (04:11)
-03. Cliffhanga – I Love It (original mix) (05:43)
-04. Decibel – Gadget (original mix) (06:15)
-05. Evolve Or Die – Wheel &d Come (original mix) (04:24)
-06. Sticky Disco – Fuck Acid (original mix) (04:18)
-07. Temper D & Balkansky – In Pictures (original mix) (04:44)
-08. Cutline & Barbarix – Hey! Plane Rave (original mix) (05:42)2010Жанр: DubstepПродолжительность: 00:40:17
+1. Enrico Donner - Sensual Education (5:58)
+2. Mellow Cloud - Traveling (4:18)
+3. Schwarz & Funk - Angles (6:48)
+4. Pater Rob - Blade (7:20)
+5. The Sura Quintet - Floating (5:22)
+6. FQP - Lang Syne (2:00)
+7. Loungeside - Palm Island (5:22)
+8. Cane Garden Quartet - Flying With No Wings (5:54)
+9. Sunset System - Sylt Sunrise (7:06)
+10. Goo-Boot - For Always (3:45)2012Жанр: Downtempo, LoungeПродолжительность: 05:41:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4845516FB28C01F76D8FD5E42680DEDF2F3D9487
+magnet:?xt=urn:btih:5D93689B17465657318F8E8508BBC6497CA81AB3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -272,63 +264,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464517   (96187) от 10.03.2012
+###  Публикация: 479612   (99000) от 08.04.2012
 
-Obscura - Illegimitation (Compilation) (2012) [FLAC|Lossless]<Technical Death,Progressive Death Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96187.jpg" />
-</div>
-
-
-###  Подробнее
-
-Illegimitation (Demo 2003):
-01. And All Will Come To An End (2:58)
-02. Crucified (4:24)
-03. Fear (4:37)
-04. Immanent Desaster (6:03)2012Жанр: Technical Death,Progressive Death MetalПродолжительность: 00:48:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465270   (96183) от 10.03.2012
-
-Space Cat - The Remixes (2010) [FLAC|Lossless]<Psychedelic / Full On>
+Биатлон. "Гонка чемпионов" в Москве. Мужчины / Масс-старт (2012) SATRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96183.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Transformer (Space Cat vs. Black & White rmx) 7:26
-02. Virtual Reality (Dynamic Volt and Switch rmx) 6:28
-03. Power Up (Perplex rmx) 6:48
-04. Fire Ball (Talamasca rmx) 7:46
-05. Sun Burn (Dynamic rmx) 8:35
-06. Life Guard (Vibe Tribe rmx) 7:48
-07. Shut Up And Dance (Space Cat vs. Perplex feat. Michele Adamson) (The Cat Mix) 7:07
-08. Mechanical Dreams (Shanti rmx) 7:12
-09. Joy Ride (Space Cat vs Fresh) 7:50Жанр: Psychedelic / Full OnПродолжительность: 01:07:00
+Мужской масс-старт на "Гонке Чемпионов" в Москве.Жанр: Спорт / БиатлонПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:24
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:20F32667E27E23A41ACC8912379805D8BCE2EA2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,34 +290,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465814   (96181) от 10.03.2012
+###  Публикация: 479842   (98999) от 08.04.2012
 
-VA - High Big DubStep (2012) [MP3|320 кб/с]<Dubstep, Progressive>
+[Wallpapers] Avto Desktop Wallpapers Pack 5
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96181.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Trolley Snatcha - The Future (06:55)
-02. Goldie Lookin Chain - Tokyo Set Menu Mix (44:34)
-03. Suko - Makignum (06:03)
-04. Schema - Chutney Grip (05:11)
-05. Goldie Lookin Chain - PropaTingz - Babylons Scared (16 Bit Remix) (04:32)
-06. NTRLD - Big Man (05:14)
-07. La Roux - In For The Kill (Skream's Let's Get Ravey Mix) (05:03)
-08. Jahdan Blakkamoore - The General (Marcus Visionary Remix) (05:08)
-09. High Rankin - No Money For Guns (05:15)
-10. Goldie Lookin Chain - Kissy Sell Out Mix (11:04)(   Читать дальше...   )2012Жанр: Dubstep, ProgressiveПродолжительность: 02:38:03
+[Wallpapers] Avto Desktop Wallpapers Pack 5 
+Название:  Avto Desktop Wallpapers Pack 5 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D038053C8C5E8530B50CE0431DBAE9690A242AD
+magnet:?xt=urn:btih:FD4EC4C61B150750220F89F7B14C7114315C6E30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -371,128 +320,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465299   (96178) от 10.03.2012
+###  Публикация: 479945   (98998) от 08.04.2012
 
-VA - Звезды Танцевальных Хитов. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96178.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Digital Punk & Chris One - The virus spreads
- 002. David May & Kelvin Scott - I ll Be Watching You
- 003. Katy Perry - The One That Got Away (Saul Ruiz Club Mix)
- 004. Robbie Neji Feat. Benita - Yesterday (Radio Edit)
- 005. Lmfao - Sexy and i know it
- 006. Jack of Sound - Kaylees Nightmare (original mix)
- 007. K.Melody - За Тобой
- 008. Romano & Sapienza feat. Rodriguez - Tacata
- 009. Chuckie feat. Gregor Salto - What happens in vegas
- 010. Crystal Rock - How You Love Me Now (Phillerz remix edit)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:48:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D3509881E4A32FD773085F67C30BC9F8AE20F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465366   (96176) от 10.03.2012
-
-VA - Trance Maniacs Party: Uplifting Breeze #35 (09.03.2012) [MP3|320 кб/с]<Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96176.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aly & Fila - 200 - FSOE 200 Anthem (Ummet Ozcan Mix)
-002. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix)
-003. E.P.I.C. feat. Julie Thompson - Breathe (K.Blank & Moelamonde Remix)
-004. Avion - Brilliant (Original Mix)
-005. Emma Hewitt - Colours (Armin Van Buuren Remix)
-006. Billy Gillies - Digital Sundown (Paul Todd remix)
-007. Dayzanst - Double Bind (Chasing Dreams Memory Mix)
-008. Cymatics - Empire Of The Sun (Original Mix)
-009. Dart Rayne - Everlasting (Original Mix)
-010. Alpha Force feat. Claire Willis - Fade Away (Original Mix)(   Читать дальше...   )09.03.2012Жанр: Uplifting TranceПродолжительность: 02:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A26EC58227567707DE17952FFDAA0E6826A28104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465618   (96174) от 10.03.2012
-
-MoShang - Further East (2010) [FLAC|Lossless]<Chillout, Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96174.jpg" />
-</div>
-
-
-###  Подробнее
-
-MoShang - Further East (2010)
-Год: 2010
-Жанр: Chillout, Lounge
-Продолжительность: 00:47:11Кодек: FLAC
-Битрейт: Lossless
-Тип рипа: tracks+.cueТрек лист:
-01. Ego & I (04:09)
-02. Pagoda (03:29)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465133   (96172) от 10.03.2012
-
-VA - Ultimate Dance & Trance Vol.1 (2012) [MP3|320 кб/с]<Dance, Trance>
+VA-Trance Eve Volume 24 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96172.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wavetraxx, Meriton Celiku  -  Armageddon
+1. Alex M.O.R.P.H. feat. Sylvia Tosun - An Angel's Love (Vocal Mix) (8:28)
+2. DNS Project feat. Madelin Zero - Another Day (Markus Schulz Big Room Reconst) (7:40)
+3. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix) (7:59)
+4. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Chris Schweizer Remix) (7:52)
+5. Avion - Brilliant (Original Mix) (8:29)
+6. Dennis Sheperd & Jonathan Mendelsohn - Bring Me Back (Album Extended Mix) (6:20)
+7. Beat Service feat. Neev Kennedy - But I Did (Space Rockerz vs. Daniel Heatcliff Remix) (8:31)
+8. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix) (8:49)
+9. Vincent De Jager feat. Emma Lock - Dive (Original Mix) (7:30)
+10. Cressida & Natalie Paris - Easy To Forget (Club Mix) (8:12)2012Жанр: Uplifting Trance, Vocal TranceПродолжительность: 04:27:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE579BBB11D063D33410519B0F0A366885581E96
+magnet:?xt=urn:btih:89DDAEAEB0D5D26C0276AE4B22E72F2F3C0F4DBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,26 +355,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465106   (96166) от 09.03.2012
+###  Публикация: 479617   (98996) от 08.04.2012
 
-Л.Чурилова (Ред.) |  Выпечка. Большая энциклопедия [2004] [DJVU]
+Биатлон. "Гонка чемпионов" в Москве. Женщины / Масс-старт (2012) SATRip
 
->>Разное (категория книг)
->>Кулинария
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Праздник - это аромат свежеиспеченных пирогов и печенья, корицы и гвоздики, это едва уловимый запах лимона и сладкая горечь шоколада.
-В этой книге собраны самые лучшие рецепты десертов для любого стола: от традиционных бисквитов и яблочных шарлоток до нежных рассыпчатых пирожных, изысканных суфле, ароматных кексов, а также рецепты начинок, кремов и украшений. Прекрасные иллюстрации помогут любой хозяйке превратить свои идеи и фантазии в настоящее произведение искусства кулинарии.2004Формат: DJVU
+Женский масс-старт на "Гонке Чемпионов" в Москве.Жанр: Спорт / БиатлонПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:29:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:20655878B7E59F236E3C4FB187F6CEB5DD8939E6
+magnet:?xt=urn:btih:73450AEC8DE398A269AAFE80AAAF429ADC44BCDA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -527,26 +381,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464844   (96163) от 09.03.2012
+###  Публикация: 480050   (98995) от 08.04.2012
 
-Рипол Классик | Волшебные сказки Норвегии (2011) [PDF]
+Величайшие автомобили: Вольво / Great Cars: Volvo (2004) SATRip
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96163.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Завораживающие истории про троллей, лесных духов и хюльдр, что прячут под юбками коровьи хвосты, в сборнике норвежских сказок, пересказанных и нарисованных «народным художником Норвегии» и поэтом Теодором Киттельсеном. Киттельсен был великим сказочником, которого вдохновляла суровая норвежская природа и завораживало все ирреальное, потустороннее. Нарисованные им тролли и духи великолепны, жутковаты и притягательны, а пейзажи звенят от предчувствия волшебства.
- Норвегия — самая северная страна, полная таинственной (   Читать дальше...   )Жанр: Народные сказкиПеревод: Елена РачинскаяФормат: PDF
+На латинском слово "Вольво" обозначает "Я качусь". Но для большинства людей "Вольво" - синоним "безопасности"...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3F1F794BE95FAC968964AF12216C29ED8CB15013
+magnet:?xt=urn:btih:C1D1360B928E663054C5A69249268519B81F7512
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,25 +407,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 464742   (96162) от 09.03.2012
+###  Публикация: 480252   (98991) от 08.04.2012
 
-А.Л. Кульский | КВ-приемник мирового уровня [2000] [DJVU]
+Bennie Green - Mosaic Select (Box Set 3CD) (2003) [MP3|320 кб/с]<Jazz>
 
->>Разное (категория книг)
->>нет
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96162.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98991.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Создание высокочувствительных (как коротковолновых, так и всеволновых) приемников, основанных на современной профессиональной идеологии создания подобной аппаратуры. От азов электроники и радиотехники - к современному высокочувствительному супергетеродинному приемнику с двойным преобразованием частот и верхней первой ПЧ... Оснащенному высокоэффективной цифровой шкалой настройки - вот о чем эта книга! Те, кто хочет самостоятельно изготовить и отладить приемник мирового уровня, - эта книга для вас!2000Формат: DJVU
+Disc 1:
+1. I Love You
+2. Melba's Mood
+3. Just friends
+4. You're Mine You
+5. Bennie Plays The Blues
+6. Green Street
+7. The Shouter
+8. Green Leaves
+9. This Love Of Mine(   Читать дальше...   )2003Жанр: JazzПродолжительность: 01:17:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44931C6C148394E0879EBD87A903796C0319CAD9
+magnet:?xt=urn:btih:1BED3953C2AB5F00750F4340DB4D77ACB8432B7F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -580,30 +442,241 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465104   (96159) от 09.03.2012
+###  Публикация: 478416   (98990) от 08.04.2012
 
-Doro - B-sides & Rarities (2007) 2CD /2007, No Remorse Records/[FLAC|Lossless]<Heavy metal,Hard rock,Glam metal>
+Sector F - Рядом с улицей Бога (2007) [MP3|320 кб/с]<rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98990.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро
+2. Улицы Кипят (feat.Killa M)2007Жанр: rapПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F980EE6D5FE56528B226193D224B64655D15F927
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480032   (98987) от 08.04.2012
+
+Величайшие автомобили: Packard / Great Cars: Packard (2004) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98987.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сотни автомобильных компаний появлялись и исчезали. Но лишь немногие оставляли после себя такое же наследие как - Packard. Эти машины любили президенты, дипломаты, голливудские звезды и просто состоятельные люди, которым нужно было все лучшее. У этой марки до сих пор сохранились преданные поклонники. Packard оставил неизгладимый след в автомобильной истории и затем исчез.....Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB1F16DB29C72054C9816C7EC7CBDE497CF09B76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480169   (98985) от 08.04.2012
+
+[Wallpapers] Avto Wallpapers №2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98985.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Wallpapers №2
+Название: Avto Wallpapers №2
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:697C277ACE5819164E9F97F1E1B50ECDAB9FED70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479731   (98983) от 08.04.2012
+
+[Wallpapers] Desktop Wallpapers №10
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98983.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №10
+Название: Desktop Wallpapers №10
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75EF90A2AACC949790F04DFBF32C87673186AB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480167   (98981) от 08.04.2012
+
+[Wallpapers] HD Wallpapers №8
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98981.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №8
+Название: HD Wallpapers №8
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5E75DE50E126C88EB28D1C96C0E1E9F3E38C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480184   (98980) от 08.04.2012
+
+Tiёsto - Club Life 262 (07-04-2012) [MP3|192 кб/с]<Trance ,Progressive House, Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98980.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hour 1
+Swedish House Mafia - Greyhound
+Tiesto - Chasing Summers
+Calvin Harris feat. Ne-Yo - Let's Go
+Tiesto & Mark Knight feat. Dino - Beautiful World (Gina Star Remix)
+Basto! & Yves V - Cloudbreaker (Basto! Remix)
+Hotlife - Laguna
+Norman Doray - Leo
+Parachute Youth - Can't Get Better Than This (Patrick Hagenaar Remix)
+Sebastien Drums feat. Mitch Crown - Fly Again(   Читать дальше...   )07-04-2012Жанр: Trance ,Progressive House, Electro HouseПродолжительность: 01:58:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C7A02C615C611746F130C3993240E0DD70E026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479755   (98979) от 08.04.2012
+
+Blue Steel - International Hu$$la (2012) [MP3|320 кб/с]<Dirty South>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Redlight Greenlight
+03. Live Large
+04. Fast Life (Feat. Floda Fresh)
+05. Power Up
+06. Do Me
+07. Baller Fan (Feat. Iceberg)
+08. Every Nigga Aint Real
+09. Drop It Low (Feat. Quis)
+10. Freezy(   Читать дальше...   )Жанр: Southern RapПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8634DE8B784FB586B780E1F04B4ED5CFE79E6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479567   (98977) от 08.04.2012
+
+Evadne - The Shortest Way (2012) [FLAC|Lossless]<Death Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96159.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98977.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Adore You    [0:03:22.74]
-02. I Want More    [0:02:30.72]
-03. Alone Again    [0:04:26.26]
-04. Children of the Night    [0:04:18.13]
-05. Dirty Diamonds    [0:04:14.36]
-06. In Freiheit Stribt Mein Herz (Heart version)    [0:05:28.45]
-07. Kiss of Fire    [0:05:00.40]
-08. Love Me in Black (Electric radio Track)    [0:04:03.03]
-09. Pain    [0:04:12.70]
-10. You Got Me Singing    [0:04:45.38](   Читать дальше...   )Жанр: Heavy metal,Hard rock,Glam metalПродолжительность: 02:29:30
+01. No Place For Hope (6:52)
+02. Dreams In Monochrome (7:49)
+03. This Complete Solitude (9:08)
+04. One Last Dress For One Last Journey (8:21)
+05. All I Will Leave Behind (10:54)
+06. The Wanderer (4:26)
+07. Further Away The Light (8:02)
+08. Gloomy Garden (9:27)Жанр: Death Doom MetalПродолжительность: 01:04:59
 
 ## Скачать торент
 ```bash
@@ -615,158 +688,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465062   (96158) от 09.03.2012
+###  Публикация: 480041   (98976) от 08.04.2012
 
-Мазерати - Триумф инженерной мысли / Maserati - Victory by design (2003) SATRip
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мазерати (Maserati), это итальянская компания, которая специализируется на выпуске комфортабельных, но в то же время спортивных автомобилей с элегантной внешностью и высокими динамическими показателями. С недавнего времени входит в состав крупнейшей итальянской автомобильной корпорации «ФИАТ».
-Каждый из братьев Maserati - Карло, Биндо, Альфьери, Марио, Этторе и Эрнесто - в какой то мере, внесли свой вклад для развития своей компании, которая до сих пор носит их фамилию.
-Карло, старший из братьев, первым в семье начал заинтересованно заниматься автомобилями. Первый автомобиль Maserati, был сделан именно его руками, который был оснащён двигателем V1 и сконструирован на очень простым шасси. Но, к сожалению, из-за болезни и последовавшей за ней смертью 29-летнего Карло Мазерати, пришлось прервать работу.Жанр: ТелепередачаПеревод: Профессиональный (одноголосый)Продолжительность: 00:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CABB4C349D84AE7675C80ED08239BB2E279D1DF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465036   (96155) от 09.03.2012
-
-Забытый вождь. Александр Керенский (2012) DVDRip
-
->>Документалистика и Телепередачи
->>Личности в истории
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вся биография Керенского – цепь тайн, мистификаций и недомолвок. В тридцать шесть лет он стал самым молодым избранным правителем России, а уже в тридцать семь – и на всю оставшуюся долгую жизнь – беглецом, изгнанником. Верховная власть находилась в его руках только три месяца, но время ему досталось такое, что один день стоил года: Керенский успел многое.
-Он отменил все национальные и вероисповедные ограничения, покончил с "чертой оседлости". Он упразднил помещичье землевладение, уравнял женщин в правах с мужчинами. Он провел широкую амнистию, выпустив из тюрем тысячи заключенных (в том числе бандитов, которых остряки называли "птенцами Керенского"). Он покончил с хождением старых денег и ввел в оборот новые, которые вошли в историю под его именем – "керенки".
-Он арестовал царскую семью и провозгласил Россию республикой…
-Но можно посмотреть на сделанное им и под другим углом. Именно Керенский разрушил основы тысячелетнего российского государства. Он реформировал судебную систему, (   Читать дальше...   )Жанр: ДокументальныйРежиссер: Алексей ПищулинПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3324C0EF0D5818375E0EAD01B668C77A5678E1FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465028   (96154) от 09.03.2012
-
-Эдита Пьеха - Пьеха, знакомая и незнакомая (1995) [APE|Lossless]<Ретро/Эстрада>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Моё сердце стучит (2:21)
-02. Осенний мост (3:37)
-03. Биби-юба (2:05)
-04. Осень (4:11)
-05. Каравелла (3:28)
-06. Места (3:08)
-07. Только ты (2:01)
-08. Метелица (3:47)
-09. Сама садик я садила (2:55)
-10. Королева звёзд (3:00)(   Читать дальше...   )1995Жанр: Ретро/ЭстрадаПродолжительность: 01:15:12
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464704   (96149) от 09.03.2012
-
-VA - Взрывной хит-парад Весна (2012) [MP3|256-320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96149.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Reflex - Первый Раз (Версия 2012)
-002. Sabina - Не Надо Делать Больно
-003. Инфинити - Ты Мой Герой
-004. София Ротару - Не Зови Печаль (Время Любить)
-005. Катя Баженова - Ой, Люли (А Девочки Танцуют)
-006. Дмитрий Маликов - До Завтра (S.U.27 remix)
-007. Без Билета - Все Сразу!
-008. Градусы - Заметает
-009. Кристина Орбакайте И Thomas N'evergreen - Тайна Без Тайн (Dance Version)
-010. Даша Люкс - Делай Меня Точно(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1675603B457D1A2F443004ADFB5641905705754
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465092   (96147) от 09.03.2012
-
-The Dwindlers - Allegories (2012) [MP3|~245 Kbps (V0)]<Ambient,Female vocal, Electroacoustic>
+Величайшие автомобили: MG / Great Cars:MG (2004) SATRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96147.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98976.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1 - The Pelican And The Girl [04:54]
-2 - Monkey [02:18]
-3 - How The Ostrich Became A Girl And Her Bicycle [04:12]
-4 - Pickering's Hyla [05:58]
-5 - Widow, Daddy, And The Wolf [02:30]
-6 - Peacock And The Kitty [04:22]
-7 - Dolphin [05:00]Жанр: Ambient,Female vocal, ElectroacousticПродолжительность: 00:29:16
+Классические родстеры MG подарили радость управления легким, резвым автомобилем миллионам людей по всему миру.Эта машина была послушной, создавала ощущение скорости и оправдывала каждый доллар вложенный в нее. MG продолжает доказывать что удовольствие от вождения может быть не дорогим, не нужно быть богатым чтобы выехать на дорогу на MG.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AC9C5B5A95C6BFDC609114DCF23EA07CC580CABC
+magnet:?xt=urn:btih:B8E741161D36C25D9C87C687EE27C067480BE4F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -774,26 +714,77 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 465208   (96145) от 09.03.2012
+###  Публикация: 479028   (98973) от 07.04.2012
 
-Малышка Сюзи / Smala Sussie (2003) DVDRip
+Паутина (3-й сезон, серии 1-12(12)) (2009) 2 х DVD 9
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Узнав об исчезновении местной «королевы красоты» Малышки Сюзи, ее брат Эрик бросает все дела в Стокгольме и приезжает в родной городишко на ее розыски. И обнаруживает, что на исчезновение сестры всем наплевать.
-Лучшие друзья Эрика превратились в мелких гангстеров. Но из-за того, что они с безумной скоростью поглощают всевозможные психотропные вещества, им не хватает (   Читать дальше...   )Жанр: Комедия, КриминалРежиссер: Ульф МальмросАктеры: Тува Новотны, Йонас Римейка, Бьорн Старрин, Чьелль Бергквист, Малин Ларссон, Лотта Тейле, Микаэл Нюквист...Перевод: Профессиональный (двуголосый закадровый)Продолжительность: 01:36:50
+В новом сезоне легендарному оперу майору Туманову предстоит распутать очередные хитросплетения преступного мира. И в этом ему помогут капитан Греков и криминалист Мушкаренко они — команда. Друзья по жизни напарники в деле, люди для которых честь мундира не просто пафосная фраза.Жанр: ДетективРежиссер: Андрей ХрулевВ ролях: Александра Солянкина, Владислав Резник, Олег Филипчик, Оксана Тимановская, Эдуард Марцевич, Юлия Михайлова, Юрий Брешин, Владимир Никитин, Дмитрий Митюрич, Рашит БиляловФормат: DVD-Video
 
 ## Скачать торент
 ```bash
 нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479633   (98969) от 07.04.2012
+
+McAfee Avert Stinger Portable 10.2.0.574 [англ]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98969.jpg" />
+</div>
+
+
+###  Подробнее
+
+McAfee Avert Stinger - это бесплатный, не требующий установки антивирусный сканер, предназначен для выявления и удаления с компьютера вирусов, троянов, интернет-червей и прочего вредоносного ПО. Антивирусная база программы постоянно обновляется. McAfee Avert Stinger не имеет постоянного монитора и предназначен для пользователей, имеющих дело с уже зараженной вирусами системой.Название программы: McAfee Avert Stinger PortableЯзык интерфейса: (англ)
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479492   (98968) от 07.04.2012
+
+Джиган - Нас больше нет (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98968.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop, Hip-HopПродолжительность: 00:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C99C2926B8B611E33FE757B8ABBBE81391EAC03D
 ```
 
 https://mybot314.ru/tekegram_catalog/

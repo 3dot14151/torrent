@@ -1,3 +1,206 @@
+###  Публикация: 332190   (691821) от 08.05.2011
+
+OST Лара Крофт: Расхитительница гробниц 2 - Колыбель жизни / Lara Croft Tomb Raider: The Cradle of Life  [MP3|320 Кбит/сек]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davey Brothers - Heart Go Faster (3:31)
+02. Filter - The Only Way (Is The Wrong Way) (5:15)
+03. Alexandra Slate - Bad Girl (3:35)
+04. P.O.D. - Satellite (Oakenfold Mix) (4:52)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:09:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C79523775D98041DAF050792D56C4EB18C6A353A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1134034   (691549) от 14.05.2017
+
+Brian BecVar - Once In A Life (1994) [FLAC|Lossless|image + .cue] <New Age, Neo-Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Tomorrow Comes
+02. Once In A Life
+03. The Tears Of Machu Picchu
+04. I Watched Her From Afar(   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A134EE39D3514E388E87515306E9EFA3E179BEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133883   (691486) от 14.05.2017
+
+Andrew Lockington, VA - The Space Between Us / Космос между нами (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingrid Michaelson – Smallest Light (03:36)
+02. Crystal Fighters – At Home (05:06)
+03. BORNS – 10,000 Emerald Pools (02:55)
+04. BANNERS – Shine a Light (04:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B546D1534C8424AB2286B48A577E96036D950C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133474   (691411) от 14.05.2017
+
+Really Slow Motion - Of Mist and Magic (2014) [MP3|320 Kbps CBR] <Soundtrack, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aeorien [03:27]
+02. Flames Of Glory [03:05]
+03. Magic Tower [01:54]
+04. The Promise [01:56](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00.48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F595BD6476110731F21AFA499554E7DD5514A6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133886   (691297) от 14.05.2017
+
+Andrew Lockington, VA - The Space Between Us / Космос между нами (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingrid Michaelson – Smallest Light (03:36)
+02. Crystal Fighters – At Home (05:06)
+03. BORNS – 10,000 Emerald Pools (02:55)
+04. BANNERS – Shine a Light (04:39)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37DA65BBB141B6C45A710AA468E5CDEA0A84B8B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133472   (691181) от 14.05.2017
+
+Really Slow Motion - Charged (2015) [MP3|320 Kbps CBR] <Soundtrack, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Charged [02:17]
+02.	Desolation [02:06]
+03.	The Wild Card [02:32]
+04.	Faux Power [02:09](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00.50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2236BFD6CA295AAD6FEF6BDEAA44C3B09497A3A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133473   (691074) от 14.05.2017
+
+Really Slow Motion - Elevation (2014) [MP3|320 Kbps CBR] <Soundtrack, Instrumental>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aligning Hearts [03:23]
+02. Suns And Stars [02:52]
+03. Fjord Keeper [03:09]
+04. The Space Between Us [02:40](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 00.51:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B691AC56405779263EBBEFE1397E07978639C05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133868   (691073) от 14.05.2017
 
 Paul Leonard-Morgan - Warhammer 40,000: Dawn of War III (Official Game Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
@@ -560,209 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A513F90EE009DC39A6B8E6AAF714CE29DAF2A2E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133882   (689250) от 15.05.2017
-
-Daniel Pemberton - Mal De Pierres / From The Land Of The Moon / Иллюзия любви (Original Soundtrack) (2016) [FLAC|Lossless|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689250.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 26 rue Commines, Lyon (01:55)
-02. La fuite (01:22)
-03. Gabrielle (01:18)
-04. Un nouveau depart (01:28)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45BDC8FAA24475A1BB872C109DB48965368A6F1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134212   (689247) от 15.05.2017
-
-Mandy Hoffman - The Lovers / Любовники (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lovers (Intro & Title) (03:04)
-02. Tell Her! (01:22)
-03. Lying to Lucy (01:38)
-04. Do You Want Some? (01:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC029DB42DF1E1FACD4685232BC14AF8F878A683
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133471   (689244) от 15.05.2017
-
-Really Slow Motion - Battle Angel (2016) [MP3|320 Kbps] <Soundtrack, Instrumental>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dominus [02:37]
-02. Everlasting Legacy [02:27]
-03. Reborn [02:57]
-04. I Am Yours [04:39](   Читать дальше...   )Жанр: Soundtrack, InstrumentalПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD9BA818019F1611A0D9486CB171FF49E22AE6F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134216   (689217) от 15.05.2017
-
-Danny Elfman - The Circle / Сфера (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into a Circle (01:00)
-02. Wonderland (02:02)
-03. Happy Little Robots (01:34)
-04. Inner Sanctum (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B19F18175FCB25147DFB7F1FD47496863691D17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134229   (689213) от 15.05.2017
-
-Audiomachine - Magnus & Magnus: B-Sides (2015) 2 CD [MP3|320 Kbps|CBR] <Soundtrack, Instrumental, Classical Crossover>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689213.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Godspeed [02:43]
-2. Smoke Screen [02:17]
-3. Avow [03:11]
-4. Uncharted Worlds [03:15](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Classical CrossoverПродолжительность: 01:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44FB400650DF13FA8E73D1E26D6ECA3314A5A88D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133874   (689207) от 15.05.2017
-
-Hans Zimmer, Lorne Balfe - Genius / Гений (National Geographic Original Series Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hans Zimmer - Genius (00:51)
-02. Lorne Balfe - Proving the Theory (01:40)
-03. Lorne Balfe - Forbidden Love (03:05)
-04. Lorne Balfe - Nobel Prize (01:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:17:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CBF4BE260E3E07A5A54991CE2EE61E2FAB4250C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134137   (689100) от 15.05.2017
-
-CherryVata - Daybreak (2017) [FLAC|Lossless|WEB-DL|tracks] <Future Beats, Nu Jazz, Trip Hop>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_689100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daybreak
-02. Rockets
-03. Steel
-04. Through(   Читать дальше...   )Жанр: Future Beats, Nu Jazz, Trip Hop, Electronic Rock, Bass, Downtempo, Female VocalПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7386FE3F8F18F6BA2DDB2C30AEC12C077C33E45F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1477723   (1010808) от 16.06.2021
+
+Oystein Ramfjord - Music For Healing (2021) [MP3|320 Kbps] <New Age, Ambient, Meditation>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shadow To Light
+02. Ethereal
+03. Mono No Aware
+04. Nightfall(   Читать дальше...   )Жанр: New Age, Ambient, MeditationПродолжительность: 04:12:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DDF7855FA45D8AD711867AE2D933D56508C03A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1478178   (1010228) от 19.06.2021
+
+VA - Крутые пушки Лето 2021 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010228.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King Topher L246Kii - Down With Me (3:19)
+02. Dj Smash - Волна (FLASH Remix) (5:07)
+03. ABBA - Gimme (Dj Antonio bootleg Extended Mix) (4:59)
+04. Зомб - Орбиты (Nervouss Remix) (4:23)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15342F16DA4EFE08ED8F6AD2024AA37C62D4E140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1478635   (1010214) от 20.06.2021
 
 VA - Beat Splash: Psy Trance Mixtape (2021) [MP3|320 Kbps] <Psy, Goa Trance>
@@ -687,64 +745,6 @@ VA - Beatport Funky House: Sound Pack #312 (2021) [MP3|320 Kbps] <Funky, Disco H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36AEAFBA5EA62BD166998274B66311B38703BE79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482070   (1007767) от 07.07.2021
-
-VA - Exotic Ethnic House (2021) [MP3|320 Kbps] <Ethnic house, electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everything Counts - Mbodiene
-02. DJ Razor Dotcoza - Wena Wedwa
-03. Mahfoud - Fuji
-04. Gianni Romano - Woroko Kumba(   Читать дальше...   )Жанр: Ethnic house, electroПродолжительность: 06:57:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C871E80209A70DBF0035A4BFF409F3D6514C0AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482509   (1007618) от 08.07.2021
-
-VA - Private Summer Theme: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007618.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Har.Art - The Last Goodbye
-002. Blue Mood - Morning Light
-003. Philip Ropero - Deep Blue Sea
-004. Monoscope - Au Revoir(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 08:22:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768E6A711FBCD8D501B932BDC0984BC5E0E6149F
 ```
 
 https://mybot314.ru/tekegram_catalog/

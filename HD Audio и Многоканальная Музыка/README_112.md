@@ -1,3 +1,177 @@
+###  Публикация: 1708844   (112905) от 22.03.2024
+
+Nathan Allen - Songs About Love (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Sent (4:11)
+02. Yo (Excuse Me Miss) (3:32)
+03. Calm Down (3:56)
+04. Me & U (3:17)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24A279BB4505B408B078950D79A0B48059070FF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708797   (112904) от 22.03.2024
+
+Duff McKagan - Lighthouse(Expanded Edition) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lighthouse (3:20)
+02. Longfeather (4:12)
+03. Holy Water (4:32)
+04. I Saw God On 10th St. (3:05)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B07E4BEDB30CCE7392CB3FFE0E7DD920601CF68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709103   (112902) от 23.03.2024
+
+Михаил Муромов - № 1 (1990) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Ведьма (М. Рябинин) — 3.56
+02. Ариадна (А. Зубков, М. Муромов — Р. Казакова) — 6.03
+03. Между нами тонкий лед (А. Кришта) — 3.47(   Читать дальше...   )Жанр: PopПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658CAD7E87650F7E95CAC1B9C182925FBC699230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709105   (112882) от 23.03.2024
+
+Надежда Чепрага - Только ты (1984) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Человеческий голос (Е. Дога — Р. Рождественский) — 3.18
+02. Симфония чувств (Ион Алдя Теодорович — Г. Виеру) — 3.54
+03. Только ты (А. Корач — С. Гимпу, русский текст И. Вадикова) — 3.34(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0437C4D1D4AA70B628BC6045518493B76C3E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709097   (112873) от 23.03.2024
+
+Маша Распутина - Городская сумасшедшая (1991) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Гималаи (А. Лукьянов)
+02. Клава (М. Дунаевский)
+03. Я тоже жить хочу (И. Кружалин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709186   (112863) от 23.03.2024
+
+Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Timpul Întâilor
+A2 În Vieliștea Uitării
+B1 Descânt
+B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709183   (112860) от 23.03.2024
 
 Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
@@ -571,180 +745,6 @@ Sons of Morpheus - Fruits (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6DE484285BC978B77505A0E3700960D3E7D06FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709748   (112801) от 25.03.2024
-
-Раймонд Паулс - Сестра Керри (1979) [FLAC 24/192|Lossless|tracks] <Musical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112801.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Сторона.
-01-Пролог
-02-Песенка Керри
-03-Тип-топ(   Читать дальше...   )Жанр: MusicalПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF7EEF628D0C8018D023AA9DD68EAFC0F324F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709606   (112774) от 25.03.2024
-
-Elbow - Audio Vertigo (Extended Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Things I've Been Telling Myself for Years (3:34)
-02. Lovers' Leap (4:35)
-03. (Where Is It?) (0:27)
-04. Balu (3:53)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E80D24ABA0E60A4A4314AC8C401E6BA74012FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710234   (112763) от 26.03.2024
-
-Робертино Лорети (Robertino Loreti) - Поёт Робертино Лорети (1962) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112763.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. О мое солнце (Э. Капуа)
-02. Аве Мария (Ф. Шуберт)
-03. Мама (Неаполитанская песня)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:24:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ACA8356CDD814429AA454A960F1C6A02DA6C42F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710389   (112745) от 26.03.2024
-
-Abya - Prayer Of Chaos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bells Of Blood (6:38)
-02. Frozen Crown (7:19)
-03. Prayer Of Chaos (7:40)
-04. Walking In The Shadows (7:52)(   Читать дальше...   )Жанр: Progressive Metal, Symphonic MetalПродолжительность: 00:36:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFFC0C38DE6264EBAFED1A61C4B4D309F502A39F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710244   (112744) от 26.03.2024
-
-София Ротару - Монолог о любви (1987) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112744.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Песня нашего лета (В. Матецкий — М. Танич)
-02. Ночь (музыка и слова В. Лащука)
-03. Осень (И. Поклад — Г. Тараненко)(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B86D7F680F71B5AE4F9F9F60E2070699CDEDD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1710056   (112740) от 26.03.2024
-
-Judas Priest - Invincible Shield (2024) [WavPack|32/176,4|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112740.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Panic Attack
-A2 The Serpent And The King
-B1 Invincible Shield
-B2 Devil In Disguise(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5506CB4664DA05850D56870BC043E7711DFA3F40
 ```
 
 https://mybot314.ru/tekegram_catalog/

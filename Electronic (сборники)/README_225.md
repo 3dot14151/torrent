@@ -1,3 +1,61 @@
+###  Публикация: 1791978   (17621) от 21.05.2025
+
+VA - Mixed by DJ Юrkanik (2025) [MP3|320 Kbps] <Progressive House, Trance, Drum & Bass> [Обновляемая]
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Block & Crown - Summer Party (Original Mix)
+02. Block & Crown, Devante - We Are The Players
+03. Malive - Quintal (Emanuel Satie, Tim Engelhardt Remix)
+04. MIDI Maxi Efti - Bad Bad Boys (DJ Golden Love & Igor Frank Remix)(   Читать дальше...   )Жанр: Progressive House, Trance, Drum & Bass, House, Nu Disco, Melodic...Продолжительность: 19:16:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:886F9F101D0CD4E9FC1E915606A5878FCFADFF70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1810105   (17481) от 03.08.2025
+
+VA - Compilation Part 180 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Akmalov & Dilmurat Oglu - Continue
+02 - Jumanov - Charger
+03 - Azimov - Echo Drift
+04 - Jumanov - Single Girl(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:26:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:593E5664626E4806F4DB9A90E2CD1A5F7F7D9CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1810104   (17480) от 03.08.2025
 
 VA - Compilation Part 179 Electronic, Vocal (2025) [MP3|320 Kbps] <Electronic, Vocal>
@@ -687,64 +745,6 @@ VA - Compilation Part 172 Electronic (2025) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2238EEA6C5B58782039BB1B568BEF39ED447ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806529   (11594) от 13.07.2025
-
-VA - Compilation Part 173 Electronic (2025) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Imazee - Something True
-02 - Imran - I Couldn’t Breathe
-03 - Kasimoff - It’s My Life
-04 - Jumanov - Go(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB4C05366B8C2CC92E6C7C4C9BB348B41C675D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807637   (10874) от 20.07.2025
-
-Dova Music - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Your Name in My Dream
-02 - Alone
-03 - I Loved You
-04 - Midnight Mirage(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB34679BEBA106A972350BFA1F7885578DE78AFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1219318   (715508) от 13.04.2018
+
+Danheim - Munarvagr (2017) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 0:44
+02. Vindöld 3:28
+03. Tyrfing 3:27
+04. Tyr 3:40(   Читать дальше...   )Жанр: Dark Folk, Dark AmbientПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E62E35A0A3BE856A95EA7689A391C46B19AD6E93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219324   (715500) от 13.04.2018
 
 Danheim - Fridr (2018) [FLAC|Lossless|tracks] <Dark Folk, Dark Ambient>
@@ -713,35 +742,6 @@ Lula Wiles - What Will We Do (2019) [FLAC|Lossless|WEB-DL|tracks] <American Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8CB2E14EDF44744F8DC93D4ABB60FB9B8483850E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289030   (686641) от 16.03.2019
-
-The Way Down Wanderers - illusions (2019) [FLAC|Lossless|tracks + .cue] <Country, Americana>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686641.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Principles of Salt (03:10)
-2. Frozen Through (02:35)
-3. She's Alright (03:12)
-4. Crooked Pines (04:29)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAA1C180C41F51F4DA912CEE6BF4B417B38DC9AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

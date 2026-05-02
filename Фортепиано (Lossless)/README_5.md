@@ -1,3 +1,32 @@
+###  Публикация: 1720009   (57951) от 01.05.2024
+
+VA - Deep Sleep Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergey Bryukhno - Sonnet in C Major (1:25)
+02. Jonathan Yandel - Dawn (2:27)
+03. Sergey Bryukhno - Hope (1:29)
+04. Sergey Bryukhno - Passing Through the Memories (1:37)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2660FCFC3C276C20577A10608585237A067A26FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730364   (53193) от 15.06.2024
 
 VA - Mozart: Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>

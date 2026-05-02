@@ -1,3 +1,148 @@
+###  Публикация: 859025   (947050) от 12.01.2015
+
+Phil Collins - ...But Seriously (1989)  Incomplete version /1992, DRT/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947050.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. That's Just The Way It Is (5:21)
+A2. Do You Remember? (4:36)
+A3. Something Happened On The Way To Heaven (4:53)
+A4. I Wish It Would Rain Down (5:26)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A83C0E242383563370901987D24639BC1F65DDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090723   (945504) от 07.01.2017
+
+VA - RETROспектива, часть V: Эстрадные оркестры V (1929-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01  Гос. эстрад. орк. п.у. Л. Утесова - Быстрый вальс (вальс)
+02. Гос. эстрад. орк. п.у. Л. Утесова - Бальная полька (танец)
+03. Дух. орк. МО СССР п.у. Г. Ф. Запорожца - Над волнами (вальс)
+04. Эстрад. орк. ВР п.у. Б. П. Карамышева - Оборванные струны (старинный вальс)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64EC1438CFF672E72B126F86D5C54F55209E3FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983407   (943614) от 06.02.2016
+
+Black Sabbath - Группа Блэк Саббат (1989) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Hard Rock, Psychedelic Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Black Sabbath · Черная суббота  6:16
+2. N.I.B. · Эн.Ай.Би.  6:04
+3. Behind The Wall Of Sleep · За стеной сна  3:40(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Heavy MetalПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4F7CA1DFB055F827D8A4D5B3632AE2936C4CE02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983450   (943612) от 06.02.2016
+
+Dire Straits - Dire Straits (1978) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Down To The Waterline
+02 - Water Of Love
+03 - Setting Me Up
+04 - Six Blade Knife(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AB81131B695136D0A311CD203087858A122DDC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091572   (942728) от 09.01.2017
+
+Supertramp - The Very Best Of (1992) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goodbye Stranger (5:48)
+02. The Logical Song (4:10)
+03. Bloody Well Right (4:33)
+04. Breakfast In America (2:42)(   Читать дальше...   )Производство: Ладъ - LD 238016Жанр: Progressive RockПродолжительность: 00:54:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765744893737E078A9B71E1425439F59545B8026
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091487   (942626) от 09.01.2017
 
 VA - RETROспектива, часть VII: Эстрадные оркестры VII (1935-1958) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
@@ -597,151 +742,6 @@ Pendulum - Hold Your Colour (Reissue 2018) (2005) Breakbeat Kaos [FLAC 2.0 16/44
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:034E7F5014F40410E1CED1645AFAF56121A552F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989049   (918670) от 21.02.2016
-
-Black Sabbath - The End (2016) EP [FLAC 2.0|44.1/24|tracks|DC-CD] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Season Of The Dead (7:22) (DR14)
-02. Cry All Night (6:58) (DR13)
-03. Take Me Home (4:57) (DR13)
-04. Isolated Man (5:31) (DR13)Жанр: RockПродолжительность: 00:24:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D0BBCB9B9DB801246F8D8EDC51250207E660174
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989015   (918389) от 21.02.2016
-
-Круиз - 4 альбома (1987-2013) Мелодия, WEA, Мирумир [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Thrash, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_918389.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Radiation Victims
-02 - Killer Logic
-03 - Get Serious!
-04 - Child Of Pride(   Читать дальше...   )Жанр: Thrash, Heavy MetalПродолжительность: 02:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CEA259AE67F4D733C6ED3B63CAAF489AD2EBC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1490507   (915262) от 22.08.2021
-
-Czeslaw Niemen - 8 Albums (1971-1988) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip, MC-Rip] <Rock, Rhythm & Blues>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Niemen Enigmati – Niemen Enigmatic (1971)
-2 x Vinyl, LP, Album, Mono, Red Labels, Polskie Nagrania Muza – XL 0710/XL 0711, Poland
-Folk Rock, Fusion, Prog Rock
-(   Читать дальше...   )Жанр: Rock, Rhythm & BluesПродолжительность: 06:13:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5C7520B7CCACE8E20A0157F0CF3050D05366FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097439   (913780) от 27.01.2017
-
-The Alan Parsons Project - Eye In The Sky (1982) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sirius (1:55)
-02. Eye In The Sky (4:37)
-03. Children Of The Moon (4:52)
-04. Gemini (2:11)(   Читать дальше...   )Производство: Arista - 25RS-162Жанр: Progressive RockПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:916F84058C7A637A95ECA528965370E84EF7C6C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1097539   (913661) от 27.01.2017
-
-AC/DC - Rarities (2009) [FLAC 2.0|96/24|tracks+.cue|Vinyl-Rip] (compilation, unofficial release) <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-A1 - Stick Around
-A2 - Love Song
-A3 - Fling Thing(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E6B5D32A088427B4E8E7DE4AD3774E5F4851F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

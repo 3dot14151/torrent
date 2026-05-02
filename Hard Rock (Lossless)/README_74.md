@@ -1,3 +1,119 @@
+###  Публикация: 1583427   (228911) от 15.10.2022
+
+Wildness - Resurrection (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_228911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nightmare
+02. Release The Beast
+03. Tragedy
+04. Love Resurrection(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6A38CB152D8642E7557B507D962DB8405FA7C19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649846   (228741) от 29.07.2023
+
+PistonFist - Redline (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_228741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Become the Rage
+02 - Dig In
+03 - Resent the Day
+04 - Blue Cheese(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D60A1BCBD929D035DD38AF463E9A6E58285A01D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1583804   (228045) от 16.10.2022
+
+Raider - Runaway (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dusk Til Dawn (3:57)
+02. High Speed Woman (4:00)
+03. Runaway (4:18)
+04. Come And Get It (3:01)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:39:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064F862E999C89ED3503D24C14CDEF0ADFD99EC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649699   (227932) от 30.07.2023
+
+James Rivera's Metal Wave - New Wave Gone Metal (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_227932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Celebration [00:04:41]
+02. Love My Way [00:03:31]
+03. Lovesong [00:04:12]
+04. Shock The Monkey [00:05:01](   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B30E1199FFD9C3F5817130220E7FFB59768F85D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1583786   (227865) от 16.10.2022
 
 Hartmann - Get Over It (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -631,122 +747,6 @@ Steelover - hard rock/heavy metal группа из Льежа, Бельгия, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E68990ACA5C82EA82556B3A537E9FFE8493AB43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651185   (223432) от 05.08.2023
-
-AMH (Adam and The Metal Hawks) - Hurry Up And Wait (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiptoe [00:03:02]
-02. Underground [00:03:24]
-03. Backwards [00:03:21]
-04. Mr. Jimmy [00:03:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABA380398DE21C9392A7B5C4FF3B230FFE55E6C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651171   (223428) от 05.08.2023
-
-Roosterz - Brutal Nuggetz (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stone N' Roll>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Man Who Forgot His Name [00:03:18]
-02. Unathletic [00:03:35]
-03. Jocelyne [00:04:48]
-04. Fist vs Face [00:04:30](   Читать дальше...   )Жанр: Heavy Rock, Stone N' RollПродолжительность: 00:39:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AABE047017D627603BDBB8514776A24BE139DA00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651132   (223017) от 05.08.2023
-
-Renaud Hantson s Furious Zoo - Fishnet - Furioso X (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_223017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Down
-02. Why Dontcha
-03. Fishnet
-04. What Is Life(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EB930652D3629F8183F74672F9D8B2714E0965B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1585217   (222919) от 21.10.2022
-
-The New Roses - Sweet Poison (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Kinda Crazy
-02. Playing With Fire
-03. All I Ever Needed
-04. The Usual Suspects(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFEE5D344E12A0A8D8A9DFF116B5872E2483D192
 ```
 
 https://mybot314.ru/tekegram_catalog/

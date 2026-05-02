@@ -1,3 +1,61 @@
+###  Публикация: 1641666   (236294) от 23.06.2023
+
+Luciana Souza - The Book Of Chet (2012) Sunnyside [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Brazilian Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Thrill Is Gone [5:40]
+02. Forgetful [5:15]
+03. He Was Too Good to Me [4:24]
+04. I Get Along with You Very Well [5:45](   Читать дальше...   )Жанр: Vocal Jazz, Brazilian JazzПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95926EE172B3ABE92FAF4FED291E1FF14430393C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635380   (236256) от 25.05.2023
+
+Black Art Jazz Collective - Ascension (2020) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236256.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ascension [5:37]
+02. Mr. Willis [4:16]
+03. Involuntary Servitude [6:46]
+04. Twin Towers [6:28](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4771DAD93DB30CC235B472F710C73D6C55121DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635175   (236228) от 25.05.2023
 
 Artie Shaw - 1945 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -687,64 +745,6 @@ Kansas City Band - Barrelhouse ☆ Hey! Hey! (2001) Audio Park [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF3C771210FB9D42720087F5CF1586051AD051C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635994   (235759) от 28.05.2023
-
-John Beasley - MONK'estra Plays John Beasley (2020) Mack Avenue [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steve-O [5:25]
-02. Sam Rivers [4:00]
-03. Monk's Mood [3:26]
-04. Donna Lee [5:37](   Читать дальше...   )Жанр: Contemporary Jazz, Modern Big BandПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF409E940B915B35FC94AC693440948B5DF5503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636266   (235643) от 29.05.2023
-
-People Like Us - In Heaven (1997) Koch Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight Ahead [7:35]
-02. Think... Pretty [8:45]
-03. Hofstra Goes to Heaven [8:05]
-04. The Road Ahead [12:55](   Читать дальше...   )Жанр: Mainstream Jazz, Post BopПродолжительность: 01:05:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05A82485A266CCCE3714C72BEA7594D085AE309C
 ```
 
 https://mybot314.ru/tekegram_catalog/

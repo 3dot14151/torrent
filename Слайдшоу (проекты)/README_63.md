@@ -1,3 +1,31 @@
+###  Публикация: 1052159   (527822) от 14.09.2016
+
+Проекты - Проект ProShow Producer - Письма из прошлого [PSH]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527822.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания семейного слайд шоу памяти, для PSP-6 and above.
+Шрифт в комплекте.
+Автор: Alex Ro.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B06AA4A687C89CB32EBD442D4F8FA79CDD7EA38F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1052650   (527165) от 15.09.2016
 
 Проекты - Motion Array - Cinematic Parallax Media Opener - 14675 [AEP]
@@ -645,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6C23D15A244FB93282063BEF62C6DCB6BFDEF5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928845   (521367) от 17.08.2015
-
-Проекты - VideoHive - Music Distortion Slideshow - 3946027 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1FCDE867D4F6935035840D2B1B52AB3E2CBAAB
 ```
 
 https://mybot314.ru/tekegram_catalog/

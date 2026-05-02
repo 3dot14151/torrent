@@ -1,3 +1,204 @@
+###  Публикация: 1177811   (353705) от 29.10.2017
+
+VA - Dreamline 3 (2017) [MP3|320 Kbps] <New Age, Balearic, Leftfield>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Lotus - Hopes Are Forever
+02. Robert Scharnke - Between Faded Raindrops
+03. Ocean Mind - Night Life
+04. Hidden Hand - Summer Nostalgie(   Читать дальше...   )Жанр: New Age, Balearic, LeftfieldПродолжительность: 03:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4CFA003A8D06AA071413D153363F83E93E8DE07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177883   (353701) от 29.10.2017
+
+VA - Cytus OST v.5.0.0 (2013) [MP3|128-192 Kbps] <Soundtrack>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sta - Loom (Main Menu)
+02. Result ScreenЖанр: SoundtrackПродолжительность: 04:16:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F7AE0995C5789E8C02EB027BF5051A44DA3787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952306   (353514) от 02.11.2015
+
+Carlos Rodrigo - Argentine Tango (2001) [MP3|~160 кб/с (V4)]<Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sur
+02 - Tinta Roja
+03 - Flor De Lino
+04 - Cambalache(   Читать дальше...   )Жанр: TangoПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F00377DB9739D713706C7F68F4304CD484C4248
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952824   (353506) от 02.11.2015
+
+VA - The Bodyguard (Original Soundtrack Album) (1992) Japanese Edition [FLAC|image + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whitney Houston - I Will Always Love You [4:32]
+02. Whitney Houston - I Have Nothing [4:50]
+03. Whitney Houston - I'm Every Woman [4:47]
+04. Whitney Houston - Run To You [4:24](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:673EC54B61B563BC51A8DC941B2206849EFD6CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952722   (353431) от 02.11.2015
+
+Jean Michel Jarre - Revolutions (1988) Remastered / 2015, Sony Music / [FLAC|tracks + .cue]<Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353431.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Industrial Revolution Overture [5:10]
+02. Industrial Revolution Part 1 [5:09]
+03. Industrial Revolution Part 2 [2:17]
+04. Industrial Revolution Part 3 [4:12](   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1820E2087ADB0EDD606EA6A0971614EA50A0D63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952571   (353414) от 02.11.2015
+
+Jose Dolores y su Sax Maravilloso - Sax Romantico (2015) [MP3|256 кб/с]<Saxophone, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New York, New York
+02. Sabor a Mi - Reloj
+03. Amor, Amor
+04. Vamos a Platicar(   Читать дальше...   )Жанр: Saxophone, InstrumentalПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:919EF5952C4642E1951B1A3162CDA243F26EAFEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 952486   (353314) от 02.11.2015
+
+Music Factory - Romantic Saxophone (2014) [MP3|256 кб/с]<Saxophone, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353314.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paradise
+02. Sailing
+03. Your Song
+04. Only You(   Читать дальше...   )Жанр: Saxophone, InstrumentalПродолжительность: 02:28:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C19E22B9A4F712580E6F3926C2DB96A0B1F162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 723645   (352939) от 19.11.2013
 
 Back to Earth - Secret Spaces (1998) [FLAC|Lossless|tracks + .cue] <New age, Instrumental, Relax>
@@ -548,209 +749,6 @@ Ajeet Kaur - Haseya (2016) [FLAC|Lossless|tracks] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6204304FDE4C6552A17329B25E90ACD1A4B70FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072727   (349599) от 14.11.2016
-
-L'Orchestra Cinematique, British Academy Players - Stranger Things / Очень странные дела (Soundtrack Highlights and Inspirations) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stranger Things Theme Extended (01:32)
-02. Kids (02:40)
-03. Nancy & Barb (01:07)
-04. Chromatic Mechanics 2 (03:40)(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaveПродолжительность: 00:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC018F28DAEBD26C31112E3B6125A83C6A4AE34B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 952290   (349558) от 04.11.2015
-
-Yarek - Noc Na Zamku (2008) [FLAC|image+.cue]<Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Moonlok 6:17
-02.Mrok 6:39
-03.La Orkestra 4:01
-04.Ambient (Part 2) 5:42(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:49:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20EFE94EC250918BCE4C8A100B28F0493D1CB328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072882   (349469) от 14.11.2016
-
-Enigma - The Fall Of A Rebel Angel (2016) [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circle Eight (feat. Nanuk) [2:18]
-02. The Omega Point [5:39]
-03. Diving [2:52]
-04. The Die Is Cast (feat. Mark Josher) [4:17](   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C00D7CBDEA32C5780A9C833BA191FD6650BBBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953497   (349436) от 04.11.2015
-
-Anima - Sacred Alliance (2015) [MP3|320 кб/с]<New Age, Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Great Mother's Dominion
-02. Surrender
-03. Sewa
-04. Sacred Lands(   Читать дальше...   )Жанр: New Age, Electronic, AmbientПродолжительность: 01:14:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE06C3BEC98DC222AEA6CEA4EC77C8D6879F620F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951873   (349156) от 04.11.2015
-
-Jean Michel Jarre - Chronology (1993) Remastered / 2015, Sony Music /[FLAC|tracks + .cue]<Ambient, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chronology Part 1 [11:00]
-02. Chronology Part 2 [6:05]
-03. Chronology Part 3 [4:00]
-04. Chronology Part 4 [3:59](   Читать дальше...   )Жанр: Ambient, ElectronicПродолжительность: 00:41:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CEC68137C5A04F7AE1B0E84F89D4CBB3B089212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953193   (349149) от 04.11.2015
-
-Thomas Newman - Spectre (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349149.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Muertos Vivos Estan - featuring Tambuco Percussion Ensemble [02:48]
-02. Vauxhall Bridge [02:19]
-03. The Eternal City [04:34]
-04. Donna Lucia [02:02](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:19:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0C90F25601EE19674BFBA72017A6FE748CD1BE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179399   (349061) от 31.10.2017
-
-VA - Cuban Divas (2017) [MP3|320 Kbps] <World, Latin>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graciela - Asi No Papa 5:00
-02. Maria Elena - Embriagada de Amor 3:04
-03. Teresita Cartula - Son de la Loma 4:07
-04. Anais Abreu - Que Te Pasa Corazon 3:50(   Читать дальше...   )Жанр: World, LatinПродолжительность: 01:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C15F121EF1A4421C7399B4C41B697EB84649DF5
 ```
 
 https://mybot314.ru/tekegram_catalog/

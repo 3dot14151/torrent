@@ -1,3 +1,206 @@
+###  Публикация: 1552209   (588516) от 19.05.2022
+
+Evgeny Grinko - Orange Marmalade (2021) [MP3|320 Kbps] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588516.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Things From The Past (2:23)
+02. It's Foggy Today (3:06)
+03. On The Waves (3:36)
+04. Velvet Elephant (1:51)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:19:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AF9F6C2B454113F08AFC9E79C854769B402D06C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552210   (588512) от 19.05.2022
+
+Valeriy Dolgin - Erektogitara (2013) [MP3|320 Kbps] <Guitar, Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Venera (2:58)
+02. Seksvakuum (5:24)
+03. Akt Perviy (4:06)
+04. Sluchaynaia Sviaz' (5:46)(   Читать дальше...   )Жанр: Guitar, InstrumentalПродолжительность: 00:57:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9493216742E4567BF948BC3A35548724A13133
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552258   (588494) от 19.05.2022
+
+Giovanni Marradi - The Best of Giovanni, Vol. 2 (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Annie's Song (2:25)
+02. A Time for Us (3:08)
+03. Spanish Eyes (2:35)
+04. Hymne (2:39)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:34:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12F10D214EB5499D759186E73A42773B3A3461D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552254   (588492) от 19.05.2022
+
+Giovanni Marradi - Italian Love Songs (2006) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come Back to Sorrento (3:25)
+02. Santa Lucia (4:01)
+03. Tarantella (2:49)
+04. Intermezzo (3:27)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DAE8247AA1D4FEAE577CD4517BF7C02AF14BA12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1552261   (588479) от 19.05.2022
+
+Giovanni Marradi - The Best of Giovannii, Vol. 3 (2008) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Will Always Love You (3:53)
+02. When Romeo Wept (3:24)
+03. Don't Make My Brown Eyes Blue (3:06)
+04. First of May (3:06)(   Читать дальше...   )Жанр: Piano, Instrumental, New AgeПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B30AB7B3D77B64F3BD1CCC950D1535C57F37DBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300851   (588127) от 08.05.2019
+
+Андрей Климковский - Алые паруса (2000) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мечта Ассоль (5:28)
+02. Предсказание (6:00)
+03. Кораблик (4:34)
+04. Океан надежды (7:17)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B14CFD52EBD63B4D39834DECC4608134FCD4016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1300839   (588125) от 08.05.2019
+
+Allegro Milano - Crocodile Rock - Allegro Milano plays Elton John (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro/I Want You Forever (3:37)
+02. Song for Guy (5:22)
+03. Honky Cat (4:47)
+04. Rocket Man (3:45)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:10:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240EC1DC09DA88F5CABBC37C2C54E10898584F0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300735   (588116) от 08.05.2019
 
 Allegro Milano - Plays The Hits Of Tina Turner In DDD (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -554,203 +757,6 @@ Zhang Yi - Strings Of Love (2015) [MP3|320 кб/с]<New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:838FADBACC1869545B4F00341217D74C1BF0445F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358281   (584798) от 03.07.2011
-
-Гарри Поттер и Дары смерти: Часть 2 / Harry Potter And The Deathly Hallows Part 2 (2011) [MP3|320 kbp/s]<Score,Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584798.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011Жанр: SoundtrackПродолжительность: 01:08:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1459E7E68C2DCDA5DB2C805B2925D62793BBF1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358304   (584742) от 03.07.2011
-
-OST Daft Punk - Tron Legacy (2010) [MP3|320 kbp/s]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584742.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: OSTПродолжительность: 01:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7CEC3F53A69A134C28B52A3210DE66E19FAC15E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040864   (584260) от 07.08.2016
-
-VA - Suicide Squad / Отряд самоубийц (The Album) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
-02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker For Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:03)
-03. twenty one pilots - Heathens (03:16)
-04. Action Bronson, Mark Ronson & Dan Auerbach of The Black Keys - Standing In the Rain (03:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80D89690821D611D38F602C876B45048545017EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919429   (584030) от 18.07.2015
-
-Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumental, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orion Calls
-02. No Tempo
-03. Pleione
-04. A Fonte das Estrelas(   Читать дальше...   )Жанр: New Age, Instrumental, MeditationПродолжительность: 00:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8A15BC90C44DDF365129D6EBF5EC833AE0535A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918961   (583968) от 18.07.2015
-
-Zhang Yi - Strings Of Love (2015) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maple Love
-02. Mythos
-03. The Unforgettable Love Affair
-04. Prayer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:388F5857B04A3558244B361976F47D67141F3AC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919207   (583840) от 18.07.2015
-
-Daisuke Minamizawa - Solo Guitar no Shirabe - Studio Ghibli Sakuhinshu (2000) [FLAC|tracks]<OST anime>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583840.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nausicaa Of The Valley Of Wind (Opening) - from Nausicaa (2:24)
-02. Nausicaa Requiem - from Nausicaa (1:09)
-03. Bird Person (Ending) - from Nausicaa (1:35)
-04. Nausicaa Of The Valley Of Wind - from Nausicaa (1:36)(   Читать дальше...   )Жанр: OST animeПродолжительность: 01:04:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4AFD585826E045E3498188F980FC5252B3F018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041089   (583448) от 08.08.2016
-
-Michel Pepe - Offrandes (Best Of 2008-2015) (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myriades de lumière [00:05:41]
-02. Eternelle gratitude [00:04:49]
-03. Vision de l'ame [00:04:15]
-04. Beauté elfique [00:05:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB6D6DBC6D9E6277637C6C5CFF7074F81D5648A
 ```
 
 https://mybot314.ru/tekegram_catalog/

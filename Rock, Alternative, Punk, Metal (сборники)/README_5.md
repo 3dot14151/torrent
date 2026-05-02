@@ -1,3 +1,61 @@
+###  Публикация: 1352250   (1001006) от 14.01.2020
+
+Steppenwolf - Greatest Hits (2020) [MP3|320 Kbps] <Hard Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Into The Wind
+02. A Girl I Knew
+03. Born To Be Wild
+04. Hootchie Cootchie Man(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D208CBAE9A3D5E54C74793F66D869D49251E7D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1352962   (993117) от 16.01.2020
+
+VA - Classic Rock timeless! 3 (2020) 2CD [MP3|320 Kbps] <Rock, Hard Rock, Blues Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_993117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judas Priest - Ram It Down
+02. Rammstein - You Hate (''Du Hast'' English Version)
+03. Slade - Thanks For The Memory
+04. Ringo Starr - It's Not Love That You Want(   Читать дальше...   )Жанр: Rock, Hard Rock, Blues RockПродолжительность: 07:44:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A74B1E391A287B45668B70962EB2E74C9346CF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1353773   (990547) от 19.01.2020
 
 VA - 100 Greatest 90s Rock Hits (2020) [MP3|320 Kbps] <Rock>
@@ -684,64 +742,6 @@ VA - Best of Romantic Rock (2017) [MP3|320 Kbps] <Rock, Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:763C1BFC3F85CDD9395D4499254DFCC07FC6A6A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364037   (939199) от 01.03.2020
-
-VA - The Best Russian Rock Hits - 1 (2020) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939199.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Tokio - Кто Я Без Тебя 4:09
-002 Lumen - Три Пути 4:36
-003 Агата Кристи - Как На Войне 4:05
-004 Би-2 - Полковнику Никто Не Пишет 4:52(   Читать дальше...   )Жанр: RockПродолжительность: 16:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1D51539D371C0B80232B74F3B102273689A7E49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985340   (935537) от 11.02.2016
-
-VA - Are You Ready? (Vol.22) (2016) [MP3|128 - 320 кб/с] <Nu Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Doomfinger - Thirty-Four
-02 - Brik - Betrayed
-03 - Cope - Reflection
-04 - Stilldown - Angel By Design(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 01:53:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DFBEFF421FA87D817CBEDA61104DE5A53A88D59
 ```
 
 https://mybot314.ru/tekegram_catalog/

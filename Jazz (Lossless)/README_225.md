@@ -1,3 +1,61 @@
+###  Публикация: 1335182   (289882) от 01.11.2019
+
+June Christy - Cocktail Hour 1950-e - 1960-e (2001) 2CD, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289882.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Tampico [2:44]
+02. I Got the Sun in the Morning [2:59]
+03. Mean to Me [1:56](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5AC04A6F71F4827613DB7AB7D714512ED10E5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335263   (289877) от 01.11.2019
+
+The Plastic Waste Band - Crushed (2019) [FLAC|Lossless|tracks + .cue] <Fusion / Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289877.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Crushed. 4:06
+2. Strada Cuza Voda. 6:04
+3. Faith. 7:45
+4. Eve. 6:59(   Читать дальше...   )Жанр: Fusion Jazz-RockПродолжительность: 00:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AB6A58CF635C7E5A2A6D98FC584E9608257A555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1080281   (288602) от 07.12.2016
 
 Victor Feldman - Suite Sixteen (1955) [APE|Lossless|image + .cue] <Cool, West Coast Jazz, Mainstream Jazz>
@@ -686,62 +744,6 @@ Dave Brubeck - Blue Rondo A La Turk (1982) 2005, Delta Music [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:169B5385B7E7353D4EC8A4F07075738AEA22E3E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186506   (286510) от 25.11.2017
-
-Lester Young Trio with Nat King Cole and Buddy Rich (1943, 1944, 1946) 1994, Verve [FLAC|Lossless|image + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to the Land [03:55]
-02. I Cover the WaterfrontЖанр: SwingПродолжительность: 01:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:639E26889FD1A8FD5D81D943B47B36DFAD13CB5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335566   (286346) от 03.11.2019
-
-Mel Torme - Cocktail Hour 1940-e - 1950-e (1999) 2CD, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286346.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. What Is This Thing Called Love [3:01]
-02. Little White Lies [3:02]
-03. Get Out of Town [3:15](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38C209FE75B7C5B9B4161D7185C53628DF9F02B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

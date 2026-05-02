@@ -1,3 +1,177 @@
+###  Публикация: 1720081   (110386) от 02.05.2024
+
+Shakatak - Time Of My Life (1988) (Extended Mix) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110386.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Time Of My Life (Extended Mix)
+B1 Slow Dancing
+B2 Mr.Manic And Sister Cool (Coolest Cuts)
+(   Читать дальше...   )Жанр: Electronic, Synth-popПродолжительность: 00:15:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DBE8080503F300D1318982414D7D84E6B63567B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720538   (110246) от 04.05.2024
+
+U.D.O. - We Are One (2020) Collaboration[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110246.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Pandemonium
+A2 We Are One
+A3 Love And Sin
+A4 Future Is The Reason Why(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:15:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86529A13DDBC643461F0CB523B436A114F32D560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720697   (110228) от 04.05.2024
+
+Mekong Delta - Studio Albums (6 releases) (1996-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110228.jpg" />
+</div>
+
+
+###  Подробнее
+
+Mekong Delta — немецкая группа, играющая прогрессивный трэш-метал, образованная в середине 80-х годов из участников других групп. Некоторые имена, использованные в их релизах, были псевдонимами, чтобы защитить их настоящую личность. Основатель группы - владелец звукозаписывающей компании AAAARRG, басист Ральф Хуберт, он же «Бьёрн Эклунд». Остальные музыканты пришли (   Читать дальше...   )1996 - Pictures At An Exhibition
+2007 - Lurking Fear
+2010 - Wanderer On The Edge Of Time
+2012 - IntersectionsЖанр: Progressive Thrash MetalПродолжительность: 05:23:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44AE7492408E445D7280CF7B12FBDC01224062A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720542   (110218) от 04.05.2024
+
+U.D.O. - Game Over (2021) Limited Edition,2022, AFM Records[FLAC|24/192|tracks|Vinyl-Rip]  <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110218.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Fear Detector
+A2 Holy Invaders
+A3 Prophecy
+A4 Empty Eyes(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:09:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B65DBAAD63F95508154A788EC552207CBC2A91
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720647   (110212) от 04.05.2024
+
+Nick Kamen - Nick Kamen (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110212.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Win Your Love
+A2 Open The Door To Your Heart
+A3 Nobody Else
+A4 Into The Night(   Читать дальше...   )Жанр: Synth-popПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:899AA2E0691E2EE87FCD1B0B268DC648237D016C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721475   (110038) от 07.05.2024
+
+Broken Homes - Broken Homes (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, Power Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110038.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 In Another Land
+A2 An L.A. Rain
+A3 Out In The Fields
+A4 Painless Saturday(   Читать дальше...   )Жанр: Rock, Power PopПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CF3344BB4D85B9F6EAF97231318CE41197FF5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721877   (109902) от 09.05.2024
 
 Nancy Martinez - Not Just The Girl Next Door (1987) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electro, Synth-pop>
@@ -571,180 +745,6 @@ Arrayan Path (ранее Arryan Path) — проект певца и автор�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7DAF4E9EF2F2CF14A41AB9D6E9E96B4DF6F1EC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726021   (108796) от 27.05.2024
-
-VA - Metal Massacre 07 (1986) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Speed Metal, Heavy Metal, Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108796.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Heretic - Impulse
-A2 - Sentinel Beast - Sentinel Beast
-A3 - Flotsam And Jetsam - I Live, You Die
-A4 - Krank - Rented Heat(   Читать дальше...   )Жанр: Thrash, Speed Metal, Heavy Metal, HardcoreПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9002D80ECC9982273D32EE09C88DE0632ED5102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726271   (108789) от 27.05.2024
-
-VA - Metal Massacre 08 (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Thrash>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108789.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Sacred Reich - Ignorance
-A2 - Viking - Hellbound
-A3 - Overlorde - Keeper Of The Flame
-A4 - Fatal Violence - Violence Is Golden(   Читать дальше...   )Жанр: Heavy Metal, ThrashПродолжительность: 00:48:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B36F4B727F418FDC3BC9C4B9D35C444900863152
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726066   (108774) от 27.05.2024
-
-Lyle Lovett - Pontiac (1987) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108774.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 If I Had A Boat
-A2 Give Me Back My Heart
-A3 I Loved You Yesterday
-A4 Walk Through The Bottomland(   Читать дальше...   )Жанр: Rock, Folk, CountryПродолжительность: 00:36:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED76F9235E230ED312C6C4DC38FDC9C8C0E3A27E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726511   (108754) от 28.05.2024
-
-VA - Metal Massacre 09 (1988) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108754.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Banshee - We Want You
-A2 - Oliver Magnum - Old World Nites
-A3 - Toxik - Wasteland
-A4 - Dissenter - Blood Under Heaven(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65DABCD965CE38B96A0D5832E146B763619C5EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726757   (108664) от 30.05.2024
-
-Silly - Bataillon D'Amour (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop Rock, Electro, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108664.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Bataillon D'Amour
-A2 Josef & Maria
-A3 Schlohweisser Tag
-A4 EKG(   Читать дальше...   )Жанр: Pop Rock, Electro, New WaveПродолжительность: 00:39:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150177370F96B72B4AE71AE725FB293B084562DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1727094   (108590) от 01.06.2024
-
-P.O.D. (Payable On Death) - Studio Albums (14 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108590.jpg" />
-</div>
-
-
-###  Подробнее
-
-P.O.D. (сокращение от Payable on Death) — американская рок-группа из города Сан-Диего, Калифорния. Работает в стилях ню-метал, альтернативный метал, христианский метал, добавляя элементы рэгги.1994 - Snuff The Punk
-1996 - Brown
-1999 - The Fundamental Elements Of Southtown
-2001 - Satellite(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 11:38:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3674AFD02131E9454ACC28B6741FC99BBF13D2E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

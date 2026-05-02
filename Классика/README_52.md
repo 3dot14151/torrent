@@ -1,3 +1,38 @@
+###  Публикация: 467524   (82243) от 15.03.2012
+
+Иоганн Себастьян Бах - Магнификат |Magnificat in D major BWV 243 (1984) [MP3|192 кб/с]<Classic>
+
+>>Классика
+>>Вокал
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82243.jpg" />
+</div>
+
+
+###  Подробнее
+
+001-Magnificat
+002-Et exultavit spiritus meus
+003-Quia respexit humilitatem
+004-Omnes generationes
+005-Quia mihi fecit magna
+006-Et misericordia
+007-Fecit potentiam
+008-Deposuit potentes
+009-Esurientes implevit bonis
+010-Suscepit Israel(   Читать дальше...   )1984Жанр: ClassicПродолжительность: 00:27:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B141A29E295432F3BA03E959197383B957D5F53E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467879   (82113) от 14.03.2012
 
 Jon Schmidt & Steven Sharp Nelson - The PianoGuys: Hits Volume I (2012) [MP3|320 кб/с]<Piano, Cello, Instrumental>
@@ -742,35 +777,6 @@ Hauser, London Symphony Orchestra - Classic II (2024) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F75726D1B6E10C9170B2B3568F60EEADD27959D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1724574   (55929) от 20.05.2024
-
-VA - The Essentials: Classical Crossover (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Классика (сборники) (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 No. 7, Ständchen (6:04)
-02. Sergey Bryukhno - Cinematic (2:47)
-03. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
-04. The AI Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:15:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17765DFA5EFED270B60973D57F46512548917916
 ```
 
 https://mybot314.ru/tekegram_catalog/

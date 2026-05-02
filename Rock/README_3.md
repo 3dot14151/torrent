@@ -1,3 +1,32 @@
+###  Публикация: 1442676   (1036353) от 26.01.2021
+
+Roland Gassin - Born In The Seventies (2021) [MP3|320 Kbps] <Progressive Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shine On (02:39)
+ 02. Rocking With Ray Charles (05:42)
+ 03. The Preacher (05:10)
+ 04. Better Days Ahead (04:21)(   Читать дальше...   )Жанр: Progressive Rock, Classic RockПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C1A62FBF259283D798F41FE2B653C0E6DD6CF05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1442928   (1036345) от 26.01.2021
 
 Schoenherz - What A Night (1978) LP [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
@@ -716,35 +745,6 @@ Amrakus - A Space Rock Opera (1982) LP [MP3|320 Kbps] <Electronic, Space Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFFECFA9FC64920A0D1D4932A51975C66F0D8F60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448847   (1030144) от 20.02.2021
-
-Whitesnake & Chris Collier - The BLUES Album (2020 Remix) (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030144.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Steal Your Heart Away (2020 Remix)
-2. Good To Be Bad (2020 Remix)
-3. Give Me All Your Love (2020 Remix)
-4. Take Me Back Again (2020 Remix)(   Читать дальше...   )Жанр: RockПродолжительность: 01:18:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A38D1F087A63DE5C735CD49B571E0D3481652AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

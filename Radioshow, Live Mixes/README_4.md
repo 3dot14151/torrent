@@ -1,3 +1,61 @@
+###  Публикация: 1493580   (894223) от 04.09.2021
+
+Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, Sound Bar Chicago, United States 2021-08-14) (2021-09-02) [MP3|320 Kbps] <Progressive House, Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID
+02. Estiva - Metamorphoses
+03. Jerome Isma-Ae & Alastor - Timelapse
+04. LTN - When it Rains(   Читать дальше...   )Жанр: Progressive House, Trance, TechnoПродолжительность: 02:00:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3769142D923094B8AB3963ADBED119C72FB189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101818   (892893) от 08.02.2017
+
+Aurosonic - Yearmix 2015-2016 (2016) [MP3|320 Kbps] <Progressive Trance, Melodic Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892893.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) Aurosonic & Sue McLaren - Captured By Gravity (Intro Mix)
+2) Raz Nitzan feat. Jess Morgan - Not Like Everyone (Aurosonic progressive mix)
+3) Arctic Lake - Limits (Aurosonic progressive mix)
+4) Headstrong & Aurosonic ft. Stine Grove - I Wont Fall (original mix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 01:30:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D469822F56D6128826CF9627DCE42A2D3056FE5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494687   (887852) от 08.09.2021
 
 VA - Luminosity Beach Festival, Netherlands (2021) [MP3|128-320 Kbps] <Trance, Progressive House, Hard Dance>
@@ -690,64 +748,6 @@ Juicy M @ Cream Arena, Creamfields UK, United Kingdom 2021-08-26:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AECCB6F9B38856840BCF7107E47A6B1AB6C3AB4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196676   (822425) от 03.01.2018
-
-VA - Ori Uplift - Uplifting Only 255 (Tune of the Year Vote - Top 25 Countdown) (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.RAM & Arctic Moon with Stine Grove - A Billion Stars Above (Extended Mix)
-02.illitheas - Moments with You (Maratone Remix)
-03.Manuel Rocca & Illitheas - Enchanted
-04.Afternova feat. Andrea Becker - For You (Trance Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:17:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF736E282606A586DB41DD2E65C1A27D424C68ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196853   (819198) от 05.01.2018
-
-VA - Markus Schulz - Global DJ Broadcast - Classics Showcase 2018 (2017) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sasha - Arkham Asylum
-02. Jam & Spoon - Follow Me
-03. Killahurtz - West on 27th (Original Subway Mix)
-04. Schiller - Ruhe (Humate Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 02:00:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31DFF9A7A7EE58692AEB79F04F973287AFF64E41
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,90 @@
+###  Публикация: 1333688   (301160) от 26.10.2019
+
+Helene (Hélène) Rolles - Le miracle de l'amour (1994) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moi aussi je vous aime (4:06)
+ 02. Imagine (4:38)
+ 03. À force (3:42)
+ 04. Toujours par amour (2:49)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A349903A43C475482858DBA84D5395CEA27C652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960187   (300801) от 01.12.2015
+
+VA - Afisha Hold Music (2004) [FLAC|tracks+.cue]<Chanson, Ballad, Schlager>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Françoise Hardy - Comment te dire adieu (2:26)
+02. Jeanette - Le temps de mon pere (3:21)
+03. Nino Ferrer - Madame Robert (3:06)
+04. Dori Ghezzi - Casatschok (2:53)(   Читать дальше...   )Жанр: Chanson, Ballad, SchlagerПродолжительность: 01:05:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A5AB22436B79F3C6ECB210FD212A32F9E656C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334006   (298834) от 27.10.2019
+
+Михаил Бондарев и Вилли Токарев - Снегопады (2007) [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Снегопады"
+02. Песенка о Москве
+03. Я нумер уно...
+04. Мой маленький Джамбул(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDCF5EA54EE8A8CE6E947D8097390B9E8549B07F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334122   (298581) от 27.10.2019
 
 Helene (Hélène) Rolles - A force de solitude (1997) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
@@ -658,97 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:085EF81295F657DBC24FC958126A55217882B5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083649   (273633) от 16.12.2016
-
-Колыма - Дембеля (2005) [FLAC|Lossless|image + .cue] <Shanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273633.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гастролёры
-02. Как жаль
-03. Возвращение
-04. Завидово(   Читать дальше...   )Жанр: ShansonПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAFA967B921029CEB1267F2B5C0F355D64DC58D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188908   (273086) от 03.12.2017
-
-Ирина Круг - Лучшие дуэты (2017) [MP3|320 Kbps] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тебе, моя последняя любовь (feat. Михаил Круг)
-02. Встретились глаза (feat. Михаил Круг)
-03. Вот и всё (feat. Михаил Круг)
-04. Приходите в мой дом (feat. Михаил Круг)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47474A934E69D141B065826879DAD2592FA77693
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 426511   (272601) от 23.12.2011
-
-Братья Радченко - 7 альбомов (2000-2011) [MP3|320 kbps]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272601.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы:
-2000 - Домик окнами в сад
-2000 - Туман -туманище
-2002 - Два друга, два брата
-2002 - Зорька алая
-2004 - Иволга
-2005 - Избранное
-2011 - Grand Collection2000-2011Жанр: ШансонПродолжительность: 07:49:02
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

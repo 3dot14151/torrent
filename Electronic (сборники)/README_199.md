@@ -1,3 +1,61 @@
+###  Публикация: 1672471   (169248) от 28.10.2023
+
+VA - Dark Electronic Symphony (2023) [MP3|320 Kbps] <Darkwave, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rosegarden Funeral Party - Black Waters' Embrace
+02. Cut Hands - Witness The Spread Of The Dream
+03. Terminal - The Course Of Empire
+04. Precenphix - Postdrome(   Читать дальше...   )Жанр: Darkwave, ElectronicПродолжительность: 05:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CF5E0061625223D45281E4992183B4AF4630D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672475   (169180) от 28.10.2023
+
+VA - Soothing Harmonies (2023) [MP3|320 Kbps] <Lounge, Downtempo, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Illinformed - Hear About It
+02. Jasmon - The Fog Is Lifting
+03. Mama Aiuto - Ghost Town
+04. Marc Hartman - Cloudbuster(   Читать дальше...   )Жанр: Lounge, Downtempo, Chillout, RelaxПродолжительность: 04:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D321D295E95B49EDF3CE2AE988567DD2BA0A5BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1431224   (168892) от 12.12.2020
 
 VA - Record Super Chart 666 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -687,64 +745,6 @@ VA - December Electro House Exclusive Megamixes (2019) [MP3|320 Kbps] <House, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B68E284895826398178D954DCF5259B3B33447B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345981   (165222) от 17.12.2019
-
-VA - Hi Games Vol1 Mix (Chiptune Edition) (2018) [MP3|320 Kbps] <Chiptune>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zalza - Nudel Soppa Blues
-02. Anamanaguchi - Planet
-03. Street of Rage - Round 3
-04. Jredd - Neon Alley(   Читать дальше...   )Жанр: ChiptuneПродолжительность: 02:04:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6E765BCE30E66EF5B6FD8E3EE2C010736EB2678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345958   (165147) от 17.12.2019
-
-VA - Beautiful Sound Of Trance Music (2019) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165147.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Max Trumpetz - Free For All (Radio Edit)
-002. A.L.Y.S. - Arctic Stream (Air Project Remix)
-003. Fractal Rider - Disorder
-004. Roxy June - Let Them Fight (Original Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 12:22:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41C566BAB01BAFDF3F10DC559EC44FCAEED6EF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

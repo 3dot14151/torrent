@@ -1,3 +1,59 @@
+###  Публикация: 1186506   (286510) от 25.11.2017
+
+Lester Young Trio with Nat King Cole and Buddy Rich (1943, 1944, 1946) 1994, Verve [FLAC|Lossless|image + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to the Land [03:55]
+02. I Cover the WaterfrontЖанр: SwingПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:639E26889FD1A8FD5D81D943B47B36DFAD13CB5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1335566   (286346) от 03.11.2019
+
+Mel Torme - Cocktail Hour 1940-e - 1950-e (1999) 2CD, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286346.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. What Is This Thing Called Love [3:01]
+02. Little White Lies [3:02]
+03. Get Out of Town [3:15](   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:25:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C209FE75B7C5B9B4161D7185C53628DF9F02B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263723   (286294) от 20.11.2018
 
 Kazumi Watanabe First - Infinite (1971) 2011, Think! Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -688,64 +744,6 @@ Bert Kaempfert & sein Orchester - Seine größten Erfolge (1993) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:836BC4E9626B1EDB1820EE10DF122E5BD42B8C7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081549   (283034) от 10.12.2016
-
-Willie Colon & Ruben Blades - Siembra (1978) 1991, Musicavision[FLAC|Lossless|tracks + .cue] <Latin Jazz, Salsa>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Plastico [06:40]
- 02.Buscando Guayaba [05:47]
- 03.Pedro Navaja [07:25]
- 04.Maria Lionza [05:31](   Читать дальше...   )Жанр: Latin Jazz, SalsaПродолжительность: 00:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:504D6D30578E62511E9A9A01BE96F975CD7C42E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264160   (282956) от 22.11.2018
-
-Isao Suzuki Trio / Quartet - Blow Up (1973) 2013, Think! Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aqua Marine [4:58]
-02. Everything Happens to Me [5:47]
-03. Blow Up [7:30]
-04. Like It Is [5:36](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F671DCFABAB51EDB8A1490BA633BF600155AC081
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,25 @@
-###  Публикация: 1722426   (109703) от 11.05.2024
+###  Публикация: 1716983   (111252) от 19.04.2024
 
-VA - Deep House Summer Charts 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+Whalefall - Foxblood (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Alternative Metal>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109703.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111252.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. CJ Stone, Voodoo, Serano & Rocco - Overload 2024 (02:52)
-02. Nora & Chris - Baby Cherie (feat Jorik Burema) (02:14)
-03. Dj Soulstar - Think Too Much (02:55)
-04. Wallace - Memories (02:51)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 02:05:39
+01. Time Flies In July [00:04:30]
+02. Charlatan Blues [00:03:37]
+03. Dead Languages [00:04:02]
+04. Gallows Song [00:04:03](   Читать дальше...   )Жанр: Post-Hardcore | Metalcore | Alternative MetalПродолжительность: 00:36:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F1C23C46F18DB732271DBBB99F397600216A2AAC
+magnet:?xt=urn:btih:6609F0781A721DEB429C5721B6A52B05FA57EB89
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722393   (109702) от 11.05.2024
+###  Публикация: 1717380   (111251) от 19.04.2024
 
-Richard Marx - Rush Street (1992) Unofficial Release [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soft Rock, Pop Rock>
+Vanden Plas - The Empyrean Equation of The Long Lost Things (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
 
 >>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111251.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Take This Heart
-A2 Keep Coming Back
-A3 Big Boy Now
-A4 Calling You(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 00:42:42
+01. The Empyrean Equation Of The Long Lost Things [00:08:01]
+02. My Icarian Flight [00:05:59]
+03. Sanctimonarium [00:10:16]
+04. The Sacrilegious Mind Machine [00:08:37](   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:55:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7B8781127FD652CFA383F36639CBF0CA6FB1AEA
+magnet:?xt=urn:btih:2D2BE8E1F7705D847AEA2C0E09F8CC5EE430A89C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722397   (109701) от 11.05.2024
+###  Публикация: 1716945   (111250) от 19.04.2024
 
-Gigi Gryce - The Rat Race Blues (1960) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Bop>
+Lights & Motion - Wonder (2024) [FLAC|Lossless|WEB-DL|tracks] <Post-Rock, Ambient>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111250.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Rat Race Blues [6:37]
-02. Strange Feelin' [7:48]
-03. Boxer's Blues [7:02]
-04. Blues in Bloom [7:47](   Читать дальше...   )Жанр: Hard Bop, BopПродолжительность: 00:40:24
+01. Wonder [00:02:40]
+02. Tunnel [00:02:43]
+03. Scars [00:03:02]
+04. Armor [00:03:24](   Читать дальше...   )Жанр: Post-Rock, AmbientПродолжительность: 00:37:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80E1C01254EE3F398BE8411EBA9F3070B454D065
+magnet:?xt=urn:btih:77F8847EC403837DD655A38C78484AD6F71F8297
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +85,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722396   (109700) от 11.05.2024
+###  Публикация: 1717332   (111249) от 19.04.2024
 
-David "Fathead" Newman, Ellis Marsalis, Cornell Dupree - Return To The Wide Open Spaces (1990) Amazing Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+С. Дж. Беннет | Следствие ведет Ее величество (Книга 1). Виндзорский узел (2021) [MP3, Ксения Громова]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111249.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Introduction [1:27]
-02. Buster's Tune [5:40]
-03. Hard Times [8:34]
-04. 13th Floor [7:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:07:50
+Званый вечер в Виндзорском замке прошел в русском стиле. Изумительный молодой пианист Бродский исполнил Рахманинова, а балерины станцевали вариации из «Лебединого озера». Гости, среди которых было также много людей, связанных с Россией, от семейной четы олигархов до оскароносной актрисы с русскими корнями, наслаждались превосходными блюдами и неторопливой беседой. (   Читать дальше...   )Жанр: детектив, триллерИздательство: Аудиокнига (АСТ)Продолжительность: 09:09:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BA5BF720CE12F416158E4DF596DE1C207E3F3ED8
+magnet:?xt=urn:btih:6A4855164467484AE87C240C1DC2691E4500EDCE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,25 +111,301 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722501   (109699) от 11.05.2024
+###  Публикация: 1716815   (111248) от 19.04.2024
 
-Драма эпохи рыцарства / Et Drama fra Riddertiden (1907) WEBRip [H.264/720p]
+Amalgama - Mastermind (2024) [MP3|320 Kbps] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111248.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Proton [00:00:56]
+02. Dark Lacroix [00:04:23]
+03. Legions of Steel [00:03:45]
+04. Amulang [00:03:29](   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7CC3E9E0E90AE058ECFEBDF64462A5062BE426
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717220   (111247) от 19.04.2024
+
+Кровь в обмен на пыль / Blood for Dust (2023) WEB-DLRip [H.264/1080p] [звук с ТS] [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111247.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коммивояжер Клифф ради семьи залезает в долги и стремительно идет ко дну. В отчаянной надежде он соглашается сотрудничать с Рикки, не подозревая, что именно тот перевозит. Теперь его задача - выйти сухим из воды - в бизнесе, где это еще никому не удавалось.Производство: США / BondIt, Good Wizard, Gramercy Park Media, JaiD7 PicturesЖанр: боевик, триллер, криминалРежиссер: Род БлэкхёрстАктеры: Джош Лукас, Кит Харингтон, Скут Макнэри, Итан Сапли, Стивен Дорфф, Нора Зеетнер, Крис Маллинэкс, Трэвис Брюэр, Эмбер Роуз Мейсон, Эверетт БланкПеревод: Дублированный (СиПиАй Филмз / CPI Films, звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:13Реклама: Присутствуют вставки аудио и видео рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717340   (111246) от 19.04.2024
+
+CudaText 1.213.0.1 Portable + addons [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111246.jpg" />
+</div>
+
+
+###  Подробнее
+
+CudaText — абсолютно бесплатный мультиплатформенный редактор текста, но скорее, предназначен для написания кода. Как и все современные редакторы кода, поддерживает подсветку синтаксиса и готовые блоки кода для быстрой вставки готовых последовательностей. На данный момент программа поддерживает полторы сотни различных языков программирования.
+Дополнительно, возможности (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60F58DBCFEED66125D145179B5F5765DA58030B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717366   (111245) от 19.04.2024
+
+VA - Black Hole Trance Music 04-24 (2024) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johan Gielen & Arkayne - Save Face (Airscape Extended Remix) [4:57]
+02. Ciaran McAuley - Love Heals (Ronski Speed Extended Remix) [7:28]
+03. Tastexperience & Sara Lones - Upside Down (Extended Mix) [5:09]
+04. Ghost Etiquette & Cora - B4U (Extended Mix) [5:30](   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 02:36:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE1437A1FBF17F9CA2D44F01A7ECE3F10C90469
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717276   (111243) от 19.04.2024
+
+Лица / Faces (1968) BDRip [H.264] [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111243.jpg" />
+</div>
+
+
+###  Подробнее
+
+Состоятельный молодой бизнесмен Ричард Форст женат на Марии уже 14 лет. Их брак переживает не лучшие времена. В конце концов, супруги решают поискать забытую остроту ощущений на стороне, и однажды вечером Ричард оставляет Марию, чтобы провести ночь с проституткой Дженни. Мария не унывает и отправляется с подругами в ночной клуб, где знакомится с молодым человеком (   Читать дальше...   )Производство: СШАЖанр: драмаРежиссер: Джон КассаветисАктеры: Джон Марли, Джина Роулендс, Линн Карлин, Сеймур Кэссел, Фред Дрэйпер, Вэл Эвери, Дороти Гулливер, Джоэнн Мур Джордан, Дарлен Конли, Джин Дарфлёр, Элизабет ДирингПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0202DB1099C0ECD766784C8628F05BB46262BF55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716974   (111242) от 19.04.2024
+
+Letters Sent Home - Forever Undone (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthquake [00:03:34]
+02. Request Denied [00:02:44]
+03. Ignorance [00:03:21]
+04. Pedestal [00:02:45](   Читать дальше...   )Жанр: Alternative Rock, Female VocalsПродолжительность: 00:31:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A3D2B006CD8546D22548F286C847DD78EB4C78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717330   (111241) от 19.04.2024
+
+Слишком поздний блюз / Too Late Blues (1961) BDRip [H.264] [VO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111241.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джон по прозвищу "Призрак", принципиальный музыкант, предпочитает играть блюз в парке для птиц, нежели идти на творческий компромисс. Однако когда Джон встречает прекрасную певицу Джесс Полански и влюбляется в неё, всё меняется: Джесс встаёт между блюзменом и его товарищами по группе, и Джон забывает о своих иллюзиях, отправляясь на поиски славы...Производство: США / Paramount PicturesЖанр: драмаРежиссер: Джон КассаветисАктеры: Бобби Дарин, Стелла Стивенс, Эверетт Чэмберс, Ник Дэннис, Винс Эдвардс, Вэл Эйвери, Мэрлин Кларк, Джеймс Джойс, Руперт Кросс, Марио ГаллоПеревод: любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:40:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:184CF3808DAB01EC57B660962DE67C803DDBC8F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717342   (111240) от 19.04.2024
+
+VA - Rooftop Lounge, Vol. 4 (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill House, Pop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dual Sessions - Go Back In Time (2:06)
+02. Groove Da Praia,Anakelly - The Rhythm Of The Night (Ronan Remix) (2:25)
+03. Gavin Moss,Urban Love,Tom Polo - Follow Me (2:22)
+04. Stereo Dub,Karen Souza - Who Can It Be Now? (Ronan Remix) (2:44)(   Читать дальше...   )Жанр: Lounge, Chill House, PopПродолжительность: 01:10:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B0D92CEF1863023B08D395AE55E88F31F858471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717388   (111239) от 19.04.2024
+
+Various Artists - The Power of the Heart: A Tribute to Lou Reed (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keith Richards - I'm Waiting for the Man (4:15)
+02. Maxim Ludwig - I Can't Stand It (2:58)
+03. Rufus Wainwright - Perfect Day (3:32)
+04. Joan Jett and the Blackhearts - I'm So Free (2:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6E87412DBA3F1B2F8EF33083A5EE8833649E7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717219   (111238) от 19.04.2024
+
+Кровь в обмен на пыль / Blood for Dust (2023) WEB-DLRip [H.264] [звук с ТS] [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Коммивояжер Клифф ради семьи залезает в долги и стремительно идет ко дну. В отчаянной надежде он соглашается сотрудничать с Рикки, не подозревая, что именно тот перевозит. Теперь его задача - выйти сухим из воды - в бизнесе, где это еще никому не удавалось.Производство: США / BondIt, Good Wizard, Gramercy Park Media, JaiD7 PicturesЖанр: боевик, триллер, криминалРежиссер: Род БлэкхёрстАктеры: Джош Лукас, Кит Харингтон, Скут Макнэри, Итан Сапли, Стивен Дорфф, Нора Зеетнер, Крис Маллинэкс, Трэвис Брюэр, Эмбер Роуз Мейсон, Эверетт БланкПеревод: Дублированный (СиПиАй Филмз / CPI Films, звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:41:13Реклама: Присутствуют вставки аудио и видео рекламы
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717283   (111237) от 19.04.2024
+
+Лица / Faces (1968) BDRip [H.264/720p] [MVO]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Совсем небольшой ролик. Во времена мушкетеров было сплошное благородство и рыцарство, всякие там "мерси-пардон мадам, вызываю Вас на дуэль!" Ну, и все такое. Но ведь и любовь и страсть тогда тоже были. А как говорится, в любовной войне правил нет. И если какой-то заезжий кавалер со шпагой у тебя невесту отбивает, какое уж тут рыцарство...Производство: Дания, Nordisk Film KompagniЖанр: короткометражный, драма, немое киноРежиссер: Вигго ЛарсенАктеры: Вигго Ларсен, Густав Лунд, Clara NebelongЯзык озвучки: немойСубтитры: отсутствуютПродолжительность: 00:06:53
+Состоятельный молодой бизнесмен Ричард Форст женат на Марии уже 14 лет. Их брак переживает не лучшие времена. В конце концов, супруги решают поискать забытую остроту ощущений на стороне, и однажды вечером Ричард оставляет Марию, чтобы провести ночь с проституткой Дженни. Мария не унывает и отправляется с подругами в ночной клуб, где знакомится с молодым человеком (   Читать дальше...   )Производство: СШАЖанр: драмаРежиссер: Джон КассаветисАктеры: Джон Марли, Джина Роулендс, Линн Карлин, Сеймур Кэссел, Фред Дрэйпер, Вэл Эвери, Дороти Гулливер, Джоэнн Мур Джордан, Дарлен Конли, Джин Дарфлёр, Элизабет ДирингПеревод: профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 02:09:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B269C604909E3EB6E6F39688CBE70EDFA93B474C
+magnet:?xt=urn:btih:5D6766D47531223CC3C86D7015B518A7FA7B3597
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +413,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722464   (109698) от 11.05.2024
+###  Публикация: 1717300   (111236) от 19.04.2024
 
-Арбат - Голубоглазая (2006) [WavPack|Lossless|image + .cue] <Pop>
+Максим Бачинский | Музыкальная среда (2014-2015) [MP3, Максим Бачинский]
 
->>Pop
->>Отечественная поп-музыка (Lossless)
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-10. Голубоглазая
- 02. Арбат
- 03. Мосты
- 04. Олигархи(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:37
+В наше время зародилось огромное количество музыки, и всю ее не переслушать, чтобы выбрать лучшие песни. Для этого существует наш подкаст - Музыкальная Среда. Наш подкаст является фильтром в мире музыки. Мы отбираем самое лучшее, крутое, прекрасное из мира музыки. Каждую среду Музыкальная Среда помпезно и с конфетти выходит на podfm и itunes. Для нашего подкаста (   Читать дальше...   )Жанр: ПодкастИздательство: МОТОРАДИОПродолжительность: 17:54:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A2826C200A7D3123D9CFD41CBA30DDD3BFEDEC44
+magnet:?xt=urn:btih:767B9288A9801FDEF7DC42DC5E65A97AE218E9BD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,27 +439,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722512   (109697) от 11.05.2024
+###  Публикация: 1717375   (111235) от 19.04.2024
 
-Виктор Голявкин | Обыкновенные дела (2018) [MP3, Алла Човжик]
+VA - Black Hole Trance Music 04-24 (2024) [MP3|320 Kbps] <Trance>
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия/Цикл: Детская аудиокнига.
-Виктор Владимирович Голявкин (1929–2001) – русский советский детский писатель-юморист, художник, короткими весёлыми рассказами которого зачитывались не только дети, но и взрослые.
-Студия «АРДИС» представляет повесть известного российского писателя Виктора Голявкина «Обыкновенные дела», рассказывающую об обыкновенном, нет! – необыкновенном (   Читать дальше...   )Жанр: Русская литература для детей, повестьИздательство: Студия «АРДИС»Продолжительность: 04:19:08
+01. Johan Gielen & Arkayne - Save Face (Airscape Extended Remix) [4:57]
+02. Ciaran McAuley - Love Heals (Ronski Speed Extended Remix) [7:28]
+03. Tastexperience & Sara Lones - Upside Down (Extended Mix) [5:09]
+04. Ghost Etiquette & Cora - B4U (Extended Mix) [5:30](   Читать дальше...   )Жанр: TranceПродолжительность: 02:36:22
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1231422CE6A9F8DC003455D4452BCE8A791AAC4C
+magnet:?xt=urn:btih:A700B14117FFBC1A1ECE496B0C6F7731988C2203
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -197,28 +468,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722455   (109696) от 11.05.2024
+###  Публикация: 1717252   (111234) от 19.04.2024
 
-Villagers - That Golden Time (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
+Microsoft Visual Studio 2019 Enterprise 16.11.35 (Offline Cache) [Ru/En]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111234.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Truly Alone (00:03:36)
-02 - First Responder (00:04:39)
-03 - I Want What I Don't Need (00:03:35)
-04 - You Lucky One (00:04:54)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:44:00
+Visual Studio Enterprise 2019 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления имиЯзык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14B50CA680B795D23A7EA420A50C83EAA7A3808C
+magnet:?xt=urn:btih:B6B10BDB068669777D9175894A963EA739F950C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -226,195 +494,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722526   (109695) от 11.05.2024
+###  Публикация: 1717135   (111233) от 19.04.2024
 
-Виктор Драгунский | Виктор Драгунский (2000) [MP3, Виктор Драгунский]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109695.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: «Мелодия – детям».
-Имя Виктора Драгунского знают дети в нашей стране и за рубежом. Он написал около ста историй из жизни мальчика Дениски. Эти истории, рассказанные, как говорил сам автор, «по секрету всему свету», известны читателям как «Денискины рассказы».
-В сборник вошли самые известные истории о Дениске Кораблеве, весёлом и добром мальчике, который (   Читать дальше...   )Жанр: Русская литература для детей, рассказИздательство: МФГУП «Фирма Мелодия»Продолжительность: 00:45:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC6505CAD6FBA253068E346BB331B19B8C086C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722399   (109694) от 11.05.2024
-
-Jackie McLean - Rhythm Of The Earth (1992) Antilles [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rhythm of the Earth [15:35]
-02. For Hofsa [4:12]
-03. Sirius System [6:44]
-04. The Explorers [7:58](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A2D04BE310E577EC7B85397AC7EECCC05F6BDF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722450   (109693) от 11.05.2024
-
-Ананда - No Title (2007) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Если знал бы ты...
- 02. Тайная печаль
- 03. Я полюблю
- 04. Лишь на минутку(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978DDCD1426DF2F33D7F350378EA7F9A2C6BAA80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722411   (109692) от 11.05.2024
-
-Пятеро на одного (11.05.2024) WEBRip [H.264/720p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52E9AC608F90450B79978F00388350FE1D635C59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722451   (109691) от 11.05.2024
-
-Анжелика Агурбаш - Любовь! Любовь? Любовь... (2009) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Слышишь. Я Так Тебя Люблю
- 02. Дождями
- 03. Голуби
- 04. Роза На Снегу(   Читать дальше...   )Жанр: PopПродолжительность: 00:44"51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F396E3A68E33D59FD87F763B73F22982CA1F3480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722473   (109690) от 11.05.2024
-
-MotoGP. Этап 05 из 21. Гран-при Франции. Квалификация (11.05.2024) WEBRip [H.264/1080p-LQ] [hand made 50fps]
-
->>Спорт и активный отдых
->>Авто, Мото
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109690.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 мая 2024, суббота. 11:50 МСК. Этап 5, Ле Ман. Гран-при Франции. КвалификацияЖанр: Спорт, мотогонкиСубтитры: ОтсутствуютПродолжительность: 00:57:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2599CFC4F1D0AC5313E4DE9C7A241A7C515BC914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722745   (109689) от 12.05.2024
-
-Soziedad Alkoholika - Confrontación (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Crossover>
+Atoll - Prepuce (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109689.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111233.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Control de masas
-02. Colapso final
-03. Somos contradicción
-04. Traición(   Читать дальше...   )Жанр: Thrash Metal, CrossoverПродолжительность: 00:43:09
+01. Cirrhosis For Dinner
+02. Knifed In The Butt
+03. The Circumciser
+04. Molotov Cock Tease(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:22:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1DF1E85BC909ED529E9451729FA250B6B09D3280
+magnet:?xt=urn:btih:F26634A6C462C85888CD85754E1E177C0C24819E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,28 +523,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722727   (109688) от 12.05.2024
+###  Публикация: 1717062   (111232) от 19.04.2024
 
-The Sweet Peach Band - A Conversation With (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Atoll - The Gathering Swarm (2016) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109688.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111232.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Your Melody (4:31)
-02. Same Old Feeling (4:53)
-03. 3 O'clock (5:18)
-04. Outta Sight (5:44)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:11
+01. Kingdom of Pestilence
+02. Necromorphosis
+03. Among the Writhing Masses
+04. Putrid Matriarch(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00: 26:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFC61FC3468A5C29996DD6D64977170EAB991452
+magnet:?xt=urn:btih:1C23FC2240C98FBF8643ACB2EC2D809AB56B612E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -451,28 +552,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722760   (109687) от 12.05.2024
+###  Публикация: 1717123   (111231) от 19.04.2024
 
-Juicy M - Live @ LOA, Luxembourg (2024-05-03) [MP3|320 Kbps] <Tech House, Techno>
+Atoll - Zoopocalypse (2019) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 
->>Electronic
->>Radioshow, Live Mixes
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109687.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Corey James, HIISAK, Steve Angello, Roland Clark vs. Age Of Love vs. Charlotte de Witte & Enrico Sangiuliano vs. Fatboy Slim vs. Dirty Funker - The Age Of Ultimate Underground Right Here Right Now (Juicy M Mashup)
-02. Valy Mo & Avi Sic - The Music
-03. Matt Guy - You Can Dance
-04. Noizu feat. Madge - Acid Rain(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 01:00:01
+01. Zoopocalypse
+02. Ripped Apart By Test Tube Monkeys
+03. Work Whorse
+04. HIV(e) 5(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:35:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AC8C7C0BAB36B326E653A96CA67EE763E4EBF9F
+magnet:?xt=urn:btih:F2D7F8779893C204D427670DABFD8D62E9677185
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,28 +581,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722584   (109686) от 12.05.2024
+###  Публикация: 1717137   (111230) от 19.04.2024
 
-Сто к одному (11.05.2024) WEBRip [H.264/1080p]
+Atoll - Inhuman Implants (2024) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109686.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
-Потому что сколько людей, столько и мнений.
-
-А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда "Свердловское ТВ" против команды "ТВ Екатеринбург"Язык озвучки: РусскийПродолжительность: 00:39:20
+01. Autonomic Autosarcophagy (03:03)
+02. Vomit Altar (03:14)
+03. Gay For God (04:06)
+04. Berdella Of Blood (03:26)(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:29:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6F3CDB0B243B47AE9DB2CEAA12EC69859FE3FE8
+magnet:?xt=urn:btih:84400E97C8F2F9B8155AA3A7B7B951C17B3AC337
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,28 +610,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722714   (109685) от 12.05.2024
+###  Публикация: 1717233   (111229) от 19.04.2024
 
-Real Blue - Silly slush swing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Elvin Jones - Earth Jones (1982) 2003, Quicksilver [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A touch of blue (2:30)
-02. Heartattack and vine (3:48)
-03. Silly slush swing (4:09)
-04. Wild women don't have no blues (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:54
+01. Three Card Molly [8:04]
+02. Is Seeing Believing? [7:58]
+03. The Top of the Middle [3:57]
+04. Earth Jones [7:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:42:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3100F7067E7C2761542624DD9B2F1915B53B2263
+magnet:?xt=urn:btih:DF39AC9FD0C01BDE90499C45DD4DDD646D062D04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -538,28 +639,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722587   (109684) от 12.05.2024
+###  Публикация: 1717235   (111228) от 19.04.2024
 
-Сто к одному (12.05.2024) WEBRip [H.264/1080p]
+Pat Martino - Starbright (1976) 2008, Warner Music [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109684.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"О чем спрашивает юноша, желая познакомиться с девушкой?", "Чему удивляется иностранец в России?" –невозможно найти какие-то единственно правильные ответы на подобные вопросы.
-Потому что сколько людей, столько и мнений.
-
-А цель игры "Сто к одному" – угадать наиболее распространенные ответы, которые дали случайные прохожие. А эти ответы (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-шоуУчастники: Команда Школа фигурного катания против команды Школа мюзиклаЯзык озвучки: РусскийПродолжительность: 00:39:07
+01. Starbright [3:42]
+02. Eyes [2:41]
+03. Law [3:38]
+04. Fall [2:07](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:33:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DEEFCCA4983ED30192F3D6193ECBFD50F3F3D26F
+magnet:?xt=urn:btih:3EC38836120658612B309AB418F31F02F7A1B76C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -567,26 +668,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722622   (109683) от 12.05.2024
+###  Публикация: 1717087   (111227) от 19.04.2024
 
-НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 4-й матч) Нью-Йорк Рейнджерс - Каролина Харрикейнз (11.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+Atoll - Fallout Frenzy (2017) [FLAC|Lossless|WEB-DL|tracks] <Brutal Death Metal>
 
->>Спорт и активный отдых
->>Хоккей
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109683.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-12 мая 2024, воскресенье. 02:00 МСК. 1/2 финала - Восток. 4-й матч. Стадион: Пи-Эн-Си-Арена (Роли, США), 19 074 зрителя (100% при вместимости 19 041)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Джесси Маркис (Буктуч, Канада)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:37:54
+01. The Rotten
+02. Forced Xenotransplantation
+03. Battlestar Gonorrhea
+04. Global Wyrming(   Читать дальше...   )Жанр: Brutal Death MetalПродолжительность: 00:30:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5BE449FFA5AE15FEC05148D3ABEDBA5DBB8301EE
+magnet:?xt=urn:btih:AF3C4C05B0805C85A1AEEC0D15AB6DC7D73831F5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -594,140 +697,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722548   (109682) от 12.05.2024
+###  Публикация: 1717237   (111226) от 19.04.2024
 
-VA - Metal Massacre (1982) Reissue, 1984, Metal Blade Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal, Hard Rock, Glam, Thrash>
+Paul Motian And The Electric Bebop Band - Flight Of The Blue Jay (1997) Winter & Winter [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109682.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111226.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 - Black N Blue - Chains Around Heaven
-A2 - Bitch - Live For The Whip
-A3 - Malice - Captive Of Light
-A4 - Avatar - Octave(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Glam, ThrashПродолжительность: 00:35:16
+01. Flight of the Blue Jay [3:06]
+02. Pannonica [4:33]
+03. Brad's Bag [5:51]
+04. Celia [5:07](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:49:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03F06BC36E1AA4F30250E1BC51530B826585CFD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722717   (109681) от 12.05.2024
-
-Seventh Sunset - Hard Rock Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank You for Your Payment (3:15)
-02. Songbird With a Six-String (3:55)
-03. Scars on my Tattoos (3:18)
-04. Red Headed Warrior (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE7DF1FF6F5EBA11140F15C732443428379BCA76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722751   (109680) от 12.05.2024
-
-Своя игра (12.05.2024) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109680.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2024 году программа "Своя игра" отмечает 30-летие. 30-го марта в новой студии начался новый юбилейный турнир, каждый участник которого будет олицетворять собой один год в истории "Своей игры". Турнир будет длиться 30 игр, и победитель получит один миллион рублей!
-
-Во второй круг юбилейного турнира вышли 18 участников из 30 — они продолжат борьбу (   Читать дальше...   )Производство: ООО "2В Медиа"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96ABF71060E53C5E2918C0EA714D776F3E7EDF56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722644   (109679) от 12.05.2024
-
-Закон и порядок / Law & Order (2008) HDTVRip [H.264/720p] (сезон 18, серии 1-18 из 18) FOX Crime
-
->>Зарубежные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109679.jpg" />
-</div>
-
-
-###  Подробнее
-
-В системе уголовного судопроизводства обвинение представляют две независимые, равные по значению инстанции - полиция расследующая преступления и прокурор, представляющий дело в суде.Производство: США / NBC Universal Television, Studios USA TelevisionЖанр: триллер, драма, криминал, детективРежиссер: Константин Макрис, Эдвин Шерин, Джейс АлександрАктеры: Сэм Уотерстон, С. Ипейта Меркерсон, Джерри Орбак, Стивен Хилл, Джесси Л. Мартин, Лесли Хендрикс, Фред Долтон Томпсон, Крис Нот, Бенджамин Брэтт, Майкл МориартиПеревод: Многоголосый профессиональный (FOX Crime)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4744F49761D5B03E8B54A950FFAF13BAE356740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722546   (109678) от 12.05.2024
-
-Банда Андрюха - Пожарная Команда (2005) [WavPack|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шоу Начинается!
- 02. Гори, Гори, Ясно!
- 03. До Утра!
- 40. Ё-Моё! А.Чижов Против Мата!(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FEE3ECAE9147FA6B5D99452816EBB9687A0A7FE
+magnet:?xt=urn:btih:246494B16E9FB8C9B2181CC0FBC960F532E3FD8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

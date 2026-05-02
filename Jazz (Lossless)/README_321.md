@@ -1,3 +1,61 @@
+###  Публикация: 1718488   (110921) от 25.04.2024
+
+Gerald Albright - Giving Myself To You (1995) Atlantic Jazz [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samba Queen [8:20]
+02. Chips n' Salsa [5:16]
+03. Oo Pah Doo [7:10]
+04. Lucky 7 [7:26](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB08F7B1E92820F46F7EAD82760240C917AFA7DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718490   (110918) от 25.04.2024
+
+Susannah McCorkle - I'll Take Romance (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Beautiful Friendship [4:12]
+02. My Foolish Heart [3:38]
+03. I'll Take Romance [3:28]
+04. Get Out of Town [4:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE9DB86A747A4FFDDAA55893976CAA253648213F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1718665   (110830) от 26.04.2024
 
 Bobby Hutcherson - Landmarks (1984 - 1986) 1991, Landmark Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -687,64 +745,6 @@ Mike Holober & The Gotham Jazz Orchestra - Thought Trains (1996) 2004, Sons Of S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:382411CB2A21791B1040B8809A897D0425DB5349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719854   (110466) от 01.05.2024
-
-Jazzlamic Jihad (The Hard Bop Holy War) - Forbidden Expression (1994) Ratamacue Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nadroj [5:54]
-02. Hotline [5:46]
-03. Under the Moon [6:24]
-04. Yellsker Bellsker [5:40](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C6C5B191519134ABB3ECDEF73BFD22FE3B992BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1719490   (110460) от 01.05.2024
-
-Judy Garland - That's Entertainment! (1960) 1987, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's Entertainment [2:31]
-02. Who Cares (As Long as You Care for Me) [1:32]
-03. I've Confessed to the Breeze (I Love You) [3:08]
-04. If I Love Again [2:42](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:31:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:047CB38AEA6EE4F5809A8C4E1B3E59C9F7A5D54E
 ```
 
 https://mybot314.ru/tekegram_catalog/

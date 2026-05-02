@@ -1,3 +1,203 @@
+###  Публикация: 273614   (1030103) от 20.02.2021
+
+101 Strings Orchestra - 2 альбома (2002, 2009) 3CD [FLAC|Lossless|tracks + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030103.jpg" />
+</div>
+
+
+###  Подробнее
+
+101 Strings Orchestra был брендом очень успешной организации симфонической музыки, легко слушающей , с дискографией, превышающей 150 альбомов, и творческим сроком службы около 30 лет, начиная с 1957 года. 101 Strings имел фирменное звучание, сосредоточенное на мелодии с непринужденной атмосферой. чаще всего со струнами. Их пластинки были индивидуализированы слоганом (   Читать дальше...   )Жанр: InstrumentalПродолжительность: 02:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96621891A2841174A42362D35F58BB7FB2D64405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 351111   (1030102) от 20.02.2021
+
+Алексей Рыбников - Музыка любви (2006) [FLAC|Lossless|image + .cue] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030102.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тема любви (из к/ф "Шанс") 			     (03:57)
+02. Сны Татьяны (из к/ф "Шла собака по роялю") 	     (01:10)
+03. Финал (из к/ф "Вам и не снилось") 		     (02:43)
+04. Тема на титрах (из к/ф "Шанс") 		     (01:49)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645BAF44F70D6993F0D72B4E6E88F6AAA54F8BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 197410   (1030098) от 20.02.2021
+
+Vanessa Mae - Greatest Hits (2008) 2CD, Compilation, Unofficial Release, Digipak [APE|Lossless|image + .cue] <Classical, Instrumental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030098.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+01. Storm 			(03:45)
+02. Toccata And Fugue In D Minor(07:49)
+03. Sabre Dance 		(06:01)(   Читать дальше...   )Жанр: Classical, InstrumentalПродолжительность: 02:38:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3305912B8F3626BB94760A626A1C71174EBFE56B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 281022   (1030093) от 20.02.2021
+
+VA - 100 Hits Accordeon (2008) 5CD, Box-Set [FLAC|Lossless|image + .cue] <Instrumental, Accordeon>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030093.jpg" />
+</div>
+
+
+###  Подробнее
+
+5-ти дисковый box-set из серии "100 Hits" от EMI Music. На дисках представлены записи, охватывающие период с 30-х до 80-х годов XX века.CD1 - Du bon musette
+01. Yvette Horner - Le denicheur 	  [1959] (02:23)
+02. Jo Privat - Balajo (valse) 		  [1966] (02:37)
+03. Marcel Azzola - La plus bath de javas [1953] (02:34)(   Читать дальше...   )Жанр: Instrumental, AccordeonПродолжительность: 04:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44BA2B5B94CD47C3B50C68B1CA60DF5841F3A348
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 257383   (1030091) от 20.02.2021
+
+VA - Золотой саксофон (2003) [FLAC|Lossless|tracks] <Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. R. Pauls Orc. - Long Road In Dunes (3:44)
+02. Gil Ventura - Maria Elena (2:35)
+03. Melody Orc. - Tender Rain (3:27)
+04. Arsenal Orc. (A. Kozlov) - Nostalgia (4:37)(   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF2D53DC32F36C8BA837B2168FC30469F916E81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449213   (1030010) от 21.02.2021
+
+Evgeny Grinko - Ice for Aureliano Buendia (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Noir (1:09)
+02. Valse (3:26)
+03. Serenade (2:29)
+04. Faulkner's Sleep (D-Moll) (3:40)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:27:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD5FC54D44CDD9946FD9DC0D06FA3908601A04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1412904   (1029932) от 21.02.2021
+
+The Percy Faith Orchestra - Theme From A Summer Place (2002) [FLAC|Lossless|image + .cue] <Stage & Screen>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029932.jpg" />
+</div>
+
+
+###  Подробнее
+
+Перси Фейт (англ. Percy Faith; 7 апреля 1908 - 9 февраля 1976) — канадский музыкант, композитор, руководитель эстрадного оркестра. Известность ему принесли пышные оркестровые аранжировки популярных песен. Его часто считают создателем "легкой музыки" или "музыки настроения": его оркестр, в отличие от биг-бэндов 1940-50-х гг., опирался на классический (   Читать дальше...   )01.  Theme From A Summer Place (02:45)
+02.  Love Theme From Romeo & Juliet (A Time For Us) (03:08)
+03.  Laras Theme From Dr Zhivago (03:20)
+04.  A Man And A Woman (02:18)(   Читать дальше...   )Жанр: Stage & ScreenПродолжительность: 00:55:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CA83A0DD93D638AB24FFBE31F160DBE6355CE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623171   (1029595) от 31.03.2023
 
 VA - Mystera II (1998) [OGG Vorbis|480 Kbps] <NewAge, Meditative>
@@ -545,209 +745,6 @@ VA - Romantic Melodies: Classic In Pop (2005) [MP3|320 Kbps] <Pop, Rock, Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE53F0D514C186EDD66A7DE440084AE599F31196
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457716   (1024209) от 27.03.2021
-
-Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024209.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:20] 01. Pensacola, Florida (Godzilla Theme)
-[07:26] 02. Skull Island (Kong Theme)
-[02:02] 03. Apex Cybernetics
-[02:29] 04. A New Language(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C850B3A2B042DC887972FAC5E01E9AA3A876DEC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457717   (1024200) от 27.03.2021
-
-Tom Holkenborg (aka Junkie XL) - Godzilla vs. Kong / Годзилла против Конга (Original Motion Picture Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024200.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:20] 01. Pensacola, Florida (Godzilla Theme)
-[07:26] 02. Skull Island (Kong Theme)
-[02:02] 03. Apex Cybernetics
-[02:29] 04. A New Language(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:07:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8052C128C1F32F823F5556BB23834A2F334B0053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457772   (1024060) от 28.03.2021
-
-Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from the Soundtrack) (2021) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024060.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:29] 01. '84
-[04:39] 02. No Hero Is Born from Lies
-[05:09] 03. Apex Predator
-[06:50] 04. The Monkey Paw(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7121186411F4CD18E26CE9F1724924513D3E7D4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457773   (1024056) от 28.03.2021
-
-Hans Zimmer - Wonder Woman 1984 / Чудо-женщина 1984 (Sketches from the Soundtrack) (2021) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024056.jpg" />
-</div>
-
-
-###  Подробнее
-
-[02:29] 01. '84
-[04:39] 02. No Hero Is Born from Lies
-[05:09] 03. Apex Predator
-[06:50] 04. The Monkey Paw(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DB624FD1AC20F8190FA9067AC4EDB429B5ACF6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458607   (1023679) от 30.03.2021
-
-Paul Cardall - The Broken Miracle (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Easy Listening>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Cardall - A Blue Baby (2:51)
-02. Paul Cardall - Moths & Butterflies (5:03)
-03. Paul Cardall, Thompson Square - The Man with Half a Heart (4:19)
-04. Paul Cardall - Family (2:15)(   Читать дальше...   )Жанр: New Age, Instrumental, Easy ListeningПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF4E4477A05437B1C689DA6540F103C61FA138A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457981   (1023669) от 30.03.2021
-
-VA - Romantic Melodies: Enigmatic (2008) [MP3|320 Kbps] <New Age, Folk, Celtic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023669.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulakos - So Sad (Gregorian) (3:30)
-02. Massini - Ameno (Remix) (Levi-Protheroe) (3:48)
-03. El Suerte - Esperanza (Levantis) (4:44)
-04. Transeparence - Sadeness-Part 1 (CurlyMC-Gregorian-Fairstein) (4:25)(   Читать дальше...   )Жанр: New Age, Folk, CelticПродолжительность: 01:05:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B13E822307AA49114D4EF11D1E9F250F62C6DBDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1458651   (1023660) от 30.03.2021
-
-VA - Pop Piano Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pat Coil - Mandy (3:41)
-02. Jim Brickman - Right Here Waiting (3:50)
-03. Beegie Adair - And I Love Her (3:49)
-04. Jimmy Fedd - Blessed (4:20)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 03:11:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED8384987710643905A77BDFFC68236B0EED37A
 ```
 
 https://mybot314.ru/tekegram_catalog/

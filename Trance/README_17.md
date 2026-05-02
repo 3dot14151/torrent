@@ -1,3 +1,148 @@
+###  Публикация: 1286893   (707305) от 05.03.2019
+
+VA - From euphonic to Russia (mixed by Kyau vs. Albert) (2006) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirco de Govia & Ronski Speed - Asarja (Ronski SpeedMix) (4:00)
+02. Ronski Speed & Sebastian Sand - Sole Survivor (Ronski Speed Mix) (4:24)
+03. Kyau vs. Albert - Falling Anywhere (Rework) (3:36)
+04. Mirco de Govia - Vital Spark (Original Mix) (6:02)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F6B1BF9AD9DE35B1D0FC4E8A7707F60752CF2B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220187   (706193) от 18.04.2018
+
+VA - Trance Spring Essentials (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airdraw,Aaren, Jo.E - Bryde's Whale (Club Mix)
+02. LTN,Stendahl, Arielle Maren - Black Hole (Blood Groove & Kikis Instrumental Remix)
+03. PROFF - Innervate (Original Mix)
+04. Sound Quelle & Piramex - Shoreline (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:02:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:545D7AD83E6875F69B5FAA47EF8E1AB4D2BBB326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220357   (706192) от 18.04.2018
+
+VA - Nothing But... The Future of Trance Vol. 06 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Exo - Skybouncer (Original Mix)
+02. Ultimate - Enru (Original Mix)
+03. Tau-Rine - New Life (Radio Edit)
+04. Paul Arcane - Transcend (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B67109D5EFDF9BB5E9B10FD20BF8BD8831AD0EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131303   (705419) от 07.05.2017
+
+VA - Trancespotting Vol.5 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Rene Ablaze & Jam Da Bass - Fly (Radio Edit)  3:13
+02.  Amitacek - Causeway (Radio Cut)  3:46
+03.  Bvibes - Vertigo (Radio Cut)  3:48
+04.  Damian Wasse - Rise Of Nation (Radio Cut)  3:50(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:29:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26038A7241AEA40778992A5034A65EC68A18DCF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220362   (704511) от 19.04.2018
+
+VA - Recoverworld Radio 019 (Mixed by Para X) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ T.H. feat. Elyse G. Rogers – Strong Enough (Para X Remix)
+02. KoRay – I Feel Love (Original Mix)
+03. Sly One vs. Jurrane – Everything to Me (Opt-In Remix)
+04. The Avains – Infestation (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3415A19A36125444E6A8C860BE611DB12B44B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220541   (704509) от 19.04.2018
 
 VA - Spring Sampler Vol.01 (2018) [MP3|320 Kbps] <Trance,Progressive House>
@@ -597,148 +742,6 @@ VA - Trance Classics - The Best Of (2020) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4CCB3A8E307662763C50BC33C0AE1FA51166166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403710   (688465) от 21.08.2020
-
-VA - Armin Van Buuren  - Live At Tomorrowland  (The Digital Festival) (2020) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Id - Id (Mixed)
-02. Armin Van Buuren - Hollow (Mixed) (Feat. Be No Rain)
-03. Armin Van Buuren - I Need You To Know (Mixed) (Feat. Ifimay)
-04. Armin Van Buuren - Something Real (Mixed) (Feat. Jordan Shaw)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:49:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57223F147ED99FEA301BAAA89CDA07DB94803175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289062   (688373) от 15.03.2019
-
-Super8 & Tab - Past, Present & Future (2019) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688373.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Super8 & Tab – Helsinki Scorchin' (Mixed) (Super8 & Tab 2019 Remix) (04:13)
-2. Super8 & Tab – Lungs (Mixed) (03:27)
-3. Ferry Corsten – We're Not Going Home (Mixed) (03:26)
-4. Above & Beyond – Flying By Candlelight (Mixed) (Above & Beyond Club Mix) (05:02)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B67EC93356EA146235118BB0F637097DFCE01851
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134535   (687582) от 16.05.2017
-
-VA - Total Trance Selections Vol.04 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rodrigo Deem - You Said It All (feat. Karra) (Extended Mix)  7:52
-02.  Fabio XB & Marell - Can't Let Go (feat. Christina Novelli) (Extended Mix)  5:47
-03.  Alexandre Bergheau & Mohamed Ragab - At Night (Original Mix)  3:45
-04.  ReOrder - Spirit Of Ecstasy (Original Mix)  3:50(   Читать дальше...   )Жанр: TranceПродолжительность: 02:39:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A88E5092368376E9A3138E99F95E031000F4A51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222266   (687487) от 28.04.2018
-
-VA - Workout Vol. 5 (2018) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivanshee - Eclipse  07:03
-02. Coffein - Detective  05:45
-03. Andrew MacTire - Insurrection  08:22
-04. Superidea - Ocean  02:57(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336C87A523DD8AF75F095AE1775560AC75042E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222020   (687122) от 28.04.2018
-
-Saad Ayub & Cristina Soto - Daylight (Amir Hussain Remix) (2018) Single [MP3|320 Kbps] <Electronic, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Saad Ayub & Cristina Soto - Daylight (Amir Hussain Extended Mix) (07:27)Жанр: Electronic, Vocal Trance, Uplifting TranceПродолжительность: 00:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC96398DCA04EC27E00410B5B8D057D647B01C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

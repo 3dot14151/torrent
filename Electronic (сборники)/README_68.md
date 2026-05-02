@@ -1,3 +1,61 @@
+###  Публикация: 1393756   (766303) от 02.07.2020
+
+VA - Beatport Ambient: Electro Sound Pack #120 (2020) [MP3|320 Kbps] <Ambient, New Age, Relaxation>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766303.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Spheruleus - Upward Ears
+002. Aremabad - Days & Nights
+003. Potlatch - The Bridge
+004. 4th Front - Emerge(   Читать дальше...   )Жанр: Ambient, New Age, RelaxationПродолжительность: 11:01:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ADB437765A6D5F8BBC04AF702151C61BBB6441D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279485   (766190) от 29.01.2019
+
+VA - Amalgama (2019) [MP3|320 Kbps] <Drum And Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766190.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Amаlgаm - Tеmроrаl Flоw
+002. Dsurr - Stаrt At Midnight
+003. Grееkbоy - Highеr
+004. Idоlеаst - Fоr Thе Dаrksidе(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 08 :44 :57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:621D5BB7A921D8B3DF1FDE8F6D80556F5F9F6B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278985   (766032) от 29.01.2019
 
 VA - Cryptic House I-XX [Compiled by Zebyte] (2016-2018) [MP3|320 Kbps] <House, Deep House, Progressive House>
@@ -687,64 +745,6 @@ VA - TOP Non-Stop 2000-2009 - Lounge & Chillout (2019) [MP3|128-320 Kbps] <Loung
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FA52EA2AD2D434AF080D9192B4B284AEE7762AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017046   (763267) от 16.05.2016
-
-VA - Chill at Home (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jarome Adam - Apue (Chilling Mix) [3:22]
-02. Kemp Long - You Break My Dreams (City Chill Mix) [4:00]
-03. Booker O'Neill - Tropical Storm (Tee Jay Jay Mix) [4:08]
-04. Carl Kennedy - Room and Ripple (Boutique Mix) [3:34](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DEC3FA9DB568F390C5CCF1DFBE8FF991305221D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017286   (763266) от 16.05.2016
-
-VA - Codes Future House Anthems (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Headhunterz & Skytech - Kundalini (Extended Mix) 4:08
-02. StadiumX - Mombasa (Radio Edit) 3:17
-03. Jewelz And Sparks - Drip 2:34
-04. Orjan Nilsen Feat. Senadee - Hands (Noah Neiman Remix) 3:15(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:58:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6508A4510A45543C5B2F26B601B01A18D553F926
 ```
 
 https://mybot314.ru/tekegram_catalog/

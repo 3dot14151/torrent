@@ -1,3 +1,119 @@
+###  Публикация: 1672372   (169513) от 28.10.2023
+
+Joni Dangelo - NOW (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello Everybody (4:59)
+02. She´s So fine (3:23)
+03. I´m Doing Better (4:43)
+04. Home Sweet Home (6:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D7D2A3AEAB462B408583F9C018678855B92E71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672373   (169464) от 28.10.2023
+
+Pacome (Pacôme) Rotondo - World of Confusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep With the Devil (3:26)
+02. Love Means Life (4:13)
+03. Burning Winds (3:32)
+04. Dancing Queen (4:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5146393357249FA5EC9EC2C5511A99AC7CC5A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672369   (169452) от 28.10.2023
+
+Frank Leguen - Rockin' the Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' the Blues (3:22)
+02. Tourist Blues (3:28)
+03. Sleepin' on the Street Blues (2:46)
+04. Eating Fish Again (5:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D12E9BD87A70FEB9CA27CB7948E7BF595EAFF553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1672310   (169446) от 28.10.2023
+
+VA - Groovy Blues & Jazz Mix (Male Singer-Songwriters Vol. 1) (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JJ Soul Band - Really Wild (2:49)
+02. David Becker - Kiss Me Baby (2:30)
+03. JJ Soul Band - At the Mall (2:53)
+04. James Kahu - Everything (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46525F3E5B320213FB223C4F88EB5E5B3DB51C3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1672366   (169433) от 28.10.2023
 
 Dr. J. B. Blues - Multiplicity (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
@@ -629,122 +745,6 @@ Ryan Foret and Foret Tradition - That’s What’s Happening Here (2022) [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D84F0086E890E25F51B0E26A7553FDAFCE7868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597596   (166074) от 15.12.2022
-
-Hot Roux - In a Groove (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boy Scout Knot (3:21)
-02. Wanted (3:37)
-03. Modern Day Jezebel (3:19)
-04. Get in a Groove (4:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EF7ED1272B482EFADA5AB43BE77AC5040A8330A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597584   (166069) от 15.12.2022
-
-Clairisma - Choose the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't Got No Backbone (3:43)
-02. I Got Stoned (4:25)
-03. Don’t Take Advantage of Me (2:56)
-04. Palm of My Hand (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65F7FE3EF1AFD7E1EF77C6D22CA488FFA2CEFC76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597601   (166050) от 15.12.2022
-
-Miranda Lambert - Palomino (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Actin' Up (3:25)
-02. Scenes (2:54)
-03. In His Arms (2:40)
-04. Geraldene (3:02)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 00:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87943310A397873DE49A6134AF9EBF475EF2FDBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597587   (165947) от 15.12.2022
-
-Drekhund - Men of Salem (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I will survive (3:56)
-02. The murderer (3:35)
-03. Follow the Devil (3:20)
-04. Love in Hell (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E94D79CF2FC3DA529A9588CDB65600C128F2ADC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1554753   (573812) от 01.06.2022
+
+Альфа - Тёплый Ветер (1996) Unofficial Release, 2014, Episode Records [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_573812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Теплый ветер
+02. Осень
+03. Тени
+04. Орел(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E86683A1AEBD1177E70C26D9201EE2795C240B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1303159   (572521) от 21.05.2019
 
 Znaki - Видеть больше (2019) [FLAC|Lossless|tracks + .cue] <Rock>
@@ -715,41 +744,6 @@ Imperial Age - Turn the Sun Off! (2012) Japanese Edition, Reissued, 2018 [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D0CFE668DD5BFB5B39CC3BBCEC227EB13062F8D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 227099   (534019) от 17.08.2010
-
-Водопад имени Вахтанга Кикабидзе - Первый всесоюзный панк-съезд (1987) [APE|Lossless]<Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление (орг. базары)
-02. Песня про «…а ну его на фиг»
-03. Мой папа — аппаратчик
-04. Вальс Лехи Дубль-Во
-05. Ария Никака
-06. Рейганкашечка (540 Предупреждение г-ну Рейгану
-07. Памяти дужинника Дубова
-08. Вечный кайф (Жидкий стул)
-09. Берегите цинк!
-10. Заключение (Юрмальский Водопад)Жанр: Rock, PunkПродолжительность: 00:45:15
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

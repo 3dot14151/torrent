@@ -1,3 +1,119 @@
+###  Публикация: 1291788   (652652) от 26.03.2019
+
+Mighty Mike Schermer - Bad Tattoo (2019) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Won't Be Coming Back (04:25)
+02. Lover's Hall of Fame (03:39)
+03. How Much Longer (03:38)
+04. I Can't Let It Go (04:41)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:50:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578798EFC68D103CE897FB531C13B90A40C3FC9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141193   (652447) от 09.06.2017
+
+Chuck Berry - Chuck (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wonderful Woman (5:21)
+02. Big Boys (3:06)
+03. You Go To My Head (3:21)
+04. 3/4 Time (Enchiladas) (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74898511CED58EA8944C5E9492DE89FA8A14D009
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227037   (652193) от 23.05.2018
+
+Robin Trower - Let There Be A Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Thrill Is Gone
+02 - Once The Spell Is Broken
+03 - Something's About To Change
+04 - Dreams That Shone Like Diamonds(   Читать дальше...   )Жанр: Blues rockПродолжительность: 01:09:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F72EB8ED0007BAFAFDA45273F7622E000EB4A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904755   (651572) от 05.06.2015
+
+The Manhattans - Black Tie (1981) Remastered /2014, Funky Town Grooves/ [FLAC|tracks+.cue]<Funk, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just One Moment Away (4:31)
+02. You Stand Out (4:13)
+03. Let Your Love Come Down (4:45)
+04. Honey, Honey (3:48)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 01:04:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972465059BCCF9FB178845449136F74D4B6C5D5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904768   (651565) от 05.06.2015
 
 The Isley Brothers - Go For Your Guns (1977) Remastered /2011, Big Break Records/ [FLAC|tracks+.cue]<Funk, Soul, R&B>
@@ -630,122 +746,6 @@ Marcus Malone - A Better Man (2017) [FLAC|Lossless|image + .cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBE658E056B6DB3E6AEB5F3593404413CC8824AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541757   (642473) от 04.04.2022
-
-Eb & Hal - On My Way Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm on My Way Home (4:26)
-02. Can't Run Away from Love (5:10)
-03. In the Morning Light (4:25)
-04. Wishing (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D73EA540617BCF384697AAC2E198B12A3BEE70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541773   (642468) от 04.04.2022
-
-Gregg Wright - Big Dawg Barkin' (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642468.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Help Is on the Way (4:31)
-02. Don't Talk to My Woman (4:57)
-03. Hey L'il Girl (5:10)
-04. Crank It Up! (4:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF6DEC85F49FAE4BEE87A70CA3C4E238415C7A0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541756   (642467) от 04.04.2022
-
-Dino McGartland - Hometown Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bright Lights, Big City (3:20)
-02. Stop Breakin' Down (4:42)
-03. I Wonder Who (5:32)
-04. Got You On My Mind (3:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:096C6B2BC62B5DDB738B509D1D09A702D3E57FF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541761   (642464) от 04.04.2022
-
-Eddie Blues Barney - Give It All You Got (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Give It All You Got (6:49)
-02. Welcome To The Party (5:04)
-03. Tell Me Who You Want To See (4:45)
-04. Brand New Set Of People (5:56)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884BB7F4C7CF9CA552ED45AF239A4F1CFD685DB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

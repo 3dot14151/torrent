@@ -1,3 +1,31 @@
+###  Публикация: 735061   (227453) от 19.12.2013
+
+Stygian Riverside - 6 альбомов (2008-2011) [FLAC|Lossless] <Touhou, Vocal, Instrumental, Doujin Ongaku, J-Metal>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227453.jpg" />
+</div>
+
+
+###  Подробнее
+
+[03:53] 01. 黒江 - Sink In Stygian
+[04:41] 02. MAX BEAT - A Dream Within A Dream
+[03:52] 03. MAX BEAT - Sink In Stygian(Inst.Ver)Жанр: Touhou, Vocal, Instrumental, Doujin Ongaku, J-MetalПродолжительность: 00:00:12:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34B64710E3C1087DFCADA5B8E92237A616BE2122
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965279   (227414) от 13.12.2015
 
 Galneryus - Under The Force Of Courage (2015) [MP3|320 кб/с] <Neo-Classical Metal, Power Metal, Symphonic Metal, Melodic Metal>
@@ -723,35 +751,6 @@ Illusion Force - The World Soul (2019) Japanese Edition [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43651A2E0C86E5753171764419D859A15886B942
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427467   (183122) от 28.11.2020
-
-Night Tempo - Japanese Pop Edit (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Future Funk, J-pop>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183122.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	 Mariya Takeuchi - Tell me, tell me (Night Tempo Edit) (3:58)
-2.	 Tatsuro Yamashita - Kiss kara Hajimeru Mistery (Night Tempo Edit) (3:36)
-3.	 Yurie Kokubu - I Wanna Be With You (Night Tempo Edit) (3:29)
-4.	 Junko Yagami - Telephone Number (Night Tempo Edit) (4:23)(   Читать дальше...   )Жанр: Electronic, Future Funk, J-popПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF1FFE2AD8B943D04047D456AEAA840DCD21251
 ```
 
 https://mybot314.ru/tekegram_catalog/

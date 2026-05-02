@@ -1,3 +1,61 @@
+###  Публикация: 1729642   (108012) от 12.06.2024
+
+Jack Walrath & The Masters of Suspense - Serious Hang (1992) 1994, Muse Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anya and Liz on the Veranda [6:36]
+02. Get on the Good Foot [5:11]
+03. Better Get Hit in Your Soul [8:07]
+04. Izlyal e Delyo Haidoutin [7:29](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:51:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2159876B5FC003F4C02B0ECEE6080454AB197446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729712   (108006) от 12.06.2024
+
+Mel Torme - In Person (1962) Remaster, 2024, Warner Music Group [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Putting On the Ritz [00:02:24]
+02. Autumn in New York [00:03:22]
+03. Broadway [00:02:16]
+04. On Green Dolphin Street [00:02:56](   Читать дальше...   )Жанр: JazzПродолжительность: 01:11:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2BD70D15062387C3CF50D562EA833D3F4F0C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729927   (107980) от 13.06.2024
 
 Jimmie Lunceford - Margie (1946, 1947) 1989, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -685,64 +743,6 @@ John Klemmer - Chateau Love (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CD7E2811E003DA955EF9C7304AEE70C13B36673
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731583   (107650) от 21.06.2024
-
-Ervin Pope - Anomaly (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107650.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khaiden Defines Anomaly (1:12)
-02. Anomaly (3:26)
-03. Aiesha Johnson (3:34)
-04. Sunshine (4:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:21:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52053CC7E39C02D0FDB6A3D9E4281FA53B9EEDEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731755   (107588) от 22.06.2024
-
-Antonio Sanchez - Channels Of Energy (2016) 2CD, 2018, CAM Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Life [11:01]
-02. Grids and Patterns [10:05]
-03. Imaginary Lines [9:35]
-04. Channels of Energy [14:16](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Big BandПродолжительность: 01:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:497773C5F080EDBB77BBAF768E07C3B780A94439
 ```
 
 https://mybot314.ru/tekegram_catalog/

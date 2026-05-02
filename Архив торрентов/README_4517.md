@@ -1,3 +1,252 @@
+###  Публикация: 485218   (99949) от 19.04.2012
+
+[Wallpapers] Girls Desktop Wallpapers №23
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99949.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1280х1024 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7942913FBF52D0E77E4AD5DFA7F70189CE5EBB0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484677   (99944) от 18.04.2012
+
+Журнал | Современный дом и офис №1 [2012 февраль-март] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Полная информация о модных тенденциях и дизайнерских идеях на интерьерном рынке, помощник в решении практических вопросов строительства, ремонта и обустройства комфортного качественного интерьера. Журнал регулярно знакомит своих читателей с новинками рынка, рассказывает о наиболее авторитетных марках и производителях мебели, отделочных материалов, строительных компонентов.2012 февраль-мартФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5288B5EB49E4D87BD1C647E92D40A4AE9EA5C5FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484869   (99943) от 18.04.2012
+
+[Wallpapers] Wallpapers Fantasy №5 (Pavel)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола 50 шт
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1253520E194C40624CB51401A4DAA038027FAEF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482346   (99915) от 18.04.2012
+
+Silent Scream - Primiera (2010) [MP3|320 кб/с]<Psytrance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (3:49)
+02. Easy Going (6:00)
+03. Panica (7:04)
+04. Axe Fx (7:14)
+05. Shocker (6:57)
+06. Primiera (7:31)
+07. Gold Rush (7:28)
+08. Pandora (6:29)
+09. Selection (7:01)
+10. Prozac (6:07)2010Жанр: PsytranceПродолжительность: 01:05:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4F37DD46B5FD690D454CAF4943CD5C0A90ECD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484458   (99913) от 18.04.2012
+
+[Wallpapers] HQ Wallpapers by KSV (18.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D341DD8568B9BEB75A5FE8329009247D3A1D5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483867   (99911) от 18.04.2012
+
+[Wallpapers] Mixed Wallpapers 0.6
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Микс обоев для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90F51231A01E201215D1E2B7C6B5E1C885E84E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484490   (99900) от 18.04.2012
+
+[Wallpapers] Girls Wallpapers Mix (18.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99900.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1280х1024 - 4000х2667
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC93603AC3C4D44BD749E789BD8A960C4D1B3D03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484494   (99896) от 18.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (18.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99896.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 4000х2662
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EDAE7C3F7388A1F1C34A6F237766EB103EB42C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482966   (99888) от 17.04.2012
+
+Лейтенант Коломбо - Полька Джэмбори (2012) [MP3|320 кб/с]<Old-school Hip-Hop/Funky/Breakbeat>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Фанки Флибустьеры (3:24)
+ 02. Вапабадубап (Боевик) (2:26)
+ 03. Кинг Оф Рок (3:29)
+ 04. Дядя Фрэнки Уходит В Отставку (2:54)
+ 05. Кэмбоооу (3:58)
+ 06. Фантомас Разбушевался (3:53)
+ 07. Р-Н-Р Так Р-Н-Р (2:14)2012Жанр: Old-school Hip-Hop/Funky/BreakbeatПродолжительность: 00:22:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FAA566A2C441D80C09E18C39018FD2F989E5802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 483701   (99881) от 17.04.2012
 
 День Зеро / Day Zero (2007) DVD5
@@ -509,288 +758,6 @@ VA - Клубные Новинки Vol.60 from AGR (2012) [MP3|320 кб/с]<Club
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CD6F6001968539F0769D689A0A525274C8F90B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482348   (99830) от 17.04.2012
-
-VA - Клубные новинки Vol.59 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Techno Freedom Pro - Lucky Strike (Lino Remix)
-02. Rene Ablaze And Alexander Xendzov Feat. Sharon Fehlberg - Cast Your Spell (Extended Mix)
-03. Senadee - Life Support Machine (16 Bit Lolitas Remix)
-04. Marc Simz feat. Naomi Strieme - This Is Love (Original Mix)
-05. Dirty Harris - Cosmos (Original Mix)
-06. suGar, Eva Kade, Evil T - All Around (Gregory Esayan Remix)
-07. Yotopia & Sphera - Vertigo (Original Mix)
-08. Myon & Shane 54 feat. Aruna - Helpless (Alexander Popov Remix)
-09. Stoneface & Terminal feat. Ellie Lawson - Breaking Through (Club Mix)
-10. Pulser feat Molly Bancroft - In Deep (Pulsers Main Floor remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:37:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6F9579C7FACA432A5EE1D0CF1D5160BCEFB426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484361   (99829) от 17.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (18.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC85DAFCDF9AFB7FCFE0324EB0CE8E82FA447879
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483754   (99828) от 16.04.2012
-
-ХАСКИ - Икорный бизнес (2012) [MP3|320 кб/с]<Rock, indie-rock, pop-rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Камикадзе (3:36)
-02. Дядя Хофман (5:37)
-03. 19-45 (6:07)
-04. Хэй, меломан! (3:16)
-05. Икорный бизнес (4:11)
-06. Хэй, меломан! (Alex Friesen ft. Lefster rmx) (6:20)Жанр: Rock, indie-rock, pop-rockПродолжительность: 00:29:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C327D9C2F0D99551B7613176EEFABECC0475624E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483531   (99826) от 16.04.2012
-
-Simon Pauls - Promise (2012) [MP3|320 кб/с]<Tech House, Minimal Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99826.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Promise (with Mary Mercury)
-2. Shadow from the Past
-3. Dont Force Time
-4. Tessellation
-5. Alia Ludorum
-6. I do not know the way
-7. Insolita
-8. Prostratio
-9. Banana Box
-10. Time of electronic Love (with Plotka)(   Читать дальше...   )2012Жанр: Tech House, Minimal TechnoПродолжительность: 01:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595EAD31A9CF43A9469E364DBF47BCD0E427D91D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482179   (99821) от 16.04.2012
-
-Товарищи / I compagni (1963) DVD9 [It]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мастер итальянской комедии воссоздает трагикомичную историю о туринских рабочих конца 19 века.Производство: Франция, Италия, Югославия / Авала-фильм, Lux Film S.p.a., Méditerrannée Cinéma Production, Vides CinematograficaЖанр: Драма, КриминалРежиссер: Марио МоничеллиАктеры: Марчелло Мастроянни, Ренато Сальватори, Габриэлла Джорджелли, Фолько Люлли, Бернар Блие, Раффаэлла Карра, Франсуа Перье, Витторио Саниполи, Марио Пизу, Кеннет КоувПеревод: отсутствуетСубтитры: итальянские, испанские, английские, русские (от mihailtorrent)Продолжительность: 02:04:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:469D9278B3ACEB5609820EE24D48228EFA6588AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482900   (99819) от 16.04.2012
-
-Морг / Mortuary (1983) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Кристи страдает от ночных кошмаров, в которых она видит своего отца-утопленника. Мать Кристи считает, что его смерть была несчастным случаем, но девушка уверена, что на самом деле произошло убийство. Вскоре Кристи замечает, что за ней начинает следить зловещий незнакомец в чёрном...Жанр: Ужасы, ТриллерРежиссер: Говард АведисАктеры: Мэри Бет МакДонаф, Дэвид Уоллес, Билл Пэкстон, Линда Дэй Джордж, Кристофер Джордж, Курт Айерс, Билл Конклин, Донна Гаррет, Грег Кэй, Дэнис МэнделПеревод: Одноголосый закадровыйПродолжительность: 01:28:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E0511CE430CDBA74D5D9D16F7D9898CDA6AFD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 482589   (99800) от 16.04.2012
-
-Minay - Покажи, пока жив (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Моя Сибирь
-02 - В темпе Ларго
-03 - Анти баллада о любви
-04 - На одной волне
-05 - Вера, как мода
-06 - Победа
-07 - Мимо прохожих
-08 - Каждому своя
-09 - Как правильно
-10 - Других не надо2012Жанр: Rap, Hip-HopПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:787963FE20C1912B4536BFBA1634A3E5C3168564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 484093   (99788) от 16.04.2012
-
-Baby D - Deliverance (1996) [MP3|320 кб/с]<Breakbeat, Hardcore, D'n'B>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99788.jpg" />
-</div>
-
-
-###  Подробнее
-
-Baby D - Deliverance (1996)
-Год: 1996
-Жанр: Breakbeat, Hardcore, D'n'B
-Продолжительность: 01:28:06
-Лейбл: Systematic
-Страна: UKКодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:449DEE9AF896A1337096102D9543B43D04D3E820
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483801   (99783) от 16.04.2012
-
-VA - Союз еврохитов (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Pink - Bridge Of Light
-02 Madonna Feat. Justin Timberlake - Latte
-03 Flo Rida Feat. Sia - Wild Ones
-04 Rihanna - You Da One
-05 Nickelback - Lullaby
-06 Britney Spears - Love 2 Love U
-07 Justin Bieber - Uh Oh
-08 Beyonce Feat. David Jassy - I Care (Remix)
-09 Dev Feat. Enrique Iglesias - Naked
-10 Bob Sinclar Feat. Sophie Ellis-Bextor - Fuck With You(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:15:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1497BD6E48E88A3E74D05B62366709DA63DC243E
 ```
 
 https://mybot314.ru/tekegram_catalog/

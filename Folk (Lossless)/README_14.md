@@ -1,3 +1,32 @@
+###  Публикация: 1792094   (67767) от 17.04.2025
+
+VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Atwater Collective - White Rabbit (2:51)
+02.  Josh Arnold - Buried Love (3:20)
+03.  The Lost Gecko - Brothers (4:54)
+04.  Marc Miner - Sweet Revenge (6:13)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 01:03:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13038A18CA1B5AB2ECD73C996B705B284181B4AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792096   (67760) от 17.04.2025
 
 VA - Lost in Thoughts: Sentimental Rock Folk Soundtrack (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
@@ -724,35 +753,6 @@ Milla Jovovich - The Divine Comedy (1993) [FLAC|Lossless]<Folk-rock, soft-rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D440F94449A02247D14EFEB4D9739B0FA4F07DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805816   (12028) от 09.07.2025
-
-Joan Baez - Gone From Danger (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. No Mermaid    [0:04:22.72]
-02. Reunion Hill    [0:04:08.43]
-03. Crack in the Mirror    [0:05:49.02]
-04. February    [0:04:11.25](   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 00:43:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749FF62F2BF88DC1119DF9A8B5A58B27141B04A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

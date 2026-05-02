@@ -1,3 +1,61 @@
+###  Публикация: 1202106   (790548) от 28.01.2018
+
+VA - Ori Uplift & Marc Tatossian - Uplifting Only 259 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etasonic - When You're Gone (Intro Mix)
+02. PRE-RELEASE PICK: Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)
+03. FAN FAVORITE: InnerSync - Magnificence
+04. AirLab7 - Shy Lass (EXCLUSIVE PREMIERE)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5581E99893E81E646AF438A95CFE0A0B247D7D07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202498   (789926) от 29.01.2018
+
+VA - Ahmed Romel - Orchestrance 218 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nery - Redawn (Andy Blueman Remix)
+02. Attens Feat. Martina Kay - If You Find A Way (Playme Dub Mix)
+03. Jericho Frequency Feat. Emma Chatt - Do You See Me (Original Mix)
+04. (FAVORITE OF THE WEEK) DreamLife & Laucco - Amaranth (Original Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:07:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7DFFF39736249A28AB16552D8BE3E2DCA1C454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065046   (789294) от 30.01.2018
 
 Bobina - Russia Goes Deeper 001 - 014 (2016 - 2018) [MP3|320 Kbps] <House,Deep House>
@@ -687,64 +745,6 @@ VA - Markus Schulz - Global DJ Broadcast (Miami Music Week Edition) (2018) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:530E04E1B1B66566FB033D7BC8EC9D3776CC36F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215593   (758108) от 26.03.2018
-
-VA - Ori Uplift & Baco - Uplifting Only 267 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grande Piano - Only Mine (Intro Mix)
-02. FAN FAVORITE: Dreamlife & Blue Moon - Last Farewell (George Crossfield Emotional Remix)
-03. Alex Wright - Mnemba
-04. Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B64153098A3480FBE46F970F4C826D3E323C28B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522754   (757025) от 08.01.2022
-
-Laidback Luke - Yearmix 2021 (2021-12-16) [MP3|320 Kbps] <Electro Pop, Tech House, Bass House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleepnet - Unravel
-02. Shouse - Love Tonight (Vintage Culture & Kiko Franco Remix)
-03. SHM. vs. BBE. - Lifetime (DJs From Mars Mashup)
-04. BLVD & Laidback Luke - Cielo w/DaBaby, Roddy Ricch - Rockstar (Acappella)(   Читать дальше...   )Жанр: Electro Pop, Tech House, Bass HouseПродолжительность: 00:59:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4FB41D55BACC1C75DA15754C67176CDDB564703
 ```
 
 https://mybot314.ru/tekegram_catalog/

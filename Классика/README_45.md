@@ -1,3 +1,32 @@
+###  Публикация: 1635023   (233035) от 23.05.2023
+
+Pekka Kuusisto, Joonas Ahonen - Symmetria Pario: Creation (2023) [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233035.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clarice Assad
+[1] Symmetries
+Mehmet Sanlikol
+[2] Seven Sufi Vignettes(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030B52488F8AAFE973C7B4724F73681CD7E9C435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1635140   (232842) от 24.05.2023
 
 BBC Scottish Symphony Orchestra, Alpesh Chauhan - Tchaikovsky: The Tempest, Francesca da Rimini, The Voyevoda (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical, Symphonies>
@@ -717,35 +746,6 @@ Johann Sebastian Bach, Phantasm - The Well-Tempered Consort-III (2022) [FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E385CE0B3D75BD62DFCE0C2E29D35E8399491755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646427   (208214) от 22.07.2023
-
-Atlanta Symhonic Orchestra & Chorus - Carl Orff: Carmina Burana (1981) Remaster, 2013 Ultra High Definition 32-Bit Mastering [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208214.jpg" />
-</div>
-
-
-###  Подробнее
-
-I. Introduction:
-
-    1. Fortune, Empress of the World (2:32)
-    2. Fortune Plango vulne (2:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF206D9BF5415A9D940EDDB559223F305936F8D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

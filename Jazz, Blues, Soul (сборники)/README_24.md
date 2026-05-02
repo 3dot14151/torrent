@@ -1,3 +1,32 @@
+###  Публикация: 1719013   (57841) от 02.05.2024
+
+VA - Jazz Blues (2024) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. BBM - Naked Flame [06:07]
+002. Big Daddy Wilson - I'm Walking [04:17]
+003. Boney James - Solid [04:05]
+004. Dana Gillespie - Who's Got The Blues To Blame [05:04](   Читать дальше...   )Жанр: BluesПродолжительность: 12:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC71576AE6426859E7FE5CF06FD6778195E0EF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1722402   (56551) от 14.05.2024
 
 VA - Good Women in Good Blues (2024) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -716,35 +745,6 @@ VA - Summer's End Autumn blues (2024) [MP3|320 Kbps] <Blues, Blues Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:221555D84FE8F9956FD390C74D9716ABA98B122A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756432   (39667) от 21.10.2024
-
-VA - Non-religious  Gospel music (2024) [MP3|320 Kbps] <Jazz, Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39667.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crowder - Lift Your Head Weary Sinner (Chains) [03:45]
-02. Cultura do Ceu, Davi Fernandes, Kaleb e Josh - Nada Mais [06:32]
-03. Darrell Mansfield, Larry Howard & Glenn Kaiser - Where Would I Be? [06:33]
-04. David Cardoso, ONE-Sounds,  Alessandro Vilas Boas - Maranata [17:24](   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 05:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1F970EBABDABDB9A2B2366A184AF003FF9571B
 ```
 
 https://mybot314.ru/tekegram_catalog/

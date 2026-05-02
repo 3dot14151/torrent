@@ -1,3 +1,61 @@
+###  Публикация: 1081549   (283034) от 10.12.2016
+
+Willie Colon & Ruben Blades - Siembra (1978) 1991, Musicavision[FLAC|Lossless|tracks + .cue] <Latin Jazz, Salsa>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Plastico [06:40]
+ 02.Buscando Guayaba [05:47]
+ 03.Pedro Navaja [07:25]
+ 04.Maria Lionza [05:31](   Читать дальше...   )Жанр: Latin Jazz, SalsaПродолжительность: 00:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:504D6D30578E62511E9A9A01BE96F975CD7C42E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264160   (282956) от 22.11.2018
+
+Isao Suzuki Trio / Quartet - Blow Up (1973) 2013, Think! Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Marine [4:58]
+02. Everything Happens to Me [5:47]
+03. Blow Up [7:30]
+04. Like It Is [5:36](   Читать дальше...   )Жанр: Jazz Fusion, Post-BopПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F671DCFABAB51EDB8A1490BA633BF600155AC081
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336095   (282731) от 05.11.2019
 
 Victor Goines - Joe's Blues (1998) Rosemary Joseph Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
@@ -687,64 +745,6 @@ Jordi Sabatés amb Toti Soler - Jordi Sabatés amb Toti Soler (1973) [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C39D6EA6C3E8C830E432FF05A74C0097E68C6C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264569   (279576) от 24.11.2018
-
-Norio Maeda & Jiro Inagaki - This Is Jazz-Rock (1968) 2008, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pata Pata [3:41]
-02. Mercy, Mercy, Mercy [2:52]
-03. Day Tripper [3:12]
-04. Snap Shot [3:29](   Читать дальше...   )Жанр: Jazz-Rock, Jazz FusionПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB603F5A6CEACBD49C9A3EDA86EA217939178747
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264566   (279575) от 24.11.2018
-
-Minoru Muraoka - Harlem Nocturne: Bamboo Flute Miracle Sounds (1967) 2012, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harlem Nocturne [3:09]
-02. Taboo [3:27]
-03. Yesterday [3:16]
-04. Baby Elephant Walk [3:06](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F9E9799D7A88226F7C82D37893B782DFC7BC180
 ```
 
 https://mybot314.ru/tekegram_catalog/

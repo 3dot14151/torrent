@@ -1,3 +1,119 @@
+###  Публикация: 1853043   (1056254) от 11.02.2026
+
+Muskogee Hotel, Knut Roppestad & Richard Gjems - Rory at The Hotel (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lets go to work (4:17)
+02.  Keychain (4:37)
+03.  Rumble Strips (2:25)
+04.  As The Crow Flies (6:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:448F7BDE8FC523A3C8F568C38E0149ED557D6BED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853045   (1056252) от 11.02.2026
+
+Revelationary Recordings - WE BE THE BLUES "Songs From The Soil" (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056252.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dhymond Gurl - DOWN SOUTH BLUES (feat. Dhymond Gurl) (2:54)
+02.  Derrell "Mr. Lavish" White - COUNTRY BOY PRAISE (feat. Derrell "Mr. Lavish" White) (3:39)
+03.  DJ Sunny RE/Ray - ALL IN ME (feat. DJ Sunny RE/Ray) (5:04)
+04.  Geraldine West Hudley - MAMA'S PEARLS "Learning From Living" (feat. Geraldine West Hudley) (0:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C852ECB007E3239C5787F9629C82E155AAB9ADCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1853047   (1056251) от 11.02.2026
+
+Turner Cody feat. The Soldiers of Love - Out for Blood (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056251.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  We Need Each Other  (4:13)
+02.  Recognize a Friend (3:00)
+03.  Cigarettes Inside  (4:18)
+04.  Out for Blood  (4:31)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D41B56977D4E9D07B72178BC13891B980F5B7C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852808   (1056057) от 09.02.2026
+
+Aelix Mie - Where the Whiskey Sings (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1056057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Honky-Tonk Blues at Midnight (2:59)
+02.  Letter with No Stamp (Whiskey Blues) (3:12)
+03.  Third Shelf Down (Whiskey Blues) (3:11)
+04.  Drink It Down for the Dead (Whiskey Blues) (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4A0395FCB0FCB9514C805863D064DD2DEB2B7CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852812   (1056056) от 09.02.2026
 
 Alex Lopez - Retro Revival (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA0C5B03051BE165665897036D2FA7B29AAF0104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846070   (1051216) от 05.01.2026
-
-Big Bay Allen & The Extended Hand Band - Blues Music (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  That Look (3:39)
-02.  Old Betty (4:38)
-03.  BTK Blues (7:09)
-04.  Forgot To Say Please (5:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749E0093F285C2A8C07BDCCCE30BD341AEBAD41A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846071   (1051215) от 05.01.2026
-
-Jesse Mills Band - Jesse Mills Band (2026) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All In the Family (4:02)
-02.  Spend My Time (4:16)
-03.  Don't Need to Worry (3:38)
-04.  Down Low (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6ED7BB9770D5A816625A4A0B5EA29FB485DA6CAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844701   (1050281) от 27.12.2025
-
-Tony O Blues - Free Life (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hard Day Blues (4:25)
-02.  Rich Man's Woman (4:44)
-03.  Free Life (3:56)
-04.  You Don't Know Me (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45C5725550838B8EDCA4576ECC55A6C5E69095B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844705   (1050278) от 27.12.2025
-
-Trowbled Ron - Snnr (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Burning Hell (3:31)
-02.  Nobody's Fault But Mine (3:44)
-03.  What Good Am I (3:53)
-04.  Ain't No Grave (3:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:683D86FAC0436D2F1104901233B0B1CD3C00E828
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1322007   (452485) от 27.08.2019
+
+VA - Rhythm Of My Song (2019) [MP3|320 Kbps] <Pop, RnB>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452485.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Krezip - How Would You Feel
+002. Iyla - Flowers
+003. Jessie Reyez - Saint Nobody
+004. Mariama - Raindrops(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 09:05:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3CF4E483AA0165E20C6388ADE1DB12E78832466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945282   (432952) от 10.10.2015
 
 Каспийский Груз - Белый (2015) [MP3|192-320 кб/с]<Rap, Hip-hop>
@@ -716,35 +745,6 @@ VA - Golden A Capella (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E7FDFBBCBB5BD2FEF3BE73038280573AA305674B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953479   (348411) от 04.11.2015
-
-Ноггано - Свежее (2015) [MP3|320 кб/с]<Rap, Hip-hop>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348411.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. No Pasaran! ft. АК-47
-2. Russian Paradise ft. АК-47
-3. Всем нашим братьям ft. Баста
-4. Дас ис фантастик ft. АК-47(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD815613793AD411DF5AFEEE2F806E6BE6D34EA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

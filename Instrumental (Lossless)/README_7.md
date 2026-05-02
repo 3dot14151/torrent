@@ -1,3 +1,119 @@
+###  Публикация: 1606775   (1044287) от 23.01.2023
+
+Mudpie - I Need a Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voodoo Woman (4:33)
+02. Across the Border (3:33)
+03. I Need a Home (4:58)
+04. Heavens Gate (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:964FA5254D1A0DDF434544C063DA3D9357229C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606967   (1044229) от 24.01.2023
+
+Bedford Slim - Crow's Alley (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Rounder (feat. The Goose) (2:38)
+02. Sugar Baby (feat. DB Squirrel & Freight Train) (1:41)
+03. Tell Me (feat. The Goose) (1:59)
+04. Cripple Creek (2:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:28:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9477566D0D38F4CB3A1D277E3C7FD312F1CF625
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606973   (1044221) от 24.01.2023
+
+Beiztegui & The Hammond Lovers - Get it Loud (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marked Cards (3:11)
+02. Tell Me (7:25)
+03. Double Crossing (3:09)
+04. Please Come Back Home (6:53)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8B36B62099599EC2CCFEFCB9144700C09F1EEBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606977   (1044208) от 24.01.2023
+
+Don P. & The Blue Jags - Lu-Town (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lu-Town (2:33)
+02. I Wanna Know (5:06)
+03. Sharp Dressed Gumshoe (3:06)
+04. Rattlesnake Boogie (3:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02F4418DDE6D7F2C2CAD6B915E0E5B296BB15361
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607422   (1044037) от 26.01.2023
 
 Jewel Brown - Thanks for Good Ole’ music and Memories (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ John L. Savage - Ain't Got No Money (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:597834802845F59BFCE41A0A94E11CABB00BCC3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609217   (1043253) от 03.02.2023
-
-Kevin & JD - Blues Truckin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ring Around Rosie (3:22)
-02. Come On By (3:49)
-03. Can't Quit The Blues (5:06)
-04. Blues Truckin' (3:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C7E22921FA967D463320AC85E7F9BFCF4C66087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609210   (1043235) от 03.02.2023
-
-Jackie Venson - Evolution of Joy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afterglow #evolution (4:53)
-02. Flying #evolution (4:18)
-03. Listen (1:37)
-04. All Rise #evolution (3:07)(   Читать дальше...   )Жанр: Blues, Soul, R&BПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DFEB0E0DD37D7B28855C66406919C03E58D522C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436464   (1043029) от 01.01.2021
-
-Edgar Blues Trio - The Next Step (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murph Blues (3:16)
-02. Cold Hands (5:21)
-03. Rude Girl (4:26)
-04. Your Man (5:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFF7547EA379C626CD798D5E958845D5525D2386
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1436853   (1042767) от 02.01.2021
-
-The Proven Ones - You Ain't Done (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Love Intro (0:58)
-02. Get Love (4:01)
-03. Gone to Stay (3:32)
-04. You Ain't Done (4:02)(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8863AD0284DF2266BE312735E1C8A86491CC132
 ```
 
 https://mybot314.ru/tekegram_catalog/

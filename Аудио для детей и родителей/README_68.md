@@ -1,3 +1,38 @@
+###  Публикация: 503206   (259729) от 30.05.2012
+
+VA - Mini Disco/Мини Диско 108 песен (1970-2012) [MP3|128 кб/с]<Blues - детская танцевальная подборка>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259729.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.İntro-Mini Cub 1
+002.İntro-Mini Cub 2
+003.Hotel Club Dance 2
+004.Hands Up- Rmx
+005.Veo Veo- Rmx
+006.Russian - Buratino
+007.Hot banditoz -head shoulders
+008.Shakira waka-waka
+009.Russian-Ti Menya Lubish Aga
+010.Herzlich Wilcomen Guten Tag(   Читать дальше...   )1970-2012Жанр: Blues - детская танцевальная подборкаПродолжительность: 5:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7444D8A051993488C4C3FC04438B537A833F5B04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 503724   (259689) от 30.05.2012
 
 Николай Носов | Приключения Незнайки и его друзей (2010) [MP3, Татьяна Телегина]
@@ -691,32 +726,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91D8D0E2379F217E26D8140E1A8E95391AAF6ABB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 305675   (251986) от 28.05.2023
-
-Мелодия | Детские сказки с винила. Часть 7 (2010) [MP3]
-
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_251986.jpg" />
-</div>
-
-
-###  Подробнее
-
-Седьмой сборник сказок, оцифрованных с виниловых пластинок.Жанр: СказкиПродолжительность: 03:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42061B8B1CF66DB1686B4CBC41D338E63C9084E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

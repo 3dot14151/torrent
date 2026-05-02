@@ -1,3 +1,61 @@
+###  Публикация: 970265   (143865) от 29.12.2015
+
+Arnett Cobb - Live (1982) Remaster, 2015, Timeless Records[FLAC|tracks+.cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Cobb's Idea [11:01]
+ 02.Sweet Georgia Brown [10:57]
+ 03.Just A Closer Walk With Thee [07:54]
+ 04.Body And Soul [06:35](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7304E7FC40B5FF062367D0CBDF3B36482E33EB98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1348538   (143784) от 28.12.2019
+
+Urbie Green - Five Classic Albums 1953 - 1956 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143784.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cherokee [2:42]
+02. I Ain´t Got Nobody [3:31]
+03. Stella By Starlight [3:06](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 02:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E85C78B27DC673597F4A0170ACEE761DC48166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969265   (143778) от 29.12.2015
 
 The Frank Wright Quartet - Church Number Nine (1970) 2002, Black Keys[FLAC|tracks+.cue] <Avant-Garde Jazz, Free Improvisation>
@@ -683,64 +741,6 @@ Gilberto Gil - Refavela (1977) 1994, Warner Music[FLAC|Lossless|tracks + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50336EA32D94FE814CF7BF7AA4DEE04D5EF28F55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520605   (140965) от 29.12.2021
-
-J.R. Monterose - The Message (1959) 1997, Venus Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straight Ahead [5:32]
-02. Violets for Your Furs [2:48]
-03. Green Street Scene [6:20]
-04. Chafic [5:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F4C5563EEA206B56D08A8EA3E766FA9F0C5F6FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520534   (140895) от 29.12.2021
-
-George Shearing - Walkin' (1995) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's Earl, Brother [8:07]
-02. My One and Only Love [5:41]
-03. Pensativa [5:31]
-04. Walkin' [7:01](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:06:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD1B356E8E2408D85EA225AF9FFA18E621B3BE27
 ```
 
 https://mybot314.ru/tekegram_catalog/

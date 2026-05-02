@@ -1,3 +1,61 @@
+###  Публикация: 1169419   (402468) от 28.09.2017
+
+Blood Youth - Beyond Repair (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Hardcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402468.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Making Waves (3:12)
+ 02. What I'm Running From (3:50)
+ 03. Savanna (3:09)
+ 04. Parasite (3:15)(   Читать дальше...   )Жанр: Alternative Rock, Hardcore, MetalcoreПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51FEC0F975BA03568BDF56439B18D15C23827AF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1171589   (395578) от 05.10.2017
+
+Marilyn Manson - Heaven Upside Down (2017) [FLAC|Lossless|tracks] <Alternative Rock, Heavy Metal, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_395578.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Revelation #12  4:42
+02.  Tattooed In Reverse  4:24
+03.  We Know Where You F'cking Live  4:32
+04.  Say10  4:19(   Читать дальше...   )Жанр: Alternative Rock, Heavy Metal, IndustrialПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A84F00906135D6685F8394BBE5E137CE0312B4CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1171671   (394720) от 06.10.2017
 
 Liam Gallagher - As You Were (Deluxe Edition) (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock, Brit Pop>
@@ -688,64 +746,6 @@ Before I Die - Rasgando la Superficie (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5996C4F638130D600C098F8312A8CD6F0E75EFE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574812   (379500) от 08.09.2022
-
-Darkwvlf - All The World's A Stage (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Rapcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379500.jpg" />
-</div>
-
-
-###  Подробнее
-
-color=gray]01. WOLF ATTACK [00:01:42]
-02. WISE GUYS [00:02:42]
-03. HELLSCAPE (feat. Sinizter) [00:02:07]
-04. INFERNAL DESCENT [00:04:31](   Читать дальше...   )Жанр: Metalcore, Rapcore, ElectronicПродолжительность: 00:19:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B65FB4B36DDAFBEA34021CA6B8A0477051596E85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575109   (379497) от 08.09.2022
-
-Cian - Surefire (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Didn't Come This Far, Just To Come This Far [00:02:08]
-02. Invincible [00:04:05]
-03. 1248 [00:03:18]
-04. I Won't Let You Go [00:04:42](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14EB636A98C24511C4285C9C73808003F299C9BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1342589   (223992) от 02.12.2019
+
+Амега - Вверх, Часть 1 (1999) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_223992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ноги (4:12)
+ 02. Солнце встало (3:44)
+ 03. Москва (4:08)
+ 04. Облака (4:20)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D257FF4B1A3EE490E6DD6DA2D01ABB3563988101
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585160   (222290) от 21.10.2022
 
 Ярослав Евдокимов - За белою рекой... (2006) [FLAC|Lossless|image + .cue] <Pop>
@@ -719,35 +748,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8062FBC38AF45E0873BADB0122F4F2AE76469084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427386   (183418) от 28.11.2020
-
-VA - Айсберг-Каникулы с Андреем Губиным  (2001) [FLAC|Lossless|tracks + .cue]<Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Андрей Губин - Улетает лето
-02. Лето - Позови
-03. Reflex - Моя любовь
-04. Матрикс - Луна ( latrack remix lotos )(   Читать дальше...   )Жанр: PopПродолжительность: 01:08:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5128581BE0904DD93FB139F3192ECB423F59E2B
 ```
 
 https://mybot314.ru/tekegram_catalog/

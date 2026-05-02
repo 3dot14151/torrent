@@ -1,3 +1,65 @@
+###  Публикация: 1311059   (538110) от 01.07.2019
+
+Infected Mushroom - Artificial Visualisation (2004) Unreleased [FLAC|Lossless|tracks] <Psy-Trance, Dubstep, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ministry of Angels (feat Yahel)
+02.Expose (feat Space Cat)
+03.Blue Rythmic Night (feat I.Zen)
+04.Zahadum(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 01:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D744BF81AC540889672EB838C702F08BE6EECE82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 532421   (538068) от 07.08.2012
+
+VA - Chill & Dub (vol.8) (2012) [MP3|320 кб/с]<Chillout/DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Adventure Club - Wait (Kannamix Remix)
+02.Aly & Fila feat. Jwaydan - Together We Control The SunLight
+03.Ayo - Better Days (Yashar Gasanov dubstep remix)
+04.Bingo Players - Don't Blame The Party (Culture Code Remix)
+05.Drumsound & Bassline Smith - Through The Night (Horx & P3000 Remix)
+06.Funny Kid Project - When You're Away
+07.Havana Brown - One Way Trip
+08.Helios - In Heaven (Shem Remix)Жанр: Chillout/DubStepПродолжительность: 01:44:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBEEEDC2E3887CD7FC919ECC082EACE1E2A99171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557219   (537321) от 17.06.2022
 
 VA - Record Super Chart 11.06.2022 [MP3|320 Kbps] <Pop, Dance>
@@ -687,64 +749,6 @@ VA - Vocal Trance Collection Vol.4 (2017) [MP3|320 Kbps] <Vocal Trance, Upliftin
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BCB7175170E83BFB1807380303E611650BF141C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1051036   (535024) от 10.09.2016
-
-VA - Oktoberfest Dance 2016 (2016) [MP3|320 Kbps] <Electronic, Progressive, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535024.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ N'Farmer - Jumpin [4:02]
-02. Brisby & Jingles - She's Like the Wind (Feat. Miloud) (Tim Verba Remix) [5:06]
-03. Tom Larusso - Suspicious Minds (Feat. King Presley) [4:15]
-04. DJ Maxx Fiesta vs Tony T - Feel It in My Heart (Michael Fall Remix) [5:06](   Читать дальше...   )Жанр: Electronic, Progressive, DanceПродолжительность: 01:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC0EEC7FD2D267609A808AB4D4EB4F8485F035D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050992   (535009) от 10.09.2016
-
-VA - 100% Dance Party Cocktail (2016) [MP3|242320 Kbps] <Club, Dance, House, Electronic, Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535009.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jack Holiday & Sash! - Encore Une Fois (Dany Lorence & Jack Holiday Radio Edit)
-002. Chuck & Norris Feat. E-Rockaz - World Whitout Music (Radio Edit)
-003. Dj Nanux - Take Me
-004. Doctor Jeep - Eccies(   Читать дальше...   )Жанр: Club, Dance, House, Electronic, TechnoПродолжительность: 08:56:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06E43BDB77BB09D3DFB5F4B61702B62F8C62CD98
 ```
 
 https://mybot314.ru/tekegram_catalog/

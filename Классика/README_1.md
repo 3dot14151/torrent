@@ -1,3 +1,32 @@
+###  Публикация: 1469721   (1016289) от 13.05.2021
+
+Святослав Рихтер - Бетховен - 33 вариации на вальс Диабелли (1994) [FLAC|Lossless|image + .cue] <Chamber, Instrumental, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tema. Vivace (0:53)
+02. Var. 1. Alla marcia maestoso (2:25)
+03. Var. 2. Poco allegro (0:56)
+04. Var. 3. L'istesso tempo (1:20)(   Читать дальше...   )Жанр: Chamber, Instrumental, PianoПродолжительность: 00:52:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABBBFD7A481F70A9C71B2D95537E6A9B589DB25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468551   (1015782) от 16.05.2021
 
 Русская фортепианная школа - Генрих Нейгауз (2002) [FLAC|Lossless|image + .cue] <Instrumental, Piano>
@@ -766,41 +795,6 @@ Symphony No 2
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A1363B3AE3F107AEF13E3D6D342CA32623B4046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604651   (996061) от 18.01.2013
-
-Telemann, Albinoni, J.S. Bach, J-J. Mouret, Handel, Yon - Music for Trumpet and Organ: Festive Music (1999)/2003 Naxos [WavPack (iso.wv)|Lossless]<Chamber>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996061.jpg" />
-</div>
-
-
-###  Подробнее
-
-Georg Philipp Telemann (1681-1767)
-1.	Air de trompette	0:57
-2.	Gayment		0:38
-3.	Air de trompette da capo	1:05
-Tommaso Albinoni (1671-1751)
-Concerto Saint Marc
-4.	Grave		2:10
-5.	Allegro	1:38
-6.	Andante	1:12
-7.	Allegro	1:54(   Читать дальше...   )Жанр: OrganПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E5C3E599E01585967FDA7285D83529B8F83A9D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

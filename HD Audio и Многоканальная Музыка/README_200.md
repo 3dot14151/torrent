@@ -1,3 +1,177 @@
+###  Публикация: 1793516   (67530) от 24.04.2025
+
+H.e.a.t. - Welcome To The Future (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Arena Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disaster (3:46)
+02. Bad Time for Love (3:01)
+03. Running to You (3:04)
+04. Call My Name (4:16)(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7ED2BCEA5B92BB995D5FE9D737C32BD89BC596D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793512   (67529) от 24.04.2025
+
+Art Nation - The Ascendance (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Set Me Free (3:32)
+02. Thunderball (4:09)
+03. Halo (4:16)
+04. Runaways (4:23)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F51A54536E3C46D0E4D35E49EEBD61F5B9862A22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793521   (67524) от 24.04.2025
+
+Machine Head - Unatøned (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Groove Metal, Thrash Metal, Alternative Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LANDSCAPE ØF THØRNS (0:31)
+02. ATØMIC REVELATIØNS (3:42)
+03. UNBØUND (3:57)
+04. ØUTSIDER (3:57)(   Читать дальше...   )Жанр: Groove Metal, Thrash Metal, Alternative MetalПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28220CA46E7828440212BAA2FF0DED1DC47813B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793305   (67517) от 24.04.2025
+
+Cougar Synth - 2013 (2014) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave, Retrowave, Dreamwave>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wild Inside (4:11)
+02. Retrace (3:54)
+03. Timeline (3:06)
+04. Afterglow (4:22)(   Читать дальше...   )Жанр: Synthwave, Retrowave, DreamwaveПродолжительность: 01:43:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E00DD9CD93779C2E330E97DE35EC9DA68814BFEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793051   (67516) от 24.04.2025
+
+Akrea (ex-Inner Aggression) - Studio Albums (4 releases) (2007-2013) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Akrea - немецкая метал-группа из Эрдинга, Бавария, образована в 2004 году как "Inner Aggression". В 2008 сменила название на "Akrea". Расформирована в 2014 году.2007 - Beginning Of An Inner War (as Inner Aggression)
+2009 - Lebenslinie
+2010 - Lugenkabinett
+2013 - Stadt Der Toten TraumeЖанр: Melodic Death MetalПродолжительность: 03:28:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2BBA07F5A4AD0760273008CDCF46532150F29BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793478   (67515) от 24.04.2025
+
+Dawn of Solace - Affliction Vortex (2025) [WavPack|32/192|image + .cue|Vinyl-Rip]<Melodic Doom, Death Metal, Gothic, Doom Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67515.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Inception
+A2 - Murder
+A3 - Fortress
+A4 - Into The Light(   Читать дальше...   )Жанр: Melodic Doom, Death Metal, Gothic, Doom MetalПродолжительность: 00:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E46DCDC5F4236174B175A743E7D6AAEAADDB6D3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792894   (67512) от 24.04.2025
 
 Manowar - Fighting the World (1987) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
@@ -566,180 +740,6 @@ Jeff Krause & Brokedown Gramophone - Brokedown Gramophone (Live at Marigny Studi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6692CE0A134E4CA867FDE223131B6B0F47DE7AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793643   (67452) от 25.04.2025
-
-Elegant People, Lo Greco Bros and Soulstance - Atlantis (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Atlantis (5:15)
-02.  Breaking Up (5:37)
-03.  Dear Mister X (4:36)
-04.  Hunky Funky (6:02)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:01:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2D7568C6C0701517D7C709702A67A1CBAD7F502
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793651   (67451) от 25.04.2025
-
-Karen Lee Andrews - Survival (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dark and Heavy (5:00)
-02.  Borrowed Time (3:44)
-03.  Nobody's Fool (4:00)
-04.  Survival (4:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C08A76BE0FA4E53B5D7885D63CEB5E5EE40BF23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793667   (67450) от 25.04.2025
-
-Vegas Two Times - Challenge (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Heater (5:42)
-02.  Challenge (4:22)
-03.  Ashes To Ashes (4:18)
-04.  Travels Of The Hero (5:33)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41172F8C04311ECA82A9DC7D5DD84AD71EF68797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793661   (67448) от 25.04.2025
-
-Nikhil Korula Power Trio, Bob Malone, and Gregg Wright - Sight & Sound Episode 4 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Struttin' (4:29)
-02.  Red House (5:06)
-03.  Good Love Is on the Way (3:08)
-04.  The Price of Falling Down (6:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E92A45CF54B500E9EC37968355CA0C8BAED4BBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793653   (67447) от 25.04.2025
-
-Mike Farris - The Sound Of Muscle Shoals (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ease On (4:24)
-02.  Heavy On The Humble (4:05)
-03.  Swingin' (5:31)
-04.  I'll Come Runnin' (5:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8FAF91A7D5660A36E9D5633124265E9F79D6EA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1793637   (67446) от 25.04.2025
-
-Samael - Rebellion (1995) (EP) Reissue, 2014, Floga Records [FLAC|24/96|tracks|Vinyl-Rip] <Black Metal, Electronic, Industrial Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67446.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Rebellion
-A2 After The Sepulture (New Version)
-A3 I Love The Dead
-B1 Static Journey(   Читать дальше...   )Жанр: Black Metal, Electronic, Industrial MetalПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A14D243F236A840441C71C6F6D21038AA4B0E21
 ```
 
 https://mybot314.ru/tekegram_catalog/

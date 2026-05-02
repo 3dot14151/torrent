@@ -1,3 +1,61 @@
+###  Публикация: 1606292   (1044543) от 21.01.2023
+
+Nina Hagen – Love (1987) [FLAC|Lossless|tracks + .cue]<New Wave, Punk, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044543.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zarah ( Ich Weiss, Es Wird Einmal Ein Wunder Geschehn )
+02. Smack Jack
+03. TV-Glotzer ( White Punks On Dope )
+04. Universelles Radio(   Читать дальше...   )Жанр: New Wave, Punk, Pop RockПродолжительность: 00:48:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FB2A10D95F58EAC16872F9AE377C026899CB46E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606735   (1044331) от 23.01.2023
+
+New Found Glory - Make The Most Of It (2023) [FLAC|Lossless|tracks + .cue] <Pop Punk, Alt Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044331.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dream Born Again (04:21)
+2. Mouth To Mouth (04:12)
+3. Get Me Home (03:30)
+4. Watch the Lilies Grow (04:33)(   Читать дальше...   )Жанр: Pop Punk, Alt RockПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C886316A8CFECADC6E20526A5D7C65EFD249A470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590973   (1043539) от 31.01.2023
 
 The Smashing Pumpkins - Atum: Act I-II (2022-2023) 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -687,64 +745,6 @@ Seconds Ago - Dysphoria (2023) [FLAC|Lossless|WEB-DL|tracks] <hardcore, metalcor
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B139D7370C9D7EDA7AAB4495BC774AC60D235ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616388   (1036449) от 02.03.2023
-
-Illmatic - Watching The World Burn (2023) [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Downfall [00:03:01]
-02. Rat Traps [00:03:33]
-03. Baptized In Hell [00:02:37]
-04. Price Of Life [00:02:15](   Читать дальше...   )Жанр: Rapcore, HardcoreПродолжительность: 00:29:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B6C721520677375ACE592A04DEF31F19C431370
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616376   (1036445) от 02.03.2023
-
-U.S. Girls - Bless This Mess (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Only Daedalus (00:03:29)
-02 - Just Space For Light (00:03:56)
-03 - Screen Face (00:03:20)
-04 - Futures Bet (00:04:52)(   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, SynthpopПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A41D8825C8026EC75BC34D03DAC213D81A35F2
 ```
 
 https://mybot314.ru/tekegram_catalog/

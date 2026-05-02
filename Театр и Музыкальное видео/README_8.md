@@ -1,3 +1,84 @@
+###  Публикация: 600169   (998759) от 08.01.2013
+
+Adele - Live at the Royal Albert Hall (2011) [H.264] BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998759.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт Adele в The Royal Albert Hall состоявшийся 22 сентября 2011 года...01. Hometown Glory
+02. I'll Be Waiting
+03. Don't You Remember
+04. Turning Tables(   Читать дальше...   )Жанр: R&B, Soul, Gospel, BluesПродолжительность: 01:39:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600635   (998559) от 09.01.2013
+
+Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hip-hopПродолжительность: 00:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A1018CC895AE8DFD80A348D2779E1B80D6F147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600638   (998531) от 09.01.2013
+
+Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998531.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29AAC356EF5AF60371C98D64036970C11E5F919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 600636   (998523) от 09.01.2013
 
 EarAbuse - Phonography (Uncensored) (2012) [H.264/720p] WEBRip
@@ -643,103 +724,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DC5C0AACF013F9CFD24BC4A381B31FD9C1135F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 604523   (995702) от 19.01.2013
-
-Сборник клипов - DJ VJ Magrao - Full Video Collection (2003-2012) 15хDVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995702.jpg" />
-</div>
-
-
-###  Подробнее
-
-DJ VJ Magrao (настоящее имя- Luis Eduardo) - известный Бразильский радио ди джей, ви джей - один из пионеров музыкального, клубного направления - видеомикс - является одним из самых известных ви джеев мира, совладелец Бразильского музыкального лейбла - "Uberaba MG".
-Magrao - один из пионеров видеомикс-направления.
-Отличительной чертой его миксов является (   Читать дальше...   )001 - DJ Magrao - Intro
-002 - Dr.Alban - Look Who's Talking
-003 - Dr.Alban - Away From Home
-004 - Ace Of Base - The Sign(   Читать дальше...   )Жанр: Pop, Club, Dance, HouseПродолжительность: 01:18:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B890491763E41EEB25FD1E2BB4BE403E75DF50F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605410   (995498) от 20.01.2013
-
-ABBA - ABBA (Deluxe Edition) (2012) DVD5
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995498.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. ABBA In Australia (Television Special)
-a. Mamma Mia
-b. Hasta Mañana
-c. Ring Ring(   Читать дальше...   )Жанр: Pop, DiscoЯзык субтитров: Шведские, английские, французкие, немецкие, испанские, португальскиеПродолжительность: 01:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15AD1BE57D6D8FD79C4B9B056196E26E24213D52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605356   (995480) от 20.01.2013
-
-Duran Duran - A Diamond In the Mind (2011) [720] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт состоялся в центре Манчестера, одиннадцатиметровая арена .была черной, когда начался концерт. Очень эффектным стал выход группы на сцену в струях белого дыма струйка белого дыма, Duran Duran
-Великолепные визуальные эффекты и и инсталляции на протяжении всего концерта и приглашенные звезды сделали шоу поистине незабываемым.
-Ле Бон написал позднее в Twitter: ""Я просто люблю музыку, здесь мы все на одной стороне!"01. Return to Now
-02. Before the Rain
-03. Planet Earth
-04. View to a Kill
-05. All You Need Is Now
-06. Blame the Machines
-07. Safe (In the Heat of the Moment)
-08. The Reflex
-09. Man Who Stole a Leopard
-10. Girl Panic!(   Читать дальше...   )Жанр: RockПродолжительность: 01:35:20
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

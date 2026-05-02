@@ -1,3 +1,59 @@
+###  Публикация: 915264   (592337) от 05.07.2015
+
+VA - Vocal Trance Seduction Vol 5 (2015) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Miller, Nicole McKenna - This Time Last Year (Original Mix) (07:04)
+02. Jan Martin - There's You (LTN Remix) (06:55)
+03. Lisaya ft. Hanna Finsen - Time To Live (Original Mix) (07:25)
+04. Julie Thompson with Dragon & Jontron - Loved (Sied van Riel Remix) (06:38)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 03:19:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED1E1FA3FF9883D0AF7C221B2A95229B7668AC20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916165   (591399) от 07.07.2015
+
+VA - Beatport Indie Dance / Nu Disco Top 100 June (2015) [MP3|320 кб/с]<Indie Dance / Nu Disco, G-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Croatia Squad - Back to Life (Original Mix)
+02. Lika Morgan - Relax (Don't Do It) (Original Mix)Жанр: Indie Dance / Nu Disco, G-HouseПродолжительность: 10:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7978BF10EBEBB5F8344796BFA37AE459546655A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 916245   (591331) от 07.07.2015
 
 VA - 100 Волшебных треков Chillout (2015) [MP3|160-320 кб/с]<Chillout, Lounge, Ambient, Trap>
@@ -702,64 +758,6 @@ VA - Republic Of Free Music: Trance Set (2019) [MP3|320 Kbps] <Trance, Electro>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C17034823D98F1AD9F921E1711B4640796557A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301450   (584342) от 12.05.2019
-
-VA - New Gallery Soft House (2019) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584342.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Modell - Great Koma
-002. Vin Veli - Te Amo
-003. Gene Hunt - Deep House Thang
-004. Tony Cool - Gianfalla (Funk And Deep Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 09:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BBFE5B618E414765A14C11F02DF7430758B3FE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1301059   (584295) от 12.05.2019
-
-VA - Drum Report Bass Line (2019) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584295.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lymph Project - Heights
-002. Triple Sickz - Intro (The Sixth Sense)
-003. Damage Report - Monster
-004. Degwood - The Next Stage (Original Mix)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 10:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06C70B0782AD86541465C37E4C4504A990B74965
 ```
 
 https://mybot314.ru/tekegram_catalog/

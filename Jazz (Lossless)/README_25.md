@@ -1,3 +1,67 @@
+###  Публикация: 1097165   (975546) от 02.02.2020
+
+Gregory Fine (Григорий Файн) Trio - The Road To Mississauga (1997) Союз[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Wheathland [08:20]
+ 02.Elegia [01:32]
+ 03.Waltz For Maria [06:57]
+ 04.The Road To Mississauga [05:17](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D61F9D98906146F75A04E5C31B185A152374CE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 616540   (975148) от 10.02.2013
+
+VA - Jazz Ballads With A Blue Feeling (2003) [FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ernie Andrews - Everybody's somebody's fool [05:11]
+02. Etta Jones - God bless the child [07:16]
+03..Sheila Jordan - Good morning heartache [06:06]
+04. Dakota Staton - Trav'lin' light [05:20]
+05. Mark Murphy - I'm Thru With Love [04:46]
+06. Wesla Whitfield - Ill wind [04:18]
+07. Della Griffin - This bitter earth [05:19]
+08. Etta Jones - I'm afraid the masquerade is over [08:58]
+09. Everett Green - When Did You Leave Heaven [06:39]
+10. Dinah Washington - It's too soon to know [02:21](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 01:01:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974981   (974597) от 13.01.2016
 
 The J.J. Johnson Sextet - J.J. Inc. (1960) Remaster, 2014, Sony Music[FLAC|tracks+.cue] <Hard Bop>
@@ -686,64 +750,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB3CBC758A5379826EF7C78A425D6537F564AFD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976722   (968836) от 18.01.2016
-
-George Cables - In Good Company (2015) HighNote[FLAC|tracks+.cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.After The Morning [08:40]
- 02.Mr. Anonymouse [05:04]
- 03.Naima's Love Song [06:52]
- 04.It Don't Mean A Thing (If It Ain't Got That Swing) [04:37](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:02:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D297E81B87B1729A02C699A142528A1E664BE54C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358543   (968825) от 08.02.2020
-
-Ivan Paduart - Alone (2005) Alone Blue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_968825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So [4:20]
-02. Renaissance [2:34]
-03. Arythmie [1:49]
-04. Spring in Your Mind [1:26](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64EDF17AA0241D189D633EFDD74C9E5F507AA921
 ```
 
 https://mybot314.ru/tekegram_catalog/

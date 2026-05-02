@@ -1,3 +1,177 @@
+###  Публикация: 1750401   (104197) от 20.09.2024
+
+Eduardo Belo - Belo and the Beasts (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afoxari (6:24)
+02. Jangada no forró (4:48)
+03. Professor Boccato (5:24)
+04. Café com banana (4:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A1247A8C42D8A6516DD3CDDA89AFDFB4DE6F09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750458   (104196) от 20.09.2024
+
+Lyle Lovett And His Large Band - Lyle Lovett And His Large Band (1989) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Big Band, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104196.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 The Blues Walk
+A2 Here I Am
+A3 Cryin' Shame(   Читать дальше...   )Жанр: Big Band, CountryПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1797327DEC3A90901D3552AE8A8C50FA135F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750544   (104190) от 21.09.2024
+
+Secret Garden - Songs In The Circle Of Time (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <New Age, Neo Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renaissance (4:44)
+02. Lullaby For Grown-Ups (4:36)
+03. Fionnuala's Violin (3:58)
+04. Irish Waltz (3:33)(   Читать дальше...   )Жанр: New Age, Neo ClassicalПродолжительность: 00:51:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:705EFDF10B2E5D40944EFDB16BADADCEA4DFFD5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750545   (104187) от 21.09.2024
+
+Sweet - Full Circle (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104187.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circus (2:56)
+02. Don't Bring Me Water (4:32)
+03. Burning Like A Falling Star (3:51)
+04. Changes (3:38)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF248D292D9D3DA920D58154EBA0BB990DE1F1FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750718   (104183) от 21.09.2024
+
+Seether - The Surface Seems So Far (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-grunge, hard-rock, alternative-metal, nu-metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Judas Mind (4:34)
+02. Illusion (4:02)
+03. Beneath The Veil (3:44)
+04. Semblance Of Me (4:16)(   Читать дальше...   )Жанр: Post-grunge, hard-rock, alternative-metal, nu-metalПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE08D2241B2EA9A54D69BD6D559611E702DCECB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1750591   (104179) от 21.09.2024
+
+Kenny Wayne Shepherd - Dirt On My Diamonds Vol 2 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Got A Woman (4:13)
+02. The Middle (3:56)
+03. My Guitar Is Crying (3:36)
+04. Long Way Down (3:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B954F03A6CE40A539685873BE5C1F867AA793DE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1750596   (104167) от 21.09.2024
 
 Tony Levin - Bringing It Down to the Bass (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -571,180 +745,6 @@ Aetherwind - Ethereal Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:061B1985E8C561F04B77D2F06FBE0161D33EFCA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750811   (104100) от 22.09.2024
-
-Patrick Bradley - Gratitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz, Latin Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Narrow Path (4:33)
-02. Nothin' Ain't (4:00)
-03. Road Trippin' (4:20)
-04. Gratitude (4:01)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary Jazz, Latin JazzПродолжительность: 00:44:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96263EA1528EAECE565B676812DF4F3073DBB372
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750810   (104099) от 22.09.2024
-
-LeSoir - Push Back The Horizon (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive-Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Push Back The Horizon (5:19)
-02. Under The Stars (4:53)
-03. Fireflies (5:00)
-04. You Are The World (5:33)(   Читать дальше...   )Жанр: Progressive-RockПродолжительность: 01:08:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0016CCA0719DF91BEAA285EADD2E49E495901AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751045   (104098) от 23.09.2024
-
-Dell Solano - Músicas Autorais (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Te Amo (4:17)
-02. Vou Morar no Rio (3:53)
-03. Corpo Coração (5:05)
-04. Águas Passadas (3:35)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5404A045D3133DE9969E8EF33D663B6CB4F92B7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751032   (104097) от 23.09.2024
-
-Bones Owens - Love out of Lemons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love out of Lemons (3:32)
-02. Devil Gonna Getcha (2:36)
-03. For Keeps (2:45)
-04. Get It On (2:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E152CBE7F64015ED4B5396FD88E116EE21DAF935
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751041   (104096) от 23.09.2024
-
-Choca Blues - The Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wind (4:51)
-02. Illinois Blues (4:49)
-03. Wild Ox Moan (4:29)
-04. Two Trains Running (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E3D48D839D53BA78D4ECE64BC95222DE049660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751129   (104095) от 23.09.2024
-
-Klaus B. Jensen - In Memory of a Great Dane - The lost recordings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby, What Do You Want Me To Do? (3:26)
-02. I Want To Go (2:36)
-03. Candy Man (3:20)
-04. The Sky Is Crying (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD710740585F7F722373C03DD73E3EAB6219BB8B
 ```
 
 https://mybot314.ru/tekegram_catalog/

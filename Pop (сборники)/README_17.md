@@ -1,3 +1,119 @@
+###  Публикация: 1099486   (904936) от 01.02.2017
+
+VA - Музыкальные новинки. Only Best Hits. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904936.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olisha - Не Трави 3:53
+002. Bruno Mars - Versace On The Floor 4:21
+003. Dельфина - Привет От Одиноких 3:44
+004. Dnce - Naked 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:778722837AC3226E4CB831CB80D712EF6777A711
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099508   (904927) от 01.02.2017
+
+VA - Звездная вечеринка. Выпуск №10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904927.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Руки Вверх - Когда Мы Были Молодыми 4:33
+002. Stephen - Sincerely 4:47
+003. Lemaitre - Day Two 3:59
+004. Aisha - Сильно Сильно 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0D165242B3B49F56262BBE19B807AFAE93D54C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099494   (904861) от 01.02.2017
+
+VA - Автозвук. Отборный зимний хит. Версия №3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904861.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юлианна Караулова - Так Близко 3:42
+002. Placebo - Life's What You Make It 5:19
+003. Алена Жданова - Вот И Все Прошло 4:26
+004. Dave Till Feat. Big Dawg - Real Love 3:41(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A6B4E5C835665D8545C0114AB8FE8A508ECF294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369102   (904539) от 22.03.2020
+
+VA - Radio DFM: Top D-Chart [21.03] (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Artik & Asti - Девочка танцуй (DJ Prezzplay & Kolya Dark Remix) 4:10
+02. Billie Eilish - Everything I Wanted (Kolya Dark & Alex Shik Radio Edit) 3:59
+03. The Weeknd - Blinding Lights 3:22
+04. Макс Барских - Лей не жалей (Lavrushkin & Max Roven Remix) 3:43(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0734CF4009A5D43430B883C2D9868666E35D496
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 636282   (904178) от 29.03.2013
 
 VA - Real Disco (2013) [MP3|320 кб/с]<Disco, Eurodisco, Pop>
@@ -641,116 +757,6 @@ VA - Русское радио. Весенняя дискотека по-рус�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FD0EEE04F333CF33E2F349689FE936DF66AEDE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294820   (898224) от 12.02.2011
-
-VA - Музыкальная энергия страсти 50/50 (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898224.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:02:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C6A862DF36B642B56C936CDA121B16CB8130363
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 294425   (898222) от 12.02.2011
-
-VA - Лучшая 200ка: Зимний хит-парад 50/50 Part 1 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898222.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 11:55:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E0F77AED1BEB1EF9798BE6F72FDB534ADAEAAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100736   (898079) от 05.02.2017
-
-VA - Снегопад новинок от Хит fm. Выпуск № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898079.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adrima - I Can't Help Myself 3:31
-002. Ost Up (Остап) - Афродита 4:04
-003. Bantu - Holiday 3:36
-004. Герр Антон - Леди И Джентльмены 3:03(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA18DB17EF999E9024E7644E90263098FFCCAAA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100801   (898022) от 05.02.2017
-
-VA - Музыкальное потрясение зимы. Сборник №5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898022.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Базиль - Пой Мне 3:12
-002. Алла Пугачева - Не Звони 2:46
-003. Vlad Bostan Feat. Taya - Оригами 3:42
-004. Atesh - Самая Сильная 3:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA7336A20673ADB8C47D892A76269E6AAC8E503
 ```
 
 https://mybot314.ru/tekegram_catalog/

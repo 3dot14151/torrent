@@ -1,3 +1,61 @@
+###  Публикация: 932583   (508324) от 30.08.2015
+
+VA - LSD: Love, Sex & Diamonds (2015) [MP3|320 кб/с]<House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Las Vegas Boys - Living in a Fantasy (3:42)
+02. Plus 11 - Island Women - Ibiza Beach Mix (3:24)
+03. Teknologic - Totem Moment (3:40)
+04. Rhythm O' Tronik - Beautiful Brown - Vanguard Remix (3:21)(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 01:35:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E94E7CC65CA54E21BCA31269A90312B5DC39E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932837   (508316) от 30.08.2015
+
+VA - Deep House Music - Sexy House Lounge (2015) [MP3|320 кб/с]<Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jox Talay - SLS Pool
+02. Hoboken - Lampedusa Lounge
+03. Sonaya - Palma de Lounge
+04. Belloq - Bellini Groove(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4B5C408465FC37FA4BFDD8C44CADAD4130EB84F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 932597   (508165) от 30.08.2015
 
 VA - White Double Vocal Bass (2015) [MP3|320 кб/с]<Drumm and Bass, Dubstep>
@@ -714,64 +772,6 @@ VA - Vocal Trance Collection Vol. 136 (2015) [MP3|320 кб/с]<Trance, Vocal Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B215B958DA95E183DD075B8B72C5F5D81CD6557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934726   (501261) от 06.09.2015
-
-VA - Music For Everyone - Atmospheric & Progressive Breaks Vol.4 (2015) [MP3|320 кб/с]<Atmospheric Breaks, Progressive Breaks>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501261.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stardesign – Fluffy Clouds (Broken Dub Edit)
-2. B.O.N.G. – Small Things (Aeron Aether Breaks Remix)
-3. Max Gueli - Interstellar Dreams (Original Mix)
-4. Arthur Deep - Phoenix (Original Mix)(   Читать дальше...   )Жанр: Atmospheric Breaks, Progressive BreaksПродолжительность: 01:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ADF1E786ADF2AA481BB1D27EFF6C9A747855E40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935136   (500628) от 07.09.2015
-
-VA - 100 Techno Minimal Tracks (2015) [MP3|320 кб/с]<Techno, Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500628.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alberto Feria Alvaro MNML - Penicilline [07:02]
-002. Deep Hazex - The Minimum of the King in the Mountain [07:34]
-003. DJ Navigare - Piter PeN [06:49]
-004. Manu Hell - TuttiFatti [06:20](   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 10:27:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02DE7737052151282D686148FB85BE11DBF50F9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

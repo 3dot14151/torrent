@@ -1,3 +1,61 @@
+###  Публикация: 803440   (674218) от 22.05.2017
+
+VA - The Best Rock - 100 Greatest Hits (2014) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674218.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ACDC - You Shook Me All Night Long
+002. Motorhead - Ace of Spades
+003. Guns and Roses - Paradise City
+004. Red Hot Chili Peppers - Otherside(   Читать дальше...   )Жанр: RockПродолжительность: 07:34:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8078BB0E081DCC983FC6F03687F6E7C5D864130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 762221   (674204) от 22.05.2017
+
+VA - 500 лучших песен Нашего Радио (2014) 27CD [MP3|320 kbps]<Русский рок, поп-рок, панк-рок>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674204.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Король и Шут - Лесник
+002. Кино - Группа крови
+003. Наутилус Помпилиус - Я хочу быть с тобой
+004. Кипелов - Я свободен(   Читать дальше...   )Жанр: Русский рок, поп-рок, панк-рокПродолжительность: 33:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E092682A3269FA14C4A07088DB0E8EE7B402F3CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1030254   (673680) от 30.06.2016
 
 W.A.S.P. - The Best of the Best (2016) (2CD) [MP3|320 Kbps] <Heavy Metal>
@@ -687,67 +745,6 @@ VA - Eli's Tears (2018) [MP3|320 Kbps] <Heavy, Death Metall>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDDB5C8C3871E8CC003B323A7DF2908DD4ED7C55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226500   (654596) от 21.05.2018
-
-VA - Hits of My Soul Vol. 36 (2018) [MP3|320 кб/с]<Rock, Metal, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654596.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. SOiL - Redefine (03:36)
-02. Twisted Sister - Feel Appeal (03:19)
-03. Prophets Of Rage - Prophets Of Rage (03:10)
-04. Bad Company - Run With The Pack (05:22)(   Читать дальше...   )Жанр: Rock, Metal, AlternativeПродолжительность: 03:26:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82A90E43D793B6FC142A4002FD9626667CDB16CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140923   (653849) от 08.06.2017
-
-VA - Alternative Digest June 2017 Mix (2017) [MP3|192-320 Kbps] <Alternative Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653849.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Animal Alpha - 101 Ways 05:52
-002. Yellowcard - A Place We Set Afire 04:20
-003. Aquilo - All I Ever Wanted 02:30
-004. Takida - All Your Life (Haven Stay Part 2) 03:51(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 11:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1FA4B05BD43F5B6AF81A4BA6E471A09271E4AD
 ```
 
 https://mybot314.ru/tekegram_catalog/

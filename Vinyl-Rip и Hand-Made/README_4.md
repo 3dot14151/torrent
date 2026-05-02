@@ -1,3 +1,149 @@
+###  Публикация: 1606807   (1044308) от 23.01.2023
+
+Skaldowie - Szanujmy Wspomnienia (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044308.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Wszystko Kwitnie WkoloA2 Zyczenia Z Calego Serca
+A3 Zgadzam Sie Na Ten Swiat
+A4 Slowa Do Matki
+A5 Szanujmy Wspomnienia(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B702E12FBDB5C1E1E3A0823688A228309BF034C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607185   (1044158) от 25.01.2023
+
+Татьяна Кочергина и Рок-группа «XX Век» - «Добром за добро» (1988) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044158.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Добром За Добро
+A2 Наказ Сыну
+A3 Симфония, Часть 1
+A4 Тiнi(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17A4CE643D8847CE7E1CFD22E22534E740929BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607410   (1044058) от 26.01.2023
+
+Рок-группа «Мост» - Музыка Сергея Баневича (1983) [FLAC 2.0|192/24|image+.cue] <Art Rock, Prog Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044058.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ночной Полет
+A2 Ау, Улетевшее Детство
+A3 Корабль
+A4 Ночь(   Читать дальше...   )Жанр: Art Rock, Prog Rock, Pop RockПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3707E093ACCEBFD19C32638E27DB699A89A05FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607472   (1044025) от 26.01.2023
+
+Falkenbach - Studio Albums (6 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Viking/Black/Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044025.jpg" />
+</div>
+
+
+###  Подробнее
+
+Falkenbach — немецко-исландский метал-проект.
+Группа на самом деле представляет сольное творчество Маркуса Тюммерса (Vratyas Vakyas). По происхождению немец, большую часть своей жизни он прожил в Исландии. Потом переехал в Германию, сейчас живёт в Дюссельдорфе, где у него собственная студия звукозаписи Skaldik Art, специализирующаяся на поддержке молодых языческих (   Читать дальше...   )1996 - ...En Their Medh Riki Fara...
+1998 - ...Magni Blandinn Ok Megintiri...
+2003 - Ok Nefna Tysvar Ty
+2005 - Heralding The FirebladeЖанр: Viking/Black/Folk MetalПродолжительность: 04:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE5FE7B3487FF74257B3A15564CCA03BF213E88A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1608024   (1043805) от 28.01.2023
+
+Alice in Chains - Studio Albums (8 releases) (1990 - 2018) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Grunge, Heavy/Sludge Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043805.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alice in Chains — американская рок-группа из Сиэтла, образованная Джерри Кантреллом и Лейном Стейли в 1987 году. В начале 90-х годов коллектив получил широкую известность на волне роста популярности гранжа, наряду с Nirvana, Pearl Jam и Soundgarden.1990 - Facelift
+1992 - Dirt
+1995 - Alice In Chains
+1999 - Music Bank(   Читать дальше...   )Жанр: Grunge, Heavy/Sludge Metal, Hard RockПродолжительность: 11:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4321F77154E854F08DB88D4B5D9FAFA56DCF662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573515   (1043800) от 28.01.2023
 
 Lake of Tears - Studio Albums (9 releases) (1994 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Doom/Gothic Metal>
@@ -599,152 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35C3B4CC76A76978711873EEC5BDD1DE5B869C29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616139   (1036717) от 01.03.2023
-
-VA - Алексей Мажуков – Песни Любви (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036717.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 В. Бельченко - Признаюсь Я
-А2 Ж. Рождественская – Свет В Окне
-А3 О. Пирагс – Летние Каникулы
-А4 К. Георгиади - Судьба Моя(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4292920DF906823BAF83E4D49F043AA4FA1BBCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616292   (1036682) от 01.03.2023
-
-Dimmu Borgir - Studio Albums (13 releases) (1994-2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dimmu Borgir — норвежская группа, играющая в жанре симфонический блэк-метал, образованная в 1993 году. Одна из немногих блэк-метал-групп, достигших серьёзного коммерческого успеха и популярности за пределами поклонников этого жанра.1994 - For All Tid
-1996 - Devil's Path
-1996 - Stormblast
-1997 - Enthrone Darkness Triumphant(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 12:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C81AE2EDE65045BCCE29CDD0DCBF27DE29C0A38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618090   (1034398) от 10.03.2023
-
-KYPCK - Studio Albums (4 releases) (2008-2016) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034398.jpg" />
-</div>
-
-
-###  Подробнее
-
-KYPCK — финская концептуальная дум-метал-группа, основанная в январе 2007 года.
-Группа известна тем, что исполняет песни на русском языке. Автором текстов является вокалист группы Эркки Сеппянен, лингвист по образованию, который изучал русский язык и литературу, работал в Москве.2008 - Черно
-2011 - Ниже
-2014 - Имена на стене
-2016 - 3epoЖанр: Doom MetalПродолжительность: 03:46:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50FBD0E897F2FA12073D5FEA9203D1DE88BDDD6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618344   (1034132) от 11.03.2023
-
-Владимир Пресняков - Папа, Ты Сам Был Таким (1988) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034132.jpg" />
-</div>
-
-
-###  Подробнее
-
-А1 Недотрога
-А2 Папа, Ты Сам Был Таким
-А3 Белый Снег
-А4 Бабушка(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29C2D944B9DAA233782085AFCF9DB5A7BC4EEE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1208528   (1034040) от 11.03.2023
-
-VA - Italian Pop Music (1986) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Italo Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Claudio Baglioni - Un Giorno nuovo
-02. Lucio Battisti - E Penso A Te
-03. Edoardo Bennato - L'isola Che Non C'e
-04. Lucio Battisti - Ancora Tu(   Читать дальше...   )Жанр: Italo PopПродолжительность: 00:43:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E36B68997E1A4D1E01BD7C2942A9A48E1A0B23E
 ```
 
 https://mybot314.ru/tekegram_catalog/

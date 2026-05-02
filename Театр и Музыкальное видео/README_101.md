@@ -1,3 +1,90 @@
+###  Публикация: 957713   (326651) от 18.11.2015
+
+Wayra - Dreams of the Wind (2006) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326651.jpg" />
+</div>
+
+
+###  Подробнее
+
+На этом DVD , Wayra играет на индейской флейте с естественным ритмом, полный эмоций и чувствительности .... трансцендентного за пределами слов. Его музыка предлагает очаровательные звуки родных музыкальных инструментов с одиночеством земли, неба и дарами природы, наполняя сердца миролюбием, которые могут длиться всю жизнь. Музыкальные и видео клипы на этой записи (   Читать дальше...   )01. Dreams of the Wind
+02. Ghost Dance
+03. The white Feather
+04. Voices of the Wind(   Читать дальше...   )Жанр: Native American, PanfluteПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8DABDA655E3453777C00EAB719D7C8A27E81B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957456   (326391) от 18.11.2015
+
+VA - Осенний марафон № 205 / Видеоклипы (Дискотека с размахом № 4) (2015) WEBRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326391.jpg" />
+</div>
+
+
+###  Подробнее
+
+Осенние (17.11.2015) поп. новинки зарубежной и русской эстрады. Не пропустите, держите новые треки.01. Art Key - Делаю Больно (Премьера!) (00:03:13)
+02. De Hofnar X Goodluck - Back In The Day (Official Video) (00:02:47)
+03. Don't Wanna Be Your Lover - Vanessa White (Official Video) (00:03:11)
+04. Jessie J, Ariana Grande, Nicki Minaj - Bang Bang (Live At Capital Summertime Ball) (00:04:12)(   Читать дальше...   )Жанр: Pop, Dance, LatinoПродолжительность: 01:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D04562870F5F5FE79DB8571FB0FC2C761DDB294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956688   (325745) от 19.11.2015
+
+Bon Jovi - Tokyo Road Live In Japan (1985) VHSRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325745.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт в Shibuya Public Hall, Tokyo, Japan, 28-04-198501.Tokyo Road
+02.Breakout
+03.Only lonely
+04.She don't know me(   Читать дальше...   )Жанр: RockПродолжительность: 01:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C32316ABD770505E08E66AE9F37C339354A686F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 955862   (324870) от 20.11.2015
 
 Bon Jovi - Live At Nokia Theatre (2005) HDTVRip [H.264/1080i-LQ]
@@ -624,87 +711,6 @@ Ellie Goulding. Figure 8 (2012) [H.264/1080p] WEB-DLRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:159E69C1F90089C959CF41549FBDADF2EB55D9C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582072   (320526) от 29.11.2012
-
-The Rasmus. Somewhere (2012)  [H.264/1080p]WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320526.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ROCK
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DB0D33991B8D8A719C5E5EDBBB790B252F1F71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582089   (320380) от 29.11.2012
-
-Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dance
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8454E0ADBEEBEECF468C13AF3DFBE095AFF7B48A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958330   (319004) от 23.11.2015
-
-Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бонусный диск к альбому Whitesnake - The Purple Album (2015). Представлены четыре видеоклипа на песни с альбома, а также документальный видеоматериал по созданию альбома.1. Lady Double Dealer (Music Video)
-2. Sail Away (Music Video)
-3. Stormbringer (Music Video)
-4. Soldier Of Fortune (Music Video)(   Читать дальше...   )Жанр: Hard Rock, ДокументальныйПеревод: ОтсутствуетПродолжительность: 29:10 + 26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6387333F47D8BCF58D6ABE47FEE86111883CFB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

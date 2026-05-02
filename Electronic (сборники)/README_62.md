@@ -1,3 +1,61 @@
+###  Публикация: 1207630   (780424) от 19.02.2018
+
+VA - Empire Records - Fake 2 (2017) [MP3|320 Kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780424.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Neev Kennedy Jared Knapp and Patrick de Vere - Night Moves (Daniel Kandis Emotional Edit)
+002. Ciaran McAuley - Thoughts Become Things
+003. Fischer & Miethig - Touched By Bermuda (Mindsoundscapes Radio Cut)
+004. Dan Thompson - Lucid(   Читать дальше...   )Жанр: TranceПродолжительность: 10:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C618EE42881E8C88A415DA4F8FAA489C13D03E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1207804   (780422) от 19.02.2018
+
+VA - Empire Records - Chill Progress 2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daxsen & Tony Moss & INDATWIN & Juralis  -  Gravity (Forever Yours) (Juralis Remix)  4:15
+02.  Thomas Lemmer  -  A IV (Original Mix)  4:14
+03.  Klangstein  -  Klangsine (Part 2) (Original Mix)  4:43
+04.  Ju'Go  -  Ocean (Original Mix)  6:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA651A858345F1126F592F4E38C31596CBA5BEC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1207747   (780415) от 19.02.2018
 
 VA - Empire Records - Tropical Disco 4 (2018) [MP3|256-320 Kbps] <Deep House>
@@ -687,64 +745,6 @@ VA - Chill Dance Music (2018) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2582261E384123B43C858C53DFAB925B4C0A185
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210425   (778716) от 03.03.2018
-
-VA - Empire Records - Sound Clinic 10 (2017) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ G - Naked Truth (Tazer Remix)
-02. Liya Fran, WilyamDeLove - Is It Time (Original Mix)
-03. David Dsk - Up Music (Original Mix)
-04. Caal, Baum - Loved Hated (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 04:17:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6839E31FA89AEDCA49C84BF6D7599D4DFDB8D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210699   (778548) от 04.03.2018
-
-VA - The Official UK Top 40 Singles Chart 02.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drake - God's Plan (03:20)
-02. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen) (03:31)
-03. Dua Lipa - IDGAF (03:39)
-04. Post Malone Feat. Ty Dolla $ign - Psycho (03:42)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:21:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7157623DD0B29EDD1B4FF935B31BE1E6C5512D91
 ```
 
 https://mybot314.ru/tekegram_catalog/

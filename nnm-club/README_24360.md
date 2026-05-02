@@ -1,31 +1,23 @@
-###  Публикация: 481079   (99203) от 10.04.2012
+###  Публикация: 1764642   (101519) от 08.12.2024
 
-Gaia Epicus - Dark Secrets (2012) [MP3|320 кб/с]<Power Metal>
+Андрей Белый | Петербург (1991) [MP3, Василий Бочкарёв, Владимир Шурупов, Борис Левинсон и др.]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99203.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101519.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beyond The Universe 05:05
-02. Hellfire 03:28
-03. Lost Forever 05:13
-04. Mirror Of Truth 04:11
-05. Bounded By Blood 03:24
-06. Ode To The Past (Instrumental) 02:52
-07. Farewell 03:54
-08. The Raven 03:30
-09. Behind These Walls 03:34
-10. Falling Into The Abyss 04:58(   Читать дальше...   )2012Жанр: Power MetalПродолжительность: 00:50:15
+Радиоспектакль по роману Андрея Белого.
+1905 год, время первой русской революции. Аполлон Аполлонович и Николай Аполлонович Аблеуховы — отец и сын. Отец — сенатор, одно из первых лиц в государстве; сын — одновременно изнеженный барич, читающий неокантианцев, и революционер, которому поручено страшное дело — убить отца. Вокруг двух главных героев — ещё множество действующих (   Читать дальше...   )Жанр: РадиоспектакльИздательство: Радио культураПродолжительность: 01:25:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76CE33CB7D8389B54B091651B69FA3C9C018A976
+magnet:?xt=urn:btih:E11364FD2D380652B64F70643B9CBAE683395D9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,95 +25,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481065   (99199) от 10.04.2012
+###  Публикация: 1764640   (101518) от 08.12.2024
 
-Rise To Fall - Defying The Gods (2012) [MP3|320 кб/с]<Modern Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascend to the Throne (3:35)
-02. The Compass (3:39)
-03. Whispers of Hope (3:57)
-04. Reject the Mould (4:05)
-05. Inflexible Kingdom (3:22)
-06. Instruction Cycle (3:22)
-07. Lost in Oblivion (3:31)
-08. Decoding Reality (4:03)
-09. Dare to Cross (3:50)
-10. Fall to Drama (5:00)(   Читать дальше...   )2012Жанр: Modern Melodic Death MetalПродолжительность: 00:41:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7241D4EE08BA3F45188E4731AD76846EE6CDC61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480867   (99197) от 10.04.2012
-
-Susan Justice - Eat Dirt (2012) [MP3|320 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Born Bob Dylan
-02. Eat Dirt
-03. Forbidden Fruits
-04. Paper Planes
-05. I Wonder
-06. My Sweater
-07. Just Imagine
-08. Don’t Be A Stranger
-09. Hello Goodbye
-10. You Were Meant To Sing(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2E87BBFFAE9B3C7E5E3D707BC927FD8C8729828
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481243   (99193) от 10.04.2012
-
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №27 (2012.04.10) SATRip
+Военная тайна с Игорем Прокопенко (07.12.2024) WEBRip [H.264]
 
 >>Документалистика и Телепередачи
->>Телешоу
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99193.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101518.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:11:28
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:33:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:933D252E9326D22AC945027504C94B9A8E262E5A
+magnet:?xt=urn:btih:83E563791602AB9A6BBE33DB2A7B43B9048F83F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -129,277 +51,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480860   (99186) от 10.04.2012
+###  Публикация: 1764675   (101517) от 08.12.2024
 
-[Wallpapers] Wallpapers Sexy Girls (10.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EC276ECD85BE2801770F6E3D60C8C22644342FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480863   (99185) от 10.04.2012
-
-[Wallpapers] HQ Wallpapers by KSV (10.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99185.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0DDB115C99275DABB7A042553D12CC68C0973B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480856   (99184) от 10.04.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (10.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12F3CC2BB8EEC5309CCB65D390E22FDD943C8BEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480847   (99182) от 10.04.2012
-
-Эпицентр / Epicenter (2000) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Агент ФБР Аманда Фостер работает под прикрытием. Ее задача арестовать Ника Константина, сотрудника военного учреждения в Сан-Франциско, который, используя феноменальную изобретательность и сноровку, пытается похитить секретные документы и продать их террористам.
-
-Взяв Ника с поличным, Аманда должна доставить его в Федеральную тюрьму Лос-Анджелеса. Однако в это время в Лос-Анджелесе происходит землетрясение страшной силы.
-
-Находясь по разные стороны закона, преследуемые безжалостными убийцами и продажными полицейскими, потерявшими на несостоявшейся сделке большие деньги, Ник и Аманда вынуждены объединить свои усилия, чтобы разыскать потерявшуюся дочь Аманды, выбраться из разрушенного города и найти способ остаться в живых.Жанр: Фантастика, Боевик, ТриллерРежиссер: Ричард ПепинАктеры: Трейси Лордс , Гэри Дэниелс , Джефф Фэйи, Даниела Нэйн, Константин Котиманис , Кэти Стюарт, Эндрю Френсис , Генри Бекман, Тревор УайтПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:38:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480297   (99181) от 10.04.2012
-
-Величайшие автомобили: GTO / Great Cars: GTO (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99181.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 50-е годы 20-го века Pontiac переживал кризис. Он должен был измениться или исчезнуть. Его машины были невзрачны, требовалось что-то новое. Компания решила выпустить привлекательную, быструю и доступную машину. Эта простая задумка спасла Pontiac и привела к разработке одного из культовых автомобилей GTO.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2DBC94B19192964E8B37EBDF7E6F52C84FA978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480887   (99179) от 10.04.2012
-
-[Wallpapers] Mixed Wallpapers 0.3
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99179.jpg" />
-</div>
-
-
-###  Подробнее
-
-Микс из обоев на разные темы.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF709D5887B90C588B59E0202901BA6AB2D3DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480320   (99177) от 10.04.2012
-
-Величайшие автомобили: Астон Мартин / Great Cars: Aston Martin (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название "Aston Martin" образовано от названия гонок "Aston Hill Clean" и имени основателя компании Вайнела Мартина. Эту машину предпочитали Джеймс Бонд и многие гонщики, желавшие бросить вызов Ferrari. Когда у завода начались трудные времена, его спасла американская компания. Сейчас Aston Martin снова стал эксклюзивной маркой мирового класса.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83F6D9E72CF43AE846C540403D8DAA72FC6FC724
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481124   (99176) от 10.04.2012
-
-Marc O' Tool - Serious (2012) [MP3|320 кб/с]<House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serious Intro (Original Mix)
-02. I Know (Original Mix)
-03. No Need To Worry (Ft. Stu Patrics - Original Mix)
-04. Feel So Good (Ft. Marc Vision - Original Mix)
-05. Party 1994 (Original Mix)
-06. What Is Up (Ft. Criss Source - Original Mix)
-07. Take Me To The River (Original Mix)
-08. You Got It (Ft. Christian Hinzer - Original Mix)
-09. I Call You (Original Mix)
-10. The Final (Original Mix)(   Читать дальше...   )2012Жанр: HouseПродолжительность: 02:17:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D375DB91F53988CC43A72B8DE8BAD5E98102F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480597   (99174) от 10.04.2012
-
-[Wallpapers] Avto Desktop Wallpapers Pack 6
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99174.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Desktop Wallpapers Pack 6 
-Название:  Avto Desktop Wallpapers Pack 6 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1280х1024 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4B7BEC4C1CCA6330558CEE67ADAE93036C529E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478850   (99173) от 10.04.2012
-
-Canvas Solaris - Irradiance (2010) [MP3|320 кб/с]<Instrumental Progressive Technical metal>
+Fate - Reconnect 'n Ignite (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99173.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101517.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Adaptive Optics (04:15)
-2. Conveyance Of Flux (05:40)Жанр: Instrumental Progressive Technical metalПродолжительность: 00:44:03
+01. Around The Sun (5:18)
+02. Reason For Everything (4:36)
+03. This Won't Last (5:03)
+04. I'm On Fire (4:28)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B05790455A7CD4BDB69E1B4CAD37D65D74E4DA54
+magnet:?xt=urn:btih:BC5D90226CAFAE3E3961B1B46D5A8959C7A579AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,25 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480842   (99170) от 10.04.2012
+###  Публикация: 1764684   (101516) от 08.12.2024
 
-[Wallpapers] Sexy Girls Pack Wallpapers (09.04.12)
+Fighter V - Heart Of The Young (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99170.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101516.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Eye To Eye (3:46)
+02. Heart Of The Young (3:49)
+03. Run N’ Hide Away (3:54)
+04. How Long (4:00)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:52:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C575A97843B62F1F5146F25363C371EE82638BDC
+magnet:?xt=urn:btih:3660EA2ED64C1E72A2211CC8108D4ADA2CF2C234
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,30 +109,50 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479828   (99168) от 10.04.2012
+###  Публикация: 1764619   (101515) от 08.12.2024
 
-Ani DiFranco - ? Which Side Are You On ? (2012) [FLAC|Lossless]<Folk Rock>
+Seefeel - Everything Squared (2024) EP [FLAC|Lossless|Web-DL|tracks] <IDM, Dub, Shoegaze>
 
->>Архив торрентов
->>Архив Музыки
+>>Electronic
+>>IDM (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99168.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101515.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Life Boat [04:09]
-02. Unworry [04:16]
-03. Which Side Are You On? [00:00]
-04. Splinter [04:36]
-05. Promiscuity [03:20]
-06. Albacore [04:08]
-07. J [05:15]
-08. If Yr Not [02:50]
-09. Hearse [04:04]
-10. Mariachi [04:03](   Читать дальше...   )Жанр: Folk RockФормат: CD, Album, PromoПродолжительность: 00:46:19
+01. Sky Hooks (6:03)
+02. Multifolds (5:32)
+03. Lose The Minus (2:03)
+04. Antiskeptic (5:22)(   Читать дальше...   )Жанр: IDM, Ambient, Dub, ShoegazeПродолжительность: 00:26:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:094605238A7D8FE32E9C642340B2B03DEA01FA24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757467   (101514) от 08.12.2024
+
+Досье «Чёрная канарейка» / Особо опасный файл / Canary Black (2024) WEBRip [H.264/1080p] [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эйвери Грейвс — одна из лучших агентов ЦРУ, чье мастерство и профессионализм заслужили ей безупречную репутацию. Несмотря на молодой возраст, она уже неоднократно спасала мир, и в этот раз ее задание приводит ее в Японию. Пока Эйвери выполняет опасную миссию, ее муж Дэвид, далекий от шпионских интриг, с нетерпением ждет возвращения жены в их уютный дом. Для него (   Читать дальше...   )Производство: Великобритания / Anton, MP Film Production, MP ProdukcijaЖанр: боевик, драмаРежиссер: Пьер МорельАктеры: Кейт Бекинсейл, Руперт Френд, Рэй Стивенсон, Джаз Хатчинс, Горан Костич, Бен Майлз, Ромина Тонкович, Rok Juricic, Масаёси Ханэда, Эмма Гойкович и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:35Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
@@ -468,34 +164,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480926   (99166) от 10.04.2012
+###  Публикация: 1764706   (101513) от 08.12.2024
 
-VA - BIG Trance 2012.2 (2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
+Mawuena Kalu - Smooth Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz, Vocal Jazz>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99166.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Dabruck & Klein - 2.48AM (Extended Mix) (6:45)
-2. Dave Horne - 11 Hours (Original Mix) (7:45)
-3. Anaki - 333 (Original Mix) (8:58)
-4. Andrew Rayel - 550 Senta (Original Mix) (7:31)
-5. Hydrogenio - 777 (Ben Gold Remix) (7:18)
-6. Artento Divini - Adhd (Original Mix) (5:55)
-7. Eximinds - Afterlight (Original Mix) (6:15)
-8. Christian Drost & DK Project - Always Connected (Original Mix) (8:03)
-9. 187rec - Amelie (7:30)
-10. Basil O'Glue - Angular Momentum (Original) (7:35)2012Жанр: Trance, Uplifting TranceПродолжительность: 18:30:42
+01. Why You Leave Me (3:10)
+02. Home Alone (3:54)
+03. Lost Eyes (4:20)
+04. Silver Moon (2:29)(   Читать дальше...   )Жанр: Smooth Jazz, Vocal JazzПродолжительность: 00:50:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C29C6FB2509251E34098B065D1C99D88ECBDF67B
+magnet:?xt=urn:btih:9837E34E0B885FA76128198683C0A2D04D57795A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,25 +193,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480858   (99161) от 10.04.2012
+###  Публикация: 1764710   (101512) от 08.12.2024
 
-[Wallpapers] Best Wallpapers (10.04.12)
+Чудо техники с Сергеем Малозёмовым (08.12.2024) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99161.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101512.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Надежда для пациентов с болезнью Бехтерева: российские медики создали препарат, который должен остановить это аутоиммунное заболевание и вернуть подвижность пациентов без операций.
+ Какой полотенцесушитель — водяной или электрический — установить, чтобы уберечь себя и близких от домашней катастрофы, вроде взрывов в ванной или потопов с кипятком?
+ Мотоблок на минималках: (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86F0C26319DF171E072C5CB455FB22ED5E66DC34
+magnet:?xt=urn:btih:F7DB122747600774E0B59A23AEF1E77A3FE40BF9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,34 +221,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480752   (99156) от 10.04.2012
+###  Публикация: 1764776   (101511) от 08.12.2024
 
-Антарктида - Край (2012) [MP3|320 кб/с]<Heavy Metal / Female Vocal>
+Солнце в Тетрадке - Против Течения (2016) [MP3|320 Kbps] <Pop Punk, Electronic>
 
->>Архив торрентов
->>Архив Музыки
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99156.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Край
- 02. Странное безумие
- 03. Выбор
- 04. Холодные волны
- 05. Я — не я
- 06. Четыре слова
- 07. Битва за любовь
- 08. Белое безмолвие
- 09. 21-й мировой порядок
- 10. Прелюдия №10(   Читать дальше...   )2012Жанр: Heavy Metal / Female VocalПродолжительность: 00:45:58
+01. Welcome 2
+02. Беги
+03. Четвёртый Вид (Мёртвые Звёзды)
+04. Вместо(   Читать дальше...   )Жанр: Pop Punk, ElectronicПродолжительность: 00:22:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BB3A734D282896F3985D24E7F8CF6EAC660FCED
+magnet:?xt=urn:btih:C02A74C7DC383C1DD7EBDC424D2176C76EF2F7D5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -564,25 +250,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480857   (99154) от 10.04.2012
+###  Публикация: 1764624   (101510) от 08.12.2024
 
-[Wallpapers] Best HD Wallpapers Pack (10.04.12)
+Jim Jones - Pray IV Reign (2009) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rap>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99154.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Album Intro (5:14)
+02. Pulling Me Back (3:46)
+03. Let It Out (4:09)
+04. How to Be a Boss (5:07)(   Читать дальше...   )Жанр: Hip Hop, RapПродолжительность: 01:10:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA3F27C424754DE3500B4A2A6A6C9C4013596666
+magnet:?xt=urn:btih:8091BD45C702588A791998A9A97AA0AC477FACF7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,34 +279,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479689   (99153) от 10.04.2012
+###  Публикация: 1764728   (101509) от 08.12.2024
 
-S.K.V. - Обратно на Землю (2012) [MP3|256 кб/с]<Rap>
+The Smoothies - December Chill (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99153.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Смотри
-02. Звезда
-03. Unknown artist уч.dj Zlon, Данил Дфакто, Точка Ру, Омар
-04. Не сон
-05. Запомнить
-06. Эпизоды уч. 4пыль
-07. Экзюпери (4пыль)
-08. Воскресенье
-09. Беккер (ЦивилЪ)
-10. Обратно на Землю(   Читать дальше...   )2012Жанр: RapПродолжительность: 00:45:05
+01. Chilling in a Winter Night (3:14)
+02. Psychology of Love (3:59)
+03. A Winter Night in Norway (3:50)
+04. A Winter's Tale (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:05:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:898B531196AC96A8145E844E218D8D80F0AC6199
+magnet:?xt=urn:btih:3D1304E1BEFBC95539F56D044DCB5B40B5BAC802
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -625,25 +308,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 481232   (99150) от 10.04.2012
+###  Публикация: 1764641   (101508) от 08.12.2024
 
-Каникулы в Мексике - 2. Выпуск №27 (2012.04.10) SATRip
+Главная дорога (07.12.2024) WEBRip [H.264/720p]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99150.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101508.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:49:52
+Сколько стоит «ремонт» человека, пострадавшего в аварии, и на что хватает этих денег?
+ ереобули шины — не забудьте поменять и автоковрики. Андрей Федорцов и Денис Юченков устроили настоящую проверку всем известным видам ковриков для салона. Ведущие их терли, били, топили, морозили и подогревали, а все для того, чтобы определить, какие из них безопаснее зимой, а какие (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: 00:26:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B4ECDC2BF560D121C1140C39B9B7EB08642AD19C
+magnet:?xt=urn:btih:09DAF49FF412AB190CF840E4FEDC12B5158825E4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -651,21 +335,192 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480304   (99149) от 10.04.2012
+###  Публикация: 1764775   (101507) от 08.12.2024
 
-Величайшие автомобили: Бентли / Great Cars: Bentley (2004) SATRip
+Text Editor Pro 31.0.0 + Portable + Bonus [Multi/Ru]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99149.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101507.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bentley всегда привлекали внимание - они всегда были стильными и быстрыми. Они приковывают взгляд, но всегда знают меру. Это машины для людей со вкусом, которые желают почувствовать рай - не выставляя напоказ свое богатство. Не важно - скорость их призвание или гламур, Bentley - это машины на которых хочется ездить...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:00
+Мощным инструментом редактирования текста с подсветкой синтаксиса для сценариев и языков программирования, является небольшая и компактная программа – Text Editor Pro. Программу можно сравнить с известным текстовым редактором Notepad++ функционал у них схожий, отличаются только по размеру. Утилита работает во всех версиях ОС, выпущенных корпорацией Microsoft. В последних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015E1704D42BE4A56732672515A30355CB9E7EC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764705   (101506) от 08.12.2024
+
+Apollo Brown & Stalley - Blacklight (2021) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hidden (1:08)
+02. Blacklight (3:51)
+03. Love Me, Love Me Not (feat. Skyzoo) (4:37)
+04. No Monsters (3:39)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:53:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B952FF9B47092ABFAD57175D81A7A9383CD99749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764703   (101505) от 08.12.2024
+
+Apollo Brown & Philmore Greene - Cost of Living (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Consequences (1:17)
+02. Nice to Meet You (3:24)
+03. Keep Goin' (3:26)
+04. Day On The Ave (3:14)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED12E74DD6EBFFCAD5C6AA923BBC89D88CAA52EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764702   (101504) от 08.12.2024
+
+Apollo Brown & Planet Asia - Sardines (2023) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bird Food (0:52)
+02. Get The Dough Off (3:42)
+03. Panama Sun (feat. Marv Won) (3:29)
+04. Stones (3:46)(   Читать дальше...   )Жанр: Hip-Hop, Underground Hip-Hop, Boom Bap, Instrumental Hip-HopПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47855419A001E1E4180804BA42067FB7E80AA129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764704   (101503) от 08.12.2024
+
+Apollo Brown - This Must Be The Place (2022) [FLAC|Lossless|tracks + .cue] <Instrumental Hip-Hop, Underground Hip-Hop, Boom Bap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Got It Good (3:26)
+02. Time Lost (3:05)
+03. It Just Is (3:12)
+04. Flowers Die (3:24)(   Читать дальше...   )Жанр: Instrumental Hip-Hop, Underground Hip-Hop, Boom BapПродолжительность: 01:08:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B5EBEE0FC088F15D3781C1904C99BC029FFA49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764671   (101502) от 08.12.2024
+
+Jacqueline Tabor feat. Michael Underwood & Jeremy Boettcher - All Shades of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voodoo Woman (4:05)
+02. Love Me Right (2:13)
+03. Love Ain't Nothin' but the Blues (3:43)
+04. Keep it to your Darn Self (3:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2724CFF845BB9D9BC217380B7C8D22ACBC5D2DCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1757466   (101501) от 08.12.2024
+
+Досье «Чёрная канарейка» / Особо опасный файл / Canary Black (2024) WEBRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эйвери Грейвс — одна из лучших агентов ЦРУ, чье мастерство и профессионализм заслужили ей безупречную репутацию. Несмотря на молодой возраст, она уже неоднократно спасала мир, и в этот раз ее задание приводит ее в Японию. Пока Эйвери выполняет опасную миссию, ее муж Дэвид, далекий от шпионских интриг, с нетерпением ждет возвращения жены в их уютный дом. Для него (   Читать дальше...   )Производство: Великобритания / Anton, MP Film Production, MP ProdukcijaЖанр: боевик, драмаРежиссер: Пьер МорельАктеры: Кейт Бекинсейл, Руперт Френд, Рэй Стивенсон, Джаз Хатчинс, Горан Костич, Бен Майлз, Ромина Тонкович, Rok Juricic, Масаёси Ханэда, Эмма Гойкович и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:36:35Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
@@ -677,25 +532,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822185   (99146) от 05.10.2025
+###  Публикация: 1764709   (101500) от 08.12.2024
 
-Nageki no Bourei wa Intai Shitai TV-2 | Let This Grieving Soul Retire! 2 | Плачущий призрак на пенсии (ТВ-2) [2025, TV, 01 из 11] WEBRip 1080p rus+raw
+Первая передача на НТВ. Автомобильная передача (08.12.2024) WEBRip [H.264/720p]
 
->>Аниме с озвучкой
->>Онгоинги с озвучкой
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99146.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Однажды шестеро друзей поклялись стать величайшими охотниками за сокровищами. Однако был среди них парень Край Андрих, который не мог похвастаться какими-либо талантами, и уж тем более навыком поиска сокровищ. По мере того, как друзья Края становились всё круче и злее, рос и его страх за свою жизнь. В итоге Андрих принимает решение уйти на пенсию, овладев навыками (   Читать дальше...   )Производство: Япония, студия Zero-GЖанр: приключения, фэнтезиРежиссер: Таката МасахироЯзык озвучки: Русский дублированный (Deep (Flarrow Films)), русский закадровый (Deep (AniStar))Субтитры: Русские надписи, русские (софтсаб), Multi-8Продолжительность: 11 эпизодов по 25 минут
+По морде кирпичом: уличный хулиган кошмарит всю округу и безнаказанно портит машины. Как найти управу на беспредельщика, если стражи порядка бездействуют?
+ Церемония погребения «скончавшегося» авто в Индии: зачем там со всеми почестями похоронили транспортное средство на ходу.
+ Всегда праздник: на всю страну прославился любитель выпить накануне экзамена на права. Что (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:20:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C90706EDC07C26E0BF894AB7F6C744AB6AE9AD13
+magnet:?xt=urn:btih:BDCFAE398EF748E77AE2050B55968C56DCD7B5C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -703,25 +560,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822181   (99145) от 05.10.2025
+###  Публикация: 1764650   (101499) от 08.12.2024
 
-Путешествие коллекционера по другому миру | Sozai Saishuka no Isekai Ryokouki | A Gatherer's Adventure in Isekai [2025, TV, 1 из 12] WEBRip 1080p Raw+Rus
+Jill Scott - Beautifully Human: Words and Sounds, Vol. 2 (2004) [FLAC|Lossless|tracks + .cue] <Funk / Soul, Contemporary R&B>
 
->>Аниме с озвучкой
->>Онгоинги с озвучкой
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99145.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Такэру Камиширо — обычный парень, и он работает на обычной офисной работе, пока его... барабанная дробь... неожиданно не призывают в другой мир. В этом мире мечей и магии наш герой начинает новую жизнь! Помимо выдающихся физических и магических способностей, у него появляется особая способность поискать различных ценных предметов. Так что время просиживать свою задницу (   Читать дальше...   )Производство: Япония / Студия Tatsunoko Production, SynergySPЖанр: Приключения, фэнтезиРежиссер: Одака ЁсинориЯзык озвучки: Русский (AniLiberty); ЯпонскийСубтитры: Русские (софтсаб на надписи и полные)Продолжительность: 12 серий по 24 мин.
+01. Warm Up (1:20)
+02. I'm Not Afraid (3:26)
+03. Golden (3:52)
+04. The Fact Is (I Need You) (4:38)(   Читать дальше...   )Жанр: Funk / Soul, Contemporary R&BПродолжительность: 01:07:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B34329D2870DEE85BDD52ABF1A3B05D9921F59F4
+magnet:?xt=urn:btih:CC5D6BD0E625CC5942323205A1F36001A80B32E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -729,25 +589,136 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822120   (99144) от 05.10.2025
+###  Публикация: 1764625   (101498) от 08.12.2024
 
-Smart Tools 2 v1.2.1 Mod by TryRoon [Ru/Multi]
+Ella Fitzgerald - Ken Burns Jazz (2000) CD, Compilation, Club Edition [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99144.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smart Tools® 2 - это расширенный набор инструментов. «Smart Tools 2» включает в себя все функции существующих «Smart Tools», поэтому мы рекомендуем новым пользователям приобрести это приложение. «Smart Tools 2» = «Smart Tools» + больше инструментов + больше возможностейТип издания: ModРелиз состоялся: 01.10.2025Разработчик: Smart Tools co.Поддерживаемая ОС: Android 7.0+Язык интерфейса: Русский / Мульти
+01. A-Tisket, A-Tasket (2:40)
+02. Vote for Mr. Rhythm (2:28)
+03. Betcha Nickel (2:56)
+04. Flying Home (2:30)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:10:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3FEEB0A0D415709185466115215F860B3EF9A5F4
+magnet:?xt=urn:btih:195D73D7468BF0AB2BFD016E8E1F0F2A5A8E425C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764762   (101497) от 08.12.2024
+
+Своя игра (08.12.2024) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101497.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2024 году программа "Своя игра" отмечает 30-летие. Турнир, начавшийся 14 сентября, называется "Продолжение следует" и продолжает первый турнир года "Возвращение к истокам". Победитель игры отправляется за центральный стол и остаётся там, пока не проиграет или сам не решит покинуть турнир. Чем больше игр проведёт участник, тем больше (   Читать дальше...   )Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5AD0674E928A4B7B7CE2E81EC656AC5ED497878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764758   (101496) от 08.12.2024
+
+Братья-индейцы / The Indian Brothers (1911) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Индеец-отступник убивает оскорбившего его вождя. Брат вождя клянется отомстить и преследует отступника, настигая его как раз вовремя, чтобы спасти от другого племени, которое разгневано на него за кражу лошади...
+Качество картинки не очень. Но что уж тут поделаешь - сто лет назад, индейское племя, какое уж тут качество.Производство: США / Biograph CompanyЖанр: короткометражный, драма, немое киноРежиссер: Дэвид Уорк ГриффитАктеры: Фрэнк Опперман, Уилфред Лукас, Гай Хедлунд, Джон Т. Диллон, Френсис Дж. Грэндон, Флоренс Ла Бади, Альфред Пегит, У.К. Робинсон, Бланш Свит, Кейт ТонкрэйПеревод: немой с интертитрами (chayka2 / Феникс)Субтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:14:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3C424FA3EDD5C7E8EAB62DC3BE492BF5103E901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764685   (101495) от 08.12.2024
+
+Holler - Reborn (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101495.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Believe (4:48)
+02. I Don't Want (4:43)
+03. Music Is The One (4:30)
+04. Into Me Forever (3:34)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACE78CEEDE7FF2D427296127112311FA01D183EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758065   (101494) от 08.12.2024
+
+Заклятие: Реинкарнация отца / Папина голова / Daddys Head (2024) WEBRip [DVO] [AD]
+
+>>
+>>
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101494.jpg" />
+</div>
+
+
+###  Подробнее
+
+После внезапной смерти отца Айзек остаётся с молодой мачехой. Пока та скорбит и решает, оформлять ли опеку над мальчиком, в их дизайнерский дом в лесу начинает являться некое существо с лицом покойного.Производство: Великобритания / Stigma Films, Arthrofilm, CaptureЖанр: ужасыРежиссер: Бенжамин БарфутАктеры: James Harper-Jones, Руперт Тёрнбулл, Джулия Браун, Чарльз Эйткин, Delta, Натаниэль Мартелло-Уайт, Нила Аалия, Мэри Вудвайн, Стелла Гонет, Lexi Austin-Jones и др.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:27:51Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+
+## Скачать торент
+```bash
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

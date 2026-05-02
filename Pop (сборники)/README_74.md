@@ -1,3 +1,117 @@
+###  Публикация: 1238776   (544595) от 01.08.2018
+
+VA - Night Eurodance Music (2018) [MP3|320 Kbps] <Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544595.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cid - I Miss You
+002. Lika Morgan - Money for Love
+003. Ferry Corsten - Waiting
+004. Monoloop - UUCK(   Читать дальше...   )Жанр: EurodanceПродолжительность: 07:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3899A6168344CBD813A8A29ACADAC03788629080
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1310982   (544447) от 27.06.2019
+
+VA - Popular Summer Time (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544447.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Samantha Jade - Best Of My Love
+002. Defensa - Borremos
+003. Evalyn - Angels
+004. Joan Osborne - Buckets Of Rain(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 09:52:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51BFACA2BB18D6285D28A7F1F1AB98E483B1F13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311117   (543685) от 28.06.2019
+
+VA - German Top 100 Single Charts 28.06.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543685.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kalazh44, Capital Bra, Samra, Nimo, Luciano - Royal Rumble
+002. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:311FEAB937A3F52819F9D7D14CDD258CE664C576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049451   (543681) от 05.09.2016
+
+VA - Pop Rock Ballads - New And Classic (2016) [MP3|192~320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543681.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Soulwax  -  Too Many Dj's  4:30
+002. Lionel Richie & Diana Ross  -  Endless Love  4:27
+003. David Bowie  -  Legacy Megamix 2  6:04
+004. Kate Royal & Academy of St Martin in the Fields  -  In Trutina (Carmina Burana)  2:31(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 10:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4DB7AF0026D1293B7C8E0263F42087AF8F63AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049439   (543363) от 05.09.2016
 
 VA - Радио ENERGY (NRJ) часть 4 (2015-2016) [MP3|192-320 Kbps] <Dance, House, Pop>
@@ -671,122 +785,6 @@ VA - Ballermann Party Knueller (2022) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A6C5C385DAE5FC50096E83A6E8A3BAD398D4A8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1557418   (535642) от 18.06.2022
-
-VA - Ballermann Discofox (Die besten Discofox Hits) (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535642.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steffen Juergens - Du bist Liebe (Mixmaster JJ Remix)
-02. Zweiklang - Schattenseiten (Treanen sollten wir bewahren)
-03. Flamingoboys - Egoist (Mf-Remix)
-04. Michael Fischer - Wo bist du (Mf-Fox Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:12:56 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44488F26836C34B08B5EC1C8B73754DAFC340915
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050874   (535021) от 10.09.2016
-
-VA - Обнимай меня. Топ новинок попмузыки (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535021.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Самира - Обнимай Меня
-002. Dante - Не Пробуй
-003. Андрей Леницкий - Всем Доволен
-004. Эмма М - 3d(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D95FB7EB869920941E896433915ADD93855D0305
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050878   (535014) от 10.09.2016
-
-VA - Музыкальный Адреналин. Top Hits 2 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535014.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Gulddreng - Model
-002. U3u - Нравится
-003. Teyana Taylor Feat. Chris Brown - Do Not Disturb
-004. Ромади - Я Не Играю В Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F8AD3AACAC878669ADF7D951111612A88C6336
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050912   (534917) от 10.09.2016
-
-VA - Потоки ветра. Топ новинок поп музыки (2016) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534917.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тамерлан и Алена - Потоки Ветра
-002. Homie - Птица Рай
-003. Тори - Давай Играть
-004. Аркадиас - Сон Где Мы Вдвоем(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C258CAAB652C55980862EB5BFC39068DD0D2C1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

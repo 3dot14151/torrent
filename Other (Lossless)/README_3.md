@@ -1,3 +1,67 @@
+###  Публикация: 1238633   (545449) от 31.07.2018
+
+Pirates of The Mississippi - Dream You (1993) [FLAC|Lossless|tracks + .cue] <country, southern rock>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545449.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dream You (Craig Wiseman, Jerry Phillips) – 2:47
+2. I Quit Lyin' in 1986 (Roger Murrah, John Schweers, Mark Wright) – 3:01
+3. The Night They Rocked the Grand Ole Opry (Rich Alves, Gary Harrison) – 4:19
+4. The Wild Side of Life (Arlie Carter, William Warren) – 2:41(   Читать дальше...   )Жанр: country, southern rockПродолжительность: 00:31:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07254E5E757E15209592F3BE5B24AD3ECD7223F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530990   (542289) от 05.08.2012
+
+Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Namania (4:09)
+2. N'tesse (4:31)
+3. Africa (4:50)
+4. Fimani (4:26)
+5. N'ba (4:38)
+6. Mali Ba (4:42)
+7. Barra (3:46)
+8. N'Teri (4:34)
+9. Nta Dima (3:03)
+10. Massake (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 536187   (515361) от 17.08.2012
 
 Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
@@ -722,65 +786,6 @@ The Man from RavCon - Strange Universe (2016) [FLAC|Lossless|image + .cue] <Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10246C104BD129B20E2B06F7217C184AB2E655B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 62985   (321528) от 03.11.2020
-
-Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ке́вин Ке́рн (англ. Kevin Kern; род. 22 декабря 1958) — американский композитор и пианист. Кевин Керн родился пятым из шести детей в семье хирурга и домохозяйки в Детройте, штат Мичиган, США.
-Начал учиться играть на фортепиано с четырёх лет, с восьми стал писать музыку. В 14 он уже выступал с группой, которую основал сам. Кевин был полон решимости стать (   Читать дальше...   )Альбомы:
-1996 - In the Enchanted Garden
-1997 - Beyond the Sundial
-1998 - Summer Daydreams(   Читать дальше...   )Жанр: New AgeПродолжительность: 06:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE60C49FFDDA24CE055FCF84A4CC7174EE1405F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422800   (304158) от 11.11.2020
-
-VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elton John - Step Into Christmas (4:32)
-02. Bob Seger - Little Drummer Boy - Remastered (3:32)
-03. Frank Sinatra - Have Yourself A Merry Little Christmas - Remastered (3:26)
-04. Bobby Helms - Jingle Bell Rock - Single Version (2:11)(   Читать дальше...   )Жанр: Christmas MusicПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:547C7AEBA2ACC62F7A00D17EEABD9D4E00845626
 ```
 
 https://mybot314.ru/tekegram_catalog/

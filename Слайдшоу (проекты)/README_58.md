@@ -1,3 +1,29 @@
+###  Публикация: 924291   (558876) от 03.08.2015
+
+Проекты - Motion Array - Square Slideshow [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если вам нужно создать большое слайд-шоу с изображениями или видео этот шаблон для вас. Это действительно простой в использовании проект, просто добавьте ваши фотографии или видео, измените цвет и визуализации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:201C0BE0C4CB1A3D46FC0E468350913F04BAD458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 924202   (558812) от 03.08.2015
 
 Проекты - VideoHive - Vintage Premium Slideshow [AEP]
@@ -649,32 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FBF76FF0F9FB83F472262138346D21997FAA6D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046545   (551685) от 27.08.2016
-
-Проекты - VideoHive - Simple Big Typo Slides - 17285169 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551685.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:450D45F1C9926DD368E27A6942464FE8F8889719
 ```
 
 https://mybot314.ru/tekegram_catalog/

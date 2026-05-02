@@ -1,3 +1,32 @@
+###  Публикация: 1684850   (127402) от 17.12.2023
+
+Livin' Blues, Nicko Christiansen - Back on track (2023) [MP3|320 Kbps] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Crow [04:29]
+02. Lockdown [05:19]
+03. Back On The Track [03:52]
+04. Long Lost Son [03:41](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:838D32F2777782D19FF616B0EDA88C7AAB88F668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687217   (125606) от 26.12.2023
 
 Chris Rea - Tennis (1980) Reissue, 1991 [OGG Vorbis|480 Kbps] <Soft Rock, Rock, Pop Rock>
@@ -716,35 +745,6 @@ Jay Gordon and Blues Venom - Live at Woodystock Blues Festival (2024) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2CCF19E05172DAE4C6370FD559EA996CDC537BC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1732723   (107446) от 26.06.2024
-
-Glenn Marais & The Mojo Train - Red, Hot And Blue (2024) [MP3|320 Kbps] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's Where My Mojo's At (03:09)
- 02. Superfunk (04:04)
- 03. Love Denied (03:57)
- 04. Red, Hot And Blue (04:23)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F888C9B6AC97AA51F2438B2218F04DE7D3827702
 ```
 
 https://mybot314.ru/tekegram_catalog/

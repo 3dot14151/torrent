@@ -1,3 +1,224 @@
+###  Публикация: 231813   (507943) от 01.09.2010
+
+Paco De Lucia - 38 albums (1965 - 2005) [MP3|160-320 kbps]<Flamenco>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507943.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:14) 01. Zyryab Melodia del Puente de J.A. Amargos
+(3:20) 02. Guajiras de Lucia
+(3:09) 03. Cobre Sevillanas
+(4:51) 04. Monasterio de Sal Coluombianas
+(4:17) 05. Cana de Azucar
+(3:24) 06. Barrio la Vina Alegrias
+(5:02) 07. Tio Sabas Homenaje A Sabicas
+(4:35) 08. La Barrosa Alegrias
+(5:42) 09. La Cueva del Gato Rondena
+(4:41) 10. Chiquito(   Читать дальше...   )Жанр: FlamencoПродолжительность: 01:57:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 932731   (507889) от 30.08.2015
+
+Jean-Michel Jarre - Essential Recollection (2015) [FLAC|Lossless|WEB-DL]<Ambient, New-age, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oxygene, Pt. 2
+02. Arpegiateur (Live)
+03. Oxygene, Pt. 4
+04. Souvenir de Chine (Live)(   Читать дальше...   )Жанр: Ambient, New-age, ElectronicПродолжительность: 01:08:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9822F81DFA15733D0D63BA11511E8A87E5EDFDC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538488   (507582) от 25.08.2012
+
+VA - Cafe del Mar Recommends Music For Dreams (2010) [MP3|320 кб/с]<Lounge, Chillout>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Valentin Huedo & Atfunk (CDM) - Until The Sun Goes Down
+02. Kenneth Bagger - Speak My Name
+03. Kenneth Bagger - And I Kept Hearing (Radio Edit)
+04. Kenneth Bagger - Love Won't Leave Me Alone
+05. Kenneth Bagger - Time Is Up
+06. Bird - Some Boys (Valentin Huedo Remix)
+07. Bird - Sweetheart
+08. Bird - Wind It Up
+09. Bird - Bad Connection
+10. DJ Disse - Spanish Reggae(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E6D3FF62E6D40FF4A281A31F508C4D93E41A568
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316299   (506824) от 25.07.2019
+
+VA - Salsa Summer Hits 2019 [MP3|320 Kbps] <Kizomba, Merengue, Sonero, Other>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leo, The 4 – Candela 3:43
+02. The 4, Yosvany – Prisoner 3:37
+03. Sonora Cubana (Los Picaros De La Habana) – What I Do Yo 4:44
+04. Lkm, Katy-A – Hidden 4:28(   Читать дальше...   )Жанр: Kizomba, Merengue, Sonero, OtherПродолжительность: 02:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D910AB872AD8FCBF2060A55018CD0B0D1712D21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 232993   (506102) от 03.09.2010
+
+Nino Rota & Carmine Coppola & Al Martino - OST - Крестный отец / The Godfather - Part I/II/III (1972 / 1974 / 1990) [MP3|320 kbps]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506102.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nino Rota - Main Title (0:42)
+2. Nino Rota - The Godfather Waltz (1:10)
+3. Carmine Coppola, Nino Rota - Marcia Religioso (2:51)
+4. Carmine Coppola, Nino Rota - Michael's Letter (1:08)
+5. Carmine Coppola, Nino Rota - The Immigrant (Love Theme From The Godfather Part III) (2:37)
+6. Nino Rota - The Godfather Waltz (1:24)
+7. Al Martino - To Each His Own (3:21)
+8. Carmine Coppola, Nino Rota - Vincent's Theme (1:49)
+9. Carmine Coppola, Nino Rota - Altobello (2:09)
+10. Carmine Coppola, Nino Rota - The Godfather Intermezzo (3:23)(   Читать дальше...)Жанр: OSTПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933750   (505363) от 02.09.2015
+
+Irfan - The Eternal Return (2015) [MP3|320 кб/с]<Ethnic, Neo-Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Eternal Return
+02. The Cave Of Swimmers
+03. Burana
+04. Salamender(   Читать дальше...   )Жанр: Ethnic, Neo-FolkПродолжительность: 00:59:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A0AA07A1CDC9045978182BC9CF98CEA1FB3DB28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933223   (505273) от 02.09.2015
+
+London Philharmonic Orchestra - The Genius of Film Music 1960s-80s (2015) Live [FLAC|Lossless|WEB-DL]<Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 20th Century Fox Fanfare [00:24]
+02. Cleopatra (excerpts) (arr. J. Mauceri): Caesar and Cleopatra [14:32]
+03. Cleopatra (excerpts) (arr. J. Mauceri): Anthony and Cleopatra [11:11]
+04. The Godfather (arr. J. Mauceri) [15:20](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:29:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D475A08B70AC05BD6CD04C46C3383360B86662B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933444   (505271) от 02.09.2015
 
 VA - Minions (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Score>
@@ -592,215 +813,6 @@ Pakarina - Melodies of the heart (2011) [FLAC|Lossless]<Instrumental | Pan Flute
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317259   (501384) от 31.07.2019
-
-David Osborne - What the World Needs Now: A Piano Tribute to Burt Bacharach (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Look of Love (3:34)
- 02. What the World Needs Now (2:48)
- 03. (They Long to Be) Close to You (2:50)
- 04. Arthur's Theme (Best That You Can Do) (4:32)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97903AD36F42BA05A302650FFB401E5AE1CAA81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317235   (501367) от 31.07.2019
-
-Christopher Phillips - Piano Chill: Songs of the Beatles (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All My Loving (2:54)
- 02. Here Comes the Sun (3:01)
- 03. Yesterday (2:31)
- 04. Here, There and Everywhere (2:27)(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D50353DFAE0B2AE86EE18D210ECC8BEE87D46F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 234728   (500669) от 09.09.2010
-
-Bodhi - Trans Ukraine (2006) [MP3|320 kbps]<New age, Flute, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500669.jpg" />
-</div>
-
-
-###  Подробнее
-
-(10:38) 1. Crimea I
-(04:51) 2. Crimea II
-(05:58) 3. Crimea III
-(05:38) 4. Kiev I
-(07:30) 5. Kiev II
-(08:58) 6. Kiev III
-(07:58) 7. Odessa I
-(04:56) 8. Odessa II
-(06:36) 9. Odessa IIIЖанр: New age, Flute, ElectronicПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563804   (500499) от 18.07.2022
-
-VA - Teenage Mutant Ninja Turtles: Shredder's Revenge (Original Game Soundtrack) (2022) [MP3|~249-288 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500499.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный саундтрек игры01. Teenage Mutant Ninja Turtles Theme
-02. The Wrecking Crew
-03. Jaw-Breaking News!
-04. Big Apple, 3 PM(   Читать дальше...   )Жанр: OSTПродолжительность: 00:52:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79A55F34E7851D276DDB99B7D04EBF1686248F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317455   (500408) от 01.08.2019
-
-VA - Modern Sound Orchestras - Melody in Love (1992) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orchestra Charles Monet - Traumerei - Reverie-Ave Maria (3:46)
-02. Philharmonics Of London - Aus Der Neuen Welt - New World (3:33)
-03. Wave's Computer Orchestra - Bach goes to the beach (4:20)
-04. Orchestra Charles Monet - Klavierkonzert - Piano Concerto No1 Solveig's song Samson & Dalila (4:56)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:54:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB8B03712A56EBB2D959C2DBAD4802DDC43DBEC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 934253   (500299) от 07.09.2015
-
-Jean Michel Jarre - Magnetic Fields (1981) [FLAC|image + .cue]<Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбом Жана-Мишеля Жарра — "Magnetic Fields" (официальное франкоязычное название Les Chants Magntiques), выпущенный на лейбле Disques Dreyfus в 1981 году.
-В аннотации к изданию альбома: «Если первые два альбома Жарра были посвящены естественной окружающей среде, то „Магнитные поля“ вдохновлены плодами рук человеческих. Альбом наполняют звуки поездов, часов, (   Читать дальше...   )01. Magnetic fields part I (17:50)
-02. Magnetic fields part II (4:00)
-03. Magnetic fields part III (4:16)
-04. Magnetic fields part IV (6:18)(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B2358ACDE8D756757D9B7ECF19491E5BAED9DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317678   (499535) от 02.08.2019
-
-DYATHON - Recollection (2019) [MP3|320 Kbps] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499535.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.If I Could See You Again 03:25
-2.Yearning 06:18
-3.Sad Forever 03:46
-4.Memories of You 02:42(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:32:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFBE6F8429567D4B7C104371487C6DD78CFF697
 ```
 
 https://mybot314.ru/tekegram_catalog/

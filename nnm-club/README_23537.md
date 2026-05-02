@@ -1,22 +1,23 @@
-###  Публикация: 1692568   (122349) от 17.01.2024
+###  Публикация: 1690427   (123930) от 07.01.2024
 
-Журнал | Небосвод №02 (февраль 2024) [PDF]
+Патрик Кинг | Как тренировать эмпатию (2022) [MP3, Дмитрий Шабров]
 
->>Журналы
->>Научно-популярные журналы
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122349.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал "Небосвод" расскажет вам новости из мира астрономии. В журнале вы найдете статьи известных астрономов и обычных любителей астрономии. Вы познакомитесь с миром звезд, планет и галактик. Из статей вы узнаете, что и как наблюдать на небе. Также в каждом номере помещен астрономический календарь с подробными звездными картами, и вы будите в курсе последних (   Читать дальше...   )Жанр: Научно-популярный журналИздательство: НебосводФормат: PDFКачество: Изначально электронное (ebook)
+Эмпатия – тот единственный навык, от которого зависят ваши отношения. Пора наконец-то научиться общаться с людьми. В нашем мире наблюдается дефицит эмпатии, но вы можете это изменить. Научитесь проявлять сопереживание и доброту.
+Мы обсудим, что такое эмпатия и как ее использовать, чтобы добиться доверия и принятия. Что нужно для взаимопонимания? Не увлекательная (   Читать дальше...   )Жанр: ПсихологияИздательство: БиблосПродолжительность: 05:09:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB9DA98CBF967A4D85965F5674EF0E5E04FD6173
+magnet:?xt=urn:btih:F37400AB3EC10B511B7D78407298BAA363B5CBCA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +25,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692634   (122348) от 17.01.2024
+###  Публикация: 1690572   (123929) от 07.01.2024
 
-Chrysis - Borderline (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Лэй Ми | Профайлер (Книга 3). Клинок молчания (2023) [MP3, Игорь Князев]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122348.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123929.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Cadillac (03:26)
-02 - On my pillow (03:32)
-03 - 666 or 45 (04:29)
-04 - No No No (03:58)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:30
+Один из лучших образцов китайского Иямису - популярного в Азии триллера, исследующего темную сторону человеческой натуры.
+Чтобы найти подсказку, нужно опередить смерть.
+Похищение. Пей Лан, молодая, талантливая кинозвезда пропала во время свидания со своим парнем. Девушка вышла в уборную и не вернулась, а через некоторое время родственникам присылают требование о (   Читать дальше...   )Жанр: полицейский детектив, триллерИздательство: INSPIRIA (Эксмо)Продолжительность: 17:15:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8E65E9D2A941854749A13FF38DD1AD4FFE02EF37
+magnet:?xt=urn:btih:ABE3FFB4961BF82FDF842A94360D1B4D0A6E9AE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692605   (122347) от 17.01.2024
+###  Публикация: 1404183   (123928) от 07.01.2024
 
-Blood Lightning - Blood Lightning (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
+Энди Гриффитс | 39-этажный дом на дереве (2017) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122347.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - The Dying Starts (03:08)
-02 - Hitting The Wall (04:24)
-03 - Bananaconda (06:03)
-04 - Face Eater (04:21)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:27:54
+Самый высокий батут в мире – построили. Шоколадный фонтан – бурлит. Динозавры в лаборатории – чавкают. Не хватает только машины, которая будет работать, пока Терри и Энди беззаботно веселятся. А если эта машина поднимет восстание? Тогда друзья позовут на помощь профессора Тупини, величайшего раз-изобретателя в мире. А если он положит хитрый разизобретательный глаз (   Читать дальше...   )Жанр: Детская проза, Детская фантастика, Детские приключения, Зарубежные детские книги, Комиксы / мангаПеревод: Ирина ЕпифановаИздательство: Livebook/ГаятриФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0E10655B4B23C8AA54C5BB4BB88E4F1E62D37C94
+magnet:?xt=urn:btih:6A35C3058DC39B5AE731EB40A72BCB7CD52BFE61
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692572   (122346) от 17.01.2024
+###  Публикация: 1690492   (123927) от 07.01.2024
 
-Ran Blake Trio - Sonic Temples (1998) 2CD, 2001, GM Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
+MasterPeace - The Dylan Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122346.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stormy Weather [7:27]
-02. Nothing or All [3:27]
-03. Horace is Blue [8:31]
-04. Laura [2:09](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 02:01:42
+01 - New Morning
+02 - All Along The Watchtower
+03 - Forever Young
+04 - Going Going Gone(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E76FFA21E2BAFD69B218CDB3A0B4719A1DA5E8B1
+magnet:?xt=urn:btih:7F51C4A4A0160053FA62386409EF24DD45733C55
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,193 +108,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692571   (122345) от 17.01.2024
+###  Публикация: 1690555   (123926) от 07.01.2024
 
-Freddie Hubbard - Music Is Here (1973) 2022, Wewantsounds [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122345.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sky Dive [12:16]
-02. The Intrepid Fox [22:49]
-03. Povo [16:05]
-04. First Light [24:34]Жанр: Hard Bop, Post-BopПродолжительность: 01:15:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1257D9F894F14A78F19BFBDC7E7CC5A04F8C7CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692743   (122344) от 17.01.2024
-
-Bagual - Inhumar (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Psych/Stoner/Prog>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inhvmar [00:02:59]
-02. Panteones [00:04:03]
-03. Volcanes [00:06:19]
-04. Monolitos [00:04:33](   Читать дальше...   )Жанр: Heavy Psych/Stoner/ProgПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E450DDEE439BCB1EA963D490BE09E7F3FED2C2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692697   (122343) от 17.01.2024
-
-Greg Puciato - FC5N (2024) [FLAC 24/44.1, 96|Lossless|WEB-DL|tracks] <Mathcore, Grunge, Sludge, Industrial>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You, Staring at Me, Staring at You [00:01:11]
-02. Absence as a Presence [00:05:20]
-03. Don't Wanna Deal [00:02:59]
-04. Crazy All Around [00:05:59](   Читать дальше...   )Жанр: Mathcore, Grunge, Sludge, IndustrialПродолжительность: 00:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E1F9BF79A1DA73CA8F7329CA463D4BAF7557FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692721   (122342) от 17.01.2024
-
-Wattagio 1.13.1 [Multi/Rus]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wattagio информирует вас о текущем состоянии батареи и помогает снизить энергопотребление. Гибкие настройки в приложении предоставляют параметры для настройки вашего профиля в соответствии с вашими потребностями.Тип издания: macOS SoftwareРелиз состоялся: 04.09.2022Разработчик: © Volodymyr NehodovПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89BADFEFDA7543AE11A53EAB79830258121ED1BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692577   (122341) от 17.01.2024
-
-Algid - Catasterismi (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Of All Things That Go Utterly to Death (06:19)
-02 - Fearless Souls Favor None (05:55)
-03 - With Heavy Tread and Skyward Eye (08:35)
-04 - Sapientia (10:06)(   Читать дальше...   )Жанр: Progressive Black MetalПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D12178ECF28F0F84AE3B851090420585D82DD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692566   (122340) от 17.01.2024
-
-PaintCode 3 v.3.5.4 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122340.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как связующий мост между разработчиками и дизайнерами, PaintCode является приложением для векторной графики, которое мгновенно генерирует Objective-C или C # код для изображений. Преимущество приложения PaintCode заключается в том, что оно не только превращает векторный рисунок в код, но и само является полнофункциональным приложением для создания векторных изображений. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.05.2022Разработчик: © 2022 PixelCutПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E28D5D74F05B9642027B0935B746B410AD424E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692682   (122339) от 17.01.2024
-
-Башня переключателей / The Switch Tower (1913) WEBRip
+Волны моря и любви / Des Meeres und der Liebe wellen (1912) WEBRip [H.264/720p-LQ]
 
 >>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122339.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшая и простенькая история о том как сын стрелочника, совсем еще ребенок, оказался весьма сообразительным и шустрым пацанчиком и сумел противостоять банде и спасти своих родителей.Производство: США, Biograph CompanyЖанр: короткометражный, драма, криминал, немое киноРежиссер: Энтони О’СалливанАктеры: Генри Б. Уолтхолл, Клер Макдауэлл, Бастер Эммонс, Лайонел Бэрримор, Чарльз Уэст, Джон Т. Диллон, Уильям А. Кэрролл, Фрэнк Эванс, Джордж Беранджер, Энтони О’СалливанПеревод: немой с интертитрамиСубтитры: английские (интертитры), русские отдельным файломПродолжительность: 00:10:32
+Торговое судно «Рапид» должно перевезти порох в Шотландию. Эта информация держится в секрете от страховой компании, так как страховщики очень не любят такие грузы. А ко всему прочему, еще и дочь капитана влюбляется в моряка. Короче, все непросто...Производство: Германия, Венгрия, Deutsche KinematographengesellschaftЖанр: короткометражный, драма, немое киноРежиссер: Max ObalАктеры: Jan «'t Jagertje» Schilder, Lissi Nebuschka, De ZaligmakerПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русскиеПродолжительность: 00:37:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:35688EDC89B8038CF76E36E1B27D9FE1C9FCB905
+magnet:?xt=urn:btih:0184B7E7FF7785F2D83A44A062F73F977E90C516
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -305,25 +134,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692724   (122338) от 17.01.2024
+###  Публикация: 1690493   (123925) от 07.01.2024
 
-Live Wallpaper & Themes 4K Pro for Mac 19.3 [En]
+Газета | Моя Семья № 51 (Декабрь 2023) [PDF]
 
->>Архив торрентов
->>Архив 4Apple
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122338.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Live Wallpaper & Themes 4K позволяют использовать живые обои на рабочем столе/экранной заставке. Приложение предоставляет тысячи живых обоев в мастерской, потребляя при этом как можно меньше системных ресурсов.Тип издания: macOS SoftwareРелиз состоялся: 03.01.2024Разработчик: © 2023 WHBALZAC IncПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский, Упрощенный китайский и Японский
+Общероссийская газета «Моя Семья» существует 11 лет. Издание появилось в июне 2000 года, и сегодня «Моя Семья» входит в число самых популярных изданий России. Газета стала не просто средством информации. Почти в каждом письме читатели пишут: теперь я не представляю своей жизни без вашей газеты. Прочитать её хотя бы раз в неделю стало для людей потребностью, такой (   Читать дальше...   )Жанр: Семья, Дом, Быт. ДосугИздательство: ООО "Издательство "Моя Семья"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:583B17F0D3A121D470484583DCA22C28EF7EB266
+magnet:?xt=urn:btih:9D23348D5A6186D1F3328A93BE3B1BEC9EEB2746
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -331,28 +160,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692505   (122337) от 17.01.2024
+###  Публикация: 1690494   (123924) от 07.01.2024
 
-Ui - Sidelong (1995) Reissue, 2024, Numero Group [FLAC|Lossless|WEB-DL|tracks] <Math Rock>
+Numenor - Sword and Sorcery (2015) Ressued-2016 [FLAC|Lossless|image + .cue] <Symphonic Epic Black Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (instrumental)  01:17
+02. Dragonheart  04:13
+03. The Arcanist  03:23
+04. Interlude (instrumental)  01:15(   Читать дальше...   )Жанр: Symphonic Epic Black Power MetalПродолжительность: 00:58:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04ECA740019E0B4D1A2F43CE1492337AF4A70EAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690478   (123923) от 07.01.2024
+
+Orphaned Land - A Heaven You May Create (30th Anniversary / Live In Tel-Aviv) (2023) [FLAC|Lossless|image + .cue] <Doom, Death, Folk Metal, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mabool (The Flood)
+02. The Storm Still Rages Inside
+03. Like Orpheus
+04. Sapari(   Читать дальше...   )Жанр: Doom, Death, Folk Metal, Progressive MetalПродолжительность: 01:14:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809E360CBD772739D144C62DC1D0161C3192C2F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690559   (123922) от 07.01.2024
+
+Ги де Мопассан | Заведение Телье. Сборник новелл (2022) [MP3, Наталья Потопальская]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123922.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ги де Мопассан (1850–1893) – крупнейший французский новеллист, мастер рассказа с неожиданной концовкой.
+В своих произведениях Мопассан воспевает любовь и силу человеческого духа, рассказывает о трагедии одиночества и неразделенных чувств, осуждает корыстолюбие, лицемерие и предательство.
+Одним субботним вечером посетители обнаружили местный публичный дом закрытым. (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: ИДДКПродолжительность: 06:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0AD7FDBD6947511F174B531A18CB9CFE91118B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690550   (123921) от 07.01.2024
+
+Ги де Мопассан | Рассказы вальдшнепа (2022) [MP3, Наталья Первина]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123921.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ги де Мопассан (1850–1893) – крупнейший французский новеллист, мастер рассказа с неожиданной концовкой.
+
+«Едва ли был другой такой писатель, столь искренно считавший, что все благо, весь смысл жизни – в женщине, в любви… и едва ли был когда-нибудь писатель, который до такой ясности и точности показал все ужасные стороны того самого явления, которое казалось ему самым (   Читать дальше...   )Жанр: Зарубежная литература, классика, новеллаИздательство: ИДДКПродолжительность: 04:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB76D2691A0B3518AFF6AF1E44A29583B23BA7F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690344   (123920) от 07.01.2024
+
+yungatita - Shoelace & A Knot (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative, indie rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122337.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. August Song [00:05:29]
-02. Long Egg [00:03:03]
-03. Sexy Photograph [00:03:29]
-04. Top Requests [00:04:33](   Читать дальше...   )Жанр: Math RockПродолжительность: 00:48:06
+01. Poppy [00:02:11]
+02. Reckless [00:03:35]
+03. Other [00:03:25]
+04. Armchair [00:04:55](   Читать дальше...   )Жанр: Alternative, indie rockПродолжительность: 00:35:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A69528FB93D92EE1F04DC59E07097BC601B008B2
+magnet:?xt=urn:btih:D1DB98018F23107A1F92685D41B955AF599C758D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -360,28 +303,335 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692711   (122336) от 17.01.2024
+###  Публикация: 1690433   (123919) от 07.01.2024
 
-Crossfire - Switch to Reset (2023) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+Ethel Waters - Cocktail Hour (1920-e - 1940-e) 2CD, 2001, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeepers Creepers [2:49]
+02. Heatwave [3:02]
+03. Harlem on My Mind [3:29]
+04. Y' Had It Comin' to You [2:19](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:23:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B29F6E8D2952094EF33B11EE29195910DE14478
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690557   (123918) от 07.01.2024
+
+Чадра (1927) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123918.jpg" />
+</div>
+
+
+###  Подробнее
+
+О раскрепощении узбекской женщины. Фильм призывает мусульманок сбрасывать паранджу, учиться в школе и приносить пользу обществу.Производство: СССР, УзбекгоскиноЖанр: социальная драма, история, немое киноРежиссер: Михаил АвербахАктеры: Сафият Аскарова, Саиб Ходжаев, Григол Чечелашвили, Е. Павлова, Макангали Абдуллаев, Рахим ПирмухамедовСубтитры: русские (интертитры)Продолжительность: 01:12:31 (00:55:10)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0883F7020EA883ECDDD84443B1CC1F63093698B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690482   (123917) от 07.01.2024
+
+Ги де Мопассан | Милый друг (2003) [MP3, Сергей Кирсанов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Зарубежная классика.
+Ги де Мопассан (1850–1893) – один из самых популярных французских писателей конца XIX века.
+«Милый друг» – роман-памфлет, показывающий неприглядную кухню политики и журналистики в Третьей Республике. И это роман об «антилюбви», ибо его герой Жорж Дюруа, наглый и ловкий делец, строит свою карьеру почти исключительно на расчетливых (   Читать дальше...   )Жанр: Зарубежная литература, классика, романИздательство: Студия «АРДИС»Продолжительность: 14:12:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F91D864525DF78322E5F6B7658156511798B53F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690561   (123916) от 07.01.2024
+
+Ги де Мопассан | Парижское приключение (2017) [MP3, Александр Бордуков, Александр Котов]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Классика на все времена (Французская литература).
+Классическая художественная литература Франции богата и красочна. Она широко охватывает французскую социальную жизнь, историю, быт, нравы и психологию человека различных общественных слоев, придвигая к нашему взору бедность и богатство, роскошь и убожество, город и деревню. Она с любовью рисует лик всего (   Читать дальше...   )Жанр: Зарубежная литература, классика, рассказ, новеллаИздательство: Издательский дом «Союз», Покидышевъ и сыновьяПродолжительность: 07:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC499A8077A0902841AD188FBA01570DAE3D7151
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690547   (123914) от 07.01.2024
+
+Газета | Тайны ХХ века №27 (июль 2023) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123914.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Тайны XX века» - еженедельное издание, рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах вас ждут новые загадки мироздания и новые потрясающие открытия.Жанр: ИсторияИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:018363BA3E5519EA8EB55E262061B4DA6AA86969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690346   (123913) от 07.01.2024
+
+VA - Ronny's Pop Show 25 (1994) 2 CD [OGG Vorbis|480 Kbps] <Electronic, Hip Hop, Rock, Reggae, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ini Kamoze - Here Comes The Hotstepper
+02.  Schwester S. - Ja Klar
+03.  Sparks - When Do I Get To Sing My Way
+04.  The Connells - '74-'75(   Читать дальше...   )Жанр: Electronic, Hip Hop, Rock, Reggae, PopПродолжительность: 02:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD217088D258F5767ED23D0B49FF951B4BD86BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690368   (123912) от 07.01.2024
+
+Antania - The God Complex (2024) [FLAC|Lossless|WEB-DL|tracks] <Industrial Metal, Black Metal>
+
+>>Electronic
+>>Industrial, EBM, Dark Electro (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The God Complex [00:04:12]
+02. Angels and Demons III [00:04:09]
+03. Antania [00:03:51]
+04. D3D Solz [00:05:05](   Читать дальше...   )Жанр: Industrial Metal, Black MetalПродолжительность: 01:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABEF74A9CD1651C19AD2599D90C169311253205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690401   (123911) от 07.01.2024
+
+Михаил Булгаков | Театральный роман (2013) [MP3, Ирина Ерисанова]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик русской литературы ХХ столетия.
+Свой неоконченный «Театральный роман» (авторское название «Записки покойника») Михаил Афанасьевич Булгаков создавал в 1936-1937 годах, после разрыва отношений с МХАТом и его главой Константином Сергеевичем Станиславским. Писатель остро переживал прекращение репетиций (   Читать дальше...   )Жанр: Русская литература, классика, романИздательство: Нигде не купишьПродолжительность: 05:30:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01DAC26FEB6443F8F83FB8E43EBA4A8CD5950502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690529   (123910) от 07.01.2024
+
+The Jazz Kings - Blue Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Cross The Mersey
+02. Rockin' Gold
+03. Still Got The Blues
+04. Popsicle Toes(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:45:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:237165C1E5F8C45A991D323505BFB4843FD35116
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690397   (123909) от 07.01.2024
+
+Михаил Булгаков | Дни Турбиных (Радиоспектакль) (2005) [MP3, Михаил Зимин, Вячеслав Расцветаев и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Из архива «Гостелерадиофонда».
+Михаил Афанасьевич Булгаков (1891–1940) писатель, драматург, классик русской литературы ХХ столетия.
+Пьеса «Дни Турбиных» была написана Булгаковым по мотивам романа «Белая гвардия», созданного под впечатлением событий, пережитых писателем в конце 1918 – начале 1919 года в Киеве. События эти оказали огромное влияние на миропонимание (   Читать дальше...   )Жанр: Русская литература, классика, пьесаИздательство: ИДДК, ГостелерадиофондПродолжительность: 02:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3472BD833477A253B6032FD4025492AE984D896
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690402   (123908) от 07.01.2024
+
+VA - Winter Dance Covers 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. TwoRule - Shivers [03:03]
+02. Moses - Let Me Down Slowly [03:32]
+03. Alperen Ocak - Creepin' (I Don't Wanna Know) [02:54]
+04. TwoRule - Numb [02:41](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:35:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE3266E4F7A0683588AF2D7F3CC94B023A24D80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690540   (123907) от 07.01.2024
+
+Luzbel - Anthología Perdida I (1998) [FLAC|Lossless|image + .cue] <Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122336.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123907.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Switch To Reset (07:28)
-02 - Book Of The Dead (06:09)
-03 - Lost All Control (06:23)
-04 - Who Goes There? (08:00)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:58:58
+01. El Ángel De La Lujuria
+02. El Loco
+03. La Gran Ciudad
+04. Esta Noche Es Nuestra(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AD783C2508D3CD7F01E3D73B2EB64F17992DDC0
+magnet:?xt=urn:btih:6F6CA90815E476156EBE3E010FC17B2DFAA83505
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -389,135 +639,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692730   (122335) от 17.01.2024
+###  Публикация: 1690527   (123905) от 07.01.2024
 
-4K Tokkit Pro 2.5.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Один простой способ скачать все с TikTok. 4K Tokkit - это идеальное приложение для массовой загрузки контента TikTok. Сохраняйте задачи TikTok, подписи, целые аккаунты, хэштеги и отдельные видео в высоком качестве. Смотрите TikToks офлайн, просматривайте ленту TikTok без рекламы, делайте репосты клипов в другие социальные сети.Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2024 Open Media OOOПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C938C3BED06ADE9C3C461C0FDB8E0B2A838F49BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692638   (122333) от 17.01.2024
-
-Вадим Лоткин - Тапер (1997) [FLAC|Lossless|image + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тапер
-02. Мужчина средних лет
-03. Верность моя
-04. Интимный разговор(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:43:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16A631B2238FAE6970D72F6BC0BD61F7CE5D6F8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692750   (122332) от 17.01.2024
-
-GM CHM Reader Pro for Mac 2.5.2 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122332.jpg" />
-</div>
-
-
-###  Подробнее
-
-GM EPUB Reader — это полнофункциональное приложение для чтения электронных книг с простым и красивым интерфейсом и хорошим качеством чтения.Тип издания: macOS SoftwareРелиз состоялся: 13.11.2023Разработчик: © 2023 shrekПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46E4C431686CEADD15B9B2E07384302CD52A24E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692561   (122331) от 17.01.2024
-
-Color Folder - Custom Icons for Mac 3.8 [En]
-
->>Программы для macOS
->>Графика для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122331.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью Color Folder вы сможете задать любой внешний вид выбранной вами папкиТип издания: macOS SoftwareРелиз состоялся: 03.01.2024Разработчик: © 2022 elimisoftПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Упрощенный китайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD872A4560195F2C4FA30291E8444CB3B39D6C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692604   (122330) от 17.01.2024
-
-Sound Storm - Vertigo (2016) [FLAC|Lossless|image + .cue] <Power Metal, Symphonic Metal>
+After Apocalypse - After Apocalypse (2015) [FLAC|Lossless|image + .cue] <Symphonic Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122330.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123905.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vertigo
-02. The Dragonfly
-03. Metamorphosis
-04. Forsaken(   Читать дальше...   )Жанр: Power Metal, Symphonic MetalПродолжительность: 00:51:28
+01. After Apocalypse  03:36
+02. World Of Marzipan  04:14
+03. Dark Side  07:03
+04. Glorious Way  03:15(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:45:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71B38F84971E24EB1A9F671F44709F64CA35D485
+magnet:?xt=urn:btih:6E958E52C52D8C912D84BAA60C7CEA978D98E0C1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -525,28 +668,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692378   (122329) от 17.01.2024
+###  Публикация: 1690382   (123904) от 07.01.2024
 
-Overworld Dreams - Geography (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+Cancer Christ - God is Violence (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal, Crust, Hardcore>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122329.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123904.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Geography [00:26:15]
-I. Prelude
-II. Space & Shapes
-III. The Summit(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:25
+01. Hail Christ Intro [00:00:47]
+02. Do You Wanna Go To Heaven? [00:01:25]
+03. Baptized in Piss and Shit [00:01:38]
+04. God Hates Cops [00:01:51](   Читать дальше...   )Жанр: Thrash Metal, Crust, HardcoreПродолжительность: 00:26:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2D2C3A3A0F2B4AB6388685AA64D62E4E5D10FA7
+magnet:?xt=urn:btih:FF216D1F17771EEDBCA41171AB4467E8892873A5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,160 +697,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692740   (122328) от 17.01.2024
+###  Публикация: 1690542   (123903) от 07.01.2024
 
-MarkMyWords 2.9.0 [En]
+Even Vast - Teach Me How to Bleed (2007) [FLAC|Lossless|image + .cue] <Gothic Metal>
 
->>Архив торрентов
->>Архив 4Apple
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122328.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123903.jpg" />
 </div>
 
 
 ###  Подробнее
 
-MarkMyWords предлагает простые функции форматирования и структурирования содержания статей, которые будут опубликованы в «Интернете» и остаются независимыми от платформы при использовании текстовых документов.Тип издания: macOS SoftwareРелиз состоялся: 04.01.2024Разработчик: © Xelaton SoftwareПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский и Немецкий
+01. Infected  04:02
+02. Away  04:09
+03. Limelight  04:33
+04. Love Will Tear Us Apart  03:19(   Читать дальше...   )Жанр: Gothic MetalПродолжительность: 00:40:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EEB1AC2C4C975001837A8D14441A35B3F3A8EC7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692563   (122327) от 17.01.2024
-
-Boinx FotoMagico Pro 6 v.6.5.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122327.jpg" />
-</div>
-
-
-###  Подробнее
-
-FotoMagico – популярный пакет для создания слайд-шоу от компании Boinx Software.
-В состав программы входит отдельный плеер, который позволяет просматривать слайд-шоу с высоким разрешением на компьютерах, на которых не установлен пакет FotoMagico (ранее это было возможно лишь при экспорте слайд-шоу в видеоролик, при этом приходилось искать компромисс между большим (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.01.2024Разработчик: © 2024 Boinx Software International GmbHПоддерживаемая ОС: macOS 10.15.2 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A68EC8C7545A907804811153C874B1F2E04DAC8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692668   (122326) от 17.01.2024
-
-Regurgitated Guts - Esophageal Mutilation (2017) EP [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122326.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Vermin Feast
-A2 Esophageal Mutilation
-B1 Coffin Birth
-B2 Vomit RitualЖанр: Death MetalПродолжительность: 00:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6255D79591533C7D345A5B0BFB637F0DE3CD073C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692562   (122325) от 17.01.2024
-
-EazyDraw 11.4.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122325.jpg" />
-</div>
-
-
-###  Подробнее
-
-EazyDraw от Dekorra Optics – графическая программа, созданная специально для macOS. Она будет полезна при работе над многими проектами, включая чертежи, иллюстрации, иконки, логотипы и стилизованные тексты.Тип издания: macOS SoftwareРелиз состоялся: 18.12.2023Разработчик: © 2022-2023 Dekorra Optics, LLCПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEA2288DFCFF04864BFAE96A3275C43AA743C516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692736   (122324) от 17.01.2024
-
-BatchOutput PDF 3.1.3 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122324.jpg" />
-</div>
-
-
-###  Подробнее
-
-BatchOutput PDF упрощает вашу жизнь, автоматически распечатывая файлы PDF из папок на вашем компьютере. И это единственный инструмент для автоматизации печати PDF-файлов для Mac.
-Создавайте «горячие» папки для различных настроек печати и помещайте свои PDF-файлы в эти папки. BatchOutput PDF сделает все остальное автоматически, сэкономив вам время и хлопоты, связанные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.01.2024Разработчик: © 2012-2020 Zevrix SolutionsПоддерживаемая ОС: macOS 10.13 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C549FFBD5B56BA4A33CAE0FF977991DFA89300E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692564   (122323) от 17.01.2024
-
-Navicat Charts Creator for Mac 1.2.15 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122323.jpg" />
-</div>
-
-
-###  Подробнее
-
-Navicat Charts Creator преобразует ваши данные в эффективные визуализации для выявления тенденций, закономерностей и выбросов. Упростите анализ данных и поделитесь своим рабочим пространством с коллегами, чтобы лучше поддерживать ваши бизнес-решения и стратегии.Тип издания: macOS SoftwareРелиз состоялся: 09.01.2024Разработчик: © 1999–2022 PremiumSoft™ CyberTech Ltd.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F301B0A8B2995C9892D69BDEF0A1893EFA7AB832
+magnet:?xt=urn:btih:F465F849E6957BF6B7E06DBE44CD5F4ABCAA151E
 ```
 
 https://mybot314.ru/tekegram_catalog/

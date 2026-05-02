@@ -1,3 +1,119 @@
+###  Публикация: 1600218   (159061) от 26.12.2022
+
+Andy Lindquist - Life's Too Short to Spend It Raining (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. To the Tops (3:00)
+02. Help Is on Its Way (4:39)
+03. Life's Too Short to Spend It Raining (5:24)
+04. Right as Rain (3:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D00E2BEDC1967A78818A475A69FA23F7AEDF96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1600222   (159031) от 26.12.2022
+
+Vern Daysel - Call of the Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feed Me (4:02)
+02. Wild Girl (3:50)
+03. Bandit’s Road (3:46)
+04. Call of the Wild (4:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9D83AA6BFDC25587AE330A29E0020CEF46E13C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433194   (158157) от 20.12.2020
+
+Manzanita Blues - To Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158157.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Goin' Down Dirty (3:31)
+02. Calling You Out (3:09)
+03. I Was Wrong (4:17)
+04. Housing Bubble Blues (5:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADFB8ACE90454BF4EAC800F0C47B82D18AFACF1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1433192   (158152) от 20.12.2020
+
+Matt Zajac - Garden of Hedon (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock; Psychedelic>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome Song (4:31)
+02. Lady in White (4:49)
+03. Daisy Chain (5:06)
+04. Reason to Sing (5:23)(   Читать дальше...   )Жанр: Blues Rock; PsychedelicПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0307498F6CF63AA6A2DD746751A3A1BA42691842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270371   (157680) от 19.12.2018
 
 The Temptations - Give Love At Christmas (1980) [FLAC|Lossless|WEB-DL|tracks] <Rhythm, Blues, Soul>
@@ -631,122 +747,6 @@ Jeff Liberman - Solitude Within (1975) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CC2A012458E792E21141446B530C314B19C6300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677296   (151384) от 17.11.2023
-
-Son Henry - Glenn Highway Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151384.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peach Street Blues (5:57)
-02. Hummingbird (2:47)
-03. Memphis Train (2:53)
-04. Second Glance (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AE29943A252BF0646B8BE297563CA77897CDA50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677295   (151330) от 17.11.2023
-
-Ian Coldsteel Kenny - Coldsteel Blues, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back to Work Blues (5:03)
-02. Ode to Jack (4:46)
-03. I Know a Thing or Two (5:38)
-04. I Got the Blues (4:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F2AF3303771750969FBBF1765502AF6988D83F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677294   (151140) от 17.11.2023
-
-Kenny Wayne Shepherd - Dirt On My Diamonds, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirt On My Diamonds (3:23)
-02. Sweet & Low (3:56)
-03. Best Of Times (3:28)
-04. You Can't Love Me (4:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A5C8CAACCD80520713F3BC3D9E1E74B35F5909
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434442   (151123) от 24.12.2020
-
-Jeff Liberman - Stream of Consciousness (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Love (3:28)
-02. I'm a Man (2:58)
-03. Into the Night (4:34)
-04. Nothing Will Be Here (2:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:358750EAA9DCB40917A1A0B19A2F90D6A32E5D14
 ```
 
 https://mybot314.ru/tekegram_catalog/

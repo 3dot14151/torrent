@@ -1,3 +1,176 @@
+###  Публикация: 1807207   (65299) от 17.07.2025
+
+Slaughter to Prevail - Grizzly (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Banditos (4:52)
+02. Russian Grizzly In America (4:14)
+03. Imdead (3:50)
+04. Babayka (3:58)(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F00526CA1FDDEDA86D49BCFEFF952D48B0EBCD6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807241   (65296) от 17.07.2025
+
+Alice Cooper - Up All Night (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up All Night [00:03:07]
+02. Wild Ones [00:04:17]
+03. Black Mamba [00:04:57]Жанр: Hard-RockПродолжительность: 00:12:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F4A54A2B9A2E08B8CB9D722DC556DD809373840
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807236   (65294) от 17.07.2025
+
+Yelawolf & Michael Phillips - Whiskey & Roses (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Hip-Hop, Country>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helping Hand [00:04:20]
+02. I Swear [00:03:41]
+03. Amnesia [00:03:43]
+04. Falling [00:03:32](   Читать дальше...   )Жанр: Alternative Hip-Hop, CountryПродолжительность: 00:37:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60A26B2CAD901C44AD854178F106CBFFB32C804
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807170   (65293) от 17.07.2025
+
+Catapulta Airlines - Бирбоинг (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Катапульта эирлайнс [00:01:54]
+02. Придурок [00:02:34]
+03. Бир брейк [00:02:01]
+04. Тупой босс [00:02:07](   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9156EC9C40C7418AFA8E9DB31092FF1E8F687B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807205   (65289) от 17.07.2025
+
+Motorjesus - Streets of Fire (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard 'n' Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somewhere from Beyond (5:27)
+02. Back for the War (3:31)
+03. Streets of Fire (4:32)
+04. They don't Die (3:23)(   Читать дальше...   )Жанр: Hard 'n' Heavy MetalПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900943548F871AEC7A559DB5E3830839CCD6F66E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807276   (65284) от 18.07.2025
+
+Boneshakers - Live To Be This (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65284.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I’ll Kick A Brick (For My Man) (03:41)
+ 02 - They Say I'm Different (03:44)
+ 03 - How Do You Spell Love (02:54)
+ 04 - I Need Somebody (04:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAB2550F840495FF10FE53755F47A9CD8DFA3FC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807370   (65280) от 18.07.2025
 
 Руслан Казанцев - Лесоповал (2001) Remastered, 2025, Vybez Music [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chanson>
@@ -571,178 +744,6 @@ Tomas Jo´ Group - Be A Little Kind (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E56ED7BF9C39FE020B171642BC660218E4D08CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807733   (65097) от 20.07.2025
-
-Абсолютный Ресурс - Человек человеку товар (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hardcore-Punk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Режим грабежа [00:02:18]
-02. Предсмертный крик этого мира [00:02:11]
-03. Улицы просят огня [00:02:43]
-04. Терпим [00:02:05](   Читать дальше...   )Жанр: Hardcore-PunkПродолжительность: 00:21:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DDE0328A63F17291AE533BC32939EE3F6B2A2A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807709   (65095) от 20.07.2025
-
-The Black Zodiac - The Tyrant (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gallow's Call (3:36)
-02.  Dark Arts (3:44)
-03.  Ride, My Dearie (2:38)
-04.  Black Lilies (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0F43CB654428957A531F0B976D1B432A568AEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807906   (65091) от 21.07.2025
-
-Grand Alchemist - Studio Albums (2 releases) (2003; 2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Grand Alchemist - метал-группа из города Холмэстранд, Норвегия.2003 - Intervening Coma Celebration
-2012 - Disgusting HedonismЖанр: Symphonic Black MetalПродолжительность: 01:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611AC3F9BD47C43F5EC663AAAB2AF11C07824863
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807928   (65089) от 21.07.2025
-
-Magneton - Jo Fiu Leszek [Magneton 2] (1986) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65089.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Jo Fiu Leszek
-A2 Blues
-A3 Szerelem
-A4 Szomoru Dal(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832F053FF7AA0A1FD77AA61D8B7289042E12D0B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807957   (65088) от 21.07.2025
-
-Паранойя (Paranoia) - Месть Зла (Evil's Revenge) (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Power, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65088.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Повелитель Снов
-A2 - Месть Зла
-A3 - Слуги Дьявола
-A4 - Мертвый Марш(   Читать дальше...   )Жанр: Power, Speed MetalПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6054A0F427B01883500A2D9777DDE5F2496DFD71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807965   (65086) от 21.07.2025
-
-Aswekeepsearching - kyun? (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Post-Rock, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. why? [00:02:35]
-02. you left something [00:06:23]
-03. into the mind [00:04:07]
-04. enter the heart [00:05:52](   Читать дальше...   )Жанр: Post-Rock, AmbientПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C747FCABAB61F9FBA6D6246DB5D9FD1DE75927B
 ```
 
 https://mybot314.ru/tekegram_catalog/

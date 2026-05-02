@@ -1,3 +1,61 @@
+###  Публикация: 1092875   (937430) от 13.01.2017
+
+The Modern Jazz Quartet - The Comedy & Concorde (1962) 1998, Atlantic[APE|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Spanish Steps [05:37]
+ 02.Columbine [04:12]
+ 03.Pulcinella [04:25]
+ 04.Pierrot [03:23](   Читать дальше...   )Жанр: CoolПродолжительность: 01:11:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE27D1603EDBDF41FD622F6077C7132FF39BC518
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092885   (937428) от 13.01.2017
+
+Lena Horne - We'll Be Together Again (1994) Blue Note[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Maybe [02:46]
+ 02.Something to Live For [04:46]
+ 03.Day Follows Day [03:02]
+ 04.Prelude to a Kiss [04:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FF7ED8ECB1C48876F97871B00DE12E223E1657F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092872   (937427) от 13.01.2017
 
 Oscar Peterson - Jazz Manifesto (1949 -1996) 2CD, 2007, Performance Records[FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -687,64 +745,6 @@ VA - Sounds Of ‘94 (1994) GRP Records[FLAC|Lossless|image + .cue] <Post-Bop, V
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82AE917E2063EFDAC517F390F6DF75023FD3B2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093554   (934011) от 15.01.2017
-
-Sarah McKenzie - Paris In The Rain (2017) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tea For Two
-02. Paris In The Rain
-03. One Jealous Moon
-04. Little Girl Blue(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:52:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF791D731F3B6BABCC44061D288F3584CEC3BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364991   (933820) от 05.03.2020
-
-Chet Baker - Sings and Plays with Bud Shank, Russ Freeman and Strings 1955 (1987) Pacific Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Get Lost [3:45]
-02. This Is Always [3:08]
-03. Long Ago and Far Away [3:59]
-04. Someone to Watch over Me [3:02](   Читать дальше...   )Жанр: Cool, West Coast Jazz, Piano JazzПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6146C93C9E837ED9508183B4E84969B1A133600
 ```
 
 https://mybot314.ru/tekegram_catalog/

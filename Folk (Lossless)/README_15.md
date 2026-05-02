@@ -1,3 +1,32 @@
+###  Публикация: 1805816   (12028) от 09.07.2025
+
+Joan Baez - Gone From Danger (1997) CD, Album [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Mermaid    [0:04:22.72]
+02. Reunion Hill    [0:04:08.43]
+03. Crack in the Mirror    [0:05:49.02]
+04. February    [0:04:11.25](   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 00:43:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749FF62F2BF88DC1119DF9A8B5A58B27141B04A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805810   (12025) от 09.07.2025
 
 VA - 101 Greatest Country Hits - Vol. Two: Country Sunshine (1994) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>

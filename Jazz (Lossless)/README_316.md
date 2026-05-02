@@ -1,3 +1,61 @@
+###  Публикация: 1707604   (113247) от 17.03.2024
+
+Danny Barrett - It's About Time (1993) DBD Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everytime We Say Goodbye [4:02]
+02. Two for the Road [4:36]
+03. Night Song [4:20]
+04. For All We Know [4:00](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11E0D4EB6CEDDE922DA64ABDB9C6676D454846B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707806   (113239) от 18.03.2024
+
+Triplicity - Onibaba (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Onibaba (5:01)
+02. Which way home (5:35)
+03. Our own ghosts (8:50)
+04. Lovesong (intro) (3:24)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:46:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04EEE890E100DBBC46C91CA9F4999DC5B56570C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1707799   (113237) от 18.03.2024
 
 Bernhard Ludescher & Loktor - Almost (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
@@ -687,62 +745,6 @@ Zoot Sims - In Copenhagen (1978) 2007, Storyville Records [FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FC28A788F4041E2A5016A403BF00EB76E257ECDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709117   (112899) от 23.03.2024
-
-Jazz Music Lovers Club - Music for Sexy Striptease (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth Rose (3:48)
-02. Spicy Little Dance (2:48)
-03. Pure Feelings (2:48)
-04. True Love Has Your Name (3:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40AE2B0131FCD586DAE6A0360286390AFA3DA842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709058   (112884) от 23.03.2024
-
-Boris Tolstobokov - Quantum Satis (1988) 2023, Apollon & Evterpa [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winter Imagination [19:28]
-02. Game In Beads [30:57]Жанр: Avant-Garde Jazz, Free Improvisation, Piano JazzПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD7BD7B1DDF6320FB4C11DD7CC55E89DFC5E0684
 ```
 
 https://mybot314.ru/tekegram_catalog/

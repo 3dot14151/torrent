@@ -1,3 +1,90 @@
+###  Публикация: 1035047   (630045) от 15.07.2016
+
+Виктор Королёв - Лучшие песни (2016) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630045.jpg" />
+</div>
+
+
+###  Подробнее
+
+[4:11] 01. Ты одна
+[3:28] 02. Три часа
+[3:45] 03. А я не знал
+[3:52] 04. Я тону в твоих глазах(   Читать дальше...   )Жанр: ChansonПродолжительность: 01:17:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:647571C6CE142798ED319475C2DC2DFC54B4D8AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543512   (629370) от 11.04.2022
+
+Владимир Жириновский - Настоящий полковник (1999) [MP3|320 Kbps] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629370.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня настоящего полковника [00:03:02]
+02. Конь стреноженный [00:04:45]
+03. Метель [00:03:14]
+04. Веселая компания [00:03:50](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D35FC310ED8CEC4163A6003697DB7DEB6DE36DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143862   (629227) от 21.06.2017
+
+Bernard Lavilliers - Samedi soir a Beyrouth (2008) [FLAC|Lossless|tracks + .cue] <French Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629227.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rafales
+02. Solitaire
+03. Ma belle
+04. Bosse(   Читать дальше...   )Жанр: French ChansonПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E41831C8D554D8066C92B2A14ED4EB34A804736F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 350180   (629059) от 13.06.2011
 
 Таня Тишинская - 50 лучших песен (2011) [MP3|320 kbps]<Schanson>
@@ -653,99 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8ADCF241F8C276833C345C607CA5C0FECC8C4B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 522067   (622542) от 13.07.2012
-
-VA - Bonjour La France ( The Sound Of France ) (1993 & 1996) 2*2CD [FLAC|Lossless]<Chanson, Pop>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. France Gall - Poupee De Sire, Poupee De Son [02:32]
-02. Mireille Mathieu - Ensemble [03:03]
-03. Severine - Un Banc, Un Arbre, Une Rue [03:03]
-04. Les Poppys - Love, Lioubov, Amour [03:06]
-05. Les Poppys - Des Chansons Pop [02:14]
-06. Vicky Leandros - Apres Toi [03:33]
-07. Lenny Kuhr - Les Enfants [03:22]
-08. Mort Shuman - Le Lac Majeur [05:25]
-09. Anne Marie David - Tu Te Reconnaitras [02:42]
-10. Mireiile Mathieu - La Paloma Adieu [03:53](   Читать дальше...   )Жанр: Chanson, PopФормат: 2 * 2CDПродолжительность: 01:07:57
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295253   (622366) от 11.04.2019
-
-Елена Ваенга - Оловянное сердце (2011) [FLAC|Lossless|image + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622366.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Клавиши (3:49)
-02. Ванечка (3:31)
-03. Курю (5:10)
-04. Гуцулочка (3:08)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D4DD19E22F6CA32B4DE556AC496AE7C311BA28A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036156   (621085) от 20.07.2016
-
-Михаил Поляков - Осень души (2010) [FLAC|Lossless|image + .cue] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тамара
-02. Если можешь, прости
-03. Америка
-04. Как мы жили(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:58.09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5741C51A2DBF956AD778B423860D8B56E67A4E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

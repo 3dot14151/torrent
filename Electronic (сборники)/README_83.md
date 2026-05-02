@@ -1,3 +1,61 @@
+###  Публикация: 1131197   (708786) от 05.05.2017
+
+VA - Workout Mix vol.8 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708786.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Julian The Angel - Hands Up (Original Mix)
+02 - СС Music Factory & FTampa - Everybody Dance Now Ricky (DJ Vadim Adamov Mash Up)
+03 - David Guetta vs twoloud & Qulinez - Love Is Gone (Max Maikon Mash-Up)
+04 - Alex Gaudino - Destination (Vasiliy Francesco & Sergey Pirs Remix)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive HouseПродолжительность: 01:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998CC83D8408BA9C10D391FCAB293150680AD19B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131245   (708784) от 05.05.2017
+
+VA - Synthetic (2017) [MP3|320 Kbps] <Synth Pop, Dark Electro, EBM>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Junksista - Life Is Unfair (And Love Is A Bitch) (Psy'Aviah Remix) (04:47)
+02. Ari Mason - Military Fashion Show (04:21)
+03. Nordika - Heaven (Slaves of the Sin) (03:56)
+04. Ladytron - Evil (Ewan Pearson Single Remix) (04:10)(   Читать дальше...   )Жанр: Synth Pop, Dark Electro, EBMПродолжительность: 01:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5E8BAB39A0380809A66F7774454BD0EC747524
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131415   (708783) от 05.05.2017
 
 VA - Громче чем Бомба. Жаркий Уикенд. (Sound Clinic - Bass Edition) (2017) [MP3|320 Kbps] <Bass House, Tech House, G-House>
@@ -703,64 +761,6 @@ VA - Record Super Chart #485 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD6BAB2780E0072B5C299EB86981DE731B2FF0EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132035   (702826) от 08.05.2017
-
-VA - Music For Sports Games Vol 2 (2017) [MP3|256-320 Kbps] <Club, Dance, Pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702826.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 200 - The Darkness (NEXBOY & DBL Bootleg) 4:30
-002. A C Band - Parallax (Radio Mix) 3:20
-003. Ace Of Base - Cruel Summer(Pattex Remix 2017) 4:31
-004. Alesso - Falling (Rave One Bootleg) 4:04(   Читать дальше...   )Жанр: Club, Dance, PopПродолжительность: 10:21:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7259D5BBCEB0C36D31BC519CA5451A642B676CEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132064   (702746) от 08.05.2017
-
-VA - Beatport Top 100 House April (2017) [MP3|320 Kbps] <House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702746.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. George Kranz, Claptone - The Drums (Din Daa Daa) (Original Mix) 6:51
-002. Sasha feat. Polica - Out Of Time (Patrice Baumel Mix) 8:28
-003. Gorillaz, Jehnny Beth - We Got The Power (feat. Jehnny Beth) (Claptone Remix) 6:05
-004. Quim Manuel O Espirito Santo - Senhor Doutor (Adam Port Edit) 7:33(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 11:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3867D83C6C2A2C5EC8BC6C0329B3FA627A724EF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1062887   (438874) от 14.10.2016
+
+Проекты - Проект ProShow Producer - Magic Layers [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект создан в PSP-6. Слайдшоу в романтическом жанре с переходами от В.Павленко "Magic layers". Проект создан только для демонстрации действия переходов, стили слайдов самые примитивные - обычное масштабирование. Очень простой в редактировании, обычная замена файлов.
+Превью, пакет переходов и саундтрек - в раздаче.Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A463EEBB038ADDE1F601B85CCB062B4625DF987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 945009   (437556) от 08.10.2015
 
 Проекты - Videoblocks - Cartoon Photo Album [AEP]
@@ -651,32 +678,6 @@ VideoHive - Old Slides - 409621 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E174CF7BB8CF494E94E079E72C9D583E0D8D657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324077   (429482) от 07.09.2019
-
-VideoHive - View Master Slideshow - 15058042 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429482.jpg" />
-</div>
-
-
-###  Подробнее
-
-View Master Slideshow - стильный проект для создания ретро слайд-шоу.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6326426FBC5A64E85CEDCBF302D7586208B46D58
 ```
 
 https://mybot314.ru/tekegram_catalog/

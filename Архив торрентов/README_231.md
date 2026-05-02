@@ -1,3 +1,61 @@
+###  Публикация: 1350116   (1003813) от 04.01.2020
+
+The Star Pillow - Music For Sad Headbangers (2019) [FLAC|Lossless|tracks + .cue] <Ambient, Drone, Post Rock, Dark Jazz>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003813.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruno Martino Is My Tom Araya (5:20)
+02. Departures (11:11)
+03. Circle Of Events (5:30)
+04. Moving Grey (6:01)(   Читать дальше...   )Производство: Midira Records – MIDIRA 059Жанр: Ambient, Drone, Post Rock, Doom Metal, Dark JazzПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B925184A82B54F888157C90041A4C5DA3A8B6C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350130   (1003812) от 04.01.2020
+
+Atrium Carceri & Cities Last Broadcast - Black Stage Of Night (2019) [FLAC|Lossless|tracks + .cue] <Dark Ambient, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003812.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mind Turns To Night (4:16)
+02. Attic And Wormwood (3:37)
+03. A Glass Of Sleep For An Elegant Dream (3:12)
+04. All Things Nocturnal (5:36)(   Читать дальше...   )Производство: Cryo Chamber – CRYO 128Жанр: Dark Ambient, AmbientПродолжительность: 00:34:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:745CC0DDD868C52FDEA87F37748A0B673579F173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1350153   (1003809) от 04.01.2020
 
 Billy Woods & Kenny Segal - Hiding Places (2019) [FLAC|Lossless|Web-DL|tracks] <Rap, Hip-Hop, Abstract Hop>
@@ -630,58 +688,6 @@ Daum PotPlayer - мультимедийный плеер от авторов KMP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9632A6390D23D9D1B9A8AE3255B717D619AE8AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487501   (1003581) от 05.08.2021
-
-PC Cleaner Pro 8.1.0.1 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003581.jpg" />
-</div>
-
-
-###  Подробнее
-
-PC Cleaner Platinum – это очень мощный и многофункциональный программный комплекс, который необходим для улучшения скорости и качества работы персонального компьютера. Приложение имеет широкий выбор виртуальных инструментов и других расширений, которые способны решить различные системные ошибки, очистить мусор с файлового хранилища, и многое другое.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FEDEF1AD849E925E8A888A61FD6463BFA39485
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487483   (1003580) от 05.08.2021
-
-Serif Affinity Photo 1.10.0.1127 + Content RePack by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003580.jpg" />
-</div>
-
-
-###  Подробнее
-
-Affinity Photo — обеспечивает более высокую скорость, стабильность и эффективность работы и расширяет границы профессионального редактирования фотографий. Редактируете ли вы изображения, ретушируете их или создаете полномасштабные многослойные композиции, это приложение с обширным набором инструментов, специально разработанных для специалистов творческих профессий (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54AB06043355380BCCC1D348006134DA51BB2F42
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1102669   (889333) от 10.02.2017
+
+VA - The Best - In Music We Trust Vol.12 (2016) [MP3|320 Kbps] <House, Electro House, Hand Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andy Jay Powell - The Bankster (Calderone Inc Remix)  6:05
+02.  DJ Wajs - This Is How We Party (DNF & Vnalogic Remix)  4:57
+03.  Simon Lee & Alvin - Xcelerate (Extended Mix)  5:03
+04.  Borgeous - Wildfire (Original Mix)  5:00(   Читать дальше...   )Жанр: House, Electro House, Hand Up, Club, DanceПродолжительность: 07:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:014CC3F0C19BC017AC74ABA749189E998054521B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1102795   (889218) от 10.02.2017
+
+VA - The Best - In Music We Trust Vol.13 (2017) [MP3|320 Kbps] <House, Melbourne Bounce, Dutch, Electro House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dr. Alban & Yamboo ft. Cuzzins - Sing Hallelujah (Melbourne Bounce Project Remix)  6:32
+02.  Global Deejays - Hardcore Vibes (Feeling Beat Bootleg)  5:06
+03.  Adoel Smidt - Show Me Space (Original Mix)  4:15
+04.  Onur Aktemur - Bass (Original Mix)  3:19(   Читать дальше...   )Жанр: House, Melbourne Bounce, Dutch, Electro House, Club, DanceПродолжительность: 06:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35BA787584C596BD5BFDAA8111FF8A470FFE2266
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101939   (889095) от 10.02.2017
 
 VA - Record Russian Mix Top 100 February 07.02.2017 [MP3|307-320 Kbps] <Club House, Pop-Dance, Electro House>
@@ -687,63 +745,6 @@ Tears For Fears - 25 Best Songs (2014) [MP3|~245 кб/с]<Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41F359E2B605681F212B7DB52D53AD3AF2AEB3EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 640515   (884842) от 08.04.2013
-
-VA - Electro Life 24 (by ZiP)(2013) [MP3|320 kbps]<Electro House, Electro Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_884842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 30 Second To Mars - From Yesterday (Tony Igy Remix)
-02. Alexey Romeo ft. Gerald G - This Is Your Life (Heartbeat Re-Mode)
-03. Avicii - UMF (Ultra Music Festival Anthem) -Жанр: Electro House, Electro Progressive, Progressive House, Vocal HouseПродолжительность: 02:12:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF10FA8484633C86BB5943091BE22DD12DB2988
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 995246   (884796) от 11.03.2016
-
-VA - Soulful Nights-The Dance Music Playlist (2016) [MP3|320 кб/с] <Nu Disco, Funky, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roberto Conrado - 2 Lovers (Vocal).mp3
-02. Roberto Conrado - Choosy (Vocal).mp3
-03. Roberto Conrado - Freedom (Vocal).mp3
-04. Roberto Conrado - I Wanna (Vocal) .mp3(   Читать дальше...   )Жанр: Nu Disco, Funky, ClubПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52C637515FA43381DA666D2F71663F6AAF4F1A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 1305379   (247149) от 06.07.2023
+
+VA - Deep House & Nu Disco Top 100 (Compiled by ZeByte) (2019) [MP3|320 Kbps] <Deep House, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_247149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Filatov & Karas Feat. Rada - Lirika [03:36]
+02. Inward Universe - Residues Lives [03:57]
+03. Osaka Feat. Brianna - Find Me (The Distance & Igi Remix) [04:36]
+04. Snap! Feat. Rukmani - Rame (Mi-8 Deep Version) [06:04](   Читать дальше...   )Жанр: Deep House, Nu DiscoПродолжительность: 07:52:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E40BFCE4F526FF6C0A442BF2DBA567A9E3CE96A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491598   (246500) от 04.05.2012
+
+VA - Only DubStep Vol. 1 (2012) [MP3|128-320 кб/с]<DubStep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sam Obernik, The Str8jackets – Love & Oxygen (Xilent Remix)
+02. Lazy Rich – The Chase Feat. Belle Humble (Habstrakt Remix)
+03. Joe Jonas – Love Slayer (Invader! Remix)
+04. Sixstring King & Invader! – Natural High (Original Mix)
+05. Dubsidia & Balkansky – Annoying Dog
+06. Invader! – Innocent
+07. Fearless Ft. Sonna Rele – Everywhere & Nowhere (1uP Remix)
+08. Ry Legit – Dreamer
+09. Skrillex – Kill Everybody (Bare Noize Remix)
+10. Mantis – Ruthless (Original Mix)(   Читать дальше...   )2012Жанр: DubStepПродолжительность: 02:38:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F515E43D6807619DC45BA36044AD78D362B03915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 491494   (246316) от 03.05.2012
 
 VA - Trance Maniacs Party: Melody Of Heartbeat #83 (03.05.2012) [MP3|320 кб/с]<Vocal Trance>
@@ -691,64 +755,6 @@ VA - Winter Clubbing Techno Set (2021) [MP3|320 Kbps] <Club, Techno, Electro, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2693FE7F9CCB084F1AC2D46D450972E4C19F0ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069792   (244701) от 05.11.2016
-
-VA - Finding Around Happiness (Energy Tech Trance) 010 (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurora Night - Romel (Original Mix)  6:41
-02. Vadim Bonkrashkov - Ode (Extended Mix)  7:06
-03. Alex Ender - Ares (Extended Mix)  5:39
-04. Ahmed Helmy - Lapetus (Original Mix)  5:35(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 01:11:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCD3D2FBABBFBF0258F5F39C24E8147CBC047F8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1530706   (244653) от 12.02.2022
-
-VA - Beatport Techno: Sound Pack #402 (2022) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244653.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поскольку фестивали по всему миру отменены, мы переносим фестивальную атмосферу прямо на дом! Этот 402-й релиз от Beatport предоставляет вам все, что есть в техно: мрачные зловещие бас-линии, мощные индустриальные ударные, кислотные синтезаторы и многое другое. Всего внутри вы найдете 110 самых глубоких и жестких техно треков, которые с невероятной легкостью впишутся (   Читать дальше...   )001. Ressurectz - Love Yourself
-002. Luca La Rocca - Imprinting
-003. Aske - Objective Measure
-004. Temudo - Equívoco(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 10:27:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17EB88711D3D27EEDB220748C785561BB268399E
 ```
 
 https://mybot314.ru/tekegram_catalog/

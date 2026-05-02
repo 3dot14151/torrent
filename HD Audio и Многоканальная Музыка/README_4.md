@@ -1,3 +1,145 @@
+###  Публикация: 1604982   (1044917) от 17.01.2023
+
+Czerwone Gitary - Two Albums (1974, 1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044917.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dzien Jeden W Roku
+A2 Nad Swiatem Cicha Noc
+A3 Lec Koledo
+A4 Gwiazda Na Kiju(   Читать дальше...   )Жанр: Pop Rock, FunkПродолжительность: 01:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:777FB3100117D2AA13CAE8293BCA015E18E8E9F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1605804   (1044694) от 19.01.2023
+
+Steely Dan - Two Against Nature (2000) SACD, Reissue, Remastered, 2022, Analogue Productions [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz, Rock, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044694.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gaslighting AbbieЖанр: Jazz, Rock, PopПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE67A33D9917F473E5AB28801F9288676E769AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606807   (1044308) от 23.01.2023
+
+Skaldowie - Szanujmy Wspomnienia (1976) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044308.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Wszystko Kwitnie WkoloA2 Zyczenia Z Calego Serca
+A3 Zgadzam Sie Na Ten Swiat
+A4 Slowa Do Matki
+A5 Szanujmy Wspomnienia(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B702E12FBDB5C1E1E3A0823688A228309BF034C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607185   (1044158) от 25.01.2023
+
+Татьяна Кочергина и Рок-группа «XX Век» - «Добром за добро» (1988) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044158.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Добром За Добро
+A2 Наказ Сыну
+A3 Симфония, Часть 1
+A4 Тiнi(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A17A4CE643D8847CE7E1CFD22E22534E740929BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607410   (1044058) от 26.01.2023
+
+Рок-группа «Мост» - Музыка Сергея Баневича (1983) [FLAC 2.0|192/24|image+.cue] <Art Rock, Prog Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044058.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Ночной Полет
+A2 Ау, Улетевшее Детство
+A3 Корабль
+A4 Ночь(   Читать дальше...   )Жанр: Art Rock, Prog Rock, Pop RockПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3707E093ACCEBFD19C32638E27DB699A89A05FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607472   (1044025) от 26.01.2023
 
 Falkenbach - Studio Albums (6 releases) (1996-2013) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Viking/Black/Folk Metal>
@@ -594,150 +736,6 @@ Tracker — восьмой сольный студийный альбом бри
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FC3415C8A6125F97E81A46578E483192425E70F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615318   (1037822) от 25.02.2023
-
-Christopher Tin - Calling All Dawns (2009) [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Classical, Folk, World>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Странно, но я только совсем недавно, в период подготовки своего двенадцатого сборника, открыл для себя музыку этого американского композитора с китайскими корнями...
-Кристофер Чиян Тин - композитор, который создаёт музыку для фильмов и видеоигр. Его работы в основном оркестровые и хоровые. Кстати говоря, получил две премии Грэмми за альбом, предлагаемый здесь.
-Этника (   Читать дальше...   )Жанр: Classical, Ethnic, WorldПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56E25A3186DD1CFEA7D013FB692AF5FF6C82838B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043283   (1037630) от 21.01.2021
-
-E Nomine - Die Prophezeiung (2003) [DTS 5.1 CD-DA|44.1/16|image+cue|SACD] <Monumental Dance, Electronic, Trance>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seit Anbeginn der Zeit... (Intro) (2:21)
-02. Die Verheissung (Interlude) (0:24)
-03. Deine Welt - Album (3:18)
-04. SchwarzerTraum (Interlude) (0:16)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:03:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19DA59F34912EE8D1C8EF5690DF64319F1EAF82A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615418   (1037581) от 26.02.2023
-
-Catamenia - Studio Albums (10 releases) (1998 - 2012) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Black Metal, Melodic Death/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Catamenia — финская мелодик-блэк-метал-группа из Оулу. Группа была образована в 1995 году вокалистом Микой Тённингом, гитаристами Рику Хопеакоски и Сампо Уккола, басистом Тимо Лехтиненом, клавишником Хейди Риихинен и барабанщиком Тони Тервоандом.1998 - Halls Of Frozen North
-1999 - Morning Crimson
-2000 - Eternal Winter's Prophecy
-2002 - EskhataЖанр: Melodic Black Metal, Melodic Death/Gothic MetalПродолжительность: 08:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C53D90BBD81CA7A1A40DD2E3D05722F2A0AADC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615691   (1037291) от 27.02.2023
-
-Mist Of Misery - Studio Albums (6 releases) (2013 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mist Of Misery - шведская симфоник-блэк-метал группа из Стокгольма, образованная в 2010 году Саймоном Шёландером и Андреасом Мортуцем Бернинге.2013 - Temple of Stilled Voices (EP)
-2016 - Absence
-2017 - Fields of Isolation (EP)
-2017 - Shackles Of Life (EP)Жанр: Symphonic Black MetalПродолжительность: 04:58:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71D38FAF446F5C82C1CA9DCCF90A8F7B38A8E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441372   (1037096) от 23.01.2021
-
-Mark Knopfler - Down The Road Wherever (2018) 2LP [DSD128 2.0|5,6MHz/1bit|tracks|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037096.jpg" />
-</div>
-
-
-###  Подробнее
-
--A1 Trapper Man
--A2 Back On The Dance Floor
--A3 Nobody's Child
-(   Читать дальше...   )Жанр: RockПродолжительность: 01:06:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58592041013DB29AC5E67E57DE0393A99BF0E287
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 966106   (222617) от 16.12.2015
+
+Iggy Pop - Naughty Little Doggie (1996) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wanna Live (4:32)
+02. Pussy Walk (3:47)
+03. Innocent World (3:27)
+04. Knucklehead (4:10)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A139B73C597141939AE18A64AF8ED31AED0F296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651423   (222319) от 06.08.2023
+
+Ellereve - Reminiscence (2023) [FLAC|Lossless|WEB-DL|tracks] <indie rock, alternative, dark rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_222319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gossamer Wings [00:01:13]
+02. In Infinite Light [00:03:00]
+03. Cosmos [00:05:04]
+04. Levitate [00:05:20](   Читать дальше...   )Жанр: indie rock, alternative, dark rockПродолжительность: 00:32:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5CDC14E05F3A11170C23EE88BFCB5B2D91F4E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1585259   (222261) от 21.10.2022
 
 Red Hot Chili Peppers - Return of the Dream Canteen (2022) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
@@ -685,64 +743,6 @@ Jelly Roll - Whitsitt Chapel (2023) [FLAC|Lossless|WEB-DL|tracks] <Country Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AE76751E595C2C5B69612779E4ED0F0CB9D990F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638971   (211659) от 12.06.2023
-
-Poisonous Reflection - Time Is Not on Our Side (2023) [FLAC|Lossless|WEB-DL|tracks] <Grindcore, Crust, Powerviolence>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destroy Capital Greed 666 (feat. T.L- Mares of Thrace) [00:04:38]
-02. Gas Bill Blues [00:03:00]
-03. World Beyond Redemption (feat. Al- Void Me) [00:04:19]
-04. Beyond Decay [00:03:16](   Читать дальше...   )Жанр: Grindcore, Crust, PowerviolenceПродолжительность: 00:41:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:560FC7ABEEBC8BCBE32078BC573BACF78141B6F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602337   (210819) от 05.01.2023
-
-Iggy Pop - Every Loser (2023) Scene [FLAC|Lossless|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Frenzy (3:01)
- 02 Strung Out Johnny (4:14)
- 03 New Atlantis (4:08)
- 04 Modern Day Rip Off (3:29)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99FB1CA86F976A16B45BDCD99C7B1D12E1CF3D32
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1127679   (730701) от 22.04.2017
+
+VA - Blues Collection 8 (2017) [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_730701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Geoff Everett Band - Lost At Sea (Feat. Mollie Marr...)  (06:29) 
+02. Brad Curtis & The SOME x 6 Band - Be Still 2017  (04:49) 
+03. Mark Selby - Back Door To My Heart  (04:01) 
+04. Dizzroxx - Nuclear Shit  (03:33) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 04:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B59C57A0052F3E16BFBA957F72F3B91A29379901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022107   (729766) от 01.06.2016
 
 VA - Dinner Party Jazz: A Delicious Collection of Instrumental Jazz for Entertaining (2016) [MP3|320 кб/с] <Jazz>
@@ -713,35 +742,6 @@ Roy Buchanan - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:153AEA7DC18F3F4A434E1AA4297B702A6B7B0285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027443   (696415) от 19.06.2016
-
-VA - Melancholy Rock Blues (2016) [MP3|320 кб/с] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Big Boy Bloater - It Came Out Of The Swamp
-02. Vargas Blues Band - Road To Freedom
-03. Hughes Taylor - Streams
-04. Scott Ellison - Pain Full Love(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 03:49:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09ED05A551D38ED7E5DAA62B12ED989BE2F43840
 ```
 
 https://mybot314.ru/tekegram_catalog/

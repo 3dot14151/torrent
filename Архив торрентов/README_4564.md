@@ -1,3 +1,258 @@
+###  Публикация: 466643   (96415) от 12.03.2012
+
+Газета | Ждём гостей №3 [март 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лучшие кулинарные рецепты к торжествам и праздникам. Газета поможет приготовиться к приему гостей и удивить их необычными и изысканными блюдами.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B05217B0709E862823FB0F25DCCC81EB75902DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466625   (96412) от 12.03.2012
+
+Exhumed - All Guts, No Glory (2011) [FLAC|Lossless]<Death Metal, Grindcore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Guts, No Glory (instrumental) 01:48
+02. As Hammer to Anvil 03:38
+03. Your Funeral, My Feast 03:27
+04. Through Cadaver Eyes 04:08
+05. Death Knell 03:48
+06. Distorted and Twisted to Form 02:40
+07. I Rot Within 03:44
+08. Dis-assembly Line 03:00
+09. Necrotized 03:39
+10. Funereality 03:01(   Читать дальше...   )2011Жанр: Death Metal, GrindcoreПродолжительность: 00:35:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466494   (96410) от 12.03.2012
+
+Восстановление Японии / Rebuilding Japan. Пилотный выпуск (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вы увидите, как инженеры и ученые неустанно работают для того, чтобы улучшить жизнь людей, пострадавших от землетрясения.Жанр: ДокументальныйПродюсер: Shiro Toma, Yuji TodaПеревод: Профессиональный (одноголосый)Продолжительность: ~ 00:22:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DDAD143511E483184D3A07EAAEDD5B4B129B148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465504   (96407) от 12.03.2012
+
+VA - House Vip (09.03.12)[MP3|320 кб/с]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96407.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Gerra G. - Humanize (Original Mix) (7:33)
+ 2. Armin Van Buuren feat Jan Vayne - Serenity (Dj Amor Remix)
+ 3. Amy B & W.arehouse - You And Me Tonight (Danny Merx Instrumental) (6:52)
+ 4. A Virtual Friend - Sorry (Neon Stereo Club Remix) (5:55)
+ 5. Kitsch 2.0 - Tonight Is the Night (Sunlight Remix) (5:42)
+ 6. Mylo - Drop The Pressure (Dada Life Guerilla Fart) (5:40)
+ 7. Harris & Ford – Ich Habe Lust (Club Mix) (5:35)
+ 8. BAZEDA, Custom Drops - Love To Party (Original Mix) (5:16)
+ 9. Hot Pink Delorean - Move It (Original Mix) (5:06)
+10. Gotye feat. Kimbra - Somebody I Used To Know (NE!TAN Bootleg) (4:57)2012Жанр: Electro HouseПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56AA976E0F3AF34C06CCA9897FE25801DBB6C632
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466621   (96403) от 12.03.2012
+
+Edge Of Sanity - Kur-Nu-Gi-A (2012) [MP3|~259 кб/с (V0)]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96403.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Decepted By The Cross 03:47
+2. Maze Of Existence 04:47
+3. Beyond The Unknown 03:48
+4. The Day Of Maturity 03:41
+5. Immortal Souls 03:50
+6. Serenade For The Dead 00:55
+Bonus Tracks:
+7. Decepted By The Cross (Live) 03:40
+8. Immortal Souls (Live) 04:12
+9. Maze Of Existence (Roughmix) 04:082012Жанр: Death MetalПродолжительность: 00:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519EAA3BCA2185D83952882E939DC8C9D9604A0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466312   (96401) от 12.03.2012
+
+Аферисты. Выпуск 22-25 (2012) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Граждане! Будьте осторожны - в городе орудует банда опасных преступников. Сначала они обманут Вас и заберут последнее, а потом еще и покажут по телевизору, как это было!
+Вы и моргнуть глазом не успеете, как эта четверка доберется до Вашего кошелька, присвоит себе только что купленный Вами телефон, а кроме этого сможет посидеть в ресторане на круглую сумму за Ваш счет!
+Приветливая и обаятельная Елена-Кристина Лебедь, двое харизматичных мужчин - Дмитрий Суммар и Денис Розгон, а также главарь банды Анастасия Касилова уже готовы втянуть Вас в аферу только для того, чтобы потом Вас больше никогда не смогли обмануть! Вы узнаете психологические приемы настоящих аферистов и увидите на практике, как действуют самые невероятные мошеннические схемы. Вам станет известно, как можно получить новенькую видеокамеру за... чашку кофе. Или как можно украсть из ювелирного бутика платиновое колье просто на глазах у продавцов.Жанр: ТелепередачаПродолжительность: 00:43:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6682943ED1033F9E06513C54D89E64C0372628C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466607   (96397) от 12.03.2012
+
+VA - House Vip (11.03.2012) [MP3|320 кб/с]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96397.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 9Five - Dental (Original Mix) (7:02)
+ 2. Chris Brown - Turn Up The Music (Alessio Silvestro Remix) (5:58)
+ 3. Distorted Frequency, Teslatronik - Rocket Knight Adventures (NewtonE Remix) (4:35)
+ 4. G-Lontra - The Time Is Now feat. Rachel Kramer (Alex Guerrero Remix) (6:43)
+ 5. Irrenhouse - Party On & On (Original Mix) (4:51)
+ 6. Jeany Kiss & Sunray feat. Gemma B - My Heart Beats Like A Drum (Nick Austin Remix) (6:37)
+ 7. Savage - Dont Cry Tonight 2012 ( Alexandra D Extended Mix) (5:02)
+ 8. Tejl - Boing (HAS Remix) (6:45)
+ 9. Under Construction - Yourself Tonight (Scarytoys Remix) (6:00)
+ 10. Uppermost - Life Is A Fight (Original Mix) (6:30)11.03.2012Жанр: Electro HouseПродолжительность: 01:00:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FEC392BB3A64052ACE64393F9C32D4E6CCBD9A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466672   (96395) от 12.03.2012
+
+VA - Попсовый всесезонный хит (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96395.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Света - Пятый Элемент (Andrey S.P.L.A.S.H. Radio Remix)
+ 002. Алина Кабаева - Верьте В Себя
+ 003. Vilana - Море
+ 004. MMDance - Мой Босс
+ 005. Neoclubber - Только Я и ты
+ 006. Таша - Ищи Меня В Своих Снах
+ 007. Виктория Дайнеко & Корни - Многоточие
+ 008. Ирина Нельсон - Тёплое Солнце (Dark City Remix)
+ 009. Марина Журавлева - Небо плакало
+ 010. Сhris Parker Feat. Катя Старикова - Не Уходи (Radio Edit)(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E7FF6CFAAB51A37FD0A0D338BF14D2D17B621B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 466081   (96376) от 11.03.2012
 
 Аравия / IMAX - Arabia (2011) [720p] BDRip
@@ -535,250 +790,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 464566   (96272) от 10.03.2012
-
-Музыка Первого (Январь 2012) DVD5 IPTV Rip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Гости из будущего - Я не для тебя
- 02. Би-2 - Дурочка
- 03. А. Цой - Молитва
- 04. Неангелы - Киев-Москва
- 05. Ёлка - Прованс
- 06. Т. Котова - Он
- 07. Quest Pistols - Ты так красива
- 08. Elvira T - Всё решено
- 09. А. Хворостян - Падали, но поднимались
- 10. Иракли - Капли абсента(   Читать дальше...   )Жанр: Russian Popular MusicПеревод: ОтсутствуетПродолжительность: 01:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E23EB2EAE7AC8664C8348F2A3EACC7D350BB582D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465600   (96264) от 10.03.2012
-
-[Картинки] Фото знаменитости/Эвелина Блёданс
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эвели́на Висвальдовна Блёданс (5 апреля, 1969, Ялта, СССР) — советская и российская актриса театра и кино, певица, телеведущая.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5559948116A14BFC9D12DDF76EA845EE9D1A8CF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465681   (96260) от 10.03.2012
-
-Антология | 999. Число зверя [2000] [TXT, PDF, RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96260.jpg" />
-</div>
-
-
-###  Подробнее
-
-На дворе 1999 год. Тот год, который должен был стать годом Апокалипсиса — однако не стал. Или может все-таки стал, но мы пока не увидели этого — и не увидим, пока не станет слишком поздно? 1999 год с такой стороны, с какой его увидели величайшие мастера "литературы ужасов" современности. Писатели, которые хорошо знают: Апокалипсис начинается не с вселенского гласа, поднимающего мертвых, а со страха, который живет в душе каждого из нас. 999 жестоким взглядом феерического Эда Гормана. И даже Любовь превращается в Смерть... 999 по расчету Стивена Спрюлла. И льется кровь еще живых в вены еще Неумерших... 999 через призму Майка Маршалла Смита. Человек задыхается в пучине убийств и безумия... 999 год в представлении Кима Ньюмана, Джина Вулфа и Томаса Лиготти. И еще некоторых из тех, кто неподражаем в умении повергать читателя в иррациональный Ужас...Формат: TXT, PDF, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:098E9027382CC0A86D055CCFD9A559044DC7710E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465615   (96251) от 10.03.2012
-
-Nedry - In A Dim Light (2012) [MP3|320 Kbps]<Dubstep, Electronic, IDM, Trip-Hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - I Would Rather Explode (5:04)
-02 - Post Six (5:10)
-03 - Violaceae (4:53)
-04 - Havana Nights (5:42)
-05 - Dusk Till Dawn (3:10)
-06 - Float (6:52)
-07 - Land Leviathan(1:53)
-08 - TMA (3:08)
-09 - here.now.here (5:25)
-10 - Home (6:19)Жанр: Dubstep, Electronic, IDM, Trip-HopПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8045D41A56C2B05204AADC1E2289C9A978E8B68E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465766   (96250) от 10.03.2012
-
-Колин Харрисон | Форсаж [2007] [FB2, RTF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96250.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чарли Равич – преуспевающий бизнесмен. Бывший боевой летчик, прошедший через ад вьетнамской войны, он чувствует себя как рыба в воде в жестоком мире современной коммерции. Но в личной жизни ему не везет: жена страдает болезнью Альцгеймера, сын умер от лейкемии, а дочь Джулия не способна родить. Чарли одержим мыслью о ребенке – продолжателе его рода и наследнике его миллионов. Однажды в баре он знакомится с симпатичной молодой женщиной, умело скрывающей свое темное прошлое, и оказывается в плену чужого кошмара.2007Формат: FB2, RTF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41D6A20D2CEB72D8059747545B67C9583EB6B31E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465695   (96246) от 10.03.2012
-
-Биатлон. Чемпионат мира 2012. Рупольдинг (Германия). Мужчины. Эстафета 4x7,5 км (2012) IPTVRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужская эстафета на ЧМ по биатлону в Рупольдинге (Германия)Жанр: Спорт / БиатлонПеревод: Одноголосый закадровый, профессиональный (Дмитрий Губерниев)Продолжительность: 01:30:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018818FA203CD5B4123309D87BCC164A1F942BCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465806   (96236) от 10.03.2012
-
-VA - Ideal Chill II-IV (WEB) (2010-2012) [MP3|~225 кб/с (V1), 320 кб/с (CBR)]<Chillout, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eigenart – Gozada Para El Oido (6:03)
-02. Climatic – Circulation 	(6:41)
-03. Softwaver – How Soon Can You Be Here? 	(4:30)
-04. Euphonic Traveller – Pacific Grove 	(6:51)
-05. Gary B – Life Is Beautiful 	(6:07)
-06. Gold Lounge – In The Deep 	(5:54)
-07. Xelomen – Breathe 	(5:37)
-08. Houie D – Mission Galactica 	(4:54)
-09. Spinne – In My Place 	(6:33)
-10. Guardner – Majo 	(8:29)(   Читать дальше...   )2010-2012Жанр: Chillout, DowntempoПродолжительность: 01:58:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A153E41F41FFF819F2C91B394FD093A2C57CBA37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465571   (96232) от 10.03.2012
-
-VA - Dash Berlin Top 20 - March (2012) [MP3|320 кб/с]<Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Schweizer - Ultra (Original Mix)
-02. Timur Adagio - Broken (Rave CHannel Remix)
-03. Lence & Pluton - Virtual Mirror (Original Mix)
-04. Deep Haze - Ariana (Matt Skyer Remix)
-05. David Broaders - The Best Is Yet To Come (Solid Stone Remix)
-06. Eco - We Watched The Sunrise Till Our Eyes Burned Out (Original Mix)
-07. Moonbeam feat. Leusin - Daydream (Original Mix)
-08. Matt Eray - Beside You (Original Mix)
-09. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix)
-10. Harry Lemon - Rise - Classic Bonus Track (Original Mix)(   Читать дальше...   )2012Жанр: Uplifting TranceПродолжительность: 02:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909ADFEDBAF623BBACEE785C7C3A2D6E780DF685
 ```
 
 https://mybot314.ru/tekegram_catalog/

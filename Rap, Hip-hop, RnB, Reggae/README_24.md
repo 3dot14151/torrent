@@ -1,90 +1,3 @@
-###  Публикация: 1078236   (302167) от 30.11.2016
-
-Рем Дигга - 42/37 (2016) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Добро пожаловать в тёмные воды
-02. Простой
-03. Give it up feat. Onyx
-04. Шахта feat. Mania(   Читать дальше...   )Жанр: RapПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DF6B525227888749A2F6F02EAB2CBE39724583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333738   (301355) от 26.10.2019
-
-ST - ПОЭТ ДУЭТ (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301355.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Каренина (feat. 25/17, Нигатив & Качмар)
-2. Счастье любит тишину (feat. Михаил Шуфутинский)
-3. Моя вина (feat. Artik & Asti)
-4. Восьмой ряд (feat. PIZZA & Ах Астахова)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:32:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:702BAD3761D1E8252B6977203DC00436466085D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184167   (301074) от 17.11.2017
-
-ATL - Дисторшн [EP] (2017) [MP3|320 Kbps] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ангелы
-02. Не беда
-03. Сплин
-04. Хелта Скелта(   Читать дальше...   )Жанр: RapПродолжительность: 00:15:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3896BA3A333B35F74234151E8E2C32225FD643
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961218   (301031) от 01.12.2015
 
 Nana - Father (1998) [FLAC|tracks+.cue]<RnB, Swing, Pop Rap>
@@ -745,6 +658,93 @@ Guf (Гуф) - Ещё (2015) [FLAC|Lossless|tracks + .cue] <Rap, Hip-Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0C6AC6E9D0F6309A256C4441E1F87CB393FA662
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187030   (281896) от 27.11.2017
+
+Грот - Ледокол «Вега» (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281896.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Город в море трав
+2. На панельных островах
+3. Ледокол «Вега»
+4. Стирательный обряд(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:49:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B47ED6DD52B87D5669646E074C4E4A17BD2B844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336593   (278961) от 07.11.2019
+
+KillaGram - Возвращение легенды (2019) [MP3|192 Kbps] <Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Меня радует (3:28)
+ 02. Хащ, Хащ (4:04)
+ 03. Не за хрен (3:06)
+ 04. Восемь выстрелов (3:48)(   Читать дальше...   )Жанр: RapПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:247AB3D85F6E68AD10FC2555AB62B23B256F2284
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265153   (276418) от 26.11.2018
+
+Вася В. (Кирпичи) - Триумф (2018) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Йоу, православные (feat. DJ-108)
+02. Один за всех (feat. Стас Сытник)
+03. Миру мир (feat. Дмитрий «Фео» Порубов, Маша Макарова и Децл aka Le Truk)
+04. Созерцатель (feat. Nos MC и MC DannyBoy)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:50:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7066B4F8CEAA42E76B24E2720BE0006D67F4614
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 924631   (557608) от 04.08.2015
+
+VA - Hits For Chill (2015) [MP3|320 кб/с]<Deep House, Chill House, Chill Out>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hoboken - Lampedusa Lounge (02:47)
+02. Deep Walls - Deep House Mykonos (03:49)
+03. Il Greco - Nippon Horn (02:47)
+04. Hoboken - Magaluf Lounge (03:09)(   Читать дальше...   )Жанр: Deep House, Chill House, Chill OutПродолжительность: 01:29:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2412020ECFBC537CBACE82E0B58098521594D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1305304   (557150) от 30.05.2019
+
+VA - Global Control: May Trance Party (2019) [MP3|320 Kbps] <Trance, Progressive, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557150.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Komflux - Logarithm
+002. Komflux - Hard Seek
+003. Nitrous Oxide - Avalon
+004. Caboosh - Persona Non Grata(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 09:15:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2988DFA0CF13DD0F4DB05118036026EE635A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305302   (557108) от 30.05.2019
 
 VA - Diary Of The Setting Sun (2019) [MP3|320 Kbps] <Chillout, Lounge, Ambient>
@@ -687,64 +745,6 @@ VA - Record Super Chart 591 (2019) [MP3|320 Kbps] <Pop, House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F06299AC02D8B0EBC64891D3B9411A69D357EDFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1236898   (553318) от 22.07.2018
-
-VA - Empire Records - Funky House (2018) [MP3|320 Kbps] <House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Caruso - Life Is Better With Sunshine (Radio Version)
-02. Me and My Toothbrush - Hands Off
-03. Lee Cabrera - Shake It (Dj Rabinu & MD Dj Remix)
-04. Quantek - Feeling (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:01:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:789AF29C7F43828F3A2E81825E443C3A998578F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046361   (552948) от 26.08.2016
-
-VA - Future Trance Vol.77 (2016) [MP3|320 Kbps] <Trance, House, Future Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren Vs. Human Resource  -  Armin van Buuren Vs. Human Resource / Dominator  2:30
-02. DBSTF  -  Afreaka  3:00
-03. Headhunterz & KSHMR  -  Dharma  3:02
-04. Hardwell, Lil Jon & W&W  -  Live The Night  2:13(   Читать дальше...   )Жанр: Trance, House, Future Trance, ProgressiveПродолжительность: 03:58:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F80B1DC7F4EAFB836D64326A7BCF94CA836AEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

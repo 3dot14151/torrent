@@ -1,3 +1,61 @@
+###  Публикация: 1679412   (137917) от 25.11.2023
+
+The Puppini Sisters - Christmas At Home (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction
+02. Here Comes Santa Claus
+03. Mr Santa
+04. Last Christmas(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:33:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E0BB2D64DD2F0E53073F97E8C75F7817159162
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273243   (137908) от 31.12.2018
+
+Jack Jezzro - Christmas Jazz Guitar (2018) Green Hill Productions [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Christmas>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be Home for Christmas [4:10]
+02. Happy Holiday [4:52]
+03. The Holly and the Ivy [3:01]
+04. Up on the Housetop [2:36](   Читать дальше...   )Жанр: Smooth Jazz, ChristmasПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7ADD360BE40F75F5A9D6C1240D0406BBAB6A34F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1273120   (137704) от 31.12.2018
 
 Tommy Dorsey - Tenderly: The Best Of The Decca Years (1950 - 1953) 3CD, 2018, Sepia [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -741,64 +799,6 @@ Dan Berglund's - Tonbruket (2010) [FLAC|Lossless]<Jazz>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680354   (134209) от 29.11.2023
-
-Cal Tjader - Several Shades Of Jade & Breeze From The East (1963) 1997, Verve [FLAC|Lossless|tracks + .cue] <Latin Jazz, Cool, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134209.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Fakir [3:19]
-02. Cherry Blossoms [5:02]
-03. Borneo [4:14]
-04. Tokyo Blues [4:14](   Читать дальше...   )Жанр: Latin Jazz, Cool, World FusionПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F653F495FDAA75AB887055357DD2F88438C83609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680637   (133979) от 30.11.2023
-
-The Jack Wilson Trio - Live at the Pied Piper + 2 (1967) 2011, Interplay [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulin' (Introduction) [0:36]
-02. Impressions [5:16]
-03. Mercy, Mercy, Mercy [4:55]
-04. I'll Drown in My Own Tears [4:31](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 00:33:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:505C2676BD7513721A5091BBF021A5F6D6A18D87
 ```
 
 https://mybot314.ru/tekegram_catalog/

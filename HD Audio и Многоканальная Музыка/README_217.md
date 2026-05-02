@@ -1,3 +1,177 @@
+###  Публикация: 1648172   (63055) от 13.03.2024
+
+Black Label Society (Zakk Wylde; Zakk Sabbath) - Studio Albums (17 releases) (1994-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Southern Rock, Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_63055.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Label Society — сольный проект гитариста Закка Уайлда, известного по своей работе с Оззи Осборном.1999 - Sonic Brew
+2000 - Stronger Than Death
+2002 - 1919 Eternal
+2003 - The Blessed Hellride(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Southern Rock, Groove MetalПродолжительность: 17:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4AB29AD4F19B22344E0F74F15607E0927936591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706802   (62971) от 14.03.2024
+
+VA - Песни Давида Тухманова (1979) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62971.jpg" />
+</div>
+
+
+###  Подробнее
+
+I сторона
+1. Так не должно быть (Л. Дербенев)
+М. Боярский и О. Зарубина
+Вокальный ансамбль(   Читать дальше...   )Жанр: PopПродолжительность: 00:12:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FB6A01139B3F3A95C8EEA49DB337232782F839C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707639   (62639) от 17.03.2024
+
+Кино - Это не любовь (1985) Remake, 2024, Цой В.Р. (наследники) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Это не любовь (Remake 2024)
+02. Весна (Remake 2024)
+03. Уходи (Remake 2024)
+04. Город (Remake 2024)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1EC5E658F6EFE161F84174AF4430B40B2655D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707009   (62557) от 18.03.2024
+
+Deep Forest - Studio Albums & Projects (23 releases) (1994-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <new-age, ambient, world, ethnic electronica>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62557.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Forest - французский дуэт, состоящий из музыкантов Мишеля Санчеса (Michel Sanchez) и Эрика Муке (Eric Mouquet). Создают музыку в стиле world music, иногда называемом этно-электроника, микшируя этнические и электронные звуки, а также танцевальные биты или чил-аут биты. Их звучание было описано как «этно-интроспективная музыка в стиле эмбиент».1992 - 1994 - World Mix
+1995 - Boheme
+1997 - Comparsa
+2000 - PacifiqueЖанр: new-age, ambient, world, ethnic electronicaПродолжительность: 19:51:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C84CFE37FF6FE826B47CF17136733BA9C0525F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707684   (62534) от 18.03.2024
+
+Бездна Анального Угнетения (Б.А.У.) - Министерство Несчастья (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal, Alternative Metal, Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. айти [00:03:25]
+02. Зумер [00:03:32]
+03. Ты, походу, забыл [00:05:36]
+04. Дядюшка Сяо [00:03:33](   Читать дальше...   )Жанр: Thrash Metal, Alternative Metal, PunkПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F335D71E9B981589493AA331655347A31A8F869F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1707635   (62437) от 19.03.2024
+
+Electric Light Orchestra (ELO) - Time (1981) [FLAC 24/192|Lossless|tracks] <Synth-pop, Symphonic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62437.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Prologue 1:16
+A2 Twilight 3:42
+A3 Yours Truly, 2095 3:11
+A4 Ticket To The Moon 4:07(   Читать дальше...   )Жанр: Synth-pop, Symphonic RockПродолжительность: 00:43:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B95B1511F533879E0DBEC3D5D6A86035D3C1E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708364   (62343) от 20.03.2024
 
 Samson - Survivors (1979) Reissue, 1983, Thunderbolt [FLAC|24/192|image + .cue|Vinyl-Rip] <NWOBHM, Heavy Metal, Hard Rock>
@@ -571,180 +745,6 @@ De-Phazz - Pit Sounds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Nu Jazz, Tri
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EBF7D09FFEB2089D3336AB48D311F7C4C3D924F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619837   (61093) от 01.04.2024
-
-Sum-41 - Studio Albums (9 releases) (2000-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61093.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sum 41 — канадская рок-группа из города Эйджакс, Онтарио. Была образована в 1996 году2000 - Half Hour Of Power (EP)
-2001 - All Killer, No Filler
-2002 - Does This Look Infected
-2004 - ChuckЖанр: Punk RockПродолжительность: 07:41:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BAC64F7915A47CE9989B7080A05AD955659E633
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712205   (61012) от 02.04.2024
-
-Dire Straits - On Every Street (1991) SACD, Remastered, 2024, Mobile Fidelity Sound Lab  [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>SACD-R
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Взятый из оригинальных мастер-лент и помещенный в мини-упаковку для пластинок, гибридный SACD On Every Street от Mobile Fidelity представляет альбом таким, каким он всегда предназначался для восприятия: в аудиофильском звуке эталонного уровня. Записанный в AIR Studios в Лондоне и спродюсированный лидером Dire Straits Марком Нопфлером, он включает в себя все звуковые (   Читать дальше...   )01. Calling Elvis 6:26
-02. On Every Street 5:01
-03. When It Comes To You 5:00
-04. Fade To Black 3:47(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D631088071F9B4D3B555516DC6F3A65A7B3D1237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1556221   (60749) от 04.04.2024
-
-Bad Wolves - Studio Albums (4 releases) (2018-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal, Djent, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bad Wolves — американская супер-группа, играющая в стиле грув-метал. Группа образована в 2017 году и стала наиболее известна исполнением кавер-версии хита The Cranberries 1994 года «Zombie». По мнению самих участников, их стиль, это рок при пониженном строе гитар с элементами джента.2018 - Disobey
-2019 - N.A.T.I.O.N.
-2021 - Dear Monsters
-2023 - Die About It(   Читать дальше...   )Жанр: Groove Metal, Djent, MetalcoreПродолжительность: 04:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:498E04B8F6D9FED231EC3F098F4041C010A18544
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1709650   (60368) от 08.04.2024
-
-Guano Apes (& Sandra Nasic) - Studio Albums (9 releases) (1997-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Alternative Rock, Nu Metal, Funk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60368.jpg" />
-</div>
-
-
-###  Подробнее
-
-Guano Apes — альтернативный рок-квартет из Гёттингена, Германия, образованный в 1994 году.1997 - Proud Like A God
-2001 - Don't Give Me Names
-2003 - Walking On A Thin Line
-2004 - Planet Of The ApesЖанр: Alternative Rock, Nu Metal, Funk MetalПродолжительность: 08:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4460A371B31DC2FF4D462F7C943A889DEDF07AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519346   (60091) от 11.04.2024
-
-Five Finger Death Punch (5FDP; FFDP) - Studio Albums (11 releases) (2007-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60091.jpg" />
-</div>
-
-
-###  Подробнее
-
-Five Finger Death Punch  (с англ. — «Смертельный удар пятью пальцами», сокращённо 5FDP и FFDP) — американская грув-метал-группа, образованная в 2005 году в Лос-Анджелесе, Калифорния, Золтаном Батори, гитаристом венгерского происхождения, в прошлом — басиста U.P.O. Кроме Батори в состав группы входят бывший вокалист2007 - The Way Of The Fist
-2009 - War Is The Answer
-2011 - American Capitalist
-2013 - The Wrong Side of Heaven and The Righteous Side of Hell(   Читать дальше...   )Жанр: Groove metalПродолжительность: 10:31:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83FA8ECD7604578E00BFA8BA1886F0A447926B74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715361   (60016) от 11.04.2024
-
-Mark Knopfler - One Deep River (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_60016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Pairs Of Hands (4:05)
-02. Ahead Of The Game (3:56)
-03. Smart Money (4:27)
-04. Scavengers Yard (4:34)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E63A1708C568094E0BFBACE037333B5FA8FD41C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

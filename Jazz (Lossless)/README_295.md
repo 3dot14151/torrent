@@ -1,3 +1,61 @@
+###  Публикация: 1520605   (140965) от 29.12.2021
+
+J.R. Monterose - The Message (1959) 1997, Venus Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straight Ahead [5:32]
+02. Violets for Your Furs [2:48]
+03. Green Street Scene [6:20]
+04. Chafic [5:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F4C5563EEA206B56D08A8EA3E766FA9F0C5F6FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520534   (140895) от 29.12.2021
+
+George Shearing - Walkin' (1995) Telarc Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_140895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's Earl, Brother [8:07]
+02. My One and Only Love [5:41]
+03. Pensativa [5:31]
+04. Walkin' [7:01](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:06:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD1B356E8E2408D85EA225AF9FFA18E621B3BE27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1520599   (140881) от 29.12.2021
 
 The George Shearing Quintet - As Requested (1972) 2005, Koch [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
@@ -687,64 +745,6 @@ Aldo Romano' New Blood - Plays "The Connection" (2013) Dreyfus Jazz [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEE0F081B1FEAAFF1DB0D11C34DC0E5D4DFAEF79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520825   (139510) от 30.12.2021
-
-Johnny Letman Quartet & Quintet - The Four Faces Of Johnny (1959 - 1960) 2020, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mabel's Dream [4:32]
-02. Tina [4:22]
-03. This Time the Drinks' on Me [2:27]
-04. The Room Upstairs [3:39](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9171AD9A664BC8188B17376867FB017AF7982F77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970735   (139486) от 31.12.2015
-
-Joe Henderson - Lush Life: The Music Of Billy Strayhorn (1992) 2004, Verve Records[FLAC|tracks+.cue] <Post-Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Isfahan [05:59]
- 02.Johny Come Lately [06:30]
- 03.Blood Count [07:20]
- 04.Rain Check [05:50](   Читать дальше...   )Жанр: Post-Bop, Mainstream JazzПродолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:184CC5D57E6AD5C9D790600562C57DC714DDBFF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

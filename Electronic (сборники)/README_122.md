@@ -1,3 +1,61 @@
+###  Публикация: 1047914   (548501) от 31.08.2016
+
+VA - All Shades Of Sky - Uplifting Mix (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548501.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Joop  -  The Future (Mateusz Remix)  5:43
+002. Lence & Pluton  -  No More Fire (Original Mix)  5:38
+003. Airscape  -  Beautiful Tomorrow (Original Mix)  5:30
+004. Marcel Woods  -  Lemon Tree (Johann Stone Remix Edit)  3:37(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 12:50:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24C20FD0DC763A26932EBE0289F2BB8AE369D5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047732   (548499) от 31.08.2016
+
+VA - From Ibiza To Your Heart (2016) [MP3|320 Kbps] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mauro Picotto - Science (09:13)
+02. D. Diggler - Apricot (10:19)
+03. Margot - Er Suonone (05:53)
+04. Mauro Picotto - The Player (06:10)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 10:51:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12A21CC3C9A1ED01CCDDFD645A3E29BD2E98A21F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047817   (548497) от 31.08.2016
 
 VA - Uplifting See You Again (2016) (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
@@ -690,64 +748,6 @@ VA - Falling: Synthpop Compilation (2019) [MP3|320 Kbps] <Electropop, Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:172B1139C5D0815C93A7AC0E2DC8A2ADE1491F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048947   (544974) от 04.09.2016
-
-VA - Open Melody Highest (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic, Emotional>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dmitry Strochenko  -  Maybe (Original Mix)  6:14
-02. Craig Johnstone  -  Nano  7:19
-03. Guy Alexander  -  Poppy (Original Mix)  6:42
-04. Bjorn Akesson  -  Desert Style (Radio Edit)  3:52(   Читать дальше...   )Жанр: Trance, Melodic, Harmonic, EmotionalПродолжительность: 02:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B025CBAF3A4CDB23E71309E7AB930C4646B01E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049089   (544968) от 04.09.2016
-
-VA - Mainstream Sounds Trance Spirit (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic, Emotional>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcania  -  This Means War  6:24
-02. Super8 & Tab Ft. Julie Thompson  -  Patience (Extended Mix)  6:12
-03. R3dub And Carlos De La Garza  -  Outsider (Original Mix)  8:14
-04. UDM  -  Tornado (Original Mix)  6:37(   Читать дальше...   )Жанр: Trance, Melodic, Harmonic, EmotionalПродолжительность: 08:28:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DBD86B37F5D40BBD87ACBF828E6897AFB28E70
 ```
 
 https://mybot314.ru/tekegram_catalog/

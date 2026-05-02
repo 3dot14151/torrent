@@ -1,3 +1,125 @@
+###  Публикация: 727831   (319581) от 28.11.2013
+
+Scorpions - World Wide Live (1985) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Countdown [00:43]
+02. Coming home [02:47]
+03. Blackout [04:35]
+04. Bad boys running wild [03:53](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD11B611B14711A5E1033CC0B4C62CA57D11A446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582699   (318927) от 11.10.2022
+
+Magical Heart - Heartsonic (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Habits
+02. Heartsonic
+03. My Own Way
+04. Waiting For So Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98DAE8F4230A2025E6F1229B4479916092A23A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958307   (318867) от 23.11.2015
+
+Scorpions - Savage Amusement (1988) 50th Anniversary Deluxe Edition, Remastered, 2015 [FLAC|image+.cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318867.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Stop At The Top 4:04
+02. Rhythm Of Love 3:50
+03. Passion Rules The Game 4:00
+04. Media Overkill 3:34(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A41CF8A65DEEB93DD624D4AFD796FEBFE42BB49B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582458   (317510) от 30.11.2012
+
+Bon Jovi - This Left Feels Right (2003) Hybrid SACD [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wanted Dead Or Alive (3:44)
+02. Livin' On A Prayer (3:41)
+03. Bad Medicine (4:27)
+04. It's My Life (3:42)
+05. Lay Your Hands On Me (4:27)
+06. You Give Love A Bad Name (3:30)
+07. Bed Of Roses (5:38)
+08. Everyday (3:45)
+09. Born To Be My Baby (5:28)
+10. Keep The Faith (4:12)(   Читать дальше...   )Жанр: Rock/Hard RockПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959362   (316966) от 24.11.2015
 
 Uriah Heep - Totally Driven (2015) 2CD [FLAC|tracks|WEB-DL]<Hard Rock>
@@ -629,122 +751,6 @@ Tony Carey - For You: Best Of 1988 - 1990 (1993)  [FLAC|Lossless|image + .cue]<C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:858FC7DF9AA9630D034DA6687BDF126A7374522A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422561   (308695) от 09.11.2020
-
-S.O.T.O. - Origami (2019) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. HyperMania
-02. Origami
-03. BeLie
-04. World Gone Colder(   Читать дальше...   )Жанр: Hard Rock, Melodic MetalПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A18D9FEE837EF20CB13647925CB81EF063EEE77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 845559   (308359) от 29.11.2014
-
-AC/DC - Rock Or Bust (2014) [FLAC|Lossless]<Hard Rock, Aussie Rock, Heavy Metal, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Or Bust (3:03)
-02. Play Ball (2:47)
-03. Rock The Blues Away (3:25)
-04. Miss Adventure (2:56)(   Читать дальше...   )Жанр: Hard Rock, Aussie Rock, Heavy Metal, Arena RockПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16C21218A7E392838A7640264A0B7ECD51BB62A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960296   (307835) от 28.11.2015
-
-Asia - Classic Asia - The Universal Masters Collection (2001) [FLAC|tracks+.cue]<Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307835.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go (4:09)
-02. The Smile Has Left Your Eyes (3:14)
-03. Sole Survivor (4:49)
-04. Heat of the Moment (3:51)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:595A4D523325EBA0DB9F0F0F3EC5BF40E8CEEC47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960246   (307726) от 28.11.2015
-
-Guns N’ Roses - Appetite for Destruction (1987) [FLAC|tracks+.cue]<Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Jungle (4:33)
-02. It's So Easy (3:22)
-03. Nightrain (4:28)
-04. Out ta Get Me (4:23)(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68500CB5158916C8878DD9B8318A781AECC5DE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

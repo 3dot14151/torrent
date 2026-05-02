@@ -1,3 +1,119 @@
+###  Публикация: 1497855   (861363) от 24.09.2021
+
+All For The King - Let There Be Light (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Six-Winged Seraphim
+02. Let There Be Light
+03. I Am He
+04. The Way, Truth and Life(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:027F4B57FE950E072229E5282AAB9DD7E2C38A14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497850   (861180) от 24.09.2021
+
+Mad Invasion - Edge Of The World (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edge Of The World
+02. Scream'n Shout
+03. Crazy & Wild
+04. Devil's Calling(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFA39CA4443E9446ECFF6FF77065BAA4E8E1739B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109023   (860995) от 26.02.2017
+
+The Hollerin Sluggers - The Promised Land (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860995.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come On Over (4:03)
+02. String Of Pearls (6:18)
+03. Devil At The Liquor Store Blues (3:32)
+04. Reap What You Sow (4:46)(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 00:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:927EE493E73C61F73F89FDC74B0B3CDF49820B60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498078   (859778) от 25.09.2021
+
+John Dallas - Love & Glory (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859778.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anymore
+02. Bad Sister
+03. Drive Me Tonight
+04. Glory(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6DEF79A67E578F790F8E477507A32DC8B3D1E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1498075   (859772) от 25.09.2021
 
 Brothers In Arms - Sunset And Clark (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +745,6 @@ Little Villains - Taylor Made (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E94186263D84B0A8D152FA987D04046705150FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499859   (844629) от 04.10.2021
-
-Mainline - The Unholy Idol (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sanctum
-02. Out of the Shadows
-03. The Red Line
-04. A Distant Memory(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:48:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54BBD17B3F3846D0A82EC1D6DC85DF041D51D9AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003464   (843488) от 03.04.2016
-
-Dead Bang - Dancin' On The Edge (1994) Remastered, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843488.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dancin' On The Edge
-2. Take It All
-3. Shoot It Down
-4. Satisfaction(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E7A3488F1F2C58867B39E314153EE5343E4C58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003411   (843406) от 03.04.2016
-
-Rage Of Angels - The Devils New Tricks (2016) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R.O.A (7:30)
-02. All Your Own Way (6:01)
-03. The Devil's New Tricks (5:46)
-04. One Step Closer (5:36)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6026B4BAB9F759B807B12B15C13C38A61ECE418
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003613   (843210) от 03.04.2016
-
-Bonfire - Pearls (2016) 2CD [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_843210.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strike Back
-02. Under Blue Skies
-03. Diamonds in the rough
-04. Proud of My Country(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:42:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909D1514D329F62B2A8FFCB1140EB5BF3E0BCBF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

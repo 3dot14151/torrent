@@ -1,3 +1,61 @@
+###  Публикация: 1105966   (242172) от 19.02.2017
+
+Tom Scott - Them Changes (1990) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242172.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zoot Suit - 4:45
+02. Pick Up The Pieces - 4:52
+03. Chester & Bruce - 4:34
+04. Desire - 4:47(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C86858386142625F457DC068BBB8A38D594B663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106454   (242161) от 19.02.2017
+
+Superdog - SuPerDoG (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Fusion, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 21St Century Schizoid Man (5:43)
+02. Vrooom Vrooom (6:58)
+03. I Talk To The Wind (6:03)
+04. Dangerous Curves (5:21)(   Читать дальше...   )Жанр: Fusion, Contemporary JazzПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E3564F1501B3639980099F5C3CBE124912DA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1372122   (242102) от 03.04.2020
 
 Antonio Carlos Jobim And Friends - Live at the Free Jazz Festival in Sao Paulo (1996) [FLAC|Lossless|image + .cue] <Jazz>
@@ -687,64 +745,6 @@ Andrew Hill - Time Lines (2006) Blue Note [FLAC|Lossless|tracks + .cue] <Avant-G
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C14418F75CFF4DF58AFB79F3C91E24FFEC71B08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111294   (241698) от 05.03.2017
-
-The Eddie "Lockjaw" Davis - Cookbook, Vol.1 (1958) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Have Horn, Will Blow [05:18]
- 02.The Chef [06:01]
- 03.But Beautiful [07:46]
- 04.In the Kitchen [12:59](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:40:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020A31B99F3E4228BF6021D0FB71F8487BC0CE5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111461   (241685) от 05.03.2017
-
-Dave Lambert & Jon Hendricks - Sing & Swing Along / Evolution of the Blues Song (1960) 2014, El Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241685.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dave Lambert - All Alone [05:02]
- 02.Dave Lambert - The Best Thing For You [02:21]
- 03.Dave Lambert - Autumn Nocturne [02:16]
- 04.Dave Lambert - Blues [03:09](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B53B33066DE3A6DB271FADF0E016506A1035439D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1577798   (352447) от 20.09.2022
+
+Alexander Hawkins Mirror Canon - Break a Vase (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новый секстет британского пианиста Александра Хокинса не совсем новый: почти все участники ранее играли у него же в Alexander Hawkins Ensemble и других составах. Кроме самого Алекса за роялем и сэмплером, в группу вошли ударник Стивен Дэвис, контрабасист Ник Чарльз, гитарист Отто Фишер, звездный саксофонист Шабака Хатчингс и перкуссионист Ричард Олатунде Бейкер. (   Читать дальше...   )01. The Perfect Sound Would Like to Be Unique (Hawkins) - 1:37
+02. Stamped Down, or Shovelled (Hawkins) - 6:45
+03. Sun Rugged Billions (Hawkins) - 4:30
+04. Generous Souls (Hawkins) - 5:59(   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DDFD09AE5D477DE72CAA0BBA2C91C41984ECB33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1329455   (352380) от 05.10.2019
+
+Jerry Bergonzi - Intersecting Lines (2014) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intersecting Lines [6:48]
+02. Dream Step [6:34]
+03. Creature Feature [6:07]
+04. Tanzania [5:13](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:08:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0611EC306855F40503718BD43A09E5BDE5D11633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1072634   (352292) от 13.11.2016
 
 Papik - Music Inside (2012) [FLAC|Lossless|image + .cue] <Vocal Jazz, Nu Jazz>
@@ -687,64 +745,6 @@ Roy Ayers - West Coast Vibes (1963) /2011, EMI Music/[FLAC|tracks+.cue]<Straight
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5963BB2BB159975B8E4FBDE019B070B26E44F6D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179499   (349443) от 31.10.2017
-
-Claudio Roditi - Double Standards (1997) Reservoir [FLAC|Lossless|tracks + .cue] <Latin Jazz, Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reservoir Samba [07:03]
-02. A Felicidade [07:31]
-03. Bye Bye Blackbird [08:13]
-04. Desafinado [05:08](   Читать дальше...   )Жанр: Latin Jazz, Jazz FusionПродолжительность: 01:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58FE5B9C3C1927886CC2597D4FA2BF296B78B586
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418353   (349417) от 24.10.2020
-
-Eric Dolphy Septet with Donald Byrd - Paris '64 (2018) Hi Hat [FLAC|Lossless|tracks + .cue] <Hard Bop, Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349417.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Springtime [19:11]
-02. 245 [11:09]
-03. G.W. [6:00]
-04. Serene [7:42](   Читать дальше...   )Жанр: Hard Bop, Avant-Garde JazzПродолжительность: 01:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F579E53B19F19D28D8276E3ACAB33A611E683082
 ```
 
 https://mybot314.ru/tekegram_catalog/

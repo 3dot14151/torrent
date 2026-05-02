@@ -1,3 +1,61 @@
+###  Публикация: 1075435   (321168) от 22.11.2016
+
+Tsuyoshi Yamamoto Trio - Summertime (1976) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Like Someone In Love [08:39]
+ 02.If You Could See Me Now [06:34]
+ 03.Misty [07:51]
+ 04.Summertime [07:59](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0F960A4B36D8603F8411E0B86A8306E173D8EC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582655   (320980) от 10.10.2022
+
+John McLaughlin And Mahavishnu - Adventures In Radioland (1993) [FLAC|Lossless|tracks + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Wait - 5:35
+02. Just Ideas - 2:00
+03. Jozy - 5:25
+04. Half Man - Half Cookie - 2:56(   Читать дальше...   )Жанр: FusionПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CD473659AF5E303B6EADAA1A198A562B521767B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1421350   (319809) от 04.11.2020
 
 Flip Phillips & Scott Hamilton - A Sound Investment (1987) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -686,64 +744,6 @@ Onaje Allan Gumbs - Dare To Dream (1991) [FLAC|Lossless|image + .cue] <Smooth Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A86CE982B5DB95E23A345B9E6A776F25CBEEAEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582998   (316818) от 12.10.2022
-
-Erroll Garner - Symphony Hall Concert (1959) 2021, Mack Avenue [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Foggy Day (In London Town) [5:07]
-02. But Not for Me [3:45]
-03. I Can't Get Started with You [4:45]
-04. Dreamy [3:23](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 00:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B0E0F1807210E1427A4E2E80A94F6167373A0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583000   (316816) от 12.10.2022
-
-Erroll Garner - Feeling Is Believing (1970) 2020, Mack Avenue [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For Once in My Life [3:26]
-02. Yesterday [3:08]
-03. The Look of Love [2:43]
-04. You Turned Me Around [8:04](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 00:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A876F778EEE46080709109976B325642B0D00D
 ```
 
 https://mybot314.ru/tekegram_catalog/

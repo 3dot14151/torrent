@@ -1,3 +1,55 @@
+###  Публикация: 836559   (361331) от 01.11.2014
+
+VideoHive - One Day - 860185 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_361331.jpg" />
+</div>
+
+
+###  Подробнее
+
+3D-анимация. Прогулка мультяшного героя по городу. Две версии: пререндеренная и оригинальная, требующая плагин Trapcode Horizon. Превью - в раздаче.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CDFB067A088547305B66A7F8949EF049ECDAA61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328790   (360661) от 01.10.2019
+
+ProShow Producer - Cooking Channel [PSH]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шаблон презентация "Кулинарного Шоу"... Дерзайте!Формат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD4EFB67953295F5D39B409964A64DA8D88CC058
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951575   (360290) от 30.10.2015
 
 Проекты - VideoHive - Company Promotion [AEP]
@@ -627,58 +679,6 @@ VideoHive - True Love Art Gallery - 5310362 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77EC3368F6174E3B95569002C5A6DB8ED5103462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 677681   (342490) от 27.10.2018
-
-Проекты - Area 53 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342490.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эпический шаблон с помощью которого Вы сможете создать видеоролик в стиле фильмов ужасов. Проект также подойдет для создания трейлеров, промо или презентации.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9160A2734130F0F717AAC755DC8CAD0391131FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073827   (342371) от 17.11.2016
-
-Проекты - VideoHive - Gold Broadcast Package - 18529274 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342371.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gold Broadcast Package - анимационный пакет для вещательных программ.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B902D23E98B22278869A2D93178F0B9419310F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

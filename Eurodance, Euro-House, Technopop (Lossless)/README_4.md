@@ -1,3 +1,61 @@
+###  Публикация: 1590366   (187732) от 16.11.2022
+
+VA - Happy New Year 1995! (1994) Compilation, Unofficial [FLAC|Lossless|tracks + .cue] <Eurodance, Pop, Rock>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mo-Do - Eins, zwei, Polizei (03:16)
+02. Army of Lovers - Sexual Revolution (03:50)
+03. Marie Claire D'Ubaldo - The Rhythm Is Magic (04:03)
+04. DJ BoBo - Deep in the Jungle (03:53)(   Читать дальше...   )Жанр: Eurodance, Pop, RockПродолжительность: 01:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EE31919B1CC2335E9BB4DA600530D5C7DA0D6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1595259   (175929) от 04.12.2022
+
+V.A. - 90's Dance Rarities, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booby Trap - Devotion (I Wanna Give You)
+02. Booby Trap - I'm the Power
+03. Little Lucy - Froggy Afternoon
+04. MPO - Thinking of You(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E21D136B84E1846307B4E0F17B8283D316BF3A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668865   (173185) от 14.10.2023
 
 LKDR and Aria - Maria Magdalena (2023) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Euro-House>
@@ -664,61 +722,6 @@ Bounce Enforcerz vs. DJ Oskar - Mr. Vain (2020) [FLAC|Lossless|tracks] <Scouse H
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E773DCAC70761D22274BA86F0A311A0ECE1B56B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485002   (89489) от 19.04.2012
-
-Sandra - 18 Greatest Hits (1992) (Japan press) [FLAC|Lossless]<Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 01:11:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786657   (68993) от 21.03.2025
-
-M.C.Sar & the real McCoy - The Real Best! (2016) [FLAC|Lossless|WEB-DL|tracks] <Dance, EuroDance, Electronic>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - On the Move (Intro) [1:03]
-02 - It's on You [4:05]
-03 - Pump up the Jam (Original Rap Version) [4:23]
-04 - Be Yourself [4:11](   Читать дальше...   )Жанр: Dance, EuroDance, ElectronicПродолжительность: 01:14:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9B527E44239B9D2142EA4051B1E2CDA1344AB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

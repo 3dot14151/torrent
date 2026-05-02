@@ -1,3 +1,61 @@
+###  Публикация: 903215   (658967) от 30.05.2015
+
+Jessy J - My One And Only One (2015) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Una Mas
+02. My One And Only One
+03. Lovesong
+04. The Tango Boy(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F77599DE3DB48342D99D21CBA68D41F6A342DE84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903197   (658961) от 30.05.2015
+
+Billie Holiday - Music For Torching (2000) [FLAC|Lossless]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don`t Want To Cry Any More [03:59]
+02. Prelude To a Kiss [05:38]
+03. (I Don`t Stand a) Ghost of a Chance (with You) [04:31]
+04. When Your Lover Has Gone [05:01](   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:13:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8290B74DAEE927205DDFB1DEEC32ED2C17C5DAA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1225838   (658831) от 17.05.2018
 
 Takao Uematsu Quartet & Quintet - Debut (1970) 2013, Three Blind Mice [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Post-Bop>
@@ -692,70 +750,6 @@ Dave Brubeck - The Quartet (1958, 1974) 1985, Nippon Columbia [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A26092C935D0B2E125F61A6AFE48F02DB470B7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515696   (655927) от 26.06.2012
-
-Cleo Laine & Johnny Dankworth - The Collection (2002) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_655927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Look Of Love [02:58]
-02. O Mistress Mine [03:08]
-03. The Complete Works [01:25]
-04. Perdido [02:52]
-05. Fear No More [03:14]
-06. Riding High [03:12]
-07. The Lady Sings The Blues [03:31]
-08. If Music Be The Food Of Love [02:39]
-09. Tea For Two [03:43]
-10. My Love Is As A Fever [02:26](   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140615   (655880) от 06.06.2017
-
-Nina Simone - The Real... Nina Simone (2013) 3CD [FLAC|Lossless|tracks + .cue] <Jazz, Soul, Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. Ain't Got No / I Got Life
-02. In the Dark
-03. Do I Move You?(   Читать дальше...   )Жанр: Jazz, Soul, BluesПродолжительность: 03:35:19 (01:07:17 + 01:10:19 + 01:17:43)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91A9CBCEE439C2E5AD6159DBADE0CA11876B1B4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,55 @@
+###  Публикация: 602913   (996153) от 18.01.2013
+
+Computer Desktop Wallpapers Collection (2/2013) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996153.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельный сборник Computer Desktop Wallpapers Collection для рабочего стола от FedExe ®Разрешение файлов: 1600X1200 - 7500x4219
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:950812E1B322EC0C61F6B53E813E0B66C2F6455C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602967   (996151) от 18.01.2013
+
+Macro Wallpapers (13.01.13) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C261CA70EE8E8F41F236E0C198390D74ADF7077B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604751   (996149) от 18.01.2013
 
 Рисованная графика - Artworks by Ise Ratta Ananphada
@@ -647,67 +699,6 @@ openSUSE 12.3 Dartmouth Beta [i586, i686, x86-64] (2xDVD + 6xCD)
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605016   (996074) от 18.01.2013
-
-VA - Charme de Paris (2013) [MP3|320 кб/с]<Lounge, Chillout, French>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996074.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rainfairy - Au Clair De La Lune
-2. Newton feat. Twila.too - New Beautiful Life
-3. Euphonic Traveller - Montmartre
-4. Martinique Le Souffleur - St.Tropez
-5. Bantunani - Decomposition
-6. Giacomo Bondi - Mon Amour
-7. Bloomfield - Surfin Cote D'Azur
-8. Gabin - La Maison (Vocal Version)
-9. Glam Sam & His Combo - Charmy
-10. Newton feat. Twila.too - Parler Aux Etoiles(   Читать дальше...   )Жанр: Lounge, Chillout, FrenchПродолжительность: 01:22:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FF358A006DB5772F196053DED06DE0D78761583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601545   (996069) от 18.01.2013
-
-Виннету - вождь Апачей / Old Shatterhand (1964) [1080p] BDRemux
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996069.jpg" />
-</div>
-
-
-###  Подробнее
-
-Верная Рука и Виннету продолжают успешно противостоять проискам коварных злодеев, желающих всеми правдами и неправдами завладеть племенными землями апачей. Захватывающие скачки и погони, безупречная стрельба навскидку, драки - все это присутствует в изобилии и никого не оставит равнодушным.Жанр: Приключения, вестернРежиссер: Хуго ФрегонезеВ ролях: Гай Мэдисон, Гойко Митич, Лекс Баркер, Пьер Брис, Ральф Вольтер, Ален Тиссье, Ральф Уолтер, Густаво Рохо, Далия Лави, Рик Бэттеглия, Китти Маттерн, Кристиан Вольф, Ингеборг Веллманн, Душан Тадич, Андреа Скотти, Дитмар Шенхер, Ганс Нилсен, Рут-Мария Кубичек, Мартин Хирте, Арни Эльшольц, Александр Джурич, Райнер Брандт, Мирко Боман, Стево ПетровичПеревод: Многоголосый закадровыйПродолжительность: 01:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23FDD71029262F4BD1D22ACB00590924948A4BB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

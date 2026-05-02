@@ -1,3 +1,38 @@
+###  Публикация: 518688   (639118) от 05.07.2012
+
+VA - Xiu Shen Yang Xing Yin Yue Xi Lie (5CD) (2008) [MP3|320 кб/с]<Instrumental, Ethnic, New age>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639118.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:54) 01. The State of Mind
+(3:21) 02. Awakening to Truth
+(5:21) 03. Let It Be
+(5:24) 04. Flowers Elapse with the Water
+(6:52) 05. Plum Fragant Penetrate to the Bone
+(5:03) 06. The Elegant Sound of Xiao
+(8:21) 07. When Recite the Truth Come
+(5:14) 08. Depend on Myself
+(6:24) 09. Free from Care But Stck to Ideal
+(4:22) 10. Flowers from HappinesЖанр: Instrumental, Ethnic, New ageПродолжительность: 00:57:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:521932CBF23D28D6076D258488CD92C80A8080CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 347192   (637177) от 09.06.2011
 
 Shogo Hamada - selected discography[9 albums] (1982-2005) [FLAC|Lossless]<JRock,Rhythm and Blues>
@@ -727,35 +762,6 @@ Dexcore - Metempsychosis (2020) 2CD, Extra [FLAC|Lossless|WEB-DL|tracks] <Metalc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2A27A70E2610BBBE0F654772A889EA41CD86CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546336   (604288) от 25.04.2022
-
-Saber Tiger - Paragraph V (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy, Power, Progressive Metal>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Саблезубый тигр - японская Heavy Metal группа из Саппоро основана в 1981 году гитаристом Акихито Киношита.01. Revenged On You 06:25
-02. Believe In Yourself 04:52
-03. Motive Of The Lie 05:26
-04. Kutsujyoku 04:33(   Читать дальше...   )Жанр: Heavy, Power, Progressive MetalПродолжительность: 01:10:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97BCC97D99151BA07BC70232E8D352AC7DF5B4FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 968319   (157315) от 23.12.2015
+
+VA - Chillout Tracks (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157315.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vlad-Reh - Vecer Otdiha [03:05]
+02. Diev Art - Labyrinth [05:15]
+03. Johnny Beast - Trains [11:43]
+04. Vlad-Reh - Mgnovenia [03:20](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:16:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BFFB84E9D5636E3E2E9B578CED4D0A747CBF507
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 968281   (157302) от 23.12.2015
+
+VA - Harmony Trance Sound (2015) [MP3|320 кб/с] <Progressive Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157302.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Memory Splice - Esse Quam Videri (Renato Dinis Remix)
+002. Omnia Ft Tilde - For The First Time (Radio Edit)
+003. Simonini - Ink On Skin (Original Mix)
+004. Gaia - In Principio (Radio Edit)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 10:03:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46CDF6C87C83D5DE6EB6104B42F741315977E722
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1270512   (157233) от 19.12.2018
 
 VA - Red Oxitocin: Sound Neuroleptics (2018) [MP3|320 Kbps] <Deep House, Tech House>
@@ -699,64 +757,6 @@ VA - Empire Records - Chill Out 4 (2016) [MP3|320 Kbps] <Chillout, Lounge, Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A1F82BE4AE2905FFA180D81F64EC8BEFDC0BC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194822   (152655) от 26.12.2017
-
-VA - Лучшие клубные новинки Vol.7 (2017) [MP3|320 Kbps] <Uplifting Trance, Deep House, Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above & Beyond Feat. Richard Bedford - Northern Soul (Spencer Brown Remix) 9:03
-02. Aevion & Sir Felix feat. Cider Sky - Weekend Love (Extended Mix) 5:02
-03. Alessandra Roncone - Down the Rabbit Hole (Original Mix) 5:31
-04. Alesso & Anitta - Is That For Me (3LAU Remix) 2:58(   Читать дальше...   )Жанр: Uplifting Trance, Deep House, Drum & BassПродолжительность: 14:39:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0E811BA9632620EEB63983488407BC60CB939B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271177   (152600) от 22.12.2018
-
-VA - Chingona: Psychedelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152600.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Aora Paradox - Pulsar Alpha
-002. Hanumann - Newen Weichafe
-003. Twodelic - Way Out (Original Mix)
-004. Wicked - Haze (Original Mix)(   Читать дальше...   )Жанр: Psy Trance, Goa TranceПродолжительность: 12:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAE96A10DB8BCD4A3420C0B608398C526FF892BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

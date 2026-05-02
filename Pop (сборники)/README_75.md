@@ -1,3 +1,119 @@
+###  Публикация: 1557418   (535642) от 18.06.2022
+
+VA - Ballermann Discofox (Die besten Discofox Hits) (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steffen Juergens - Du bist Liebe (Mixmaster JJ Remix)
+02. Zweiklang - Schattenseiten (Treanen sollten wir bewahren)
+03. Flamingoboys - Egoist (Mf-Remix)
+04. Michael Fischer - Wo bist du (Mf-Fox Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:12:56 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44488F26836C34B08B5EC1C8B73754DAFC340915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050874   (535021) от 10.09.2016
+
+VA - Обнимай меня. Топ новинок попмузыки (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535021.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Самира - Обнимай Меня
+002. Dante - Не Пробуй
+003. Андрей Леницкий - Всем Доволен
+004. Эмма М - 3d(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D95FB7EB869920941E896433915ADD93855D0305
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050878   (535014) от 10.09.2016
+
+VA - Музыкальный Адреналин. Top Hits 2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535014.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Gulddreng - Model
+002. U3u - Нравится
+003. Teyana Taylor Feat. Chris Brown - Do Not Disturb
+004. Ромади - Я Не Играю В Любовь(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F8AD3AACAC878669ADF7D951111612A88C6336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1050912   (534917) от 10.09.2016
+
+VA - Потоки ветра. Топ новинок поп музыки (2016) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534917.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Тамерлан и Алена - Потоки Ветра
+002. Homie - Птица Рай
+003. Тори - Давай Играть
+004. Аркадиас - Сон Где Мы Вдвоем(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C258CAAB652C55980862EB5BFC39068DD0D2C1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050923   (534911) от 10.09.2016
 
 VA - Попсовый Драйв Зарубежный (2016) [MP3|256 Kbps] <Pop>
@@ -629,122 +745,6 @@ VA - Summer Euro Fest (2019) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1FFCA5D74A6078B4A25F5385CDCDC3FFE51E5278
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559275   (523424) от 26.06.2022
-
-Garou - Compilation (2022) [MP3|320 Kbps] <Pop, Pop-Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_523424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Felure
-02. Pour L`amour D`une Femme
-03. Gitan
-04. Mise ? Jour(   Читать дальше...   )Жанр: Pop, Pop-RockПродолжительность: 03:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F984900B767BDA8BC78538785B3183DF859515E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928577   (522529) от 16.08.2015
-
-Mark Ashley - Сборник песен (2015) [MP3|320 кб/с]<Synth Pop, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522529.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lover Why (Radio Version) (04:00)
-002. To The Moon And Back (03:47)
-003. It's Christmas Time (New Version) (03:29)
-004. You Are My Paradise (03:14)(   Читать дальше...   )Жанр: Synth Pop, EurodanceПродолжительность: 06:46:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:465FA7842DAB080F3ABAE54F77D679D87C903659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 928437   (522520) от 16.08.2015
-
-VA - Популярный музыкайф новинок (2015) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мохито - Я Не Могу Без Тебя (Sasha Abzal Radio Edit)
-02. Chris Brown - Body Shots
-03. Embody Feat. Obenewa - Bad News
-04. Оксана Почепа - Я Не Знаю Как Птицы(   Читать дальше...   )Жанр: PopПродолжительность: 06:18:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A24E75E335C87BDF37DD19AD319F944796AB626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241061   (522088) от 15.08.2018
-
-VA - Summer Trip (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522088.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Portugal. The Man - Feel It Still
-002. Dadju - Reine
-003. Federico Scavo - Blow It
-004. ZAYN - Dusk Till Dawn(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 11:14:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:379ACCBE7F6130DF4AD086BA20FE24AC7E589E0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

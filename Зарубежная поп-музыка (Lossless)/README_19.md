@@ -1,3 +1,237 @@
+###  Публикация: 1374307   (874581) от 09.04.2020
+
+Jive Bunny And The Mastermixers - ...The Best!! (1994) [FLAC|Lossless|image + .cue] <Rock & Roll, Big Band>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The JB Shuffle (4:06)
+02. That's what I like (4:04)
+03. Glen Miller Medley (3:55)
+04. The Juke Box Story (5:37)(   Читать дальше...   )Жанр: Rock & Roll, Big BandПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7CB4783239DF42ACEBC3D8C2598D4CA8CF70405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997612   (873894) от 17.03.2016
+
+Two Of Us - Inside Out (1988) [APE|Lossless|image + .cue] <Synth-Pop, Sophist-Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873894.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Inner Voices
+02. I ll Be Around
+03. Building An Empire
+04. We Got A Break It Out(   Читать дальше...   )Жанр: Synth-Pop, Sophist-PopПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053B5304FA80BA517FBC327CD100DE8CCB365593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106164   (873640) от 19.02.2017
+
+Stella - Works for You (2017) [FLAC|Lossless|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_873640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Come Collect
+02 – Nest
+03 – Watch Me Dive
+04 – One Toy(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5050CE0AD6CDCB741B1AB509313B95DFDB8ED493
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997470   (873556) от 17.03.2016
+
+VA - Best Of The 90s (2016) 2CD [FLAC|Lossless|tracks + .cue] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873556.jpg" />
+</div>
+
+
+###  Подробнее
+
+Поскольку 90-е от нас убежали не так уж и далеко, наверное у каждого из нас свой best музыки этого времени. Поэтому предвижу ворчание, что вот этого нет, а этот не бэст... Но вот в UM посмотрели хитпарады тех недалеких лет и на их основе родился этот небольшой сборник. Ну чтож пусть каждый сравнит со своим "лучшим" того времени...01. Freddie Mercury - Living On My Own  (3:38)
+02. Ace Of Base - All That She Wants (Remastered Version)  (3:27)
+03. Michael Jackson - They Don’t Care About Us  (4:45)
+04. Crazy Town - Butterfly  (3:33)(   Читать дальше...   )Жанр: PopПродолжительность: 02:40:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C9D3E5221FFE41B232344C4E0A546CDDF2C2273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106341   (872877) от 19.02.2017
+
+Supermax - 25 Years Of Magic Dance Music 1977-2002 (2002) Limited Edition, 6CD BoxSet [FLAC|Lossless|image + .cue] <Pop, Reggae, Funk, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lovemachine (8:10)
+02. World Of Today (4:25)
+03. Don't Stop The Music-African Blood (8:14)
+04. It Ain't Easy (4:23)(   Читать дальше...   )Жанр: Pop, Reggae, Funk, Soul |Продолжительность: 00:54:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:812DA548EFBA97A3DB482CBA4116B9989B1654C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 765512   (872671) от 13.03.2014
+
+VA - Radio 538: Hitzone 68 (2014) 2CD [FLAC|Lossless]<Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Legend - All Of Me  (4:31)
+02. Stromae - Formidable  (3:36)
+03. Pitbull ft. Kesha - Timber  (3:26)
+04. Dvbbs & Borgeous - Tsunami  (3:08)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:26:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05675B27F50942A0F28FC20E221CFE3BCE476455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997650   (871872) от 18.03.2016
+
+Gwen Stefani - This Is What The Truth Feels Like (2016) International Deluxe Edition [FLAC|Lossless|tracks + .cue] <Pop, Electronic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Misery (3:26)
+02. You're My Favorite (2:56)
+03. Where Would I Be? (3:18)
+04. Make Me Like You (3:37)(   Читать дальше...   )Жанр: Pop, ElectronicПродолжительность: 00:59:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D51668A014ED8AE8937D50FE59CA561D41FD191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 997852   (871754) от 18.03.2016
+
+VA - Number 1's: The Ultimate Collection (2014) Box Set, 5CD [FLAC|Lossless|tracks + .cue] <Pop, Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот бокс сет представляет 100 хитов, которые  достигли столь желанной для каждого исполнителя вершины топа Великобритании.
+Каждый из 5 компакт-дисков набран из победителей одной из 5 декад - от 60-х годов вплоть до нулевых. Здесь собраны не просто лучшие, а самые признанные треки ошеломляющих рок, поп и соул гимнов.
+На офсете для него нашли даже такое сравнение как (   Читать дальше...   )CD1 - 60s:
+01. Marvin Gaye - I Heard It Through The Grapevine  (3:11)
+02. The Foundations - Baby, Now That I've Found You  (2:56)
+03. Diana Ross & The Supremes - Baby Love  (2:34)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 05:51:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8B0AC665CC8148300FBAD9486FA3E04D17A41CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106754   (871065) от 20.02.2017
 
 Falco - Falco 60 (2017) Limited Premium Edition [FLAC|Lossless|tracks + .cue] <Pop, Electronic, Pop Rock, New Wave>
@@ -516,239 +750,6 @@ Demis Roussos - The Universal Masters Collection (2000) [FLAC|Lossless|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C07C557AA3D18132CCD7B646DEA4CB93B3BF49A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000442   (859111) от 25.03.2016
-
-Birdy - Beautiful Lies (2016) Deluxe Edition [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859111.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Growing Pains (03:49)
- 02. Shadow (04:01)
- 03. Keeping Your Head Up (03:28)
- 04. Deep End (03:28)(   Читать дальше...   )Жанр: PopПродолжительность: 01:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5C3DBD15C2FEB47E6F3C1AEEC7ACB5C3ECAE786
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000236   (859076) от 25.03.2016
-
-Kenny G - Love Ballads (2008) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Moment [4:41]
-02. Songbird [3:58]
-03. Theme From Dying Young [4:01]
-04. Everytime I Close My Eyes (Kenny G with Babyface) [4:59](   Читать дальше...   )Жанр: PopПродолжительность: 01:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1F0C02B545B265F701B7FB96FCCB1B6DEE0E21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000596   (857502) от 26.03.2016
-
-Masha Qrella - Keys (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Pop, Indie Pop, Electronic>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ticket To My Heart
-02. Pale Days
-03. Keys
-04. Simple Song(   Читать дальше...   )Жанр: Alternative Pop, Indie Pop, ElectronicПродолжительность: 00:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9A47D5663A979ED2B85C8C9E3290BB71EC284CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000839   (857498) от 26.03.2016
-
-Ardis - Love Addict (1994) [APE|Lossless|image + .cue] <Electronic, Reggae, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prayer For Africa [03:41]
-02. Sweet As Candy [04:00]
-03. Ain't Nobody's Business [03:12]
-04. Fugitive [03:21](   Читать дальше...   )Жанр: Electronic, Reggae, PopПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA54DA67BB4CE9106F990009F976DF8FBEA5AA9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1000635   (857429) от 26.03.2016
-
-Cher - The Millennium Collection: The Best of Cher (2000) [FLAC|Lossless|image + .cue] <Pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gypsies, Tramps And Thieves [02:37]
-02. The Way Of Love [02:31]
-03. Take Me Home [06:47]
-04. Dark Lady [03:26](   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 00:35:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC8CE360DA6E0621302D14BFD5CD7B616778EED0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109789   (857233) от 28.02.2017
-
-Waaktaar & Zoe - World Of Trouble (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857233.jpg" />
-</div>
-
-
-###  Подробнее
-
-Долгожданный дебютный альбом нового проекта гитариста и основного композитора легендарной норвежской группы a-ha Пола Воктор-Савой (Pål Waaktaar-Savoy).01. Beautiful Burnout (3:55)
-02. Tearful Girl (4:01)
-03. World Of Trouble (3:57)
-04. Laundromat (3:59)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:40:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B68BB0CDF1134AC5642532516449B5ACAA46F864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109728   (857062) от 28.02.2017
-
-Bebe Rexha - All Your Fault: Pt. 1 (2017) [FLAC|Lossless|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_857062.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Atmosphere
-2. I Got You
-3. Small Doses
-4. Fuck Fake Friends (feat. G-Eazy)(   Читать дальше...   )Жанр: PopПродолжительность: 00:19:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46BDF486B7207B2F0DC7F361896ECF8C48DED33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 875712   (855959) от 07.03.2015
-
-Madonna - Rebel Heart [Super Deluxe Edition] (2015) 2CD [FLAC|Lossless]<Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855959.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 (01:14:25)
-CD2 (00:28:17)Треклист CD1:
-01. Living for Love
-02. Devil Pray
-03. Ghosttown(   Читать дальше...   )Жанр: Pop |Продолжительность: 01:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C5BCAAAC6588999643E9856A9B20A116D364B9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1725349   (108936) от 25.05.2024
+
+VA - Armin van Buuren - A State Of Trance 1174 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kyau & Albert - Paladir
+02. UUFO feat. 88birds - Carry Me Away (Progressive Mix)
+03. Masters & Nickson feat. Justine Suissa - Out There (UUFO Remix)
+04. Estiva - Starwave(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDBF64E4936DAC9E1D3661DD39F4E4CE59E91741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726980   (108645) от 31.05.2024
+
+Chris Avantgarde - Tomorrowland Friendship Mix (2024-05-30) [MP3|320 Kbps] <Melodic House/Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chris Avantgarde - ID
+02. Chris Avantgarde - ID
+03. Justice - Phantom Part II (Chris Avantgarde Remix)
+04. ID - ID(   Читать дальше...   )Жанр: Melodic House/TechnoПродолжительность: 01:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEDE3E08CDC1E0FBC671B94CE410F1792D7B79C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1726939   (108613) от 31.05.2024
 
 VA - Armin van Buuren - A State Of Trance 1175 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -680,64 +738,6 @@ VA - Live @ Ultra Europe, Croatia (2024) [MP3|320 Kbps] <Progressive House, Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC0B26278E30C58F13D1B7708159D2C3BEC86315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740435   (105850) от 02.08.2024
-
-VA - Armin van Buuren - A State Of Trance 1184 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105850.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren - Es Vedrà (Tune Of The Week)
-02. Farius & RUNN - I Surrender
-03. Gareth Emery & STANDERWICK ft. HALIENE - Saving Light (Gregor Larsen Remix)
-04. Avalan Rokston & ARTBAT - The Ocean(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E71AE2C392DF6E771BE3E3F041B9455B9146353
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1742067   (105573) от 11.08.2024
-
-Eric Prydz presents [CELL.], Hï Ibiza, Spain (2024-07-22) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pryda - Welcome To My House (EPIC 4.0 VIP)
-02. Pryda - Creamfields South 2023 Intro ID (Working Title)
-03. Pryda - Phantom Paris 2023 ID (Working Title)
-04. Cirez D - HOLO Hi Ibiza 2023 ID (Working Title) (Tease)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:14:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:285DDDF40DF4D55FA3A8A1D7053F5D42132B773F
 ```
 
 https://mybot314.ru/tekegram_catalog/

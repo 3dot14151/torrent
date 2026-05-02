@@ -1,3 +1,61 @@
+###  Публикация: 934726   (501261) от 06.09.2015
+
+VA - Music For Everyone - Atmospheric & Progressive Breaks Vol.4 (2015) [MP3|320 кб/с]<Atmospheric Breaks, Progressive Breaks>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_501261.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Stardesign – Fluffy Clouds (Broken Dub Edit)
+2. B.O.N.G. – Small Things (Aeron Aether Breaks Remix)
+3. Max Gueli - Interstellar Dreams (Original Mix)
+4. Arthur Deep - Phoenix (Original Mix)(   Читать дальше...   )Жанр: Atmospheric Breaks, Progressive BreaksПродолжительность: 01:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ADF1E786ADF2AA481BB1D27EFF6C9A747855E40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935136   (500628) от 07.09.2015
+
+VA - 100 Techno Minimal Tracks (2015) [MP3|320 кб/с]<Techno, Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500628.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alberto Feria Alvaro MNML - Penicilline [07:02]
+002. Deep Hazex - The Minimum of the King in the Mountain [07:34]
+003. DJ Navigare - Piter PeN [06:49]
+004. Manu Hell - TuttiFatti [06:20](   Читать дальше...   )Жанр: Techno, Minimal, Tech HouseПродолжительность: 10:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02DE7737052151282D686148FB85BE11DBF50F9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 540379   (500609) от 01.09.2012
 
 2expensive - Bittersweet Dreams (vol. 1) (2012) [MP3|320 кб/с]<Drum & Bass, Chillout>
@@ -711,64 +769,6 @@ VA - HarDD NRG OverDoZZe 8 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E7536B6E509301E94775C4F8ACF2046CA02E0AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936240   (496494) от 11.09.2015
-
-VA - Summer Chill [DigiCom] (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Artak - Soul - S.A.T Remix
-02. Seven24 - Frozen - Moonnight Remix
-03. Tijani - Breathe Out (Prod. Great Skies)
-04. Jack-o-Lantern - Lost in Paradise(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCDCAC30EDCBE169025DC8A203B1DC08F5DACD76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936390   (496489) от 11.09.2015
-
-VA - Unexpected Journey (2015) [MP3|128 кб/с]<Dance, Aсoustic, Folk, Indie, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Colin Hay - Down Under (Nicolas Haelg Remix)
-03. Alex Cruz - Haunting (feat. Anna Renee & Melle Kuil)
-04. Kodaline - High Hopes (Filous Remix)(   Читать дальше...   )Жанр: Dance, Aсoustic, Folk, Indie, Deep HouseПродолжительность: 01:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1788E04360848D5B3ACD1BD4EF01EA551A6728AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

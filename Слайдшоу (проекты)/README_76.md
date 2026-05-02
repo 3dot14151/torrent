@@ -1,3 +1,29 @@
+###  Публикация: 947288   (419903) от 16.10.2015
+
+Проекты - VideoHive - Liquid Parallax - Slideshow Opener - 12837509 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419903.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C554995C52064C22A65734CA6B9969A6E7F564C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 947287   (419896) от 16.10.2015
 
 Проекты - VideoHive - Glass Slides 3D [AEP]
@@ -655,32 +681,6 @@ VideoHive - Hanging Photos Montage - 234550 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C3419AE607229252431C0AA651B83DCA5C13FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325399   (414055) от 14.09.2019
-
-VideoHive - Photo Gallery - Beautiful Moments - 16115818 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414055.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект "Photo Gallery - Beautiful Moments" - это красивые и реалистичные сцены для ваших фото или видео файлов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B578D86CD317D8D19615E563CA6DD5F250DC80
 ```
 
 https://mybot314.ru/tekegram_catalog/

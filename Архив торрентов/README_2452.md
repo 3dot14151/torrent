@@ -1,3 +1,237 @@
+###  Публикация: 537878   (504918) от 28.08.2012
+
+Landscapes HD Wallpapers (21.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504918.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C266FE9FD3B34EAD30303EE0450DF4F785336179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540144   (504917) от 28.08.2012
+
+Design and interior of the wallpaper (27.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504917.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE15C11972D5CC940FC3E821B780EB7836CDF38D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540125   (504916) от 28.08.2012
+
+Журнал | Красота & здоровье № 9(150) [сентябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждая женщина хочет быть красивой. Внешняя привлекательность дает уверенность в себе и во многом определяет успехи как в личной жизни, так и в карьере. Безусловно, неотъемлемая составляющая красоты – это здоровье. Чтобы все успеть и реализовать задуманное, современная женщина должна быть полна жизненных сил и хорошо себя чувствовать.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1050ACF55AB9E8A1A9CA298AE3ED863B6FE15085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540206   (504915) от 28.08.2012
+
+Landscapes HD Wallpapers (28.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504915.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F566A56060E1AC61C988029B19EEDF37EC65D4DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540226   (504914) от 28.08.2012
+
+Artworks by Gabriel Deschamps [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Artworks by Gabriel Deschamps
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F6C7DEEFC2B8FD9DE6C76D586C04419E55A591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538118   (504912) от 28.08.2012
+
+Best HD Wallpapers Pack (23.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504912.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E1197DF78502A99F60BB7FF5034BBB115AEB92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539305   (504910) от 28.08.2012
+
+Computer Desktop Wallpapers Collection (24.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504910.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60BB0256536108A48E16BBE591E89A66BA3AE92D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 540141   (504909) от 28.08.2012
+
+Best HD Wallpapers Pack (27.08.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0121AE89FB736B391DD1765431001782592556D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 539400   (504907) от 28.08.2012
+
+Военные учения на Гороховецком полигоне в 2010 году [Графика]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504907.jpg" />
+</div>
+
+
+###  Подробнее
+
+Военные учения на Гороховецком полигоне в 2010 году
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AB611FCD7BF603007D4ECA00683158BB83AFB6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 538003   (504906) от 28.08.2012
 
 VA - Spiritual High (1999) [MP3|320 кб/с]<New Age, Enigmatic, Ambient>
@@ -459,268 +693,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADB5274881E6A53B07FB70C8BD7A098C7E5B94B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539402   (504872) от 28.08.2012
-
-СОБР «БУЛАТ» [Графика]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расположение СОБР «БУЛАТ» КМ ГУВД Московской области. Во время съёмок бойцам СОБРа было предложено при всякой возможности действовать (ходить, сидеть, бежать и целиться) как в боевой обстановке.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A21C78A0093B1AC6E53681217BB56D22F6E1619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539940   (504868) от 28.08.2012
-
-СтраХовидлО - Кровь (2012) [MP3|128 кб/с]<Pagan Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Русичи
-2. Смута
-3. Заветы
-
-Группа «Жанр: Pagan MetalПродолжительность: 00:14:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539309   (504866) от 28.08.2012
-
-3D Wallpapers (24.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504866.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C54C0B9BA7EF5FD54A9193510BE11BAD685A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540241   (504864) от 28.08.2012
-
-7 душ / Dood eind (2006) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504864.jpg" />
-</div>
-
-
-###  Подробнее
-
-Семеро бывших одноклассников едут в лес на пикник. На них нападают дикие собаки, и они прячутся в заброшенном доме. В доме живет призрак девушки, убитой 300 лет назад в этом доме семью местными ребятишками. Чтобы освободиться из вечного плена, призраку нужно забрать с собой 7 жертв. И тогда сбудется древнее пророчество. Выхода из дома нет, и для друзей начинается борьба за выживание.Жанр: Ужасы, Фантастика, ТриллерРежиссер: Эрвин Ван Ден ЭсхофАктеры: Эверон Джексон Хьюи, Анньек Файфер, Эльвиен Тюльнер, Мэдс Уиттерманс, Арам ван де Рест, Миха ХульшофПеревод: Многоголосый закадровыйПродолжительность: 01:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7067EDEE8A8CE0DDBEC90D5CB033C2CCEBF28D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538186   (504862) от 28.08.2012
-
-Blue Chip Orchestra - Red Sky Beat (1998) [MP3|320 кб/с]<Native American, New Age, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504862.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ate Heye Lo! (4:12)
-2. Skan - The Sky (3:33)
-3. Ashes Cold And White (7:09)
-4. Ite (4:26)
-5. Buffalo Trail (5:44)
-6. Hanwi - The Moon (6:34)
-7. Maka - The Earth (3:20)
-8. Okaga And Whope (3:57)
-9. Tate - The Wind (5:24)
-10. Inyan - The Rock (5:43)Жанр: Native American, New Age, AmbientПродолжительность: 00:50:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97A0E16C54CFE92609752910B288D18AAEF7C234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539409   (504860) от 28.08.2012
-
-Mauricio Herrera: цифровой художник-иллюстратор из Чили (ник el-grimlock) [Графика]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504860.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mauricio Herrera: цифровой художник-иллюстратор из Чили (ник el-grimlock)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F662577F4A8F753AB9C2C894CEC926127E9B851B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540038   (504859) от 28.08.2012
-
-VA - Auto-Hit Record (2012) [MP3|320 кб/с]<Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504859.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Craig Meichan - Interstellar (Philip Estevez Remix)
- 02. Ad Brown feat. Kerry Leva - Memorial (You Were Loved) (Maor Levi Club Mix)
- 03. Вирус - Ты меня не ищи (Astradroid remix)
- 04. Spencer & Hill feat. Mimoza - Let Out Da Freak (Album Edit)
- 05. Xten feat. Angelika - Love Is The Answer (Original Mix)
- 06. Andrea Paci - Kalinka (Andrea Donati & Fabio Romano Remix)
- 07. Tribune - Everything About You (Radio Edit)
- 08. Ros & Rox feat. Der Duck MC - In The Street (Radio Edit)
- 09. Thomas Schwartz & Fausto Fanizza - Sorrento (Original Mix)
- 10. Sandro Peres - Pontokohm (Radio Edit)(   Читать дальше...   )Жанр: ClubПродолжительность: 09:16:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77ED86B32B307BB2E3B282D715326276FD5333D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540453   (504858) от 28.08.2012
-
-Сынок / Sonny Boy (2011) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504858.jpg" />
-</div>
-
-
-###  Подробнее
-
-История невероятной любви чернокожего уроженца Суринама и белой голландки, которая произошла в канун Второй мировой войны в Европе, и которая показана через призму детских судеб.Жанр: ДрамаРежиссер: Мария ПитерсАктеры: Рикки Кооле, Дэниэл Ван Вийк, Марсель Хенсема, Оле Крёз, Мартин Лэйкмейер, Лени БредервельдПеревод: Любительский (одноголосый)Продолжительность: 02:14:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E016332C2FC63D3960425879B7DF4A3E5A0FA465
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538377   (504854) от 28.08.2012
-
-Red Buddha - Tibet Trance (1999) [MP3|320 кб/с]<Tribal, Downtempo,Ambient, Breaks,Etnic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red Buddha [00:12:34]
-02. Trip To Lhasa HO [00:07:13]
-03. Gong Chi [00:16:43]
-04. The Mountains Of The Gods [00:07:38]
-05. Walk To The Inside [00:09:45]
-06. Himalaya Trance [00:10:00]
-07. Freedom For Tibet [00:06:19]Жанр: Tribal, Downtempo,Ambient, Breaks,EtnicПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C704564B89381BA85DAD6FC1E82F6ADA00EFBD0D
 ```
 
 https://mybot314.ru/tekegram_catalog/

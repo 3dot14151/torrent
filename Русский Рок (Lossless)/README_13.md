@@ -1,3 +1,32 @@
+###  Публикация: 999928   (862548) от 23.03.2016
+
+Евгений Маргулис - Пой как Маргулис. Лучшее (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мой друг лучше всех играет блюз
+02. Шанхай-блюз
+03. Дороги наши разошлись
+04. Старые песни(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714BB71BF26512E8557FE4DDA668506D4CD20314
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376048   (862172) от 16.04.2020
 
 Ауткаст - 3 Singles (2019-2020) [FLAC|Lossless|tracks] <Alternative, Nu-Metal>
@@ -714,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73781D6E2BC16DA71E98B01AD627B73B905BA10A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1499533   (847596) от 02.10.2021
-
-Сурганова и Оркестр - Завтра (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847596.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Шила осень
-2. Трюкачи (feat. Настя Полева)
-3. Кольчуга
-4. Кровоток(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F323B9860291FFC0705C86B77A51D39A2FDEE08B
 ```
 
 https://mybot314.ru/tekegram_catalog/

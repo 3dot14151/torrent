@@ -1,3 +1,254 @@
+###  Публикация: 488561   (100517) от 26.04.2012
+
+[Wallpapers] Nature Desktop Wallpapers Pack 5
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100517.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Desktop Wallpapers Pack 5
+Название: Nature Desktop Wallpapers Pack 5
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:320B1990F70671CA5DCF579EEA343684F3059A1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488531   (100513) от 26.04.2012
+
+VA - Club Charts (2012) [MP3|256 кб/с]<Dance, Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100513.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Owen Breeze Manuel 2santos Feat. Mercy Grey - Le Grand (Radio Edit)
+02. Dj Alex Ghost Feat. Dj Tagro - Skyrim (Radio Edit)
+03. Alexey Romeo Feat. Gerald G - This Is Your Life (Radio Edit)
+04. Romano Sapienza Feat. Rodriguez - Tacata
+05. Akcent - I'm Sorry (Reworked Radio Edit 2012)
+06. Inventive Sound Feat. Danny D - Crazy About U (Radio Edit)
+07. Laurentiu Duta Feat. Andreea Banica - Shining Heart (Radio Edit)
+08. Loverush Uk! Feat. Bryan Adams - Tonight In Babylon (Radio Edit)
+09. Robkay Feat. David Posor - Dein Lied (Dein Radio Edit)
+10. Dj Hara Feat. Chriss - Bring It To Me (Radio Edit)(   Читать дальше...   )2012Жанр: Dance, ClubПродолжительность: 06:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78186D29F1CC9F4DE0D866552335E2D1665AD8C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488110   (100511) от 26.04.2012
+
+[Wallpapers] Wallpapers Mix 29 (1600x1200-4272x2476)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100511.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Wallpapers Mix 29 (1600x1200-4272x2476)
+Название: Wallpapers Mix 29 (1600x1200-4272x2476)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600x1200-4272x2476
+Расширение (тип) файлов: JPGСкриншоты:Время раздачи: До нескольких сидов
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF2E7BBAB5F14B9E5B9176BF72FBB9053958AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488289   (100510) от 26.04.2012
+
+[Wallpapers] Wallpaper Sexy Girls 0.12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100510.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола.Разрешение файлов: 1600х1200,1920х1080,1920х1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAF6957DB845CA2B8030214E9C5185EF31502F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488291   (100507) от 26.04.2012
+
+[Wallpapers] Texture pack 2
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100507.jpg" />
+</div>
+
+
+###  Подробнее
+
+Текстурные обои(фоны) для рабочего стола.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CE714BE502B03CB33A73FA30E3B0CB8C5AF529
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488304   (100505) от 26.04.2012
+
+Журнал | Копилка семейных советов №8 [апрель 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100505.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Копилка семейных советов» - полезные советы для дачников и огородников по дизайну и уходу за растениями, кулинарные рецепты, оздоровительные и юридические советы, советы по воспитанию детей, благоустройству дома, рукоделие, секреты жизни звезд и многое другое.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E578BA47F972E874CFE40CF72B85FDDA8DB84345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488479   (100503) от 26.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls (27.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 7200х5600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090574B70836FA8DAD83CE19F80AEF001BDE246D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488076   (100502) от 26.04.2012
+
+[Wallpapers] Wallpapers Sexy Girls Pack (26.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100502.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4443x3520
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:406EEE17D9888DE0E256AFC4BC527528991DC5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488075   (100501) от 26.04.2012
+
+[Wallpapers] Sexy Girls Pack Wallpapers (26.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100501.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4368x2730
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAFB8C7A30DA1E864E6A3A031F65455D45891D1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 488078   (100500) от 26.04.2012
 
 [Wallpapers] Wallpapers Sexy Girls (26.04.12)
@@ -486,260 +737,6 @@ DJ Kocmoc - Electro Sensation vol.25 (17.04.2012) [MP3|320 кб/с]<Electro Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F97ADB8A79B1AD688B2CB4B009660A0DD5767794
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487929   (100457) от 25.04.2012
-
-Журнал | Любимая дача №5 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100457.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимая дача - популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F6FA900E94A11C7A51DD62B2B13E939873E28F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487796   (100456) от 25.04.2012
-
-Журнал | Простые рецепты здоровья №4 [апрель 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Издание для всех, кто стремится быть здоровым. Выпуск посвящён витаминам, их полезным свойствам, а также болезням, прогрессирующих из-за их нехватки.апрель 2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4968B6559780BAC13B8F6178E6BD2616AB33A686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487912   (100455) от 25.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1600х1200 - 3000х2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEC186262482C6EC934A6A712D1D07D5F685A872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487534   (100453) от 25.04.2012
-
-[Wallpapers] Girls Desktop Wallpapers Pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100453.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разрешение файлов: 1280х1024 - 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7DF21A4FD51B372C784E19F894B7686184F77F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487549   (100452) от 25.04.2012
-
-[Wallpapers] Wallpapers Sexy Girls (25.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100452.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 3000х2050
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B699B059F03F59845FB00D98C56838FC4E3FDDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487385   (100449) от 25.04.2012
-
-Lumus - Bacchus Curse (2012) [MP3|192 кб/с]<Gothic Metal/Symphonic Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aoede 01:32
- 02. The Burning Plain 04:44
- 03. Scales Of Justice 05:11
- 04. The Cave 04:21
- 05. Lost Child 04:04
- 06. No Trace 02:51
- 07. Challenge 05:42
- 08. Bacchus' Curse I: Curse 00:59
- 09. Bacchus' Curse II: Possession 04:01
- 10. Bacchus' Curse III: Maenad 04:12(   Читать дальше...   )2012Жанр: Gothic Metal/Symphonic MetalПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EFD8B20DF93537965FD14A7B3E6397E9F29A870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487677   (100448) от 25.04.2012
-
-Motorcitysoul - Technique (2008) [MP3|320 кб/с]<Deep House, Tech House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Motorcitysoul - Technique (2008)
-Год: 2008
-Жанр: Deep House, Tech House
-Продолжительность: 01:05:46
-Лейбл: Simple Records
-Страна: UKКодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТреклист:(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6497036A572BA4BFEA08079E2B3FD840A61C3E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 487910   (100447) от 25.04.2012
-
-[Wallpapers] Nature Desktop Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100447.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Desktop Wallpapers Pack 4
-Название: Nature Desktop Wallpapers Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDEB5C0D3ECF2F58005B23523EA8C34D42EFC041
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 488069   (100441) от 25.04.2012
-
-[Wallpapers] Space Wallpapers (26.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83668095240496819AEC985AE81B24FD47EDCAB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

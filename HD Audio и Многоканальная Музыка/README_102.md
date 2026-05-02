@@ -1,3 +1,177 @@
+###  Публикация: 1703799   (114803) от 01.03.2024
+
+Blind Channel - Exit Emotions (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nu Metal, Alternative Rock, Rap Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114803.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Where'S The Exit [2:38]
+02 - Deadzone [2:51]
+03 - Wolves In California [2:42]
+04 - Xoxo [2:54](   Читать дальше...   )Жанр: Nu Metal, Alternative Rock, Rap MetalПродолжительность: 00:35:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DB484FB4F9F2A40DFE24100F6CF4FFF459EA09C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703767   (114799) от 01.03.2024
+
+Asher Monroe - Songs of the Century (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pure Imagination [00:01:56]
+02. Over the Rainbow [00:04:36]
+03. Nature Boy [00:04:58]
+04. Unchained Melody [00:03:44](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD106D39D278275E74BF9ED1556FA1403B55EC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703657   (114793) от 01.03.2024
+
+Liv Kristine - Deus ex Machina (1998) Remastered, 2024, Metalville [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Gothic rock, synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114793.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Heart of Juliet (Forever Mix (Remastered)) (5:01)
+02. Huldra Part II (Remastered) (3:07)
+03. Good Vibes Bad Vibes (Dance on the Ocean Mix (Remastered)) (6:22)
+04. 3 a.m. (Late Night Version (Remastered)) (5:03)(   Читать дальше...   )Жанр: Gothic rock, synthpopПродолжительность: 01:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E8DFB22826DAB89DD0E57E3A80F3847F9BF7EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703790   (114792) от 01.03.2024
+
+Jacob Collier - Djesse Vol. 4 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 100,000 Voices [00:04:44]
+02. She Put Sunshine [00:03:30]
+03. Little Blue [00:04:25]
+04. WELLLL [00:02:38](   Читать дальше...   )Жанр: Pop, JazzПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8254C200CAAA233BADC4E8D4F90A192C4A068A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703666   (114791) от 01.03.2024
+
+Baltimoore - There’s No Danger On The Roof (1991 (1988)) [FLAC 24/192|Lossless|tracks] <Hard-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Blue Moon (Larsson–Hjalmarsson)
+02. Can’t Get You Out Of My Mind (Larsson–Hjalmarsson)
+03. Dance, Dance (Larsson–Hjalmarsson)
+04. Hey Bulldog (Lennon–McCartney)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65453187EE9F0473BB4082D16DE905E72E562239
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703916   (114698) от 02.03.2024
+
+Nirvana - Studio Albums (5 releases) (1989-1994) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Grunge, Punk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114698.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nirvana — американская рок-группа, созданная вокалистом и гитаристом Куртом Кобейном и басистом Кристом Новоселичем в Абердине, штат Вашингтон, в 1987 году. В составе коллектива сменились несколько барабанщиков; дольше всех с группой играл ударник Дэйв Грол, присоединившийся к Кобейну и Новоселичу в 1990 году.1989 - Bleach
+1991 - Nevermind
+1992 - Incesticide
+1993 - In Utero(   Читать дальше...   )Жанр: Grunge, Punk RockПродолжительность: 04:15:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A87467B8D4A96BE9606020ADC1F5EF02C25CC2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703828   (114681) от 02.03.2024
 
 AC/DC - If You Want Blood You've Got It (1978) Live [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
@@ -571,180 +745,6 @@ Side 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:134DA743B3E5EA056A658A993E824857432432C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704306   (114347) от 04.03.2024
-
-Creedence Clearwater Revival - Бродячий оркестр. Архив популярной музыки 3 (1988) [FLAC 24/96|Lossless|tracks] <Blues-Rock, Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - На углу. - Down On The Corner. (J.C.Fogerty). Запись 1969 г.
-02 - Хлопковые поля. - Cotton Fields. (H.Ledbetter). Запись 1969 г.
-03 - Счастливый наследник. - Fortunate Son. (J.C.Fogerty) Запись 1969 г.(   Читать дальше...   )Жанр: Blues-Rock, Classic RockПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A0EDD3DB65BD7823C32CAF16928EDE16D79CBF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704412   (114345) от 04.03.2024
-
-Dire Straits - Communique (1979) 1992 [FLAC 24/192|Lossless|tracks] <Classic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114345.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side A.
-01 - Once Upon A Time In The West
-02 - News
-03 - Where Do You Think You're Going?(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0184865B738942EBFE389D32E8EFE0C87AB21C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704406   (114335) от 04.03.2024
-
-Diana Ross (Дайана Росс) - Поет Дайана Росс (1979) [FLAC 24/192|Lossless|tracks] <Pop, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Будь готов встретить любовь. Gettin' Ready For Love. (T.Show-F.Golde)
-02 - Ты получил это. You Got It. (J.Ragovoy-L.Laurie)
-03 - Бэби, это я. Baby It's Me. (D.Dann-C.Smith)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4EBB4911A66D40EF8F0AEB5334F6439C66E785
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704139   (114329) от 04.03.2024
-
-Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime: Timeless Instrumental Collection of Dixieland Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birth Of The Dixieland Music (3:34)
-02. Happy Serenity (3:12)
-03. Break with Jazz (3:29)
-04. Timeless Vintage Coffee (3:35)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80FB11EFCA4798DCB97043CD4DBF2572C8D921C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704154   (114322) от 04.03.2024
-
-Smokin Dame - Revelations From A Gun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dope 'n Roll (4:21)
-02. Day Of The Living Dead (4:07)
-03. Electric Fire (2:48)
-04. Brain Dead (5:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE39BFEC5906347A05429D79ED854A81E21AA71D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704168   (114320) от 04.03.2024
-
-Caravan Palace - Gangbusters Melody Club (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114320.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. MAD (2:47)
-2. Mirrors (3:41)
-3. 81 Specials (3:56)
-4. Raccoons (3:27)(   Читать дальше...   )Жанр: swingПродолжительность: 00:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF885EBB7B33FC835D384B3D321703A979D5E5AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

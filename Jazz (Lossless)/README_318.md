@@ -1,3 +1,61 @@
+###  Публикация: 1712909   (112003) от 04.04.2024
+
+Владимир Иванов, Игорь Бутман - Ornithology (2009) Мистерия [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro-Still Walling [1:47]
+02. Before and After [7:06]
+03. Venewration [1:36]
+04. Miles-The Coming [5:04](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44B68EE8772F33937FC6181EC0EDE543642EE89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162634   (111986) от 05.04.2024
+
+Trix - Index (2004) King Record [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samrai [05:03]
+02. Dynasea [05:49]
+03. Recollection [05:24]
+04. Miller Light [05:18](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C329718405C10A39F9740042BE407A91F50BB011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713653   (111890) от 06.04.2024
 
 Chris Standring - As We Think (2024) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
@@ -686,64 +744,6 @@ VA - Superb Soothing & Inviting Lounge Chill Out Playlist (2024) [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1679750B20815BEC18ED9C4ADB30CC6E8E2B8CE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715343   (111533) от 12.04.2024
-
-VA - Sexy Feel-Good Intimate Lounge Relaxing Tracks to Chill (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Butterfly Kisses (5:10)
-02. Kool&Klean - Feel Again (4:12)
-03. Chillaxonic - Velvet Meadows (4:28)
-04. Love Suggestions - Feel This Moment (4:25)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080C1DC25CD98C03C875143081FD17B6260D3D90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715321   (111525) от 12.04.2024
-
-VA - Italian Jazzy Mix for Restaurant (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Jazz Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zerosospiro - Conversazione (2:26)
-02. Melania - Tu Vuo Fa L'americano (4:04)
-03. Emanuela Campana - Brividi (3:06)
-04. Sugarpie And The Candymen - Volare (Nel Blu Dipinto di Blu) (2:48)(   Читать дальше...   )Жанр: Jazz, Jazz VocalПродолжительность: 01:15:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA80BE7CFDC2E4C6685403004AC57466B758C65C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,176 @@
+###  Публикация: 965360   (221879) от 16.12.2015
+
+Secret Service - When The Night Closes In (1985) [FLAC 2.0 24/192|traks(Vinyl-Rip)] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221879.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Ночной город / Night City  3:34
+2. Давайте еще потанцуем / Let Us Dance Just A Little Bit More   4:24
+3. Наша песня / Special Songs  3:30(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:232E9787FB355287810D7BEC66858DEEB9DC4C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585399   (221365) от 22.10.2022
+
+Great White - Studio Albums (14 releases) (1991 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Glam Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221365.jpg" />
+</div>
+
+
+###  Подробнее
+
+Great White (Грейт Уайт, с англ. — «Большая белая» (подразумевается акула)) — американская хард-рок-группа, основанная в Лос-Анджелесе в 1977 году вокалистом Джеком Расселом и гитаристом Марком Кендалом.1991 - Hooked
+1992 - Psycho City
+1994 - Sail Away
+1996 - Let It RockЖанр: Hard Rock, Glam MetalПродолжительность: 14:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9756C2E3DDC6AE75B2359503FA693EAAF81635BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651927   (219758) от 09.08.2023
+
+Coffin Hag - Prairie Tyrant (2023) [FLAC|24/44.1|tracks|WEB-DL] <Psych Stoner Doom>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Family Man [00:10:43]
+02 Three Times Great [00:09:10]
+03 Become Nothing [00:03:22]
+04 Forgotten Gods [00:02:12](   Читать дальше...   )Жанр: Psych Stoner DoomПродолжительность: 00:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BBCDB8F39FE4FE53E7AA3D9CF15D85E9F1A70C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650653   (219713) от 09.08.2023
+
+GNOB - 2 Albums (2018-2023) [FLAC|24/48|tracks|WEB-DL] <Heavy Psych, Fuzz, Stoner>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219713.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2018 - Electric Dream Demon (LP)
+2023 - GNOB II (LP)Жанр: Heavy Psych, Fuzz, StonerПродолжительность: 2 CD, 01:29:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1EF2B759EAB75623C73843D9B0CBD933A719F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1650501   (219574) от 09.08.2023
+
+VA - Syksyn Savelia (1982) [FLAC|96/24|image + .cue|Vinyl-Rip] <Electronic, Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219574.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Kake Randelin - Avaa Hakas
+A2 Meiju Suvas - Taa Onnea On = Maria No Mas
+A3 Matti Ja Teppo - Ma Joka Paiva Toita Teen
+A4 Katri Helena - Vain Hieman Rauhaa = A Little Peace(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C584D45710EE4D9660F516AE982A349228EFF5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649982   (219557) от 09.08.2023
+
+Peter Matz - Quadraphonic Spectacular (1972) [FLAC|96/24|image + .cue|Vinyl-Rip] <Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219557.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Highlights Of The Best Of Bacharach
+A2 I Don't Know How To Love Him
+A3 Put Your Hand In The Hand
+A4 Help Me Make It Through The Night(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:447CC9A5174872247930E0E2AD535FC657F7CF80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1650340   (219510) от 09.08.2023
 
 VA - Disco Chelsea (1978) [FLAC|192/24|image + .cue|Vinyl-Rip] <Soul, Funk, Disco>
@@ -569,180 +742,6 @@ Pink Floyd - The Dark Side of the Moon (1973) [FLAC 2.0|96/24|image+.cue|Vinyl-R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE8A338EEA5B1C10C759FEF4DC3F42E42B1881AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661321   (213969) от 17.08.2023
-
-Kiss – 42 Альбома (1974-2012) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock, Glam Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell Or Hallelujah [4:06]
-02. Wall Of Sound [2:54]
-03. Freak [3:34]
-04. Back To The Stone Age [3:00](   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DEB28FEA7D153A67F73376AABE59CEDBDA1D44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586667   (213843) от 29.10.2022
-
-Gloria Gaynor/Глория Гейнор - Love Tracks/Пути Любви (1978/1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Funk, Soul, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213843.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Stoplight • Стоп-Сигнал
-A2 Anybody Wanna Party • Кто-Нибудь Хочет Повеселиться?
-A3 Please, Be There • Будь Там, Пожалуйста
-A4 Goin' Out Of My Head • Я Схожу С Ума(   Читать дальше...   )Жанр: Funk, Soul, DiscoПродолжительность: 00:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BCC3AD9183F07B42C3A2D754456B4F7D1CFB450
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652921   (213671) от 18.08.2023
-
-Kreator - Endorama (1999) AFM Records, Reissue 2022 [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213671.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Golden Age
-A2 Endorama
-A3 Shadowland
-B1 The Chosen Few(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06469C1096A26FC42BB87F979892593406538DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653979   (213667) от 18.08.2023
-
-Asia - Astra (1985) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Prog Rock, Symphonic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213667.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Go
-A2 Voice Of America
-A3 Hard On Me
-A4 Wishing(   Читать дальше...   )Жанр: Prog Rock, Symphonic RockПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3874243E70F4E3A7B443B1D14C4566ED417DBF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514865   (213660) от 05.12.2021
-
-Within Temptation - Shed My Skin (2021) hand made [restored, declipped] [FLAC 2.0|Lossless|44/16|tracks + .cue] <Symphonic Metal, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shed My Skin (4:30)
-02. The Purge (4:16)
-03. Entertain You (3:31)
-04. Shed My Skin (Instrumental) (4:30)(   Читать дальше...   )Жанр: Symphonic Metal, Alternative MetalПродолжительность: 00:24:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9211FAC881F4F8591F674156A56E27D452602055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832287   (213540) от 30.10.2025
-
-Alkonost - Studio Albums (15 releases) (2004-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Pagan/Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213540.jpg" />
-</div>
-
-
-###  Подробнее
-
-Алконост — российская фолк-метал группа, образованная в Набережных Челнах,  Республика Татарстан в 1995 году.2004 - Between The Worlds
-2006 - Межмирье
-2006 - Путь Непройденный
-2007.1 - Песни Вечного ДреваЖанр: Pagan/Folk MetalПродолжительность: 11:21:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:906218C82AA30C8B47261EEF2C3CEC4C1E1C6E97
 ```
 
 https://mybot314.ru/tekegram_catalog/

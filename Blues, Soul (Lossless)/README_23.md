@@ -1,3 +1,119 @@
+###  Публикация: 976988   (967791) от 19.01.2016
+
+Ray Charles - Original Motion Picture Soundtrack (2004) Rhino[FLAC|tracks+.cue] <Blues, R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967791.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Mess Around [02:42]
+ 02.I've Got a Woman [02:53]
+ 03.Hallelujah I Love Her So (live) [03:06]
+ 04.Drown in My Own Tears [03:22](   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 00:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C95722C6E07DFBF9E398C3420083DABD1789092E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 977585   (965682) от 21.01.2016
+
+Ray Charles - The Birth Of Soul (1952-1959) 2CD, 2004, Atlantic Records[FLAC|tracks+.cue] <Blues, R&B, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965682.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.The Sun's Gonna Shine Again [02:40]
+02.Roll With My Baby [02:38]
+03.The Midnight Hour [03:02](   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 02:31:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7405F5CD55FE6D1A249623E4933A50D3955C0A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360522   (960931) от 15.02.2020
+
+Tino Gonzales - Nuke The World (2003) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart Full Of Sorrow
+02. You're Not The One
+03. Nuke The World
+04. How Do You Play The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED0F2F97B3C378E4904C02320A004FA1F2A175FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 856230   (958982) от 04.01.2015
+
+Vargas Blues Band - From The Dark (2014) [FLAC|Lossless]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bye Bye Zombie
+02. Let It Go
+03. Moon Light Blues
+04. Run Away(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBF054290F4242B5AC880F5B223ED623823AD64E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1361000   (958036) от 17.02.2020
 
 VA - Beatles Blues: The Blues Meets the Beatles (2001) [FLAC|Lossless|tracks + .cue] <Blues>
@@ -632,122 +748,6 @@ Birdlegg - Extra Mayo (2016) WEB [FLAC|Lossless|tracks + .cue] <Electric Blues, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29D233DD95AD9E4C97B51A18B68E0EFFAC78520C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092248   (940350) от 11.01.2017
-
-Shane Henry - Deliverance (2004) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Deliverance  (03:43) 
-02|  In too deep  (03:19) 
-03|  40 Days and Forty Nights  (03:25) 
-04|  Lost Angelo  (04:05) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1CCE374411202B4D9B44D3827C0B9897EF705F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092178   (940267) от 11.01.2017
-
-The Robert Cray Band - Too Many Cooks (1980) 1989, TOMATO, авторская раздача [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940267.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самое смешное случилось с Robert Cray после завершения этого его первого релиза в 1980 году: он стал звездой! Он что называется оседлал  волну музыкального признания. Для тех, кто знал работу Крея в конце 70-х годов, кто следил за его ранним карьерным путем в качестве современного и самостоятельного блюзмена, не было ничего удивительного. Ведь он не просто продолжил (   Читать дальше...   )01. Too Many Cooks  (2:50)
-02. The Score  (4:08)
-03. When The Welfare Turns Its Back On You  (3:21)
-04. That's What I'll Do  (2:38)(   Читать дальше...   )Релиз состоялся: 1980, на LP под названием Who's Been Talkin'Жанр: BluesПродолжительность: 00:35:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:776697E4BB56DA006462DB96735830D1FA40D104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092397   (938945) от 12.01.2017
-
-Mark 'Mississippi Slide' Jeghers - The Bluez Projekt (2016) WEB [FLAC|Lossless|tracks + .cue] <Blues / Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938945.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sadie (06:22)
-2. Down in the Bottom (04:59)
-3. Goin' Down South (04:48)
-4. Bromophenol Blues (06:13)(   Читать дальше...   )Жанр: Blues / Blues-RockПродолжительность: 01:16:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FA0A99A7C300674198AF9CDB9F82FE2D73CF05B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984601   (938845) от 09.02.2016
-
-VA - Love's Greatest Hits (2006) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Contemporary Jazz >
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harold Melvin & The Blue Notes - If You Don't Know Me By Now (3:27)
-02. Diana Ross & Lionel Richie - Endless Love (4:25)
-03. Marvin Gay & Tammi Terrell - You're All I Need To Get By (2:51)
-04. Peabo Bryson & Robert Flack - Tonight, I Celebrate My For For You (3:30)(   Читать дальше...   )Жанр: Funk, Soul, Contemporary Jazz, Soft JazzПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D5DF6A38E3A922F74FDB51BC46CBD1979B1B3D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

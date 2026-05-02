@@ -1,3 +1,61 @@
+###  Публикация: 1324856   (418987) от 12.09.2019
+
+VA - Ectoplasm: Techno Electronic Set (2019) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418987.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robben Cepeda - Dream Station
+002. Dj Dextro - Razor Sharp (Original Mix)
+003. Vini Pistori - The Magic Coin (Marcus Sur Remix)
+004. Kareem Smith - The Brothers (Original Mix)(   Читать дальше...   )Жанр: TechnoПродолжительность: 10:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C42B12C1530B23242760B5BCDA0B92C07D34C851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572703   (418979) от 28.08.2022
+
+VA - Record Super Chart 27.08.2022 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elley Duhe - Middle Of The Night (3:04)
+02. Purple Disco Machine feat. Sophie And The Giants - In The Dark (3:05)
+03. James Hype & Miggy Dela Rosa - Ferrari (5:38)
+04. Robin Schulz, David Guetta - On Repeat (3:10)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C26B8FD8E5D35B6DA5B0758947541CD74EA4E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1324906   (418855) от 12.09.2019
 
 VA - Resonant Reality: Trance Psychedelic Party (2019) [MP3|320 Kbps] <Psychedelic, Psy Trance>
@@ -693,70 +751,6 @@ VA - Лучшие Trance Треки Ver.2 (2018) [MP3|320 Kbps] <Uplifting Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D5A612E3EFEC39FBBCD895FAD58CB2419680C71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066082   (414945) от 25.10.2016
-
-VA - Gold Shadow: Balearic Music (2016) [MP3|160-320 Kbps] <Balearic Lounge, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414945.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Klartraum & Thalstroem - Flight to Berlin
-002. ZZouro - Desert D I Y
-003. Blutch - A. (feat. Melodiesinfonie)
-004. Nadja Lind - Ignore & BlockЖанр: Balearic Lounge, Downtempo, ChilloutПродолжительность: 10:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A52A3A8BDD490DA937812ADF335645A627F7E5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558493   (414891) от 10.10.2012
-
-VA - Future Trance Classics Vol.10 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414891.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Juventa - Suedine [07:46]
-02. James Dymond - Ordinary Heroes [07:48]
-03. DJ Damask - Ira (Paul Denton Remix) [06:37]
-04. Ruslan - Set & Igor Pumphonia F-Sensation of Ease (Eat Vray-Dis Play Dub) [06:43]
-05. Ico - And She Made it All of Light (Thomas G 303 Mix) [07:58]
-06. Tom Lavin & Adrohan Present Halt - Flyover (Function C Remix) [07:06]
-07. Emerge - Dream Drifter [07:37]
-08. Riialto - Ec (Everything Continues) [08:40]
-09. Max Fishler - Tyrannosaur (Mark Nails Remix) [07:55]
-10. Tritonal - Can't Keep it in (Feat Jeza-Tritonal Club Mix) [06:40](   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A505107FD8F3CAC0F031B42429B71D0AC08AD757
 ```
 
 https://mybot314.ru/tekegram_catalog/

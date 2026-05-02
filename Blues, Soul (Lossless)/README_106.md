@@ -1,3 +1,119 @@
+###  Публикация: 1682290   (131527) от 07.12.2023
+
+Proud Outsiders - Anything To Offer? (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131527.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glow & Fire (3:55)
+02. The Calling (3:28)
+03. Better Without You (4:10)
+04. Anything to offer? (4:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10462367A50A6977D8783EA8686BBE5829E5A6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682297   (131525) от 07.12.2023
+
+Eric B Turner - IT AIN'T EASY (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ian Eylanbekov - BLUES TUTOR (3:51)
+02. 1997 - IT AIN'T EASY (3:50)
+03. Alexander Please - LOVE HER WITH A FEELIN (3:27)
+04. BLINDSIDE (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E4BB327A689AF248FFBF6D1BEF76A89C9DFA22E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682295   (131523) от 07.12.2023
+
+Tony Voltaggio - Scratchings (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Road Turnin' (5:03)
+02. Crossroads (3:30)
+03. Border Blues (3:34)
+04. Down by the River (5:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4541085CA9EE2DB00EAE767D393487B5C7F8A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1682287   (131515) от 07.12.2023
+
+Matthew Scott - Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131515.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Whisper (4:59)
+02. Where You Been (3:45)
+03. Bury the Tracks (3:08)
+04. Mirrors (4:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BB49B0C8782533FE314874764FCA393DDC68364
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682303   (131511) от 07.12.2023
 
 Willie Clayton - Showtime Mr. C (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
@@ -653,122 +769,6 @@ The Riverview Band - Finger Prints (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E329E7CBC99F61E736AB6883C0F6E340F2FCABD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824539   (128856) от 15.10.2025
-
-Павел Черепанов - Чб (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Где взять мне сил (4:00)
-02.  Rock-n-Roll о любви (3:54)
-03.  Давным-давно в далекой (4:03)
-04.  Февраль (С Днем Рождения февральчата!) (3:21)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E1B4CBA13D81D437A48336CF2C3FA19BE5A57DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824522   (128820) от 15.10.2025
-
-Jon Hines - Memphis Sun (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Memphis Sun Blues (2:55)
-02.  Me & the Devil (3:38)
-03.  Until the Wheels (3:32)
-04.  Holy Ground (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:23:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F96597F8167CE711D5732D00C3439C793125B0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824524   (128818) от 15.10.2025
-
-Kinland Station - LoFi (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Let the Music Pull You Through (3:53)
-02.  Little Sister (3:48)
-03.  I Don't Need No Doctor (5:10)
-04.  Everything Is Broken (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C571034ECB54161E5CC8564A913E2F1F5F64D195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683115   (128733) от 10.12.2023
-
-Jackie Venson - Ghost in the Machine (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B, Soul, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Home
-02 – Home (Outro)
-03 – Go My Way
-04 – Go My Way (Outro)(   Читать дальше...   )Жанр: Blues, R&B, Soul, RockПродолжительность: 01:23:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:743CE0EA8BA93D3303EC9CE63F6E051790AAF688
 ```
 
 https://mybot314.ru/tekegram_catalog/

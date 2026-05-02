@@ -1,3 +1,30 @@
+###  Публикация: 1592983   (182009) от 25.11.2022
+
+Voidwards - Amidst the Ocean of Fog (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Doomgaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Amidst the Ocean of Fog: to the Forces Unseen [00:11:38]
+02. Amidst the Ocean of Fog: the Ghosts [00:14:14]Жанр: Doom Metal, DoomgazeПродолжительность: 00:25:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F69F123D5CFFC0B68F461310A239AFE5796900C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592948   (181953) от 25.11.2022
 
 ОРКиКО - СУП (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Avant-Garde>
@@ -710,35 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7F66C4FAF54068F1C498CE1C107D65AC5381804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1594807   (177238) от 02.12.2022
-
-Алиса - Легенды русского рока (1996) Remastered, 2022, Moroz Records [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177238.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вот так
-2. Трасса Е-95
-3. Апрель
-4. Веретено(   Читать дальше...   )Жанр: RockПродолжительность: 01:31:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4788732DA9BF15D6C68C248B569FFEDBE50CF48B
 ```
 
 https://mybot314.ru/tekegram_catalog/

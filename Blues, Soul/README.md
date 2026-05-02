@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1866597   (1066393) от 22.04.2026
+
+Дарья Безбородова, Дмитрий Гусаров - Блюзовые сказки для взрослых (2025) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066393.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. «Блюз чёрной розы» (акустическая версия) — 3:34
+02. «Блюз Дона Кихота» — 4:38
+03. «Блюз о криоконсервации» — 4:20
+04. «Блюз о крыльях, ногах и хвостах» — 4:47(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F041BFC7EF3B00D5608F0BC540B25C5BBC95E7CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1860243   (1061946) от 21.03.2026
 
 Blues Delight - Nostalgia Notes (2025) [MP3|320 Kbps] <Blues>
@@ -717,35 +746,6 @@ VA - Ladies Sing & Play The Blues Vol.2 (2020) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4B5C64457DB5C99FEF3EAD29EA4109839C3D2F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443065   (1035920) от 27.01.2021
-
-Natural Blues - Elementary Power (2021) [MP3|320 Kbps] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035920.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave You In The Morning (Single Version) (03:22)
- 02. Muddy Waters (03:51)
- 03. Mr. President (05:09)
- 04. Three O'Clock In The Mornin' (05:15)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1BE5E83A4891C1D2C159A008F170DA61F77C210
 ```
 
 https://mybot314.ru/tekegram_catalog/

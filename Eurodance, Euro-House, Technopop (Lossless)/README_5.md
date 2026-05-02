@@ -1,3 +1,58 @@
+###  Публикация: 485002   (89489) от 19.04.2012
+
+Sandra - 18 Greatest Hits (1992) (Japan press) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89489.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 01:11:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1786657   (68993) от 21.03.2025
+
+M.C.Sar & the real McCoy - The Real Best! (2016) [FLAC|Lossless|WEB-DL|tracks] <Dance, EuroDance, Electronic>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - On the Move (Intro) [1:03]
+02 - It's on You [4:05]
+03 - Pump up the Jam (Original Rap Version) [4:23]
+04 - Be Yourself [4:11](   Читать дальше...   )Жанр: Dance, EuroDance, ElectronicПродолжительность: 01:14:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9B527E44239B9D2142EA4051B1E2CDA1344AB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1786873   (68942) от 22.03.2025
 
 VA - DJ Dance Rarities of the 80s (2016) [FLAC|Lossless|WEB-DL|tracks] <Eurodance, Euro-House>

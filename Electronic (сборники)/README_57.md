@@ -1,3 +1,61 @@
+###  Публикация: 1387491   (791093) от 02.06.2020
+
+VA - Hits of My Soul Vol. 56 (2020) [MP3|256-320 Kbps] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791093.jpg" />
+</div>
+
+
+###  Подробнее
+
+|08:44| 01. The Cloudy Day - Way Of The Sun (Original Mix)
+|09:31| 02. The Cloudy Day & Andrey R. - Wings (Original Mix)
+|09:42| 03. The Cloudy Day - Aurora (Original Mix)
+|08:16| 04. The Cloudy Day - Over Emotion (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance •Продолжительность: 19:02:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9253FD377C304DE6B155385F6E47DE6FED713A34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201711   (791053) от 27.01.2018
+
+VA - DMC Seasons Winter: Trance Uplifting Party (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791053.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Van Dyk & Farhad Mahdavi feat. Sue Mclaren - Together Again
+002. Ram & Darren Porter - The Calling (Grotesque 300 Anthem)
+003. Roman Messer - Lullaby (Original Mix) (Feat. Roxanne Emery)
+004. DJ T.H. & Athema feat. Elyse G. Rogers - Strong Enough(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 11:18:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75522121F0872BAB3778E3D68051E130CB1FA3D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202122   (791028) от 27.01.2018
 
 VA - The Official UK Top 40 Singles Chart 26.01.2018 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -684,64 +742,6 @@ Snap - The Power (2017) Remix [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:30E111E430B20C7CFF0F932F4491708B0F52B2DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202669   (789524) от 30.01.2018
-
-VA - Deep Disco (2018) [MP3|320 Kbps] <Deep House, Nu Disco, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  N.A.G  -  Dream Girl (Original Mix)  5:29
-02.  Electro Beat Orchestra  -  Make Me Fly (Extended Mix)  6:41
-03.  Andrey Exx feat. Diva Vocal & BSKF  -  Need To Feel Loved (Original Mix)  6:53
-04.  Michael Grand & Disko Disko  -  Set Set Set (Julian Thomas Remix)  6:40(   Читать дальше...   )Жанр: Deep House, Nu Disco, ElectroПродолжительность: 03:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF0BA06A03F7B7218AE495BAC3B91AFA7D22E9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202836   (789515) от 30.01.2018
-
-VA - SunSet On The Coast Original Chillout Mix (2018) [MP3|320 Kbps] <Chillout Lounge Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789515.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lazy Hammock - You Were The One (Original Mix)
-002. Peter Sefkow - S.H.E.
-003. 108 Music - On My Way Home (Original mix)
-004. Curtis McLaw - Magic Woman(   Читать дальше...   )Жанр: Chillout Lounge DowntempoПродолжительность: 10:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCB2D3E2BFB09D69B3ABF419AFD956655F7FDA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

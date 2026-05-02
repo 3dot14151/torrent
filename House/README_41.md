@@ -1,3 +1,206 @@
+###  Публикация: 1042780   (578509) от 13.08.2016
+
+VA - Its Amazing - Deep House Grooves Vol.7 (2016) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Krines - Chaos in Paine
+02. Carl Kennedy - Skank Henz
+03. Sander Mason - Free to Think and to Do
+04. Ramiro Dosantos - To the Rhythm(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:13:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:868C02191B61EDF05F05755A27D5DD74D9F6BA47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042750   (578452) от 13.08.2016
+
+VA - Run for Fun - 20 Rhythmic Heartbeats Vol.1 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamlight - Summer Music - Original Mix
+02. Lord Emerald - Flying Skirt - Original Mix
+03. Alma Fonica - Miami Party - Original Mix
+04. Tony Roja - Bitcoin - Original Mix(   Читать дальше...   )Жанр: HouseПродолжительность: 01:23:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:470E7B8C731C4909E3FB1328395BB79337671D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042677   (578449) от 13.08.2016
+
+VA - Toolroom Ibiza Vol.2 (2016) [MP3|320 Kbps] <House,  Tech, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kolsch & Michael Mayer  -  Dogma 1  9:57
+02. Paul Woolford  -  Mother & Child  7:26
+03. Matador  -  The Enemy (feat Felix Da Housecat - Hot Since 82 remix)  6:06
+04. Joris Voorn  -  Looks Fake Obviously  6:38(   Читать дальше...   )Жанр: House,  Tech, Deep HouseПродолжительность: 11:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97B4FD77AA725168F65F095AE1245EBFBED04115
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150855   (578136) от 16.07.2017
+
+VA - The Body You Need For Summer 2017: Workout Edition [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Xort Base - Mealst
+02. Xenias - Slutty
+03. Wunkeris - Guru
+04. Walo Pils - Ripped(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 06:02:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32248BFBCD2C7008EE2DFCFC43B088CB8CE6E7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150256   (577574) от 16.07.2017
+
+Lost Frequencies - Less Is More (Deluxe) (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Here with You (feat.  Netsky)  2:40
+02.  All or Nothing (feat. Axel Ehnstrom) (Deluxe Mix)  2:51
+03.  What Is Love 2016 (Deluxe Mix)  3:08
+04.  Beautiful Life (feat. Sandro Cavazza) (Deluxe Mix)  3:06(   Читать дальше...   )Жанр: HouseПродолжительность: 02:32:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41EE265EF2FD860EC75A0D98E6D6C418CF68D675
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042886   (576642) от 14.08.2016
+
+VA - Bye Bye Summer! Best of Deep Summer 2016 Vol.1 (2016) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suburban Soul System  -  Love & Love  3:38
+02. Trevor Jay  -  Wild Dreams  3:36
+03. Ronald Lastar  -  Something Useless  3:36
+04. Frankie Borrel  -  I See the Light  3:35(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:12:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB7ACDB665FDDC774C25A636DA4426D0BDA78F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1042845   (575963) от 14.08.2016
+
+VA - Sport Music Fitness Personal Trainer - 200 Songs (2016) [MP3|320 Kbps] <House, Electro House, Progressive, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575963.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Paul Kold  -  Sidechain  4:49
+002. California Sun  -  Touch the Sky (Extended Mix)  5:18
+003. Alain Chavez  -  Private Area  5:42
+004. Calabria  -  Evolver (Club Mix)  6:19(   Читать дальше...   )Жанр: House, Electro House, Progressive, Dance, ClubПродолжительность: 19:07:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01102AC3CF5B373E4A399769552D55324C4794CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 526457   (575061) от 27.07.2012
 
 Groove Armada - Goodbye Country (Hello Nightclub) (2CD) (2001) [MP3|320 кб/с]<Electronic,  House>
@@ -554,210 +757,6 @@ Daviddance & Francesco Frumento & I Biz - Nextix (2017) [MP3|320 Kbps] <Progress
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:92E53BCE91E5CEAB1338CC61A2D5E3C478496A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044252   (567466) от 19.08.2016
-
-VA - Boom Dance (2016) [MP3|320 Kbps] <House, Progressive, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Whitestar  -  Show a Little Luv  7:15
-02. Prash  -  Bring That Bass (Radio Cut)  3:20
-03. Naxwell  -  Fade to Grey (Remastered Club Mix)  4:31
-04. Yaneena  -  Again (Danceheat Remix)  4:49(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 01:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A0CE531D4C737CB6D2C1B068D2EDE91D7BCCC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 529801   (567050) от 31.07.2012
-
-Zedd feat. Matthew Koma - Spectrum EP (2012) [MP3|320 кб/с]<Trance, Electro House, Progressive House, Dubstep>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zedd - Spectrum feat. Matthew Koma (Armin van Buuren Remix)
-02. Zedd feat. Matthew Koma - Spectrum (A-Trak & Clockwork Remix)
-03. Zedd feat. Matthew Koma - Spectrum (Arty Remix)
-04. Zedd feat. Matthew Koma - Spectrum (Deniz Koyu Remix)
-05. Zedd - Spectrum feat. Matthew Koma (Gregori Klosman & Tristan Garner Knights Remix)
-06. Zedd feat. Matthew Koma - Spectrum (Congorock Remix)
-07. Zedd feat. Matthew Koma – Spectrum (Monsta Remix)Жанр: Trance, Electro House, Progressive House, DubstepПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CD53F6B037D4D4E3F292D7900BF3B7FEC6C936C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234797   (566002) от 08.07.2018
-
-VA - Last Chance Summer Sale House Music (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Slate - Los Angeles
-02. Akkust - Sneaker
-03. Adrian House - Franchise
-04. Acrylite - Laugh(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EF00CED5D09CAEB86A2C44A8E2FF213D7EA53FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152529   (565799) от 23.07.2017
-
-VA - Intricate Records Summer Vibes Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss Monique - Bombay (Sebastian Weikum Remix) 06.00
-02. Proluction - Modern Machine (Original Mix) 05.32
-03. PROFF - What You Got (Original Mix) 05.46
-04. MalYar - Doors (Original Mix) 05.11(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:891705CC86F86780122780C2E795176AEFA8F18B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1152471   (565796) от 23.07.2017
-
-Vasily Dvortsov - On the Way to the Cosmos (2016) Single [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On the Way to the Cosmos (04:29)
- 02. On the Way in the Cosmos (05:11)Жанр: HouseПродолжительность: 00:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CEA8E73F90B173F4D1CE324C8A5B8F26DB520DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044370   (565660) от 20.08.2016
-
-VA - Essential House Society Vol. 2 (2016) [MP3|320 Kbps] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Matt Caseli, David Jimenez & Errol Reid  -  Stay Together (Dave Rose Remix)  5:47
-02. Teo Mandrelli  -  Everyday Battle (Club Mix)  5:27
-03. Steve Edwards, RONN, Ron Carroll, Michael Murica & Damon Grey  -  When Love Gets in the Way (Argento Remix)  4:37
-04. Nick Hook  -  House People Pump It Up (Original Mix)  7:06(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C672ED944DA52923441B82E8112A27B4D9306D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555922   (565310) от 06.06.2022
-
-VA - Summer Megamix 2022 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klaas - Shine A Light 2:59
-02. Micha Moor - Obsession 2:35
-03. Calmani & Grey, Alexandra Prince - Superstar 2:59
-04. The Disco Boys - Around The World (Dazz Remix) 2:39(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7D4F1A7CE4A001259F482DD8ABCB22AE73AD626
 ```
 
 https://mybot314.ru/tekegram_catalog/

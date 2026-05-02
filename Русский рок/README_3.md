@@ -1,3 +1,119 @@
+###  Публикация: 1609403   (1043267) от 03.02.2023
+
+Дядя Миша - Тоська-Сука И Другие Песни (2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Тоська-Сука [00:02:57]
+02 - Зараза [00:01:59]
+03 - Отелло [00:04:09]
+04 - Восточная [00:01:37](   Читать дальше...   )Жанр: RockПродолжительность: 00:29:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC40D9AA6E0F4E8497088C4578ED34FDF8C38C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609735   (1043190) от 04.02.2023
+
+Азбука Борзых - Дартс (2023) [MP3|320 Kbps] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Слава селу [00:04:21]
+02 - Примочка [00:03:45]
+03 - Дартс [00:03:56]
+04 - Приют [00:03:20](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11635BB882602A28B594810B2E12B62ECEE0B9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1609737   (1043182) от 04.02.2023
+
+Страна Идиотов - 27 пустоты. Часть 1-2 (2021-2023) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Помолчим [00:02:53]
+02. Города [00:02:37]
+03. Шаг за шагом [00:03:38]
+04. Новое время [00:02:46](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 2 CD, 00:37:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E864A5E1015B49CA8A83BDFAB1373E093475F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436615   (1043092) от 01.01.2021
+
+Ashley Moshe - 3 Albums (2014 - 2020) [MP3|320 Kbps] <Alternative Metal, Nu-Metal, Emocore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Грязь [00:04:08]
+02. Пудра [00:03:26]
+03. 40 [00:03:29]
+04. Тетрадь с полями [00:03:10](   Читать дальше...   )Жанр: Alternative Metal, Nu-Metal, EmocoreПродолжительность: 3 CD, 01:50:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EA8F6791A2051EDF620722D3B630563E8BED47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1436607   (1043084) от 01.01.2021
 
 Pine Ridge - Can't Deny (2020) [MP3|320 Kbps] <Rock, Blues>
@@ -631,122 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6BB9F5B39B765AEBBA2EC24BF24B904D59B04E95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612394   (1040385) от 15.02.2023
-
-Behrosth - Проделки поганого черта (2023) [MP3|320 Kbps] <Black'N'Roll>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Бесопарк [00:05:10]
-02 - Имя Его - Война [00:08:29]
-03 - Преступление Без Выгоды [00:03:06]
-04 - Проделки поганого чёрта [00:03:57](   Читать дальше...   )Жанр: Black'N'RollПродолжительность: 00:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB6ACA091253F8491DB86F788E4CA686DBD27FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612675   (1040182) от 16.02.2023
-
-Олег Барабаш - 2 Albums (2021-2023) [MP3|320 Kbps] <Trip-Hop, Spoken Word>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кости [00:02:06]
-02. Конечная [00:02:43]
-03. Чёрная книжка [00:06:44]
-04. Несу [00:04:11](   Читать дальше...   )Жанр: Trip-Hop, Spoken WordПродолжительность: 2 CD, 00:51:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F3FEC61DE247F1E61AE2A8E42B26ED676B9E76E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612514   (1040177) от 16.02.2023
-
-Путь Солнца - 15 Дорог К Солнцу (2023) [MP3|320 Kbps] <Heavy Metal, Pagan Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040177.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Знак Солнца - Знак Победы (feat. Лекс / Мастер)
-02.Северная Страна (feat. Лазарь / Аркона)
-03.Гулять Будем (feat. Ксения Маркевич / Калевала)
-04.Победа Или Смерть (Руслан Пурген VS Мирон)(   Читать дальше...   )Жанр: Heavy Metal, Pagan Thrash MetalПродолжительность: 00:51:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A06E9D8B96E985C6A71A05FFCC5968209E3A57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1612799   (1039913) от 17.02.2023
-
-LASCALA - El Dorado (2023) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039913.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. АН-2 (2022)
-2. Sex, Rock'n'Roll & Alcohol (2022)
-3. Жалость неуместна (2022)
-4. Пятница (Edit)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:57:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E3046AF8BFF1F6E928921FA81C044778224D46
 ```
 
 https://mybot314.ru/tekegram_catalog/

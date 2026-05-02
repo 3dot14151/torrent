@@ -1,3 +1,183 @@
+###  Публикация: 1328046   (368012) от 28.09.2019
+
+Yujiro Mabuchi '68 All Stars - Attractive Tenor-Sax Mood Best 16 (1973) [FLAC 2.0|44,1/16|tracks +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_368012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Watashi No Kare Wa Hidarikiki
+02. Hitorikko Amaekko
+03. Muneippai No Kanashimi
+04. Ai No Kurashi Dosei Jidai(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:43:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BFCF68DFA330C20F90284DE40338B5615755663
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 950683   (367881) от 27.10.2015
+
+Jive Bunny And The Mastermixers - два магнитоальбома (1989,1990) [FLAC 2.0 16/44,1|image+.cue (MC-Rip)]<Rock'n'Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can Can You Party
+02. Best Of British
+03. Still In Love
+04. Sounds Like Fun(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 01:32:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DBD1AB79BEA880E157D518356111B05C2833737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1327959   (367684) от 28.09.2019
+
+The Prodigy - No Tourists (2018) [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Drum & Bass, Big Beat>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367684.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Need Some1 (2:43)
+A2. Light Up The Sky (3:20)
+A3. We Live Forever (3:43)
+B1. No Tourists (4:18)(   Читать дальше...   )Жанр: Drum & Bass, Big BeatПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC0828362A46276D448EBE5A112DF8077F3ED08F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328054   (367505) от 28.09.2019
+
+Teddy Ikeya Quintet - Dream (1967) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop, Jazz, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sekai Wa Futari No Tameni
+02. Kitaguni No Aoi Sora
+03. Koi
+04. Nagisa No Senorina(   Читать дальше...   )Жанр: Pop, Jazz, Easy ListeningПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:294E6A060046BC8F5C29FD2E5BF57D1170AA520B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 252811   (366279) от 03.11.2010
+
+Robert Miles - Organik (2001) [DTSCD][UP]<Trance, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_366279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tsbol
+02. Separation
+03. Paths
+04. Wrong
+05. It's All Coming Back
+06. Pour Te Parler
+07. Trance Shapes
+08. Connections
+09. Release Me
+10. Improvisations Part 1(   Читать дальше...   )Жанр: Trance, InstrumentalПродолжительность: 01:03:52
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 836126   (366127) от 30.10.2014
+
+Giorgio & Martin Koppehele - Lichtmond 3: Days Of Eternity (2014) [DTS-ES Discrete 6.1 44.1/16 | .wav+.cue (Blu-ray)] <NewAge|Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366127.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Nightflight to Chronos (Part 1)
+2. Nightflight to Chronos (Part 2)
+3. Feel the Spirit
+4. Wheel of Time(   Читать дальше...   )Жанр: NewAge, AmbientПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCCA963D79C779DE628ADCE4895E1F312BB0E161
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255147   (365728) от 17.10.2018
 
 Judas Priest - British Steel (1980) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip]  <Heavy Metal>
@@ -574,179 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9ED1FDFD474F25BFA47CD2E25CD826E6618FA078
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 841277   (349603) от 06.10.2019
-
-Игорь Тальков - Лучшие песни 2 (2008) [DTS|Lossless]<Авторская песня>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Глобус (6:55)
-02. Господа демократы (3:50)
-03. Солнце уходит на запад (7:13)
-04. Моя любовь (6:24)(   Читать дальше...   )Жанр: Авторская песняПродолжительность: 01:00:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1C758650B081714C4622529257FDD86C21112C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418325   (349096) от 24.10.2020
-
-Зодчие - Мусор Из Избы (1990) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349096.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Демонстрация (1 Мая 1982 Года) • Demonstration (The 1st Of May 1982)
-A2 Металлист Петров • Metalist Petrov
-A3 Землекоп • Havvy
-A4 Девушка В Белом • A. Girl In White(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C4207DEC35430C0DBC66FD70EF84F7EE3AE3FD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418334   (348959) от 24.10.2020
-
-Джоэл Шпигельман (синтезатор "Курцвейль 250") - Бах В Стиле ''Нью Эйдж'' (Ария с вариациями 1 - 30) (1991) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Electronic, Classical, New Age>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ария С Вариациями (Гольдберг-Вариации)
-A. Ария. Вариации 1 — 15	27:30
-B. Вариации 16 — 30. Ария 26:30Жанр: Electronic, Classical, New AgeПродолжительность: 00:54:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EC2E6412BEE348F10DD94AE8C445F25A6BC3A48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179263   (348773) от 31.10.2017
-
-Весёлые Ребята - Перекрёсток Судьбы (2015) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Выше неба (А.Добронравов – В.Пеленягрэ)
-02. Ты летела ко мне (А.Добронравов – Н.Пляцковская)
-03. Одинокая птица (П.Слободкин – Н.Пляцковская)
-04. Светлая ночь (А.Виста – А.Виста)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558FB2CA57D2652980F2A6F6E83DFD47B253470F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073284   (347008) от 15.11.2016
-
-Pink Floyd - Atom Heart Mother (1970) [DTS 4.0|44.1/16|image +.cue|DVD-AudioV] <rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Atom Heart Mother
-02 - If
-03 - Summer '68
-04 - Fat Old Sun(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 00:52:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC21A018C73A63C217114DC4D2016D08B37141B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418636   (346793) от 25.10.2020
-
-Klaus Schulze & Rainer Bloss - Dziekuje Poland Live '83 (1985) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Electronic, Berlin-School>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_346793.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Katowice (Iris)
-B Warszawa (Halina)
-C Lodz (Janina)
-D1 Gdansk (Tina)(   Читать дальше...   )Жанр: Electronic, Berlin-SchoolПродолжительность: 01:34:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF1C9A94ADE865987476D01A3875C882A18B7D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

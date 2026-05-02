@@ -1,135 +1,25 @@
-###  Публикация: 1204589   (784401) от 07.02.2018
+###  Публикация: 1124314   (785985) от 10.04.2017
 
-Light Image Resizer 5.1.2.0 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784401.jpg" />
-</div>
-
-
-###  Подробнее
-
-Light Image Resizer - программа для изменения размеров цифровых картинок и изображений в различных графических форматах (на данный момент поддерживается работа с файлами JPEG, GIF, BMP, TIFF, CR2, NEF и т.д.). Также в утилите имеются возможности для компрессии файлов, конвертирования из одного формата в другой, экспорта, наложения и управления картинками. Light Image (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C56DBD849F951DCF1163B1CA03046E5901496F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204697   (784400) от 07.02.2018
-
-Журнал | House Beautiful [UK] №2 (февраль 2018) [PDF] [En]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8B5E3394FB38E9E598044C5C49B217DE756A9F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204559   (784399) от 07.02.2018
-
-The Modern Jazz Quartet - Concert In Japan, Vol.2 (1966) 2014, Warner [FLAC|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ralph's New Blues [06:48]
-02. I Love You Porgy [04:56]
-03. Pyramid [07:20]
-04. Home [04:21](   Читать дальше...   )Жанр: CoolПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C645435FEFEA316E8F4D93F99B14176F6D791D11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204725   (784398) от 07.02.2018
-
-VA - Eleven (2018) [MP3|320 Kbps] <Trance,Psytrance,Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Perfect Stranger - Manifestation (Shanti V Deedrah Remix)
-02. Perfect Stranger & Sphera - Done That (Merkaba Remix)
-03. Perfect Stranger - Six Feet Under (Captain Hook Remix)
-04. Perfect Stranger - Easy (Sphera Remix)(   Читать дальше...   )Жанр: Trance,Psytrance,Progressive HouseПродолжительность: 04:26:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B398A7731E92050E55E5B873927948474DABBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204744   (784397) от 07.02.2018
-
-BlueHarvest 7.0.2 [Multi/Ru]
+VA - Bliss Records - Bliss Music Vol.10 (2017) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BlueHarvest - автоматически удаляем скрытый мусор
-BlueHarvest -  утилита, помогающая автоматизировать в фоновом режиме, процесс удаления ненужных файлов и папок, которых не так уж и много, но Mac OS X создаёт их с завидной регулярностью, как на внутренних дисках, так и на сетевых и подключаемых флешках и дисках.
-
-Данная программа будет полезна для тех, кто любит включенную (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 2018Разработчик: Ross TullochПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Русский, Английский, Немецкий и др.
+01. Alexander Dyomin - Flashback (Original Mix) 07:14
+02. Proluction - Synthetic Moon (Original Mix) 05:10
+03. Ilya Fly - Night Route (Original Mix) 07:24
+04. Muxxo - Flier Planet (Original Mix) 09:10(   Читать дальше...   )Жанр: TranceПродолжительность: 00:34:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A7B3D89754958699212EA3178AAE534890D285B6
+magnet:?xt=urn:btih:3FFEA014152845967061269E50732E54EBBCFF86
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204759   (784396) от 07.02.2018
+###  Публикация: 1124245   (785984) от 10.04.2017
 
-ARGUS - Field of Dreams (2018) [MP3|320 Kbps] <Balearic, Downtempo, Ambien>
+VA - Quintessence 1st Elixir (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
 >>Electronic
 >>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785984.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Long Gone (08:11)
-02. Ascent & Argus - Glaciers of Oblivion (08:36)
-03. Followed by Light (08:32)
-04. Wind Song (07:55)(   Читать дальше...   )Жанр: Balearic, Downtempo, AmbienПродолжительность: 01:14:37
+01. Maximo Gladius – Summer Love  05:57
+ 02. Durga Amata – Misunderstanding  05:27
+ 03. David James Bianchi – Aqueduct  05:22
+ 04. Cassius Mc Fawner – Bright Cave  04:44(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:42:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92DCA40C3A3036F61E1F56DBA83FF806CCE9130F
+magnet:?xt=urn:btih:CAF1ED448FAA9B935C7E4711F03FCA8D32442D94
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204651   (784395) от 07.02.2018
+###  Публикация: 1124249   (785983) от 10.04.2017
 
-Big Boy Bloater & The Limits - Big Boy Bloater And The Limits (2011) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+VA - Health Regeneration 10th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Ugly Way Of Thinking 3:08
-02. I Heard Those Voices Again 3:11
-03. Fumble Fisted Fool 3:19
-04. Sweet & Brown 2:34(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:31:49
+01. Maximo Gladius — Renaissance [00:06:32]
+02. Jago Alejandro Pascua — Epica [00:06:12]
+03. Mikhail Ovez — Lost Love [00:05:55]
+04. Mark Gaetani — Eighty [00:06:11](   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A54F926C4E7BDE0CBA90B1A4049D0675B5067F5
+magnet:?xt=urn:btih:FFDFCFA5646D73E39A8DEC691420974EC4703274
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,25 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204698   (784394) от 07.02.2018
+###  Публикация: 1123520   (785982) от 10.04.2017
 
-Журнал | House Beautiful [UK] №3 (март 2018) [PDF] [En]
+VA - Miami 2017: The Club Deluxe Edition (2017) [MP3|320 Kbps] <House>
 
->>Журналы
->>Домоводство (журналы)
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784394.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785982.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Журнал "House Beautiful" - одно из ведущих изданий по интерьеру в США. В журнале публикуются лучшие идеи декорирования жилых помещений и кухонь, а также полезные советы по установке бытовой техники. Это должно вдохновить читателей журнала не бояться пробовать что-то новое, принимать смелые решения с цветом и стилями собственных интерьеров.Жанр: Дизайн, архитектура, интерьерФормат: PDF
+01.  Marcel Martenez & Jommes Tatze - Make Me Feel  4:51
+02.  Amoon - Let The Music Play (Extended Mix)  4:57
+03.  Freaky Tricks - Tonight  3:36
+04.  Martin Nocun - Take It To The Top (Extended Mix)  3:56(   Читать дальше...   )Жанр: HouseПродолжительность: 02:00:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5A0295B897A6B8DFBA4D64FF7C90EB37E0BD03AD
+magnet:?xt=urn:btih:9A8EE65D6F6870C8E04E87CFD392299670C5C651
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204658   (784393) от 07.02.2018
+###  Публикация: 1123890   (785981) от 10.04.2017
 
-Big Boy Bloater - Loopy (2014) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+VA - Sunset Chill Out (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785981.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Bear Cat 4:12
-02. Every Path Has Its Puddle 3:08
-03. Pall Bearer's Song 2:58
-04. Bring Her Back To Me 2:47(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:34:48
+01.  Zean Ma - Sunset And You  3:51
+02.  Chill Out Waves - With You  3:57
+03.  Tomas Flari - Ocean Transit (Sunset Lounge Edit)  4:57
+04.  Adam Story - Moments In Love  5:03(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:05:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7EC0A4B5693E93F6578CB879BDA44BCE8BF920DF
+magnet:?xt=urn:btih:A99A57FBABB894C039F53F323E628AAAC182F065
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,28 +143,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204459   (784392) от 07.02.2018
+###  Публикация: 1124154   (785980) от 10.04.2017
 
-Peter Karp & Mick Taylor - The Arson's Match (2015) KarpFoley, Live in NYC [MP3|320 Kbps] <Blues Rock>
+VA - The Sin of Lounge (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Jazz, Blues, Soul
->>Blues, Soul
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785980.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. The Arson's Match (Live) 5:21
-02. Gee Chee Gee Chee Wawa (Live) 6:13
-03. Y'all Be Lookin' (Live) 4:43
-04. The Turning Point (Live) 5:58(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:29
+01. Sweetadelic – Aguas Claras
+02. Rey Salinero – Recuerdos
+03. Jay Jay & The Snakes – Walking In The Sunshine
+04. Diario – Transhumance(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:07:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD2BF84C93531CEDF3F8A4A1B2D95A99536F07B0
+magnet:?xt=urn:btih:6D42975432044E979A190E01AFCE2F0718090059
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -279,27 +172,114 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204912   (784391) от 07.02.2018
+###  Публикация: 1123493   (785979) от 10.04.2017
 
-Н.Е. Чаплина (сост.) | Воспитание души. Календарь для православных родителей на 2018 год (2017) [PDF, DJVU]
+VA - Armada Deep Top 10 April (2017) [MP3|320 Kbps] <House>
 
->>Разное (категория книг)
->>Религиозная литература
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785979.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Календарь «Воспитание души» адресован православным родителям, бабушкам и дедушкам, которые хотят воспитать своего ребёнка в благочестии, чистоте.
+01.  Low Steppa feat. Geneva White - Can't Lie  3:12
+02.  Paige feat. Pipo Fernandez - Push It Back  2:38
+03.  TAI - Found Out  2:52
+04.  Felon - Coming Up (Main Mix)  3:43(   Читать дальше...   )Жанр: HouseПродолжительность: 00:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:936D0A383DAB3EF9D423748641812C6B5E35E8D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123919   (785978) от 10.04.2017
+
+VA - Deep Progressive, Vol. 1 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Manu Riga – Disconnected 07:17
+02. Killerpunkers – You Be My Life (Feat. Miah) 06:05
+03. Kush (MU) – Trigger 07:14
+04. Andy Leavy – Welcome the Darkness 09:22(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:56:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B630C1740278CD5736303FB4E078ED54F8824B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123927   (785977) от 10.04.2017
+
+VA - Waves Vol.5 (Sunset House And Deep Groove) (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marga Sol - Sound Condensing  6:07
+02.  Bequest - Bright Lights  5:29
+03.  Miguel Alcobia - Tram 28  9:22
+04.  Chris.I.Am - Deeper Love (Extended Mix)  5:08(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92BB852ABB6197583126F3CA0532B578715A4692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124294   (785976) от 10.04.2017
+
+Receipts 1.4.5 [En]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785976.jpg" />
+</div>
+
+
+###  Подробнее
+
+Инструмент управления счетами, который может определять сумму, записанную в каждом счете-фактуре, и автоматически упорядочивать записи по поставщику или категории
 
-И не в меньшей степени он будет полезен духовным родителям (крёстным), которые становятся восприемниками чада при Крещении, и также участвуют в воспитании ребёнка, чтобы он вырос верующим православным христианином. Надеемся, (   Читать дальше...   )Жанр: ПравославиеФормат: PDF, DJVU
+Receipts призван помочь вам эффективно управлять и упорядочивать входящие счета: вы импортируете документы, и утилита попытается автоматически определить сумму, преобразовать ее в ссылочную валюту и отсортировать (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 07 апреля 2017Разработчик: Dirk HoltwickПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:390DCB98B2C04CDFE07D28C6052D589107D0F6FA
+magnet:?xt=urn:btih:DA63CC96A201AF1D4F020D600E2359019421ED7B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -307,28 +287,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204888   (784390) от 07.02.2018
+###  Публикация: 1123883   (785975) от 10.04.2017
 
-VA - Empire Records - Bossanova 2 (2018) [MP3|320 Kbps] <Downtempo, Bossanova, Lounge>
+VA - Get Down Chill Out Vol.1 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Konsiglio - Oleico  5:05
+02.  Davide Leonardo - Beginning The Journey  5:55
+03.  Marcus Koch - Isolde  4:05
+04.  Denis Rusnak - Welcome From The Holiday City  6:35(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:04:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751DF25D50FBED07985480E426308B6D1A81369F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124231   (785974) от 10.04.2017
+
+Bumpr 1.1.6 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785974.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это невероятно просто, но невероятно мощно.
+Bumpr - это удобное и красивое приложение для Mac, которое позволяет вам выбирать, где открывать ссылки. Каждый раз, когда вы нажимаете ссылку на веб-страницу, появляется компактное элегантное меню, которое позволяет вам выбрать, с каким браузером следует открывать эту ссылку. Bumpr также работает с почтовыми ссылками. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 13.03.2017Разработчик: Scott OstlerПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C466B48506FE2D9B125255D12680A08596D3C591
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124219   (785973) от 10.04.2017
+
+VA - Tropical House Vol.2 (2017) [MP3|320 Kbps] <House>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785973.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Rainer Schnelle  -  Beyond The Blue (Underscore Version)  2:16
-02.  Surfer  -  South Beach  5:06
-03.  Alyssa ZezZA  -  Purple Rain  3:47
-04.  Classical Jazz Guitar Club  -  Delightful Evening  3:06(   Читать дальше...   )Жанр: Downtempo, Bossanova, LoungeПродолжительность: 02:15:45
+01. Michael Ribeira – La Luna (Gypsetter Mix)
+02. Massimo Vanoni – Flash (Radio Edit)
+03. Davide Mazzara – Cassablanca Rhythm
+04. Ante Perry & Moonbootica – Hold On(   Читать дальше...   )Жанр: HouseПродолжительность: 06:15:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BAEC1D3F415AF2928D1D46757DD1494EDF9FCD93
+magnet:?xt=urn:btih:B3339A1173414867369F284D5370FF34DD3FE614
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -336,26 +372,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204841   (784389) от 07.02.2018
+###  Публикация: 1124082   (785972) от 10.04.2017
 
-Николай Вучетич | Красный фонарь (1911) [PDF]
+VA - Central Agency Of Sound (2017) [MP3|320 Kbps] <House, Deep House>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Electronic
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784389.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785972.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Повести и рассказы о железнодорожниках.
-Для младшего и среднего школьного возраста.Жанр: Детская прозаФормат: PDF
+01.  Michael Ruland - Dreamer (Extended Mix)  6:24
+02.  Mykel Mars - L.A. Nights (Paul Aus Berlin Remix)  5:12
+03.  Suzie Kju - Baby! (Extended Classic Mix)  6:29
+04.  Sounds Of Summer - In My Head (Oh You) (Dub Mix)  6:45(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 05:10:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C84F25D34492858EF829BB5E72A5FAB31A91B8E
+magnet:?xt=urn:btih:9D46C38265FE03E2A21A94CCE62CC8E5E3E7CCED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,28 +401,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204656   (784388) от 07.02.2018
+###  Публикация: 1123500   (785971) от 10.04.2017
 
-Big Boy Bloater & The Limits - The World Explained (2012) Azan Records [MP3|320 Kbps] <Rock&Roll, Blues Rock>
+VA - Armada Miami 2017 (The Club Edition) (2017) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin Van Buuren & Garibay - I Need You (feat. Olaf Blackwood) (Club Mix)  3:17
+02.  Lost Frequencies - What Is Love 2016 (Dimitri Vegas & Like Mike Remix)  3:29
+03.  W&W - Whatcha Need  2:27
+04.  Borgeous & TyDi - Over The Edge (Jay Hardway Remix) (feat. Dia)  3:20(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 01:23:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07B686205DADF26BB37D78696FC82E72B9F31742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124141   (785970) от 10.04.2017
+
+The Naughty Blokes - We Rise (2016) [FLAC|Lossless|WEB-DL|tracks] <British Blues>
 
 >>Jazz, Blues, Soul
->>Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784388.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785970.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Big Boy Bloater британский блюзовый гитарист, певц, автор песен и радиоведущий. Сам музыкант говорит, что его музыка наиболее близка к паб-року 70х. Screamin’ Jay Hawkins и Элвис Костелло, The Ventures и Блонди - таков набор любимых артистов этого музыканта. Его колоритная большая фигура, экспрессивные выступления, полные энергии, привлекли зрителей на многих европейских (   Читать дальше...   )01. Leonard Cohen 3:10
-02. Lifetime Money Back Guarantee 3:19
-03. I Can't Forget About You 4:00
-04. She Gets Naked For A Living 3:35(   Читать дальше...   )Жанр: Rock&Roll, Blues RockПродолжительность: 00:32:14
+01. Heart Attack  (03:40) 
+02. Move You  (03:29) 
+03. Tenderly Loved Woman  (05:31) 
+04. Constantly  (04:01) (   Читать дальше...   )Жанр: British BluesПродолжительность: 00:49:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3224110338112E322845B2E5965BE05CBC098E7B
+magnet:?xt=urn:btih:291F2C75DEF980DF5948A79C93715E75D4D8C6AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -392,25 +459,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204716   (784387) от 07.02.2018
+###  Публикация: 1123571   (785969) от 10.04.2017
 
-Soft4Boost Document Converter 5.2.3.723 [Multi/Ru]
+VA - Spring Break 2017: Dance Hits Selection (2017) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chrizz Morisson - U Got 2 Let The House (Radio Mix)  3:22
+02.  Rinaldo Montezz - Inside Your Heart (Radio Mix) (feat. Kelly Page)  3:32
+03.  Lightwarrior - Ooh Yes! 2k17 (Ray NR Remix)  3:04
+04.  Linda Rocco vs. Andy Stead - You Make Me Feel Good (Dolls Mix)  4:28(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:37:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB2BA0EB6C532021251C5E7D1C494B9A1ACCFB62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124252   (785968) от 10.04.2017
+
+NetWorker - Advanced Network Information App 3.0.0 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784387.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Легкий и функциональный инструмент для просмотра и конвертации документов в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.Язык интерфейса: Русский, Английский, др.
+NetWorker отображает сетевую информацию в строке меню. В нем также есть окно, которое показывает дополнительную информацию о текущем активном сетевом адаптере.
+
+ NetWorker: ● Полностью настраиваемый вид. Вы можете просматривать следующие свойства (поддерживаются загрузка и выгрузка): • Скорость • Ежедневный, месячный и общий трафик • График ● Текущий активный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.04.2017Разработчик: Sascha SimonПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4D4641ECC433F787EBADC13DBFA4C93F80319F6C
+magnet:?xt=urn:btih:373987B412F20B787C04F061E2098AB066A1BAB6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -418,25 +516,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204727   (784386) от 07.02.2018
+###  Публикация: 1123859   (785967) от 10.04.2017
 
-BookmarkApp 1.7.6 [Multi/Ru]
+VA - New York Night Tales: The Best Of Urban Chillout Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Программы для macOS
->>Утилиты для macOS
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BookmarkApp является уникальным и полезным инструментом для организации закладок в Вашем браузере Safari. Все, кто использует Safari в качестве основного браузера имеет много дубликатов закладок. Даже после очистки, во время импорта или добавления новых закладок может появиться также много дубликатов. Цель этого инструмента сделать Ваш Safari чистым и организованным, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.01.2018Разработчик: Ruslan HakimzhanovПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Русский и Английский
+01.  Dragonfly - Downtime In Battery Park  3:29
+02.  The Great Calm - Scraping The Sky  4:50
+03.  Skye Dream - Above Strawberry Fields  4:38
+04.  Henry Kent - Lost On Broadway  6:14(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C50A3F30D7346A874F2E6DD3B9687AE7CCD32CE0
+magnet:?xt=urn:btih:6FC16CAB1DFBE42B37F8246EA6531DCE99070385
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -444,138 +545,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204451   (784385) от 07.02.2018
+###  Публикация: 1124232   (785966) от 10.04.2017
 
-Peter Karp & Sue Foley - Beyond The Crossroads (2012) Blind Pig Records [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784385.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. We're Gonna Make It 2:34
-02. Analyze'n Blues 4:40
-03. Beyond The Crossroads 4:28
-04. Fine Love 3:00(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E6F5679942C11ED4D44F58D1EC232AF1A324142
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204338   (784384) от 07.02.2018
-
-Ученые из России создали новый материал для обшивки космических кораблей
-
->>Поговорим
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Химики из Санкт-Петербурга создали новый материал на базе силикона, который не разрушается при высоких температурах и может послужить одним из ключевых компонентов для обшивки спутников и космических кораблей, говорится в статье, опубликованной в журнале Catalysis Science and Technology."Нам удалось повысить термическую устойчивость силиконового покрытия до (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204465   (784383) от 07.02.2018
-
-Peter Karp - Blue Flame (2018) Rose Cottage Records [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784383.jpg" />
-</div>
-
-
-###  Подробнее
-
-Петр Карп - автор песен, певец, гитарист и клавишник, выступал на местной музыкальной сцене в Нью - Йорке. В его жанре смешиваются арт, блюз, рок, панк стили. Карп отошел от выступлений, и в течение десятилетия путешествовал и обзавелся семьей. Он учился в университете и киношколе, открыл свою собственную производственную компанию в Манхэттене, прежде чем вернулся (   Читать дальше...   )01. Rolling On A Log 4:20
-02. Train O'mine 2:58
-03. Your Prettiness 4:12
-04. Valentine's Day 3:18(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:927C11834FC9A4BF6120621C5A876C5B7551096B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204672   (784382) от 07.02.2018
-
-The Ira B. Liss Big Band Jazz Machine - Tasty Tunes (2018) [MP3|320 Kbps] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Don't Know What Love Is 06:06
-02. Early Autumn 05:39
-03. I Didn't Know What Time It Was 03:27
-04. When The Lady Dances 08:19(   Читать дальше...   )Жанр: JazzПродолжительность: 01:06:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A742790C6FCF224BFB0514CDDC2D9040409609A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204713   (784381) от 07.02.2018
-
-Vivaldi 1.14.1077.45 Final [Multi/Ru]
+1Blocker - Block ads, tracking scripts, anything 1.3 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784381.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785966.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский, др.
+1Blocker - блокировка рекламы
+Не поиск и отсеивание рекламы является целью деятельности данной системы, но мониторинг веб-активности конкретной рабочей станции в целом. В составе 1Blocker более 7000 предактивированных отдельных механизмов и блокираторов, нацеленных на персональных противников. В роли таковых выступают скрипты, всплывающие объявления, роботы аналитических (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 23.03.2017Разработчик: Salavat KhanovПоддерживаемая ОС: OS X 10.11 и вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65667992B991E1469AFA922D8EE028E9ADB4ADB8
+magnet:?xt=urn:btih:E9671D5067FAC3DF970EA6ACF29EE0C9A984119E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,51 +572,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204711   (784380) от 07.02.2018
+###  Публикация: 1124284   (785965) от 10.04.2017
 
-Slimjet 17.0.9.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784380.jpg" />
-</div>
-
-
-###  Подробнее
-
-Одна из альтернатив веб-браузера Google Chrome на основе актуальных версий Chromium и движка Blink. Браузер ориентирован на скорость открытия веб-сайтов, легкую работу в системе и удобство использования. Мощное приложение позволяет быстро и безопасно осуществлять серфинг в Интернете, посещая любимые онлайн-ресурсы и загружая различного рода контент.Язык интерфейса: Русский, Английский, др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D016AE4FBCDC79D6D58AB69C27B64D834DE21B9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204710   (784379) от 07.02.2018
-
-Журнал | Сад своими руками №3 (март 2018) [PDF]
+Газета | Наша Дача №3 (632) (2017) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784379.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785965.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ведущее российское издание о саде. Рассказывает о том, как без помощи специалистов создать свой, неповторимый сад, как ухаживать за растениями, как своими руками построить беседку, сделать дорожки, забор, водоем и многое другое. В каждом номере журнала представлены проекты садов и «энциклопедии» растений, что поможет вам собрать коллекцию практических решений для (   Читать дальше...   )Жанр: СадоводствоФормат: PDF
+«Наша Дача» - газета является официальным печатным Союза садоводов России. Газета затрагивает все области, так или иначе связанные с садоводством, огородничеством, ландшафтным дизайном и здоровьем человека. Постоянные рубрики издания: Дачные советы, Огород без хлопот, Цветы у дома, Наш сад, Домашнему мастеру, Домашние питомцы, Здоровье дачника, Кулинарные шедевры, (   Читать дальше...   )Жанр: Сад, огородФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58111575DC990518585D0A351CFEC133A6102F60
+magnet:?xt=urn:btih:89510FDBB86EF68B7F07331EF8B43D3B5342C39D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,25 +598,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204691   (784378) от 07.02.2018
+###  Публикация: 1124324   (785964) от 10.04.2017
 
-Журнал | InfoCity №1 (123) (январь 2018) [PDF] [Ru,Az]
+VA - Ultimate Chill Out: 01 The Best Downtempo Tracks and Mixes (2017) [MP3|320 Kbps] <Chill Out, Downtempo, Balearic>
 
->>Журналы
->>Компьютерные журналы
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784378.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785964.jpg" />
 </div>
 
 
 ###  Подробнее
 
-InfoCity - Азербайджанский ежемесячный журнал о технике и технологиях выпускается с ноября 2007 г. На страницах журнала InfoCity вы найдете информацию о компьютерах, технике и новых технологиях. Штат журналистов тщательно набирается из лиц, уже публиковавшихся на данную тематику, с высшим техническим и экономическим образованием или имевших опыт работы в маркетинговых (   Читать дальше...   )Жанр: Компьютерные журналыФормат: PDF
+01. Keyzero 1 - Blue
+02. The "K" - Break Pants
+03. Cyclopedia - Heaven
+04. Sandstorm - In The Waiting Line(   Читать дальше...   )Жанр: Chill Out, Downtempo, BalearicПродолжительность: 01:06:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C26809CC9E83CA1AA1B30F2A9963CF5048D7CBE
+magnet:?xt=urn:btih:C9283B26F87FE61427374D3FA8581480FDA5EEDB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -661,28 +627,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204726   (784377) от 07.02.2018
+###  Публикация: 1124133   (785963) от 10.04.2017
 
-VirusKiller Antivirus 4.1.7 [En]
+Pee Wee Crayton - Things I Used To Do (1971) [FLAC|Lossless|image + .cue] <Blues>
 
->>Программы для macOS
->>Утилиты для macOS
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784377.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785963.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Endurance Antivirus - Adware & Malware антивирус.
-" ... проведенное исследование группы независимых разработчиков, в области антивирусной безопасности, - атаки на системы с macOS в 2017 г. увеличились на 78% (что несомненно говорит, о все растущей популярности компьютеров Mac)."
-
-Приложение тщательно сканирует все файлы и папки в вашей системе. Уникальный (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2018Разработчик: EDELWEISS SRLПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+01. Every Night  (02:50) 
+02. But On The Other Hand  (04:06) 
+03. Peace Of Mind  (02:54) 
+04. Let The Good Times Roll  (02:50) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4408FE0DCDA2FCA61983AE98F2C9ABA76FBCEEB2
+magnet:?xt=urn:btih:0FA4DC15530231ADD486FF78EF3C43E0B3DE663C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,25 +656,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1204761   (784376) от 07.02.2018
+###  Публикация: 1123745   (785962) от 10.04.2017
 
-Vivaldi 1.14.1077.45 Portable by Cento8 [Ru/En]
+VA - Ibiza's Finest - Lounge Vol.4 (Finest Lounge From The Island Of Love) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Архив торрентов
->>Архив Программ
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784376.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785962.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto.Язык интерфейса: Русский, Английский
+01.  Chris Le Blanc - Flor De Vida  5:05
+02.  Roberto Sol - Miles Beyond  4:37
+03.  Florito - Loungery  4:35
+04.  Chin Chiller - Moussique Au Chocolat  4:28(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2D3E3467535F337BB253D01DECFEC7DD43ED4CF8
+magnet:?xt=urn:btih:AC160F5923237F7B758B5E9A9881C824E2EC03DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124346   (785961) от 10.04.2017
+
+Showaddywaddy - Showaddywaddy (1974) [MP3|320 Kbps] <Rock & Roll, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey Rock And Roll
+02. Bony Maronie
+03. Johnny Remember Me
+04. Temptation(   Читать дальше...   )Жанр: Rock & Roll, GlamПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4573D98C97E1FB98CB7C5BA034521CA5F9749B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124203   (785960) от 10.04.2017
+
+VA - Music For Peaceful Sleep (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785960.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  351 Lake Shore Drive - Black Coffee  5:23
+002.  Lazy Hammock - Naked Being  4:42
+003.  Javier Orlando - Deep In My Corazon (Martin Trevis Remix)  5:16
+004.  Velvet Dreamer - Night Raindrops  5:01(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:14:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9807ED91E1723E8A1086424D3C8B6FDB589D1E02
 ```
 
 https://mybot314.ru/tekegram_catalog/

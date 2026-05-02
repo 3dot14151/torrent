@@ -1,3 +1,256 @@
+###  Публикация: 1175610   (376785) от 19.10.2017
+
+Футбол. Лига Чемпионов УЕФА 2017-2018. Группа E. 3-й тур. Марибор (Словения) – Ливерпуль (Англия) (17.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376785.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 октября 2017 года, вторник. 21:45 МСК
+Лига Чемпионов УЕФА 2017-2018. Групповой турнир
+Группа E. 3-й тур
+Марибор (Марибор, Словения) – Ливерпуль (Ливерпуль, Англия)(   Читать дальше...   )Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0345204C083B06A8822809ABFE499A4426B01341
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175440   (376783) от 19.10.2017
+
+Футбол. РФПЛ. Чемпионат России 2017-2018. Обзор матчей 13-го тура (16.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376783.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 октября 2017 года, понедельник
+РФПЛ. Чемпионат России 2017 - 2018. Обзор матчей 13-го тура
+13.10.2017, 19:30 МСК	Ахмат – Спартак М
+14.10.2017, 14:00 МСК	Динамо М – СКА-Хабаровск(   Читать дальше...   )Телекомпания: Матч! Наш ФутболЖанр: Телепередача, СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658C27997C29C6A1DFE85F994F6EF8A685262615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175648   (376782) от 19.10.2017
+
+Футбол. Лига Чемпионов УЕФА 2017-2018. Группа F. 3-й тур. Манчестер Сити (Англия) – Наполи (Италия) (17.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376782.jpg" />
+</div>
+
+
+###  Подробнее
+
+17 октября 2017 года, вторник. 21:45 МСК
+Лига Чемпионов УЕФА 2017-2018. Групповой турнир
+Группа F. 3-й тур
+Манчестер Сити (Манчестер, Англия) – Наполи (Неаполь, Италия)(   Читать дальше...   )Телекомпания: Матч! Футбол 2 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:52:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF6AFE94C13EB905279AF72184348E71E3352EA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175683   (376778) от 19.10.2017
+
+Fantastical 2.4.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376778.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fantastical 2 — продвинутый календарь-органайзер для Mac OS X
+Fantastical - приложение представляет собой календарь, располагающийся в строке меню, с возможностью добавления событий сопровождаемых звуками и сообщениями, без непосредственного доступа к приложению iCal, что несомненно удобно в процессе ежедневной работы.
+
+Основным отличием от аналогичных программ такого (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.10.2017Разработчик: Flexibits Inc.Поддерживаемая ОС: macOS 10.11 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08704D1124846369BCACBA9488F66CA57CE846AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175669   (376772) от 19.10.2017
+
+VA - Spring Tube vs Easy Summer Vol.21 (2017) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Chris Zent - Forward Thinking (Original Mix)  4:44
+02.  Lev Kitkin - Azure (Original Mix)  2:27
+03.  Seven24, S.A.T & Allam - Infinity (Original Mix)  4:55
+04.  Mint & Peck - Arcaico (Original Mix)  7:35(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 00:40:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10EC6A8745D25B221CD0F46ACBA9AE63A97E2A4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175009   (376771) от 19.10.2017
+
+Monster Energy Nascar Cup Series-2017, Этап 31 - Alabama 500, Talladega Superspeedway (2017) WEB-DL [H.264/720p-LQ] [VO]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376771.jpg" />
+</div>
+
+
+###  Подробнее
+
+31 этап Monster Energy Nascar Cup Series, Talladega Superspeedway, Alabama 500 (188 laps, 500 miles).Телекомпания: Premier SportsЖанр: СпортПеревод: Двуголосый закадровый, любительскийПродолжительность: 04:53:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:866DC0BBCDF7DC099F88B39FF50B5B7B425EBC3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175597   (376767) от 19.10.2017
+
+Oshy - Say No (2017) [MP3|320 kbps] <Drum'n'Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say No (6:37)
+02. Inside (6:25)Жанр: Drum'n'BassПродолжительность: 00:13:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C537BC16E22B2D04F98A1958D1327E11BA063FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175380   (376766) от 19.10.2017
+
+VA - Amsterdam Dance Essentials Trance (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376766.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  PARITY - Emerald (Extended Mix)  6:04
+02.  Paul Arcane - Synergy (Original Mix)  6:00
+03.  Formal One & GET MASSIVE - Yearn (Original Mix)  3:35
+04.  Chapter XJ - Neon (Original Mix)  8:15(   Читать дальше...   )Жанр: TranceПродолжительность: 02:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA5E29A6BFACC631956D21E39309C25381399E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949533   (376736) от 23.10.2015
+
+Macgo Windows Blu-ray Player 2.16.7.2121 RePack (& Portable) by AlekseyPopovv [Multi/Rus]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376736.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Blu-ray Player – это лучший проигрыватель для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в ОС Windows. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает производительность при умеренном (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9C0F0984A5C8C28D8F65155FF2FC745873A1A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 934826   (376734) от 23.10.2015
 
 Devo - Icon Pack 4.1.1 [En]
@@ -455,268 +708,6 @@ Best HD Wallpapers Pack (12.11.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:57C31115A0631E2EED57F6E528EFB11C696D441A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574437   (376671) от 12.11.2012
-
-Truth - Machine (2008) [MP3|320 кб/с]<Hard Rock | Blues-Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom
-02. Respect
-03. Over And Over
-04. Generation Stupid
-05. Machine
-06. Hold Out
-07. Stand In Line
-08. Angel
-09. Can I Be Forgiven
-10. Big Al(   Читать дальше...   )Жанр: Hard Rock | Blues-RockПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCFA019B9ACD9E73EFBFAB599C2AAD232C72AF37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574263   (376669) от 12.11.2012
-
-VA - Vocal Trance Temptation Volume 10 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376669.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Vocal Trance Temptation Volume 10 (2012)
-Год: 2012
-Жанр: Vocal Trance
-Продолжительность: 02:59:21Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:001. Wiegel Meirmans Snitker - Nova Zembla (Armin Van Buuren Remix)
-002. Masoud feat. Nicole McKenna - Fix The Broken (Original Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B62498D290A85C7500E8E4876F72F0A06BAD66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175611   (376640) от 19.10.2017
-
-Rainforest - Motion (2016) EP [MP3|320 kbps] <Drum'n'Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376640.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beloved (6:15)
-02. Canton Dub (4:36)
-03. Once (5:55)
-04. Slow Motion (6:45)(   Читать дальше...   )Жанр: Drum'n'BassПродолжительность: 00:28:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884EF9FB3663A2F1063D483374D86707079CF91B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175735   (376638) от 19.10.2017
-
-CoolUtils Total Audio Converter 5.2.0.157 RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376638.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Audio Converter - мощный конвертор всех музыкальных форматов файлов и возможностью CD-риппинга. Программа поддерживает теги ID3 и CUE файлы, преобразовывает аудиотреки без создания промежуточного WAV файла, работает в пакетном режиме, имеет высокую скорость работы, по завершении процесса позволяет проиграть файл, а наличие понятного русскоязычного двупанельного (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:171155D0AF23BCA59C4CD5EF91B38B77A07870CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175603   (376634) от 19.10.2017
-
-Pennygiles - Momentary Switch/Attack Of The Jazzy Goth (2012) [MP3|320 kbps] <Drum'n'Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376634.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Momentary Switch (5:57)
-02. Attack Of The Jazzy Goth (7:19)Жанр: Drum'n'BassПродолжительность: 00:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B05FC3197BEF4CA220AA74D30534BC5D19D8AF9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175599   (376630) от 19.10.2017
-
-Mitekiss - Some People (2017) EP [MP3|320 kbps] <Drum'n'Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empire ft. Mr Porter (5:09)
-02. Forma (5:20)
-03. Some People (4:34)
-04. Who's There ft. Jerome Thomas & Mr Porter (5:30)Жанр: Electronic, Drum'n'BassПродолжительность: 00:20:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:507EB617F3EA0FF702BF326B662DC50300ABF575
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175594   (376623) от 19.10.2017
-
-Ivy Lab - Fortuna (2016) EP [MP3|320 kbps] <Drum'n'Bass, Bass Music, Trap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ivy Lab – Can't Say No (feat. Roses Gabor) (3:47)
-02. Ivy Lab & Alix Perez – Fortuna (3:56)
-03. Ivy Lab – Salt Toffee (4:11)
-04. Ivy Lab & Tim Parker – U Smart (4:10)(   Читать дальше...   )Жанр: Drum'n'Bass, Bass Music, TrapПродолжительность: 00:23:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4BE2713264785B99D34AE48341FEE468DB6A02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1327355   (376615) от 24.09.2019
-
-MediaHuman YouTube Downloader 3.9.9.23 (1809) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376615.jpg" />
-</div>
-
-
-###  Подробнее
-
-MediaHuman YouTube Downloader - удобное приложение с помощью которого можно быстро и легко загрузить понравившийся видеоклип или трейлер с YouTube, и сохранить его на ПК в любом доступном формате. Достаточно добавить ссылку на ролик, выбрать качество скачиваемого видео, указать необходимый формат и начать загрузку. Кроме того программа может отслеживать буфер обмена, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B2E1155B44D698F85C94BED06F57175B076FA65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068176   (376607) от 03.11.2016
-
-Фигурное катание. Гран-при сезона 2016-2017 "Skate America-2016". Танцы. Короткая программа (22.10.2016) HDTVRip [H.264/720p-LQ][hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376607.jpg" />
-</div>
-
-
-###  Подробнее
-
-23 октября 2016. 03:00 МСК
-1 Этап серии Гран-при сезона 2016-2017
-"Skate America - 2016". Чикаго (США).
-Танцы. Короткая программаТелекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийПродолжительность: 01:17:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4BEE56A7CFC7F9B551BC113807D5C8EB38275F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

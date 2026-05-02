@@ -1,3 +1,61 @@
+###  Публикация: 1507443   (798457) от 04.11.2021
+
+VA - A Synthwave Panorama Vol. 2 (2018) by Gertrudda [MP3|320 Kbps] <Synthwave, Retrowave, Outrun>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pilotpriest - Miracle Mile (Gertrudda Edit) (7:45)
+02. Mr. McNoggin - Desire (4:11)
+03. AM 1984 - Red Sunset (4:55)
+04. N-THONY-N - Bells (6:35)(   Читать дальше...   )Жанр: Synthwave, Retrowave, OutrunПродолжительность: 02:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E9F8B6E929A77162D5D0A43554D1B3A781A765B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507294   (798456) от 04.11.2021
+
+VA - Funky House: Sunday Mixtape (2021) [MP3|320 Kbps] <Funky, Disco House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798456.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Soul Power - Supa Fly
+002. Frank Montana - Rokit
+003. Guillaume - The Chase
+004. Anacca Jez - Cntrol(   Читать дальше...   )Жанр: Funky, Disco House, ElectroПродолжительность: 09:22:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F943DEACC3CE62AE6198F6637BE7B33A1B8BE130
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1507288   (798453) от 04.11.2021
 
 VA - Beatport Organic House: Sound Pack #361 (2021) [MP3|320 Kbps] <Organic, Deep House>
@@ -690,64 +748,6 @@ VA - Romantic Flight In A Dream (2016) [MP3|320 кб/с] <Downtempo, Chillout, L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9FAC07987CDA5C3CE4FB590D0EF7EE3A9CC7FB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011235   (797017) от 27.04.2016
-
-VA - BacauHouseMafia vol.12 (2016) [MP3|128-320 кб/с] <House, Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797017.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 4Handz -  Build It Up (Original Mix)  4:38
-002. Adam B -  Alamo (Original Mix)  4:56
-003. After12 -  Mamacita (Original Mix)  4:15
-004. Ahzee & Faydee -  Burn It Down (Extended Mix)  3:40(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 13:14:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EB65513B0B9E8173FE55CBF821E40855B75EB8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011438   (797016) от 27.04.2016
-
-VA - Laserdance-Covers and Mixes (2016) [MP3|256-320 кб/с] <Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ernesto - Into The Night (Laserdance Cover) (08:31)
-02. Spiral - Around The Planet (Laserdance Cover) (04:01)
-03. Galactic Warriors - You And Me (Laserdance Cover) (05:33)
-04. Amateras - New Adventure (Laserdance Cover) (05:33)(   Читать дальше...   )Жанр: SpacesynthПродолжительность: 01:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:907F3D0EE96364EAEFAC4E734BE1266CAEF9FB68
 ```
 
 https://mybot314.ru/tekegram_catalog/

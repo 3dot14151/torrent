@@ -1,3 +1,177 @@
+###  Публикация: 1709105   (112882) от 23.03.2024
+
+Надежда Чепрага - Только ты (1984) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+01. Человеческий голос (Е. Дога — Р. Рождественский) — 3.18
+02. Симфония чувств (Ион Алдя Теодорович — Г. Виеру) — 3.54
+03. Только ты (А. Корач — С. Гимпу, русский текст И. Вадикова) — 3.34(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0437C4D1D4AA70B628BC6045518493B76C3E4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709097   (112873) от 23.03.2024
+
+Маша Распутина - Городская сумасшедшая (1991) [FLAC 24/192|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112873.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1:
+01. Гималаи (А. Лукьянов)
+02. Клава (М. Дунаевский)
+03. Я тоже жить хочу (И. Кружалин)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7462D3649E060AE80A92746330BB9E9DBDEC4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709186   (112863) от 23.03.2024
+
+Dordeduh - Har (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Timpul Întâilor
+A2 În Vieliștea Uitării
+B1 Descânt
+B2 Calea Magilor(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19FEDA8EAC7E3492346DE230196B56C9576FABCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709183   (112860) от 23.03.2024
+
+Dordeduh - Dar de duh (2012) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Folk, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112860.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Jind De Tronuri
+A2 Flăcărarii
+B1 E-an-na
+B2 Calea Roților De Foc(   Читать дальше...   )Жанр: Atmospheric Folk, Black MetalПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626709864ED2E064B0F7A13053F129C6FDBDDD1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709109   (112855) от 23.03.2024
+
+Bruce Dickinson - Tyranny of Souls (2005) Reissue, 2017, BMG [FLAC|24/192|tracks|Vinyl-Rip] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mars Within (Intro)
+02. Abduction
+03. Soul Intruders
+04. Kill Devil Hill(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D096B08FC05D3CBF574BEBF6C6693AA225CEAF88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1709141   (112852) от 23.03.2024
+
+Almanac (Victor Smolski) - Studio Albums (6 releases) (2000-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal, Heavy Metal, Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112852.jpg" />
+</div>
+
+
+###  Подробнее
+
+Almanac — неоклассическая метал-группа из Германии, основанная в 2015 году гитаристом, продюсером и композитором белорусского происхождения Виктором Смольским.2016 - Tsar
+2017 - Kingslayer
+2020 - Rush Of Death
+& Victor Smolski solo albumsЖанр: Power/Heavy/Progressive MetalПродолжительность: 05:06:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9549FC32DFE49AE358E1C6E05C1C2D68031BB00C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1709396   (112844) от 24.03.2024
 
 Новая коллекция - Край наших надежд (1990) [FLAC 24/192|Lossless|tracks] <Electronic, Pop>
@@ -570,177 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FEA8D2A14151DCE3F81C3BDAE081E59736F9F63F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1713681   (111867) от 06.04.2024
-
-The Bravery - Studio Albums (3 releases) (2005-2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-punk Revival>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111867.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Bravery — американская рок-группа из Нью-Йорка.2005 - The Bravery
-2008 - The Sun And The Moon Complete
-2009 - Stir the BloodЖанр: Post-punk RevivalПродолжительность: 02:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD05AD42A0C4186167B8C21AA8E32A632276429F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714072   (111773) от 08.04.2024
-
-Bobby Lee Springfield - All Fired Up (1987) [FLAC 2.0|24/192|image+.cue|Vinyl-Rip] <Country, Country Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111773.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Hank Drank
-A2 Teenage Darling
-A3 Chain Gang
-A4 I Need A Girlfriend(   Читать дальше...   )Жанр: Country, Country RockПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B167C450BBC6E684F1A75FDE03105DF41B7A2740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714647   (111668) от 10.04.2024
-
-«Joshua» (Joshua Perahia) - Surrender (1986) [FLAC 2.0|24/192|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111668.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Surrender Love
-A2 Heart Full Of Soul
-A3 Your Love Is Gone
-A4 Hold On(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:36:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06A1ADDB93E540F98C41D3907E4604ADB9190AFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714835   (111663) от 10.04.2024
-
-Storm - Nordavind (1995) [WavPack|32/192|image + .cue|Vinyl-Rip] <Viking, Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111663.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Innferd
-A2 Mellom Bakkar Og Berg
-A3 Haavard Hedde
-A4 Villemann(   Читать дальше...   )Жанр: Viking, Folk MetalПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:803909040C1D0BD7241CE5C5CCE490680BBB9E53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1714946   (111605) от 11.04.2024
-
-Periphery - Studio Albums (9 releases) (2010-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive/Math Metal, Djent>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Periphery — американская группа, играющая в жанре прогрессивный метал. Возникла в 2005 году в городе Бетесда. Группа популяризовала современный прогрессивный метал, в особенности поджанр джент.2010 - Periphery
-2011 - Icarus (EP)
-2012 - Periphery II: This Time It's Personal
-2014 - Clear (EP)Жанр: Progressive/Math Metal, DjentПродолжительность: 08:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC09D39B5C765154131DE943D3A59AD10BBD084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715848   (111466) от 13.04.2024
-
-S-Tool (Severing Tool) - Studio Albums (2 releases) (2017-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111466.jpg" />
-</div>
-
-
-###  Подробнее
-
-S-Tool (или Severing Tool) — финская хэви-метал группа, базирующаяся в Оулу/Лахти/Хельсинки. Основана в 2015 году бывшим фронтменом2017 - Tolerance 0
-2020 - ExitusЖанр: Groove MetalПродолжительность: 01:15:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8980719678D04F84F44C138422433D0A65FC56F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1307657   (554925) от 10.06.2019
+
+VA - Spiritual Chillout (2004) Compilation [FLAC|Lossless|tracks + .cue] <Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lesiëm - Humitas (04:06)
+02. Mysteria - In my Soul (04:56)
+03. Govinda - Love Gitch (05:23)
+04. Makyo - Chandan (07:13)(   Читать дальше...   )Жанр: DowntempoПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3308FA61AD4C0F2B71AF7CCCD5657D35703170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046138   (552925) от 26.08.2016
+
+Thomas Lemmer - Pure (2016) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Lounge, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Beginning (4:25)
+02. The Infinite (5:43)
+03. Ah! (4:38)
+04. Lost (feat. Tina Sona) (3:40)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21A53D910FE712A8A0DB10CC10D53E55DEA218B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1008358   (551304) от 24.07.2018
+
+Bliss - Discography 8 Releases (2001-2013) Denmark [FLAC|Lossless|tracks+.cue, tracks] <Downtempo, Ambient, Chillout, Lounge, Modern Classical>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Mamounia Theme (Cello Solo) (01:50)
+ 02. Desert Sun (06:02)
+ 03. Marrakech (00:27)
+ 04. The Atlas Mountains (Reprise) (03:08)(   Читать дальше...   )Тип издания: CD, Web •Жанр: Downtempo, Ambient, Chillout, Lounge, Modern Classical •Продолжительность: 01:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35ACE7BC696830CEDDD4E37020BFEEFB714F12CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237648   (550651) от 25.07.2018
+
+Super Sapien - Ethereon (2018) WoNKed Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550651.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catharsis (06:26)
+02. Bittersweet (04:40)
+03. Grey Sky (06:24)
+04. Midnight (05:06)(   Читать дальше...   )Жанр: Downtempo, AmbientПродолжительность: 00:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C551DCC5516EEFCFDE1445EA416015860ED5BF34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237657   (550638) от 25.07.2018
 
 Super Sapien - Awakening (2017) WoNKed Records [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Ambient>
@@ -628,127 +744,6 @@ Rekevin - A Peacock (2008) [FLAC|Lossless]<Trip Hop, Acid Jazz, Downtempo, Easy 
 08. Forget Him :: 05:47
 09. What's The Matter :: 04:05
 10. Feed Her :: 11:15Жанр: Trip Hop, Acid Jazz, Downtempo, Easy ListeningФормат: CD, AlbumПродолжительность: 00:54:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 932215   (509273) от 29.08.2015
-
-VA - Mystic & Secret (2010) 2CD[FLAC|tracks + .cue]<Chill Out, New Age, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Era - Sombre Day  [3:42]
-  02.  Sherrie Lea - No Ordinary Love (Arnold T Chill Mix)  [5:53]
-  03.  Bliss - Kissing   [6:03]
-  04.  Schiller mit Anggun - Blind  [4:50](   Читать дальше...   )Жанр: Chill Out, New Age, DowntempoПродолжительность: 02:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DB2B2CCCC756C86A66B8977E14080ECFBC2EC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562496   (509030) от 09.07.2022
-
-V.A. - Relaxing Music Therapy (2022) [FLAC|Lossless|WEB-DL|tracks] <Chill Out, Downtempo, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_509030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Wave - Inside Us
-02. Kalokagathia Union - Fair Enough
-03. Quadra Montres - Enticing Tales
-04. Miethe - Eagerness(   Читать дальше...   )Жанр: Chill Out, Downtempo, LoungeПродолжительность: 01:56:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2ADD08C26E02CFAE03B1613E0EF970E7091563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1563509   (504478) от 14.07.2022
-
-VA - Bittersweet Beats: Chillout Your Mind (2022) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504478.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marc Hartman - Six String Jam (Original Mix) (5:14)
-02. Living Room - Like an Old Jazz Records (3:07)
-03. Funkdust - Jazz Dub (Original Mix) (2:55)
-04. Martin Liege - Bittersweet (Original Mix) (4:22)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:11:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7B17C0173641750277D3AEE5DD370317746F69C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542106   (499959) от 01.09.2012
-
-The Cinematic Orchestra - Discography (1999-2010) 8 Альбомов [FLAC|Lossless]<Soul Jazz, Future Jazz, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499959.jpg" />
-</div>
-
-
-###  Подробнее
-
-Удачно названный Кинематографический Оркестр возглавляется композитором, программистом, мульти-инструменталистом Джейсоном Свинскоу, сформировавшим свою первую группу, Crabladder, в 1990 году, будучи еще судентом арт-студии колледжа в Кардиффе. Сплав джаза, хардкора и элементов панка с эксперементальными ритмами, составлявший музыку Crabladder, вдохновил Свинскоу использовать и в будушем преймущества сэмплирования. И к моменту распада Crabladder в середине девяностых, Джейсон профессионально диджеил во многих клубах и на пиратских станциях по всей Великобритании.Альбомы:
-1999 - Motion
-2000 - Remixes 98-2000
-2002 - Everyday
-2003 - Man With A Movie Camera
-2007 - Ma Fleur
-2008 - Live At The Royal Albert Hall
-2008 - The Crimson Wing - Mystery Of The Flamingos
-2010 - LateNightTales - The Cinematic OrchestraЖанр: Soul Jazz, Future Jazz, DowntempoФормат: CD, AlbumsПродолжительность: 07:40:01
 
 ## Скачать торент
 ```bash

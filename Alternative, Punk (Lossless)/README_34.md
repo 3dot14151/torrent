@@ -1,3 +1,61 @@
+###  Публикация: 1562226   (511557) от 08.07.2022
+
+Greylotus - Dawnfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore, Technical Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511557.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rectilinear Motion
+2. Shadow Archetype
+3. Currents
+4. Chiaroscuro(   Читать дальше...   )Жанр: Progressive Deathcore, Technical Death MetalПродолжительность: 00:44:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABAAAC0B6AD3D9E77BAB48472A42935042ADC75A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562223   (511549) от 08.07.2022
+
+The Machinist - All is Not Well (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511549.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. PIG
+2. Mother Earth
+3. All is Not Well
+4. Hourglass(   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 00:33:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E75C47F67CBF2DECB2666313D15A074990811B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562217   (511543) от 08.07.2022
 
 (Hed) P.E. & Dropout Kings - Last Ones Standing (Split) (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Experimental, Hardcore Hip-Hop, Metalcore>
@@ -685,64 +743,6 @@ Hail The Ghost - Forsaken (2015) [FLAC|Lossless|WEB-DL]<alternative rock, indie>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFCCF8BFBFB8B7FB381B905485C391EA0F479ACC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 935447   (498415) от 09.09.2015
-
-Circa Waves - Young Chasers (2015) [FLAC|Lossless|WEB-DL]<Alternetive Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498415.jpg" />
-</div>
-
-
-###  Подробнее
-
-1	Get Away
-2	T-Shirt Weather
-3	Fossils
-4	Lost It(   Читать дальше...   )Жанр: Alternetive Rock, Indie RockПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE3F97B5B5F26A6D822E702072C8BA6C7718B864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564874   (497734) от 21.07.2022
-
-Glass Tides - Wake Me Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wake Me Up
-02. Paranoia
-03. Enough (feat. Will King)
-04. Without You(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:28:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53584BBC2653DA15C8AC349786D2F7CAA2834555
 ```
 
 https://mybot314.ru/tekegram_catalog/

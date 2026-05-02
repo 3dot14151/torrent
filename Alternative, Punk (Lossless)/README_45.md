@@ -1,3 +1,61 @@
+###  Публикация: 841002   (330997) от 15.11.2014
+
+Nickelback - No Fixed Address (2014) [FLAC|Lossless|WEB-DL]<Rock, Alternative Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Million Miles An Hour (4:11)
+02. Edge Of A Revolution (4:04)
+03. What Are You Waiting For? (3:39)
+04. She Keeps Me Up (3:58)(   Читать дальше...   )Жанр: Rock, Alternative Rock, Post-GrungeПродолжительность: 00:43:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19F23A9C11FC83DB66BF3674C72513552B37F4D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580519   (330811) от 01.10.2022
+
+Icon For Hire - 5 Albums (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_330811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список Альбомов:
+2011 - Scripted
+2013 - Icon for Hire
+2016 - You Can't Kill Us(   Читать дальше...   )Жанр: Alt. Rock, Female VocalПродолжительность: 03:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FB65B615DE0009D63F8DBEBDEE401886B4BF55A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956197   (330383) от 14.11.2015
 
 Hedley - Storms (2011) Deluxe Edition [FLAC|tracks+.cue]<Alt Rock, Pop Rock>
@@ -683,64 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A850B524F7E52A012ECF22C81E450FE0CC77D9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958718   (317200) от 24.11.2015
-
-Limp Bizkit - Интервью с Фредом Дерстом на радио ULTRA (22.11.2015) [FLAC|Lossless]<Nu-Metal, Rapcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лидер LIMP BIZKIT, ставших иконой ню-метала и объединивших рэп и металл, ответит на вопросы ULTRA-слушателей и поклонников группы, расскажет о том, каким будет новый альбом и почему он любит Россию. Песни, которые звучат в программе, были выбраны самим Фредом Дерстом!1. Take A Look Around
-2. Behind Blue Eyes
-3. Gold Cobra
-4. Rollin(   Читать дальше...   )Жанр: Nu-Metal, RapcoreПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECC7C9F3A9804B51F0E2E32508BB3E30BF7BB71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259784   (316919) от 05.11.2018
-
-Crazy Backwards Alphabet - Crazy Backwards Alphabet (1987) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Avantgarde, Free Improvisation>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blood and the Ink (5:05)
- 02. Det Enda Raka? (2:02)
- 03. Get To You (4:34)
- 04. The Welfare Elite (3:56)(   Читать дальше...   )Жанр: Alternative Rock, Avantgarde, Free ImprovisationПродолжительность: 01:06:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EAFB80124E77BA10B524EA5220FF5512FA53C00
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,143 @@
+###  Публикация: 488099   (90941) от 26.04.2012
+
+VA - Золотые Хиты Кавказа 2 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мурат Тхагалегов - Одинокий волк
+02. Азамат Биштов - Горький чай
+03. Лаурита Ашуева - Пропадаю
+04. Азамат Пхешхов - Холостяк
+05. Марина Алиева - Горный край
+06. Анжелика Начесова - По законам гор
+07. Тельман - Ты и я
+08. Анора - Сын Кавказа
+09. Джанибек Рамазанов - Зачем тебе моя любовь
+10. Мурат Тхагалегов - Не уходи2012Жанр: PopПродолжительность: 06:06:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADF55F50652DEB3D35E78533526CCF7007A08747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487695   (90649) от 25.04.2012
+
+VA - Хит FM Top Music (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 Бьянка - Весна-Лето 3
+002 Sak Noel - Where
+003 DJ Richi - Пляж (Radio Mix)
+004 Lucenzo Feat. Don Omar - Danza Kuduro
+005 Oksi - Раскали Меня
+006 Tiesto - What Can We Do (A Deeper Love) (Radio Edit)
+007 Vesna - Лучший Поцелуй
+008 Rene Rodrigezz - House Rider (Album Edit)
+009 5sta Family - Дождь Плачет
+010 Jay Sean feat. Pitbull - I'm All Yours2012Жанр: PopПродолжительность: 06:23:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C099B75C8234FB07EF51C4D3E3911619F52CBC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487555   (90580) от 25.04.2012
+
+VA - Звездная Дискотека Хит FM (2012) [MP3|256 кб/с]<Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90580.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Дима Билан - Та Не Бывает
+002. Belmond & Parker - Mad World (Sotty Remix)
+003. Izo Feat. Крис Кельми - Ночное Рандеву
+004. Dj Bobo - Dead Or Alive
+005. Банд'эрос - Эти Сумасшедшие Ночи
+006. Alex Mica - Dalinda (Radio Edit)
+007. Валерий Власов - Пусть Влетит В Ваш Дом Удача!
+008. Beyonce - Countdown (Billionaire Remix Radio Edit)
+009. Ани Лорак - Ищу Тебя
+010. Robert M - Heart Beat (Radio Edit)(   Читать дальше...   )2012Жанр: РорПродолжительность: 05:48:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05961F8BAB9552341B1A5D72E3A5A81809D5FF61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 487603   (90412) от 24.04.2012
+
+VA - В Машину! Русский Vol.2 (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Евгений Белозеров - Разбитое Сердце
+02. Soda - Разлука
+03. DJ Настя Крайнова - Я это ты
+04. Titan Brothers - Мне Надо
+05. Лоя - Розы Темно-алые
+06. Ани Лорак - Обними Меня
+07. 5ivesta Family - Тук-Тук (Alex Menco Remix)
+08. Киевэлектро - Поцелуй
+09. Арина и Размер Project - My Moscow Love
+10. Марка (Марк Савин) - Я Не Жалею2012Жанр: PopПродолжительность: 05:55:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B05B399A0FB1C855B836EECD4F80B23E611C7357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 486290   (90023) от 22.04.2012
 
 VA - Лучшие Хиты Радио DFm Часть 8 (2012) [MP3|256 кб/с]<Pop>
@@ -761,146 +901,6 @@ VA - 100 Most Beautiful Love Songs (2006) [MP3|320 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A795B8226E1D3B074305FC8F3E3BC3678DD902F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479629   (87361) от 09.04.2012
-
-VA - В Машину! Зарубежный (2012) [MP3|256 kbps]<Pop | Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pitbull feat. Havana Brown - We Run The Night
-02. Red Hot Chili Peppers - Monarchy Of Roses
-03. Kelly Clarkson - Hello
-04. Robert M - Black Cherry
-05. Polina Griffith & Miami Kidz - Feeling This Way
-06. Mike Candys & Evelyn & Patrick Miller - One Night In Ibiza
-07. Christina Perri - Jar Of Hearts
-08. Deepside Deejays - Stay With Me Tonight
-09. Sunstroke Project & Offbeat - Epic Sax
-10. Rihanna feat. Calvin Harris - We Found Love(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 06:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D26B0935A3DE7DCE366E3FF866BE664CB8BA180
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479823   (87358) от 09.04.2012
-
-VA - Europa Plus Включи Весь Мир! Весна 50/50 (2012) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87358.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mishelle feat. Randi - It Feels So Good (Radio Edit)
-002. Глюкоза - Кошка
-003. Aura Dione feat. Rock Mafia - Friends
-004. Юлия Савичева - Юлия
-005. DJ Fresh feat Rita Ora - Hot Right Now
-006. Reflex - Я Буду Небом Твоим
-007. Madonna - Masterpiece
-008. Макс Барских - Dance
-009. Pitbull feat. Chris Brown - International Love
-010. Пропаганда - Нет-Да(   Читать дальше...   )2012Жанр: PopПродолжительность: 11:51:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0962622A03CFA71F480CD1D6CB8120902C551677
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479819   (87354) от 09.04.2012
-
-VA - Лучшие Песни Русского Радио 5 (2012) [MP3|256-320 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87354.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Юлия Савичева - Юлия
-002 Григорий Лепс - Водопадом (new version)
-003 Таисия Повалий - Я помолюсь за тебя
-004 Николай Басков - Странник
-005 София Ротару - Мы будем вместе
-006 Филипп Киркоров - Я просто счастлив
-007 Евгения Власова - Красивые и Богатые
-008 Чай Вдвоём - Улетай
-009 Алина Гросу - Взрослая
-010 ВИА Гра - Диско(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA19DEFFFD4332C42282A8D2588E07EA9FCAD98
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478613   (87351) от 09.04.2012
-
-VA - Музыка для отличного настроения (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Шахзода - Все Только Начинается
-02. Неангелы - Прощай
-03. Никита - Танец В Темноте
-04. Винтаж и DJ Smash - Москва
-05. Dante - My Electronic Love
-06. Инфинити - Не Молчи
-07. Турбомода - Супер Мега Пати
-08. Алёна Высотская & Elvin Grej - Это Любовь
-09. Пропаганда - Наберу (Dj Serzhikwen Club Extended Mix)
-10. Пальчики Оближешь - Любовь, как сон(   Читать дальше...   )2012Жанр: PopПродолжительность: 06:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DE4EA9C80FD71E931BF723590B466245882A07C
 ```
 
 https://mybot314.ru/tekegram_catalog/

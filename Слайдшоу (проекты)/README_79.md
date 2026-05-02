@@ -1,3 +1,29 @@
+###  Публикация: 949446   (376881) от 23.10.2015
+
+Проекты - Проект ProShow Producer - Film Stripe [PSH]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторский проект отФормат: PSH
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F9092286240FCA8531C20B5AE7B463D216953F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 720441   (376513) от 09.11.2013
 
 VideoHive - Minimal - 3121303 [AEP]
@@ -655,33 +681,6 @@ ProShow Producer - Magic Lines [PSH]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB62F4C941CD79882484FEE4A8EA84D61885FE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 950470   (369725) от 26.10.2015
-
-Проекты - Pond5 - Travel Photo Slideshow - 50990971 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания Вашего фото-видео слайдшоу.
-Используется в Adobe After EffectsФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A69ACFFE9EC361AB6C545B3A8ACD86180DB563AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

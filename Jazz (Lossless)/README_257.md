@@ -1,3 +1,61 @@
+###  Публикация: 1544543   (234402) от 16.04.2022
+
+Roberto Gatto - Replay (2012) Parco Della Musica Records [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ana Maria [6:00]
+02. Double Rainbow [4:42]
+03. Mushi Mushi [6:04]
+04. Impro 1 [2:05](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:57:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9878E3F2CD610E0869C0D39AAD2D565EC92F9D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642898   (234387) от 29.06.2023
+
+Igor Fedotov - Believe in Love (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Classic You (5:18)
+02. Soul Master (4:29)
+03. It’s All About Love (4:12)
+04. Believe In Love (5:18)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C08AA4E8C219221ADEA9037EDDBD1021300B1B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1639857   (234359) от 15.06.2023
 
 Jeff Coffin - Between Dreaming And Joy (2022) Ear Up Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Funk>
@@ -687,64 +745,6 @@ Melissa Stylianou - Dream Dancing (2022) Anzic Records [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C0552C871DB2C55EC10883B3A86808CFBD8B4E55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640781   (233845) от 19.06.2023
-
-Stanley Turrentine - The Best of Stanley Turrentine (1990) Epic [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar [10:03]
-02. Gibraltar [11:22]
-03. Storm [9:06]
-04. Speed Ball [6:40](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:15:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B907A4EF16298504D1EF5ED12FEC2499DA7DEAD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623545   (233819) от 02.04.2023
-
-Dinah Washington - La Reine - The Queen (1943 - 1957) 2CD, 2008, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pillow Blues [2:58]
-02. I Cried for You [2:31]
-03. Feel Like I Wanna Cry [3:22]
-04. Am I Blue [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24D3949CAE1A2D42D804E15E281C523DAF337B97
 ```
 
 https://mybot314.ru/tekegram_catalog/

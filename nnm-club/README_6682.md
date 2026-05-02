@@ -1,22 +1,22 @@
-###  Публикация: 1337743   (791724) от 01.06.2020
+###  Публикация: 1123041   (793301) от 06.04.2017
 
-Рик и Морти / Rick and Morty (2019) WEBRip [H.264/720p-LQ] (сезон 4, серии 10 из 10) Сыендук [Обновляемая]
+Хэнсон У. Болдуин | Сражения выигранные и проигранные. Новый взгляд на крупные военные кампании Второй мировой войны (2002) [PDF]
 
->>3
->>4
+>>Научная и техническая литература
+>>Военная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791724.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793301.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Учёный-социопат вовлекает своего невинного внука в опасные межпространственные приключения.Производство: США, Harmonius Claptrap, Justin Roiland's Solo Vanity Card Productions, Starburns Industries, Williams StreetЖанр: мультфильм, комедия, фантастика, для взрослыхРежиссер: Пит Мишелс, Брайан Ньютон, Джон РайсАктеры: Джастин Ройланд, Крис Парнелл, Спенсер Грэммер, Сара Чок, Кари Уолгрен, Райан Ридли, Том Кенни, Морис ЛаМарш, Фил Хендри, Брэндон Джонсон и др.Перевод: Одноголосый закадровый, СыендукСубтитры: Английские, РусскиеПродолжительность: ~ 00:20:00 серия
+От издателя: Хэнсон Болдуин был в годы Второй мировой войны военным редактором газеты «Нью – Йорк таймс», сам участвовал в сражениях и собрал о них большой фактический материал. В книге рассказывается о малоизвестных русскому читателю сражениях за Крит, Коррехидор, Тараву, в заливе Лейте, а также о битвах за Сталинград и высадке союзников в Нормандии.Жанр: История войнФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4DDC30BC2E0918EAC7FA0A4874BB65101D381146
+magnet:?xt=urn:btih:551A478B0CBFFBEFA0EC93777D74499EDF36692F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387485   (791723) от 01.06.2020
+###  Публикация: 1123022   (793300) от 06.04.2017
 
-Бог грома / Mortal (2020) WEB-DL [H.264/1080p-LQ]
+Топ Гир / Top Gear (2017) HDTVRip [H.264/720p-LQ] (сезон 24, серия 5) Jetvis Studio & RG.paravozik
 
->>3
->>4
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791723.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Повелевать стихией, обращать в пепел прикосновением и заставлять всё живое трепетать от страха — удел языческих богов. Но что произойдет, когда планета столкнется с одним из них во плоти? Ведь этот древний Бог всего лишь человек.Производство: Норвегия, США, Великобритания / 42, Automatik Entertainment, Eldorado FilmЖанр: Фэнтези, боевик, приключенияРежиссер: Андре ОвредалАктеры: Нат Вулф, Приянка Бозе, Ибен М. Акерлие, Артур Хакалахти, Оддрун Валестранд, Равдип Сингх Баджва, Аня Нова, Суннива Линд Ховерстад, Пер Фриш, Нико РусаковПеревод: Дублированный (iTunes)Субтитры: ОтсутствуютПродолжительность: 01:43:58
+Новый сезон с новыми ведущими после ухода знаменитой троицы. Top Gear (англ. Top Gear) — популярная английская телепередача, посвящённая автомобилям. Первые выпуски передачи появились в 1977 году. Эта передача была просто пересказ журнала, в течение долгого времени формат передачи не менялся. Но в 2002 году, произошел перезапуск цикла, и вместо сухого пересказа, (   Читать дальше...   )Телекомпания: BBCЖанр: Телепередача, автошоуПеревод: Профессиональный (многоголосый закадровый) - Jetvis Studio & RG.paravozikСубтитры: ОтсутствуютПродолжительность: ~ 00:59:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF87F145E175BE55EAF3DB79144AEA7FB877231D
+magnet:?xt=urn:btih:B4DE3611850417BE00B03466FC6DCFF2B1EA3B05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,28 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275032   (791722) от 09.01.2019
+###  Публикация: 1122869   (793299) от 06.04.2017
 
-Holy State - Demo (2009) [FLAC|Lossless|tracks + .cue] <Punk>
+Мир | Радиация. Дозы, эффекты, риск (1988) [DOCX, PDF]
 
->>Архив торрентов
->>Архив Музыки
+>>Научная и техническая литература
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791722.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793299.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Comatones (2:38)
- 02. Solid State Messiah (vs the Valve Viking) (3:35)
- 03. Repeat and Fade (2:10)
- 04. Skeleton Coast (2:58)Жанр: PunkПродолжительность: 00:11:20
+Книга представляет собой обзор данных, собранных Научным комитетом по действию атомной радиации при ООН за 30 лет его деятельности. Рассмотрены вопросы влияния радиации на жизнедеятельность, предельно допустимые дозы, а также наблюдаемые уровни радиоактивности в окружающей среде и продуктах питания (по отдельным регионам).
+Книга рассчитана на широкий круг читателей.Жанр: Научно-публицистическийПеревод: Ю.А. Банникова.Формат: DOCX, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C0BAADCC0A13E09CFD71C3974F7A8E81A76F4BF
+magnet:?xt=urn:btih:FBEC2A116A56239C2D4BF72B3479448F6FB7A5D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,28 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275033   (791721) от 09.01.2019
+###  Публикация: 1122680   (793298) от 06.04.2017
 
-Lonewolves - A True Discourse (2010) EP [FLAC|Lossless|tracks + .cue] <Hardcore>
+П.А. Бакулев | Радиолокационные системы (2015) [PDF]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Научная и техническая литература
+>>Учебники
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791721.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793298.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hollow (1:57)
- 02. Shadows & Dust (2:53)
- 03. Death March (2:22)
- 04. Deity (6:22)Жанр: HardcoreПродолжительность: 00:13:34
+Изложены основные вопросы теории и техники радиолокационных систем. Основной концепцией при изложении теории и техники радиолокационных систем стала необходимость понимания логики процесса проектирования и функционирования современных радиосистем: от физических принципов работы комплекса, системы или устройства к алгоритмам их функционирования, а затем к разработке (   Читать дальше...   )Жанр: РадиолокацияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:64E3CC33CA5B21D9178624EEBD9D7CDE37ECD60D
+magnet:?xt=urn:btih:9E469182CD6DA726169B0316887FD708C001BE8A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,25 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275039   (791720) от 09.01.2019
+###  Публикация: 1122648   (793297) от 06.04.2017
 
-Livimørket - Dark Totality (2009) EP [FLAC|Lossless|tracks + .cue] <Black Metal>
+Военная приемка. Армия в Арктике (02.04.2017) HDTVRip [H.264/720p-LQ]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Документалистика и Телепередачи
+>>Военное дело
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791720.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793297.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dark Totality (39:06)Жанр: Black MetalПродолжительность: 00:39:06
+Наши в Арктике. В этом выпуске программы «Военная приёмка» мы расскажем вам о возрождении российского военного присутствия за Полярным кругом. О строительстве военной базы на острове Котельный. О восстановлении аэродрома на ней. А также о том, что отныне связывать эту базу с Большой землей будет не только авиасообщение. Впервые по льдам моря Лаптевых к острову Котельный (   Читать дальше...   )Телекомпания: Россия / ТРК ВС РФ «ЗВЕЗДА»Жанр: Телепередача, ДокументальныйПродолжительность: 00:37:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D6550EF1A3316E682E6C47F2E2A44BE9901FA57D
+magnet:?xt=urn:btih:6ACFAA3ADCB8C8BD502C8A61BE327436FFA233B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -134,434 +129,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274841   (791719) от 09.01.2019
+###  Публикация: 1122954   (793296) от 06.04.2017
 
-1917 - Vision (2004) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791719.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.     In tenebra
-02.     La vieja sangre
-03.     Piel de mбrtir, carne de asesino
-04.     Mercader de voluntades(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:32:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1A1AF4CFDFC00262F31F026E913CAB31BAF306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274972   (791718) от 09.01.2019
-
-Buck Clayton - Three Classic Albums Plus (1954 - 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791718.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 John Coltrane - Giant Steps:
-01. Giant Steps [4:47]
-02. Cousin Mary [5:50]
-03. Countdown [2:26](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:37:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:734C27C38301929027A7E78DEB225BB977665947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274843   (791717) от 09.01.2019
-
-Hyelish - Enferma Humanidad (2014) [FLAC|Lossless|image + .cue] <Death Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enferma Humanidad
-02. Sabor a Muerte
-03. Pastores Oscuros
-04. Maldito Seas Jesús(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F264C73847FFBC5E5F41A9ADE3742BECAAE51246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275040   (791716) от 09.01.2019
-
-Mortal Decay - A Gathering of Human Artifacts (1999) Compilation [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ars Moriendi  (4:06)
- 02. Dawn of Misery  (3:58)
- 03. Requiem  (2:02)
- 04. Post-Mortem Feast  (3:55)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 01:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF06B12499FFF542FEB4BA91102EC6FC05F25E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274842   (791715) от 09.01.2019
-
-1917 - Vox Fatum (2007) [FLAC|Lossless|image + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legado Sombrío
-02. Contemplaciones
-03. Trofeos de Honor
-04. La Iniquidad Penitente (Pt. 1)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:44:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18922D0D171D89F03B77C2CD26CE5727AAE4C930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275036   (791714) от 09.01.2019
-
-VA - In At The Deep End Records Catalogue Sampler (2009) Compilation [FLAC|Lossless|tracks + .cue] <Hardcore, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tortuga - Hell's Red Roads (03:25)
-02. Sylosis - Visions of Demise (04:26)
-03. Romeo Must Die - Who Died and Made You God (03:19)
-04. The Casino Brawl - Into the Light (04:37)(   Читать дальше...   )Жанр: Hardcore, Heavy MetalПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:040E0DD600B280F173BC7577014BBF2734343D45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275042   (791713) от 09.01.2019
-
-Morgue - Artgore (2001) [FLAC|Lossless|tracks + .cue] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peeled Back Organs (3:57)
- 02. Embalmed in Perservatives (3:10)
- 03. Slime (3:36)
- 04. Removal of Limbs (2:29)(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:41:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E3795DB07F6455F0BDB37FD9CAA16EF9D25205
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274838   (791712) от 09.01.2019
-
-Azrael - Moonchild (2018) Japan [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Birth of the Universe
-02. Moonchild
-03. Surveillance Society
-04. Fly till the End of Time(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:58:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F290E1FDE75FA2EF56741D5BEDB7DDBFFA62A583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274839   (791711) от 09.01.2019
-
-Divine Ascension - The Uncovering (2018) Japan [FLAC|Lossless|image + .cue] <Progressive Metal, Melodic Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evermore
-02. Prisoner
-03. The Fallen
-04. Pursuit of Desire(   Читать дальше...   )Жанр: Progressive Metal, Melodic Power MetalПродолжительность: 00:59:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D7ABB344D09B1F58C6CD1C7826D95D5C1006A3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274991   (791710) от 09.01.2019
-
-VA - FM Radio Gods, Vol.4 (2019) [MP3|320 Kbps] <House, Dance, Big Room>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Collins feat. Paula Douglas - Let Me Know (Radio Edit)
-02. Jay Frog & Amfree - Is This Love (Radio Edit)
-03. DJ Junior & Roger Slato - On The Beach (Radio Edit)
-04. Viktor Newman & BeatFlashers - Tropical Love (Radio Edit)(   Читать дальше...   )Жанр: House, Dance, Big RoomПродолжительность: 01:42:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DDB29454C6D1D7A7B2AF9ADD77D4301885A68DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274946   (791709) от 09.01.2019
-
-VA - G-House Drops Winter '19 (2019) [MP3|320 Kbps] <House, Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steven Draxler - Right Time (Club Mix) 4:28
-02. Christopher G - Bassline Drops (Club Mix) 4:56
-03. Tom Bekker - What You Got (Instrumental Mix) 4:49
-04. Ricky Alvarez - House Is Mine (VIP Dub Mix) 4:16(   Читать дальше...   )Жанр: House, Minimal, Tech HouseПродолжительность: 02:08:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFD107C525535728E1E9ABC4082D5C9DB212D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274880   (791708) от 09.01.2019
-
-VA - House Boutique Volume 25-Funky & Uplifting House Tunes (2018) [MP3|320 Kbps] <Groove, House, Funky>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Block & Crown - Dice (Original Mix)
-02. Jose Ogalla - After Now (Chris Montana Piano Dub)
-03. Scotty Boy - Ya'll Came to Jack (Original Mix)
-04. Slippy Beats - Phunky Beats (Hype Is Not Remix)(   Читать дальше...   )Жанр: Groove, House, FunkyПродолжительность: 01:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C3D4582D8C933666CC260618D387675AFBA88DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274888   (791707) от 09.01.2019
-
-Sōzuproject (Sōzu Project, Sozuproject) - Discography 7 Releases (2013-2017) Vent Sounds, Silent Flow [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental>
-
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Float (08:22)
- 02. Carousel (06:01)
- 03. Abandoned (18:00)
- 04. Grey (08:16)Тип издания: WEBЖанр: AmbientПродолжительность: 00:40:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE39A53B910A31C92BA61904FD4872AA713CD71F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274141   (791706) от 09.01.2019
-
-VA -MoBlack Records presents: Afro House Collection - 5 Years Label Anniversary Compilation (2018) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zulu Song (Paki Palmieri Afro Roots Mix)-Miriam Makeba
-02. Find Your Way (Sunrise Mix)-Moon Rocket
-03. Baakoya (Armonica Remix)-Mabiisi
-04. Amahloni (Manoo Remix)-Stones & Bones(   Читать дальше...   )Жанр: HouseПродолжительность: 03:43:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588357F95EECEBEB769D195F82CE1F90990AD55E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274889   (791705) от 09.01.2019
-
-VA - Dance Room Party 2019-Essential Anthems / Electronic & Dance Music Hits (2019) [MP3|320 Kbps] <Euro Dance, Pop Dance>
+Silver Convention - The Very Best Of (2004) Compilation, 2CD [FLAC|Lossless|tracks + .cue] <Disco, 70's>
 
 >>Pop
->>Зарубежная поп-музыка
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791705.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793296.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lorenz Koin & Norah B. - In The Name Of Love (Radio Mix) 3:22
-02. Nico Del Prato - Anymore (Radio Edit) 3:07
-03. Enormous Cats - Ready Or Not (Club Mix) 4:31
-04. Robert Taylor - Keep It Real (Original Mix) 4:13(   Читать дальше...   )Жанр: Euro Dance, Pop DanceПродолжительность: 01:17:57
+01. Fly Robin Fly (5:32)
+02. Save Me (4:19)
+03. Ooh What A Night (5:16)
+04. Spend The Night With Me (4:19)(   Читать дальше...   )Жанр: Disco, 70's |Продолжительность: 01:17:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3151CF79A78A057F5562043F5A0555C7FD804116
+magnet:?xt=urn:btih:6C6B3ED3F706A57C44AE683BC90F98C00D1BBAAB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,169 +158,530 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274852   (791704) от 09.01.2019
+###  Публикация: 1385223   (793295) от 30.05.2020
 
-Kauan - Muistumia (2014) [FLAC|Lossless|Web-DL|tracks] <Folk, Funerial Doom, Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unsoi (4:54)
-02. Aamu Ja Kaste (6:20)
-03. Lumikuuro (7:02)
-04. Koivun Elämä (6:22)(   Читать дальше...   )Производство: Blood Music - BLOOD-074Жанр: Folk, Funerial Doom, Post Rock, Black Metal, ExperimentalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69104DCB3E86570E446F030A24A9C7FA527A24D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274912   (791703) от 09.01.2019
-
-Koen Park (Ian Hawgood) - Discography 13 Releases (2008-2017) Folk Reels [FLAC|Lossless|WEB-DL|tracks] <IDM, Downtempo, Ambient, Experimental>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remote (17:58)
- 02. Vapour (12:52)Тип издания: WEBЖанр: AmbientПродолжительность: 00:30:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F92FAF691E997F63359C6FADE85EEC6E7E805589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274609   (791702) от 09.01.2019
-
-Dropzone 3.7.0 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791702.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dropzone - удобная утилита для автоматизация рутинных действий.
-Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.01.2019Разработчик: Aptonic LimitedПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353CF1AAFF737BFBEFC38945E5EE2D48A4A4D7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275067   (791701) от 09.01.2019
-
-Kauan - Pirut (2013) [FLAC|Lossless|Web-DL|tracks] <Funeral Doom, Folk Metal, Post-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I (4:58)
-02. II (4:42)
-03. III (5:15)
-04. IV (8:01)(   Читать дальше...   )Производство: Blood Music - BLOOD-040Жанр: Doom Metal, Folk Metal, Post-Metal, Funeral DoomПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E46CB3C916DEEF491243D6D9E2E45677C61C00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275031   (791700) от 09.01.2019
-
-Джин-Тоник - Нетакой (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791700.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Нетакой (feat. Ксения Стрижакова)
-2. Вдруг это всё (feat. Алексей Кортнев)
-3. Селфи (feat. Валерий Сюткин)
-4. Старпёрская (feat. Евгений Маргулис)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F946C75BB70A00A6186BA5E54009BB27656DE07B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274945   (791699) от 09.01.2019
-
-VA - Overload: Pop Rock Music (2019) [MP3|320 Kbps] <Indi, Pop, Rock>
+Linkin Park - Great Artists of My Heart Vol. 04 (2020) [MP3|320 кб/с]<Alternative>
 
 >>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793295.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Avantgardet - Walk Of Shame
-002. Hazey Eyes - Scars (Ukiyo Remix)
-003. Horses Without Makeup - Forget About Chlorine
-004. Vasas Flora Och Fauna - Leevi & The Leavings(   Читать дальше...   )Жанр: Indi, Pop, RockПродолжительность: 09:11:44
+|03:46| 01. Linkin Park - Nobody Can Save Me
+|02:47| 02. Linkin Park - Bleed It Out (Uncensored Version)
+|03:59| 03. Linkin Park - Blackout (A Thousand Horizons Version)
+|04:38| 04. Linkin Park - Until It's Gone (Remix By Simple Automaton, Cypher, Broman)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 07:20:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2013A3998D6A30D313D2757F623A4D8D9BB2735B
+magnet:?xt=urn:btih:7FB64C3E04EE88080378609C57C22DAE98D73C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386922   (793294) от 30.05.2020
+
+Ноам Хомский | Кто правит миром? (2019) [EPUB]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга Ноама Хомского «Кто правит миром?» – крайне значимый для XXI века труд, призванный встрясти мир и пошатнуть всеобщее спокойствие, добравшись до самых основ современного мироустройства. Анализ Хомского текущих процессов во внешней политике сосредоточен на фактах, течениях и политических дискурсах, которые, как правило, выпадают из пространства общественного (   Читать дальше...   )Жанр: Политология, ПублицистикаПеревод: Виктор ЛипкаФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B60972E02745D9533AD88EFEFF090AC513A05E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386709   (793293) от 30.05.2020
+
+4K Video Downloader 4.12.4.3660 RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793293.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader позволяет скачивать видео, аудио и субтитры с YouTube в высоком качестве на ваш компьютер. Если вы хотите закачать видео на iPad, iPhone и другие девайсы, тогда это приложение — ваш выбор! Загрузка проста и приятна, просто скопируйте ссылку из браузера и нажмите "Paste Url".Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C526A3BFB46823B4EB2D422183705D7032CBB44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386856   (793292) от 30.05.2020
+
+Владимир Сурдин | Вселенная в вопросах и ответах (2020) [PDF]
+
+>>Научная и техническая литература
+>>Точные и естественные науки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793292.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге собраны 181 задача, 50 вопросов и 319 тестов с ответами и решениями. Материал в основном новый, но включает наиболее удачные задания из предыдущих изданий. В целом это не очень сложные, но «креативные» задачи, раскрывающие разные стороны современной астрономии и космонавтики и требующие творческого мышления и понимания предмета. Основой для некоторых вопросов (   Читать дальше...   )Жанр: АстрономияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B52EBCE3996CF94AC44EEBA9CD3A5FB8093A12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386774   (793291) от 30.05.2020
+
+Льюис Дартнелл | Цивилизация с нуля: Что нужно знать и уметь, чтобы выжить после всемирной катастрофы (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Научно-популярная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книги, кино и сериалы на тему глобальной катастрофы, которая меняет наш привычный мир, заставляют задуматься: а что бы я сделал на месте героев? Куда бежать, чем запасаться и как не превратиться в дикаря из «Безумного Макса», а заново построить все с нуля? Научный журналист Льюис Дартнелл знает ответы на эти вопросы. Его книга – кладезь научно-технических знаний, (   Читать дальше...   )Жанр: Научно-популярная литератураПеревод: Николай МезинФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:715C435882FF461296E3E48EE72E7EC100547587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385878   (793290) от 30.05.2020
+
+Вампирина / Vampirina (2017-2019) WEB-DL [H.264/720p-LQ] (сезон 1-2, серии 50 из 50) [UKR,EN]
+
+>>Мультфильмы
+>>Зарубежные Мультсериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Девочка по имени Ви переезжает вместе со своей семьей в Пенсильванию. На новом месте юную героиню ждут и радости, и сложности. Ей будет непросто сразу найти друзей и освоиться в новой школе, ведь она так непохожа на сверстников. Ви родилась в Трансильвании в семье вампиров, и теперь им предстоит адаптироваться к жизни в человеческом мире. Заботливые родители и добрые (   Читать дальше...   )Производство: Ирландия, США, Brown Bag Films, Disney Enterprises, Disney JuniorЖанр: Мультсериал, мюзикл, фэнтези, комедия, семейныйРежиссер: Эхуд Ландсберг, Мартен, Йонмарк, Нортон Вирджиен, Ники ФеланПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 00:23:02 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53E3ACBB3433D0C3CC7AA96FEB2DCAB9A19C6B67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386852   (793289) от 30.05.2020
+
+Проекты - VideoHive - Wood Broadcast Pack - 4632508 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wood Broadcast Pack - это высококачественный, хорошо организованный и простой в настройке пакет проектов, предназначенных для оформления детского вещательного канала.
+Вы можете создавать стильные видеоролики, трейлеры, демо-ролики. Так же создать видео для YouTube или Vimeo или для любого другого сайта медиа-хостинга. Вы можете размещать видео в Facebook, Twitter (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89E9040F7C013817027439EF12AF61873B04FEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386779   (793288) от 30.05.2020
+
+Кристофер Воглер, Дэвид Маккенна | Memo: Секреты создания структуры и персонажей в сценарии (2018) [EPUB]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга – результат многолетней работы Кристофера Воглера и Дэвида Маккенны. Будучи профессиональными экспертами, они проанализировали в общей сложности более 40 000 сценариев самых разных жанров. Свой совместный труд Воглер и Маккенна рассматривают не просто как полезный инструментарий сторителлинга, они считают его «спасительным» и для начинающих, и для активно (   Читать дальше...   )Жанр: Культура и искусство, Кинематограф, ТеатрПеревод: Николай МезинФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1DBAA094625CC4BBBDAEF05A2B5B1137B0BB41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386815   (793287) от 30.05.2020
+
+Soft4Boost AMPlayer 5.7.1.315 [Multi/Ru]
+
+>>Мультимедиа и Графика
+>>Видео Плееры и Кодеки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Универсальный медиаплеер, с помощью которого можно воспроизводить видео- и аудиофайлы практически всех существующих форматов, а также просматривать изображения и фотографии.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:220FC9DE2543C1D8642C4CD55EA3DD12FAA4E95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386823   (793286) от 30.05.2020
+
+Проекты - VideoHive - Logistic Company Box Opener - 21975877 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793286.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для рекламы транспортной компании, удобства и условия грузоперевозок, для презентации транспортно-логистической инфраструктуры и т.п.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AC4551355F25AC96677B8804DF62047BF91B1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386683   (793285) от 30.05.2020
+
+Цветы зла / Aku no Hana / The Flowers of Evil (2019) BDRip [H.264/720p] [DVO]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793285.jpg" />
+</div>
+
+
+###  Подробнее
+
+Старшеклассник Такао Касуга уверен, что его жизнь кончилась три года назад, и с тех пор он просто существует. Тогда парень учился в другой школе, зачитывал до дыр «Цветы зла» Бодлера и вздыхал по однокласснице — отличнице и красавице Нанако. Однажды после уроков, когда в классе никого не было, Такао увидел, что из шкафчика выпала физкультурная форма Нанако, и не (   Читать дальше...   )Производство: Япония / Phantom Film, Happinet, Kadokawa Daiei Studio Co. LtdЖанр: Драма, мелодрамаРежиссер: Нобору ИгутиАктеры: Кэнтаро Ито, Тина Тамасиро, Мариэ Иитоё, Сиори Акита, ХонораПеревод: Двуголосый любительский (RealFake)Субтитры: Русские (на надписи)Продолжительность: 02:07:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8915E302B5E57CF7ADA8F1FD53FC750D1EB4EF66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386802   (793284) от 30.05.2020
+
+Хрустальная ловушка (2020) SATRip [H.264] (серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793284.jpg" />
+</div>
+
+
+###  Подробнее
+
+На горнолыжный курорт Ольга едет, что называется, за компанию: сама она не катается, а вот её любимый муж Марк и подруга, а по совместительству и молодая мачеха Инка обожают лыжи. На курорте, где их встречает брат Марка, горноспасатель Иона, все говорят об исчезнувшем испанце – то ли сам уехал, то ли лавиной накрыло… И вроде бы перед смертью он искал какую-то пещеру.Производство: Россия / Свэлл ФильмЖанр: детектив, криминал, триллерРежиссер: Игорь НурисламовАктеры: Марина Коняшкина, Сергей Перегудов, Татьяна Чердынцева, Роман Маякин, Елена Мартыненко, Игорь Николаев, Валерий Чеботаев, Виталий Сазонов, Олег Попов, Владимир Крылов, Алексей Штукин и др.Продолжительность: ~00:43:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:068E7BDF16E9EA4AE73587FEA6ECDAB0B1518B4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386762   (793283) от 30.05.2020
+
+K-Lite Codec Pack 15.5.0 Mega/Full/Standard/Basic + Update [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793283.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54B09A0C4A10B2CCFD4B96F5710AFD7656DF71D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386776   (793282) от 30.05.2020
+
+Royal Detective 6: The Last Charm / Королевский детектив 6: Последнее заклинание (2019) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793282.jpg" />
+</div>
+
+
+###  Подробнее
+
+Прошло много лет с момента нашей последней встречи с Принцессой - и вот она уже зрелая женщина со взрослой красавицей-дочкой Авророй, унаследовавшей от матери любовь к изучению магических искусств. Однажды девушка находит в библиотеке волшебную книгу, но как только она открывает её, из ниоткуда появляется колдунья и похищает её. Отправившись на поиски Авроры, Принцесса (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF8ED4DF77BECA0B83B357E66CCBB0653813A1D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1384664   (793281) от 30.05.2020
+
+Grand Funk Railroad - Live Los Angeles, California (1974) LDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт американской рок-группы Grand Funk Railroad.
+США, Калифорния, Лос-Анджелес, 01.06.1974.1. Footstompin' Music
+2. Rock'n'Roll Soul0
+3. Heartbreaker
+4. Shinin' On(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E74C444CB0F8CAAE1EADC3C05144F1403A7759F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386628   (793280) от 30.05.2020
+
+Проекты - VideoHive - Travel Map USA - United States of America - 25922874 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793280.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект предназначен для построения маршрута путешествия по США... Дерзайте!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0273E059D86ED91A52EAD0EE252652BB5769148
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 357963   (793279) от 30.05.2020
+
+Досье Ипкресс / The Ipcress File (1965) [H.264] BDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Циничного армейского сержанта Палмера шантажируют и заставляют работать на британскую разведку. Цепь интриг, предательств, насилия и убийств.Жанр: ТриллерРежиссер: Сидни Дж. Фьюри.Актеры: Майкл Кейн, Найджел Грин, Гай Доулмен, Сью Ллойд, Гордон Джексон, Обри Ричардс, Фрэнк Гэтлиф, Томас Бэптист, Оливер МакГриви, Фреда Бэмфорд. и др.Язык субтитров: 1. Русские 2. АнглийскиеПродолжительность: 01:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A604E6E54FD5FF28FBE94BC741D3213681080ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386846   (793278) от 30.05.2020
+
+4K Video Downloader 4.12.4.3660 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793278.jpg" />
+</div>
+
+
+###  Подробнее
+
+4K Video Downloader позволяет скачивать видео, плейлисты, каналы и субтитры с YouTube, Facebook, Vimeo и других сайтов в высоком качестве и разрешении.
+Смотрите любимые видео в любое время и в любом месте, даже когда вы оффлайн. Скачивать легко и удобно — просто скопируйте из браузера ссылку на видео и нажмите "Вставить ссылку" в приложении!Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF05976FF627695F3F98F1D87D91F237E5CED04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386947   (793277) от 30.05.2020
+
+Хрустальная ловушка (2020) WEBRip [H.264] (серии 1-4 из 4)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793277.jpg" />
+</div>
+
+
+###  Подробнее
+
+По мотивам одноимённого романа Виктории Платовой.
+На горнолыжный курорт «Роза ветров» переводчица Ольга едет из-за мужа. Сама она не катается, а вот Марк обожает лыжи. Как и её лучшая подруга и, по совместительству, молодая мачеха Инка. На курорте все говорят об исчезнувшем писателе - испанце Карлосе. То ли накрыло лавиной, то ли загадочным образом исчез. А перед (   Читать дальше...   )Производство: Россия / Свэлл ФильмЖанр: детектив, криминал, триллерРежиссер: Игорь НурисламовАктеры: Марина Коняшкина, Сергей Перегудов, Татьяна Чердынцева, Роман Маякин, Елена Мартыненко, Игорь Николаев, Валерий Чеботаев, Виталий Сазонов, Олег Попов, Владимир Крылов, Алексей Штукин и др.Продолжительность: ~00:44:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60EAA03A84AE133FC6F6906AB67EFC71964CB805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385711   (793276) от 30.05.2020
+
+GParted LiveCD 1.1.0-1 [i686, i686-pae, amd64] 3xCD
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793276.jpg" />
+</div>
+
+
+###  Подробнее
+
+GParted - (Gnome Partition Editor) - это программа для создания, изменения и удаления дисковых разделов. GParted позволяет изменять организацию разделов на дисковых устройствах без потери данных.
+Поддерживаемые файловые системы: BtrFS, Ext2 / Ext3 / Ext4, FAT16 / FAT32, HFS / HFS+, Linux-swap, LVM2 pv, NILFS2, NTFS, ReiserFS / Reiser4, UDF, UFS, XFS. В этой раздаче (   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9641481B9E629320E3BAF6BD0AC4ADD5885AC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

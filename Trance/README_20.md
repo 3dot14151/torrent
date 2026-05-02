@@ -1,3 +1,148 @@
+###  Публикация: 1226957   (652356) от 23.05.2018
+
+Ben Gold - Sound Advice (Chapter One) (2018) [MP3|320 Kbps] <Electronic, Trance, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652356.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. There Will Be Angels (feat. Audrey Gallagher) (03:32)
+2. Stay (feat. Sivan) (03:55)
+3. Two (feat. Ruben de Ronde & Rodg) (03:10)
+4. The Conquest (feat. Omnia) (03:44)(   Читать дальше...   )Жанр: Electronic, Trance, Progressive TranceПродолжительность: 00:25:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB9E7C7B437DB1A3BBFFBC9BC5C8F8F292258C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227079   (650379) от 24.05.2018
+
+VA - A State Of Trance (Mixed By Armin van Buuren) (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren vs Shapov - The Last Dancer (Original Mix)
+02. Whiteout & Wilderness - Yalung (Original Mix)
+03. Tom Fall - Cyclone (Original Mix)
+04. Estiva - Bloom (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:54:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59764B7173F28FCE3C5DA1B47A809DD664D076DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031745   (649817) от 05.07.2016
+
+VA - Ibiza Vocal Trance (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LTN feat. Christina Novelli - Hold On To Your Heart (Daniel Kandi Radio Edit) (4:28)
+02. Liuck & Neev Kennedy - Let This Go (Radio Edit) (3:29)
+03. Rodrigo Deem & Las Salinas feat. Emily Harder - Anything (Radio Edit) (3:11)
+04. LTN feat. Arielle Maren - Let Me Go (Johan Vilborg Radio Edit) (3:07)(   Читать дальше...   )Производство: SupercompsЖанр: Trance, Vocal TranceПродолжительность: 01:16:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F8728A38E882DF77A48D66B3A03A48B0A6C1674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540984   (648645) от 01.04.2022
+
+VA - Trance Music For You Trip (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7ROSES & Camille - Trying Not To Cry (Radio Mix) (3:22)
+02. Craig B - Hold The Light (Radio Mix) (3:41)
+03. Moonmelo - Imagination (Radio Mix) (2:40)
+04. A.L.Y.S. - Weekend (Radio Mix) (3:00)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B851BE2491B30B0757034CC0CFD57F61B4538D83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292363   (646907) от 29.03.2019
+
+VA - Trancespotting Vol.8 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646907.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mindsoundscapes - Grasping Life (Radio Cut) 3:19
+02. Con Phillips - Varanasi (Radio Cut) 3:51
+03. Unit Of Trance - Reserve (Radio Edit) 3:28
+04. Brent Rix - Desert Sun (Original Mix) 3:41(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:18:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2A5583C0393F55B6DDE969147656B615E5A66B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1292371   (646817) от 29.03.2019
 
 VA - Suanda Miami 2019 (2019) [MP3|320 Kbps] <Trance, Uplifting Trance, Progressive Trance>
@@ -600,148 +745,6 @@ VA - Best Of Vocal Trance 2016 Vol. 2 (2016) [MP3|320 Kbps] <Trance, Uplifting T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE869B4320A7361AC0DD6D7B089831995DD4AA59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229699   (624534) от 07.06.2018
-
-VA - Trance 2018 Top 20 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.James Dymond & Susana - Love You Are Made Of (Original Mix)
-02.Neev Kennedy - Sail The Stormy Waters (Original Mix)
-03.Ruslan Radriges & Cathy Burton - Hearts To Entwine (Jericho Frequency Remix)
-04.The Thrillseekers - Halcyon (Ferry Tayle Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F812144AB1327A54CBBFD956C47D73EF4EA237FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229715   (624446) от 07.06.2018
-
-VA - Best of Progressive Vocal Trance (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic & Ana Criado - Ask Me Anything (Extended Mix)
-02. Raz Nitzan & Moya Brennan - Find The Sun (Rafael Frost Extended Mix)
-03. Lauren Ni Chasaide & Seawayz & Sollito ft. Heard Right - Never End (Extended Mix)
-04. Fisher & Karanda - Gone (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C9AADBA77F1A9E666466AAF0AD6497A0FEEFED9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544191   (623798) от 14.04.2022
-
-VA - Vocal Trance 2022 Vol 2 (2022) [MP3|320 Kbps] <Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana Criado - Lockdown Heart (Original Mix) (3:30)
-02. 4 Strings & Susana - Completely (Original Mix) (2:49)
-03. James Dymond & Stine Grove - Birds Of A Feather (Original Mix) (4:15)
-04. Alan Morris with La Antonia & Sue Mclaren - Nowhere Left To Hide (BiXX Remix) (3:53)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 04:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E44EBDA386EC43B0D6FCB9BB7DF7892A51BC0D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229776   (622709) от 08.06.2018
-
-VA - Summer Hits (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer feat. Roxanne Emery - Lullaby (Extended Mix)
-02. LTN - Wind and Cloud (Extended Mix)
-03. Bogdan Vix - I Am Now (Original Mix)
-04. Ruslan Radriges - Revival (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5BA7053181507C20DE11B89D9956C54CD5BB150
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 351936   (621863) от 17.06.2011
-
-VA - Aly & Fila - Rising Sun (The Remixes) - 2011 [MP3|320 kbps]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_621863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila vs. Activa - Medellin (Жанр: TranceПродолжительность: 02:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:284D2751AC39B040F97851B4A8C49BB6D2E32650
 ```
 
 https://mybot314.ru/tekegram_catalog/

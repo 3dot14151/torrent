@@ -1,3 +1,67 @@
+###  Публикация: 582511   (312776) от 02.12.2012
+
+Патруль / End of Watch (2012) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Public Enemy -  Harder Than You Think
+02 David Sardy -  I Am The Police
+03 David Sardy -  My Evil Is Big
+04 The Delfonics -  Hey! Love
+05 David Sardy -  Follow Me Into The House
+06 David Sardy -  Heroes
+07 David Sardy -  Hold The Baby - You Can't Live Without Her
+08 The Latin Rascals -  Lisa's Coming
+09 David Sardy -  Take Care Of Janet
+10 David Sardy -  Minivan Tail(   Читать дальше...   )Жанр: OSTПродолжительность: 00:36:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:802C7C1F6C156936904EAF63B198044C9B01A7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182841   (312206) от 12.11.2017
+
+VA - Disco Dancer (OST Танцор диско) (1982) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Vijay & Chorus - I Am A Disco Dancer  7:51
+02.  Parvati Khan - Jimmy Jimmy Jimmy Aaja  3:04
+03.  Usha Uthup, Bappi Lahiri & Chorus - Auva Auva Koi Yahan Nache  5:24
+04.  Kishore Kumar & Chorus - Ae Oh Aa Zara Mudke  5:47(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B8044B4230C3CFF01BD812999E0AB9B4A8A9A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076669   (311869) от 26.11.2016
 
 Clint Eastwood, Christian Jacob & The Tierney Sutton Band - Sully / Чудо на Гудзоне (Music from and Inspired by the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -690,64 +754,6 @@ Ramin Djawadi - Westworld / Мир Дикого Запада: Season 1 (Music fr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F46EEA61C75649EE465435FE7F7C62335B07777
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334778   (291534) от 31.10.2019
-
-John Carpenter, Cody Carpenter, Daniel Davies - Halloween / Хэллоуин (Original Motion Picture Soundtrack) (2019) Expanded Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (01:15)
-02. Aaron Meets Michael (02:39)
-03. Halloween Theme (03:02)
-04. Laurie’s Theme (00:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:11:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EB5CF574F696DC798C0F90FCCF6CF6F366B2362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335266   (289579) от 01.11.2019
-
-Hans Zimmer, The Magnificent Six - The Amazing Spider-Man 2 / Новый Человек-паук - Высокое напряжение (Complete Motion Picture Soundtrack) (2018) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1m1 Logos (00:41)
-02. 1m1a The Opening (03:18)
-03. 1m1a The Opening (Alternate) (03:24)
-04. 1m1b Parents On Plane (03:20)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 03:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B5DC23CFEC91A2812BED54669F85490475A686
 ```
 
 https://mybot314.ru/tekegram_catalog/

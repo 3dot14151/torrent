@@ -1,3 +1,270 @@
+###  Публикация: 1561646   (513508) от 06.07.2022
+
+Max Richter - Музыка лунного света (2002-2018) Compilation Album [MP3|320 Kbps] <Modern Classical, Ambient>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aria 1
+02. Aria 2
+03. Autumn Music 1
+04. Berlin by Overnight(   Читать дальше...   )Жанр: Modern Classical, AmbientПродолжительность: 03:21:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE1AF33B578C2E3854FA85E0E170437CDC2207E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561733   (513473) от 06.07.2022
+
+VA - Morning Chill & Relax 2 (2022) [MP3|320 Kbps] <Pop, Chillout, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513473.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Forester - Heart (4:21)
+002. Fini - Under the Sun (3:53)
+003. Alex Keeper - Try (2:26)
+004. Altero - Innocent (3:05)(   Читать дальше...   )Жанр: Pop, Chillout, OtherПродолжительность: 06:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76F20992923ABE51A980D6CEAEBD657C73D7A438
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1561648   (513412) от 06.07.2022
+
+VA - Retro remix Июнь (2022) [MP3|320 Kbps] <Club House, Russian Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513412.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Morandi - Angels (Alex Antero & Denis Bravo Extended Remix) 04:52
+002. 2 Unlimited x Freejak - Get Ready (Dj Jeff Clapapella Party Starter) 03:23
+003. 5sta Family - Зачем (PS Project & Roman Max Remix) 03:48
+004. 20 Fingers, Sidney Samson x Boost, Ramirez, Temoff - Lick It (DJ Baur Mixshow) 03:21(   Читать дальше...   )Жанр: Club House, Russian PopПродолжительность: 01:08:10:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D731E6D74ADED623A12DDA8118BE9D42C2251C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242895   (513045) от 24.08.2018
+
+VA - Best Dance Hits Ever - Top 50 (2018) [MP3|320 Kbps] <Dance, House, Electro, Techno, Europop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charly Lownoise, Mental Theo - Wonderfull Days (Radio Edit)
+02. Tiësto - Flight 643 (Radio Edit)
+03. Jeckyll, Hyde - Freefall
+04. Akcent - Kylie(   Читать дальше...   )Жанр: Dance, House, Electro, Techno, EuropopПродолжительность: 03:18:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6950E288687F32F87CFF2BAC65164E66083BF667
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1242769   (512887) от 24.08.2018
+
+VA - Back To The 90's (2018) [MP3|320 Kbps] <Eurodance, Pop, RnB>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512887.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Destiny's Child - Bug a Boo
+002. Earlwood - Take Me Away
+003. The Free - Born Crazy
+004. Whitney Houston - My Love Is Your Love(   Читать дальше...   )Жанр: Eurodance, Pop, RnBПродолжительность: 10:47:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558B72F18E063836F2DBD079284E996D3FC349BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931101   (512796) от 25.08.2015
+
+VA - Всё сразу 200 хитов Выпуск 4 (2015) [MP3|186 - 320 кб/с]<Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512796.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Михей и Джуманджи - Сука Любовь
+002. Yes-R feat. Derenzo - Fissa
+003. Green Grey - Осень (MF)
+004. Andreea Banica - Electrified(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:40:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2118CAE093AF8619D8A59BE4028C48F73F700BD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1315453   (512777) от 20.07.2019
+
+VA - ЕвроХит Топ 40 Europa Plus 19.07.2019 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daddy Yankee feat. Katy Perry & Snow - Con Calma (Remix) 3:01
+02. Ed Sheeran & Justin Bieber - I Don't Care 3:40
+03. Drenchill feat. Indiiana - Freed From Desire 3:40
+04. Lil Nas X feat. Billy Ray Cyrus - Old Town Road (Remix) 2:37(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E1E57F2857670C3B69AB73641D7ECEF63B50C02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 931227   (512667) от 25.08.2015
+
+VA - Зайцев нет. Лучшие новинки августа (2015) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512667.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Varien feat. Veela - Supercell (03:35)
+002. Chris Lake & Anna Lunoe - Stomper (03:34)
+003. Tchami feat. AC Slater & Kaleem Taylo - Missing You (05:14)
+004. Koven - From The Start (04:30)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 04:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1088B4FCD4F641522D6543E9BC2556DD7191BEC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 537260   (511271) от 21.08.2012
+
+VA Радио 7. Tоп 100 (2011) [MP3|320 кб/с]<Pop, Rock, Jazz>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511271.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Amel Bent - Ou Je Vais (4:30)
+2. Seal - Secret (3:21)
+3. Michael Jackson - Hold My Hand (Duet with Akon) (3:32)
+4. Nell Bryden - Goodbye (3:32)
+5. Jasper Forks - River Flows in You (Lasershow Pacific Mix) (3:46)
+6. Ne-Yo - One In A Million (4:03)
+7. Leona Lewis - Better In Time (3:54)
+8. Bruno Mars - Just The Way You Are (3:38)
+9. Arash - Pure Love (feat. Helena) (3:15)
+10. Jason Mraz - Lucky (feat. Colbie Caillat) (3:08)Жанр: Pop, Rock, JazzПродолжительность: 06:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A4C1A256707134BCD693E59AB9716018B80B8A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315878   (510990) от 22.07.2019
 
 VA - Dancehall And Reggae Party (2019) [MP3|320 Kbps] <Reggae, Dancehall>
@@ -518,279 +785,6 @@ VA - Клубная Дискотека Record vol. 7 Зарубежная (2012)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB0ED7A3A34773F8F3CF818893D9AC3684DB2B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562380   (506208) от 12.07.2022
-
-VA - В машине с музыкой Vol.284 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Linh  - Autour De Toi (02:41)
-02. Астемир Насипов  - Она Не Вернётся (03:22)
-03. Katy Perry  - Firework (Sak Noel Remix) (03:21)
-04. Nifiant  - I Need Your Love (03:32)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:711F42A5680CEEAF6F4F72A1996B360DC9AF47D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933430   (506167) от 01.09.2015
-
-VA - TOP August (2015) [MP3|320 кб/с]<Electronic, Lounge, Pop, Deep>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506167.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alla Pugacheva - Kafe Tantsuyuschih Ognei' (Anton Ishutin Nu Disco Edit) (05:19)
-02. Parov Stelar feat. Angela McCluskey - Don't Believe What They Say (04:33)
-03. Noiseshaper - Movin' Together (02:57)
-04. Natema, Enzo Gomez feat. Jeremy Goddard - BMW (Original Mix)Жанр: Electronic, Lounge, Pop, DeepПродолжительность: 01:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9552972D5A880DC1541195FC848BA2C07761748
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562569   (506108) от 12.07.2022
-
-VA - В машине с музыкой Vol.285 (2022) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bodybangers Feat. & Stephen Oaks - Hot In Herre (02:17)
-02. Faruk Orman  - Work Bitch (03:04)
-03. Группа Кукла М  - Абдулла (03:06)
-04. Лекко - На Весь Район (02:55)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9944B1A36226DE5675A8E9B3444C051B900DB0F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933370   (506001) от 01.09.2015
-
-VA - Всё сразу 200 хитов Выпуск 5 (2015) [MP3|128 - 320 кб/с]<Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506001.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ленинград - Сладкий сон
-002. Movetown feat. Ray Horton - Here Comes The Sun (Radio Edit)
-003. Ленинград - Менеджер
-004. Rammstein - Mutter(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:24:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842F4DF614BCEE6D7A2DE922866B21CB8EA46C3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933606   (505362) от 02.09.2015
-
-VA - String Illusion (2015) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pharrell Williams - Happy
-02. Basterd Deneillo - Raggaman (Original Mix)
-03. 01. Black Jogerz - Cyclone (Original Mix)
-04. Calvin Harris - Blame (Feat. John Newman)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85B402750BD3D90366B8EA688EDC5CCCCD82E948
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933603   (505201) от 02.09.2015
-
-VA - Всё сразу. 200 хитов. Выпуск 6 (2015) [MP3|128 - 320 кб/с]<Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505201.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. HOMIE feat. Андрей Леницкий - Лето как осень
-002. Dan Balan - Chica Bomb (Dj Dan Karim Chill Mix)
-003. Туситов - Последняя песня (kempel prod.)
-004. Thousand Foot Krutch - New Drug(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 12:56:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1CEDC9044B60CACFB4CAB81F2C5C6414839F8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 539936   (504879) от 28.08.2012
-
-VA - I love Electro Music vol.1 (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504879.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 13
-2. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 16
-3. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 2
-4. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 7
-5. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 8
-6. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 9
-7. Absolute Sexy - mixed by Dj Frankie Lacosta & Dj Soulbrothers - Track 14
-8. Alex Sayz ft Nadia Ali - Free To Go (Original Mix)
-9. Alexander Popov Feat. Kyler England - My World (Dub Mix Edit)
-10. Bel Suono & DJ Magic Finger  - Te Quiero(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:219D00CEBE765877F2C61AE83A1FA479D6D1A31C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 540060   (504818) от 28.08.2012
-
-VA - Сборник медленных хитов Vol.11 (2012) [MP3|320 кб/с]<Pop, Rock, Blues>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kylie Minogue - Red Blooded Women
-02. Natasha St-Pier - Je Te Souhaite
-03. Chris De Burgh - Love Of The Heart Divine
-04. Tony Joe White - Cold Fingers
-05. Patricia Kaas - Je Te Dis Vous
-06. Alanis Morissette - Hands Clean
-07. Jai - I Love You(Human)
-08. Despina Vandi - Ime Ego
-09. Anggun - Je Partirai
-10. Eros Ramazzotti - L'Uomo Che Guardava Le Nuvole(   Читать дальше...   )Жанр: Pop, Rock, BluesПродолжительность: 06:55:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF5314AED9A880E6D3B6300E2B8E0360082DC49A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 933841   (504602) от 03.09.2015
-
-VA - Autumn Party (2015) [MP3|320 кб/с]<Trance, Dance, House, Synthpop, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leave & Get Closer - The Time Before (Original Mix)
-02. Mary J. Blige - Real Love (Christofi Glenn Michaels Remix)
-03. Denis Kenzo & Kimberly Hale - Find The Light (Original Mix)
-04. Matvey Emerson - Run Away (Original Mix)(   Читать дальше...   )Жанр: Trance, Dance, House, Synthpop, ClubПродолжительность: 09:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EE22DCC7B5252CEBC7AFF2C22AC374F7F350AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

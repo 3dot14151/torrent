@@ -1,3 +1,119 @@
+###  Публикация: 1364688   (933705) от 05.03.2020
+
+Pride Of Lions - 6 альбомов Discography 7CD (2003-2017) [FLAC|Lossless|image + .cue] <Melodic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933705.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2003 - Pride Of Lions
+2004 - The Destiny Stone
+2006 - Live In Belgium(   Читать дальше...   )Жанр: Melodic Rock/AORПродолжительность: 07:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6426328E12D4B3E040702A7A7C65448DD3CD8F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365027   (933702) от 05.03.2020
+
+Martina Edoff - We Will Align (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn Our Pages [5:06]
+ 02. Champions [3:58]
+ 03. Alive [3:40]
+ 04. We Will Align [4:02](   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D105A3BBD7B719F30CBFE6370294B0F1D5812AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985534   (933676) от 12.02.2016
+
+Scorpions - Pure Instinct (1996) [FLAC|Lossless|image + .cue] <Rock , Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Wild Child 	04:16
+02. 	But The Best For You 	05:19
+03. 	Does Anyone Know 	05:55
+04. 	Stone In My Shoe 	04:37(   Читать дальше...   )Жанр: Rock , Hard RockПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A8D5641148047E3C7EEC9DE03C1A1FC587E5A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093915   (932363) от 16.01.2017
+
+Gotthard - Silver (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silver River (3:39)
+02. Electrified (4:00)
+03. Stay With Me (4:00)
+04. Beautiful (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7192ABB97C65389CFD6AF7581B0EEBFF553EA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 985937   (931742) от 13.02.2016
 
 Deep Purple - The Audio Fidelity Collection (2013) 4CD Box Set, 24K Gold, Audio Fidelity [FLAC|Lossless|image + .cue]<Hard Rock>
@@ -620,128 +736,6 @@ Gotthard - Silver (2017) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E21F780CF191736E54AA79B9657A07A0E35CD201
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366812   (920715) от 13.03.2020
-
-Jerry-Kelly - Somebody Else's Dream (1978) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_920715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jerry-Kelly - Settle Down 04:33
-02. Jerry-Kelly - Magic 03:14
-03. Jerry-Kelly - Silly Boy 03:53
-04. Jerry-Kelly - Dear Love 04:10(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:266E7E47AB29EF7731DA9F3D0E6EA662BCD627FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366815   (920577) от 13.03.2020
-
-Dakota - 9 альбомов 11CD (1980-2015) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920577.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1980 - Dakota
-1980 - Dakota (Remastered 2012)
-1984 - Runaway (Remastered 2012)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 09:50:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C18737A325F9857507AA9AD484BC40A202D6C22B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289067   (920475) от 30.01.2011
-
-Bonfire - Branded (2011) [FLAC|Lossless]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadly Contradiction 05.45
-02. Just Follow The Rainbow 03.49
-03. Save Me 05.17
-04. Let It Grow 05.12
-05. Better Days 07.10
-06. Do Or Die 06.00
-07. Close To The Edge 04.51
-08. Crazy 04.24
-09. Loser’s Lane 03.19
-10. Hold Me Now 05.42(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 757245   (919423) от 15.02.2014
-
-Def Leppard - Slang (Deluxe Edition) (2014) 2CD /Scene/ [FLAC (tracks)|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turn To Dust (1st Draft – Phil Verse Vocal)
-02. Raise Your Love
-03. All I Want Is Everything (1st Draft)
-04. Work It Out (1st Draft)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 02:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E055D3C4ABB85900F15640ACEBD1A301BF0C38
 ```
 
 https://mybot314.ru/tekegram_catalog/

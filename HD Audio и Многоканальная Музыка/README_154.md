@@ -1,3 +1,177 @@
+###  Публикация: 1746941   (104820) от 02.09.2024
+
+Taj Farrant - Chapter One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Things (1:35)
+02. Bad Trip (4:41)
+03. Crossroads (3:41)
+04. Cruz (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F93EB7147559BC82660AE25D65AA89FB5025F84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746887   (104819) от 02.09.2024
+
+Tim Armacost feat. Tom Harrell, Gary Smulyan, John Patitucci & Al Foster - Something About Believing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Really Just A Blues (8:14)
+02. Dance To The Lady (10:05)
+03. The Chief (7:45)
+04. Something About Believing (9:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB2663B51FFEE921542189E032EA65B38AC95E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746933   (104818) от 02.09.2024
+
+Steve Smith and The Sneakers - Hoodoo Man (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mean Ol Woman Blues (4:32)
+02. Lipstick and Lace (5:51)
+03. Ca Viens Mama (5:25)
+04. Have a Good Time Tonight (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96318DA6A7E450FE8E6FF25A7297C46C99EE930B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746896   (104817) от 02.09.2024
+
+Zaphica - Zaphica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Great Apostasy (7:54)
+02. The Birth of Venus (6:11)
+03. Antiprism (7:10)
+04. For Fred (1:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9371B757A905AAA19B515A1CEEA3DA6469721739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746930   (104816) от 02.09.2024
+
+Katrina SoulSinger - Category 5 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'll No Bout Me (3:34)
+02. Sittin Right Here (3:16)
+03. Come Get Your Man (3:45)
+04. Put It On You (4:12)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8424177CEDD1641B7A408471B430C4FCFE90B6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746936   (104815) от 02.09.2024
+
+Steve Smith and The Sneakers - The Glory Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Before You Start To Run (3:12)
+02. I Ain't Done Yet (with the blues) (3:43)
+03. Doug's Song (4:37)
+04. Till I Met You (4:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C6DC62CDD8B55956E8D0D3DD8C4550364ABE68F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746880   (104814) от 02.09.2024
 
 Roberta Gambarini & Hank Jones - You Are There (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -571,179 +745,6 @@ Mr. Big - The BIG Finish Live (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3662D6E9160B09FFA5EDFFB6C8E3E666DBFA809E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747655   (104700) от 06.09.2024
-
-Rex Orange County - Who Cares? (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. KEEP IT UP [00:03:03]
-02. OPEN A WINDOW [00:03:38]
-03. WORTH IT [00:02:44]
-04. AMAZING [00:03:29](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F45E76B5A46D5A29AF7FCF7A8F05EF861A00553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747629   (104698) от 06.09.2024
-
-These Are They (Novembers Doom members) - Studio Albums (3 releases) (2009-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104698.jpg" />
-</div>
-
-
-###  Подробнее
-
-These Are They - американская дэт-метал группа, состоящая из участников Novembers Doom2009 - Who Linger
-2010 - Disposing Of Betrayers
-2014 - At The Feast Of Seven FuneralsЖанр: Death MetalПродолжительность: 02:42:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8578DD76EFCCFA26004BF8F7BABC13736034BED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747728   (104692) от 07.09.2024
-
-blink-182 - One More Time... (2023) (Deluxe Edition) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Punk, Rock, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Anthem Part 3 [3:34]
-02 - Dance With Me [3:09]
-03 - Fell In Love [2:19]
-04 - Terrified [2:49](   Читать дальше...   )Жанр: Pop Punk, Rock, Alternative RockПродолжительность: 00:50:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B1F0AF9F63A7537F306BE470FBCFF001E7D9CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747962   (104657) от 07.09.2024
-
-The Dead Daisies - Light 'Em Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light 'Em Up (3:40)
-02. Times Are Changing (3:13)
-03. I Wanna Be Your Bitch (3:16)
-04. I'm Gonna Ride (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:567B8FA382B865AF1A8E7E8FBC76C2897207AF12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747796   (104653) от 07.09.2024
-
-Banco De Gaia - Trauma (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Tribal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mir [00:04:02]
-02. A Bee Song [00:05:47]
-03. Draig Ddu [00:05:59]
-04. War [00:07:15](   Читать дальше...   )Жанр: Downtempo, Ambient, TribalПродолжительность: 00:52:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91C5DE1CDB02DDBABD7B446996925F88C5B2D233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747917   (104647) от 07.09.2024
-
-Negative - Studio Albums (6 releases) (2003-2010) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Glam Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104647.jpg" />
-</div>
-
-
-###  Подробнее
-
-Negative — финская глэм-рок-группа, основанная в конце 1997. Уже на первых ступенях своего пути Negative получила репутацию живой группы, которая даёт публике запоминающиеся мелодии и риффы гитары. Звучание группы сравнимо с ранними исполнителями глэм-рока и группами как David Bowie и Queen. Сама группа называет свой стиль «эмоциональный rock’n’roll». В последние (   Читать дальше...   )2003 - War Of Love
-2004 - Sweet And Deceitful
-2006 - Anorectic
-2008 - Karma KillerЖанр: Glam Rock, Hard RockПродолжительность: 05:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948BD338B140A8C9D9C3640F2E188864C84A6699
 ```
 
 https://mybot314.ru/tekegram_catalog/

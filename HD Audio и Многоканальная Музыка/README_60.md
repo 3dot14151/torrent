@@ -1,3 +1,177 @@
+###  Публикация: 843120   (198016) от 23.05.2023
+
+James Last - The James Last Album (1971) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198016.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A Man And A Woman
+A2 Wheels
+A3 My Bonnie
+A4 Montego Bay(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142276DB4C98E42D32D55206876FF2255603C103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1635611   (197985) от 26.05.2023
+
+Mike Oldfield - Tubular Bells (50th Anniversary Edition) (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tubular Bells (Pt. I) (25:29)
+02. Tubular Bells (Pt. II) (23:21)
+03. Tubular Bells 4 Intro (Demo / 2017) (8:33)
+04. Tubular Bells / In Dulci Jubilo (London 2012 Olympics Opening Ceremony) (11:24)(   Читать дальше...   )Жанр: PopПродолжительность: 02:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77DDAFB6792A2F2587D9ECED213EC1413D541C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636049   (197851) от 29.05.2023
+
+Chris Rea - Легенды зарубежного рока (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Looking For The Summer
+A2 Josephine
+A3 Auberge(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A58E6C29AC8EAFA9AB982DB1D4F85700DC5B32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1637585   (197473) от 04.06.2023
+
+Демонстрационный диск DTS 5.1 CD-Audio #17 (2023) [DTS 5.1 CD-DA|44.1/16|image+.cue|Audio-DVD] <Pop/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>DTS-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197473.jpg" />
+</div>
+
+
+###  Подробнее
+
+При подготовке релиза использовал материал, взятый с Audio-DVD, который был выпущен в 2012 году и подготовлен специально для владельцев некоторых моделей Mercedes-Benz. Этот сборник многоканальных треков был составлен лауреатами премии "Grammy" Гербертом Уолтлом (mediaHYPERIUM) и Лесли Энн Джонс (Skywalker Sound). Вместе они создали подборку поп-музыки (   Читать дальше...   )01. Seal - Amazing (3:30)
+02. Foreigner - Cold As Ice (3:21)
+03. Lady Gaga - Poker Face (3:59)
+04. James Blunt - You're Beautiful (3:32)(   Читать дальше...   )Продолжительность: 01:01:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10AC29BA6AC245DD454F5F898D28218D695011E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638543   (197349) от 09.06.2023
+
+Rammstein - Sehnsucht (1997) Anniversary Edition, 2023, Remastered, Universal Music GmbH [FLAC 2.0|44/24|WEB-DL|tracks] <Neue-Deutsche-Härte, Industrial-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sehnsucht (4:04)
+02. Engel (4:25)
+03. Tier (3:48)
+04. Bestrafe mich (3:39)(   Читать дальше...   )Жанр: Neue-Deutsche-Härte, Industrial-MetalПродолжительность: 00:48:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E568874E25B8166039832F9E7AA20CBF1F1889D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643972   (196226) от 04.07.2023
+
+Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, Reissue, Gatefold 180g Electric-Blue And Orange Vinyl [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electro, Synth-pop,  ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196226.jpg" />
+</div>
+
+
+###  Подробнее
+
+00:38:54
+
+A1 Atomic
+(A. Maratrat, G. L'Her)(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 03:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E71AC9C5A5CD91CB152E3E12DF9D0CCE4B4095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 123461   (196172) от 03.07.2023
 
 Hooverphonic - No More Sweet Music (2005) [DTS-CD from DVD-Video] <lounge>
@@ -571,180 +745,6 @@ A4 Knee Deep In Sky High(   Читать дальше...   )Жанр: Glam, Clas
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0BE16C61CBB84414735DA1FBAC1927212DAE29EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657623   (192302) от 05.09.2023
-
-Aventhur - Fractured Memories (2023) [FLAC 24/48|WEB-DL|tracks] <Symphonic Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Alchemist [00:08:38]
-02. Awaken [00:04:34]
-03. Vows of Lies [00:04:03]
-04. Through the Mirror [00:04:33](   Читать дальше...   )Жанр: Symphonic Progressive MetalПродолжительность: 00:54:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E54D6E8E0F85587C4399E2CF767A6458D2FB77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657722   (192270) от 05.09.2023
-
-Julian Lennon/Джулиан Леннон - Valotte/Валотт (1987) Лицензия от Virgin Records Ltd [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192270.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Валотт • Valotte
-A2 С Тобой Все В Порядке • O.K. For You
-A3 По Телефону • On The Phone
-A4 Космос • Space(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029C3FA11D0FE7920587CCEB40A869598C025EB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587769   (192096) от 02.11.2022
-
-VA - Ultimate Divas 1940 - 2004, feat. B. Holiday • E. Fitzgerald • S. Vaughan • P. Lee and Many More (2022) Unofficial Release [FLAC 2.0|44,1/24|image+.cue|MC-Rip] <Pop, Soul, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carmen McRae - Blue Moon
-Blue Moon
-1956 - Polygram - Rodgers/Hart
-02. Rosemary Clooney - You Started Something(   Читать дальше...   )Жанр: Pop, Soul, JazzПродолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53055E9F1D693BEBDE63303FB266FADFAEB68DE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151821   (191974) от 02.11.2022
-
-Ronnie Montrose - Territory (1986) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz-Rock, Ambient, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191974.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Catscan
-A2 I'm Gonna Be Strong
-A3 Love You To
-A4 Odd Man Out(   Читать дальше...   )Жанр: Jazz-Rock, Ambient, ExperimentalПродолжительность: 00:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C2ECB1A4E68A9AA920216258EDA61DFC5983EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1657941   (191913) от 06.09.2023
-
-Sunny Day Real Estate - Studio Albums (4 releases) (1994-2000) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Emo, Indie Rock, Post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191913.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sunny Day Real Estate (или SDRE) — американская музыкальная группа из Сиэтла, штат Вашингтон.1994 - Diary
-1995 - LP2
-1998 - How It Feels To Be Something On
-2000 - The Rising TideЖанр: Emo, Indie Rock, Post-grungeПродолжительность: 03:29:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62F6BCFE37E7191B872B26D0435470DB105EF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658413   (191324) от 08.09.2023
-
-Sylosis - A Sign of Things to Come (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Death Metal, Thrash Metal, Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadwood (4:25)
-02. A Sign of Things to Come (4:35)
-03. Pariahs (3:47)
-04. Poison for the Lost (4:19)(   Читать дальше...   )Жанр: Melodic Death Metal, Thrash Metal, Progressive MetalПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F40DB2D234DDFE877038FD88B47979941FC58EC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 662207   (758269) от 29.05.2013
+
+VA - The Perfect Guitar Collection. 25 Original Albums (2012) [FLAC|Lossless]<Jazz, Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758269.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Jazz, Blues, RockПродолжительность: 00:44:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018166   (757643) от 19.05.2016
+
+Rob Tognoni Band - Stones And Colours (1995) [FLAC|Lossless|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Occupation    04:23
+02. The Good Die Young    04:00
+03. This Is Love    03:45
+04. When I'm Alone    03:51(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CD7ACA882B723701139F2AF2D59D94C2E57FA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522794   (756637) от 08.01.2022
+
+Brett Littlefair - Footstompin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Little Town (2:49)
+02. Girl Can Groove (3:28)
+03. Stop Your Talkin' (2:46)
+04. Makin' My Name (3:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87CC00E0AFBBD6326E54CD79249A5EBFB5B8CE6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522797   (756636) от 08.01.2022
+
+The Dave Paul Band - Loving the Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Shiver (3:58)
+02. Further on up the Road (2:36)
+03. Hey Joe (5:38)
+04. Rolling Stone (5:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B0D368F54E6DA0BA46A58FE677576C4AE40DC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215541   (756353) от 27.03.2018
 
 Original Chicago Blues All Stars - Gold (2018) 2CD [FLAC|Lossless|WEB-DL|tracks]
@@ -626,122 +739,6 @@ Tinsley Ellis - Devil May Care (2022) [FLAC|Lossless|image + .cue] <Blues, Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6178474298CD39615C2FB1C10E95A55EDC71B43C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526269   (738419) от 24.01.2022
-
-Claywood Slim - Social Nomad (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,  Country, Americana>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Worn out Boots (3:47)
-02. Ain't No Use (2:40)
-03. All I Want (3:48)
-04. Quarantine (3:15)(   Читать дальше...   )Жанр: Blues,  Country, AmericanaПродолжительность: 00:38:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA472A6E490CB749B6D0B42EE48EDA2CC2DBAD34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526396   (738418) от 24.01.2022
-
-Shanda & the Howlers - It Ain't Easy (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738418.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles and Miles (3:22)
-02. Please Come Home (3:09)
-03. Want You Anyway (2:30)
-04. Used to Call Me Baby (3:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924609BFBAC95FF99A94060A989E2A295AA58084
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526390   (738416) от 24.01.2022
-
-Sergio Arreaga - My Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Thing Called Love (5:36)
-02. Daily Blues (3:30)
-03. Slow Dance (3:25)
-04. Fight for Your Dreams (5:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50AB0E42A2E283CD58F1FD70542AFF4DE6AD9B30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1397747   (737564) от 22.07.2020
-
-VA - 25 Blues Evergreens (1991) 4CD [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737564.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Eric Clapton - Draggin' My Tail 3:02
-02. Muddy Waters - (I'm Your) Hoochie Coochie Man 2:49
-03. Howlin' Wolf - Wang Dang Doodle 4:55(   Читать дальше...   )Жанр: BluesПродолжительность: 04:42:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D110C90054E111BDA736EDC8BFC0BEC91D5972F
 ```
 
 https://mybot314.ru/tekegram_catalog/

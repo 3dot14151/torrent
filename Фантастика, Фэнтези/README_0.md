@@ -220,7 +220,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1044297.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044297.jpg" />
 </div>
 
 
@@ -272,7 +272,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Фантастика, Фэнтези
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1043728.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043728.jpg" />
 </div>
 
 

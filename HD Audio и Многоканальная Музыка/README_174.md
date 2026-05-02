@@ -1,3 +1,174 @@
+###  Публикация: 1769754   (100660) от 29.12.2024
+
+Kripton - Fire on My Strings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Dreams (1:10)
+02. Soulful Blues (English version in the style of Blues Rock) (2:54)
+03. Digital Show (2:59)
+04. Delta blues (2:27)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08E199C8CF08FDF78FF78D9D4D7D5FFFE11FDAD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769776   (100659) от 29.12.2024
+
+Mark Bennett Gartman - Crossing of the Roads (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avenue D Blues (3:31)
+02. The Train (2:43)
+03. Mama I'm Tired (3:01)
+04. Can't Hold Back (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7789A47D7F268D9A055ADAD33A98A29933AED797
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769780   (100658) от 29.12.2024
+
+Mesquite Cafe - Raven's Cry (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snakebite Juice (3:05)
+02. Believe (4:39)
+03. Purple Pants (2:49)
+04. I Know How To Run (4:34)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E6566BBE96860FD0701C6349A6DFEA94EC5024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769794   (100657) от 29.12.2024
+
+Ned Evett - Strange Kind Of Freedom (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good News (3:18)
+02. Make Way For LaBuda (3:26)
+03. Strange Kind Of Freedom (4:13)
+04. In Between (3:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A844B8F6C24C343B726386D97D6DE9EEA9F4087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769772   (100656) от 29.12.2024
+
+Marcus King - Mood Swings (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mood SwingsЖанр: Blues, RockПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A559EDFED74BB10E2D876AC9AB805B819078327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1769782   (100649) от 29.12.2024
+
+Mike McCorison lyric writer - The Wild Viking Project V2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Its gotta be love (3:09)
+02. Bad (3:09)
+03. Pencil lead (3:09)
+04. Driving me to drink (3:15)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A1AF9D7EBC03B3A10E0ADC84B35A5380D14312
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1769740   (100648) от 29.12.2024
 
 FROM - Can’t Stand The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -568,180 +739,6 @@ Lemongrass - Journey Backwards (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:439611E1E0C8E26D5A1FBF1EDCE85B11CE0F1DF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822132   (98589) от 05.10.2025
-
-Carter Faith - Cherry Valley (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherry Valley [00:03:52]
-02. Sex, Drugs, & Country Music [00:03:36]
-03. Arrows (Die For That Man) [00:03:51]
-04. Bar Star [00:02:52](   Читать дальше...   )Жанр: PopПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8B10F1147985A26CD5DB83AC1FF1CF44CD58595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609307   (94726) от 04.10.2025
-
-Hypocrisy (Peter Tagtgren) - Studio Albums (19 releases) (1992-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94726.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hypocrisy — шведская дэт-метал-группа, образованная в октябре 1991 года в Людвике Петером Тэгтгреном.1992 - Penetralia
-1993 - Osculum Obscenum
-1994 - The Fourth Dimension
-1996 - Abducted(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 17:12:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45EDD972967DE30B65919EC0674281E68F29E04C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1822026   (94694) от 04.10.2025
-
-Skid Row - Studio Albums (8 releases) (1989-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard 'n' Heavy, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Skid Row — американская хэви-метал группа, образованная в 1986 году в Томс-Ривер, штат Нью-Джерси.1989 - Skid Row
-1991 - Slave To The Grind
-1995 - Subhuman Race
-2003 - ThickskinЖанр: Hard 'n' Heavy, Glam MetalПродолжительность: 06:00:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF1F77A7E347935055C712EC66FA2B6F573DD8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821754   (91288) от 03.10.2025
-
-Владимир Высоцкий - Высота (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Авторская песня>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Песня о Земле [00:02:31]
-02. Охота на волков [00:03:42]
-03. Дом хрустальный [00:02:25]
-04. Песня о переселении душ [00:02:06](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:35:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:635FD4F0D3642557A4623AAE3FA550FB542AFA9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821775   (91287) от 03.10.2025
-
-Aphex Twin - Surfing On Sine Waves (1993) Expanded Edition, 2025, Warp Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Breaks, Techno, Abstract>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Polygon Window [00:05:27]
-02. Audax Powder [00:04:40]
-03. Quoth [00:05:36]
-04. If It Really Is Me [00:07:03](   Читать дальше...   )Жанр: Breaks, Techno, AbstractПродолжительность: 01:15:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77B9822268D120332DCC7F8679087F06B1932A26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1821759   (91286) от 03.10.2025
-
-Till Lindemann - Zunge 2025 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Industrial>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91286.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zunge [00:04:35]
-02. Sport frei [00:04:12]
-03. Altes Fleisch [00:04:24]
-04. Übers Meer [00:03:19](   Читать дальше...   )Жанр: IndustrialПродолжительность: 01:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D018C5C611249416F462202F564607DF46FA9D73
 ```
 
 https://mybot314.ru/tekegram_catalog/

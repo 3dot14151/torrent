@@ -1,3 +1,237 @@
+###  Публикация: 543730   (494180) от 06.09.2012
+
+Nature HD Wallpapers (05.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494180.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB83710C707A636B49A249D9E0E916DED5651F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543754   (494178) от 06.09.2012
+
+Desktop wallpapers (06.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494178.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EE5563B062888DDAE248E2F0F7D5AF32931573E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936627   (494177) от 12.09.2015
+
+Обои - Обои с девушками 1920x1200 (6 часть) [JPG]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои с девушками.Формат: JPGРазрешение файлов: 1920x1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E636375CE9F87CDEF2763DC9818FF923F6C3A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542639   (494176) от 06.09.2012
+
+Nature Wallpapers (02.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494176.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5D5C05699F849104D4086A0FE744F69588821A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543978   (494172) от 06.09.2012
+
+Журнал | Webuser №300 (UK) [6 сентября 2012] [PDF] [En]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494172.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал содержит информацию о новых сайтах в сети, обзоры софта и "железа". В текущем номере: лучшие сайты, приложения, почтовые сервисы; защита личных данных; 10 лучших плагинов для браузеров и т.д.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6F6300FF9A1130781A0FB0685051F8B5D658A62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542659   (494171) от 06.09.2012
+
+Desktop wallpapers (03.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494171.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7572EFD04DC1E0574CE33EC380FAC1D617166A84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936629   (494170) от 12.09.2015
+
+Macgo Windows Blu-ray Player 2.16.4.2079 RePack by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494170.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows Blu-ray Player – это лучший проигрыватель для воспроизведения Blu-ray видео и просмотра HD Blu-ray дисков, а также видео и музыки во многих других форматах в ОС Windows. Плеер очень удобен в использовании, не прихотлив, имеет приятный дизайн и интуитивно понятный интерфейс, поддерживает аппаратное ускорение, что увеличивает производительность при умеренном (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B26391211C221B62328E7B2C564DAE6414971AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543727   (494169) от 06.09.2012
+
+Computer Desktop Wallpapers Collection (05.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:627D50514B5FD796C43951F785573E7A24DA5FB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 543731   (494167) от 06.09.2012
+
+Landscapes HD Wallpapers (05.09.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28835DFB2F862DAFBDCC8B8ED1381CF3F0850C4E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 543728   (494165) от 06.09.2012
 
 Best HD Wallpapers Pack (05.09.12) [Wallpapers]
@@ -450,263 +684,6 @@ Best HD Wallpapers Pack (31.08.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6130007CE2A54A9997E651C69F3B1EE1FA6925C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543110   (494040) от 06.09.2012
-
-Captain Crimson - Dancing Madly Backwards (2012) [FLAC|Lossless]<Hard Blues Rock, Stoner Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lonely Devils Club
-02. Sleep Mountain
-03. River
-04. Don’t Take Me For A Fool
-05. Autumn
-06. Wizard’s Bonnet
-07. Silver Moon
-08. True Color
-09. Dancing Madly BackwardsЖанр: Hard Blues Rock, Stoner RockПродолжительность: 00:45:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543460   (494037) от 06.09.2012
-
-Jagjit Singh - A Spiritual Journey (2CD) (2011) [MP3|320 кб/с]<Folk, Meditative, Mantras>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494037.jpg" />
-</div>
-
-
-###  Подробнее
-
-(02:25) 01. Om Jaap
-(02:19) 02. Vakratunda Mahakaya
-(05:01) 03. Hare Krishna Hare Krishna
-(03:24) 04. Arogya Mantra
-(03:01) 05. Aarogya Gayatri
-(05:32) 06. OM Gam Ganpataye Namah
-(07:28) 07. Kabir Dohe
-(19:49) 08. Jai Shri Ram SurmalaЖанр: Folk, Meditative, MantrasПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F78D7834C0E485DBF7A2A5FEED63156C7F2C66F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543784   (494034) от 06.09.2012
-
-Fabio XB & Wach vs Roman Sokolovsky - Eternal (2012) [H.264/1080р] WEBRip
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494034.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: TranceПродолжительность: 00:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98C30441099B4FBAFCD6DEF6515AFFED3F09447C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542976   (494032) от 06.09.2012
-
-The Addiction Dream - Essence (2012) [FLAC|Lossless]<Progressive Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Magic (5:41)
-02. Insatiable (5:31)
-03. Pious Greedy Few (3:55)
-04. The Conservative (7:15)
-05. Dark Skies (6:09)
-06. Promise (3:46)
-07. Flying (5:36)
-08. Essence (3:48)
-09. Survivor (7:27)Жанр: Progressive RockПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936538   (494031) от 12.09.2015
-
-oCam Screen Recorder 136.0 RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494031.jpg" />
-</div>
-
-
-###  Подробнее
-
-oCam Screen Recorder - бесплатная программа, позволяющая быстро и качественно записать видео всего происходящего на экране. Кодирование (сжатие) получаемого видео производится кодеками, установленными в систему. Имеется поддержка двух мониторов. Cam Screen Recorder позволяет записывать также и звуковое сопровождение, причем не только через микрофон. Особенностью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FBD8C5188A283A6B0C04E4BDC94969749B0A1D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936536   (494028) от 12.09.2015
-
-BurnAware Professional 8.4 Final RePack (& Portable) by KpoJIuK (11.09.2015) [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494028.jpg" />
-</div>
-
-
-###  Подробнее
-
-BurnAware - простая и в тоже время мощная программа для записи и копирования любых дисков - CD, DVD, Blu-Ray и HD-DVD, а также копирования CD и DVD. Программа позволяет выполнять все основные задачи по записи: работа с носителями CD/DVD, Blu-Ray; запись Audio CD и DVD-Video; копирование и прожиг образов; клонирование дисков; поддержка мультисессии, также имеет дополнительные (   Читать дальше...   )Язык интерфейса: Русский / Английский / Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2980F9AD319DE81CD06AC7D413213ACE70D91F40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 542635   (494025) от 06.09.2012
-
-Computer Desktop Wallpapers Collection (02.09.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FFFF433FD2144323EC6E543BAF18785A2E61262
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543749   (494021) от 06.09.2012
-
-Best HD Wallpapers Pack (06.09.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D15FBC92A0398F6DFABB86C8349197CC3C6C522
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936332   (494020) от 12.09.2015
-
-AVS All-In-One Install Package 2.8.1.120 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494020.jpg" />
-</div>
-
-
-###  Подробнее
-
-AVS4YOU Collection - пакет, состоящий из 10 программ AVS, для работы с видео, аудио, графикой, дисками и документами, таких как: AVS Audio Editor, AVS Audio Converter, AVS Disc Creator, AVS Document Converter, AVS Image Converter, AVS Media Player, AVS Photo Editor, AVS Video Converter, AVS Video ReMaker, AVS Video Editor.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66BEF61C7AD88685517993E850BFA36D9FCA28BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

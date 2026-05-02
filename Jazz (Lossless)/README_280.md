@@ -1,3 +1,61 @@
+###  Публикация: 1671562   (171191) от 25.10.2023
+
+Chris Botti - Vol. 1 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danny Boy
+02. Bewitched, Bothered and Bewildered
+03. Two For The Road
+04. Paris (feat. John Splithoff)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5729425ED17F6935DA61A0531A1571EBC983FA9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1671820   (171086) от 26.10.2023
+
+Toshiyuki Miyama & The New Herd - Gallery (1979) Three Blind Mice [FLAC|Lossless|tracks + .cue] <Post-Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flower Arrangement [5:28]
+02. Art Gallery [5:30]
+03. A Falling Star [5:39]
+04. Blue Sail [5:34](   Читать дальше...   )Жанр: Hard Bop, Big BandПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7905C1AA491F047260854D93F9668AF31A3334CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1671817   (171083) от 26.10.2023
 
 Robert Conti - You Are The Sunshine Of My Life (1985) Trend [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Guitar Jazz>
@@ -687,64 +745,6 @@ Ben Webster - The Soul Of Ben Webster (1954 - 1958) 2019, MatchBall [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5661D10F868B124B064FBE633BCA9B1DD9F8AB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672305   (169376) от 28.10.2023
-
-VA - Good Feeling Chilly Light Relaxing Jazz Playlist (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kool&Klean - It Will Rain (4:12)
-02. Chillaxing Jazz Kollektion - Blue Pacific (4:39)
-03. Konstantin Klashtorni - I Feel It Coming (4:39)
-04. Kool&Klean - Sail (5:06)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:16:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC068BCE3927CCB6DF46ADA249F8F1ABCEB96C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672307   (169271) от 28.10.2023
-
-VA - Jazz Bar (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Art Blakey - Moanin' (Remastered 1998/Rudy Van Gelder Edition) (9:33)
-02. Oscar Peterson Trio - I Got It Bad And That Ain't Good (5:06)
-03. Stevie Wonder - Don't You Worry 'Bout A Thing (4:45)
-04. Quincy Jones - Just Once (4:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5E812ECD8AE4A4F5D14D0A9BDCD59F1A0CD4A55
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,258 @@
+###  Публикация: 1193316   (262274) от 20.12.2017
+
+Горные лыжи. Кубок мира 2017–2018. Валь дe Изер(Франция). Женщины. Супергигантский слалом (16.12.2017) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262274.jpg" />
+</div>
+
+
+###  Подробнее
+
+16 декабря 2017 года, суббота. 12:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Валь дe Изер(Франция).
+Женщины. Супергигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE32DB08F5F0A4BFBC5D87D3EF7AD66C424C052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193388   (262273) от 20.12.2017
+
+Second Storey - Lucid Locations (2017) Houndstooth [FLAC|Lossless|WEB-DL|tracks] <IDM, Bass, Electro>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moesha Moved To Margate (05:30)
+ 02. Manhattan To Moscow (05:35)
+ 03. Covehithe (04:15)
+ 04. Offbeat World (04:54)(   Читать дальше...   )Жанр: IDM, Bass, ElectroПродолжительность: 00:55:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED50ABBC21E2E91CCEE50D1D9F1DCE976EEA2342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193089   (262266) от 20.12.2017
+
+Ziyal - Discography 6 Releases (2013-2017) [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Ambient, Jungle, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocence (09:46)
+ 02. Aurelia (Ziyal Golden Arc Mix) (06:44)
+ 03. Return To Essence (06:33)
+ 04. Mindtravel (05:47)(   Читать дальше...   )Тип издания: WEBЖанр: Drum & Bass/Ambient/JungleПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0303A2F96945B08A5151F9B5BCBBF9B127A1016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193186   (262265) от 20.12.2017
+
+Downie 3.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – легкая загрузка видео с тысячи разных сайтов.
+Downie поддерживает более 1,100 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
+
+Поддержка 4K видео YouTube - в отличие от многих других загрузчиков YouTube, Downie поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76BDB7E8DD462F796A56C9D3E61C36DFD333163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193230   (262264) от 20.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.19 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eros Ramazzotti  -  Cosa Della Vita  4:50
+02.  Patrizio Buanne  -  Only You (Solo Tu)  2:41
+03.  Marcella Bella  -  Montagne Verdi  3:02
+04.  Carmelo Zappulla  -  E... Se Ne Ghiuta  4:34(   Читать дальше...   )Жанр: PopПродолжительность: 02:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCAF4268D6FE9FD0C310A8F71EB91F7909C4FD03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193242   (262263) от 20.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.20 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marcella  -  Quando Verrai  4:37
+02.  Ricchi E Poveri  -  What Now My Love  4:12
+03.  Ornella Vanoni & Gino Paoli  -  Fingere Di Te  3:26
+04.  Umberto Tozzi  -  Claridad  4:22(   Читать дальше...   )Жанр: PopПродолжительность: 02:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716E32CB5DA71B78C3B35E67427B8842BC31643C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193252   (262262) от 20.12.2017
+
+Burshtyn - Безвірник (2017) [MP3|320 Kbps] <Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262262.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 5000 Вердену
+2. Коловорот
+3. Янтарний Сокіл Волі
+4. Хрест Іспокон(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE88E7DF835F01AB401DBDF702180C15538D97C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193239   (262261) от 20.12.2017
+
+Translatium - translator 7.8.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Translatium - одно из самых мощных приложений перевода для macOS, с поддержкой боле чем 150 направлений перевода, проговаривания текста и несколько уникальных функций, таких, как - оптическое распознавание текста (используйте камеру) и рукописное распознавание текста.Тип издания: macOS SoftwareРелиз состоялся: 19.12.2017Разработчик: Quang LamПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD4DCBF87B267A4D7E21943EFD356F994DAA74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193231   (262259) от 20.12.2017
+
+Audirvana Plus 3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana Plus - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2017Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD048B3E1203FF949A5C8117A2C72B07B84B8D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1193224   (262253) от 20.12.2017
 
 VA - Future Noir - A Collection - Beats For A New Dark Age (1998) Credo [FLAC|Lossless|tracks+.cue] <Breakbeat, IDM, Drum n Bass, Big Beat>
@@ -449,267 +704,6 @@ CleanMyMac позволяет избавиться от разнообразно
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7338DBBD16C08F71964617645B0CA2B8DF02B88D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193309   (262151) от 21.12.2017
-
-Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Четверки (10.12.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262151.jpg" />
-</div>
-
-
-###  Подробнее
-
-10 декабря 2017 года, воскресенье. 13:30 МСК
-4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
-Бобслей. Мужчины-Четверки
-Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:553685EF81111A84F2B014E3F379543461C14C6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193332   (262150) от 21.12.2017
-
-Горные лыжи. Кубок мира 2017–2018. Альта-Бадия (Италия). Мужчины. Гигантский слалом (17.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262150.jpg" />
-</div>
-
-
-###  Подробнее
-
-17 декабря 2017 года, воскресенье. 11:30 МСК
-Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
-Альта-Бадия (Италия).
-Мужчины. Гигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:06:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2B43D2C89C204E59AC1AC6EF4A05CF830495609
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193308   (262149) от 21.12.2017
-
-Бобслей. Кубок мира 2017-2018. 4-й Этап. Винтерберг (Германия). Мужчины-Двойки. 2-я попытка (09.12.2017) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262149.jpg" />
-</div>
-
-
-###  Подробнее
-
-09 декабря 2017 года, суббота. 17:00 МСК
-4-й Этапа Кубок мира 2017-2018 по бобслею и скелетону. Винтерберг (Германия)
-Бобслей. Мужчины-Двойки. 2-я попытка
-Стадион: Вельтинс Эйс-Арена (Винтерберг, Германия)Телекомпания: IBSF TVЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517C08FC53C1D840F13A6E7199FD6D11AE3234FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193586   (262143) от 21.12.2017
-
-VA - DJ Box - Best Of (2017) [MP3|320 Kbps] <Trance,Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Oakenfold – Deep Space (Original Mix)
-02. Freejak & Martay M'Kenzy – Out of Breath feat. Martay M'Kenzy (Extended Mix)
-03. Tilt & Ruby Turner – Deeper in Love feat. Ruby Turner (Original Mix)
-04. Cory Enemy & Chris Bushnell – Keep It Coming (Club Mix)(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 01:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA806BED85E36EE1E14667D0CAFF560A8017577
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193430   (262140) от 21.12.2017
-
-afarOne - Lucen (2012) Karlrecords [FLAC|Lossless|tracks+.cue] <IDM, Leftfield, Modern Classical, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apart (05:10)
-02. Due (06:07)
-03. Naked Icon (06:55)
-04. El Sueno De La Razon (05:47)(   Читать дальше...   )Жанр: IDM, Leftfield, Modern Classical, AmbientПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC13E3EB1162345F338F9CE9A97DD9EC058DEBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193428   (262139) от 21.12.2017
-
-Andrea Belfi - Ore (2017) Float [FLAC|Lossless|WEB-DL|tracks] <Ambient, Experimental, Minimal, Contemporary Jazz, Downtempo>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anticline (10:01)
- 02. Iso (05:58)
- 03. Lead (05:54)
- 04. Ton (12:21)(   Читать дальше...   )Жанр: Ambient, Experimental, Minimal, Contemporary Jazz, DowntempoПродолжительность: 00:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79477BC85C7EF4497A0C80E451F4508FF1B17651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193297   (262133) от 21.12.2017
-
-VA - Capriccio All’italiana: Italian Hit Parade Vol.22 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Al Bano & Romina Power  -  Il Ballo Del Qua Qua  2:50
-02.  Pupo  -  Vita Da Artista  3:19
-03.  Toto Cutugno  -  Solo Noi  4:07
-04.  Umberto Tozzi  -  Tu Piccolo  4:44(   Читать дальше...   )Жанр: PopПродолжительность: 02:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FBE19C4C8B4815332E7B3D826AEA34CBF8C7DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193338   (262132) от 21.12.2017
-
-VA - Capriccio All’italiana: Italian Hit Parade Vol.24 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tony Dallara  -  Come Prima  2:05
-02.  Schola Cantorum  -  Il Calendario  2:31
-03.  Pupo  -  La Vita E Molto Di Piu  3:15
-04.  Riccardo Fogli  -  Malinconia  4:01(   Читать дальше...   )Жанр: PopПродолжительность: 02:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AA5A56E4AC0F06439C86160EA3DA701214177CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193324   (262128) от 21.12.2017
-
-VA - Capriccio All’italiana: Italian Hit Parade Vol.23 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Al Bano & Romina Power  -  Libertа  4:21
-02.  Patrizio Puanne  -  You're My World (il Mio Mondo)  3:06
-03.  Bobby Solo  -  Zingara  2:43
-04.  Fausto Leali  -  Ci Sei Solo Tu (I've Been Loving You Too Long)  3:50(   Читать дальше...   )Жанр: PopПродолжительность: 02:09:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09D51E1F7EEE9797741ABF596E0D54ED740F0386
 ```
 
 https://mybot314.ru/tekegram_catalog/

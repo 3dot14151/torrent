@@ -1,3 +1,61 @@
+###  Публикация: 1320106   (475071) от 16.08.2019
+
+Apocalyptica - Aquarela (2019) [MP3|320 Kbps] <OST, Cello Metal>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475071.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Aqua Opening
+2. Aqua Balalaika
+3. Aqua Icebergs
+4. Aqua Waves(   Читать дальше...   )Жанр: OST, Cello MetalПродолжительность: 00:24:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26E50B71718450F629F2F195EF9C59E01C3B10FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 797289   (473540) от 05.09.2018
+
+Ramin Djawadi - Игра престолов / Game of Thrones, Сезон 4 (2014) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles (01:43)
+02. The Rains of Castamere* (02:42)
+03. Breaker of Chains (04:05)
+04. Watchers On the Wall (02:11)(   Читать дальше...   )Жанр: OSTПродолжительность: 1:00:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDD0F70C2EF9D02EE528C6E3FAA285B3D10F71A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 548961   (464362) от 19.09.2012
 
 Joel Nielsen - Black Mesa Source Soundtrack (2012) [MP3|320 кб/с]<Score>
@@ -690,61 +748,6 @@ VA - Клинч (2015) [MP3|320 кб/с]<Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9C57777787B48C8DD31B7B994834679215180B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323509   (427335) от 08.09.2019
-
-VA - Scream Collection 1-4 / Крик 1-4 (1996-2011) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427335.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 03:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E32617DDEBDCE72C7AFBFD0C7C54C8DFBF35AFF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1064325   (426080) от 20.10.2016
-
-VA - Gears of War (Collection Original Soundtrack) (2007-2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gears of War (04:31)
-02. 14 Years After E-Day (02:55)
-03. Jacinto Prison (02:50)
-04. Attack of the Drones (02:08)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 05:28:09 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B2B883710722466940001F5D6F9A3C0E780C88
 ```
 
 https://mybot314.ru/tekegram_catalog/

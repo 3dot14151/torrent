@@ -1,3 +1,61 @@
+###  Публикация: 1292041   (648184) от 28.03.2019
+
+VA - N'Dance Vol. 2 (Mixed by Global Deejays) (2005) [APE|Lossless|image + .cue] <Eurodance, Euro-House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Global Deejays - What A Feeling (Short Progressive Mix)
+02. Heiko & Maiko - Glucklich (Russian Mix)
+03. Potatoheadz - Narcotic (Royal Gigolos Mix)
+04. Felix Da Housecat - Ready 2 Wear (Benny Benassi Remix)(   Читать дальше...   )Жанр: Eurodance, Euro-HouseПродолжительность: 01:19:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16A9172FE411FB78EC6E7EDE343AAA2880B1A526
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032097   (647624) от 06.07.2016
+
+Whigfield - Whigfield (1995) [APE|Lossless|image + .cue] <Euro House>
+
+>>Pop
+>>Eurodance, Euro-House, Technopop (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saturday Night (Radio Mix)
+02. Think Of You (Extended Mix)
+03. Another Day (Nite Mix)
+04. Don't Walk Away(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:58:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7738FC0280F87574DD4990D0756062979F459F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033875   (635920) от 12.07.2016
 
 VA - DJ Hits Vol. 61 (1996) Unofficial Release [APE|Lossless|image + .cue] <House, Europop, Euro House>
@@ -706,61 +764,6 @@ Boney M. - Original Version - Long Version - Rarities (2012) 4xCD Box Set / CD R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0872B34A69D3E9F51E05A76C7507536AE1DB9622
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 383102   (464356) от 19.09.2012
-
-Moti Special - 2 альбома (1985-1990) [FLAC|Lossless]<Synthpop, Pop>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moti Special - немецкая  группа, образованная в 1981-м году сессионными музыкантами: Michael Cretu, Manfred "Thissy" Thiers, Nils Tuxen и Reinhard "Dickie" Tarrach.01. Higher In The Name Of Love (4:39)
-02. In Love We Stand (3:48)
-03. From Your Lips To God's Ear (5:32)
-04. Still The Same (4:31)(   Читать дальше...   )Жанр: Synthpop, PopПродолжительность: 01:40:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550055   (454885) от 23.09.2012
-
-Carly Rae Jepsen - Kiss (Deluxe Edition) (2012) [FLAC (tracks+cue)|Lossless]<Pop, Dance>
-
->>Pop
->>Eurodance, Euro-House, Technopop (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Pop, DanceПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

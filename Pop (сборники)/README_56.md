@@ -1,3 +1,119 @@
+###  Публикация: 1291856   (650614) от 27.03.2019
+
+VA - German Top 100 Single Charts 01.04.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Capital Bra x Samra - Wir ticken
+002. MERO - Wolke 10
+003. UFO361 - Pass auf wen du liebst
+004. KC Rebell - Alleen(   Читать дальше...   )Жанр: PopПродолжительность: 05:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01E57F4E2946C46C7FC526BCD1716FE59465DB65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141585   (650096) от 10.06.2017
+
+VA - German Top 100 Single Charts 09.06.2017 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650096.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi - Despacito (feat. Daddy Yankee)
+002. Robin Schulz - OK (feat. James Blunt)
+003. Ed Sheeran - Shape of You
+004. Alice Merton - No Roots(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:616F36A85A57094247BDF5EF17047BDC86D35750
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031788   (649688) от 05.07.2016
+
+VA - Keep Calm & Be Happy [2CD] (2016) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649688.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Пpодолжительность: 01:11:57
+
+01. Pharrell Williams - Happy (From "Despicable Me 2") (3:53)(   Читать дальше...   )Жанр: PopПродолжительность: 02:26:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0052EDF53109DFFCDCE165E276DDCAE3904C5CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031797   (649672) от 05.07.2016
+
+VA - I Love Summer - Ministry of Sound (2016)(3CD)[MP3|256 Kbps] <Pop, Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649672.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+Пpодолжительность: 01:11:56
+
+ 1. Sigala Feat. John Newman & Nile Rodgers – Give Me Your Love(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 03:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80316CF43FDE8681CB79008562A3FCB94BB950AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031827   (649111) от 05.07.2016
 
 VA - Детский шансон (Сборник) (2016) [MP3|128-320 Kbps] <Pop, Shanson>
@@ -653,122 +769,6 @@ VA - German Top 100 Single Charts 25.05.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C80C17CC7DF087A0699941A5180E9907B7D8445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227572   (646830) от 26.05.2018
-
-VA - German Top 50 Official Dance Charts 25.05.2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646830.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris, Dua Lipa - One Kiss
-02. Fatboy Slim - Right Here, Right Now (CamelPhat Radio Edit)
-03. David Guetta, Sia - Flames
-04. Ofenbach, Lack Of Afro, Herbal T, Wax - PARTY (feat. Wax and Herbal T)Жанр: DanceПродолжительность: 02:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F490D8AA231836D70CCD165C5102D15FCF38B38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541114   (646654) от 02.04.2022
-
-VA - Chill Hits (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646654.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Tinlicker, Helsloot - Because You Move Me (3:27)
-002. MAFQEES - Sorry (2:42)
-003. Jules Kyng - You're Still The One (2:34)
-004. Able Faces - 3AM (2:32)(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99D07E08DBA0853BA32FEB5E20A9B1D77F243F3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227380   (646583) от 26.05.2018
-
-VA - Зарубежные Хиты-Май 2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646583.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 30 Seconds To Mars - Dangerous Night
-002. Akcent feat. Reea - Deep In Your Eyes
-003. Akcent feat. Reea - Stole My Heart
-004. Andreas Riskykidd feat. Free - Selena(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEB8C69F87E13D4ACE52C5F7A30C3FD54247931F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292274   (646548) от 29.03.2019
-
-VA - 80s Music Hits (2019) [MP3|320 Kbps] <Disco, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646548.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Patrick Cowley - Megatron Man
-002. Oscar - It's My Life
-003. London Boys - London Nights
-004. Latin Lover - Laser Light(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 13:15:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B5C267BC671795B234827489FAE2A9CA920643C
 ```
 
 https://mybot314.ru/tekegram_catalog/

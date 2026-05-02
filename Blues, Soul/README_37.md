@@ -1,3 +1,32 @@
+###  Публикация: 1086225   (153303) от 24.12.2016
+
+Fiona Boyes - Professin' The Blues (2016) [MP3|320 Kbps] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01. Can't Stay Here No More (03:12)
+02. Devil You Know (02:57)
+03. Lay Down With Dogs (03:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82ACBDD11E1173BDD6B26C8845635777D833DD63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1518740   (152387) от 21.12.2021
 
 VA - Blues Happy Christmas (2021) [MP3|320 Kbps] <Blues>
@@ -748,35 +777,6 @@ Joe Bonamassa - Merry Christmas, Baby (2023) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D021C3A8AC338818031F0B89326352E800B448F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684850   (127402) от 17.12.2023
-
-Livin' Blues, Nicko Christiansen - Back on track (2023) [MP3|320 Kbps] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Crow [04:29]
-02. Lockdown [05:19]
-03. Back On The Track [03:52]
-04. Long Lost Son [03:41](   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:45:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:838D32F2777782D19FF616B0EDA88C7AAB88F668
 ```
 
 https://mybot314.ru/tekegram_catalog/

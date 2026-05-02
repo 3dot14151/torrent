@@ -1,3 +1,32 @@
+###  Публикация: 1050044   (540645) от 07.09.2016
+
+VA - Nighttime Lovers Vol.25 (2016) [MP3|320 Kbps] <Electronic, Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540645.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. George Duke - Shine On
+2. Jeffrey Osborne - I Really Don't Need No Light
+3. Cat Miller - Ready Or Not
+4. Deja – Serious (Extended Version)(   Читать дальше...   )Жанр: Electronic, SoulПродолжительность: 01:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4E91E18F259D43CB0F1B5D0ED3B945C7B13964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 532323   (538674) от 07.08.2012
 
 VA - Bar Room Blues: A 12-Track Program (2004) [MP3|320 кб/с]<Blues>
@@ -732,35 +761,6 @@ Big Willy - All In (2018) [MP3|320 Kbps] <Blues, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D257E7FFA642669471A5334059648084E936C8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242705   (513115) от 24.08.2018
-
-Jimmy Lloyd Rea & The Switchmasters - Cruzin` For A Bloozin` (2007) [MP3|320 Kbps] <Rockin` Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baker City BBQ (08:00)
-02. Jimmy Lloyd's Magic Boogie (12:10)
-03. Life On The Machine (11:57)
-04. Nobody Like The Blues (10:46)(   Читать дальше...   )Жанр: Rockin` BluesПродолжительность: 01:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2E7AA662159DDD95AAA1B8611CB173E2DFBC391
 ```
 
 https://mybot314.ru/tekegram_catalog/

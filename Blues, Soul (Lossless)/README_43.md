@@ -1,3 +1,119 @@
+###  Публикация: 1526269   (738419) от 24.01.2022
+
+Claywood Slim - Social Nomad (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,  Country, Americana>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worn out Boots (3:47)
+02. Ain't No Use (2:40)
+03. All I Want (3:48)
+04. Quarantine (3:15)(   Читать дальше...   )Жанр: Blues,  Country, AmericanaПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA472A6E490CB749B6D0B42EE48EDA2CC2DBAD34
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526396   (738418) от 24.01.2022
+
+Shanda & the Howlers - It Ain't Easy (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miles and Miles (3:22)
+02. Please Come Home (3:09)
+03. Want You Anyway (2:30)
+04. Used to Call Me Baby (3:07)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:924609BFBAC95FF99A94060A989E2A295AA58084
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526390   (738416) от 24.01.2022
+
+Sergio Arreaga - My Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Thing Called Love (5:36)
+02. Daily Blues (3:30)
+03. Slow Dance (3:25)
+04. Fight for Your Dreams (5:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50AB0E42A2E283CD58F1FD70542AFF4DE6AD9B30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397747   (737564) от 22.07.2020
+
+VA - 25 Blues Evergreens (1991) 4CD [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_737564.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Eric Clapton - Draggin' My Tail 3:02
+02. Muddy Waters - (I'm Your) Hoochie Coochie Man 2:49
+03. Howlin' Wolf - Wang Dang Doodle 4:55(   Читать дальше...   )Жанр: BluesПродолжительность: 04:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D110C90054E111BDA736EDC8BFC0BEC91D5972F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1527066   (737399) от 27.01.2022
 
 Allan Thomas - The Journey (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ VA - Amber Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55B4A45A466F65D3F08884B70B985306C3347950
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529674   (732495) от 07.02.2022
-
-Eddie 9V - Little Black Flies (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_732495.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Black Flies (3:14)
-02. 3AM in Chicago (3:37)
-03. Dog Me Around (2:56)
-04. She Got Some Money (3:03)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7CCF19ED4F4E016FC9F17AD19AC45EE1F252AFB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127347   (732223) от 21.04.2017
-
-Swoop - The Woxo Principle (1995) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Swingbeat>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Woxo Prelude (0:41)
-02. Living How I'm Living (3:12)
-03. Ephemera (Drop The Vibe) (3:20)
-04. Rock Dog (5:50)(   Читать дальше...   )Жанр: Funk, Soul, SwingbeatПродолжительность: 01:16:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4E8613E001C288FACE3654020DAEF491519B86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127387   (732216) от 21.04.2017
-
-Sky High - Stone & Gravel (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Young Women (& Dirty Old Men. Feat. Jon Paris)  (04:05) 
-02. One Step Back  (04:05) 
-03. A New Old Style ( Old Farts Boogie )  (03:15) 
-04. Holy Grounds (Feat. Per Wiberg)  (06:04) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F567C9336C4627E028AE5535B4DF669544ECE6EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127499   (732159) от 21.04.2017
-
-Joanne Shaw Taylor - White Sugar (2009) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Home  (04:50) 
-02. Just Another Word  (04:07) 
-03. Bones  (05:22) 
-04. Who Do You Want Me to Be?  (03:35) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1368BFD724E6C8B7BB1847AF009CB510008166A
 ```
 
 https://mybot314.ru/tekegram_catalog/

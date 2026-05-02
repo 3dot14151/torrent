@@ -1,3 +1,61 @@
+###  Публикация: 1792038   (21237) от 16.04.2025
+
+Tiesto - Live @ Quasar Stage, Coachella Festival Weekend 1, United States (2025-04-13) [MP3|320 Kbps] <Dance, Electro Pop, Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto - ID
+02. Tiësto - ID w/Cannons - Fire For You (Acappella)
+03. Tiësto - ID
+04. The Marías - No One Noticed (Tiësto Remix)(   Читать дальше...   )Жанр: Dance, Electro Pop, Melodic House, TechnoПродолжительность: 01:30:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D888C002D9AFF855F6FB6F25B2148B111E5EB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792045   (21211) от 16.04.2025
+
+Vintage Culture - Live @ DNA Art Car, Arena Open Camboriu, Brazil (2025-03-02) [MP3|320 Kbps] <Tech House, Melodic House/Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTBAT & Vintage Culture - She The Last One (Vocal Edit)
+02. Vintage Culture - ID
+03. JØRD - Daydream
+04. Cafius - Lost Time(   Читать дальше...   )Жанр: Tech House, Melodic House/TechnoПродолжительность: 05:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CBD5F88FA61F0A3F5395DEB227EC86810CC7F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791969   (21203) от 16.04.2025
 
 DJ Suhov - Fantazia Mix (2004) Promo CD [MP3|image+*.CUE|320 Kbps] <House>
@@ -686,64 +744,6 @@ VA - Ori Uplift - Uplifting Only Episode 656 (2025) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5585065EF9FF2E8B72D99FB8A7115338E0E2055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817784   (3134) от 12.09.2025
-
-David Guetta - Live @ Galactic Circus, [UNVRS] Ibiza, Spain (2025-08-15) [MP3|320 Kbps] <Dance, Electro Pop>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta ft. Bebe Rexha - I'm Good (Blue) (Cedric Gervais Remix)
-02. Flo Rida ft. David Guetta - Club Can't Handle Me (From The Step Up 3D Soundtrack) (David Guetta & DJs From Mars Bootleg)
-03. David Guetta & Audio Bullys & DJs From Mars - Things I Haven't Told You
-04. Hel:sløwed & Nina de Koning vs. Dada Life - Give It To Me vs. Kick (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 03:31:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC2C0AF1EA7DB817621749B5BFF59DB168A7BDDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817680   (3124) от 12.09.2025
-
-VA - Ori Uplift - Uplifting Only Episode 657 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DreamLife & Grande Piano ft. Agness – Just You And Me
-02. Andy Moor & Somna & LINNEY – More Than Love (Craig Connelly Remix)
-03. Anton By & AV ft. Natune – Bring Me Back To Life (Sergey Salekhov Remix) (Fan Favorite)
-04. Dmitriy Kuznetsov – Limerence (Orchestral Uplifting Classic)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A639B7306B1985640210DCA03DEF69C813D27059
 ```
 
 https://mybot314.ru/tekegram_catalog/

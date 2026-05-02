@@ -1,3 +1,206 @@
+###  Публикация: 133766   (948720) от 05.01.2017
+
+Григорий Гладков - Падал прошлогодний снег (Музыка к мультфильму) (1983) [MP3|128 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тема 1 (01:19)
+02. Тема 2 (02:36)
+03. Тема 3 (02:35)
+04. Тема 4 (01:28)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:15:51
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362640   (948422) от 24.02.2020
+
+The Cactus Blossoms - The Cactus Blossoms (2011) [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sad Day to be You (02:57)
+02. Lost John Dean (02:42)
+03. Cold Foot Boogie (01:38)
+04. Song of the Bird (02:30)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7B57621747F2B73F750D85DEC7CE4E9C1DA9EFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362584   (948416) от 24.02.2020
+
+Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack) (2013) [MP3|320 кб/с]<Soundtrack, Synthwawe>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948416.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:47| 01. Doll
+|03:41| 02. Haunted
+|01:02| 03. Double Trouble
+|02:46| 04. Bells(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaweПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC3A587138523EE9C7AAADD119377D3D05C51F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362643   (948413) от 24.02.2020
+
+The Cactus Blossoms - Easy Way (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948413.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desperado
+02. I’m Calling You
+03. Please Don’t Call Me Crazy
+04. Got A Lotta Love(   Читать дальше...   )Жанр: CountryПродолжительность: 00:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55590E52FFD1283F045DADF5F12784EB30FFF747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362585   (948411) от 24.02.2020
+
+Rob (Robin Coudert) - Maniac / Маньяк (Original Motion Picture Soundtrack) (2013) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Synthwawe>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948411.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:47| 01. Doll
+|03:41| 02. Haunted
+|01:02| 03. Double Trouble
+|02:46| 04. Bells(   Читать дальше...   )Жанр: Soundtrack, Score, SynthwaweПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73ABD9399CA6E710DB48C15E530FC587E2744DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362576   (948315) от 24.02.2020
+
+Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948315.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:03| 01. Revenge
+|01:17| 02. Peyotl
+|00:48| 03. Apple Bikini
+|03:12| 04. Rape Part 1(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:803CCEF48A563603C206C085A4320D222D70AACE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362577   (948313) от 24.02.2020
+
+Rob (Robin Coudert) - Revenge / Выжившая (Bande Originale du Film) (2017) [FLAC|Lossless|CD|tracks + cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948313.jpg" />
+</div>
+
+
+###  Подробнее
+
+|06:03| 01. Revenge
+|01:17| 02. Peyotl
+|00:48| 03. Apple Bikini
+|03:12| 04. Rape Part 1(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:04:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2FF1B17202D524551BBAC56D9B40B6D6F180400
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362545   (948312) от 24.02.2020
 
 Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -548,208 +751,6 @@ Justin E. Bell - The Outer Worlds (Original Soundtrack) (2019) [MP3|320 кб/с]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F95A7E862A005D3D1C8DADF2D203E34DE08100EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983232   (945217) от 05.02.2016
-
-Tom Holkenborg aka Junkie XL - Deadpool (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Of The Morning (By Juice Newton)
-02. Maximum Effort
-03. Small Disruption
-04. Shoop (By Salt-N-Pepa)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1A634E62484CEDB7F2058DB68FA89837E179C4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090323   (944765) от 08.01.2017
-
-Arcade Messiah - II (2015) [MP3|320 кб/с]<Instrumental Post-Metal, Progressive Metal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944765.jpg" />
-</div>
-
-
-###  Подробнее
-
-[07:17] 01. Moon Signal
-[06:47] 02. Red Widow
-[08:33] 03. Black Dice Maze
-[03:07] 04. Gallows Way(   Читать дальше...   )Жанр: Instrumental Post-Metal, Progressive MetalПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9388B30B8FFCD95B91A2F758783ED8B4AF0A8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090354   (944704) от 08.01.2017
-
-Arcade Messiah - III (2016) [FLAC|tracks|WEB-DL]<Instrumental Post-Metal, Progressive Metal>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944704.jpg" />
-</div>
-
-
-###  Подробнее
-
-[06:05] 01. Revolver
-[07:15] 02. Citadel
-[10:27] 03. Deliverance
-[06:49] 04. Life Clock(   Читать дальше...   )Жанр: Instrumental Post-Metal, Progressive MetalПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E62BF7BC3283DB47FB5D94C68A9491F75314601
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090444   (944646) от 08.01.2017
-
-Arcade Messiah - Arcade Messiah (2014) [FLAC|tracks|WEB-DL]<Instrumental Post-Metal, Progressive Metal>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944646.jpg" />
-</div>
-
-
-###  Подробнее
-
-[05:35] 01. Sun Exile
-[06:48] 02. Your Best Line Of Defence Is Obscurity
-[05:23] 03. Traumascope
-[02:52] 04. Aftermath(   Читать дальше...   )Жанр: Instrumental Post-Metal, Progressive MetalПродолжительность: 00:42:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3AC86D24BEF3CAF99704C8AD381E97D1F385E77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090338   (944638) от 08.01.2017
-
-Arcade Messiah - III (2016) [MP3|320 кб/с]<Instrumental Post-Metal, Progressive Metal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944638.jpg" />
-</div>
-
-
-###  Подробнее
-
-[06:05] 01. Revolver
-[07:15] 02. Citadel
-[10:27] 03. Deliverance
-[06:49] 04. Life Clock(   Читать дальше...   )Жанр: Instrumental Post-Metal, Progressive MetalПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE661B20EA4F294C4565495FA3A322BC5E4DEDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090939   (944548) от 08.01.2017
-
-Sally-Ann Taylor - Beginners Guide to Meditation & Visualisation (2012) [FLAC|Lossless|WEB-DL|tracks] <Spoken Word>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Counting (feat. Llewellyn) [00:05:18]
-02. Visualisation [00:16:09]
-03. Colour Healing (feat. Llewellyn) [00:32:49]Жанр: Spoken WordПродолжительность: 00:54:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A540C3682AE1640C595DF30AE835A31709A604C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983524   (943937) от 06.02.2016
-
-John Adorney - Beckoning (1998) [APE|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Gift [04:41]
-02. Beckoning [04:29]
-03. The Gathering [06:07]
-04. Solace	[04:09](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40306704EA7F27B2FE06C89D16303B0B835E7077
 ```
 
 https://mybot314.ru/tekegram_catalog/

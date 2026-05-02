@@ -1,3 +1,29 @@
+###  Публикация: 1605335   (1044947) от 17.01.2023
+
+WonderFox HD Video Converter Factory Pro 26.0 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044947.jpg" />
+</div>
+
+
+###  Подробнее
+
+HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B043FBF8CCB9FDF3B2CA4CBBFFB2CC71FC3EA154
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605304   (1044943) от 17.01.2023
 
 DirPrintOK 6.71 + Portable [Multi/Ru]
@@ -646,32 +672,6 @@ VidCoder - небольшая утилита, с помощью которой �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8DCEC2D36734A2852C4139360D5101A010DBC74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605533   (1044815) от 18.01.2023
-
-VueScan Pro 9.7.97 (15.01.2023) RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044815.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66DC1A7E7FABAC960AA90287257C1F8464F7071
 ```
 
 https://mybot314.ru/tekegram_catalog/

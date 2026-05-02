@@ -1,3 +1,263 @@
+###  Публикация: 1419371   (339976) от 28.10.2020
+
+VA - не Громкие новинки недели 85 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339976.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 Маши - Мы Переживём Всё (3:17)
+02. Alexandra - Попадаем В Рек (2:22)
+03. Arsenaleen - Ангелы (2:56)
+04. DoppDopp - Потанцевально (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:40:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5778B977BBEDFDDC83F082951706EE278C66E02F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 839632   (339925) от 10.11.2014
+
+VA - The Official UK Top 40 Singles Chart (09-11-2014) [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339925.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую очередной традиционный UK Singles Chart  - официальный хит-парад синглов Великобритании, отсортированных по результатам продаж за неделю.
+Новинок достаточно много, все их можете посмотреть под спойлером NEW. Все изменения по сравнению с прошлым чатом Вы можете сами посмотреть здесь.
+Во все треки вшиты обложки альбомов.01. Cheryl - I Don't Care  (4:00)
+02. Ed Sheeran - Thinking Out Loud  (4:42)
+03. Meghan Trainor - All About That Bass  (3:09)
+04. John Legend - All Of Me  (4:30)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, OtherПродолжительность: 02:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1177F55387B3385A052D301F8308D17CE23022B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954657   (339844) от 08.11.2015
+
+VA - Top Club 40 - October (2015) [MP3|224-320 кб/с]<Dance, Club, Electro, Remixes>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339844.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicky Jam x Enrique Iglesias - El Perdon (Intro Club Mix By Martin B.) 04:01
+02. Eva Simons - Policeman (Club Mix) 03:33
+03. Willy William - Te Quiero (Extended Mix) 04:22
+04. Amine - Senorita (Extended Mix) 03:09(   Читать дальше...   )Жанр: Dance, Club, Electro, RemixesПродолжительность: 04:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FE2F72CEBD5BB1E8224AE008C0B4D25552D3224
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954628   (339715) от 08.11.2015
+
+VA - Maximum Best Music. Осенние новинки суперхитов (2015) [MP3|256-320 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alyosha - Маленький Секрет 04:20
+02. Cecilia Gayle & Dj Sanny J - La Pipera 03:23
+03. A-Dessa - Раненая Птица (Instrumental) 03:43
+04. DJ Sasha Dith & Мохито - Я Тебя Люблю 03:14(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:14:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74974F52F8F38FD328417F3771303427E926B3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1180520   (339154) от 04.11.2017
+
+VA - Top 100 Зайцев.Нет Октябрь (2017) [MP3|320 Kbps] <Pop, Rap, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339154.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Альбина - Я с Тобою  3:45
+002.  ЛСП - Монетка  3:20
+003.  Егор Крид - Потрачу  3:05
+004.  Элджей - Ecstasy  3:38(   Читать дальше...   )Жанр: Pop, Rap, DanceПродолжительность: 05:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48039C8382494B45D5E7BEADA15F602913449718
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330525   (338863) от 11.10.2019
+
+VA - Осенняя свежая 30-тка Vol 2 (2019) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338863.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.5sta family - Завязала (3:41)
+2.andi - Сонная Ли (2:34)
+3.da-sha - Химия (3:25)
+4.DECKADA - Я к тебе лечу (3:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:39:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751E6621F1103C54DFD4BD1632B77A58E6645BBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954692   (338821) от 08.11.2015
+
+VA - Dance Hits Romanian Style 2016 (Extended Versions) (2015) [MP3|320 кб/с]<Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sianna - Without Your Love (Extended Mix)
+02. DJ Layla - Searching 4 Love (Hudson Leite & Thaellysson Pablo Remix)
+03. Enea Marchesini - Mueve Suave (Extended Mix)
+04. Lorina - Away From Home (Stephan F Remix)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:42:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93E757530DA0B39B822987C7F1C23425AFB24B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074683   (338600) от 19.11.2016
+
+VA - O3 Greatest Christmas Hits (2016) [MP3|320 Kbps] <Glam Rock, Synthpop, Christmas Pop, New Wave, Holiday>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen - Thank God It's Christmas (2011 Remaster) 04:21
+02. Pentatonix - Little Drummer Boy 04:15
+03. Wham! - Last Christmas 04:23
+04. Justin Bieber - Santa Claus Is Coming To Town 03:36(   Читать дальше...   )Жанр: Glam Rock, Synthpop, Christmas Pop, New Wave, HolidayПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D00A73D7C2321C124E22FA0B3C87D4FA5E2F2FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1258142   (337988) от 29.10.2018
+
+Teriyaki Boyz - Tokyo Drift (2017) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_337988.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Teriyaki Boyz - Tokyo Drift ★ DJ SAVIN & Alex Pushkarev ★ Remix Radio VersionЖанр: Club, DanceПродолжительность: 00:03:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82DA801B435704DAEB825F221F501A62975D2D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180936   (337364) от 05.11.2017
 
 VA - По волне моей памяти P.S (Постскриптум ) диск 2 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Поп, Ретро, Советская эстрада>
@@ -478,258 +738,6 @@ Kehlani - Gangsta (2018) Remix [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCC1CB83F4FB85174C3554099648B59E962DCED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420209   (333955) от 31.10.2020
-
-VA - The Official UK Top 40 Singles Chart 30.10.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ariana Grande - positions
-02. Internet Money & Gunna - Lemonade (feat. Don Toliver & NAV)
-03. KSI - Really Love (feat. Craig David & Digital Farm Animals)
-04. Wes Nelson - See Nobody(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD712C43B9AF7B6706AB4E8D923683AD0880D6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955422   (333606) от 11.11.2015
-
-VA - Зайцев нет. Лучшие новинки ноября 2015 [MP3|320 кб/с]<Pop, Dance, Rock, R&B, Rap>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noize Mc - Мэйксамнойз (03:36)
-02. Justin Bieber - I'll Show You (Prod. By Skrillex) (03:21)
-03. Sam Smith - Drowning Shadows (04:14)
-04. Полина Гагарина - Не Пара (03:25)(   Читать дальше...   )Жанр: Pop, Dance, Rock, R&B, RapПродолжительность: 03:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1351045E2D669FCE8315861765C093C1E2E6816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955559   (333601) от 11.11.2015
-
-VA - За Рулем - Лучшие Хиты В Тачку (2015) [MP3|224-320 кб/с]<Dance, Pop, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - ABBA - Gimme gimme gimme (FuzzDead remix)
-02 - Ace Of Base & Alex Slam - All That She Wants (D' Luxe Mash Up)
-03 - Alexandra Stan & INNA feat. Daddy Yankee - We Wanna
-04 - Outift - Fiesta(   Читать дальше...   )Жанр: Dance, Pop, ClubПродолжительность: 06:47:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0701375FBEB31B14D35A35A39983DC88C05A83C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580031   (333076) от 29.09.2022
-
-VA - Fresh Autumn Tracks (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. НАZИМА - Пули (2:15)
-02. Иван Рейс, Мари Краймбрери - Ты меня бесишь (2:31)
-03. RASA - ПОГУДИМ (2:58)
-04. Клава Кока - Плачешь (2:25)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 03:09:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5CA487DC283F4CE06340A61D9115118327181C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258908   (332719) от 01.11.2018
-
-Rita Ora - Anywhere (2018) Remix [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332719.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rita Ora - Anywhere ★ DJ Mexx DJ ModerNator ★ RemixЖанр: Club, Dance, HouseПродолжительность: 00:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936879C3493907CCAA3D529BB0BFF3C56EE6FD54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258913   (332718) от 01.11.2018
-
-Panjabi MC - Mundian To Bach Ke Kees (2018) Remix [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332718.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Panjabi MC - Mundian To Bach Ke Kees ★ Sjansen RemixЖанр: Club, Dance, HouseПродолжительность: 00:03:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7670AAA6376608A2EAE34DC057E8DA247F946844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259037   (332717) от 01.11.2018
-
-The Prodigy - Omen (2018) Remix [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332717.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Prodigy - Omen ★ Vicetone Bootleg ★ RemixЖанр: Electro HouseПродолжительность: 00:03:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D9FF2E8FE6B84B7C0FB36200BB3F681784D36A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955684   (332517) от 12.11.2015
-
-VA - Popular November Hit (2015) [MP3|320 кб/с]<Pop, Dance, Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332517.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Namika - Lieblingsmensch 03:09
-002. Charlie Puth (feat. Meghan Trainor) - Marvin Gaye 03:08
-003. Mark Forster - Flash mich 03:01
-004. Little Mix - Black Magic 03:33(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 06:19:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36660BF7B6F8E614B766EA7702D785729D2A5E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420513   (332356) от 01.11.2020
-
-VA - Лучшие из лучших Top 100 хитов радиостанций за Октябрь (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332356.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. JAKONDA & NEJTRINO - No More Tears (3:00)
-002. Savage - Lonely Night (Club Version) (3:05)
-003. Александр Гужов - Она его уже не ждёт (3:32)
-004. Мирон Еремеев feat. DJ Steel Alex - Мурашки (2:51)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:10:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB98D7F80CF96A5F369C223ADA722028A1705CD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

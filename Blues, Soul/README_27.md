@@ -1,3 +1,32 @@
+###  Публикация: 945229   (433921) от 10.10.2015
+
+White Night Blues - Live in Poland (2010) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_433921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tobacco Road
+02. Wilczych Praw Dzis Czas
+03. Znaju Stolki Piash4otau Tvaih
+04. The House of Risin Sun(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2409DDCD0F933A370744DED91F0FF5B65F07BA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249739   (431203) от 25.09.2018
 
 The Alabama Lovesnakes - III (2018) [MP3|320 Kbps] <Blues Rock>
@@ -724,35 +753,6 @@ The Beat Daddys - 5 Moons (2006) [MP3|320 Kbps] <Blues, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95511E25FC57E40ECCB302C8612BC8E89E88F479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168185   (410558) от 23.09.2017
-
-Val Starr & The Blues Rocket - I Always Turn The Blues On (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410558.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Time To Go (04:27)
-02. I Always Turn The Blues On (04:25)
-03. What Happens After Midnight (Nothin' Good) (05:31)
-04. Whether Blues (05:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BDA7AA580760F2C22B3AD995F37DC5FB7003E5
 ```
 
 https://mybot314.ru/tekegram_catalog/

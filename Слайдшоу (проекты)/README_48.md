@@ -1,3 +1,29 @@
+###  Публикация: 1031863   (649221) от 05.07.2016
+
+Проекты - VideoHive - Summer Fashion [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649221.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкий, динамичный проект для Ваших фото-видео материалов, сделанных во время летнего отпуска.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83BC48CF13C4FA11173C4BB4FDB965ABFD54932B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031875   (649217) от 05.07.2016
 
 Проекты - VideoHive - Grunge Glitch Opener - 15850190 [AEP]
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD492822771D6171CA62F612164CAE4EFAF27FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032937   (641565) от 09.07.2016
-
-Проекты - VideoHive - Minimal Big Titles Slides - 16702739 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68D90639034BADB25EF2C322D312F4E839204D71
 ```
 
 https://mybot314.ru/tekegram_catalog/

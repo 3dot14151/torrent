@@ -1,3 +1,61 @@
+###  Публикация: 1011029   (797702) от 26.04.2016
+
+George Adams & Don Pullen Quartet - Decisions (1984) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Trees And Grass And Thangs [09:08]
+ 02.His Eye Is On The Sparrow [04:29]
+ 03.Message Urgent [08:17]
+ 04.Decisions [07:12](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB0ED782B234B315E2F5AD1CBA5D8727EB07E32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1010980   (797700) от 26.04.2016
+
+The Hal Galper Quintet Live - Redux '78, 1991, Concord Jazz(1991) [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Introduction/Triple Play [12:28]
+ 02.My Man's Gone Now [05:24]
+ 03.Another Jones [08:54]
+ 04.I'll Never Stop Loving You [09:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65B3450DA001543E0049DB85CBDC7E28435CA559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011068   (797698) от 26.04.2016
 
 Art Farmer - Gentle Eyes (1971/1972) 1991, Mainstream Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Post-Bop>
@@ -687,64 +745,6 @@ Spyro Gyra - Freetime (1981) [APE|Lossless|image + .cue] <Jazz, Jazz-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2B11CA2F4E8739CAC9932C950BFBE6EEC5967B84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508931   (796281) от 10.11.2021
-
-Yoko Miwa Trio - Songs of Joy (2021) [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom (Havens) - 6:19
-02. Largo Desolato (Miwa) - 6:43
-03. Song of Joy (Preston) - 6:33
-04. Small Talk (Miwa) - 4:24(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC11A8AFA90923B88AB5EEF43091EEEE1B21233D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508845   (796277) от 10.11.2021
-
-Najponk Trio - A Hard Day's Night: Live At The Office (2018) Gats [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speak Low [7:51]
-02. A Hard Day's Night [5:30]
-03. Don't You Know I Care [5:55]
-04. Misterioso [7:08](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:879F3202C4C88864D8BD8234B81732DDA09FC9FA
 ```
 
 https://mybot314.ru/tekegram_catalog/

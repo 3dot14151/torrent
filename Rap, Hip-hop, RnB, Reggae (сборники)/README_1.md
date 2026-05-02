@@ -1,3 +1,32 @@
+###  Публикация: 1102178   (892335) от 08.02.2017
+
+VA - TOP Non-Stop: Hip-Hop 1995-2015 (2015) [MP3|128-320 Kbps] <Rap, R&B, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_892335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. B Real - Smoke N Mirrors featuring Bo Roc (4:55)
+02. Mobb Deep - Extortion Feat. Method Man (3:32)
+03. Timbaland & Magoo Feat. Missy Elliott - Cop That Shit (3:33)
+04. Method Man & Redman - I'm Dope Nigga (4:11)(   Читать дальше...   )Жанр: Rap, R&B, Hip-HopПродолжительность: 06:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C7CF228BABEB2CA18435BECFC903527107EC6EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102175   (891867) от 08.02.2017
 
 Eminem - Best of Eminem (2017) [MP3|192-320 Kbps] <Rap, R&B, Hip-Hop>
@@ -716,35 +745,6 @@ VA - Rap Ballads: Experimental Hip-Hop and Jazz Rap (2016) [MP3|320 кб/с] <Ra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA6DD6E949725F2E4BEA1024165D569AEA2CE26C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382892   (815438) от 13.05.2020
-
-VA - Best Funk Of All Time (2020) [MP3|320 Kbps] <R&B, Soul & Funk>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815438.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Sly & The Family Stone - Remember Who You Are (3:17)
-2.Fat Larry's Band - Act Like You Know (6:30)
-3.Prince - Kiss (3:46)
-4.Wild Cherry - Play That Funky Music (5:00)(   Читать дальше...   )Жанр: R&B, Soul & FunkПродолжительность: 05:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28B909D183BCD8454C2B7F11594A229F3EBD240A
 ```
 
 https://mybot314.ru/tekegram_catalog/

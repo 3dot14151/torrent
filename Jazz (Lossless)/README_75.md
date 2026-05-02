@@ -1,3 +1,61 @@
+###  Публикация: 1276482   (788235) от 16.01.2019
+
+Mike LeDonne - The Groover (2010) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Straight-Ahead Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock With You [6:59]
+02. Blues For McCoy [6:36]
+03. Little Mary [6:39]
+04. I'm Goona Make You Love Me [8:24](   Читать дальше...   )Жанр: Post-Bop, Straight-Ahead JazzПродолжительность: 01:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C9BF447F23945057EF04ACB7C8E018B14C179DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1276391   (788225) от 16.01.2019
+
+Gerald Toto - Sway (2018) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, World, Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alger 69
+02. Day by Day
+03. My Girlfriend
+04. Away Alive(   Читать дальше...   )Жанр: Vocal Jazz, World, PopПродолжительность: 00:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B2714925AFF218FCB80208184E5DE2BF94BCA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1276401   (788220) от 16.01.2019
 
 Toto Bona Lokua (Gerald Toto, Richard Bona, Lokua Kanza) - Bondeko (2017) [FLAC|Lossless|tracks] <Vocal Jazz, World Fusion>
@@ -687,64 +745,6 @@ Brian Culbertson - XX (2020) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C9F4B8852F7453A42DABE5BD4711BE73E49DF3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123503   (786416) от 08.04.2017
-
-Eddie Shu / Bob Hardaway - Jazz Practitioners (1954, 1955) 2001, Toshiba [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It's Sand, Man! [02:59]
- 02.Tom, Dick And Jim [03:15]
- 03.Day By Day [02:09]
- 04.Blues For Baby [02:21](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C97AB8D1571E5B262AC29998C8A249FCAC9573
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123563   (786414) от 08.04.2017
-
-Valery Ponomarev - Trip To Moscow (1988) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Same Place, Same Time [08:15]
- 02.Gettin' to Bolshoi [07:52]
- 03.Gorky Park [08:13]
- 04.Trip to Moscow [09:21](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EED0405FDD7644B1314D91FD87B6FEA8FE5C383F
 ```
 
 https://mybot314.ru/tekegram_catalog/

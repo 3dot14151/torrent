@@ -1,3 +1,261 @@
+###  Публикация: 1275576   (789869) от 12.01.2019
+
+VA - Rare Pop Dance (2019) [MP3|320 Kbps] <Electronic, Synthpop, Pop, Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789869.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A' La Carte - Cubataro (1981) (3:48)
+02. Angela Werner - Spieglein, Spieglein (1981) (3:26)
+03. Annabel Lamb - Riders On The Storm (1983) (5:57)
+04. Azoto - Havah Nagilah (1978) (8:49)(   Читать дальше...   )Жанр: Electronic, Synthpop, Pop, DiscoПродолжительность: 05:05:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F707140C3F142F524593D02FE97EB374D72B8E86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511063   (789804) от 19.11.2021
+
+VA - Viskas Bus Gerai (lietuviska muzika) (2021) 2CD [MP3|256-320 Kbps] <Pop, Rock, Folk>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789804.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sel - Nes As Tik Vejas
+02. Mia - Yra Kaip Yra
+03. Karcema - Aukso zuvele
+04. Andrius Mamontovas - Viskas Is Naujo(   Читать дальше...   )Жанр: Pop, Rock, FolkПродолжительность: 08:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA91DF567A2D6FC351DEE3BBB5250EA94393FC89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275188   (789624) от 12.01.2019
+
+Пропаганда - Мелом (2018) Remix [MP3|320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789624.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пропаганда - Мелом (Ice & Nitrex & Remix)Жанр: Club, DanceПродолжительность: 00:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05BD4ADA8EB84B5DE9BF8231DA5B129F638ACF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275772   (789439) от 13.01.2019
+
+VA - Billboard Hot 100 Singles Chart 12.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789439.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Halsey - Without Me
+002. Ariana Grande - thank u, next
+003. Post Malone - Sunflower (Spider-Man_ Into the Spider-Verse)
+004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:31:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F578357EECA09D365E05FF01C286B874191F814E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275804   (789389) от 13.01.2019
+
+VA - Зарубежные Хиты-Январь (2019) [MP3|320 Kbps] <Pop, Alternative, Electro, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789389.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aaron Watson-Kiss That Girl Goodbye
+002. Agustin Casanova-Bye Bye
+003. Allen(IT)-PopLock
+004. Allie X-Little Things (Analog Version)(   Читать дальше...   )Жанр: Pop, Alternative, Electro, DanceПродолжительность: 05:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88EFE427986F4CEA21BAAD79CF3C2EF51C16EE68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1202674   (789277) от 30.01.2018
+
+VA - Дискотека 2018 Dance Club Vol.174 от NNNB (2018) [MP3|320 Kbps] <Club, Deep House, Synth Pop, Dance и другие>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Part 1 (Discoteka):
+01.  Claudia Leitte feat. Pitbull  -  Carnaval  3:44
+02.  Arash feat. Helena  -  Dooset Daram (Radio Version)  3:17
+03.  Joy feat. Matami  -  Get Lost (Original Mix)  3:32(   Читать дальше...   )Жанр: Club, Deep House, Synth Pop, Dance и другиеПродолжительность: 03:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280A2A8363CD2C8C5061F582ADFFAC24E47B7ABF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511598   (788938) от 21.11.2021
+
+VA - Music News vol.149 (2021) [MP3|320 Kbps] <Pop, Soul, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788938.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adele - Cry Your Heart Out (04:15)
+ 002. ADDA - Sa Nu-mi Iei Trandafiri (03:25)
+ 003. Adele - Can I Get It (03:30)
+ 004. Activ - Doar Cu Tine (Andrey Vertuga DFM Radio Edit) (02:52)(   Читать дальше...   )Жанр: Pop, Soul, DanceПродолжительность: 05:55:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A354D2DAE1147D8F8228C9623257AB092C829C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511612   (788841) от 21.11.2021
+
+VA - Music News vol.150 (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788841.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Natalia Oreiro & Juan Ingaramo - Me Muero de Amor (03:31)
+ 002. Anzheli - Антигерой (Piano Version) (02:42)
+ 003. ARZU - Слезы (02:45)
+ 004. Banzay - Румянец (02:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2221930ECC43B3DC9ECE90F9067C1FD66AE53288
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511502   (788788) от 21.11.2021
+
+VA - Зайцев.нет Лучшие новинки Ноября (2021) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788788.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 25 17 - Зима-мама (электричество) (3:13)
+02. 5sta Family - Тюльпаны (Lavrushkin & Tomboo Remix) (2:52)
+03. BRAMA - Нам не нравятся те, кому не нравимся мы (2:25)
+04. GARRISON - Infinity (5:31)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DA1DE7D0E6254169BFA57EEE7D759B8798548EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203137   (788653) от 01.02.2018
 
 VA - Empire Records - Retromania 8 (2018) [MP3|320 Kbps] <Italo Disco>
@@ -484,264 +742,6 @@ VA - The Official UK Top 40 Singles Chart 18.01.2019 [MP3|320 Kbps] <Pop, Dance,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2147A931E138FA72F230060C54EAE13DE269AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277007   (787004) от 19.01.2019
-
-VA - ЕвроХит Топ 40 Europa Plus 18.01.2019 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787004.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gaulin  -  Moonlight
-02.  Calvin Harris & Sam Smith  -  Promises
-03.  HUGEL & Taio Cruz  -  Signs
-04.  KAZKA  -  Плакала(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:10:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F6B4A3493C040162994035738597BA8F0778067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277215   (786969) от 19.01.2019
-
-VA - Kiss FM: Top 100 Итоговый 2018 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786969.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Platon feat. Joolay - Melt 3:48
-002. Vanessa Da Mata - Ai Ai Ai (Felguk & Cat Dealers Remix) 3:20
-003. KAZKA - Плакала (Shnaps & Sanya Dymov Remix) 3:47
-004. MARUV - Focus On Me 2:55(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 10:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0D3A5B74C9CA0CE0688B746A048BA46F5FAA84C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277212   (786906) от 19.01.2019
-
-Света - Хватит довольно (2018) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786906.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Света - Хватит Довольно Remix(Chad Radio Edit)Жанр: Club, DanceПродолжительность: 00:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3CD45CDC8B031BDB5717FC111FFE9541FA3CA8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388530   (786753) от 06.06.2020
-
-VA - The Official UK Top 40 Singles Chart 05.06.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DaBaby - ROCKSTAR
-02. Lady Gaga - Rain On Me
-03. S1mba - Rover (feat. DTG)
-04. Drake - Toosie Slide(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:04:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F119DA8A75FE1C499A4F3BEC28957EAF94AFE5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388362   (786717) от 06.06.2020
-
-VA - ЕвроХит Топ 40 Europa Plus 05.06.2020 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Topic & A7S - Breaking Me 2:47
-02. NRD1 - All Good Things (Come To An End) 3:27
-03. Regard - Ride It 2:38
-04. Zivert - ЯТЛ 3:44(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:11:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9730B8B20B2CC92FDEBAC245D0C7493AD0990444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1388547   (786635) от 06.06.2020
-
-VA - Авторадио: Золото дискотек Vol. 1 (2020) [MP3|320 Kbps] <Euro Disco, Italo Disco, Euro Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Blue - From Heaven To Heartache 3:33
-02. C.C. Catch - Stay (Maxi-Version) 5:47
-03. Grant Miller - Colder Than Ice 5:35
-04. DJ's Project - Vision Of Love 6:40(   Читать дальше...   )Жанр: Euro Disco, Italo Disco, Euro DanceПродолжительность: 06:29:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E26576B916745F1D4E46FD946ACFB63CDA539F2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123303   (786418) от 07.04.2017
-
-VA - Best Hits Of 90! Vol.1 (2017) [MP3|320 Kbps] <Eurodance, Pop, Techno, Rap, House, Dance>
-
->>След.
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786418.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Ace Of Base - All That She Wants  3:31
-002.  Mr. President - Coco Jamboo  3:37
-003.  Yaki-Da - I Saw You Dancing  3:51
-004.  Jam & Spoon Feat Plavka - Right In The Night  6:05(   Читать дальше...   )Жанр: Eurodance, Pop, Techno, Rap, House, DanceПродолжительность: 09:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D1837B8D64839C2D3367EAD8D2A149708F8872
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1123983   (786044) от 09.04.2017
-
-VA - 100 Новых Красивых Песен (2017) [MP3|320 Kbps] <Pop, Rock, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michelle Branch - Hopeless Romantic (03:31)
-02. Matthew Koma - Kisses Back (03:47)
-03. James Blunt - Bartender (03:13)
-04. LP(Laura Pergolizzi) - No Witness (03:28)(   Читать дальше...   )Жанр: Pop, RnB, Rock, ChansonПродолжительность: 06:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DE545E4A73B18D0603F70B007E5CA4E4E8B56F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124216   (785903) от 10.04.2017
-
-VA - Absolute Dance Spring (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785903.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Township Rebellion - Gaia (Original Mix)
-002. Rod Veldt - Her Beauty (Original Mix)
-003. Buttkick - Magical Evening Dance (Original Mix)
-004. JSG - Aurora (Original Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760C92625D3790451DB473926A4BEC300FAB37DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

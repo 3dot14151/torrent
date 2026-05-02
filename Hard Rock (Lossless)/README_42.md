@@ -1,3 +1,119 @@
+###  Публикация: 1555990   (563238) от 07.06.2022
+
+Nasty Reputation - After All It's Rock n Roll (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Sleaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Slut Machine (00:03:26)
+02 - Line of Fire (00:03:31)
+03 - Riot in Hell (00:03:09)
+04 - Suicide (00:05:10)(   Читать дальше...   )Жанр: Hard Rock, SleazeПродолжительность: 00:38:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31FAC8582324828A1C37E4B62D2A4F0A894C9C6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556126   (563237) от 07.06.2022
+
+Locust Grove - The Battle of Locust (2022) [FLAC|Lossless|WEB-DL|tracks] <Modern Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Foot In The Grave 04:13
+02. The Battle Of Locust 03:22
+03. Bluebird 04:05
+04. S.O.S. 03:12(   Читать дальше...   )Жанр: Modern Hard RockПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21251C44DB3D3CFBE1BFFB600D56CC97625B4891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556086   (563099) от 07.06.2022
+
+Graham Bonnet Band - Day Out In Nowhere (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imposter
+02. 12 Steps To Heaven
+03. Brave New World
+04. Uncle John(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:50:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B36FD8AE1832DEE9EA26C15832BC01331EFF69E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1556286   (561519) от 08.06.2022
+
+Roadside Gamblers - Rust, Smoke & Gasoline (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_561519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rust, Smoke & Gasoline (04:10)
+02. The Witch (04:32)
+03. Before I Lay in My Grave (04:10)
+04. Farewell (04:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48DBE59E68FDAC9752520D9FBC46F4E30A49FA7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530223   (560971) от 03.08.2012
 
 Jess And The Ancient Ones - Jess And The Ancient Ones (2012) [FLAC|Lossless]<Psychedelic/Hard Rock>
@@ -631,122 +747,6 @@ Vasco Rossi - Stupido Hotel (2001) [FLAC|Lossless|tracks + .cue] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5B3BE78273BEE19EB5D6CEF68200E820088425D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309337   (551891) от 18.06.2019
-
-David Byron - 5 albums, 6CD (1975-2008) [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551891.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дэвид Байрон - британский музыкант, легендарный вокалист одной из популярнейших хард-рок группп Uriah Heep, записавший совместно с ней 10 студийных альбомов. Немалая заслуга в этом принадлежала Байрону, обладавшему мощным, пронзительным вокалом. После ухода из Uriah Heep Байрон пытался начать сольную карьеру, но коммерческого успеха добиться не сумел. Певец умер (   Читать дальше...   )--------------------------
-
-01. Rock'N'Roll (3:28)
-02. Lookin' For You (4:07)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock |Продолжительность: 05:07:45 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D978BC69CA8CA58AFABE69FC4614B1BC2E80372C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046725   (551028) от 28.08.2016
-
-Blue Tears - The Innocent Ones (2006) [FLAC|Lossless|tracks + .cue] <Hard Rock, Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drive  04:04
-02. Let It Rain  03:07
-03. Run For Your Life  03:41
-04. The Innocent Ones  03:18(   Читать дальше...   )Жанр: Hard Rock, Melodic Hard RockПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F334ADDAA0E8FF77281E19EBB2567AE55F5E6EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047654   (549326) от 30.08.2016
-
-Snаке Неаd Rituаl - Сеrеmоniаl Тhundеr (2016) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mama
-02. These Blues
-03. Strange World
-04. Gone When I Get Home(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BF59EEA6B602028852E7D805B45A315975BA0B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047610   (549243) от 30.08.2016
-
-Andy Timmons - And-Thology I & II - The Lost Ear X-tacy Tapes (2001) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_549243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom (Jimi Hendrix)
-02. Sometimes
-03. There Before You
-04. Wishing Well(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:37:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B0836A215A99EF42E113C989C414DEA87B0917F
 ```
 
 https://mybot314.ru/tekegram_catalog/

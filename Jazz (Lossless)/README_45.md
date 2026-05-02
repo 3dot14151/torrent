@@ -1,3 +1,61 @@
+###  Публикация: 1372063   (885623) от 03.04.2020
+
+Oscar Peterson - Keyboard 1950 (2005) Membran Music [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jumpin' With Symphony Sid [3:02]
+02. Robbins Nest [3:16]
+03. Tico Tico [3:02]
+04. Get Happy [2:32](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:37:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9CF59BB4143A7FC57D7A6EE550A0489BC4CBA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 995490   (884801) от 11.03.2016
+
+Duke Pearson - Now Hear This (1968) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_884801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Disapproachment [05:53]
+ 02.I'm Tired Cryin' Over You [03:51]
+ 03.Tones For Joan's Bones [05:34]
+ 04.Amanda [03:47](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A53DF760F56115179C4E81435A6EE95F8A7406C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995470   (884786) от 11.03.2016
 
 Kosuke Mine with Kimiko Kasai - Yellow Carcass In The Blue (1971) Remaster, 2013, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Vocal Jazz>
@@ -687,64 +745,6 @@ The Oscar Peterson Trio - At The Concertgebouw 1957 (2005) Universal [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A6C9FA6EE8663C16DC6CEFE4416DA6A4778357DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104577   (880353) от 15.02.2017
-
-Sonny Fortune - Invitation (1987) 2010, Whynot [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880353.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It's A Bird [06:51]
- 02.Space In Time [08:17]
- 03.Jamf [08:47]
- 04.5/4 Train [05:47](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:55:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB04DF26B9383B6153763B4535475DD71BFA1B33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104570   (880352) от 15.02.2017
-
-Martial Solal - Trio (1953-1955) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.La Chaloupee [02:48]
- 02.The Champ [03:03]
- 03.Ramona [02:58]
- 04.Dinah [03:04](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:58:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E8B6CCCEDC765121158A980EAA216A0AD57A6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,22 @@
-###  Публикация: 1447122   (1030767) от 17.02.2021
+###  Публикация: 1620312   (1032352) от 19.03.2023
 
-Windows 10 PRO 20H2 x64 Rus by OneSmiLe [19042.804]
+Lacey Free Music & Video Downloader 2.83 Portable [Multi/Ru]
 
->>3
->>4
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032352.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборка сделана из оригинального образа
-ru_windows_10_business_editions_version_20h2_updated_jan_2021_x64_dvd_f09398b8
-Удалены все модерн приложения, кроме Microsoft Edge
-Поиск работает (значок скрыт)(   Читать дальше...   )Язык интерфейса: Русский
+Lacey -  простой инструмент для поиска и скачивания мультимедийного аудио и видео контента. Поскольку найти в интернете популярные хиты обычно не составляет труда, вот только скачать их не всегда предоставляется возможным. Впрочем, и это не является проблемой, поскольку есть программы, которые позволяют, что называется, выпрямлять ссылки, а если проще — скачивать (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEBAEFF5001B9E8FC51E6141EB762F5C24952C7D
+magnet:?xt=urn:btih:070C8CDEF6BB8D73623CABABB90EB7DB55D1B13C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448191   (1030766) от 17.02.2021
+###  Публикация: 1620256   (1032351) от 19.03.2023
 
-Adobe Photoshop 2021 v22.2+ Neural Filters [Multi/Ru]
+EarthView 7.5.3 RePack (& Portable) by elchupacabra [Ru/En]
 
->>3
->>4
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032351.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adobe Photoshop - новая, следующая за CC 2020 версия программы для обработки растровой графики. Поддерживается множество графических форматов. Adobe Photoshop позволяет как создавать новые изображения, так и редактировать их. Фотошоп применяют для создания фотореалистических изображений, для работы с цветными отсканированными изображениями, для ретуширования, цветокоррекции, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: февраль 2021Разработчик: Adobe SystemsПоддерживаемая ОС: OS X 10.14 и вышеЯзык интерфейса: Русский, Английский, Немецкий и др.
+EarthView — это динамические обои для рабочего стола и хранитель экрана, которые отображают прекрасные виды земли с дневным светом и ночными тенями. Он создает красочные, высококачественные изображения с высоким разрешением для любого разрешения экрана — даже выше 3840x2160! Программа поддерживает виды карты и земного шара, городские районы, городские огни, атмосферные (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05DDE77E7E8214A648F9001E6E2DFEDB53FEFCC4
+magnet:?xt=urn:btih:C68E9CF98B8F641099A978BC4B5ABA8C161EF46E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621816   (1030765) от 26.03.2023
+###  Публикация: 1620219   (1032350) от 19.03.2023
 
-Wishing Well - Sin And Shame (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+VA - Chillhop Essentials Winter (2022) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. In the Line of Fire [00:03:45]
-02. Soul Rider [00:04:56]
-03. Space Invaders [00:05:54]
-04. Mistress of the Night [00:06:49](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:57:57
+01. Dotlights – Come In And Stay (3:00)
+02. Bao, Broken Transient – Mantilla (2:24)
+03. Poldoore – Warmer Days (2:35)
+04. The Doppelgangaz – Dole Out (2:56)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:10:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81E6C886B2009CCC86B3C16550C6FE4325955299
+magnet:?xt=urn:btih:A84AF64683D71A75612CA87A7AEE732F387F6110
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,84 +79,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621442   (1030764) от 26.03.2023
+###  Публикация: 1447065   (1032349) от 11.02.2021
 
-Bob Catley - Studio Albums (6 releases) (1998-2008) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Роберт Адриан Кэтли — английский певец, музыкант, солист британской рок-группы Magnum. Здесь представлена его сольная дискография.1998 - The Tower
-1999 - Legends
-2001 - Middle Earth
-2003 - When Empires BurnsЖанр: Heavy Metal, Hard RockПродолжительность: 06:08:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9876342E36D4E11DFFDC08EB0B147A5D33EF14AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621900   (1030763) от 26.03.2023
-
-VA - Mystera VI (2000) [OGG Vorbis|480 Kbps] <Electronic, Classical, Ambient>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen - Who Wants To Live Forever
-02. Enigma - Return To Innocence
-03. Rosenstolz - Amo Vitam
-04. Loreena Mckennitt - The Mummers' Dance(   Читать дальше...   )Жанр: Electronic, Classical, AmbientПродолжительность: 01:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A76310787E0051E155EF1537D674F96B5A01C599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621830   (1030762) от 26.03.2023
-
-Fig Player - play mp4 mkv mp3 for Mac 1.2.2 [Multi]
+PatterNodes 2 v2.4.3 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030762.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fig Player — это медиаплеер для Mac, который поддерживает широкий спектр медиафайлов и позволяет слушать музыку, смотреть фильмы.
-Если у вас есть обширная медиатека, но нет хорошего медиаплеера для Mac, вот хорошее решение. Fig Player - это бесплатное приложение с дружественным интерфейсом. На экране вы сможете увидеть все кнопки, которые дают вам контроль, такие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.02.2023Разработчик: © 2021 Omi Software Studio IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, упрощенный Китайский и т.д.
+PatterNodes - хорошо продуманный и настраиваемый инструмент для создания простых и сложных графических узоров, анимаций, градиентов и иллюстраций на основе повторений.
+Для достижения желаемого результата необходимо определить ряд шагов, которые описывают картину. Все используемые элементы или операции представлены в плавающей панели под названием узла, который может (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.02.2021Разработчик: Lost MindsПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6020402A3C41E90C0F0BC6FDA5BF559ABB47B75F
+magnet:?xt=urn:btih:12197B5D35B81369AD47E80F5BCE3D26B706B7FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -167,26 +106,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621753   (1030761) от 26.03.2023
+###  Публикация: 1446973   (1032348) от 11.02.2021
 
-AQusmatiq Audio - Dedalus Delay  1.0.0 VST 3, AAX (x64) RePack by MOCHA [En]
+IconJar 2.7.2 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030761.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Представляем Dedalus Delay, идеальное средство управления задержкой звука в реальном времени.
-Плагин имеет сеть линий задержки, которые гранулируются и модулируются, что приводит к действительно уникальному и запутанному звуковому ландшафту эха. Dedalus также имеет фильтры, динамические процессоры и процессоры насыщения, с помощью которых вы можете создавать практически (   Читать дальше...   )Язык интерфейса: Английский
+Все ваши иконки отлично организованы в удобный интерфейс
+Разработанный, чтобы сделать жизнь разработчиков приложений и дизайнеров немного легче, IconJar представляет собой легкий и удобный органайзер иконок для вашего Mac.
+Если вы дизайнер или просто-напросто кто-то, чья линия работы включает в себя работу со значками (или глифы), то вы знаете, как громоздким оказывается (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.02.2021Разработчик: Davey Heuser and Curtis HardПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3492162118DB7150C040FBB9C7DBD2EACD382BA8
+magnet:?xt=urn:btih:432A802B9FD18E80855CDCE9B18B7B7C4143C522
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -194,167 +134,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621785   (1030760) от 26.03.2023
+###  Публикация: 1446966   (1032347) от 11.02.2021
 
-Discreation - Iron Times (2023) [FLAC|Lossless|WEB-DL|tracks] <Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iron Times
-02. Steel Legions
-03. Bringer Of Demise
-04. Blood Ritual(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:48:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB141B780188E5AE4F44FCD205E674B126ACF587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621567   (1030759) от 26.03.2023
-
-Max Wolff - Placemaker (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030759.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eight o'Clock Dream (3:33)
-02. Blow My Blues (3:17)
-03. Blue Nights and Beige Days (3:27)
-04. I Would Be King (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283D55682AAE3AAD035CFDF79427F457D8F7EF7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621571   (1030758) от 26.03.2023
-
-Renato Genestra - The King Is Gone (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raining Stars (1:40)
-02. I Touch the Heaven When You Hold Me (4:20)
-03. Roses (3:58)
-04. Infinite Highway (4:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6014F68CB6486F400EF34692A0417D9EF99D4C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621584   (1030757) от 26.03.2023
-
-Scott Ellison - Zero-2-Sixty (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Needs A Whole Lotta of Lovin' (2:17)
-02. That's How I Love My Woman (5:10)
-03. Zero-2-Sixty (3:58)
-04. I Wouldn't Treat A Dog (3:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937AEA9B54C78023EA01CCB0375AE2A477FEF7E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621748   (1030756) от 26.03.2023
-
-Александр Тамоников | Огненный мост (2021) [MP3, Александр Мозгунов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030756.jpg" />
-</div>
-
-
-###  Подробнее
-
-Готовя летне-осеннюю кампанию 1942 года, германское командование активизировало заброску диверсионных групп в Поволжье. Одной из целей абвера стал Саратовский железнодорожный мост – важная стратегическая артерия, соединяющая тыл с фронтом. Выявить и уничтожить опасного врага поручено подразделению во главе с майором Максимом Шелестовым. Оперативникам удается выйти (   Читать дальше...   )Жанр: БоевикПродолжительность: 07:05:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2759D68B9D0CAB38A8F89F7F58BD8F8AA0DFC54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621836   (1030755) от 26.03.2023
-
-Text Editor Pro 26.1.0 + Portable + Bonus [Multi/Ru]
+Find Any File (FAF) 2.3.b5 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032347.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мощным инструментом редактирования текста с подсветкой синтаксиса для сценариев и языков программирования, является небольшая и компактная программа – Text Editor Pro. Программу можно сравнить с известным текстовым редактором Notepad++ функционал у них схожий, отличаются только по размеру. Утилита работает во всех версиях ОС, выпущенных корпорацией Microsoft. В последних (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.02.2021Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9819550D0A1AA65A0663C440A089105F72F5A2CF
+magnet:?xt=urn:btih:4D2F7179FAA9D2F34E80096415A3932821026F63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,106 +161,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621569   (1030754) от 26.03.2023
+###  Публикация: 1447067   (1032346) от 11.02.2021
 
-Peter Rudzinski - Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hear Me Knocking (3:52)
-02. Open the Gate (3:26)
-03. Move (3:21)
-04. For J (1:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CE11785B359642FB873521C0815A2151B9E5EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621925   (1030753) от 26.03.2023
-
-Дикие Карибы - берега разнообразия / Caraibes sauvages, les rivages de la biodiversite (2018) IPTV [H.264]
-
->>Документалистика и Телепередачи
->>Живая природа
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030753.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расположенные между двумя Америками, Карибские острова тянутся цепочкой длиной более трех с половиной тысяч километров от Кубы на севере до острова Тринидад у берегов Венесуэлы. Все Карибские острова - и песчаные, и коралловые, и вулканические - отличаются биологическим разнообразием, одним из самых богатых в мире. Искусные строители, вулканы оказались и грозными (   Читать дальше...   )Производство: Франция, Ampersand, Kloro Films productionsЖанр: документальный, природа, флора, фаунаРежиссер: Франк ДеклюзеПеревод: одноголосый профессиональныйЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:49:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F5C2DE8A68176593C90F55DEA2E9FBDAC2D16AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621754   (1030752) от 26.03.2023
-
-UVI - Phasor 1.0.0 VST, VST 3, AAX (x64) RePack by R2R [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030752.jpg" />
-</div>
-
-
-###  Подробнее
-
-Phasor — это мощный и динамичный студийный инструмент, предлагающий широкую палитру эффектов модуляции, фильтрации и искажения благодаря уникальному многорежимному дизайну и глубоко настраиваемым параметрическим LFO. От маслянистого улучшения стереофонического поля до ритмического усиления с настраиваемой волновой формой и свингом LFO, до более творческих и специализированных (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D94C45E32C5EF0AD770B1E250F22D369E1EFF22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621926   (1030751) от 26.03.2023
-
-FanControl V152 Portable [En]
+Athentech Perfectly Clear Complete v3 (St and Plug-in for Lr) 3.11.2.1919 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030751.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032346.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FanControl – свободно распространяемый продукт, позволяющий контролировать различные аспекты кулеров на вашем компьютере. Программа имеет открытый исходный код и для запуска не требует даже инсталляции. То есть, приложение является портативным средством. Удобный современный интерфейс приложения, плюс ко всему ещё наделён мастером настройки, который позволит найти (   Читать дальше...   )Язык интерфейса: Английский
+Perfectly Clear – мощный плагин для Adobe Lightroom и Adobe Photosop от компании Athentech Imaging из серии «сделайте мне быстро и красиво», позволяющий всего в пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+В цифровых камерах есть ограничения, которые приводят к таким искажениям (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.02.2021Разработчик: EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FD47A7431FF73A5E9D076AB85D7F2C444F1F564
+magnet:?xt=urn:btih:6D5ECEA0650CE46E0A0E5A857CE2DD9162692229
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -469,83 +188,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621750   (1030750) от 26.03.2023
+###  Публикация: 1446937   (1032345) от 11.02.2021
 
-DS Audio - Thorn 1.3.1 VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030750.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thorn - это программный синтезатор, прост в использовании и обеспечивает потрясающий звук. Инструмент обеспечивает расширенным звуковым контролем. Интуитивно понятный рабочий процесс, высококачественные модули обработки, облегченная нагрузка на процессор, Thorn готов быть в центре вашего микса, в любом жанре современного производства электронной музыки.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F54D33457B8A73B66D3D31F239E198A7C6A60D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621587   (1030749) от 26.03.2023
-
-Skylar Rogers - Among the Insanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love in the Left Lane (3:52)
-02. Among the Insanity (4:35)
-03. One Last Kiss (4:18)
-04. Ride That Lightning (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16F000F3194D572E0AD36814835426D2EB1B33A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621760   (1030748) от 26.03.2023
-
-Curtis Fuller - Eight Classic Albums (1950 - 1961) 4CD, 2020, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop>
+Roseanna Vitro - Softly (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032345.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Accident [4:16]
-02. Darryl's Minor [5:37]
-03. Be Back Ta-Reckla [7:14]
-04. Judy-Ful [9:06](   Читать дальше...   )Жанр: Hard BopПродолжительность: 05:01:31
+01. Falling in Love with Love [3:38]
+02. In Summer (Estate) [5:36]
+03. A Song for All Ages [4:54]
+04. Softly, as in a Morning Sunrise [4:39](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:00:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B051748E4A55B884D5B4FBB6F31E160A5F66207B
+magnet:?xt=urn:btih:E7F6BEA1462206204FB8C37AEC1425E058440A17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -553,28 +217,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621609   (1030747) от 26.03.2023
+###  Публикация: 1446983   (1032344) от 11.02.2021
 
-The Four Breakers - Dry Rivers (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+Middle 1.5.18 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030747.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032344.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Do You Think (4:55)
-02. Hotel Room (2:59)
-03. Independent Woman (4:40)
-04. I Follow You (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:18
+Middle  просто добавляет возможность сделать «средний клик» на ваш Mac для трекпада или Magic Mouse.Тип издания: macOS SoftwareРелиз состоялся: 11.02.2021Разработчик: Ryan HansonПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D75E800C65BEEA5E7BD2D1F349AD7EEAA5E2DC08
+magnet:?xt=urn:btih:4C176DA1440E84F3237AE44A3E05CE4226B69009
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,28 +243,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621606   (1030746) от 26.03.2023
+###  Публикация: 1446944   (1032343) от 11.02.2021
 
-The Cold Stares - Voices (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+Mezz Mezzrow - 1951 - 1953 (2005) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, Revival, Swing>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030746.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032343.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Nothing But The Blues (3:22)
-02. Come For Me (3:30)
-03. The Joy (3:46)
-04. Lights Out (2:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:42
+01. Mezzerola Blues [3:09]
+02. Drum Face [3:16]
+03. Blues des annees 20 [3:41]
+04. Really the Blues [4:51](   Читать дальше...   )Жанр: Dixieland, Revival, SwingПродолжительность: 01:06:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF8BBFC97B9D2997115CA419F58C30015CA5571C
+magnet:?xt=urn:btih:B4816D3D5C52300A4439A3EF2A343705BBEA02D8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -611,26 +272,81 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621705   (1030745) от 26.03.2023
+###  Публикация: 1446989   (1032342) от 11.02.2021
 
-NIUBI Partition Editor 9.4.1 Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
+Screen Tin‪t 1.0.4 [En]
+
+>>Программы для macOS
+>>Утилиты для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Screen Tint - это удобное служебное приложение, предназначенное для уменьшения яркости экрана вашего Mac, которое особенно полезно для пользователей с чувствительными глазами и для тех, кто хочет использовать свой Mac в более темной среде, но обнаруживает, что уровень яркости их экрана слишком значителен. Мы рекомендуем использовать теплый оттенок при работе в ночное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2021Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AEB3CBBEAF8361FAAA20C7D226943FD2A97CC70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446893   (1032341) от 11.02.2021
+
+Prometheo - D'un fuoco rapito, d'un giovane uomo, d'un amore insensato (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prothos (00:05:13)
+02. Il ratto del fuoco (00:06:05)
+03. Fuga (00:01:38)
+04. Canto I (00:04:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:56:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE8D908B5E97AF3E2991C3005EAF63E07D8F2B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446880   (1032340) от 11.02.2021
+
+Dato 2.2.2 [En]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030745.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032340.jpg" />
 </div>
 
 
 ###  Подробнее
 
-NIUBI Partition Editor – программа для простого и надежного управления разделами жесткого диска позволяет создавать, форматировать, удалять разделы, делать их активными, неактивными, прятать, дефрагментировать, изменять размер без потери информации, копировать и многое другое.
-В отличие от других менеджеров разделов в программу NIUBI Partition Editor Professional (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Dato - это замена часов системного меню. По умолчанию он выглядит точно так же, но когда вы нажимаете на него, вы получаете небольшой календарь, события календаря, текущее время в разных часовых поясах и многое другое.
+Dato поддерживает все языковые стандарты и языки, которые macOS поддерживает для текста, даты, времени и календаря в строке меню, но меню доступны (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 06.02.2021Разработчик: Sindre SorhusПоддерживаемая ОС: macOS 10.15.5+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:77301B29DA2B5DF7F0A0DF44FE9F9CF9A54C4646
+magnet:?xt=urn:btih:67F010B8DDEA791D8D2A0BAF6453898B23DCFD20
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -638,28 +354,84 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621582   (1030744) от 26.03.2023
+###  Публикация: 1446829   (1032339) от 11.02.2021
 
-Ryan Neville & Midnight Blues Band  - Voodoo Masters (Album Remix) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+The Raz - The Raz (2018) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032339.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Garden (5:55)
+02. No One To Blame (4:50)
+03. Different Colored Leaves (4:39)
+04. Since I Lost You (4:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC3F98FF79B887FAB19D1C6A75F80F92EB365745
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446971   (1032338) от 11.02.2021
+
+GoodNotes 5.6.38 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032338.jpg" />
+</div>
+
+
+###  Подробнее
+
+Превратите свой Mac в «умную» цифровую бумагу и мощную систему управления документами.
+Используйте те же функции, что и в версии GoodNotes для iPad, на вашем Mac и работайте с документами там, где вы хотите и когда хотите.Тип издания: macOS SoftwareРелиз состоялся: 10.02.2021Разработчик: Time Base Technology LimitedПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A649FBF11F3F5549B7AF9DA2173CD0CB1A411F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446939   (1032337) от 11.02.2021
+
+Julie London - Julie...at Home (1960) 2010, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030744.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032337.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Time 2 Get Gone  (2:56)
-02. Dont make a Fool Outta Me  (3:52)
-03. Cigars and Cadillacs  (2:55)
-04. If the Whiskey Ain't Enough  (5:48)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:39:33
+01. You'd Be So Nice to Come Home To [2:18]
+02. Lonesome Road [2:27]
+03. They Didn't Believe Me [2:22]
+04. By Myself [1:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:30:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F095FBB86BD3018A7C5402CB94B47FD7CE0FBE2E
+magnet:?xt=urn:btih:D30EE391CBEC70FC7E1CCD7F246ECB063D5EF0D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -667,25 +439,138 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621660   (1030743) от 26.03.2023
+###  Публикация: 1447012   (1032336) от 11.02.2021
 
-Александр  Беляев | Ариэль (2023) [MP3, Александр Котов]
+Slayer - Undisputed Attitude (1996) Reissue, 2013, American Recordings [FLAC|Lossless|image + .cue] <Crossover, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disintegration/Free Money
+02. Verbal Abuse/Leeches
+03. Abolish Government/Superficial Love
+04. Can't Stand You(   Читать дальше...   )Жанр: Crossover, Thrash MetalПродолжительность: 00:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD20CD1B9A2BD72AEA0EE0F1A64877B155E6AEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446875   (1032335) от 11.02.2021
+
+AnyMP4 iOS Toolkit 9.0.56 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Восстановите данные с iPhone / iPad / iPod на MacТип издания: macOS SoftwareРелиз состоялся: 10.02.2021Разработчик: AnyMP4 StudioПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AAA98FA448AC2BD390C190F1ED2397E2752DDDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446964   (1032334) от 11.02.2021
+
+SoundSource 5.3.1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032334.jpg" />
+</div>
+
+
+###  Подробнее
+
+SounceSource позволяет настроить прямо из строки меню входные, выходные данные и звуковые эффекты устройства и настройки громкости в считанные минуты. С SoundSource, вы получаете быстрый доступ к наиболее важным настройкам звука вашего Mac.
+Мгновенное переключение аудио-устройств - c помощью всего двух щелчков мыши, вы можете переключить аудио устройство вашего Mac, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 10.02.2021Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51291F7B862F24063EF0E94609E9781FBB29BB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620178   (1032333) от 19.03.2023
+
+First Signal - Face Your Fears (2023) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unbreakable (3:33)
+02. Situation Critical (4:01)
+03. Shoot The Bullet (4:03)
+04. Always Be There (4:08)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AA1ECE26B5BD1477876ED8A2E20A16EDD02FC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620118   (1032332) от 19.03.2023
+
+Александр Тамоников | Фронтовая разведка 41-го. Донская рана (2023) [MP3, Олег Томилин]
 
 >>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Детектив, Боевик (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030743.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032332.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Когда-то давным-давно в детстве, Александр Беляев мечтал научиться летать, но не на каких-то аэропланах, а просто так, парить в свободном полете, как птица. Но для этого нужны были крылья, и он мастерил их из различного материала. В одном из многочисленных вариантов были веники, которые он привязывал к рукам, пытаясь взлететь. Прыгал он и с отцовским зонтом с крыши. (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 07:52:57
+Боевые романы о ежедневном подвиге советских фронтовых разведчиков. Поединок силы и духа, когда до переднего края врага всего несколько шагов. Подробности жестоких боев, о которых не рассказывают даже ветераны – участники тех событий.
+
+Советское командование планирует освободить Ростов-на-Дону, чтобы запереть фашистов на Северном Кавказе. На первом этапе решено перерезать (   Читать дальше...   )Жанр: БоевикПродолжительность: 06:27:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9157730537863C940B2E4EF325CE9F3E2BE0281
+magnet:?xt=urn:btih:C05074B9C72ACF167733A311F0CCC82A111BFF76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -693,26 +578,142 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621939   (1030742) от 26.03.2023
+###  Публикация: 1620182   (1032331) от 19.03.2023
 
-HiBit Uninstaller 3.1.10 RePack (& Portable) by Dodakaedr [Multi/Ru]
+Heroes And Monsters - Heroes And Monsters (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
 
->>Архив торрентов
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030742.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032331.jpg" />
 </div>
 
 
 ###  Подробнее
 
-HiBit Uninstaller - идеальное решение для удаления программ Windows, которое позволяет вам деинсталлировать программы быстро и полностью, используя простой и дружественный к пользователю интерфейс. Так же, в программе имеется множество средств для очистки и управления вашей системой.
-Удобной функцией в HiBit Uninstaller является удаления программ посредством менеджера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01. Locked And Loaded (3:57)
+02. Raw Power (4:10)
+03. Let's Ride It (4:03)
+04. Angels Never Sleep (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA03AE5A8A605D69663C0DF138C763BD286AC7E2
+magnet:?xt=urn:btih:F66432860FC45B95C1103D65F4A1CBD5BD339967
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620376   (1032330) от 19.03.2023
+
+Kx5 & deadmau5 & Kaskade - Kx5 (2023) [FLAC|Lossless|WEB-DL|tracks] <EDM, Club House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alive (ft. The Moth & The Flame) (5:09)
+ 02. Sacrifice (ft. Sofi Tukker) (4:40)
+ 03. Escape (ft. Hayla) (4:00)
+ 04. Bright Lights (ft. AR/CO) (3:23)(   Читать дальше...   )Жанр: EDM, Club House, TechnoПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCB04CBAF3184AF907BC77975BCD203AD89C582
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620138   (1032329) от 19.03.2023
+
+Владимир Шахиджанян | 1001 вопрос про ЭТО. Часть 2 (2023) [MP3, Алексей Воскобойников, Алексей Цой, Екатерина Пермякова]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032329.jpg" />
+</div>
+
+
+###  Подробнее
+
+Важно, чтобы половые отношения не беспокоили нас, а, наоборот, приносили радость. При условии, что у каждого из нас свои «тревоги».
+Секс – разнообразная норма, именно с такой позиции подходит автор, отвечая на 1001 вопрос, связанный с интимной жизнью. Владимир Шахиджанян, работая над книгой, беседовал с урологами, гинекологами, социологами, сексологами, психологами (   Читать дальше...   )Жанр: Научно-популярная литератураПродолжительность: 10:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD71634AC12D479124570AD0BBE56D826436A8A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620262   (1032328) от 19.03.2023
+
+VA - The Best 70's Music (2022) [OGG Vorbis|480 Kbps] <Pop, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rod Stewart - Da Ya Think I'm Sexy
+02. Maxine Nightingale - Right Back Where We Started From
+03. Fleetwood Mac - Dreams (2018 Remaster)
+04. Kate Bush - Wuthering Heights(   Читать дальше...   )Жанр: Pop, Rock, RnBПродолжительность: 04:11:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107EBE4C7F6BFD67A3F1AFE154C84686869D4103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620169   (1032327) от 19.03.2023
+
+Steve Augeri - Seven Ways 'Til Sunday (2022) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Magic (5:09)
+02. Never Far From Home (5:26)
+03. Bated Breath (3:23)
+04. Drive (3:46)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F55AEFBD76C788D2F8C456C5C666E986701AB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

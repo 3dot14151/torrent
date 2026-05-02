@@ -1,3 +1,176 @@
+###  Публикация: 1520992   (137592) от 31.12.2021
+
+Eagles - Eagles (1972) remastered 2021, Mobile Fidelity  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take it Easy
+02. Witchy Woman
+03. Chug All Night
+04. Most Of Us Are Sad(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6717DFD27773E9C9843C0B6F7522EF647B2778CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015340   (137173) от 31.12.2022
+
+Imagination - Imagination (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Synth-Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137173.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Shoo Be Da Dabba Doobee
+A2	Wrong In Love
+A3	Looking At Midnight
+A4	The Need To Be Free(   Читать дальше...   )Жанр: Synth-Pop, DiscoПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5FC48365F8397BBF2513419B15EC380E6218D5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1824988   (136850) от 16.10.2025
+
+Alien Weaponry - Studio Albums (3 releases) (2018-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136850.jpg" />
+</div>
+
+
+###  Подробнее
+
+Alien Weaponry — новозеландская метал-группа из Вайпу, образованная в Окленде в 2010 году.2018 - Tū
+2021 - Tangaroa
+2025 - Te RāЖанр: Groove/Thrash MetalПродолжительность: 02:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADEB6617791BB0EDDE730568EE155EF4BFEEA738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825420   (136750) от 17.10.2025
+
+Arcturus - Studio Albums (6 releases) (1996-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Avant-garde Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136750.jpg" />
+</div>
+
+
+###  Подробнее
+
+Arcturus — норвежская группа, играющая авангардный метал, созданная в 1987 году.1996 - Aspera Hiems Symfonia
+1997 - La Masquerade infernale
+1999 - Disguised Masters
+2002 - The Sham MirrorsЖанр: Avant-garde Progressive MetalПродолжительность: 05:41:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40F45A128E4EB1B8FC3F1992EE06F089970B4B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679568   (135329) от 26.11.2023
+
+Opeth - Heritage (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135329.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Heritage (02:04)
+A2. The Devil's Orchard (06:39)
+A3. I Feel the Dark (06:37)
+B1. Slither (04:03)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 00:56:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E49269CE9A95AB7D03D11EEDCA85332FAB051E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679554   (135309) от 26.11.2023
+
+Myriad Lights - Lambda (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy, Power, Symphonic-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lambda [00:01:15]
+02. Take a Look From The Lock [00:03:57]
+03. Desire Of The Doomed [00:03:41]
+04. Healing [00:05:03](   Читать дальше...   )Жанр: Heavy, Power, Symphonic-MetalПродолжительность: 00:32:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79DEF111B8ADC848BB4274CD2654D9AF5D4FFFE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679533   (135301) от 26.11.2023
 
 Opeth - Ghost Reveries (2005) Reissue, 2013, 	Roadrunner Records, Cargo Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
@@ -571,180 +744,6 @@ A4 Con Amore (Cu Dragoste)(   Читать дальше...   )Жанр: PopПр�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65CB716CFC68BD32768AF0093627BBDF48143897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680786   (133939) от 30.11.2023
-
-Opeth - Deliverance & Damnation Remixed (2015) Compilation [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133939.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deliverance
-A. Wreath (11:13)
-B. Deliverance (13:39)
-C1. A Fair Judgement (10:23)(   Читать дальше...   )Жанр: Progressive Death Metal, Progressive RockПродолжительность: 01:45:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FF47024966D3DD594781D5F0B0D3FB616721E37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680800   (133930) от 30.11.2023
-
-Fate - V (2006) Remastered, 2023, Frontiers Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butterfly (5:04)
-02. Heaven's Crying Too (5:02)
-03. Everything About You (4:44)
-04. Ecstasy (4:19)(   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 01:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C55F8909D602596C788773A451FE34D2E195491
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680819   (133897) от 30.11.2023
-
-Them - Studio Albums (4 releases) (2016-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133897.jpg" />
-</div>
-
-
-###  Подробнее
-
-Them - немецко-американская хэви-метал группа, образованная в 2008 году.2016 - Sweet Hollow
-2018 - Manor Of The Se7en Gables
-2020 - Return to Hemmersmoor
-2022 - Fear CityЖанр: Heavy/Power MetalПродолжительность: 03:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89698A042F4627CECBFA421347999C50733FF300
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680844   (133873) от 30.11.2023
-
-Visions Of Atlantis - A Pirate's Symphony (2023) Orchestral Version [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133873.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pirates will Return (Orchestral Version) (6:08)
-02. Melancholy Angel (Orchestral Version) (3:56)
-03. Master the Hurricane (Orchestral Version) (7:17)
-04. Clocks (Orchestral Version) (3:56)(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:57:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A692925812DCAAF997BA82A7ECAB12AFC6EEF3A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680787   (133852) от 30.11.2023
-
-Paradise Lost - Icon 30 (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Gothic metal, Doom metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Embers Fire (4:51)
-02. Remembrance (3:28)
-03. Forging Sympathy (4:41)
-04. Joys of the Emptiness (3:29)(   Читать дальше...   )Жанр: Gothic metal, Doom metalПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C9BCB372F9FAFCA12CE4B428A1AE0D7B88261B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1680830   (133848) от 30.11.2023
-
-Brian Eno - ForeverAndEverNoMore (2022) Forever Voiceless Edition, 2023, UMC (Universal Music Catalogue) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative, Indie, Ambient, Neoclassic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Thought (Instrumental) (4:00)
-02. And Let It In (Instrumental) (3:28)
-03. Who Are We (Instrumental) (4:24)
-04. Crystal Light (Instrumental) (4:19)(   Читать дальше...   )Жанр: Alternative, Indie, Ambient, NeoclassicПродолжительность: 2CD, 01:30:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE84171B1D6278E6E1E82D55B141E359C253336
 ```
 
 https://mybot314.ru/tekegram_catalog/

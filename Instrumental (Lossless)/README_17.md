@@ -1,3 +1,119 @@
+###  Публикация: 1456724   (1024880) от 23.03.2021
+
+Van Kery - New Life (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Runaway (2:49)
+02. One Thing I Learned (3:26)
+03. Perfect Love (5:00)
+04. Not My Time (3:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F068ECFE191349FBAE7BBD4444C672792164485B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456711   (1024876) от 23.03.2021
+
+Chris Catena' Rock City Tribe - Truth In Unity (2020) [FLAC|Lossless|image + .cue] <Hard Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel City (4:48)
+02. The Trickster  (3:50)
+03. Down In The Black (3:57)
+04. Motorcycle Killers (4:34)(   Читать дальше...   )Жанр: Hard Blues RockПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4A5BE16DF89E6561E5A450FA36088497EA6CF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456717   (1024874) от 23.03.2021
+
+Ry Bradley - I've Got You Covered (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock 'n' Roll>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little Sister (3:42)
+02. My Babe (2:55)
+03. Johnny B. Goode (2:40)
+04. (You're the) Devil in Disguise (2:54)(   Читать дальше...   )Жанр: Blues Rock 'n' RollПродолжительность: 01:04:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B035B7B59AF30F48B6069068E09AB4FDFAFE4106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456555   (1024863) от 23.03.2021
+
+VA - The Classics: Rock 'n' Roll Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Company - Feel Like Makin' Love (5:13)
+02. ZZ Top - Jesus Just Left Chicago (3:30)
+03. Foghat - I Just Want to Make Love to You (Single Version) (4:19)
+04. Robben Ford - Talk to Your Daughter (4:10)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08D387D9A2FFAC4674CCBBC3BE90772882DBB261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1456706   (1024847) от 23.03.2021
 
 Brandon Miller - Virtue and Vice (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -629,122 +745,6 @@ Lena Morris - New Blood (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81E51F70D93EDEDFEA4CAED0315FD66CC4F5458C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460934   (1022188) от 07.04.2021
-
-Vikings of Blues, Vargas Blues Band & Jessy Howe - Soul Food (2021) [FLAC|Lossless|WEB-DL|tracks] <Rock Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Let Fear
-02. Heart Go Blind
-03. Give Back
-04. Open Up(   Читать дальше...   )Жанр: Rock BluesПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF37CDD10F82E00AE0C80D96513ADA6155952A2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461320   (1021888) от 09.04.2021
-
-Chris Cain - Raisin Cain (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hush Money (4:14)
-02. You Won't Have A Problem When I'm Gone (3:07)
-03. Too Many Problems (3:40)
-04. Down On The Ground (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07B0856B39CC95A6EC3F2470F606CB16746AC181
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461790   (1021540) от 11.04.2021
-
-Black Lung Lucy - Black Lung Lucy (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thousand Men (3:22)
-02. Watch Me Bleed (3:52)
-03. Lana (4:22)
-04. Right by Me (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA321DC43209E061B03B4DAF075C5D980B1EC63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461792   (1021536) от 11.04.2021
-
-Jim Preen - Cat in the Spirit House (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shopping for Clothes (3:39)
-02. Big Red Cars (3:28)
-03. Armani Suit, New Guitar (3:12)
-04. Framed (2:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943FDC1531F86DF3AAF8E74ABE417AF02EF646C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

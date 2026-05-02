@@ -1,3 +1,38 @@
+###  Публикация: 317263   (811384) от 01.04.2011
+
+Buddhist Monks Of Maitri Vihar Monastery - Sartori: Tibetan Mantras & Chants (1997) [MP3|192 kbps]<Tibetan mantras>
+
+>>East Asian Music
+>>Asian Traditional, Ethnic
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_811384.jpg" />
+</div>
+
+
+###  Подробнее
+
+Album:  Sartori: Tibetan Mantras & Chants
+1.Three Monks with bowls and Cymbals - 00:02:14
+2.Three Mantra Chants - 00:03:06
+3.Buddhist Monks Choir - 00:13:46
+4.Chant with Cymbals and Gantra - 00:02:10
+5.Buddhist Monks Choir 2 - 00:15:10
+6.Three Deep singing Monks - 00:04:19
+7.Singing Bowls and Cymbals - 00:02:40
+8.Buddhist Monks Choir 3 - 00:17:13
+9.Triad Mantra Chant - 00:02:44(   Читать дальше...)Жанр: Tibetan mantrasПродолжительность: 01:04:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:984B9CA3D64CC40779F7C5EEBD6DA4C5EF50E983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 884464   (807323) от 03.04.2015
 
 int.Records — Acid Travel (2009) Touhou Instrumental /Doujin/ [FLAC|Lossless] <Electronic>
@@ -759,35 +794,6 @@ Yoshida Brothers - Hishou (2007) [FLAC|Lossless|tracks + .cue] <Folk, World, Ins
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:64091154F1359423AB165E2376853ACE52128EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1281939   (748058) от 10.02.2019
-
-Yuki Murata - Films (2009) Ricco Label, RE. [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
-
->>East Asian Music
->>Other Asian (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue (4:59)
- 02. The Hill Named Air (3:27)
- 03. Capricious (0:59)
- 04. Under The Deep Sea (2:44)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 00:48:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98340C0925E1C68E2E1DCAC46A3FF8958A091436
 ```
 
 https://mybot314.ru/tekegram_catalog/

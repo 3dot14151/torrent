@@ -1,3 +1,176 @@
+###  Публикация: 1590260   (189035) от 13.11.2022
+
+Suzi Quatro - Suzi Quatro (1973) [DSD 128|tracks|Vinyl-Rip] <Glam, Hard Rock, Rock & Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189035.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 48 Crash (3:57)
+ 02. Glycerine Queen (3:52)
+ 03. Shine My Machine (3:54)
+ 04. Official Suburbian Superman (3:10)(   Читать дальше...   )Жанр: Glam, Hard Rock, Rock & RollПродолжительность: 00:47:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7463B9EC8E8C6AC4915BB7AA46B8BE1E2BBCDE2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590282   (189034) от 13.11.2022
+
+Алексей Рыбников - «Юнона» И «Авось» (1982) [FLAC 2.0|192/24|side-tracks|Vinyl-Rip] <Opera, Art Rock, Experimental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189034.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Сторона 1 • «Юнона» И «Авось» • Опера
+02. Сторона 2 • «Юнона» И «Авось» • Опера (Продолжение 1)
+03. Сторона 3 • «Юнона» И «Авось» • Опера (Продолжение 2)
+04. Сторона 4 • «Юнона» И «Авось» • Опера (Окончание)(   Читать дальше...   )Жанр: Opera, Art Rock, ExperimentalПродолжительность: 01:09:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41E63F282DB24B5F59DB0ADDF88ADFCF16F8C0DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661107   (188800) от 14.09.2023
+
+Berlin Philharmonic Orchestra • Herbert von Karajan - Beethoven - Symphony No.6 Pastoral (1977) A New Recording from the Berlin Philarmonic Hall [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classica ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188800.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ludvig Van Beethoven (1770 - 1817)
+Symphony No.6 In F Major, Op. 68 "Pastoral"
+A New Recording from the Berlin Philarmonic Hall
+A1 Allegro Ma Non Troppo(   Читать дальше...   )Жанр: Classical, RomanticПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807D506B06458F8CABD9B7E1C4F8DBE4D4B76BE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590517   (188658) от 14.11.2022
+
+Suzi Quatro - Uncovered (2022) [DSD 128|tracks|Vinyl-Rip] <Glam-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188658.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Moon Rising (2:19)
+ 02. Midnight Hour (2:26)
+ 03. I Feel The Earth Move (2:54)
+ 04. Walking The Dog (2:35)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 00:17:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5930AF51E77D9D26876F9B89210A5F9B1D8B82B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1543805   (188589) от 14.11.2022
+
+Red Hot Chili Peppers - Дискография (16 releases) (1983 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Alternative Rock, Funk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_188589.jpg" />
+</div>
+
+
+###  Подробнее
+
+Red Hot Chili Peppers (RHCP) — американская рок-группа, образованная в 1983 году в Калифорнии вокалистом Энтони Кидисом, басистом Майклом Бэлзари (больше известным как Фли), гитаристом Хиллелом Словаком и барабанщиком Джеком Айронсом.1984 - The Red Hot Chili Peppers
+1985 - Freaky Styley
+1987 - The Uplift Mofo Party Plan
+1989 - Mother's MilkЖанр: Alternative Rock, Funk RockПродолжительность: 21:13:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A11D77E3D0177B2967C16310A58FC22C6C064B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661762   (188563) от 15.09.2023
+
+Demons & Wizards (Blind Guardian; Iced Earth) - Studio Albums (3 releases) (2000-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188563.jpg" />
+</div>
+
+
+###  Подробнее
+
+Demons & Wizards - сайд-проект вокалиста Ханси Кюрша (Blind Guardian) и гитариста Джона Шаффера (Iced Earth) в жанре пауэр-метал.2000 - Demons & Wizards
+2005 - Touched by the Crimson King
+2020 - IIIЖанр: Power MetalПродолжительность: 03:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F289415C25FB83EC3A588668ADE9BA9750965E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1661630   (188544) от 15.09.2023
 
 Rage of Angels - Rage of Angels (1989) [WavPack|32/192|image + .cue|Vinyl-Rip] <Melodic Heavy Metal, Hard Rock>
@@ -569,180 +742,6 @@ Henry Hall - I Feel Amazing (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90B7B260C7059EB151A9928AB07E66996FCC4CE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663324   (186830) от 21.09.2023
-
-The Virtuosi Of England, Conducted by Arthur Davison - Henry Purcell - Purcell Ceremonial Theater And Chamber Music (1975) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186830.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Trumpet Overture From «The Indian Queen»
-Suite From Abdelazer
-A2 (a) Overture - Allegro
-A2 (b) Rondeau(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD5EF0CEEB204F592051B102CB6D3AD0D2122B11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663156   (186828) от 21.09.2023
-
-Soft Riot - No. (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk, Minimal Wave>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186828.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Linked Between Two Minds (5:03)
-2. Crashing Into Tomorrow (5:02)
-3. It Never Takes Long To Say No (4:38)
-4. Shouldering (5:06)(   Читать дальше...   )Жанр: Post-Punk, Minimal WaveПродолжительность: 00:42:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990840AA8CDCC887544F11118BBE464E27CFB3F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663153   (186748) от 21.09.2023
-
-Kim Petras - Problématique (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186748.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Problématique [00:03:03]
-02. Je T'Adore [00:03:05]
-03. All She Wants [00:03:52]
-04. Born Again [00:02:52](   Читать дальше...   )Жанр: PopПродолжительность: 00:29:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE526F4ACD1352A6BD8F5E36A7C804E82967E9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591676   (186714) от 19.11.2022
-
-Queen - The Miracle (Collectors Edition) (2022) [FLAC 2.0|48/24|tracks|WEB-DL] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186714.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 Bob Ludwig 2011 Remaster:
-01. Party (Remastered 2011) (2:24)
-02. Khashoggi's Ship (Remastered 2011) (2:49)
-03. The Miracle (Remastered 2011) (5:02)(   Читать дальше...   )Жанр: RockПродолжительность: 03:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C0D0526454AAE02687A40EFA5385BAA8A8E56A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663580   (186597) от 22.09.2023
-
-Dayshell - Pegasus (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Hardcore, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - You Wish (00:03:39)
-02 - Not Welcome (00:03:46)
-03 - Attitude (00:03:56)
-04 - Give Me (00:03:47)(   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C10671E3D34499FBAB2665963230FB4624E2B838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1663360   (186591) от 22.09.2023
-
-Turn Me On Dead Man - Cassiopeia (2023) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186591.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Apocalypse Wow [00:05:52]
-02. My Vast Empire [00:05:41]
-03. Eva [00:04:41]
-04. Moonling [00:05:52](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722C14942E4F7A17A37F41ACF85DDCA55239DEF2
 ```
 
 https://mybot314.ru/tekegram_catalog/

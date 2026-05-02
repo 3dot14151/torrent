@@ -1,3 +1,204 @@
+###  Публикация: 661040   (210447) от 14.08.2022
+
+VA - Mortal Kombat Annihilation: OST (1997) [FLAC|Lossless|tracks + .cue] <Soundtrack, Techno, Progressive Trance>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210447.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Immortals - Theme From Mortal Kombat (Encounter the Ultimate) (03:19)
+02. Scooter - Fire (03:14)
+03. KMFDM - Megalomaniac (04:19)
+04. Megadeth - Almost Honest (04:01)(   Читать дальше...   )Жанр: Soundtrack, Techno, Progressive TranceПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BFC0420E7E0DAC5B70D8988111DC27D6D9AB93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1604927   (209877) от 16.01.2023
+
+ДиДюЛя - Live with String Quartet (2022) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Legend (3:00)
+02. Waterfall (4:11)
+03. Arabica (6:00)
+04. Butterflies (4:24)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:49:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AC47664D9202007386D264C87ED186C0B0410E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1644407   (209763) от 05.07.2023
+
+ДиДюЛя - Складук (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamenco, World>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Складук
+02. ПляжЖанр: Instrumental, Flamenco, WorldПродолжительность: 00:07:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E81D03FA7AE9ACF158AF58A1322D1E769E52F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1645059   (209317) от 09.07.2023
+
+VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <Instrumental, Relax, Classical>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Подводный мир (1:06)
+02. Дождь в лесу (1:21)
+03. Возле маленького ручейка (6:51)
+04. Рассвет на озере (6:05)(   Читать дальше...   )Жанр: Instrumental, Relax, ClassicalПродолжительность: 00:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1CCFF9BB8074C2834D4C0768C7B6A925B2BCB9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607496   (208994) от 26.01.2023
+
+Nino Rota - Greatest Film Hits (2012) 5xCD, BOX Set [FLAC|Lossless|image + .cue] <Instrumental, Soundtrack>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nino Rota (3.12.1911 – 10.4.1979) - итальянский композитор, пианист, дирижер и академик. Nino Rota родился в 1911 году в Милане, в семье музыкантов. В детстве, переехав в Рим, поступил в консерваторию, которую закончил в 1929 году. Еще в консерватории Nino Rota прослыл вундеркиндом – он зарекомендовал себя как композитор и дирижер оркестра, а его первая оратория (   Читать дальше...   )CD1 - The Godfather Part I, II:
+01. Main Title. The Godfater Waltz (3:09)
+02. I Have But One Heart (3:01)
+03. The Pick-Up (2:10)(   Читать дальше...   )Жанр: Instrumental, SoundtrackПродолжительность: 05:09:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72804D4C11CF870D4AA4BBF852A713BBF198679
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648774   (208002) от 25.07.2023
+
+Алексей Горшенёв - Посвящение (2023) Музыка для сериала "Король и Шут" [FLAC|Lossless|WEB-DL|tracks] <Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рождение (Сцена на крыше ДС "Юбилейный")
+02. д’Артаньян (Сцена с зубами)
+03. Разговор с богом (Сцена "Больница, Горшок")
+04. Дружба (Сцена дружбы)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9C45055B5DD1E93559D903206DB2878933FD2EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1648742   (207980) от 25.07.2023
+
+Алексей Горшенёв - Посвящение (2023) Музыка для сериала "Король и Шут" [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рождение (Сцена на крыше ДС "Юбилейный")
+02. д’Артаньян (Сцена с зубами)
+03. Разговор с богом (Сцена "Больница, Горшок")
+04. Дружба (Сцена дружбы)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E9DD8154C9A3DA62B5C2F43622F4E869BCAD26E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1649473   (207761) от 28.07.2023
 
 Theodor Bastard - Oikoumene (2012) 10th Anniversary Edition, 2023, Theodor Bastard [FLAC|Lossless|WEB-DL|tracks] <Darkwave, Trip-Hop, Folk>
@@ -542,209 +743,6 @@ VA - Atomic Heart - Vol.1 (2023) [FLAC|Lossless|tracks] <OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:552DE5E3059BCCB6967A79E39E1C696B2074A45B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654838   (202249) от 23.08.2023
-
-Ah Nee Mah - Sacred Nation (2017) [FLAC|Lossless|tracks + .cue] <New Age, Native American, Tribal>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morning on the Mesa
-02. Ghosts of the Canyons
-03. Trail of the Ancients
-04. The White Wolf(   Читать дальше...   )Жанр: New Age, Native American, TribalПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC77C7C647A5C15F4F5C395D314217BF7EEA6191
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615787   (202169) от 27.02.2023
-
-Otyken - Дискография (2018-2023) 7 релизов  [MP3|320 Kbps] <Ethnic, World Music, Dance House, Горловое пение>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phenomenon [05:50]
-02. Pulse [07:15]
-03. Storm (2023) [04:20]
-04. White Mountain (2023) [07:41](   Читать дальше...   )Жанр: Ethnic, World Music, Dance House, Горловое пениеПродолжительность: 04:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21FF610879D7B34F2CAF95B2B84AD0C56913D3B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829591   (202031) от 25.10.2025
-
-Francis Goya & Norman Candler Magic Strings - More Than Ever (Remastered) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Theme for a Lady (Remastered)
-02. Theme of a Young Love (Remastered)
-03. Brokenhearted Me (Remastered)
-04. My Sweet Lady (Remastered)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:33:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F8314741228500E214732DC9A4A34D9A26948DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829604   (201991) от 25.10.2025
-
-Paul Mauriat - The Russian Album (1993) [FLAC 24/192|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Plaine ma plaine
-02. Les deux guitares
-03. Le Sarafan rouge
-04. Katioucha(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:806BEF6CC9D6F80BDE32E662555C01606E1E2342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1829839   (201837) от 25.10.2025
-
-Paul Mauriat - Le grand orchestre de Paul Mauriat, Vol. 1-2 (1965) [FLAC 24/96|Lossless|WEB-DL|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_201837.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. La nuit
-02. Vous les femmes
-03. N'avoue jamais(   Читать дальше...   )Жанр: Instrumental |Продолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09FA73874B1BDCFCEFC86DBB7C81A1B591DEBB9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618213   (201364) от 14.03.2023
-
-VA - Enigma-Forest-Transit 8 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Earth Nation - Lord Taketh
-02. Juno Reactor - Conga Fury
-03. Deep Forest - Deep Forest (Sunrise At Alcatraz) (Remix)
-04. Celestial - Cang Ding(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:14:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:643C356C426BD6FA1EC842B0C156974523C87A32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618158   (201360) от 14.03.2023
-
-VA - Enigma-Forest-Transit 7 (1998) [OGG Vorbis|480 Kbps] <Electronic, Ambient, New Wave>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Buffet - After World
-02. Shiva feat.Magdalena - Far Behing the Skies
-03. Cheyenne - Eternal Faith
-04. Magic Ear - A Passage to India(   Читать дальше...   )Жанр: Electronic, Ambient, New WaveПродолжительность: 01:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FB68E96C161301F88F836CE2358C6AEFBB03684
 ```
 
 https://mybot314.ru/tekegram_catalog/

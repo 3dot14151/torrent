@@ -1,3 +1,32 @@
+###  Публикация: 997511   (873895) от 17.03.2016
+
+Sam Apple Pie - East 17 (1972) [MP3|320 кб/с] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Time Music
+02. Louise
+03. Out On The Road
+04. Route 66(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BEC17164F65988F6726AE86620F781B464FF432
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997515   (873281) от 17.03.2016
 
 Led Zeppelin - Ballads (2014) [MP3|320 кб/с] <Rock>
@@ -734,35 +763,6 @@ Trickster - Back To Zero (1979) 2006, Strange Days Records [MP3|320 Kbps] <Class
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8742840E0383C777BDC444B31BDEAB56546A3C66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1376444   (860384) от 17.04.2020
-
-David Bowie - ChangesNowBowie (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860384.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Man Who Sold The World (ChangesNowBowie Version)
-2. Aladdin Sane (ChangesNowBowie Version)
-3. White Light/White Heat (ChangesNowBowie Version)
-4. Shopping For Girls (ChangesNowBowie Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9FC9D26A66DCB195AE3B013C7F5D11E78F09006
 ```
 
 https://mybot314.ru/tekegram_catalog/

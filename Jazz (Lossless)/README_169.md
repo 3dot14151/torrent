@@ -1,3 +1,61 @@
+###  Публикация: 937594   (488318) от 15.09.2015
+
+Thomas (Tim) Hardin Trio - You Just Have A Listen To Jazz (1992) /Victor/[FLAC|image+.cue]<Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Only Have [04:25]
+02. Stay [04:44]
+03. Romantic Flight [04:18]
+04. I Love You [03:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:43:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25BB8C1C15CB630C50747D96E97CA7BF3975E8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1243829   (488292) от 29.08.2018
+
+Kyoto Jazz Sextet - Mission (2015) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Search for the New Land [9:10]
+02. Speak No Evil [8:39]
+03. The Melting Pot [7:29]
+04. Succotash [7:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A737C32361D2E67EBDBA28D29E1214E3264C7FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243827   (488291) от 29.08.2018
 
 Mary Lou Williams - My Mama Pinned A Rose On Me (1977) 2005, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Stride, Piano Jazz>
@@ -687,70 +745,6 @@ Paul Hardcastle & Maxine Hardcastle - The Collection (2019) [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:19E80230FFCD34CD78B05CC95C1AB2140F133991
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544511   (484643) от 10.09.2012
-
-Nicki Parrott - 3 альбома (2011-2012) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Darn Hot [03:51]
-02. That Sunday, That Summer [03:39]
-03. Indian Summer  [04:11]
-04. The Summer Wind  [04:10]
-05. Midnight Sun  [05:45]
-06. On The Sunny Side Of The Street  [04:20]
-07. Estate  [03:43]
-08. Here Comes The Sun  [03:06]
-09. In The Heat Of The Night  [04:57]
-10. When The Sun Comes Out  [05:15](   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1566199   (484414) от 28.07.2022
-
-V.A. - Guitar and Piano Jazz (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484414.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Instrumental Music Ensemble - Smoothly Chilling (3:21)
-02. Relax Time Zone - Round Midnight (3:22)
-03. Jazz Night Music Paradise - This Summer Breeze (2:52)
-04. Instrumental Music Ensemble - New Morning (3:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33E5F09B1F9A675D1F52BE2F7D63E906D756E28
 ```
 
 https://mybot314.ru/tekegram_catalog/

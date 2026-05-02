@@ -1,3 +1,55 @@
+###  Публикация: 1436868   (1042773) от 02.01.2021
+
+ExamDiff Pro Master Edition 11.0.1.11 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042773.jpg" />
+</div>
+
+
+###  Подробнее
+
+ExamDiff - мощная и легкая в использовании программа для сравнения текстовых или бинарных файлов и директорий. Программа обладает уникальными возможностями, которые отличают ExamDiff Pro от других аналогичных приложений для сравнения файлов. ExamDiff Pro предлагает более эффективный и удобный способ для сравнения файлов и папок. С помощью ExamDiff Вы сможете сравнивать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2B79B6E4BDDCB2723767797A3EB0AF6B69624CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436977   (1042766) от 02.01.2021
+
+Allavsoft Video Downloader Converter 3.23.2.7668 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A57320516ACE268BB443EEF755CCDE5F24FA7DE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1437007   (1042753) от 02.01.2021
 
 CrystalDiskMark 8.0.0a + Portable [Multi/Ru]
@@ -620,58 +672,6 @@ Simple Sticky Notes — простая в понимании программа 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BDB0EC0883C59A68D628127C0A526DFAC6D856E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437117   (1042484) от 03.01.2021
-
-Your Universal MultiBoot Installer UEFI 0.0.3.2 Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042484.jpg" />
-</div>
-
-
-###  Подробнее
-
-YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AF27464E049771A6507B32A4A5FEEA94109EA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1437014   (1042482) от 03.01.2021
-
-Your Universal MultiBoot Installer (YUMI) 2.0.8.2a Portable [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1042482.jpg" />
-</div>
-
-
-###  Подробнее
-
-YUMI (Your Universal Multiboot Installer) - бесплатная программа с помощью которой можно легко создать мультизагрузочный USB диск, содержащий к примеру несколько операционных систем, различные антивирусные инструменты для очистки ПК от вирусов (AVG Rescue CD, Acronis Rescue CD, AVIRA AntiVir Rescue CD, BitDefender Rescue Disk, Dr.Web Live CD, Panda SafeCD, Kaspersky (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823FEFFBB4A067FABE519F9D640BEF3F71B1B5CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

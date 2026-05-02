@@ -1,3 +1,264 @@
+###  Публикация: 1619869   (245684) от 20.03.2023
+
+VA - Bubblegum Dance (2023) [MP3|320 Kbps] <Europop, Trance, Euro House, Vocal, Synth-pop, Euro-Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua - Barbie Girl 3:15
+02. Atomic Kitten - The Tide Is High (Radio Mix) 3:28
+03. S Club 7 - Bring It All Back 3:34
+04. Aqua - Doctor Jones 3:22(   Читать дальше...   )Жанр: Europop, Trance, Euro House, Vocal, Synth-pop, Euro-DiscoПродолжительность: 04:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FDDC30AE6E7E3A836198AD7D5395C895901DC46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621357   (245306) от 24.03.2023
+
+VA - Music News vol.253 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245306.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Grishina - Двигайся Парень (Rdsagitario Deep Mix) (03:48)
+ 002. Absofacto feat. Niteshift - Unquit You (03:15)
+ 003. ADA - Слёзы От Версаче (02:30)
+ 004. Aize feat. Danna Max - Just One Last Dance (02:17)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B0B0F41D1A52CCE5FC2283357007BFF685B12E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450984   (244872) от 28.02.2021
+
+VA - Esperandote: New Latin Music (2021) [MP3|320 Kbps] <Latin, Pop, Reggaeton>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Искромётная и зажигательная танцевальная латино музыка в треках сборника "Esperandote". Такая музыка будет отличным музыкальным сопровождением для воскресной вечеринки с друзьями.001. J. Balvin - Morado
+002. Paul Mice - Caipirinha
+003. J Alvarez - Tricks
+004. 3ballmty - Desesperada(   Читать дальше...   )Жанр: Latin, Pop, ReggaetonПродолжительность: 07:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:342A7D8773FCE64233EC7470CE0BC9B6858745A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631522   (244481) от 08.05.2023
+
+VA - Музыка для машины Vol.13 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244481.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bukatara  - Скучаю (03:26)
+02. Gariko Feat. & Sharai  - Чудный (03:07)
+03. Dashi Feat. & Бьянка  - Люли (Dj. Prezzplay & Dj. Ser Radio Edit) (03:10)
+04. Tamuki  - Кайфовать (02:59)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:537270C1CC12DEC17DB0D4BCEEEEDF8A89F443F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567337   (244183) от 02.08.2022
+
+VA - Кайфуем Лето (2022) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ЕГОР ШИП - Наше имя знают все (3:01)
+02. IVAN VALEEV - Bye Bye (2:28)
+03. VAVAN, Galibri & Mavik - Сказочный десант (2:13)
+04. DZHARO - Привет маме (2:19)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:54:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9ADE1BF172B024E9CC87D716C64212B1EE5BF10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072600   (244146) от 13.11.2016
+
+VA - Top Baile Make It Work (2016) [MP3|270-320 Kbps] <R&B, Trap, Hip Hop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244146.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Nick Jonas ft Tove Lo - Close (Max Sanna & Steve Pitron Remix) 5:48
+002.Jonn Hart ft Dozay - Hurt Yo Body (Dirty) 3:29
+003.Mightyfools & Justin Prime - Zero Three Five 3:23
+004.Mightyfools - Ass Clap (Twerk / Dirty) 3:10(   Читать дальше...   )Жанр: R&B, Trap, Hip HopПродолжительность: 04:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749ABECD1BADFD75F8E0792CC59F5ECDE3D8CD49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072440   (244127) от 13.11.2016
+
+VA - Dance Project Club Hits (2016) [MP3|169~320 Kbps] <Eurodance, Nu Disco, Commercial, Hands Up, Club, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244127.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Dean Meets Bastian Basic - Music 4 Freedom (Extended Mix) 8:22
+002. Pulsedriver - Able to Love 3:16
+003. Teknova - Mistik (Iulian Florea Remix) 4:08
+004. DJ Kryst-OFF & Breaker - Go Insane (Original Edit) 4:08(   Читать дальше...   )Жанр: Eurodance, Nu Disco, Commercial, Hands Up, Club, DanceПродолжительность: 08:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1919578AEBBC2175AFB81C548493F04E8FB82D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1074228   (243994) от 19.11.2016
+
+VA - 100% Explode Dance Anthems (2016) [MP3|190-320 Kbps] <Electro-R&B, House, Revival и др.>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Lora - All Up To Maybe (Original Club Mix) 05:10
+02. Bedouin - Bufo (Original Mix) 08:38
+03. Bruno Mars - 24K Magic (Brain Purist Remix) (Instrumental) 07:05
+04. Dj Lora - All Up To Maybe (I Wont Pretend) (Original Club Mix) 06:05(   Читать дальше...   )Жанр: Electro-R&B, House, Revival и др,Продолжительность: 08:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAA65D4A3C393379368BC195BA6E3BF9F2D9C576
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622892   (243964) от 30.03.2023
+
+VA - Morning Chill & Relax 3 (2023) [MP3|320 Kbps] <Pop, Chillout, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masego - Tadow (8:06)
+02. Cristoph feat. FEMME - Alone (7:05)
+03. Aurosonic, Katty Heath - My Good Place (7:00)
+04. Nu Aspect, Jamis, Poppy Baskcomb - Miss You (5:17)(   Читать дальше...   )Жанр: Pop, Chillout, OtherПродолжительность: 03:25:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9415C35B397B2DEE0259F820EBFC61390A449FD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623441   (243607) от 01.04.2023
 
 VA - Новинки С Разных Популярных мп3 Сайтов ver. 125 (2023) [MP3|320 Kbps] <Club, Dance, Disco>
@@ -484,267 +745,6 @@ VA - Motivation Mix 4 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F101D97482EEF7900742ED295383E5D957D9057D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635355   (239899) от 25.05.2023
-
-VA - Alright Feelings Dances (2023) [MP3|320 Kbps] <Dance, Synthpop, Electro House, Hip-Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Collini / Tough Love - Love Goes (Extended Mix)
-02. Collini / Spooner Street - La Vida (Leonardo La Mark Remix)
-03. Collini / Titus1 & Travis Lydian & Andy Villa - Second Hand Love (Re-rub)
-04. Collini / Todd Terry, Tobtok & Richard Judge - All Of Me (Future Kings Extended Remix)(   Читать дальше...   )Жанр: Dance, Synthpop, Electro House, Hip-HopПродолжительность: 05:51:07 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D376098B52DA1792BBE1ADE31F04625101C26DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546030   (239795) от 23.04.2022
-
-VA - Жирные Хиты Весны Remix NNM (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta feat Akon - Sexy Bitch (M1eb & Sergey Hobs Remix) (4:15)
-02. Casanovy - I need your lovin' (Ayur Tsyrenov DFM remix) (4:08)
-03. Spiller feat. Sophie Ellis-Bextor - Groovejet (Ayur Tsyrenov DFM remix) (2:57)
-04. Delerium feat. Sarah McLachlan - Silence (Ayur Tsyrenov DFM remix) (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:42:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277837E24D331B63C0F2EF33094F032E663FA475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627617   (239382) от 19.04.2023
-
-VA - Music News vol.258 (2023) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_239382.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Chezara - Береги (02:56)
- 002. Alana O. - Время (03:30)
- 003. Albi - Like That (02:42)
- 004. Alethia - По Краю Луны (03:30)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 07:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43607C7455AB1E0F38936EBDB4C5DA83C0D60E39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080612   (238979) от 27.04.2022
-
-VA - I Love Ballads - Part XII (2016) [MP3|224 Kbps] <Rock, Pop, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darren Hayes - Insaliable
-02. Sade - No Ordinary Love
-03. Alliyah - I Care 4 You
-04. Notre Damme De Paris - Belle(   Читать дальше...   )Жанр: Rock, Pop, ChansonПродолжительность: 01:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0995565E7D53B066D70839D7FDBAF5747C646B61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080625   (238969) от 27.04.2022
-
-VA - Hits Disco and Pop Dance - Part VI (2016) [MP3|256 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E-Type - Set The World On Fire
-02. Sqeezer - Blue Jeans
-03. Steve Miller Band - Abracadabra
-04. Goombay Dance Band - Marrakesh(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EA0CA6770A082664DD7F750103C4B9F4BCC5A84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547481   (238691) от 28.04.2022
-
-VA - Не спи за баранкой 6 (Музыка в машину) (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soundwaves & REZarin - Monster (3:08)
-02. Lucky Luke x Gaullin - Whats Up! (2:27)
-03. Dani Corbalan - I'm Alive (3:03)
-04. Theodor Rosenberg, Cabuizee, Nadda Mercenary - I Want You (2:14)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909C74AD6312F02AA5DD0645AD84C0B7D1A373C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1628556   (238627) от 23.04.2023
-
-VA - The Official UK Top 100 Singles Chart 21.04.2023 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238627.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lewis Capaldi - Wish You The Best (3:29)
-002. Calvin Harris - Miracle (3:06)
-003. David Kushner - Daylight (3:32)
-004. Libianca - People (3:04)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:16:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD3DC684CD579DD058F70F2252B48AE417BD9A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1573165   (238351) от 30.08.2022
-
-VA - Solid Gold Hits (2022) [MP3|320 Kbps] <New Wave, Euro Disco, Rhythm & Blues, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Starship - Nothing's Gonna Stop Us Now
-02. Fleetwood Mac - Dreams (2018 Remaster)
-03. Red Hot Chili Peppers - Under the Bridge
-04. Faith Hill - This Kiss(   Читать дальше...   )Жанр: New Wave, Euro Disco, Rhythm & Blues, RockПродолжительность: 04:02:34 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FBDF26F135AB2783F415CC55404106A865D5284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548094   (237930) от 02.05.2022
-
-VA - Shazam Хит-парад World Top 200 Апрель (2022) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237930.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Harry Styles - As It Was (2:45)
-002. Camila Cabello, Ed Sheeran - Bam Bam (4:16)
-003. Nirvana - Something In The Way (3:51)
-004. Glass Animals - Heat Waves (3:55)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 11:43:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82DC1F20C25B199E81BC6276C10A9DDF6070551B
 ```
 
 https://mybot314.ru/tekegram_catalog/

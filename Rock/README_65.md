@@ -1,3 +1,32 @@
+###  Публикация: 1578287   (348162) от 22.09.2022
+
+Stratovarius - Enigma: Intermission II (2018) [OGG Vorbis|484 Kbps] <Rock, Power Metal, Ballad>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enigma
+02. Hunter
+03. Hollowed
+04. Burn Me Down(   Читать дальше...   )Жанр: Rock, Power Metal, BalladПродолжительность: 01:15:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4055A801266A687250634CF97BC271C2C211DC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1578201   (348160) от 22.09.2022
 
 Distant Mantra - Solitude Republic (2022) [MP3|320 Kbps] <Rock, Prog-Related>
@@ -713,35 +742,6 @@ Krystal Jyl And The Jacks - Krystal Jyl And The Jacks (2017) [MP3|320 Kbps] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7458AAF63858DAF54831D725A8DEB2AEDAEAE0D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579254   (339001) от 26.09.2022
-
-Def Leppard - On Through The Night (1980) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_339001.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Brigade	3:08
-02. Hello America	3:56
-03. Sorrow Is A Woman	3:56
-04. It Could Be You	2:33(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:44:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB74A4FA49D5C59C0117032FB423549D7E6916C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

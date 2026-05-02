@@ -1,3 +1,119 @@
+###  Публикация: 1619994   (235199) от 19.03.2023
+
+Godless Descent - Hazy Path of Doom (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Book of Vile Darkness [00:08:41]
+02. 24-7 Doom [00:06:18]
+03. Desert Storm [00:04:31]
+04. Hazy Path of Doom [00:11:51](   Читать дальше...   )Жанр: Heavy Rock, Stoner, DoomПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A646962D23C7C79AEF417DDC4F889B921712F31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620251   (235129) от 19.03.2023
+
+Convoy - Some Gave All for Rock n Roll (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Nuthn Left
+02 - Let It Roll
+03 - Almost Lost My Mind
+04 - Hero(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F2FC2A68BA0105537CF65C555C89A29539DF8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620021   (235046) от 19.03.2023
+
+Stargazer - Life Will Never Be the Same (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can You Conceive It [00:03:48]
+02. Live My Dream [00:05:10]
+03. Rock The Sky [00:06:03]
+04. Live Today [00:03:48](   Читать дальше...   )Жанр: Melodic Heavy Metal, Hard RockПродолжительность: 00:52:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4607F6C0F12F701F6F466206D69EC230B02013C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632752   (235042) от 11.05.2023
+
+Alice Cooper - Three Temptations From Alice (2021) 2xCD [FLAC|Lossless|image + .cue] <Hard Rock, Glam-Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_235042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc One:
+1989 - Trash:
+01. Poison
+02. Spark In The Dark(   Читать дальше...   )Жанр: Hard Rock, Glam-Metal, Heavy MetalПродолжительность: 02:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6EF2C47BED5B3AD5465FBBB70B2D01F6A6BAC17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1539597   (234943) от 27.03.2022
 
 Perpetual Etude - Now Is The Time (2021) [FLAC|Lossless|image + .cue] <Hard Rock, Melodic Metal>
@@ -629,122 +745,6 @@ Alunah - Strange Machine (2022) [FLAC|Lossless|WEB-DL|tracks] <Stoner Hard Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC5FFC468D4AFAAB284C1058A412F453E007F66C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640048   (234367) от 15.06.2023
-
-The Defiants - Drive (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Life (4:38)
-02. Go Big Or Go Home (4:04)
-03. 19 Summertime (4:39)
-04. What Are We Waiting For (4:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6740E2B286EA851CBFF0F774449C238D44CD8664
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640040   (234315) от 15.06.2023
-
-Joe Perry - Sweetzerland Manifesto MKII (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234315.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Robinson -- Fortunate One (3:06)
-02. Gary Cherone -- Quake (3:41)
-03. Terry Reid -- I'll Do Happiness (3:39)
-04. Robin Zander -- Aye, Aye, Aye (4:15)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BDB40386E79F884BD9343028B39680F0A1D006B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544376   (234291) от 16.04.2022
-
-Ronnie Romero - Raised On Radio (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234291.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sin's A Good Man's Brother (Grand Funk Railroad)
-02. Backstreet Love Affair (Survivor)
-03. No Smoke Without a Fire (Bad Company)
-04. I Was Born To Love You (Queen)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:671E9003FD165F2FE1FB0E7C1D9B4CFE78F6ADA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644092   (234140) от 04.07.2023
-
-Winger - Seven (2023) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Proud Desperado (3:50)
-02. Heaven’s Falling (5:15)
-03. Tears of Blood (5:04)
-04. Resurrect Me (4:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D0DF5965B3E3A541559DB67A69C49887D215616
 ```
 
 https://mybot314.ru/tekegram_catalog/

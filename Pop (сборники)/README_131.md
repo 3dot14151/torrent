@@ -1,3 +1,119 @@
+###  Публикация: 1818888   (1973) от 19.09.2025
+
+Reyvi - Favorites Collection Part 5 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Run
+ 02 - You Again
+ 03 - Love is Stronger
+ 04 - In the Rain(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 00:18:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F114EC9EB480812B3064191C71BC54FC3302A23B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819574   (1184) от 24.09.2025
+
+Amanda Lear - Premium Playlist (1976-2011) [MP3|320 Kbps] <Pop, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alligator {I'am A Photograph, 1977-2}.mp3
+02. Alphabet (Prelude In C By J.S. Bach) {The Collection, 1998}.mp3
+03. Alter Ego (Part 2) {Greatest Hits, 2003}.mp3
+04. Always On My Mind (Psychology Mix) {Brief Encounters Reloaded, 2010}.mp3(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 06:27:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B2F5EB0D574B6D750C3C1E39C1B9312BE7F14F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1818887   (1182) от 24.09.2025
+
+VA - National Pop Dance Music - Premium Playlist [!!, nr, a] (2020-2025) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1182.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. #Mallorcadassindwir - Mallorca Das Sind Wir.mp3
+002. (Dis)Amore - Conta Su Di Me.mp3
+003. (G)I-Dle - Oh My God.mp3
+004. 1Tak - I Don't.mp3(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 25:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D603D4AC97B14318A5E4C3D6A3724C6EDC08FFE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819584   (1170) от 24.09.2025
+
+Giorgio Moroder - Premium Playlist (1968-2018) [MP3|320 Kbps] <Euro Disco, Electronic Dance Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1170.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 74 is the New 24 {Deja Vu (Jap Ed), 2015}.mp3
+002. A Whiter shade of pale - Munich Machine {Giorgio Moroder & Co - Greatest Hits, 1996}.mp3
+003. Another Way (Instrumental) {Another Way, 1988}.mp3
+004. Another Way {Another Way, 1988}.mp3(   Читать дальше...   )Жанр: Euro Disco, Electronic Dance MusicПродолжительность: 10:10:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F92D6ED05DAEFCB59C75DB1A33E7AE6B3E234721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819585   (1138) от 24.09.2025
 
 Otros Aires - Premium Playlist (2005-2017) [MP3|320 Kbps] <Electronic Tango, Tango Nuevo>

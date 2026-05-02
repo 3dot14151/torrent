@@ -1,3 +1,119 @@
+###  Публикация: 1036164   (620917) от 20.07.2016
+
+Gary Moore - Still Got The Blues (1990) Remastered, Reissue 2002, Japan [FLAC|Lossless|image + .cue] <Hard Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moving On 02:39
+02. Oh Pretty Woman 04:25
+03. Walking By Myself 02:56
+04. Still Got The Blues 06:12(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 01:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9C8CE180F117A0EE74FC67A76EE6C5A19BCDBA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145586   (619987) от 26.06.2017
+
+Arc Angels - Arc Angels (1992) [APE|Lossless|image + .cue] <Hard Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living In A Dream 04:52
+02. Paradise Cafe 05:14
+03. Sent By Angels 05:44
+04. Sweet Nadine 04:31(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:00:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D85F68793349079C22FABAC474518EE0C453E8BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910970   (619966) от 21.06.2015
+
+Brian Johnson & Geordie - Keep On Rocking! (1989) [FLAC|image +.cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep On Rocking (3:19)
+02. Can You Do It (4:33)
+03. Black Cat (4:17)
+04. Natural Born Loser (3:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3486E5966C65AD1F709C129A809B0D578CEB652
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 684563   (619745) от 28.07.2013
+
+Sammy Hagar - 4 альбома (1981-1987) Mini LP SHM-CD /2013, Universal Music Japan/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_619745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When The Hammer Falls (4:10)
+02. Hands And Knees (4:50)
+03. Give To Live (4:24)
+04. Boys' Night Out (3:19)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 00:45:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036127   (619154) от 21.07.2016
 
 Baby Animals - Baby Animals (1991) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -629,122 +745,6 @@ Bonfire - 29 Golden Bullets: The Very Best Of Bonfire (2001) 2CD, Compilation [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AAFDB62D5E55A8FAAF027AC00C79E6AA1A396D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038486   (605054) от 29.07.2016
-
-Alaska - The Pack (1985) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_605054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run With The Pack (03:50)
-02. Woman Like You (03:37)
-03. Where Did They Go (Bonneville Blues) (04:41)
-04. Schoolgirl (05:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30213C996ED372233B215AAF221DADDF1DD465B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546627   (604493) от 25.04.2022
-
-Riot Act - Closer To The Flame (2022) 2CD Digipack, Global Rock Records  [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604493.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rock City (03:43)
-2. 49er (05:40)
-3. Swords and Tequila (03:46)
-4. Overdrive (04:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 1:27:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2EAD4FAF7352F2B56F1C83C98EA857A19140528
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148003   (604303) от 05.07.2017
-
-Cheap Trick - We're All Alright! (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01/13. You Got It Going On (3:11)
- 02/13. Long Time Coming (3:12)
- 03/13. Nowhere (2:45)
- 04/13. Radio Lover (2:47)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:093597FCB76D11B4C05825CD7F9A3DBB924BD704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297285   (604068) от 22.04.2019
-
-A Caustic Fate - Chromatic (2019) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Revenant (4:41)
-02 - Sticks & Stones (3:25)
-03 - Resistance (3:39)
-04 - House of Cards (4:54)(   Читать дальше...   )Жанр: Post-HardcoreПродолжительность: 00:42:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD11F8B28948FF910647CFC2113719DB3364E646
 ```
 
 https://mybot314.ru/tekegram_catalog/

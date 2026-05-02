@@ -1,3 +1,61 @@
+###  Публикация: 939836   (473584) от 22.09.2015
+
+VA - Herbst Chillout (2015) [MP3|320 кб/с]<Electronic, Downtempo, Lounge, Chill Out, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Turn Back Time (Chill Version) - Dreaming Way feat. Angel Falls
+02. Happy Hour (Cut Version) - Karim Le Mec
+03. Not Worry (Cut Version) - Devillas
+04. Wolken im Wind - Thomas Sopper & Herr Schmidt(   Читать дальше...   )Жанр: Electronic, Downtempo, Lounge, Chill Out, AmbientПродолжительность: 03:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:496DC8ED7C70DBAE77839CEB06A7DBF17F125AC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939893   (473580) от 22.09.2015
+
+VA - Chill Cakes Vol 1 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Limitless Wave - Hope - Original Mix
+02. Taigai - Sleep Alone - Original Mix
+03. Tom Strobe - Lost in Dreams - Original Mix
+04. Autumn Storm - Pink Clouds - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05687CFBCE4A04F1841293B1E993FF17B6D17CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 939816   (473579) от 22.09.2015
 
 VA - Wait For Your Heart (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -708,64 +766,6 @@ VA - Extra Trance (episode 7) (2015) [MP3|320 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA95E02E8561A2429C148CA05DBA4408E9092CE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1058487   (469051) от 01.10.2016
-
-VA - Extra Trance: Bonus [09] (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex M.O.R.P.H & Paul van Dyk - We Are (7:20)
-02. Armin Van Buuren feat. Justine Suissa - Burned With Desire (LTN Sunrise Remix) (3:31)
-03. Denis Kenzo & Cari - Save Me (5:53)
-04. Edelways - Deep Blue (Extended Mix) (6:53)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:03:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA313E3AD504ECA2131A97319C42DCDD9A80CAEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940441   (468956) от 24.09.2015
-
-VA - Electro Life 39 (by ZiP)(2015) [MP3|320 kbps]<Electro House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Kunnari - Helsinki (Marcus Maison & Will Dragen Remix)
-02. Alpharock & Vida - Knives (Original Mix)
-03. Amir Afargan ft. Katty Heath - Above The Clouds (Original Mix)
-04. Benny Benassi ft. Alizee - I'm Not Twenty (Jai Pas Vingt Ans)(   Читать дальше...   )Жанр: Electro House, House, Progressive House, Dubstep, TranceПродолжительность: 02:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19286E802471796EFF5F230570A89ED081CAF5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

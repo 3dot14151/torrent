@@ -1,3 +1,61 @@
+###  Публикация: 1035368   (626655) от 17.07.2016
+
+Second Breath - Unknown Bands Vol.10 (2016) [MP3|32 - 320 Kbps] <Alt.Metal, Alt.Rock, Modern Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 10 Car Pile-Up - Streets Ahead
+02. Red Eye Rising - Never Again
+03. Tungsten Wake - Mind Your Time
+04. Death & Desire - The Let Down(   Читать дальше...   )Жанр: Alt.Metal, Alt.Rock, Modern Hard RockПродолжительность: 02:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D4C2D17432A894F077307DEF4D31BA7F13447DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035465   (626596) от 17.07.2016
+
+VA - Are You Ready? (Vol.23) (2016) [MP3|128 - 320 Kbps] <Nu Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626596.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Of Mice And Men - Pain
+02 - Averse To The End - Bombs Away
+03 - Viletongue - Paynekiller
+04 - Red Queen - Asyphyx(   Читать дальше...   )Жанр: Nu MetalПродолжительность: 02:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78EBBBC6CA27B3F6162A6DB37538CAB85E084CEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543418   (625787) от 13.04.2022
 
 VA - Svanrenne Music: Russian Subterranean Doom Metal (2022) [MP3|320 Kbps] <Doom Metal>
@@ -693,64 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:906B80B206E0806E67179E91FFD417F888C157AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548627   (596260) от 04.05.2022
-
-VA - NDH 1  [MP3|192-320 Kbps] <NDH, Industrial Metal, Gothic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596260.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Stahlmann - Vom Himmel Verloren (4:02)
-2. Hamatom - Zeit fur neue Hymnen (3:49)
-3. OOMPH! - Alles Aus Liebe (3:39)
-4. Rammstein - Deutschland (5:23)(   Читать дальше...   )Жанр: NDH, Industrial Metal, Gothic MetalПродолжительность: 03:20:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18E4294175230EA8F00BF05B07EEE2E5AC87057
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548988   (594984) от 05.05.2022
-
-VA - NDH 3 (2022) [MP3|112-320 Kbps] <NDH, Industrial Metal, Gothic Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594984.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Staub - Leben (4:55)
-2. Apryl - In Frieden Ruhn (3:56)
-3. Inception Of Eternity - The Age of Warlords (4:11)
-4. Weissglut - Unter deiner Asche (4:50)(   Читать дальше...   )Жанр: NDH, Industrial Metal, Gothic MetalПродолжительность: 03:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BC15EC4A638ABD0E3D5D909C0AE5E7801CB0FA4
 ```
 
 https://mybot314.ru/tekegram_catalog/

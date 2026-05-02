@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1866507   (1066304) от 21.04.2026
+
+Tyler Bates & Joel J. Richard - John Wick: Chapter 4 (2023) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyler Bates - Big Wick Energy (1:48)
+02. Lola Colette - Nowhere to Run (2:54)
+03. Tyler Bates - Sand Wick (2:30)
+04. Tyler Bates - Change Your Nature (1:47)(   Читать дальше...   )Жанр: OSTПродолжительность: 01:37:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:060138B3A3DB1703D191736EE36A106B1BA0BBA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866526   (1066299) от 21.04.2026
+
+Raymond Wong - Shaolin Soccer (Убойный футбол) (2001) [MP3|320 Kbps] <OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066299.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Opening (1:44)
+2. Kung-fu  (3:49)
+3. Refrigerator (1:57)
+4. Making Buns (1:42)(   Читать дальше...   )Жанр: OSTПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0AE75D0324869831C89F16C47E6A5298CE32AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1853569   (1056800) от 13.02.2026
 
 VA - RC Cars (Недетские гонки) OST (2002) Оригинальные саундтреки [MP3|192 Kbps] <metal,Hard>
@@ -702,64 +760,6 @@ Sonya Belousova, Giona Ostinelli - The Witcher / Ведьмак (Music from the 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ECF648C077CEA0BCFAC4997BCD2A10D1728F5773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356229   (980356) от 29.01.2020
-
-Lorne Balfe, VA - Bad Boys for Life / Плохие парни навсегда (Original Score + The Soundtrack) (2020) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meek Mill & Farruko - Uptown II (02:54)
-02. City Girls - Money Fight (02:38)
-03. The Black Eyed Peas & J Balvin - RITMO (Bad Boys For Life) (03:41)
-04. Rick Ross & Bryson Tiller - Future Bright (02:58)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBDBADB4D60D5DE04006C74FDD34CBC9B222DB84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973429   (980258) от 08.01.2016
-
-Bennett Salvay - Peaceful Warrior / Мирный воин (Original Motion Picture Score) (2007) [MP3|320 кб/с] <Soundtrack, Music, New Age>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980258.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gas Station In The Fog (1:32)
-02. Socrates On The Roof (1:01)
-03. "If You Don't Make The Team..." (0:41)
-04. An Unexpected Visit (1:25)(   Читать дальше...   )Жанр: Soundtrack, Music, New AgeПродолжительность: 00:51:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2DF0453FCC01355CCB306833681D6AB5D4BD60A
 ```
 
 https://mybot314.ru/tekegram_catalog/

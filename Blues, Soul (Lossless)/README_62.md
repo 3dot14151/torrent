@@ -1,3 +1,119 @@
+###  Публикация: 1053808   (524353) от 18.09.2016
+
+Neal Black & Larry Garner - Guilty Saints (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God Today   [04:24]
+02. Guilty   [04:41]
+03. A Friend Like You   [03:52]
+04. Saints Of New Orleans   [05:09](   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12C5975C3E5C64EDA2815355CF678848287E9FEB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1053775   (524266) от 18.09.2016
+
+Rocky Athas - Let My Guitar Do The Talking... With My Friends (2014) [FLAC|Lossless|tracks + .cue] <Blues Rock, Guitar Instrumental>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Think About It   [03:38]
+02. To My Friend   [04:52]
+03. D Boogie   [04:04]
+04. On the Move   [04:25](   Читать дальше...   )Жанр: Blues Rock, Guitar InstrumentalПродолжительность: 00:39:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7543D29FE161494F1DD2C9E479BA1B8BA500269D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559791   (522773) от 27.06.2022
+
+Digging Roots - Zhawenim (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Calls Me (3:55)
+02. Tall Grass (3:54)
+03. The Healer (3:53)
+04. SKODEN (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F24B127CDB30052061F32D213BE45FB054F7C7C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559802   (522661) от 27.06.2022
+
+G. Love & Special Sauce - Philadelphia Mississippi (2022) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love from Philly (feat. Schoolly D & Chuck Treece) (4:43)
+02. Mississippi (feat. Alvin Youngblood Hart, R.L. Boyce & Speech) (4:01)
+03. My Ball (feat. Freddie Foxxx & Jontavious Willis) (4:19)
+04. Guitar Man (feat. Christone "Kingfish" Ingram) (3:06)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:47:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDE1AA55CA757F752771748A3B1CDC1BC1A25F00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1559714   (522660) от 27.06.2022
 
 Supersonic Blues Machine - Voodoo Nation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -647,128 +763,6 @@ Vaneese Thomas - Fight the Good Fight (2022) [FLAC|Lossless|WEB-DL|tracks] <Blue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9165A99A521868510BD5CFC05CC69E0A471A86C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1561848   (513617) от 06.07.2022
-
-Janiva Magness - Hard to Kill (2022) [FLAC|Lossless|tracks + .cue] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Strong as Steel (00:04:09)
-02 - The Last Time (00:04:34)
-03 - Don't You Forget About Me (00:03:27)
-04 - Fireman (00:03:27)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA77C37A544EFDF680CD4B7EBAC89E94028273F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538786   (508589) от 24.08.2012
-
-Mick Martin & The Blues Rockers - Blues Rock U. S. A. (2002) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Got To Play the Blues [03:43]
-02. Blues All Night [04:31]
-03. Backseat Boogie [02:26]
-04. Takin' My Time [05:35]
-05. I Can't Get Enough [04:04]
-06. Pick Up Baby [06:37]
-07. Baby's Coming Home for Christmas [03:46]
-08. Find That Girl [03:55]
-09. High-Heel Baby [04:58]
-10. Wonderful World [04:46](   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:13:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562610   (508068) от 10.07.2022
-
-Tony Testa - Back To The Basics (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Green Onions (00:04:16)
-02 - Singin' The Blues (00:05:32)
-03 - Mannish Boy (00:07:17)
-04 - Boom Boom (00:05:13)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FC218061ABB095B1E3E54C7817AB6EAF5C38296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316294   (507752) от 24.07.2019
-
-John Mayall - Jazz Blues Fusion (1972) Reissue, 2015, PolyGram Records Inc. [FLAC|Lossless|WEB-DL|tracks] <Jazz, Rock, Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_507752.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Road (6:55)
-02. Messin' Around (2:40)
-03. Good Times Boogie (8:20)
-04. Change Your Ways (3:25)(   Читать дальше...   )Жанр: Jazz, Rock, Blues, Blues RockПродолжительность: 00:42:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB8358321E844F0E51387C0728B7C996D2FAA5E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

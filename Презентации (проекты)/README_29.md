@@ -1,3 +1,55 @@
+###  Публикация: 1033770   (635700) от 12.07.2016
+
+Проекты - VideoHive - Awards Ceremony Package - 11779403 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635700.jpg" />
+</div>
+
+
+###  Подробнее
+
+Awards Ceremony Package - создайте свою церемонию награждения с этим блистательным пакетом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3977EFBCCFF299426A1858FA1DDC3B9E155C558
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033589   (635691) от 12.07.2016
+
+Проекты - VideoHive - Party Music Event [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Party Music Event - проект для презентации музыкальных событий в социальных сетях.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBCBE7D34E3AB9AEDA3D8EDA26D96457390733AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1034325   (633940) от 13.07.2016
 
 Проекты - VideoHive - Industrial Robot - 757308 [AEP]
@@ -631,58 +683,6 @@ VideoHive - Broadcast Design News Package Mikka III - 3427565 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E2F26317FEDEE4EB922EADF63A144D1938F7E93F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037697   (611769) от 25.07.2016
-
-Проекты - VideoHive - Sundance TV Rebrand - 10529004 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611769.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sundance TV Rebrand -  является универсальным широковещательным пакетом с 37 редактируемыми элементами. Выражения (Expressions) устанавливаются для каждой секции, так что вы можете изменить цветовые схемы, и накладываемые текстуры все на одном слое.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ED099A4485E2DBB768B0D1F3CD8AAB2E24CD285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037699   (611675) от 25.07.2016
-
-Проекты - VideoHive - Trendy Fashion - 8100040 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611675.jpg" />
-</div>
-
-
-###  Подробнее
-
-Trendy Fashion - сверхсовременный модный проект с чистым, простым дизайном, который подойдет для любого вида шоу или презентации, портфолио, моды, события, акции, концерта, корпоративов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7129F306137751AAA79F1A33C23267E79768407F
 ```
 
 https://mybot314.ru/tekegram_catalog/

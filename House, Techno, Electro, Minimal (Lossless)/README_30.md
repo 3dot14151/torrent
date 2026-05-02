@@ -1,3 +1,32 @@
+###  Публикация: 1028807   (686647) от 24.06.2016
+
+Roger Shah - Magic Island - Music for Balearic People, Vol. 7 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Trance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Laruso & John James Renfrow - Holding Closer (Intro Mix) [5:22]
+02. Rogier Dulac & Miss Autumn Leaves - Endless Dream (Original Mix) [5:08]
+03. Brian Laruso - The Way (Original Mix) [5:38]
+04. Raul Pablo Sanchez - Day Out (Original Mix) [6:53](   Читать дальше...   )Жанр: Deep House, TranceПродолжительность: 06:23:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E42583E405AB9C9F7FBB13FFBFF8C27E906D0D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1222446   (685306) от 29.04.2018
 
 VA - Spring Tube Journey. UK (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Chill House>
@@ -709,34 +738,6 @@ Damian Lazarus & The Ancient Moons - Heart Of Sky (2018) [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4B623D9AB217F4F04D863E6B902E19422BF006C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1030772   (672412) от 01.07.2016
-
-Phon.O - Fractions EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Techno, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (06:31)
-02. Brooklyn Shuffle (05:03)
-03. Fractions (06:19)Жанр: Techno, HouseПродолжительность: 00:17:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F31565237194182AEDC692D5EEF3221FA8C757B
 ```
 
 https://mybot314.ru/tekegram_catalog/

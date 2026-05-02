@@ -1,3 +1,61 @@
+###  Публикация: 1519296   (148410) от 24.12.2021
+
+VA - SVS Collection vol. 8 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro House, Disco House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148410.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A-Mase, Da Buzz - Without You
+002. A-Mase, Sharliz - Sky (Extended Mix)
+003. A-Mase, Sharliz - This Summer I'm Alone
+004. A-Sirr - Come With Me(   Читать дальше...   )Жанр: Deep House, Electro House, Disco House, OtherПродолжительность: 13.19.27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A600CADADC2901AFE9AA339675E79B73254102CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 969334   (147799) от 27.12.2015
+
+1000Dayswasted - This Darkness (2015) [MP3|320 кб/с] <Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147799.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 1000DaysWasted & The Early Reflector - This Darkness (Intro) (1:09)
+2. The Reckoning (4:34)
+3. Dark Solace (5:16)
+4. Night On My Mind (3:55)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99624F070A065F3CE0D44603A351AD17A166920E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969653   (147715) от 27.12.2015
 
 VA - Goa (2015) [MP3|320 кб/с] <Progressive, Trance>
@@ -693,64 +751,6 @@ VA - Chillout Power (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2E3A1A1AD0FB0613F14A27E96339226DFF65BF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520307   (143818) от 27.12.2021
-
-VA - Beatport Electro House: Sound Pack #383 (2021) [MP3|320 Kbps] <Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143818.jpg" />
-</div>
-
-
-###  Подробнее
-
-Beatport постоянно находятся в поисках общего языка с аудиторией во всём мире и в канун уходящего года зарядили очередной 383-й релиз отличного Electro House! Эта великолепная коллекция представляет собой комбинацию самых лучших треков электронной музыки со всего света.001. Omar Fayyad - Recycle Your Love
-002. Ewan Rill - Fluid Dynamics
-003. Xandl - The Reason
-004. Lil D X Nm - I'm Gonna Fly(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 12:35:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6517BCF6AA6441346E7C55469B4CB31B7685268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1520301   (143798) от 27.12.2021
-
-VA - Beatport Deep House: Sound Pack #385 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143798.jpg" />
-</div>
-
-
-###  Подробнее
-
-За окном холод и зима уже у двери, а музыка 385-го релиза от Beatport вновь напомнит о минувшем лете, жарком солнышке и ласковом море, бессонных ночах на танцполах и времени проводимого в кругу друзей. Самые лучшие хиты клубной музыки дарит Вам свежий микс , чтобы вновь подарить воспоминания о лучших днях и ночах прошедшего лета001. T Markakis - Gonna Be Alright
-002. Pedro Capelossi - Haute Couture
-003. Viel, Madraas - Omnes
-004. Thulane Da Producer - Stones(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:08:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:864CF03723F42A09B36840DC6BA0035300F075CE
 ```
 
 https://mybot314.ru/tekegram_catalog/

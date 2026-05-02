@@ -1,3 +1,61 @@
+###  Публикация: 331898   (1001252) от 13.01.2020
+
+Existence - Like A Shot Through My Heart (2004) [FLAC|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001252.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Existence Means Harmony (4:45)
+2. First Nations Flute Prayer (5:06)
+3. Like A Shot Through The Heart (4:35)
+4. Sacrificed (4:52)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E410186BDE3A22EAC5149B2C27B1E3990AB4A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 134705   (1000731) от 15.01.2020
+
+Sacred Spirit (Claus Zundel) 11 альбомов (1994 - 2003) [APE|lossless|image +.cue] <New Age, Ethnic, Electronic>
+
+>>След.
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000731.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Sacred Spirit» — музыкальный проект Клауса Цунделя, Ральфа Хамма и Маркуса Стааба, исполняющий музыку в жанрах электронной и этнической музыки, нью-эйдж и эмбиент. По оценкам, общий объём продаж альбомов «Sacred Spirit» составляет более 15 миллионов экземпляров. С каждого проданного альбома делаются пожертвования в «Фонд коренных народов Америки»(«Native American (   Читать дальше...   )Список альбомов:
+1994 Vol.1 Chants & Dances of the Native Americans
+1997 Vol.2 Indigo Spirit
+1997 Divine Works (Sountrack to the new millenium)(   Читать дальше...   )Жанр: New Age, Ethnic, ElectronicПродолжительность: 09:26:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D03092DB19B5F31183E943C15740803F0643EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 608553   (993423) от 25.01.2013
 
 V.A. - Chill n' Brazil (2008) [FLAC|Lossless]<Bossa, Chillout, Lounge>
@@ -697,64 +755,6 @@ Finvarra - Finvarra (2013) [FLAC|Lossless|tracks + .cue] <Folk, World, Country, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C129CE82B254DC37528CC016CBC9723F6193A47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011637   (794570) от 30.04.2016
-
-SunSquabi - Odyssey (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic Hydro Funk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SquabCat
-02. Odyssey (feat. GRiZ)
-03. Pablito
-04. After The Rain(   Читать дальше...   )Жанр: Electronic Hydro FunkПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB3D8F6E77A360017A1B86FA38D0B71834C739CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201852   (791441) от 26.01.2018
-
-Khruangbin - Con Todo El Mundo (2018) [FLAC|Lossless|WEB-DL|tracks] <Funk / Soul, Folk, World, & Country>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cómo Me Quieres (3:45)
-02. Lady and Man (4:18)
-03. Maria También (3:11)
-04. August 10 (4:25)(   Читать дальше...   )Жанр: Funk / Soul, Folk, World, & CountryПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CA93F6F11CAEFCDDCBBAFB6EC7D0551665966AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

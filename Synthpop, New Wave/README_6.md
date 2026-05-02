@@ -1,3 +1,32 @@
+###  Публикация: 1041966   (580458) от 11.08.2016
+
+Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580458.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1993 - 1999
+2007 - In London
+2011 - From The Beginning(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 02:33:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1D044395DE80D5D7C712430D2CFDDD5C91CD1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 921745   (573594) от 26.07.2015
 
 Jean-Michel Jarre - Remix EP [1] (2015) [MP3|320 кб/с]<Electronic, Ambient, Synth-pop>
@@ -716,35 +745,6 @@ Gunship - Gunship (2015) [MP3|320 кб/с]<Electronic, Synthwave, Dreamwav>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F9C2C492DAFC7BE20E053117EE46D0388A48E91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316540   (505160) от 27.07.2019
-
-Profil - Profil (серия "Другие восьмидесятые") (1982) CD, Album, Remastered, 2016, Genetic Music [MP3|320 Kbps] <NDW, New Wave, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beruhren (Single Version)
-02. 1964
-03. Schwimmen im Geld
-04. Regennacht(   Читать дальше...   )Жанр: NDW, New Wave, Synth-popПродолжительность: 00:53:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0B061053D5F1ED537BE9862FCCE70CF4B1AAC66
 ```
 
 https://mybot314.ru/tekegram_catalog/

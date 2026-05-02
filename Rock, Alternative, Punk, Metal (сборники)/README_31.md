@@ -1,3 +1,61 @@
+###  Публикация: 1409588   (443266) от 18.09.2020
+
+VA - Panopticum: Punk Rock Compilation (2020) [MP3|320 Kbps] <Punk, Rock Punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443266.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Handguns - Constructive Criticism
+002. Academy Killer - Figure Me Out
+003. This Means War! - Off With Their Heads
+004. Riesa - Keihoviisu(   Читать дальше...   )Жанр: Punk, Rock PunkПродолжительность: 08:02:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF9F5537D2DE9F56ED8BFBB67E89D60D8B286E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 756777   (441808) от 06.10.2015
+
+VA - Top 1000 Classic Rock Songs of All Time (2011) [MP3|104-320 кб/с]<Classic Rock, Hard Rock, Metal>
+
+>>След.
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_441808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Led Zeppelin - Stairway To Heaven (8:03)
+02.Jimi Hendrix - Purple Haze (2:53)
+03.Foo Fighters - Learn To Fly (3:55)
+04.Lynyrd Skynyrd - Free Bird (9:05)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, MetalПродолжительность: 77:42:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:585804E60A23532FBAFE6E72FAEDC683DE85A50D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248701   (439815) от 21.09.2018
 
 VA - Ascension: Selection Of Melodic Hard Rock (2018) [MP3|320 Kbps] <Hard Rock>
@@ -690,64 +748,6 @@ VA - Highway to Yell (2022) [MP3|320 Kbps] <Rock, Hard Rock, Other>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0AF768C1A66A5AB360B971F2D0EA00CE2CF6D6CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251826   (413069) от 03.10.2018
-
-VA - Great Rock Collection (2018) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_413069.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Make Them Suffer - 27 Time
-002. The Longshot - Love Is For Losers
-003. Audiotopsy - What Am I
-004. The Isley Brothers - Total Destruction To Your Mind(   Читать дальше...   )Жанр: RockПродолжительность: 10:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FF6968E84DA61FF171B7A6C64AD69A7AEEE8E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325458   (412582) от 15.09.2019
-
-VA - Monarchs Of Oblivion: Rock Collection (2019) [MP3|320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412582.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Hail The Sun - Glass Half Empty
-002. Beak - Abbots Leigh
-003. Electric Citizen - Mother's Little Reject
-004. Ubikar - High Step(   Читать дальше...   )Жанр: RockПродолжительность: 11:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFE33B4A815CEE7F8C1AEC5555D7C35BE8CF89A
 ```
 
 https://mybot314.ru/tekegram_catalog/

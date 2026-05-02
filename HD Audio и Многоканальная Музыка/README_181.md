@@ -1,3 +1,177 @@
+###  Публикация: 1777594   (71012) от 06.02.2025
+
+Naima Quartet - Evergreen (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Empty Pool (3:51)
+02.  Samphire (7:04)
+03.  Riverman (6:08)
+04.  Ezéquiel Célada - Apple Tree (5:38)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:00:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:160A0756E4105CBEC09EFBA7017008D68386BF17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777543   (71010) от 06.02.2025
+
+Human Production Music & Jon Spanyol - New York Jazz (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  On Swing Street (3:30)
+02.  Unforgettable Christmas (2:41)
+03.  Lucky In Love (2:35)
+04.  Moving Day (2:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F3A94040495F24F472990B46C3C6A8EC9B09D72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777713   (71009) от 06.02.2025
+
+To Be or Not - Echoes of Answer (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Zen (4:39)
+02.  That Time Is Your Time (3:23)
+03.  Spin (3:22)
+04.  Why This Way (6:46)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76724FFDD5AEC79BF467FB56F80E931C35369BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777714   (71007) от 06.02.2025
+
+VA - Into the Holiday Groove - A Qobuz Exclusive (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Michael Wollny - Lady Madonna (4:14)
+02.  Tim Lefebvre - Tutto (5:12)
+03.  Joel Lyssarides - Stay Now (2:50)
+04.  Daniel García Trio - Gates to the Land of Wonders (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B70FFB3463D23A77ECFA1460BA14B63B20E8A530
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777626   (71005) от 06.02.2025
+
+Natia - The Album (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When I Fall in Love (3:12)
+02.  Sifter (6:13)
+03.  Don't Give Up (7:30)
+04.  That Girl (3:52)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:53:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:183BA2B0B4CFBACA211F6EF85D015303D4F2C538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1777719   (71004) от 06.02.2025
+
+Wild Love Tigress - On The Prowl (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Funk, Soul, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Don't Tread On Me (3:13)
+02.  Brown Baggin' (3:23)
+03.  I Plead the Fifth (4:53)
+04.  Ballad #001 (5:17)(   Читать дальше...   )Жанр: Funk, Soul, JazzПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16E4E93B244307CBE15517D32AFA1DB88E989DA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1777553   (70990) от 06.02.2025
 
 Jean-Maxime Pinta Quintet - For the Peace (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
@@ -568,181 +742,6 @@ Frank Sinatra - Sinatra Sings...Of Love And Things (2025) Remastered [FLAC 24/44
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A89E78EBC198F11ACF40C48975EF6C0808D415F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779231   (70735) от 12.02.2025
-
-LØLØ (LOLO) - falling for robots & wishing i was one (2024) Deluxe Edition, 2025, Hopeless Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 intro [00:00:55]
-02 omg [00:02:34]
-03 faceplant [00:02:42]
-04 2 of us [00:02:46](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:53:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:064FFAF17343E5892DD8298CDD071C95BF72AEB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779238   (70733) от 12.02.2025
-
-Miss Tess - Cher Reve (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Country, Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Louisiana (3:55)
-02.  Ride That Train (3:28)
-03.  Nobody Wins (3:27)
-04.  Lord, I Need Somebody Bad Tonight (4:07)(   Читать дальше...   )Жанр: Blues, Country, JazzПродолжительность: 00:34:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD0947CA95FBE36172EEA650F60D780421C42195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779219   (70713) от 12.02.2025
-
-Louis Philippson - Exposition (2025) (2CD) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70713.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Andante festivo (Arr. for Piano by Jan-Peter Klöpfel) (3:17)
-02.  Jasmine (2:39)
-03.  Wagner Rheingold Vorspiel Variation (From Rheingold, WWV 86a, Arr. for 2 Pianos by Jan-Peter Klöpfel) (2:32)
-04.  Ravel Bolero Variation (After Bolero, M. 81, Arr. for Piano by Tim Allhoff) (2:34)(   Читать дальше...   )Жанр: Classical
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110A992B678D1A8ABBBE70551836E9E361AF874C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779527   (70670) от 13.02.2025
-
-Carmen Consoli - Terra Ca Nun Senti (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70670.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Buttana di to ma - Canta e cunta (05:05)
- 02 - Masino (04:02)
- 03 - Fiori d'arancio (03:43)
- 04 - Il pendio dell'abbandono (03:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:506E9946CD5AD7583A4C7E290535AE5861855760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779533   (70666) от 13.02.2025
-
-Dynazty - Game of Faces (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy-Power Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call of the Night (3:35)
-02. Game of Faces (3:15)
-03. Devilry of Ecstasy (3:26)
-04. Die to Survive (3:58)(   Читать дальше...   )Жанр: Heavy-Power Metal, Hard RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDC1E0F6E1FBDB273256D262B598A48DF20EE676
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779618   (70639) от 14.02.2025
-
-Crazy Lixx - Thrill Of The Bite (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шведские хард-рокеры CRAZY LIXX выпустят новый студийный альбом “Thrill Of The Bite” 14 февраля 2025 года на лейбле Frontiers Music Srl.
-“Thrill Of The Bite” обещает поднять музыку CRAZY LIXX на новые высоты. На альбоме масса мощных гимнов, запоминающихся риффов и мелодий, зажигательных гитарных соло и могучей энергетики, которую фэны уже привыкли ждать от группы. (   Читать дальше...   )01.    Highway Hurricane  03:36
-02.    Who Said Rock N’ Roll Is Dead  03:02
-03.    Little Miss Dangerous  06:10
-04.    Call Of The Wild   04:14(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4583DDDAB3DDFC9B3566715980B0860BED5B984F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1096980   (917017) от 25.01.2017
+
+WinPE 10-8 Sergei Strelec (x86/x64/Native x86) 2017.01.25 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917017.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузочный диск на базе Windows 10 и 8 PE - для обслуживания компьютеров, работы с жесткими дисками и разделами, резервного копирования и восстановления дисков и разделов, диагностики компьютера, восстановления данных, антивирусной профилактики и установки ОС Windows.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB5924351B6145B6A924C69E365073F49565121
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989358   (917002) от 22.02.2016
 
 SRWare Iron 48.0.2550.1 DC 21.02.16 + Portable [Multi/Ru]
@@ -643,32 +669,6 @@ NonVisual Desktop Access (NVDA) — свободная с открытым ис�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2C0FBF84617C4EB3C19BE23D05ED250DD65455C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989333   (916427) от 22.02.2016
-
-Universal Media Server 6.1.0 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Universal Media Server программа, предоставляющая медиа-ресурсы (фотографии, аудио и видео файлы) Вашего компьютера другим UPnP (DLNA) устройствам в домашней сети, например, телевизорам Philips, Sony, Samsung, LG, Toshiba, игровым приставкам Sony Playstation 3, XBOX 360, медиа-плеерам WD TV Live, Popcorn Hour, Dune, Boxee Box, IconBit, ASUS O!Play, iPad/iPhone/iPod, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A91E50A88D68B2388A37E0DB45726A5B73E247
 ```
 
 https://mybot314.ru/tekegram_catalog/

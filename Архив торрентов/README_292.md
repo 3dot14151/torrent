@@ -1,3 +1,64 @@
+###  Публикация: 605529   (995926) от 19.01.2013
+
+[Wallpapers] vodopad
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995926.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представлены фотографии водопадов разных стран.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE21FE67E8E69353349D8A4DF667F92171011D77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605273   (995921) от 19.01.2013
+
+VA - 15 Top Trance Hits (2013-01) [MP3|320 кб/с]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W&W - Lift Off (Original Mix)
+ 02. Markus Schulz ft Ana Diaz - Nothing Without Me (Antillas & Dankann Club Mix)
+ 03. Planet Perfecto - Bullet In The Gun (Eddie Halliwell Remix)
+ 04. Emma Hewitt - Rewind (Mikkas Remix)
+ 05. Solarstone vs Scott Bond - 3rd Earth (Heatbeat Remix)
+ 06. Roger Shah ft Adrina Thorpe - Island (Antillas Club Mix)
+ 07. Tritonal vs Super8 & Tab - Arc (Radio Edit)
+ 08. Heatbeat - Chow Mein (Noah Neiman Remix)
+ 09. Yahel & Liya - Creatures (Paul Oakenfold Remix)
+ 10. RAM & Alex M.O.R.P.H. - Grotesque (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE23C3BC611F0A5B003FE08BCC9E5DAA3ED387BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605008   (995919) от 19.01.2013
 
 VA - Deep House Masters (2013) [MP3|320 кб/с]<Deep House>
@@ -691,67 +752,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:556FE057C3F7CAB65BAA0543ED5C951A92892636
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605026   (995808) от 19.01.2013
-
-Noisia - Devil May Cry (Original Game Soundtrack) (Bonus Version) (2013) [MP3|320 кб/с]<Drum & Bass, Dubstep, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crush Him
-02. Found
-03. Hunter Theme
-04. Home Truths
-05. Poison Theme
-06. Remember Us
-07. The Flood
-08. Disoriented
-09. Barbas Theme
-10. Secret World(   Читать дальше...   )Жанр: Drum & Bass, Dubstep, ElectronicПродолжительность: 01:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68B745C37EA49D6598E551CDDBA7AE4535589CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605285   (995805) от 19.01.2013
-
-Audacity 2.0.3 RC1 [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Audacity - свободный, простой в использовании звуковой редактор. Audacity можно использовать для записи звука, оцифровки аналоговых записей (кассет, грампластинок), редактирования файлов в форматах Ogg Vorbis, MP3 и WAV, физического редактирования нескольких файлов (вырезание, склейка, сведение), изменения скорости и высоты тона записи, и много чего ещё.Название программы: AudacityЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

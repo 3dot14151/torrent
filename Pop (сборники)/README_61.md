@@ -1,3 +1,119 @@
+###  Публикация: 1543999   (625531) от 13.04.2022
+
+VA - Relax FM for a Good Evening (2022) [MP3|320 Kbps] <Pop, Easy Listening>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625531.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. PARTYNEXTDOOR - Break from Toronto (2:58)
+02. SITHEA - Right My Wrongs (2:00)
+03. MAX, Ali Gatie - Butterflies (3:14)
+04. Khalid - Present (2:35)(   Читать дальше...   )Жанр: Pop, Easy ListeningПродолжительность: 02:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC82016E88BF087EBBF3EC38786CFFC23FE6C555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 909874   (625288) от 18.06.2015
+
+Жанна Фриске - Лучшие Песни (2015) [MP3|320 кб/с]<Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_625288.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанна Фриске российская эстрадная певица, телеведущая, киноактриса. Солистка группы «Блестящие» (1996—2003). Сольная карьера исполнительницы продолжалась 10 лет — с 2003 по 2013 год. Полтора последних года Жанна боролась с непобедимой болезнью. Однако она не сдалась и не сломалась. Она продолжала бороться, вселяя надежду в сердца тех, кто был так же на грани жизни (   Читать дальше...   )01. Где-то лето
+02. Малинки
+03. Жанна Фриске
+04. Мама Мария(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C1B558755568EF7392F49340F124858F72BFE31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1035890   (624378) от 18.07.2016
+
+VA - Любимая Музыка Для Твоей Тачки 50x50 (2016) [MP3|256 Kbps] <Рор>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624378.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dj Beatstone - Забыть
+002. Penthox - Give It Away
+003. K.Melody - Позвони
+004. Paper Man - Sopresa(   Читать дальше...   )Жанр: РорПродолжительность: 06:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98007D2278EE25F45CF0FA5A19FC33865FF01FEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295052   (624108) от 10.04.2019
+
+VA - German Top 100 Single Charts 15.04.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624108.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rammstein - DEUTSCHLAND
+002. Capital Bra - Cherry Lady
+003. Shindy - Affalterbach
+004. Eno - Blackberry Sky(   Читать дальше...   )Жанр: PopПродолжительность: 05:11:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44DA572F8806F45EEC542E949C5F5FAD6D98E7C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 522410   (622864) от 13.07.2012
 
 VA - Золотой Курортный Хит Сезона (2012) [MP3|256 кб/с]<Рор>
@@ -686,128 +802,6 @@ VA - Popular European Mix (2019) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05D85DD23F995C311770585732E049A014D3D4B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 523481   (614957) от 17.07.2012
-
-VA - Загорелые Хиты Лета! (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614957.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Фоксы и Бурановские бабушки - Европати по-мордовски (2:49)
- 2. Gabry Ponte Feat. Pitbull & Sophia Del Carmen - Beat On My Drum (EU Radio Edit) (3:44)
- 3. MC Zali & Fidel Wicked - Носом по кокосам (3:21)
- 4. Oceana - Endless Summer (Single Mix) (3:28)
- 5. Дилайс - Нежно-Нежно (3:27)
- 6. Mike De Ville - Amada Mia Amore Mio (2:50)
- 7. Пропаганда & MC Джимми - Хабиби (3:06)
- 8. Eleftheria Eleftheriou - Aphrodisiac (2:58)
- 9. Юрий Шатунов - А лето цвета (4:40)
- 10. Romano & Sapienza feat. Rodriguez - Tacata (3:28)(   Читать дальше...   )Жанр: PopПродолжительность: 05:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D3E13C9FE19DCAF3605010773C897BE382108DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295842   (614828) от 15.04.2019
-
-VA - Music for Car 14 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cleo - WRRRA 3:24
-02. KAZKA - CRY 3:44
-03. Calvin Harris & Rag'n'Bone Man - Giant 3:49
-04. The Bosshoss - Ayo 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 03:57:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C02F6EA8DAE3B2F521C890B6D42819AB07A6657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 911820   (614081) от 24.06.2015
-
-Madonna - Madonna's 40 Biggest Billboard Hits (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_614081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Like a Virgin (Like a Virgin)
- 02. Vogue (I'm Breathless)
- 03. Crazy For You (Vision Quest)
- 04. Take a Bow (Bedtime Stories)(   Читать дальше...   )Жанр: PopПродолжительность: 03:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E333AD4035461ADAFD3387586605547AD81B0B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037436   (613666) от 24.07.2016
-
-VA - Ballads for Lovers Vol.1 (2016) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Frankie Goes To Hollywood - The Power Of Love
-02. Stevie B. - Because I Love You (The Postman Song)
-03. Chris Rea - Ace Of Hearts
-04. Commodores - Nightshift(   Читать дальше...   )Жанр: PopПродолжительность: 02:18:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28BC0FEF1684031557BDE7967E99C3E154AF6D58
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1101225   (896423) от 06.02.2017
+
+Dolf De Vries Trio - Where's That Rainy Day (1986) Remaster, 2016, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.La Mer [04:20]
+ 02.You Make Me Feel Brandnew [04:01]
+ 03.Bernie's Tune [02:19]
+ 04.Comecar De Novo [03:39](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055CFE903DC703870FC1898BB69F4A10CE6E1A71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101226   (896422) от 06.02.2017
+
+Art Farmer & Fritz Pauer - Azure (1987) Soul Note[FLAC|Lossless|tracks + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.If You Could See Me Now [04:41]
+ 02.Nighttime [04:01]
+ 03.Yesterday's Thoughts [05:01]
+ 04.Blue Windows [03:23](   Читать дальше...   )Жанр: CoolПродолжительность: 00:40:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A73BABE56679EA0FE63B101F7B11BBB3F18A4E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1101274   (896219) от 06.02.2017
 
 Anna Maria Jopek & Gonzalo Rubalcaba - Minione (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Ingrid Lucia and the Flying Neutrinos - Hotel Child (2000) [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B7FE256CB8AB4738174A2F72E6542A16CDB71B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101579   (893144) от 08.02.2017
-
-Tom Scott - Reed My Lips (1994) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion, Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Upbeat 90s - 4:27
-02. Sarah, Sarah - 5:22
-03. Reed My Lips - 5:42
-04. Jungle Wave - 5:22(   Читать дальше...   )Жанр: Jazz, Fusion, Smooth JazzПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDCE0B0ABC79CE360107AC6E764AFD7489014010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101720   (893141) от 08.02.2017
-
-VA - Blue Moods: New Voices New Directions (1996) Blue Note[FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Dianne Reeves - Smile [04:16]
- 02.Holly Cole - (Looking For) The Heart Of Saturday Night [03:41]
- 03.Marisa Monte - O Ceu [03:38]
- 04.Cassandra Wilson - A Little Warm Death [05:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:30:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:194EF900297E0ADA07D461C56702FA2857CA5F7E
 ```
 
 https://mybot314.ru/tekegram_catalog/

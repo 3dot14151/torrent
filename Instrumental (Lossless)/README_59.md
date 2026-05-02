@@ -1,3 +1,137 @@
+###  Публикация: 1304560   (563974) от 26.05.2019
+
+Golden Gospel Singers - Glory, Glory, Hallelujah (Unknown) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Precious Lord (1:33)
+02. Oh When The Saints (1:44)
+03. Old Time Religion (1:24)
+04. Amen (1:03)(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 00:59:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D57469BA5EB0CD25346A5A2D236A366FD8DEB798
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530178   (563303) от 02.08.2012
+
+Awek - It's Rollin' (2010) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563303.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Rock
+02. I Cry All Day Long
+03. Play With Me
+04. You Think
+05. Hush Your Mouth
+06. Magic Night
+07. Walter's Mood
+08. Telephone Blues
+09. My Sleepy Girl
+10. Be A Good Man(   Читать дальше...   )Жанр: BluesПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530195   (563209) от 02.08.2012
+
+Barrence Whitfield - Raw,Raw,Rough! (2009) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563209.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Geronimo Stomp
+02. I Want Love and Affection Not the House of Correction
+03. Wear Your Red Dress
+04. I Can't Get No Ride
+05. One More Time
+06. Strychnine
+07. Kissing Tree
+08. Early Times
+09. Goin' to Jump and Shout
+10. Long Green(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 530202   (563072) от 02.08.2012
+
+Barbara Blue - Sell My Jewelry (2001) [APE|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_563072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trouble With A Capital 'T'
+02. Back By Popular Demand
+03. Tool Box Blues
+04. Don't Lead Me On
+05. Road Blues
+06. Can't Get Your Lovin' Off My Mind
+07. Sell My Jewelry
+08. From The Delta To The Golden Gate
+09. Cheatin' Blues
+10. Drunken Angel(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530219   (563062) от 02.08.2012
 
 Becca Langsford - Big Surprise (2011) [FLAC|Lossless]<Blues>
@@ -643,120 +777,6 @@ Carl Anderson - Heavy Weather Sunlight Again (1994) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2AF00AF53176AAD5B0F4597379B4CE25999A00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237214   (552412) от 23.07.2018
-
-Royal Southern Brotherhood - 5 альбомов (2012 - 2016) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock, Southern Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Royal Southern Brotherhood - американская блюзовая рок-группа. Когда вышел их дебютный альбом 8 мая 2012 года, банда состояла из певца и перкуссиониста Cyril Neville, вокалиста и гитариста Devon Allman, вокалиста и гитариста Mike Zito, барабанщика Yonrico Scott и басиста Charlie Wooton. Идею создания команды предложил Reuben Williams, менеджер одновременно и Allman, (   Читать дальше...   )2012 Royal Southern Brotherhood (RUF 1180)
-2013 Songs From The Road, Live In Germany (RUF 1194)
-2014 Heartsoulblood (RUF 1204)Жанр: Blues Rock, Southern RockПродолжительность: 04:56:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF67DE113E25368BC0E9AE967DC15687CD400FAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1237405   (552400) от 23.07.2018
-
-Simon McBride - 4 альбома (2008 - 2012) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Simon McBride (родился 9 апреля 1979 года, Белфаст, Северная Ирландия) - певец, автор песен, продюсер и гитарист. В десять лет McBride начал играть на гитаре. В возрасте 15 лет он выиграл организованный журналом "Guitarist Magazine" конкурс "Молодой гитарист года", проходивший  в конференц-центре "Уэмбли". Спустя несколько месяцев после (   Читать дальше...   )2008 - Rich Man Falling (NUG804)\
-2010 - Since Then (NUG1004)\
-2012 - Crossing The Line (NUG1203)\Жанр: Blues-RockПродолжительность: 03:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BAF2F01E114462ACF056DA006E199168173B1F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1309622   (550452) от 20.06.2019
-
-The Gospel Gold Singers - Gospel Gold (1999) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angels (3:42)
-02. The Warrior Is A Child (4:05)
-03. Just A Closer Walk With Thee (4:22)
-04. Will The Circle Be Unbroken (2:59)(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC987ACCBD76C6072362069A46C718B61A70232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1046873   (550355) от 29.08.2016
-
-Jim Suhler and Monkey Beat - Radio Mojo (1993) [APE|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where Were You When the Lights Went Outї  02:50
-02. Doncha Hang Around My Door  04:30
-03. Radio Mojo  03:31
-04. Devil's Hand  03:40(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D59506DDF3F3745F2AFEEC43B3DF1B1863C237
 ```
 
 https://mybot314.ru/tekegram_catalog/

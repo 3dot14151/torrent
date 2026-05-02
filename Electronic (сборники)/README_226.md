@@ -1,3 +1,61 @@
+###  Публикация: 1806529   (11594) от 13.07.2025
+
+VA - Compilation Part 173 Electronic (2025) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11594.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Imazee - Something True
+02 - Imran - I Couldn’t Breathe
+03 - Kasimoff - It’s My Life
+04 - Jumanov - Go(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DB4C05366B8C2CC92E6C7C4C9BB348B41C675D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807637   (10874) от 20.07.2025
+
+Dova Music - Favorites Collection (2025) [MP3|320 Kbps] <Electronic, Vocal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10874.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Your Name in My Dream
+02 - Alone
+03 - I Loved You
+04 - Midnight Mirage(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 01:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB34679BEBA106A972350BFA1F7885578DE78AFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1807937   (10791) от 21.07.2025
 
 Stive Morgan - Transformation Of Consciousness (2025) [MP3|320 Kbps] <Electronic>
@@ -689,64 +747,6 @@ Sardø - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0F21B747B9B2C08E8BE89F229189EA7BB37873B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816063   (4638) от 02.09.2025
-
-VA - Brisa (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Afro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Bad Bunny - Otra Noche En Miami (Roger Garcia Afro Mix)
-02-Backeer feat. Elline - Last Night (Original Mix)
-03-Andrey Exx - Happy Where I Am (Original Mix)
-04-Tuurk - Don't Phunk(   Читать дальше...   )Жанр: Club House, Afro HouseПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E2F4785FEA15C6EA3F63FBF6DD1A77CBA335BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816597   (4312) от 05.09.2025
-
-VA - Miss Monique & her friends (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4312.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. HILLS - Teardrops (2:12)
-002. Landau, Scity - Free Yourself (2:37)
-003. David Guetta, Sia, Miss Monique - Beautiful People - Miss Monique Remix (2:38)
-004. Landau, Eemoz - Get'Da (2:42)(   Читать дальше...   )Жанр: Progressive House, Melodic House & TechnoПродолжительность: 15:27:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C0A904EB693EB221A74EDFE7F8312C15F58843A
 ```
 
 https://mybot314.ru/tekegram_catalog/

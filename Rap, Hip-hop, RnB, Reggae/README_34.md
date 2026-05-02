@@ -1,90 +1,3 @@
-###  Публикация: 455279   (86241) от 03.04.2012
-
-Noize MC - 5 альбомов (2008-2012) [MP3|320 kbps]<Rap, Hip-Hop, Alternative>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_86241.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-The Greatest Hits Vol.1 (2008)
-OST Розыгрыш (2009)
-The Greatest Hits Vol.2 (2010)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 09:12:34 |
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456354   (78871) от 27.02.2012
-
-Влади (Каста) - Ясно! (2012) [FLAC|Lossless]<Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сочиняй мечты (feat. Уля Глушкова (Wow Band))
-02. Прощание
-03. Пусть пригодится
-04. Все лучше тебя(   Читать дальше...   )Жанр: Hip-HopПродолжительность: 00:53:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0502B31A7DD614A9F7F1902239130A932F5490EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456036   (77606) от 21.02.2012
-
-Bob Marley - Greatest Hits (2007) [MP3|320 кб/с]<Reggae>
-
->>Rap, Hip-hop, RnB, Reggae
->>RnB, Reggae
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iron Lion Zion (3:15)
-02. Could You Be loved (4:00)
-03. Is This Love (3:53)
-04. I Shot The Sheriff (4:43)(   Читать дальше...   )Жанр: ReggaeПродолжительность: 02:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D0584F582A444D4C1D52F9822EB09F7FF2EA0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454765   (77161) от 19.02.2012
 
 Cephei MC - Beat and Piano (Сборник красивой и чувственной музыки) (2012) [MP3|320 kbps]<Hip-Hop, Rnb, Dance>
@@ -751,6 +664,93 @@ NTL - Шаг В Сторону (2007) [WavPack|Lossless|image + .cue] <Hip-Hop, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E36646B9A5A2C6A8E0D4E568B8A4826B0A9EBF30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726304   (54986) от 29.05.2024
+
+Ноггано - Первый (2008) [WavPack|Lossless|image + .cue] <Hardcore Hip-Hop, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Птицы
+ 02. Супер-герой
+ 03. Застрах**
+ 04. Еб... Насос(   Читать дальше...   )Жанр: Hardcore Hip-Hop, RapПродолжительность: 01:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:296077D5184A3603BC7817CCCF4D94DC484028DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730460   (53106) от 16.06.2024
+
+VA - Chillhop Essentials Summer (2024) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teddy Roxpin, MAXIMILLIAN – Vermont Canyon (2:58)
+02. illiterate – Soulangeana, ft. Dom R (2:43)
+03. Saib – Porto Leone, ft. FloFilz (2:46)
+04. Enough Cereals – Sundown (2:42)(   Читать дальше...   )Жанр: Hip-Hop, Chillhop, Trip Hop, Jazz FusionПродолжительность: 01:12:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F4FBD779E02CB20B5FCC99CDD8C3A2E1093BFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731478   (52565) от 21.06.2024
+
+Баста - Акустика (2024) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Баста - Моя игра (Acoustic Version) (04:17)
+02. Баста - ЧК (Чистый кайф) (Acoustic Version) (03:46)
+03. Баста - Осень (Acoustic Version) (03:45)
+04. Баста & STRANIZA - Помни (Acoustic Version) (02:35)(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55229CDE4FADFE9CE4005BD893975AD3BBF9C840
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1315146   (515095) от 18.07.2019
+
+Ahmad Jamal - Marseille (2017) Jazz Village [FLAC|Lossless|image + .cue] <Post-Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marseille (instrumental) [8:34]
+02. Sometimes I Feel [5:48]
+03. Pots En Verre [8:30]
+04. Marseille (with Abd Al Malik) [7:23](   Читать дальше...   )Жанр: Post-Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:59:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFC47522DDBABB5190EABA738B1358F0A4106573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314971   (515089) от 18.07.2019
+
+Sophie Milman - Make Someone Happy (2007) Linus [APE|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. People Will Say We're In Love [3:09]
+02. Something In The Air Between Us [4:13]
+03. Rocket Love [4:34]
+04. So Long, You Fool [3:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D26153E3BAAD20391A9BF360C6A7100F9324C17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1314844   (515079) от 18.07.2019
 
 Grant Green - 5 Original Albums (1961 - 1965) 5CD, 2018, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Guitar Jazz>
@@ -691,64 +749,6 @@ The Cannonball Adderley Quintet - Country Preacher (1969) /2014, Universal/[FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B7699B1811E8C7CF18A5D95450E493D213BF893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 931542   (511847) от 26.08.2015
-
-Galactic - Into The Deep [Deluxe Edition] (2015) [FLAC|tracks|WEB-DL]<Funk, Fusion, Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sugar Doosie (4:06)
-02. Higher And Higher (feat. JJ Grey) (4:11)
-03. Into The Deep (feat. Macy Gray) (3:43)
-04. Dolla Diva (feat. David Shaw and Maggie Koerner) (3:32)(   Читать дальше...   )Жанр: Funk, Fusion, RockПродолжительность: 00:59:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41A54EAFFC0B2AF263F3144468EFF6EF8A9DECF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562209   (511538) от 08.07.2022
-
-Duke Ellington - The Complete Variety, Vocalion And Okeh Small Group Sessions (1936 - 1940) 7CD, 2006, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511538.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tough Truckin' [3:05]
-02. Tough Truckin' (alt tk) [2:47]
-03. Indigo Echoes [2:50](   Читать дальше...   )Жанр: SwingПродолжительность: 08:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C1EF2A3124186FFF37F4871A6E64712E8AC2F66
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,209 @@
+###  Публикация: 1356124   (978723) от 30.01.2020
+
+VA - Women's Songs - Native Traditions (2011) [MP3|320 Kbps] <Native American>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olivia tailfeathers - Buffalo Songs
+02. Asani - Niwiciwakan
+03. Asani - Oti Nikan
+04. Sandy Scofield - Layla's Lulaby(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:39:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B167B3A7F7FC8B8294D93F1F4D78907F22ED3180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356321   (978608) от 30.01.2020
+
+Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима - Последствия (Music from the Motion Picture) (2018) (Expanded 2-CD SET) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Never Free (06:59)
+02. Kashmir (04:30)
+03. Fate Whispers To The Warrior (03:54)
+04. And The Warrior Whispers Back (03:57)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D4080FDEE7FE3F36E9A380C8C3C1543EA5C176D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356322   (978544) от 30.01.2020
+
+Lorne Balfe - Mission Impossible: Fallout / Миссия невыполнима - Последствия (Music from the Motion Picture) (2018) (Expanded 2-CD SET) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Are Never Free (06:59)
+02. Kashmir (04:30)
+03. Fate Whispers To The Warrior (03:54)
+04. And The Warrior Whispers Back (03:57)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32B84431847C3354E2C710F09778A0802D61C50C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1355357   (978539) от 30.01.2020
+
+Lorne Balfe - Bad Boys for Life / Плохие парни навсегда (Original Score) (2020) [MP3|320 кб/с] <OST, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978539.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boys for Life (2:47)
+ 02. It's Good Shit Lieutenant (3:19)
+ 03. Take Back What's Ours (2:09)
+ 04. We're Dangerous People (3:46)(   Читать дальше...   )Жанр: OST, ScoreПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C172D6C8F2C00268E006FD52D52B6BFF25D2E68F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 602801   (978291) от 07.02.2013
+
+Джанго освобожденный/Django Unchained (2012) [MP3|320 кб/с]<soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Russo – Winged [0:09]
+02. Luis Bacalov – Django [2:54]
+03. Ennio Morricone – The Braying Mule [2:33]
+04. Christoph Waltz – "In that Case Django, After You..." [0:39]
+05. Luis Bacalov – Lo Chiamavano King (His Name Is King) [1:59]
+06. Anthony Hamilton – Freedom [3:57]
+07. Don Johnson – Five-Thousand-Dollar Nigga's and Gummy Mouth BitchesЖанр: soundtrackПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76E8A35C90C3D164ED9CC4DBB1AE0D984428EB48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 973777   (978184) от 10.01.2016
+
+Justin Kaleb Driggers - Homesick Blues (2015) [MP3|320 кб/с] <Country Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978184.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sally Jo (02:26)
+02. Muddy Water (04:55)
+03. Best I Can (03:20)
+04. Taylor Nichole (03:35)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:38:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70DE2DC094180E9622407A6F0A2ACAEB29E45342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974221   (978150) от 10.01.2016
+
+VA - Los clasicos argentinos Tango - Vol.06 (1996) [MP3|128 кб/с] <Tango>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_978150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Arrabal
+02 - Verdemar
+03 - Che bandoneon
+04 - Seamos amigos(   Читать дальше...   )Жанр: TangoПродолжительность: 00:45:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174C0A99090E24D5622F6E88E13F104D343A44D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356562   (978002) от 31.01.2020
 
 Rob - Gretel & Hansel / Гретель и Гензель (Original Motion Picture Soundtrack) (2020) [MP3|320 кб/с]<Soundtrack>
@@ -550,209 +756,6 @@ Nicholas Britell - The King / Король (Original Score from the Netflix Film
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A524B2DD25B7210AC4DEE7ADDA5EB647B076CCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357340   (973155) от 04.02.2020
-
-Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Tyler - Ready or Not Overture (04:24)
-02. Brian Tyler - Ready or Nocturne for Solo Violin (01:24)
-03. Brian Tyler - Family Members Only (03:42)
-04. Brian Tyler - The Truth (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30891C3B1899422CD06F4EB111F863C91B63DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929291   (973131) от 14.01.2016
-
-Simon Viklund and VA - Payday: The Game Soundtrack, Payday 2: Official Soundtrack, Bonuses, Singles (2012-2015) [MP3|320 kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973131.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Soundtrack, ScoreПродолжительность: 06:03:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69F17F67E53E209356CA5972ED01F857B964FDE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357339   (973091) от 04.02.2020
-
-Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Tyler - Ready or Not Overture (04:24)
-02. Brian Tyler - Ready or Nocturne for Solo Violin (01:24)
-03. Brian Tyler - Family Members Only (03:42)
-04. Brian Tyler - The Truth (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6459EC20B29C9D32EAE310F6FB7D8B90937B6FF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 744272   (972156) от 11.01.2014
-
-David Arkenstone - Gentle Rain (2006) [FLAC|Lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (1:03)
-02. Sunshower (9:57)
-03. Sparkling Pools (6:25)
-04. Water of Life (8:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15582BCCF7B24D355FD766CC093E8179640EE89B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 975690   (972107) от 15.01.2016
-
-Douglas Blue Feather - Rhythms of the Night (2015) [MP3|320 кб/с] <New Age, Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Ride
-02. Eagle And Condor
-03. Cool Breeze
-04. Rhythms Of The Night(   Читать дальше...   )Жанр: New Age, Native AmericanПродолжительность: 00:49:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1682CB5755BD5297A2A46752C03223F29D7B56C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356560   (971725) от 05.02.2020
-
-Алексей Глухов (Лёша Закон) в проекте PODZA... PERHOTЬ - Van Huevel's Destructive Forceps (Zymotic Productions Ultra) (2020) [MP3|320 Kbps] <Noise, Goregrind, Grindcore>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971725.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Вступление в к.. (intro)
-02-Встреча с музыкой
-03-Лопаются бельма
-04-Жильцы колумбариев(   Читать дальше...   )Жанр: Noise, Goregrind, GrindcoreПродолжительность: 00:06:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C6E4E75B6DB7BA8F0AB8B2F796647D7636585CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 617081   (971264) от 13.02.2013
-
-Richard Ackrill - The Lightness of Being (2012) [MP3|320 кб/с]<New age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971264.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:46) 1. Infinity 
-(7:15) 2. Rising Above It All
-(8:44) 3. Wings To Guide Me 
-(6:48) 4. Rain Walking
-(6:12) 5. Presence
-(6:12) 6. Closer To The Light
-(9:02) 7. Beyond The CloudsЖанр: New ageПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C1645612714832C143D1B687C5EEABD7EFC46D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

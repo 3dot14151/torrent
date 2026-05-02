@@ -1,3 +1,61 @@
+###  Публикация: 1555508   (569068) от 04.06.2022
+
+Akuma Six - Akuma No Sekai (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metalcore, Trap Metal, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569068.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Godinjection
+2. Akuma
+3. Clubsugar
+4. Harakiri(Endgame)(   Читать дальше...   )Жанр: Nu Metalcore, Trap Metal, ElectronicПродолжительность: 00:31:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A7AAEC9B6C274F8AD34E3126916E7282E65078F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555504   (568901) от 04.06.2022
+
+Memphis May Fire - Remade In Misery (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист:
+01 Blood & Water [00:03:50]
+02 Bleed Me Dry [00:03:22]
+03 Somebody [00:03:20](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E75EDC756B9331B52F872FB4DF7464B94F7E37E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1555597   (567501) от 05.06.2022
 
 Mothman - Cancer Withdrawal (2022) [FLAC|Lossless|WEB-DL|tracks] <Mathcore, Chaotic Hardcore>
@@ -687,64 +745,6 @@ K-Man & The 45s - Stand With The Youth (2019) [FLAC|Lossless|tracks + .cue] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBD0901BFD8CA06BD6F487B03D8698C5BECBA996
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306671   (555493) от 06.06.2019
-
-Genghis Tron - Triple Black Diamond (2007) EP, Limited Edition [FLAC|Lossless|tracks + .cue] <Grindcore, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ride the Steambolt (Live) (2:41)
- 02. Chapels (Live) (1:56)
- 03. The Folding Road (Live) (3:09)
- 04. Rick Allen Mix by Vytear (4:19)(   Читать дальше...   )Жанр: Grindcore, ExperimentalПродолжительность: 00:34:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7584ECE3F5D88B1447EB12494913E95F963B9433
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306708   (555224) от 08.06.2019
-
-Sopor Aeternus & The Ensemble Of Shadows - Sanatorium Altrosa (Musical Therapy For Spiritual Dysfunction) (2008) [FLAC|Lossless|tracks] <Modern Classical, Darkwave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555224.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Consider This The True Meaning Of Love (Instrumental) (5:39)
-02.Architecture II (7:23)
-03.Shave, If You Love Me (Remix) (6:46)
-04.La Mort D'Arthur (Instrumental) (3:00)(   Читать дальше...   )Жанр: Modern Classical, DarkwaveПродолжительность: 01:05:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79D7F9B2A9D0554EE190D2BA80F65C3E4582CFEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

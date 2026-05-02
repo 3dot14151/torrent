@@ -1,3 +1,67 @@
+###  Публикация: 1374731   (867031) от 13.04.2020
+
+VA - Great Artists of My Heart Vol. 01 (2020) [MP3|320 кб/с]<Symphonic Gothic Metal, Indie>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867031.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:25| 01. My Indigo - My Indigo
+|03:45| 02. Within Temptation - Grenade (Originally By Bruno Mars)
+|04:53| 03. Within Temptation - Forsaken
+|05:35| 04. Within Temptation - The Heart Of Everything(   Читать дальше...   )Жанр: Symphonic Gothic Metal, Indie •Продолжительность: 08:12:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64D39C77977B6AC9BB4843F2FBEAE0FE0CFC4F5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 302360   (866982) от 01.03.2011
+
+VA - Хит-Парад Рок Звезд (2011) [MP3|256 kbps]<Русский рок>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кукрыниксы - Дождь смывает все!
+02. Найк Борзов - Начало дня
+03. Zdob si Zdub - Молдавский хардкор
+04. Король и Шут - Король вечного сна
+05. Сергей Скачков - Вызов
+06. Глеб СамойлоFF & The MatriXX - Ненормальный
+07. Пикник - Кукла с человеческим лицом
+08. Animal Джаz - Токсикоз
+09. Биплан - Последний день на луне
+10. Илья Шипилов - Моя война(   Читать дальше...   )Жанр: Русский рокПродолжительность: 06:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA552372D3678A8538397C88B706F884B35924F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1375385   (865503) от 14.04.2020
 
 VA - Rock Concept (2020) [MP3|320 Kbps] <Rock, Hard Rock, Alternative>
@@ -687,64 +751,6 @@ Accept - 100% Accept (2020) [MP3|320 Kbps] <Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48202C769CCE8BF394AC1B658B0AC3487DF0B05D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001828   (852100) от 29.03.2016
-
-VA - Masters Of Hardcore Chapter XXXVIII (2016) [MP3|320 кб/с] <Hardcore & Hardstyle, Speedcore>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852100.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miss K8 & MC Nolz - Raiders Of Rampage (MOH 2016 Anthem) [04:01]
-02. Dyprax - The Future (Tha Playah Remix Edit) [03:58]
-03. Korsakoff & Furyan - A New Dawn (Edit) [03:38]
-04. Angerfist & MC Nolz - Raise & Revolt (Radio Edit) [03:27](   Читать дальше...   )Жанр: Hardcore & Hardstyle, SpeedcoreПродолжительность: 04:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80C76A96C22A0D4E3D994F866A5585EEFF74F90D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001342   (851924) от 29.03.2016
-
-AC/DC - Bedlam In Belgium (2016) EP [MP3|320 кб/с] <Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851924.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Shake Your Foundations
-02 – The Furor
-03 – Danger
-04 – Burnin’ Alive(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95D2D4BFB1D18D4D731D2A36F19A2375ABC1002D
 ```
 
 https://mybot314.ru/tekegram_catalog/

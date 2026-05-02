@@ -1,3 +1,69 @@
+###  Публикация: 601596   (998074) от 11.01.2013
+
+Wes Montgomery - Boss Guitar (2010) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Besame Mucho    [06:31]
+02. Dearly Beloved    [04:51]
+03. Days of Wine and Roses    [03:48]
+04. The Trick Bag    [04:27]
+05. Canadian Sunset    [05:07]
+06. Fried Pies    [06:46]
+07. The Breeze and I    [04:11]
+08. For Heaven's Sake    [04:43]
+09. Besame Mucho (take 2)    [06:27]
+10. The Trick Bag (take 6)    [05:05](   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601590   (998046) от 11.01.2013
+
+Bill Evans & Jim Hall - Intermodulation (1988) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got You Under My Skin    [03:25]
+02. My Man's Gone Now    [06:47]
+03. Turn Out The Stars    [07:38]
+04. Angel Face    [06:38]
+05. Jazz Samba    [03:11]
+06. All Across The City    [04:52]Жанр: JazzПродолжительность: 00:32:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603427   (997054) от 15.01.2013
 
 Scott Hamilton - With Strings (1993) [FLAC|Lossless]<Jazz>
@@ -808,76 +874,6 @@ Various Artists - Funky Groove (1999) [FLAC|Lossless]<Jazz, Funk>
 06. Duke Pearson - Chili Peppers
 07. Grant Green - Cantaloupe Woman
 08. Art Blakey - Ping PongЖанр: Jazz, FunkПродолжительность: 00:53:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609610   (992214) от 27.01.2013
-
-Various Artists - Basstorius - Music Inspired by the Genius of Jaco Pastorius (1993) [FLAC|Lossless]<Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992214.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Notorius (Laurence Cottle) (5:28)
-02. Nude Descending a Staircase (T De Winkel & Matteo Garrison) (4:15)
-03. Madrid (Carlos Benavent) (4:48)
-04. Yoto (Randy Bernsen Trio) (5:49)
-05. Juanita (Dave LaRue) (2:40)
-06. Basstorius (Koono) (6:43)
-07. The Cat (Ben Hullenkrember & Kai Eckhardt) (4:34)
-08. Tribute (Stefan Rademacher) (6:12)
-09. If Only (Alan Thomson & Dave Lewis) (3:06)
-10. The Man From The Everglades (Mo Foster) (4:02)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 609637   (992178) от 27.01.2013
-
-Pasadena Roof Orchestra - Licensed To Swing (2011) [FLAC|Lossless]<Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_992178.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. You're the Top (3:41)
- 2. At the Jazz Band Ball (3:12)
- 3. Bel Ami (3:16)
- 4. No Strings (3:10)
- 5. Futuristic Rhythm (2:59)
- 6. Polka Dot Rag (2:54)
- 7. About a Quarter to Nine (3:26)
- 8. I Heard (2:25)
- 9. Without That Certain Thing (3:22)
- 10. Am Sonntag Will Meine Süsse Mit Mir Segeln Gehn (2:36)(   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:50:28
 
 ## Скачать торент
 ```bash

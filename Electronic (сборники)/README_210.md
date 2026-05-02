@@ -1,3 +1,61 @@
+###  Публикация: 1694379   (120999) от 25.01.2024
+
+VA - Compilation Electronic part 46 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DNDM - Dame Mas
+02. Imazee - Empty Handed
+03. Hayit Murat - Lament of Love
+04. Muvi - Distant Dream(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:15:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73DA467E7D1BF185718C9ED1824B00EAED0B0157
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694678   (120841) от 26.01.2024
+
+VA - 60 minutes. Old School Dance Music vol.22 (mixed by Dj V) (2023) [MP3|320 Kbps] <Club House, Piano House, Latin House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Dr. Kucho! - Lies To Yourself
+02-Skylark - That's More Like It
+03-The Caramel Club - Mama Say Mama Sa (Hi_Tack Mix)
+04-Acapulco - Clavadistas (Original Peruz Mix)(   Читать дальше...   )Жанр: Club House, Piano House, Latin House, Progressive HouseПродолжительность: 01:00:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3D491FFECDAEBF602D3528C206DC2A2EE70FB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694652   (120833) от 26.01.2024
 
 VA - Trance 2024 (Extended Versions) (2024) [MP3|320 Kbps] <Trance>
@@ -687,64 +745,6 @@ VA - Electronic compilation part 60 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC4A133DCB520373DD2A98C7713CB6C4D29A0D3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704166   (114576) от 03.03.2024
-
-VA - Крутые пушки Весна 2024 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Stoll Vs. Gustavo Mota, Volac - Girls Drop That Thang Low Vs. Like Dis (VLLV Club MashUp) (2:34)
-02. Culture Beat - Mr. Vain (Silichev Remix) (3:04)
-03. Xassa, BODIEV - Самолёт (Andy Shik x EVGL Remix) (Radio Edit) (3:20)
-04. La Bouche - Be My Lover (Jenia Smile & Ser Twister Remix) (2:39)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:454D8F143FF814A4A8E4F44C71FB1B207FE6E8ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704292   (114362) от 04.03.2024
-
-VA - Electronic compilation part 61 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neuron - Run Back to You
-02. Adik - Our Secret
-03. Neuron - Night Light
-04. Adik - See You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F40E51F22B0476AFCD11F02FDB6ADC52A201B04E
 ```
 
 https://mybot314.ru/tekegram_catalog/

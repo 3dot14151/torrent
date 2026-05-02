@@ -1,3 +1,119 @@
+###  Публикация: 1143296   (637473) от 17.06.2017
+
+David Gogo - Change Of Pace (2000) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637473.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sad And Lonely  (03:54) 
+02. (It's All Over Now) Baby Blue  (03:38) 
+03. Sad And Beautiful  (04:19) 
+04. By Your Side  (03:20) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0729244E9234603A5087048ECCE804E2EF639D01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293458   (635505) от 04.04.2019
+
+Happy Day Singers - Gospel Songs (2000) Box Set, 3CD, Compilation [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635505.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1
+01.	Glory Glory Halleluja
+02.	Put A Little Love In Your Heart
+03.	We Are Going Down, Jordan(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 02:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B553F2F82C555C2DDA5A1BBE3804EA6802FB4C42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143373   (635387) от 18.06.2017
+
+Mcdougall - Reaching for Some Light (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635387.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roads  (03:59) 
+02. Stranger on the Prairie  (04:55) 
+03. Shaken  (04:14) 
+04. Ten Speed  (04:28) (   Читать дальше...   )Жанр: Blues, Folk, RockПродолжительность: 00:48:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E564A74A43DFE3DC5838D70814FA97717E46E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1143389   (635381) от 18.06.2017
+
+Miss Tess - Baby, We All Know (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, World, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride That Train  (03:09) 
+02. Little Lola  (04:08) 
+03. It's So Easy To Tell  (03:16) 
+04. I Can't Help Myself  (04:36) (   Читать дальше...   )Жанр: Blues, World, CountryПродолжительность: 00:40:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18F7129E8A010EC1F4888CA695521810DE18B95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1143530   (635380) от 18.06.2017
 
 Jeff Jensen - The River City Sessions (2016) Live [FLAC|Lossless|WEB-DL|tracks] <Blues, Guitar Blues>
@@ -651,122 +767,6 @@ Lucy Woodward - Til They Bang On The Door (2016) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58195005B897FBF7AE4173CF2084147CDBC711E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145360   (621643) от 25.06.2017
-
-Othman Wahabi - Night Trippin' Vol.1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celestial Quest (06:10)
-02. Burning Sun (05:53)
-03. Catfish Blues (05:09)
-04. Soul For The Devil (03:21)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA0498B55944C2DF35F5B3CB1045C53816C6B101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036385   (621087) от 20.07.2016
-
-The Stumble - The World Is Tough (2006) [FLAC|Lossless|image + .cue] <Blues, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You Upset Me Baby    03:34
-02.  Leading Me On    02:41
-03.  The World Is Tough    03:55
-04.  All Over Again    11:03(   Читать дальше...   )Жанр: Blues, Electric BluesПродолжительность: 00:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E82C72BCBED2DCF95B461CAEAF7405AD0BBECE4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544694   (620199) от 16.04.2022
-
-Blaa Trikaa - Part of My Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Day (3:42)
-02. Sleep Another Minute (4:18)
-03. Locomotive Man (4:03)
-04. Circle of Sin (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2903E26F5D2BECB8E3AD03BE0E8C0508DF33C05D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544690   (620195) от 16.04.2022
-
-Andrew Thabah - In the Shadow of Your Love (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Down on Your Knees (3:59)
-02. Free as Love Can Be (5:30)
-03. I Feel Swell (3:29)
-04. In the Shadow of Your Love (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30DDEB3393B721D0F151AAE8246A83317909643
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,175 @@
+###  Публикация: 1819679   (1265) от 23.09.2025
+
+Volan - Конец (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <melodic-hardcore, emotional-hardcore, blackened-post-hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1265.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Конец [00:02:28]
+02. На гранитных аллеях [00:02:32]
+03. Марш [00:02:08]
+04. Волан [00:03:15](   Читать дальше...   )Жанр: melodic-hardcore, emotional-hardcore, blackened-post-hardcoreПродолжительность: 00:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CFB356F560C2D1F35F7BBF5227DC32588F72E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819751   (1123) от 24.09.2025
+
+Thy Art Is Murder - Studio Albums (7 releases) (2008-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thy Art Is Murder — австралийская дэткор-группа, образованная в Сиднее в 2006 году.2008 - Infinite Death (EP)
+2010 - The Adversary
+2012 - Hate
+2015 - Holy WarЖанр: DeathcoreПродолжительность: 04:40:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45F5F06D790367AB841644D345F4DD1A1B7749CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819744   (1120) от 24.09.2025
+
+VEXED - Studio Albums (2 releases) (2021-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1120.jpg" />
+</div>
+
+
+###  Подробнее
+
+Встречайте яркого нового таланта - VEXED. Мощный вокальный натиск несокрушимой вокалистки Меган Таргетт подкреплён безупречной техникой участников группы. Отточенные риффы в стиле звёзд жанра Meshuggah и таких исполнителей, как Periphery и Vildhjarta.2021 - Culling Culture
+2023 - Negative EnergyЖанр: Metalcore, DeathcoreПродолжительность: 01:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22A2D3996426ABC4D92EA0611F1709126469CD9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819966   (1014) от 25.09.2025
+
+Robert Plant - Saving Grace (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_1014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chevrolet(2:38)
+02. As I Roved Out(6:10)
+03. It's A Beautiful Day Today(3:41)
+04. Soul Of A Man(4:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CF00A687878ED3A1885BCBBD1B56601282F9D8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819973   (999) от 25.09.2025
+
+Amorphis - Borderland (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Death Metal, Atmospheric Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Circle(4:35)
+02. Bones(4:55)
+03. Dancing Shadow(4:59)
+04. Fog To Fog(5:29)(   Читать дальше...   )Жанр: Melodic Death Metal, Atmospheric Progressive MetalПродолжительность: 00:49:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35D8C58E943D511DFF81E96ED93AAB5797D0E694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1819969   (996) от 25.09.2025
+
+Rage - A New World Rising (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A New World Rising(1:21)
+02. Innovation(3:18)
+03. Against The Machine(4:11)
+04. Freedom(3:11)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF61B5D6502D75CED0CDD3799F02B01450E9A7F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1819951   (978) от 25.09.2025
 
 The Vintage Caravan - Portals (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Blues-Rock, Stoner Rock>
@@ -571,180 +743,6 @@ Mors Principium Est - мелодик-дэт-метал группа с учас�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B3812337D053039A139A526E65B6B87090809A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820693   (288) от 28.09.2025
-
-Kate Bush - Best Of The Other Sides (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art rock, Progressive rock, Alternative rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Experiment IV (Remastered 2025)
-02. You Want Alchemy (Remastered 2025)
-03. Rocket Man
-04. Walk Straight Down The Middle (Remastered 2025)(   Читать дальше...   )Жанр: Art rock, Progressive rock, Alternative rockПродолжительность: 00:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:568845F965880FE0164A5DBEFFDAF90126336B75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820685   (282) от 28.09.2025
-
-Mariah Carey - Here For It All (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mi
-02. Play This Song (feat. Anderson .Paak)
-03. Type Dangerous
-04. Sugar Sweet (feat. Shenseea & Kehlani)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9AA6512C2B6A862989155E5FAD8D9EB3F8E3606
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820656   (273) от 28.09.2025
-
-Creed - The Best Of Creed (Remastered 2025) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Higher (Radio Edit / Remastered 2025) (4:45)
-02.  One Last Breath (Remastered 2025) (4:00)
-03.  My Own Prison (Radio Edit / Remastered 2025) (4:15)
-04.  Overcome (Remastered 2025) (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA102FFAC85AC50E0B13405322A4654F58FA5D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820675   (236) от 28.09.2025
-
-Willow Suns - All out of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dear Light (4:20)
-02.  I Don't Know (3:34)
-03.  Roll with Me (4:00)
-04.  Running Around After You (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A966C987EC18B62C46D7375B5350851173E6B2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820660   (235) от 28.09.2025
-
-Devil of a Woman - Last Call for Freedom (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Last Call for Freedom (4:06)
-02.  Change of Poison (4:18)
-03.  Midnight Dancer (4:10)
-04.  Hot Trap (4:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5DF404390CC259826470038DDEB86A884A4F617
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820627   (234) от 28.09.2025
-
-Angelwreck - Pieces Of My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Misfit (4:52)
-02.  Super Sleuth (2:28)
-03.  Summertime Magic (3:25)
-04.  Puzzle Pieces (3:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AF2F6C334DF722D9FA01B6EAFA9BCDC5276F5F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

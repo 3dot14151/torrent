@@ -1,3 +1,229 @@
+###  Публикация: 1631951   (244439) от 08.05.2023
+
+VA - Disco Boy, I'm A Disco Boy: Weekend Party Hits (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La$$A - Disco Boy                                       [02:36]
+   02. Yung Gravy - Betty (Get Money)                          [02:25]
+   03. Kungs - Never Going Home                                [02:49]
+   04. Dio - Tijdmachine (Edit)                                [03:29](   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:067D0D55EA2CAA40C676451DF87C7CF72AB2954B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567146   (244425) от 01.08.2022
+
+VA - I Love The 90's - The Party (2019) 4CD, Compilation, Mixed [FLAC|Lossless|tracks + .cue] <Eurodance, House, Dance, Eurobeat>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244425.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Eurodance, House, Dance, EurobeatПродолжительность: 01:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3EB7ABECF931454C26496975B8715873588BB29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621837   (244394) от 26.03.2023
+
+Lana Del Rey - Did you know that there's a tunnel under Ocean Blvd (2023) [FLAC|Lossless|tracks + .cue] <Alternative Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244394.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Grants
+02. Did you know that there's a tunnel under Ocean Blvd
+03. Sweet
+04. A&W(   Читать дальше...   )Жанр: Alternative PopПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:363BCCE35E3F0D35B4A0B1006E07E3B577CD44AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1294580   (244351) от 08.04.2019
+
+Bayonne - Drastic Measures (2019) [FLAC|Lossless|tracks + .cue] <Electronic, Indie Pop, Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. QA (05:44)
+02. Drastic Measures (04:45)
+03. Same (03:40)
+04. Gift (05:12)(   Читать дальше...   )Жанр: Electronic, Indie Pop, Pop RockПродолжительность: 00:45:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F6C8A931379F97846242DB02572C83669BFB423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1567163   (244321) от 01.08.2022
+
+VA - I Love The 90's 10 Years Anniversary Edition (2017) 5CD, Compilation [FLAC|Lossless|tracks + .cue] <Eurodance, House, Dance, Eurobeat>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Eurodance, House, Dance, EurobeatПродолжительность: 01:13:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5BFBE6BAB3D8B74E8E91133088EE2D973CAECD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632300   (244316) от 09.05.2023
+
+Shakin' Stevens - Re-Set (2023) [FLAC|Lossless|image + .cue] <Pop-Rock, Rock 'N' Roll>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244316.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. George
+02. Not in Real Life
+03. It All Comes Round
+04. May(   Читать дальше...   )Жанр: Pop-Rock, Rock 'N' RollПродолжительность: 00:32:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96185A536A4FBD8977601E659501A3635F8A9B10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622661   (244188) от 29.03.2023
+
+VA - All 00s (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance, Rock, RnB>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lady Gaga - Just Dance                                  [04:04]
+  02. Gwen Stefani - The Sweet Escape                         [04:06]
+  03. Mary J. Blige - Family Affair                           [04:27]
+  04. Maroon 5 - This Love                                    [03:25](   Читать дальше...   )Жанр: Pop, Dance, Rock, RnBПродолжительность: 03:30:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA7699E2E59A408DD29DF1145907177A97A425A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1622656   (244180) от 29.03.2023
+
+VA - Mega Hits 2011 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii - Levels (Radio Edit)                                                [03:21]
+  02. Katy Perry - Firework                                                       [03:47]
+  03. The Black Eyed Peas - Just Can't Get Enough                                 [03:39]
+  04. Taio Cruz - Hangover                                                        [04:04](   Читать дальше...   )Жанр: PopПродолжительность: 03:18:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4598A7EBB9B4A050FCA06C5DB78CEB84E94329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1623521   (243367) от 02.04.2023
 
 VA - Summer Hits 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -513,238 +739,6 @@ Joe Dassin - Golden Disc (2005) Compilation [FLAC|Lossless|image + .cue] <Pop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4621A4E27CBCE4570844C6322CD455A8B2D97DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621910   (239714) от 26.03.2023
-
-Romano - Vulkano Romano (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Schrei der Wildnis [00:03:31]
-02. Magical [00:02:21]
-03. Samurai (feat. Alexander Marcus) [00:02:05]
-04. Fetisch [00:02:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:36:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294FB572208F05E6E18E129D23916939995911B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627185   (239576) от 18.04.2023
-
-VA - 100 Radio Hits - The Sound Of My Life (2020) [5CD Box Set] [FLAC|Lossless|tracks + .cue] <Rock, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239576.jpg" />
-</div>
-
-
-###  Подробнее
-
-101 - Aretha Franklin & George Michael - I Knew You Were Waiting
-102 - Pink - So What
-103 - Backstreet Boys - Everybody
-104 - Anastacia - I`m Outta Love(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 06:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6A4C4E4CA68B346FADECA7E129C1F7B0C3E00F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087376   (238843) от 27.04.2022
-
-Madonna - Best Of... (2002) All Stars Presents Series, Unofficial Release [APE|Lossless|image + .cue] <Electronic, Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rain
-02. Papa Don't Preach
-03. La Isla Bonita
-04. You'll See(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 01:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CAF627BA34EF7C720DC29961214D74FA5CC4EF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638844   (238785) от 10.06.2023
-
-Jake Shears - Last Man Dancing (2023) [FLAC|Lossless|image + .cue] <Dance-pop, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238785.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Much Music (4:38)
-02. Do the Television (4:38)
-03. feat. Kylie Minogue - Voices (4:26)
-04. I Used To Be In Love (3:28)(   Читать дальше...   )Жанр: Dance-pop, Synth-popПродолжительность: 00:50:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC642524BD8222CEC45914135EFFCE20AC0159C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442185   (238575) от 24.01.2021
-
-Alexander Rier - Zwischen dir und mir (2012) [FLAC|Lossless|image + .cue] <Pop, Schlager>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mehr Will Ich Haben
-02. Zwischen Dir Und Mir (Duett mit Norbert Rier)
-03. Komm Und Schenk Mir Deine Ewigkeit
-04. Nie Im Leben(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA7DAEB5DB3F4AFABFD8A0C2326713BBDE0E4FBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639012   (238466) от 12.06.2023
-
-Savage Garden - Savage Garden (1997) Original Version, 2023, Sony Music Entertainment [FLAC|Lossless|WEB-DL|tracks] <Soft Rock, Pop Rock, Synth-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238466.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Moon & Back [00:05:39]
-02. Carry On Dancing [00:03:44]
-03. Tears of Pearls [00:03:46]
-04. I Want You [00:03:51](   Читать дальше...   )Жанр: Soft Rock, Pop Rock, Synth-popПродолжительность: 00:49:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F799C3218C806751D14B86616D903BDE6C2863F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639931   (237837) от 15.06.2023
-
-a-ha - Headlines and Deadlines (The Hits Of a-ha) (1991) [FLAC|Lossless|tracks + .cue] <Synth-pop, Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237837.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take On Me
-02. Cry Wolf
-03. Touchy
-04. You Are The One (Remix)(   Читать дальше...   )Жанр: Synth-pop, Pop RockПродолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A8877BB638C0DC6BBC19DCD9A4BDE6B755BCA9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1627713   (237145) от 20.04.2023
-
-Petite Noir - MotherFather (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – 777
-02 – Blurry (feat. Sampa the Great)
-03 – Numbers
-04 – Concrete Jungle(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:27:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F897263C342A7AD26C29D2654DCA3AB2A63D1E9E
 ```
 
 https://mybot314.ru/tekegram_catalog/

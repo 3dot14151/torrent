@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1865980   (1065912) от 
+
+Ка тет - Заточка цепей бензопил (2026) [MP3|320 Kbps] <Рэп>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Неактивная кабина [00:02:46]
+02. I'll be back [00:02:36]
+03. Бритва [00:02:28]
+04. Грузовик [00:03:01](   Читать дальше...   )Жанр: РэпПродолжительность: 00:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BF9432CA79C924364AB25894E2F5D55102AD225
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865961   (1065910) от 
+
+Conway The Machine - G.O.A.T. (2026) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. G.O.A.T [00:02:34]
+02. Trump [00:04:54]
+03.  Th3rd [00:05:43]
+04. Die On Xmas [00:04:26](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D20F0C78D3BD132134B354795F3FBA8376EABFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865448   (1065787) от 19.04.2026
+
+Rihanna - Unapologetic (2012) [FLAC|Lossless|tracks + .cue] <Electronic, Hip Hop, Pop, Contemporary R&B>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fresh Off the Runway [0:03:42.31]
+02. Diamonds [0:03:45.11]
+03. Rihanna feat. Eminem / Numb [0:03:25.05]
+04. Pour It Up [0:02:41.15](   Читать дальше...   )Жанр: Electronic, Hip Hop, Pop, Contemporary R&BПродолжительность: 00:55:11.973 (146 058 024 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82C25EFF0C650613AE1B196C5E5C27A290121069
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865273   (1065779) от 19.04.2026
+
+Diana King - Think Like A Girl (1997) CD Album, Enhanced [FLAC|Lossless|tracks + .cue] <Reggae, Funk / Soul>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Think Like A Girl (3:05)
+02. L-L-Lies (4:08)
+03. Do You Really Want To Hurt Me (5:06)
+04. Love Yourself (4:43)(   Читать дальше...   )Жанр: Reggae, Funk / SoulПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5395947445A48862AEAE947510912CE3927C4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1858450   (1060469) от 10.03.2026
 
 VA - Chillhop Essentials Spring (2026) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
@@ -376,64 +492,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842979   (1049026) от 17.12.2025
-
-Oxxxymiron - Национальность: нет (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1049026.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Как Мои Дела
-2. Vintage
-3. Приключения
-4. Lost & Found(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C8E4A6C7E8A819A9C04DC8C339F5A2CA26A658E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842980   (1049025) от 17.12.2025
-
-Oxxxymiron - Национальность: нет (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1049025.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Как Мои Дела
-2. Vintage
-3. Приключения
-4. Lost & Found(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:27:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE2BBF4342DEFAD4000319596EA7BA9596861CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1841358   (1048156) от 11.12.2025
 
 Околорэп - Страшные Русские Cказки (2025) [MP3|320 Kbps] <Рэп>
@@ -463,64 +521,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841577   (1048136) от 12.12.2025
-
-Кровосток - Пиры и раны (2025) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1048136.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Столовая
-2. Ленин
-3. Бей/Беги
-4. Бабочки(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B780AA2E23C513FA5AB32A5E82AA96F0C6D5D43F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841580   (1048135) от 12.12.2025
-
-Кровосток - Пиры и раны (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1048135.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Столовая
-2. Ленин
-3. Бей/Беги
-4. Бабочки(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F0602ED82A58671613E84601415A7CF503BED53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840506   (1047421) от 05.12.2025
 
 VA - Chillhop Essentials Winter (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Chillhop, Trip Hop, Jazz Fusion>
@@ -543,64 +543,6 @@ VA - Chillhop Essentials Winter (2025) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0021BBC6257EC999D102625661FE7AE88A73D0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840520   (1047411) от 05.12.2025
-
-Noize MC - Алхимия (2025) EP [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047411.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Улица Авеля
-2. Пчёлы слов
-3. Чернокнижник
-4. Планета ЗемляЖанр: Rap, Hip-HopПродолжительность: 00:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D29360679A84E69A6361AD068B7D3FB036236FBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840522   (1047410) от 05.12.2025
-
-Noize MC - Алхимия (2025) EP [FLAC 24/48|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop, RnB, Reggae (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047410.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Улица Авеля
-2. Пчёлы слов
-3. Чернокнижник
-4. Планета ЗемляЖанр: Rap, Hip-HopПродолжительность: 00:11:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3677036E2389B38F478E0999906F6CE980A5F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,35 +637,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1601880   (1046316) от 02.01.2023
-
-Вася Васин - Танец с саблями (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Великий Питер
-2. Мания величия
-3. Танец с саблями
-4. Мудрые слова(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:43:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6FCD57656C77BA8C12D1C41F1DC8B5B86885791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602264   (1046021) от 06.01.2023
 
 SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
@@ -746,6 +659,93 @@ SERPO - Чужие истории (2023) [MP3|320 Kbps] <Rap, Hip Hop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F191E7D48B3B0F0B905E901E93367E056BF9CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602256   (1046012) от 06.01.2023
+
+L'One (Леван Горозия) - Концерт с симфоническим оркестром (Live 8_X 2022) (2023) [MP3|320 Kbps] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046012.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро (Live 8_X 2022) [00:02:33]
+02 - Ракета, Твой день настал (Live 8_X 2022) [00:02:54]
+03 - Сон (Live 8_X 2022) [00:04:07]
+04 - Дорога (Live 8_X 2022) [00:03:24](   Читать дальше...   )Жанр: Rap, Hip HopПродолжительность: 01:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75DC7AFE57BAF55F482EA643CD72D92355C320DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581379   (1045802) от 08.01.2023
+
+Вася Васин - 4 Albums (2009-2023) [MP3|320 Kbps] <Rap, Hip-Hop, Spoken Word>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2009 - Демонстрация достижений (CD-1)
+2009 - Демонстрация достижений (CD-2)
+2011 - Tzar Vasilich(   Читать дальше...   )Жанр: Rap, Hip-Hop, Spoken WordПродолжительность: 5 CD, 03:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9F85A65F8B2CD88F530B4FCD20F46C8730A9A3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606931   (1044218) от 24.01.2023
+
+VA - The Many Faces of Stevie Wonder (2021) 3xCD [FLAC|Lossless|image + .cue] <R&B, Soul, Pop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stevie Wonder, настоящее имя которого Stevland Hardaway Morris, родился 13 мая 1950 года, - одна из самых любимых американских икон и бесспорный гений не только R&B, но и популярной музыки в целом. Слепой практически с рождения, обостренное восприятие звука помогло Wonder'у создавать яркую, красочную музыку, полную жизни и амбиций. Почти все, что он записывал, (   Читать дальше...   )CD1 - The Many Faces Of Stevie Wonder:
+ 01. Stevie Wonder - I Call Pretty Music But The Old People Call It The Blues (Part 1) (2:31)
+02. Stevie Wonder & Clarence Paul - Little Water Boy (2:35)
+03. Stevie Wonder - Superstition (Live) (5:41)(   Читать дальше...   )Жанр: R&B, Soul, PopПродолжительность: 02:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E80D26C0C786126CB3C0888AE3A7409675C7398
 ```
 
 https://mybot314.ru/tekegram_catalog/

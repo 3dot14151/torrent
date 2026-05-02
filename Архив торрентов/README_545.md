@@ -1,3 +1,58 @@
+###  Публикация: 1093118   (935337) от 14.01.2017
+
+Funky DL - The Jazz Lounge (2016) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Jazzy Hop, Instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. But That's Not Me (Jazz Lounge Remix) (4:15)
+02. You Know Me (Jazz Lounge Remix) (3:57)
+03. Le Jazz Courant Noir (Jazz Lounge Remix) (3:22)
+04. Out Of Touch (Jazz Lounge Remix) (4:02)(   Читать дальше...   )Производство: Washington ClassicsЖанр: Hip-Hop, Jazzy Hop, InstrumentalПродолжительность: 01:04:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62EFF767EF40963D8CCEDBD036CAA9253D0EAC4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985528   (935327) от 11.02.2016
+
+Skype 7.18.0.112 Final [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935327.jpg" />
+</div>
+
+
+###  Подробнее
+
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует P2P-технологию для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может быть (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AA6E57D5B54AADC50E0CB204824CE4E7BE29019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 753774   (935311) от 06.02.2014
 
 Газета | Сезон у дачи №2 (152) (январь 2014) [PDF]
@@ -622,67 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5244A550908E544EEC13E39C20CCFDA8BC12DA99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985213   (935082) от 11.02.2016
-
-Reg Organizer 7.30 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935082.jpg" />
-</div>
-
-
-###  Подробнее
-
-Многофункциональная программа для редактирования, чистки и обслуживания реестра, исправления ошибок в системе и повышения ее производительности. Функция глубокого поиска по реестру позволит отыскать все ключи реестра, относящиеся к интересующему приложению. Программа позволяет редактировать файлы реестра (.reg) и просматривать их содержимое прямо из Проводника Windows. (   Читать дальше...   )Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E477EAF7A45542C51A2D48DF2175EBD45F09310D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176252   (935070) от 18.02.2010
-
-VA - The House Session (14.02.2010) [MP3|128 -320 kbps]<House, Electro House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_935070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deniz Koyu - What We Are (Marc Lime K Bastian Remix) (6:08)
-02. Don Diablo & Sidney Samson - Monster (6:23)
-03. STFU - Going Back To My Roots (STFU Mix) (6:29)
-04. Roma Pafos Feat. Katrin Moro - There Is (Incognet Remix) (6:13)
-05. D-Lux And Jonez - Wahaha (Danny Age Lazy Jonez Remix) (6:13)
-06. Antoine Lavenant - You Are In The Matrix (Original Mix) (5:09)
-07. Gooseflesh - Dodgems (Markus Lange & Stereofunk Remix) (5:27)
-08. Ryskee Feat. Leslie Ming - Leave Me Amor (Moguai Remix) (6:22)
-09. Pete Gooding Feat. Nina - Dance Electric (Greysound Rem (5:15)
-10. The Transatlatins & India - I Can't Live Without Music (Midnite Sleaze Dub) (8:37)(   Читать дальше...)Жанр: House, Electro House, Progressive House
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

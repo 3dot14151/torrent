@@ -1,3 +1,32 @@
+###  Публикация: 1073545   (345217) от 16.11.2016
+
+Gustav Mahler - Symphony No. 10, completion by Rudolf Barshai - Vladimir Ashkenazy, Sydney Symphony 2012 (2012)[FLAC|Lossless|tracks + .cue]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_345217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andante - Adagio 25:18
+02. Scherzo. Schnelle Vierteln - Gemchliches Lndler-Tempo 11:24
+03. Purgatorio. Allegretto moderato 4:27
+04. Allegro pesante. Nicht zu schnell 11:05(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:13:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D4480890664E43FD182571EA6FA098C0E6463F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 579594   (345002) от 24.11.2012
 
 Mozart - The Authorised Recordings: Sviatoslav Richter (1994) 2CD [FLAC|Lossless]<Classical, Classical Period, Sonata, Fantasy>
@@ -712,35 +741,6 @@ Anna Netrebko & Rolando Villazon - Duets (2007),Deluxe Limited-Edition, Deutsche
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35FDE6A42643EDAC38FB2C25E7B7A097D2111553
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 956259   (329361) от 15.11.2015
-
-Bach - Concertos, Toccata, Partita (Elena Kuschnerova) (2001) [FLAC|image +.cue]<Classical, Recital, Concerto, Baroque Period, Suite>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329361.jpg" />
-</div>
-
-
-###  Подробнее
-
-Italian Concerto for keyboard solo in F major, BWV 971
-01. untitled (04:06)
-02. Andante (05:11)
-03. Presto (03:40)(   Читать дальше...   )Жанр: Classical, Recital, Concerto, Baroque Period, SuiteПродолжительность: 01:10:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7D005F98377C0F47E05DF41E474853D1BEFE94
 ```
 
 https://mybot314.ru/tekegram_catalog/

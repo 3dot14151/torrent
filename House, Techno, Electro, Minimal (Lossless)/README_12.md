@@ -1,3 +1,32 @@
+###  Публикация: 1368140   (912279) от 18.03.2020
+
+VA - Faze #28: Adriatique (2014) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Tech House, Minimal>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adriatique - Faze DJ-Set 28 (Continuous DJ Mix) [01:15:54]
+02. Mattheis - Klrnoe [09:06]
+03. Adriatique - Lophobia [06:53]
+04. David August - Epikur [08:08](   Читать дальше...   )Жанр: EDM, Deep House, Tech House, MinimalПродолжительность: 02:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2688D3A0CDD8ADFE0D874E39F06812464056851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368197   (912270) от 18.03.2020
 
 VA - Sunset Moods: Tulum (A Selection of Finest Sundowner Island Moods & Grooves) (2019) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Afro House, Nu Disco>
@@ -701,35 +730,6 @@ VA - Hypnotized Creations Vol. 1 (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F03D4825F7AAA2856FAD490503B6601104F86A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100537   (899528) от 04.02.2017
-
-VA - Kontor Festival Sounds 2017.01 The Beginning (2017) [FLAC|Lossless|tracks] <House, Trance, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Armin van Buuren vs. Vini Vici feat. Hilight Tribe - Great Spirit (Extended Mix)  7:38
-02.  Dimitri Vegas & Like Mike feat. Deb's Daughter vs. Diplo - Hey Baby (Blasterjaxx Remix)  5:40
-03.  Hardwell & W&W - Get Down (Extended Mix)  3:41
-04.  Lost Frequencies - What Is Love 2016 (Dimitri Vegas & Like Mike Extended Remix)  5:00(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 07:44:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCAB9800DFD2E61051E29785E7FF4F41AB7F9741
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1697514   (117799) от 13.02.2024
+
+Teufelstanz - XIII (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dodet
+02. Andro
+03. Barentanz
+04. Quant je suis mis au Retour & Douce Dame Jolie(   Читать дальше...   )Жанр: Medieval Folk, BagpipeПродолжительность: 00:51:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01F3D890BB0602C07B85477A970F7B0B78DC67E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1700801   (115512) от 26.02.2024
 
 Meldis - Отдохни, волшебник (2006) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
@@ -725,35 +754,6 @@ Dwight Yoakam - This Time (1993) CD, Album, Club Edition [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DECBF747F6C2156F5F7F752AB94297E516ABE2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792094   (67767) от 17.04.2025
-
-VA - Go Ask Alice: Dark Melancholic Rock & Folk Mix (2025) [FLAC|Lossless|WEB-DL|tracks] <Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Atwater Collective - White Rabbit (2:51)
-02.  Josh Arnold - Buried Love (3:20)
-03.  The Lost Gecko - Brothers (4:54)
-04.  Marc Miner - Sweet Revenge (6:13)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13038A18CA1B5AB2ECD73C996B705B284181B4AB
 ```
 
 https://mybot314.ru/tekegram_catalog/

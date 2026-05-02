@@ -1,3 +1,119 @@
+###  Публикация: 1360136   (961761) от 14.02.2020
+
+VA - Rock & Pop Ballads Collection от ALEXnROCK Часть 1 (2020) [MP3|320 Kbps] <Rock, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мой подарок всем влюблённым! Аудио версия видеосборника о любви. Это 1я часть. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK01. Bryan Adams — Please Forgive Me
+02. Mr. Big — Wild World
+03. Рондо — Я буду помнить
+04. Michael Bolton — Time Love And Tenderness(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 05:36:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA241195D9D3605C84D46CA4C7EBC49531679209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 978694   (960941) от 25.01.2016
+
+VA - Зимний Муз-драйв 100-ка популярной музыки (2016) [MP3|256-320 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. NikitA - Вдыхай
+02. Sasha Lopez - Moments ft Ale Blake & Broono (Extended Club Mix)
+03. Дима Билан - Неделимые
+04. Alex Kafer & Lera Feat. Ural Djs - Алешка(   Читать дальше...   )Жанр: PopПродолжительность: 06:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:126BB984306825319E14C44DA370626654966C95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 979272   (959653) от 26.01.2016
+
+VA - Зимняя 100-ка Популярных Треков (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ева Польна - Мало
+02. Ёлка - Праздник К Нам Приходит!
+03. Kristina Si - Не Обижай Меня
+04. Milki - Лапочка(   Читать дальше...   )Жанр: PopПродолжительность: 06:35:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBE9014694044E490120935A9D6A18EA9522641D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 748527   (957306) от 23.01.2014
+
+Joy - 25 Best Songs (2012) [MP3|~245 кб/с]<Eurodance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hello 1986
+02. Touch By Touch 1986
+03. Cheek To Cheek 1986
+04. Fire In The Night 1986(   Читать дальше...   )Жанр: EurodanceПродолжительность: 01:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F60504DAB09BB21822101AAF338805C608E0BC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 623372   (955709) от 26.02.2013
 
 VA - The Official UK Top 40 Singles Chart (24-02-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
@@ -629,122 +745,6 @@ VA - Зарубежные хиты экспресс. Версия № 2 (2016) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43D7167193D2FCC9B27FFF20841308DFE0379E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089284   (951731) от 03.01.2017
-
-VA - Hit 200 Zaycev: Popular Dance Mix (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951731.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Onerepublic Feat. Peter Gabriel - A.I.
-002. Rochelle - All Night Long
-003. Dj James Yammouni - Live Forever
-004. Serpo & Dj Boor Feat. Женя Юдина - Небо Это Ты(   Читать дальше...   )Жанр: PopПродолжительность: 12:15:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A45C5E29D20A741BC7FD1F47ABD01178D830E509
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1084915   (951379) от 03.01.2017
-
-VA - Pioneer Studio 33,5 - Disco CCCP 3 (Переиздание) (2016) [MP3|320 Kbps] <Disco, EuroDisco, Dance, Electronic, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yur An & Alex - Солнечное регги (Sunshine Reggae by Laid Back)
-02. Alex Neo & Antony Ganion - Неизвестная дорога (Cant Get Enough by Modern Talking)
-03. Modern Tracking - Замки из стекла (House Of Mystic Lights by C.C. Catch)
-04. Modern Tracking - Вампир (Vampire by Blue System)(   Читать дальше...   )Жанр: Disco, EuroDisco, Dance, Electronic, PopПродолжительность: 02:13:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B812ACD82A39C5903BCB7F8F2514AFDFBCCD09C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089455   (950699) от 04.01.2017
-
-VA - Русский зимний музобоз (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950699.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adil Karaca - Музыка 3:52
-002. Лена Максимова - Счастье Внутри 3:50
-003. Саша Жемчугова - Кто-То За Нас 4:06
-004. Мулат - Включила Заднюю 3:08(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04622693EDDD9943B6D0B487F97745674E952EF2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089722   (950640) от 04.01.2017
-
-VA - Взрывной хит-парад. Сборник № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_950640.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Vikki - Помолчим 3:16
-002. Mc Bad - Растопим Снег 3:12
-003. Таня Герман - Эмоции Мысли 3:20
-004. Gwen Stefani - Used To Love You 3:48(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D63681432646226650C5B53A6E5C7AC1819A0A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

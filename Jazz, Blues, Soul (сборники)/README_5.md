@@ -1,3 +1,32 @@
+###  Публикация: 1109988   (855403) от 01.03.2017
+
+Muddy Waters - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Night Long
+02. Mannish Boy
+03. Come to Me Baby
+04. Goodbye Newport Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 01:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76760E4B9785AA5C317302C983624491F1570A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109986   (855387) от 01.03.2017
 
 Koko Taylor - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
@@ -715,35 +744,6 @@ VA - Soul Sugar (2021) [MP3|320 Kbps] <Funk, Soul, Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D5C80D55621E26DF5F41878CC3A22C60BB95EA93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114048   (834999) от 13.03.2017
-
-Blues Cousins - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoochie Coochie Man
-02. Nobody Knows
-03. The Brother
-04. The thrill is gone(   Читать дальше...   )Жанр: BluesПродолжительность: 02:52:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A33909306A523C81046D7BFA430BF3182B950D
 ```
 
 https://mybot314.ru/tekegram_catalog/

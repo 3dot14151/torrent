@@ -1,3 +1,178 @@
+###  Публикация: 1779231   (70735) от 12.02.2025
+
+LØLØ (LOLO) - falling for robots & wishing i was one (2024) Deluxe Edition, 2025, Hopeless Records [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 intro [00:00:55]
+02 omg [00:02:34]
+03 faceplant [00:02:42]
+04 2 of us [00:02:46](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:53:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:064FFAF17343E5892DD8298CDD071C95BF72AEB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779238   (70733) от 12.02.2025
+
+Miss Tess - Cher Reve (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Country, Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Louisiana (3:55)
+02.  Ride That Train (3:28)
+03.  Nobody Wins (3:27)
+04.  Lord, I Need Somebody Bad Tonight (4:07)(   Читать дальше...   )Жанр: Blues, Country, JazzПродолжительность: 00:34:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD0947CA95FBE36172EEA650F60D780421C42195
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779219   (70713) от 12.02.2025
+
+Louis Philippson - Exposition (2025) (2CD) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andante festivo (Arr. for Piano by Jan-Peter Klöpfel) (3:17)
+02.  Jasmine (2:39)
+03.  Wagner Rheingold Vorspiel Variation (From Rheingold, WWV 86a, Arr. for 2 Pianos by Jan-Peter Klöpfel) (2:32)
+04.  Ravel Bolero Variation (After Bolero, M. 81, Arr. for Piano by Tim Allhoff) (2:34)(   Читать дальше...   )Жанр: Classical
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110A992B678D1A8ABBBE70551836E9E361AF874C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779527   (70670) от 13.02.2025
+
+Carmen Consoli - Terra Ca Nun Senti (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Buttana di to ma - Canta e cunta (05:05)
+ 02 - Masino (04:02)
+ 03 - Fiori d'arancio (03:43)
+ 04 - Il pendio dell'abbandono (03:43)(   Читать дальше...   )Жанр: PopПродолжительность: 01:03:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:506E9946CD5AD7583A4C7E290535AE5861855760
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779533   (70666) от 13.02.2025
+
+Dynazty - Game of Faces (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy-Power Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call of the Night (3:35)
+02. Game of Faces (3:15)
+03. Devilry of Ecstasy (3:26)
+04. Die to Survive (3:58)(   Читать дальше...   )Жанр: Heavy-Power Metal, Hard RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDC1E0F6E1FBDB273256D262B598A48DF20EE676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1779618   (70639) от 14.02.2025
+
+Crazy Lixx - Thrill Of The Bite (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Шведские хард-рокеры CRAZY LIXX выпустят новый студийный альбом “Thrill Of The Bite” 14 февраля 2025 года на лейбле Frontiers Music Srl.
+“Thrill Of The Bite” обещает поднять музыку CRAZY LIXX на новые высоты. На альбоме масса мощных гимнов, запоминающихся риффов и мелодий, зажигательных гитарных соло и могучей энергетики, которую фэны уже привыкли ждать от группы. (   Читать дальше...   )01.    Highway Hurricane  03:36
+02.    Who Said Rock N’ Roll Is Dead  03:02
+03.    Little Miss Dangerous  06:10
+04.    Call Of The Wild   04:14(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4583DDDAB3DDFC9B3566715980B0860BED5B984F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1779733   (70633) от 14.02.2025
 
 Ginger Evil - The Way It Burns (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -571,179 +746,6 @@ LMsc - Mystery Flow (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B388DECC858D4C228A90D0F35FD35BF09DAA5FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780849   (70359) от 20.02.2025
-
-David Rose - In the Spotlight (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Silky Nights (3:36)
-02.  Funky Smooth Vibes (3:35)
-03.  Finally Connected (3:54)
-04.  Groovy Brass Delight (3:43)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D8F676006D81D4D146B131059234F85FAA81E01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780834   (70356) от 20.02.2025
-
-Cut The Kids In Half - What We Became (2025) [FLAC 24/48|Lossless|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Storm Drain Girls (3:44)
-02.  A Good Man Died (4:34)
-03.  Run Kid (4:15)
-04.  Old Manhattan (5:55)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B21E67C4214A13BCB022C72822C79EC05FA639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780968   (70355) от 20.02.2025
-
-Electric Mojo - One for the Road (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  All That Glitter Is Not Gold (2:36)
-02.  See You in Hell (4:42)
-03.  Requiem for a Brother (4:25)
-04.  All the Lies Were True (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:239511882093636B83D1324665DD9E4101AA722D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780940   (70344) от 20.02.2025
-
-Jolly Joker - Jolly Joker (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  World Collapse (2:40)
-02.  Shotgun (3:12)
-03.  I Just Wanna (Kiss You)Жанр: Hard RockПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71518678B07855BC4C3771A7A466D1184C15E84C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780847   (70343) от 20.02.2025
-
-Lilly Hiatt - Forever (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hidden Day (2:44)
-02.  Shouldn’t Be (3:13)
-03.  Ghost Ship (3:59)
-04.  Somewhere (3:21)(   Читать дальше...   )Жанр: RockПродолжительность: 00:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AF8B20BADF73257F13C3DEB4B5732A254C347B35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780937   (70342) от 20.02.2025
-
-Little Freddie King - I Use To Be Down (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bywater Crawl (3:06)
-02.  Pocket Full of Money (3:04)
-03.  Going Up The Mountain (4:10)
-04.  Bad News (3:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168B9E3F179B40578A5B5ADCB65BAF27A6C8C3E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1067293   (408238) от 28.10.2016
+
+VA - Journey. Relaxing Instrumental Piano Bar and Smooth Jazz Music (2016) [MP3|320 Kbps] <Jazz, Lounge>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instrumental Jazz Music Ambient - Journey
+02. Jazz Piano Bar Academy - Smile Again
+03. Piano Jazz Calming Music Academy - What a Wonderful World
+04. Good Morning Jazz Academy - Shimmer of Mystery(   Читать дальше...   )Жанр: Jazz, LoungeПродолжительность: 01:33:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29695D6AE7AC68CAD186B6BAC30CD350E7F90689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 712805   (403216) от 19.10.2013
 
 Sade - 25 Best Songs (2012) [MP3|209 - 248 кб/с]<Soul>
@@ -722,38 +751,6 @@ VA - Hot Jazz in Denmark Vol.3 (2017) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F56E82B51BD050254DF4FA2D270141220EE7E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 576968   (360068) от 18.11.2012
-
-VA - Americans Swinging in Paris (Collection) (2002) [MP3|320 кб/с]<Retro, Swing, Jazz, Rock>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360068.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Captain Jetter (5:00)
-2.  Nuzzolese Blues (7:21)
-3.  Everything I Love (4:20)
-4.  On The Alamo (5:34)
-5.  Evening In Paris (3:20)
-6.  My Old Flame (3:23)
-7.  Little Jon Special (4:54)Жанр: Retro, Swing, Jazz, RockПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B92AA5E7877877E0A76983FA72F5C2B5C085B0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1370828   (893643) от 29.03.2020
+
+Mr. Mister - 2 альбома (1984-1985) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1984 - I Wear The Face
+1985 - Welcome To The Real WorldЖанр: RockПродолжительность: 01:29:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA2606AB19084D8025280DCF866A06D6622A19D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1493900   (892560) от 05.09.2021
 
 Елена Войнаровская (ex-Flёur) - Паломники (2021) [MP3|320 Kbps] <Rock, Artrock,, Indie, Cardiowave>
@@ -719,35 +747,6 @@ Joe Satriani - Shapeshifting (2020) [MP3|320 Kbps] <Instrumental Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5491C8C062F6B8329FAFF167303F8AB0FF396A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997511   (873895) от 17.03.2016
-
-Sam Apple Pie - East 17 (1972) [MP3|320 кб/с] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Time Music
-02. Louise
-03. Out On The Road
-04. Route 66(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BEC17164F65988F6726AE86620F781B464FF432
 ```
 
 https://mybot314.ru/tekegram_catalog/

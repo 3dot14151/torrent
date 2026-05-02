@@ -1,3 +1,177 @@
+###  Публикация: 1152515   (599863) от 02.05.2022
+
+Karat - Schwanenkönig (Schwanenkonig) (1980) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599863.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Tanz Mit Der Sphinx
+A2 Mitternacht-Blues
+A3 Magisches Licht
+A4 Der Boxer(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C498842D7398C7EAA03C7A1CCE58F37006DACF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150936   (599858) от 02.05.2022
+
+Ольга Пирагс - Спасибо, Музыка, Тебе (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Два Стрижа
+02. По Коням
+03. Дождевые Кольца
+04. Не Забыть Нам(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:37:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C72EBB761AEF6F73201CE9988F99C5CCB97E8FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152267   (599856) от 02.05.2022
+
+P.R. Computer - P.R. Computer (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Electronic, Synth-pop, Modern Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599856.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Jól Hangolt Computer (Well Tempered Computer)
+A2 Északi Fény (Arctic Light)
+A3 Az Inga (The Pendulum)
+A4 Hajtóvadászat (Chase)(   Читать дальше...   )Жанр: Electronic, Synth-pop, Modern ClassicalПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BC4B0B34970F0A4D3008032A6FE1F4BCA0A196
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152547   (599584) от 02.05.2022
+
+VA - Марк Минков - Парад Планет (1983) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599584.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Алла Пугачева - Если звёзды молчат
+А2 Алла Пугачева - На дороге ожидания
+А3 Яак Йоала - Из памяти уходят имена
+А4 Алла Пугачева - Не отрекаются любя(   Читать дальше...   )Жанр: Pop Rock, Classic RockПродолжительность: 00:37:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEF68BEEF591E17BF984C46C9DC63AE19769CAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152314   (599576) от 02.05.2022
+
+Ricchi E Poveri - Богатые и Бедные (1985) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599576.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Мама Мария · Mamma Maria
+A2 Бедные · Poveri
+A3 Чудесный Вечер · Magnifica Serata
+A4 Недоразумение · Malinteso(   Читать дальше...   )Жанр: PopПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CB0D755309422EF95806E839EEE2273AAECDB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039081   (599071) от 30.07.2016
+
+Genesis - Selling England by the Pound (1973) 2014, Remastered, Virgin [DTS-HD MA, LPCM 2.0, 5.1|96/24|Blu-ray] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Blu-ray Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятый студийный альбом британской прогрок-группы Genesis, записанный и выпущенный в 1973 году. Он последовал за альбомом Foxtrot и был пиком коммерческой успешности коллектива эпохи Гэбриэла, в Великобритании он занял третью позицию в чарте. К 1990 году альбом достиг планки золотого в США.01. Dancing With The Moonlit Knight
+02. I Know What I Like (In Your Wardrobe)
+03. Firth Of Fifth
+04. More Fool Me(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56A3F26F5997A738E59030E7F347D379740F867B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039116   (599066) от 30.07.2016
 
 John Lennon - Imagine (1971) 2014, Universal Music [DTS-HD MA, LPCM, Dolby TrueHD 2.0|96/24|Blu-ray] <Rock>
@@ -569,179 +743,6 @@ A4 Let's Put Out The Lights (And Go To Sleep)(   Читать дальше...   
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D554410E59E11D75E351C627B965CC74770AC44A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042634   (593733) от 06.05.2022
-
-Ray Conniff/Рэй Коннифф - Смех Под Дождем (1976) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593733.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Смех Под Дождем (Laughter In The Rain)
-А2 Я Действительно Тебя Люблю (I Honestly Love You)
-A3 Закат (Sundown)
-A4 Ангелочек (Angie Baby)(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:33:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1655F0090854A45F02B4616BF73161E16B5AC5B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549435   (593359) от 07.05.2022
-
-Ray Conniff/Рэй Коннифф - Голубая Рапсодия (1987) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593359.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Страна Улыбок
-A2 Грезы Любви
-A3 Романс
-A4 Парафраза(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:40:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB3EB617B322DEC6AFD9997B13D1BC7727A82D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549733   (592844) от 08.05.2022
-
-Twisted Sister - Studio Albums (8 releases) (1982 - 2006) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy Metal/Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592844.jpg" />
-</div>
-
-
-###  Подробнее
-
-Twisted Sister — американская глэм-метал-группа из Нью-Йорка.
-Глэм рок и металл, рваные чулки, тонны макияжа и лак для волос, вот вам формула успеха по канонам шока и песенного бунта. Смешав экстравагантный имидж с традиционным хэви металлом, эти ребята из Нью-Йорка оставили свой кричащий след на молодом поколении 80-х. Да, и как можно забыть бас гитариста бьющего (   Читать дальше...   )1982 - Under The Blade
-1983 - You Can't Stop Rock 'n' Roll
-1984 - Stay Hungry
-1985 - Come Out And PlayЖанр: Heavy Metal/Hard RockПродолжительность: 07:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB7C0E85787712182A6D13CF60A8EE7B11EAAA9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549879   (592843) от 08.05.2022
-
-Mike Oldfield - Tubular Bells (1973) remaster 2001 [DTS 4.0 CD-DA|44.1/16|image+.cue|SACD] <Art Rock, Prog-Rock, Progressive Electronic>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tubular Bells (Part 1)
-02. Tubular Bells (Part 2)Продолжительность: 00:51:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F62E23A154A3D63BBF16D052ACFB072868D652C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549888   (592470) от 10.05.2022
-
-Opeth - Дискография (19 albums) (1995 - 2019) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive Death Metal, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opeth — метал-группа из Швеции. Для ранней музыки Opeth характерно тяжёлое дэт-металическое звучание с добавлением мелодичных партий акустической гитары, элементов джаза, блюза и прогрессивного рока 1970-х годов. Вокалист Микаэль Окерфельдт (швед. Mikael Åkerfeldt) использует как чистый вокал, так и гроулинг. Название группы взято из книги Уилбура Смита The (   Читать дальше...   )1995 - Orchid
-1996 - Morningrise
-1998 - My Arms, Your Hearse
-1999 - Still LifeЖанр: Progressive Death Metal, Progressive RockПродолжительность: 25:54:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77849C14990A67012EB6383067160B9F49AA1ED3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549955   (592466) от 10.05.2022
-
-Mastodon - Дискография (15 albums) (2001 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Progressive/Sludge Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592466.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mastodon — американская метал-группа из Атланты (США), в звучании которой соединились сладж, грув и прогрессив-метал с элементами стоунера. Основана в 2000 году барабанщиком Брэнном Дейлором и гитаристом Биллом Келлихером.2002 - Remission
-2004 - Leviathan
-2006 - Blood Mountain
-2009 - Crack the Skye(   Читать дальше...   )Жанр: Progressive/Sludge MetalПродолжительность: 14:04:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9FC2D182522D1529345B5F1C021AED4ACFDCCC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

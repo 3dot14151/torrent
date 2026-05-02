@@ -1,3 +1,61 @@
+###  Публикация: 1640781   (233845) от 19.06.2023
+
+Stanley Turrentine - The Best of Stanley Turrentine (1990) Epic [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar [10:03]
+02. Gibraltar [11:22]
+03. Storm [9:06]
+04. Speed Ball [6:40](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:15:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B907A4EF16298504D1EF5ED12FEC2499DA7DEAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623545   (233819) от 02.04.2023
+
+Dinah Washington - La Reine - The Queen (1943 - 1957) 2CD, 2008, Fremeaux & Associes [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_233819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pillow Blues [2:58]
+02. I Cried for You [2:31]
+03. Feel Like I Wanna Cry [3:22]
+04. Am I Blue [3:18](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:07:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D3949CAE1A2D42D804E15E281C523DAF337B97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1640980   (233759) от 20.06.2023
 
 Jay Jay Johnson Sextet - With Clifford Brown, Vol.1 (1953, 1954) 1995, Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -687,64 +745,6 @@ Count Basie & Joe Williams - The Greatest!! Count Basie Plays... Joe Williams Si
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DB864FA58E6D628796F5B60F6A169B4A91249B4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642897   (233058) от 29.06.2023
-
-Dave Erickson Project - JAMB (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth Brew (3:18)
-02. Welcome Back (3:13)
-03. Eventide (3:59)
-04. Jamb (3:09)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E71048831F4CEF2BABBE3CCB44C66D4FE65C504
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1634923   (233022) от 23.05.2023
-
-Dick Hyman - From The Age of Swing (1994) Reference Recordings [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233022.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From The Age of Swing [5:03]
-02. You're Driving Me Crazy / Moten Swing [4:25]
-03. Topsy [6:08]
-04. Moonglow [3:24](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 01:06:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D825EF24572AC031EDF0D88C14A83832CD705C06
 ```
 
 https://mybot314.ru/tekegram_catalog/

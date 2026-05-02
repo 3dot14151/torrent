@@ -1,3 +1,119 @@
+###  Публикация: 1845298   (1050702) от 31.12.2025
+
+VA - Свежий Русский Хит от ALEXnROCK часть 19 (2025) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1050702.jpg" />
+</div>
+
+
+###  Подробнее
+
+С интересом наблюдаю, как в умах и сердцах просыпается Родина и отечественные музыканты меняют вектор развития творчества. Постепенно уходя от подражательства новодельной западной шляпы и всякой навязанной чуши, вроде мямлей и блеяния. Ищут и вырабатывают именно наш стиль и звучание. И это в масштабах всей страны. Много ерунды конечно творят, не без этого. Но как (   Читать дальше...   )01. Валя Карнавал - Мы в клуб
+02. R.Riccardo & Nabolelo - Зима пришла
+03. Григорий Лепс - Рок-н-ролл в кармане
+04. Элвин Грей & Скани - Письма(   Читать дальше...   )Жанр: PopПродолжительность: 03:56:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6B44FC8727A10CC14D1B11D3D1B91F542E0CFE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843696   (1049547) от 21.12.2025
+
+Dakota Lane - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Déjà Vu
+02 - Lucifer
+03 - I Am Safe Inside Your Heart
+04 - Lonely Satellite(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC503CB1DDEC65ED3066B6DC171B7794B30FA943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1843695   (1049546) от 21.12.2025
+
+Dakota Lane - Favorites Collection Part 1 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1049546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Crying in the Night
+02 - You Wrote My Life
+03 - In 100 Years
+04 - Samba, Sweet Elena (Samba Mix)(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 01:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3B4316D071419B0598D377D3010BAFCDF2B514F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841986   (1048701) от 15.12.2025
+
+VA - Hit music (2025. Зима) (2025) [MP3|320 Kbps] <POP>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048701.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fantomel x A - Traxx, K.Linn, K.Funk - Dame Un Grrr (Dj Baur VIP Edit)
+002. Basic Element - Leave It Behind (Oneon Remix)
+003. Инкогнито - До тебя
+004. Taylor Swift - The Fate of Ophelia (Dj Dark Remix)(   Читать дальше...   )Жанр: POPПродолжительность: 09:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DFEB98ADF2A3AB2273706B5ACCE955487146815
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1842211   (1048587) от 15.12.2025
 
 Reyvi - Favorites Collection Part 9 (2025) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -629,122 +745,6 @@ VA - Наше Радио. Лучшее '2020 (2021) MP3 от DON Music [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:416499D96F262FCDE5B1EE724F8E5F8E5561726C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1440893   (1038239) от 19.01.2021
-
-VA - Hospitality Christmas Pop Party (2021) [MP3|320 Kbps] <Pop, Romantic, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Приятные и простые мелодии музыкальной подборки "Hospitality Christmas Pop Party" слушаются на едином дыхании, делая пластинку крайне простой и легкой для восприятия. Остаться равнодушным к такой музыке сможет только тот, кто абсолютно глух.001. Shakira - Whenever, Wherever
-002. Nico Santos - Nothing To Lose
-003. Pharrell Williams - Happy
-004. In-Grid - Summer Souvenir(   Читать дальше...   )Жанр: Pop, Romantic, DanceПродолжительность: 08:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC79F78C4E1122FFEE9F5DAFF2B23C3A2777690D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615353   (1037816) от 25.02.2023
-
-VA - German Top 100 Single Charts 24.02.2023 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037816.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Udo Lindenberg & Apache 207 - Komet (2:47)
-002. Miley Cyrus - Flowers (3:20)
-003. AYLIVA feat. MERO - Sie weiß (feat. Mero) (2:31)
-004. Raye feat. 070 Shake - Escapism. (4:32)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AAE931D471ABA2CC66B179B3AF10D3C42FEEFCBC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441496   (1037376) от 22.01.2021
-
-VA - Party Retro Hits 80s (2021) [MP3|320 Kbps] <Pop, Rock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037376.jpg" />
-</div>
-
-
-###  Подробнее
-
-Некогда самые известные, а ныне немного подзабытые популярные мелодии из прошедшего столетия в лонгплее под названием "Party Retro Hits 80s", накатят волну ностальгии и как и прежде порадуют Вас своими заводными мелодиями.001. Kylie Minogue - Hand On Your Heart
-002. The Whispers - And The Beat Goes On
-003. Re-Flex - The Politics Of Dancing
-004. Clannad, Bono - In A Lifetime(   Читать дальше...   )Жанр: Pop, Rock, DiscoПродолжительность: 06:46:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D6C921A1EECF1E3987DF0BE2F33CFCB51380CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441871   (1037178) от 23.01.2021
-
-VA - German Top 100 Single Charts 22.01.2021 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kasimir1441, badmómzjay & WILDBWOYS - Ohne Dich
-02. Olivia Rodrigo - drivers license
-03. Katja Krasavice - HIGHWAY (feat. ELIF)
-04. Rin - Dirty South(   Читать дальше...   )Жанр: PopПродолжительность: 04:56:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6343AC13E61BB1E04506823B51F28BF4336BA782
 ```
 
 https://mybot314.ru/tekegram_catalog/

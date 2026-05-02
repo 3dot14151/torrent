@@ -1,3 +1,148 @@
+###  Публикация: 1861130   (1062317) от 24.03.2026
+
+Hollywood Symphony Orchestra - Orchestral Fireworks (1966) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062317.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Comedian's Galop (From The Comedians)
+A2 Dance Macabre
+A3 Fireball Polka
+A4 Magic Fire Music (From The Valkyries)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B11B3B3DAF469562D6B9B466EBC67ACC7472AB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1861096   (1062316) от 24.03.2026
+
+Celine Dion - I Am. Original Motion Picture Soundtrack (2024) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soundtrack, Score, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062316.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Main Theme - Artist Always (Score)
+A2 The Power Of Love
+A3 Pour Que Tu M'aimes Encore
+A4 A New Day Has Come (Radio Remix)(   Читать дальше...   )Жанр: Soundtrack, Score, Pop RockПродолжительность: 01:17:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C0B5DA4B028F01BFCFF170016CE51F803C9FC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860844   (1062283) от 23.03.2026
+
+Johnny Mathis - Faithfully (1959) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062283.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Faithfully
+A2 Tonight
+A3 Nobody Knows (How Much I Love You)
+A4 One Starry Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:921F9A4FFDDF1B10E39B00194DBC387663823425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860837   (1062282) от 23.03.2026
+
+Barry Manilow - Manilow Magic. The Best Of Barry Manilow (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062282.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Mandy
+A2 New York City Rhythm
+A3 Looks Like We Made It
+A4 Can't Smile Without You(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC1A5FBA65CEA6FF5AB1F631F0F85DF9AC65F52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1860348   (1061627) от 20.03.2026
+
+Les Paul And Mary Ford - Lovers' Luau (1959) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Folk, Hawaiian, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061627.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Blue Hawaii
+A2 Drifting And Dreaming
+A3 King's Serenade (Imi Au Ia Oe)
+A4 Song Of The Islands (Na Lei O Hawaii)(   Читать дальше...   )Жанр: Folk, Hawaiian, InstrumentalПродолжительность: 00:28:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD4C23BFADA349D59E5D93DDF05945BB9B7DF7C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1859981   (1061595) от 18.03.2026
 
 Peggy Lee - I'm A Woman (1963) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Blues>
@@ -597,151 +742,6 @@ Cathedral — метал-группа из Ковентри, Англия, ос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:01D6F3099DF85B260D4C1487C81B68E0B52E88B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855693   (1058190) от 24.02.2026
-
-Ghosts of Jupiter - Studio Albums (4 releases) (2011-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock, Psychedelic Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058190.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ghosts of Jupiter - американская рок-группа из г. Бостон, основана в 2011 году.2011 - Ghosts Of Jupiter
-2013 - Green Is Gold, Vol. 1 (EP)
-2016 - The Great Bright Horses
-2021 - Keepers Of The Newborn GreenЖанр: Prog Rock, Psychedelic RockПродолжительность: 02:35:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC4FD603AFAE51818144FBC1893654D5E4F358E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1855117   (1057984) от 22.02.2026
-
-Handel, The Academy Of St. Martin-in-the-Fields - Concerto (1979) cond. Neville Marriner [FLAC 2.0|48/24|image +.cue|MC-Rip] <Classical, Baroque, Orchestra>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057984.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Music For The Royal Fireworks
-Water Music
-A2 Suite In G Major
-B1 Suite In D Major(   Читать дальше...   )Жанр: Classical, Baroque, OrchestraПродолжительность: 02:44:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2A9B1B0E2162B8C826E3AD03B733157CB27741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854951   (1057602) от 20.02.2026
-
-Rotting Christ (Sakis Tolis; χ ξ ς') - Studio Albums (20 releases) (1991-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal, Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057602.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rotting Christ - греческая метал-группа, созданная в Афинах в 1987 году. Является одной из самых известных метал-групп Греции.1991 - Passage To Arcturo (EP)
-1993 - Thy Mighty Contract
-1994 - Non Serviam
-1996 - Triarchy Of The Lost LoversЖанр: Melodic Black Metal, Gothic MetalПродолжительность: 15:45:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7CAA7F95FFEECD128FC2BFBD08B1654AC361708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854505   (1057272) от 18.02.2026
-
-VA - Emotions (1978) Billy Joel, Chris Rea, Andy Williams, Bonnie Tyler and other [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057272.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Samantha Sang (with The Bee Gees) - Emotions
-A2 Deniece Williams - Free
-A3 Billy Joel - I Love You Just The Way You Are
-A4 Gallagher & Lyle - I Want To Stay With You(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2DA25C859E410EB9C926B1618A3656CEF9A410F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1854364   (1057177) от 17.02.2026
-
-Callisto - Studio Albums (5 releases) (2002-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Sludge/Post-Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057177.jpg" />
-</div>
-
-
-###  Подробнее
-
-Callisto — пост-метал группа из города Турку, Финляндия, основана в 2001 году.2002 - Ordeal of the Century (EP)
-2004 - True Nature Unfolds
-2006 - Noir
-2009 - ProvidenceЖанр: Sludge/Post-MetalПродолжительность: 04:17:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5208F15A5932C9CC53243CBC88847569B4ACD29
 ```
 
 https://mybot314.ru/tekegram_catalog/

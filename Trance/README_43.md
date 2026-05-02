@@ -1,3 +1,148 @@
+###  Публикация: 1838864   (261501) от 25.11.2025
+
+VA - Uplifting Only Top 15: November 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ADOVE (CH) - Lavender Field (Intro Mix) [7:55]
+02. Alexander Komarov - The Lion Is Born (Extended Mix) [5:03]
+03. Cedric Paul - Harmonic Skies (Extended Mix) [8:44]
+04. Mhammed El Alami - Dawn (Sunyella Extended Remix) [6:47](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:47:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E6D316609985FDB8DD7ABF474923FE33B5E3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838862   (261500) от 25.11.2025
+
+VA - Uplifting Only Top 15: October 2025 (Extended Mixes) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Poinoir - Motherland (Intro Mix) 08:22
+02. Illitheas - Golden Skies (Extended Mix) 07:07
+03. Manuel Le Saux & Db Mokk - Inferno (Extended Mix) 06:17
+04. Phil Dinner - Epic (Original Mix) 04:57(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:39:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCF12AB3DC0E9C4A0EA35C4580891AF4F9D086B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838379   (260996) от 22.11.2025
+
+VA - Trancendence, Vol. 06 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260996.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stéphane Badey - Dark Spectrum (Original Mix) [3:50]
+02. Ruslan Borisov - Through Time (Original Mix) [3:38]
+03. Alternate High - Hope (Original Mix) [3:35]
+04. Speed DJ - Forging (Extended Mix) [6:38](   Читать дальше...   )Жанр: TranceПродолжительность: 01:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51EEED054CD9B1FB3E59C49432C42853495216A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838181   (257986) от 21.11.2025
+
+VA - The Best Of Suanda Dance 2025 (2025) [MP3|320 Kbps] <Dance, Club, Trance, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer & ThoBa & Justin J. Moore - Now We're Found (Extended Mix) [3:33]
+02. Michael Milov & H4lo & Barbie Mak - Something Better (Extended Mix) [3:44]
+03. CrIsKo - Don't Believe In Love (Extended Mix) [5:04]
+04. Feel - Now We Are Free (Extended Mix) [4:32](   Читать дальше...   )Жанр: TranceПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C78B661F78CFBD6BECA5DF18ED7D47F1B3B5D1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1838036   (257744) от 20.11.2025
+
+VA - New Year Trance Rave 2026 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_257744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Mactire - Irruption 07:28
+02. Andrew Modens - Dreaming 05:04
+03. Betelgeuze - Dissolution 06:49
+04. Chris Pryde - The Last Fight 05:37(   Читать дальше...   )Жанр: TranceПродолжительность: 01:26:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D541E9B1C94CEC29162DBAC093F039AE337E30EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838003   (257740) от 20.11.2025
 
 VA - The Best Of Suanda Progressive 2025 (2025) [MP3|320 Kbps] <Trance, Progressive>
@@ -600,148 +745,6 @@ VA - Uplifting Only Top 15: January 2023 (Extended Mixes) (2023) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBF4D86B376FAEDAB78C0C068F468A5BB32A8406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447584   (245993) от 14.02.2021
-
-Alexander Popov - Adagio (2021) Singles [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245993.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Alexander Popov - Adagio (Extended Mix)Жанр: TranceПродолжительность: 00:06:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5A2B7116D65E80B2877DF378DF36CC1F22462A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607897   (245971) от 28.01.2023
-
-VA - World Of Trance (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Liam Wilson & Grez Turner - The Optimist (Original Mix) [8:00]
-02. Lostly - Lost Angeles (Original Mix) [7:46]
-03. Ehren Stowers - Vainqueur (Original Mix) [6:21]
-04. Robbie Van Doe - Haywire (Original Mix) [8:29](   Читать дальше...   )Жанр: TranceПродолжительность: 01:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28504E4024424269FFF1A519D6EB15D654C7645E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630257   (245761) от 30.04.2023
-
-VA - Progressive Dreamland (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goblin Hulms - You're Not Alone (Extended Mix) [06:41]
-02. Humbaba - Back to Me (Extended Mix) [06:45]
-03. Mike van Olsen - Oblivion (Original Version) [05:00]
-04. Jacob Ireng - Nobody (Extended Mix) [04:15](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90EC9294249F3BF056D18A18E0AF6A6ACD9B307
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448875   (245546) от 19.02.2021
-
-VA - Exotic Paradise Vol.1 (2021) [MP3|320 Kbps] <Trance, UpliftingTrance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245546.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AlexRusShev - Christina (Emotional Anthem)
-02. AlexRusShev - Disconnection (Extended Mix)
-03. AlexZideyn & AlexRusShev - Waterfall (Original Mix)
-04. AlexZideyn & Margo Lane - I Want To Be With You (SHARK Remix)(   Читать дальше...   )Жанр: Trance, UpliftingTranceПродолжительность: 02:15:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6133A0BD6C355EC88212C67E556D106757F37F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630572   (245512) от 02.05.2023
-
-Roger Shah & Ambedo - Tribute To Earth (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roger Shah & Ambedo - Tribute To Earth (Mixed) [6:34]
-02. Roger Shah & Ambedo - Sun And Moon (Mixed) [5:41]
-03. Roger Shah & Ambedo - Oceans (Mixed) [5:39]
-04. Roger Shah & Ambedo & Yélow feat. Capri - The Greatest Gift (Mixed) [6:19](   Читать дальше...   )Жанр: TranceПродолжительность: 01:14:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4E32522EFB145A13B10161E00266D86F99F273
 ```
 
 https://mybot314.ru/tekegram_catalog/

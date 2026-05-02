@@ -1,3 +1,29 @@
+###  Публикация: 1096016   (922456) от 22.01.2017
+
+EZ CD Audio Converter 5.1.0.1 Ultimate RePack (& portable) by KpoJIuK [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922456.jpg" />
+</div>
+
+
+###  Подробнее
+
+EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8C535344B517F11B4158C705B56DEDE495589CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1095741   (922385) от 22.01.2017
 
 Free Download Manager 5.1.23.5672 [Multi/Ru]
@@ -646,32 +672,6 @@ JetBrains DataGrip – новейшее программное обеспече�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:810D92AC08AF02D7018B4D96BAAF445572981F7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096046   (922186) от 22.01.2017
-
-SamDrivers 17.0 LAN [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922186.jpg" />
-</div>
-
-
-###  Подробнее
-
-Версия SamDrivers только с драйверами для сетевого оборудования (сетевых LAN и беспроводных Wi-Fi/WLAN устройств). В качестве оболочек-установщиков для автоопределения вашего оборудования и автоматической установки необходимых драйверов использованы специальные программы: DriverPack Solution 16.12 Plus / Drivers Installer Assistant 7.12.28 / Snappy Driver Installer (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14FC63C0C69C79DABD38A3C939D654525E2379D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

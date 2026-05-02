@@ -1,3 +1,61 @@
+###  Публикация: 999328   (864909) от 22.03.2016
+
+VA - Jazz Today! (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florian Pellissier Quintet - Cap de bonne esperance 06:25
+02. Sebastien Texier, Armel Dupas, Louis Moutin, Nguyen Le & Henri Texier - Dakota 08:20
+03. Luca Aquino - Blue Sunday 04:59
+04. Pj5 - Yggdrasil 04:26(   Читать дальше...   )Жанр: JazzПродолжительность: 01:15:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01CDE0DA08C56C7DD7F67029BE0AF8E7290943C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497450   (864870) от 22.09.2021
+
+Herb Alpert - Catch The Wind (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Pop Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slick
+02. Catch The Wind
+03. Eleanor Rigby
+04. Dance With Me(   Читать дальше...   )Жанр: Smooth Jazz, Pop JazzПродолжительность: 00:43:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:182F1F26EC58130D01CF8D90E1026F2BD11FDE6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1497418   (864867) от 22.09.2021
 
 Art Blakey & The Jazz Messengers - Vol. 2: Mission Eternal (1973) 1995, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -687,64 +745,6 @@ Julian Lage & Chris Eldridge - Mount Royal (2017) [FLAC|Lossless|WEB-DL|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6F2471689169BBEE351844EFEB7AD7FD27A1C076
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108505   (863194) от 25.02.2017
-
-Gerry Mulligan & Stan Getz - Getz Meets Mulligan In Hi-Fi (1957) 1999, Verve [FLAC|Lossless|tracks + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863194.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Let's Fall In Love [06:28]
- 02.Anything Goes [03:38]
- 03.Too Close For Comfort [06:58]
- 04.That Old Feeling [05:59](   Читать дальше...   )Жанр: CoolПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4E8F4C6CF846CFB1B515380D2045648D63D3272
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497650   (863162) от 23.09.2021
-
-Terry Gibbs Quartet - Plays Terry Gibbs Featuring Alice McLeod (1963) 2012, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burton Up Your Lip [2:25]
-02. Up at Logue's Place [3:12]
-03. One for My Uncle [2:44]
-04. Ballad for Barbara [3:47](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 01:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BDAE1397162109EB2C7826F854C91F9C9B58915
 ```
 
 https://mybot314.ru/tekegram_catalog/

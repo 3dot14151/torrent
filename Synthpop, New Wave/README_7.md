@@ -1,3 +1,32 @@
+###  Публикация: 1316540   (505160) от 27.07.2019
+
+Profil - Profil (серия "Другие восьмидесятые") (1982) CD, Album, Remastered, 2016, Genetic Music [MP3|320 Kbps] <NDW, New Wave, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_505160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beruhren (Single Version)
+02. 1964
+03. Schwimmen im Geld
+04. Regennacht(   Читать дальше...   )Жанр: NDW, New Wave, Synth-popПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0B061053D5F1ED537BE9862FCCE70CF4B1AAC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316854   (503971) от 28.07.2019
 
 Yello - 3 Editions (2012, 2017) Remixes [MP3|320 Kbps] <Electronic, Pop, Synth-pop>
@@ -716,35 +745,6 @@ Hurts - Surrender (2015) Deluxe Edition [MP3|320 кб/с]<Synthpop, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:35603F44878A987F06053B974EF3A11B16DE029F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1571663   (425505) от 25.08.2022
-
-Sandra - Curated By Blank & Jones – So80s (Soeighties) Presents Sandra, 2CD (2012) [OGG Vorbis|485 Kbps] <Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maria Magdalena (Extended Version)	7:11
-02. In The Heat Of The Night (Extended Version)	7:24
-03. Little Girl (Extended Version)	5:21
-04. Innocent Love (Extended Version)	6:46(   Читать дальше...   )Жанр: Synth-popПродолжительность: 02:37:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E209CC2FDCDF72104258A5419487690CE3946314
 ```
 
 https://mybot314.ru/tekegram_catalog/

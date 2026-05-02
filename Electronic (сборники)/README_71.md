@@ -1,3 +1,61 @@
+###  Публикация: 1018600   (754007) от 21.05.2016
+
+VA - Dance Size Forever Moonlight (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Perry - Alegria (Extended Mix) 4:09
+02. Xtance Feat. Jo - Forever Mine (Original Mix) 4:53
+03. Miss Diva - Love Me (Marious Remix Edit) 3:58
+04. Burak Yeter - It Ain't Over (Extended Mix) 4:57(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 04:04:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0783143C5BDCB2B36DB9C7CFFF85A4BFF19AEE87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018747   (753893) от 21.05.2016
+
+VA - Discoteka 2016 Dance Club Vol.152 (2016) [MP3|320 кб/с] <House, Trance, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753893.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bobina & May, Britt Scheffer - Born Again 4:17
+002. DJ Smash - Feel The Summer 3:20
+003. Calvin Harris - This Is What You Came For (feat. Rihanna) 3:42
+004. Markus Schulz feat. Adina Butar - You And I 4:36(   Читать дальше...   )Жанр: House, Trance, Club, DanceПродолжительность: 12:18:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B6DF3926DDC6FB538796EE53E0E85E7D97E0E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1216093   (753062) от 29.03.2018
 
 VA - No Stress Relaxing Beats (2018) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
@@ -688,64 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B97EE91B0ECF9FE818F3ADCF248FA87923EC7202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019561   (750180) от 23.05.2016
-
-VA - Spacesynth 4ever (mCITY Edition) (2016) [MP3|320 кб/с] <Electronic, Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. MindXpander - Sea Of Stars (Xpanderland Version)
-02. Mr.Ed Vink - E-Space
-03. Oblivion - Exclusion Area (Radioactivity Theme)
-04. P89 - Starfall(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 02:11:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C33413EAB9BF8794FAB92751FEAB2B08288F3767
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396012   (750066) от 13.07.2020
-
-VA - Record Super Chart 644 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. twocolors - Lovefool (3:10)
-2. Topic feat. A7S - Breaking Me (2:46)
-3. Zivert feat. NILETTO - Fly 2 (3:25)
-4. Dynoro & Fumaratto - Me Provocas (2:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97328CE8338802DA5B3542898ACF1DF928577F86
 ```
 
 https://mybot314.ru/tekegram_catalog/

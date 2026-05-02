@@ -1,3 +1,176 @@
+###  Публикация: 1728706   (108273) от 08.06.2024
+
+Dream Drop - Acne Superstar (2023) Extended version, 2024, GAIN [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – I’m Still Sick
+02 – Acne Superstar
+03 – Fold Under Pressure
+04 – That’s Not The World At All(   Читать дальше...   )Жанр: Alt.Rock, Alt.MetalПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFC29305C72D8D5295ECC677D0FF6891D2EFB252
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728820   (108269) от 08.06.2024
+
+Margaux - Inside the Marble (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <indie pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DNA [00:04:35]
+02. Picture It [00:03:31]
+03. I Wouldn't Want It Any Other Way [00:03:17]
+04. Sadie Something [00:02:34](   Читать дальше...   )Жанр: indie popПродолжительность: 00:38:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFFEE446D8407BB3E01E0C742FC032E2D29DE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728777   (108266) от 08.06.2024
+
+Atrophy - Studio Albums (3 releases) (1988-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Atrophy - американская трэш-метал группа, образованная в Тусоне, штат Аризона.1988 - Socialized Hate
+1990 - Violent By Nature
+2024 - AsylumЖанр: Thrash MetalПродолжительность: 02:09:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D3BF7C0E4AE31CD33B18046936EB14BF7D67B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728663   (108264) от 08.06.2024
+
+Toxic Holocaust - Studio Albums (6 releases) (2003-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108264.jpg" />
+</div>
+
+
+###  Подробнее
+
+Toxic Holocaust — американская трэш-метал-группа, основанная в Портленде в 1999 году.2003 - Evil Never Dies
+2005 - Hell On Earth
+2008 - An Overdose Of Death
+2011 - Conjure and CommandЖанр: Thrash MetalПродолжительность: 03:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78627459D5244934FE0EA2284DBF475A522B020C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728707   (108263) от 08.06.2024
+
+Evergrey - Theories Of Emptiness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Falling From The Sun
+02 – Misfortune
+03 – To Become Someone Else
+04 – Say(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3765C6A4D2468BA261BF1C563AC7E8EE94A092B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728779   (108261) от 08.06.2024
+
+LImperatrice - Pulsar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <nu disco, french pop, synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmogonie [00:02:49]
+02. Amour Ex Machina [00:04:03]
+03. Me Da Igual [00:03:29]
+04. Love from the Other Side [00:04:09](   Читать дальше...   )Жанр: nu disco, french pop, synthpopПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:302188F6CE63F1581F24457472D54FE46B52E8FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728700   (108254) от 08.06.2024
 
 Hippotraktor - Stasis (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive, Post Metal>
@@ -571,180 +744,6 @@ Goat Girl - Below The Waste (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6158E3E53DDE7C2A06E513FD53E65CE02A513E72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728900   (108151) от 09.06.2024
-
-Intranced - Muerte Y Metal (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108151.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reyes De Las Tinieblas (03:53)
-02. Switchblade (04:25)
-03. Fantasy (04:18)
-04. I Dunno Nothin' (03:39)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0051BE6CFB4CB2696FA78892EA4505A3C7571D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728903   (108148) от 09.06.2024
-
-The Measure - Heaven Is Only In Our Dreams (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108148.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Void [00:03:40]
-02. One Million Eyes [00:03:43]
-03. What I Am [00:03:19]
-04. DAYDREAMER [00:03:45](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:30:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11AE13A397EE99F13BD6B402909B15BF11DD931F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729339   (108131) от 10.06.2024
-
-The Hu - Live At Glastonbury (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shihi Hutu (Live at Glastonbury)
-02. The Gereg (Live at Glastonbury)
-03. Shoog Shoog (Live at Glastonbury)
-04. Eseerin Vasahina (Live at Glastonbury)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F84D2BCFEEBAEC58CA4007807718DD126FE31482
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729300   (108129) от 10.06.2024
-
-Johanna Red - Stronger Than You Thought (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Games (3:41)
-02. Stronger Than You Thought (3:30)
-03. Hiding in Your Lies (3:45)
-04. Red Room (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E6C0C2DCC2B9534959CE17CEDD0834A985380E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729298   (108126) от 10.06.2024
-
-Ivan Kravchenko - Lady Made of Sand (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lady Made of Sand (2:55)
-02. Waves (2:34)
-03. Beautiful Liar (4:37)
-04. Special (Nastly Liquor) (2:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94F232C1C506E74D964A75DC51CFEF048C36F1B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729294   (108124) от 10.06.2024
-
-Calvin Russell - Tribute To Calvin Russell (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugh Coltman - Shadow Of Doubt (4:33)
-02. Manu Lanvin - Wild Wild West (4:17)
-03. David Minster - Behind The 8 Ball (5:54)
-04. Beverly Jo Scott - Crossroads (5:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76977C7873C94B95A2E9BFFC5B80D5B4DDC4C3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1844805   (1050418) от 28.12.2025
+
+VA - Fortune Teller Blues - Smming up the Results (2025) [MP3|320 Kbps] <Blues, Blues rock, Instrumental>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050418.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Playing For Change - Fly Like an Eagle [04:19]
+002. Popa Chubby - I'm Going Down [05:31]
+003. Def Leppard - Stand By Me [03:11]
+004. Professor Louie & The Crowmatix - Stick To The Plan [05:25](   Читать дальше...   )Жанр: Blues, Blues rock, InstrumentalПродолжительность: 08:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AD37F7C4320E76FFE4C47E1B12C8216AD1DE377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1844397   (1050328) от 29.12.2025
 
 VA - Merry Christmas At the Hammond Organ (2025) [MP3|320 Kbps] <Jazz, Blues, Instrumental>
@@ -716,35 +745,6 @@ VA - My Heart's In Blues (2023) [MP3|320 Kbps] <Blues, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A654D4443FE06C1D9704C3EFAD2F46F963F2F26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447721   (1031623) от 14.02.2021
-
-VA - Instrumental Jazz Palette (2021) [MP3|320 Kbps] <Jazz, Smooth, Instrumental>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031623.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если Вы в поисках приятного настроя, активного ритма и отменных звуков, то сборник «Instrumental Jazz Palette» представит всю палитру Ваших музыкальных желаний. Композиции лонгплея это великолепная смесь, обладающая воздушностью фанка, мелодичностью соула и экспрессией джаза.001. Jarmo Nikku - Just A Little Bit
-002. Nubya Garcia - Together Is A Beautiful Place To Be
-003. Wayne Escoffery - Quarter Moon
-004. Mark De Clive-Lowe - Esss(   Читать дальше...   )Жанр: Jazz, Smooth, InstrumentalПродолжительность: 08:28:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF5C400AFCD58FF92C57B3EDB48513AD65B0D548
 ```
 
 https://mybot314.ru/tekegram_catalog/

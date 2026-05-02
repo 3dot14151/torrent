@@ -1,3 +1,32 @@
+###  Публикация: 1045324   (559686) от 23.08.2016
+
+Detroit With Mitch Ryder - Detroit (1971) Reissue, 1987, MCA Records [MP3|320 Kbps] <Blues Rock, Rock 'n' Roll, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559686.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Long Neck Goose
+2. Is It You (Or Is It Me)
+3. Box Of Old Roses
+4. It Ain't Easy(   Читать дальше...   )Жанр: Blues Rock, Rock 'n' Roll, Hard RockПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58DE0901748B6F898CB55B7CF162E0F95F227A0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 531100   (558651) от 04.08.2012
 
 The Beatles - SinglesCollection (2012) (Compilation) [MP3|320 кб/с]<Classic Rock>
@@ -722,32 +751,6 @@ Grave Pleasures - Dreamcrash (2015) [MP3|320 Kbps] <Post-punk, gothic rock, deat
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A28844E2BE8FC2A306C96ED0446D32A9DA88DB11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1310035   (548567) от 22.06.2019
-
-Freddie Mercury - Time Waits For No One (2019) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548567.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Time Waits For No OneЖанр: RockПродолжительность: 00:03:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A400A0780DE424C56CD375E4975DEC749AF6EBF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

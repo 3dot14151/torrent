@@ -1,90 +1,3 @@
-###  Публикация: 1342736   (221897) от 03.12.2019
-
-Каста - Об Изъяне Понятно (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прошел через
-02. Привет, придурок
-03. Молодой с молодой
-04. Колокола над кальянной(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19AD290008FA8641B9A85168002C59FC4712E49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425237   (221864) от 20.11.2020
-
-Санчес - Продано, Ч. 2. Конец (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Здесь много кто скрывается [04:11]
-02. Равнодушие [02:22]
-03. Джаз Кодеин [01:35]
-04. Пламенем [03:10](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:018E9F2BB60F3B84FEBC116C68B8294E93839A37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1425245   (221549) от 20.11.2020
-
-Баста - 40 (2020) [MP3|320 Kbps] <Hip-Hop, Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [02:25]
-02. С самых низов [05:39]
-03. Верил всегда (feat. Odi) [05:44]
-04. Время догонит нас (feat. Moscow Gospel Team) [06:06](   Читать дальше...   )Жанр: Hip-Hop, RapПродолжительность: 01:58:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C79B6FFBF1418FD755E2D10911F5E4BD3C3790C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342928   (221526) от 04.12.2019
 
 Chingy - Powerballin' (2004) [FLAC|Lossless|tracks + .cue] <Crunk/Midwest Hip-Hop>
@@ -745,6 +658,93 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BB85DC730849935A9DD2D65213BCB300AAE1AD1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646603   (208829) от 15.07.2023
+
+Coolio - Gangsta's Paradise (1995) 2020, 25th Anniversary, Remastered [FLAC|24/96-192|tracks|WEB-DL] <Hip Hop, Gangsta, Rap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's How It Is (Skit) (1:01)
+02. Geto Highlites (5:01)
+03. Gangsta's Paradise (4:01)
+04. Too Hot (3:40)(   Читать дальше...   )Жанр: Hip Hop, Gangsta, RapПродолжительность: 01:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15789D7BD0A1E0FE0A8FA760E8821A3089586627
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1646264   (208680) от 17.07.2023
+
+Восточный округ - 2 Albums (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [00:02:47]
+02. Гориллы на битах [00:03:43]
+03. Репрезенто [00:02:54]
+04. Когда мне лень [00:03:47](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:05:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8432DDF32226D2382C08CCC1859F7052C5125A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651377   (206987) от 06.08.2023
+
+Skindred - Smile (2023) [FLAC|Lossless|tracks + .cue] <Hip Hop, Rock, Reggae>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_206987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Our Religion
+02. GIMME THAT BOOM
+03. Set Fazers
+04. Life That's Free(   Читать дальше...   )Жанр: Hip Hop, Rock, ReggaeПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27DA187EEC24CD1567BBF742F9F4135D7FAA1B9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,207 @@
+###  Публикация: 943333   (447469) от 04.10.2015
+
+VA - Музыка из т/с «Два Антона» (2009-2010) [MP3|128 кб/с]<Expanded Score / Unofficial>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Беззаботный мегаполис
+02.Вдоль по Питерской
+03.Верность
+04.Война(   Читать дальше...   )Жанр: Expanded ScoreПродолжительность: 01:57:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B66D5DD986DBEF6E7AB07364C6325AAD2171560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943809   (447333) от 04.10.2015
+
+Guy Sweens - Universal Language (2015) [MP3|320 кб/с]<New Age, World>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447333.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Approaching the Desert
+02. Yaatri
+03. Mount Loura
+04. Japanese Ceremony(   Читать дальше...   )Жанр: New Age, WorldПродолжительность: 00:51:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECFC95E660F8A8B2BF7E0DCDFFDF5B034030E22A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1569309   (447088) от 15.08.2022
+
+Enigma - The Cross Of Changes (1993) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Second Chapter	2:16
+02. The Eyes Of Truth	7:13
+03. Return To Innocence	4:17
+04. I Love You ... I'll Kill You	8:51(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EADC6E3243D8BA9A1B77DE83CA366CAC48B309A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 154434   (446680) от 16.09.2020
+
+James Last - 16 альбомов (1987 – 2019) [FLAC|Lossless|image, track + .cue] <Jazz, Pop, Folk, World & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джеймс Ласт был лидером немецкого биг-бэнда с большим количеством фанов в Европе, хотя у него никогда не было подобной популярности в Соединенных Штатах. Фирменным знаком Ласта была аранжировка поп-хитов в стиле биг-бэнда. За свою карьеру он продал более 50 миллионов альбомов.
+Он научился играть на фортепиано в детстве, а подростком перешел на бас. Он присоединился (   Читать дальше...   )Альбомы:
+1987 James Last spielt Bach
+1988 Abendglocken (Вечерний звон)
+1990 James Last - Classics By Moonlight(   Читать дальше...   )Жанр: Pop, Easy Listening, InstrumentalПродолжительность: 37:21:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA63E01C760892AC3DFB211AC77580EA3F6D6C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 706139   (446618) от 01.10.2013
+
+VA - Vargo Lounge Summer Celebration 1 (2013) [FLAC|Lossless|image + .cue]<Chillout, Lounge, Downtempo>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446618.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Halo(Side Mix)   (4:54)
+02.  Need to Feel Loved   (3:44)
+03.  Speak to Me   (5:12)
+04.  Love   (4:54)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:06:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8EDAA8A732F1FA62AE7920994370FD6CEB224B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1248108   (446500) от 18.09.2018
+
+Acoustic Ocean - Blue Moon Rising (2018) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Hui Hou (Until We Meet Again) (3:44)
+02. Blue Moon Rising (3:27)
+03. Recalling Beauty (4:28)
+04. Deep Grace-Scarborough Fair (6:02)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D6C9EC57C61E323F0885169E269DA90992A7F61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061877   (446430) от 11.10.2016
+
+Jon Richards - Earthlight (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earthlight
+02. Falling Star
+03. Daybreak
+04. Satellites(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDDCA3B85B3DA1B6E092DDA7381EEB6FCF6BAA54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061754   (446420) от 11.10.2016
 
 Amethyste - Alien Moon (2016) [MP3|320 Kbps] <New Age, Ambient>
@@ -560,206 +764,6 @@ Jim Brickman - Pure Carpenters (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Pi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4780D741385CAEF80F9BF92A9D587BA0E2E4E09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164516   (439487) от 10.09.2017
-
-VA - Ayurveda Lounge - Relaxation & Meditation, Vol. 4 (2014) [MP3|320 Kbps] <New age, Chillout, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Orient - The Big Ocean
-02. Five Seasons - Okinawa
-03. Yantra Mantra - Hawa Mahal
-04. Digital Rain - I Miss You(   Читать дальше...   )Жанр: New age, Chillout, RelaxПродолжительность: 01:45:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:969161975199A14D500F4B4A758B25D047658B84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1164503   (439051) от 10.09.2017
-
-Benjamin Wallfisch - It / Оно (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every 27 Years (02:37)
-02. Paper Boat (01:55)
-03. Georgie, Meet Pennywise (03:39)
-04. Derry (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:27:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:190FDEE1ED9B9FF48B78CD119D29B3CD6F4F9171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 552064   (438645) от 30.09.2012
-
-VA - The Best Of Native Indians (2CD) (1999) [MP3|320 кб/с]<Native American Ethno, Powwow, Round Dance, Tribal Voice, Drums>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438645.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Native American Ethno, Powwow, Round Dance, Tribal Voice, DrumsПродолжительность: 01:28:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A2D7FB14F2C40D7BBE0DE28428F20D7DA85427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1410151   (438429) от 20.09.2020
-
-Александр Серов - Relax Instrumental Music (2006) [FLAC|Lossless|tracks + .cue]<Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begin
-02. Remain
-03. Говори со мной
-04. Love me tender(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:19:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E6EC68889CD857F03042C49E18A9ADA428ADD8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944948   (438318) от 08.10.2015
-
-Wychazel - White Wolf Spirit 2 (2015) [MP3|320 кб/с]<New Age, World, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolf Spirit Invocation [00:18:10]
-02. Riding the Storm [00:10:32]
-03. The Shaman's Gift [00:10:10]
-04. River Song [00:10:43]Жанр: New Age, World, MeditativeПродолжительность: 00:49:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18B47EF7A919B521229429B5392E441E377E6719
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1323308   (437870) от 03.09.2019
-
-David Wahler - Two Hearts (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437870.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Always
-  2. I Remember You
-  3. Paris Rain
-  4. Night Sky of Orion (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:181C04C98465329557E0A7E2DBFF952ACE531D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 707538   (437591) от 05.10.2013
-
-Golana - Feather on the Wind (2000) [MP3|320 кб/с]<Instrumental, New age, Native american>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437591.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:52) 01. Closer To You
-(6:01) 02. All Good Medicine
-(3:48) 03. Allaluia
-(3:50) 04. Mojava Morning(   Читать дальше...   )Жанр: Instrumental, New age, Native americanПродолжительность: 00:53:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CC3A940031C0FF313B02D894E1B75C984F1AE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

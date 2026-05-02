@@ -1,3 +1,61 @@
+###  Публикация: 1776707   (735486) от 02.02.2025
+
+Alex Sipiagin - Destinations Unknown (2011) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Next Stop - Tsukiji [8:36]
+02. Videlles [11:42]
+03. Tempest in a Tea Cup [11:53]
+04. Fermata Scandola [11:15](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:14:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C020BE6244BD847D100447931B27461B52A5B5A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776711   (735484) от 02.02.2025
+
+Freddie Hubbard - Fastball: "Live" At The Left Bank (1967) 2005, Hyena Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pensativa [16:54]
+02. Echoes of Blue [10:34]
+03. Crisis [12:32]
+04. Willow Weep for Me [10:04](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:03:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACB68AA6A2548138EBBFE785DD4306361A1F3F84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1776703   (735483) от 02.02.2025
 
 The Art Farmer Quartet - Warm Valley (1983) Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Cool>
@@ -687,64 +745,6 @@ VA - Jazz For Lovers Volume 2 (1993) [APE|Lossless|image + .cue] <Jazz, Blues, S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FFCABD0F587EC0C3C5F6D8DFD92C7726D9E6B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529932   (731865) от 08.02.2022
-
-Low Kick Collective - Kafka (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Future Jazz, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Escalation (4:58)
-02. Relapse (4:12)
-03. Blue Lips (4:02)
-04. Crust (4:28)(   Читать дальше...   )Производство: b4 recЖанр: Dark Jazz, Future Jazz, ExperimentalПродолжительность: 00:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:701CA5707F7B5B664B7AA07D644B696857AD2466
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127596   (731160) от 22.04.2017
-
-Kenny Barron Quartet - Invitation (1991) [WavPack|Lossless|image + .cue] <Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731160.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Namely You (9:17)
-2. And Then Again (5:25)
-3. Dew Drop (4:41)
-4. Invitation (7:51)(   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:57:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C38530F949E4806D092C1C6258DEFBD8847D058C
 ```
 
 https://mybot314.ru/tekegram_catalog/

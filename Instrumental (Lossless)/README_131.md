@@ -1,3 +1,119 @@
+###  Публикация: 1778282   (70893) от 08.02.2025
+
+Soultide - Midnight Rhythm (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gravel Road Blues (3:08)
+02.  Silent Whispers (2:27)
+03.  Heavy Shadows (3:02)
+04.  Shattered Summit (3:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A10C6DF7BFB6AC4A384AF1E4AB6F0B5E074B5EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778208   (70889) от 08.02.2025
+
+Mick Clarke - Bad Whisky Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70889.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bad Bad Whisky (4:33)
+02.  Help Me (4:49)
+03.  Killing Floor (5:06)
+04.  Watch Your Step (5:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4BD75B39E77F2663112280E1CF9D8CFFBBAE2BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778200   (70888) от 08.02.2025
+
+John Tho - Truth Be Told (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wake Me up Before I Die (4:09)
+02.  Truth Be Told (4:14)
+03.  Ya Gotta Be Mine (5:11)
+04.  Road to My Heart (4:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C41C4F3E749C9F2331644DCA4C5B5040517DEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1778080   (70878) от 08.02.2025
+
+Bill Abel - Waiting At The Station (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Saddle Tramp (2:19)
+02.  Waiting at the Station (4:23)
+03.  Going Away (5:07)
+04.  An't No Use (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91EF54FAAF000BA5AD854B660A1274C18CF0797A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1778081   (70877) от 08.02.2025
 
 Chris Sutherland - Heaven (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Blues Prescription - The Late Night Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D86184BB933ED45DF50FBA566D583E87114338A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780181   (70482) от 17.02.2025
-
-The Creaking Floorboards - They're Waiting out of Sight (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Eat That! (3:30)
-02.  Intentions (3:52)
-03.  Cougar (3:39)
-04.  Good to Be King (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3408F3EEA6BE6790CEA473C896EAA6FD9B9CBD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780176   (70481) от 17.02.2025
-
-Leo Benmass - Origins (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Origins (5:14)
-02.  Let Me love you baby (3:38)
-03.  Voodoo Child (13:18)
-04.  Riders on the storm (4:53)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:923395256A189CD35830C79E58E427A321AF1789
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1780231   (70479) от 17.02.2025
-
-Sunny Bleau And The Moons - Passion & Regrets (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Two Glasses of Whiskey On Ice (feat. Sunny Bleau) (3:26)
-02.  You Better Put The Coffee On (feat. Jeff Jensen & Sunny Bleau) (5:40)
-03.  Low-Down-Middle-Aged-Blues (feat. Sunny Bleau) (4:14)
-04.  Peacock Strut (feat. Sunny Bleau) (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:530B3510CA20935C42BC8AA530866CE4D0FA7932
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1781301   (70253) от 22.02.2025
-
-Julian Sas - Miles And Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles And Memories
-02. Midst of Madness
-03. Light Finds A Way
-04. One Step Closer To Hell(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F51079D3510D42F0E3DE52178E50E8A16105ED93
 ```
 
 https://mybot314.ru/tekegram_catalog/

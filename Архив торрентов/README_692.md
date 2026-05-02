@@ -1,3 +1,125 @@
+###  Публикация: 1370252   (898333) от 26.03.2020
+
+AVS Video Software 12.9.6.20 RePack (& Portable) by elchupacabra
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898333.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVS Video Software представляет собой комплект из трёх программ для обработки видео файлов от AVS4YOU: AVS Video Editor, AVS Video Converter и AVS Video ReMaker.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B75A51C1FEE0A507986CDE53ADCFFA8DE78F111D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 294913   (898309) от 12.02.2011
+
+Rufige Kru - Memoirs Of An Afterlife (2009) [MP3|320 kbps]<Drum'n'Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mirror (feat. D-Bridge)
+02. Just When You Thought It Was Over
+03. Babylon 2012
+04. Letting Go (A.I. Remix)
+05. Sometime Sad Day
+06. Only When I Dream
+07. Chances (Alix Perez & Sabre Remix)
+08. Is This Real VIP
+09. Paris
+10. One More Time(   Читать дальше...)Жанр: Drum and BassПродолжительность: 01:18:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B323BF39EC83E0C22188A70AA2B5F8312AECABB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 637796   (898279) от 01.04.2013
+
+Mageia 3 beta 4 [i586, x86-64] (2xDVD)
+
+>>Архив торрентов
+>>Архив *Nix
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Второй по популярности дистрибутив на сегодня по версии DistroWatch.
+
+Сегодня вышел четвертый и последний, со слов разработчиков, beta релиз следующего поколения Mageia.
+
+Проект Mageia (МАГ) стартовал в сентябре 2010 как форк Mandriva Linux. Он поддерживается not-for-profit организациями. Поддерживаются архитектуры i586 и x86-64. Доступны образы с Mageia, использующей в качестве графической среды KDE, GNOME и LXDE. В релизе сделано много обновлений, в частности, добавлен LibreOffice версии 4.0.2.1; KDE 4.10.1, ядро Linux 3.8.3.
+
+Также продолжена работа над Live DVD, который войдет в релиз Mageia 3.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1370181   (898265) от 26.03.2020
+
+Commander One PRO Pack 2 v2.4.2 (build 3218) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Commander One PRO - FTP/SFTP клиент, RAR, 7zip и Tar архиватор
+
+Commander One - универсальный инструмент для легкого управления большим количеством файлов и папок на вашем Mac. Профессиональный двухпанельный файловый менеджер Commander One написан на Swift и имеет всё необходимое для эффективной работы с файлами и папками на вашем Mac:
+(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.03.2020Разработчик: Eltima SoftwareПоддерживаемая ОС: OS X 10.10+Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1650E935AC1CFBCF8AC86CDB435FFF596468CACA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370128   (898264) от 26.03.2020
 
 AIMP 4.60 Build 2180 + Portable [Multi/Ru]
@@ -581,113 +703,6 @@ VA - Regain – Point Of No Return (2017) [FLAC|Lossless|tracks] <Hard Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4EF85D7559E333DB19D7956CB2177D91F89F381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 638178   (898000) от 01.04.2013
-
-Рестлинг / WWE Friday Night SmackDown! 29.03.2013 (Русская версия от 545TV) (2013) HDTVRip [H.264]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898000.jpg" />
-</div>
-
-
-###  Подробнее
-
-710-й выпуск Friday Night SmackDown!Жанр: СпортПеревод: Двуголосый закадровый, любительский - Сергей Перышкин и Константин ИвановПродолжительность: 01:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BEE0C064F83A008D512D2AB0EAF6F33B06185A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100874   (897985) от 05.02.2017
-
-VA - Epic Emotional Uplifting Trance (2016) [FLAC|Lossless|WEB-DL|tracks] <Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897985.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. illitheas - Last Forever (Intro Mix) [05:53]
-02. Ikerya Project - Neo Terra (Original Mix) [08:05]
-03. Artisan - I Follow (F.G. Noise Remix) [07:36]
-04. Kaimo K - Why Can't You Love Me (Original Mix) [06:50](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:29:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C2B53CD90EF8DA4D058D61B4EB8CDC29536E50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101106   (897970) от 05.02.2017
-
-EZ CD Audio Converter 5.1.1.1 Ultimate [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897970.jpg" />
-</div>
-
-
-###  Подробнее
-
-EZ CD Audio Converter - утилита для преобразования аудио-CD в качественные цифровые аудиофайлы, а также для записи MP3, WAV MP4, Windows Media Audio, FLAC, Ogg Vorbis, AAC и Monkey-s файлов на аудио-CD. Умеет преобразовывать аудиотреки непосредственно в MP3, WMA, VQF, OGG или WAV и конвертировать из одного аудиоформата в другой.Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF42BBC564B154FEEE2773480F7C114598157C2E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370161   (897949) от 26.03.2020
-
-Total Commander 9.51 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_897949.jpg" />
-</div>
-
-
-###  Подробнее
-
-Total Commander является самым мощным и стабильным файловым менеджером для Windows с удобным пользовательским интерфейсом. Total Commander продолжает добрую традицию двух-панельных файловых менеджеров, но отличается повышенным удобством и функциональностью, поддерживает плагины, имеет множество встроенных полезных инструментов. В программе предусмотрены функциональные (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A916B9506F8F8789AA536D97B69C6194262CFEAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

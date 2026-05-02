@@ -1,3 +1,61 @@
+###  Публикация: 1005395   (832829) от 09.04.2016
+
+VA - Lounge Music for Your Senses (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Mild and Quiet
+02. Enrico Donner - Deep Rooted
+03. Oscar Stringz - I Miss You Michael
+04. Cane Garden Quartet - Love Goddess(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B39DAACA8127BDCF5D37C051AF9F18CFEC58C802
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005353   (832465) от 09.04.2016
+
+VA - Workout Mix vol.4 (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive House, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-The Black Eyed Peas  - Lets Get It Started (PRIDE & CHIPPON Remix)
+ 02-Dr. Dre & Snoop Dogg ft. San Holo vs Maz & Rascal - Next Talking (Krasovsky Mash Up)
+ 03-Kolya Funk & Eddie G vs BrainDeaD - Spread Out (JOHN ROCKS & DIMA HOUSE MASH UP)
+ 04-Teo Moss x Party Favor - Booty Loose (Yuri Rider & Dj Alex Trapleg)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive House, TrapПродолжительность: 01:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B79A2EB27621B86B2001F5BF19D6E3EC215753D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114390   (831968) от 15.03.2017
 
 VA - Record Super Chart #478 (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -687,64 +745,6 @@ VA - Beatport Trance Pack (17.03.) (2017) [MP3|320 Kbps] <Trance, Uplifting Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D76FB558B019A69277F590CC24457C97EEDFDC99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115251   (828165) от 17.03.2017
-
-VA - Dancing Freak Happy Level (2017) [MP3|320 Kbps] <Future House, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kygo F. Selena Gomez – It Ain’t Me (Axel E Club Mix) 06:07
-02. Chuckie – Rides (Original Club Mix) 06:58
-03. Disco Ballz – Shake It Love (Original Club Mix) 05:38
-04. Koen Groeneveld – Jezzika (Matt Minimal Club Mix) 06:08(   Читать дальше...   )Жанр: Future House, Electro, ProgressiveПродолжительность: 07:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72B44EFD3DC7EBA4A61763AF3CBEE9167262FE7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005804   (828093) от 11.04.2016
-
-VA - Club Dance Ambience Vol.64 (2016) [MP3|320 кб/с] <House, Electro House, Club,>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828093.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ace - Of Bass (Original mix) 03:28
-002. al l bo - Constructor Of The Idol (Black Mafia DJ Instrumental Remix) 05:23
-003. al l bo - Love Affect (Black Mafia DJ Dubstep Instrumental Remix) 05:04
-004. Alan Walker - Faded (Albert Gonzalez Bounce Remix) 04:44(   Читать дальше...   )Жанр: House, Electro House, Club,Продолжительность: 07:46:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E8CC57ABBB1153765E6E57D2A5FE02B654507B
 ```
 
 https://mybot314.ru/tekegram_catalog/

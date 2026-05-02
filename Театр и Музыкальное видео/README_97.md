@@ -1,3 +1,90 @@
+###  Публикация: 1177761   (355931) от 28.10.2017
+
+Testament - Dark Roots Of Thrash (2013) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концертное выступление Testament записанное в "The Paramount" (Хантингтон, США) 15.02.2013 и выпущенное на DVD/Blu-Ray 15.10.20131. Intro
+2. Rise Up
+3. More Than Meets The Eye
+4. Burnt Offerings(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA1EAAEE7A5D6A8298EF3C793FEEBA12E8961F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1178133   (355640) от 28.10.2017
+
+Kreator - Gods Of Violence: Live At Wacken 2014 (2017) BDRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355640.jpg" />
+</div>
+
+
+###  Подробнее
+
+Выступление Kreator на Wacken Open Air в 2014 году, вошедшее в состав специального издания альбома Gods Of Violence на DVD и Blu-Ray01. Mars Mantra
+02. Phantom Antichrist
+03. From Flood Into Fire
+04. Warcurse(   Читать дальше...   )Производство: Nuclear Blast (Germany)Жанр: Thrash MetalПродолжительность: 01:12:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0566A4843182D902D037F1BEF090A6E8326BF885
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1177957   (355490) от 28.10.2017
+
+Сборник клипов - Лучшие казахстанские от ALEXnROCK (2017) WEBRip [H.264/720p-LQ] (часть 1)
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_355490.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли самые лучшие клипы от казахстанских исполнителей. Я очень старался выбирая клипы. Надеюсь вам понравится моя работа. Смотрите слушайте и наслаждайтесь. Все лучшее для вас.  ALEXnROCK000 Intro
+001 Кайрат Баекенов & Формат тобы - Махаббат
+002 Lashyn - Казагымнын арулары-ай
+003 Шамси - Ханшасы(   Читать дальше...   )Жанр: ПопПродолжительность: 03:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8698F3A2EF367629A11356F0C0F8A4F47BACEFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 91100   (355091) от 01.11.2015
 
 AC/DC - Live At Donington (1991) DVD-9
@@ -649,90 +736,6 @@ Lady Gaga - Marry The Night / MTV EMA 2011  (2011) HDTVRip [1080p]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBEF8F2380DF51C84C1878C8BDD2A1243F6615DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 724627   (347882) от 21.11.2013
-
-The Rolling Stones: Sweet Summer Sun - Hyde Park Live (2013) Blu-ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347882.jpg" />
-</div>
-
-
-###  Подробнее
-
-Историческое и триумфальное возвращение Ролинг Стоунз в Гайд-Парк вне всяких сомнений было событием лета. Более 100 тысяч исступлённых фанатов всех возрастов набились в парк на два захватывающих концерта под открытым небом, чтобы увидеть то, что Мик Джаггер, Кейт Ричардс, Чарли Уотс и Рони Вуд делают лучше всего. «Камни» представили 5 звёздных концертов, которым (   Читать дальше...   )01. Interviews, Part 1
-02. Start Me Up
-03. It's Only Rock 'n' Roll (but I Like It)
-04. Street Fighting Man(   Читать дальше...   )Жанр: Classic RockФормат: BDMVПродолжительность: 01:57:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CCAB57DBF9A6F7BBEFBAB519A1F129536D7E88C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 256717   (347839) от 11.11.2010
-
-Ленинград - Сборник клипов (2005) [H.264] DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347839.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Rock/ Ska/ PunkПеревод: Не требуетсяПродолжительность: 1ч. 10мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61D87CCF653811394BC718AB17D4EBB27338E625
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1578153   (347605) от 22.09.2022
-
-Accept - Rock Hard Festival (2022) HDTV [H.264/720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление Accept на Rock Hard фестивале 5 июня 2022 года в Германии01. Zombie Apocalypse
-02. Symphony of Pain
-03. Living for Tonite
-04. Restless and Wild(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 01:32:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB0CD784865A2500B33D1FCAA0D92225CFEB0DBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

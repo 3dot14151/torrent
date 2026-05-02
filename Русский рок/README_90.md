@@ -1,3 +1,119 @@
+###  Публикация: 1590070   (189369) от 12.11.2022
+
+Ундервуд - За горизонтом (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189369.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Когда-нибудь
+2. Ради контента
+3. Лавацца
+4. Шуры-муры(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744AF071F8347A3D4F2ADD1B71163AE8E2C33C35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590406   (189164) от 13.11.2022
+
+Брысь - 4 Albums (2019-2022) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2019 - Хороводные
+2020 - Уважайте сны
+2021 - Если все пойдут прыгать(   Читать дальше...   )Жанр: AlternativeПродолжительность: 4 CD, 01:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77970409070CE8F4F90AB221C4E5A4ABD75E9C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590572   (188871) от 14.11.2022
+
+Hostile Breed - 4 Albums (2001-2016) [MP3|320 Kbps] <Metalcore, Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2001 - Green Wound
+2004 - The Second Cut
+2005 - Узоры шрамов - законы войны(   Читать дальше...   )Жанр: Metalcore, Thrash MetalПродолжительность: 4 CD, 02:36:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBCC5CB72A95BE1DABDCCFB3475946E590786602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590466   (188831) от 14.11.2022
+
+AlkaБэнд - 7 Albums (2019-2022) [MP3|320 Kbps] <Punk Rock, Sky Runk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188831.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2019 - Алколюбие
+2020 - Не говори
+2020 - Покурил(   Читать дальше...   )Жанр: Punk Rock, Sky RunkПродолжительность: 7 CD, 04:01:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81647C8DA55EE273F284EDFE7AE24F75E14EDC00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590671   (188362) от 15.11.2022
 
 Би-2 - Аллилуйя (2022) [MP3|320 Kbps] <Rock>
@@ -628,122 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F23D757415BABC6FD514B64E1FA1A41851845EB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427050   (184167) от 27.11.2020
-
-Наконечный - Нищета и свобода. Сторона Б (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184167.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пой со мною, весна
-2. Сирень
-3. Подорожник
-4. Юра, мы всё проебали(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC3F350A7F62E626632BBEA5714D273358E0628
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427046   (184095) от 27.11.2020
-
-Чичерина - Песни военных лет (2020) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184095.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Рвать
-2. Пожалуйста
-3. Пересвет
-4. Воздушная гавань(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07704D41D83528A8482ED66F4DAAE4D01B740155
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592424   (183954) от 22.11.2022
-
-Mashgot - Тишина... (2022) [MP3|320 Kbps] <Alternative Metal, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 82
-02. Бруно
-03. Ересь
-04. Агент Orange(   Читать дальше...   )Жанр: Alternative Metal, Progressive MetalПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E042B1EA48A4980651B606C39D64D6027C3726
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592420   (183938) от 22.11.2022
-
-Firs - Власть (2022) [MP3|320 Kbps] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183938.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Волки
-02. Изыди В Ад
-03. Мертвец
-04. Труп(   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:17:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FEB6F6900F6E7AC4E9998CD15524C19DCAD616C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1767923   (33266) от 23.12.2024
+
+Romantica De La Guitarra, Academia de Música Sensual - Spa Erótico: Relaxing Latin Guitar for Body Pleasure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chic Churros (4:18)
+02. Relaxing Vibes (3:43)
+03. Mellow Cafè (3:13)
+04. Tequila Twilight (4:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:588D575EF0111525819E9BA899365DC5A5D85BBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767953   (33264) от 23.12.2024
+
+Instrumental Piano Universe, Marco Rinaldo, Sexual Music Collection, Sexual Piano Jazz Collection - Passion in Paris: Sophisticated Piano Solos, Sensual Jazz Lounge Music (2024) [FLAC 24/48|Lossles ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paris After Dark (3:58)
+02. Café au Lait (3:15)
+03. Piano Seduction (3:43)
+04. Jazz Noir Romance (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1FD0F8EDEB645FD797F51B991EB65C258C72F3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767928   (33262) от 23.12.2024
+
+Sexual Music Collection, Romantic Love Songs Academy - Midnight Jazz Confessions: Sultry Jazz for a Romantic and Intimate Mood, Late-Night Listening, Date Nights (2024) [FLAC 24/44.1|Lossless|WEB-D ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Always and Always (3:33)
+02. We'll Meet Again (3:19)
+03. Prelude to a Kiss (3:27)
+04. Straight Ahead (3:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9332F42FC0AD431B25AC9985574FCB4C56273FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766995   (33235) от 23.12.2024
+
+Carlita - Sentimental (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Deep House, Indie Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33235.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. DJ Tennis, Carlita - Trouble Symphony (3:56)
+• 02. Carlita, Cleo Simone - Planet Blue (2:55)
+• 03. Carlita, SG Lewis - The Moment (3:31)
+• 04. Carlita - TV Disco (3:46)(   Читать дальше...   )Жанр: Electronic, Deep House, Indie DanceПродолжительность: 00:47:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A8C840FA99658C0DB194DB9679BB8C4CAABF23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767922   (33232) от 23.12.2024
+
+Romantica De La Guitarra, Romantic Time - Sensual Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexually Twisted (3:14)
+02. Ignite The Spark (3:26)
+03. Provocative Girl (3:35)
+04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3FD72ADB6B23487C8504A043FF4A632EA5CB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768554   (33037) от 25.12.2024
+
+Ill Niño (Ill Nino) - Studio Albums (7 releases) (2002-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ill Niño — американская ню-метал-группа латиноамериканского происхождения, основанная в 1998 году в Нью-Джерси.2002 - revolution revolucion
+2003 - Confession
+2005 - One Nation Underground
+2008 - EnigmaЖанр: Nu Metal, MetalcoreПродолжительность: 06:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C15CBA43A2A3A582F9B0602323E1970E1BE22065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768673   (33027) от 25.12.2024
 
 The Wind Blowers - Whiskey & Shadows (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
@@ -568,180 +742,6 @@ Pink Floyd - Live at Trentham Gardens (Stoke-On-Trent, UK, 19 Nov 1974) (2024) L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE671097BE01DD17475FF5ACB9DDEA6CEE48E8B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771001   (31886) от 05.01.2025
-
-Pink Floyd - Eclipsed By The Moon - Studio Outtakes 1972 (2022) EP (Live)[FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31886.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Travel Sequence (Outtake) [2:22]
-02 - On The Run (Outtake) [1:45]
-03 - Brain Damage (Outtake 1) [1:25]
-04 - Brain Damage (Outtake 2) [2:22]Жанр: Rock, Progressive RockПродолжительность: 00:07:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ACA7C1F6A7DC84648FA829EF34F14ED1C6E1B9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771039   (31884) от 05.01.2025
-
-Pink Floyd - Live At Usher Hall (Edinburgh, UK, 4 November 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shine On You Crazy Diamond (Live At Usher Hall, Edinburgh, UK, 4 November 1974) [21:15]
-02 - Raving And Drooling (Live At Usher Hall, Edinburgh, UK, 4 November 1974) [13:01]
-03 - You've Got To Be Crazy (Live At Usher Hall, Edinburgh, UK, 4 November 1974) [17:34]
-04 - Speak to Me (Live At Usher Hall, Edinburgh, UK, 4 November 1974) [2:24](   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 02:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71E2CB56E232EC17BCEF5EA14533351ED19FFF6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771022   (31883) от 05.01.2025
-
-Pink Floyd - Live At Théâtre de Plein Air (Colmar, France, 22 June 1974) (2024) Live [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Shine On You Crazy Diamond (Live At Théâtre de Plein Air, Colmar, France, 22 June 1974) [22:54]
-02 - Raving And Drooling (Live At Théâtre de Plein Air, Colmar, France, 22 June 1974) [10:52]
-03 - Echoes (Live At Théâtre de Plein Air, Colmar, France, 22 June 1974) [25:27]
-04 - Speak to Me (Live At Théâtre de Plein Air, Colmar, (   Читать дальше...   )Жанр: Rock, Progressive RockПродолжительность: 01:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC3761133FAAD8EA06DDC7595EF94E315A7BDB1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633122   (31813) от 06.01.2025
-
-Umbra Et Imago - Studio Albums (14 releases) (1992-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Darkwave, Neue Deutsche Härte>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Umbra et Imago (лат. «Тень и образ») — немецкая готик-металлическая группа Neue Deutsche Härte, образованная осенью 1991 года.1995 - Gedanken Eines Vampires
-1996 - Mystica Sexualis
-1998 - Machina Mundi
-2000 - Mea CulpaЖанр: Gothic Rock, Darkwave, Neue Deutsche HärteПродолжительность: 14:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D332B390E9FE188060DFE9CF740266275C6BB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772104   (31488) от 09.01.2025
-
-Ringo Starr - Look Up (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Country>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathless (3:03)
-02. Look Up (3:11)
-03. Time On My Hands (4:00)
-04. Never Let Me Go (3:56)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:36:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CE99E96C42868CC9DDC66C2B598AD93FCC43507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1772076   (31478) от 09.01.2025
-
-Atreyu - Studio Albums (12 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31478.jpg" />
-</div>
-
-
-###  Подробнее
-
-Atreyu — американская группа из округа Ориндж, штат Калифорния, США, образованная в 1998 году. Первоначально группа называлась «Retribution», но позже была переименована в «Atreyu» в честь одного из героев фильма «Бесконечная история».2001 - Fractures In The Facade Of Your Porcelain Beauty (EP)
-2002 - Suicide Notes And Butterfly Kisses
-2004 - The Curse
-2006 - A Death-Grip On YesterdayЖанр: Metalcore, Hard RockПродолжительность: 09:02:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DEF3DBD049D016F76E5CA9945AD101DD6633FC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

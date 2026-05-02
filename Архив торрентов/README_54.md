@@ -1,3 +1,55 @@
+###  Публикация: 1615004   (1038039) от 24.02.2023
+
+Whale Browser 3.19.166.16 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038039.jpg" />
+</div>
+
+
+###  Подробнее
+
+Whale Browser -  южнокорейский быстрый интернет-браузер на движке Chromium для Windows, Mac и Linux, а также мобильных устройств под управлением Android и iOS, включающий блокировщик рекламы, боковую панель и настраиваемый интерфейсЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBBE221AD566F9FFD80B92E0172F59D8E09F5F28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615143   (1038029) от 24.02.2023
+
+Ungoogled Chromium 110.0.5481.100-1.1 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038029.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ungoogled Chromium - версия веб-браузера Chromium без интеграции сервисов Google, ориентированная на приватность. Включает улучшения для конфиденциальности, прозрачности и контроля онлайн-активности.Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BD1347EEE0DEC7AA6675A2326EDE7C700518538
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1441081   (1038016) от 20.01.2021
 
 Emurasoft EmEditor Professional 20.4.5 RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -629,63 +681,6 @@ NirLauncher Package - универсальный пакет из более че
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98505D56BC863C43736B20CF7A56F0139DD76C4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441522   (1037804) от 21.01.2021
-
-Invisor - Media File Inspector 3.15 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Invisor – Инспектор файлов мультимедиа
-Отображает техническую информацию о вашем видео и аудио файлов с возможностью сравнения собранных данных.
-Invisor основан на хорошо известной библиотеке MediaInfo и показывает подробную информацию о контейнере файла и потоков данных, включая видео, аудио, субтитры и главы. Поддерживает большинство форматов видео и аудио файлов, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.01.2021Разработчик: Maxim PozdeevПоддерживаемая ОС: macOS 10.7 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D75F4D8887F0D596FE71BAAF31695C694AEA5DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1441473   (1037792) от 21.01.2021
-
-Mikel Andrew & JP90 - Colors Of Utopia (2021) Single [MP3|320 Kbps] <Synthpop, Electronic>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037792.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Colors Of Utopia (3:38)
-2. Colors Of Utopia (DATA Remix) (7:22)
-3. Colors Of Utopia (DMT Berzerk Remix) (5:54)
-4. Colors Of Utopia (Vyrtual Zociety Remix) (4:29)Жанр: Synthpop, ElectronicПродолжительность: 00:21:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:432F4046B97A6257DB53224BCA6BA2FAD837E4E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1762059   (102935) от 24.11.2024
+
+Teddy Wilson - 1947 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sheik Of Araby [2:39]
+02. Limehouse Blues [2:54]
+03. After You've Gone [2:41]
+04. Georgia On My Mind [3:09](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F1A160DD29FB9D0E21ECBF7ABCF2F8A47F3D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762169   (102934) от 24.11.2024
+
+Stu Williamson - Stu Williamson Plays (1956) 1989, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102934.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lady Is a Tramp [4:16]
+02. Stu's Due Blues [5:42]
+03. The Things We Did Last Summer [2:52]
+04. Yardbird Suite [3:52](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, CoolПродолжительность: 00:59:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:105F1E39D0D4A3FFFF0438419D8DE780577A973D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762437   (102918) от 25.11.2024
 
 Teddy Wilson - Gentleman Of Keyboard (1934 - 1957) 1990, Giants Of Jazz [FLAC|Lossless|image + .cue] <Swing, Piano Jazz>
@@ -700,63 +758,6 @@ Astrud Gilberto - Verve Jazz Masters 9 (1993) [FLAC|Lossless]<Vocal Jazz, Bossa 
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489373   (101819) от 28.04.2012
-
-Aziza Mustafa Zadeh 3 CD [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_101819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holiday Blessings (4:30)
-02. Ladies Of Azerbaijan (5:00)
-03. Uv (Unutma Vjdani) (5:48)2002Жанр: JazzПродолжительность: 01:08:25
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764559   (101524) от 07.12.2024
-
-John Hicks - John Hicks (1982) 2003, Evidence [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pas de Trois (Dance for Three) [4:21]
-02. Steadfast [5:27]
-03. For John Chapman [5:52]
-04. Star-Crossed Lovers [5:24](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:49:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:706F56ABA76895953C2B9873C62551CA9DCEBD7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

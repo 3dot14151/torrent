@@ -1,3 +1,61 @@
+###  Публикация: 1696579   (119434) от 03.02.2024
+
+Abdullah Ibrahim & The NDR Big Band - Ekapa Lodumo (2001) Tiptoe [FLAC|Lossless|tracks + .cue] <Post-Bop, African Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kramat [7:43]
+02. Announcement [0:15]
+03. Mindif [12:04]
+04. Announcement [0:10](   Читать дальше...   )Жанр: Post-Bop, African JazzПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECE92E0A235305E57F77C03F206A21DBA5214EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696609   (119430) от 03.02.2024
+
+Art Blakey & The Jazz Messengers - Cu-Bop (1957) 1989, Fresh Sound Records [FLAC|Lossless|image + .cue] <Hard Bop, Afro-Cuban Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Woodyn' You [6:15]
+02. Sakeena [12:00]
+03. Shorty [4:39]
+04. Dawn on the Harvest [12:49]Жанр: Hard Bop, Afro-Cuban JazzПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:561A2F7DAD105EDEFFB44F8104D009D86F631D11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696805   (119347) от 04.02.2024
 
 Love Music Zone - Sexy Valentine’s Day 2024 [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -688,64 +746,6 @@ Roland Hanna - Perugia (1974) 1987, Freedom [FLAC|Lossless|tracks + .cue] <Post-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA8BBA6B0E12B11A09FD92AA480B7078A99E59B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698495   (118406) от 09.02.2024
-
-Abdullah Ibrahim - Voice Of Africa (1988) 1998, Camden [FLAC|Lossless|tracks + .cue] <African Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Lightning [14:28]
-02. Little Boy [8:31]
-03. Black and Brown Cherries [7:26]
-04. Ntyilo Ntyilo [4:54](   Читать дальше...   )Жанр: African Jazz, Post-BopПродолжительность: 01:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D2B8FC624FE4785FD2DA2B4EBE3D3A13E75B9D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1698672   (118253) от 10.02.2024
-
-Angelo Debarre with Tim Kliphuis - Live At Djangofest Northwest (2005) Gypsy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swing Gitan [4:17]
-02. Twelfth Year [3:21]
-03. Entre Amis [3:51]
-04. R-Vingt Six [4:31](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:44:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E4D5405D41CB70FCDAD3D3049F72606F24ABB85
 ```
 
 https://mybot314.ru/tekegram_catalog/

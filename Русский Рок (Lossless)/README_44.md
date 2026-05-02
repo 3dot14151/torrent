@@ -1,3 +1,32 @@
+###  Публикация: 1619948   (241011) от 18.03.2023
+
+ЭльТруски - Эфир Первобытных Рукописей (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прямой эфир [00:03:55]
+02. Первобытные истины [00:05:19]
+03. Рукописи не горят! [00:05:50]
+04. Я верю [00:04:17](   Читать дальше...   )Жанр: RockПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96134FA25015D4C346B27E22D55B8868772E67E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1619957   (240951) от 18.03.2023
 
 Nовая Zямля - Вечно живой (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -713,35 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:650CDD3CACD6E77D5B8672C2B4405CA75D416AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640035   (237728) от 16.06.2023
-
-Autumn Rain Melancholy - Одиночество (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Doom Metal, Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_237728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Прелюдия [00:02:01]
-02. Звезда [00:04:14]
-03. Два Крыла (Remastered) [00:05:23]
-04. Одиночество [00:05:30](   Читать дальше...   )Жанр: Symphonic Doom Metal, Symphonic Black MetalПродолжительность: 00:30:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:857241ABCF9DB0FBE5D0C4A50317D1B0A1DBBEAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

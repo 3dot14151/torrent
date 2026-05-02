@@ -1,3 +1,32 @@
+###  Публикация: 928564   (522526) от 16.08.2015
+
+Tito & Tarantula - Tarantism (1997) Remastered /2015/ [MP3|320 кб/с]<Rock, Blues Rock, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522526.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After Dark (3:44)
+02. Smiling Karen (4:01)
+03. Slippin' & Slidin' (3:44)
+04. Strange Face (5:40)(   Читать дальше...   )Жанр: Rock, Blues Rock, Southern RockПродолжительность: 00:54:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B115E107350F4CA39193A19B9708D0C5B6BA58A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1560051   (522033) от 28.06.2022
 
 Space Druids - 3 Relise (2019-2022) [MP3|320 Kbps] <Vintage Space, Psychedelic Rock>
@@ -728,40 +757,6 @@ Ellison Effect - Atmospheric Metal (2022) [MP3|320 Kbps] <Atmospheric Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF9118248246E70B2A26DDC3C76356F57CF202F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536840   (512534) от 20.08.2012
-
-Phish - Lawn Boy (1990) [MP3|320 кб/с]<Progressive rock, Jazz-Rock, Fusion, Avantgarde>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Squirming Coil (6:05)
-02. Reba (12:27)
-03. My Sweet One (2:08)
-04. Split Open and Melt (4:43)
-05. The Oh Kee Pa Ceremony (1:41)
-06. Bathtub Gin (4:29)
-07. Run Like an Antelope (9:52)
-08. Lawn Boy (2:32)
-09. Bouncing Around the Room (3:56)Жанр: Progressive rock, Jazz-Rock, Fusion, AvantgardeПродолжительность: 00:47:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C99D5B37065B16B43282EDAFF2CDF64642BFAA11
 ```
 
 https://mybot314.ru/tekegram_catalog/

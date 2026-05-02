@@ -1,3 +1,32 @@
+###  Публикация: 1429708   (175709) от 07.12.2020
+
+Taj Mahal - Live at Ultrasonic Studios (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Going Up To The Country, Paint My Mailbox Blue (Live) (03:22)
+ 02. Good Morning Little Schoolgirl (Live) (05:32)
+ 03. Black Jack Davey (Live) (04:51)
+ 04. Why Did You Have To Desert Me (Live) (10:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:591A29539EC9982B2FC972FE1599900739608559
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1668250   (173920) от 12.10.2023
 
 VA - Halloween Blues (2023) [MP3|320 Kbps] <Blues, Blues Rock>
@@ -715,35 +744,6 @@ Oniblu - Play The Blues (2020) [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E6510F3A34B98EB3F0E89C624CB053CC2D31F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086225   (153303) от 24.12.2016
-
-Fiona Boyes - Professin' The Blues (2016) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153303.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Can't Stay Here No More (03:12)
-02. Devil You Know (02:57)
-03. Lay Down With Dogs (03:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82ACBDD11E1173BDD6B26C8845635777D833DD63
 ```
 
 https://mybot314.ru/tekegram_catalog/

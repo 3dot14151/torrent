@@ -1,3 +1,177 @@
+###  Публикация: 1727519   (108474) от 02.06.2024
+
+Potatohead People - Eat Your Heart Out (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Jazz, Funk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Formula [00:02:56]
+02. Keepin' It Kool [00:05:25]
+03. Last Nite [00:03:41]
+04. Angelwings [00:03:42](   Читать дальше...   )Жанр: Hip-Hop, Jazz, FunkПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C8413F11BBBB67A1A28C1B2ACA4A2A8FD3B43B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727089   (108468) от 02.06.2024
+
+VA - Metal Massacre 14 (2016)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Heavy Metal, Death Metal, Doom Metal, Thrash>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108468.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Metalian - The Traveller
+A2 - Noctum - Until The Until The End
+A3 - Gatekeeper - Bell Of Tarantia
+A4 - Assassin's Blade - The Demented Force(   Читать дальше...   )Жанр: Heavy Metal, Death Metal, Doom Metal, ThrashПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54EAA49E2DEC69DC522740842889ACEFE8A3DC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727085   (108467) от 02.06.2024
+
+VA - Metal Massacre 10 (1990) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Death Metal, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108467.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Betrayal - Sick Or Sane?
+A2 - Solitude - Typhoid Mary
+A3 - Murdercar - Mirage Of Blood
+A4 - Confessor - The Secret(   Читать дальше...   )Жанр: Thrash, Death Metal, Heavy MetalПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2ADBDBDC9F1DCF71A974BD381AB5116B6D18BA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727526   (108463) от 02.06.2024
+
+Emika - Haze (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Garage, Future Garage, UK Garage>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108463.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ((star key)) [00:04:56]
+02. Harmony [00:05:05]
+03. HaZe [00:03:17]
+04. Skip [00:01:00](   Читать дальше...   )Жанр: Ambient, Garage, Future Garage, UK GarageПродолжительность: 00:39:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1F2CF3AC285D3F872DBA8AAC490F4085E9A2669
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727404   (108461) от 02.06.2024
+
+Dark Sarah - Studio Albums (5 releases) (2015-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108461.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dark Sarah — финская симфо-метал группа, созданная Хайди Парвиайнен после ее ухода из Amberian Dawn в 2012 году.2015 - Behind The Black Veil
+2016 - The Puzzle
+2018 - The Golden Moth
+2020 - GrimЖанр: Symphonic MetalПродолжительность: 04:28:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C204351EE67680F5559F4D08EAF1CAA0F4B32D7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727662   (108421) от 03.06.2024
+
+Suffering Souls - An Iconic Taste Of Demise (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Idolum (00:02:00)
+02 - Soul Devourer (00:06:24)
+03 - From Hubris To Demise (00:05:51)
+04 - In The Order Of Doom (00:05:43)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4904AC0EBAD17744E13C97BD11FD35077783981
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1727728   (108418) от 03.06.2024
 
 The Acid Machine - 3 Albums (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Brazil Desert, Stoner, Acid-Rock>
@@ -568,179 +742,6 @@ Holy Mother - Rise (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0C0E42D20395C3765452F3114BBF0554EF17A737
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728706   (108273) от 08.06.2024
-
-Dream Drop - Acne Superstar (2023) Extended version, 2024, GAIN [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alt.Rock, Alt.Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – I’m Still Sick
-02 – Acne Superstar
-03 – Fold Under Pressure
-04 – That’s Not The World At All(   Читать дальше...   )Жанр: Alt.Rock, Alt.MetalПродолжительность: 00:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC29305C72D8D5295ECC677D0FF6891D2EFB252
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728820   (108269) от 08.06.2024
-
-Margaux - Inside the Marble (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <indie pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DNA [00:04:35]
-02. Picture It [00:03:31]
-03. I Wouldn't Want It Any Other Way [00:03:17]
-04. Sadie Something [00:02:34](   Читать дальше...   )Жанр: indie popПродолжительность: 00:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AFFEE446D8407BB3E01E0C742FC032E2D29DE64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728777   (108266) от 08.06.2024
-
-Atrophy - Studio Albums (3 releases) (1988-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108266.jpg" />
-</div>
-
-
-###  Подробнее
-
-Atrophy - американская трэш-метал группа, образованная в Тусоне, штат Аризона.1988 - Socialized Hate
-1990 - Violent By Nature
-2024 - AsylumЖанр: Thrash MetalПродолжительность: 02:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06D3BF7C0E4AE31CD33B18046936EB14BF7D67B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728663   (108264) от 08.06.2024
-
-Toxic Holocaust - Studio Albums (6 releases) (2003-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toxic Holocaust — американская трэш-метал-группа, основанная в Портленде в 1999 году.2003 - Evil Never Dies
-2005 - Hell On Earth
-2008 - An Overdose Of Death
-2011 - Conjure and CommandЖанр: Thrash MetalПродолжительность: 03:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78627459D5244934FE0EA2284DBF475A522B020C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728707   (108263) от 08.06.2024
-
-Evergrey - Theories Of Emptiness (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Falling From The Sun
-02 – Misfortune
-03 – To Become Someone Else
-04 – Say(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3765C6A4D2468BA261BF1C563AC7E8EE94A092B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728779   (108261) от 08.06.2024
-
-LImperatrice - Pulsar (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <nu disco, french pop, synthpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108261.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmogonie [00:02:49]
-02. Amour Ex Machina [00:04:03]
-03. Me Da Igual [00:03:29]
-04. Love from the Other Side [00:04:09](   Читать дальше...   )Жанр: nu disco, french pop, synthpopПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:302188F6CE63F1581F24457472D54FE46B52E8FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

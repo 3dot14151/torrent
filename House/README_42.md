@@ -1,3 +1,207 @@
+###  Публикация: 1044252   (567466) от 19.08.2016
+
+VA - Boom Dance (2016) [MP3|320 Kbps] <House, Progressive, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Whitestar  -  Show a Little Luv  7:15
+02. Prash  -  Bring That Bass (Radio Cut)  3:20
+03. Naxwell  -  Fade to Grey (Remastered Club Mix)  4:31
+04. Yaneena  -  Again (Danceheat Remix)  4:49(   Читать дальше...   )Жанр: House, Progressive, ClubПродолжительность: 01:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7A0CE531D4C737CB6D2C1B068D2EDE91D7BCCC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 529801   (567050) от 31.07.2012
+
+Zedd feat. Matthew Koma - Spectrum EP (2012) [MP3|320 кб/с]<Trance, Electro House, Progressive House, Dubstep>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_567050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zedd - Spectrum feat. Matthew Koma (Armin van Buuren Remix)
+02. Zedd feat. Matthew Koma - Spectrum (A-Trak & Clockwork Remix)
+03. Zedd feat. Matthew Koma - Spectrum (Arty Remix)
+04. Zedd feat. Matthew Koma - Spectrum (Deniz Koyu Remix)
+05. Zedd - Spectrum feat. Matthew Koma (Gregori Klosman & Tristan Garner Knights Remix)
+06. Zedd feat. Matthew Koma - Spectrum (Congorock Remix)
+07. Zedd feat. Matthew Koma – Spectrum (Monsta Remix)Жанр: Trance, Electro House, Progressive House, DubstepПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD53F6B037D4D4E3F292D7900BF3B7FEC6C936C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234797   (566002) от 08.07.2018
+
+VA - Last Chance Summer Sale House Music (2018) [MP3|320 Kbps] <House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andy Slate - Los Angeles
+02. Akkust - Sneaker
+03. Adrian House - Franchise
+04. Acrylite - Laugh(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF00CED5D09CAEB86A2C44A8E2FF213D7EA53FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152529   (565799) от 23.07.2017
+
+VA - Intricate Records Summer Vibes Vol.2 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565799.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Monique - Bombay (Sebastian Weikum Remix) 06.00
+02. Proluction - Modern Machine (Original Mix) 05.32
+03. PROFF - What You Got (Original Mix) 05.46
+04. MalYar - Doors (Original Mix) 05.11(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:891705CC86F86780122780C2E795176AEFA8F18B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1152471   (565796) от 23.07.2017
+
+Vasily Dvortsov - On the Way to the Cosmos (2016) Single [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Way to the Cosmos (04:29)
+ 02. On the Way in the Cosmos (05:11)Жанр: HouseПродолжительность: 00:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CEA8E73F90B173F4D1CE324C8A5B8F26DB520DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044370   (565660) от 20.08.2016
+
+VA - Essential House Society Vol. 2 (2016) [MP3|320 Kbps] <House, Progressive>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matt Caseli, David Jimenez & Errol Reid  -  Stay Together (Dave Rose Remix)  5:47
+02. Teo Mandrelli  -  Everyday Battle (Club Mix)  5:27
+03. Steve Edwards, RONN, Ron Carroll, Michael Murica & Damon Grey  -  When Love Gets in the Way (Argento Remix)  4:37
+04. Nick Hook  -  House People Pump It Up (Original Mix)  7:06(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 01:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C672ED944DA52923441B82E8112A27B4D9306D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1555922   (565310) от 06.06.2022
+
+VA - Summer Megamix 2022 [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaas - Shine A Light 2:59
+02. Micha Moor - Obsession 2:35
+03. Calmani & Grey, Alexandra Prince - Superstar 2:59
+04. The Disco Boys - Around The World (Dazz Remix) 2:39(   Читать дальше...   )Жанр: House, DanceПродолжительность: 03:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7D4F1A7CE4A001259F482DD8ABCB22AE73AD626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1304255   (564092) от 26.05.2019
 
 VA - 25 Compost Records (2019) [MP3|320 Kbps] <Nu Disco, Deep House, Electronica, Downtempo>
@@ -542,209 +746,6 @@ VA - !Kollections 01: The Club (2016) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC05DB39235D2D87F96EC64C3A7C217B49715454
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045373   (559816) от 23.08.2016
-
-VA - Yellow Bikini, Vol. 1 (2016) [MP3|320 Kbps] <Deep House, Electronic, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. B3nLizz - Heat [3:30]
-02. Da Angerboyz - Dreaming 2 [6:12]
-03. DJ Luciano - If U Come Closer [4:21]
-04. Dj 4Real - I'm Free [7:08](   Читать дальше...   )Жанр: Deep House, Electronic, Progressive HouseПродолжительность: 01:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617B615422F5550030324FAA97677445B8861C4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045540   (559684) от 23.08.2016
-
-VA - Defected present: For The Love Of House, Vol. 10 (2016) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Defected Present For The Love Of House Volume 10 (Continuous Mix 1) [01:10:05]
-02. Defected Present For The Love Of House Volume 10 (Continuous Mix 2) [01:11:37]
-03. Cassius - Feeling For You [04:38]
-04. Barbara Tucker - I Get Lifted (The Underground Network Mix) [07:13](   Читать дальше...   )Жанр: HouseПродолжительность: 06:01:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:004EB96A1C6A434CF417C2E9E2A02EC265B48BD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153327   (559550) от 26.07.2017
-
-VA - Nothing But... Progressive House Vol.04 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boskii - Rouge (Original Mix)  7:38
-02.  AkroSonix - Fade Away (Original Mix)  5:21
-03.  Andski - Aye Dee (Platunoff Deep Retouch)  6:22
-04.  Max Tarasov - Sun Valley (Original Mix)  4:52(   Читать дальше...   )Жанр: HouseПродолжительность: 02:44:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:729C3FAE3918750D9E49928DFB9ACA085BBC509E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 530948   (558946) от 04.08.2012
-
-VA - Plastic City Radio Show (Seasons Five Hosted By Lukas Greenberg) (2012) [MP3|320 кб/с]<Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558946.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Terry Lee Brown Junior – Escape Wheel (7:33)
-02. Zoe Xenia – Something In The Air (6:32)
-03. Evren Furtuna – Some Things Are Left To Say (6:49)
-04. Forteba – Statik Movement (7:37)(   Читать дальше...   )Жанр: Tech House, Deep HouseФормат: CD, Compilation, Mixed, UnmixedПродолжительность: 03:02:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DBEE79E261342C50CC57CC9439AAC36B7B9A13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305182   (558277) от 29.05.2019
-
-VA - Modern Nu Disco (2019) [MP3|256 Kbps] <House, IndieDance, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558277.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Peter Johanson - Walking On The Clouds (Original Mix) 4:20
-02. Andy DelaCruz - Feeling Tonight (Original Mix) 4:02
-03. Patrick Richmond - Deceiver (Original Mix) 4:16
-04. Danny Vegas - I'm Ok (Original Mix) 6:05(   Читать дальше...   )Жанр: House, IndieDance, Deep HouseПродолжительность: 01:52:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CEF1396E809BE41C11CE96AB7E8EC355559F249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153803   (557088) от 28.07.2017
-
-VA - Deep Passion Ibiza 2k17 (2017) [MP3|320 Kbps] <Electronic, Deep House, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557088.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victor Perez, Vicente Ferrer – Dame Suave
-02. Axel Fowley – Wanna to Fly
-03. Carlo Lucca, Felipe Querol, Phil Daras – No Tengo Na – Vicente Ferrer & Victor Perez Remix
-04. DJ Wady – Bardi(   Читать дальше...   )Жанр: Electronic, Deep House, HouseПродолжительность: 01:05:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35F4F0C7EEE94FF499C3B224FC65BD30271DDAEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153964   (557084) от 28.07.2017
-
-VA - Music From Paradise (2017) [MP3|320 Kbps] <Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Shop Boys - Nibelungen News (Diving Mix)
-02. Chillo - Treatment of Tales
-03. Reflex Artists - Silky Tears (Reflex Mix)
-04. Andrew Bright - Mamba (Chillout Version)(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 02:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8433D8E8FAEF93EF7B08630DEDA648C9A153D50
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1023248   (726195) от 04.06.2016
+
+VA - Новая Русская Дискотека - 5 (2016) [MP3|256-320 кб/с] <Поп, Танцевальный>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 140 ударов в минуту feat. DiscoBonus - Мурашки по телу (80-s rmx)
+02. Придет весна - Андрей Шпехт
+03. Ангел и Кот - А во дворе
+04. Сергей Хижняк и гр. Шоколад-Виктория - Дальнобойщик(   Читать дальше...   )Жанр: Поп, ТанцевальныйПродолжительность: 05:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EEF8F846C8C5AACC80444CE730F463D73FDACA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217968   (725207) от 08.04.2018
+
+VA - German Top 100 Single Charts 06.04.2018 (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725207.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marshmello & Anne-Marie - FRIENDS
+002. Olexesh - Magisch (feat. Edin)
+003. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
+004. Drake - God's Plan(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:45:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A42FA4E6932A47EB29A5AC68A57428DB4619721
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218167   (725204) от 08.04.2018
+
+VA - German Top 100 Single Charts 09.04.2018 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725204.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Marshmello & Anne-Marie - FRIENDS
+002. Olexesh - Magisch (feat. Edin)
+003. Rudimental - These Days (feat. Jess Glynne, Macklemore & Dan Caplen)
+004. Drake - God's Plan(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:725F9018E1D545CE02A8D2287773E6B8FA6A05A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1399700   (725159) от 02.08.2020
+
+VA - German Top 100 Single Charts 31.07.2020 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_725159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apache 207 - Unterwegs
+02. Capital Bra x Clueso x KC Rebell - Andere Welt
+03. UFO361 & Sonus030 - Shit Changed
+04. Apache 207 - Bläulich(   Читать дальше...   )Жанр: PopПродолжительность: 05:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1059C6B1D12F98D6DC5465A59AFEA04F06DFC296
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1128863   (724974) от 27.04.2017
 
 VA - Драйвовый молодежный весенний музон. Версия № 4 (2017) [MP3|256 Kbps] <Pop>
@@ -629,122 +745,6 @@ Bad Boys Blue - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8634D646B7535B7C8B7832C851E1BAA85F42FFD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218460   (722940) от 09.04.2018
-
-VA - Двигай Попой! Лучшая танцевальная музыка (2018) [MP3|256-320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Guetta, Sia - Flames
-02. Arash - Dooset Daram (feat. Helena)
-03. Aris - S.O.S. (DJ Antonio Remix)
-04. Burak Yeter - Crash(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A023236D2BEB6C138B8461A7477740650C54471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285278   (722771) от 25.02.2019
-
-VA - German Top 100 Single Charts 04.03.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722771.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. KC Rebell - DNA (feat. Summer Cem & Capital Bra)
-002. Shirin David - Gib Ihm
-003. Eno - Ferrari (feat. Mero)
-004. Pietro Lombardi - Nur ein Tanz(   Читать дальше...   )Жанр: PopПродолжительность: 05:33:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F1CF6A6789F4186DCB09AB48B2EA0F21A8620F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129247   (722512) от 28.04.2017
-
-VA - Лучший весенний хит. Часть № 12 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722512.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ustinova - Ночь Поет 3:16
-002. Света Корцман - Небо-Купол 3:18
-003. Graal - На Куски 3:16
-004. Vikki - Сама Виновата 3:16(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFAB1A54E9594BB2FF4879E80680DB70AD6EBD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129248   (722509) от 28.04.2017
-
-VA - Весна. Высшая лига. Сборник № 5 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_722509.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тимур Спб - Без Сердца Девчонка 3:20
-002. Дмитрий Первушин - Ты Меня Не Любишь Не Жалеешь 3:23
-003. Bibi - Волнами 3:45
-004. Elvira Ragazza - Забудь 3:20(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B6D65296869A85A98DF42F5D1DB88594E4D05A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

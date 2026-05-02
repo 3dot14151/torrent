@@ -1,3 +1,119 @@
+###  Публикация: 1621569   (1030754) от 26.03.2023
+
+Peter Rudzinski - Together (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hear Me Knocking (3:52)
+02. Open the Gate (3:26)
+03. Move (3:21)
+04. For J (1:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CE11785B359642FB873521C0815A2151B9E5EFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621587   (1030749) от 26.03.2023
+
+Skylar Rogers - Among the Insanity (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love in the Left Lane (3:52)
+02. Among the Insanity (4:35)
+03. One Last Kiss (4:18)
+04. Ride That Lightning (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F16F000F3194D572E0AD36814835426D2EB1B33A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621609   (1030747) от 26.03.2023
+
+The Four Breakers - Dry Rivers (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030747.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Do You Think (4:55)
+02. Hotel Room (2:59)
+03. Independent Woman (4:40)
+04. I Follow You (3:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D75E800C65BEEA5E7BD2D1F349AD7EEAA5E2DC08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1621606   (1030746) от 26.03.2023
+
+The Cold Stares - Voices (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nothing But The Blues (3:22)
+02. Come For Me (3:30)
+03. The Joy (3:46)
+04. Lights Out (2:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF8BBFC97B9D2997115CA419F58C30015CA5571C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1621582   (1030744) от 26.03.2023
 
 Ryan Neville & Midnight Blues Band  - Voodoo Masters (Album Remix) (2023) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -629,122 +745,6 @@ Nathan B. Spooner - Grampa's Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1715F7B02AD735BC424D4C5F0E9A9B949E1284A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450064   (1029307) от 24.02.2021
-
-VA - Classic Blues From Bluesville (2014) Box Set, 3 CD [FLAC|Lossless|image + .cue] <Blues, Classic Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029307.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bluesville Records была дочерней компанией Prestige Records , американской звукозаписывающей компанией , основанной в 1948 году Бобом Вайнштоком (Bob Weinstock), с основной целью документирования работ старых классических блюзменов, позабытых современной аудиторией. Такие блюзмены, как  Roosevelt Sykes (Рузвельт Сайкс), Lightnin' Hopkins (Лайтнин Хопкинс), Rev. Gary (   Читать дальше...   )CD1:
-01. Lightnin' Hopkins - Walkin' This Road by Myself  (4:53)
-02. Memphis Slim - Grinder Man Blues  (4:35)
-03. Blind Willie McTell - Broke Down Engine Blues  (2:47)(   Читать дальше...   )Жанр: Blues, Classic BluesПродолжительность: 03:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C50176C9DFAA1398003F5161E1AC4D40427E5714
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450494   (1029009) от 26.02.2021
-
-Curtis Salgado - Damage Control (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Longer That I Live (3:51)
-02. What Did Me In Did Me Well (4:26)
-03. You're Going To Miss My Sorry Ass (4:09)
-04. Precious Time (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1905B830BD458DD68C576E598951ADB932C2228B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450495   (1029007) от 26.02.2021
-
-Joanna Connor - 4801 South Indiana Avenue (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destination (feat. Jimmy Hall) (3:32)
-02. Come Back Home (4:26)
-03. Bad News (6:27)
-04. I Feel So Good (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:350B88B741884C1203FD67F22C2F41AAA69A4245
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450497   (1029006) от 26.02.2021
-
-Johnny Mastro & Mama's Boys - Elmore James for President (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elmore James for President (2:32)
-02. Red Guitar (3:20)
-03. See Me in the Evening (4:11)
-04. Child Wolf (3:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0E69F634BAAAC6E2F1DA03735696077631782A
 ```
 
 https://mybot314.ru/tekegram_catalog/

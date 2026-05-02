@@ -1,3 +1,61 @@
+###  Публикация: 1398923   (734305) от 29.07.2020
+
+VA - Beatport Future House: Sound Pack #138 (2020) [MP3|320 Kbps] <Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734305.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Don Alpha - Follow The Loves
+002. Klartraum - Orchidee
+003. Mind Of One - Mystic
+004. Max Tresher - Trippin(   Читать дальше...   )Жанр: Future HouseПродолжительность: 08:42:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83004F791FFE6A32E3A57B40B46CF095A0FFC602
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528629   (734021) от 03.02.2022
+
+VA - Housewerk (2022) [MP3|320 Kbps] <Tech House, Minimal, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MK - Chemical (4:10)
+02. Navos, HARLEE, Emily Nash - You & I (2:52)
+03. Noizu - Middle (3:01)
+04. NuBass, MPH, Purple Velvet Curtains - The Night (2:53)(   Читать дальше...   )Жанр: Tech House, Minimal, HouseПродолжительность: 06:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51D8719A9C2C81EE19E346B4A98D6303EED84527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1399331   (733879) от 30.07.2020
 
 VA - Sound City: Urban Techno Party (2020) [MP3|320 Kbps] <Techno>
@@ -693,70 +751,6 @@ Metro East - Metro East (2022) by Gertrudda [MP3|320 Kbps] <Synthwave, Darksynth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B834A2A731F588395878C6A4FF8CDD3A378A4EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128157   (729868) от 23.04.2017
-
-VA - Record Super Chart #483 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  KSHMR & Crossnaders feat. Micky Blue - Back To Me  3:56
-02.  Грибы - Тает Лёд (Kolya Funk & Lavrushkin Remix)  4:00
-03.  Matt Nash - Know My Love  4:23
-04.  Estradarada - Вите Надо Выйти (Misha Klein Remix)  4:18(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:04:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D96AD4563FB50726E0C2D25A82498E4614F286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 325226   (729712) от 18.04.2011
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #45 (2011) (18.04.2011) [MP3|320 kbps]<Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Julian Vincent feat. Jessie Morgan - Shadows The Sun (Original Mix)
-02. Armin van Buuren vs. Faithless feat. Jaren - Not Unforgivable (Russerious Mashup)
-03. Ben Gold - Llacuna (Vocal Mix)
-04. Criostasis - Close Your Eyes (And Fly)
-05. Eco - Drowning (Original Mix)
-06. Heatbeat feat. Jeza - Light Up (Original Mix)
-07. Shogun feat. Emma Lock - Run To My Rescue (Original Mix)
-08. Tom Colontonio feat. Michele Karmin - Colors Of A Tear (Suncatcher Remix)
-09. Appledrugs - Every Seconds of Time (Lala Project Mash Up)
-10. Nash & Pepper - I Killed The Love (Mike Foyle Vocal Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:33:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24215E178646CD3BF803D7144B0CE02F98FA59C
 ```
 
 https://mybot314.ru/tekegram_catalog/

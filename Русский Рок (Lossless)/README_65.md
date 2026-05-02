@@ -1,3 +1,32 @@
+###  Публикация: 1693227   (121853) от 20.01.2024
+
+Эйфория - В каждом из нас (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Интро (00:01:22)
+02 - Виртуальная зависимость (00:04:47)
+03 - Горизонт событий (00:04:11)
+ 04 - Страсть (00:04:32)(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D9FDA824DBCE09B0143710C9D6394E638D3401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692981   (121830) от 20.01.2024
 
 InFade - Потерянный мир (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -710,35 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3EB79DB1B217987EEF6FA379D8B8E26296EC8119
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1708232   (113093) от 20.03.2024
-
-Джизус - Близнецы: Eros / Thanatos (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Москва [00:03:43]
-02. Привет [00:03:07]
-03. Временами всё пройдёт [00:04:56]
-04. Дыши со мной [00:03:55](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:16:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3850F57D0BD08B727A2267F06E341BB25C9A7709
 ```
 
 https://mybot314.ru/tekegram_catalog/

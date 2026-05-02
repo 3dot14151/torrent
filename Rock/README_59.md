@@ -1,3 +1,32 @@
+###  Публикация: 1573916   (408864) от 02.09.2022
+
+Feather Mountain - To Exit a Maelstrom (2022) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. August Mantra (06:38)
+02. Beneath Your Pale Face (03:13)
+03. Pariah (04:17)
+04. Cloud-Headed (06:12)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 00:44:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:167EDDB939C518378EB355D247D511D6D44F85F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1168547   (408847) от 24.09.2017
 
 Klaatu - Klaatu / Hope (1976-77) Reissue, 2000, BGO Records [MP3|320 Kbps] <Art, Psych-Prog Rock>
@@ -734,41 +763,6 @@ Somali Yacht Club - Sandsongs (2011) [MP3|320 кб/с]<Stoner Psychedelic Rock /
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20BEFA040E08E8BFB2B419AB9A7A0F55098EE0FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569732   (391931) от 03.11.2012
-
-Unheilig - Lichter der Stadt Live (2012) [MP3|320 кб/с]<Gothic/Synth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391931.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01.Das Licht (Intro).mp3
-02.Herzwerk.mp3
-03.Lichter Der Stadt.mp3
-04.Unter Deiner Flagge.mp3
-05.Grosse Freiheit.mp3
-06.Auf ewig.mp3
-07.Unsterblich.mp3
-08.Nachtschicht.mp3
-09.Ein Grosses Leben.mp3(   Читать дальше...   )Жанр: Gothic/Synth RockПродолжительность: 01:43:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6470FA12BD2BB5AC0109455D746F2B47D7D795DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

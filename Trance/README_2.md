@@ -1,3 +1,148 @@
+###  Публикация: 1841830   (1048432) от 13.12.2025
+
+VA - A State of Trance Year Mix 2025 (Selected by Armin van Buuren) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048432.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren & Jon Bon Jovi - Take The Leap (A State of Trance Year Mix 2025 Intro) [1:55]
+002. Armin van Buuren feat. JAI RYU - Let It Be For Love (Extended Mix) [5:29]
+003. Armin van Buuren & Omnia - Love (Extended Mix) [5:28]
+004. Ruben De Ronde & Amber Revival - Illuminate (Extended Mix) [5:43](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 12:03:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03692DA5E342E15716FB7C95F12AE3DE8A0F03D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841641   (1048253) от 12.12.2025
+
+VA - Black Hole Trance Music 12-25 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ferry Corsten - Drum's A Weapon (Giuseppe Ottaviani Extended Reprint) 04:48
+02. Andy Duguid & Chelsea Holland - You And I (Extended Mix) 05:14
+03. Solarstone - Memoryland (Extended Mix) 08:31
+04. Daxson & Clara Yates - Turn Back (Extended Mix) 05:53(   Читать дальше...   )Жанр: TranceПродолжительность: 02:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54E5E39103ED63365E0C7D37F1085D762E0B4DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841708   (1048212) от 13.12.2025
+
+VA - Lost Kommunication Reflections 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048212.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jox & Helena Kristiansson & Roberta Harrison - Cherry Blossom (Extended Mix) [5:21]
+02. Lee Hanlon & JODIE POYE - Hope (Extended Mix) [7:09]
+03. Lee McNeill - Slip Away (Extended Mix) [7:16]
+04. Mehran Vedadi - I Can't Live Without You (Extended Mix) [5:44](   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4931BC5B8FBFDD4AE7166C76787D1BEB838A9F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841201   (1047858) от 09.12.2025
+
+VA - Best of FSOE 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daxson - Perpetuity (Extended Mix) [7:26]
+02. Aly & Fila with Ferry Tayle - Take Me Higher (Extended Mix) [7:31]
+03. Doppenberg - Worlds Apart (Extended Mix) [6:43]
+04. Allen Watts & Will Rees - Pendulum (Extended Mix) [6:41](   Читать дальше...   )Жанр: TranceПродолжительность: 02:18:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB115244DAD01A971DD02C9697D53088079FF9A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841038   (1047739) от 08.12.2025
+
+VA - The Best Releases 2025 of Endlessky Audio (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047739.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Iberian - Trust Me (Betibwe Remix) [6:48]
+02. D.J.G. & M.I.K! vs. DJ MacX - Indian Spring (POINoir Remix) [7:08]
+03. Grande Piano - Adrenalin (Original Mix) [7:34]
+04. Jef Karlen - Illariy (Original Mix) [6:30](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8061EB0C02995B6A523BA6FE0F2DF3865B1AC85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1840681   (1047511) от 06.12.2025
 
 VA - A Journey Through Time and Trance (2025) [MP3|320 Kbps] <Trance>
@@ -600,149 +745,6 @@ VA - The Sound Of 2023 Mix 2: Seoul (2023) [MP3|320 Kbps] <Trance, Progressive, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BECCF098231711DC2E5653386E7556FF42FE0884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438415   (1041107) от 08.01.2021
-
-VA - A State of Trance: Year Mix (Mixed by Armin van Buuren) (2020) [MP3|320 Kbps] <Trance, Progressive Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041107.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren - A State Of Trance Year Mix 2020 (Intro: What Is Out There?)
-002. Gareth Emery & NASH feat. Linney - Yesterday (Original Mix)
-003. Maryn & Joel Freck - Dawn (Original Mix)
-004. Solarstone - Seven Cities (Tom Staar Remix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 08:32:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB63641525407D0998E8A3DB7DA4E115A07C03E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438525   (1040947) от 09.01.2021
-
-VA - Han Beukers Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grande Piano & KBK - Mystery Of Tomorrow (Intro Mix)
-02. Novel - Heavenly Mind (Original Mix)Жанр: Trance, Uplifting TranceПродолжительность: 02:19:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F60320A4F13CF9C4C2321A61F6200DCB779E6503
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438520   (1040945) от 09.01.2021
-
-VA - Kiyoi & Eky Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040945.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grande Piano - Monte Cassino (Orchestral Mix)
-02. Khoa Tran - Reality Somewhere (Original Mix)
-03. Marco MC Neil - Unforgiven (London & Niko Remix)
-04. Subora - Wings Ascending (Original Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:22:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05893712AEBD775E02F03D4DE8CE8A3CB2348281
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438534   (1040944) от 09.01.2021
-
-VA - DreamLife Presents Sundance Recordings (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grande Piano - Monte Cassino (Intro Mix)
-02. Paul Cartwright - Just Be (Original Mix)
-03. Wayf4rer - Anemone (DreamLife Remix)
-04. Ajie Benno - Passion (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C6EA971A636EB514A7ABF61C8C0BB57EB17A29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1438681   (1040943) от 09.01.2021
-
-VA - Best Of FSOE Fables (2020) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dan Stone - Vice Versa (Extended Mix)
-02. Ferry Tayle & Elucidus - Fremont (Extended Mix)
-03. Metta & Glyde - Renaissance (Extended Mix)
-04. Maria Healy - Dreamer (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:00:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63F4154030AE4FE5F53A53C21707FDFA175E528A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1055948   (482970) от 24.09.2016
+
+Проекты - VideoHive - VR 360 Photo Gallery [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482970.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слайд-шоу в 360 градусов для просмотра в очках или шлеме виртуальной реальности (Oculus rift, Gear VR).Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83FDFA1408CDFDE349490B8544B7280B601400BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056451   (481673) от 25.09.2016
 
 Проекты - MotionMile - Falling Gallery [AEP]
@@ -658,33 +684,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:254FFFEFD7F7D931F7A3EC41A2EC9E2B370E98E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939088   (475163) от 21.09.2015
-
-Проекты -VideoHive - Walking In The Park [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475163.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу. Проект предназначен для редактирования в AE.
-Превью, инструкция - в раздаче.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ED88A89BD395D650D440D84B1C42306A8AEBE44
 ```
 
 https://mybot314.ru/tekegram_catalog/

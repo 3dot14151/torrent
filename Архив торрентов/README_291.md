@@ -1,3 +1,64 @@
+###  Публикация: 605016   (996074) от 18.01.2013
+
+VA - Charme de Paris (2013) [MP3|320 кб/с]<Lounge, Chillout, French>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996074.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Rainfairy - Au Clair De La Lune
+2. Newton feat. Twila.too - New Beautiful Life
+3. Euphonic Traveller - Montmartre
+4. Martinique Le Souffleur - St.Tropez
+5. Bantunani - Decomposition
+6. Giacomo Bondi - Mon Amour
+7. Bloomfield - Surfin Cote D'Azur
+8. Gabin - La Maison (Vocal Version)
+9. Glam Sam & His Combo - Charmy
+10. Newton feat. Twila.too - Parler Aux Etoiles(   Читать дальше...   )Жанр: Lounge, Chillout, FrenchПродолжительность: 01:22:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF358A006DB5772F196053DED06DE0D78761583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 601545   (996069) от 18.01.2013
+
+Виннету - вождь Апачей / Old Shatterhand (1964) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_996069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Верная Рука и Виннету продолжают успешно противостоять проискам коварных злодеев, желающих всеми правдами и неправдами завладеть племенными землями апачей. Захватывающие скачки и погони, безупречная стрельба навскидку, драки - все это присутствует в изобилии и никого не оставит равнодушным.Жанр: Приключения, вестернРежиссер: Хуго ФрегонезеВ ролях: Гай Мэдисон, Гойко Митич, Лекс Баркер, Пьер Брис, Ральф Вольтер, Ален Тиссье, Ральф Уолтер, Густаво Рохо, Далия Лави, Рик Бэттеглия, Китти Маттерн, Кристиан Вольф, Ингеборг Веллманн, Душан Тадич, Андреа Скотти, Дитмар Шенхер, Ганс Нилсен, Рут-Мария Кубичек, Мартин Хирте, Арни Эльшольц, Александр Джурич, Райнер Брандт, Мирко Боман, Стево ПетровичПеревод: Многоголосый закадровыйПродолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23FDD71029262F4BD1D22ACB00590924948A4BB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 604580   (996068) от 18.01.2013
 
 Книжная серия | Phantiki! (21 книга) [2003-2011] [FB2]
@@ -668,67 +729,6 @@ Markus Schulz - Global DJ Broadcast (17-01-2013) [MP3|256 кб/с]<Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94F659797979F8DD5BEBEE190584933AEDC5B3DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605529   (995926) от 19.01.2013
-
-[Wallpapers] vodopad
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995926.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представлены фотографии водопадов разных стран.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE21FE67E8E69353349D8A4DF667F92171011D77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 605273   (995921) от 19.01.2013
-
-VA - 15 Top Trance Hits (2013-01) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. W&W - Lift Off (Original Mix)
- 02. Markus Schulz ft Ana Diaz - Nothing Without Me (Antillas & Dankann Club Mix)
- 03. Planet Perfecto - Bullet In The Gun (Eddie Halliwell Remix)
- 04. Emma Hewitt - Rewind (Mikkas Remix)
- 05. Solarstone vs Scott Bond - 3rd Earth (Heatbeat Remix)
- 06. Roger Shah ft Adrina Thorpe - Island (Antillas Club Mix)
- 07. Tritonal vs Super8 & Tab - Arc (Radio Edit)
- 08. Heatbeat - Chow Mein (Noah Neiman Remix)
- 09. Yahel & Liya - Creatures (Paul Oakenfold Remix)
- 10. RAM & Alex M.O.R.P.H. - Grotesque (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:08:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE23C3BC611F0A5B003FE08BCC9E5DAA3ED387BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

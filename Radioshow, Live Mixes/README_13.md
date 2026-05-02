@@ -1,3 +1,61 @@
+###  Публикация: 1568332   (464084) от 07.08.2022
+
+Swedish House Mafia - BBC Radio 1 Essential Mix (Ushuaia Beach Club Ibiza, Spain) (2022-08-06) [MP3|~245 Kbps (V0)] <Electro House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish House Mafia - Can U Feel It
+02. Swedish House Mafia - It Gets Better vs. Greyhound (Swedish House Mafia Mashup) w/Swedish House Mafia - Can U Feel It (Acappella)
+03. Swedish House Mafia ft. Tinie Tempah - Miami 2 Ibiza (Swedish House Mafia 2022 Rework) w/Swedish House Mafia - Can U Feel It (Acappella)
+04. Shadow Child - Space Riot(   Читать дальше...   )Жанр: Electro House, Tech HouseПродолжительность: 01:59:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4ACE4267E480B8C63C5A12976E2D91F98E1A3AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162375   (459217) от 01.09.2017
+
+VA - Aly & Fila - Future Sound Of Egypt 511 (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Super Flu - Mygut (Solomun Remix)
+02.Estiva - Doorlopen
+03.Dousk - Whisper Unit
+04.Alikast - Winter Rain(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82A6F125F7CDC7498CDF8A094B137E843194598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1321499   (459087) от 24.08.2019
 
 Jorn van Deynhoven - Live @ Dance For Love Festival, MTW Club Offenbach, Germany 2019-07-13 [MP3|320 Kbps] <Trance>
@@ -683,64 +741,6 @@ Danny Oh Guestmix:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3300978969575E255F1A4A15988D6AE5682313E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1252419   (409427) от 05.10.2018
-
-VA - Markus Schulz - Global DJ Broadcast - World Tour Tokyo (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz - The Awakening (Transmission 2018 Theme)
-02. Pink vs. Vincent de Moor - What About Flying Away (Markus Schulz Mashup)
-03. R3hab & Skytech - Hyperspace
-04. Artento Divini - Hypercube(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:59:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58EF21F8AC0ECCCA02622FCEBBD62A7D00C16556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169859   (401588) от 29.09.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 515 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Audiofly & Patrice Baumel - Atacama (Original Mix)
-02. Tale Of Us & Vaal - Monument (Stephan Bodzin Remix)
-03. Luke Sambe - Becoming (GMJ Remix)
-04. Paul Thomas - Alpha Papa (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16226DCF5E6494B64377ACA49215B3A8CAD1A72C
 ```
 
 https://mybot314.ru/tekegram_catalog/

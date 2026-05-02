@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1867883   (1067389) от 
+
+Liza Minnelli - Liza Minnelli At Carnegie Hall (1987) [FLAC|Lossless|tracks + .cue] <Jazz, Stage & Screen>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sweetest Sounds (2:40)
+02. Toot Toot Tootsie (1:28)
+03. Buckle Down Winsocki (1:40)
+04. Alexander's Ragtime Band (3:40)(   Читать дальше...   )Жанр: Jazz, Stage & ScreenПродолжительность: 01:40:25 (265 703 676 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAF43E7AFB475C53E094539159531ABEF74293BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866039   (1065848) от 19.04.2026
+
+United Future Organization - No Sound Is Too Taboo (1994) [FLAC|Lossless|image + .cue] <Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065848.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		United Future Airlines	4:48
+2		Magic Wand Of Love	6:22
+3		Stolen Moments	5:21
+4		Future Light	5:58(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 00:54:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14315CFBBE2C9B30B85F7143724FD107C0C9C6FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865266   (1065223) от 15.04.2026
 
 Spyro Gyra - Heart of the Night (1996) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion>
@@ -689,64 +747,6 @@ The Neo Swingers - Electro Swing X-Mas 2025 (2025) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:55B0746664D95222449F90AF06C69EC23F604484
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846003   (1051044) от 04.01.2026
-
-Electro Swing Groove - Fantasy Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tangerine Juice (2:50)
-02.  Masterpiece (2:28)
-03.  Run Away (3:17)
-04.  Floating Pineapples (2:41)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:57:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C2969DFC8E03A65A395DF6AA3816BF8B7000DF9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846004   (1051042) от 04.01.2026
-
-Electro Swing Radio - Bootleg Boogie (Electro Swing Trance Jazz Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sidecar Swing (Electro Swing Trance Jazz Music) (2:09)
-02.  Bootleg Boogie (Electro Swing Trance Jazz Music) (1:51)
-03.  Backroom Rhythm (Electro Swing Trance Jazz Music) (1:45)
-04.  Flappers Secret (Electro Swing Trance Jazz Music) (1:58)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E91D891476CA055BD5D60FFFA716C31DC978E12
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1329582   (352376) от 05.10.2019
+
+VA - I Love Mukke, Vol.1 (2019) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Nu Disco>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_352376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirty Doering – Emma Wong (06:07)
+02. Lexer – You Give Me (06:47)
+03. KANT – Wow (06:25)
+04. Kollektiv Ost – Power | Sascha Braemer Remix (06:48)(   Читать дальше...   )Жанр: Deep House, Tech House, Nu DiscoПродолжительность: 01:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFDFCF303BE9244BD2593710F7C54509E748040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1329500   (352367) от 05.10.2019
 
 Benny Benassi Presents The Biz - Love Is Gonna Save Us (2004) [FLAC|Lossless|WEB-DL|tracks] <Electro House>
@@ -712,35 +741,6 @@ SCSI-9 - Squares And Circles LP (2019) [FLAC|Lossless|WEB|tracks] <Deep House , 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:543849064A47E93E71200DDEC73316E2D1DD1F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331752   (320647) от 17.10.2019
-
-VA - Sunset At Stonehenge (Mixed by Paul Oakenfold) (2019) [FLAC|Lossless|tracks|CD|scene] <Deep House, Progressive House, Classical>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. U2 - Love Is All We Have Left (2:37)
-02. The Grid - Floatation (Subsonic Grid Mix) (5:56)
-03. Empire Of The Sun - We Are The People (3:54)
-04. Clarian - Kill For Love (5:50)(   Читать дальше...   )Жанр: Progressive House, Deep House, ClassicalПродолжительность: 01:19:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A3093D36389794DDEBA383666E2263E919943369
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1409365   (447232) от 16.09.2020
+
+Craig Armstrong - Piano Works (2019) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In My Own Words (2:44)
+ 02. Heatmiser 2 (4:02)
+ 03. Hidden (1:50)
+ 04. Gentle Piece (2:55)(   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 00:56:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1D521CB9F723E204E0AA2F713C8901954143392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1249073   (437337) от 22.09.2018
 
 Annelie - After Midnight (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Piano>
@@ -704,33 +733,6 @@ Arturo Benedetti Michelangeli - Frederic Chopin - 10 Mazurkas  (1972 Stereo) Deu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA6EDD64AADA286137F6F00D22988435778738F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075938   (315678) от 24.11.2016
-
-Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und Orchester Nr.1 & 3 (1980 - 1987) 1997 Deutshe Grammophon [FLAC|Lossless|image + .cue] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юношески лучезарный, полный энергичного движения Первый концерт C-dur, Op. 15 (1796) привлекает поэтическим преломлением народнопесенных жанров и интонаций. В Третьем концерте c-moll (1800) обращает на себя внимание трагический пафос первой части.
-   В концертах Бетховена чрезвычайно велика роль развитых виртуозных солирующих инструментов. Они придают музыке блеск, (   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088E8EC80CE2EB183AF7D04ED7E6F439DD7CCEDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

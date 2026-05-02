@@ -1,3 +1,61 @@
+###  Публикация: 1284550   (727882) от 22.02.2019
+
+John Pizzarelli Trio - For Centennial Reasons: 100 Year Salute to Nat King Cole (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727882.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Straighten Up and Fly Right
+02. A Hundred Years from Now
+03. The Very Thought of You
+04. (I Would Do) Anything for You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BC6869FE57F6F30175BDCA86B2546AE67DB755C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1022793   (727862) от 03.06.2016
+
+The Modern Jazz Disciples (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.After You've Gone [06:05]
+ 02.Disciples Blues [07:16]
+ 03.Slippin' & Slidin' [05:10]
+ 04.Little Taste [06:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC9FCCD708C9973C323D1F19EBD088BAAA4EA952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1022798   (727856) от 03.06.2016
 
 Jay McShann - The Last Of The Blue Devils (1977) Remaster, 2013, Warner[FLAC|Lossless|tracks + .cue] <Piano Jazz, Jump Blues, Mainstream Jazz>
@@ -687,64 +745,6 @@ Dexter Gordon - Complete Kenny Drew & Carl Perkins Sessions (1955) 2004, Lone Hi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8950B0A77F1D88C794F7100FB7E1CFF03320C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285108   (724472) от 24.02.2019
-
-Dexter Gordon - The Squirrel (1967) 2001, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction [0:11]
-02. The Squirrel [15:13]
-03. Introduction [0:20]
-04. Cheese Cake [20:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714D358562FBCEC5EDC5F90D1DEE48333E815580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531139   (724427) от 14.02.2022
-
-Louis Jordan And His Tympany Five - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Jump Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reet Petite And Gone [2:45]
-02. Sure Had A Wonderful Time [3:01]
-03. I Know What You're Puttin' Down [3:08]
-04. Open The Door Richard! [2:33](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 01:03:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA67951BFC56E2AA0F0C77ABF2A6D63B29C79AF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

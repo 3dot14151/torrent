@@ -1,3 +1,137 @@
+###  Публикация: 470850   (83259) от 20.03.2012
+
+Manny Charlton Band (ex-Nazareth) - Stonkin' (2000) [FLAC|Lossless]<Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83259.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Pushin' Daisies ... 5:38
+2. Not Disappearing ... 7:12
+3. What U Said ... 6:29
+4. Killed My Ass ...6:27
+5. Inside My Soul ... 5:02
+6. The Leaving ... 8:41
+7. Twisted ...5:24
+8. Maggot I ... 4:02
+9. Sweet Love ... 6:28Жанр: Classic Rock, Hard RockПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 466520   (81656) от 12.03.2012
+
+Lee Small - Jamaica Inn (2012) [FLAC|lossless]<Hard Rock / Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jamaica Inn (3:58)
+02. The Captain's Quarters (6:33)
+03. Black Bess (3:40)
+04. Walk The Plank (3:01)
+05. Shine A Light (5:29)
+06. Dead Man Walking (5:10)
+07. Voyager (5:31)
+08. I Am The Sea (2:37)
+09. Smuggler's Blues (4:44)
+10. Waiting For The Hangman (3:47)(   Читать дальше...   )Жанр: Hard Rock / BluesПродолжительность: 00:51:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 465206   (81042) от 09.03.2012
+
+Sweet (The sweet) - 4 альбома (1974-1982) [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_81042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альбомы:
+1974 - Desolation Boulevard (Remastered + Expanded) (UK Version)
+1976 - Give Us A Wink (2005, Sony BMG Remastered)(UK Version)
+1979 - Cut Above the Rest (1992, Repertoire Records REP 4202-WP)
+1982 - Identity Crisis (1992, Repertoire Records & Tapes REP 4204-WP)Жанр: Hard RockПродолжительность: 03:23:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460236   (79149) от 29.02.2012
+
+Whitesnake - Here I Go Again: The Whitesnake Collection (2002) 2CD [FLAC|Lossless]<Hard Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 		Here I Go Again (Radio Version)	3:54
+02. 		Slide It In 	3:21
+03. 		Slow An' Easy	6:11
+04. 		Love Ain't No Stranger 	4:20
+05. 		All Or Nothing 	3:44
+06. 		Gambler 	3:58
+07. 		Guilty Of Love 	3:26
+08. 		Hungry For Love 	3:30
+09. 		Give Me More Time 	3:45
+10. 		Spit It Out 	4:27(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 01:17:55 /  01:17:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 456994   (78128) от 24.02.2012
 
 Kiss - 5 Albums (1978-1982) [FLAC|Lossless]<Hard Rock, Classic Rock>
@@ -655,122 +789,6 @@ The Limited Edition 5-CD Box Set! THE WARNER RECORDINGS 1985-1994 годов, в
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C964F996B3CA7AB5C870888684B13EFC3051896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782991   (69863) от 03.03.2025
-
-Genghis Rex - Behold The Strange Land (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69863.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Run Brother Run (4:11)
-02.  Wow! Signal (3:31)
-03.  Labareda (participação de Oswaldo Montenegro) (3:33)
-04.  Cloudy Winter Dome (4:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:27:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949009432D8ABC61FD23ABB69BCCA66F434FCC90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784015   (69701) от 08.03.2025
-
-Disturbed - The Sickness (2000) Reissue, 2025, Reprise Records, 25th Anniversary Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69701.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD One - Original Album:
-01. Voices
-02. The Game
-03. Stupify(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:32:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF6C26E0F1E8F203667C36499F4D6EAF51D8BBE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784001   (69679) от 08.03.2025
-
-Dokken - Original Album Series (2009) Box Set, Reissue, Compilation, 2009, Rhino Records [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69679.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Breaking The Chains:
-01. Breaking The Chains
-02. In The Middle
-03. Felony(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 04:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20A25D6608682D61C2ED503BB6E213BE4AD69881
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785056   (69444) от 14.03.2025
-
-Eisbrecher - Kaltfront°! (2025) [FLAC|Lossless|image + .cue] <Hard Rock, Goth Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69444.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Minus 90 Grad 01:32
-02. Everything is wunderbar 03:29
-03. Kaltfront 04:16
-04. Auf die Zunge (feat. Schattenmann) 03:41(   Читать дальше...   )Жанр: Hard Rock, Goth RockПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEF088C2C08D7E6ECB7037224C8B1C2441C15B8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

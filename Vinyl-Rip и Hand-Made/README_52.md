@@ -1,3 +1,177 @@
+###  Публикация: 843120   (198016) от 23.05.2023
+
+James Last - The James Last Album (1971) [FLAC 2.0 24/192|image+.cue (Vinyl-Rip)]<Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_198016.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 A Man And A Woman
+A2 Wheels
+A3 My Bonnie
+A4 Montego Bay(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:142276DB4C98E42D32D55206876FF2255603C103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636049   (197851) от 29.05.2023
+
+Chris Rea - Легенды зарубежного рока (2000) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Blues-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_197851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+A1 Looking For The Summer
+A2 Josephine
+A3 Auberge(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 01:13:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A58E6C29AC8EAFA9AB982DB1D4F85700DC5B32F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643972   (196226) от 04.07.2023
+
+Rockets - Five Coloured Numbered Albums (2018-2021) Limited Edition, Numbered, Reissue, Gatefold 180g Electric-Blue And Orange Vinyl [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electro, Synth-pop,  ...
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_196226.jpg" />
+</div>
+
+
+###  Подробнее
+
+00:38:54
+
+A1 Atomic
+(A. Maratrat, G. L'Her)(   Читать дальше...   )Жанр: Electro, Synth-pop, DiscoПродолжительность: 03:11:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E71AC9C5A5CD91CB152E3E12DF9D0CCE4B4095
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649632   (194449) от 12.08.2023
+
+Metallica - 72 Seasons (2023) [Vinyl Rip 24Bit/192kHz] (2LP, EU)  <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_194449.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 72 Seasons
+02. Shadows Follow
+03. Screaming Suicide
+04. Sleepwalk My Life Away(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:16:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4702DBA6FEF8CFC85A9CF4F0B95C5943E0D26A06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549737   (193512) от 01.09.2023
+
+Dee Snider - Studio Albums & Projects (11 releases) (1992-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal/Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_193512.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dee Snider — американский рок-музыкант. Наибольшую известность получил как вокалист и фронтмен глэм-метал группы «Twisted Sister». Также известен как радиоведущий, актёр, сценарист, композитор, писатель.2000 - Never Let The Bastards Wear You Down
+2012 - Dee Does Broadway
+2016 - We Are The Ones
+2018 - For The Love Of MetalЖанр: Heavy Metal/Hard RockПродолжительность: 09:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F5808E14F07B33EA6095651708607AEE75A80E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828332   (193427) от 24.10.2025
+
+Garmarna - Studio Albums (7 releases) (1993-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Garmarna — шведская фолк-рок-группа, основанная в 1990 году.1993 - Garmarna
+1994 - Vittrad
+1996 - Guds speleman
+1999 - VedergallningenЖанр: Folk RockПродолжительность: 05:00:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3339C8A594217714A1D05338E25254EFEA462313
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1548510   (193411) от 24.10.2025
 
 Amorphis - Дискография (26 releases) (1991-2025) hand made [restored, declipped] [FLAC|44/16.1|tracks +.cue] <Progressive/Melodic Death Metal>
@@ -571,180 +745,6 @@ A4 Poet and Peasant (Suppe)(   Читать дальше...   )Жанр: Classic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66DAF80379FA5C28AD7548BBFE7D03219D9E6E05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658504   (191294) от 08.09.2023
-
-Andre Y Su Conjunto – Latin American Favourites - "Cocktail De Amor" & Various - "Party Time" (1966) [FLAC 2.0|24/96|image + .cue|Vinyl-Rip] <Latin, Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191294.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mambo Jambo (Que rico el mambo)/Mambo No. 8
-A2 Siboney/Maria-La-O
-A3 Ay Mama Ines (Mama Ines)/Carioca
-A4 Don Juan/Yira Yira(   Читать дальше...   )Жанр: Latin, Jazz, Easy ListeningПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5279328D692FF53B1057A0E3BF3C053F93BE3F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012354   (191028) от 06.11.2022
-
-Peter Lipa - Moanin' (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Here Comes The Nights
-02. Got To Get You Into My Life
-03. Rain
-04. Tell All The World About You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B00A2FC411DA26BC13261C2B0DA89B17E228C234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658727   (190968) от 09.09.2023
-
-Mad Butcher - Metal Meat (1987) Reissue, 2021, Relics From the Crypt [FLAC|24/192|tracks|Vinyl-Rip] <Heavy, Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190968.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Remember
-A2 Drivin' Drivin'
-A3 U Can't Stand It
-A4 Looser(   Читать дальше...   )Жанр: Heavy, Speed MetalПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D73EF8AD4A278F145A7498DC4E472EC062CCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059507   (190749) от 07.11.2022
-
-George Benson - Tell It Like It Is (1984) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Jazz, Funk, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190749.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Soul Limbo
-A2 Are You Happy?
-A3 Tell It Like It Is
-A4 Land Of 1000 Dances(   Читать дальше...   )Жанр: Jazz, Funk, SoulПродолжительность: 00:33:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F901F4E26586C0E9AA9BDB3AA95AC0BAEC1D2340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658993   (190636) от 10.09.2023
-
-OSI - Дискография (4 releases) (2003-2012) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190636.jpg" />
-</div>
-
-
-###  Подробнее
-
-OSI — американская прогрессив-рок-группа, первоначально созданная гитаристом Fates Warning Джимом Матеосом в 2002 году.2003 - Office of Strategic Influence
-2006 - Free
-2009 - Blood
-2012 - Fire Make ThunderЖанр: Progressive MetalПродолжительность: 04:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCA46E77299BC47155CC898F96B6AFAB5FA748A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1658763   (190478) от 10.09.2023
-
-Village People - Go West (1979) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Funk, Soul>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190478.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 In The Navy
-A2 Get Away Holiday
-A3 Citizens Of The World
-B1 Y.M.C.A.(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 00:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCC63DF0768043A9CFC2C9264393260FE0CED17
 ```
 
 https://mybot314.ru/tekegram_catalog/

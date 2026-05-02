@@ -1,3 +1,32 @@
+###  Публикация: 1760230   (37482) от 12.11.2024
+
+VA - Deep House Hits 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37482.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Emotion - One More Night (Original Mix) (2:36)
+02. Audioboy - Secret Enemy (Original Mix) (3:03)
+03. The Tschopp - More Than One Night (Original Mix) (2:23)
+04. Dani Corbalan - Addicted To You (Original Mix) (2:24)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:07:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6995178C03DFF561358D44C15BC50549CD41B6E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1760365   (37397) от 13.11.2024
 
 VA - Chillout Lounge 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
@@ -716,35 +745,6 @@ VA - Tibetania Gold 2022 (Selected by Salvo Migliorini) (Tibetania Records) [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B9BE60793F1F7A0F2D6A77C256212BD498DAF35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794589   (19842) от 29.04.2025
-
-VA - Summer Pool Party 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ilnurg - Mind (3:03)
-02. V.O.P. - Tell Me That (2:43)
-03. Jayanth Ak - I Wanna Lose Control (2:12)
-04. Fly - Night Pulse (5:12)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:48:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A835630627286BE7F8C6DC15C5888C18F14BE9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1243609   (490225) от 28.08.2018
+
+VA - Trance Anthems 7 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Delta - Back In My Life (DJ Osip Radio Edit)
+02. Brent Rix - Solar Flare (Radio Edit)
+03. Martin Soundriver & Skysound - Project X (Radio Edit)
+04. Arcania - This Means War (Radio Edit)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:31:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92D1073AB98FE2B513451F4F263B0B469AEAA640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159015   (488018) от 18.08.2017
+
+VA - Black Hole Trance Music 08-17 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488018.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz presents Dakota - Running Up That Hill (feat Bev Wild - extended mix) (07:38)
+02. DIM3NSION - The Energy (extended mix) (06:46)
+03. Giuseppe Ottaviani & Kyler England - Firefly (Omnia extended remix) (05:26)
+04. Planet Perfecto - Bullet In The Gun (Timelapse By Marco V remix) (05:06)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A838538365558916640214F3CC8D01123CAFD435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1158993   (488014) от 18.08.2017
+
+VA - Vocal Trance Vol.1 (2017) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488014.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Aly & Fila feat. Roger Shah & Susana - Unbreakable  3:20
+02.  The Thrillseekers & KATHERINE AMY - I Gotta Let You Know  4:21
+03.  ReOrder - Together We Are  3:25
+04.  RAM & Cari - Soulfood (feat. Cari)  4:05(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75A8DF01F5059782AA4F686852BFBB7569F64F70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405086   (487134) от 28.08.2020
+
+Paul van Dyk - Guiding Light (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Within (feat. Vincent Corver)
+02. Guiding Light (feat. Sue Mclaren)
+03. You Found Me (feat. Saad Ayub)
+04. Exhale (feat. Shedona)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:24:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA16439DA92645665820126DBDF57BA327A91613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244182   (484206) от 31.08.2018
+
+Sergei Vasilenko - Melodoc Trance Collection Vol. 44 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emotional Storm (Original Mix)
+02. Together Forever (Original Mix)
+03. Mysterious Voices (Original Mix)
+04. Annihilation (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D564DF2572FC6B362AB866A59611AA95027D86C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159063   (483810) от 20.08.2017
 
 VA - A State Of Trance Ibiza (Mixed by Armin Van Buuren) (2017) [MP3|320 Kbps] <Trance>
@@ -597,151 +742,6 @@ Scooter - Instrumental: The Best Hits (2002) Compilation, Mixed [MP3|~238 - 270 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD0ED0334B8F1741F031A552FBBA7AFB2E5E5595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059301   (461257) от 04.10.2016
-
-VA - Electric For Life Top 10: September 2016 (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gareth Emery ft Christina Novelli - Save Me (Alex Ender Remix) (4:03)
-02. Gareth Emery ft Lawson - Make It Happen (Nicolas Haelg Remix) (2:58)
-03. Luke Bond ft Georgia Mason - Alone (3:25)
-04. Gareth Emery ft Alex & Sierra - We Were Young (Mhammed El Alami Remix) (3:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAE778F910CDEEDBDC0820D5EABE062D353F8E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941739   (460045) от 28.09.2015
-
-Paul van Dyk - Reflections (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460045.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul van Dyk feat. Second Sun - Crush (Original Mix) (7:46)
-02. Paul van Dyk feat. Vega4 - Time of Our Lives (Original Mix) (4:23)
-03. Paul van Dyk feat. Jan Johnston - Like a Friend (Original Mix) (3:53)
-04. Paul van Dyk - Reflections (Original Mix) (7:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B887FDFDFEF6EAEC0E4198034DF165924D746F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941741   (459903) от 28.09.2015
-
-Paul van Dyk - Out There and Back (2015) [MP3|320 кб/с]<Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459903.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vega (Original Mix) (6:05)
-02. Pikes (Original Mix) (6:59)
-03. Another Way (Original Mix) (5:24)
-04. Travelling (Original Mix) (7:10)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B589B7E7AE1D0DC0F9DD15F784BEC0FE263FDCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059917   (459699) от 05.10.2016
-
-VA - Epic Emotional Uplifting Trance (2016) [MP3|320 Kbps] <Trance ,Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 illitheas - Last Forever (Intro Mix) [05:53]
-02 Ikerya Project - Neo Terra (Original Mix) [08:05]
-03 Artisan - I Follow (F.G. Noise Remix) [07:36]
-04 Kaimo K - Why Can't You Love Me (Original Mix) [06:50](   Читать дальше...   )Жанр: Trance ,Uplifting TranceПродолжительность: 03:29:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28CBD7D2A92B41E0FC27C19D6B7E0360E58DC446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568762   (459615) от 09.08.2022
-
-VA - Dream Dance Vol 93 (2022) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Dance Alliance - Chasing Stars (Extended Mix) (3:19)
-02. Armin van Buuren & Florentin feat. Jordan Grace - Echoes (Extended Mix) (5:41)
-03. Cosmic Gate & Olivia Sebastianelli - We Got The Fire (Extended Mix) (7:04)
-04. Paul van Dyk & Troels Hammer - Alternative Sphere (Paul van Dyk's SHINE Remix) (5:46)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 07:24:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F612373110A65832DB38791F299FC2F7BA51DE
 ```
 
 https://mybot314.ru/tekegram_catalog/

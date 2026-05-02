@@ -1,3 +1,83 @@
+###  Публикация: 980403   (955600) от 29.01.2016
+
+Проекты - VideoHive - Glossy 3D Corporate Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_955600.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если Вы ищете способ представить ваш логотип в изящном и элегантном образе, то этот проект идеально подходит для этого.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C6E5A90F324D83333B082941C52C0D2657B80AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980843   (954356) от 30.01.2016
+
+Проекты - VideoHive - Colorized Inkflow Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_954356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания эффектного логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1485F565FCC92D44CA3A2C63AE28A9116A71D7EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089358   (951639) от 03.01.2017
+
+Проекты - VideoHive - Space Logo - 19139426 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE7189C23087640A57ED31413C4EFBB2AE78755A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 981694   (951296) от 01.02.2016
 
 Проекты - Pond5 - Plasma Audio React Logo [AEP]
@@ -603,85 +683,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7A8F4BFE64596403DFD825CB18C710E5809544A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986739   (928661) от 15.02.2016
-
-Проекты - VideoHive - water splash logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F938B4AB811A97D71B1DC089D2D5700CD459793B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094568   (928648) от 18.01.2017
-
-Проекты - VideoHive - Trailing Particles Logo Reveal - 19266145 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очень современный и стильный шаблон, что бы продемонстрировать логотип Вашей компании.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C707E0363A62D64731EC4F6C228978E4A0449F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094498   (928644) от 18.01.2017
-
-Проекты - VideoHive - Gaming Logo Intro - 18960251 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928644.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для быстрой и стильной демонстрации игрового логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C3E1D79A8F0EDF4E0709B0826A824322B1FDAC
 ```
 
 https://mybot314.ru/tekegram_catalog/

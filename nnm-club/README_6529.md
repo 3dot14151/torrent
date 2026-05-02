@@ -1,25 +1,22 @@
-###  Публикация: 1509163   (795716) от 11.11.2021
+###  Публикация: 742950   (797293) от 26.04.2016
 
-VA - Balearic Lounge Winter 2022 (2021) [AAC|~324 Kbps] <Lo-Fi, Lounge, Chill Out>
+PBS. Поиск жизни за пределами Земли / Finding Life Beyond Earth (2011) HDTVRip [H.264/720p] [1-2 серия из 2]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>След.
+>>PBS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795716.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797293.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alexandra Hampton, Merge Of Equals - Beautiful (Original Mix) (4:26)
-02. No Noise - Karma Shabda (Original Mix) (5:07)
-03. InnamoratoDellaMusica - Venice (Original Mix) (4:00)
-04. Lounge Groove Avenue - Smoking Jazz (Original Mix) (2:29)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:26:04
+В поисках планет, подобных нашей, у ученых порой возникают неожиданные вопросы и неожиданные ответы. Последние открытия наводят на мысль что условия жизни, пригодные для людей, могут быть гораздо более распространенными во Вселенной, чем это казалось людям ранее. Порой реальность превосходит даже фантазии писателей-фантастов, описывавших планеты, на которых были (   Читать дальше...   )Жанр: Документальный, научно-познавательный, исследованиеПеревод: Двухголосый закадровый (профессиональный)Язык субтитров: английскийПродолжительность: 00:52:39 + 00:54:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D81FB6C5FA9F9C885ABE7532134F484C144FD8AB
+magnet:?xt=urn:btih:EFFA5AC1221CFAE04C2C0B0A17C022B4A6853AFB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1509152   (795715) от 11.11.2021
+###  Публикация: 1010858   (797292) от 26.04.2016
 
-VA - Autumn Lounge Session (20 Beautiful Electronic Anthems), Vol. 3 (2016) [AAC|~317 Kbps] <Lounge, Chill Out, Downtempo>
+Demons with Shotguns (2016) [En] (1.0) License TiNYiSO
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Win Игры
+>>Arcade
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795715.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797292.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Polarity - Litu (Original Mix) (2:16)
-02. Natural Factor - Next Us Now (Original Mix) (3:33)
-03. Chill Art - Runi (Original Mix) (5:09)
-04. Mark Sia - Kalin Twins (Original Mix) (3:16)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:42
+Demons with Shotguns - кровавый шутер для 1-4 человек с поддержкой игры по локальной сети. Множество подземелий и различных этапов, эпические сражения и интересные режимы придутся по вкусу даже самому привередливому игроку. Demons with Shotguns отправит игроков побеждать силы Зла, но борьба будет идти не за равновесие и спокойствие мира, а за души игроков.Тип издания: LicenseРазработчик: MindShaft Games, LLCЖанр: Arcade (Action)Язык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A41A8806D0341CBD655075EFA7C1930F920E3E6
+magnet:?xt=urn:btih:14E211D32A299D4B92DC2B4DCF22D161A6833A03
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +50,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200525   (795714) от 21.01.2018
+###  Публикация: 1011174   (797291) от 26.04.2016
 
-О. В. Григорьева | Что было и чего не было (1909) [PDF]
+Judgment: Apocalypse Survival Simulation (2016) [En] (0.5.1776) Repack Other s
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Win Игры
+>>Demo/Beta версии Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795714.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797291.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
+Judgment: Apocalypse Survival Simulation - стильная survival-песочница, в которой игрокам предлагается взять под свое управление группу людей, выживших после натурального библейского Апокалипсиса!
+Обустраивайте поселение, исследуйте территории, ищите других выживших и попробуйте дать отпор вторгшимся демонам!Тип издания: RepackРазработчик: SuncrashЖанр: Simulation, StrategyЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E12BBECE746D96D7FF233536E5083A8C7DC04EF6
+magnet:?xt=urn:btih:2A77E605719FED5D1F03B97F2DEEF43892834861
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200468   (795713) от 21.01.2018
+###  Публикация: 1010428   (797290) от 26.04.2016
 
-VA - Empire Records - Lounge 10 (2018) [MP3|320 Kbps] <Lounge>
+Слепая / Blind (2014) BDRip [H.264/1080p] [VO]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795713.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797290.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mark Eliyahu - Journey (Hakan Akkus & V-Dat Remix)
-02. Christos Fourkis, Joahn Dashi - Come in My Life (Bes and Meret Remix)
-03. W4velike - Lovin U
-04. Beat Sounds - In Zaire (Extended Mix).(   Читать дальше...   )Жанр: LoungeПродолжительность: 02:09:41
+После потери зрения Ингрид почти не покидает квартиру. Она еще не забыла облик окружающего мира, но образы, бывшие когда-то столь ясными, теперь заменяются мрачными видениями. Ингрид подозревает, что муж обманывает ее, говоря, что ходит на работу. Остается ли Мортен в квартире? Тихо передвигаясь, он рассматривает ее? Или, прикидываясь, что пишет электронное письмо (   Читать дальше...   )Производство: Норвегия / Lemming Film, MotlysЖанр: Драма, эротика, артхаусРежиссер: Эскиль ВогтАктеры: Эллен Доррит Петерсен, Хенрик Рафаелсен, Вера Виталий, Мариус Колбеншведт, Стелла Квам Янг, Исаак Николай Моллер и др.Перевод: Одноголосый закадровый, любительский (Lord32x - Игорь Фролов)Язык субтитров: Русский, английский, французский, итальянский, португальский, испанскийПродолжительность: 01:35:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C5AAD0487CC22B3E4645FE78CE7758E3D0E470E
+magnet:?xt=urn:btih:CE11B3ED4C06847449D72595784229CE9370278F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,28 +103,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200490   (795712) от 21.01.2018
+###  Публикация: 1011167   (797289) от 26.04.2016
 
-Jaques Le Noir - Deep Mood (2017) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Nu Disco, Club House, Funky>
+The Walking Dead: Michonne - Episode 1-3 (2016) [Ru/Multi] (1.0.0.0) License CODEX
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>След.
+>>Архив Игр
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795712.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797289.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beat Of The Drum (4:54)
- 02. Electric (5:15)
- 03. Never (Glaccklich) (5:23)
- 04. Loving You (6:01)(   Читать дальше...   )Жанр: Deep House, Nu Disco, Club House, FunkyПродолжительность: 05:13:20
+Основной героиней игры The Walking Dead: Michonne - A Telltale Miniseries является легендарный персонаж из серии комиксов. Её преследует собственное прошлое, ей приходится справляться с невероятными потерями и сожалением. Сюжет рассказывает о том, что происходило с ней между выпусками #126 и #139. Включает в себя доступ ко всем трём эпизодам этого нового минисериала (   Читать дальше...   )Тип издания: LicenseРазработчик: Telltale GamesЖанр: Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D60D8ED0F65CCB20FD9A3CB870FBD701C418A56F
+magnet:?xt=urn:btih:620A6BD1189B72CA56AC275B347792CDBA3E0835
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -140,28 +129,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200222   (795711) от 21.01.2018
+###  Публикация: 1011060   (797288) от 26.04.2016
 
-Necrotomy - Inhuman Mankind (1991) [FLAC|Lossless|image + .cue] <Death Metal>
+Трансформеры: Роботы под прикрытием / Transformers: Robots in Disguise (2015) WEB-DLRip [H.264/720p-LQ] (Сезон 1,серии 1-26 из 26) Плюс Плюс
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Мультфильмы
+>>Зарубежные Мультсериалы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795711.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797288.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Selfmutilate
-02 - Insestance Devastation
-03 - Vision Of The Altar
-04 - Atomic Death(   Читать дальше...   )Жанр: Death MetalПродолжительность: 00:37:37
+Команда автоботов-новичков под предводительством Бамблби готовится к обороне Земли. Земле снова угрожают десептиконы, сбежавшие из рухнувшего на планету корабля-тюрьмы. Бамблби вызывают на Землю для подготовки группы автоботов-защитников. Он собирает команду неопытных трансформеров, в которую входит непослушный «плохиш» Сайдсвайп, кадет элитной гвардии Стронгарм, (   Читать дальше...   )Производство: СШАЖанр: Мультсериал, детский, семейный, приключенияРежиссер: Скутер ТидвеллПеревод: ДублированныйОзвучка / Автор перевода: Плюс ПлюсЯзык субтитров: английскийПродолжительность: 00:22:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9752E0190D2CD7C30F105F8E8A10EFF0343553D5
+magnet:?xt=urn:btih:92441EC8508D8EF95409C0C54E1A6E0BAD2415C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -169,28 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200147   (795710) от 21.01.2018
+###  Публикация: 1010938   (797287) от 26.04.2016
 
-VA - Summer Dance Mania (2010) [FLAC|Lossless|tracks] <Trance, Euro House>
+Autodesk AutoCAD Civil 3D 2017 HF1 RUS-ENG
 
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
+>>След.
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795710.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797287.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Brooklyn Bounce - Club Bizarre (Djs From Mars Rmx) (4:57)
-02.Groove Coverage - Innocent (Club Mix) (3:33)
-03.Basslover United - Ghetto Supastar (Extended Mix) (4:16)
-04.Franky 8 - Rhytm & Drums 2010 (3:09)(   Читать дальше...   )Жанр: Euro House, TranceПродолжительность: 02:13:05
+AutoCAD Civil 3D – это решение для проектирования объектов инфраструктуры и выпуска документации, основанное на технологии информационного моделирования (BIM) . AutoCAD Civil 3D предназначен для инженеров, работающих над проектами транспортных сооружений, объектов землеустройства и водоохранных сооружений. Пользователи получают возможность координировать проекты, (   Читать дальше...   )Язык интерфейса: Русский / Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F6DDE774AD81A5B0C890349B3D60119D2CEE120
+magnet:?xt=urn:btih:EA92AE3999A798A1FA3766C7BAF11B9863DF1C31
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -198,25 +181,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200539   (795709) от 21.01.2018
+###  Публикация: 1010889   (797286) от 26.04.2016
 
-Мария Федоровна Ростовская | Детские забавы (1909) [PDF]
+Кукла / The Boy (2016) WEB-DL [H.264/1080p-LQ]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795709.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797286.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник рассказов для детей младшего возраста.Жанр: Детская прозаФормат: PDF
+Благополучная английская семья нанимает для своего сына американскую няню. Приехав на новое место работы, няня обнаруживает, что ее подопечный — вовсе не настоящий мальчик, а кукла в человеческий рост, с которой обращаются, как с живым человеком. Но тревожные события, происходящие после того, как няня нарушает установленные строгие правила, заставляют её поверить (   Читать дальше...   )Производство: США, Китай, Канада, Huayi Brothers Media, Lakeshore Entertainment, Robert Simonds Company, The, Vertigo EntertainmentЖанр: Ужасы, ТриллерРежиссер: Уильям Брент БеллАктеры: Лорен Кохэн, Руперт Эванс, Джеймс Расселл, Джим Нортон, Диана Хардкэсл, Бен Робсон, Джетт Клине, Lily Pater, Matthew Walker, Стефани Николь ЛемелинПеревод: Дублированный (Чистый звук)Продолжительность: 01:33:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F259252C256E9F2F127AE1C39F0131013323432E
+magnet:?xt=urn:btih:65798E0ADCAA4F5E7E81B15E0E85A4792B9F46A7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -224,194 +207,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200670   (795708) от 21.01.2018
+###  Публикация: 1010894   (797285) от 26.04.2016
 
-VA - Petit Boutique Vol.3 (20 Lounge Accessoires) (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Electronic
->>Easy listening
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bar & Bar  -  Night in Rio (Radio Edit)  3:57
-02.  Marco Del Giudice & Daniele Soriani  -  Vuelvo Al Sur (Bandoneon Remix)  3:28
-03.  Juliana Pasini  -  Corcovado (Original Mix)  3:25
-04.  Bessie Boni & Massimo Mantovani  -  Stella By Starlight (Original Mix)  3:51(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E03A7FE31D20AB75D6D170341DF5809819A4295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200520   (795707) от 21.01.2018
-
-World's End Girlfriend - Ending Story (2000) F.R.D Record [FLAC|Lossless|tracks+.cue] <IDM, Ambient, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Listening You (07:00)
- 02. Magical Romantic Freestyle (04:52)
- 03. Heartbreak Wonderland (06:13)
- 04. Cruel Girl's Beauty (09:43)(   Читать дальше...   )Жанр: IDM, Ambient, ExperimentalПродолжительность: 01:12:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D64AE7DE44433FED89443E773E682040DE4DD0C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200533   (795706) от 21.01.2018
-
-Вадим Радецкий (сост.) | Юный русский чтец-декламатор (1911) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795706.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник стихов для среднего и старшего школьного возраста.Жанр: СтихиФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1295444B6B1ECDB06570DF4401A3523F891A8F8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200221   (795705) от 21.01.2018
-
-Numenor - Chronicles from the Realms Beyond (2017) [FLAC|Lossless|image + .cue] <Symphonic Black Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart of Steel
-02. Carvenstone
-03. Witching Hour
-04. Beyond the Doors of the Night(   Читать дальше...   )Жанр: Symphonic Black Power MetalПродолжительность: 00:34:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D88B855BFDE04C81D61A40EB7A09D35EDA2110
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200541   (795704) от 21.01.2018
-
-Н.В. Тулупов, П.М. Шестаков (ред.) | Светлый день. Книжка для чтения на втором году обучения (1909) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795704.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборник рассказов, сказок, стихов для детей младшего возрастаЖанр: Детская проза, Сказки, СтихиФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEB14116D896D79776A43121BEA7EB4CEB33A0DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200471   (795703) от 21.01.2018
-
-VA - Empire Records: Chill Out 15 (2018) [MP3|320 Kbps] <Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ki-Theory  -  Enjoy The Silence  4:18
-02.  Ryan Weber  -  Magic Fly (Chillectro Remix)  5:06
-03.  Dreamweavers  -  Inner Spirit (Original Mix)  9:59
-04.  Aliki Westwood  -  Everybody Loves The Sunshine (Nikki Beach Mix)  4:18(   Читать дальше...   )Жанр: Downtempo, ChilloutПродолжительность: 01:59:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABCE9F16C630B38494E0B3E9C38286F134459328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200425   (795702) от 21.01.2018
-
-Известия. Главное (21.01.2018) SATRip
+Без обмана. И бутылка рома (2016.04.25) SATRip
 
 >>Документалистика и Телепередачи
 >>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Информационные выпуски "Известий" - это оперативное информирование о самых важных событиях в России и мире, это прямые включения, собственные съемки, непредвзятый подход к выбору тем и сюжетов, компетентность и неангажированность ведущих, яркая и современная подача информации.В этом выпуске: 900 дней трагедии, которая не должна повториться, и великого подвига, который надо помнить. Блокада Ленинграда — в реальных историях и  подлинных фактах. Что знаем мы сейчас, как это сохранить и кому нужны исторические провокации?
-Большое будущее малых городов. Как изменить жизнь провинции, чтобы где родился, там и пригодился? Почему за качеством жизни теперь не надо (   Читать дальше...   )Телекомпания: Пятый каналЖанр: Телепередача, Информационно-аналитическая программаПродолжительность: 00:48:28
+Это масштабное потребительское расследование, задача которого дать зрителям подробные советы, как не попасть в неприятности за собственные деньги. В центре программы оказываются самые разные товары и услуги потребительского рынка, их "судят" авторитетные эксперты и рядовые люди. Корреспонденты программы часто выступают в роли тайных агентов, внедряющихся (   Читать дальше...   )Производство: РоссияТелекомпания: ТВЦЖанр: Документальный, расследованиеСубтитры: ОтсутствуютПродолжительность: ~ 00:39:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:68286F1B751941AF8350B57032AA4AE0F535AF13
+magnet:?xt=urn:btih:87609EDD84BBF249187C76869266FBB695CE2362
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -419,28 +233,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200507   (795701) от 21.01.2018
+###  Публикация: 1011169   (797284) от 26.04.2016
 
-Ludvig Cimbrelius - Dreaming The Night Sky (2018) Eternell [FLAC|Lossless|WEB-DL|tracks] <Ambient>
+Windows 10 Manager 1.1.2 Final RePack (& portable) by KpoJIuK [Multi/Ru]
 
->>Electronic
->>Ambient, Experimental, Modern Classical (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797284.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Serenade For The Night Sky (12:28)
- 02. Serenade For The Heart (Two Voices) (10:26)
- 03. Dreaming The Night Sky (35:16)
- 04. Serenade For The Heart (in D-minor) (09:44)Жанр: AmbientПродолжительность: 01:07:54
+Windows 10 Manager - программа-оптимизатор все в одном, полное решение для отличной оптимизации, продуманной настройки и качественной очистки операционных систем Windows 10. Программа включает более 30 утилит которые улучшают и ускоряют работу системы, повышают её стабильность, устойчивость и безопасность. Windows 10 Manager позволяет получить доступ к нескольким (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4A3A37DBC12E7A5DAB47D91B4EF38E7545DAC144
+magnet:?xt=urn:btih:96730E7DA0E5F456C72722D491A16A8A5F4223FC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -448,25 +259,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200548   (795700) от 21.01.2018
+###  Публикация: 1010968   (797283) от 26.04.2016
 
-Агафонова Лидия Андреевна | Детки-малютки, их забавы и шутки (1910) [PDF]
+Harry Potter and the Order of the Phoenix / Гарри Поттер и Орден Феникса (2007) [Xbox360] [RegionFree] 5759 [FreeBoot] [Unofficial] [Ru]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Консольные Игры
+>>Xbox 360
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797283.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник рассказов для детей младшего возрастаЖанр: Детская прозаФормат: PDF
+Harry Potter and the Order of the Phoenix основана на пятой части серии приключений молодого волшебника по имени Гарри Поттер. Эта история расскажет о пятом году обучения в школе Хогвартс и о столкновении с самим Волдемортом, как и было предсказано в пророчестве.
+По мере прохождения, вам предстоит перемещаться по замку Хогвартс и его окрестностям, изучать всяческие (   Читать дальше...   )Тип издания: UnofficialРазработчик: Electronic ArtsЖанр: Action, Adventure, 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E343A76CA1017BF213F3436CA36B2F26A3F9D4B9
+magnet:?xt=urn:btih:61689687F8E75B3BE01189A847623FE49AD602A1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,28 +286,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200630   (795699) от 21.01.2018
+###  Публикация: 1010842   (797282) от 26.04.2016
 
-VA - Winter Time Vol.6 (22 Premium Trax Chillout-Chillhouse-Downbeat-Lounge) (2018) [MP3|320 Kbps] <Chillout, Chillhouse, Lounge>
+Контрибуция (2016) WEB-DL [H.264/720p-LQ]
 
->>Electronic
->>Easy listening
+>>След.
+>>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797282.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  DJ Maretimo feat. Cafe Americaine  -  Rainy Season (Full Sunset Cut)  4:25
-02.  Frank Borell  -  Wind In The Desert (Abu Dhabi Mix)  4:50
-03.  Le Voyage  -  Poison (The Red Button Mix)  5:14
-04.  Sofa Sweeper  -  Rebeat Seventeen (Future City Mix)  4:47(   Читать дальше...   )Жанр: Chillout, Chillhouse, LoungeПродолжительность: 04:14:18
+Действие происходит в 1918 году в Перми. Среднесибирский белогвардейский корпус под командованием молодого генерала Анатолия Николаевича Пепеляева захватывает город. Армия измотана, не хватает патронов, обмундирования, провианта. Генерал приглашает пермских купцов с целью собрать деньги для нужд армии. Богатая вдова Чагина приносит в качестве контрибуции дорогой (   Читать дальше...   )Производство: Россия, ЛенфильмЖанр: Детектив, ВоенныйРежиссер: Сергей СнежкинАктеры: Максим Матвеев, Елизавета Боярская, Надежда Толубеева, Илья Носков, Евгений Дятлов, Константин Воробьёв, Артур Ваха, Юрий Ицков, Игорь Черневич, Сергей ПерегудовПродолжительность: 02:42:15Реклама: Отсутствует
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9147A3AD7BCF1E645B8E18741DB2D3D004B6EEE5
+magnet:?xt=urn:btih:5D3AE418427DA97545F6157C0C43D0E9A6F54B34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -503,28 +312,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200588   (795698) от 21.01.2018
+###  Публикация: 1508359   (797281) от 08.11.2021
 
-The Black Noodle Project - Divided We Fall  (2017) [FLAC|Lossless|image + .cue] <Progressive rock>
+EssentialPIM Pro Business Edition 9.10.8 RePack (& portable) by Kolya3D79[MultiRu]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Isolation
-02. Memorial
-03. Ashes To Ashes
-04. Under A Black Sky(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 00:41:16
+EssentialPIM - высокофункциональный менеджер персональной информации с продуманным интерфейсом и множеством возможностей. Содержит средства для работы с календарем, списком задач, заметками и контактами. Есть широкие возможности для печати, импорта и экспорта информации, возможность запуска с переносных USB накопителей (включая U3 SmartDrive - сертифицированную версию), (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CB9EC63641DFF5B5A7A17A4ACD1E6A8CBFDBD62A
+magnet:?xt=urn:btih:1039E0EDFE2751059DC902D7C0D5CAA397619C72
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -532,25 +338,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200552   (795697) от 21.01.2018
+###  Публикация: 1508521   (797280) от 08.11.2021
 
-Василий Жуковский | Война мышей и лягушек (1910) [PDF]
+Ведьма / The Witch: Part 1. The Subversion / Manyeo  (2018) BDRemux [H.264/1080p] [MVO]
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Детская литература
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сборник сказок для детей младшего возраста.Жанр: Детская проза, СказкиФормат: PDF
+Восьмилетняя девочка сбегает с секретной базы в лесу, после чего её, без сознания, находит фермер. 10 лет спустя она счастливо живёт в сельской местности под именем Ку Джа-юн с удочерившей её пожилой парой и ничего не помнит о своём прошлом. Экономическая ситуация для сельского хозяйства складывается неблагоприятная, да ещё приёмная мама страдает болезнью Альцгеймера, (   Читать дальше...   )Производство: Корея Южная / Peppermint & CompanyЖанр: Боевик, триллер, фантастикаРежиссер: Пак Хун-джонАктеры: Ким Да-ми, Чо Мин-су, Чхве У-щик, Пак Хи-сун, Ко Мин-щи, Чхве Джон-у, О Ми-хи, Чон Да-ын, Ким Бён-ок, Ли Джу-вонПеревод: Многоголосый профессиональный (HDrezka Studio), Авторский (Ю. Сербин), Многоголосый любительский (Bonsai Studio)Субтитры: Русские (Forced, Full) Английские (Full), Китайские (2x Full)Продолжительность: 02:05:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E8F718370A5F3BAC9A7C104E392B15BE42BD823E
+magnet:?xt=urn:btih:A55F6BF873596AFF89903A2049D682E7712B07FF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -558,28 +364,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200618   (795696) от 21.01.2018
+###  Публикация: 1508421   (797279) от 08.11.2021
 
-VA - Empire Records - Sound Clinic 8 (2017) [MP3|320 Kbps] <Dance, Electro House>
+Крути педали / La Flamme Rouge (2021) WEBRip [MVO] [AD]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Arthur D'Amour - Chaos in My House (Original Mix)
-02. Sion - I'm Sorry (Original Mix)
-03. Lazy Bear & Future Class - Do You Like (Original Mix)
-04. Luigi Peretti - Cocaine (Original Mix)(   Читать дальше...   )Жанр: Dance, Electro HouseПродолжительность: 01:57:30
+Профессиональный велогонщик на закате карьеры погружается в зловещий психоделический сон. Зависимость от алкоголя и параноидальные мысли побуждают мужчину на необдуманные действия. Вместе со своей невестой и другом он решается на опасную авантюру, которая втянет троицу в мир преступлений и бесконечной ночи.Производство: США / Long Tale, Panoptic Cinema, Syncretic EntertainmentЖанр: Триллер, криминалРежиссер: Brent Scott Maze, Derek MazeАктеры: Клинт Ховард, Бальтазар Гетти, Тодд Лоу, Николь Лалиберт, Чарли Макэлвин, Джулия Фаррелл, Джош Мартин, Sebastian Quinn, Джордж Гриффит, Colby CoashПеревод: Многоголосый профессиональный (Синема УС)Субтитры: ОтсутствуютПродолжительность: 01:32:05Реклама: Присутствует баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4C46C1CC9D2DC6286D7619C41CD49F671740ED73
+magnet:?xt=urn:btih:72C46FF29F359E57E3DF8EA5EE76CD755752EEF2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -587,28 +390,57 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200439   (795695) от 21.01.2018
+###  Публикация: 1385591   (797278) от 25.05.2020
 
-VA - Hed Kandi 2017 (2016) [FLAC|Lossless|tracks] <Deep House, Vocal House, Soulful House, Disco House, Funky House>
+Oscar Peterson - Swingin' On A Star 1949 - 1953 (2004) Giants Of Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheek To Cheek [5:22]
+02. Tenderly [5:41]
+03. Sweet Georgia Brown [3:00]
+04. Seven Come Eleven [3:52](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 01:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4184F259E887EEBB3FF2D275BAA277AAF2D91926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385731   (797277) от 25.05.2020
+
+VA - SPECTRO-017 (2020) Specimen Records [FLAC|Lossless|WEB-DL|tracks] <Electro>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kungs & Cookin' On 3 Burners - This Girl (Fabich Remix) 4:20
-02. TIEKS - Sunshine (feat. Dan Harkna) (Zac Samuel Remix) 4:34
-03. Apexape - Joy & Pain 3:01
-04. Ben Delay - The Boy Is Mine (feat. Alexandra Prince) (Mark Lower Vocal Mix) 5:16(   Читать дальше...   )Жанр: Deep House, Vocal House, Soulful House, Disco House, Funky HouseПродолжительность: 05:58:17
+01. Arsonist Recorder - React (06:22)
+ 02. Sound Synthesis - 60 Minute Bleeps (05:36)
+ 03. Francois Dillinger - Humans Among Us (05:30)
+ 04. Datawave - Genotype 1 (04:04)Жанр: ElectroПродолжительность: 00:21:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB1B29AA2BB8FAE0A71F4420F163938ECFD86C3C
+magnet:?xt=urn:btih:6A0E7803E3E4BD4F8B126DEA52807F83F9CAAFB9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -616,28 +448,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012055   (795694) от 29.04.2016
+###  Публикация: 1508537   (797276) от 08.11.2021
 
-Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Вашингтон - Питтсбург. 1-й матч (28.04.2016) HDTVRip [H.264/720p-LQ]
+Форсаж 9 / F9 (2021) DVD9 [Custom] [Theatrical Cut]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795694.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-29 апреля 2016, пятница. 03:00 МСК
-1/2 финала - Восток. 1-й матч
-
-Стадион: Веризон-центр (Вашингтон, США) , 18 506 зрителей (100 % при вместимости 18 506)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Казанский, Бадюков) / ИнтершумПродолжительность: 02:13:29
+Доминик Торетто ведет спокойную жизнь в глуши вместе с Летти и сыном Брайаном, но опасность всегда где-то рядом. Команде приходится снова собраться, чтобы спасти Мистера Никто после крушения самолёта, на котором перевозили пойманную хакершу Сайфер. На месте аварии команда обнаруживает загадочное устройство и вскоре сталкивается с опасным преступником и самым безбашенным (   Читать дальше...   )Производство: США, Таиланд, Канада / Universal Pictures, One Race Films, Perfect Storm EntertainmentЖанр: Боевик, криминал, приключенияРежиссер: Джастин ЛинАктеры: Вин Дизель, Джон Сина, Тайриз Гибсон, Лудакрис, Джордана Брюстер, Натали Эммануэль, Мишель Родригес, Сон Ган, Шарлиз Терон, Анна СаваиПеревод: Дублированный (iTunes)Субтитры: Русские, английскиеПродолжительность: 02:17:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15DE579E8D91648139FEAED954ED9B2B30591407
+magnet:?xt=urn:btih:7B34A850528A6002B1004965C7DF768978370147
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -645,28 +474,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011981   (795693) от 29.04.2016
+###  Публикация: 1508500   (797275) от 08.11.2021
 
-Хоккей. НХЛ 2015-2016. Плей-офф. 1/2 финала. Восток. Вашингтон - Питтсбург. 1-й матч (28.04.2016) WEB-DL [H.264/720p-LQ] [EN]
+FlippedNormals, Konrad Hetko | Creating Hair for Games in Blender (2021) PCRec [EN]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Обучающие видеоматериалы
+>>Дизайн, рисование (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795693.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-29 апреля 2016, пятница. 03:00 МСК
-1/2 финала - Восток. 1-й матч
-
-Стадион: Веризон-центр (Вашингтон, США) , 18 506 зрителей (100 % при вместимости 18 506)(   Читать дальше...   )Телекомпания: NBCSNЖанр: СпортЯзык озвучки: АнглийскийПродолжительность: 02:37:29
+Узнайте, как создавать реалистичные волосы для видеоигр с помощью Blender! В этом курсе вы познакомитесь с профессиональными техниками создания причёсок с использованием Blender и Marmoset. Вы научитесь сочетанию практических 3D-техник и основному пониманию того, как волосы работают в реальном мире. Объедините эти навыки, чтобы создать потрясающие прически для любой (   Читать дальше...   )Производство: FlippedNormalsЖанр: 3D моделированиеЯзык озвучки: АнглийскийПродолжительность: 05:08:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79902D5681BF9B90C8C29184AA242ADF854F5138
+magnet:?xt=urn:btih:B2783296700B62AE97F6A6CAA428AAA8EA47B556
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -674,25 +500,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011973   (795692) от 29.04.2016
+###  Публикация: 1508461   (797274) от 08.11.2021
 
-Футбол. Лига Чемпионов 2015-2016. 1/2 финала. Обзор первых матчей. (27.04.2016) HDTVRip [H.264/720p-LQ]
+Место под солнцем (2021) WEBRip (сезон 1, серии 1-16 из 16)
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795692.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обзор матчей за 26 и 27 апреля 2016 года.Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Павел Занозин) / ИнтершумПродолжительность: 00:21:59
+Предательство любимого человека разделило жизнь Марты, девушки из провинциального городка, на ДО и ПОСЛЕ. Ее несправедливо обвиняют в убийстве, и она вынуждена бежать из родного города. Случайное знакомство с Дмитрием приводит Марту в столицу, в богатый дом его отца – кандидата в столичные мэры Игоря Парфенова.
+Каждый из членов благополучной, на первый взгляд, семьи (   Читать дальше...   )Производство: Украина / "FILM.UA Group"Жанр: мелодрама, драма, криминалРежиссер: Алина ЧеботарёваАктеры: ﻿Татьяна Ратникова, Алексей Яровенко, Кирилл Кузнецов, Павел Вишняков, Елена Шевченко, Виктор Сарайкин, Дмитрий Сова, Екатерина Тышкевич, Дарья Трегубова, Сергей Дзялик и др.Язык озвучки: русскийПродолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:24ACC4BB402565417DDA30422A3A8DCBC0E02284
+magnet:?xt=urn:btih:30BB6CCD440D9C337A64732E5F475B45D7049432
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -700,25 +527,157 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011974   (795691) от 29.04.2016
+###  Публикация: 1507646   (797273) от 08.11.2021
 
-Футбол. Лига Европы 2015-2016. 1/2 финала. Обзор первых матчей. (28.04.2016) HDTVRip [H.264/720p-LQ]
+Воспоминания / Reminiscence (2021) BDRip [H.264/720p-LQ]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795691.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обзор матчей за 28 апреля 2016 года.Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский (Илья Казаков) / ИнтершумПродолжительность: 00:25:18
+Недалёкое будущее, Майами почти полностью ушёл под воду из-за глобального потепления. Частный детектив Ник Баннистер с помощью специальной технологии выискивает в человеческой памяти нужные моменты, чтобы заказчик мог заново пережить прошлое и вспомнить что-то важное. Однажды на пороге его офиса появляется клиентка с простой просьбой: она забыла, где оставила ключи. (   Читать дальше...   )Производство: США / FilmNation Entertainment, Kilter Films, Michael De Luca ProductionsЖанр: Фантастика, триллер, мелодрама, детективРежиссер: Лиза ДжойАктеры: Хью Джекман, Ребекка Фергюсон, Тандиве Ньютон, Клифф Кёртис, Дэниэл Ву, Моджиан Ариа, Марина Де Тавира, Бретт Каллен, Натали Мартинес, Анджела СарафянПеревод: Дублированный (Пифагор)Субтитры: Русские (Forced, Full), английскиеПродолжительность: 01:55:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D5A570A88A41D4A27D8552E4826C1AB20EF3427D
+magnet:?xt=urn:btih:7AA2A4430AD3E6122D3FE60B7E87C2546118B0CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508147   (797272) от 08.11.2021
+
+Формула 1. Сезон 2021. Этап 18. Гран-при Мехико. Квалификация (06.11.2021) HDTVRip [H.264/1080p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Формула 1
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797272.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 ноября 2021, суббота. 23:00 МСК
+Этап 18. Мехико, Мексика. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Субтитры: отсутствуютПродолжительность: 01:34:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FD11C85636F64A9E12986F66DA8BD594164AD29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508483   (797271) от 08.11.2021
+
+Бригада (2002) WEBRip [H.264] (сезон 1, серии 1-15 из 15)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797271.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это история четырех друзей детства, обычных московских парней, Саши Белого, Космоса, Пчелы и Фила, выросших в одном дворе. Друзья решили немного подзаработать, но незапланированное убийство вмиг перемешало все задуманное, поставив на кон их жизни. Ставка слишком высока, но отступать некуда. Теперь парни прокладывают себе дорогу в криминальном мире и волею судеб превращаются (   Читать дальше...   )Производство: Россия / Аватар фильмЖанр: драма, криминал, боевикРежиссер: Алексей СидоровАктеры: Сергей Безруков, Дмитрий Дюжев, Павел Майков, Владимир Вдовиченков, Екатерина Гусева, Андрей Панин, Валентина Теличкина, Алексей Кравченко, Александр Высоковский, Николай Ерёменко мл.Продолжительность: ~00:50:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A5ADE945BA0863B8B699D8738B714A9E5D59C15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413230   (797270) от 08.11.2021
+
+Удар головой / Coup de tete (1979) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797270.jpg" />
+</div>
+
+
+###  Подробнее
+
+Франсуа Перэн (Игрушка/Le Jouet) возвращается! На сей раз его играет Девэр, и он не журналист, а футболист, но в остальном это такая же история от Вебера (здесь он сценарист). Смешная до слез, и грустная до смеха.
+История Франсуа, который никому не нужен только потому, что место «нужного» уже занято. Талант и трудолюбие… ничего не значат! И все только потому, что (   Читать дальше...   )Производство: Франция / Gaumont, SFPЖанр: Комедия, драма, спортРежиссер: Жан-Жак АнноАктеры: Патрик Девэр, Френс Дуньяк, Дороти Джемма, Морис Барье, Робер Дальбан, Марио Давид, Юбер Дешам, Дора Долль, Франсуа Дирек, Жан БуизПеревод: Многоголосый профессиональныйСубтитры: нетПродолжительность: 01:28:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F79EE8373C136C213CFCE891EE0A358F3049B948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456399   (797269) от 08.11.2021
+
+Королева дорог (2021) WEBRip [H.264] (сезон 1, серии 1-4 из 4)
+
+>>Зарубежные сериалы
+>>Сериалы ближнего зарубежья
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797269.jpg" />
+</div>
+
+
+###  Подробнее
+
+После аварии дальнобойщик Сеня вынужден оставить работу. Чтобы разобраться с долгами и прокормить семью, его жене-домохозяйке Славе ничего не остается, как самой сесть за руль фуры. Девушке придется преодолеть нечестное соперничество, деловые неудачи, поломки фуры, побороть неприятие окружающих, в том числе своих коллег-дальнобойщиков. А главное – наконец поверить (   Читать дальше...   )Производство: Украина | "Filmstream", "Vileton Films"Жанр: МелодрамаРежиссер: Николай МихайловАктеры: Татьяна Казючиц, Дмитрий Ратомский, Александр Никитин, Артур Логай, Наталия Денисенко, Максим Костюнин, Александр Крыжановский, Олеся Островская, Александр Лаптий, Алексей СмолкаЯзык озвучки: РусскийПродолжительность: ~00:45:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:124B3BBC7B1DBEDF6FA066A20C22DAE0906B0906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508340   (797268) от 08.11.2021
+
+Project Runner (2021) [En] (1.0) License DARKSiDERS
+
+>>Win Игры
+>>Action (TPS)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Project Runner - это игра на выживание, в которой главный герой попадает в лабиринт, основная цель которого - преодолеть лабиринт. История игры рассказывается через короткие анимации, а их секреты раскрываются в лабиринте. Внутри лабиринта игрок должен создать и найти собственное оружие для борьбы с монстрами, которое было разработано специально для лабиринта. Несколько (   Читать дальше...   )Тип издания: LicenseРазработчик: HecThoor EntertainmentЖанр: Экшены, Приключенческие игры, Казуальные игры, Инди, Ролевые игры, СтратегииЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:066B7689A0900249E4787A65898D8830A6AD10BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

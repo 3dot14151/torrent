@@ -1,3 +1,32 @@
+###  Публикация: 1002037   (850257) от 30.03.2016
+
+Стравинский, Шостакович, Каретников - Piano Music (Анатолий Ведерников) (2005) [FLAC|Lossless|tracks] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850257.jpg" />
+</div>
+
+
+###  Подробнее
+
+Стравинский - Piano Sonata no. 2
+01 -1- q=112
+02 -2- Adagietto
+03 -3- q=112(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:00:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5D87792FEE8F9661116014DC413581FC8DE2393
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002124   (848600) от 31.03.2016
 
 Schnittke, Stravinsky - Piano music (Boris Berman) (1991) [FLAC|Lossless|tracks] <Classical, Piano>
@@ -713,35 +742,6 @@ Piano Sonata No. 4 in A minor, D. 537 (Op. posth. 164)
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:96777A398870580785418F568E8E0DE92AAD44F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033602   (637927) от 11.07.2016
-
-Maria Grinberg - Beethoven: Piano Sonatas (vol 1,2) 1968 (2 Альбома) [FLAC|Lossless|image + .cue] <Classical, Solo Instrumental, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sonata No.1 in F minor Op.2-1 - I. Allegro    03:34
-02.  Sonata No.1 in F minor Op.2-1 - II. Adagio    04:04
-03.  Sonata No.1 in F minor Op.2-1 - III. Menuetto. Allegretto.    02:44
-04.  Sonata No.1 in F minor Op.2-1 - IV. Prestissimo    04:30(   Читать дальше...   )Жанр: Classical, Solo Instrumental, PianoПродолжительность: 02:04:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73ED975BA8B5FF55094FEC6AABD5A77290EC8C86
 ```
 
 https://mybot314.ru/tekegram_catalog/

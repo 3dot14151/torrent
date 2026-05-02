@@ -1,3 +1,90 @@
+###  Публикация: 990195   (911616) от 25.02.2016
+
+Shania Twain - The Platinum Collection (2001) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911616.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	What Made You Say That
+2	Dance With The One That Brought You
+3	You Lay A Whole Lot Of Love On Me
+4	Whose Bed Have Your Boots Been Under?(   Читать дальше...   )Жанр: Country, Pop, Rock.Продолжительность: 01:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69BE4BF66D410451215F2953D81F5B40ADDBB042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990261   (911603) от 25.02.2016
+
+Shania Twain - UP! Live In Chicago (2003) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911603.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Man! I Feel Like A Woman!
+2	Up!
+3	Honey, I'm Home
+4	She's Not Just A Pretty Face(   Читать дальше...   )Жанр: Country Rock, Pop RockПродолжительность: 01:45:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84DD9E0BD15DF352A8F8292F4A18C65A591EED51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989811   (911599) от 25.02.2016
+
+Shania Twain - The Specials (2001) DVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911599.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Man! I Feel Like A Woman!
+2	Honey, I'm Home
+3	All I Have To Give (Featuring Backstreet Boys)
+4	You're Still The One/Something About The Way You Look Tonight (	Featuring Elton John)(   Читать дальше...   )Жанр: Country, Rock, PopПродолжительность: 01:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E8C4E8FB9856D9738CB2161DAB73A3B206038FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 761949   (911550) от 03.02.2015
 
 Joe Bonamassa - Tour De Force (Hammersmith Apollo) (2013) HDRip
@@ -623,85 +710,6 @@ Kelly Clarkson - Stronger.avi(   Читать дальше...   )Жанр: Му�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3FE3F34B5682060791BA0AE90945CCE3BDFB066
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368771   (907183) от 21.03.2020
-
-Квартирник НТВ у Маргулиса. Manizha (20.03.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907183.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гостях у Евгения Маргулиса — обворожительная Manizha. Она с улыбкой называет себя нежным камнем и на собственном примере разрушает стереотип о том, что нужно быть под покровительством продюсера или лейбла, чтобы добиться успеха. Она завоевала бешеную популярность и любовь слушателей после того, как начала публиковать в Instagram авторские музыкальные ролики-коллажи. (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21DE1F7E60538F22FC99593EED54CAF32ACBB23F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 635733   (907129) от 27.03.2013
-
-Lindsey Stirling - Crystallize (2012) [1080i] HDRemux
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907129.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Dubstep ViolinПродолжительность: 00:04:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0561C7FACDFF0519EBE8495BA038857A6F98545
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099142   (906869) от 31.01.2017
-
-Ольга Стельмах - Завяжи мне глаза (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906869.jpg" />
-</div>
-
-
-###  Подробнее
-
-Певица и композитор из Москвы Ольга Стельмах в 2007 г. была удостоена премии «Шансон года».
- В предлагаемом фильме собраны лучшие песни певицы. Программа названа по песне, которая была написана Ольгой Стельмах на стихи Михаила Танича «Завяжи мне глаза» - заглавная песня к кинофильму «Семейный ужин». Впервые для видео исполняется уже ставшая известной по радиоэфиру (   Читать дальше...   )Производство: студия "Ночное Такси" г.Санкт - ПетербургЖанр: Музыкальный, КонцертПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBFEDC60652CD299F0AEDC0192F1F4DD92B442A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

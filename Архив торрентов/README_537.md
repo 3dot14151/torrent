@@ -1,3 +1,73 @@
+###  Публикация: 284452   (937494) от 19.01.2011
+
+Pedro Del Mar - Mellomania Vocal Trance Anthems 140 (17-01-2011) [MP3|256 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Avicii vs. Kings Of Leon - Abow vs. Sex On Fire (Avicii's Bootleg)
+02. Sherry Flavour & Tara Mcdonald - The Grand (Extended Mix)
+03. First State & Sarah Howells - Reverie (Jeziel Quintela, Jquintel & Manufactured Superstar)
+04. Jozhy K & Angel - I Won't Be Crying For You (Jon Median Remix)
+05. Nadia Ali - Point The Finger (Lost Stories Extended Mix)
+06. Eximinds feat. Aelyn - I Feel You
+07. Tucandeo feat. Jennifer Hershman - Only We Know (Estiva Remix)
+08. Lost Witness - Fade Away (Full Vocal Mix)
+09. Randy Boyer feat. Cari Golden - Fragile (Jonas Hornblad Remix)
+10. Novaline feat. Anthya - SirenЖанр: TranceПродолжительность: 01:02:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47CBF6791ED6062F27A47C899F30A319D256CC5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 284522   (937493) от 19.01.2011
+
+VA - House Vip [16.01.2011] (2011) [MP3|320 kbps]<Electro House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937493.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. AUtOdiDakT & Electro Ferris - Chainsaw (Dj Antention Remix) (4:51)
+2. BeatauCue - Disque Oh! (High Rankin Remix) (4:24)
+3. Briana - Life keeps on Going (DJ Solovey remix) (5:15)
+4. Chris Decay - Like That (Bigroom Mix) (5:37)
+5. Dj Viduta - You are ready (5:12)
+6. E-Bonit vs. Mike McPower - Set Free (Party NoiserZ & Sound Stylez Remix) (6:07)
+7. Herd & Fitz feat. Abigail Bailey - I Just Can't Get Enough (Audio Brothers Remix) (4:48 )
+8. Kesha - We R Who We R (Fred Falke Club Mix) (6:56)
+9. Manyus & Paolo Di Miro - Midnight (P. Di Miro Elektrorock Mix) (6:07)
+10. The Noisy Freaks - Fast Chased (Drivepilot Remix) (5:00)Жанр: Electro HouseПродолжительность: 00:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E193D35531FBB43E97450F7404B89746E365C4B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 859873   (937484) от 18.01.2015
 
 Настя Любимова - I Don't Know (2013) WEBRip [H.264/720p-LQ]
@@ -648,58 +718,6 @@ Chatty — замечательный Facebook-мессенджер для OS X.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA3B08A6C5B582D530AC79A55B70612B65AE2DC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984784   (937247) от 10.02.2016
-
-Юрий Анненков | Повесть о пустяках (2001) [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937247.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Повесть о пустяках» — сатирический роман, написанный в эмиграции русским художником Юрием Анненковым и изданный в Берлине в 1934 году под псевдонимом Борис Темирязев. Книга рассказывает о России 1910-20-х годов, состоит из 5 глав, не имеет линейного сюжета и наполнена множеством персонажей, большинство из которых имеет реальных прототипов среди знакомых автора. (   Читать дальше...   )Жанр: Классическая прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:872EE4845B31AFA2CA907870261F03F085DBD36C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984438   (937246) от 10.02.2016
-
-Переплывая время (2014) DVDRip [H.264] [MP4|640x360]
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937246.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как известно, Петр I питал страсть к кораблям. На годы его правления приходится расцвет русского флота. В начале XVIII века на берегу Онежского озера Петр Великий заложил город Петрозаводск. Он стал главной базой царского флота и по сей день является центром деревянного судостроения. Пройдитесь по его мастерским и примите участие в регате на борту старинного парусника!Производство: RT ANO TV-NovostiЖанр: ДокументальныйРежиссер: RTАктеры: Виктор Дмитриев, иеромонах Феоктист, Алексей ВолобойПродолжительность: 00:24:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F79F6317C976BC37D2844BF23DACA25DDF7095F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

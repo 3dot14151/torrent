@@ -1,3 +1,61 @@
+###  Публикация: 1166985   (422171) от 18.09.2017
+
+Don Ewell - Man Here Plays Fine Piano! (1957) 1995, Good Time Jazz [FLAC|Lossless|tracks + .cue] <Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422171.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everybody Loves My Baby [03:54]
+02. Blue Turning Grey Over You [03:49]
+03. Am I Blue? [06:03]
+04. Frisco Rider [03:06](   Читать дальше...   )Жанр: Stride, Piano JazzПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A216E5DD257AEEFAB2D6E2CF2E632CA700F9A8E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166989   (422070) от 18.09.2017
+
+Kumquat - Quick & Dirty (2008) Zig-Zag [FLAC|Lossless|image + .cue] <Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_422070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Bed With Igor [09:29]
+02. La Revanche De l'ogresse [06:07]
+03. Mandarine Suite [09:44]
+04. Le Mouton Ou Le Cafe? [01:51](   Читать дальше...   )Жанр: Modern CreativeПродолжительность: 00:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98C5F482C66DC8076EF62672F0363D2A1EB7DA40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065181   (421902) от 22.10.2016
 
 Andre Manoukian - So In Love {ECD} (2010) EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz, Standards>
@@ -698,70 +756,6 @@ Sean Jones - Im•pro•vise Never Before Seen (2014) Mack Avenue Records [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09B758ACE89C3DC915142544D3767085BE54EC37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065685   (418928) от 23.10.2016
-
-Vulfpeck - The Beautiful Game (2016) [FLAC|Lossless|WEB-DL|tracks] <Funk,Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sweet Science 01:55
-02. Animal Spirits 03:10
-03. Dean Town 03:33
-04. Conscious Club 03:20(   Читать дальше...   )Жанр: Funk,PopПродолжительность: 00:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A71D7006633E07DF98F6BCE9C12C787C2CF40E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 557056   (418856) от 08.10.2012
-
-Connie Evingson - 6 альбомов (1999 - 2012) [FLAC|Lossless]<Jazz Vocal, Gipsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_418856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agua de Beber [04:52]
-02. Meditation [05:38]
-03. Slow Hot Wind [04:00]
-04. Sweet Happy Life [05:34]
-05. Killing Me Softly [04:56]
-06. Canadian Sunset [06:20]
-07. Watch What Happens [04:40]
-08. Girl From Ipanema [04:42]
-09. Sway [04:19]
-10. Bluesette [04:54](   Читать дальше...   )Жанр: Jazz Vocal, Gipsy, PopПродолжительность: 01:
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

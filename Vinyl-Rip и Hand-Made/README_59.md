@@ -1,3 +1,175 @@
+###  Публикация: 1600402   (157538) от 27.12.2022
+
+At the Gates - Studio Albums (7 releases) (1992 - 2021) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157538.jpg" />
+</div>
+
+
+###  Подробнее
+
+At the Gates — шведская мелодик-дэт-метал-группа, образовалась в Гётеборге в 1990 году. Является прародителем метал-сцены Гётеборга и музыкального стиля мелодичный дэт-метал.1992 - The Red In The Sky Is Ours
+1993 - With Fear I Kiss The Burning Darkness
+1994 - Terminal Spirit Disease
+1995 - Slaughter of the Soul(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 05:48:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F95D624568EF20257BD4F6B1226F564DA8B37FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1540441   (156942) от 13.11.2023
+
+Psycho Attack Over Europe! (3CD set) (1991-1994) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Psychobilly, Rockabilly, Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156942.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Психобилли», или, как правильно произносится название этого музыкального жанра, «сайкобилли», — жанр рок-музыки, сочетающий экспрессию и агрессивность панк-рока с мелодикой кантри и рокабилли. Жанр появился в 1975 г.
+В 1986 году голландаская фирма грамзаписи "Kix 4 U" выпускает первый сборник из серии "Psycho Attack Over Europe!". Он объединяет (   Читать дальше...   )1991 - Psycho Attack Over Europe! (part 1)
+1992 - Psycho Attack Over Europe! (part 2)
+1994 - Psycho Attack Over Europe! (part 3)Жанр: Psychobilly, Rockabilly, PunkПродолжительность: 03:25:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CFE00208ECB83C0A81BD6E48D9A7608A1DE8267
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967301   (156915) от 23.12.2015
+
+VA - Мастера блюза 4: Большая машина (1990) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156915.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Бум-Бум-Бум. Boom Boom Boom. (Джон Ли Хукер)
+A2 - Чего ты хочешь? Baby What Yoy Want Me To Do. (Джимми Рид)
+A3 - Уезжай отсюдаю Leave This Neighborhood. (Эдди Тейлор)
+A4 - Я все еще люблю. I Love Her Still. (Пи Ви Крэйтон)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:667B6BE0C921CB732F2219A6EBE948D81DA623B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676276   (156887) от 13.11.2023
+
+The Rolling Stones - Hackney Diamonds (2023) [FLAC 24/96|Lossless| image + .cue|Vinyl-Rip] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156887.jpg" />
+</div>
+
+
+###  Подробнее
+
+A.1 Angry
+A.2 Get Close
+A.3 Depending on You
+A.4 Bite My Head Off(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:48:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0C9408988DFD6ADA33080DD4AF83A832037E878
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676254   (156454) от 13.11.2023
+
+VA - Архив Популярной Музыки 1-12 (1988-1990) Unofficial Release [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Rock, Funk, Hard Rock, Rock-n-Roll>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Архив популярной музыки — серия пластинок, выпущенных фирмой грамзаписи «Мелодия» в 1988—1989 годах. Каждый диск представлял собой сборник песен одного из наиболее известных представителей англо-американской поп- и рок-музыки 1950-х—1970-х годов.
+Данная серия начала своё существование с выпуска в 1987 г. менее известной серии «Рок-архив», состоявшей всего из трёх (   Читать дальше...   )Жанр: Rock, Funk, Hard Rock, Rock-n-RollПродолжительность: 08:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF351CAD6C7E36CF394AD7107BFF46C27D755A3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 853948   (156257) от 27.12.2014
+
+Blue Oyster Cult - Fire Of Unknown Origin (1981)  [FLAC 2.0 24/96|image (Vinyl-Rip)]<Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156257.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Fire Of Unknown Origin (4:12)
+A2. Burnin' For You (4:32)
+A3. Veteran Of The Psychic Wars (4:50)
+A4. Sole Survivor (4:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2E6C99E010067B0C8009E48F499565050784F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 738250   (155993) от 24.12.2013
 
 Modern Talking - Поговорим о любви, Ready For Romance (1986, 1987) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Disco>
@@ -586,180 +758,6 @@ Warfect - трэш-метал группа из Швеции, основана �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6BDEB746B07B4DC2407D69EC860BB817000BE5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1434719   (149216) от 25.12.2020
-
-VA - Christmas Country By Country Music Stars 1982 - 2016 (2020) Unofficial Release [FLAC 2.0|44.1/24|image+M3U|MC-Rip] <Pop, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martina McBride - The Christmas Song (Chestnuts Roasting on an Open Fire)
-White Christmas
-1999 - RCA - Torme / Wells
-02. Gene Autry - Here Comes Santa Claus(   Читать дальше...   )Жанр: Pop, CountryПродолжительность: 01:32:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18222DBA370B7760BEA224CAFAA0BA9818724C91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271655   (148732) от 24.12.2018
-
-Veli-Matti Jarvenpaa - Sarkijarven Bolero (1992) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Folk, World & Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148732.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Heittopussi
-A2 Sarkijarven Bolero
-A3 Vauhdin Maailma
-A4 Neidot Herkat Hennot(   Читать дальше...   )Жанр: Folk, World & CountryПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FCF8BE6C0A182F0FBC27B72FFB7E676A4074B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271697   (148714) от 24.12.2018
-
-Fine Young Cannibals - Fine Young Cannibals (1985) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148714.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Johnny Come Home
-A2 Couldn't Care More
-A3 Don't Ask Me To Choose
-A4 Funny How Love Is(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:34:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A44B0117C33743844D61B4D9DE77668802CBE965
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271681   (148620) от 24.12.2018
-
-Cliff Richard - The Best Of... (unknown) [FLAC 2.0|48/24|image+.cue|MC-Rip] <Classic Rock, Rock'n'Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148620.jpg" />
-</div>
-
-
-###  Подробнее
-
-Face A:
-01. Devil Woman
-02. The Young Ones
-03. Do You Wanna Dance(   Читать дальше...   )Жанр: Classic Rock, Rock'n'RollПродолжительность: 00:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F155DD0EA7859AF89AA5E1911297226D24E802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1347940   (147033) от 25.12.2019
-
-Joanne Shaw Taylor - Reckless Heart (2019) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Blues-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Mood (3:47)
- 02. All My Love (3:38)
- 03. The Best Thing (4:52)
- 04. Bad Love (4:08)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4906B6B28BC294F3D4AC245E5913003C0C6E0BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087489   (146511) от 27.12.2016
-
-Barclay James Harvest - Eyes Of The Universe (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_146511.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Love On The Line (4:41)
-A2. Alright Down Get Boogie (Muala Rusic) (3:58)
-A3. The Song (They Love To Sing) (6:09)
-A4. Skin Flicks (6:50)(   Читать дальше...   )Производство: Polydor - 2383 557Жанр: Progressive RockПродолжительность: 00:42:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03C3017D3851570D4A23384B1D49F2704036E06F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1289491   (244565) от 16.03.2019
+
+A Fragile Tomorrow - Generation Loss (2019) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244565.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dig Me Out (04:06)
+02. Generation Loss (03:34)
+03. How Do You Dance To It? (03:19)
+04. I'm Afraid Of Too Much Change (03:14)(   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:41:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41EF428A795B84ECAD7948702697223B217FDD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289414   (244547) от 16.03.2019
+
+Hurry - Every Little Thought (2018) [FLAC|Lossless|tracks + .cue] <Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244547.jpg" />
+</div>
+
+
+###  Подробнее
+
+Every Little Thought  05:06
+Read Between The Lines  03:10
+Waiting For You  03:22
+Hanging On  05:05(   Читать дальше...   )Жанр: Rock, Indie RockПродолжительность: 00:46:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DB9B8DD6BEFF18EAD03F5F244CA547D3B0F5470
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454150   (244153) от 13.03.2021
 
 Ship Thieves - Irruption (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Punk Rock>
@@ -687,64 +745,6 @@ And Hell Followed With - Quietus (2022) [FLAC|Lossless|WEB-DL|tracks] <Deathcore
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F3B04037B9135E39013D5096BC145B377D0B3B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549098   (240732) от 06.05.2022
-
-Reflections - The Fantasy Effect (2022) Redux [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Metalcore, Deathcore, Math Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240732.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ceilings (Redux)
-2. Ms.Communication (Redux)
-3. Good Push (Redux)
-4. An Artifact (Redux)(   Читать дальше...   )Жанр: Alternative, Progressive Metalcore, Deathcore, Math MetalПродолжительность: 00:47:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C705C1E67D21EE0BBE4B5C8F2CEC777D4611376F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549103   (240718) от 06.05.2022
-
-Us in Motion - Death Poems (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240718.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Luna
-2. Curses & Maledictions
-3. Let the Dead Bury the Dead
-4. Hiraeth (feat. Othertones)(   Читать дальше...   )Жанр: Alternative, Post-HardcoreПродолжительность: 00:31:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1DA2A4F786EA8A30BF69C7F3034A98F4EBAED0
 ```
 
 https://mybot314.ru/tekegram_catalog/

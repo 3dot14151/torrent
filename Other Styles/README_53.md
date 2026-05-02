@@ -1,3 +1,206 @@
+###  Публикация: 779960   (770202) от 23.04.2014
+
+VA - The Best Tango Album In The World...Ever! (2014) [FLAC|Lossless]<Tango>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_770202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Florindo Sassone & His Traditional Orchestra -  Caminito  (2:37)
+02.  Carlos Garcia & His Orchestra -  Mi Buenos Aires Querido  (2:51)
+03.   Iyri Pashali -  Espuma de Champagne   (3:26)
+04.  Alfredo De Angelis & His Orchestra -  El Choclo  (2:31)(   Читать дальше...   )Жанр: TangoПродолжительность: 01:17:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEB06B77EACB9D3C90FF79F6667BB93662B9556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 778903   (769755) от 24.06.2020
+
+David Arkenstone - Frontier (2000) [FLAC|Lossless]<New Age, Soundtrack>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Theme (2:01)
+02. Rogers' Rangers (2:32)
+03. Indian Attack (5:28)
+04. Tippecanoe (2:51)(   Читать дальше...   )Жанр: New Age, SoundtrackПродолжительность: 01:04:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9864AEA8E9F58AC5908A4A09BF54246066DB032C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1016565   (769637) от 15.05.2016
+
+Nadama - Waves of Love (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ocean Breeze     05:05
+02. Upon the Water     05:20
+03. Carefree     05:22
+04. Offering of Love     06:08(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:58:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1284F39925C436E563572C3528F3B21F060B6A81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392124   (769371) от 25.06.2020
+
+Khruangbin - Mordechai (2020) [FLAC|Lossless|tracks + .cue] <Reggae, Funk, Neo-psychedelia, World>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Class (04:47)
+02. Time (You And I) (05:42)
+03. Connaissais De Face (04:21)
+04. Father Bird, Mother Bird (03:05)(   Читать дальше...   )Жанр: Reggae, Funk, Neo-psychedelia, WorldПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E6F4C3F2B78E37D13A06E5C2F225C3DE080FFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125272   (768808) от 14.04.2017
+
+Caroline Reese and the Drifting Fifth - Tenderfoot (2017) [FLAC|Lossless|tracks] <Country,Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Unlocked (3:48)
+02 - Airshow (3:35)
+03 - New Tricks (2:31)
+04 - Snake Eyes (3:06)(   Читать дальше...   )Жанр: Country,FolkПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57F5447EAFF0C709E1DA3525325FD2CDABDC509A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125154   (768807) от 14.04.2017
+
+Sambodhi Prem - Circle of Light (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768807.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweetness 07:27
+02. Into the empty sky 05:21
+03. Arohanui - Call me with the Light of Love 05:45
+04. Offering to the Waves 07:12(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7938F3F90826419A0DB66B0546AC04965E4E3783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1124894   (768748) от 14.04.2017
+
+bethel music - starlight (live) (2017) [MP3|320 Kbps] <Christians, worship>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Starlight (Live)
+02 - There's No Other Name (Live)
+03 - Extravagant (Live)
+04 - Breathe (Spontaneous)Жанр: Christians, worshipПродолжительность: 01:17:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E9DB40AAB982B00BF26AF48A5B1FBEB59BA3A1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125286   (768654) от 14.04.2017
 
 VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Hip-Hop>
@@ -542,209 +745,6 @@ VA - Евгенич (2021) [MP3|320 Kbps] <OST>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2282AEC7337523035E54B7AB7AA3998F65CE2D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125453   (765535) от 18.04.2017
-
-The Gordon Brothers - Yoga Planet (2008) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765535.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.  Gliding In Azure (7:22)
-2.  Cante Libre (5:35)
-3.  Dream Wave (6:06)
-4.  Asana Lounge (8:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D676ABAA85425254983F4772E49C49DDF53EDAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125948   (765533) от 18.04.2017
-
-Vin Downes - When The Sea Lets Go (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Entwined and Lost
-02. Evening in Berkeley
-03. Morning Red
-04. Dust and Drag(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DA9651B332D174ABC779767E1BF2C87A6BBD270
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393560   (765432) от 03.07.2020
-
-Jim Brickman - Piano Tributes: Songs Of Carole King (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You've Got A Friend
-02. So Far Away
-03. Up On The Roof
-04. Tapestry(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7228FA7FEF5299D855635BB0B3F51D80EC78D35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279729   (764544) от 31.01.2019
-
-Ulver - Svidd Neger (Original Motion Picture Soundtrack) (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Soundtrack, Modern Classical>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preface (1:42)
-02. Ante Andante (0:53)
-03. Comedown (2:19)
-04. Surface (3:17)(   Читать дальше...   )Производство: Jester Records – TRICK030Жанр: Electronic, Soundtrack, Modern Classical, Score, AmbientПродолжительность: 00:32:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:133A35C1E4AE0C925F4557605C541C2B9FB80E62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126635   (764479) от 19.04.2017
-
-The Essence - Enigma Lounge (2003) [FLAC|Lossless|tracks + .cue] <Enigmatic, New age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wholeness Of The Essence (04:38)
-02. True Sensuality (05:02)
-03. Essence (04:02)
-04. La Vie Rouge (04:04)(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 01:04:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C57950BAC6E7E800C0950B1FA8B126BA41D81B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126599   (764330) от 19.04.2017
-
-Blonker - Fantasia (1980) Remastered, 1994 [FLAC|Lossless|image + .cue] <New Age, Ambient, Rock>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764330.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aranjuez (4:48)
- 02. Sidewalk Cafe (3:16)
- 03. Pavane (4:05)
- 04. Anak (4:36)(   Читать дальше...   )Жанр: New Age, Ambient, RockПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEE5916A2D96AEDF1BC7CB426B352FBF0088ECA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394272   (763729) от 05.07.2020
-
-Willie Nelson - First Rose of Spring (2020) [MP3|320 Kbps] <Country>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. First Rose of Spring (03:40)
- 02. Blue Star (04:35)
- 03. I ll Break Out Again Tonight (02:50)
- 04. Don t Let the Old Man In (03:08)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CFE4B2E220989655B6CB53D61D2350A0985CD31
 ```
 
 https://mybot314.ru/tekegram_catalog/

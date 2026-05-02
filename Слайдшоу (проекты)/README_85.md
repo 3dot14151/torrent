@@ -1,3 +1,29 @@
+###  Публикация: 1331736   (320218) от 17.10.2019
+
+VideoHive - Photo Slideshow - 22412516 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Photo Slideshow - красивый и чистый проект AE с изображениями, видеофайлами и заголовками. Просто вставьте свои фотографии/видеоклипы и поменяйте заголовки - теперь все готово к рендерингу!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1712F6A5E68AA7327D69C699CDCCACC5237EBB1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1182182   (318959) от 09.11.2017
 
 Проекты - Проект ProShow Producer - The Zodiac [PSH]
@@ -654,32 +680,6 @@ ProShow Producer - Original Frames [PSH]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEBC3200D2F32C085B097891EE5180CE0DBF56F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076032   (308299) от 27.11.2016
-
-Проекты - Проект ProShow Producer - Wedding Library Proshow Producer Gold Particles Postcard Opener [PSH]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308299.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект создан в PSP-6. Римейк одноименного свадебного проекта для АЕ.Формат: PSH
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:703F0B7A0127E29E6C5A1DAEC7F74E7865F5C041
 ```
 
 https://mybot314.ru/tekegram_catalog/

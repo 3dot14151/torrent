@@ -1,3 +1,32 @@
+###  Публикация: 1270878   (154324) от 21.12.2018
+
+Orbital - Live At Eventim Hammersmith Apollo (15.12.18) (2018) Live Here Now [FLAC|Lossless|WEB-DL|tracks] <Leftfield, Techno, Electro, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154324.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:46)
+ 02. Monsters Exist (06:21)
+ 03. There Will Come A Time (07:06)
+ 04. Impact (The Earth Is Burning) (09:33)(   Читать дальше...   )Жанр: Leftfield, Techno, Electro, HouseПродолжительность: 01:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4524293D37668E384BBD5E615DCD290A5C5AFD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1347153   (154275) от 22.12.2019
 
 Octal Industries - Our Seasons (2019) Vertex Recordings [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
@@ -713,35 +742,6 @@ VA - Club Sounds The Ultimate Club Dance Collection Best Of 2017 [FLAC|Lossless|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DBDB95AEDE15A5AB8A8F3FD18706578439A0BD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1348624   (142061) от 29.12.2019
-
-VA - Schneeweiss 10 (Presented by Oliver Koletzki) (2019) DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_142061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lunar Plane - Jackal (7:17)
-02. Niko Schwind - Prima Lux (Palmfood Remix) (7:31)
-03. Rauschhaus, Peer Kusiv - Drowning (Bebetta Remix) (7:20)
-04. Prismode, Solvane - Alesis (5:36)(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 03:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0FFB73C1E9C2B7C9B10BB6318C60B3DED85AAAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

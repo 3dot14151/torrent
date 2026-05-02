@@ -1,3 +1,61 @@
+###  Публикация: 1012505   (793833) от 01.05.2016
+
+VA - Hands Up Essentials Vol.2 (2016) [MP3|320 кб/с] <Club, Dance, Hand Up>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Gollum feat. DJ Cap vs. NICCO -  Together Forever (Easter Rave Hymn 2k16) (Radio Edit)  3:34
+02. Manian -  Ravers in the UK (Ti-Mo Radio Edit)  3:39
+03. DJ THT -  Best Day (Radio Edit)  3:51
+04. Jens O -  Last Time (Radio Edit)  3:05(   Читать дальше...   )Жанр: Club, Dance, Hand UpПродолжительность: 03:52:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81CC389F7F2AFCD1B0E6A94E22FD40597D2EBC6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012517   (793823) от 01.05.2016
+
+VA - Electro Synth - Mcity Edition (2015) [MP3|320 кб/с] <Synth-pop, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793823.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Yuri Sosnin - Reflection
+02. Abbsynth - Space Wanderer
+03. Boney M feat. Baby's Gang - Hapy Song (KsN Remix)
+04. Italover - Tonight In Love (Long 24 Bit Version)(   Читать дальше...   )Жанр: Synth-pop, SpacesynthПродолжительность: 01:11:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:764E8E307987ADFC93E6686F8CE10FA8F961B84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1012299   (793754) от 01.05.2016
 
 VA - Party Time (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Disco House, Deep House>
@@ -687,64 +745,6 @@ VA - Progressive Winter Sounds (2019) [MP3|320 Kbps] <Trance, Progressive Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7310F5C596C5014E1C4B186A81AE219483FE97F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387491   (791093) от 02.06.2020
-
-VA - Hits of My Soul Vol. 56 (2020) [MP3|256-320 Kbps] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791093.jpg" />
-</div>
-
-
-###  Подробнее
-
-|08:44| 01. The Cloudy Day - Way Of The Sun (Original Mix)
-|09:31| 02. The Cloudy Day & Andrey R. - Wings (Original Mix)
-|09:42| 03. The Cloudy Day - Aurora (Original Mix)
-|08:16| 04. The Cloudy Day - Over Emotion (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance •Продолжительность: 19:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9253FD377C304DE6B155385F6E47DE6FED713A34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201711   (791053) от 27.01.2018
-
-VA - DMC Seasons Winter: Trance Uplifting Party (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791053.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Paul Van Dyk & Farhad Mahdavi feat. Sue Mclaren - Together Again
-002. Ram & Darren Porter - The Calling (Grotesque 300 Anthem)
-003. Roman Messer - Lullaby (Original Mix) (Feat. Roxanne Emery)
-004. DJ T.H. & Athema feat. Elyse G. Rogers - Strong Enough(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 11:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75522121F0872BAB3778E3D68051E130CB1FA3D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

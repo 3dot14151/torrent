@@ -1,3 +1,87 @@
+###  Публикация: 1408650   (453283) от 13.09.2020
+
+Квартирник НТВ у Маргулиса. Александр Розенбаум (12.09.2020) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453283.jpg" />
+</div>
+
+
+###  Подробнее
+
+В качестве сольного артиста Александр Розенбаум вышел на большую сцену в первой половине 80-х. Известность ему принес так называемый «одесский цикл» песен – с тех пор популярность артиста не снижается, его песни известны как его ровесникам, так и современной молодежи, а такие композиции как, например, «Вальс-бостон» и «Ау» по праву можно назвать вечными. В гостях (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 01:04:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A90E050B39E5B03068364C94886BFCF9A9A63CB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942631   (453100) от 01.10.2015
+
+Jeff Lynne’s ELO - Live in Hyde Park (2014) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453100.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легендарный бирмингемский музыкант Джефф Линн совершил триумфальный камбэк в виде первого полноценного шоу на британской земле впервые почти за 30 лет. Сопровождаемый BBC Concert Orchestra и штатным клавишником ELO Ричардом Тэнди, Джефф порадовал своих поклонников великолепным 80-минутным концертом, состоявшимся 14 сентября 2014 года в лондонском Гайд-Парке в рамках (   Читать дальше...   )Треклист:
+01. All Over the World
+02. Evil Woman
+03. Ma-Ma-Ma Belle(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD7CE9F828C06B729686F641DAD0FF8A2E820630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 942985   (451185) от 02.10.2015
+
+Deep Purple - ...To The Rising Sun (In Tokyo) (2015) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451185.jpg" />
+</div>
+
+
+###  Подробнее
+
+Deep Purple объявили о выпуске двух концертных фильмов, снятых на Wacken и в Японии. To The Rising Sun (в Wacken) был снят на девять HD камер и отмечается что в первый раз Deep Purple выпустит 3D-фильм.01. Apres Vous
+02. Into The Fire
+03. Hard Lovin‘ Man
+04. Strange Kind Of Woman(   Читать дальше...   )Жанр: Rock,  Hard RockПродолжительность: 01:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBA7C6DD11DF4FD5CC662251ABFFDD187097003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1247640   (451085) от 16.09.2018
 
 Квартирник на НТВ у Маргулиса. L’one (09.15.2018) WEBRip [H.264/1080p-LQ]
@@ -629,96 +713,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:292BBBB6EBAC13DCC2A6FB9558569339A5D67C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1413586   (408193) от 04.10.2020
-
-Квартирник НТВ у Маргулиса. Михаил Бублик (03.10.2020) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408193.jpg" />
-</div>
-
-
-###  Подробнее
-
-Творчество Михаила Бублика находится на стыке шансона и рока, он автор таких хитов, как «Сам тебя выдумал», «Что мы наделали» и «40 тысяч верст», а его бешеная энергетика и харизматичная улыбка принесли музыканту любовь и признание разных поколений. В гостях у Евгения Маргулиса Бублик поделился воспоминаниями из жизни и исполнил свои лучшие композиции.Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F209E80FB37F9386339499CF48241F40E8076BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 565650   (399824) от 26.10.2012
-
-The Doors: Live at the Bowl '68 (2012) [1080p] Blu-ray
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399824.jpg" />
-</div>
-
-
-###  Подробнее
-
-• On July 5th, 1968, The Doors took to the stage of the Hollywood Bowl for a concert that has since passed into legend. The Doors were performing on the back of their 3rd album release Waiting For The Sun and the US No.1 single Hello, I Love You. They had been honing their live performances over the previous 2 years and were on absolute peak form. Now for the first time the original film footage from the Hollywood Bowl has been digitally scanned and restored to present the show better and more complete than it's ever been seen before, with 2 previously unreleased tracks (Hello, I Love You & THE WASP (Texas Radio And The Big Beat) (aka just Texas Radio And The Big Beat) returned to the running order and with sound newly remixed and mastered from the original multitrack tapes by The Doors engineer and co-producer Bruce Botnick. This is now the definitive edition of this famous performance. / Bonus Features: Over an hour of new bonus material including Echoes From The Bowl, The Doors route to the Hollywood Bowl, (   Читать дальше...   )01. Show Start / Intro
-02. When The Music's Over
-03. Alabama Song (Whisky Bar)
-04. Back Door Man
-05. Five To One
-06. Back Door Man (Reprise)
-07. The Wasp (Texas Radio And The Big Beat)
-08. Hello, I Love You
-09. Moonlight Drive
-10. Horse Latitudes(   Читать дальше...   )Жанр: rockПродолжительность: 01:11:05
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 715095   (397403) от 25.10.2013
-
-Joe Cocker – Fire it Up Live (2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт «Fire it Up» состоялся в ходе европейского тура Джо Кокера на Lanxess Arena в Кёльне в апреле 2013 года. Джо Кокер - английский певец, работающий в жанрах блюз и рок. Его визитной карточкой является низкий хриплый баритон. Жемчужины его репертуара — блюзовые баллады «My Father’s Son», «Unchain My Heart», «You Can Leave Your Hat On», «N'oubliez jamais».01. I Come In Peace Live
-02. Feelin' Alright Live
-03. The Letter Live
-04. When The Night Comes Live(   Читать дальше...   )Производство: Германия / Sony BMG Music EntertainmentЖанр: Rock, Blues-Rock, Blue-Eyed SoulРежиссер: Ник Викхэм / Nick WickhamПродолжительность: 01:54:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:221670D96B9035DFA1D595FAF0B7502BE65237B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

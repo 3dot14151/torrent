@@ -1,3 +1,61 @@
+###  Публикация: 1609890   (244609) от 05.02.2023
+
+Charlie Parker - Five Classic Albums (1949 - 1954) 2CD, 2020, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244609.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Bloomdido [3:27]
+02. Melancholy Baby [3:26]
+03. Relaxing with Lee [2:49](   Читать дальше...   )Жанр: BopПродолжительность: 02:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1A703B0FAA2C6449A2355A2CD90329F8CDB0A15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1289448   (244606) от 16.03.2019
+
+Henry Threadgill - Double Up, Plays Double Up Plus (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244606.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Game is Up 	22:48
+2. Clear and Distinct From the Other A 	9:56
+3. Clear and Distinct From the Other B 	6:15
+4. Clear and Distinct 	8:38(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020226AF39989A48178B7E94683289F909025FBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1452305   (244566) от 06.03.2021
 
 Tal Babitzky - Internal Voice (2002) [FLAC|Lossless|tracks + .cue] <Fusion, Smooth Jazz, Contemporary jazz>
@@ -687,64 +745,6 @@ Tony Kofi Quartet - Plays Monk (2004) Specific Jazz[FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61ED511FDD1C93EF69654E1931C1F6E0BA62BBAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072450   (244236) от 13.11.2016
-
-Gary Burton - Country Roads & Other Places (1969) 1998, Koch Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244236.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Country Roads [05:07]
- 02.The Green Mountains [03:42]
- 03.True Or False [01:46]
- 04.Gone, But Forgotten [03:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C095CEE193FBBA27823B601D3DBA43892DE03167
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1072375   (244190) от 13.11.2016
-
-Pamela Rose & The Nate Ginsberg Trio - On the Jazzy Side of Blue (1993) [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244190.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Three-Handed Woman
-02. Ain't-Cha Glad?
-03. Oh Grandpa
-04. No Moon at All(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B06CFE15D926C2F7F5027DBEA4F78EEAC0F62B
 ```
 
 https://mybot314.ru/tekegram_catalog/

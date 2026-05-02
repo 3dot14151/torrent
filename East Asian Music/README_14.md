@@ -1,3 +1,29 @@
+###  Публикация: 577664   (345000) от 24.11.2012
+
+Koda Kumi - 10 альбомов, 5 компиляций, 6 Remix Albums, 58 синглов (2000-2012) [MP3|128-320 кб/с]<J-Pop, J-R&B>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345000.jpg" />
+</div>
+
+
+###  Подробнее
+
+AlbumsЖанр: J-Pop, J-R&BПродолжительность: 00:07:06
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1179941   (344235) от 02.11.2017
 
 Masayoshi Takanaka - Saudade (1982) 1995, Kitty Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion>
@@ -725,41 +751,6 @@ Turtles - 2 albums (2003-2004) [FLAC|Lossless]<Korean,hip hop>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583342   (315479) от 01.12.2012
-
-Acousphere - 2 albums (2010, 2011) [MP3|160-320 кб/с]<Instrumental, New age, Acoustic guitar>
-
->>East Asian Music
->>Other Asian
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315479.jpg" />
-</div>
-
-
-###  Подробнее
-
-(6:06) 01. You Can't Hurry Love
-(4:27) 02. September
-(4:03) 03. This Is It
-(5:01) 04. Everybody Need Somebody To Love
-(3:53) 05. Arthur's Theme
-(4:32) 06. Alone Again
-(6:13) 07. Happy Moment
-(1:14) 08. Just The Way You Are
-(3:52) 09. Ob-La-Di, Ob-La-Da
-(4:42) 10. I Just Called To Say I Love You(   Читать дальше...   )Жанр: Instrumental, New age, Acoustic guitarПродолжительность: 01:08:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D45B61957DC8BDEA9DFF5294720F0609F6CAEF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

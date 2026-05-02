@@ -1,3 +1,96 @@
+###  Публикация: 522067   (622542) от 13.07.2012
+
+VA - Bonjour La France ( The Sound Of France ) (1993 & 1996) 2*2CD [FLAC|Lossless]<Chanson, Pop>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_622542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. France Gall - Poupee De Sire, Poupee De Son [02:32]
+02. Mireille Mathieu - Ensemble [03:03]
+03. Severine - Un Banc, Un Arbre, Une Rue [03:03]
+04. Les Poppys - Love, Lioubov, Amour [03:06]
+05. Les Poppys - Des Chansons Pop [02:14]
+06. Vicky Leandros - Apres Toi [03:33]
+07. Lenny Kuhr - Les Enfants [03:22]
+08. Mort Shuman - Le Lac Majeur [05:25]
+09. Anne Marie David - Tu Te Reconnaitras [02:42]
+10. Mireiile Mathieu - La Paloma Adieu [03:53](   Читать дальше...   )Жанр: Chanson, PopФормат: 2 * 2CDПродолжительность: 01:07:57
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1295253   (622366) от 11.04.2019
+
+Елена Ваенга - Оловянное сердце (2011) [FLAC|Lossless|image + .cue] <Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_622366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Клавиши (3:49)
+02. Ванечка (3:31)
+03. Курю (5:10)
+04. Гуцулочка (3:08)(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:10:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D4DD19E22F6CA32B4DE556AC496AE7C311BA28A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1036156   (621085) от 20.07.2016
+
+Михаил Поляков - Осень души (2010) [FLAC|Lossless|image + .cue] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_621085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Тамара
+02. Если можешь, прости
+03. Америка
+04. Как мы жили(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:58.09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5741C51A2DBF956AD778B423860D8B56E67A4E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036073   (621009) от 20.07.2016
 
 Андрей Никольский - Букет любви (2005) [APE|Lossless|image + .cue] <Chanson>
@@ -656,99 +749,6 @@ VA - Крёстный отец 4 Альбома (1999 - 2003) [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AADDFC8DDDEC4FFB9634A2BDCBA89FE3F9DB1ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548069   (599743) от 02.05.2022
-
-Михаил Шуфутинский - Свечи (Легенды жанра) (2002) [FLAC|Lossless|tracks + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599743.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Добрый вечер, Господа
-02. Свечи
-03. Бутылка вина
-04. Таганка(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:15:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FA1375FCA5FB52EDF670C0015E40307A5E0DBCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547772   (599726) от 02.05.2022
-
-Юрий Лоза - Любимые Песни (2001) [FLAC|Lossless|tracks + .cue] <Авторская песня, Pop>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_599726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Плот
-02. Я умею мечтать
-03. Пой, моя гитара
-04. Заповедные места(   Читать дальше...   )Жанр: Авторская песня, PopПродолжительность: 00:56:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BCF9E75A3F7B4DF5C9B7DCBB773A5193DBD14BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526598   (596715) от 24.07.2012
-
-Виктор Петлюра - Полная коллекция хитов (2012) [MP3|320 кб/с]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596715.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ШансонПродолжительность: 03:55:24
-
- 01. Рябина
- 02. С той поры
- 03. Свиданка
- 04. Седой
- 05. Тихо падает снег
- 06. Тополиная аллея
- 07. Ты его ждала
- 08. Цыганская(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F8B594AE8DEE087A42E8769F7A5C81BED09D492
 ```
 
 https://mybot314.ru/tekegram_catalog/

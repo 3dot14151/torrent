@@ -1,3 +1,32 @@
+###  Публикация: 1220341   (706093) от 18.04.2018
+
+The Blues Mystery - Soul Memories (2018) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 25 degress below zero (03:47)
+02. Sit down (04:14)
+03. Has humankind lost its soul (04:27)
+04. I'm afraid of the next blues (03:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AB3E761339FD714468EBF06972F49BADD8487F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220623   (702335) от 20.04.2018
 
 VA - Women Of Blues (2018) [MP3|320 Kbps] <Blues>
@@ -716,35 +745,6 @@ Gary Hoey - Neon Highway Blues (2019) [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:529B8692BF93BB688F66F7F0862D685F4992177C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1223503   (673417) от 05.05.2018
-
-Bill Wyman's Rhythm Kings (Bill Wyman) - Monkey Grip (1974) Rolling Stones Records [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_673417.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bill Wyman, настоящее имя William George Perks - британский бас - гитарист, участник группы Rolling Stones с момента её создания в 1962 до 1993 года. С 1997 года выступает с собственной группой Bill Wyman’s Rhythm Kings. В детстве он пел в церковном хоре, играл на аккордеоне.Купив гитару он решил попробовать себя в группе. Но, слоняясь по дискотекам, приметил, что (   Читать дальше...   )01. I Wanna Get A Gun 5:00
-02. Crazy Woman 2:44
-03. pussy 2:12
-04. Mighty fine time 3:39(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:36:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:937BD2DDA0BCE8C3FDFE8F688E9AC31FA2F22AE1
 ```
 
 https://mybot314.ru/tekegram_catalog/

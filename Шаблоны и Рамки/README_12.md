@@ -1,3 +1,29 @@
+###  Публикация: 1286290   (712590) от 02.03.2019
+
+Шаблоны - Календари и рамки для 8 марта, Влюбленных и Поздравительные [PSD, PNG]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Подборка многослойных PSD шаблонов-рамок для фото от авторов Koaress, lunar.elf, Lady Marisa.Формат: PSD, PNGРазрешение файлов: 2478x3504-4961x3508
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41EF375D3306F796053B43489F496DF93E852D22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025623   (709416) от 12.06.2016
 
 Шаблоны - Creativemarket - 3D Template catalog+PSD [PSD]
@@ -645,32 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9627FC8D6B040BD322DE10524E25D03B982C3D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291438   (670226) от 24.03.2019
-
-Шаблоны - Creative Market - Fold Up Retail Box Packaging Mockup - 3461275 [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Три макета коробки в PSD с высоким разрешением и в каждом по 4 варианта макетов.Формат: PSDРазрешение файлов: 5400x3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7004BC2A40C791156E5A8DB579AA03654BF5C41B
 ```
 
 https://mybot314.ru/tekegram_catalog/

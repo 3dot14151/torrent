@@ -1,3 +1,32 @@
+###  Публикация: 1746061   (45226) от 29.08.2024
+
+Jon Anderson and The Band Geeks - True (2024) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. True Messenger (05:50)
+ 02. Shine On (04:18)
+ 03. Counties And Countries (09:51)
+ 04. Build Me An Ocean (03:19)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99DC921B1C90638FADDC9E9CB9D9EBC336FD03F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747696   (44285) от 07.09.2024
 
 David Gilmour - Luck and Strange (2024) [MP3|320 Kbps] <Progresiv Rock>
@@ -716,35 +745,6 @@ VA - 100 Hits Power Ballads (2016) 5 CD [OGG Vorbis|480 Kbps] <Classic Rock, Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDDCC3F192F3D389EB41D8B3F6739305DC176DD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1786695   (23842) от 22.03.2025
-
-Rush - Rush 50 (2025) Anniversary Super Deluxe [MP3|320 Kbps] <Progressive Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - One Little Victory (Remixed) [00:05:08]
-02 - Cygnus X-1 (Live At Maracana Stadium, Rio de Janeiro, Brazil - 11_23_2002) [00:03:12]
-03 - The Seeker [00:03:24]
-04 - Between The Wheels (Live At Festhalle Frankfurt, Frankfurt, Germany - 9_24_2004) [00:06:17](   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 4 CD,  04:33:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8014F9A89365630C718D48DCF0C564C23188921
 ```
 
 https://mybot314.ru/tekegram_catalog/

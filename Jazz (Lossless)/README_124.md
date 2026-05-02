@@ -1,3 +1,61 @@
+###  Публикация: 1227841   (641079) от 29.05.2018
+
+Harry James & His Orchestra - You'll Never Know (1962 - 1969) 1995, Reader's Digest [FLAC|Lossless|image + .cue] <Swing, Big Band, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You'll Never Know [2:39]
+02. Fly Me to the Moon [2:44]
+03. A Man and a Woman [2:45]
+04. Time After Time [2:11](   Читать дальше...   )Жанр: Swing, Big Band, Easy ListeningПродолжительность: 00:53:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DA1D4531E4495F6552B410D4360FFE155475CDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033221   (640291) от 10.07.2016
+
+Steve Lacy - Sortie + Disposability (1965, 1966) 2010, FreeFactory[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Sortie [10:40]
+ 02.Black Elk [08:19]
+ 03.Helmy [01:37]
+ 04.Fork New York [02:08](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94FEDE1655BC7A386B7FBC6489BC4EB6AB2BCF67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033376   (640289) от 10.07.2016
 
 Carles Denia - El Paradis De Les Paraules (2011) Comboi Records[FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz, Flamenco>
@@ -699,60 +757,6 @@ Dewa Budjana - Mahandini (2018) [FLAC|Lossless|tracks + .cue] <World Fusion, Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0815C6CA68A2614F82BEA491B8BA88F818D9E5A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293331   (637673) от 03.04.2019
-
-Fugu Quintet (Fugu Quartet) - Sisyphus (2016) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Metal, Stoner Doom>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through The Ground (6:58)
-02. Sisyphus (5:20)
-03. Unnamed (6:40)Жанр: Dark Jazz, Post Metal, Stoner DoomПродолжительность: 00:18:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A909C04F4E44DCB6F55A402CA4B1C07725C62C11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1293330   (637672) от 03.04.2019
-
-Fugu Quintet - Circus (2017) Single [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Jazzcore, Experiemental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637672.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Circus (4:53)Жанр: Dark Jazz, Jazzcore, ExperiementalПродолжительность: 00:04:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF1310CBE2E15C189C023E5B36401DB5CED3790
 ```
 
 https://mybot314.ru/tekegram_catalog/

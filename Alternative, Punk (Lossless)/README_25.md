@@ -1,3 +1,61 @@
+###  Публикация: 905650   (648948) от 06.06.2015
+
+Muse - Drones (2015) [FLAC|Lossless]<Alternative rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Inside
+02. Drill Sergeant
+03. Psycho
+04. Mercy(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 00:52:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91540C2E59FC67CA409548956B5250EBC7819030
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1141424   (648368) от 11.06.2017
+
+Rise Against - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Punk Rock,  Melodic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolves (03:38)
+02.House On Fire (03:15)
+03.The Violence (03:49)
+04. Welcome To The Breakdown (03:03)(   Читать дальше...   )Жанр: Punk Rock,  Melodic HardcoreПродолжительность: 00:40:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9D6B73004BB54A64D50268820FEDABEEBB0342F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 679487   (647888) от 14.07.2013
 
 Faith No More - Greatest Hits (2001) [FLAC|Lossless]<Alternative>
@@ -687,64 +745,6 @@ Echobelly - Anarchy and Alchemy (2017) [FLAC|Lossless|tracks] <Alternative Rock,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCBB5067D6AD18AEC2E48C2FA1BC3655AB5B01A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143313   (635255) от 18.06.2017
-
-Apoptygma Berzerk - Rocket Science (2009) [FLAC|Lossless|image + .cue] <Alternative Rock, Electronic Rock, Synthpop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weight Of The World
-02. Apollo (Live On Your TV)
-03. Asleep Or Awake?
-04. Incompatible(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Synthpop, Post-Punk, Futurepop, New WaveПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C82D30A8CC7AFBF139DF5DB2C6498CFE24EA990
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542933   (633825) от 09.04.2022
-
-Ska-P - Live In Woodstock Festival (2016) [FLAC|Lossless|tracks + .cue] <Ska, Ska-punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Intro
-02 Full Gas
-03 Estampida
-04 Niño Soldado(   Читать дальше...   )Жанр: Ska, Ska-punkПродолжительность: 01:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7820DCA04EF34C6E70434360E902E7F1AEA7F47A
 ```
 
 https://mybot314.ru/tekegram_catalog/

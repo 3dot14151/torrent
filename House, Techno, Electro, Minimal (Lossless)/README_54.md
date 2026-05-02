@@ -1,3 +1,32 @@
+###  Публикация: 1838935   (261606) от 25.11.2025
+
+VA - Autum Hits 2025 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DominiNiobe - I'm Not Afraid (4:02)
+02. Kanette - Real Life (5:17)
+03. Gorbunoff - Somebody To Love (2:12)
+04. Nikita Marasey - Lost Tonight (Radio Edit) (2:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E43A7AD956D139A9E4B5DF8E53967F0E500DC67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1838019   (257741) от 20.11.2025
 
 VA - Ibiza Winter Island 2026 (The Melodic Techno Edition) (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno, Progressive House, Melodic House>
@@ -730,34 +759,6 @@ VA - Chill & Dance Hits 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5D0E5C6560DB99F9854241F3C5221C13C4C475E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1467422   (239821) от 03.05.2021
-
-Biodub - Minutenschlaf EP (2012) Tiefenrausch [FLAC|Lossless|WEB-DL|tracks] <Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 7pm September Light (10:36)
- 02. Mangroove (05:41)
- 03. Minutenschlaf (07:48)Жанр: Dub TechnoПродолжительность: 00:24:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE3FE5A21331D8113C15E140CAC96946C5DA0F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

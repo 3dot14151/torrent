@@ -1,3 +1,263 @@
+###  Публикация: 482094   (99354) от 12.04.2012
+
+[Wallpapers] Abstract HD Wallpapers (13.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99354.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F82C30CC46394B3599174B4473BE69E2ADD657FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482105   (99352) от 12.04.2012
+
+Каникулы в Мексике - 2. Выпуск №29 (2012.04.12) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99352.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:420B9B456061DB4CA4FA59C643FCE3275EB0518C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482086   (99350) от 12.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (13.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99350.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C080A7C73CFD22319EBF892132CAB0F7BF06448
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481642   (99343) от 12.04.2012
+
+Side Winder - Faith (2012) [MP3|~245 кб/с (V0)]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99343.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Side Winder - Liliacea 08:11
+ 02 Side Winder - Faith 07:51
+ 03 Side Winder - Homogeny I-Var 07:53
+ 04 Side Winder - Inside LSD 08:28
+ 05 Side Winder & Mayaxperience - The Art Of Flight 06:51
+ 06 Zyce & Flegma - Reanimation (Side Winder Remix) 07:43
+ 07 Sideform - Dropper (Side Winder Remix) 07:44
+ 08 Side Winder - Emotional Endeavour 07:42
+ 09 Side Winder - Plasma Gun 07:28
+ 10 Side Winder - Eyes As Green As The Ocean 04:022012Жанр: Psychedelic / ProgressiveПродолжительность: 01:13:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BEE352DB37A7F2092E66990FFD854E4EF740A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482091   (99342) от 12.04.2012
+
+[Wallpapers] Animals Wallpapers (13.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99342.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3950787873C84FF1C09BF1EE8DF623D8DE76EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482068   (99340) от 12.04.2012
+
+[Wallpapers] HQ Wallpapers by KSV (12.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99340.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C982DA60AD88F1E43C4AC44C9298134B97CB8583
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481751   (99336) от 12.04.2012
+
+Solar Spectrum - Source Energy Creations (2011) [MP3|320 кб/с]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 9th Wave [8:00]
+02. African Star [9:18]
+03. Energetic Particles [8:18]
+04. Super Groover [7:39]
+05. Universe [7:24]
+06. Ola Catuaba [7:41]
+07. Higher Dimensions [8:48]
+08. Deep Connections [9:04]
+09. Stereophonic Senses [8:21]2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:04:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B546A95341D39E5B179F9B93629E598834105F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480498   (99335) от 12.04.2012
+
+Арс Ворошиловский - Паутина (2012) [MP3|320 кб/с]<Rap, Hip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99335.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BAD трип
+02. Выше только небо
+03. Давай еще споем (при уч. Артём Татищевский)
+04. Далеко от дома
+05. Ищу тебя (при уч. Артём Татищевский)
+06. Как на войне
+07. Минувшие дни (при уч. Flexa)
+08. Моя улица
+09. Мусора (при уч. Никита Мутный)
+10. Поэту нужна тишина(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:58:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0800A7C828E83C26AF821CCE18313F4B7BC0FC46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481036   (99333) от 12.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (11.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B5805A0AD4F9F54BC7998DD6D712866D6845E35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 482088   (99330) от 12.04.2012
 
 [Wallpapers] Best HD Wallpapers Pack (13.04.12)
@@ -511,273 +771,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D468344EAB640FDD4C905B8E3C236F533212055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481551   (99277) от 11.04.2012
-
-365ТВ: Рамзес Великий / Ramesses the Great (1996) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рамзес II Великий, был гениальным военачальником, полководцем, не проигравшим ни одного сражения. А в историю вошел под именем "фараон-строитель". Он был отцом более 90 детей, а историки утверждают - он всю жизнь любил только одну женщину Нефертари. Рамзес был жестоким, безжалостным властителем, но именно время его правления называют "Золотым веком Египта".Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F316618C859C78AE6D55E4B5FD2BBC9E35131DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480735   (99275) от 11.04.2012
-
-[Wallpapers] Desktop Wallpapers №17
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99275.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers №17
-Название: Desktop Wallpapers №17
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6267521005DE107F1D8F12E55A7E34D3D842A28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481503   (99271) от 11.04.2012
-
-Hugh Coltman - Stories From The Safe House (2008) [FLAC|Lossless]<Acoustic, Pop Rock, Ballad>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sixteen [03:36]
-02. Voices [03:10]
-03. On My hands [05:17]
-04. Could You Be Trusted [03:51]
-05. Something Wicked This Way Comes [03:25]
-06. Where Did The Day Go [03:48]
-07. Greener Than Blue [03:39]
-08. All The Lovers Come And Go These Days [04:43]
-09. Magpie [03:20]
-10. As The Crow Flies [02:56](   Читать дальше...   )Жанр: Acoustic, Pop Rock, BalladФормат: CD, AlbumПродолжительность: 00:47:21
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 481460   (99269) от 11.04.2012
-
-VA - Trance Maniacs Party: Melody Of Heartbeat #81 (10.04.2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99269.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DNS Project feat. Madelin Zero - Another Day (Markus Schulz Big Room Reconst)
-002. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix)
-003. Full Tilt feat. Deirdre MC Laughlin - Calling My Name (Extended Mix)
-004. Lost Witness vs. Antillas & Dankann feat. Sarah Jane Neild - Chasing Rainbows (Antillas & Dankann Dark Mix)
-005. Justin Dobslaw - Cold Snap (Andrew Rayel Remix)
-006. Roger Shah feat. Inger Hansen - Dance With Me
-007. Cerf, Mitiska & Jaren - Down To You (Pulser Vocal Mix)
-008. The Blizzard & Yuri Kane feat. Relyk - Everything About You
-009. Dennis Sheperd feat. Ana Criado - Fallen Angel (Dennis Sheperd Club Mix)
-010. JIR3H-3 - Fly (Original Mix)(   Читать дальше...   )10.04.2012Жанр: Vocal TranceПродолжительность: 03:25:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CEB73B36D68C727157C57E67842E778D6BB735F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480481   (99255) от 10.04.2012
-
-Sunny Crimea & Physical Illusion - Soulful Nights LP (2012) [MP3|320 кб/с]<Drum & Bass, Soulful>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunny Crimea & Physical Illusion - Soulful Nights (06:51)
-02. Sunny Crimea & Physical Illusion - Your Lovers Tear Across The Kiss (06:31)
-03. Sunny Crimea & Physical Illusion - Too Hot (06:35)
-04. Sunny Crimea - Underneath (06:04)
-05. Physical Illusion - Desperately (07:19)
-06. Physical Illusion - Brilliants (05:28)
-07. Sunny Crimea - Lounge - Lizards (06:00)
-08. Sunny Crimea & Physical Illusion - Fading Shadows (05:51)
-09. Sunny Crimea & Physical Illusion - Way Out (06:17)
-10. Sunny Crimea & Physical Illusion - Fading Shadows (Stunna Remix) (06:52)2012Жанр: Drum & Bass, SoulfulПродолжительность: 1:03:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D591D99421B391351D4C4033ACD43F431D45E9B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480765   (99254) от 10.04.2012
-
-Королевство океанов. Между Сушей и Морем / Kingdom of the Oceans. De La Terre A La Mer (2011) BDRip [сезон 1 серия 4]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99254.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм о безграничности и свободе подводного мира, о королевстве живого разумного существа по имени Океан станет еще одной познавательной страницей в жизни нашего космоса.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональный - А. ДасевичПродолжительность: 00:54:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66984FC3C07CF03AE39BB1E153D98776597D3791
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480530   (99247) от 10.04.2012
-
-Магическая книга и дракон / Hexe Lilli, der Drache und das magische Buch (2008) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99247.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лилли была обычной 10-летней девочкой, пока в ее комнате чудесным образом не появилась Волшебная Книга. Хранитель книги — веселый дракончик по имени Гектор — рассказал Лилли, что она избрана преемницей на трон Волшебницы, но прежде девочка должна доказать, что достойна такой чести.
-
-И вот главное испытание — злой маг Хьернимус хочет захватить власть над миром. У Лилли есть 99 часов на то, чтобы расстроить планы злодея. В этом ей поможет ее новый друг Гектор. Вместе им предстоит пройти через множество опасностей и пережить незабываемые приключения!Жанр: Фэнтези, Комедия, СемейныйРежиссер: Штефан РуцовицкиАктеры: Михаэль Миттермейер, Аня Клинг, Пилар Бардем, Мари-Лу Баумер, Леонард Боэ, Ивонн КаттерфельдПеревод: Многоголосый закадровыйЯзык субтитров: русскийПродолжительность: 01:24:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480594   (99244) от 10.04.2012
-
-Поп (2009) BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99244.jpg" />
-</div>
-
-
-###  Подробнее
-
-Июнь 1941 года, маленькое село Тихое в Латвии. Настоятель небольшого прихода отец Александр ведет неспешные беседы с матушкой Алевтиной, занимается обычными мирскими делами. Через два часа он закончит воскресную службу. Через два дня в село войдут немцы. Через два месяца в жизни священника Александра Ионина начнется самая важная миссия, в которой не будет громких подвигов и библейских чудес, а главным станет возвращение веры народу. И долг священника перерастет в священный подвиг…Жанр: Драма, ВоенныйРежиссер: Владимир ХотиненкоАктеры: Сергей Маковецкий, Нина Усатова, Лиза Арзамасова, Кирилл Плетнёв, Юрий Цурило, Анатолий Лобоцкий, Виктория Романенко, Степан Морозов, Геннадий Гарбук, Александр ДоронинПродолжительность: 02:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FD4D5B67B78081769B7D533E35BD990406F17A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480156   (99243) от 10.04.2012
-
-[EN] Противник чужеродных / Alien Opponent (2010) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владелица свалки старых автомобилей провинциального городка предлагает награду тому, кто сможет уничтожить пришельца в космическом костюме, который оказался там после крушения космического корабля при неудачной посадке на территории свалки...Жанр: Боевик, ФантастикаРежиссер: Колин ЗэисАктеры: Джереми Лондон, Родди Пайпер и Куил КарвинПеревод: ОтсутствуетПродолжительность: 01:31:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94DC5270F55925B6D8620EF4856F380597218ACB
 ```
 
 https://mybot314.ru/tekegram_catalog/

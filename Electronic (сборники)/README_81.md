@@ -1,3 +1,61 @@
+###  Публикация: 1024499   (716037) от 09.06.2016
+
+VA - Vision Of The Future (Compiled by Breeeze) (2016) [MP3|320 кб/с] <House, Nu-Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alain Chamfort - Paradis (Paradis Reprise) (6:21)
+02. Darius - Espoir (4:02)
+03. Douze - Twilight (Instrumental Mix) (6:14)
+04. Else - 1979 (4:11)(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 00:40:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8279DF0D7E8AB31E06D035C7D2FF9E5A2FFE795A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024594   (715950) от 09.06.2016
+
+VA - Spencer Vocal Trance (2016) [MP3|320 кб/с] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715950.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robbie Rivera feat. Blake Lewis - All We Are (Marco V Remix)
+002. David Tort feat. Dirty Vegas - Safe From Harm (Original Mix)
+003. Matt Darey feat. Kate Louise Smith - See The Sun (Original Mix)
+004. Christian Burns feat. Paul Oakenfold & Jes - As We Collide (Jesse Voorn Remix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 11:57:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:289D20A850D6F94DA1A38495F83D247B9B6ED7B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219296   (715843) от 13.04.2018
 
 VA - Melodious Chill Vol.1 (2018) [MP3|320 Kbps] <Chillout, Lounge>
@@ -689,64 +747,6 @@ VA - Trance Traveling 88 (Mixed by VNP) (2017) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:078A586C080DAD1D1DF698ED177E38E448A2EB3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130817   (712467) от 03.05.2017
-
-VA - 100 Party Play The Music Hits (2017) [MP3|320 Kbps] <Funky, Groove, Jackin, Progressive, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712467.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stella Grundy Feat. Jah Wobble - Supersize (Jose Jimenez Clean Clean) 04:06
-02. Luca Debonaire - Bass Is Kickin (Original Mix) 05:42
-03. Mikah Feat. R.E.M. - Lost Religions (Original Mix) 06:06
-04. Dompe Agent - Shake (Original Mix) 07:15(   Читать дальше...   )Жанр: Funky, Groove, Jackin, Progressive, Future HouseПродолжительность: 08:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EFF5A1A05C7F7123403E71227CDC5B3EDCAE3F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1025194   (712292) от 11.06.2016
-
-VA - Fitness Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enrico Donner - Through Your Eyes
-02. Cane Garden Quartet - Love Goddess
-03. Don Gorda Project - Um Momeno
-04. Enrico Donner - Yearning for More(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBB9447D9A18ED2358C86E13DF102C41A227844
 ```
 
 https://mybot314.ru/tekegram_catalog/

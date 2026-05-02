@@ -1,3 +1,61 @@
+###  Публикация: 1287910   (699863) от 09.03.2019
+
+VA - Metasphere: The Sound Of Psychedelic Trance (2019) [MP3|320 Kbps] <Psychedelic, Psy Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699863.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kliment - Metasphere
+002. Altered State - Final Boss
+003. Mental Broadcast - That Moment (Original Mix)
+004. Sixsense - Locked In(   Читать дальше...   )Жанр: Psychedelic, Psy TranceПродолжительность: 12:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54F584CD3C37431ADBF4D41F7A79E2CC0C4B85C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287942   (699772) от 09.03.2019
+
+VA - Night In The Tropics (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_699772.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Anthony Yarranton - Meridian
+002. Michael Hooker - Melindas Secrets (Original Mix)
+003. Moscoman - Song for Bourdain
+004. DeeJay PARTYman - U.F.O. (Radio Edit)(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 10:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DE45A1B5388750F366702CC3BDC3155AC2FD8F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287964   (699770) от 09.03.2019
 
 VA - Techno House: Fashionable Music (2019) [MP3|320 Kbps] <Techno, Tech House, Electro>
@@ -686,64 +744,6 @@ VA - The Beauty Trance (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B31C2B2D0B1DA113A1C2F8E73368C6B4DCF6C161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133117   (696780) от 11.05.2017
-
-VA - Kiss FM TOP 40: Май (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Platon feat. Joolay - Last (Radio Edit)  3:32
-02.  Ed Sheeran - Shape Of You (Holderz Remix)  4:07
-03.  Armin van Buuren & Garibay feat. Olaf Blackwood - I Need You (Extended Club Mix)  5:30
-04.  Raving George - You're Mine (DJ Antonio & Astero Club Remix)  4:43(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D9900C4ED12DEA324452E5378E08AE52770B69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133216   (696779) от 11.05.2017
-
-VA - Best Chillout Vol.29 (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696779.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. AK - Memories (Original mix) 3:17
-002. Alex Greenhouse, Julia Cage - I Don't Know  (Chillout Mix) 3:45
-003. AnimoEx - Depth 6:07
-004. Antonio - Emotion (ft. Charles) (Endless R Remix) 3:36(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 07:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:659275FAFBDCE6C18EAF37296535300D5EBC7B9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

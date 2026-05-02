@@ -1,3 +1,206 @@
+###  Публикация: 366331   (913486) от 17.03.2020
+
+Era - The Essential (2010) [FLAC|Lossless|tracks + .cue] <Enigmatic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ameno (UK Remix) (4:05)
+02. Reborn (5:30)
+03. Hymne (4:56)
+04. Prayers (4:19)(   Читать дальше...   )Жанр: Enigmatic, New Age, Electronic, ClassicalПродолжительность: 01:05:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65CA04F7357247B88F06FCE1C6DEFF8772EFCCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 989095   (913176) от 24.02.2016
+
+Enya - Best Hits 1988-1994 (1996) Compilation, Unofficial Release [FLAC|Lossless|image + .cue] <New Age, Modern Classical, Synth-pop>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	Orinoco Flow 	04:27
+02. 	Watermark 	02:26
+03. 	Evening Falls... 	03:50
+04. 	Exile 	04:22(   Читать дальше...   )Жанр: New Age, Modern Classical, Synth-popПродолжительность: 01:12:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:149B07EAF96351542E643E349A2D0D41BFD816B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097399   (912380) от 28.01.2017
+
+Amaste - Spirit of Tibet (2015) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodhi Tree
+02. Sister Moon
+03. Lord Buddha
+04. Prayer to the Gyalwa Karmapa(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A89E0B165CD10BB5AB11804573AB418F5B5FE7B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097531   (912054) от 28.01.2017
+
+Jamie Dupuis - Tonalism (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912054.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Lost Forest  (03:49) 
+02|  Breathe  (03:38) 
+03|  Street Buskin (Introduction)  (01:23) 
+04|  Street Buskin  (02:59) (   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 01:17:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A70690505EF0A1A79E682F6DD28E7A219D1415A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990516   (912004) от 25.02.2016
+
+Guy Sweens - Pathways (2016) [MP3|320 кб/с] <New Age, Ethnic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912004.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pathway to the Past
+02. Celebrating Ancient Times
+03. Dance of the Spirits
+04. Festival at the Castle(   Читать дальше...   )Жанр: New Age, EthnicПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6203A7B3BC044442D6B7002EE2F6E84D83763BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990387   (911758) от 25.02.2016
+
+Medwyn Goodall - The Portal (2016) [MP3|320 кб/с] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Portal, Pt. 1
+02. Orbit
+03. A New Paradigm
+04. The Portal, Pt. 2(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1622B13A3207E4DC1298311357E5284ADE86509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990130   (911723) от 25.02.2016
+
+КичКок - Три Товарища (2009) 3CD [FLAC|Lossless|tracks + .cue] <Mash up>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911723.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Один Dj - хорошо, а три - еще лучше!» - решили 3 давних друга, Георгий Петрушин, Дмитрий Ашман и Сергей Минаев, 24 апреля 2009 встав за диджейский пульт. Результатом работы этого трио стал диск с любимой музыкой в стиле mash up. Похоже, именно любовь к хорошей музыке объединяет 3 товарищей: Георгия Петрушина – модного клубного промоутера, организатора самых ярких (   Читать дальше...   )01. Elvis Presley vs Junkie XL - A Little Less Conversation (2:18)
+02. Goran Bregovic - Mesecina (1:00)
+03. Manu Chao - Me Gustas Tu (3:02)
+04. Madness - One Step Beyond (1:48)(   Читать дальше...   )Жанр: Mash upПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C896DA66C42CA7505DD3701D0823AD41B0822C59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990796   (909762) от 26.02.2016
 
 Paul Sills - Devas 2 - Ocean Spirits (2016) [MP3|320 кб/с] <New Age, Instrumental>
@@ -543,209 +746,6 @@ Henri Seroka & Ralph Benatar - Akhnaton Pharaoh (Myths And Legends) (1997) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A2AA8688D5B4791A57CF38ECEBBFAC65B05A99B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369060   (905386) от 22.03.2020
-
-Leonard Cohen - The Future (1992) [FLAC|Lossless]<Contemporary folk, Soft rock, Singer/Songwriter>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905386.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.   The Future   (6:43)
-02.   Waiting for the Miracle   (7:43)
-03.   Be for Real   (4:32)
-04.   Closing Time   (6:01)(   Читать дальше...   )Жанр: Contemporary folk, Soft rock, Singer/SongwriterПродолжительность: 00:59:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6281AA7D7C7CC9C8FE2BDE851CEB999416D0E43D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368373   (905251) от 22.03.2020
-
-Apache Dream & Enrique Camac - Native American Music (2012) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axtu Leman Sumix
-02. Yhea Noha
-03. Love Mountain
-04. Dawa (the Cradlesong)(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 01:04:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07E2BD21E250C30700DC6DF4634D1A01F16368D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369055   (905095) от 22.03.2020
-
-VA - Kontor Top Of The Clubs: Electric 80s Vol.2 (2020) [MP3|320 Kbps] <Pop, Electronic, Dance>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphaville - Sounds Like A Melody 4:46
-02. Tears For Fears - Shout (U.S. Single Version) 4:54
-03. Howard Jones - What Is Love 3:38
-04. Bananarama - Cruel Summer 3:35(   Читать дальше...   )Жанр: Pop, Electronic, DanceПродолжительность: 07:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4A390B13CE43E82BBA18B8994AE8A5228B847FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368584   (905075) от 22.03.2020
-
-Various - Dali Stereo Demonstration CD (2002) [FLAC|Lossless|image + .cue] <Jazz, Pop, Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Henry Mancini - Pink Panther
-02. Nils Lofgren - Keith Don't Go
-03. Hugh Masekela - Stimela
-04. Ben Webster - Gentle Ben(   Читать дальше...   )Жанр: Jazz, Pop, RockПродолжительность: 01:19:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DABF018BC7AAA75901473E7649435791627E589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099102   (904879) от 01.02.2017
-
-David Arnold & Michael Price - Sherlock  - The Final Problem (2017) OST Sherlock season 4 [FLAC|Lossless|tracks] <OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Stranger [02:39]
-02. 59 Missed Calls [01:53]
-03. Murder This Time [04:01]
-04. Absolute Trust [04:44](   Читать дальше...   )Жанр: OSTПродолжительность: 00:34:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D2D0FDCF673D82A6E31FDB6140D86AFF29405B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 44058   (904665) от 22.03.2020
-
-Jean Michel Jarre - Zoolook (1984) [FLAC|Lossless|tracks + .cue] <Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904665.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethnicolor (11:38)
-02. Diva (7:31)
-03. Zoolookologie (Remix) (3:43)
-04. Woolloomooloo (3:18)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEA1AB138C2085D6C486AAA039662D97A8C71698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991907   (904357) от 29.02.2016
-
-Timothy Wenzel - Distant Horseman (2016) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904357.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Bend in the River (feat. Josie Quick)
-02. Distant Horseman (feat. Josie Quick)
-03. Turn and Walk Away
-04. A Night so Cold (feat. Josie Quick)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63A0DE84BEFE8BB213BC2C250E539F26A3FF090
 ```
 
 https://mybot314.ru/tekegram_catalog/

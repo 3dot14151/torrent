@@ -1,3 +1,90 @@
+###  Публикация: 915429   (592205) от 05.07.2015
+
+Metallica - Francais Pour Une Nuit (2009) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592205.jpg" />
+</div>
+
+
+###  Подробнее
+
+7 июля 2009 года Metallica выступила на одной из самых запоминающихся концертных площадок в мире - в старом амфитеатре "Arenes de Nimes"древнем амфитеатре во французском городе Ним, который построили еще римляне и который считается одной из самых любопытных концертных площадок в мире. В результате получился "Francais Pour Une Nuit" (название переводится (   Читать дальше...   )01. Blackened
+02. Creeping Death
+03. Fuel
+04. Harvester Of Sorrow(   Читать дальше...   )Жанр: Hard Rock, Metal, ThrashПродолжительность: 02:12:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3D3D89852D34F3CCEA5014EB49984ED400E3EE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 807702   (590543) от 26.07.2014
+
+Paul McCartney and Wings - Rockshow (1980/2013) BDRip [720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_590543.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 1975 и 1976 годах Paul McCartney и Wings совершили эпическое мировое турне, наиболее масштабное из всех, что они делали как группа когда-либо. Из этих двух легендарных туров и вышел тройной концертный альбом WINGS OVER AMERICA и фльм-концерт Rockshow.01. Venus and Mars
+02. Rock Show
+03. Jet
+04. Let Me Roll It(   Читать дальше...   )Жанр: RockПродолжительность: 02:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA249538E5CF6C56405C68A9558DE6EC0FC01A97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 916507   (589580) от 11.07.2015
+
+Robbie Robertson Music For The Native Americans Live (1995) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_589580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Музыка NATIVE AMERICANS  на выступлении в The Red Road Ensemble с группой североамериканских аборигенов. Первоначально разработанный в качестве фона на документальном TBS, Робертсон вернулся  к своим корням, смешивая традиционные ритмы коренных со звуком фолк и кантри. Звукозаписывающие компании думали, что это слишком "нетрадиционные" для основного радио (   Читать дальше...   )01 -  Ghost Dance (W/ Red Road Ensemble)
+02 -  Mahk Jchi (W/ Ulali)
+03 -  Golden Feather (W/ Red Road Ensemble)
+04 -  Eagle Dance (American Indian Dance Theater)Производство: США, The Red Road EnsembleЖанр: Native American, FolkРежиссер: The Red Road EnsembleАктеры: Robbie Robertson, Pura Fe Crescioni, Soni Moreno, Jennifer E Kreisberg, Laura Satterfield, Priscilla Coolidge, Rita Coolidge....Продолжительность: 00:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14AA2CECFA94FB8725DC0737A497C60B241F094D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 917649   (589019) от 12.07.2015
 
 Kiss - Live In Nurburgring (2010/2012) BDRip [H.264/720p]
@@ -659,96 +746,6 @@ Status Quo - Back2SQ1 - The Frantic Four Reunion, Live at Wembley Arena (2013) B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F478E4C3ECC8A7C83C5EEF1BF6E08C350D39DB80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528533   (572886) от 28.07.2012
-
-Liquid Tension Experiment: Live in L.A. (2008) BDRip 720p
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_572886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Официальный бутлег группы Dream Theater под названием1. Acid Rain (9:25)
-2. Kindred Spirits (8:00)
-3. Biaxident (7:39)
-4. Freedom of Speech (9:00)
-5. Improv Jam #1 (8:10)
-6. Another Dimension (10:51)
-7. State of Grace (6:20)
-8. Universal Mind (9:36)
-9. When the Water Breaks (16:49)
-10. Improv Jam #2 (11:31)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalАктеры: John Petrucci (guitars) Mike Portnoy (drums) Tony Levin (bass, Chapman stick) Jordan Rudess (keyboard)Перевод: ОтсутствуетПродолжительность: 02:16:06
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043276   (571887) от 16.08.2016
-
-The Rolling Stones - Totally Stripped (1995) Blu-ray [H.264/1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571887.jpg" />
-</div>
-
-
-###  Подробнее
-
-Третьего июня на Eagle Rock Entertainment состоялся релиз THE ROLLING STONES "Totally Stripped" - сборника студийных сессий из альбома "Stripped" и концертных вариантов различных композиций. Релиз доступен на DVD или SD Blu-ray с бонусным документальном фильмом, на DVD/CD, на DVD/LP и на CD/2LP с записью концертных выступлений. Лимитированное (   Читать дальше...   )Жанр: Rock, Blues Rock, Rock & Roll, Hard Rock, Psychedelic/Garage, British BluesЯзык субтитров: Английский, Немецкий, Французский, ПортугальскийПродолжительность: 01:31:17,  01:38:56, 02:04:44, 02:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5FFA9CDE736B8911758507EB933B260893ACF993
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 689057   (571607) от 14.08.2013
-
-Aerosmith - Rock For The Rising Sun (2013) BDRemux [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571607.jpg" />
-</div>
-
-
-###  Подробнее
-
-В марте 2011 года в Японии произошло ужасное землетрясением и чудовищное цунами, что повлекло за собой крупнейшую аварию на атомной станции Фукусима. Осенью 2011 года, несмотря ни на что, Aerosmith совершил тур в Японию, страну с которой они всегда имели хорошие отношения. Этот фильм - концерт объединяет музыкальные треки с закулисными кадрами которые порой очень (   Читать дальше...   )01. Draw the Line
-02. Love in an Elevator
-03. Livin' on the Edge
-04. Hangman Jury(   Читать дальше...   )Производство: USA / Eagle Rock EntertainmentЖанр: Hard RockСубтитры: Английские, немецкие, испанские, французские, итальянские, датские, португальскиеФормат: MKVПродолжительность: 01:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6C3EAFF105BB2C7F3815EC7EE9C204109ADCAB0
 ```
 
 https://mybot314.ru/tekegram_catalog/

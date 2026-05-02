@@ -1,3 +1,119 @@
+###  Публикация: 1069882   (371535) от 05.11.2016
+
+The Quireboys - Bitter Sweet & Twisted & Live (1993) [FLAC|Lossless|image + .cue] <Hard rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hey You
+02. Sex Party
+03. Whippin' Boy (Live At The Town & Country Club, London)
+04. Sweet Mary Ann(   Читать дальше...   )Жанр: Hard rock, GlamПродолжительность: 01:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4D8056EDF1CCDED89AB9639C78E9699028718F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069924   (371410) от 05.11.2016
+
+The Quireboys - A Bit Of What You Fancy & Bitter Sweet And Twisted (1997) [FLAC|Lossless|image + .cue] <Hard rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tramps And Thieves
+02. White Trash Blues
+03. Can't Park Here
+04. King Of New York(   Читать дальше...   )Жанр: Hard rock, GlamПродолжительность: 02:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED64C87CCD58965C2467AE18F165D289981AA40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416206   (369672) от 15.10.2020
+
+Platinum Overdose - Murder In High Heels (2019) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretty & Punk
+02. Rise Up
+03. Need Your Love
+04. Red Light Rhythm(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:534CB6F787FD672D4DD1C6BFA95A2D260C6AFB02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1416122   (369663) от 15.10.2020
+
+Outlasted - Waiting For Daybreak (2019) Limited Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Because Of You
+02. Time Menda A Broken Heart
+03. She's The One
+04. Lighthouse(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:46:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A72DCD6A84D77DAC0D15A99411900B171D4E88B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1255052   (368301) от 16.10.2018
 
 Light Of Darkness - Light Of Darkness (1971 | 1992) [FLAC|Lossless|image + .cue] <Krautrock, Psychedelic Rock>
@@ -635,128 +751,6 @@ Uriah Heep - Living The Dream (2018) Japan [WavPack|Lossless|image + .cue] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16E916C0BE4B4E9BC52EC7405B430DC41FC98011
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577250   (358216) от 19.11.2012
-
-Skansis - Take Your Chance (2007) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_358216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Is That Enough
-02. Will You Be There
-03. All I Care
-04. Changed My Mind
-05. Justice
-06. Dangermind
-07. Take Your Chance
-08. Never Let You Go
-09. Return Today
-10. Where Nobody Cries(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577304   (357172) от 18.09.2022
-
-Palace - One 4 The Road (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fifteen Minutes (3:44)
-02. Westbound (4:13)
-03. Too Old For This (4:11)
-04. Money Can Kill (3:06)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:43:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3655E9B3B05E2B3B100E5A520FCDA2D05C0FC396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071773   (357126) от 11.11.2016
-
-Graham Bonnet Band - The Book (2016) 2CD [FLAC|Lossless|image + .cue] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Into The Night 04:29
-02. Welcome To My Home 04:47
-03. Earth's Child (I Am Your Son) 04:07
-04. Rider 03:44(   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:55:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFFD537C64DA3913DED9DFC085CF137ACC94DA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577298   (357042) от 18.09.2022
-
-Dreamtide - Drama Dust Dream (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357042.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stop Being Deep (4:23)
-02. Spin (5:32)
-03. Around (5:08)
-04. Ni Dos Ni Agua (2:47)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43168051FB153127D82EB193D3429ABBF6B2821F
 ```
 
 https://mybot314.ru/tekegram_catalog/

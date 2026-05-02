@@ -1,3 +1,61 @@
+###  Публикация: 1754780   (103684) от 12.10.2024
+
+VA - Summer Bossa Nova (Relaxing Brazilian Jazz Bossa) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soulstance - Summer Memories (4:16)
+02. Lo Greco Bros - Borboleta da Cidade (4:15)
+03. Giuseppe Milici - Passos De Esperança (3:15)
+04. DJ Rodriguez - Nao Para (5:34)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890308A708D5A34165B0923347262FC64CFDE004
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1754823   (103662) от 12.10.2024
+
+Ted Heath & His Music - Listen To My Music (2003) Living Era [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opus 1 [2:50]
+02. East of the Sun [3:23]
+03. Bakerloo Non-Stop [2:48]
+04. Donegal Cradle Song [2:35](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44652EC3936A741ADBA5D1B9CACB9C52FECD3179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1754748   (103661) от 12.10.2024
 
 VA - Acid Jazz Today 4 (Chapter Four) (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
@@ -687,64 +745,6 @@ Freddie Hubbard - Ride Like The Wind (1981) 2014, Warner [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2B2D1A32EF98ABF5BA691B9F8461183F025B0BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756262   (103502) от 20.10.2024
-
-The Art Farmer Quartet - To Sweden With Love (1964) 2013, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Va de du? [5:24]
-02. De salde sina hemman [6:13]
-03. Den motstravige brudgummen [5:53]
-04. Och hor du unga Dora [5:51](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832169EA9E7B1EC7CE4FDEB0337B9CC324046C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756886   (103483) от 24.10.2024
-
-VA - Jazz For Halloween (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philly Joe Jones Sextet - Blues For Dracula (8:15)
-02. Louis Armstrong - The Skeleton In The Closet (Single Version) (3:11)
-03. Vince Guaraldi - The Great Pumpkin Waltz (Reprise) (2:40)
-04. Ornette Coleman - The Disguise (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAD6B5E7EC67FDEDF0ED7FF09ADA358C117ED31
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1227572   (646830) от 26.05.2018
+
+VA - German Top 50 Official Dance Charts 25.05.2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Calvin Harris, Dua Lipa - One Kiss
+02. Fatboy Slim - Right Here, Right Now (CamelPhat Radio Edit)
+03. David Guetta, Sia - Flames
+04. Ofenbach, Lack Of Afro, Herbal T, Wax - PARTY (feat. Wax and Herbal T)Жанр: DanceПродолжительность: 02:44:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F490D8AA231836D70CCD165C5102D15FCF38B38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1541114   (646654) от 02.04.2022
+
+VA - Chill Hits (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646654.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Tinlicker, Helsloot - Because You Move Me (3:27)
+002. MAFQEES - Sorry (2:42)
+003. Jules Kyng - You're Still The One (2:34)
+004. Able Faces - 3AM (2:32)(   Читать дальше...   )Жанр: PopПродолжительность: 05:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99D07E08DBA0853BA32FEB5E20A9B1D77F243F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1227380   (646583) от 26.05.2018
+
+VA - Зарубежные Хиты-Май 2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646583.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 30 Seconds To Mars - Dangerous Night
+002. Akcent feat. Reea - Deep In Your Eyes
+003. Akcent feat. Reea - Stole My Heart
+004. Andreas Riskykidd feat. Free - Selena(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:40:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEB8C69F87E13D4ACE52C5F7A30C3FD54247931F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292274   (646548) от 29.03.2019
+
+VA - 80s Music Hits (2019) [MP3|320 Kbps] <Disco, Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_646548.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Patrick Cowley - Megatron Man
+002. Oscar - It's My Life
+003. London Boys - London Nights
+004. Latin Lover - Laser Light(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 13:15:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B5C267BC671795B234827489FAE2A9CA920643C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032217   (646162) от 07.07.2016
 
 VA - Зарубежная Дискотека ХХ Века - 74 (2016) [MP3|320 Kbps]<Pop, Disco, Italo disco>
@@ -671,128 +787,6 @@ VA - Летний Хитовый Бум (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68A839C055457F6D96D01075BE67FB9FBAE55027
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 518157   (643505) от 03.07.2012
-
-VA - Звездные хиты от Europa plus (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643505.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Лавика - Все В Моей Душе (3:40)
-2. Lmfao Feat. Lauren Bennett & Goon Rock - Party Rock Anthem (4:33)
-3. Madonna - Masterpiece (4:01)
-4. Женя Вилль - Ты Для Меня (4:11)
-5. The Cats - Пополам (4:02)
-6. Анастасия Приходько - Романс (3:10)
-7. Елена Терлеева - Просто (5:20)
-8. 140 Ударов В Минуту - На Расстояни Дыхания (Light) (3:42)
-9. Cher - Strong Enough (Dj Ozeroff & Dj Sky Feat. Lebedev Radio Remix) (3:20)
-10. Диана Гурцкая - Забываю Тебя (3:46)Жанр: PopПродолжительность: 06:24:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB76FA309D663DA702DF7E5F165AA4B46CF67924
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906514   (643406) от 09.06.2015
-
-Kylie Minogue - Super Hits Collection (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cant Get You Out Of My Head
-02. Spinning Around
-03. I Should Be So Lucky
-04. Love At First Sight(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA4CD021E43388FF5C95B838720929059F763F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292845   (643303) от 31.03.2019
-
-VA - Top 50 Party Schlager Charts 01.04.2019 (2019) [MP3|320 Kbps] <Pop, Schlager>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643303.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andrea Berg - Mosaik
-02. Kerstin Ott - Regenbogenfarben
-03. Maite Kelly - Heute Nacht für immer
-04. Roland Kaiser - Stark(   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 03:00:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F539AB26A3921B207B2FE4477C91AE05AB1BF57F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292763   (643293) от 31.03.2019
-
-VA - Stars Dance 2 (2018) [MP3|320 Kbps] <Pop, Dance, Euro>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunset Neon - Kiss (3:10)
-02. Turbotronic - Disco Night (Original Mix) (3:52)
-03. David Guetta feat. Jess Glynne & Stefflon Don - She Knows How To Love Me (3:02)
-04. Sultan + Shepard feat. Nadia Ali & Iro - Almost Home (3:39)(   Читать дальше...   )Жанр: Pop, Dance, Euro-HouseПродолжительность: 02:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA5E5C9CE79EA527A8872D84558D9098656D29D
 ```
 
 https://mybot314.ru/tekegram_catalog/

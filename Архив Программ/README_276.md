@@ -1,3 +1,29 @@
+###  Публикация: 1096257   (920775) от 23.01.2017
+
+USDownloader 1.3.5.9 Portable (16.01.2017) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920775.jpg" />
+</div>
+
+
+###  Подробнее
+
+Universal Share Downloader - это программа для скачивания файлов. В первую очередь оптимизирована под скачивание (в том числе полностью автоматическое) с различных файлообменных серверов типа Deposit и прочих, сайтов с видео YouTube.com, RuTube.com и прочих. Universal Share Downloader поддерживает более 120! Вам достаточно добавить в программу ссылки, нажать старт (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C3FAB77AFC690DD3D36853937C1CEFCC17E044B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1096253   (920765) от 23.01.2017
 
 Wise Disk Cleaner 9.42.656 + Portable [Multi/Ru]
@@ -642,32 +668,6 @@ Balabolka 2.15.0.735 + Portable + Skins [Multi/Ru]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F0621ADFD6E98F4038DA6841ADD77876381A908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988726   (920430) от 20.02.2016
-
-Adguard 6.0.194.1008 Beta [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adguard - одно из известных приложений разработчика программных продуктов компании Инсофт, предназначенное для блокирования рекламных баннеров и всплывающих окон при работе в сети Интернет. Данная утилита поддерживает фильтрацию при работе с такими браузерами, как Internet Explorer, Google Chrome, Mozilla Firefox, Safari, Opera, Maxthon, Avant Browser, Netscape Navigator, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798FA2C836A95F9ADA623CBBC0CBD653DE7391C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

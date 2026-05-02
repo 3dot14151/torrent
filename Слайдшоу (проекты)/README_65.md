@@ -1,3 +1,29 @@
+###  Публикация: 931612   (511751) от 26.08.2015
+
+Проекты - Pond5 - Dynamic Video Opener [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511751.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11B693F62ECD87ED0B57C1BE935983C6BE94CB3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 931553   (511745) от 26.08.2015
 
 Проекты - VideoHive - Photo Postcards [AEP]
@@ -644,32 +670,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78FB192DCEE350C58D48ED4D16D8E202647BF76A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316858   (503961) от 28.07.2019
-
-Проекты - VideoHive - History Glitchy Opener - 22589536 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503961.jpg" />
-</div>
-
-
-###  Подробнее
-
-History Glitchy Opener - это шаблон кинематографического качества с эффектом цифровых помех. Шаблон можно использовать как угодно... Всё зависит от Вас!... Дерзайте!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A32C3BC1C87716F80D1528237443B64E8EA664
 ```
 
 https://mybot314.ru/tekegram_catalog/

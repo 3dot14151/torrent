@@ -1,3 +1,119 @@
+###  Публикация: 1702292   (115857) от 24.02.2024
+
+Rob Tognoni - 17 Albums (1995 - 2020) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115857.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rob Tognoni играет на сценах по всему миру в течение последних 40 лет. Он выступал на разогреве у великих: Roy Buchanan, Stevie Ray Vaughan's mentor Lonnie Mack, Joe Walsh из The Eagles, делил сцену с Peter Green, Sting, ZZ Top, Bo Diddley. Он представлял Австралию на королевских свадебных торжествах принца Фредерика и принцессы Марии Датских, выступал на чемпионате (   Читать дальше...   )Список альбомов:
+1995 - Stones And Colours
+1997- Headstrong
+1999 - Live At The TwilightЖанр: Blues RockПродолжительность: 17:04:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:457B648CDE1FE1D3BEC81273162DB56521BCDCB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1702702   (115470) от 26.02.2024
+
+Pascal Geiser - You Can Change Your Hat (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115470.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Found a Love (3:50)
+02. Rub It in (3:27)
+03. Handle with Care (2023 remastered) (3:05)
+04. Rainy Autumnday (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A6359261FC9D5718927148D479D9D6B0208B240
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703324   (115176) от 28.02.2024
+
+Monster Mike Welch - Nothing But Time (2023) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walking to You Baby (5:16)
+02. If I Had Possession Over Judgement Day (3:46)
+03. I've Got Nothing But Time (4:04)
+04. I Me Mine (4:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5152B6C06D85CB199C499D04DC121D5B83C07B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1703425   (115010) от 29.02.2024
+
+Luca Giordano, Victor Puertas, Netto Rockfeller Trio - Night Time Boogie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. West Armitage Shuffle (3:37)
+02. Night Time Boogie (4:18)
+03. I Dont Know (3:55)
+04. Kidman Blues (3:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B0D1AA17F2C4BBFC85A572C984EEB4EBBB3725C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1703420   (115009) от 29.02.2024
 
 Nathan Beretta - Love Taxman (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Samuel Bowen - Closer to the Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B9367FCF5063846065E9ED66A613C5BA46FFFEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706587   (113549) от 13.03.2024
-
-Arms Grace - Summit (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113549.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have You Ever Wondered (4:21)
-02. If I Said (3:53)
-03. Oh Yay, The Blues Has Got Me (3:52)
-04. Don't Give up on Love (5:15)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D4FED416DEA2532E3A6808B1B61637A73E52061
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706610   (113545) от 13.03.2024
-
-Ty Clayton - An Animist Hymnal (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113545.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Invocation (2:54)
-02. No Man's Land (4:28)
-03. Love-Drunk (3:06)
-04. Gunslinger (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A791EA7C066D2441251C3EA59BAA71C6E060A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706603   (113544) от 13.03.2024
-
-Nine Below Zero - Denmark (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Story Of Nathan John (3:40)
-02. What's Going On (3:48)
-03. You Made Your Bed (So You Better Lie In It) (2:12)
-04. Ice Cream Man (3:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B1AE68AF3A4F861F41D2D749BCE935A4A1BD31C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706594   (113541) от 13.03.2024
-
-Cosmic Promise - Navigator (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Navigator (4:07)
-02. C'est La Vie, My Darling (3:16)
-03. Then There Were You (2:50)
-04. Roots (3:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3554E8C34C8D62A46FB6C34360519062ABAA9397
 ```
 
 https://mybot314.ru/tekegram_catalog/

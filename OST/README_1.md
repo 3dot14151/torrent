@@ -1,3 +1,60 @@
+###  Публикация: 978366   (962293) от 24.01.2016
+
+Huey Lewis & The News - The Power of Love / Back to the future (1985) [MP3|320 кб/с] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962293.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power Of Love (Jellybean Remix)
+02. The Power Of Love (Instrumental)
+03. The Power Of Love (Album Version)Жанр: SoundtrackПродолжительность: 00:15:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D874007D18CCA92BD5A450ABAAAFE42681A91D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1360043   (961889) от 14.02.2020
+
+Daniel Pemberton - Birds of Prey / Хищные птицы: Потрясающая история Харли Квинн (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961889.jpg" />
+</div>
+
+
+###  Подробнее
+
+|01:54| 01. Flying High (Birds of Prey)
+|01:32| 02. The Fantabulous Emancipation Explosion
+|03:06| 03. Harley Quinn (Danger Danger)
+|02:16| 04. Birds of Prey(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F40433441F3009E5E9644611739FCDECD7A0A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1360238   (961887) от 14.02.2020
 
 Steve Jablonsky - Bloodshot / Бладшот (Original Motion Picture Score) (2020) [MP3|320 кб/с]<Soundtrack, Score>
@@ -693,64 +750,6 @@ John Powell - The Call of the Wild / Зов предков (Original Motion Pict
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32C901D57BEC474EA9C5CB8BD649F47C7DAF2E5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088737   (948836) от 05.01.2017
-
-NBA 2K17 - Soundtrack (2016) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Party Next Door feat. Drake - Come and See Me (3:56)
-02.Drake - Hype (3:30)
-03.Drake - Pop Style (3:30)
-04.Majid Jordan - Every Step Every Way (3:35)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:33:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B5F112D82B21A6C0A861C92D2AF9E2508299C38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 133766   (948720) от 05.01.2017
-
-Григорий Гладков - Падал прошлогодний снег (Музыка к мультфильму) (1983) [MP3|128 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_948720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тема 1 (01:19)
-02. Тема 2 (02:36)
-03. Тема 3 (02:35)
-04. Тема 4 (01:28)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:15:51
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

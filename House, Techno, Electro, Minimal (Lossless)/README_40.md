@@ -1,3 +1,32 @@
+###  Публикация: 1239734   (535222) от 07.08.2018
+
+Helena Hauff - Qualm (2018) Ninja Tune [FLAC|Lossless|WEB-DL|tracks] <Techno, Electro>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barrow Boot Boys (06:05)
+ 02. Lifestyle Guru (05:43)
+ 03. btdr-revisited (03:30)
+ 04. Entropy Created You And Me (02:43)(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:871D72964FB38C6BA1D92466C544989F54031112
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149772   (534085) от 03.07.2019
 
 The Nautilus Project - Discography 16 Releases (2008-2016) ZeECc, Forest Roots [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Minimal, Drone, Techno>
@@ -718,35 +747,6 @@ VA - 538 Dance Smash 2015 Vol.3 (2015) [FLAC|Lossless]<House, Electro, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2EECCB95FFE93E853B1D005E4967717487C601E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1316013   (508832) от 23.07.2019
-
-VA - Five Years Of Annulled (2019) Annulled Music [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BLNDR - Fluid System (06:03)
- 02. Underjack - Teuthida (08:28)
- 03. Hydrangea - Lines (05:46)
- 04. Von Grall - Falling Bodies (07:12)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:53:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5B73D244E41D00E74D7ACD06B080197F357848E
 ```
 
 https://mybot314.ru/tekegram_catalog/

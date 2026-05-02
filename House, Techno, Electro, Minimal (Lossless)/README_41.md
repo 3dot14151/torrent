@@ -1,3 +1,32 @@
+###  Публикация: 1316013   (508832) от 23.07.2019
+
+VA - Five Years Of Annulled (2019) Annulled Music [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508832.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BLNDR - Fluid System (06:03)
+ 02. Underjack - Teuthida (08:28)
+ 03. Hydrangea - Lines (05:46)
+ 04. Von Grall - Falling Bodies (07:12)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 01:53:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B73D244E41D00E74D7ACD06B080197F357848E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316522   (505975) от 26.07.2019
 
 Pantha Du Prince - Diamond Daze (2003) [FLAC|Lossless|tracks + .cue] <Tech House, Minimal>
@@ -715,32 +744,6 @@ VA - Deep & Melodic Techno #03 - Best of 5 Years (2018) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1768D47711282CF406B44A64FF7C51DCAA02222C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 545769   (482901) от 11.09.2012
-
-VA - Hamburg Elektronisch Vol 1-2: Von House Zu House (2011-2012) [FLAC|Lossless]<Tech House, Deep House, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Tech House, Deep House, TechnoПродолжительность: 02:45:05
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

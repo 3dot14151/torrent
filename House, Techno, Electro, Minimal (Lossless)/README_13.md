@@ -1,3 +1,32 @@
+###  Публикация: 1100537   (899528) от 04.02.2017
+
+VA - Kontor Festival Sounds 2017.01 The Beginning (2017) [FLAC|Lossless|tracks] <House, Trance, Progressive>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Armin van Buuren vs. Vini Vici feat. Hilight Tribe - Great Spirit (Extended Mix)  7:38
+02.  Dimitri Vegas & Like Mike feat. Deb's Daughter vs. Diplo - Hey Baby (Blasterjaxx Remix)  5:40
+03.  Hardwell & W&W - Get Down (Extended Mix)  3:41
+04.  Lost Frequencies - What Is Love 2016 (Dimitri Vegas & Like Mike Extended Remix)  5:00(   Читать дальше...   )Жанр: House, Trance, ProgressiveПродолжительность: 07:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAB9800DFD2E61051E29785E7FF4F41AB7F9741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1370215   (898569) от 26.03.2020
 
 Duckson - Stuff i did last year (2020) [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
@@ -712,35 +741,6 @@ Yagya - Discography 19 Releases (2002-2021) [FLAC|Lossless|tracks+.cue, tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3644A45439399DDF453596981EB6BB7D2F6EED56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103663   (883538) от 13.02.2017
-
-Deep Dish - Junk Science (1998) [APE|Lossless|image + .cue] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883538.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro - Morning Wood
-02. The Future Of The Future (Stay Gold)
-03. Summer's Over
-04. Mohammed Is Jesus...(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:17:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE47D1C246381C1B2E73EF626A831219BA70C6F8
 ```
 
 https://mybot314.ru/tekegram_catalog/

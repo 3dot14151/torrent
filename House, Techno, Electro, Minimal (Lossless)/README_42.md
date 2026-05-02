@@ -1,3 +1,29 @@
+###  Публикация: 545769   (482901) от 11.09.2012
+
+VA - Hamburg Elektronisch Vol 1-2: Von House Zu House (2011-2012) [FLAC|Lossless]<Tech House, Deep House, Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_482901.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech House, Deep House, TechnoПродолжительность: 02:45:05
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1244392   (482171) от 01.09.2018
 
 Arnaud Rebotini - Flowers For Algernon (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Techno>
@@ -715,35 +741,6 @@ Daft Punk - Alive 2007 (2007) [FLAC|Lossless|tracks] <French House, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:051D8597B1E56E1F9255A1C30E887CAB9F8933EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1059118   (462106) от 04.10.2016
-
-VA - Melodica Electronica Vol.1 (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House, Downtempo>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solee & Boss Axis - Still Here (Solee Club Re edit) [08:43]
-02. No Accident In Paradise - Schornstein Milchreis [05:39]
-03. Gareth Bilaney - Undone [03:12]
-04. Reynold - Craft [07:32](   Читать дальше...   )Жанр: Deep House, Tech House, DowntempoПродолжительность: 02:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFE018AB1621EC44685F60787E8521A1FAEBFB20
 ```
 
 https://mybot314.ru/tekegram_catalog/

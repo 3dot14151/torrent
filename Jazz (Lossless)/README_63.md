@@ -1,3 +1,61 @@
+###  Публикация: 1503922   (815969) от 21.10.2021
+
+Norah Jones - I Dream Of Christmas (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas Calling (Jolly Jones)
+02. Christmas Don't Be Late
+03. Christmas Glow
+04. White Christmas(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:107A74024CB6562682D8C370114CE583325B3399
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197409   (815919) от 07.01.2018
+
+Geri Allen - Maroons (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feed The Fire 1 [01:33]
+02. No More Mr. Nice Guy [07:07]
+03. And They Partied [05:33]
+04. Number Four [04:39](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA47B896E9BB418ABC24084D01534583E8E5AE04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197491   (815918) от 07.01.2018
 
 Jim Rotondi - Dark Blue (2016) Smoke Sessions Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
@@ -685,64 +743,6 @@ Eddie Harris Trio - Eddie Who? (1986) Remaster, 2015, Solid Records[FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A8E32D07BBDAB41A7111EBF65462609F6799115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197662   (812140) от 09.01.2018
-
-Yusef Lateef - The Sounds of Yusef (1957) 1996, Original Jazz Classics [WavPack|Lossless|image + .cue] <Hard Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take the 'A' Train [11:15]
-02. Playful Flute [04:19]
-03. Love and Humor [06:13]
-04. Buckingham [05:11](   Читать дальше...   )Жанр: Hard Bop, World FusionПродолжительность: 00:31:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:732FF8ED8E6350D4EFFA390958C079D382957D9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197659   (812139) от 09.01.2018
-
-Rodney Green Quartet - Live At Smalls (2013) SmallsLive [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Percy's Delight [07:49]
-02. Ludus Tonalis [09:37]
-03. Painting In The Dark [07:12]
-04. Camden [07:49](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D7CAA1CA19F7A78EEBD9E7EC4A718DD50C9C454
 ```
 
 https://mybot314.ru/tekegram_catalog/

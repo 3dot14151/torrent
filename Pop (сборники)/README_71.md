@@ -1,3 +1,119 @@
+###  Публикация: 1234523   (565843) от 08.07.2018
+
+DJ KramniK - Collection (2018) [MP3|320 Kbps] <Italo-Disco, Spacesynth>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Love The Italo Disco (3:36)
+02. New Day (Pozitivchik 2) (5:38)
+03. The Paradise (Original Version) (9:33)
+04. Winter Voyage (Radio Version) (6:24)(   Читать дальше...   )Жанр: Italo-Disco, SpacesynthПродолжительность: 04:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8B66CF6DED67CDAA3A2EAFFFC1EC982B404FA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234698   (565821) от 08.07.2018
+
+VA - ЕвроХит Топ 40 Europa Plus 06.07.2018 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dynoro feat. Gigi D'Agostino - In My Mind 3:05
+02. Tim3bomb feat. Tim Schou - Magic 3:33
+03. MARUV & Boosin - Drunk Groove 3:47
+04. Tom Walker - Leave A Light On 3:06(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:21:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD446FFE59F90105C6A8403D680DE172BA3AC12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1044354   (565511) от 20.08.2016
+
+VA - Жаркие Танцы 5 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565511.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Olisha - Так Хочу
+002. Rihanna - Woo
+003. Prospektr - Окна
+004. Andeeno Damassy Feat. Jimmy Dub - Dime Tu(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F80FFB6AC220B814A0BE6353B6B6C463DA47DDD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304258   (564848) от 25.05.2019
+
+VA - Лучшие новинки Мая. Зайцев.нет, но есть MP3 (2019) (Релиз от BiSHkek iNT) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_564848.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Александр Айвазов - Любишь или нет 3:10
+02. Storm DJs & Grishina - На ощупь (Back To USSR Version) 4:56
+03. Klingande feat. Jamie N Commons - By The River (Adam Trigger & Provi Remix) 4:35
+04. Юлия Коган - Танцы на столе 4:31(   Читать дальше...   )Жанр: PopПродолжительность: 04:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9314F3848FFCADBAF067B522086D869219D668C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 923456   (564432) от 31.07.2015
 
 VA - Летний популярный музыкайф. Зарубежный сборник (2015) [MP3|256 кб/с]<Pop>
@@ -641,122 +757,6 @@ VA - Летние новинки интернета 50+50 Август (2016) [M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9F8563DA6B55B229F5D84264C38F2EE68A1C18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045714   (557845) от 24.08.2016
-
-VA - 80's Cardio Workout Playlist Vol.3 (2016) [MP3|112 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557845.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugo Strasser - Letkiss (Letka-Enka)
-02. Chak Berry - Johny Be Good
-03. ELO. - so serios
-04. Creedence clear water reviv al - Have you ever seen the rain(   Читать дальше...   )Жанр: PopПродолжительность: 06:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0663A46047744249C7A7DC3205948A9CB79AD1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045747   (557733) от 24.08.2016
-
-VA - Зарубежная Дискотека Восьмидесятые (2016) [MP3|112~320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557733.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. ABBA  -  Money,Money,Money  3:05
-002. Secret Service  -  Ten O'Clock Postman  3:38
-003. C. C. Catch  -  I Can Lose My Heart Tonight  5:54
-004. Boney M.  -  Daddy Cool  3:27(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 06:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4335193551508ED774632B677F12A55F806600B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045784   (557483) от 24.08.2016
-
-ABBA - The Best Songs (2016) [MP3|320 Kbps] <Pop, Disco, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557483.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dancing Queen  3:51
-02. Take A Chance On Me  4:07
-03. Angel Eyes  4:23
-04. Waterloo  2:47(   Читать дальше...   )Жанр: Pop, Disco, DanceПродолжительность: 01:18:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A390C44AFB900362FC662851923F9A0D6092E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1045573   (557415) от 24.08.2016
-
-VA - Дискотека 80-90 годов по - новому (Зарубежный выпуск - 37 ) (2016) [MP3|192 Kbps] <Pop, Disco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Boys Blue  -  Still In Love (X-Tended UltraTraxx Remix)  9:54
-02. Modern Talking  -  Bells Of Paris (Longer UltraTraxx Mix)  10:35
-03. Blue System  -  Body To Body (UltraTraxx System Mix)  9:25
-04. London Boys  -  Harlem Desire (UltraTraxx Long Version)  11:57(   Читать дальше...   )Жанр: Pop, Disco, EurodanceПродолжительность: 04:53:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2735A21BC83F6E2C72547CF76E868FC72080EF2E
 ```
 
 https://mybot314.ru/tekegram_catalog/

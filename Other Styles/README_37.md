@@ -1,3 +1,205 @@
+###  Публикация: 1116163   (822758) от 20.03.2017
+
+VA - Imaginary Tibetan Journey Music Soothing Atmosphere, Namaste Yoga, Deep Meditation (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ageless Tibetan Temple - Imaginary Tibetan Journey Music
+02. Brain Stimulation Music Collective - Asian Meditation (Cello & Waves)
+03. Reiki Healing Zone - Deep Sleep: Calming Music
+04. Deep Aura Meditation Ambient - Breathing Light(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:49:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50C79BDEA0970731A789B86BC84A45EECA445685
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116615   (822748) от 20.03.2017
+
+Кукуруза - Там, где солнечный свет (1993) [FLAC|Lossless|image + .cue] <Country, Bluegrass>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Old Widow Woman (Traditional) (4:41)
+02. Poor Wayfaring Stranger (Traditional) (3:27)
+03. Ты мне не был чужим / You Were Not A Stranger To Mе (Andrew Shepelev) (3:49)
+04. Coming Back To You (Leonard Cohen) (3:31)(   Читать дальше...   )Жанр: Country, BluegrassПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B516203AC7708EBAE6EDF8F3892B82E96CA2BA10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1381839   (822654) от 09.05.2020
+
+Terry Scott Taylor - Imaginarium - Songs from the Neverhood (2004) 2CD [FLAC|Lossless|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Klaymen Shuffle
+02. Olley Oxen Free
+03. Everybody Way Oh!
+04. Rock And Roll Dixie(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 02:11:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A5E070B9F9ACC7E5824D6EDC8CBFCFC38F7EAFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115379   (822615) от 20.03.2017
+
+Alan Menken & VA - Beauty and the Beast / Красавица и чудовище (Original Motion Picture Soundtrack) (2017) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Menken - Main Title: Prologue (03:02)
+02. Alan Menken - Belle Meets Gaston (00:54)
+03. Alan Menken - Your Mother (02:14)
+04. Alan Menken - The Laverie (01:22)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 02:11:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7627050750363C03F8215CE040F18CA970A11CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1502730   (822568) от 17.10.2021
+
+Jim Brickman - The Ultimate Christmas Playlist (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joy To The Night (3:56)
+02. O Christmas Tree (3:58)
+03. Little Drummer Boy (3:28)
+04. Christmas Time Is HereO Christmas Tree (3:58)(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:57:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5FBC4F99939CEA0B2EE2F6E29C4E0D379D99F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116501   (822476) от 20.03.2017
+
+Болот Байрышев - 2 альбома (2012) [FLAC|Lossless|tracks + .cue] <World Music, Ethno, Throat Singing, Altai Горловое пение>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Алас
+2012 - Ай эскидеЖанр: World Music, Ethno, Throat Singing, Altai Горловое пениеПродолжительность: 01:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6701557CBF61EDA506D0AA3A3A77FFB3B6BFAC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115382   (822475) от 20.03.2017
+
+Alan Menken & VA - Beauty and the Beast / Красавица и чудовище (Original Motion Picture Soundtrack) (2017) Deluxe Edition [FLAC|Lossless|CD|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Menken - Overture (03:06)
+02. Alan Menken - Main Title: Prologue Pt. 1 (00:43)
+03. Audra McDonald - Aria (01:03)
+04. Alan Menken - Main Title: Prologue Pt. 2 (02:22)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 02:11:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32F18EFAF754743095426E6FDD9CED03DB5E05F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116142   (822469) от 20.03.2017
 
 VA - Deep Level Yoga Relaxing Sound of Nature, Oriental Massage Yoga (2017) [MP3|320 Kbps] <New Age>
@@ -542,209 +744,6 @@ Danheim - Runagaldr (2018) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EED4FDDCB6B5B963CDE730DE49785DBE0F212BDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117154   (819093) от 22.03.2017
-
-Canda & Guru Atman - Healing Yoga Mantras (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Feel the Breath (Opening) (2:11)
-02.  Om Ah Hum - Hold My Hand (Vajra Guru Mantra) (7:56)
-03.  Hey Shivaya - Welcome Shiva (Shiva Mantra) (7:41)
-04.  Sarvesham - May We All Feel Free (Shanti Mantra) (7:18)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63E3AD1324026A9D53A447DB5AE11E4B43782B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382604   (818983) от 11.05.2020
-
-Danheim - Hringrás (Hringras) (2019) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vaftrudner (4:17)
-02. Óðinn (Danheim & Gealdýr) (5:34)
-03. Hringrás (5:23)
-04. Lifa & Dauðr (6:07)(   Читать дальше...   )Производство: Danheim Self-releasedЖанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:48:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D04AD5D99AA467D74A0FB23681C6C73F6917A010
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116882   (818944) от 22.03.2017
-
-Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack Album) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818944.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nameless Order (04:27)
-02. Prologue (01:49)
-03. What A Wall (03:46)
-04. The Great Wall (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A77CEE5E7D312409665A64BEF79813F275BADC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116883   (818937) от 22.03.2017
-
-Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack Album) (2017) [FLAC|Lossless|tracks + .cue]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nameless Order (04:27)
-02. Prologue (01:49)
-03. What A Wall (03:46)
-04. The Great Wall (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0760446D40FC873A9383FFB96B580FEF10932A08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197044   (818897) от 05.01.2018
-
-Mezzo Piano - Love Has a Name (2017) [MP3|320 Kbps] <Instrumental, Piano>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818897.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Halls of Heaven
-02. Let Our Faith Become a Mountain
-03. Weight of Heaven
-04. Love Has a Name(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC0564779883251707B7038090C43640A40626AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382495   (818687) от 11.05.2020
-
-Tommy Emmanuel - The Best Of Tommysongs (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Fingerstyle, Acoustic Guitar>
-
->>Other Styles
->>Instrumental (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Road
-02. Song for a Rainy Morning
-03. Angelina
-04. Luttrell(   Читать дальше...   )Жанр: Fingerstyle, Acoustic GuitarПродолжительность: 01:18:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528984AF94D8D24319B8C046CC7B0F68768C8AE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007542   (818019) от 17.04.2016
-
-Monte Wang - The Wandering Accordion (2003) [FLAC|Lossless|tracks] <New Age, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Twilight    01:34
-02. As Dino Saluzzi as Morning    04:46
-03. Macchiato Floating    04:58
-04. The Subway    01:11(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3458B877352BB3B8044DDFF4DAF1F745B0A0A3F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

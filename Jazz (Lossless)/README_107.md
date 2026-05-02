@@ -1,3 +1,61 @@
+###  Публикация: 1133520   (693542) от 13.05.2017
+
+The Dave Pike Quartet - Pike's Peak (1962) 2016, Sony Music [FLAC|Lossless|tracks + .cue] <Latin Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693542.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Not [06:47]
+02. In A Sentimental Mood [06:33]
+03. Vierd Blues [06:00]
+04. Besame Mucho [06:55](   Читать дальше...   )Жанр: Latin Jazz, World FusionПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0F66994BE5FB891AB128418F98C10A8B0BD809A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133656   (693438) от 13.05.2017
+
+Paul Desmond - Desmond Blue (1961, 1962) 2016, Sony Music [FLAC|Lossless|image + .cue] <Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_693438.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Funny Valentine  [03:53]
+02. Desmond Blue  [03:41]
+03. Then I'll Be Tired of You  [04:07]
+04. I've Got You Under My Skin  [04:43](   Читать дальше...   )Жанр: CoolПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:551BE83F7F04ED2C708BE9F6B59157C6A57A53E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133486   (693435) от 13.05.2017
 
 Ragan Whiteside - Treblemaker (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz, Nu Soul>
@@ -687,64 +745,6 @@ Alice Francis - Electric Shock (2017) [FLAC|Lossless|WEB-DL|tracks] <Electro Swi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2B5446180F7D3979AEF9B0D21355C6DCB9A6044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028645   (688949) от 23.06.2016
-
-Cy Touff - His Octet & Quintet (1955) 1998, Pacific Jazz Records[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Keester Parade [07:53]
- 02.TNT [04:58]
- 03.What Am I Here For? [04:25]
- 04.Groover Wailin' [04:14](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:51:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6BD90434153DBE9A9C72EC119F8F75BEEF18BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028428   (688861) от 23.06.2016
-
-Brother Jack McDuff & David Newman - Double Barrelled Soul (1967) Remaster, 2012, Warner[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_688861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.But It's Alright [05:36]
- 02.Sunny [06:41]
- 03.Esperanto [04:54]
- 04.Duffin' 'Round [05:12](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:36:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:162CA29223EB800226F2C4390AEDCD2DB528DA75
 ```
 
 https://mybot314.ru/tekegram_catalog/

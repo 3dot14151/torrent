@@ -1,3 +1,61 @@
+###  Публикация: 1781814   (70139) от 25.02.2025
+
+The Emily Remler Quartet - Take Two (1982) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cannonball [4:55]
+02. In Your Own Sweet Way [4:58]
+03. For Regulars Only [6:48]
+04. Search for Peace [5:23](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:44:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B29C378553B37D2F11466192F8388DA155F2339D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781813   (70138) от 25.02.2025
+
+Bill Evans - Live In Tokyo (1973) 1986, Sony [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70138.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mornin' Glory [5:47]
+02. Up with the Lark [6:47]
+03. Yesterday I Heard the Rain [6:31]
+04. My Romance [8:45](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25DA28BE86651B4BF46F0223FB62552C176B7740
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1781974   (70094) от 26.02.2025
 
 Luiz Bonfa - Amor! (1959) 2001, Collectables [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, Bossa Nova, Guitar Jazz>
@@ -687,64 +745,6 @@ Oscar Peterson Trio - The Complete Tokyo Concert (1964) 2CD, 2008, Jazz Lips [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21CB34BE324A264C4B60988F09DAAA1F07577762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783441   (69798) от 06.03.2025
-
-Art Pepper & George Cables - Tete-A-Tete (1982) 1995, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over the Rainbow [6:51]
-02. Tete-a-Tete [4:33]
-03. Darn That Dream [4:19]
-04. Body and Soul [5:21](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:39:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1EE44DBAD6AB6C2C1FC7009CF0872E025AE97455
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783435   (69797) от 06.03.2025
-
-Les McCann - Never A Dull Moment! (1966, 1967) 3CD, 2023, Resonance Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love for Sale [7:12]
-02. I Can Dig It [8:25]
-03. Doin' That Thing [8:58]
-04. I Am in Love [6:09](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 02:10:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:823B79B8249834B803D0E1EB9936E679DCE37D91
 ```
 
 https://mybot314.ru/tekegram_catalog/

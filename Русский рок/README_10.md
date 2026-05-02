@@ -1,3 +1,119 @@
+###  Публикация: 1469154   (1016606) от 11.05.2021
+
+Формация Лимон - 2 Albums (2019-2021) [MP3|320 Kbps] <Rock, Rap>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016606.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Заклинание [00:04:51]
+02. Все поэты – пи....сы [00:02:37]
+03. Розы [00:05:12]
+04. Комната [00:03:12](   Читать дальше...   )Жанр: Rock, RapПродолжительность: 2CD, 01:23:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A05EEFFF280ED02229C0D7698161B664E5C98FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469829   (1016153) от 14.05.2021
+
+Найк Борзов - В эфире (2021) Live [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016153.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не предел (Live)
+2. Верхом на звезде (Live)
+3. Волны прошлого (Live)
+4. Слышу тьму (Live)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336D618B0F2B80CAD0E5C69D089BE43B07B72B08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469772   (1016098) от 14.05.2021
+
+Колибри - Счастья нет (2021) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016098.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Очумелые глаза
+2. Народная
+3. Физика
+4. Миленький(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:47:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B4003D833BDE319B0BE02959C8D089FE3B4455
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1469769   (1016090) от 14.05.2021
+
+Кирпичи - Старческий маразм (2021) [MP3|320 Kbps] <Alternative, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1016090.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Кирпичи/Ефр - Новенькового
+2. Кирпичи/Александр Ф. Скляр - Учитесь плавать
+3. Кирпичи - Знаешь, кто я?
+4. Кирпичи - 25 лет чистого хейта(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5F27CB447C96A8C3DE1F426297343596C01308C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1469770   (1016075) от 14.05.2021
 
 Бахыт Компот - Алёшенька живой! (2021) [MP3|320 Kbps] <Rock>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7F113A90A8A6F023F61240EF8C97B7595F00FF87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477267   (1011174) от 14.06.2021
-
-Menk - 2 Albums (2019-2021) [MP3|320 Kbps] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Свет [00:00:31]
-02. Глаза [00:07:24]
-03. Блажь [00:06:13]
-04. Тень [00:04:20](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 2CD, 01:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DC61CC83A674B04E6D646E7F83AD5CF44EA6E2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477298   (1011165) от 14.06.2021
-
-Nishubert - Молодости не будет (2021) [MP3|320 Kbps] <Русский пост-панк>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Молодости не будет [00:03:06]
-02 - VHS [00:03:27]
-03 - Площадь [00:03:31]
-04 - Лето прошло [00:04:00](   Читать дальше...   )Жанр: Русский пост-панкПродолжительность: 00:21:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424C7201AAB37589C3E3B25516B8BA8DA888F8C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477311   (1011150) от 14.06.2021
-
-Teach Every Mary - Сотня фунтов за голову Тича (2021) [MP3|320 Kbps] <Heavy Metal, Folk Metal, Pirate Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Баба на корабле [00:03:31]
-02 - Сотня фунтов за голову Тича [00:03:10]
-03 - Слава Безумцам! [00:03:23]
-04 - Королева пиратов [00:03:39](   Читать дальше...   )Жанр: Heavy Metal, Folk Metal, Pirate MetalПродолжительность: 00:31:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F52EDDC4D3ADCC8A6D61EEBAAAAF94C60CB516C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477318   (1011137) от 14.06.2021
-
-Капитан Лис - Портовые Шлюхи, 2CD (2021) [MP3|320 Kbps] <Folk Rock, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Портовые Шлюхи (Rock Edition) [00:02:22]
-02. Нахер Шторм! (Rock Edition) [00:02:08]
-03. Чарка Рома (Rock Edition) [00:02:23]
-04. Горизонт (Rock Edition) [00:02:28](   Читать дальше...   )Жанр: Folk Rock, Folk MetalПродолжительность: 2CD, 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8F79CA5905BDAF162C910A2C645AB63CD26A8EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

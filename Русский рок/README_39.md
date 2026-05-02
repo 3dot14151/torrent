@@ -1,3 +1,119 @@
+###  Публикация: 1219187   (715734) от 13.04.2018
+
+Директор Азовского Моря - Здравствуй И Прощай (2015) [MP3|320 Kbps] <Rockabilly, Rock'n'roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Здравствуй, и прощай! (03:42)
+02. Пилот (04:01)
+03. Лето (03:39)
+04. Не бiда (Егеж) (04:01)(   Читать дальше...   )Жанр: Rockabilly, Rock'n'rollПродолжительность: 00:48:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD53AD6220D583187CFF5E700D09B09287FE3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219301   (715620) от 13.04.2018
+
+НОМ - Я тебя услышал (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715620.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Жили-были
+2. Раньше было лучше
+3. Я тебя услышал
+4. Песня про зайцев(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0BE22FEE1BE5A96D94A40748FB0E6FAA1FCEE5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1286143   (715073) от 01.03.2019
+
+Ромарио - Не ради радио (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_715073.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Не ради радио
+2. Стишок про рифмы
+3. Улетай на юг
+4. Жила-была одна баба(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF1B1C4A49DCEE87EB19CAE55A7AFE9F63A1FD92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219179   (714961) от 13.04.2018
+
+Ленинград - Всякое (2018) EP [MP3|320 Kbps] <Ska, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714961.jpg" />
+</div>
+
+
+###  Подробнее
+
+"В последние годы, если честно, не было ни времени, ни сил на то, чтобы посидеть неделю-другую в студии. И вот, у нас открылась новая реп-точка, что немаловажно в двух шагах от моего нынешнего места проживания, это и поспособствовало записи нескольких необязательных композиций. Наверное, то что получилось можно считать синглом. Сделал, так сказать, себе подарок (   Читать дальше...   )1. Чашечки
+2. С.Ш.
+3. Путин
+4. Эстетика(   Читать дальше...   )Жанр: Ska, RockПродолжительность: 00:21:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74DED0C8DFBDC75D2B5781B503142388DE49B51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1286145   (714917) от 01.03.2019
 
 Jane Air - ДЕТИ АТОМНЫХ СТАНЦИЙ (2019) EP [MP3|320 Kbps] <Alternative>
@@ -622,122 +738,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87593462CD55D7AFE4CF97A3B9FC0F57652F3394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533542   (705345) от 24.02.2022
-
-Коrsика - Мания (2022) [MP3|320 Kbps] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705345.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Алиса, падай
-2. Ангел тьмы
-3. На пороге рая
-4. В игре(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4CB8E4F20A999FA24A5B821844DB0CAE8F7E4B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 916642   (704713) от 07.05.2017
-
-Neutrino, Нейтрон - 7 релизов (2012-2017) [MP3|320 кб/с]<Melodic, Power, Progressive, Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704713.jpg" />
-</div>
-
-
-###  Подробнее
-
-2012 - Осколки Мира
-2013 - Вторжение С Небес
-2014 - Город Желаний
-2017 - Восемь ДнейЖанр: Melodic, Power, Progressive, Industrial, Experimental, Symphonic MetalПродолжительность: 02:46:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0E324876523A2A81763566CD3D9386165E0629C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131800   (704537) от 07.05.2017
-
-Гробовая Доска - Порча (2017) [MP3|320 Kbps] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704537.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Карета Для Скелета
-2. Бык! Чо?
-3. Минздраву Надоест Предупреждать
-4. Передозировка(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:42:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:159041BF68C7D93F05E2E91AC357AD000AF847E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026341   (703719) от 15.06.2016
-
-Catharsis - 20 первых лет. Полное собрание сочинений (2016) [MP3|320 кб/с] <Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703719.jpg" />
-</div>
-
-
-###  Подробнее
-
-Том 1. "Proles Florum" & "Child Ot The Flowers"
-Том 2. "Febris Erotica" & "Dea"
-Том 3. "Имаго"
-Том 4. "Крылья"(   Читать дальше...   )Жанр: Power MetalПродолжительность: 12:14:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2DEB4AB928FC098CCC8E63F40F9B681B0BD4FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

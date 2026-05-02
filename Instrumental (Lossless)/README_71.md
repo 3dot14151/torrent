@@ -1,3 +1,142 @@
+###  Публикация: 398620   (399116) от 14.10.2011
+
+Tom Waits - 11 Japan SHM-CD / Mini LP (1973-1988) [FLAC (image+.cue)|Lossless]<Blues/Jazz/Rock/Cabaret>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 16 Shells From A Thirty-Ought-Six (4:18)
+02. Red Shoes (4:20)
+03. Underground (2:35)
+04. Cold Cold Ground (3:26)
+05. Straight To The Top (2:49)
+06. Yesterday Is Here (2:41)
+07. Way Down The Hole (4:44)
+08. Falling Down (4:16)
+09. Strange Weather (3:36)
+10. Big Black Mariah (2:59)(   Читать дальше...   )Жанр: Blues/Jazz/Rock/CabaretПродолжительность: 09:28:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570847   (389404) от 06.11.2012
+
+Burton Gaar - Fried Grits & Greens (2011) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389404.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fried Grits & Greens
+ 02. Last Train To Memphis
+ 03. Trouble
+ 04. Drowning In the Blues
+ 05. One Step Away
+ 06. Sugarfied
+ 07. Turn Around
+ 08. Wake Up and Watch me Leave
+ 09. So Over You
+ 10. Strung Out On the Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 52:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570863   (389399) от 06.11.2012
+
+Bugs Henderson Group - Backbop (1998) [FLAC|Lossless]<Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389399.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quicksand
+ 02. Ain't Your Daddy's Business
+ 03. I Can't Stand You
+ 04. Love Junkie
+ 05. Theif In The Night
+ 06. Backbop
+ 07. Help Me
+ 08. Rock & Roll Man
+ 09. Audio Liner Notes - Return Of The DreamЖанр: Blues-RockПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 571293   (388273) от 07.11.2012
+
+Bryan Lee - My Lady Don't Love My Lady (2009) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_388273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imitation of Love
+ 02. I Don't Know
+ 03. Three Can Play The Game
+ 04. Early in the Morning
+ 05. Let Me Up I've Had Enough
+ 06. Heartbreaker
+ 07. Too Many Wolves
+ 08. My Lady Don't Love My Lady
+ 09. When I Been Drinking
+ 10. Me And My Music(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:30
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1574096   (387917) от 04.09.2022
 
 Bad Luck Friday - Bad Luck Friday (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Blues Rock>
@@ -654,128 +793,6 @@ Bonnie Raitt - Bonnie Raitt - 24 альбома, 1 Box Set (1971 - 2022) 34 CD [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC42CBCB4EC68F20CBFC3FC06AD84BBA9599BE65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069290   (373992) от 04.11.2016
-
-Bryce Janey - Delta Road (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Keep Marchin' On   (06:12) 
-  02| This Old Guitar   (05:10) 
-  03| Delta Road   (04:40) 
-  04| Shake the Walls (With Foot Stompin' Music)   (05:26) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3340C3AD62D64A0D39F2A16231382AC7427B2DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 574704   (373302) от 13.11.2012
-
-Craig Erickson - Galactic Roadhouse (2012) [FLAC|Lossless]<Blues-rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_373302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back at the Roadhouse (3:57)
-02. Torrential Download Blues (5:42)
-03. River of Tears (6:03)
-04. Rivertown (4:15)
-05. Earthquakes & Hurricanes (4:01)
-06. You Can't Keep a Good Man Down (5:01)
-07. Peace and Love (7:24)
-08. Engine #7 (5:30)
-09. It's Rough All Over (4:23)
-10. Prodigal (3:53)(   Читать дальше...   )Жанр: Blues-rockПродолжительность: 01:01:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176375   (372039) от 21.10.2017
-
-Ray Bonneville - Solid Ground (1997) [FLAC|Lossless|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nothing to lose   (03:49) 
-02.  Blue Guitar   (04:19) 
-03.  If your love is strong   (03:21) 
-04.  Love in danger   (04:40) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEC2D92FA002D5E5AF9DC65FBA9681AAF35698E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1070053   (371695) от 05.11.2016
-
-Mark May And The Agitators - Call On The Blues (1995) [FLAC|Lossless|image + .cue] <Blues Rock, Texas Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| You're Leaving Baby   (05:59) 
-  02| Wound Up   (04:58) 
-  03| You Can Call On The Blues   (06:31) 
-  04| All For You   (04:19) (   Читать дальше...   )Жанр: Blues Rock, Texas BluesПродолжительность: 00:55:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:791395F02E02B93110F8D29CC22DE8EB16719B80
 ```
 
 https://mybot314.ru/tekegram_catalog/

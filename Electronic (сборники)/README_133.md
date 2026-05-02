@@ -1,3 +1,61 @@
+###  Публикация: 936240   (496494) от 11.09.2015
+
+VA - Summer Chill [DigiCom] (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496494.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Artak - Soul - S.A.T Remix
+02. Seven24 - Frozen - Moonnight Remix
+03. Tijani - Breathe Out (Prod. Great Skies)
+04. Jack-o-Lantern - Lost in Paradise(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCDCAC30EDCBE169025DC8A203B1DC08F5DACD76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 936390   (496489) от 11.09.2015
+
+VA - Unexpected Journey (2015) [MP3|128 кб/с]<Dance, Aсoustic, Folk, Indie, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_496489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Colin Hay - Down Under (Nicolas Haelg Remix)
+03. Alex Cruz - Haunting (feat. Anna Renee & Melle Kuil)
+04. Kodaline - High Hopes (Filous Remix)(   Читать дальше...   )Жанр: Dance, Aсoustic, Folk, Indie, Deep HouseПродолжительность: 01:00:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1788E04360848D5B3ACD1BD4EF01EA551A6728AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1158018   (495687) от 14.08.2017
 
 VA - Disco Beach: Nu Disco House Original Mix (2017) [MP3|320 Kbps] <Nu Disco, House, Funky House>
@@ -687,70 +745,6 @@ VA - Dystopia: Minimal Techno Mix (2018) [MP3|320 Kbps] <Techno>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B7CA876E6B309358444756B101B905D879F9899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937260   (490163) от 14.09.2015
-
-VA - Beatport Top 100 Deep House August 2015 (version 2) (2015) [MP3|320 кб/с]<Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490163.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Damian Lazarus & The Ancient Moons - Vermillion (&Me Remix) 07:48
-002. Watermat & Moguai - Portland (Original Mix) 06:22
-003. Kollektiv Turmstrasse - Sorry I Am Late 08:10
-004. Tube & Berger feat. J.U.D.G.E. - Disarray 05:52(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 11:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BA8B8B119C9631223CBB24FDA0F4C1E2F46E55B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544231   (489651) от 08.09.2012
-
-VA - Euphoric Emotions Vol.38 (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance, Classic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489651.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manufactured Superstars feat. Scarlett Quinn - Take Me Over (Bingo Players Remix) [05:03]
-02. Headstrong feat. Stine Grove - Tears (Aurosonic Progressive Mix) [09:10]
-03. Orjan Nilsen - Go Fast! (Original Mix) [08:50]
-04. John O"Callaghan feat. Audrey Gallagher - Big Sky (Original Mix) [09:29]
-05. Giuseppe Ottaviani feat. Linnea Schossow - Just For You [07:09]
-06. Susana & Josh Gabriel - Frozen (extended mix) [07:56]
-07. Myon feat. Shane 54 & Carrie Skipper - Vampire (Club Mix) [09:22]
-08. Reminder & Cathy Burton - Love To Hold (Original Mix) [07:46]
-09. Timmy & Tommy feat. Leila - Perfect Motion [08:09]
-10. The Blizzard & Omnia - My Inner Island (Original Mix) [07:39](   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting Trance, Classic TranceПродолжительность: 01:56:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AA2EBC65055184EB3F603630D95BBB90BCCEEBD
 ```
 
 https://mybot314.ru/tekegram_catalog/

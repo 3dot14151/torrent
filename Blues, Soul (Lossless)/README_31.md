@@ -1,3 +1,119 @@
+###  Публикация: 1495988   (875824) от 15.09.2021
+
+Brad Vickers & His Vestapolitans - The Music Gets Us Thru (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875824.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dumb Like A Fox (2:00)
+02. Take It Slow (4:09)
+03. Please Don't Say (3:36)
+04. Big Wind (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524C77E789E0CCD6F5DB13C10C0779A1EC9E069A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495957   (875818) от 15.09.2021
+
+Beat brutality - A blues detour (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875818.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues for the damned (3:06)
+02. Sweet little furry (2:56)
+03. First wave (2:39)
+04. Treasure that you pleasure (2:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98E68A2158419ABB532AC2A1DD0C183E20FE7274
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495949   (875717) от 15.09.2021
+
+Altered Five Blues Band - Holler If You Hear Me (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875717.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Holler If You Hear Me (3:33)
+02. Guilty of a Good Time (3:26)
+03. If You Go Away (She Might Come Back) (3:32)
+04. Holding on with One Hand (3:56)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08B7BEBDCF4E2EB835381B15915E80F1BED896DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1495954   (875706) от 15.09.2021
+
+Band Of Friends - Spotlight on the G-Man Vol.2  (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Treat Her Right (3:20)
+02. Lonely Mile (4:45)
+03. Secret Agent (4:50)
+04. Livin' Like a Trucker (4:24)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08959FC9C8381CE6DCD14BD82B548C4DEFA4443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1495866   (875700) от 15.09.2021
 
 Chris Rea - Blue Guitars IV - Electric Memphis Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,121 +745,6 @@ Tommy Castro - Tommy Castro Presents A Bluesman Came To Town (2021) [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4697DCF49B4CB21D7E130753C6FE09B72ACBBB81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374553   (872698) от 10.04.2020
-
-Mungo Jerry - Touch The Sky (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Pop Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872698.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch the Sky
-02. You'll Be Sorry
-03. Rhythm is a Healer
-04. I'll Be a Hippy 'Til I Die(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A52B34E8DA6C1D8150EEBA429D3535BAD4811C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374252   (872696) от 10.04.2020
-
-Shakura S'Aida - Brown Sugar (2010) [APE|Lossless|image + .cue] <Jazz, Funk / Soul, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Mr. Right
-02.  Walk Out That Door
-03.  Gonna Tell My Baby
-04.  Break Your Heart(   Читать дальше...   )Жанр: Jazz, Funk / Soul, BluesПродолжительность: 00:55:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53A8FDAA067EB77054518297A65750A592BE1E94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998073   (872036) от 18.03.2016
-
-Gregor Hilden - In Phase (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues, Jazzy Blues, Instrumental Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Magic (05:45)
-02. In Phase (04:11)
-03. On Flow (04:14)
-04. Rock-Zabern (05:11)(   Читать дальше...   )Жанр: Modern Electric Blues, Jazzy Blues, Instrumental BluesПродолжительность: 00:57:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FB91DE822DAB9FDFA9591B8C3FF61C074C40198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106764   (871803) от 20.02.2017
-
-Chris Belleau - 2 Album (2012, 2016) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2012 - Knee Deep In The Blues
-2016 - Swamp FeverЖанр: BluesПродолжительность: 01:34:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0727F40703EDF664AC2BB86BEB7D97C0ADF92424
 ```
 
 https://mybot314.ru/tekegram_catalog/

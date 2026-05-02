@@ -1,3 +1,61 @@
+###  Публикация: 1458057   (1024075) от 28.03.2021
+
+VA - Neon: Uplifting Trance Party (2021) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024075.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неон – символ ночной жизни большого города. Вас тоже манят неоновые вывески и огни? Широкие сияющие проспекты манят умчаться на край света, а реклама ночных клубов соблазняет, чтобы зайти на часок и остаться до утра, оставляя все силы на выплеск своих эмоций в танце!001. Grande Piano - Stay With Me
+002. Mike Rivera - Parallax
+003. Hyperphysics - New Awakening (Original Mix)
+004. Farius - Free Now (Extended Mix)(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 11:24:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49AF5DD95CD61E43B2B8DB52615B5ABE444DA523
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1458319   (1023863) от 29.03.2021
+
+VA - Beatport Bassline House: Sound Pack #265 (2021) [MP3|320 Kbps] <Bass House, Dub House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1023863.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треки из подборки объединяет одно - всеми вариантами представленного здесь звучания можно основательно прокачать звуковую систему дома, в машине или на любой электронной вечеринке с качественной акустикой. В этой музыке главное в звучании - массивная, жирная бас-партия, которая мутирует в зависимости от идей музыканта от трека к треку.001. Terny Turny - Monster Kill
+002. Second Sense - Low Life
+003. Mike Porter - Its Gonna Be Alright
+004. Serge Devine - Waiting So Long(   Читать дальше...   )Жанр: Bass House, Dub HouseПродолжительность: 07:03:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:590E415BBF13666FE77364EC99B0B7F65A328CA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1458323   (1023846) от 29.03.2021
 
 VA - Beatport Electro Trance: Sound Pack #264 (2021) [MP3|320 Kbps] <Trance, Uplifting, Progressive>
@@ -687,64 +745,6 @@ VA - TOP 40 Ремиксы PROMODJ АПРЕЛЬ 2021 (2021) [MP3|320 Kbps] <EDM,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CFB32A9839296DCAA08B854C1DA53F7E3EA86980
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461797   (1021639) от 11.04.2021
-
-VA - Beatport Techno Electronic: Sound Pack #270 (2021) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тут нет места уютным диванам и прочим атрибутов ленивого отдыха, тут можно найти танцпол и быстрый мегаполис, движение и энергию! Под такую музыку хочется сесть в машину и колесить по пустынному городу!001. Anything Else - Obscure
-002. Tamsis - Shame
-003. Sven And Haris - I Like
-004. Nae-tek, Deeperwalk - Individuation(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 10:50:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:339645FF8DBC9BE8D185706B961B64004A4BD78C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461791   (1021635) от 11.04.2021
-
-VA - Beatport Deep House: Sound Pack #272 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021635.jpg" />
-</div>
-
-
-###  Подробнее
-
-Представляем Вам легкую и очень позитивную подборку танцевальных треков от Beatport 272-го релиза в стиле Deep House. Настроение мгновенно повышается, появляется что-то вроде эйфории и легкости. Очень мелодичные композиции, чем-то напоминающие творчество грантов EDM сцены из 2000 годов, однако с совершенно другой современной энергетикой.001. Enamour - Sleep Paralysis
-002. Charlie Hesen - Travelling Sound
-003. Dave Mayer - Chicago Jazz
-004. Beije - Exquiro(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07B69BC3C0930B11B2A0CE852D793D090B853DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

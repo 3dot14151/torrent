@@ -1,3 +1,61 @@
+###  Публикация: 1763390   (35435) от 02.12.2024
+
+Linkin Park - Meteora (20th Anniversary Edition) (2003) Brazil, 0093624880974, AA500 Pressing, 2023, 3xCD [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35435.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Foreword (0:13)
+02. Don't Stay (3:08)
+03. Somewhere I Belong (3:34)
+04. Lying From You (2:55)(   Читать дальше...   )Тип издания: Digisleeve, 20th Anniversry EditionЖанр: Alternative / Nu-MetalПродолжительность: 02:19:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A49C587B783B29FC3BE25AE7CEE38834184AA4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1763398   (35409) от 02.12.2024
+
+Linkin Park - Live In Texas (2003) Japan, WPZR-30036~7 [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somewhere I Belong (3:38)
+02. Lying From You (3:07)
+03. Papercut (3:06)
+04. Points Of Authority (3:25)(   Читать дальше...   )Тип издания: DigipakЖанр: Alternative / Nu-MetalПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07A1677104B96F94526C269D16C6B6805A66FCD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1763392   (35404) от 02.12.2024
 
 Linkin Park - Hybrid Theory (2000) Brazil, 936247755-2 [FLAC|Lossless|image + .cue] <Alternative Metal, Nu-Metal>
@@ -686,64 +744,6 @@ Linkin Park - Living Things + (2012) E.U., 9362-49450-0, 2013 [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2E735FA20728FC4228FB6F1DF0A8542CB396D4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1812909   (6908) от 19.08.2025
-
-Linkin Park - From Zero (2024) U.S., 093624838807, Amazon Alternate Cover [FLAC|Lossless|image + .cue] <Alternative Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Zero (Intro) (0:22)
-02. The Emptiness Machine (3:10)
-03. Cut The Bridge (3:49)
-04. Heavy Is The Crown (2:47)(   Читать дальше...   )Тип издания: Digisleeve, Amazon Alternate CoverЖанр: Alternative MetalПродолжительность: 00:32:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20169EE503D28A70C4FA1BD72A982AD32FC7EA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1053628   (5441) от 29.08.2025
-
-Garbage - 11 альбомов (1995 - 2025) 20 CD [FLAC|Lossless|image + .cue|tracks+.cue] <Alternative Rock, Pop Rock, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа Garbage существует с 1994 года, однако все её участники начали заниматься музыкой гораздо раньше. 1983 году Butch Vig и Steve Marker основали в Мэдисоне студию "Smart", потом Butch Vig продюсировал диски таких групп, как "Nirvana" (альбом Nevermind), "Sonic Youth", "L7" и "Smashing Pumpkins". Duke Erikson когда (   Читать дальше...   )Список альбомов:
-1995 - Garbage
-1998 - Version 2.0
-2001 - Beautiful Garbage(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, ElectronicПродолжительность: 20:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E354A788A0F838FCD48F1E861D87DA2ACC108E22
 ```
 
 https://mybot314.ru/tekegram_catalog/

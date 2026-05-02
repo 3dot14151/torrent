@@ -1,3 +1,119 @@
+###  Публикация: 1480422   (1008960) от 28.06.2021
+
+Bonnie Kay and the Bonafides - Handyman (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Row Your Boat (3:29)
+02. Handyman (4:11)
+03. Little Red Rooster (3:22)
+04. Lovey Dovey (2:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DB4458B62A06774C3DABCBE41C7DCA85FBFA44B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480429   (1008952) от 28.06.2021
+
+Deek Jackson - I Got the Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Had Enough of You (4:22)
+02. Hey Ho, Pt. 1 (3:46)
+03. I Got the Blues (4:43)
+04. Live 4 Ever (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E54085A4583CCFD523F12B70322747D11B342A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480416   (1008947) от 28.06.2021
+
+Charlie Hunter & Lucy Woodward - I'm a Stranger Here (2021) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008947.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stranger Blues (feat. Dashawn Hickman) (2:57)
+02. My Lovin' (You're Never Gonna Get It) (4:44)
+03. My Love Will Never Die (3:43)
+04. You Might Think (5:49)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F675FA9C5D6CA53D341209EEB88B9AF344F40C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1480411   (1008930) от 28.06.2021
+
+Broke Fuse - Rocket Ride (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Stephenson Swamp Stomp (1:11)
+02. Rocket Ride (3:28)
+03. Strawberry Moon (4:35)
+04. One Shot (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9AB66F34345790EEEFA76FB9EC7AAF7E6722D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480259   (1008922) от 28.06.2021
 
 Roberta Flack - 3 Albums (1970/2021) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
@@ -630,122 +746,6 @@ The Robert Cray Band - False Accusations (1986) [FLAC|Lossless]<Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BDEEFEBEC17AD21D6D336B30732715AAC970CAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 660619   (1004442) от 01.01.2020
-
-Larry Burton - 500 Miles Of Highway (2011) [FLAC|Lossless|tracks + .cue] <Blues, Rockin' Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Inside My Room [3:36]
-02. High Heels and Tight Blue Jeans [3:15]
-03. I've Got Your Body (He Has Your Mind) [4:29]
-04. You're So Mean To Me [2:40](   Читать дальше...   )Жанр: Blues, Rockin' BluesПродолжительность: 00:47:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D9F31B620EB6D705BE332997C0EF8923EBC795D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486930   (1004333) от 02.08.2021
-
-Polly O'keary And The Rhythm Method - 50 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004333.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brand New Day (4:10)
-02. Too Much Like I Care (4:33)
-03. Can't Catch Me (4:16)
-04. Smiling (6:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98E9F6B4AAB76B1D0EBF684638B19086242F7108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487090   (1004054) от 03.08.2021
-
-Dirty Dave Osti - Retro-Sonic Blues Train (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Retro-Sonic Blues Train
-02. Kiss The Pain
-03. The Drifter
-04. Bleeding Wishes(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BAA03289F60F7E172A400677E9A4C282A1EEC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487104   (1004053) от 03.08.2021
-
-Keith Richards - Blues (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Babe (2019 – Remaster)
-02. Big Town Playboy (2019 – Remaster)
-03. I Could Have Stood You Up (2019 – Remaster)
-04. Key To The Highway(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86ADF10722C6475A9826C23BFB6522043E838493
 ```
 
 https://mybot314.ru/tekegram_catalog/

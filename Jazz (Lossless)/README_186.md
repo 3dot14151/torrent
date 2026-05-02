@@ -1,3 +1,61 @@
+###  Публикация: 1410838   (431992) от 23.09.2020
+
+Evan Christopher - The Remembering Song (2010) Arbors Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Remembering Song - Prelude [0:31]
+02. The Wrath of Grapes [6:00]
+03. Way Down Yonder in New Orleans [5:21]
+04. The River by the Road [7:19](   Читать дальше...   )Жанр: SwingПродолжительность: 01:00:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:484FB3AF792F0F377DDBBDA3EEBEA958669B8037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410873   (431990) от 23.09.2020
+
+New York Jazz Quartet - Surge (1977) 1992, Enja Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surge [5:54]
+02. Placitude [7:12]
+03. Big Bad Henry [9:57]
+04. 87th Street [6:20](   Читать дальше...   )Жанр: Post-Bop, Hard BopПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99AF1A3BFBB9D6F4CC5F366C92FA504A575C5271
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1410840   (431986) от 23.09.2020
 
 The Karel Roessingh Trio - Cat Fud (1995) Self-Released [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -714,64 +772,6 @@ Blue Note Trip - Volumes 1-7 (2003-2008) [FLAC/WavPack|Lossless|image + .cue] <J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7EB80D4422725EC3E678142ADAE6FF523D9BD598
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1249784   (431390) от 25.09.2018
-
-The Count Basie Orchestra - Basically Basie (1937 - 1945) 4CD, 2005, JSP Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_431390.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Swinging at the Daisy Chain [2:53]
-02. One O'Clock Jump [3:04]
-03. John's Idea [2:57](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 05:00:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:943643922097E2DADF3D1ACA3250044676EA6893
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165871   (430889) от 14.09.2017
-
-The Johnny Smith - Foursome, Vol. 2 (1957) 2017, Warner [FLAC|Lossless|tracks + .cue] <Cool, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Angel Eyes [04:18]
-02. Deep Night [04:07]
-03. These Foolish Things [03:37]
-04. East Of The Sun [03:15](   Читать дальше...   )Жанр: Cool, Guitar JazzПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC6A8518FC2AE8E7E0DC4ED2482197BED5B6F294
 ```
 
 https://mybot314.ru/tekegram_catalog/

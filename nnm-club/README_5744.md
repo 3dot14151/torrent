@@ -1,25 +1,25 @@
-###  Публикация: 1115282   (827894) от 17.03.2017
+###  Публикация: 1495594   (830934) от 13.10.2021
 
-Lorenzo Masotto - Aeolian Processes (2017) [AAC|256 Kbps]<Contemporary>
+Dark the Suns - Suru Raivosi Sydämeni Pimeydessä (2021) [AAC|~339 Kbps] <Melodic Death, Gothic Metal>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830934.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Arctic Summer 03:18
-2. Space Flowers 04:23
-3. Drone 04:57
-4. My Great-Grandmother Lived In The Mountains 03:58(   Читать дальше...   )Жанр: ContemporaryПродолжительность: 00:46:36
+01. Spirit in the Dark (3:57)
+02. Everywhere (5:05)
+03. Suru Raivosi Sydämeni Pimeydessä (4:21)
+04. Hope in Our Hands (4:48)(   Читать дальше...   )Жанр: Melodic Death, Gothic MetalПродолжительность: 00:44:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84E56D3EB66BA20194B214A2A32409851B1A1C90
+magnet:?xt=urn:btih:BE9DAE09C37CE7AEE93B94F8A7445B7D86F4BD01
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115396   (827893) от 17.03.2017
+###  Публикация: 1496271   (830933) от 13.10.2021
 
-Display Driver Uninstaller 17.0.6.1 [Multi/Ru]
+VA - Blueberry Café, Vol. 1 (2013) [AAC|~333 Kbps] <Downtempo, House, Jazzy>
 
->>Архив торрентов
->>Архив Программ
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827893.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Display Driver Uninstaller это утилита удаления драйверов, которая поможет вам полностью удалить драйверы видеокарты AMD / NVIDIA / Intel из системы, не оставляя кучу ненужных файлов (включая ключи реестра, папки и файлы). DDU предназначен для использования в случаях, когда стандартными способами драйвера не удаляются, или когда нужно тщательно удалить драйверы видеокарты. (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+01. SoulAvenue - Stuck in a Dream (4:14)
+02. JULIAS MOON - Bay (2:47)
+03. Roberto Sol, Florito, Sandra Muhuri - Impress Me (4:46)
+04. Luis Hermandez - Summer Feeling (3:16)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:26:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F416A2A75C1CA0D3EF767E57450A1A1B6DF0ADF
+magnet:?xt=urn:btih:D4ABFC5AD24B8C82F35E0C54655697417A17B9B7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115444   (827892) от 17.03.2017
+###  Публикация: 1497226   (830932) от 13.10.2021
 
-Пепел / Ashes (2010) HDTVRip
+Chillhop Guitar - Spring from the soul (2021) [AAC|~295 Kbps] <Chill Out, Smooth Jazz, Downtempo>
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827892.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Блестящий, но одержимый профессор, работает над изобретением вакцины от СПИДа. Случайно в своей лаборатории он изобретает новый вид смертоносных бактерий, которые мгновенно разрушают тело и приводят мозг в агрессивное состояние. Теперь он должен остановить инфекцию прежде, чем она погубит его, и тех кого он любит.Производство: СШАЖанр: Ужасы, фантастика, триллерРежиссер: Элиас МатарАктеры: Энрике Альмейда, Джоэль Брайант, Крис Дэлфоз, Рубен Феррер, Сьерра Фиск, Ричард Гант, Дайан Голднер, Альдо Гонзалез, С.А. Гриффин, Джон Гулагер ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:27:56
+01. Montecristo (5:18)
+02. Lounge with my Valentine (7:39)
+03. Vinyl in the Clouds (3:13)
+04. Sunset Walk (4:49)(   Читать дальше...   )Жанр: Chill Out, Smooth Jazz, DowntempoПродолжительность: 01:21:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F30B8B8F21D03C5C26F248E4CA1DA4175EDF160D
+magnet:?xt=urn:btih:7A4760D974747AD3D184565CC8603B73D716A172
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,25 +85,254 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076818   (827891) от 17.03.2017
+###  Публикация: 1497187   (830931) от 13.10.2021
 
-Александр Больных | Дарданеллы 1915: Самое кровавое поражение Черчилля (2014) [PDF, FB2]
+VA - Luxury Lounge Sunset, Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Luis Hermandez - Don't Want Your Love (3:06)
+02. Music Of The Earth - The Lofi Jazz Pattern (3:27)
+03. Five Seasons - Caminho De Amor (5:16)
+04. Green Pine River - Skyfall (D-Soriani Bossa Edit) (4:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30A2BA959EB359FF0DCBD4E7F4B31D39259F65DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497138   (830930) от 13.10.2021
+
+VA - Magic Island of Chill Out, Vol. 2 (2021) [AAC|~322 Kbps] <Lo-Fi, Lounge, Chillout>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twins In Mind - Intro (1:24)
+02. 351 Lake Shore Drive, Marlene Johnson - You Don't Know (4:44)
+03. Tom Tom Club - Love to Love You Baby (Vavinchi Remix) (6:34)
+04. Miper - Relax (3:16)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, ChilloutПродолжительность: 01:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A961DE343C345AFD62505AC18CC765F496B834
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1498524   (830929) от 13.10.2021
+
+VA - Fireplace Chill, Vol. 7 (2021) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feindrehstar - Love & Hoppiness Int. (Original Mix) (2:33)
+02. Slow World - Caravan (Original Mix) (4:58)
+03. Marc Hartman - Into the Stone (Original Mix) (4:16)
+04. Placid Larry - Blossoming (Original Mix) (2:56)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:14:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A87279C1D4867A855E2CEDCD498D0B8682F9852
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496947   (830928) от 13.10.2021
+
+VA - Electronic Lounge Collection, Vol. 2 (2021) [AAC|~314 Kbps] <Electronic, Downtempo, Lounge>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dub Mars - Walking on the Street (Original Mix) (3:31)
+02. Florent Campana - Pentimento (Original Mix) (3:00)
+03. CaPa - To Be Thoughtful (Original Mix) (4:39)
+04. Hill Video - Loyal Cruise (Original Mix) (3:34)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE62488073927E2DA482CBFE30DE453561D1CF69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501632   (830927) от 13.10.2021
+
+VA - The Lounge Chill Out Chapter, Vol. 1 (2021) [AAC|~315 Kbps] <Chill Out, Lounge, Downtempo>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Joe Le Blanc - White Dish (4:37)
+02. Aerium, Me3dian - Warmte Nei Kjelt (1:17)
+03. Ignat Shamko - Strange Dream (4:23)
+04. Esona - Twisted Innocence (A Light Twist of Innocence Mix) (6:14)(   Читать дальше...   )Жанр: Chill Out, Lounge, DowntempoПродолжительность: 01:42:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249B29790D8E2B80DA5FC5FFF426FA517B6D976C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496298   (830926) от 13.10.2021
+
+VA - Blueberry Café, Vol. 8 (2021) [AAC|~316 Kbps] <Downtempo, House, Jazzy>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. M-Sol Project, Marga Sol - Another Night (5:36)
+02. Patiotic - Island Dreams (3:26)
+03. Monodeluxe - I Want To (6:42)
+04. Martin Hiska - Copa Copa (Beachhouse Remix) (5:29)(   Читать дальше...   )Жанр: Downtempo, House, JazzyПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3520385D6811C4DA9D8E8BC4E85E0C935F23FF1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1497412   (830925) от 13.10.2021
+
+VA - Beautiful Metamorphosis, Vol. 2 (2021) [AAC|~306 Kbps] <Downtempo, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830925.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. T2'n - Run In Noise (3:16)
+02. Balinese Meditation Ensemble - Silent Snow (4:49)
+03. Faith Baldwin - The Morning Light (4:48)
+04. Openzone Bar - Caribbean Nights (3:45)(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 02:19:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81E09FB4FC7B57849D7CA2AE6C1C35F3DA67AA99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005835   (830924) от 10.04.2016
+
+Чудо техники (2016.04.10) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830924.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Чудо техники» — это доходчивый и интересный рассказ о новейших научных разработках, которые способны поменять или уже меняют нашу повседневную жизнь. Автор проекта — Сергей Малозёмов — хорошо знаком зрителям НТВ по репортажам программы «Сегодня», касающимся новых технологий, гаджетов, медицины. Он в курсе последних научных разработок и одним из первых узнает о значимых (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаСубтитры: ОтсутствуютПродолжительность: ~ 00:35:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D6DEFF66315D92F7A0425ECED3697E369F12BBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005714   (830923) от 10.04.2016
+
+Синодальная типография | Русские самородки в жизнеописаниях и изображениях. Выпуск 7 (1910) [DJVU]
 
 >>Научная и техническая литература
->>Военная литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827891.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первая книга о Дарданелльской катастрофе 1915 года, основанная не только на британских, французских, немецких, русских, но и на турецких источниках. Всё о самом кровавом и позорном поражении Черчилля и провале первого стратегического десанта в истории. С юности склонный к опасным авантюрам и напрочь лишенный военного таланта, сэр Уинстон в марте 1915-го вознамерился (   Читать дальше...   )Жанр: военная история, флотФормат: PDF, FB2
+Седьмой выпуск  содержит жизнеописания:  поэта А.В. Кольцова (1809-1841), великого ученого и поэта М.В. Ломоносова (1711-1765)  и  поэта И.З. Сурикова (1841-1880).  Всего было издано девять выпусков этой серии. Издание училищного  Совета при Святейшем  Синоде.Жанр: Жизнеописания, биографии и мемуарыФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32FE5534CB18D641381A14ACDE8BA2A08BBC9A26
+magnet:?xt=urn:btih:0561014BBA6160D01BEB46E2F7DC186669991ADF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -105,26 +340,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115244   (827890) от 17.03.2017
+###  Публикация: 1006027   (830922) от 10.04.2016
 
-Adguard 1.4.1 (377) [Multi/Ru]
+Jocelyn & Chris Arndt - Edges (2016) [MP3|320 кб/с] <Blues-Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827890.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Adguard — это лучший способ избавиться от раздражающей рекламы, защититься от онлайн-слежки и мошеннических сайтов.
- Adguard – интернет-фильтр для защиты пользователей от опасных веб-сайтов, блокировки всех возможных видов рекламы в Интернете. Программа представляет собой отличное дополнение для вашей основной антивирусной защиты с эффективной блокировкой вредоносных, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 16 марта 2017Разработчик: © AdguardПоддерживаемая ОС: OS X 10.7 +Язык интерфейса: Русский, Английский и другие
+01. Shame (03:05)
+02. Too Much To Me (03:51)
+03. Where's The Rain (03:45)
+04. More Than I Say I Do (03:50)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:46:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0560C9707596C939A65C95E7F993FFCB83F03541
+magnet:?xt=urn:btih:88B691A84F4AA474AB6D35EA24F35A94ACE0B4E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -132,54 +369,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115407   (827889) от 17.03.2017
+###  Публикация: 1005854   (830921) от 10.04.2016
 
-Журнал | Men's Health [Россия] №3 (Март 2017) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827889.jpg" />
-</div>
-
-
-###  Подробнее
-
-Men’s Health — самый узнаваемый мужской журнальный бренд категории lifestyle. Журнал освещает все стороны жизни мужчины — пишет о здоровье, фитнесе, моде, правильном питании, отношениях, путешествиях, технике, карьере. Это единственное издание, созданное чтобы показать мужчинам, как они могут улучшить свою жизнь. Русскоязычный Men’s Health — самый успешный из международных. (   Читать дальше...   )Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E22A206492ED9B51DBC7812E80DA0029F6CAF122
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115060   (827888) от 17.03.2017
-
-Savage - 40 Best Hits & Remixes (2017) [MP3|320 Kbps] <Italo-Disco, Euro-Disco, Eurodance>
+VA - Automatic Express Promo Focus (Promotion) (2016) [MP3|192-320 кб/с]<Club, Euro, Disco, Electronic, House, Progressive, Pop, Dancehall, Synthpop, New Wave, Tropical>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827888.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830921.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Don't Cry Tonight  4:02
-02.  Only You  3:52
-03.  A Love Again (Maxi Version)  5:20
-04.  Time (Extended Version)  5:08(   Читать дальше...   )Жанр: Italo-Disco, Euro-Disco, EurodanceПродолжительность: 03:09:48
+01. Martin Garrix And Tiesto - The Only Way Is Up (Original Mix) 04:52
+02. John Dahlback - Atlantis (Original Mix) 04:59
+03. Camelphat Feat. A.M.E. - Paradigm (The Cube Guys Remix) 06:14
+04. Jus Jack - Stargazing (Original Mix) 04:38(   Читать дальше...   )Жанр: Club, Euro, Disco, Electronic, House, Progressive, Pop, Dancehall, Synthpop, New Wave, Tropical, Electro-R&B, UK GarageПродолжительность: 12:01:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FAB42BE9DE8986F4881AE58443EE09FDB790FDA2
+magnet:?xt=urn:btih:0D8426B10B215AFBD17A72D69EA16D3B2689DEA1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -187,504 +398,340 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115474   (827887) от 17.03.2017
+###  Публикация: 1005887   (830920) от 10.04.2016
 
-Двухсотлетний человек / Вicentennial Man (1999) WEBRip [H.264/720p]
+VA - House Nation Volume 8 (2016) [MP3|320 кб/с] <House, EDM, Club, Electro>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827887.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Начало нового тысячелетия; происходит прорыв в глобальных технологиях. Люди уже не заводят дома собак и кошек: они покупают себе роботов. Вот и семья Мартинов приобретает себе необычный подарок: робота нового поколения NDR-114, а в обычной жизни просто Эндрю.
+01. Krewella - We Go Down (Darren Styles Remix) (05:00)
+02. Nicky Romero - Symphonica (Bare Remix) (03:54)
+03. The Bloody Beetroots & Greta Svabo Bech - Chronicles Of A Fallen Love (05:38)
+04. Alesso and Calvin Harris feat. Hurts - Under Control (04:16)(   Читать дальше...   )Жанр: House, EDM, Club, ElectroПродолжительность: 01:25:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4FAB4808355927072591B464748B6F99091099C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005814   (830919) от 10.04.2016
+
+VA - Lounge Balearic Relax Party (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830919.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Deep City - Maybe Rice - Deep Fashion Mix
+002. Vladi Strecker - De la Fuente (Springtime Mix)
+003. Area Code 51 - Teldrassil
+004. Cinematic - Brown Sugar (E-Wave Mix)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 07:16:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:419A7EA7D70D879C3B5F7DE0D149D848C01702DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005582   (830918) от 10.04.2016
+
+VA - Second Breath - Unknown Bands Vol.8 (2016) [MP3|64 - 320 кб/с] <Alt.Metal, Alt.Rock, Modern Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830918.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Remember My Name - Away From You (ft. Jose Urquiza)
+02. Ashes of Eagles - Break Away
+03. Fulc - Wasting
+04. Sobrio - Verbos(   Читать дальше...   )Жанр: Alt.Metal, Alt.Rock, Modern Hard RockПродолжительность: 02:09:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FFA711BAD9A392C756D2EAEDB2D6C890F6D1F24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005466   (830917) от 10.04.2016
+
+VA - Happy Hardcore Top 20 (2016) [MP3|320 кб/с] <Hardcore, Rave>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Paul - Rainbow In The Sky (DJ Pauls Forze Mix) 02:51
+02. Party Animals - Have You Ever Been Mellow 03:08
+03. Flamman & Abraxas Ft. MC Rem - Good To Go (Radio Mix) 03:35
+04. DJ Paul Elstak - The Promised Land  (Promised Radio Mix) 03:44(   Читать дальше...   )Жанр: HardcoreПродолжительность: 01:22:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C613C235D4D4A701D0A2ABB8741A3853B480DAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005695   (830916) от 10.04.2016
+
+Синодальная типография | Русские самородки в жизнеописаниях и изображениях. Выпуск 5 (1910) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830916.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пятый  выпуск  содержит жизнеописания:  живописцев И.А. Акимова (1754-1814),  И.Н. Крамского  (1837-1887)  и основателя первой художественно-иконописной школы А.В. Ступина (1776-1861).    Всего было издано девять выпусков этой серии. Издание училищного  Совета при Святейшем  Синоде.Жанр: Жизнеописания, биографии и мемуарыФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6084AF93449D4E2BBCD8BF4D0E0018D3BBC3D24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005905   (830915) от 10.04.2016
+
+Tiga - No Fantasy Required (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno, House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Fantasy Required (4:34)
+02. Make Me Fall In Love (5:41)
+03. 3 Rules (3:02)
+04. Having So Much Fun (2:57)(   Читать дальше...   )Жанр: Electronic, Techno, HouseПродолжительность: 00:49:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:796482E85EF7F987633E192AC214568577C0506C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005881   (830914) от 10.04.2016
+
+Александр Медведев | Налоговый адвокат вне закона (2014) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Детектив, Боевик (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830914.jpg" />
+</div>
+
+
+###  Подробнее
+
+Преуспевающий налоговый адвокат, состоявшийся как личность и как профессионал, принял очередной заказ - разобраться в претензиях налоговой инспекции к некоей организации. В результате он оказывается повлеченным в крупномасштабную международную финансовую аферу, и в его судьбе наступает неожиданный крутой поворот...
+Российская налоговая действительность
+Коррумпированные (   Читать дальше...   )Жанр: Экономический триллер, ДетективПродолжительность: 08:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:331D0F67E581709FC2537B2D1284CCD0106510A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006030   (830913) от 10.04.2016
+
+Jeff Beck - Performing This Week...Live At Ronnie Scott's (2008) [APE|Lossless|image + .cue] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830913.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beck's Bolero
+02. Eternity's Breath
+03. Stratus
+04. Cause We've Ended As Lovers(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 01:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F7A672722C013AEA64BA05D0EA507140705A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005809   (830912) от 10.04.2016
+
+Natalie Merchant - Ophelia (1998) HDCD, Tri-fold card-paper sleeve  [APE|Lossless|image + .cue] <Folk Rock, Soft Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ophelia
+02. Life Is Sweet
+03. Kind & Generous
+04. Frozen Charlotte(   Читать дальше...   )Жанр: Folk Rock, Soft RockПродолжительность: 00:56:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08CA1B5DAB740E62B9CF8264261EB47D79618C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006100   (830911) от 10.04.2016
+
+The Snakes - Once Bitten... (1998) [MP3|320 кб/с] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Labour Of Love
+02. Can't Go Back
+03. What Love Can Do
+04. Real Faith(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7246B3E285D7FB64FA9FFEB23B16349C6D00A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005986   (830910) от 10.04.2016
+
+Вести недели (10.04.2016) SATRip
+
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830910.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Вести недели» - еженедельная итоговая информационная программа Всероссийской государственной телерадиокомпании, выходящая в эфир по воскресеньям в 20.00, с хронометражем от 1 часа 10 минут до 1 часа 30 минут. Программа «Вести недели» не имеет рубрик, но внутри неё может показываться в кратком виде фрагменты из программы «Специальный корреспондент».В этом выпуске: Теперь США пылесосит в свои оффшоры деньги со всего мира. А походу дела хотели бросить тень и на Россию. Любимая цель - друзья Путина. Кем гордится наш президент? Тайная переписка двух агентов: какой позывной у Навального? Кто вербовал его, и какие задания давал? Как придумали болезнь Магнитского выдать за врачебную ошибку? Роковой для Украины референдум в Голландии. (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 01:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E409703D23D0FEF7BE4FF1B3135680DAC887064E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005792   (830909) от 10.04.2016
+
+Футбол. Чемпионат Италии 2015-2016. 32 тур. Милан - Ювентус (09.04.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830909.jpg" />
+</div>
+
+
+###  Подробнее
+
+09 апреля 2016, суббота. 21:45 МСК
+32-й тур
 
-Купленный как прибор, запрограммированный для выполнения домашней работы, Эндрю вдруг начинает испытывать (   Читать дальше...   )Производство: США, ГерманияЖанр: Фантастика, Драма, КомедияРежиссер: Крис КоламбусАктеры: Робин Уильямс, Эмбет Дэвидц, Сэм Нил, Оливер Платт, Кирстен Уоррен, Венди Крюсон, Халли Кейт Айзенберг, Линдзи Летерман, Анджела Лэндис, Джон Майкл ХиггинсПеревод: Дублированный, многоголосый закадровый, одноголосый закадровыйСубтитры: Русские, украинские, английские, английские (SDH) | отключаемыеПродолжительность: 02:11:26
+Стадион: Сан-Сиро - Джузеппе Меацца (Милан, Италия) , вместимость: 82995(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 01:52:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08FB3E8987EC694BBFC133D9AEFF4CBBD69C91DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115371   (827886) от 17.03.2017
-
-Google Chrome 57.0.2987.110 Stable RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827886.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26876D8A520516193C95D1A099E8F65AEFEF5FAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115115   (827885) от 17.03.2017
-
-Порочный круг / Dum Maaro Dum (2011) HDTV [H.264/1080i-LQ]
-
->>Зарубежное кино
->>Индийское кино
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827885.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гоа — рай на земле. Но даже в раю всегда найдется парочка ядовитых змей. Удивительно, как случайная встреча в международном аэропорту Гоа может изменить судьбу навсегда… Подруга Лорри едет на учебу в США. Он решает ехать следом за ней, но для этого ему нужно 15 тысяч долларов. Но их у него нет. Его жизнь выходит из-под контроля. Его друг Рикки предлагает ему помочь. (   Читать дальше...   )Производство: Индия / Cheyenne Enterprises, Fox STAR Studios, Louverture FilmsЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Рохан СиппиАктеры: Абхишек Баччан, Бипаша Басу, Дипика Падукон, Адитья Панчоли, Монти Мунфорд, Рана Даггубати, Пратик Баббар, Видья БаланПеревод: Многоголосый закадровый, профессиональный (Первый канал)Субтитры: РусскиеПродолжительность: 02:04:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A07906EA061D10D76AB0F2C3C93E12C310700ABC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115402   (827884) от 17.03.2017
-
-Гамера: Защитник Вселенной / Gamera daikaiju kuchu kessen (1995) HDRip
-
->>Зарубежное кино
->>Азиатское кино (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827884.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гигантская огнедышащая суперчерепаха Гамера — мускулистая боевая машина с семидесятиметровым панцирем, защищающая человечество от ужасных тварей, особей и чудовищ из космоса. Гамера — ближайший родственник легендарного Годзиллы и один из самых впечатляющих монстров мирового кино.
-Только Гамера может спасти Землю от гибели, вступив в битву с новым воплощением гиперзла (   Читать дальше...   )Производство: ЯпонияЖанр: Фэнтези, боевик, триллер, драма, приключенияРежиссер: Сюсукэ КанэкоАктеры: Цуёси Ихара, Акира Онодэра, Синобу Накаяма, Аяко Фудзитани, Юкидзиро Хотару, Хацунори Хасэгава, Хиротаро Хонда, Акира Кубо, Кодзиро Хонго, Такаси МацуоПеревод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:35:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B63433F322DFD7D7CFF6F78F45A79AC56935B811
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115361   (827883) от 17.03.2017
-
-IObit Driver Booster Pro 4.3.0.504 Final Portable by punsh [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Driver Booster сканирует и определяет устаревшие драйверы автоматически, загружает и устанавливает обновления одним щелчком мыши, экономя Ваше время. Более того, он специально разработан для настройки драйверов для лучшей производительности в играх. Это правильный инструмент для защиты ПК от сбоев оборудования, конфликтов и сбоев системы.Язык интерфейса: Русский, Английский, Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC881966C1E9C0FB1A4EB0384368E7236D18F5C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1115164   (827882) от 17.03.2017
-
-Childish Gambino - Awaken, My Love! (2016) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Contemporary R&B>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me And Your Mama (6:19)
-02. Have Some Love (3:44)
-03. Boogieman (3:37)
-04. Zombies (4:42)(   Читать дальше...   )Производство: Glassnote – GLS-0209-02Жанр: Funk, Soul, Contemporary R&B, Neo Soul, PsychedelicПродолжительность: 00:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E131A0D7EA8587809200399CABCDCAD2192553C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502285   (827881) от 14.10.2021
-
-В аддоны Nano Adblocker и Nano Defender для Chrome добавили вредоносный код
-
->>Компьютеры и комплектующие
->>Компьютерные новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Расширения для блокировки рекламы, которыми пользуются более 300 тысяч людей, незаметно сливали данные и пытались проникнуть в аккаунты пользователей в соцсетях. Оказалось, что проблема кроется во вредоносной составляющей, внедрённой несколько недель назад новым владельцем.Разработчик аддонов Nano Adblocker и Nano Defender Хуго Сюй не так давно заявил, что больше (   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502349   (827880) от 14.10.2021
-
-Артур О’Двайр | Осваиваем C++17 STL (2019) [PDF]
-
->>Компьютерная литература
->>Программирование
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Используйте компоненты стандартной библиотеки в C++17 в полной мере. Стандарт C++17, которому посвящена книга, удвоил объем библиотеки в сравнении с С++11. Вы узнаете о наиболее важных особенностях стандартной библиотеки C++17 со множеством примеров, научитесь создавать свои типы итераторов, диспетчеры памяти, пулы потоков выполнения. Также рассмотрены от- личия (   Читать дальше...   )Жанр: ПрограммированиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46CE60C380734F054DC7FBDF18C54A868405A3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502439   (827879) от 14.10.2021
-
-G. I. Joe. Бросок кобры: Снейк Айз / Snake Eyes: G.I. Joe Origins (2021) BDRip [H.264/720p-LQ]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827879.jpg" />
-</div>
-
-
-###  Подробнее
-
-Загадочный и суровый одиночка Снейк Айз спасает наследника древнего японского клана Арасикагэ, и в знак признательности клан открывает ему тайные знания пути ниндзя. Но главное: Снейк Айз обретает то, к чему так долго стремился, — дом. Однако, когда становятся известны секреты его прошлого, на кону оказываются его честь, преданность и доверие самых близких людей.Производство: США / Paramount Pictures, Metro-Goldwyn-Mayer, Skydance Media, Hasbro, Di Bonaventura PicturesЖанр: Фантастика, фэнтези, боевик, триллер, приключенияРежиссер: Роберт ШвенткеАктеры: Генри Голдинг, Эндрю Кодзи, Урсула Корберо, Харука Абэ, Такэхиро Хира, Питер Менса, Самуэль Финци, Самара Уивинг, Эри Исида, Ико УайсПеревод: Дублированный (Пифагор)Субтитры: Русские (forced, full), английскиеПродолжительность: 02:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E397222195A07F54FE6B440AEB3312134271FAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502277   (827878) от 14.10.2021
-
-Не дыши 2 / Don't Breathe 2 (2021) WEB-DLRip
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827878.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спустя несколько лет после кровавого вторжения Норман обрел покой и утешение, но оказалось, что от прошлых грехов так просто не убежишь.Производство: США, Сербия / Bad Hombre, Ghost House Pictures, Sony Pictures Entertainment (SPE) Worldwide Acquisitions Group, Stage 6 FilmsЖанр: Ужасы, боевик, триллер, драмаРежиссер: Родольфо СаягесАктеры: Стивен Лэнг, Мэдлин Грэйс, Брендан Секстон III, Адам Янг, Рокки Уильямс, Кристиан Сахиа, Бобби Шофилд, Фиона О’Шонесси, Стефани Арсила, Диана БабницоваПеревод: Дублированный (Пифагор)Язык озвучки: Русский, АнглийскийСубтитры: Русские (forced, 2 x full), Английские (full, SDH) отдельными файламиПродолжительность: 01:38:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08430D59033C72F54F95D2FA985D009BE177240C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1498272   (827877) от 14.10.2021
-
-Честная куртизанка / Dangerous Beauty (1998) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827877.jpg" />
-</div>
-
-
-###  Подробнее
-
-Венеция, 1583 год. Юная, красивая, умная, но бедная Вероника Франко влюбляется в аристократа Марко, брата своей подруги, только что вернувшегося из Рима. Он тоже неравнодушен к девушке, но его отец считает, что их брак невозможен, так как у Вероники нет приданого. Мать Вероники, в молодости бывшая куртизанкой, пытается убедить дочь в необходимости обратиться к древнейшей (   Читать дальше...   )Производство: США / Arnon Milchan Productions, Bedford Falls Productions, Regency EnterprisesЖанр: Драма, Мелодрама, БиографияРежиссер: Маршалл ХерсковицАктеры: Катрин МакКормак, Руфус Сьюэлл, Оливер Платт, Жаклин Биссет, Фред Уорд, Наоми Уоттс, Мойра Келли, Джоанна Кэссиди, Дэниэл Лапэйн, Ерун КраббеПеревод: Дублированный, двуголосый профессиональный, авторскийСубтитры: ОтсутствуютПродолжительность: 01:47:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8BA768B358E4BB24F3548B29147E7A67358CBB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502348   (827876) от 14.10.2021
-
-Сборник - Creative Market - 16300 in 1 - GRAPHIC GIANT BUNDLE - 2281951 [OTF, WOFF, WOFF2, TTF, PNG, AI, EPS, JPG]
-
->>Материалы для мультимедиа и дизайна
->>Сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827876.jpg" />
-</div>
-
-
-###  Подробнее
-
-В эту сборку входит около 16300 наименований. Это элементы акварели, элементы маркера, иллюстрации, объекты, узоры, текстуры и шрифты.Формат: OTF, WOFF, WOFF2, TTF, PNG, AI, EPS, JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BABE80B98987AEC81455B413555A9D0F16CAC6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502474   (827875) от 14.10.2021
-
-Тайна парка развлечений / Boonie Bears: The Wild Life (2021) WEB-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827875.jpg" />
-</div>
-
-
-###  Подробнее
-
-Медведи снова в деле. Они приезжают в загадочный парк развлечений, где их ждут невероятные приключения, весёлые розыгрыши и, конечно же, аттракционы. Медведи найдут новых друзей и вместе с ними раскроют тайну парка.Производство: Китай | Fantawild AnimationЖанр: Мультфильм, комедия, фантастика, приключенияРежиссер: Дин ЛянАктеры: Чжан Вэй, Чжан Бинцзюнь, Тань СяоПеревод: Дублированный (Кинопоиск HD)Язык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 01:37:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDE5B9F7CB19052B2D5FD7909533B5F95C419EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502426   (827874) от 14.10.2021
-
-Журнал | Maxim [Россия] №10 (октябрь 2021) [PDF]
-
->>Журналы
->>Мужские журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827874.jpg" />
-</div>
-
-
-###  Подробнее
-
-Maxim является абсолютно уникальным журналом с неповторимым стилем и юмором, а количество великолепных женщин и качество съемок не оставляют другим журналам вообще никаких шансов стать лидерами. Журнал Maxim радует познавательными материалами из всех областей, доступных человеческому пониманию, а уж за пределами этого понимания журналу вообще нет равных.Жанр: Мужской журналФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54EBF00E74B4C8AE6DA458A71C5074DED1346E24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502330   (827873) от 14.10.2021
-
-Босс-молокосос / The Boss Baby (2017, 2021) BDRip [H.264/720p] [Дилогия]
-
->>Мультфильмы
->>Зарубежные Мультфильмы (коллекции, сборники / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_827873.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Босс-молокосос» (англ. The Boss Baby) — американский мультфильм режиссёра Тома Макграта, снятый по одноимённой книге Марлы Фрэйзи о мальчике Тиме, открывающем для себя заговор, который организовал директор компании «Пёсико», стремящийся уничтожить любовь во всём мире. Тиму предстоит объединиться с младшим братом, спасти родителей и сам мир. Роли озвучили Алек Болдуин, (   Читать дальше...   )Производство: США / DreamWorks AnimationЖанр: мультфильм, фэнтези, комедия, приключения, семейныйРежиссер: Том МакГратПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 01:37:30 / 01:47:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3B47B2C3790F030ACF435D3B41F1D79877A8B868
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039921   (827872) от 14.10.2021
-
-Жан де Флоретт / Jean de Florette (1986) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Первая часть экранизации романа Марселя Паньоля "Вода с холмов".
-Вернувшись с военной службы, молодой Юголен решил выращивать цветы, но гвоздикам нужна вода. Богатый дядюшка готов помочь племяннику в надежде, что тот продолжит его род. Он решил прикупить поле с родником у соседа-врага. Цепь событий, преступлений и затаенных надежд приводит к тому, что на (   Читать дальше...   )Производство: Франция, Швейцария, Италия, АвстрияЖанр: Драма, экранизацияРежиссер: Клод БерриАктеры: Ив Монтан, Жерар Депардьё, Даниель Отой, Элизабет Депардьё, Маргарита Лосано, Арман Меффр, Пьер Нугаро, Жан Морель, Роже Суза, Дидье ПэнПеревод: Профессиональный многоголосыйСубтитры: Русские, английскиеПродолжительность: 02:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9BB01A1138B6AC79005E39019D180AC753E93AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502407   (827871) от 14.10.2021
-
-Udemy, Connor Gerber | Game Ready Triple Barrel Hand Cannon [Blender 2.93, Substance Painter 6.2] (2021) PCRec [EN / EN Sub]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827871.jpg" />
-</div>
-
-
-###  Подробнее
-
-Здравствуйте, я хотел бы показать вам, как сделать готовый к игре пистолет с тремя стволами. Мы пройдем через весь процесс создания пистолета.
-Сначала мы создадим модель с UV развёрткой в Blender. Затем в Substance Painter создадим два варианта текстур. В конце мы вернёмся в Blender и сделаем финальные рендеры.Производство: UdemyЖанр: 3D моделированиеЯзык озвучки: АнглийскийСубтитры: Английские (отдельным файлом, формат SRT)Продолжительность: 05:24:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43F44D3F18FC3FF1B2123617B75E463436615701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502304   (827870) от 14.10.2021
-
-Босс-молокосос 2 / The Boss Baby: Family Business (2021) WED-DL [H.264/1080p]
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827870.jpg" />
-</div>
-
-
-###  Подробнее
-
-Продолжение семейной мультипликационной комедии 2017 года о высокоинтеллектуальных младенцах – сотрудниках небесной корпорации по «производству и выпуску» детей. Умники в пеленках, лишенные детства, снова внедряются в обычные семьи.Производство: США / DreamWorks AnimationЖанр: мультфильм, комедия, приключения, семейныйРежиссер: Том МакГратПеревод: Дублированный (Пифагор)Субтитры: русские, английскиеПродолжительность: 01:47:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE22973DAD0BCFE2856BB84FE8EC62BD4DB0458D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1502342   (827869) от 14.10.2021
-
-VA - Не спи за баранкой 5 (Музыка в машину) (2021) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_827869.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modern Talking - In 100 Years (Disco Dance Remix) (8:10)
-02. First Station - Make a Move (5:21)
-03. Joanne feat. Helena Paparizou - Twist In My Sobriety (DJ Suleimann IndaMix) (5:14)
-04. Victor Lou Gommez - Let's Make Noise (Extended) (5:02)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 05:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5798DEE5F53F4BD76518D727AC5FAE9A3299DA15
+magnet:?xt=urn:btih:481F69134873D5B8DABE899B931C55FF1A4412DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

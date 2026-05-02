@@ -1,3 +1,60 @@
+###  Публикация: 958572   (323960) от 21.11.2015
+
+Lettuce - Crush (2015) [FLAC|tracks|WEB-DL]<Funk, Jazz Fusion, Jam Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Force
+02. Get Greasy
+03. Chief
+04. 'Lude, Pt. 1(   Читать дальше...   )Жанр: Funk, Jazz Fusion, Jam BandПродолжительность: 01:06:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F3FF3A913837FFD6D33C63E2A56A505BCCDC838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181454   (323841) от 07.11.2017
+
+Phil Woods - Freedom Jazz Dance (1969) 1990, Moon Records [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stolen Moments [17:43]
+02. Freedom Jazz Dance [11:54]
+03. Alive and Well [12:05]Жанр: Post-BopПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA68FAFCA523BC428A514FD025178A9552572298
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181456   (323835) от 07.11.2017
 
 Teddy Wilson - Classic Jazz Archive: The Gentleman Of Swing (1934 - 1938) 2CD, 2004, Membran Music [FLAC|Lossless|image + .cue] <Swing, Piano Jazz>
@@ -687,64 +744,6 @@ Herb Ellis & Ray Brown - After You've Gone (1975) 1990, Concord[FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84D03D0B2D9519FCC0D928D40280C9DA8374829D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075435   (321168) от 22.11.2016
-
-Tsuyoshi Yamamoto Trio - Summertime (1976) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Like Someone In Love [08:39]
- 02.If You Could See Me Now [06:34]
- 03.Misty [07:51]
- 04.Summertime [07:59](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:46:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0F960A4B36D8603F8411E0B86A8306E173D8EC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582655   (320980) от 10.10.2022
-
-John McLaughlin And Mahavishnu - Adventures In Radioland (1993) [FLAC|Lossless|tracks + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Wait - 5:35
-02. Just Ideas - 2:00
-03. Jozy - 5:25
-04. Half Man - Half Cookie - 2:56(   Читать дальше...   )Жанр: FusionПродолжительность: 00:41:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CD473659AF5E303B6EADAA1A198A562B521767B
 ```
 
 https://mybot314.ru/tekegram_catalog/

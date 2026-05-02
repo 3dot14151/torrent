@@ -1,3 +1,61 @@
+###  Публикация: 1377458   (851837) от 22.04.2020
+
+Other Lives - For Their Love (2020) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Of Violence  [03:46]
+02. Lost Day  [02:55]
+03. Cops  [03:55]
+04. All Eyes / For Their Love  [06:04](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B76F2AF497BEB6B20EDA96398F93DB4C9B8A8546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515188   (851764) от 03.03.2017
+
+Jane's Addiction - Nothing's Shocking (1988) remastered, 2012, Audio Fidelity [FLAC|Lossless|image + .cue]<Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_851764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Up The Beach (3:01)
+02. Ocean Size (4:19)
+03. Had A Dad (3:45)
+04. Ted, Just Admit It... (7:22)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2986D22BE710454104BB603199EB89D2BEBDF2DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1001872   (850471) от 30.03.2016
 
 U2 - Staring at the Sun (1997) Single, Japanes Edition [FLAC|Lossless|tracks] <Electronic, Rock, Alternative Rock, Pop Rock>
@@ -686,64 +744,6 @@ Laura Marling - Short Movie (2015) [FLAC|Lossless]<Indie Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2BBA31E7D90470492B9CC66668FF5537E0DBF09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381096   (829846) от 05.05.2020
-
-Lovedrug - Turning Into Something You Were Never Meant To Be (2020) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829846.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bully Catcher [02:58]
-02. Vultures [03:42]
-03. Head Noise (Heart of Magic) [03:11]
-04. Black Wave [3:06](   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:41:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAB71FB1882F6FF2137936185BFD4908537BF1FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1381147   (829749) от 05.05.2020
-
-The Fratellis - Half Drunk Under a Full Moon (2020) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_829749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Half Drunk Under a Full Moon (05:34)
-02. Need a Little Love (03:49)
-03. Lay Your Body Down (03:48)
-04. The Last Songbird (04:01)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:42:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2207C7353DD2256EBDFA2B2E204C1803AD029C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

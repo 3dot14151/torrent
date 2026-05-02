@@ -1,3 +1,32 @@
+###  Публикация: 1516601   (165337) от 12.12.2021
+
+Старый Приятель - Время (2021) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Качай и веселись
+02. Рыжий лис
+03. Смелее
+04. Любовь(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AF60428F6F1924395967DC9DC2FBDFD35690E41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597788   (165203) от 16.12.2022
 
 виа ЭПИНЕФРИН - Хлам (2022) [FLAC|Lossless|WEB-DL|tracks] <Punk Rock>
@@ -721,41 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0D2F9A98052B4F68F543B6D9EC21706008DFDE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 22565   (160716) от 06.11.2023
-
-Крематорий - Трилогия (3CD) [Flac|Lossless] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160716.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трилогия, часть 1
-
-1. Таня
-2. Крематорий
-3. Крылатые слоны
-4. Хабибулин
-5. Кондратий
-6. Лепрозорий
-7. Кокаин
-8. Аутсайдер(   Читать дальше...   )Жанр: РокПродолжительность: 02:46:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:083760FAB2B55CF41254B28E8C344F81A7C26016
 ```
 
 https://mybot314.ru/tekegram_catalog/

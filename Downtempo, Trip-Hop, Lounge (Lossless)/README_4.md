@@ -1,3 +1,119 @@
+###  Публикация: 1463616   (1020304) от 19.04.2021
+
+VA - Lo-Fi City Vibes: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beamy - Colours (5:05)
+02. Patiotic, Lohbe - Dream Forest (2:10)
+03. Dellasollounge - Break My Mind (Original Mix) (3:11)
+04. G.Pantelidis - Hypnotic Poem (4:29)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:57:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35B5508A973758774717351EFE82DF4B2C58F3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464508   (1019794) от 22.04.2021
+
+VA - Midnight Voyage: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ann Grace - Vega (7:11)
+02. Matej Blanusa - Suomi (5:22)
+03. Beamy - Gawain (4:00)
+04. Charlie North - Patient (5:48)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:21:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D218834354EFC614D46CBEC252F2B25D39F19FA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465517   (1019155) от 26.04.2021
+
+Giriu Dvasios - Sunkus (2021) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub, Ambient, Dub Techno>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Medis (03:50)
+ 02. Plaukia (03:42)
+ 03. Ziema (04:20)
+ 04. Arti (04:15)(   Читать дальше...   )Жанр: Dub, Ambient, Dub TechnoПродолжительность: 00:53:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39614EBDDCE9F6938F2859D2CA581E157C84BF36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465854   (1018959) от 27.04.2021
+
+Michael E - Lost in Thought (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018959.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time (5:49)
+02 . Maybe This Time (feat Ashley Slater & Diego Porchile) (7:00)
+03. Happy Daze (3:42)
+04. Distant Lovers (5:12)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 00:59:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CD1F8228A748FE5D62E657A67C1AB79DADA6F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465825   (1018816) от 28.04.2021
 
 Michael E - With Open Arms (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
@@ -629,121 +745,6 @@ Krystian Shek | Tosa Inu - Discography 40 Releases (2003-2021) [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B9CC7B194FCC258DAF89E0EBABC2B6841DB57A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1228470   (1008056) от 04.07.2021
-
-All India Radio | Antecedent - Discography 87 Releases (1999-2021) Inevitable Recordings [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Day & Night (Five Eight Alt Version Unreleased) (02:26)
- 02. In the Sky (Unreleased Track) (03:11)
- 03. Spring Day (Unreleased Track) (02:56)
- 04. Four Three vs Galaxy of Light (Feat Selena Cross) (05:49)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient, Downtempo, Post Rock, Trip-Hop, Leftfield •Продолжительность: 58:21:37 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69167DE367C349F69C364832BD32155BA5DB30D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1482477   (1007616) от 08.07.2021
-
-VA - Watching the Sunset: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Butler - Blue Sky - Original Mix (2:58)
-02. Peter Pearson - Love Chills - Original Mix (5:58)
-03. The Soul Crusaders - Heroes (5:45)
-04. Mission Brown - Watching Clouds - Original Mix (6:02)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2416BC9860BF003EBB16DF1FA6B99F8E61D53358
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483060   (1007195) от 11.07.2021
-
-Baba Gnohm - Forgotten Stories (2021) [FLAC|Lossless|WEB-DL|tracks] <Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asia 3am (03:30)
- 02. Inside My Left Eye (05:29)
- 03. Sunken Dreams (04:21)Жанр: DowntempoПродолжительность: 00:13:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:963FEFA4382D69DB970457B3313BB105C45DFBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1483221   (1007008) от 12.07.2021
-
-Jim Brickman - Jim Brickman’s Piano Bar: 30 Love Songs Of The 50s and 60s (2021) [FLAC|Lossless|WEB-DL|tracks] <Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Me Tender (2:41)
-02. Secret Love (3:05)
-03. Moon River (3:13)
-04. All I Have To Do Is Dream (2:59)(   Читать дальше...   )Жанр: LoungeПродолжительность: 01:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57299D978E0A6380EDC584CA03902243B5E165D
 ```
 
 https://mybot314.ru/tekegram_catalog/

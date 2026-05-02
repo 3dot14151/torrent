@@ -1,3 +1,32 @@
+###  Публикация: 1708232   (113093) от 20.03.2024
+
+Джизус - Близнецы: Eros / Thanatos (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Москва [00:03:43]
+02. Привет [00:03:07]
+03. Временами всё пройдёт [00:04:56]
+04. Дыши со мной [00:03:55](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3850F57D0BD08B727A2267F06E341BB25C9A7709
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1708572   (113031) от 21.03.2024
 
 Digimortal - Белое знамя (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Industrial Metal>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B97204FAF3CE1D3639B979B0792F75D103E7D56D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717497   (111182) от 20.04.2024
-
-Бахыт-Компот - Бог, клубника и павлин (1999) [FLAC|Lossless|tracks + .cue] <Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Крабовые палочки
-02. Осень в поле рыскает
-03. Дылда
-04. Синие глаза(   Читать дальше...   )Жанр: Rock, PunkПродолжительность: 00:46:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B08939BAF534F4A8B3EDD524D7D92D608917B5BF
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1073155   (347946) от 15.11.2016
+
+VA - Desire To Live: Soulful Mix (2016) [MP3|192~320 Kbps] <Downtempo, Chillout, Lyric>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347946.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Al L Bo - Around The World (Laszlo Nikulin Remix) 4:53
+002. Delerium - Ghost Requiem (Original Mix) 5:45
+003. Soul Bossa Trio - Butterfly (Afro Mystik Remix) 9:30
+004. Jinco - Clocktower (Feat. Mia Vaile) 3:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LyricПродолжительность: 09:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4743296A089306A6410E65957E660F54302ACB83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1577816   (347927) от 22.09.2022
+
+VA - HarDD NRG OverDoZZe 10 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance, Hardstyle, Breaks>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Crystal Method - Keep Hope Alive (Trip Hope Mix) (CITY OF ANGELS,1995)
+02. Under This - Battlefield (Original Mix) (iBREAKS,2014)
+03. Under This - Let Yourself Go (Original Mix) (iBREAKS,2014)
+04. Arc In The Sky - Kissed (Narthex Remix) (DISCOVER DARK,2005)(   Читать дальше...   )Жанр: Trance, Hard Trance, Hardstyle, BreaksПродолжительность: 04:00:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E69D6D78072C603602BCAC625E640C279F000F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257130   (347371) от 25.10.2018
 
 VA - When Night Meets House (2018) [MP3|320 Kbps] <Club, Dance, House>
@@ -718,64 +776,6 @@ VA - Exotic Lounge: Relax Selection (2017) [MP3|320 Kbps] <Chillout, Lounge, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:023AA5F7CF8754E77F9559F25465324CC8E6F887
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418832   (344557) от 26.10.2020
-
-VA - Record Super Chart 659 (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rauf & Faik feat. NILETTO - Если тебе будет грустно (3:11)
-02. Bastard! - F..k That (3:38)
-03. Jason Derulo - Take You Dancing (3:10)
-04. Moses & EMR3YGUL & Alexiane - A Million On My Soul (Remix) (3:26)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:39:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A68F4EDF501191A61F37CD9C4C417BE524EF9BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418948   (344435) от 26.10.2020
-
-VA - Listen To Your Heart: Vocal House Session (2020) [MP3|257-320 Kbps] <Vocal House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344435.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Block & Crown - Can't Get You Out
-002. Kastomarin - Mindreader
-003. Vzxx - Want U More
-004. Slippy And Ash - Swing (Extended Mix)(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:17:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B2FAFCA11226E150F505502ABB79450FBB2158A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,22 +1,25 @@
-###  Публикация: 1850078   (1054269) от 26.01.2026
+###  Публикация: 1852667   (1055885) от 08.02.2026
 
-Н. Комолова, А. Клименко | Программирование на VBA в Excel 2019 (2020) [PDF]
+VA - Heavy Hardstyle 2026 - Maximum Rave Force (2026) [FLAC|Lossless|WEB-DL|tracks] <Hardstyle>
 
->>Компьютерная литература
->>нет
+>>Electronic
+>>Hardstyle, Jumpstyle, Hardcore (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054269.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055885.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга научит самостоятельно создавать приложения для автоматизации работы в программе Microsoft Office Excel 2019 с использованием макросов и языка программирования Visual Basic for Applications (VBA). Приведена информация о новинках программы, а также сервисах Power по работе с данными. Даны теоретические сведения о программировании, элементах объектной модели Excel, (   Читать дальше...   )Жанр: Компьютерная литература, ExcelИздательство: БХВ-ПетербургФормат: PDFКачество: Изначально электронное (ebook)
+01. Required - INTO IT (3:27)
+02. Diandra Faye - Final Call (3:07)
+03. IluSionerZ - Velvet Thunder (4:21)
+04. Fatal Menace - KEMIKAL (3:06)(   Читать дальше...   )Жанр: HardstyleПродолжительность: 01:59:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2A19FEFF4886410EF021BAAE64FA366A79F232FD
+magnet:?xt=urn:btih:5B0C91056AE7875E19790A14F0C3053F36054B38
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850064   (1054268) от 26.01.2026
+###  Публикация: 1852516   (1055884) от 11.02.2026
 
-Gregory Deckler, Rick de Groot, Melissa de Korte | The Definitive Guide to Power Query (M). Mastering complex data transformation with Power Query (2024) [PDF, EPUB] [EN]
+Три богатыря и свет клином (2025) WEBRip [H.264/1080p]
 
->>Компьютерная литература
->>нет
+>>Мультфильмы
+>>Отечественные Мультфильмы 21-го века (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054268.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055884.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Learn how to use the Power Query M formula language and its functions effectively for better data modeling and impactful business intelligence reports.
-Key Features
-Get comprehensive coverage of fundamental and advanced Power Query concepts
-Gain hands-on experience with practical examples based on real-world problems(   Читать дальше...   )Жанр: Microsoft Excel Guides, Enterprise Applications, Data ProcessingЯзык: АнглийскийИздательство: Packt PublishingФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Богатыри ждут пополнения в своих семействах, но отечество снова нужно спасать. Нагрянула невесть откуда взявшаяся огромная туча и грозит затмить весь белый свет и превратить день в ночь. Оставив дела семейные, богатыри бросаются навстречу опасности. А хитрый купец Колыван как будто этого и ждал — набрав себе в помощники злодеев из подручных Бабы Яги, он нападает (   Читать дальше...   )Производство: Россия, Кинокомпания CTB, Анимационная студия МельницаЖанр: мультфильм, комедия, приключенияРежиссер: Дарина ШмидтПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:11:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C8E971C9FB35A8FF269FD187DEB95FBF42EF7922
+magnet:?xt=urn:btih:6191B943ED1E46E25A75BDC1DB7F917ACE3FAB34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,25 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850208   (1054267) от 26.01.2026
+###  Публикация: 1852058   (1055883) от 08.02.2026
 
-Иллюзия обмана 3 / Now You See Me: Now You Don't (2025) WEB-DL [H.264/1080p]
+Количество просмотров видео на Rutube увеличилось в 3 раза в 2025 году
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054267.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055883.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Четыре всадника» возвращаются вместе с молодым поколением иллюзионистов, демонстрируя головокружительные трюки, магию и превращения, каких еще не видел мир.Производство: США, ОАЭ, Канада, Венгрия / Epic Films, Lionsgate Productions Ltd., Reese Wernick Productions, Summit EntertainmentЖанр: триллер, криминалРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Michael Chestnut, Дэйв Франко, Айла Фишер, Джастис Смит, Доминик Сесса, Ариана Гринблатт, Майкл Кейн, Розамунд Пайк, Морган Фриман, Доминик ОллбёрнПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Fоrced, Full), английские (Full, SDH)Продолжительность: 01:52:36
+По данным Аналитического центра Rutube, пользователи посмотрели видео на площадке суммарно 52,6 млрд раз в 2025 году. Рост по отношению к общей сумме просмотров за 2024 год составил 2,9 раза — 18,4 млрд просмотров.Суммарное количество просмотров продолжает расти. Так, уже в январе 2026 года показатель превысил 5 млрд, что больше результата за аналогичный месяц 2025 (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:52BA11D089E2B2DDB6C76B8E05BF59D59A546874
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -79,158 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850209   (1054266) от 26.01.2026
+###  Публикация: 1852246   (1055882) от 06.02.2026
 
-Иллюзия обмана 3 / Now You See Me: Now You Don't (2025) WEB-DL [H.264/720p]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054266.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Четыре всадника» возвращаются вместе с молодым поколением иллюзионистов, демонстрируя головокружительные трюки, магию и превращения, каких еще не видел мир.Производство: США, ОАЭ, Канада, Венгрия / Epic Films, Lionsgate Productions Ltd., Reese Wernick Productions, Summit EntertainmentЖанр: триллер, криминалРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Michael Chestnut, Дэйв Франко, Айла Фишер, Джастис Смит, Доминик Сесса, Ариана Гринблатт, Майкл Кейн, Розамунд Пайк, Морган Фриман, Доминик ОллбёрнПеревод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские (Fоrced, Full), английские (Full, SDH)Продолжительность: 01:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8830DADF7E622DAEA29E753EE8DC087FAB00212
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850211   (1054265) от 26.01.2026
-
-Иллюзия обмана 3 / Now You See Me: Now You Don't (2025) WEB-DLRip [H.264]
-
->>Горячие новинки
->>Зарубежные Новинки (SD, DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054265.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Четыре всадника» возвращаются вместе с молодым поколением иллюзионистов, демонстрируя головокружительные трюки, магию и превращения, каких еще не видел мир.Производство: США, ОАЭ, Канада, Венгрия / Epic Films, Lionsgate Productions Ltd., Reese Wernick Productions, Summit EntertainmentЖанр: триллер, криминалРежиссер: Рубен ФляйшерАктеры: Джесси Айзенберг, Вуди Харрельсон, Michael Chestnut, Дэйв Франко, Айла Фишер, Джастис Смит, Доминик Сесса, Ариана Гринблатт, Майкл Кейн, Розамунд Пайк, Морган Фриман, Доминик ОллбёрнПеревод: Дублированный (Пифагор)Язык озвучки: РусскийСубтитры: Русские (Fоrced, Full), английские (Full, SDH)Продолжительность: 01:52:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA5A5393B6103F36A43088DC855AA33C8AD5519E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850122   (1054264) от 27.01.2026
-
-Восемь / 8 (2025) WEBRip [H.264/1080p] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054264.jpg" />
-</div>
-
-
-###  Подробнее
-
-Октавио и Адела рождаются в момент провозглашения Второй Испанской Республики. Их жизни будут пересекаться восемь раз, отражая в непростой любви пары бурную историю всей Испании.Производство: Испания / Latido Films, Eidan Produce, Bilbao Bizkaia Film Commission, Barbazul La Pelicula AIE, Diputación Foral de Bizkaia, Media Gameworks, Morena Films S.L., Radio Televisión Española (RTVE), Movistar+Жанр: драмаРежиссер: Хулио МедемАктеры: Хавьер Рей, Тамар Новас, Лорето Маулеон, Карла Диас, Мария Исаси, Альваро МортеПеревод: Многоголосый (Официальный)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:01:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F7A634E8AA2FD28C885C7AABF4BD6B6A40BA4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850216   (1054263) от 26.01.2026
-
-Fast Video Cutter Joiner 6.9.7.0 Portable by 7997 [Multi/Ru]
-
->>Мультимедиа и Графика
->>Нелинейный Видеомонтаж, Авторинг, Кодировщики
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054263.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fast Video Cutter Joiner - программа 2-в-1 для быстрой резки и объединения видео с простым в использовании интерфейсом. Позволяет быстро обрезать части видео, сохраняя при этом качество исходного. Пользователь также может объединить несколько видеофайлов.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C540D06C00A96D7D821A51B5A9B20110017B6470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850221   (1054262) от 26.01.2026
-
-VA - Winter Drive On FM Waves (2026) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054262.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ezra Jot - Bang O Bang (03:31)
- 002. Little Rainy - Be Closer (03:01)
- 003. Paul B.Ny - Clouds In My Coffee (02:05)
- 004. George Mars - Crown On (02:41)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0764271979D9E17BEADF535E9402E2E3DB346AD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850225   (1054261) от 26.01.2026
-
-Роберт Хайнлайн | Вне всяких сомнений (2026) [MP3, ReadMic]
+Аркадий и Борис Стругацкие | Человек из Пасифиды (2025) [MP3, ReadMic]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054261.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ещё одна тайна раскрыта! Ничто не скроется от взгляда учёных, обладающих пытливым умом. Наконец-то можно выдохнуть и сказать: "Теперь-то мы знаем секрет голов истуканов с острова Пасхи!".Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:30:26
+Как-то раз на японском побережье, недалеко от американской военной базы в грохоте и пламени возник Железный Человек. Большой стальной гость тут же был окружён местными жителями, американскими и японскими военными. С помощью переводчика удалось узнать, что он является представителем древнего и высокоразвитого народа, живущего в глубинах океана...Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 01:01:14
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6040811E230D18ADB0D324D29485531FD7C498E5
+magnet:?xt=urn:btih:A1749F388BC8937F2B55BFF450F859EA34AE0B04
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -238,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850228   (1054260) от 26.01.2026
+###  Публикация: 1852231   (1055881) от 06.02.2026
 
-Melissa Bonny - Cherry Red Apocalypse (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal>
+Незнакомцы: Часть третья / The Strangers: Chapter 3 (2026) Telecine [H.264/1080p] [звук с TS] [AD]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Горячие новинки
+>>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054260.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'm a Monster [00:03:15]
-02. Snake Bite [00:03:25]
-03. Devil On My Tongue [00:03:18]
-04. The Teeth Of My Thieves [00:03:56](   Читать дальше...   )Жанр: Alternative-MetalПродолжительность: 00:45:19
+В финале «Strangers» выжившие сталкиваются с новыми угрозами от незнакомцев в масках. На свет всплывают тайны, ставя их жизни под угрозу, и в их борьбе за выживание размывается грань между реальностью и смертельной опасностью.Производство: США / Fifth Element Productions, Elipsis Capital, Filmframe S.R.O.Жанр: ужасыРежиссер: Ренни ХарлинАктеры: Мэделин Петш, Ричард Брейк, Дженис Ахерн, Стефани Обертен, Гэбриел Бассо, Кайл Харрисон Брейткопф, Элла Брукколери, Бен Картрайт, Nicholas Chaif, Finn CofellПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:58Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BDCFB7F016419843FE5E3A35F5554AFBFDD242FB
+magnet:?xt=urn:btih:259FE28EEF2E52C17F16D82AB2AF167B2D127F7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -267,25 +131,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850232   (1054259) от 26.01.2026
+###  Публикация: 1852232   (1055880) от 06.02.2026
 
-Проекты - VideoHive - Camera Movement Transitions - 61545525 [AEP]
+Незнакомцы: Часть третья / The Strangers: Chapter 3 (2026) Telecine [звук с TS] [AD]
 
->>Проекты
->>Элементы (проекты)
+>>Горячие новинки
+>>Экранки с рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054259.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Поднимите свои видеопроекты на новый уровень с помощью шаблона Camera Movement Transitions — профессионально разработанного видеошаблона, созданного для получения потрясающих визуальных результатов с минимальными усилиями. Этот шаблон создан с учетом гибкости и простоты использования, что делает его подходящим для создателей любого уровня — будь вы создатель контента, (   Читать дальше...   )Формат: AEP
+В финале «Strangers» выжившие сталкиваются с новыми угрозами от незнакомцев в масках. На свет всплывают тайны, ставя их жизни под угрозу, и в их борьбе за выживание размывается грань между реальностью и смертельной опасностью.Производство: США / Fifth Element Productions, Elipsis Capital, Filmframe S.R.O.Жанр: ужасыРежиссер: Ренни ХарлинАктеры: Мэделин Петш, Ричард Брейк, Дженис Ахерн, Стефани Обертен, Гэбриел Бассо, Кайл Харрисон Брейткопф, Элла Брукколери, Бен Картрайт, Nicholas Chaif, Finn CofellПеревод: Дублированный (звук с TS)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:33:58Реклама: Присутствуют вставки аудио и видео рекламы, баннер.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95D41584F96D583CE72644B08F5B72CF11680557
+magnet:?xt=urn:btih:655C9D097C64F1CABDC0727DB5F791E90D66963C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -293,25 +157,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850235   (1054258) от 26.01.2026
+###  Публикация: 1851451   (1055879) от 06.02.2026
 
-Растровый клипарт - Adobe Stock - Vintage Lambs & Lambaders Isolated Transparent #2 [PNG]
+Дмитрий Кетов | Внутреннее устройство Linux, 3-е издание (2024) [PDF] [RU]
 
->>Материалы для мультимедиа и дизайна
->>Растровый клипарт (фото)
+>>Компьютерная литература
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054258.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-29 стоковых изображений с лампами из Adobe Stock. Оригинальные названия сохранены.Формат: PNGРазрешение файлов: 4128x1152 - 9977x5779
+В 3-м издании описаны механизмы принудительного разграничения доступа и контроля целостности, уникальные для российского защищенного дистрибутива Astra Linux и операционных систем в целом.  Учтены последние изменения в компонентах ОС и обновлены листинги примеров. Расширена глава про сетевую подсистему, добавлена глава по современным средствам трассировки, измерения (   Читать дальше...   )Жанр: Компьютеры и программыЯзык: РусскийИздательство: БХВФормат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48D4296A8D25C9F866E8B0BB504BC38A6AF5691F
+magnet:?xt=urn:btih:87397BBB729AA1C91988815271F35071E25FF95F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -319,25 +183,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850218   (1054257) от 26.01.2026
+###  Публикация: 1852248   (1055878) от 06.02.2026
 
-Сайлент Хилл 2 / Silent Hill: Revelation (2012) BDRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [hand made Upscale AI]
+Парень-каратист / The Karate Kid (1984) BDRip [AV1/2160p] [4K, SDR, 10-bit] [hand made Upscale AI]
 
 >>Остальное
 >>hand made * video
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054257.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055878.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хизер терзается ночными кошмарами с одиннадцатилетнего возраста и вынуждена со своим отцом постоянно менять место жительства, скрываясь от таинственных сил. Накануне своего восемнадцатого дня рождения Хизер, вернувшись домой, обнаруживает, что её отец исчез. Единственное, что она нашла дома — нарисованный на стене оккультный символ с надписью «отправляйся в Сайлент (   Читать дальше...   )Производство: Канада, Франция, Япония / Anibrain Digital Technologies, KonamiЖанр: ужасы, триллер, детективРежиссер: Майкл Дж. БассеттАктеры: Аделаида Клеменс, Кит Харингтон, Дебора Кара Ангер, Мартин Донован, Малкольм МакДауэлл, Кэрри-Энн Мосс, Шон Бин, Рада Митчелл, Роберто Кампанелла, Эрин Питт и др.Перевод: Дублированный (Пифагор)Язык озвучки: Русский, английскийСубтитры: Русские, английские (full, SDH)Продолжительность: 01:34:30
+В одной из школ Лос-Анджелеса появляется новичок - тинэйджер по имени Дэниел. Он прибыл с восточного побережья вместе со своей матерью. Нелегко завести друзей на новом месте, где ты не знаешь никого, а тем более в школе, где управляет жестокая банда каратистов.
+
+Несмотря на свой юный возраст, члены банды очень опасны. Они называют себя Кобрами и жестоко «жалят» каждого, (   Читать дальше...   )Производство: США / Columbia Pictures Corporation, Delphi IIЖанр: драма, спорт, семейныйРежиссер: Джон Г. ЭвилдсенАктеры: Ральф Маччио, Пэт Морита, Элизабет Шу, Мартин Коув, Рэнди Хеллер, Уильям Забка, Рон Томас, Роб Гэррисон, Чэд МакКуин, Тони О’Делл и др.Перевод: Дублированный (Варус-Видео), многоголосый (РенТВ), одноголосый (В. Горчаков)Язык озвучки: Русский, английскийСубтитры: Русские, английские (full, SDH), немецкие, испанские (PGS)Продолжительность: 02:06:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:255D807E78821ABCB4D62312E1D6DBFC9D8C2760
+magnet:?xt=urn:btih:5225DCBE31E14A97EAEFEBB30D517276A11C113C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -345,51 +211,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849854   (1054256) от 26.01.2026
+###  Публикация: 1852195   (1055877) от 06.02.2026
 
-Он наблюдает за тобой / He's Watching You (Black Spines) (2026) WEBRip [H.264/1080p] [MVO] [AD]
-
->>Горячие новинки
->>Новинки с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Подросток, расследующий череду загадочных убийств в своём маленьком городке, находит коллекцию VHS-кассет, которые могут пролить свет на личность печально известного серийного убийцы.Производство: США / Palm Drive Productions, Amasia Entertainment, Palm Drive ProductionsЖанр: ужасы, триллерРежиссер: Джордон ФоссАктеры: Элизабет Ю, Кая Розенталь, Ванесса Рубио, Джанни ДеЧенцо, Кевин Портер, Ян Луис Кастельянос, Гэвин Дж. Коноп, Николь Элизабет Бергер, Тиана Ле. Гилберт Овуор, Брэндон Мелом, Кейси МиллсПеревод: Многоголосый профессиональный (MUZOBOZ)Язык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:43:32Реклама: присутствуют аудио и видео вставки рекламы, баннер
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CA6648340D2BC64D1A631A9FF27B48F1659F02C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850224   (1054255) от 26.01.2026
-
-В августе 44-го (2001) BDRip [H.264/1080p]
+Тарас Бульба (2009) WEBRip [H.264] [Полная версия]
 
 >>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054255.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055877.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Лето 1944 года. Белоруссия уже освобождена, однако с её территории регулярно выходит в эфир группа лазутчиков, передавая врагам важную информацию о советских войсках. На поиски шпионов в район запеленгованной рации отправляется отряд во главе с офицером СМЕРШа.Производство: Россия, Беларусь / Министерство культуры Республики Беларусь, БеларусьфильмЖанр: военный, детектив, боевик, драма, историяРежиссер: Михаил ПташукАктеры: Евгений Миронов, Владислав Галкин, Юрий Колокольников, Беата Тышкевич, Алексей Петренко, Александр Феклистов, Рамаз Чхиквадзе, Александр Балуев, Ярослав Бойко, Анджей Печиньски и др.Субтитры: русскиеПродолжительность: 01:45:03
+Действие разворачивается в сложный период истории казачества, когда запорожцы боролись с Речью Посполитой. В пучине этих событий глубокую личную драму переживает казак Тарас Бульба: его младший сын, Андрий, полюбил прекрасную дочь польского воеводы и хочет бежать из Сечи. Раздираемый чувством и долгом Тарас объявляет сыну последнюю родительскую волю…Производство: Россия / АРК-фильм, Централ Партнершип, Канал РоссияЖанр: боевик, драма, военный, историяРежиссер: Владимир БорткоАктеры: Богдан Ступка, Игорь Петренко, Владимир Вдовиченков, Магдалена Мельцаж, Любомирас Лауцявичюс, Ада Роговцева, Михаил Боярский, Сергей Дрейден, Юрий Беляев, Лесь Сердюк и др.Субтитры: отсутствуютПродолжительность: 02:31:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CCAB9BF803E20038D8DE2C37E6510C023318A12E
+magnet:?xt=urn:btih:04695482757316C2A401DD4CCFDB897F5A24A11D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -397,25 +237,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850240   (1054254) от 26.01.2026
+###  Публикация: 1852175   (1055876) от 06.02.2026
 
-YT Downloader 10.1.8 [En]
+4K Video Downloader + 26.0.2.0282 [Multi/Ru]
 
->>Утилиты, Офис, Интернет
->>ПО для Интернета и сетей
+>>Программы для macOS
+>>Плееры, конвертеры, кодеки для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054254.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055876.jpg" />
 </div>
 
 
 ###  Подробнее
 
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Английский
+Простой загрузчик видео, ничего лишнего. Видеохостинги сделали просмотр видео удобным и повсеместно доступным, но есть и очевидные минусы. Сейчас ролик на месте, а через час его удалят. Ваш друг из Европы может посмотреть запись, а для России она недоступна. Сегодня у вас есть «Интернет», а завтра планируется поездка в глушь без малейшего намёка даже на 3G. В общем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05.02.2026Разработчик: © 2024 OpenMedia OOOПоддерживаемая ОС: macOS (12+)Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F764AB80AA39981F7EF2E4D277505F3D8BAC2321
+magnet:?xt=urn:btih:49F3106E72C663039F527E9A1BBE6C29DE5C5FD2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -423,57 +263,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850243   (1054253) от 26.01.2026
+###  Публикация: 1852238   (1055875) от 06.02.2026
 
-Alexander Rybak - Fairytales (2009) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roll with the Wind [00:03:34]
-02. Fairytale [00:03:03]
-03. Dolphin [00:04:15]
-04. Kiss and Tell [00:03:21](   Читать дальше...   )Жанр: PopПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:208987B9D52D14FABBF021276DED791715D94FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850236   (1054252) от 26.01.2026
-
-T-4-2 - ReSynth (2026) [FLAC|Lossless|WEB-DL|tracks] <Synthpop, Futurepop, Retrowave, Electropop>
+Lost Frequencies - Tomorrowland Friendship Mix (2026-02-05) [MP3|320 Kbps] <Melodic House, Techno>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054252.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055875.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Images of Heaven [00:03:31]
-02. Cars [00:04:28]
-03. Heartbreak Hotel [00:04:26]
-04. Make a Circuit with Me [00:03:37](   Читать дальше...   )Жанр: Synthpop, Futurepop, Retrowave, ElectropopПродолжительность: 00:43:05
+01. Lost Frequencies & CIEL. & Radio Cargo - Listen To Me
+02. Lost Frequencies & Argy ft. rhys from the sticks - Summer Skies (Lost Frequencies Deluxe Mix)
+03. MEDUZA - No Sleep
+04. Delta Vaults & Jordan Arts - Drowning(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 01:00:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:064D409D79C39D8350E71B5C12C504607C3393B7
+magnet:?xt=urn:btih:0B23DD34D49AFFFFC8EA067F15605AFAFB4D0A5C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,25 +292,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850234   (1054251) от 26.01.2026
+###  Публикация: 1852250   (1055874) от 06.02.2026
 
-Daniel J. Barrett | Responsible Software Engineering. With Real-World Case Studies from Google (2025) [PDF, EPUB] [EN]
+Ксения Баштовая, Виктория Иванова | Тёмный принц (Книги 1-5) (2025) [MP3, Анастасия Болотина]
 
->>Компьютерная литература
->>нет
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054251.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Today's software applications need more than a friendly interface and correct algorithms. They also need to be responsible: to be beneficial for society and not cause harm. In an era of AI chatbots, deep fake images and videos, social media bubbles, expanding privacy regulations, and a warming planet, it's more important than ever to practice responsible software (   Читать дальше...   )Жанр: Business Ethics, Environmental Economics, Software DevelopmentЯзык: АнглийскийИздательство: O'Reilly MediaФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Все произведения цикла «Темный принц» в одном томе (3 романа+2 рассказа).
+Младший сын Темного Властелина сбегает учиться в Светлые земли, прихватив с собой команду пленных героев.
+Ироничное фэнтези о приключениях юного аристократа, жаждущего доказать свою самостоятельность.
+Что делать, если ты самый младший сын Темного Властелина, тебе уже целых семнадцать лет, а (   Читать дальше...   )Жанр: Приключенческое фэнтези, ироническое фэнтезиИздательство: Аудиокнига (АСТ)Продолжительность: 33:07:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F22F7796CB0845CB2118F37FFB8DA13E3289968D
+magnet:?xt=urn:btih:EAF34CB147ACD93828F812E06E1FCE92ADFE5CD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,26 +321,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850233   (1054250) от 26.01.2026
+###  Публикация: 1852247   (1055873) от 06.02.2026
 
-Иосиф Дзеранов | Алгоритмы поиска и сортировки (2025) [PDF]
+Дмитрий Видинеев | Жучиный пустырь (2025) [MP3, Алекс Зборовский]
 
->>Компьютерная литература
->>нет
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хотите стать хорошим программистом? Начните с алгоритмов! Эффективный код и решение любых практических задач основываются именно на них. Эта книга - практическое руководство по алгоритмам для программистов, готовящихся к собеседованиям и стремящихся углубить свои знания.
-Иосиф Дзеранов - опытный разработчик, преподаватель и автор ряда популярных курсов. В этой книге (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: АСТФормат: PDFКачество: OCR
+Садовник Вениамин жил тихо, проблем избегал, на хамство отвечал молчанием и очень надеялся прожить так до конца своих дней. Но увы - на пути повстречался странный, не признающий никаких правил тип по имени Медовар, который с помощью мистических жуков способен творить чудеса. И началась у скромного садовника иная жизнь – жизнь, полная авантюр. Жизнь, похожая на нескончаемый (   Читать дальше...   )Жанр: Фэнтези, Мистика, УжасыИздательство: Аудиокнига своими рукамиПродолжительность: 10:25:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7C711ABCAD3976260C61AA3A3613F2C0A4A1A980
+magnet:?xt=urn:btih:BD139517585131E1EBCA2C72583FB4B8ED26DB33
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -534,28 +347,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850231   (1054249) от 26.01.2026
+###  Публикация: 1852245   (1055872) от 06.02.2026
 
-Alexander Rybak - Fairytales Too (2026) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+Алексей Константинов | По ту сторону 13 рассказов (Книга 2). Больничка (2025) [MP3, Алекс Зборовский]
 
->>Pop
->>Pop (Hi-Res)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054249.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lindy Hop [00:02:53]
-02. Rise [00:03:17]
-03. The Breakup [00:04:25]
-04. Just a Closer Walk With Thee [00:04:09](   Читать дальше...   )Жанр: PopПродолжительность: 00:31:06
+Студент-пятикурсник Юра Шевелёв начинает собирать материалы о городской психиатрической больнице, которая "прославилась" на весь город в семидесятые из-за скандальной истории с гибелью сразу нескольких пациентов. Оказывается, что отец его хорошей подруги Пётр Гаврилович работал в тот период времени санитаром в той больнице. Нарушив данное подруге обещание (   Читать дальше...   )Жанр: Мистика, УжасыИздательство: Аудиокнига своими рукамиПродолжительность: 04:03:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DB58A0B8E838EDC0E50379DD80DF236A135EB7C2
+magnet:?xt=urn:btih:0577C5E0B68AB6ABAA335D48D0CB28E671DD9634
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -563,26 +373,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850219   (1054248) от 26.01.2026
+###  Публикация: 1852237   (1055871) от 06.02.2026
 
-Mark Liu | Build a Text-to-Image Generator (from Scratch). With transformers and diffusions (2026) [PDF] [EN]
+Анна Пронина | Ленка и мертвецы (Книга 1). Ленка и мертвецы: истории о потустороннем (2024) [MP3, Софья Лебедева, Кирилл Радциг]
 
->>Компьютерная литература
->>нет
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054248.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This book takes you step-by-step through creating your own AI models that can generate images from text. You’ll explore two methods of image generation—vision transformers and diffusion models—and learn vital AI development techniques as you go.
-Dive into the powerful models behind AI image generators. The best way to learn is to build something from scratch, and (   Читать дальше...   )Жанр: Computer Vision & Pattern Recognition, Computer Neural Networks, Computer ScienceЯзык: АнглийскийИздательство: ManningФормат: PDFКачество: Изначально электронное (ebook)
+Как договориться с покойником? 13 историй о ясновидящей из русской глубинки
+Ленка — обычная деревенская девушка… с даром медиума. Она связывает собой сразу два мира — земной и потусторонний, и помогает мертвым обрести покой, а живым возвращает мирный сон. И хотя Ленка убеждена, что этот дар приносит ей одни неприятности, именно благодаря ему она раскрывает преступления, (   Читать дальше...   )Жанр: Мистика, ХоррорИздательство: ВИМБОПродолжительность: 08:31:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:66C485089D00B1DAC4A7E7AC009A9F0C49A10AAB
+magnet:?xt=urn:btih:6D6FDDA4C2844A00E382CF6963D7CB20C57D75AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -590,26 +400,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850222   (1054247) от 26.01.2026
+###  Публикация: 1852225   (1055870) от 06.02.2026
 
-Sanath Raj B Narayan, Nitin Agarwal | Mastering LangChain. A Comprehensive Guide to Building Generative AI Applications (2025) [PDF, EPUB] [EN]
+Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, In Search Of Sunrise, HERE at Outernet London (2026-02-05) [MP3|320 Kbps] <Trance, Techno>
 
->>Компьютерная литература
->>нет
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054247.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-This book provides a comprehensive exploration of LangChain, empowering you to effectively harness large language models (LLMs) for Gen AI applications. It focuses on practical implementation and techniques, making it a valuable resource for learning LangChain.
-The book starts with foundational topics such as environment setup and building basic chains, then delves (   Читать дальше...   )Жанр: Artificial Intelligence, Python Programming, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+01. Markus Schulz x BLR - Ten Seconds Before Sunrise
+02. Robert Nickson pres. RAHB - Heliopause 2025
+03. Markus Schulz & Matt Fax - The New World
+04. Markus Schulz - Remember This (ID Remix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:00:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B53CAEC1574481AF306BC0E060197AD53591CDE7
+magnet:?xt=urn:btih:20BD10CDB48059921378A0493B1E34741AA52E56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -617,26 +429,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850227   (1054246) от 26.01.2026
+###  Публикация: 1852223   (1055869) от 06.02.2026
 
-Chien-Lung Kao | CPython. A Complete Guide to CPython's Architecture and Performance. First Edition (2025) [PDF, EPUB] [EN]
+Полина Минк | Кто позвал меня (2024) [MP3, Танья Мун]
 
->>Компьютерная литература
->>нет
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054246.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Deep Dive CPython explores the internal mechanics of CPython, the widely used Python interpreter written in C. Starting with a practical guide on downloading and compiling the CPython source, this book is perfect for developers eager to understand Python’s behaviour at a fundamental level.
-The book takes readers from basic concepts to complex details with a systematic (   Читать дальше...   )Жанр: Python Programming, Computer Programming LanguagesЯзык: АнглийскийИздательство: ApressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+После аварии, унесшей жизни родителей Эммы пять лет назад, часть событий безвозвратно выпала из памяти. Теперь девушку еженочно преследуют странные пугающие сны. Она не теряет надежды вернуться к нормальной жизни в новом городе. Но внезапно ей звонит старшая сестра, с которой Эмма давно не общалась. Наташа умоляет ее вернуться в поселок Синяя Заводь как можно скорее, (   Читать дальше...   )Жанр: Мистика, ТриллерИздательство: ЛитРесПродолжительность: 07:02:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B8DEFE1FF2945D8BD2E987D95003C443B109A2E3
+magnet:?xt=urn:btih:CC9392BB5D4AE01D121087DDE2770AC17C2FEA24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -644,28 +455,217 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850230   (1054245) от 26.01.2026
+###  Публикация: 1852218   (1055868) от 06.02.2026
 
-Giovanni Volpe, Benjamin Midtvedt, Jesus Pineda и др. | Deep Learning Crash Course (2026) [PDF, EPUB] [EN]
+Дмитрий Дорничев | Возвращение Великого. Я – великий друид которому 400 лет! (Том 1) (2025) [MP3, Вячеслав Булавин]
 
->>Компьютерная литература
->>нет
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054245.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055868.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Build AI Models from Scratch (No PhD Required)
+Боги затеяли игру: один создал демонов, другой призвал героев. Условия были просты – если герои победят демонов, то в реальном мире их жизни будут спасены; если нет, они умрут от смертельных ран. Но что делать, если герои переругались между собой, а владыка демонов оказался слишком сильным? Импровизировать… И будучи последним выжившим, наш герой побеждает зло и возвращается (   Читать дальше...   )Жанр: фантастика, боевик, РеалРПГ, попаданцыИздательство: ЛитРесПродолжительность: 11:13:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FFE3890A695A9DC16628E28CB2DF126D16273B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852219   (1055867) от 06.02.2026
+
+Дмитрий Дорничев | Возвращение Великого. Я – великий друид которому 400 лет! (Том 2) (2025) [MP3, Вячеслав Булавин]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Боги затеяли игру: один создал демонов, другой призвал героев. Условия были просты – если герои победят демонов, то в реальном мире их жизни будут спасены; если нет, они умрут от смертельных ран. Но что делать, если герои переругались между собой, а владыка демонов оказался слишком сильным? Импровизировать… И будучи последним выжившим, наш герой побеждает зло и возвращается (   Читать дальше...   )Жанр: фантастика, боевик, РеалРПГ, попаданцыИздательство: ЛитРесПродолжительность: 08:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA27028723FC543BA8DB40D693D20B72A1B59785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852240   (1055866) от 06.02.2026
+
+Анна Пронина | Ленка и мертвецы (Книга 2). Ленка в Сумраково. Зов крови (2025) [MP3, Лебедева Софья, Григорий Перель, Кирилл Радциг и др.]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Она спряталась ото всех — но тёмный дар её не отпустит. Атмосферный фолк-хоррор
+На первый взгляд, Ленка Лебедева — обычная девушка из деревни Клюквино. Но ее дар — видеть неупокоенные души — стал настоящим проклятием, особенно когда она влюбилась в городского следователя Володю. Судьба преподнесла ей горький выбор: сохранить жизнь любимому или быть с ним рядом. Узнав (   Читать дальше...   )Жанр: Мистика, ХоррорИздательство: ВИМБОПродолжительность: 10:07:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0D596C6680A82D6CCE28D89F284BB47620FDAD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852256   (1055865) от 06.02.2026
+
+VA - The Orient Collective: Desert Moon (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania - Zen Garden (5:17)
+02. Tibetania - Amulet (MI.LA Remix) (5:38)
+03. Tibetania - Mahoya (4:10)
+04. Tibetania - Caladan (5:22)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD3164B7BBDB01E8E0056B4DF4117BD3E449227D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852165   (1055864) от 06.02.2026
+
+Лев Вершинин | Преступная история США. Статуя кровавой свободы (2026) [MP3, Сергей Антипов]
+
+>>Художественные аудиокниги и публицистика
+>>Публицистика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055864.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга проливает свет на самые темные и постыдные страницы американской истории, которые обычно замалчивает «свободная пресса». Этот бестселлер разоблачает кровавую «американскую мечту», восстанавливая правду о преступном прошлом США. Как «денежные мешки», сколотившие состояния на контрабанде и работорговле, спровоцировали «Американскую революцию» и «Войну за (   Читать дальше...   )Жанр: Публицистика, ИсторияИздательство: Аудиокнига своими рукамиПродолжительность: 12:17:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AD41C18C2CC0629A42F89CA62FBB755CBC9F6EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852143   (1055863) от 06.02.2026
+
+Кевин Левинсон | Интересные факты о человеке, или Все, что вы не знали о себе (2014) [MP3, Станислав Иванов]
+
+>>Обучающие аудиоматериалы
+>>Прочие обучающие аудиоматериалы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055863.jpg" />
+</div>
+
+
+###  Подробнее
+
+От чего зависит цвет глаз?
+Какие народы не любят целоваться?
+Что такое веснушки?
+Ответы на эти и другие вопросы вы найдете в книге «Интересные факты о человеке, или Всё, что вы не знали о себе»! Вы узнаете много необычного о собственном организме. Поймете, почему некоторые люди нас привлекают, а другие, наоборот, отталкивают. И выясните, зачем человеку нужна ложь. (   Читать дальше...   )Жанр: Учебная и научно-популярная литератураИздательство: АВ ПаблишингПродолжительность: 01:28:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2821258E96E90D69B74FB4BE1EFE02FF9742171B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852141   (1055862) от 06.02.2026
+
+Хесус Ларринага | Я и мои эмоции: Как понять и принять свои чувства (2025) [MP3, Игорь Богданов]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055862.jpg" />
+</div>
+
+
+###  Подробнее
+
+Представьте, что ваши эмоции подобны внутренним погодным условиям: иногда они ясные и солнечные, иногда – облачные или бурные. В своей аудиокниге «Я и мои эмоции» психолог Хесус Ларринага предлагает научиться прогнозировать и даже контролировать эту «погоду», чтобы не попадать в зависимость от неожиданных эмоциональных штормов. Ларринага, обладающий более чем 15-летним (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 07:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B883AA253B1ACB5C68E5F5C77D5BDCA215EE057
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852061   (1055861) от 06.02.2026
+
+Алексей Ковтунов | Цикл "Дед. Ветеран хаоса" [1 книга] (2025-2026) [FB2] [Обновляемая]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055861.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сто шесть лет... Война от Москвы до Берлина, века в царстве хаоса. И вот теперь дряхлое тело профессора истории в мире, где магия заменила технологии.
 
-Deep Learning Crash Course is a fast-paced, thorough introduction that will have you building today’s most powerful AI models from scratch. No experience with deep learning required!
-(   Читать дальше...   )Жанр: Computer Programming Structured Design, Artificial Intelligence & SemanticsЯзык: АнглийскийИздательство: No Starch PressФормат: PDF, EPUBКачество: Изначально электронное (ebook)
+Враги уничтожили род, убили сына, травят внучку. Да и сам предшественник не лучше, довел дом до убогого состояния, загнал семью в долги, так еще и позволял всем подряд вытирать об себя ноги.
+(   Читать дальше...   )Жанр: Попаданцы в магические миры, Бояръ-Аниме, Городское фэнтезиИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:17D159122804CABF173A6BF968469B9052531CFF
+magnet:?xt=urn:btih:AEABE1C67C2ED1AF7E3B0D582CCE6F4A33E7FDD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -673,25 +673,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850229   (1054244) от 26.01.2026
+###  Публикация: 1852268   (1055860) от 06.02.2026
 
-Паоло Феррагина | Разработка алгоритмов. Инженерный подход (2026) [PDF]
+Adobe Acrobat Pro 2025.001.21184.0 (x86/x64) Portable by 7997 [Multi/Ru]
 
->>Компьютерная литература
->>нет
+>>Утилиты, Офис, Интернет
+>>Офисное ПО
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054244.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055860.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Большинство книг об алгоритмах фокусируются на нотации «О большое» и основных принципах проектирования, однако эта книга предлагает уникальный подход, выводя разработку и анализ на уровень предсказуемой практической эффективности. В ней обсуждаются базовые и классические алгоритмические задачи, возникающие при создании приложений больших данных, для которых демонстрируются (   Читать дальше...   )Жанр: Компьютерная литератураИздательство: Спринт БукФормат: PDFКачество: Изначально электронное (ebook)
+Acrobat Pro — это полностью обновленная настольная версия лучшего в мире решения для работы с файлами PDF. В состав этого решения входит мобильное приложение, позволяющее подписывать и отправлять файлы PDF, а также заполнять формы с любых устройств. А с помощью облачных сервисов Document Cloud вы сможете создавать, экспортировать, редактировать и отслеживать файлы (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C12388D7F382D881214B98465CC6094E8B8D110F
+magnet:?xt=urn:btih:9CA0E235A06DC931E5B977560488BF95A76E54FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

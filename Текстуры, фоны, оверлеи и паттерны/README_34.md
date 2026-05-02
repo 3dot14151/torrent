@@ -1,3 +1,30 @@
+###  Публикация: 1802706   (14202) от 18.06.2025
+
+Текстуры - Veila - Metal Flow - Envato - Liquid Metal Background Textures - 6XM23SU [JPG, PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14202.jpg" />
+</div>
+
+
+###  Подробнее
+
+Металлические текстуры в трех цветовых вариациях.
+Материал раздаётся с официальной документацией.Формат: JPG, PSDРазрешение файлов: 4500 x 3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A13DAFD1F4B5B080F92C7775D967F17D994D253A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802587   (14197) от 18.06.2025
 
 Фоны - kaleriia - Envato - Black Hair Backgrounds - HRJZC2F [JPG]
@@ -641,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4A0FE3446BCC297145F06ADA4644A532D15F678
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1805128   (12529) от 04.07.2025
-
-Фоны - Envato - Dendra Halftone Backgrounds - M4UC6JL [JPG]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12529.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция полутоновых органических фонов.Формат: JPGРазрешение файлов: 5000x3500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:656188FB407488DC410CD3192BA206D405D39230
 ```
 
 https://mybot314.ru/tekegram_catalog/

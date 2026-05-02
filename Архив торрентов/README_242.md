@@ -1,3 +1,56 @@
+###  Публикация: 1351559   (1001855) от 11.01.2020
+
+StartIsBack++ 2.9.0 RePack by D!akov [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001855.jpg" />
+</div>
+
+
+###  Подробнее
+
+StartIsBack++ возвращает в Windows 10 полнофункциональную кнопку запуска меню Пуск, такую же как и в Windows 7. Восстанавливает оригинальное стартовое меню Windows 7 со всеми его возможностями: поиск, перетащить, вставить, недавно использованные приложения. Можно изменить внешний вид меню Пуск, в том числе выбрать другую иконку кнопки "Пуск", изменить цвет, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDB2DE1249AED94E0CB6BB9962CF41D28BD7BE8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351815   (1001849) от 11.01.2020
+
+Astute Graphics Plugins Elite Bundle v2.0 + Pro Texture Packs for Adobe™ Illustrator™ CC 2018 - 2020 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001849.jpg" />
+</div>
+
+
+###  Подробнее
+
+Astute Graphics — сборник плагинов для векторного графического редактора Adobe Illustrator
+Английская компания Astute Graphics специализируется в разработке творческих инструментов для векторных дизайнеров, которые значительно экономят время, повышают творческий потенциал и помогают достигать прекрасных результатов.Тип издания: macOS SoftwareРелиз состоялся: 2020Разработчик: Astute GraphicsПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDE56BDE935E2A7CD36F1B79824CB108F7C50A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351394   (1001848) от 11.01.2020
 
 Tor Browser Bundle 9.0.4 [Ru/En]
@@ -637,61 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0C4002BB06F622EDCC44E0DFD830B1AA23FD0D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351923   (1001682) от 12.01.2020
-
-Desiderii Marginis - Deadbeat (2001) Remastered 2018, Cyclic Law [FLAC|Lossless|Web-DL|tracks] <Dark Ambient, Drone, Dark Jazz, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deadbeat I (5:24)
-02. Mantrap (4:24)
-03. In Harms Way (5:03)
-04. Gods Shadow on Earth (4:19)(   Читать дальше...   )Производство: Cyclic Law - 131st CycleЖанр: Dark Ambient, Drone, Dark Jazz, Experimental, SoundscapesПродолжительность: 00:59:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F97EC7CA39CBC26CDC62723AA488D71FF486D05E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351842   (1001680) от 12.01.2020
-
-E-Trophee Andros. Сезон 2019-2020. Этап 3. Исола-2000. Гонка 2 (11.01.2020) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001680.jpg" />
-</div>
-
-
-###  Подробнее
-
-E-Trophee Andros — французский национальный чемпионат по автогонкам на ледяных трассах.Телекомпания: A21 NetworkЖанр: СпортЯзык озвучки: РусскийПродолжительность: 03:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0587D26825F36E193F674AFD9ABFB38BB491B57
 ```
 
 https://mybot314.ru/tekegram_catalog/

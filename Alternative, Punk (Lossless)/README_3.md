@@ -1,3 +1,61 @@
+###  Публикация: 1465366   (1019047) от 26.04.2021
+
+Kaleo - Surface Sounds (2021) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019047.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brother Run Fast (3:44)
+02. Break My Baby (4:26)
+03. Alter Ego (4:08)
+04. Free the Slave (4:08)(   Читать дальше...   )Жанр: Indie Rock, Blues RockПродолжительность: 00:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFD42E2EF81ADE9A8780C3F55BFC54C08644D3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465648   (1018920) от 27.04.2021
+
+The Offspring - Let The Bad Times Roll (2021) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative, Pop Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Not Utopia
+02. Let The Bad Times Roll
+03. Behind Your Walls
+04. Army Of One(   Читать дальше...   )Жанр: Alternative, Pop Punk RockПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91EFC061F5503C81A521DDADC27DF59B5E350747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465605   (1018806) от 28.04.2021
 
 The Luka State - Fall In Fall Out (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Punk>
@@ -686,64 +744,6 @@ Beach Slang - The Deadbeat Bang of Heartbreak City (2020) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A97E9DC40C61D52740E294C517A960BA2ECB593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1351961   (1001643) от 12.01.2020
-
-Bobina - Targets (2019) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hardcore, Rapcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Agent Orange (4:21)
- 02. 10 Years Later (3:51)
- 03. Falling All In (3:04)
- 04. The Mission (5:31)(   Читать дальше...   )Жанр: Alternative Rock, Hardcore, Rapcore, ElectronicПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8091760E74A41776AD694D82961DC53C82A1E391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1352503   (1001011) от 14.01.2020
-
-Twenty One Pilots - TOPxMM (The Mutemath Sessions) EP (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heathens (feat. MUTEMATH) (04:35)
- 02. Heavydirtysoul (feat. MUTEMATH) (04:00)
- 03. Ride (feat. MUTEMATH) (03:49)
- 04. Tear in My Heart (feat. MUTEMATH) (03:49)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, PopПродолжительность: 00:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDABA3A5218EE7597128403A5D5B60594031B09C
 ```
 
 https://mybot314.ru/tekegram_catalog/

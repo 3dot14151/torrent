@@ -1,3 +1,61 @@
+###  Публикация: 1180244   (342805) от 03.11.2017
+
+Charles Lloyd New Quartet - Passin' Thru (2017) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342805.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Weaver [17:46]
+02. Part 5, Ruminations [11:55]
+03. Nu Blues [11:52]
+04. How Can I Tell You [09:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCE9004C162F5A6A0C0AB2A6A803575E1BB56C3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419205   (342044) от 27.10.2020
+
+Nina Simone - The Nina Simone Anthology (1960-e - 1970-e) 2013, 2CD, Salvo [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342044.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. My Baby Just Cares for Me [3:39]
+02. I Want a Little Sugar in My Bowl [2:35]
+03. Ain't Got No - I Got Life [2:11](   Читать дальше...   )Жанр: Vocal Jazz, Soul-JazzПродолжительность: 02:29:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB518B5050E877DD5BA44BB0E098E993CF5B89AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1257964   (341443) от 28.10.2018
 
 Lee Konitz & Dan Tepfer - Decade (2010 - 2016) 2018, Verve [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
@@ -699,64 +757,6 @@ Eliane Elias - Something for You: Eliane Elias Sings & Plays Bill Evans (2007) /
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579189   (338911) от 26.09.2022
-
-Howard Rumsey's Lighthouse All-Stars - In The Solo Spotlight! (1954, 1957) 1990, Original Jazz Classics [FLAC|Lossless|image + .cue] <Hard Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funny Frank [4:07]
-02. That's Rich [6:05]
-03. If You Are There [6:00]
-04. Stan [4:01](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:40:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:949F7ED39584B90EC16644B5322BCA623D8CF371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1258270   (338832) от 29.10.2018
-
-Stephane Grappelli - 1935 - 1943 (1998) Giants Of Jazz [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_338832.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alabamy Bound [2:52]
-02. I've Found A New Baby [2:38]
-03. You Took Advantage Of Me [2:57]
-04. Out Of Nowhere [3:18](   Читать дальше...   )Жанр: SwingПродолжительность: 01:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3739DCD47411DDED81AC1A720787AA005AEE41
 ```
 
 https://mybot314.ru/tekegram_catalog/

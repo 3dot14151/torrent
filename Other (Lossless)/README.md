@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1867499   (1066971) от 25.04.2026
+
+VA - The Orient Collective: Path of the Drum (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jaytor - Nomad Bazaar (4:04)
+02. Ivan Suvorov - Orchard (5:43)
+03. Gavr - Kamishek (7:22)
+04. The Friend - Vodun (6:42)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:456187E8FE5C79CC5570004A792DECF45D86F163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866142   (1065850) от 19.04.2026
+
+VA - The Orient Collective: Tales From the Sand (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065850.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaisser Bouzriba - Soul of the Oasis (4:29)
+02. Tamer ElDerini - Lafta (5:50)
+03. Kaisser Bouzriba - Yallah - Yallah (5:58)
+04. Moji - Bayatilar (3:20)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:05:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC309531E8B460AD805E8443D10AD640894F4CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864705   (1065092) от 
 
 The St. John Damaskin children’s and youth choir (Детско-юношеский хор преподобного Иоанна Дамаскина) - Pascha of the Faithful (Пасха верных) (2009) [FLAC|Lossless|tracks + .cue] <Духовные песно ...
@@ -694,64 +752,6 @@ Eivoer Polsdoeter (Eivør Pálsdóttir) - Trollabundin (Trøllabundin) (2005) [F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C5155E4E52221FE79CAE44871ECDB3A11FB09F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 331898   (1001252) от 13.01.2020
-
-Existence - Like A Shot Through My Heart (2004) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1001252.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Existence Means Harmony (4:45)
-2. First Nations Flute Prayer (5:06)
-3. Like A Shot Through The Heart (4:35)
-4. Sacrificed (4:52)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69E410186BDE3A22EAC5149B2C27B1E3990AB4A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 134705   (1000731) от 15.01.2020
-
-Sacred Spirit (Claus Zundel) 11 альбомов (1994 - 2003) [APE|lossless|image +.cue] <New Age, Ethnic, Electronic>
-
->>След.
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000731.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Sacred Spirit» — музыкальный проект Клауса Цунделя, Ральфа Хамма и Маркуса Стааба, исполняющий музыку в жанрах электронной и этнической музыки, нью-эйдж и эмбиент. По оценкам, общий объём продаж альбомов «Sacred Spirit» составляет более 15 миллионов экземпляров. С каждого проданного альбома делаются пожертвования в «Фонд коренных народов Америки»(«Native American (   Читать дальше...   )Список альбомов:
-1994 Vol.1 Chants & Dances of the Native Americans
-1997 Vol.2 Indigo Spirit
-1997 Divine Works (Sountrack to the new millenium)(   Читать дальше...   )Жанр: New Age, Ethnic, ElectronicПродолжительность: 09:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63D03092DB19B5F31183E943C15740803F0643EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

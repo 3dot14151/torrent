@@ -1,3 +1,119 @@
+###  Публикация: 1729710   (108029) от 12.06.2024
+
+Left Lane Cruiser - Bayport BBQ Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Motown Mash [00:03:41]
+02. Big Momma Shake [00:03:08]
+03. Man Down The Road [00:04:14]
+04. Crazy Love [00:03:34](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8602036300FA45CEEAF85953DA4F8604F190039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730296   (107897) от 15.06.2024
+
+David Gogo - YEAH! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diamond In The Rough (2:59)
+02. Hurricane (2:56)
+03. Well Worth The Wait (4:15)
+04. Real Good Woman (3:03)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:32:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7E5800BB0D15AD79D7D396BE2FCD30C61E5B70D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730507   (107862) от 16.06.2024
+
+Andre Camilleri - Top Dog (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt-Country, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Top Dog [00:03:01]
+02. You Funk Me Up [00:03:24]
+03. Time Keeps Moving Fast [00:03:28]
+04. Give Love a Chance [00:03:14](   Читать дальше...   )Жанр: Alt-Country, Blues RockПродолжительность: 00:35:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CFFF612CB886E3AC94AA7922EC4D26F6FDD7F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730736   (107797) от 18.06.2024
+
+Nico Fami - Nico Fami Live at the Ocean Race (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Key to the Highway (4:17)
+02. Rock Me Baby (5:44)
+03. Nobody Shoot Me (5:51)
+04. You Don't Have to Go (5:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:691406A57577F3943CE091C1D5139BC468459DA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730735   (107796) от 18.06.2024
 
 Brother Chunky - Dig Deeper (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Daniele Perrino - The Soot Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:029E69CE76B71C2FCC0DD2313C22577D8B4A2BB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734228   (107166) от 02.07.2024
-
-Knut Nordhagen & Bluepack - Maximum R & B (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. High Muddy Water (3:59)
-02. Lost in the Groove (3:55)
-03. Eye of the Spy (4:42)
-04. Slave to the Rhythm (4:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E13D5FC3B22E97D0E841BF99B77362A8B4012B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734271   (107165) от 02.07.2024
-
-Berk Jodoin - Fly Away (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aces & 8's (3:11)
-02. Weather The Storm (3:38)
-03. Gascoigne Choir (4:23)
-04. Slow Down (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B22F85CDBF510F9D2AD8EB2ADE41B9841148F480
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734272   (107162) от 02.07.2024
-
-BRTHR - Brother (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartache Street (4:44)
-02. Holding On So Tight (2:51)
-03. Bridges (4:47)
-04. Cool Water (3:05)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC0234D017DE9CF29675FEF6DB82458E09226055
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734276   (107161) от 02.07.2024
-
-Grand Causse - Sauvages Celestes (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107161.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. BARELY INNOCENT (3:52)
-02. ORDERLY ROWS (2:55)
-03. DESINTEGRATION (1:34)
-04. MEMORIES OF JANE (2:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F82C9119B19AA14FE84F933EB394D34FBFBD9100
 ```
 
 https://mybot314.ru/tekegram_catalog/

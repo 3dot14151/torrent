@@ -1,3 +1,32 @@
+###  Публикация: 1455214   (1025825) от 18.03.2021
+
+Pendragon - Masquerade 20 (2017) 2xCD, Live [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025825.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. The Masquerade Overture (Live) (03:05)
+ 02. As Good As Gold (Live) (07:18)
+ 03. Painbox (Live) (08:08)(   Читать дальше...   )Жанр: Progressive Rock, Neo-ProgПродолжительность: 02:19:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7DC9E74D816A4C70A3B3782560E9F26BD8AB9D2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1455036   (1025799) от 18.03.2021
 
 Creed Fisher - How Country Music Sounded Before It All Went to Shit, Vol. 1 (2021) [MP3|320 Kbps] <Southern Rock>
@@ -716,35 +745,6 @@ Wanka - The Orange Album (1977) LP [MP3|320 Kbps] <Hard Rock, Prog Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4F582D75E4F4C51856D20D0DC8F0381C22D932C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1463853   (1020091) от 20.04.2021
-
-David Gilmour - Yes, I Have Ghosts (2021) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020091.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yes I Have Ghosts (03:50)
- 02. Tell The Truth (01:29)
- 03. Astral Dust (02:04)
- 04. Kokineli (02:15)Жанр: RockПродолжительность: 00:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:478EDECEF372358194CB0D9F6870108A09F36078
 ```
 
 https://mybot314.ru/tekegram_catalog/

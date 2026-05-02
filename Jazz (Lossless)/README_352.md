@@ -1,3 +1,61 @@
+###  Публикация: 1787822   (68697) от 27.03.2025
+
+Duke Ellington - Early Ellington: The Complete Brunswick And Vocalion Recordings Of Duke Ellington (1926 - 1931) 3CD, 1994, Decca Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maori (A Samoan Dance) (1st version) [3:11]
+02. When You're Smiling (The Whole World Smiles with You) (Take A) [3:07]
+03. When You're Smiling (The Whole World Smiles with You) (Take B) [3:06]
+04. Maori (A Samoan Dance) (2nd version) (Take A) [3:01](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:22:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A56D84713CD23F7FB7920A922F9A2DE29EC390B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788024   (68634) от 28.03.2025
+
+Woong San - Tomorrow (2012) Pony Canyon [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68634.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tomorrow [4:14]
+02. Am I Blue [4:18]
+03. The Boulevard Of Broken Dreams [5:16]
+04. This Masquerade [5:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8592BC9518CFDFFE48F791BC650089EC40027982
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788204   (68558) от 29.03.2025
 
 Duke Pearson - Four Classic Albums (1959 - 1962) 2CD, 2016, Avid Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
@@ -686,64 +744,6 @@ The Oscar Peterson Quartet - City Lights: Live in Munich (1994) 2024, Mack Avenu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9FCC1310BAD955D6A15B52BFFBCE3EEA7E4901E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791801   (67773) от 15.04.2025
-
-Frankie Campofelice - Every Night at Seven (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Best Things in Life Are Free (3:40)
-02. This Can't Be Love (2:45)
-03. Hello, Young Lovers (4:57)
-04. But Beautiful (5:09)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B091BD94201FB421303E0277A760F01FAFF25E07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792092   (67771) от 17.04.2025
-
-VA - House Adventures 12 & 13 (Black Mighty Wax presents) (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funky House>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Nadyne Rush - Let's Fall In Love (Jay Caruso Remix) (3:02)
-02.  Filippo Perbellini - Billie Jean (Belladonna Deep Mix) (6:05)
-03.  Paolo Faz - Kiss Of Life (Ken's Mix) (5:48)
-04.  Stevie Biondi - JoJo (Ken@Work Soulmood Remix) (5:48)(   Читать дальше...   )Жанр: Jazz, Funky HouseПродолжительность: 00:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ADE76E1ABA466439C9BEAF2B35803B6D64CDAC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

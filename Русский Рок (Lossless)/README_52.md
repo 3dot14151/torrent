@@ -1,3 +1,29 @@
+###  Публикация: 1591594   (186878) от 19.11.2022
+
+Слот - Зло (2022) Single [FLAC|Lossless|WEB-DL|tracks] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Слот - Зло (Single)Жанр: AlternativeПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560CA3CF4E6DF09051B0DC6D6F5254F9F825E588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1591490   (186764) от 19.11.2022
 
 Кино - Это не любовь (2022) 3xCD [FLAC|Lossless|image + .cue] <Rock>
@@ -714,33 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE0758C5B51502F18882DD1917AB9C9FB3846B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592983   (182009) от 25.11.2022
-
-Voidwards - Amidst the Ocean of Fog (2022) [FLAC|Lossless|WEB-DL|tracks] <Doom Metal, Doomgaze>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_182009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amidst the Ocean of Fog: to the Forces Unseen [00:11:38]
-02. Amidst the Ocean of Fog: the Ghosts [00:14:14]Жанр: Doom Metal, DoomgazeПродолжительность: 00:25:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F69F123D5CFFC0B68F461310A239AFE5796900C
 ```
 
 https://mybot314.ru/tekegram_catalog/

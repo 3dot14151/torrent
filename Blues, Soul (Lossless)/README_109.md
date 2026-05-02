@@ -1,3 +1,119 @@
+###  Публикация: 1689535   (124561) от 03.01.2024
+
+Roadhouse Redeemers - From Gospel to Grit (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124561.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angel from Montgomery (4:01)
+02. Fever (4:06)
+03. Ain't No Grave (3:47)
+04. Keep Your Hands to Yourself (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33428C8D5344158C633C03F81095014FF9C2A04E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689532   (124529) от 03.01.2024
+
+Otilia Donaire - Bluesin' It Up (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrong Side Of 45 (2:47)
+02. Without You (3:23)
+03. The Queen Bee (3:16)
+04. Love Sick Blues (2:44)(   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B11AAB09253D5299465C60FF629414E33E7CDBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1689538   (124505) от 03.01.2024
+
+The Austrian Blues Combo - Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124505.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunshine Blues (5:19)
+02. Misery Blues (3:37)
+03. Blues for You (5:37)
+04. Hangover Blues (2:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9E84D1C99B3AD6116D28B96E7C038E99D98A0C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690492   (123927) от 07.01.2024
+
+MasterPeace - The Dylan Project (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - New Morning
+02 - All Along The Watchtower
+03 - Forever Young
+04 - Going Going Gone(   Читать дальше...   )Жанр: BluesПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F51C4A4A0160053FA62386409EF24DD45733C55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691773   (123090) от 13.01.2024
 
 Layla Zoe - Back to the Spirit of 66 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
@@ -629,122 +745,6 @@ VA - Talent Blues Condensed Vol 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8EB4148D57FC31BFBB00E75F82C823081A5461F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694335   (121087) от 24.01.2024
-
-Kenny Hughes - Born & Raised (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Over Me (5:06)
-02. She Knows (3:34)
-03. 19:20 (3:33)
-04. Destiny (3:38)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4738ACDA4DA67CFA5EA82A6061416B32A5707E1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694331   (120977) от 25.01.2024
-
-Eva Carboni - In the Name of the Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120977.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. South Wind Blows (3:33)
-02. Stony Ground (3:10)
-03. In the Name of the Blues (3:47)
-04. That Devil Man (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7936D98FB10E5BF7D9DB8386A694D0D89B265639
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694431   (120962) от 25.01.2024
-
-Madcat's Roughriders - Madcat's Roughriders (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roughrider's Boogie (3:08)
-02. Moonshine (3:35)
-03. Dingelingdong (3:57)
-04. My Time Has Come (6:05)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:47:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7246400520CB4BFB6CB578E6ECDC4D4ACEC6FE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694341   (120959) от 25.01.2024
-
-The liberators - A Ride Out of Town (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Ride Out of Town (2:48)
-02. Can't Run, Can't Stay (3:39)
-03. Come On (3:53)
-04. 90 Minutes (Ain't That a Shame) (5:06)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0395D8A469951C382610E89B8CEDF1F13879AA0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1278433   (771993) от 25.01.2019
+
+Kazutoki Umezu - Diva (1988) NEC Avenue [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Diva [3:56]
+02. Nishibi no Ataru Heya [8:12]
+03. Hinobashi no Tamoto [3:23]
+04. Poi [7:25](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03AE2DD05074E78F513CA5DF77A3DE0945C9B4D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278456   (771985) от 25.01.2019
+
+Bohren & Der Club Of Gore - Piano Nights (2014) [FLAC|Lossless|tracks + .cue] <Dark Jazz, Downtempo, Dark Ambient>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_771985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Im Rauch (5:29)
+02. Bei Rosarotem Licht (6:41)
+03. Fahr Zur Hölle (5:35)
+04. Irrwege (3:39)(   Читать дальше...   )Производство: Ipecac Recordings – IPC155Жанр: Electronic, Dark Jazz, Downtempo, Dark Ambient, Contemporary JazzПродолжительность: 01:01:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A3112F065FE397ABA3F54E37782F341599F2EB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1016163   (771734) от 13.05.2016
 
 John Lewis - Grand Encounter (1956) Remaster, 2014, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Third Stream>
@@ -688,64 +746,6 @@ Michael Franks - Collection 1975 - 1987 (2012) Light Mellow [FLAC|Lossless|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E146B897624E38CE1CE101041BFDC9892F39226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125769   (767883) от 15.04.2017
-
-Candy Dulfer - Together (2017) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767883.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How It's Done (4:41)
-02. Together (7:26)
-03. Show Ur ID (4:42)
-04. Age (5:53)(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:06:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E54DC25A23FD7708B04D8F691B36C82D42C6FA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278792   (767793) от 27.01.2019
-
-Louis Hayes And The Cannonball Adderley Legacy Band - Live at Cory Weeds' Cellar Jazz Club (2014) Cellar Live ‎ [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Exodus [9:43]
-02. Chant [7:31]
-03. Arriving Soon [9:53]
-04. Dat Dere [8:16](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0977963561599042202E0E5F00E2AA0D8971BAB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

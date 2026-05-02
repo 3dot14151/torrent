@@ -1,3 +1,82 @@
+###  Публикация: 902910   (658771) от 30.05.2015
+
+Проекты - VideoHive - Optic Cable Logo II [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658771.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект предназначен для создания подсвеченных текстов и логотипов.
+В шаблоне есть видео инструкция. Музыка в состав проекта не входит.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F02B54811699BBC4AF4EFA43833A6D9FD8BE292F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031207   (653168) от 03.07.2016
+
+Проекты - VideoHive - Simple Logo - 16287965 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653168.jpg" />
+</div>
+
+
+###  Подробнее
+
+Simple Logo - простой и чистый медиа-нож с показом вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3F72B6DA9D18BADB21B4F2DC135CCE121E480C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031700   (651123) от 04.07.2016
+
+Проекты - VideoHive - Clean Logo Reveal v2 - 16270076 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651123.jpg" />
+</div>
+
+
+###  Подробнее
+
+Clean Logo Reveal v2 - простая, чистая графика движения, дающая наибольшее воздействие на внимание вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DB44FC8B3B6DA1F72121D261DA829606ACA2A1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905472   (650779) от 05.06.2015
 
 Проекты - VideoHive - Ramadan Logo Pack 2 [AEP]
@@ -594,85 +673,6 @@ Logo Glass Distortion - показ логотипа через искажени�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:365EF459A5704C3C8DDF04285D47E676D6B029CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033478   (637657) от 11.07.2016
-
-Проекты - VideoHive - PhotoMask - Animation Logo Tool - 14483179 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637657.jpg" />
-</div>
-
-
-###  Подробнее
-
-PhotoMask - Animation Logo Tool - маскированный эффект показа вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:076C3C82DC4F241E7812C1D4C5CB5C410BCC058F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1033479   (637646) от 11.07.2016
-
-Проекты - VideoHive - HUD Logo Reveal - 16697150 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637646.jpg" />
-</div>
-
-
-###  Подробнее
-
-HUD Logo Reveal - раскрытие логотипа с удивительной футуристической анимацией!
-Очень просто в использовании - просто вставьте свой логотип, измените окончательный текст и цвета. В проект включены: оригинал и версия с предварительно сформированной анимацией для более быстрой визуализации!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B66F781DC3414ECED85D1E781757D8CB093F01C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908037   (635407) от 13.06.2015
-
-Проекты - VideoHive - Simple Mosaic [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57CD54BA4B1EB2A7F4B8D4D66E2E179CC57AA248
 ```
 
 https://mybot314.ru/tekegram_catalog/

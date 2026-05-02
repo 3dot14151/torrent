@@ -1,3 +1,175 @@
+###  Публикация: 1735362   (106974) от 07.07.2024
+
+Buddha Chill House & Dj. Juliano BGM - Buddha Open Bar: Summer in Hotel, Party on the Beach, EDM All the Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buddha Tropical Deep Lounge [00:03:15]
+02. The Land of Sands [00:03:11]
+03. Holidays in Costa Rica [00:03:11]
+04. Fiji Paradise Lounge [00:03:26](   Читать дальше...   )Жанр: Downtempo, Lounge, Chill OutПродолжительность: 00:34:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0262DFB2EC8404ABD0F0841946C95C89081FC164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735187   (106961) от 07.07.2024
+
+Fink - Beauty In Your Wake (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Folk, Indie Pop, Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What Would You Call Yourself [00:05:27]
+02. The Only Thing That Matters [00:04:37]
+03. Be Forever Like A Curse [00:05:29]
+04. It's Like You Ain't Mine No More [00:04:04](   Читать дальше...   )Жанр: Indie Folk, Indie Pop, BluesПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BD76E8067E2F886A4935CD04DE067F10C43596F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735366   (106952) от 07.07.2024
+
+Shrine of Insanabilis - Tombs Opened by Fervent Tongues... Earth's Final Necropolis (2016) EP, Released, 2017, W.T.C. Productions [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106952.jpg" />
+</div>
+
+
+###  Подробнее
+
+A - The Burning Voice
+B - HamartiaЖанр: Black MetalПродолжительность: 00:11:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1C9D194A745C8DEC837854B8951547E5E852457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735364   (106951) от 07.07.2024
+
+Shrine of Insanabilis - Disciples of the Void (2015) Released, 2016, Fallen Empire [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106951.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - End All
+A2 - Ruina
+A3 - Acausal Paths
+A4 - (..............)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49F9D088B770907E2FB7B1472FD02776E87CE433
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735325   (106950) от 07.07.2024
+
+Faber - Addio (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouverture [00:02:14]
+02. Du kriegst mich nicht zurück [00:03:27]
+03. Sie ist wieder in der Stadt [00:03:14]
+04. Ayurveda [00:03:19](   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DC0DED25BC04F0C5596707EF742E1DE5B6CBECA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1735320   (106948) от 07.07.2024
+
+Yellow House - Psalms of Yellow House (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Dream Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saviour Complex [00:03:13]
+02. Trouble Always Finds Me [00:04:01]
+03. Milk & Honey [00:03:10]
+04. Say You Will [00:03:15](   Читать дальше...   )Жанр: Dream PopПродолжительность: 00:26:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E015BBE2873F581FCDFA0E0467BC096529C79E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1735270   (106946) от 07.07.2024
 
 The Dreaded Laramie - Princess Feedback (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock, Female Vocal>
@@ -571,180 +743,6 @@ LaBronn Conner Jr - Bluesberry Haze (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D4991DF28B43BAABA143C8B75AE063B6838E849
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735823   (106821) от 10.07.2024
-
-Sting - Fields Of Gold: The Best Of Sting 1984 - 1994 (1994) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soft Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106821.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1:
-A1 When We Dance
-A2 If You Love Somebody Set Them Free
-A3 Fields Of Gold(   Читать дальше...   )Жанр: Soft Rock, Pop RockПродолжительность: 01:16:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DFC1969522EA9D7873EAFFDF3B52E02FE58BAA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735921   (106789) от 10.07.2024
-
-Mr. Big - Mr. Big (1989) Remastered, 2023, evoXS [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Addicted To That Rush (4:45)
-02. Wind Me Up (4:10)
-03. Merciless (3:55)
-04. Had Enough (4:55)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E852EC4EAEE720DE4C2EB89249646BF4AED876
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735894   (106786) от 10.07.2024
-
-The Supersoul Brothers - By The Way (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Toy Party Time (2:56)
-02. By The Way (4:49)
-03. Time Is Right (3:38)
-04. Gimme Some Soul (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06BC51050BED50DC9ED4B6801ACBC772B0EB2345
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735937   (106780) от 10.07.2024
-
-Mr. Big - Ten (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good Luck Trying (4:06)
-02. I Am You (4:32)
-03. Right Outta Here (4:38)
-04. Sunday Morning Kinda Girl (4:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588C5E5E493A3B71386B45666DD7501CC6876131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735885   (106778) от 10.07.2024
-
-Seasick Steve - A Trip A Stumble A Fall Down On Your Knees (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Move to the Country (4:53)
-02. Internet Cowboys (4:05)
-03. San Francisco Sound '67 (5:14)
-04. A Trip and a Stumble (For Leya) (4:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:601F63929C7DEBCC1C293012CE99D8FE106BC0B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1735807   (106776) от 10.07.2024
-
-The Yardbirds - The Ultimate Live At The BBC (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Most Likely You'll Go Your Way (And I'll Go Mine) (Live at Saturday Club, recorded 4 April 1967) [00:02:54]
-02. My Baby (Live at Saturday Club, recorded 4 April 1967) [00:02:29]
-03. Keith Relf interview (Live at Saturday Club, recorded 4 April 1967) [00:00:58]
-04. Little Games (Live at Saturday Club, recorded 4 April 1967) [00:02:24](   Читать дальше...   )Жанр: Blues RockПродолжительность: 4 CD, 03:58:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4DFD38812895DB9FE5398C48579DB4982A38589
 ```
 
 https://mybot314.ru/tekegram_catalog/

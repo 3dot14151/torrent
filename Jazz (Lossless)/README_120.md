@@ -1,3 +1,61 @@
+###  Публикация: 904943   (653548) от 04.06.2015
+
+Renato Sellani - Chopin (2010) [FLAC|Lossless]<Jazz, Cool, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thank You, Chopin (D.Brubeck) [04:37]
+02. Preludio OP.28 N.4 [03:20]
+03. Valzer OP.34 N.2 [04:29]
+04. Notturno OP.9 N.2 [06:14](   Читать дальше...   )Жанр: Jazz, Cool, Piano JazzПродолжительность: 00:57:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57D08A0E70BA03A853B378AF071056F0EBAC2FBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 904753   (653546) от 04.06.2015
+
+Don Byas Quartet - The Complete (1946-1954) 3 CD Remastered /2011, Solid Jazz Recordings/ [FLAC|tracks+.cue]<Bop, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time On My Hands (2:28)
+02. Blues For Don Carlos (3:52)
+03. Sweet Lorraine (3:36)
+04. April In Paris (2:53)(   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 00:57:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45EE866EFB2279A6E58A0DD357FD7A5B6973A131
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 904722   (653461) от 04.06.2015
 
 Larry Coryell - Heavy Feel (2015) [FLAC|Lossless]<Fusion>
@@ -687,64 +745,6 @@ Eclectic Maybe Band - Again Alors? (2022) [FLAC|Lossless|image + .cue] <Jazz-Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23F6761690293C9FE6879DF197B402A6779657F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291918   (650696) от 27.03.2019
-
-George Wallington - Knight Music (1956) 2000, Koch Jazz [APE|Lossless|image + .cue] <Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Godchild [3:19]
-02. Serendipity [3:05]
-03. Billie's Tune [3:05]
-04. The Ghostly Lover [3:47](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16D21E3BA17B71B7DE428254F1892664E4B92447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291919   (650695) от 27.03.2019
-
-Dizzy Gillespie - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Bass Hit - Part 1 [2:54]
-02. Oop Bop Sh'Bam [3:02]
-03. A Hand Fulla Gimme [3:02]
-04. That's Earl Brother [2:42](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:00:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72DBC227B8B3A600C231B2E80E491137C71B60F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

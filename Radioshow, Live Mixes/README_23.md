@@ -1,3 +1,61 @@
+###  Публикация: 1711125   (112534) от 29.03.2024
+
+VA - Armin van Buuren - A State Of Trance 1166 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Cosmic Gate & Christian Burns - Brave
+02.	Laura van Dam & Ginchy - Save Me (Progressive Pick)
+03.	Jaytech - Nebula
+04.	JODA - Spark (Jono Grant & Harry Diamond Remix)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D765666157FC26788A482B8C352951BA136A9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1711325   (112529) от 29.03.2024
+
+GOODBOYS - Tomorrowland Friendship Mix (2024-03-28) [MP3|320 Kbps] <House, Tech House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vintage Culture & GOODBOYS - This Feeling (ID Remix)
+02. The Prodigy - Voodoo People (Josh Samuel Edit)
+03. Opus III vs. Skrillex & Fred Again.. & Flowdan - It's A Fine Day vs. Rumble (
+04. GOODBOYS & Biscits & Max Mylo - The Loop(   Читать дальше...   )Жанр: House, Tech HouseПродолжительность: 00:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A34C98167536B2EE4F27C50FF128320191C873F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1711328   (112514) от 29.03.2024
 
 Lane 8 - Spring 2024 Mixtape (2024-03-19) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
@@ -687,64 +745,6 @@ Frank Walker - Progressive House Never Died, The Brooklyn Mirage New York, Unite
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46C0A8D5C75C5B089978CEBF72C12E7629BFE350
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725349   (108936) от 25.05.2024
-
-VA - Armin van Buuren - A State Of Trance 1174 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108936.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyau & Albert - Paladir
-02. UUFO feat. 88birds - Carry Me Away (Progressive Mix)
-03. Masters & Nickson feat. Justine Suissa - Out There (UUFO Remix)
-04. Estiva - Starwave(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDBF64E4936DAC9E1D3661DD39F4E4CE59E91741
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1726980   (108645) от 31.05.2024
-
-Chris Avantgarde - Tomorrowland Friendship Mix (2024-05-30) [MP3|320 Kbps] <Melodic House/Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Avantgarde - ID
-02. Chris Avantgarde - ID
-03. Justice - Phantom Part II (Chris Avantgarde Remix)
-04. ID - ID(   Читать дальше...   )Жанр: Melodic House/TechnoПродолжительность: 01:00:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEDE3E08CDC1E0FBC671B94CE410F1792D7B79C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

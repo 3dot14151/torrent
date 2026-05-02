@@ -1,3 +1,61 @@
+###  Публикация: 938774   (480092) от 19.09.2015
+
+Phillip Bent - The Pressure (1993) /GRP Records/[FLAC|image+.cue]<Smooth, Pop-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Do For You [03:56]
+02.The World Is A Ghetto [04:59]
+03.Swing It [05:00]
+04.One Man And His Music [05:29](   Читать дальше...   )Жанр: Smooth, Pop-JazzПродолжительность: 00:49:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1B2BAC8474A67C96812E6176E0644404A13EAF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159890   (480085) от 22.08.2017
+
+Bill Carrothers - Home Row (2008) Pirouet [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Will The Blues Leave [05:57]
+02. Jesus' Last Ballad [12:24]
+03. A Squirrel's Tale [06:21]
+04. Hope Song [05:45](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22EC6B0A1E9D108339EB3AAE0B875A1027177F04
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159952   (480081) от 22.08.2017
 
 Gil Evans - Live At The Public Theater New York 1980, Vol. I and II (1994) 2CD, Evidence Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Progressive Jazz, Big Band>
@@ -687,64 +745,6 @@ Karrin Allyson - Many A New Day Karrin Allyson Sings Rodgers & Hammerstein (2015
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:926FFF6AB3AC42D26DEC02BA0E6EEEC03AEEBAAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938801   (478025) от 20.09.2015
-
-Rose Room - The High Life (2015) [FLAC|tracks|WEB-DL]<Jazz, Swing, Gypsy>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_478025.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The High Life (2:37)
-02. Edge of Love (3:54)
-03. I'm Confessin' (3:45)
-04. Sleads Street (2:51)(   Читать дальше...   )Жанр: Jazz, Swing, GypsyПродолжительность: 00:38:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:808A4BB26CAE79E1AE1CB22A97131ACF74BD0D37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 939100   (477923) от 20.09.2015
-
-Nils - Alley Cat (2015) [FLAC|Lossless]<Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477923.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Of A Kind
-02. Alley Cat
-03. Don't Hold Back
-04. Saturday Night(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C34C6EC457D178FB1385BDB26193F1FFD8527799
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1137151   (669461) от 25.05.2017
+
+Joseph Bonner - Triangle (1975) 2009, Whynot [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669461.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Triangle [06:51]
+02. The Wind And The Rain [10:22]
+03. Mr P.C. [07:41]
+04. Vega [10:02](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78181E632A8A15B254D4FF4CFEA394227EB0F9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1137141   (669411) от 25.05.2017
+
+Kenny Garrett - Sketches Of MD: Live At The Iridium (2008) Mack Avenue Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Ring [14:36]
+02. Intro To Africa [09:22]
+03. Sketches Of MD [10:03]
+04. Wayne's Thang [10:58](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:56:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E71D3006AFDB00F3160ABBFE13008364BD279D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1137148   (669395) от 25.05.2017
 
 Kris Berry - Berry Street (2017) [FLAC|Lossless|tracks + .cue] <Jazz, Pop, RnB>
@@ -693,64 +751,6 @@ Alice Babs - Alice and Wonderband (1959) 1993, RCA/BMG Ariola AB Sweden [FLAC |L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12DE978F3B6C75A3103392E8E55525910098E3F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137987   (665711) от 28.05.2017
-
-Francesco Cafiso New York Quartet - New York Lullaby (2006) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665711.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lullaby Of Birdland [07:58]
-02. Reflections [04:11]
-03. Polka Dots And Moonbeams [06:26]
-04. My Old Flame [09:45](   Читать дальше...   )Жанр: Mainstream Jazz, Post-BopПродолжительность: 01:11:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48390C35968CD84E94C026994323CFF51031BC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1138226   (665709) от 28.05.2017
-
-Aaron Parks, Ben Street, Billy Hart - Find The Way (2017) ECM [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_665709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrift [05:47]
-02. Song for Sashou [06:23]
-03. Unravel [04:44]
-04. Hold Music [04:20](   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4822DB7F8C5844AA8BE0F66A0AC771045FC83EE9
 ```
 
 https://mybot314.ru/tekegram_catalog/

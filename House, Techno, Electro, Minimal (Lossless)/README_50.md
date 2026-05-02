@@ -1,3 +1,31 @@
+###  Публикация: 1261887   (301292) от 12.11.2018
+
+MacroVision - Skyroom (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skyroom (Rework)   (08:15)
+02. Glow (Original Mix)  (10:52)
+03. Pollux (Original Mix) (09:38)Жанр: Progressive HouseПродолжительность: 00:28:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35FE9B7D6FD8B362EBEFBCAC9DF65673CF0C4055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261709   (301279) от 12.11.2018
 
 Paolo Lucchi - The Dawn Sessions (2018) Cold Tear Records [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Ambient, Techno>
@@ -702,33 +730,6 @@ Cherry (UA) - Hello (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:982FC83DE91D480F11A9D46CC6D69D1882A850C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262571   (293500) от 16.11.2018
-
-Jacob Singer - Elohim (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elohim (Original Mix)
-02. The Book Of Enoch (Original Mix)Жанр: Progressive HouseПродолжительность: 00:14:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FA980DB4F96820799092268BA6D046CEE4D5AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

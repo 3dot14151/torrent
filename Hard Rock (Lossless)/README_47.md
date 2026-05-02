@@ -1,3 +1,119 @@
+###  Публикация: 1158425   (493548) от 15.08.2017
+
+Deep Purple - Johnny's Band (2017) EP [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493548.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny's Band (Album Version)
+02. In & out Jam (Rehearsal Recording By Roger Glover)
+03. Strange Kind of Woman (Previously Unreleased Live Version)
+04. The Mule (Previously Unreleased Live Version)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63ECDAFFC79C2FF30120EF18592E4F4071F3E55F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404395   (493349) от 25.08.2020
+
+Reece - Resilient Heart (2018) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Any Time At All
+02 Wicked City Blues
+03 Karma
+04 Desire(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0972F26A0CCECEF8C929087559B4EB38D8B988C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404394   (493341) от 25.08.2020
+
+David Reece - Cacophony Of Souls (2020) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chasing The Shadows
+02. Blood On Our Hands
+03. Judgement Day
+04. Collective Anaesthesia(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A8957EA82149F0668F00F66B47807BF23FC604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054874   (492491) от 20.09.2016
+
+First Signal - One Step Over The Line (2016) [FLAC|Lossless|tracks] <AOR, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Run Free   (04:29)
+02. Love Gets Through   (04:52)
+03. Still Pretending   (04:27)
+04. Broken   (03:27)(   Читать дальше...   )Жанр: AOR, Melodic Hard RockПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:549153F848D2313E266B1FB0DD60E164A38E32CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1565557   (492443) от 24.07.2022
 
 Out Of This World - Out Of This World (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -649,125 +765,6 @@ David Coverdale - The Early Years: Whitesnake & Northwinds (2CD) (1976-77, Reiss
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 547100   (475893) от 14.09.2012
-
-Deep Purple - Machine Head (1972) Remastered /2011, KronStudioLab Int'l/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Highway Star (6:09)
-02. Maybe I'm A Leo (4:47)
-03. Pictures Of Home (5:02)
-04. Never Before (4:02)
-05. Smoke On The Water (5:37)
-06. Lazy (7:24)
-07. Space Truckin' (4:20)Жанр: Hard RockПродолжительность: 00:37:30
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567318   (474429) от 02.08.2022
-
-Mutharoad - Midnight Stalker (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back In The Saddle 06:14
-02. Heart Of Gold 04:12
-03. Born To Roll 04:53
-04. Midnight Stalker 04:28(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:47:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F61B879BE501C0F5BB0D02F11C7522FEEB48082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567295   (474427) от 02.08.2022
-
-The Ragged Saints - The Sound Of Breaking Free (2013) Reissue, 2021, Lions Pride Music [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sound Of Breaking Free (3:21)
-02. A Place Where I Belong (3:59)
-03. Don't Let Me Go (3:40)
-04. I'll Never Give Up On Love (3:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F5ED13DC204C678EA459CA4A66D802D92C7C4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245367   (474097) от 05.09.2018
-
-Ultraphonix - Original Human Music (2018) [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_474097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baptism (04:44)
-02. Another Day (04:50)
-03. Walk Run Crawl (03:50)
-04. Counter Culture (03:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 53:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F01D4D6F5B6325D7F6012D7FCCF4FF9D80713E7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

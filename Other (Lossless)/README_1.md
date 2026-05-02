@@ -1,3 +1,61 @@
+###  Публикация: 1011637   (794570) от 30.04.2016
+
+SunSquabi - Odyssey (2016) EP [FLAC|Lossless|WEB-DL|tracks] <Electronic Hydro Funk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SquabCat
+02. Odyssey (feat. GRiZ)
+03. Pablito
+04. After The Rain(   Читать дальше...   )Жанр: Electronic Hydro FunkПродолжительность: 00:39:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB3D8F6E77A360017A1B86FA38D0B71834C739CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1201852   (791441) от 26.01.2018
+
+Khruangbin - Con Todo El Mundo (2018) [FLAC|Lossless|WEB-DL|tracks] <Funk / Soul, Folk, World, & Country>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cómo Me Quieres (3:45)
+02. Lady and Man (4:18)
+03. Maria También (3:11)
+04. August 10 (4:25)(   Читать дальше...   )Жанр: Funk / Soul, Folk, World, & CountryПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6CA93F6F11CAEFCDDCBBAFB6EC7D0551665966AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203275   (788122) от 02.02.2018
 
 Cousin Harley - Blue Smoke - the Music of Merle Travis (2017) [FLAC|Lossless|tracks] <Country>
@@ -689,73 +747,6 @@ Harvestman - 3 albums (2005-2010) [FLAC|Lossless] <Drone Ambient, Psychedelic Fo
 08. Dead Flowers (04:50)
 09. Pure Phase (03:50)
 10. Reflections (03:47)(   Читать дальше...   )2005-2010Жанр: Drone Ambient, Psychedelic Folk, ExperimentalПродолжительность: 01:11:44
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 508605   (677062) от 11.06.2012
-
-Steve Von Till - 3 albums (2000-2008) [FLAC|Lossless] <Acoustic, Neofolk, Ambient>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_677062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Grave Is A Grim Horse (04:02)
-02. Clothes Of Sand (02:30)
-03. The Acre (03:28)
-04. Willow Tree (03:42)
-05. Valley Of The Moon (06:27)
-06. The Spider Song (03:25)
-07. Looking For Dry Land (06:42)
-08. Western Son (04:46)
-09. Brigit's Cross (04:12)
-10. Promises (03:06)(   Читать дальше...   )2000-2008Жанр: Acoustic, Neofolk, AmbientПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 507629   (676899) от 11.06.2012
-
-Jakob - 5 albums (1999-2006) [FLAC|Lossless] <Post-Rock, Ambient, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_676899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Malachite (06:34)
-02. Pneumonic (05:34)
-03. Lonesome (08:00)
-04. Oran Mor (05:17)
-05. Safety In Numbers (07:53)
-06. Everything All Of The Time (09:38)
-07. Saint (09:01)1999-2006Жанр: Post-Rock, Ambient, InstrumentalПродолжительность: 00:52:00
 
 ## Скачать торент
 ```bash

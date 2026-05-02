@@ -1,3 +1,29 @@
+###  Публикация: 1147273   (609720) от 02.07.2017
+
+VA - InFine Pres: Tomorrow Sounds Better With You (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Indie Dance, Ambient, Techno, Electronic>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Жанр: Progressive House, Indie Dance, Ambient, Techno, ElectronicПродолжительность: 01:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58C1AF786F6C75795809C406DC658A07E3903C12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1296966   (608650) от 19.04.2019
 
 Zen - Live. Love. Create (2019) Altar Techno [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Techno, Psytech>
@@ -731,35 +757,6 @@ Aura Minimum - Dual Aura (2019) Space Of Variants [FLAC|Lossless|tracks+.cue] <D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:87B78B4C0EE83495323BC26986DE85B244DF3C45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1298038   (602646) от 25.04.2019
-
-Satin Jackets - Diamonds Are Forever (2018) Eskimo Recordings [FLAC|Lossless|WEB-DL|tracks] <House, Nu Disco>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Latin Jackets (6:27)
- 02. Got To Be Love (4:42)
- 03. Hollywood (7:14)
- 04. Olivia (Sirius XM Chill Edit) (5:00)(   Читать дальше...   )Жанр: House, Nu DiscoПродолжительность: 00:46:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9B045FCF2D7D718114DD5839D9FB573D4CC73F4
 ```
 
 https://mybot314.ru/tekegram_catalog/

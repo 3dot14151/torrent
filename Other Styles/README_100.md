@@ -1,3 +1,203 @@
+###  Публикация: 1240954   (522189) от 15.08.2018
+
+Grimwater - Silvermoor (2018) [MP3|320 Kbps] <Medieval Neofolk, Instrumental, Symphonic, Epic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522189.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Marching Towards The Mountain (4:33)
+ 2. The Defeat Of The Drake (3:24)
+ 3. The Dwarrowdelf (2:41)
+ 4. Rohan Rides To The Battle (3:14)(   Читать дальше...   )Жанр: Medieval Neofolk, Instrumental, Symphonic, EpicПродолжительность: 00:32:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69E8C01FAFBAF2AEB2E77DAF28CC0927C0558C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928727   (521540) от 17.08.2015
+
+Fausto Papetti - Magic Sax, Vol. 2 (1989) /Sony Music/ [FLAC|tracks+.cue]<Instrumental, Saxophone>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521540.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oh Happy Day [04:09]
+02. Tanti Auguri [02:34]
+03. Tutti I Miei Sogni [03:36]
+04. In The Mood [04:12](   Читать дальше...   )Жанр: Instrumental, SaxophoneПродолжительность: 01:05:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2416D264E84E9685DCF3BF507463082AD49283DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 928677   (521471) от 17.08.2015
+
+Dexter Britain - Impression (2015) [MP3|320 кб/с]<Electronic, Neoclassical, Ambient, Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Summit
+02. Wild
+03. Everything You Know
+04. Climb A Thousand Miles(   Читать дальше...   )Жанр: Electronic, Neoclassical, Ambient, Instrumental, PianoПродолжительность: 00:53:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA5773C3A9DFFB8FF8F00734F73EC5353952905B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1314122   (521322) от 12.07.2019
+
+Deva Epica - Freedom (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening (8:59)
+02. Freedom (4:40)
+03. Follow the Heart (3:37)
+04. Eternal Deva (5:45)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:15:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D15D40470BC68EC4B0A4B78EEAF472FA3DC37280
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1241319   (521071) от 16.08.2018
+
+Önder Bilge - Relaxing Guitar Heaven (2018) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Summer Breeze
+02 Circle in the Sand
+03 Early in the Morning
+04 Awaking(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B317EDF9DE69C1B9F4D0080448FA3C1F02D7B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 221022   (520774) от 12.08.2012
+
+Pakarina - 4 albums (2010-2012) [MP3|320 kbps]<New age, Instrumental, Native american>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520774.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: New age, Instrumental, Native americanПродолжительность: 01:15:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929001   (520309) от 18.08.2015
+
+Don Davis - The Matrix Trilogy (Сomplete original motion picture soundtrack) (1999-2003) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_520309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charra Broiled (1:29)
+02. Woman Can Drive (2:39)
+03. Moribund Mifune (3:49)
+03. Kid Fried (4:49)(   Читать дальше...   )Жанр: Score |Продолжительность: 05:29:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA806027F35FEC68DB1432C76D90CFF2A8398C0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929489   (519591) от 19.08.2015
 
 Nickos Chortis - Elements (2015) [MP3|320 кб/с]<Ambient, New Age, Electronic>
@@ -548,215 +748,6 @@ Bernward Koch - Tree Tales (2022) [FLAC|Lossless|WEB-DL|tracks] <New Age, Modern
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:52416231708C722DB98A66106F0FF173738ABD94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 536187   (515361) от 17.08.2012
-
-Vangelis - The Collection (2CD) (2012) [FLAC|Lossless]<Electronic, New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515361.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-Продолжительность: 01:17:32
-
-01. Conquest Of Paradise
-02. Titles From Chariots Of Fire
-03. Blade Runner (End Titles)
-04. Pulstar
-05. Eternal Alexander
-06. Anthem - 2002 Fifa World Cup Official Anthem
-07. Line Open(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 02:35:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315205   (515015) от 18.07.2019
-
-Xiu Xiu - Haitian Drums: Girl with Basket of Fruit (2019) EP [FLAC|Lossless|WEB-DL|tracks] <Experimental, Indie, Post-Rock, Electronic, Noise>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_515015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DRUMS 1 (05:28)
-02. DRUMS 2 (05:08)
-03. DRUMS 3 (07:27)
-04. DRUMS 4 (12:52)Жанр: Experimental, Indie, Post-Rock, Electronic, NoiseПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2CAA724D576019D2DA60099E93942458619565
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930498   (514763) от 23.08.2015
-
-VA - BEST of 100 OST (2015) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_514763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Игорь Корнелюк - Город, Которого Нет - Бандитский Петербург [00:04:18]
-02. Thomas Newman - The Green Mile [00:03:38]
-03. Clint Mansell & Kronos Quartet - Winter Lux Aeterna - OST Requiem for a Dream [00:03:54]
-04. Bill Medley & Jennifer Warnes - The Time Of My Life - OST Грязные танцы [00:06:46](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 06:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6F21BE2B64229F09673A0026612B670C6AFC3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242329   (513972) от 23.08.2018
-
-Brian Kelly - Tomorrow's Daydream (2018) [MP3|320 Kbps] <Piano, Neo-Classical, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tomorrow's Daydream 04:49
-02. Tracing Rainbows 05:16
-03. Dancing with the Moon 04:08
-04. Our Own Window 03:42(   Читать дальше...   )Жанр: Piano, Neo-Classical, InstrumentalПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995426FC52356363FA07E2E48377808F9537DC01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1242536   (513937) от 23.08.2018
-
-DYATHON - Serenity (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Ag>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513937.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Miss You
-02. Willing to Love
-03. When You're Gone
-04. Apologize(   Читать дальше...   )Жанр: Instrumental, Piano, New AgПродолжительность: 00:34:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D6A4B2C21A68169CF4A3E31427D95C2CBF688F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315395   (513818) от 19.07.2019
-
-Karunesh (Карунеш) - The Way of the Heart (2005) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanderer [6:28]
- 02. Spirits Of The Forest [5:57]
- 03. Call Of The Unknown [6:15]
- 04. Beyond The Horizon [6:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:57:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89EE41514E200CFA5F6EF57EBB17061A60937A64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1315177   (513806) от 19.07.2019
-
-Ilyin - Enemy (2019) [MP3|320 Kbps] <Instrumental, Neo-Classic, Metal>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Word
-02. Faith
-03. Soul
-04. Conscience(   Читать дальше...   )Жанр: Instrumental, Neo-Classic, MetalПродолжительность: 00:25:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8E7FDE585A7E15F0E151DF47B613BB1982367CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

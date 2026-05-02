@@ -1,3 +1,61 @@
+###  Публикация: 1335969   (282574) от 05.11.2019
+
+The Score - ATLAS (2017) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop-Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Going Back (3:18)
+ 02. Legend (3:09)
+ 03. Only One (3:48)
+ 04. Tightrope (3:54)(   Читать дальше...   )Жанр: Electronic, Pop-Rock, Indie RockПродолжительность: 01:36:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5DD0101A39AB5AE9E8C59144EE00539C8626ED4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 811107   (282481) от 22.11.2018
+
+Alice in Chains - 7 альбомов, 2 EP  (1990 - 2018) [FLAC|Lossless|image + .cue|tracks + .cue]<Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282481.jpg" />
+</div>
+
+
+###  Подробнее
+
+Два года Alice In Chains потратила на концерты в местных клубах, а в 1989-м при помощи демо "The Treehouse Tapes" ей удалось попасть под крышу Columbia Records. Пробный миньон We Die Young породил серьезный хит для радио, и лейбл поспешил загнать музыкантов обратно в студию для подготовки дебютного альбома. Вышедший в августе 1990-го Facelift поначалу не (   Читать дальше...   )Список альбомов:
+Alice In Chains - 1990 - Facelift
+Alice In Chains - 1992 -  Dirt
+Alice In Chains - 1994 - Jar Of Flies & SapЖанр: GrungeПродолжительность: 07:55:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB2BB17150A82ED678FEF4A0065B43468456106A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335960   (282384) от 05.11.2019
 
 Cigarettes After Sex - Cry (2019) Partisan Records [FLAC|Lossless|tracks + .cue] <Indie Rock, Dream Pop, Ambient Pop>
@@ -687,64 +745,6 @@ Limp Bizkit - Collected (2008) Compilation [FLAC|Lossless|tracks + .cue] <Nu Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:34F0AB5AB598E4D8F44CEC7AAC1215F676BCB5AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339719   (264636) от 21.11.2019
-
-Beck ‎ - Hyperspace (2019) [FLAC|Lossless|tracks] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hyperlife (01:37)
-02. Uneventful Days (03:17)
-03. Saw Lightning (04:01)
-04. Die Waiting (04:04)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF0DBB2D85C439999E337C5109DEF482F1C23A22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191401   (264513) от 13.12.2017
-
-My Vitriol - The Secret Sessions (2016) [FLAC|Lossless|tracks] <Alternative Rock, Space Rock, Art Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We’ve Lost Our Way (05:00)
-02. It’s So Damn Easy (04:14)
-03. If Only… (God Only Knows) (03:43)
-04. (All These) Days (02:57)(   Читать дальше...   )Жанр: Alternative Rock, Space Rock, Art Rock, Indie Rock, ShoegazeПродолжительность: 00:45:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73674B6E9ACD16F944BC22EDA1E9E52284BD4BEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

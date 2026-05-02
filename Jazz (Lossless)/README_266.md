@@ -1,3 +1,61 @@
+###  Публикация: 1269836   (218342) от 16.12.2018
+
+Betty Buckley - Hope (2018) Palmetto+ [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ecotopia
+02. Any Major Dude Will Tell You
+03. Falling in Love
+04. Long Ago & Far Away(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:65:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35F88908F4884AB7E9ED0EF932BE8DC639D58895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1269797   (218327) от 16.12.2018
+
+Stephane Grappelli & Barney Kessel - Limehouse Blues (1969) 1991, Black Lion [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Don't Mean A Thing (If It Ain't Got That Swing) [5:47]
+02. Out Of Nowhere [3:49]
+03. Tea For Two [5:07]
+04. Limehouse Blues [3:28](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D5C35F7A150BE3D085964C9AD4D171E50072AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269851   (218318) от 16.12.2018
 
 Bobo Stenson Trio - Contra La Indecision (2018) ECM [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Modern Creative>
@@ -687,70 +745,6 @@ Paula Atherton - Can You Feel It (2020) [FLAC|Lossless|image + .cue] <Smooth Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:985AC448C897B1EA958F270DBFC955C26721853D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1586590   (215932) от 27.10.2022
-
-Lem Winchester & Benny Golson - Winchester Special (1959) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down Fuzz [10:05]
-02. If I Were a Bell [4:04]
-03. Will You Still Be Mine? [7:04]
-04. Mysticism [7:34](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D1E50EAFFB3A01143ACD440B85B0CF6D8F91C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 588886   (215771) от 13.12.2012
-
-Cityrhythm Orchestra - Vibrant Tone (2004) [FLAC|Lossless]<Big Band, Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Senor Blues
-02. Time After Time
-03. The Cat
-04. Billie's Bounce
-05. Walk On The Wild Side
-06. Blues In Hoss Flat
-07. It Could Happen To You
-08. One Mint Julep
-09. It Ain't Necessarily So
-10. Whirly Bird(   Читать дальше...   )Жанр: Big Band, Mainstream Jazz, SwingПродолжительность: 01:13:02
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

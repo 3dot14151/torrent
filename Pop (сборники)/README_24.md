@@ -1,3 +1,110 @@
+###  Публикация: 309251   (842638) от 15.03.2011
+
+VA - Весна плюс Русский (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842638.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 05:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE15263F40B9E67B053B43B79152D475C520AB07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309310   (842534) от 15.03.2011
+
+VA - Кино Шлягер Часть 2 (2011) [MP3|256 kbps]<Pop/Soundtrack>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_842534.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/SoundtrackПродолжительность: 05:50:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:098AABFE6DD30CBBED0F8520383064BA6778D8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1500388   (840949) от 06.10.2021
+
+VA - Осень на Love Radio (2021) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Minelli - Rampampam (Vadim Adamov & Hardphol) (3:11)
+02. Shouse - Love Tonight (HUBBA MRK Extended Remix) (4:34)
+03. Ed Sheeran - Bad Habits (Camp Kubrick Cover) (4:11)
+04. Kungs - Never Going Home (2:49)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3D56CAA77C826577ADEA933696C3F41EC13B46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 309840   (840913) от 16.03.2011
+
+Va - Дискотека От Руки Вверх (2011) [MP3|256 kbps]<Pop/Dance >
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840913.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/DanceПродолжительность: 06:13:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739725E0C86E78E1069735F8470D67696090B409
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 309704   (840700) от 16.03.2011
 
 VA - Как Это Было. Хиты 80-х от Ретро Fm (2010) [MP3|256 kbps]<Pop/Disco>
@@ -611,122 +718,6 @@ VA - Radio Record present: Progressive House (2011) [MP3|256 kbps]<Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DD21503CBA8587516593F7D89F10C8C31181D48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114139   (835174) от 13.03.2017
-
-VA - Hits Cocktail vol.2 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ida Una - One
-02. The Parakit & Alden Jacob - When I Hold You
-03. Laidback Luke & Ralvero feat. Ina - XOXO
-04. Diamm feat. Laura Green - Holding Back Your Love (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A1E28C6B4C0E21EBC7EF8EAD2EB2722CE587AB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113991   (835103) от 13.03.2017
-
-VA - Radio Top Music FM - February (2017) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_835103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie) (4:11)
-02. Егор Крид - Мало так мало (3:06)
-03. Steve Aoki & Louis Tomlinson - Just Hold On (Original Mix) (3:19)
-04. Matthew Koma - Kisses Back (3:46)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:13:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC721A91C125028006425997CB04F74F3BC067CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501155   (835035) от 10.10.2021
-
-VA - Top 100: Deluxe Disco Party (2021) [MP3|320 Kbps] <Disco, Dance, Remastering>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835035.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ltg Long Travel Groove - Lost My Funk
-002. Flamingo Pier - Last Call
-003. Jackie Stoudemire - Flying High
-004. Rudy's Midnight Machine - La Cadenza(   Читать дальше...   )Жанр: Disco, Dance, RemasteringПродолжительность: 09:28:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C921131B5D32A77FB81098100C10E5D51E0D1CBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1114129   (834996) от 13.03.2017
-
-VA - Hits Cocktail Vol.3 (2017) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_834996.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charming Horses Feat. Jona Bird - Follow (Radio Edit)
-02. Kygo & Selena Gomez - It Ain't Me
-03. Krono feat. Paul Kostick - You're Beautiful (Extended Mix)
-04. Anne-Marie - Ciao Adios(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:07:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4771F9CF7644AA93A962088FE2DBB66E94322AAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

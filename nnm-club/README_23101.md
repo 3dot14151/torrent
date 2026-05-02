@@ -1,31 +1,22 @@
-###  Публикация: 592885   (135454) от 23.12.2012
+###  Публикация: 1088685   (137612) от 31.12.2016
 
-Vrum - ;__; (2012) [MP3|320 кб/с]<Shoegaze Indie Post Rock>
+Delicious: Emily's Christmas Carol (2016) [Ru] (1.0) Unofficial  [Collector's Edition / Коллекционное издание]
 
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Win Игры
+>>Strategy/Manager/Business (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135454.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137612.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Infinite Forest, 04:16
- 2. Cars Go In Two Directions, 04:50
- 3. Some Chords From Riku's NES, 01:50
- 4. Pandas With Tambourines 1, 03:26
- 5. Pandas With Tambourines 2, 04:36
- 6. Mosquitoes Are Swarming This Summer, 05:32
- 7. The Operator Of A Huge Cash Magnet Which Inmost Purpose Is To Destroy The World, 02:48
- 8. The Symbols And Their Meanings, 04:49
- 9. Flu, 03:49
- 10. Your Song, 06:39Жанр: Shoegaze Indie Post RockПродолжительность: 00:42:40
+В ресторане у Эмили снова суета. На этот раз - рождественская! Беспокойная хозяйка должна успеть угодить и нетерпеливым клиентам, и вредной мамочке, и непоседливой дочурке. Помогите нашей героине вовремя принять заказы, создать в ресторане праздничную атмосферу и заработать за пройденные уровни как можно больше золотых звезд.Тип издания: UnofficialРазработчик: GameHouseЖанр: Аркада, Казуальная, Бизнес-симуляторЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F7387CE280D75CF144B861C187C51433C695B738
+magnet:?xt=urn:btih:A4060CCA6BFFA3E967FC5F95403DC0138E3630E5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -33,34 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593334   (135451) от 23.12.2012
+###  Публикация: 1196068   (137609) от 31.12.2017
 
-VA - Dance Vibration Vol 2 (2012) [MP3|320 кб/с]<Trance>
+Самолётом, поездом, машиной / Planes, Trains & Automobiles (1987) BDRip [H.265/1080p-LQ]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135451.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137609.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. B-A-D-B-O-Y-Take Me Away (Vinylbreaker Remix) 05:41
- 02. Basewalker & Vyrus-Dancing Through the Night 06:12
- (DJ Locos Summer Remix)
- 03. Clark Owen-Melody 05:45
- (Wavepuntcher & Sexual Energy Remix)
- 04. Dittin & Jockiboi-VI Dricker Redbull Och Vodka 05:19
- (Saamen Van Aaren & Nrg-Boy Summer Remix)
- 05. DJ Darroo-Black Magic 08:34
- 06. DJ Equan-I'm Destination 06:47
- 07. Edvard Hunger-Close My Eyes 05:41(   Читать дальше...   )Жанр: TranceПродолжительность: 02:03:37
+Всё что было нужно преуспевающему «рекламщику» Нилу Пэйджу, так это успеть домой ко Дню Благодарения. Ведь это так просто: купить билет на самолёт, совершить комфортабельный полёт до родного Чикаго и уже вечером сесть за праздничный стол со всей своей семьёй. Но случилось так, что это оказалось чудовищно трудной задачей. Путь домой станет для Нила самым невероятным (   Читать дальше...   )Производство: СШАЖанр: КомедияРежиссер: Джон ХьюзАктеры: Стив Мартин, Джон Кэнди, Лайла Робинс, Майкл МакКин, Кевин Бэйкон, Дилан Бэйкер, Кэрол Брюс, Оливия Бернетт, Диана Дуглас, Мартин Ферреро, Ларри ХэнкинПеревод: Многоголосый закадровыйСубтитры: отсутствуют.Продолжительность: 01:32:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79843F382DC8FB8D76DAF39134FDA516C495C35E
+magnet:?xt=urn:btih:A15F5D55248B4734F0F244B4C42F146DB4792017
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -68,98 +50,23 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593223   (135450) от 23.12.2012
+###  Публикация: 1088524   (137608) от 31.12.2016
 
-Magic Island Recordings - Best Of 2012 (2012) [MP3|320 кб/с]<Trance, Progressive Trance>
+Очередное достижение: 1000 релизов от electro75!!!
 
->>Архив торрентов
->>Архив Музыки
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135450.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_137608.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sunlounger & Zara Taylor - Try To Be Love (Roger Shah Naughty Love Mix) (7:15)
-02. Roger Shah & Sian Kosheen - Shine (Sean Tyas Dub Remix) (6:27)
-03. Roger Shah feat. Adrina Thorpe - Island (Antillas Club Mix) (7:12)
-04. Roger Shah feat. Carla Werner - One Love (Andrew Rayel Remix) (7:15)
-05. Roger Shah feat. Inger Hansen - Dance With Me (Tomas Heredia Remix) (6:33)
-06. Roger Shah & Sian Kosheen - Hide U (Jerome Robins Vocal Mix) (3:21)
-07. Sunlounger & Zara Taylor - Try To Be Love (Alex Tasty Remix) (6:15)
-08. Roger Shah feat. Carla Werner - One Love (Club Mix) (8:07)
-09. Roger Shah feat. Inger Hansen - Dance With Me (Pumpin' Island Mix) (7:15)
-10. Roger Shah & Sian Kosheen - Shine (Stefan Dabruck Remix) (6:38)Жанр: Trance, Progressive TranceПродолжительность: 01:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32D67D8AD9E84E1FA46A2CB186E5282DB72D2667
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591604   (135446) от 23.12.2012
-
-Ananda Shankar - Ananda Shankar (1970) [MP3|320 кб/с]<World Fusion, Psychedelic Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jagger, Richards - Jumpin' Jack Flash  - 3:33
-02. Ananda Shankar, Paul Lewinson - Snow Flower  - 2:47
-03. Morrison, Densmore, Manzarek, Krieger - Light My Fire - 3:31
-04. Ananda Shankar, Paul Lewinson - Mamata (Affection)  - 3:08
-05. Ananda Shankar, Paul Lewinson - Metamorphosis  - 6:48
-06. Ananda Shankar, Paul Lewinson - Sagar (The Ocean)  - 13:14
-07. arr.Ananda Shankar, Paul Lewinson - Dance Indra (traditional)  - 3:52
-08. arr.Alex Hassilev, Ananda Shankar, Paul Lewinson -  Raghupati (folk tune) - 3:26Жанр: World Fusion, Psychedelic RockПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2229755C69ACAE47507D7978FD6061525E435E96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593278   (135445) от 23.12.2012
-
-Darrell Nulisch - Just For You (2009) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Don't Know Me
-02. The Woman Don't Live Here No More
-03. Work for Love
-04. Just for You
-05. It's a Shame
-06. Just a Little Blues
-07. Far Too Lonely
-08. All the Love We Had
-09. Let a Woman Be a Woman
-10. Natural ThingЖанр: BluesПродолжительность: 00:37:53
+Очередное достижение: 1000 релизов от electro75!!!Уважаемые одноклубники, рад сообщить Вам о возможности поздравить нашего товарища с 1000-м релизом!От всей души поздравляем
+electro75
+с этим достижением и выражаем огромную благодарность от имени всех одноклубников и администрации nnmclub.to!Надеюсь, что вы все также присоединитесь к этим поздравлениям! (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -171,156 +78,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592187   (135443) от 23.12.2012
+###  Публикация: 1436317   (137607) от 31.12.2020
 
-New year wallpapers 2013 (18.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135443.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия раздач отРазрешение файлов: 1680x1050 - 2560x1920
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7600ED8DA28BF8FD37D899FD92E743E05387B842
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593351   (135441) от 23.12.2012
-
-Draugr - De Ferro Italico (2011) [WavPack|Lossless]<Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dove Italia Nacque [02:10]
-02. The Vitulean Empire [05:15]
-03. Laugure E Il Lupo [05:52]
-04. Ver Sacrum [09:25]
-05. Suovetaurilia [04:36]
-06. Legio Linteata [06:01]
-07. Ballata Dautunno [01:42]
-08. Inverno [07:32]
-09. Roma Ferro Ignique [06:26]
-10. De Ferro Italico [10:34]Жанр: Folk MetalПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 591627   (135440) от 23.12.2012
-
-deeB - Daydream (EP) (2012) [MP3|320 кб/с]<trip-hop, acid jazz, insrumental hip-hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135440.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Eleven11
-2. Leiden Lowlife
-3. Blik
-4. Inside The Outside
-5. Chillwings
-6. E-Type
-7. Daydream
-8. Dan Natural
-9. The Grand Illusion
-10. Coffee & TreesЖанр: trip-hop, acid jazz, insrumental hip-hopПродолжительность: 00:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AEDF7B34BA62FEA008A50253C8591C2AD188888
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593327   (135439) от 23.12.2012
-
-Чрезвычайное происшествие. Обзор за неделю (23/12/2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135439.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр передачи можно назвать "журналистикой инцидента". Его особенности в том, что программа, по сути, представляет собой не просто криминальную сводку или уголовную хронику, а показывает реальную жизнь без прикрас. Когда на НТВ возникла идея итоговой программы о происшествиях, работать пришлось в авральном режиме. Окончательное решение созрело за две недели до первого выпуска, когда в газеты уже была отдана программа телепередач с новой строкой - "ЧП. Обзор за неделю". Команда собрана из профессионалов жанра, людей, которые знают, что нужно зрителю, могут добыть это и умеют эффектно подать материал. Эта команда и смогла создать качественный продукт, основой которого стали репортажи с реальным, не постановочным видео. Неподдельные эмоции, наэлектризованная атмосфера критических ситуаций, невероятные, но абсолютно достоверные факты, - все это каждое воскресенье ждет вас на канале НТВ!Жанр: ТелепередачаПродолжительность: 00:25:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6B80D66A49128F0FC11184F917BEC4929E0378B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593302   (135438) от 23.12.2012
-
-Demetrius Nabors - A Journey Within Part 1 (2011) [FLAC|Lossless]<Smooth Jazz>
+Sonny Rollins - 3 Essential Albums (1958 - 1966) 3CD, 2017, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137607.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Croydon Road
-02. What A Day
-03. Journeying Through Time
-04. A Flowing Interchange
-05. Into The Night
-06. Ridin' & Groovin'
-07. Is There A Chance
-08. Just When I Thought
-09. So Into You
-10. Strollin' Down Blaine(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:48:55
+CD1 - Sonny Rollins And The Big Brass:
+01. Grand Street [6:08]
+02. Far Out East [4:34]
+03. Who Cares [4:00](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:12:32
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:3607ACDF488415F201CBC8980B6A84DD90A96382
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -328,33 +107,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593315   (135437) от 23.12.2012
+###  Публикация: 1272610   (137606) от 31.12.2018
 
-Dado Moroni Trio - Shapes (2011) [FLAC|Lossless]<Post-Bop>
+Иар Эльтеррус | Безумие Бардов (2018)
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135437.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137606.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ballade Pour Gianni
-02. Brother Alfred
-03. Desafinado
-04. The Duck And The Duchess
-05. Love Dance
-06. F.B.S.
-07. For The Time Being
-08. Shark Attack
-09. Here's To LifeЖанр: Post-BopПродолжительность: 01:04:14
+Все когда-нибудь случается, даже совершенно невозможное. Смешались времена и пространства, сошлись вселенные, гигантские флоты врага, жаждущего подмять под себя Империю, уже в пути. Но есть те, на ком лежит ответственность за все вокруг, кто обязан изменить ситуацию. И неважно, какой ценой для них самих. Их зовут Безумными Бардами, считают сумасшедшими. Что ж, возможно (   Читать дальше...   )Жанр: Боевая фантастика, Научная фантастикаПродолжительность: 17:05:23
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:4F1C242F68B3758627255E13EC374D550FAFF383
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -362,33 +133,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592771   (135436) от 23.12.2012
+###  Публикация: 1679461   (137603) от 25.11.2023
 
-Alpha Tiger - Man Or Machine (2011) [WavPack|Lossless]<Power / Heavy Metal>
+Венера Хабирова | Помощь пищеварению: подбери себе ферменты и горечи (2022) WEB-DL [AD] [RU]
 
->>Архив торрентов
->>Архив Музыки
+>>Обучающие видеоматериалы
+>>Здоровье и Спорт (видеокурсы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135436.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137603.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Starrider [06:35]
-02. Crimson Desert [04:41]
-03. Men Or Machines [06:23]
-04. When Autumn Leaves Fall [05:15]
-05. Against The Time [06:30]
-06. Martyr's Paradise [07:34]
-07. Karma [04:31]
-08. Exit Night [06:07]
-09. Black Star Pariah [07:12]Жанр: Power / Heavy MetalПродолжительность: 00:54:51
+Подбор решений под каждую из задач: когда нужно помочь усвоить белки; жиры; углеводы; клетчатку?
+Как подстраховать ЖКТ от болючей симптоматики?
+Как не "наступить на грабли" при приеме ферментов и горечей
+(   Читать дальше...   )Жанр: ЗдоровьеЯзык озвучки: РусскийПродолжительность: 07:21:05Реклама: Наложение на видео
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:CDD6CB535EDEA7423F55F93096036A411FDF6A47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,25 +162,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 592651   (135433) от 23.12.2012
+###  Публикация: 970656   (137602) от 31.12.2015
 
-Просто жизнь / Life Just Is (2012) DVDRip [EN]
+Крестный отец 3 / The Godfather: Part III (1990) BDRip [H.264]
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135433.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137602.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Британская драма "Просто жизнь" сфокусирована на одной неделе жизни четверых выпускников колледжа Пита, Tома, Клэр и Джей во время их нелёгкого перехода во взрослую жизнь. Несмотря на повседневные тяготы и рутину, Пит пытается найти духовный ответ на смысл жизни, Джей пытается наладить новую связь, а Том и Клэр испытывают все увеличивающееся взаимное притяжение...Жанр: ДрамаРежиссер: Алекс БарретАктеры: Уилл Де Мео, Джек Гордон, Натаниэль Мартелло-Уайт, Пол Николлс, Фиона Райан, Джэйн Вайзенер, Рэйчел Брайт, Джейсон Крут,  Эндрю ХоулиПеревод: ОтсутствуетПродолжительность: 01:41:57
+Заключительная часть знаменитой гангстерской эпопеи, в которой продолжается рассказ о делах «семьи» дона Корлеоне. Через двадцать лет после событий, описанных в предыдущей картине, Майкл Корлеоне решает заняться легальным бизнесом. Однако противодействие внутри клана заставляет его вспомнить об испытанных кровавых методах общения с противником, что приводит к трагическому (   Читать дальше...   )Производство: США / Paramount Pictures, Zoetrope StudiosЖанр: Драма, Криминал, Боевик, ТриллерРежиссер: Френсис Форд КопполаАктеры: Аль Пачино, Энди Гарсиа, Талия Шайр, Илай Уоллак, Джо Мантенья, София Коппола, Фрэнк Д’Амброзио, Джордж Хэмилтон, Бриджит Фонда, Раф Валлоне, Донал Доннелли, Ричард Брайт, Хельмут Бергер, Дон Новелло, Джон Сэвэдж, Франко Читти, Марио Донатоне, Витторио Дузе, Энцо Робутти, Мишель Руссо, Аль Мартино, Роберт Чиккини, Роджерио Миранда, Карлос Миранда, Вито Антуофермо, (   Читать дальше...   )Перевод: Дублированный, профессиональный (многоголосый закадровый) x5, профессиональный (двуголосый закадровый) x2, авторский (одноголосый закадровый) x3Язык субтитров: Русский (Forced, Full), АнглийскийПродолжительность: 02:50:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5285F423CFC90E0A924F22C85C8234A435CB5156
+magnet:?xt=urn:btih:E97401414967146C44DC032775AC906C448A7751
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -422,366 +188,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593308   (135428) от 23.12.2012
+###  Публикация: 1521056   (137601) от 31.12.2021
 
-Shirley Johnson - 2 альбома (2002, 2009) [MP3|320 кб/с]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-
-2002 - Killer Diller
-
-2009 - Blues Attack
-
-(   Читать дальше...   )Жанр: BluesПродолжительность: 02:07:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593264   (135427) от 23.12.2012
-
-Dan Beaver And His Dam Blues Band - Last Call (2005) [FLAC|Lossless]<Blues>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Tuff
-02. The Rain
-03. Going Down Slow
-04. Howlin' Wolf
-05. Shake That Boogie
-06. For What It's Worth
-07. Bo Diddley
-08. Gimmie One Reason
-09. Think
-10. If I Can Hold You(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593287   (135425) от 23.12.2012
-
-Годы несбывшихся надежд (1988) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135425.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм с участием О. Лациса, С. Дзарасова, Н. Шмелева, Ф. Бурлацкого, С. Залыгина, Л. Разгона.Жанр: ДокументальныйПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E40E244D70E151ED235D1C51961AD65D5A32FC30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593001   (135424) от 23.12.2012
-
-SUMo 3.4.14.189 [Multi/Rus]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135424.jpg" />
-</div>
-
-
-###  Подробнее
-
-SUMo - программа, позволяющая отслеживать появление обновлений для различных установленных на компьютере программных продуктов. В случае, если после проверки находятся более новые версии ПО, выводится соответствующее сообщение и выдается ссылка на закачку новой версии. Есть конечно и большое количество альтернатив этой разработке, есть вроде даже в Windows встроенная система поиска, но по словам авторов она мало эффективна, так как допустим разработчик обновил версию своего ПО, но на сайте пока нет официальной информации, вы об этом не узнаете через стандартную утилиту, а SUMo выдаст вам новую версию моментально.
-
-Как только вы первый раз запустите программу, она предложит вам провести сканирование компьютера, соглашайтесь, после вам выдадут список программ, собственно на скриншоте это видно. Чтобы добавить свои программы в список, нжно просто перетащить ярлык или сам исполняемый файл в окно SUMo. Тогда жмем обновить и программа ищет обновления. Все просто.Название программы: SUMoЯзык интерфейса: Multi/Rus
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593271   (135422) от 23.12.2012
-
-Scribus 1.4.1 [Multi/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135422.jpg" />
-</div>
-
-
-###  Подробнее
-
-Scribus – бесплатная издательская программа с открытым кодом для создания текстовых и графических документов любой сложности. Цель Scribus – предложить достойную альтернативы коммерческим редакторам такого типа. Одновременно с легкостью в использовании и легким пониманием интерфейса, Scribus предоставляет профессиональные функции, такие как, система цветоделения CMYK, легкое создание документов PDF, и инкапсулированный язык описание страниз PostScript. Также поддерживается полное ICC управление цветом, и создание разделения цветов. Поддерживается импорт документов OpenOffice.org, ESP, HTML, SVG, PDF.Название программы: ScribusЯзык интерфейса: Multi/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593374   (135421) от 23.12.2012
-
-VSO Downloader Ultimate 2.9.14.7 [Мульти/Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135421.jpg" />
-</div>
-
-
-###  Подробнее
-
-VSO Downloader - менеджер для многопоточной загрузки файлов, с помощью которого можно легко загружать онлайн-видео с различных сервисов видеохостинга, как например YouTube. Для загрузки нет необходимости копировать и вставлять URL-адрес - программа автоматически обнаруживает и скачивает потоковое видео, отсекая при этом различные баннеры и рекламные объявления. Присутствует поддержка HTTP, HTTPS протоколов и прокси-серверов, возможность докачки и прочее.Название программы: VSO Downloader UltimateЯзык интерфейса: Мульти/Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592787   (135419) от 23.12.2012
-
-Necronomicon - The Queen Of Death (2012) [FLAC|Lossless]<Doom Metal / Psychedelic Rock>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Holy Planet Yamoth (06:38)
-02. The Assassin's Song (05:20)
-03. The Black Priests Of Chaos (07:00)
-04. Dreaming Of The Old Ones (06:04)
-05. Hypnotic Overdrive Machine (07:04)
-06. The Queen Of Death (06:30)Жанр: Doom Metal / Psychedelic RockПродолжительность: 00:38:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593418   (135418) от 23.12.2012
-
-Softany WinCHM Pro 4.31 RePack by loginvovchyk [Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135418.jpg" />
-</div>
-
-
-###  Подробнее
-
-WinCHM является удобной и мощной утилитой для создания справочных систем. Не обладая особыми знаниями, вы можете создавать профессиональные и хорошо выглядящие HTML-справки (CHM), веб-справки, PDF-инструкции и документы Word. Основные возможности программы: поддержка шаблонов; создание полноценных веб-справок (с содержанием,
-указателем, поиском и закладками); полноценный WYSIWYG-редактор HTML, не требующий
-установки стороннего ПО; редактирование готовых CHM-файлов; импорт HTML-файлов для
-быстрого добавления данных; поддержка содержания с иерархической структурой,
-смены иконок, мультивыбора; визуальный редактор CHM-файлов.
-
-(   Читать дальше...   )Название программы: Softany WinCHM ProЯзык интерфейса: Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593446   (135416) от 23.12.2012
-
-VA - Christmas in St. Moritz (Chilled Tunes For Relaxed X-Mas Days) (2012) [MP3|320 кб/с]<Downtempo, Lounge, ChillOut>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - My Dream (Original Mix)
-02. MoVoX - Nice Trip 09 (Original Mix)
-03. Minor Dreamer - D.O.N.T. (Original Mix)
-04. Lazy Hammock - One of Those Days (Original Mix)
-05. Pianochocolate - Zuzu (Original Mix)
-06. Paul Adam - Backwards (Original Mix)
-07. Bodean - Keep On Moving (Original Mix)
-08. Twentyeight - Sunday Morning (Original Version)
-09. Daniel Ray - Debonair (Original Mix)
-10. The Soulful Sun - Loose It (Original Mix)(   Читать дальше...   )Жанр: Downtempo, Lounge, ChillOutПродолжительность: 01:53:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:272E7BA9B6CB6B0F6E05154AC52A65FAE6A51D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593275   (135415) от 23.12.2012
-
-Dan Patlansky - Move my Soul (2009) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jump on
-02. Why?
-03. Big things going down
-04. Insufficient man
-05. Peace of Eden II
-06. Move my soul
-07. You upset me
-08. Come & play
-09. Luka
-10. Lord you are beautiful(   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593332   (135411) от 23.12.2012
-
-Журнал | EN-Gamer №5 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135411.jpg" />
-</div>
-
-
-###  Подробнее
-
-«EN-Gamer» — новый журнал о компьютерных играх. Пятый номер журнала расскажет о фан-сайтах игры "Аssassins Creed" и многое другое.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455C4C84180141A063A66AE5E5C8596C4EF6877F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 592072   (135410) от 23.12.2012
-
-VA - Creative Music Box 6 (2012) [MP3|320 кб/с]<Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal Step>
+Blues Cousins - Compilation (2020) [MP3|320 Kbps] <Rock, Blues>
 
 >>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135410.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137601.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Asking Alexandria - A Lesson Never Learned
-2. Bassex - Tinnitus
-3. Butch Clancy - Xlam
-4. Butch Clancy- The Devil's Quid Pro Quo
-5. Cenob1te - Hyperion
-6. Deltron 3030 - Upgrade (Figure Remix)
-7. Demented Dimensions - I Swear to God
-8. Document One feat. Maksim - Kick Snares And Brehs
-9. Dubwoofer - Carol Of The Bass
-10. Eliminate - Devil Theory(   Читать дальше...   )Жанр: Dub Step/Glitch Hop/Drum'n'Bass/Drum Step/Metal StepПродолжительность: 02:18:04
+01. The Shadow
+02. Back to Texas
+03. Sleepless Night
+04. Nobody  Knows(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:36:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:34D9A6E0E12F409DF5BC70019504C1BF1BF2A7C3
+magnet:?xt=urn:btih:086360311628F4C36EBBE7904A688B24563815B9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -789,34 +217,479 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 593559   (135408) от 23.12.2012
+###  Публикация: 1273237   (137600) от 31.12.2018
 
-Chamras Saewataporn - Green the World (2011) [MP3|320 кб/с]<New age, Instrumental, Relax>
+У Чэн-энь | Путешествие на Запад (Том 2) (2009) [MP3, Вячеслав Герасимов]
 
->>East Asian Music
->>Other Asian
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137600.jpg" />
 </div>
 
 
 ###  Подробнее
 
-(3:24) 01. Green The World
-(3:50) 02. A place in the heart
-(3:04) 03. The tree of Life new
-(3:35) 04. In the year 2012
-(3:53) 05. The Voice in the Jungle
-(3:15) 06. Secret of Paradise
-(3:08) 07. Forest Home and Sleepy Momo
-(3:48) 08. Thai Rice
-(3:48) 09. The Time Traveler
-(3:21) 10. First time I ever Saw this World(   Читать дальше...   )Жанр: New age, Instrumental, RelaxПродолжительность: 00:46:07
+Этот роман - жемчужина китайской классической прозы. Он написан более трехсот лет назад и стал неотъемлемой частью мировой культуры. Историческое ядро сюжета - путешествие буддийского монаха Сюань-цзана в Индию за священными сутрами. Реальное путешествие удивительно переплетается с фантастическими подробностями. Оригинальные сюжетные ходы, схватки с демонами и оборотнями (   Читать дальше...   )Жанр: КлассикаПродолжительность: 20:21:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5AE879427D2F93FD188A0724CFD462938FEA51F1
+magnet:?xt=urn:btih:D71A5B786600B3E3AFD0FF95DD62FF7307879BE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679383   (137599) от 25.11.2023
+
+Карандаши против пикселей / Pencils vs Pixels (2023) WEB-DL [H.264/1080p] [DVO]
+
+>>Документалистика и Телепередачи
+>>Посвящение искусству
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137599.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это празднование уникальной магии двухмерной ручной анимации и исследование того, как Disney конца 1980-х - начала 1990-х годов привел к анимационному буму, который был быстро прерван последовавшей за ним революцией компьютерной анимации.Производство: США, Hideout Pictures, Minutehand PicturesЖанр: документальный, история, искусствоРежиссер: Бэй Дариз, Фил ЭрнестУчастники: Мин-На Вэнь, Кевин Смит, Сет МакФарлейнПеревод: двуголосый любительский (Pazl Voice)Язык озвучки: русскийСубтитры: русские (forced + full, Pazl Voice), английские (full + SDH)Продолжительность: 01:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A98803CB2F4510D97E31FAEAC61C9A7DDDA7B58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436357   (137598) от 31.12.2020
+
+Растровый клипарт - Pasta pepper tomatoes and cheese stock photo [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Растровый клипарт (фото)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137598.jpg" />
+</div>
+
+
+###  Подробнее
+
+Паста с перцем, помидорами и сыром, для рекламных плакатов и любого другого вашего творчества.Формат: JPGРазрешение файлов: 5480x7000-7000x5821
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7F82B323846149D5BF5BCF033E49D20E3E48E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601291   (137596) от 31.12.2022
+
+Король и Воробей. Пеле и Гарринча - герои футбола / Il Re e l'uccellino. Pele e Garrincha. Eroi Del Calcio (2004) SATRip
+
+>>Спорт и активный отдых
+>>Футбол
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137596.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о Короле футбола Пеле (Эдсон Арантес ду Насименту) и об одном из величайших футболистов истории мирового футбола Манэ Гарринче (Мануэл Франсиско дос Сантос). Советский журналист Игорь Фесуненко в интервью «Советскому спорту» вспоминал: «Там Пеле – это Бог. Его обожали постоянной и крепкой любовью. А Гарринча – это радость, это всеобщее ликование и наслаждение. (   Читать дальше...   )Производство: Бразилия, Италия, Испания, Gruppo Osmosi, Adelaide TVЖанр: документальный, история, биография, спортРежиссер: Алессандро ТурчиПеревод: одноголосый профессиональный (Игмар)Субтитры: отсутствуютПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C15C5EB58F1306C35477FC05D92EECAFF7F2032C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195715   (137595) от 31.12.2017
+
+Универ. Новая общага. Новогодняя серия (2017.12.27) HDTV [H.264/1080i]
+
+>>Отечественные сериалы
+>>Универ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Что такое Новый год? Запах мандаринов, елка, китайская пиротехника, вечная беготня за подарками в самый последний момент. И, конечно, новогоднее чудо! В сегодняшнем новогоднем эпизоде «Универа» Антону Мартынову выпадет уникальный шанс изменить свою жизнь, надо только правильно попросить об этом Дедушку Мороза. И быть осторожнее со своими желаниями — ведь они могут (   Читать дальше...   )Производство: Россия / ТНТЖанр: комедияРежиссер: Константин Смирнов, Максим ЗыковАктеры: Арарат Кещян, Станислав Ярушин, Анна Кузина, Настасья Самбурская, Анна Хилькевич, Ашот Кещян, Сергей Пиоро и др.Субтитры: ОтсутствуютПродолжительность: 00:24:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD3264F2E5F369665973E25AB30ABBBD171A1E4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1088344   (137594) от 31.12.2016
+
+Gioma - Dj Remix (2016) WEBRip [H.264/720p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник хороших танцевальных клипов для поднятия настроения от Dj Gioma01. La Bouche - Sweet Dreams  [03:15]
+02. Afric Simone - Hafanana [03:35]
+03. Pink Floyd - The Wall  [03:25]
+04. Boney M - Daddy Cool [02:40](   Читать дальше...   )Жанр: Remix, ElectronicРежиссер: GiomaПродолжительность: 02:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CBBEB57F0EF02221D9A751BDECC1CE66EC8381
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1520992   (137592) от 31.12.2021
+
+Eagles - Eagles (1972) remastered 2021, Mobile Fidelity  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take it Easy
+02. Witchy Woman
+03. Chug All Night
+04. Most Of Us Are Sad(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6717DFD27773E9C9843C0B6F7522EF647B2778CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1273304   (137591) от 31.12.2018
+
+В.В. Мадер | Математический детектив (1992) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137591.jpg" />
+</div>
+
+
+###  Подробнее
+
+Автор в занимательной форме знакомит читателя с методами решений логических задач. В первой главе рассматривается графический метод, во второй—табличный, в третьей главе показано, как решать логические задачи с помощью диаграмм Эйлера — Венна. Главы объединены занимательным сюжетом. Книга доступна учащимся начиная с шестого класса.Жанр: Обучение, логика, математикаФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19ADAA13F7AF86349A4FABAEC941559D77348092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601383   (137590) от 31.12.2022
+
+Под омелой / Under the Mistletoe (2006) DVDRip [H.264] [DVO]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137590.jpg" />
+</div>
+
+
+###  Подробнее
+
+Во время поездки за рождественской елкой Том Чендлер погибает в аварии. Он возвращается в виде призрака к своему сыну Джонатану, но овдовевшая Сьюзан пытается сконцентрироваться на работе и не верит в привидения. Тогда отец с сыном вносят ее имя в список службы знакомств, где она знакомится с адвокатом Грегом Робертсом. Однако Том с Джонатаном считают, что ей подойдет (   Читать дальше...   )Производство: Канада / Insight Film and Video Production Inc.Жанр: фэнтези, драма, мелодрамаРежиссер: Джордж МенделюкАктеры: Джейми Рэй Ньюман, Майкл Шэнкс, Конан Грэхэм, Ингрид Торранс, Расселл Портер, Баркели Даффилд, Дерек Грин, Jerocko Harder, Донна Уайт, Линдсэй МаксвеллПеревод: двуголосый любительский (ViruseProject)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:27:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46D212F9AB2C22110D4A05D87EC3C8EAF05E6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679575   (137589) от 25.11.2023
+
+Экстрасенсы. Битва сильнейших (25.11.2023) WEBRip [H.264/1080p] (сезон 1, выпуск 25)
+
+>>Документалистика и Телепередачи
+>>Непознанное и сверхъестественное
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137589.jpg" />
+</div>
+
+
+###  Подробнее
+
+В новом шоу ТНТ «Экстрасенсы. Битва сильнейших» за право стать лучшим сражаются самые яркие участники легендарной «Битвы экстрасенсов». Самые сильные победители и финалисты «Битвы» приняли вызов продюсеров и согласились еще раз доказать свои способности.
+«Экстрасенсы. Битва сильнейших» – это турнир, в котором лучшие из лучших показывают свою силу и эзотерические (   Читать дальше...   )Телекомпания: ТНТЖанр: Телепередача, ТВ-шоу, Реальное ТВСубтитры: ОтсутствуютПродолжительность: 01:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:379F20F9813AEA7B0C5A36CC8718DC4417058205
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970732   (137588) от 31.12.2015
+
+Evoland Dilogy (2013-2015) [Ru/En] (1.1.2490/1.0.9135) Repack R.G. Механики
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137588.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра является духовным наследником первой части, в которой по мере прохождения меняется графика и геймплей. Проект характеризуется проработанным сюжетом, базирующимся на путешествиях во времени, множеством персонажей с уникальными характерами, собственной историей и намерениями, обилием юмора и отсылок к оригиналу, а также разноплановым геймплеем, переплетенным с (   Читать дальше...   )Тип издания: RepackРазработчик: Shiro GamesЖанр: Arcade (Platform, Fighting), RPG (Rogue, Action), 3D, Isometric, Top-downЯзык озвучки: -/-Язык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34AECF282EF6DEFA3A004A20C957A33DB6EBD2D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349289   (137586) от 31.12.2019
+
+Code Geass: Fukkatsu no Lelouch | Code Geass: Lelouch of the Resurrection | Код Гиас: Лелуш воскресший [2019, Movie] BDRip 1080p HEVC 10bit raw
+
+>>Аниме с субтитрами
+>>Аниме (FullHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137586.jpg" />
+</div>
+
+
+###  Подробнее
+
+В альтернативной реальности Британская Империя захватила мир, обрушив на непокорных мощь своей военной машины. Новая глава саги о Лелуше, опальном отпрыске императорского рода и великом революционере, который поставил целью своей жизни разрушить Британскую Империю. Благодаря встрече с таинственной зеленоволосой девушкой, Лелуш получил магический дар, так называемый (   Читать дальше...   )Производство: студия Sunrise / サンライズЖанр: приключения, фантастикаРежиссер: Танигути ГороПеревод: AvriantЯзык озвучки: ЯпонскийСубтитры: Японские; РусскиеПродолжительность: 115 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EEBBCFD41593739326FCD4DF49639752B763836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1436517   (137585) от 31.12.2020
+
+Биатлон. Кубок Мира 2020-2021. Этап 4. Хохфильцен (Австрия). Мужчины. Масс-старт 15 км (2020) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Спорт и активный отдых
+>>Прочие зимние виды спорта
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137585.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кубок мира по биатлону 2020-2021
+20 декабря 2020, воскресенье. 14:00 МСК
+Этап 4. Хохфильцен (Австрия)
+Мужчины. Масс-старт 15 км(   Читать дальше...   )Телекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 00:41:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2AD7FE5ED48D635BD8EE644CDD4FA443FC56AE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195911   (137584) от 31.12.2017
+
+Kingsman: Золотое кольцо / Kingsman: The Golden Circle (2017) BDRip [1080p] ATV
+
+>>Аудио и Видео
+>>Зарубежное видео HD для устройств Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137584.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда штаб-квартиры секретной службы Kingsman уничтожены, и весь мир оказался в заложниках у неизвестных, британские суперагенты обнаруживают, что в один день вместе с их организацией была еще создана американская разведка — Statesman. Теперь эти две элитные спецслужбы должны объединиться и бросить вызов общему безжалостному врагу, чтобы спасти мир, то есть заняться (   Читать дальше...   )Производство: СШАЖанр: Боевик, комедия, приключенияРежиссер: Мэттью ВонАктеры: Тэрон Эджертон, Колин Фёрт, Марк Стронг, Джулианна Мур, Холли Берри, Педро Паскаль, Ченнинг Татум, Джефф Бриджес, Эдвард Холкрофт, Ханна АльстрёмПеревод: Дублированный (iTunes)Субтитры: Русские форсированные,  Украинские форсированные,  Русские,  Английские,  УкраинскиеПродолжительность: 02:21:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3E0272C3BA86025E6BD5840801208C3A46E1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970739   (137583) от 31.12.2015
+
+Суфражистка / Suffragette (2015) DVDScr
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_137583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм посвящен движению суфражисток (борьба за предоставление женщинам избирательных прав), зародившемуся в Великобритании в конце 19 века.Производство: ВеликобританияЖанр: ДрамаРежиссер: Сара ГавронАктеры: Кэри Маллиган, Мэрил Стрип, Хелена Бонем Картер, Брендан Глисон, Энн-Мэри Дафф, Грэйс Стоттор, Джофф Белл, Аманда Лоуренс, Шелли Лонгуорт, Адам Майкл ДоддПеревод: Двуголосый закадровый, любительскийОзвучка / Автор перевода: Parovoz ProductionПродолжительность: 01:46:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679422   (137581) от 25.11.2023
+
+Udemy, Krishna Lodha | Web GIS development course (2022) WEB-DL [EN / EN Sub]
+
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137581.jpg" />
+</div>
+
+
+###  Подробнее
+
+Объединение технологий с некоторыми нишевыми областями — верный способ выделиться из толпы!
+Если вы имеете опыт работы с ГИС и думаете, что сможете добиться успеха в своей карьере, изучив веб-разработку ГИС, этот курс для вас.
+Не волнуйтесь, даже если вы не имеете опыта работы с CS: я рассмотрел все: от базовых HTML-страниц до создания полноценного отраслевого стандартного (   Читать дальше...   )Производство: UdemyЖанр: ПрограммированиеЯзык озвучки: АнглийскийПродолжительность: 15:22:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE6181E9E083FE05E96E3F2A2272D51726144471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601358   (137580) от 31.12.2022
+
+Glary Disk Cleaner 5.0.1.284 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137580.jpg" />
+</div>
+
+
+###  Подробнее
+
+Glary Disk Cleaner - бесплатный инструмент от компании Glarysoft для очистки операционной системы от различного мусора. При помощи Glary Disk Cleaner можно существенно освободить место на жестком диске посредством удаления временных файлов системы, кэша различных приложений и утилит, кэша web-браузеров, файлов дампа памяти, очистки корзины и многое другое.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D5BACA3C4AFF3B41903E33EC5AA465332553477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1521019   (137579) от 31.12.2021
+
+Множественные святые Ньюарка / The Many Saints of Newark (2021) BDRemux [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137579.jpg" />
+</div>
+
+
+###  Подробнее
+
+1967 год, Ньюарк в штате Нью-Джерси. Маленький Тони Сопрано восхищается деловым партнёром отца — Ричардом Молтисанти по прозвищу Дики. Тот ответственно ведёт доверенную ему отцом, местным криминальным авторитетом, часть бизнеса и, в отличие от остальных мафиози, не гнушается иметь дело с чернокожими. Когда в городе вспыхивают беспорядки, спровоцированные жестоким (   Читать дальше...   )Производство: США / Chase Films, HBO Films, Home Box Office (HBO)Жанр: Криминал, драмаРежиссер: Алан ТейлорАктеры: Алессандро Нивола, Майкл Гандольфини, Лесли Одом мл., Вера Фармига, Джон Бернтал, Кори Столл, Рэй Лиотта, Микела Де Росси, Билли Магнуссен, Джон МагароПеревод: Дублированный, Профессиональный многоголосый, АвторскийСубтитры: Русские (Forced, Full), Английские (Full, SDH)Продолжительность: 02:00:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E22765F2A87DBFFB3BDE5ACF2F0F237C1344F4C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

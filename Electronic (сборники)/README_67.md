@@ -1,3 +1,61 @@
+###  Публикация: 1016970   (769684) от 15.05.2016
+
+VA - EDM Party Summer (2016) [MP3|320 кб/с] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769684.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dirty Armada - Flashlight (Raindropz! New Dance Remix) 4:55
+002. Girls Only - Wildest Dreams (Raindropz! Remix) 4:37
+003. Headhunterz & Skytech - Kundalini (Extended Mix) 4:08
+004. R.I.O. Feat. U-Jean - Cheers To The Club (Extended Mix) 3:45(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:31:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C5BBA9E5620C88C7A392F502DB67813A990F4D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1391978   (769396) от 25.06.2020
+
+VA - Cajmere - Wheels Of Steel Vol.1 (1998) авторская раздача [MP3|320 Kbps] <House, Minimal, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769396.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andre L. Prioleau & Gene Santiago - One Small Step (5:09)
+02. Djaimin & Djaybee - Fever (2:25)
+03. Cajmere - Only 4 U (Mark Grant Mix) (4:52)
+04. Kerri Chandler - It's You (3:32)(   Читать дальше...   )Жанр: House, Minimal, Tech House, TechnoПродолжительность: 01:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABB091F7393BD117ECEED8EE5C0E81102328E03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392429   (769222) от 26.06.2020
 
 VA - Ibiza Warm Time Trance (2020) [MP3|320 Kbps] <Trance, Progressive, Electro>
@@ -687,64 +745,6 @@ VA - Beatport Psychedelic Trance: Electro Sound Pack #115 (2020) [MP3|320 Kbps] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53EB7A3DE6B01B0A03D72758FBC249411BE0C96E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393756   (766303) от 02.07.2020
-
-VA - Beatport Ambient: Electro Sound Pack #120 (2020) [MP3|320 Kbps] <Ambient, New Age, Relaxation>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766303.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Spheruleus - Upward Ears
-002. Aremabad - Days & Nights
-003. Potlatch - The Bridge
-004. 4th Front - Emerge(   Читать дальше...   )Жанр: Ambient, New Age, RelaxationПродолжительность: 11:01:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ADB437765A6D5F8BBC04AF702151C61BBB6441D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279485   (766190) от 29.01.2019
-
-VA - Amalgama (2019) [MP3|320 Kbps] <Drum And Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766190.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amаlgаm - Tеmроrаl Flоw
-002. Dsurr - Stаrt At Midnight
-003. Grееkbоy - Highеr
-004. Idоlеаst - Fоr Thе Dаrksidе(   Читать дальше...   )Жанр: Drum And BassПродолжительность: 08 :44 :57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621D5BB7A921D8B3DF1FDE8F6D80556F5F9F6B2F
 ```
 
 https://mybot314.ru/tekegram_catalog/

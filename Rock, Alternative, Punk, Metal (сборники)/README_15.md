@@ -1,3 +1,61 @@
+###  Публикация: 1387576   (791259) от 02.06.2020
+
+VA - Rock Driver: Old Classic Rock (2020) [MP3|320 Kbps] <Classic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neil Young With Crazy Horse - Danger Bird
+02. Alice Cooper - School's Out
+03. The Bunnymen - Lips Like Sugar
+04. Montrose - I Got The Fire(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:51:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BEEC40EBB092A03CD5D4FB6C3A9DFD6C93739F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1275142   (791030) от 10.01.2019
+
+VA - Melodic Soft Rock (2019) [MP3|320 Kbps] <Melodic Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791030.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 10cc - The Things We Do For Love
+002. Belinda Carlisle - Heaven Is A Place On Earth
+003. Eric Carmen - Hungry Eyes
+004. Kenny Loggins - Danger Zone(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 07:54:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0492BFC43356EB2D81506B0C3506D3E6F3D0A2A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1510451   (790813) от 17.11.2021
 
 VA - The Purgatory (Vol.03) (2021) [MP3|320 Kbps] <Hardcore, Metal, Hard Rock>
@@ -693,64 +751,6 @@ VA - RockДрайв. Новинки русского рока. Часть 2 (201
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2196EAF582DF42E0671700C1915FAFDA84C61D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209098   (779484) от 25.02.2018
-
-VA - Русский Металл - Коллекция (2018) [MP3|320 Kbps] <Rock, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779484.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Арктида - Орлиное сердце (Stratovarius cover)
-002. Артур Беркут - Право Дано
-003. Гран-Куражъ - Кто Есть Кто
-004. Крылья - Дух Рок-Н-Ролла(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 16:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D9F230FADB1504C519CD5156123E758FAC35E3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209565   (779188) от 27.02.2018
-
-VA - Hard Rock Attack Vol.30 (2018) [MP3|320 Kbps] <Hard Rock, Heavy Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779188.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Black Veil Brides  -  Wake Up  2:42
-02.  Cyhra  -  Heartrage  3:27
-03.  Fall Out Boy  -  The Last Of The Real Ones  3:50
-04.  Gods Of Silence  -  You Mean Nothing More To Me  4:47(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 02:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0891D21A9ECF6EBD9320B686A5166ADF3EB8CCC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

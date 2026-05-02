@@ -1,3 +1,176 @@
+###  Публикация: 1666126   (180368) от 03.10.2023
+
+October Falls - The Womb of Primordial Nature (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_180368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I
+02. II
+03. III
+04. IVЖанр: Atmospheric Black Metal, NeofolkПродолжительность: 00:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CAA81F498E82E7CDB3A121B3B5F1E98B9685C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666081   (180259) от 03.10.2023
+
+Benassi Bros. feat. Dhany - Every single day (2005) hand made [restored, declipped] [FLAC|Lossless|tracks + .cue] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180259.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every single day (Original radio edit)
+02. Every single day (Original extended mix)
+03. Every single day (Club version)Жанр: ElectronicПродолжительность: 00:15:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98631A0DF3C6DBD774A515BF58FF272763772C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666297   (180248) от 03.10.2023
+
+Wolf - Studio Albums (9 releases) (2000-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_180248.jpg" />
+</div>
+
+
+###  Подробнее
+
+Wolf - хэви-метал группа из Эребру, Швеция, действующая с 1995 года.2000 - Wolf
+2002 - Black Wings
+2004 - Evil Star
+2006 - The Black FlameЖанр: Heavy MetalПродолжительность: 07:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3734A623F6F496335F408F0DCE5D0A736F64FD6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666223   (180228) от 03.10.2023
+
+Benassi Bros. feat. Dhany - Hit My Heart (2004) hand made [restored, declipped] [FLAC|Lossless|tracks] <House>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Hit My Heart (Radio Edit) [3:13]
+2. Hit My Heart (Sfaction Mix) [5:21]
+3. Hit My Heart (Original LP Version) [5:06]
+4. Hit My Heart (Vision Mix) [6:09](   Читать дальше...   )Жанр: HouseПродолжительность: 00:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78423F6EC0FD903007BE53D4D051B181D1C601CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666080   (180116) от 03.10.2023
+
+Kylie Minogue - Tension (2023) hand made [restored, declipped] [FLAC|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Padam Padam (2:46)
+02. Hold On To Now (3:58)
+03. Things We Do For Love (3:10)
+04. Tension (3:36)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:050ECBFE7C7D63B3138ABA625EB15FBF32DBA005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1666172   (180013) от 03.10.2023
+
+Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) hand made [restored, declipped] [FLAC|Lossless|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Future Nostalgia (3:04)
+02. Don't Start Now (3:03)
+03. Cool (3:29)
+04. Physical (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F36D88635320CD5AD68676CE4356BFD73B4B6FF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666440   (179695) от 04.10.2023
 
 October Falls - The Plague of a Coming Age (2013) [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal, Neofolk>
@@ -570,179 +743,6 @@ A4 Любовта, която остава(   Читать дальше...   )Ж
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4BDA3403F6CAB1454C51DBB792713612209758C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429648   (175788) от 07.12.2020
-
-Puhdys - Puhdys 11: Computer-Karriere (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop, Classic Rock, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175788.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Computer-Karriere
-A2 Flieg Mit Mir
-A3 Jahreszeiten
-A4 Stop, Baby, Stop(   Читать дальше...   )Жанр: Synth-pop, Classic Rock, New WaveПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668086   (175410) от 10.10.2023
-
-Behind the Scenery - Studio Albums (3 releases) (1997-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175410.jpg" />
-</div>
-
-
-###  Подробнее
-
-Behind the Scenery - Melodic Death Metal группа из Германии.1997 - Nocturnal Beauty Of A Dying Land
-2000 - ...of Honesty Forbidden
-2004 - RetroviseurЖанр: Melodic Death MetalПродолжительность: 02:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:34AAA72DB8E8085B95AF966E6733A610E517CBDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668144   (174595) от 11.10.2023
-
-Чёрный Кофе - Белый Ветер (2002) [FLAC|Lossless|image + .cue] <Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174595.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-01. Убытие
-02. Я Не Ранен - Я Убит
-03. Девятый День(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F14EE1F259D198B5DC0EF4D437637AA29DCA3BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430188   (174233) от 09.12.2020
-
-VA - Ленинградский Рок-клуб (1988) Записи 1986 - 1987 гг. [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Alternative Rock, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174233.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Игры - Освобождение (I Want To Be Free)
-A2 Алиса - Мое Поколение (My Generation)
-A3 Присутствие - Выйди Вон (Get Out)
-A4 АВИА - Шла Машина Грузовая (The Passing Lorry)(   Читать дальше...   )Жанр: Alternative Rock, New WaveПродолжительность: 00:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1085375   (173820) от 21.12.2016
-
-Александр Барыкин - Букет (1988) [WavPack|192/24|image + .cue|Vinyl-Rip] <Rock, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Букет (3:38)
-02. Дождь И Снег (4:36)
-03. Осенний Парк (5:05)
-04. Голос Твой (5:26)(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:37:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40F0F5D119F75403D0C08EFBB02654F6B2FBC17F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668137   (173817) от 12.10.2023
-
-Чёрный Кофе - Пьяная Луна (1996) Unofficial Release [FLAC 2.0|24/48|image + .cue|MC-Rip] <Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А:
-A1 Где-то В Слезах
-A2 Ветер
-A3 Белая Ночь(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:47:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

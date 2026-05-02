@@ -1,3 +1,183 @@
+###  Публикация: 1078864   (297655) от 02.12.2016
+
+Дип Пёрпл - Дым над водой (1988) Мелодия [WavPack|192/32|tracks|Vinyl-Rip] <Hard Rock>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297655.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Черная ночь (Black Night)  3:26
+2. Шаровая молния (Fireball)  3:22
+3. Космическое путешествие (Space Truckin')  4:30(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAF4EB5E93FA23AF73C768A21BFDA6FAD876C966
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1423453   (297336) от 14.11.2020
+
+Slade - Old New Borrowed And Blue (1974) [DSD 128|tracks (Vinyl-Rip)]<Glam-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297336.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Want A Little Bit (4:04)
+ 02. When The Lights Are Out (3:08)
+ 03. My Town (3:08)
+ 04. Find Yourself A Rainbow (2:12)(   Читать дальше...   )Жанр: Glam-RockПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8A3E5D73B3F08A83A612892B61A4EEDC1EE0CC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184866   (297142) от 19.11.2017
+
+Marina & the Diamonds - Electra Heart (2012) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Pop Rock, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297142.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Bubblegum Bitch 2:33
+A2 Primadonna 3:41
+A3 Lies 3:46
+A4 Homewrecker 3:23(   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:54:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:163EB7CCF6EE7D9C18E84CAC369FAE782C910245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 731655   (296999) от 07.12.2013
+
+Dire Straits - Brothers In Arms (UK-1985) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. So Far Away  4:00
+2. Money For Nothing  6:58
+3. Walk Of Life  4:05
+4. Your Latest Trick  4:35
+5. Why Worry  5:12
+Сторона 2
+1. Ride Across The River  6:44
+2. The Man's Too Strong  4:38
+3. One World  3:36(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:46:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28EF6996305902676186E9B67D432697DCEEFB96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 847481   (296009) от 05.12.2014
+
+Майк - LV (1982)  /1991, Эрио/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296009.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Увертюра (2:32)
+A2. Белая Ночь/Белое Тепло (3:00)
+A3. Лето - песня для Цоя (2:57)
+A4. Золотые Львы (5:36)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29307B0741427A8159A49843F9278FBBEEE28385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1079292   (295593) от 03.12.2016
+
+Queen - News Of The World (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_295593.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. We Will Rock You (2:01)
+A2. We Are The Champions (3:00)
+A3. Sheer Heart Attack (3:28)
+A4. All Dead, All Dead (3:11)(   Читать дальше...   )Производство: Electra - P-10430EЖанр: RockПродолжительность: 00:39:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FFD59EC19227F7934FB8CA6D88D9D9D475277FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 847155   (295386) от 05.12.2014
 
 Pink Floyd - The Endless River (2014) 2LP [FLAC 2.0 24/96|image (Vinyl-Rip)] <Progressive Rock>
@@ -571,180 +751,6 @@ Pink Floyd - The Dark Side of the Moon (1973) (Vinyl Rip 24/192) [FLAC|Lossless]
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963156   (288950) от 07.12.2015
-
-Meat Loaf - Blind Before I Stop (1986) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. День казни · Execution Day  6:30
-2. Торговцы рок-н-роллом · Rock'n'Roll Mercenaries  5:00
-3. Убить и сбежать · Getting Away With Murder  3:50(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ECDF6AE8E440EE3DAE6772249E5711FD0E8A699
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963050   (288850) от 07.12.2015
-
-Paul McCartney - Flowers In The Dirt (1989) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288850.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. My Brave Face  3:18
-2. Rough Ride  4:44
-3. You Want Her Too  3:12(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64FD3AA19720C2FDDF4DABE0ADFF89CBD138FA69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1080441   (288143) от 07.12.2016
-
-Давид Ойстрах - И. С. Бах - Сюита №2 си минор, Г.Ф. Гендель - Музыка на воде (1989) [WavPack|192/32|tracks|Vinyl-Rip] <Classical, Baroque>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_288143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-И. С. Бах. Сюита №2 си минор
-1. Ouverture  9:14
-2. Rondeau  1:34(   Читать дальше...   )Жанр: Classical, BaroqueПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B8076FFDAE30B7FA6A3E05687DE6B210D79A4BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839120   (287217) от 27.11.2025
-
-The Beverley-Phillips Orchestra - Gold On Silver - 20 Gold Hits From The Silver Screen (1976) [FLAC 2.0|96/24|image +.cue|Vinyl-Ri] <Soundtrack, Theme>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_287217.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Big Country (From The Film Of The Same Name)
-A2 Moon River (From The Film ''Breakfast At Tiffany's'')
-A3 Lara's Theme ''Somewhere My Love'' (From The Film ''Dr. Zhivago'')
-A4 A Man & A Woman (From The Film Of The Same Name)(   Читать дальше...   )Жанр: Soundtrack, ThemeПродолжительность: 00:58:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76C679515133942C1C63DC9A46599E7F5DCC7DC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963892   (285195) от 09.12.2015
-
-Sandra - The Long Play (1985) [FLAC 2.0 24/192|traks(Vinyl-Rip)]<Electronic, Pop>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. В ночной духоте · In The Heat Of The Night  5:18
-2. На блюдечке... (Семь Лет) · On The Tray (Seven Years)  3:44
-3. Малышка · Little Girl  3:10(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06764854BCC7FD068EE2B1E9EC8F4D68503BC92D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 963735   (285125) от 09.12.2015
-
-Кипелов - Отражение (2013) [WavPack 2.0 32/192 | image+.cue (Vinyl-Rip) | Lossless]<Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_285125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Сальери и его отражение [06:51]
-02 - Ария Надира [04:32]
-03 - Мёртвая зона [06:19]
-04 - Я свободен [07:15](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0692437317D1665851153A801944104FE2AB21F9
 ```
 
 https://mybot314.ru/tekegram_catalog/

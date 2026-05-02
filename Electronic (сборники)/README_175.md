@@ -1,3 +1,61 @@
+###  Публикация: 1333458   (303423) от 25.10.2019
+
+VA - Ultimate Synthpop Anthems (2019) [MP3|320 Kbps] <Syntpop, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303423.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Korgis - Everybody's Got To Learn Sometime
+002. Like Wolves In The Night - Too Young To Care
+003. New Order - Blue Monday '88
+004. Vicious Pink - Cccan't You See(   Читать дальше...   )Жанр: Syntpop, ElectronicПродолжительность: 09:53:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A7AB859A2B00F1E2F06FC2AD6C049B0E9AEC16B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1184194   (303327) от 16.11.2017
+
+VA - Best of Deep House. Volume 9. Shake it Baby [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Deep House, Funky House, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hotmood - Disco Flava (Felipe Gordon remix) [5:37]
+02. Doc Daneeka - Stay Away From Music [8:09]
+03. Soultronic - You & I [6:11]
+04. Denise Montana & Goody Goody - Nr 1 Dee Jay (Pagany Back 2 Disco mix) [7:12](   Читать дальше...   )Жанр: Deep House, Funky House, Disco HouseПродолжительность: 03:29:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFA5847F879562D525C077C27489A8FC33218007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1261558   (303102) от 11.11.2018
 
 VA - Options Remake Of Tracks November -A- (2018) [MP3|320 Kbps] <House>
@@ -693,64 +751,6 @@ VA - Trance Legends: Christmas (2015) [MP3|320 кб/с]<Trance, Uplifting Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C0BA7762198567537DE7FD68FCE3056D9BD5EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961942   (297107) от 03.12.2015
-
-VA - Sunrise Avenue Vol 5 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297107.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gary Cools - Watching from Above
-02. Jamie Rogers - Look Out
-03. Daniel Oliveira - Exeter
-04. Earl Coppens - Illusions of Dreams(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA654AC5E42124957A6ACCF0883BD1522D7F7326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334262   (296820) от 28.10.2019
-
-VA - Miami Hot Trance Party (2019) [MP3|320 Kbps] <Trance, Electro, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296820.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kross & Fader - Cardinal Points (Original Mix)
-002. Ilan Bluestone - Mama Africa
-003. Persona (Usa) - Ladylake (Original Mix)
-004. Mercurial Virus - Altitude (Extended Mix)(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 12:26:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:486624AC9C80AB83FA8B081BC910507DC4806C5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

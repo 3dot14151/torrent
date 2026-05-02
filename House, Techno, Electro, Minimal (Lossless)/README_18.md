@@ -1,3 +1,32 @@
+###  Публикация: 1198945   (801843) от 15.01.2018
+
+Hed Kandi - World Series: Tokyo (2010) [FLAC|Lossless|tracks] <Progressive House, Vocal House, Funky House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hardrive - Deep Inside (Harry Choo Choo Romeros Fun in the Sun Remix Edit) (3:31)
+02. Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (6:21)
+03. Simian Mobile Disco - Cruel Intentions (DJ Pierre Remix) (3:20)
+04. Ian Carey Feat. Michelle Shellers - Keep On Rising (Nicky Romero Remix) (4:20)(   Читать дальше...   )Жанр: Progressive House, Vocal House, Funky HouseПродолжительность: 02:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52DE1E66ECF4576ED783424D57F7882A62F31729
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1198907   (801834) от 15.01.2018
 
 Hed Kandi - Beach House (2010) [FLAC|Lossless|tracks] <House>
@@ -714,35 +743,6 @@ Forteba - For Some Time Past (2008) [FLAC|Lossless|image + .cue] <Deep House, Te
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91B1446512AC84C1A12EE73848223C81A6614701
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011247   (797031) от 27.04.2016
-
-Forteba - Stereoform (2012) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Magnetik Fluid
-03. Breath
-04. Linoleum(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 01:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A370CD87ED04236B7364C0573FED4D478A587C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1479950   (1008923) от 28.06.2021
+
+VA - Burning Blues - New Collection of Smoking Blues & Ballads Vol. 06-10 (2019) 5CD [MP3|320 Kbps] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guitar Man - Char Wesley [05:14]
+02. Derrick Dove & The Peacekeepers - Woke Up This Morning [04:31]
+03. Buddy Guy - Blues Is Alive & Well [05:14]
+04. Burn The Batteau - So Tired [07:11](   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 06:03:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D2E65A848A6AF68F59E22496AAE0363083E06A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1480600   (1008821) от 29.06.2021
 
 Ekoostik Hookah - 31 West (2021) [MP3|320 Kbps] <Blues Rock, Country Rock>
@@ -743,35 +772,6 @@ VA - Luxury Soul (2015) Box set [MP3|320 кб/с] <Funk , Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F45BDE27037E43A33513237CEA81CCE775286038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978916   (962154) от 24.01.2016
-
-Zucchero - Una Rosa Blanca (2013) (2 CD) [MP3|320 кб/с] <Pop, Rock, Folk, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ave Maria No Morro
-02. Diamante
-03. Pronto
-04. Bacco Perbacco(   Читать дальше...   )Жанр: Pop, Rock, Folk, BluesПродолжительность: 01:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E53F27C74FBCEA936AD35266E098988DCF907024
 ```
 
 https://mybot314.ru/tekegram_catalog/

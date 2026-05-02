@@ -1,3 +1,32 @@
+###  Публикация: 1563127   (506322) от 12.07.2022
+
+Loud - The Black Pill (Compilation) (2022) [MP3|320 Kbps] <Psych, Stoner Rock, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_506322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Acid Queen [00:02:43]
+02 Dracul [00:02:00]
+03 Dark Nightmare [00:04:39]
+04 Black Drug [00:06:19](   Читать дальше...   )Жанр: Psych, Stoner Rock, Doom MetalПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:140C8FC9BF875AFED103AD9CFA2777912621A4C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1316563   (505913) от 26.07.2019
 
 Линда & Stefanos Korkolis - Bloody Faeries (2019) [MP3|320 Kbps] <Rock, Indie Rock>
@@ -728,35 +757,6 @@ The Black Noodle Project - When The Stars Align, It Will Be Time (2022) [MP3|320
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:777A761B11D684533740923D2DA1D79F31008CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564432   (500649) от 18.07.2022
-
-Chris Antblad - Sweet Surrender (2022) [MP3|320 Kbps] <Melodic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500649.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Was Easy
-02. Once Again
-03. What's Not to Like
-04. Time to Catch Another Wave(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A710801D97E74D9288B80D0A781FC81E7B510C99
 ```
 
 https://mybot314.ru/tekegram_catalog/

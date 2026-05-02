@@ -1,3 +1,61 @@
+###  Публикация: 1129739   (720046) от 29.04.2017
+
+VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактики. Часть 2 (Awesome Mix, Vol. 2) + (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720046.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Showtime A-Holes (01:28)
+02. vs The Abilisk (02:35)
+03. The Mantis Touch (01:54)
+04. Space Chase (03:21)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:35:50 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E72D221F5389B465E3ABC4A55B276D928EDB79B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1023948   (720039) от 07.06.2016
+
+Atticus Ross, Claudia Sarne, Leopold Ross - Triple 9 / Три девятки (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ticking Glock (06:28)
+02. The Drop (02:07)
+03. Eleven Fifty Nine (06:21)
+04. The Butcher's Shop (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D9F45408DF2E6ED4821A4A8C15AE8962FA7BFB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023707   (719727) от 07.06.2016
 
 Brad Fiedel - The Terminator (Original MGM Motion Picture Soundtrack) (2016) Milan / Remastered [MP3|320 кб/с] <Soundtrack, Score>
@@ -684,64 +742,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E87C6BE7954A4749352712D37FE98C41E888F59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027458   (696534) от 19.06.2016
-
-Thomas Wander & Harald Kloser - Independence Day: Resurgence / День независимости Возрождение (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traveling Through Space (01:26)
-02. Great Speech (01:37)
-03. Hostile Territory (01:23)
-04. How Did They Get the Lights On? (01:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDF1AB3B561099579F9175035136A542893C1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027402   (696528) от 19.06.2016
-
-VA - The Nice Guys / Славные парни (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temptations – Papa Was a Rollin’ Stone (06:58)
-02. Kool & The Gang – Get Down On It (04:54)
-03. Taste of Honey – Boogie Oogie Oogie (05:32)
-04. Earth, Wind & Fire – September (03:35)(   Читать дальше...   )Жанр: Soundtrack (Dance / Disco / Pop / R'n'B)Продолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D61DD6A0689687CF3CA7132470A89EA9FE3FA35
 ```
 
 https://mybot314.ru/tekegram_catalog/

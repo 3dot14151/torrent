@@ -1,83 +1,25 @@
-###  Публикация: 1337952   (267120) от 18.11.2019
+###  Публикация: 1189236   (271224) от 05.12.2017
 
-Mikael Erlandsson - 5 альбомов Collection (1995-2002) [FLAC|Lossless|tracks + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mikael Erlandsson - Out Of Champagne 03:18
-02. Mikael Erlandsson - Stop (Following Me) 04:07
-03. Mikael Erlandsson - I Love You 04:16
-04. Mikael Erlandsson - Soul Is My Neme 04:39(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 04:19:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611AEA84E81A9D7F20DF792C4833F66F02880C32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190486   (267046) от 10.12.2017
-
-Nothing More - The Stories We Tell Ourselves (2017) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267046.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ambition / Destruction (0:18)
- 2. Do You Really Want It? (3:53)
- 3. Convict / Divide (0:41)
- 4. Let 'Em Burn (3:56)(   Читать дальше...   )Жанр: Alternative Rock, Progressive RockПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA77C4957005A9138D980D958C6F63C93ED8582
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190814   (267045) от 10.12.2017
-
-ТАйМСКВЕР - Скафандр и бабочка (2017) [MP3|320 Kbps] <Alternative Rock, Electronic Rock, Modern Rock>
+Александр Чернецкий и другие - Cover-Проекты (2001-2017) [MP3|~100-320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Крошечное солнце
-02. Тени
-03. Реквием
-04. Из вечносолнечного льда(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Modern RockПродолжительность: 00:30:43
+Альбом собран из проектов, в которых я участвовал. Наверняка, это не всё, что было, но всё то, что нашлось и вспомнилось. Мне самому было интересно это слушать. Некоторые вещи я так и не вспомнил, при каких обстоятельствах и где они записывались :) Но это не важно, главное, что они сохранились и надеюсь, вас так же заинтересуют. В этих произведениях есть и поэзия, (   Читать дальше...   )01. Баста! – В. Джалилов, А. Чернецкий, О. Каданов, С. Белозёров, С. Кондратьев (2010)
+02. Боги – «Разные Люди» tribute «Россияне» (2006)
+03. Будённый – «Разные Люди» tribute Полковник (2013)
+04. Будем жить! – «Karunos» - А. Чернецкий и В. Никаноров (2015)(   Читать дальше...   )Жанр: RockПродолжительность: 03:30:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:84F32F78A35CEC55A064B70797A355110FF54F77
+magnet:?xt=urn:btih:4E5437E063C46C9F0F84E8E53EEBBA3A0376CC6A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +27,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201232   (266948) от 18.11.2019
+###  Публикация: 1189211   (271068) от 05.12.2017
 
-Мэd Dог / Mad Dog / Мэд Дог - 7 Альбомов, 1 Сингл (1997-2018) [MP3|320 Kbps] <Alternative, Post-Grunge>
+King Diamond - 12 Albums (1986 - 2007) Discography, Full-lenght albums [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dead
+02. Never Ending Hill
+03. Is Anybody Here?
+04. Black of Night(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 10:40:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15C273E4320436E9AFD50EF013A096966A9C38E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266085   (271038) от 01.12.2018
+
+Brothers of Metal - Prophecy Of Ragnarok (2017) 2018, Limited Edition [FLAC|Lossless|image + .cue] <Folk Metal, Viking Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271038.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Death of the God of Light 3:32
+02.Son of Odin 4:01
+03.Prophecy of Ragnarok 3:44
+04.Defenders of Valhalla 4:11(   Читать дальше...   )Жанр: Folk Metal, Viking Metal, Power MetalПродолжительность: 00:51:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5469FD00E0D44C494E15D3E862CD4C77735E2EF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266247   (271012) от 01.12.2018
+
+Коля ROTOFF и Ансамбль Уральской Грусти им. П. П. Бажова - Дольче вита (2018) [MP3|320 Kbps] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271012.jpg" />
 </div>
 
 
 ###  Подробнее
 
-МЭD DОГ культовая группа Российской рок-сцены. Группа основана в феврале 1995-го года Дмитрием «Снэйком» Хакимовым, музыкантом и продюсером, известным по работе с такими группами как НАИВ, Агата Кристи, Блондинка КсЮ, The Matrixx и т.д. Первый концерт состоялся 20 февраля 1995-го года в клубе «In toyo», и этот концерт считается Днём Рождения группы. Стилистически (   Читать дальше...   )1997 - Mad Dog
-1999 - 6.3.0.
-2000 - Избранное 1995-97
-2001 - На Заре(   Читать дальше...   )Жанр: Alternative, Post-GrungeПродолжительность: 05:37:29
+1. Человек-паук 2012
+2. Ich liebe dich (Их либе дих)
+3. Ялтинский пляж
+4. Звезда Геленджика(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6DB98DEE746D2D96B5B992F279EA003275570A9
+magnet:?xt=urn:btih:79B3C8C02CFD65B499FD64D38D15748E1591D114
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,28 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190594   (266903) от 10.12.2017
+###  Публикация: 1265868   (271003) от 01.12.2018
 
-U2 - Songs of Experience (2017) Japan Release [FLAC|Lossless|tracks + .cue] <Pop Rock>
+Neil Young - Songs for Judy (2018) Live album [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266903.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love Is All We Have Left (02:41)
-02. Lights Of Home (04:17)
-03. You're The Best Thing About Me (03:45)
-04. Get Out Of Your Own Way (03:58)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:15:05
+01. Songs for Judy (Intro) (3:25)
+02. Too Far Gone (3:15)
+03. No One Seems to Know (2:29)
+04. Heart of Gold (2:53)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C45821BD7962C29D2B9F881349B00BDCDB115360
+magnet:?xt=urn:btih:AF9042EB52E5F95706468BAB05A7C031C9A93F74
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,34 +143,202 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 276701   (266805) от 30.12.2010
+###  Публикация: 1266369   (270971) от 01.12.2018
 
-Symfomania - Aria (2010) [FLAC|Lossless]<Symphonic Rock>
+Jessy Joyce - Love Me (1976) LP [MP3|320 Kbps] <Electronic, Psychedelic Rock, Prog Rock, Disco>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270971.jpg" />
+</div>
+
+
+###  Подробнее
+
+Авторами и продюсерами являются не безызвестные пионеры французской электронной музыки - Jean-Pierre Massiera и Philippe Renaux.01. You're Not So Very High (2:36)
+02. Coming Up From Under (2:51)
+03. Reve-O-Lution (2:57)
+04. Love Me (3:05)(   Читать дальше...   )Жанр: Electronic, Psychedelic Rock, Prog Rock, DiscoПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:55547552CDCBED2FFBD0E81D55E5306B591F1EC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266176   (270969) от 01.12.2018
+
+Аффинаж - Золото (2018) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270969.jpg" />
+</div>
+
+
+###  Подробнее
+
+Часть I. ТЫ, КОТОРЫЙ НАШЁЛ
+1. Солнце
+2. Лучше Всех
+3. Твой Главный Враг(   Читать дальше...   )Жанр: RockПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA69D9C2F7424F537044B65218C3DF1A8589F7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266186   (270958) от 01.12.2018
+
+Elvis Presley - '68 Comeback Special (50th Anniversary Edition) (2018) [MP3|320 Kbps] <Rock, Blues, Rock & Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270958.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 01:Жанр: Rock, Blues, Rock & RollПродолжительность: 00:52:14
+
+01. Nothingville (Guitar Man's Evil #1) (Takes 5 & 6)
+02. Guitar Man (Guitar Man's Evil #1) (Take 2)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6B1EF92660CFAF5D5AB325701174F5CABB08D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338117   (270632) от 14.11.2019
+
+blink-182 - Nine (2019) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First Time (02:26)
+02. Happy Days (02:59)
+03. Heaven (03:17)
+04. Darkside (03:00)(   Читать дальше...   )Жанр: Alternative Rock, Pop PunkПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037AD55342F3719A3F9E9977090877CBC0496C2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338235   (270626) от 14.11.2019
+
+The Dark Element - Songs the Night Sings (2019) [MP3|320 kbps] <Symphonic Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Финская метал-группа The Dark Element, в состав которой входят бывшая вокалистка Nightwish Anette Olzon и бывший гитарист Sonata Arctica Jani Liimatainen, выпустила свой второй студийный альбом.01. Not Your Monster (06:24)
+02. Songs the Night Sings (05:09)
+03. When It All Comes Down (05:58)
+04. Silence Between the Words (04:34)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FF0F094257B3C4BBD37DC7221122555F646A484
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338335   (270603) от 14.11.2019
+
+Die Krupps - Vision 2020 Vision (2019) [MP3|320 Kbps] <Industrial Metal, Aggro-Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270603.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vision 2020 Vision
+02. Welcome to the Blackout
+03. Trigger Warning
+04. Wolfen (Her Pack)(   Читать дальше...   )Жанр: Industrial Metal, Aggro-IndustrialПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E56CF06D0DA229D618635A5056D568F404E3A915
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338345   (270445) от 14.11.2019
+
+Дельфин (Dolphin) - КРАЙ (2019) [FLAC|Lossless|Web-DL|tracks] <Alternative, Electronic, Trip-Hop>
 
 >>Rock, Alternative, Punk, Metal
 >>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270445.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Улица Роз (4:41)
-02. Колизей (6:34)
-03. Штиль (5:37)
-04. Герой  Асфальта (4:27)
-05. Баллада о Древнерусском Воине (5:35)
-06. Последний Закат (5:04)
-07. Осколок Льда (5:24)
-08. Небо Тебя Найдет (5:16)
-09. Ангельская Пыль (6:03)
-10. Возьми Мое Сердце (4:13)(   Читать дальше...   )Жанр: Symphonic RockПродолжительность: 00:58:49
+01. J2000.0 (4:05)
+02. Лето (3:51)
+03. Joy Stick (3:46)
+04. МСКВ (4:39)(   Читать дальше...   )Производство: M2Жанр: Alternative, Electronic, Trip-HopПродолжительность: 00:30:57
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:84D4CF3BE16A001873C00A1A65D07A24E65DB19C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -178,28 +346,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267332   (266732) от 06.12.2018
+###  Публикация: 1189560   (270440) от 06.12.2017
 
-Iron Hunter - Mankind Resistance (2018) [FLAC|Lossless|tracks + .cue] <Heavy Metal>
+Aosoth - V: The Inside Scriptures (2017) [FLAC|Lossless|tracks + .cue] <Black Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266732.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. In The Heat Of The Night [04:26]
-2. Street Warriors [03:51]
-3. I'll Die For You [03:24]
-4. The Deathbringer [03:41](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:34:39
+01. A Heart to Judge (08:43)
+02. Her Feet upon the Earth, Blooming the Fruits of Blood (05:17)
+03. The Inside Scriptures (07:59)
+04. Premises of a Miracle (07:00)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:46:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50FD1BB9EC3900FCDD8C97D236DCD5C50F18E5BE
+magnet:?xt=urn:btih:9E6FDE6C2F249848A3566A5B496CFD6603159F63
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -207,28 +375,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 797837   (266685) от 10.12.2017
+###  Публикация: 1338278   (270396) от 14.11.2019
 
-Cavalera Conspiracy - 4 Альбома (2008-2017) [MP3|320 кб/с]<Groove Metal, Thrash Metal, Death Metal>
+Дельфин (Dolphin) - КРАЙ (2019) [MP3|320 Kbps] <Electronic, Trip-Hop>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266685.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270396.jpg" />
 </div>
 
 
 ###  Подробнее
 
-2008 - Inflikted (Japanese Edition)
-2011 - Blunt Force Trauma (Special Edition)
-2014 - Pandemonium (Limited Edition)
-2017 - PsychosisЖанр: Groove Metal, Thrash Metal, Death MetalПродолжительность: 03:06:03
+01. J2000.0
+02. Лето
+03. Joy Stick
+04. МСКВ(   Читать дальше...   )Жанр: Electronic, Trip-HopПродолжительность: 00:30:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9CA44E3E2C7B7036E6F466496A502D32F8723B9B
+magnet:?xt=urn:btih:B23347E4CB0140149A3DC6332961651F56371543
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,28 +404,173 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267247   (266664) от 06.12.2018
+###  Публикация: 166417   (270366) от 14.11.2019
 
-Soulfly - Ritual (2018) [WavPack|Lossless|image + .cue] <Groove Thrash Metal>
+Equilibrium - Turis Fratyr (2005) [MP3|320 kbps]<Epic Folk/Viking Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270366.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Turis Fratyr (0:34)
+2. Wingthors Hammer (6:41)
+3. Unter der Eiche (4:50)
+4. Der Sturm (3:45)(   Читать дальше...   )Жанр: Epic Folk/Viking MetalПродолжительность: 00:58:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA3A9990102DD60A866F1FCBE440EC07B63213A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189551   (270352) от 06.12.2017
+
+Bob Seger - I Knew You When (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gracile (02:48)
+02. Busload of Faith (04:32)
+03. The Highway (03:38)
+04. I Knew You When (03:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8016EFEF6843D82BBE29309C9C60B9725FE025C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338317   (270325) от 14.11.2019
+
+Вячеслав Бутусов & Орден Славы - Аллилуия (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Герои
+02. Кровавая река
+03. Идиот
+04. К ангелам(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E6BEE05AB894E0A81B4CF68F37129FE9719ADF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534805   (270183) от 06.12.2017
+
+Spacehog - 4 альбома (1995 - 2013) [FLAC|Lossless|tracks + .cue]<Indie, Brit-pop, Neo-Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270183.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хотя все участники группы Spacehog родом первоначально из Лидса, Англия, группа, сформирована в Нью-Йорке в 1994, когда Antony Langdon встретил Cragg случайно в кафе. Вскоре брат Langdon, Royston, и гитарист Richard Steel присоединился к группе, Spacehog родился. Их звук так сильно отличался от нео-гранж движения начала 90-х годов, что в течение короткого времени (   Читать дальше...   )Список альбомов:
+1995 - Resident Alien (EKCD 6243)
+1998 - The Chinese Album (Sire 9 46851-2)
+2001 - The Hogyssey (Artemis 751068-2)Жанр: Indie, Brit-pop, Neo-GlamПродолжительность: 03:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05E90C273EBE3F2335C7DAF14D9A3FF5402F49F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 388954   (270120) от 06.12.2017
+
+SuperHeavy - SuperHeavy (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Rock, Soul, Reggae>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_270120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superheavy (5:06)
+02. Unbelievable (3:51)
+03. Miracle Worker (4:09)
+04. Energy (3:42)(   Читать дальше...   )Жанр: Rock, Soul, ReggaeПродолжительность: 01:08:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7A76EF6C4BB285A25A64CD15B5205C6015C9A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266524   (270081) от 02.12.2018
+
+Circus Maximus - The 1st Chapter (2005) Japan Edition [FLAC|Lossless|image + .cue] <Progressive Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266664.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ritual (4:55)
-02. Dead Behind The Eyes (feat. Randy Blythe) (5:17)
-03. The Summoning (4:15)
-04. Evil Empowered (3:34)(   Читать дальше...   )Жанр: Groove Thrash MetalПродолжительность: 00:43:17
+01. Sin (5:53)
+02. Alive (5:38)
+03. Glory Of The Empire (10:27)
+04. Biosfear (5:22)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 01:09:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BBF7C53EFF913809EBC75638B0DCC4351AC9DDC
+magnet:?xt=urn:btih:06A7E69274E7F1FFDFDD8505D7D12654C479FA9D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -265,25 +578,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 276856   (266636) от 30.12.2010
+###  Публикация: 1266536   (270071) от 02.12.2018
 
-Ленинград - Все Хиты (2CD) (2010) [MP3|320 kbps]<Rock>
+Human Egg - Human Egg (1978) LP [MP3|320 Kbps] <Electronic, Space Rock, Psychedelic Rock, Disco>
 
 >>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266636.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: RockПродолжительность: 01:18:30
+Ещё один редкий французский проект с участием Jean-Pierre Massiera.01. Egg (1:11)
+02. Feeling On My Mind (4:34)
+03. The Lonely Man (3:39)
+04. Rainbows All Around (4:09)(   Читать дальше...   )Жанр: Electronic, Space Rock, Psychedelic Rock, DiscoПродолжительность: 00:35:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8DC3AE23A228DB6E697162A42E61615529172512
+magnet:?xt=urn:btih:0F9E50380594E552CC4D316BE5B1617E5D44A951
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -291,28 +607,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267441   (266589) от 06.12.2018
+###  Публикация: 1266666   (270047) от 02.12.2018
 
-Coldplay - Live In Buenos Aires (2018) [MP3|320 Kbps] <Alternative Rock, Indie Rock>
+The Escape Club - Cloud 10 (2005) [MP3|320 Kbps] <Alternative Pop Rock, Ambient Rock, Psychedelic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266589.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_270047.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. A Head Full Of Dreams
-2. Yellow
-3. Every Teardrop Is A Waterfall
-4. The Scientist(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:54:33
+В 2005 году (по другим данным в 2003) Trevor Steel и John Holliday (ex. The Escape Club) записали новый студийный альбом после распада группы в 1992 году - "нечто среднее между Pink Floyd и Cafe Del Mar" по музыкальному материалу.01. diving for pearls
+02. i will live for you
+03. imagination overload
+04. fear of flying(   Читать дальше...   )Жанр: Alternative Pop Rock, Ambient Rock, Psychedelic RockПродолжительность: 00:52:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E66C451DB3F4C81A4D9A6734D73923137D1F68B8
+magnet:?xt=urn:btih:D46A7743E1EADA077156A729FC82514401632F24
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,28 +636,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267437   (266582) от 06.12.2018
+###  Публикация: 1266547   (269994) от 02.12.2018
 
-Metal Church - Damned If You Do (2018) [MP3|320 Kbps] <Heavy Metal>
+The Doors - Waiting For The Sun (1968) 2CD + LP Box Set, Remastered, Elektra, 2018 [FLAC|Lossless|image + .cue] <Psychedelic Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266582.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Damned If You Do
-02. The Black Things
-03. By the Numbers
-04. Revolution Underway(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:20
+01. Hello, I Love You (2:16)
+02. Love Street (2:52)
+03. Not To Touch The Earth (3:55)
+04. Summer's Almost Gone (3:22)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:16:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:384A7903680B26E28083F40E97341AA3A0066642
+magnet:?xt=urn:btih:14275D1C5FEF47D2E8A80518F79072860A32F72A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -349,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267458   (266519) от 06.12.2018
+###  Публикация: 1266293   (269989) от 02.12.2018
 
-Apocalyptica - Plays Metallica by Four Cellos - A Live Performance (2018) [MP3|320 Kbps] <Cello Metal>
+Clutch - 16 albums, 19 CD (1993-2018) [FLAC|Lossless|image + .cue | tracks + .cue] <Stoner Rock, Hard Rock, Southern Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266519.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Enter Sandman
-02. Master Of Puppets
-03. Harvester Of Sorrow
-04. The Unforgiven(   Читать дальше...   )Жанр: Cello MetalПродолжительность: 01:45:59
+«Clutch» — cтоунер-рокеры из города Джермантаун, штат Мэриленд. За двадцатилетнюю историю группа имеет в своем багаже более десятка студийных альбомов, более 2000 сыгранных концертов, преданное фанатское сообщество и собственный лейбл «Weathermaker». Плотный гитарный звук, монструозный драмминг, ревущий блюзовый вокал - эту музыку определённо стоит слушать на большой (   Читать дальше...   )Список альбомов:
+1993 | Transnational Speedway League: Anthems, Anecdotes And Undeniable Truths
+1995 | Clutch
+1997 | Impetus (EP)(   Читать дальше...   )Жанр: Stoner Rock, Hard Rock, Southern Rock |Продолжительность: 15:18:18 |
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E2739CEF8641106AFAF88C0B822297B1CC47190B
+magnet:?xt=urn:btih:9F7BB3C11E9A44C2DF0D311598CED1E0E15432E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -378,28 +694,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 236970   (266426) от 06.12.2018
+###  Публикация: 1266535   (269937) от 02.12.2018
 
-Serj Tankian - Imperfect Harmonies (2010) [FLAC|Lossless]<Avantgarde, Alternative>
+Def Leppard - The Story So Far: The Best Of Def Leppard (2018) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266426.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Disowned Inc. (4:07)
-02. Borders Are... (4:37)
-03. Deserving? (4:05)
-04. Beatus (4:41)(   Читать дальше...   )Жанр: Rock, Avantgarde, AlternativeФормат: FLAC (tracks)Продолжительность: 00:45:42
+01 Let's Go 5:01
+02 Promises 3:59
+03 Slang 2:37
+04 Bringin' On The Heartbreak 4:34(   Читать дальше...   )Жанр: RockПродолжительность: 02:33:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F087F1EFAEBCAD319296695686D699FC59BE58D
+magnet:?xt=urn:btih:0F9E8F51ECBE8E83962787F35FA059FF899EFCD5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,347 +723,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339278   (266123) от 19.11.2019
+###  Публикация: 190148   (269923) от 02.12.2018
 
-Milky Chance ‎ - Mind the Moon (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock, Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_266123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fado (04:10)
-02. Oh Mama (03:33)
-03. The Game (03:33)
-04. Rush (Feat. Témé Tan) (03:37)(   Читать дальше...   )Жанр: Indie Rock, Alternative Rock, Indie PopПродолжительность: 00:43:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F22A29DFA39476B200A3494DAEF800606C4F080
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339445   (266109) от 19.11.2019
-
-Stripwired - Another Shot (2019) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266109.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another Shot
-02. Run
-03. Raise Your Glass
-04. Doghouse(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28DB3D3F4B0EA2B74105D75F7F985AE269A7E58F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190922   (266035) от 11.12.2017
-
-Nuckin' Futs - Abyss (2017) [MP3|320 Kbps] <Thrash Metal>
+Draconian - 5 Albums (2003 - 2011) [MP3|320 kbps]<Doom Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266035.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Cradle Of Hypocrisy
-2. Force Of Will
-3. Enemy
-4. Abyss(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:36:51
+Список Альбомов:
+Where Lovers Mourn - (2003)
+Arcane Rain Fell - (2005)
+Turning Season Within - (2008)(   Читать дальше...   )Жанр: Doom | Gothic MetalПродолжительность: 04:44:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EB8474573AFFDC48822979DEE1681C3D17095674
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190842   (265990) от 11.12.2017
-
-Аспид - Extravasation (1992) Limited Digipak Edition, Reissue, Remaster, 2015, Metal Race [FLAC|Lossless|image + .cue] <Technical Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [02:32]
-02. It Came (Aspid) [07:40]
-03. Towards One Goal [05:59]
-04. Give Me (Play for a Ballet) [08:40](   Читать дальше...   )Жанр: Technical Thrash MetalПродолжительность: 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCDBF270D76FCA677FC31DE40E263BF743BEE321
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190880   (265981) от 11.12.2017
-
-Оптимальный вариант - Песни из садов Диониса (2017) [MP3|320 Kbps] <Art Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лень в садах – I (03:13)
-02. Пихтовый танец (04:10)
-03. Сандалии (04:03)
-04. Бравурный хор: Вакханки и Пан (02:36)(   Читать дальше...   )Жанр: Art Rock, Folk RockПродолжительность: 01:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A74EA4E0FFA514A84EB9D193A8EAFA89AD4CBDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190736   (265974) от 11.12.2017
-
-Sunroad - Wing Seven (2017) [MP3|320 Kbps] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265974.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destiny Shadows (5:26)
- 02. White Eclipse (3:29)
- 03. In the Sand (5:36)
- 04. Misspent Youth (3:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEDE97872C7BF87B39435D7F8C1546455FCC93AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190902   (265925) от 11.12.2017
-
-Ocean Jet - Glowing Black (2017) [MP3|320 Kbps] <Indie Pop Rock, Electronic Rock, Synthpop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Violence
-02. Deceiver
-03. Cold
-04. Divided(   Читать дальше...   )Жанр: Indie Pop Rock, Electronic Rock, SynthpopПродолжительность: 00:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:559855E4130641DB60D17F84E35D1A14B2E87329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267719   (265812) от 07.12.2018
-
-Shadows - illuminate (2017) [FLAC|Lossless|tracks + .cue] <Melodic Hardcore, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Further Away (3:01)
- 02. Senses (1:52)
- 03. Chain Reaction (3:23)
- 04. Into The Line (2:53)(   Читать дальше...   )Жанр: Melodic Hardcore, PunkПродолжительность: 00:31:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DB39D6D4240E0B63A380EC07242078E0A6CDC46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267600   (265802) от 07.12.2018
-
-Privilege - Privilege (1973) Reissue, 1999, Lizard Records [MP3|320 Kbps] <Hard Rock, Heavy Psychedelic>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265802.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Traitor
-2. It's Yesterday
-3. The Quiz
-4. Circling(   Читать дальше...   )Жанр: Hard Rock, Heavy PsychedelicПродолжительность: 00:36:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265D0EAC2B7EFC20CD1C7F32D117A7E56D91B4B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267653   (265801) от 07.12.2018
-
-Clouds - Dor (2018) [MP3|320 Kbps] <Atmospheric Doom Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265801.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Forever And A Day
-2. The Last Day Of Sun
-3. When I'm Gone (Feat. Gogo Melone)
-4. Dor(   Читать дальше...   )Жанр: Atmospheric Doom MetalПродолжительность: 00:52:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FE3022EA7A35E83172E0B23CCA105F915B5C79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267621   (265799) от 07.12.2018
-
-Opera IX - The Gospel (2018) [MP3|320 Kbps] <Symphonic Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265799.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. The Gospel
-2. Chapter II
-3. Chapter III
-4. Moon Goddess(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA4A5FEFC1438BE9404B2576B3A6EDFF3ED6A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267547   (265798) от 07.12.2018
-
-Domain - Our Kingdom (1988) Reissue, 2000, Humbucker Music [MP3|320 Kbps] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_265798.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Lost In The City
-2. The Run
-3. We Got Love
-4. Sign From Your Heart(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9268496D97EF47CC389B9984509F8CE7B647EF8A
+magnet:?xt=urn:btih:EA8A2DB73DA76C753D6F2F567BDB7D9EB02D9910
 ```
 
 https://mybot314.ru/tekegram_catalog/

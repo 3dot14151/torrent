@@ -1,3 +1,32 @@
+###  Публикация: 1409759   (442864) от 18.09.2020
+
+Cindy Blackman Santana - Give the Drummer Some (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine (feat. Santana) (5:06)
+02. We Came to Play (feat. John McLaughlin) (5:41)
+03. She's Got It Goin' On (3:20)
+04. Miles Away (1:57)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6478912AB49358F299018895DAAB8C3B0CA71C01
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1248587   (442040) от 20.09.2018
 
 Billy F Gibbons (Zz Top) - The Big Bad Blues (2018) [MP3|320 Kbps] <Blues Rock, Southern Rock>
@@ -742,37 +771,6 @@ Medicine Head - Dark Side Of The Moon (1972) Remastered, 2004, Dandelion Records
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4D3F5E92BEC009356EFCD374AAACEC68DCD7436F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1166151   (428158) от 15.09.2017
-
-The Doors - The Singles (2017) 2CD, Remastered [MP3|320 Kbps] <Classic Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_428158.jpg" />
-</div>
-
-
-###  Подробнее
-
-15 сентября на лейбле Rhino/Elektra впервые были представлены все синглы и би-сайды группы The Doors в виде издания из двух CD и расширенной версии из двух СD и одного Blu-Ray диска.
-
-Коллекция включает сингл-версии треков из шести знаковых студийных альбомов, записанных квартетом в период с 1967 по 1971 год, включая классические "People Are Strange", "Love (   Читать дальше...   )01. Tightrope Ride (Remastered) (3:40)
- 02. Variety Is The Spice Of Life (Remastered) (2:52)
- 03. Ships W/ Sails (Remastered) (4:13)
- 04. In The Eye Of The Sun (Remastered) (4:50)(   Читать дальше...   )Жанр: Classic Rock, Psychedelic RockПродолжительность: 02:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FE244171ED0634C7225CB65221D3129933965C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

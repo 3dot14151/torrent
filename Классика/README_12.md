@@ -1,3 +1,32 @@
+###  Публикация: 1000215   (860708) от 24.03.2016
+
+VA - Magical World Of Melodies. The Most Beautiful Romantic Symphonies (1995) 3CD
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860708.jpg" />
+</div>
+
+
+###  Подробнее
+
+Royal Philharmonic Orchestra, Massimo Freccia 
+01. Berlioz- Symphony Fantastique op. 14a, I. Reveries - Passions (12:20)
+02. Berlioz- Symphony Fantastique op. 14a, II. Un bal (Valse, Allegretto non troppo) (5:51)
+03. Berlioz- Symphony Fantastique op. 14a, III. Scene aux champs (15:02)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:36:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9590CBFFFD54354FF1152F4BD820689593CDC6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 999241   (860539) от 24.03.2016
 
 Chopin - 51 Mazurkas (Arthur Rubinstein) (1999) [FLAC|Lossless|tracks] <classical>
@@ -716,35 +745,6 @@ D-dur Concerto Lantra, Vonoszenekarra Es Csembalora. F. XII.No.15
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A077B6E4E1C45B4B932E949DEAB3D907CC00E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1001066   (855344) от 27.03.2016
-
-Ludovico Einaudi - Taranta Project (2015) [FLAC|Lossless|tracks + .cue] <Modern Classical, Piano>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introductio ad Regnum Tarantulae [04:20]
-02. Taranta [04:21]
-03. Fimmene [04:17]
-04. Nazzu Nazzu [05:35](   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07C7C9546A5849C32C49418F94BC5D330962BAC6
 ```
 
 https://mybot314.ru/tekegram_catalog/

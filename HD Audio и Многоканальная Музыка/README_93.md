@@ -1,3 +1,177 @@
+###  Публикация: 1696338   (119646) от 02.02.2024
+
+Юрий Гуляев - Ты Моя Мелодия (1974) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119646.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Журавли
+A2 Желаю Вам
+A3 Три Поради
+A4 Дорогая, Сядем Рядом(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:491E5A9CCAA242B7769F10759F6F74B452BBE99E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696490   (119628) от 02.02.2024
+
+Dymytry - Five Angry Men (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119628.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dymytry - чешская метал-группа из Праги, которая описывает свой стиль как psy-core.Группа была основана в 2003 году Иржи Урбаном-младшим, сыном Иржи Урбана, основателя группы Arakain. Имидж группы основан на масках насекомых из Национального театра, мощных гитарных риффах, мелодичных припевах и наводящем на размышления вокале. Название "Димитрий" происходит (   Читать дальше...   )01. Enemy List 04:40
+02. Everything Is Black 03:39
+03. Wake Me Up (Before We Die) 03:18
+04. Legends Never Die 03:55(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACD201FFC03AD80D9595C02D3CD61964DAF9FAF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696267   (119626) от 02.02.2024
+
+Sigma - London Sound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Someone To Hold On To [00:03:34]
+02. Adrenaline Rush [00:03:04]
+03. Care About Us [00:02:28]
+04. The Corner [00:02:36](   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1500788AE335B2B07CA4FA6CE6E23C1CA90AAB5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696409   (119624) от 02.02.2024
+
+Guns N' Roses - Chinese Democracy (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chinese Democracy
+02. Shackler's Revenge
+03. Better
+04. Street of Dreams(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1334DD2E772241781EFDBD0E1FFA3171C44763B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696398   (119623) от 02.02.2024
+
+Guns N' Roses - The Spaghetti Incident? (1993) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Since I Don't Have You
+02. New Rose
+03. Down On The Farm
+04. Human Being(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4233611F0A677A5E154E5D4A830CC020585F706
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696327   (119620) от 02.02.2024
+
+Guns N' Roses - Use Your Illusion I (1991) [FLAC|24/192|image + .cue|Vinyl-Rip] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Next Door To Hell
+02. Dust N' Bones
+03. Live And Let Die
+04. Don't Cry (Original)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:16:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A95BC5A40D544C64309FE56CC02056CE09A8752
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696329   (119615) от 02.02.2024
 
 Guns N' Roses - Use Your Illusion II (1991)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
@@ -571,178 +745,6 @@ Plantoid - Terrapath (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <progressive roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F276D11F01C4D225DA2B9B80D31FEB9E736D6D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696803   (119306) от 04.02.2024
-
-The Great Alone - Perception (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119306.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Call (00:02:03)
-02 - Beyond Dreams (00:04:27)
-03 - Mania (00:04:25)
-04 - Stars And Storms (00:03:41)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:46:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524140069E745245C4F475777E096CCC3EDE5DA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696883   (119305) от 04.02.2024
-
-Shadow - Studio Albums (2 releases) (2001-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119305.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shadow - Мелодик-дэт-метал группа из города Осака, Япония.2001 - Shadow
-2008 - Forever ChaosЖанр: Melodic Death MetalПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18E033CE6ED97A9DB7BC7845ACCA5F67013B68F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696839   (119292) от 04.02.2024
-
-Graywitch - Children Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Overture To Olympus (00:01:12)
-02 - Children of Gods (00:03:47)
-03 - Odysseus (00:04:29)
-04 - Holy Lands (00:06:17)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B0DC55EF4706E13E63748CA0A514D68F982DC0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697052   (119132) от 05.02.2024
-
-Arcane Tales - Until Where The Northern Lights Reign (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Power, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - One Last Ride (00:04:08)
-02 - King Of Kings (00:04:13)
-03 - The Dark Portals Of Agony (00:04:03)
-04 - Dwarven Storm (00:05:58)(   Читать дальше...   )Жанр: Power, Symphonic MetalПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A55F1EA7BBA24FD6CCB86237CC23BFC9485C6B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696911   (119118) от 05.02.2024
-
-Jazzy - Constellations (Expanded) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Soul, R&B>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119118.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shooting Star [00:02:25]
-02. Giving Me [00:02:49]
-03. Feel It (Club Edit) [00:02:04]
-04. Empty Promises [00:02:32](   Читать дальше...   )Жанр: Electronic, Soul, R&BПродолжительность: 00:25:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEBCD3C1923B7AA1F60371F277DEAF0B13B32AD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696893   (119108) от 05.02.2024
-
-Shujaat Khan - Maestro's Voice (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <World>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119108.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zindagi Se Badi Sazaa Hi Nahi (11:21)
-02. Na Urooj De (11:52)
-03. Yeh Inayatein Gazab Ki (11:10)
-04. Kahan Aake Rukne the Raaste (11:03)(   Читать дальше...   )Жанр: WorldПродолжительность: 02:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBFEF5562B2520EFEE6CBE44855F0C089D89C3B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

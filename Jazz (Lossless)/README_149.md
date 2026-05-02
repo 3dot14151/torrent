@@ -1,3 +1,61 @@
+###  Публикация: 1153320   (559840) от 26.07.2017
+
+V.A. - Jazz Sexiest Ladies (2017) 3CD [FLAC|Lossless|image + .cue] <Vocal Jazz, Easy Listening, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559840.jpg" />
+</div>
+
+
+###  Подробнее
+
+Треклист CD1 - Glamour Divas:
+01. Sarah Menescal- The Game Of Love
+02. Cassandra Beck - Jump
+03. Karen Souza - New Year´s Day(   Читать дальше...   )Жанр: Vocal Jazz, Easy Listening, Lounge |Продолжительность: 02:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A49ED3C0348896754E7EE41C755752353587F2D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045425   (559829) от 23.08.2016
+
+Mahavishnu Orchestra - Birds Of Fire (1973) Columbia, Late 1980s [FLAC|Lossless|image + .cue] <Fusion, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birds Of Fire (5:44)
+02. Miles Beyond (4:41)
+03. Celestial Terrestrial Commuters (2:55)
+04. Sapphire Bullet Of Pure Love (0:21)(   Читать дальше...   )Жанр: Fusion, Jazz-RockПродолжительность: 00:40:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:930252C3EC980F9B8DB296D961BF35272BDB8642
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045438   (559682) от 23.08.2016
 
 Mahavishnu Orchestra With The London Symphony Orchestra, Michael Tilson Thomas - Apocalypse (1974) Remaster, 1990, CBS [FLAC|Lossless|image + .cue] <Fusion, Jazz-Rock>
@@ -683,64 +741,6 @@ Scott Hamilton Quartet - Dean Street Nights (2014) Woodville Records [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:963AA070D240105CD6E1B5BE3BBE3FA899478919
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306048   (555941) от 02.06.2019
-
-Sofia Hoffmann - One Soul (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Easy
-02 – One Last Time
-03 – Push It Or Pull It
-04 – Vaisakhan(   Читать дальше...   )Жанр: JazzПродолжительность: 00:38:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF1A36ACA63BE2D047F6B69BDEEA63FDDFBF93CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306213   (555836) от 03.06.2019
-
-The Prestige Blues-Swingers - Outskirts Of Town (1958) 1992, Original Jazz Classics [APE|Lossless|image + .cue] <Bop, Cool, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Gonna Move to the Outskirts of Town [6:20]
-02. Blue Flute [6:22]
-03. Blues A-Swingin' [6:15]
-04. Jelly Jelly [6:08](   Читать дальше...   )Жанр: Bop, Cool, Hard BopПродолжительность: 00:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54BA258534751A79A6998F93C3564BF9A74D9C70
 ```
 
 https://mybot314.ru/tekegram_catalog/

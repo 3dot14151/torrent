@@ -1,3 +1,61 @@
+###  Публикация: 1638604   (237194) от 12.06.2023
+
+Relaxing Piano Crew - Jazz Ballad Piano Played in a Hideaway Restaurant (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keeping a Great Secret (2:30)
+02. Induvidual Eating Moods (2:08)
+03. Listening to Some Ballads (2:10)
+04. Rampant Restaurant Ragtime (2:08)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67FD5081D56F77078B2CAE5D7F24EEFFAF3AE838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607564   (237192) от 27.01.2023
+
+Fats Waller - 1936 - 1937 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallelujah! Things Look Rosy Now (vocal) [2:49]
+02. Hallelujah! Things Look Rosy Now (instrumental) [2:48]
+03. 'Tain't Good (Like a Nickel Made of Wood) (vocal) [2:31]
+04. 'Tain't Good (Like a Nickel Made of Wood) (instrumental) [2:30](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:347B0262B4E8CBD748F2D2E0BD919ACE61FA00DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608131   (236977) от 29.01.2023
 
 Fats Waller - 1937 - 1938 (1996) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
@@ -687,64 +745,6 @@ Eddie Gomez - Discovery (1987) Columbia [FLAC|Lossless|tracks + .cue] <Post-Bop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E88CB2B188EFB0A353BD20B206539E096967CB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641666   (236294) от 23.06.2023
-
-Luciana Souza - The Book Of Chet (2012) Sunnyside [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Brazilian Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Thrill Is Gone [5:40]
-02. Forgetful [5:15]
-03. He Was Too Good to Me [4:24]
-04. I Get Along with You Very Well [5:45](   Читать дальше...   )Жанр: Vocal Jazz, Brazilian JazzПродолжительность: 00:46:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95926EE172B3ABE92FAF4FED291E1FF14430393C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635380   (236256) от 25.05.2023
-
-Black Art Jazz Collective - Ascension (2020) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_236256.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ascension [5:37]
-02. Mr. Willis [4:16]
-03. Involuntary Servitude [6:46]
-04. Twin Towers [6:28](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4771DAD93DB30CC235B472F710C73D6C55121DF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

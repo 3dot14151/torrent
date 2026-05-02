@@ -1,3 +1,32 @@
+###  Публикация: 1335173   (289752) от 01.11.2019
+
+Peter Felippi - Blue Light (1982) LP [MP3|320 Kbps] <Electronic, Krautrock, Synth-pop, Ambient>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tageseifer (Keep Cool) (4:23)
+02. Dschungel (The Lost Ark) (5:43)
+03. Ambivalenz (6:01)
+04. Traumland (3:49)(   Читать дальше...   )Жанр: Electronic, Krautrock, Synth-pop, AmbientПродолжительность: 00:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807CB125662C9C3F5EAF39244AD242360FA44A2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1335180   (289427) от 01.11.2019
 
 Zdob si Zdub - Bestiarium (2019) [MP3|320 Kbps] <Folk Rock>
@@ -735,35 +764,6 @@ About A Mile - Trust You All The Way (2016) [MP3|320 Kbps] <Pop Rock, Christian 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A749BA938D8FD9687A9660F07464EA16D5FC171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336520   (277329) от 08.11.2019
-
-Santana - Tanglewood 1970 The Classic Early Broadcast (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Batuka/Se A Cabo (Live) ( 7:45)
-02. Black Magic Woman (Live) ( 5:41)
-03. Oye Como Va (Live) ( 4:32)
-04. Incident At Neshabur (Live) ( 5:34)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33DEFE7D682B9242D21A21E5215E24D905742F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

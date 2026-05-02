@@ -1,3 +1,61 @@
+###  Публикация: 971157   (985685) от 03.01.2016
+
+Def Leppard - Pyromania (1983) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Hard Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rock! Rock! (Till You Drop)
+02 - Photograph
+03 - Stagefright
+04 - Too Late for Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD8780B663C4FFEC3CBF396F02E3859819CB8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971690   (985680) от 03.01.2016
+
+AnyToISO Pro 3.7.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985680.jpg" />
+</div>
+
+
+###  Подробнее
+
+AnyToISO Pro - создание ISO из других форматов/дисков/папок
+Скачали CD/DVD образ неизвестного формата? Нет нужды искать или покупать дорогой коммерческий софт, который его поддерживает - одна программа работает с любыми форматами.
+
+AnyToISO Pro - это простой в эксплуатации и функциональный конвертер поможет преобразовывать образы дисков CD и DVD в специфических форматах (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 января 2015Разработчик: CrystalIdea SoftwareПоддерживаемая ОС: Mac OS X 10.6 +Язык интерфейса: Русский, Английский, Испанский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F715BCBED9468E3B1BB48AADF9703AE0CDFF7D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971724   (985676) от 03.01.2016
 
 Capture One Pro 9.0.2.11 [Multi/Ru]
@@ -649,66 +707,6 @@ Scooter - Wicked! (1996) [FLAC|Lossless|image + .cue] <Rave, Happy Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E767E0426471024BA6625C085B26218BFA5741A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610545   (985530) от 02.02.2013
-
-Шальные деньги: Стокгольмский нуар / Snabba cash II (2012) [720p] BDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985530.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Швеция / Film i Väst, Tre Vänner Produktion ABЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Бабак НаджафиАктеры: Матиас Падин, Драгомир Мрсич, Фарес Фарес, Мадлен Мартин, Деян Чукич, Джоэль Спира, Лиза Хенни, Рикардо Марселионо Аранеда Морено, Луис Сифунтес, Анника Рюберг ВиттембуриПеревод: Двуголосый закадровый любительскийПродолжительность: 01:39:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B303F0C49DD380CB219F9937E1E6173FF72FA7E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 162783   (985511) от 08.01.2010
-
-Vision Anomaly - [Re] Evolution Process (2010) [MP3|320 kbps]<Dark Electro/Industrial>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985511.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. El Presente Futuro (4:37)
-2. Angel Castigador (4:36)
-3. Materia Inorganica (5:53)
-4. Eutanasia (4:52)
-5. Contaminacion Global (4:20)
-6. Liberate de Ti (4:38)
-7. La Agonia de Nuestro Ser (4:08)
-8. Islas Nuestras (4:43)
-9. Falsa Realidad (4:41)Жанр: Dark Electro/IndustrialПродолжительность: 00:42:31
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

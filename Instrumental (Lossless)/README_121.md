@@ -1,3 +1,119 @@
+###  Публикация: 1738856   (106223) от 25.07.2024
+
+Billy Barnett Band - Hey It's Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On & on & On (3:32)
+02. Adalee (3:06)
+03. Standing in the Rain (3:04)
+04. Can't Last a Day (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3802CB92139E2C10C8C5B58288221319418F1615
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738878   (106221) от 25.07.2024
+
+The Cosmic Trip Advisors - One for the road - Make it a double (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk In The Crowd (3:54)
+02. I'll Take Care Of You (5:12)
+03. Food For My Soul (4:08)
+04. Balintore (5:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7681B38537BCD4023DD0A323C5FB0EAD25CF294F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738855   (106205) от 25.07.2024
+
+Bill Nadeau - Mutts and Mongrels (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106205.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can Live Without (Your Love) (4:06)
+02. I Can't Find A Reason (4:21)
+03. C'est La Vie (3:16)
+04. When You Fall In Love (5:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CD42B6B58DC3E85406D117AD5A4855E57A341D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738863   (106203) от 25.07.2024
+
+Rodrigo Belloni - Like a Train (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tears Like a River (5:55)
+02. I Learned Throughout the Years (4:33)
+03. You Are the Reason (3:55)
+04. Travelin' Band (3:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:26:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F780E4521F78FD4915E7FD88BB0ECD078BEAC6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738875   (106202) от 25.07.2024
 
 The Chatham Singers - Blues That Kills (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Dillion James - Heavy Keys (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A97EB1F230394D7F212D2DFE5D9DA51F0EF15ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741531   (105648) от 07.08.2024
-
-Cotton Wing - Nothing but Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105648.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smile / intro (0:58)
-02. Johnny (4:49)
-03. The Key (4:41)
-04. Lassie (4:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B468B60B1D5E40F34C9AD1D522066D048C29BAEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741549   (105647) от 07.08.2024
-
-The Achievers - Easy Going Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105647.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Easy Going Days (3:44)
-02. Free Hugs (4:13)
-03. 400 Rabbits (3:00)
-04. How Long (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C51F57FE82260BC5D4C41CF9657EB70DCA7D43C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741553   (105646) от 07.08.2024
-
-The Honey Badgers - Shakin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105646.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broken Boy Blues (4:00)
-02. Shakin' (3:33)
-03. Since You've Been Mine (5:39)
-04. Drinkin' and Thinkin' (2:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECF03E1B60F53C765034503837FE6A944EC5DAD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741530   (105645) от 07.08.2024
-
-Blues Pickers - Night Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105645.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time (4:33)
-02. Uptown Blues (4:25)
-03. Down in Mississippi (6:25)
-04. John the Revelator (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D4513382FF6E99BF95A32B0CAFAA61AD275A8D1
 ```
 
 https://mybot314.ru/tekegram_catalog/

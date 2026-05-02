@@ -1,3 +1,32 @@
+###  Публикация: 440818   (137187) от 31.12.2019
+
+bond - Play (2011) [FLAC|Lossless]<Classical Crossover>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137187.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Diablo - 3:59
+2. Jai Ho - 3:38
+3. Elysium - 4:05
+4. Pump It - 3:40(   Читать дальше...   )Жанр: Classical CrossoverПродолжительность: 00:50:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:118CB9E55A35405AC9C42813EB68F7040C88DDE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1824998   (136858) от 16.10.2025
 
 Mozart: Requiem, K. 626 - Say: Mozart & Mevlana, Op. 110 by Fazil Say, Fatma Said, Marianne Crebassa, Pene Pati, Michael… (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Classical>
@@ -763,35 +792,6 @@ VA - Beautiful Classical Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCA4787668C5BB2CCE1CDA15EB585CF0CB06A8EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689537   (123776) от 08.01.2024
-
-Gregorio Allegri - Miserere (The Sixteen, Christophers; et al) (2008) Compilation [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allegri: Miserere    [0:11:59.28]
-02. Victoria: O Quam Gloriosum est Regnum    [0:02:46.08]
-03. Josquin des Pres: Gaude virgo Mater Christi    [0:02:44.25]
-04. Lassus: Alma redemptoris Mater    [0:03:56.61](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687F6519CF42112E8F34CF008C4D9C2A76E548B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

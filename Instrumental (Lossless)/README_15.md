@@ -1,3 +1,119 @@
+###  Публикация: 1450064   (1029307) от 24.02.2021
+
+VA - Classic Blues From Bluesville (2014) Box Set, 3 CD [FLAC|Lossless|image + .cue] <Blues, Classic Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029307.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bluesville Records была дочерней компанией Prestige Records , американской звукозаписывающей компанией , основанной в 1948 году Бобом Вайнштоком (Bob Weinstock), с основной целью документирования работ старых классических блюзменов, позабытых современной аудиторией. Такие блюзмены, как  Roosevelt Sykes (Рузвельт Сайкс), Lightnin' Hopkins (Лайтнин Хопкинс), Rev. Gary (   Читать дальше...   )CD1:
+01. Lightnin' Hopkins - Walkin' This Road by Myself  (4:53)
+02. Memphis Slim - Grinder Man Blues  (4:35)
+03. Blind Willie McTell - Broke Down Engine Blues  (2:47)(   Читать дальше...   )Жанр: Blues, Classic BluesПродолжительность: 03:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C50176C9DFAA1398003F5161E1AC4D40427E5714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450494   (1029009) от 26.02.2021
+
+Curtis Salgado - Damage Control (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Longer That I Live (3:51)
+02. What Did Me In Did Me Well (4:26)
+03. You're Going To Miss My Sorry Ass (4:09)
+04. Precious Time (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1905B830BD458DD68C576E598951ADB932C2228B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450495   (1029007) от 26.02.2021
+
+Joanna Connor - 4801 South Indiana Avenue (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destination (feat. Jimmy Hall) (3:32)
+02. Come Back Home (4:26)
+03. Bad News (6:27)
+04. I Feel So Good (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:350B88B741884C1203FD67F22C2F41AAA69A4245
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1450497   (1029006) от 26.02.2021
+
+Johnny Mastro & Mama's Boys - Elmore James for President (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elmore James for President (2:32)
+02. Red Guitar (3:20)
+03. See Me in the Evening (4:11)
+04. Child Wolf (3:19)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC0E69F634BAAAC6E2F1DA03735696077631782A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450491   (1028997) от 26.02.2021
 
 Ally Venable - Heart of Fire  (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Sea Mouse - Tropical Fish (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3A7A8206EF8587AEA41DD0804B0BC36CDD997C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452687   (1027347) от 08.03.2021
-
-Georgia Van Etten - Deep Black Water (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude - Take Me Down (1:20)
-02. Deep Black Water (4:31)
-03. Emma Lee (4:08)
-04. Oh Mother (5:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD3F29CC755DCFB1CA603E9A2839264535CDD098
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452688   (1027343) от 08.03.2021
-
-Mojo Mafia - Looking for Redemption (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues; Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Looking for Redemption (3:35)
-02. You Better Be Gone (3:43)
-03. Don't Leave Me This Way (4:59)
-04. Ten Miles (3:45)(   Читать дальше...   )Жанр: Blues; Blues RockПродолжительность: 00:39:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89F920C8D85C8EA3CE4A66955B36F8A4FAC93983
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453351   (1026911) от 11.03.2021
-
-VA - Swamp Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Greg Hooper - City Blues - [3:53]
- 02. Patrick Mcmanus, Essey Smith - Too Good - [2:16]
- 03. Robert Styles - Swampy - [2:22]
- 04. Sergey Kolosov, Ross Gidney - Soul Sister - [2:10](   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7A9306D749F907A9F12071652D812B7410F565C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1453349   (1026909) от 11.03.2021
-
-VA - St. Louis Blues Society Presents 19 in 19 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026909.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amanda Fish - Lower Your Defenses - [2:22]
- 02. Brother Jefferson;Rich McDonough - The Mirror - [4:49]
- 03. Joe Metzka - Another Disaster - [5:22]
- 04. Tru Born - Soon - [4:49](   Читать дальше...   )Жанр: BluesПродолжительность: 01:10:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CFD733D873D0EF71F49E25755CA7E28B5EA9EE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

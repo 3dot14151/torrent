@@ -1,3 +1,119 @@
+###  Публикация: 1594688   (177389) от 02.12.2022
+
+Ellefson-Soto - Vacation In The Underworld (2022) [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_177389.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vacation In The Underworld
+02. Like A Bullet
+03. Sharpen The Sword
+04. The Reason(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0A93981317AB6AED6062D181E74B732178640F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 352876   (177106) от 07.10.2023
+
+Black Stone Cherry - 11 альбомов, 1 EP (2006 - 2023) [FLAC|Lossless|tracks + .cue|image + .cue]<Hard Rock, Southern Rock, Post-Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_177106.jpg" />
+</div>
+
+
+###  Подробнее
+
+Black Stone Cherry образовалась в 2001 году в Эдмонтоне, штат Кентуки, США, который расположен в самом центре сухого графства. Оказывается, на бескрайних просторах Соединённых Штатов Америки есть многочисленные заповедные территории, на которых законом запрещена продажа алкогольных напитков, так вот эти земли как раз и называют сухими графствами. Видимо, это пережитки (   Читать дальше...   )Список альбомов:
+2006 - Black Stone Cherry
+2008 - Folklore And Superstition
+2011 - Between The Devil & The Deep Blue Sea (Special Edition)Жанр: Hard Rock / Southern Rock / Post-GrungeПродолжительность: 11:16:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3FCA76CBAE6958801AF8242AA4FC8D3FF4FD61B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594761   (176883) от 03.12.2022
+
+Vambier - Prost Mortem (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In Vino Veritas (01:33)
+02. All Night Long (04:02)
+03. Freight Train Hopper (04:22)
+04. Best Regards (03:17)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8393F424E60FE5A9EFE34E16F2BACB224E4D9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1429397   (176864) от 06.12.2020
+
+Gentlemans Pistols - Hustler's Row (2015) [FLAC|Lossless|image + .cue] <Hard Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_176864.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Searcher (3:12)
+02. Devil's Advocate On Call (4:01)
+03. Time Wasters (5:49)
+04. Private Rendezvous (4:37)(   Читать дальше...   )Жанр: Hard Rock, Stoner RockПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E3F6DAC301D49F75059126A0057E2A5D01C71D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595011   (176832) от 03.12.2022
 
 Midnight Road - Ready for the Fight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +745,6 @@ Sabu - Banshee (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE10BDD647814DE0B27C59856785FEEF58B2CB44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672184   (170284) от 27.10.2023
-
-Motley Crue - Shout At The Devil (40th Anniversary) (1983) Remastered, 2023, BMG [FLAC|Lossless|WEB-DL|tracks] <Arena Rock, Glam Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Beginning (1:14)
-02. Shout at the Devil (2021- Remaster) (3:14)
-03. Looks That Kill (4:08)
-04. Bastard (2:52)(   Читать дальше...   )Жанр: Arena Rock, Glam Rock, Hard RockПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67A9FDA1B8F87F44E1B35719AE1F1DB45794490
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430845   (170000) от 11.12.2020
-
-Fuzzy Duck - Fuzzy Duck (1971) Reissue, 1993, Repertoire Records [FLAC|Lossless|image + .cue] <Hard Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_170000.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time Will Be Your Doctor (5:12)
-02. Mrs. Prout (6:49)
-03. Just Look Around You (4:24)
-04. Afternoon Out (5:00)(   Читать дальше...   )Жанр: Hard Rock, Prog RockПродолжительность: 00:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:038A8FC8195DFCF21F5C99AC1B3CDFB834698AB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1430732   (169911) от 11.12.2020
-
-Silverhead | Detective - 4 albums (1972-2016) [FLAC|Lossless|image + .cue] <Rock, Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169911.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эта группа, играющая глэм-рок, была образована в начале 70-х годов в Лондоне. Фронтмену Маклу Дес Барресу удалось подписать контракт с британской фирмой Purple Records (образована менеджерами Deep Purple), на которой был издан одноименный дебютный альбом, который критики сравнивали с T.Rex и Slade. После выхода альбома ушел гитарист Стив Форест, которого заменил (   Читать дальше...   )--------------------------
-
-01. Help Me Up (4:19)
-02. Competition (4:40)(   Читать дальше...   )Жанр: Rock, Hard Rock, Glam |Продолжительность: 02:40:00 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0428A0F5FB276E64C509CFE4DA7C8803A1AABDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1596276   (169868) от 10.12.2022
-
-Journey - Live in Concert at Lollapalooza (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Rockabilly>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Separate Ways (Live) [00:05:41]
-02. Only the Young (Live) [00:04:20]
-03. Guitar Interlude (Live) [00:01:10]
-04. Stone in Love (Live) [00:05:18](   Читать дальше...   )Жанр: Hard Rock, RockabillyПродолжительность: 01:38:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84236113C072A1B19A2F0E07C1BCA9D7949ABAB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

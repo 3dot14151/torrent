@@ -1,3 +1,61 @@
+###  Публикация: 1287674   (701772) от 08.03.2019
+
+Louis Armstrong - Hello Louis! (1990) 2CD [FLAC|Lossless|image + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701772.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+01. Hello Dolly
+02. Georgia On My Mind
+03. La Vie En RoseЖанр: JazzПродолжительность: 01:48:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC7E1D06C2145693F824536B15F569BAB0D82BD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1287503   (701766) от 08.03.2019
+
+VA - Sentimental Midnight Jazz (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701766.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Dexter Gordon - Guess I'll Hang My Tears Out To Dry
+02. Ella Fitzgerald Feat. Ben Webster - Sophisticated Lady
+03. Billie Holiday - Strange FruitЖанр: JazzПродолжительность: 02:40:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7C9E8374522375A2180822084FE059299B4B85C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132476   (701282) от 09.05.2017
 
 Lionel Hampton - Reunion At Newport 1967 (1993) Bluebird [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
@@ -687,64 +745,6 @@ Fats Waller and His Rhythm - Ain't Misbehavin (1929 - 1941) 2016, Sony Music [FL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E71666C6FCDD7F9A2A00A518B046CE25E560557
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027645   (696762) от 19.06.2016
-
-Bernie Senensky - Homeland (1991) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.New Life Blues [06:29]
- 02.Leira [09:29]
- 03.Guys And Dolls [07:07]
- 04.Falling [05:43](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:15:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBD13F8C2FC6972163F1525BB0086596E002BD81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027650   (696656) от 19.06.2016
-
-Phil Woods & Michel Legrand And Orchestra - Images (1975) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696656.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Windmills Of Your Mind [04:19]
- 02.A Song For You [04:05]
- 03.Nicole [03:34]
- 04.The Summer Knows [03:02](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Modern Big BandПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05BF00935ABF8506255D62A9DF4AD48E9496EAF7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 525524   (596972) от 24.07.2012
+
+Various Artists - Blue Note Trip Vol. 10: Late Nights / Early Mornings 2CD (2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_596972.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Lou Rawls - Lifetime Monologue (2005 digital remaster)
+02. Donald Byrd - Kofi
+03. Marlena Shaw - Woman Of The Ghetto (live)
+04. Reuben Wilson - Bambu (digital remastered)
+05. Moacir Santos - Off & On
+06. Doris - Beatmaker
+07. Grant Green - Let The Music Take Your Mind (live 2002 digital remaster)
+08. Horace Silver - The Sophisticated Hippie
+09. Nancy Wilson - Goin' Out Of My Head(   Читать дальше...   )Жанр: JazzПродолжительность: 02:14:48
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 356906   (596946) от 29.06.2011
+
+VA - Coffee Time Jazz (2007) [FLAC|Lossless]<Jazz, Bossa Nova, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_596946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ella Fitzgerald - Black Coffee[03:30]
+02.Noro Morales & His Orchestra - Isla Verde [02:38]
+03.Paul Desmond - El Condor Pasa [03:06]
+04.Lalo Schifrin - Rapaz De Bem [02:35]
+05.Joe Henderson - Boto [06:37]
+06.Les McCann - Guantanamera [02:56]
+07.Cal Tjader - It Didn't End [03:58]
+08.Kenyon Hopkins - Hard Latin [02:13]
+09.Baja Marimba Band - Flyin' High [02:08]
+10.Chico O'Farrill - A Man And A Woman [02:31](   Читать дальше...)Жанр: Jazz, Bossa Nova, Smooth JazzПродолжительность: 01:01:43
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150065   (596648) от 13.07.2017
 
 Edmond Hall - Four Classic Albums Plus (1954 - 1959) 2CD, 2010, Avid Jazz [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -699,64 +769,6 @@ Jessica Williams - ‘… And Then, There's This!’ (1990) Remaster, 2015, Soli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E254A7D5C2A8F79CE9EAFD038705D9C3FCBB3132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039504   (594798) от 02.08.2016
-
-Zoot Sims - Choice (1954, 1959) Remaster, 2002, Toshiba[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594798.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.I'll Remember April [04:25]
- 02.Flamingo [02:32]
- 03.There Will Never Be Another You [05:05]
- 04.Red Door [07:22](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:34:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74AA24516198E8978A9A8A4B8E593DD80C755D13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039910   (594796) от 02.08.2016
-
-Charlie Mariano Quartet - Portrait Of France (2002) [FLAC|Lossless|tracks] <Jazz, Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. La Mer    04:40
-02. C'est Si Bon    05:48
-03. Les Parapluies De Cherbourg    05:17
-04. La Vie En Rose    04:42(   Читать дальше...   )Жанр: Jazz, BopПродолжительность: 00:55:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75C58B670984062669CBA3BBA6D99063F3115213
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 1128157   (729868) от 23.04.2017
+
+VA - Record Super Chart #483 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  KSHMR & Crossnaders feat. Micky Blue - Back To Me  3:56
+02.  Грибы - Тает Лёд (Kolya Funk & Lavrushkin Remix)  4:00
+03.  Matt Nash - Know My Love  4:23
+04.  Estradarada - Вите Надо Выйти (Misha Klein Remix)  4:18(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:04:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D96AD4563FB50726E0C2D25A82498E4614F286
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 325226   (729712) от 18.04.2011
+
+VA - Trance Maniacs Party: Melody Of Heartbeat #45 (2011) (18.04.2011) [MP3|320 kbps]<Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_729712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Julian Vincent feat. Jessie Morgan - Shadows The Sun (Original Mix)
+02. Armin van Buuren vs. Faithless feat. Jaren - Not Unforgivable (Russerious Mashup)
+03. Ben Gold - Llacuna (Vocal Mix)
+04. Criostasis - Close Your Eyes (And Fly)
+05. Eco - Drowning (Original Mix)
+06. Heatbeat feat. Jeza - Light Up (Original Mix)
+07. Shogun feat. Emma Lock - Run To My Rescue (Original Mix)
+08. Tom Colontonio feat. Michele Karmin - Colors Of A Tear (Suncatcher Remix)
+09. Appledrugs - Every Seconds of Time (Lala Project Mash Up)
+10. Nash & Pepper - I Killed The Love (Mike Foyle Vocal Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:33:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D24215E178646CD3BF803D7144B0CE02F98FA59C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1530223   (729681) от 10.02.2022
 
 VA - Сегодня на радио хиты FM Vol.12 (2022) [MP3|320 Kbps] <Pop, Dance, Other>
@@ -687,64 +751,6 @@ VA - Friday Vibes: Dance House Music (2022) [MP3|320 Kbps] <Club, Dance, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCA1D4DECF87D2ADE621AFF2FE3D324BA4F872E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284829   (726532) от 23.02.2019
-
-VA - Total Trance: Selections February (2019) [MP3|320 Kbps] <Trance, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726532.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Physical Phase - Maecenas
-002. Main Engine - Through Thorns
-003. Adip Kiyoi - The Agent (Extended Mix)
-004. Dj Dmitrii - Dance City(   Читать дальше...   )Жанр: Trance, ElectronicПродолжительность: 08:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DCCA387B68DE75A7EC9980956E18725DE2862F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284825   (726410) от 23.02.2019
-
-VA - Melodic & Deep: Vocal House Mastermix (2019) [MP3|320 Kbps] <Vocal, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_726410.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A1Bert - Full Control
-002. Bearson - Its Not This
-003. Bellaire - Respect
-004. Anymood - In Your Eyes(   Читать дальше...   )Жанр: Vocal, Deep HouseПродолжительность: 08:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7358231684DF8FB26D768D091BA2727169F5C857
 ```
 
 https://mybot314.ru/tekegram_catalog/

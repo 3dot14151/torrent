@@ -1,3 +1,55 @@
+###  Публикация: 1158994   (487412) от 18.08.2017
+
+Проекты - VideoHive - Instagram Promo Cube Gallery - 19494184 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_487412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Instagram Promo Cube Gallery - проект АЕ для рекламы и продвижения своей страницы в социальных сетях.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8121981525EE646D811C993536CCB3944FB40415
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1405091   (486766) от 28.08.2020
+
+Проекты - VideoHive - Fashion Sale - Store Promo - 28304634 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_486766.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fashion Sale - Store Promo - - это быстрый, стильный анимированный шаблон After Effects с привлекательным дизайном, современной текстовой анимацией и модными эффектами перехода. Отличный способ продвигать и рекламировать свои новые продукты, специальные предложения, акции и видеоролики о предстоящих событиях. Произведите впечатление на свою аудиторию этим чистым (   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FA321207D345D38D59D19B2C8E4B7DA82DEA351
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 821847   (485763) от 15.09.2014
 
 VideoHive - Kino Type - 5745121 [AEP]
@@ -623,58 +675,6 @@ VideoHive - Music Festival Promo Billboard ещё один музыкальны�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D3CB94D4042043A19B178764788BB6697D643F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940695   (466268) от 25.09.2015
-
-Проекты - VideoHive - Cinema Opener 2 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466268.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания превью. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1A20C36487BCBCAFA903B6FBB65F1FDA76B1BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1320831   (464956) от 21.08.2019
-
-Проекты - VideoHive - Award Show Package 2018 - 22370126 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464956.jpg" />
-</div>
-
-
-###  Подробнее
-
-Award Show Package 2018 - пакет, который включает все, что будет необходимо для создания ролика с церемонии награждения.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD98F57D6C9D6B89D310AE0CE3DA09C8EB668B04
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,139 +1,25 @@
-###  Публикация: 1526068   (738823) от 23.01.2022
+###  Публикация: 1283170   (741231) от 15.02.2019
 
-VA - Beautiful Vocal Trance, ch. 3 (2019) [AAC|~332 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738823.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic, Neev Kennedy, Bote - What Else Is There To Love (3:31)
-02. Costa, Cathy Burton - Always (3:38)
-03. Beat Service, Ana Criado - So Much Of Me Is You (Radio Edit) (3:33)
-04. 4 Strings, Susanne Teutenberg - A Brand New Day (2:53)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50DE6CD05DE0DCE0293E3059872D1B723D929755
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526189   (738822) от 23.01.2022
-
-Mirror for Hisense TV 3.8.3 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отображение экрана для телевизоров Hisense
-Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Hisense. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Смарт-ТВ Hisense с 2012 и позже. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.01.2022Разработчик: © 2022 | AirBeamTV BVПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71C365880A00B630EA737E363DF50736120E4308
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526069   (738821) от 23.01.2022
-
-VA - Beautiful Vocal Trance, ch. 4 (2019) [AAC|~338 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic, Cathy Burton, AxelPolo - Loving Overflow (Radio Edit) (3:37)
-02. Costa, Sarah Lynn - The Water's Edge (3:51)
-03. 4 Strings, Maria Nayler - Remember You As Mine (3:21)
-04. Tenishia, Ana Criado - Ever True (Radio Edit) (4:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:49:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4B361C950FC70A6C4D59DB859CEA6C824F0783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526083   (738820) от 23.01.2022
-
-VA - Summer in Electro & Swing Jazz (Light Music Selection) (2018) [AAC|~317 Kbps] <Jazz>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JazzInCase - Bon bon (4:51)
-02. Ely Bruna - Dolce Vita (2:55)
-03. Bomba Titinka - Treno a bebop (2:52)
-04. Just Bubbles - Rising for the Moon (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E54DD9158EF5AECC57128ABBDC44797B42D81D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526114   (738819) от 23.01.2022
-
-Charlie Ventura Quartet & Quintet - Complete Verve Studio Sessions (1951 - 1952) 2001, Definitive Records [FLAC|Lossless|tracks + .cue] <Swing>
+Splashgirl - Sixth Sense (2018) [FLAC|Lossless|tracks + .cue] <Jazz, Nu Jazz, Dark Jazz>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Avalon [2:53]
-02. I'm Confessin' [3:07]
-03. Bugle Call Rag [2:50]
-04. Rose Room [2:49](   Читать дальше...   )Жанр: SwingПродолжительность: 01:01:55
+01. Carrier (6:17)
+02. Broken (7:20)
+03. Sixth Sense (6:59)
+04. Monsoon (4:18)(   Читать дальше...   )Производство: Hubro – HUBROCD2587Жанр: Jazz, Nu Jazz, Dark JazzПродолжительность: 00:41:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6F5270650604EDD65C4C34A060B741B6F412014D
+magnet:?xt=urn:btih:F2FEB45C6FB0DA9030E34A5F6C0438CCBABEF0EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,28 +27,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526076   (738818) от 23.01.2022
+###  Публикация: 1283138   (741230) от 15.02.2019
 
-VA - Beautiful Vocal Trance, Progressive (2020) [AAC|~336 Kbps] <Trance>
+Александр Кравецкий | Церковная миссия в эпоху перемен (2011) [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738818.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741230.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aurosonic, Kate Louise Smith - From Dust To Ground (3:28)
-02. Costa, Ana Criado - The Secret Garden (3:30)
-03. Frainbreeze, Claudiu Adam, Yentl - Trust The Water To Settle (3:33)
-04. Aurosonic, Ellie Lawson - Becoming (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:57:23
+Просматривая предреволюционные и современные публикации, посвященные проблемам миссии, нельзя отделаться от впечатления, что, рассуждая о миссии, авторы разных эпох пишут о совершенно различных предметах. Очевидно, что понятие миссия за прошедшее столетие претерпело существенные изменения.
+
+Если современный человек под миссионерской деятельностью Церкви понимает, (   Читать дальше...   )Жанр: История церквиФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C1C8DCB84376F83233FA5A2AC65202F42E2AAF2D
+magnet:?xt=urn:btih:0B000DE91443DF8FA515AF257A1A777349620B5E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,28 +55,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526065   (738817) от 23.01.2022
+###  Публикация: 1283099   (741229) от 15.02.2019
 
-VA - Beautiful Vocal Trance, ch. 2 (2018) [AAC|~340 Kbps] <Trance>
+Tony Bennett - As Time Goes By: Great American Songbook Classics (1950-e) 2013, Concord Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741229.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beat Service, Ana Criado - An Autumn Tale (Radio Edit) (4:10)
-02. Nicholas Gunn, Alina Renae - Older (Costa Remix) (3:32)
-03. Witness45, Cynthia Hall, Fashion Police - I'm Still Here (Radio Edit) (2:48)
-04. Tenishia, Sue Mclaren - Strong (Radio Edit) (3:57)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:42:09
+01. Blue Moon [2:14]
+02. Reflections [3:35]
+03. As Time Goes By [3:15]
+04. Maybe September [3:55](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:44:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AB12342767B81CAFA1A3665836FD206F366F1228
+magnet:?xt=urn:btih:6DE999F8484D4D58113215D6680483F74B9FDC95
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,28 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526074   (738816) от 23.01.2022
+###  Публикация: 1127205   (741208) от 20.04.2017
 
-VA - Beautiful Vocal Trance, ch. 5 (2020) [AAC|~337 Kbps] <Trance>
+Хоккей. КХЛ 2016-2017. Кубок Гагарина. Финал. 3-й матч. СКА (Санкт-Петербург) — Металлург (Магнитогорск) (12.04.2017) IPTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741208.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Costa, Ana Criado - The Secret Garden (3:30)
-02. Aurosonic, Stine Grove - In Euphoria We Rise (3:29)
-03. Dark Matters, Jess Morgan - I Don't Believe In Miracles (Shogun Remix) (4:16)
-04. Beat Service, Cathy Burton - Love Is Your Home (Radio Edit) (3:50)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:15:18
+12 апреля 2017, среда. 19:30 МСК
+КХЛ 2016-2017. Кубок Гагарина. Финал Чемпионата. 3-й матч
+СКА (Санкт-Петербург) — Металлург (Магнитогорск)
+Стадион: Ледовый дворец (Санкт-Петербург, Россия), 12348 зрителей (99 % при вместимости 12500)(   Читать дальше...   )Телекомпания: КХЛ ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:52:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6FB6141C542FADC2703237CF7CFE5E59D29C924B
+magnet:?xt=urn:btih:F3134E5872217EF1D9A911DF78CECEEA6208F12A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -228,28 +113,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526216   (738815) от 23.01.2022
+###  Публикация: 864993   (741207) от 19.07.2020
 
-VA - London Orange (Urban Music for Urban People) (2016) [AAC|~313 Kbps] <Lounge, Chill Out, Downtempo>
+Ю.С. Карабасов и др. | Металлургия и время: энциклопедия. В 6-ти томах [6 книг] (2011-2014) [PDF]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Научная и техническая литература
+>>Научно-популярная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741207.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tribeca - First to Say Goodbye (Original Mix) (5:34)
-02. Roberto Bronco - Breath (Original Mix) (4:05)
-03. Houie D. - Silence (Be.Me.Ti.Lou) (5:11)
-04. Ingo Herrmann - Soulmate (Original Mix) (4:39)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:58
+Энциклопедия включает шесть томов, содержание которых отражает более чем 10-тысячелетний путь, пройденный металлургией. Подробно и популярно изложены ключевые моменты развития металлургии. Рассмотрены социальные, политические, экологические и другие объективные и субъективные обстоятельства появления изобретений и открытий в области металлургического искусства. Это (   Читать дальше...   )Жанр: МеталлургияФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81B648B5ED05FA0782AAA8410F1B1E158186830F
+magnet:?xt=urn:btih:23415C20C9C1DE350A782D89952E97A799EBE57F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,28 +139,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526135   (738814) от 23.01.2022
+###  Публикация: 1126913   (741206) от 20.04.2017
 
-Baynk - ADOLESCENCE (2022) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Pop>
+Хоккей. КХЛ 2016-2017. Кубок Гагарина. Финал Чемпионата. 2-й матч. Металлург (Магнитогорск) — СКА (Санкт-Петербург) (10.04.2017) IPTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741206.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Touch Me (Hold My Hand) (4:01)
- 02. BAYNK, Tinashe - Esther (3:12)
- 03. BAYNK, Cosmo's Midnight - How Does It Feel? (3:39)
- 04. BAYNK, Drama - 1 Chance (3:22)(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:34:55
+10 апреля 2017, понедельник. 17:00 МСК
+КХЛ 2016-2017. Кубок Гагарина. Финал Чемпионата. 2-й матч
+Металлург (Магнитогорск) — СКА (Санкт-Петербург)
+Стадион: Арена-Металлург (Магнитогорск, Россия), 7500 зрителей (97 % при вместимости 7700)(   Читать дальше...   )Телекомпания: КХЛ ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:58:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D87CE67873927F60C18D41282117058BFC32AE4
+magnet:?xt=urn:btih:BC5A3A341904551DA5B74F1F63DAB5BA70ED5363
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,193 +168,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526212   (738813) от 23.01.2022
+###  Публикация: 528557   (741205) от 19.07.2020
 
-Screenshot Editor 2.3.3 fix [Multi/Ru]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Screenshot Editor (Редактор скриншотов) поможет вам легко сделать скриншот и прокомментировать его с использованием набора полезных инструментов разметки.Тип издания: macOS SoftwareРелиз состоялся: 12.10.2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5471F0C6A796B31456C31D33195B93955AFDB3BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526240   (738812) от 23.01.2022
-
-VA - Barcelona Orange (Urban Music for Urban People) (2017) [AAC|~339 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Amoralea (5:58)
-02. Paulsen & Stryczek - Havana Postcard (3:03)
-03. Leo de la Rosa - Desnudos Tú Y Yo (3:23)
-04. Marco Bianchi, Franky Harper - Oye Como VA (3:28)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62CAA0F9102FA36E0CA94CC427481088443209F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526077   (738811) от 23.01.2022
-
-VA - Beautiful Vocal Trance, ch. 7 (2022) [AAC|~326 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aurosonic, Katty Heath - Tale of Us (3:36)
-02. Aldous - Wait For Me (3:02)
-03. Bruce Cullen, Paula Alcasid - Upside Down (3:43)
-04. Costa, Jessie Lee Thetford - Distant World (3:30)(   Читать дальше...   )Жанр: TranceПродолжительность: 04:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC15772E977FF84B0D500B3768A5123AAA943B93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526063   (738810) от 23.01.2022
-
-VA - Beautiful Vocal Trance, ch. 1 (2017) [AAC|~338 Kbps] <Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ana Criado - Vulnerable (Denis Kenzo Edit) (4:17)
-02. Beat Service, Sarah Lynn - Dream Weaver (Radio Edit) (4:03)
-03. Radion6, Katty Heath - Beautiful Nothing (Radio Edit) (2:59)
-04. 4 Strings, Denise Rivera - In The Middle of a Dream (Radio Edit) (3:11)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D131820A0E393189C6EF8DEA7E7CBF999BDE32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526134   (738809) от 23.01.2022
-
-Stygian Dark - Gorelords Of War (2021) [FLAC|Lossless|image + .cue] <Old School Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gorelords of War (03:53)
-02. Driven by Ravenous Hunger (02:36)
-03. Casket Malediction (03:02)
-04. Lick the Oculus (03:28)(   Читать дальше...   )Жанр: Old School Death MetalПродолжительность: 00:33:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B76F80DD4FC67BB6AE2E38A109D4A9EC6B41C797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526202   (738808) от 23.01.2022
-
-PDF to Pages Converter 6.2.1 fix [Multi/Ru]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проблемы с редактированием PDF? Хотите редактировать содержимое PDF в Pages? С помощью PDF to Pages Converter для Mac вы можете быстро и легко преобразовать ваш PDF-файл в редактируемый файл страниц и сохранить исходное форматирование, содержимое за считанные секунды. Таким образом, вам не нужно тратить часы на перепечатывание или переформатирование файла вручную. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.10.2019Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DCFD026DF387063143306CB447C340EE7CEEDB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526264   (738807) от 23.01.2022
-
-Клоун Коко и день физкультурника / KoKo's Field Daze (1928) TVRip [H.264]
+Тараканище (1963) DVDRip [H.264] [Реставрация КП]
 
 >>Мультфильмы
->>Зарубежные Мультфильмы 20-го века (SD)
+>>Отечественные Мультфильмы 20-го века (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738807.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741205.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Америке тоже было ГТО! Да-да, чесслово. Сами посмотрите как бодренько занимается физкультурой вся эта компания - Макс, Коко и Фитц.Производство: США, Inkwell StudiosЖанр: Рисованная анимация, короткометражныйРежиссер: Дэйв ФлейшерАктеры: Макс ФлейшерПеревод: НемойСубтитры: ОтстутствуютПродолжительность: 00:05:31
+По сказке К. Чуковского о страшном-престрашном Тараканище, который до смерти напугал всех зверей, но был проглочен обыкновенным маленьким воробышком.Производство: СССР / СоюзмультфильмЖанр: Короткометражный, Детский, СказкаРежиссер: Владимир ПолковниковСубтитры: ОтсутствуютПродолжительность: 00:16:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C6630DAE1B69777F54D0595CFCF02EACA87B089
+magnet:?xt=urn:btih:88A834C4DCC54C21BB782C2B08DFD11ECC61805C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -480,28 +194,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526253   (738806) от 23.01.2022
+###  Публикация: 1127125   (741204) от 20.04.2017
 
-Mercury Gates - Carpathos Rising (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Nels Cline & Vinny Golia - The Entire Time (2004) Nine Winds [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Free Improvisation>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738806.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741204.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Carpathos Rising
-02. Chosen Sentinels
-03. Moonshiner
-04. Future Faces(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:38:56
+01.Divining [13:52]
+ 02.City Snow Stories [09:21]
+ 03.For Oliver Lake [04:59]
+ 04.The Tiny Boxes Speak Her Name [02:22](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 01:06:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A510CFB03D85B1044F11FF32B08D66669F932850
+magnet:?xt=urn:btih:803641727D8D25081D48C69ABA662FBCD951334D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,25 +223,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526201   (738805) от 23.01.2022
+###  Публикация: 1397268   (741203) от 19.07.2020
 
-PDF to Numbers Converter 6.2.1 fix [Multi/Ru]
+[D'channel] Антон Трапезин | Базовый швейный курс (2019) CamRip
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738805.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741203.jpg" />
 </div>
 
 
 ###  Подробнее
 
-С помощью PDF to Numbers Converter для Mac вы можете быстро конвертировать PDF-файлы в файлы .numbers, что позволяет легко редактировать или создавать великолепные электронные таблицы в Numbers. Мы ежедневно получаем множество файлов PDF, контрольный список, счет-фактуру, прайс-лист, финансовый отчет и многое другое. PDF хороший, но не редактируемый, почему бы не (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+Базовый швейный курс - теперь ты можешь получить швейное образование из любой точки мира не выходя из дома и воплотить свою мечту в жизнь! Курс состоит из 11 видеоуроков по конструированию изделий одежды.Производство: D'channelЖанр: ВидеоурокПродолжительность: 12:07:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E7E1D73A0B874D6B75F3BDA7C53652684058E213
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,26 +249,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526192   (738804) от 23.01.2022
+###  Публикация: 1126737   (741202) от 20.04.2017
 
-PDF Converter Master 6.2.1 fix [Multi/Ru]
+VA - Metropolitan Lounge Selection Amsterdam (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738804.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741202.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDF Converter Master, мощный, легкий в использовании. Приложение имеет все необходимое для преобразования PDF файлов в другие форматы документов. Программа имеет чрезвычайно простой и понятный интерфейс, который позволяет легко конвертировать PDF файлы в 6 распространенных форматов документов (DOCX, DOC, PPTX, RTF, TXT и IMAGE).
-Вы можете конвертировать PDF в Word, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.11.2021Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+01.  Benatural - Little  5:09
+02.  Ialaz - Waves  4:21
+03.  Lo Tide - Never Coming Back  4:01
+04.  Michiko - Outta Sight Outta Mind  3:37(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:35
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED2A5360D9989EC8920BEE27C3FF0137151B76E2
+magnet:?xt=urn:btih:E5DD9B3C3FCA5940387F7ACE227751F51A9FED66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -562,25 +278,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526181   (738803) от 23.01.2022
+###  Публикация: 1397132   (741201) от 19.07.2020
 
-Сто к одному (23.01.2022) WEBRip [H.264/720p-LQ]
+Плата по счётчику (2014) WEB-DL [H.264/1080p-LQ] (сезон 1, серии 1-4 из 4)
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738803.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741201.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:26
+Простой таксист Павел, у которого после десяти лет совместной жизни с женой начались семейные проблемы, волею случая, встревает в бандитские "разборки". В багажнике его машины оказывается небольшой портфель, набитый бриллиантами. Ему приходится спасать свою жизнь и жизнь дочки, которую похитили бандиты банды Шампура после того, как бриллианты у Павла отобрали (   Читать дальше...   )Производство: Россия / Star MediaЖанр: драма, криминалРежиссер: Кирилл КапицаСубтитры: русскиеПродолжительность: ~00:45:00 серия
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:79CAAA921A686F9972347F8212D3182AC90F1F88
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,25 +304,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526182   (738802) от 23.01.2022
+###  Публикация: 1126781   (741200) от 20.04.2017
 
-Compress PDF 2.0.0 fix [Multi/Ru]
+VA - Chillout AAA Vacation Time Real Set (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Программы для macOS
->>Офис, Интернет для macOS
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738802.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741200.jpg" />
 </div>
 
 
 ###  Подробнее
 
-PDF-файл может быть очень большим, если он содержит много изображений в оригинальном качестве. Мы хотели бы сохранить документы, такие как брошюра о продукте, руководство пользователя, отчеты, предложения или другие, в виде файла PDF для распространения. Но вы не хотите размещать руководство пользователя объемом 50 МБ в формате PDF на своем веб-сайте или отправлять (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 27.10.2021Разработчик: Lighten Software Limited.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Русский, Английский, Немецкий и др.
+01.  Neuroborus - Readout Output (Alternate Mix)  2:58
+02.  Green Grid - Reason Soul (Clip Version)  3:05
+03.  Sine Tunes - Tedium Street (Memo Export)  3:01
+04.  Keyright - Lakeside (Yellow Sun)  2:18(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:04:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7034FFA3A2E5196074CAB05AB1AC81B3F73FC987
+magnet:?xt=urn:btih:C54A5DEB6A9DEE74F92AB7097B1FF5A29F9F55C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -614,25 +333,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526258   (738801) от 23.01.2022
+###  Публикация: 527769   (741199) от 19.07.2020
 
-Андрей Саломатов | Про меня и про машину (2021) [MP3, Alek Sil]
+Юнга Северного флота (1973) DVDRip
 
->>Аудио для детей и родителей
->>Аудиокниги для детей и родителей
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741199.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приключения с перемещением во времени начались однажды в обычной городской квартире. Папа собрал машину времени из деталей от старых телевизоров и пылесосов, а дедушка-шахматист и мальчик, от имени которого ведется рассказ, решили распорядиться ею по-своему. Но вот от куда взялись кошки?Жанр: Детская литература, ФантастикаПродолжительность: 00:10:11
+Великая Отечественная война… Четверо советских подростков не стали ждать победного ее завершения, а, прослышав о том, что на Соловецких островах открылась школа юнг, отправились туда. Эта школа и стала для ребят настоящей школой взросления, школой жизни. Фильм - о мужской дружбе, первом боевом крещении ребят и победе.Производство: СССР / киностудия им. М. ГорькогоЖанр: Военный, ДрамаРежиссер: Владимир РоговойАктеры: Альгис Арлаускас, Виктор Мизин, Борис Григорьев, Юрий Сорокин, Леонид Реутов, Клавдия Козленкова, Михаил Кузнецов, Василий Лановой, Валерий Рыжаков, Игорь Скляр, Борис ГитинСубтитры: ОтсутствуютПродолжительность: 01:23:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF875503F621CC51D041ABFC346DC0CCA5C9DE3F
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,28 +359,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526265   (738800) от 23.01.2022
+###  Публикация: 1127178   (741198) от 20.04.2017
 
-Planeswalker - Tales Of Magic (2022) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+Cookie 5.5.4 [Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741198.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tales Of Magic
-02. The Spark
-03. Shadow Of Emeria
-04. Blackblade(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:46:30
+Cookie  - Программа для полного удаления cookie-файлов, очистки кэшей и истории посещения веб-страниц в браузерах. Cookie поможет сохранить безопасность и приватность пользователя в сети.
+
+•  Безопасное удаление нежелательных данных, и спокойно отдыхать, зная, что внешние угрозы не могут восстановить личные данные.
+•  Устали от целевых объявлений, которые таинственным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19 апреля 2017Разработчик: SweetP Productions.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий, Французский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8CA521C2935D457B8A1050BCB26552BE20EC4069
+magnet:?xt=urn:btih:32CB3F5A8087CEF1837DCD9C24501557EB19C79F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -669,25 +388,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526117   (738799) от 23.01.2022
+###  Публикация: 1397124   (741197) от 19.07.2020
 
-Первая передача на НТВ. Автомобильная передача (23.01.2022) SATRip
+Windows 10 (v2004) x64 HSL/PRO by KulHunter v3.1 (esd) [Ru]
 
->>Документалистика и Телепередачи
->>За рулем
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738799.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741197.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Одиночная камера на колесах: как собственный автомобиль стал для женщины тюрьмой? Дуэль маневров: неужели участник аварии виноват только в том, что выжил в ДТП? С января 2022 года в силу вступили новые расценки на ОСАГО. Жадная штрафстоянка: кто вообще не обязан платить ни за эвакуацию, ни за спецстоянку?Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:23:28
+Сборка основана на официальном образе от MDSN: ru_windows_10_consumer_editions_version_2004 _updated_june_2020_x64_dvd_30a269ed
+Удалены стандартные темы, отключено несколько компонентов, задействован протокол Samba. Удалена папка PerfLogs. Очищена папка WinSxS\Backup. Папка WinSxS сжата. С установочного носителя удалена папка \sources\sxs. Проведена оптимизация. (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D60C6B5478ED668DD5CE404822815F430FB0430F
+magnet:?xt=urn:btih:CC1774D87F7F9D865427323952278C8D85565AF6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -695,25 +415,304 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526227   (738798) от 23.01.2022
+###  Публикация: 1126801   (741196) от 20.04.2017
 
-Своя игра (23.01.2022) WEBRip [H.264/1080p]
+VA - Jungle Essence 11th Potion (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741196.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:00
+01. Seldon Thaye – Tibet (Original Mix) (00:06:23)
+ 02. Nino Garcia – Marrakesh (Original Mix) (00:05:37)
+ 03. Mark Gaetani – Rwanda (Original Mix) (00:05:21)
+ 04. Alonso Di Uomo – Lynx (Original Mix) (00:04:39)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:44:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8EB88F4988B79D4F3A5D6B91865EB296C3FBE420
+magnet:?xt=urn:btih:2997004D1509CEDEDF4FFEC4EB03CD065AA905F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392703   (741195) от 19.07.2020
+
+Враг государства / Enemy of the State (1998) BDRemux [MPEG-2/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое мгновение своей жизни человек находится на виду, даже когда он уверен, что его никто не видит. В руки преуспевающего адвоката Роберта Дина попала страшная улика, разоблачающая высокопоставленного чиновника. Но секретная служба узнала об этом раньше Роберта и немедленно приняла меры. В ход пошли новейшие технологии: в современном мире не нужно быть магом, чтобы (   Читать дальше...   )Производство: США / Touchstone Pictures, Jerry Bruckheimer Films, Don Simpson/Jerry Bruckheimer FilmsЖанр: боевик, триллерРежиссер: Тони СкоттАктеры: Уилл Смит, Джин Хэкмен, Джон Войт, Лиза Боне, Реджина Кинг, Стюарт Уилсон, Лаура Кайот, Лорен Дин, Бэрри Пеппер, Иэн ХартПеревод: дублированный, многоголосый профессиональный, авторскийСубтитры: русские, английскиеПродолжительность: 02:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF1EF207EB4649928BE430C1CAF9B3280AC10E64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127016   (741194) от 20.04.2017
+
+Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). Полуфинал. Россия — Швеция (25.03.2017) IPTV [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741194.jpg" />
+</div>
+
+
+###  Подробнее
+
+25 марта 2017 года, суббота
+Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай). Плей-офф
+Полуфинал
+Россия — Швеция(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:16:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DDCCC77AECBBA838D0D7DBA028A92A32B8E8701
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393329   (741193) от 19.07.2020
+
+Три плюс два (1963) WEBRip [H.264/1080p-LQ]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Отечественная Классика (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741193.jpg" />
+</div>
+
+
+###  Подробнее
+
+Трое друзей из Москвы живут «дикарями» в замечательном месте с песчаным пляжем, пресной водой, тенью и дровами у самого моря. Отдыхают. Внезапно приезжают две незнакомки и заявляют, что это их старое место. Более того, они доказывают свое первенство, выкопав бутылку с письмом. Но уезжать ребята отказываются. Дамы же от своего места отказываться тоже не собираются (   Читать дальше...   )Производство: СССР / Киностудия им. М. ГорькогоЖанр: Мелодрама, комедияРежиссер: Генрих ОганисянАктеры: Наталья Кустинская, Наталья Фатеева, Андрей Миронов, Евгений Жариков, Геннадий НиловСубтитры: ОтсутствуютПродолжительность: 01:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA20D55071B6D60D7F93B3B4738E7BE956F5D9DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126943   (741192) от 20.04.2017
+
+VA - Chilling Poolside (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sombra Modos - Shared Happiness  6:05
+02.  Sombra Modos - Botavara  5:34
+03.  Lamar Ensemble - Inspirational Shortcut  5:47
+04.  Lamar Ensemble - A Personal Perspective  6:00(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:54:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACA0960F826E6431370B19F7B427678D23A7435
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396981   (741191) от 19.07.2020
+
+Экс-глава РАО признал в суде вину в хищении 762 миллионов рублей
+
+>>3
+>>4
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_741191.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бывший глава Российского авторского общества (РАО) Сергей Федотов полностью признал вину в мошенничестве на более чем 762 миллиона рублей, передает корреспондент РИА Новости из зала Пресненского суда Москвы.
+"Вину признаю, раскаиваюсь", - ответил Федотов на вопрос судьи. Он добавил, что просит рассмотреть дело в особом порядке, хотя и не сможет после оспорить (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126986   (741190) от 20.04.2017
+
+Кёрлинг. Чемпионат Мира 2017. Женщины. Пекин (Китай). Плей-офф. Россия — Канада (24.03.2017) WEB-DLRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741190.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 марта 2017 года, пятница
+Чемпионат мира по кёрлингу среди женщин 2017. Пекин (Китай). Плей-офф
+Система плей-офф Пейджа
+Россия — Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8F3E9F23F483E2A8AEC5E0161FD7AE6602B4D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397165   (741189) от 19.07.2020
+
+Никита Шарипов | Выжить любой ценой. Часть первая (2020) [MP3]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741189.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мир погрузился во мрак. Вирус распространяется с огромной скоростью и превращает людей в живых мертвецов. Главный герой – в прошлом боец спецназа – решает разобраться в ситуации. Но не всё так просто. Кто создал вирус? Почему погибло почти всё население планеты? Много загадок и так мало ответов…Долгий путь, полный боли, потерь и неудач, начинается прямо сейчас…Жанр: Боевая фантастика, Героическая фантастикаПродолжительность: 09:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5161E4B470738831B0120E607DB499DAC784D90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126925   (741188) от 20.04.2017
+
+Dream Travel - Megamix: Best Of Dream Travel (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Magic Fly (Original Mix)  6:30
+02.  Heart Drops (Original Mix)  6:00
+03.  Moments (Original Mix)  5:26
+04.  Missing You (Original Mix)  6:30(   Читать дальше...   )Жанр: TranceПродолжительность: 01:03:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:586F67B766F64206CCD779E0C8F2906FBCE34B92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 534928   (741187) от 19.07.2020
+
+Светлана Велесова | Приключения Василисы. Или как царевна-лягушка за счастьем ходила (2012) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741187.jpg" />
+</div>
+
+
+###  Подробнее
+
+Любите гулять по ночам? Тогда будьте готовы к неприятностям. В один вечер получить сразу двух женихов, когда за всю жизнь ни одного не было, это вполне в духе Василисы. Ну и что с того, что оба из другого мира? И не важно, что один из них дракон и зовут его Кощеем, а второй Иван - царевич. Главное что ты сама царевна, причем лягушка. И кому-то позарез понадобилась (   Читать дальше...   )Жанр: Фэнтези, Юмористическая фантастикаФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BA18042208A617EDF7BCC98BEA38085A36BB872
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126959   (741186) от 20.04.2017
+
+Футбол. Лига Чемпионов УЕФА 2016-2017. 1/4 финала. 2-й матч. Лестер Сити (Англия) – Атлетико М (Испания) (18.04.2017) HDTV [H.264/1080i]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741186.jpg" />
+</div>
+
+
+###  Подробнее
+
+18 апреля 2017, вторник. 21:45 МСК
+Лига Чемпионов УЕФА 2016-2017. Плей-офф. 1/4 финала. 2-й матч
+Лестер Сити (Лестер, Англия) – Атлетико (Мадрид, Испания)
+Стадион: Кинг Пауэр - Уолкерс (Лестер, Англия), 31548 зрителей (98 % при вместимости 32262)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DC8CAC418AC0E4DF40415A87D1A537C7B653B14
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1194822   (152655) от 26.12.2017
+
+VA - Лучшие клубные новинки Vol.7 (2017) [MP3|320 Kbps] <Uplifting Trance, Deep House, Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152655.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Above & Beyond Feat. Richard Bedford - Northern Soul (Spencer Brown Remix) 9:03
+02. Aevion & Sir Felix feat. Cider Sky - Weekend Love (Extended Mix) 5:02
+03. Alessandra Roncone - Down the Rabbit Hole (Original Mix) 5:31
+04. Alesso & Anitta - Is That For Me (3LAU Remix) 2:58(   Читать дальше...   )Жанр: Uplifting Trance, Deep House, Drum & BassПродолжительность: 14:39:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0E811BA9632620EEB63983488407BC60CB939B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1271177   (152600) от 22.12.2018
+
+VA - Chingona: Psychedelic Trance (2018) [MP3|320 Kbps] <Psy Trance, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152600.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Aora Paradox - Pulsar Alpha
+002. Hanumann - Newen Weichafe
+003. Twodelic - Way Out (Original Mix)
+004. Wicked - Haze (Original Mix)(   Читать дальше...   )Жанр: Psy Trance, Goa TranceПродолжительность: 12:13:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAE96A10DB8BCD4A3420C0B608398C526FF892BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1271174   (152452) от 22.12.2018
 
 VA - Beautiful Light: New Trance Music (2018) [MP3|320 Kbps] <Trance>
@@ -693,64 +751,6 @@ VA - Urban Dance Party: Clubbing Electro House (2021) [MP3|320 Kbps] <Club, Danc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:813755258AFFB72EEB31CD6406B78EA93922FD85
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519296   (148410) от 24.12.2021
-
-VA - SVS Collection vol. 8 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro House, Disco House, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148410.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. A-Mase, Da Buzz - Without You
-002. A-Mase, Sharliz - Sky (Extended Mix)
-003. A-Mase, Sharliz - This Summer I'm Alone
-004. A-Sirr - Come With Me(   Читать дальше...   )Жанр: Deep House, Electro House, Disco House, OtherПродолжительность: 13.19.27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A600CADADC2901AFE9AA339675E79B73254102CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969334   (147799) от 27.12.2015
-
-1000Dayswasted - This Darkness (2015) [MP3|320 кб/с] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147799.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 1000DaysWasted & The Early Reflector - This Darkness (Intro) (1:09)
-2. The Reckoning (4:34)
-3. Dark Solace (5:16)
-4. Night On My Mind (3:55)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99624F070A065F3CE0D44603A351AD17A166920E
 ```
 
 https://mybot314.ru/tekegram_catalog/

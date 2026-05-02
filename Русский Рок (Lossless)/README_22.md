@@ -1,3 +1,38 @@
+###  Публикация: 338274   (667280) от 20.05.2011
+
+Ноль - Песня о безответной любви к Родине (1991) [WavPack|Lossless]<Folk-Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667280.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Этот русский Rock-n-roll
+2. Ехали по улице трамваи
+3. Улица Ленина
+4. Цикорий
+5. Иду, курю
+6. Песня о настоящем индейце
+7. Ты - тормоз
+8. Песня о безответной любви к Родине (Вкус России)
+9. Человек и кошка
+10. Я.Л.Ю.Б.Л.Ю.Т.Е.Б.Я.(   Читать дальше...   )Жанр: Фолк-панк-рокПродолжительность: 00:49:10
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 900925   (665355) от 24.05.2015
 
 Декабрь - Жара Декабря (2015) [FLAC|Lossless]<Hard Rock>
@@ -740,35 +775,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3CF6A30EB0CE3F14C3C23A2B30E25A6B75BEA069
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542418   (637393) от 07.04.2022
-
-Александр Неплахов - Inspired (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637393.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лица
-02. Ковид 19
-03. Каждому свое
-04. Я Больше!(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:55:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6D4AE5EDE740D6C4D9583A2283BF883D9444FCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

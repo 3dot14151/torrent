@@ -1,3 +1,248 @@
+###  Публикация: 469673   (97055) от 18.03.2012
+
+VA - Зарубежная Танцевалка (2012) [MP3|256 кб/с]<Pop,Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97055.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elena Gheorghe - Midnight Sun
+02. Marquess - Chapoteo
+03. Arash - Melody (Radio Edit)
+04. DJ Mendez - Josephine
+05. DJ San & Wendel Kos - Kiss Of Life
+06. Christopher S feat. Lisa - There For You
+07. Adrian Sina feat. Sandra N. - Angel (Radio Edit)
+08. Shahzoda feat. Akcent - All Alone
+09. Sunstroke Project & Offbeat - Epic Sax
+10. Rihanna - Man Down2012Жанр: Pop,DanceПродолжительность: 06:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B80C1BA26BAE50F160FB1368C00121D56601D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469972   (97054) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 94
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97054.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 94
+Название: Desktop Wallpapers Pack 94
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050/1600х1200 - 2560х1920
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0490EF0C460819B6B4EFA58B9732DBFAA44D1186
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469527   (97053) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 83
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97053.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 83
+Название: Desktop Wallpapers Pack 83
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680x1050 - 3200х200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29881536FC8AA8E472B76ED2F087F6E0A0BCFD60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470141   (97052) от 18.03.2012
+
+[Wallpapers] HD Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97052.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers Pack 1
+Название: HD Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72239D999F5AD95335C68EB4EE064ABAB924A57A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469577   (97051) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 91
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97051.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 91
+Название: Desktop Wallpapers Pack 91
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:524093C96FB89C0207814EE642CC46D126A2AD3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470179   (97050) от 18.03.2012
+
+[Wallpapers] Nature Pictures №30
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97050.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №30
+Название: Nature Pictures №30
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1600х1200 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21E8BEC468C664B09515A7AE868803CFD38DC883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469973   (97049) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 95
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97049.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 95
+Название: Desktop Wallpapers Pack 95
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23A7A0FBBC819342E415AB93F5D96E2CAEA7D3A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469974   (97048) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 96
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97048.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 96
+Название: Desktop Wallpapers Pack 96
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED8747CD825E3C7E948EECCB2EA4B1148CAD89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470168   (97047) от 18.03.2012
 
 [Wallpapers] Best Wallpapers Pack 4
@@ -509,249 +754,6 @@ John O'Callaghan - Unfold (The Remixes Extended Versions) (16.03.2012) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1202DB49905DE15449F189F868D49B87B80C4EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469499   (96987) от 17.03.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 36
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96987.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girl Wallpapers Pack 36
-Название: Sexy Girl Wallpapers Pack 36
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30068BC2D0BE5951BCCDFA8C617D53CD8FBA0A7A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469495   (96984) от 17.03.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 35
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96984.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girl Wallpapers Pack 35
-Название: Sexy Girl Wallpapers Pack 35
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D48616F821A119FA8C2176BE2755252098C40987
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469586   (96976) от 17.03.2012
-
-Peter White - Here We Go (2012) [MP3|~245 кб/с (V0)]<Smooth Jazz, Jazz-Guitar-Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Night After Night
-02. Time Never Sleeps
-03. Here We Go
-04. If Ever...
-05. Our Dance
-06. Desert Night
-07. Joyride
-08. Costa Rica
-09. My Lucky Day
-10. Requiem For A Princess(   Читать дальше...   )Жанр: Smooth Jazz, Jazz-Guitar-LoungeПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:265F64228529D9179A70FAD1B8E3950161C3FCD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469459   (96975) от 17.03.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 34
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96975.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girl Wallpapers Pack 34
-Название: Sexy Girl Wallpapers Pack 34
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1933FD7DA8051CDA2DB6FA365B78B46EF9BBD51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469058   (96972) от 17.03.2012
-
-Машина для убийств / Icarus (2010) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Эдвард Дженн, в криминальном мире известный, как Икар, в обычной жизни — преуспевающий предприниматель и любящий отец. Однако, и у таких успешных людей, как он, есть свои скелеты в шкафу, и переходить такому человеку дорогу, — обрекать себя на верную гибель.
-
-Такие люди всё же находятся, но они пока не знают, что уготовил им отчаянный Икар, который будет бороться до конца, дабы защитить себя, свою семью, своих близких. Борьбы до победного конца не избежать…Жанр: Боевик, Триллер, ДрамаРежиссер: Дольф ЛундгренАктеры: Дольф Лундгрен, Стефани Фон Пфеттен, Саманта Феррис, Дэвид Льюис, Линдсэй Максвелл, Джон Тенч, Бо Свенсон, Кэтлин Магер, Моника Гандертон, Слави СлавовПеревод: Язык субтитров: русскийПродолжительность: 01:24:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469379   (96967) от 17.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 24
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96967.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 24 
-Название:  Desktop Wallpapers Pack 24 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AACC8EFAC9BD51EC37C4F571DF1ADFCDE1A941C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469546   (96965) от 17.03.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 37
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96965.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girl Wallpapers Pack 37
-Название: Sexy Girl Wallpapers Pack 37
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 3931х2745
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:123C74433C210EA4EC96D1E9C95CF22FBD0DA7E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469010   (96958) от 17.03.2012
-
-[Wallpapers] Animals Full HD Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96958.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Animals Full HD Wallpapers Pack 4 
-Название:  Animals Full HD Wallpapers Pack 4 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8443D69EA3460205ACC796405819217753BF161
 ```
 
 https://mybot314.ru/tekegram_catalog/

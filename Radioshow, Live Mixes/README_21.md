@@ -1,3 +1,61 @@
+###  Публикация: 1684321   (127564) от 16.12.2023
+
+VA - Armin van Buuren - A State Of Trance 1151 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127564.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Nils Hoffmann & Kasbo feat. Vancouver Sleep Clinic - Running In A Dream
+02.	Hyperbits - Satisfaction
+03.	Andrew Rayel - Rescue Me (Den Kayo Remix)
+04.	AndyG - Infected(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:58:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26478145C2566786240BAA527CCA533933EBC2CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686320   (126593) от 22.12.2023
+
+VA - Armin Van Buuren - A State Of Trance 1152 (Top 50 Of 2023) (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126593.jpg" />
+</div>
+
+
+###  Подробнее
+
+Tune of the Year 2020 - 2022
+01. Aly & Fila with Plumb - Somebody Loves You
+02. Armin van Buuren & Aly & Fila ft. Kazi Jay - For All Time
+03. Bryan Kearney & Out Of The Dust ft. Plumb - Take This(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A27FCA1B6DA6BFA1C7DD23D7757978E9778A55
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686394   (126579) от 22.12.2023
 
 Rencontre Nocturne - Recap 2023 (2023) [MP3|320 Kbps] <Electro House, Progressive House>
@@ -679,64 +737,6 @@ VA - Ori Uplift - Uplifting Only Episode 661 (2025) [MP3|320 Kbps] <Trance, Upli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:782104B868A73A1885F57CC2A87B759857B7C461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1823139   (121553) от 10.10.2025
-
-VA - Armin van Buuren - A State Of Trance 1246 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Dish – Fire (Peak Mix)
-02. Hausman – This Is Not a Drill
-03. Calvin Harris feat. Clementine Douglas – Blessings (Skytech Remix)
-04. YOUNA (KR) – Serotonin(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78A39DB596B46DF10FEE591271C62BE5C7E6DE1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694664   (120802) от 26.01.2024
-
-VA - Armin van Buuren - A State Of Trance 1157 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Seven Lions & Andrew Bayer ft. Fiora - Places I Belong (OPHELIA)
-02. Laura van Dam & Ginchy - Save Me (ARMIND)
-03. AVIRA - Hot Tub Time Machine (SPECTRUM MUSIC)
-04. LKX - Multiverse Wanderer (FUTURISING MUSIC)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:05:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:369E24C3F178A65B75B47DE3277A0F0F3AF5897F
 ```
 
 https://mybot314.ru/tekegram_catalog/

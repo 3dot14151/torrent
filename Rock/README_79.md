@@ -1,3 +1,32 @@
+###  Публикация: 1580108   (232158) от 30.09.2022
+
+Joe Elliott's Down 'N' Outz - My Regeneration (2010) [OGG Vorbis|484 Kbps] <Rock, Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_232158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golden Opportunity
+02. Storm
+03. Overnight Angels
+04. Career (No Such Thing as Rock 'n' Roll)(   Читать дальше...   )Жанр: Rock, Hard Rock, Classic RockПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C7FBC5DBE2FBD79000F5214AB5F1897D73B092
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1579969   (232129) от 30.09.2022
 
 Def Leppard - Yeah! (2006) [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
@@ -716,35 +745,6 @@ Avi Rosenfeld - Be The Moon (2020) [MP3|320 Kbps] <Classic Rock, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EFAC6F845DD9DAA522D6A40DBD8E14323E837BCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1424379   (227994) от 17.11.2020
-
-Avi Rosenfeld & Caz Mera - It's Late (2020) [MP3|320 Kbps] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raise Your Sails (04:16)
- 02. When The Night (03:58)
- 03. Been Born That Summer Day (04:00)
- 04. And If You Love Me (03:54)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:40:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1AB74CEC600CDDB9F2390E08448F22D3C2B72E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

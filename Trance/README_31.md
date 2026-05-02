@@ -1,3 +1,148 @@
+###  Публикация: 1413309   (409855) от 03.10.2020
+
+VA - VII Vol.II - (Mixed by Simon Patterson & Sean Tyas &  Alex Di Stefano & Orkidea) - (2020) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409855.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ray Reverse - Super Hero (Intro Mix)
+02. Simon Patterson - Thump (UDM Remix)
+03. Simon Patterson ft Lucy Pullin - Blink (Ben Gold Remix)
+04. Simon Patterson & Sam Jones - Wipeout (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 11:23:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEA196422D4644984EE966C9995B85D2AFBA0C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1252455   (409320) от 05.10.2018
+
+VA - Black Hole Recordings: Amsterdam Dance Event (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409320.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. HOLY WATERS - Amsterdam (Original Mix)
+02. Ferry Corsten & Saad Ayub - Synchronicity (Original Mix)
+03. Bobina - Weightlessness (Original Mix)
+04. Johann Stone Feat. Luke Chable - We Are The Brave (Fatum Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD5551F7AB715B04353DEBD263D03B3334EA5F9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574164   (407483) от 03.09.2022
+
+VA - Costa - Vocal Trance Hits (2022) [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Costa & Kate Louise Smith - We Are The Universe (Original Mix) (3:36)
+02. Costa & Tricia McTeague - Call I'll Be There (Original Mix) (3:42)
+03. Costa & Ellie Lawson - Illuminate (Original Mix) (3:51)
+04. Ana Criado & Costa - Love Is An Act Of Courage (Original Mix) (3:21)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9557A71E53517A3BF48929449AC7157F114DFFE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169105   (402471) от 28.09.2017
+
+VA - Recoverworld Radio 012 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dream State - Patagonia (Extended Mix)  8:31
+02.  Manuel Le Saux, Amos & Riot Night - Hand On Heart (Original Mix)  6:45
+03.  Marco Van Deroga - I Know You (Original Mix)  6:17
+04.  Simon McCann - The Unknown (Original Mix)  7:32(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:11:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C58FCF33B8BA3CF9EF249BE28A66950E157971EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169122   (402465) от 28.09.2017
+
+VA - Recoverworld Radio 013 (Mixed by Para X) (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daydreamer - Levitation (JP Bates Remix)  6:44
+02.  Obi - Soulmate (Original Mix)  8:07
+03.  Para X - Dream Zone (Original Mix)  7:12
+04.  Greg Dusten - Higher State (Original Mix)  7:36(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADAB89C2B3C6104DFAB165FAC2DEBC9AD1DAA52A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169814   (399819) от 01.10.2017
 
 VA - 2 Years Suanda True (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -600,151 +745,6 @@ Sync Diversity & Karl Schaap - Game of Trance (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CAC209BD23697E26E36D69F8728C80F232A349EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254077   (377622) от 12.10.2018
-
-VA - This Is 5 Years (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Atragun - Everything Or Nothing (Wintness45 Remix)
-02. Atragun - Mustang Most Wanted (Ric Scott Remix)
-03. Latex Zebra - Ninja Warrior (Eivissa Cruz Remix)
-04. The Garden Gate - You Can See A Sun (John Tilde Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:07:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD6658325C6273AA6FDFEF5E4A3228A912B39F03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254052   (377525) от 12.10.2018
-
-VA - ADE Trance Compilation (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rank 1 - L.E.D. There Be Light (Cosmic Gate Remix) (Extended Mix)
-02. Marco V - Muraco's Godd (Original Mix)
-03. Johan Gielen - Souvenir (Extended Mix)
-04. Jochen Miller & Rebourne - Revenge (Jochen Miller's Festival Mix Extended)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:04:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F2C3601618CB300DA38358D0197D87C5FB7C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253995   (377512) от 12.10.2018
-
-VA - Markus Schulz - We Are the Light (2018) [MP3|320 Kbps] <Trance,Downtempo>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz – The Awakening (Original Mix)
-02. Markus Schulz & Omnia & Seri – Road of No Return (Original Mix)
-03. Markus Schulz & Alina Eremia – You Light up the Night (Original Mix)
-04. Markus Schulz – Heaven (Original Mix)(   Читать дальше...   )Жанр: Trance,DowntempoПродолжительность: 01:57:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB2E0126CC241F2165715123F83820C96433D033
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575309   (377192) от 09.09.2022
-
-VA - Underground Trance Selections Vol.12 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_377192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Rees - Burnin' Up (Original Mix)
-02. Aldous - Only You (John Spider & Ricardo Elgardo Remix)
-03. Marc Van Gale - Roastbeef (Radio Edit)
-04. Ozo Effy - Awakening (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:33:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4614CA467738D70719A21E0F158C83975341B37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 824713   (376874) от 23.10.2015
-
-Sensorica - 6 Albums , 7 Compilations (2007 - 2015) [MP3|320 кб/с]<Trance, Chillout, Ambient, Psy-Trance, Progressive House>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376874.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (1:25)
-02. The Artifact (7:20)
-03. Sensation (8:17)
-04. Turning Back (8:40)(   Читать дальше...   )Жанр: Trance, Chillout, Ambient, Psy-Trance, Progressive HouseПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88C748D269DA37FCCC116300BBF6F193E01E5671
 ```
 
 https://mybot314.ru/tekegram_catalog/

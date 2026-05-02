@@ -1,3 +1,32 @@
+###  Публикация: 979283   (959699) от 26.01.2016
+
+VA - Cafe Italiano, Vol. 1 (2016) [MP3|320 кб/с] <Nu Jazz, Lounge, ChillOut>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_959699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Florito - Brasil Gossa Party - Extended Mix (05:43)
+02. Peter Pearson - Your Gentle Eyes (05:40)
+03. Newton - Homerun (04:50)
+04. Michael Crueger - I'll See You Again (12:23)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, ChillOutПродолжительность: 02:12:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:285EFC7AA29A63A5E1B1CFC42388FBF5F1884803
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978287   (959599) от 26.01.2016
 
 VA - Blues Forever vol.01 - vol.04 (2015) [MP3|320 кб/с] <Blues>
@@ -716,35 +745,6 @@ VA - Jazz, Relax and Baby. Instrumental Music for Calm Down (2017) [MP3|320 Kbps
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14758094051B05E58E7A21AE4103631B4B9D0B0D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370152   (898367) от 26.03.2020
-
-VA - The Blues Mystery (2020) [MP3|320 Kbps] <Blues, Rock Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898367.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eric Clapton - Cocaine
-002. Slim Butler - Coconut Monster
-003. Richard Thompson - Parchman Farm
-004. Keb' Mo' - When The Children Sing(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 07:40:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B932A10DB9F6CC6D0206CC08D417AC05E7C339
 ```
 
 https://mybot314.ru/tekegram_catalog/

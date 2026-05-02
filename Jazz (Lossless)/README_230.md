@@ -1,3 +1,61 @@
+###  Публикация: 1187845   (274574) от 02.12.2017
+
+Various Artists - Verve & Blue Note Today 2017 (2017) [FLAC|Lossless|tracks + .cue] <Jazz,  Mainstream Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charles Pasi - Love Me Or Leave Me
+02. Kandace Springs - The World Is A Ghetto
+03. Trombone Shorty - Tripped Out Slim
+04. Miles Mosley - Abraham(   Читать дальше...   )Жанр: Jazz,  Mainstream Jazz, Vocal JazzПродолжительность: 01:17:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A46226F8779BEE4771A90925DDD8E4E39C6B0204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265559   (274213) от 28.11.2018
+
+Bunny Berigan - 1936 - 1937 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274213.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That Foolish Feeling [2:55]
+02. Where Are You? [3:18]
+03. In A Little Spanish Town [2:48]
+04. The Goona Goo [2:55](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:04:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E486E004F7418CB3D14EEE8A60C4956420EC585
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1083345   (273783) от 16.12.2016
 
 Le Tout-puissant orchestre Poly-rythmo (T.P. Orchestre Poly-Rythmo) - Madjafalao (2016) [FLAC|Lossless|tracks + .cue] <Afrobeat, fusion, psychedelic>
@@ -687,64 +745,6 @@ Frank Sinatra - The Sinatra Christmas Album (1987) Capitol[FLAC|Lossless|tracks 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A02657D720C2CC0FB69A7279C639D61524AAD17D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188784   (272376) от 04.12.2017
-
-Chick Corea & Gary Burton - Hot House (2012) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't We Be Friends 07:26
-02. Eleanor Rigby 07:01
-03. Chega de Saudade 10:46
-04. Time Remembered 06:13(   Читать дальше...   )Жанр: JazzПродолжительность: 01:15:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9D829BA3AF36ECB61249D19376AB86824A2E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266005   (272110) от 30.11.2018
-
-Sir Roland Hanna - Colors From A Giant's Kit (2011) IPO Recordings [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Colors from a Giant's Kit [2:11]
-02. Natalie Rosanne [3:22]
-03. A Story, Often Told but Seldom Heard [8:06]
-04. Robbin's Nest [4:29](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FADBD4E0FAC295FFAAF17A87711891C54696F224
 ```
 
 https://mybot314.ru/tekegram_catalog/

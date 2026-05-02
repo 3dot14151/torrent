@@ -1,29 +1,3 @@
-###  Публикация: 1328560   (363367) от 30.09.2019
-
-id Software, Avalanche Studios | Артбук по игре Rage 2 / The Art of Rage 2 (2019) [CBZ] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363367.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит эскизы и концепт-арты по игре Rage 2Жанр: АртбукФормат: CBZ
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED3B32C46EE07D18E78E5DC97882173B21C385D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416931   (362585) от 18.10.2020
 
 Martha Fay | Артбук по творчеству Jules Feiffer / Out of Line - The Art of Jules Feiffer (2015) [CBZ] [EN]
@@ -672,6 +646,32 @@ Spicy Horse | Артбук по игре Akaneiro / The Art of Akaneiro (2013) [
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F57960E2708CDE071F4AB9BA16408485C4EE90C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334106   (298649) от 27.10.2019
+
+Jean Giraud | Артбук по вселенной Edena / Moebius Library: The Art of Edena (2018) [CBZ] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298649.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит рисунки Jean "Moebius" Giraud по вселенной EdenaЖанр: АртбукФормат: CBZ
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80EB40CED06A332E44596810F58F7D6BBC33BBAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

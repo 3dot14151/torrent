@@ -1,3 +1,206 @@
+###  Публикация: 1371654   (886921) от 02.04.2020
+
+Art of Empathy - End Of I (2020) [FLAC 2.0|44.1/24|tracks|WEB-DL] <Neofolk, Darkwave, Atmospheric>
+
+>>Other Styles
+>>Folk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_886921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Souls Shine Brightest (06:48)
+02. End Of I (06:29)
+03. Here Comes Everybody (06:02)
+04. Their Playground (08:04)(   Читать дальше...   )Жанр: Neofolk, Darkwave, AtmosphericПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F1A6BA29762C2832F51205E673222132F634CB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494722   (885982) от 09.09.2021
+
+Atom Music Audio - Prophecy (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Long Dark Night [02:22]
+02. This Is Darkness [02:12]
+03. War Drum [01:28]
+04. Wellcome to Hell [01:54](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:22:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:394ADD7719AF83BE789A88AA935EC68B590BFD58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494720   (885967) от 09.09.2021
+
+Atom Music Audio - Cosmonautica (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The First and the Last [03:12]
+02. Message to the Stars [02:45]
+03. Slumbering Void [02:17]
+04. Echoes & Omens [03:01](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C1D1CA575E62DE8C32FDF13B21CD0923841D3C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1103631   (885959) от 12.02.2017
+
+Lagoon West - Yoga (2005) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885959.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Source to Sea 7:29
+2. Island Moon 7:34
+3. Kama 8:35
+4. Undertow 2:42(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43B33A898C68C94F781C4447141FB095F7D53082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494476   (885955) от 09.09.2021
+
+Tina Guo - Dies Irae (2021) [MP3|320 Kbps] <New Age, Instrumental, Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonlight Sonata [00:04:30]
+02. Moonheart [00:04:31]
+03. Double Cello Concerto  MVT.1 [00:04:08]
+04. Rivers Flows In Youy [00:03:55](   Читать дальше...   )Жанр: New Age, Instrumental, ClassicalПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14144A716AD853F027F69E763DE2C03C37B85C65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494721   (885936) от 09.09.2021
+
+Atom Music Audio - Crime Life (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crime Life [02:03]
+02. Get It Done [02:28]
+03. Dropping Bombs [02:19]
+04. Riding with the Devil [02:02](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75B87B9222695615BBDEE6030C569BA22D3A7202
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1494719   (885933) от 09.09.2021
+
+Atom Music Audio - Ethereal (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perseverance [02:33]
+02. When You Were Here [02:32]
+03. One Step Forward [02:14]
+04. The Sky Is Not Enough for Us [02:01](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:26:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E31E22C651BC5EA6309299348C5C605CB8F984A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1494723   (885932) от 09.09.2021
 
 Atom Music Audio - Continuum (2020) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -538,211 +741,6 @@ VA, Lorne Balfe - The LEGO Batman Movie / Лего Фильм: Бэтмен (Ori
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FFD882BF64A9B0B081C21C93249A235652CC560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 176490   (879722) от 06.04.2020
-
-Sulton Ali - Legend (2002), Мирзакарим Норбеков [FLAC|Lossless]<NewAge & Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_879722.jpg" />
-</div>
-
-
-###  Подробнее
-
-Октава / Octave (05:21)
-Карнавал / Carnival (03:57)
-Легенда / Legend (06:39)
-Арена / Arena (04:11)(   Читать дальше...   )Производство: РоссияЖанр: NewAge & MeditativeПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15D563EAE72E75702DDCDE25F575FA2285FAD5FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 996523   (878978) от 14.03.2016
-
-Hans Zimmer & Junkie XL - Batman v Superman: Dawn of Justice (Original Motion Picture Soundtrack) (2016) Deluxe Edition [MP3|320 кб/с] <Score, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Lie (03:48)
-02. Their War Here (04:37)
-03. The Red Capes Are Coming (03:33)
-04. Day of the Dead (04:03)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:31:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B8196549792A5932D30BF855D84B46F10788612
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 186871   (878432) от 27.03.2010
-
-V.A. - The Matrix (Full OST Collection) (1999..2004) [MP3|192, 320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878432.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: SoundtrackПродолжительность: 09:20:32
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 20005   (878168) от 07.04.2020
-
-Vangelis - Voices (1995) [FLAC|Lossless|WEB-DL|tracks + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Voices (7:02)
-02. Echoes (8:25)
-03. Come to Me (4:33)
-04. P.S. (2:06)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:54:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DA2D113DF2D65BCF1FB450F3E077F41058F796B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1104942   (878114) от 16.02.2017
-
-Cusco - Essential Cusco: The Journey (2005) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878114.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Da Gama (3:33)
-02. Oracle Of Delphi (4:30)
-03. Waters Of Cesme (4:30)
-04. Africa - Africa (4:06)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:56:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA47FF17862CEF17F818B31EA8540EB1018AD01C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1495701   (877436) от 14.09.2021
-
-Various artists - Mulheres apaixonadas [Internacional] (2003) [FLAC|Lossless|tracks + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The hobeats - I've gotta live.flac
-02. Pedro Migueis - Hold on.flac
-03. Juanita Dailey - Inside  my love.flac
-04. Karynn - My image the mirror.flac(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:01:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C5F47818A4B62017C4038A9E73894B0637A446F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 187163   (876998) от 28.03.2010
-
-Cell - Phonic Peace (2005) [MP3|320 kbps]<Dub, Downtempo, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_876998.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sensitiv Garden
-2. Mister Ayatih
-3. Zaz
-4. Magic Karma
-5. Soon
-6. Lord Of Silk
-7. White Call
-8. Phonic Peace For Tibet
-9. OrangeЖанр: Dub, Downtempo, AmbientПродолжительность: 01:10:33
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

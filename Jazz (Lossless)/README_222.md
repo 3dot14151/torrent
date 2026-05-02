@@ -1,3 +1,61 @@
+###  Публикация: 1333994   (299135) от 27.10.2019
+
+Lenny Breau - Last Sessions (1988) Genes Records [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ebony Queen/Pam's Pad #2 [6:53]
+02. Meanwhile Back in L.A. [3:51]
+03. Paris [8:39]
+04. Ba De Da Da [2:45](   Читать дальше...   )Жанр: Jazz Fusion, Guitar JazzПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE0C580F2F47001D85CDA23FB0B3759ACB11B837
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333992   (299126) от 27.10.2019
+
+Count Basie & His Orchestra - Basie's Bag (of Swing) 1947 - 1959 (2007) 3CD, IMC Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299126.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. One O'Clock Boogie [3:26]
+02. Backstage At Stuff's [2:29]
+03. Don't You Want A Man Like Me? [2:43](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3640F0B58BCFDE9955AEC864F096A9DEEF41CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961577   (299086) от 02.12.2015
 
 Billie Holiday - Lady In Satin: The Centennial Edition (1957-1958) 3CD, 2015, Sony Music[FLAC|tracks+.cue]<Vocal Jazz>
@@ -699,64 +757,6 @@ Oliver Nelson and His Orchestra - Fantabulous (1964) 2008, Verve[FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4714DB1970DDD90DCC3DBC0E4D40D8DCE7975D93
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079022   (296502) от 03.12.2016
-
-Los Amigos Invisibles - A Typical & Autoctonal Venezueland Dance Band (1995) 2004, Gozadera [FLAC|Lossless|tracks + .cue] <Funk, Pop, Latin>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dame tu color
-02. En el cielo o en tu boca
-03. Dime
-04. El Humo que respiro cuando estoy contigo(   Читать дальше...   )Жанр: Funk, Pop, LatinПродолжительность: 01:08:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57F5C911EBC0512AAA94F34640DD445CD7400BB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1079088   (296499) от 03.12.2016
-
-Michael Lee Thomas - Far Away Near (2016) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Too Fast for Gravity [00:04:26]
-02. Separate Tables [00:04:09]
-03. Changing Ghosts [00:04:32]
-04. Jealous Coffee [00:04:43](   Читать дальше...   )Жанр: JazzПродолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EB3B4D5C3B6D7CC925B3C305170E18FE343F08
 ```
 
 https://mybot314.ru/tekegram_catalog/

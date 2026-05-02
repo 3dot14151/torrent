@@ -1,3 +1,87 @@
+###  Публикация: 846015   (303670) от 01.12.2014
+
+Depeche Mode - Alive In Berlin (2014) WEB-DL 1080p
+
+>>След.
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Welcome To My World
+03. Angel
+04. Walking In My Shoes(   Читать дальше...   )Жанр: Документальный, Музыка, КонцертРежиссер: Anton CorbijnАктеры: David Gahan, Martin Gore, Andrew Fletcher и приглашенные музыканты.Перевод: ОтсутствуетЯзык субтитров: English, Francais, Deutsch, Italiano, EspanolПродолжительность: 02:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B85AC5159329A61F384C6E7E1EC2408821A68295
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077946   (302216) от 30.11.2016
+
+Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302216.jpg" />
+</div>
+
+
+###  Подробнее
+
+В июне 2016 года легендарный гитарист Ричи Блэкмор (Ritchie Blackmore) воплотил в жизнь мечты многих фэнов, возродив свою группу RAINBOW для трех выступлений в Европе – двух в Германии и одного в Англии. Немецкие шоу в Лореляе и Битигхайме были запечатлены на видео и легли в основу релиза под названием "Memories In Rock - Live In Germany", который увидел (   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Hard RockПродолжительность: 01:50:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8E5E0FDF772D65D9BF64586D03A5F721383B5D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1078204   (302184) от 30.11.2016
+
+The Rolling Stones: Havana Moon (2016) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302184.jpg" />
+</div>
+
+
+###  Подробнее
+
+В ноябре 2016 года The Rolling Stones на лейбле Eagle Rock выпускают «HAVANA MOON (LIVE)» сразу в нескольких форматах: на Blu-ray, DVD, CD и в цифровом виде. 25 марта 2016 года состоялось уникальное событие - знаменитая британская группа The Rolling Stones приехала на Кубу, чтобы сыграть первый рок-концерт на Острове свободы. Тысячи людей собрались, чтобы послушать (   Читать дальше...   )01. It's About Time...
+02. Jumpin' Jack Flash
+03. It's Only Rock 'N Roll (But I Like It)
+04. Out Of Control(   Читать дальше...   )Производство: США | Eagle Rock EntertainmentЖанр: Rock, Clasic Rock, КонцертРежиссер: Paul DugdaleСубтитры: Английские, немецкие, испанские, французские, итальянские, португальские, нидерландскиеПродолжительность: 01:50:05 + 00:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD9844E8AA4695A815803048B93D6A6B9A24562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1077848   (302159) от 30.11.2016
 
 Ritchie Blackmore’s Rainbow: Memories in Rock – Live in Germany (2016)  BDRip [H.264/720p]
@@ -643,88 +727,6 @@ Muse: Live at Rome Olympic Stadium (2013) Blu-Ray [1080i]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AED3F3536BADE9C4C413701A9C4C399A9137C1BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186811   (284240) от 26.11.2017
-
-Квартирник на НТВ у Маргулиса. Градусы (25.11.2017) WEBRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_284240.jpg" />
-</div>
-
-
-###  Подробнее
-
-В гости к Евгению Маргулису пришла группа "Градусы". Музыканты рассказали о том, кем им приходилось работать, чтобы выжить в Москве, объяснили, почему их коллектив носит такое название, а также исполнили любимые хиты: "Режиссер", "Научиться бы не париться", "Голая" и другие.Производство: Жанр: КонцертПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8121A6D8914E698AFAB7115E3817FDEC8E963EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081246   (283636) от 09.12.2016
-
-Pink Floyd: Live at Pompeii (1972) BDRemux [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283636.jpg" />
-</div>
-
-
-###  Подробнее
-
-Важной вехой в истории «Пинк Флойд» стал этот фильм-концерт без зрителей, снятый в амфитеатре итальянского города Помпеи. Живописный пейзаж Везувия, застывшая лава, классическая архитектура руин подчеркивает вневременную окраску музыки, принадлежащую как прошлому, так и будущему.Производство: Бельгия, Германия (ФРГ), Франция  | Bayerischer Rundfunk (BR), Office de Radiodiffusion Télévision Française (ORTF), RM Productions Fernseh-und Filmgesellschaft mbH,  Television FrançaiseЖанр: Psychedelic RockРежиссер: Adrian MabenПродолжительность: 00:59:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB4FC984BFF4FFD1D29ED6533A473BA7746D277E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1186233   (283470) от 26.11.2017
-
-Jeff Lynne's ELO - Wembley Or Bust (2017) Blu-ray [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_283470.jpg" />
-</div>
-
-
-###  Подробнее
-
-Материал был записан во время концерта Джеффа Линна и ELO на стадионе Уэмбли в Лондоне 24 июня. Видео и аудиозапись концерта выпущена во всех возможных форматах: на CD, DVD, Blu-Ray и виниле и стала доступна покупателям 17 ноября.
-Режиссером фильма-концерта выступил Пол Дагдейл. Как говорится в пресс-релизе, концерт на Уэмбли - «одно из величайших рок-н-ролльных (   Читать дальше...   )01. Standin' in the Rain
-02. Evil Woman
-03. All Over the World
-04. Showdown(   Читать дальше...   )Жанр: Progressive Rock, Art RockПродолжительность: 01:58:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0570EF281D305E63BB51403523573ECCEEDAAEE8
 ```
 
 https://mybot314.ru/tekegram_catalog/

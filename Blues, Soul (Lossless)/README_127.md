@@ -1,3 +1,119 @@
+###  Публикация: 1764072   (102755) от 05.12.2024
+
+Soultide - Waves of the Heart (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soul in the City (4:01)
+02. Moonlight in My Eyes (2:58)
+03. Twilight Groove (2:02)
+04. Midnight Reverie (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:972C4E00295FE7FE7EE25C5395916DE8D7E10626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764063   (102754) от 05.12.2024
+
+Mac Arnold & Plate Full O' Blues - On a Mission (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues All over You (2:45)
+02. Dance the Blues Away (2:31)
+03. I Am the Blues (3:38)
+04. Love Story (3:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:287C33BDAD2538EE93DFBF899EA453294D6D0940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764052   (102752) от 05.12.2024
+
+Anna Black - Jammin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fire It Up (4:02)
+02. Blues Man (6:55)
+03. Drinkin' Daddy (6:17)
+04. Bird (3:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8161CEE4BAA906432056DE4AE7010808A3701B86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764073   (102751) от 05.12.2024
+
+The Brisbane Project - Ode To The Alley (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lude Mood (2:34)
+02. Blow A Fuse (4:28)
+03. S.O.S. (3:39)
+04. Ode To The Alley (5:01)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7934BAD4E612EF48F1B3DFA9E5B3402D7762592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1764075   (102750) от 05.12.2024
 
 The Reliables - The Reliables (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Blues For Comfort - Good Blues Tonight (2024) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7DF007C9581643B37FEB19D59AAD96F9EDAE10D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768154   (101136) от 24.12.2024
-
-Blurred Edge - Volume: 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Too Early to Be Too Late (5:21)
-02. China Town (4:08)
-03. Ain't I Been Good to You? (3:54)
-04. Cold Inside (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7543E25DB61CADA7EEB8850508514D6E43224C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768163   (101135) от 24.12.2024
-
-John G Willis - Misfortune Cookie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sister Sarah Says (3:57)
-02. Hope (4:15)
-03. You Can't Get It Wrong (3:35)
-04. 20 Days (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C37F37DC367BCD704C74C5155921682F06137DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768166   (101134) от 24.12.2024
-
-John McDonald & Mark Maxwell - Feeling Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Go by Feel (4:30)
-02. Ain't No Sunshine (4:38)
-03. Poison Ivy (2:53)
-04. Evil Twin (5:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C003D26B2F1802522C2102424E71A7F6855134A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768142   (101133) от 24.12.2024
-
-2 Shots of Hennessy - The Process is the Result (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirt Rust & Stone (feat. Dylan Hennessy) (3:46)
-02. Depresso (feat. Dylan Hennessy & Travis Furlong) (3:24)
-03. The World is Not as Sweet (3:11)
-04. Allman Milk (feat. Dylan Hennessy & Redmond Kang) (2:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36BCECDC2016BE2749F259904DE857BCFDC802FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

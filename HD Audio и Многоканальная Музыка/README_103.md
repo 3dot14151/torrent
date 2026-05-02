@@ -1,3 +1,177 @@
+###  Публикация: 1704306   (114347) от 04.03.2024
+
+Creedence Clearwater Revival - Бродячий оркестр. Архив популярной музыки 3 (1988) [FLAC 24/96|Lossless|tracks] <Blues-Rock, Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - На углу. - Down On The Corner. (J.C.Fogerty). Запись 1969 г.
+02 - Хлопковые поля. - Cotton Fields. (H.Ledbetter). Запись 1969 г.
+03 - Счастливый наследник. - Fortunate Son. (J.C.Fogerty) Запись 1969 г.(   Читать дальше...   )Жанр: Blues-Rock, Classic RockПродолжительность: 00:38:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A0EDD3DB65BD7823C32CAF16928EDE16D79CBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704412   (114345) от 04.03.2024
+
+Dire Straits - Communique (1979) 1992 [FLAC 24/192|Lossless|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114345.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A.
+01 - Once Upon A Time In The West
+02 - News
+03 - Where Do You Think You're Going?(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C0184865B738942EBFE389D32E8EFE0C87AB21C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704406   (114335) от 04.03.2024
+
+Diana Ross (Дайана Росс) - Поет Дайана Росс (1979) [FLAC 24/192|Lossless|tracks] <Pop, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1.
+01 - Будь готов встретить любовь. Gettin' Ready For Love. (T.Show-F.Golde)
+02 - Ты получил это. You Got It. (J.Ragovoy-L.Laurie)
+03 - Бэби, это я. Baby It's Me. (D.Dann-C.Smith)(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 00:35:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4EBB4911A66D40EF8F0AEB5334F6439C66E785
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704139   (114329) от 04.03.2024
+
+Dixie Jazz Proyecto Divertido, Jazz Instrumental Music Academy - Dixie Swingtime: Timeless Instrumental Collection of Dixieland Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birth Of The Dixieland Music (3:34)
+02. Happy Serenity (3:12)
+03. Break with Jazz (3:29)
+04. Timeless Vintage Coffee (3:35)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80FB11EFCA4798DCB97043CD4DBF2572C8D921C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704154   (114322) от 04.03.2024
+
+Smokin Dame - Revelations From A Gun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dope 'n Roll (4:21)
+02. Day Of The Living Dead (4:07)
+03. Electric Fire (2:48)
+04. Brain Dead (5:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE39BFEC5906347A05429D79ED854A81E21AA71D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704168   (114320) от 04.03.2024
+
+Caravan Palace - Gangbusters Melody Club (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114320.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. MAD (2:47)
+2. Mirrors (3:41)
+3. 81 Specials (3:56)
+4. Raccoons (3:27)(   Читать дальше...   )Жанр: swingПродолжительность: 00:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF885EBB7B33FC835D384B3D321703A979D5E5AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1704212   (114316) от 04.03.2024
 
 Black Sabbath - Sabbath Bloody Sabbath (1973) 1990 [FLAC 24/192|Lossless|tracks] <Heavy Metal>
@@ -571,178 +745,6 @@ AC/DC - For Those About To Rock (We Salute You) (1981) [FLAC|24/192|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D4BB87989B200E364DA2B4AC3BAD71652DCE1772
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704602   (114155) от 05.03.2024
-
-VA - Музыкальный телетайп 4 (1988) [FLAC 24/192|Lossless|tracks] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Людвиг Ван Бетховен - Соната №14. Часть 1 - Adagio sostenuto (Генрих Нейгауз, ф-но)Жанр: ClassicalПродолжительность: 00:49:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15DC3CF8925ED6984013B5E8180F046325C8CCA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704593   (114153) от 05.03.2024
-
-Гос. симф. оркестр СССР, Л. Гинзбург - J.S.Bach - Die Brandenburgische Konzerte BWV 1046 (И. С. Бах - Бранденбургский концерт №1) (1955) [FLAC 24/96|Lossless|tracks] <Classical, Concerto>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114153.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01.  I. Адажио
-02.  II. Адажио
-Сторона 2:(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 00:25:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2898F71AA5B058AB7CC23CD2F10CD370AE39EC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704674   (114152) от 05.03.2024
-
-Kid Colling Cartel - Living On The Wild Side (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living On The Wild Side (3:13)
-02. Cold Blooded (3:39)
-03. Step Out Of Line (3:08)
-04. Long Way To Go (4:03)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:031B54656433AD95FD9C3746F4D2A50A6BA59A7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704613   (114149) от 05.03.2024
-
-Duran Duran - Liberty (1990) 1992 [FLAC 24/192|Lossless|tracks] <Electronic, New Wave, Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114149.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1.
-01.Violence Of Summer (Love's Taking Over)
-02.Liberty
-03.Hot Head(   Читать дальше...   )Жанр: Electronic, New Wave, SynthpopПродолжительность: 00:40:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B0338FA0BE02B97BBC4303B65333763CE2B661
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704526   (114145) от 05.03.2024
-
-AC/DC - Highway To Hell (1979)[FLAC|24/192|image + .cue|Vinyl-Rip]  <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. "Highway to Hell"
-02. "Girls Got Rhythm"
-03. "Walk All Over You"
-04. "Touch Too Much"(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936989504FE8B4A6356EFFE26742EEAFB578B022
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704738   (114144) от 05.03.2024
-
-Nadir - Standing at the Cosmic Horizon (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In The Beginning
-02. Enigma
-03. Dead by First Light
-04. Lost Dogmatic Space New Order(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:42:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7BE8D7FB3BC2729AF833921E978E6F448368FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

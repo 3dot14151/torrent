@@ -1,3 +1,61 @@
+###  Публикация: 1422770   (306412) от 10.11.2020
+
+The Art Farmer Benny Golson Jazztet - I Remember Clifford (1960) 1999, Jazz Hour [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serenata [3:34]
+02. It Ain't Necessarily So [4:30]
+03. Avalon [3:32]
+04. I Remember Clifford [3:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3B3C4BB56CDE79675EA7F7D049DA80AC919991A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422772   (306411) от 10.11.2020
+
+Sonny Rollins - Brass / Trio (1958) 1983, Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Cares? [4:00]
+02. Love Is a Simple Thing [3:03]
+03. Grand Street [5:56]
+04. Far Out East [4:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96954C0C128B9BB1BCFEF776951D7A5D11F1FE06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422774   (306300) от 10.11.2020
 
 Clifford Brown - Jazz Immortal (1953, 1954) 2019, MatchBall Records [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
@@ -687,70 +745,6 @@ Mezzoforte - Playing For Time (1989) [FLAC|Lossless|image + .cue] <Fusion, Jazz-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95664BC06954ADFA9C0CEE6E9230D54A68EC0039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078273   (302995) от 30.11.2016
-
-Mezzoforte - No Limits (1986) [FLAC|Lossless|image + .cue] <Fusion, Jazz-Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_302995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Icebreaker (4:10)
-02. No Limit (5:23)
-03. Joyride (4:35)
-04. Evolution (7:40)(   Читать дальше...   )Жанр: Fusion, Jazz-FunkПродолжительность: 00:43:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B76A8701C01AD2CA14560AABE0BA38A545E0115
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 585557   (302760) от 06.12.2012
-
-The Puppini Sisters - Дискография (5 альбомов) (2007 - 2011) [FLAC|Lossless]<Jazz Vocal, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_302760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hollywood (3:05)
-02. Diamonds Are A Girl's Best Friend (3:03)
-03. I Got Rhythm (4:01)
-04. Moi Je Joue (3:23)
-05. True Love (3:23)
-06. Good Morning (2:22)
-07. Get Happy (3:40)
-08. Moon River (3:55)
-09. I Feel Pretty (3:30)
-10. September Song (3:04)(   Читать дальше...   )Жанр: Jazz Vocal, SwingПродолжительность: 03:18:41
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

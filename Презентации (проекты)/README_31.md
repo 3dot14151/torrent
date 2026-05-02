@@ -1,3 +1,55 @@
+###  Публикация: 1039534   (594348) от 02.08.2016
+
+Проекты - VideoHive - Street Life - 3291514 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594348.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот проект отлично подходит для музыки, интро кино, презентации и многое другое.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8CA4134D411F89E7EB917C2A6510339D296ABD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039597   (594347) от 02.08.2016
+
+Проекты - VideoHive - Modern Times - 9360030 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594347.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для видео-презентаций, показа моды, рекламы и пр.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C07C71702B14686FDF4C9F34CF62C0D057D3C3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039709   (594272) от 02.08.2016
 
 Проекты - VideoHive - App/Service/Product Promotion - 2080809 [AEP]
@@ -641,58 +693,6 @@ Placeholder For Achievements Corporation - высоко-технологична
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCA1800D17EA8486D711B11127054658E95B1594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918865   (585751) от 16.07.2015
-
-Проекты - Motion Array - Glitch Promo [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585751.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905A973E435EC28257614EF7966BD07ADF91A091
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918861   (585745) от 16.07.2015
-
-Проекты - Motion Array - Directors Cut [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585745.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания трейлера к фильму. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:084720D7E1890EC02BC616647E0FCB17EAE0B14F
 ```
 
 https://mybot314.ru/tekegram_catalog/

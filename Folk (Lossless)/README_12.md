@@ -1,3 +1,32 @@
+###  Публикация: 1672723   (167975) от 29.10.2023
+
+Люди Леса - Другие шепоты, другие тени (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sadness Horn 5:17
+02. Talisman 6:14
+03. White Stone 4:38
+04. Voron 4:27(   Читать дальше...   )Жанр: Dark FolkПродолжительность: 00:55:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AB0363EDC9B93165569D2BD0502B84FD0D03345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 84233   (166597) от 30.10.2023
 
 Хиты украинской эстрады 60-х годов / Хіти української естради 60-х років (2005) [APE|~600 Kbps] <Folk, Народные песни>
@@ -716,35 +745,6 @@ Kevin Costner & Modern West - Turn It On (2010) [FLAC|Lossless|WEB-DL|tracks] <C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:967DBF74FFD31A69AE6F7C22A17108FCF4351086
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697514   (117799) от 13.02.2024
-
-Teufelstanz - XIII (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dodet
-02. Andro
-03. Barentanz
-04. Quant je suis mis au Retour & Douce Dame Jolie(   Читать дальше...   )Жанр: Medieval Folk, BagpipeПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C01F3D890BB0602C07B85477A970F7B0B78DC67E
 ```
 
 https://mybot314.ru/tekegram_catalog/

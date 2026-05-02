@@ -1,3 +1,61 @@
+###  Публикация: 1236898   (553318) от 22.07.2018
+
+VA - Empire Records - Funky House (2018) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_553318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Caruso - Life Is Better With Sunshine (Radio Version)
+02. Me and My Toothbrush - Hands Off
+03. Lee Cabrera - Shake It (Dj Rabinu & MD Dj Remix)
+04. Quantek - Feeling (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 03:01:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:789AF29C7F43828F3A2E81825E443C3A998578F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046361   (552948) от 26.08.2016
+
+VA - Future Trance Vol.77 (2016) [MP3|320 Kbps] <Trance, House, Future Trance, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren Vs. Human Resource  -  Armin van Buuren Vs. Human Resource / Dominator  2:30
+02. DBSTF  -  Afreaka  3:00
+03. Headhunterz & KSHMR  -  Dharma  3:02
+04. Hardwell, Lil Jon & W&W  -  Live The Night  2:13(   Читать дальше...   )Жанр: Trance, House, Future Trance, ProgressiveПродолжительность: 03:58:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F80B1DC7F4EAFB836D64326A7BCF94CA836AEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1237309   (552415) от 23.07.2018
 
 VA - Night Party Style Club (2018) [MP3|320 Kbps] <Uplifting, Vocal Trance>
@@ -687,64 +745,6 @@ VA - Finding Around Happiness  008 (2016) [MP3|320 Kbps] <Trance, Stadium Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0624D8DA7974CBA585B12828A2E67501E6A3C88D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047914   (548501) от 31.08.2016
-
-VA - All Shades Of Sky - Uplifting Mix (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Melodic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548501.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Joop  -  The Future (Mateusz Remix)  5:43
-002. Lence & Pluton  -  No More Fire (Original Mix)  5:38
-003. Airscape  -  Beautiful Tomorrow (Original Mix)  5:30
-004. Marcel Woods  -  Lemon Tree (Johann Stone Remix Edit)  3:37(   Читать дальше...   )Жанр: Trance, Uplifting Trance, MelodicПродолжительность: 12:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24C20FD0DC763A26932EBE0289F2BB8AE369D5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047732   (548499) от 31.08.2016
-
-VA - From Ibiza To Your Heart (2016) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_548499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mauro Picotto - Science (09:13)
-02. D. Diggler - Apricot (10:19)
-03. Margot - Er Suonone (05:53)
-04. Mauro Picotto - The Player (06:10)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 10:51:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12A21CC3C9A1ED01CCDDFD645A3E29BD2E98A21F
 ```
 
 https://mybot314.ru/tekegram_catalog/

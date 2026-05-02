@@ -1,3 +1,61 @@
+###  Публикация: 1694166   (120945) от 25.01.2024
+
+Nomy - Dark Skies (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Hard Rock, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Dark Skies
+02 – The Fucked Generation
+03 – House of the rising sun
+04 – Dead man walking(   Читать дальше...   )Жанр: Alternative Rock, Hard Rock, MetalcoreПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2A0FA475611B07D4330EB661E2C78D8769340D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1694697   (120636) от 27.01.2024
+
+Bohse Onkelz - 40 Jahre Onkelz (Live im Waldstadion 2022) (2024) [FLAC|Lossless|WEB-DL|tracks] <Punk, Oi, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 2022 (Live im Waldstadion 2022) [00:01:46]
+02. 10 Jahre (Live im Waldstadion 2022) [00:02:57]
+03. So sind wir (Live im Waldstadion 2022) [00:05:15]
+04. Der nette Mann (Live im Waldstadion 2022) [00:03:54](   Читать дальше...   )Жанр: Punk, Oi, Hard RockПродолжительность: 02:18:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2195E0732AB918973E431FE9837A29A5808507F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1695267   (120453) от 28.01.2024
 
 Colin Newman & Malka Spigel - Bastard (1997) Deluxe Edition, 2024, swim [FLAC|Lossless|WEB-DL|tracks] <Post punk, Indie, New wave>
@@ -689,64 +747,6 @@ Half Past Two - Talk Is Killing Me (2024) [FLAC|Lossless|WEB-DL|tracks] <Ska-Pun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25674DC8522018771763FADCD8A8C00DD680C8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720610   (110217) от 04.05.2024
-
-Jolly Jackers - Welcome to the Grind (2024) [FLAC|Lossless|WEB-DL|tracks] <Celtic Punk, Folk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome to the Grind [00:02:54]
-02. Feed the cat [00:02:32]
-03. I'm not drunk [00:03:14]
-04. Dance in the madness [00:03:47](   Читать дальше...   )Жанр: Celtic Punk, FolkПродолжительность: 00:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:685E7E2BB31E63F041BCAE17BDFF90FEBFF6F934
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720808   (110159) от 05.05.2024
-
-Contention - Artillery From Heaven (2024) [FLAC|Lossless|WEB-DL|tracks] <Metallic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Contention [00:01:12]
-02. I.C.B.M. [00:02:03]
-03. Ousted From Eden [00:02:55]
-04. Inflict My Will [00:02:24](   Читать дальше...   )Жанр: Metallic HardcoreПродолжительность: 00:21:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFA1884BFF4BB8A09160279EACA8B22B50BE0DCA
 ```
 
 https://mybot314.ru/tekegram_catalog/

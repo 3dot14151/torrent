@@ -1,3 +1,73 @@
+###  Публикация: 602050   (997498) от 13.01.2013
+
+VA - Dubstep Collection (2013) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. J.O.B & MadV & 12th Planet ft. Anjulie - Warrior
+02. Kaskade ft. Mindy Gledhill - Eyes (Alvin Risk Remix)
+03. Katy Perry - Wide Awake (Xilent Remix)
+04. Maria Maria - Ты Обо Мне Не Вспоминай (Dj Bengalsky Popstep Remix)
+05. Nero - Must Be The Feeling (Kill The Noise Remix)
+06. Sub Focus ft. Kenzie May - Falling Down (xKore Remix)
+07. Алина Артц - Со Мной По-другому Нельзя (Stilet Remix)
+08. Sub Focus ft. Kenzie May - Falling Down (Original Mix)
+09. Nero - Promises (Skrillex & Nero Remix)
+10. Т.А.Т.У. - Нас Не Догонят (LoadedFist Remix)(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B8D41D00B8E20A2221BC43B7A8810196199512B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 603648   (995322) от 21.01.2013
+
+VA - Vocal Passion Vol.51 (2012) [MP3|320 kbps] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Serge Devant feat. Emma Hewitt - Take Me With You (05:51)
+02. Omnia & IRA - The Fusion (Original Mix) (06:08)
+03. Ronski Speed, Stoneface & Terminal - I Didn`t Know I Was Looking For Love (Club Mix) (05:47)
+04. Susana & Rex Mundi - All Time Low (Original Mix) (08:03)
+05. The Attic feat. Oh Laura - Release Me (Kevin Sunray Remix) (07:20)
+06. Tritonal feat. Jeza - Can't Keep It In (Tritonal Club Mix) (06:40)
+07. Will Holland feat. Jeza - Every Heartbeat (Beat Service Intro Mix) (06:08)
+08. Protoculture - Ode To The Ocean (Original Mix) (07:54)
+09. W&W feat. Bree - Nowhere To Go (Shogun Remix) (06:36)
+10. Roger Shah feat. Inger Hansen - Dance With Me (Extended Mix) (06:48)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:50:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DCB5DDE4D478C67BA848996977B70A7B30BE9A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 603361   (995307) от 21.01.2013
 
 VA - Trance. Vocal Fascination 43 (08.01.2013) [MP3|320 кб/с]<Vocal Trance>
@@ -753,72 +823,6 @@ VA - Exotic Wafture #33 (2013) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEBE06E648829F9D336F265322F1AD6E60414BEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 608314   (990590) от 29.01.2013
-
-VA - Club Dubstep №26 - Club Dubstep №26 (2012) [MP3|320 кб/с]<Dubstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bassnectar feat. Tina Malia -Nothing Has Been Broken (05:48)
-02. Butch Clancy -Lonely (05:12)
-03. Cross Them Out -Disorientated (04:10)
-04. Dabin -Wildfire (Original Mix) (04:52)
-05. DOCTOR P feat JENNA G -Neon (Mizuki remix) (04:41)
-06. Filthzilla -Atlantis (Original mix) (04:33)Жанр: DubstepПродолжительность: 02:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF371F64A32F15AF1A74A635DC629A5C2F643445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 610447   (990574) от 29.01.2013
-
-VA - Drum and Bass Pro V.3 from AGR (2012) [MP3|320 кб/с]<Drum&Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_990574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shapeshifter - Twin Galaxies (The Upbeats Remix)
-02. Awakening State - Out There (Subsonik VIP Mix)
-03. Edward Oberon, Blade, Sopheye - Butterflies (Original Mix)
-04. Sunny Crimea - Ain't No Game (Original Mix)
-05. Hammock - I Can Almost See You (Need a Name Tribute)
-06. Switch Technique - Rude Soul
-07. mSdoS - Dimensions (LM1 Remix)
-08. PostML - It's Time
-09. Skyweep - Sweet Sunday (Original Mix)
-10. Paul SG - Do It But Do It Right (Original Mix)(   Читать дальше...   )Жанр: Drum&BassПродолжительность: 04:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9E9F2C0F07684300FCDB025EF66E9C7194CF5E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

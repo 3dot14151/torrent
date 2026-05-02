@@ -1,3 +1,125 @@
+###  Публикация: 1252777   (408061) от 06.10.2018
+
+The Travelling Orchestra - 22 (2018) EP [MP3|320 Kbps] <Blues Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'll Be All Right
+02. Twenty Two
+03. Devil in My Head
+04. How Old Can This Tree Be?Жанр: Blues Rock, BluesПродолжительность: 00:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E8F7C9EE7507545E6E87F6D44F1DAD85507D3ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1574070   (407538) от 03.09.2022
+
+Нуки - 10 лет (2022) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Измерения
+02. 451
+03. Реальность
+04. Знаки(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42C0D17F901AB807FA0321113A7FDC3D98518F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273711   (406610) от 06.10.2020
+
+Игорь Тальков - Лучшее. Золотая коллекция (2009) [MP3|320 kbps]<Rock>
+
+>>След.
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406610.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1
+
+1. Моя любовь
+2. У твоего окна(   Читать дальше...   )Жанр: RockПродолжительность: 02:26:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53091473082EE0E5DC73EF0CC4E56C95D2625A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561018   (406150) от 17.10.2012
+
+Небо#9 - Океан (2012) [MP3|320 кб/с]<Chamber rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406150.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Интро (0:48)
+2. Весна (2:31)
+3. Сердце (2:56)
+4. Углеродные формы жизни (4:39)
+5. Люди осени (4:46)
+6. На ладони (2:57)
+7. Междугородний (3:35)
+8. Взлёт (4:36)
+9. Недоживший до рассвета (2:01)
+10. Океан (2:24)(   Читать дальше...   )Жанр: Chamber rockПродолжительность: 00:33:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E67601407FCDDBC2C35759DC535381DAAF33CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 561603   (405727) от 18.10.2012
 
 Николай Носков - 12 Альбомов (1982-2008) [MP3|320 kbps]<Pop, Pop-Rock>
@@ -651,119 +773,6 @@ Otto Dix - Левиафан (2017) [MP3|320 Kbps] <Darkwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33CF255F9A4A8A4DEABE3DC8688B0AAF1911AD16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326418   (384980) от 20.09.2019
-
-Ундервуд - Дети портвейна (2019) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384980.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ретро
-2. Последний вагон уходящего поезда
-3. Эпоха
-4. Как проходит одиночество(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D001919B5EECD2735DB1F19E3CA19BE09521A2C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1326421   (384975) от 20.09.2019
-
-Lumen - Тёмные ночи. Бэтмен. Металл. (2019) [MP3|320 Kbps] <Alternative, Rock, OST>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384975.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Страх
-2. Волкодав
-3. Сталь
-4. 0010000000010010 (Нули и единицы)(   Читать дальше...   )Жанр: Alternative, Rock, OSTПродолжительность: 00:41:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D796114B5AB49367882BD898CEEAA911F9C938
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414659   (383171) от 09.10.2020
-
-Сплин - За семью печатями (2020) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383171.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. За семью печатямиЖанр: RockПродолжительность: 00:03:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564FFCBA99F79E48C71CCB60C248CF6A1A7420F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1068215   (382815) от 31.10.2016
-
-Ракоший Нелч - Книга боли (2016) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Блокада
-02. Юные ангелы
-03. Брест
-04. Где вы(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BF5653F6FC0312F1F5A6D06AC83EF2E40018414
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1800992   (15242) от 08.06.2025
+
+QBoard (2025) [En] (0.9.9.3) License
+
+>>Win Игры
+>>Demo/Beta версии Игр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_15242.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа для игры в 15 вариантов настольных игр (таких как Шахматы или Сёги). Можно играть в Шахматы, Сянци, Макрук, Шатрандж, Сёги, Mini Shogi, Judkins Shogi, Sho Shogi, Wa Shogi (со сбросами и без), Chu Shogi, Dai Shogi, Tenjiku Shogi, Dai Dai Shogi, Maka Dai Dai Shogi и Ko Shogi.Тип издания: LicenseРазработчик: Fire Lizard SoftwareЖанр: Настольные игрыЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC72CA4DC92CF493745E61D37C7CD47E0231929D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1464908   (15210) от 09.06.2025
 
 Hellish Quart (2021) [Multi] (0.4391) License GOG [Early Access]
@@ -641,32 +667,6 @@ My Garage – игровой проект, разработанный в жан�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F604A1A60C28CBBBC7B4666D559871CCF45D4A8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802521   (9489) от 03.08.2025
-
-Cosmoteer: Starship Architect & Commander / Cosmoteer: Конструктор и командир звездолёта (2022) [Ru/Multi] (0.30.0) Repack Pioneer [Early Access]
-
->>Win Игры
->>Demo/Beta версии Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cosmoteer Starship Architect & Commander – новая песочница на тему космоса, где тебе предстоит приложить массу усилий, чтобы справится с достаточно непростой задачей. Отправляйся на покорение космического пространства, каждый уголок которого необходимо тщательно изучить, а также обыскать на наличие полезных ресурсов. Для начала, тебе потребуется собственный, (   Читать дальше...   )Тип издания: RepackРазработчик: Walternate RealitiesЖанр: Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16771DF67AABC98F270CC811D975C79BB4E61707
 ```
 
 https://mybot314.ru/tekegram_catalog/

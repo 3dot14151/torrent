@@ -1,3 +1,30 @@
+###  Публикация: 950470   (369725) от 26.10.2015
+
+Проекты - Pond5 - Travel Photo Slideshow - 50990971 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_369725.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания Вашего фото-видео слайдшоу.
+Используется в Adobe After EffectsФормат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A69ACFFE9EC361AB6C545B3A8ACD86180DB563AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950418   (369721) от 26.10.2015
 
 Проекты - Love's in autumn [AEP]
@@ -658,33 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E5DC06C6C052E1780DCB922B362FAE8AC18E6D58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 951941   (357690) от 31.10.2015
-
-Проекты - VideoHive - Autumn Gallery [AEP]
-
->>След.
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект на осеннюю тематику.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:070A3869CE1288C17B82BDCDFC68DA792AD8A170
 ```
 
 https://mybot314.ru/tekegram_catalog/

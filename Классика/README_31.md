@@ -1,3 +1,32 @@
+###  Публикация: 937665   (481722) от 18.09.2015
+
+Andrew Lloyd Webber - The Phantom of the Opera (1987) [FLAC|(image+.cue)]<Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OperaПродолжительность: 00:46:24
+
+01 - Entr'acte - Act Two - Six Months Later
+02 - Masquerade ; Why So Silent(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E3A807C2DA995FB6AD0C23BC0830ABC2B2E1279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 544133   (480118) от 12.09.2012
 
 VA - Иисус Христос Суперзвезда (русская версия)+Бонус(128-320кб/с) (1992) [MP3|320 кб/с]<Rock-opera>
@@ -728,35 +757,6 @@ Trio for Piano and Strings no 2 in D minor, Op. 9 "Trio élégiaque"
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:663E64670DCE04D06E6EB887ECFB28DF5D362B25
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941736   (457646) от 29.09.2015
-
-Bach, Scarlatti, Mozart - Piano works (Vladimir Horowitz) (2003) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Baroque Period, Sonata, Classical Period, Toccata>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457646.jpg" />
-</div>
-
-
-###  Подробнее
-
-Toccatas, transcriptions (2) for piano in D minor & C major (BWV 564/565; BBGA 7/3), KiV B29
-01. Preludio (06:37)
-02. Adagio (05:19)
-03. Fuga (05:09)Жанр: Classical, Chamber Music, Recitals, Baroque Period, Sonata, Classical Period, ToccataПродолжительность: 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01245AF71B44419353AC1C64E620388C2A55975A
 ```
 
 https://mybot314.ru/tekegram_catalog/

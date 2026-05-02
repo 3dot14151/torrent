@@ -1,3 +1,61 @@
+###  Публикация: 360913   (371365) от 21.10.2017
+
+The Horrors - 5 альбомов, 1 EP (2006 - 2017) [FLAC|Lossless|tracks + .cue]<Indie, Psychedelic, Post-Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371365.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Horrors (по русскому аналог «ужас», «кошмар») британская банда. Пугать надо так, чтобы было стильно, азартно и весело, решили они. И еще громко. Решили - и начали действовать. «Психотические звуки для уродов и извращенцев» - такой подзаголовок-подсказку, с легкой руки фанов, дали они своему дебютному альбому, который носит туманное и непритязательное название (   Читать дальше...   )Список альбомов:
+2007 - Strange House
+2009 - Primary Colours
+2011 - SkyingЖанр: Indie, Psychedelic, Post-PunkПродолжительность: 04:24:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4036F9A99A080EB19991C6D5ED2B723A8CF55B19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1069967   (371067) от 05.11.2016
+
+Billy Idol - Whiplash Smile (1986) [FLAC|Lossless|image + .cue] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worlds Forgotten Boy [05:44]
+02. To Be A Lover [03:52]
+03. Soul Standing By [04:37]
+04. Sweet Sixteen [04:17](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:45:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08774C7B6D87AC5A408768CF5F314AEB572E7275
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1254971   (370374) от 15.10.2018
 
 Evanescence - Synthesis Live (2018) Japanese Edition [FLAC|lossless|image + .cue] <Alternative Metal, Gothic Metal>
@@ -687,64 +745,6 @@ Nothing - Dance on the Blacktop (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:605473248798B047681C1FBC8FAE75F4ADD8704C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255859   (359186) от 20.10.2018
-
-House Vs. Hurricane - Forfeiture (2008) EP [FLAC|Lossless|tracks + .cue] <Rock, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (1:02)
- 02. Forfeiture (3:18)
- 03. Comforting Our Thoughts In A Continuous Blue (2:24)
- 04. Seeing Things Through Water (4:36)(   Читать дальше...   )Жанр: Rock, HardcoreПродолжительность: 00:19:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF19BA60F0609E0A969F862B6CFAFD8DDA522BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1256151   (359166) от 20.10.2018
-
-VA - Rock Sound: 100% Volume No. 147 (2011) [FLAC|Lossless|tracks + .cue] <Hardcore, Punk, Post-Hardcore, Emo>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_359166.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blackout - The Devil Inside (03:14)
-02. Max Raptor - Obey the Whips (03:40)
-03. Thursday - No Answers (04:49)
-04. The Saddest Landscape - Imperfect but Ours (04:40)(   Читать дальше...   )Жанр: Hardcore, Punk, Post-Hardcore, EmoПродолжительность: 01:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:785126B181BC503F96DE741DF781E0A0F59C4E36
 ```
 
 https://mybot314.ru/tekegram_catalog/

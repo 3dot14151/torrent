@@ -1,3 +1,119 @@
+###  Публикация: 1830484   (202472) от 26.10.2025
+
+Tempra Rose - Blues Of The Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tempra Rose - Back to St. Louis (4:29)
+02.  Tempra Rose - Thighs and Prayers (4:35)
+03.  Tempra Rose - Blues of The Soul (5:03)
+04.  Tempra Rose - The Old Time Religion (3:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409A08FD22F34C5C076A1F4F54C7B7182A6A4B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1351241   (202203) от 26.02.2023
+
+Lonnie Mack - 14 Albums (1963 - 2002) 15 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Memphis Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_202203.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lonnie McIntosh (18 июля 1941 года - 21 апреля 2016 года), известный под псевдонимом Lonnie Mack, был пионером американского блюзового рока и соло на рок-гитаре. Один из наиболее интересных гитаристов, хотя и поныне не оцененный по достоинству, добился единственного крупного успеха в чартах с инструментальной версией хита Chuck Berry "Memphis". Он интересен (   Читать дальше...   )Список альбомов:
+1964 - The Wham of that Memphis Man!
+1969 - Glad I'm in the Band
+1969 - Whatever's Right(   Читать дальше...   )Жанр: Modern Electric, Memphis BluesПродолжительность: 11:08:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A76AD410DF443EAC40C780D6862D14E2F62E204
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616996   (201746) от 05.03.2023
+
+The Cadillac Kings - Crash And Burn (2023) [FLAC|Lossless|WEB-DL|tracks] <Rockin' Blues, Swing>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doubtin' Thomas [00:04:24]
+02. Betty Lou Broke Outa Jail [00:03:44]
+03. Bona Fide [00:04:06]
+04. Cadillac Boogie [00:03:17](   Читать дальше...   )Жанр: Rockin' Blues, SwingПродолжительность: 00:54:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B08CECBBB24260BAE899D7719A1C8C0F9BCAB950
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619161   (201344) от 14.03.2023
+
+John Haydock - Brush With The Blues, Town Full Of Blues, Brand New Blues (2022) 3xCD [FLAC|Lossless|image + .cue] <Blues Rock, Pop Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_201344.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джона Хейдок — музыкант из Сиднея, Австралия, выросший в Англии и иммигрировавший в Австралию со всей семьей в возрасте 17 лет. Для фанатов Dire Straits.CD1 - Brush With The Blues:
+01. Pale Rider 5:57
+02. Lipstick Lies 4:18
+03. Slow Moving Westbound Train 5:27(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 02:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5750915B96639240376BDD873254741C0E6F4D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1620379   (201095) от 20.03.2023
 
 Van Morrison - Moving On Skiffle (2023) [FLAC 2.0|96/24|WEB-DL|tracks] <Rock, Blues Rock>
@@ -627,122 +743,6 @@ Eric Clapton - Clapton Chronicles: The Best of Eric Clapton (1999) [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4468DB6EEE2F96215AD09A4F56A96BB9433FFB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587453   (192578) от 31.10.2022
-
-Gary Moore - The Best of the Blues (2002) 2CD [FLAC|Lossless|image + .cue] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192578.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walking by Myself
-02. Oh Pretty Woman
-03. Still Got the Blues (full version)
-04. Separate Ways(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 02:26:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EE702EE24C68035E0820A280CB0F98A04D2C6A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587495   (192568) от 31.10.2022
-
-Joanne Shaw Taylor - Nobody's Fool (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nobody's Fool (3:37)
-02. Bad Blood (3:49)
-03. Won't Be Fooled Again (feat. Joe Bonamassa) (4:54)
-04. Just No Getting Over You (Dream Cruise) (4:41)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:457F4C439091491C819F4BC91E1484D1200ACA6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587986   (192159) от 02.11.2022
-
-Grant Dermody - Behind The Sun (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192159.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trouble No More (3:10)
-02. Don't Boss Me (3:09)
-03. Forgive Me (6:06)
-04. Lost John (1:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42A4445F97411A59B8A881CC016288B61A5AB20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1587984   (192150) от 02.11.2022
-
-Carlos Segarra - Segarra Inn Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_192150.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Talking About You (2:31)
-02. Dimpless (2:36)
-03. Eso Es Blues (Y No Lo Que Cantas Tú) (3:40)
-04. Six Days on the Road (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A624E7099CC23873822D2AA304CA009A5E82EF6
 ```
 
 https://mybot314.ru/tekegram_catalog/

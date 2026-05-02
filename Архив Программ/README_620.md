@@ -1,3 +1,56 @@
+###  Публикация: 1525967   (738691) от 23.01.2022
+
+Topaz DeNoise AI 3.5.0 RePack (& Portable) by TryRooM [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Снимайте в любом месте при любом освещении без оговорок. Устраните шум и восстановите четкие детали на ваших изображениях с помощью первого инструмента для подавления шума - DeNoise AI. Вы можете быть удивлены полученными результатами.Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDEC777CBA6F5CBB3A06C33E3C16C7335F2C25BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1526242   (738619) от 23.01.2022
+
+Microsoft Visual C++ 2005-2008-2010-2012-2013-2019-2022 Redistributable Package Hybrid x86/x64 (23.01.2022) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738619.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет Microsoft Visual C++ Redistributable Package устанавливает компоненты среды выполнения библиотек Visual C++, необходимых для запуска приложений, разработанных с помощью Visual C++, на компьютере без установленной среды Visual C++.
+Способ интеграции - SVCPACK (T13) и также можно устанавливать на "живую" систему.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEBB38F4EF80CC0601D6BA7AC7128C637E78CCBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1526468   (738465) от 24.01.2022
 
 HDCleaner 2.014 + Portable [Multi/Ru]
@@ -623,61 +676,6 @@ Nekonverter — это конвертер величин для Windows, поз�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7AE89D543DE8E42BB4898BE2F7FE484BAE31E04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526767   (738051) от 25.01.2022
-
-CCleaner 5.89.9401 Free / Professional / Business / Technician Edition RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738051.jpg" />
-</div>
-
-
-###  Подробнее
-
-CCleaner - утилита для чистки мусора в операционной системе. В ходе своей работы CCleaner (Crap Cleaner) ищет и удаляет временные и неиспользуемые файлы. Сюда относятся: cookies, история посещения сайтов в IE, временные файлы Интернета, строки поиска, файлы Корзины и т.д. Также поддерживается поиск временных файлов сторонних приложений: Firefox, Opera, Media Player, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D35D22286CF6B3DDD312B190FC420F2FD89B40
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1526524   (738050) от 25.01.2022
-
-Windows 10 (v21h2) x64 HSL/PRO by KulHunter v3 (esd) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_738050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка основана на официальном образе от MSDN: ru-ru_windows_10_consumer_editions_version_21h2_updated
-_jan_2022_x64_dvd_99ec77c7.iso.
-Отключено несколько компонентов, задействован протокол SMB.
-Интегрирован Microsoft .NET Framework 3.5 - 4.8.(   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90460C464891B464D2E52E1D0A1D41EA9A1CDEEE
 ```
 
 https://mybot314.ru/tekegram_catalog/

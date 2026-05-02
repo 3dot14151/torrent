@@ -1,3 +1,32 @@
+###  Публикация: 1442007   (1037180) от 23.01.2021
+
+Babooshka - Плюнь Дьяволу в лицо! (2020) [FLAC|Lossless|WEB-DL|tracks + .cue] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Крепостное право [00:05:17]
+02. Православный ЕГЭ [00:03:59]
+03. Бьёт - значит любит [00:04:12]
+04. Pro Добро [00:03:50](   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B3E78F7BEF172772EECF922250740F8FC3F4997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616214   (1036723) от 01.03.2023
 
 Rabies - Бестиарий (2023) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
@@ -716,33 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AEEF08E16739768ADB1A9E5063181ECF5D2E868C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618205   (1034302) от 10.03.2023
-
-Земфира - PODNHA (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034302.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. PODNHA
-2. PODNHA (Archive Remix)Жанр: RockПродолжительность: 00:08:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC402177790DC0B6A0CE975D5D3E5652E516363
 ```
 
 https://mybot314.ru/tekegram_catalog/

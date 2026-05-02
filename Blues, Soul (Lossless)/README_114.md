@@ -1,3 +1,119 @@
+###  Публикация: 1714884   (111631) от 11.04.2024
+
+Electric Blues - Time Passed Me By (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111631.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sometimes (4:02)
+02. Night Train (3:50)
+03. So Many Roads (6:13)
+04. Gave You My Word (4:43)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:06:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D728E54AE259ABDE5EC34689FF4A47531E70A345
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714906   (111620) от 11.04.2024
+
+Session Americana - The Rattle and The Clatter  Twenty Years (so far) of Session Americana (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pack Up The Circus (3:46)
+02. Making Hay (Live at the Haybarn Theater) (4:44)
+03. Beer Town (4:18)
+04. Helena (3:28)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:11:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B87420AEA136CCE3B6FFAFF88569B6143E7882DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714875   (111587) от 11.04.2024
+
+Copenhagen Blues Band - I'm Not in a Hurry - Copenhagen Blues Band - I'm Not in a Hurry (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm Not in a Hurry (4:19)
+02. Long Times Fight (4:14)
+03. Highway Man (5:40)
+04. Get a Hobby (3:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30777167C923B13400E6BC5870FA217C372201B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714892   (111584) от 11.04.2024
+
+Leif De Leeuw Band - Mighty Fine (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rosalie (5:23)
+02. Hard to Hold (3:51)
+03. Southern Man (feat. Berget Lewis) (4:37)
+04. Lone Star (5:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9EB477B6889E4C451D2D712D163D15991668481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714890   (111582) от 11.04.2024
 
 Jimi Fiano - Sweat and Pray (2024) [FLAC|Lossless|WEB-DL|tracks] <Electric Blues>
@@ -629,122 +745,6 @@ Boogie Beasts - Neon Skies & Different Highs (2024) [FLAC|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BF9B56EFC449013BA316470272BD003C2BF2883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717762   (111085) от 22.04.2024
-
-John Haydock - Cold Look (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish [00:04:01]
-02. Tearing Down The Thunder [00:05:20]
-03. Don't Know How To Stop [00:04:46]
-04. Slick Limousine [00:04:15](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4FA2357C4E2B8F4CE217516EB89F4FA15F8DA20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717877   (111069) от 22.04.2024
-
-Dominic Schoemaker - See Who I Am (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111069.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie Woogie Doogie (4:24)
-02. Free To Go (3:40)
-03. See Who I Am (3:27)
-04. If You See My Baby (3:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F35F85B393D8F2514C21A1C9A8723D0B5268A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717742   (111062) от 22.04.2024
-
-Marcus King - Mood Swings (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111062.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mood Swings [00:03:25]
-02. F*ck My Life Up Again [00:04:18]
-03. Soul It Screams [00:03:29]
-04. Save Me [00:04:54](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E878F3248D0F378799A85C2E82D03F284FCDAF69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1717882   (111057) от 22.04.2024
-
-The Cinelli Brothers - Almost Exactly...The Cinelli Brother (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Throw Of The Dice (4:08)
-02. Leave It With You (3:59)
-03. Dozen Roses (2:57)
-04. Ain't Blue But I Sigh (5:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C09C5EA7B7BB7AF565069F584A2E34BB8FE99C83
 ```
 
 https://mybot314.ru/tekegram_catalog/

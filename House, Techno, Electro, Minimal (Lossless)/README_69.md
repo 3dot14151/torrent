@@ -1,3 +1,32 @@
+###  Публикация: 1750116   (43160) от 18.09.2024
+
+VA - Sahara Beats (The Hottest Arab Music from the Hottest Desert) (2023) [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43160.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rachid El Esseily - Camel Shoes (4:38)
+02. Davide Angiuli - Desert of Love (Extended Mix) (6:06)
+03. Ajram Al Jawad - Arab Toy (4:38)
+04. Nouri Fateh - Aah-W-Noss (6:30)(   Читать дальше...   )Жанр: House, FolkПродолжительность: 01:39:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:391E3CA496D50BD1AC9B95A87134DF391DBD0088
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751237   (42605) от 23.09.2024
 
 VA - Arabic Ethnic Deep House Mix 2023 [FLAC|Lossless|WEB-DL|tracks] <House, Folk>
@@ -711,35 +740,6 @@ VA - Deep House Chill 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4D40A2CC727415B2B5AF73C8A1918F53923604F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1760230   (37482) от 12.11.2024
-
-VA - Deep House Hits 2024 (Cherokee Recordings) [FLAC|Lossless|WEB-DL|tracks] <Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Emotion - One More Night (Original Mix) (2:36)
-02. Audioboy - Secret Enemy (Original Mix) (3:03)
-03. The Tschopp - More Than One Night (Original Mix) (2:23)
-04. Dani Corbalan - Addicted To You (Original Mix) (2:24)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:07:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6995178C03DFF561358D44C15BC50549CD41B6E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

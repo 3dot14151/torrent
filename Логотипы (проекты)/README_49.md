@@ -1,3 +1,83 @@
+###  Публикация: 1771950   (31483) от 09.01.2025
+
+Проекты - VideoHive - Social Media Unveil - 56082211 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31483.jpg" />
+</div>
+
+
+###  Подробнее
+
+Небольшой проект для создание логотипов который в свою очередь можно использовать для социальных медиа. Можно создать для YouTube, Vimeo, Reddit, Instagram, Facebook, Tiktok и Dribble.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9EB9D3B911430E4084B897EEBAB8882824E50FD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772412   (31411) от 10.01.2025
+
+Проекты - VideoHive - Photo Logo Reveal - 56179489 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31411.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с логотипом для ваших творческих задач.
+
+Музыка предоставлена в демо версии.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:807A8BE63EF376BAE7C56B120CA770A129B6D768
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772274   (31385) от 10.01.2025
+
+Проекты - VideoHive - Logo Animation - 56054129 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31385.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с логотипом для ваших творческих задач.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5455FFC8A0736157422204DA57529792422928CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772845   (31178) от 12.01.2025
 
 Проекты - VideoHive - Epic Smoke 2 Logo Reveal - 56101945 [AEP]
@@ -626,90 +706,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC27488892449296623BB8A510B54730D1ADF0DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787505   (23546) от 25.03.2025
-
-Проекты - VideoHive - Photo Logo Reveal - 56619383 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый проект с логотипом для фотографов.
-
-Музыка предоставлена в демо режиме.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA574832565DDC9B9368D745EFC0141AE03B171C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787426   (23541) от 25.03.2025
-
-Проекты - VideoHive - Lightning Sword Logo Reveal - 56666940 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Логотип Lightning Sword Logo Reveal очень легко редактировать, просто замените логотип или любой текст и он готов к визуализации. Он полезен для отображения логотипа и текста вашей компании.
-
-Музыка предоставлена в демо режиме.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E59B375460CAE1E4361F7CB99EC2C98BD4FB2B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787708   (23411) от 26.03.2025
-
-Проекты - VideoHive - Valentines Day Logo - 56706983 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23411.jpg" />
-</div>
-
-
-###  Подробнее
-
-Красивый проект с логотипом ко дню влюбленных.
-
-Музыка предоставлена в демо режиме.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DD75164F52BA75B040D951BDB08ED2F30719C60
 ```
 
 https://mybot314.ru/tekegram_catalog/

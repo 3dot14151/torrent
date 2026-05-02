@@ -1,3 +1,61 @@
+###  Публикация: 1062987   (437834) от 15.10.2016
+
+Peggy Lee - Things Are Swingin' & Jump For Joy (1959) 1996, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437834.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's A Wonderful World [02:14]
+ 02.Things Are Swingin' [02:11]
+ 03.Alright, Okay, You Win [02:53]
+ 04.Ridin' High [02:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B25BD9A53D0529E080CC6F5EE4A6C3FB3EC7C848
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1062763   (437833) от 15.10.2016
+
+Artie Shaw - What Is This Thing Called Love (1945, 1946) 1997, President Records[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Let's Walk [03:00]
+ 02.Love Of My Life [03:08]
+ 03.How Deep Is The Ocean? [02:55]
+ 04.The Glider [02:49](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:14:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14B9C4C229C17A63F7D8A90E94E4D164BCF4A1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063029   (437832) от 15.10.2016
 
 Gordon Goodwin's Big Phat Band - Wrap This! - A Big Phat Christmas (2015) [FLAC|Lossless|image + .cue] <Neo-Bop, Modern Big Band>
@@ -687,64 +745,6 @@ Gary Bartz - The Red And Orange Poems (1994) Atlantic Jazz [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BEBDDA61A6D4616CD1421E46D6BA07BB6A9BE019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1165271   (435440) от 12.09.2017
-
-The Dutch Swing College Band - With Guests, Vol. I (1974) 1987, Phillips [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mandy Make Up Your Mind (with Bud Freeman) [05:15]
-02. I Got A Right To Sing The Blues (with Billy Butterfield) [03:32]
-03. I Wanna Be Happy (with Teddy Wilson) [03:21]
-04. Keepin' Out Of Mischief Now (with Wild Bill Davison) [03:19](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 00:41:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EF318B0D985FB3B2E45D6E7EB33D29F6793C847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063450   (435381) от 16.10.2016
-
-Big John Patton - Got A Good Thing Goin' (1966) Remaster, 1997, Toshiba[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_435381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Yodel [08:19]
- 02.Soul Woman [07:44]
- 03.Ain't That Peculiar [06:50]
- 04.The Shake [07:48](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EE7C8792398A3F99AD3800EB9A25DAA39C5C98D
 ```
 
 https://mybot314.ru/tekegram_catalog/

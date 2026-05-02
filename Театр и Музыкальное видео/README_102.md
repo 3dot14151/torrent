@@ -1,3 +1,84 @@
+###  Публикация: 582072   (320526) от 29.11.2012
+
+The Rasmus. Somewhere (2012)  [H.264/1080p]WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320526.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: ROCK
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19DB0D33991B8D8A719C5E5EDBBB790B252F1F71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 582089   (320380) от 29.11.2012
+
+Amelia Lily. Shut Up (2012) [H.264/1080p] WEB-DLRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320380.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Dance
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8454E0ADBEEBEECF468C13AF3DFBE095AFF7B48A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 958330   (319004) от 23.11.2015
+
+Whitesnake - The Purple Album (2015) Bonus DVD5 [EN]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319004.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бонусный диск к альбому Whitesnake - The Purple Album (2015). Представлены четыре видеоклипа на песни с альбома, а также документальный видеоматериал по созданию альбома.1. Lady Double Dealer (Music Video)
+2. Sail Away (Music Video)
+3. Stormbringer (Music Video)
+4. Soldier Of Fortune (Music Video)(   Читать дальше...   )Жанр: Hard Rock, ДокументальныйПеревод: ОтсутствуетПродолжительность: 29:10 + 26:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6387333F47D8BCF58D6ABE47FEE86111883CFB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 415421   (318906) от 30.11.2011
 
 Linkin Park - Live in Moscow (2011) HDTVRip [H.264/1080p]
@@ -638,90 +719,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FAE02CE1315E53D94F6B86EC8DA7494C23228377
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1332437   (313894) от 20.10.2019
-
-Квартирник НТВ у Маргулиса. Группа Грот (19.10.2019) WEB-DL [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313894.jpg" />
-</div>
-
-
-###  Подробнее
-
-К Евгению Маргулису пришла рэп-команда «Грот». Омичи Виталий Евсеев и Дмитрий Геращенко создали группу в 2009 году и сразу же выпустили дебютный EP «Никто, кроме нас». Он вызвал мощнейший резонанс, а группа в одночасье стала популярной. В 2019 году команда празднует юбилей — 10 лет на сцене. В разговоре с ведущим они вспомнили самые интересные истории из творческой (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:53:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EF656B47EB6FFE5072552ED6687B0D1F85306E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181862   (313822) от 11.11.2017
-
-Delain - Live At Paradiso (2017) BDRip [H.264/1080p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313822.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Decade of Delain: Live at Paradiso  - Аудио/Видео релиз нидерландской симфоник-метал группы Delain. Был записан в Paradiso (Amsterdam) 10 декабря 2016 в честь десятой годовщины группы. Выпущен на CD/Blu-Ray 27 октября 2017.1. 	"Intro (The Monarch)" 	1:53
-2. 	"Hands of Gold" 	5:14
-3. 	"Suckerpunch" 	4:57
-4. 	"The Glory and the Scum" 	4:22(   Читать дальше...   )Производство: Napalm RecordsЖанр: Symphonic MetalПродолжительность: 01:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8D8E8BD118C59EECF0BDDDDD97435EFEB7A45DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 264993   (313252) от 02.12.2010
-
-Status Quo: Pictures - Live At Montreux (2009) DVDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Caroline
-02. The Wanderer
-03. Rain
-04. Don't Drive My Car(   Читать дальше...   )Жанр: Концерт, RockПродолжительность: 01:40:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED91E03290C12C24D636BF908B6CC8FF18AE3BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

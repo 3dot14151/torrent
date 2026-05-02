@@ -1,3 +1,61 @@
+###  Публикация: 1359743   (963208) от 13.02.2020
+
+VA - Beatport Techno: Electro Sound Pack #11 (2020) [MP3|320 Kbps] <Techno, Tech House, Electro, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Right Mood - Thoughts Are Clear (Original Mix)
+02. Dj Dextro - Reflection (Original Mix)
+03. Mari Mattham - Foggy Destiny (Original Mix)
+04. Suspect Boyz - Madrid (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech House, Electro, MinimalПродолжительность: 07:07:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32040658692C20C7673CA518FC7499B9FD5F1901
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1359742   (963163) от 13.02.2020
+
+VA - House In Space (2020) [MP3|320 Kbps] <Future House, EDM, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963163.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Go Satta - A Real Boy
+002. Jubba - Elemento Y
+003. Major K - Narwhal (Original Mix)
+004. Dom Kane - Tunnel Run(   Читать дальше...   )Жанр: Future House, EDM, ElectronicПродолжительность: 11:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D65CBF250ED985696C785DC3351B697068D3C3A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978731   (962612) от 24.01.2016
 
 VA - Greek Lounge Deluxe Top 10 of All Times (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -693,70 +751,6 @@ VA - Space Rift: Original Deep House Mix (2016) [MP3|320 Kbps] <Deep House, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E1BB28C1C79E81F9BC06939E361A5312F5EF7D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088946   (953882) от 02.01.2017
-
-VA - Bright Moments: Chillout Compilation (2017) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953882.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bes & Meret - Ko Samui Nights 4:20
-002. Satellite Soul - Red - Original Version 4:19
-003. Agent Juno - Sunstorm - Soundtrack Version 4:03
-004. Lazy Hammock - Fading Into Oblivion - Original Mix 5:55(   Читать дальше...   )Жанр: Chillout, Downtempo, LoungeПродолжительность: 08:26:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B80FBBB3CFBC557EF69F354AC26F7621C270515
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 623855   (953784) от 27.02.2013
-
-VA - Creative Music Box 9 (2013) [MP3|320 кб/с]<Dub Step, Drumstep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_953784.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 1Up - Whip-It
-2. A Girl And A Gun feat. Cool Project vs. Mashur and Headrum - Russian Winter (Assault Terror Remix)
-3. AFK feat. Messinian - On The Floor (Rekoil Remix)
-4. Altazer - My Bad (The Wobbler Remix)
-5. Breezer - Beast Virus
-6. Cottonmouth - Dubrime
-7. Cottonmouth - Sleepy Hollow
-8. Dirtyphonics - Walk In The Fire (Culprate Remix)
-9. Dubba Jonny - Blockbuster
-10. Hai5Gohst - Anomaly(   Читать дальше...   )Жанр: Dub Step, DrumstepПродолжительность: 02:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6CAF5D20B88E3455EEAFB1227DD4E7CD2DA0526
 ```
 
 https://mybot314.ru/tekegram_catalog/

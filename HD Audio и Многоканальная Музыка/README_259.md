@@ -1,3 +1,177 @@
+###  Публикация: 1815436   (5117) от 30.08.2025
+
+David Rose - Be a Gentleman (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5117.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Be a Gentleman (3:34)
+02.  I Love It (1:27)
+03.  Blue Silk (3:57)
+04.  Organized Chaos (2:20)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:47:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E13F11288876D9A0C9DFE8BDFACCE935746980A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815438   (5116) от 30.08.2025
+
+Eric Gales - A Tribute To LJK (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_5116.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  You Shouldn't Have Left Me (4:50)
+02.  Rockin Horse Ride (feat. Christone "Kingfish" Ingram) (4:05)
+03.  Guitar Man (4:42)
+04.  Don't Wanna Go Home (feat. Joe Bonamassa) (5:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFB01D46797EE232041B678F08F7EECA91DA6E9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815666   (4931) от 31.08.2025
+
+Liora Stedman - Spirit of Cobalt (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Spirit of Cobalt (5:00)
+02.  Only One (3:31)
+03.  Champion's Match (3:36)
+04.  Lady Like That (4:25)(   Читать дальше...   )Жанр: RockПродолжительность: 00:47:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED636063D691D266D28E4572D503458699E1EDDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815670   (4929) от 31.08.2025
+
+Luna Artisan - Ego Rush (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Scream in a Soft Voice (4:19)
+02.  Lady Slip-Up (3:08)
+03.  Moving in Your Shade (3:16)
+04.  Interpretation (3:31)(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F8522E5E396ABDCCFF8C0466D3DDF28427031A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815950   (4847) от 01.09.2025
+
+Michael Jackson - Off The Wall (1979) SACD, Reissue, Remastered, 2025, Mobile Fidelity Sound Lab [DSD64 2.0|1bit/2822,4kHz|SACD-R] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4847.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Stop 'Til You Get Enough 6:05
+02. Rock With You 3:40
+03. Working Day And Night 5:14
+04. Get On The Floor 4:38(   Читать дальше...   )Жанр: PopПродолжительность: 00:42:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA85AB2F4D67CA15E32564835F3371E7B11BFB19
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1815937   (4831) от 01.09.2025
+
+Soundset City - Beyond Lounge (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Downtown Lights
+02. Keep Me Close
+03. Love Song (Vocal Lounge Mix)
+04. Lounge Groove Chiller(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E28C55D81322502E11E2144EAD5508559B149F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1815932   (4791) от 01.09.2025
 
 Nick Manzer - Through The Veil (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
@@ -571,180 +745,6 @@ Halle Choir, BBC Philharmonic and John Storgards - Shostakovich: Symphonies Nos.
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0721BEDE1BDE584847722C2891432E4D8198478C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816019   (4402) от 04.09.2025
-
-Pendulum - Inertia (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass, Electronic Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Driver [00:03:27]
-02. Come Alive [00:03:53]
-03. Save The Cat [00:02:52]
-04. Archangel [00:04:03](   Читать дальше...   )Жанр: Drum & Bass, Electronic RockПродолжительность: 00:54:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E7A826EB980E3DDA6BEBA57F0DDC28ABF925B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816281   (4401) от 04.09.2025
-
-Rick White - Again (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Still A Radio (3:01)
-02.  Life In The Maze (2:10)
-03.  Contact (2:48)
-04.  The Cat (2:24)(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5276CD52D299E7B4EE350A13BA6150BA094DEB52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816275   (4400) от 04.09.2025
-
-Honeybear the Band - I Was Wrong (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4400.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Devotion (3:39)
-02.  Work In Progress (2:52)
-03.  If You Were Mine (3:09)
-04.  Everyone's Invited (3:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBF8B573B9B8EC2B1CA1351F3EBFC53B288C488F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816282   (4399) от 04.09.2025
-
-Sebastian Rider - Gonna Know My Name (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I've Been Bad (2:46)
-02.  I Got Mine (3:14)
-03.  Soul Train (3:05)
-04.  Don't Want No Trouble (4:06)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1740CE5ACB760BF236CB25195A142DB48100CCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816270   (4398) от 04.09.2025
-
-Bluebirds - You Take My Blues Away (The original live recordings) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Keep On Loving Me Baby (The original live recordings) (3:38)
-02.  You Take My Blues Away (The original live recordings) (2:46)
-03.  She's Tough (The original live recordings) (3:09)
-04.  Just Because (The original live recordings) (3:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4751372EF869907630D13416134B9D9D9924C2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1816286   (4397) от 04.09.2025
-
-The Bonnevilles - Age Of Monsters (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_4397.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Not a Penny for the Earl (3:25)
-02.  Age of Monsters (5:00)
-03.  Two Big Fizzies (2:26)
-04.  The Bais (2:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5E763B703ABE599D9B6D3883CFB71A08E3F34CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

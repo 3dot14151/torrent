@@ -1,3 +1,32 @@
+###  Публикация: 282151   (946061) от 13.01.2011
+
+Юрий Верижников - Новогодний пейзаж. Для детей 8-12 лет (2006) [MP3|320 kbps]<Детские песенки и музыка>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_946061.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Под новый год Исп. Юля Бекетова
+2. Карнавал Исп. Левон Мдиванян
+3. Зимний пейзаж Исп. Алеша Иванов
+4. Новый год Исп. Ксения Пинаева(   Читать дальше...   )Жанр: Детские песенки и музыкаПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A485062978FC66A504E4616441FA8F3CA9A1F319
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 281527   (945789) от 13.01.2011
 
 VA - Детский праздник. Поздравляем мам и пап! (2005) [MP3|128 kbps]<Детские песни и минусовки>
@@ -684,35 +713,6 @@ VA - Babydream. Christmas dreams vol.9 (1999) [MP3|320 kbps]<Детская му
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0642E888D77D22F6E21C0665297F067B8BB3F4E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 285880   (933976) от 22.01.2011
-
-VA - The Little Mermaid - Original Broadway Cast Recording (2008) [MP3|160 kbps]<Детская музыка и песенки>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_933976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Menken, Glenn Slator - Overture
-02. Alan Menken, Howard Ashman and Glenn Slator - Fathoms Below
-03. Alan Menken, Howard Ashman - Daughters of Triton
-04. Alan Menken, Glenn Slator - The World Above(   Читать дальше...   )Жанр: Детская музыка и песенкиПродолжительность: 01:18:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EA604E7F2B68FDF5362305EA0F3EF3B9616DA04
 ```
 
 https://mybot314.ru/tekegram_catalog/

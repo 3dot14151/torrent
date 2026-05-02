@@ -1,3 +1,206 @@
+###  Публикация: 1058890   (464044) от 03.10.2016
+
+Patrick Watson - The 9th Life of Louis Drax / Девятая жизнь Луи Дракса (2016) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis Drax
+02. Helicopter0
+03. Clouds
+04. The Red Dress(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FE60D8B8667E179C3CB140251843D62501D80BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1058835   (464024) от 03.10.2016
+
+Oliver Scheffner - Ambient Dream Lounge (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Under the Rainbow
+02. Summer Night of Starfalls
+03. Fly to the Dream
+04. Forest of Sprites(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 01:13:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6D7D09D0F2796CC162C83B9B42583CE0AAF49DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161968   (463649) от 30.08.2017
+
+Jules Calmer - Deserted Paradise (2017) [MP3|320 Kbps] <Ambient, New Age, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Dream (Original Mix)
+02. For The First Time (Original Mix)
+03. In The Stories (Original Mix)
+04. King Emar (Original Mix)(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 00:41:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98D8761851E7FA604B359AF787820C8E0C5BDF1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1161403   (463225) от 30.08.2017
+
+VA - Baby Driver / Малыш на драйве (Music from the Motion Picture) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Jon Spencer Blues Explosion - Bellbottoms (05:16)
+02. Bob & Earl - Harlem Shuffle (02:48)
+03. Jonathan Richman - Egyptian Reggae (02:37)
+04. Googie Rene - Smokey Joe's La La (02:55)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:44:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E68D2F3D4631B2F889D03FDD63BC0A59121922EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941550   (462714) от 27.09.2015
+
+Peter Kater - Love (2015) [MP3|320 кб/с]<New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love
+02. Innocence
+03. Deeply
+04. Intimacy(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:11:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8EA8D163E62C6ACE98DA303424BCA361CAEC8AB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941221   (462056) от 27.09.2015
+
+Blackmore's Night - All Our Yesterdays (2015) [FLAC|image+.cue]<Folk Rock, Rock, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_462056.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All of Our Yesterdays
+02. Allan Yn N Fan
+03. Darker Shade Of Black
+04. Long Long Time(   Читать дальше...   )Жанр: Folk Rock, Rock, CelticПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B503EE9DBD4FC02CA0B94883410B6285B91EEF69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059478   (461967) от 04.10.2016
+
+Traces - The Rivers Of Belief (2002) [APE|Lossless|image + .cue] <New Age, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rivers Of Belief
+02. Pray
+03. Sweet Dreams
+04. S.O.S. For Love(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 01:00:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D5502C23D95C6A2242D951901BFF27B130B8A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1059376   (461823) от 04.10.2016
 
 Oliver Scheffner - Oasis of Dreams (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -547,209 +750,6 @@ Nicklas Schmidt - Ronal Barbaren (2011) [MP3|320 кб/с]<Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:561BE66258017FAF326DEA61941D07A6DA9470C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942740   (453911) от 01.10.2015
-
-VA - Music Selection for the Best Macrobiotic Restaurants (2015) [MP3|320 кб/с]<New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453911.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alessandro Boriani - Roiol
-02. Claudio Agostini & Cesare Ferioli - Flock of Seagulls
-03. Giacomo Bondi - Field of Dreams
-04. Cristiano Heredia - Love Me Now(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 01:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4160BCC28CD775F110941C33A77C5C49D7618A05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568851   (453497) от 12.08.2022
-
-Slavik...Kemmler - Close To Heaven (1998) [OGG|485 Kbps] <New Age, Tribal>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Indian Spirits               	3:30
-02. Close To Heaven            	3:49
-03. Can You Heal Me?         	4:18
-04. Believe In Your Dreams!	4:04(   Читать дальше...   )Жанр: New Age, TribalПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:574A3FFC11787C1B88272D3338BBD23369621442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569198   (453494) от 12.08.2022
-
-Enigma - MCMXC a.D. (1990) [OGG|485 Kbps] <Ambient, New Age, Downtempo>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Voice Of Enigma	2:20
-02. Principles Of Lust (Sadeness) 4:04
-03. Principles Of Lust (Find Love) 4:50
-04. Principles Of Lust (Sadeness (Reprise) 2:48(   Читать дальше...   )Жанр: Ambient, New Age, DowntempoПродолжительность: 00:40:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF97AB2438AFA8099E1553B63A013BDDA6DE1B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 825825   (453178) от 30.09.2014
-
-Тролль Гнёт Ель - 8 Альбомов + Совместные проекты (2003-2013) [MP3|320 кб/с]<Folk-Rock, Beer Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_453178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тролль Гнёт Ель и Михаил Горшенев - Пивоварня Ульва
-02. Альфа-Стрекозы и Тролль Гнёт Ель - Чернокнижник
-03. Алтырь и Тролль Гент Ель - Гимн вину
-04. Garlic Kings и Тролль Гнет Ель - Мёртвая шлюха(   Читать дальше...   )Жанр: Folk-Rock, Beer FolkПродолжительность: 00:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28003E6DDBC017B2984ADF60E6254B7B6DCEF738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060366   (452464) от 08.10.2016
-
-Wardruna - Runaljod - Ragnarok (2016) [MP3|320 Kbps] <Dark Folk, Pagan Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452464.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tyr (06:30)
-02. UruR (10:11)
-03. Isa (07:13)
-04. MannaR - Drivande (04:09)(   Читать дальше...   )Жанр: Dark Folk, Pagan FolkПродолжительность: 00:58:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A93834C9412CFFD5CC9E6CF8384E1741B936BBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247753   (451216) от 16.09.2018
-
-Adam Andrews - Soar (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451216.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glow
-02. No More Shame
-03. While the World Passed Me By
-04. Here I Am(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:40:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B95AA942C8541B8389761C5A82F96BD93769A2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942588   (451029) от 02.10.2015
-
-VA - Лучшие цыганские песни конца ХХ века - Альбом №3 (2000) [APE|image+.cue]<Folk, Gypsy>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Цыганский талисман - Бричка
- 02. Цыганский талисман - Снова слышу голос твой
- 03. Цыганский талисман - Кай ёнэ
- 04. Цыганский талисман - Ванёнок(   Читать дальше...   )Жанр: Folk, GypsyПродолжительность: 01:11:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BA0AEB67232155E6294C103A28E55F8C128C7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

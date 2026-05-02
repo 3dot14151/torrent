@@ -1,3 +1,177 @@
+###  Публикация: 1795131   (67140) от 03.05.2025
+
+All for Metal - Gods of Metal (Year of the Dragon) (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67140.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Cry For Help (Intro)
+A2 Gods Of Metal
+A3 Year Of The Dragon
+A4 The Way Of The Samurai(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832D0DE88865E1AF3087BC25EADA79B86759BB03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795268   (67112) от 03.05.2025
+
+Ancient Wisdom - For Snow Covered the Northland (1996) Released, 2022, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67112.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. A Hymn to the Northern Empire (02:59)
+A2. In the Land of the Crimson Moon (05:51)
+A3. They Gather Where Snow Falls Forever (06:04)
+A4. Through Rivers of the Eternal Blackness (05:45)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00: 47:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E874CBFBFE98CEC1D763DD6E19606CC20AEFB379
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795109   (67110) от 03.05.2025
+
+Circle Of Chaos - Studio Albums (4 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Circle Of Chaos - метал-группа из Стокгольма, Швеция, основана в 2008 году.2010 - Black Oblivion
+2012 - Twoheaded Serpent (EP)
+2014 - Crossing the Line
+2022 - Forlorn ReignЖанр: Melodic Death MetalПродолжительность: 02:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68FA22AFDCBA7604BBF09A7274585E5B3178449F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795280   (67091) от 04.05.2025
+
+Metallica - 72 Seasons (2023) [DSD128|Lossless|tracks + .cue|Vinyl-Rip]<Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67091.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. 72 Seasons (07:44)
+A2. Shadows Follow (06:11)
+A3. Screaming Suicide (05:30)
+B1. Sleepwalk My Life Away (06:55)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:17:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2A02C3C5CAD8F6E0A1B172F0D850B27646EC733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795331   (67089) от 04.05.2025
+
+Souldrainer - Studio Albums (4 releases) (2007-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Souldrainer - метал-группа из Остерсунда, Швеция, основана в 1999 году.2007 - Reborn
+2011 - Heavens gate
+2014 - Architect
+2022 - DepartureЖанр: Melodic Death MetalПродолжительность: 03:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760D7F93ED04DF444399E2ACCC0E9560CCE2F032
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1795297   (67080) от 04.05.2025
+
+Arch Enemy - Deceivers (2022) [FLAC|24/96|tracks|Vinyl-Rip] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Handshake With Hell
+02 - Deceivers, Deceivers
+03 - In The Eye Of The Storm
+04 - The Watcher(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4462BA1B631DF2D8E68FCFE6C155D06431F4DFE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1795573   (67049) от 05.05.2025
 
 Augury - Illusive Golden Age (2018) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Death Metal>
@@ -566,178 +740,6 @@ Caliban - Dystopia (2022) [FLAC|24/192|image + .cue|Vinyl-Rip] <Metalcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C6F9FFCD0578F4C13EDEFB94F6C52F5F74B5EAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797918   (66651) от 19.05.2025
-
-DevilDriver - Studio Albums (10 releases) (2003-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove Metal/Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66651.jpg" />
-</div>
-
-
-###  Подробнее
-
-DevilDriver - американская грув-метал-группа, образованная в 2002 году в городе Санта-Барбара, Калифорния.2003 - DevilDriver
-2005 - The Fury Of Our Maker's Hand
-2007 - The Last Kind Words
-2009 - Pray For VillainsЖанр: Groove Metal/MetalcoreПродолжительность: 08:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:347A2B3C6F8438A65436CE8E46E5E3C2FE99DEEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798728   (66590) от 23.05.2025
-
-Smoulder - The Sword Woman (2018) Demo [FLAC|24/192|image + .cue|Vinyl-Rip] <Epic Heavy, Doom Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66590.jpg" />
-</div>
-
-
-###  Подробнее
-
-A. The Sword Woman (05:23)
-B. Voyage of the Sunchaser (05:33)Жанр: Epic Heavy, Doom MetalПродолжительность: 00:10:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:84CF38DEEC841A7DB49543DFD00A7CBBB67A7002
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798792   (66553) от 24.05.2025
-
-Soulfly - Conquer (2008) [FLAC|24/192|image + .cue|Vinyl-Rip] <Nu-Metal, Groove, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66553.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Blood Fire War Hate
-A2. Unleash
-A3. Paranoia
-B1. Warmageddon(   Читать дальше...   )Жанр: Nu-Metal, Groove, Thrash MetalПродолжительность: 00:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6BA63258CFA7EEC13DA0FF4E08AC956D1207424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799191   (66503) от 26.05.2025
-
-Pyogenesis - Studio Albums (10 releases) (1994-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Doom/Death Metal, Punk>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66503.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pyogenesis — немецкая рок-группа, жанрово охватывающая широкий стилевой спектр от дэт-метала до поп-рока.1994 - Sweet X-Rated Nothings
-1995 - Twinaleblood
-1997 - Unpop
-1998 - Mono... Or Will It Ever Be The Way It Used To BeЖанр: Doom/Death Metal, PunkПродолжительность: 08:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAC0301664862F63EC6B82B28B89EC6293212CD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799851   (66355) от 30.05.2025
-
-Any Given Day - Studio Albums (4 releases) (2014-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66355.jpg" />
-</div>
-
-
-###  Подробнее
-
-Any Given Day - немецкая металкор-группа, образованная в 2012 году в городе Гельзенкирхен.2014 - My Longest Way Home
-2016 - Everlasting
-2019 - Overpower
-2024 - LimitlessЖанр: MetalcoreПродолжительность: 03:14:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7996BF4F792D65AC5CC3526C76233FB10A6E76C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800028   (66342) от 31.05.2025
-
-VA - IX. Album Supraphonu (1970) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Strana A:
-A1 K. Gott - Ma Prvni Laska Se Dnes Vdava
-A2 H. Zagorova - Bludicka Julie
-A3 V. Neckar - Kdyz Ti Nejsem Hezkej(   Читать дальше...   )Жанр: EuropopПродолжительность: 00:44:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78179059599895D004686FC802C19D04CDB126A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 951941   (357690) от 31.10.2015
+
+Проекты - VideoHive - Autumn Gallery [AEP]
+
+>>След.
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_357690.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект на осеннюю тематику.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:070A3869CE1288C17B82BDCDFC68DA792AD8A170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 952119   (357565) от 31.10.2015
 
 Проекты - VideoHive - Autumn Photo Frames [AEP]
@@ -654,33 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D140C327C4B8BE70041110E76D5458D6F1C7762
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 953413   (348681) от 04.11.2015
-
-Проекты - VideoHive - Dynamic Slideshow - 8513491 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_348681.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания динамичного слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADE8FADA2C7E93363F938286113E816FB2AF9984
 ```
 
 https://mybot314.ru/tekegram_catalog/

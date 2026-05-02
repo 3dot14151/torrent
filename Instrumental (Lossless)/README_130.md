@@ -1,3 +1,125 @@
+###  Публикация: 451688   (75837) от 13.02.2012
+
+Erja Lyytinen - Songs From The Road (2012) [FLAC|Lossless]<Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75837.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Road Leading Home (2:34)
+02. Voracious Love (4:17)
+03. Don't Let A Good Woman Down (3:47)
+04. Everything's Fine (7:23)
+05. Grip Of The Blues (6:00)
+06. Can't Fall In Love (4:54)
+07. Not A Good Girl (12:05)
+08. Steamy Windows (7:58)
+09. No Place Like Home (3:14)
+10. Crossroads (2:07)(   Читать дальше...   )2012Жанр: Modern Electric BluesПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770880   (71950) от 03.01.2025
+
+Gina and Johnny - Free your Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Free your soul (5:02)
+02.  Pay up (5:12)
+03.  Crazy kinda love (3:28)
+04.  Movin on (4:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:626A08077DE218EBD2857539893271A51F766D2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770882   (71948) от 03.01.2025
+
+Soultide - Deep Blue Reverie (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71948.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eternal Refuge (2:35)
+02.  Celestial Ascent (3:19)
+03.  Eternal Arches (4:00)
+04.  Sacred Echoes (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D606C419A0C7E4670ACC58515B909DEBC1402E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771270   (71917) от 05.01.2025
+
+Grace In Sand - Homeless Moon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Get free (2:27)
+02.  Homeless Moon (3:38)
+03.  Sweet Sibilla (3:35)
+04.  Redemption in hell (3:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:843A427EEA8008662A37AA9C4A5762347C082217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1771572   (71845) от 07.01.2025
 
 Roadhouse Dogs - Duggan's Conversation Bar (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -626,122 +748,6 @@ Slinky Vagabond - The Eternal Return (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0124C16EA21F99FA83392A08F663020BF3F13F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778282   (70893) от 08.02.2025
-
-Soultide - Midnight Rhythm (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70893.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gravel Road Blues (3:08)
-02.  Silent Whispers (2:27)
-03.  Heavy Shadows (3:02)
-04.  Shattered Summit (3:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A10C6DF7BFB6AC4A384AF1E4AB6F0B5E074B5EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778208   (70889) от 08.02.2025
-
-Mick Clarke - Bad Whisky Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bad Bad Whisky (4:33)
-02.  Help Me (4:49)
-03.  Killing Floor (5:06)
-04.  Watch Your Step (5:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D4BD75B39E77F2663112280E1CF9D8CFFBBAE2BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778200   (70888) от 08.02.2025
-
-John Tho - Truth Be Told (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Wake Me up Before I Die (4:09)
-02.  Truth Be Told (4:14)
-03.  Ya Gotta Be Mine (5:11)
-04.  Road to My Heart (4:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C41C4F3E749C9F2331644DCA4C5B5040517DEF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1778080   (70878) от 08.02.2025
-
-Bill Abel - Waiting At The Station (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Saddle Tramp (2:19)
-02.  Waiting at the Station (4:23)
-03.  Going Away (5:07)
-04.  An't No Use (4:18)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91EF54FAAF000BA5AD854B660A1274C18CF0797A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1825387   (152036) от 17.10.2025
+
+VA - Ori Uplift - Uplifting Only Episode 662 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. REX.W – Across the Desert (Intro Mix) (Breakdown Of The Week)
+02. C-Systems & Neev Kennedy – Between The Lines
+03. Mike van Fabio & Cherry – Fable (Mhammed El Alami Remix) (Uplifting Classic)
+04. Etasonic – ShakeratoЖанр: Trance, Uplifting TranceПродолжительность: 02:05:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11A15F7AF1A40AC47AFE8A84A6494A711D0250BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1825386   (152026) от 17.10.2025
+
+VA - Armin van Buuren - A State Of Trance 1247 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152026.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTY x RHODES – Never Be The Same
+02. YOUNA – Serotonin (Progressive Pick)
+03. M.A.N.D.Y. vs. Booka Shade – Body Language (Helsloot Remix)
+04. Baset – Drift(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25CCB436FC07D16F0525E9C0B37FCEE1E4EB708B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1825338   (152018) от 17.10.2025
 
 Third Party - Live @ Party People, HERE at Outernet London, United Kingdom (2025-09-20) [MP3|320 Kbps] <Progressive House>
@@ -683,64 +741,6 @@ MUSICAL FREEDOM - Musical Freedom Radio The Best Of 2023 (2023-12-13) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAB4A19C3739E5B518BC45F2DFC3D76251BB4D69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684321   (127564) от 16.12.2023
-
-VA - Armin van Buuren - A State Of Trance 1151 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Nils Hoffmann & Kasbo feat. Vancouver Sleep Clinic - Running In A Dream
-02.	Hyperbits - Satisfaction
-03.	Andrew Rayel - Rescue Me (Den Kayo Remix)
-04.	AndyG - Infected(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:58:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26478145C2566786240BAA527CCA533933EBC2CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686320   (126593) от 22.12.2023
-
-VA - Armin Van Buuren - A State Of Trance 1152 (Top 50 Of 2023) (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126593.jpg" />
-</div>
-
-
-###  Подробнее
-
-Tune of the Year 2020 - 2022
-01. Aly & Fila with Plumb - Somebody Loves You
-02. Armin van Buuren & Aly & Fila ft. Kazi Jay - For All Time
-03. Bryan Kearney & Out Of The Dust ft. Plumb - Take This(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A27FCA1B6DA6BFA1C7DD23D7757978E9778A55
 ```
 
 https://mybot314.ru/tekegram_catalog/

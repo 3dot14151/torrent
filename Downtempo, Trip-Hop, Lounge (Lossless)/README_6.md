@@ -1,3 +1,119 @@
+###  Публикация: 978216   (963441) от 23.01.2016
+
+Adam Fielding - Discography 11 Releases (2008-2015) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, IDM, Post Rock, Ambient, Breaks, Synth-pop, Deep House, Experimental>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_963441.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Renew (03:43)
+ 02. Changes (02:27)
+ 03. Catacombs (03:58)
+ 04. Cards (03:26)(   Читать дальше...   )Тип издания: WEBЖанр: Downtempo, IDM, Post Rock, Ambient, Breaks, Synth-pop, Experimental |Продолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBF0FBF5DED6F0AA085BFCCCD68BCEB227EB1DCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 980138   (957156) от 28.01.2016
+
+Massive Attack - Ritual Spirit (2016) [FLAC|Lossless|WEB-DL|tracks] <Trip Hop, Experimental, Abstract Hip Hop>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dead Editors (feat. Roots Manuva) (04:46)
+02. Ritual Spirit (feat. Azekel) (03:55)
+03. Voodoo In My Blood (feat. Young Fathers) (04:01)
+04. Take It There (feat. 3D/Tricky) (04:31)Жанр: Trip Hop, Experimental, Abstract Hip HopПродолжительность: 00:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D916D1D17FC7085DAC714D63154E4448D889A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1361288   (957074) от 18.02.2020
+
+VA - The Seeds Of Love Vol.1 (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Guenter Haas - Look Inside Yourself (2K19 Mix)
+02. Marco Moli - Black Bird
+03. Sunset Boulevard Project - Follow the Rainbow (feat. Marc Hartman)
+04. Michael E - Theme from a Pleasant Interlude(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8292C8BBC47E94E5D205CE81914552F2E440CDBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 624363   (952181) от 28.02.2013
+
+Christophe Goze - A Day In Ibiza 2 (2012) [FLAC (tracks+cue)|Lossless]<Lounge, Chillout>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_952181.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Close To You
+02. Someday I Wil
+03. Moonlight
+04. A New Beginning(   Читать дальше...   )Жанр: Lounge, ChilloutПродолжительность: 01:18:40
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1362320   (949506) от 23.02.2020
 
 Peter Pearson - Making Waves (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, Downtempo>
@@ -629,122 +745,6 @@ VA - Endless Summer: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:602C226A7A7067132FB635CB96832B8CB6FF203A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371739   (888710) от 01.04.2020
-
-Push Button Objects - Ghetto Blaster (2003) Chocolate Industries [FLAC|Lossless|tracks+.cue] <Conscious, Abstract Hip-Hop, Instrumental, Trip Hop>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hustlin (02:41)
-02. 360 Degrees (feat. Del Tha Funkee Homosapien/Mr. Lif) (03:40)
-03. Fly (feat. Akrobatik/Maintain/Vast Aire) (04:44)
-04. Interlude (03:41)(   Читать дальше...   )Жанр: Conscious, Abstract Hip-Hop, Instrumental, Trip HopПродолжительность: 00:47:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CE3D216702487694F840D579BA097370862CAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371309   (888580) от 01.04.2020
-
-Peter Pearson - Quantum of Dreams (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come Closer (5:55)
- 02. A Trip with the Stars (4:39)
- 03. A Glimpse of Blue (4:18)
- 04. Captivated (5:06)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, DowntempoПродолжительность: 01:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CFE566DB5B0997350859BFE7A0F528793653E67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372213   (885459) от 03.04.2020
-
-Peter Pearson - Dancing with the Clouds (2019) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Endless Dream (4:57)
- 02. Perdu Dans Tes Yeux (5:07)
- 03. Dancing with the Clouds (5:17)
- 04. The Night We Danced (3:51)(   Читать дальше...   )Жанр: Electronic, Chillout, Lounge, Smooth Jazz, Trip-Hop, DowntempoПродолжительность: 01:57:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70496B2C00C0C1BAE4A060882278B950BADB63D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1372483   (885437) от 03.04.2020
-
-VA - Trip to Paris Lounge: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_885437.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Butler - Romantic Paris (Original Mix) 02:28
-02. Iffar - Des Pois (Original Mix) 04:48
-03. Massimo Farao Trio - Round Midnight (Piano Jazz Trio, 05:20
-04. Andrea Beneventano - Soul Eyes 04:36(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16FEA9AE624673A1B57010EB64B5B24955D057CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

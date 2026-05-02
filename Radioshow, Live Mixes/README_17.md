@@ -1,3 +1,61 @@
+###  Публикация: 1837337   (256741) от 16.11.2025
+
+ARTBAT - Live @ Cercle Odyssey Paris, France (2025-05-29) [MP3|320 Kbps] <Techno, Melodic House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256741.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ARTBAT - Tabu
+02. ARTBAT & JOA - The Spot
+03. ARTBAT & Benny Benassi - Love Is Gonna Save Us
+04. ARTBAT - Dance(   Читать дальше...   )Жанр: Techno, Melodic HouseПродолжительность: 01:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3EE5AB49FDB13E7681FB6430A55F8D2D5E8B0AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1837007   (255881) от 14.11.2025
+
+VA - Ori Uplift - Uplifting Only Episode 666 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SouthDreamer – Miracle Of Life (Intro Mix) (Fan Favorite (664))
+02. Evebe ft. Danny Claire – Everything (Timo Pralle Remix)
+03. Mhammed El Alami – Dawn (Sunyella Remix) (Uplifting Classic)
+04. Ferry Tayle & Tonks pres. Mirage & Yolaine – Don’t Ever Let Go(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:00:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AB6BAD684584810EC7177A5CCD9BD837858F369
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1836997   (255877) от 14.11.2025
 
 VA - Armin van Buuren - A State Of Trance 1251 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -685,64 +743,6 @@ Lostly - Fav Tracks Mix (Mixed And Comliped By Jerbi) (2023) WebDLRip [MP3|320kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7CC27F7B2EAA2027B03B2CA633E4C754529E616C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1638625   (239017) от 09.06.2023
-
-VA - Armin van Buuren - A State Of Trance 1124 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239017.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lufthaus - Soul Seekers
-02. Chicane ft. Moya Brennan - Saltwater (AVIRA Remix)
-03. Eelke Kleijn - Transmission (Joris Voorn Remix)
-04. Perry O'Neil - Kubik(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:02:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:707D0012EEAF28CF4C03A9664BE251385EF04208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637063   (238404) от 03.06.2023
-
-VA - Armin van Buuren - A State Of Trance 1123 (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane feat. C-Systems & Hanna Finsen – Let The Universe Surround You (Extended Mix) (Modena)
-02. Trending Track: DJ Misjah & DJ Tim – Access (Joris Voorn Remix) (Armada)
-03. KASIA – Universal Nation (Sezer Uysal Remix) (Armada Electronic Elements)
-04. Armin Van Buuren & The Stickmen Project – No Fun (Goom Gum Remix) (Armada)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36E9A0F2B7CF05F8D9E9F4D641EE02604D7D1276
 ```
 
 https://mybot314.ru/tekegram_catalog/

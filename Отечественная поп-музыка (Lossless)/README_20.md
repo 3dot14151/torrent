@@ -1,3 +1,32 @@
+###  Публикация: 1681242   (132967) от 02.12.2023
+
+VA - 1993% ХИТОВ (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132967.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. IOWA - Фотография 9x12
+2. CHEBANOV - Солдат любви
+3. Zivert - Я куплю тебе дом
+4. Mirèle - Поздравляю(   Читать дальше...   )Жанр: PopПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:384737BED54A60BEEC47941AC8636E9F8466CFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682470   (131489) от 07.12.2023
 
 Катя Суржикова – Не спи, дорогой! (1997) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -698,32 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84B29F1DD089DC70139609429CF8EC8B2FBBD51F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700147   (117202) от 16.02.2024
-
-Мария Ермакова - Мы разбиваемся (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117202.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Мы разбиваемсяЖанр: PopПродолжительность: 00:02:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:16F7859FA795686C4551B4C599B208C42FCEA5A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

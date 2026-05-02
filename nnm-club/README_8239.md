@@ -1,22 +1,22 @@
-###  Публикация: 788248   (734516) от 21.05.2014
+###  Публикация: 1522467   (736892) от 28.01.2022
 
-Уцелевший / Lone Survivor (2013) BDRemux [1080p]
+Долгая идиотская дорога / The Long Dumb Road (2018) BDRip [H.264/720p] [MVO]
 
 >>Зарубежное кино
 >>Зарубежные Фильмы (HD, FHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734516.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736892.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Афганистан, 2005 год. Команда американских спецназовцев получает задание обезвредить известного лидера талибов Ахмада Шаха. Попав в ловушку, солдаты принимают неравный кровопролитный бой, и все они погибают героями. Все, кроме одного. Для уцелевшего Маркуса Латтрела бой только начинается: он любой ценой должен выжить и пробраться к «своим». Когда почти всё потеряно, (   Читать дальше...   )Производство: США / Closest to the Hole ProductionsЖанр: Военный, боевик, драмаРежиссер: Питер Берг / Peter BergАктеры: Марк Уолберг, Тейлор Китч, Эмиль Хирш, Бен Фостер, Юсуф Азами, Али Сулиман, Эрик Бана, Александр Людвиг, Рич Тинг, Дэн БилзерианПеревод: Дублированный, Одноголосый закадровый (авторский)Язык субтитров: Русский, английский (forced, full)Продолжительность: 02:01:20
+Девятнадцатилетний фотограф Натан покидает родительский дом и отправляется в лос-анджелесский художественный колледж, надеясь, что обучение там поможет ему найти свое призвание. Когда в дороге машина парня ломается, рядом оказывается бродячий механик Ричард, который обещает починить неисправность, если Натан довезёт его до ближайшей автостанции. Так и начинается (   Читать дальше...   )Производство: США / Gamechanger Films, Pretty Good Films, Ten Acre FilmsЖанр: комедияРежиссер: Ханна Фидель / Hannah FidellАктеры: Тони Револори, Дэвид ДеЛао, Лора Каннингэм, Джейсон Манцукас, Дерек Блэкни, Лиэнн Линч, Карсон Д. Мелл, Сиэра Браво, Кейси Уилсон, Таисса ФармигаПеревод: профессиональный многоголосый (HDRezka Studio)Субтитры: английскиеПродолжительность: 01:30:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0FB1EA99BD189E8D8659DCFDF5EDC42D212E8A8
+magnet:?xt=urn:btih:E6DC0F4BCCEB1B3DBBE6DE082417E680BF0DC4DB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,25 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 788517   (734510) от 21.05.2014
+###  Публикация: 1527532   (736891) от 28.01.2022
 
-ESET Smart Security 7.0.317.4 RePack by SmokieBlahBlah (x86/x64) [Ru]
+Acoustica Premium Edition 7.3.25 (x64) RePack (& Portable) by 9649 [Ru/En]
 
->>След.
+>>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-ESET Smart Security 7 поможет сделать работу в интернете максимально защищенной и безопасной. Надежное распознавание всех видов угроз и высокая скорость сканирования стали возможными благодаря сочетанию новых «облачных» технологий и интеллектуальной расширенной эвристики ThreatSense.
+Acoustica Premium Edition - профессиональная программа, которая позволит на высоком уровне вести аудио запись, редактирование и мастеринг. Хочется отметить интуитивно понятный интерфейс в котором приятно работать. Он был разработан таким образом, чтобы вы максимально быстро могли в нем освоится и приступить к работе, получая доступ к мощным инструментам. Все аудио (   Читать дальше...   )Язык интерфейса: Русский, Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:67A8123FF8127B4950B6D8531A6CCB515D943758
+magnet:?xt=urn:btih:9A39744623C0B3E0CCC7BBAEB1B50EE926437B76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -50,299 +50,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 788462   (734508) от 21.05.2014
+###  Публикация: 1527296   (736890) от 28.01.2022
 
-Стартап (2014) DVDRip
-
->>Отечественное кино
->>Отечественные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734508.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как в России честно заработать своим умом? Как добиться успеха и утвердить свое имя в мире бизнеса? Чем жертвует и что приобретает человек, который много лет стремится к своей цели? История создания с нуля крупного российского поискового портала. 20 лет риска, трудов, надежды, 20 лет дружбы…Производство: РоссияЖанр: Биография, ДрамаРежиссер: Евгений ТкачукАктеры: Евгений Ткачук, Шамиль Хаматов, Иева Андреевайте, Семен Морозов, Эммануил Виторган, Андрей Соколов, Дмитрий Богдан, Вера Панфилова, Антон Шурцов, Андрей НазимовПеревод: Не требуется (русский)Субтитры: ОтсутствуютПродолжительность: 01:26:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA7D85C55C721F9139B33BB9F674F84603085F2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788201   (734502) от 21.05.2014
-
-Лего. Фильм / The Lego Movie (2014) WEB-DLRip
-
->>Мультфильмы
->>Зарубежные Мультфильмы 21-го века (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734502.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обычная лего-фигурка, ошибочно считающая себя фигуркой из элитного набора, соглашается присоединиться к походу против злого лего-диктатора, планирующего склеить вместе всю вселенную…Производство: Австралия, США, Дания / LEGO, Lin Pictures, Animal Logic, Warner Bros. PicturesЖанр: Фэнтези, Комедия, ПриключенияРежиссер: Фил Лорд, Кристофер МиллерАктеры: Крис Прэтт, Уилл Феррелл, Элизабет Бэнкс, Уилл Арнетт, Лиам Нисон, Морган Фриман, Элисон Бри, Дэвид Берроуз, Энтони Дэниелс, Чарли ДэйПеревод: ДублированныйСубтитры: ОтсутствуютПродолжительность: 01:40:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C0A2E6BCABD9377296964A0FEA26C52ACD24A39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 781082   (734490) от 21.05.2014
-
-Очень плохая училка / Bad Teacher (2014) WEB-DLRip [сезон 1, серии 1-4 из 13] To4ka (обновляемая)
-
->>Зарубежные сериалы
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734490.jpg" />
-</div>
-
-
-###  Подробнее
-
-В центре истории сексапильная разведенная матершинница, которая устроилась работать учительницей с целью найти нового мужа.Жанр: КомедияРежиссер: Адам Дэвидсон, Брайан Гордон, Питер Лоэр, Виктор Нелли мл., Фред Сэвэдж, Мэттью СонАктеры: Эри Грейнор, Сара Гилберт, Кристин Дэвис, Райан Хенсон, Дэвид Алан Грир, Кэйтлин КимболлПеревод: Многоголосый закадровый, любительский - To4kaПродолжительность: ~00:22:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF802A85A84B64CE69D313518F35E51A716D9D57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788509   (734488) от 21.05.2014
-
-ESET NOD32 Antivirus 7.0.317.4 RePack by SmokieBlahBlah (x86/x64) [Ru]
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734488.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET NOD32 7 гарантирует вашему  высокий уровень антивирусной безопасности. Простой и надежный вариант для базовой защиты ПК от вирусов, червей, троянских программ, шпионского, рекламного и потенциально опасного ПО, руткитов и фишинг-атак.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A99F5466B7AFD3D851E55318E687A9ED2A5E58FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 708790   (734486) от 21.05.2014
-
-Сверхъестественное / Supernatural (2013) HDTVRip [сезон 9, серия 1-23 из 23] Kerob
-
->>3
->>След.
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сериал рассказывает о приключениях братьев Сэма и Дина Винчестеров, которые путешествуют по Соединённым Штатам на чёрном автомобиле Chevrolet Impala 1967 года, расследуют паранормальные явления, многие из которых основаны на американских городских легендах и фольклоре, и сражаются с порождениями зла, такими как демоны и призраки. Как братья Винчестеры в очередной (   Читать дальше...   )Жанр: Ужасы, Фэнтези, ДетективРежиссер: Филип Сгриккиа, Джеймс Л. Конуэй, Питер ЭллисАктеры: Джаред Падалеки, Дженсен Эклс, Джим Бивер, Миша Коллинз, Марк Шеппард, Джеффри Дин Морган, Женевьев Падалеки, Синди Сэмпсон, Саманта Феррис, Митч ПиледжиПеревод: Одноголосый закадровый, любительский - KerobПродолжительность: ~00:42:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59D7961A61170D0F27FB7BEEFB2DF34A444F0715
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788555   (734485) от 21.05.2014
-
-ESET Smart Security + NOD32 Antivirus 7.0.317.4 RePack by SmokieBlahBlah [Ru]
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734485.jpg" />
-</div>
-
-
-###  Подробнее
-
-ESET NOD32 Antivirus 7 гарантирует вашему высокий уровень антивирусной безопасности. Простой и надежный вариант для базовой защиты ПК от вирусов, червей, троянских программ, шпионского, рекламного и потенциально опасного ПО, руткитов и фишинг-атак.
-
-ESET Smart Security 7 поможет сделать работу в интернете максимально защищенной и безопасной. Надежное распознавание (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:912784850C2BD60BA70A6AE48D1078C927B28CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 647823   (734484) от 21.05.2014
-
-Dishonored (2013) [Ru/En] (1.4/4dlc) Repack R.G. Механики [Game of the Year Edition]
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dishonored – увлекательный и необычный экшен, в котором вам предстоит перевоплотиться в наемного убийцу, владеющего потусторонними силами. В вашем распоряжении – гибкая боевая система, необыкновенные способности и обширный арсенал всевозможных устройств. В мире Dishonored все зависит от ваших действий, а последующие миссии определяются выбором, сделанным в ходе игры. (   Читать дальше...   )Тип издания: RepackРазработчик: Arkane StudiosЖанр: Action / 3D / 1st Person / StealthЯзык озвучки: АнглийскийЯзык субтитров: Русский, АнглийскийЯзык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D960126C7828B5D48DA336536936B47E559D13A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528468   (734482) от 02.02.2022
-
-VA - Unlockations (2020) [AAC|~330 Kbps] <Deep House, Organic House>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Hearts - Balance Bird (Original Mix) (9:48)
-02. Birds of Mind - Orissa (Original Mix) (6:46)
-03. Lauge, Alvaro Suarez - Nordic Skies (Original Mix) (7:52)
-04. Death On The Balcony - How Many Roads (Original Mix) (9:26)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:19:34
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528470   (734481) от 02.02.2022
-
-VA - Unlockations, Vol. 2 (2021) [AAC|~331 Kbps] <Deep House, Organic House>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734481.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nodo - Secret Valley (6:26)
-02. Mundos Sutis - What Do You Picture (7:18)
-03. Mule Arg - Reikishi (7:52)
-04. Marian (AR) - Ancient Soul (7:12)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:16:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528471   (734480) от 02.02.2022
-
-VA - Unlockations, Vol. 3 (2021) [AAC|~322 Kbps] <Deep House, Organic House>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734480.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nodo - Murmur (6:56)
-02. Niko Garcia - Forgiveness (8:09)
-03. Peshta Gora - Gde to Tam (7:32)
-04. Ilias Katelanos - Spring Dayz (6:59)(   Читать дальше...   )Жанр: Deep House, Organic HouseПродолжительность: 01:14:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528472   (734479) от 02.02.2022
-
-VA - Lo-Fi Dose to Chill: Chillout Your Mind (2022) [AAC|~321 Kbps] <Lounge, Chill Out, Downtempo, Lo-Fi>
+VA - Pop Nostalgia (Popular Songs From The Past Revisited) (2022) [AAC|~319 Kbps] <Jazz, Nu Jazz, Lounge, Pop, Easy Listening>
 
 >>Аудио и Видео
 >>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734479.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Living Room - Holy Moly – That's a Groove (3:08)
-02. Digby Jones - Mr Big (Original Mix) (4:40)
-03. Patiotic - Acoustic Brain (1:59)
-04. Dellasollounge - Don't Go (Original Mix) (2:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, Downtempo, Lo-FiПродолжительность: 00:55:27
+01. Ely Bruna, Papik - Feelings (4:09)
+02. Ohm Guru, Agrado - Rocket Man (5:13)
+03. Erika Scherlin - Save A Prayer (4:04)
+04. Neja - Last Night a DJ Saved My Life (3:58)(   Читать дальше...   )Жанр: Jazz, Nu Jazz, Lounge, Pop, Easy ListeningПродолжительность: 01:45:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CA4C88D93884B3A29C6B6915A4D803CB96C70476
+magnet:?xt=urn:btih:D322B1F6BFA9B26EF4932E6C7E090F0861AF7C3F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -350,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528463   (734478) от 02.02.2022
+###  Публикация: 1522458   (736889) от 28.01.2022
 
-Darpan & Bhakta - Temple of Glowing Sound, Vol. 2 (2006) [AAC|~314 Kbps] <Tribal, Downtempo, Trance>
+Долгая идиотская дорога / The Long Dumb Road (2018) BDRip [H.264] [MVO]
 
->>нет
->>нет
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_734478.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Astral Flight (4:57)
-02. Telepathine (4:36)
-03. Axis Mundi (9:35)
-04. Neural Pathways (3:07)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:51:29
+Девятнадцатилетний фотограф Натан покидает родительский дом и отправляется в лос-анджелесский художественный колледж, надеясь, что обучение там поможет ему найти свое призвание. Когда в дороге машина парня ломается, рядом оказывается бродячий механик Ричард, который обещает починить неисправность, если Натан довезёт его до ближайшей автостанции. Так и начинается (   Читать дальше...   )Производство: США / Gamechanger Films, Pretty Good Films, Ten Acre FilmsЖанр: комедияРежиссер: Ханна Фидель / Hannah FidellАктеры: Тони Револори, Дэвид ДеЛао, Лора Каннингэм, Джейсон Манцукас, Дерек Блэкни, Лиэнн Линч, Карсон Д. Мелл, Сиэра Браво, Кейси Уилсон, Таисса ФармигаПеревод: профессиональный многоголосый (HDRezka Studio)Субтитры: английскиеПродолжительность: 01:30:40
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:56E7FB49C6D6B6B9CE216056BFEF99E8B75FBB0E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -379,28 +105,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528458   (734477) от 02.02.2022
+###  Публикация: 1527455   (736888) от 28.01.2022
 
-Bhakta - India all Over (2003) [AAC|~291 Kbps] <Tribal, Downtempo, Trance>
+Dependency Walker 1.4.1 [En]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734477.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Om Namo (5:24)
-02. The Wheel (4:36)
-03. That Secret Word (4:02)
-04. Lord Shiva (4:10)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 01:06:44
+Dependency Walker — это утилита, которая сканирует любые 32-битные или 64-битные исполняемые файлы Mach-O (исполняемые, то есть dylib или kext) любых архитектур (i386, x86_64, ppc, ppc64, arm и arm64) и строит иерархическую древовидную диаграмму всех зависимых модулей. Для каждого найденного модуля в нем перечислены все функции, которые экспортируются этим модулем, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 19.06.2015Разработчик: © 2013-2015 Little Big Monster Inc.Поддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6300E381C3D8F5A0E2EB6EC755FE5030B3BC206A
+magnet:?xt=urn:btih:ED17C70049B9890AD4A0CBCBD4F85C1229AAE992
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -408,28 +131,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528462   (734476) от 02.02.2022
+###  Публикация: 1527405   (736887) от 28.01.2022
 
-Darpan & Bhakta - Temple of Glowing Sound, Vol. 1 (2006) [AAC|~341 Kbps] <Tribal, Downtempo, Trance>
+Горбун из Сохо / Der Bucklige von Soho (1966) BDRip [H.264]
 
->>Аудио и Видео
->>Музыка (AAC)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734476.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736887.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blessing (1:55)
-02. Om Tara (5:06)
-03. Reflections (5:44)
-04. Jai Ma (4:12)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:53:53
+21-й фильм кинокомпании Rialto по произведениям Эдгара Уоллеса.
+В Лондон для получения крупного наследства приезжает молодая американка. Вскоре ее похищают. В это же время в доме для перевоспитания девиц легкого поведения происходит серия загадочных убийств. За расследование берется инспектор...
+20-й фильмПроизводство: Германия (ФРГ) / Rialto Film, Rialto Film Preben-PhilipsenЖанр: Ужасы, Триллер, КриминалРежиссер: Альфред ФорерАктеры: Гюнтер Штоль, Пинкас Браун, Моника Пайч, Зигфрид Шюренберг, Агнес Виндек, Гизела Улен, Хуберт фон Майеринк, Ута Левка, Сюзанна Рокетт, Иоахим Теге, Эдди Арент, Хильда ЗессакПеревод: Многоголосый профессиональныйСубтитры: АнглийскиеПродолжительность: 01:30:02
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E68889A0D6C793889DDCB33298CA10076E4C6C2C
+magnet:?xt=urn:btih:82A5AC27123C407F169A9AE15FFE0E7BD14C2A1C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -437,230 +159,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528465   (734475) от 02.02.2022
+###  Публикация: 1527516   (736886) от 28.01.2022
 
-VA - Ibiza Live Radio 2 (2019) [AAC|~318 Kbps] <Chill Out, Downtempo, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marga Sol - Crystal Light (Original Mix) (5:48)
-02. Helly Larson, Miss Disk - Deep Dreams (Original Mix) (6:58)
-03. Darles Flow - Myth of Living (Original Mix) (6:18)
-04. Miss Luna, Q Derhino - Welcome to the Family (Original Mix) (6:33)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Deep HouseПродолжительность: 01:32:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFCF09AFD17104F060B339B78828F6BA7FDF470
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528459   (734474) от 02.02.2022
-
-Bhakta - Snow on Venus (2003) [AAC|~345 Kbps] <Tribal, Downtempo, Trance>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Traveling Snowflake (1:39)
-02. Bhakta, Chirag - Unknown Territory (6:57)
-03. Manish, Bhakta - Snow on Venus (12:40)
-04. Nadama, Bhakta - Falling Leaf (4:55)(   Читать дальше...   )Жанр: Tribal, Downtempo, TranceПродолжительность: 00:56:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F14F4800BE8DE48A4A29DD4ACA6004B1CA3F773
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528464   (734473) от 02.02.2022
-
-VA - Ibiza Live Radio 1 (2018) [AAC|~326 Kbps] <Chill Out, Downtempo, Deep House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CarolinaBlue & MisterSmallz - Free Your Mind (Original Mix) (8:04)
-02. Lenny Fontana, D-Train - When You Feel What Love Has (NYC Deeper Dubb Mix) (7:31)
-03. Miss Luna - Move with You (Original Mix) (5:52)
-04. Mathew Brabham, DJ Nasty Deluxe - In the Jungle (Marga Sol & Darles Flow Remix) (5:46)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Deep HouseПродолжительность: 01:39:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:244FD40FF04CC50A61BE066D8F9C6200D45BECCF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528466   (734472) от 02.02.2022
-
-VA - The Best of Lump Records (2020) [AAC|~320 Kbps] <Organic House>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Omerar Nanda - Some God Ruled It (7:20)
-02. Hot Oasis - Wadi Tarabin (7:31)
-03. Dandara - Mira La Luna (6:14)
-04. Jota Karloza - Om Kleem (7:26)(   Читать дальше...   )Жанр: Organic HouseПродолжительность: 02:32:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77534F3EB2C6A2F5A555D0C63F3AA223C0CDB4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528525   (734471) от 02.02.2022
-
-VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 4 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris le Blanc, Pat Lawson - Beyond the Sunsets (Ibiza Late Night Mix) (4:59)
-02. Jason Cabrera - Red Apple (Original Mix) (3:07)
-03. Gaba Milani - Open Your Eyes (Original Mix) (5:02)
-04. Las Dalias Ensemble - Sundown At Cafe del Mar (Original Mix) (3:51)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:21:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2AD6B20520329FBBB1486295E741A9BDE0E63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528523   (734470) от 02.02.2022
-
-VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 2 (2021) [AAC|~324 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734470.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefano Monza - People from Ibiza (Chill-Out Mix) (4:12)
-02. Mikis Theodorakis, Francesco Diaz - Desire (Chilling Chambers) (Original Mix) (4:26)
-03. Chill Out Hotel - Human (Original Mix) (5:24)
-04. Eva Pacifico - Caliente (Lenny Ibizarre Remix) (8:03)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:29:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ECD9347D7FEAF0C043A695F85212393F8559A55
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528524   (734469) от 02.02.2022
-
-VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 3 (2021) [AAC|~333 Kbps] <Lounge, Chill Out, Downtempo>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734469.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nolan Rivera - Farra (Original Mix) (4:02)
-02. Eskadet - Translation (Original Mix) (4:34)
-03. Mikis Theodorakis, Francesco Diaz - Remembering Zorbas (Original Mix) (5:08)
-04. Lazy Hammock - Star Soul (Original Mix) (7:52)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D87FD7F9E744442C476FDF823859502C63F4C9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528595   (734468) от 02.02.2022
-
-UctoX 2 v2.9 U2B [Multi]
+PrivaZer 4.0.40 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
->>Архив 4Apple
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734468.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736886.jpg" />
 </div>
 
 
 ###  Подробнее
 
-UctoX - это мощное приложение для выставления счетов, которое позволяет оставаться удобным для пользователей, предлагая широкий спектр функций для управления финансовыми отчетами.
-Управлять финансовыми документами вашей компании, отслеживать счета-фактуры, банковские выписки, инвестиции и многое другое, с помощью этого интуитивного приложения
-Если вы управляете малым (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2022Разработчик: © 1997–2022 Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский, Немецкий, Французский и др.
+PrivaZer - полезная утилита, которая поможет вам очистить компьютер от следов конфиденциальной информации. Она подготовит детальный отчет со списком всех обнаруженных следов, обнаруженных в реестре, истории посещений сайтов, cookies и т.п. Также PrivaZer предоставит вам возможность удалить все обнаруженные или выбранные объекты при помощи специальных алгоритмов. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:093A82465606563B78A914D6FBCF999F2150F149
+magnet:?xt=urn:btih:9BB960A663C83151D3899CE984D54869DE4FF8CC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,28 +185,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528488   (734467) от 02.02.2022
+###  Публикация: 1527240   (736885) от 28.01.2022
 
-Count Basie - Live At The Savoy (1954) 1989, LaserLight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+bimmer-tool expert v3.2.4 [Ru/Multi]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734467.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736885.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One O' Clock Jump [4:14]
-02. Dance Of The Gremlins [4:19]
-03. Basie Talk [3:59]
-04. Blee Blop Blues [2:53](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:19
+bimmer-tool позволяет читать и удалять коды неисправностей, восстанавливать DPF, считывать параметры двигателя и многое другое в автомобилях BMW.Тип издания: Пиратка (Paid)Релиз состоялся: 25 января 2022 г.Разработчик: bimmer-toolПоддерживаемая ОС: Android 4.2+Язык интерфейса: Русский / Multi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0A1828CA1F0527C2A642A124666B442F8A93F14
+magnet:?xt=urn:btih:7EDEA0CB192425B1BCF35F03F821F4CE426D5D60
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,28 +211,485 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1528521   (734466) от 02.02.2022
+###  Публикация: 1527433   (736884) от 28.01.2022
 
-VA - Beyond the Sunset (Selected Chill out Tunes), Vol. 1 (2021) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
+VA - Полигон Records. Лучшее 2021 [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мёртвые Осы - Не хватает света (3:41)
+02. Гребля - 777 (3:05)
+03. Lil Pussy - Балтика-9 (3:10)
+04. УРАГАН - Тахикардия (3:24)(   Читать дальше...   )Жанр: RockПродолжительность: 02:20:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1B507D24AE12C36E813A4BBEF02AF6E48BA8891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527452   (736883) от 28.01.2022
+
+HiBit Uninstaller 2.7.47 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736883.jpg" />
+</div>
+
+
+###  Подробнее
+
+HiBit Uninstaller - идеальное решение для удаления программ Windows, которое позволяет вам деинсталлировать программы быстро и полностью, используя простой и дружественный к пользователю интерфейс. Так же, в программе имеется множество средств для очистки и управления вашей системой.
+Удобной функцией в HiBit Uninstaller является удаления программ посредством менеджера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48E50FA8EA2697A1F350B12872D7341AD46DD356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527527   (736882) от 28.01.2022
+
+Process Lasso Pro 10.4.3.24 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7DA9973D95876633B3B15AFFE0604067A1FEEBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527158   (736881) от 28.01.2022
+
+Черный легион / Black Legion (1937) WEB-DL [1080p] ATV
 
 >>Аудио и Видео
->>Музыка (AAC)
+>>Зарубежное видео HD для устройств Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734466.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Maria Alvarez - Space (Terrace Mix) (8:53)
-02. Chuck Mertens - Moshy (Original Mix) (5:51)
-03. Benirras - Bora Bora (At Night Mix) (6:14)
-04. Jeffrey Campbell - Time (Original Mix) (4:07)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:30:21
+Фильм рассказывает о реально существовавшем «Черном Легионе», который был ответвлением Ку-клукс-клана и действовал в Соединенных Штатах Америки в 1930-х годах. Фрэнк Тейлор, работник завода в Детройте, присоединяется к «проамериканской» группировке, выступавшей против иностранцев и иммигрантов, занимавших рабочие места и обвиняя именно их в растущей безработице. (   Читать дальше...   )Производство: США / Warner Bros. PicturesЖанр: Фильм-нуар, драма, криминалРежиссер: Арчи МайоАктеры: Хамфри Богарт, Дик Форан, Энн Шеридан, Хелен Флинт, Джо Сойер, Алонсо Прайс, Пол Харви, Дики Джонс, Сэмюэл С. Хиндс, Эддисон Ричардс, Дороти ВонПеревод: Профессиональный одноголосыйСубтитры: АнглийскиеПродолжительность: 01:23:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A6D75006A09FCFF87055EAD56A664E2FC4CF0C18
+magnet:?xt=urn:btih:6DB2DB49F20DECD36CA02B3B10C6581F6C7FC48D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527299   (736880) от 28.01.2022
+
+Ищейка (2021) WEBRip [H.264/1080p-LQ] (сезон 6, серии 1-16 из 16)
+
+>>Отечественные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736880.jpg" />
+</div>
+
+
+###  Подробнее
+
+В жизни полковника Кушнир все хорошо. Она талантливо расследует самые сложные дела вместе со своей профессиональной командой, а семейная жизнь радует гармонией и планированием второго ребенка. Однако неожиданная проблема с мужем рушит все надежды, снова открывает, казалось бы, уже навсегда закрытые двери и ставит Александру перед непростым выбором. Но именно благодаря (   Читать дальше...   )Производство: Россия | «Star Media»Жанр: ДетективРежиссер: Андрей ГоловковАктеры: Анна Банщикова, Александр Макогон, Владислав Павлов, Эдуард Чекмазов, Владимир Николенко, Анатолий Гущин, Ирина Пулина, Дмитрий Миллер, Денис Бургазлиев, Анатолий КотПродолжительность: ~00:51:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E4718694D7ED14738DC424AE727D27710006B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527273   (736879) от 28.01.2022
+
+Armin van Buuren - Imagine (2008) 2LP Reissue 2021 [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] ] <Trance, Progressive Trance>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736879.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Armin van Buuren - Imagine
+ A2. Armin van Buuren - Going wrong (with Dj Shah feat. Chris Jones)
+ B1. Armin van Buuren - Unforgivable (feat. Jaren)
+ B2. Armin van Buuren - Face to face(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9931F04827987327DCDE77C50042EC63C316FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527522   (736878) от 28.01.2022
+
+Яндекс.Браузер 22.1.2.833 / 22.1.2.834 (x32/x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736878.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фирменный браузер от компании Яндекс, созданный на базе Chromium. Обладает рядом полезных функций: ускоренная загрузка страниц при медленном соединении с Интернетом, быстрый доступ к наиболее часто посещаемым страницам, наличие умной поисковой строки, надежная защита от вирусов, интегрированный переводчик, перенос настроек и закладок из других браузеров и пр.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DA3CC849DBC351366C0D1CCCB43B9D5DB0DB23E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527207   (736877) от 28.01.2022
+
+Steve Vai - Inviolate (2022) [FLAC 2.0|96/24|tracks|WEB-DL] <Instrumental Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Teeth of the Hydra (5:13)
+02. Zeus in Chains (4:39)
+03. Little Pretty (6:26)
+04. Candlepower (3:31)(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:46:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85A521668CEE9F84254B6D4F5A41A7B28B2527B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527332   (736876) от 28.01.2022
+
+Крылышко или ножка / L'aile ou la cuisse / The Wing or The Thigh? (1976) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Главный герой мсье Дюшемен - респектабельный составитель ежегодного справочника-путеводителя по ресторанам. Авторитет его книги настолько высок, что все рестораны в Париже и его окрестностях стремятся предстать на ее страницах в выгодном свете. Это очень трудно, поскольку Дюшемен всё время сам обходит все заведения, переодеваясь, чтобы оставаться неузнанным. Единственное (   Читать дальше...   )Производство: Франция, Les Films Christian FechnerЖанр: комедияРежиссер: Клод ЗидиАктеры: Луи де Фюнес, Колюш, Энн Захариас, Жюльен Гиомар, Клоди Жансак, Жорж Шамара, Жан Мартен, Фернан Гио, Жерар Букарон, Антуан МаренПеревод: профессиональный многоголосый (НТВ), авторский (Максим Латышев)Субтитры: французскиеПродолжительность: 01:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89BDFE05FBDE6D7372249190FCB9E516CBA0D749
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527523   (736875) от 28.01.2022
+
+Perfectly Clear WorkBench 4.0.1.2226 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Perfectly Clear WorkBench позволяет всего за пару кликов мыши откорректировать фотографии до совершенного вида в автоматическом режиме, а также исправлять их в ручном режиме.
+Традиционные методы исправления изображений не всегда приводят к желаемому результату. Данный продукт заслуживает вашего внимания, чтобы доверить ему автокоррекцию своих фото с бесценными воспоминаниями. (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:380BFC58F2D355B663E3DF57ECFE9A5AAEFE715D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527460   (736874) от 28.01.2022
+
+WinMerge 2.16.18 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736874.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinMerge является Open Source инструментом сравнения и слияния для Windows. WinMerge может сравнивать как файлы (Windows, Unix и Mac), так и папки, отображая различия в визуальной текстовой форме, которые легко понять и обработать.
+WinMerge является весьма полезной для определения мест, которые изменились между версиями проекта, а затем она позволяет объединять изменения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C291CEB5503CBB3E276158C0382270D3E06C88F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527328   (736873) от 28.01.2022
+
+Г.М.О. - Под водочку (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736873.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Революционер
+2. Дурдом
+3. Напьюсь
+4. Какой ты панк?(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:24:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1AE536E77A69E2811B236F607A63E6EC314129
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527327   (736872) от 28.01.2022
+
+Андрей Макаревич - Идиш джаз, Часть 3 (2022) [MP3|320 Kbps] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736872.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Андрей Макаревич/Алина Ростоцкая - La Rosa Enflorece
+2. Андрей Макаревич/Феликс Шиндер - Dzhankoye
+3. Андрей Макаревич/Константин Гевондян - Levine, with Your Flying Machine
+4. Андрей Макаревич/Лера Гехнер - Glory Shelakhmones Hitlern(   Читать дальше...   )Жанр: JazzПродолжительность: 00:40:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8757C8807D66A2505AA0A4193CFC55A45D91E3AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527291   (736871) от 28.01.2022
+
+Алиса в стране чудес: зазеркалье Льюиса Кэрролла / Initiation of Alice in wonderland: The looking glass of Lewis Carroll (2009) DVB
+
+>>Документалистика и Телепередачи
+>>История
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736871.jpg" />
+</div>
+
+
+###  Подробнее
+
+Белые Кролики, Королева, белые и алые розы, безумный Шляпник, колдовство и головоломки навсегда стали символами Зазеркалья. Льюис Кэрролл был загадочный человек, который создал волшебную и сюрреалистическую страну, населенную персонажами из глубин своего воображения. Были ли это просто фантазии для развлечения детей или что-то гораздо более глубокое? Фильм исследует (   Читать дальше...   )Производство: США, Reality Films ProductionsЖанр: документальный, биографияРежиссер: Филип ГардинерПеревод: одноголосый профессиональный (СВ-Дубль)Субтитры: отсутствуютПродолжительность: 01:01:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA924F43D64CB56CAFFF7A29D762BF5D3F2BD216
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527276   (736870) от 28.01.2022
+
+Аллея кошмаров / Nightmare Alley (2021) CamRip [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_736870.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мошенник Стэн Карлайл объединяется с женщиной-психиатром, чтобы обманывать людей под видом чтения их мыслей.Производство: США, Мексика / Fox Searchlight Pictures, TSG EntertainmentЖанр: Триллер, драма, криминалРежиссер: Гильермо дель ТороАктеры: Брэдли Купер, Кейт Бланшетт, Тони Коллетт, Уиллем Дефо, Ричард Дженкинс, Руни Мара, Рон Перлман, Дэвид Стрэтэйрн, Мэри Стинберген, Марк ПовинеллиПеревод: ДублированныйЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 02:19:56Реклама: Присутствует баннер!
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527467   (736869) от 28.01.2022
+
+AutoRuns 14.08 Portable [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736869.jpg" />
+</div>
+
+
+###  Подробнее
+
+AutoRuns - утилита для контроля автозагрузки программ. Она позволяет увидеть, какие программы настроены на запуск в процессе загрузки или входа в систему, причем эти программы отображаются именно в том порядке, в каком система Windows обрабатывает их. Это относится к программам, находящимся в папке автозагрузки или прописанным в разделах реестра Run, RunOnce и других. (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29AB934D14FCEFB5038C6AA0A4B10EB72C98040
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527450   (736868) от 28.01.2022
+
+Невидимый / The Unseen (2016) WEBRip [H.264/720p-LQ] [MVO] [AD]
+
+>>Остальное
+>>Фильмы с Рекламой
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнав о своей болезни, связанной с полной потерей пигментации кожи, Боб Лэнгмор понимает, что если его секрет будет широко известен, это разрушит жизнь всей его семьи. Не зная, что делать, он просто сбегает от жены Дарлин и дочери Евы, уединившись в небольшом северном городке. Спустя 8 лет, когда его дочь пропадает без вести, Боб готов пожертвовать всем, чтобы отыскать (   Читать дальше...   )Производство: Канада, Goonworks Films, Telefilm CanadaЖанр: ужасы, фантастика, боевик, триллер, драмаРежиссер: Джофф РеднапАктеры: Аден Янг, Камилль Салливан, Джулия Сара Стоун, Бен Коттон, Макс Чедберн, Элисон Арая, Максвелл Хэйнс, Курт Остланд, Юджин Липински,  Николас БаричПеревод: Многоголосый профессиональный (Синема УС)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:46:06Реклама: присутствуют аудио и видео вставки рекламы
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B190CE82C01DA8E4A4794E9CA933B479CABD7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1527414   (736867) от 28.01.2022
+
+Большой красный пес Клиффорд / Clifford the Big Red Dog (2021) BDRemux [H.264/1080p]
+
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда школьница Эмили получает в подарок от спасателя животных очаровательного щенка с красной шерстью, она и представить не может, что на утро обнаружит в своей маленькой нью-йоркской квартирке огромного трёхметрового пса! Мама в командировке, поэтому самые захватывающие и необыкновенные приключения ждут Эмили и ее веселого и порывистого дядю Кейси. Клиффорд научит (   Читать дальше...   )Производство: Канада, США / Paramount Pictures, Entertainment One, Kerner Entertainment CompanyЖанр: Фэнтези, комедия, приключения, семейныйРежиссер: Уолт БекерАктеры: Джек Уайтхолл, Дэрби Кэмп, Сиенна Гиллори, Дэвид Алан Грир, Джон Клиз, Расселл Вонг, Айзек Ванг, Тони Хейл, Оратио Санс, Пол РодригесПеревод: Дублированный, Любительский (двухголосый закадровый)Субтитры: Русские (Forced, 2x Full), Украинские (Forced, Full), английские (Full, SDH)Продолжительность: 01:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5A84341FC10AB57054A83AAB63E0759AC7073D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

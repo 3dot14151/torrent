@@ -1,3 +1,81 @@
+###  Публикация: 811717   (578044) от 10.08.2014
+
+Проекты - VideoHive - Tornado Energy - 4098853 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578044.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектной демонстрации вашего логотипа или слогана, в котором он появляется из торнадо.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0AB45EB76785F6978FC3CDE53185F8A0387E279
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150332   (577431) от 16.07.2017
+
+Проекты - VideoHive - Flame Logo - 20039231 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577431.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектной демонстрации логотипа в экстравагантном стиле.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2805EE0DD29519FA1E4B041E66ACA10658BC2E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 920355   (576764) от 24.07.2015
+
+Проекты - VideoHive - Multi Photo Logo Intro [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576764.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект с фотографиями для начала клипа, заставки.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0879C6BA0D99626AC257637B0B18D0928D35922E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1042895   (575978) от 14.08.2016
 
 Проекты - VideoHive - Energy Logo - 17210247 [AEP]
@@ -597,84 +675,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EFF1E361A25319184B2F32184BA51417EDBC08D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922875   (566259) от 30.07.2015
-
-Проекты - VideoHive - Big Booom Particles [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566259.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шаблон для оригинального появления логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8615F05B9C7D709FBF83734F8A662F7A3A6B0B51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922568   (566198) от 30.07.2015
-
-Проекты - VideoHive - Organic Particle Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания Вашего логотипа. Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA08522D24F79F7A589E0C9DA58BFB7733E60ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922932   (566192) от 30.07.2015
-
-Проекты - VideoHive - Clean Hand Opener [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566192.jpg" />
-</div>
-
-
-###  Подробнее
-
-В протянутой к зрителю открытой руке - ваш логотип. Легко и спокойно испытайте проект в своих работахФормат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8441E104583FDAA50C34AD42216A5547BC40BC00
 ```
 
 https://mybot314.ru/tekegram_catalog/

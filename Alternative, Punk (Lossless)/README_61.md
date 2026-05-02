@@ -1,3 +1,61 @@
+###  Публикация: 1595135   (176283) от 04.12.2022
+
+Synestia - Maleficium (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deathcore, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176283.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Maleficium
+2. Burial Hymn (feat. Alan Grnja)
+3. Empyrean Skies (feat. Dan Tucker)
+4. Scarlet Moon(   Читать дальше...   )Жанр: Symphonic Deathcore, MetalcoreПродолжительность: 00:48:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E43A812FCF5024C64A3156186568EAC9503A72CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1667505   (176092) от 09.10.2023
+
+Killing Joke - The Great Gathering - Live At Brixton Academy (2016) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Industrial>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Hum (Live) [00:04:46]
+02. Love Like Blood (Live) [00:06:16]
+03. Eighties (Live) [00:02:47]
+04. Autonomous Zone (Live) [00:06:09](   Читать дальше...   )Жанр: Post-Punk, IndustrialПродолжительность: 01:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583DEBEB7FE6BA57284055E00CCF1CFA6D0D0B87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1595333   (175701) от 05.12.2022
 
 Paul Bartolome - Reflections (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
@@ -684,64 +742,6 @@ Liedfett - Hi! (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Deutschrock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7752D25C40E82B9E11EF903B90473A7A9F1C5B53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672744   (168212) от 29.10.2023
-
-Magnolia Park - Halloween Mixtape II (2023) [FLAC|Lossless|WEB-DL|tracks] <Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168212.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The End: Emo Nite Rhapsody [00:03:50]
-02. Antidote [00:03:11]
-03. Breathing [00:03:03]
-04. Do Or Die [00:02:48](   Читать дальше...   )Жанр: Pop PunkПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AD5E4E971DFB38B9BD6A8F663762FDBCD39DA75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672566   (168140) от 29.10.2023
-
-Closure In Moscow - Soft Hell (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Progressive Rock, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_168140.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaeger Bomb [00:03:58]
-02. Primal Sinister [00:03:28]
-03. Absolute Terror Field [00:03:39]
-04. Better Way [00:04:19](   Читать дальше...   )Жанр: Alternative Rock, Progressive Rock, ExperimentalПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC0CEBA16F463EBA4E594EBB40E54D821FBA0D5
 ```
 
 https://mybot314.ru/tekegram_catalog/

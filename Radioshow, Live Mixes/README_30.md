@@ -1,3 +1,61 @@
+###  Публикация: 1750473   (42936) от 20.09.2024
+
+VA - Armin van Buuren - A State Of Trance 1191 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42936.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren ft. Louis III – Part Of Me (Tune Of The Week)
+02. Han Beukers – Portitxol Sunset
+03. Gaia – Tuvan (Mëlbëc Remix)
+04. Ahmed Helmy – Apocalypto(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7407614EF0E962FD37F0EDBED0F5D7101FDFAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751792   (42206) от 27.09.2024
+
+VA - Armin van Buuren - A State Of Trance 1192 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Armin van Buuren – Pulstar (Tune Of The Week)
+02. Daniel Wanrooy – Lost Lake
+03. Protoculture – Viper (Progressive Pick)
+04. Coeus – Armageddon(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB0513AEF884B9F904298BEAB72C19315F7297CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1729759   (42035) от 29.09.2024
 
 Yotto - Odd One Out Radio (001-017) (2024) [MP3|320 Kbps] <Progressive House, Melodic House, Techno>
@@ -683,64 +741,6 @@ VA - Armin van Buuren - A State Of Trance 1209 (2025) [MP3|320 Kbps] <Trance, Pr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E65E97CE93DE7829C3721BD659F07D89AC82EBE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792038   (21237) от 16.04.2025
-
-Tiesto - Live @ Quasar Stage, Coachella Festival Weekend 1, United States (2025-04-13) [MP3|320 Kbps] <Dance, Electro Pop, Melodic House, Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tiësto - ID
-02. Tiësto - ID w/Cannons - Fire For You (Acappella)
-03. Tiësto - ID
-04. The Marías - No One Noticed (Tiësto Remix)(   Читать дальше...   )Жанр: Dance, Electro Pop, Melodic House, TechnoПродолжительность: 01:30:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D888C002D9AFF855F6FB6F25B2148B111E5EB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792045   (21211) от 16.04.2025
-
-Vintage Culture - Live @ DNA Art Car, Arena Open Camboriu, Brazil (2025-03-02) [MP3|320 Kbps] <Tech House, Melodic House/Techno>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTBAT & Vintage Culture - She The Last One (Vocal Edit)
-02. Vintage Culture - ID
-03. JØRD - Daydream
-04. Cafius - Lost Time(   Читать дальше...   )Жанр: Tech House, Melodic House/TechnoПродолжительность: 05:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CBD5F88FA61F0A3F5395DEB227EC86810CC7F5F
 ```
 
 https://mybot314.ru/tekegram_catalog/

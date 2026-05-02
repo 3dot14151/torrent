@@ -1,3 +1,61 @@
+###  Публикация: 1027458   (696534) от 19.06.2016
+
+Thomas Wander & Harald Kloser - Independence Day: Resurgence / День независимости Возрождение (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696534.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Traveling Through Space (01:26)
+02. Great Speech (01:37)
+03. Hostile Territory (01:23)
+04. How Did They Get the Lights On? (01:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DDF1AB3B561099579F9175035136A542893C1F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027402   (696528) от 19.06.2016
+
+VA - The Nice Guys / Славные парни (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temptations – Papa Was a Rollin’ Stone (06:58)
+02. Kool & The Gang – Get Down On It (04:54)
+03. Taste of Honey – Boogie Oogie Oogie (05:32)
+04. Earth, Wind & Fire – September (03:35)(   Читать дальше...   )Жанр: Soundtrack (Dance / Disco / Pop / R'n'B)Продолжительность: 01:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D61DD6A0689687CF3CA7132470A89EA9FE3FA35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1027961   (692964) от 21.06.2016
 
 Power Glove - Trials Of The Blood Dragon (Original Game Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
@@ -687,70 +745,6 @@ VA - Baywatch / Спасатели Малибу (Music From The Motion Picture) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CE8FA1C0CF4EFC2006F5976FBB641C14AE843BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1028799   (671839) от 01.07.2016
-
-VA - The Witcher (Collection Original Soundtrack) (2008-2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_671839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marcin Przybylowicz - Blood and Wine (02:57)
-02. Mikolai Stroinski - Fanfares and Flowers (03:11)
-03. Piotr Musial - For Honor! for Toussaint! (02:04)
-04. Piotr Musial - Blood Run (02:01)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 07:11:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BA2888041D1BA1B8C17FFCFEE21C8E254FD0EAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 510072   (670316) от 14.06.2012
-
-Kitchen - Кухня (2008) [MP3|256 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_670316.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Black Grass - Yesterday's gone (4:42)
-2. Free The Robots - Yoga Fire (2:56)
-3. Clark - Vengeance Drools (3:41)
-4. Dj Shadow - This Time (3:07)
-5. Kno (of Cunninlynguists) - My First Song (3:10)
-6. Amon Tobin - Get Your Snack On (4:22)
-7. CunninLynguists - Hellfire (2:29)
-8. Ministry - Jesus Built My Hotrod (4:52)
-9. Damian Marley - Something For You(One Loaf of Bread) (3:17)
-10. DJ Krush - Song for John Walker (feat. Anticon) (Sticky mix) (5:33)2008Жанр: SoundtrackПродолжительность: 00:38:13
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1578417   (343535) от 24.09.2022
+
+Kings Of Mercia - Kings Of Mercia (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wrecking Ball [00:03:54]
+02. Humankind [00:04:13]
+03. Sweet Revenge [00:04:38]
+04. Set the World on Fire [00:04:16](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67D5E441603770549E33C9E15808563CC908778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578623   (343525) от 24.09.2022
+
+Talas - 1985 (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343525.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inner Mounting Flame
+02. I'll Take The Night
+03. Crystal Clear
+04. Don't Try To Stop Me Tonight(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E997A245ACE515C92E08ABAF7A4612F73C0DDBB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1330244   (343522) от 09.10.2019
+
+Tom Keifer Band (ex-Cinderella) - Rise (2019) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343522.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touching The Divine
+02. The Death Of Me
+03. Waiting On The Demons
+04. Hype(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1D1466B3D16AB584F05729EC7E7E8793870AE6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1578507   (343192) от 24.09.2022
+
+Scream Taker - Kill The Beautiful (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kill The Beautiful
+02. Stone Cold
+03. Eternity
+04. Shattered Mirror(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:53:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40DB58863BCF6D67F095D315EE13D4DCE72657C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954052   (342384) от 07.11.2015
 
 Tony Carey - Live In Sweden 2006 Volume 1 (2006) [FLAC|image+.cue]<Classic Rock, Hard Rock>
@@ -630,122 +746,6 @@ Alliance - супергруппа сформирована в 1995 году в �
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F73FC3403F9E5D17D13C3B816339D3B3437122B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955682   (333699) от 11.11.2015
-
-Def Leppard - Def Leppard (2015) Limited Edition Fanpack [FLAC|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мы назвали новый альбом Def Leppard, в честь группы, потому что это название в полной мере отражает звучание альбома. Он не похож ни на одну эру группы Def Leppard, он похож на группу в целом. В нём есть всё. Вы послушаете его и подумаете, что он звучит, как Def Leppard, потом послушаете ещё и поймёте, что в нём есть что-то от Led Zeppelin или Queen, что-то похожее (   Читать дальше...   )01. Let's Go
-02. Dangerous
-03. Man Enough
-04. We Belong(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2383C6E3290221C888B525E8F9A6C95C8173045
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580237   (331839) от 30.09.2022
-
-Suzi Quatro - Uncovered (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Moon Rising [00:02:19]
-02. Midnight Hour [00:02:25]
-03. I Feel The Earth Move [00:02:52]
-04. Walking The Dog [00:02:34](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:17:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE51470F3630F2536E77CF137EE3A5AB72C81173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580203   (331838) от 30.09.2022
-
-Alice Cooper - Live from the Astroturf (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Eighth Wonder of the World... (Intro) (1:00)
-02. Caught in a Dream (3:19)
-03. Be My Lover (3:31)
-04. Whatever He's Doing It's Illegal (Banter) (0:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABB6A030F36B3BAA8AAF6F9D45DF39B20A4024D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1420867   (331287) от 02.11.2020
-
-Perfect Plan - Time For A Miracle (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time For A Miracle
-02. Better Walk Alone
-03. Heart To Stone
-04. Fighting To Win(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:00:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:012DBE665291ED2028AB8A011FE36BAAE315C7AF
 ```
 
 https://mybot314.ru/tekegram_catalog/

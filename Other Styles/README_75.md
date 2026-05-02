@@ -1,3 +1,218 @@
+###  Публикация: 1140727   (654772) от 07.06.2017
+
+Nikolya - Organic 3 The Longest Journey (2017) [MP3|320 Kbps] <New Age, Electronic, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening
+02. What If...
+03. Butterfly Temple
+04. Indigo Child(   Читать дальше...   )Жанр: New Age, Electronic, LoungeПродолжительность: 00:57:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85F3FC98976715DCBADA458BEBD395310712560C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226536   (654770) от 21.05.2018
+
+Atom Music Audio - Mechanize, Vol. 1: Industrial Hybrid Rock Tracks (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654770.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 6th Gear [02:05]
+02. ReDesign [02:05]
+03. Kill Switch [02:25]
+04. Sprocket [02:36](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:28:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C0BBA16CA8FDD41D2D312F90170F1DFE40BBC65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140583   (654768) от 07.06.2017
+
+Indiajiva - Inner Sanctum (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654768.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Indiajiva - Awakening (7:16)
+2. Indiajiva - Dreaming (14:30)
+3. Indiajiva - Immersion (12:53)
+4. Indiajiva - Inner Sanctum (31:16)Жанр: New AgeПродолжительность: 01:06:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7420D4F18F78AEC0896D979255B8B0A5FADC0C9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226534   (654712) от 21.05.2018
+
+Atom Music Audio - Collision (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fuel of War [01:45]
+02. Flatline [01:44]
+03. Unbreakable [01:36]
+04. Puma [01:23](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:19:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:233101C2E098D5738E94C8460ECFBFD573169F38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515676   (654680) от 27.06.2012
+
+Don Williams - The Best of Don Williams (2003) [MP3|320 кб/с]<Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654680.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:26) 01. I Recall a Gypsy Woman
+(3:27) 02. Till The River All Runs Dry
+(3:04) 03. Say It Again
+(2:46) 04. Some Broken Hearts Never Mend
+(3:04) 05. I'm Just a Country Boy
+(3:12) 06. Tulsa Time
+(2:30) 07. It Must Be Love
+(4:05) 08. I Believe In You
+(3:41) 09. Love Is On a Roll
+(3:04) 10. Stay Young(   Читать дальше...   )Жанр: CountryПродолжительность: 01:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4B43763D95FE9F7DF792ADA85F6347D88EBE8B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 516022   (654412) от 27.06.2012
+
+William Joseph - Be Still (2012) [MP3|320 кб/с]<Contemporary Instrumental, New Age, Neo-Classical, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654412.jpg" />
+</div>
+
+
+###  Подробнее
+
+(3:42) 01. Come Thou Fount
+(3:56) 02. Jesus Once of Humble Birth
+(4:09) 03. Be Still My Soul
+(3:19) 04. A New Day
+(4:38) 05. I Know That My Redeemer Lives
+(3:49) 06. With Royal Praise
+(4:07) 07. God Be With You Still We Meet Again / He Is Risen
+(4:09) 08. Nearer My God to Thee
+(5:20) 09. How Great Thou Art
+(3:57) 10. Silent Night(   Читать дальше...   )Жанр: Contemporary Instrumental, New Age, Neo-Classical, PianoПродолжительность: 00:49:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC318126C53D550B73C8D6876B68769EFFADE52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140887   (653945) от 08.06.2017
+
+VA - Life Force: Natural Meditation, Total Relaxing, Anxiety Free Life (2017) [MP3|320 Kbps] <Ambient, New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_653945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Spiritual Music Collection - Life Force (Natural Meditation)  3:57
+02.  Restful Music Consort - Gold Awakening  3:46
+03.  Buddhist Meditation Music Set - Crystal Healing Journey  3:57
+04.  Chakra Healing Music Academy - Yoga And Massage  3:39(   Читать дальше...   )Жанр: Ambient, New Age, RelaxПродолжительность: 03:06:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E018D1CE640ADC371B4523C29FC01BF14D514BDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1140952   (653856) от 08.06.2017
 
 Chris Snelling, Jonathan Sarlat - Peaceful Classical Music Playlist: 14 Relaxing and Calm Classical Pieces (2017) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental>
@@ -539,209 +754,6 @@ Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярос�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED2C2BC8CCFB735A2F4E69151FD79E51DC979FC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905454   (649057) от 06.06.2015
-
-Tom Holkenborg aka Junkie XL - Безумный Макс: Дорога ярости / Mad Max: Fury Road (Original Motion Picture Soundtrack) (2015) Deluxe Version [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_649057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survive (Extended Version) (01:40)
-02. Escape (Extended Version) (03:29)
-03. Immortan’s Citadel (Extended Version) (08:58)
-04. Blood Bag (Extended Version) (03:40)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 02:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B23E626A8FD16036EFBFCDFD207515D597DF63EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291804   (648641) от 28.03.2019
-
-Claire Hastings - Those Who Roam (2019) [FLAC|Lossless|tracks + .cue] <Folk, Celtic>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lothian Hairst (04:44)
-02. Jack the Sailor (03:50)
-03. Seven Gypsies (03:33)
-04. Sailin's a Weary Life (04:16)(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C193470160CB672D17538CD63F671716DA69271
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292020   (648635) от 28.03.2019
-
-Current 93 - Invocations Of Almost (2019) [FLAC|Lossless|tracks + .cue] <Folk, Country, Ambient>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648635.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Untitled (10:22)
-2. Untitled (05:56)
-3. Untitled (03:40)
-4. Untitled (07:06)(   Читать дальше...   )Жанр: Folk, Country, AmbientПродолжительность: 01:00:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF54BCC2D5296B199E6C6ACBA7EB29B8C2C0A499
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1292135   (648625) от 28.03.2019
-
-VA - The Ultimate Country Love Songs Anthology (2019) [FLAC|Lossless|WEB-DL|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648625.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Charlie Rich - The Most Beautiful Girl
-02. Forester Sisters - I Fell in Love Again Last Night
-03. Earl Thomas Conley - Angel in Disguise
-04. George Jones - I Always Get Lucky With You(   Читать дальше...   )Жанр: CountryПродолжительность: 01:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A38DD330EB6A5964627440585F6450F8E1579D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227078   (648472) от 25.05.2018
-
-VA - Quiero Fiesta (Club Hits 2018) [MP3|320 Kbps] <Latin Hip-Hop, Reggaeton, Bachata, Salsa>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Veronica Vega, Pitbull - Wicked (Dj Papi Electric Club Remix) 5:02
-02. Wilo D' New - Menea Tu Chapa 2:59
-03. Farina, El Micha, El Pocho, Honorebel - Mari (Dj Gangsta & Dj Unic Remix) 3:53
-04. Crossfire, Elephant Man - Hot Hot Hot (Extended Club Remix) 3:48(   Читать дальше...   )Жанр: Latin Hip-Hop, Reggaeton, Bachata, SalsaПродолжительность: 03:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A55FAA42DC1AA00BC7A4DC0EB9720A9B14ADF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1541071   (648418) от 01.04.2022
-
-Вилы - Крапива (2022) [MP3|320 Kbps] <Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648418.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Дождик
-2. Крапива
-3. Млада
-4. Перепну я речушку(   Читать дальше...   )Жанр: FolkПродолжительность: 01:27:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9437F5C22089299A1DD3DAC5FBAF6A38B5B770F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032166   (647764) от 06.07.2016
-
-George Skaroulis - Sanctuary 2 (2015) [MP3|320 Kbps] <New Age, Instrumental, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Is The Key
-02. You're Still Here
-03. Misirlou
-04. Sky Blue(   Читать дальше...   )Жанр: New Age, Instrumental, PianoПродолжительность: 00:57:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50F2763FD0ED2C1272CE35450DB7C4211A1DBE58
 ```
 
 https://mybot314.ru/tekegram_catalog/

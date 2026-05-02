@@ -1,3 +1,61 @@
+###  Публикация: 1350731   (1003019) от 07.01.2020
+
+The Oscar Peterson Trio - In Tokyo: Live At The Palace Hotel 1972 (2005) Columbia [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Good Life [5:32]
+02. What Am I Here For? [5:46]
+03. I Hear Music [6:37]
+04. What Are You Doing For The Rest Of Your Life [4:54](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF19E396CCBB0455E7A1753E14F48BB3102B795
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1350968   (1002790) от 08.01.2020
+
+Roland Keijser Quartet - Saxophone Valley (2000) Sittel [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002790.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Locomotive [5:01]
+02. Swedish Schnapps [8:13]
+03. Kids Know Valse Hot [6:48]
+04. Why Don't I [5:08](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0BEFD713EF718E36A916AF77D09FAF916685628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1351008   (1002753) от 08.01.2020
 
 Incognito - Tomorrow's New Dream (2019) [FLAC|Lossless|tracks + .cue] <Acid Jazz, Soul>
@@ -735,72 +793,6 @@ Antonio Forcione - Touch Wood (2003) [FLAC|Lossless]<Jazz, Gypsy Jazz, Flamenco>
 08. For Vic [04:53]
 09. Watercolour [01:50]
 10. Nostalgia [06:28](   Читать дальше...   )Жанр: Jazz, Gypsy Jazz, FlamencoПродолжительность: 00:56:14
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601596   (998074) от 11.01.2013
-
-Wes Montgomery - Boss Guitar (2010) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998074.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Besame Mucho    [06:31]
-02. Dearly Beloved    [04:51]
-03. Days of Wine and Roses    [03:48]
-04. The Trick Bag    [04:27]
-05. Canadian Sunset    [05:07]
-06. Fried Pies    [06:46]
-07. The Breeze and I    [04:11]
-08. For Heaven's Sake    [04:43]
-09. Besame Mucho (take 2)    [06:27]
-10. The Trick Bag (take 6)    [05:05](   Читать дальше...   )Жанр: JazzПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 601590   (998046) от 11.01.2013
-
-Bill Evans & Jim Hall - Intermodulation (1988) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I've Got You Under My Skin    [03:25]
-02. My Man's Gone Now    [06:47]
-03. Turn Out The Stars    [07:38]
-04. Angel Face    [06:38]
-05. Jazz Samba    [03:11]
-06. All Across The City    [04:52]Жанр: JazzПродолжительность: 00:32:34
 
 ## Скачать торент
 ```bash

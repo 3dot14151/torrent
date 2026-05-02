@@ -1,3 +1,175 @@
+###  Публикация: 1805150   (12438) от 05.07.2025
+
+Night Tempo - Showa Idol's Groove. Rare Groove From 80's (2019) (Night Tempo Self-released) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Electronic, Vaporwave, Nu-Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12438.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. Intro
+02. Iyo
+03. Akemi(   Читать дальше...   )Жанр: Electronic, Vaporwave, Nu-DiscoПродолжительность: 00:47:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:455290FFBE9DA7993E990CDA59335B32BD3D213E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804961   (12418) от 05.07.2025
+
+Studio Ghibli - Studio Ghibli Songs (2001) [FLAC 2.0|48/24|image +.cue|MC-Rip] <Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Side A:
+01. My Neighbor Totoro (Captured Near Me 1988 Kazuto)
+02. Carrying You: A Fatty Call (Azure Sky Castle - 1986)
+03. Valley of the Wind Oinoya (Iriinoya - 1984)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7F131B968D96B719760A18DCDED3DE1FC0687B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1723409   (12236) от 07.07.2025
+
+Big Wreck (& Thornley) - Studio Albums (11 releases) (1997-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12236.jpg" />
+</div>
+
+
+###  Подробнее
+
+Big Wreck — канадско-американская рок-группа, созданная Яном Торнли в Бостоне, штат Массачусетс, в 1994 году. Группа распалась в 2002 году, и Ян Торнли продолжил сольную карьеру в своей собственной группе Thornley. В 2010 году Ян Торнли и Брайан Доэрти воссоединились для тура по Канаде, исполнив песни Big Wreck и Thornley.
+Big Wreck снова начали выпускать новую музыку (   Читать дальше...   )1997 - In Loving Memory Of...
+2001 - The Pleasure and the Greed
+2012 - Albatross
+2014 - GhostsЖанр: Progressive RockПродолжительность: 11:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C1DB891FAFCBDBF5BB5438068941DB9FC9B593D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805632   (12118) от 08.07.2025
+
+Dropkick Murphys - For The People (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Celtic Punk, Rock, Oi! Punk band from Boston>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12118.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who'll Stand With Us? [00:03:51]
+02. Longshot (feat. The Scratch) [00:03:27]
+03. The Big Man [00:02:53]
+04. Chesterfields and Aftershave [00:04:30](   Читать дальше...   )Жанр: Celtic Punk, Rock, Oi! Punk band from BostonПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96393E0E2F38B087FCCBD3307620B412D7C46F5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805804   (12111) от 08.07.2025
+
+Station Echo - What Should Have Been but Never Will (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12111.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. Blown Away (6:58)
+• 02. Mess Around (4:14)
+• 03. Mysterious (2025 Remastered Version) (4:41)
+• 04. Alone (4:57)(   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:59:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFD58FB1EF15E7F2E9ED354807D5F0016DD92D23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1805762   (12066) от 09.07.2025
+
+VA - Rock Ballads Volume 1&2 (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_12066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: RockПродолжительность: 01:39:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A17B8B0F50F991395096614B7BF544291753A28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1805914   (12047) от 09.07.2025
 
 Slade - The Best Of (1993) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Rock>
@@ -571,180 +743,6 @@ Chantel McGregor - The Healing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B2F1DE73193291FF74D0C08EBAC8DFB8CBEBB925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806983   (11290) от 16.07.2025
-
-Big Dave & The Dutchmen - Big Dave & The Dutchmen (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Never Love Again (5:05)
-02.  I Dig You Baby (3:58)
-03.  Screwdriver (5:50)
-04.  Daring Haring (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FEAD537B92CE81199EDB5A7D2FCED429F2A3DE8B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806985   (11289) от 16.07.2025
-
-Black Logos - The Devil's Kiss (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Symphony of Lies (5:02)
-02.  Tell Me (3:58)
-03.  Fade Away (3:40)
-04.  One More Time (4:27)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:494D5F2DF37414A0C34D7EADA7094E4171112875
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806938   (11288) от 16.07.2025
-
-Eight In The Room - Eight In The Room (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Viva [00:04:22]
-02. Lovely [00:04:53]
-03. Imagine [00:03:41]
-04. Panda [00:04:15](   Читать дальше...   )Жанр: HouseПродолжительность: 00:28:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94AE2F2AFD5618CE0F7650A94C102ECF4021B12E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806984   (11287) от 16.07.2025
-
-BigBlack Rhino - Supralove (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11287.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Boogie Town (3:28)
-02.  The Crowes (4:33)
-03.  Crazy Betty (3:45)
-04.  Angels will Fly (6:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C083694682E5DFE5FB062EC15FE85BA1182CD9A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806989   (11285) от 16.07.2025
-
-Blind Alice - Nothing Changes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Call a Doctor (3:48)
-02.  Spin the Wheel (4:04)
-03.  If There Are Angels (6:12)
-04.  Beg Steal or Borrow (4:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:348B8B554F7F922914B86A844747B1AB0A6DBE06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806933   (11284) от 16.07.2025
-
-Devilskin - Re-Evolution (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Red [00:04:49]
-02. Swelter [00:03:23]
-03. Desiderium [00:03:15]
-04. Have I Come Undone [00:04:54](   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, Alternative MetalПродолжительность: 00:51:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A42A140F4F7A5297DC163DE4687B9E5129B5E595
 ```
 
 https://mybot314.ru/tekegram_catalog/

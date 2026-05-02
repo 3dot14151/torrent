@@ -1,3 +1,61 @@
+###  Публикация: 1015474   (774993) от 10.05.2016
+
+Peter Kater - Heart of the World - Colorado's National Parks (2016) [MP3|320 кб/с] <New Age, Soundtracks, Easy Listening>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774993.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Odyssey
+02. After Rainfall
+03. Petroglyphs
+04. Ancient Pathways(   Читать дальше...   )Жанр: New Age, Soundtracks, Easy ListeningПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C1D24220F9A14D0965EE90F20BE447F13DD35CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125287   (768590) от 14.04.2017
+
+VA - The Fate of the Furious / Форсаж 8 (The Album) (2017) [MP3|320 кб/с]<Soundtrack, Hip-Hop>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Young Thug, 2 Chainz, Wiz Khalifa & PnB Rock - Gang Up (03:52)
+02. Lil Uzi Vert, Quavo & Travis Scott - Go Off (03:38)
+03. G-Eazy & Kehlan - Good Life (03:46)
+04. PnB Rock, Kodak Black & A Boogie Wit da Hoodie - Horses (04:09)(   Читать дальше...   )Жанр: Soundtrack, Hip-HopПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:208FB825F5C00E334256B41DC93FDC1435C30043
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278573   (768478) от 26.01.2019
 
 Atom Music Audio - Vortex (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
@@ -681,64 +739,6 @@ John Ottman - X-Men: Apocalypse / Люди Икс: Апокалипсис (Origi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0357E92259386C875748C50A943E4B6026C136A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129739   (720046) от 29.04.2017
-
-VA, Tyler Bates - Guardians of the Galaxy Vol. 2 / Стражи Галактики. Часть 2 (Awesome Mix, Vol. 2) + (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720046.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Showtime A-Holes (01:28)
-02. vs The Abilisk (02:35)
-03. The Mantis Touch (01:54)
-04. Space Chase (03:21)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:35:50 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E72D221F5389B465E3ABC4A55B276D928EDB79B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023948   (720039) от 07.06.2016
-
-Atticus Ross, Claudia Sarne, Leopold Ross - Triple 9 / Три девятки (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ticking Glock (06:28)
-02. The Drop (02:07)
-03. Eleven Fifty Nine (06:21)
-04. The Butcher's Shop (04:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9F45408DF2E6ED4821A4A8C15AE8962FA7BFB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

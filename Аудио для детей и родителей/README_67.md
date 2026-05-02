@@ -1,3 +1,32 @@
+###  Публикация: 275541   (269678) от 27.12.2010
+
+VA - Barbie Let's All Party (2009) [MP3|160 kbps]<Детские песни/Dance/Pop>
+
+>>Аудио для детей и родителей
+>>Музыка и песни для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269678.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Cheryl Cole - Fight For This Love
+2. Sugababes - About A Girl
+3. Agnes -I Need You Now
+4. Pixie Lott - Mama Do(   Читать дальше...   )Жанр: Детские песни/Dance/PopПродолжительность: 01:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC66CF5AA587FBF2F7A0C0CC9A0DDA03AB640236
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338883   (268217) от 17.11.2019
 
 Дмитрий Мамин-Сибиряк | Сказка про славного царя Гороха и его прекрасных дочерей (2008) [MP3]
@@ -686,41 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:54AEAC6E183F9DF53745DFBF0F177B14546A5657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 503206   (259729) от 30.05.2012
-
-VA - Mini Disco/Мини Диско 108 песен (1970-2012) [MP3|128 кб/с]<Blues - детская танцевальная подборка>
-
->>Аудио для детей и родителей
->>Музыка и песни для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259729.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.İntro-Mini Cub 1
-002.İntro-Mini Cub 2
-003.Hotel Club Dance 2
-004.Hands Up- Rmx
-005.Veo Veo- Rmx
-006.Russian - Buratino
-007.Hot banditoz -head shoulders
-008.Shakira waka-waka
-009.Russian-Ti Menya Lubish Aga
-010.Herzlich Wilcomen Guten Tag(   Читать дальше...   )1970-2012Жанр: Blues - детская танцевальная подборкаПродолжительность: 5:33:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7444D8A051993488C4C3FC04438B537A833F5B04
 ```
 
 https://mybot314.ru/tekegram_catalog/

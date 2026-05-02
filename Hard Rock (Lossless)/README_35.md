@@ -1,3 +1,120 @@
+###  Публикация: 1032322   (645952) от 07.07.2016
+
+The Dead Daisies - The Dead Daisies (2013) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Gonna Take Time
+02. Lock'n'Load (featuring Slash)
+03. Washington
+04. Yeah Yeah Yeah(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08DEF41BE823B3EF37BD7AD573F0709A7E58A390
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292409   (645289) от 30.03.2019
+
+GT Project - Az Elet Rock & Roll (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Az élet Rock & Roll (05:12)
+02. Ég veled (05:36)
+03. Nehéz idők (05:12)
+04. Hegyeken át (04:39)(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E3869824E08338E7B1685A43590772A663A35B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292536   (645190) от 30.03.2019
+
+Find Me - Angels In Blue (2019) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Tears In Paradise (04:51)
+02. Chain Of Love (04:48)
+03. True Believer (04:31)
+04. Straight For Eternity (04:02)(   Читать дальше...   )Жанр: Rock, Hard Rock, AORПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02E0F48F83D8EC9DB6EF12172D4B525A46ED45BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1292626   (645081) от 30.03.2019
+
+Whitesnake - Slide It In (1984) The Ultimate Special Edition 6CD, Remastered, 2019, Rhino Records [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Slide It In - шестой студийный альбом группы Whitesnake, вышедший в 1984 году, по сертификации RIAA дважды платиновый (1992), поднявшийся до 40 места в Billboard 200 и до 9 места в британском чарте альбомов. Последний альбом группы с «классическим» логотипом Whitesnake на обложке.
+Записи альбома предшествовали перемены в составе группы, не в последнюю очередь связанные (   Читать дальше...   )CD1 - U.S. Mix (1985) 35th Anniversary Remaster
+CD2 - Original U.K. Mix (1984) 35th Anniversary Remaster
+CD3 - Special 35th Anniversary US Remix (2019)
+CD4 - Monitor Mixes & Intros (September 1983)Жанр: Hard RockПродолжительность: 05:45:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B610768964B211DF0E067ACC94B3D4D01A31EA13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541524   (644915) от 03.04.2022
 
 Crazy Lixx - Forever Wild (2019) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Glam>
@@ -641,128 +758,6 @@ Come Taste The Band - Reignition (2019) [FLAC|Lossless|tracks + .cue] <Rock, Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DCF9FD917CDEBA7422B3963985F87D5368B3A906
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519935   (633456) от 08.07.2012
-
-Hardline - Danger Zone (2012) [FLAC|Lossless]<Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_633456.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fever Dreams
-02. Ten Thousand Reasons
-03. Danger Zone
-04. What I'd Like
-05. Stronger Than Me
-06. Never Too Late For Love
-07. Stay
-08. I Don't Wanna Break Away
-09. Look At You Now
-10. Please Have Faith In Me(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034520   (632595) от 14.07.2016
-
-The Lizards - Reptilicus Maximus (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632595.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ton On The One (feat. David Lanik)
-02. Evil Eyes (feat. Frank Marino)
-03. Incurable
-04. Crash (feat. Vinnie Moore)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:55:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3527D1BECAB45C285FFC26425E59C5D00B38583B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034823   (632593) от 14.07.2016
-
-Tinsley Ellis - Red Clay Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632593.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All I Think About
-02. Givin' You Up
-03. Callin'
-04. Anything But Go(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDB1F609EA4B8D576FBD2B62FC4DC5B5092FF1CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034798   (632518) от 14.07.2016
-
-Erika - Deaf Dumb & Blonde (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632518.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Killer
-02. Heroes Of Heartbreak
-03. Suckerpunch
-04. Drama(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 0:42:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A045EDB24DD5CBD77A46D1D288341C2CB9596FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

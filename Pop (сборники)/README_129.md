@@ -1,3 +1,119 @@
+###  Публикация: 1766226   (33895) от 17.12.2024
+
+VA - Новогодняя Ночь (2024) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Беларусинки - Новогодняя Овечка [02:33]
+02. Божья Коровка - Застольная (Ностальгия Версия) [03:47]
+03. Игорь Николаев, Юлия Проскурякова, Вероника Николаева - Я Люблю Эту Зиму [03:05]
+04. Натали - Будут Танцы [03:21](   Читать дальше...   )Жанр: PopПродолжительность: 05:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A93807AAD477C519CF330C2C697FECCB834F8B94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768559   (32967) от 26.12.2024
+
+VA - Новогодняя ночь хитов (2024) [MP3|320 Kbps] <Pop, Christmas>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32967.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Александр Добронравов, Варвара - Белая зима [03:24]
+002. Альфия Тагирова - Полёт В Новый Год [02:09]
+003. Игорь Николаев, Юлия Проскурякова, Вероника Николаева - Я люблю эту зиму [03:05]
+004. Константин Кожевников - Девушка Хочет Дедушку (feat. МПВ Бэнд) [03:10](   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 05:20:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25B7985585E924566B4C95FDAD7D0050532D7DA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768759   (32879) от 27.12.2024
+
+VA - 100 Пудовый хит (2024) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32879.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bryan Adams - Back To You
+002. Полина Гагарина - Кукушка
+003. Depeche Mode - Ghosts Again
+004. Кристина Орбакайте - Будь со мной(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 12:45:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1143A6697BF2E034B1E7AAEF574949C0EB6C7CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770054   (32445) от 31.12.2024
+
+Adriano Celentano - Compilation (1958-2021) [MP3|320 Kbps] <Pop, Disco, Rock 'n' Roll>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32445.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prisencolinensinainciusol (& Mina) (Le Migliori 2016)
+02. Ti Penso E Cambia Il Mondo. live (& Gianni Morandi) (Adriano (Adriano Live-Arena di Verona 2012) 2013)
+03. Solo Da Un Quarto D' Ora. live (Il Cuore, La Voce 2001)
+04. A Un Passo Da Te (& Mina) (Le Migliori 2016)(   Читать дальше...   )Жанр: Pop, Disco, Rock 'n' RollПродолжительность: 14:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:117734D703082133F6C7F01F2BF5C97619B2482B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1688242   (32444) от 31.12.2024
 
 Владимир Захаров (Рок-Острова) - Синглы (2023-2024) [MP3|320 Kbps] <Pop, Pop Rock>
@@ -629,123 +745,6 @@ Va - Hits that stay forever (2025) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:345131F71FEE1D74AC899A89799D2A1AE4E506EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791354   (21561) от 13.04.2025
-
-VA - Весна на Love Radio (2025) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21561.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rialto - No One Leaves This Discotheque Alive (3:14)
-02. Armin Van Buuren feat. Alok & Norma Jean Martine & Lawrent - Euphoria (2:31)
-03. KDDK - O-La-La (2:10)
-04. Benson Boone - Sorry I'm Here For Someone Else (2:36)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:03:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5DB04530E7807FCCF568A7E8772E43BE0FF425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791720   (21335) от 15.04.2025
-
-Backstreet Boys - Compilation (1996-2019) [MP3|320 Kbps] <Pop, Dance, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21335.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We've Got It Goin' On (Backstreet Boys 1996)
-02. Larger Than Life (Millennium 1999)
-03. Incomplete (Never Gone 2005)
-04. The Call (Black & Blue 2000)(   Читать дальше...   )Жанр: Pop, Dance, R&BПродолжительность: 02:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3644ED3AC56A7DD836F4B182AC9BFB7112F4171
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302720   (21073) от 18.04.2025
-
-Sophie Zelmani - Best of (1995-2025) Compilation Album [MP3|320 Kbps] <Pop, Rock, Singer songwriter>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21073.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нас окружает море музыки, и не видно краёв ему, и особую ценность имеют редко попадающиеся жемчужины.
-О ещё одном таком открытии расскажу Вам:01. Before the Day's Gone
-02. Bitter Kind
-03. Breeze
-04. Churchbell(   Читать дальше...   )Жанр: Pop, Rock, Singer songwriterПродолжительность: 02:23:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C65028FB04D15306E571E3AEC8B3774B1256CC86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794044   (19953) от 28.04.2025
-
-VA - Top Songs of 2024: USA (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19953.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kendrick Lamar - Not Like Us(04:34)
-002. Future - Like That(04:28)
-003. Shaboozey - A Bar Song (Tipsy)(02:51)
-004. Post Malone - I Had Some Help(02:58)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:43:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5846E1FF3610FC7BA4B085D2C338E1316E1E275
 ```
 
 https://mybot314.ru/tekegram_catalog/

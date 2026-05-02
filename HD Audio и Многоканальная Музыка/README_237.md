@@ -1,3 +1,177 @@
+###  Публикация: 1765083   (34610) от 10.12.2024
+
+Babbba - Smooth as silk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, International Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Promise me, we'll meet again (3:04)
+02. Side by side (2:51)
+03. They own the night (2:06)
+04. Their pulses meet (1:44)(   Читать дальше...   )Жанр: Smooth Jazz, International PopПродолжительность: 00:54:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E76E9B8C4A3ECC3A907713CB2E98384DBB535E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764854   (34607) от 10.12.2024
+
+Nancy Sinatra - Sugar (1967) Remastered, 2024, Boots Enterprises, Inc. [FLAC 24/96|Lossless|WEB-DL|tracks] <Soft-Rock, Ballad, Easy-Listening, Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34607.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Georgia Brown (2024 Remastered) [00:04:00]
+02. Vagabond Shoes (2024 Remastered) [00:02:02]
+03. Oh! You Beautiful Doll (2024 Remastered) [00:02:51]
+04. Hard Hearted Hannah (2024 Remastered) [00:03:34](   Читать дальше...   )Жанр: Soft-Rock, Ballad, Easy-Listening, VocalПродолжительность: 00:43:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7F8FF5E09B04CE5B3FEE68F991CB75B2BBA54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765081   (34590) от 10.12.2024
+
+Babbba - Skat Academy III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, International Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Butterfly dreams (3:01)
+02. He is Babbba (2:48)
+03. Reboot (3:36)
+04. Flying high through the sky (2:34)(   Читать дальше...   )Жанр: Jazz, International PopПродолжительность: 01:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0ECA8DB178AAAF5488710A0E0444D461790DE700
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765082   (34587) от 10.12.2024
+
+Babbba - Skat Academy III (part 2 by Babbba) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, International Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34587.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Latino-a baba (1:58)
+02. Cha-cha-a baba (2:16)
+03. Rumba-a baba (2:04)
+04. Ba-cha-ta-a baba (2:34)(   Читать дальше...   )Жанр: Jazz, International PopПродолжительность: 00:30:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9C9F8DF0A2A0BD00E242AC764E9C9D4247B441
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765078   (34586) от 10.12.2024
+
+Babbba - Midnight walk (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34586.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shades of blue (3:16)
+02. All that dancing shadows (3:44)
+03. Blue melody (2:36)
+04. Dancing in the rain (2:28)(   Читать дальше...   )Жанр: Jazz, International PopПродолжительность: 00:57:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B02CB3F00C5D03C8AAE8C6C24732BBC2B98210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765252   (34504) от 11.12.2024
+
+DelaDap - King of the Swing (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electro Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_34504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deladap & Melinda Stoika - Shobeedoo (3:22)
+02. Deladap & Melinda Stoika - Mr. January-King of the Swing (3:06)
+03. Wolfgang Lohr & Deladap - Something Serious (Instrumental) (3:11)
+04. Deladap & Melinda Stoika - Johnny Where Are You (2:58)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:32:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98812930D6448A0FFC8769B31C7436EF2D8ED9EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1765249   (34503) от 11.12.2024
 
 Babbba - Virtual Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
@@ -566,180 +740,6 @@ Erotic Jazz Music Ensemble, Jazz Erotic Lounge Collective, Marco Rinaldo, Sensua
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C0259163A218748EFDF821EE0A496F4E7F39DF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767923   (33266) от 23.12.2024
-
-Romantica De La Guitarra, Academia de Música Sensual - Spa Erótico: Relaxing Latin Guitar for Body Pleasure (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chic Churros (4:18)
-02. Relaxing Vibes (3:43)
-03. Mellow Cafè (3:13)
-04. Tequila Twilight (4:07)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:588D575EF0111525819E9BA899365DC5A5D85BBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767953   (33264) от 23.12.2024
-
-Instrumental Piano Universe, Marco Rinaldo, Sexual Music Collection, Sexual Piano Jazz Collection - Passion in Paris: Sophisticated Piano Solos, Sensual Jazz Lounge Music (2024) [FLAC 24/48|Lossles ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris After Dark (3:58)
-02. Café au Lait (3:15)
-03. Piano Seduction (3:43)
-04. Jazz Noir Romance (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:37:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1FD0F8EDEB645FD797F51B991EB65C258C72F3D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767928   (33262) от 23.12.2024
-
-Sexual Music Collection, Romantic Love Songs Academy - Midnight Jazz Confessions: Sultry Jazz for a Romantic and Intimate Mood, Late-Night Listening, Date Nights (2024) [FLAC 24/44.1|Lossless|WEB-D ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Always and Always (3:33)
-02. We'll Meet Again (3:19)
-03. Prelude to a Kiss (3:27)
-04. Straight Ahead (3:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9332F42FC0AD431B25AC9985574FCB4C56273FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766995   (33235) от 23.12.2024
-
-Carlita - Sentimental (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Deep House, Indie Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33235.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. DJ Tennis, Carlita - Trouble Symphony (3:56)
-• 02. Carlita, Cleo Simone - Planet Blue (2:55)
-• 03. Carlita, SG Lewis - The Moment (3:31)
-• 04. Carlita - TV Disco (3:46)(   Читать дальше...   )Жанр: Electronic, Deep House, Indie DanceПродолжительность: 00:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46A8C840FA99658C0DB194DB9679BB8C4CAABF23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1767922   (33232) от 23.12.2024
-
-Romantica De La Guitarra, Romantic Time - Sensual Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33232.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexually Twisted (3:14)
-02. Ignite The Spark (3:26)
-03. Provocative Girl (3:35)
-04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C3FD72ADB6B23487C8504A043FF4A632EA5CB54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768554   (33037) от 25.12.2024
-
-Ill Niño (Ill Nino) - Studio Albums (7 releases) (2002-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ill Niño — американская ню-метал-группа латиноамериканского происхождения, основанная в 1998 году в Нью-Джерси.2002 - revolution revolucion
-2003 - Confession
-2005 - One Nation Underground
-2008 - EnigmaЖанр: Nu Metal, MetalcoreПродолжительность: 06:32:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C15CBA43A2A3A582F9B0602323E1970E1BE22065
 ```
 
 https://mybot314.ru/tekegram_catalog/

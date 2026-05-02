@@ -1,3 +1,32 @@
+###  Публикация: 1386533   (793568) от 30.05.2020
+
+Buck Owens And His Buckaroos - I've Got A Tiger By The Tail (1965) Reissue 1995 [FLAC|Lossless|tracks] <Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793568.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Got A Tiger By The Tail (2:13)
+02. Trouble And Me (1:56)
+03. Let The Sad Times Roll On (2:16)
+04. Wham Bam (2:03)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:32:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6485F00740B3967C0DE7042043577E045C6889FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 382808   (793522) от 13.11.2021
 
 Пелагея - Дискография (11 CD) (2003-2010) [FLAC|Lossless]<Ethnic/Folk-Rock>
@@ -717,35 +746,6 @@ Gyuto Monks of Tibet - Chants: The Spirit of Tibet (2013) Deluxe Version [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D8436180CB7363EB38CA343039615CE231D3C424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015741   (772555) от 12.05.2016
-
-Emir Kusturica & The No Smoking Orchestra - The Best Of... (2009) [FLAC|Lossless|tracks + .cue] <Folk-Rock, Gypsy Punk, Balkan>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_772555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bubamara (Main Version)
-02. Kana O Del Barvarel
-03. Upside Down
-04. Unza Unza Time(   Читать дальше...   )Жанр: Folk-Rock, Gypsy Punk, BalkanПродолжительность: 01:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA5781B3ED5233A4E56D1ABE0986D7E9C64B074
 ```
 
 https://mybot314.ru/tekegram_catalog/

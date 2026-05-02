@@ -1,3 +1,61 @@
+###  Публикация: 1197662   (812140) от 09.01.2018
+
+Yusef Lateef - The Sounds of Yusef (1957) 1996, Original Jazz Classics [WavPack|Lossless|image + .cue] <Hard Bop, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train [11:15]
+02. Playful Flute [04:19]
+03. Love and Humor [06:13]
+04. Buckingham [05:11](   Читать дальше...   )Жанр: Hard Bop, World FusionПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:732FF8ED8E6350D4EFFA390958C079D382957D9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197659   (812139) от 09.01.2018
+
+Rodney Green Quartet - Live At Smalls (2013) SmallsLive [FLAC|Lossless|image + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Percy's Delight [07:49]
+02. Ludus Tonalis [09:37]
+03. Painting In The Dark [07:12]
+04. Camden [07:49](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:04:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7CAA1CA19F7A78EEBD9E7EC4A718DD50C9C454
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197655   (812029) от 09.01.2018
 
 The Big Chris Barber Band - The First Eleven (2002) Timeless Records [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
@@ -687,64 +745,6 @@ Freddie Hubbard - Born To Be Blue (1981) 1999, Original Jazz Classics [APE|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D11D7E8D6D64EFB3E57271EE18D3736AE351CF17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119217   (809601) от 27.03.2017
-
-John Coltrane - The Best Of John Coltrane (1959, 1960) 1992, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.My Favorite Things [13:44]
- 02.Naima [04:23]
- 03.Giant Steps [04:47]
- 04.Equinox [08:35](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7342D85B8873E36611BC76C9BE0197EC3C51C99B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119316   (809460) от 27.03.2017
-
-Miles Okazaki - Trickster (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kudzu (5:20)
-02. Mischief (3:24)
-03. Box In A Box (5:47)
-04. Eating Earth (6:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8F5E6F7C2B974585993030EAF08CD1D63A44B42
 ```
 
 https://mybot314.ru/tekegram_catalog/

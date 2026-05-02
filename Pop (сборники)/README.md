@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1867316   (1066709) от 24.04.2026
+
+Rudolf Kinski Project - XV (2026) [MP3|320 Kbps] <Disco, Dance, AI Music>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You're Never Return (3:12)
+02. Move Through a Live Wire (2:37)
+03. This is My Time (2:25)
+04. Love Is Found (2:42)(   Читать дальше...   )Жанр: Disco, Dance, AI MusicПродолжительность: 01:08:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0657DC2C857393DB54CAF7F291DE50AC4915B96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866743   (1066437) от 22.04.2026
+
+VA - Italo Disco Dance Party Collection (2025) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AlimkhanOV A. - The City Never Sleeps (Vocal Mix) (5:53)
+02. Mancol - Angel Of Love (Extended) (5:43)
+03. Marc Fruttero & Tiziana Rivale - Time On Your Mind (Modern Mix) (3:39)
+04. Magic System D.J. - Without Your Love (Also Playable Mono Remix) (6:15)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 05:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9332BA83DC590B440438598F80811A1FF4791C28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866231   (1065797) от 19.04.2026
+
+VA - Listen on repeat (2026) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jack Harlow - Lovin On Me (2:18)
+02. The Kid LAROI - STAY (with Justin Bieber) (2:21)
+03. OneRepublic - I Ain't Worried (2:28)
+04. Charli xcx - Apple (2:31)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:55:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C0BAA33D2596EE4060A12995FD8AAC1FA26CAB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866036   (1065775) от 19.04.2026
+
+VA - Russian Hits 2022 [MP3|320 Kbps] <Pop, hip-hop, electronic>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065775.jpg" />
+</div>
+
+
+###  Подробнее
+
+[2:53]. 001-Anna Asti - Повело
+[3:01]. 002-DJ Smash & Nivesta - Позвони
+[2:43]. 003-Dzhivan - Автор
+[4:05]. 004-Мари Краймбрери - Relax(   Читать дальше...   )Жанр: Pop, hip-hop, electronicПродолжительность: 06:36:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5DB133A137D080B260E528704E46BD4FC64CE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865553   (1065707) от 16.04.2026
 
 VA - Лучшие хиты ,,НАЗАД в СССР 3,, В современной обработке (2026) (2026) [MP3|320 Kbps] <Pop>
@@ -630,122 +746,6 @@ VA - ZYX Italo-Disco New Generation Vinyl Edition (2023) [MP3|320 Kbps] <Euro-Di
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D255A278075979A98CC21C1E5DB52B40629EA63E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1863970   (1063082) от 07.04.2026
-
-Ai - No Name Compilation Simply listen music Part 85 old songs in a new way (2026) [MP3|320 Kbps] <Cover, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063082.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Не Надо ( Сергей Кузнецов (Проект Лёха))
-02 - Осень (Маленький Принц)
-03 - Я Больше Не Прошу (Мираж)
-04 - Безумный Мир (Мираж)(   Читать дальше...   )Жанр: Cover, PopПродолжительность: 01:03:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:099F2F0DE97DFAB57F685E46E09FCCA9322163A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1864009   (1063033) от 07.04.2026
-
-VA - Лучшие хиты ,,НАЗАД в СССР 2,, В современной обработке (2026) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1063033.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Вне Времени- Два кусочека колбаски [03:34]
-02.KulMuzika- Пазишен Намба Уан [07:31]
-03.Aleks-Audio- Перекрёсток (Ты ушла рано утром) [04:39]
-04.Master Factory- Девочка Сегодня в Баре [04:33](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CB1AAF59B564F5DBFF5CA2576737798CDF34998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861054   (1062183) от 24.03.2026
-
-Eurythmics & Annie Lennox - Compilation (1979-2018) [MP3|320 Kbps] <Pop, New wave, Synth-pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Missionary Man ❂ Revenge 1986
-02. Here Comes The Rain Again ❂ Touch 1983
-03. Beautiful Child ❂ Peace 1999
-04. Sweet Dreams (Are Made Of This) ❂ Sweet Dreams (Are Made Of This) 1983(   Читать дальше...   )Жанр: Pop, New wave, Synth-popПродолжительность: 05:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687B6DFDFC7E425D31685368FD5FC3C49E21D41B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1859836   (1061363) от 18.03.2026
-
-VA - The 90s Pop Box (2026) [MP3|320 Kbps] <Pop/Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silent Lucidity - Queensryche - (05:48)
- 02. Thunder Kiss '65 - White Zombie - (03:55)
- 03. Under the Bridge - Red Hot Chili Pepers - (04:26)
- 04. Wonderwall - Oasis - (04:19)(   Читать дальше...   )Жанр: Pop/RockПродолжительность: 06:08:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:020B9CE8FEA59BB83B32460B8E934AD14A581487
 ```
 
 https://mybot314.ru/tekegram_catalog/

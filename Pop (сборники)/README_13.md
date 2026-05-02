@@ -1,3 +1,120 @@
+###  Публикация: 1094333   (930852) от 17.01.2017
+
+VA - Полный отрыв. Зимние хиты. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930852.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Steven A. Clark & Ape Drums - Can't Have 3:37
+002. Shami Feat. Арни Saveolla - Танцуем 5:13
+003. Сати Казанова - Happiness Hey 3:19
+004. Shapeshifter Feat. Anika Moa - Blazer 5:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0CB5C1D1222060E020505BDF73B78A2F4D42014
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 986640   (930451) от 14.02.2016
+
+VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 23 ) (2016) [MP3|192-320 кб/с] <Eurodance, Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930451.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kate Rayan - Voyage ( George Airbullet Original Remix Master) (06:50)
+02. Lazarus - Wait (Remix) (06:39)
+03. Lipps Inc. Vs. Tom Jones - Funkytown Kiss (Rick Wain) (03:27)
+04. Modern Talking - Arabian Gold ( Ext.Dance Mix By Marc Eliow) (12:37)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE3654B984BBE48881EC9F151A629993EBD20304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365195   (930408) от 07.03.2020
+
+Shakin' Stevens - From Christmas To Christmas (The Best) (2020) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Little Christmas
+02. Love Me Tonight
+03. Hot Dog
+04. Tear It Up(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE7497658D1DA396767972FA9C068C00CAE3C304
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1365406   (929881) от 07.03.2020
+
+VA - Свежий Русский Хит от ALEXnROCK часть 1 (2020) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Всю прекрасную половину человечества С наступающим женским днём! Всё что делаем мы мужчины, всё для вас и ради вас. Вы наше вдохновение и стимул для новых вершин! Всем любви и удачи!
+В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2020 год.01. Михаил Бублик — Дует Ветер
+02. Эдуард Хуснутдинов — Красавица Востока
+03. Красавцы Love Radio — Рандеву (D. Anuchin Radio Edit)
+04. Ани Лорак & Миша Марвин — Ухожу(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0F063500391A65111EBDC199267A37738303AA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 287048   (929372) от 25.01.2011
 
 VA - XXXXL Дискотечный 50/50 (2011) [MP3|128 kbps]<Pop>
@@ -623,122 +740,6 @@ VA - Стопудовые зимние хиты. Сборник № 5 (2017) [MP
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1BFF3850CD3C1B5C7F8794D121061D69487C6560
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 987974   (922793) от 19.02.2016
-
-VA - Under The Same Sun: Privacy Music (2016) [MP3|320 kbps] <Pop Lyric>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922793.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bolland & Bolland - Blue Velvet
-002. Thomas David - Searching For
-003. Milky Chance - Stolen Dance
-004. Negative - Still Alive(   Читать дальше...   )Жанр: Pop LyricПродолжительность: 06:58:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510152505F76E8A17B03587E805EFAB72D74B277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095789   (922784) от 22.01.2017
-
-VA - Дискотека зимних дорог. Индустрия поп музыки Выпуск № 3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922784.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анастасия Спиридонова - Колыбельная Медведицы 2:06
-002. Alex Milano Feat. Денис Раско - Двигай 2:40
-003. Лайк.А - Красиво 3:30
-004. Анилла - Во Сне 3:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFC6469181F0CECB77569ACC257F173FC4613E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095835   (922719) от 22.01.2017
-
-VA - Radio Italia Love (2017) [MP3|320 Kbps] <Italy Pop, Vocal>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922719.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
- 1. Ho creduto a me - Laura Pausini
- 2. Potremmo ritornare - Tiziano Ferro
- 3. Assenzio - J-AX & Fedez feat. Stash & Levante(   Читать дальше...   )Жанр: Italy Pop, VocalПродолжительность: 01:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5227922951567EEE5C5292D48D30E1A2B2A757D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988257   (922455) от 19.02.2016
-
-VA - Музыка Хорошего Настроения (2016) [MP3|256 kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922455.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Elton John - Blue Wonderful
-002. Ольга Романовская - Держи Меня Крепче
-003. Bloc Cu Doddy Si Ela Rose - Daca Tu Ai Pleca
-004. Макsим - Хорошо(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:216264893EEAFA0192E14C4BF5F798759FF791EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1274433   (793063) от 07.01.2019
+
+Gordon Gano - Hitting The Ground (2002) (Violent Femmes frontman) [FLAC|Lossless|image + .cue] <Indie, Folk, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793063.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. "Hitting the Ground" (PJ Harvey - vocals and guitar solo)
+2. "Oh Wonder" (Mary Lou Lord - acoustic guitar and vocals)
+3. "Make It Happen" (Gordon Gano - vocals)
+4. "Don't Pretend" (John Cale - piano and vocals)(   Читать дальше...   )Жанр: Indie, Folk, AlternativeПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA896C41AD83DE32FA1F841488BA5487BAA58C86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274462   (793050) от 07.01.2019
+
+The Courteeners - St. Jude Re:Wired (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aftershow (ReWired) (02:46)
+02. Cavorting (ReWired) (03:11)
+03. Bide Your Time (ReWired) (03:53)
+04. What Took You So Long (ReWired) (03:41)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41F6F9B5CFFF09DEFA9D0BA0C45275ED7BE971B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274552   (793010) от 07.01.2019
 
 Missy Higgins - The Special Ones (2018) Anthology [FLAC|Lossless|tracks + .cue] <Indie, Pop Rock>
@@ -687,64 +745,6 @@ The Killers - Wonderful Wonderful (2017) Deluxe Edition [FLAC|Lossless|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8B4F0411FDF89A0B6ABF9389D1150D6E84AF6421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1203129   (788629) от 01.02.2018
-
-Radiohead - Pablo Honey (1993) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You (03:29)
-02. Creep (03:56)
-03. How Do You? (02:12)
-04. Stop Whispering (05:26)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B7D708374DE3668F6A82E4B84F3054841F7ECD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511691   (788370) от 22.11.2021
-
-Nothing But Thieves - Moral Panic (The Complete Edition) (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788370.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unperson (3:25)
-02. Futureproof (3:28)
-03. Is Everybody Going Crazy? (3:58)
-04. Free If We Want It (3:53)(   Читать дальше...   )Жанр: Alternative Rock, Indie RockПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42FA7EA3B56593FA8CF395B30F08EFEF89AA1D16
 ```
 
 https://mybot314.ru/tekegram_catalog/

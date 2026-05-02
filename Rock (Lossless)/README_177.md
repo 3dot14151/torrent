@@ -1,3 +1,351 @@
+###  Публикация: 1739541   (105989) от 28.07.2024
+
+Band of the Underhand - A Cheap Ride To Heaven (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfect World (5:05)
+02. Mary Oh Mary (3:21)
+03. In My Mind (3:38)
+04. Hold On Wait A Minute (2:13)(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0763B423D7BE702D0073DA431FD8D652FCB70B2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739550   (105988) от 28.07.2024
+
+Hall Aflame - Amplifire (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105988.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Helltown (4:28)
+02. Ripcord (4:46)
+03. 1974 (4:18)
+04. This Ain't Love (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59F5C982E529F5BEFB3AD1D4409EE6187821443B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739456   (105985) от 28.07.2024
+
+Keys - The Grand Seduction (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105985.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grand Seduction (9:00)
+02. All I Need (6:50)
+03. Shiining Sails (5:51)
+04. Switchblade (6:02)(   Читать дальше...   )Жанр: Progressive Rock, Melodic Hard RockПродолжительность: 01:01:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE9B860D64CB09C0AF01A74C2AF31E045B5B1F37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739856   (105981) от 30.07.2024
+
+VA - Surf - Rock & Pop (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Surf>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lively Ones - Surf Rider (3:21)
+02. The Shadows - Apache (2:54)
+03. The Centurians - Bullwinkle Pt. II (2:17)
+04. The Challengers - K-39 (2:14)(   Читать дальше...   )Жанр: Rock, SurfПродолжительность: 01:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B757D9CDD1AED8FF1C4B96D7F2F5680FA32F3D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740277   (105904) от 01.08.2024
+
+NanoStorm - Mister Dream (2024) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Compass
+02. Hall of Dreams
+03. Seven Signs
+04. Message from the Ghosts(   Читать дальше...   )Жанр: Psychedelic, Progressive RockПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48681A9FE8BEFF10E3FFB8A5B256CE5FD74AE0FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740600   (105851) от 02.08.2024
+
+The Smashing Pumpkins - Aghori Mhori Mei (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105851.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Edin [6:47]
+02 - Pentagrams [6:26]
+03 - Sighommi [2:55]
+04 - Pentecost [3:19](   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, RockПродолжительность: 00:44:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34ABCD7682299A66938AD80BD671208CE969D7A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740864   (105753) от 04.08.2024
+
+Little Richard Vs Bigbeat Kings - Tutti Frutti Reloaded (2009) [WavPack|Lossless|image + .cue] <Rock'n'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Golly Miss Molly
+ 02. Hey Hey Hey Hey
+ 03. Hound Dog
+ 04. Lucille(   Читать дальше...   )Жанр: Rock'n'RollПродолжительность: 00:46:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91A3DD8C75078F62BF615CD2BABEFD38DB6CFDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740967   (105750) от 04.08.2024
+
+Atlantic - Another World (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ready Or Not (5:47)
+02. Without Love (5:00)
+03. Hold On (3:58)
+04. I'll Be Waiting (4:06)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A98B8DD1A9324F706DE109E878E0E3C48BBE232C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740957   (105715) от 04.08.2024
+
+Grand - Second To None (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crash And Burn (5:15)
+02. When We Were Young (4:27)
+03. Leave No Scar (5:54)
+04. Rock Bottom (3:24)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:50:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661937301B43D330F6866FE90681DAE5B62ADD3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742179   (105605) от 10.08.2024
+
+Sex Magick Wizards - Death Grip (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Prog Rock, Jazz Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105605.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Magick Blessing (3:54)
+02. Spiritual Community (4:21)
+03. Death Grip (6:11)
+04. Book of Job (3:59)(   Читать дальше...   )Жанр: Instrumental Prog Rock, Jazz RockПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44EF17F34A4591F658A9B8357B18DFE2D9636AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742176   (105581) от 10.08.2024
+
+Saga - Time's Up  (1986) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105581.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Much To Lose 4:38
+02. The Flyer 3:37
+03. How Long 3:58
+04. What Do I Know? 3:37(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:49:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F44E01B8520050032E2EC51D26B72DA6D568D6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1742046   (105555) от 11.08.2024
+
+The Pine Box Boys - Kung Fu Wolfman vs. the Blob (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock, Folk, World, Country>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105555.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction to KUNG FU WOLFMAN vs. THE BLOB [00:02:27]
+02. Kung Fu Wolfman [00:08:39]
+03. A Long Line of Werewolves [00:04:14]
+04. The Taste of Blood [00:03:45](   Читать дальше...   )Жанр: Rock, Folk, World, CountryПродолжительность: 00:59:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77BC25A9AB5920A96D7E1156173D6D1FDA26FFCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1742339   (105551) от 11.08.2024
 
 Jim Peterik & World Stage - Roots & Shoots Volume One (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
@@ -397,354 +745,6 @@ Jon Anderson and The Band Geeks - True (2024) [FLAC|Lossless|WEB-DL|tracks] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7676A9D4D396105368C0ADA25FA8A4C36572889
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744678   (105277) от 22.08.2024
-
-Kingcrow - Hopium (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Progressive Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105277.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Kintsugi (3:54)
-02. Glitch (3:56)
-03. Parallel Lines (6:48)
-04. New Moon Harvest (3:30)(   Читать дальше...   )Жанр: Alternative Rock, Progressive MetalПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E722882B39275EB526A703D5AD118281C29F1D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744634   (105263) от 22.08.2024
-
-Fontaines D.C. - Romance (2024) [FLAC|Lossless|WEB-DL|tracks] <Alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Romance (2:34)
-02. Starburster (3:41)
-03. Here's The Thing (2:43)
-04. Desire (3:39)(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 00:37:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55299D9641713D259CD24EC0C8AC033D8F82099E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744754   (105239) от 23.08.2024
-
-The Georgia Thunderbolts - Rise Above It All (2024) [FLAC|Lossless|WEB-DL|tracks] <Classic Rock, Hard Rock, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gonna Shine (4:02)
-02. Rock and Roll Record (4:19)
-03. Rise Above It All (3:22)
-04. Moonlight Play (4:06)(   Читать дальше...   )Жанр: Classic Rock, Hard Rock, Southern RockПродолжительность: 00:46:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF3B84DC029AF36CFAF1DE8DD8EF878761034B13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745210   (105098) от 25.08.2024
-
-Equus - Equus (1985) Reissue, 2024, Pride & Joy Music [FLAC|Lossless|image + .cue] <Melodic Rock, Arena Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105098.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Metal Man (4:22)
-02. I'll Be Waiting (3:36)
-03. When You Gonna Find The Time (3:25)
-04. Powerlife (3:44)(   Читать дальше...   )Жанр: Melodic Rock, Arena Rock, AORПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74962198C07D02643F836EB59C789843C5F69FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745205   (105087) от 25.08.2024
-
-Honeymoon Suite - Alive (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105087.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alive (2:42)
-02. Find What You’re Looking For (3:15)
-03. Done Doin Me (2:53)
-04. Afraid To Fall (2:54)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54A71A6137A7146C521815CEF2C474D57DF9FBAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745298   (105067) от 26.08.2024
-
-Silvera - World Behind Doors (2024) [FLAC|Lossless|WEB-DL|tracks] <Modern Rock, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. World Behind Doors [00:03:41]
-02. Sane [00:03:59]
-03. Utopian [00:03:44]
-04. Death Of Me [00:03:44](   Читать дальше...   )Жанр: Modern Rock, Post-GrungeПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1922DDB419BF6095D75F40C2A07866194AF2DB91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745463   (105059) от 26.08.2024
-
-Footloose - Footloose (1980) Japanese Edition, Reissue, 2001, Cool Sound [FLAC|Lossless|image + .cue] <Westcoast, Soft Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105059.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Leaving For Maui (3:26)
-2. Just Enough Love (3:27)
-3. Dancin' Feelin' (3:31)
-4. It'll Take Some Time (3:44)(   Читать дальше...   )Жанр: Westcoast, Soft Rock, AORПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1620C84780248352009FD312ACA8DC592F75BB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745673   (104994) от 28.08.2024
-
-Oh He Dead - Ugly (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104994.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. John Song [00:01:40]
-02. Tell Me [00:03:37]
-03. Is It My Love [00:02:02]
-04. Two Days [00:03:26](   Читать дальше...   )Жанр: RockПродолжительность: 00:32:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:612BDF6D0FA378CF64A3DDF3E677A3FB8349ECCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746140   (104968) от 29.08.2024
-
-Tusmorke - Dawn Of Oberon (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dawn of Oberon (17:53)
-02. Born to be mild (3:36)
-03. Dwarven Lord (4:56)
-04. Midsommernattsdrøm (7:58)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17BCCF7CA3DB95B91F602B2052B0DCF694E36F3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746294   (104940) от 30.08.2024
-
-Palaye Royale - Death or Glory (2024) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Death or Glory (3:01)
-02. Hot Mess (2:38)
-03. Just My Type (2:56)
-04. Ache In My Heart (3:08)(   Читать дальше...   )Жанр: RockПродолжительность: 00:37:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E987CC90400F194032C028E4154A01EBA4FA2FC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746366   (104898) от 31.08.2024
-
-Bachman-Turner Overdrive - Gold (2005) 2CD [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Wheel Drive [00:04:22]
-02. Hey You [00:03:34]
-03. Flat Broke Love [00:03:56]
-04. She's Keepin Time [00:04:10](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 02:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7D21012171D9D68DE732D72134D8824CE381DCC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746669   (104858) от 01.09.2024
-
-Ian Wilde - Dream Hunter (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Are You Ready Now (4:41)
-02. Secretly In Love (4:24)
-03. My Heart Is Yours (4:14)
-04. Roaring Angels (4:26)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:44:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B59EDF4AF21A3B752EB57DEDB64B1FF425752A46
 ```
 
 https://mybot314.ru/tekegram_catalog/

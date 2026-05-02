@@ -1,3 +1,61 @@
+###  Публикация: 1390130   (783383) от 14.06.2020
+
+VA - Record Super Chart 640 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783383.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cream Soda & ХЛЕБ - Плачу на техно 2:40
+02. Little Big - Hypnodancer 3:08
+03. El Capon - Shut Up Chicken 2:31
+04. Topic & A7S - Breaking Me 2:47(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:38:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34ABEECBB745D5F178A4F9078B28D77AF5FA2D1E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1205756   (783232) от 11.02.2018
+
+VA - Water Melodies (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_783232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Daminika  -  Snatches Of Memory (Original Mix)  4:54
+02.  Lauge & Baba Gnohm feat. Sarah Lynn  -  My Innocence (Original Mix)  5:16
+03.  Alastair Pursloe  -  36 Degrees In The Shade (Original Mix)  6:15
+04.  Bryan Milton feat. Natune  -  Let Love Live (S.A.T Sunrise Remix)  4:20(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF424A277034F644D637D1E5560AAE69FBB31867
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205829   (782971) от 12.02.2018
 
 VA - Underside 5 LP (2018) [MP3|320 Kbps] <Drum & Bass>
@@ -687,64 +745,6 @@ VA - Empire Records - Night Wave (2018) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:91766F32E85D0B813B9CB7A657EAE002509786CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207630   (780424) от 19.02.2018
-
-VA - Empire Records - Fake 2 (2017) [MP3|320 Kbps] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780424.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Neev Kennedy Jared Knapp and Patrick de Vere - Night Moves (Daniel Kandis Emotional Edit)
-002. Ciaran McAuley - Thoughts Become Things
-003. Fischer & Miethig - Touched By Bermuda (Mindsoundscapes Radio Cut)
-004. Dan Thompson - Lucid(   Читать дальше...   )Жанр: TranceПродолжительность: 10:16:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C618EE42881E8C88A415DA4F8FAA489C13D03E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1207804   (780422) от 19.02.2018
-
-VA - Empire Records - Chill Progress 2 (2018) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_780422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Daxsen & Tony Moss & INDATWIN & Juralis  -  Gravity (Forever Yours) (Juralis Remix)  4:15
-02.  Thomas Lemmer  -  A IV (Original Mix)  4:14
-03.  Klangstein  -  Klangsine (Part 2) (Original Mix)  4:43
-04.  Ju'Go  -  Ocean (Original Mix)  6:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:03:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA651A858345F1126F592F4E38C31596CBA5BEC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

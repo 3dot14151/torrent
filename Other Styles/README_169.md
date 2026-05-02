@@ -1,3 +1,236 @@
+###  Публикация: 460011   (94941) от 29.02.2012
+
+VA - Mystic India (Vol.4) (2004) [MP3|320 кб/с]<New Age, Meditative, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Craig Pruess - Waiting For The Beloved (07:28)
+02. Ranga - Phoenix (04:33)
+03. Deliter - Yellow Mandala (08:36)
+04. Bhakta - Third Eye (06:41)
+05. Chinmaya Dunster - Hanuman In New Delhi (04:15)
+06. Rasa - Jaya Radha (08:28)
+07. Niladri Kumar - Dhun (Raga Bhairavi) (09:22)
+08. Tanmoy Bose - Communion (04:04)
+09. Chinmaya Dunster & The Celtic Ragas Band - Wedding In Kotree (05:09)
+10. Galactic Agents - Kailash Baba (04:52)(   Читать дальше...   )2004Жанр: New Age, Meditative, RelaxПродолжительность: 01:08:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04822FF0AE94C86D9C27DA9469208A05D77023EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 457630   (94708) от 26.02.2012
+
+Theodor Bastard - Oikuomene (2012) [MP3|320 кб/с]<Rock, Folk, Darkwave>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94708.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Takaya Mija (05:36)
+02. Farias (05:26)
+03. Gerda (05:59)
+04. Benga (04:44)
+05. Sagrabat (Diumgo) feat. Julien Jacob (03:34)
+06. Oikoumene (07:41)
+07. Tapachula (07:09)
+08. Intifadah (05:13)
+09. Clean Kron (03:25)
+10. Sol De Morte (03:44)(   Читать дальше...   )2012Жанр: Rock, Folk, DarkwaveПродолжительность: 01:04:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A66B199848D1339B4B472134E2F224F0B41A098
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821995   (94701) от 04.10.2025
+
+VA - The Orient Collective: Ancient Spirits (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94701.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania, Ivan Suvorov - Cleopatra (Original Mix) (4:53)
+02. Inessa, Tibetania - Kalahari (Original Mix) (5:45)
+03. Ildar Bik, Tibetania - Kids (Original Mix) (6:08)
+04. Tibetania, Ivan Suvorov - Dancing Hanuman (Original Mix) (5:22)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:09:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C943EB4F92FF9021AD759457C15F6034C005D08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822104   (94498) от 05.10.2025
+
+VA - The Orient Collective: Nomadic Rhythms (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tibetania, Alexander Barabash - Bedouin (Original Mix) (6:49)
+02. Ertunç Şenbay, Tibetania - Ancient Phokaia (Original Mix) (5:20)
+03. Antonello D'Arrigo, Alessio Serra, Tibetania - Organica (Original Mix) (6:48)
+04. Inkwall, Kintero Guzman, Tibetania - Eterno (Original Mix) (5:50)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D1ACD7FE87F3D8E707FC61B06F36763905F5F62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488881   (91024) от 27.04.2012
+
+Solo Tango Orquestra - Historias de Tango (2010) [FLAC|Lossless]<Tango Argentino>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_91024.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Milonga Sentimental (live) (2:19)
+02. Toda mi Vida (2:50)
+03. Mano Brava (2:14)
+04. Gallo Ciego (3:29)
+05. A las cinco en la giralda (live) (3:13)
+06. Cite Tango (live) (5:46)
+07. Amelitango (live) (3:21)
+08. Oblivion (live) (4:02)
+09. Verano Porteno (live) (6:25)
+10. Solitude (3:43)(   Читать дальше...   )2010Жанр: Tango ArgentinoПродолжительность: 00:42:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 488151   (90944) от 26.04.2012
+
+Мстители - The Avengers (2012) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_90944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soundgarden - Live to Rise
+02. Shinedown - I'm Alive
+03. Rise Against - Dirt and Roses
+04. Papa Roach - Even If I Could
+05. Black Veil Brides - Unbroken
+06. Scott Weiland - Breath
+07. Redlight King - Comeback
+08. Bush - Into the Blue
+09. Evanescence - A New Way to Bleed (Photek Remix)
+10. PUSHERJONES - Count Me Out(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAEA47CE460F7499B5D5EE0BC0EBBAD37E9B8A93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 484822   (89437) от 19.04.2012
+
+МорЖи - Кошерные песни о главном (2005) [FLAC|Lossless]<Jewish Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89437.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Бублички
+2. Шар голубой
+3. Чирибим
+4. Хава нагила
+5. Я тебя люблю
+6. Мальчик, не плачь
+7. 7-40
+8. Да, дочка!
+9. За здоровье!
+10. Тум, балалайка(   Читать дальше...   )Жанр: Jewish FolkПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B94483C1F7568F7E0665F7184A21A573EADECE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 484991   (89375) от 19.04.2012
 
 Шерлок Холмс: Игра теней / Sherlock Holmes: A Game of Shadows from AGR (2011) [MP3|320 кб/с]<Soundtrack>
@@ -624,236 +857,6 @@ Irish Ёрш - Я Ирландец! (2011) [MP3|320 кб/с]<Celtic, Irish Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:14E49253F9925BC45792310117D9A2E2C7E5E7DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459899   (79120) от 29.02.2012
-
-VA - Mystic India (Vol.1) (2001) [MP3|320 кб/с]<New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_79120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Asher - Red desert (05:39)
-02. Prem Joshua - New kafi (06:17)
-03. Prem Joshua - Mango rain (07:10)
-04. James Asher - Further east (05:25)
-05. Chinmaya Dunster & Vidroha Jamie - Wandering way (04:24)
-06. Music from the World of Osho - Namaste (03:45)
-07. Al Gromer Khan - Agori dance (07:07)
-08. Ustad Usman Khan - Raga hansadhwani (08:57)
-09. Hariprasad Chaurasia - Indian folklore (10:03)
-10. Namaste - Gayatri mantra (09:01)(   Читать дальше...   )2001Жанр: New Age, Meditative, RelaxПродолжительность: 01:11:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957E9BDA6E72E8F9167CBCA522E1FC083802AB70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458848   (78964) от 28.02.2012
-
-Монстр в Париже - Un monstre a Paris (2011) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Philippe Peythieu - Interlude: " Les Actualites "
-02. Patrice Renson - La Valse De Paris
-03. Vanessa Paradis - La Seine (Cabaret)
-04. M / Patrice Renson - Emile Et Raoul
-05. Patrice Renson - Sur Les Toits
-06. Patrice Renson - Maynott
-07. Patrice Renson - La Rencontre
-08. M - Un Monstre a Paris
-09. Vanessa Paradis - Interlude: Lucille " Le Baptme "
-10. Patrice Renson / M - Francoeur / Lucille(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:37:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC64889D8DD132C31C37325ACE74750731F0ED27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457463   (78208) от 24.02.2012
-
-Fleur (Flёur) - Пробуждение (2012) [MP3|320 кб/с]<Cardiowave, Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_78208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро (00:47)
-02. Живое (04:04)
-03. Тридцать семь (04:59)
-04. Шиповник (04:59)
-05. Это будет моим ответом (03:52)
-06. Великое ничто (06:08)
-07. Спасти (03:16)
-08. Вальсаутро (02:00)
-09. Дикое сердце (03:39)
-10. Маятник вечности (06:47)(   Читать дальше...   )2012Жанр: Cardiowave, RockПродолжительность: 01:01:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078BE8753E29CA93716E61022643134D995E9186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457061   (77954) от 23.02.2012
-
-Ronan Hardiman - Michael Flatley's Lord Of The Dance (1996) [MP3|320 кб/с]<Celtic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry of the Celts - 4.27
-02. Suil A Ruin - 3.18
-03. Celtic Dream - 5.40
-04. Warriors - 3.08
-05. Gypsy - 2.10
-06. Breakout - 3.49
-07. The Lord of the Dance - 4.47
-08. Spirit in the New World - 1.33
-09. Fiery Nights - 3.10
-10. Lament - 3.24(   Читать дальше...   )1996Жанр: CelticПродолжительность: 01:00:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCBDCBB5B6CD339B2712147DAE47825DA23A7FEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453023   (77829) от 22.02.2012
-
-Future World Music - Дискография (2004-2007) [MP3|192-320 kbps]<Trailer Music>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_77829.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Trailer MusicПродолжительность: 14:00:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF3E442AB25D063BAF3DA295369560D21AAC7A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 451460   (75868) от 13.02.2012
-
-Alan Silvestri & VA - Назад в будущее / Back To The Future (1985) [MP3|320 kbps]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_75868.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Huey Lewis & The News - The Power Of Love (3:57)
-2. Lindsey Buckingham - Time Bomb Town (2:47)
-3. Alan Silvestri - Back To The Future (3:20)
-4. Eric Clapton - Heaven Is One Step Away (4:13)
-5. Huey Lewis And The News - Back In Time (4:21)
-6. Alan Silvestri - Back To The Future Overture (8:19)
-7. Etta James - The Wallflower (2:44)
-8. Marvin Berry & The Starlighters - Night Train (2:17)
-9. Marvin Berry & The Starlighters - Earth Angel (Will You Be Mine) (3:01)
-10. Marty McFly With The Starlighters - Johnny B. Goode (3:08)1985Жанр: SoundtrackПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF8A00815EFC3C2FD952FB82F3E8D345049A03AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771370   (71902) от 06.01.2025
-
-VA - The Orient Collective: Sacred Nomads (2025) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yuluka - Bounce Bazar (5:24)
-02. Paolo Lofrè - Doa (7:32)
-03. DaDa Sound Project - Trakia (5:00)
-04. 4Moon Music - Terra (6:12)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:07:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABEB259BFC3DC7E4870D521DD28DF1EC35066342
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1114571   (832149) от 15.03.2017
+
+Big Black Bible Blues Band - Holy Roller Woman (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832149.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дебютный альбом христианских блюз-рокеров из Луизианы. Если абстрагироваться от содержания, то в общем совсем не плохо. Или не совсем уж и плохо. ИМХО. Решайте сами)))01. Holy Roller Woman (3:29)
+02. Sho Shuda Stay'd (Rollin' Like A Train) (3:48)
+03. Forever You Remain (3:23)
+04. Capsized (4:03)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:41:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8EE1540DEBEEB3CC3780C6B1C6B69E4CC66E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114644   (831685) от 15.03.2017
+
+Nick Earle & Joe Coffin - Wood Wire Blood & Bone (2017) [FLAC|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Someday  (03:43) 
+02| Born Under A Bad Sign  (03:27) 
+03| Who Were You With Last Night  (03:26) 
+04| Hypnotizing  (03:12) (   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:43:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4288DA65B73AE55E2C17CF28DD37680DFC4125A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115014   (830072) от 16.03.2017
+
+Pete Cowley - No Place to Land (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues, Funky Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| License to Drive  (05:20) 
+02| The Other Side  (05:29) 
+03| Shake It Like That  (03:38) 
+04| No Place to Land  (05:04) (   Читать дальше...   )Жанр: Blues, Funky BluesПродолжительность: 00:56:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5B0231B815969557CD89F55E3976999D611B336
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 312373   (830051) от 22.03.2011
+
+Peter Green - The Anthology (2008) 4CD Deluxe Box Set [WavPack|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Change Is Gonna Come (With Splinter Group)  (5:06)
+02. I'm A Steady Rollin' Man Ft. Otis Rush (With Nigel Watson&Splinter Group) (3:32)
+03. It Takes Time (With Splinter Group) (5:09)
+04. Don't Walk Away (With Splinter Group) (4:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 04:30:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114951   (829969) от 16.03.2017
 
 Boz Scaggs - Come On Home (1997) [FLAC|Lossless|tracks + .cue] <Blues-Rock, Pop-Rock>
@@ -630,122 +746,6 @@ Jennifer Holliday - The Song Is You (2013) [FLAC|Lossless|tracks + .cue] <Soul, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF2E139A5590D11B3995C9C408C23BF5411A500F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116747   (822907) от 20.03.2017
-
-Sean Chambers - Trouble & Whiskey (2017) [FLAC|Lossless|tracks] <Electric Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822907.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| I Need Your Lovin'  (03:40) 
-02| Bottle Keeps Staring At Me  (04:03) 
-03| Trouble & Whiskey  (05:06) 
-04| Travelin' North  (03:38) (   Читать дальше...   )Жанр: Electric Blues, Blues RockПродолжительность: 00:44:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2AEE006111D16B3D013030714D4BF849C1B542F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007549   (821619) от 15.04.2016
-
-Spirit Level - Kolossi Blues (2014) [FLAC|Lossless|tracks] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What You See Is What You Get    03:47
-02. It's Gone    03:30
-03. It's A Hard Life    04:52
-04. Foolish Pride    03:08(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:862A30F6918626DCADCA20DF4ED2C3F738CCE328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116913   (821173) от 21.03.2017
-
-Shane Dwight Blues Band - Boogie King (2001) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Home Chicago (3:58)
-02. Snatch It Back & Hold It (3:09)
-03. I Need U So Bad (4:31)
-04. Just A Little Bit (1:59)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:45:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57DC037C285FC957353F5B886EF8FF1BB283E907
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117092   (821168) от 21.03.2017
-
-Rockocola - Rockocola (2016) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| Welcome  (02:11) 
-02| Free Road  (03:05) 
-03| Rollin' Man  (02:18) 
-04| Jam!  (02:47) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31A3FBC5CCDCF07FF6E5B0F0CE7D64D747F190B
 ```
 
 https://mybot314.ru/tekegram_catalog/

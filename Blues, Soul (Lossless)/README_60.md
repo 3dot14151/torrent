@@ -1,3 +1,117 @@
+###  Публикация: 1237214   (552412) от 23.07.2018
+
+Royal Southern Brotherhood - 5 альбомов (2012 - 2016) [FLAC|Lossless|tracks + .cue|image + .cue] <Blues Rock, Southern Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552412.jpg" />
+</div>
+
+
+###  Подробнее
+
+Royal Southern Brotherhood - американская блюзовая рок-группа. Когда вышел их дебютный альбом 8 мая 2012 года, банда состояла из певца и перкуссиониста Cyril Neville, вокалиста и гитариста Devon Allman, вокалиста и гитариста Mike Zito, барабанщика Yonrico Scott и басиста Charlie Wooton. Идею создания команды предложил Reuben Williams, менеджер одновременно и Allman, (   Читать дальше...   )2012 Royal Southern Brotherhood (RUF 1180)
+2013 Songs From The Road, Live In Germany (RUF 1194)
+2014 Heartsoulblood (RUF 1204)Жанр: Blues Rock, Southern RockПродолжительность: 04:56:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF67DE113E25368BC0E9AE967DC15687CD400FAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237405   (552400) от 23.07.2018
+
+Simon McBride - 4 альбома (2008 - 2012) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_552400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Simon McBride (родился 9 апреля 1979 года, Белфаст, Северная Ирландия) - певец, автор песен, продюсер и гитарист. В десять лет McBride начал играть на гитаре. В возрасте 15 лет он выиграл организованный журналом "Guitarist Magazine" конкурс "Молодой гитарист года", проходивший  в конференц-центре "Уэмбли". Спустя несколько месяцев после (   Читать дальше...   )2008 - Rich Man Falling (NUG804)\
+2010 - Since Then (NUG1004)\
+2012 - Crossing The Line (NUG1203)\Жанр: Blues-RockПродолжительность: 03:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BAF2F01E114462ACF056DA006E199168173B1F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309622   (550452) от 20.06.2019
+
+The Gospel Gold Singers - Gospel Gold (1999) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550452.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Angels (3:42)
+02. The Warrior Is A Child (4:05)
+03. Just A Closer Walk With Thee (4:22)
+04. Will The Circle Be Unbroken (2:59)(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC987ACCBD76C6072362069A46C718B61A70232
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046873   (550355) от 29.08.2016
+
+Jim Suhler and Monkey Beat - Radio Mojo (1993) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Were You When the Lights Went Outї  02:50
+02. Doncha Hang Around My Door  04:30
+03. Radio Mojo  03:31
+04. Devil's Hand  03:40(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D59506DDF3F3745F2AFEEC43B3DF1B1863C237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1046881   (550253) от 29.08.2016
 
 Magic Slim & The Teardrops - Chicago Blues Session Vol.3 (1986 - 1987) 1993, Wolf Records [FLAC|Lossless|tracks + .cue] <Chicago Blues, Modern Electric Blues>
@@ -635,122 +749,6 @@ Black Banjo - The Beauty And The Burst (2022) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43B40A6C8E2CC890E7DE5D7A682C14077E4D75A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050485   (536589) от 09.09.2016
-
-Tasha Taylor - Honey For The Biscuit (2016) [FLAC|Lossless|tracks + .cue] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_536589.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feels So Good (3:59)
-02. Wedding Bells (4:28)
-03. Family Tree (Feat. Keb' Mo') (3:52)
-04. Weathernan (2:56)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE99721B68425F02A31A219B021FC5039CDA1E2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926148   (535473) от 09.08.2015
-
-Dan Patlansky - Dear Silence Thieves (2014) [FLAC|image+.cue]<Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Backbite 03:52
-02. Pop Collar Jockey 04:23
-03. Fetch Your Spade 03:52
-04. Hold On 05:03(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19D0695919616B9C31C8D9F765D813D05EADD0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 926140   (535472) от 09.08.2015
-
-Josh Smith - Over Your Head (2015) [FLAC|image+cue]<Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535472.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Long 06:34
-02. Over Your Head (with Joe Bonamassa) 06:46
-03. When I Get Mine 04:42
-04. Still Searching 04:12(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:01:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9D9501EA293291D127FDB4446B88DD4D9C2DF6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239970   (533070) от 08.08.2018
-
-Chris Rea - The Platinum Collection (2006) [FLAC|Lossless|image + .cue] <Blues, Rock Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_533070.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Road To Hell (Part 2)
-02. You Can Go Your Own Way
-03. Josephine
-04. Let's Dance(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 01:02:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A80F01D0F0F938EBD8797317E7E2757B0941B39F
 ```
 
 https://mybot314.ru/tekegram_catalog/

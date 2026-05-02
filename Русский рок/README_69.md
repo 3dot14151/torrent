@@ -1,3 +1,119 @@
+###  Публикация: 955447   (335278) от 10.11.2015
+
+Александр Иванов - Грешной души печаль (1997) Remastered /2015, Медиа Лэнд/ [MP3|320 кб/с|Vinyl-Rip]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Боже, какой пустяк
+02. Я постелю тебе под ноги небо
+03. Моя неласковая Русь
+04. Ночь(   Читать дальше...   )Жанр: RockПродолжительность: 01:08:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBFFE0FFF624EBB417B1DFBFB2F34DBAADA9E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579653   (334863) от 28.09.2022
+
+Inmaze - O (2022) [MP3|320 Kbps] <Math Metal, Post-Core>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334863.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Сквозь Горизонт [00:03:44]
+02 Бегство [00:05:14]
+03 Чужой [00:04:01]
+04 Холод [00:04:06](   Читать дальше...   )Жанр: Math Metal, Post-CoreПродолжительность: 00:30:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21DD342B1F62AA5F1D09493A3A081E6BA4F8E386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579654   (334714) от 28.09.2022
+
+Первый шум - Круг (2022) [MP3|320 Kbps] <Rapcore, Grunge>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Меня зовут Паша (Кажется) [00:03:53]
+02 - Мухи (Король Мертвых) [00:03:54]
+03 - Вдохновение [00:03:59]
+04 - Бессонница [00:03:43](   Читать дальше...   )Жанр: Rapcore, GrungeПродолжительность: 00:18:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5752BCD11A01CB7FE90D6EDA5A33E6B804E4234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1579668   (334686) от 28.09.2022
+
+Илья Афанасьев - 2 Albums (2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_334686.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Было время [00:04:29]
+02. Позолоченный цирк [00:03:21]
+03. Мы в ответе [00:03:11]
+04. Нас когда-то не станет [00:03:14](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F5FBAC8E913FC6C8D1AFF1FC0EE1A72579D31DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1258789   (334343) от 31.10.2018
 
 Чёрный Обелиск - Акустика 2? (2018) [MP3|320 Kbps] <Rock>
@@ -634,122 +750,6 @@ SMAZKA - 2 Albums (2021-2022) [MP3|320 Kbps] <Punk Rapcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4C5CF984E17CFECB762D04E3BAAD6660D5ED54B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581253   (328135) от 04.10.2022
-
-CWT - XX YEARS OF FAIR PLAY (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328135.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Fair Play XX
-2. Derby Day
-3. R.P.McMerfy
-4. Микрорайон(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19297B44B2AADCA5BD31FB57F92A7A221B0F794E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581075   (328134) от 04.10.2022
-
-Absent Sunday - 2 Albums (2018-2022) [MP3|320 Kbps] <Dark Cabaret , Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328134.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another [00:04:16]
-02. Lucifer [00:03:21]
-03. Exorcism [00:03:31]
-04. Swear [00:04:18](   Читать дальше...   )Жанр: Dark Cabaret , Female VocalsПродолжительность: 2 CD, 01:27:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13AD7CC7124C47E58B9FFCAD760C6049C9A042CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581070   (328132) от 04.10.2022
-
-Other in June - Stalks and Oaks (2022) [MP3|320 Kbps] <Alt Country, Southern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Seraphim Fiery [00:03:43]
-02 - Христе, гроб Твой [00:04:09]
-03 - Going Down South [00:06:13]
-04 - Dress of Truth [00:03:46](   Читать дальше...   )Жанр: Alt Country, Southern RockПродолжительность: 00:49:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4349C61584FAEA0D1433181A6740629E870A9910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1581288   (328058) от 04.10.2022
-
-Сюзанна - 8 Albums (2017-2022) [MP3|320 Kbps] <Альтернатива, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Интро [00:00:59]
-02. То [00:02:55]
-03. Целовать [00:03:10]
-04. Все или ничего [00:03:10](   Читать дальше...   )Жанр: Альтернатива, PopПродолжительность: 00:26:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15A994C208C0040AE864E57DD24009C2E42A6055
 ```
 
 https://mybot314.ru/tekegram_catalog/

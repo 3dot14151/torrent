@@ -1,3 +1,119 @@
+###  Публикация: 1568666   (459622) от 09.08.2022
+
+VA - Playlist Summer Hits (2022) [MP3|320 Kbps] <Electropop, Dancehall, Afro Beat, Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459622.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Soolking - Suavemente
+02. Kendji Girac - Conquistador
+03. Dadju - Toko Toko
+04. Amel Bent - 1,2,3(   Читать дальше...   )Жанр: Electropop, Dancehall, Afro Beat, SynthpopПродолжительность: 03:54:38 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE2746454BCF0D7F235308971646F7F8D80257A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059896   (459519) от 05.10.2016
+
+VA - Только Хиты на Хит FM 9 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459519.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ronan Keating - Shine Like Gold  3:39
+002. Юрий Федотов & A-Net - Птица  4:41
+003. Jay Hardway - Electric Elephants  3:09
+004. Ужезима - Магнолия  3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB64E919D557EDFAA64425494BBBFC3D03BE7AAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1162432   (458762) от 01.09.2017
+
+VA - Дикая Мята: Хит От Русского Радио (2017) [MP3|256-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458762.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Анжелика Варум - Твой Свет
+002. Ольга Бузова - Малополовин
+003. Сергей Трофимов - Дождь
+004. Стас Пьеха - Аллегории(   Читать дальше...   )Жанр: PopПродолжительность: 12:10:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED946D1AB90619E9BCF737A5E305CF757DA58135
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941862   (457974) от 29.09.2015
+
+VA - Попсовая соточка MTV. Сборник 6 (2015) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457974.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. T-Killah - Невидимая
+002. Miriam Bryant - Adrenaline
+003. Юлия Волкова - Любовь В Каждом Мгновении
+004. Lorde - Yellow Flicker Beat(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D395FBDEB01F9A8B7E9C0BF2BEFFADC9D28D03C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941942   (457819) от 29.09.2015
 
 Gloria Gaynor - Good Songs (2015) [MP3|160-384 кб/с]<Disco, Pop>
@@ -653,122 +769,6 @@ Lara Fabian - Good Songs (2015) [MP3|160 кб/с]<Pop, Female vocalists>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8C4D1FC49A4C2510761201A0996EC86CBEACD9BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943027   (451499) от 02.10.2015
-
-Vanessa Paradis - Good Songs (2015) [MP3|320 кб/с]<Pop, Dance pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451499.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Abracadabra
-02. Acrobates
-03. Air du Temps
-04. Amour Jamais(   Читать дальше...   )Жанр: Pop, Dance popПродолжительность: 04:56:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A11AD88B5F129545A48631B86CE2B2B1F2D9DEBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942657   (451491) от 02.10.2015
-
-Samantha Fox - Good Songs (2015) [MP3|256 кб/с]<Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Touch Me(I Want Your Body) (1986)
-02. I'm All You Need (1986)
-03. Suzie, Don't Leave Me With Your Boyfriend (1986)
-04. Wild Kinda Love (1986)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 05:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D92F005A68AFACC0BA09F88B4E0A456B149F4F9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942933   (451188) от 02.10.2015
-
-Modern Talking - Good Songs (2015) [MP3|160 кб/с]<Pop, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_451188.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. You're My Heart, You're My Soul (1984)
-002. Bells Of Paris (1985)
-003. Cheri Cheri Lady (1985)
-004. Diamonds Never Made A Lady (1985)(   Читать дальше...   )Жанр: Pop, EurodanceПродолжительность: 09:12:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5C3308E41D747D073FCEE06C6509121F63818B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061116   (450984) от 09.10.2016
-
-VA - К чёрту любовь. Суперсборник хитов (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_450984.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Мураками - До Дрожи
-002. Олег Верд - Иду К Тебе
-003. Светлана Лобода - К Чёрту Любовь
-004. Ольга Зарубина - Лодочка(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F48F23D8136CDACE94F8B9992ED70E402CB05C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

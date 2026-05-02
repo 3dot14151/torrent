@@ -1,4 +1,120 @@
 https://t.me/izofen
+###  Публикация: 1868436   (1067640) от 
+
+VA - Zenith Echoes (Noon Chill Out Lounge), Vol. 1 (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Living Room - A Wonderful Day (03:06)
+ 02.  Calmabohain - So Far Away (Sa Trinxa Edit) (04:45)
+ 03.  Lemongrass - Blue Skies In Your Eyes (04:03)
+ 04.  Five Seasons - Oblivion (04:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4ED1C069FA8A80FE1DBADF06B339F356DD1F84A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866466   (1066155) от 20.04.2026
+
+VA - Chillout Lounge Music Vol. 1 (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Duda - Sunrise (06:04)
+ 02.  Daniele Baldi - Round Me (04:55)
+ 03.  Daniele Baldi - Copacabana (04:53)
+ 04.  Quasimodo - Wind (Lounge mix) (04:35)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79D296B48733E22E0EB5836D89E1F813B0219F25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1865976   (1066003) от 
+
+VA - Whispering in Paradise (Lounge and Chill out Serenades), Vol. 2 (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jennifer James - Balearic Nights (Deep Sunset Mix) (02:58)
+ 02.  Thawn Kez - Silent Whispers (02:56)
+ 03.  Eric Cherez - Night Lights of Ibiza (03:48)
+ 04.  Miria Stella Biscozi - Lights Are Low (Silk Vocal Mix) (03:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:34:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F080EFA1BF9C183D277AD892E5AB82B8F372CBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866082   (1065905) от 
+
+VA - Whispering in Paradise (Lounge and Chill out Serenades), Vol. 1 (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Edvairment - Blue Mountain (03:59)
+ 02.  Miria Stella Biscozi - Lights Are Low (Instrumental Mix) (03:19)
+ 03.  Simon Hidgies - Changes (Chillwave Remix) (03:03)
+ 04.  May Tarai - Seasons (Chii Mix) (03:09)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8161488164EE20DB3564F127C52CAA61F84AE937
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865147   (1065408) от 13.04.2026
 
 VA - Chillout Lounge Sensual Moments (2026) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
@@ -630,122 +746,6 @@ VA - Desert Souls, Vol.1 (Micro Sound Records) (2026) [FLAC|Lossless|WEB-DL|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C199703AFE3C4FB6905EBC761DEAED3C559ECD27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850963   (1054912) от 30.01.2026
-
-VA - The Orient Collective: Celestial Dunes (2026) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Noam Garcia - The Dreams (9:40)
-02. RDSHFT - Mind (6:16)
-03. Tibetania - Spirit of Hato (5:25)
-04. Tibetania - Al Andalus (6:15)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2634BE885ECF8275C63E7741585616C5FA0BEC07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850765   (1054707) от 29.01.2026
-
-GARRISON (Игорь Савосин) - Best Relax Music (2023) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Space>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air Space (6:22)
-02. The Dreams of Morpheus (5:10)
-03. Infinity (5:32)
-04. Dreamer (5:16)(   Читать дальше...   )Жанр: Chillout, Lounge, SpaceПродолжительность: 01:24:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA1A08BF7383C0E1E5D7887FAF3A5C388D3AC50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850764   (1054706) от 29.01.2026
-
-GARRISON (Игорь Савосин) - Atmospheric (2026) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge, Psybient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054706.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secret Location (4:12)
-02. Atomic Pulse (5:55)
-03. Deep Sleep (4:09)
-04. Atmospheric (5:06)(   Читать дальше...   )Жанр: Chillout, Lounge, PsybientПродолжительность: 01:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F085BA099F385B54BA2CDA1EFBAD34FD390C58D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850792   (1054691) от 30.01.2026
-
-GARRISON (Игорь Савосин) - Sounds and Images (2024) [FLAC|Lossless|WEB-DL|tracks] <Chillout, Lounge>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054691.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice and Flame (5:38)
-02. Magical Story (5:29)
-03. Energy Flow (5:04)
-04. Pandora (5:49)(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:02:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26248F895433B3E6C965D9038BC0B40390EE14E1
 ```
 
 https://mybot314.ru/tekegram_catalog/

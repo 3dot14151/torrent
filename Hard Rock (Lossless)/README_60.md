@@ -1,3 +1,119 @@
+###  Публикация: 962447   (290617) от 06.12.2015
+
+AC/DC - The Razors Edge (1990) 2003, Epic [FLAC|tracks+.cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_290617.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunderstruck (4:52)
+02. Fire Your Guns (2:53)
+03. Moneytalks (3:45)
+04. The Razors Edge (4:22)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F6503FD5860FA588144AFA2DB1CFDA7E4BD89E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1186363   (287437) от 24.11.2017
+
+Scorpions - Born To Touch Your Feelings - Best of Rock Ballads (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_287437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Born to Touch Your Feelings (Studio Edit)
+02. Still Loving You
+03. Wind of Change
+04. Always Somewhere(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBAB58FFD70C709A093E1354897FBA66B7303BC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 963605   (286893) от 08.12.2015
+
+Scorpions - Best (1999) [FLAC|tracks+.cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loving You Sunday Morning (5:39)
+02. Rock You Like a Hurricane (4:14)
+03. Wind of Change (5:12)
+04. Is There Anybody There? (4:19)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B974D202FC1FF1EC50967F38B84E14DED766DF25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1263296   (286459) от 20.11.2018
+
+Snakes In Paradise - Step Into The Light (2018) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_286459.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wings of Steel [04:12]
+02.  Silent sky [05:30]
+03.  Will You Remember Me [03:44]
+04.  Angelin [04:25](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED1D5BAA724E76554D44457D08635E2EAF8DFD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1263156   (286318) от 20.11.2018
 
 Nordic Union - Second Coming (2018) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Heavy Metal>
@@ -627,122 +743,6 @@ AC/DC - Greatest Hell's Hits (2009) [FLAC|Lossless]<Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B05706CDD885813E195ADB7BECE3C9962D7024E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340114   (264278) от 22.11.2019
-
-Ten - 21 Альбом Collection (1996-2018) 23 CD  [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264278.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1996 - Ten (X)
-1996 - The Name Of The Rose
-1997 - The Robe(   Читать дальше...   )Жанр: Melodic Hard Rock/AORПродолжительность: 22:02:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10EB155A80282EBD8D31A6517E2B65FD50CEFE13
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340375   (264021) от 23.11.2019
-
-Theocracy - 3 Альбома Collection (2003-2011) [FLAC|Lossless|image + .cue] <Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264021.jpg" />
-</div>
-
-
-###  Подробнее
-
-Theocracy начал свою жизнь как проект одного музыканта – Мэтта Смита (Matt Smith), который сыграл все партии на дебютном альбоме, вышедшем в конце 2003 года на MetalAges Records. Альбом получил фантастические отзывы и признание по всему миру среди металлистов.
-После выхода альбома к проекту присоединились барабанщик Shawn Benson и гитарист Jon Hinds, и в этом составе (   Читать дальше...   )Список альбомов:
-2003 - Theocracy (Remix 2013)
-2008 - Mirror of Souls (Deluxe Edition 2011)
-2011 - As The World Bleeds  (Japanese Edition 2012)Жанр: Progressive Power MetalПродолжительность: 03:33:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A0FD68572BB67856DE9D889B41328AC7069657
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340240   (264020) от 23.11.2019
-
-Platitude - Discography  3 альбома (2003-2005) [FLAC|Lossless|image + .cue] <Melodic Progressive Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264020.jpg" />
-</div>
-
-
-###  Подробнее
-
-Основанные в далеком 1995, шведы PLATITUDE приступили к записи своего дебютного альбома “Secrets Of Life” только в августе 2002. Процесс происходил под руководством продюсера Tommy Hansen в его вcемирно известной Jailhouse Studios. Японская версия альбома вышла в феврале 2003 и в последующие несколько месяцев на группу буквально обрушились позитивные отзывы и рецензии (   Читать дальше...   )Список альбомов:
-2003 - Secrets Of Life
-2004 - Nine
-2005 - Silence SpeaksЖанр: Melodic Progressive Power MetalПродолжительность: 02:26:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:78E74A9EED6295BA31FBEB86F60E61DD740EEA0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340521   (263627) от 24.11.2019
-
-Fools Faith - 2 Альбома Collection (2007-2011) [FLAC|Lossless|image + .cue] <Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263627.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2007 - Undone
-2011 - Sinister FЖанр: Melodic Heavy MetalПродолжительность: 01:32:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FC3ED4364D32E787A3BB33DE1309928C1DC5CB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

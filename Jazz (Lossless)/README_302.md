@@ -1,3 +1,61 @@
+###  Публикация: 1685890   (126768) от 21.12.2023
+
+Ella Fitzgerald & Louis Armstrong - Ella & Louis Wish You A Swinging Holiday (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz vocal, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126768.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleigh Ride [00:02:55]
+02. Cool Yule [00:02:56]
+03. Let It Snow! Let It Snow! Let It Snow! [00:02:43]
+04. I've Got My Love To Keep Me Warm [00:03:10](   Читать дальше...   )Жанр: Jazz vocal, SwingПродолжительность: 01:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9632E059BA37F6EF7B0870A9806F82F97EA6DDEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1686097   (126749) от 21.12.2023
+
+Benny Goodman - Undercurrent Blues (1940 - 1949) 1995, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Big Band, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely Moments [3:08]
+02. Whistle Blues [2:48]
+03. Shirley Steps Out [3:11]
+04. Stealin' Apples [3:10](   Читать дальше...   )Жанр: Big Band, SwingПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAA5EEE0B4B34C572B4D42A43DF7F5A7342A8E02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1686135   (126748) от 21.12.2023
 
 Lisa Hilton - Underground (2011) Ruby Slippers Productions [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
@@ -686,64 +744,6 @@ VA - Jazz Hop #2 (Relaxing Lo-fi Jazzy Chill) (2023) [FLAC|Lossless|WEB-DL|track
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5ACBA4238D41D98211183B4E84DC636C8ECAE309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687778   (125425) от 27.12.2023
-
-Frank Sinatra - Under The Mistletoe (2001) Direct Source Special Products [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jingle Bells [2:02]
-02. Let It Snow, Let It Snow, Let It Snow (Live) [1:28]
-03. O Come All Ye Faithful [2:39]
-04. Silent Night [3:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4113F6501BE561F38BDFF670BE64A68AA23AB492
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687373   (125424) от 27.12.2023
-
-VA - It's a Groovy Thing! Vol. 4 (The Amazing Jazz Funk Instrumental Sound) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Smoke Orchestra - No Way (5:08)
-02. Vito Lalinga (Vi Mode Inc. Project) - Express Yourself (4:50)
-03. Fusion Funk Foundation - Warm Floor (5:50)
-04. The Soultrend Orchestra - Speed Date (3:28)(   Читать дальше...   )Жанр: Jazz, Funk, Acid JazzПродолжительность: 01:59:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:687BE8DBE98008EDF11F6EBEA1367297C9C6F6EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

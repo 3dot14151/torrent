@@ -1,3 +1,32 @@
+###  Публикация: 1608331   (1043552) от 31.01.2023
+
+Rainbow - Long Live Rock ‘n’ Roll (1977) Reissue, Remastered, 2010, Polydor [OGG Vorbis|480 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Live Rock ‘n’ Roll
+02. Lady Of The Lake
+03. L.A. Connection
+04. Gates Of Babylon(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD4C4AF7F2E5B0CAD7EDFF62875C87390A4EF9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1608794   (1043438) от 01.02.2023
 
 Pink Floyd - Animals (2018 Remix) (1977) Reissue, Remastered, 2022, Pink Floyd Records [OGG Vorbis|450 Kbps] <Rock, Prog Rock>
@@ -716,35 +745,6 @@ The Schizophonics - 3 Albums (2017-2022) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:09BCD7770E5B9ABA7A25278473A15BE8023AFD3F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611721   (1040840) от 13.02.2023
-
-Solstice - 3 Albums (2013-2022) [MP3|320 Kbps] <Neo-Progressive, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040840.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2013 - Prophecy
-2020 - Sia
-2022 - Light UpЖанр: Neo-Progressive, Folk RockПродолжительность: 3 CD, 02:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C4CF9D43ABAEFFE88F15DEFB311728F12CC2BC0
 ```
 
 https://mybot314.ru/tekegram_catalog/

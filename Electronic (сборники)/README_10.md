@@ -1,3 +1,61 @@
+###  Публикация: 1472650   (1014139) от 26.05.2021
+
+VA - Options Remake 125 Tracks New May (2021) [MP3|320 Kbps] <Funky, Soulful, Progressive, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014139.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Booka Shade, Felix Raphael - Follow
+002. Brascon - Yeah
+003. Katarina Dariy - The Sun (Extended Mix)
+004. Jay Frog & Sunny Marleen - For You (BlackBonez Extended Remix)(   Читать дальше...   )Жанр: Funky, Soulful, Progressive, Future HouseПродолжительность: 12:17:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E01B0A09B979D56329864D0708C832BCC0F0EBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1472590   (1014058) от 27.05.2021
+
+VA - Beatport Clubbing House: Electro Sound Pack #283 (2021) [MP3|320 Kbps] <Club, Dance House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014058.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Roman Novelrain - She & Me
+002. Inner Sinner - Just Like B4
+003. Groove Control - Real Love
+004. Twenty Six - Consequences(   Читать дальше...   )Жанр: Club, Dance HouseПродолжительность: 08:21:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E92FCD856516D9E258AF85C1DC826F142D7F0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472570   (1014057) от 27.05.2021
 
 VA - Trance Hypnotica (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
@@ -687,64 +745,6 @@ VA - Beatport Ethnic House: Sound Pack #298 (2021) [MP3|320 Kbps] <Ethnic, Funky
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:70FBAE8EE4294B42CCC085302E4E643BBFBDA07A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477723   (1010808) от 16.06.2021
-
-Oystein Ramfjord - Music For Healing (2021) [MP3|320 Kbps] <New Age, Ambient, Meditation>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadow To Light
-02. Ethereal
-03. Mono No Aware
-04. Nightfall(   Читать дальше...   )Жанр: New Age, Ambient, MeditationПродолжительность: 04:12:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DDF7855FA45D8AD711867AE2D933D56508C03A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478178   (1010228) от 19.06.2021
-
-VA - Крутые пушки Лето 2021 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010228.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Topher L246Kii - Down With Me (3:19)
-02. Dj Smash - Волна (FLASH Remix) (5:07)
-03. ABBA - Gimme (Dj Antonio bootleg Extended Mix) (4:59)
-04. Зомб - Орбиты (Nervouss Remix) (4:23)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:45:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15342F16DA4EFE08ED8F6AD2024AA37C62D4E140
 ```
 
 https://mybot314.ru/tekegram_catalog/

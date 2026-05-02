@@ -1,3 +1,32 @@
+###  Публикация: 1095935   (922821) от 22.01.2017
+
+8 Ball Aitken - 8 Ball Aitken (2016) [MP3|320 Kbps] <Blues Rock, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922821.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Going To Mexico, I'm Going To Jail (03:18)
+02. Seven Bucks An Hour In A Chicken Suit (04:03)
+03. Shut The Front Door (02:39)
+04. Girl In A Million (03:40)(   Читать дальше...   )Жанр: Blues Rock, CountryПродолжительность: 00:41:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23CF1F05D7CA68B545675912CBFB38322AEF43C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 988106   (922782) от 19.02.2016
 
 Boyz II Men - Collide (2014) Target Deluxe Edition [MP3|320 кб/с] <Soul, Rhythm & Blues, Ballad>
@@ -716,35 +745,6 @@ Thorbjorn Risager & The Black Tornado - Come On In (2020) [MP3|320 Kbps] <Blues 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7416479198F2B7AE8BF69C76C18B9D3FB8B1847
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102469   (889570) от 10.02.2017
-
-Carl Wyatt & The Delta Voodoo Kings - Doing The Boogaloo (2016) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_889570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Do You Do Me the Way You Do (05:55)
-02. You're Just About to Lose Your Clown (03:33)
-03. Funny Bone (03:29)
-04. My Baby Likes to Boogaloo (03:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:276EDF45FD000C70E631C6620533F2C77918052E
 ```
 
 https://mybot314.ru/tekegram_catalog/

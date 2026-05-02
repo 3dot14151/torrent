@@ -1,3 +1,90 @@
+###  Публикация: 882300   (812728) от 31.03.2015
+
+Волшебство Queen в Будапеште / Varázslat - A Queen Budapesten / Queen - Hungarian Rhapsody: Live In Budapest (1986) BDRip [H.264/720p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812728.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 июля 1986 года. Будапешт. Уже сумерки. Nepstadion - самый большой стадион Венгрии. За считанные мгновения трибуны и само поле стадиона заполняются десятками зрителей, а потом наступит вечер - и на помосте появится Джон Дикон, Брайен Мэй, Роджер Тейлор и Фредди Меркьюри. Меркьюри - имя которому - Вселенная. И тогда на смену мгновениям придет Вечность.01. One Vision
+02. Tie Your Mother Down
+03. In the Lap of the Gods. . .Revisited
+04. Seven Seas of Rhye(   Читать дальше...   )Производство: США, Венгрия, Канада | MAFILM Dialog Filmstudio, Queen Films Ltd.Жанр: RockРежиссер: Янош ЖомбояиПеревод: ОтсутствуетЯзык субтитров: Русский, английскийПродолжительность: 01:31:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4962DDF5E932F72BB3A4AF894908B0BA1EB5A3B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1087355   (812626) от 25.03.2017
+
+Nightwish - Vehicle of Spirits (2016) Blu-ray [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812626.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vehicle of Spirit - релиз от финской симфо-метал группы Nightwish. Два шоу были записаны во время несметные формы Beautiful World Tour. Один в Ратина (31 июля 2015 года), а другой на Уэмбли (19 декабря 2015). Он был выпущен 16 декабря 2016 года.(Tracklist: BD1)
+1. Shudder Before the Beautiful
+2. Yours Is an Empty Hope
+3. Ever Dream(   Читать дальше...   )Производство: США, Warner MusicЖанр: Symphonic Power MetalПеревод: ОтсутствуетПродолжительность: 02:06:23, 01:51:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE1F5FC5BE03D3BCC6F6C22E12C6CD58A70851A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 883543   (812614) от 31.03.2015
+
+Yello - Final Essential Exclusive Limited Edition (2009) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_812614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание сборника видеоклипов Yello Essential - 1992 и видео Touch Yello - 2009Yello Essential - 1992
+
+ 01. Oh Yeah
+ 02. The Race(   Читать дальше...   )Производство: ШвейцарияЖанр: Electronic, Electro Pop, SynthpopПродолжительность: 00:59:02 + 00:40:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5B89021800B4B0B0CFD47E69375C920E993383
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1007977   (811640) от 20.04.2016
 
 Julies Massenet "Manon" (2008) - Netrebko, Villazon, Daza, Fischesser - 2DVD9
@@ -635,84 +722,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FE99C554EE0E34EE7B3BC8B5B7C5DC9E8C72803
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318351   (807515) от 03.04.2011
-
-Чайка (2005) TVRip (ЛЕНКОМ)
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807515.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Спектакль  (ЛЕНКОМ)Режиссер: Марк ЗахаровФормат: AVIПродолжительность: 02:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2037A616CE6088E65CF14078F8498638E7787958
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318093   (807248) от 03.04.2011
-
-Номер 13/Out of order (2001) TVRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807248.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Спектакль, комедияРежиссер: Владимир МашковПеревод: ОригинальныйФормат: AVIПродолжительность: 01:59:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1182AE11063E7D2206A4D9E0CED5EDCD6E232779
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 318427   (807118) от 03.04.2011
-
-Женский монастырь (1971) VHSRip
-
->>Театр и Музыкальное видео
->>Театр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807118.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Спектакль, комедияРежиссер: В. ПлучекФормат: AVIПродолжительность: 02:07:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6EDEE23EE6DBF2EA58A541ED66BA25B731477378
 ```
 
 https://mybot314.ru/tekegram_catalog/

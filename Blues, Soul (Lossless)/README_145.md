@@ -1,3 +1,119 @@
+###  Публикация: 1768056   (33246) от 23.12.2024
+
+Mojo Minefield - Watch Your Step! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Watch Your Step! (4:29)
+02.  Since You Left Me (5:12)
+03.  Quiet Little Place (5:11)
+04.  Livin' Ain't That Hard (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95023CA4BCCEB5B9DA7C67E7A807479D03C23B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768029   (33245) от 23.12.2024
+
+Mississippi MacDonald - I Got What You Need (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33245.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Got What You Need (3:58)
+02.  We're Gonna Make It (4:06)
+03.  Stop! Think About It! (4:29)
+04.  3.35AM (2:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1265E92AF42C4E3BE39661F9AFA5D082079C4C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768060   (33244) от 23.12.2024
+
+Moonset - Dim the Lights and Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33244.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  (Just a Little) Nora (3:42)
+02.  Save My Breath (3:33)
+03.  Wither (4:25)
+04.  Ghosts (2:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:62DFFBAEAA1EA3CC3DCF4AD8C6334FDB0FEC21C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768079   (33243) от 23.12.2024
+
+Russell Ballantine - Delta Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Delta Days (3:26)
+02.  Lonesome Highway Blues (3:34)
+03.  Killing Floor (4:11)
+04.  Chatbot Blues (5:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2F047EA9C725B39DEE4F5DC4C05911C96FC360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768074   (33242) от 23.12.2024
 
 Paweł Szymanski - Good Morning Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ KAT Blue & The True Believers - START BELIEVIN' (2024) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:62D10247BF4E313F0337D56509442A37A8584D75
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773183   (31005) от 14.01.2025
-
-VA - Luxury Soul 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk, Soul, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cornell C.C. Carter - Everyday (4:20)
-02.  Natalie Duncan - I Love You (4:18)
-03.  Randy Bowland - The Power Of Love (4:18)
-04.  Debby Bracknell - What The Heart Wants (4:13)(   Читать дальше...   )Жанр: Funk, Soul, R&BПродолжительность: 02:29:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAEBA1006E2B5809A2F585E34E71A6010CE119DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1373728   (27803) от 13.02.2025
-
-Taj Mahal - 39 Albums, 2 Box Set (1968 - 2024) 62 CD [FLAC|Lossless|tracks + .cue|image + .cue] <Electric Country Blues, Folk, Contemporary Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Henry Saint Clair Fredericks, который использует сценическое имя Taj Mahal, является американским блюзовым музыкантом, певцом, автором песен и композитором к фильмам, играет на гитаре, фортепиано, банджо, губной гармонике и многих других инструментах. Он родился в Нью-Йорке 17 мая 1942. По отцу потомок выходцев из Вест-Индии (он подчёркивал это обстоятельство в связи (   Читать дальше...   )Список альбомов:
-1968 - Taj Mahal
-1968 - The Natch'l Blues
-1969 - Giant Step, De Ole Folks At HomeЖанр: Electric Country Blues, Folk, Contemporary BluesПродолжительность: 52:34:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9B2B39963700BDC03122009654ED142A721D161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270324   (27562) от 15.02.2025
-
-Shemekia Copeland - 11 Albums (1998 - 2024) [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Soul-Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Шемекия Коупленд (англ. Shemekia Copeland; р. 10 апреля 1979, Гарлем, Манхэттен, Нью-Йорк) - американская певица, обладательница многочисленных премий, номинированная на Грэмми и названная журналом "Billboard" настоящей дивой блюза. Обладательницу глубокого сильного голоса часто сравнивают с величайшими Аретой Франклин (Aretha Franklin) и Рут Браун (Ruth (   Читать дальше...   )Список альбомов:
-1998 - Turn the Heat Up (ALCD 4857)
-2000 - Wicked (ALCD 4875)
-2002 - Talking To Strangers (ALCD 4887)Жанр: Modern Electric, Soul-BluesПродолжительность: 09:14:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E9D726204C435C9BAFFB9D7DD6581116029FD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260248   (27487) от 16.02.2025
-
-Muddy Waters - 63 Albums, 3 Box Set (1955 - 2021) 91 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_27487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мадди Уотерс (Muddy Waters, наст. имя McKinley Morganfield, 4 апреля 1915 - 30 апреля 1983 г.) - влиятельный американский блюзмен, который считается основоположником чикагской школы блюза. Его визитной карточкой стала выпущенная в 1950 году композиция "Mannish Boy", а песня "Rollin' Stone" станет настоящим символом зарождающейся рок-музыки, дав (   Читать дальше...   )Список альбомов:
-1958 - The Best Of Muddy Waters
-1960 - Muddy Waters Sings Big Bill Broonzy
-1964 - Folk Singer(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 83:01:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87C6D1C88B8AE3F2E5276692B0A06635C36C4417
 ```
 
 https://mybot314.ru/tekegram_catalog/

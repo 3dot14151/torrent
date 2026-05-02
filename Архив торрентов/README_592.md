@@ -1,3 +1,71 @@
+###  Публикация: 288529   (922560) от 29.01.2011
+
+Synesthetic - Irrational (2011) [MP3|320 kbps] <Psytrance, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Synesthetic - Irrational (2011)
+Год: 2011
+Жанр: Psytrance, Progressive
+Лейбл: Synergetic Records
+Продолжительность: 00:19:04
+Кодек: MP3
+Битрейт: 320 kbps
+Тип битрейта: CBRТрек лист:
+01. Synesthetic - Ethnos [08:58](   Читать дальше...)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:227FA377D5742A3865676C91C041D3D00B7CB649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288559   (922559) от 29.01.2011
+
+VA - Deep Electric Hypnosis (Compiled by DJ Kohra) (2009) [MP3|~180 kbps] <Psytrance, Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922559.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Deep Electric Hypnosis (Compiled by DJ Kohra) (2009)
+Год: 2009
+Жанр: Psytrance, Progressive
+Лейбл: Soultribe Records
+Продолжительность: 01:15:12
+Кодек: MP3
+Битрейт: ~180 kbps
+Тип битрейта: VBRТрек лист:
+01. Mute - Desert Times [07:05](   Читать дальше...)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AADFE6664A49B8265630653E9F4B29E5B345A17E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 288545   (922556) от 29.01.2011
 
 VA - Under The Moss vol.2 (2011) [MP3|320 kbps] <Psytrance, Forest>
@@ -658,69 +726,6 @@ KCNcrew Pack - это огромнейший сборник серийников
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A7CA768E1019E3C24172A77426C80D115D5C6EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366546   (922484) от 12.03.2020
-
-Mac DVDRipper Pro 8.0.5 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Утилита Mac DVDRipper Pro, позволяющая копировать содержимое дисков DVD на жесткий диск для последующего воспроизведения без использования оптического носителя.
-
-По словам разработчиков, при воспроизведении медиа с жесткого диска пользователь сможет избежать лишних царапин на оптическом носителе, отложить просмотр диска, взятого в прокате, сделать резервную копию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.03.2020Разработчик: DVDSuki Software Inc.Поддерживаемая ОС: macOS 10.9+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:679BE18BF1368F719BF9077CB73935D6081E1574
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 288826   (922482) от 29.01.2011
-
-Acoustic Ocean - Reflections On Still Water (2010) [MP3|320 kbps]<New Age, Meditative, Instrumental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922482.jpg" />
-</div>
-
-
-###  Подробнее
-
-(4:18) 01. Night Flight
-(4:46) 02. Moon Over Mauna Kea
-(4:20) 03. Rainbow Falls
-(4:40) 04. Dancers of the Deep
-(4:16) 05. Motherless Child
-(3:54) 06. Devas in the Garden
-(5:22) 07. Place of Refuge
-(5:27) 08. Voyager
-(5:07) 09. Reflections on Still Water
-(5:00) 10. Safe Journey HomeЖанр: New Age, Meditative, InstrumentalПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31B389ADE9137D539D140A6F3EAA8791C344AD5B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 845601   (309419) от 29.11.2014
+
+Miles Davis - Ballads (1998) [FLAC|Lossless]<Jazz, Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Won't You Please Come Home [08:28]
+02. Once Upon a Summertime [03:27]
+03. I Fall In Love Too Easily [06:47]
+04. Song #2 [01:37](   Читать дальше...   )Жанр: Jazz, Cool, Mainstream JazzПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CA1CB4B5EA8A8AA86CBA907614CD85FC95EE6B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1077195   (309080) от 27.11.2016
+
+Alice Coltrane - Radha-Krsna Nama Sankirtana (1977) 2002, Warner Bros. Records [WavPack|Lossless|tracks + .cue] <Fusion Jazz, World jazz, Hindu Devotional,>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Govinda Jai Jai- 5:44
+02. Ganesha -2:42
+03. Prema Muditha -4:32
+04. Hare Krishna -5:53(   Читать дальше...   )Жанр: Fusion Jazz, World jazz, Hindu Devotional,Продолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0921D024B90D170268565247CDF8524D68D6FAA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422548   (308853) от 09.11.2020
 
 Sonny Rollins - The Best of Sonny Rollins: The Blue Note Years (1989) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -690,64 +748,6 @@ Jacques Loussier Trio - Play Bach 1, 2, 3, 4, 5 &  Aux Champs-Elysees (1959-1965
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EACB9569401349DC2708CF0775A35663FC812595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422770   (306412) от 10.11.2020
-
-The Art Farmer Benny Golson Jazztet - I Remember Clifford (1960) 1999, Jazz Hour [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serenata [3:34]
-02. It Ain't Necessarily So [4:30]
-03. Avalon [3:32]
-04. I Remember Clifford [3:13](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3B3C4BB56CDE79675EA7F7D049DA80AC919991A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422772   (306411) от 10.11.2020
-
-Sonny Rollins - Brass / Trio (1958) 1983, Verve Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_306411.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Cares? [4:00]
-02. Love Is a Simple Thing [3:03]
-03. Grand Street [5:56]
-04. Far Out East [4:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96954C0C128B9BB1BCFEF776951D7A5D11F1FE06
 ```
 
 https://mybot314.ru/tekegram_catalog/

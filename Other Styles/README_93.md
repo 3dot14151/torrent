@@ -1,3 +1,204 @@
+###  Публикация: 1045262   (558036) от 24.08.2016
+
+Casey Weston - Find the Moon (2013) [MP3|320 Kbps] <Country Pop, Vocal>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy
+02. Close to Breaking
+03. Heart Don't Fail Me Now
+04. Back to the Start(   Читать дальше...   )Жанр: Country Pop, VocalПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEC9BCF3F7045CD4028F6A2A76BCEA51212D70F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045539   (557945) от 24.08.2016
+
+Laura Sullivan - The Modern Romantic: New Relaxing Classical Piano Music (2016) [FLAC|Lossless|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds of Magic [00:04:13]
+02. Moonlight Romance [00:04:21]
+03. Timeless [00:03:47]
+04. Come Home [00:06:26](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD2D77EC91C690C8E6A9231CEB6AFFC700F1775B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045738   (557732) от 24.08.2016
+
+Bob Dylan - The Best Of Bob Dylan (1997) [FLAC|Lossless|tracks + .cue] <Rock, folk, Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Blowin' In The Wind [02:48]
+ 2 - The Times They Are A-Changin' [03:14]
+ 3 - Don't Think Twice, It's All Right [03:40]
+ 4 - Mr. Tambourine Man [05:29](   Читать дальше...   )Жанр: Rock, folk, CountryПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44435EE5A0BBC654427FCA3BABC16B03D82CC1F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045533   (557724) от 24.08.2016
+
+VA - Grease (The Original Soundtrack From The Motion Picture) (1998) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557724.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Grease [03:25]
+ 2. Summer Nights [03:36]
+ 3. Hopelessly Devoted To You [03:05]
+ 4. You're The One That I Want [02:49](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:03:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45E24E99EAA00853259C73ECA49CCD26E488434C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1045709   (557723) от 24.08.2016
+
+Mystica - Best Of Gregorian Voices: Parts 1-4 (2016) [FLAC|Lossless|tracks] <New Age,Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hymn (05:44)
+02 - (Everything I do) I do it for you (05:45)
+03 - Yesterday (05:02)
+04 - Deep Prayer (04:25)(   Читать дальше...   )Жанр: New Age,EnigmaticПродолжительность: 04:38:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:262307204CC92B7A7D10634A8D63649D27CDFD0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924813   (557535) от 04.08.2015
+
+Llewellyn - Didgeridoo Gold: Music for Relaxation and Healing (2015) [MP3|320 кб/с]<New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557535.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Didge Playa Musica para la Relajacion
+02. Didge Cielo Musica para SanacionЖанр: New Age, Relax |Продолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AB31CC58BEB610A33519AE4A843BCE14FE8565
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924598   (557477) от 04.08.2015
+
+VA - Southpaw (2015) [MP3|320 кб/с]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557477.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. James Horner – Cry For Love (Part 1)
+2. Eminem ft. Gwen Stefani – Kings Never Die
+3. Rob Bailey & The Hustle Standard ft. Busta Rhymes, Kxng Crooked & Tech N9ne – Beast (Southpaw Remix)
+4. Denaun – This Corner(   Читать дальше...   )Жанр: OSTПродолжительность: 00:56:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:147FF249638B0E8EB9F27D4F0F3021A953F274BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1235697   (557323) от 13.07.2018
 
 Deuter - Sattva Temple Trance (2018) [MP3|320 Kbps] <New Age, Meditative, Relax>
@@ -537,209 +738,6 @@ Spencer Lewis - Riffs on a Broad Reach (2019) [FLAC|Lossless|tracks + .cue] <Fol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75471BD1D186F6DCB70A62728D35FA6063966C05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306590   (555502) от 05.06.2019
-
-Hildur Guðnadóttir (Hildur Gudnadottir) - Chernobyl (Music From The Original TV Series) (2019) [FLAC|Lossless|WEB-24Bit|tracks] <Dark Ambient, Experimental, Contemporary, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Door (02:43)
- 02. Bridge Of Death (04:44)
- 03. Turbine Hall (02:37)
- 04. Vichnaya Pamyat (04:07)(   Читать дальше...   )Жанр: Dark Ambient, Experimental, Contemporary, SoundtrackПродолжительность: 00:38:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD38774E13C501F523D89D779AAF4332718551AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306736   (555476) от 06.06.2019
-
-Over the Rhine - Love & Revelation (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555476.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Los Lunas (04:13)
-02. Given Road (03:40)
-03. Let You Down (04:40)
-04. Broken Angels (04:57)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:41:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010DA8A58F4DA7FED9B88A065EC3BDDD8B35157F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 858369   (555337) от 07.06.2019
-
-VA - Тупой и еще тупее 2 / Dumb and Dumber To (2014) [MP3|320 кб/с]<Sountrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Empire of the Sun - Alive
-02. Natural Child - She Got A Mind
-03. Franz Ferdinand - Right Action
-04. Eels - Mistakes of My Youth(   Читать дальше...   )Жанр: SountrackПродолжительность: 00:41:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23C84D44226442056C533E3DF4BE66A92685686A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306964   (555220) от 08.06.2019
-
-Mariee Sioux - Grief in Exile (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk-Rock, Indie-Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Snakes
-02. Baby Wave
-03. Goose Song
-04. Never Known(   Читать дальше...   )Жанр: Folk-Rock, Indie-RockПродолжительность: 00:38:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AC620BBF5653FFC39A5156C9EA6410B23C2C1FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1306905   (555173) от 08.06.2019
-
-Hans Zimmer - X-Men: Dark Phoenix / Люди Икс: Тёмный Феникс (Original Motion Picture Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555173.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gap (08:08)
-02. Dark (04:28)
-03. Frameshift (08:16)
-04. Amity (05:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:08:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080B977798C437DC8BA206EE651517836326CBAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307386   (555013) от 09.06.2019
-
-Armik - Alchemy (2019) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Flamenco, Acoustic guitar>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_555013.jpg" />
-</div>
-
-
-###  Подробнее
-
-1 Alchemy 04:19
-2 Sueno 04:30
-3 Tonight 04:44
-4 Cruising To Moorea 04:25(   Читать дальше...   )Жанр: Instrumental, New Flamenco, Acoustic guitarПродолжительность: 00:44:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D491EA9B3B637429497DBEF1500EBDF2CA8ECC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1307709   (554900) от 10.06.2019
-
-Unto Ashes - Burials Foretold (2012) [FLAC|Lossless|WEB-DL|tracks] <Neofolk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_554900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burials Foretold
-02. Pilzentanz
-03. She Binds Away The Night
-04. Night Is Coming Soon(   Читать дальше...   )Жанр: NeofolkПродолжительность: 00:45:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7EA866423B80D1FE9898101BBFFDF61FFE7B339C
 ```
 
 https://mybot314.ru/tekegram_catalog/

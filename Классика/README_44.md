@@ -1,3 +1,38 @@
+###  Публикация: 497599   (253742) от 17.05.2012
+
+Johann Sebastian Bach - Violin Concertos Nos.1&2 Double Concerto (BWV 1041-43, 1060, 1056): VA, Chamber Orchestra of Europe, violin Salvatore Accardo (1717-1726)/1985, Philips Classics Producti ...
+
+>>Классика
+>>Камерная (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Concerto for Violin no 1 in A minor, BWV 1041
+1.	1. (without indication) 4:00
+2.	2. Andante 6:24
+3.	3. Allegro assai 3:55
+Concerto for Violin no 2 in E major, BWV 1042 
+4.	1. Allegro	8:10
+5.	2. Adagio	7:15
+6.	3. Allegro assai	2:42
+Concerto for 2 Violins in D minor, BWV 1043
+7.	1. Vivace	3:55(   Читать дальше...   )Жанр: ChamberПродолжительность: 01:13:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D37F50402228A509D3829093203D05FF9C70702C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 496743   (253218) от 15.05.2012
 
 Johann Sebastian Bach - Violin Concertos BWV 1041, BWV 1042, BWV 1043, BWV 1060: Isaac Stern, New York Philarmonic, conductor Leonard Bernstein (1717-1726) /1995, Sony/ [APE|Lossless]<Classical>
@@ -747,35 +782,6 @@ Niccolo Paganini - Romantic Classic (1999) [FLAC|Lossless|tracks + .cue] <Classi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D691D176B40D0A98B49515607849BE238C29A221
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1635023   (233035) от 23.05.2023
-
-Pekka Kuusisto, Joonas Ahonen - Symmetria Pario: Creation (2023) [FLAC|Lossless|image + .cue] <Classical>
-
->>Классика
->>Оркестровая (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_233035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Clarice Assad
-[1] Symmetries
-Mehmet Sanlikol
-[2] Seven Sufi Vignettes(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:12:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:030B52488F8AAFE973C7B4724F73681CD7E9C435
 ```
 
 https://mybot314.ru/tekegram_catalog/

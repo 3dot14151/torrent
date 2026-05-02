@@ -1,3 +1,120 @@
+###  Публикация: 1177367   (735767) от 30.01.2022
+
+Cream - 11 albums, 4 Box Set, 54CD (1966-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Psychedelic Rock, Classic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735767.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cream — британская рок-группа, состоявшая из гитариста Эрика Клэптона, бас-гитариста Джека Брюса и барабанщика Джинджера Бэйкера. Часто называется первой супергруппой в истории рок-музыки. Смелые эксперименты в области утяжеления и уплотнения блюз-рокового звука позволяют считать Cream, наряду с Джими Хендриксом, одними из родоначальников хард-рока. В кинофильме (   Читать дальше...   )--------------------------
+
+01. I Feel Free (2:54)
+02. N.S.U. (2:45)(   Читать дальше...   )Жанр: Psychedelic Rock, Classic Rock, Hard Rock, Blues Rock |Продолжительность: 1d 22:25:44 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:71EF0B92D82BC474AEA751FDFCC4DFC6F42B20FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528210   (735386) от 31.01.2022
+
+Praying Mantis - Katharsis (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_735386.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cry For The Nations
+02. Closer To Heaven
+03. Ain't No Rock 'N' Roll In Heaven
+04. Non Omnis Moriar(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28181BAB4B6B8EBA05DBF487A27D5DD4BC1FA0B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528644   (734440) от 02.02.2022
+
+Reckless Souls - Timeless (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734440.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro II (01:45)
+02. Where I Belong (05:40)
+03. All of Nothing (05:14)
+04. Remember N' Forget (04:13)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D921B8D1B90B098285BB9B4409B1DEADC9C84FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1528862   (733572) от 04.02.2022
+
+Crystal Ball - Crysteria (2022) [FLAC|Lossless|tracks + .cue] <Hard Rock,  Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_733572.jpg" />
+</div>
+
+
+###  Подробнее
+
+CRYSTAL BALL - швейцарская Melodic Power Metal группа.
+"Crysteria" - одиннадцатый полноформатный альбом CRYSTAL BALL, вышедший 28-го января 2022-го на Massacre Records. Продюсированием, сведением и мастерингом "Crysteria" занимался Стэфан Кауфманн, бывший барабанщик ACCEPT и гитарист U.D.O., работавший с альбомами групп VANIZE, EMPIRE и ACCEPT, (   Читать дальше...   )01. What Part Of No 03:54
+02. You Lit My Fire 03:58
+03. Call Of The Wild (Feat. Ronnie Romero) 03:14
+04. I Am Rock 03:16(   Читать дальше...   )Жанр: Hard Rock,  Heavy MetalПродолжительность: 00:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9B6117FB5A2639D8AFB338FFDE2CA3EACD865D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1528799   (733565) от 04.02.2022
 
 Tony Martin - Thorns (2022) [FLAC|Lossless|image + .cue] <Hard Rock>
@@ -636,122 +753,6 @@ EZoo - Feeding the Beast (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FEE6B8A69798D6E6EF3D78A042105C3725A117C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1400263   (721288) от 04.08.2020
-
-FM - Synchronized (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Synchronized (04:35)
-02. Superstar (05:07)
-03. Best of Times (04:03)
-04. Ghosts of You and I (04:27)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABC2F71D2AA85434978085E3CBD8A1B641EE5529
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129676   (720790) от 29.04.2017
-
-Big Apple - Rock Area (1995) Japanese Edition 1-st Press [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro 01:11
-02. Groovy 05:09
-03. Fly 05:15
-04. Livewire 06:16(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:12:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1F361547BED473DEA37CC123268A725D52F757
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531585   (720750) от 16.02.2022
-
-Praying Mantis - Katharsis (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Melodic Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cry For The Nations
-02. Closer To Heaven
-03. Ain't No Rock 'n' Roll In Heaven
-04. Non Omnis Moriar(   Читать дальше...   )Жанр: Melodic Hard Rock, Melodic Heavy MetalПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB5147DD8EBF70B5B30F863137747CCDEA5EA172
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1129652   (720712) от 29.04.2017
-
-Rhino Bucket - The Last Real Rock N’ Roll (2017) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Citizens (4:03)
-02. Everything You Do (3:15)
-03. Last Call (3:38)
-04. I'm Your Doctor (2:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBA4EE488570182B24381AE02A37BE2CAC743E5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

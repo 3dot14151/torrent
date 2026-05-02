@@ -1,22 +1,460 @@
-###  Публикация: 235494   (497815) от 12.09.2010
+###  Публикация: 935056   (500685) от 07.09.2015
 
-[Фото] Мебель Сатаны
+Футбол. Отборочный матч ЕВРО 2016. Группа H. 7-й тур. Болгария - Норвегия (2015) SATRip [H.264] [BG]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500685.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отборочный матч ЕВРО 2016 Болгария - Норвегия.Телекомпания: БТН 1Жанр: Спорт, ТелепередачаФормат: TSПродолжительность: 54:08+53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F64F692F3CE7D58DF22336CF93EFEF6B18D1FB5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935150   (500684) от 07.09.2015
+
+Анатомия дня (07.09.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500684.jpg" />
+</div>
+
+
+###  Подробнее
+
+С момента появления жанра телевизионных новостей прошло более полувека. За это время то, что мы привыкли считать новостями, изменилось до неузнаваемости. Другой объем информации, невероятное количество спикеров и иное понимание самой сути информационного повода. Ответом на эту эволюцию станет новое ежедневное шоу «Анатомия дня», сочетающее в себе практически все (   Читать дальше...   )В этом выпуске: Смерть за высоким забором: сына новосибирского бизнесмена подозревают в жестоком убийстве бывшей подруги. Что стало причиной кровавой драмы в элитном коттедже и почему никто не обратил внимания на угрозы подростка? За длинным рублем: почему врачи и учителя потянулись на север и как начать сначала на новом месте? Все о внутренней миграции — в расследовании «Анатомии (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:30:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96FFC45CF5CF26B047C4A4E8F9D7D4D7AEB7A932
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934950   (500683) от 07.09.2015
+
+Футбол. Отборочный матч ЕВРО 2016. Группа F. 7-й тур. Венгрия - Румыния (2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500683.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отборочный матч ЕВРО 2016 Венгрия - Румыния.Телекомпания: Спорт 1Жанр: Спорт, ТелепередачаПродолжительность: 01:44:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:032C2E6438C328D59FB677DF12701E104E2D4BE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 934961   (500682) от 07.09.2015
+
+Футбол. Отборочный матч ЕВРО 2016. Группа C. 7-й тур. Турция - Нидерланды (2015) IPTV [UKR]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500682.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отборочный матч ЕВРО 2016 Турция - Нидерланды.Телекомпания: Футбол 1Жанр: Спорт, ТелепередачаФормат: TSПродолжительность: 01:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:177127AEE8D6E5105F0AD056EEE46ABDD9339590
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935147   (500681) от 07.09.2015
+
+Главное. Итоговая программа (06.09.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500681.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое воскресенье в 18.00 ведущая программы Ника Стрижак подводит информационные итоги недели. В этом ей помогают авторитетные собеседники, ведущие авторских рубрик и команда корреспондентов Пятого канала.В этом выпуске: Критическая масса! Как миллионы беженцев из Африки и Ближнего Востока с боем прорываются в Европу? Как работает подпольный бизнес по доставке мигрантов в лучшую жизнь? Почему эта волна захлестнула Старый Свет именно сегодня? И спасут ли европейцев новые стены и колючая проволока?
+
+Кто устроил «черный понедельник» на мировых биржах? И кто зарабатывает миллиарды на (   Читать дальше...   )Телекомпания: Пятый каналЖанр: ТелепередачаПродолжительность: 01:35:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B527F00ED09A5C5A090147D5FF0E1840C45D528C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 935067   (500680) от 07.09.2015
+
+Футбол. Отборочный матч ЕВРО 2016. Группа C. 7-й тур. Украина - Беларусь (2015) IPTV [UKR]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отборочный матч ЕВРО 2016 Украина - Беларусь.Телекомпания: Футбол 1Жанр: Спорт, ТелепередачаФормат: TSПродолжительность: 01:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C589AAF89B7DECD39DB38E61FBD40156CAF623D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541563   (500679) от 01.09.2012
+
+Wallpapers Sexy Girls Pack (30.08.12) [Wallpapers 16+]
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500679.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красивые и интересные диваны, кресла, столики... шикарная мебель.
-Дорогая и изысканная, сделанная из бивней диких зверей, меха, рогов, страусиных, крокодиловых кож...
-Даже потроха шкафов и ящиков оббиты натуральным мехом.
-Но с первого взгляда понятно, что с мебелью что-то не в порядке.
-Мрачная, рогатая - она так и называется - мебель Сатаны.Разрешение файлов: Разное
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 4000x2554
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C9AF3D63EB4B737BDF33D5E9BFE797030CC6E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541565   (500678) от 01.09.2012
+
+Gilrs Wallpaper (30.08.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 2560x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6AAC189C94F5493970EEBAA51E79F5B6912A80FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564391   (500677) от 18.07.2022
+
+MetaImage  2.0.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500677.jpg" />
+</div>
+
+
+###  Подробнее
+
+MetaImage - это идеальный инструмент для чтения, записи и редактирования метаданных изображений. Это первый редактор, который позволяет редактировать теги EXIF, IPTC и XMP, а также MakerNotes в красивом и знакомом интерфейсе.
+Приложение разработано для улучшения вашего рабочего процесса. Пользователи могут создавать и управлять пресетами. Кроме того, для географических (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 2012-2022 Jérémy VizziniПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:161B15E27A324977E504139BF3E8CD6C5A015533
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564199   (500676) от 18.07.2022
+
+Besatt - Demonicon (2010) [APE|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exordium (00:35)
+02. The Leader Of Fallens (Azazel) (03:24)
+03. The Ninth Spirit (Paimon) (04:06)
+04. Holding The Seal (Forneus) (04:23)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBDD07C946D59909471DB0ABAE8BBCB25617502
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564302   (500675) от 18.07.2022
+
+Stats 2.7.26 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500675.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stats - это приложение с открытым исходным кодом, предназначенное для помощи в отслеживании температуры, напряжения, энергопотребления, уровня заряда батареи, а также общего использования ресурсов из строки меню. Оно полностью настраиваемое, ненавязчивое и довольно простое в использовании.Тип издания: macOS SoftwareРелиз состоялся: 17.07.2022Разработчик: © 2022 Serhiy MytrovtsiyПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D65934030F36D9D424FB3172E757A03785BF3EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564345   (500674) от 18.07.2022
+
+Khariot - Esoteric (2015) [FLAC|Lossless|WEB-DL|tracks] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Astralign
+02 - Hydra
+03 - Khatharsis
+04 - Infinite, Intrinsic Eye(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:41:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D850A0ED7C6C35FB173339C2E8009C334A86A3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564416   (500673) от 18.07.2022
+
+Приключение Бронко Билли / Broncho Billy's Adventure (1911) WEBRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500673.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бронко Билли останавливается на ночь в придорожной таверне и становится невольным участником драматических событий. Симпатичная дочка хозяина таверны является объектом ухаживаний всех местных ковбоев. Да и ей приглянулся один паренек. Но властный папаша не допускает даже мысли, чтобы отпустить от себя дочь. Дело доходит до стрельбы...Производство: США, The Essanay Film Manufacturing CompanyЖанр: Вестерн, короткометражный, немое киноРежиссер: Гилберт М. "Бронко Билли" АндерсонАктеры: Бронко Билли, Arthur Mackley, Эдна Фишер, Фред Черч, Виктор Потел, Кайт Робинсон, Патрик Руни, Огастес Карни, Уиллис Элдер, Louis MorisetteПеревод: Немой с интертитрамиСубтитры: Английские интертитры, русские встроенные отключаемыеПродолжительность: 00:14:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7242233A7C2377F0C6313DF0B84469DF4E722173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1563164   (500672) от 18.07.2022
+
+Ablaze in Hatred - 2 albums (2006-2009) [FLAC|Lossless|image + .cue] <Melodic Death, Doom Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500672.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.A Walk Through the Silence
+2.Perfection of Waves
+3.The Wandering Path
+4.Beyond the Trails of Torment(   Читать дальше...   )Жанр: Melodic Death, Doom MetalПродолжительность: 01:03:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF6AB9AAF29AB8FF1112D668EBF80309C0F18E37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564329   (500671) от 18.07.2022
+
+Eternal Sun Temple - Vol I. (2022) [MP3|320 Kbps] <Doom, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sacrificial Path
+02. Invocation I: The King
+03. Decimation
+04. Revelations I(   Читать дальше...   )Жанр: Doom, Stoner RockПродолжительность: 00:44:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAEA61D75EAC9BC6B655ED4483B2641AF6B4A43D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564352   (500670) от 18.07.2022
+
+Khariot - Disymposium (2011) [FLAC|Lossless|image + .cue] <Progressive Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500670.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Malediction Eclipse (03:42)
+02. Upon Thy Mortal Throne (07:41)
+03. Crimson Sanctorum (05:23)
+04. The Hermit (07:09)(   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 00:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F60B80DD2201FAD27CAF3A3D5EFE720DC9CE0EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 234728   (500669) от 09.09.2010
+
+Bodhi - Trans Ukraine (2006) [MP3|320 kbps]<New age, Flute, Electronic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500669.jpg" />
+</div>
+
+
+###  Подробнее
+
+(10:38) 1. Crimea I
+(04:51) 2. Crimea II
+(05:58) 3. Crimea III
+(05:38) 4. Kiev I
+(07:30) 5. Kiev II
+(08:58) 6. Kiev III
+(07:58) 7. Odessa I
+(04:56) 8. Odessa II
+(06:36) 9. Odessa IIIЖанр: New age, Flute, ElectronicПродолжительность: 01:03:03
 
 ## Скачать торент
 ```bash
@@ -28,28 +466,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318184   (497813) от 04.08.2019
+###  Публикация: 1564395   (500668) от 18.07.2022
 
-Distorted Harmony - Chain Reaction (2014) [FLAC|Lossless|image + .cue] <Progressive Metal>
+future.dj pro - mix everything 1.11.0 U2B [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497813.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500668.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Every Time She Smiles (6:49)
-02. Children of Red (5:13)
-03. Misguided (8:33)
-04. Nothing (But the Rain) (2:14)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:15
+Future DJ Pro - флагманский продукт от компании XYLIO, упакованный новейшими профессиональными DJ функциями, которые отвечают потребностям как профессиональных, так и начинающих ди-джеев.
+Future DJ Pro - диджейское приложение для профессионального микширования треков. Приложение может микшировать музыку в режиме реального времени как в ручном, так и в автоматическом (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 17.07.2022Разработчик: © 2022 Xylio Info SrlПоддерживаемая ОС: macOS 10.15 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E578E7C062F920FCCA063A9E816056FE2E9137F3
+magnet:?xt=urn:btih:B86390706CDD8908FA1EBEA029CEAA18D0621777
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -57,28 +493,139 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318161   (497812) от 04.08.2019
+###  Публикация: 1564383   (500666) от 18.07.2022
 
-Denny Zeitlin - Live at Maybeck Recital Hall, Vol.27 (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Hard Bop, Piano Jazz>
+VideoDuke 2.7 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500666.jpg" />
+</div>
+
+
+###  Подробнее
+
+Загрузите фильмы на Mac с помощью VideoDuke! Он поддерживает все популярные видео-сайты и сохраняет ваши видео в различных форматах файлов. Вы также можете скачать потоковое видео на Mac с очень быстрой скоростью и с отличным качеством.
+Вы можете скачать любое видео, которое вам нравится, одним щелчком мыши. Просто вставьте ссылку на видео, и VideoDuke сделает все (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.07.2022Разработчик: © 2022 VideoDukeПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A6C535D59FE7B13664B052D918F834DA4440358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564336   (500663) от 18.07.2022
+
+Ian Neal - Barkston Ash (2022) [MP3|320 Kbps] <Progressive Symphonic Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500663.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fair Winds 09:51
+02. Ash Phrixus 08:35
+03. Barley Harvest 02:07
+04. Holst's Hollows 05:19(   Читать дальше...   )Жанр: Progressive Symphonic ProgПродолжительность: 00:48:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA1CCE8DC3F4006EE391483D800ADD07729CB93E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564351   (500661) от 18.07.2022
+
+djay - DJ App & AI Mixer 4.0.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500661.jpg" />
+</div>
+
+
+###  Подробнее
+
+djay Pro обеспечивает полный инструментарий для профессиональной деятельности ди-джеев. Его уникальный современный интерфейс создан вокруг сложной интеграции с iTunes и Spotify, предоставив Вам мгновенный доступ к миллионам дорожек. Нетронутое качество звука и мощный набор функций включая формы волны высокой четкости, четыре деки, звуковые эффекты и аппаратную интеграцию (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 18.07.2022Разработчик: © 2022 algoriddim GmbHПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D682CCF91409D73E142D2A57501749ADF761375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564185   (500659) от 18.07.2022
+
+Infernal Legion - Sculptured Humans (2001) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (01:18)
+02. F.T.W. (Fuck The World) (03:07)
+03. Dead In My Own Reality (04:45)
+04. Sculptured Humans (04:40)(   Читать дальше...   )Жанр: Melodic Black MetalПродолжительность: 00:37:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56946396E3EB0B3300A6C7D40540ABE744A4B358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564294   (500657) от 18.07.2022
+
+Bireli Lagrene - Inferno (1987) Blue Note [FLAC|Lossless|tracks + .cue] <Jazz Fusion, Jazz-Rock>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blues on the Side [3:48]
-02. The Girl Next Door [4:21]
-03. My Man's Gone Now [9:05]
-04. Lazy Bird [3:01](   Читать дальше...   )Жанр: Post-Bop, Hard Bop, Piano JazzПродолжительность: 01:05:34
+01. Inferno [6:07]
+02. Rue de Pierre, Part Two [3:57]
+03. Action [4:03]
+04. Rock It [5:11](   Читать дальше...   )Жанр: Jazz Fusion, Jazz-RockПродолжительность: 00:39:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBA1D6E701EC845F8698591D1C67CCB970D544ED
+magnet:?xt=urn:btih:AFF2B149F2CE7C05370021AB2C3742C0F30CF2BA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -86,28 +633,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317998   (497811) от 04.08.2019
+###  Публикация: 1564420   (500655) от 18.07.2022
 
-Yatrogeny - Taedium Vitae (2004) [FLAC|Lossless|image + .cue] <Melodic Black Metal, Melodic Death Metal>
+The Black Noodle Project - When The Stars Align, It Will Be Time (2022) [MP3|320 Kbps] <Psychedelic Space Rock, Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Reality Mirages
-02. Temple of Illusions
-03. Ethereal Hope
-04. The Immortal After of Time to Eternity(   Читать дальше...   )Жанр: Melodic Black Metal, Melodic Death MetalПродолжительность: 00:56:47
+1. Welcome to Hell
+2. Black Moment
+3. Give Us Hope
+4. Time(   Читать дальше...   )Жанр: Psychedelic Space Rock, Progressive RockПродолжительность: 00:41:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DBE52868F29E9F815D698A76D4F25A79A1179ADF
+magnet:?xt=urn:btih:777A761B11D684533740923D2DA1D79F31008CCE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -115,57 +662,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318026   (497810) от 04.08.2019
+###  Публикация: 1564197   (500653) от 18.07.2022
 
-Tysk Raider - aux4418 (2019) mindcolormusic [FLAC|Lossless|WEB-DL|tracks] <IDM>
-
->>Electronic
->>IDM (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wellen (06:24)
- 02. Saltu (05:32)
- 03. Foras Modor (05:15)
- 04. Bachende (06:19)(   Читать дальше...   )Жанр: IDMПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D5FE58F9A62A9ECCD72BADA420C3993F9B4C860
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317985   (497809) от 04.08.2019
-
-Jean Leloup - 1985-2003: Je joue de la guitare (2005) [FLAC|Lossless|tracks + .cue] <French Rock>
+black midi - Hellfire (2022) [FLAC|Lossless|tracks + .cue] <Avant-Garde, Progressive Rock, Experimental>
 
 >>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497809.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Alger (3:29)
-02. Printemps ete (2:25)
-03. Isabelle (2:50)
-04. L'amour est sans pitie (version inedite) (3:27)(   Читать дальше...   )Жанр: French RockПродолжительность: 01:18:31
+01. Hellfire (01:24)
+02.Sugar/Tzu (03:50)
+03.Eat Men Eat (03:08)
+04.Welcome To Hell (04:09)(   Читать дальше...   )Жанр: Avant-Garde, Progressive Rock, ExperimentalПродолжительность: 00:38:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9CE2BD275DD7AA6FD8CF23E4D041704B1BBC9CA
+magnet:?xt=urn:btih:68ED904C1D0397729C8CF7A241F33479B54223CE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -173,552 +691,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318030   (497808) от 04.08.2019
+###  Публикация: 1564327   (500651) от 18.07.2022
 
-Валери Тонг Куонг | Мастерская чудес (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497808.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои новой книги Валери Тонг Куонг переживают не лучшие времена. Учительница Мариэтта разочаровалась в своем муже, а дети в классе откровенно над ней издеваются. Секретарша Милли мучается от одиночества и чувствует себя ненужной. Верзила мистер Майк, бывший военный, дезертировал из армии и стал бродягой. Нужно, чтобы кто-то вытянул их из трясины неудач и неприятностей. (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 06:32:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85AB84251598AACC47790B09BEBE604BECFC7EEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318048   (497807) от 04.08.2019
-
-Демидыч – Берегите природу (2005) [FLAC|Lossless|tracks + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Берегите природу
-02. Таганка
-03. Ангара
-04. Я скучаю по тебе(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:16:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D05285721745E81121F49B59E0406890CDB4E6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318029   (497806) от 04.08.2019
-
-Арто Паасилинна | Сын Бога Грома (2019) [MP3]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497806.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Сын Бога грома» — это история про то, как Финляндия стала страной, где хоть и много проблем, зато нет ни одного дурака. Финский путь к успеху, как водится, не обходится без божественного провидения. Главный персонаж романа — сын скандинавского Бога грома, посланный на землю, дабы вразумить заблудший и разуверившийся в своих исконных северных богах народ. Сын Бога (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 07:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63049BCBDF924B3CDDE64CD1AA3872C408A383E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318069   (497805) от 04.08.2019
-
-Журнал | The World of Interiors №9 (сентябрь 2019) [PDF] [En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_497805.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользующееся большой популярностью издание из Великобритании о дизайне интерьера и оформлении прилегающей территории "The World of Interiors" в своих публикациях знакомит читателей с новейшими трендами интерьерной моды, сведениями об оригинальных новинках для дома, в т.ч. бытовых приборов, оборудования для кухни и ванной комнаты, оригинальных аксессуаров, (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318070   (497804) от 04.08.2019
-
-Журнал | Elle Decoration [UK] №9 (сентябрь 2019) [PDF] [En]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_497804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пользующийся большой популярностью журнал "Elle Decoration" - замечательный и полезный интернациональный журнал о современном интерьере. Для тех, кто думает о перестройке и обустройстве дома, журнал будет помощником в области качественных материалов и тенденций интерьерной моды. В любом номере — дизайнерские новости, демонстрация лучших дизайн-объектов (   Читать дальше...   )Жанр: Дизайн, архитектураФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318042   (497803) от 04.08.2019
-
-VA - German Top 100 Single Charts 09.08.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497803.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shawn Mendes & Camila Cabello - Señorita
-002. UFO361, RAF Camora - Nummer
-003. Lil Nas X - Old Town Road (feat. Billy Ray Cyrus)Жанр: PopПродолжительность: 05:10:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68517B8307C2A83C819B3EB00AAEC5034B68AF7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318114   (497802) от 04.08.2019
-
-студия Диафильм | Землетрясения (1970) [JPG]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Прочие материалы для детей и родителей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497802.jpg" />
-</div>
-
-
-###  Подробнее
-
-География. Учебники и пособия. Землетрясения.
-Для среднего школьного возраста.Жанр: Образование, обучение и развитие детейФормат: JPG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B83B881517383D9BCE90388305E38691BE351D4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317722   (497801) от 04.08.2019
-
-CMD094 - Liquid (2019) [FLAC|Lossless|tracks] <Ambient, Drone, Experimental>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_497801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro Score (03:12)
-02. Liquid (03:14)
-03. Magnetic (02:08)
-04. Line (04:26)(   Читать дальше...   )Жанр: Ambient, Drone, Experimental, DreampunkПродолжительность: 38:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318016   (497800) от 04.08.2019
-
-Jeff Mills - Moon - The Area Of Influence (2019) Axis [FLAC|Lossless|tracks+.cue] <Ambient, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Control, Sattva And Rama (07:03)
- 02. Stabilising The Spin (05:04)
- 03. The Tides (04:25)
- 04. Sleep-Wake Cycles (08:32)(   Читать дальше...   )Жанр: Ambient, TechnoПродолжительность: 01:07:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F888DED2FFB20B5C19F2CCE94AA71FA308290AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318001   (497799) от 04.08.2019
-
-Elton Motello - Victim Of Time (1978) LP [MP3|320 Kbps] <New Wave, Pop Rock, Punk>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_497799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Victim Of Time (2:35)
-02. I Am The Marshall (3:31)
-03. Jet Boy Jet Girl (3:08)
-04. He's A Rebel (2:51)(   Читать дальше...   )Жанр: New Wave, Pop Rock, PunkПродолжительность: 00:37:49
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1318071   (497798) от 04.08.2019
-
-Privacy Eraser Free 4.53.0 Build 3096 + Portable [Multi/Ru]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_497798.jpg" />
-</div>
-
-
-###  Подробнее
-
-Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
-Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317926   (497797) от 04.08.2019
-
-Desert - Fortune Favors the Brave (2019) [MP3|320 Kbps] <Power Metal>
+Nalien - Моя маленькая вселенная (2022) [MP3|320 Kbps] <Punk Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Русский рок
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500651.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fix Bayonets! [4:26]
- 03. Operation Thunderbolt [4:09]
- 07. I Gave You a Kingdome (feat. Georg Neuhauser & Fabio D'amore) [4:31]
- 04. Fortune Favors the Brave [3:56](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:48:48
+1. Не снимаю ТикТок
+2. Моя маленькая вселенная (feat. Майтиори)
+3. Бесконечность ржавых струн
+4. Да, мы потеряны (feat. PROSTOЯ)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:20:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E4A9D8F8FD0CCF7415A7FF2D4F6FE3D4FC4D9783
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1565005   (497796) от 21.07.2022
-
-Xliff Editor 2.9.10.1 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497796.jpg" />
-</div>
-
-
-###  Подробнее
-
-Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff.
-Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DE1076EBC82A1C4774D283DB9B304294BB0D9A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564760   (497795) от 21.07.2022
-
-Besatt - Triumph of Antichrist (2007) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (02:47)
-02. Witch Night (04:03)
-03. Decalogue Will Perish (04:36)
-04. Blood of My Enemies (04:57)(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7A72C4782EE03C0297081EF510D34A03DDA74508
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564979   (497794) от 21.07.2022
-
-Cookie 6.7.4 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497794.jpg" />
-</div>
-
-
-###  Подробнее
-
-Следить за безопасностью своего кошелька, квартиры или машины привыкли все, а вот соблюдать те же правила на просторах глобальной сети почему-то старается далеко не каждый. Хотя делать это нужно и не так уж сложно. Помочь вам обезопасить свое пребывание в интернете сможет наш обзор и приложение Cookie, следящее за всей подозрительной активностью сайтов.
-Cookie - (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2021 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14 или более поздняя версияЯзык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAD990B1DC18A8213E628CD116DD3DF7FC98E7C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564974   (497793) от 21.07.2022
-
-Hides 5.6.1.1 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497793.jpg" />
-</div>
-
-
-###  Подробнее
-
-Повысьте производительность с помощью HidesТип издания: macOS SoftwareРелиз состоялся: 21.07.2022Разработчик: © 2022 SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.11 +Язык интерфейса: Английский, Немецкий
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF11CF1FA3BA4E65D8815C8927E4955184D7CC87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564927   (497792) от 21.07.2022
-
-Black Capricorn - Cult Of Blood (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom Metal, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Secret Society of Seven
-02 Worshipping the Bizarre Reverend
-03 Giants of Prama
-04 Godsnake Djamballah(   Читать дальше...   )Жанр: Psychedelic Doom Metal, StonerПродолжительность: 00:43:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C068CA31F4633EDFF27151E95DB21BC247C51C30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564931   (497791) от 21.07.2022
-
-Lucid Grave - Cosmic Mountain (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom Metal, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Cosmic Mountain
-02 Old Spirit
-03 I'm Still High
-04 I Feel the Fire(   Читать дальше...   )Жанр: Psychedelic Doom Metal, StonerПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DA1F25C89CE407CD0BBD473C2DA50C7EF62608F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564902   (497790) от 21.07.2022
-
-Scroll 2.4.1 [En]
-
->>Программы для macOS
->>Утилиты для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497790.jpg" />
-</div>
-
-
-###  Подробнее
-
-С помощью приложения Scroll исправьте чрезмерно чувствительную прокрутку в некоторых приложениях с помощью Magic Mouse или прокрутите только одним касанием трекпада. Ограничьте прокрутку Magic Mouse. Прокрутите одним касанием сенсорной панели. Поддерживает Magic Mouse и любой трекпад Apple.Тип издания: macOS SoftwareРелиз состоялся: 21.07.2021Разработчик: © 2021 Ryan HansonПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24AF8476F577C97A24A7B8998127DC4F4ED4B25B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1564940   (497789) от 21.07.2022
-
-Supasonic Fuzz - Cobracadabra (2022) [FLAC|Lossless|WEB-DL|tracks] <Psychedelic Doom Metal, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Cobracadabra
-02 Give Me Your Blood
-03 Pork Chop Express
-04 Echoestorm(   Читать дальше...   )Жанр: Psychedelic Doom Metal, StonerПродолжительность: 00:47:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7937C952035801564F6510E56EA24944558B7774
+magnet:?xt=urn:btih:485648F91C223D8C3AE1831D78BA5399DE19044A
 ```
 
 https://mybot314.ru/tekegram_catalog/

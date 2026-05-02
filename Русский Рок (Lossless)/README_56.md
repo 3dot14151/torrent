@@ -1,3 +1,30 @@
+###  Публикация: 1512381   (169400) от 07.12.2021
+
+Forces United - 2 Studio Albums (2020-2021) 3xCD [FLAC|Lossless|image + .cue] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_169400.jpg" />
+</div>
+
+
+###  Подробнее
+
+2020 - Предания о преданных и предателях
+2021 - Предания о преданных и предателях - 2Жанр: Heavy MetalПродолжительность: 02:44:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C80B011C589A041687472721BB626881342B72F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1596580   (169358) от 11.12.2022
 
 Anderdog - Kelgoma (2022) [FLAC|Lossless|WEB-DL|tracks] <Experimental Rock>
@@ -716,35 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AED0C525396ADF729159C1FA9947B68EB0712BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1516601   (165337) от 12.12.2021
-
-Старый Приятель - Время (2021) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165337.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Качай и веселись
-02. Рыжий лис
-03. Смелее
-04. Любовь(   Читать дальше...   )Жанр: RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF60428F6F1924395967DC9DC2FBDFD35690E41
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,231 @@
+###  Публикация: 470988   (97264) от 20.03.2012
+
+[Wallpapers] Nature Pictures №32
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97264.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №32
+Название: Nature Pictures №32
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470164   (97263) от 20.03.2012
+
+VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97263.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Zyce & Flegma - Afterglow (8:41)
+2. Cabal - The sacred Spirit (7:38)
+3. Aquafeel - GloryLand (6:43)
+4. Aqualize - Land of 2 Suns (7:51)
+5. Audioload - Way Out (7:42)
+6. Andromeda - Sensation (Aquafeel RMX) (6:32)
+7. Time in Motion - Colour (8:07)
+8. Progenitor - Typical Human Behaviour (8:18)
+9. Ocean and Display - Kastefa Beach (7:59)2009Жанр: Psy-ProgПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470712   (97262) от 20.03.2012
+
+[Wallpapers] Best HD Wallpapers (20.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3468C7FACB8EACA0056A6D73D4CF71BCA75ECB2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470715   (97261) от 20.03.2012
+
+[Wallpapers] Nature Desktop Wallpapers (20.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471067   (97259) от 20.03.2012
+
+[Wallpapers] HD Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97259.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers Pack 4
+Название: HD Wallpapers Pack 4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470985   (97258) от 20.03.2012
+
+[Wallpapers] Nature Pictures №31
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97258.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №31
+Название: Nature Pictures №31
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 3200х1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470621   (97256) от 20.03.2012
+
+[Wallpapers] Desktop wallpapers (19.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97256.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470709   (97255) от 20.03.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (20.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467137   (97253) от 20.03.2012
 
 Artёm Puchkoff&Sasha Fresh - Jam Sation vol.2 (2012) /2012, Resonanse Records/ [MP3|320 кб/с]<Progressive House/Commertial>
@@ -553,251 +781,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CBC1701A22C22EE7F66C1CC493D74EB25658E258
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470155   (97213) от 19.03.2012
-
-[Wallpapers] Best Wallpapers Pack 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97213.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Best Wallpapers Pack 2
-Название: Best Wallpapers Pack 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91BCF12C0259CD7E4D608C263E309883CBAA21F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470261   (97210) от 19.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (18.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97210.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FF12C5473F7CD57BB51133F29F5E423553A6981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470255   (97208) от 19.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (18.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97208.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C922906EC6CD1AF3A8783B6243214B0DF381FCD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468398   (97207) от 19.03.2012
-
-Dancing Astronaut Radio presents Axis - Episode 01-04 (2012) [MP3|320 кб/с]<Electro House, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97207.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Arty & Mat Zo – Mozart (Original Mix)
-2. Coldplay – The Scientist (Dimitri Vangelis & Wyman Remix)
-3. Tim Mason – Anima (Original Mix)
-4. Swedish House Mafia vs. Knife Party – Antidote (Original Mix)
-5. Skrillex – Bangarang (Original Mix)
-6. Nicky Romero – Toulouse (Original Mix)
-7. Chuckie – Who is Ready to Jump? (Dada Life Remix)
-8. Serge Devant ft. Coyle Girelli – On Your Own (David Tort Remix)
-9. Avicii – Levels (Skrillex Remix)
-10. Kaskade – Turn It Down (Le Castle Vania Remix)Жанр: Electro House, Progressive HouseПродолжительность: 03:24;10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54451919754A8AE4510522E4153998D3282FE746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470184   (97206) от 19.03.2012
-
-[Wallpapers] Best Wallpapers Pack 7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97206.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Best Wallpapers Pack 7
-Название: Best Wallpapers Pack 7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E6EA102F93A6B543F4513B001B81739DC53EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470137   (97203) от 19.03.2012
-
-Braincell - Psychedelicious EP (2012) [MP3|320 кб/с]<Psy / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97203.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bounding Energies (Original Mix) 07:36
- 02. Multitasking (Original Mix) 07:15
- 03. Psychedelics (Original Mix) 07:402012Жанр: Psy / Full OnПродолжительность: 00:22:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D13BFF22A39680593AF72CC620A264C31A5FF82F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470276   (97202) от 19.03.2012
-
-Whisky Bar - Дура... (2008) [MP3|320 кб/с]<Funk, Punk, R&B>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97202.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Женщина (2:54)
-02. Толстый блюз (3:09)
-03. Полиция сказочных нравов (4:19)
-04. Дура! (2:36)
-05. Дождь (4:59)
-06. Voodoo Bank (3:18)
-07. STOP! (4:01)
-08. Наверное, это любовь?! (3:19)
-09. Такси-ганжубас (4:24)
-10. Play Boy (3:53)(   Читать дальше...   )Жанр: Funk, Punk, R&BПродолжительность: 00:46:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4D74BF7E3BA3A9D1F7815FA848CB868188C45EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469962   (97201) от 19.03.2012
-
-КМП - Мертвая запись (2012) [MP3|320 кб/с]<Underground Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. интро
-02. мертвая запись
-03. жизнь или смерть
-04. магнитное поле
-05. кто мы
-06. клиника
-07. много ли надо
-08. ненависть
-09. личные демоны
-10. поговори со мной(   Читать дальше...   )2012Жанр: Underground RapПродолжительность: 00:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42A09AC331D620A187D06702A63D1F31A5B9859
 ```
 
 https://mybot314.ru/tekegram_catalog/

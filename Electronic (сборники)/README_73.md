@@ -1,3 +1,61 @@
+###  Публикация: 1216923   (746132) от 02.04.2018
+
+VA - The Voice Of Morpheus (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746132.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Jamie Lancaster - Get Here
+002. Mephia - Sequoia Symposium (Original Mix)
+003. Solaroid - Awa's Dream
+004. John Dahlback - Walking With Shadows (Acoustic Version)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66E0F56EDD7EECDCC08687BB3B2FB38B852D26C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1216918   (746119) от 02.04.2018
+
+VA - Deep House Collection Vol.164 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746119.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alberto Costas  - Deep Melody (Sayko Kalahashi Remix)
+002. Alexey Union - Kalahari (Original Mix)
+003. Alexey Union - Melegim  (Original Mix)
+004. Amy Guess - Sorry  (Grotesque Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:21:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DCA6D1A184B2DD9E039DD53EAD66D45C66468E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282236   (745960) от 11.02.2019
 
 VA - A State Of Deep VI [Compiled by ZeByte] (2019) [MP3|320 Kbps] <Melodic House, Progressive House, Tribal House>
@@ -687,64 +745,6 @@ Oblivion - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38639E8EC540A95A08A6CF159E154D016B47EFFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1524516   (743318) от 16.01.2022
-
-Bellatrix - Compilation (2022) [MP3|320 Kbps] <Electronic, Spacesynth>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic discotech
-02. Sunrise
-03. Highway To The Unknown
-04. Abyss(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 03:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5792A150C9E8D1D9C4B773372A25BCD9F6234D42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282803   (742541) от 14.02.2019
-
-VA - Sense Of Exotic Trance (2019) [MP3|320 Kbps] <Psychedelic, Goa, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dj Kato And Dj Shouta - Dj Kato
-02. Zoxy - Escape
-03. Sab Kuch Milegator - Surrender To Surreality
-04. Exelization - Ego Transplant(   Читать дальше...   )Жанр: Psychedelic, Goa, TranceПродолжительность: 08:54:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B72BDC869511987373D4D928A354376C40CD4B2
 ```
 
 https://mybot314.ru/tekegram_catalog/

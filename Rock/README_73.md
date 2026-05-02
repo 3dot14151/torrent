@@ -1,3 +1,32 @@
+###  Публикация: 1192072   (263528) от 16.12.2017
+
+Vintage Reserve - Vintage Reserve (2017) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love divine (02:56)
+02. Addicted to you (04:27)
+03. Frisco nights (03:34)
+04. Something good (03:14)(   Читать дальше...   )Жанр: RockПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6FAEDE49F6887AA3786ECAB69FBB3C474863A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1341088   (262631) от 27.11.2019
 
 Intergalactic Touring Band - Intergalactic Touring Band (1977) Reissue CD, 2010, Air Mail Archive [MP3|320 Kbps] <Electronic, Rock, Funk Soul>
@@ -789,41 +818,6 @@ Aranda - Four0Five Sessions (2025) [MP3|320 Kbps] <Alternative-Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1AA27F88A62DFD20F7781BBC1E61158D1D761756
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 493005   (248421) от 07.05.2012
-
-John Lindberg Trio - Hell Of A Ride (2012) [MP3|~245 кб/с (V0)]<Rockabilly, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Honey Hush
-02. A Kiss Like This
-03. Dont Bug Me Baby
-04. Deep In The Dirt
-05. Hearts On Fire
-06. California
-07. Muddy Water
-08. Got Some Loving
-09. Ready Now
-10. Light Up My Fire(   Читать дальше...   )2012Жанр: Rockabilly, Rock & RollПродолжительность: 00:35:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24299BFC6F23FA6A1D76ACF5832E429CACF932F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

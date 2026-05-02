@@ -1,3 +1,29 @@
+###  Публикация: 962467   (294377) от 04.12.2015
+
+Hyperdimension Neptunia Re-Birth2: Sisters Generation (2015) [En/Ru] Repack R.G. Games
+
+>>Win Игры
+>>Arcade
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_294377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hyperdimension Neptunia Re-Birth 2: Sisters Generation - Продолжение известной серии Hyperdimension Neptunia. Игроков вновь ждет мир Gamindustri. На этот раз сюжетная линия игры Hyperdimension Neptunia Re-Birth 2: Sisters Generation будет развиваться вокруг жестокой богини Arfoire, победившей всех богинь. Отныне, злодейка взяла под свою защиту все регионы Gamindustri. (   Читать дальше...   )Тип издания: RepackРазработчик: Compile Heart, Idea FactoryЖанр: JRPG/Party-based/3rd Person/3DЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Английский, Русский (Частично)Язык интерфейса: Английский, Русский (Частично)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD28996F35A7CE4B72C450CDB57E603A55B887EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079690   (293277) от 04.12.2016
 
 Lara Croft GO (2016) [Ru/Multi] (1.0) License RELOADED
@@ -641,32 +667,6 @@ Nex Machina (2017) [Ru/Multi] (1.06 0073) License GOG
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AB3232A814A2A6AA8C9C9D72DB845723A33DDC1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1267375   (266292) от 06.12.2018
-
-Flashback (2018) [Multi] (1.0.0) License GOG
-
->>След.
->>Arcade
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_266292.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flashback™ возвращается! Когда-то этот ставший хитом приключенческий боевик разошелся тиражом более 2,2 миллионов и теперь снова с вами! 2142 год. Сбежавший с борта космического корабля и потерявший память учёный Конрад Б. Харт приходит в себя на Титане, одной из терраформированных лун планеты Сатурн. Его похитители уже близко. Он должен отыскать способ вернуться (   Читать дальше...   )Тип издания: LicenseРазработчик: Paul CuissetЖанр: Приключение, Экшн, ФантастикаЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C80B4797E1688C76A674FA1F858E74BA05EB588
 ```
 
 https://mybot314.ru/tekegram_catalog/

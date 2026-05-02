@@ -1,3 +1,119 @@
+###  Публикация: 1084623   (218897) от 19.12.2016
+
+VA - Снегопад новинок Выпуск №2 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218897.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Olly Murs - Deeper 2:37
+002.Катерина Красильникова - Пусть Станет Раем 3:34
+003.Solange - Where Do We Go 4:25
+004.Роза Мажонц - Выше Облаков 3:57(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E7272814A6021E30C5AE0B19F15A76AC6CFB4DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514136   (218888) от 02.12.2021
+
+VA - Hit Music, зима 2021 (2021) от Мяу [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. HUTS - Gold On My Skin
+002. Ed Sheeran - Shivers
+003. Артем Пивоваров - Мираж
+004. Boostereo - Pop Corn(   Читать дальше...   )Жанр: PopПродолжительность: 09:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9481B53D4686F458A1122152A3407823F8E27FA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1585779   (218833) от 24.10.2022
+
+Michael Jackson - Playlist Halloween (2022) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thriller [05:57]
+02. Blood On The Dance Floor [04:13]
+03. Behind the Mask [05:02]
+04. Dirty Diana [04:41](   Читать дальше...   )Жанр: PopПродолжительность: 03:43:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C84D5FBCAF287FE6E0265CD850893DA5D0EABCEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084624   (218818) от 19.12.2016
+
+VA - Попсовая соточка на Hit fm. Выпуск № 10 (2016) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218818.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.Пьер Нарцисс - Просто Набери 3:37
+002.Indila - Run Run 3:45
+003.Medas Feat. Кейс - Рутина 3:27
+004.Mainstream One - Танцы В Ночи 3:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D901F30F5C24D07FB1C8F9FFDAEEEA52459A8BEC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1425637   (218469) от 22.11.2020
 
 VA - National Pop Dance Music Vol.09 (2020) [MP3|320 Kbps] <Pop, Dance>
@@ -635,122 +751,6 @@ VA - German Top 100 Single Charts 18.08.2023 [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:44F8F5D6CA43F91B48E1ED9F0B9AEA9640423461
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1830918   (205740) от 27.10.2025
-
-Romantic Dreams - Favorites Collection Part 6 (2025) [MP3|320 Kbps] <Italodisco, Italodance, Eurodisco, Eurodance, Sunoai>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Let Him Go
- 02 - Better for You
- 03 - Our Love Song
- 04 - Diamond in the Dust(   Читать дальше...   )Жанр: Italodisco, Italodance, Eurodisco, Eurodance, SunoaiПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B25FC1C35ACAFD5448E6D8E9F48A4C820F758DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584295   (205126) от 18.10.2022
-
-VA - Pop 2 Remix NNM (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_205126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lizzo - 2 Be Loved (Am I Ready) (PNAU Remix) (3:42)
-02. Sam Smith - Unholy (feat. Kim Petras) (Disclosure Remix) (5:02)
-03. Elton John - Hold Me Closer (Joel Corry Remix) (4:08)
-04. James Hype - Ferrari - Oliver Heldens Remix (3:08)(   Читать дальше...   )Жанр: PopПродолжительность: 05:07:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1617CFF83DC9D22DB6DD8E4F18436B6C2A1705F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602521   (204404) от 06.01.2023
-
-VA - Зима на Love Radio (2023) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_204404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Красавцы Love Radio - Танцуем! (3:11)
-02. TSOY - Покажу Паранойю (3:06)
-03. Anna Asti - Ночью На Кухне (3:52)
-04. Alma - Summer Really Hurt Us (2:48)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03778C83F5CD52240B91744E378F2CEAE1294A46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599683   (203930) от 17.01.2023
-
-VA - Новогодние песни Vol.1 (2022) MP3 [320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_203930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wham - Last Christmas (04:23)
-02. Верка Сердючка - Новогодняя (02:22)
-03. София Ротару  - Белая Зима (03:37)
-04. Abba - Happy New Year (Ayur Tsyrenov Remix) (04:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 17:38:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFE0F49F8B1734AEE55334F8461A56D27FEF1B9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1290787   (674455) от 22.03.2019
+
+Lars Gullin - Silhouette, Vol.7 (1951 - 1953) 2005, Dragon Records [FLAC|Lossless|tracks + .cue] <Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674455.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alone [2:55]
+02. The Continental [2:35]
+03. Stella by Starlight [3:24]
+04. For Goofers Only I [3:41](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:13:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3DFCD0BA38EC924B2CB91F0432F82DD9F342CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290789   (674454) от 22.03.2019
+
+Marie Bergman - Fruit (1996) Stunt Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_674454.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down with Love [1:36]
+02. Wish Someone Would Care [4:24]
+03. Let Me Be the First to Know [5:42]
+04. Crazy He Calls Me [5:30](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC403A31230ACD5866794FD08749657612258646
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1223511   (673481) от 05.05.2018
 
 Chick Corea - Expressions (1994) JRP Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Dexter Gordon - Ballads (1978) 1995, Blue Note [FLAC|Lossless|image + .cue] <Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE270448FB959422DEF2B900BF887121F2364C82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291129   (672471) от 23.03.2019
-
-Jim McNeely & Frankfurt Radio Bigband - Barefoot Dances And Other Visions (2017) Planet Arts [FLAC|Lossless|tracks + .cue] <Modern Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672471.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bob's Here [9:59]
-02. Black Snow [10:19]
-03. Barefoot Dances [6:46]
-04. A Glimmer of Hope [7:59](   Читать дальше...   )Жанр: Modern Big BandПродолжительность: 01:02:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AFBC37E79B432D8BF15CF33B61B8C415B104A9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290967   (672455) от 23.03.2019
-
-Halie Loren - From The Wild Sky (2018) [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_672455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roots (3:00)
-02. How to Dismantle a Life (3:16)
-03. Wild Birds (4:15)
-04. Paper Man (4:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:42:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D8D1605E737AAC247AD20C3C8C34408760A654
 ```
 
 https://mybot314.ru/tekegram_catalog/

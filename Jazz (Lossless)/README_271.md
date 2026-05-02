@@ -1,3 +1,61 @@
+###  Публикация: 1588945   (190906) от 07.11.2022
+
+Andre Ceccarelli, Pierre-Alain Goualch, Diego Imbert - Porgy & Bess (2021) Trebim Music [FLAC|Lossless|tracks + .cue] <Post-Bop, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190906.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ouverture [4:46]
+02. There's a Boat Dat's Leavin' Soon for New York [3:12]
+03. Bess, You Is My Woman Now [3:53]
+04. Here Come de Honey Man [2:27](   Читать дальше...   )Жанр: Post-Bop, Jazz FusionПродолжительность: 00:50:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E06842676C3982F85D8D466DE12AE9946D15E5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589131   (190677) от 08.11.2022
+
+Sidney Bechet - 1938 - 1940 (1991) Classics [FLAC|Lossless|tracks + .cue] <Dixieland, New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_190677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ja Da [2:55]
+02. Really the Blues [3:39]
+03. When You and I Were Young, Maggie [2:44]
+04. Weary Blues [3:03](   Читать дальше...   )Жанр: Dixieland, New Orleans JazzПродолжительность: 01:10:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48C197B897E5A1D3B50C310CAEF4203278C91F29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1658827   (190674) от 10.09.2023
 
 McCoy Tyner - The Montreux Years (1981 - 2009) 2023, BMG [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ VA - Luxury Jazz Essentials 2023 (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDC710A2C5EB9EF9893C365760F697004E26E93A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660408   (189374) от 13.09.2023
-
-VA - Unforgettable Romantic Moments Smooth Jazz Tunes (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189374.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chillaxing Jazz Kollektion - Like a River (5:23)
-02. eJazz Artistry - Colder Weather (3:59)
-03. Kool&Klean - Guessing Game (4:17)
-04. Konstantin Klashtorni - Used to Love You (4:08)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 02:17:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA33622AEC365F6BA9165847D85D386CBA7D8DDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1660384   (189371) от 13.09.2023
-
-VA - Jazz music to concentrate (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189371.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Miles Davis - Générique (Bande originale du film "Ascenseur pour l'échafaud") (2:49)
-02. Tommy Flanagan Trio - In The Blue Of The Evening (3:42)
-03. Wes Montgomery - Days Of Wine And Roses (3:48)
-04. Wayne Shorter - Footprints (Remastered) (7:30)(   Читать дальше...   )Жанр: JazzПродолжительность: 02:25:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF278BAEA733617C38985A6769B4C89C7B9C01D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

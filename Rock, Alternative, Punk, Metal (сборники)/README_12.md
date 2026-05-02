@@ -1,3 +1,61 @@
+###  Публикация: 1379570   (839340) от 29.04.2020
+
+VA - Acoustic Rock vol.7 (2020) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839340.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Johnny Cash - Hurt (03:36)
+02. Alice In Chains - Down In A Hole - Live at the Majestic Theatre, Brooklyn, NY - April 1996 (05:46)
+03. Eagle-Eye Cherry - Falling In Love Again (03:30)
+04. Howie Day - Brace Yourself - Acoustic Version (03:48)(   Читать дальше...   )Жанр: RockПродолжительность: 01:47:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:132A713463356208E5D49A1A4B8E7006AB3FF613
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1379373   (839192) от 29.04.2020
+
+Krokus - 100% Krokus (2020) [MP3|320 Kbps] <Rock, Hard Rock, Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock The Block
+02. Drive It In
+03. Eat the Rich (Remastered)
+04. Save Me(   Читать дальше...   )Жанр: Rock, Hard Rock, MetalПродолжительность: 03:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77B0FBE918D92C3455B97A278426D068B7D7ED0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1379506   (839073) от 29.04.2020
 
 Kingdom Come - 100% Kingdom Come (2020) [MP3|320 Kbps] <Rock>
@@ -687,64 +745,6 @@ VA - Country Music Ballads (2016) [MP3|320 кб/с] <Country, Folk Rock, Rock Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F75CEA602B9FDAB609C528A8EB41839A2B940DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 774127   (830576) от 05.04.2014
-
-Sting - 25 Best Songs (2014) [MP3|256 кб/с]<Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mad About You 1991
-02. Shape Of My Heart 1993
-03. Fragile 1987
-04. La Belle Dame Sans Regrets 1996(   Читать дальше...   )Жанр: RockПродолжительность: 01:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D5488B425E405A9FA92F6F721FAB5A3C3EE4F81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005861   (830556) от 10.04.2016
-
-VA - Legends of Metal (2016) [MP3|320 кб/с] <Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slipknot - The Devil In I (5:43)
-02. Disturbed - The Vengeful One (4:12)
-03. Killswitch Engage - The End of Heartache (4:58)
-04. Trivium - Pull Harder On the $trings of Your Martyr (4:51)(   Читать дальше...   )Жанр: MetalПродолжительность: 02:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17888F309EB282C1C183EB9AF8696CEDA1803823
 ```
 
 https://mybot314.ru/tekegram_catalog/

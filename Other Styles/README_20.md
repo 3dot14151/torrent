@@ -1,3 +1,203 @@
+###  Публикация: 984104   (938472) от 09.02.2016
+
+Clint Mansell & Kronos Quartet - Noah (2014) [FLAC|Lossless|tracks + .cue] <Score, Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Beginning, There Was Nothing (04:08)
+02. The World Was Filled With Violence (01:29)
+03. The End Of All Flesh Is Before Me (02:14)
+04. Sweet Savor (04:27)(   Читать дальше...   )Жанр: Score, SoundtrackПродолжительность: 01:18:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1182EC22CF0A589BE156DBFF7B7CF72847A13352
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983901   (938232) от 09.02.2016
+
+M83 - Suburra (2015) Original Motion Picture Soundtrack [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight City (4:04)
+02. By The Kiss (4:03)
+03. On A White Lake, Near A Green Mountain (4:43)
+04. We Own The Sky (5:02)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59906ECD663AEAE63A82DD23D9057BEDF583B3A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363170   (937962) от 02.03.2020
+
+Marcus Paus - Mortal (Original Motion Picture Soundtrack) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937962.jpg" />
+</div>
+
+
+###  Подробнее
+
+|03:08| 01. Mortal
+|03:15| 02. Ecce Eric
+|04:12| 03. The Interrogation Scene
+|03:44| 04. Christine's Introduction(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5A7EE883A40BC2625A803878036C15F9F7A0FDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363968   (937950) от 02.03.2020
+
+Keegan DeWitt - All the Bright Places / Все радостные места (Music from the Netflix Film) (2020) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937950.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:51| 01. All The Bright Places I
+|03:53| 02. All The Bright Places II
+|04:02| 03. All The Bright Places III
+|02:03| 04. Hey Violet(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80BF1A88B73145A30100B8BFD78935743E44CDEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362836   (937905) от 02.03.2020
+
+Justin E. Bell - The Outer Worlds (Original Soundtrack) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937905.jpg" />
+</div>
+
+
+###  Подробнее
+
+|07:45| 01. Hope (Title Theme)
+|02:00| 02. Hope, Forever
+|04:19| 03. Left Adrift (Character Creation)
+|01:07| 04. Phineas Escapes(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:33:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C691606503CE3EBE984A8D572B57B0876A102C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363969   (937901) от 02.03.2020
+
+Keegan DeWitt - All the Bright Places / Все радостные места (Music from the Netflix Film) (2020) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937901.jpg" />
+</div>
+
+
+###  Подробнее
+
+|02:51| 01. All The Bright Places I
+|03:53| 02. All The Bright Places II
+|04:02| 03. All The Bright Places III
+|02:03| 04. Hey Violet(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A51AB29778E6B9FE11A5D58223B810AD462FEC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1362854   (937739) от 02.03.2020
+
+Dreamstate Logic - 6 Compilations (2015-2020) [MP3|320 Kbps] <Ambient, Downtempo, Futurewave>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Ambient, Downtempo, FuturewaveПродолжительность: 08:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04094F65A6C918E0C7E3D4A20C7DDBE2B55F8085
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092438   (937331) от 13.01.2017
 
 Ylric Illians - Celtic Zen 2 (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic>
@@ -548,209 +748,6 @@ VA - Hans Zimmer: The Classics (2017) [MP3|320 Kbps] <Soundtrack, Score>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7FDA6BCCAAEC2BCD6334ACAF2806EE468B489A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093923   (932433) от 16.01.2017
-
-Donna Stewart - Meditations to Heal Your Life (2013) [FLAC|Lossless|WEB-DL|tracks] <Meditative, Spoken Word>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meditations to Heal Your Life - Waking [00:05:19]
-02. Morning Meditation [00:05:04]
-03. Afternoon Meditation [00:05:12]
-04. Evening Meditation [00:04:39](   Читать дальше...   )Жанр: Meditative, Spoken WordПродолжительность: 01:46:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:665CAF414F4EEE5D42B952D16627CE04CC4049A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094029   (932380) от 16.01.2017
-
-Dan Gibson - Relax The Body (2006) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rest and relaxation
-02. The freshest air
-03. free and easy
-04. Releasing(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF9920440E1DAD578F4B32BC6DEADAB3FC6D0B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093798   (932368) от 16.01.2017
-
-Bernward Koch - Remembering (2015) [FLAC|Lossless|tracks + .cue] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Remembering (4:23)
- 02. New Morning (6:35)
- 03. My Secret (3:56)
- 04. Over the Fields (5:32)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 01:02:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6773DDA022EC68CE04518A65E3F33AE5AB61895A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093767   (932365) от 16.01.2017
-
-Fridrik Karlsson - Moods of Iceland (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932365.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fridrik Karlsson - Island er land pitt [00:05:38]
-02. Johanna Vigdis Arnardottir - Vegir liggja til allra atta [00:04:08]
-03. Johanna Vigdis Arnardottir - Vikivaki [00:03:35]
-04. Fridrik Karlsson - Kvoldsigling [00:03:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7C48194E7A56289308470DAC562CD527B46AE12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986126   (932310) от 13.02.2016
-
-Arne Woutersax - Beautiful Singles (2015) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Sax, Nu Disco>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932310.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это захватывающее музыкальное путешествие, наполненное особенным настроением ярких городов мира, чувственным звучанием саксофона и респектабельными тембрами раритетных аналоговых синтезаторов. Работа над альбомом велась под руководством московского nu-disco продюсера, специалиста по классическим аналоговым синтезаторам Александра Боброва при участии российского саксофониста (   Читать дальше...   )01. Theme Of San Remo
-02. Theme Of Monaco
-03. Theme Of Verona
-04. Theme Of Barcelona(   Читать дальше...   )Жанр: Instrumental, Sax, Nu DiscoПродолжительность: 01:03:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4D042C4BAB9FE9C2FFC263FA548E0E5C27CDAEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093851   (932102) от 16.01.2017
-
-Kitaro - Best Of Kitaro (2009) 4CD [FLAC|Lossless|tracks + .cue] <New Age, World Music>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_932102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Winds blows over the hill [6:30]
-02. Floating lotus [5:29]
-03. Daichi [6:10]
-04. Silence [6:13](   Читать дальше...   )Жанр: New Age, World MusicПродолжительность: 03:26:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8666226FEE0172DA7793CF7DC3FA19184084673A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364755   (931971) от 06.03.2020
-
-Fly Project - 50 Indian Spirit (2015) [MP3|320 Kbps] <Native American, New age, World music>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_931971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sioux
-02. South America's Dream
-03. Toro Seduto
-04. Terra del fuoco(   Читать дальше...   )Жанр: Native American, New age, World musicПродолжительность: 03:16:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D40885C0E2DE8E1F3BA8A1D53F1BD3A994B14C
 ```
 
 https://mybot314.ru/tekegram_catalog/

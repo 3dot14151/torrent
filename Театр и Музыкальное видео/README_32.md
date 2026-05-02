@@ -1,3 +1,81 @@
+###  Публикация: 1374429   (872834) от 10.04.2020
+
+Disbelief - The Ground Collapses (2020) WEBRip [H.264/1080p-LQ] <Thrash, Sludge Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872834.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDA Disbelief - The Ground Collapse (2020)Производство: Listenable RecordsЖанр: Death, Thrash, Sludge MetalПродолжительность: 00:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DA6005D98F54B75C97BECB338FD69A1F058FFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374432   (872828) от 10.04.2020
+
+Megatherium - The Eye (2020) WEBRip [H.264/1080p-LQ]<Psychedelic Stoner, Doom Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872828.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDA Megatherium - God (2020)Жанр: Psychedelic Stoner, Doom MetalПродолжительность: 00:10:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D198ECEFCFA130C4953819247BB22BAFBF6763C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374624   (872579) от 10.04.2020
+
+Sodom - Napalm In The Morning (Apocalypse Now!) (2009) WEBRip [H.264/720p-LQ]<Thrash, Heavy Metal>
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872579.jpg" />
+</div>
+
+
+###  Подробнее
+
+CDA Sodom - 2001 - M-16Жанр: Thrash, Heavy MetalПродолжительность: 00:07:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D222F1EBBFA6262CB6880AE09F178DEA6B0D865F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 996784   (871597) от 18.03.2016
 
 Metallica – Quebec Magnetic (2012)[iTunes Movie – HD]
@@ -622,87 +700,6 @@ Mike Oldfield - Tubular Bells II and III Live (1999) 2*DVD-5
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375595   (863534) от 15.04.2020
-
-Юлия Чичерина - Дискотека (2020) WEBRip [H.264/720p-LQ] <Альтернативный Рок>
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Юлия Чичерина - ДискотекаЖанр: Альтернативный РокПродолжительность: 00:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A747708E623B466F9912465BEC4F90D3D016B8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 690637   (863376) от 18.03.2014
-
-Scorpions: Moment of Glory (Live with the Berlin Philharmonic Orchestra) (2000/2013) Blu-Ray [1080i]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_863376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurricane 2000
-02. Moment Of Glory
-03. You And I
-04. We Don't Own The World(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 01:30:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50347F462341FC99C618ECF6E440E4D3B24C3F48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 645736   (861819) от 20.04.2013
-
-Хелло, Долли! / Hello, Dolly! (1969) [720p] BDRip
-
->>Театр и Музыкальное видео
->>Опера, Балет, Мюзиклы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_861819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Нью-Йорк. 1890 год. «Миссис Долли Левай, организует знакомства в атмосфере элегантности и утонченности с целью заключения брака!» Такими словами начинается этот киномюзикл. Простая история о свахе, которая находит всем мужей и жен и не забывает про себя, превращена в феерическое шоу с участием актеров, певцов и танцоров.Жанр: Мьюзикл, Мелодрама, КомедияРежиссер: Джин КеллиАктеры: Барбра Стрейзанд, Уолтер Мэттау, Майкл Кроуфорд, Марианн МакЭндрю, Дэнни Локин, Э.Дж. Пикер, Джойс Амес, Томми Тьюн, Джуди Кнейз, Дэвид Херст, Фриц Фельд, Ричард Колье, Луи АрмстронгПеревод: Многоголосый закадровыйЯзык субтитров: Русские, английскиеПродолжительность: 02:28:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46D94935AFCE02033D34CAA2DA98A19416BEC57D
 ```
 
 https://mybot314.ru/tekegram_catalog/

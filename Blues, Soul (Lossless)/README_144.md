@@ -1,3 +1,119 @@
+###  Публикация: 1760801   (37082) от 16.11.2024
+
+Joe Bonamassa - Lonely Christmas Eve (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lonely Christmas Eve (2:57)
+02. Bring Back My Cadillac (3:36)
+03. Christmas Boogie (One Little Kiss) (6:54)
+04. Merry Christmas, Baby (4:48)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:56:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2CD57AF21FAA7FC5D782C3802C65F58DA8A6B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761580   (36574) от 21.11.2024
+
+Maxwell - Embrya (1988) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Neo Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gestation: Mythos (7:32)
+02. Everwanting: To Want You to Want (6:33)
+03. I'm You: You Are Me and We Are You (Pt Me & You) (5:32)
+04. Luxury: Cococure (5:41)(   Читать дальше...   )Жанр: Funk, Soul, Neo SoulПродолжительность: 00:59:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1588A2F7061DD170EC0FE485D53EF4A95E5B3B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762736   (35946) от 27.11.2024
+
+Drew Neirin - A Star Shaped Pegs Experience (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Earl St. John - No Such Thing (as Too Long) (feat. Marie-Louise & Earl St. John) (4:02)
+02. Marie-Louise - 2 the Bone (feat. Marie-Louise) (3:59)
+03. Old Time Train (3:20)
+04. Danny Waldron - Love Me All You Want (Live at Pebbles) (feat. Marie-Louise, Earl St. John & Danny Waldron) (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4105F95BB87E11229E076C0706FB0627643E865D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1762724   (35945) от 27.11.2024
+
+Baxter Robertson - Patchwork Man (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35945.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patchwork Man (4:55)
+02. Bad Information (4:00)
+03. Let Me Take My Time (4:23)
+04. Little Red Devil (3:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5A52F980970B20D2A801E17CCF7D6202BF49DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1762735   (35944) от 27.11.2024
 
 Dick Earl's Electric Witness - Get Up Off The Ground (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Mitch Woods - Happy Hour (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:229D8E22BAC71673B508B38773615D1855F7C774
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768056   (33246) от 23.12.2024
-
-Mojo Minefield - Watch Your Step! (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Watch Your Step! (4:29)
-02.  Since You Left Me (5:12)
-03.  Quiet Little Place (5:11)
-04.  Livin' Ain't That Hard (4:24)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95023CA4BCCEB5B9DA7C67E7A807479D03C23B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768029   (33245) от 23.12.2024
-
-Mississippi MacDonald - I Got What You Need (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33245.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  I Got What You Need (3:58)
-02.  We're Gonna Make It (4:06)
-03.  Stop! Think About It! (4:29)
-04.  3.35AM (2:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1265E92AF42C4E3BE39661F9AFA5D082079C4C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768060   (33244) от 23.12.2024
-
-Moonset - Dim the Lights and Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  (Just a Little) Nora (3:42)
-02.  Save My Breath (3:33)
-03.  Wither (4:25)
-04.  Ghosts (2:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62DFFBAEAA1EA3CC3DCF4AD8C6334FDB0FEC21C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768079   (33243) от 23.12.2024
-
-Russell Ballantine - Delta Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33243.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Delta Days (3:26)
-02.  Lonesome Highway Blues (3:34)
-03.  Killing Floor (4:11)
-04.  Chatbot Blues (5:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF2F047EA9C725B39DEE4F5DC4C05911C96FC360
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1773016   (31118) от 13.01.2025
+
+VA - Best Slow Rock Love Songs, Ballads (2025) [MP3|320 Kbps] <Rock, Ballad>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31118.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bad English - When I See You Smile [04:17]
+002. Extreme - More Than Words [05:37]
+003. Megadeth - Symphony Of Destruction [04:07]
+004. Mr. Big - To Be With You [03:28](   Читать дальше...   )Жанр: Rock, BalladПродолжительность: 07:55:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF5906DE3A07A5F05D85AACD3CB2852FAA2F4965
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1773238   (30798) от 16.01.2025
+
+Король и Шут - Compilation (1991-2012) [MP3|320 Kbps] <Punk rock, Horror punk, Folk punk>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Воспоминания о Былой Любви. instrumental (Герои и Злодеи 2000)
+02. Лесник (Будь Как Дома, Путник… 1997)
+03. Король и Шут (Будь Как Дома, Путник… 1997)
+04. Мария (Камнем По Голове 1996)(   Читать дальше...   )Жанр: Punk rock, Horror punk, Folk punkПродолжительность: 06:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8469FF5ABB4CFA64BBF5775A95AD97FD9ABC827D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774129   (30418) от 19.01.2025
 
 Сансара - Compilation (2001-2024) [MP3|320 Kbps] <Indie rock, New wave>
@@ -687,64 +745,6 @@ VA - Music For You vol.32 (2025) [MP3|320 Kbps] <Prog Rock, Heavy Metal>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4EAF0C48BEC98C77727541EAAAACE8335A0A7CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788909   (22791) от 01.04.2025
-
-Disturbed - Compilation (2000-2025) [MP3|320 Kbps] <Alternative metal, Heavy metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_22791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Animal (Asylum 2010)
-02. Indestructible (Indestructible 2008)
-03. Sacred Lie (Ten Thousand Fists 2005)
-04. Divisive (Divisive 2022)(   Читать дальше...   )Жанр: Alternative metal, Heavy metalПродолжительность: 05:35:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C930E50D4B9455A06D36CF6B752CE5122192C07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1761963   (21668) от 12.04.2025
-
-Linkin Park - Compilation (1999-2024)[MP3|320 Kbps] <Alternative, Nu metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Session (Meteora 2003)
-02. A Light That Never Comes (Recharged 2013)
-03. A6 (Lost Demos 2023)
-04. Across The Line (Minutes To Midnight 2007)(   Читать дальше...   )Жанр: Alternative, Nu metalПродолжительность: 04:09:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36174A32660F4DEAFF1E30208691C8B8C5492BB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

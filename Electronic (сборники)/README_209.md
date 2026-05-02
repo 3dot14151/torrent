@@ -1,3 +1,61 @@
+###  Публикация: 1684982   (127464) от 17.12.2023
+
+Azimov - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  World Hold On
+ 02.  Angela
+ 03.  The City of Love
+ 04.  Memories(   Читать дальше...   )Жанр: ElectronicПродолжительность: 06:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77D8066836A05FEA31CA5572DDFBE9CA5698716C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1684785   (127415) от 17.12.2023
+
+Karimov - Compilation (2023) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Stay With You
+ 02.  Memories
+ 03.  Soul
+ 04.  Together(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F1DC6C28B69241487E6392772AC56FA916385BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685412   (127099) от 19.12.2023
 
 MENDA part 2 - Compilation (2023) [MP3|320 Kbps] <Electronic>
@@ -687,64 +745,6 @@ VA - Compilation Electronic part 45 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F815E292817B6BA34CB83196482AA01E4027378E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694379   (120999) от 25.01.2024
-
-VA - Compilation Electronic part 46 (2024) [MP3|320 Kbps] <Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120999.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DNDM - Dame Mas
-02. Imazee - Empty Handed
-03. Hayit Murat - Lament of Love
-04. Muvi - Distant Dream(   Читать дальше...   )Жанр: ElectronicПродолжительность: 04:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73DA467E7D1BF185718C9ED1824B00EAED0B0157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694678   (120841) от 26.01.2024
-
-VA - 60 minutes. Old School Dance Music vol.22 (mixed by Dj V) (2023) [MP3|320 Kbps] <Club House, Piano House, Latin House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120841.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Dr. Kucho! - Lies To Yourself
-02-Skylark - That's More Like It
-03-The Caramel Club - Mama Say Mama Sa (Hi_Tack Mix)
-04-Acapulco - Clavadistas (Original Peruz Mix)(   Читать дальше...   )Жанр: Club House, Piano House, Latin House, Progressive HouseПродолжительность: 01:00:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A3D491FFECDAEBF602D3528C206DC2A2EE70FB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

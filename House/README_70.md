@@ -1,3 +1,206 @@
+###  Публикация: 1592883   (181777) от 25.11.2022
+
+VA - 100% Club Hits 2023 (2022) [MP3|320 Kbps] <Electro, House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181777.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Disco Boys - Promised Land
+02. Klaas - Take Me Back
+03. Lo - Angel Eyes
+04. Sam Collins - Hard Feelings(   Читать дальше...   )Жанр: Electro, HouseПродолжительность: 01:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0656E69ED4AEA4B14E3BAD915E9511E8CA70E3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593062   (181763) от 25.11.2022
+
+VA - Ministry of Sound - The Annual 2023 (2022) [MP3|320 Kbps] <Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eliza Rose & Interplanetary Criminal - B.O.T.A. (Baddest Of Them All) (Edit)
+02. LF System, Silk - Afraid To Feel
+03. Alok x Ella Eyre x Kenny Dope feat. Never Dull - Deep Down
+04. Nathan Dawe - 21 Reasons (feat. Ella Henderson)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:12:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5979E3DCC7BEC52200AFC1179076425E88B20E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593741   (179901) от 28.11.2022
+
+VA - Sexy Funky House Annual 2023 (2022) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179901.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zsak - I Want Your Soul (Original Mix) (5:12)
+02. DJ Aiblo - Paradise (Original Mix) (5:31)
+03. Crazibiza - Thinking About (House Of Prayers Remix) (5:51)
+04. ANRO - Street Life (Original Mix) (4:59)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:39:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:615BB345AC6D1BB94D5AA01362FE90CCAFEC6D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1593534   (179896) от 28.11.2022
+
+VA - 2022 MMA Workout Music [MP3|320 Kbps] <House, Dance, Other>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179896.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Imagine Dragons - Believer (3:24)
+02. Kid Cudi - Day 'N' Nite (Crookers Remix) (4:41)
+03. FVLCRVM - Wildfire (3:46)
+04. DMX - X Gon' Give It To Ya (3:37)(   Читать дальше...   )Жанр: House, Dance, OtherПродолжительность: 01:48:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FFCA858C2946A05C1B913CF5A01B1BCE2E65FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594088   (179398) от 29.11.2022
+
+VA - House Radio 2022 - The Ultimate Collection #3 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robaer - Topmodel (Original Mix)
+02. NDEE - Millions (As One)
+03. Aribo - Goodbye (Original Mix)
+04. Roads We Walk - All Around the World (Lalala) (Radio Edit)(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 00:59:10 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E7065E4B6E191035336123FF3F6D17D08D1309F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594083   (179379) от 29.11.2022
+
+VA - House Radio 2022 - The Ultimate Collection (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flip Capella, AXXIK - Fools
+02. Deepierro, Farukki, ZHIKO - Wild Wolves
+03. Devolve - Run This Town
+04. Wildvibes, Lasso The Sun - Reunite (Axiis Remix)(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 01:06:55 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8377ACB2EC0199D09D5E0ACA7110D50CC79484C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594092   (179371) от 29.11.2022
+
+VA - House Radio 2022 - The Ultimate Collection #4 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_179371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faul - Something New (Original Mix)
+02. Flip Capella - Going Crazy (Ron Starz Remix)
+03. AMIICCA - Hanging On (Original Mix)
+04. Harps & Chords - I'm Fine (Original Mix)(   Читать дальше...   )Жанр: Future House, Groove, Club, Nu DiscoПродолжительность: 01:02:36 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A07BE593A4A753B7C8009A6C213551B33149599
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594096   (179367) от 29.11.2022
 
 VA - House Radio 2022 - The Ultimate Collection #5 (2022) CD, Compilation [MP3|320 Kbps] <Future House, Groove, Club, Nu Disco>
@@ -542,209 +745,6 @@ VA - Which Bottle?: AUTUMN CLUB BOX 2023 [MP3|320 Kbps] <House, Funky House, Dan
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9B8D13DF63A89BA70910160FCFC41411679FAF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1431931   (166068) от 15.12.2020
-
-VA - Best Of Toolroom 2020 (Mixed by Mark Knight) (2020) [MP3|320 Kbps] <House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_166068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mark Knight & Rene Amesz feat. Tasty Lopez - All 4 Love (Extended Mix) [6:30]
-02. KC Lights - Girl (Extended Mix) [5:46]
-03. Crazy Fluke - Obey (Iglesias Extended Mix) [7:12]
-04. Wankelmut & Anna Leyne - Free At Last (Martin Ikin Extended Remix) [5:46](   Читать дальше...   )Жанр: House, ElectronicПродолжительность: 08:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE8CCC545005F751665EDBBBE08DE9806929C3B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345959   (165127) от 17.12.2019
-
-VA - Best Of Dance 2019 - The Radio Collection (2019) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Janosh & Jakub Ondra - 500 Miles (Radio Mix) 3:26
-02. Soultight feat. Jenna Evans - Back To You (Radio Edit) 3:48
-03. Audax & Adriano Pagani with Dimy Soler - Fire & Ice (Radio Edit) 2:58
-04. MZA & Matty Menck - Light Up (Matty Menck Edit) 2:25(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:06:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7285D4D06D82C4F3B05C1CF8023EA99E998E626
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1345937   (165064) от 17.12.2019
-
-VA - Christmas Dance Party 2019-2020 [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lorenz Koin feat. Norah B. - Summer Nights (Radio Edit) 3:12
-02. Brazyleros - We Are Free (Derek Armstrong Radio Edit) 3:43
-03. Paul Panait feat. Nicolle - Touch Me (DJ Magnum Radio Edit) 3:17
-04. A-Mase & Sharliz - Lend Me Your Love (Radio Edit) 3:52(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD316BEC8586B9227BB2D0DD08613574F2094CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1674525   (160644) от 07.11.2023
-
-VA - Pop & Dance Anthems 2023 [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160644.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chelina Giordano - Complete Me (Original mix) [03:01]
-02. The Brightside - Make It Better (Original mix) [03:11]
-03. Space Marchello - Hold You (Original mix) [03:09]
-04. Regardless Boys - Behind (Original mix) [03:02](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:24:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4394871AB50C31CAE16C6F818BB0EFE14CFFC39F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1675214   (160252) от 09.11.2023
-
-VA - Dancing Services, Vol. 4 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160252.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dado - Do it Better [04:57]
-02. Hannah Aviera - Need Your Love [02:41]
-03. George Rodgers - How Will I Know [03:30]
-04. 4brownbottles - My Memories [02:57](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:45:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5903D3234E5B368097888CD877572D7823F98406
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1676005   (158970) от 12.11.2023
-
-VA - The Best Of House 2023 Part 1 (2023) [MP3|320 Kbps] <Dance, Club, House, Electronic>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snipes X Wesley - Devotion (Original Mix) [02:45]
-02. Michael Beltone - I Dont Need You (Original Mix) [02:56]
-03. Eric Chapter - Kiss Like This (Original Mix) [03:56]
-04. Jay Thompson - End Of Time (Empty Rollers Remix) [02:09](   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:06:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39EBCEFAEBB56BB8F904BD21384282FED128083E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967357   (158678) от 20.12.2015
-
-VA - Ibiza 2016 Winter Clubbing (Deluxe Version) (2015) [MP3|320 кб/с] <House, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158678.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ora And Ventus - Piano Suite (Original Mix) 04:16
-02. DYKANE - Lost Summer (Original Mix) 02:46
-03. Benny Camaro - Something Inside (Original Mix) 04:53
-04. Hugobeat - Disco Night (Original Mix) 06:13(   Читать дальше...   )Жанр: House, ClubПродолжительность: 04:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9A3205D28CD549D52B27CC0717402FE4E9E8DC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

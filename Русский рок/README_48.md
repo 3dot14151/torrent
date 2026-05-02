@@ -1,3 +1,116 @@
+###  Публикация: 1297827   (603079) от 24.04.2019
+
+Олег Гаркуша (АукцЫон) - 23 (2019) [MP3|320 kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Понимаешь (04:06)
+02. Испорченный Вид (03:14)
+03. Золотые Колесницы (03:21)
+04. Фантазия (05:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C687F8637A534E7D801B8B1C1A0AD56B7A73ABB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148984   (602916) от 08.07.2017
+
+Annodomini - Небо надо мной (2016) [MP3|320 Kbps] <Gothic Love Metal, Modern Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не надо слов (03:27)
+02. Километры (03:39)
+03. Плохие девочки (03:52)
+04. Отпусти (03:51)(   Читать дальше...   )Жанр: Gothic Love Metal, Modern MetalПродолжительность: 00:39:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4B49955CCA87B0D270B531B43565E53089D9044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232186   (602740) от 22.06.2018
+
+Alexander Sitkovetsky - Full House (2016) 2CD [MP3|320 Kbps] <Instrumental Rock, Art-Rock, Classical>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602740.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sinfonia (5:20)
+02. Full House (5:34)
+03. Canyon Fog. in F (5:38)
+04. Numero Cuatro (4:47)(   Читать дальше...   )Жанр: Instrumental Rock, Art-Rock, ClassicalПродолжительность: 01:26:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47006B3EE950C70C3526BDF401C8C4EDB528EB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1232097   (602739) от 22.06.2018
+
+7Б - Ночное лето (2018) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602739.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ночное летоЖанр: RockПродолжительность: 00:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D51CECC6752CA2873566A49F4355E70273F2039F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1232095   (602719) от 22.06.2018
 
 Звери - Звери в зоопарке (Музыка из фильма "Лето") (2018) EP [MP3|320 Kbps] <Rock>
@@ -626,130 +739,6 @@ V-EGO - Отречение (2012) [MP3|320 кб/с]<Dark Doom Metal>
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299528   (597413) от 02.05.2019
-
-Кукрыниксы - Раритеты (2019) Limited Edition [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597413.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Да здравствует сюрприз (02:47)
-02. Идет игра (04:41)
-03. Жизнь в зоопарке (03:51)
-04. Баллада об уходе в рай (03:04)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1510383333E99F144ACE36F24965D40D9248A340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526726   (595648) от 25.07.2012
-
-Северные врата - 5 альбомов (2000-2008) [Mp3|320 kbps] <Slavonic Folk Metal, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595648.jpg" />
-</div>
-
-
-###  Подробнее
-
-Года выпуска: 2000-2008Альбомлист:
-2000 - Отчизна
-2001 - На войну
-2003 - Правь
-2005 - Равновесие
-2008 - ВолотЖанр: Slavonic Folk Metal, Black MetalПродолжительность: 00:43:28
-
-01 | Волчья воля | 03:51
-02 | Знамение | 03:49
-03 | Выбор | 04:59
-04 | Пир | 03:54
-05 | Родные берега | 04:24
-06 | Укреп | 04:34
-07 | Притча | 03:35
-08 | Доблесть | 04:03(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF1054B5759F9CF86E3D1BF5C2DAD8D106BF5FBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233017   (594998) от 27.06.2018
-
-Чайф - Что мы делали в прошедшем году (2018) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594998.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Что мы делали в прошедшем годуЖанр: RockПродолжительность: 00:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C930F116DE6FB30539B96A048B8E2D79916C6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1040052   (593539) от 03.08.2016
-
-Глеб Самойлов - Я не изменюсь! (2014) Live [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ползет
-02. Москва-река
-03. На дне
-04. Командир(   Читать дальше...   )Жанр: RockПродолжительность: 01:17:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9175D38A8D128917804A7AA34AE9EDE3DB1FFDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1291104   (668915) от 25.03.2019
+
+Kristin Hersh - Possible Dust Clouds (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 	LAX 	(3:50)
+02.	No Shade In Shadows 	(3:34)
+03. 	Halfway Home 	(3:58)
+04. 	Fox Point 	(3:12)(   Читать дальше...   )Жанр: Alternative Rock, Folk RockПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5870F7DA0C610B29EEE057C68EE0AFE885F91512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290996   (668913) от 25.03.2019
+
+Lucy's Drive - Pair Of Sounds (Red) (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668913.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Feel In The Light (04:18)
+2. Forget It (04:36)
+3. Stare At You (04:03)
+4. Little Star (04:56)(   Читать дальше...   )Жанр: Indie Rock, ShoegazeПродолжительность: 00:28:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB9EB24705DCBBAF524BE03F6D8914C08A1E76BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1290994   (668910) от 25.03.2019
 
 Lucy's Drive - Pair Of Sounds (Blue) (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze>
@@ -687,64 +745,6 @@ Bad Omens - The Death Of Peace Of Mind (2022) [FLAC|Lossless|tracks + .cue] <Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:261EBBDCA5755900C671272C36533D96E3448B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 905650   (648948) от 06.06.2015
-
-Muse - Drones (2015) [FLAC|Lossless]<Alternative rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648948.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dead Inside
-02. Drill Sergeant
-03. Psycho
-04. Mercy(   Читать дальше...   )Жанр: Alternative rockПродолжительность: 00:52:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91540C2E59FC67CA409548956B5250EBC7819030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141424   (648368) от 11.06.2017
-
-Rise Against - Wolves (2017) [FLAC|Lossless|tracks + .cue] <Punk Rock,  Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolves (03:38)
-02.House On Fire (03:15)
-03.The Violence (03:49)
-04. Welcome To The Breakdown (03:03)(   Читать дальше...   )Жанр: Punk Rock,  Melodic HardcoreПродолжительность: 00:40:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9D6B73004BB54A64D50268820FEDABEEBB0342F
 ```
 
 https://mybot314.ru/tekegram_catalog/

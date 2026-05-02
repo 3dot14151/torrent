@@ -1,3 +1,271 @@
+###  Публикация: 595484   (132291) от 29.12.2012
+
+The Man-Eating Tree - 2 Альбома (2010,2011) Дискография  [FLAC|Lossless]<Atmospheric Gothic Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Harvest Bell
+02 - At The Green
+03 - Code Of Surrender
+04 - Armed
+05 - Like Mute Companions
+06 - Exhaled
+07 - Down to the Color of the Eye
+08 - Incendere
+09 - All You Kept Free
+10 - Karsikko(   Читать дальше...   )Жанр: Atmospheric Gothic MetalПродолжительность: 00:50:23
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595903   (132289) от 29.12.2012
+
+Interior Wallpapers (28.12.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132289.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84CB4EF90A67DBD65126AFE2BC03FEA7E300F48E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596034   (132287) от 29.12.2012
+
+[Wallpapers] World Architecture (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132287.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] World Architecture (29.12.12)
+Название: World Architecture (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1536х1024 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1205885E9FC8323A946620C940509D90FA08329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595976   (132285) от 29.12.2012
+
+[Wallpapers] Nice selection of wallpapers (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132285.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nice selection of wallpapers (29.12.12)
+Название: Nice selection of wallpapers (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FB15CE85999AC6A918DD891711E4CC8CA804124
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595943   (132283) от 29.12.2012
+
+[Wallpapers] Traveling the World (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132283.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Traveling the World (29.12.12)
+Название: Traveling the World (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2691C26237287D60B46B52C63B8C15223ACB377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595743   (132281) от 29.12.2012
+
+Журнал | Домой. Строительство и ремонт №50 (Пермь) [2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132281.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для многих наших соотечественников оптимальным решением жилищного вопроса становится загородное строительство. Однако особняк из кирпича или бревен не всегда вписывается в эстетическую или финансовую программу будущих домовладельцев. В такой ситуации имеет смысл обратиться к современным технологиям. Они позволят быстро и за весьма разумные деньги построить дом для постоянного проживания...
+Специализированный рекламный журнал «Домой. Строительство и Ремонт» – это полноцветный еженедельный журнал о строительных, отделочных материалах, мебели и интерьере.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C65D54BDEDD32563D1D75632B01E6D921B3D01F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 596036   (132279) от 29.12.2012
+
+[Wallpapers] Large collection of wallpaper on your desktop (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132279.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Large collection of wallpaper on your desktop (29.12.12)
+Название: Large collection of wallpaper on your desktop (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:704B7A768AE774CAC4E8C800EC98C8D2DFA8853E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595974   (132278) от 29.12.2012
+
+[Wallpapers] Car wallpapers (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132278.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Car wallpapers (29.12.12)
+Название: Car wallpapers (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30254144CB0DFB69616819B06E6EC6A269E4A9DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 595939   (132277) от 29.12.2012
+
+[Wallpapers] Large collection of desktop wallpapers (29.12.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132277.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Large collection of desktop wallpapers (29.12.12)
+Название: Large collection of desktop wallpapers (29.12.12)
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9956E3E37F21F967A2F9BEA41ED4115D7F770C40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 595906   (132276) от 29.12.2012
 
 Sexy Girls Pack Wallpapers (28.12.12) [Wallpapers 16+]
@@ -466,265 +734,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A4454C5DF267D2FFDAFA38480171FCF298FDEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595188   (132233) от 29.12.2012
-
-Операция «Арго» / Argo (2012) [MP3|320 кб/с]<soundtrack>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_132233.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Argo (03:38)
-2. A Spy In Tehran (04:18)
-3. Scent Of Death (03:26)
-4. The Mission (02:07)
-5. Hotel Messages (02:03)
-6. Held Up By Guards (05:31)
-7. The Business Card (02:55)
-8. Breaking Through The Gates (03:50)
-9. Tony Grills The Six (03:30)
-10. The Six Are Missing (03:21)(   Читать дальше...   )Жанр: soundtrackПродолжительность: 00:58:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641CF861B735F857939F011C19D4E99B0945897F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596042   (132231) от 29.12.2012
-
-[Wallpapers] Vastness of the cosmos (29.12.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132231.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Vastness of the cosmos (29.12.12)
-Название: Vastness of the cosmos (29.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CCA6F3F1D1AA0977119880FD8CC54BCA4AF9178
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595978   (132229) от 29.12.2012
-
-[Wallpapers] Beautiful nature (29.12.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132229.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Beautiful nature (29.12.12)
-Название: Beautiful nature (29.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E9463BD4B7053979D8AF2F5AB4ACDE9C97E0207
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595846   (132223) от 29.12.2012
-
-[Wallpapers] Abstract Wallpapers (29.12.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132223.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Abstract Wallpapers (29.12.12)
-Название: Abstract Wallpapers (29.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24F02A49862A441EF1EB80384B49E473800A7745
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681859   (132216) от 04.12.2023
-
-Total Commander 11.02 Final - Titan v32 Portable by pcDenPro [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132216.jpg" />
-</div>
-
-
-###  Подробнее
-
-Файловый менеджер Total Commander со всеми плагинами и отобранными портативными (portable) программами. Titan предназначен как для продвинутых пользователей, так и для обычных. Эта одна из самых больших сборок, достигающая более 16 гигабайт. Большое количество разнообразного софта. Данная версия отлично подойдёт для решения любых повседневных задач.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EBB02266EBA300B52D0E7BF637252482F4B55B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1681722   (132214) от 04.12.2023
-
-Corona Renderer 11.0 for 3ds Max 2016-2024 [En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132214.jpg" />
-</div>
-
-
-###  Подробнее
-
-Corona Renderer - это популярный визуализатор для рендеринга в 3ds Max и Cinema 4D. Хорошая альтернатива V-ray-ю.Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45B9A9173F2E045E468F49E257F5843BB7D9509E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595948   (132213) от 29.12.2012
-
-62 HQ Wallpapers (29.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CDA0E41F726C6BB8F8F44749D479B3DB41EFA15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 595908   (132211) от 29.12.2012
-
-Sexy Girls Wallpapers (28.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:653ED342269208F3B541A457698CA26710DBEB96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 596044   (132204) от 29.12.2012
-
-[Wallpapers] Car wallpapers for a desktop (29.12.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_132204.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Car wallpapers for a desktop (29.12.12)
-Название: Car wallpapers for a desktop (29.12.12)
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3BDB1CD24584AA3A946C369411F29ACC6AD5C0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

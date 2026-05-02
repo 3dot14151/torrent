@@ -1,3 +1,32 @@
+###  Публикация: 1277727   (785029) от 21.01.2019
+
+Feral - Climbing Himalaya: Part II (2018) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno >
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Pine Forest (08:43)
+ 02. Rara Lake (05:52)
+ 03. Mahakala Is Watching (05:51)
+ 04. Descending (A Shaman's Dub) (06:38)Жанр: Techno, Dub TechnoПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:361A9D8E1A7BB4877D16FE962CE4765F2E7EB778
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277695   (785020) от 21.01.2019
 
 Acronym & Kali Malone - The Torrid Eye (2019) Stilla Ton [FLAC|Lossless|WEB-DL|tracks] <Techno, Experimental, Ambient>
@@ -716,35 +745,6 @@ J. Albert - Measuring Things Up (2020) EXTRO jp [FLAC|Lossless|WEB-DL|tracks] <T
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:76C73F5ADBD79DF5446A5D5D4DD358508BBF5BB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1390920   (782260) от 17.06.2020
-
-James Grant - The Anjunadeep Edition 300 (2020) 2CD, DJ Mix [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_782260.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nikola Melnikov & Max Sorokin - Sun Wakes Up Earlier Than All (Mixed) (04:59)
-02. Nordfold - Trondheim (Mixed) (04:22)
-03. Nikola Melnikov & Max Sorokin - Pandawa (Mixed) (03:49)
-04. Rezident - Pure (Mixed) (04:04)(   Читать дальше...   )Жанр: Progressive House, Deep HouseПродолжительность: 03:06:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297937A22264F215BBA54AA124A65F01D7B1A8C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

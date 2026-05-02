@@ -1,3 +1,61 @@
+###  Публикация: 1029064   (684294) от 25.06.2016
+
+Blink-182 - California (2016) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_684294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cynical (01:55)
+02. Bored To Death (03:55)
+03. She's Out Of Her Mind (02:42)
+04. Los Angeles (03:03)(   Читать дальше...   )Жанр: Alternative, PunkПродолжительность: 00:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB0C463CAFF8920B2AF9DA1B333CEA7800EAD842
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135267   (683042) от 18.05.2017
+
+Pom Poms - Turn You Out (2017) [FLAC|Lossless|tracks] <Alternative Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Go Go (03:08)
+02. Live Before I Die (03:56)
+03. Lost My Head (04:12)
+04. Heart In A Suitcase (03:05)(   Читать дальше...   )Жанр: Alternative Rock, Female VocalПродолжительность: 00:34:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80CB6EB6D8138AA6A3E6C31FCD3D39CEAD0B93D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 335846   (682922) от 12.05.2011
 
 If These Trees Could Talk - Above The Earth, Below The Sky (2009) [FLAC|Lossless]<Post-Rock/Atmospheric/Math-Rock>
@@ -696,64 +754,6 @@ Muse - Muscle Museum (1999) Remastered 2016 [FLAC|Lossless|WEB-DL|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F59ED8DB9425CBFE0FF9593F3A7C183DB3F5B49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291104   (668915) от 25.03.2019
-
-Kristin Hersh - Possible Dust Clouds (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	LAX 	(3:50)
-02.	No Shade In Shadows 	(3:34)
-03. 	Halfway Home 	(3:58)
-04. 	Fox Point 	(3:12)(   Читать дальше...   )Жанр: Alternative Rock, Folk RockПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5870F7DA0C610B29EEE057C68EE0AFE885F91512
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290996   (668913) от 25.03.2019
-
-Lucy's Drive - Pair Of Sounds (Red) (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Shoegaze>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668913.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Feel In The Light (04:18)
-2. Forget It (04:36)
-3. Stare At You (04:03)
-4. Little Star (04:56)(   Читать дальше...   )Жанр: Indie Rock, ShoegazeПродолжительность: 00:28:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9EB24705DCBBAF524BE03F6D8914C08A1E76BB
 ```
 
 https://mybot314.ru/tekegram_catalog/

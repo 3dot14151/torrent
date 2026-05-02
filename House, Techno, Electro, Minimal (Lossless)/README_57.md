@@ -1,3 +1,32 @@
+###  Публикация: 1656685   (203083) от 31.08.2023
+
+VA - Augmented 010  Dowden x Mango (2023) [FLAC|Lossless|WEB-DL|tracks] <Minimal,Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cheric - Stories [7:06]
+02. Niceshot - Temporal [7:27]
+03. Alex O'Rion - Ukko (Alternative Mix) [7:05]
+04. Fran Garay - Deductions [7:50](   Читать дальше...   )Жанр: Minimal,Tech HouseПродолжительность: 02:28:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD497A1EFF899DCC4DCB4E11AA78FF3E14C8DB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1829246   (202108) от 25.10.2025
 
 VA - Lounge Music (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -702,32 +731,6 @@ Helena Hauff - fabric presents Helena Hauff (Mixed) (2023) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2134F425FF7BA0EFF9DC42D58E7119880EC541A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664478   (185448) от 26.09.2023
-
-Autograf - Affirmations (2023) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks] <House, Progressive House, Melodic House & Techno, Dance, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185448.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: House, Progressive House, Melodic House & Techno, Dance, ElectronicПродолжительность: 2 CD, 01:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4673D521FABA45DDB62C24BBF066AF715BAD6A4
 ```
 
 https://mybot314.ru/tekegram_catalog/

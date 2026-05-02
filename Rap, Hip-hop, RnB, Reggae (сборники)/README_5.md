@@ -1,3 +1,32 @@
+###  Публикация: 1549766   (592845) от 08.05.2022
+
+VA - Rap & Hip Beats (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Неофициальные сборники
+>>Rap, Hip-hop, RnB, Reggae (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкие подвижные ритмы и лирические мелодии в сборнике под названием "Rap & Hip Beats". Гармоничное сочетание мелодии и текста, которое слушать одно удовольствие.001. Yg - Swag
+002. Dimitry Killstorm - Jane
+003. Funky Dl - My Brother Taught Me
+004. Pacman Da Gunman - Zero Tolerance(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 09:48:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B46DCAFF712AC2862B585879FBDA56CFC72AFD16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1300624   (588033) от 08.05.2019
 
 VA - Ukrainian Hits - 33 Tracks (Volume 11) (2019) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -717,35 +746,6 @@ VA - Original Sound Of Reggae (2017) [MP3|320 Kbps] <Reggae, Ska, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:913DE8CDFEDE5B02B7CC91E0A48151BA7277F36F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1322007   (452485) от 27.08.2019
-
-VA - Rhythm Of My Song (2019) [MP3|320 Kbps] <Pop, RnB>
-
->>Неофициальные сборники
->>Rap, Hip-hop, RnB, Reggae (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452485.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Krezip - How Would You Feel
-002. Iyla - Flowers
-003. Jessie Reyez - Saint Nobody
-004. Mariama - Raindrops(   Читать дальше...   )Жанр: Pop, RnBПродолжительность: 09:05:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3CF4E483AA0165E20C6388ADE1DB12E78832466
 ```
 
 https://mybot314.ru/tekegram_catalog/

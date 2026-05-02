@@ -1,3 +1,90 @@
+###  Публикация: 1490922   (915314) от 22.08.2021
+
+Spotify 1.1.66.578 Portable by JolyAnderson [En/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915314.jpg" />
+</div>
+
+
+###  Подробнее
+
+Клиент для прослушивания музыки на самом популярном стриминговом сервисе.
+Вашему вниманию предоставляется Portable версия клиента Spotify.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B62356B1E329F08B2B8FC738B1C8AAE12B0238B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289937   (915303) от 02.02.2011
+
+Креативные темы Win7 (6 шт) vol.19 2011 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список тем:
+
+-Geometric
+-star_trek
+-Vision7
+-daydream
+-red_district
+-theme_starloveglassЯзык интерфейса: Ru
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 288470   (915300) от 02.02.2011
+
+Перелёт Москва (Россия) - Хургада (Египет) (2010) [720р]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фрагменты видео перелета из Москвы до Хургады снятые фото камерой в HD Video 720p
+Возможно, будет интересно посмотреть тем, кто не летал на самолётах и тем, кто уже летал.Жанр: Документальный, Семейный, КороткометражныйРежиссер: Снято мнойАктеры: нетПеревод: ОригинальныйПродолжительность: 00:20:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8020B8BA04DA948A57A84B54BC8466DA075BD03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490909   (915295) от 22.08.2021
 
 RarmaRadio Pro 2.73 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -616,96 +703,6 @@ StuntMANIA Reloaded - это эктремальная скоростная го�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:640AD1DEA230A4E15AB816614BC76D0E5B559CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989685   (915158) от 23.02.2016
-
-Wise Care 365 Pro 3.97.359 Final RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915158.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wise Care 365 – программный пакет, предназначенный для оптимизации, настройки и очистки компьютера. Способен быстро и безопасно произвести очистку системного реестра, освободить место на диске, дефрагментировать реестр и жесткий диск, восстановить удаленные файлы, блокировать приложения путем установки пароля на запуск, оптимизировать оперативную память, редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8985325A8B9417D518455C7733FDC4BC8AE168E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289857   (915153) от 02.02.2011
-
-Plex - Psychotic Lullabys (2011) [MP3|320 kbps]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feel It In Your Soul (6:13)
-02. Modulated Vibes (5:00)
-03. Gangsters Lullaby (5:57)
-04. Lose Your Love (4:06)
-05. The Sensi (5:52)
-06. Makes Me Wonder (6:00)
-07. Maniac (5:34)
-08. Seventh Heaven (5:01)
-09. Drug Bust (5:56)
-10. Spectrum (5:37)(   Читать дальше...)Жанр: Drum & BassПродолжительность: 01:13:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FC9680A6D452A8DDCD3CCAD9E160C9CBC02A09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452982   (915152) от 23.02.2016
-
-VA - Armada At Ibiza Summer 2009 Mixed by Ruben de Ronde [FLAC|Lossless|tracks + .cue]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_915152.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Mat Zo - Subaquatic Dream
-2. M.I.K.E. presents Caromax - X3
-3. Andy Moor & Ashley Wallbridge feat. Meighan Nealon - Faces
-4. David Forbes feat. Antonia Lucas - Because Of You(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20FB8FA8EB04754C6E8085B380ABB25A4AA5B237
 ```
 
 https://mybot314.ru/tekegram_catalog/

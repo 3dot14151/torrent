@@ -1,3 +1,84 @@
+###  Публикация: 1280882   (756832) от 05.02.2019
+
+Alcatrazz - Parole Denied - Tokyo 2017 (2018) Blu-ray [H.264/1080i]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756832.jpg" />
+</div>
+
+
+###  Подробнее
+
+В рамках японского тура Graham Bonnet Band 2017 года в поддержку альбома The Book состоялся реюнион Alcatrazz на три концерта, приведшие в восторг верных поклонников хард-рока в Японии. 7 декабря на лейбле Frontiers Music Srl вышел релиз под названием Parole Denied - Tokyo 2017, на котором представлены записи с этих концертов. Основатели Alcatrazz Грэм Боннет (вокал), (   Читать дальше...   )1. Night Of The Shooting Star
+2. Ohayo Tokyo
+3. Too Young To Die...Too Drunk To Live
+4. Suffer Me(   Читать дальше...   )Производство: King Record CoЖанр: Hard Rock, Heavy MetalСубтитры: JapaneseПродолжительность: 00:44:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:815455FC6A19982DA0DCED114B3559B9D5C8C117
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1215674   (756014) от 27.03.2018
+
+MTV Europe Music Awards - London (2017) UHDTV [H.265/2160p] [4K, SDR, 10-bit]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756014.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ежегодная премия MTV Europe Music Awards, которая награждает лучших музыкантов за их достижения в течение года, прошла 12 ноября 2017 года, в Лондоне.Производство: Wembley Arena, London, United KingdomЖанр: Церемония награждения, концертПеревод: ОтсутствуетСубтитры: ОтсутствуютПродолжительность: 01:35:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ACDFDBAEB790C2CFA52A1E2462D76CDDBF81BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 319317   (755711) от 10.04.2011
+
+Metallica: Français pour une nuit 1080(2009) BDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_755711.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Metal, RockПеревод: ОтсутствуетПродолжительность: 00:02:12
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215720   (754599) от 28.03.2018
 
 Квартирник на НТВ у Маргулиса. Пилот (03.24.2018) WEBRip [H.264/1080p-LQ]
@@ -633,93 +714,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE4BCB08F6751B27894BA3DCEB790AE088BB19D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 787827   (735458) от 19.05.2014
-
-Mylene Farmer - Timeless 2013 Le Film (2014) Blu-Ray [1080i]
-
->>След.
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_735458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Timeless Genesis
-03. A force de…
-04. Comme j’ai mal(   Читать дальше...   )Жанр: PopПродолжительность: 2:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:650E690F35B53BD1740D8A2AB63C81C068BE3896
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788806   (734067) от 22.05.2014
-
-Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [720p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Timeless Genesis
-03. A force de…
-04. Comme j’ai mal(   Читать дальше...   )Жанр: PopРежиссер: Франсуа АнссПродолжительность: 02:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAEC2B99E1B89A96AED344854C86486A3B826998
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 788077   (734064) от 22.05.2014
-
-Mylene Farmer - Timeless 2013 Le Film (2014) BDRip [1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_734064.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prologue
-02. Timeless Genesis
-03. A force de…
-04. Comme j’ai mal(   Читать дальше...   )Жанр: PopРежиссер: Франсуа АнссПродолжительность: 02:06:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E828BE986B912834A7E286E7B4EC6C1C7A4F8328
 ```
 
 https://mybot314.ru/tekegram_catalog/

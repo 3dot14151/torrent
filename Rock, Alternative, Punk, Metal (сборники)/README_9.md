@@ -1,3 +1,61 @@
+###  Публикация: 1373697   (878489) от 07.04.2020
+
+VA - Heavy Metal Collections Vol.15 (3CD) (2019) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878489.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Beyond The Black - Songs Of Love And Death (2015) (4:18)
+02. Iron Savior - Roaring Thunder (2019) (4:23)
+03. Turilli - Lione Rhapsody - Zero Gravity (2019) (5:53)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8ED95AC05873E9268658D6567A799B9D7209D67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1373706   (878465) от 07.04.2020
+
+VA - Heavy Metal Collections Vol.16 (3CD +1CD LIVE) (2020) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_878465.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Nozomu Wakai's Destinia - Rain (2018) (4:53)
+02. Dream Child - Under The Wire (2018) (5:43)
+03. Last Days Of Eden - Dead Man's Tale (2018) (4:24)(   Читать дальше...   )Жанр: Power, Symphonic, Heavy MetalПродолжительность: 03:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1CE027E93EFC42968BEF87F85C1B8CF1B7E7F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373711   (878443) от 07.04.2020
 
 VA - Heavy Metal Collections Vol.14 (3CD) (2019) [MP3|320 Kbps] <Heavy, Symphonic, Power Metal>
@@ -687,70 +745,6 @@ VA - Best Metal Of All Time (2020) [MP3|320 Kbps] <Rock, Metal, Thrash-Metal, In
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9344C86F27BF002C3A33881DCAC72EC3691A7F9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1374731   (867031) от 13.04.2020
-
-VA - Great Artists of My Heart Vol. 01 (2020) [MP3|320 кб/с]<Symphonic Gothic Metal, Indie>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_867031.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:25| 01. My Indigo - My Indigo
-|03:45| 02. Within Temptation - Grenade (Originally By Bruno Mars)
-|04:53| 03. Within Temptation - Forsaken
-|05:35| 04. Within Temptation - The Heart Of Everything(   Читать дальше...   )Жанр: Symphonic Gothic Metal, Indie •Продолжительность: 08:12:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D39C77977B6AC9BB4843F2FBEAE0FE0CFC4F5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 302360   (866982) от 01.03.2011
-
-VA - Хит-Парад Рок Звезд (2011) [MP3|256 kbps]<Русский рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_866982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кукрыниксы - Дождь смывает все!
-02. Найк Борзов - Начало дня
-03. Zdob si Zdub - Молдавский хардкор
-04. Король и Шут - Король вечного сна
-05. Сергей Скачков - Вызов
-06. Глеб СамойлоFF & The MatriXX - Ненормальный
-07. Пикник - Кукла с человеческим лицом
-08. Animal Джаz - Токсикоз
-09. Биплан - Последний день на луне
-10. Илья Шипилов - Моя война(   Читать дальше...   )Жанр: Русский рокПродолжительность: 06:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AA552372D3678A8538397C88B706F884B35924F
 ```
 
 https://mybot314.ru/tekegram_catalog/

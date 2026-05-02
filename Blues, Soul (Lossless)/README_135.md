@@ -1,3 +1,119 @@
+###  Публикация: 1791174   (67877) от 12.04.2025
+
+Tobacco Road Blues band - Lis & Skull (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67877.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emely Myles - Move It (feat. Emely Myles) (3:31)
+02. I Knocked Three Times (3:36)
+03. God Made a Perfect Job (3:54)
+04. I’m Your Boogeyman (4:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FC935923E83C941D353FA38652BD17F9BC8D04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791168   (67876) от 12.04.2025
+
+Metal Bots - Soulful Strains (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Morning (3:11)
+02. Dusty Road Blues (4:00)
+03. Love My Old Guitar (3:46)
+04. Sweet Spirit (3:46)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69281D926F2BA40C4F82CA27E75CCEF97B2804F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791375   (67868) от 13.04.2025
+
+Jeff Rymes - Zodiac Shuffle (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Way Down Luziana (3:36)
+02. Freddy Lee (3:01)
+03. Lowdown Blues (3:49)
+04. The Tale of the Runaway Train (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05A128713242738054A256C77C6283CD5172E70E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1791382   (67836) от 13.04.2025
+
+Maxwellium - Blood &Smoke (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67836.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King of the Smoke (3:18)
+02. Iron & Ashes (3:37)
+03. Devils Debt (3:29)
+04. Ravens & Rats (3:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BD5EB49644E50813E2A18353D90CF612030683E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1791361   (67822) от 13.04.2025
 
 Jason Wells - Worried Man Blues (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Katie & The Bad Sign - Revolution (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23816DF46281BF7A535A0DD4D9AE5C87C47BA12F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794539   (67237) от 29.04.2025
-
-Chris Kramer and Paddy Boy Zimmermann - Tales Of Tampa (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Crazy About You Baby (3:00)
-02. Seminole Blues (3:15)
-03. You Rascal You No. 1 (3:50)
-04. Black Angel Blues (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1F9E0ED9CF8E597D52B06F7093CA1DF0088645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794548   (67231) от 29.04.2025
-
-Dr. Jules' Cool Blues - The Iconoclast (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67231.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Wish the Blues Had Used a Condom (3:06)
-02. ADD (3:38)
-03. Don't Drink the Kool Aid (4:50)
-04. The Barflies At The Bar (3:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9043E346F78F21974DAD472FBB71AC52DE0D9F35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795185   (67179) от 03.05.2025
-
-VA - Jus' Blues 25th Anniversary Legends Collection (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Diunna Greenleaf - Sunny Day Friends  (3:37)
-02.  Jimmy Burns - Stranded in Clarksdale  (4:02)
-03.  Zakiya Hooker - Bluesman's Journey  (3:52)
-04.  Benny Turner - Who Sang It First  (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E6D4A09ABC7636FB0FDAF698B725DA861468B7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795182   (67153) от 03.05.2025
-
-VA - Alternative Route (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rochus Rocky Hobi - Where I Belong (3:43)
-02.  Simon Zawila - Further & Further (2:46)
-03.  Clarissa Höbel - Take My Hand (2:59)
-04.  Thomas Kehl It's Me - It's so Nice (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:20:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AA1CD59EFA7530BD89F367190ADA83DEDF92246
 ```
 
 https://mybot314.ru/tekegram_catalog/

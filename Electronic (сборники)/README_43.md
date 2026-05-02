@@ -1,3 +1,61 @@
+###  Публикация: 1003825   (840305) от 05.04.2016
+
+VA - Lobby Bar Lounge Vol.2: 20 Midnight Lounge Tunes (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coolgrooves - Seventy Live (4:05)
+ 02. Chick Le Chic - Guns and Colors - Modell & Mercier Mix (4:12)
+ 03. Bassogroove - Kx Files (2:59)
+ 04. Palinuro Groovers - Durante (4:59)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C965434D781BB4D32C43244E775434F205CD0E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1003942   (840206) от 05.04.2016
+
+VA - Luxemusic Dance Super Chart Vol.62 (2016) [MP3|320 кб/с] <House,  Electro House, Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840206.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adele - Hello (DJ PitkiN Remix) 05:07
+02. Alan Walker vs Oliver Heldens - Faded Wombass (Fabien Jora Festival Mashup) 04:10
+03. Alekseev - Пьяное Солнце (Oleg Perets & Ivan Flash Radio Remix) 03:11
+04. Andy B. Jones vs. Sergey Kutsuev - Make A Move (Markiza Mash Up) 03:34(   Читать дальше...   )Жанр: House,  Electro House, Vocal House
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:920246FD4ED97DC664C338F4CA6BFDBDD71C7F8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1113048   (840121) от 10.03.2017
 
 VA - Natural Lounge Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ VA - Beatport Trance: Electro Sound Pack #74 (2020) [MP3|320 Kbps] <Trance, Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8BB31AC347106048219E0BB4F02C5B282EDCA00E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113921   (835304) от 13.03.2017
-
-VA - Yoga Springtime Relaxation: Best of Chillout and Beach Cafe Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcade Lounge - Angels - Faith in Love Mix
-02. System of Prime - Riding the Waves - Miami Now Mix
-03. Helen Taylor - Ibiza Del Mar - Lights Down Low Mix
-04. Off The Road - Slowmotion - A Reason to Shop in Pink Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:09:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1F944750205310FBE38E3E7CC684BD5C1053D0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1501596   (835197) от 10.10.2021
-
-VA -  Motown In the Mix (Classic Mixes) Vol.6 (2021) [MP3|320 Kbps] <Electronic, Funk, Soul, Disco, Dance-pop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835197.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Marvin Gaye - Cellarful Of Marvin Mix (Rod Layman Mix)
-02. Lionel Richie & Trijntje Oosterhuis - Face In The Crowd (Lucien Vrolijk Overcrowded Remix)
-03. Various - Retro Mix 5 - Steve Wonder (Kevin Sweeney)
-04. Various - Motown Funk Disco Mix (Mixed By Rod Layman)(   Читать дальше...   )Жанр: Electronic, Funk, Soul, Disco, Dance-popПродолжительность: 01:16:14 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BEA1FF98EAA436F43AA93547E9D29BD4B24A98C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,141 +1,25 @@
-###  Публикация: 1806237   (11818) от 11.07.2025
+###  Публикация: 1801827   (14727) от 13.06.2025
 
-Gorillaz - Live in London 2001 (2025) [MP3|320 Kbps] <Alternative-Rock, Trip-Hop, Leftfield, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - M1A1 (Live) [00:04:08]
-02 - Tomorrow Comes Today (Live) [00:03:52]
-03 - Slow Country (Live) [00:03:58]
-04 - 5_4 (Live) [00:03:02](   Читать дальше...   )Жанр: Alternative-Rock, Trip-Hop, Leftfield, ElectronicПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60FF2B269544C2FB241B027517AE9DF9A0841067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806439   (11774) от 12.07.2025
-
-Queen - Anthems (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We Will Rock You (Remastered 2011)
-02. Bohemian Rhapsody (Remastered 2011)
-03. In The Lap Of The Gods... Revisited (Remastered 2011)
-04. Save Me (Remastered 2011)(   Читать дальше...   )Жанр: Rock, Progressive-Rock, Glam-RockПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8AF432FEEBFF8EB485D23A4444CA9C14928C3BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806510   (11605) от 13.07.2025
-
-Sting - The Dream Of The Blue Turtles (1985) 2025 Expanded Edition [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Love Somebody Set Them Free (Single Edit)
-02. Love Is The Seventh Wave
-03. Russians
-04. Children's Crusade(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 02:12:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:404511C5CE11D11B579BBF8A6CABAB8CC4A5298E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806572   (11590) от 13.07.2025
-
-Chris Rea - New Light Through Old Windows (1988) 2CD, Reissue, Remastered, 2025, Rhino [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11590.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Dance (Instrumental) [00:04:16]
-02. Working on It (Instrumental) [00:04:26]
-03. Ace of Hearts (Instrumental) [00:04:54]
-04. Josephine (Instrumental) [00:04:36](   Читать дальше...   )Жанр: Pop RockПродолжительность: 2 CD, 01:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:693D2C92F065DA188E9FF4B2C839325003716912
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806676   (11520) от 14.07.2025
-
-Black Sabbath - The End (4 February 2017 - Birmingham) (2017) Box Set, 3XCD, Deluxe Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock>
+Highsociety - Datamosh (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal, Synth Metal, Electronic>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14727.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD One - Live From The Genting Arena, Birmingham, 2017:
-1.1 Black Sabbath 7:27
-1.2 Fairies Wear Boots 6:28
-1.3 Under the Sun / Every Day Comes and Goes 7:04(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 02:10:24
+01. Going Under [00:03:13]
+02. All for Nothing [00:03:29]
+03. Echoes [00:03:25]
+04. BREAK [00:03:41](   Читать дальше...   )Жанр: Alternative Metal, Synth Metal, ElectronicПродолжительность: 00:40:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C7B005C31CE030397B95E820DCE18DD4B8BB9807
+magnet:?xt=urn:btih:9FE126F7714FE8F66C07A82108B219D252A26C68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -143,202 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806541   (11512) от 14.07.2025
+###  Публикация: 1801877   (14726) от 13.06.2025
 
-Metallica - Master Of Puppets (1986) Expanded Edition, Reissue, Remaster, 2017, Blackened Recordings [FLAC|Lossless|image + .cue] <Thrash Metal, Heavy Metal, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11512.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Battery [5:13]
-02 - Master Of Puppets [8:36]
-03 - The Thing That Should Not Be [6:37]
-04 - Welcome Home (Sanitarium) [6:28](   Читать дальше...   )Жанр: Thrash Metal, Heavy Metal, MetalПродолжительность: 03:23:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71CEA1C8545AE200B79D96169431ABF1563E0A5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806669   (11502) от 14.07.2025
-
-Helix - No Rest For The Wicked (1983) Reissue, Remastered, 2005, RockCandy Records [FLAC|Lossless|image + .cue] <Hard Rock, Glam, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Does a Fool Ever Learn (3:23)
-02. Let's All Do It Tonight (2:51)
-03. Heavy Metal Love (3:01)
-04. Check Out the Love (3:02)(   Читать дальше...   )Жанр: Hard Rock, Glam, Heavy MetalПродолжительность: 00:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6E40477FA45B3770C0DA0B18AFDB689F8B4F6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806561   (11497) от 14.07.2025
-
-Sodom - The Arsonist (2025) Limited Edition, Japanese Edition [FLAC|Lossless|image + .cue] <Thrash Metal, Experimental Thrash Metal, Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Arsonist [1:04]
-02 - Battle Of Harvest Moon [4:15]
-03 - Trigger Discipline [3:55]
-04 - The Spirits That I Called [3:00](   Читать дальше...   )Жанр: Thrash Metal, Experimental Thrash Metal, MetalПродолжительность: 01:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62BCAA1FB04490EEA16269F18E09429D26658248
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806784   (11488) от 14.07.2025
-
-Yngwie Malmsteen - Tokyo Live (2025) 2 x CD [MP3|320 Kbps] <Neoclassical Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11488.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1:
-01. Rising Force (03:30)
- 02. Top Down Foot Down (01:40)
- 03. No Rest For The Wicked (01:49)(   Читать дальше...   )Жанр: Neoclassical Power MetalПродолжительность: 01:33:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:488A137DE74D3345C42AA8BBF9516BD3DE456B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807008   (11311) от 16.07.2025
-
-Steve Harris - British Lion (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11311.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is My God 4:57
-02. Lost Worlds 4:59
-03. Karma Killer 5:29
-04. Us Against The World 4:12(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Alternative RockПродолжительность: 00:52:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1D38A1ADCE7FB81B6AEFF26E2CD0C84539671C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807059   (11310) от 16.07.2025
-
-Animalistic! - Age of Furor (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Modern Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11310.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Queen at the Gates (02:27)
- 02. Bringer of the Sword (04:46)
- 03. Bad Blood (04:55)
- 04. Aspirin for Breakfast (2025 Version) (04:35)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC2AEE4900EFBB844D366719D254A48AEB3AB751
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807089   (11299) от 16.07.2025
-
-Jethro Tull - Still Living In The Past (2025) Box Set, 5XCD, Compilation, Reissue, 2025, Chrysalis [FLAC|Lossless|image + .cue] <Folk Rock, Prog Rock>
+Our Lady Peace - Clumsy (1997) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11299.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14726.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Original Mixes, Remixes, Edits & Demos 1968–1971:
-01. Song for Jeffrey (1971 remix)
-02. Love Story (1971 remix)
-03. A Christmas Song (1971 remix)(   Читать дальше...   )Жанр: Folk Rock, Prog RockПродолжительность: 04:49:21
+01. Superman’s Dead    [0:04:16.69]
+02. Automatic Flowers    [0:04:05.31]
+03. Carnival    [0:04:48.05]
+04. Big Dumb Rocket    [0:04:23.65](   Читать дальше...   )Жанр: Alternative Rock, Pop RockПродолжительность: 00:45:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C6E019452181FEA505B1B096CF3F5D93910B090
+magnet:?xt=urn:btih:D1BC670F98C805AB2A2D2CE677DA183558C63B76
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -346,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806911   (11286) от 16.07.2025
+###  Публикация: 1801875   (14725) от 13.06.2025
 
-Palecurse - dark room (2025) [MP3|320Kbps|tracks] <Alternative Rock, Mrtalcore>
+The Beautiful South - Welcome to the Beautiful South (1990) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock, Pop Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Alternative, Punk
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11286.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14725.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fever [00:03:59]
-02. Duplicity [00:03:30]
-03. On My Knees [00:03:16]
-04. Haunted [00:03:23](   Читать дальше...   )Жанр: Alternative Rock, MrtalcoreПродолжительность: 00:34:46
+01. Song for Whoever    [0:06:09.28]
+02. Have You Ever Been Away    [0:05:12.15]
+03. From Under the Covers    [0:04:04.50]
+04. I’ll Sail This Ship Alone    [0:04:40.45](   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Pop RockПродолжительность: 00:50:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:878942151624E1E833C3C9E396730190BD3CBCC8
+magnet:?xt=urn:btih:F84150524A5162D13A693E487828EA7B7FD1C63A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -375,57 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807064   (11280) от 16.07.2025
+###  Публикация: 1801778   (14724) от 13.06.2025
 
-The Way of Silence - 1 Albums, 3 Singles (2018-2024) [MP3|320 Kbps] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11280.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2018 - Flame of Your Lie (LP)
-2020 - Одиссея: Сирены (Single)
-2022 - Горгона (Single)(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 4 CD, 00:31:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E54DB90E91FA35DE5E14B19C61FC979FD7A2F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1806918   (11276) от 16.07.2025
-
-Born of Osiris - Through Shadows (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Deathcore>
+Kings of Leon - Only by the Night (2008) [FLAC|Lossless|tracks + .cue] <Southern Rock, Indie Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Alternative, Punk (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11276.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14724.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Seppuku [00:03:19]
-02. Elevate [00:03:13]
-03. Through Shadows [00:05:09]
-04. The War That You Are [00:03:39](   Читать дальше...   )Жанр: Progressive Metalcore, DeathcoreПродолжительность: 00:48:35
+01. Closer    [0:03:57.36]
+02. Crawl    [0:04:06.31]
+03. Sex on Fire    [0:03:23.26]
+04. Use Somebody    [0:03:50.57](   Читать дальше...   )Жанр: Southern Rock, Indie RockПродолжительность: 00:42:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9F2AB785DF369EF7628CAAB36E01A9F3AD9D4451
+magnet:?xt=urn:btih:829C2F4E6A5793440B33C1F7800673AA6B7965AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,173 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807258   (11093) от 18.07.2025
+###  Публикация: 1801830   (14722) от 13.06.2025
 
-Queen - Funk (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another One Bites The Dust (Remastered 2011)
-02. Staying Power (Remastered 2011)
-03. My Baby Does Me (Remastered 2011)
-04. Back Chat (Remastered 2011)(   Читать дальше...   )Жанр: Rock, Progressive-Rock, Glam-RockПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F74FD86D91C253FC6E2171892ABED69109132C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1807931   (10771) от 21.07.2025
-
-Liliac - Delusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human (05:47)
-02. Breathe (03:03)
-03. Delusion (03:07)
-04. Holy Odyssey (07:05)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38077AD56F2A5660D593041D2D1BC5A0F7F0CFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808278   (10562) от 23.07.2025
-
-Mustend - Люболь. Часть первая (2025) [MP3|320 Kbps] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10562.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Улетим [00:03:38]
-2. Не утони [00:04:41]
-3. ВЛСЖ [00:03:21]
-4. Весна [00:04:46](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB59DF4BEE35755456498CAC99999616E7B59E79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808431   (10520) от 24.07.2025
-
-VA - 70s Rock Ballads (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10520.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Gerry Rafferty - Right down the Line (4:28)
-02.  Fleetwood Mac - Dreams (2018 Remaster) (4:17)
-03.  Chicago - If You Leave Me Now (3:54)
-04.  Rod Stewart - You're in My Heart (The Final Acclaim) (4:31)(   Читать дальше...   )Жанр: RockПродолжительность: 01:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8230DE5224555535AB21667B6455B7862988F3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1808985   (10095) от 28.07.2025
-
-Queen - Ballads (2025) Remastered, 2011, UMG Recordings, Inc. [FLAC|Lossless|WEB-DL|tracks] <Rock, Pop Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Love Of My Life (Remastered 2011) [3:38]
-02 - Sail Away Sweet Sister (Remastered 2011) [3:34]
-03 - Life Is Real (Song For Lennon) (Remastered 2011) [3:32]
-04 - Spread Your Wings (Remastered 2011) [4:35](   Читать дальше...   )Жанр: Rock, Pop Rock, Classic RockПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B509DF160523E5369C9C76F93220390F7AB2B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809050   (10058) от 28.07.2025
-
-Pretty Maids - Original Album Classics (2015) Japanese Edition, Box Set, 5XCD, Compilation, Reissue, Sony Music [FLAC|Lossless|image + .cue] <Heavy Metal, Hard Rock, AOR>
+NoiZZy - Dreamland (2025) [FLAC|Lossless|WEB-DL|tracks] <Nu-Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14722.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1 - Red, Hot And Heavy:
-1-1 Fortuna Imperatrix Mundi (Carmina Burana) - Intro 0:22
-1-2 Back To Back 3:34
-1-3 Red, Hot And Heavy 3:57(   Читать дальше...   )Жанр: Heavy Metal, Hard Rock, AORПродолжительность: 03:29:00
+01. Dreamland [00:04:17]
+02. Fake [00:02:40]
+03. Addiction [00:05:29]
+04. Time [00:05:17](   Читать дальше...   )Жанр: Nu-MetalПродолжительность: 00:44:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FF2DDBC63E1C4607F2E194C03F3D679B8518E367
+magnet:?xt=urn:btih:FCAB9B9618EF77C098A267E67060A1D733AD6BC2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -607,28 +143,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809241   (9947) от 29.07.2025
+###  Публикация: 1801779   (14721) от 13.06.2025
 
-The B-Shakers - Kissed By The Devil (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Saxon - Eagles Over Hellfest (2025) Live [MP3|320 Kbps] <Metal, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Hell, Fire and Damnation (Live at Hellfest) [5:40]
+02 - Motorcycle Man (Live at Hellfest) [3:47]
+03 - Power and the Glory (Live at Hellfest) [5:19]
+04 - Madame Guillotine (Live at Hellfest) [5:05](   Читать дальше...   )Жанр: Metal, Heavy MetalПродолжительность: 01:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88195AF8279CDB19ABDFC0FB8FE3D1FC51093D2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801849   (14718) от 13.06.2025
+
+Insania - The Great Apocalypse (2025) [FLAC|Lossless|WEB-DL|tracks] <Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14718.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Trinity (06:37)
+ 02. Indestructible (05:20)
+ 03. No One's Hero (08:01)
+ 04. Afterlife (05:43)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 01:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCB83541CCE621F78A1D31E49E073CCFB5CBFF76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801782   (14716) от 13.06.2025
+
+Neil Diamond - The Best of The Movie Album (1998) [FLAC|Lossless|tracks + .cue] <Rock, Pop Rock, Soft Rock,>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14716.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Son Of A Gun (04:23)
- 02 - Hurry Up (02:56)
- 03 - Bullet In Your Chest (04:42)
- 04 - The B-Shakers Boogie (03:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:18
+01. As Time Goes By    [0:02:55.43]
+02. Unchained Melody    [0:03:49.60]
+03. Can You Feel the Love Tonight    [0:04:08.45]
+04. The Way You Look Tonight    [0:02:38.07](   Читать дальше...   )Жанр: Rock, Pop Rock, Soft Rock,Продолжительность: 00:45:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A197FD40DE0745555D37A5E651BBEB7AC5DE7B81
+magnet:?xt=urn:btih:167F7E0900F4980E3593A980BD8E607ABB4EC818
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +230,290 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809448   (9748) от 31.07.2025
+###  Публикация: 1801801   (14713) от 13.06.2025
 
-Alice Cooper - The Revenge Of Alice Cooper (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+Jethro Tull - Live from Baloise Session Basel (Switzerland 15.11.2008) (2025) Live [MP3|320 Kbps] <Blues Rock, Folk Rock, Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - My Sunday Feeling (Live) [3:59]
+02 - Living in the Past (Live) [5:36]
+03 - Serenade to a Cuckoo (Live) [4:22]
+04 - So Much Trouble (Live) [3:48](   Читать дальше...   )Жанр: Blues Rock, Folk Rock, Progressive RockПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBB0871E67DBDEB3213813A991B4D588FA1F0BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801891   (14711) от 13.06.2025
+
+The Funeral Portrait - Greetings From Suffocate City (From Beyond The Abyss: Deluxe Edition) (2025) [MP3|320 Kbps] <Post-Hardcore, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14711.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Suffocate City (feat. Spencer Charnas of Ice Nine Kills) [3:34]
+02 - Holy Water (feat. Ivan Moody of Five Finger Death Punch) [3:02]
+03 - Blood Mother [3:17]
+04 - Doom and Gloom [3:19](   Читать дальше...   )Жанр: Post-Hardcore, Alternative RockПродолжительность: 01:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAC64DD849B80A6240FA137917792218B41290FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1801857   (14709) от 13.06.2025
+
+Пролиф - 3 Albums (2025) [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Рыбалка [00:05:22]
+02. Керженец [00:08:14]
+03. Сад [00:03:51]
+04. Весна: 2020 [00:04:38](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 3 CD, 03:45:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42CF34FE8CC0BA843281ED831D81BD7B407DC33E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244822   (14656) от 14.06.2025
+
+Placebo - Sleeping With Ghosts (2003) Japanese Edition [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bulletproof Cupid (2:23)
+ 02. English Summer Rain (4:02)
+ 03. This Picture (3:35)
+ 04. Sleeping With Ghosts (4:39)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:54:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:300190FD700EDC90008D5E9960553DF3DC562E47
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802028   (14624) от 14.06.2025
+
+СЛОТ - Реставрация (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative-Metal, Rapcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 2W [00:01:39]
+02. 2 Войны (2025 Version) [00:03:34]
+03. Одни (2025 Version) [00:03:11]
+04. На Марс! (2025 Version) [00:04:31](   Читать дальше...   )Жанр: Alternative-Metal, RapcoreПродолжительность: 00:45:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB29DC8119AA253234122BE008DFD4FF5BFC9E7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802252   (14514) от 15.06.2025
+
+ELO - Balance of Power (1986) 2007 Remastered + 7 Bonus Tracks, Sony BMG [FLAC|Lossless|tracks + .cue] <Progressive Rock, Art Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heaven Only Knows
+02. So Serious
+03. Getting To The Point
+04. Secret Lives(   Читать дальше...   )Жанр: Progressive Rock, Art Rock, Pop RockПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F2067340579330A45991E7142FA85E91241976B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802237   (14510) от 15.06.2025
+
+Metallica - Load (1996) Remastered Expanded Edition, 2025, Blackened [FLAC|Lossless|image + .cue] <Heavy Metal, Thrash Metal, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ain't My Bitch (Live at Irvine Meadows Amphitheatre, Irvine, CA - August 4th,... [5:02]
+02 - 2 x 4 (Live at Donington Park, Castle Donington, England - August 26th, 1995) [5:48]
+03 - The House Jack Built (Birmingham, England Rehearsal) [7:17]
+04 - Until It Sleeps (Live at Oslo Spektrum, Oslo, Norway - November 23rd, 1996) [4:14](   Читать дальше...   )Жанр: Heavy Metal, Thrash Metal, MetalПродолжительность: 03:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF56AB8D8E1F5B419C49A3B6E4C7DF928F257339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802412   (14416) от 16.06.2025
+
+letlive. - The Blackest Beautiful (2013) Revisited, 2025, Epitaph [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Metalcore, Alternative-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Banshee (Ghost Fame) (Revisited) [00:04:05]
+02. Empty Elvis (Revisited) [00:03:04]
+03. White America's Beautiful Black Market (Revisited) [00:03:42]
+04. Dreamers Disease (Revisited) [00:03:43](   Читать дальше...   )Жанр: Post-Hardcore, Metalcore, Alternative-MetalПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE18DF38F557DFBC0A65C6FA40A1191BDDCD72BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408668   (14365) от 17.06.2025
+
+GroTTesque - Коллекция (+Bonus) (2014-2024) [MP3|320 Kbps] <Heavy, Industrial, Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14365.jpg" />
+</div>
+
+
+###  Подробнее
+
+◄GroTTesque► начали свою активную деятельность с сентября 2013 года.
+Стиль команды можно охарактеризовать как SteamPunk/Industrial/Melodic Metal. Звучание отличает смесь плотных гитарных рифов и насыщенных электронных сэмплов. Музыканты коллектива активно участвуют в сценическом шоу, перевоплощаясь в различных героев альтернативной вселенной, которая (   Читать дальше...   )Список альбомов:
+2014 - Авиаторы
+2014 - Вечный странник
+2016 - Здесь отступает жизнь(   Читать дальше...   )Жанр: Heavy, Industrial, MetalПродолжительность: 04:07:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34D560586632BF83413399AC0173DCFC9DCFA0A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802420   (14311) от 17.06.2025
+
+Volbeat - God of Angels Trust (2025) [FLAC|Lossless|image + .cue] <Heavy Metal, Groove Metal, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9748.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Black Mamba
-02. Wild Ones
-03. Up All Night
-04. Kill The Flies(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:06
+01 - Devils are Awake [4:55]
+02 - By a Monster's Hand [3:43]
+03 - Acid Rain [4:45]
+04 - Demonic Depression [3:59](   Читать дальше...   )Жанр: Heavy Metal, Groove Metal, Hard RockПродолжительность: 00:44:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:26543129A93BE039547A0F8B06948A0C9BEEB1DD
+magnet:?xt=urn:btih:8B1430685DECEE5D64163F5398EDD2FE482E1DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +521,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809893   (9661) от 01.08.2025
+###  Публикация: 1802637   (14216) от 18.06.2025
 
-Queen - Slightly Mad (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-Rock>
+Машина Времени - Пой со мной! (2025) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Откуда этот свет
+02. Здесь не жила любовь
+03. Мне снится серое море
+04. Назови хоть одну причину(   Читать дальше...   )Жанр: RockПродолжительность: 00:21:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:23C0646F5220D308EC54722A8FD96ADD582EB0A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803000   (13923) от 21.06.2025
+
+Black Sabbath - Greatest Hits Broadcast Collection: Black Sabbath (2025) [MP3|320 Kbps] <Hard-Rock, Heavy-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13923.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – War Pigs
+02 – Paranoid
+03 – Iron Man
+04 – Sweet Leaf(   Читать дальше...   )Жанр: Hard-Rock, Heavy-MetalПродолжительность: 01:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2180B416EC1B631E74CE2F05A4F09C9F09A7FFD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1803309   (13799) от 22.06.2025
+
+Queen - Heavy (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock, Progressive-Rock, Glam-Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9661.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13799.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Mustapha (Remastered 2011)
-02. Lazing On A Sunday Afternoon (Remastered 2011)
-03. I'm Going Slightly Mad (Remastered 2011)
-04. More Of That Jazz (Remastered 2011)(   Читать дальше...   )Жанр: Rock, Progressive-Rock, Glam-RockПродолжительность: 00:42:23
+01. Ogre Battle (Remastered 2011)
+02. Stone Cold Crazy (Remastered 2011)
+03. The Hitman (Remastered 2011)
+04. Sheer Heart Attack (Remastered 2011)(   Читать дальше...   )Жанр: Rock, Progressive-Rock, Glam-RockПродолжительность: 00:41:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A5F041A21A0A0A84F1D58736EE5998F655FC9A24
+magnet:?xt=urn:btih:5D14C2BE295BB45DA107310FD6FE648BC7870773
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,28 +608,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809475   (9617) от 01.08.2025
+###  Публикация: 1803526   (13683) от 23.06.2025
 
-Queen - Greatest Hits II (1991) 1st UK Press [APE|Lossless|image + .cue] <Rock>
+Sinphonia - The Divine Disharmony (2002) [FLAC|Lossless|image + .cue] <Prog Rock, Heavy Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9617.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13683.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Kind Of Magic (4:23)
-02. Under Pressure (3:57)
-03. Radio Ga Ga (5:43)
-04. I Want It All (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 01:15:57
+01. Prologue 00:42
+02. The Reflective and the Sleeper 07:14
+03. A Spectre of Dust 04:28
+04. Disclosure 04:10(   Читать дальше...   )Жанр: Prog Rock, Heavy MetalПродолжительность: 00:52:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A41A8EE242D8C44593D382E14EC60D69F995BCA9
+magnet:?xt=urn:btih:6DEFCA9CFDB398192BC013110A188FE520B2E9E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -723,27 +637,115 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1191154   (9580) от 02.08.2025
+###  Публикация: 1804066   (13285) от 27.06.2025
 
-Styx - 19 Studio Albums, 6 Live, 12 Compilations, 1 Box Set (1972 - 2025) 66 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Classic Rock & Hard Rock, Art Rock, Progressive>
+Orianthi - Some Kind of Feeling (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop Rock, Blues Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9580.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13285.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Группа "Styx" возникла на основе существовавшей еще в 60-х годах чикагской студенческой команды "The Tradewinds". Первые альбомы особым спросом не пользовались, однако на "Styx II" присутствовала баллада "Lady", с которой позже и начался успех группы. В 1974-м эта песня, переизданная на сингле, поднялась до шестого места в (   Читать дальше...   )1972 - Styx
-1973 - Styx II
-1973 - The Serpent Is RisingЖанр: Classic Rock & Hard Rock, Art Rock, ProgressiveПродолжительность: 54:20:30
+01. Attention (03:48)
+ 02. Some Kind of Feeling (04:44)
+ 03. What I've Been Looking (05:15)
+ 04. Sharp Dressed Man (02:46)(   Читать дальше...   )Жанр: Pop Rock, Blues RockПродолжительность: 00:38:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BFCDAFBD2E8687F132548C16CF3080F4C7B0B54F
+magnet:?xt=urn:btih:3ED368C480F71A6E4FD8F442E067CB52B4A8F21B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804107   (13282) от 27.06.2025
+
+Bruce Springsteen - Tracks II: The Lost Albums (2025) [MP3|320 Kbps] <Rock, Folk Rock, Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - I'm Not Sleeping [3:38]
+02 - Idiot's Delight [3:35]
+03 - Another Thin Line [4:47]
+04 - The Great Depression [3:48](   Читать дальше...   )Жанр: Rock, Folk Rock, Pop RockПродолжительность: 05:20:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD36A5AC60F664DDE5E7A8A187C176CFBCDCBAA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804026   (13262) от 27.06.2025
+
+Late Night Savior - Rebirth (2025) [FLAC|Lossless|WEB-DL|tracks] <Alternative Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No One [00:03:25]
+02. Enemy [00:03:18]
+03. Artificial [00:03:28]
+04. Hellfire [00:03:12](   Читать дальше...   )Жанр: Alternative MetalПродолжительность: 00:38:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2447D872440DD208C020B90D5A56434E073BE7D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1804109   (13261) от 27.06.2025
+
+Crystal Viper - The Live Quest (2025) Live [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_13261.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Return To Providence (Live) [1:44]
+02 - Fever Of The Gods (Live) [4:28]
+03 - The Silver Key (Live) [4:45]
+04 - The Cult (Live) [4:55](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:40:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3DE10EF940B5B01AF0EA9BFF103898904CEEFF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1347345   (152364) от 23.12.2019
+
+Black Rose - Fortune Favours The Brave (1993) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1998 - Broken Saviours
+1999 - Age Of Innocence
+2000 - Live2KЖанр: Hard RockПродолжительность: 04:54:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8059C0322BCD4E99D5C226486A826DCED4186AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1826194   (152346) от 18.10.2025
+
+Cyanide - 21 Gun Salute (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152346.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Is Everybody High? (01:45)
+ 02 - Fireball (03:24)
+ 03 - Back the Fuck Off (04:16)
+ 04 - 21 Gun Salute (04:26)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE51A2DE7F74960EB85935F0D076F5033CAB5F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1601157   (152308) от 30.12.2022
+
+Falcon Scream - Falcon Scream (1995) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Picture Frames
+02. Shadow In The Night
+03. Goin Blind
+04. 4 Lines(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D08D478E968B609CECD3ECDBBCD9C41705831E7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159159   (151373) от 18.10.2025
+
+Kiss - 25 Studio Albums, 11 Live, 15 Compilations, 5 Box Set (1974 - 2017) 158 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kiss - американская рок-группа, основанная в Нью-Йорке в январе 1973 года, играющая в жанрах глэм-рок, хард-рок и известная сценическими макияжами её участников, а также концертными шоу, сопровождающимися различными пиротехническими эффектами. По состоянию на 2016 год имеют более сорока пяти золотых и платиновых альбомов и более 100 миллионов проданных записей. Идея (   Читать дальше...   )Список альбомов:
+1974 Kiss
+1974 Hotter Than Hell
+1975 Dressed To KillЖанр: Hard Rock, Glam RockПродолжительность: 109:44:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC65E7D5EA5230E21A77CCD56329767C9A6E4FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601388   (150937) от 31.12.2022
 
 Tyketto - Don't Come Easy (1991) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -634,122 +750,6 @@ Dante Fox - Six String Revolver (2017) [FLAC|Lossless|tracks + .cue] <Melodic Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AE9EAA3B3C675819B8E5DAAEECA33E35A49E1DA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970514   (138319) от 31.12.2015
-
-Kingdom Come - The Best Of Kingdom Come (2003) 20th Century Masters The Millennium Collection, Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Out Of Touch (04:21)
-02. What Love Can Be (05:19)
-03. Get It On (04:24)
-04. Pushin Hard (04:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E277D886194C4A93CA7FF63EC433328E36C59F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210636   (137385) от 31.12.2021
-
-Alex Harvey / The Sensational Alex Harvey Band - 10 albums, 22 CD (1972-2018) [FLAC|Lossless|image + .cue | tracks+.cue] <Hard Rock, Progressive Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137385.jpg" />
-</div>
-
-
-###  Подробнее
-
-SAHB - это общепринятое аббревиатурное сокращение названия группы. Алекс Харви (Alex Harvey) – «старейший панк Британии», как его однажды отрекомендовал еженедельник NME, ветеран театра рок-н-ролльной сатиры, бывший укротитель львов... одна из наиболее оригинальных и не поддающихся классификации фигур на британской музыкальной сцене. Музыка его воистину гипнотическая, (   Читать дальше...   )--------------------------
-
-ALEX HARVEY AND HIS SOUL BAND
-01. Shout (4:45)(   Читать дальше...   )Жанр: Hard Rock, Progressive Rock, Glam Rock |Продолжительность: 18:09:02 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D4F4D5F610AC369E3F1C6C9562109220F37D997
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159766   (137356) от 31.12.2019
-
-Doogie White - Collection: 21 albums, 28 CD (2000-2019) [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n'Heavy>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137356.jpg" />
-</div>
-
-
-###  Подробнее
-
-Дуглас (Дуги) Уайт (род. 7 марта 1960, Мотеруэлл, Шотландия) — шотландский певец, выступавший в группах Sack Trick, Midnight Blue, Praying Mantis, Rainbow, группе Ингви Мальмстина Rising Force, Cornerstone, M3, Tank. Doogie White (Vocals). Дуги один из немногих современных вокалистов, пение которого не вызывает раздражения. Хард который он исполняет можно назвать (   Читать дальше...   )--------------------------
-
-01. Not That Kind Of Man (4:33)
-02. Under Your Skin (3:55)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'Heavy |Продолжительность: 24:56:43 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:357AE10BA945C91B2FB842B80BB0D527A120822E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1009399   (136992) от 25.11.2023
-
-Aerosmith - 33 Albums, 4 Box Set (1973 - 2023) 85 CD [FLAC|Lossless|image + .cue, tracks + .cue] <Hard Rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Aerosmith - одна из наиболее популярных хард-рок-групп в США, несмотря на свое сорока пяти летнее существование, похоже так же не имеет возраста, как и ее полный жизни и энергии солист Стив Тайлер. Возможно, поэтому среди ее преданных поклонников немалую часть составляют зрители, которые подчас моложе тех песен, что поют участники группы. История "Aerosmith" (   Читать дальше...   )Список альбомов:
-1973 - Aerosmith
-1974 - Get Your Wings
-1975 - Toys In The AtticЖанр: Hard RockПродолжительность: 62:57:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3304FFF5FF626F0C0345D762BBBD1033EEA170
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1359360   (965114) от 11.02.2020
+
+Тінь Сонця - На небесних конях (2020) [MP3|320 kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Запорізький марш (02:32)
+02. Тримайся, козак (03:11)
+03. Мчать козаки (04:36)
+04. Вітер з Січі (03:41)(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:52:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:310C89AEE18C088C8B9403D92026F9ABC7CDBF63
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 978764   (962046) от 24.01.2016
 
 VA - Covered In Blues (2014) [MP3|320 кб/с] <Blues, Blues Rock>
@@ -718,35 +747,6 @@ The xx - I See You (2017) [MP3|320 Kbps] <Indie Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23768D2AF976F4226C6062E902A873B237013B0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985835   (934115) от 12.02.2016
-
-Blues Dimension - 2 Original Albums (2014) [MP3|320 кб/с] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934115.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Get Ready (2:11)
-02.  Wonderland (3:12)
-03.  The One And Only Man (3:36)
-04.  Things I Remember (2:45)(   Читать дальше...   )Жанр: Rock|Продолжительность: 01:08:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23FF7D19A06C96F064341FB9CA3424D149ECDBB6
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1019568   (748355) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 2 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Digital Emotion - Don`t Stop ( 1984 )
+02. Mo-Do - Eins, Zwel, Polizel ( 1994 )
+03. C.C.Catch - Cause You Are Young ( 1986 )
+04. Michael Jackson - Bad ( 1987 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DED354EFAE6A7FB6FC0643DB0882AED007B30654
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019587   (748347) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 6 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. O'Kay - The Wild Wild Western ( 1989 )
+02. Al Bano & Romina Power - Felicitа ( 1982 )
+03. Scotch - Delirio Mind ( 1985 )
+04. Adriano Celentano - Susanna ( 1984 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9865C06BDA3EE9A51971CAD567DDE014B18333EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019572   (748332) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 3 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fancy - Colder Than Ice ( 1985 )
+02. Flirts - Boy Crazy ( 1982 )
+03. Lee Marrow - Shangai ( 1987 )
+04. Modern Talking - You Can Win If You Want ( 1985 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F654E57E8B6AFFFF53F4652E143E4FBB315AC37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1019616   (748198) от 24.05.2016
+
+VA - Зарубежная Дискотека ХХ Века - 10 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748198.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Modern Talking - Diamonds Never Made A Lady ( 1985 )
+02. Grant Miller - Doctor For My Heart ( 1986 )
+03. Les McKeown - It' A Game ( 1989 )
+04. Trans X - Living On Video ( Radio Mix 1988 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B5D1E4CA183C4CC1D06CC9F25C601858B72010F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019564   (747865) от 24.05.2016
 
 VA - Зарубежная Дискотека ХХ Века - 1 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
@@ -629,122 +745,6 @@ VA - Зарубежная Дискотека ХХ Века - 16 (2016) [MP3|320 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FBEB94CCB75DE5737647CC1E13B327083A19E2AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020883   (743462) от 27.05.2016
-
-VA - Зарубежная Дискотека ХХ Века - 21 (2016) [MP3|320 кб/с] <Pop, Disco, Italo disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743462.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Big Brother - Red Fire ( 1991 )
-02. Fancy - Come Inside ( 1984 )
-03. Vanessa - Just a Game ( 1989 )
-04. Macho Gang - When Somebody Loves Me ( 1989 )(   Читать дальше...   )Жанр: Pop, Disco, Italo discoПродолжительность: 01:19:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F3AC499072878207A29F038091DF35CC1FFAC95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217135   (743356) от 04.04.2018
-
-VA - Welcome To The 90s (Vol.2) (2018) [MP3|320 Kbps] <Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743356.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dream Squad - Flow With the Fantasy
-002. E-Type - Back in the Loop
-003. The Free - Born Crazy
-004. 2alive - Tell it to My Heart Tonight(   Читать дальше...   )Жанр: EurodanceПродолжительность: 06:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32BE036E8E3B9DA0EABE825DC45CBE9127F07AB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217327   (743112) от 04.04.2018
-
-VA - Танцевальный Рай - The Best 90s (2018) [MP3|320 Kbps] <Dance, Disco, Eurodance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743112.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. No Mercy - Missing
-002. Culture Beat - Got To Get It
-003. Modjo - Lady(Hear Me Tonight)
-004. Take Twice - It's True(   Читать дальше...   )Жанр: Dance, Disco, EurodanceПродолжительность: 06:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5753F6424787FA9C694283BF2B516CF57C4FB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1217485   (742261) от 05.04.2018
-
-VA - De Top 100 Aller Tijden 1986 (Radio Veronica) (2017) [MP3|320 Kbps] <Pop, Rock, Synth-pop, Disco, World>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_742261.jpg" />
-</div>
-
-
-###  Подробнее
-
-"De Top 100 Aller Tijden" (Топ 100 на Все Времена) от голландской радиостанции "Radio-Veronica" .001. Billy Ocean - When The Going Gets Tough The Tough Get Going (7:33)
-002. Europe - The Final Countdown (5:10)
-003. George Michael - A Different Corner (4:05)
-004. UB40 - Sing Our Own Song (4:02)(   Читать дальше...   )Жанр: Pop, Rock, Synth-pop, Disco, WorldПродолжительность: 07:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0DD72BA9E99D4A3F9FCD9F4A263050CE19A3CFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

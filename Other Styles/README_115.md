@@ -1,3 +1,211 @@
+###  Публикация: 1251111   (420043) от 30.09.2018
+
+The Romantic Strings Orchestra - Night And Day: The Great Songs Of Cole Porter (1993) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_420043.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begin the Beguine (3:33)
+02. Easy to Love (2:52)
+03. Let's Do It Let's Fall in Love (2:44)
+04. Night and Day (2:28)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:59:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3354E572FE7764ADE25FBA7D33A80D6A90B78C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166809   (419723) от 19.09.2017
+
+Trevor Rabin & Harry Gregson-Williams - Enemy of the State (1998) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Main Titles
+02 - Enemy Of The State Main Theme
+03 - Brill's Theme
+04 - The Ferry(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:661AE7CF4250A577D87F9FC3ED328A19611140C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167020   (419719) от 19.09.2017
+
+VA - About Time (2013) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419719.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ben Folds - The Luckiest (About Time Version)
+02 - Jon Boden, Sam Sweeney & Ben Coleman - How Long Will I Love You
+03 - Paul Buchanan - Mid Air
+04 - Groove Armada - At The River(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:192326670E5D27B0D124FFDB7462202186700B39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167034   (419558) от 19.09.2017
+
+VA - Snatch (Expanded) (2000) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Klint - Diamond
+02 - Penicio Del Toro - 'vere iz da storn_'
+03 - Overseer - Supermoves
+04 - The Johnston Brothers - Hernando's Hideaway(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:57:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D8B16561AECC8963BC98F6AE68929533BDD7A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167334   (419436) от 19.09.2017
+
+Michel Pepe - La Foret d'Eden (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419436.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lueur de l'Aube
+02. L'Oree Resplendissante
+03. L’Esprit des Animaux
+04. Senteurs Paradisiaques(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:14:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D15FC960965B58D14663D9267C06EEDDB97E20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1166990   (419254) от 19.09.2017
+
+VA - The Thomas Crown Affair (1999) [MP3|320 Kbps] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419254.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sting - Windmills of Your Mind
+02 - Nina Simone - Sinnerman
+03 - Wasis Diop - Everything (...is never quite enough)
+04 - Georges Fordant - Caban La Ka Kratchie(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:37:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01EF50755B9552AB12D0D6DF8E01A0928ECEDC4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 709041   (419042) от 13.10.2013
+
+Летописи Междуречья - Странник (2012) [MP3|256-320 кб/с]<Folk-Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419042.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Странник (03:40)
+2. Художник и Богач (02:55)
+3. Летописи Междуречья (04:25)
+4. Шаман (02:51)
+5. Леший Овраг (03:49)
+6. Идущим (03:17)
+7. Воспоминания (04:40)
+8. На Лесном Озере (03:00)
+9. Летописи Междуречья - Война (03:40)Жанр: Folk-RockПродолжительность: 00:32:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A3A7A2DBD3A63D77173AAB6E4E00CFAB28234CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 556904   (418852) от 08.10.2012
 
 Jesse Cook - 2 альбома (2005 & 2012) [FLAC|Lossless]<Jazz, Flamenco, Guitar>
@@ -553,209 +761,6 @@ Phil Thornton - Pure Crystal Bowls (2016) [FLAC|Lossless|tracks] <New Age, Medit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F1B38B69E740C5F9C3DF53163324DA58AC074F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167274   (414516) от 21.09.2017
-
-Andrea Guerra - The Pursuit Of Happyness (2006) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Opening
-02 - Being Stupid
-03 - Running
-04 - Trouble At Home(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:40:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D61749F3BA3AECBAEFEB0A0145F54750B8566808
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 558465   (414110) от 10.10.2012
-
-Medwyn Goodall - Moon Goddess 2 (2012) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_414110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moonstone (5:25)
-02. Serving Grace (4:14)
-03. In the Moment (6:06)
-04. Starseed (4:40)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4877B1B7B8648AECE838BB3DF8E12831FB4D665
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1168068   (412848) от 22.09.2017
-
-VA - Eurotrip (2004) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412848.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Lustra - Scotty Doesn't Know
-02 - Chapeaumelon - My Generation
-03 - Wakefield - Wild One
-04 - Goldfinger - 99 Red Balloons(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83EED80D78584205E59BB3A81D4C421D3B7659DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1167986   (412722) от 22.09.2017
-
-VA - Knockin' on Heaven's Door (1997) [MP3|320 Kbps] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412722.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Til Schweiger - Gedanken uber Das Meer (Original Film-Dialog)
-02 - Selig - Knockin' On Heaven's Door
-03 - Selig - Love And Rockets
-04 - Instant Karma - Silver Whale(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05997E9B909D426B138D01383066FFD41EAB042
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948595   (411399) от 20.10.2015
-
-Gomer Edwin Evans - The Very Best Of Angel Dreams (2015) [MP3|320 кб/с]<New Age, Instrumental, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Strahlen reiner Liebe
-02. Gemeinschaft der Engel, Pt. 1
-03. Spre die schtzende Hand, Pt. 2
-04. Das Manifest der Liebe, Pt. 1(   Читать дальше...   )Жанр: New Age, Instrumental, RelaxПродолжительность: 01:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:995219D1FC544F6A957E3268BDC0EF48E8FC824A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 710523   (411200) от 16.10.2013
-
-VA - Cafe Del Mar - Classical (2013) [FLAC|Lossless|image + .cue] <Instrumental, Lounge, Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411200.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spring (2:33)
-02. Gymnastics (4:50)
-03. Pavane (5:07)
-04. Clair De Lune (4:17)(   Читать дальше...   )Жанр: Instrumental, Lounge, ChilloutПродолжительность: 00:58:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31750B6EF49F01A59ECB09D801207C0326352EE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 711362   (411196) от 16.10.2013
-
-Olivia Newton-John - If Not For You (1971) 1993, Reissue [FLAC|Lossless]<Country, Pop Country, Country Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_411196.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Me And Bobby McGee (03:46)
-(Fred Foster / Kris Kristofferson)
-02. If (02:29)
-(David Gates)(   Читать дальше...   )Жанр: Country, Pop Country, Country RockПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1439190274C92924A5308C9C123CFF3160117107
 ```
 
 https://mybot314.ru/tekegram_catalog/

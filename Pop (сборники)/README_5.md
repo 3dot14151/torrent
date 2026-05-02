@@ -1,3 +1,119 @@
+###  Публикация: 1475506   (1012272) от 07.06.2021
+
+VA - Mein Lieblings Schlager (2021) [MP3|320 Kbps] <Pop, Folk, Dance, Schlager>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012272.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sister Sister - Valerie
+002. Aitana - Con Cali Y El Dandee
+003. Eloy De Jong - Auf Das Leben
+004. Duncan Laurence - Loves You Like I Couldn’t Do(   Читать дальше...   )Жанр: Pop, Folk, Dance, SchlagerПродолжительность: 11:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3906F4FBFDBF817DA3F2A608E0D6C40A093D5087
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1475485   (1012254) от 07.06.2021
+
+VA - Evrybody Clap: Disco Party (Vol.02) (2021) [MP3|320 Kbps] <Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012254.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Disco Drizzle - We Are Sparta Ring Walk
+002. Harlem Dance Club - You Ll Be There
+003. Paolo Bardelli - Funky Cookie
+004. Gorillag - Gimme Gimme Gimme(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 10:16:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:053AE7FAD34ECF217B9B49EA0309C7E50F7DFD59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474893   (1012135) от 08.06.2021
+
+VA - Glam Essentials (2021) [MP3|320 Kbps] <Pop, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mott the Hoople - All the Young Dudes
+02. Slade - Cum On Feel The Noize
+03. Bryan Ferry - A Hard Rain's A-Gonna Fall
+04. David Bowie - The Jean Genie (2013 Remaster)(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:26:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87C5C3D981EC5FBD2862A58CC3608C8069A550FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1474890   (1012133) от 08.06.2021
+
+VA - 230 DJ Loaded - Musiced Dedications (2021) [MP3|192-320 Kbps] <Afrobeat, Hip-Hop, Dancehall, Future House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1012133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WhoHeem vs Waka Flocka Flame ft Wale & Roscoe Dash - Let's Link vs No Hands (Even Steve Wordplay Trans 60-66) Short Clean
+02. YZY - Punisher (Original Mix) Clean
+03. Problem Child 5 ft Young Thug - Da Tooly (Dirty)
+04. Skemaddox - Edamame (Original Mix) Clean(   Читать дальше...   )Жанр: Afrobeat, Hip-Hop, Dancehall, Future HouseПродолжительность: 13:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD21EC5C611DD5C68F07A56FA332C5CDA6DC6C3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1474908   (1012092) от 08.06.2021
 
 VA - Summer BBQ (2021) [MP3|320 Kbps] <Rhythm & Blues, Folk, Rock & Roll, Disco>
@@ -626,146 +742,6 @@ VA - Модный Зимний Выпуск (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A9D53EF16B2A07877BB097C2233812353C1230D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 599958   (999147) от 07.01.2013
-
-VA - Союз 51 (2012) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_999147.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Михаил Бублик - Будет Светло
- 02. Dj Smash feat. Вера Брежнева - Любовь на расстоянии
- 03. Группа «Руки вверх» - Я тебя люблю
- 04. Ева Польна - Весь мир на ладони
- 05. Группа "Достучаться До Небес" - Отпусти меня
- 06. Елка – Хочу
- 07. Dan Balan– Люби
- 08. "Винтаж" & ChinKong - Свежая вода
- 09. Нюша – Воспоминание
- 10. Иван Дорн - Бигуди(   Читать дальше...   )Жанр: PopПродолжительность: 1:13:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9BD3D17692A41A5202EEF9BEC735F9DB02E653
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600315   (998972) от 08.01.2013
-
-VA - Tropiques Dancefloor 2013 (2012) [MP3|320 кб/с]<Dance, Pop,Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998972.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. DJ Ken - DJ Ken Pr sente Dancehall Party 4:13
-2. Lylloo (Feat. Matt Houston) - Tu Y Yo 3:04
-3. Le la Chicot - Lov Intas 4:00
-4. Marvin - Sans Toi 4:06
-5. Colonel Reyel - Toi Moi 3:26
-6. Moussier Tombola - Logobitombo (Corde Sauter) 3:31
-7. Milca (Feat. Passi) - La Vie Va Donner 4:13
-8. Kalash (Feat. Lieutenant) - Pran Pi 3:14
-9. Ls - Jet T oublierai 4:17
-10. Dj Jairo - Kalin 4:13(   Читать дальше...   )Жанр: Dance, Pop,ClubПродолжительность: 01:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C04C5274007D51EBE1528FBF5674F89862615945
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600300   (998843) от 08.01.2013
-
-VA - Gangnam Style Hits (2013) [MP3|320 кб/с]<Dance, Club, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998843.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Psy - Gangnam Style (3:39)
-2. Scissor Sisters - Only the Horses (3:42)
-3. Br!k Ft Philly - Get It Poping (Luis Gutierrez Remix) (3:42)
-4. Federico Seven Feat Marti Caos - Night Dreams (Radio Mix) (3:59)
-5. Asaf Avidan & the Mojos - Reckoning Song (Wankelmut Remix) (3:30)
-6. Kyota - Nemo (Original Mix) (6:54)
-7. Andu Angelo Feat Rares & Joshua - Fly With You (Original Mix) (3:40)
-8. Ray Burnz - Fck The Club (Club Mix) (9:18)
-9. Calabria Vs Rob Estell - Nature (Club Mix) (4:41)
-10. Dima Koch - Eurythmic Hook (Original Mix) (5:10)(   Читать дальше...   )Жанр: Dance, Club, PopПродолжительность: 05:06:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1C3A075F5F152DE43A9F760C6484A27A64D173C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600897   (998401) от 10.01.2013
-
-VA - Русский хитовый взрыв №3 (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 5sta Family - Без ума
-02. Бурановские Бабушки - Party
-03. Indira - Я буду верить
-04. Тамерлан И Алена Омаргалиева - Лондон
-05. DAS feat. Лера Туманова - Чувствовать Пульс
-06. Ирина Дубцова - Что тебе я сделала
-07. Евгения Поликарпова - Неважно
-08. Нюша - Queen Of The Night
-09. Глюкоза И Макс Барских - Адреналин
-10. D.Lemma - Лирика(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:405C5277A5B946DFA2A558FC7738A8B49DA16F0F
 ```
 
 https://mybot314.ru/tekegram_catalog/

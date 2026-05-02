@@ -1,3 +1,148 @@
+###  Публикация: 1635928   (235860) от 27.05.2023
+
+VA - Trance Anthems Vol. 20 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235860.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bryan Kearney & Karney - Compromise (Original Mix) [7:09]
+02. Gabriel Angio - Guitar Of The Universe (Original Mix) [7:25]
+03. Lost House Rhythms & Falcos Deejay - Runnin' (Trance Edit) [3:25]
+04. Drival - The Awakening (Extended Mix) [7:05](   Читать дальше...   )Жанр: TranceПродолжительность: 02:27:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEDE17FC95AF8CA7C4298FBC97C8A6D6CA62776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1632409   (235489) от 10.05.2023
+
+VA - Trance 2023 Vol. 4 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_235489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Suncatcher & Exolight feat. Maria Nayler - Reunited In One Flame (Original Mix) (4:24)
+02. Alan Morris & Elixus - Come With Me (Original Mix) (3:28)
+03. Stowers & Cooper feat. That Girl - Us Against The World (Original Mix) (3:33)
+04. The Doppler Effect & Carol Lee - Beauty Hides In The Deep (James Dymond Remix) (4:15)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:32:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21F3B292EFA80C023A5E0C8DFE64B013A1FC2273
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642414   (235458) от 27.06.2023
+
+VA - Levitated - Emotional Trance Vol. 2 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235458.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Daniel Seabra - Light (Extended Mix) [6:14]
+02. New World - True Nature (Club Mix) [6:02]
+03. Snowflakes - Spirits Of The Forest (Extended Mix) [9:00]
+04. David Surok - Join My Galaxy (Extended Mix) [6:45](   Читать дальше...   )Жанр: TranceПродолжительность: 01:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:530D8D60DADE67E3E66069D401AAB0FC5E572CE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633079   (234556) от 14.05.2023
+
+VA - Black Hole Trance Music 05-23 (2023) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Emma Hewitt & LTN - WARRIOR (Extended Sunset Mix) [5:39]
+02. Solarstone - Vision (Extended Mix) [7:51]
+03. HALIENE - Reach Across The Sky (Ben Gold Extended Remix) [8:55]
+04. Markus Schulz & Paul Oakenfold - Pendulum (Extended Mix) [6:14](   Читать дальше...   )Жанр: TranceПродолжительность: 02:47:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:001B598120ACAE1F376E8B7B99601B53C9CD4209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1643148   (234037) от 01.07.2023
+
+Markus Schulz - The Rabbit Hole Circus (2023) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234037.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz & HALIENE - Death Of A Star (Original Mix) [3:43]
+02. Markus Schulz & Melody Mane - Stay Gold (Original Mix) [5:00]
+03. Markus Schulz & Sarah De Warren - Light On (Original Mix) [7:26]
+04. Markus Schulz & Diandra Faye - Eternally (Original Mix) [6:28](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:02:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FEA89F698A2FA891BBBFB8E4F3D99292E54AF54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634237   (233470) от 20.05.2023
 
 VA - Uplifting Only Top 15: May 2023 (Extended Mixes) (2023) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -600,151 +745,6 @@ VA - 15 Years Of Enhanced Music, Mixed by Tritonal (2023) [MP3|320 Kbps] <Trance
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A7CD9067F824CF724CB4BB184618B1F421CB562
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648937   (230693) от 25.07.2023
-
-VA - Keep It Trance Vol. 14 (2023) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_230693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alphed Le Cornett & Dropper Vampire - Closer To Heaven (Extended Mix) [5:45]
-02. Intra De Aeris - Breath Of The Universe (Extended Mix) [7:38]
-03. Heaven & Alone - Immersion (Extended Mix) [6:01]
-04. Daniel Kandi - Balance (Original Mix) [4:38](   Читать дальше...   )Жанр: TranceПродолжительность: 02:28:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:681E1921A757229C460DBCECB833ECC984350933
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583314   (230099) от 14.10.2022
-
-VA - Black Hole Trance Music 10-22 (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230099.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. JES - All Or Nothing (Extended Mix)
-02. Dennis Sheperd & Scott Cameron & RELEJI - This One (Extended Mix)
-03. Somna & Julie Thompson - Pretty Lies (Extended Mix)
-04. Andy Moor - Resurrection (GXD Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A16AA5B37296EBD4F818A9FC5B2A1DC78A580A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268158   (230057) от 09.12.2018
-
-Science Deal - Past To Present 2003 - 2018 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Science Deal - Angelica (Original Mix)
-02. Science Deal & Angelica S - Nocturne (Original Mix)
-03. Science Deal - Wish You Were Here (Treasured Beyond Doubt Mix)
-04. Science Deal - Unspoken (Original Mix Remastered)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:58:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A0849AE7D65049494C785FDAB99F7E75AD7F61B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583313   (230044) от 14.10.2022
-
-VA - A State Of Trance Top 20 - Vol.3 - (Selected by Armin van Buuren) - (Extended Versions) (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_230044.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Armin van Buuren & Diane Warren feat. My Marianne - Live On Love (Extended Mix)
-02. Above & Beyond feat. Marty Longstaff - Chains (Extended Mix)
-03. Gareth Emery feat. Annabel - Breathe (Original Mix)
-04. Paul van Dyk & Rafael Osmo - Two Rivers (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E7CCBF1D5ADFE74D9F32C7B7A2334DE97B34283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1268146   (229879) от 09.12.2018
-
-VA - Black Hole Presents: Best of Vocal Trance 2018 Vol.2 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_229879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Myon & Late Night Alumni - Hearts & Silence (Myon Club Mix)
-02. Markus Schulz ft. Nikki Flores - We Are the Light (Original Mix)
-03. Richard Durand & Christina Novelli - The Air I Breathe (Original Mix)
-04. ReOrder - All Comes Back to You (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:32:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E28C226CB5E19F074A2EBB16D93C65A4B074166
 ```
 
 https://mybot314.ru/tekegram_catalog/

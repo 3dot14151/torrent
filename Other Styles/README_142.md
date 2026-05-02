@@ -1,3 +1,203 @@
+###  Публикация: 1189394   (271274) от 05.12.2017
+
+Cesair - Omphalos (2017) [FLAC|Lossless|tracks] <Folk, Celtic>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271274.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erda 05:08
+02. The Ruin 05:24
+03. Runatal 05:40
+04. Boudicca 04:54(   Читать дальше...   )Жанр: Folk, CelticПродолжительность: 00:55:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF677BD76ED160C61B9F3315FFB63A8D0E253FCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189337   (271062) от 05.12.2017
+
+Emmanuele Landini - Zodiac: The Collection (2017) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271062.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acquarius
+02. Aries
+03. Cancer
+04. Capricorn(   Читать дальше...   )Жанр: New AgeПродолжительность: 03:08:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CCE051CE6BDD57F633531A7997A2CCAADF34059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1266378   (270963) от 01.12.2018
+
+Blonker - The Sound Of Blonker (1995) 3CD-Box [MP3|320 Kbps] <Instrumental Pop>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270963.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дитер Гайке (нем. Dieter Geike, 25 декабря 1946 года) — немецкий композитор и музыкант, мультиинструменталист, известный как «Blonker». Играл на клавишных, бас-гитаре, гитаре, мандолине, перкуссии и драм-машине. В его музыке можно услышать переплетения разных стилей и жанров: джаз, рок, классика и нью-эйдж.01. Indigo (4:27)
+02. The Rose (3:52)
+03. When A Man Loves A Woman (2:45)
+04. Inside (3:21)(   Читать дальше...   )Жанр: Instrumental PopПродолжительность: 03:26:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D555910EB0A744D121637AFE436A9D6C1E3E7CF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 499255   (270685) от 01.12.2018
+
+Геннадий Заволокин - Играй, Гармонь! - 12 альбомов (1994 - 2002) [MP3|224 кб/с]<Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270685.jpg" />
+</div>
+
+
+###  Подробнее
+
+В начале 90-х годов, американский миллионер Джим Роджерс, случайно став свидетелем съёмок передачи "Играй,гармонь!" в Находке, был потрясён этим инструментом и назвал Заволокина "русским Элвисом Пресли". Впоследствии он приезжал к нему и на дачу в Новосибирск, а затем пригласил Заволокина в Америку на фестиваль кантри-музыки в штат Алабама.Жанр: FolkПродолжительность: 13:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8263A2D7C966129913B3647B35926F84D07B0FDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338039   (270637) от 14.11.2019
+
+Brian Tyler - Charlie's Angels / Ангелы Чарли (Original Motion Picture Score) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Tyler - Charlie's Angels Theme (02:19)
+02. Brian Tyler - Angel's Wings (02:09)
+03. Brian Tyler - Identity Crisis (03:19)
+04. Brian Tyler - Charlie's in 7 (02:18)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:071B60BCD3EDF99DDBBD84E6E2DAFD8EB1121697
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338176   (270621) от 14.11.2019
+
+Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Complete Score) (2019) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270621.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harald Kloser, Thomas Wander, Thomas Schobel - Prologue for Logos (00:48)
+02. Harald Kloser & Thomas Wander - Ridiculous Traditions (01:25)
+03. Harald Kloser, Thomas Wander, Thomas Schobel - Nobody Wants A War (02:30)
+04. Harald Kloser, Thomas Wander, Thomas Schobel - Arizona Attack (01:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:24:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C5436A65A3E30E8C3D828807222996E0BF1639D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1338174   (270600) от 14.11.2019
+
+Thomas Wander, Harald Kloser - Midway / Мидуэй (Original Motion Picture Soundtrack) (2019) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thomas Wander, Harald Kloser - Nobody Wants A War (01:45)
+02. Thomas Wander, Harald Kloser - Midway Main Theme (05:18)
+03. Thomas Wander, Harald Kloser - See You In China (03:34)
+04. Thomas Wander, Harald Kloser - Morgue (02:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370CC4F6450DB22CD8AC4AD1F494475D8CDE2634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338042   (270549) от 14.11.2019
 
 Brian Tyler, VA - Charlie's Angels / Ангелы Чарли (Original Score + Original Soundtrack) (2019) [MP3|320 кб/с] <Soundtrack, Score>
@@ -542,209 +742,6 @@ Serj Tankian - Furious / Легенда о Коловрате (2017) [MP3|320 Kb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:20F52E08B8D55D5887D6E79C34A982664C7724DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190497   (267572) от 09.12.2017
-
-VA - Latin Hits 2018 - 60 Super Exitos Latinos - Club Edition (2017) [MP3|320 Kbps] <Reggaeton, Salsa, Bachata>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chiquito Team Band - Abreme Los Caminos 3:21
-02. Raulin Rodriguez - Corazon Con Candado 4:23
-03. Osmani Garcia "La Voz", Dayami La Musa - Bumper 3:16
-04. El Chacal - Las Balas 3:50(   Читать дальше...   )Жанр: Reggaeton, Salsa, BachataПродолжительность: 03:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:277E56BBE42033FC921C698377A92040F68E68AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219410   (267474) от 05.12.2018
-
-Leonhardt North - The Spirit Of Pandora (2010) [MP3|256 kbps] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pandora
-02. Dreaming Under Branches
-03. Na Vi
-04. Forest Dance(   Читать дальше...   )Жанр: New age, AmbientПродолжительность: 01:04:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CCB555B0F19330C789E7BCBD58DBAA78281636A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 80962   (267387) от 05.12.2018
-
-Kartsy Hatakka & Kimmo Kajasto - Max Payne 2: The Fall Of Max Payne (Original Soundtrack) (2003) [MP3|186 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Payne Theme (3:59)
-02. Max's Duty Corrupted / Winterson (3:15)
-03. Max's Passion / Mona (3:38)
-04. Max's Choice / Duty vs. Passion (3:42)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 00:46:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F6B104ABBD96124AA08870AA2E5FD9D63C703B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 299337   (267383) от 05.12.2018
-
-Gregorian - Best Of 1990-2010 (2011) [FLAC (Image+.CUE), lossless]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. So Sad
-02. Nothing Else Matters
-03. Moment Of Peace
-04. Voyage Voyage(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:19:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4EAC844C1BDF61496FB5426A2B382104CD888BB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 182179   (267334) от 05.12.2018
-
-Магический Дудук - Инструментальные хиты Востока (2004) [FLAC|Lossless]<Инструментальная>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267334.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sev Mout Amber - (05:34)
-   2. Eshkhemet - (04:29)
-   3. Caravan, Kni Im Balig - (04:43)
-   4. Hovi Ganche - (06:10)(   Читать дальше...   )Жанр: ИнструментальнаяПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA446ADE69F864E36E3B266FD80EB1B55250D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1339196   (267007) от 18.11.2019
-
-Christophe Beck, VA - Frozen 2 / Холодное сердце 2 (Original Motion Picture Soundtrack) (2019) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267007.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christophe Beck - Introduction (01:00)
-02. Christophe Beck - The Northuldra (02:36)
-03. Christophe Beck - Sisters (01:06)
-04. Christophe Beck - Exodus (01:21)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:09:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94A2371348A7EC9921E4B6B100A89896FBF54EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189449   (266983) от 10.12.2017
-
-Kronos Quartet & Trio Da Kali - Ladilikan (2017) [FLAC|Lossless|tracks + .cue] <Mande Music, Chamber Music>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_266983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tita (06:54)
-02. Kanimba (04:39)
-03. Eh Ya Ye (04:51)
-04. Garaba Mama (03:02)(   Читать дальше...   )Жанр: Mande Music, Chamber MusicПродолжительность: 00:46:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:475C6494CC704769578CD300E060B3EC9F7AD2C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1491081   (913746) от 23.08.2021
+
+Until the Sun - Drowning in Blue (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913746.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drowning in Blue (3:39)
+02. Shadow of the Valley (3:31)
+03. New Delilah (4:59)
+04. 1,000 Miles Away (5:18)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E511A861A8BECFEFDC593C06685942DF5D01C85D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491075   (913736) от 23.08.2021
+
+Tom Craig - Good Man Gone Bad (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Working Too Hard (2:59)
+02. What a Man's Gotta Do (2:57)
+03. You Made a Good Man Go Bad (2:44)
+04. It's All My Fault (4:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4578D3B63F5593CF040FAC78239E44D8D3B9C898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1491063   (913730) от 23.08.2021
+
+Superdownhome - No Balls No Blues Chips (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Sweep Away (3:15)
+02. Homework (3:21)
+03. Stop Breaking Down Blues (Feat. Popa Chubby) (3:11)
+04. Booze Is My Self-Control Device (3:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77868F8DB3311BC4489E96255D7383D1B1033E8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490883   (913725) от 23.08.2021
+
+VA - Grooveyard Records The Sound Of Guitar Rock Best Of Volume 5 (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LANCE LOPEZ: 'Love / Hate Relationship' (5:48)
+02. VINCE HAWKINS & COMPANY SLAVE: 'Room Full Of Mirrors' (3:25)
+03. BRETT ELLIS: 'Twice Removed From Yesterday' (4:51)
+04. VOODOO ROOM: 'In The Net' (4:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:18:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:535048A3C7C763D41962E5D18342B9701D96BE85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1491079   (913598) от 23.08.2021
 
 Tom Feldmann and Noah Levy - Brothers in the Mud (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Ben Granfelt - Another Day (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, O
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA85BDB6434A4D809487D435C92D2BDDA6981095
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 250306   (906595) от 07.02.2011
-
-Gary Moore - Greatest Hits (2010) 2CD [APE|Lossless]<Rock, Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906595.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Walking By Myself (2:56)
-02. Cold Day In Hell (4:23)
-03. Still Got The Blues (6:09)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:39:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368806   (905362) от 22.03.2020
-
-Howlin' Wolf - The London Howlin' Wolf Sessions (Deluxe Edition) 2CD (1971) [FLAC|Lossless|tracks + .cue] <Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' Daddy
-02. I Ain't Superstitious
-03. Sittin' On Top Of The World
-04. Worried About My Baby(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 01:49:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CB1FB2D5CC9A12A103C514AE8F5C93820300A5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099485   (905318) от 01.02.2017
-
-Andy Taylor Group - Loose Cannon (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Cloud 03:38
-02. Plain to See 04:14
-03. Southbound 03:08
-04. Loose Cannon 04:03(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:22:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DEC7144C4A7C21F2AE444519D9EB1102A63AAF41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099389   (905139) от 01.02.2017
-
-Curtis Matheson - A Particular Blue (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lookout! 03:49
-02. Hideaway 03:32
-03. Tell Me (feat. Matt Minglewood) 04:07
-04. Another Day, Another Time 02:59(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF438E87905FFE391D13B0CB70C8275F08FA542E
 ```
 
 https://mybot314.ru/tekegram_catalog/

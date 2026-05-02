@@ -1,3 +1,247 @@
+###  Публикация: 593649   (135000) от 24.12.2012
+
+Gilrs Wallpaper Collection (22.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_135000.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:343F7066B6250E74BBCA9AF15C2AA954F3A1F375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592904   (134998) от 24.12.2012
+
+Infested - 1000 Doors (2009) [MP3|320 кб/с]<Technical Brutal Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134998.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1000 Doors. [01:25]
+ 02. Metaphysical Grotesqueries. [02:53]
+ 03. Spineless. [05:04]
+ 04. Knives. [04:04]
+ 05. Voices. [03:39]
+ 06. Withdrawal From Reality. [03:59]
+ 07. Collapse. [03:19]
+ 08. Second Smile. [02:53]
+ 09. Trancendental Habitat. [03:33]
+ 10. Avalokiteshvara. [01:37](   Читать дальше...   )Жанр: Technical Brutal DeathПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:581975C71C082B2D80181C5C1EACCDC46A1859FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679854   (134995) от 27.11.2023
+
+Find Any File (FAF) 2.4.2 beta1 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Find Any File - утилита для быстрого поиска любого файла на вашем Mac
+Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.11.2023Разработчик: © 2005-2021 Thomas TempelmannПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:824D4D2632AFBA06293019B125154B97FB5629B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593648   (134994) от 24.12.2012
+
+Sexy Girls Wallpapers (22.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B5C79F92F0F9F63BAC2FDCB53DF101A02149074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680011   (134993) от 27.11.2023
+
+PhotoRoom 4.7.5 (1178) Mod by Maximoff [Ru/Multi]
+
+>>Архив торрентов
+>>Архив КПК и Мобильных устройств
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134993.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotoRoom - приложение, что будет одинаково полезным и для работы и для творчества. Проект представляет собой процесс автоматического удаления фона у выбранного главным объекта. А так же последующего добавления замены и дополнительных предметов. Спектр применения весьма широк, а высокая скорость достижения результатов порадует всех кто не хочет связываться с профессиональными (   Читать дальше...   )Тип издания: ProРелиз состоялся: 20.11.2023Разработчик: PhotoRoom Background Editor AppПоддерживаемая ОС: Android 9.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18600532D166625288868AB3C98CFFDA4E20FDD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593661   (134990) от 24.12.2012
+
+Gilrs Wallpaper Collection (23.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134990.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9382088CB484392C2FC0318F21DF984E138A9D10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594008   (134984) от 24.12.2012
+
+Gilrs Wallpaper Collection (24.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134984.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х3000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0A27D8B0F1ACCABCA65BB85B3EDA7051A1997A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594005   (134982) от 24.12.2012
+
+Sexy Girls Pack Wallpapers (24.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1E53B64BB980F0EF8E70BF16BECF448BBD5099
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593660   (134979) от 24.12.2012
+
+Sexy Girls Wallpapers (23.12.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134979.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5100x2700
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CE5A4B86708B8CE36D06DDE6859687BA4BA31C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 593651   (134977) от 24.12.2012
 
 HQ Wallpapers Perfect Women (22.12.12) [Wallpapers 16+]
@@ -434,249 +678,6 @@ Computer Desktop Wallpapers Collection (22.12.12) [Wallpapers]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F5DC00FD9E0ACFD30E8790C61A7CE35D8AADE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593662   (134922) от 24.12.2012
-
-Wallpapers Sexy Girls (23.12.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134922.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600х1200 - 4720х3500
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB4530BB8852938FF1BE3D58ADDD8AA37438D559
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593640   (134920) от 24.12.2012
-
-Animal Wallpapers (22.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134920.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20B6A4759971751842A1635CB5DCE7B34F5407D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593644   (134918) от 24.12.2012
-
-Rodents wallpaper (22.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134918.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DF92542D465BEF08B0264797F7D0A4704FFA467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594003   (134914) от 24.12.2012
-
-France Wallpapers (24.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFCA4093339ED66A96EEC325F67F8E8C6C9896C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593656   (134908) от 24.12.2012
-
-Nature Wallpapers (23.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE45F49C9F8F9C97EE6D4B9D4856106630AC5FDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593645   (134906) от 24.12.2012
-
-Birds Wallpapers (22.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134906.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:168A17E1819BE79C6DAA41D1E1BB09E13AF3799E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1679942   (134903) от 27.11.2023
-
-Fort Firewall 3.10.1 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5847EA0FD1D5CCB367133F6D42C7681D5BB10C53
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 593946   (134902) от 24.12.2012
-
-Arty - Together We Are 027 (22.12.2012) [MP3|320 кб/с]<Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planet Perfecto - Bullet In The Gun (Refracture Remix)
-02. Denzal Park - Scorpio (Original Mix)
-03. KhoMha - Genesis (Original Mix)
-04. Those Usual Suspects & Nordean - Burn Forever (Original Mix)
-05. Discolure - Latch
-06. Martin Volt & Quentin State - Collision (Original Mix)
-07. Madeon - The City (The M Machine Remix)
-08. Pink Is Punk & Benny Benassi - Perfect Storm (Gigi Barocco Remix)
-09. Alesso - Clash (Original Mix)
-10. Alex M.O.R.P.H. - Prime Mover (Original Mix)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2D412A1C2E42A373F7FAA8341F13FB9FCA0CA16
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 594000   (134900) от 24.12.2012
-
-Desktop Wallpapers (24.12.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134900.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293F3BE068BE9DE6F5C4C0F3D31DE14C16BE5881
 ```
 
 https://mybot314.ru/tekegram_catalog/

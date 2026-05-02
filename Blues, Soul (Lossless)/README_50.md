@@ -1,3 +1,119 @@
+###  Публикация: 1138882   (662416) от 31.05.2017
+
+Howlin' Wolf - Who Will Be Next? (1992) Charly Blues Masterworks, Vol.30 [WavPack|Lossless|image + .cue] <Blues, Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Who Will Be Next? (2:34)
+02. I Have A Little Girl (2:36)
+03. Come To Me Baby (2:25)
+04. Don't Mess With Me Baby (2:38)(   Читать дальше...   )Жанр: Blues, Chicago BluesПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C144443BCF2EB457497EA7CCFBA0F02E2677689
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538509   (662406) от 21.03.2022
+
+Peter Veteska & Blues Train - So Far so Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Done with Bad Luck (4:28)
+02. I've Got the Blues This Morning (4:25)
+03. I Miss You So (5:16)
+04. My One and Only Muse (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E10E09EA13D2824331522AFE764D33F4C916D2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538506   (662405) от 21.03.2022
+
+Open Investigation - Open Investigation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raidho (4:16)
+02. Poison Man (3:16)
+03. Left is the Blues (4:28)
+04. Scoundrel (3:35)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5FCEE181443F3943B4FB3E558BC4B267575E13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1538516   (662401) от 21.03.2022
+
+Rune Robert Friis - Built for Comfort, Vol. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_662401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Comin' Down (3:39)
+02. Summertime Ghost (3:03)
+03. Cold Water (3:27)
+04. Truth Don't Rhyme (5:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0E88BA4B808FA171CAA366418EA52D07C67D843
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1538500   (662399) от 21.03.2022
 
 Nik Clovsky - Wooden Music - Wooden Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Eric Assmar - Home (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:85B0893FFB6455B550CDE9AB5D8E813B1ACA075D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291788   (652652) от 26.03.2019
-
-Mighty Mike Schermer - Bad Tattoo (2019) [FLAC|Lossless|tracks + .cue] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652652.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She Won't Be Coming Back (04:25)
-02. Lover's Hall of Fame (03:39)
-03. How Much Longer (03:38)
-04. I Can't Let It Go (04:41)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:50:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578798EFC68D103CE897FB531C13B90A40C3FC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1141193   (652447) от 09.06.2017
-
-Chuck Berry - Chuck (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wonderful Woman (5:21)
-02. Big Boys (3:06)
-03. You Go To My Head (3:21)
-04. 3/4 Time (Enchiladas) (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74898511CED58EA8944C5E9492DE89FA8A14D009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227037   (652193) от 23.05.2018
-
-Robin Trower - Let There Be A Blues (2018) [FLAC|Lossless|tracks + .cue] <Blues rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - The Thrill Is Gone
-02 - Once The Spell Is Broken
-03 - Something's About To Change
-04 - Dreams That Shone Like Diamonds(   Читать дальше...   )Жанр: Blues rockПродолжительность: 01:09:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F72EB8ED0007BAFAFDA45273F7622E000EB4A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 904755   (651572) от 05.06.2015
-
-The Manhattans - Black Tie (1981) Remastered /2014, Funky Town Grooves/ [FLAC|tracks+.cue]<Funk, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One Moment Away (4:31)
-02. You Stand Out (4:13)
-03. Let Your Love Come Down (4:45)
-04. Honey, Honey (3:48)(   Читать дальше...   )Жанр: Funk, SoulПродолжительность: 01:04:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972465059BCCF9FB178845449136F74D4B6C5D5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

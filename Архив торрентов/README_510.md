@@ -1,3 +1,60 @@
+###  Публикация: 982865   (943936) от 06.02.2016
+
+DJ Nike Twist - TranceWave 133 @ GTI Radio (21.01.2016) [MP3|320 кб/с] <Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943936.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Pulsarix & Spins - The Long Way Home (Hoyaa Remix) (Verse)
+2. Ula - Way Down The Road (Original Mix) (Delaforce)
+3. Hiroyuki ODA pres HSP feat Hatsune Miku - Acrossgust (2015 Re-Edit) (KarenT)
+4. Miroslav Vrlik - So Slowly (Original Mix) (Alter Ego)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32CC792EEA31CFC4AFA64A7C95364E29B89B6A87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363245   (943911) от 27.02.2020
+
+Textual 7 v7.1.3 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943911.jpg" />
+</div>
+
+
+###  Подробнее
+
+Textual IRC Client - простой и функциональный IRC-клиент, написанный специально для Mac OS X с поддержкой сценариев, будет идеальным решением как для начинающих, так и опытных пользователей. Textual включает светлую и темную тему пользовательского интерфейса для того, чтобы соответствовать всем вкусам.
+
+IRC (англ. Internet Relay Chat) — протокол прикладного уровня (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 25.02.2020Разработчик: Codeux Software, LLCПоддерживаемая ОС: macOS 10.9.5+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FEE1AAC45C6EB10FF267B5B42E3DF594465F2B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363241   (943910) от 27.02.2020
 
 RightFont 5 v5.8.3 [En]
@@ -646,58 +703,6 @@ Keyboard Maestro - мультифункциональная утилита, ко
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:93A10CE5489E5275B1EF774070B460B39959D692
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363375   (943762) от 27.02.2020
-
-YTD Video Downloader PRO 5.9.15.7 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943762.jpg" />
-</div>
-
-
-###  Подробнее
-
-YTD Video Downloader позволяет загрузить нужный вам файл всего за один клик. Нужно просто добавить адрес с вашим роликом, который вы хотите загрузить, нажать кнопку скачать и остальное программа сделает самостоятельно. Из отличительных особенностей программы можно отметить следующее. Возможность конвертировать скачанные файлы прямо в программе. Например, вы можете (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6374C9F2DD7264AAEB30794C75B048953EC43716
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363377   (943760) от 27.02.2020
-
-Allavsoft Video Downloader Converter 3.22.3.7361 RePack (& Portable) by elchupacabra [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Allavsoft Video Downloader Converter - профессиональный инструмент для скачивания фильмов, музыкальных клипов, плейлистов, лекций, видео с видеохостингов, таких как YouTube, Facebook, Dailymotion и других более чем 100 сайтов. Помимо скачивания видео в оригинальном формате, Allavsoft может скачивать и конвертировать скачанное видео в популярные видеоформаты: AVI, (   Читать дальше...   )Язык интерфейса: Английский, Немецкий, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F040366FC6BC7B3103F776D6970128396AE4E6CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

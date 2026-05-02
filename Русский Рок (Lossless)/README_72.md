@@ -1,3 +1,32 @@
+###  Публикация: 446374   (73977) от 04.02.2012
+
+Чичерина - Большая российская музыкальная энциклопедия (2001) [FLAC|Lossless]<Rock / PopRock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_73977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Жара
+02 - Майские дожди
+03 - Кукла
+04 - 40000 км.(   Читать дальше...   )Жанр: Rock / PopRockПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770550   (71970) от 02.01.2025
 
 Aillion - Война Миров (2015) [FLAC|Lossless|tracks] <Melodic Heavy Metal>
@@ -716,35 +745,6 @@ Shadow Host - Chaos Unleashed (2025) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:669DED58A86D9C4509DCE051F014589E44AB5F07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1801761   (66164) от 12.06.2025
-
-Театр Тьмы - Старый Кукловод (2025) [FLAC|Lossless|WEB-DL|tracks] <Horror Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Пьяный убийца [00:03:16]
-02. Незваные гости [00:04:35]
-03. На краю [00:05:16]
-04. Старый Кукловод [00:03:31](   Читать дальше...   )Жанр: Horror PunkПродолжительность: 00:28:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D087903D2B879CAC56AA53BC3F7630707806E6A
 ```
 
 https://mybot314.ru/tekegram_catalog/

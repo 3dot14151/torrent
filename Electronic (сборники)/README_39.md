@@ -1,3 +1,61 @@
+###  Публикация: 1106917   (869840) от 21.02.2017
+
+VA - Deep House Collection Vol.109 (2017) [MP3|217-320 Kbps] <Deep House, Club House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869840.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 181 Degree - Ghost (Original Mix) 8:36
+002. A.D.S.R. feat. Moji - Operate (Original Mix) 5:24
+003. Aaron McClelland - Let's Get Physical (Touch & Go Laidback Dub) 5:33
+004. Ace Of Base - Cruel Summer  (Otter Berry Bootleg) 3:28(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C73C8CBDC9C1F74B539B3798B7414F3043D77589
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496862   (869800) от 19.09.2021
+
+VA - Beatport Tech House: Sound Pack #350 (2021) [MP3|320 Kbps] <Club, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869800.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Losless - Second Life
+002. Angelo Ferreri - Drunk To Get Funk
+003. Electrypnose - Crooked House
+004. Andreas - Dune(   Читать дальше...   )Жанр: Club, Tech HouseПродолжительность: 11:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4E6485C7FF2722C6E261433AAE52938AD0C9FED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496564   (869650) от 19.09.2021
 
 VA - Deep House, Baby (2021) [MP3|320 Kbps] <Deep House>
@@ -687,64 +745,6 @@ VA - Clubbing Electro House (Vol.05) (2021) [MP3|320 Kbps] <Club, Dance, House, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7721623A87F8938BA3B51E280D36970D279693AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497897   (859651) от 25.09.2021
-
-VA - EDM Party: Samsara Heat (Vol.05) (2021) [MP3|320 Kbps] <Club, Dance, House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859651.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Akishou And Jelz - Katana
-002. Marija - All The Girls
-003. Sorgalim - Moonlight
-004. Jack Rush - Butterfly(   Читать дальше...   )Жанр: Club, Dance, House, Tech HouseПродолжительность: 08:18:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A3DE157BD809A67AA0CC512A3D95913AAD833D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1497915   (859645) от 25.09.2021
-
-VA - Synthwave Dream Collection (2021) [MP3|320 Kbps] <Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859645.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Raiders Of The Lost Arp - Sinetheme
-002. DJ T. - Harem Disco
-003. Kukuzenko - Sweet As Candy
-004. Maxnickel - 2er(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 07:30:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D1C9F513571C91A0EE7CD3D1127A389BB012086
 ```
 
 https://mybot314.ru/tekegram_catalog/

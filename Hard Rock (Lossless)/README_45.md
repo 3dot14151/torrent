@@ -1,3 +1,119 @@
+###  Публикация: 1052904   (526699) от 16.09.2016
+
+Dust - Soulburst (2016) [FLAC|Lossless|tracks + .cue] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sun Rising 04:31
+02. King Is Coming 04:23
+03. Come On! 03:34
+04. Waiting For You 07:09(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:41:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA57C3A94B5AC479EBF2A9970ECE8A07EF81D7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1052896   (526696) от 16.09.2016
+
+The Apple Pie Motherhood Band - Apple Pie (2004) [FLAC|Lossless|image + .cue] <Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_526696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orangutang 07:32
+02. I Just Want To Make Love To You 04:08
+03. Brown Eyed Handsome Man 03:21
+04. Grandmother Hooker 03:06(   Читать дальше...   )Жанр: Rock, Psychedelic RockПродолжительность: 00:34:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3824980AE02FF5F4CF5670866E5A5CAD70DCE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157168   (525532) от 11.08.2017
+
+Inspector - Russian Prayer (1993) [WavPack|Lossless|image + .cue] <Art Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525532.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fever Love (3:41)
+02. London Town (4:17)
+03. In A Heat Of The Night (3:42)
+04. Rocker Rider (3:22)(   Читать дальше...   )Жанр: Art Rock, Hard RockПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8952DFE731953638BC5CFE22AEF2455CA4D6C04B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1559250   (524409) от 25.06.2022
+
+Storm Resistant - Storm Resistant (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524409.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel It 05:25
+02. Identity 03:51
+03. Time 04:53
+04. Full Throttle 03:11(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6996AEBA848B757547A39BD8B8435E8E789840E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1053769   (524348) от 18.09.2016
 
 Aina - Living In A Boy's World (1988) 2005 Reissue [FLAC|Lossless|image + .cue] <Melodic Rock, AOR, Hard Rock>
@@ -644,119 +760,6 @@ Bon Jovi - Burning Bridges (2015) [FLAC|image+.cue]<Melodic Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4595C003099ECB051196A7A3005C6950D4EB4C01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 930582   (513871) от 24.08.2015
-
-VA - Stairways To The Songbook Of Led Zeppelin - Homage To The Legend (2015) [FLAC|image + .cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. STAIRWAY TO HEAVEN [8:22]
- Dweezil Zappa - Lead Guitar
- Michael White - Vocals
- Billy Sherwood - Bass, Guitar(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF5FA00BF99124381EFCD2682CF6924D949A6FE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349868   (512363) от 07.07.2022
-
-Argent - 8 albums, 1 Box-set, 15CD (1969-2022) [FLAC|Lossless|image + .cue] <Classic Rock, Prog Rock, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512363.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Argent" - британская  рок-группа, исполнявшая прогрессивный рок с примесью классического рока и психоделии, пик творчества которой пришелся на период с 1969-1976 годы. Группу основал бывший участник группы «The Zombies» вокалист и виртуоз-клавишник Род Арджент (Rod Argent). После того, как "зомби" расформировались, Род образовал собственный коллектив, (   Читать дальше...   )--------------------------
-
-01. Hold Your Head Up (6:18)
-02. God Gave Rock And Roll To You (6:45)(   Читать дальше...   )Жанр: Classic Rock, Prog Rock, Psychedelic Rock, Rock |Продолжительность: 11:27:59 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B50F0AFB84D23BAAC8F6B6D7F2D734897559EEC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562291   (511541) от 08.07.2022
-
-Serpents In Paradise - Temptation (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511541.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Bites
-02. Tomorrow Never Comes
-03. Where's The Rock 'n' Roll Gone?
-04. Moonshine Blues(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E25BBB4BE2F69ED9F4AEF375BEDAD072D4EE9452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 538832   (508218) от 24.08.2012
-
-Led Zeppelin - Studio Discography (1969-1982) 10 Remastered CD /2012, KronStudioLab Int'l/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hard rockПродолжительность: 06:54:36
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,264 @@
+###  Публикация: 1386451   (794401) от 29.05.2020
+
+VA - 90s Electronic (2020) [MP3|320 Kbps] <Pop, Dance, Other>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794401.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air - Kelly Watch The Stars
+02. Massive Attack - Unfinished Sympathy
+03. Depeche Mode - Enjoy The Silence
+04. Underworld - Born Slippy (Nuxx)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 04:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61995A473B5E9114820691357036614E65773144
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122605   (794367) от 05.04.2017
+
+VA - Автозвук. Убийца Колонок (2017) [MP3|320 Kbps] <Bass House, Deep House, G-House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794367.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3D Stas - Anger (Original Mix) 4:26
+002. 4 Strings - Solid Session (Original Mix) 5:05
+003. 7even - Psychedelic Gang (Original Mix) 6:36
+004. Above & Beyond, Zoe Johnston - No One On Earth (Gabriel & Dresden Remix) 7:45(   Читать дальше...   )Жанр: Bass House, Deep House, G-HouseПродолжительность: 19:09:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9DD0B8F01E28DB8D880C12EB63583EA79DC6F02
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122090   (794253) от 05.04.2017
+
+VA - Топ 100 Зайцев.нет Март (2017) [MP3|192-320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794253.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Quest Pistols Feat. Open Kids - Круче Всех  3:00
+002.  Ани Лорак - Удержи Моё Сердце  4:49
+003.  Иван Дорн - Ты всегда в плюсе  5:38
+004.  Юрий Шатунов - Забудь  4:16(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BFA607C4DEC09BC3234AA3D5E5F841758D0C48E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274254   (794130) от 06.01.2019
+
+VA - Billboard Hot 100 Singles Chart 05.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794130.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ariana Grande - thank u, next
+002. Halsey - Without Me
+003. Mariah Carey - All I Want for Christmas Is You
+004. Travis Scott - SICKO MODE(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:23:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25507347C1594BD337C16F848B3E780BC925F111
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274263   (794123) от 06.01.2019
+
+VA - Громкие новинки месяца Vol.20 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faruk Sabanci & MARUV - For You 2:39
+02. Richard Grey & Lissat - Jump 5:02
+03. Paffendorf feat. Sydney-7 - It's Going Down (Edit) 2:28
+04. Jens - Any Other Way 3:10(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:49:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BF0AD71D2ADAB6B0220C694187574393EE4D66E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1274335   (794051) от 06.01.2019
+
+VA - Сегодня на радио хиты FM Vol.2 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794051.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ellie Goulding feat. Diplo & Swae Lee - Close To Me
+002. A Boogie Wit Da Hoodie, 6IX9INE - Swervin
+003. 30.02 - Рассвет тонул
+004. Johnyboy - Zero(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:30:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47B791292BA1E8D1FC21714FC6D1E408CBA2B24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1508534   (793850) от 13.11.2021
+
+VA - Instrumental Collection. Familiar Melodias. (1970-2020) [MP3|320 Kbps] <Instrumental>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793850.jpg" />
+</div>
+
+
+###  Подробнее
+
+001 R.Sayler - Yesterday (2:55) 2014
+002 Anthony Ventura - Hotel California (4:52) 1979
+003 Edward Simoni - The House Of The Rising Sun (3:24) 2009
+004 Ocarina Dream - Jambo (4:07) 1995(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 23:48:35 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9366AEE539E25C8721CBC52B0B8244626E34C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012404   (793825) от 01.05.2016
+
+VA - Ibiza 2016 Summer Clubbing - 50 Deep House Summer Tunes (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cycle Of Life - Set the Tone
+02. French Riviera - Round and Round
+03. Digital House - Time Is Over
+04. Lowhouse - Steam Holes(   Читать дальше...   )Жанр: HouseПродолжительность: 04:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E23293924D66935779FA2FB209A1A4B0AD5A6DA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012321   (793573) от 01.05.2016
+
+VA - Running Hits (Workout, Fitness, Jogging, Spinning, Gym & Cardio) (2016) [MP3|320 кб/с] <House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793573.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pete Sheppibone & SashMan - hello happiness (extended mix)
+02. DJ Oskar - She Knows Me (Original Mix)
+03. Ferry feat. Ashley Jana - Don't Ever Quit On Me Babe (Original Mix)
+04. Noisy Bears - Hold You (Feat SevenEver) (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 07:22:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45DDCF9966B7D927A8434D8F82658F1342C2BCB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1386687   (793564) от 30.05.2020
 
 VA - The Official UK Top 40 Singles Chart 29.05.2020 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -488,264 +749,6 @@ VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0006 (
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98814F3FA04154FE4B735B1D4321EE9E549CCB30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201609   (792227) от 25.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0007 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. After Midnight - Disco Light ( 1986 )
-02. Mike Mareen - Lady Ecstasy ( 1988 )
-03. Dyva - Clap Again ( Extended Version 1983 )
-04. Body Heat - Dancing In The Moonlight ( Murder Mix 1986 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:56:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8ECED146C135BE111747F8E0B96DEA18F837AED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201500   (792221) от 25.01.2018
-
-VA - One On One: Auto Dance Mixtape (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792221.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ina Wroldsen - Strongest
-002. Bigflo & Oli - Dommage
-003. David Guetta - Dirty Sexy Money
-004. Flo Rida - Hola (Feat. Maluma)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:28:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C258A3053DE153E6837B641C9DEC530A2871776
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201624   (792220) от 25.01.2018
-
-VA - 10 000 Different Artists Of The Style Italo-Disco From Ovvod7 - CD - 0010 (2018) [MP3|320 Kbps] <Italo disco, HI-NRG, Eurodance, Disco House, Electropop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792220.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gurcan Erdem - Hold My Hand ( 12'' Version )
-02. Valerie Star - Call My Name ( 2014 )
-03. Michael Bedford - Space Boys ( 7'' Version 1987 )
-04. Ryan Paris - Together Again ( 2015 )(   Читать дальше...   )Жанр: Italo disco, HI-NRG, Eurodance, Disco House, ElectropopПродолжительность: 00:59:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51C8CAF72D2AB74703239DCC17EA7B817980C60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201524   (792155) от 25.01.2018
-
-VA - Back To 80's Party Disco (2018) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ryan Paris  -  Together Again (Extended Version)  6:38
-02.  Coo Coo  -  You Can Set Me Free (Instrumental Version)  3:57
-03.  D. White  -  Wonderful Day  6:02
-04.  Shipra  -  Joy (In My Heart)  5:28(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 05:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CD724B6750DF2F19EE226019B8A13631A910F4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274653   (792005) от 08.01.2019
-
-Виктор Павлик - Город Зеленого Цвета (2019) Remix [MP3|320 Kbps] <Club, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Город Зеленого Цвета - Виктор Павлик (Ivan ART Extended Remix)Жанр: Club, DanceПродолжительность: 00:04:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27AAC9247F6B033315417736092568CBBE5C0BE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201687   (791986) от 25.01.2018
-
-VA - Музыка, с которой мы выросли (зарубежная). Выпуск 2 (1969-1993) [MP3|320 Kbps] <Rock, pop, disco>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791986.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Creedence Clearwater Revival - It Came Out Of The Sky (1969) 02:57
-02. Creedence Clearwater Revival - Travelin' Band (1970) 02:11
-03. Led Zeppelin - Bron-Y-Aur Stomp (1970) 04:18
-04. The Sweet - Santa Monica Sunshine (1971) 03:28(   Читать дальше...   )Жанр: Rock, pop, discoПродолжительность: 06:23:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634F21A7B6C0BF3910842B2F3465BA656030A69A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387326   (791825) от 01.06.2020
-
-VA - Music for You vol.3 (2020) [MP3|320 Kbps] <Progressive Rock, Progressive Metal>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791825.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echopraxia - 3s Without 4 (03:51)
- 02. Jason Becker - Air (05:40)
- 03. Arch Echo - Tempest (05:18)
- 04. Dream Theater - Forsaken (05:37)(   Читать дальше...   )Жанр: Progressive Rock, Progressive MetalПродолжительность: 04:08:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B064D85702C52B4ABD789F993D259C739678BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387426   (791817) от 01.06.2020
-
-VA - не Громкие новинки недели 69 (2020) [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791817.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Alina - Больно, Но Весело (3:02)
-2. Anivar - Новый Рассвет (Dmitry Air Remix) (4:03)
-3. BELTY - Море (4:26)
-4. Dante - Пряными Травами (2:53)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4013C231B67C04A6D1C4D319B4871AF434E290DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387467   (791814) от 01.06.2020
-
-VA - Music News vol.13 (2020) [MP3|320 Kbps] <Pop, Hip - Hop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. AlphaLove - Call Me Up (02:47)
- 02. Animal ДжаZ - О Хлебе И Воде (02:44)
- 03. Anivar - Новый Рассвет (04:03)
- 04. Belty - Море (04:26)(   Читать дальше...   )Жанр: Pop, Hip - HopПродолжительность: 04:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA14D410F37ABC6650A8CE7BE932E4D763912D76
 ```
 
 https://mybot314.ru/tekegram_catalog/

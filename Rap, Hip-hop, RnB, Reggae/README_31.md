@@ -1,90 +1,3 @@
-###  Публикация: 1345881   (165760) от 16.12.2019
-
-Onyx & Snowgoons - SnowMads (2019) [FLAC|Lossless|Web-DL|tracks] <Hip-Hop, Hardcore Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop зарубежный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SnowMads Intro (0:41)
-02. Who Da Fuc (2:31)
-03. Robbing Hip Hop ft. Bumpy Knuckles & Nems (4:13)
-04. Monsters Gorillas ft. Knuckles (NBS) (3:42)(   Читать дальше...   )Производство: Goon MusickЖанр: Hip-Hop, Hardcore RapПродолжительность: 00:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:764BC3D82D97AF15BAEBD21B8CA0A04AD359CC1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 219195   (165603) от 16.12.2019
-
-VA - Рэп со знаком качества 6 (2010) [FLAC|Lossless|image + .cue] <Rap>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165603.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dime (Nonamerz) “Одноклассница” (OFFbeat remix)
-02. Карандаш ft. Lenin “Все любят родину”
-03. Ton.G.I., Леш, Baby Tina “В Этих Нотах (Вся Моя Жизнь)”
-04. Черно-Белые (Kappa & DJ Samoa) “Вставай, Москва”(   Читать дальше...   )Жанр: RapПродолжительность: 01:19:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73473454A4B2B84016FD4FC5BEAA88C1F0035FB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1597746   (164988) от 16.12.2022
-
-Horus - Рагнарёк и точка (2022) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164988.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Холоден [00:03:04]
-02 - Номад [00:04:03]
-03 - Адонай [00:03:42]
-04 - Красный урожай [00:02:59](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21189C6D26C43E2D648FE9E44EBB4D2B58CDC7C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597881   (164932) от 16.12.2022
 
 Руставели - МАГМА (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Hip-Hop>
@@ -747,6 +660,99 @@ Bruno Mars - Unorthodox Jukebox (2012) Deluxe Edition [FLAC|Lossless]<Pop, R&B, 
 08. Show Me                     [03:27]
 09. Money Make Her Smile        [03:23]
 10. If I Knew                   [02:13](   Читать дальше...   )Жанр: Pop, R&B, Rock, Soul, ReggaeПродолжительность: 00:52:00
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1679702   (134852) от 27.11.2023
+
+Apashe - Antagonist (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Simphonic Hip-Hop, Dubstep, Trap>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. King (feat. Busta Rhymes) [00:02:47]
+02. Catch Me [00:04:03]
+03. Devil May Cry [00:04:11]
+04. Human [00:04:00](   Читать дальше...   )Жанр: Alternative, Simphonic Hip-Hop, Dubstep, TrapПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93F4CB9AA89146D4A284E0266200889B7584E28C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1680294   (134226) от 29.11.2023
+
+Grebz - MC Coming (2023) [FLAC|Lossless|WEB-DL|tracks] <Rap, Hip Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop зарубежный (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_134226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Клок [00:04:10]
+02. FBI [00:03:45]
+03. Мама говорила [00:02:16]
+04. Парикмахер [00:03:18](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11BF08D26F4B0BD3EA8EDCD049C8240ACA6C08A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594691   (133420) от 26.12.2012
+
+Rita Ora - Ora (2012) [FLAC (tracks+.cue)|Lossless]<R&B, Dance>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>RnB, Reggae (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133420.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Facemelt
+02. Roc The Life
+03. How We Do (Party)
+04. R.I.P. (ft. Tinie Tempah)
+05. Radioactive
+06. Shine Ya Light
+07. Love & War (ft. J. Cole)
+08. Uneasy
+09. Fall in Love (ft. Will.I.Am)
+10. Been Lyin(   Читать дальше...   )Жанр: R&B, DanceПродолжительность: 00:42:32
 
 ## Скачать торент
 ```bash

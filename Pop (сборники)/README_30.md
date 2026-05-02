@@ -1,3 +1,119 @@
+###  Публикация: 1012156   (795415) от 29.04.2016
+
+VA - Новая Русская Дискотека - 2 (2016) [MP3|320 кб/с] <Поп, Диско, Танцевальный>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795415.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Синти Тайм - Жду Тебя
+02. Студия-80 - Я не жалею
+03. M.D.Project & Gurcan Erdem - Зима Достала (M.D.Project Italo Disco mix)
+04. Аркадиас - Художник(   Читать дальше...   )Жанр: Поп, Диско, ТанцевальныйПродолжительность: 05:33:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13B7223E3810C84F45E865D3AF074729097CBE58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1200728   (795383) от 21.01.2018
+
+VA - Итоговый Еврохит TOP-100 от Европа Плюс за 2017 год (2018) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795383.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rag'n'Bone Man - Human (03:19)
+002. Kaleo - Way Down We Go (03:40)
+003. Luis Fonsi feat. Daddy Yankee - Despacito (03:48)
+004. Ed Sheeran - Shape Of You (03:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F9076BB4BE79963A767BE3CE6B8F8063E1657F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386239   (795271) от 28.05.2020
+
+VA - Beatport Hard Dance: Sound Pack #96 (2020) [MP3|320 Kbps] <Hard Dance, Hardcore>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795271.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rob Iyf - Yade
+002. Francesco Zeta - Different Side
+003. Radical Redemption - Born Killers
+004. Vandal!Sm - Drums Of War(   Читать дальше...   )Жанр: Hard Dance, HardcoreПродолжительность: 08:38:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A6C994F706B613F0552AE859E8B9EF48F7667BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386180   (795230) от 28.05.2020
+
+VA - Europop Music Sound: Nonstop FM Radio (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795230.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. All Saints - Never Ever
+002. David Delabrosse - Burn Out
+003. Liza Sherdom - My Style
+004. Countdown Singers - If I Can't Have You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E29DAD479DC97E4CAF8971C2CE602A879BB73506
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1011831   (795212) от 29.04.2016
 
 VA - Дискотека 80-90 годов по-новому Modern Talking ( Зарубежный выпуск - 31 ) (2016) [MP3|320 кб/с] <Pop, Euro-Disco, Dance>
@@ -629,122 +745,6 @@ VA - National Pop Dance Music (Vol.26) (2021) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB26B01FB7CFD7253B5B1945C2D0C368B1A2BD3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275569   (789655) от 12.01.2019
-
-VA - Top 100 Зайцев.Нет Декабрь 2018 (2019) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789655.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Тима Белорусских - Мокрые кроссы
-002. Tiesto - In My Mind
-003. Макс Корж - Малиновый закат
-004. N1NT3ND0 - Ран Вася ран(   Читать дальше...   )Жанр: PopПродолжительность: 06:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFF55F11E60CDD420630543272C09794B0B2163A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275752   (789452) от 13.01.2019
-
-VA - German Top 50 Official Dance Charts 11.01.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789452.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Robin Schulz, Erika Sirola - Speechless (feat. Erika Sirola)
-02. Fatboy Slim - Praise You (Purple Disco Machine Remix)
-03. Chic - Le Freak (Oliver Heldens Remix)
-04. Hugel, Amber Van Day - WTF (feat. Amber Van Day)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:04:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6F40A0F3DBB650E3ED98B2728EB306AB8EB66EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275807   (789334) от 13.01.2019
-
-VA - Ukrainian Hits Vol.5 (Romantic) (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Наталія Могилевська - Вільний Птах (Серед Гір) (3:53)
-02. ТіК & Ірина Білик - Не Цілуй (3:44)
-03. The Hardkiss - Прірва (2:55)
-04. Тіна Кароль - Шукай Мене (3:03)(   Читать дальше...   )Жанр: PopПродолжительность: 02:07:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B533FF8B292271299E430CB75DAF9C482DF57F63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1511126   (789250) от 20.11.2021
-
-VA - Weekend Play List (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789250.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Moltheni - Tutte Quelle Cose
-002. Willow Sage Hart - Cover Me In Sunshine
-003. Danna Paola - Tq Y Ya
-004. Yukika - Pung!(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3FE1A00B23CD0EFFF4BEE8A98A8DD7B17415754
 ```
 
 https://mybot314.ru/tekegram_catalog/

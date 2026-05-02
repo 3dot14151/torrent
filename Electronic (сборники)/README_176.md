@@ -1,3 +1,61 @@
+###  Публикация: 961942   (297107) от 03.12.2015
+
+VA - Sunrise Avenue Vol 5 20 Lounge and Chill-Out Pearls (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_297107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gary Cools - Watching from Above
+02. Jamie Rogers - Look Out
+03. Daniel Oliveira - Exeter
+04. Earl Coppens - Illusions of Dreams(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA654AC5E42124957A6ACCF0883BD1522D7F7326
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1334262   (296820) от 28.10.2019
+
+VA - Miami Hot Trance Party (2019) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_296820.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Kross & Fader - Cardinal Points (Original Mix)
+002. Ilan Bluestone - Mama Africa
+003. Persona (Usa) - Ladylake (Original Mix)
+004. Mercurial Virus - Altitude (Extended Mix)(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 12:26:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:486624AC9C80AB83FA8B081BC910507DC4806C5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1334259   (296818) от 28.10.2019
 
 VA - Follow The Wind: Live Groove Mix (2019) [MP3|320 Kbps] <Chillout, Lounge, Relax>
@@ -690,64 +748,6 @@ VA - Vocal Trance Collection Vol.5 (2017) [MP3|320 Kbps] <Trance , Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF80A7AFC8EAE27F6EE01B317CD73E8572C00CC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962546   (293145) от 05.12.2015
-
-VA - Charming Bourgeois Vol 4 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293145.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panorama - Fantastic Road - Original Mix
-02. Purechill - Un Attimo - Original Mix
-03. Philippe Martin - Orgoglio - Original Mix
-04. Michel Haimann - Rain - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AE9F45F24D3705E0E9AE8894024A1F36B53B537
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962682   (292255) от 05.12.2015
-
-VA - Extra House: Bonus [03] (2015) [MP3|320 кб/с]<House, Deep House, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kygo feat. Maty Noyes - Stay (Original Mix) (03:59)
-02. Anturage & Amnesia Haze - Sentimentos (Original Mix) (06:17)
-03. Chris Fortier - Losing Wait (One Of Them Remix) (06:25)
-04. Rober Gaez - Lay On You (Mark Lower Remix) (06:10)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5ABBA8FEFDD742300B4485A7C584EACC0AB4CD98
 ```
 
 https://mybot314.ru/tekegram_catalog/

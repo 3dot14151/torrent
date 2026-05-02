@@ -1,3 +1,32 @@
+###  Публикация: 919517   (582932) от 19.07.2015
+
+Status Quo - Les Genies du Rock - Pictures of Matchstick Men (1995) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ice In The Sun [02:12]
+02. Lakky Lady [03:07]
+03. Is It Really Me [02:42]
+04. Gerundula [03:19](   Читать дальше...   )Жанр: RockПродолжительность: 01:10:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3A094F7AA68A2946C4429F6106E0D354CDD6704
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 919056   (582800) от 19.07.2015
 
 Santana - Les Genies du Rock - Santana Jam (1995) [MP3|320 кб/с]<Rock>
@@ -746,35 +775,6 @@ Crystal Palace - Still There (2022) [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F5AF10C7003F1BB252AA9C87FFB09EB3B7D13D65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922171   (571876) от 27.07.2015
-
-Gun Club - Les Genies Du Rock - Death Party (1993) [MP3|320 кб/с]<Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_571876.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Rail road bill (1:50)
-02.  Sex beat (2:12)
-03.  She's Like Heroin To Me (3:08)
-04.  Devil in the woods (2:55)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:55:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B8466BC7B414DC1C67516A94D42063E92060691
 ```
 
 https://mybot314.ru/tekegram_catalog/

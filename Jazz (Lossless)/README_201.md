@@ -1,3 +1,61 @@
+###  Публикация: 1175510   (376774) от 19.10.2017
+
+Buddy DeFranco (De Franco) & Martin Taylor - Garden of Dreams (1988) ProJazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376774.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 73 Berkley Street [06:35]
+02. Sunshine State [05:20]
+03. I Remember Clifford [05:24]
+04. Mysteria [04:43](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F67782E79486804182DCF9A5DC66537B49EAC92C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1175714   (376635) от 19.10.2017
+
+VA - Jazz Ladies (2006) 3CD, Weton-Wesgram [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_376635.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Dinah Washington - Mad About the Boy [02:49]
+02.Nina Simone - Ain't Got No,I Got Life [04:38]
+03.Billie Holiday - Carelessly [03:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:43:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DBAC9566B5408E25726765C1BE8C85BF1B782A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1069175   (375953) от 03.11.2016
 
 Simone Kopmajer - Moonlight Serenade (2004) Venus Records[FLAC|Lossless|image + .cue] <Vocal Jazz>
@@ -692,64 +750,6 @@ Omer Avital Group - Room To Grow (2006) [FLAC|tracks+.cue]<Post-Bop, Modern Crea
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:69814A4035DEE6C297A64103E1284D514080C085
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949942   (373137) от 25.10.2015
-
-Omer Avital - Asking No Permission (2006) [APE|image+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Know What I Mean
-02. Lullaby Of The Leaves
-03. Ballad
-04. Devil Head(   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:14:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B23E429FA335C17F48FE1956149FBACFDDC2CBE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949937   (373121) от 25.10.2015
-
-Omer Avital - New Song (2014) [FLAC|Lossless|WEB-DL]<Post-Bop, World Fusion, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hafla
-02. New Song
-03. Tsafdina
-04. Avishkes(   Читать дальше...   )Жанр: Post-Bop, World Fusion, Contemporary JazzПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48AF37ACAEFDA39084B755DDBBD01B7CFF9DCC23
 ```
 
 https://mybot314.ru/tekegram_catalog/

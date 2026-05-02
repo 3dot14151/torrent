@@ -1,3 +1,61 @@
+###  Публикация: 1642587   (210371) от 28.06.2023
+
+Dexter Gordon Quartet - Swiss Nights, Vol. 1 (1975) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210371.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenor Madness [10:54]
+02. Wave [10:49]
+03. You've Changed [10:13]
+04. Days of Wine and Roses [12:49](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:370778D25E618A53CFB1EC70B84E9C4C366A6C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642490   (210350) от 27.06.2023
+
+VA - Sax & Romance (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_210350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ella Fitzgerald - Dream A Little Dream Of Me (Single Version) (3:08)
+02. Jo Stafford - You Belong To Me (3:14)
+03. Dinah Washington - What A Difference A Day Made (2:28)
+04. Buddy Holly - True Love Ways (2:48)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F28A11B3DBBC746B25EEC88842822CF46A312805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642590   (210243) от 28.06.2023
 
 Dexter Gordon Quartet - Swiss Nights, Vol.3 (1975) 1987, SteepleChase [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -687,64 +745,6 @@ Enrico Pieranunzi & Marc Johnson - The Dream Before Us (1990) 1992, IDA Records 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45162CE49154B55E538A466EAA46E1D87017B410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656126   (203548) от 29.08.2023
-
-Howard Rumsey's Lighthouse All-Stars - Sunday Jazz A La Lighthouse, Vol.2 (1953) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luau [3:52]
-02. Comin' Thru the Rye Bread [6:14]
-03. Taking a Chance on Love [4:06]
-04. The Bif Top [4:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:53:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:552FBA4295C50AD6B73B37BCE2E043CA141A1333
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656292   (203296) от 30.08.2023
-
-Wardell Gray - 1946 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_203296.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dell's Bells [2:55]
-02. One For Prez [3:11]
-03. The Man I Love [3:05]
-04. Easy Swing [3:01](   Читать дальше...   )Жанр: Bop, SwingПродолжительность: 01:09:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D57036E7F73F24BABA927A611768F07592C91DD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

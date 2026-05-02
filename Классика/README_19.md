@@ -1,3 +1,32 @@
+###  Публикация: 1278958   (767671) от 27.01.2019
+
+Vangelis - El Greco (1998) [FLAC|Lossless|image + .cue] <Modern Classical>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Movement I
+02. Movement II
+03. Movement III
+04. Movement IV(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:13:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:048749AA29970C89FBF4B63C9D5C1A696C5D731C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393419   (767601) от 30.06.2020
 
 Maxence Cyrin - Aurora (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, Ambient>
@@ -709,35 +738,6 @@ Dirk Maassen - Ocean (2020) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Pia
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADC8873B47B354AE0B56CA56368C7A07C96E3AC5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1398035   (736641) от 24.07.2020
-
-Dirk Maassen - Avalanche (2018) [FLAC|Lossless|WEB-DL|tracks] <Modern Classical, Piano, New Age>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_736641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eclipse (4:42)
- 02. Helios (feat. Deutsches Filmorchester Babelsberg) (4:30)
- 03. Nocturne (3:45)
- 04. Gravity (4:12)(   Читать дальше...   )Жанр: Modern Classical, Piano, New AgeПродолжительность: 00:44:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7E7BB42AA4D3B401D712CD9A826CBF83ABA5A9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

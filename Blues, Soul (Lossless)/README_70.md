@@ -1,3 +1,119 @@
+###  Публикация: 1573361   (412667) от 31.08.2022
+
+Back2Blues - The Brazilian Texas Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412667.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Hour (3:12)
+02. Good Time Darling (3:14)
+03. She's a Keeper (3:40)
+04. When There's No Feeling (3:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AABBDC29875AFE37E38EC80D8C3175AE920536E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573359   (412660) от 31.08.2022
+
+A Family Curse - A Family Curse (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cast A Curse (3:07)
+02. Desert Blues (3:42)
+03. Cemetery Blues (3:33)
+04. LA Blues (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAB7250B862E74EAF750586A732358A5272737F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573362   (412656) от 31.08.2022
+
+Christina Skjolberg - I´m on fire (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412656.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sugar and love (2:31)
+02. I´m on fire (2:52)
+03. Beautiful (3:32)
+04. Strange man (3:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF6F6A430805E65D7FEE10CC986E708E2788B628
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573376   (412652) от 31.08.2022
+
+Justine Blazer - Girl Singing the Blues (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_412652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pretend in the Dark (3:33)
+02. Cold Day in Hell (4:20)
+03. Big Bright Beautiful Day (3:04)
+04. Tears of Blue (3:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD239B5B4976BFDDDA501C98B28FFFF6BDF2884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1573367   (412220) от 31.08.2022
 
 Jeff Dale & The South Woodlawners - Blood Red Moon (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -635,145 +751,6 @@ JJ Grey & Mofro - Brighter Days (Live) (2011) [FLAC|Lossless|tracks + .cue] <Sou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:637CF2C76A8DCEF1536B2575D315D50D42E257F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 398620   (399116) от 14.10.2011
-
-Tom Waits - 11 Japan SHM-CD / Mini LP (1973-1988) [FLAC (image+.cue)|Lossless]<Blues/Jazz/Rock/Cabaret>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399116.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 16 Shells From A Thirty-Ought-Six (4:18)
-02. Red Shoes (4:20)
-03. Underground (2:35)
-04. Cold Cold Ground (3:26)
-05. Straight To The Top (2:49)
-06. Yesterday Is Here (2:41)
-07. Way Down The Hole (4:44)
-08. Falling Down (4:16)
-09. Strange Weather (3:36)
-10. Big Black Mariah (2:59)(   Читать дальше...   )Жанр: Blues/Jazz/Rock/CabaretПродолжительность: 09:28:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570847   (389404) от 06.11.2012
-
-Burton Gaar - Fried Grits & Greens (2011) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fried Grits & Greens
- 02. Last Train To Memphis
- 03. Trouble
- 04. Drowning In the Blues
- 05. One Step Away
- 06. Sugarfied
- 07. Turn Around
- 08. Wake Up and Watch me Leave
- 09. So Over You
- 10. Strung Out On the Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 52:37
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570863   (389399) от 06.11.2012
-
-Bugs Henderson Group - Backbop (1998) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_389399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quicksand
- 02. Ain't Your Daddy's Business
- 03. I Can't Stand You
- 04. Love Junkie
- 05. Theif In The Night
- 06. Backbop
- 07. Help Me
- 08. Rock & Roll Man
- 09. Audio Liner Notes - Return Of The DreamЖанр: Blues-RockПродолжительность: 00:33:27
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 571293   (388273) от 07.11.2012
-
-Bryan Lee - My Lady Don't Love My Lady (2009) [APE|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_388273.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imitation of Love
- 02. I Don't Know
- 03. Three Can Play The Game
- 04. Early in the Morning
- 05. Let Me Up I've Had Enough
- 06. Heartbreaker
- 07. Too Many Wolves
- 08. My Lady Don't Love My Lady
- 09. When I Been Drinking
- 10. Me And My Music(   Читать дальше...   )Жанр: BluesПродолжительность: 01:07:30
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

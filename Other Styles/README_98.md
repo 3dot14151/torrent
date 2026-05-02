@@ -1,3 +1,216 @@
+###  Публикация: 1051132   (532546) от 11.09.2016
+
+Dario Marianelli & Regina Spektor - Kubo and the Two Strings / Кубо. Легенда о самурае (2016) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Impossible Waves
+02. Kubo Goes to Town
+03. Story Time
+04. Ancestors(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:53:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069ACE10DD726C5265120A7C2839F026F6A6791F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 533245   (532403) от 10.08.2012
+
+Blackmore’s Night - A Knight In York (2012) [WavPack|Lossless]<Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_532403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Locked Within The Crystal Ball (8:36)
+02. Glided Cage (4:18)
+03. The Circle (7:18)
+04. Journeyman (6:58)
+05. World of Stone (6:14)
+06. The Peasant's Promise (5:11)
+07. Toast to Tomorrow (4:49)
+08. Fires at Midnight (9:44)
+09. Barbara Allen (5:27)
+10. Darkness (3:30)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 819641   (531903) от 08.09.2014
+
+Jason Graves - Dead Space 2 (2011) Collector's Edition [FLAC|Lossless]<Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Isaac, Are You There
+ 02 - Padded Room With A View
+ 03 - Hospital Escape
+ 04 - The Cassini Towers(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:00:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EAD8FEEB5669843BCEAFCD3D90CBA1CEC39782
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527715   (531779) от 10.08.2012
+
+Шаг Вперед 4 / Step Up Revolution (2012) [MP3|320 кб/с]<Soundtrack / Unofficial Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531779.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nalepa - Monday (The Glitch Mob Remix) (6:29)
+02. Yung Joc -Hear Me Coming (3:57)
+03. Haley Reinhart - Undone (3:49)
+04. Heavy - How You Like Me Now (Album Version) (3:37)
+05. Elisa - Dancing (5:11)
+06. Kid Cudi - Man On The Moon (3:32)
+07. Stellamara -Prituri Se Planinata (Nit Grit Remix) (5:53)
+08. M83 - Wait (5:43)
+09. The Irrepressibles -In This Shirt (5:35)
+10. edIT - Ants (4:05)(   Читать дальше...   )Жанр: OST / Unofficial Soundtrack |Продолжительность: 01:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E65533EFCCDB73A6066FB049B8FA02DA9431D8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926290   (531620) от 11.08.2015
+
+Joga Dass - Die Erzengel (2007) [WavPack|image+.cue]<Meditative, Chakraphon-Musik>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Michael/B94 05:50
+02. Gabriel/B95 05:23
+03. Raphael/B96 05:03
+04. Uriel/B97 05:23(   Читать дальше...   )Жанр: Meditative, Chakraphon-MusikПродолжительность: 01:11:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EA4643EF46D618A56AB658294C200F4D116F041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 926819   (531614) от 11.08.2015
+
+VA - Om Yoga Vol. 1, 2: Modern Music for Vinyasa/Flow  (2011-2013) 2CD [MP3|320 кб/с]<Lounge, Chillout, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rocket Empire – Beijing
+02. Caravane – Lah Ihanikom
+03. Rocket Empire – Simmer Down Jammie
+04. Charlie Tate – Ramsden Road(   Читать дальше...   )Жанр: Lounge, Chillout, New AgeПродолжительность: 01:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15572B960A42992C5BCA1D5090973378793C35B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 367971   (531453) от 26.07.2011
+
+Ustad Abdul Halim Jaffer Khan - Enchanting Sitar (1978) [MP3|320 kbps] <Sitar>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_531453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Raga Aarabi (19:01)
+02.  Raga Multani (19:32)Жанр: SitarПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FAB4C873462871670A26BAD0C97A8BAB13E2423
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240128   (531289) от 09.08.2018
 
 Kevin Cotter - Cotter (2018) [FLAC|Lossless|WEB-DL|tracks] <Piano, Contemporary Classical, New Age>
@@ -546,209 +759,6 @@ Karunesh - Sun Within (2016) [MP3|320 Kbps] <New Age, World>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:629F8E8F7AD9E77F1D691623A6655109B4B5DDA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 820080   (528814) от 10.09.2014
-
-Stefan Grossman - Those Pleasant Days (2004) 2 CD, Compilation [FLAC|Lossless|image+.cue] <Acoustic Guitar, Blues & Jazz Singer, Country Blues>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528814.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1
-01. So They Say [04:35]
-02. The Birthday Song [04:45]
-03. Odyssey [10:22](   Читать дальше...   )Жанр: Acoustic Guitar, Blues & Jazz Singer, Country BluesПродолжительность: 02:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D9809F164FB4D93A848AE145ED99FB306E9F48E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240359   (528679) от 11.08.2018
-
-William Ogmundson - Simple Gifts (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Belladonna
-02 – Simple Gifts
-03 – Forever Drifting
-04 – Pharaoh’s Horses(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B54EA76FAD372CDAE093C176EDC0DB74BCD661C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927455   (528641) от 13.08.2015
-
-Mo Coulson & Chris Conway - Spirits of the Mermaids (2013) [MP3|320 кб/с]<New Age, Celtic, Vocal, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Towards The Shore
-02. Mermaids Join The Dance
-03. Ophelia
-04. Lure Of The Siren(   Читать дальше...   )Жанр: New Age, Celtic, Vocal, InstrumentalПродолжительность: 00:54:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF02A5759F9F206A8F1AA870AE6A981979A42744
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 927249   (528636) от 13.08.2015
-
-Ketama - Antologa De Ketama (2015) 2 CD [MP3|320 кб/с]<Spanish, Nuevo Flamenco>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Verdadero
-02. Problema
-03. Se Dejaba Llevar Por Ti
-04. Ketama & Khaled – El Oasis De Los Dioses(   Читать дальше...   )Жанр: Spanish, Nuevo Flamenco |Продолжительность: 01:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E429E89B2F2F3DF5F75F23C74BE80AC882F1982
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052618   (528075) от 14.09.2016
-
-Jim Brickman - Pure Cinema (2016) [MP3|320 Kbps] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528075.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Go [00:04:47]
-02. Falling Slowly [00:03:42]
-03. Love Me Like You Do [00:05:03]
-04. Jacob's Theme [00:02:32](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF21B4B4DACB22D4E8C1B510E5B401A929E7D0FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1052532   (527912) от 14.09.2016
-
-Karunesh - Sun Within (2016) [FLAC|Lossless|tracks] <World Fusion, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aeon [00:06:44]
-02. Lyria [00:04:55]
-03. Moola Mantra [00:08:59]
-04. Desert Traveller [00:06:23](   Читать дальше...   )Жанр: World Fusion, New AgeПродолжительность: 00:52:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:48C929554BA44F798B7B1ACC7EE938408DCA7B39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156140   (527653) от 07.08.2017
-
-Hard Working Americans - We're All In This Together (2017) [MP3|320 Kbps] <Country Rock, Blues Rock>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_527653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mission Accomplished  (06:14)
-02. I Dont Have a Gun (09:15)
-03. Stomp and Holler  (05:47)
-04. Roman Candles  (06:07)(   Читать дальше...   )Жанр: Country Rock, Blues RockПродолжительность: 01:20:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F951BCDA714DEF5C9C61F2D203D8292C7B896FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

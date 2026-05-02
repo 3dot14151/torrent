@@ -1,3 +1,110 @@
+###  Публикация: 273003   (276909) от 20.12.2010
+
+VA - American Discothek vol. 1 - 8 (2010) [MP3|256 kbps]<Eurodance/Technopop/Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276909.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Eurodance/Technopop/DiscoПродолжительность: 10:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54591445B7DDF56AEE1BA3E91121B3BD3A53B8B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337027   (276338) от 09.11.2019
+
+VA - German Top 100 Single Charts 08.11.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tones and I - Dance Monkey
+02. Apache 207 - Roller
+03. Apache 207 - Wieso tust Du dir das an?
+04. Nimo - KARMA(   Читать дальше...   )Жанр: PopПродолжительность: 05:10:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86084B6A6B053A9EC3CB2F4BAEFA1D3EB901427E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273064   (276296) от 21.12.2010
+
+VA - Зимние Хиты from AGR | @nGeL® (2010) [MP3|256 kbps]<Pop/Dance/Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/Dance/ClubПродолжительность: 06:28:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F13AD1CD6C16B4186A147DD1F7D9345503EA630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 273059   (276237) от 21.12.2010
+
+VA - Музыкальный Новогодний Подарок from AGR | @nGeL® (2010) [MP3|256 kbps]<Pop/Dance/Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Pop/Dance/ClubПродолжительность: 05:55:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB5EC45C95134B54C3DF1E57053D986AB208F07D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336831   (276227) от 09.11.2019
 
 VA - Hot Dance Pool Party (2019) [MP3|320 Kbps] <Dance, House, Pop>
@@ -617,122 +724,6 @@ VA - Best Weekend: Pop Dance Mix (2018) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8A01DBEF18931CF0B7D5FC83CBD7A3E15E11312C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083574   (273714) от 16.12.2016
-
-VA - Музыкальный плен на Europa Plus 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273714.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Tv Noise Feat. Oisin - Remember 2:43
-002.Нужный Ритм - Незабываемая 3:12
-003.Fallulah - Slow Love 3:02
-004.Ruslan Nigmatullin - Москва Не Город А Целый Мир 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:827E9685DC3825BD3DEFF603FA720147043ABE42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337534   (273268) от 11.11.2019
-
-VA - Temptation: Popular Dance Music (2019) [MP3|320 Kbps] <Dance, Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273268.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Newclaes - Wherever We Are (Keno Remix)
-002. Lawrence - No Drama
-003. Bailando Beat - Du Tragst Keine Liebe In Dir
-004. Jenny Rom - Hanky Panky (Cutty Short Mix)(   Читать дальше...   )Жанр: Dance, PopПродолжительность: 10:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18FCFF0BC510C750A5D775EE9BA8D4662CE4CB21
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083575   (273062) от 16.12.2016
-
-VA - Звездная вечеринка. Зарядись хитами. Выпуск 4 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273062.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.S.N.E.G Feat. Evaloras - Эйфория 3:08
-002.Lupe Fiasco Feat. Sirah - Lilies 4:11
-003.Biffguyz - Ты Вкусно Пахнешь 3:22
-004.Astronomyy - The Secret 4:00(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5874E54AEDCF98697BAE1DE25E3C7275AAF44B6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1188782   (273015) от 03.12.2017
-
-Григорий Лепс - Новое и лучшее (2017) [MP3|320 Kbps] <Шансон, Поп>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Киллер (2017)
-02. Ты чего такой серьёзный (feat. Тимати) (2017)
-03. Самолёты, поезда или машины (feat. А.Лоик) (2017)
-04. Время (2017)(   Читать дальше...   )Жанр: Шансон, ПопПродолжительность: 04:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DAD81D95FBAA2CE9F818FB2F75561451F794344
 ```
 
 https://mybot314.ru/tekegram_catalog/

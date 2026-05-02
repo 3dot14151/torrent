@@ -1,3 +1,250 @@
+###  Публикация: 454675   (94067) от 22.02.2012
+
+VA - Minimal Art v.4 (12.02.2012) [MP3|320 kbps]<Minimal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94067.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Acid Lupe - Orchestra (Original Mix) (7:10)
+ 02. Chabud - Souk (Mad Raf Tom Zenith Remix) (6:00)
+ 03. Dani San - Clikity Clack (Original Mix) (6:44)
+ 04. David Prap & Willy Real - Burnout (Manel Diaz Crazy Drum Mix) (6:09)
+ 05. David San & Richie Dane – Colotina (Original David Mix) (6:17)
+ 06. Edoardo Spolaore - Bastard Clap (Original Mix) (8:16)
+ 07. Emanuele Millozzi & Claudio Petroni - Rauco (Manel Diaz Remix) (6:12)
+ 08. Leeks - Amoeba (Original Mix) (7:17)
+09. Lowboys - Hall Of Panic (7:30)
+ 10. MCJ - Pooomp (Manu Sami Remix) (6:09)(   Читать дальше...   )12.02.2012Жанр: MinimalПродолжительность: 02:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83C7836E0C2716C4052BD382EEFD8E7CFAD4BB06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455673   (94058) от 21.02.2012
+
+VA - Four Seasons: Winter mixed by Paul Oakenfold (2012) [MP3|320 kbps]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitry Globa - La Aurora Boreal
+02. John '00' Flemming - The Astrophysical Nebula
+03. Paul Oakenfold & Robert Vadney - Pop Star (Yahel Remix)
+04. Matisse & Sadko - Amulet
+05. Limbo - Paradox
+06. Solarstone feat. Alex Karweit - Breakaway (Solarstone's Phuture Mix)
+07. Talpa - The Moon (Flegma & Nerso Remix)
+08. Aggresivnes - Futurasia (Blazer Remix)
+09. Oakenfold feat. Tamra Keenan - Maybe It's Over (Organ Donors Perfecto Mix)
+10. Tim Jirgenson - Get Ready(   Читать дальше...   )2012Жанр: Trance, Progressive TranceПродолжительность: 01:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4E271988E3CAE84491EA5A7A22F6FB84B6494C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455849   (94013) от 21.02.2012
+
+Журнал | Автомир [Россия] №8 [февраль 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94013.jpg" />
+</div>
+
+
+###  Подробнее
+
+АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5FCC00BC2B565461922FEE79D18AC4109366421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455058   (94011) от 21.02.2012
+
+Dapayk & Padberg - Sweet nothings (2012) [MP3|192-320 kbps]<Tech-house>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94011.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Too Lazy (6:01)
+2. Play (5:51)
+3. Sweet Nothings (4:55)
+4. Fluffy Cloud (8:13)
+5. Endless Games (3:31)
+6. The Sun Come Up (7:16)
+7. Razorskit (1:52)
+8. Berlin Summer Nights (5:56)
+9. Take These Scissors (5:42)
+10. Backyard (4:33)(   Читать дальше...   )2012Жанр: Tech-houseПродолжительность: 01:05:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E27F3783B872DDD843A259EFBB4CB252A45308
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455256   (93994) от 21.02.2012
+
+[Wallpapers] Обои для рабочего стола.
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93994.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола,на любой вкус(280 шт.)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3B6219028615B61FCF322DBDB04046C682A70C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455443   (93960) от 20.02.2012
+
+Ephor - Maybe It`s You (2012) [MP3|320 kbps]<Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maybe It`s You (05:13)
+02. Close My Eyes (05:51)
+03. Space Trip (05:12)
+04. Dons You (05:07)2012Жанр: Drum & BassПродолжительность: 00:21:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E14CCC812FFF4F6E700C176357A8133986964D2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455166   (93957) от 20.02.2012
+
+DJ Feel - TranceMission Top 25( Of January 2012) [MP3|320 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93957.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hannah - Falling Away (Protoculture Remix) (ARMADA)
+02. DJ Feel feat Loona - Ill Find Myself (Original Mix) (ALTER EGO)
+03. Orjan Nilsen - Legions (Original Mix) (ARMIND)
+04. Mike Foyle feat. Refeel - Universal Language (Original Mix) (SOUNDPIERCING)
+05. Cold Blue - Coconut (Original Mix) (MONSTER TUNES)
+06. alexander popov - elegia (original mix)
+07. Robbie Rivera - Dance Or Die Series 2 - Makes Me Feel Good (JUICY)
+08. Marcel Woods - Everything (Marcel Woods 2nd Treatment) (MUSICAL MADNESS)
+09. Ferry Corsten feat Ben Hague - Aint No Stoppin (Original Extended) (FLASHOVER)
+10. Cosmic Gate & Arnej - Sometimes They Come Back For More (Stoneface & Terminal Remix) (BLACK HOLE)(   Читать дальше...   )25 Of January 2012Жанр: TranceПродолжительность: 01:58:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B7CC9D64C5D6DAF3180429FF1EB8FB67A69C7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 455478   (93953) от 20.02.2012
+
+Газета | Сад, огород – кормилец и лекарь №4 (февраль 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93953.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сад, огород – кормилец и лекарь» — газета, которая поможет вырастить богатый урожай, обустроить дачный участок, приготовить из дачных даров изысканные блюда, раскроет тайны народной медицины, подскажет, как оставаться красивой с помощью косметики с грядки. Ценный опыт наших читателей, присланный в письмах на конкурсы газеты, становится достоянием всех и постоянно (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ABFBFEA25E9FB8ADD378F1D7F1639251024E6736
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 454581   (93950) от 20.02.2012
 
 Журнал | Вестник арды [2011] [PDF]
@@ -549,268 +796,6 @@ VA - Stay Alive (Compiled by Wega) (2012) [MP3|192-320 kbps]<Psychedelic / Full 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:458F62A31FA07C3C2E39E867F4CDC139D09D033E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454408   (93797) от 19.02.2012
-
-VA - Goa 2012 Vol. 1 (2CD) (2012) [MP3|192-320 kbps]<Psychedelic / Psy-Prog, Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93797.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-Продолжительность: 01:08:13
-
-01. Invisible Reality - Special Feeling 07:57
- 02. Suntree - Fear And Love 09:01
- 03. Static Movement vs. Impact - Fairy Tales 07:14
- 04. Klopfgeister - Laser Achim Strikes Back 06:31
- 05. Infinity - Pumping Rhythm 08:16
- 06. Mindwave - Particles 07:28
- 07. Zyce - Source Code 07:24(   Читать дальше...   )2012Жанр: Psychedelic / Psy-Prog, Full OnПродолжительность: 02:29:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:292015F04280EA22C6B133099E02950FD12BBEB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 452772   (93794) от 19.02.2012
-
-IntroWert - Progressive Reason Episode 070 [06.02.2012] (2012) [MP3|192 kbps]<Progressive Trance, Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Javah feat. Mimi Boheme - Waiting (Original Anthem Mix)
- 02. Jan Martin - Exemption (Abstract Vision & Elite Electronic Remix)
- 03. Hardwell & Nicky Romero - Beta (Original Mix)
- 04. Aly & Fila - 200 (FSOE 200 Anthem) (Ummet Ozcan Mix)
- 05. Dash Berlin feat. Jonathan Mendelsohn - World Falls Apart (Club Mix)
- 06. Odonbat - October Sky (Original Mix)
- 07. Bobina – Diamond Hell (Original Mix)
- 08. Orjan Nilsen - Lucky Strike (Original Mix)
- 09. Daniel Kandi - Sagittarius (Original Mix)
- 10. Nuera - Imagine (Original Mix)(   Читать дальше...   )2012Жанр: Progressive Trance, Uplifting TranceПродолжительность: 02:00:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957FAF2E3EEAE493C9CB028AB074D56079EB861C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454100   (93793) от 19.02.2012
-
-VA - The Dance Cube XXXI (2011) [MP3|320 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ian Solano - Eleven (Michael Tsukerman Remix)
-02. Grube & Hovsepian - Pressure (P.A.F.F. Resmash)
-03. Jochen Miller - Bamm
-04. Tigran Organezov - Raptor
-05. Marcel Woods - Black Angus
-06. Ronski Speed feat. Renee Stahl - Out Of Control (Dennis Sheperd Remix)
-07. Erick Strong - Payback (Matthew Nagle Remix)
-08. Michael Jay Parker & Jan Miller - Shinowata (Original Mix)
-09. Rapha - Impressions (MarkEtesonRemix)
-10. Laura Jansen - Use Somebody (Armin van Buuren Rework)(   Читать дальше...   )2011Жанр: TranceПродолжительность: 01:13:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2007DB91F91EB847386FA45C3E5ED2B119CA51D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454643   (93780) от 19.02.2012
-
-Soen - Cognitive (2012) [MP3|320 kbps]<Progressive Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93780.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fraktal 01:11
-02. Fraccions - 04:56
-03. Delenda - 04:31
-04. Last Light - 04:31
-05. Oscillation - 06:49
-06. Canvas - 06:34
-07. Ideate - 04:02
-08. Purpose - 04:12
-09. Slithering - 05:43
-10. Savia - 05:532012Жанр: Progressive MetalПродолжительность: 00:48:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69C0F76A18A675C440FC8D9B6616652C90282F62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453924   (93767) от 18.02.2012
-
-Яна Алексеева | Охотящиеся в ночи [2011] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93767.jpg" />
-</div>
-
-
-###  Подробнее
-
-Господа, рассказать вам сказку? Не добрую и светлую, а настоящую. Про тех, кто скрывается в тени, крадется в ночи, танцует при свете луны? Про берегущих секреты и знания, про стерегущих иные законы? Про Роды и Кланы, про тех, кто нарушает традиции. И про тех, кто следит за порядком в сокрытом от обычных людей мире. Начнем, пожалуй. Однажды поздним вечером по городу кралась волчица…2011Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:935D94FE849FE5DA17BB316D690B0E774FED86E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454651   (93741) от 18.02.2012
-
-UFO - Seven Deadly (2012) [FLAC|Lossless]<Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fight Night - 04:34
-02. Wonderland - 05:08
-03. Mojo Town - 03:56
-04. Angel Station - 06:23
-05. Year Of The Gun - 04:07
-06. The Last Stone Rider - 03:52
-07. Steal Yourself - 04:46
-08. Burn Your House Down - 04:58
-09. The Fear - 03:44
-10. Waving Good Bye - 05:11(   Читать дальше...   )2012Жанр: Hard RockПродолжительность: 00:53:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 454355   (93740) от 18.02.2012
-
-Seven Seals - ... of Contradictions (2012) [MP3|320 kbps]<Heavy/Power Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Intro
-02 - Dreams Collide
-03 - The Better Days
-04 - Vicious Circle
-05 - Come Clraity
-06 - Still Small Voice
-07 - Crestfallen
-08 - Deliver Us
-09 - Endearment
-10 - Mother Earth(   Читать дальше...   )2012Жанр: Heavy/Power MetalПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D68B8095C5548FD51A1AD494D83C997BEA751F08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 453928   (93729) от 18.02.2012
-
-Наталия Курсанина | Игра не на жизнь. Проходная пешка [2011] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_93729.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Когда вглядываешься в бездну — бездна заглядывает в тебя». Если рискнули играть в магию — магия может запросто сыграть вами, словно разменной пешкой. И тогда невинная «ролевая игра» по мотивам «Властелина Колец» обернется кровавым кошмаром, провалом в бездну, беспощадной войной миров. Потому что реальные эльфы ничуть не похожи на те прекрасные создания, что воспевал Толкин, — для настоящих эльфов, возомнивших себя высшей расой и кичащихся собственным первородством, человеческая жизнь не стоит ни гроша, мы для них — низшие существа, которых следует истреблять, не щадя ни женщин, ни детей. А гномы и орки еще хуже эльфов… Новый роман от автора бестселлера «Попаданцы» Карибского моря»! Наш человек в мире жестокой магии. Люди против «старших рас», мечи против колдовства, любовь против адской бездны! В этой беспощадной игре не на жизнь, а на смерть, где все средства хороши, кровь дешевле воды и геноцид давно вошел в привычку, существует лишь одно правило: проходная пешка становится ферзем!2011Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDD4FEE1999A78EBFB3789F2EEE821DBB4CA41C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1213564   (768194) от 17.03.2018
+
+Self Deception - Self Deception (2018) [MP3|320 Kbps] <Alternative Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768194.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Eat Sleep Rock Repeat (3:43)
+ 2. Don't (2:57)
+ 3. Let Go (2:55)
+ 4. Broken Generation (3:11)(   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 00:32:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E5094B139F9192D96B8D09F94792252E7E222C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1278896   (767841) от 27.01.2019
 
 John Rooney - Joy (2019) [MP3|320 Kbps] <Melodic Rock>
@@ -716,35 +745,6 @@ Fungus Hill - Cosmic Construction on Proxima B (2018) [MP3|320 Kbps] <Psychedeli
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61DC2ECD04E0ED34D50D874E2AB0A64777113C61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215614   (757954) от 26.03.2018
-
-Monster Magnet - Mindfucker (2018) [MP3|320 Kbps] <Stoner Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757954.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rocket Freak
-02. Soul
-03. Mindfucker
-04. I’m God(   Читать дальше...   )Жанр: Stoner RockПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93E2B059F51A65EA82F26909BB0A1C7811BD34DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

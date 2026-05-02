@@ -1,3 +1,61 @@
+###  Публикация: 1392332   (769365) от 25.06.2020
+
+VA - Music for You vol.8 (2020) [MP3|320 Kbps] <Rock, Metal, Other>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anthem - Pain (04:17)
+ 02. Anika Nilles - Mister (06:00)
+ 03. The Omnific - Erin (03:21)
+ 04. Circles - Blueprints for a Great Escape (04:48)(   Читать дальше...   )Жанр: Rock, Metal, OtherПродолжительность: 04:04:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D401F1092BEBFF41FB948ED0CD4DD8FE2A971417
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125580   (767828) от 15.04.2017
+
+VA - Metal Ballads - Collection (Vol.01-02) (2017) [MP3|320 Kbps] <Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767828.jpg" />
+</div>
+
+
+###  Подробнее
+
+Metal Ballads - Collection 01:
+01. At Vance - The Evil In You (5:11)
+02. Firewind - Land Of Eternity (5:52)
+03. Tangier - Caution To The Wind (4:26)(   Читать дальше...   )Жанр: MetalПродолжительность: 02:36:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6F85FF0F422AF5F95E79C2590F4FB6A1E8E4CCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1393377   (767701) от 30.06.2020
 
 VA - Birds In The Windows (2020) [MP3|320 Kbps] <Indie Rock, Alternative>
@@ -687,64 +745,6 @@ Opus - Compilation (2019) [MP3|320 Kbps] <Rock, Pop Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:571004B03CBBD8B6FA3C08E925E5C9E215067456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215020   (761146) от 24.03.2018
-
-VA - Наше Радио: Чартова дюжина Top13  Март (2018) [MP3|320 Kbps] <Рок, Поп-Рок>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761146.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Ундервуд  -  Ракеты на Марс  3:27
-02.  СерьГа  -  Я люблю поезда  3:24
-03.  Сплин  -  Тепло родного дома  3:51
-04.  Zdob Si Zdub feat. Loredana & Лигалайз  -  Балкана мама  2:42(   Читать дальше...   )Жанр: Рок, Поп-РокПродолжительность: 00:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5DDB66FC4FCA057E5544E87EBEBDC462E16E216
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394825   (760514) от 07.07.2020
-
-VA - Chasing Sunrise: Heroes Of Modern Rock Vol.02 (2020) [MP3|320 Kbps] <Rock, Hard, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_760514.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. The Silence - Sarabande
-002. Stonefield - The Eyes Of The Dawn
-003. Gatsby In A Daze - Summer Mushi
-004. The Morganatics - Gloria(   Читать дальше...   )Жанр: Rock, Hard, AlternativeПродолжительность: 08:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25E3212C7D0B1F49FC4977942FBC454BB8F85BB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

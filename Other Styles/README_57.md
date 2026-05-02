@@ -1,3 +1,200 @@
+###  Публикация: 1282891   (741159) от 15.02.2019
+
+Siavash - Hamsayeh Haa (1994) [FLAC|Lossless|tracks + .cue] <World Music>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maale Mani (07:37)
+02. Dokhtare Irooni (06:44)
+03. Naaz Nakon (07:10)
+04. Ghahro Ashti (06:08)(   Читать дальше...   )Жанр: World MusicПродолжительность: 00:55:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:760B8A921B42EC1D123298886FB7508660F0A28E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127146   (740905) от 20.04.2017
+
+Gente de Zona - Lo Mejor Que Suena Ahora (2007) [MP3|320 Kbps] <Reggaeton, Cubaton>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Sone
+02 - La Campana
+03 - Le Gustan Los Artistas
+04 - Yo Te Ensene(   Читать дальше...   )Жанр: Reggaeton, CubatonПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B13901CCB37BEECC02E077CE5CB497ECF0BAB7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127150   (740903) от 20.04.2017
+
+Gente de Zona - Que Suenen Los Metales (2010) [MP3|192 Kbps] <Reggaeton, Cubaton>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Castellano
+02 - Como Me Da La Gana (Hip Hop)
+03 - Quien Eres Tu
+04 - La Silicona(   Читать дальше...   )Жанр: Reggaeton, CubatonПродолжительность: 01:08:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B364A7DA6215B6EFE8DD6C9C2B80908BA2EE4C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283134   (740762) от 15.02.2019
+
+Latin Jazz Relaxing Music Quartet - Besame Mucho (2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Besame Mucho (In the Style of Andrea Bocelli)Жанр: InstrumentalПродолжительность: 01:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38536180C5A024F98112F3CEF44B44364A267661
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127151   (740713) от 20.04.2017
+
+Gente de Zona - Visualizate (2012) [MP3|320 Kbps] <Reggaeton, Cubaton>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740713.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - La Gozadera (feat. Marc Anthony)
+02 - Algo Contigo
+03 - Piensas (Dile la Verdad) (feat. Gente de Zona)
+04 - Por Ti(   Читать дальше...   )Жанр: Reggaeton, CubatonПродолжительность: 00:47:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F87626419B05C136B225E750BA9BD75F22288F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283098   (740662) от 15.02.2019
+
+Latin Jazz Relaxing Music Quartet - Besame Mucho (2014) [MP3|320 Kbps] <Instrumental>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740662.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Besame Mucho (In the Style of Andrea Bocelli)Жанр: InstrumentalПродолжительность: 01:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E0FC24D398E90CA5F65D10460DAB48B63BE385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 784726   (740273) от 08.05.2014
+
+DelaDap - This Is DelaDap (2014) [FLAC|Lossless]<Ethnopop, World, Electronic, Urban Gypsy, Balkan>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Goal In The End (3:54)
+02. Cash & Chaos (4:03)
+03. Listen Up (feat. Yola B) (3:28)
+04. I Know (3:44)(   Читать дальше...   )Жанр: Ethnopop, World, Electronic, Urban Gypsy, BalkanПродолжительность: 00:45:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E6DB1376B7E9512B36778CEB6F55D1FF803471
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218129   (740232) от 07.04.2018
 
 Ric Sandler - Hey Good Lookin' (Original Motion Picture Soundtrack) (2006) [MP3|320 Kbps] <Soundtrack>
@@ -542,209 +739,6 @@ VA - Yoga Mantras & Dance: Power Yoga Music & Ecstatic Dance Beats (2014) [MP3|3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E41E0A47E1C0A5689D6484EAA6A9ECFE219D8286
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127164   (732076) от 21.04.2017
-
-Alice Coltrane - World Spirituality Classics 1 (2017) [MP3|320 Kbps] <New Age, Female Vocal, Spiritual>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732076.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Om Rama – 9:39
-2. Om Shanti – 6:52
-3. Rama Rama – 7:35
-4. Rama Guru – 5:52(   Читать дальше...   )Жанр: New Age, Female Vocal, SpiritualПродолжительность: 01:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:296CC8D84C697A3E71AB0550D9B646726E7C9412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021740   (732002) от 30.05.2016
-
-The Sleep Principle - Dreams of Luna (Music for Sleeping) (2016) [MP3|320 кб/с] <New Age, Miscellaneous>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_732002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eyes Closed 00:01:39
-02. Drift Away 00:01:46
-03. Dreaming of Luna 00:01:40
-04. Weightlessness 00:01:39(   Читать дальше...   )Жанр: New Age, MiscellaneousПродолжительность: 00:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5AC0A231C965A199D35252C58A035A495FBAF67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1529917   (731857) от 08.02.2022
-
-Евгений Алексеев - Piano Tribute to Гражданская Оборона, Vol. 2 (2022) [MP3|320 Kbps] <Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731857.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сияние
-2. Кайф или больше
-3. Никто не хотел умирать
-4. После нас(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:491F5CE7FB914D70E812C83B2CE7B99FFC829473
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283785   (731836) от 18.02.2019
-
-СурМеж - Рингтон Сюита (2019) [MP3|320 Kbps] <Instrumental, New Age, NeoClassical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731836.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Улыбка
-02. Сын
-03. Путь капли
-04. Ожидание(   Читать дальше...   )Жанр: Instrumental, New Age, NeoClassicalПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D49D35A5FD9E2051E14C4EF2273B11455C941507
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021552   (731640) от 30.05.2016
-
-Paul Mauriat - The Seven Seas & Summer Has Flown (2016) [FLAC|Lossless|image + .cue] <Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731640.jpg" />
-</div>
-
-
-###  Подробнее
-
-"The Seven Seas"
-01. The Seven Seas   [04:00]
-02. So Bad - Pipes of Peace    [03:47]
-03. Thriller    [04:22](   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 01:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7540F1C2311F6A9EAE32A6281BC0D9E6620451
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021948   (731047) от 31.05.2016
-
-VA - Absolute Country (1995) [APE|Lossless|image + .cue] <Country, Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carleene Carter - Every Little Thing
-02. Billy Ray Cyrus - Achy Breaky Heart
-03. Johnny Cash & Martin Delray - Get Rhythm
-04. Tom Kell - The Girl With The Single Rose(   Читать дальше...   )Жанр: Country, FolkПродолжительность: 01:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CDFDF806C49E7AD3155324AAD6974575676B9C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284049   (731000) от 19.02.2019
-
-John Carpenter, Cody Carpenter and Daniel Davies - Halloween (Original 2018 Motion Picture Soundtrack) (2018) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731000.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Halloween Theme
-3. Laurie’s Theme
-4. Prison Montage(   Читать дальше...   )Жанр: OSTПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC4453334C33B5677D38C90E5A7A29B68293B2E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

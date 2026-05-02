@@ -113,7 +113,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057196.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1057196.jpg" />
 </div>
 
 
@@ -140,7 +140,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1057091.jpg" />
 </div>
 
 

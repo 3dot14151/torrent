@@ -1,3 +1,206 @@
+###  Публикация: 1085945   (154854) от 23.12.2016
+
+Jeffrey Hilton - Velvet Skies (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Forever
+02. Learning to Fly
+03. The Unbreakable Spirit
+04. The Gift(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F10BB479AB22C2717E830C2B8AEF466568EB27A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085828   (154753) от 23.12.2016
+
+Anousheh & Tom - Silence (Secrets of Persian Ney) 2016 [MP3|320 Kbps] <Newage, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154753.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Secret One  (19:57) 
+02|  Secret Two  (12:31) 
+03|  Secret Three  (22:48) 
+04|  Secret Four  (19:20) (   Читать дальше...   )Жанр: Newage, MeditativeПродолжительность: 01:14:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BAC41DC1832C90DF015E2628758B0BCF7FD3FC41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1518158   (154696) от 19.12.2021
+
+Maitreya Bland - Tranquility (1999) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tranquility
+02. The Divine
+03. Back to Eternity
+04. Tenderness(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F27F73B418F362E9DAAB22EC8EE7BE1D71BDD294
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085913   (154584) от 23.12.2016
+
+Ветер всем - Колыбель (2010) [FLAC|Lossless|tracks] <Folk-Rock, World Music, Ethno>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154584.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. У Егорья
+02. Полно
+03. Девушка
+04. Ходом водом(   Читать дальше...   )Жанр: Folk-Rock, World Music, EthnoПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16C8077C76C9F68E474B621F402C08027EC1889A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270982   (154231) от 21.12.2018
+
+Laura Sullivan - Healing Music for Meditation and Well Being (2017) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154231.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. In the Palm of My Hand
+2. Ocean Sunrise
+3. Forgiveness
+4. Lighter Than AirЖанр: Instrumental, New AgeПродолжительность: 01:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A56B39BBD40AE714362FF56E36664F6862244B9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194532   (154211) от 26.12.2017
+
+Zen Buddhismus Regeneration - Musik fur Yoga Ubungen (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Musik fur Yoga Ubungen - 03:50
+02. Beruhigende Musik New Age - 03:25
+03. Autogenes Training fur spirituelle Entwicklung - 03:20
+04. Ruhe und Einschlafmusik - 03:37(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26B905F7D313793038C8ADA17A25714481418007
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1194526   (154176) от 26.12.2017
+
+Kari Arnett - Midwestern Skyline (2015) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Heavy Heart (4:04)
+02 - Lake Michigan (5:12)
+03 - When We Were Young (5:16)
+04 - Casualties (3:38)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5508C62C689094E6AB03510A5BAF1D68523FF7CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194522   (154104) от 26.12.2017
 
 Pistol Annies - Hell on Heels (2011) [FLAC|Lossless|tracks + .cue] <Country>
@@ -548,206 +751,6 @@ VA - True Romance: Motion Picture Soundtrack (1993) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F396B8AE421B8B04A233C29CD11037D89E66712E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968796   (149998) от 25.12.2015
-
-Rammstein - Klavier (2015) Piano Version [FLAC|Lossless|tracks + .cue] <Acoustic, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149998.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rammstein выпустили акустический альбом «Klavier». В него вошли 13 композиций из шести ранее вышедших альбомов группы. P.S. Голоса нет (только музыка).01. Fruhling in Paris
-02. Feuer und Wasser
-03. Nebel
-04. Sonne(   Читать дальше...   )Жанр: Acoustic, PianoПродолжительность: 00:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:801C9AB7C6FB7BFD10F330B3F8FF1B097DE64144
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677895   (149097) от 19.11.2023
-
-Heilung - Drif (2022) [FLAC|Lossless|Web-DL|tracks] <Neofolk, Dark Folk, Experimental>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149097.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Asja (5:17)
-02. Anoana (4:57)
-03. Tenet (13:05)
-04. Urbani (2:55)(   Читать дальше...   )Жанр: Neofolk, Dark Folk, ExperimentalПродолжительность: 00:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9366EA2B2625DEBFFE3B9B31257764B12F16D5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969212   (148968) от 26.12.2015
-
-Medwyn Goodall - Medicine Woman 5: Transformation (2014) [MP3|320 кб/с] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun Dew (08:32)
-02. Transformation Part 1 (07:26)
-03. Cathedral of Trees (07:10)
-04. Wanderer (09:10)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:09:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0865C08EBF727F0518B7E6C110E9EF18EF06B65A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271440   (148693) от 24.12.2018
-
-VA - Valse/Tango 1, 2, 3... Musette (1997) Gold, 2CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adios Muchachos ( Louis Ferrari )
-02. Suave Milonga ( Louis Ferrari )
-03. Viajes ( Louis Camblor )
-04. La Vuelta Del Tango ( Louis Camblor )(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 01:46:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F83BC587A9C0A3508085358FA0B05FEFB8F2E0E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271421   (148556) от 24.12.2018
-
-VA - Simply Accordeon (2013) 4CD Box Set [FLAC|Lossless|image + .cue]<Accordion, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Gato Montes ( Eric Bouvelle )
-02. Le Plus Beau Tango Du Monde ( Julio Cortazon )
-03. Bucaro ( Jose Caldeiro )
-04. Gallito ( Andre Blot )(   Читать дальше...   )Жанр: Accordion, InstrumentalПродолжительность: 03:12:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:621E88572D85F8019721863D1299492D7CCFC4AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 589862   (148407) от 15.12.2012
-
-Molotohvin Koktaili - Sota-ajan propagandaa levyillä 1940-42 (1940-1942) [MP3|256 кб/с]<Foxtrot / Polka>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Foxtrot / PolkaПродолжительность: 01:01:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8D0D84B8D975B8BEB0342AAB8B83D573D61946D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086700   (148344) от 26.12.2016
-
-David Thomas - Ani Yun Wiya, Vol. 2 (2016) [MP3|320 Kbps] <Native American, World>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148344.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Whisper of the Wind [00:04:05]
-02. Indians [00:03:12]
-03. The Way of Life [00:03:26]
-04. Wisdom Born in the Heart [00:03:37](   Читать дальше...   )Жанр: Native American, WorldПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80F811A506E505CBA90EFA6AB3747CCB8F23164B
 ```
 
 https://mybot314.ru/tekegram_catalog/

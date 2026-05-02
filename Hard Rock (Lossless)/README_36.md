@@ -1,3 +1,125 @@
+###  Публикация: 519935   (633456) от 08.07.2012
+
+Hardline - Danger Zone (2012) [FLAC|Lossless]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_633456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fever Dreams
+02. Ten Thousand Reasons
+03. Danger Zone
+04. What I'd Like
+05. Stronger Than Me
+06. Never Too Late For Love
+07. Stay
+08. I Don't Wanna Break Away
+09. Look At You Now
+10. Please Have Faith In Me(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:57:42
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034520   (632595) от 14.07.2016
+
+The Lizards - Reptilicus Maximus (2015) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ton On The One (feat. David Lanik)
+02. Evil Eyes (feat. Frank Marino)
+03. Incurable
+04. Crash (feat. Vinnie Moore)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 0:55:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3527D1BECAB45C285FFC26425E59C5D00B38583B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034823   (632593) от 14.07.2016
+
+Tinsley Ellis - Red Clay Soul (2016) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All I Think About
+02. Givin' You Up
+03. Callin'
+04. Anything But Go(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDB1F609EA4B8D576FBD2B62FC4DC5B5092FF1CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1034798   (632518) от 14.07.2016
+
+Erika - Deaf Dumb & Blonde (2016) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632518.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killer
+02. Heroes Of Heartbreak
+03. Suckerpunch
+04. Drama(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 0:42:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A045EDB24DD5CBD77A46D1D288341C2CB9596FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543164   (631372) от 10.04.2022
 
 Silvertone - Planet Chaser (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
@@ -632,122 +754,6 @@ Michael Lee Aday (27.09.1947 - 20.01.2022), более известный как
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A14E036D67A653E90B645CF324CF3432A76EDFBD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1036164   (620917) от 20.07.2016
-
-Gary Moore - Still Got The Blues (1990) Remastered, Reissue 2002, Japan [FLAC|Lossless|image + .cue] <Hard Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620917.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving On 02:39
-02. Oh Pretty Woman 04:25
-03. Walking By Myself 02:56
-04. Still Got The Blues 06:12(   Читать дальше...   )Жанр: Hard Rock, Blues-RockПродолжительность: 01:11:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9C8CE180F117A0EE74FC67A76EE6C5A19BCDBA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145586   (619987) от 26.06.2017
-
-Arc Angels - Arc Angels (1992) [APE|Lossless|image + .cue] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619987.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living In A Dream 04:52
-02. Paradise Cafe 05:14
-03. Sent By Angels 05:44
-04. Sweet Nadine 04:31(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 01:00:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D85F68793349079C22FABAC474518EE0C453E8BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 910970   (619966) от 21.06.2015
-
-Brian Johnson & Geordie - Keep On Rocking! (1989) [FLAC|image +.cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep On Rocking (3:19)
-02. Can You Do It (4:33)
-03. Black Cat (4:17)
-04. Natural Born Loser (3:39)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3486E5966C65AD1F709C129A809B0D578CEB652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 684563   (619745) от 28.07.2013
-
-Sammy Hagar - 4 альбома (1981-1987) Mini LP SHM-CD /2013, Universal Music Japan/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_619745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When The Hammer Falls (4:10)
-02. Hands And Knees (4:50)
-03. Give To Live (4:24)
-04. Boys' Night Out (3:19)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 00:45:35
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

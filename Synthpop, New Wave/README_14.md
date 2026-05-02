@@ -1,3 +1,38 @@
+###  Публикация: 469436   (83246) от 20.03.2012
+
+Bertine Zetlitz - Electric Feet (2012) [MP3|320 кб/с]<Synth-Pop, Acid Jazz, Electro Pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83246.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One In A Million (04:10)
+02. Electric Feet (Featuring Samsaya) (03:53)
+03. Pop Pop Pop (03:20)
+04. Get Me Out Of Bed (04:20)
+05. Bittersweet Embrace (03:28)
+06. Stuck In Reverse (03:21)
+07. Starlight (04:03)
+08. Pretend To Dance (03:23)
+09. Wrap Me ´Round Your Finger (03:03)
+10. Wrong (03:59)(   Читать дальше...   )2012Жанр: Synth-Pop, Acid Jazz, Electro PopПродолжительность: 00:40:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F298D2BD57B278C6E162E36F6ED5237D78B67C8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 458625   (79326) от 01.03.2012
 
 Miike Snow - Miike Snow (2009) [MP3|320 кб/с]<Electro-pop>
@@ -722,35 +757,6 @@ Blondie - Live In Boston 1978 (2024) HQ Remastered [MP3|320 Kbps] <New Wave, Pun
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C19DFFE8897D729B208F53FA7DEDEB8AEBE73B0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763841   (35312) от 03.12.2024
-
-Droid Bishop - Cinema (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Feature Presentation [00:00:20]
-02 - Murder Miami 1983 [00:03:41]
-03 - Renegade [00:03:09]
-04 - Higher [00:03:55](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:38:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EDB82A332DC8B39CFB49CB76412BD6FC1E3C30EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

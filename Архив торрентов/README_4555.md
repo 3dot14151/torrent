@@ -1,3 +1,267 @@
+###  Публикация: 470182   (97096) от 18.03.2012
+
+[Wallpapers] Full HD Wallpapers Pack 1
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97096.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Full HD Wallpapers Pack 1
+Название: Full HD Wallpapers Pack 1
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48190CE0109DC9C6D38DFBEF6E7609B2552F58BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469774   (97095) от 18.03.2012
+
+Alchemix - The Visions Begin (2012) [MP3|~248 кб/с (V0)]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97095.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alchemix - Cloud Of The South 08:53
+ 02. Alchemix - Freak Toc 08:17
+ 03. Alchemix - New Form Of Energy 08:20
+ 04. Predators - What Is Out There (Alchemix Remix) 08:37
+ 05. Alchemix - Let Me Try 07:19
+ 06. Alchemix - I Can Hear You 08:31
+ 07. Alchemix - Illusions 08:27
+ 08. Alchemix - What Is Reality 08:02
+ 09. Alchemix - The Vision Begins 08:052012Жанр: Psychedelic / ProgressiveПродолжительность: 01:14:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:765E1DD0599D0232BD12D6F06C204F443F47F8A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469551   (97092) от 18.03.2012
+
+VA - TMP : Trance Harmony 063 (2012) [MP3|320kbps]<Trance, Uplifting Trance, Dream Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tom Basger - Animalia (Original Mix)
+02. Traces Traxx - Berlin Nights (Original Mix)
+03. The Moonwalkers - Human Revolution (Basil O'Glue Remix)
+04. Dennis Sheperd & Alan Morris feat. Sue McLaren - I Die (Ferrin & Morris Remix)
+05. Federation - Innocent Desire (Pure Mix)
+06. Gareth Emery feat. Mark Frisch - Into the Light (Alex M.O.R.P.H. Remix)
+07. Tigran Oganezov pres Aboriginal - Kosmogonia (Original Mix)
+08. John O'Callaghan & Kathryn Gallagher - Mess Of A Machine (Extended Mix)
+09. Joseph Areas - Subtle Motion (Original Mix)
+10. System F vs. Cosmic Gate - The Blue Theme (Ferry Corsten Fix)2012Жанр: Trance, Uplifting Trance, Dream TranceПродолжительность: 01:11:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF601B4910C2D9763F851DA77E856DEDC4329F7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469941   (97087) от 18.03.2012
+
+VA - Bravo Hits Wiosna (2CD) (2012) [MP3|192 kbps]<Dance | Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97087.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD-1:
+
+01. Michel Telo - Ai Se Eu Te Pego
+02. Dj Antoine Feat. The Beat Shakers – Ma Cherie
+03. Taio Cruz - Troublemaker
+04. Rihanna - You Da One
+05. Lmfao - Sexy And I Know It
+06. Lady Gaga - Marry The Night
+07. Ewa Farna - Nie Przegap
+08. Avicii - Levels(   Читать дальше...   )2012Жанр: Dance | PopПродолжительность: 02:21:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:314E3AD8175E47E74BED1BA3904B8FB65FA1A8BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470139   (97086) от 18.03.2012
+
+[Wallpapers] Sexy Girl Wallpapers Pack 40
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97086.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Sexy Girl Wallpapers Pack 40
+Название: Sexy Girl Wallpapers Pack 40
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:216B17D94CFCE32BB6F0A814DFB26B63CBCABB9D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469676   (97085) от 18.03.2012
+
+VA - Зажигательный музон (2012) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97085.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Mmdance - Мой Босс (3:09)
+2. Vesna - Талисман (3:39)
+3. Артем Михаленко - Твои Слова (3:13)
+4. MC Zali feat. Bingo Players - Мой Мир (5:57)
+5. Елена Терлеева - Просто (5:29)
+6. Fontano feat. Stas Rooby - Besame Mucho (Radio Edit) (3:20)
+7. Serebro - Давай держаться за руки (4:13)
+8. Градусы - Заметает (Seal De Green Winter Mix) (3:42)
+9. Оля Полякова - Лепесток (2:55)
+10. МакSим - Это же я (3:15)2012Жанр: PopПродолжительность: 06:03:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F523E9D7DBD8B0F8989F45099D09A0CD6FFCC67C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469456   (97083) от 18.03.2012
+
+VA - Звезды блатной волны (2012) [MP3|256 кб/с]<Шансон>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97083.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Виктор Красавин - Невеселая (4:13)
+2. Сестры Марцынкевич - Кто Приехал (2:50)
+3. Алексей Порхачев - Гуляю (4:10)
+4. Сеня Кривой - Когда Хлопнут Врата (4:31)
+5. Положительный заряд - Уходи простуда, стороной! (3:29)
+6. В. Королев - Хулиганка (3:53)
+7. Кристина Збигневская - Пока Ты Не Сказал (3:48)
+8. Светлана Питерская И Марсель Давлетов - Снежинки (4:29)
+9. Александр Доля - Налей Дружок (3:47)
+10. К.Огонек - Поцелуй (3:51)2012Жанр: ШансонПродолжительность: 06:06:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD39E2764057BC82F619967E8E3D1FCCFDDEC9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 469548   (97079) от 18.03.2012
+
+[Wallpapers] Desktop Wallpapers Pack 88
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97079.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 88
+Название: Desktop Wallpapers Pack 88
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6DE66D86A6B80851894F07056619D1D4819EC4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469423   (97078) от 18.03.2012
 
 Алина Юдаева - Третий (2012) [MP3|320 кб/с]<Rock, Instrumental>
@@ -566,251 +830,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DE9E3E188076F6F216EEC7C00E1D24F45D60AD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469673   (97055) от 18.03.2012
-
-VA - Зарубежная Танцевалка (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elena Gheorghe - Midnight Sun
-02. Marquess - Chapoteo
-03. Arash - Melody (Radio Edit)
-04. DJ Mendez - Josephine
-05. DJ San & Wendel Kos - Kiss Of Life
-06. Christopher S feat. Lisa - There For You
-07. Adrian Sina feat. Sandra N. - Angel (Radio Edit)
-08. Shahzoda feat. Akcent - All Alone
-09. Sunstroke Project & Offbeat - Epic Sax
-10. Rihanna - Man Down2012Жанр: Pop,DanceПродолжительность: 06:31:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B80C1BA26BAE50F160FB1368C00121D56601D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469972   (97054) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 94
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97054.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 94
-Название: Desktop Wallpapers Pack 94
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050/1600х1200 - 2560х1920
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0490EF0C460819B6B4EFA58B9732DBFAA44D1186
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469527   (97053) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 83
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97053.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 83
-Название: Desktop Wallpapers Pack 83
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680x1050 - 3200х200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29881536FC8AA8E472B76ED2F087F6E0A0BCFD60
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470141   (97052) от 18.03.2012
-
-[Wallpapers] HD Wallpapers Pack 1
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97052.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers Pack 1
-Название: HD Wallpapers Pack 1
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72239D999F5AD95335C68EB4EE064ABAB924A57A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469577   (97051) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 91
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97051.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 91
-Название: Desktop Wallpapers Pack 91
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:524093C96FB89C0207814EE642CC46D126A2AD3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470179   (97050) от 18.03.2012
-
-[Wallpapers] Nature Pictures №30
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97050.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №30
-Название: Nature Pictures №30
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21E8BEC468C664B09515A7AE868803CFD38DC883
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469973   (97049) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 95
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97049.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 95
-Название: Desktop Wallpapers Pack 95
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23A7A0FBBC819342E415AB93F5D96E2CAEA7D3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469974   (97048) от 18.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 96
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97048.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 96
-Название: Desktop Wallpapers Pack 96
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DED8747CD825E3C7E948EECCB2EA4B1148CAD89D
 ```
 
 https://mybot314.ru/tekegram_catalog/

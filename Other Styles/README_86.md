@@ -1,3 +1,202 @@
+###  Публикация: 1232014   (602223) от 23.06.2018
+
+VA - Deadpool 2 / Дэдпул 2 (2018) [MP3|320 Kbps] <Pop, Rap, Electronic>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Celine Dion - Ashes
+02. Diplo, French Montana & Lil Pump - Welcome to the Party (feat. Zhavia Ward)
+03. DJ Shadow - Nobody Speak (feat. Run The Jewels)
+04. Peter Gabriel - In Your Eyes(   Читать дальше...   )Жанр: Pop, Rap, ElectronicПродолжительность: 00:43:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D33A213F8CD1FB8FD9AF407CB8C03A901FF45748
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298085   (602127) от 26.04.2019
+
+Alan Silvestri - Avengers: Endgame / Мстители: Финал (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Totally Fine (04:30)
+02. Arrival (01:50)
+03. No Trust (03:09)
+04. Where Are They? (03:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:56:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2200CA7F36190D7FBA634F8D5D9E199833ADDD93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298248   (601876) от 27.04.2019
+
+Angelight - Четыре ветра (2006) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Северный ветер (15:05)
+02. Южный ветер (14:06)
+03. Западный ветер (12:56)
+04. Восточный ветер (14:56)Жанр: New AgeПродолжительность: 00:57:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAB7412B5FFFFEA952694AEBE35B6012708A3F4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298560   (601755) от 28.04.2019
+
+DBUK - Songs Nine Through Sixteen (2019) [FLAC|Lossless|tracks + .cue] <Folk, Americana, Gothic Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601755.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Bonnie Clyde, The Big-Bull-Hen Of The Women's Prison (6:37)
+2. Deerslayer (5:26)
+3. From The Estate Of John Denver (6:59)
+4. In San Francisco Bay (4:07)(   Читать дальше...   )Жанр: Folk, Americana, Gothic CountryПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D689ED015B36526B665778469FB7608EA030353E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298533   (601750) от 28.04.2019
+
+Bear McCreary - Godzilla: King of Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) Single [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601750.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godzilla (feat. Serj Tankian) (03:10)
+02. Old Rivals (03:50)Жанр: Soundtrack, ScoreПродолжительность: 00:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1D121838E407EF035B74A3441191EECAA88DE6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298534   (601735) от 28.04.2019
+
+Bear McCreary - Godzilla: King of Monsters / Годзилла 2: Король монстров (Original Motion Picture Soundtrack) (2019) Single [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601735.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godzilla (feat. Serj Tankian) (03:10)
+02. Old Rivals (03:50)Жанр: Soundtrack, ScoreПродолжительность: 00:07:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8942D57776D9E38EBEC56944EA876D2E5A6DBD81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1298525   (601683) от 28.04.2019
+
+VA - Игра престолов / For The Throne (Music Inspired by the HBO Series Game of Thrones) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_601683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maren Morris - Kingdom of One (03:36)
+02. SZA, The Weeknd, Travis Scott – Power is Power (03:31)
+03. The Lumineers - Nightshade (03:01)
+04. Ellie Goulding - Hollow Crown (02:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2D32730A6A2F79BB1F06393E2EDEAF2326571C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 913970   (601149) от 30.06.2015
 
 Deva Premal & Miten with Manose - Songs For The Sangha (2015) [MP3|320 кб/с]<New Age, Meditative, Mantras>
@@ -566,215 +765,6 @@ Ewan Dobson - 2 Альбома (2008, 2010) [FLAC|Lossless|tracks + .cue] <Acous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8324EBC58AC27B0CD74D78C967F7B0D8A696108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526195   (597056) от 24.07.2012
-
-Fausto Papetti - Collections (2009) [FLAC|Lossless|image + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фаусто Папетти был на вершине славы в 1960—1970 гг., и почти каждый его новый альбом достигал вершин хит-парадов. Его сборники выпускались даже на латиноамериканском рынке. В 1970 гг., на пике своей популярности, он выпускал по два альбома в год. Особенностью его сборников также стали сексуальные обложки, на которых изображались обнаженные девушки. Самым продаваемым (   Читать дальше...   )1.  A Whiter Shade Of Pale (2:59)
-2.  All The Time In The World (3:21)
-3.  You're The First, The Last, My Everything (3:07)
-4.  Stayin' Alive (4:34)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F2C98A51133311804F932601852933260C0FF95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 526603   (596889) от 24.07.2012
-
-В. Цой - Кино в Кино (2002) [MP3|320 кб/с]<Rock>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дальше действовать будем мы [03:52]
- 02. Закрой за мной дверь, я ухожу [03:59]
- 03. Раньше в твоих глазах... [02:24]
- 04. Попробуй спеть вместе со мной [05:14]
- 05. Перемен! [05:14]
- 06. Звезда по имени Солнце [03:24]
- 07. Группа крови [04:21]
- 08. Невеселая песня [05:49]
- 09. Следи за собой [05:26]
- 10. Моро едет к морю [02:22](   Читать дальше...   )Жанр: RockПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC7532414615CB5F716678BF17EAC613E09409CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149878   (596610) от 13.07.2017
-
-Amure - 8 albums (2010-2015) [FLAC|Lossless|WEB|tracks] <New Age, Enigmatic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Фантазия №1 (05:51)
-02. Фантазия №2 (Аллилуя) (05:52)
-03. Фантазия №3 (Rock'n'Roll Mega Drive) (06:39)
-04. Фантазия №4 (06:46)(   Читать дальше...   )Жанр: New Age, EnigmaticПродолжительность: 09:51:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF9457DDB75FF68260C5032791FB70B5CC036EEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232844   (596358) от 26.06.2018
-
-Kimberly Haynes - In Dreams (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Folk>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kabir's Song
-02. Interlude - Sangeeta’s Soul
-03. I Am Light
-04. Interlude - Sangeeta’s Light(   Читать дальше...   )Жанр: New Age, FolkПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6FAF7E8D4F2C3E25085F403D7AF8E359B9D9B20
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1299643   (595971) от 03.05.2019
-
-Muddy Waters - Folk Singer (2013) 1964 [FLAC 2.0|192/24|tracks|WEB-DL]<Blues, Folk>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Home Is In The Delta
-02 - Long Distance Call
-03 - My Captain
-04 - Good Morning Little Schoolgirl(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C396E9651DC6F6ED9077152974C3415E17E7766
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039451   (595959) от 01.08.2016
-
-Shine Dion - два альбома (1998, 2002) [MP3|192 Kbps, 320 kbps] <folk rock, celtic, psychedelic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Flow 3:00
-02.Mockingbird 3:12
-03.Woods Eternal 4:04
-04.Melancthe 3:48(   Читать дальше...   )Жанр: folk rock, celtic, psychedelicПродолжительность: 01:26:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C3A5A57A66CB39854319B018BD0BC8931786A76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038762   (595919) от 01.08.2016
-
-Young Summer - Siren (2014) [MP3|320 Kbps] <Indie pop, Alternative>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_595919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Striking Distance
-02. Blood Love
-03. Taken
-04. Sons of Lightning(   Читать дальше...   )Жанр: Indie pop, AlternativeПродолжительность: 00:46:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C46530BAE9FDF2BD0109426A1BF59DF67CC077
 ```
 
 https://mybot314.ru/tekegram_catalog/

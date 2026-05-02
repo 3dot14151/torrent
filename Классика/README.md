@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1866460   (1066159) от 20.04.2026
+
+VA - The Best of Classical Piano (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 16 in C Major, K. 545 Sonata semplice I. Allegro (3:08)
+02. Katya Kramer-Lapin - Pavane, Op. 50 (Arr. for Piano by Chris Sennett) (5:35)
+03. Katya Kramer-Lapin - Goldberg Variations, BWV 988 Aria (5:28)
+04. Sergey Bryukhno - Dans la lumière I. Modéré et calme (1:26)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C9350D0C088477D8CB6B45ED9A44E6D4F4EBF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1863278   (1063460) от 04.04.2026
 
 Z. Richard Rowling - Gnossiennes Jazz Noir (2025) [MP3|320 Kbps] <Jazz Noir, Piano, Compositional Ambient>
@@ -718,37 +747,6 @@ Also Sprach Zarathustra, Op. 30, TrV 176
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4E90E3999452C924EC7435322885A2A5AA0767D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1414966   (1029937) от 21.02.2021
-
-NeoBarock – J.S. Bach: Metamorphose (2019) Ambitus [FLAC 2.0|44.1/24|tracks|WEB-DL] <Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029937.jpg" />
-</div>
-
-
-###  Подробнее
-
-Как уже отмечали музыковеды ХХ века, некоторые композиционные структуры Иоганна Себастьяна Баха (1685–1750) ясно показывают, что они основаны на транскрипциях.
-
-NeoBaroque делает эти находки слышимыми и представляет реконструкцию предполагаемых оригинальных версий знаменитого Двойного концерта для двух скрипок (BWV 1043), скрипичной сонаты ля мажор (BWV 1015) и двух (   Читать дальше...   )Sonate G-Moll (Rekonstruktion der vermuteten Urfassungen für 2 Violinen und Basso continuo nach BWV 1029):
-01. I. Vivace (04:52)
-02. II. Adagio (05:06)
-03. III. Allegro (03:54)Жанр: ClassicalПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23D4647130A7023034B4987D026378C801B16F6B
 ```
 
 https://mybot314.ru/tekegram_catalog/

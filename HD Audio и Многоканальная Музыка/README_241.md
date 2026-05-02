@@ -1,3 +1,174 @@
+###  Публикация: 1774905   (30002) от 23.01.2025
+
+Dream Theater - Midnight Messiah (2025) EP [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_30002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Midnight Messiah (07:58)
+02. Midnight Messiah (Radio Edit) (05:13)
+03. A Broken Man (08:29)
+04. Night Terror (09:55)Жанр: Progressive MetalПродолжительность: 00:31:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7312A4E88751A46172364A5C1B53B5ED069AE3CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625216   (29938) от 24.01.2025
+
+Venom (& Venom inc., ex-M:Pire of Evil) - Studio Albums (11 releases) (1997-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <NWOBHM, Speed/Thrash/Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_29938.jpg" />
+</div>
+
+
+###  Подробнее
+
+Venom — британская метал-группа, образованная в 1979 году. Наряду с Motörhead, оказавшими на Venom самое непосредственное влияние, считается одной из прото-трэшевых команд, но при этом, как и Mercyful Fate, относится к первой волне блэк-метала.1997 - Cast In Stone
+2000 - Resurrection
+2006 - Metal Black
+2008 - Hell(   Читать дальше...   )Жанр: NWOBHM, Speed/Thrash/Black MetalПродолжительность: 11:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCFEC495EA2D2F3C2B314D4991DC7E058269ABFE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775165   (29797) от 25.01.2025
+
+Linkin Park - From Zero: A Cappellas (2025) [FLAC 24/48,96|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29797.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Zero (Intro) (A Cappella) (0:22)
+02. The Emptiness Machine (A Cappella) (3:05)
+03. Cut the Bridge (A Cappella) (3:21)
+04. Heavy Is the Crown (A Cappella) (2:18)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:29:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA2AAC9E4056685705D5EBF042A60F4E225B6B3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776211   (29233) от 31.01.2025
+
+VA & Atomic Heart - Atomic Heart, Vol. 5 (2025) Original Game Soundtrack [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock, Orchestra, Phonk, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_29233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Юлия Коган, Frenetic Virtual Orchestra, Geoffplaysguitar, Atomic Heart - В синем море, в белой пене (Оставайся, мальчик, с нами)Жанр: Rock, Orchestra, Phonk, AmbientПродолжительность: 01:22:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03728DA8AAB64857181DECD845ED571D3B801EC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776581   (28881) от 02.02.2025
+
+The Weeknd - Hurry Up Tomorrow (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Soul/Funk/R&B>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28881.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Wake Me Up (05:09)
+2. Cry For Me (03:44)
+3. I Can't Fucking Sing (00:12)
+4. São Paulo (05:02)(   Читать дальше...   )Жанр: Soul/Funk/R&BПродолжительность: 01:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70F156327CAB96E623E2F9F029B52E617D96EC08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1776702   (28862) от 02.02.2025
+
+Hans Zimmer - The World of Hans Zimmer - Part II: A New Dimension (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classical>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_28862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Dark Knight: Why Do We Fall? [00:04:31]
+02. Part 1 [00:02:40]
+03. Part 2 [00:06:48]
+04. Part 3, Now We Are Free [00:03:57](   Читать дальше...   )Жанр: ClassicalПродолжительность: 2 CD, 01:57:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2909BEF43E5B2C029776B3B713D5AABD426B8A98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605211   (28705) от 04.02.2025
 
 Александр Галич - Ночной Дозор (1990) [FLAC 2.0|88,2/24|image +.cue|Vinyl-Rip] <Chancone>
@@ -572,180 +743,6 @@ Lisa - Alter Ego (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electropop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27EC2605BBB6ACF1A992E240BDFAFCDDC454C2BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705259   (25749) от 04.03.2025
-
-Thundermother (& The Gems) - Studio Albums (7 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25749.jpg" />
-</div>
-
-
-###  Подробнее
-
-Thundermother - шведская рок-группа, основанная в 2010 году.2014 - Rock 'n' Roll Disaster
-2015 - Road Fever
-2018 - Thundermother
-2021 - Heat WaveЖанр: Hard RockПродолжительность: 05:14:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFF1734C1724A3A9B23CC97F779C868C9E96790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783083   (25734) от 04.03.2025
-
-Medusian - Library (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Extreme Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wandering Soul [00:01:15]
-02. Facestealer [00:05:31]
-03. Bull of Crete [00:05:20]
-04. Bottom of the Well [00:05:42](   Читать дальше...   )Жанр: Extreme Symphonic MetalПродолжительность: 00:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7441B45829760210ED08763BBBF3C74293D77232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783159   (25729) от 04.03.2025
-
-Monika Hauff & Klaus-Dieter Henkler - Моника Хуфф и Клаус-Дитер Хенклер (1979) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25729.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Take Me Home, Country Roads
-A2 El Condor Pasa
-A3 Try A Little Kindness
-A4 Hace Un Año(   Читать дальше...   )Жанр: PopПродолжительность: 00:40:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:467C4C58E99006E65E1B2302813029D7C1F50EB8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1560684   (25556) от 06.03.2025
-
-Destruction - Studio albums (21 releases) (1984-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_25556.jpg" />
-</div>
-
-
-###  Подробнее
-
-Destruction — трэш-метал-группа из Германии, основанная в 1982 году. Изначально группа называлась «Knight of Demon», но была переименована ещё до выхода первого альбома. Destruction — одна из четырёх наиболее влиятельных групп немецкого трэш-метала, наряду с Kreator, Sodom и Tankard. Эти четыре группы составляют так называемую «большую тевтонскую четверку трэш-метала». (   Читать дальше...   )1984-1985 - Sentence Of Death (EP),  Infernal Overkill
-1986 - Eternal Devastation
-1987 - Mad Butcher (EP)
-1987 - Release From AgonyЖанр: Thrash MetalПродолжительность: 17:01:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F9AC54AAEE8B9849808BDACFEC0438B8E7C335D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783558   (25521) от 06.03.2025
-
-Jethro Tull - Curious Ruminant (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Prog Rock, Folk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25521.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Puppet and the Puppet Master (4:05)
-02. Curious Ruminant (6:00)
-03. Dunsinane Hill (4:18)
-04. The Tipu House (3:31)(   Читать дальше...   )Жанр: Prog Rock, FolkПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCCDF8A72191C3ACE1206918BA1AA21A88145E80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1783409   (25516) от 06.03.2025
-
-serpentwithfeet - GRIP SEQUEL (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R&B, around trip-hop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_25516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damn Gloves [00:02:31]
-02. Safe Word [00:02:46]
-03. Spades [00:03:25]
-04. Deep End [00:02:46](   Читать дальше...   )Жанр: R&B, around trip-hopПродолжительность: 00:29:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A38796B214D442CDA14D3EDFFB775C967E526AC
 ```
 
 https://mybot314.ru/tekegram_catalog/

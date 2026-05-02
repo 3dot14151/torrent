@@ -1,3 +1,61 @@
+###  Публикация: 1698495   (118406) от 09.02.2024
+
+Abdullah Ibrahim - Voice Of Africa (1988) 1998, Camden [FLAC|Lossless|tracks + .cue] <African Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118406.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Lightning [14:28]
+02. Little Boy [8:31]
+03. Black and Brown Cherries [7:26]
+04. Ntyilo Ntyilo [4:54](   Читать дальше...   )Жанр: African Jazz, Post-BopПродолжительность: 01:01:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2B8FC624FE4785FD2DA2B4EBE3D3A13E75B9D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1698672   (118253) от 10.02.2024
+
+Angelo Debarre with Tim Kliphuis - Live At Djangofest Northwest (2005) Gypsy Jazz [FLAC|Lossless|tracks + .cue] <Swing, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swing Gitan [4:17]
+02. Twelfth Year [3:21]
+03. Entre Amis [3:51]
+04. R-Vingt Six [4:31](   Читать дальше...   )Жанр: Swing, Guitar JazzПродолжительность: 00:44:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E4D5405D41CB70FCDAD3D3049F72606F24ABB85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1698751   (118243) от 10.02.2024
 
 Patti Austin - Patti Austin Love Songs (2024) Compilation [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Soul, R&B>
@@ -687,64 +745,6 @@ Donald Byrd - Four Classic Albums (1958 - 1961) 2CD, 2022, Avid Jazz [FLAC|Lossl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA69D18496E9D0D7D48626B8BC453F186BB3A4D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699789   (117379) от 15.02.2024
-
-Patrick Mautner - Uptown Downtown (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uptown Downtown (5:20)
-02. Arriving on Exoplanet 124 (3:57)
-03. Light Years (5:14)
-04. Double Yellow (4:22)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 00:28:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ABEE938434402DF9138214E54DB0F05703DD445
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699931   (117369) от 15.02.2024
-
-Alan Broadbent Trio - Like Minds (2022) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117369.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This I Dig of You [6:25]
-02. Prelude to Peace [8:26]
-03. With the Wind and the Rain in Your Hair [7:19]
-04. Dance Only with Me [5:17](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:59:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F4A796F750B48E023CF19F6B9FE83EB949DCDFD
 ```
 
 https://mybot314.ru/tekegram_catalog/

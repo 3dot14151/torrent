@@ -1,3 +1,61 @@
+###  Публикация: 1101579   (893144) от 08.02.2017
+
+Tom Scott - Reed My Lips (1994) [FLAC|Lossless|tracks + .cue] <Jazz, Fusion, Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893144.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Upbeat 90s - 4:27
+02. Sarah, Sarah - 5:22
+03. Reed My Lips - 5:42
+04. Jungle Wave - 5:22(   Читать дальше...   )Жанр: Jazz, Fusion, Smooth JazzПродолжительность: 00:40:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDCE0B0ABC79CE360107AC6E764AFD7489014010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1101720   (893141) от 08.02.2017
+
+VA - Blue Moods: New Voices New Directions (1996) Blue Note[FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_893141.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Dianne Reeves - Smile [04:16]
+ 02.Holly Cole - (Looking For) The Heart Of Saturday Night [03:41]
+ 03.Marisa Monte - O Ceu [03:38]
+ 04.Cassandra Wilson - A Little Warm Death [05:48](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:30:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194EF900297E0ADA07D461C56702FA2857CA5F7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1102064   (893132) от 08.02.2017
 
 Stanley Turrentine - Do You Have Any Sugar? (1999) [APE|Lossless|image + .cue] <Hard Bop, Soul-Jazz>
@@ -687,64 +745,6 @@ Pat Metheny - Road to the Sun (2021) [FLAC|Lossless|tracks + .cue] <Fusion>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81F5260F7F56C4C588532C42D2B72A14DE37F4F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371776   (888714) от 01.04.2020
-
-Joe Bushkin Featuring Buck Clayton - Three Classic Albums Plus 1946 - 1951 (2013) 2CD, Avid Jazz [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888714.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dinah [3:26]
-02. If I Had You [2:44]
-03. Once In A While [3:02](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 02:39:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F846C1DB3BCF160CC61F007EF29116EF5BA78AE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1371912   (888703) от 01.04.2020
-
-Various - A Twist of Jobim (1997) [FLAC|Lossless|image + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_888703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lee Ritenour & Dave Grusin - Water To Drink (Agua De Beber)
-02. Eric Marienthal, Dave Grusin, & Lee Ritenour - Captain Bacardi
-03. El Debarge & Art Porter - Dindi
-04. Al Jarreau & Oleta Adams - Waters Of March(   Читать дальше...   )Жанр: JazzПродолжительность: 00:57:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FCF2CC001CA6C1FAE8D820C6DC43EEB546AC0BCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

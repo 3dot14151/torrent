@@ -1,3 +1,119 @@
+###  Публикация: 1808430   (64982) от 24.07.2025
+
+The Mighty Redox - Love's A Demon (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Love's A Demon (5:17)
+02.  What's My Name (2:59)
+03.  Why Wait (4:30)
+04.  Bad Light (3:47)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D806C1A63167052A80D6E85B995CC68ED81E0AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1316225   (62694) от 17.03.2024
+
+Lonnie Brooks - 12 Albums (1975 - 1999) 14 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62694.jpg" />
+</div>
+
+
+###  Подробнее
+
+Lonnie Brooks (born Lee Baker Jr., December 18, 1933 - April 1, 2017) американский блюзовый певец, гитарист. На протяжении своей долгой музыкальной карьеры он перепробовал множество стилей, начав с рок-н-ролла и ритм-энд-блюза. Но с годами он выработал свой индивидуальный блюзовый почерк. В конце 90-х Лонни Брукс стал очевидным лидером чикагского блюза. Лонни Брукс (   Читать дальше...   )Список альбомов:
+1975 - Sweet Home Chicago
+1979 - Bayou Lightning
+1980 - Turn On The NightЖанр: Chicago BluesПродолжительность: 11:28:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29B5BC7081FFAB0FC49AFC6937ED6429BB013BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1708497   (62229) от 21.03.2024
+
+VA - Country Blues & Whiskey (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_62229.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sturgill Simpson - All Around You (3:36)
+02. Kaleo - Broken Bones (4:06)
+03. Zach Bryan - Oklahoma Smokeshow (3:32)
+04. Willie Nelson - Whiskey River (4:04)(   Читать дальше...   )Жанр: Blues, CountryПродолжительность: 01:48:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:759CAD6E5BFA64BC5F0D6D80C565A3823AB3E459
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1344161   (61627) от 27.03.2024
+
+Coco Montoya - 12 Albums (1994 - 2023) 13 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_61627.jpg" />
+</div>
+
+
+###  Подробнее
+
+После выхода дебютного альбома “Gotta Mind To Travel” о Coco Montoya стали говорить как о талантливом гитаристе и вокалисте, как о “новом имени” в блюзе, но истинный ценитель блюза сказал бы куда больше. Продолжительная игра этого молодого гитариста сначала вместе с величайшим мастером телекастера блюзмэном Albert Collins, а потом и с ветераном британского блюза (   Читать дальше...   )Список альбомов:
+1994 - Gotta Mind To Travel
+1996 - Ya Think I'd Know Better
+1997 - Just Let GoЖанр: Modern Electric BluesПродолжительность: 12:31:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B12031017FD314F50F885B64F0E647A1237CA98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1287502   (60509) от 07.04.2024
 
 Jimmy Thackery - 25 Albums (1992 - 2016) 28 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Modern Electric, Blues-Rock>
@@ -629,122 +745,6 @@ The Dennis Spencer Group - Bluesman from Jupiter (2024) [FLAC|Lossless|WEB-DL|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1A225936A0A5CBDEDAAAF25738189AF6BDC33DB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 427972   (41440) от 05.10.2024
-
-Colin James - 20 альбомов (1988 - 2024) [FLAC|Lossless|image + .cue|tracks + .cue] <Blues, Rock, Swing>
-
->>След.
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41440.jpg" />
-</div>
-
-
-###  Подробнее
-
-Colin James вне всякого сомнения один из самых заметных персонажей современной блюзовой сцены Канады, о чём говорят например 6 наград Juno (местный эквивалент Грэмми) за 90-е годы. Одно время его называли даже канадским Stevie Ray Vaughan, имея в виду прежде всего виртуозный искромётный гитарный стиль. Именно бессмертный Stevie Ray взял девятнадцатилетнего Colin (   Читать дальше...   )Список альбомов:
-1988 - Colin James
-1990 - Sudden Stop
-1993 - And The Little Big BandЖанр: Blues / Rock / SwingПродолжительность: 16:26:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:975FF2C7443B9677329B7019FB178459C1EA414E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753962   (41160) от 07.10.2024
-
-Gavin Harper - Mixed Emotions (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Howl of the Wolf (3:46)
-02. 3 Hearts of Gold (4:24)
-03. Autumn Leaves (3:05)
-04. Too Cold to Cry (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6E02F3619B84F24219F80ECCAFADA9FADFB799F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753966   (41157) от 07.10.2024
-
-Greyhound's Washboard Band - Don't Ditch It (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Blues (Will Not Leave Me Alone) (4:28)
-02. Don't Tell Me About The Future (3:41)
-03. Things Ain't Going Your Way (3:16)
-04. Bad Temper Joe - Don't Ditch It (5:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF24F52D3A45B316CC23595019B7A1B5F427EB0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1753960   (41156) от 07.10.2024
-
-Eric Turner Band - Midnight Train (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41156.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Might Be The Midnight Train (3:44)
-02. Glory To God (0:34)
-03. Wonderful One (2:27)
-04. Every Good And Perfect Gift (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E385A4F2CA4E41FD85252182DCA3C7D8FB13E3D2
 ```
 
 https://mybot314.ru/tekegram_catalog/

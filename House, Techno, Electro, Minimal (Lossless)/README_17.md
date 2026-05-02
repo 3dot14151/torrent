@@ -1,3 +1,32 @@
+###  Публикация: 1196478   (822552) от 03.01.2018
+
+VA - Focus On Nicholas Van Orton (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholas Van Orton - Artras (Original Mix) [08:35]
+02. Nicholas Van Orton - Flamas (Original Mix) [08:25]
+03. Nicholas Van Orton - Radient (Original Mix) [07:07]
+04. Nicholas Van Orton - Hay Grises (Original Mix) [08:15](   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 02:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B15E1E00920132F4A2C5BD5AF40D875C7ADE715F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196600   (822423) от 03.01.2018
 
 VA - Inner Symphony Gold 2017 (2018) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Chill House>
@@ -707,35 +736,6 @@ VA - Dream Minimal (2016) [FLAC|Lossless|WEB-DL|tracks] <Minimal, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C8E2E89E60394E66037CBCD1F9C23424E260D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198945   (801843) от 15.01.2018
-
-Hed Kandi - World Series: Tokyo (2010) [FLAC|Lossless|tracks] <Progressive House, Vocal House, Funky House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_801843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hardrive - Deep Inside (Harry Choo Choo Romeros Fun in the Sun Remix Edit) (3:31)
-02. Dennis Ferrer - Hey Hey (DF's Attention Vocal Mix) (6:21)
-03. Simian Mobile Disco - Cruel Intentions (DJ Pierre Remix) (3:20)
-04. Ian Carey Feat. Michelle Shellers - Keep On Rising (Nicky Romero Remix) (4:20)(   Читать дальше...   )Жанр: Progressive House, Vocal House, Funky HouseПродолжительность: 02:35:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52DE1E66ECF4576ED783424D57F7882A62F31729
 ```
 
 https://mybot314.ru/tekegram_catalog/

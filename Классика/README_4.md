@@ -1,3 +1,32 @@
+###  Публикация: 978058   (961955) от 24.01.2016
+
+Lev Oborin, David Oistrakh, Svyatoslav Knushevitckiy - Beethoven - Piano Trio in C minor, Triple Concerto (2011) [FLAC|Lossles|tracks + .cue] Classical, Classicism
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_961955.jpg" />
+</div>
+
+
+###  Подробнее
+
+Piano Trio in C minor, op. 1 no. 3
+01 (1) Allegro con brio
+02 (2) Andante cantabile con variazioni
+03 (3) Menuetto. Quasi allegro(   Читать дальше...   )Жанр: Классическая музыка, Classical, Classicism, Chamber, Concerto, TrioПродолжительность: 01:04:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F3AD6E670BE05B840C22E54EC106E18E6BDE562
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 75291   (961903) от 24.01.2016
 
 VA - 101 Classics: The Best Loved Classical Melodies (1998) 8CD [APE|image + .cue]<Classical>
@@ -716,35 +745,6 @@ Enrico Caruso - Grand Collection (2006) [FLAC|Lossless|tracks + .cue] <Classical
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CF94C9CCC49D17AEC61C178F416A3DFB5C5F1D8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983517   (943613) от 06.02.2016
-
-Saint-Saens - Carnival of the Animals, Danse macabre, Symphony 3 (2009) (Ormandy, Entremont, Power Biggs) [FLAC|Lossless|Track+.cue] <Классическая музыка, Classical>
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943613.jpg" />
-</div>
-
-
-###  Подробнее
-
-Symphony no. 3 in C major, op. 78 "Organ"
-01 -1a- Adagio
-02 -1b- Allegro moderato
-03 -1c- Poco adagio(   Читать дальше...   )Жанр: Классическая музыка, Classical, Romanticism, SymphonyПродолжительность: 01:15:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5ADADC77874E07BB8589A8390EB8F7C09822EE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

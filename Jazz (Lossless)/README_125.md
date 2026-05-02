@@ -1,3 +1,57 @@
+###  Публикация: 1293331   (637673) от 03.04.2019
+
+Fugu Quintet (Fugu Quartet) - Sisyphus (2016) EP [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Post Metal, Stoner Doom>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637673.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Through The Ground (6:58)
+02. Sisyphus (5:20)
+03. Unnamed (6:40)Жанр: Dark Jazz, Post Metal, Stoner DoomПродолжительность: 00:18:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A909C04F4E44DCB6F55A402CA4B1C07725C62C11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293330   (637672) от 03.04.2019
+
+Fugu Quintet - Circus (2017) Single [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Jazzcore, Experiemental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637672.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Circus (4:53)Жанр: Dark Jazz, Jazzcore, ExperiementalПродолжительность: 00:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCF1310CBE2E15C189C023E5B36401DB5CED3790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293347   (637669) от 03.04.2019
 
 Dizzy Gillespie All Star Sessions - Three Classic Albums Plus (1955 - 1957) 2CD, 2009, Avid Jazz [FLAC|Lossless|tracks + .cue] <Bop>
@@ -687,64 +741,6 @@ Members Of The Benny Goodman Orchestra - A Tribute To Benny Goodman (1998) Green
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6AD007B391E9D97226500325E1C7BFABFCF620D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034853   (632676) от 14.07.2016
-
-Jeremy Steig - Fusion (1970) Groove Merchant[APE|Lossless|image + .cue] <Jazz Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632676.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Home [04:40]
- 02.Cakes [04:53]
- 03.Swamp Carol [04:12]
- 04.Energy [04:51](   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 01:18:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E0A53DAAADBB867A3BF97F965E7D81457D9CDA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908665   (632493) от 15.06.2015
-
-Bobby Hutcherson - Linger Lane (2012) [FLAC|Lossless]<Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_632493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. People Make The World Go Round [08:53]
-02. Theme from 'M*A*S*H' [04:33]
-03. NTU [05:55]
-04. Manzanita [04:04](   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA5BFAA585261995916C62B730F7F3527121970B
 ```
 
 https://mybot314.ru/tekegram_catalog/

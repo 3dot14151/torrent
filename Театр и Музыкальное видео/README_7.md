@@ -1,3 +1,94 @@
+###  Публикация: 597822   (1000415) от 02.01.2013
+
+URIAH HEEP - Magic Night (THE MAGICIANS BIRTHDAY PARTY 2003) DVDRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000415.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта, состоявшегося 8 ноября 2003 года в Лондоне, в театре "Астория". Специальный гость - John Lawton.01. Easy Livin' (2:38)
+02. Shadows Of Grief (6:11)
+03. Pilgrim (6:18)
+04. Bad Bad Man (3:39)
+05. Devil's Daughter (4:44)
+06. Wise Man (4:12)
+07. Too Scared To Run (4:00)
+08. Firefly (1:59)
+09. Heartless Land (1:48)
+10. Free Me (3:25)(   Читать дальше...   )Жанр: Концерт, Hard RockПродолжительность: 01:29:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63D5604E3313418103D7841E9777DFBA430D7D33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597472   (1000377) от 02.01.2013
+
+DVJ Bazuka - Happy Vodka Bithez (2012) [H.264/720p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия раздач отЖанр: House, ElectroПродолжительность: 00:02:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E8B7A6905967BC2447F0DF3CDA163E701C2C0B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 597680   (1000357) от 02.01.2013
+
+Песня года. Части №1-2  (2013) SATRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1000357.jpg" />
+</div>
+
+
+###  Подробнее
+
+На телеканале "Россия" главный концерт страны! Участвуют все звезды!
+Каждый раз в первые дни нового года мы с радостью слышим позывные любимой программы: "Через годы, через расстояния, На любой дороге, в стороне любой Песне ты не скажешь "до свидания", Песня не прощается с тобой…"01 часть:
+01. Тимати и Г. Лепс - Лондон
+02. Буранвские бабушки - Party for everybady
+03. Кристина Орбакайте - Ультрафиолет(   Читать дальше...   )Жанр: КонцертПродолжительность: 2 х ~ 02:05:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73924D3A52DA3A846DE4533EBA0F779E4F187347
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 597390   (1000331) от 02.01.2013
 
 David Garrett: Music Live In Concert (2012) Blu-Ray
@@ -682,87 +773,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600169   (998759) от 08.01.2013
-
-Adele - Live at the Royal Albert Hall (2011) [H.264] BDRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концерт Adele в The Royal Albert Hall состоявшийся 22 сентября 2011 года...01. Hometown Glory
-02. I'll Be Waiting
-03. Don't You Remember
-04. Turning Tables(   Читать дальше...   )Жанр: R&B, Soul, Gospel, BluesПродолжительность: 01:39:24
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600635   (998559) от 09.01.2013
-
-Kasino feat Elicia Solis - All For You (2012) [H.264/720p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Hip-hopПродолжительность: 00:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36A1018CC895AE8DFD80A348D2779E1B80D6F147
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600638   (998531) от 09.01.2013
-
-Gotay El Autentiko - Sexo Toda La Noche (2012) [H.264/1080p] WEBRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998531.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 00:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29AAC356EF5AF60371C98D64036970C11E5F919
 ```
 
 https://mybot314.ru/tekegram_catalog/

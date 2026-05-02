@@ -1,3 +1,224 @@
+###  Публикация: 1037854   (611773) от 25.07.2016
+
+Claude Ciari - La Playa (Platinum Best)2CD (2013) [FLAC|Lossless|tracks + .cue] <Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Playa
+02. Solenzara
+03. Recuerdos De La Alhanbra
+04. Marina Elena(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 01:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3490671A0FEFACC12BBF38EE5163032D447FD1E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 221943   (611421) от 26.07.2010
+
+VA - Chillout Best Session (2008) [MP3|320 kbps]<Electronic, ChillOut, Ambient, Enigmatic>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_611421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Tyrello - Infinity, Eternity, Extasy
+02. Code 14 - No Limits
+03. Jason Tyrello - Rain Sunday
+04. Hipnotic - Share Your Dreams
+05. Jason Tyrello - What The Memories Say
+06. Mahoroba - Le Monde
+07. Dreamscape - Khamsin
+08. Plasma - Under Control
+09. Hipnotic - Past Present Future
+10. Silent Voices - Turn The Light 2 Eternity(   Читать дальше...   )Жанр: Electronic, ChillOut, Ambient, EnigmaticПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545839   (611234) от 21.04.2022
+
+Faun - Pagan (2022) [MP3|320 Kbps] <Folk, Medieval>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Galdra
+2. Halloween
+3. Gwydion
+4. Wainamoinen(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3195FBE49930C2A89AF845AB9AA7017A2CFB09D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1147001   (611093) от 01.07.2017
+
+VA - The Real... Country Collection (The Ultimate Collection) (2016) 3CD [FLAC|Lossless|tracks + .cue] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1
+01. The Carter Family: Can The Circle Be Unbroken
+02. Jimmie Rodgers: In The Jailhouse Now
+03. Flatt & Scruggs: Foggy Mountain Breakdown(   Читать дальше...   )Жанр: CountryПродолжительность: 02:21:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2228D8D2D1EE4DC4F0E72A9C1BA69A606B978AD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 524318   (611046) от 19.07.2012
+
+Hans Zimmer - The Dark Knight Rises / Тёмный Рыцарь: Возрождение Легенды(Original Motion Picture Soundtrack (2012) [AAC|258-285 кб/с (VBR)]<OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_611046.jpg" />
+</div>
+
+
+###  Подробнее
+
+1) A Storm Is Coming
+2) On Thin Ice
+3) Gotham's Reckoning
+4) Mind If I Cut In?
+5) Underground Army
+6) Born in Darkness
+7) The Fire Rises
+8) Nothing Out There
+9) Despair
+10) Fear Will Find You(   Читать дальше...   )Жанр: OSTПродолжительность: 01:08:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D981C168F534178FFF5CE3907C36864072E86B5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 523929   (610729) от 19.07.2012
+
+Nicolae Botgros si Orchestra Lautarii / Николай Ботгрос и Оркестр Лаутары - 4 Альбома (2001-2004) [MP3|320 кб/с]<Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610729.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1. Lautareasca lui Tregubencu (3:28)
+ 2. In drum spre casa (4:45)
+ 3. De trei ori in jurul mesei (2:31)
+ 4. Sirba la picior (3:19)
+ 5. Omagiu lui Ion Dragoi (3:07)
+ 6. Omagiu lui Constantin Mirea (2:45)
+ 7. Ileana neichi-i, Ileana (2:22)
+ 8. Sirba lui mos Vasile Zamfir (2:53)
+ 9. Hora in doua parti si cazaciocul (2:27)
+ 10. Melodie de dor (3:02)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C29FF5CCD20712A62C35562CD850B001E55B6392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1230915   (610512) от 15.06.2018
+
+Medwyn Goodall - Great Spirit 2 (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610512.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – To Run with Wolves
+02 – Where Owls Fly
+03 – Horse Whispers
+04 – Earth Mother(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BDE70A7E920116497E99BECD9E4AAA37F69D88B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912712   (610490) от 26.06.2015
 
 Lorne Balfe - Terminator Genisys (2015) [MP3|320 кб/с]<Soundtrack>
@@ -566,209 +787,6 @@ T Bone Burnett - The Criminal Under My Own Hat (1992) Reissue 2003 [FLAC|Lossles
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4CD559FE3DFC91CDD9158B2C343A9C5E1A5205CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1038010   (606601) от 28.07.2016
-
-Klaus Schulze's U.S.O. - Privée (2016) [MP3|320 Kbps] <Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Keyhole 4:02
-02. Privat 19:05
-03. Privée 16:43
-04. Private 25:01(   Читать дальше...   )Жанр: Electronic, AmbientПродолжительность: 01:08:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B7DCD4D2A02B39FE49B9C7D3BC11196B48538E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546698   (604487) от 25.04.2022
-
-Ginger Wildheart - The Pessimist's Companion (2018) Remastered, 2022, Wicked Cool Records [FLAC 2.0|48/24|WEB-DL|tracks] <Country Rock>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Aye (Oh You) (3:36)
-02. I Love You so Much I'm Leaving (2:56)
-03. In Reverse (3:28)
-04. You Will Let Me Down Again (2:39)(   Читать дальше...   )Жанр: Country RockПродолжительность: 00:52:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7999677C9D0D5851B2912C895EE49B8397EA5B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1546611   (604425) от 25.04.2022
-
-Faun - Märchen & Mythen (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk, Medieval>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Es war einmal
-02 - Rosenrot
-03 - Seemann
-04 - Hagazussa(   Читать дальше...   )Жанр: Folk, MedievalПродолжительность: 01:04:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9CC672C1B5D2E49C260BF1FE80A4D0A41ED78B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147954   (604312) от 05.07.2017
-
-Karushanti - Isle of Skye (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604312.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Long Road to Skye
-02. Skye Bridge
-03. Pure Sligachan
-04. Mealt Waterfall(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A90A3F7E8716EF22B1A4F9359A3BDF367E87C3CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062185   (604199) от 25.04.2022
-
-Francis Goya/Франсис Гойя - Романтический альбом (2006) 3CD [APE|Lossless|image + .cue] <Neo-Classical, Romantic>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballade pour Adeline '99
-02. Amor, amor, amor
-03. Besame Mucho
-04. Hero(   Читать дальше...   )Жанр: Neo-Classical, RomanticПродолжительность: 00:37:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F480F2C4163A284BB8D61781EA55E34C34C17899
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231550   (604141) от 19.06.2018
-
-Michael Giacchino - Incredibles / Суперсемейка (Original Soundtrack) (2004-2018) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Giacchino - Episode 2 (00:51)
-02. Michael Giacchino - A Tony Perspective (02:08)
-03. Michael Giacchino - Consider Yourselves Undermined! (05:13)
-04. Michael Giacchino - A Matter of Perception (01:50)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 02:10:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1F8AF92B4E7CA848FA4D92FF8F03836F0C607F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231549   (604132) от 19.06.2018
-
-Michael Giacchino - Incredibles / Суперсемейка (Original Soundtrack) (2004-2018) [FLAC|Lossless|tracks+.cue, tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604132.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Giacchino - Episode 2 (00:51)
-02. Michael Giacchino - A Tony Perspective (02:08)
-03. Michael Giacchino - Consider Yourselves Undermined! (05:13)
-04. Michael Giacchino - A Matter of Perception (01:50)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 02:10:28 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F57F9F8DA85B09AC61A8FD1DD57E65790D7447C3
 ```
 
 https://mybot314.ru/tekegram_catalog/

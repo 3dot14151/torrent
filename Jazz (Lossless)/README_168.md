@@ -1,3 +1,61 @@
+###  Публикация: 1158616   (492098) от 16.08.2017
+
+Stefan Kaempfert - Kaempfert Plays Kaempfert (2011) Edel Records [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492098.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Swingin' Safari [03:08]
+02. Spanish Eyes [02:44]
+03. Wonderland By Night [03:06]
+04. So What's New [02:16](   Читать дальше...   )Жанр: Jazz-Pop, Easy ListeningПродолжительность: 00:52:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD41048AC573B71CCA136FC9FA2D57E68FF1A97C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1404583   (491590) от 26.08.2020
+
+Lionel Hampton And His All-Stars - Air Mail Special (1953, 1954) 2007, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_491590.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Air Mail Special [7:38]
+02. Soft Winds [6:13]
+03. It's Only A Paper Moon [6:52]
+04. The Way You Look Tonight [11:11]Жанр: Mainstream JazzПродолжительность: 00:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:110A91FB5B445B08A76E60F4983D9F18CA2D81FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1404586   (491187) от 26.08.2020
 
 Stefon Harris & Blackout - Sonic Creed (2018) Motema [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -689,64 +747,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEE1501C5CCA8E772C762395EF2F58AE079EEB42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937594   (488318) от 15.09.2015
-
-Thomas (Tim) Hardin Trio - You Just Have A Listen To Jazz (1992) /Victor/[FLAC|image+.cue]<Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Only Have [04:25]
-02. Stay [04:44]
-03. Romantic Flight [04:18]
-04. I Love You [03:47](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:43:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25BB8C1C15CB630C50747D96E97CA7BF3975E8BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243829   (488292) от 29.08.2018
-
-Kyoto Jazz Sextet - Mission (2015) Universal [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_488292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Search for the New Land [9:10]
-02. Speak No Evil [8:39]
-03. The Melting Pot [7:29]
-04. Succotash [7:22](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:59:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A737C32361D2E67EBDBA28D29E1214E3264C7FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

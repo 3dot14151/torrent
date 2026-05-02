@@ -1,3 +1,29 @@
+###  Публикация: 1125591   (767722) от 15.04.2017
+
+Проекты - VideoHive - Summer Holiday II [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767722.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкий и стильный проект для создания динамичного слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F521FA90EBDF571B59AB56B0867D6A7B912E7FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125729   (767694) от 15.04.2017
 
 Проекты - VideoHive - Elegant Ambient Slideshow [AEP]
@@ -653,32 +679,6 @@ The Gallery - Галерея представляет собой красиво�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3EAA46A64FD7B4B4F556E1404759AD55D631530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395070   (758480) от 08.07.2020
-
-Проекты - VideoHive - History On The Walls - 26562958 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758480.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд-шоу или промо-ролика для освещения исторических событий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61AE3085854A98AB95D2215DE0EA20CB554400CD
 ```
 
 https://mybot314.ru/tekegram_catalog/

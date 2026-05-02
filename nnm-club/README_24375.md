@@ -1,232 +1,25 @@
-###  Публикация: 477456   (98534) от 04.04.2012
+###  Публикация: 1768160   (101129) от 24.12.2024
 
-Dj Gard - Best Of Volume 1 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tears Of Horizon (Breaking Dawn Mix) (02:23)
-02.The Rising Of a New Day (Original Mix) (09:07)
-03.Water (Original Mix) (05:13)
-04.Norther Lights (Extended Mix) (06:06)
-05.Falling Stars 9.0 (Radio Edit) (03:52)
-06.Nature 2.0 (Extended Mix) (09:04)
-07.No Silence (DNA Revolutions Remix) (08:28)
-08.When The Rain Falls (Original Mix) (03:52)
-09.The Beauty Of Life (Extended Mix) (09:28)
-10.Beach Breeze (Original Mix) (03:59)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:26:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7F934A86F61CED6E7986E701419837A3726C6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477721   (98533) от 04.04.2012
-
-VA - Муз-прорыв Record 50/50 (2012) [MP3|160-320 кб/с]<Club>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98533.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Stephane Coker - Без Тебя (Dj Nejtrino Club Edit Unreleased)
-02 David Guetta feat. Sia - Titanium (eSQUIRE remix)
-03 Женя Юдина - Дыши (DJ Южанин remix)
-04 Sarvi - Amore (Chuckie remix)
-05 NikitA - Машина (Dj Fisun remix)
-06 Tempo Giusto and Ima'gin - Oszma (original mix)
-07 Юлия Савичева - Сердцебиение (Trojan Project remix)
-08 Starkillers, Nadia Ali - Keep It Coming (original mix)
-09 Steel Deluxe - Сердце открой (Johan K remix)
-10 Magic Solutions - Lilly Was Here (club mix)2012Жанр: ClubПродолжительность: 08:50:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2055BB29F673634A6ECF985EB5C554FA523E402E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477690   (98531) от 04.04.2012
-
-Lonndom - Falen Fran Norr (2007) [MP3|192 кб/с]<Folk Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98531.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Vid Elden (01:38)
-2. Ripeluokte (06:24)
-3. Himlalågor (07:40)
-4. Tjåkkå (04:22)
-5. Stállo (06:03)
-6. Ripeluokte II (08:50)
-7. Nordafejd (05:41)
-8. På Fjället (04:22)
-
-"...Lönndom seems to be situated elsewhere, in its own still lively world, listening to inner and outer voices most of the civilized people in the Western societies might never hear, even when they made a trip into the outback - these two musicians have a truly individual and sensitive approach towards nature and spiritual matters..."(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A675062C8B45827EF5121DDB8FE5DF22F42E8B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478138   (98529) от 04.04.2012
-
-VA - ReOrder pres.  Silent Shore Selection Vol.2 (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Rocca - Time Happens Flying (Araya & Wach 'Polisia' Remix) 07:20
-02. Araya & Wach - Tunland (Aiera Remix) 07:11
-03. Miroslav Vrlik - Love In Us (Manuel Rocca Levitated Mix) 07:04
-04. Miroslav Vrlik - Sweetheart (Original Mix) 06:43
-05. Ahmed Romel - City Of Life (Running Man Remix) 08:46
-06. Ico - And She Made It All Of Light (Thomas G 303 Mix) 07:58
-07. Evo & Faveon - Essence (Denis Sender Remix) 07:01
-08. K-Narf & Tristan Armes - Glimmer (N&R Project Remix) 07:57
-09. Kaimo Kerge - For What Its Worth (Airway 7 Vs Alter Future Remix) 07:53
-10. Inca - Time (Original Mix) 08:362012Жанр: TranceПродолжительность: 01:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:489BABA50135FB59CD2814ACC6E1F3A42DE421BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477232   (98526) от 03.04.2012
-
-VA - Club Mix (2012) [MP3|256 kbps]<Club | Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Youlee - Ohne Dich (Ole van Dansk Remix)
-02. Ole van Dansk - Mary's Prayer
-03. Aboutblank & KLC feat. DJ Bo - Gansehaut (Im 7. Himmel)
-04. EDX feat. Sarah McLeod - Falling Out Of Love (Justin Michael Mix)
-05. Brooklyn Bounce - Canda
-06. Cosmic Gate & Arney - Sometimes They Come Back For More
-07. Michael Mind Project - Rio de Janeiro
-08. Mike Candys & Evelyn - Around The World
-09. ATB with Amurai feat. Melissa Loretta - Heartbeat
-10. Kamil Esten - Sunrise (Reminder Remix )(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 06:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1EC29A0C47A5B6A1280D5F3E5B045D46627C7FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477492   (98525) от 03.04.2012
-
-Sumatra PDF 2.0 Final + Portable [Мульти, есть русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98525.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — это программа для просмотра файлов в формате PDF с минималистическим интерфейсом и только самыми необходимыми функциями. Основным приоритетом и достоинством программы является простота и высокая скорость работы. Остается добавить, что помимо прочих достоинств Sumatra PDF еще и полностью бесплатен и распространяется, в том числе, и на основе открытых исходных кодов.Название программы: Sumatra PDFЯзык интерфейса: Мульти, есть русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477231   (98524) от 03.04.2012
-
-Najee - My Point of View (2005) [FLAC|Lossless]<Jazz, Smooth Jazz>
+Flickering Alley - Lanterns in the Fog (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101129.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1.Sidewayz (5:34)
-2.3 A.M. (5:12)
-3.Fallin' in Love with You (5:09)
-4.Back in the Day (4:37)
-5.Charm (3:30)
-6.My Point of View (4:40)
-7.2nd 2 None (3:50)
-8.Emotional (4:03)
-9.How Lovely You Are (5:16)
-10.Miyuki (3:55)2005Жанр: Jazz, Smooth JazzПродолжительность: 00:45:46
+01. Streets of Saffron Glow (3:54)
+02. Footsteps Beneath Amber (2:33)
+03. The Lightkeeper's Trail (2:41)
+04. Fragments Beneath the Glow (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:53
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:E9C8EB14AD719FAE793032E56FD0287828C0F52C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -234,25 +27,109 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477726   (98523) от 03.04.2012
+###  Публикация: 1768644   (101128) от 25.12.2024
 
-Журнал | Моя любимая дача №5 [май 2012] [PDF]
+Isa Nielsen - Break The Chains (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock & Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101128.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Break The Chains (4:07)
+02. Wild Soul (3:09)
+03. Rebel For Life (2:44)
+04. Waiting For The Break Of Dawn (2:55)(   Читать дальше...   )Жанр: Hard Rock & MetalПродолжительность: 00:26:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31BFEAB7DDB1BA9F1DD49FDCE07B330771EF8B2D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768666   (101127) от 25.12.2024
+
+Sensual Chill Saxaphone Band, Erotica - Shades of Erotica (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Morning Jazz Serenade (3:54)
+02. Coffee Dreams Melodies (4:12)
+03. Dawn's Delight Ballads (3:23)
+04. Jazz Lounge Harmony (3:12)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:36:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E56AD6106901A1386E749709FA8816EB2608D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768579   (101126) от 25.12.2024
+
+Преподобный Варсонофий Великий и др. | Руководство к духовной жизни (2011) [PDF, FB2, EPUB, MOBI, TXT, FB3, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101126.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга наставлений древних палестинских отцов Варсонофия Великого и Иоанна Пророка, предлагаемая вниманию благочестивого читателя, издавна считается одним из важнейших пособий по практической аскетике. За советом и наставлением к преподобным обращались монашествующие и миряне, новоначальные и преуспевшие в духовной жизни, старцы и юноши, немощные и здоровые. И все (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, FB3, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2960FA313EDCE71F092503E9A4C317C68F562A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768647   (101125) от 25.12.2024
+
+Журнал | Дачный клуб №10 (163) (октябрь 2024) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101125.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Моя любимая дача" - это ежемесячный журнал, полностью посвященный дачникам. В нём публикуются наиболее интересные советы читателей, касающиеся строительства, благоустройства дачи и садового участка.май 2012Формат: PDF
+В журнале «Дачный клуб» собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты блюд из урожая. Уникальный опыт российских дачников, яркие иллюстрации, вопросы читателей, рекомендации специалистов.Жанр: Дом, сад, огород, дачаИздательство: ООО "Город Медиа Софт"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:010A5BDA74FD8C01867F7D58C4CD5D2908D82E5F
+magnet:?xt=urn:btih:59E170A7B221ED4574F494EC0DC4AE83F03677AF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -260,29 +137,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477438   (98522) от 03.04.2012
+###  Публикация: 1768684   (101124) от 25.12.2024
 
-[Wallpapers] Easter  Desktop Wallpapers
+Архимандрит Кирилл (Павлов) | Проповеди (2017) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98522.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101124.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Easter  Desktop Wallpapers 
-Название:  Easter  Desktop Wallpapers 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Возлюбленные во Христе братия и сестры! Святая Церковь, как нежная и чадолюбивая мать, которая заботится не только о спасении живых, но простирает свою заботу и о спасении душ отшедших от нас отцев и братий, собрала нас сегодня, чтобы мы вознесли молитвы ко Господу о упокоении всех усопших в месте светле, в месте покойне.Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:910CD88D6CF66204D97D83B01D6C73CBC5A4770F
+magnet:?xt=urn:btih:FDDC6E449C67A672256F2800827E56F727E9032B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,29 +163,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477327   (98520) от 03.04.2012
+###  Публикация: 1768603   (101123) от 25.12.2024
 
-[Wallpapers] Retro AVTO Collection
+Архимандрит Кирилл (Павлов) | Похвала Божией Матери (2017) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98520.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101123.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Retro AVTO Collection 
-Название:  Full Retro AVTO Collection 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+В книге читатель сможет ознакомиться с проповедническими сочинениями духовника Свято-Троицкой Сергиевой Лавры, архимандрита Кирилла (Павлова). Поразительная глубина духовной мудрости и проникновенные слова назидания и утешения «духовника Патриархов» поддержат христианина в трудные минуты крестоношения, принесут умиротворение его душе и подвигнут на усердную и пламенную (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DC55A726118716AA2C3E73A152EA068B8303990F
+magnet:?xt=urn:btih:6E2BE7232C33E9087720B75BB6A980BE69BCC60D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -320,139 +189,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477778   (98519) от 03.04.2012
+###  Публикация: 1768652   (101122) от 25.12.2024
 
-Каникулы в Мексике - 2. Выпуск №22 (2012.04.03) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98519.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA83C410AFAF8C5387878F601D2B844B6DB02B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477666   (98516) от 03.04.2012
-
-Великобритания ужесточит контроль за электронной перепиской граждан
-
->>След.
->>Новости
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98516.jpg" />
-</div>
-
-
-###  Подробнее
-
-
-Правительство Великобритании внесет законопроект, расширяющий полномочия правоохранительных органов по контролю за действиями граждан в интернете. Об этом сообщает The Guardian.Законопроект предусматривает, что полиция и спецслужбы смогут получить доступ к информации об отправителях и адресатах электронных писем, но при этом не смогут узнать содержимое переписки. Как уточняет BBC News, помимо этого правоохранителям станут доступны сведения о посещенных гражданами сайтах.
-(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477342   (98515) от 03.04.2012
-
-[Wallpapers] Desktop Wallpapers Pack 35
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98515.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 35 
-Название:  Desktop Wallpapers Pack 35 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1024х768 - 5000х3000
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:399513C2F821A815CF4986B85512B2A01528AE61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477411   (98514) от 03.04.2012
-
-[Wallpapers] Spring Desktop Wallpapers
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98514.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Spring Desktop Wallpapers 
-Название:  Spring Desktop Wallpapers 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 4152х2757
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE4CF0A4716F41F60499AE4945CB4BC685E0502E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477697   (98513) от 03.04.2012
-
-Журнал | Мебель & интерьер №4 [2012 апрель] [PDF]
+Журнал | Дачный клуб №12 (165) (декабрь 2024) [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98513.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101122.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мебель & Интерьер – журнал о мебели и интерьерных аксессуарах, знакомит читателя с новыми предложениями и тенденциями в этой области. В каждом выпуске журнала есть главная тема номера, которая сфокусирует внимание на интересных идеях оформления интерьера.2012 апрельФормат: PDF
+В журнале «Дачный клуб» собрана яркая и наглядная информация о том, как ухаживать за садом, огородом, цветником, раскрываются хитрости ландшафтного дизайна, даются оригинальные рецепты блюд из урожая. Уникальный опыт российских дачников, яркие иллюстрации, вопросы читателей, рекомендации специалистов.Жанр: Дом, сад, огород, дачаИздательство: ООО "Город Медиа Софт"Формат: PDFКачество: Необработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:99A954216A088D1CB6C57C724898A914AB68C351
+magnet:?xt=urn:btih:A8043DD5FAF56EDDCFB620462625A9DF94A6C6E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,25 +215,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477779   (98512) от 03.04.2012
+###  Публикация: 1768597   (101121) от 25.12.2024
 
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №22 (2012.04.03) SATRip
+Архимандрит Кирилл (Павлов) | Время покаяния (2018) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98512.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101121.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:12:01
+Время земной жизни – краткий отрезок на пути в Вечность – дано человеку для покаяния. Но память человеческая слаба, и сам человек слаб и изменчив и оттого часто нуждается в напоминании: чего ради он создан, откуда ниспал, к чему призван. Душа его все больше спит, между тем как дни проходят, подобно бесследно исчезающим каплям дождя, и конец дольнего странствования (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F1357D91C9570B9B8E433BB5D0473D6EAF8BA03
+magnet:?xt=urn:btih:4621A69B116A4C17C1E282C87CC00586EC6F4B54
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -486,25 +241,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477812   (98510) от 03.04.2012
+###  Публикация: 1768653   (101120) от 25.12.2024
 
-Земля-Космос-Земля (1962) DVDRip
+Everdune - The Aces Strike Back (2024) [FLAC|Lossless|WEB-DL|tracks] <Spacesynth, Synthdance>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Electronic
+>>Synthpop, New Wave (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98510.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101120.jpg" />
 </div>
 
 
 ###  Подробнее
 
-О работе системы космовидения, о полетах космических кораблей типа "Восток", о летчиках-космонавтах СССР Ю.А.Гагарине, Г.С.Титове, А.Г.Николаеве, П.Р.Поповиче.Жанр: ДокументальныйРежиссер: М. ВолодарскийПродолжительность: 00:24:32
+01. The Aces Strike Back (4:22)
+02. Wings of Unity (4:18)
+03. Riders of the Void (4:18)
+04. Starlight Siege (5:01)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:54:38
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:66AAD87245E2CCE97B8BED29472F08985921C0C3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -512,34 +270,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477525   (98509) от 03.04.2012
+###  Публикация: 1768631   (101119) от 25.12.2024
 
-VA - Klubnye novinki Vol.61 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+After Evolution - War of the Worlds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98509.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101119.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Adele - Set Fire To The Rain (The Perez Brothers Remix)
-02 Alexandra Burke feat. Erick Morillo - Elephant (Wideboys Club Mix)
-03 Alex M.O.R.P.H. feat. Sylvia Tousun vs. Gaia - An Angels Tuvan (Coleman Hamilton 'Stryker Memorial' Mashup)
-04 Armin Van Buuren - Orbion (Max Graham, Protoculture Remix)
-05 Betsie Larkin & Sied Van Riel - The Offering (Extended Mix)
-06 Betsie Larkin & Sied Van Riel - The Offering (Save The Robot Remix)
-07 Courtney Argue & J.Greene feat. Pitbull - Make It Rain (RLS & 2Frenchguys Extended Remix)
-08 Daddy's Groove & Little Nancy - It's Not Right, But It's Okay (Extended Mix)
-09 Damon Paul Feat Patricia Banks - Without You (Sven & Olav Mix)
-10 Deep Voices feat. Alexander K.G. Klaus - Because The Rain (Space RockerZ Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 5:43:58
+01. War of the Worlds (3:46)
+02. The Path (4:09)
+03. Cursed (5:02)
+04. Liber Fortitudinis (The Book of Destiny) (6:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:321DD25D117258DA552BAFB6024932E2BE8CB588
+magnet:?xt=urn:btih:D10F4C7ECF9D7EA3A2C0AB6F9C70DEECDAEEB026
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -547,34 +299,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477001   (98508) от 03.04.2012
+###  Публикация: 1768574   (101118) от 25.12.2024
 
-Distorted - Voices from Within (2008) [WavPack|Lossless]<Gothic Metal,Melodic Death,with Middle Eastern influences>
+Cтарец Иосиф Ватопедский | О кончине века и антихристе (2010) [PDF, FB2, EPUB, MOBI, TXT, FB3, RTF]
 
->>Архив торрентов
->>Архив Музыки
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98508.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101118.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One Last Breath 05:36
-02. What Remains 03:45
-03. Voices From Within 05:28
-04. Fading 03:49
-05. A Soft Whisper 04:14
-06. Reveal My Path 03:41
-07. Escaping the Mind-Grid 06:03
-08. Obscure 03:24
-09. Theom 01:22
-10. Consistent Duality 05:22(   Читать дальше...   )Жанр: Gothic Metal,Melodic Death,with Middle Eastern influencesПродолжительность: 00:52:53
+«Как сказано в Священном Писании, всему свое время, и время всякой вещи под небом (Еккл. 3, 1). А потому пора и нам пристально рассмотреть и оценить дух нынешней эпохи, к чему побуждают нас многие из возлюбленных братий. Знамения времен, приковывающие внимание всех, кто размышляет о проблемах современного общества, – знамения эти ныне очевидны…».Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, FB3, RTFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:18B12B64994FDF6FA0DB250F8C62D37127F7F319
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,25 +325,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477660   (98504) от 03.04.2012
+###  Публикация: 1768651   (101117) от 25.12.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (04.04.12)
+Everdune - The Aces Strike Back (2024) [MP3|320 Kbps] <Spacesynth, Synthdance>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Electronic
+>>Synthpop, New Wave
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101117.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. The Aces Strike Back (4:22)
+02. Wings of Unity (4:18)
+03. Riders of the Void (4:18)
+04. Starlight Siege (5:01)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 00:54:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:854AD789E2035878F2D2C41AF4129E8C81A345C6
+magnet:?xt=urn:btih:EA57DC45AC8DA81A5A10E89E27574FDA0C2E48DF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -608,34 +354,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477623   (98503) от 03.04.2012
+###  Публикация: 1768598   (101116) от 25.12.2024
 
-VA - CLUBная эйфория (2012) [MP3|128-192 kbps]<Pop | Club | Dance>
+Архимандрит Кирилл (Павлов) | Ищите прежде Царствия Небесного (2018) [PDF, FB2, EPUB, MOBI, TXT, RTF, FB3]
 
->>Архив торрентов
->>Архив Музыки
+>>Разное (категория книг)
+>>Религиозная литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101116.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Contraband - Rocknrolla (Original Mix)
-02 Azari & Iii - Reckless (With Your Love)
-03 Bara Brost - Madame Mila
-04 Blue Foundation - Bonfires (Dubstep)
-05 Boris Brejcha - My Love
-06 Duck Sauce - Big Bad Wolf
-07 Maceo Plex - Ain't That Love
-08 Spektre - Get Together (Original Mix)
-09 Whitenoize - The Underground (Tjr Remix)
-10 Ticon - The Programmer (Spektre Remix)(   Читать дальше...   )2012Жанр: Pop | Club | DanceПродолжительность: 10:27:32
+«Почему так часто слово проповедника остается бездейственным в нас, погребается в наших душах, точно в могиле, не приносит никакого плода? Очевидно, что прежде всего виной тому мы сами, наше нерадение и нечувствие. Но вместе с тем очевидно, что живым и действенным – подобно слову Божию – может быть лишь то слово, которое подтверждено жизнью самого проповедника. То (   Читать дальше...   )Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, RTF, FB3Качество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:58FBDC55499382A132F89DC16D2C5E2E6A85F023
+magnet:?xt=urn:btih:2239313377F011B2C5C8DF7B40FE9CC9E62794A3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -643,34 +380,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 476231   (98501) от 03.04.2012
+###  Публикация: 1768633   (101115) от 25.12.2024
 
-VA - Logic Energy (1997-2012) [MP3|320 кб/с]<Progressive house, Electro, Techno, Dubstep, Drum&bass, Electronic>
+Yuri Sosnin - The Night (2024) [MP3|320 Kbps] <Italo-Disco, Instrumental>
 
->>Архив торрентов
->>Архив Музыки
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101115.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Marcel Woods - Champagne Dreams ( Original Mix )
-02. David Forbes - Safety ( Original Mix )
-03. Toper & Andrian - Laziness ( Original Mix )
-04. Octane & DLR feat TST - Red Tape ( Original Mix )
-05. Cliff Coenraad - Modulate ( Original Mix )
-06. Pfirter - The Dub Track ( Len Faki Remix )
-07. Tommy Trash - Cascade ( Original Mix )
-08. Broken Note - War In The Making ( Original Mix )
-09. Schelmanoff - Roof Wanted ( Original Mix )
-10. Utopia - Scan Me ( Original Mix )(   Читать дальше...   )1997-2012Жанр: Progressive house, Electro, Techno, Dubstep, Drum&bass, ElectronicПродолжительность: 01:30:37
+01. Starry Night (5:07)
+02. Night Dreams (5:04)
+03. Night Melody (5:06)
+04. A Magical Night (5:24)(   Читать дальше...   )Жанр: Italo-Disco, InstrumentalПродолжительность: 00:53:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:378AD882309B3DE5C8BF21E390989F44C591707E
+magnet:?xt=urn:btih:E29A863596F4F3C9538932A4935C7D355C2E02ED
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -678,34 +409,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477501   (98499) от 03.04.2012
+###  Публикация: 1768669   (101114) от 25.12.2024
 
-VA - Весенняя танцевальная вечеринка (2012) [MP3|160-256 кб/с]<Pop>
+The Smoothies - My Cozy Winter in Soul (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Soul>
 
->>Архив торрентов
->>Архив Музыки
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101114.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Аника Далински - От Заката До Рассвета (3:15)
-2. Шахзода - Нереально без тебя (DJ Kirill Clash radio remix) (3:27)
-3. Джиган (Geegun) feat. Жанна Фриске - Ты Рядом (3:27)
-4. Milena & Denis Murzin - До Утра (Filipp Aniskin Remix) (3:22)
-5. Leyla - Ночной DJ (3:45)
-6. Глюкоза - Кошка (3:23)
-7. Mixi - Между Мной И Тобой (Dj Andy Wait Remix) (4:02)
-8. Слава - Люди любят (3:11)
-9. Нимфа - Доминикана (3:30)
-10. Глюк`oza - Хочу мужчину (DFM mix) (3:15)2012Жанр: PopПродолжительность: 06:47:06
+01. Budapest in Winter (3:38)
+02. Windows of Warmth (3:13)
+03. Blessed Day (3:28)
+04. Time Machine (3:36)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:08:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F6E3F346F64A5DBA6DF89EE3BAE5276AFEEAFFD
+magnet:?xt=urn:btih:BC9A138F9AD025B67E6428E2BB0B4DCD0C63DD90
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -713,25 +438,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477662   (98497) от 03.04.2012
+###  Публикация: 1768654   (101113) от 25.12.2024
 
-[Wallpapers] Wallpapers Sexy Girls Pack (04.04.12)
+Karel Formant - Hungry for Love (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98497.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101113.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01. Summer- Feeling (3:16)
+02. Hungry for Love (4:08)
+03. I'm Here (3:14)
+04. Wave (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:25:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EAA409F92BB64958BF4C5B35D19CC7B722D34821
+magnet:?xt=urn:btih:F0B76AAAB4FE13FB98872BDAFFA8EF7C98520144
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -739,25 +467,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477683   (98496) от 03.04.2012
+###  Публикация: 1768158   (101112) от 25.12.2024
 
-Журнал | Дача и дачники №3 [апрель 2012] [PDF]
+Футбол. Кубок Италии 2024/2025. 1/8 финала Интер - Удинезе (19.12.2024) TVRip [H.264]
 
->>Журналы
->>Домоводство (журналы)
+>>Спорт и активный отдых
+>>Футбол
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98496.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101112.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В журнале вы найдете советы опытных садоводов, цветоводов и огородников. А также большая часть издания посвящена развлекательным разделам. Два десятка сканвордов, грустные и смешные дачные байки, интересные истории из жизни дачников – после напряженного трудового дня есть с чем расслабиться. Оторваться от журнала в минуты отдыха просто невозможно: ведь большую его часть написали простые люди – дачники, которые умеют хорошо работать и хорошо отдыхать на своем любимом участке.апрель 2012Формат: PDF
+19 декабря 2024 Милан 1/8 кубка Италии
+Стадион: Джузеппе Меацца
+«Интер» в Лиге чемпионов занимает шестое место в таблице общего этапа. В Кубке Италии «нерадзурри» только начинают свой путь. В прошлом сезоне миланцы также стартовали с 1/8 финала, но тут же вылетели от «Болоньи». Отметим, что в итальянской Серии А «Интер» занимает третье место, а «Удинезе» - девятое. (   Читать дальше...   )Телекомпания: Матч!Жанр: спорт, футболЯзык озвучки: РусскийПродолжительность: 01:49:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3913C6405DE1910A55FD84BFC56FFEB260B5B765
+magnet:?xt=urn:btih:3E4B9418B8881CF3477214CFE06B220D7700F181
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -765,29 +495,225 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 477305   (98495) от 03.04.2012
+###  Публикация: 1768658   (101111) от 25.12.2024
 
-[Wallpapers] Desktop Wallpapers Pack 34
+Храброе дитя / Moeders dappere kind (1914) WEBRip
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101111.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers Pack 34 
-Название:  Desktop Wallpapers Pack 34 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1418х1065 - 4968х1572
-Расширение (тип) файлов: jpgСкриншоты::tongue:Время раздачи: 24/7 - круглосуточно
+Своеобразная фильма. В самом начале видим двухминутный эпизод, который очевидно не относится к самому фильму, но тоже рассказывает о смелом ребенке, как будто это кусочек другой истории на ту же тему. Может изначально это был сборник фильмов о храбрых малолетках? Но сохранилось только то, что видим в этом релизе? Кто знает. Но я оставил все как есть. Сам фильм начинается (   Читать дальше...   )Производство: Нидерланды / Filmfabriek HollandiaЖанр: короткометражный, драма, немое киноРежиссер: Jan van Dommelen, Louis H. ChrispijnАктеры: Jan van Dommelen, Louis H. Chrispijn, Christine Chrispijn - van MeeterenПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:17:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21BC258F9B33D31FA9C056321B1FA801F0D94E93
+magnet:?xt=urn:btih:F55D2AABBCAE05C11BA91CCAEDAF4ADA9B477575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768637   (101110) от 25.12.2024
+
+Bernard Barrett - Alt. Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Wait (3:08)
+02. I've Said It (4:09)
+03. That Same Old Way (4:50)
+04. Never Worked It Out (4:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F651DFD90F3D1EF6743AEC8DB3259334968EAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768661   (101109) от 25.12.2024
+
+Sam Cole - Let's Dance the Blues (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Workhouse Blues (3:06)
+02. Sometimes I Sit and Wonder (2:58)
+03. I'm off to Saint Louis (3:29)
+04. Shallow Heels (4:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DE7D9F98022FFDD5A1F8F0969D31E6250F71609
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768657   (101108) от 25.12.2024
+
+Murat Osman, Seif Allah Kaak and Curly Cuts Collective - Eastbound Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1952 (1:09)
+02. Midnight Caravan (3:24)
+03. A Different Path (4:20)
+04. Wonders of the Crescent (2:19)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA512226871830C4E29CB649098A14DCE81B89D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768663   (101107) от 25.12.2024
+
+Samara Joy - Portrait (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Stepped Out Of A Dream (4:35)
+02. Reincarnation Of A Lovebird (6:28)
+03. Autumn Nocturne (3:47)
+04. Peace Of Mind / Dreams Come True (7:06)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:43:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F874666BAAC23614D94AF75E387AD0ADB229F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768646   (101106) от 25.12.2024
+
+Jaxon Turner Trio - All That Jazz (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101106.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Coffe Cup Romance (3:59)
+02. A Desk by the Window (3:22)
+03. All That Jazz (3:37)
+04. Blissful Reverie (3:00)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:47:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C0666BEEC8F42FD7BCEA29B82260C723F63A48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768578   (101105) от 25.12.2024
+
+Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной Церкви | Рука дающего не оскудеет. О добродетели милосердия (2001) [PDF, FB2, EPUB, MOBI, TXT, FB3, RTF]
+
+>>Разное (категория книг)
+>>Религиозная литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одним из самых светлых и отрадных явлений в жизни наших подвижников благочестия была горячая любовь их к страждущему или неимущему человеку. Удалившись от мира, они не забывали, что этот мир полон не только нравственной скверны, но и скорбей и бед, под бременем которых страждут их братья…Жанр: ПравославиеИздательство: Московское Троицкое Подворье Свято-Троицкой Сергиевой Лавры Русской Православной ЦерквиФормат: PDF, FB2, EPUB, MOBI, TXT, FB3, RTFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A871BF36E3603675D648BA69BA5E8E659AC955
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768020   (101104) от 25.12.2024
+
+Сергей Клушин - Я продлеваю эту ночь (2024) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101104.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я продлеваю эту ночь [00:03:14]
+02. Моя любовь [00:03:04]
+03. Тяжёлая [00:04:03]
+04. Погромче музыку [00:05:36](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA61EF63393C5081C69F1853A536692E84899B27
 ```
 
 https://mybot314.ru/tekegram_catalog/

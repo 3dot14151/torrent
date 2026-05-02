@@ -1,3 +1,223 @@
+###  Публикация: 471069   (97306) от 20.03.2012
+
+[Wallpapers] Best Wallpapers Pack 9
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97306.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Best Wallpapers Pack 9
+Название: Best Wallpapers Pack 9
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9673A6B8635DBEAC7AA19AEFFD6EA8DD554B709B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470618   (97305) от 20.03.2012
+
+[Wallpapers] Abstract HD Wallpapers (19.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97305.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318A1AF41A7EE14D37D72FB3F920CDDE7A552344
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470711   (97303) от 20.03.2012
+
+[Wallpapers] Gilrs Wallpaper Collection (20.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB4D8CB0C8DB0CF2818AE189FA5632399C4AE4CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470622   (97302) от 20.03.2012
+
+[Wallpapers] Cars HD Wallpapers (19.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97302.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:835CA12CD4B0CD63DBB32E126916A6C1848B1011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470191   (97299) от 20.03.2012
+
+Nike Beats - Instrumental vol.4 (2012) [MP3|320 кб/с]<Instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97299.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mongrel
+02. Mexico
+03. 1001 night
+04. Chasm
+05. I shall love
+06. Fragments of a diary
+07. Lullaby of the fairy
+08. Cypress hil
+09. Fists2012Жанр: InstrumentalПродолжительность: 00:24:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E44F9CB5B01C267322E217847F3AF14D0C0519C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470937   (97292) от 20.03.2012
+
+[EN] Вонючка / Muckman (2009) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Согласно сведениям очевидцев, в лесах и болотах Пенсильвании обитает скверно пахнущий аналог снежного человека, которого местные жители ласково кличут Вонючкой. Найти и запечатлеть этого легендарного монстра на плёнку — последний шанс на продолжение карьеры для тележурналиста Микки. А это значит, что Микки и его съёмочная группа должны отыскать Вонючку во что бы то ни стало, даже если его не существует.Жанр: УжасыРежиссер: Бретт ПайперАктеры: А.Дж. Кхан, Элисон Уитни, Йен Пайпер, Джаред Уоррен, Даниэль ДонахьюПеревод: ОтсутствуетПродолжительность: 01:20:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C1F3E8314116F5E0B165BFBD15ED6A4340E43BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471011   (97291) от 20.03.2012
+
+[Wallpapers] Wallpapers Sexy Girls (21.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97291.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49B2F5589A5CD15536EBE9DAEC1C1787916CD09D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470220   (97290) от 20.03.2012
+
+Бамбу / Bambou (2009) DVD5
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_97290.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ален — служащий банка, очень любит свою жену, мечтает о полноценной семье и ребенке. Анна — жена Алена — не готова становиться домохозяйкой. Она поглощена своей музыкальной карьерой. Однажды в их доме появляется щенок по кличке Бамбу. «Личный враг» Алена скоро становится самым верным его другом, а Анна — будущей счастливой мамой и известной пианисткой.Жанр: КомедияРежиссер: Дидье БурдонАктеры: Дидье Бурдон, Энн Консиньи, Пьер Ардити, Эдди Мичелл, Анни Дюпре, Аксель Аббади, Эрик Фратичелли, Жан-Пьер ТальяферриПеревод: Многоголосый закадровыйПродолжительность: 01:33:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 470716   (97288) от 20.03.2012
 
 [Wallpapers] Best HD Wallpapers Pack (20.03.12)
@@ -523,234 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EF2635889029D43BDA055BDE56B9212C770B003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470988   (97264) от 20.03.2012
-
-[Wallpapers] Nature Pictures №32
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97264.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №32
-Название: Nature Pictures №32
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0077C968A33B7AE4A2E810A904FB016B8536A96F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470164   (97263) от 20.03.2012
-
-VA - Beat Generation 2 (2009) [MP3|320 кб/с]<Psy-Prog>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97263.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Zyce & Flegma - Afterglow (8:41)
-2. Cabal - The sacred Spirit (7:38)
-3. Aquafeel - GloryLand (6:43)
-4. Aqualize - Land of 2 Suns (7:51)
-5. Audioload - Way Out (7:42)
-6. Andromeda - Sensation (Aquafeel RMX) (6:32)
-7. Time in Motion - Colour (8:07)
-8. Progenitor - Typical Human Behaviour (8:18)
-9. Ocean and Display - Kastefa Beach (7:59)2009Жанр: Psy-ProgПродолжительность: 01:09:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9B21410AF39BDF56CB8560775B8668ADF3977E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470712   (97262) от 20.03.2012
-
-[Wallpapers] Best HD Wallpapers (20.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97262.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3468C7FACB8EACA0056A6D73D4CF71BCA75ECB2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470715   (97261) от 20.03.2012
-
-[Wallpapers] Nature Desktop Wallpapers (20.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97261.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD955C23F747D2902FE43C35FBB77C77B2AB78FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471067   (97259) от 20.03.2012
-
-[Wallpapers] HD Wallpapers Pack 4
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97259.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Wallpapers Pack 4
-Название: HD Wallpapers Pack 4
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE2196E7C7474FA0BBED9BDB17D0A141BF7C24A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470985   (97258) от 20.03.2012
-
-[Wallpapers] Nature Pictures №31
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97258.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Pictures №31
-Название: Nature Pictures №31
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 3200х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A2052B36D2F8236A1E139C0FFB6A678DC02D69F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470621   (97256) от 20.03.2012
-
-[Wallpapers] Desktop wallpapers (19.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29E5EC75BB2A98220E8DA1EF706FC090C893F104
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 470709   (97255) от 20.03.2012
-
-[Wallpapers] Computer Desktop Wallpapers Collection (20.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97255.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B96C3F39B06F8C3BAC4CE71CC8FDAD127B1F3BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

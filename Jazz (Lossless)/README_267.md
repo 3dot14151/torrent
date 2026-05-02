@@ -1,3 +1,67 @@
+###  Публикация: 1586590   (215932) от 27.10.2022
+
+Lem Winchester & Benny Golson - Winchester Special (1959) 1991, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_215932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down Fuzz [10:05]
+02. If I Were a Bell [4:04]
+03. Will You Still Be Mine? [7:04]
+04. Mysticism [7:34](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:39:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8D1E50EAFFB3A01143ACD440B85B0CF6D8F91C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 588886   (215771) от 13.12.2012
+
+Cityrhythm Orchestra - Vibrant Tone (2004) [FLAC|Lossless]<Big Band, Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_215771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senor Blues
+02. Time After Time
+03. The Cat
+04. Billie's Bounce
+05. Walk On The Wild Side
+06. Blues In Hoss Flat
+07. It Could Happen To You
+08. One Mint Julep
+09. It Ain't Necessarily So
+10. Whirly Bird(   Читать дальше...   )Жанр: Big Band, Mainstream Jazz, SwingПродолжительность: 01:13:02
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1514647   (215761) от 04.12.2021
 
 Eddie Higgins Trio - Essential Romance (2009) Venus Records [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
@@ -686,64 +750,6 @@ John Colianni - Live at Maybeck Recital Hall, Vol. 37 (1995) Concord Jazz [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:597DE5643DECA7C95700E96C6AEF0F79A514F6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344164   (213856) от 09.12.2019
-
-T.K. Blue (Talib Qadir Kibwe) - Eyes of the Elders (2000) [FLAC|Lossless|image + .cue] <Post-Bop, African Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213856.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wee (Best) - 5:04
-02. Village Council - Interlude 1 (Kibwe) - 0:43
-03. Dance of the Nile (Kibwe) - 5:43
-04. Frozen Mist (Smith) - 5:17(   Читать дальше...   )Жанр: Post-Bop, African JazzПродолжительность: 01:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9F47783C50CFC3F5C637AAA94CECFA28C3A365A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1344150   (213803) от 09.12.2019
-
-The Buck Clayton Legacy Band - Claytonia (2011) [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213803.jpg" />
-</div>
-
-
-###  Подробнее
-
-Трэклист:
-1. Outer Drive - 5.29
-2. I'll Make Believe - 6.21
-3. Party Time - 6.10(   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00: 54:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4552CE7D0CDD29D05BFCCE3E575A7A26FC0931C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

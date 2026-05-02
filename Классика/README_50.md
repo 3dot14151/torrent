@@ -1,3 +1,32 @@
+###  Публикация: 1712876   (112039) от 04.04.2024
+
+VA - Peaceful Piano Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
+02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 - Clair de Lune (5:13)
+03. Sergey Bryukhno - Sonnet in C Major (1:25)
+04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata - I. Adagio sostenuto (5:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:04:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF62763859EDC1D6BC57C47FAFD3E4E1BD4F7237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1713861   (111835) от 07.04.2024
 
 VA - Piano Echoes (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -735,41 +764,6 @@ Concerto for Oboe, Strings and Basso Continuo in a minor [10:06]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C723C52BA03CBD37A35AF029727EA4E541A5F5AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 483708   (88811) от 16.04.2012
-
-Antonio Vivaldi - 12 Concertos Op. 8 incl. Le quattro stagioni: VA, Musici di San Marco, conductor Alberto Lizzio (1723) /2000, Tring International/[FLAC|Lossless]<Baroque>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_88811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Concerto in Mi maggiore «La Primavera» (Весна), RV 269
-01.	I. Allegro - 3:34
-02.	II. Largo e pianissimo sempre - 2:54
-03.	III. Danza pastorale: Allegro - 4:32
-Concerto in Sol minore «L'Estate» (Лето), RV 315
-04.	I. Allegro non molto - 5:56
-05.	II. Adagio. – Presto - 2:25
-06.	III. Presto - 3:06
-Concerto in Fa maggiore «L'Autunno» (Осень), RV 293
-07.	I. Allegro - 5:29(   Читать дальше...   )2000-2007Жанр: BaroqueПродолжительность: 00:56:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D4E271BC30CF5A1E14D0371BF3549DD86D0E0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1357340   (973155) от 04.02.2020
+
+Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Tyler - Ready or Not Overture (04:24)
+02. Brian Tyler - Ready or Nocturne for Solo Violin (01:24)
+03. Brian Tyler - Family Members Only (03:42)
+04. Brian Tyler - The Truth (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F30891C3B1899422CD06F4EB111F863C91B63DE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929291   (973131) от 14.01.2016
+
+Simon Viklund and VA - Payday: The Game Soundtrack, Payday 2: Official Soundtrack, Bonuses, Singles (2012-2015) [MP3|320 kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973131.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Soundtrack, ScoreПродолжительность: 06:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69F17F67E53E209356CA5972ED01F857B964FDE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1357339   (973091) от 04.02.2020
+
+Brian Tyler - Ready or Not / Я иду искать (Original Motion Picture Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973091.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brian Tyler - Ready or Not Overture (04:24)
+02. Brian Tyler - Ready or Nocturne for Solo Violin (01:24)
+03. Brian Tyler - Family Members Only (03:42)
+04. Brian Tyler - The Truth (03:15)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6459EC20B29C9D32EAE310F6FB7D8B90937B6FF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 744272   (972156) от 11.01.2014
+
+David Arkenstone - Gentle Rain (2006) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prelude (1:03)
+02. Sunshower (9:57)
+03. Sparkling Pools (6:25)
+04. Water of Life (8:24)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15582BCCF7B24D355FD766CC093E8179640EE89B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975690   (972107) от 15.01.2016
+
+Douglas Blue Feather - Rhythms of the Night (2015) [MP3|320 кб/с] <New Age, Native American>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_972107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Long Ride
+02. Eagle And Condor
+03. Cool Breeze
+04. Rhythms Of The Night(   Читать дальше...   )Жанр: New Age, Native AmericanПродолжительность: 00:49:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1682CB5755BD5297A2A46752C03223F29D7B56C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1356560   (971725) от 05.02.2020
+
+Алексей Глухов (Лёша Закон) в проекте PODZA... PERHOTЬ - Van Huevel's Destructive Forceps (Zymotic Productions Ultra) (2020) [MP3|320 Kbps] <Noise, Goregrind, Grindcore>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971725.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Вступление в к.. (intro)
+02-Встреча с музыкой
+03-Лопаются бельма
+04-Жильцы колумбариев(   Читать дальше...   )Жанр: Noise, Goregrind, GrindcoreПродолжительность: 00:06:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C6E4E75B6DB7BA8F0AB8B2F796647D7636585CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617081   (971264) от 13.02.2013
+
+Richard Ackrill - The Lightness of Being (2012) [MP3|320 кб/с]<New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971264.jpg" />
+</div>
+
+
+###  Подробнее
+
+(6:46) 1. Infinity 
+(7:15) 2. Rising Above It All
+(8:44) 3. Wings To Guide Me 
+(6:48) 4. Rain Walking
+(6:12) 5. Presence
+(6:12) 6. Closer To The Light
+(9:02) 7. Beyond The CloudsЖанр: New ageПродолжительность: 00:50:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C1645612714832C143D1B687C5EEABD7EFC46D5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 616974   (971187) от 13.02.2013
 
 The Nymphs - Language of the Nymphs (2012) [MP3|192 кб/с]<New age, Instrumental, Relax>
@@ -545,215 +748,6 @@ Alexandre Desplat - Little Women / Маленькие женщины (Original M
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9B8F4CEDE382055379CAA015EF8331E1A7769301
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358713   (967229) от 09.02.2020
-
-Alexandre Desplat - Little Women / Маленькие женщины (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Little Women (03:12)
-02. Plumfield (03:39)
-03. The Beach (02:49)
-04. Christmas Morning (02:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:960B3E3DCFD36DA995E3DC1819541F69AC03CF81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 745789   (967218) от 15.01.2014
-
-VA - Sacred Spa Music Series. Wrapped In Stillness (2002) [APE|Lossless|tracks + .cue] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967218.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hilary Stagg - Inspirations (6:32)
-02. Paul Machlis - Nightblossom (3:43)
-03. Gary Malkin - The First Night (2:37)
-04. 2002 - Elysian Fields (5:36)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 00:58:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A60BC6489244BD4E59FBF9EF0BF2440F489B7FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358716   (966978) от 09.02.2020
-
-VA - Death Stranding (Songs from the Video Game) (2020) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966978.jpg" />
-</div>
-
-
-###  Подробнее
-
-|06:13| 01. Low Roar - Don't Be So Serious
-|02:50| 02. Low Roar - Bones
-|04:48| 03. Low Roar - Easy Way Out
-|02:03| 04. Low Roar - Poznan(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD99B804748B20E87BCBE24AE7DFA675A01A99CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 618767   (966675) от 17.02.2013
-
-VA - Bombshell: The New Marilyn Musical From SMASH (Deluxe Edition) (2013) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966675.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Katharine McPhee & Megan Hilty - Let Me Be Your Star (Extended Intro) (3:43)
- 2. Bernadette Peters With Sophia Caruso & Ensemble - At Your Feet (2:44)
- 3. Megan Hilty, Katharine McPhee & Ensemble - Smash! (2:15)
- 4. Katharine McPhee - Never Give All The Heart (3:11)
- 5. Katharine McPhee & Ensemble - The 20th Century Fox Mambo (2:42)
- 6. Magan Hilty & Ensemble - The National Pasttime (2:33)
- 7. Megan Hilty, Will Chase & Ensemble - History Is Made At Night (4:20)
- 8. Megan Hilty With Debra Messing, Nick Jonas, Christian Borle, Will Chase, Jaime Cepero, Phillip Spaeth & Ensemble - I Never Met A Wolf Who Didn't Love To Howl (3:45)
- 9. Megan Hilty & Will Chase - Mr. & Mrs. Smith (3:34)
- 10. Christian Borle & Ensemble - Don't Say Yes Until I Finish Talking (2:42)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:28:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A32A332D042DC660E78ADC2F2D4AA5E6A5A1EE24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977175   (966478) от 20.01.2016
-
-Richard Clayderman and The Ray Hamilton Orchestra - Romantic Piano (2014) Box-set 3CD [MP3|320 кб/с] <Contemporary Instrumental, Instrumental Pop, Neo-Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966478.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Ballade Pour Adeline  (2:34)
-02. Candle In The Wind  (5:10)
-03. One Moment In Time  (4:48)(   Читать дальше...   )Жанр: Contemporary Instrumental, Instrumental Pop, Neo-ClassicalПродолжительность: 03:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C787D02E315DF00FB4BABF85B28198EA89B060DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358697   (966204) от 10.02.2020
-
-Randy Newman - Marriage Story / Брачная история (Original Music from the Netflix Film) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966204.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:26| 01. What I Love About Nicole
-|03:43| 02. What I Love About Charlie
-|01:41| 03. Last Critique
-|01:20| 04. Procession to the Trailer(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:364C92F40D8B6A89BBBBEEA8FD213160383DB1B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1358696   (966202) от 10.02.2020
-
-Randy Newman - Marriage Story / Брачная история (Original Music from the Netflix Film) (2019) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_966202.jpg" />
-</div>
-
-
-###  Подробнее
-
-|03:26| 01. What I Love About Nicole
-|03:43| 02. What I Love About Charlie
-|01:41| 03. Last Critique
-|01:20| 04. Procession to the Trailer(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:24:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:275D7205F9C8CCEFC3128F2ED08B40B7474957C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

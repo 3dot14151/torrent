@@ -1,3 +1,119 @@
+###  Публикация: 1677296   (151384) от 17.11.2023
+
+Son Henry - Glenn Highway Blues (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151384.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peach Street Blues (5:57)
+02. Hummingbird (2:47)
+03. Memphis Train (2:53)
+04. Second Glance (4:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE29943A252BF0646B8BE297563CA77897CDA50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677295   (151330) от 17.11.2023
+
+Ian Coldsteel Kenny - Coldsteel Blues, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back to Work Blues (5:03)
+02. Ode to Jack (4:46)
+03. I Know a Thing or Two (5:38)
+04. I Got the Blues (4:23)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F2AF3303771750969FBBF1765502AF6988D83F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1677294   (151140) от 17.11.2023
+
+Kenny Wayne Shepherd - Dirt On My Diamonds, Vol. 1 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151140.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirt On My Diamonds (3:23)
+02. Sweet & Low (3:56)
+03. Best Of Times (3:28)
+04. You Can't Love Me (4:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A5C8CAACCD80520713F3BC3D9E1E74B35F5909
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1434442   (151123) от 24.12.2020
+
+Jeff Liberman - Stream of Consciousness (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151123.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Love (3:28)
+02. I'm a Man (2:58)
+03. Into the Night (4:34)
+04. Nothing Will Be Here (2:54)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:358750EAA9DCB40917A1A0B19A2F90D6A32E5D14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1677694   (150499) от 18.11.2023
 
 Mike Zito & Albert Castiglia - Blood Brothers:  Live in Canada (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -641,122 +757,6 @@ Ozgur Hazar - Sad and Blue (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4694B899EDE8DA1114772EB034E904BCD46AF72
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 970272   (143538) от 29.12.2015
-
-Sly & The Family Stone - There's A Riot Goin' On (1971) 24k Gold Disc, 2013, Epic [FLAC|image +.cue] <Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143538.jpg" />
-</div>
-
-
-###  Подробнее
-
-Группа была сформирована в начале 1967 г. в Сан-Франциско музыкантом Слаем Стоуном, который дал ей своё имя.Kоллектив Слая Стоуна, игравший электронную музыку с преобладанием жесткого фанка, подчас с налётом психоделики. Это была первая группа в истории американской сцены, в которой на равных участвовали белые и чёрные, мужчины и женщины01. Luv N' Haight 4:02
-02. Just Like A Baby 5:10
-03. Poet 2:56
-04. Family Affair 3:05(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A90AD8805A238A07F739DAAED49E0E3D71740F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 969932   (143341) от 29.12.2015
-
-Keb' Mo' - Keb' Mo' (1994) SACD, 2011 Mobile Fidelity Sound Lab [FLAC|tracks +cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Morning (3:03)
-02. Tell Everybody I Know (3:29)
-03. Love Blues (3:03)
-04  Victims of Comfort (3:21)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:40:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB8CBDA67CA662308B33C5DCB0A251676708882
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1088102   (143289) от 29.12.2016
-
-Larry Miller - Live'N'Loud (2005) Live [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Stand And Deliver  (05:10) 
-02|  How Can A Man Resist  (04:08) 
-03|  Daddy'sCar  (06:28) 
-04|  99 Or More  (05:20) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:217EED0266167836F0F4196BEA9F5B6A98B4DF30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087996   (143282) от 29.12.2016
-
-Mitch Laddie Band - Live In Concert (2014) Live [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Awakening/Time Is Running Away  (07:21) 
-02|  So Excited  (05:33) 
-03|  Getting It Right  (04:20) 
-04|  Linger  (04:32) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:19:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC393814DFF22D7FB9F91D9FBBB2FF11E6589192
 ```
 
 https://mybot314.ru/tekegram_catalog/

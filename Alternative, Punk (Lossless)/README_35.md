@@ -1,3 +1,61 @@
+###  Публикация: 935447   (498415) от 09.09.2015
+
+Circa Waves - Young Chasers (2015) [FLAC|Lossless|WEB-DL]<Alternetive Rock, Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498415.jpg" />
+</div>
+
+
+###  Подробнее
+
+1	Get Away
+2	T-Shirt Weather
+3	Fossils
+4	Lost It(   Читать дальше...   )Жанр: Alternetive Rock, Indie RockПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE3F97B5B5F26A6D822E702072C8BA6C7718B864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1564874   (497734) от 21.07.2022
+
+Glass Tides - Wake Me Up (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_497734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wake Me Up
+02. Paranoia
+03. Enough (feat. Will King)
+04. Without You(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:28:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53584BBC2653DA15C8AC349786D2F7CAA2834555
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1243141   (496099) от 25.08.2018
 
 The Breeders - All Nerve (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie Rock>
@@ -701,64 +759,6 @@ Louise Connell - Squall Echo Rale (2019) [FLAC|Lossless|tracks + .cue] <Indie Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AD3D495CB1584653F760F62776C35F4B6CE3611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319603   (481223) от 13.08.2019
-
-Mermaidens - Look Me In The Eye (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crying in the Office (04:25)
-02. Sleeptalker (04:17)
-03. Millennia (04:06)
-04. I Might Disappear (03:06)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:36:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ECEFE41ED37F7E8249023407B919CA6F346D0F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1319523   (481215) от 13.08.2019
-
-Chumbawamba - Tubthumper (1997) [FLAC|Lossless|tracks + .cue] <Folk Rock, Pop Rock, Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481215.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tubthumping (4:39)
-02. Amnesia (4:08)
-03. Drip Drip Drip (5:09)
-04. The Big Issue (4:38)(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, PunkПродолжительность: 01:08:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA4A38296765764092D813B145BF277D230A399F
 ```
 
 https://mybot314.ru/tekegram_catalog/

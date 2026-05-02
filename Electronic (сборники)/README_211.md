@@ -1,3 +1,61 @@
+###  Публикация: 1704166   (114576) от 03.03.2024
+
+VA - Крутые пушки Весна 2024 [MP3|320 Kbps] <Club, Dance, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robin Stoll Vs. Gustavo Mota, Volac - Girls Drop That Thang Low Vs. Like Dis (VLLV Club MashUp) (2:34)
+02. Culture Beat - Mr. Vain (Silichev Remix) (3:04)
+03. Xassa, BODIEV - Самолёт (Andy Shik x EVGL Remix) (Radio Edit) (3:20)
+04. La Bouche - Be My Lover (Jenia Smile & Ser Twister Remix) (2:39)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 05:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:454D8F143FF814A4A8E4F44C71FB1B207FE6E8ED
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1704292   (114362) от 04.03.2024
+
+VA - Electronic compilation part 61 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Neuron - Run Back to You
+02. Adik - Our Secret
+03. Neuron - Night Light
+04. Adik - See You(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F40E51F22B0476AFCD11F02FDB6ADC52A201B04E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706596   (113582) от 13.03.2024
 
 Sterling Angel - Collection (2008-2023) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
@@ -687,70 +745,6 @@ Hamidshax - Compilation Cd 4 (2024) [MP3|320 Kbps] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5B105187573964475627857486EEE6C59DE2654D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1764362   (102704) от 07.12.2024
-
-Thievery Corporation - Best (1996-2018) [MP3|320 Kbps] <Duby Downtempo, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amerimacka
-02. Take My Soul
-03. Tomorrow
-04. Stargazer(   Читать дальше...   )Жанр: Duby Downtempo, Electronic, Trip-HopПродолжительность: 04:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01C38EACF67EBF33EF778337B45BE94DB1949427
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489784   (102032) от 29.04.2012
-
-VA - Beautiful Dubstep v.3 (2012) [MP3|256-320 кб/с]<Dubstep/Chillout/Longe>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102032.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blackmill Feat. Veela - Let It Be
-02. Aly & Fila Feat. Jwaydan - Together We Control The SunLight (Dubstep Remix)
-03. Above & Beyond - You Got To Go (Seven Lions Dubstep Remix)
-04. Blackmill - Spirit Of Life
-05. Blackmill - Evil Beauty
-06. Blank and Jones with Delerium, Rani - Fallen (Dubstep Mix)
-07. Dub and Run - Coming Home
-08. Ed Gabriel aka Cooper - Little Happiness
-09. ENiGMA Dubz - You Make Me Feel (Mastering)
-10. Fast Foot & Rose Royce - Wishing on a star(   Читать дальше...   )Жанр: Dubstep/Chillout/LongeПродолжительность: 02:33:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CF6F669DD6876F102E62F8F6623661F905B8E44
 ```
 
 https://mybot314.ru/tekegram_catalog/

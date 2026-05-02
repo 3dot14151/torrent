@@ -1,3 +1,61 @@
+###  Публикация: 1063839   (430357) от 18.10.2016
+
+VA - Progressive Trap House: October Mix (2016) [MP3|320 Kbps] <Progressive House, Electro, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430357.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Simon Sim's & Tymers - I Feel You (Extended Mix) (feat. Luny)
+002. The Aston Shuffle - Make A Wrong Thing Right (Dom Dolla Remix)
+003. Afrojack & Fais - Used To Have It All
+004. Ibiza Bitches - Be Happy (Radio Version)(   Читать дальше...   )Жанр: Progressive House, Electro, ClubПродолжительность: 05:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3988CE8FB580F07F62E5E33F804EC735EB523996
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1165768   (430295) от 14.09.2017
+
+VA - Music for Your Car Vol.6 (2017) [MP3|256-320 Kbps] <Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_430295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flying Decibels – The Road
+02. Kygo & Selena Gomez – It Ain’t Me
+03. Tujamo – Make U Love Me (Diplate & Hang Mos Radio mix)
+04. DLMT & Ellis – How Does It Feel (ft. AWR)(   Читать дальше...   )Жанр: Club, DanceПродолжительность: 06:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D60D79D40FEE20A54E77D7DA39D02CC63E0C906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1063884   (430109) от 18.10.2016
 
 VA - Melody Therapy: Relax Compilation (2016) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
@@ -693,64 +751,6 @@ VA - 60 Minutes. Old School Dance Music vol.10 (mixed by Dj V) (2022) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:652F0634B8FCED283B3D1061C55DC615977E925F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324417   (425371) от 09.09.2019
-
-VA - Record Super Chart 603 (2019) [MP3|320 Kbps] <Pop, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425371.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Shawn Mendes & Camila Cabello - Senorita (Qodes Remix) (3:25)
-2.C-BooL - Catch You (3:13)
-3.Billie Eilish - Bad Guy (3:14)
-4.Aaron Smith - Dancin (Krono Remix) (4:15)(   Читать дальше...   )Жанр: Pop, House, DanceПродолжительность: 01:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03E8C1CE0086347BDE991B53235C67435DB97F47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 946598   (425056) от 14.10.2015
-
-VA - Creative Music Box 26 (2015) [MP3|320 кб/с]<Dubstep, Glitch Hop, Trapstep, Drumstep, Drum'n'Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_425056.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Day To Remember- If It Means A Lot To You (Sullivan King Remix)
-02. Aquilo - Losing You (Vanic Remix)
-03. Barely Alive, Astronaut - Bad Fellas
-04. Borgore, Half Empty, Pouya  - Goddes(   Читать дальше...   )Жанр: Dubstep, Glitch Hop, Trapstep, Drumstep, Drum'n'BassПродолжительность: 02:07:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F42592CA43B9FE665ED05BBEC07576C9207BC65
 ```
 
 https://mybot314.ru/tekegram_catalog/

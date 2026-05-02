@@ -1,3 +1,212 @@
+###  Публикация: 956467   (328414) от 16.11.2015
+
+Soulwire (Ken Hill) - три альбома (2006-2011) дискография [FLAC|Lossless]<New Age, Chillout, Piano, Downtempo>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temple of Illumination (07:21)
+02. When Time Sleeps (01:41)
+03. X (05:07)
+04. Ellipsina (04:07)(   Читать дальше...   )Жанр: New Age, Chillout, Piano, DowntempoПродолжительность: 02:32:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F3A750FE248D327A44913AF2527A4DE0517A4A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957196   (327551) от 17.11.2015
+
+Rudolf Werthen, I Fiamminghi, Juan Jose Mosalini - Tango - La Elegia De Quienes Ya No So (1999)/Telarc, [FLAC|image+cue]<tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327551.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Tanguedia		03:38
+02.	Four for tango		06:29
+03.	Lo que vendra		04:34
+04.	No 1 - Street tango		04:42(   Читать дальше...   )Жанр: tangoПродолжительность: 01:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FE8BBDB20325FB468539F0D16B90D88AFF1CD20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957318   (327544) от 17.11.2015
+
+VA - Fast and Furious 7 (original motion picture soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kid Ink, Tyga, Wale, YG & Rich Homie Quan - Ride Out    [03:31]
+02. T.I. & Young Thug - Off-Set                             [03:14]
+03. Sevyn Streeter - How Bad Do You Want It (Oh Yeah)       [03:44]
+04. Dillon Francis & DJ Snake - Get Low                     [03:33](   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:00:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A863EA48A44C489A5708203C493A2A99433A46CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957122   (327503) от 17.11.2015
+
+VA - TANGO. selected by Eduardo Makaroff (2007) / Wagram Music [FLAC|image+cue]<tango>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327503.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quintento Real / Canaro En Paris    [0:02:50.59]
+02. Melingo / Noche Trasfigurada    [0:01:31.10]
+03. Ramiro Gallo Quinteto / Al Amiga Pablo Rago    [0:04:21.01]
+04. Carlos Gardel / Anclao En Paris    [0:02:07.12](   Читать дальше...   )Жанр: tangoПродолжительность: 01:04:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C9F667DB7402B9E9CC074C1DABA4BCFD15131D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957522   (327338) от 17.11.2015
+
+Deep Forest - La Selection: Best Of Deep Forest (2014) 3CD, Box Set, Limited Edition [FLAC|tracks+.cue]<World, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327338.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Lullaby (Live)
+02. Bohemian Ballet (5:17)
+03. Twosome (Marta & Katalin Version) (4:08)
+04. Deep Forest - Forest Power (3:50)(   Читать дальше...   )Жанр: World, New Age |Продолжительность: 02:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C018530A51D5C98EAD4C5C96D6E33E4215162A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 956444   (327328) от 17.11.2015
+
+Luca Stricagnoli - Luca Stricagnoli (2015) [FLAC|Lossless|WEB-DL]<Instrumental, Acoustic>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunderstruck
+02. Braveheart
+03. Conquest of Paradise
+04. Paradise(   Читать дальше...   )Жанр: Instrumental, AcousticПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2078926272205ADD8124903A0BFA343D7A78EEE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 842166   (327302) от 19.11.2014
+
+Trevor Morris - Dragon Age: Inquisition (2014) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dragon Age Inquisition Theme [00:02:52]
+02. Escape From The Fade [00:01:14]
+03. The Wrath Of Heaven [00:05:27]
+04. Calling The Inquisition [00:01:59]
+05. Champions Of The Just [00:03:56]
+06. Lord Seeker [00:02:08]
+07. In Hushed Whispers [00:04:49]
+08. Sacrifice [00:01:01]
+09. Alexius [00:02:35]
+10. In Your Heart Shall Burn [00:01:34](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BBD32BB9E2F8577CC546E751A680FE02EFE8FA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957195   (326721) от 18.11.2015
 
 Crimeanization - Without Someone - (2011) [MP3|320 кб/с]<New Age, Ambient>
@@ -541,208 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D428DBF8A7834DA64DF0BBD139AD97FCA7AA9C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1580732   (322992) от 09.10.2022
-
-VA - RELAX - Морской бриз - Звуки живой природы в сопровождении известных романтических мелодий (1999) [FLAC|Lossless|tracks] <Instrumental, Nature, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RELAX - Морской бриз - Трек 1 (30:00)
-02. RELAX - Морской бриз - Трек 2 (30:00)Жанр: Instrumental, Nature, RelaxПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD0177546FD10FC943FB9B672973E786500870C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331692   (322782) от 16.10.2019
-
-VA - Игла. Remix (2010) [FLAC|Lossless|image + .cue] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Кино и Игорь Вдовин - Звезда по имени Солнце
-02. Кино и Игорь Вдовин - Дальше действовать будем мы
-03. Messer Chups - Шапито буги
-04. Игорь Вдовин и Юрий Каспарян - Дорога(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:05:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE136B9BF4EEA3E75637AA21BB08CBC855D617EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 62985   (321528) от 03.11.2020
-
-Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321528.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ке́вин Ке́рн (англ. Kevin Kern; род. 22 декабря 1958) — американский композитор и пианист. Кевин Керн родился пятым из шести детей в семье хирурга и домохозяйки в Детройте, штат Мичиган, США.
-Начал учиться играть на фортепиано с четырёх лет, с восьми стал писать музыку. В 14 он уже выступал с группой, которую основал сам. Кевин был полон решимости стать (   Читать дальше...   )Альбомы:
-1996 - In the Enchanted Garden
-1997 - Beyond the Sundial
-1998 - Summer Daydreams(   Читать дальше...   )Жанр: New AgeПродолжительность: 06:33:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCE60C49FFDDA24CE055FCF84A4CC7174EE1405F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1181787   (321208) от 08.11.2017
-
-VA - Где-то на белом свете... (1996) [FLAC|Lossless|image + .cue] <Retro, Soundtrack, Pop>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Нина Бродская - Звенит Январская Вьюга (Иван Васильевич Меняет Профессию) (3:04)
-02. Лев Полосин - Кап-Кап-Кап (Иван Васильевич Меняет Профессию) (2:24)
-03. Эстрадный Оркестр П-У В.Людвиковского - Погоня (Иван Васильевич Меняет Профессию) (1:43)
-04. Валерий Золотухин - Разговор Со Счастьем (Иван Васильевич Меняет Профессию) (2:40)(   Читать дальше...   )Жанр: Retro, Soundtrack, PopПродолжительность: 01:04:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA80E65F6D9B7089D06B2CCE94C6EFD0E8B434DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075217   (321152) от 22.11.2016
-
-Midori - A Very Midori Christmas (2016) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Came Upon a Midnight Clear [00:06:38]
-02. Away in a Manger [00:07:07]
-03. Ding Dong Merrily on High [00:06:16]
-04. Silent Night [00:06:11](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A65965439C4566BF331FE2D9C6730529D1FACA37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075549   (321008) от 22.11.2016
-
-Al Conti - Mystic (2016) [MP3|320 Kbps] <New Age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321008.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mystic 8:43
-02. Trance 5:28
-03. Prayer 4:55
-04. Visions 5:16(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:50:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37970979CEAEBE2FC90A52C6735885469A3F67BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075567   (320990) от 22.11.2016
-
-Craig Armstrong & Adam Peters - Snowden / Сноуден (Original Soundtrack) + (Orchestral Score) (2016) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320990.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snowden Symphonic (03:30)
-02. Burden Of Truth (02:05)
-03. Opening - Secret Downloading (01:40)
-04. Troops March (01:58)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:39:24 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91FC50756E8302011A8E193DF6FC8695A4AD7C9A
 ```
 
 https://mybot314.ru/tekegram_catalog/

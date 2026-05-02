@@ -1,3 +1,177 @@
+###  Публикация: 1745922   (104972) от 29.08.2024
+
+Beyond Veils - Think happy thoughts (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. THINKHAPPYTHOUGHTS [00:04:09]
+02. pRoJeCt aFtErLiFe [00:03:27]
+03. GATEKEEPERS [00:03:39]
+04. rawrXD [00:03:17](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:38:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6792E69C8A3405B95CBBF29BAB8FE454465550DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745891   (104971) от 29.08.2024
+
+Joji - Smithereens (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R'n'B, Hip-Hop, Neo-Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glimpse of Us [00:03:53]
+02. Feeling Like The End [00:01:42]
+03. Die For You [00:03:31]
+04. Before The Day Is Over [00:03:33](   Читать дальше...   )Жанр: R'n'B, Hip-Hop, Neo-SoulПродолжительность: 00:24:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A8A02506F56BC2554FEB47D7D55D221114415EC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746159   (104967) от 29.08.2024
+
+Leprous - Melodies Of Atonement (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silently Walking Alone (4:05)
+02. Atonement (4:49)
+03. My Specter (3:56)
+04. I Hear the Sirens (4:31)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0BEF0B7F69D03A9CD811C39E3DFB0D53ABF7475
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746271   (104965) от 30.08.2024
+
+Frank Catalano & Lurrie Bell - Set Me Free (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everyday I Have The Blues (5:33)
+02. The Sky Is Crying (6:46)
+03. Set Me Free (4:09)
+04. Shakin (4:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:395DCEB5DE66070AE24B3DE0841E164DF91EBE15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746265   (104950) от 30.08.2024
+
+Haken - Studio Albums (9 releases) (2008-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal/Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Haken — лондонская прогрессив-рок/метал-группа, основанная в 2007 году Ричардом Хеншоллом и Россом Дженнингсом.2008 - Enter The 5th Dimension
+2010 - Aquarius
+2011 - Visions
+2013 - The MountainЖанр: Progressive Metal/RockПродолжительность: 08:54:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C72B77356158E8A1E5CB16ED7FF8C553841AB3A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1746269   (104949) от 30.08.2024
+
+Fiona Cosgrove - Fiona Cosgrove Introspective (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All the Things (3:41)
+02. Glitter (3:33)
+03. Comfortable (3:09)
+04. Ocean (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22C79D04031A6148A221CCD710DD957B8217886A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746264   (104947) от 30.08.2024
 
 Shemekia Copeland - Blame It On Eve (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -569,180 +743,6 @@ Steve Smith and The Sneakers - Hopeless Troubadour (2024) [FLAC 24/44.1|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F550430815DE31CB8891F46B91632BBADD10C63D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746941   (104820) от 02.09.2024
-
-Taj Farrant - Chapter One (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Things (1:35)
-02. Bad Trip (4:41)
-03. Crossroads (3:41)
-04. Cruz (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93EB7147559BC82660AE25D65AA89FB5025F84A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746887   (104819) от 02.09.2024
-
-Tim Armacost feat. Tom Harrell, Gary Smulyan, John Patitucci & Al Foster - Something About Believing (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104819.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It's Really Just A Blues (8:14)
-02. Dance To The Lady (10:05)
-03. The Chief (7:45)
-04. Something About Believing (9:47)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB2663B51FFEE921542189E032EA65B38AC95E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746933   (104818) от 02.09.2024
-
-Steve Smith and The Sneakers - Hoodoo Man (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mean Ol Woman Blues (4:32)
-02. Lipstick and Lace (5:51)
-03. Ca Viens Mama (5:25)
-04. Have a Good Time Tonight (3:44)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96318DA6A7E450FE8E6FF25A7297C46C99EE930B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746896   (104817) от 02.09.2024
-
-Zaphica - Zaphica (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104817.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Great Apostasy (7:54)
-02. The Birth of Venus (6:11)
-03. Antiprism (7:10)
-04. For Fred (1:22)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9371B757A905AAA19B515A1CEEA3DA6469721739
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746930   (104816) от 02.09.2024
-
-Katrina SoulSinger - Category 5 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You'll No Bout Me (3:34)
-02. Sittin Right Here (3:16)
-03. Come Get Your Man (3:45)
-04. Put It On You (4:12)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:00:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8424177CEDD1641B7A408471B430C4FCFE90B6BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746936   (104815) от 02.09.2024
-
-Steve Smith and The Sneakers - The Glory Road (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Before You Start To Run (3:12)
-02. I Ain't Done Yet (with the blues) (3:43)
-03. Doug's Song (4:37)
-04. Till I Met You (4:52)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6DC62CDD8B55956E8D0D3DD8C4550364ABE68F
 ```
 
 https://mybot314.ru/tekegram_catalog/

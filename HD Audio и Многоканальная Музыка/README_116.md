@@ -1,3 +1,177 @@
+###  Публикация: 1714554   (111715) от 09.04.2024
+
+Mahmut Orhan - Pangea (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Dance, House>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Redemption [3:12]
+02 - Ederlezi [3:04]
+03 - Pangea [4:02]
+04 - Nighter [2:58](   Читать дальше...   )Жанр: Electronic, Dance, HouseПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:427EE668D83D87CA2DF5F1FC96FBA5E24B23E3E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714544   (111712) от 09.04.2024
+
+Kenya Grace - The After Taste (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic, Electropop, Dance>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111712.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The After Taste (intro) [1:25]
+02 - Strangers [2:53]
+03 - It's not fair [2:43]
+04 - Stay [3:16](   Читать дальше...   )Жанр: Electronic, Electropop, DanceПродолжительность: 00:24:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7983D5C7728616B44C0211666488A00F4F82D587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714678   (111676) от 10.04.2024
+
+The Fiery Lights - 1982 (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Too Damn Clever for Your Own Damn Good (00:04:31)
+02 - Tongues (00:04:49)
+03 - David (00:04:00)
+04 - Just Speak (00:04:18)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:43:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF87125B59A9389D677BDD2C1E56BBB6606EDF35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714897   (111675) от 10.04.2024
+
+Rick Vito - Cadillac Man (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Crazy Baby (4:21)
+02. It's Two A.M. (4:33)
+03. Cadillac Man (3:27)
+04. Little Sheba (4:18)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6328236CE82BA4D239E029C0EF71BE3D85520ADB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714880   (111674) от 10.04.2024
+
+Blue Lavinia - Don't Take It (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Take It (4:59)
+02. My Baby Tells Me Nothing (5:02)
+03. Pebble Song (3:43)
+04. Spanish Dreams (4:59)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24B53A31B343EC25A9712CA35E024861407E1E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1714647   (111668) от 10.04.2024
+
+«Joshua» (Joshua Perahia) - Surrender (1986) [FLAC 2.0|24/192|Lossless|image + .cue] <Hard Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111668.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Surrender Love
+A2 Heart Full Of Soul
+A3 Your Love Is Gone
+A4 Hold On(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06A1ADDB93E540F98C41D3907E4604ADB9190AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1714901   (111666) от 10.04.2024
 
 Sam Morrow - On The Ride Here (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Roots Rock, Blues Rock, Funk>
@@ -561,180 +735,6 @@ Slash - Oh Well feat. Chris Stapleton (2024) Single [FLAC 24/96|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29CB8E75B3F037E66E7F820E2105CC771A3CCB07
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1715845   (111425) от 13.04.2024
-
-BlackRain - Hot Rock Time Machine (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Glam Rock, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Overloaded [3:36]
-02 - Baby Shot Me Down [3:55]
-03 - Wild Wild Wild [3:21]
-04 - She's in Love [3:53](   Читать дальше...   )Жанр: Hard Rock, Glam Rock, Glam MetalПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1890356E74984F0B09D5A807A2A3C7A46F04748D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716001   (111420) от 13.04.2024
-
-Imminence - The Black (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111420.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Come Hell or High Water [3:50]
-02 - Desolation [4:08]
-03 - Heaven Shall Burn [4:08]
-04 - Beyond the Pale [4:14](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD3D1CABCEF3CE29A61876C09BDBC4AB9B3F3BD0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716266   (111415) от 14.04.2024
-
-A La Carte - The Ultimate Best of Album (2016) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Disco, Euro Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jimmy Gimme Reggae (Remastered) [00:03:00]
-02. When the Boys Come Home (Remastered) [00:04:05]
-03. You Get Me on the Run (Remastered) [00:03:21]
-04. Viva Torero (Remastered) [00:03:55](   Читать дальше...   )Жанр: Pop, Disco, Euro DiscoПродолжительность: 02:31:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB2EB9B42204196DD3B5CF57FD9E8E17E71E5ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716179   (111385) от 14.04.2024
-
-Chicane - Far From The Maddening Crowds (Symphonic Rehearsals) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Modern Classical, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111385.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Early (Symphonic Rehearsal Mix)(05:23)
-02. Already There (Symphonic Rehearsal Mix)(03:30)
-03. Offshore (Symphonic Rehearsal Mix)(06:27)
-04. Lost You Somewhere (Symphonic Rehearsal Mix)(04:05)(   Читать дальше...   )Жанр: Ambient, Modern Classical, ElectronicПродолжительность: 00:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C60EA016C7C47CD3693BB9ED7DF5365A71245B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716177   (111372) от 14.04.2024
-
-Frank & Tony - Ethos (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Deep House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olympia (06:25)
-02. Ethos (06:56)
-03. Too Poor for Movies, Too Tired for Love (07:23)
-04. Nobody Present Ever Stood So Still (07:47)(   Читать дальше...   )Жанр: Electronic, Deep HouseПродолжительность: 01:01:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4590A4FF0A2A8AD3DAC03EFB44F3337B55A678F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1716135   (111368) от 14.04.2024
-
-Love Sex Machine - Trve (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Sludge Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111368.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – FUCKING SNAKES
-02 – TEST26
-03 – TRAPPED FOR LIFE
-04 – BODY PROBE(   Читать дальше...   )Жанр: Sludge MetalПродолжительность: 00:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1C44269A7C4221BCF823F4093363F0E7038DD0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1293414   (635497) от 04.04.2019
+
+VA - Pure Synthwave Vol. 1 (2018) [MP3|320 Kbps] <Synthwave, Retrosynth, Outrun, Electronic>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. September 87 - Ride All Night (5:56)
+02. The New Division - Vicious (3:15)
+03. Cosaquitos En Globo - Cruzando el Puente (Instrumental) (4:07)
+04. Oblique - I'm Your Mirror (4:45)(   Читать дальше...   )Жанр: Synthwave, Retrosynth, Outrun, ElectronicПродолжительность: 01:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:864273FD6762FC1A6067233326F07B1231FC78DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1543607   (629248) от 11.04.2022
 
 NeoSpace - Flying to the Stars (2022) [MP3|320 Kbps] <Spacesynth, Synthwave>
@@ -719,35 +748,6 @@ Talk Talk — британская группа, существовавшая с
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3834D51ED4ADE3032BE1F8037DE450C8F04271BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041966   (580458) от 11.08.2016
-
-Split Mirrors - 3 Albums (1993-2011) [MP3|320 Kbps] <Electro, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_580458.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1993 - 1999
-2007 - In London
-2011 - From The Beginning(   Читать дальше...   )Жанр: Electro, Synth-popПродолжительность: 02:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A1D044395DE80D5D7C712430D2CFDDD5C91CD1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

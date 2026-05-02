@@ -1,3 +1,206 @@
+###  Публикация: 1828014   (193752) от 23.10.2025
+
+Armik - Romantic Spanish Guitar, Vol. 2 (2015) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193752.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds of Passion
+02. Breathless
+03. Guitanova
+04. Isla Mujeres(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E96796425674DC2F3C4A0F85FEC97C91E9914EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828051   (193639) от 23.10.2025
+
+Francis Goya - Douce France, Vol.1-2 (2022) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Instumental>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193639.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vol.1:
+01. Ballade Pour Adeline
+02. Belle
+03. Comme Ils Disent(   Читать дальше...   )Жанр: Instumental |Продолжительность: 01:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE0952DE778488A53381527D4573E0FE64CB0183
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1828010   (193262) от 23.10.2025
+
+Armik - Romantic Spanish Guitar, Vol. 1 (2014) [FLAC 24/96|Lossless|WEB-DL] <Instrumental, Flamenco>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193262.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dancing In The Clouds
+02. Guitarra Poeta
+03. Romance De La Luna
+04. Lagrimas(   Читать дальше...   )Жанр: Instrumental, FlamencoПродолжительность: 00:51:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4524BBBAF1D010F92F762D8AF533DE88F31D22A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587245   (192928) от 30.10.2022
+
+Тэм Гринхилл - Полынный ветер (2011) [FLAC|Lossless|image + .cue] <Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192928.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Перебор серебром...
+02. Догорает свеча в руке...
+03. Мне приснился страшный сон...
+04. Полночь оплачет...(   Читать дальше...   )Жанр: FolkПродолжительность: 00:33:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B94D03F56256AC7BCA8BEE0A06926FE8CD62D18A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587095   (192680) от 31.10.2022
+
+Vevaki (Vévaki) - Fórnspeki (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brynhildarljóð [00:03:37]
+02. Heimdalagaldr [00:03:56]
+03. Hreingálknir [00:02:38]
+04. Jötnablót [00:08:37](   Читать дальше...   )Жанр: Neo FolkПродолжительность: 00:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5968EC2AA145B589BF407FE0C37E75F50BB45071
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587439   (192676) от 31.10.2022
+
+Meldis - Цветок омелы (2010) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192676.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Trinquons Nos Verres
+02. Ar Soudarded
+03. Let No Man Steal your Thyme
+04. Peacock's feather / Swallow's Tail Reels(   Читать дальше...   )Жанр: Folk, Celtic HarpПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97367E6E64C47119D6D4680DF362A5C95992BE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1587138   (192608) от 31.10.2022
+
+Sinoia Caves - Beyond The Black Rainbow (2014) [FLAC|Lossless|tracks + .cue] <Soundtrack, Score, Ambient>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_192608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Forever Dilating Eye (4:17)
+02 - Elena's Sound-World (5:04)
+03 - Run Program: Sentionauts (3:00)
+04 - Arboria Tapes - Award Winning Gardens (3:03)(   Читать дальше...   )Жанр: Soundtrack, Score, AmbientПродолжительность: 00:38:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8993DCB5EAFEBB9285DFBF50C288056FB88EBB6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1657194   (192137) от 05.09.2023
 
 Hans Zimmer, Lebo M, Elton John - Король Лев / The Lion King (2017-2019) Walt Disney Records [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Soundtrack, Score>
@@ -538,209 +741,6 @@ Dirt Poor Robins - Queen of the Night (Soundtrack) (2022) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:26C8587D737857D219F7900B12A0D9614F462233
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591262   (187518) от 17.11.2022
-
-VA - Хочу замуж (к\ф «Хочу замуж» официальный саундтрек) (2022) [MP3|320 Kbps] <OST>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187518.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. POLINA - Что-то пошло не так
-2. Люся Чеботина - Главная причина
-3. Николай Ростов - Где ты была вчера?
-4. Апрелия - Белая птица(   Читать дальше...   )Жанр: OSTПродолжительность: 00:41:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7211B53D3667D85CCB7901567C997BC6BE28C99E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591297   (187179) от 18.11.2022
-
-Constance Demby - Sacred Space Music (1988) [FLAC|Lossless|tracks + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Longing
-02. RadianceЖанр: New AgeПродолжительность: 00:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB56D70E64BBF7B8E3649F0B9B147E6277C46E3E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 224151   (185858) от 25.11.2020
-
-VA - Celtic Chill Out Lounge (2010) [FLAC|Lossless|image + .cue] <Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aethera - The Mountain Side (3:56)
-02. Kieran - Drowning (5:48)
-03. Conner O'Reilly - Hear The Angels Call (5:07)
-04. John Flighten - Water And Tears (5:12)(   Читать дальше...   )Жанр: ChilloutПродолжительность: 00:55:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF449EA5B0FC3A365040B5CA25F35F8521BC93CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 290832   (185846) от 25.11.2020
-
-Wes - Welenga (1996) [FLAC|Lossless|image + .cue] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185846.jpg" />
-</div>
-
-
-###  Подробнее
-
-Wes Madiko (Вес Мадико) родился 15 января 1964 года в небольшой камерунской деревне в семье бухгалтера.
-Еще в детстве дед начал обучать Веса игре на традиционном музыкальном инструменте — санса, основам древней медицины, истории и философии банту.
-С десятилетнего возраста мальчик стал выступать в составе Kwa Kwassi Orchestra на различных торжественных мероприятиях (   Читать дальше...   )01. Awa Awa (4:29)
-02. Alane (3:43)
-03. Kekana (3:19)
-04. Wezale (4:40)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:50:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C622899CCA277622A2F65C32B78A4849E9980E52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1591191   (185460) от 20.11.2022
-
-Basteiro-Bertoli - Boh (2022) [FLAC|Lossless|WEB-DL|tracks] <Folk Rock, Songwriter, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_185460.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grey
-02. Cofing
-03. Ladies in Black (feat. Ian Anderson)
-04. Mirror(   Читать дальше...   )Жанр: Folk Rock, Songwriter, RockПродолжительность: 00:28:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BD952D1E860EA31B3DD1C400217C2FE65E33DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 252371   (184769) от 26.11.2020
-
-VA - Romantic Melodies - Moonlight Sax (2004) [APE|Lossless|image + .cue] <Instrumental, Smooth Jazz, Saxophone>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184769.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Acker Bilk - A Rainy Night in Georgia - Acker Bilk - A Rainy Night in Georgia (4:21)
-02. Samantha Blue - Orfeo Negro - Samantha Blue - Orfeo Negro (4:25)
-03. Lalo Shiffrin - Dim - Lalo Shiffrin - Dim (2:50)
-04. Grover Washington Jr - In the name of love - Grover Washington Jr - In the name of love (5:27)(   Читать дальше...   )Жанр: Instrumental, Smooth Jazz, SaxophoneПродолжительность: 01:07:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0979A8896E5A669C7496AB4043B68A27D897CFE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1662299   (184735) от 27.09.2023
-
-John S. Weekley - Dread Templar (Original Game Soundtrack) (2023) [FLAC|Lossless|tracks] <Electronic, Stage&Screen>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_184735.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I. The Beginning [1:08]
-02. The Dread Templar [4:40]
-03. Flesh Against Steel [5:33]
-04. Bloodstained Hollows [5:39](   Читать дальше...   )Жанр: Electronic, Stage&ScreenПродолжительность: 02:07:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00182F68AB71EC7C5D988B2946E9A49059484C97
 ```
 
 https://mybot314.ru/tekegram_catalog/

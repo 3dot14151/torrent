@@ -1,3 +1,32 @@
+###  Публикация: 905249   (651920) от 05.06.2015
+
+Sunchild - Synesthesia (2015) [MP3|320 кб/с]<Crossover Prog>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651920.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synesthesia (6:00)
+02. The Chosen One (5:14)
+03. Outer Space (4:22)
+04. Space Out (part 1) (1:11)(   Читать дальше...   )Жанр: Crossover ProgПродолжительность: 00:47:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:345C72FA8B925A7090035999A7F7F9325BEED587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 905151   (651748) от 05.06.2015
 
 Maiden uniteD - Remembrance (2015) [MP3|320 кб/с]<Acoustic Rock>
@@ -736,35 +765,6 @@ Palaye Royale - Boom Boom Room (Side A) (2016) [MP3|320 Kbps] <Glam Rock, Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DCBEA8A357F662003CA0D653DF00B73E618C288
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906300   (645881) от 08.06.2015
-
-Terramater - Protheus (2015) [MP3|320 кб/с]<Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chief (4:29)
-02. Destiny (3:49)
-03. Queen (3:11)
-04. War (6:34)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:45:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EDB89BD12F04B0A4B29689FF7CADD92A5B30640
 ```
 
 https://mybot314.ru/tekegram_catalog/

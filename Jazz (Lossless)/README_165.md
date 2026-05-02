@@ -1,3 +1,61 @@
+###  Публикация: 933916   (504619) от 03.09.2015
+
+Donald Byrd - With Strings & Byrd Blows On Beacon Hill (1956/1959) /2013, Phoenix Records/ [FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stardust [03:29]
+02. Indian Summer [02:47]
+03. I'm A Fool To Want You [03:31]
+04. Someday My Prince Will Come [02:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:860B19884AEC8C217982341F9CCFA30C87D2B04A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 933924   (504613) от 03.09.2015
+
+Shorty Rogers & The Giants - You Shorty, Me Tarzan! (1956-1959) /2010, Giant Steps Records/ [FLAC|tracks+.cue]<West Coast Jazz, Score>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_504613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Elephant Wail [03:26]
+02. Los Barbaros [01:41]
+03. Paradise Found [03:06]
+04. Trapped [01:56](   Читать дальше...   )Жанр: West Coast Jazz, ScoreПродолжительность: 00:55:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B42CD4080A7B379D1EA855F2555C8C5BAC31AE3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 933910   (504609) от 03.09.2015
 
 Terry Gibbs - The Exciting Terry Gibbs Big Band + Swing Is Here! (1960/1961) /2011, Poll Winners Records/ [FLAC|tracks+.cue]<Big Band, Mainstream Jazz>
@@ -690,70 +748,6 @@ London, Meader, Pramuk & Ross - The Royal Bopsters Project (2015) [FLAC|tracks|W
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1DB539562D2E1DF28CE96080B4821917B5C1DAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1317597   (500497) от 01.08.2019
-
-Art Pepper & The Hollywood All-Stars - Art Standards (1979 - 1982) 2002, Galaxy [FLAC|Lossless|tracks + .cue] <Cool, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Begin the Beguine [6:51]
-02. You'd Be So Nice to Come Home To [6:49]
-03. Night and Day [10:00]
-04. Bernie's Tune [8:40](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 01:04:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85C63EE78D1C7491200EEDA2F8D1CA44CBDB8349
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 541636   (500436) от 01.09.2012
-
-VA - Jazz Ladies & Stan Kenton (1996) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chris Connor - And The Bull Walked Around, Olay [02:40]
-02. Chris Connor - All About Ronnie [02:53]
-03. Chris Connor - Jeepers Creepers [02:20]
-04. Chris Connor - If I Should Lose You [02:41]
-05. Chris Connor - I Get A Kick Out Of You [02:44]
-06. Kay Brown - Lonesome Train [02:48]
-07. Jean Turner - A Lot Of Livin' To Do [02:06]
-08. Jean Turner - It's A Big, Wide, Wonderful World [01:41]
-09. Ann Richards - Black Coffee [03:40]
-10. Ann Richards - The Thrill Is Gone [02:52](   Читать дальше...   )Жанр: Jazz VocalФормат: CDПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

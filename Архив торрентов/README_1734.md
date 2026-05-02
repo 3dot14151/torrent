@@ -1,3 +1,243 @@
+###  Публикация: 903100   (658443) от 30.05.2015
+
+Гнев / Tokarev (2014) Blu-ray [H.264/1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658443.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еще несколько лет назад Пол Магуаер раскаялся в былых преступлениях. Теперь он — честный бизнесмен и заботливый семьянин. Но криминальное прошлое не отпускает его. Однажды неизвестные врываются в дом Магуаера и жестоко убивают его дочь. Месть отца будет беспощадной…Производство: США, Франция, Hannibal Pictures, Marco Polo Production, Patriot Pictures, Tokarev Production, Vocal YokelsЖанр: Боевик, Триллер, КриминалРежиссер: Пако КабесасАктеры: Николас Кейдж, Рэйчел Николс, Петер Стормаре, Дэнни Гловер, Обри Пиплз, Елена Санчес, Майкл МакГрэйди, Павел Личникофф, Доун Хэмил, Макс РайанПеревод: Дублированный (Лицензия BD RUS)Субтитры: ОтсутствуютПродолжительность: 01:37:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C65961A71AF997DC10FFD14BAEABA870BFFD5388
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903043   (658427) от 30.05.2015
+
+Грешник (2014) SATRip (серии 1-2 из 2)
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658427.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда Владу было 5 лет, его мать убили, и в ее смерти всю последующие годы он винит отца. На 20-ую годовщину трагедии юноша решает расставить точки над «i» и собрать всех родственников. В процессе поиска и встреч с ними Влад выясняет факты, которые меняют все…Производство: Россия, Марс МедиаЖанр: драмаРежиссер: Дмитрий КонстантиновАктеры: Андрей Смоляков, Евгений Антропов, Любовь Новикова (II), Дмитрий Куличков, Дарья Урсуляк, Дмитрий Мухамадеев, Мария Болонкина, Владимир Капустин, Владимир Виноградов, Иван Дремач, Александр Городиский и др.Язык субтитров: ивритПродолжительность: ~ 00:47:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C3ABD428220CABF136E9731BE4807D16B6799AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 715572   (658416) от 30.05.2015
+
+Lars Leonhard - Discography 23 Releases (2010-2015) [MP3|320 кб/с]<Dub Techno, Progressive House, Deep House, Techno, Ambient>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Burning Clouds (05:38)
+ 02. Halos (05:43)
+ 03. Northern Lights (07:03)Жанр: Dub Techno, Progressive House, Deep House, Techno, Ambient |Продолжительность: 00:18:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24777C2BD17B41BA63164AF82BA0C1A8B31F64C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903157   (658399) от 30.05.2015
+
+Red Giant Magic Bullet Suite 12.0.4 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658399.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magic Bullet Suite 12 - Пакет плагинов, состоящий из семи мощных инструментов финальной редакторской обработки, используемых для профессиональной цветокоррекции, освещения, улучшения и производства фильмов в After Effects, Premiere Pro, Avid и Sony Vegas Pro. В пакет включены следующие плагины: Magic Bullet Looks 3, Magic Bullet Colorista III, Magic Bullet Film, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C65B76BEF64E74B6F60A0AA47A43BC945778B78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 862058   (658390) от 30.05.2015
+
+Audio Hijack 3.1.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658390.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audio Hijack 3 - инструмент для записи звука с любых аудиоисточников от компании Rogue Amoeba. Доступное для компьютеров с операционной системой OS X приложение позволяет записывать разговоры в Skype и FaceTime, оцифровывать аналоговые магнитные записи и пластинки, вести запись музыки из iTunes и Safari.
+
+Audio Hijack имеет блочный интерфейс, набор шаблонов для настройки (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 29 мая 2015Разработчик: Rogue Amoeba Software, Inc.Поддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F78272A0B8C1988653A4083FC164C49BB6E25F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903124   (658389) от 30.05.2015
+
+Microsoft Windows 10 Pro / Home Insider Preview 10.0.10130 (esd) [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658389.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38A21D7CE334401BB62026E6C0FE993EDB984207
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 903216   (658388) от 30.05.2015
+
+Microsoft Windows 10 Enterprise / Pro / Home Insider Preview 10.0.10130 (esd) [En] + Language Pack [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658388.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая версия популярной операционной системы от компании Microsoft получила название Windows 10, хотя предыдущий крупный релиз шел под названием Windows 8. Переход сразу к Windows 10 отражает желание компании дистанцироваться от не очень популярной предыдущей версии. Имено поэтому, как сообщается, была пропущена девятая версия: переход от восьмой сразу к десятой (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1008BB7D279AE6A3D1F826A19C97B84C3F61DC26
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 340188   (658374) от 28.05.2011
+
+VA - Electro Face (03.05.2011) [MP3|320 kbps]<House, Electro-House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_658374.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, Electro-HouseПродолжительность: 12:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:404B93B5A7690B47277063A4EA237F9BC935BDC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 341547   (658364) от 28.05.2011
+
+Pedro Del Mar - Mellomania Deluxe 488 (23-05-2011) [MP3|256 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658364.jpg" />
+</div>
+
+
+###  Подробнее
+
+PEDRO DEL MAR IN THE MIX:
+
+01. the 808s - lights out (nick galea remix)Жанр: TranceПродолжительность: 02:01:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE636F09C6623648F7A7D1DDA0CC81D40A18125
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 340950   (658349) от 28.05.2011
 
 Bruno Sanfilippo - Subliminal Pulse (2011) [MP3|320 kbps]<Ambient>
@@ -518,291 +758,6 @@ Meta поможет Вам управлять постоянно растуще�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:752DAA5F42619237761B0ADD90909C9A2666033F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139465   (658269) от 04.06.2017
-
-VA - Vocal Trance Vol 2 (2017) [MP3|320 Kbps] <Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658269.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. CubeTonic - So Strong (feat Dilara Gadel - Saad Ayub remix) (07:25)
-2. Russian Dolls & Nathia Kate - Always (feat Robin Vane - Ruslan Radriges remix) (03:43)
-3. Roman Messer & Armos - Higher (feat Angel Falls - original mix) (06:30)
-4. Eximinds & Lucid Blue - A Higher Love (original mix) (05:32)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F30F705D8000492595038298B92E4C610AAEF192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339695   (658262) от 28.05.2011
-
-Linda Perry - два альбома (1996,1999)[FLAC|Lossless]<Female Vocalists/Indie/Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_658262.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Garden	4:40
-    02. Jackie	5:13
-    03. Sunny April Afternoon	4:04
-    04. Lost Command	5:12
-    05. Get It While You Can	4:31
-    06. Bang The Drum	4:02
-    07. Some Days Never End	3:32
-    08. New Dawn	5:17
-    09. Fly Away	5:44
-    10. Let Me Ride	3:50(   Читать дальше...)Жанр: Female Vocalists/Indie/RockПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514479   (658247) от 24.06.2012
-
-Koma & Bones - Shutterspeed (2003) [MP3|320 кб/с]<Breakbeat, Breaks>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658247.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Take Me Back 6:57
-2. Donkey Spanner 6:54
-3. Questo É Sporc 6:15
-4. Bootabang 6:59
-5. Pusherman 4:02
-6. Twisted Streets 6:14
-7. Slalom 6:55
-8. Flip Flop 1:12
-9. Black Satsuma 6:21
-10. Nu Born 6:06(   Читать дальше...   )Жанр: Breakbeat, BreaksПродолжительность: 01:05:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2DFC73B147A01C7E82794054A69A127E684710E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513728   (658246) от 24.06.2012
-
-VA - Солнечный Top 100 (2012) [MP3|256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658246.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пачуля - Жаркое Лето (Fidel Wicked Radio Edit) (3:21)
-2. Арина И Размер Project - My Moscow Love (2:50)
-3. Ани Лорак - Я буду солнцем (3:43)
-4. Real O - Луна (Я в белом платьице) (3:28)
-5. Алена Высотская - Опять неудача (3:52)
-6. Анна Гуричева - Моя Москва (3:39)
-7. Aslan feat. Misty - Знаю, Знаю (3:27)
-8. Макс Барских - Dance (3:20)
-9. Виталий Козловский - Целую (3:15)
-10. МакSим - Одиночка (2:26)2012Жанр: PopПродолжительность: 06:01:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BCAED02B92396FB32E6ACF9706BFFA9F3BE4651
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514887   (658243) от 24.06.2012
-
-Г.Н.Докучаева | Здоровье эндокринной системы [2007] [FB2]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658243.jpg" />
-</div>
-
-
-###  Подробнее
-
-Описаны болезни эндокринной системы и наиболее распространенные добавки, которые могут быть рекомендованы при этих заболеваниях.
-Подробно рассказано о всех компонентах описанных биологически активных добавок: природных или идентичных природным биологически активных веществах, об их пользе для организма человека.Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:957FB26810A58F1DA20D1A62D2515FC8F53C0B2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514504   (658241) от 24.06.2012
-
-VA - The Spanish Guitar (2002) 2CD [FLAC|Lossless]<Classical Guitar>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tarrega - Recuerdos de la Alhambra [04:19]
-02. Sor - Theme & Variations, Op.11 [06:11]
-03. Granados - Danze Espanola No.1 [03:08]
-04. Ruiz-Pipo - 3 Estancias I [01:59]
-05. Ruiz-Pipo - 3 Estancias II [01:59]
-06. Ruiz-Pipo - 3 Estancias III [02:11]
-07. Jose - Sonata: Allegro Moderato [05:59]
-08. Rodrigo - Concierto de Aranjuez - Adagio [10:34]
-09. Castelnuovo-Tedesco - Escarraman: I - Gallarda [03:49]
-10. Castelnuovo-Tedesco - Escarraman: II - El Canario [03:30](   Читать дальше...   )2002Жанр: Classical GuitarФормат: 2 CDПродолжительность: 01:09:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6A0BB1850833FA4C4318FB4D124F0FA6B28F209
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514822   (658239) от 24.06.2012
-
-Чистосердечное признание . Дай дорогу дураку (2012.06.24) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658239.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программа существует уже более 10 лет. Все это время в ней показывали только эксклюзивы — материалы, которые невозможно увидеть где-либо еще. Разнообразные темы и, конечно же, чистосердечные признания. Герои передачи доверяют зрителям самые сокровенные тайны. Корреспонденты и продюсеры программы — профессионалы, способные, оставаясь за кадром, заставить нас взглянуть на многие вещи и события под новым углом. Это документальная программа только о том, что действительно интересно. Здесь все реально, все эмоционально и обязательно актуально.В выпуске: Две беды — дураки и дороги.
-Что творят за рулем наши звезды и почему на дорогах все друг другу хамят?
-Блондинки против брюнеток, женщины против мужчин и пешеходы против водителей.Жанр: ДокументальныйПродолжительность: ~ 00:34:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7ABF820750178B037F833E175F3E652D67F54DE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513802   (658237) от 24.06.2012
-
-VA - Irreversibility Vol. 1 (2012) [MP3|320 кб/с]<Abstract, Glitch, IDM, Dark Ambient, Downtempo, Experimental>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Abstract, Glitch, IDM, Dark Ambient, Downtempo, Experimental |Продолжительность: 02:20:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D8E10CAD9899CDA22899674A01FAB45447B9B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514726   (658230) от 24.06.2012
-
-VA - Will Holland Presents Enhanced Best Of 2011 The Year Mix (2011) [FLAC|Lossless]<Trance, Progressive Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Will Holland feat. Jeza - Start Again (Original Intro Mix) (8:26)
-02. Ad Brown feat. Kerry Leva - Memorial (You Were Loved) (Maor Levi Club Mix) (8:37)
-03. A.M.R. - Sand Dunes (Estiva Remix) (8:12)
-04. Tritonal feat. Cristina Soto - Still With Me (Club Mix) (7:56)
-05. Temple One - Zebra (Nuera Remix) (7:49)
-06. Jan Martin feat. Hysteria! - Save Me Now (Beat Service Proglifting Remix) (8:32)
-07. Tritonal feat. Cristina Soto - Lifted (Mat Zo Remix) (7:51)
-08. Tritonal feat. Meredith Call - Broken Down (Shogun Remix) (7:54)
-09. Norin & Rad Vs. Recurve - The Gift (Original Mix) (8:01)
-10. Arty feat. Tania Zygar - The Wall (Arty Remode Mix) (6:16)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 06:49:31
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

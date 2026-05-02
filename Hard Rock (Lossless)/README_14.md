@@ -1,3 +1,120 @@
+###  Публикация: 1487576   (1003310) от 06.08.2021
+
+Night Ranger - ATBPO (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming For You
+02. Bring It All Home To Me
+03. Breakout
+04. Hard To Make It Easy(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F605F33628A7BA2E54F4C56DCF8D2FAA22E6BC3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487622   (1002814) от 08.08.2021
+
+Vanilla Fudge - 16 Albums, 1 Box-set, 26CD (1967-2020) [FLAC|Lossless|image + .cue | tracks + .cue] <Psychedelic Rock, Acid Rock, Proto-Prog, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002814.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сущности, "Vanilla Fudge" были пионерами тяжелой музыки в США, хотя в одном из интервью сами музыканты определили свой стиль как "психоделический симфо-рок". "Vanilla Fudge" являлись связующим звеном между психоделией 60-х и тем жанром, которому в будущем суждено было назваться "хэви-метал". Группа очень долго не получала (   Читать дальше...   )--------------------------
+
+01. Lady (5:10)
+02. Surrender (4:18)(   Читать дальше...   )Жанр: Psychedelic Rock, Acid Rock, Proto-Prog, Hard Rock |Продолжительность: 24:56:28 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547913FED815FC676582FC5D32B9E16ABC42B228
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1487892   (1002809) от 08.08.2021
+
+Night Ranger - ATBPO (And The Band Played On) (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002809.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легенды тяжелого рока Night Ranger выпускают свой 12-й студийный альбом ATBPO (And The Band Played On). Альбом вышел 6 августа 2021 года на лейбле Frontiers Music Srl.
+Группа начала писать альбом в начале 2020 года, на фоне роста глобальной пандемии. Сузив выбор песен и приблизив их к своему хорошо известному рок-н-ролльному саунду, группа отправилась в студию. Из-за (   Читать дальше...   )01. Coming For You (4:39)
+02. Bring It All Home To Me (4:33)
+03. Breakout (4:15)
+04. Hard To Make It Easy (3:48)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3CF678D59967B42A8A8ECE5787E3EEBA70709A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 330487   (1002697) от 08.08.2021
+
+Scorpions - Best Of Scorpions (1984) [FLAC|Lossless] <Hard-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steamrock Fever (3:40)
+02. Pictured Life (3:26)
+03. Robot Man (2:47)
+04. Backstage Queen (3:14)(   Читать дальше...   )Жанр: Hard-RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE5FB5B433AE4FD3D10FADA4B8541DD80A2B810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1488038   (1002597) от 09.08.2021
 
 Anims - God Is a Witness (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
@@ -644,122 +761,6 @@ The Henleys - On the Rocks (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E2624CA6EA97C7D5D09E0F71284ECB625F17D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973036   (980663) от 07.01.2016
-
-Uriah Heep - It Was 40 Years Ago (2016) Compilation [FLAC|Lossless|tracks + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980663.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Free Me
-02. Illusion
-03. The Hanging Tree
-04. Crime Of Passion(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:658180C20C20A3EA1ADD634A3336342745CBE6C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356275   (980562) от 29.01.2020
-
-Dangerous Curves - So Dirty Right (2018) [FLAC|Lossless|image + .cue] <Hard Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980562.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sensationable Submit (3:56)
-02. Art Of The Heart (4:12)
-03. Club Mile High (3:59)
-04. Funky Bonez (4:38)(   Читать дальше...   )Жанр: Hard Rock, Glam RockПродолжительность: 00:41:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:481E49C0A732522A5733B2F4777E66C39E368326
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1356476   (979124) от 30.01.2020
-
-Martina Edoff - Martina Edoff (2014) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_979124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On The Top
-02. Back Home
-03. Who You Are
-04. Hero(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53D814EA577A1D7E53614275536D1547C5A26814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1357198   (975455) от 02.02.2020
-
-AC/DC - Rock Or Bust (2014) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975455.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Or Bust (3:03)
-02. Play Ball (2:47)
-03. Rock The Blues Away (3:24)
-04. Miss Adventure (2:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93B8336B743045F0A7B46A13BB4F04DD3789E762
 ```
 
 https://mybot314.ru/tekegram_catalog/

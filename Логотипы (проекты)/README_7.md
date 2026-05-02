@@ -1,3 +1,82 @@
+###  Публикация: 1002546   (846517) от 01.04.2016
+
+Проекты - Pond5 - 3D Logo Kit - 39645636 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846517.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:409F388C6C59815276CE8DF0DF6A228F64DFD4E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1002565   (846333) от 01.04.2016
+
+Проекты - VideoHive - Easter Day [AEP]
+
+>>След.
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846333.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа к пасхе.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3427EF57763D1009DBB7A6EDF2C138B0FE2AA787
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111746   (846297) от 06.03.2017
+
+Проекты - VideoHive - Shape Logo Constructor - 11175555 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Энергичный и современный проект для демонстрации вашего логотипа в конструкторской форме.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:693648192401D7A3657584DBA78E17F1B7DEC356
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002795   (844661) от 02.04.2016
 
 Проекты - VideoHive - Cinematic Tunnel Logo Text Reveal [AEP]
@@ -600,85 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D602160D33C4F0A5A27084B048184A6AC5A46477
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005567   (832300) от 09.04.2016
-
-Проекты - VideoHive - Raven Logo 2 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа или начальной заставки в стиле - "триллер", "ужастик" и т.п.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03171957BFC427DD01345F878071F924FBA8C797
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004925   (832220) от 09.04.2016
-
-Проекты - VideoHive - Debris Logo [AEP]
-
->>След.
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832220.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект "Обломки Лого" предназначен для редактирования в программе Adobe After Effects. Подойдет для демонстрации Вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D73D2675158BAB5DDF822B8A60E105E2A8A27DE1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005159   (832064) от 09.04.2016
-
-Проекты - VideoHive - Gold Treasure Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gold Treasure Logo - еще один красивый, полностью настраиваемый реалистичный проект для вашего логотипа. Прост в использовании. В проект включены 2 композиции  – главная и короткая версии. Видео обучение включено. Для работы требуется плагин Element 3D V2Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B3A42B56C596B825A0C4CA2C106C18EDCA78197
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1125048   (773326) от 13.04.2017
+
+VA - Relax to House Vol. 7 (2017) [MP3|320 Kbps] <House, G-House, Chillout, NuDisco, Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2Disco - My World (Roman Depthsound Remix)
+02. Above & Beyond feat. Gemma Hayes - Counting Down The Days (MiRo Remix)
+03. Abriviatura IV - Never Gonna Say Goodbye (Hugobeat Remix)
+04. Acidbro - Hold You (Original Mix)(   Читать дальше...   )Жанр: House, G-House, Chillout, NuDisco, TrapПродолжительность: 15:35:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67281EB77E45F9B34E57E9B62470BEE9ED7DA841
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015957   (773270) от 12.05.2016
+
+VA - Future Trance Energy 002 May TOP (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Roman Messer Ft. LJ Ayrten - Break The Ice (Aimoon Remix) 6:35
+02. Accelerator & Johnny The Boy - Tears in the Rain (Ciro Visone mix) 6:42
+03. Alex Shevchenko - Dreamlands of Kadath (Original Mix) 8:45
+04. Ciro Visone - Trust (Original Mix) 8:04(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:54C6479359FFFA8F2E1EF719F42E7124D69691E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1015798   (773265) от 12.05.2016
 
 VA - Trance Desire Vol. 69 (2016) [MP3|320 кб/с] <Trance>
@@ -699,64 +757,6 @@ VA - Red Tune: Trance Party (2016) [MP3|320 кб/с] <Trance, Uplifting Trance, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B137B0E82A0138EAC201DA1B88316EF48EB2EDE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1016970   (769684) от 15.05.2016
-
-VA - EDM Party Summer (2016) [MP3|320 кб/с] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769684.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dirty Armada - Flashlight (Raindropz! New Dance Remix) 4:55
-002. Girls Only - Wildest Dreams (Raindropz! Remix) 4:37
-003. Headhunterz & Skytech - Kundalini (Extended Mix) 4:08
-004. R.I.O. Feat. U-Jean - Cheers To The Club (Extended Mix) 3:45(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 07:31:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C5BBA9E5620C88C7A392F502DB67813A990F4D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1391978   (769396) от 25.06.2020
-
-VA - Cajmere - Wheels Of Steel Vol.1 (1998) авторская раздача [MP3|320 Kbps] <House, Minimal, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andre L. Prioleau & Gene Santiago - One Small Step (5:09)
-02. Djaimin & Djaybee - Fever (2:25)
-03. Cajmere - Only 4 U (Mark Grant Mix) (4:52)
-04. Kerri Chandler - It's You (3:32)(   Читать дальше...   )Жанр: House, Minimal, Tech House, TechnoПродолжительность: 01:12:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABB091F7393BD117ECEED8EE5C0E81102328E03C
 ```
 
 https://mybot314.ru/tekegram_catalog/

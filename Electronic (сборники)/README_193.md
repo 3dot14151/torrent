@@ -1,3 +1,61 @@
+###  Публикация: 966810   (216819) от 19.12.2015
+
+VA - From Sunset to Sunrise Vol 2 20 Midnight Lounge Tunes (2015) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tuscany - Acoustic Place
+02. Victor Pearl - Indipendence Sound
+03. Twin Lovers - Fenomeno
+04. Vibrant Boy - Olpu(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:27:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6AD4594E9C928916D03973A510877DD6E29BC6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 966959   (216741) от 19.12.2015
+
+VA - Lounge Christmas Happiness (2015) [MP3|320 кб/с] <Lounge, Chill Instrumental, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216741.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Robert Manos - Silver 04:06
+002. Spennu - Something In The Air (Jero Nougues Remix) 06:29
+003. Legatonegre - Tree 02:43
+004. Flight Facilities - Down To Earth (Youngr Live Mix) 03:37(   Читать дальше...   )Жанр: Lounge, Chill Instrumental, DowntempoПродолжительность: 07:32:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9619407E0208749AEBEB81781F1AD0B27DF15A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 966957   (216643) от 19.12.2015
 
 VA - Best of Beatport 2015 Staff Picks Tracks (2015) [MP3|320 кб/с] <Minimal, Techno, House, Electronica, Indie Dance/Nu Disco, Drum & Bass, Trance, Hardstyle>
@@ -700,64 +758,6 @@ VA - World of Electronic Music Vol.4 (2019) [MP3|320 Kbps] <Synthpop, Futurepop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EE48059A599305948919406791E34033E8DFC92F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1832090   (213482) от 30.10.2025
-
-ReteoX - Favorites Collection Part 2 (2025) [MP3|320 Kbps] <Electronic, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Silent Hearts
- 02 - Without a Goodbye
- 03 - Silent Love
- 04 - Whisper My Name(   Читать дальше...   )Жанр: Electronic, VocalПродолжительность: 00:33:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05EAF822578938624D1C1C32814CB18739351BDD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637770   (211631) от 12.06.2023
-
-VA - Trance In Motion Vol.360 (2023) [MP3|320 Kbps|image + .cue] <Trance, Progressive Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ciaran McAuley - Your Smile (Liam Wilson Extended Remix)
-02. Pralle & Kaul - Orient Express (Alex M.O.R.P.H. Extended Retouch)
-03. Universal Frequency - Fair & Square (Extended Mix)
-04. Driftmoon - Howl Me Tight (Extended Mix)(   Читать дальше...   )Жанр: Trance, Progressive Trance, Uplifting TranceПродолжительность: 01:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEB127CB109C737D4360E1630F600C662B809FC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

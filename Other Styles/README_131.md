@@ -1,3 +1,205 @@
+###  Публикация: 1580732   (322992) от 09.10.2022
+
+VA - RELAX - Морской бриз - Звуки живой природы в сопровождении известных романтических мелодий (1999) [FLAC|Lossless|tracks] <Instrumental, Nature, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. RELAX - Морской бриз - Трек 1 (30:00)
+02. RELAX - Морской бриз - Трек 2 (30:00)Жанр: Instrumental, Nature, RelaxПродолжительность: 01:00:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD0177546FD10FC943FB9B672973E786500870C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1331692   (322782) от 16.10.2019
+
+VA - Игла. Remix (2010) [FLAC|Lossless|image + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_322782.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кино и Игорь Вдовин - Звезда по имени Солнце
+02. Кино и Игорь Вдовин - Дальше действовать будем мы
+03. Messer Chups - Шапито буги
+04. Игорь Вдовин и Юрий Каспарян - Дорога(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:05:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE136B9BF4EEA3E75637AA21BB08CBC855D617EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 62985   (321528) от 03.11.2020
+
+Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ке́вин Ке́рн (англ. Kevin Kern; род. 22 декабря 1958) — американский композитор и пианист. Кевин Керн родился пятым из шести детей в семье хирурга и домохозяйки в Детройте, штат Мичиган, США.
+Начал учиться играть на фортепиано с четырёх лет, с восьми стал писать музыку. В 14 он уже выступал с группой, которую основал сам. Кевин был полон решимости стать (   Читать дальше...   )Альбомы:
+1996 - In the Enchanted Garden
+1997 - Beyond the Sundial
+1998 - Summer Daydreams(   Читать дальше...   )Жанр: New AgeПродолжительность: 06:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE60C49FFDDA24CE055FCF84A4CC7174EE1405F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181787   (321208) от 08.11.2017
+
+VA - Где-то на белом свете... (1996) [FLAC|Lossless|image + .cue] <Retro, Soundtrack, Pop>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321208.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нина Бродская - Звенит Январская Вьюга (Иван Васильевич Меняет Профессию) (3:04)
+02. Лев Полосин - Кап-Кап-Кап (Иван Васильевич Меняет Профессию) (2:24)
+03. Эстрадный Оркестр П-У В.Людвиковского - Погоня (Иван Васильевич Меняет Профессию) (1:43)
+04. Валерий Золотухин - Разговор Со Счастьем (Иван Васильевич Меняет Профессию) (2:40)(   Читать дальше...   )Жанр: Retro, Soundtrack, PopПродолжительность: 01:04:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA80E65F6D9B7089D06B2CCE94C6EFD0E8B434DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075217   (321152) от 22.11.2016
+
+Midori - A Very Midori Christmas (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Came Upon a Midnight Clear [00:06:38]
+02. Away in a Manger [00:07:07]
+03. Ding Dong Merrily on High [00:06:16]
+04. Silent Night [00:06:11](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A65965439C4566BF331FE2D9C6730529D1FACA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075549   (321008) от 22.11.2016
+
+Al Conti - Mystic (2016) [MP3|320 Kbps] <New Age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mystic 8:43
+02. Trance 5:28
+03. Prayer 4:55
+04. Visions 5:16(   Читать дальше...   )Жанр: New Age, RelaxПродолжительность: 00:50:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37970979CEAEBE2FC90A52C6735885469A3F67BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075567   (320990) от 22.11.2016
+
+Craig Armstrong & Adam Peters - Snowden / Сноуден (Original Soundtrack) + (Orchestral Score) (2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Snowden Symphonic (03:30)
+02. Burden Of Truth (02:05)
+03. Opening - Secret Downloading (01:40)
+04. Troops March (01:58)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:39:24 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91FC50756E8302011A8E193DF6FC8695A4AD7C9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1331788   (320841) от 17.10.2019
 
 Preludio Italiano - Toccata (2001) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
@@ -548,209 +750,6 @@ Shaun Hopper - Lower Case Letters (2011) [FLAC|Lossless|tracks + .cue] <Acoustic
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A669631A380F47C1649EAB7C954A743232B0129B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 959563   (314387) от 25.11.2015
-
-Yanni - The Very Best of Yanni (2000) [FLAC|tracks+.cue]<New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aria (4:01)
-02. Looking Glass (6:41)
-03. In the Morning Light (3:51)
-04. Marching Season (5:37)(   Читать дальше...   )Жанр: New Age/Meditative/Relax (Lossless)Продолжительность: 01:10:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B074487E6AD567A655B15296C7B221822392220
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260236   (314355) от 06.11.2018
-
-Janis Ian - The Bottom Line Encore Collection (Live album) (999) Compilation [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Me to You (3:29)
- 02. Night Rains (3:31)
- 03. I Would Like to Dance (3:25)
- 04. Jesse (5:54)(   Читать дальше...   )Жанр: Pop, Folk, World, CountryПродолжительность: 01:05:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD79B9BEA89E72456E7D84C01AD5A2EAFD1CC3EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075865   (314227) от 25.11.2016
-
-VA - Xmas Jukebox 2016 (2016) [MP3|320 Kbps] <Soundtracks>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Luciano - Stronger [00:04:18]
-02. Young 13izz - Floi Oi [00:03:52]
-03. DJ Luciano - By Your Side [00:04:53]
-04. Djkam - Higher [00:03:41](   Читать дальше...   )Жанр: SoundtracksПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5C48070B7CB8E4258784C7DFDB7A330C3FAFC36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260255   (314222) от 06.11.2018
-
-VA - For Women vol. 1-3 (2014-2016) [MP3|320 Kbps] <Ambient, Electronic, Instrumental, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314222.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Yakuro - Long Road To Happiness (12:13)
-02. Artur Bayramgalin - The Morning Moon (4:18)
-03. Alexandr Brynskikh - Love Expectation (6:33)
-04. Rainy - Time (3:36)(   Читать дальше...   )Жанр: Ambient, Electronic, Instrumental, New AgeПродолжительность: 05:13:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E0F91CA0BC5FD035CE3A1C05C1F8393C39B8DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260246   (314050) от 06.11.2018
-
-VA - For Men vol. 1-3 (2014-2016) [MP3|320 Kbps] <Chillout, Electronic, Instrumental, New Age, Space>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stive Morgan - Spirit Of The Earth (6:12)
-02. Aleksey Kovalenko - Noise In The Head (6:45)
-03. Sergey Nsd - Where you (Lost in the ice) (6:07)
-04. Rainy - The Secret Of Desert (7:22)(   Читать дальше...   )Жанр: Chillout, Electronic, Instrumental, New Age, SpaceПродолжительность: 05:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1770C34719A0CA06F5E2DAF7C73674E0F319C9DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260226   (313808) от 06.11.2018
-
-Очелье Сороки - Истое (2018) [MP3|320 Kbps] <Neo-Folk, Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313808.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Сокол
-02. На горе мак
-03. Манечка
-04. Песнь(   Читать дальше...   )Жанр: Neo-Folk, EthnicПродолжительность: 00:47:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36CC58CA086B0557B511B40E06C42AFAF0C7492B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076392   (313694) от 25.11.2016
-
-Celtic Woman - Voices of Angels (2016) [MP3|320 Kbps] <Celtic, Folk, World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313694.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Heart Will Go On (04:21)
- 02. Isle of Hope, Isle of Tears (05:02)
- 03. As She Moved Through the Fair (2016 Version) (03:56)
- 04. Mo Ghile Mear (My Gallant Star) (03:37)(   Читать дальше...   )Жанр: Celtic, Folk, WorldПродолжительность: 01:05:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0B11035F057C0273A2719F24F5D0F1795F47E9B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

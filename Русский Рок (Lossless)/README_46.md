@@ -1,3 +1,32 @@
+###  Публикация: 1639147   (234899) от 12.06.2023
+
+Concrete Age - Bardo Thodol (2023) [FLAC|Lossless|image + .cue] <Thrash, Death Metal, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hex
+02. Purity
+03. True Believer
+04. Threads Of Fate(   Читать дальше...   )Жанр: Thrash, Death Metal, Folk MetalПродолжительность: 00:41:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E6A6B5EB73A9E721CFD76B397708E2D4009385
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576908   (234859) от 16.09.2022
 
 Аквариум - Дом Всех Святых (2022) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -716,35 +745,6 @@ Pussy Pistol - Икона стиля (2023) [FLAC|Lossless|WEB-DL|tracks] <Punk,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9924CABEA0BF481A27F4555D72293F4CAE3067F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1646978   (231767) от 16.07.2023
-
-Агонист - Мир, которого нет (2023) [FLAC|Lossless|WEB-DL|tracks] <Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_231767.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Твоя утопия
-02. В агонии
-03. Новый день
-04. По грехам твоим(   Читать дальше...   )Жанр: MetalcoreПродолжительность: 00:34:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0995D4C5AA71CB8787D9595C4EF854A294B4DA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

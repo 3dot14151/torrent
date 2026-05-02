@@ -1,3 +1,32 @@
+###  Публикация: 956259   (329361) от 15.11.2015
+
+Bach - Concertos, Toccata, Partita (Elena Kuschnerova) (2001) [FLAC|image +.cue]<Classical, Recital, Concerto, Baroque Period, Suite>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_329361.jpg" />
+</div>
+
+
+###  Подробнее
+
+Italian Concerto for keyboard solo in F major, BWV 971
+01. untitled (04:06)
+02. Andante (05:11)
+03. Presto (03:40)(   Читать дальше...   )Жанр: Classical, Recital, Concerto, Baroque Period, SuiteПродолжительность: 01:10:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F7D005F98377C0F47E05DF41E474853D1BEFE94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 956256   (329360) от 15.11.2015
 
 Ravel - Complete Piano Works - (Begona Uriarte, Karl-Hermann Mrongovius) (Vol.1) (1988) [FLAC|image +.cue]<Classical, Chamber Music, Recitals, Modern, Suite, Character Piece, Prelude, Waltz, Son ...
@@ -713,33 +742,6 @@ Arturo Benedetti Michelangeli - Frederic Chopin - 10 Mazurkas  (1972 Stereo) Deu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA6EDD64AADA286137F6F00D22988435778738F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1075938   (315678) от 24.11.2016
-
-Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und Orchester Nr.1 & 3 (1980 - 1987) 1997 Deutshe Grammophon [FLAC|Lossless|image + .cue] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315678.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юношески лучезарный, полный энергичного движения Первый концерт C-dur, Op. 15 (1796) привлекает поэтическим преломлением народнопесенных жанров и интонаций. В Третьем концерте c-moll (1800) обращает на себя внимание трагический пафос первой части.
-   В концертах Бетховена чрезвычайно велика роль развитых виртуозных солирующих инструментов. Они придают музыке блеск, (   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:16:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:088E8EC80CE2EB183AF7D04ED7E6F439DD7CCEDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

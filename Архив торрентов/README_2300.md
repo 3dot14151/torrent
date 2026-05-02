@@ -1,3 +1,244 @@
+###  Публикация: 925569   (539106) от 07.08.2015
+
+Sam Broadcaster Studio 2015.2 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539106.jpg" />
+</div>
+
+
+###  Подробнее
+
+SAM Broadcaster Studio — профессиональный инструмент для вещания интернет-радио, созданный компанией SpacialAudio. При наличии нужного оборудования возможно вещание на FM-волнах. Программа умеет генерировать списки воспроизведения и публиковать их для просмотра пользователями. Интерфейс содержит два пульта управления, расширенную систему ротации плэйлиста, полную (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBBC35B36FF4F5E6998AC65A4AAF3C74BB125766
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925640   (539102) от 07.08.2015
+
+Cyberfox 39.0.3 for AMD + Portable [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539102.jpg" />
+</div>
+
+
+###  Подробнее
+
+Одна из лучших версий веб-браузера Firefox, имеющая 64-разрядную архитектуру, что делает ее быстрее, надежнее и стабильнее. Cyberfox использует Windows 8 SDK и оптимизирован под процессоры AMD. Браузер поддерживает дополнения и работает со своим профилем, отдельным от Firefox - это дает возможность использовать собственные закладки и историю.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5D175FAEEA03183B3D8A4B76A82130591A97553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 925736   (539098) от 07.08.2015
+
+Tor Browser Bundle 5.0a4 (Alpha4) [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539098.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пакет для анонимного интернет-серфинга путем маршрутизации и шифрования трафика по распределенной сети серверов. Tor Browser Bundle предотвращает наблюдение за интернет-соединением пользователя и получение информации о том, какие сайты посещаются, а также скрывает от всех посещаемых хостов информацию о физическом расположении посетителя. Включает в себя программное (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7CD92EC9B88FA001D7E61628D420AE313467B999
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154710   (539089) от 31.07.2017
+
+Canary Mail 1.3 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Canary Mail — новый многообещающий email-клиент для Mac с большими амбициями
+Приложение может похвастаться большими возможностями и неплохой их реализацией, что вкупе с элегантным дизайном и удобным интерфейсом делает Canary весьма интересным экземпляром.
+
+Canary работает с Gmail, iCloud, Outlook, Yahoo! и другими службами через IMAP. При этом важно, что все пользовательские (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.07.2017Разработчик: Mailr Tech LLPПоддерживаемая ОС: OS X 10.10 и вышеЯзык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F68C8CE6DF1FFAF8406C6086BE34F42525F37406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154380   (539085) от 31.07.2017
+
+Формула-Е 2016-2017. RD 09. Гонка 1 (2017) WEB-DL [H.264/720p-LQ] [VO]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539085.jpg" />
+</div>
+
+
+###  Подробнее
+
+Формула E (англ. FIA Formula E Championship) — класс автогонок на электромобилях с открытыми колёсами. Класс основан в 2012 году и санкционирован международной автомобильной федерацией — FIA, целью его создания стало стремление создать лабораторию для исследований и разработки электрических транспортных средств, помогающую ускорить популяризацию электромобилей, а (   Читать дальше...   )Телекомпания: Fox Sports Asia 1 HDЖанр: СпортПеревод: Одноголосый закадровый, любительскийЯзык озвучки: РусскийПродолжительность: 01:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B08AD52AB44FF4C23A85EBCE424C858C74E8CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154286   (539082) от 31.07.2017
+
+Dive!! | Прыгай! [2017, TV, 2 из 11] HDTV 720p raw
+
+>>Архив торрентов
+>>Архив Аниме
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Лето в самом разгаре, а значит пора остудить жару освежающим аниме! История повествует нам о клубе "Мизуки”, в котором обучаются прыжкам в воду. Дела у этого клуба идут не особо радужно, провалы преследуют спортсменов раз за разом. Спонсорами было принято решение прекратить финансирование клуба, но после продолжительных просьб они предложили воистину издевательское (   Читать дальше...   )Жанр: спортРежиссер: Судзуки Каору / Suzuki Kaoru / 鈴木薫Перевод: Язык озвучки: ЯпонскийПродолжительность: 11 серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E6B27E9354EE3FFA8A3C5246F69997AB00B3B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154771   (539081) от 31.07.2017
+
+Maxthon Browser 5.1.1.100 beta + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539081.jpg" />
+</div>
+
+
+###  Подробнее
+
+MX5 - новая версия веб-браузера от Maxthon для Windows. Официально выпущенная бета-версия веб-браузера Maxthon 5 под кодовым сокращением MX5, наглядно показывает прогресс продукта, который превратился из классического браузера в персонального ассистента для всех видов онлайн активности. Изменения начались с 4-ой версии, которая получила название Maxthon Cloud Browser. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C05C307A6678E65892F66F43E9238FE1AB8E561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154778   (539075) от 31.07.2017
+
+VA - Music On The Rocks With No Ice (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flashmob - Melting
+02. Upercent - Gent Toxina
+03. Downside - Meteor (Township Rebellion Remix)
+04. Mathias Kaden - Clarity (Feat. Sophie Taylor)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 02:54:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A22D5686F94B2C6C08CB40D508CF040668DB566
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1557695   (539058) от 16.06.2022
+
+Ashampoo WinOptimizer 25.00.13 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_539058.jpg" />
+</div>
+
+
+###  Подробнее
+
+Новая Ashampoo WinOptimizer 25 идёт с двойным бустом!
+Windows хороша, но всегда есть, что улучшить. Вот тут то и появляется Ashampoo WinOptimizer 25! Потому что операционные системы со временем становятся медленнее, менее стабильными и захламлённее. А важные настройки или пропадают, или скрываются где-то в глубине системы. И ещё это постоянное вторжение в личную (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52F67B21BCEF9FC1C603F87F1F5FE7ED714B9068
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 366311   (539037) от 22.07.2011
 
 Журнал | GQ [Россия] №8 (2011) [PDF]
@@ -449,255 +690,6 @@ Gilrs Wallpaper (07.08.12) [Wallpapers 16+]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C0FFF3FB3F215070B0672F397A009E63C2F2B89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532095   (538910) от 07.08.2012
-
-Sexy Girls Pack Wallpapers (07.08.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1600x1200 - 4600x3040
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3C28D869009D2925C0DAE3E3BC8D6491BE6DA32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532510   (538909) от 07.08.2012
-
-Beautiful Girls Wallpapers (08.08.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538909.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680x1050 - 2560x1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A8A0B30DFDF8D4CF2E36E15D6675921A13D2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532097   (538908) от 07.08.2012
-
-Beautiful Girls Wallpapers (07.08.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538908.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680x1050 - 3000x2000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC7DC1A84A0C3F8B18BB6FFBA917F7A327A01914
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532092   (538907) от 07.08.2012
-
-Nature HD Wallpapers (07.08.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538907.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56B7814EA113BF45C2622C28DA494AB4863F939F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532400   (538905) от 07.08.2012
-
-VA - Swamp Blues (1997) [MP3|320 кб/с]<Blues>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538905.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Whispering Smith - Looking The World Over (3:14)
-2. Arthus ''Guitar'' Kelly - Somebody Stole My Baby And Gone (4:08)
-3. Silas Hogan - Just Give Me Chance (2:35)
-4. Clarence Edwards - Lonesome Bedroom Blues (3:29)
-5. Henry Gray - Can't Last Too Long (3:22)
-6. Whispering Smith - A Thousand Miles From Nowhere (4:43)
-7. Whispering Smith - Deep South Mose (2:24)
-8. Silas Hogan - Dry Chemical BLues (3:27)
-9. Arthur ''Guitar'' Kelly - How Can I Stay When All I Have Is Gone (3:29)
-10. Clarence Edwards - Let Me Love You Baby (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:16:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5DF3D1689F857AA948751939BFF354CBF20D22A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532513   (538902) от 07.08.2012
-
-Gilrs Wallpaper Mix (08.08.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538902.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1920x1200
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3CF6F5671CFFB9A6C03CADCBC7C314743FE8A5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 531736   (538901) от 07.08.2012
-
-[Графика] Коллекция работ художника Win Wallace
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коллекция работ художника Win Wallace
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E2859642CFBF14EF04E41AFCDC40583F6A6989A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 697003   (538898) от 04.09.2013
-
-HoldTight – Lost & Found (2013) [MP3|320 Kbps]<Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 9-2-5 (Cyantific remix)
-02. San Diego
-03. Equilibrium
-04. Breakfast Club(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB3E96A83D0BB23A0EDE3D4ABEAB7A474A7D2C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925656   (538889) от 07.08.2015
-
-Farhad Mahdavi - Tehran Echoes (2015) [FLAC|Lossless|WEB-DL]<Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Farhad Mahdavi ft. Mastan Ensemble - Tehran Echoes (Original Mix) (6:47)
-02. Farhad Mahdavi & Tiff Lacey - A Thousand Pieces (Radio Edit) (4:38)
-03. Farhad Mahdavi & Manuel Le Saux - Path of Memories (Original Mix) (4:49)
-04. Farhad Mahdavi & Soshians ft. Allam - Nostalgia (Original Mix) (6:37)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1012D4242FE4CD772C9A643D9A50D8177DF45A75
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1105032   (876743) от 17.02.2017
+
+Art Pepper - Modern Art, Vol.2 (1956, 1957) 1988, Blue Note [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876743.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Blues In [06:04]
+ 02.Bewitched, Bothered And Bewildered [04:28]
+ 03.Stompin' At The Savoy [05:07]
+ 04.What Is This Thing Called Love [06:08](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF49E572259DB91ABD417F7CBF07FEA600C90291
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1105037   (876742) от 17.02.2017
+
+Art Pepper - The Art Of Pepper, Vol.3 (1957) 1988, Blue Note [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876742.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Holiday Flight [05:12]
+ 02.Too Close For Comfort [06:11]
+ 03.Long Ago And Far Away [04:11]
+ 04.Begin The Beguine [07:24](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:04:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:563895BCD9EB8417D27055F2225E8AA0EC55E9F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1105027   (876739) от 17.02.2017
 
 Art Pepper - The Return Of Art Pepper, Vol. 1 (1956, 1957) 1988, Blue Note [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
@@ -693,64 +751,6 @@ Kylie Auldist - Still Life (2012) Tru Thoughts[FLAC|Lossless|tracks + .cue] <Fem
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75FD40BA93019A82BDAC358E51746D1DE6F5D33B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 765965   (871828) от 14.03.2014
-
-The Jazz Modes - The Most Happy Fella (1957) /2013 Remastered/ [FLAC|Lossless]<Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871828.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standing on the Corner [03:46]
-02. Joey, Joey, Joey [03:57]
-03. Warm All Over [04:59]
-04. Happy to Make Your Acquaintance [04:29](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC21EBADFAEF81C9D1A30ED4E36C2C95C6720CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106780   (871806) от 20.02.2017
-
-Slide Hampton - Mellow-Dy (1968) 1992, LRC Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Lament [04:14]
- 02.Impossible Waltz [07:10]
- 03.Chop Suey [12:14]
- 04.Mellow-Dy [05:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3118EAC5B9EE48520047E8857C0EB80E6B91227
 ```
 
 https://mybot314.ru/tekegram_catalog/

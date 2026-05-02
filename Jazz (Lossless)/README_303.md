@@ -1,3 +1,61 @@
+###  Публикация: 1687778   (125425) от 27.12.2023
+
+Frank Sinatra - Under The Mistletoe (2001) Direct Source Special Products [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jingle Bells [2:02]
+02. Let It Snow, Let It Snow, Let It Snow (Live) [1:28]
+03. O Come All Ye Faithful [2:39]
+04. Silent Night [3:04](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4113F6501BE561F38BDFF670BE64A68AA23AB492
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687373   (125424) от 27.12.2023
+
+VA - It's a Groovy Thing! Vol. 4 (The Amazing Jazz Funk Instrumental Sound) (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Smoke Orchestra - No Way (5:08)
+02. Vito Lalinga (Vi Mode Inc. Project) - Express Yourself (4:50)
+03. Fusion Funk Foundation - Warm Floor (5:50)
+04. The Soultrend Orchestra - Speed Date (3:28)(   Читать дальше...   )Жанр: Jazz, Funk, Acid JazzПродолжительность: 01:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687BE8DBE98008EDF11F6EBEA1367297C9C6F6EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1687776   (125416) от 27.12.2023
 
 John Hicks - Inc. 1 (1985) 2008, DIW Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ The Jazz Kings - Blue Jazz (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:237165C1E5F8C45A991D323505BFB4843FD35116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690624   (123792) от 08.01.2024
-
-Kay Starr - Cocktail Hour (1940-e - 1950-e) 2CD, 2000, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123792.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Them There Eyes [2:03]
-02. Don't Worry About Me [3:39]
-03. It's Whatcha Do with Whatcha Got [2:07]
-04. All of Me [2:27](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:12:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8213F8C1B00E8EEC4DC6B6586C5906E5D127ABA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1690810   (123690) от 09.01.2024
-
-Bessie Smith - BD Jazz (1923 - 1933) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Early Jazz, Classic Female Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123690.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jazzbo Brown from Memphis Town [3:26]
-02. The Gin House Blues [3:18]
-03. Baby Doll [3:04]
-04. Back Water Blues [3:20](   Читать дальше...   )Жанр: Early Jazz, Classic Female BluesПродолжительность: 02:25:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46DFFC23C1BB56F45F345EF4911BB969F32E736D
 ```
 
 https://mybot314.ru/tekegram_catalog/

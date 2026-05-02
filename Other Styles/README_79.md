@@ -1,3 +1,230 @@
+###  Публикация: 904680   (635730) от 13.06.2015
+
+Neu! - Neu! Box (1972-1986) 2010 / Gronland Rec (1972-1986) [MP3|320 кб/с]<Krautrock>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635730.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hallogallo 10:07
+02. Sonderangebot 4:50
+03. Weissensee 6:42
+04. Jahresbersicht (Part 1): Im Glck 6:52(   Читать дальше...   )Жанр: KrautrockПродолжительность: 10:13:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B037A0E60FE242FD575375A554611483D79A88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228556   (635697) от 01.06.2018
+
+Oliver Scheffner - Sunny Chillout Lounge (2018) [MP3|320 Kbps] <New age, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635697.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Dreams of sunbeams
+02 Cloud pictures passing by
+03 Spring break
+04 Ein Adler landet auf dem Mond(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:08:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB76D2E3D2C9694214111F099CA6180AB4DE8E77
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519651   (635631) от 07.07.2012
+
+VA - Yak pushu strelu / As I let an arrow fly / Як пущу стрелу песни русско-украинско-белорусского пограничья (2007) [MP3|320 кб/с]<Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635631.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vesna, Vesnyanochka (0:36)
+ 2. Na Gryanoy Nedele (1:04)
+ 3. Seraya Iy Zeziulechka (0:42)
+ 4. Katis, katis, zharkoie solntse (2:00)
+ 5. Oy, ty, lastochka (1:14)
+ 6. Gdje zhiviot moya milaya (2:12)
+ 7. Da khodila Tanechka po gorodu (1:33)
+ 8. Sidel Vanya na divane (2:39)
+ 9. Oy, ya v boru vodu beru (1:12)
+ 10. Sama idu po kameniu (2:32)(   Читать дальше...   )Жанр: EthnicПродолжительность: 01:09:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EFD1874518F9D358DA724F0F1B1F6DAF33AA907
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519869   (635620) от 07.07.2012
+
+Metafora - Flores Alvarez (2012) [MP3|320 кб/с]<instrumental metal>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Praeludium 1:59
+02. Allegro Con Brio 7:15
+03. Adagio Cantabile 2:05
+04. Vivace 3:15
+Gerbera Arthas:
+05. Praeludium 2:56
+06. Largo 2:13
+07. Allegro Molto 5:00
+08. Andante Maestoso 2:47
+09. Presto Agitato 2:45(   Читать дальше...   )Жанр: instrumental metalПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2AA3C0B5A4F4A618F93C98799BA743D3CD8AE190
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519783   (635619) от 07.07.2012
+
+VA - What are you thinking about soldier / О чем задумался, служивый - Песни казаков Волгоградской, Уральской, Краснодарской земель (1999) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635619.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Field Marshal going to his army (2:46)
+ 2. The Cossacks on the St. Petersburg Road (2:22)
+ 3. Free people lived on the Kamyshinka River (3:50)
+ 4. A Rowan-tree was standing in the field (2:16)
+ 5. The bitter wormwood grass (1:45)
+ 6. Thirty ships were getting ready (3:57)
+ 7. Farewell my dear Father and Mother (2:34)
+ 8. We shall say that the horses are ready (3:50)
+ 9. Wht have you turned black, green field? (5:15)
+ 10. Since yesterday evening (4:27)(   Читать дальше...   )Жанр: Folk Казачья песняПродолжительность: 01:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E301D40B92C9C1C6C9DB3C5A3026A21851AE8F07
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 519476   (635472) от 07.07.2012
+
+VA - 101 Movie Songs (5CD) (2012) [MP3|181-288 кб/с]<Pop, Rock>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rick Springfield — Jessie's Girl 3:13
+ 02. T.Rex — I Love To Boogie 2:17
+ 03. The Raspberries — Go All The Way 3:23
+ 04. Harry Nilsson — Everybody's Talkin' 2:48
+ 05. B.J. Thomas — Raindrops Keep Falling On My Head 3:06
+ 06. Edison Lighthouse — Love Grows (Where My Rosemary Goes) 2:53
+ 07. Nazareth — Love Hurts 3:53
+ 08. Karen Young — Hot Shot 4:23
+ 09. Barry Blue — Dancing On A Saturday Night 3:16
+ 10. Gilbert O'sullivan — Alone Again (Naturally) 3:40(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:08:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:686B470DC5FBA57F85A000A92ECC87336DF37A8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1293554   (635369) от 04.04.2019
+
+VA - Four Guitars (2019) [FLAC|Lossless|WEB-DL|tracks] <Acoustic, Easy Listening, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Todd Mosby, Vin Downes, Trevor Gordon Hall & Will Ackerman - August Light
+02. Trevor Gordon Hall, Vin Downes & Will Ackerman - The Blue Hour
+03. Todd Mosby, Trevor Gordon Hall & Will Ackerman - Dolphin Song
+04. Will Ackerman - The Impending Death of the Virgin Spirit(   Читать дальше...   )Жанр: Acoustic, Easy Listening, GuitarПродолжительность: 00:44:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AAD7137FC45F95A5DA08DBEDC0284722F958E95D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 519899   (635350) от 07.07.2012
 
 Julian Bream - Music of Spain (2005) [APE|Lossless]<Classical Guitar>
@@ -575,215 +802,6 @@ James Newton Howard - Snow White & The Huntsman / Белоснежка И Охо
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B43303172450363364AC7C0618B255D0E29F1EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520920   (630865) от 09.07.2012
-
-Great American Taxi - Paradise Lost (2011) [FLAC|Lossless]<Americana, Blues, Country, Folk Rock>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_630865.jpg" />
-</div>
-
-
-###  Подробнее
-
-В музыке нынешних лидеров джем-движения, группы Great American Taxi, джазовых вибраций, пожалуй что, меньше, а кантри, госпела, блюза и старого доброго рок-н-ролла - больше, чем у прочих. Немолодые, в сущности, люди играют ядерную, невероятно заводную смесь всего, из чего складывается то, что нынче принято называть модным словечком «Американа».01. Poor House :: 04:30
-02. A.M. Radio :: 02:46
-03. Blair Mountain :: 03:34
-04. Angel Dust :: 03:00
-05. Olden Days :: 04:43
-06. Maud Only Knows :: 03:03
-07. Penny Arcade :: 03:41
-08. Silver Fiddle :: 03:21
-09. Radiation Blues :: 03:25
-10. Gonna Make A Record :: 03:02(   Читать дальше...   )Жанр: Americana, Blues, Country, Folk RockФормат: CD, AlbumПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035223   (630511) от 15.07.2016
-
-Theodore Shapiro - Ghostbusters / Охотники за привидениями (Original Motion Picture Score) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630511.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Aldridge Mansion (02:58)
-02. The Garrett Attack (01:30)
-03. Never Invited (01:24)
-04. Distinct Human Form (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:518A925E9B5B0ED57CD82D72AAA64CA1C338EEFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034115   (630510) от 15.07.2016
-
-Douglas Spotted Eagle - Voices (1999) [MP3|320 Kbps] <Native American, Folk, World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Dance    06:04
-02.  Voices    06:18
-03.  My Little One    02:12
-04.  Closer to Heaven    04:41(   Читать дальше...   )Жанр: Native American, Folk, WorldПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2BF6758CEE50B14BCB1C099842CF16A21D9DEF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294323   (630095) от 07.04.2019
-
-Angela Little - Chocolate Oyster (2018) OST [MP3|320 Kbps] <Easy Listening, Progressive Jazz, Acoustic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_630095.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chocolate Oyster
-02. Frenemy
-03. Daytime Baby Blues
-04. Weekend(   Читать дальше...   )Жанр: Easy Listening, Progressive Jazz, AcousticПродолжительность: 00:23:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:080D8D2C1246B71BE6E959269C5AF181AB5F817A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294294   (629992) от 07.04.2019
-
-Boy Howdy - Welcome to Howdywood (1992) [FLAC|Lossless|tracks + .cue] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629992.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bring On The Teardrops [0:03:01.40]
-02. Love Is Easy [0:03:07.68]
-03. If This Is Love [0:05:20.25]
-04. In Another Tear From Now [0:03:27.02](   Читать дальше...   )Жанр: CountryПродолжительность: 00:38:39.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E1A7BF68028AB8FED47D2F3B85FFC76DBD3315
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1542931   (629517) от 11.04.2022
-
-Emily Jane White - Alluvion (2022) [FLAC|Lossless|WEB-DL|tracks] <Neo-Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Show Me the War (00:03:45)
-02 - Crepuscule (00:04:55)
-03 - Heresy (00:03:42)
-04 - Poisoned (00:03:52)(   Читать дальше...   )Жанр: Neo-FolkПродолжительность: 00:43:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06CB7AFC912438FAF7CA6B32CB247BBD009EDBFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1143345   (629502) от 21.06.2017
-
-Ива - Сновидения (2005) [TAK|Lossless|image + .cue] <Easy Listening, Other>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - intro
-02 - Колыбельная
-03 - Во мне
-04 - Летящая(   Читать дальше...   )Жанр: Easy Listening, OtherПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:581A08D9F63DBDA47D7544FD258EEF5EBFD278FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

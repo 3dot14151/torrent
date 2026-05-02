@@ -1,3 +1,177 @@
+###  Публикация: 1721295   (110107) от 06.05.2024
+
+Glen Campbell - Glen Campbell Duets: Ghost On The Canvas Sessions (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Country, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110107.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:52)
+02. There's No Me...Without You (3:47)
+03. Ghost On The Canvas (4:14)
+04. Hold On Hope (3:33)(   Читать дальше...   )Жанр: Blues, Country, FolkПродолжительность: 00:40:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6197FBBEE1545DF4CB79B8BBD5C0CED35917688D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721286   (110099) от 06.05.2024
+
+Deep Six Blues - The Devil's Hand (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110099.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Up (Intro) (1:30)
+02. Man in Black (4:59)
+03. The Devil's Hand (4:04)
+04. Ma Rainey (4:30)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:34:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D3B4E8120EF4795065C828ED33CDE2E8A024F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721108   (110083) от 06.05.2024
+
+Bob Marley & The Wailers - Uprising (1980) [FLAC 24/96|Lossless|WEB-DL|tracks] <Reggae>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110083.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Coming In From The Cold 00:04:31
+2 Real Situation 00:03:08
+3 Bad Card 00:02:50
+4 We And Dem 00:03:14(   Читать дальше...   )Жанр: ReggaeПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34BCFB92BCDC56477EC2BAF87C66FF3A313945F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721284   (110075) от 06.05.2024
+
+Blake Aaron - Love and Rhythm (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreamland (4:27)
+02. Feels So Right (4:43)
+03. She's the One (4:39)
+04. Crush (4:17)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7ACE8D893518CBA9368274103C8210350BDF288F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1717075   (110065) от 06.05.2024
+
+English Teacher - This Could Be Texas (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Albatross [00:03:14]
+02. The World’s Biggest Paving Slab [00:03:06]
+03. Broken Biscuits [00:04:07]
+04. I’m Not Crying, You’re Crying [00:03:48](   Читать дальше...   )Жанр: Post-PunkПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D02D65402374632349994EBCE93E29D57E26C3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1721145   (110049) от 06.05.2024
+
+Oakman - Violent Oblivion (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Indie Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110049.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I am floating... (0:52)
+02. Ricochet (3:19)
+03. Spiral (3:04)
+04. Proper Attitude (3:26)(   Читать дальше...   )Жанр: Alternative Rock, Indie Rock, Pop RockПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B33F2615B58E4E84F40D4EE8278CF169E0E0708E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1721312   (110047) от 06.05.2024
 
 Katinka Alme Band - Sirkus (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
@@ -571,177 +745,6 @@ Vhaldemar - Sanctuary of Death (2024) [FLAC|Lossless|WEB-DL|tracks] <Power Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E0E7D0B37A015D2CE4DFB82B1EAE49C475EBBD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721976   (109879) от 09.05.2024
-
-Anette Olzon - Rapture (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heed The Call (4:58)
-02. Rapture (4:59)
-03. Day Of Wrath (4:37)
-04. Requiem (4:15)(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:52:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33BD30952789BD0A35FFB5A76CE5BDEC5A7C9D26
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721890   (109861) от 09.05.2024
-
-Lynx - Claws Out (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Glam Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109861.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hell In High Heels [00:04:18]
-02. Rock Machine [00:04:07]
-03. Claws Out [00:04:24]
-04. Can't Get Enough [00:05:00](   Читать дальше...   )Жанр: Hard Rock, Glam MetalПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9FFC4C2D0F2FA7D3C05F53C7EE18CA403C939474
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722299   (109825) от 10.05.2024
-
-Black Eyed Peas x El Alfa feat. Becky G - TONIGHT (Bad Boys: Ride Or Die) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Soundtrack>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109825.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:38] 01. Black Eyed Peas & El Alfa Feat. Becky G - TONIGHT (Bad Boys: Ride Or Die)Жанр: Pop, SoundtrackПродолжительность: 00:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B27FF9E3A5638C9486C055826EF54D1ED25805BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722184   (109805) от 10.05.2024
-
-Kings Of Leon - Can We Please Have Fun (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alt Rock, Indie Rock, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109805.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:52] 01. Ballerina Radio
-[4:11] 02. Rainbow Ball
-[3:41] 03. Nowhere To Run
-[3:15] 04. Mustang(   Читать дальше...   )Жанр: Alt Rock, Indie Rock, RockПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C4A342E40F38699867ACF16D32D71A121A809B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722210   (109804) от 10.05.2024
-
-Dj Sava - Vogue Vibes (2024) [FLAC 16-24/44.1|Lossless|WEB-DL|tracks] <Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109804.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:08] 01. Magical Place (MD Dj & Dj Dark Remix)
-[3:11] 02. Coco Bongo (Dj Dark & MD Dj Remix)
-[3:02] 03. Nobody
-[3:14] 04. Bora Bora(   Читать дальше...   )Жанр: DanceПродолжительность: 00:23:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA8CA766ECD6A91E674855FB25A6FB8F0ED5A2E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722345   (109803) от 10.05.2024
-
-Tyler Bryant & The Shakedown - Electrified (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Southern Rock, Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Between The Lines (3:16)
-02. Crossfire (3:42)
-03. Snake Oil (3:57)
-04. Trick Up My Sleeve (3:23)(   Читать дальше...   )Жанр: Southern Rock, Blues RockПродолжительность: 00:36:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AD2F12DF4D1A0951A1456EF3B6014624EECB87F
 ```
 
 https://mybot314.ru/tekegram_catalog/

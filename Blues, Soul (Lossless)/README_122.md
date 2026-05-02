@@ -1,3 +1,119 @@
+###  Публикация: 1741531   (105648) от 07.08.2024
+
+Cotton Wing - Nothing but Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smile / intro (0:58)
+02. Johnny (4:49)
+03. The Key (4:41)
+04. Lassie (4:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B468B60B1D5E40F34C9AD1D522066D048C29BAEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741549   (105647) от 07.08.2024
+
+The Achievers - Easy Going Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105647.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Easy Going Days (3:44)
+02. Free Hugs (4:13)
+03. 400 Rabbits (3:00)
+04. How Long (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C51F57FE82260BC5D4C41CF9657EB70DCA7D43C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741553   (105646) от 07.08.2024
+
+The Honey Badgers - Shakin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105646.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Broken Boy Blues (4:00)
+02. Shakin' (3:33)
+03. Since You've Been Mine (5:39)
+04. Drinkin' and Thinkin' (2:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECF03E1B60F53C765034503837FE6A944EC5DAD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741530   (105645) от 07.08.2024
+
+Blues Pickers - Night Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105645.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time (4:33)
+02. Uptown Blues (4:25)
+03. Down in Mississippi (6:25)
+04. John the Revelator (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D4513382FF6E99BF95A32B0CAFAA61AD275A8D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741540   (105644) от 07.08.2024
 
 Jay Lang - Jay Lang and the Devil's Due (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Ticket West - All Is Well (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1DAC2C3DD463BA0F8A840D8CF65B0B845AA709D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743136   (105419) от 15.08.2024
-
-Junco Shakers - Lace up Ya Boots... It's the Junco Shakers (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Island Line (3:07)
-02. Body Vandal (3:25)
-03. Can't Be Satisfied (3:30)
-04. Glad When You're Dead (2:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7C7111998A4D03444C8CA078E9F1F89043D1FD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743644   (105377) от 17.08.2024
-
-Mick Clarke - West Coast Connection (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105377.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Times (3:26)
-02. Madison Blues (3:20)
-03. Ain't That the Truth (3:37)
-04. Mona (3:42)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E593075C28B3688D95DA1E83AAEE355F7741169F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743650   (105375) от 17.08.2024
-
-Mick Clarke - Rock and Roll, Hoochie Koo the Collection (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Graveyard Shift (5:35)
-02. Cover Me (3:30)
-03. Talking With the Blues (4:40)
-04. Dry Road Blues (3:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18C574A8CF515B3BC3606CCC6A297F1C5EEFB6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743655   (105372) от 17.08.2024
-
-Maria Aurigema - Kindred Spirits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bobby "B" (2:33)
-02. The Cottage (2:21)
-03. Kindred Spirits (2:47)
-04. Spinning Around (2:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63403734A08B5F5367AD87562BB166A25C2F025C
 ```
 
 https://mybot314.ru/tekegram_catalog/

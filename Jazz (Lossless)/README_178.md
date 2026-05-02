@@ -1,3 +1,61 @@
+###  Публикация: 1162622   (456975) от 02.09.2017
+
+Quincy Jones - The Quincy Jones ABC / Mercury Big Band Jazz Sessions (1959 - 1961) 5CD, 2007, Mosaic Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456975.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Walkin' [10:42]
+02. A Sleepin' Bee [04:41]
+03. Sermonette [05:58](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 05:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A283E451DB57759AB5FBD4CC5807AE188491B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1408525   (456129) от 12.09.2020
+
+Lionel Hampton - Paris Session (1956) 1989, EMI [FLAC|Lossless|image + .cue] <Mainstream Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456129.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panama [6:30]
+02. Blues for Lorraine [6:03]
+03. Genevieve [8:47]
+04. Le Piege [4:48](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:06:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:749C2AF0938A376C64FF5DFF55E6F5430BCDF053
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 942385   (456089) от 30.09.2015
 
 Richie Beirach Trio - Trust (1996) /Evidence/[FLAC|tracks+.cue]<Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Enrico Intra Trio - Jazz In Studio (1957, 1962) 2008, Rearward [FLAC|Lossless|tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:943755EAA5018FB747F3DC5DAEC66C23E2D4595D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247392   (452879) от 15.09.2018
-
-Ahmed Abdul-Malik, Ray Nance, Seldon Powell - Spellbound (1964) 2013, Real Gone Music [FLAC|Lossless|tracks + .cue] <Hard Bop, World Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Spellbound [4:57]
-02. Never on Sunday [5:14]
-03. Body and Soul [7:14]
-04. Song of Delilah [7:02](   Читать дальше...   )Жанр: Hard Bop, World FusionПродолжительность: 00:32:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F29A661C150A3B6CF22F8CC7918F5E00E381072
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247384   (452878) от 15.09.2018
-
-Joey Alexander - Joey.Monk.Live! (2017) Motema [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_452878.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Round Midnight [5:47]
-02. Evidence [8:26]
-03. Ugly Beauty [7:11]
-04. Rhythm-A-Ning [6:27](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:52:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:344D64D5B8C5D93D5E7B87F83E5C300CB77F4F16
 ```
 
 https://mybot314.ru/tekegram_catalog/

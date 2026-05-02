@@ -1,3 +1,38 @@
+###  Публикация: 489029   (129239) от 28.04.2012
+
+Winter In Eden - Echoes Of Betrayal (2012) [MP3|256 кб/с]<Symphonic/Gothic Metal/Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For The Few 04:51
+ 02. Possession 04:46
+ 03. The Awakening: Chapter III-Regret 05:12
+ 04. The Awakening: Chapter IV-Torment 04:34
+ 05. The Awakening: Chapter V-Descension 03:55
+ 06. Trapped 04:42
+ 07. Lies 03:22
+ 08. Suffer In Silence 04:48
+ 09. Eyes Of A Child 03:12
+ 10. Whan We Leave Behind 04:37(   Читать дальше...   )2012Жанр: Symphonic/Gothic Metal/Female VocalsПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E776C4CE8F58B975186A1A880304C266096B05D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683404   (128410) от 11.12.2023
 
 VA - Radio FM Rock Hits (2023) [MP3|320 Kbps] <Rock>
@@ -713,35 +748,6 @@ Thin Lizzy - Vagabonds Of The Western World (1973) Deluxe Edition, 2023, Univers
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D6FBC65BCCD4FF878517CF64AB016075B40C9B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699953   (117233) от 16.02.2024
-
-Pink Floyd - Live At Vienna Stadthalle, Austria, 13 October 1973 (2023) [MP3|320 Kbps] <Progresive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117233.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Obscured By Clouds (Live At Vienna Stadthalle, Austria, 13 October 1973) [05:11]
-02. When You’re In (Live At Vienna Stadthalle, Austria, 13 October 1973) [08:10]
-03. Set The Controls For The Heart Of The Sun (Live At Vienna Stadthalle, Austria, 13 October 1973) [12:59]
-04. Careful With That Axe, Eugene (Live At Vienna Stadthalle, Austria, 13 October 1973) [13:46](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 02:13:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC426C6A543F53C4CFAB71C56A3D04C0C946916A
 ```
 
 https://mybot314.ru/tekegram_catalog/

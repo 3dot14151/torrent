@@ -1,3 +1,250 @@
+###  Публикация: 1291753   (652403) от 26.03.2019
+
+Microsoft Edge 75.0.109.0 (Chromium) (x64) [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652403.jpg" />
+</div>
+
+
+###  Подробнее
+
+В конце 2018 года Microsoft объявила, что откажется от движка EdgeHTML в браузере Edge в пользу популярного Chromium. На нём работают Google Chrome, Opera и многие другие браузеры.
+Компания не сказала, когда ждать релиза нового браузера. Зато было сказано, что предварительные версии начнут выходить уже в начале 2019 года. В последние несколько недель было ощущение, (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:800E6A3509A014BC2EE4F37F766DA7C5D392F5D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291745   (652401) от 26.03.2019
+
+Pano2VR Pro 6.0.4 RePack (& Portable) by TryRooM (x64) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652401.jpg" />
+</div>
+
+
+###  Подробнее
+
+Garden Gnome Pano2VR – великолепная программа для создания сферических и цилиндрических 3D панорам, а также для создания на их основе уникальных виртуальных туров со всевозможными эффектами и переходами. Позволяет сохранять созданные панорамы в форматах Adobe Flash 10 (SWF), HTML5 (веб-галереи, форматы iPhone, iPad) или QuickTime VR (QTVR). Поддерживается работа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA5D3EA9078D6056159036C112A51523382206F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291551   (652400) от 26.03.2019
+
+Mirror for Samsung TV 3.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652400.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров Samsung
+Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ Samsung. Никаких проводов и дополнительных аппаратных средств не требуется!
+
+Приложение работает на любой модели Смарт-ТВ Samsung с 2012 и позже.Тип издания: macOS SoftwareРелиз состоялся: март 2019Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28DAEE0FFD1F1B5A833EBC17056B550B44B7AA75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 344262   (652378) от 02.06.2011
+
+Aly and Fila - Future Sound Of Egypt 187 (30-05-2011) [MP3|256 kbps]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_652378.jpg" />
+</div>
+
+
+###  Подробнее
+
+N/AЖанр: TranceПродолжительность: 00:58:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263B3027A3DD2B31E6783924C3B25B45E79E2EAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 798841   (652377) от 23.06.2014
+
+Подшивка журналов | Атлас. Целый мир в твоих руках №214-219, 221-227 (2014) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652377.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Атлас. Целый мир в твоих руках» - коллекция издательства «ДеАгостини», представляющая собой иллюстрированный энциклопедический путеводитель для всех, кто хочет познакомиться с красотами и тайнами нашей планеты. Атлас мира — это необходимая энциклопедия в домашней библиотеке. Географические материалы могут пригодиться школьникам, студентам и всем, кто хочет узнать (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A79DF7DE16AFB518359D835826B663CA0328C093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 345412   (652368) от 02.06.2011
+
+Maxthon 3.1.1.900 beta3 [English/Russian]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_652368.jpg" />
+</div>
+
+
+###  Подробнее
+
+Maxthon - это новое поколение прогрессивной линейки браузеров. Два его движка гарантируют быстрое и корректное отображение страниц - даже на самых старых сайтах, сделанных без соблюдения стандартов. Убедитесь в этом лично, и заодно попробуйте в действии его самые вкусные фишки: супер-перетаскивание, управление жестами мыши, автозаполнение, умную адресную строку, блокировку рекламы и онлайн-закладки.Язык интерфейса: English/Russian
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226919   (652365) от 23.05.2018
+
+Cycles Of Moebius - RGBW (2017) C-O-L-O-U-R-S [FLAC|Lossless|WEB-DL|tracks] <Ambient, IDM, Downtempo, Glitch, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rising high (03:41)
+ 02. Recycle 30 (00:13)
+ 03. Short cycle (00:43)
+ 04. Special cycle (08:40)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient/IDM/Downtempo/Glitch/ExperimentalПродолжительность: 00:56:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0A194E849C71D68B7C759A43812A2281C1A1E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226887   (652363) от 23.05.2018
+
+Гандбол. Лига чемпионов ЕГФ 2017-2018. Женщины. Финал 4-х. Будапешт (Венгрия). Матч за 3-е место. Букурешти (Румыния) – Ростов-Дон (Россия) (13.05.2018) WEB-DL [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652363.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 мая 2018 года, воскресенье. 16:15 МСК
+Лига чемпионов ЕГФ 2017-2018. Женщины. «Финал четырёх». Будапешт (Венгрия)
+Матч за 3-е место
+Букурешти (Румыния) – Ростов-Дон (Россия)(   Читать дальше...   )Телекомпания: ehf TVЖанр: СпортЯзык озвучки: Русский (Матч ТВ)Субтитры: отсутствуютПродолжительность: 01:27:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0F59C7630DE70B7A98BABA3BFD46F15750138DA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1226950   (652359) от 23.05.2018
+
+Хоккей. НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восточной конференции. 6-й матч. Вашингтон Кэпиталз – Тампа-Бэй Лайтнинг (21.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652359.jpg" />
+</div>
+
+
+###  Подробнее
+
+22 мая 2018 года, вторник. 03:00 МСК
+НХЛ 2017-2018. Кубок Стэнли. 1/2 финала. Финал - Восток. 6-й матч
+Вашингтон Кэпиталз – Тампа-Бэй Лайтнинг
+Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18506 зрителей (100 % при вместимости 18506)(   Читать дальше...   )Телекомпания: Eurosport GoldЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:50:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F42AF76B3A1D107BC09B1D7FD5038A0DBC7BDFE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1226920   (652355) от 23.05.2018
 
 Tobias Lilja - Medicine Sings Triptych (2015) Medicine Songs [FLAC|Lossless|WEB-DL|tracks] <Experimental, Dark Ambient, Downtempo, Techno>
@@ -465,264 +712,6 @@ VA - Amazing Summer Compilation Ibiza (2012) [MP3|320 кб/с]<House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E1A6713608A001824832371369D8FB4352AF312
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516691   (652272) от 29.06.2012
-
-Bobina - Russia Goes Clubbing 199 (Erick Strong Guestmix) (2012-06-27) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Bobina - Russia Goes Clubbing Intro	(00:36)
-02.	Justin Prime - R!se	(06:06)
-03.	Beat Service - Fortuna	(05:36)
-04.	Ashley Wallbridge feat. Audrey Gallagher - Bang the Drum (Omnia remix)	(05:56)
-05.	Sunny Lax - Spring	(05:26)
-06.	Ledo - Between the Clouds (7 Baltic remix)	(03:51)
-07.	Koko B. feat. Ally Irwin - In Search For (Sou Kanai remix)	(07:34)
-08.	Daniel Kandi & Ferry Tayle - Flying Blue	(05:11)
-09.	Binary Finary & Genix - Smoking Gun (Sequentia remix)	(04:43)
-10.	Dark Matters feat. Neev Kennedy - Loneliness Won't Leave Me Alone (Sebastian Brandt remix)	(06:17)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:55:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C409DA67EBB2E4128BF2C2E6EC21EC426EBAEB9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515469   (652270) от 29.06.2012
-
-VA - To Sexy 4 The Club! (2012) [MP3|320 кб/с]<Funky, Club House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Syntheticsax & Laura Grig - Hear The Sound
-02. Loleatta Holloway - Stand Up (feat Johnny Vicious - Peter Parker remix)
-03. Soul-Ty - Que Pasa Carino
-04. Rob Renson - Get Down
-05. Deadstar - You Touch My Love (Charlie Nathan radio mix)
-06. Miqro - You Will See (feat Ronar - Zweiklang vocal mix)
-07. Audio Assembly - Sway (feat Paul Mahos & New Life Crisis - Nick Harvey instradub)
-08. Collective Sound Members - Reach Out
-09. V I F & Lola Palmer - Wish
-10. Dario Martino - Time Will Gonna ChangeЖанр: Funky, Club HouseПродолжительность: 03:06:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC6388E43A96B90064D9451F0D3F453A546F2EC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517026   (652267) от 29.06.2012
-
-Каникулы в Мексике - 2. Выпуск №85 (2012.06.29) (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652267.jpg" />
-</div>
-
-
-###  Подробнее
-
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуТелекомпания: MTVПродолжительность: 00:48:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCB1EC80DB44D9FF4A57C1C71E47D40ABF83AF42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291721   (652256) от 26.03.2019
-
-Photo Mechanic 6 6.0 (build 2725) [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652256.jpg" />
-</div>
-
-
-###  Подробнее
-
-Photo Mechanic — фотобраузер и фоторедактор оперативно обрабатывающий тысячи снимков в одиночном и пакетном режимах, отбирает из них самые удачные, обрезает, добавляет информацию к фото, рейтинг, корреспондируется с цифровыми камерами, интегрируется со многими редакторами в т.ч. Adobe Photoshop, позволяет легко экспортировать данные. Программа предназначена для профессиональных (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Camera Bits, Inc.Поддерживаемая ОС: macOS 10.10.5 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C76670D914C13498600142526AD5A1AE76DCD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 344264   (652247) от 02.06.2011
-
-Pedro Del Mar - Mellomania Deluxe 489 (30-05-2011) [MP3|256 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652247.jpg" />
-</div>
-
-
-###  Подробнее
-
-PEDRO DEL MAR IN THE MIX:
-
-01. jan martin feat. hysteria! - save me now (beat service proglifting remix)Жанр: TranceПродолжительность: 02:02:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B1C9FECEF24561A214912F92D6D205F5F96BCE2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 345208   (652237) от 02.06.2011
-
-NHL 10/11, SC: Финал, матч №1: Boston Bruins vs Vancouver Canucks (01.06.2011) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652237.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. NHL. Кубок Стэнли, финал, 1-й матч, Boston Bruins против Vancouver Canucks.Жанр: Спорт, хоккейТелекомпания: Формат: MPEG-4Продолжительность: 01:56:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A79E0D3E8E642E5E0A55C50F1AB3BE38BA45A18D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 345145   (652229) от 02.06.2011
-
-Paul Kalkbrenner - Icke Wieder (2011) /PKM 002CD/ [MP3|192-320 kbps]<Tech House, Minimal Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_652229.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Tech House, Minimal TechnoПродолжительность: 01:00:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FED574381A2F0FB947F3AAF3B8B248E3D932BDB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1227051   (652204) от 23.05.2018
-
-VA - Israel Rising (2018) [FLAC|Lossless|WEB-DL|tracks] <Folk, World>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652204.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Davis & Baruch Maoz - Aaronic Benediction (Birkat Hacohenim)
-02. Jonathan Settel - Sh'ma Yisrael
-03. Barry and Batya Segal - Al Chomatayeech Yerushalayim (On Your Walls O Jerusalem)
-04. Ted Pearce - Zealous over Zion(   Читать дальше...   )Жанр: Folk, WorldПродолжительность: 00:56:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53ACAA7657336A1B5A8A0700FA8269235176ACA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226981   (652197) от 23.05.2018
-
-SMPlayer 18.5.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_652197.jpg" />
-</div>
-
-
-###  Подробнее
-
-SMPlayer - мощный мультимедиа проигрыватель, который позволяет воспроизводить большинство известных аудио и видео форматов без потребности в дополнительных кодеках. Также умеет воспроизводить DVD диски и видео-потоки из Internet.
-Приложение представляет собой полноценную графическую оболочку для MPlayer, обеспечивающую как базовые функции MPlayer (воспроизведение (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758968B663487D2848C7E3D4010D88B58463A694
 ```
 
 https://mybot314.ru/tekegram_catalog/

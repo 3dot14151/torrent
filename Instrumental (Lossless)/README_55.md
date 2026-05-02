@@ -1,3 +1,119 @@
+###  Публикация: 913196   (606930) от 28.06.2015
+
+Ana & Milton Popovic - Blue Room (2015) [FLAC|image+.cue]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_606930.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Catfish Blues (02:20)
+02. I'm Losing You (04:38)
+03. Evening Shadows (04:06)
+04. Grant Spivey (03:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E7FC6175EF3A2D98E5653760B70CAEED065E164
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546860   (604612) от 25.04.2022
+
+By John and Linda Trinckes - Best of Blues and Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues and Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604612.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Bottoms Up (2:42)
+02. Don't Come a-Knockin' (4:27)
+03. Don't Go, Come Here You (3:28)
+04. Don't You Dare (3:53)(   Читать дальше...   )Жанр: Blues and RockПродолжительность: 00:54:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F0C27DFE20A0BD6DA3DF389E2F806EA3A5F458
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1546862   (604249) от 25.04.2022
+
+Greenslade and Thomas - G & T (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604249.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She Wants To Talk To You (3:18)
+02. Sabotage (4:20)
+03. Freefall (3:57)
+04. Late Coming Love (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CCC60462A95F5352BC941FC5DD866D1D280E1E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547006   (603987) от 26.04.2022
+
+The Intruders - Cowboys To Girls - The Best of the Intruder (1995) [FLAC|Lossless|tracks + .cue] <Soul, Funk, R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603987.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. A Love That's Real
+2. Cowboys To Girls
+3. Together
+4. (We'll Be) United(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 01:11:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88F5C4C794D14DCF7ED010B99828DCEC06F27D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1546864   (603880) от 26.04.2022
 
 THICK - Audio Obesity (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Rock>
@@ -625,122 +741,6 @@ Canned Heat - Friends In The Can (2003) [FLAC|Lossless|tracks + .cue] <Blues Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D361E9DB30BE2A956B4E34502AB25519B8D8448F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549787   (592963) от 08.05.2022
-
-Ready For The World - Ruff 'N' Ready (1988) [FLAC|Lossless|tracks + .cue] <Soul, R&B, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Girly Riley, Valentine 5:30
-02. Shame Potts 4:56
-03. Cowboy Riley, Valentine 4:29
-04. Gently Riley 5:30(   Читать дальше...   )Жанр: Soul, R&B, FunkПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F96C87FD2E8666F2A1DDA2FA3DAD595FC693BAB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549779   (592927) от 08.05.2022
-
-James Brown - Duets (1989) [FLAC|Lossless|tracks + .cue] <Soul, R&B, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Brown & Marva Withney - Think (Live At the Apollo Theatre, 1967)
-02. James Brown & Bea Ford - You've Got The Power (1960)
-03. Yvonne Fair (with James Brown) - You Can Make It If You Try (1962)
-04. Anna King & Bobby Byrd - Baby, Baby, Baby (1964)(   Читать дальше...   )Жанр: Soul, R&B, FunkПродолжительность: 00:52:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D86B1A1E5744DA2051A097543C5A508FCD1D0481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549979   (592623) от 09.05.2022
-
-Lew Jetton & 61 South - Déjà Hoodoo (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Two Lane Road (3:24)
-02. Mexico (5:08)
-03. Waffle House Woman (2:48)
-04. Homegrown Tomato (4:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61664F9B75C193560A73B88E8287FB3D7E13C19D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549976   (592619) от 09.05.2022
-
-Frank Schaap Quartet - The Lost Session (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592619.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Truckin' Your Blues Away (3:44)
-02. Come Back Baby  (3:47)
-03. Black and Tan (5:49)
-04. Diddy Wah Diddy  (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9904286182C3892150CDA03762F02D3938CA6776
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,116 @@
+###  Публикация: 1326418   (384980) от 20.09.2019
+
+Ундервуд - Дети портвейна (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384980.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ретро
+2. Последний вагон уходящего поезда
+3. Эпоха
+4. Как проходит одиночество(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D001919B5EECD2735DB1F19E3CA19BE09521A2C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1326421   (384975) от 20.09.2019
+
+Lumen - Тёмные ночи. Бэтмен. Металл. (2019) [MP3|320 Kbps] <Alternative, Rock, OST>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384975.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Страх
+2. Волкодав
+3. Сталь
+4. 0010000000010010 (Нули и единицы)(   Читать дальше...   )Жанр: Alternative, Rock, OSTПродолжительность: 00:41:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4D796114B5AB49367882BD898CEEAA911F9C938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1414659   (383171) от 09.10.2020
+
+Сплин - За семью печатями (2020) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_383171.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. За семью печатямиЖанр: RockПродолжительность: 00:03:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:564FFCBA99F79E48C71CCB60C248CF6A1A7420F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1068215   (382815) от 31.10.2016
+
+Ракоший Нелч - Книга боли (2016) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_382815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Блокада
+02. Юные ангелы
+03. Брест
+04. Где вы(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BF5653F6FC0312F1F5A6D06AC83EF2E40018414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326681   (382798) от 21.09.2019
 
 Мельница - 2.0 (2019) Vintage Sessions [MP3|320 Kbps] <Folk Rock>
@@ -624,121 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0B779F8BD97E36D6C5B8ED75101005581DF04132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176104   (374074) от 20.10.2017
-
-Слот - #REDLIVE (2017) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374074.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Реинкарнация
-2. Доска
-3. Лего
-4. Мочит, как хочет!(   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF473C16239D1B5BE2D6CFC001F214F499D0B6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1175956   (373928) от 20.10.2017
-
-Аквариум - Двери травы (2017) Maxi-Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373928.jpg" />
-</div>
-
-
-###  Подробнее
-
-В макси-сингл «Двери травы» вошли три композиции в новых аранжировках.1. Двери травы
-2. Не трать время
-3. Для тех, кто влюблёнЖанр: RockПродолжительность: 00:14:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA88C579ACF332424B69A587A1856F612BBCDE91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1176095   (373810) от 20.10.2017
-
-Элизиум - Яды (2017) [MP3|320 Kbps] <Ska Punk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. За своей звездой
-02. Дождь - II
-03. Кукла вуду
-04. 1905(   Читать дальше...   )Жанр: Ska Punk, RockПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:26196BA8902B744A50F5CAEDE043BAAF220D3472
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254592   (372811) от 14.10.2018
-
-Сергей Безруков & группа Крёстный папа - Крёстный папа (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372811.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Прорываться!
-2. C какой мы планеты
-3. Дорогая редакция
-4. Цель всех разведок мира(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:931FC3862D44188EC68834A8182D5CC6A0FBEA1E
 ```
 
 https://mybot314.ru/tekegram_catalog/

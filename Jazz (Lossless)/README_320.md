@@ -1,3 +1,61 @@
+###  Публикация: 1716734   (111307) от 17.04.2024
+
+Dave McKenna - Giant Strides (1979) 1994, Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. If Dreams Come True [3:42]
+02. Yardbird Suite [2:58]
+03. Windsong [2:50]
+04. Dave's Blues [6:10](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DB575D81D1B5B191763536F961242739D66D79F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1716735   (111306) от 17.04.2024
+
+The Dave McKenna Quartet featuring Gray Sargent - No More Ouzo For Puzo (1989) Concord Jazz [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_111306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Look for the Silver Lining [4:57]
+02. Shake Down the Stars [5:29]
+03. Smile [5:25]
+04. Lonesome Me [3:22](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 00:56:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A88DEF2CCCBDC14B48E8775510841CE7A677A8DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1717044   (111289) от 18.04.2024
 
 Louis Prima & Keely Smith - Live from Las Vegas (1958) 2005, Capitol Records [FLAC|Lossless|tracks + .cue] <Swing, Vocal Jazz>
@@ -686,64 +744,6 @@ Dave Eshelman's Jazz Garden Big Band - When Dreams Come True (1993) Sea Breeze J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F1ECC0BF5D32C56803C256A39A8F62C5DC67CF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718488   (110921) от 25.04.2024
-
-Gerald Albright - Giving Myself To You (1995) Atlantic Jazz [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samba Queen [8:20]
-02. Chips n' Salsa [5:16]
-03. Oo Pah Doo [7:10]
-04. Lucky 7 [7:26](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 01:03:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB08F7B1E92820F46F7EAD82760240C917AFA7DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1718490   (110918) от 25.04.2024
-
-Susannah McCorkle - I'll Take Romance (1992) Concord Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Beautiful Friendship [4:12]
-02. My Foolish Heart [3:38]
-03. I'll Take Romance [3:28]
-04. Get Out of Town [4:41](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:59:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE9DB86A747A4FFDDAA55893976CAA253648213F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1281339   (753492) от 07.02.2019
+
+Tension (GER) - Currents (2019) Be Sure [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_753492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abandon (04:03)
+ 02. Parsec (06:19)
+ 03. Currents (06:16)
+ 04. Can Do (06:40)(   Читать дальше...   )Жанр: Techno, AmbientПродолжительность: 00:58:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF69D1F8A2D489385CFE189B78EB3B82A3BB1C44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 322371   (752317) от 12.04.2011
 
 R.I.O. - Shine On (2008) [FLAC|Lossless]<House / Electro>
@@ -711,35 +740,6 @@ Kaskade - Fire & Ice v3 (2022) [FLAC|Lossless|WEB|tracks] <Progressive House, Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5F328224D34D0AC442033DDBB38F203F2C18CAE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127392   (731842) от 21.04.2017
-
-Parov Stelar - The Burning Spider (2017) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Nu Jazz>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731842.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Burning Spider (feat. Lightnin Hopkins)
-02. Step Two (feat. Lilja Bloom)
-03. Soul Fever Blues (feat. Muddy Waters)
-04. Everything of My Haert(   Читать дальше...   )Жанр: Electronic, Nu JazzПродолжительность: 00:40:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4F8021EB31E8550E0AD8C782BC852C928A294F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

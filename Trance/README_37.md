@@ -1,3 +1,147 @@
+###  Публикация: 1183381   (310312) от 13.11.2017
+
+VA - Dark Rest Vol. 3 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Yuri Yavorovskiy - Dark Test (Original Mix)
+02. Bekar-B - After The Rain (Original Mix)
+03. Owl Stone - Eternity (Original Mix)
+04. UlAN - You Have To Say (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:44:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EC9EB50C3489351A2F31C8A3A2D49E1B2214E68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183335   (310311) от 13.11.2017
+
+KGproject - Cold Eyes (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cold Eyes (Original Mix) (7:28)
+ 02. Cold Eyes (Alternate High Remix) (8:28)
+ 03. Cold Eyes (Dave Cold Tech Remix) (6:39)
+ 04. Cold Eyes (Dave Cold Uplifting Remix) (6:53)Жанр: TranceПродолжительность: 00:29:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A13FCEEB59EA16C820854AD5F5F6DE8C38E616
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183338   (310215) от 13.11.2017
+
+Aeden - Once Upon A Time EP (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Be Leave (Original Mix) (6:20)
+ 02. Focus (Original Mix) (4:56)
+ 03. Once Upon A Time (Original Mix) (6:39)Жанр: TranceПродолжительность: 00:17:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1808ADEBC0B75144E104ED31DB1A840366F7E742
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1183454   (310199) от 13.11.2017
+
+VA - Grotesque Reworked & Remixed (Mixed By RAM) (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JES - People Will Go (M.I.K.E. Push Remix) (7:10)
+02. DJ Ton TB - Dream Machine (Factor B's Back To The Future Remix) (8:00)
+03. Salt Tank - Eugina (Ciaran Mcauley Remix) (4:12)
+04. Mr. Sam - Lyteo (Stoneface & Terminal Remix) (7:03)(   Читать дальше...   )Жанр: TranceПродолжительность: 05:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B72633E2A373B3699F601F0A16699C4D7CAD44C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076589   (309493) от 27.11.2016
+
+VA - Trance Hits Top 20 2016-11 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Dymond - It Ain't Over 3:44
+02. Sun Decade - I'm Alone (Adam Ellis Remix) 3:23
+03. A.R.D.I. - Invictus 4:11
+04. Tempo Giusto - Time To Tango 3:29(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2874EFA4B3898C46D924702AC697542B8D31B692
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1076682   (309072) от 27.11.2016
 
 VA - Amsterdam Trance Sessions Vol.7 (2016) [MP3|320 Kbps] <Trance>
@@ -599,151 +743,6 @@ VA - Trance 2019 (2018) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97A2FE11F99EB51BD28168F78C651807B7C1536F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1262780   (293505) от 16.11.2018
-
-VA - Pure Trance 7 (Mixed by  Kristina Sky & Solarstone & Lostly) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neptune Project & Christopher Lovell – Elixir of Life feat. Christopher Lovell (Original Mix)
-02. Mike Saint-Jules – Parachuting (Original Mix)
-03. Paul Sawyer – Meridian (Original Mix)
-04. Elfsong – Crenshinibon (Dub Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 07:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E638A70F7F4BD27E8930C83D25BFEBBB48D93D6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185638   (291812) от 22.11.2017
-
-VA - Trance Travel Vol. 1 (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291812.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dream Travel - Dolphins (Original Mix)
-02. Dream Travel - Page Up (Original Mix)
-03. Dream Travel - Space Voyage (Original Mix)
-04. Dmitry Kostyuchenko - Above The Clouds (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADC70D5DF8A1F6C43281C1F60D4FB7EFA6370A95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185660   (291811) от 22.11.2017
-
-Dream Travel - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291811.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coral Odyssey (Original Mix)
-02. Coral Odyssey (Radio Edit)
-03. My Best Place (Original Mix)
-04. Moments (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96630CED147C76C211D925E4E080E8ABE30E279A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185699   (291739) от 22.11.2017
-
-VA - Adedition: Trance Collection Of Amsterdam (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jorge Caballero - The Rebirth (Original Mix)
-02. Furkan Senol - Parthenope (Skydust Remix)
-03. Tommy Reid - I Called Your Name (Original Mix)
-04. Aleksandar Radicevic - Arhe (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:16:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7473E948702AD7167C1CA41220FAF92C3DE70C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1185833   (291738) от 22.11.2017
-
-VA - Trance Cloud (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_291738.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. IF - Classic Universe (original mix)
-02. IF - Classic Universe (radio edit)
-03. Parad Planet - Black Uplifter (original mix)
-04. Nickella & Destlours - Words (original mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:24:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42F5961EDC657716274078512258A7327ED9C27
 ```
 
 https://mybot314.ru/tekegram_catalog/

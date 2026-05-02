@@ -1,3 +1,61 @@
+###  Публикация: 1130817   (712467) от 03.05.2017
+
+VA - 100 Party Play The Music Hits (2017) [MP3|320 Kbps] <Funky, Groove, Jackin, Progressive, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stella Grundy Feat. Jah Wobble - Supersize (Jose Jimenez Clean Clean) 04:06
+02. Luca Debonaire - Bass Is Kickin (Original Mix) 05:42
+03. Mikah Feat. R.E.M. - Lost Religions (Original Mix) 06:06
+04. Dompe Agent - Shake (Original Mix) 07:15(   Читать дальше...   )Жанр: Funky, Groove, Jackin, Progressive, Future HouseПродолжительность: 08:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EFF5A1A05C7F7123403E71227CDC5B3EDCAE3F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1025194   (712292) от 11.06.2016
+
+VA - Fitness Lounge Collection (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_712292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enrico Donner - Through Your Eyes
+02. Cane Garden Quartet - Love Goddess
+03. Don Gorda Project - Um Momeno
+04. Enrico Donner - Yearning for More(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:24:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EBB9447D9A18ED2358C86E13DF102C41A227844
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025043   (712226) от 11.06.2016
 
 VA - Maldives Luxury Lounge: Perfect Beach Chill Out in Paradise (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
@@ -687,64 +745,6 @@ VA - Dance Shape Workout Hits (2017) [MP3|320 Kbps] <Moombahton, Trap, Twerk, Bi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F231A569CAD809E84BEB994F9911108EAE5B5B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131197   (708786) от 05.05.2017
-
-VA - Workout Mix vol.8 (mixed by Dj V) (2017) [MP3|320 Kbps] <Club House, Electro House, Progressive House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Julian The Angel - Hands Up (Original Mix)
-02 - СС Music Factory & FTampa - Everybody Dance Now Ricky (DJ Vadim Adamov Mash Up)
-03 - David Guetta vs twoloud & Qulinez - Love Is Gone (Max Maikon Mash-Up)
-04 - Alex Gaudino - Destination (Vasiliy Francesco & Sergey Pirs Remix)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive HouseПродолжительность: 01:01:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:998CC83D8408BA9C10D391FCAB293150680AD19B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131245   (708784) от 05.05.2017
-
-VA - Synthetic (2017) [MP3|320 Kbps] <Synth Pop, Dark Electro, EBM>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_708784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Junksista - Life Is Unfair (And Love Is A Bitch) (Psy'Aviah Remix) (04:47)
-02. Ari Mason - Military Fashion Show (04:21)
-03. Nordika - Heaven (Slaves of the Sin) (03:56)
-04. Ladytron - Evil (Ewan Pearson Single Remix) (04:10)(   Читать дальше...   )Жанр: Synth Pop, Dark Electro, EBMПродолжительность: 01:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F5E8BAB39A0380809A66F7774454BD0EC747524
 ```
 
 https://mybot314.ru/tekegram_catalog/

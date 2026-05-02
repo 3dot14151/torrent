@@ -1,3 +1,61 @@
+###  Публикация: 1482070   (1007767) от 07.07.2021
+
+VA - Exotic Ethnic House (2021) [MP3|320 Kbps] <Ethnic house, electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007767.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Everything Counts - Mbodiene
+02. DJ Razor Dotcoza - Wena Wedwa
+03. Mahfoud - Fuji
+04. Gianni Romano - Woroko Kumba(   Читать дальше...   )Жанр: Ethnic house, electroПродолжительность: 06:57:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C871E80209A70DBF0035A4BFF409F3D6514C0AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1482509   (1007618) от 08.07.2021
+
+VA - Private Summer Theme: Lounge Party (2021) [MP3|320 Kbps] <Lounge, Chillout, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007618.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Har.Art - The Last Goodbye
+002. Blue Mood - Morning Light
+003. Philip Ropero - Deep Blue Sea
+004. Monoscope - Au Revoir(   Читать дальше...   )Жанр: Lounge, Chillout, DowntempoПродолжительность: 08:22:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:768E6A711FBCD8D501B932BDC0984BC5E0E6149F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1482521   (1007614) от 08.07.2021
 
 VA - Beatport Electro House: Sound Pack #314 (2021) [MP3|320 Kbps] <House, Electro>
@@ -687,64 +745,6 @@ VA - Tropical Jungle Club (2021) [MP3|320 Kbps] <Drum & Bass, Jungle>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A640BD378EEB20A04796AE0857B45763D819375B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487074   (1004136) от 03.08.2021
-
-VA - Trance Energy: Emotional Electro Mix (2CD) (2021) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004136.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-
-01. Blackstorm - Crystal Skies
-02. Evolving Suns Audio - Outside The Box(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 11:17:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E3C33910184DC3673FD84C3A9D6DC4D22FC2F87
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349945   (1003764) от 04.01.2020
-
-VA - Portal Transform: Psy Trance Music (2020) [MP3|320 Kbps] <Psychedelic Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003764.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dominant Space - Indigo
-002. Agent Kritsek - Transforming
-003. Eric Electric - Dance Remake Unscratched
-004. Ekahal - No Rest For The Wicked(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 11:02:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D17187039E6B50E5FD455455149A5D160026D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

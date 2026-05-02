@@ -1,3 +1,245 @@
+###  Публикация: 458559   (94762) от 27.02.2012
+
+Чистосердечное признание . Валентина Талызина (2012.02.26) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94762.jpg" />
+</div>
+
+
+###  Подробнее
+
+Программа существует уже более 10 лет. Все это время в ней показывали только эксклюзивы — материалы, которые невозможно увидеть где-либо еще. Разнообразные темы и, конечно же, чистосердечные признания. Герои передачи доверяют зрителям самые сокровенные тайны. Корреспонденты и продюсеры программы — профессионалы, способные, оставаясь за кадром, заставить нас взглянуть (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: ~ 00:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6F5731282FF129FB00511F2451C5C464931E61A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458733   (94748) от 27.02.2012
+
+Eboxyde - Bonus Tracks (2012) [MP3|320 кб/с]<Dubstep, House, Drum & Bass>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I am a genie in the bottle (03:22)
+02. Mushroom miss (03:14)
+03. Gossip (Missy Elliott) (04:28)
+04. The Thing (04:14)
+05. Wires (03:41)
+06. Heart attack (04:01)
+07. Tox (04:05)
+08. Arch (02:37)2012Жанр: Dubstep, House, Drum & BassПродолжительность: 00:29:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99417221D2150ACF020286ADA59891F2E84D5A69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459033   (94744) от 27.02.2012
+
+Massive - 1 More Time (2012) [MP3|320 кб/с]<Psychedelic/ Full On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Superjam [05:59]
+ 02. One More Time [07:26]
+ 03. Rising Sunshine [07:46]
+ 04. Wanna Do It Now [07:41]
+ 05. Saving Power [07:13]
+ 06. Dangerous Escape [06:39]
+ 07. Party At Boys [07:03]
+ 08. DJ.DJ [07:19]
+ 09. Good Morning Everyone [07:20]2012Жанр: Psychedelic/ Full OnПродолжительность: 01:04:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D208C35AA954FFC47DFDCCBC1C7EDAD3535DEFC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458837   (94741) от 27.02.2012
+
+Lange & Audrey Gallagher - Our Way Home (2012) HDRip [1080p]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94741.jpg" />
+</div>
+
+
+###  Подробнее
+
+Долгожданный официальный клип на композицию Lange & Audrey Gallagher - Our Way Home. Свежак!!! ))Жанр: МузыкаПеревод: ОтсутствуетПродолжительность: 00:04:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F276F009004B571E2D4203BBE8B23B92AC6150F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458916   (94738) от 27.02.2012
+
+Gaudium - Session Of Progression (2011) [FLAC|Lossless]<Psychedelic / Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Undercover (7:50)
+02. High On Life (7:59)
+03. I've Got Something (7:08)
+04. In Between (7:02)
+05. When The Sun Rises (10:00)
+06. Blue Lights (8:34)
+07. Searching (6:26)
+08. Tekknobonk (7:41)
+09. A Smile On Your Face Makes You More Beautiful (8:41)
+10. Chasing Shadows (7:16)2011Жанр: Psychedelic / ProgressiveПродолжительность: 01:18:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458595   (94695) от 26.02.2012
+
+Сергей Трофимов - Сорокапяточка (2011) [FLAC|Lossless]<Шансон>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Нет, я не стал
+ 02. Жми на фузз
+ 03. Во облацех
+ 04. Наблюдения во время прогулки
+ 05. Что-то не так
+ 06. Я привык улыбаться людям
+ 07. Хэнде хох
+ 08. Текила Бум
+ 09. Ямамото
+ 10. Миллионер(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458045   (94656) от 26.02.2012
+
+Приключения Филибера / Les aventures de Philibert, capitaine puceau (2011) [720p] BDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94656.jpg" />
+</div>
+
+
+###  Подробнее
+
+Производство: Франция / Angoa-Agicoa, Canal+Жанр: Комедия, ПриключенияРежиссер: Сильвен ФюзеАктеры: Жереми Ренье, Александр Астье, Ману Пайе, Элоди Наварр, Эрик Савен, Людовик Бертийо, Гаспар ПрустПеревод: Многоголосый закадровый, профессиональныйСубтитры: Вшитые отключаемыеЯзык субтитров: Русские, УкраинскиеПродолжительность: 01:41:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 458330   (94648) от 26.02.2012
+
+23 февраля в Большом городе (2012.02.25) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94648.jpg" />
+</div>
+
+
+###  Подробнее
+
+В честь главного праздника всех мужчин постсоветского пространства самые талантливые и любимые певицы выступили в самом неожиданном для себя амплуа и исполнят песни, которые зритель до этого привык слышать исключительно в мужском исполнении.
+Коллектив Freedom-jazz, Светлана Лобода, Наталья Королёва, Тина Кароль, Ёлка, Наталья Могилевская, Анастасия Петрик, Лайма Вайкуле, Руслана, группа "Фабрика", Тамара Гвердцители, группа "Алиби", Ани Лорак, Лолита, группа "Real О" спели популярные "мужские" хиты.Жанр: КонцертПродолжительность: ~ 01:27:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D536CC6894830230BFB76E7E62EC73B2C0630BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 458450   (94598) от 26.02.2012
 
 Кровавая ария / A Bloody Aria / Guta-yubalja-deul (2006) DVDRip
@@ -536,263 +778,6 @@ Andain - Much Too Much (Official Music Video)Жанр: МузыкаРежисс�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3F07D3132C410B961D86B52D16D0DEE0DB303028
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457481   (94360) от 25.02.2012
-
-George Gakis - Too Much Ain't Ever Enough (2012) [MP3|320 кб/с]<Hard Rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94360.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Married Trouble (04:15)
-02. Fame (05:09)
-03. Street Of Broken Dreams (03:45)
-04. Days of Rock 'n' Roll (03:17)
-05. When Opposites Attract (04:50)
-06. Too Much Ain't Never Enough (03:49)
-07. License For Love (03:48)
-08. Under My Skin (04:54)
-09. Rebelious Son (04:51)
-10. It Aint Over Till It's Over (05:09)(   Читать дальше...   )2012Жанр: Hard RockПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5044F19F431B210EBC5D27F5D4AF74FA74F7240D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457639   (94347) от 25.02.2012
-
-Win7codecs 3.5.1 Final + x64 Components / Eng
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94347.jpg" />
-</div>
-
-
-###  Подробнее
-
-Win7codecs - это пакет кодеков предназначенный для установки в новой операционной системе Windows 7. Пакет представляет собой автоматизированное средство, предназначенное для установки основных кодеков и декодеров. Он не содержит никаких дополнительных проигрывателей и не меняет системные ассоциации файлов по умолчанию. Кроме того, при установке он автоматически удалит уже установленные кодеки и заменит их собственными из комплекта для обеспечения лучшей совместимости.
-Changelog:
-- update LAV filters .48
-- update Gabests filters 4090Название программы: Win7codecs 3.5.1 Final + x64 Components / EngЯзык интерфейса: английский (установщик русский)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457855   (94342) от 25.02.2012
-
-VA - Progstorm 3 (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94342.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zane - Shadows 06:36
- 02. Eight Sin - Orchestra 05:57
- 03. Naturalize - In Memory of a Friend 07:15
- 04. Kularis - Fruitopia (Querox rmx) 07:27
- 05. Monod - Calculations 08:04
- 06. Klopfgeister - Progwarts 07:35
- 07. Hi Profile - Today 09:47
- 08. Mr Suspect - Diva 07:44
- 09. Synsoniq - Point of Pleasure 08:112012Жанр: Psychedelic / ProgressiveПродолжительность: 01:08:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DA1C7C37A85A4EC9016AA93C27B12F5C94B2BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457896   (94325) от 25.02.2012
-
-Nerso - Exploration of Infinity (2011) [MP3|~265 кб/с (V0)]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94325.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Jungle Of Sounds (With Iva) 07:53
- 02 Electrify 06:36
- 03 Dune (With Sideform) 07:05
- 04 Synapse 06:31
- 05 Borderland 06:26
- 06 Vertigo (With E-Clip) 07:23
- 07 Crystal 07:16
- 08 Deep Blue (With Middle Mode) 08:04
- 09 Quirky 07:452011Жанр: Psychedelic / ProgressiveПродолжительность: 01:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3ADBE36E581A7BC26C9068FE873488AA0982DFCA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457275   (94279) от 24.02.2012
-
-Armen Chakmakian - Caravans (2004) [FLAC|Lossless]<Contemporary Jazz, New Age, Fusion>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fire Dance (5:18)
-02. Spirits Ride (6:18)
-03. Caravans (6:13)
-04. El Mirage (5:09)
-05. Without a Word (6:16)
-06. September (3:17)
-07. Trio (5:24)
-08. Hope Rising (5:23)
-09. Journey Home (Birdsong Medley) (2:05)
-10. Birdsong (Birdsong Medley) (5:17)(   Читать дальше...   )2004Жанр: Contemporary Jazz, New Age, FusionПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457099   (94277) от 24.02.2012
-
-[Фото знаменитости] Christina Aguilera
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94277.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фото Кристины Агиллеры в высоком разрешении
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC78A99957A6B3A0E1DCC82DB3FC8FE8A95951F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 456944   (94274) от 24.02.2012
-
-[DE] Чужая душа - потёмки / Ihr koennt euch niemals sicher sein / None of you can ever be sure (2008) DVDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94274.jpg" />
-</div>
-
-
-###  Подробнее
-
-Oliver (Ludwig Trepte) ist leidenschaftlicher Rapper. Nun soll er im Deutschkurs einen Aufsatz über "Die Leiden des jungen Werther" verfassen. Doch weil er den im Stile seiner Raptexte verfasst hat, erhält er von seiner Lehrerin eine Sechs. Enttäuscht und missverstanden verlässt er die Klasse. Dabei verliert er einen weiteren Text, in dem er ein Blutbad an seiner Schule ankündigt. Oliver wird zur Beobachtung in die Jugendpsychiatrie eingewiesen.
-Dort lernt er Katja kennen...
-
-Оливер (Ludwig Trepte) увлечен рэпом. Но когда ему приходится написать работу по немецкому на тему "Страдания юного Вертера", которую он создает в рэпперском стиле, учитель ставит ему самую низкую оценку. Когда подросток в расстроенных чувствах покидает занятие, он случайно теряет еще один из своих текстов - тот, в котором красочно описывает кровавую бойню в собственной школе. Оливера направляют к психиатру, где он знакомится с Катей, загадочной и неуравновешенной девушкой...Жанр: ДрамаРежиссер: Николь ВигманнАктеры: Людвиг Трепте, Дженни Шили, Юрген ТонкельПеревод: ОтсутствуетПродолжительность: 01:27:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C5233922999A2609D7BE44FEF5C764A93223620
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 457210   (94273) от 24.02.2012
-
-VA - Royal Flush Vol. 4 (2 cd) (2012) [MP3|320 кб/с]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94273.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 :
-Продолжительность: 01:11:05
-
- 01. Cimi vs Bomb Voyage - Particles and Waves 08:12
- 02. Invisible Reality - Sunflower 07:42
- 03. Meander & Ridden - Space Navigators 07:51
- 04. Elecdruids - Insanity 08:16
- 05. Jumpers & Analog Drink - Surrounded by Stars 07:18
- 06. Abstract Sunrise - Butterfly 07:59
- 07. Zyce - Gates 09:24(   Читать дальше...   )2012Жанр: Psychedelic / ProgressiveПродолжительность: 02:21:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A99090431420AA5D76BA67D6BF7D878F5041EF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

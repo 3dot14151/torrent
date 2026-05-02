@@ -1,3 +1,58 @@
+###  Публикация: 719260   (385643) от 05.11.2013
+
+VideoHive - Night Club 4 - 4352303 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385643.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередная серия проекта ночного клуба от нашего соотечественника Артёма.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EEEA70D62B17F6761E6C0F59A63DCB486264034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 719100   (385536) от 05.11.2013
+
+VideoHive - Adrenaline - 138442 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_385536.jpg" />
+</div>
+
+
+###  Подробнее
+
+От автора: Я уверен, что этот проект отлично подходит для вашего корпоративного/бизнес/промо/вводного видео с мощными текстами и видео!
+Возможности:
+ - CS3 и старше;
+ - No plugins required! – 2 projects (with prerendered compositions) included.(   Читать дальше...   )Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B246A31D259B5267CEEA1202FBAEC28CA879A5A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 833374   (384300) от 22.10.2014
 
 VideoHive - Corporate Timeline - 4518505 [AEP]
@@ -640,59 +695,6 @@ VideoHive - Cooking Titles - 18507757 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBFF5B6C7332C1D2D2BD79077AFDB3CE6BD75C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1069183   (375191) от 03.11.2016
-
-Проекты - VideoHive - Opener - 17717700 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_375191.jpg" />
-</div>
-
-
-###  Подробнее
-
-Opener - Проект для быстрого создания стильной презентации или промо.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2376B072B25578764EB08701AB1889A9737CD05B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949700   (374527) от 24.10.2015
-
-Проекты - VideoHive - Elegant Broadcast Package [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_374527.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо ролика, ТВ-шоу, вечеринки или любого мероприятия, к которому вы хотите добавить лоска.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E7459F3067083E89AFB4B0DDADF516F2DC68664
 ```
 
 https://mybot314.ru/tekegram_catalog/

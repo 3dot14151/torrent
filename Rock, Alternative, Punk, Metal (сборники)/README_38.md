@@ -1,3 +1,67 @@
+###  Публикация: 498851   (256199) от 20.05.2012
+
+Алиса - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_256199.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Эй ты там на том берегу
+02. Моё Поколение
+03. Энергия
+04. Армия жизни
+05. Танец на палубе тонущего корабля
+06. Стерх
+07. Лодка
+08. Шабаш
+09. Бес Паники
+10. Белая невеста(   Читать дальше...   )2012Жанр: RockПродолжительность: 03:09:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8C11B9008EC8D07A5DCEACAF2EA7E737214BF82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1627827   (254917) от 22.04.2023
+
+VA - Compilation  part 17 Rock (2023) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dark Horses - Alone
+02. Jamie N Commons - Not Gonna Break Me Valor
+03. L.A. Guns - I  Love to Change the World
+04. Stephane Huguenin - Stay By My Side(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DECE352B23EB4DEDFC5402AD31C8B96FD25D1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 498140   (253838) от 17.05.2012
 
 Моральный кодекс - Лучшая Коллекция (2012) [MP3|320 кб/с]<Rock>
@@ -717,64 +781,6 @@ VA - For Those About to Rock (2023) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9141A16FEEB275A075334C97608E1733070A79DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632974   (234803) от 13.05.2023
-
-Teresa James & The Rhythm Tramps - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234803.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Time Low
-02. I Know I Ain't Been So Perfect
-03. I Know What Love Can Do
-04. Here In Babylon(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB0B6185DBD6CC2B4F3F46108560E24D71E8B5F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1632976   (234772) от 13.05.2023
-
-Danielle Nicole - Compilation (2023) [MP3|320 Kbps] <Rock, Blues>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_234772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crawl
-02. I'm Going Home
-03. Hot Spell
-04. Take It All(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 01:18:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB2F936D8DAF0EC3D4AF64DB63459246F34DE1DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

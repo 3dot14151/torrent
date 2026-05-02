@@ -1,3 +1,206 @@
+###  Публикация: 1132489   (700450) от 09.05.2017
+
+The Dead South - Good Company (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Bluegrass,  Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700450.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Long Gone (2:17)
+02. Achilles (2:25)
+03. The Recap (4:15)
+04. In Hell I'll Be In Good Company (4:03)(   Читать дальше...   )Жанр: Bluegrass,  Folk, World, & CountryПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C7EE63FE8E747A2D56BCC0809B92D70C9C30A66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131769   (700442) от 09.05.2017
+
+Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Артура (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700442.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Nothing Comes a King (00:43)
+02. King Arthur: Legend of the Sword (02:52)
+03. Growing Up Londinium (02:42)
+04. Jackseye's Tale (03:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EA1980BF19B0AF240635CBD64B0BFEF1F16F5EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1179508   (700434) от 21.04.2018
+
+VA - Салют-7 (2017) [MP3|320 Kbps] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Иван Бурляев & Дмитрий Носков - Accident [03:40]
+02. Иван Бурляев & Дмитрий Носков - Connection's Lost [04:32]
+03. Иван Бурляев & Дмитрий Носков - Trainings [02:50]
+04. Иван Бурляев & Дмитрий Носков - Families & Take Off [04:39](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:24:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:240E0E5AE8D3D725341F572EC76EA1FA196B11FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026939   (700405) от 17.06.2016
+
+David Darling - Gratitude (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Laughing at the Moon [00:05:10]
+02. Of Faith [00:02:35]
+03. Song of the Rain [00:03:23]
+04. Gratitude [00:03:43](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8A5CA8FB59FE938DA876810ABBC09D9F9E7FBB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131765   (700358) от 09.05.2017
+
+Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Артура (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700358.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. From Nothing Comes a King (00:43)
+02. King Arthur: Legend of the Sword (02:52)
+03. Growing Up Londinium (02:42)
+04. Jackseye's Tale (03:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:31:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4303C47C21A7375D0FD7AD98A4FE9B230382A034
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027059   (700322) от 17.06.2016
+
+Thomas Newman - Finding Dory / В поисках Дори (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kelpcake (00:46)
+02. Finding Dory (Main Title) (00:55)
+03. Lost at Sea (01:36)
+04. One Year Later (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5B50077665470F832B4501984F2E10822A18A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026906   (700321) от 17.06.2016
+
+Brian Tyler - Now You See Me / Иллюзия обмана (Complete Motion Picture Score) (2013) [MP3|320 кб/с]<Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700321.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Now You See Me (02:02)
+02. The Team (02:45)
+03. Opus NYSM (02:28)
+04. Chess Moves (03:56)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:21:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F2C6EF32840B8A5E186C267AF0568D9687E4E92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026692   (700207) от 17.06.2016
 
 Waterbone - (1997-2015) (5 альбомов) [MP3|320 кб/с] <New Age, Enigmatic, World>
@@ -554,209 +757,6 @@ Medwyn Goodall - The Sorcerer's Daughter 2 (2017) [FLAC|Lossless|WEB-DL|tracks] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7268A50A3EAB972982755A15935EB6DAE1C35E9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133186   (696872) от 11.05.2017
-
-Sverre Knut Johansen - Secret Space Program (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Ambient, Electronic, Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milab (Military Abduction) (4:11)
-02. Black Ops (Military Secret Space Programs) (5:26)
-03. Loc (Lunar Operations Command) (4:43)
-04. Secret Space Program (7:15)(   Читать дальше...   )Жанр: Ambient, Electronic, InstrumentalПродолжительность: 01:10:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4CF244B3E908C2DFD3E1966ABDDB08CCF2DDD57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221180   (696795) от 23.04.2018
-
-Damien Dubois - L'instant sacré (2018) [MP3|320 Kbps] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696795.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'instant sacré (7:12)
-02. Au fil du temps (6:26)
-03. Voyage intérieur (7:04)
-04. La voie du coeur (4:38)(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:04:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B62521898AED1196A9ADA6D06C56C949C3D0B4CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472893   (696585) от 11.05.2017
-
-Robert Miles - Child of Dream (2001) Bootleg [FLAC|Lossless|image + .cue] <Trance, Instrumental>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Freedom (5:54)
-02. One & One (3:54)
-03. Textures (3:16)
-04. Fable (6:26)(   Читать дальше...   )Жанр: Trance, InstrumentalПродолжительность: 01:13:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9BAB1CA6859BF6CEFE3CFCB56701A1769471E42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027458   (696534) от 19.06.2016
-
-Thomas Wander & Harald Kloser - Independence Day: Resurgence / День независимости Возрождение (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Traveling Through Space (01:26)
-02. Great Speech (01:37)
-03. Hostile Territory (01:23)
-04. How Did They Get the Lights On? (01:13)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DDF1AB3B561099579F9175035136A542893C1F2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027402   (696528) от 19.06.2016
-
-VA - The Nice Guys / Славные парни (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Temptations – Papa Was a Rollin’ Stone (06:58)
-02. Kool & The Gang – Get Down On It (04:54)
-03. Taste of Honey – Boogie Oogie Oogie (05:32)
-04. Earth, Wind & Fire – September (03:35)(   Читать дальше...   )Жанр: Soundtrack (Dance / Disco / Pop / R'n'B)Продолжительность: 01:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D61DD6A0689687CF3CA7132470A89EA9FE3FA35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027460   (696412) от 19.06.2016
-
-Thomas Wander & Harald Kloser - Independence Day: Resurgence / День независимости Возрождение (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_696412.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01. Traveling Through Space (01:26)
-02. Great Speech (01:37)
-03. Hostile Territory (01:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:51:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:141DD01A18545DCDEEADBBFBB95DC3DD665B83DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133416   (695124) от 12.05.2017
-
-Micki Free - The Native American Flute As Therapy (2016) [MP3|320 Kbps] <New Age, World, Native American>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695124.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Candle Light
-02. The Healing Bath
-03. Lavender Kiss
-04. The Native American Flute as Therapy(   Читать дальше...   )Жанр: New Age, World, Native AmericanПродолжительность: 01:33:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A387A52E2DF2066CA7080EA27E6D4E3057AFD15F
 ```
 
 https://mybot314.ru/tekegram_catalog/

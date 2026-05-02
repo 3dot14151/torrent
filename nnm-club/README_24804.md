@@ -1,22 +1,25 @@
-###  Публикация: 1782630   (69970) от 01.03.2025
+###  Публикация: 1774979   (71513) от 24.01.2025
 
-Шрифты - Creative Market - The Malabar Script - 290895531 [OTF, TTF, WOFF, WOFF2]
+Demented Heart - Frantic Epidemic (2023) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69970.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71513.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Malabar — это тщательно созданный рукописный шрифт, разработанный для тех, кто ценит вневременную эстетику и непринужденную универсальность. Благодаря естественному потоку, смелым штрихам и современному винтажному облику Malabar идеально подходит для логотипов, этикеток продуктов, графики социальных сетей и канцелярских товаров. Включение лигатур и альтернативных (   Читать дальше...   )Формат: OTF, TTF, WOFF, WOFF2
+01. Frantic Epidemic
+02. Severe Disease
+03. Incitement To Violence
+04. Terror And Destruction(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:31:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8928ADFE80C26C810665189F0F0D59DB34D5638
+magnet:?xt=urn:btih:4F76EFA2AB80B6F61997B89BEE31EBFC99400888
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782573   (69969) от 01.03.2025
+###  Публикация: 1774978   (71512) от 24.01.2025
 
-Bud Powell - Strictly Confidential (1964) 1994, Black Lion [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz>
+Soreption - Jord (2022) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69969.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71512.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cherokee [2:59]
-02. My Devotion [3:48]
-03. Idaho [2:34]
-04. Ruby My Dear [3:56](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:36:45
+01. The Artificial North
+02. The Forever Born
+03. Prophet
+04. Each Death More Hollow(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:30:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0BE579C74FA904A4E34FC8CFC94C19BFAA04C9A6
+magnet:?xt=urn:btih:0FBBC2F27CE693C589CF43E89B58607826AFA0CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +56,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782602   (69968) от 01.03.2025
+###  Публикация: 1774977   (71511) от 24.01.2025
 
-(hed) Planet Earth - Best of Unauthorized (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rapcore, Nu Metal, Hardcore>
+Spiritual Deception - Semitae Mentis (2024) [FLAC|Lossless|image + .cue] <Technical Death Metal>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69968.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71511.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Raise Hell
-02 – Wake Up
-03 – Bartender
-04 – Killing Time(   Читать дальше...   )Жанр: Rapcore, Nu Metal, HardcoreПродолжительность: 00:39:05
+01. The I Swells... (Decadence Pt. I)
+02. Atavic Future (Decadence Pt. II)
+03. The Days Of Sleep (Decadence Pt. III)
+04. Beyond Perception And Matter(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:42:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E299ED8E983FE0A16EEF7D9E69700673F60239E2
+magnet:?xt=urn:btih:AA4149A2A7975FA08245D44C9451BBB2EFB5BA0D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,338 +85,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782447   (69967) от 01.03.2025
+###  Публикация: 1774982   (71510) от 24.01.2025
 
-Untimely Demise - Studio Albums (6 releases) (2009-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Untimely Demise - канадская метал-группа из Саскатуна, Саскачеван.2009 - Full Speed Metal (EP)
-2010 - City Of Steel
-2013 - Systematic Eradication
-2016 - Black WidowЖанр: Thrash MetalПродолжительность: 03:19:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CEF3EEEC755143695A0687DFE87B2F8B96A4D24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782575   (69966) от 01.03.2025
-
-George Cables - I Hear Echoes (2024) HighNote Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69966.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Echo of a Scream [6:13]
-02. Echoes [6:01]
-03. So Near So Far [5:17]
-04. Morning Song [6:05](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:05:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7445DA4CA7022FA46E6CFD963538C92B2B619AB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782682   (69965) от 01.03.2025
-
-Addicted CH - Time Is Endless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Time Is Endless (01:22)
- 02 - Karma (05:19)
- 03 - Unlighten Sky (05:18)
- 04 - The Sin (04:38)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:52:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B670CBF85E18032C45B5C54F1308ECF04061114
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782627   (69964) от 01.03.2025
-
-Тест-драйв Renault Arkana 2021 года — Минтранс (01.03.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>За рулем
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69964.jpg" />
-</div>
-
-
-###  Подробнее
-
-🔸 Юридические нюансы. Что будет, если не остановиться по требованию инспектора ДПС?
-🔸 «Француз» с пробегом. Тест-драйв Renault Arkana 2021 года!
-🔸 О договоре купли-продажи. Чем опасна сделка, когда продавец не хочет указывать полную стоимость авто в договоре?
-🔸 Лучший друг пустого бака. Почему у канистры - три ручки и характерный горб?(   Читать дальше...   )Телекомпания: РЕН-TVЖанр: ТелепередачаПродолжительность: 00:48:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6931A0EAF8C47D648F50E68F349C36E92F23654
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782591   (69963) от 01.03.2025
-
-Elderbrook - Another Touch (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Deep House, Progressive House>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69963.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Part Of You
-02 – Shallow Water
-03 – Afters
-04 – Sunshine(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E2255D5DB8066F9CAED9D53978DD4E10B53374A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782529   (69962) от 01.03.2025
-
-Пятеро на одного (01.03.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69962.jpg" />
-</div>
-
-
-###  Подробнее
-
-Команда из пяти звёздных участников отвечает на вопросы телезрителей. У команды всего четыре минуты на поиск ответа. Если звезды не смогут ответить правильно, телезритель, приславший вопрос, выиграет 20 000 рублей! Если вы готовы посоревноваться в эрудиции сразу с пятью звездными участниками, отправляйте свои вопросы, заполнив анкету. Вопрос можно задать любой: от (   Читать дальше...   )Телекомпания: СМОТРИМЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:39:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B4410A70A3FCB2B36913B701345F38754946420
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782645   (69961) от 01.03.2025
-
-Своя игра (01.03.2025) WEBRip [H.264/1080p]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69961.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Ольга Успанова, Алексей Архипов, Айк КазазянЯзык озвучки: РусскийСубтитры: РусскиеПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4917A6E640C4EF4E3AEED2066FC6489DBD2F0C9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782606   (69960) от 01.03.2025
-
-Rick Springfield - Big Hits: Rick Springfield's Greatest Hits, Vol. 2 (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Rock, Pop Rock, Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69960.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – I’ll Make You Happy
-02 – What’s Victoria’s Secret
-03 – The Man T
-04 – Wide Awake(   Читать дальше...   )Жанр: Melodic Rock, Pop Rock, RockПродолжительность: 01:18:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFC9E8B3260D03127C4C56DA1A51916108980D03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782599   (69959) от 01.03.2025
-
-Max Cooper - On Being (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Ambient, Techno, IDM,Jungle, Leftfield, Experimental>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – On Being
-02 – Peace Exists Here
-03 – I Am In A Church In Gravesend Listening To Old Vinyl And Drinking Coffee
-04 – A Sense Of Getting Closer(   Читать дальше...   )Жанр: Ambient, Techno, IDM,Jungle, Leftfield, ExperimentalПродолжительность: 01:15:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B779F28C77B86E8FA4C4F61A4EF41620DBC79E4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782743   (69958) от 02.03.2025
-
-Журнал | Военно-исторический журнал №3 (779) (март 2025) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69958.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Военно-исторический журнал» Министерства обороны Российской Федерации освещает актуальные проблемы отечественной и зарубежной военной истории; военную политику Российского государства на всех этапах его становления и развития; проблемы военного строительства; исторический опыт обеспечения национальной безопасности; историю развития военной науки и техники; деятельность (   Читать дальше...   )Жанр: Военно-исторический журналИздательство: Редакционно-издательский центр МО РФФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95764BEC54C997204FC3F59B35EFFC65A5D13EB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782453   (69957) от 02.03.2025
-
-Маргарита Адясова - Баллады о доблести (2025) [MP3|320 Kbps] <Эстрада, Военная песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Защитники Отечества [00:03:11]
-02 - Баллада о доблести [00:03:36]
-03 - Выход [00:02:26]
-04 - Дом родной [00:02:34](   Читать дальше...   )Жанр: Эстрада/Военная песняПродолжительность: 00:35:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:71DC41E29C7D072B6B3D8B197D3F1E45C818CAA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782642   (69956) от 02.03.2025
-
-VA - Trance Top 100, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
+VA - Ori Uplift - Uplifting Only Episode 624 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
->>Trance
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71510.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Rene Ablaze - Red Sea 2030 (Original Mix) [6:53]
-002. Christopher Corrigan - Delectation (Original Mix) [3:28]
-003. Carl Daylim feat. T'eira - Hand In Hand (Original Mix) [3:20]
-004. Daniel Cesana - Phoenix (Original Mix) [3:32](   Читать дальше...   )Жанр: TranceПродолжительность: 06:17:44
+01. REX.W – We Are All Stars (Intro Mix)
+02. Jericho Frequency feat. Emma Chatt – Do You See Me?
+03. Illitheas – Echoes in the Dark (Fan Favorite (616))
+04. Factor B – The Girl With Her Head In The Clouds (Ellie’s Song)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:06:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7AFBF255B138CAB04525451A061078F4C227FEE8
+magnet:?xt=urn:btih:97E065D18BBB5F7C7BCE998E8710C33E38AF3CA0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -421,25 +114,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782845   (69955) от 02.03.2025
+###  Публикация: 1775053   (71509) от 24.01.2025
 
-С.В. Журавлев,  Ю. Гронов | Мода по плану: история моды и моделирования одежды в СССР, 1917—1991 (2013) [PDF]
+Avatarium - Between You, God, The Devil and The Dead (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Doom Metal, Heavy Rock, Female Vocal>
 
->>Разное (категория книг)
->>На досуге
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69955.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71509.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Совместная работа российского историка Сергея Журавлева и финского социолога Юкки Гронова — первое систематическое исследование истории моды и моделирования одежды в Советском Союзе. Опираясь на обширную литературу и широкий круг источников, часть из которых впервые вводится в научный оборот, авторы дают оценку становлению и развитию ведомственных систем моделирования (   Читать дальше...   )Жанр: История модыИздательство: Институт российской историиФормат: PDFКачество: OCR
+01 - Long Black Waves (06:10)
+ 02 - I See You Better in the Dark (03:43)
+ 03 - My Hair Is on Fire (But I'll Take Your Hand) (05:30)
+ 04 - Lovers Give a Kingdom to Each Other (05:02)(   Читать дальше...   )Жанр: Doom Metal, Heavy Rock, Female VocalПродолжительность: 00:42:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A9884A62EB72258788A588246774E25B426B4B03
+magnet:?xt=urn:btih:25DCF0C090D071D0B4A245E333CA970540315E59
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,28 +143,137 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782805   (69954) от 02.03.2025
+###  Публикация: 1775187   (71508) от 25.01.2025
 
-VA - One Shot '80 Volume 4 (1999) [OGG Vorbis|480 Kbps] <Pop, Dance-pop, Euro-Disco, Europop>
+Живая еда с Сергеем Малозёмовым (25.01.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71508.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние напитки: чем согреться на морозе? Имбирный чай, кофе и глинтвейн: что сработает лучше? В чем опасность алкоголя на улице, сколько сахара в напитках из кафе на вынос и чем опасны модные шоколадные бомбочки?
+ Удивительная польза пастернака: почему из него делают продукты для спортсменов, как распознать подделку и что о пастернаке-овоще думал Пастернак-писатель? (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10B1AA1F83064AF7E03851F14628DBA8D5A09E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775158   (71505) от 25.01.2025
+
+Журнал | Дачный спец №1 (январь 2025) [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71505.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Дачный спец» — журнал для всех, чья жизнь так или иначе связана с работой и отдыхом на земле. Независимо от уровня знаний в дачных делах, любой человек найдет в журнале именно то, что ему нужно: мнения и обзоры от известных в своей области специалистов, советы опытных дачников и садоводов, планировочные решения и мастер-классы от профессиональных дизайнеров, проверенные (   Читать дальше...   )Жанр: СадоводствоИздательство: ООО "Издательская группа "КАРДОС"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B105FC95C6B175B720AC98A366DD58433DCBA37
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775153   (71504) от 25.01.2025
+
+Armik - Gitano Amor (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Flamenco, Instrumental, Guitar>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gitano Amor (04:18)
+02 - Tears In Paradise (04:56)
+03 - Libertad (04:00)
+04 - Intro To Donatella (03:05)(   Читать дальше...   )Жанр: Flamenco, Instrumental, GuitarПродолжительность: 00:43:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970E21E93F079F7BAFF43889B8D3F4362CC9EE03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775245   (71503) от 25.01.2025
+
+Светлана Павлова | Голод (2024) [MP3, Лиза Янковская]
+
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ироничная и пронзительная исповедь нового поколения о поиске любви к себе. Когда давит усталость от мегаполиса, одиночества и культуры достигаторства. Когда поискам любви, дружбы и понятного, осмысленного занятия мешает рабская зависимость от сервисов и личного комфорта.
+Лене тридцать. Внешне у неё понятная сложившаяся жизнь: карьера в креативном агентстве, ипотека, (   Читать дальше...   )Жанр: психологические романы, современные любовные романы, социальная прозаИздательство: ВимбоПродолжительность: 05:17:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0539B232A47E7895AFE35C8340FF3191AD59DB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775214   (71502) от 25.01.2025
+
+VA - Dance Classics Gold 3 (1992) 2 CD [MP3|320 Kbps] <Electronic,  Hip Hop, Funk, Disco>
 
 >>Pop
 >>Зарубежная поп-музыка
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69954.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71502.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Falco - Der Kommissar
-02. A-Ha - Take On Me
-03. Captain Sensible - Wot!
-04. Orchestral Manoeuvres In The Dark - Enola Gay(   Читать дальше...   )Жанр: Pop, Dance-pop, Euro-Disco, EuropopПродолжительность: 01:15:08
+01. Donna Summer - Last Dance
+02. The Jacksons - Can You Feel It
+03. Kool & The Gang - Get Down On It
+04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:21:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:60BB5E0BD52926E99C0CC25C710B12A44B421DF0
+magnet:?xt=urn:btih:7D2D756BE1B6395912DAE29C2948A3ED5B63AA41
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,54 +281,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782687   (69953) от 02.03.2025
+###  Публикация: 1775162   (71501) от 25.01.2025
 
-Garmin: City Navigator Thailand NT 2024.40 Globetech (Dual) [En/Th]
-
->>Программы, Игры и прочее
->>Карты для навигационного ПО
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Карта Таиланда для навигаторов GarminТип издания: разблокированоРелиз состоялся: июль 2024Разработчик: Garmin / GlobetechПоддерживаемая ОС: GarminЯзык интерфейса: Английский, Тайский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E4480A4CF56B755BF2F716ED7B542DEBBA32306
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782678   (69952) от 02.03.2025
-
-Bon Jovi - Slippery When Wet (1986) Deluxe Edition, 2025, Bon Jovi Profit Split [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop, Hard Rock>
+Wardruna - Birna (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Nordic folk, ambient, dark folk>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69952.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71501.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 – Let It Rock
-02 – You Give Love A Bad Name
-03 – Livin’ On A Prayer
-04 – Social Disease(   Читать дальше...   )Жанр: Pop, Hard RockПродолжительность: 01:31:43
+01. Hertan (6:13)
+02. Birna (6:25)
+03. Ljos til Jord (5:01)
+04. Dvaledraumar (15:25)(   Читать дальше...   )Жанр: Nordic folk, ambient, dark folkПродолжительность: 01:06:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D742DAB4A241F2721A16D86444386DB693960E25
+magnet:?xt=urn:btih:3503A348BC3DDDE1BF92C6283562CAEB0626D02D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -531,28 +310,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782755   (69951) от 02.03.2025
+###  Публикация: 1774916   (71500) от 25.01.2025
 
-David Lee Roth - The Warner Recordings 1985–1994 (2025) 5xCD, Reissue, Compilation, Limited Edition, Remastered, 2025, Warner Records [FLAC|Lossless|image + .cue] <Hard Rock>
+Алла Иошпе и Стахан Рахимов - Вчера и сегодня (2008) [MP3|320 Kbps] <Ретро, Эстрада>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Шансон, Авторская и Военная песня
+>>Авторская и Военная песня
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69951.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71500.jpg" />
 </div>
 
 
 ###  Подробнее
 
-The Limited Edition 5-CD Box Set! THE WARNER RECORDINGS 1985-1994 годов, вышедший на лейбле Rhino 21 февраля, впервые включает в себя первые пять сольных релизов, записанных членом Rock and Roll Hall of Fame и ведущим вокалистом Van Halen в одном обширном сборнике. 40 лет назад, 28 января 1985 года, David Lee Roth официально дебютировал как сольный исполнитель с (   Читать дальше...   )CD1 - Crazy From The Heat:
-1. Easy Street (2025 Remaster) (3:49)
-2. Just a Gigolo / I Ain't Got Nobody (2025 Remaster) (4:48)
-3. California Girls (2025 Remaster) (2:51)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 03:16:24
+01. Листая старые альбомы [00:07:10]
+02. Говорят [00:03:07]
+03. Дорогая моя, дорогой [00:03:42]
+04. Гости на дачу [00:03:44](   Читать дальше...   )Жанр: Ретро / ЭстрадаФормат: MP3 (tracks)Продолжительность: 01:02:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6C964F996B3CA7AB5C870888684B13EFC3051896
+magnet:?xt=urn:btih:104C2DC514F50F9A191BCBB19E2EA4C65CA4888A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -560,25 +339,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782824   (69950) от 02.03.2025
+###  Публикация: 1775195   (71499) от 25.01.2025
 
-Photo Lab PRO v3.13.50 Mod by Mixroot [Ru/Multi]
+VA - To My Valentine: Romantic Lounge Tunes (2025) [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Downtempo>
 
->>Программы, Игры и прочее
->>ПО для Android
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69950.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71499.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Photo Lab PRO - супер-лаборатория фотоприколов у вас в кармане. Встречайте PRO-версию приложения Photo Lab! Неограниченные возможности для создания фотоэффектов, анимированных фотокарикатур, аватарок, виртуальных открыток, заставок на телефон, фотомонтажей и фотоприколов!Тип издания: ProРелиз состоялся: 28.02.2025Разработчик: Linerock Investments LTDПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+• 01. Thomas Dür - Black Ice (3:37)
+• 02. Dustin Lefholz - Sun on My Skin (4:21)
+• 03. Neotropica, Alexander Rischer - Orchidaceae (4:44)
+• 04. Marebo - Chillin' on Tuesday (4:33)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:27:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F6694449B7F7D6D97A3A2CB2FA83EC78F49781E3
+magnet:?xt=urn:btih:F296C7A40FF696B3B9973AF3B8F3F00D0ED8705F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -586,25 +368,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782737   (69949) от 02.03.2025
+###  Публикация: 1775170   (71498) от 25.01.2025
 
-Шрифты - Font Bundles - Royale Couture - Essential Font Trio - 5124038 [OTF]
+Журнал | Добрые советы. Люблю готовить! №2 (февраль 2025) [PDF]
 
->>Материалы для мультимедиа и дизайна
->>Шрифты
+>>Журналы
+>>Кулинарные журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69949.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71498.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Royale Couture — это незаменимая коллекция шрифтов, которая объединяет три шрифта, включая жирный serif, классический sans и стильный script. Это трио шрифтов также поддерживает многоязычность, цифры и символы. Благодаря универсальному стилю вы можете использовать этот шрифт для любых целей, таких как логотип, брендинг, свадебные приглашения и цитаты. Самое приятное, (   Читать дальше...   )Формат: OTF
+Журнал о вкусной еде, не похожий на другие кулинарные издания. Все опубликованные в нем рецепты присланы в редакцию самими читателями. Каждый рецепт прошел конкурсный отбор, а его автор получил денежный приз. Ежемесячно на страницах журнала — более 50 коронных блюд, которые многократно проверены опытными хозяйками и которые можно смело брать в свою коллекцию рецептов (   Читать дальше...   )Жанр: КулинарияИздательство: АО "Бренд Комьюнити Медиа"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:328A3ED83BA56960EC9C626BBB93643AAAB4849E
+magnet:?xt=urn:btih:2840CAC3B45476FC37485AE4F16E1FC0462AED15
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,26 +394,82 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782567   (69948) от 02.03.2025
+###  Публикация: 1775185   (71497) от 25.01.2025
 
-TikTok Private Plus (PayBack Edition) v38.9.5 Mod by TikTok + Plugin Update [Ru/Multi]
+VA - Deep-House Hunters, Vol. 4 (2025) [MP3|320 Kbps] <House, Deep House, Dance, Club>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71497.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stereolunga - Saxo (Radio Edit) (02:41)
+02. TOM ONE - Deeper & Deeper (03:15)
+03. VS Prjct - Hey Girl (05:07)
+04. Squib - Potzblitz (Radio Edit) (03:03)(   Читать дальше...   )Жанр: House, Deep House, Dance, ClubПродолжительность: 02:09:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A1C614EDF5FF8BBD8F7742E5ED9EABD26B49DF0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775114   (71496) от 25.01.2025
+
+Виктория Чердакова | Как продать себя дорого (2020) [MP3, Андрей Рылеев]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71496.jpg" />
+</div>
+
+
+###  Подробнее
+
+В шестой совместной книге известного специалиста в области психологии M.E. Литвака и В.Б. Чердаковой, специалиста по подбору и управлению кадрами, авторы развивают главную идею, высказанную М. Литваком в более ранних книгах: относиться к поиску работы надо как к игре и необходимо приобрести навык поиска работы, а не «устраиваться» на нее. Принято считать, что поиск (   Читать дальше...   )Жанр: ПсихологияИздательство: Аудиокнига своими рукамиПродолжительность: 04:21:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4DED8CA174F9597994962105C8B1CFE0BA74971
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775157   (71495) от 25.01.2025
+
+Telegram Desktop 5.10.5 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69948.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом Моде можно выкладывать видео для РФ.
-TikTok - социальное приложение для тех кто предпочитает визуальный контакт, более оригинальный контент, творчество и всё прочее, чего зачастую не хватает в стандартных проектах для общения между людьми. Здесь делается упор на ролики и трансляции. Набор инструментов поможет отредактировать и подправить исходный материал, (   Читать дальше...   )Тип издания: ModРелиз состоялся: 28.02.2025Разработчик: TikTok Pte. Ltd.Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+Telegram Messenger - простой и бесплатный кроссплатформенный мессенджер с акцентом на скорость и безопасность обмена сообщениями.
+Вы можете использовать приложение на всех ваших устройствах одновременно — все ваши сообщения будут автоматически синхронизироваться между вашими смартфонами, планшетами и компьютерами.
+С помощью Telegram вы можете отправлять сообщения, (   Читать дальше...   )Язык интерфейса: Русский, английский, Multi
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7BB39613E932BB080E7D1B2CA27DDA58F7131291
+magnet:?xt=urn:btih:7955C192B21189F27DD640A9A5436DD09222A490
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -639,28 +477,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782789   (69947) от 02.03.2025
+###  Публикация: 1775183   (71494) от 25.01.2025
 
-Linkin Park - From Zero: A Cappellas + Instrumentals (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
+В.С. Шипачев | Задачник по высшей математике (1998) [DJVU]
+
+>>Научная и техническая литература
+>>Учебники
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пособие написано в соответствии с программой по высшей математике для вузов. Содержит задачи и примеры по следующим важнейшим разделам: теория пределов, аналитическая геометрия на плоскости и в пространстве, дифференциальное и интегральное исчисления функций одной и нескольких переменных, высшая алгебра, ряды и дифференциальные уравнения. Приведены основные теоретические (   Читать дальше...   )Жанр: МатематикаИздательство: Высшая школаФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6815DB72FE8316F1C340FEEBA3AD16D81E7FBB82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775104   (71493) от 25.01.2025
+
+VA - Dance Classics Gold 2 (1991) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71493.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kool & The Gang - Celebration
+02. Gloria Gaynor - Never Can Say Goodbye
+03. The Four Tops - Don't Walk Away
+04. The Trammps - The Night The Lights Went Out(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:17:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0DE7B8D4BA03ADD2A77248D5530F706F5EE93E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775250   (71492) от 25.01.2025
+
+Holly Cole - Dark Moon (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Vocal Jazz>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69947.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. From Zero (Intro) (A Cappella) [00:00:22]
-02. The Emptiness Machine (A Cappella) [00:03:05]
-03. Cut the Bridge (A Cappella) [00:03:21]
-04. Heavy Is the Crown (A Cappella) [00:02:18](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 01:01:01
+01.  Steppin' Out With My Baby (2:41)
+02.  Where Flamingoes Fly (3:47)
+03.  Moon River (3:29)
+04.  No Moon At All (2:18)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:40:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3C77E98007BAD0E4195343E0C765CE2B3AE13628
+magnet:?xt=urn:btih:474AAEBB1A660139B700BB620D8A09539E7E3394
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -668,28 +561,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782790   (69946) от 02.03.2025
+###  Публикация: 1775266   (71491) от 25.01.2025
 
-VA - Compilation part 145 Electronic (2025) [MP3|320 Kbps] <Electronic>
+Wildness - Avenger (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69946.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. A-Sultan & Enigma - I Am Asking Why
-02. Adik - Traverce
-03. Jumanov - Remember Me
-04. Umar Keyn & Davvi & Dndm - Tell Me How(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:55:52
+01.  Wings of Fire (3:13)
+02.  Crucified (4:24)
+03.  Broken Heart (3:26)
+04.  Caught up in a Moment (4:14)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:90775C1379BACA229B15FCAD33AFEA175B090490
+magnet:?xt=urn:btih:38ECAD2B5744AE6192AC6CAB27F1E05017C99C11
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -697,25 +590,141 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1782785   (69945) от 02.03.2025
+###  Публикация: 1775105   (71490) от 25.01.2025
 
-Последний дом слева / The Last House on the Left (2009) BDRip [H.264/720p] [Режиссёрская версия]
+VA - Dance Classics Gold 2 (1991) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69945.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мама, папа и дочь отправляются в загородный дом, чтобы приятно провести выходные дни. Недалеко от этого дома находится городок, где живёт её лучшая подруга. Девушки встречаются и знакомятся со странным парнем, у которого есть травка. Компания приходит в отель и готовится оттянуться по-взрослому, но в самый неподходящий момент появляются беглые преступники, которые (   Читать дальше...   )Производство: США / Rogue Pictures, Scion Films, Crystal Lake EntertainmentЖанр: ужасы, триллерРежиссер: Дэннис ИлиадисАктеры: Тони Голдуин, Моника Поттер, Гаррет Диллахант, Аарон Пол, Спенсер Трит Кларк, Рики Линдхоум, Марта МакАйсак, Сара Пэкстон, Майкл Боуэн, Джошуа Кокс, Уша КханПеревод: дублированный (Пифагор), авторский (AVO Юрий Немахов; Михаил Яроцкий)Язык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:53:37
+01. Kool & The Gang - Celebration
+02. Gloria Gaynor - Never Can Say Goodbye
+03. The Four Tops - Don't Walk Away
+04. The Trammps - The Night The Lights Went Out(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 02:17:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3B867AB919BAB0B4085463FA531F7189E3352E36
+magnet:?xt=urn:btih:42616DFA38CE1BA1A41885CD7EF39BDEEAEDA959
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775220   (71489) от 25.01.2025
+
+VA - Dance Classics Gold 3 (1992) [AAC|320 Kbps] <Electronic, Hip Hop, Funk, Disco>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Summer - Last Dance
+02. The Jacksons - Can You Feel It
+03. Kool & The Gang - Get Down On It
+04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic, Hip Hop, Funk, DiscoПродолжительность: 02:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E481A51F6E88BD5274986FCF8D1B56099130E1AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775141   (71488) от 25.01.2025
+
+Газета | Мир Новостей №1(1619) (1 января 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71488.jpg" />
+</div>
+
+
+###  Подробнее
+
+В газете можно найти материалы практически на любую тему: о политике и экономике, о здоровье и садоводстве, о науке и о мире таинственного, непознанного. Советы врачей, психологов, экспертов по судебным делам, стилистов, косметологов, народных целителей - вот далеко не полный перечень того, что можно видеть на страницах "Мира новостей", тираж которого неизменно (   Читать дальше...   )Жанр: Популярное изданиеИздательство: ООО "Редакция газеты "Мир новостей"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015BA4CA1606318CF2CEB48060A8B95A6AB3CFB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775217   (71487) от 25.01.2025
+
+VA - Dance Classics Gold 3 (1992) 2 CD [OGG Vorbis|480 Kbps] <Electronic,  Hip Hop, Funk, Disco>
+
+>>Pop
+>>Зарубежная поп-музыка
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Donna Summer - Last Dance
+02. The Jacksons - Can You Feel It
+03. Kool & The Gang - Get Down On It
+04. Earth Wind & Fire - Let's Groove(   Читать дальше...   )Жанр: Electronic,  Hip Hop, Funk, DiscoПродолжительность: 02:21:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A00B67CCDB3F2158E505D9F3030239808674061
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1775192   (71486) от 25.01.2025
+
+De/Vision - Devolution (2003) 2CD [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drifting Sideways (T.O.Y.toburger Wald Mix)
+02. Digital Dream (Mesh Classic Cupboard Cut)
+03. Sadness (The Sad Death Of Mix)
+04. The Day's Not Done (Telekommander Mix)Жанр: SynthpopПродолжительность: 01:10:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1F1EE829BA2E68CA1C9237EDE9172863AB711AA
 ```
 
 https://mybot314.ru/tekegram_catalog/

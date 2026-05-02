@@ -1,3 +1,119 @@
+###  Публикация: 1392183   (769378) от 25.06.2020
+
+Дискорд - Всегда с тобой! (2019) [MP3|320 Kbps] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769378.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Всегда с тобой (03:23)
+ 02. Гори-гори (03:41)
+ 03. Сто тактов (03:19)
+ 04. Мой Город (03:18)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAD354E683AC8E3E6523F2DC2AF7B6D471967439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392551   (769197) от 26.06.2020
+
+Глеб Самойлоff & The Matrixx - Концерт с симфоническим оркестром "Globalis" 14.11.2019 (2020) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769197.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Увертюра
+2. Два корабля
+3. Москва-река
+4. Космос(   Читать дальше...   )Жанр: AlternativeПродолжительность: 01:33:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:809190DBC0AF59F7A16A85DE891E8605D0A3272A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392669   (769182) от 26.06.2020
+
+Сектор Газовой Атаки - Марафон (2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769182.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выбыть первым
+2. Марафон
+3. Сын маминой подруги
+4. Главное в жизни(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:36:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06DAF9F684FDA0978A7183A42A5A1F60F9B3A457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1392794   (769101) от 27.06.2020
+
+Markscheider Kunst - FREEDOM (2020) [MP3|320 Kbps] <Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_769101.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Колыбельная
+2. FREEDOM
+3. Сила Урала
+4. Весна(   Читать дальше...   )Жанр: SkaПродолжительность: 00:40:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04071B4074DFCC20B885C9AEB2AA0F88D2612E0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1392761   (769099) от 27.06.2020
 
 Разные Люди - Квартирник у Маргулиса (Live НТВ, Москва, 25.04.2018) (2018) [MP3|320 Kbps] <Rock>
@@ -628,122 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B9CFB919ED8E9EDB8852BA70320AC8023DFBF5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1280123   (763523) от 01.02.2019
-
-Разные Люди - 25 лет 25 хитов (2015) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763523.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. SuperБизоны
-2. 911
-3. Ворон
-4. Бесы(   Читать дальше...   )Жанр: RockПродолжительность: 01:46:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46F1DFD3375D5FD7E5389151564BC53100D0BD03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017061   (763031) от 16.05.2016
-
-Морэ & Рэльсы - Медленно стекать в море (2016) [MP3|320 кб/с] <Indie Rock, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Простой
-02. 1999
-03. Азия
-04. Питер(   Читать дальше...   )Жанр: Indie Rock, AlternativeПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02C79E08E6B38256A6F4ABEA7282802341F61A7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214735   (762998) от 23.03.2018
-
-Хитобои (Волга-Волга) - Не оригинальные - 2 (2018) [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вите надо выпить
-02. Земля в иллюминаторе
-03. Мало половин
-04. Имена(   Читать дальше...   )Жанр: Rock, SkaПродолжительность: 00:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3ACFE9173AA18A1034A7DC013BE97F430BB0638
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017164   (762946) от 16.05.2016
-
-Shexna - Вы Завийте, Витерочики... (2016) [MP3|320 кб/с] <Doom Metal, Folk Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_762946.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вы Завийте, Витерочики...
-2. Пташечка
-3. А И Повою-Ка Я
-4. Волга(   Читать дальше...   )Жанр: Doom Metal, Folk MetalПродолжительность: 00:54:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:581E2B0AE87414CF0878AD58035EA236722E4852
 ```
 
 https://mybot314.ru/tekegram_catalog/

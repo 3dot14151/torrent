@@ -1,3 +1,32 @@
+###  Публикация: 985003   (936649) от 10.02.2016
+
+Ночные снайперы - Выживут только влюбленные (2016) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936649.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. шагай (3:22)
+02. наотмашь (3:51)
+03. этонемне (4:16)
+04. помолчим (4:42)(   Читать дальше...   )Жанр: РокПродолжительность: 00:56:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70741AC666FB257777B544911FF418EB43BBBCA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364551   (936299) от 03.03.2020
 
 Gorky Park - The Best (2013) VG Music, 2017 [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89D3C978A4EB5F6E4C9AA3B424BE3D40A5E64814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988955   (916889) от 22.02.2016
-
-DDT - Метель Августа (2000) [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_916889.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бродяга (4:19)
-02. Питер (5:38)
-03. Летели облака (4:24)
-04. Московская барыня (3:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38FFD73C535E1F3C611CC0C115F16BFA43B9AF01
 ```
 
 https://mybot314.ru/tekegram_catalog/

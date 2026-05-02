@@ -1,3 +1,177 @@
+###  Публикация: 1788334   (68598) от 29.03.2025
+
+Ariana Grande - eternal sunshine deluxe: brighter days ahead (2024) brighter days ahead, 2025, Ariana Grande LP6 [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary R&B, Dance-pop, Downtempo,  ...
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. intro (end of the world) [00:01:32]
+02. bye [00:02:44]
+03. don't wanna break up again [00:02:54]
+04. Saturn Returns Interlude [00:00:42](   Читать дальше...   )Жанр: Contemporary R&B, Dance-pop, Downtempo, Trap, VocalПродолжительность: 00:55:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9EA5CB44C675E8C8D25BC76E06A71D18EAF3FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788267   (68595) от 29.03.2025
+
+Sebastian Bach - Kicking & Screaming (2011) [FLAC|24/96|image + .cue|Vinyl-Rip] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kicking & Screaming
+02. My Own Worst Enemy
+03. Tunnelvision
+04. Dance On Your Grave(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:997305471A5AE30EF150B4697C7C8AF8E76C561F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788215   (68581) от 29.03.2025
+
+Mechina - Bellum Interruptum (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Atmospheric, Industrial, Symphonic, Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68581.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. Cruelty Is the Point [00:05:23]
+00. The Plague Pit [00:05:20]
+00. The Wasteful Energy of Words [00:06:17]
+00. Bellum Interruptum [00:10:12](   Читать дальше...   )Жанр: Atmospheric, Industrial, Symphonic, Death MetalПродолжительность: 00:56:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB351C25706FC20139CC4C03321744A38D23C4E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788333   (68579) от 29.03.2025
+
+Maya Delilah - The Long Way Round (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68579.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begin Again [00:03:58]
+02. Look At The State Of Me Now [00:03:18]
+03. Man Of The House [00:03:38]
+04. Maya, Maya, Maya [00:02:59](   Читать дальше...   )Жанр: Alternative & Indie RockПродолжительность: 00:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BEB1CB3FFF76013C5320FBF77FD3B351E4021FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788293   (68574) от 29.03.2025
+
+Nightwish - Century Child (2002) Released, 2015, Spinefarm Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68574.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bless the Child
+02. End of All Hope
+03. Dead to the World
+04. Ever Dream(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:10:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD31883508A9DBDE2F31EA8BA8AD110031E65DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1788246   (68561) от 29.03.2025
+
+Occult - 1992-1993 (2016) (Compilation) [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal, Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68561.jpg" />
+</div>
+
+
+###  Подробнее
+
+Studio Demo 1993
+A1 - Intro
+A2 - Leader In War
+A3 - Almighty Horde(   Читать дальше...   )Жанр: Death Metal, Black Metal, Thrash MetalПродолжительность: 00:44:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC02E8C804E3F74393D12EE84A6F8DC83C17676
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1788314   (68560) от 29.03.2025
 
 Einherjer - Norrøn (2011) [FLAC|24/192|image + .cue|Vinyl-Rip] <Viking Metal>
@@ -571,180 +745,6 @@ Mumford & Sons - Rushmere (2025) [FLAC 16,24/44,1,96|Lossless|WEB-DL|tracks] <Fo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:75AD847C6CAFC2EFEFD27BC4546653266F230C35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788550   (68509) от 30.03.2025
-
-Nothing More - CARNAL (Deluxe) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  | CARNAL | (1:16)
-02.  Eric Vanlerberghe - HOUSE ON SAND (feat. Eric V. of I Prevail) (4:23)
-03.  IF IT DOESN'T HURT (2:59)
-04.  David Draiman - ANGEL SONG (feat. David Draiman) (3:07)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CA6E0CBDE8ED7D9DC7B29D3B7D297C025FDD8E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788544   (68508) от 30.03.2025
-
-Nomy - Saviour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Saviour (3:43)
-02.  House of Diane (4:22)
-03.  Scream (3:23)
-04.  A Lifetime in Pain (3:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:18:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D7EC94C270C2E6BE7E12E13B14FFE1FF1DECFB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788743   (68486) от 31.03.2025
-
-Nightwish - End Of An Era (2006) Live, Reissue, 2018, Nuclear Blast [FLAC|24/192|image + .cue|Vinyl-Rip] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68486.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Dark Chest Of Wonders
-A2 Planet Hell
-A3 Ever Dream
-B1 The Kinslayer(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:42:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08F8B6743C6C11C390A0036D9A4B4E5AA77B6414
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788675   (68482) от 31.03.2025
-
-Humpe Humpe - Humpe Humpe (1985) 40th Anniversary Edition, Remaster, 2025, Warner Music Central Europe [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68482.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - 3 of Us (00:03:38)
-02 - Happiness is Hard to Take (00:03:55)
-03 - Memories (00:04:59)
-04 - Can't Leave the Pool (00:03:41)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:05:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6312D5BA35FBFE0A40C6CF0A3ECCEA53A38BE599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788697   (68469) от 31.03.2025
-
-Occult - Prepare to Meet Thy Doom (1994) Released, 2016, Cosmic Key Creations [FLAC|24/192|image + .cue|Vinyl-Rip] <Death, Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68469.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Leader In War
-A2 The Black Are Rising
-A3 After Triumph
-A4 Prepare To Meet The Doom(   Читать дальше...   )Жанр: Death, Thrash MetalПродолжительность: 00:52:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5D62BBC21F8779906E8073D69F5F59529969650
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788532   (68467) от 31.03.2025
-
-Einherjer - Av oss, for oss (2014) [FLAC|24/192|image + .cue|Vinyl-Rip] <Viking Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68467.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Fremad
-A2 Hammer I Kors
-A3 Nidstong
-A4 Hedensk Oppstandelse(   Читать дальше...   )Жанр: Viking MetalПродолжительность: 00:44:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5146F09E380BA7E8E9D48897416326D0FF9D7C2
 ```
 
 https://mybot314.ru/tekegram_catalog/

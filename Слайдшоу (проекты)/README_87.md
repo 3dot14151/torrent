@@ -1,3 +1,29 @@
+###  Публикация: 1333795   (300791) от 26.10.2019
+
+VideoHive - Epic Slideshow - 19923185 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300791.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Epic Slideshow" - это элегантный шаблон для фотографий или видео, где уникальные частицы создают особую романтическую фэнтезийную атмосферу с эффектом "золотой" россыпи. Вы можете использовать проект  для кинематографического вступления, веб-промо, церемоний награждения, свадеб, юбилеев, модного портфолио или любого слайд-шоу.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DD948B3707073871900D984E50B2B4A6B63E22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1078616   (299686) от 01.12.2016
 
 Проекты - VideoHive - Minimal Slides [AEP]
@@ -657,33 +683,6 @@ VideoHive - Golden Waves Luxury Slideshow - 23259551 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A0579083157C6AA2F6A8F5A89ECF86832390F3C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962527   (292643) от 05.12.2015
-
-Проекты - Motion Array - Triangles Photo SlideShow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292643.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайдшоу.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ABADB227416255A6AF1E23EC2B67E06F5654633
 ```
 
 https://mybot314.ru/tekegram_catalog/

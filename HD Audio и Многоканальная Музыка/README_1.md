@@ -1,3 +1,148 @@
+###  Публикация: 1855693   (1058190) от 24.02.2026
+
+Ghosts of Jupiter - Studio Albums (4 releases) (2011-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog Rock, Psychedelic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058190.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ghosts of Jupiter - американская рок-группа из г. Бостон, основана в 2011 году.2011 - Ghosts Of Jupiter
+2013 - Green Is Gold, Vol. 1 (EP)
+2016 - The Great Bright Horses
+2021 - Keepers Of The Newborn GreenЖанр: Prog Rock, Psychedelic RockПродолжительность: 02:35:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC4FD603AFAE51818144FBC1893654D5E4F358E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1855117   (1057984) от 22.02.2026
+
+Handel, The Academy Of St. Martin-in-the-Fields - Concerto (1979) cond. Neville Marriner [FLAC 2.0|48/24|image +.cue|MC-Rip] <Classical, Baroque, Orchestra>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057984.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Music For The Royal Fireworks
+Water Music
+A2 Suite In G Major
+B1 Suite In D Major(   Читать дальше...   )Жанр: Classical, Baroque, OrchestraПродолжительность: 02:44:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D2A9B1B0E2162B8C826E3AD03B733157CB27741
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854951   (1057602) от 20.02.2026
+
+Rotting Christ (Sakis Tolis; χ ξ ς') - Studio Albums (20 releases) (1991-2026) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black Metal, Gothic Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057602.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rotting Christ - греческая метал-группа, созданная в Афинах в 1987 году. Является одной из самых известных метал-групп Греции.1991 - Passage To Arcturo (EP)
+1993 - Thy Mighty Contract
+1994 - Non Serviam
+1996 - Triarchy Of The Lost LoversЖанр: Melodic Black Metal, Gothic MetalПродолжительность: 15:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CAA7F95FFEECD128FC2BFBD08B1654AC361708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854505   (1057272) от 18.02.2026
+
+VA - Emotions (1978) Billy Joel, Chris Rea, Andy Williams, Bonnie Tyler and other [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057272.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Samantha Sang (with The Bee Gees) - Emotions
+A2 Deniece Williams - Free
+A3 Billy Joel - I Love You Just The Way You Are
+A4 Gallagher & Lyle - I Want To Stay With You(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C2DA25C859E410EB9C926B1618A3656CEF9A410F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1854364   (1057177) от 17.02.2026
+
+Callisto - Studio Albums (5 releases) (2002-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Sludge/Post-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1057177.jpg" />
+</div>
+
+
+###  Подробнее
+
+Callisto — пост-метал группа из города Турку, Финляндия, основана в 2001 году.2002 - Ordeal of the Century (EP)
+2004 - True Nature Unfolds
+2006 - Noir
+2009 - ProvidenceЖанр: Sludge/Post-MetalПродолжительность: 04:17:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A5208F15A5932C9CC53243CBC88847569B4ACD29
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1854154   (1057126) от 16.02.2026
 
 Spiritual Beggars - Studio Albums (9 releases) (1994-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Stoner Metal, Hard Rock>
@@ -599,151 +744,6 @@ B1 The Vienna State Opera Orchestra - Three Hungarian Dances (Nos. 6, 7 And 1) B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:12B91270303C405F91D635574F13175399F914C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850341   (1054140) от 27.01.2026
-
-The Boomtown Rats - Dave (1984) [FLAC|Lossless|image + .cue] <Rock, New Wave, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054140.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Dave (LP Version)
-A2 Hard Times
-Lazun Gemmun - The Boomtown Rats Live
-B1 Banana Republic(   Читать дальше...   )Жанр: Rock, New Wave, Synth-popПродолжительность: 00:23:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A298C245597DDF30D165D36C4C78016994747D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849912   (1054120) от 25.01.2026
-
-Manuel - This Is Manuel. 14 Tracks From His Fabulous Full-Price Albums (1971) Compilation, , Sampler [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054120.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Honeymoon Song
-A2 Intermezzo
-A3 A Man And A Woman
-A4 The Shadow Of Your Smile(   Читать дальше...   )Жанр: Pop, Easy Listening, InstrumentalПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B26BC68B8BA429C86224CDAF6A2859C09433044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1850141   (1053960) от 26.01.2026
-
-VA - Party Mood. The Tremeloes, Anita Harris, Tony Bennett, Louis Armstrong and other (1967) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053960.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 New Christy Minstrels - Green, Green
-A2 Anita Harris - Don't Sit Under The Apple Tree
-A3 Tony Bennett - Let's Face The Music And Dance
-A4 Percy Faith - The Girl From Ipanema(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:34:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58F98397BC520059E590539FD14AC2F7FEA0A4A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849692   (1053643) от 24.01.2026
-
-Jean-Michel Jarre - The Concerts In China (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Modern Classical, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053643.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 The Overture
-A2 Arpegiator
-A3 Equinoxe IV
-B1 Fishing Junks At Sunset(   Читать дальше...   )Жанр: Electronic, Modern Classical, AmbientПродолжительность: 01:19:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BB63BC1A83628DBC73999CE6922756D257B0660
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849804   (1053571) от 24.01.2026
-
-Franck Pourcel And His Orchestra - This Is Pourcel. 14 Tracks From His Fabulous  Full-Price Albums (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soundtrack, Theme, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053571.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Dancing In The Sun (Un Rayo Del Sol)
-A2 A Man Without Love
-A3 Love At First Sight (Je T'aime Moi Non Plus)
-A4 Abacachi(   Читать дальше...   )Жанр: Soundtrack, Theme, Easy ListeningПродолжительность: 00:42:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79E2EB7C07B3A7AE5F3CDB5ABC19AE915918628C
 ```
 
 https://mybot314.ru/tekegram_catalog/

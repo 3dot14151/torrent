@@ -1,3 +1,116 @@
+###  Публикация: 930582   (513871) от 24.08.2015
+
+VA - Stairways To The Songbook Of Led Zeppelin - Homage To The Legend (2015) [FLAC|image + .cue]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_513871.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. STAIRWAY TO HEAVEN [8:22]
+ Dweezil Zappa - Lead Guitar
+ Michael White - Vocals
+ Billy Sherwood - Bass, Guitar(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF5FA00BF99124381EFCD2682CF6924D949A6FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349868   (512363) от 07.07.2022
+
+Argent - 8 albums, 1 Box-set, 15CD (1969-2022) [FLAC|Lossless|image + .cue] <Classic Rock, Prog Rock, Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_512363.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Argent" - британская  рок-группа, исполнявшая прогрессивный рок с примесью классического рока и психоделии, пик творчества которой пришелся на период с 1969-1976 годы. Группу основал бывший участник группы «The Zombies» вокалист и виртуоз-клавишник Род Арджент (Rod Argent). После того, как "зомби" расформировались, Род образовал собственный коллектив, (   Читать дальше...   )--------------------------
+
+01. Hold Your Head Up (6:18)
+02. God Gave Rock And Roll To You (6:45)(   Читать дальше...   )Жанр: Classic Rock, Prog Rock, Psychedelic Rock, Rock |Продолжительность: 11:27:59 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B50F0AFB84D23BAAC8F6B6D7F2D734897559EEC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1562291   (511541) от 08.07.2022
+
+Serpents In Paradise - Temptation (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Bites
+02. Tomorrow Never Comes
+03. Where's The Rock 'n' Roll Gone?
+04. Moonshine Blues(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E25BBB4BE2F69ED9F4AEF375BEDAD072D4EE9452
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 538832   (508218) от 24.08.2012
+
+Led Zeppelin - Studio Discography (1969-1982) 10 Remastered CD /2012, KronStudioLab Int'l/ [FLAC|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_508218.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Hard rockПродолжительность: 06:54:36
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1562656   (508067) от 10.07.2022
 
 Drive At Night - Echoes Of An Era (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock / AOR>
@@ -639,122 +752,6 @@ Cry Of Love - 2 Albums (1992, 1997) [FLAC|Lossless|tracks + .cue] <Hard Rock, Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0E8BD02D4E79219C391D96E3C15D256C7F089EF7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1158425   (493548) от 15.08.2017
-
-Deep Purple - Johnny's Band (2017) EP [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny's Band (Album Version)
-02. In & out Jam (Rehearsal Recording By Roger Glover)
-03. Strange Kind of Woman (Previously Unreleased Live Version)
-04. The Mule (Previously Unreleased Live Version)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63ECDAFFC79C2FF30120EF18592E4F4071F3E55F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404395   (493349) от 25.08.2020
-
-Reece - Resilient Heart (2018) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Any Time At All
-02 Wicked City Blues
-03 Karma
-04 Desire(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:45:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0972F26A0CCECEF8C929087559B4EB38D8B988C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1404394   (493341) от 25.08.2020
-
-David Reece - Cacophony Of Souls (2020) [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_493341.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing The Shadows
-02. Blood On Our Hands
-03. Judgement Day
-04. Collective Anaesthesia(   Читать дальше...   )Жанр: Hard'n'HeavyПродолжительность: 00:48:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A8957EA82149F0668F00F66B47807BF23FC604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054874   (492491) от 20.09.2016
-
-First Signal - One Step Over The Line (2016) [FLAC|Lossless|tracks] <AOR, Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_492491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Run Free   (04:29)
-02. Love Gets Through   (04:52)
-03. Still Pretending   (04:27)
-04. Broken   (03:27)(   Читать дальше...   )Жанр: AOR, Melodic Hard RockПродолжительность: 00:47:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:549153F848D2313E266B1FB0DD60E164A38E32CF
 ```
 
 https://mybot314.ru/tekegram_catalog/

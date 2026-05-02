@@ -1,3 +1,119 @@
+###  Публикация: 1581253   (328135) от 04.10.2022
+
+CWT - XX YEARS OF FAIR PLAY (2022) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328135.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Fair Play XX
+2. Derby Day
+3. R.P.McMerfy
+4. Микрорайон(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:01:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19297B44B2AADCA5BD31FB57F92A7A221B0F794E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581075   (328134) от 04.10.2022
+
+Absent Sunday - 2 Albums (2018-2022) [MP3|320 Kbps] <Dark Cabaret , Female Vocals>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another [00:04:16]
+02. Lucifer [00:03:21]
+03. Exorcism [00:03:31]
+04. Swear [00:04:18](   Читать дальше...   )Жанр: Dark Cabaret , Female VocalsПродолжительность: 2 CD, 01:27:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13AD7CC7124C47E58B9FFCAD760C6049C9A042CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581070   (328132) от 04.10.2022
+
+Other in June - Stalks and Oaks (2022) [MP3|320 Kbps] <Alt Country, Southern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328132.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Seraphim Fiery [00:03:43]
+02 - Христе, гроб Твой [00:04:09]
+03 - Going Down South [00:06:13]
+04 - Dress of Truth [00:03:46](   Читать дальше...   )Жанр: Alt Country, Southern RockПродолжительность: 00:49:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4349C61584FAEA0D1433181A6740629E870A9910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581288   (328058) от 04.10.2022
+
+Сюзанна - 8 Albums (2017-2022) [MP3|320 Kbps] <Альтернатива, Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_328058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро [00:00:59]
+02. То [00:02:55]
+03. Целовать [00:03:10]
+04. Все или ничего [00:03:10](   Читать дальше...   )Жанр: Альтернатива, PopПродолжительность: 00:26:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15A994C208C0040AE864E57DD24009C2E42A6055
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 957334   (327336) от 17.11.2015
 
 Наив - Populism (2015) [MP3|320 кб/с]<Punk Rock>
@@ -638,121 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A2D0CB91DF54CA88B6B87DACA1F3C2B649794CE7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582227   (324346) от 08.10.2022
-
-Земфира от Луки - Земфира от Луки (2022) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324346.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. II
-2. Время не Щадит
-3. Апероль
-4. Мой ДругЖанр: RockПродолжительность: 00:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F669707E028FACDC51B7FB67EC9C24D7956FE763
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1579473   (324339) от 08.10.2022
-
-АнимациЯ - 7 Albums (2010-2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ужé [00:04:33]
-02 - Осторожно Россия [00:04:08]
-03 - Снег [00:03:12]
-04 - Суки [00:04:26](   Читать дальше...   )Жанр: RockПродолжительность: 7 CD, 04:50:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0D5752CB1F6B068E7C78BC3A11DAFBC9B5BD570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582396   (323475) от 09.10.2022
-
-Джоконда - 3 singles (2021 - 2022) [MP3|320 Kbps] <Symphonic Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stabat Mater (Full Version) [5:34]
-02. Его слепое величество [3:25]
-03. Stabat Mater [4:43]Жанр: Symphonic Rock, Female VocalПродолжительность: 00:24:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C3C98078F34A828408247C7C59CF361A031B6B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1259179   (323395) от 02.11.2018
-
-Обе две - План побега (2018) [MP3|320 Kbps] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_323395.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Чудеса
-2. Риск и страх
-3. Все романы
-4. Кузина(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:22:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35163C7FB643D2A64F60F08A76A0D3FDA230ACBC
 ```
 
 https://mybot314.ru/tekegram_catalog/

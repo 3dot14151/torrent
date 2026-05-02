@@ -1,3 +1,32 @@
+###  Публикация: 1168620   (408887) от 24.09.2017
+
+VA - Summer Vibes - Part VI (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Deep House, Techno, Dubstep>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ed Marquis – Alone (Proone Remix) (04:55)
+02. MISIGII – Solomon (Oliver Petkovski Remix) (06:22)
+03. Matthew Damon – Open Space (Volkan Erman Remix) (09:25)
+04. Rabbit One – N33d U (07:28)(   Читать дальше...   )Жанр: Progressive House, Deep House, Techno, DubstepПродолжительность: 01:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A7B3483FCA83CB66BCB04A7C3C65D2FD94DCFA72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1325899   (408704) от 17.09.2019
 
 VA - Different Styles Vol. 9 (2019) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Tech House, Deep House, Downtempo>
@@ -714,35 +743,6 @@ VA - Renaissance The Mix Collection: Art Department (2016) [FLAC|Lossless|WEB-DL
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:84A7DCD39334350A0E30BC4B25BFEAF32E067C90
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1254683   (373193) от 14.10.2018
-
-VA - Figments Of Duality (2018) Limited Edition [FLAC|Lossless|tracks + .cue] <Deep Techno, Dub Techno, Deep House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Martin Schulte - Trolley Bus (Winter Trip) (6:52)
-02. Luss - Morning Sun (7:50)
-03. The White Man - Heliopausa (8:42)
-04. David Hausdorf - Club Fever (7:37)(   Читать дальше...   )Жанр: Deep Techno, Dub Techno, Deep HouseПродолжительность: 01:02:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5EAE71D49AF8EA9956145E780DA6BBD2828E77BC
 ```
 
 https://mybot314.ru/tekegram_catalog/

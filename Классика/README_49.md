@@ -1,3 +1,32 @@
+###  Публикация: 1689537   (123776) от 08.01.2024
+
+Gregorio Allegri - Miserere (The Sixteen, Christophers; et al) (2008) Compilation [FLAC|Lossless|image + .cue] <Classical>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123776.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allegri: Miserere    [0:11:59.28]
+02. Victoria: O Quam Gloriosum est Regnum    [0:02:46.08]
+03. Josquin des Pres: Gaude virgo Mater Christi    [0:02:44.25]
+04. Lassus: Alma redemptoris Mater    [0:03:56.61](   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:09:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687F6519CF42112E8F34CF008C4D9C2A76E548B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690972   (123693) от 09.01.2024
 
 Symphonic Landscapes - Works By Mozart, Brahms, Schubert & Mendelssohn (2023) [FLAC|Lossless|image + .cue] <Classical>
@@ -706,35 +735,6 @@ Paola Erdas - Antonio Valente, Intavolatura de Cimbalo, Napoli 1576 (2021) [FLAC
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:088CF4F8709C956CE41DC60A8CF967B26021CC08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1712876   (112039) от 04.04.2024
-
-VA - Peaceful Piano Pieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_112039.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Katya Kramer-Lapin - Gymnopédie No. 1 (2:36)
-02. Katya Kramer-Lapin - Suite Bergamasque, L. 75 - Clair de Lune (5:13)
-03. Sergey Bryukhno - Sonnet in C Major (1:25)
-04. Katya Kramer-Lapin - Piano Sonata No. 14 in C-Sharp Minor, Op. 27 No. 2 Moonlight Sonata - I. Adagio sostenuto (5:43)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 02:04:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF62763859EDC1D6BC57C47FAFD3E4E1BD4F7237
 ```
 
 https://mybot314.ru/tekegram_catalog/

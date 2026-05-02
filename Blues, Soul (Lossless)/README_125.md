@@ -1,3 +1,119 @@
+###  Публикация: 1755802   (103601) от 17.10.2024
+
+Mr Hardearly - Redemption & Bad Habits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Redemption & Bad Habits (3:20)
+02. Good with My Lady (3:21)
+03. You Got No Time (4:56)
+04. Looking for Love (3:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44A013CAA08760DCEFB2AAD729DDEA7E6F046283
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755727   (103600) от 17.10.2024
+
+James Cooke - Halfway There (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103600.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good To You (3:53)
+02. Blood, Sweat, & Steel (3:51)
+03. Shop Around (3:36)
+04. Along for the Ride (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:307E0C136F03974738B69CD44324C3D6053D5234
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755797   (103599) от 17.10.2024
+
+Michelle Malone - Southern Comfort (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Folk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Southern Comfort (4:06)
+02. Like Mother Like Daughter (3:00)
+03. Randall Bramblett - I Choke on My Words (feat. Buddy Miller & Randall Bramblett) (3:07)
+04. Simple Life (3:08)(   Читать дальше...   )Жанр: Blues, Country, FolkПродолжительность: 00:41:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96CE57865254EEF63513BD270E4C9A1C702AFBF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1755793   (103598) от 17.10.2024
+
+Khalif Wailin’ Walter - Phoenix Risin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103598.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Connie-Lee (5:52)
+02. Baby, Please Lie To Me (3:37)
+03. The Streets (4:55)
+04. Phoenix Risin' (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A18501FF6FF573EB67D1CC6574ED9AF2C7C976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1755796   (103597) от 17.10.2024
 
 Mama's Blues Joint - Happy Dude (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Mezzanottemmezza - Out of This Place (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F8FE17CF4522DDDEB109CEB7AA45CE25ED63A1A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762737   (102892) от 27.11.2024
-
-J.P. Reali - Blues Since Birth (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102892.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Devils Take (4:26)
-02. The Virus Blues (3:02)
-03. It Takes A Lot To Laugh, It Takes A Train To Cry (3:15)
-04. Drunk And In The Way (2:42)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:29:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B33907F27945172728284F0597B01DEC395960
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763478   (102822) от 01.12.2024
-
-Downhome Kin - Roots Run Deep (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102822.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Preachin' the Blues (2:42)
-02. Deep Blue Night (3:04)
-03. The Weight (2:49)
-04. Electric Heartache (2:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:990A6C2F01F318828D89E36823D414B5990F24BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763467   (102815) от 01.12.2024
-
-Amber Rachelle & The Sweet Potatoes - Pipin' Hot! (2024) [FLAC|Lossless|WEB-DL|tracks] <Rhythm & Blues, Swing, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Who Shot The Lala (3:33)
-02. As Long As I'm Moving (3:10)
-03. My Old Man (4:33)
-04. Mama He Treats Your Daughter Mean (3:09)(   Читать дальше...   )Жанр: Rhythm & Blues, Swing, JazzПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78CFC7BFF16BD758BF2D1DAE03BC81FA682C391
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763491   (102814) от 01.12.2024
-
-Stormin' Norman and the Cyclones - Road Trip (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102814.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road Trip (4:31)
-02. A Better Man (4:55)
-03. Gotta Get Back to New Orleans (4:01)
-04. Memphis (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72D199D2310303860F102E78095D7456ADA32E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

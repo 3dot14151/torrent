@@ -1,3 +1,83 @@
+###  Публикация: 584559   (307902) от 04.12.2012
+
+Lindsey Stirling - Song of the Caged Bird (2012) [H.264/1080p] WEBRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307902.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: InstrumentalПродолжительность: 00:03:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A677D89200DBA9F11D92F28160DB1AC21A5D46A9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 584650   (307582) от 04.12.2012
+
+The Best of...(vol.3) (2011) DVDRip
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Музыка, Pop, Easy Listening,Prog rock, Folk rock, Big beat,DiscoПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61E79372E7E699C7E8ED28B4B6DA3FFE1DE07209
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1333139   (307322) от 23.10.2019
+
+Шагреневая кожа (1975) DVDRip [Н.264]
+
+>>Театр и Музыкальное видео
+>>Театр
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_307322.jpg" />
+</div>
+
+
+###  Подробнее
+
+Телеспектакль по мотивам одноименного романа французского писателя О.Бальзака из цикла "Человеческая комедия" "Шагреневая кожа". Философская притча о разрушительной силе безудержных наслаждений.
+
+Молодой поэт Рафаэль де Валантен решает умереть после разорительного проигрыша. Подавленно он бредет по городу и забредает в антикварный магазинчик. (   Читать дальше...   )Производство: СССР / Главная редакция литературно-драматических программ ГостелерадиоЖанр: Телеспектакль, драма, экранизацияРежиссер: Павел РезниковАктеры: Олег Табаков, Екатерина Васильева, Валентин Гафт, Марина Неелова, Александр Вокач, Юрий Катин-Ярцев, Валентин Никулин, Петр Щербаков и др.Субтитры: отсутствуютПродолжительность: 02:13:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC1137144AC3A75D6C2E3BF834E60884B7B4EBF6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 584723   (307199) от 04.12.2012
 
 Peter Gabriel / Secret World Live (1993/2012) [1080p] BDRip
@@ -641,94 +721,6 @@ Dio - Evil Or Divine (Live in New York City) (2003) DVD9
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E3BA54F00B3178D99CAD3FB939FBAA77AFA5E4DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960998   (301135) от 01.12.2015
-
-New Order, Live In Glasgow (2008) DVD9 + DVD5
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301135.jpg" />
-</div>
-
-
-###  Подробнее
-
-DVD1: Концерт в Глазго. Съёмки - октябрь 2006 года. (DVD-9)
-DVD2: Редкие и ранее не опубликованные съёмки. (DVD-5)1	Crystal	7:07
-2	Turn	4:33
-3	True Faith	5:49
-4	Regret	4:05(   Читать дальше...   )Жанр: Alternative Rock, Pop Rock, House, New Wave, Electro, Synth-popПеревод: ОтсутствуетЯзык субтитров: English, French, German, Spanish, Brazilian Portuges.Продолжительность: DVD1:~ 01:47:00, DVD2:~ 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04C77EBF0A19EA969F743901AAE6661DBB1C12AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184348   (301086) от 17.11.2017
-
-Rainbow - Memories In Rock (Live In Germany) (2016) DVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301086.jpg" />
-</div>
-
-
-###  Подробнее
-
-В июне 2016 года легендарный гитарист Ричи Блэкмор (Ritchie Blackmore) воплотил в жизнь мечты многих фэнов, возродив свою группу RAINBOW для трех выступлений в Европе – двух в Германии и одного в Англии. Немецкие шоу в Лореляе и Битигхайме были запечатлены на видео и легли в основу релиза под названием "Memories In Rock - Live In Germany", который увидел (   Читать дальше...   )1. Intro
-2. Highway Star (Deep Purple cover)
-3. Spotlight Kid
-4. Mistreated (Deep Purple cover)(   Читать дальше...   )Производство: Eagle Vision ‎Жанр: Hard RockПродолжительность: 01:50:16+00:29:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE3AE731457A9E88ED299CAB2FC433B39E4E657D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1184354   (300992) от 17.11.2017
-
-Queen - Live At The Rainbow '74 (2014) BDRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300992.jpg" />
-</div>
-
-
-###  Подробнее
-
-Концертный альбом британской рок-группы Queen, вышедший в 2014 году. Доступен в форматах двойного CD, двойного винила, DVD, Blu-Ray.01 - Procession
-02 - Now I'm Here
-03 - Ogre Battle
-04 - Father To Son(   Читать дальше...   )Производство: Eagle VisionЖанр: Art Rock, Hard Rock, Glam RockПродолжительность: 01:20:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F572D8E555AC98A4D6B14AD3D25AB1668F6C1AD1
 ```
 
 https://mybot314.ru/tekegram_catalog/

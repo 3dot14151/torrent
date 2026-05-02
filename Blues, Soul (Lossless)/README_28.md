@@ -1,3 +1,119 @@
+###  Публикация: 250306   (906595) от 07.02.2011
+
+Gary Moore - Greatest Hits (2010) 2CD [APE|Lossless]<Rock, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906595.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1:
+01. Walking By Myself (2:56)
+02. Cold Day In Hell (4:23)
+03. Still Got The Blues (6:09)(   Читать дальше...   )Жанр: Rock, BluesПродолжительность: 02:39:08
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1368806   (905362) от 22.03.2020
+
+Howlin' Wolf - The London Howlin' Wolf Sessions (Deluxe Edition) 2CD (1971) [FLAC|Lossless|tracks + .cue] <Chicago Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockin' Daddy
+02. I Ain't Superstitious
+03. Sittin' On Top Of The World
+04. Worried About My Baby(   Читать дальше...   )Жанр: Chicago BluesПродолжительность: 01:49:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CB1FB2D5CC9A12A103C514AE8F5C93820300A5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099485   (905318) от 01.02.2017
+
+Andy Taylor Group - Loose Cannon (2015) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Cloud 03:38
+02. Plain to See 04:14
+03. Southbound 03:08
+04. Loose Cannon 04:03(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:22:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEC7144C4A7C21F2AE444519D9EB1102A63AAF41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1099389   (905139) от 01.02.2017
+
+Curtis Matheson - A Particular Blue (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lookout! 03:49
+02. Hideaway 03:32
+03. Tell Me (feat. Matt Minglewood) 04:07
+04. Another Day, Another Time 02:59(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF438E87905FFE391D13B0CB70C8275F08FA542E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1099341   (905073) от 01.02.2017
 
 The Teskey Brothers - Half Mile Harvest (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Blues Rock, Soul>
@@ -628,122 +744,6 @@ The Paul DesLauriers Band - Relentless (2016) [FLAC|Lossless|tracks + .cue] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9391FA2DE60FE568A2708B564C0DF039A3AD4738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101304   (896404) от 06.02.2017
-
-Five Horse Johnson - The Taking of Black Heart (2013) [FLAC|Lossless|tracks + .cue] <Blues Rock, Stoner>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896404.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 1995 году пять парней из Толедо (Огайо) решили сколотить блюзовую группу. А "белая" блюзовая команда - это уже клише. Потому как, ну что могут сделать белые мальчики в абсолютно чё...афроамериканской музыке? Вот и решили Лошадки отличаться. В общем, товарищи музыканты исходят из того, что блюз - это скорее взгляд на жизнь - немного грязный и чувственный (   Читать дальше...   )01. The Job (4:40)
-02. Keep On Diggin' (5:01)
-03. Black Heart Baby (2:28)
-04. Mexico (4:13)(   Читать дальше...   )Жанр: Blues Rock, StonerПродолжительность: 00:45:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A28F914125F789995973FA0EA99B73E4B01851B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101163   (896390) от 06.02.2017
-
-Nellie Lutcher - The Best Of Nellie Lutcher (1995) [FLAC|Lossless|tracks + .cue] <Blues, R&B, Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_896390.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hurry On Down (02:26)
-02. The One I Love Belongs To Somebody Else (02:44)
-03. You Better Watch Yourself, Bub (03:00)
-04. My Mother's Eyes (03:15)(   Читать дальше...   )Жанр: Blues, R&B, JazzПродолжительность: 00:58:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36C7C9BDFDA3A763E48983FEFB99F0FA70417317
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 993456   (895826) от 05.03.2016
-
-Sugaray Rayford - Dangerous (2013) [FLAC|Lossless|tracks + .cue] <Electric Blues, Soul Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_895826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Country Boy (03:15)
-02. Stuck for a Buck (03:57)
-03. I'm Dangerous (04:35)
-04. Two Times Sugar (04:48)(   Читать дальше...   )Жанр: Electric Blues, Soul BluesПродолжительность: 01:07:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59919AC5E213A99932101B5CDF1D9F80CE076EC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1101445   (894829) от 07.02.2017
-
-Pat McManus Band - Walking Through Shadows (2011) [APE|Lossless|image + .cue] <Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danger Zone    (05:18)
-02. Walking In The Shadow Of Giants    (05:44)
-03. Hey You    (04:18)
-04. Give Me Love    (05:47)(   Читать дальше...   )Жанр: Blues, Blues-RockПродолжительность: 00:55:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C31F33810F71B8C1BB5286E655451FBC606E646E
 ```
 
 https://mybot314.ru/tekegram_catalog/

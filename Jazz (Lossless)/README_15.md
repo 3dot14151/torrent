@@ -1,3 +1,61 @@
+###  Публикация: 1467961   (1017288) от 07.05.2021
+
+Billy May & Glen Gray - Big Band Stereo Hits (50-60-e) 2CD, 2012, TJL [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017288.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Billy May - On the Sunny Side of the Street [3:07]
+02. Billy May - Twilight Time [3:28]
+03. Billy May - Oh, What a Beautiful Mornin' [3:12](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 02:02:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2230F6FF6118796FA8D7EA50E8A1DA11A4214090
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1468022   (1017287) от 07.05.2021
+
+Acker Bilk - The Magic Clarinet Of Acker Bilk (1986) [FLAC|Lossless|tracks + .cue] <Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1017287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jean
+02. We've Only Just Begun
+03. The Rose
+04. Eres Tu (Touch The Wind)(   Читать дальше...   )Жанр: Easy ListeningПродолжительность: 00:52:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:284ECEB6DC6E9BCAC5F445A6DD85E65C65EEE35F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1468018   (1017247) от 07.05.2021
 
 VA - Smooth Jazz (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -687,64 +745,6 @@ CD01 - At The Stratford Shakespearean Festival:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7BA8C3D5653604CCC336247C17442AC3E3664A91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472925   (1014061) от 27.05.2021
-
-Benny Goodman - Florida Sessions (1959) 1992, MusicMasters Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sleep [3:05]
-02. Sometimes I'm Happy [4:02]
-03. Rosetta [4:27]
-04. Dark Shadows [4:21](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6846B46B3C7B8851EB67CF34E96145184FA93940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1473245   (1013888) от 28.05.2021
-
-Dawda Jobarteh - Northern Light Gambian Night (2011) [FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz, Afro-Beat>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013888.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Namo
-02.  Tama Silo
-03.   Bamba Bojang
-04.   Sama Kebbalu(   Читать дальше...   )Жанр: World Fusion, Ethnic Jazz, Afro-BeatПродолжительность: 01:05:39.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7BCDE1EB367A66F5A7CEC7B5F5919FB5767C519
 ```
 
 https://mybot314.ru/tekegram_catalog/

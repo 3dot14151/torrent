@@ -1,3 +1,83 @@
+###  Публикация: 1018596   (755529) от 20.05.2016
+
+Проекты - VideoHive - World Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755529.jpg" />
+</div>
+
+
+###  Подробнее
+
+World Logo -  шаблон экструдированного логотипа на фоне голубой планеты по имени Земля.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC39FB884A673FF2C006A3E434151F72FC34FF17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018509   (755426) от 20.05.2016
+
+Проекты - VideoHive - Cinematic Logo Reval [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755426.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания кинематографического логотипа.
+Придайте Вашему фильму эпичности при помощи этой анимации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2904A6C3FDF2626E77002D2462B3BA6926BDC8CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018661   (755424) от 20.05.2016
+
+Проекты - VideoHive - Logo Mockup [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755424.jpg" />
+</div>
+
+
+###  Подробнее
+
+Logo Mockup - Реалистичное и динамическое отображение вашего логотипа.
+Рельефная бумага и пластиковый логотип - чтобы увидеть результат, просто напишите свой логотип.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:998D5A2FC6E4843AA12B4152F32040694EF71888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1018733   (753708) от 21.05.2016
 
 Проекты - VideoHive - Peel It Logo Reveal [AEP]
@@ -593,84 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8FDB20274F71399FFB0775F342D91610F27C610B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020060   (746487) от 25.05.2016
-
-Проекты - VideoHive - Energy Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Energy Logo Reveal - яркий , энергичный, красочный проект для вашего логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A621645C113A3B895B0F284AE59738F7F3B04F83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020020   (746353) от 25.05.2016
-
-Проекты - VideoHive - Digital Identity [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746353.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания эффектной демонстрации логотипа из медиа заполнителей.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD48F10DE2EE6A0962E7246D0257855A5A204136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020280   (746053) от 25.05.2016
-
-Проекты - VideoHive - LOGO BULLET [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8B33258814896193698A123AAFF51BA5C9B9AFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

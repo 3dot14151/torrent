@@ -1,3 +1,61 @@
+###  Публикация: 1664915   (183895) от 28.09.2023
+
+Lori Williams - Behind the Smiles (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183895.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deja Vu 04:39
+02. It's Love 04:30
+03. Save Your Love for Me 05:26
+04. You Make Me Feel Alright 03:26(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5114BD6D04AD305D1E1FE921C2E5829801F4E708
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1427441   (183577) от 28.11.2020
+
+Kenny Dorham - Jerome Kern Showboat (1960) 1990, Bainbridge Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183577.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Why Do I Love You? [6:02]
+02. Nobody Else But Me [5:41]
+03. Can't Help Lovin' Dat Man [6:37]
+04. Make Believe [5:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:32:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D3CD5F322EF879840232504679B109772C0808F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665097   (183336) от 29.09.2023
 
 Asako Toki - Standards (2004) LD&K [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -688,64 +746,6 @@ Peggy Lee - The Best of Miss Peggy Lee (1945-1969)1998, Capitol Records[FLAC|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:451C43ACB2E71FAD15ED89CD4C752B54AF7DA48F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1593266   (181147) от 26.11.2022
-
-VA - The Columbia Jazz Piano Moods Sessions (1949 - 1952) 7CD, 2000, Mosaic Records [FLAC|Lossless|tracks + .cue] <Swing, Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181147.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Erroll Garner & Ahmad Jamal:
-01. When Johnny Comes Marching Home [3:29]
-02. My Heart Stood Still [4:20]
-03. Long Ago and Far Away [2:32](   Читать дальше...   )Жанр: Swing, Bop, Piano JazzПродолжительность: 06:29:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35BC0652B2989E92140037E08205E79C7101BFC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665891   (180950) от 02.10.2023
-
-Michael Wolff - Bounce (2020) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_180950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bounce [4:07]
-02. Chill [3:56]
-03. Caribbean Rain Dance [6:10]
-04. Long Lost [5:08](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 00:50:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC47E32BC1CB569B4595820C3A21F442709D948A
 ```
 
 https://mybot314.ru/tekegram_catalog/

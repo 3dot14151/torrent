@@ -1,3 +1,119 @@
+###  Публикация: 1673927   (162448) от 04.11.2023
+
+20 Watt Tombstone - The Chosen Few (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Stoner, Trash Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prophet Man (3:14)
+02. Chosen Few (3:10)
+03. Bomb That Saved the Day (4:03)
+04. Black Top Sorrow (3:13)(   Читать дальше...   )Жанр: Blues Rock, Stoner, Trash BluesПродолжительность: 00:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A9899ACECC307D3E5681363AAF92D3327A356F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673955   (162444) от 04.11.2023
+
+Candice Ivory - When The Levee Breaks: The Music of Memphis Minnie (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162444.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlie Hunter - Me and My Chauffeur (3:33)
+02. When The Levee Breaks (3:35)
+03. Charlie Hunter - You Can't Rule Me (2:42)
+04. Charlie Hunter - When You Love Me (2:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C4CB7B9385EDA21C14A9565876B1470EE42CACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432730   (162332) от 19.12.2020
+
+Kyle Kelly Pleasants - Why Can't We All Just Get Along (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162332.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Get Along (3:25)
+02. The Way I Treated You (3:39)
+03. If That Old Bench Could Talk (4:01)
+04. I Am Gone (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B5B38C042C078673717248A3409FD170617CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432735   (162329) от 19.12.2020
+
+Lone Crow Rebellion - Ain't No Shame (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162329.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Shame (4:34)
+02. Mr. Blackbird (3:54)
+03. Demon Alcohol Blues (3:49)
+04. Brand New Day (3:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BF103CA2931CB83DB1FA436553DC2A14D453F677
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1432727   (162295) от 19.12.2020
 
 VA - Electric Blues Mates (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Slowfoot - Something Good (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B44979844AADA19C3A2AC16F911CF512C07631C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600218   (159061) от 26.12.2022
-
-Andy Lindquist - Life's Too Short to Spend It Raining (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. To the Tops (3:00)
-02. Help Is on Its Way (4:39)
-03. Life's Too Short to Spend It Raining (5:24)
-04. Right as Rain (3:12)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:39:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43D00E2BEDC1967A78818A475A69FA23F7AEDF96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600222   (159031) от 26.12.2022
-
-Vern Daysel - Call of the Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feed Me (4:02)
-02. Wild Girl (3:50)
-03. Bandit’s Road (3:46)
-04. Call of the Wild (4:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9D83AA6BFDC25587AE330A29E0020CEF46E13C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433194   (158157) от 20.12.2020
-
-Manzanita Blues - To Day (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158157.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goin' Down Dirty (3:31)
-02. Calling You Out (3:09)
-03. I Was Wrong (4:17)
-04. Housing Bubble Blues (5:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADFB8ACE90454BF4EAC800F0C47B82D18AFACF1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433192   (158152) от 20.12.2020
-
-Matt Zajac - Garden of Hedon (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock; Psychedelic>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158152.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Welcome Song (4:31)
-02. Lady in White (4:49)
-03. Daisy Chain (5:06)
-04. Reason to Sing (5:23)(   Читать дальше...   )Жанр: Blues Rock; PsychedelicПродолжительность: 00:42:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0307498F6CF63AA6A2DD746751A3A1BA42691842
 ```
 
 https://mybot314.ru/tekegram_catalog/

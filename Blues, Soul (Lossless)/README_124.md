@@ -1,3 +1,119 @@
+###  Публикация: 1752718   (103910) от 01.10.2024
+
+Greg Nagy - The Real You (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103910.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Real You (5:01)
+02. Mississippi Blues (3:22)
+03. Crazy (4:16)
+04. Never Mine (3:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD466FB5E96D51BBF479072C108A3CA25FB9BE32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752715   (103908) от 01.10.2024
+
+Aisha Khan - The Magnificent Twelve (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Joe Louis - Good Morning Midnight (4:31)
+02. Big Sandy - Laying Down My Cards (3:26)
+03. Paul Ansell - Come on Little Baby (3:08)
+04. Madeleine Rose Witney - Travelling Heavy (4:39)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C590744AF295E731210023F5270845DD6180EA64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752719   (103905) от 01.10.2024
+
+Jesse "The Rad Hatter" Bedard - Lonely Busker Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103905.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro/Welcome to the Station (0:37)
+02. Lonely Busker Blues (2:56)
+03. Stuck On You (4:00)
+04. Ganja Babe (4:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35C903C8B675B2CFD96FC6B346A74EE6B8C5321F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1753570   (103830) от 05.10.2024
+
+Canned Heat - Dog House Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103830.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kings Of The Boogie (3:02)
+02. Stoned Bad Street Fighting Man (3:18)
+03. So Fine (3:09)
+04. You Can't Get Close To Me (3:33)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9C230B58ED3181DF4CE8B8B3CF70E7CB66442D3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1753564   (103818) от 05.10.2024
 
 Amy Helm - Silver City (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
@@ -629,122 +745,6 @@ Tas Cru - Tas Cru Band LIVE (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17D7D621C4B0EF34044945985E25295C55058F43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755802   (103601) от 17.10.2024
-
-Mr Hardearly - Redemption & Bad Habits (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Redemption & Bad Habits (3:20)
-02. Good with My Lady (3:21)
-03. You Got No Time (4:56)
-04. Looking for Love (3:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44A013CAA08760DCEFB2AAD729DDEA7E6F046283
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755727   (103600) от 17.10.2024
-
-James Cooke - Halfway There (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103600.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Good To You (3:53)
-02. Blood, Sweat, & Steel (3:51)
-03. Shop Around (3:36)
-04. Along for the Ride (5:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:307E0C136F03974738B69CD44324C3D6053D5234
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755797   (103599) от 17.10.2024
-
-Michelle Malone - Southern Comfort (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Country, Folk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Southern Comfort (4:06)
-02. Like Mother Like Daughter (3:00)
-03. Randall Bramblett - I Choke on My Words (feat. Buddy Miller & Randall Bramblett) (3:07)
-04. Simple Life (3:08)(   Читать дальше...   )Жанр: Blues, Country, FolkПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CE57865254EEF63513BD270E4C9A1C702AFBF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755793   (103598) от 17.10.2024
-
-Khalif Wailin’ Walter - Phoenix Risin (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103598.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connie-Lee (5:52)
-02. Baby, Please Lie To Me (3:37)
-03. The Streets (4:55)
-04. Phoenix Risin' (3:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5A18501FF6FF573EB67D1CC6574ED9AF2C7C976
 ```
 
 https://mybot314.ru/tekegram_catalog/

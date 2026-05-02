@@ -1,3 +1,61 @@
+###  Публикация: 969957   (141547) от 30.12.2015
+
+VA - Kerrang! Ultimate Rock Heroes! (2015) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Punk, Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141547.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Enter Shikari - Know Your Enemy (Rage Against the Machine) :: 04:36
+02 - Neck Deep - Don't Tell Me It's Over (Blink-182) :: 02:29
+03 - Palm Reader - My Plague (Slipknot) :: 03:49
+04 - Feed The Rhino - I'm Broken (Pantera) :: 04:18(   Читать дальше...   )Жанр: Alternative Rock, Pop Punk, HardcoreПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4645B3D59A643ABE129E3B7DAF9ED5D0F2BE3649
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1272942   (139783) от 30.12.2018
+
+Acid - The In Part Od The Out Crowd (2018) [FLAC|Lossless|WEB-DL|tracks] <Indie Rock, Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139783.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What's Going On (02:59)
+02. Get Down (02:41)
+03. Never On My Mind (03:15)
+04. Supercharger (02:37)(   Читать дальше...   )Жанр: Indie Rock, Indie PopПродолжительность: 00:28:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4EF86568C49BCAF6DA1ED839974A54D9B30F31A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679432   (138304) от 25.11.2023
 
 Health - UNLOVED (2023) EP [FLAC|Lossless|tracks] <Noise Rock, Electronic Rock, Neo-Psychedelia>
@@ -692,64 +750,6 @@ King Gizzard & The Lizard Wizard - Butterfly 3001 (2022) Remix [FLAC|Lossless|WE
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4AF834F58A9C629F6D1988811957F386A17D8229
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824231   (128930) от 14.10.2025
-
-Kevin the Persian - Southern Dissonance (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Grunge, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coping Mechanisms [00:03:14]
-02. What You Deserve [00:04:13]
-03. Suicide in K Minor [00:04:26]
-04. Persian Delta Blues [00:04:03](   Читать дальше...   )Жанр: Alternative Rock, Grunge, Hard RockПродолжительность: 00:36:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20AD43E3A6B5285D1EB2F6BB8335A8F2C8FAEE36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1824006   (128643) от 13.10.2025
-
-Earshot - Humaning (2025) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Nu Metal, Post-Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What Are You Waiting For [00:03:51]
-02. Where Were You? [00:04:05]
-03. Out Of My Hands [00:03:17]
-04. I'm OK [00:03:28](   Читать дальше...   )Жанр: Alt. Rock, Nu Metal, Post-GrungeПродолжительность: 00:41:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B10624EFB1DA16726E2980989F7DA2A97D75E845
 ```
 
 https://mybot314.ru/tekegram_catalog/

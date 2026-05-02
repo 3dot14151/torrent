@@ -1,3 +1,32 @@
+###  Публикация: 1600480   (157808) от 27.12.2022
+
+South of Reality - 4 Albums (2015-2022) [MP3|320 Kbps] <Southern Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157808.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2015 - South of Reality
+2022 - Lone Star State Of Mind
+2022 - Southland(   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 4 CD, 02:10:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7210CB16B66AD6702F08488C0AC370016EEA79AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1600416   (157804) от 27.12.2022
 
 Arena - The Theory Of Molecular Inheritance (2022) 2CD, Deluxe Edition [MP3|320 Kbps] <Progressive Rock, Neo-Prog>
@@ -716,35 +745,6 @@ Orianthi - Best Of Orianthi... Vol. 1 (2014) Robo Records, UICO-1273, Japan [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1C1FD99D34F6075BA6B95E01AFE0F21DFABD11B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1194973   (152133) от 27.12.2017
-
-Orianthi - Violet Journey (2006) Not On Label, Australia [MP3|320 Kbps] <Pop Rock, Guitar>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lights of Manos 3:01
-02. He's Gone 3:23
-03. Violet Journey 3:12
-04. Everyday 4:49(   Читать дальше...   )Жанр: Pop Rock, GuitarПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F277EF627C49D08C61823D8FD92BD336859F78A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

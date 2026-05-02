@@ -1,3 +1,119 @@
+###  Публикация: 1683054   (129761) от 09.12.2023
+
+Bad Touch - Bittersweet Satisfaction (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Classic-Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129761.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slip Away [00:03:27]
+02. This Life [00:02:21]
+03. Spend My Days [00:03:31]
+04. Bittersweet Satisfaction [00:03:28](   Читать дальше...   )Жанр: Hard-Rock, Classic-Rock, Blues-RockПродолжительность: 00:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FDC96DA18C94372EFEF0F11E889675AC41F3FC83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683065   (129749) от 09.12.2023
+
+Bad Touch - Bittersweet Satisfaction (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard-Rock, Classic-Rock, Blues-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129749.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slip Away [00:03:27]
+02. This Life [00:02:21]
+03. Spend My Days [00:03:31]
+04. Bittersweet Satisfaction [00:03:28](   Читать дальше...   )Жанр: Hard-Rock, Classic-Rock, Blues-RockПродолжительность: 00:33:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA0F5ED1761B074E91E05D40DF6D8A0607F77A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1525469   (129692) от 20.01.2022
+
+Boston - Boston (1976) (Reissue 2007) Remastered Japan Edition [FLAC|Lossless|image + .cue] <Melodic Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than a Feeling (04:45)
+02. Peace of Mind (05:03)
+03. Foreplay/Long Time (07:47)
+04. Rock and Roll Band (03:00)(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 00:37:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:798C734E4DEC0787348682D4B41ED910673409A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1054992   (129670) от 10.12.2023
+
+Led Zeppelin - 20 Albums, 3 Box Set (1969 - 2018) 89 CD [FLAC|Lossless|image + .cue|tracks+.cue] <Hard Rock>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129670.jpg" />
+</div>
+
+
+###  Подробнее
+
+Led Zeppelin - британская рок-группа, образовавшаяся в сентябре 1968 года в Лондоне, Англия, и признанная одной из самых успешных, новаторских и влиятельных в современной истории. Создав собственное звучание (для которого были характерны утяжелённый гитарный драйв, оглушающее звучание ритм-секции и пронзительный вокал), Led Zeppelin стали одной из ведущих групп хард-рока, (   Читать дальше...   )Список альбомов:
+1969 - Led Zeppelin
+1969 - Led Zeppelin II
+1970 - Led Zeppelin III(   Читать дальше...   )Жанр: Hard RockПродолжительность: 75:33:87
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25088EE3886318309E9AE30DC664C164F9B911A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1525535   (129536) от 20.01.2022
 
 The Alive - Turned up to Destroy (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -632,122 +748,6 @@ Red tail - Back And Forth (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53D4144364EACABEFD33BD76FA8FA5C0FB765067
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691798   (123131) от 13.01.2024
-
-Nobody's Fool - Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cherie
-02. So Wrong
-03. Time
-04. Eye for an Eye(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30B0B116AA344CA400034BAE667FE417EE9A041E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691743   (123089) от 13.01.2024
-
-Jim Peterik And World Stage - Roots & Shoots - Volume One (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dangerous Combination (ft. Kevin Cronin & REO Speedwagon)
-02. Before Anyone Knows We're Gone (ft. Colin Peterik)
-03. Last Dream Home (ft. Don Barnes)
-04. Forever's The Last Place You Look (ft. Paul Childers)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C37C4022CC0634C9E3F8E6674E9744B1A2A6170
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1691721   (123061) от 13.01.2024
-
-Ravenstine - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Is The Brightest Color
-02. Easy Come Easy Go
-03. Fly Eagle Fly
-04. Signs By The Roadside(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:44:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D3A4562E95E9EFCF8B168F4C89052851D1EEC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1692043   (122912) от 14.01.2024
-
-Dead Fish - Labirinto da Memória (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122912.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adeus Adeus [00:02:40]
-02. Dentes Amarelos [00:02:35]
-03. 49 [00:03:34]
-04. Avenida Maruípe [00:03:46](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C55A275589BAAD707C4F0BB0A20F90E5AE1761A
 ```
 
 https://mybot314.ru/tekegram_catalog/

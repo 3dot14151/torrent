@@ -1,3 +1,31 @@
+###  Публикация: 1202200   (790559) от 28.01.2018
+
+Fluxion - Upsides & Sideways EP (2018) Echocord [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790559.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En Route (07:51)
+ 02. The Place (07:26)
+ 03. Flick (03:50)Жанр: Dub Techno, Tech HouseПродолжительность: 00:19:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3FF26E7B83FE4FCF4FE30742926FB898543EB008
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1202327   (790558) от 28.01.2018
 
 Max Leonidas - Hotel Martinez v.3 Luxury Life house electro club (2007) [FLAC|Lossless|tracks] <House, Electro House>
@@ -715,35 +743,6 @@ VA - Various Artists pt.5 (2015) Etoka Records [FLAC|Lossless|WEB-DL|tracks] <Du
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:611BBB3404686AE8C4E4C689B2A0435C5DD0FDFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277727   (785029) от 21.01.2019
-
-Feral - Climbing Himalaya: Part II (2018) Hypnus Records [FLAC|Lossless|WEB-DL|tracks] <Techno, Dub Techno >
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Pine Forest (08:43)
- 02. Rara Lake (05:52)
- 03. Mahakala Is Watching (05:51)
- 04. Descending (A Shaman's Dub) (06:38)Жанр: Techno, Dub TechnoПродолжительность: 00:27:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:361A9D8E1A7BB4877D16FE962CE4765F2E7EB778
 ```
 
 https://mybot314.ru/tekegram_catalog/

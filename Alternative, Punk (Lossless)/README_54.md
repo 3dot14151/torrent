@@ -1,3 +1,61 @@
+###  Публикация: 1642230   (233359) от 26.06.2023
+
+Rain City Drive - Rain City Drive (2022) Deluxe Edition, 2023, Thriller Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233359.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waiting on You (3:16)
+02. Gardens of Misery (3:22)
+03. Dreams (3:24)
+04. Dying For (3:05)(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:54:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7634D5824DEAE7CA13396FB5F1CD794D2DB81FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1642109   (233351) от 26.06.2023
+
+Honey Revenge - Retrovision (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Airhead [00:02:43]
+02. Seeing Negative (Disappointment) [00:03:15]
+03. Are You Impressed? [00:03:07]
+04. Favorite Song [00:02:42](   Читать дальше...   )Жанр: Alt.Rock, Pop-Rock, Female VocalПродолжительность: 00:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1DA8FDC18B672B4FEB46579965C9ADCB3FB617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580047   (233117) от 30.09.2022
 
 Reliqa - I Don't Know What I Am (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Female Vocal>
@@ -687,64 +745,6 @@ Sinking Season - The Wolves (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:719FA766CBBFD770695AA74FBD0EA4ED6DD56C49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583592   (228121) от 16.10.2022
-
-Bilmuri - GOBLIN HOURS (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Corn-Fed Yetis (feat. Knox) [00:03:08]
-02. The Void Approacheth (feat. Summer Hoop) [00:04:02]
-03. Fairy- Void Type (feat. Seneca) [00:00:49]
-04. Muscle Bound Denizen (희망 없다) (feat. Shorelle) [00:03:11](   Читать дальше...   )Жанр: Alternative, Post-HardcoreПродолжительность: 00:26:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D632A3B94F8AAD8B21A14596218D24F9D8F2A200
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583593   (228105) от 16.10.2022
-
-Hydra Vein - Unlamented (2022) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_228105.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khuylo [00:00:50]
-02. Does the End Justify the Means? [00:05:43]
-03. Unlamented [00:04:20]
-04. Eradication Zone [00:04:05](   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89CA4BA194B84CCACD6624507B576E7427DD2871
 ```
 
 https://mybot314.ru/tekegram_catalog/

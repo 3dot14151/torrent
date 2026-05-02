@@ -1,129 +1,54 @@
-###  Публикация: 1048141   (547198) от 01.09.2016
+###  Публикация: 1047446   (550373) от 29.08.2016
 
-Zoom Player MAX 12.5 Build 1250 Final RePack (& Portable) by TryRooM [Ru/En]
+VA - Amalfi Coast Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda - Hang Out Time (06:45)
+02. Enrico Donner - Prefabricated Dreams (06:47)
+03. Don Gorda Project - Feeling Free (05:44)
+04. Cane Garden Quartet - Ageless (05:53)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1A099D1A73277C17C9B06D5B78B84C95E7D93D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047259   (550372) от 29.08.2016
+
+Футбол. Чемпионат Англии 2016-2017. 3-й тур. Вест Бромвич - Мидлсбро (28.08.2016) HDTVRip [H.264/720p-LQ] [hand made 50 fps]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547198.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550372.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Zoom Player 12 - наиболее мощный, гибкий и настраиваемый DVD/Blu-ray и медиа плеер для операционных систем Windows. Проигрывает DIVX, MP3, MPA, WAV, WMA, ASF, ASX, AVI, DAT, MPG, MPEG, VOB, WM, WMV. Поддерживает плейлисты, управление горячими клавишами и из командной строки, полноэкранный режим работы, маcштабирование широкоэкранного фильма для удаления полос снизу (   Читать дальше...   )Язык интерфейса: Русский, английский.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:932BF4F87D9AA5733C84836C8732A4F92AB2CCF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048249   (547197) от 01.09.2016
-
-Re-Loader Activator 3.0 Beta 2 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547197.jpg" />
-</div>
-
-
-###  Подробнее
-
-Re-Loader Activator - ещё один автоматический активатор Windows XP/7/8/8.1/10 и Office 2010/2013/2016.
-Есть возможность изменения ОЕМ информации в свойствах системы..Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FCA8B21095D1AED1EA84063E00D2DB268BE6B44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048029   (547196) от 01.09.2016
-
-Милый Ханс, дорогой Петр (2015) WEB-DL [H.264/1080p-LQ]
-
->>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Накануне войны немецкие инженеры работают на советском заводе над производством высокоточной оптики. Судьба и благополучие каждого из них зависит от успеха дела, но пока результата нет — ошибки следуют одна за другой. На фоне производственных неудач и приближения трагической эпохи раскрываются личные проблемы героев и их непростые взаимоотношения. Во время ответственной (   Читать дальше...   )Производство: Россия, Великобритания, ГерманияЖанр: ДрамаРежиссер: Александр МиндадзеАктеры: Якоб Диль, Биргит Минихмайр, Марк Вашке, Марк Хоземанн, Роза Хайруллина, Андрюс Даряла, Евгений Сармонт, Ангелина Римашевская, Анна Скиданова, Светлана КосолаповаПеревод: ОдноголосыйПродолжительность: 01:59:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D61DA6AEF86CCAF461EA6A9015FB84E6BBBEDA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047100   (547195) от 01.09.2016
-
-Подборка книг | Лирика [94 книги] (1037-2014) [FB2]
-
->>Художественная литература
->>Многоавторские серии и сборники
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лирика, лирическая поэзия (от греч. — «исполняемый под звуки лиры, чувствительный, лирный») — воспроизводит субъективное личное чувство (отношение к чему-либо) или настроение автора . По словарю Ожегова, лиризм означает чувствительность в переживаниях, в настроениях, мягкость и тонкость эмоционального начала; словарь Ефремовой отмечает характеризующие его эмоциональность, (   Читать дальше...   )Жанр: Лирика, стихи, прозаФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E878BDFEB63E59B46CEEBC7E71D49C88127D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047945   (547194) от 01.09.2016
-
-Азиз Ансари, Эрик Клиненберг | В активном поиске (2016) [EPUB]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веселое и глубокое исследование радости и мук современной любви, написанное одним из самых популярных и ярких комиков нашего времени.
+28 августа 2016, воскресенье. 15:30 МСК
+3-й тур
 
-Рано или поздно все мы отправляемся в путь в надежде найти свою любовь. Мы знакомимся с людьми, встречаемся с ними, начинаем и заканчиваем отношения, пытаясь отыскать того, с кем нас свяжут глубокие чувства. В наше время такое поведение (   Читать дальше...   )Жанр: ПсихологияФормат: EPUB
+Стадион: Хоуторнс (Вест Бромвич, Англия) , 23 690 зрителей (85 % при вместимости 28 003)(   Читать дальше...   )Телекомпания: Матч! Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Александр Елагин)Продолжительность: 01:48:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1687D7F75197E40F9EE753231028DE898F75E132
+magnet:?xt=urn:btih:1DA2C1AE208CE30BF1C189C4077FCAC326467DF8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -131,51 +56,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048148   (547193) от 01.09.2016
+###  Публикация: 1047191   (550371) от 29.08.2016
 
-Полтора шпиона / Central Intelligence (2016) WEB-DL [1080p] ATV
-
->>Аудио и Видео
->>Зарубежное видео HD для устройств Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547193.jpg" />
-</div>
-
-
-###  Подробнее
-
-От лайка в соцсети до спасения мира — один шаг. Сегодня ты френдишь бывшего одноклассника, а завтра — он тащит тебя под пули. Кто ж знал, что заядлый любитель пончиков превратится в похожего на скалу супершпиона.Производство: СШАЖанр: Боевик, комедия, криминалРежиссер: Роусон Маршалл ТёрберАктеры: Дуэйн Джонсон, Кевин Харт, Эми Райан, Даниэль Николет, Джейсон Бейтман, Аарон Пол, Райан Хансен, Тим Гриффин, Тимоти Джон Смит, Сион КелепиПеревод: Дублированный (iTunes)Субтитры: НетПродолжительность: 01:47:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00F9221BB7D7A843DA9771165D590BA09AD9EE09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048123   (547192) от 01.09.2016
-
-Microsoft Windows and Office ISO Download Tool 3.15 Portable [Multi/Ru]
+Летний биатлон. Чемпионат мира 2016. Отепя (Эстония). Мужчины. Спринт 10 км (27.08.2016) WEB-DL [H.264/576p-LQ]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547192.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550371.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Microsoft Windows and Office ISO Download Tool - небольшая, бесплатная, не требующая установки в систему утилита для прямого скачивания образов дисков (ISO) дистрибутивов ОС Windows и Office с серверов компании Microsoft.Язык интерфейса: Русский, Английский и другие
+27 августа 2016, суббота. 11:30 МСК
+Чемпионат мира по летнему биатлону 2016. Отепя (Эстония).
+ Мужчины. Спринт 10 кмТелекомпания: Матч! Наш спортЖанр: СпортЯзык озвучки: Русский (Руслан Гатауллин)Продолжительность: 01:05:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:00A928E54FCD0BC30F9803986E1F2DFF5324612A
+magnet:?xt=urn:btih:B3139D8ADA51A8A03CB5AEE8A527D02F316695AB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -183,26 +84,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048191   (547191) от 01.09.2016
+###  Публикация: 1047143   (550370) от 29.08.2016
 
-Карен Бенке | Пиши ещё! Руководство для начинающего писателя (2016) [FB2]
+VA - Satin Lounge Vol.1 (2015) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547191.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550370.jpg" />
 </div>
 
 
 ###  Подробнее
 
-О чем книга
-Написать собственную книгу не так сложно, как кажется. Особенно если знать, какие приемы могут вам в этом помочь. Конечно, научиться творческому письму можно, потратив несколько лет и окончив литинститут. А можно прочитать книгу Карен Бенке. Конечно, она не сделает из вас Набокова или Толстого, но в ней вы найдете все для того, чтобы начать литературную (   Читать дальше...   )Жанр: Познавательная литератураФормат: FB2
+01. Zuco 103 - Outro Lado
+02. Five Seasons - Guapo
+03. Frank Popp Ensemble - Just Say Goodbye
+04. Chin Chillaz - Trinity(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:13:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FF29C78EFDA98DFBBFD79F451260663FC208F96
+magnet:?xt=urn:btih:8F8CF773EB4F8A4E692F5F5298E7DB08C4ECB895
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -210,25 +113,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048329   (547190) от 01.09.2016
+###  Публикация: 1047170   (550369) от 29.08.2016
 
-Пацанки (25.08.2016) SATRip
+VA - Ibiza Dreams, Vol. 1 (Finest Island Chill Out Mix) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Electronic
+>>Easy listening
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547190.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550369.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В течение нескольких месяцев на глазах зрителей будет происходить смелый социальный эксперимент. Молодые девушки из провинции, чьи жизни на бешеной скорости катятся в пропасть, изо всех сил постараются изменить свою судьбу. Первое реалити про напряженную работу над собой начинается прямо сейчас. Героинями проекта стали одиннадцать девушек. Каждая из них – пацанка (   Читать дальше...   )Телекомпания: ПятницаЖанр: ТелепередачаПродолжительность: 01:39:42
+01. Gods Blue Chest - Floating (Beach Mix) (6:04)
+02. Roberto Sol, Florito - Tomorrow (4:50)
+03. Naoki Kenji - Tsunami (6:24)
+04. Peter Pearson - Always In My Dream (5:41)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:25:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EBC16667A9951680E53487333E0754F3209D0E84
+magnet:?xt=urn:btih:6DA121800D65C30B480EC1BBF7E2999E49995D34
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -236,25 +142,289 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048229   (547189) от 01.09.2016
+###  Публикация: 1047265   (550368) от 29.08.2016
 
-Office Tab Enterprise 11.00 RePack by Roonney & HsC [Multi/Ru]
+Jack McDuff - The Soulful Drums (1964, 1965) 2001, Prestige[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550368.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Soulful Drums [06:10]
+ 02.Two Bass Hit [07:17]
+ 03.Greasy Drums [05:39]
+ 04.Moohah The D.J. [07:30](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:12:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA514626976B10DEED50CA202690AB7E20C4DBBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047189   (550367) от 29.08.2016
+
+VA - Play Emotions Vol.2 Sweet Company Lounge (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550367.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. GYSNOIZE - Same Love (04:01)
+02. Gabrielle Chiararo - Tango а Rouen (04:33)
+03. Edo - Illusion (04:01)
+04. Gabrielle Chiararo - Rien а faire pour moi (05:01)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D9E32F6611DEE7923E761085019600A0B809A82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047181   (550366) от 29.08.2016
+
+VA - The Sweet Lounge Vol.8 (Lounge in Capri) (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550366.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Koel - Emotions on the Keys (4:52)
+02. Viktor (UA) - We Are in Two (3:34)
+03. Giacomo Bondi - About a Bird Radio Edit (Full Mix) (4:13)
+04. Giacomo Bondi - Bola e samba no pe (Full Mix) (4:22)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:02:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16EA36B5D7B284E117A25BF6D26B6D752FD7167C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047415   (550365) от 29.08.2016
+
+VA - Ibiza Musica Relajante (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550365.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Flight74 - Full Strings (3:36)
+02. Angel Spirit - Changing Spaces (3:49)
+03. Steve Sweet Peace - Rampant Ghost (3:49)
+04. Karim Le Mec - Happy Hour (3:25)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 03:17:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66343D4398F1B5FAC706995D784CA209DA2A56B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047214   (550364) от 29.08.2016
+
+Steve Hunt - From Your Heart And Your Soul (1997) [WavPack|Lossless|image + .cue] <Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550364.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. One Thing After Another (4:05)
+2. Point Of Light (6:23)
+3. Wake Up (6:24)
+4. Coming Home (8:25)(   Читать дальше...   )Жанр: Jazz FusionПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075CEDA3AD8EEEEC33220461A08BD763B74B8BA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047029   (550363) от 29.08.2016
+
+Toots Thielemans - The Soul of Toots Thielemans (1959) 2010, FSR [FLAC|Lossless|tracks + .cue] <Bop, Contemporary Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are My Sunshine  05:17
+02. Nuages  05:24
+03. Five O'clock Whistle  04:37
+04. Soul  04:56(   Читать дальше...   )Жанр: Bop, Contemporary Jazz, Mainstream JazzПродолжительность: 00:41:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17D603A74ACA8FDC40D9892DB875D917B9AF2542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047188   (550362) от 29.08.2016
+
+VA - Play Emotions Vol.1 Beyond the Imagination Chill Out (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Tayla - Amazon Moon
+02. Rainbow From Rain - Deep Sea Emotions
+03. Valefim Planet - Infinity - Original Mix
+04. Valefim Planet - Morning Forest(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:11:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45FA29B77BB07D6FBCD6A5A6C316D5533F49BA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046838   (550361) от 29.08.2016
+
+Sadao Watanabe - Orange Express (1981) Remaster, 2016, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Crossover Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Orange Express [04:39]
+ 02.Ride On [04:42]
+ 03.Call Me [05:08]
+ 04.Good For All Night [06:36](   Читать дальше...   )Жанр: Post-Bop, Crossover JazzПродолжительность: 00:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30BAE24336F6E05129DE9B02F2872C87AC56F1B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047190   (550360) от 29.08.2016
+
+VA - Play Emotions Vol.3 Lounge and Chill Sweet Moments (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frank Strangio - Weather Watch (Underscore) (01:04)
+02. St Project - Open Wings (04:01)
+03. Giacomo Bondi - Across My Mind (05:55)
+04. Nemax - Saudade do Brazil (01:59)(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:18:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41AC9D2F9341E5BC6AA79AD811110D17C5D1AF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047204   (550359) от 29.08.2016
+
+VA - Ferry Corsten presents Corsten's Countdown  August (2016) [MP3|320 Kbps] <Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547189.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550359.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Office Tab Enterprise новая версия небольшой, но очень полезной утилиты. Принцип работы Office Tab относительно прост, но от этого не менее эффективен – окна открытых документов отображаются в интерфейсе офисных приложений, как вкладки открытых страниц в современных браузерах. Утилита Office Tab устраняет один из немногих недостатков пакета Microsoft Office – отсутствие (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
+01 Arty & Andrew Bayer - Follow The Light (06:46)
+02 Pierre Pienaar - Novus Vitae (Original Mix) (06:29)
+03 Rex Mundi - Skybe (Original Mix) (06:30)
+04 Sied Van Riel & Mike Sanders - Geyser (Original (07:58)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:03:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A93218466DBD88ED7B791ECF752153395660A449
+magnet:?xt=urn:btih:A7DA6FBA3E7596A84B415CF23F237D03D087EA17
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -262,27 +432,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048133   (547188) от 01.09.2016
+###  Публикация: 1046678   (550358) от 29.08.2016
 
-Алексей Абвов | Взгляд со дна (2016) [FB2]
+С. Б. Ингулов | Политбеседы (1937) [PDF]
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547188.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550358.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Четвертый роман цикла «Цифровая Пропасть».
+Коммунистические партии должны добиваться установления широчайшего единого фронта при помощи совместных действий рабочих организаций различных направлений для борьбы против войны, для защиты жизненных интересов трудящихся масс. Необходимо вовлечь в эту борьбу все организации, ставящие себе целью борьбу за мир.
 
-«Собравшихся в относительно небольшом богато украшенном помещении на одном из многочисленных океанских островов находящимся в частном владении людей узнали бы очень немногие. Их лица не показывали по головидению, интервью с ними не печатали глянцевые журналы. Некоторые специалисты, кому по должности положено, конечно, знали, (   Читать дальше...   )Жанр: Киберпанк, Книги про вампиров, ПопаданцыФормат: FB2
+Коммунистические партии должны бороться против подготовки (   Читать дальше...   )Жанр: История, политология, экономикаФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E6578FDBB4BF6B28DBC90846A9D714ACF6F7C7DC
+magnet:?xt=urn:btih:9A9D6DE85244CB3606E9A650980FADBB9E85A1BE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,25 +460,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047931   (547187) от 01.09.2016
+###  Публикация: 1047346   (550357) от 29.08.2016
 
-Леонард Млодинов | (Нео)сознанное. Как бессознательный ум управляет нашим поведением (2013) [EPUB, FB2, MOBI]
+Nadiamori - Nadiamori Electro Jazz (2005) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Lounge, Electro Swing>
 
->>Разное (категория книг)
->>Популярная психология и саморазвитие
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547187.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550357.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Все наши суждения – от политических предпочтений до оценки качества бытовых услуг – отражают работу нашего ума на двух ярусах: сознательном и неосознанном, скрытом от нашего внимания. Неповторимый стиль Леонарда Млодинова – живой, ясный язык, юмор и способность объяснять сухие научные факты так, чтобы они были понятны самой широкой аудитории – позволяет нам понять, (   Читать дальше...   )Жанр: Социальная психологияФормат: EPUB, FB2, MOBI
+01. Nadiamori (04:30)
+02. Drum'n Blues (04:50)
+03. Money Back Guarant... (05:26)
+04. Free In Love (04:58)(   Читать дальше...   )Жанр: Nu Jazz, Lounge, Electro SwingПродолжительность: 00:40:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1624942C82DC6FE3FBD8A0471AF17FB0BF60162C
+magnet:?xt=urn:btih:A4A8C059F13CFCD4A66527C3ED7EEAEEEB49F8A2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -316,25 +489,196 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048140   (547186) от 01.09.2016
+###  Публикация: 1047192   (550356) от 29.08.2016
 
-AIMP 4.10 Build 1831 Final (Upd.) + Portable [Multi/Ru]
+Летний биатлон. Чемпионат мира 2016. Отепя (Эстония). Женщины. Спринт 7,5 км (27.08.2016) WEB-DL [H.264/576p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550356.jpg" />
+</div>
+
+
+###  Подробнее
+
+27 августа 2016, суббота. 14:00 МСК
+Чемпионат мира по летнему биатлону 2016. Отепя (Эстония)
+Женщины. Спринт 7,5 кмТелекомпания: Матч! Наш спортЖанр: СпортЯзык озвучки: Русский (Руслан Гатауллин)Продолжительность: 00:57:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B239AFB50208ABF9A5659418A46F2CC86A445B41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046873   (550355) от 29.08.2016
+
+Jim Suhler and Monkey Beat - Radio Mojo (1993) [APE|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550355.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Were You When the Lights Went Outї  02:50
+02. Doncha Hang Around My Door  04:30
+03. Radio Mojo  03:31
+04. Devil's Hand  03:40(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30D59506DDF3F3745F2AFEEC43B3DF1B1863C237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309528   (550354) от 20.06.2019
+
+VA - Easy Guitar (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Acoustic>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jason Castro - Learning To Fly (Acoustic Version) 4:35
+02. Alanis Morissette - Hand In My Pocket (Acoustic Version) 4:31
+03. Stone Sour - Wicked Game (Live Acoustic) 4:27
+04. Tyler Hilton - Missing You (Acoustic Version) 3:20(   Читать дальше...   )Жанр: Pop, AcousticПродолжительность: 01:35:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB705E66E42831CF6E31444C8E2D37C881E972DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309588   (550353) от 20.06.2019
+
+VA - Night Dreams (2019) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550353.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bross (Ro) - I Hear The Drums
+002. Aava - Makes Me Cry
+003. Enduro Disco - Would Change All
+004. Djcybertsai - Expansive (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 12:59:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:069FE67839BF16FAD1BA8230ABA68C79A19A0AD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309578   (550352) от 20.06.2019
+
+Векторный клипарт - Vector Sport Collection #39 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550352.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Спорт
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E0E918431B3F3F3F57AE851C1F387BAE1179629
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309576   (550351) от 20.06.2019
+
+Векторный клипарт - Vector Professions #25 [AI]
+
+>>Материалы для мультимедиа и дизайна
+>>Векторный клипарт
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Векторный клипарт для дизайна.
+Профессии
+50 AI + PreviewФормат: AI
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0CE9E1AB378CA493FB9650AA49AE4AE71C86342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1309639   (550350) от 20.06.2019
+
+AnyMP4 Video Enhancement 7.2.20 RePack (& Portable) by TryRooM [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547186.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550350.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, и другие
+AnyMP4 Video Enhancement - Видеоредактор для повышения качества. Позволяет изменить разрешение, оптимизировать яркость и контрастность, удалить шумы, а также конвертировать видео. Кроме того, позволяет вращать видео в любых направлениях, редактировать с помощью обрезки кадра, кадрирование, добавление водяных знаков, а также конвертировать видео в 4K H.265/HEVC, 4K (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3E93513FD13D57418E3521249754E249F745CDBF
+magnet:?xt=urn:btih:54A91FEC046ADA6A8AD59D86579EF831AD19EE7C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -342,25 +686,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048116   (547185) от 01.09.2016
+###  Публикация: 1309521   (550349) от 20.06.2019
 
-Google Chrome 53.0.2785.89 Stable [Multi/Ru]
+VA - The Hottest Latino Hits (2018) [FLAC|Lossless|WEB-DL|tracks] <Latino Pop>
 
->>Архив торрентов
->>Архив Программ
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547185.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский и другие
+01.Reggaeton Latino - Travesuras (3:18)
+02.Reggaeton Latino - Mi Gente (3:05)
+03.Reggaeton Latino - Ni Tu No Yo (3:36)
+04.Reggaeton Latino - Bobo (3:31)(   Читать дальше...   )Жанр: Latino PopПродолжительность: 00:57:16
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2B33267EA2B293458E7307F9B429475A54826587
+magnet:?xt=urn:btih:423B38B7106586E768679B631623D39B830FBD2C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -368,318 +715,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048281   (547184) от 01.09.2016
+###  Публикация: 1309602   (550348) от 20.06.2019
 
-uTorrent 3.4.8 Build 42548  Stable Portable by A1eksandr1 [Ru/En]
+Bruce Springsteen - Western Stars (2019) [FLAC|Lossless|tracks + .cue] <Rock>
 
->>След.
->>Архив Программ
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547184.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550348.jpg" />
 </div>
 
 
 ###  Подробнее
 
-µTorrent — быстрый, удобный, бесплатный и компактный торрент-клиент. Клиент µTorrent, на сегодняшний день, является одним из самых функциональных решений для работы с сетью BitTorrent. Программа сочетает в себе оптимальную функциональность при небольшом размере. Поддерживает работу независимо от треккера, позволяет загружать сразу несколько файлов, имеет настраиваемую (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01. Hitch Hikin' (03:37)
+02. The Wayfarer (04:18)
+03. Tucson Train (03:31)
+04. Western Stars (04:41)(   Читать дальше...   )Жанр: RockПродолжительность: 00:50:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44B0340F2C0795CB59799515743BACEEDC3F39A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048063   (547183) от 01.09.2016
-
-Ziggurat (2016) [WiiU] [EUR] 5.3.2 [Loadiine GX2] [eShop] [En]
-
->>Консольные Игры
->>Wii U
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547183.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ziggurat - это неповторимое сочетание шутера от первого лица и исследований подземелий! Динамичные сражения! Десятки бонусов, заклинаний и врагов! Подземелья, генерируемые случайным образом! Ловушки! Боссы! Морковь! Игра представляет собой динамичный шутер от первого лица, который отдает дань классическим играм жанра, но при этом отличается современным управлением (   Читать дальше...   )Тип издания: eShopРазработчик: Milkstone StudiosЖанр: 3D, Action, FPSЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E052195330047DEAB7A52503A66658C141C318A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048217   (547182) от 01.09.2016
-
-Google Chrome 53.0.2785.89 Portable by PortableApps [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547182.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – веб-браузер от Google с открытым исходным кодом, который сочетает поддержку новейших веб-приложений, удобный поиск с высокой скоростью и стабильностью. Из особенностей браузера разработчики особенно выделяют изолированные вкладки, предотвращающие сбой и ошибки работы программы, что обеспечивает более надежную защиту от опасных сайтов.Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8359C05EDF80B73C42E8D5EF6137A4B9F2F4822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694228   (547180) от 28.08.2013
-
-The Bureau: XCOM Declassified (2013) [Ru/Multi] (1.0/2DLC) Steam-Rip R.G. Игроманы
-
->>След.
->>Архив Игр
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547180.jpg" />
-</div>
-
-
-###  Подробнее
-
-Год 1962. На посту президента — Джон Кеннеди. Из-за холодной войны нация охвачена страхом, но Америке угрожает новый враг — опаснее и коварнее коммунизма. Совершенно секретная организация под названием «Бюро», о которой знает лишь небольшая группа избранных, занимается расследованием и сокрытием таинственных атак врага из другого мира. В роли специального агента Уильяма Картера вам предстоит отдавать приказы, самому нажимать на курок и вести за собой отряд в увлекательном тактическом шутере от третьего лица. Вас ждет тайная война с неизвестным противником, а на карту поставлена судьба всего человечества. Задача «Бюро» проста — выжить, приспособиться, отразить угрозу, исходящую от врага, и защитить мирных жителей от правды. Так началась предыстория инициативы "XCOM".(   Читать дальше...   )Тип издания: Цифровая лицензия (Steam-Rip)Разработчик: 2K MarinЖанр: Action (Tactical / Shooter) / 3D / 1st Person / 3rd PersonЯзык озвучки: Русский, Английский +Multi4Язык субтитров: Русский, Английский +Multi6Язык интерфейса: Русский, Английский +Multi6
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694227   (547176) от 28.08.2013
-
-Шоссе в никуда / Lost Highway (1997) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547176.jpg" />
-</div>
-
-
-###  Подробнее
-
-Производство: Франция, СШАЖанр: Триллер, Драма, ДетективРежиссер: Дэвид ЛинчАктеры: Билл Пуллман, Патриция Аркетт, Бальтазар Гетти, Роберт Блейк, Наташа Грегсон Вагнер, Ричард Прайор, Люси Батлер, Майкл Масси, Джек Нэнс, Джек Келер, Генри Роллинз, Джованни Рибизи, Скотт Коффи, Гэри Бьюзи, Роберт Лоджа, Джон Роселиус, Луис Эпполито, Дженна Мэтлинд, Минк Стоул, Леонард Термо, Айвори Оушен, Дэвид Бирд, Джин Росс, Ф. Уильям Паркер...Перевод: Многоголосый закадровый (профессиональный)Язык субтитров: Русский, АнглийскийПродолжительность: 02:14:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D38F1589292B12972701CC5BF6BA4BD962745558
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694271   (547175) от 28.08.2013
-
-Каминный гость (2013) WEB-DLRip [720p]
-
->>След.
->>Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547175.jpg" />
-</div>
-
-
-###  Подробнее
-
-Она - прокурор; строгая на работе, угрюмая и неулыбчивая дома. Пять лез назад она потеряла любимого мужа. Однажды, вернувшись с работы, она приходит в недоумение: в вазе с цветами, которую она еще утром наполнила до краев, почти нет воды. Удивившись, вновь ее наполняет, а к утру обнаруживает, что ваза разбита. С каждым днем следы чужого присутствия в квартире доводят (   Читать дальше...   )Производство: Украина, " FILM.UA"Жанр: МелодрамаРежиссер: Анатолий МатешкоАктеры: Мария Шукшина, Андрей Федорцов, Алексей Череватенко, Ирма Витовская, Андрей Саминин, Андрей Исаенко, Андрей Дебрин, Анастасия Походенко-МатешкоПродолжительность: 01:25:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9885FCB5BD2112FA827A410F9495741F8A67ECE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694139   (547173) от 28.08.2013
-
-The Raven: Legacy of a Master Thief (Episode 2: Ancestry of Lies) (2013) [En] (1.0) License SKIDROW
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547173.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Raven — Legacy of a Master Thief — это увлекательное криминальное приключение протяженностью в три эпизода от создателей незабываемой The Book of Unwritten Tales. Полный неожиданных сюжетных поворотов, этот квест погрузит игрока в запутанную историю, вобравшую в себя все самые лучшие черты детективных романов.
-
-Париж, 1960-й год. Таинственный вор по прозвищу Ворон держит в напряжении всю Европу. Ему удается осуществлять самые немыслимые преступления, оставаясь безнаказанным. Но и на такого умелого и изворотливого злодея находится свой охотник. Молодой сыщик Николя Легранд сумел поймать Ворона и посадить его за решетку.
-
-Спустя четыре года после этих событий, жизнь Лондона потрясает грандиозная кража. Из музея пропадает рубин «Глаз Сфинкса». На месте преступления детективы находят перо (такой символ оставлял и Ворон). Неужели у легендарного вора появился последователь? Теперь следствию предстоит ответить и на этот вопрос.
-
-В это же время в Цюрихе раздается звонок. Констебль Джейкоб Зеллнер пробирается к телефону через горы бумаг. Он даже не подозревает, что лежит в банковском хранилище, расположенном всего в нескольких сотнях метрах от полицейского участка. Когда он возьмет трубку, его жизнь ждут большие перемены...(   Читать дальше...   )Тип издания: ЛицензияРазработчик: KING ArtЖанр: Adventure / 3D / 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 87715   (547168) от 28.08.2013
-
-X-Men Mutant Academy 2 [PS1] [RUS] (2001)
-
->>След.
->>PS1
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547168.jpg" />
-</div>
-
-
-###  Подробнее
-
-Герои знаменитых комиксов сошлись в смертельной битве, и теперь только вы можете решить кто из них сильнее, быстрее и по-настоящему смертельно опасен. Вас ждет множество игровых режимов, огромное количество специальных приемов у каждого персонажа, множество арен и различные схемы ведения боя!Жанр: FightingЯзык интерфейса: RUS
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 694060   (547166) от 28.08.2013
-
-В.А. Козаренко | Мнемотехника шаг за шагом [2013] [PDF]
-
->>Разное (категория книг)
->>Популярная психология и саморазвитие
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547166.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система «Джордано» направлена, прежде всего, на запоминание логически связанной информации, каковой, в частности, являются: телефонные номера и адреса, фамилии и имена, точные даты и географические названия, анекдоты и энциклопедические сведения, тексты, лекции и доклады. Тем не менее, система позволяет эффективно запоминать и логически не связанную информацию: цепочки слов, чисел, карт, буквосочетаний. Прошедшим курс тренировки становится доступной техника, с помощью которой они могут вспоминать содержание дня по дате, или, например, каждое воскресенье в прошлом году! Они могут запоминать свои сны. Они могут запомнить целую книгу и выучить новый иностранный язык быстрее, чем вы можете себе это представить. Они могут запомнить целый альбом с фотографиями и просматривать фото в своем воображении в любое время, когда пожелают. Они могут изменить свое поведение в соответствии с запомненным материалом. Их способность запоминать ограничена только их желанием запоминать.
-(   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BA5369750FFDE0DF5C2E9D3BE84E55E3CA3D385
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 693299   (547159) от 28.08.2013
-
-Fairy Tail / Сказка о Хвосте феи [2009, TV, 175 из 175] DTV 720p raw + rus (Dajana & sad_kit)
-
->>Аниме с озвучкой
->>Аниме с озвучкой (HD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547159.jpg" />
-</div>
-
-
-###  Подробнее
-
-В королевстве Фиор признанные маги объединены в множество гильдий, но для молодой  волшебницы Люси Сердоболии существует только одна – легендарная Фейри Тейл, куда она стремится попасть с начала сознательной жизни. Эта гильдия славится как силой и способностями своих магов, так и их экстравагантностью и бесконечным соперничеством между собой. В итоге магическое лекарство (   Читать дальше...   )Жанр: приключения, фэнтези, комедия, сёнэнРежиссер: Исихира СиндзиСубтитры: RUS (язык субтитров: русский), полныеФормат: MKVПродолжительность: 175 эп. по 26 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4048C7F20416B855A7F17416215B4456BFD85030
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1048287   (547156) от 01.09.2016
-
-Проекты - VideoHive - Autumn Leaves - 5739388 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547156.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд-шоу на осеннюю тематику.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2996E977B7AA99B5A0D6A41BF9DB3C0D06A312C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1047211   (547155) от 01.09.2016
-
-Digital Tutors | Introduction to Materials in Houdini (2015) PCRec [En]
-
->>Обучающие видеоматериалы
->>Дизайн, рисование (видеокурсы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_547155.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот курс Houdini разработан, как вводный, охватывающий основные принципы и методы работы с материалами и  с базовым пониманием общей терминологии Houdini, пользовательский интерфейс и элементы управления.Производство: Digital TutorsЖанр: ВидеоурокПродолжительность: 01:53:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5499383861563C72F679F727D64BDB43AACB3B67
+magnet:?xt=urn:btih:046F6EDC81A8842B32531658963AB429F23BACDC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,58 @@
+###  Публикация: 1355268   (981881) от 27.01.2020
+
+Фото на документы Профи 9.0 RePack (& Portable) by elchupacabra [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981881.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фото на документы Профи - это удобная программа для быстрой подготовки и печати фото на документы. Включает готовые форматы документов всех необходимых форматов: внутренний и заграничный паспорт, визы различных стран, удостоверения и пропуска. Она позволяет всего за несколько минут получить фотографию на документ профессионального качества. Программа имеет простой (   Читать дальше...   )Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60C08D9BC7BC6FBD2F6823A9C1FE6CA307332F41
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 971954   (981870) от 06.01.2016
+
+D'Angelo & The Vanguard - Black Messiah (2014) [FLAC|Lossless|tracks + .cue] <R'n'B, Neo-Soul, Funk>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't That Easy (4:49)
+02. 1000 Deaths (5:49)
+03. The Charade (3:20)
+04. Sugah Daddy (5:02)(   Читать дальше...   )Производство: RCA – 88875-05655-2Жанр: Funk, Neo-Soul, Blues, R'n'BПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73B920F9BBD1C4D164860D18D564C14BB174C0BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972647   (981850) от 06.01.2016
 
 Эшби / Ashby  (2015) BDRemux [H.264/1080p] [EN / EN, Fr, Sp Sub]
@@ -660,58 +715,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB3E749D90151C225DE6F4FC3E516643AA476BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 613955   (981589) от 05.02.2013
-
-Wallpapers - Various nice Wallpapers-9 [1920x1200] [JPEG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981589.jpg" />
-</div>
-
-
-###  Подробнее
-
-Various nice Wallpapers-9 [1920x1200].Разрешение файлов: 1920x1200Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD00A6B8022125165DE0BEED3026298B2FFEBFC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 614171   (981588) от 05.02.2013
-
-Wallpapers - Wallpapers Fantasy №36 (Pavel) [JPEG]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_981588.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола 50 штРазрешение файлов: 1920x1080 1920х1200 2560х1600Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1E40757C6EC4A6A7584B0691C4DD45FB6E9DA79
 ```
 
 https://mybot314.ru/tekegram_catalog/

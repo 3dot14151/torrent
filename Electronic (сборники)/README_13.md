@@ -1,3 +1,61 @@
+###  Публикация: 1487074   (1004136) от 03.08.2021
+
+VA - Trance Energy: Emotional Electro Mix (2CD) (2021) [MP3|320 Kbps] <Trance, Progressive, Uplifting>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004136.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 01:
+
+01. Blackstorm - Crystal Skies
+02. Evolving Suns Audio - Outside The Box(   Читать дальше...   )Жанр: Trance, Progressive, UpliftingПродолжительность: 11:17:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E3C33910184DC3673FD84C3A9D6DC4D22FC2F87
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1349945   (1003764) от 04.01.2020
+
+VA - Portal Transform: Psy Trance Music (2020) [MP3|320 Kbps] <Psychedelic Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003764.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dominant Space - Indigo
+002. Agent Kritsek - Transforming
+003. Eric Electric - Dance Remake Unscratched
+004. Ekahal - No Rest For The Wicked(   Читать дальше...   )Жанр: Psychedelic TranceПродолжительность: 11:02:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43D17187039E6B50E5FD455455149A5D160026D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1349900   (1003577) от 05.01.2020
 
 VA - 5oFoF: Five Years of Friends of Friends (2014) [MP3|320 Kbps] <Electronic, Trip Hop, Downtempo, Experimental>
@@ -687,64 +745,6 @@ VA - Dream Synthetic: The Relax Electronic Mix (2021) [MP3|320 Kbps] <Synthetic,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2A132BBB07B69CECE93E85DEFBEFB5F031CD2304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488399   (1002060) от 11.08.2021
-
-VA - Electro Voice: Mixtape Techno (2021) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002060.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Perdu - Dystopia feat. Tjade
-002. Meyer Bergy - Retrograde
-003. Room 99 - Breathe
-004. Boglin - Sea Kelp(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 11:35:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A84AFE0BDAA66B90E045C9B560BE7855F655A359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1488407   (1002054) от 11.08.2021
-
-VA - Jungle Cruise: Bass Sounds Music (2021) [MP3|320 Kbps] <Jungle, Drum & Bass, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002054.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dreaman - Gabriel
-002. Re8ma - My Mind
-003. The Brainkiller - To Night
-004. Ly Da Buddah - Lemon Punch(   Читать дальше...   )Жанр: Jungle, Drum & Bass, Electro BassПродолжительность: 09:13:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D6D3C2E97BC79CBF2FCFA7187309E022485A05A
 ```
 
 https://mybot314.ru/tekegram_catalog/

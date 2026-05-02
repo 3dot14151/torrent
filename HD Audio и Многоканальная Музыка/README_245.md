@@ -1,3 +1,176 @@
+###  Публикация: 1626080   (18739) от 10.05.2025
+
+Sleep Token - Studio Albums (6 releases) (2016-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Post-Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18739.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sleep Token — британская рок-группа из Лондона, Англия, образованная в 2016 году. Группа представляет собой анонимный коллектив в масках, возглавляемый фронтменом под псевдонимом Vessel.2019 - Sundowning
+2021 - This Place Will Become Your TombЖанр: Progressive Metal, Post-Metal, Indie RockПродолжительность: 04:36:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DA69DB4173949E951FB5676D6A919143CD95926
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1636878   (18737) от 10.05.2025
+
+Nemesea - Studio Albums (5 releases) (2004-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic/Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18737.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nemesea — голландская симфо-метал-группа.
+Группа была образована в 2002 году вокалисткой Мандой Опхёйс и гитаристом Хенриком Яном де Йонгом в консерватории города Гронинген.2004 - Mana
+2007 - In Control
+2011 - The Quiet Resistance
+2016 - Uprise(   Читать дальше...   )Жанр: Symphonic Metal/Alternative RockПродолжительность: 04:20:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E76DC99622A81536F818C8E1EA7B33AF356C9FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796840   (18573) от 12.05.2025
+
+Машина времени - Пой со мной! (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18573.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Откуда этот свет
+2. Здесь не жила любовь
+3. Мне снится серое море
+4. Назови хоть одну причину(   Читать дальше...   )Жанр: RockПродолжительность: 00:21:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:210FBAFFB47B6A923126539FED698E3D96ADEC1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796733   (18402) от 13.05.2025
+
+INXS - Listen Like Thieves (1985) 40th Anniversary Deluxe, 2025, Petrol Records [FLAC 24/48|Lossless|WEB-DL|tracks] <New-wave, alternative-rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. What You Need (2025 Mix) (3:37)
+02. Listen Like Thieves (2025 Mix) (3:48)
+03. Kiss The Dirt (Falling Down The Mountain) (2025 Mix) (3:56)
+04. Shine Like It Does (2025 Mix) (3:05)(   Читать дальше...   )Жанр: New-wave, alternative-rockПродолжительность: 02:39:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BCF54274A910747B0E530D37F556BEABCA5D956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1796886   (18393) от 13.05.2025
+
+Лили Иванова - Поет Лили Иванова (1968) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18393.jpg" />
+</div>
+
+
+###  Подробнее
+
+А1 Море Молодости
+А2 Трудный Танец
+А3 Венера
+А4 Без Радио Не Могу(   Читать дальше...   )Жанр: PopПродолжительность: 00:31:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E1ECC3BEEAB1160D25E5A6E945F8C2727A74B07B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797056   (18300) от 14.05.2025
+
+Олег Анофриев - Песни Из К-ф «Коллеги» и «Артист Из Кохановки» (1963) [FLAC 1.0|88.2/24|tracks|Vinyl-Rip] <Pop, Soundtrack>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18300.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Песня Из К-ф «Коллеги»
+(Ю. Левитин – Г. Шпаликов)
+02. Песня Из К-ф «Артист Из Кохановки»
+(О. Сандлер – О. Анофриев)(   Читать дальше...   )Жанр: Pop, SoundtrackПродолжительность: 00:04:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C25E8FA7CFB40B6F550B304759B97904124627B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797333   (18236) от 15.05.2025
 
 Linkin Park - From Zero (Deluxe Edition) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -571,180 +744,6 @@ Five Foot Finn - Electric Hex (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:58435A934408672691C6D78485CC7D9B97C4E3AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810310   (17448) от 03.08.2025
-
-Greg Foat & Jihad Darwish - Opening Time (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Her Love Is All I Need (5:06)
-02.  Skipping Tones (4:28)
-03.  Opening Time (3:25)
-04.  Redemption (7:05)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:424D269D50C344E0820276B509387A07BC78BBEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810311   (17447) от 03.08.2025
-
-Gutta Verse Moon - Unusual Vision (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Matter To Handle (4:09)
-02.  Dive Into The Flame (5:38)
-03.  Last Light Of The Rainbow (4:42)
-04.  Close Of The Day (5:18)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1D4BFD470C0961A606C1643F26568BE359747F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810312   (17446) от 03.08.2025
-
-Jazzy Coffee - Noir Notes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cigarette Skies (3:20)
-02.  Café Without a Name (2:32)
-03.  Coffee Stains (2:55)
-04.  Kites After Midnight (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:33:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BEE695C3AB28D2B15216648BE6989752B2C308D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810315   (17423) от 03.08.2025
-
-Lisa Price - Priceless (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17423.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Can't Hold on Forever (3:29)
-02.  Heartache (4:25)
-03.  Everywhere I Go (3:23)
-04.  No One's Business (3:35)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:23:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75B8757FB2477325676FE081DD57152AF3A10302
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810322   (17422) от 03.08.2025
-
-Tenkiller - Burn the Boats (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tennessee Hills (3:13)
-02.  If You Wanted To (3:58)
-03.  Break up Song (4:00)
-04.  Valentine (4:42)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BD30AF70045F7DA748C3B7A91CF49739A26A6B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810324   (17421) от 03.08.2025
-
-Thaddeus Moss - Strip Down (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Strip Down (4:46)
-02.  Hi (2:44)
-03.  Trust Yourself (2:51)
-04.  Lulu (3:25)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:27:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA53E90B84C90A9E8B20045729E47D0481C48080
 ```
 
 https://mybot314.ru/tekegram_catalog/

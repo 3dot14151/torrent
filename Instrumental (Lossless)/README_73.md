@@ -1,3 +1,119 @@
+###  Публикация: 1576464   (366489) от 14.09.2022
+
+The C J Smith Band - Coming Home Again (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Home Again (3:12)
+02. One Golden Dream (4:43)
+03. Riding That Train (4:40)
+04. Let the River Carry Me Home (5:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:179ACA458CE83370C3497D1DDC3F1772E5DC3FE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576458   (366488) от 14.09.2022
+
+Stone Free - Stone Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stone Free (5:15)
+02. Angel (3:58)
+03. Izabella (3:39)
+04. Little Wing (3:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4911886C3FC4BAA9E8932A2563BD942F7DCB9CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576465   (366487) от 14.09.2022
+
+The Curve - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Sinner (Remastered) (4:50)
+02. Ride My Pony (2022 Radio Edit) (3:09)
+03. I Came Alone (3:37)
+04. Dark Gospel (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:24:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B95FC70D7F857AF2A142DDCD254A6772D14EB136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1576472   (366486) от 14.09.2022
+
+The Peanuts - Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366486.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cage (4:33)
+02. Homesick (2:43)
+03. Graduate Somehow (4:17)
+04. Solitude (4:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A58DA3C29FB4B8B842D9D2B61B7294C0C83AF525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1576475   (366359) от 14.09.2022
 
 Tuomari Nurmio & Knucklebone Oscar - Believe It or Not (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -626,122 +742,6 @@ Joe Bonamassa - Royal Tea (2020) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E52253980843FBF00941AC1DB1A91683CEC3F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577947   (350298) от 21.09.2022
-
-Chris Antonik - Morningstar (2022) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350298.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waves of Stone (feat. Jarekus Singleton) 05:12
-02. Pilgrim 04:12
-03. Back to the Good 04:13
-04. Trust In Me 05:10(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:09:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA0B83D38FC9426027E9DF0C3BCA5EA1D8ABA92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200717   (349832) от 06.10.2019
-
-Big Daddy Kinsey & The Kinsey Report - 9 Albums (1985 - 1998) [FLAC|Lossless|tracks + .cue] <Funky Blues Rock, Chicago Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349832.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lester J. Kinsey Jr. (18 марта 1927 года - 3 апреля 2001 года), известный как Big Daddy Kinsey, отец Donald, Ralph и Kenneth Kinsey. Естественным и очевидным будет объединение в единую тему альбомов Big Daddy Kinsey и The Kinsey Report, тем более на всех релизах отца сыновья принимали непосредственное участие. Big Daddy Kinsey представляет последнюю миграционную (   Читать дальше...   )Список альбомов:
-1985 - Bad Situation
-1987 - Edge Of The City
-1989 - Midnight Drive(   Читать дальше...   )Жанр: Funky Blues Rock, Chicago BluesПродолжительность: 07:37:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EB7C40B878117DD57F6F1F4D07AA288BEF976F09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1418381   (349293) от 24.10.2020
-
-Shemekia Copeland - Uncivil War (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Clotilda’s On Fire                                                                                                                                                                          02. Walk Until I Ride
-03. Uncivil War
-04. Money Makes You Ugly
-05. Dirty Saint(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E77A247A9FA01507EB1C05CFA7C9AEC8A206DAB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179465   (349207) от 31.10.2017
-
-Hundred Seventy Split - HSS (2014) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_349207.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Pork Pie Hat   (04:50) 
-02.  I Never Saw It Coming   (07:58) 
-03.  Gonna Dance On Your Tombstone   (07:31) 
-04.  Let Me Go   (04:25) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FAC4C348090A09CA6F9C3C219B8377F61D941FD
 ```
 
 https://mybot314.ru/tekegram_catalog/

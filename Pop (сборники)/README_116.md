@@ -1,3 +1,119 @@
+###  Публикация: 967131   (158638) от 20.12.2015
+
+VA - Best Of 2015 - Die Hits des Jahres (2015) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158638.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ellie Goulding - Love Me Like You Do (From Fifty Shades Of Grey) (04:13)
+02. Sido - Astronaut (03:59)
+03. Felix Jaehn - Ain't Nobody (Loves Me Better) (Original Version) (03:07)
+04. Sarah Connor - Wie Schon Du Bist (03:39)(   Читать дальше...   )Производство: PolystarЖанр: Pop, DanceПродолжительность: 02:36:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D19CA770B229132457D4C4D321AB7ED375FA8AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 967361   (158352) от 21.12.2015
+
+VA - Like FM. Слушай, что нравится! (2015) [MP3|320 кб/с] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adam Lambert - Ghost Town (03:29)
+02. Imany - Don't Be So Shy (Filatov & Karas Remix) (03:11)
+03. Kygo feat. Conrad Sewell - Firestone (04:34)
+04. Gorgon City feat. Katy Menditta - Imagination (03:39)(   Читать дальше...   )Производство: SBA ProductionЖанр: Pop, DanceПродолжительность: 01:37:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6FBB87781161DADAC8E32880C22E8F4E65D40D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270168   (157699) от 19.12.2018
+
+VA - German Top 50 Official Dance Charts 14.12.2018 (2018) [MP3|320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
+02. Robin Schulz, Erika Sirola - Speechless (feat. Erika Sirola)
+03. Chic - Le Freak (Oliver Heldens Remix)
+04. Calvin Harris, Sam Smith - Promises (David Guetta Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2288DC3EAB5CE3994CFC9A62D2D9263CCEBCC310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1270502   (157487) от 19.12.2018
+
+VA - Cristmas Sexy Dance (2018) [MP3|320 Kbps] <Pop, Dance, Club>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157487.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Adrenaline Depart - Feel The Heat
+002. 7Oast And Ifl And Roomp - In Lovemotion (Original Mix)
+003. Love Junkeez - Anywhere (Radio Edit)
+004. Manuel Santini - Caliente(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 10:26:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:452EC37ED2BE4C1CEA0B701E0DA886C5D239B636
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1346754   (157481) от 20.12.2019
 
 VA - Funky Fever: Disco Mania (2019) [MP3|320 Kbps] <Disco, Dance>
@@ -629,122 +745,6 @@ VA - Начинаем отмечать! №1 (2016) [MP3|256-320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0EA392CA74AB6A52E2345D1B8B2AE8AFABBB0B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271749   (148339) от 24.12.2018
-
-VA - Новогодняя Дискотека Руки Вверх 2019! (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148339.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Руки Вверх - К чёрту эту гордость
-02. Пацаны - Я не буду писать…
-03. Турбомода - Не люблю
-04. ПОТЕХИН БЭНД - Маски(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3BC2F75F2E2F44D7897452B049781FD99D1635CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271688   (148294) от 24.12.2018
-
-VA - Shazam Хит-парад Russia Top 100 Итоговый 2018 [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148294.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. MARUV & Boosin - Drunk Groove
-002. Tom Walker - Leave a Light On
-003. Dynoro & Gigi D’Agostino - In My Mind
-004. G-Eazy - Him & I (feat. Halsey)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:50:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122C231D99EF3196B6BA1239DCF52681E04CA78C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519395   (148223) от 24.12.2021
-
-VA - Music for Speed (2021) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148223.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 220 KID feat. Lany-Stupid Feelings (Jonasu Remix)
-002. About That-Who Let The Dogs Out (feat. Evalina)
-003. ALAMPA-Stand Still
-004. Alan Walker,Imanbek-Sweet Dreams(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:34:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0958F5CAEECE2E258453F6ED12386ACA6C00DEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519433   (148167) от 24.12.2021
-
-VA - Discolandia Party 2 (2021) [MP3|320 Kbps] <Disco, Electro Disco, Remixes>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148167.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка в стиле диско никогда не выйдет из моды. Неспроста же многие ди-джеи часто создают ремиксы на популярные хиты диско. Представляем вам мега-сборник таких песен, состоящий из сотни треков диско музыки новой генерации, который несомненно понравится не только молодому поколению, но и позволит вспомнить дискотеки тех лет более зрелым слушателям.001. DJ Ross - Lupin
-002. Natasha Kitty Katt - Edgarrr!
-003. Veno - Rise Am
-004. Reece Johnson - M.A.R.S.(   Читать дальше...   )Жанр: Disco, Electro Disco, RemixesПродолжительность: 08:49:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AFBDE85A28AC79B536F399D9C1EFADA1549B639
 ```
 
 https://mybot314.ru/tekegram_catalog/

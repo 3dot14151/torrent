@@ -1,3 +1,61 @@
+###  Публикация: 1045269   (559962) от 23.08.2016
+
+VA - Sound Trance Stardust (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaimo K & Sarah Russell  -  Why Can't You Love Me (Edit)  4:05
+02. U-Mount  -  Guard (Original Mix)  6:40
+03. Amir Hussain  -  Bombshell (Extended Mix)  7:39
+04. Driftmoon & Ferry Tayle  -  Titanfall (Radio Edit)  3:51(   Читать дальше...   )Жанр: Trance, Melodic, Energy, ProgressiveПродолжительность: 04:37:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD8475AA6DEF29F071BF5174B33A0624377A7A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1304916   (559944) от 28.05.2019
+
+VA - Spring Sounds' Electro House (2019) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559944.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bolier & Trobi - In The Water
+002. Biomin H - A New Day (Original Mix)
+003. Don Paolo - Make Your Body Move
+004. Jason Rivas - Supergroove(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 09:19:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6B7226F53FCD0DF4C9110A5912C5A71A60A91D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1045343   (559833) от 23.08.2016
 
 VA - Bass House Vol.1 (2016) [MP3|224~284 Kbps] <House, Progressive>
@@ -702,64 +760,6 @@ VA - Hologram Sound (2015) [MP3|320 кб/с]<Progressive, Club House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E31D4D5A911054F266AED4C5762937989829C616
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924631   (557608) от 04.08.2015
-
-VA - Hits For Chill (2015) [MP3|320 кб/с]<Deep House, Chill House, Chill Out>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hoboken - Lampedusa Lounge (02:47)
-02. Deep Walls - Deep House Mykonos (03:49)
-03. Il Greco - Nippon Horn (02:47)
-04. Hoboken - Magaluf Lounge (03:09)(   Читать дальше...   )Жанр: Deep House, Chill House, Chill OutПродолжительность: 01:29:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2412020ECFBC537CBACE82E0B58098521594D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1305304   (557150) от 30.05.2019
-
-VA - Global Control: May Trance Party (2019) [MP3|320 Kbps] <Trance, Progressive, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557150.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Komflux - Logarithm
-002. Komflux - Hard Seek
-003. Nitrous Oxide - Avalon
-004. Caboosh - Persona Non Grata(   Читать дальше...   )Жанр: Trance, Progressive, ElectroПродолжительность: 09:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF2988DFA0CF13DD0F4DB05118036026EE635A12
 ```
 
 https://mybot314.ru/tekegram_catalog/

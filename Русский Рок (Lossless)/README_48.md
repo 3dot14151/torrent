@@ -1,3 +1,32 @@
+###  Публикация: 1513291   (225520) от 28.11.2021
+
+Ленинград - Бабье Лето (2006) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. По Пабам
+02. Любовь
+03. Карлсон
+04. Дача(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B270922D0EB29931ADB4DC8FB6813831DB763A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965209   (225133) от 14.12.2015
 
 Gorky Park (Парк Горького) - 4 Albums + 1 Compilation (1989-1998) 7CD, 1st Press [WavPack|Lossless|image + .cue] <Rock, Glam Rock, Arena Rock, Hard Rock>
@@ -715,35 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DEF6AABAA66B65571FF3C1712127C91DE0EE5DD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1559781   (213038) от 27.06.2022
-
-Кино - Чёрный альбом (1990) Remastered [FLAC 2.0|44/24|WEB-DL|tracks] <Rock, New Wave, Post-Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_213038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лето (5:55)
-02. Красно-жёлтые дни (5:49)
-03. Нам с тобой (4:50)
-04. Звезда (4:28)(   Читать дальше...   )Жанр: Rock, New Wave, Post-PunkПродолжительность: 00:48:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CC10743FE86BC63D4214084BE78FFF07B24CFE11
 ```
 
 https://mybot314.ru/tekegram_catalog/

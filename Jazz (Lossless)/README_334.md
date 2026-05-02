@@ -1,3 +1,61 @@
+###  Публикация: 1747071   (104751) от 04.09.2024
+
+Stan Getz - The Lyrical Stan Getz (1988) CBS [FLAC|Lossless|image + .cue] <Cool, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104751.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willow Weep for Me [11:22]
+02. La Fiesta [8:24]
+03. Captain Marvel [5:09]
+04. Ligia [5:23](   Читать дальше...   )Жанр: Cool, Post-BopПродолжительность: 00:45:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:992CEC679D86092508585427C62066B2F58B147D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747258   (104737) от 05.09.2024
+
+Al Cohn & Zoot Sims - Body And Soul (1973) 1997, 32 Jazz [WavPack|Lossless|image + .cue] <Cool, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104737.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Doodle Oodle [6:57]
+02. Emily [7:22]
+03. Brazilian Medley (Recado Bossa Nova / One Note Samba) [8:06]
+04. Mama Flossie [5:45](   Читать дальше...   )Жанр: Cool, BopПродолжительность: 00:47:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:368EE0DF73D5146E3E62723F67CF081DA2462327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747474   (104701) от 06.09.2024
 
 Frank Wess - Wess Point (1954) 2007, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz>
@@ -687,64 +745,6 @@ Stan Getz - The Complete Quintet Sessions (1948 - 1952) 1994, Blue Moon [WavPack
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C9B3CF3ECA705FAF5C01C5D09CE6F35C378F571
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750766   (104119) от 22.09.2024
-
-Frank Sinatra - Sinatra 80th: Live In Concert (1995) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You Are The Sunshine Of My Life [2:37]
-02. What Now My Love [2:41]
-03. My Heart Stood Still [3:29]
-04. What's New [2:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B9B8D956B3AB626781D0697CD079A8D394363F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751634   (104058) от 26.09.2024
-
-Sonny Stitt - & The Top Brass (1962) 1998, Atlantic [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Souls Valley [4:31]
-02. Coquette [3:19]
-03. On a Misty Night [4:04]
-04. Stittsie [5:57](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:35:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ADD70DD985D5AC9C73B88459DC29E593FFB8ACDB
 ```
 
 https://mybot314.ru/tekegram_catalog/

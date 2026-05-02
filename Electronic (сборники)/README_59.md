@@ -1,3 +1,61 @@
+###  Публикация: 1203588   (788120) от 02.02.2018
+
+VA - Impulse №9 - Super Music for Super Car (2018) [MP3|320 Kbps] <Club, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zedd & Grey Feat. Maren Morris - The Middle (Original Mix) 3:05
+02. Kike Puentes - Life (Original Mix) 4:23
+03. Dome Ft. Edith Brinca - I Feel Alive (Extended Mix) 3:26
+04. Paris & Simo Ft. Nikon - Glow (Original Mix) 2:56(   Читать дальше...   )Жанр: Club, HouseПродолжительность: 06:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:322932CD038E950A30CFC9FAA03DD6485DEDDBEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511743   (787811) от 23.11.2021
+
+VA - SVS Collection vol. 6 by MR.DJ (2021) [MP3|320 Kbps] <Deep House, Electro House, Other>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_787811.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обязательно для прослушивания в машине!001.  A-Mase & Sharliz - Diamonds (Radio Mix)
+002.  A-Mase & Sharliz - Say It Right (Original Mix)
+003.  A-Mase & Sharliz - Ты Не Верь Слезам (Shura Cover) (Original Mix)
+004.  A-Mase feat. NINO - Toxic (Original Mix)(   Читать дальше...   )Жанр: Deep House, Electro House, OtherПродолжительность: 13.29.32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A5EF00DBC0EC9DB3F7CDB9FF208512051B767EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1203710   (787730) от 03.02.2018
 
 VA - Empire Records - Classic House 3 (2018) [MP3|320 Kbps] <House>
@@ -687,64 +745,6 @@ VA - Chillout Hits Vol.6 (2017) [MP3|320 Kbps] <Chillout, Chillstep >
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:07B614E018B3041A6DC6F429C15FC63BD22DB696
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124103   (785942) от 10.04.2017
-
-VA - Music For Everyone - Breaks & Breakbeat Vol.5 (2017) [MP3|320 Kbps] <Breaks, Breakbeat>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785942.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. GRiZ feat. Mike Avery - The Anthem (Original Mix)
-2. Hannah Williams & The Tastemakers - Get It (CMC & Silenta Remix)
-3. Jayl Funk - Keep On Dancing (Original Mix)
-4. Marky Mark & The Funky Bunch - Good Vibrations (Original Mix)(   Читать дальше...   )Жанр: Breaks, BreakbeatПродолжительность: 01:24:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAE2C44C2A94FECD3CE7E971DA64860EDFD76C7D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124226   (785823) от 11.04.2017
-
-VA - Color Emotion Vocal In House (2017) [MP3|212-320 Kbps] <Vocal House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785823.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andrey Keyton, Sharapov - I Want Your Sou
-002. Beat Service Ft Ana Criado - An Autumn Tale
-003. BT & Senadee Feat. Dragon & Jontron - Lifeline
-004. David Guetta Vs Ryan Blyth - The World Is Mine(   Читать дальше...   )Жанр: Vocal House, ElectroПродолжительность: 07:22:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2B4BC663D8CDC92451E5B2223D4828BC6886B80E
 ```
 
 https://mybot314.ru/tekegram_catalog/

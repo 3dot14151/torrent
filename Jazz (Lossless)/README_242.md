@@ -1,3 +1,61 @@
+###  Публикация: 1072450   (244236) от 13.11.2016
+
+Gary Burton - Country Roads & Other Places (1969) 1998, Koch Jazz[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Country Roads [05:07]
+ 02.The Green Mountains [03:42]
+ 03.True Or False [01:46]
+ 04.Gone, But Forgotten [03:46](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:34:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C095CEE193FBBA27823B601D3DBA43892DE03167
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1072375   (244190) от 13.11.2016
+
+Pamela Rose & The Nate Ginsberg Trio - On the Jazzy Side of Blue (1993) [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_244190.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Three-Handed Woman
+02. Ain't-Cha Glad?
+03. Oh Grandpa
+04. No Moon at All(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:49:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14B06CFE15D926C2F7F5027DBEA4F78EEAC0F62B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1610800   (244185) от 09.02.2023
 
 VA - Ladies In Blue (1934 - 1954) 2CD, 2005, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Grover Washington, Jr. - Next Exit (1992) [FLAC|Lossless|image + .cue] <Smooth J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4500CE4EB266256A80BF69FA657E770492A07A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1633082   (243622) от 13.05.2023
-
-Harry James - 1939 (1997) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. And the Angels Sing [3:17]
-02. Indiana [2:46]
-03. Got No Time [2:39]
-04. King Porter Stomp [3:08](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30596BDFB894CF9A9F518F2E0D47ECCB8FA2544D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333699   (243621) от 26.10.2019
-
-Oscar Brown, Jr. - Between Heaven and Hell 1962 (2010) SuperBird [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mr. Kicks [2:22]
-02. Hazel's Hips [3:12]
-03. Excuse Me for Livin' [2:59]
-04. Lucky Guy [3:07](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A30268186CC475103517C60AA34A7356EFA2D83A
 ```
 
 https://mybot314.ru/tekegram_catalog/

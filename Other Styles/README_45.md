@@ -1,3 +1,206 @@
+###  Публикация: 1122749   (793507) от 06.04.2017
+
+VA - Spirit & Soul, Vol. 1 (Spiritual Yoga & Meditation Moods) (2017) [MP3|320 Kbps] <Lounge, ChillOut, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793507.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bodo Schopf - Misha (07:28)
+02. Jojo Rose - Summer (04:45)
+03. HP. Hoeger - Calm Down (05:20)
+04. El Petit Jardi - Sunlight Through Leaves (05:29)(   Читать дальше...   )Жанр: Lounge, ChillOut, New AgeПродолжительность: 02:51:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35DE897944C4F47715A374F1531762E0308FBF79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386296   (793469) от 30.05.2020
+
+The Louvin Brothers - Tragic Songs Of Life (1956) [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kentucky
+02. I'll Be All Smiles Tonight
+03. Let Her Go, God Bless Her
+04. What Is Home Without Love(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:36:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEA39C4557D2D9F7241C19E47CB494EF34C4435B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1386398   (793465) от 30.05.2020
+
+Marty Robbins - Gunfighter Ballads And Trail Songs (1959) Remastered 1999 [FLAC|Lossless|tracks] <Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Big Iron (3:58)
+02. A Hundred And Sixty Acres (1:42)
+03. They're Hanging Me Tonight (3:07)
+04. Cool Water (3:12)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:430A788DFD86FCCDB9B9BC3E1856D948C8C2BDAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012205   (793453) от 01.05.2016
+
+Henry Jackman - Первый мститель Противостояние / Captain America: Civil War (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793453.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siberian Overture (02:56)
+02. Lagos (02:10)
+03. Consequences (02:21)
+04. Ancestral Call (02:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2312EABBB59485A65EDEC90C57AB4B258FB3824F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1012203   (793443) от 01.05.2016
+
+Henry Jackman - Первый Мститель Противостояние / Captain America: Civil War (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793443.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Siberian Overture (02:56)
+02. Lagos (02:10)
+03. Consequences (02:21)
+04. Ancestral Call (02:36)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E4F8E3D13120F8533C7823726593BA90E28B149
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122210   (793430) от 06.04.2017
+
+VA, Ilan Eshkeri - Collide / Автобан (Original Soundtrack) + (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793430.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Collision (02:53)
+02. Scrap Yard (01:42)
+03. Leverage (01:50)
+04. Juliet (02:55)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 01:34:38 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F0BE5CFB191E8CB9EF052F8E0F19E0466DB921BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122646   (793428) от 06.04.2017
+
+Frank Steiner Jr. - 2 альбома (1996-2004) [APE|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793428.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ch'ien (Heaven) 8:03
+02. K'un (Earth) 8:25
+03. Chen (Thuder) 5:41
+04. Sun (Wind) 8:03(   Читать дальше...   )Жанр: New AgeПродолжительность: 02:06:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7CC1E06657E2373CFAE353BCB7402D0F69645EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1122963   (793427) от 06.04.2017
 
 Chris Conway & Ajahn Achalo - Three Jewels And A Lotus (2017) [MP3|320 Kbps] <New Age, World>
@@ -542,207 +745,6 @@ Khruangbin - Con Todo El Mundo (2018) [FLAC|Lossless|WEB-DL|tracks] <Funk / Soul
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CA93F6F11CAEFCDDCBBAFB6EC7D0551665966AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274819   (791120) от 10.01.2019
-
-Philip Wesley - Hope Endures (2012) [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791120.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Unknown (5:06)
- 02. Leaving The Darkness Behind (4:47)
- 03. Amazing Grace (4:54)
- 04. Second Chances (3:00)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0812B98000FB701D0FC89039620AB235A11EAF74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275215   (791117) от 10.01.2019
-
-Anaamaly - Fields of Light (2018) [FLAC|Lossless|WEB-DL|tracks] <New Age, Meditative>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791117.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Centering Meditation
-02. Morning Air
-03. A Peaceful Drift
-04. Cosmic Waters(   Читать дальше...   )Жанр: New Age, MeditativeПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF09B49903541118B8A2DE5F5508EB244DB66C39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275133   (791096) от 10.01.2019
-
-Greg Maroney - Secrets of the Sea (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791096.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Secrets of the Sea
-02. Reverence
-03. River of Dreams
-04. Distant Shores(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:53:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8BDC8DCC0AFB527325C3A884523DE043A1C1AAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201949   (790970) от 27.01.2018
-
-Ernesto Cortazar - Memories Of The Fall (2010) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano, Classical, Romantic>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memories Of The Fall (3:37)
- 02. Lady (4:11)
- 03. Living A Dream (3:43)
- 04. Falling Leaves (3:15)(   Читать дальше...   )Жанр: New Age, Piano, Classical, RomanticПродолжительность: 00:36:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD54449724C3E90FEC289DCEB8D7EAE430F5CAFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1202049   (790969) от 27.01.2018
-
-Neil Davidge - BRITANNIA (2018) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Amends (04:01)
-02. The Sun Will Not Rise Tomorrow (03:10)
-03. You Spoke (02:25)
-04. The Scariest Thing (02:26)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD49EE35723E09C929A2B3973375E350C99249F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201908   (790939) от 27.01.2018
-
-Noorvik - Noorvik (2018) [MP3|320 кб/с]<Post-Rock, Post-Metal, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790939.jpg" />
-</div>
-
-
-###  Подробнее
-
-[10:20] 01. Denali
-[08:06] 02. Shishaldin
-[08:35] 03. Malaspina
-[07:29] 04. Chugach(   Читать дальше...   )Жанр: Post-Rock, Post-Metal, InstrumentalПродолжительность: 00:50:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1F51C42B92237B46B287A42A5C20416149F020
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1510460   (790799) от 17.11.2021
-
-Dr. Jeffrey Thompson - Brainwave Suite: Insight & Intuition (2003) [FLAC|Lossless|tracks + .cue] <Ambient, Relax, Healing>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_790799.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insight
-02. IntuitionЖанр: Ambient, Relax, HealingПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85338CCAB87ECB692ADB79B3C521DD000B2BAB0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

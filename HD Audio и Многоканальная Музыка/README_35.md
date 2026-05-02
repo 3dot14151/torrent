@@ -1,3 +1,177 @@
+###  Публикация: 1244874   (477957) от 03.09.2018
+
+Supertramp - Even In The Quietest Moments... (1977) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477957.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Give A Little Bit (4:08)
+A2. Lover Boy (6:51)
+A3. Even In The Quietest Moments (6:27)
+A4. Downstream (4:01)(   Читать дальше...   )Производство: A&M Records - 28 600 XOTЖанр: Progressive RockПродолжительность: 00:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:949B5744F6B1DA7280E69124992821AD7D5DD7E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244958   (477742) от 03.09.2018
+
+Enigma - A Posteriori (Limited Edition, Remastered, Pink Translucent) (2018) [FLAC 2.0 24/192|image + .cue|Vinyl-Rip] <Downtempo, New Age, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477742.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Eppur Si Muove
+A2 Feel Me Heaven
+A3 Dreaming Of Andromeda
+A4 Dancing With Mephisto(   Читать дальше...   )Жанр: Downtempo, New Age, AmbientПродолжительность: 00:53:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB584EFF790C75FB825833C2AB40830F3825BC7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244921   (477738) от 03.09.2018
+
+Enigma - The Cross Of Changes (Limited Edition, Remastered, Yellow Translucent) (2018) [FLAC 2.0 24/192|image + .cue|Vinyl-Rip] <New Age, Downtempo, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477738.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Second Chapter
+A2 The Eyes Of Truth
+A3 Return To Innocence
+A4 I Love You… I'll Kill You(   Читать дальше...   )Жанр: New Age, Downtempo, AmbientПродолжительность: 00:44:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C019A4EE24A4758DD9E084ADE9997383BD6A4850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244832   (477727) от 03.09.2018
+
+Enigma - MCMXC A.D. (2018) (Limited Edition, Remastered,Red Translucent) [FLAC 2.0 24/192|image + .cue|Vinyl-Rip]  <Medieval, Ambient, Abstract, New Age>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477727.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Voice Of Enigma
+Principles Of Lust
+A2 A/ Sadeness
+A2 B/ Find Love(   Читать дальше...   )Жанр: Medieval, Ambient, Abstract, New AgeПродолжительность: 00:40:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88B4CC7EF5E3F424C401BA737C8ED6F77B1A0B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319904   (477194) от 15.08.2019
+
+Eva (Csepregi Éva, ex Neoton Familia) - Midnight (1986) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Electronic, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_477194.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Midnight
+A2 Carribean Holiday
+A3 How Do You Know
+A4 Someday You'll Be Sorry(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:46:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A767A155879B45C94EEE9D2CDCDD17E3280DCA4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1244967   (475535) от 04.09.2018
+
+Enigma - Seven Lives Many Faces (Limited Edition, Remastered, Light Blue) (2018) [FLAC 2.0 24/192|image + .cue|Vinyl-Rip] <New Age, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_475535.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Encounters
+A2 Seven Lives
+A3 Touchness
+A4 The Same Parents(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C54C16F10D4881DA39F7E927111DE48A6126A9D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1160621   (473898) от 25.08.2017
 
 Barclay James Harvest - Turn Of The Tide (1981) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
@@ -565,180 +739,6 @@ A4. Tonight (3:40)(   Читать дальше...   )Производство: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E200C30D544F3F807D2EDBB1474285307C00418B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162167   (461335) от 31.08.2017
-
-Barclay James Harvest - XII (1978) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461335.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Fantasy: Loving Is Easy (4:04)
-A2. Berlin (4:56)
-A3. Classics: A Tale Of Two Sixties (3:35)
-A4. Turning In Circles (3:32)(   Читать дальше...   )Производство: Polydor - POLD 5006Жанр: Progressive RockПродолжительность: 00:48:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13DFB3F1B800C00EBC337220436272A56DFF494D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162027   (458746) от 01.09.2017
-
-Мираж - Звёзды нас ждут (1987) [DSD2.0 (DFF)|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Disco>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458746.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Звёзды нас ждут (06:18)
-02. Видео (04:29)
-03. Электричество (04:30)
-04. Безумный мир (04:02)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:119B0A483678636826F666896191C10049CE198E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1569146   (455565) от 11.08.2022
-
-Shinedown - Studio Albums (7 releases) (2004 - 2022) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Hard Rock, Post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455565.jpg" />
-</div>
-
-
-###  Подробнее
-
-Shinedown — американская рок-группа, основанная в Джэксонвилле, штат Флорида в 2001 году Брентом Смитом (вокал), Бредом Стюартом (бас), Джасином Тоддом (гитара) и Барри Керчем (ударные).2004 - Leave A Whisper
-2005 - Us and Them
-2008 - The Sound Of Madness
-2012 - AmaryllisЖанр: Hard Rock, Post-grungeПродолжительность: 06:37:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7D23DD6DAF667EA772FC0C16774500CB38BF9AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568954   (455559) от 11.08.2022
-
-Gamma Ray (Helloween, Iron Savior, Unisonic) - Studio Albums (1990 - 2014) hand made [restored, declipped] [FLAC 2.0|44/16|tracks +.cue] <Heavy/Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_455559.jpg" />
-</div>
-
-
-###  Подробнее
-
-Gamma Ray — немецкая метал-группа, созданная в 1989 году Каем Хансеном, бывшим гитаристом и вокалистом группы Helloween.1990 - Heading For Tomorrow
-1991 - Sigh No More
-1993 - Insanity And Genius
-1995 - Land Of The FreeЖанр: Heavy/Power/Speed MetalПродолжительность: 12:16:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EE1918D93BF6902C636FB2CDFD2DE185537AA30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1060136   (454809) от 07.10.2016
-
-Richard Clayderman - 7 Albums (1978-1984) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip]<Easy Listening, Instrumental, Piano>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454809.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ballade Pour Adeline (piano et orchestre)
-02. Secret Of My Life (one)
-03. L'Enfant Et La Mer
-04. Lys River(   Читать дальше...   )Жанр: Easy Listening, Instrumental, PianoПродолжительность: 05:03:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F00D51FEE3F07827505FF8324B11EA85C66953D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163009   (454573) от 03.09.2017
-
-Rockets - Plasteroid (1979) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Space Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_454573.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Electric Delight (5:10)
-A2. Astral World (4:26)
-A3. If You Drive (4:50)
-A4. Legion Of Aliens (3:37)(   Читать дальше...   )Производство: Rockland Records - 900.500Жанр: Space RockПродолжительность: 00:36:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42E6D37D98E03BEF65A23D665C2EF3794717E9A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

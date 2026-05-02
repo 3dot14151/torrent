@@ -1,3 +1,119 @@
+###  Публикация: 1834372   (249031) от 03.11.2025
+
+The Zac Schulze Gang - Straight to It (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Rocker (3:41)
+02.  I Won't Do This Anymore (3:02)
+03.  High Roller (3:20)
+04.  Betterland (3:57)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:38:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7011A442D5DDADABB7B36698975B00692E46ECAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834357   (249030) от 03.11.2025
+
+Sean McDonald - Have Mercy! (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  My Soul (3:22)
+02.  Fakin' It (3:58)
+03.  Killing Me (5:09)
+04.  Rocking in the Same Old Boat (4:56)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63BD212E155B9D83E2BEFACA2417D00CAEEC8F4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834359   (249029) от 03.11.2025
+
+The Joel Dupuis Band - Very Best Fool (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Borrowed Time (4:03)
+02.  Mind Games (2:55)
+03.  Very Best Fool (4:03)
+04.  Big Look (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09F52773CCFDA32A5E846662C026FF6D2219E7E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1834358   (249028) от 03.11.2025
+
+Stray Dawg and the Wolves - Blues on the Inside (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Lonesome Town (4:36)
+02.  Guitar Time (3:56)
+03.  Tell Her That You Love Her (4:20)
+04.  Playin' the Blues Again (3:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:908D4166AEEB70A6D969F355CD21A4E5175245FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1834356   (249027) от 03.11.2025
 
 Scott Weis Band - Scott Weis Band XX (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -647,122 +763,6 @@ Jeremy Edge - Saints and Souls, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <Blu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13966519DD61B7BF9F34D7A9F800222579F86329
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620699   (245998) от 21.03.2023
-
-Harry Hmura - Goin’ Home (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245998.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Boogie Run (4:48)
-02. Cool Cool World (4:05)
-03. Goin’ Home (4:55)
-04. Sweet Poppy (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70DC7E018208C1CC748341D53F20BE545E47C63E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620678   (245941) от 21.03.2023
-
-Bernard Sellam & The Boyz From The Hood - Feelin' So Fine (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245941.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feelin' So Fine (2:30)
-02. You Got Me Reeling & Rocking (2:04)
-03. You Were Wrong (3:25)
-04. Midnight Hour (3:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14CB950B6848BC9569DDD481612AB37E7A58D2CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623332   (245854) от 02.04.2023
-
-Bart Ryan - Messenger (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One World (4:53)
-02. Street Corner Angel (3:31)
-03. I am a King (4:11)
-04. The Ballad of the Lizard and the Frog (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A36E4CB79097144C7D549E386301EAE147DA7B95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620307   (245705) от 20.03.2023
-
-VA - Funk, Soul & Blues Love Songs (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lionel Richie -- All Night Long (All Night) (Single Version) (6:23)
-02. Barry White -- Can't Get Enough Of Your Love, Babe (4:27)
-03. Marvin Gaye -- Let's Get It On (4:51)
-04. Mary J. Blige -- U + Me (Love Lesson) (5:00)(   Читать дальше...   )Жанр: Blues, SoulПродолжительность: 01:45:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DB77A71567334530DB2761B69ACE8F56C745394
 ```
 
 https://mybot314.ru/tekegram_catalog/

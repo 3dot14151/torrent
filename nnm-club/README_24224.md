@@ -1,24 +1,22 @@
-###  Публикация: 1750877   (104108) от 22.09.2024
+###  Публикация: 1741497   (105659) от 07.08.2024
 
-Хоккей. КХЛ 2024-2025. Локомотив (Ярославль) - Салават Юлаев (Уфа) (21.09.2024) WEBRip [H.264/1080p]
+Рождество не по плану / Noel joyeux / Christmas Unplanned (2023) WEB-DLRip
 
->>Спорт и активный отдых
->>Хоккей
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104108.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105659.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хоккей. КХЛ 2024-2025. Локомотив (Ярославль) - Салават Юлаев (Уфа) (21.09.2024)
-СУДЬИ Акузовский Николай (Тольятти, Россия) Метальников Эдуард (Россия)
-СТАДИОН «УКСК Арена-2000-Локомотив» (Ярославль) Зрителей: 7621Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:11:03
+Дети Венсана и Беатрис отменяют поездку к родителям накануне Рождества. Что за праздник без детей и внуков? Впрочем, Беатрис не против романтической ночи вдвоем, но Венсан опустошен. Он не может представить сочельник без компании, поэтому решает сделать доброе дело и приглашает одинокую бабушку из дома престарелых. Что может быть лучше, чтобы возродить дух Рождества? (   Читать дальше...   )Производство: Франция, Canal+Жанр: комедияРежиссер: Клеман МишельАктеры: Даниэль Фишо, Даниель Лебрюн, Франк Дюбоск, Эммануэль Дево, Жан Франсуа Кэйри, Фабьен Галула, Аксель Ориан, Амель Шариф, Амир Эль Касем, Доминик ФроПеревод: Многоголосый любительский (RGB)Язык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:26:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D2DE85CAE0D709C05143AC3A760BBB67606087C
+magnet:?xt=urn:btih:2E8AACA593B095956ECDF8F6C287B2B2DB13C93A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -26,27 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750872   (104107) от 22.09.2024
+###  Публикация: 1741498   (105658) от 07.08.2024
 
-Хоккей. КХЛ 2024-2025. Сибирь (Новосибирск) - Спартак (Москва) (21.09.2024) WEBRip [H.264/1080p]
+Журнал | Живу с диабетом №8 (68) (август 2024) [PDF]
 
->>Спорт и активный отдых
->>Хоккей
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104107.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105658.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Хоккей. КХЛ 2024-2025. Сибирь (Новосибирск) - Спартак (Москва) (21.09.2024)
-СУДЬИ Морозов Сергей (Электросталь, Россия) Фатеев Иван (Россия)
-СТАДИОН «Сибирь-Арена» (Новосибирск) Зрителей: 10521Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:05:35
+Журнал «Живу с диабетом» - уникальное издание, посвященное сахарному диабету. Это одно из наиболее распространенных и серьезных заболеваний эндокринной системы человека, требующее повышенного внимания больного к своему здоровью. Консультанты издания готовы ответить на самые сложные вопросы, связанные с этой проблемой, а также рассказать о самых передовых методиках (   Читать дальше...   )Жанр: ЗдоровьеИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:939B43F56EC4688FAC8DE6D186151058F3ED70E3
+magnet:?xt=urn:btih:C575341F9710A12C749DC5FEE4EA56D4CED668B3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -54,28 +50,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750977   (104106) от 22.09.2024
+###  Публикация: 1741687   (105657) от 07.08.2024
 
-Somewhereout - Providence (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Post-Metal, Post-Rock>
+Firefox Browser 129.0 Portable by PortableApps [Ru]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105657.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Somewhereout, Alba Bermejo, Begoña Ramos, Carlos Strachan - Under the Black Stars (7:13)
-02. Somewhereout, Abraham Linares - The Sword (4:31)
-03. Somewhereout - Gone (4:49)
-04. Somewhereout, Jesus Martinez, Israel Lupi - The Green Book (5:33)(   Читать дальше...   )Жанр: Post-Metal, Post-RockПродолжительность: 00:48:35
+Firefox Browser - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C603D5CE4C92ECADDC277676FCEE016FF3B79B54
+magnet:?xt=urn:btih:CB46F7488236C2D96F34200EFB0DDDA284D6BD0A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -83,28 +76,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750800   (104105) от 22.09.2024
+###  Публикация: 1741572   (105656) от 07.08.2024
 
-Asha Parkinson - Possession (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Роми / Romi (2023) WEB-DLRip [H.264/720p] [DVO] [AD]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104105.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105656.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Urban Fantasy (4:14)
-02. Distant Devotion (4:38)
-03. Mirror Image (4:40)
-04. Possession (4:42)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:37:44
+После несчастного случая на дороге молодая девушка, по настоянию влиятельной матери, вынуждена скрываться в ультрасовременном но пустующем "умном доме". Время от времени компанию ей составляет старый хозяин дома и чудаковатый парень-программист, который периодически приходит исправлять глюки цифрового помощника Роми. По непонятной причине Роми плохо воспринимает (   Читать дальше...   )Производство: Канада / Nevermine FilmsЖанр: ужасы, детективРежиссер: Роберт КаффлиАктеры: Алекса Барахас, Martin Cochingco, Shannon Leahy, Павел Кршиж, Хуан Ридингер, Jamie Shelnitz, Jocelyn ChuggПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:24:51Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA6F7A31A725413924922E65ECF165DDBBFC471C
+magnet:?xt=urn:btih:B57FDB7F06C2B898687212CB5525BE55A1B732EB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -112,28 +102,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750972   (104104) от 22.09.2024
+###  Публикация: 1741573   (105655) от 07.08.2024
 
-The Mothercrow - Foraneo (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Heavy Rock, Psych Blues Rock, 70's>
+Роми / Romi (2023) WEB-DLRip [DVO] [AD]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Остальное
+>>Фильмы с Рекламой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105655.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Standing My Ground (4:33)
-02. Howling (3:55)
-03. Danger Rules (3:49)
-04. Tumbling Down (5:47)(   Читать дальше...   )Жанр: Heavy Rock, Psych Blues Rock, 70'sПродолжительность: 00:39:07
+После несчастного случая на дороге молодая девушка, по настоянию влиятельной матери, вынуждена скрываться в ультрасовременном но пустующем "умном доме". Время от времени компанию ей составляет старый хозяин дома и чудаковатый парень-программист, который периодически приходит исправлять глюки цифрового помощника Роми. По непонятной причине Роми плохо воспринимает (   Читать дальше...   )Производство: Канада / Nevermine FilmsЖанр: ужасы, детективРежиссер: Роберт КаффлиАктеры: Алекса Барахас, Martin Cochingco, Shannon Leahy, Павел Кршиж, Хуан Ридингер, Jamie Shelnitz, Jocelyn ChuggПеревод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:24:51Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:287392B1A535E486CE1125434C3D1B3F926F30EE
+magnet:?xt=urn:btih:03C3B3D7ACEA9F95F51B02700A3B30E563CD5322
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,28 +128,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750798   (104103) от 22.09.2024
+###  Публикация: 1741485   (105654) от 07.08.2024
 
-Andreas Diehlmann Band - That Old Blues Again (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+Аркадий Бухов, Аркадий Аверченко и др. | Юмористические рассказы русских писателей (2013) [MP3, Валерий Гаркалин]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Художественные аудиокниги и публицистика
+>>Сатира, Юмор (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104103.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105654.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Whiskey Intro (1:12)
-02. Whiskey And Women (3:45)
-03. Gypsy Woman (3:37)
-04. That Old Blues Again (6:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:40
+Серия/Цикл: Антология юмора и сатиры.
+Блистательный комедийный актер, народный артист России Валерий Гаркалин читает рассказы русских писателей-сатириков и фельетонистов конца XIX-начала XX века.Жанр: Русская литература, классика, юмор, рассказИздательство: Студия «АРДИС»Продолжительность: 01:25:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B39E60AEDDB812C10FF86A9D0713430036E84A1
+magnet:?xt=urn:btih:A72DB1B71641936CB80F84F946993FF93149D782
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -170,28 +155,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750796   (104102) от 22.09.2024
+###  Публикация: 1741657   (105653) от 07.08.2024
 
-Aetherwind - Ethereal Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Pool Cleaning Simulator (2024) [Ru/Multi] (1.7.0.2.6) License GOG
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Win Игры
+>>Simulation (Other)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104102.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105653.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Aetherwind Prelude (3:29)
-02. Ethereal Wind Interlude (5:59)
-03. Ethereal Wind Postlude (4:01)
-04. Dark Skies (5:37)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:55
+Pool Cleaning Simulator предлагает в увлекательной и необычной форме познакомиться с работой чистильщика бассейнов. Вы сможете удалить загрязнения, заменить фильтры, продезинфицировать и обеззаразить бассейн, используя различные инструменты и методы. Кроме того, вы сможете настроить свой автомобиль для чистки бассейнов и исследовать различные места с бассейнами разных (   Читать дальше...   )Тип издания: LicenseРазработчик: Rubens Games, FreeMind S.A.Жанр: Приключенческие игры, Казуальные игры, Инди, СимуляторыЯзык субтитров: Русский, Английский, Французский, Итальянский и другиеЯзык интерфейса: Русский, Английский, Французский, Итальянский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:061B1985E8C561F04B77D2F06FBE0161D33EFCA4
+magnet:?xt=urn:btih:38330361791F45B76377183E7837F8EBA6815ED2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -199,28 +181,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751065   (104101) от 22.09.2024
+###  Публикация: 1741463   (105652) от 07.08.2024
 
-Eradicator - The Paradox (2024) [FLAC|Lossless|WEB-DL|tracks] <Thrash Metal>
+Максим Леонидов - Папины Песни (2011) [WavPack|Lossless|image + .cue] <Stage>
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Pop
+>>Советская эстрада, Ретро (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104101.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105652.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Beyond The Shadow's Void
-02. Drown In Chaos
-03. When The Shooting Begins
-04. Kill Cloud(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:50:30
+01. Царевна-Несмеяна
+ 02. Старый Клён
+ 03. Сядь Со Мною Рядом
+ 04. Одинокая Гармонь(   Читать дальше...   )Жанр: StageПродолжительность: 00:41:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5624CF0F3B0A135A1A005A5823827F2411202F2F
+magnet:?xt=urn:btih:B26A04F21997005784B9B3255543FAA9D98ED21B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -228,28 +210,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750811   (104100) от 22.09.2024
+###  Публикация: 1739952   (105651) от 07.08.2024
 
-Patrick Bradley - Gratitude (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz, Latin Jazz>
+Женщина французского лейтенанта / The French Lieutenant s Woman (1981) BDRip [H.264/720p] [Criterion collection]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104100.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105651.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Narrow Path (4:33)
-02. Nothin' Ain't (4:00)
-03. Road Trippin' (4:20)
-04. Gratitude (4:01)(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary Jazz, Latin JazzПродолжительность: 00:44:20
+Экранизация одноимённого романа Джона Фаулза... Англия. XIX век. Двухслойный сюжет о любовном увлечении молодого человека, состоятельного и образованного падшей женщиной и о том, как роли этих людей примеряют на себя киноактёры. Истории людей и их персонажей переплетаются, и вымышленные отношения оказываются сильнее реальных человеческих связей. Персонажи меняют (   Читать дальше...   )Производство: Великобритания / Juniper FilmsЖанр: драма, мелодрама, экранизацияРежиссер: Карел РейшАктеры: Мэрил Стрип, Джереми Айронс, Ричард Гриффитс, Пенелопа Уилтон, Хилтон МакРэй, Эмили Морган, Шарлотта Митчел, Линси Бэкстер, Джин Фолдс, Питер Вон, Колин Дживонс, Лиз Смит, Пейшнс Колльер, Джон Бэррет, Лео МакКернПеревод: дублированный, профессиональный многоголосый, любительский одноголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 02:03:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:96263EA1528EAECE565B676812DF4F3073DBB372
+magnet:?xt=urn:btih:FC3BE0C2B21C0CC21CBD68216A1856F468AD6753
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -257,28 +236,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750810   (104099) от 22.09.2024
+###  Публикация: 1741681   (105650) от 07.08.2024
 
-LeSoir - Push Back The Horizon (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive-Rock>
+Мадагаскар 2 / Madagascar: Escape 2 Africa (2008) WEB-DLRip [H.265/2160p] [Локализованная версия] [4K, SDR, 10-bit] [hand made Upscale AI]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104099.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105650.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Push Back The Horizon (5:19)
-02. Under The Stars (4:53)
-03. Fireflies (5:00)
-04. You Are The World (5:33)(   Читать дальше...   )Жанр: Progressive-RockПродолжительность: 01:08:50
+Полная опасностей жизнь на Мадагаскаре не оправдала ожиданий привыкших к комфорту Нью-Йоркского зоопарка животных - льва Алекса, зебры Марти, жирафа Мелмана и бегемотихи Глории - и друзья решают сбежать с острова. По случайности, всю компанию заносит в Африку, где Алекс встречает свою семью, с которой он был разлучен в детстве. Неожиданно для себя Алекс понимает, (   Читать дальше...   )Производство: США / DreamWorks Animation, DreamWorks SKG, Pacific Data Images (PDI)Жанр: мультфильм, комедия, приключения, семейныйРежиссер: Эрик Дарнелл, Том МакГратАктеры: Бен Стиллер, Крис Рок, Дэвид Швиммер, Джада Пинкетт Смит, Саша Барон Коэн, Седрик «Развлекатель», Энди Рихтер, Берни Мак, Алек Болдуин, Шерри ШепердПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские, английскиеПродолжительность: 01:29:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0016CCA0719DF91BEAA285EADD2E49E495901AF
+magnet:?xt=urn:btih:2EC29A8D351429FB1C08BEBFDC95332FCE2F5908
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -286,28 +262,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751045   (104098) от 23.09.2024
+###  Публикация: 1741536   (105649) от 07.08.2024
 
-Dell Solano - Músicas Autorais (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Dillion James - Heavy Keys (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104098.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105649.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Te Amo (4:17)
-02. Vou Morar no Rio (3:53)
-03. Corpo Coração (5:05)
-04. Águas Passadas (3:35)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:40:44
+01. Healing Power Of Music (2:51)
+02. Craving (3:25)
+03. Frenchmen Street (2:27)
+04. Cash Grab (3:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5404A045D3133DE9969E8EF33D663B6CB4F92B7A
+magnet:?xt=urn:btih:A97EB1F230394D7F212D2DFE5D9DA51F0EF15ABA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -315,28 +291,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751032   (104097) от 23.09.2024
+###  Публикация: 1741531   (105648) от 07.08.2024
 
-Bones Owens - Love out of Lemons (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+Cotton Wing - Nothing but Life (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104097.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105648.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Love out of Lemons (3:32)
-02. Devil Gonna Getcha (2:36)
-03. For Keeps (2:45)
-04. Get It On (2:27)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:01
+01. Smile / intro (0:58)
+02. Johnny (4:49)
+03. The Key (4:41)
+04. Lassie (4:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E152CBE7F64015ED4B5396FD88E116EE21DAF935
+magnet:?xt=urn:btih:B468B60B1D5E40F34C9AD1D522066D048C29BAEE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -344,28 +320,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751041   (104096) от 23.09.2024
+###  Публикация: 1741549   (105647) от 07.08.2024
 
-Choca Blues - The Wind (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+The Achievers - Easy Going Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104096.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105647.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Wind (4:51)
-02. Illinois Blues (4:49)
-03. Wild Ox Moan (4:29)
-04. Two Trains Running (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:04
+01. Easy Going Days (3:44)
+02. Free Hugs (4:13)
+03. 400 Rabbits (3:00)
+04. How Long (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:72E3D48D839D53BA78D4ECE64BC95222DE049660
+magnet:?xt=urn:btih:C51F57FE82260BC5D4C41CF9657EB70DCA7D43C0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -373,28 +349,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751129   (104095) от 23.09.2024
+###  Публикация: 1741553   (105646) от 07.08.2024
 
-Klaus B. Jensen - In Memory of a Great Dane - The lost recordings (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+The Honey Badgers - Shakin' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104095.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105646.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Baby, What Do You Want Me To Do? (3:26)
-02. I Want To Go (2:36)
-03. Candy Man (3:20)
-04. The Sky Is Crying (4:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:04
+01. Broken Boy Blues (4:00)
+02. Shakin' (3:33)
+03. Since You've Been Mine (5:39)
+04. Drinkin' and Thinkin' (2:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AD710740585F7F722373C03DD73E3EAB6219BB8B
+magnet:?xt=urn:btih:ECF03E1B60F53C765034503837FE6A944EC5DAD6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -402,28 +378,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751049   (104094) от 23.09.2024
+###  Публикация: 1741530   (105645) от 07.08.2024
 
-Ed Neumeister - Covers (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Blues Pickers - Night Avenue (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104094.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105645.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rocky Raccoon (5:58)
-02. Try A Little Tenderness (7:33)
-03. Black Dog (6:48)
-04. The Last Great American Dynasty (3:49)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:00:19
+01. Time (4:33)
+02. Uptown Blues (4:25)
+03. Down in Mississippi (6:25)
+04. John the Revelator (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA1E71C80624961B6F4D5EA347F747487C535AB5
+magnet:?xt=urn:btih:0D4513382FF6E99BF95A32B0CAFAA61AD275A8D1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -431,28 +407,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751053   (104093) от 23.09.2024
+###  Публикация: 1741540   (105644) от 07.08.2024
 
-Francesco Bearzatti, Stefano Risso and Mattia Barbieri - Behind Anatomy (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Jay Lang - Jay Lang and the Devil's Due (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104093.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105644.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. OneEmo (6:28)
-02. Anatomie Equilibriste (6:24)
-03. Lee's Dance (4:42)
-04. A La Guy Lombardo - More Blues - A La Guy Le Querrec (4:43)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:44:12
+01. Mississippi Bound (3:39)
+02. Preachin' Blues (3:56)
+03. My Mama Crazy (3:04)
+04. Leave My House (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:33:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B39A89303F1AE6719B501192C8F31D4496873F17
+magnet:?xt=urn:btih:07F7E5B17AC0106DCFFB123C2D583F70106E46D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -460,26 +436,139 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751218   (104092) от 23.09.2024
+###  Публикация: 1741548   (105643) от 07.08.2024
 
-Джон Банни. Алмаз режет алмаз / Diamond Cut Diamond (1912) WEBRip
+Soul.Blues - The Easy Album (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Groove 2 (5:17)
+02. Mind to Travel (5:11)
+03. Serves You Right to Suffer (7:03)
+04. Smoke on the Water (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE37862999BFBA3BD9132DEACF598032E2C0CA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741559   (105642) от 07.08.2024
+
+VA - Funky Jazz House Tunes (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Belladonna - Inspiration Zone (Belladonna Jazzy Remix) (10:43)
+02. Don Carlos - House of Blues (8:21)
+03. Ltj Xperience - Stronger (6:07)
+04. Clan Greco - Rotation (Eric Kupper Remix) (6:30)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:16:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A0B669733FB30E71700B22993CCEE63A206952B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741648   (105641) от 07.08.2024
+
+Наталья Корнева | Зачем ты вновь меня томишь, воспоминанье (2023) [MP3, Puffin Сafe]
+
+>>Художественные аудиокниги и публицистика
+>>Фантастика, Фэнтези (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105641.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Однажды в дверь учителя каллиграфии постучался новый ученик.
+К чему приведёт любовь к искусству красивого письма?" (с)Жанр: ФантастикаИздательство: Аудиокнига своими рукамиПродолжительность: 00:19:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6146A842852C26E10BD30890623199CD91D5BEEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741554   (105640) от 07.08.2024
+
+The Red Earth Blues Band - 308 Red (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Barn Find (2:44)
+02. Dumb Things (3:30)
+03. The Audition (4:08)
+04. So Old (3:15)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:46:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:583A1E7487F7F20D9B40ED47F78DB0EE18893B64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1741597   (105639) от 07.08.2024
+
+Страх / Я больше не верю в любовь / La paura / Non credo piu all amore (1954) BDRip [H.264] [MVO]
 
 >>Классика кино и Старые фильмы до 90-х
 >>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104092.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105639.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Ревнивая женушка постоянно подозревает благоверного в изменах. Тем более он частенько задерживается на работе. Она решила разоблачить его, придумав целый сценарий с переодеванием. Муж обо всем догадался, но решил подыграть ревнивице...
-В кадре имеется логотип киноархива.Производство: США / Vitagraph Company of AmericaЖанр: короткометражный, комедия, немое киноРежиссер: Вилфрид НортАктеры: Джон Банни, Флора Финч, Мэй Костильо, Уоллес Рид, Ричард Россон, Рэй Форд, Кейт ПрайсПеревод: немой с интертитрами (В. Сачков)Субтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:14:08
+Фильм на основе новеллы Стефана Цвейга "Страх"... История о муках, которые приносят измена и обман. Ирэн Вагнер, жена предпринимателя и мать двоих детей, рассталась со своим любовником. Но тени прошлого преследуют её: к ней приходит бывшая любовница её возлюбленного и начинает шантажировать. Ирэн запутывается в клубке лжи, однако, каково будет её удивление, (   Читать дальше...   )Производство: Италия, Германия / Aniene Film, Ariston Film GmbHЖанр: драмаРежиссер: Роберто РосселлиниАктеры: Ингрид Бергман, Матиас Виман, Ренате Маннхардт, Курт Кройгер, Элизе Аулингер, Эдит Шульце-Веструм, Штеффи Струкс, Аннелоре Вид, Рольф Дейнингер, Альберт Херц, Клаус КинскиПеревод: профессиональный многоголосыйЯзык озвучки: русский, английскийСубтитры: русские (на места без перевода и полные), английскиеПродолжительность: 01:22:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75611358B52DF0C2C5C4BD2DCCC08DE935C5F3A3
+magnet:?xt=urn:btih:5C58683BD80C756D77002EAA8609F7DA5362DC09
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -487,28 +576,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751130   (104091) от 23.09.2024
+###  Публикация: 1741560   (105638) от 07.08.2024
 
-Lady Adrena - Recipe For The Blues (Deluxe Edition) (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+VA - Ultimate Unforgettable Smooth Lounge Vacation Playlist to Relax and Recharge (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104091.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105638.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blues Chose Me (3:37)
-02. Borrow My Pans (2:55)
-03. Traveling Woman (3:34)
-04. Good Girl Gone Bad (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:21
+01. Chillaxing Jazz Kollektion - One Hundred Ways (4:02)
+02. Chillaxonic - Call of the East (4:16)
+03. Kool&Klean - Dream with Me (4:39)
+04. eJazz Artistry - Story of My Life (5:06)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:59:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ACF75FD3ED6F83EC908CB213EF51968AFFE72440
+magnet:?xt=urn:btih:54353F7BF56D6E84A1538C8D25FDD58B4D4DBE00
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -516,28 +605,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751043   (104090) от 23.09.2024
+###  Публикация: 1741518   (105637) от 07.08.2024
 
-Dear Robin - Timebound (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+Депрессия моего мужа / Милый впал в депрессию / Tsure ga utsu ni narimashite (2011) BDRip [H.264] [JP RU / Sub]
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Зарубежное кино
+>>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104090.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105637.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Good Times (4:46)
-02. Timebound (4:14)
-03. Flower (5:26)
-04. Breakout (4:40)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:39
+Пять лет назад Харуко вышла замуж за Микио. Он работает в технической поддержке IT-компании, а она рисует мангу, которая, правда, успеха не имеет. Над их семейным очагом постепенно сгущаются тучи — нервная работа вгоняет Микио в депрессию, он теряет настроение, аппетит и интерес к жизни. Врач советует ему бросить такую работу, иначе последствия могут быть непредсказуемы. (   Читать дальше...   )Производство: Япония / Central Arts, CineMove, Gentosha...Жанр: драмаРежиссер: Киёси СасабэАктеры: Аои Миядзаки, Масато Сакаи, Мицуру Фукикоси, Кандзи Цуда, Юта НаканоПеревод: нетЯзык озвучки: японскийСубтитры: русские (Пеликан), английскиеПродолжительность: 02:01:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50978BDF63C154A6799FC2CD53D9E5E824166639
+magnet:?xt=urn:btih:4B53EDF747528B4F775BE7C036769122340215F2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -545,28 +631,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751132   (104089) от 23.09.2024
+###  Публикация: 1741561   (105636) от 07.08.2024
 
-Lovesick - Remember My Name (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+VA - Unforgettable Ultimate Smooth Jazzy Vacation Playlist to Relax and Recharge (2024) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Chill Out, Smooth Jazz>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104089.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105636.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Until I'm Done (3:37)
-02. Remember My Name (2:50)
-03. You And I (2:55)
-04. Goin' Back For More (2:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:31
+01. Konstantin Klashtorni - By the Bay (4:23)
+02. Chillaxonic - Call of the East (4:16)
+03. Chillaxing Jazz Kollektion - Butterfly (5:07)
+04. Love Suggestions - Little Talks (4:59)(   Читать дальше...   )Жанр: Lounge, Chill Out, Smooth JazzПродолжительность: 01:59:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97EEAD30AD30F250D703C9E50D80AF67DCCD673A
+magnet:?xt=urn:btih:F28AD53C8CC2476F7B6C6ABD1033021FCB8982AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -574,28 +660,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751062   (104088) от 23.09.2024
+###  Публикация: 1741547   (105635) от 07.08.2024
 
-Herb Alpert - 50 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Contemporary Jazz>
+Smoke Stack Rhino - The Mojo Dojo (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104088.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105635.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dancing Down 50th Street (2:19)
-02. Sh-Boom (2:17)
-03. Are You Lonesome Tonight? (4:27)
-04. Baubles, Bangles And Beads (3:30)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:32:07
+01. Til' The Day (4:18)
+02. Funky Tonight (4:33)
+03. Fly Away (5:19)
+04. Brother (4:59)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:34:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32A884C63C787BDE630CD8633B9978A3579C0990
+magnet:?xt=urn:btih:B920C0D1D6B3697764538783C118F95D95EC20E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -603,143 +689,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751058   (104087) от 23.09.2024
+###  Публикация: 1741543   (105634) от 07.08.2024
 
-Greg Izor - Sustained Winds (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+Preservation Blues Band - Comin Home (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104087.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105634.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Go Ahead On (2:37)
-02. Untrue (2:42)
-03. Here On Ice (5:48)
-04. Lies Of Omission (2:25)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:40
+01. Can You Hear the Angels Callin (2:50)
+02. Comin Home (3:19)
+03. Meet with Me Tonight (3:00)
+04. Maybe Someday (6:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81915F1E6FAEA46E6B47D1DA905C5DC365701E02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751147   (104086) от 23.09.2024
-
-Doomsday Outlaw - Hard Times (Redux) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hard Times (5:56)
-02. Over and Over (3:37)
-03. Spirit That Made Me (5:21)
-04. Into The Light (3:39)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3674980C6FD30EF1D3A7AB61136EA3AB84666038
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751060   (104085) от 23.09.2024
-
-Hard-on Blues - Hard-on Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Precious vicious (3:49)
-02. Thank you. (3:57)
-03. Sunday Morning Mood (4:00)
-04. You turn me on (3:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECE8BE8E9816A5B8003CE7CB4D8F7707B984060F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751151   (104084) от 23.09.2024
-
-Duo Holistique - FUTURISTIQUE (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz Fusion & Jazz Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le jour se lève (6:31)
-02. Bienvenue dans le club progressiste du futur (6:18)
-03. Hymne pour l'avenir (4:09)
-04. Le silence en dit plus que mille mots (9:36)(   Читать дальше...   )Жанр: Jazz Fusion & Jazz RockПродолжительность: 01:22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C373E69F8DBAAED3680DAF47583339D857CB783D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751191   (104083) от 23.09.2024
-
-Хоккей. КХЛ 2024-2025. Ак Барс (Казань) - ХК Сочи (Сочи) (22.09.2024) WEBRip [H.264/720p]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104083.jpg" />
-</div>
-
-
-###  Подробнее
-
-Хоккей. КХЛ 2024-2025. Ак Барс (Казань) - ХК Сочи (Сочи) (22.09.2024)
-СУДЬИ Кочетов Евгений (Россия) Кулаков Сергей (Тверь, Россия)
-СТАДИОН «Татнефть Арена» (Казань) Зрителей: 8223Телекомпания: КХЛ ТВЖанр: Спорт. ХоккейЯзык озвучки: русскийПродолжительность: 02:23:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:562A314395065F8BA5860CF6AA30C8A22A3287DE
+magnet:?xt=urn:btih:7038C1E148F66C43F116C600EFCA3400E8EC7C75
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 559301   (407533) от 14.10.2012
+
+VA - FreeFall Again (2012) [MP3|320 кб/с]<Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Senadee - Life Support Machine (16 Bit Lolitas Remix) 08:36
+02. Roby K & Flashtech - Gravity (Original Mix) 07:36
+03. S.T.E.R.N - Seems Forever (Original Mix) 07:45
+04. Sergey Shabanov - Again (Original Mix) 08:10
+05. Snatt & Vix & Neev Kennedy - At The End Of The Day (Sied Van Riel Remix) 07:10
+06. Skyre & 4Frame - Stranded In La (Original Mix) 09:07
+07. Spark7 - Pick-Me-Up (Original Mix) 07:48
+08. Sash - Life Is A Beach 03:51
+09. Solid Stone - Surge 07:13
+10. Spark - Clouds Come (Original Mix) 08:34(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AFB9988C2C8DF2526B95EE7C36A6A9BB2A9F4E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559343   (407474) от 14.10.2012
+
+VA - Dubstepium vol. 4 (2012) [MP3|320 кб/с]<Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_407474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3dNow - I will kill you
+02. Enigma Dubz - Badness
+03. Eboxyde - Fuck The Code
+04. Rekoil - Odd Maneuvers
+05. Current Value - Indivisible Force
+06. Kannamix - Consensual Rape
+07. Tom Hangs ft. Shermanology - Blessed
+08. Mantis - Hoodshit
+09. Oskilator - Kong
+10. Pyramid Juke - Maybe(   Читать дальше...   )Жанр: DubstepПродолжительность: 01:25:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6274EE89B051271CEA1C5CD628BE59FE7DABB8DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1326041   (407426) от 18.09.2019
 
 VA - Seclusion: Techno Electronic Party (2019) [MP3|320 Kbps] <Techno>
@@ -737,64 +807,6 @@ Alphaville - 25 Best Songs (2012) [MP3|243 - 320 кб/с]<Synthpop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E6927DEAD487AEB1542D5D0070875ABBC5C84F0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169486   (403142) от 27.09.2017
-
-VA - Deep House Collection Vol.137 (2017) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403142.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 1Kilo - Deixe Me Ir (Bruno Be, Monkeys, Eternal Soul Remix) 5:20
-02. Alexander Orue & Sharapov - Never Give Up (Original Mix) 5:23
-03. Alex Kenji - 'Cause It's Cool (Original Club Mix) 5:29
-04. Alex Niggemann - Luminance (Daniel Bortz Remix) 7:02(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 13:53:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33FB3F9DD173FCAA438F81DA5A04DA7BCF990EF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169385   (403116) от 27.09.2017
-
-VA - Music For Racing (2017) [MP3|320 Kbps] <Hands Up, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_403116.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Rednex - Cotton Eye Joe (C. Baumann Hands Up Remix)  4:41
-002.  DJ D-Rave vs. Ravergizer feat. Sakura - Trust Yourself (Marc Kiss Remix)  5:18
-003.  Loona - Summer Of Love (Dance Style Extended Mix)  4:57
-004.  Sia - Move Your Body (Alan Walker Remix)  3:38(   Читать дальше...   )Жанр: Hands Up, Club, DanceПродолжительность: 07:32:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:564EA5ADEBF156D9D54432025BAF4E53D8E6ED28
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1598480   (162648) от 19.12.2022
+
+Balls Gone Wild - Stay Wild (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162648.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Killing One (03:14)
+02. Hangman (04:05)
+03. School on Fire (04:45)
+04. Feel My Love (03:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B63ABCD78AFCB717BF28BC51D068E63FB67A4FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598578   (162640) от 19.12.2022
+
+Cirkus Prutz - Blues Revolution (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Revolution (04:08)
+02. Boogie Woogie Man (03:34)
+03. Modern Day Gentleman (03:16)
+04. Let's Join Hands (03:48)(   Читать дальше...   )Жанр: Hard Rock, BluesПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DBFBF296B294EFDB3BB956F00DE6A6574C08C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1598505   (162626) от 19.12.2022
+
+Sonic Dynamite - Another World (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tempestate 02:49
+02. Bread & Circuses 04:43
+03. Another World 05:08
+04. Distant Lands 06:23(   Читать дальше...   )Жанр: Melodic Hard Rock, Heavy MetalПродолжительность: 00:56:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDA78EE8231D1A4C75B753D1CA60765CBB218CBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673913   (162624) от 04.11.2023
+
+Acceso Norte - Shadows of Pain (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_162624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasted Time (4:07)
+02. Duro y con Placa (4:10)
+03. Depredador (5:26)
+04. Déjà Vu (5:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D4BFB2381D2DB273D33EF35BA023F9A47AB9261
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1598423   (162621) от 19.12.2022
 
 Black Hornet - Remove Before Flight (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,125 +745,6 @@ Jared James Nichols - 3 Albums (2014-2023) [FLAC|Lossless|image + .cue|tracks + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:010D5A62BD6D65171CEB40EA82498984669C412E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159460   (158733) от 12.11.2023
-
-Pretty Maids - 22 albums, 48 CD (1983-2023) Discography [FLAC|Lossless|image + .cue] <Hard'n'Heavy>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158733.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pretty Maids — легендарная датская рок-группа, была создана гитаристом Кеном Хаммером и вокалистом Ронни Аткинсом в 1981 году в Хорсенсе, Дания. Позднее к ним присоединились гитарист Пит Коллинз, басист Джон Дарроу, клавишник Алан Оуэн и барабанщик Фил Мурхэд. Стиль группы можно определить как достаточно мелодичный, с использованием клавишных, мелодик хэви-метал, (   Читать дальше...   )--------------------------
-
-01. Trinity (4:30)
-02. Ode To A Madman (4:33)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'Heavy |Продолжительность: 38:16:36 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B207526106A6A49ED5589D72423DAA4DCF8413D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967394   (158682) от 20.12.2015
-
-Kingdom Come - In Your Face (1989) Japanese Edition, 2013,  Polydor [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158682.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Do You Like It [03:39]
-02. Who Do You Love [04:16]
-03. The Wind [05:01]
-04. Gotta Go (Can't Wage A War) [04:24](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62E69D8E0836422A832706A84E3D9F6A89DCE026
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 853552   (158023) от 26.12.2014
-
-Deep Purple - Machine Head (1972) /1987, Warner Bros. Records/ [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158023.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.	Highway Star	6:05
-2.	Maybe I'm A Leo	4:51
-3.	Pictures Of Home	5:03
-4.	Never Before	3:56
-5.	Smoke On The Water	5:40
-6.	Lazy	7:19
-7.	Space Truckin'	4:31Жанр: Hard RockПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EECFB95CE6751C370E791B9AE9040FA2BC6991AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346592   (157883) от 20.12.2019
-
-Mastedon - 3 альбома Collection (1989-2009) [FLAC|Lossless|image + .cue] <Melodic Hard Rock/AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157883.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-1989-It's A Jungle Out There! (Remastered 2009)
-1990-Lofcaudio
-2009-Mastedon 3Жанр: Melodic Hard Rock/AORПродолжительность: 02:37:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EA1EDC4D005B2EE8F7F6A47B0C2AF768898FF30
 ```
 
 https://mybot314.ru/tekegram_catalog/

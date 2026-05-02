@@ -1,3 +1,32 @@
+###  Публикация: 1666064   (178929) от 05.10.2023
+
+Alexey Teplykh - Different Styles (2023) [MP3|320 Kbps] <Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Simply the Best Hit [00:04:56]
+02 - Through the Flickering Stars [00:04:41]
+03 - From the Morning to the Dark [00:04:11]
+04 - Lonely Moon [00:03:53](   Читать дальше...   )Жанр: SynthpopПродолжительность: 00:28:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6C833B48E9FD29EB0ED2EBA688F6178E9F23C1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1666218   (177438) от 07.10.2023
 
 Telex - Telex I-III (2022-2023) [MP3|320 Kbps] <Disco, Synth-pop, House, Techno>
@@ -716,35 +745,6 @@ Laserdance - Discovery Trip (1989) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:203A05EAD67C8EA34BA73DAF3F288BFCCFCE6594
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697262   (118955) от 06.02.2024
-
-Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shotgun (Into The Night) (Remix)
-02.  Battle Cry (Remix)
-03.  You & Me (Remix)
-04.  Mars Invaders (Remix)(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D41F526634D89D9132DCE42476A8905107D6FA6E
 ```
 
 https://mybot314.ru/tekegram_catalog/

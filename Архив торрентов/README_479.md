@@ -1,3 +1,58 @@
+###  Публикация: 1088655   (951909) от 03.01.2017
+
+Human Factor - Homo Universum (2016) [FLAC|lossless|image + .cue] <Progressive rock, Space rock, Instrumental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond The Event Horizon (07:31)
+02. Fifth Dimension (06:55)
+03. 145 Billion (05:58)
+04. Abandonded Devastated (06:25)(   Читать дальше...   )Жанр: Progressive rock, Space rock, InstrumentalПродолжительность: 00:50:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FF2CA442B915E9FD2B816BC68D3AFF7EDAA2A58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1089192   (951894) от 03.01.2017
+
+Морис Ришар / Maurice Richard (2005) HDTV [H.264/1080i-LQ]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951894.jpg" />
+</div>
+
+
+###  Подробнее
+
+Морис Ришар — легенда НХЛ и мирового хоккея, играл в «Монреаль Канадиенс». За его спокойной внешностью обычного человека скрывались твердость, страсть и сверхъестественный талант, которые и превратили молодого игрока в Ракету (как его называли болельщики). Хотя его таланта и умений и было достаточно для того, чтобы попасть в Монреаль Канадиенс, частые травмы стоили (   Читать дальше...   )Производство: Канада / Cinémaginaire Inc., Alliance Atlantis Vivafilm, DesjardinsЖанр: Драма, Биография, СпортРежиссер: Шарль БинамеАктеры: Рой Дюпюи, Жюли ЛеБретон, Шон Эйвери, Винсан Лекавалье, Стефан МакХатти, Тони Калабретта, Филип Крейг, Тедд ДиллонПеревод: Многоголосый закадровый, профессиональный (Матч HD)Субтитры: ОтсутствуютПродолжительность: 01:55:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44E2ECF41A669EEB981EF2B4F5C347B11FF58FDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 857941   (951876) от 09.01.2015
 
 VA - Superluminal (Compiled by Therapist) (2013) [FLAC|Lossless]<Psybient, Downtempo, Ambient>
@@ -672,63 +727,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32577694D550B8B3479372597DD99234F2A205A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981587   (951682) от 01.02.2016
-
-Metadatics 1.5.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951682.jpg" />
-</div>
-
-
-###  Подробнее
-
-Metadatics является мощным и продвинутым редактором аудио метаданных. Поддерживает пакетное редактирование наиболее распространенных типов аудио файлов, включая MP3, M4A, AIFF, WAV, FLAC, APE, OGG, WMA, и многие другие.
-
-Metadatics предоставляет возможности поиска метаданных из интернет-источников, переименование файлов на основе метаданных, или манипулировать метаданными, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 30 января 2016Разработчик: Mark VerstraeteПоддерживаемая ОС: OS X 10.6.6 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28487B20866CF16F86F2117588B22215CC9E3130
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 981596   (951679) от 01.02.2016
-
-Coming Soon!!! - The Album (2016) [MP3|320 кб/с] <Psy-Trance , Progressive Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_951679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anti Social Media (feat. Bryan Kearney) (7:20)
-02. Ghetto Rebels (6:50)
-03. Instant Rush (6:21)
-04. Prism (5:58)(   Читать дальше...   )Жанр: Psy-Trance , Progressive Psy-TranceПродолжительность: 01:00:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED908C519F60C9931EB3230448ED489AE46371F6
 ```
 
 https://mybot314.ru/tekegram_catalog/

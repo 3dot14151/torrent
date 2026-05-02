@@ -1,3 +1,61 @@
+###  Публикация: 1273389   (800572) от 01.01.2019
+
+Deep Purple - Love Conquers All (Greatest Ballads) (2019) [MP3|320 Kbps] <Hard Rock, Classic Rock, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Conquers All
+02. When A Blind Man Cries
+03. Fortuneteller
+04. Lalena(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, RockПродолжительность: 00:56:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC4317ED698AF5B25D13FF44F3A0907AD7F380A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1385164   (800393) от 23.05.2020
+
+Павел Карачин - Вавилон (2020) [MP3|256 Kbps] <Punk, Necessary, Экспрессивная Мелодекламация>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800393.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.1 Вавилон
+1.2 Время
+1.3 Бури песнь
+1.4 Беглец(   Читать дальше...   )Жанр: Punk, Necessary, Экспрессивная МелодекламацияПродолжительность: 01:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F73D19495A327E8E54A2013EC04C7EE55402B3A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1120760   (800386) от 02.04.2017
 
 VA - Metal Collection (2017) [MP3|320 Kbps] <Metal>
@@ -687,64 +745,6 @@ VA - 50 Best of Rock 2018 (2019) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A74AAADFA5A82D972F9B25498909AE6DA8B5AE9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1387576   (791259) от 02.06.2020
-
-VA - Rock Driver: Old Classic Rock (2020) [MP3|320 Kbps] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791259.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Neil Young With Crazy Horse - Danger Bird
-02. Alice Cooper - School's Out
-03. The Bunnymen - Lips Like Sugar
-04. Montrose - I Got The Fire(   Читать дальше...   )Жанр: Classic RockПродолжительность: 03:51:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80BEEC40EBB092A03CD5D4FB6C3A9DFD6C93739F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1275142   (791030) от 10.01.2019
-
-VA - Melodic Soft Rock (2019) [MP3|320 Kbps] <Melodic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791030.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 10cc - The Things We Do For Love
-002. Belinda Carlisle - Heaven Is A Place On Earth
-003. Eric Carmen - Hungry Eyes
-004. Kenny Loggins - Danger Zone(   Читать дальше...   )Жанр: Rock, Soft RockПродолжительность: 07:54:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0492BFC43356EB2D81506B0C3506D3E6F3D0A2A0
 ```
 
 https://mybot314.ru/tekegram_catalog/

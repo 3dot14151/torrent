@@ -1,3 +1,61 @@
+###  Публикация: 1394996   (758854) от 08.07.2020
+
+Phil Woods - Musique Du Bois 1974 (2002) 32 Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758854.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Samba du Bois [7:02]
+02. Willow Weep for Me [10:12]
+03. Nefertiti [8:27]
+04. The Last Page [9:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:880768954C085B2C78C2A84BD27A3A8314C5D6DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394997   (758852) от 08.07.2020
+
+The Bill Evans Trio - Quiet Now 1969 (1994) Charly Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758852.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Very Early [5:10]
+02. Sleeping Bee [4:49]
+03. Quiet Now [5:26]
+04. Turn Out of the Stars [4:56](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:30:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30379C3819F75D93AD701655B92DEC2949DC744F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1280767   (758815) от 04.02.2019
 
 Les Doigts De L'Homme - 1910 (2010) Cristal Records [FLAC|Lossless|tracks + .cue] <Swing, Gypsy>
@@ -691,61 +749,6 @@ Kenny Burrell - Bluesin' Around (1961, 1962) 2017, Sony Music [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A724CA4682180A4BFD53AD1B1FDF2B81A9EC16F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215898   (754775) от 28.03.2018
-
-Chiara Civello - Canzoni (2014) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Via con me (3:49)
-02. Io che non vivo senza te (feat. Gilberto Gil) (3:34)
-03. Con una rosa (4:25)
-04. Que me importa el mundo (4:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:03:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048983557848C0BCD50C3B79BB3D51995E34D053
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018800   (754014) от 21.05.2016
-
-VA - Swingers (2CD) (1997) [FLAC|Lossless|tracks + .cue] <Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, SwingПродолжительность: 01:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6BA850A0A882833A7BF75F130BDAD082D638329
 ```
 
 https://mybot314.ru/tekegram_catalog/

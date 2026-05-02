@@ -1,3 +1,61 @@
+###  Публикация: 1368972   (905709) от 22.03.2020
+
+Jeff Golub - Do It Again (2002) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cut The Cake
+02. On The Beach
+03. Cruisin'
+04. Jesus Children Of America(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 46:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECAE0CE81BE94826CDB560AF4C490FD3F2009856
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1369159   (905696) от 22.03.2020
+
+Jeff Golub - Dangerous Curves (2000) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dangerous Curves
+02. Droptop
+03. Another Friday Night
+04. Mister Magic(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97796A37457F0E9099036696FDE0F80B96B26ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369043   (905649) от 22.03.2020
 
 Quincy Jones - Four Classic Albums Plus 1953 - 1961 (2013) 2CD, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
@@ -687,64 +745,6 @@ Rumer - The Magic of Sarah Joyce (2017) [FLAC|Lossless|tracks + .cue] <Vocal Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D192C462943F1C2CFF3D0FB1EE94EDE5D520DBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100056   (901490) от 03.02.2017
-
-Eight O'Five Jive - Swing Set (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jump Blues, Swing, Female Vocal>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901490.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Make Mine A Double
-02. Ragged
-03. Get Away
-04. Put It Back(   Читать дальше...   )Жанр: Jump Blues, Swing, Female VocalПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13E1FB4816090AAEB99F28F32B3A5E08C150CC68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100123   (901130) от 03.02.2017
-
-Scott Bradlee's Postmodern Jukebox - Squad Goals (2016) [FLAC|Lossless|WEB-DL|tracks + .cue] <Vocal Jazz, Swing, Vintage, Jazz-Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_901130.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.MMMbop (feat. Kenton Chen, Luke Edgemon, Matt Bloyd & Mario Jose) (3:39)
-2.Toxic (feat. Melinda Doolittle) (4:47)
-3.Dancing In the Dark (feat. Von Smith) (3:30)
-4.Black Hole Sun (feat. Haley Reinhart) (4:31)(   Читать дальше...   )Жанр: Vocal Jazz, Swing, Vintage, Jazz-PopПродолжительность: 00:56:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5955034A1974473B7DBD2CE2E376CF298E875386
 ```
 
 https://mybot314.ru/tekegram_catalog/

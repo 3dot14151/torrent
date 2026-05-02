@@ -1,3 +1,61 @@
+###  Публикация: 1719854   (110466) от 01.05.2024
+
+Jazzlamic Jihad (The Hard Bop Holy War) - Forbidden Expression (1994) Ratamacue Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110466.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nadroj [5:54]
+02. Hotline [5:46]
+03. Under the Moon [6:24]
+04. Yellsker Bellsker [5:40](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:49:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C6C5B191519134ABB3ECDEF73BFD22FE3B992BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719490   (110460) от 01.05.2024
+
+Judy Garland - That's Entertainment! (1960) 1987, Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. That's Entertainment [2:31]
+02. Who Cares (As Long as You Care for Me) [1:32]
+03. I've Confessed to the Breeze (I Love You) [3:08]
+04. If I Love Again [2:42](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:31:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:047CB38AEA6EE4F5809A8C4E1B3E59C9F7A5D54E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1719620   (110458) от 01.05.2024
 
 Dave Brubeck - Blue Rondo: The 1987 Dave Brubeck Quartet (2000) Concord Jazz [FLAC|Lossless|tracks + .cue] <Cool>
@@ -687,64 +745,6 @@ VA - Smooth Soul (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Soul>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8600AA82B5349BECFD7222C05FF1011C61B21013
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722158   (109753) от 10.05.2024
-
-VA - Modern Funk (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109753.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ltj Xperience - Don't Let The System  Get You Down (Regrooved Mix) (7:33)
-02. Les Jeux Sont Funk - Take Me To The Top (5:29)
-03. Bebo Best - Uncle T Boogie (3:27)
-04. Lainz - Sfrombolus (Gaudi Cosmic Remix) (6:05)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 02:04:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BD80059502420E9162837565684B41CD72C7A5BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1722165   (109751) от 10.05.2024
-
-VA - Acid Jazz Beats & Breaks Vol. 2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Acid Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109751.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vito Lalinga (Vi Mode Inc. Project) - Bua (4:09)
-02. S-Tone Inc. - Get Freaky Now (feat. Marlon) (Acid Jazz Mix) (5:25)
-03. The Funk Soul Brothers - Love Jazz Funk Bla Bla Bla (3:50)
-04. Ltj Xperience - Best Life (7:39)(   Читать дальше...   )Жанр: Acid JazzПродолжительность: 01:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:817FEAB98020F214DF0B54CB10159E00CADC0480
 ```
 
 https://mybot314.ru/tekegram_catalog/

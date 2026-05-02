@@ -1,3 +1,32 @@
+###  Публикация: 912609   (610773) от 26.06.2015
+
+Curtis Mayfield - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk / Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610773.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Little Child Runnin' Wild (5:25)
+02.  Pusherman (5:04)
+03.  Freddie's Dead (5:28)
+04.  Junkie Chase (1:39)(   Читать дальше...   )Жанр: Funk / SoulПродолжительность: 01:02:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F31B5CF030BD39C2B03E185AA8C10D9073F7ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 912515   (610767) от 26.06.2015
 
 The Curtis King Band - Steam Train Blues (2015) [MP3|320 кб/с]<Blues Rock>
@@ -716,35 +745,6 @@ Delta Deep - Delta Deep (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59482857D13327DAFD19F2D640568A7AAD9271FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1150141   (596616) от 13.07.2017
-
-Davey And The Blu Dog - Wake up Call (2017) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Just One More (07:06)
-02. Get On Home (05:14)
-03. My Two Uncles (05:47)
-04. My Dog Drives Me Crazy (07:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:07:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AFB2BC88A8E07751DAB804F7E14A28EF0AD7F79
 ```
 
 https://mybot314.ru/tekegram_catalog/

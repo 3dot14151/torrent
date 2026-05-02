@@ -1,3 +1,29 @@
+###  Публикация: 682745   (629582) от 23.07.2013
+
+Шаблоны - GraphicRiver - 10 Photorealistic Logo Mock-Ups / Set 2 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_629582.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 Фото реалистических, чистых и минимальных лого макетов (Set 2). Идеально подходит для улучшения элегантной презентации ваших логотипов.Формат: PSDРазрешение файлов: 2300x1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B9288CC6804B655E89A2FDB811B476B107C88EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 682493   (629432) от 23.07.2013
 
 Шаблоны - GraphicRiver - Photorealistic Logo Mock-Up Pack 2 [ PSD]
@@ -661,32 +687,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0FD6875BD6FD8361CB6F308C4A07D206D8D5CFEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037247   (615369) от 23.07.2016
-
-Шаблоны - CreativeMarket - Devices And Food - Mockups [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615369.jpg" />
-</div>
-
-
-###  Подробнее
-
-4 PSD-файла с девайсами имеющие слои смарт-объекты для лёгкого и быстрого редактирования.Формат: PSDРазрешение файлов: 3000x2000px\300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38E831A26B7ED449FA66ABD6B6AF81DED090C6D0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 985148   (936661) от 10.02.2016
+
+Проекты - VideoHive - InstaShots - 2257134 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайд шоу.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B2134EBCAB88457D0A5D6EFC506BC6E4B01923F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984949   (936471) от 10.02.2016
 
 Проекты - VideoHive - 3D Slide Photo - 13359869 [AEP]
@@ -665,33 +692,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A6AFF9514C9AA29BDAEF5A70CA3BE1FFB290968
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094576   (928781) от 18.01.2017
-
-Проекты - VideoHive - Hexa Parallax | Futuristic Slideshow - 19141535 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928781.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hexa Parallax | Futuristic Slideshow - это футуристическое слайдшоу.
-Создавайте профессиональное видео с Hexa параллакс эффектом. Проект очень высокого качества и хорошо структурированный. Скрупулезно сделан, с вниманием ко всем деталям. Идеально подходит для научной презентации, или лабораторного слайд-шоу. Так же применим для демонстраций Hi Tech технологий.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8113646F3970E51C376D5DCF09F62EC6C992CCF4
 ```
 
 https://mybot314.ru/tekegram_catalog/

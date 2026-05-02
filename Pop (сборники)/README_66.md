@@ -1,3 +1,116 @@
+###  Публикация: 1040668   (585182) от 06.08.2016
+
+Adriano Celentano - 25 Best Songs (2016) [MP3|~245 Kbps (V0)] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_585182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stivali e Colbacco 1970 (04:18)
+02. Il Tempo Se Ne Va 1980 (03:51)
+03. Io Sono Un Uomo Libero 2000 (05:48)
+04. Senza Amore 1999 (04:59)(   Читать дальше...   )Жанр: PopПродолжительность: 02:02:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6273CB183DDAB4B69BA4BDFB959AEB61E0D117BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358331   (584923) от 03.07.2011
+
+VA - Самые популярные песни лета (2011) [MP3|256 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584923.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 06:25:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC7E554DE159DF2634B110AA7B374B22382B844E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918994   (584872) от 17.07.2015
+
+VA - Шальное лето (2015) [MP3|160-256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584872.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. O-Town - Playing With Fire
+002. Артем Шалимов - Шальное Лето
+003. Катя Волкова - Над Атлантическим
+004. Натали - Ветер С Моря Дул(   Читать дальше...   )Жанр: PopПродолжительность: 06:14:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1108827B79734BC53714977CA65F9684D704DA94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1551892   (584709) от 23.05.2022
+
+VA - National Pop Dance Music Vol.36 (2022) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584709.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получаем удовольствие от новой танцевальной музыки! Как и ожидается, новинок сегодня будет достаточно. Представляем Вам новый 36-й народный танцевальный микс-сборник популярного жанра под наименованием "National Pop Dance Music", треки которого порадуют нас живой и подвижной музыкой.001. Monsta X - Mercy
+002. Sher X88 - Canzone Nuova
+003. Ye Banished Privateers - Drawn And Quartered
+004. Truck Stop - Wie'n Schцnen Country Song(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 08:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3F5DBA383AA3371C7605B31205ED2171F630206
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041016   (584560) от 07.08.2016
 
 VA - Летний Заряд Хорошего Настроения (2016) [MP3|256 Kbps] <Pop>
@@ -617,119 +730,6 @@ VA - Русский Хит Парад 90-Х (2011) [MP3|192-256 kbps]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4198DF47BBBFD88C6061A721A9D8BE663DC8069F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041404   (583415) от 08.08.2016
-
-VA - Billboard TOP100 Single Charts (13.08.2016) (2016) [MP3|128-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sia feat. Sean Paul - Cheap Thrills
-02. Major Lazer feat. Justin Bieber & M0 - Cold Water
-03. Drake feat. Wizkid & Kyla - One Dance
-04. Calvin Harris feat. Rihanna - This Is What You Came For(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7AC71A0AEA27462CD23568072229B6EFB02BC12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041409   (583407) от 08.08.2016
-
-VA - Drive Best Hits Compilation Vol.10 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaya Stewart - Sleepover
-02. Dj Marcous Feat. Aria - Tourist
-03. Cade - Care
-04. Chris Brown - Liquor(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9DBB73B11A61C16EFDD066531DAD5722E6D0B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 358985   (583097) от 05.07.2011
-
-VA - Музыкайф Европы Плюс Часть 3 (2011) [MP3|256 kbps]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583097.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 06:00:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D688212839FC78BE2A7DB37AD1308AEAC617A78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1553143   (582812) от 25.05.2022
-
-VA - Новички в попсе Vol 12 (2022) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582812.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Manou - Против (2:55)
-002. NИКОЛЬ - Гори (2:22)
-003. NIKA DUBIK - Галлюцинации (2:36)
-004. Феодор - Цветочный аромат (3:15)(   Читать дальше...   )Жанр: PopПродолжительность: 02:44:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:33B2759D7687363A771576D06796ACD1C04FC06A
 ```
 
 https://mybot314.ru/tekegram_catalog/

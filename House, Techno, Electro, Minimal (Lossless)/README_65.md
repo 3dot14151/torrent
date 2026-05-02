@@ -1,3 +1,32 @@
+###  Публикация: 1736168   (106727) от 11.07.2024
+
+CVN - 4 Albums (2016-2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Experimental, Abstract>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106727.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2016 - Matters
+CVN - 2019 - I.C.
+2020 - 2019 _ 1897 Split Series, Vol. V(   Читать дальше...   )Жанр: Electronic, Experimental, AbstractПродолжительность: 4 CD, 02:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13607E78BEF238C5795500BAC34BFB602BEAB4C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737124   (106562) от 16.07.2024
 
 Oscar Mulero - Have you ever retired a human by mistake? (2024) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Techno>
@@ -719,41 +748,6 @@ VA - Luxury Session Ibiza 2011 (2011)
 Тип битрейта: CBRТрек лист:
 Продолжительность: 01:04:29
 СD1 - Lounge(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480775   (87513) от 10.04.2012
-
-Kato - Discolized (2010) [FLAC|Lossless]<Electronic, House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_87513.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My House [04:19]
-02. Turn The Lights Off [02:57]
-03. Desert Walk [03:31]
-04. Makka [05:07]
-05. Discolized [03:21]
-06. Alive [05:50]
-07. It's My Life [03:22]
-08. Opa [04:13]
-09. Remember My Name [03:37]
-10. Crowd Control [06:10](   Читать дальше...   )2010Жанр: Electronic, HouseФормат: CD, AlbumПродолжительность: 01:01:23
 
 ## Скачать торент
 ```bash

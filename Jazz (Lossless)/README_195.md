@@ -1,3 +1,76 @@
+###  Публикация: 563484   (404357) от 21.10.2012
+
+VA - Greatest Audiophile Voices (2011-2012) 4CD[FLAC|Lossless]<Jazz Vocal>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404357.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lisa Lovbrand - Light My Fire    [05:00]
+02. Donna Tucker - Won't Know Till I Get There    [03:44]
+03. Amy London - Wonderful, Wonderful    [03:35]
+04. The New Mastersounds feat. Corinne Bailey Rae - Your Love Is Mine    [05:14]
+05. Monique Klemann - In The Land of Make Believe    [03:36]
+06. Trisha O'Donnell - Neither One of Us    [04:21]
+07. The Peter Malick Group feat. Norah Jones - New York City    [03:50]
+08. Sinne Eeg - The Night Has A Thousand Eyes    [05:34]
+09. Fragile - Get Here    [04:00]
+10. Lee Engele - Walk On By    [02:52](   Читать дальше...   )01. Julian Kuchocki - Somewhere Over The Rainbow    [06:07]
+02. Carol Duboc - A House Is Not A Home    [04:52]
+03. Karin Melchert - When I Fall In Love    [03:10]
+04. Juliet Kelly - I Wish You Love    [02:52]
+05. Inger Marie Gundersen - Let It Be Me    [03:38]
+06. Adreinne Hindmarsh - Don't Know Why    [04:04]
+07. Sophie Milman - My One And Only Love    [04:35]
+08. Monique Klemann - Cry Me A River    [05:18]
+09. Jessica Lee - Lover Man    [04:39]
+10. Sue Giles - Shiny Stockings    [03:55](   Читать дальше...   )Жанр: Jazz VocalПродолжительность: 0
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 711925   (404344) от 18.10.2013
+
+Big Bad Voodoo Daddy - How Big Can You Get (2009) [FLAC|Lossless]<Swing Revival>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_404344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Come on with the 'come on'
+02. Calloway Boogie
+03. The call of the Jitterbug
+04. Hey now, Hey now(   Читать дальше...   )Жанр: Swing RevivalПродолжительность: 00:44:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF99AD1D21159558B0F7E56FC4653C9F8D09A2F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 712417   (404217) от 18.10.2013
 
 Stacey Kent - The Changing Lights (2013) [FLAC (tracks)|Lossless|WEB-DL]<Vocal Jazz, Bossanova>
@@ -732,64 +805,6 @@ Maria Emig Trio - Introducing (2016) Gateway Music [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C56648970DE7E9C8C83D3DC21BAFD92D8B957590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170405   (399737) от 01.10.2017
-
-Johnny Hodges & Wild Bill Davis - Joe's Blues (1965) 2007, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Joe's Blues [06:08]
-02. I'll Walk Alone [04:30]
-03. Harmony In Harlem [03:20]
-04. Warm Valley [04:30](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:12:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0944B811C8140668A00FD99237FEFC389128835
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170410   (399733) от 01.10.2017
-
-Buddy Rich & Maynard Ferguson - Two Big Bands Play Selections From West Side Story & Other Delights (1991) LRC Ltd. [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_399733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. West Side Story [05:52]
-02. Kilimanjaro Cookout [06:18]
-03. Prelude To A Kiss [03:35]
-04. Waltz Of The Mushroom Hunters [07:17](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:468C16EC84CA0E1244ADC2B5CE14CE2017A766FB
 ```
 
 https://mybot314.ru/tekegram_catalog/

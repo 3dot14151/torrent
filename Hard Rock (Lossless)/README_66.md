@@ -1,3 +1,119 @@
+###  Публикация: 1625964   (240373) от 14.04.2023
+
+Gary Moore - Corridors of Power (1982) Reissue, Remastered, 2023, Universal, Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240373.jpg" />
+</div>
+
+
+###  Подробнее
+
+Corridors of Power — второй сольный студийный альбом североирландского гитариста Гэри Мура, выпущенный в сентябре 1982 года и ознаменовавший прорыв Мура на международной хард-рок сцене. Allmusic охарактеризовал «Corridors of Power» как «первый настоящим хэви-метал-альбомом» гитариста.01. Don’t Take Me for a Loser
+02. Always Gonna Love You
+03. Wishing Well
+04. Gonna Break My Heart Again(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB9056D48C33103BB803E91F3A38B582AEEFAB32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1634217   (240288) от 19.05.2023
+
+House of Shakira - XIT (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Something in the Water
+02. No Silver Lining
+03. Toxic Train
+04. Your Exit(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FF1689C5A68797B3B05E7DAD40ADC878F2E28F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554459   (240258) от 30.05.2022
+
+Qvintessence - Qvintessence (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240258.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Ghosts (00:03:29)
+02 - Bandog (00:03:29)
+03 - Bee (00:05:16)
+04 - Quintessence (00:03:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17AD2F5A88F4A3AEA9A889050EE2C4283D5A8406
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465763   (240174) от 28.04.2021
+
+Serpentine - Living аnd Dуing In Нigh Dеfinitiоn (2011) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep Down (There's A Price For Love)
+02. Philadelphia
+03. Dreamer
+04. Love Is Blue(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11F6366E4F875177D773D20E0F0D5CA4028269CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1637464   (239889) от 04.06.2023
 
 Stormburst - III (2023) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -630,122 +746,6 @@ Inluzt - Echoes Of Revolution (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38D0D2DA6A36A9226527293F05EFFCB728F0E2AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636986   (238758) от 01.06.2023
-
-Rival Sons - Darkfighter (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mirrors (5:02)
-02. Nobody Wants to Die (3:42)
-03. Bird in the Hand (4:28)
-04. Bright Light (4:34)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:39:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F176C8B6620E85E3605AC3C355958124E96698
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639051   (238692) от 11.06.2023
-
-Skreen 6 - Rockin' Head (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (0:52)
-02. Rockin' Head (3:58)
-03. Life Is Too Short To Die (4:56)
-04. Cry (3:58)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:30:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BD3B19707D3CD25A4F27CAE1D6FD451ECBA84B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1639024   (238684) от 11.06.2023
-
-Forge the Sun - Heart of the Sunrise (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_238684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prelude (1:55)
-02. Genesis (5:30)
-03. WIGFE (2:50)
-04. Two Enter (4:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C4DB929A114225CE3D419771F35DC0FBDCD10F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1623211   (238683) от 01.04.2023
-
-Evolution Eden - Sonic Cinema (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On with the Show [00:03:43]
-02. Blood Runs Wild [00:04:03]
-03. Here's to the Good Times [00:03:52]
-04. Love's Got a Mind of It's Own [00:03:13](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A40B169F200F6250942295566387836C50570E0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

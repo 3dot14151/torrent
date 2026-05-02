@@ -1,3 +1,61 @@
+###  Публикация: 473448   (304956) от 29.11.2015
+
+VA - Русский рок - Фарш (2012) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кошки Jam - Под Вопросом
+ 02. Леприконсы - Хали-гали, Паратрупер
+ 03. Климбатика - Тьма
+ 04. День Триффидов - Против ветра(   Читать дальше...   )Жанр: RockПродолжительность: 04:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8BD94902A88B8AC4BD2822C57330B5473D61F0CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 960828   (304616) от 29.11.2015
+
+Ария - 30 (2015) [MP3|320 кб/с]<Heavy Metal>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304616.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Мания величия
+02 Тореро
+03 Воля и разум
+04 Без тебя(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 02:24:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5133C2FA80E242A6229895BA79C55A295BFD898A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422949   (304272) от 11.11.2020
 
 VA - Hard Plylist (2020) [MP3|320 Kbps] <Metal, Hardcore, Hard Rock, Alternative>
@@ -696,64 +754,6 @@ VA - Pop Rock Romantic 130 Songs (2017) [MP3|320 Kbps] <Pop Rock, Ballad>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FFE8870A22B0C985D0D05A5F4494799A11DE615A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1330469   (275899) от 09.11.2019
-
-The Beatles - Magical Mystery Tour De-Noised From Demos & Takes (2019) Bootleg [MP3|320 Kbps] <Classic Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Magical Mystery Tour (02:48)
-02-The Fool On The Hill (04:25)
-03-Flying (02:16)
-04-Blue Jay Way (03:50)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC850AD0966FD009F255DA44E45E784A932CFE78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083125   (275699) от 14.12.2016
-
-VA - Rock Collection 1997 (2016) [MP3|320 Kbps] <Rock, Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 01
-
-01. Foo Fighters - Doll
-02. Fates Warning - A Pleasant Shade of Gray: Part I(   Читать дальше...   )Жанр: Rock, MetalПродолжительность: 29:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76CFB19A398D5FE953423A4C9F62BCBE11FB7151
 ```
 
 https://mybot314.ru/tekegram_catalog/

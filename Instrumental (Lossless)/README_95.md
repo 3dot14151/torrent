@@ -1,3 +1,119 @@
+###  Публикация: 1663106   (187180) от 20.09.2023
+
+The Blues Project - Evolution (2023) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evolution
+02. I Won't Go Back
+03. I Played A Little Fiddle
+04. In the Spirit(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1098EAEFCC440DE0F11B4EFBCC9186F7294AEC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663112   (187161) от 20.09.2023
+
+Lachy Doley - A World Worth Fighting For (2023) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_187161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A World Worth Fighting For
+02. These Words
+03. Get Out Your Ear's Way (feat. Bootsy Collins)
+04. Don't Beat Yourself Up(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:44:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:89D784EBD894A23D5B82F15EAD9F8A4392B576B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426832   (185362) от 26.11.2020
+
+VA - Relax Winter Soul Music (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_185362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Etta James - Something's Got a Hold on Me (02:48)
+02. Rosco Gordon - Booted (03:01)
+03. Sugar Boy Crawford - Jock-A-Mo (02:25)
+04. Jackie Brenston & His Delta Cats - Rocket 88 (02:47)(   Читать дальше...   )Жанр: SoulПродолжительность: 01:24:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:658623277862D267A1B549B1382A6425426BF593
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1426895   (184875) от 26.11.2020
+
+Robert Connely Farr - Country Supper (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Americana, Country blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_184875.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cypress Grove - 03:52
+02. Girl In The Holler - 02:32
+03. Catfish - 02:49
+04. Water's Rising - 04:48(   Читать дальше...   )Жанр: Blues Rock, Americana, Country bluesПродолжительность: 00:53:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DE218B70D3AC75DC3BADB1D7BEB2F911C21B8A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1427149   (184020) от 27.11.2020
 
 Kenny Wayne Shepherd - Straight To You: Live (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Katie Franke - Third Space (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:68737F28F32A69ABC487C948BF333D2872415199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592979   (181867) от 25.11.2022
-
-Erich Lindenthaler - 4u Some Blues Music (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hotspot
-02. Burning Light
-03. Fire Burning
-04. Angel Child(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AA3C2C6058177320C15171A41AD4E9FAE1CCEFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592716   (181854) от 25.11.2022
-
-Ruthie Foster - Healing Time (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues, R&B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soul Searching (3:58)
-02. Lie Your Way to the Truth (4:14)
-03. What Kind of Fool (4:15)
-04. I Was Called (4:19)(   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 00:47:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45FD970AC7E4902ED5BDB5FE5BB3DD44CA1D054D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592720   (181800) от 25.11.2022
-
-Sunny Bleau & The Moons - Breakfast Served Cold (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let It Slide (3:40)
-02. He's My Peach (Alt. Mix Version) (3:09)
-03. On Your Way to Me (3:32)
-04. Holy Water and Hell Fire (Alt. Mix Version) (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3D3B0D33E0557673B30FD29E0C2A44AC535751D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427835   (181548) от 30.11.2020
-
-Shawn Pittman & Jay Moeller - Straight Blues from Crooked Fools (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_181548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rattlesnakes (2:04)
-02. Everybody Wants To Know (4:02)
-03. Smarten Up Baby (3:29)
-04. The Set Up (3:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E736AFD5F441DDBEA690683761DB68E9185F48F
 ```
 
 https://mybot314.ru/tekegram_catalog/

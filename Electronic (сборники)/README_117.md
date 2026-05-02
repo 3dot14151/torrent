@@ -1,3 +1,61 @@
+###  Публикация: 1043934   (569093) от 18.08.2016
+
+VA - Goa Genetics (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Collision  -  Steak & Potatoes (Original Mix)  9:15
+02. Psymon  -  Keep The Frequency (Original Mix)  7:00
+03. Audio-X  -  Glicerine (Original Mix)  8:05
+04. Deep Cleave  -  Lantern (Original Mix)  6:27(   Читать дальше...   )Жанр: Trance, Psy-Trance, GoaПродолжительность: 06:10:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BCE20F57D4A0D21C2494D37935DFA6C0BEC54CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 922319   (568360) от 29.07.2015
+
+VA - Lounge Party Collection (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don Gorda Project - Feeling Free
+02. Cane Garden Quartet - Close To You
+03. Suntheca Productions - Blue Horizon
+04. Arrojas - Textpectations(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:23:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0FB40262183E666529391FAB283B76FB9D378EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922733   (568359) от 29.07.2015
 
 VA - Milan Street Lounge (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
@@ -690,64 +748,6 @@ VA - Record Super Chart #495 (2017) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5616BA134DBC5F2F7E49A5DC025FD995451EF006
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044563   (565350) от 20.08.2016
-
-VA - Euphoric Essential Space Uplifting (2016) [MP3|320 Kbps] <Trance, Melodic, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565350.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ruslan Radriges  -  Magnum (Original Mix)  5:05
-02. Bryan Kearney  -  Mexican Rave (Shugz Remix)  6:42
-03. Armin Van Buuren & Dave Winnel  -  The Race (Extended Mix)  5:15
-04. LTN  -  Ending The Wisdom (Original Mix)  6:22(   Читать дальше...   )Жанр: Trance, Melodic, Energy, ProgressiveПродолжительность: 08:11:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E788CD20B5DE8EDA137968F6AA3011982E91123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1044533   (565330) от 20.08.2016
-
-VA - Bass Booster - Не По-Детски Давят Децибелы (2016) [MP3|320 Kbps] <Deep, G-House, Progressive, Techno, Tech>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_565330.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.2Nica - Leave Me Lonely (Original Mix)
-002.2Night, 2907 - Dancefloor (Original Mix)
-003.123XYZ - It's Back (Original Mix)
-004.303Bastard - Nightingale (Original Mix)(   Читать дальше...   )Жанр: Deep, G-House, Progressive, Techno, TechПродолжительность: 57:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E76234A260432DB05ABC2F274B5F1128D5CB8969
 ```
 
 https://mybot314.ru/tekegram_catalog/

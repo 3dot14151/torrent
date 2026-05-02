@@ -1,3 +1,203 @@
+###  Публикация: 1164516   (439487) от 10.09.2017
+
+VA - Ayurveda Lounge - Relaxation & Meditation, Vol. 4 (2014) [MP3|320 Kbps] <New age, Chillout, Relax>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439487.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cosmic Orient - The Big Ocean
+02. Five Seasons - Okinawa
+03. Yantra Mantra - Hawa Mahal
+04. Digital Rain - I Miss You(   Читать дальше...   )Жанр: New age, Chillout, RelaxПродолжительность: 01:45:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:969161975199A14D500F4B4A758B25D047658B84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1164503   (439051) от 10.09.2017
+
+Benjamin Wallfisch - It / Оно (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_439051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Every 27 Years (02:37)
+02. Paper Boat (01:55)
+03. Georgie, Meet Pennywise (03:39)
+04. Derry (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:27:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190FDEE1ED9B9FF48B78CD119D29B3CD6F4F9171
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 552064   (438645) от 30.09.2012
+
+VA - The Best Of Native Indians (2CD) (1999) [MP3|320 кб/с]<Native American Ethno, Powwow, Round Dance, Tribal Voice, Drums>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438645.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Native American Ethno, Powwow, Round Dance, Tribal Voice, DrumsПродолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46A2D7FB14F2C40D7BBE0DE28428F20D7DA85427
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410151   (438429) от 20.09.2020
+
+Александр Серов - Relax Instrumental Music (2006) [FLAC|Lossless|tracks + .cue]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438429.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Begin
+02. Remain
+03. Говори со мной
+04. Love me tender(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:19:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E6EC68889CD857F03042C49E18A9ADA428ADD8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944948   (438318) от 08.10.2015
+
+Wychazel - White Wolf Spirit 2 (2015) [MP3|320 кб/с]<New Age, World, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_438318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolf Spirit Invocation [00:18:10]
+02. Riding the Storm [00:10:32]
+03. The Shaman's Gift [00:10:10]
+04. River Song [00:10:43]Жанр: New Age, World, MeditativeПродолжительность: 00:49:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18B47EF7A919B521229429B5392E441E377E6719
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1323308   (437870) от 03.09.2019
+
+David Wahler - Two Hearts (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437870.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Always
+  2. I Remember You
+  3. Paris Rain
+  4. Night Sky of Orion (Remix)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:58:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:181C04C98465329557E0A7E2DBFF952ACE531D79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 707538   (437591) от 05.10.2013
+
+Golana - Feather on the Wind (2000) [MP3|320 кб/с]<Instrumental, New age, Native american>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437591.jpg" />
+</div>
+
+
+###  Подробнее
+
+(4:52) 01. Closer To You
+(6:01) 02. All Good Medicine
+(3:48) 03. Allaluia
+(3:50) 04. Mojava Morning(   Читать дальше...   )Жанр: Instrumental, New age, Native americanПродолжительность: 00:53:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9CC3A940031C0FF313B02D894E1B75C984F1AE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 396399   (437174) от 03.09.2019
 
 Anthony Ventura - Je t'aime - Traum-Melodien  (1973-1982) 10 CD [FLAC|Lossless] <Instrumental | Easy Listening>
@@ -548,209 +748,6 @@ Jóhann Jóhannsson (Johann Johannsson) - Mandy (Original Motion Picture Soundtr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48C56471FF165EA3E9ECAB4C087F9EAD30D713FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063528   (432531) от 17.10.2016
-
-doseone - Enter the Gungeon (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432531.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enter the Gun (04:07)
-02. Lead Lords Keep (02:42)
-03. Gungeon Up Gungeon Down (03:21)
-04. The Hollow Howl (02:27)(   Читать дальше...   )Жанр: Soundtrack, Electronic, Alternative, Hip Hop, SynthПродолжительность: 01:24:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA8A267476A99633EE7B9D8C93641683E206D6AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063662   (432517) от 17.10.2016
-
-Anamanaguchi - Scott Pilgrim vs. the World: The Game (Original Videogame Soundtrack) (2010) [MP3|320 кб/с]<Soundtrack, 8-bit>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432517.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Scott Pilgrim Anthem (01:38)
-02. Another Winter (02:33)
-03. Skate or Live (01:37)
-04. Sushi Box (01656)(   Читать дальше...   )Жанр: Soundtrack, 8-bit , Electronica, Electronica: ChiptuneПродолжительность: 00:46:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CF6E67DE4F79EAFDB637FFD252C42BB9D60AF819
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063559   (432516) от 17.10.2016
-
-Johnny Jewel - Lost River / Как поймать монстра (Original Motion Picture Soundtrack) (2015) Deluxe Edition [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Johnny Jewel feat. Saoirse Ronan - Tell Me (02:42)
-02. Chromatics - Yes (Love Theme from Lost River) (03:24)
-03. Glass Candy - Shell Game (03:07)
-04. Johnny Jewel - Echoes (02:27)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:33:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917FB72FF8C7320AA3D3BD081BEBBB1FC26B64FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063653   (432387) от 17.10.2016
-
-Petri Alanko - Quantum Break (Original Game Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack, Ambient>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Meeting an Old Friend (02:35)
-02. Campus (02:26)
-03. Suite for Time and Machines (06:23)
-04. Don't Stand In My Way (01:43)(   Читать дальше...   )Жанр: Soundtrack, Score, Ambient, ElectronicaПродолжительность: 00:49:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:217D787FF96746824DC833449A6A1C1353C7C179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063385   (432379) от 17.10.2016
-
-Lisa Downing - The Wisdom Of My Shadow (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Forbidden Dance (4:01)
-02 - Tragic Dream (3:59)
-03 - Black Wedding (3:53)
-04 - Mischief (2:09)(   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0CE0CC760C523610346F54074B02B68FB7F57D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063651   (432155) от 17.10.2016
-
-VA - Overwatch (Original Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Cardon - Overture (01:54)
-02. Derek Duke - Rally The Heroes (02:13)
-03. Derek Duke - Temple Of Anubis (02:00)
-04. Neal Acree, Sam Cardon, Derek Duke & Cris Velasco - The World Could Always Use More Heroes (Cinematic Intro) (05:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A72CF5E974B6CF60E30035D3DB92D18C5FFC8DBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1063650   (432072) от 17.10.2016
-
-VA - Overwatch (Original Soundtrack) (2016) [FLAC|Lossless|CD|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_432072.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sam Cardon - Overture (01:54)
-02. Derek Duke - Rally The Heroes (02:13)
-03. Derek Duke - Temple Of Anubis (02:00)
-04. Neal Acree, Sam Cardon, Derek Duke & Cris Velasco - The World Could Always Use More Heroes (Cinematic Intro) (05:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:48:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBA2E7D42BFD050A560B1A6ADAE9D5F7DBDB6795
 ```
 
 https://mybot314.ru/tekegram_catalog/

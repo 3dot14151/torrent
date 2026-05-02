@@ -1,4 +1,147 @@
 https://t.me/izofen
+###  Публикация: 1868214   (1067291) от 
+
+Udo Dirkschneider (U.D.O.; Dirkschneider & The Old Gang) - Studio Albums (23 releases) (1987-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067291.jpg" />
+</div>
+
+
+###  Подробнее
+
+У́до Диркшна́йдер (нем. Udo Dirkschneider; род. 6 апреля 1952, Вупперталь, Германия) — немецкий рок-музыкант, вокалист и один из основателей хэви-метал-группы Accept. После ухода из Accept в 1987 году сформировал собственную группу U.D.O., а в 2020 году создал новый проект Dirkschneider & The Old Gang.1987 - Animal House
+1989 - Mean Machine
+1990 - Faceless World
+1991 - TimebombЖанр: Heavy MetalПродолжительность: 23:39:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6AD9A6F01AB7213EA89572CF354DC919947B1B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867120   (1066583) от 
+
+Parkway Drive - Studio Albums (8 releases) (2004-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066583.jpg" />
+</div>
+
+
+###  Подробнее
+
+Parkway Drive - металкор-группа из Байрон-Бей, Австралия. Образована в 2003 году.2004 - Don't Close Your Eyes
+2005 - Killing With A Smile
+2007 - Horizons
+2010 - Deep BlueЖанр: MetalcoreПродолжительность: 06:08:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C600B9113D24A043CB9F6A6DCBD43681DDDF6A7A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866688   (1066463) от 22.04.2026
+
+MyGrain - Studio Albums (6 releases) (2006-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue]<Melodic Death/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066463.jpg" />
+</div>
+
+
+###  Подробнее
+
+MyGrain - метал-группа из Хельсинки, Финляндия, основана в 2004 году.2006 - Orbit Dance
+2008 - Signs Of Existence
+2011 - MyGrain
+2013 - Planetary BreathingЖанр: Melodic Death/Groove MetalПродолжительность: 04:45:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A94E845991E07127F53E8273819703F9B491F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866642   (1066351) от 21.04.2026
+
+Kalisia - Cybion (2009) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066351.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kalisia - метал-группа из Франции, основана в 1994 году.
+Cybion – рок-опера с научно-фантастическим сюжетом, в дэт-металлическую основу которой вплетены классика, прогрессив, джаз и электроника. В создании альбома приняли участие известные рок-исполнители, среди которых Арьен Люкассен ("Ayreon"),  Ангела Госсов ("Arch Enemy"), Пол Масвидал ("Cynic"), (   Читать дальше...   )Жанр: Progressive Death MetalПродолжительность: 02:06:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D13A4D73F726FA38F3C26208CEF6D9CA0E4F43A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866478   (1066137) от 20.04.2026
+
+Monuments - Studio Albums (4 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal, Metalcore, Djent>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066137.jpg" />
+</div>
+
+
+###  Подробнее
+
+Monuments — британская прогрессив-метал группа, основана в Лондоне в 2007 году.2012 - Gnosis
+2014 - The Amanuensis
+2018 - Phronesis
+2022 - In Stasis(   Читать дальше...   )Жанр: Progressive Metal, Metalcore, DjentПродолжительность: 03:39:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBB747E27D91A3FB4C34FA71B539F3BF813BE552
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865234   (1065682) от 16.04.2026
 
 Nat King Cole - Sings The Blues (1963) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Blues>
@@ -596,151 +739,6 @@ Samael — швейцарская метал-группа, образованн�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C328119F4D64421615CC302566D60D9E257C05FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861130   (1062317) от 24.03.2026
-
-Hollywood Symphony Orchestra - Orchestral Fireworks (1966) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062317.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Comedian's Galop (From The Comedians)
-A2 Dance Macabre
-A3 Fireball Polka
-A4 Magic Fire Music (From The Valkyries)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B11B3B3DAF469562D6B9B466EBC67ACC7472AB49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1861096   (1062316) от 24.03.2026
-
-Celine Dion - I Am. Original Motion Picture Soundtrack (2024) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soundtrack, Score, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062316.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Main Theme - Artist Always (Score)
-A2 The Power Of Love
-A3 Pour Que Tu M'aimes Encore
-A4 A New Day Has Come (Radio Remix)(   Читать дальше...   )Жанр: Soundtrack, Score, Pop RockПродолжительность: 01:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94C0B5DA4B028F01BFCFF170016CE51F803C9FC7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860844   (1062283) от 23.03.2026
-
-Johnny Mathis - Faithfully (1959) [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062283.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Faithfully
-A2 Tonight
-A3 Nobody Knows (How Much I Love You)
-A4 One Starry Night(   Читать дальше...   )Жанр: PopПродолжительность: 00:46:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:921F9A4FFDDF1B10E39B00194DBC387663823425
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860837   (1062282) от 23.03.2026
-
-Barry Manilow - Manilow Magic. The Best Of Barry Manilow (1979) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1062282.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Mandy
-A2 New York City Rhythm
-A3 Looks Like We Made It
-A4 Can't Smile Without You(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC1A5FBA65CEA6FF5AB1F631F0F85DF9AC65F52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1860348   (1061627) от 20.03.2026
-
-Les Paul And Mary Ford - Lovers' Luau (1959) [FLAC 1.0|192/24|image +.cue|Vinyl-Rip] <Folk, Hawaiian, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1061627.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Blue Hawaii
-A2 Drifting And Dreaming
-A3 King's Serenade (Imi Au Ia Oe)
-A4 Song Of The Islands (Na Lei O Hawaii)(   Читать дальше...   )Жанр: Folk, Hawaiian, InstrumentalПродолжительность: 00:28:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD4C23BFADA349D59E5D93DDF05945BB9B7DF7C1
 ```
 
 https://mybot314.ru/tekegram_catalog/

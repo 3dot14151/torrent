@@ -1,3 +1,61 @@
+###  Публикация: 1504535   (810426) от 24.10.2021
+
+Creux Lies - Goodbye Divine (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Punk, Synthpop, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810426.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jungle (5:29)
+ 02. Misunderstanding (3:52)
+ 03. Becoming (5:10)
+ 04. PS Goodnight (4:21)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, Synthpop, New WaveПродолжительность: 00:35:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B31431B5A6898B0E641C053442240D5518C55BA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1198221   (808400) от 11.01.2018
+
+New Politics - Lost in Translation (2017) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808400.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CIA
+02. One of Us
+03. Tell Your Dad (feat. Rivers Cuomo)
+04. Madeleine(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED53A877890B45ACCE1F7A48029A8504A4CA33A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119498   (807334) от 28.03.2017
 
 B-Movie - The Age Of Illusion (2013) [FLAC|Lossless|image + .cue] <Electronic Pop Rock, Synthpop, Indie Rock>
@@ -687,64 +745,6 @@ Dave Gahan & Soulsavers - Imposter (2021) [FLAC|Lossless|WEB-DL|tracks] <Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0BB6C02852E7E177154554B51590CCB17E8BEB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274433   (793063) от 07.01.2019
-
-Gordon Gano - Hitting The Ground (2002) (Violent Femmes frontman) [FLAC|Lossless|image + .cue] <Indie, Folk, Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793063.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. "Hitting the Ground" (PJ Harvey - vocals and guitar solo)
-2. "Oh Wonder" (Mary Lou Lord - acoustic guitar and vocals)
-3. "Make It Happen" (Gordon Gano - vocals)
-4. "Don't Pretend" (John Cale - piano and vocals)(   Читать дальше...   )Жанр: Indie, Folk, AlternativeПродолжительность: 00:32:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA896C41AD83DE32FA1F841488BA5487BAA58C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1274462   (793050) от 07.01.2019
-
-The Courteeners - St. Jude Re:Wired (2018) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793050.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aftershow (ReWired) (02:46)
-02. Cavorting (ReWired) (03:11)
-03. Bide Your Time (ReWired) (03:53)
-04. What Took You So Long (ReWired) (03:41)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:39:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41F6F9B5CFFF09DEFA9D0BA0C45275ED7BE971B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

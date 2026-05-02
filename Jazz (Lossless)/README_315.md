@@ -1,3 +1,61 @@
+###  Публикация: 1706517   (113595) от 13.03.2024
+
+Sarah Jane Morris - Sisterhood (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sisterhood
+02. Couldn’t Be Without
+03. Tomorrow Never Happens
+04. So Much Love(   Читать дальше...   )Жанр: Nu Jazz, SoulПродолжительность: 00:53:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16137A546291C66456BC0EAB61F471125543320F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706486   (113556) от 13.03.2024
+
+Stephane Grappelli - Stephane Grappelli with Strings (1961,1970) 2CD. 2020, Label Ouest [FLAC|Lossless|tracks + .cue] <Swing, Violin Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gerba [2:52]
+02. Opportunity [2:20]
+03. Emotion [2:54]
+04. Hesitation [2:33](   Читать дальше...   )Жанр: Swing, Violin JazzПродолжительность: 01:42:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F7D58401E3828EDDF3554FB4B1AF129234DAE2E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706541   (113543) от 13.03.2024
 
 Skeewiff - Something Like That (2024) [FLAC|Lossless|WEB-DL|tracks] <Big Beat, Funk>
@@ -687,64 +745,6 @@ Donald Byrd - Attitude (1987 - 1991) 2CD, 1999, Camden Deluxe [FLAC|Lossless|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:856577CE539F3F93348BC051D696BF173213740D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707604   (113247) от 17.03.2024
-
-Danny Barrett - It's About Time (1993) DBD Productions [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Vocal Pop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113247.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everytime We Say Goodbye [4:02]
-02. Two for the Road [4:36]
-03. Night Song [4:20]
-04. For All We Know [4:00](   Читать дальше...   )Жанр: Vocal Jazz, Vocal PopПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11E0D4EB6CEDDE922DA64ABDB9C6676D454846B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707806   (113239) от 18.03.2024
-
-Triplicity - Onibaba (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Onibaba (5:01)
-02. Which way home (5:35)
-03. Our own ghosts (8:50)
-04. Lovesong (intro) (3:24)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:46:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04EEE890E100DBBC46C91CA9F4999DC5B56570C4
 ```
 
 https://mybot314.ru/tekegram_catalog/

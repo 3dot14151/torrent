@@ -1,3 +1,119 @@
+###  Публикация: 1719791   (57829) от 02.05.2024
+
+VA - Dario Caminita: Classic Revibes Collection Vol. 09 (2023) [MP3|320 Kbps] <Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Captain & Tennille - Do that to Me One More Time (Dario Caminita Revibe) (4:35)
+02. Cece Peniston - Finally (Dario Caminita Revibe) (5:40)
+03. Change - A Lover's Holiday (Dario Caminita Revibe) (6:45)
+04. Cutting Crew - (I Just) Died in Your Arms (Dario Caminita Revibe) (5:40)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 01:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1063CA45F40C35B95E7D5D4E900FA79F50EE1C8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1719790   (57811) от 02.05.2024
+
+VA - Dario Caminita: Classic Revibes Collection Vol. 08 (2023) [MP3|320 Kbps] <Disco, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57811.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Candi Staton - Young Hearts Run Free (Dario Caminita Revibe) (5:05)
+02. Lou Rawls - You’ll Never Find Another Love Like Mine (Dario Caminita Revibe) (6:15)
+03. Tina Turner - The Best (Dario Caminita Revibe) (4:56)
+04. Luther Vandross - Never Too Much (Dario Caminita Revibe) (5:05)(   Читать дальше...   )Жанр: Disco, DanceПродолжительность: 01:35:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:426780D813E35EEEEA2A70E213D34CCC52AEF739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1722673   (56789) от 12.05.2024
+
+Merab Amzoevi - This is Merab Amzoevi (2024) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_56789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Плакала (2:55)
+02. 1000 зим (2:28)
+03. Chito Gvrito (Live) (2:48)
+04. GZA (2:31)(   Читать дальше...   )Жанр: PopПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94276201480A90CB9C4D7D35D5E80590DA098FD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726113   (55152) от 28.05.2024
+
+Sandra - Collection (2024) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Певица Sandra, в 80х была мне знакома только по плакатам и календарям. Краем уха где то, что то слышал. Познакомился с творчеством уже в инете. Так же, узнал, что автор и композитор её песен Michael Cretu. Он же её супруг и создатель проекта Enigma и что там звучит голос Сандры. Первые 3 альбома записаны плохо. Японский CD первого альбома звучит мутно, с убитой прозрачностью (   Читать дальше...   )001. In The Heat Of The Night
+002. On The Tray (Seven Years)
+003. Little Girl
+004. You And I(   Читать дальше...   )Жанр: PopПродолжительность: 07:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2BC2B1C3F243662251AB8E98A17C6239AB4EAE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730881   (52566) от 21.06.2024
 
 VA - compilation  part 88 Eurodisco (2024) [MP3|320 Kbps] <Eurodisco>
@@ -626,122 +742,6 @@ VA - American Spirit (2024) [MP3|320 Kbps] <Pop, Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7332E50541718859D7457DF090E5C2FA5272C3CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1751260   (42520) от 24.09.2024
-
-VA - Music Without Borders (2024) [MP3|320 Kbps] <Pop, Dance, RnB>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42520.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Taylor Swift Feat. Ed Sheeran - Everything Has Changed
-002. Oakman - I Am Floating...
-003. Dj Sava Feat. Dj Dark & Md Dj & Iova - Magical Place
-004. Pabllo Vittar - Pra Te Esquecer(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 12:11:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A52494396271CE7401D585D7A7C2DF0FEE35DE8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752226   (42009) от 29.09.2024
-
-VA - Dance-Charts Top 100 (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Basti M - Dangerous Habit (2:22)
-02. CARSTN - Bad Liar (Basti M & Blaikz Remix) (2:40)
-03. Bob Shepherd - You And Me (3:34)
-04. Mario Beck - Correlation (2:55)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF6CC164D7D8225CA9A9B0803AAD830CD41EA4D7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752556   (41792) от 01.10.2024
-
-VA - Billboard Global 200 Singles Chart (28.09.2024) (2024) [MP3|320 Kbps] <Pop, Dance, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41792.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lady Gaga - Die With A Smile - (04:12)
- 002. Billie Eilish - BIRDS OF A FEATHER - (03:30)
- 003. Sabrina Carpenter - Taste - (02:37)
- 004. Sabrina Carpenter - Espresso - (02:55)(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 11:01:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15EA26A364044A152684AEDC722766AFB5EA7527
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752710   (41721) от 02.10.2024
-
-VA - Summer Pop Coctail Party Vol. 02 (2024) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41721.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Papik - Gente Distratta - (05:29)
- 002. Michaela May - Ultraviolet - (03:25)
- 003. Banners - Have You Ever Loved Someone - (03:19)
- 004. Benson Boone - Beautiful Things - (03:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:31:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7849F0D30E834E5D3BFAF98EB9AE50EB14243F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

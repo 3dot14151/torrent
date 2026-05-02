@@ -1,3 +1,32 @@
+###  Публикация: 1603954   (1045467) от 12.01.2023
+
+Eric Clapton - Slowhand (1977) Reissue, Remastered, 2004, Polydor [OGG Vorbis|470 Kbps] <Rock, Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cocaine
+02. Wonderful Tonight
+03. Lay Down Sally
+04. Next Time You See Her(   Читать дальше...   )Жанр: Rock, Blues Rock, Classic RockПродолжительность: 00:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A59DE490C67B5536DBCD465C41ECD564B509919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604238   (1045420) от 13.01.2023
 
 Eric Clapton - 461 Ocean Boulevard (1974) Reissue, Remastered, 2004, Polydor [OGG Vorbis|500 Kbps] <Rock, Blues Rock, Classic Rock>
@@ -716,35 +745,6 @@ Pink Floyd - The Dark Side Of The Moon (1973) Reissue, Remastered, 2003, Capitol
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05D58ABD732CA6E8C98B049485F740BD79ADA0C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608331   (1043552) от 31.01.2023
-
-Rainbow - Long Live Rock ‘n’ Roll (1977) Reissue, Remastered, 2010, Polydor [OGG Vorbis|480 Kbps] <Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043552.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Live Rock ‘n’ Roll
-02. Lady Of The Lake
-03. L.A. Connection
-04. Gates Of Babylon(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 00:39:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAD4C4AF7F2E5B0CAD7EDFF62875C87390A4EF9D
 ```
 
 https://mybot314.ru/tekegram_catalog/

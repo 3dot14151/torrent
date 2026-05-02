@@ -1,3 +1,176 @@
+###  Публикация: 1429648   (175788) от 07.12.2020
+
+Puhdys - Puhdys 11: Computer-Karriere (1983) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop, Classic Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175788.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Computer-Karriere
+A2 Flieg Mit Mir
+A3 Jahreszeiten
+A4 Stop, Baby, Stop(   Читать дальше...   )Жанр: Synth-pop, Classic Rock, New WaveПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70E8ADA202400372300268E368776B0D80B8EE7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668086   (175410) от 10.10.2023
+
+Behind the Scenery - Studio Albums (3 releases) (1997-2004) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175410.jpg" />
+</div>
+
+
+###  Подробнее
+
+Behind the Scenery - Melodic Death Metal группа из Германии.1997 - Nocturnal Beauty Of A Dying Land
+2000 - ...of Honesty Forbidden
+2004 - RetroviseurЖанр: Melodic Death MetalПродолжительность: 02:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34AAA72DB8E8085B95AF966E6733A610E517CBDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668144   (174595) от 11.10.2023
+
+Чёрный Кофе - Белый Ветер (2002) [FLAC|Lossless|image + .cue] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_174595.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+01. Убытие
+02. Я Не Ранен - Я Убит
+03. Девятый День(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F14EE1F259D198B5DC0EF4D437637AA29DCA3BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1430188   (174233) от 09.12.2020
+
+VA - Ленинградский Рок-клуб (1988) Записи 1986 - 1987 гг. [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Alternative Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_174233.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Игры - Освобождение (I Want To Be Free)
+A2 Алиса - Мое Поколение (My Generation)
+A3 Присутствие - Выйди Вон (Get Out)
+A4 АВИА - Шла Машина Грузовая (The Passing Lorry)(   Читать дальше...   )Жанр: Alternative Rock, New WaveПродолжительность: 00:35:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F9CAB8636D6D22AA648427F2C0004401111BE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1085375   (173820) от 21.12.2016
+
+Александр Барыкин - Букет (1988) [WavPack|192/24|image + .cue|Vinyl-Rip] <Rock, New Wave>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_173820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Букет (3:38)
+02. Дождь И Снег (4:36)
+03. Осенний Парк (5:05)
+04. Голос Твой (5:26)(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:37:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40F0F5D119F75403D0C08EFBB02654F6B2FBC17F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1668137   (173817) от 12.10.2023
+
+Чёрный Кофе - Пьяная Луна (1996) Unofficial Release [FLAC 2.0|24/48|image + .cue|MC-Rip] <Rock, Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+A1 Где-то В Слезах
+A2 Ветер
+A3 Белая Ночь(   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E42C9CABBE7ABF5E978735361F8B64F80FACE9D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1194072   (173783) от 23.12.2017
 
 Creedence Clearwater Revival - 1968-1969 (1978) 2LP [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Rock>
@@ -567,180 +740,6 @@ A4. Sundance (00:53)(   Читать дальше...   )Жанр: Progressive Me
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:95AEB8DE0CF8478A68625919D77EBDF71497E2CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670637   (171940) от 21.10.2023
-
-Devin Townsend - The Puzzle (2021) [FLAC|24/192|image + .cue|Vinyl-Rip] <Progressive Metal, Rock, Ambient>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171940.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Chromatic Ridge (03:44)
-A2. Life Is but a Dream (03:30)
-A3. Yucky Lung (01:22)
-A4. Kittenhead (01:13)(   Читать дальше...   )Жанр: Progressive Metal, Rock, AmbientПродолжительность: 01:05:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DCAF6C5BCC4FEE2367EDD2848BC8B4A8513AFD78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670505   (171830) от 21.10.2023
-
-Мираж - Звёзды нас ждут (1987-1988) hand made, remastered [FLAC|44/16|tracks|MB-Rip] <Pop, Dance, Disco>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171830.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD-1 (42:50)
-
-[6:03] 1. Звезды Нас Ждут
-[4:19] 2. Видео(   Читать дальше...   )Жанр: Pop, Dance, DiscoПродолжительность: 01:20:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:261C68AEFD6A04F25E52A6290E8508899A3C06D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670917   (171743) от 22.10.2023
-
-Rival Sons - Studio Albums (9 releases) (2009-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Blues Rock, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171743.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rival Sons — американская блюз-рок-группа из Лонг-Бич, Южная Калифорния.2009 - Before The Fire
-2010 - Prime Cuts (EP)
-2011 - Pressue and Time
-2012 - Head DownЖанр: Blues Rock, Hard RockПродолжительность: 06:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08B2C03D66B08AC7471D628BDD3EB9CE8853A29D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670844   (171738) от 22.10.2023
-
-Mick Foster & Tony Allen - The Worlds Of Mick Foster & Tony Allen (1988) [FLAC 2.0|24/192|image + .cue|Vinyl-Rip] <Pop, Folk, Country>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171738.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Tony Allen - Love Letters In The Sand
-A2 Tony Allen - He'll Have To Go
-A3 Tony Allen - Forgiving You Was Easy
-A4 Tony Allen - My Own Peculiar Way(   Читать дальше...   )Жанр: Pop, Folk, CountryПродолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51C7AD077D030FDB0A110D824B28F733C4F2FACD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671189   (171583) от 23.10.2023
-
-Brand New - Studio Albums (5 releases) (2001-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Punk, Post-Hardcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brand New — американская рок-группа из Лонг-Айленда, Нью-Йорк. Коллектив был основан в 2000 году.2001 - Your Favorite Weapon
-2003 - Deja Entendu
-2006 - The Devil And God Are Raging Inside Me
-2009 - DaisyЖанр: Punk, Post-HardcoreПродолжительность: 04:10:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19B955D54330CB36816555C860878394127CE80F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1671068   (171506) от 23.10.2023
-
-Черный Кофе - Два альбома: Переступи Порог и Вольному — Воля (1987, 1990) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171506.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Брожу По Городу Один • Roaming The City Alone
-(Д. Варшавский – А. Шаганов)
-A2 Вольному — Воля... • Life Never Waits
-(Д. Варшавский – А. Шаганов)(   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 01:12:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:719BAB39F16E7BDF1F772CB3C05818C9E3E5BB87
 ```
 
 https://mybot314.ru/tekegram_catalog/

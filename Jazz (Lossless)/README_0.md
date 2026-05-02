@@ -1,3 +1,61 @@
+###  Публикация: 1846003   (1051044) от 04.01.2026
+
+Electro Swing Groove - Fantasy Dreams (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051044.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tangerine Juice (2:50)
+02.  Masterpiece (2:28)
+03.  Run Away (3:17)
+04.  Floating Pineapples (2:41)(   Читать дальше...   )Жанр: Electro SwingПродолжительность: 00:57:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C2969DFC8E03A65A395DF6AA3816BF8B7000DF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1846004   (1051042) от 04.01.2026
+
+Electro Swing Radio - Bootleg Boogie (Electro Swing Trance Jazz Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sidecar Swing (Electro Swing Trance Jazz Music) (2:09)
+02.  Bootleg Boogie (Electro Swing Trance Jazz Music) (1:51)
+03.  Backroom Rhythm (Electro Swing Trance Jazz Music) (1:45)
+04.  Flappers Secret (Electro Swing Trance Jazz Music) (1:58)(   Читать дальше...   )Жанр: Electro Swing, JazzПродолжительность: 00:50:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E91D891476CA055BD5D60FFFA716C31DC978E12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1846007   (1051040) от 04.01.2026
 
 Electro Swing Radio - Swingin' Into Christmas (Chrismas Electro Swing Jazz Mix) (2025) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
@@ -687,64 +745,6 @@ Karin Krog & Bengt Hallberg - Cabin In The Sky (2011) Gazell [FLAC|Lossless|trac
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C10287B92EB7948908235A949256456080606EA1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602332   (1046119) от 05.01.2023
-
-Lee Wiley - Sings The Songs Of Rodgers & Hart And Arlen (1940 - 1943) 1986, Audiophile [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046119.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Baby's Awake Now [3:12]
-02. Here in My Arms [3:25]
-03. You Took Advantage of Me [2:53]
-04. A Little Birdie Told Me So [3:00](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0262E1D2BAF6CDCFB4A81DD3A3B17839F2D46ABF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602342   (1046115) от 05.01.2023
-
-John Patitucci & Andy James - An Evening With John Patitucci & Andy James (2021) 2CD, Le Coq Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046115.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Autumn in New York (feat. John Patitucci & Chris Potter) [4:23]
-02. Besame Mucho (feat. Chris Potter) [7:08]
-03. I Love You and Don't You Forget It (feat. Chris Potter) [3:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:22:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A568F49CE7E3E7B1A88A9679A166573954989F5
 ```
 
 https://mybot314.ru/tekegram_catalog/

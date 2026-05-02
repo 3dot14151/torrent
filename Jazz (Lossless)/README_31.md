@@ -1,3 +1,61 @@
+###  Публикация: 1091470   (942919) от 09.01.2017
+
+Brian Simpson - Persuasion (2016) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942919.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Persuasion (feat. Boney James)
+02. Wonderland
+03. One And Only
+04. Lost In Love (feat. Peter White)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD65AF9E3E8E853A1083AF6FBCE777169963AFCB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091460   (942916) от 09.01.2017
+
+Nathan East (Fourplay) - Reverence (2017) [FLAC|Lossless|tracks + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942916.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love's Holiday (feat. Philip Bailey)
+02. Lifecycle
+03. Elevenate
+04. Serpentine Fire (feat. Philip Bailey, Verdine White, Ralph Johnson)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:57:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D805285196AC8786EBA50A05FB967936BE40C1B1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363482   (942681) от 28.02.2020
 
 Ted Curson & Company - Jubilant Power (2008) Inner City Records [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -694,64 +752,6 @@ Felix Slovacek Big Band - Happy-Go-Lucky (1998) [FLAC|Lossless|tracks + .cue] <J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EA87F4C62C8853333CB29DD44C23B2FEBAC1652F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092875   (937430) от 13.01.2017
-
-The Modern Jazz Quartet - The Comedy & Concorde (1962) 1998, Atlantic[APE|Lossless|image + .cue] <Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Spanish Steps [05:37]
- 02.Columbine [04:12]
- 03.Pulcinella [04:25]
- 04.Pierrot [03:23](   Читать дальше...   )Жанр: CoolПродолжительность: 01:11:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE27D1603EDBDF41FD622F6077C7132FF39BC518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092885   (937428) от 13.01.2017
-
-Lena Horne - We'll Be Together Again (1994) Blue Note[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Maybe [02:46]
- 02.Something to Live For [04:46]
- 03.Day Follows Day [03:02]
- 04.Prelude to a Kiss [04:44](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FF7ED8ECB1C48876F97871B00DE12E223E1657F
 ```
 
 https://mybot314.ru/tekegram_catalog/

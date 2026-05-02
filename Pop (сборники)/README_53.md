@@ -1,3 +1,119 @@
+###  Публикация: 1537975   (664278) от 19.03.2022
+
+VA - Italo Disco Mania (2022) [MP3|320 Kbps] <Dance, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Robert Camero - Welcome Back (7:14)
+02. Sabrina Salerno - Rockawillie (Extended Mix) (6:15)
+03. Gibson Brothers - Cuba (5:22)
+04. N.O.I.A. - Do You Wanna Dance (LP Version) (6:12)(   Читать дальше...   )Жанр: Dance, DiscoПродолжительность: 05:18:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A789931253B59EAD4996C6A15D3BB313E4C751CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138295   (664266) от 29.05.2017
+
+VA - German Top 100 Single Charts 29.05.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664266.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Luis Fonsi – Despacito (feat. Daddy Yankee)
+002. Alice Merton – No Roots
+003. Ed Sheeran – Shape of You
+004. DJ Khaled – I’m the One (feat. Justin Bieber Quavo Chance The Rapper Lil Wayne)(   Читать дальше...   )Жанр: PopПродолжительность: 05:57:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96C525547C479CEF835ABFAFD6E67C9B29A65DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138516   (664260) от 29.05.2017
+
+VA - Зажигай в темпе ритма. Выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664260.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Нодар Ревия - Кухня 3:30
+002. Anyfrieva Daria - Беги От Меня 3:30
+003. Тимур Спб - Лучшая Подруга 3:27
+004. Глаза - Это Он Мама 3:29(   Читать дальше...   )Жанр: PopПродолжительность: 06:04:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70D7473F1F4B68AC705675CFE7A8A29A30F7B714
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1138274   (664147) от 29.05.2017
+
+VA - Русский отрыв Русского радио выпуск № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_664147.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Юлия Адамчук - Я Остаюсь 3:36
+002. Егор Диких - Дикие Племена 4:11
+003. Вика Курзова - Ты 4:11
+004. Юлия Holod - Просто Целуй 3:09(   Читать дальше...   )Жанр: PopПродолжительность: 06:07:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8841A22464CDE731EB150A75D5416AFEFA0DFCF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1138667   (663035) от 30.05.2017
 
 VA - Hit Music от Мяу - Лето (2017) [MP3|256-320 Kbps] <Pop>
@@ -653,128 +769,6 @@ VA - Жаркая летняя дискотека (2012) [MP3|256 кб/с]<Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65727871A4A451AAEB026FC332BE75192B49CEEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226423   (655760) от 20.05.2018
-
-VA - Unique Disco (2018) vol 2 [MP3|320 Kbps] <Electronic, Funk-Soul, PopRock, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amon Duul Ii - Kismet (1978) (3:57)
-02. Anilisi 91 - Disco Magic (1978) (3:24)
-03. Bogart - On Broadway (1979) (5:56)
-04. Captain Zorro - Phantasm (1979) (6:58)(   Читать дальше...   )Жанр: Electronic, Funk-Soul, PopRock, DiscoПродолжительность: 01:27:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:203323022E2F8335B6D726E214C3E1F175E49E36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140382   (655605) от 06.06.2017
-
-VA - Retro Radio Party (2017) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655605.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Army Of Lovers - Obsession 3:41
-002.  Wham! - Wham Rap 3:34
-003.  Tasmin Archer - Sleeping Satellite 4:34
-004.  Paul Young - Wherever I Lay My Hat (That's My Home) 4:10(   Читать дальше...   )Жанр: PopПродолжительность: 06:23:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5263FAD6C019F091380560D97AFBFD3C2AF65C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226360   (655442) от 20.05.2018
-
-VA - Русский Хит В Машину Выпуск 2 (2018) [MP3|256-320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Градусы - Она
-02. Юлия Самойлова - I Won't Break (Россия на «Евровидении-2018»)
-03. Егор Крид - Миллион алых роз
-04. Артур Пирожков - Чика(   Читать дальше...   )Жанр: PopПродолжительность: 05:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C41CD3D7AD867A88BAA6C592E5B941C6FD7CB86F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515412   (655433) от 26.06.2012
-
-VA - Самые Горячие Русские Хиты Муз-ТВ Хит 4 (2012) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655433.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Dan Balan - Не любя
-002 Слава - Sex не любовь
-003 Марсель - Иди ко мне
-004 Блестящие и Герои - Из Чего Же
-005 Джиган feat. Николай Басков - Паранойя
-006 Макс Барских - Пылай
-007 Наташа Королева - Небеса
-008 Филипп Киркоров - Я отпускаю тебя
-009 Анжелика Варум - Нарисуй Любовь
-010 Дима Билан & Nikki Jamal - Come Into My World(   Читать дальше...   )Жанр: PopПродолжительность: 05:49:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C3BC74F844FFE9BC63282035C777D13EF4A4D72
 ```
 
 https://mybot314.ru/tekegram_catalog/

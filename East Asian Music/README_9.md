@@ -1,3 +1,32 @@
+###  Публикация: 934103   (503264) от 04.09.2015
+
+2PM - NO.5 (2015) [MP3|320 кб/с]<k-pop, dance, R&B>
+
+>>East Asian Music
+>>Asian Pop
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_503264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Man
+02. Jump
+03. Know Your Mind
+04. Magic(   Читать дальше...   )Жанр: k-pop, dance, R&BПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B18CDAFB6832C68FF9BBDE67020ECAEE19CE8E0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 233077   (502801) от 07.09.2010
 
 Jeon Su Yeon - Sentimental Green (2005) [MP3|320 kbps]<NewAge>
@@ -721,34 +750,6 @@ LiveLiqueur - 2 альбома (2011) Touhou Vocal, Instrumental /Doujin/ [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F9FD0573BE9C4D30DB2BE8BD5DC784656C48B53A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 936510   (494384) от 12.09.2015
-
-Liset - 2 альбома (2009-2010) Touhou Vocal /Doujin/ [FLAC|tracks] <J-Pop>
-
->>East Asian Music
->>Doujin Music (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_494384.jpg" />
-</div>
-
-
-###  Подробнее
-
-Альбомы в раздаче
-2009.08.15 Koi no Danmaku Strike Out (C76)
-2010.03.14 Hoshi no Fune (Reitaisai 7)Тип издания: DoujinЖанр: J-PopФормат: Touhou VocalПродолжительность: 00:00:56:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E229B6542A67DFF3AA7B8E1A2A780581DA195E81
 ```
 
 https://mybot314.ru/tekegram_catalog/

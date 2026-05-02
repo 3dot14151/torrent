@@ -1,3 +1,148 @@
+###  Публикация: 1501854   (833536) от 11.10.2021
+
+Rockets - Some Other Rockets (2021) Limited Edition [FLAC 2.0|96/24|tracks|Vinyl-Rip] <Space Rock, Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_833536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atomic (Remixed Extended Version) [00:05:09]
+02. Radiate (Remix) [00:04:22]
+03. Radio Station (Extended Version) [00:05:02]
+04. Ideomatic (Remix) [00:04:16](   Читать дальше...   )Жанр: Space Rock, ElectronicФормат: Vinyl-RipПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1C2BEE7F702FC9B9A276E71CF3A260976E24919
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380462   (832949) от 03.05.2020
+
+Frank Sinatra - My Way (1969/1971) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Big Band>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832949.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Watch What Happens (from ''The Umbrellds of Cherbourg'')
+Norman Gimbel, Michel Legrand, Jaques Demy
+A2. Didn't We
+Jimmy Webb(   Читать дальше...   )Жанр: Jazz, Big BandПродолжительность: 00:33:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB84BF68342DF1CC9584D665E295E0CC064ADF90
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1380624   (832820) от 03.05.2020
+
+The Rolling Stones - Some Girls (1978) [DSD 128|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss You (4:49)
+ 02. When the Whip Comes Down (4:21)
+ 03. Imagination (4:39)
+ 04. Some Girls (4:37)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78705E635D860CB85D04CA0E8D2F04B2E99AECB0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 773795   (832753) от 04.04.2014
+
+Electric Light Orchestra - On The Third Day (1973) [FLAC 2.0 24/192|image (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832753.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Ocean Breakup / King of the Universe (4:06)
+A2. Bluebird Is Dead (4:43)
+A3. Oh No Not Susan (3:07)
+A4. New World Rising / Ocean Breakup (Reprise) (4:04)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:39:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F000FA62D86910ABA9AA879B16EB485E629FADDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114400   (831490) от 15.03.2017
+
+The Alan Parsons Project - The Best Of The Parsons Project (1983) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Prog Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wouldn't Want To Be Like You (3:11)
+02. Eye In The Sky (4:35)
+03. Games People Play (4:20)
+04. Time (4:58)(   Читать дальше...   )Жанр: Prog RockПродолжительность: 00:49:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA31FBBE59C2E269055BEB99D758534D438B3DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1380819   (831443) от 04.05.2020
 
 Andy Williams - Showstoppers. Recorded 1965 (1974) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop>
@@ -607,147 +752,6 @@ Depeche Mode - Delta Machine (2013) [FLAC 2.0 24/192|Tracks (Vinyl-Rip)]<Electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CDE2EAC082BE49756F33BDB982AB8EE9C97F82CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 317289   (809318) от 02.04.2011
-
-Suzi Quatro - Два альбома (1973, 1974) [LPCM 2.0 96/24 | Audio-DVD (Vinyl Rip)] <Pop Rock, Glam Rock>
-
->>След.
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809318.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот Audio-DVD (музыкальный DVD-Video) диск был сделан мною на основе материала, предоставленного уважаемым luckburz.
-Формат DVD-Video был выбран мною для авторинга из-за несомненных удобств, предоставляемых им: возможности использования несжатого высококачественного звука, навигации по трекам, и наибольшей совместимости с имеющимися у потенциальных слушателей проигрывателями. (   Читать дальше...   )Жанр: Pop Rock, Glam RockПродолжительность: 00:50:34, 00:42:40
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1118708   (808803) от 27.03.2017
-
-Queen - A Kind Of Magic (1986) [FLAC 2.0|192/24|tracks+.cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808803.jpg" />
-</div>
-
-
-###  Подробнее
-
-side A
-01. One Vision (5:11)
-02. A Kind Of Magic (4:25)
-03. One Year Of Love (4:28)(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63206D3840DB89213E8BF171A67C22BF840CA9D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 778284   (806626) от 18.04.2014
-
-Varios - Колокольные звоны Псково-Печорского монастыря (1981) [[FLAC 2.0 24/96|traks(Vinil-Rip)]]<Church bells/Russian Falc>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806626.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Сторона 1  19:10
-2. Сторона 2  21:22Жанр: Church bells/Russian FalcПродолжительность: 00:50:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63222FEAC29B7C19564568D5B9A987D0FCB65856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1198063   (806041) от 12.01.2018
-
-Hidehiko Matsumoto & Yoshio Kimura - Festival of Enka (1969) [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Easy Listening, Sax>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806041.jpg" />
-</div>
-
-
-###  Подробнее
-
-LP1:
-01. 命預けます - Inochi Azukemasu
-02. 圭子の夢は夜ひらく - Keiko no Yume wa Yoru Hiraku
-03. 女のブルース - Onna no Blues(   Читать дальше...   )Жанр: Easy Listening, SaxПродолжительность: 00:33:26 + 00:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03DC6852B4513188CDDBBD184EDE37E6E8045831
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1042696   (803133) от 30.03.2017
-
-Felix Slovacek - Феликс Словачек (1984) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Jazz, Easy Listening>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_803133.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Когда уходишь • Kdyz Otchazis
-02. Ты озарила мою жизнь • Prozarila Jsi Muj Zivot
-03. Так, как я тебя люблю • Protoze Te Mam Rad
-04. Радость до утра • Radost Az Do Rana(   Читать дальше...   )Жанр: Jazz, Easy ListeningПродолжительность: 00:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC28C996ED3D7DC1867ABCC338DA2C793D59903C
 ```
 
 https://mybot314.ru/tekegram_catalog/

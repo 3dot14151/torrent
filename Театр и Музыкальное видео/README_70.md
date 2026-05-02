@@ -1,3 +1,87 @@
+###  Публикация: 924684   (557402) от 04.08.2015
+
+Aerosmith - Rock For The Rising Sun (2011) BDRip [H.264/1080p]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557402.jpg" />
+</div>
+
+
+###  Подробнее
+
+После землетресения в 2011году на Фукусиме, Япония. Рок - группа Aerosmith дала ряд концертов в Японии в 2011году, об этом туре Eagle Rock Entertainment выпустил в 2013году фильм - концерт Aerosmith - Rock For The Rising Sun.01. Draw the Line
+02. Love in an Elevator
+03. Livin' on the Edge
+04. Hangman Jury(   Читать дальше...   )Жанр: RockПродолжительность: 01:34:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C97D161FE845994026EDE91F57F7B209A16E966B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924681   (557234) от 04.08.2015
+
+VA - Летний марафон № 179 / Видеоклипы (Зарубежные Клипы) (2015) HDTVRip [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Музыкальные клипы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557234.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летние (04.08.2015) поп. новинки зарубежной эстрады. Не пропустите, держите новые треки.1. Akcent ft. Meriem - Dilemma (00:03:30)
+2. Alexandra Stan - Cherry Pop (00:03:19)
+3. Alexandra Stan - Dance (00:03:41)
+4. Andreea Balan - Baila (Spanish Version) (00:04:04)(   Читать дальше...   )Жанр: Pop, Dance, Latino, Soul, RapПродолжительность: 01:22:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C810D66EA261F957758585E7CE1D062D89CB8B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153467   (556875) от 28.07.2017
+
+The Cure - In Orange (1987) DVD9
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_556875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт британской рок-группы The Cure . Был снят в античном театре  d'Orange во французской деревне VaucluseПроизводство: США, FictionЖанр: МузыкаРежиссер: Tim PopeПеревод: ОтсутствуетСубтитры: отсутствуютПродолжительность: 01:50:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:669531DFA043F047292E20BC10B2D93D93C5335D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 971448   (556833) от 25.08.2016
 
 Уильям Шекспир - Усилия любви... (2006) DVDRip (Малый Театр)
@@ -606,90 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:088E39762E8440F3597D9F4E3CBE2F95C62512FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 815504   (551381) от 24.08.2014
-
-Фестиваль бардовской песни (2014.08.23) SATRip
-
->>Театр и Музыкальное видео
->>Концерты (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551381.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фестиваль бардовской песни на Первом каналеЖанр: КонцертПродолжительность: 01:27:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00040F82666E1C8D38E6C014AEAAFFE5B1EB7599
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 815824   (551377) от 24.08.2014
-
-Hatebreed - Live Dominance (2008) WEBRip [H.264/720p-LQ]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551377.jpg" />
-</div>
-
-
-###  Подробнее
-
-Съемками концерта в высоком качестве занимался Kevin Custer. Вокалист HATEBREED Jamey Jasta сказал по этому поводу: «Это высококачественный релиз и мы гордимся тем, что получилось. Он отлично демонстрирует, что такое музыка HATEBREED, как мы ведем себя на концертах и какую поддержку получаем от наших фэнов по всему миру».01. This Is Now
-02. Perseverance
-03. A Call For Blood
-04. To The Threshold(   Читать дальше...   )Жанр: Концерт, Metalcore/Hardcore punkПродолжительность: 01:15:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:617D417A8648C6E6C4770CF668DEFA7F28A97046
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 693067   (550320) от 25.08.2013
-
-VA - Old Pop songs (1969 - 1997) vol.2 (2013) DVDRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Level 42 - Hot Water 1984
-02. Level 42 - Lessons In Love
-03. Lionel Richie - Hello 1984
-04. Lisa Stansfield - Change(   Читать дальше...   )Жанр: Музыка, PopПродолжительность: 02:42:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9F5D58491A2CD8623990B208206E0B93E333B5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

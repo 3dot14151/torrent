@@ -1,3 +1,32 @@
+###  Публикация: 1002315   (848608) от 31.03.2016
+
+Elina Garanca - Meditation (2014) [FLAC|Lossless|image + .cue] <Classical, Opera>
+
+>>Классика
+>>Вокал (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848608.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Charles Gounod - Sanctus  5:39
+02.  Charles Gounod - Repentir (O Divine Redeemer)  6:34
+03.  Ugjis Praulinjsh - Dievaines  6:25
+04.  Pietro Mascagni - Regina coeli laetare  5:56(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:11:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65968525AFAFE447E341A7BBE839179E4BDD3E59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1002305   (848604) от 31.03.2016
 
 Elina Garanca - Elina (2013) [FLAC|Lossless|image + .cue] <Classical, Opera>
@@ -713,35 +742,6 @@ Violin Concerto in A minor, op. 53
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:23CEA3CD51CC2ADF607F7C49599C35D92DDEAD4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004514   (836423) от 07.04.2016
-
-Dvorak / Дворжак - Violin Concerto, Cello Concerto (Ricci, Nelsova, Susskind-SLSO) (2007) [MP3|320 кб/с] <Classical, Concerto>
-
->>Классика
->>Оркестровая
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836423.jpg" />
-</div>
-
-
-###  Подробнее
-
-Violin Concerto in A minor, op. 53
-01. (1) Allegro ma non troppo - Adagio ma non troppo
-02. (2) Finale. Allegro giocoso
-(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:06:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F0B92B02B4628614A278816D18C75FC68581C5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

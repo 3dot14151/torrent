@@ -1,3 +1,206 @@
+###  Публикация: 1025857   (705873) от 14.06.2016
+
+Air - Twentyears (2016) [MP3|320 кб/с] <Electronic, Downtempo, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705873.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La femme dargent 07:06
+02. Cherry Blossom Girl 03:39
+03. Kelly Watch The Stars 03:45
+04. Playground Love (with Gordon Tracks) 03:32(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 02:12:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E78750FDF6ADD70BEF84BDF6D5AB67C5E4AF0E6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026102   (705868) от 14.06.2016
+
+Joseph Bishara - The Conjuring 2 / Заклятие 2 (Music from the Motion Picture) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705868.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enfield Opening (00:46)
+02. As Close to Hell (03:31)
+03. Conjuring 2 (00:46)
+04. It Isn’t Real (00:46)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:53:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0472ED1DC3B12614CE9EAFD1D6F974423AEF7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1401958   (705614) от 12.08.2020
+
+VA - Music For Quick Morning Yoga (2020) [FLAC|Lossless|WEB-DL|tracks] <New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705614.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Spirit - Om Ha Hung (07:16)
+02. Foundations - Deep Loneliness (09:55)
+03. Power Shui - Bombay Nights (04:14)
+04. Spirit - Balayogi Pahi Mam (03:41)(   Читать дальше...   )Жанр: New ageПродолжительность: 01:27:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D967AFC749FE622D8C3D0E9515BAB153BA9538AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533098   (705331) от 24.02.2022
+
+Kamal - Reiki Whale Song (2001) [FLAC|Lossless|tracks + .cue] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whale Dreaming
+02. Song Of The Deep
+03. Enchanted Worlds
+04. Travellers Of The Seas(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FD36D9FD6C788E07B748EC432011F639BE64F94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 894657   (704893) от 03.05.2015
+
+Armik - Romantic Spanish Guitar Vol.2 (2015) [FLAC|Lossless]<Latin, Flamenco>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704893.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Winds of Passion (4:35)
+02. Breathless (4:55)
+03. Guitanova (4:39)
+04. Isla Mujeres (4:39)(   Читать дальше...   )Жанр: Latin, FlamencoПродолжительность: 00:50:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F8FA9DB6467FB07219F5E163CE33DC9355A2005
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026199   (704154) от 15.06.2016
+
+Juliana - Earth Goddess (2012) [FLAC|Lossless|WEB-DL|tracks] <New Age, Relax, Vocal>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prithivi - Earth    11:48
+02. Jala - Water    12:12
+03. Agni - Fire    10:44
+04. Aria - Air    12:04Жанр: New Age, Relax, VocalПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3543842A0C032F8C674D8BAF026DDA282DD587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026264   (703961) от 15.06.2016
+
+Brian Bennett - Shadowing John Barry (2015) [FLAC|Lossless|tracks] <Contemporary, Soundtrack, Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Thunderball    02:57
+02. Out Of Africa    03:33
+03. You Only Live Twice    03:12
+04. The Appointment    03:17(   Читать дальше...   )Жанр: Contemporary, Soundtrack, ClassicalПродолжительность: 00:46:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE266EDBE5F53808063014AC2FD856F7506E7487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1026440   (703953) от 15.06.2016
 
 Anhidema - Conversation with the Cosmos (2014) [MP3|320 кб/с] <New Age, Ambient, Chillout>
@@ -542,209 +745,6 @@ VA - Prey (Original Game Soundtrack) (2017) [MP3|241-287 кб/с]<Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5C1A070128852A79D095B0B7D525078180ED2870
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132489   (700450) от 09.05.2017
-
-The Dead South - Good Company (2014) [FLAC|Lossless|WEB-DL|tracks + .cue] <Bluegrass,  Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700450.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Long Gone (2:17)
-02. Achilles (2:25)
-03. The Recap (4:15)
-04. In Hell I'll Be In Good Company (4:03)(   Читать дальше...   )Жанр: Bluegrass,  Folk, World, & CountryПродолжительность: 00:47:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C7EE63FE8E747A2D56BCC0809B92D70C9C30A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131769   (700442) от 09.05.2017
-
-Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Артура (Original Motion Picture Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Nothing Comes a King (00:43)
-02. King Arthur: Legend of the Sword (02:52)
-03. Growing Up Londinium (02:42)
-04. Jackseye's Tale (03:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8EA1980BF19B0AF240635CBD64B0BFEF1F16F5EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179508   (700434) от 21.04.2018
-
-VA - Салют-7 (2017) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Иван Бурляев & Дмитрий Носков - Accident [03:40]
-02. Иван Бурляев & Дмитрий Носков - Connection's Lost [04:32]
-03. Иван Бурляев & Дмитрий Носков - Trainings [02:50]
-04. Иван Бурляев & Дмитрий Носков - Families & Take Off [04:39](   Читать дальше...   )Жанр: ScoreПродолжительность: 01:24:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:240E0E5AE8D3D725341F572EC76EA1FA196B11FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026939   (700405) от 17.06.2016
-
-David Darling - Gratitude (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700405.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughing at the Moon [00:05:10]
-02. Of Faith [00:02:35]
-03. Song of the Rain [00:03:23]
-04. Gratitude [00:03:43](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:38:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8A5CA8FB59FE938DA876810ABBC09D9F9E7FBB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1131765   (700358) от 09.05.2017
-
-Daniel Pemberton - King Arthur: Legend of the Sword / Меч короля Артура (Original Motion Picture Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700358.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. From Nothing Comes a King (00:43)
-02. King Arthur: Legend of the Sword (02:52)
-03. Growing Up Londinium (02:42)
-04. Jackseye's Tale (03:31)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:31:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4303C47C21A7375D0FD7AD98A4FE9B230382A034
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1027059   (700322) от 17.06.2016
-
-Thomas Newman - Finding Dory / В поисках Дори (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700322.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kelpcake (00:46)
-02. Finding Dory (Main Title) (00:55)
-03. Lost at Sea (01:36)
-04. One Year Later (02:24)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:00:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F5B50077665470F832B4501984F2E10822A18A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026906   (700321) от 17.06.2016
-
-Brian Tyler - Now You See Me / Иллюзия обмана (Complete Motion Picture Score) (2013) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Now You See Me (02:02)
-02. The Team (02:45)
-03. Opus NYSM (02:28)
-04. Chess Moves (03:56)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:21:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F2C6EF32840B8A5E186C267AF0568D9687E4E92
 ```
 
 https://mybot314.ru/tekegram_catalog/

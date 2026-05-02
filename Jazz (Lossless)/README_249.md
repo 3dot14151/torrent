@@ -1,3 +1,61 @@
+###  Публикация: 1633997   (240437) от 18.05.2023
+
+Marcello Tonolo Trio - Lazy Afternoon (2010) Caligola [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Out of This World [8:38]
+02. When Lights Are Low [7:20]
+03. Crazeology [5:08]
+04. Lazy Afternoon [6:44](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A6B5FFC9140FEA7DC1540E6B1375111D3E29A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1620817   (240418) от 22.03.2023
+
+The Buddy Collette Big Band - Live At El Camino College (1990) 2006, UFO-BASS [FLAC|Lossless|tracks + .cue] <West Coast Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240418.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazz By The Bay [10:18]
+02. Blues In Torrance [6:44]
+03. Magali [6:46]
+04. Crystal [5:28](   Читать дальше...   )Жанр: West Coast Jazz, Big BandПродолжительность: 01:19:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4890FC5D302746AF52EF047674F8681EA1E10179
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1634222   (240368) от 19.05.2023
 
 Andrea Pozza European Quintet - Gull's Flight (2011) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
@@ -687,64 +745,6 @@ Terence Blanchard - Terence Blanchard (1991) Columbia [FLAC|Lossless|tracks + .c
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:068729168D780F391DE4706DC5B53257D52DA9FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1637612   (239797) от 05.06.2023
-
-Bruce Torff - Look Again (2013) Summit Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Look Again [4:49]
-02. One and Only [4:41]
-03. In the Flow [4:19]
-04. When I Said Goodbye [2:50](   Читать дальше...   )Жанр: Vocal Jazz, Contemporary JazzПродолжительность: 00:49:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455952A4E983CC67FEF56F649415E2D5411BBA8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621763   (239768) от 26.03.2023
-
-Benny Golson - Turning Point & Free (1962) 2013, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_239768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How Am I to Know? [3:50]
-02. The Masquerade Is Over [4:40]
-03. Dear Kathy [4:49]
-04. Three Little Words [4:42](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E33727B5C576C48665D67C44FD909BB8F22F8EE0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,30 @@
+###  Публикация: 1734423   (107109) от 03.07.2024
+
+Carole Stott, Sam Priddy, Jolyon Goddard, SusaMcKeeve, Bernadette Crowley (еditors) | Night Sky (2018) [PDF] [EN]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107109.jpg" />
+</div>
+
+
+###  Подробнее
+
+Explore Nature with Fun Facts and Activities. Age Range: 6 - 8 years.
+A fantastic first book on our universe. Explore the world of stars, planets, and astronomy. Discover what a star is, how the moon looks close up, and what tools astronomers use to look at space. With exciting activities, like how to look at the sun safely, and plenty of fun facts, this book is (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1125515EEEE5AC287A39BCD61D62AE03B3733AB7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1743261   (105476) от 15.08.2024
 
 Т.Е. Ванагель | Алфавит (2013) [PDF, JPG]
@@ -671,32 +698,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C5A158E6FF6AAB16B97D95E5E5E2C148BC44AB6B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 485906   (89943) от 21.04.2012
-
-М.Ю.Волошко | Учимся читать по-английски (2010) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_89943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полная серия пособий для обучения детей чтению на английском языке, которая начинается с самых простых слов, постепенно добавляя все новые буквосочетания, содержит рекомендации для родителей и учителей на русском языке. На каждое слово есть картинка, что делает процесс очень простым и занимательным. Если вы разговариваете со своим ребенком на английском языке с младенчества (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:384684B9E49FFB958848AD262AF6FFFA6B3D2449
 ```
 
 https://mybot314.ru/tekegram_catalog/

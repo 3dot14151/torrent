@@ -1,3 +1,61 @@
+###  Публикация: 1483181   (1007027) от 12.07.2021
+
+Woody Herman - Brand New (1971) 2000, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band, Jazz-Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sidewalk Stanley [5:26]
+02. After Hours [6:41]
+03. Since I Fell for You [4:05]
+04. Proud Mary [4:20](   Читать дальше...   )Жанр: Mainstream Jazz, Big Band, Jazz-RockПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F797E98DB632A5795FB8447A160247D24E2A3E75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1483205   (1007021) от 12.07.2021
+
+Chris Geith - Invisible Reality (2021) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1007021.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invisible Reality (4:22)
+02. Whispers in the Night (5:10)
+03. Alive (4:16)
+04. Love Anchors the Soul (4:14)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 01:07:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ABD87BC9800924774DC3DD3C8229D07BFA1D572
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1483210   (1007020) от 12.07.2021
 
 Dean Fraser - Flat Bridge (2021) [FLAC|Lossless|WEB-DL|tracks] <Reggae, Jazz>
@@ -687,64 +745,6 @@ Oscar Peterson Trio - 1945 - 1950 (1997) Giants Of Jazz [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF8D7695ECBF59500883C378D007C03C8A293981
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350731   (1003019) от 07.01.2020
-
-The Oscar Peterson Trio - In Tokyo: Live At The Palace Hotel 1972 (2005) Columbia [FLAC|Lossless|image + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003019.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Good Life [5:32]
-02. What Am I Here For? [5:46]
-03. I Hear Music [6:37]
-04. What Are You Doing For The Rest Of Your Life [4:54](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:55:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF19E396CCBB0455E7A1753E14F48BB3102B795
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350968   (1002790) от 08.01.2020
-
-Roland Keijser Quartet - Saxophone Valley (2000) Sittel [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1002790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Locomotive [5:01]
-02. Swedish Schnapps [8:13]
-03. Kids Know Valse Hot [6:48]
-04. Why Don't I [5:08](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:12:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0BEFD713EF718E36A916AF77D09FAF916685628
 ```
 
 https://mybot314.ru/tekegram_catalog/

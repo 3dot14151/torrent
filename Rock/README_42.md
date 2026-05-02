@@ -1,3 +1,32 @@
+###  Публикация: 1549728   (593390) от 07.05.2022
+
+StuckFish - 3 Albums (2018-2022) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_593390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Age Of Renewal [00:07:12]
+02. Days Of Innocence [00:07:53]
+03. Painted Smile [00:08:03]
+04. GameChanger [00:05:35](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 02:36:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAFBFDC0D28BA80E81889D2FDA9A64F45200956F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 596830   (593171) от 07.05.2022
 
 Холодне сонце (ХолоDне сонце, Solarice) - 3 Albums + 1 Promo CD + 2 Single (2004-2021) [MP3|256-320 kbps] <Gothic Rock, Melodic Rock>
@@ -708,35 +737,6 @@ The Sweet - Les Genies du Rock - Fox on the Run (1995) [MP3|320 кб/с]<Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60B8ED497F2A25F8C69F6A4A30BEF280F0DF8261
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 919517   (582932) от 19.07.2015
-
-Status Quo - Les Genies du Rock - Pictures of Matchstick Men (1995) [MP3|320 кб/с]<Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice In The Sun [02:12]
-02. Lakky Lady [03:07]
-03. Is It Really Me [02:42]
-04. Gerundula [03:19](   Читать дальше...   )Жанр: RockПродолжительность: 01:10:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A094F7AA68A2946C4429F6106E0D354CDD6704
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,207 @@
+###  Публикация: 581171   (320155) от 29.11.2012
+
+Vicetone feat. Barack Obama - Hope (Single) (2012) [MP3|320 кб/с]<House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320155.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Vicetone feat. Barack Obama - Hope (Original Mix)
+2. Vicetone feat. Barack Obama - Hope (Radio Edit)Жанр: HouseПродолжительность: 00:10:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4945E01B3C2E8F7EA70ABB7AB00707176D814527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 156763   (320010) от 06.12.2009
+
+Scatman John - 2 Single, 3 Albums (1994-1999) [FLAC|Lossless]<Eurodance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_320010.jpg" />
+</div>
+
+
+###  Подробнее
+
+В данной дискографии присутствуют все 3 его известных альбома во FLAC и, в качестве бонуса, два его первых сингла, успех которых поспособствовал созданию этих самых альбомов тоже во FLAC + минибонус Listen to Scatman, где на суд общественности были представлены его джазовые наработки.1  Take Your Time    3:46
+2  Scatman's Dance   3:23
+3  The Chickadee Song   3:21
+4  Take Me Away   3:52
+5  Scat Me If You Can   3:58
+6  I Love Samba   3:42
+7  Sorry Seems To Be The Hardest Word   4:56
+8  Ichi Ni San....Go   4:14
+9  Dream Again   3:53
+10  Everyday   3:41(   Читать дальше...   )Жанр: EurodanceПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1181988   (319437) от 09.11.2017
+
+VA - Kingside Fitness Workout 2017 [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319437.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. WTDJ, Mark Vox, Robbie Mirello - Dirty Sound 04:18
+02. Insiders - Broken 04:11
+03. Mark Vox - Together 04:45
+04. Denis Dawydow, Simon Aces - Orientalia (Denis Dawydow edit) 04:13(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:53:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C54DA2E0F4D1C139557C89841681D5032072EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1182102   (319337) от 09.11.2017
+
+VA - Club Sounds The Ultimate Club Dance Collection Vol.83 (2017) [MP3|320 Kbps] <House, Progressive, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319337.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: House, Progressive, ElectroПродолжительность: 01:12:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F76779FF6DA935887575727551DEFABC0322C39C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259647   (319045) от 04.11.2018
+
+VA - Deep House Hits: Winter 2018 [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loud Luxury & anders – Love No More (02:48)
+02. Low Steppa – Heard It All Before (02:24)
+03. Lost Frequencies – Like I Love You (feat. The NGHBRS) (03:10)
+04. Kokiri & Dragonette – Faith in Love (03:09)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CEA59A1D078BCCEF41775AE9D66DDF75CAE1F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1075614   (318685) от 23.11.2016
+
+VA - Milk & Sugar Winter Sessions 2017 (2016) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318685.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giom - Last Dance (Karol Xvii & Mb Valence Loco Remix) 07:35
+02. Lexer - Disrupted Signals (Original Mix) 05:56
+03. Alexander Remus - Sheets (Feat Liza Flume - Original Mix) 06:03
+04. Superlounge - Unfold (Original Mix) 07:13(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 05:53:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DDC94B8192FC67AC939FF418896EB42D0E8E208
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 959352   (317381) от 24.11.2015
+
+VA - 55 Dancefloor Minimal Hits (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Corner - Jellyfish (Stefan F Remix) [05:42]
+02. Ochu Laross - Hell And Purgatory And Paradise (Sadder Remix) [07:44]
+03. Copyzor - Minimal Terminal [06:31]
+04. Jose Solano - Bam Motherfucker [06:23](   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 05:58:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AD4BBB7DB454FF9861F6DE6D75AF0241C8DAFA9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 959340   (317316) от 24.11.2015
 
 VA - 55 Bombs Of Minimal (2015) [MP3|320 кб/с]<House, Tech House, Deep House>
@@ -540,215 +744,6 @@ VA - ADE Underground Amsterdam Sampler (2019) [MP3|320 Kbps] <Progressive House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8543C3677020E18DF166678D5DA8403CA27E6D79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422251   (313055) от 07.11.2020
-
-Workout Music Tv - 40 Best Hits For Street Workout 2020 [MP3|320 Kbps] <House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ice Ice Baby - Workout Remix (4:31)
-02. The Hum - Workout Remix (5:50)
-03. Knockout - Workout Remix (4:35)
-04. Jump That Rock - Workout Remix (3:45)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 02:59:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13F772CCF7C9012159D8DB9F41A87052BF183062
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182911   (312790) от 12.11.2017
-
-VA - Party Time Compilation (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312790.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Clubhunter - Do Me 2017 (Turbotronic Radio Edit)  3:08
-02.  Turbotronic - Bambadang (Radio Edit)  3:13
-03.  Bad Booty Brothers - Adrenaline (Radio Edit)  3:06
-04.  FLGTT - Party Jumpin (Radio Edit)  3:41(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 03:05:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27DEB38CBBB92D2BB9C16F383DE81FF89E9B2DD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1183139   (312697) от 12.11.2017
-
-VA - Ibiza House Shredders (2017) [MP3|320 Kbps] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312697.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leitz - Hot Springs (Original Mix) 07:02
-02. Indepth - What The Heart Says (Diamandy Remix) 06:57
-03. Chriss Callebra - Love Hurts (Ferdas Digital Remix) 05:07
-04. Phase Modulation - Perspective (Original Mix) 08:33(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 02:44:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:046989F42D1AD31BF4A2CD6515784D0937BDF0FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 584403   (310660) от 03.12.2012
-
-VA - Pool Loungue Emotional & Sensual Grooves (2012) [MP3|320 кб/с]<Deep House, Chill Out>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310660.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afroloko - Narita Lounge (Original Mix)
-02. Afroloko feat. Mr Tono - Cuentos De La Habana (Original Mix)
-03. Nathalie Gampert - Bajo Mundo (Original Mix)
-04. Kike Fernandez - Alegria en Bosa (Original Mix)
-05. Kike Fernandez - Monaco (Original Mix)
-06. Alex Gomez feat. Ruben Moran - Copaccabana (Original Mix)
-07. Jon Flores feat. Carmen Nophra - Under Heaven (DJ Wady Remix)
-08. Andres Santana - Virgin (Original Mix)
-09. Matt Correa Feat. Alejandra Toledano - Stranger (Original Mix)
-10. Juanmy. R - Lantrophia (Original Mix)(   Читать дальше...   )Жанр: Deep House, Chill OutПродолжительность: 01:20:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51939E46A41813459B95DD435E4458F787BECFA2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960228   (309613) от 27.11.2015
-
-David Guetta - Listen Again (2015) [MP3|320 кб/с]<House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_309613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dangerous (feat. Sam Martin)
-02. What I Did For Love (feat. Emeli Sandé)
-03. No Money No Love (feat. Elliphant & Ms. Dynamite)
-04. Lovers On The Sun (feat. Sam Martin)(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 03:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BC9BFB8AC1E2E5DCECB58070DB7CC71B7A31371
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1076544   (308871) от 27.11.2016
-
-Pete Tong and The Heritage Orchestra - Classic House (2016) [MP3|320 Kbps] <Electronic, House, Dance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308871.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pete Tong - Right Here, Right Now (4:14)
-02. Pete Tong - Pjanoo (3:08)
-03. Pete Tong feat. Cookie - Lola's Theme (3:20)
-04. Pete Tong - Children (2:31)(   Читать дальше...   )Производство: Astralwerks (US1A)Жанр: Electronic, House, DanceПродолжительность: 01:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0A4D10BE4540457465D66BC09B7AC4F2A5A60CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 417904   (308766) от 04.12.2011
-
-666 - Дискография 28 Releases (22 Singles / 6 Albums) (1997-2010) [MP3|192-320 kbps]<House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308766.jpg" />
-</div>
-
-
-###  Подробнее
-
-666 (англ. «six six six», русск. «шесть, шесть, шесть») — немецкая музыкальная группа, работающая в стиле евродэнс, Hard House. За время своего существования на сцене им удалось добиться следующих результатов: 15 золотых премий, 4 платиновых, попадание в музыкальные чарты более 30 раз, 4 миллиона проданных музыкальных копий . Группа добилась высокого уровня известности (   Читать дальше...   )1.Cathedral Of Sin (Introduction)
-2.Amokk
-3.Get Up 2 Da Track (666 Is Back)
-4.La Vasca Se Mueve(   Читать дальше...   )Жанр: HouseПродолжительность: 16:42:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3735AF6BAA5945E598B568111F2FDE16AE07684
 ```
 
 https://mybot314.ru/tekegram_catalog/

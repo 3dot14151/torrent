@@ -1,3 +1,206 @@
+###  Публикация: 1464189   (1019973) от 21.04.2021
+
+Kailash Kokopelli - Collection (2000-2005) 2альбома [MP3|320 Kbps] <Native American, Didgeridoo, Trance>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019973.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fragrance
+02. Himba
+03. Mother Earth
+04. Heartlight(   Читать дальше...   )Жанр: Native American, Didgeridoo, TranceПродолжительность: 02:13:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A20123B4A8EF806953E85CC84CE81728825BCF7D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464431   (1019728) от 22.04.2021
+
+OST - Вампиры средней полосы (2020) [MP3|320 Kbps] <Саундтрек>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019728.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (2:39)
+02. Расследование (3:02)
+03. 1947 (1:43)
+04. Маркиз Де Шамм (3:22)(   Читать дальше...   )Жанр: СаундтрекПродолжительность: 00:40:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C21F80FF669231B70EFC8952031A86C1910647A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464851   (1019632) от 23.04.2021
+
+Johannes Linstead - Discography (1999-2017) [MP3|320 Kbps] <Flamenco, Guitar, Latin>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain Mist (3:46)
+02. The Temple at Delphi (3:39)
+03. Don Juan (3:55)
+04. Gypsy Rain (3:50)(   Читать дальше...   )Жанр: Flamenco, Guitar, Latin, New AgeПродолжительность: 08:38:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DAD341FABF92DC4E4F3BEAF3AC5580B59F91575
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465267   (1019312) от 25.04.2021
+
+Shanti People - Krishna is Love (2013) [MP3|320 Kbps] <New age, Folk, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (3:32)
+02. Sri Mangala Gita (4:42)
+03. Sri Radhika Stava (6:25)
+04. Bolo Radha Ramana (3:10)(   Читать дальше...   )Жанр: New age, Folk, MeditativeПродолжительность: 00:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5949C9733F9BFE20F63DC649FDD2FE6FE05D85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1464936   (1019297) от 25.04.2021
+
+Tierra Negra - Discography (1997-2020) [MP3|320 Kbps] <Flamenco, Acoustic Guitar, Flamenco Nuevo>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019297.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rafaga De Luz (3:29)
+02. Boreal (3:40)
+03. Djobi Djoba (2:47)
+04. Tramontana (3:49)(   Читать дальше...   )Жанр: Flamenco, Acoustic Guitar, Flamenco NuevoПродолжительность: 14:40:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5C4345398AAAF6570EBFC85BCC9246CF856FBD0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465042   (1019285) от 25.04.2021
+
+Johannes Linstead - Discography (1999-2017) [FLAC|Lossless|tracks + .cue] <Flamenco, Guitar, Latin>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mountain Mist (3:46)
+02. The Temple at Delphi (3:39)
+03. Don Juan (3:55)
+04. Gypsy Rain (3:50)(   Читать дальше...   )Жанр: Flamenco, Guitar, Latin, New Age |Продолжительность: 08:38:50 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E0E4EE1DEF1A69E57F6FCD8DB9BFC56F85130BCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1027900   (1019280) от 25.04.2021
+
+Shanti People - Urban Mantras (2015) [MP3|320 Kbps] <New age, Folk, Meditative>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1019280.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saraswathi Devi Sloka (3:36)
+02. Bolo Krishna (3:57)
+03. Om Namo Bhagavate Vasudevaya (4:52)
+04. Surya Narayana Dandakam (5:03)(   Читать дальше...   )Жанр: New age, Folk, MeditativeПродолжительность: 00:40:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5818760EF3D62AE6812313E2540D8837871F3BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465723   (1018931) от 27.04.2021
 
 Medwyn Goodall - The Wolfstone (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
@@ -544,209 +747,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F2EFE8EA09BFFC631EB13E0FFC05FC51686BDEAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1476442   (1011493) от 12.06.2021
-
-Neal Schon - Universe (2020) Reissue, 2021, Neal Schon Music [FLAC|Lossless|tracks + .cue] <Instrumental Guitar Rock>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011493.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Something in the Heart 07:13
-02. The Eye of God 02:16
-03. The Universe 04:23
-04. Caruso 05:43(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 01:10:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08223BB4C7CADFD716A88BF98E3B5F893829D4D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477076   (1011359) от 13.06.2021
-
-The Ugly Guys - Senior Moments (2018) [WavPack|Lossless|image + .cue] <Country Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. King Of Dixie
-02. Mama Has Gone
-03. Heads Turn
-04. Handsome Boy(   Читать дальше...   )Жанр: Pub RockПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEC7D905BD5FD17E51BCE57FF164BB9FC4E7EE2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478902   (1010005) от 21.06.2021
-
-Fernand Deroussen - Islande: Carnet de voyage (2001) [FLAC|Lossless|tracks + .cue] <Nature>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010005.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Le prince de Myvatn - The Prince of Myvatn
-02. Le cirque d'Asbyrgi - The Cirque of Asbyrgi
-03. Quand la terre mijote - When the Earth Bubbles
-04. Les cygnes chanteurs - Whooper Swans(   Читать дальше...   )Жанр: NatureПродолжительность: 01:05:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C616F1A216620FF9771BA6F0209FE69E2E48B9F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1479927   (1009293) от 26.06.2021
-
-Peter Kater - Rapture (2021) [FLAC|Lossless|WEB-DL|tracks] <New age, Piano>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1009293.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rapture (5:03)
-02. Valley Of Love (4:52)
-03. Promising (3:43)
-04. Love You So (4:16)(   Читать дальше...   )Жанр: New age, PianoПродолжительность: 00:47:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AC37B760720335E68F000EBC30907920CC55193
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480446   (1008981) от 28.06.2021
-
-Piano Peace - Calm Piano & Ocean Waves (2021) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008981.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ocean Wave Flow (3:18)
-02. Relax Song (With Ocean Waves) (2:17)
-03. Sleeping In Ocean Sounds (2:33)
-04. Ocean Waterfall (3:12)(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:55:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8497146F3A82DE120EAC5BC57765015A738B15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480823   (1008723) от 30.06.2021
-
-Johnny Whitehorse - Totemic Flute Chants (2007) [FLAC|Lossless|tracks + .cue] <Native American>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cougar
-02. Coyote
-03. Thunderbird
-04. Emergence(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5662C4094E11109649CBC1F08F792D9828192B1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1480598   (1008710) от 30.06.2021
-
-David Arkenstone - Celtic Chillout Beats (2021) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1008710.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Call Of The Celts (4:13)
-02. Navarre's Return (4:07)
-03. They Danced All Night (4:02)
-04. Siren Of The Sea (4:03)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:48:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F54F7BB87271A073BA05E4CABC255A657005990
 ```
 
 https://mybot314.ru/tekegram_catalog/

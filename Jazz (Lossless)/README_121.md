@@ -1,3 +1,61 @@
+###  Публикация: 1291918   (650696) от 27.03.2019
+
+George Wallington - Knight Music (1956) 2000, Koch Jazz [APE|Lossless|image + .cue] <Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Godchild [3:19]
+02. Serendipity [3:05]
+03. Billie's Tune [3:05]
+04. The Ghostly Lover [3:47](   Читать дальше...   )Жанр: Bop, Piano JazzПродолжительность: 00:36:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16D21E3BA17B71B7DE428254F1892664E4B92447
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1291919   (650695) от 27.03.2019
+
+Dizzy Gillespie - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Bop, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_650695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Bass Hit - Part 1 [2:54]
+02. Oop Bop Sh'Bam [3:02]
+03. A Hand Fulla Gimme [3:02]
+04. That's Earl Brother [2:42](   Читать дальше...   )Жанр: Bop, Big BandПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72DBC227B8B3A600C231B2E80E491137C71B60F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1291916   (650694) от 27.03.2019
 
 David Murray - The London Concert (1999) 2CD, Cadillac Records [FLAC|Lossless|image + .cue] <Avant-Garde Jazz>
@@ -687,64 +745,6 @@ Scott LaFaro - Pieces Of Jade (2009) [FLAC|Lossless]<Jazz, Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ADF020BC1395F747C97921EBC83566AE3C202ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 906064   (647956) от 07.06.2015
-
-Laura Teller - Three Sides To Everything (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647956.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jeremy (5:50)
-02. City Livin' People (3:52)
-03. Stillness Of A Kiss (3:23)
-04. Two Steps Closer (4:01)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF18D7C8141E1873B0C5AB0AD1B9EA41ADA721D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032125   (647908) от 06.07.2016
-
-Emil Viklicky Trio - Kafka On The Shore: Tribute To Haruki Murakami (2011) Japan Edition [FLAC|Lossless|image + .cue] <Contemporary Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647908.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Afterdark    07:08
-02.  Dolphine Dance    07:16
-03.  Eleanor Rigby    03:58
-04.  Peacocks    06:16(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 01:12:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B43D7C834D9F927518E663CB28B0D8AE801BA833
 ```
 
 https://mybot314.ru/tekegram_catalog/

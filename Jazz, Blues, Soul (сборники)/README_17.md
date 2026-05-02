@@ -1,3 +1,35 @@
+###  Публикация: 576968   (360068) от 18.11.2012
+
+VA - Americans Swinging in Paris (Collection) (2002) [MP3|320 кб/с]<Retro, Swing, Jazz, Rock>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360068.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Captain Jetter (5:00)
+2.  Nuzzolese Blues (7:21)
+3.  Everything I Love (4:20)
+4.  On The Alamo (5:34)
+5.  Evening In Paris (3:20)
+6.  My Old Flame (3:23)
+7.  Little Jon Special (4:54)Жанр: Retro, Swing, Jazz, RockПродолжительность: 00:33:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B92AA5E7877877E0A76983FA72F5C2B5C085B0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1328776   (356410) от 03.10.2019
 
 The Heavy Horses - Murder Ballads & Other Love Songs (2012) [MP3|320 Kbps] <Country, Folk, Acoustic>
@@ -713,35 +745,6 @@ VA - Intimate Jazz (2016) [MP3|320 Kbps] <Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0EC0593E950506DD469E0417464A17ED7C2FD7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422050   (313158) от 07.11.2020
-
-VA - Blues for Christmas (2020) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bryan Lee - Christmas Blues
-02. Brent Johnson - Christmas Tears
-03. Bryan Lee - Santa Claus Is Messin' with the Kid
-04. Beau Kavanagh & The Broken Hearted - Santa Claus Is Back in Town(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C09F236E1D4E8F25082BBE6B873E28D58864533
 ```
 
 https://mybot314.ru/tekegram_catalog/

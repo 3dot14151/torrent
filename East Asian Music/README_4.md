@@ -1,3 +1,32 @@
+###  Публикация: 1281939   (748058) от 10.02.2019
+
+Yuki Murata - Films (2009) Ricco Label, RE. [FLAC|Lossless|tracks + .cue] <Modern Classical, Ambient, Solo Piano>
+
+>>East Asian Music
+>>Other Asian (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_748058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue (4:59)
+ 02. The Hill Named Air (3:27)
+ 03. Capricious (0:59)
+ 04. Under The Deep Sea (2:44)(   Читать дальше...   )Жанр: Modern Classical, Ambient, Solo PianoПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98340C0925E1C68E2E1DCAC46A3FF8958A091436
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1019932   (747870) от 24.05.2016
 
 Yoshida Brothers - Yoshida Brothers (2003) [FLAC|Lossless|tracks + .cue] <Folk, Easy Listening>
@@ -757,39 +786,6 @@ Butterfly Girls Band - Dancing Skirts in Flying Flowers (2009) [APE|Lossless]<Ch
 08. Chines String Quintet Soaring Dragon (7:15)
 09. Chines String Quintet Pamper Imagination (6:57)
 10. Guzheng Solo Spring Dawn in a Village of She Nationality (4:25)(   Читать дальше...)Жанр: Chinese EthnicПродолжительность: 1:13:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 339506   (666125) от 21.05.2011
-
-Chen Lei - The Song of King Yao (2009) [FLAC|Lossless]<Chinese Traditional Music, Guqin, Qin>
-
->>East Asian Music
->>Asian Traditional, Ethnic (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_666125.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 梅花三弄 Three Variations of Plum Blossom
-02. 碧涧流泉 Liquid stream flowing spring
-03. 怀古 Meditation on the Past
-04. 桃源春晓 Taoyuan Spring
-05. 归去来辞 Returning Home (Retreat)
-06. 忆故人 Memories of an Old Friend
-07. 神人畅 Harmony between Man and God
-08. 渔樵问答 Dialogue between Fisherman and WoodcutterЖанр: Chinese Traditional Music, Guqin, QinПродолжительность: 00:57:10
 
 ## Скачать торент
 ```bash

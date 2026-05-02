@@ -1,3 +1,202 @@
+###  Публикация: 1336104   (278955) от 07.11.2019
+
+Мiръ Духа - Путь (2016) [MP3|320 Kbps] <New age, World music, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вдох Творения
+02. Искры Богов
+03. Сквозь Миры
+04. Новое начало(   Читать дальше...   )Жанр: New age, World music, AmbientПродолжительность: 00:44:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB21ADDE019B4CEEED196533D7D466FB1CB25EE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082124   (278762) от 12.12.2016
+
+VA - Office Christmas Party (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Calvis - Intro (00:11)
+02. DJ Calvis - Deck Da Club Intro (00:05)
+03. Ying Yang Twins - Deck Da Club (03:41)
+04. The Struts - Kiss This (02:57)(   Читать дальше...   )Жанр: Soundtrack,Продолжительность: 00:44:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6FCD94613006A1DAEE4294EE25D6C9150EC62898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082373   (278755) от 12.12.2016
+
+VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Rock, R&B>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278755.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ConfidentialMX - I Started a Joke (feat. Becky Hanson) (03:11)
+02. Grace - You Don't Own Me (feat. G-Eazy) (03:20)
+03. Sweet - Ballroom Blitz (04:01)Жанр: Soundtrack, Hip-Hop, Rock, R&B •Продолжительность: 01:37:56 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFDF62859174C56B1E6B0887D17B75FA8F24218B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187692   (278721) от 29.11.2017
+
+Sean Evenett - My Peaceful Heart (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278721.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Peaceful Heart (3:31)
+02.  Spirituality & Happiness (3:53)
+03.  Energy of Life (3:45)
+04.  Magic Relaxation (3:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB36A06A99834EAA452C100A9796F1D9D9CE1335
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081844   (278632) от 12.12.2016
+
+Leonard Cohen - The Essential Leonard Cohen (2002) 2CD, Compilation [FLAC|Lossless|image + .cue] <Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't No Cure for Love (4:52)
+02. Take This Waltz (5:59)
+03. First We Take Manhattan (5:52)
+04. Dance Me to the End of Love (live) (6:06)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 02:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578B3A6A9E6C0E62E19BF8FBD76F18ACF81EF88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1082350   (278529) от 12.12.2016
+
+Atlantida Project - Bezdna (2016) [MP3|320 Kbps] <Cyberfolk / Electronic / Ethnic>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бездна (02:54)
+02. Бхавани дайани (05:04)
+03. Красная королева (03:35)
+04. Ничего нового (feat. Noize MC) (04:31)(   Читать дальше...   )Жанр: Cyberfolk / Electronic / Ethnic / RockПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4EE5F6404BBE81043050313A939AB055AD56ED6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 272752   (278284) от 19.12.2010
+
+Goran Bregovic - Discography (1989..2008) [MP3|320 kbps]<Balkan Ethno, World Music>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278284.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Balkan Ethno, World MusicПродолжительность: 16:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:249B7FD2ED0003BD3C953234B57C6EE9D92675A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 849635   (277615) от 15.12.2014
 
 James Last - The Classic Touch (1988) 5CD [FLAC|Lossless]<Instrumental, Easy Listening>
@@ -539,209 +738,6 @@ Guido Negraszus - The Very Best of Guido Negraszus (2016) [MP3|320 Kbps] <New Ag
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7281C41C3773A1FC841CDDCFAE35F4F91EB88F54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337347   (274641) от 10.11.2019
-
-VA - Symphonic Rock Orchestra - The Very Best of Classic Rock vol. 8 (1994) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274641.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Carmen Disco (from Carmen) - Ron Barden's Computer Symphonics (7:15)
-02. Poem - New Rock Philharmonics (2:37)
-03. A Hard Day's Night / All My Loving - Symphonic Rock Orchestra (6:26)
-04. Menuett - Jacques Winter Orchestra & Singers (2:58)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3D9774B1D733C0EE9D41BC77A13BD4C8E8F859E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337354   (274582) от 10.11.2019
-
-VA - Greatest Hits of Classical Rock Vol. 4 (1993) [FLAC|Lossless|image + .cue] <Instrumental, Pop, Classical Crossover>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Air / Philharmonic Orchestra London - Johann Sebastian Bach (8:13)
-02. Hornkonzert Nr. 4 / Fatra String Sound Orchestra - Wolfgang Amadeus Mozart (3:47)
-03. Can't Buy Me Love / Philharmonics of London - Lennon, McCartney (2:27)
-04. Concerto / Ziliniana String Sound Orchestra - Antonio Vivaldi (3:07)(   Читать дальше...   )Жанр: Instrumental, Pop, Classical CrossoverПродолжительность: 01:13:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4BE2640995D9B99C7191C0287974481E7794388
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336706   (274580) от 10.11.2019
-
-Back to Earth - Peace of Mind (2019) [FLAC|Lossless|WEB-DL|tracks] <New age, Relax>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274580.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Away from Home 05:16
-2. Open Skies 04:00
-3. As Beautiful as You	04:44
-4. Hope in Sight	04:35(   Читать дальше...   )Жанр: New age, RelaxПродолжительность: 01:17:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE7F66C2438D59F0D623A5AA06F5885F6C28286E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083546   (273638) от 16.12.2016
-
-Molly Valentine - Fantasyland (2016) [MP3|320 Kbps] <New Age, Neo-Classical>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 -  Luchia [00:05:01]
-02 -  Fantasyland [00:06:05]
-03 -  Quasi Una Fantasia [00:05:54]
-04 -  The Blue Whale vs. the Giant Squid [00:07:31](   Читать дальше...   )Жанр: New Age, Neo-ClassicalПродолжительность: 01:01:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A7BCE20829DC3007DC10ACE9FE130F218A3CEB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083589   (273630) от 16.12.2016
-
-James Horner & Simon Franglen - The Magnificent Seven / Великолепная семерка (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273630.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rose Creek Oppression (01:55)
-02. Seven Angels of Vengeance (03:25)
-03. Lighting the Fuse (01:22)
-04. Volcano Springs (02:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C49758CBB3D0D54C6C1005E6229BD11B4DFCF132
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083416   (273554) от 16.12.2016
-
-Michael Giacchino - Rogue One: A Star Wars Story / Изгой-один: Звёздные войны. Истории (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. He's Here For Us (03:20)
-02. A Long Ride Ahead (03:56)
-03. Wobani Imperial Labor Camp (00:54)
-04. Trust Goes Both Ways (02:45)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:09:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4385431F23DDBD6921A8C54494670E35CF284DD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083590   (273551) от 16.12.2016
-
-James Horner & Simon Franglen - The Magnificent Seven / Великолепная семерка (Original Motion Picture Soundtrack) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273551.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rose Creek Oppression (01:55)
-02. Seven Angels of Vengeance (03:25)
-03. Lighting the Fuse (01:22)
-04. Volcano Springs (02:57)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:18:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2FB4A57C439AC79A5EE881AE1504CC6B0AB679B0
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,117 @@
+###  Публикация: 1615996   (1037009) от 28.02.2023
+
+2nd Day - 2 Albums (2017-2020) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Не потеряй себя [00:02:27]
+02. Доширак [00:01:21]
+03. Fender [00:02:10]
+04. Нас-рать [00:03:39](   Читать дальше...   )Жанр: Punk RockПродолжительность: 2 CD, 01:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9BC59DCFBB5FFB8427FD22E0C19407D8A1F6457
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616034   (1037006) от 28.02.2023
+
+Last Trial - Хронос (2023) [MP3|320 Kbps] <Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Триумф [00:02:00]
+02 - Хронос. Акт I_ А время шло [00:03:51]
+03 - Короли [00:04:37]
+04 - Вавилон Н. Э [00:04:22](   Читать дальше...   )Жанр: MetalПродолжительность: 00:37:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4899080921281DE6778AE1B1B8B3EB45A221CA44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616076   (1036997) от 28.02.2023
+
+Beyond the Body - Station Hate (2023) [MP3|320 Kbps] <Melodic Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Immersion (Instrumental) [00:00:58]
+02. Beyond The Body (Instrumental) [00:04:55]
+03. Eternal Struggle (Instrumental) [00:04:45]
+04. Memory Laceration (Instrumental) [00:08:18](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:52:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E09D560B1845EAD79F9E4E5A824A4233E49E5B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1442438   (1036593) от 25.01.2021
+
+The Matrixx - EP2021 (2021) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036593.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Каменное дно
+2. Лежу в палате наркомановЖанр: AlternativeПродолжительность: 00:08:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4D8DDBA16D915280DF797EBB5DBE95CF4443E3BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1616405   (1036446) от 02.03.2023
 
 Сегодняможно - Искусство (2023) [MP3|320 Kbps] <Alternative Rock, Emo Punk>
@@ -625,122 +739,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:425DB66064D170329E6CDF12807EB211EF3A9014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1445688   (1033466) от 06.02.2021
-
-VA - Трибьют Сергей "Чиж" Чиграков (2021) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033466.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Василий Уриевский - День рождения
-2. Мураками - О.К.
-3. РокфоР - Скучная история (Крокодил)
-4. Дядя Ваня - Я подобно собаке(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A129A44F67E02FEE578BF26D2D643A5FF44FAA96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619574   (1032968) от 16.03.2023
-
-Константин Арбенин и Вадим Курылёв - Двое в городе (2023) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Город-стол [00:05:21]
-02. Малиновка летит на север [00:04:20]
-03. Джин и Тоник [00:04:44]
-04. Колесо Сансары [00:04:25](   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:02:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57B6A9BCA1F017C78C23B98F3B3E1029A7D038E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619641   (1032773) от 17.03.2023
-
-Константин Ступин и Алексей Ракитин - Когда я умер (2023) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032773.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Когда я умер
-2. Ночная трость
-3. Гром
-4. Пушистый хвост лисицы(   Читать дальше...   )Жанр: RockПродолжительность: 00:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA0FB44542F186F2958E9FE28FB9BF7CA3164897
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1619820   (1032529) от 18.03.2023
-
-Молот Родины - Ретроспекция, том 1-2 (2023) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Как Революция [00:06:07]
-02. С Нами Бог [00:03:38]
-03. Нация,Кровь и Раса [00:03:12]
-04. На Войну [00:02:43](   Читать дальше...   )Жанр: Pop RockПродолжительность: 2 CD, 02:19:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4901B5DEACD2E609D14CF6AFA4EA8A4053267193
 ```
 
 https://mybot314.ru/tekegram_catalog/

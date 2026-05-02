@@ -1,3 +1,29 @@
+###  Публикация: 1459927   (1022874) от 03.04.2021
+
+Realtek High Definition Audio Driver 6.0.9132.1 WHQL (Unofficial) [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022874.jpg" />
+</div>
+
+
+###  Подробнее
+
+Realtek High Definition Audio Drivers — звуковой драйвер Realtek нового поколения, предназначенные для операционных систем Windows. Преимуществами спецификации High Definition Audio перед AC’97 являются: полноценная поддержка новых форматов звука, более высокая частота пропускания, поддержка подключения аудио-устройств по технологии Plug and Play, более точное распознавание (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED2C025C7701E075536C4CF8BD8363E94839B65D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1460163   (1022813) от 04.04.2021
 
 FireAlpaca 2.4.5 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -646,32 +672,6 @@ Pixologic ZBrush - программа для трёхмерного модели
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9852169130AB585E59BDA209DB787649D7AF9BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1460982   (1022234) от 07.04.2021
-
-VueScan Pro 9.7.52 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022234.jpg" />
-</div>
-
-
-###  Подробнее
-
-VueScan - программа для работы со сканерами HP, Minolta, Nikon, Polaroid, Epson, Canon и другими. Может работать с внутренней глубиной цвета. VueScan поддерживает автоматическую и ручную настройку большинства параметров и пакетный режим сканирования. Поддерживается более 6000 моделей сканеров с определенным перевесом в сторону слайд-сканеров — Nikon, Minolta, Polaroid, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14DE76E4B13C456EC69D5E299A45BE19B976D282
 ```
 
 https://mybot314.ru/tekegram_catalog/

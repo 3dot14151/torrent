@@ -1,3 +1,32 @@
+###  Публикация: 1763841   (35312) от 03.12.2024
+
+Droid Bishop - Cinema (2024) [MP3|320 Kbps] <Synthwave, Retrowave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_35312.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Feature Presentation [00:00:20]
+02 - Murder Miami 1983 [00:03:41]
+03 - Renegade [00:03:09]
+04 - Higher [00:03:55](   Читать дальше...   )Жанр: Synthwave, RetrowaveПродолжительность: 00:38:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDB82A332DC8B39CFB49CB76412BD6FC1E3C30EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768629   (33034) от 25.12.2024
 
 Yuri Sosnin - New Times (2024) [MP3|320 Kbps] <Synthwave>

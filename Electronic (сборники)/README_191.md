@@ -1,3 +1,61 @@
+###  Публикация: 965575   (224152) от 15.12.2015
+
+VA - Eurodance Radio Mix Club House (2015) [MP3|320 кб/с] <Club, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_224152.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. DJ Snake & Alunageorge - You Know You Like It
+002. DJ Fresh ft Ella Eyre - Gravity
+003. Robin Schulz ft Francesco Yates - Sugar
+004. Hayden James - Something About You(   Читать дальше...   )Жанр: Club, Electro HouseПродолжительность: 06:12:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7EE1AF5D3A57E4AD2AD171A41C4024022EC592
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1342309   (224143) от 02.12.2019
+
+VA - EDM Classical Melodies For The Dancefloor (2019) [MP3|320 Kbps] <Electro Dance, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224143.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Obsidian Project - U.F.O. 2019
+002. Huda Hudia - Grillin
+003. Social Fever - Why The Moon
+004. L'anno Neam - Victory(   Читать дальше...   )Жанр: Electro Dance, Club HouseПродолжительность: 12:35:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE74C8269E5933B4472AC79D1746133F5E00AE71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342315   (224086) от 02.12.2019
 
 VA - Club EDM Mysterious (Vol. 01) (2019) [MP3|320 Kbps] <Club, Dance, House>
@@ -684,64 +742,6 @@ VA - Glamorous Sport Music (2022) [MP3|320 Kbps] <Uplifting, Vocal-Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65BABE987E4A92E549AD8F776BAC2997A74F2645
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514111   (219719) от 02.12.2021
-
-VA - D&B: Best New Electro Bass Hype Mix (2021) [MP3|320 Kbps] <Drum And Bass, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219719.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Guy Wampa - Come Together
-002. Unglued - South By West
-003. Teej & Jappa - 16 Speakers
-004. Pola & Bryson - In Too Deep(   Читать дальше...   )Жанр: Drum And Bass, Electro BassПродолжительность: 10:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FD5CCCBC8215CBEF3E7F10212F7BB2A15C3B7B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1514116   (219700) от 02.12.2021
-
-VA - Hypnotic Techno (2021) [MP3|320 Kbps] <Techno, Electro Minimal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219700.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Agent Orange DJ - Backwoods Groove
-002. Blocka - Come With Me
-003. Other Form - A Widening Rift
-004. Decoder - Hemolu(   Читать дальше...   )Жанр: Techno, Electro MinimalПродолжительность: 09:45:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F90F8DA44847EB1CD3FB380C1411EA98F6E2586A
 ```
 
 https://mybot314.ru/tekegram_catalog/

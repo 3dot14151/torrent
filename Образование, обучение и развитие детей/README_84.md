@@ -1,3 +1,31 @@
+###  Публикация: 1699408   (117851) от 13.02.2024
+
+О. С. Габриелян, И. Г. Остроумов, Н. С. Пурышева и др. | Естествознание. Учебник для 10 класса (2016) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Образование, обучение и развитие детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117851.jpg" />
+</div>
+
+
+###  Подробнее
+
+Учебник адресован учащимся 10 классов и классов гуманитарного, социально-экономического, информационно-технологического профиля.
+
+Новый учебный курс «Естествознание» рассматривает объекты и явления естественного мира в гармонии физики, химии, биологии, астрономии, географии и экологии. Учебник содержит главы «Естествознание и методы познания мира», «Мегамир», «Макромир». (   Читать дальше...   )Жанр: Учебная литератураЯзык: РусскийИздательство: ДрофаФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38858EA8260D5FE3FC8B4921362ADD774ACCA9DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699659   (117676) от 14.02.2024
 
 Н. А. Парфентьева | Сборник задач по физике. 10-11 класс (2017) [PDF]
@@ -660,33 +688,6 @@ From wild horses and zebras to working horses like the Clydesdale, Shire, Perche
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EDFC34F96A5387E17943946072E25C84C0E49AA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734423   (107109) от 03.07.2024
-
-Carole Stott, Sam Priddy, Jolyon Goddard, SusaMcKeeve, Bernadette Crowley (еditors) | Night Sky (2018) [PDF] [EN]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Образование, обучение и развитие детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107109.jpg" />
-</div>
-
-
-###  Подробнее
-
-Explore Nature with Fun Facts and Activities. Age Range: 6 - 8 years.
-A fantastic first book on our universe. Explore the world of stars, planets, and astronomy. Discover what a star is, how the moon looks close up, and what tools astronomers use to look at space. With exciting activities, like how to look at the sun safely, and plenty of fun facts, this book is (   Читать дальше...   )Жанр: учебное познавательное пособие для детейЯзык: английскийИздательство: Dorling Kindersley ChildrenФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1125515EEEE5AC287A39BCD61D62AE03B3733AB7
 ```
 
 https://mybot314.ru/tekegram_catalog/

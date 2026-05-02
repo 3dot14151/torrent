@@ -1,3 +1,61 @@
+###  Публикация: 1097978   (910989) от 29.01.2017
+
+Donny McCaslin - Casting For Gravity (2012) Greenleaf Music[FLAC|Lossless|tracks + .cue] <Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910989.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Stadium Jazz [07:21]
+ 02.Says Who [06:20]
+ 03.Losing Track Of Daytime [07:41]
+ 04.Alpha And Omega [04:14](   Читать дальше...   )Жанр: Modern CreativeПродолжительность: 01:03:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F5E6574F0A0601B37F4450CDC619423EA8FD0CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097565   (910986) от 29.01.2017
+
+Michael Maxwell and His Orchestra - In The Big Band Mood (1997) Avalon Music[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In The Mood [03:30]
+ 02.String Of Pearls [02:43]
+ 03.Jumpin' At The Woodside [03:19]
+ 04.When The Saints Come Marching In [03:15](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:52:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC54FCEA8B5DB4AB2F5E5EE5C4D911D010C45C71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097873   (910984) от 29.01.2017
 
 Zoot Sims With The Joe Castro Trio - Live At Falcon Lair (1956) 2004, Pablo[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -684,64 +742,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB0BD23E9890F8086D1B4B1B3001B06E03378844
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1368972   (905709) от 22.03.2020
-
-Jeff Golub - Do It Again (2002) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905709.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cut The Cake
-02. On The Beach
-03. Cruisin'
-04. Jesus Children Of America(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECAE0CE81BE94826CDB560AF4C490FD3F2009856
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369159   (905696) от 22.03.2020
-
-Jeff Golub - Dangerous Curves (2000) [FLAC|Lossless|image + .cue] <Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_905696.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dangerous Curves
-02. Droptop
-03. Another Friday Night
-04. Mister Magic(   Читать дальше...   )Жанр: Jazz, FusionПродолжительность: 01:01:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97796A37457F0E9099036696FDE0F80B96B26ED3
 ```
 
 https://mybot314.ru/tekegram_catalog/

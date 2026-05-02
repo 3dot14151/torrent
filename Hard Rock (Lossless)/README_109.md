@@ -1,3 +1,119 @@
+###  Публикация: 1807008   (11311) от 16.07.2025
+
+Steve Harris - British Lion (2012) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11311.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is My God 4:57
+02. Lost Worlds 4:59
+03. Karma Killer 5:29
+04. Us Against The World 4:12(   Читать дальше...   )Жанр: Hard Rock, Heavy Metal, Alternative RockПродолжительность: 00:52:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E1D38A1ADCE7FB81B6AEFF26E2CD0C84539671C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807059   (11310) от 16.07.2025
+
+Animalistic! - Age of Furor (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Queen at the Gates (02:27)
+ 02. Bringer of the Sword (04:46)
+ 03. Bad Blood (04:55)
+ 04. Aspirin for Breakfast (2025 Version) (04:35)(   Читать дальше...   )Жанр: Hard Rock, Modern RockПродолжительность: 00:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC2AEE4900EFBB844D366719D254A48AEB3AB751
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807931   (10771) от 21.07.2025
+
+Liliac - Delusion (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_10771.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Human (05:47)
+02. Breathe (03:03)
+03. Delusion (03:07)
+04. Holy Odyssey (07:05)(   Читать дальше...   )Жанр: Hard Rock, Female VocalПродолжительность: 00:37:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38077AD56F2A5660D593041D2D1BC5A0F7F0CFFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1809448   (9748) от 31.07.2025
+
+Alice Cooper - The Revenge Of Alice Cooper (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_9748.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Mamba
+02. Wild Ones
+03. Up All Night
+04. Kill The Flies(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:26543129A93BE039547A0F8B06948A0C9BEEB1DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191154   (9580) от 02.08.2025
 
 Styx - 19 Studio Albums, 6 Live, 12 Compilations, 1 Box Set (1972 - 2025) 66 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Classic Rock & Hard Rock, Art Rock, Progressive>
@@ -627,122 +743,6 @@ Gypsy's Kiss - Piece By Piece (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:98E808D8B5014D35A4CB9C700679948798D1B202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820806   (36) от 29.09.2025
-
-Hellcats - Unstoppable (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_36.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Black Thunder (3:12)
-02.  Unstoppable (3:08)
-03.  I Am (3:41)
-04.  Spiderweb (4:16)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:21:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D80AE7952ABA3B770B7DC58BE56D27C8E7EE32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820807   (20) от 29.09.2025
-
-Madra - Sem Parada (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sem Parada (4:20)
-02.  Mais de Você (4:06)
-03.  Jogo de Interesses (4:24)
-04.  Histórias pra Contar (4:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:24:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:52D0A93265FC496D8A91F1F60813CBD14773FEAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820805   (16) от 29.09.2025
-
-Crime - Cold Air (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_16.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Interlude (2:28)
-02.  Break Down the Walls (4:09)
-03.  For King and Country (4:42)
-04.  Like the Wind Blows (5:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:04:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07709C6FB311B82CAAEB231933AD1F0117C91E4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1820808   (11) от 29.09.2025
-
-Teenbird - Beauty of the Wisdom (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_11.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Beauty of the Wisdom (5:01)
-02.  Don't Stop Believin' (4:50)
-03.  When It's Love (5:37)
-04.  Midnight Highway (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA77B6F1381371D6ACED4B768C0B3A06530E9A40
 ```
 
 https://mybot314.ru/tekegram_catalog/

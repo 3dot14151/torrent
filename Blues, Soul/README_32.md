@@ -1,3 +1,32 @@
+###  Публикация: 958009   (325845) от 19.11.2015
+
+Mike Zito & The Wheel - Keep Coming Back (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_325845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Keep Coming Back (03:38)
+02. Chin Up (03:58)
+03. Get Busy Living (03:51)
+04. Early In The Morning (03:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D40130C9B1342BD11C2B4B77BD69BA686E646428
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 958491   (324005) от 21.11.2015
 
 Steve Howell & Mighty Men - Friend Like Me (2015) [MP3|320 кб/с]<Texas Blues>
@@ -716,35 +745,6 @@ Grainne Duffy - Grainne Duffy Live (2015) Live[MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9C3650A8657125AC1DA7877FD8CBF8CA6485BCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1078057   (300316) от 01.12.2016
-
-Joanne Shaw Taylor - Wild (2016) [MP3|320 Kbps] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Dyin' To Know  (02:59) 
-02|  Ready To Roll  (04:05) 
-03|  Get You Back  (03:50) 
-04|  No Reason To Stay  (04:49) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B98FA0F605F879A7FB959492F84361CE5927D9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

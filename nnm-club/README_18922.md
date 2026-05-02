@@ -1,25 +1,22 @@
-###  Публикация: 1838149   (260070) от 22.11.2025
+###  Публикация: 1341405   (262281) от 28.11.2019
 
-The Beatles - Anthology 4 (2025) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+Acon Digital - Verberate 2 2.1.1 VST, VST3, AAX (x86/x64) [En]
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260070.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262281.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I Saw Her Standing There (Take 2) (3:06)
-02. Money (That's What I Want) (RM7 Undubbed) (2:48)
-03. This Boy (Takes 12 And 13) (3:18)
-04. Tell Me Why (Takes 4 And 5) (3:07)(   Читать дальше...   )Жанр: RockПродолжительность: 01:59:01
+Когда дело доходит до реверберации, все зависит от качества звука. Verberate - это плагин с алгоритмической реверберацией, имитирующий реальное акустическое окружение с исключительной реалистичностью. Первая версия Verberate уже подняла планку. В версии 2 представлен алгоритм Vivid Hall, который добавляет временную дисперсию, чтобы избежать жесткости, которая мешает (   Читать дальше...   )Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2E0D721A38B19D3E39C1D2AFD17E187F971D43D1
+magnet:?xt=urn:btih:4F5DAE6AC575D0416F9A11850282CDE16110DCBF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838280   (260069) от 22.11.2025
+###  Публикация: 1341482   (262280) от 28.11.2019
 
-Thin Lizzy - Night Life / Fighting (2024 Mix) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+Стас Барецкий - Король турбошансона (2019) [MP3|320 Kbps] <Шансон>
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260069.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262280.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. She Knows (2024 Mix) (5:15)
-02. Night Life (2024 Mix) (3:56)
-03. It's Only Money (2024 Mix) (2:48)
-04. Still In Love With You (2024 Mix) (5:41)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:25
+1. Нинуха
+2. Танюха с Валюхой
+3. Робинзоны
+4. Морячок(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:54:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1AA40071DBD534C60299D711F4A7DCB70C4C0090
+magnet:?xt=urn:btih:B602C9A1D10BA232EA51A45DA4E61A1F503E6F4E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838292   (260068) от 22.11.2025
+###  Публикация: 1341505   (262279) от 28.11.2019
 
-Treat - The Wild Card (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic-Hard-Rock>
+Тёмные воды / Honogurai mizu no soko kara / Dark Water (2002) BDRip
 
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
+>>Зарубежное кино
+>>Азиатское кино (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260068.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262279.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Out With a Bang (4:08)
-02. Rodeo (3:54)
-03. 1985 (4:02)
-04. Endeavour (4:20)(   Читать дальше...   )Жанр: Melodic-Hard-RockПродолжительность: 00:52:16
+Ёсими и ее пятилетняя дочь Икуко живут в мрачном многоквартирном доме. Их преследуют как наваждение темная вода, капающая с потолка и сочащаяся из стен, и маленькая красная сумка, принадлежавшая девочке, которая пропала при загадочных обстоятельствах два года назад.Производство: Япония, Kadokawa Shoten Publishing Co., Nippon Television Network (NTV)Жанр: Ужасы, триллер, драма, детективРежиссер: Хидэо НакатаАктеры: Хитоми Куроки, Рио Канно, Мирэй Огути, Асами Мидзукава, Фумиё Кохината, Ю Токуи, Исао Яцу, Шигэмицу Оги, Маико Асано, Юкико ИкариПеревод: Двуголосый профессиональныйСубтитры: Русские, английские - отдельными файламиПродолжительность: 01:41:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:50722107A5C81399E95307CF8C6F6EC489C622FF
+magnet:?xt=urn:btih:AE104CD1AF7F61082AEF54A88FF72C84E22C09D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,55 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838366   (260067) от 22.11.2025
+###  Публикация: 1193288   (262278) от 20.12.2017
 
-Cassidy Paris - Bittersweet (2025) [ FLAC 24/44.1, 48|Lossless|WEB-DL|tracks] <Hard-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260067.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Butterfly (4:19)
-02. Nothing Left To Lose (2:56)Жанр: Hard-RockПродолжительность: 00:44:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7F72B39655E52B0D15BBDF9DA4B3CD070557B8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838357   (260066) от 22.11.2025
-
-John Scofield & Dave Holland - Memories of Home (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Blues>
+Yusef Lateef - Lost in Sound (1961) 2003, Fresh Sound [WavPack|Lossless|image + .cue] <Hard Bop>
 
 >>Jazz, Blues, Soul
->>Jazz (Hi-Res)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260066.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262278.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Icons at the Fair (6:21)
-02. Meant to Be (6:31)
-03. Mine Are Blues (5:38)
-04. Memorette (6:11)(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:55:02
+01. Outside Blues [03:13]
+02. Soul Blues [03:26]
+03. Blue Rocky [04:28]
+04. Dexterity [06:06](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:33:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6A87B651BEBD1690E78BA30091637A2A91C7584B
+magnet:?xt=urn:btih:FBD44612A374F54B7DC786E252F61C05D0864FA2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -141,132 +108,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838387   (260065) от 22.11.2025
+###  Публикация: 1193240   (262277) от 20.12.2017
 
-Семь смертей по рецепту / 7 morts sur ordonnance (1975) BDRip [H.264]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260065.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленький городок приезжает талантливый хирург и открывает свой частный кабинет. Дела его идут успешно, и это очень не нравится владельцам местной клиники. На их совести уже есть самоубийство одного врача, у которого не было отбоя от пациентов. Теперь завистливые конкуренты начинают травлю хирурга... Фильм основан на реальных событиях.Производство: Франция, Германия (ФРГ), Испания / Belstar Productions, Films 66, TIT Filmproduktion GmbHЖанр: драма, криминал, триллерРежиссер: Жак РуффиоАктеры: Жерар Депардьё, Мишель Пикколи, Джейн Биркин, Марина Влади, Хосе Мария Прада, Шарль Ванель, Мишель Оклер, Моник Мелинан, Клод Барруа, Антонио Феррандис, Колин Серро, Георг Маришка, Карл Шёнбёк, Этьенн Драбе, Элизабет ШтрауссПеревод: дублированный (киностудия Мосфильм), профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54117D6036B24914D941BA720AE8D7474FC01F91
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838388   (260064) от 22.11.2025
-
-Проекты - VideoHive - New Year Countdown 2026 - 60844521 [AEP]
-
->>Проекты
->>Праздничные (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Это хорошо организованный и легко настраиваемый шаблон для новогоднего обратного отсчёта.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8ED61E5C8F1001D3A6DC09C655F1397F561EA4A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838375   (260063) от 22.11.2025
-
-Onimusha 2 (2025) [Ru/Multi] (1.0.0.0/dlc) Repack Let'sРlay
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260063.jpg" />
-</div>
-
-
-###  Подробнее
-
-Действие Onimusha 2 разворачивается в эпоху Сэнгоку, и в ней рассказывается о Джубэе Ягю, мастере меча, чья деревня была уничтожена демоническим полководцем Нобунагой Одой. Отправляясь на поиски мести, Джубей встречает множество союзников и открывает свое скрытое наследие Они, чтобы сразиться с силами Генмы.Тип издания: RepackРазработчик: CAPCOM Co., Ltd.Жанр: ЭкшеныЯзык озвучки: Английский, ЯпонскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D2F9157E43B0F8501A90BE2DAA58C7242EE5805
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838389   (260062) от 22.11.2025
-
-Воображаемый друг / Imaginary (2024) BDRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260062.jpg" />
-</div>
-
-
-###  Подробнее
-
-Вместе с мужем и двумя падчерицами Джессика переезжает в отчий дом — место, где она была счастлива. Девушка надеется, что это вернёт ей вдохновение для продолжения серии детских книг, а девочкам поможет прийти в себя после того, как их родной матери было диагностировано психическое заболевание. Младшенькая находит в подвале плюшевого медвежонка и теперь целыми днями (   Читать дальше...   )Производство: США / Blumhouse Productions, Lionsgate Productions Ltd.Жанр: ужасыРежиссер: Джефф УодлоуАктеры: ДеВанда Уайз, Тэджен Бёрнс, Пайпер Браун, Бетти Бакли, Том Пэйн, Вероника Фалькон, Samuel Salary, Мэттью Сато, Аликс Анджелис, Ванета Уолмсли, Rhythm HurdПеревод: Дублированный (+ cо вставками DVO), двухголосый (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские, Английские (Full, SDH)Продолжительность: 01:44:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:237CC545902BFCFEFCF8F00C5A11AAA4575803CB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838391   (260061) от 22.11.2025
-
-Boney James - ‘Tis The Season (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz, Christmas Music>
+David Bubba Brooks - Smooth Sailing (1998) TCB Records [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
 
 >>Jazz, Blues, Soul
->>Jazz (Hi-Res)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260061.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Have Yourself A Merry Little Christmas
-02. Skating
-03. The Christmas Song
-04. Jingle Bells(   Читать дальше...   )Жанр: Smooth Jazz, Christmas MusicПродолжительность: 00:48:13
+01. Cotton Tail [05:01]
+02. Stella by Starlight [06:28]
+03. Pennies from Heaven [05:46]
+04. Old Folks [05:07](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:50:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:80BFDAD0400456E0F8F54F8F1F56E5DC83B87089
+magnet:?xt=urn:btih:B6437BE00362E274ED928FF41D824E8E6580ABBD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -274,25 +137,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838392   (260060) от 22.11.2025
+###  Публикация: 1193244   (262276) от 20.12.2017
 
-Воображаемый друг / Imaginary (2024) BDRip [H.264/720p]
+Ralph Moore - Who It Is You Are (1994) Nippon Columbia [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260060.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262276.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вместе с мужем и двумя падчерицами Джессика переезжает в отчий дом — место, где она была счастлива. Девушка надеется, что это вернёт ей вдохновение для продолжения серии детских книг, а девочкам поможет прийти в себя после того, как их родной матери было диагностировано психическое заболевание. Младшенькая находит в подвале плюшевого медвежонка и теперь целыми днями (   Читать дальше...   )Производство: США / Blumhouse Productions, Lionsgate Productions Ltd.Жанр: ужасыРежиссер: Джефф УодлоуАктеры: ДеВанда Уайз, Тэджен Бёрнс, Пайпер Браун, Бетти Бакли, Том Пэйн, Вероника Фалькон, Samuel Salary, Мэттью Сато, Аликс Анджелис, Ванета Уолмсли, Rhythm HurdПеревод: Дублированный (+ cо вставками DVO), двухголосый (ViruseProject)Язык озвучки: Русский, английскийСубтитры: Русские (Full), Английские (Full, SDH)Продолжительность: 01:44:10
+01. Skylark [07:25]
+02. Recado Bossa Nova [06:01]
+03. But Beautiful [05:07]
+04. Testifyin' [06:18](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:09:30
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8BF6BC22C5FF5B5E3B38CDABE5A93C2E585FCE3
+magnet:?xt=urn:btih:9A84A295D37E25D85CDB68F66FD47B2E9F3F0F87
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,25 +166,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838393   (260059) от 22.11.2025
+###  Публикация: 1193328   (262275) от 20.12.2017
 
-Воображаемый друг / Imaginary (2024) BDRip
+Горные лыжи. Кубок мира 2017–2018. Валь Гардена-Грёден (Италия). Мужчины. Скоростной спуск (16.12.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260059.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262275.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вместе с мужем и двумя падчерицами Джессика переезжает в отчий дом — место, где она была счастлива. Девушка надеется, что это вернёт ей вдохновение для продолжения серии детских книг, а девочкам поможет прийти в себя после того, как их родной матери было диагностировано психическое заболевание. Младшенькая находит в подвале плюшевого медвежонка и теперь целыми днями (   Читать дальше...   )Производство: США / Blumhouse Productions, Lionsgate Productions Ltd.Жанр: ужасыРежиссер: Джефф УодлоуАктеры: ДеВанда Уайз, Тэджен Бёрнс, Пайпер Браун, Бетти Бакли, Том Пэйн, Вероника Фалькон, Samuel Salary, Мэттью Сато, Аликс Анджелис, Ванета Уолмсли, Rhythm HurdПеревод: Дублированный (+ cо вставками DVO), двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: Русские (Forced, Full) отдельноПродолжительность: 01:44:10
+16 декабря 2017 года, суббота. 14:15 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Валь Гардена-Грёден (Италия).
+Мужчины. Скоростной спускТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 01:06:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F37C197038704EEFBD6706068514EDFC41999DD
+magnet:?xt=urn:btih:FE96A70501A36BD2E33E7A8E4C3E84476E48F15D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -326,25 +195,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838349   (260058) от 23.11.2025
+###  Публикация: 1193316   (262274) от 20.12.2017
 
-Гайонг / Gayong (2025) WEB-DL [H.264/1080p] [MVO]
+Горные лыжи. Кубок мира 2017–2018. Валь дe Изер(Франция). Женщины. Супергигантский слалом (16.12.2017) HDTVRip [H.264/720p-LQ]
 
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
+>>Архив торрентов
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260058.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Биографический фильм, посвященный памяти Дато Меора Абдула Рахмана — легендарного мастера и основателя малайзийской школы боевых искусств Силат Гайонг.Производство: Малайзия / SOL PicturesЖанр: боевик, драма, военный, биографияРежиссер: Faisal IshakАктеры: Набила Худа, Мохд Щафиэ Насвип, Яян Рухьян, Эрик Чэнь, Хиромицу Такэда, Shannon Wiratchai, Ebby Saiful, Насир Яни, Ван Раджа, Anas RidzuanПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, МалайскийСубтитры: Тайские, АнглийскиеПродолжительность: 01:38:09
+16 декабря 2017 года, суббота. 12:30 МСК
+Этап Кубка мира по горнолыжному спорту сезона 2017-2018 года
+Валь дe Изер(Франция).
+Женщины. Супергигантский слаломТелекомпания: Eurosport 1 HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 02:09:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8BCA775E575BBC26975AA451A922498583CD9369
+magnet:?xt=urn:btih:DAE32DB08F5F0A4BFBC5D87D3EF7AD66C424C052
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -352,25 +224,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838394   (260057) от 22.11.2025
+###  Публикация: 1193388   (262273) от 20.12.2017
 
-Проекты - VideoHive - Broadcast News Package - 60799117 [AEP]
+Second Storey - Lucid Locations (2017) Houndstooth [FLAC|Lossless|WEB-DL|tracks] <IDM, Bass, Electro>
 
->>Проекты
->>Презентации (проекты)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260057.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Это полный пакет для оформления новостей в эфире, включающий вступительные ролики, графику для эфира и другие дополнительные элементы. Очень прост в использовании — просто добавьте фото и видео и отредактируйте текст.Формат: AEP
+01. Moesha Moved To Margate (05:30)
+ 02. Manhattan To Moscow (05:35)
+ 03. Covehithe (04:15)
+ 04. Offbeat World (04:54)(   Читать дальше...   )Жанр: IDM, Bass, ElectroПродолжительность: 00:55:19
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B6AD6B225474DB4443E7FF01F6EC21BC04957521
+magnet:?xt=urn:btih:ED50ABBC21E2E91CCEE50D1D9F1DCE976EEA2342
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -378,245 +253,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838377   (260056) от 22.11.2025
+###  Публикация: 1193134   (262272) от 20.12.2017
 
-Искусственный разум / Artificial Intelligence: AI (2001) BDRip [AV1/1080p] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260056.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем мире вырвавшегося из-под контроля глобального потепления и пугающих достижений науки, смертные живут бок о бок с удивительными и сложными роботами. Но когда продвинутый прототип робота-ребенка по имени Дэвид программируется на проявление бескорыстной любви, члены его человеческой семьи оказываются неготовыми к последствиям такого чувства.
- Неожиданно Дэвид (   Читать дальше...   )Производство: США, Великобритания / Warner Bros., DreamWorks, Amblin EntertainmentЖанр: фантастика, драма, приключенияРежиссер: Стивен СпилбергАктеры: Хейли Джоэл Осмент, Джуд Лоу, Фрэнсис О’Коннор, Сэм Робардс, Джейк Томас, Уильям Хёрт, Кен Люн, Кларк Грегг, Кевин Сассмэн, Том ГэллопПеревод: Авторский (Ю. Живов)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0CE67C87BA44CAB250C4AB8119A0114C6C6C3C8F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838259   (260055) от 22.11.2025
-
-Tina Turner - Good Hearted Woman (1979) Remaster, 2025, Explore Rights Management LTD [FLAC 24/96|Lossless|WEB-DL|tracks] <Country, Pop, Blues>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260055.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lay It Down  (2025 Remaster) [00:03:38]
-02. Lovin' Him Was Easier  (2025 Remaster) [00:04:23]
-03. Good Hearted Woman  (2025 Remaster) [00:03:30]
-04. If This Is Our Last Time  (2025 Remaster) [00:03:24](   Читать дальше...   )Жанр: Country, Pop, BluesПродолжительность: 00:32:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4886857F613013A435C6D35D2A23A42B8C51DF34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838398   (260054) от 22.11.2025
-
-Семь смертей по рецепту / 7 morts sur ordonnance (1975) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260054.jpg" />
-</div>
-
-
-###  Подробнее
-
-В маленький городок приезжает талантливый хирург и открывает свой частный кабинет. Дела его идут успешно, и это очень не нравится владельцам местной клиники. На их совести уже есть самоубийство одного врача, у которого не было отбоя от пациентов. Теперь завистливые конкуренты начинают травлю хирурга... Фильм основан на реальных событиях.Производство: Франция, Германия (ФРГ), Испания / Belstar Productions, Films 66, TIT Filmproduktion GmbHЖанр: драма, криминал, триллерРежиссер: Жак РуффиоАктеры: Жерар Депардьё, Мишель Пикколи, Джейн Биркин, Марина Влади, Хосе Мария Прада, Шарль Ванель, Мишель Оклер, Моник Мелинан, Клод Барруа, Антонио Феррандис, Колин Серро, Георг Маришка, Карл Шёнбёк, Этьенн Драбе, Элизабет ШтрауссПеревод: дублированный (киностудия Мосфильм), профессиональный многоголосыйЯзык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:47:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC70C49F80A1E068C7A549D8B6549DBFD2C218C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838384   (260053) от 22.11.2025
-
-Живая еда с Сергеем Малозёмовым (22.11.2025) WEBRip [H.264/720p]
-
->>Документалистика и Телепередачи
->>Тележурналистика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260053.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Шайн мускат» с наливными ягодами: правда ли он напичкан химией? За что его хвалят блогеры и почему запрещают за рубежом?
-Как фо бо готовят на родине блюда — во Вьетнаме? Где в Москве этот суп готовят по всем канонам? Можно ли сделать фо бо самостоятельно и насколько хороши наборы быстрого приготовления?
-Правда ли в шоколаде есть остатки насекомых с плантаций, от (   Читать дальше...   )Телекомпания: НТВЖанр: Документальный, телепередачаСубтитры: ОтсутствуютПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B5387B4ABDABAEEF3A5C52E0594FDB62D6BE77F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838397   (260052) от 23.11.2025
-
-Зайон / Zion (2025) WEB-DL [H.264/1080p] [MVO]
-
->>Горячие новинки
->>Зарубежные Новинки (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260052.jpg" />
-</div>
-
-
-###  Подробнее
-
-В Гваделупе дилер по имени Крис совмещает торговлю наркотиками с гонками на мотоциклах. Когда местный босс банд поручает ему рискованную доставку, Крис соглашается. Однако в день доставки он обнаруживает у своего порога брошенного ребенка, что запускает цепь трагических событий и вынуждает его сделать решающий выбор.Производство: Франция, Бельгия / Amazon Prime Video, Black Moon Films, Canal+Жанр: драма, криминалРежиссер: Nelson FoixАктеры: Sloan Descombes, Djhaylan Chonchonny Galvani, Zebrist, Philippe Calodat, Axelle Delisle, Saint-Eloi Dominique, Mike Bureau, Youri Christophe, Lucile Kancel, Anthony CastagneПеревод: Многоголосый любительский (Синема УС)Язык озвучки: Русский, ФранцузскийСубтитры: Французские (hurdsub на жаргонную речь)Продолжительность: 01:39:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DAC92D87B6BE3FBDC38944CE4938757B24314CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838400   (260051) от 22.11.2025
-
-Hearts of Iron IV (2016) [Ru/Multi] (1.17.0.1/dlc) Repack Necros
-
->>Win Игры
->>Strategy (RTS/TBS/Grand)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260051.jpg" />
-</div>
-
-
-###  Подробнее
-
-Игрок может выбрать любое государство и принять участие в самых кровопролитных сражениях в истории. Хватит ли игроку смелости взять на себя груз ответственности мирового лидера? Сумеет ли он выиграть борьбу за всемирную власть? Возможно, ему лучше стать предводителем небольшой нации и просто делать все необходимое для выживания. Каждая держава уникальна, игрок может (   Читать дальше...   )Тип издания: RepackРазработчик: Paradox Development StudiosЖанр: Симуляторы, СтратегииЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D71A78718F07E80B5048A22F6CE8C5C652482D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838403   (260050) от 22.11.2025
-
-VA - Synthpop Stars (2025) [MP3|320 Kbps] <Pop, Dance, Electronic>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260050.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kanii - Less Than (03:30)
- 002. Hiding From Amy - Du Bist Schon (04:02)
- 003. Tiara Eve - Breathe It Out (03:32)
- 004. Harmony Bytes - Human Circuitry (03:37)(   Читать дальше...   )Жанр: Pop, Dance, ElectronicПродолжительность: 10:21:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:235407469EAE3577815B6E6B5F0BCD547363A927
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1377998   (260049) от 22.11.2025
-
-Тебя никогда здесь не было / You Were Never Really Here (2017) BDRip [H.265/1080p-LQ] [10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пропала белокурая девочка-подросток. Есть все основания полагать, что её похитили, и теперь она работает в борделе для малолетних. Отец девочки, крупный политик, нанимает бывшего агента ФБР, чтобы отыскать и спасти единственную дочь. У отставного военного, следующего кодексу чести, эта задача не вызывает сложностей, он спасает ребенка. Вызволив девочку из рабства, (   Читать дальше...   )Производство: Великобритания, Франция, США / Why Not Productions, Film4, British Film Institute (BFI) Production BoardЖанр: триллер, драма, детектив, криминалРежиссер: Линн РэмсиАктеры: Хоакин Феникс, Данте Перейра-Олсон, Винисиус Дамассено, Нео Рэндолл, Джудит Анна Робертс, Фрэнк Пандо, Джон Доумен, Эдвард Лэтэм, Алекс Манетт, Клер СюйПеревод: Многоголосый профессиональныйСубтитры: Русские, английскиеПродолжительность: 01:29:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D90558D9D16E6F27F177D15D86AFD3B9625D22D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838404   (260048) от 22.11.2025
-
-V.A. - Buddha-Bar - Winter Sessions in Courchevel - By Ravin (2025) 2CD [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out, Trip Hop>
+Application - Discography 3 Releases (2014) Dust Science Recordings [FLAC|Lossless|tracks+.cue, tracks] <Techno, Breakbeat, IDM, Ambient>
 
 >>Electronic
->>Downtempo, Ambient (Hi-Res)
+>>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260048.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262272.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. Vincent & Odet - Zasłoń (Original Mix)
-02. Fyordh - Malabar
-03. EASTERN WIZARD - El Sueno Santo(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill Out, Trip Hop |Продолжительность: 02:26:55
+01. Ambient A (02:59)
+ 02. Flange 7 (04:04)
+ 03. Steve Reichs Ice Cream Van (03:41)
+ 04. Front End (04:27)(   Читать дальше...   )Тип издания: CD, WEBЖанр: Breakbeat/Techno/IDM/AmbientПродолжительность: 00:47:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A3A9A7730C9099E935C3D57668C4A0795ED747FB
+magnet:?xt=urn:btih:16A5B49F040A60EBC3023A8A6F34B70928E8829A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,28 +282,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838406   (260047) от 22.11.2025
+###  Публикация: 1192772   (262271) от 20.12.2017
 
-VA - National Pop Dance Music Vol.124 (2025) [MP3|320 Kbps] <Pop, Folk, Dance>
+VA - The Best Of Suanda Dark (Mixed by  Roman Messer) (2017) [MP3|320 Kbps] <Trance, Psy-Trance>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Peter Sebastian - Liebe Ist Leise (03:38)
- 002. Ola Magnell - Kliff (03:16)
- 003. Marc Eggers - Pferdchen (02:20)
- 004. Eloy de Jong - Grenzenlos frei (03:02)(   Читать дальше...   )Жанр: Pop, Folk, DanceПродолжительность: 13:34:27
+01.  Attila Syah presents Gamma (Ind)  -  Hello Earth (Radio Edit)  3:21
+02.  Vadim Spark  -  Surrender To Me (Original Mix)  3:27
+03.  Roman Messer & Ruslan Radriges  -  Stronghold (Attila Syah pres. Gamma Radio Edit)  2:47
+04.  F.G. Noise & Axel Walters  -  Target On Fire (Original Mix)  3:31(   Читать дальше...   )Жанр: Trance, Psy-TranceПродолжительность: 01:14:53
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:71AB88457295B503969DA3D25BA40C6088EBEB16
+magnet:?xt=urn:btih:F22F96E871575AA17B0030E0DFB4AA75417D384E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,51 +311,415 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838407   (260046) от 22.11.2025
+###  Публикация: 1192854   (262270) от 20.12.2017
 
-Карпатское золото (1991) WEBRip [H.264/1080p]
+NX-Trance - Angst: The Seventh Album (2017) [MP3|320 Kbps] <Trance, Tech Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262270.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Angst (Intro)  2:05
+02.  Blackout (Original Mix)  8:10
+03.  Whiplash (Original Mix)  8:00
+04.  Threshold (Original Mix)  8:02(   Читать дальше...   )Жанр: Trance, Tech TranceПродолжительность: 01:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE90001FB9A56DA90CC6F975264F175B2935D5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193201   (262269) от 20.12.2017
+
+Automatic Peacock (A T M P K) - Discography 6 Releases (2013-2017) We Only Share [FLAC|Lossless|WEB-DL|tracks] <IDM, Industrial, Ambient, Leftfield, Experimental>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262269.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rush (04:22)
+ 02. Mindcheck (feat. HMC) (04:00)
+ 03. Dancing In The Void (03:50)
+ 04. Cybereality (04:55)(   Читать дальше...   )Тип издания: WEBЖанр: IDM/Ambient/Dubstep/Abstract/IndustrialПродолжительность: 00:22:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F82F8DBC31C8099F81930F0E0E93551ACC4F4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193337   (262268) от 20.12.2017
+
+К. Либкнехт | Мой судебный процесс (1918) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262268.jpg" />
+</div>
+
+
+###  Подробнее
+
+Предлагаемая книжка составлена Карлом Либкнехтом в тюремном заключении. Она состоит главным образом из документов и писем. Первая часть этой книжки появилась в конце 1916 года в Германии нелегально, на правах рукописи. Вторая часть прибавлена к ней незадолго до освобождения Карла Либкнехта из тюрьмы.
+
+Предлагаемая книжка Карла Либкнехта языком сухих документов рисует (   Читать дальше...   )Жанр: История, политология, правоведение, документалистикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC2EEB86D0C16639C1D2148F72E1EAFAA234903
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192766   (262267) от 20.12.2017
+
+VA - Best Of Trance Vol.07 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262267.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sundriver  -  Orion (Intro Mix)  9:27
+02.  Vintage & Morelli  -  While The Earth Sleeps (David Broaders Remix)  4:10
+03.  Gregory Esayan  -  Innerspace (Dan & Sam Club Mix)  7:53
+04.  Blugazer & The Cynic Project  -  Waves On The Ocean (Terry Da Libra Remix)  6:38(   Читать дальше...   )Жанр: TranceПродолжительность: 02:05:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:519DE949B19E9ECEDE6B8D200490049142B6F27D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193089   (262266) от 20.12.2017
+
+Ziyal - Discography 6 Releases (2013-2017) [FLAC|Lossless|WEB-DL|tracks] <Drum n Bass, Ambient, Jungle, Downtempo>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262266.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Innocence (09:46)
+ 02. Aurelia (Ziyal Golden Arc Mix) (06:44)
+ 03. Return To Essence (06:33)
+ 04. Mindtravel (05:47)(   Читать дальше...   )Тип издания: WEBЖанр: Drum & Bass/Ambient/JungleПродолжительность: 01:19:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B0303A2F96945B08A5151F9B5BCBBF9B127A1016
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193186   (262265) от 20.12.2017
+
+Downie 3.1.2 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262265.jpg" />
+</div>
+
+
+###  Подробнее
+
+Downie – легкая загрузка видео с тысячи разных сайтов.
+Downie поддерживает более 1,100 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие. Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.
+
+Поддержка 4K видео YouTube - в отличие от многих других загрузчиков YouTube, Downie поддерживает (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76BDB7E8DD462F796A56C9D3E61C36DFD333163
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193230   (262264) от 20.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.19 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Eros Ramazzotti  -  Cosa Della Vita  4:50
+02.  Patrizio Buanne  -  Only You (Solo Tu)  2:41
+03.  Marcella Bella  -  Montagne Verdi  3:02
+04.  Carmelo Zappulla  -  E... Se Ne Ghiuta  4:34(   Читать дальше...   )Жанр: PopПродолжительность: 02:12:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCAF4268D6FE9FD0C310A8F71EB91F7909C4FD03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193242   (262263) от 20.12.2017
+
+VA - Capriccio All’italiana: Italian Hit Parade Vol.20 (Compiled by Виктор31RUS) (2017) [MP3|320 Kbps] <Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Marcella  -  Quando Verrai  4:37
+02.  Ricchi E Poveri  -  What Now My Love  4:12
+03.  Ornella Vanoni & Gino Paoli  -  Fingere Di Te  3:26
+04.  Umberto Tozzi  -  Claridad  4:22(   Читать дальше...   )Жанр: PopПродолжительность: 02:15:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:716E32CB5DA71B78C3B35E67427B8842BC31643C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193252   (262262) от 20.12.2017
+
+Burshtyn - Безвірник (2017) [MP3|320 Kbps] <Black Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262262.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. 5000 Вердену
+2. Коловорот
+3. Янтарний Сокіл Волі
+4. Хрест Іспокон(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:53:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE88E7DF835F01AB401DBDF702180C15538D97C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193239   (262261) от 20.12.2017
+
+Translatium - translator 7.8.1 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262261.jpg" />
+</div>
+
+
+###  Подробнее
+
+Translatium - одно из самых мощных приложений перевода для macOS, с поддержкой боле чем 150 направлений перевода, проговаривания текста и несколько уникальных функций, таких, как - оптическое распознавание текста (используйте камеру) и рукописное распознавание текста.Тип издания: macOS SoftwareРелиз состоялся: 19.12.2017Разработчик: Quang LamПоддерживаемая ОС: macOS 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD4DCBF87B267A4D7E21943EFD356F994DAA74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193225   (262260) от 20.12.2017
+
+Журнал | Еда №4 (31) (2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262260.jpg" />
+</div>
+
+
+###  Подробнее
+
+Зимние праздники - самые долгожданные, но наступают всегда внезапно. Поэтому, чтобы не суетиться в последние несколько дней перед Новым годом, давайте готовиться вместе! Вы держите в руках замечательный спецвыпуск, в котором много всевозможных праздничных рецептов, игр, тостов и полезных советов. Надеемся, что вместе мы отлично встретим и Новый год, и Рождество, (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FBAEF8E2E18124935E7537CA08E6664D10B9D65
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193231   (262259) от 20.12.2017
+
+Audirvana Plus 3.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262259.jpg" />
+</div>
+
+
+###  Подробнее
+
+Audirvana Plus - мощный аудиофильский плеер с широчайшими возможностями. Плеер понимает, пожалуй, все существующие форматы аудио: AIFF, WAVE, AAC, MP3, FLAC, Monkey Audio APE, WavPack, Apple Lossless, DSD (DSDIFF включая DST, DSF, и SACD ISO). При этом для поддерживаемых ЦАПов сигнал выводится прямо в DSD, для остальных будет использоваться высококачественное преобразование (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.11.2017Разработчик: AudirvanaПоддерживаемая ОС: OS X 10.9 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AD048B3E1203FF949A5C8117A2C72B07B84B8D36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193245   (262258) от 20.12.2017
+
+Где логика? (2017.12.18) WEB-DLRip (сезон 5, выпуск 19)
+
+>>Документалистика и Телепередачи
+>>Телешоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262258.jpg" />
+</div>
+
+
+###  Подробнее
+
+Звездные семейные пары, партнеры по съемочной площадке, просто хорошие друзья и знакомые будут вместе пытаться выстраивать логические связи между самыми, казалось бы, нелогичными событиями, предметами или фактами. Почему мы оставляем официантам на чай, но не оставляем врачам на бинты? Для чего нам мизинцы на ногах? Зачем мыть машину в ноябре? Почему существует сухое (   Читать дальше...   )Телекомпания: ТНТЖанр: ТВ-ШоуСубтитры: ОтсутствуютПродолжительность: 00:47:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B81D69C18CEDD4E1B1702D31C835508149EF7CB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1193226   (262257) от 20.12.2017
+
+Газета | 1000 советов кулинару №17 (декабрь 2017) [PDF]
+
+>>Журналы
+>>Кулинарные журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262257.jpg" />
+</div>
+
+
+###  Подробнее
+
+«1000 советов кулинару» - это кулинарные хитрости от шеф-поваров и опытных хозяек, фирменные рецепты читателей, советы по здоровому и правильному питанию, экономному ведению домашнего хозяйства, покупке кухонной утвари и бытовой техники, кулинарные путешествия, мастер-классы, конкурсы и призы. Статьи о том, что делает людей ближе, объединяет разные поколения и делает (   Читать дальше...   )Жанр: КулинарияФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F39159F9878DD1EB8F488BF34DF57729D830953
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1192979   (262256) от 20.12.2017
+
+Следы на песке (2009) TVRip
 
 >>Отечественное кино
->>Отечественные Фильмы (HD, FHD, UHD)
+>>Отечественные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262256.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Западная Украина, 1945 год. По данным разведки Первого Украинского фронта в район Карпат направляется группа немецких спецназовцев под руководством некоего Гинце с целью найти здесь золото… Чтобы опередить врага советские разведчики вербуют лесника, который вместе с чекистской Ольгой должен, якобы, искать место для вырубки леса. На самом деле перед ними стоит задача (   Читать дальше...   )Производство: СССР / Киновидеообъединение УкраинаЖанр: Драма, военныйРежиссер: Виктор ЖиволубАктеры: Иван Гаврилюк, Ольга Сумская, Михаил Горносталь, Константин Степанков, Евгений Миронов, Альгис Матулёнис, Николай Олейник, Борислав Брондуков, Татьяна Коростылева, Евгений ПаперныйПродолжительность: 01:32:28
+У двух любящих людей не сложилась жизнь, они на какое-то время разъехались, потеряв друг друга, но потом поняли: их отношения - это и есть главное в жизни. И они платят за то, что не поняли этого прежде.Производство: РоссияЖанр: ДрамаРежиссер: Сергей СтепанченкоАктеры: Александр Песков, Лариса Белоброва, Игорь Верник, Сергей Степанченко, Александра Захарова, Анна Капалева, Юра Степанченко, Валерий Шумский, Эрнст Романов, Всеволод ШиловскийСубтитры: ОтсутствуютПродолжительность: 01:37:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C8618986579232F8D7B409A46226E858540BD42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838410   (260045) от 22.11.2025
-
-Снег в моём дворе / Snowflakes in my Yard (2024) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Фильмы ближнего зарубежья
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260045.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гиви живет в Москве, а Леван в Тбилиси. Друзья не виделись 30 лет и нашли друг друга в соцсети. Казалось бы, их ничего не связывает: Гиви — кинорежиссер, и у него семейные проблемы, а Леван одинок и живёт как бомж. У Гиви перемены в жизни, у Левана давно ничего не меняется. Но у них есть нечто общее — детские воспоминания. Общаясь онлайн, они начинают друг другу (   Читать дальше...   )Производство: Россия, Грузия / Gemini, Lemon Films Studio, ЛУКФИЛЬМ / LOOKFILMЖанр: драмаРежиссер: Бакур БакурадзеАктеры: Бакур Бакурадзе, Леван Гоголадзе, Гиорги Бакурадзе, Мария ШумаковаЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:53:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8187226286151EDC06150D9E91B60CE4D1C3E497
+magnet:?xt=urn:btih:1637EA28175EAB33DD08DCE6270B41594AAF09A2
 ```
 
 https://mybot314.ru/tekegram_catalog/

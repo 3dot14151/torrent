@@ -1,3 +1,64 @@
+###  Публикация: 1147663   (607738) от 03.07.2017
+
+Jackie McLean - Lights Out! (1956) 2013, Analogue Productions [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_607738.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lights Out [13:02]
+02. Up [04:49]
+03. Lorraine [06:29]
+04. A Foggy Day [06:26](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:46:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC8582D154E296598AB5623550A4F44D70F5DACD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 525391   (607726) от 21.07.2012
+
+Bobby Watson and the Horizon Quintet - Gumbo (1994) [FLAC|Lossless]<Hard Bop, Post-Bop, Saxophone Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_607726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Unit Seven
+02. Point The Finger
+03. Luqman's Dream
+04. From East To West
+05. Gumbo
+06. Wheel Within A Wheel
+07. PremonitionЖанр: Hard Bop, Post-Bop, Saxophone JazzПродолжительность: 00:43:25
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1147695   (607724) от 03.07.2017
 
 Louis Armstrong - Under The Stars (1957) 2009, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
@@ -693,64 +754,6 @@ The Harry Allen Duo / Trio - I'll Never Be the Same (1995) N/A [FLAC|Lossless|im
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CF0B92172BCB6232620BD021A35380DEF6F156E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148146   (604402) от 05.07.2017
-
-Hank Mobley, Al Cohn, John Coltrane, Zoot Sims - Tenor Conclave (1956) 2014, Analogue Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604402.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tenor Conclave [11:06]
-02. Just You, Just Me [09:29]
-03. Bob's Boys [08:19]
-04. How Deep Is the Ocean? [15:08]Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:44:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9217415928770AE86AF0E8D7DC3E8F24AFCD479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148021   (604319) от 05.07.2017
-
-Harry Allen, Scott Hamilton, New York Sextet - Swing Brothers (2005) [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 My Lean Baby [7:58]
-02 Flying Home [7:06]
-03 Danny Boy [5:38]
-04 Shiny Stockings [6:23](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:08:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9F4ACEAA4EF3964F401B2673E6672E63C9067A44
 ```
 
 https://mybot314.ru/tekegram_catalog/

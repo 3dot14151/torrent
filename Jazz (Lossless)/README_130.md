@@ -1,3 +1,61 @@
+###  Публикация: 911673   (616570) от 23.06.2015
+
+Illinois Jacquet - The Blues; That's Me! (1969) /2000, Original Jazz Classics/[FLAC|tracks+.cue]<Jazz, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Blues: That's Me! [10:33]
+02. Still King [03:56]
+03. 'Round Midnight [06:55]
+04. The Galloping Latin [05:33](   Читать дальше...   )Жанр: Jazz, Mainstream JazzПродолжительность: 00:40:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9740922730DC95895B82C3632D7C1F418B1E70D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1146037   (616500) от 28.06.2017
+
+Gilberto Gil - Sao Joao Vivo  (2001) 2002, Warner Music Brasil [FLAC|Lossless|tracks + .cue] <Brazilian Jazz, World Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_616500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Olha Pro Ceu (4:04)
+02. Oia Eu Aqui De Novo (3:23)
+03. Asa Branca (3:13)
+04. Baiao Da Penha (5:23)(   Читать дальше...   )Жанр: Brazilian Jazz, World FusionПродолжительность: 01:16:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01142BD4BAB39067A5763C3853D917AC4C455717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911675   (616442) от 23.06.2015
 
 Ornette Coleman - Skies Of America (1972) /2014, Columbia/[FLAC|tracks+.cue]<Jazz, Avant-Garde Jazz, Free Improvisation>
@@ -690,64 +748,6 @@ CD01 - Countless Blues:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:479EC9B6C2A501909B4AF38D0DDE84FF7CEB5FF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146924   (613085) от 30.06.2017
-
-Ben Perowsky, Frank Perowsky, Sam Yahel - Bop On Pop (2002) JazzKey Music [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vierd Blues [05:27]
-02. The Jitterbug Waltz [06:57]
-03. Quicksilver [05:45]
-04. All Of You [06:46](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:50:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A598387365C99E79766D3B1E910C87D8BC812208
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1146937   (613081) от 30.06.2017
-
-The Red Garland Trio - Rojo (1958) 1993, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613081.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rojo [08:55]
-02. We Kiss In A Shadow [06:48]
-03. Darling Je Vous Aime Beaucoup [05:15]
-04. Ralph J. Gleason Blues [06:44](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:41:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DF667C09EDCAE9C6E5DFE4868E661C5E1F4898
 ```
 
 https://mybot314.ru/tekegram_catalog/

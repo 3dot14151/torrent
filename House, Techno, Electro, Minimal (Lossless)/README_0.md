@@ -1,3 +1,32 @@
+###  Публикация: 1855630   (1058499) от 24.02.2026
+
+As If - At Night (2012) [FLAC|Lossless|tracks] <Dub Techno, Ambient>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1058499.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hour Of Long Shades 08:57
+02. Sleepless 11:01
+03. Walking The City 07:49
+04. Strange Faces 08:28(   Читать дальше...   )Жанр: Dub Techno, AmbientПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652B1525B1108086EF455B0DDF49EE849E2089C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1855795   (1058483) от 24.02.2026
 
 Anton Ishutin Classics (Deep Strips) (2026) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -713,35 +742,6 @@ Damian Lazarus - Magickal Remixed (2025) [FLAC|Lossless|WEB-DL|tracks] <Tech Hou
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21B69E5165BD95C6DC9A3C97E079CF05E5D09B92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1842164   (1048544) от 14.12.2025
-
-Boris Brejcha - Christmas Mix 2024 (2025) [FLAC|Lossless|WEB-DL|tracks] <Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Snowball (7:29)
-02. Wizard (7:23)
-03. You Take Me Higher (7:50)
-04. Ghost (7:08)(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:18:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5542936868E55D6632590B4F4C460C65AA0849B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

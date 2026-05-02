@@ -1,3 +1,179 @@
+###  Публикация: 1581345   (327132) от 05.10.2022
+
+Madonna - Like A Virgin • Мадона - Като Дева • (1989) repress [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Synth-pop, Dance-pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_327132.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Material Girl • Материално Момиче • Девушка Во Плоти
+A2 Angel • Ангел • Ангел
+A3 Like A Virgin • Като Дева • Как Дева
+A4 Over And Over • Отново И Отново • И Снова, И Снова(   Читать дальше...   )Жанр: Synth-pop, Dance-pop, DiscoПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:01A8DF1CAAECB5E3B0C1FD216FC1FB6ED46AE3A8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 957393   (326657) от 18.11.2015
+
+VA С. Ротару feat. анс. Весёлые Ребята и Синтез-группа И. Гранова - Луна, Луна/Дастархан (1986) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326657.jpg" />
+</div>
+
+
+###  Подробнее
+
+A	С. Ротару, Веселые Ребята - Луна, Луна
+
+B	Синтез-Труппа Игоря Гранова -	ДастарханЖанр: PopПродолжительность: 00:09:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFD2A22AB7EA781B043B1A1DDD71E329E0B89FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 667991   (326548) от 18.11.2015
+
+Адольф Шарль Адан (Жизель) - Оркестр Большого театра СССР (Альгис Жюрайтис) (1989) [FLAC 2.0 24/192|traks(Vinil-Rip)]<Classical, Romantic>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326548.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Classical, RomanticПродолжительность: 01:20:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:398464A479DF5841456C4B9611A73851B843E00F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581653   (326188) от 06.10.2022
+
+Luca Mannutza Trio - Airegin (2021) Japanese Edition  [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>SACD-R
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_326188.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It Could Happen To You
+02. If Ever I Would Leave You
+03. Woody’n You
+04. Moon And Sand(   Читать дальше...   )Жанр: JazzПродолжительность: 01:09:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61F035060DAE2F07C2AF4F8D6C07E25162ED2A80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 843129   (324571) от 22.11.2014
+
+James Last - With Compliments (1970) [FLAC 2.0 24/96|image+.cue (Vinyl-Rip)]<Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Journey
+02. The House Of The Rising Sun
+03. The Last Guest Is Gone
+04. El Condor Pasa
+05. Evie
+06. Rainy Rainy
+07. Luciana
+08. Andanca
+09. Tango Regina
+10. Ballad Of Easy Rider(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DD2D5A6E1311620EAFA9775CF28329A2426C987
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1581788   (324413) от 08.10.2022
+
+VA - Музикална Стълбица 1 (1985) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Hard Rock, Pop Rock, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_324413.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Йордан Георгиев - Откривание • Открытие
+A2 Майкъл Джексън И Мик Джагър - Шоково Състояние • Шоковое состояние
+A3 Лора Бранигън - Самоконтрол • Самоконтроль
+A4 Стиви Уондър - Не Карай Кола, Когато Си Пил • Если ты пил, не управляй машиной(   Читать дальше...   )Жанр: Hard Rock, Pop Rock, Synth-popПродолжительность: 00:45:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5FB4255553EA15F3134C1B9681F2C2950479B03
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1181381   (323378) от 07.11.2017
 
 Рома Жуков - D.I.S.C.O. (2013) [DSD2.0|5,64MHz/1bit|image+.cue|Tape-Rip] <Pop, Dance, Disco>
@@ -597,180 +773,6 @@ A4. Never Before (4:00)(   Читать дальше...   )Производст�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5E0401134233488E96CEDC46D52C0AF098364D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583118   (314232) от 13.10.2022
-
-Центр - Сделано В Париже (1989) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Rock, New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314232.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Привет Тебе
-A2 Навсегда
-A3 Тургеневские Женщины
-A4 Бесполезная Песня(   Читать дальше...   )Жанр: Rock, New WaveПродолжительность: 00:35:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70D7356B458599CEBEBBE634329742F0ED95B9E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260193   (313628) от 06.11.2018
-
-John Lennon – Imagine: The Ultimate Collection (2018) 1971 [DTS 5.1 CD-Audio|44.1/16|image+.cue|BD-Audio] <pop rock, art rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313628.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Imagine (3:04)
-02. Crippled Inside (3:49)
-03. Jealous Guy (4:12)
-04. It's So Hard (2:27)(   Читать дальше...   )Жанр: Pop Rock, Art RockПродолжительность: 00:39:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7661D6B2F0B3B4FCAE3889334BBDCB92BCD59550
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182011   (312191) от 12.11.2017
-
-Duran Duran - Paper Gods (2017) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave, Synthpop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312191.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Paper Gods
-A2. Last Night In The City
-A3. You Kill Me With Silence
-(   Читать дальше...   )Жанр: New Wave, SynthpopПродолжительность: 00:57:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18082DCA154E3E56020A22A9E8D08151F6A982C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182741   (312076) от 12.11.2017
-
-Joy - Joy And Tears (1987) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312076.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Touch Me My Dear 3:39
-A2 Gimme Gimme All Of You 3:53
-A3 Kisses Are The Doctor's Order 3:29
-A4 Korean Girls 3:33(   Читать дальше...   )Жанр: Europop, Synth-popПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE1F8ABE11E698A8EC725E9E8D7186EA9F99343C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182168   (312046) от 12.11.2017
-
-ABBA - The Visitors (1981) [FLAC |192/24|image + .cue|Vinyl-Rip |Lossless] <Europop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_312046.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона А
-
-1. The Visitors [5:45]
-2. Head Over Heels [3:48](   Читать дальше...   )Жанр: EuropopПродолжительность: 00:38:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DCC71031D99D59963D0DC92C96B3C895D0D8313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260413   (311650) от 07.11.2018
-
-A-Ha - Headlines And Deadlines: The Hits Of A-Ha Vol.1 (1992) Unofficial Release [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <New Wave>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_311650.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Take On Me (3:48)
-A2. Cry Wolf (4:07)
-A3. Touchy (4:37)
-A4. You Are The One (Remix) (3:46)(   Читать дальше...   )Производство: Not On Label - RGM 7029Жанр: New WaveПродолжительность: 00:31:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E8A8F44560EBACDA0A64357F300B3771D2EFA6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1607556   (1043975) от 27.01.2023
+
+George Shearing - A Jazz Date With George Shearing (1949 - 1953) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Swedish Pastry [2:41]
+02. Lonely Moments [3:23]
+03. Bop, Look And Listen [2:59]
+04. Conception [2:56](   Читать дальше...   )Жанр: Mainstream Jazz, Bop, Piano JazzПродолжительность: 00:34:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D3467932904A36A11174D22DC48C7065DFC8BCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1607553   (1043971) от 27.01.2023
+
+Fats Waller - 1935 - 1936 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Stride, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. When Somebody Thinks You're Wonderful [3:41]
+02. I've Got My Fingers Crossed [2:41]
+03. Spreadin' Rhythm Around [2:45]
+04. A Little Bit Independent [2:59](   Читать дальше...   )Жанр: Swing, Stride, Piano JazzПродолжительность: 01:15:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83E0BE3155957A83AFB7B701E2439CB06AE09D48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1607829   (1043853) от 28.01.2023
 
 Jack Teagarden - Meet Me Where They Play The Blues (1954) 2005, Membran Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
@@ -687,64 +745,6 @@ Art Blakey & The Jazz Messengers - Buhaina's Delight (1961) 2004, Blue Note [FLA
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BAFF109A7A9232BF91BDD8260A5D78D74160A8D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611149   (1041674) от 10.02.2023
-
-The Fusion Syndicate - The Fusion Syndicate (2012) [FLAC|Lossless|tracks + .cue]<Jazz Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041674.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Random Acts Of Science  07:54
-02. Stone Cold Infusion  07:32
-03. Molecular Breakdown  07:20
-04. Particle Accelerations  07:39(   Читать дальше...   )Жанр: Jazz RockПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAA61B35389FED9C595AA283917A544EDB224096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1611081   (1041650) от 10.02.2023
-
-VA - Ladies In Love (1929 - 1953) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041650.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Ladies in Love:
-01. June Christy - Make Love to Me (4:01)
-02. Sarah Vaughan - Corner to Corner (2:59)
-03. Mildred Bailey - Tears in My Heart (3:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:07:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C3DBEE66A27C071F80C0FD66A0235ED4F576D09
 ```
 
 https://mybot314.ru/tekegram_catalog/

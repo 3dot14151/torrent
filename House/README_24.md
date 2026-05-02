@@ -1,3 +1,203 @@
+###  Публикация: 1014492   (776576) от 07.05.2016
+
+VA - Elliptical Sun Sampler 016 (2016) [MP3|320 кб/с] <House, Progressve House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freydal - Solar Eclipse (Original Mix) 5:15
+02. Lesh - Heart of the Ocean (Original Mix) 8:19
+03. Musty - Canto Grande (Original Mix) 7:23
+04. Sixteen8 - Spring Rain (Original Mix) 6:19(   Читать дальше...   )Жанр: House, Progressve HouseПродолжительность: 01:19:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56CEE430B44326CA6430AD7303C151D7E14120D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211762   (776541) от 10.03.2018
+
+VA - Miami Opening Party (2018) [MP3|320 Kbps] <House, Club, Nu Disco, Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776541.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abel The Kid - In My House 6:27
+02. Fit For Sound - Deeper Feeling (Club Mix) 6:14
+03. Luxx Daze - I Used To Love You Baby 3:44
+04. Bikini Beats - Saturday Night (Disco Mix) 4:52(   Читать дальше...   )Жанр: Funky, Club, Nu Disco, GrooveПродолжительность: 04:51:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9467A50D30E46941729D2187CDFE23C780930D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212437   (775822) от 12.03.2018
+
+VA - Marathon 2018: 50 Great Running Tracks (2018) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775822.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bob Lee  -  Enhance  3:09
+02.  Ben Billson  -  Advise  3:09
+03.  Artur May  -  Logic  3:09
+04.  Apollo Twin  -  Chest  3:09(   Читать дальше...   )Жанр: HouseПродолжительность: 02:37:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32F79BEEB46EECBD1725A1DD5C3A5D888D953550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212514   (775816) от 12.03.2018
+
+VA - JOOF Editions Vol.4 (Mixed by John 00 Fleming) (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance, Techno>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775816.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  John 00 Fleming  -  JOOF Editions Vol.4 (Continuous DJ Mix)  4:36:19
+02.  John 00 Fleming  -  JOOF Editions Vol.4 (Pt. 1 - Continuous DJ Mix)  1:13:05
+03.  John 00 Fleming  -  JOOF Editions Vol.4 (Pt. 2 - Continuous DJ Mix)  1:13:05
+04.  John 00 Fleming  -  JOOF Editions Vol.4 (Pt. 3 - Continuous DJ Mix)  1:13:05(   Читать дальше...   )Жанр: Progressive House, Progressive Trance, Techno, Psy-Trance, BreaksПродолжительность: 15:31:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF028FD7209162396883842A12551E35E8FDF7DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 483836   (775743) от 12.03.2018
+
+SCSI-9 - Metamorphosis (2012) [MP3|320 кб/с]<Tech  Deep House  Minimal>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775743.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Tech  Deep House  MinimalПродолжительность: 01:09:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20D6AC68C6A647255D7BE9718C603C01E94F1FBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212809   (775219) от 13.03.2018
+
+VA - Sensitive Recollection Vol 1: Slow Deep House Grooves (2018) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775219.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mario Aureo & Patryk Molinari - You (Paskal & Urban Absolutes remix) (06:04)
+02. Benn Finn - Soul Searching (Mirco Niemeier remix) (06:28)
+03. Toni Haupt - Loosen (feat Mila - Dole & Kom remix) (09:22)
+04. Ame Vent - Wanna Move (feat Walking Technique) (08:08)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:07:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F05FF941F02D575665D05F7C0DFF2EB4E48414A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212728   (775218) от 13.03.2018
+
+VA - Best Of Deep House 2018 Vol.02 (2018) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775218.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  LTN & Stendahl feat. Arielle Maren  -  Black Hole (Elypsis Vocal Remix)  5:09
+02.  Eleven.Five  -  Last Night (Original Mix)  5:09
+03.  RNX  -  Utah (Original Mix)  4:54
+04.  Illumia  -  I Know (Extended Mix)  6:32(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:31:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D7CD8C6B095C3D5C6D067D116795BC931776E3D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212765   (775213) от 13.03.2018
 
 VA - You Gotta Work For This Body (2018) [MP3|320 Kbps] <Deep, Minimal, Tech House>
@@ -542,209 +742,6 @@ VA - Tales From Another World Vol.1 - South America (2019) [MP3|320 Kbps] <House
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ADA4DA44C3D0069E6D3447D5DE682BF13C834CB0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213501   (768193) от 17.03.2018
-
-VA - High Class Fitness Session (2018) [MP3|320 Kbps] <Minimal, Tech House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768193.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fringe - Zoar
-02. Fretor - Display
-03. Frank Touscha - Entire
-04. Felipe Amado - Emplo(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:18:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01FC7FFF3510C1F337D646B8D09CDEBD29960FEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213595   (768186) от 17.03.2018
-
-VA - Funky Disco House Grooves Vol.09 (2018) [MP3|320 Kbps] <House, Indie-Dance, Nu-Disco, Funky-Groove>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768186.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andy Riley - Feel So (Original Mix)
-02. Deepscale feat. Mary Irene - Promise Me Love (Original Mix)
-03. B.A.N.G! - Circles (A Love State Of Mind) (Instrumental Extended)
-04. JazzyGo - Kuasar (Original Mix)(   Читать дальше...   )Жанр: House, Indie-Dance, Nu-Disco, Funky-GrooveПродолжительность: 02:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0213CDFAE63E302F2CFA16F93B9AD6D0E32C93B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1213582   (768183) от 17.03.2018
-
-VA - Wake Your Mind Sessions 003 (Mixed by Cosmic Gate) (2018) [MP3|320 Kbps] <Progressive House, Progressive Trance>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Cosmic Gate & JES  -  Fall Into You (Eskai Intro Remix)  3:25
-02.  Di Rugerio  -  Aeternis (Original Mix)  7:24
-03.  Max Freegrant & Slow Fish  -  Sweet Lies (Original Mix)  3:50
-04.  Tinlicker feat. Thomas Oliver  -  Nothing Without You (Extended Mix)  7:22(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 05:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:196F26713A3EFFC23007F25C6F710B3BDDC41E64
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125582   (768103) от 15.04.2017
-
-VA - Sirup Deep Anthems Mykonos (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768103.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Croatia Squad - The Best 03:25
-02. Sir Felix - Hope (Nora En Pure Radio Mix) 03:27
-03. Edx - Goombah (Radio Mix) 03:07
-04. Sons Of Maria - Surrender (Radio Mix) 04:00(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:10:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7C5A5ADED71F27418AA37DEEAA04713D480B581
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125587   (768068) от 15.04.2017
-
-VA - Special Sport Songs 7 (2017) [MP3|320 Kbps] <House, Dance, Club>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Hr Troels - Chameleon (Radio Edit)  3:37
-02.  Dave Gate - I Can't Get You (Radio Edit)  2:56
-03.  Phun & Key - System Crash (Radio Edit)  3:05
-04.  Sequence 2 - Crazy (Radio Edit)  4:16(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 02:14:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC00DBE832F2856ACADBBBEF728B7142EB320362
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125264   (767928) от 15.04.2017
-
-VA - 80s Comeback Hits Remixed & Reloaded (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767928.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jason Parker Feat. Chris Burke - Only You (Calenzo Remix) 04:28
-02. Nick Austin - I.O.U. (Radio Version) 03:33
-03. Man 2 Man - Male Stripper (David Strong & Sanfrandisko Remix Edit) 03:31
-04. Winman - Fade To Grey (Radio Version) 03:34(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 03:05:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8EBA0E4685FA468155354017F2BC5B9F30C937D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393495   (767689) от 30.06.2020
-
-VA - Sport Music 2020 [MP3|320 Kbps] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767689.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Snake, Justin Bieber - Let Me Love You (03:23)
-02. Alexander Oscar - Bad Intentions (Faustix Remix) (02:37)
-03. Vigiland, Tham Sway - Shots & Squats (02:51)
-04. LittGloss - L.A. Traffic (02:55)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:37:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49ACA535FEB914FC59D6E481229F0B0A28D1620B
 ```
 
 https://mybot314.ru/tekegram_catalog/

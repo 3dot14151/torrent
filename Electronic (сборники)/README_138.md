@@ -1,3 +1,61 @@
+###  Публикация: 1058487   (469051) от 01.10.2016
+
+VA - Extra Trance: Bonus [09] (2016) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_469051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex M.O.R.P.H & Paul van Dyk - We Are (7:20)
+02. Armin Van Buuren feat. Justine Suissa - Burned With Desire (LTN Sunrise Remix) (3:31)
+03. Denis Kenzo & Cari - Save Me (5:53)
+04. Edelways - Deep Blue (Extended Mix) (6:53)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA313E3AD504ECA2131A97319C42DCDD9A80CAEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940441   (468956) от 24.09.2015
+
+VA - Electro Life 39 (by ZiP)(2015) [MP3|320 kbps]<Electro House, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_468956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Kunnari - Helsinki (Marcus Maison & Will Dragen Remix)
+02. Alpharock & Vida - Knives (Original Mix)
+03. Amir Afargan ft. Katty Heath - Above The Clouds (Original Mix)
+04. Benny Benassi ft. Alizee - I'm Not Twenty (Jai Pas Vingt Ans)(   Читать дальше...   )Жанр: Electro House, House, Progressive House, Dubstep, TranceПродолжительность: 02:04:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E19286E802471796EFF5F230570A89ED081CAF5F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407214   (468603) от 06.09.2020
 
 VA - Beatport Drum And Bass: Electro Sound Pack #173 (2020) [MP3|320 Kbps] <Drum & Bass, Electro>
@@ -701,64 +759,6 @@ VA - Summer House Sessions Desire (2016) [MP3|224-320 Kbps] <Funky, Tropical, Tr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D025EB6A025CA234C83C886E62E15068CC7496D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407492   (464263) от 08.09.2020
-
-VA - After Office: Clubbing Techno Set (2020) [MP3|320 Kbps] <Techno, Tech House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Einox - Symptom
-02. Reznik & Mikesh - Overlooked
-03. Lasawers - Your DJ
-04. Delpezzo - Saxy (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 08:02:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7507080A25794081BD1B4B7DBC2B1D6B3A52DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407490   (464261) от 08.09.2020
-
-VA - Sunset Chillout Party (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464261.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Dead Melodies - The Genesis Flood
-002. Sandro Gentile - Too Much Talk
-003. Xspance - A Place Amongst The Stars
-004. Be Jam - Osmotic Motion(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 09:42:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CA78665DD8E6A57042F5ECAE7E63588FC147813
 ```
 
 https://mybot314.ru/tekegram_catalog/

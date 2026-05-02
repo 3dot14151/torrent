@@ -1,3 +1,61 @@
+###  Публикация: 1006902   (825580) от 13.04.2016
+
+Phil Woods & The Japanese Rhythm Machine (1975) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825580.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Windows [12:53]
+ 02.Spring Can Really Hang You Up The Most [07:16]
+ 03.Johnny Hodges [09:50]
+ 04.Speak Low [10:55](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:44:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:056E4D23045665825327C55F66DF5264738FF964
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1006960   (825489) от 13.04.2016
+
+George Coleman - Amsterdam After Dark (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_825489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Amsterdam After Dark [08:31]
+ 02.New Arrival [07:22]
+ 03.Lo-Joe [04:59]
+ 04.Autumn In New York [10:18](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:44:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D619AA742A86ADDB064D239E17BDFA07A709E854
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1006910   (825393) от 13.04.2016
 
 Dusko Goykovich & Scott Hamilton - Second time Around (2015) Organic Music[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Swing>
@@ -685,63 +743,6 @@ Billy Harper - The Awakening (1979) 2013, Marge [FLAC|Lossless|tracks + .cue] <P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A437839871CEAA8D91DFB3693A23E9DC4930F019
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196457   (822557) от 03.01.2018
-
-Harold Ashby Quartet - What Am I Here For? (1990) 1992, Criss Cross Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822557.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Get Started [05:32]
-02. What Am I Here For? [07:36]
-03. Mood Indigo [05:09]
-04. Frankie And Johnny [07:42](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:09:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:137F8CA84B78CBC0251243A8B168C3F5292FCB5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196550   (822556) от 03.01.2018
-
-Billy Harper Quintet - Love On The Sudan (1977) 2009, Denon Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Awakening [13:53]
-02. Priestess [11:37]
-03. Love On The Sudan [17:08]Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:42:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F9F166F2CB1E958CC4498DEB4DF63F3798040DD
 ```
 
 https://mybot314.ru/tekegram_catalog/

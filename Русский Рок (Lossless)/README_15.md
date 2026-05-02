@@ -1,3 +1,32 @@
+###  Публикация: 1116947   (820917) от 21.03.2017
+
+bAbA yAgA - bAba yAgA (1992) [APE|Lossless|image + .cue] <Folk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_820917.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back In The U.S.S.R. 1:42
+02. Side To Side 4:46
+03. Red Bird 4:41
+04. Where Will You Go 4:12(   Читать дальше...   )Жанр: Folk-RockПродолжительность: 00:52:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E379CC151865F4AEC5BAA126E08A495CDDBB6191
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1116986   (820914) от 21.03.2017
 
 7Б - Солнцу решать (2017) [FLAC|Lossless|WEB-DL|tracks] <Rock>
@@ -721,35 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17C8F0776A1332752290A8A5FDD2D9B15C566D3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273394   (800621) от 01.01.2019
-
-Billy's Band - Песни Дедов Морозов (2016) 2017, Self-released [FLAC|Lossless|image + .cue] <Alco-jazz>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800621.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. С неба снежинки как звёзды летят (3:48)
-02. Падал крупными хлопьями снег (2:25)
-03. У Нового года примета особая (2:46)
-04. Хватит счастья нам на всех  (2:30)(   Читать дальше...   )Жанр: Alco-jazzПродолжительность: 00:35:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D56B33020B72991E5DEB4AE0FCD476B49EDBA0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

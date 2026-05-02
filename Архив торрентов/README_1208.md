@@ -1,3 +1,229 @@
+###  Публикация: 1210003   (779020) от 01.03.2018
+
+VA - Aquarius (2013) Dronarivm [FLAC|Lossless|WEB-DL|tracks] <Ambient, Drone, Experimental, Glitch, Minimal, Modern Classical>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779020.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Federico Durand - Una Vision Entre Los Arboles Del Bosque (05:01)
+ 02. The Green Kingdom - Pineloops3 (05:00)
+ 03. Pjusk - Skarlagen (05:00)
+ 04. Melodium - Pistoruis (05:00)(   Читать дальше...   )Тип издания: WEBЖанр: Ambient, Drone, Experimental, Glitch, Minimal, Modern Classical •Продолжительность: 01:16:46 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B184A39B52833382E114E73329156D895D4CA2DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210161   (779019) от 01.03.2018
+
+D'Arcangelo - Audiovisual Designs (2013) Rephlex [FLAC|Lossless|tracks+.cue] <IDM, Techno, Experimental>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Color Two (04:09)
+ 02. Sep On Acid (04:10)
+ 03. External Monday (04:42)
+ 04. Bet Root (03:35)(   Читать дальше...   )Тип издания: CD •Жанр: IDM, Techno, Experimental •Продолжительность: 00:48:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57D87126CD34997551837AC930F7DEFD118C2EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210042   (779017) от 01.03.2018
+
+Nexet - Иммунитет (2017) [MP3|320 Kbps] <Rap>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Точка (3:45)
+ 02. Иммунитет (3:30)
+ 03. Не виноваты (3:18)
+ 04. Моветон (3:11)(   Читать дальше...   )Жанр: RapПродолжительность: 00:27:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59C302F8E68463A36B9BD203416E6AC8E79BD103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210159   (779015) от 01.03.2018
+
+D'Arcangelo - D'Arcangelo (2018) Happy Skull [FLAC|Lossless|WEB-DL|tracks] <IDM, Electro>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779015.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saba Tree (04:00)
+ 02. Pull Seven (04:15)
+ 03. AC - SF13 - 2 Cid - 13th Cider (04:41)
+ 04. Korty (02:40)Жанр: IDM, ElectroПродолжительность: 00:15:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9F91AA579F09E6FA9C0E1D247853D15F324FE46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209955   (779010) от 01.03.2018
+
+8mm - Opener (EP) (2004) [FLAC|Lossless|tracks + .cue] <Trip-Hop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Opener (03:51)
+02. Save Yourself (03:07)
+03. Never Enough (04:14)
+04. Nothing Left To Lose (03:09)(   Читать дальше...   )Жанр: Trip-HopПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A678120C839E0242B7C32DA42A03C0C07CFAF820
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1209975   (779007) от 01.03.2018
+
+Todd Gauthreaux & Label-Pack Simulacra Records (1997-2018) [FLAC|Lossless|tracks+.cue, tracks] <Ambient, Drone, Experimental, Indie Rock, Ethereal, Shoegaze>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Monochrome Frost (05:38)
+ 02. A Year Of Disappointments (04:51)
+ 03. The Trouble With Dreams (06:09)
+ 04. Theory Of Impossible Shapes (04:38)(   Читать дальше...   )Тип издания: CD, WebЖанр: Ambient/Drone/ExperimentalПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07AF98D24ED85CDAEF353ABD5CF3231316104461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210089   (779000) от 01.03.2018
+
+WinCatalog 2017 17.45 RePack by вовава [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_779000.jpg" />
+</div>
+
+
+###  Подробнее
+
+WinCatalog - это простая в использовании программа-каталогизатор, предназначенная для каталогизации дисков, файлов и папок. Приходилось ли Вам когда нибудь просматривать содержимое десятков CD в поисках нужной программы или песни? Используя WinCatalog Вам больше никогда не придется тратить время на поиск. Достаточно один раз добавить Ваши диски в WinCatalog и поиск (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A618A0EA29A7F1EA0639BF83092DEBB916F707
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210189   (778995) от 01.03.2018
+
+Opera 51.0.2830.40 Portable by Cento8 [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778995.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:473E757438251DE43DC25DE99676CB6A2A2CF062
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1210117   (778990) от 01.03.2018
 
 XMedia Recode 3.4.2.5 + Portable [Multi/Ru]
@@ -468,224 +694,6 @@ Serial Box 03.2018 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC69626C80B476CE367D5028F03F2BC6960EB9FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210370   (778868) от 02.03.2018
-
-Allavsoft Video Downloader Converter 3.15.5.6635 RePack by вовава [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778868.jpg" />
-</div>
-
-
-###  Подробнее
-
-Video Downloader Converter - это программа от Allavsoft, которая поможет вам скачать видео с разных специализированных сайтов, на странице разработчиков, утверждается, что работает софт более чем с сотней разных видео-хостингов. Эта была первая фишка программы, дальше идет процесс конвертирования, после того как вы загрузили ролик, его можно конвертировать в разные (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF0EC56276DD5EC830D2653ADE1CF98FB93F1FAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210418   (778866) от 02.03.2018
-
-PDF Expert 2.3.2 [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778866.jpg" />
-</div>
-
-
-###  Подробнее
-
-PDF Expert - редактор  PDF
-Быстрый, мощный и незаменимый PDF редактор для вашего Mac. Взгляните на работу с PDF по-новому!
-
-Разработчики учли все пожелания пользователей и сделали PDF Expert для Mac простым, как и его мобильная версия, но очень функциональным. Интерфейс не перегружен лишними панелями, нужные элементы управления появляются лишь при работе в соответствующем (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Readdle Inc.Поддерживаемая ОС: macOS 10.10 +Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72E6DA44EF97AD11983864E60BE1F8C4D8E5199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1209418   (778865) от 02.03.2018
-
-Rage - Trapped! (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Speed Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shame On You (4:52)
- 02. Solitary Man (3:37)
- 03. Enough Is Enough (6:43)
- 04. Medicine (3:43)(   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:150A78D09439298C63824EEEAA2E3AD645783A7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210074   (778864) от 02.03.2018
-
-Purecloud5 - PSY Trance (2018) [MP3|320 Kbps] <Psy Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778864.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bad Habits (Original Mix)  5:09
-02.  Psy Ghosts (Original Mix)  4:24
-03.  Right Back (Original Mix)  3:52
-04.  Tiriya (Original Mix)  5:15(   Читать дальше...   )Жанр: Psy TranceПродолжительность: 02:12:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3124493D189DAD53CEB686F1A345132DB16F32C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210366   (778843) от 02.03.2018
-
-Pale Moon 27.8.0 + Portable [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778843.jpg" />
-</div>
-
-
-###  Подробнее
-
-Pale Moon - веб-браузер, созданный на базе популярного браузера Mozilla Firefox. Pale Moon отличается быстротой и стабильностью. Поэтому, если у вас есть опыт использования браузера Firefox, вы не испытаете трудностей при его использовании. Оптимизация исходного кода только под нужные функции наряду с сохранением совместимости с тысячами расширений Firefox позволила (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A7C37292F8AD0E2F57D98A273B0429E76B737F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210246   (778839) от 02.03.2018
-
-Korea Undok Group - Label-Pack (2015-2017) [MP3|320 Kbps] <Experimental, Ambient, Minimal, Abstract, Drone, Noise>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778839.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Untitled (10:52)
- 02. Untitled (11:42)Жанр: Ambient/ExperimentalПродолжительность: 00:22:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64C330D83FF9A1D681E748C35904FB907F281ADC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210397   (778827) от 02.03.2018
-
-KeePassXC 2.3.0 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778827.jpg" />
-</div>
-
-
-###  Подробнее
-
-KeePassXC — программа для управления паролями. Позволяет безопасно хранить пароли и автоматически вводить их на посещаемых сайтах. Для хранения используется специальная база данных, которая шифруется с помощью надёжного алгоритма шифрования AES (Rijndael) с использованием 256-битного ключа. Важной особенностью является то, что программа не хранит никаких данных в (   Читать дальше...   )Язык интерфейса: Русский, Английский, и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C5B73196C91BAE1BB6C3DAAF2ED0CCB3E98F530
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1210381   (778804) от 02.03.2018
-
-YouTube Video Downloader PRO 5.9.4 (20180214) RePack by вовава [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778804.jpg" />
-</div>
-
-
-###  Подробнее
-
-YouTube Downloader - простая и легкая в использовании программа, которая предназначена для загрузки и последующего просмотра роликов с популярных сервисов видеообмена YouTube, Facebook, Google Video, Yahoo Video и пр. Для скачивания необходимо ввести ссылку на видео, которое вы хотите скачать и указать папку для сохранения клипа. Также YouTube Downloader позволяет (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64663A4771709803B428DBC0CE31A01582EF4ECF
 ```
 
 https://mybot314.ru/tekegram_catalog/

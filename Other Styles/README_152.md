@@ -1,3 +1,209 @@
+###  Публикация: 966419   (217736) от 18.12.2015
+
+John Williams - Звёздные войны: Пробуждение силы / Star Wars: The Force Awakens (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_217736.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Title and the Attack on the Jakku Village (06:26)
+02. The Scavenger (03:40)
+03. I Can Fly Anything (03:11)
+04. Rey Meets BB-8 (01:32)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3C331E234D0E7C22C1009578E8C26F5837522DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1514466   (217439) от 03.12.2021
+
+Музыкальные композиции Александра Морозова в исполнении Гасана Багирова - Мелодии для души (2007) [FLAC|Lossless|tracks + .cue]<Instrumental, Guitar>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_217439.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Горница
+02. Душа болит
+03. Малиновый звон
+04. Остановите землю(   Читать дальше...   )Жанр: Instrumental, GuitarПродолжительность: 00:48:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3133FBC00FBEFF99E7C13E983E42D3AF9C4B613E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084832   (216991) от 20.12.2016
+
+Frank Squillante - Take Me There (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Take Me There [00:04:29]
+02 -  American Image [00:03:05]
+03 -  I Was Told Otherwise [00:02:34]
+04 -  If You Think of It [00:02:32](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33FB564614F31D253E0DF982138A7EAD13CA2050
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084941   (216795) от 20.12.2016
+
+Amy Lynne Johnson - Piano Poetry, Vol. 2: Music to Calm the Mind and Lift the Heart (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age, Piano>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216795.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sunset Shimmer [00:01:45]
+02. Memory Lane [00:01:55]
+03. Baby's Bliss [00:02:20]
+04. Falling in Love [00:01:52](   Читать дальше...   )Жанр: New Age, PianoПродолжительность: 00:29:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC3278BB5A3E45B82288328B785694CBFD115B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 69832   (216732) от 12.12.2012
+
+Tony O'Connor - 26 albums (1989-2007)[MP3|192-320 kbps]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_216732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horizon Blue (9:19)
+02. Cascade (7:33)
+03. Lilypond (7:06)
+04. Quietude (6:00)
+05. Somewhere (6:53)
+06. Perido a Tiempo (7:42)
+07. When We Sail Away (9:16)Жанр: New AgeПродолжительность: 00:53:50
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084967   (216353) от 20.12.2016
+
+Meditative Mind - 7 Chakras Healing Music (Tibetan Singing Bowl Edition) (2016) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216353.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Root Chakra Meditation (Tibetan Singing Bowl Edition) [00:31:22]
+02 -  Sacral Chakra Meditation (Tibetan Singing Bowl Edition) [00:30:00]
+03 -  Solar Plexus Chakra Meditation (Tibetan Singing Bowl Edition) [00:30:36]
+04 -  Heart Chakra Meditation (Tibetan Singing Bowl Edition) [00:30:56](   Читать дальше...   )Жанр: New AgeПродолжительность: 03:33:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D0B6598C811A7C522F3E105115EE57E2E3FE6E3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084697   (216168) от 20.12.2016
+
+VA - Christmas Cafe (2016) [FLAC|Lossless|tracks] <Pop, Soul, Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_216168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pentatonix – The Christmas Song (Chestnuts Roasting on an Open Fire) [00:03:43]
+ 02. Tom Odell – Real Love [00:02:21]
+ 03. Joshua Radin – Winter [00:03:23]
+ 04. Katy Perry – White Christmas [00:03:20](   Читать дальше...   )Жанр: Pop, Soul, FolkПродолжительность: 02:54:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9481DE3B44914BD429C5C34819616492352E0170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1343528   (216159) от 07.12.2019
 
 Enya - Christmas Secrets (2019) [FLAC|Lossless|WEB-DL|tracks] <New Age, Celtic, Christmas>
@@ -543,207 +749,6 @@ Konstantin Klashtorni - Chillaxonic: Dreams (2023) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:11D091C13A1D1150C61BDED10D5B22895DAB5877
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 661040   (210447) от 14.08.2022
-
-VA - Mortal Kombat Annihilation: OST (1997) [FLAC|Lossless|tracks + .cue] <Soundtrack, Techno, Progressive Trance>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Immortals - Theme From Mortal Kombat (Encounter the Ultimate) (03:19)
-02. Scooter - Fire (03:14)
-03. KMFDM - Megalomaniac (04:19)
-04. Megadeth - Almost Honest (04:01)(   Читать дальше...   )Жанр: Soundtrack, Techno, Progressive TranceПродолжительность: 01:12:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BFC0420E7E0DAC5B70D8988111DC27D6D9AB93E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604927   (209877) от 16.01.2023
-
-ДиДюЛя - Live with String Quartet (2022) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, New Age>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_209877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legend (3:00)
-02. Waterfall (4:11)
-03. Arabica (6:00)
-04. Butterflies (4:24)(   Читать дальше...   )Жанр: Instrumental, New AgeПродолжительность: 00:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AC47664D9202007386D264C87ED186C0B0410E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1644407   (209763) от 05.07.2023
-
-ДиДюЛя - Складук (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Flamenco, World>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Складук
-02. ПляжЖанр: Instrumental, Flamenco, WorldПродолжительность: 00:07:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E81D03FA7AE9ACF158AF58A1322D1E769E52F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1645059   (209317) от 09.07.2023
-
-VA - Симфония природы (3CD) (2008) [FLAC|Lossless|image + .cue] <Instrumental, Relax, Classical>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_209317.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Подводный мир (1:06)
-02. Дождь в лесу (1:21)
-03. Возле маленького ручейка (6:51)
-04. Рассвет на озере (6:05)(   Читать дальше...   )Жанр: Instrumental, Relax, ClassicalПродолжительность: 00:55:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CCFF9BB8074C2834D4C0768C7B6A925B2BCB9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1607496   (208994) от 26.01.2023
-
-Nino Rota - Greatest Film Hits (2012) 5xCD, BOX Set [FLAC|Lossless|image + .cue] <Instrumental, Soundtrack>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_208994.jpg" />
-</div>
-
-
-###  Подробнее
-
-Nino Rota (3.12.1911 – 10.4.1979) - итальянский композитор, пианист, дирижер и академик. Nino Rota родился в 1911 году в Милане, в семье музыкантов. В детстве, переехав в Рим, поступил в консерваторию, которую закончил в 1929 году. Еще в консерватории Nino Rota прослыл вундеркиндом – он зарекомендовал себя как композитор и дирижер оркестра, а его первая оратория (   Читать дальше...   )CD1 - The Godfather Part I, II:
-01. Main Title. The Godfater Waltz (3:09)
-02. I Have But One Heart (3:01)
-03. The Pick-Up (2:10)(   Читать дальше...   )Жанр: Instrumental, SoundtrackПродолжительность: 05:09:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72804D4C11CF870D4AA4BBF852A713BBF198679
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648774   (208002) от 25.07.2023
-
-Алексей Горшенёв - Посвящение (2023) Музыка для сериала "Король и Шут" [FLAC|Lossless|WEB-DL|tracks] <Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_208002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рождение (Сцена на крыше ДС "Юбилейный")
-02. д’Артаньян (Сцена с зубами)
-03. Разговор с богом (Сцена "Больница, Горшок")
-04. Дружба (Сцена дружбы)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C45055B5DD1E93559D903206DB2878933FD2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1648742   (207980) от 25.07.2023
-
-Алексей Горшенёв - Посвящение (2023) Музыка для сериала "Король и Шут" [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_207980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Рождение (Сцена на крыше ДС "Юбилейный")
-02. д’Артаньян (Сцена с зубами)
-03. Разговор с богом (Сцена "Больница, Горшок")
-04. Дружба (Сцена дружбы)(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:59:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E9DD8154C9A3DA62B5C2F43622F4E869BCAD26E
 ```
 
 https://mybot314.ru/tekegram_catalog/

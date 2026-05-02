@@ -1,3 +1,177 @@
+###  Публикация: 1784939   (69479) от 13.03.2025
+
+Tomislav Goluban & Crooked Eye Tommy - Nashville Road (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Hard Run (2:39)
+02.  Rock Dog (4:03)
+03.  Up Is Down (3:17)
+04.  Bad Choices Make Good Stories (5:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE83DDF90B40F5FEAF09D94D60DCE835BA302790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784791   (69478) от 13.03.2025
+
+Avion - Lady Of The Night (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Need You (3:48)
+02.  Diamond Eyes (4:12)
+03.  Lady of the Night (2:53)
+04.  We Can Try (3:24)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1123D3EDDDA697C95F00F52550B664E12AC0A73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784904   (69477) от 13.03.2025
+
+Moonsorrow - Voimasta Ja Kunniasta (2001) Released, 2017, Blood Music [FLAC|24/192|image + .cue|Vinyl-Rip] <Folk Metal, Viking Metal, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69477.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 - Tyven
+A2 - Sankarihauta
+A3 - Kylän Päässä
+B1 - Hiidenpelto Including Häpeän Hiljaiset Vedet(   Читать дальше...   )Жанр: Folk Metal, Viking Metal, Black MetalПродолжительность: 00:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14A5B1995B612EFFACDE0A6095C4C423FD3E83E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784789   (69476) от 13.03.2025
+
+Arthur Guyard - Pocket Grooves (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Let's Groove (2:05)
+02.  Can You feel (2:27)
+03.  Let's Dance (2:15)
+04.  Shake Yourself (2:18)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:27:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52E37CA1FF955C60F9FECEEC0D031C6BBC8C80F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784929   (69475) от 13.03.2025
+
+The Late Speakers - Freaking News (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Limousine (3:14)
+02.  Alchemical (4:01)
+03.  Hit me! (3:46)
+04.  REM Sleep (4:12)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:194C6972E62BE6478F91FD8494039DDFAD32F4B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1784943   (69474) от 13.03.2025
+
+Untold Stories - Wind and Memories (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69474.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Broken Light (7:04)
+02.  Fly Away (4:59)
+03.  Wind and Memories (10:19)
+04.  The Power of Forgiveness (7:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A34C2CE2B7EFCBAED9D1FF83C713E7B3746321B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1784799   (69473) от 13.03.2025
 
 Pioneers - In A State Of Rock (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
@@ -572,180 +746,6 @@ ZZ Ward - Liberation (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16908F827D9EDD64AB68F29367017514B065DAC8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1784955   (69321) от 15.03.2025
-
-Yuridia - Sin Llorar (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Para Que Seas Feliz [00:03:02]
-02. Sin Llorar [00:03:42]
-03. Un Bendito Día [00:03:31]
-04. Evítame la Pena [00:02:43](   Читать дальше...   )Жанр: PopПродолжительность: 00:45:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A1A0EF22A38CC95FD9706038804113F18690559B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785389   (69319) от 15.03.2025
-
-David Rose - Sun Dance (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Latin Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69319.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Salvame De Esta Pena (3:44)
-02.  Laman-Zana (2:02)
-03.  Bailando Junto Al Mar (3:07)
-04.  Primavera En El Paraiso (1:31)(   Читать дальше...   )Жанр: Latin JazzПродолжительность: 00:54:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3ED31119F09289763699D037CBBE0C3BDB7CA19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785405   (69316) от 15.03.2025
-
-Overdrivers - Glory or Nothing (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69316.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kings of the Road (3:18)
-02.  Overdrivers (3:16)
-03.  Glory Or Nothing (3:46)
-04.  My Girlfriend Is a Pornstar (4:09)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F266D0155D64166EE23F8CF3C2022242A9367B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785291   (69314) от 15.03.2025
-
-Pvris - White Noise (2014) 10 Year Anniversary Edition, 2025, Rise Records[FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore, Synth-pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69314.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You and I [00:04:30]
-02. Empty [00:03:28]
-03. Smoke [00:03:05]
-04. St. Patrick [00:04:20](   Читать дальше...   )Жанр: Alternative Rock, Post-Hardcore, Synth-popПродолжительность: 01:07:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BB5459B317987C0F091496E2217BA0020724CB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785401   (69313) от 15.03.2025
-
-D'OR - Antiheroes (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69313.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Shapeshifter (3:53)
-02.  The Howling (4:29)
-03.  Scandal (4:24)
-04.  Her Name Was Alice (4:20)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:078E4D861801130AF8DB787ECFE4BFDA1E3FC54D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1785314   (69312) от 15.03.2025
-
-Carach Angren - Death Came Through A Phantom Ship (2010) Reissue, 2013, Season Of Mist [DSD128|24/44,1|tracks|Vinyl-Rip] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_69312.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. Electronic Voice Phenomena
-A2. The Sighting Is A Portent Of Doom
-A3. ...And The Consequence Macabre
-B1. Der Decken's Triumph(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A85B302155E9D54E64D71050186124036DE25D80
 ```
 
 https://mybot314.ru/tekegram_catalog/

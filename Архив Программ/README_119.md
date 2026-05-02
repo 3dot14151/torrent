@@ -1,3 +1,29 @@
+###  Публикация: 1471938   (1014577) от 23.05.2021
+
+Windows 7 SP1 52in1 (x86/x64) +/- Office 2019 by Eagle123 (05.2021) [Ru/En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows 7 SP1, включающая в себя 13 русских редакций и 13 английских редакций x86/x64, с обновлениями по 05.2021, дополнительными системными библиотеками (C++ Redistributable Package), с возможностью выбора опций установки и наличием MSDaRT. А также инсталляции Windows c уже предустановленным (или без - по выбору) Word, Excel, PowerPoint, Access, Publisher, Outlook (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6E365BCF29016063BE2F68BCCE63B4985E5069D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1472091   (1014576) от 23.05.2021
 
 UltraISO Premium Edition 9.7.6.3812 (DC 23.05.2021) RePack (& Portable) by KpoJIuK [Multi/Ru]
@@ -647,32 +673,6 @@ NoMachine – это средство доступа к удаленным ра�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50FB12C7D10A766FA0D317F7F9B6403D48E744FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472988   (1013999) от 27.05.2021
-
-Google Chrome 91.0.4472.77 Portable by Cento8 [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013999.jpg" />
-</div>
-
-
-###  Подробнее
-
-Google Chrome – это веб-браузер, сочетающий в себе минималистичный дизайн и сложные технологии и позволяющий сделать работу в Интернете быстрее, проще и безопаснее.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58CC3B77C438C2B485C7A5CFFB5D53A4056DF971
 ```
 
 https://mybot314.ru/tekegram_catalog/

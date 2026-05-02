@@ -1,3 +1,177 @@
+###  Публикация: 1745242   (105093) от 25.08.2024
+
+Last Autumn's Dream - Studio Albums (15 releases) (2003-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Hard Rock/AOR>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105093.jpg" />
+</div>
+
+
+###  Подробнее
+
+Last Autumn's Dream — хард-рок-группа, образованная в 2002 году вокалистом и клавишником Микаэлем Эрландссоном из Швеции и гитаристом Энди Малечеком из немецкой хард-рок-группы Fair Warning.2003 - Last Autumn's Dream
+2004 - Last Autumn's Dream II
+2005 - Winter In Paradise
+2006 - Saturn SkylineЖанр: Melodic Hard Rock, AORПродолжительность: 13:51:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:206CD2C7FA19EF1F151EE71AB12A643235820B8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745217   (105083) от 25.08.2024
+
+Engelbert Humperdinck - Live at the London Palladium (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|Audio-DVD] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Overture: Chariots of fire, Release me
+02. This is what you mean to me
+03. The way it used to be
+04. Still(   Читать дальше...   )Жанр: PopПродолжительность: 01:26:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9D47BB657A57D8A66595C705CA0ACB7104B98B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745579   (105075) от 26.08.2024
+
+Warlord - From the Ashes to the Archives - The Hot Pursuit Continues (2024) Compilation [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Invaders (Re-Recorded 2024) [00:05:51]
+02. Battle of the Living Dead (Re-Recorded 2024) [00:04:12]
+03. Winds of Thor (Re-Recorded 2024) [00:06:03]
+04. Achillies Revenge (Re-Recorded 2024) [00:06:03](   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F641B00E6165573322C75DA872E03F0AE71251B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745597   (105065) от 26.08.2024
+
+of Books&Blues - That Ain't It (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Freight Train Ride (4:19)
+02. That Ain't It (4:52)
+03. VooDoo-Hearted Blues (3:51)
+04. Under That Skirt (4:00)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13A9FAF0AA2D3A36410C5D718E124151BD7D8C4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745462   (105064) от 26.08.2024
+
+Jeff Lorber - Elevate (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Erick Walls - Elevate (3:29)
+02. JEFF LORBER - Spanish Joint (4:04)
+03. ZigZag (3:51)
+04. Glacier (4:10)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:38:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE19019DB169C8334A7D9C0CD07A7692183FC6B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745488   (105063) от 26.08.2024
+
+Steve Cropper and The Midnight Hour - Friendlytown (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Steve Cropper - Friendlytown (3:59)
+02. Steve Cropper - Too Much Stress (feat. Brian May) (3:13)
+03. Steve Cropper - Hurry Up Sundown (3:06)
+04. Steve Cropper - Let's Get Started (3:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D138A85F06AE6BCC1E88272E5DA87FA4A1AAD4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1745578   (105062) от 26.08.2024
 
 Grace Bowers & The Hodge Podge - Wine On Venus (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock, Americana>
@@ -571,180 +745,6 @@ Virgo (Matos-Paeth) - 2001 - Virgo(   Читать дальше...   )Жанр: 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63EA7575DE25778EFF3E2697726E580448A5D058
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745922   (104972) от 29.08.2024
-
-Beyond Veils - Think happy thoughts (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. THINKHAPPYTHOUGHTS [00:04:09]
-02. pRoJeCt aFtErLiFe [00:03:27]
-03. GATEKEEPERS [00:03:39]
-04. rawrXD [00:03:17](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:38:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6792E69C8A3405B95CBBF29BAB8FE454465550DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745891   (104971) от 29.08.2024
-
-Joji - Smithereens (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <R'n'B, Hip-Hop, Neo-Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104971.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glimpse of Us [00:03:53]
-02. Feeling Like The End [00:01:42]
-03. Die For You [00:03:31]
-04. Before The Day Is Over [00:03:33](   Читать дальше...   )Жанр: R'n'B, Hip-Hop, Neo-SoulПродолжительность: 00:24:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8A02506F56BC2554FEB47D7D55D221114415EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746159   (104967) от 29.08.2024
-
-Leprous - Melodies Of Atonement (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104967.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silently Walking Alone (4:05)
-02. Atonement (4:49)
-03. My Specter (3:56)
-04. I Hear the Sirens (4:31)(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 00:51:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0BEF0B7F69D03A9CD811C39E3DFB0D53ABF7475
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746271   (104965) от 30.08.2024
-
-Frank Catalano & Lurrie Bell - Set Me Free (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104965.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Everyday I Have The Blues (5:33)
-02. The Sky Is Crying (6:46)
-03. Set Me Free (4:09)
-04. Shakin (4:17)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:395DCEB5DE66070AE24B3DE0841E164DF91EBE15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746265   (104950) от 30.08.2024
-
-Haken - Studio Albums (9 releases) (2008-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104950.jpg" />
-</div>
-
-
-###  Подробнее
-
-Haken — лондонская прогрессив-рок/метал-группа, основанная в 2007 году Ричардом Хеншоллом и Россом Дженнингсом.2008 - Enter The 5th Dimension
-2010 - Aquarius
-2011 - Visions
-2013 - The MountainЖанр: Progressive Metal/RockПродолжительность: 08:54:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C72B77356158E8A1E5CB16ED7FF8C553841AB3A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1746269   (104949) от 30.08.2024
-
-Fiona Cosgrove - Fiona Cosgrove Introspective (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104949.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All the Things (3:41)
-02. Glitter (3:33)
-03. Comfortable (3:09)
-04. Ocean (4:05)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22C79D04031A6148A221CCD710DD957B8217886A
 ```
 
 https://mybot314.ru/tekegram_catalog/

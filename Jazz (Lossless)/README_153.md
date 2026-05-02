@@ -1,3 +1,61 @@
+###  Публикация: 1048532   (546593) от 02.09.2016
+
+Louis Van Dyke - When a Man Loves a Woman (1968) Remaster, 2014, Sony Music[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546593.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When A Man Loves A Women [03:18]
+ 02.With A Little Help From My Friends [03:32]
+ 03.She's Leaving Home [03:32]
+ 04.Mercy, Mercy, Mercy [04:14](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D727F470A05285C291CC77757E1777EC836CCE79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048516   (546589) от 02.09.2016
+
+Art Blakey & Freddie Hubbard - Feel The Wind (1988) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_546589.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Arieties [05:27]
+ 02.Feel The Wind [09:54]
+ 03.Embraceable You [09:18]
+ 04.Off Minor [06:18](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:53:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD02615AC3546B74C8E9B9C9751992A1437FE357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1048270   (546588) от 02.09.2016
 
 Sonny Rollins - Alfie (1965) 1997, MCA Records[FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -687,64 +745,6 @@ Jack DeJohnette - Zebra (1985) Pan Music[FLAC|Lossless|tracks + .cue] <Post-Bop,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0710CFBBB0923CE81FA48EA71DEA3554FA257EF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049583   (542381) от 06.09.2016
-
-Ivan 'Boogaloo Joe' Jones - Snake Rhythm Rock & Black Whip (1972, 1973) 1992, BGP[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hoochie Coo Chickie [05:28]
- 02.Snake Rhythm Rock [05:31]
- 03.The First Time Ever I Saw Your Face [05:49]
- 04.He's So Fine [06:33](   Читать дальше...   )Жанр: Jazz-Funk, Hard BopПродолжительность: 01:11:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2056C423140E39DEBA902B6BFFC8C4C732B8516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049503   (542376) от 06.09.2016
-
-Charlie Hunter - Everybody Has A Plan Until They Get Punched In The Mouth (2016) GroundUP Music[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Modern Jazz, Jazz Blues>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542376.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Everybody Has A Plan Until They Get Punched In The Mouth [05:02]
- 02.(Looks Like) Somebody Got Ahead Of Schedule On Their Medication [07:33]
- 03.Leave Him Lay [04:03]
- 04.We Don't Want Nobody Nobody Sent [05:32](   Читать дальше...   )Жанр: Jazz-Funk, Modern Jazz, Jazz BluesПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CBD0580504689EAD81B591950198ED03E410948
 ```
 
 https://mybot314.ru/tekegram_catalog/

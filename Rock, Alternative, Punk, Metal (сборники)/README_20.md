@@ -1,3 +1,61 @@
+###  Публикация: 1023584   (724253) от 05.06.2016
+
+VA - Alterportal HITS 16 Vol. 93 - May (2016) [MP3|128-292 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724253.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Secret Circus - No Cigar
+02. 3 Pill Morning - Electric Chair
+03. Phrenia - Moonshine
+04. The Hypothesis - Eye for an Eye(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:43:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1624AC1BB150FAB6480071A627B2FAF2400DBA5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1218433   (723223) от 09.04.2018
+
+VA - Metal Tuning Fork (2018) [MP3|320 Kbps] <Metal, Hard Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723223.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Duskmourn - Ancient Whispers
+002. Slow - Aurore
+003. Cripper - Pressure
+004. All Out War - Burn These Enemies(   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 08:01:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AE856014DE4119B70661B2114183C107F136140
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1218400   (721631) от 10.04.2018
 
 VA - Presage Of Emptiness (2018) [MP3|320 Kbps] <Heavy, Power, Death Metal>
@@ -687,64 +745,6 @@ Nazareth - The Best Of (Presents: Elgujakviso) (2017) [MP3|320 Kbps] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:38DAE6E9141586C6A1837DC4D0E3B7AE5F5C94AB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220582   (702206) от 20.04.2018
-
-VA - Расскажи Мне Ветер: Русский Рок-Трек (2018) [MP3|192-320 Kbps] <Рок, Альтернатива>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Не считайте, что это сборник из каких-то банальностей, которые тоже, однако, заслуживают своей оценки, но уже всем приелись. Нет, на этот раз у вас будет 130 разнообразных рок композиций, многие из которых вы, может даже, услышите впервые или вспомните, что не слушали их уже достаточно.001. Северный Флот - Презирать и ненавидеть
-002. Максим Леонидов - 7 утра
-003. Алиса - Rock 'n' Roll жесток
-004. Нуки - Продолжаем движение(   Читать дальше...   )Жанр: Рок, АльтернативаПродолжительность: 08:20:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80AA24CC9C3F7E69D410E10BCAF3CEADB640B00C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220758   (700300) от 21.04.2018
-
-VA - 100 Hits Rock Vol.3 (2018) [MP3|256-320 Kbps] <Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_700300.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Океан Ельзи - Без тебе
-02. Сергей «Чиж» Чиграков, Олег Асса - Не спится
-03. Daughtry - Backbone
-04. The Dickies - Magoomba II(   Читать дальше...   )Жанр: RockПродолжительность: 06:23:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06B7FAF2D168D27CB1C94AFA27FAFAAFB4BBAC73
 ```
 
 https://mybot314.ru/tekegram_catalog/

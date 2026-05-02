@@ -1,3 +1,206 @@
+###  Публикация: 925019   (543086) от 05.08.2015
+
+Ivonne Alexander - Benevolence (2015) [MP3|320 кб/с]<Electronic, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rebirthing Earth
+02. Summoning the Power of Woman
+03. Awakening the Goddess Within
+04. AH Prayer Description(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:40:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDB7FAA0D64E031E54E6FA027DE6507C56E81610
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 365365   (543031) от 20.07.2011
+
+Suren Asaduryan - Horovel (2005) [MP3|320 kbps]<Instrumental, Duduk>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Horovel
+02. Duanmerez
+03. Oror
+04. Rast(   Читать дальше...   )Жанр: Instrumental, DudukПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B142419C160A5DF67C47F3474B56FE08D1E65E4D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153969   (542654) от 29.07.2017
+
+Brian Tyler - Мумия / The Mummy (2017) Dеluхе Еditiоn [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542654.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Mummy (4:30)
+02. The Secret of the Mummy (4:42)
+03. Nick's Theme (2:04)
+04. Prodigium (2:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4C248E98BBA3A3FC46CE0A66196AB16F0A80ECD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154063   (542653) от 29.07.2017
+
+Артель Роса - Ляпота (2017) EP [MP3|320 Kbps] <Russian Urban Folk>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ляпота
+02. Тюря
+03. Чучело
+04. Ляпота (Instrumental)(   Читать дальше...   )Жанр: Russian Urban FolkПродолжительность: 00:20:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F15966906DFEE4A5322E7534A61DFEFE7834EB6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1154183   (542536) от 29.07.2017
+
+VA - Best of Cuba (2017) [MP3|320 Kbps] <Latin Music, Cuban>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542536.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tumbao Cubacao - El sonero del barrio soy magou
+02. Mario Mayito Rivera - Son pa' Shakira
+03. Combinacion Latina Salsa - Estoy pegado
+04. Mario Mayito Rivera - Harley Davidson de Cuba(   Читать дальше...   )Жанр: Latin Music, CubanПродолжительность: 01:16:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58090DD16AD40E8B768032A41ACE72EA0B0B830A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1153629   (542524) от 29.07.2017
+
+VA - Latino Brazilian Party (Top Hits) (2017) [MP3|320 Kbps] <Latin Music>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Latin Band - Ai Se Eu Te Pego
+02. Roland - Danza Kuduro
+03. Latin Band - Waka Waka
+04. Krizia - On The Floor(   Читать дальше...   )Жанр: Latin MusicПродолжительность: 03:42:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75CDF946AD99E98A14BDF8B0880CD711FCEA142F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1239123   (542424) от 03.08.2018
+
+Simon Daum - Awaited (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 – Call of the Mountains
+02 – Are You Really Gone?
+03 – Falling Leaves
+04 – Life Changers(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC9A866705FC0CE2AE584195EEB1932A23D2FBEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 530990   (542289) от 05.08.2012
 
 Habib Koite & Bamada - Afriki (2007) [FLAC|Lossless]<Blues>
@@ -572,225 +775,6 @@ The Royal Guitar Ensemble & Claude Ciari - Golden Guitar (2004) [FLAC|Lossless]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F6C06B916F3378C4F8E391D6DE3B89F7A34194B7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154344   (538695) от 31.07.2017
-
-VA - Romantic Collection - Instrumental Vol. 2 (2000) [FLAC|Lossless|tracks + .cue] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538695.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paris-France-Transit - Souvenir From Rio [04:20]
-02. Santana - I Love You Much Too Much [04:41]
-03. Armik - Dancing Shadows [04:44]
-04. Richard Clayderman - La Cumparsita [03:13](   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AC4BA796A26E42CAFB9F39C965B130B99F5CF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532378   (538560) от 07.08.2012
-
-Nazca - Indians, Songs, Nature, Dreams (2002) [MP3|192 кб/с]<Native American,Panflute,Instrumental,>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538560.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Buffalo Moon
-02. Brave Hearts
-03. Dream Catchers
-04. Geronimos Laughter
-05. Ly - O - Lay Ale Loya The Counterclockwide Circle Dance
-06. Come Faithful Ones
-07. Wishes Of Happiness & Prosperity
-08. Dawa The Cradlesong
-09. Montezuma
-10. May It Be(   Читать дальше...   )Жанр: Native American,New Age,Panflute,Instrumental,Продолжительность: 00:53:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AD5667E18CE2FF25A72BA47B829AFAB1ACCF8D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532252   (538244) от 07.08.2012
-
-Taikoza - Beginnings (Японские барабаны!) (2002) [MP3|~190 кб/с (V2)]<Folk,Барабаны,Шоу,Япония>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538244.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Beginnings
-2. Poeme Du bambou
-3. Hachijo
-4. Yamagoe
-5. Eisa
-6. Yuzuru
-7. Odaiko
-8. Yatai BayashiЖанр: Folk,Барабаны,Шоу,ЯпонияПродолжительность: 00:51:59
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050430   (538158) от 08.09.2016
-
-Anhidema - Le Retour Du Anunnaki (2016) [MP3|320 Kbps] <New Age, Space, Spiritual Chillout>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538158.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Legendaire
-03. Metamorphosis
-04. Babylonia(   Читать дальше...   )Жанр: New Age, Space, Spiritual ChilloutПродолжительность: 01:54:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99B099BE26930B2E0E7CC081FD13A98D1F770EAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311414   (538126) от 01.07.2019
-
-Erin Durant - Islands (2019) [FLAC|Lossless|WEB-DL|tracks] <Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rising Sun (05:51)
-02. Highway Blue (03:57)
-03. Sand Dunes (05:17)
-4. Good Ol Night (06:40)(   Читать дальше...   )Жанр: FolkПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C51DED18E1461E34A850F8016636464243169EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050414   (538085) от 08.09.2016
-
-The Henningsens - World's on Fire (2016) [FLAC|Lossless|tracks] <Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Sugar Rush (3:00)
-02 - Love You Til the End (3:01)
-03 - World's on Fire (4:22)
-04 - Texas Is a Woman (3:56)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:50:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A557008FFBBD100557CB1C93257BEF3C4BA22CB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532212   (538066) от 07.08.2012
-
-James Last - James Last and his Orchestra play music of Andrew Lloyd Webber (1993) [MP3|320 кб/с]<Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538066.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. With One Look (4:48)
- 2. Jesus Christ Superstar (4:49)
- 3. Memory (6:53)
- 4. I Don't Know How To Love Him (4:10)
- 5. Music Of The Night (4:28)
- 6. Any Dream Will Do (4:28)
- 7. Love Changes Everything (4:15)
- 8. Don't Cry For Me Argentina (6:47)
- 9. Tell Me On A Sunday (4:19)
- 10. Take That Look Of Your Face (3:59)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 01:02:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ECBE08DADAA00BA6153BDE2B124C3FA23D8AB2D7
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,62 @@
+###  Публикация: 1123091   (792498) от 07.04.2017
+
+Vainoras and the altar of the drill - Self titled (2017) [FLAC|Lossless|Web-DL|tracks] <DoomJazz, Ambient>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792498.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Worship the drill (5:05)
+02. Cremated in C minor (4:21)
+03. Grimm fandango (4:38)
+04. Numb de plume (5:14)(   Читать дальше...   )Жанр: DoomJazz, AmbientПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70C3EBEB8EF2627E119E451A14AD6CEFF75FA28A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123448   (792377) от 07.04.2017
+
+Scott Bradlee's Postmodern Jukebox - Fake Blues (2017) [FLAC|Lossless|Web-DL|tracks] <Jazz, Soul, Covers>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_792377.jpg" />
+</div>
+
+
+###  Подробнее
+
+Узнал о них в YouTube как и многие другие (а у них 2,5 млн. подписчиков!). Попав 28 февраля этого года на их концерт в А2 Green Concert получил просто незабываемое удовольствие.
+Под чутким творческим руководством Скотта «джукбоксы» создают настоящую магию перевоплощения хитов современности в шлягеры прошлого: Rihanna и Radiohead, The White Stripes и Lady Gaga, Daft (   Читать дальше...   )01. What Is Love  (4:30)
+02. Sledgehammer  (3:27)
+03. Feel Good Inc.  (4:22)
+04. All The Small Things  (3:24)(   Читать дальше...   )Жанр: Jazz, Soul, CoversПродолжительность: 00:56:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A99111CE6F72CB6A0E4FFC61C6083EADEE4AA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1274754   (792276) от 08.01.2019
 
 Art Pepper - Goin' Home (1984) Victor [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
@@ -687,64 +746,6 @@ Philip Catherine - Oscar (1990) Igloo [FLAC|Lossless|tracks + .cue] <Post-Bop, J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:202C7A3AFF44C5A9A51DD4D826F03D63DEC7686F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201791   (791059) от 27.01.2018
-
-Miles Davis & Stan Getz - Move (1950 - 1952) 2003, Dynamic Entertainment [FLAC|Lossless|tracks + .cue] <Bop, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791059.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Conception [04:09]
-02. Ray's Idea [05:56]
-03. That Old Black Magic [02:18]
-04. Max Is Making Wax [04:02](   Читать дальше...   )Жанр: Bop, CoolПродолжительность: 01:15:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E572B1A61BA1DDE3E28BD5B2A15D395943485F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1201990   (791056) от 27.01.2018
-
-Ben Webster - Three Classic Albums Plus (1954, 1957, 1958) 2CD, 2011, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_791056.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Tangerine [05:24]
-02. La Rosita [05:06]
-03. Cocktails For Two [02:44](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 02:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A563A1BB6AD7ECABE65EFEC9BA552AAD72CBEBBF
 ```
 
 https://mybot314.ru/tekegram_catalog/

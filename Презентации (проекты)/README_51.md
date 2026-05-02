@@ -1,3 +1,55 @@
+###  Публикация: 1184531   (298524) от 18.11.2017
+
+Проекты - VideoHive - Dub Fashion - A Dynamic Photo Slideshow - 6540441 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Dub Fashion - A Dynamic Photo Slideshow - стильный и динамичный проект. Это классный способ показать свои фотографии или видео, портфолио. Так же данный шаблон работает как последовательность заголовков.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AED37065E25489184460E85B9DAEB9ACFA5DC8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1262101   (298509) от 13.11.2018
+
+Проекты - VideoHive - Emoji Promotion - 21357614 [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298509.jpg" />
+</div>
+
+
+###  Подробнее
+
+Веселая и смешная анимация мультяшного персонажа emoji. С помощью этого шаблона вы сможете сделать веселую презентацию, портфолио, рекламу, промо, продвигать продукт и многое другое.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38C9766A517F5CDB59F9E19A15F6CDFFD444B63E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 961819   (298459) от 02.12.2015
 
 Проекты - Motion Array - Shattered [AEP]
@@ -619,59 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A6C2CDF2D28DD852F0539633A75F121D20668D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081386   (282317) от 10.12.2016
-
-Проекты - VideoHive - Action Promo - 10915667 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282317.jpg" />
-</div>
-
-
-###  Подробнее
-
-Action Promo - создайте экстремальный, эффектный видео-сюжет для ваших презентаций, интро с этим качественным проектом. В проект входят две версии, в красном и желтом цвете.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74B4675CC6B59F997C6BE057A4F9DE6301D0D989
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336060   (282060) от 05.11.2019
-
-VideoHive - Arabian Inspiration - 19442551 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282060.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для After Effects «Arabian Inspiration» включает в себя: Opener, Lower Third.
-Он очень хорошо подходит для презентаций, церемонии награждения, свадебных видеороликов.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90225635488081AD0C44BF621AF17E78270DFAB3
 ```
 
 https://mybot314.ru/tekegram_catalog/

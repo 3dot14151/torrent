@@ -1,3 +1,148 @@
+###  Публикация: 1552342   (587660) от 20.05.2022
+
+Giuseppe Ottaviani - Horizons (Part 1) (2022) [MP3|320 Kbps] <Progressive House, Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587660.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Giuseppe Ottaviani & Monika Santucci - With You (4:17)
+02. Giuseppe Ottaviani & Dan Soleil - Hero (4:21)
+03. Giuseppe Ottaviani & April Bender - Something I Can Dream About (4:10)
+04. Giuseppe Ottaviani & Mila Josef - Fade Away (4:21)(   Читать дальше...   )Жанр: Progressive House, Progressive TranceПродолжительность: 01:38:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C393182958EA0AC9E1F3202339C4298C8BEAE1C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041505   (581520) от 10.08.2016
+
+VA - Atmosfera Records -  Uplifting Trance Vol.1 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sound Freadom  -  Summer (Original Mix)  5:48
+02. James Fiby  -  Dark Lady (Original Mix)  5:59
+03. Fredix  -  Fool Me (Original Mix)  6:58
+04. IntroTrance  -  Shift (Original Mix)  6:30(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:04:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:914FE3BD6B9D4BA4262F2C16E17A7CF96A66CD3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150291   (578028) от 16.07.2017
+
+VA - Black Hole Trance Music 07-17 (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Max Graham & Neev Kennedy - Guiding Light (Club Mix)  7:03
+02.  Jonas Steur - Fall To Pieces (Andy Duguid Remix) (feat. Jennifer Rene)  5:15
+03.  Solarstone & Meredith Call - I Found You (Extended Mix)  6:36
+04.  Daniel Wanrooy - Alpha (Extended Mix)  6:08(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F4DE75FE90CFC394EDA12B30B03BC901C295CDF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233945   (576341) от 02.07.2018
+
+VA - 32 Summer Of Trance Multibundle (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raphael Mayers - Endless Emotion (Original Mix)
+02. Edward Rohm - The Light Will Come (Original Mix)
+03. Francesco Giacomo - Lost Emotions (Original Mix)
+04. Cyclamen - Thomas Kelle, Martin Juha (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:28:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:598576F29283CDA408CB8C131C6C52315890C92B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1234324   (572961) от 04.07.2018
+
+VA - Progressive Summer Session (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Sannny - Ghost Ship (Original Mix)
+02. 2D Project - Euphoria (Original Mix)
+03. DJ Grand Defence - Impulse (Original Mix)
+04. ADVANIKA - Insomnia (Original Mix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 03:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FC3B5B451CFC54944BB11E95CF6584595594B6D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234350   (572806) от 04.07.2018
 
 VA - Trance Music 2018: Best Of Trance Music Vol.2 (Mixed by Gerti Prenjasi) (2018) [MP3|320 Kbps] <Trance>
@@ -600,151 +745,6 @@ VA - Trance Aliens (2016) [MP3|320 Kbps] <Trance, Progressive>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF7D77F9A7E278F9D861EFF07F54873CE7A0085A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238658   (545506) от 31.07.2018
-
-VA - The Best Of Critical State 003 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545506.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Active Limbic System - Intrigue (Original Mix)
-02. Asteria - Whaaat (Asteria Radio Edit)
-03. Brian Flinn - Windmill (Original Mix)
-04. Brian Flinn - Lick The Knife (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:22:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F22EC605585AD7A6C2048089B497603AC63C397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238668   (545503) от 31.07.2018
-
-VA - Nothing But... The Future of Trance Vol.08 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. VictorV - Space Builder (Original Mix)
-02. Katrin's World - Katrin's World (Original Mix)
-03. Gelvetta - Hello China (Original Mix)
-04. Andrey Gaydukov - Lost Sun (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:38:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C14675E9C238BEED86D6BC77C325197DD1AE6E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1238662   (545502) от 31.07.2018
-
-VA - Summer Dream (Mixed by LTN) (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_545502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer & DJ Xquizit & Osito - Empire Of Our Own (LTN Extended Sunrise Remix)
-02. Roman Messer & Armos & Angel Falls - Higher (LTN Extended Sunrise Remix)
-03. Vadim Spark & Cari - Beat Of My Heart (LTN Sunrise Extended Remix)
-04. Kayat & Clare Stagg - The Calling (Denis Kenzo Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:22:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F66903C7399250708239372750441F0B049D2B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049297   (544973) от 04.09.2016
-
-VA - Whos Afraid Of 138 Top 15 (2016-09) (2016) [MP3|320 Kbps] <Trance, Progressive>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544973.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gareth Emery Ft. Christina Novelli  -  Save Me (John Ocallaghan Remix)  3:25
-02. Heatbeat  -  Imperio  3:37
-03. Standerwick & Chris Schweizer  -  Predator  4:00
-04. Andrew Rayel & Digital X Ft. Sylvia Tosun  -  Winterburn (Craig Connelly Remix)  3:34(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 00:56:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCF144E0CF4696B388E8F5BC17116DC557F816E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1049209   (544916) от 04.09.2016
-
-VA - Armada Captivating - Smooth Sensation (2016) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane - Fibreglasses (3:12)
-02. Breathe Carolina - Giants (3:24)
-03. Codeko - Halo (3:36)
-04. David Gravell - The Riddle (3:31)(   Читать дальше...   )Производство: Armada CaptivatingЖанр: TranceПродолжительность: 01:06:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E080E60B24A34D9FD9EC1BE34E85EF479111F90
 ```
 
 https://mybot314.ru/tekegram_catalog/

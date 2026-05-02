@@ -1,3 +1,117 @@
+###  Публикация: 1126385   (766375) от 17.04.2017
+
+Lillian Boutte & Christian Willisohn - Lipstick Traces: A New Orlean RnB Session (1991) [FLAC|Lossless|tracks + .cue] <Piano Blues, New Orlean Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766375.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lipstick Traces (3:07)
+02. Why Don't You Do Right? (4:24)
+03. One for the Highway (3:24)
+04. Music is My Life (4:56)(   Читать дальше...   )Жанр: Piano Blues, New Orlean BluesПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB8A6D1AECE529039892320AC4A1B0F8CE29BE50
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126372   (766328) от 17.04.2017
+
+Goapele - 2 Album (2002, 2011) [FLAC|Lossless|tracks + .cue] <R'n'B, Neo Soul>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766328.jpg" />
+</div>
+
+
+###  Подробнее
+
+2002 - Even Closer
+2011 - Break of DawnЖанр: R'n'B, Neo SoulПродолжительность: 01:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84C768BB5793A9DBED94A463B50F55D8B54EDDEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126062   (766327) от 17.04.2017
+
+Freddie King - The Complete King Federal Singles (2012) 2 CD, Compilation [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got To Love Her With A Feeling (1960)  (03:16) 
+02. Have You Ever Loved A Woman (1960)  (03:08) 
+03. Hide Away (1961)  (02:39) 
+04. I Love The Woman (1961)  (02:50) (   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 02:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB4566574C7A5CF34A37B79F9BF1F718ABE51554
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126213   (766321) от 17.04.2017
+
+Songhoy Blues - Music In Exile (2015) [FLAC|Lossless|tracks + .cue] <Desert Blues, Ethnic Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_766321.jpg" />
+</div>
+
+
+###  Подробнее
+
+Songhoy Blues - квартет из Мали, который сегодня базируется в Лондоне. История группы складывалась драматично. Весной 2012 года радикальные исламисты и повстанцы-туареги захватили север Мали с целью создать собственное независимое государство. Они ввели новые законы, которые запрещали местным жителям курить сигареты, пить алкоголь и играть музыку. Публичным избиениям (   Читать дальше...   )01. Soubour (3:32)
+02. Irganda (3:21)
+03. Al Hassidi Terei (3:44)
+04. Sekou Oumarou (3:34)(   Читать дальше...   )Жанр: Desert Blues, Ethnic BluesПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FA838C7644FF3BC2A0A5ED9DE227D23A8D4410E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1126262   (766278) от 17.04.2017
 
 VA - Hard Rockin' Blues (1997) [FLAC|Lossless|tracks + .cue] <Blues, Rock>
@@ -629,119 +743,6 @@ First Underground Roots - First Undergroung Roots (2021) [FLAC|Lossless|WEB-DL|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB4D6DB63E1ADECA94CCB68F044E1C9D34B865AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 662207   (758269) от 29.05.2013
-
-VA - The Perfect Guitar Collection. 25 Original Albums (2012) [FLAC|Lossless]<Jazz, Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_758269.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Jazz, Blues, RockПродолжительность: 00:44:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018166   (757643) от 19.05.2016
-
-Rob Tognoni Band - Stones And Colours (1995) [FLAC|Lossless|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757643.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Occupation    04:23
-02. The Good Die Young    04:00
-03. This Is Love    03:45
-04. When I'm Alone    03:51(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD7ACA882B723701139F2AF2D59D94C2E57FA5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522794   (756637) от 08.01.2022
-
-Brett Littlefair - Footstompin' (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756637.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dirty Little Town (2:49)
-02. Girl Can Groove (3:28)
-03. Stop Your Talkin' (2:46)
-04. Makin' My Name (3:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:40:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87CC00E0AFBBD6326E54CD79249A5EBFB5B8CE6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522797   (756636) от 08.01.2022
-
-The Dave Paul Band - Loving the Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Shiver (3:58)
-02. Further on up the Road (2:36)
-03. Hey Joe (5:38)
-04. Rolling Stone (5:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43B0D368F54E6DA0BA46A58FE677576C4AE40DC7
 ```
 
 https://mybot314.ru/tekegram_catalog/

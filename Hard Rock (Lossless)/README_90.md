@@ -1,3 +1,119 @@
+###  Публикация: 970514   (138319) от 31.12.2015
+
+Kingdom Come - The Best Of Kingdom Come (2003) 20th Century Masters The Millennium Collection, Compilation [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_138319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Living Out Of Touch (04:21)
+02. What Love Can Be (05:19)
+03. Get It On (04:24)
+04. Pushin Hard (04:49)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E277D886194C4A93CA7FF63EC433328E36C59F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210636   (137385) от 31.12.2021
+
+Alex Harvey / The Sensational Alex Harvey Band - 10 albums, 22 CD (1972-2018) [FLAC|Lossless|image + .cue | tracks+.cue] <Hard Rock, Progressive Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137385.jpg" />
+</div>
+
+
+###  Подробнее
+
+SAHB - это общепринятое аббревиатурное сокращение названия группы. Алекс Харви (Alex Harvey) – «старейший панк Британии», как его однажды отрекомендовал еженедельник NME, ветеран театра рок-н-ролльной сатиры, бывший укротитель львов... одна из наиболее оригинальных и не поддающихся классификации фигур на британской музыкальной сцене. Музыка его воистину гипнотическая, (   Читать дальше...   )--------------------------
+
+ALEX HARVEY AND HIS SOUL BAND
+01. Shout (4:45)(   Читать дальше...   )Жанр: Hard Rock, Progressive Rock, Glam Rock |Продолжительность: 18:09:02 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4F4D5F610AC369E3F1C6C9562109220F37D997
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1159766   (137356) от 31.12.2019
+
+Doogie White - Collection: 21 albums, 28 CD (2000-2019) [FLAC|Lossless|image + .cue] <Hard Rock, Hard'n'Heavy>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_137356.jpg" />
+</div>
+
+
+###  Подробнее
+
+Дуглас (Дуги) Уайт (род. 7 марта 1960, Мотеруэлл, Шотландия) — шотландский певец, выступавший в группах Sack Trick, Midnight Blue, Praying Mantis, Rainbow, группе Ингви Мальмстина Rising Force, Cornerstone, M3, Tank. Doogie White (Vocals). Дуги один из немногих современных вокалистов, пение которого не вызывает раздражения. Хард который он исполняет можно назвать (   Читать дальше...   )--------------------------
+
+01. Not That Kind Of Man (4:33)
+02. Under Your Skin (3:55)(   Читать дальше...   )Жанр: Hard Rock, Hard'n'Heavy |Продолжительность: 24:56:43 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:357AE10BA945C91B2FB842B80BB0D527A120822E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009399   (136992) от 25.11.2023
+
+Aerosmith - 33 Albums, 4 Box Set (1973 - 2023) 85 CD [FLAC|Lossless|image + .cue, tracks + .cue] <Hard Rock>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136992.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aerosmith - одна из наиболее популярных хард-рок-групп в США, несмотря на свое сорока пяти летнее существование, похоже так же не имеет возраста, как и ее полный жизни и энергии солист Стив Тайлер. Возможно, поэтому среди ее преданных поклонников немалую часть составляют зрители, которые подчас моложе тех песен, что поют участники группы. История "Aerosmith" (   Читать дальше...   )Список альбомов:
+1973 - Aerosmith
+1974 - Get Your Wings
+1975 - Toys In The AtticЖанр: Hard RockПродолжительность: 62:57:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C3304FFF5FF626F0C0345D762BBBD1033EEA170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1679714   (135351) от 26.11.2023
 
 Wet Cactus - Magma Tres (2023) [FLAC|Lossless|WEB-DL|tracks] <Desert Rock, Heavy Rock, Stoner>
@@ -641,122 +757,6 @@ Wonderworld - Live Fire (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32BE924958552395AAA482F11DBE0B23FBAF504C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683054   (129761) от 09.12.2023
-
-Bad Touch - Bittersweet Satisfaction (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Classic-Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slip Away [00:03:27]
-02. This Life [00:02:21]
-03. Spend My Days [00:03:31]
-04. Bittersweet Satisfaction [00:03:28](   Читать дальше...   )Жанр: Hard-Rock, Classic-Rock, Blues-RockПродолжительность: 00:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDC96DA18C94372EFEF0F11E889675AC41F3FC83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683065   (129749) от 09.12.2023
-
-Bad Touch - Bittersweet Satisfaction (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard-Rock, Classic-Rock, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129749.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slip Away [00:03:27]
-02. This Life [00:02:21]
-03. Spend My Days [00:03:31]
-04. Bittersweet Satisfaction [00:03:28](   Читать дальше...   )Жанр: Hard-Rock, Classic-Rock, Blues-RockПродолжительность: 00:33:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BA0F5ED1761B074E91E05D40DF6D8A0607F77A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1525469   (129692) от 20.01.2022
-
-Boston - Boston (1976) (Reissue 2007) Remastered Japan Edition [FLAC|Lossless|image + .cue] <Melodic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129692.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. More Than a Feeling (04:45)
-02. Peace of Mind (05:03)
-03. Foreplay/Long Time (07:47)
-04. Rock and Roll Band (03:00)(   Читать дальше...   )Жанр: Melodic Rock, Hard RockПродолжительность: 00:37:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:798C734E4DEC0787348682D4B41ED910673409A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1054992   (129670) от 10.12.2023
-
-Led Zeppelin - 20 Albums, 3 Box Set (1969 - 2018) 89 CD [FLAC|Lossless|image + .cue|tracks+.cue] <Hard Rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129670.jpg" />
-</div>
-
-
-###  Подробнее
-
-Led Zeppelin - британская рок-группа, образовавшаяся в сентябре 1968 года в Лондоне, Англия, и признанная одной из самых успешных, новаторских и влиятельных в современной истории. Создав собственное звучание (для которого были характерны утяжелённый гитарный драйв, оглушающее звучание ритм-секции и пронзительный вокал), Led Zeppelin стали одной из ведущих групп хард-рока, (   Читать дальше...   )Список альбомов:
-1969 - Led Zeppelin
-1969 - Led Zeppelin II
-1970 - Led Zeppelin III(   Читать дальше...   )Жанр: Hard RockПродолжительность: 75:33:87
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25088EE3886318309E9AE30DC664C164F9B911A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

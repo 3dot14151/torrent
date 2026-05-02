@@ -1,3 +1,32 @@
+###  Публикация: 1288396   (695928) от 11.03.2019
+
+Branikald - Тингов Наслаждаясь Распрей (2013) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695928.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Landvidi 3:59
+2. Прибоем Вдохновенья Волн 5:55
+3. Доблести Духу 4:39
+4. Сквозь Золотистые Пряди Sif 6:10(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:45:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56B0BBD858DF09423EE2362FCF3A28A51C5820D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1403347   (692340) от 19.08.2020
 
 Полюса - Невесомые (2016) [FLAC|Lossless|tracks + .cue] <Rock, Jazz-Rock>
@@ -734,41 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E83705E7CECCC0332E4037C3C7C35C5DD1D4615B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 338274   (667280) от 20.05.2011
-
-Ноль - Песня о безответной любви к Родине (1991) [WavPack|Lossless]<Folk-Punk-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_667280.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Этот русский Rock-n-roll
-2. Ехали по улице трамваи
-3. Улица Ленина
-4. Цикорий
-5. Иду, курю
-6. Песня о настоящем индейце
-7. Ты - тормоз
-8. Песня о безответной любви к Родине (Вкус России)
-9. Человек и кошка
-10. Я.Л.Ю.Б.Л.Ю.Т.Е.Б.Я.(   Читать дальше...   )Жанр: Фолк-панк-рокПродолжительность: 00:49:10
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1092085   (940286) от 11.01.2017
+
+VA - Magic Wind: Psychedelic Trance Mix (2017) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940286.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Norma Project - Day For Dance
+002. Galactrixx - Supernova
+003. Electit - Sweet Bitches
+004. Bionic Delay - Tetrahedron Grid(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 13:12:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B047E25E416B38A585B9A89EB2AE78F254A21670
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984218   (940285) от 08.02.2016
+
+VA - SuperBomb Club Music Pack 52 (2016) [MP3|320 кб/с] <Club, Electro House, Progressive House, Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940285.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Allen & Envy - Virtuous (Original Mix) (8:47)
+02. Andy Moor - Resurrection (Mike Saint-Jules Interstellar Mix) (6:27)
+03. APA - Johnny (Original Mix) (4:00)
+04. Audio Bastardz - Unicorn (Original Mix) (5:37)(   Читать дальше...   )Жанр: Club, Electro House, Progressive House, TranceПродолжительность: 03:09:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8243D0367B4CBCF514C538193E175B2E5DD14006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092070   (940269) от 11.01.2017
 
 VA - Best Of Electronic And Progressive Sound (2017) [MP3|320 Kbps] <Big Room, Drum & Bass, Future House>
@@ -690,64 +748,6 @@ VA - Sunrise Lovers Vol 1: 20 Relaxing Lounge Tunes (2016) [MP3|320 kbps] <Downt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:90AA6CAB88D54FE93B1ECCB5C94F939948B2E7A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985378   (934084) от 12.02.2016
-
-VA - Deep Flover Dance (2016) [MP3|320 кб/с] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934084.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Sanil Fenice - Before Dawn - Vocal Mix 06:13
-002. Matthias Freudmann - Metropolis 06:23
-003. Scot & Millfield - It's a Fine Day - Summer Fifteen Remix 05:31
-004. Matthias Freudmann - City Life 07:06(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 09:41:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508D07C2239D489D29D5C70BC9622CD08C72EF65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1093528   (934013) от 15.01.2017
-
-VA - Empire Records: Trance 2 (2017) [MP3|320 Kbps] <House, Electro House, Progressive House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_934013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Bakun - Out Of Control (Phetros Remix)  6:01
-02.  Pirate Jams - Sweets From Heaven (Jolyon Petch's Late Night Mix)  5:06
-03.  Dainpeace - It's Not Too Late (Radio Edit)  2:42
-04.  Sam Feldt - What About The Love (Extended Mix)  4:14(   Читать дальше...   )Жанр: House, Electro House, Progressive House, Club, DanceПродолжительность: 01:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A8E7C752FEE6E9EDE07DA1E0979E1CD30EBB482
 ```
 
 https://mybot314.ru/tekegram_catalog/

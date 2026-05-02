@@ -1,3 +1,61 @@
+###  Публикация: 1550977   (591238) от 13.05.2022
+
+Simone Graziano Frontal - Sexuality (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kinkali - 5:04
+02. Afror - 8:42
+03. Unsleepers - 5:06
+04. Buran  - 8:55(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6AEAAFB6530623EF609969B00FB0D32E416F11D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1550910   (591237) от 13.05.2022
+
+Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591237.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Meddler [8:31]
+02. Ode to Ray [6:10]
+03. Whims of the Bluebird [10:09]
+04. Falling in Love [7:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:836C40AE7A3A0D272E79313F7F4DF1323C87AD16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1551089   (590784) от 14.05.2022
 
 Albert Ammons & Meade Lux Lewis - The Complete Blue Note Recordings (1935 - 1944) 2CD, 1989, Mosaic Records [FLAC|Lossless|tracks + .cue] <Boogie-Woogie, Piano Jazz>
@@ -690,64 +748,6 @@ Chris Standring - Soul Express (2006) [FLAC|Lossless|image + .cue] <Crossover Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8F1F66788E84C726C889585CF51DE4179FBD7070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918342   (587030) от 15.07.2015
-
-Andrew Hill - Andrew!!! (1964) /2015, Universal/[FLAC|tracks+.cue]<Jazz, Post-Bop, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Griots [06:05]
-02. Black Monday [08:56]
-03. Duplicity [06:12]
-04. Le Serpent Qui Danse [06:56](   Читать дальше...   )Жанр: Jazz, Post-Bop, Modern CreativeПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9F9FC470F41667CC5661038299154EF90327C56
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 918590   (587029) от 15.07.2015
-
-Charles Earland - Leaving This Planet (1973) /2014, Universal/[FLAC|tracks+.cue]<Jazz, Jazz-Funk, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_587029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Leaving This Planet [07:32]
-02. Red Clay [07:10]
-03. Warp Factor 8 [06:20]
-04. Brown Eyes [11:46](   Читать дальше...   )Жанр: Jazz, Jazz-Funk, Soul JazzПродолжительность: 01:19:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4482272BFD467FA34CE04174575F075DF02C6B80
 ```
 
 https://mybot314.ru/tekegram_catalog/

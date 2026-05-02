@@ -1,3 +1,61 @@
+###  Публикация: 927992   (522514) от 16.08.2015
+
+Celldweller - End Of An Empire (Chapter 04: Death) (2015) [FLAC|Lossless]<Industrial, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522514.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Faction 10  00:44
+02 - New Elysium  06:53
+03 - Precious One  06:49
+06 - New Elysium (Zardonic Remix)  05:06(   Читать дальше...   )Жанр: Industrial Metal, ElectronicПродолжительность: 01:20:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA847F05C963A10703A75894B0408481CA27CEFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1313890   (522354) от 11.07.2019
+
+The Kills - Black Rooster E.P (2002) EP [FLAC|Lossless|tracks + .cue] <Indie Rock, Lo-Fi>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_522354.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cat Claw (3:33)
+ 02. Black Rooster (Fuck and Fight) (4:24)
+ 03. Wait (4:48)
+ 04. Dropout Boogie (Live at Paint it Black) (4:28)(   Читать дальше...   )Жанр: Indie Rock, Lo-FiПродолжительность: 00:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:84A22E24FF9E5D46BDF858FF5401A189F2D066B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1313923   (522328) от 11.07.2019
 
 The Kills - Blood Pressures (2011) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Garage Rock, Lo-Fi>
@@ -687,64 +745,6 @@ Bad/Love - Life Imitates Art (2022) Deluxe Edition [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5295522040E5365921D408996913A00CC8A3EF4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562226   (511557) от 08.07.2022
-
-Greylotus - Dawnfall (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Deathcore, Technical Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511557.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Rectilinear Motion
-2. Shadow Archetype
-3. Currents
-4. Chiaroscuro(   Читать дальше...   )Жанр: Progressive Deathcore, Technical Death MetalПродолжительность: 00:44:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABAAAC0B6AD3D9E77BAB48472A42935042ADC75A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1562223   (511549) от 08.07.2022
-
-The Machinist - All is Not Well (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_511549.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. PIG
-2. Mother Earth
-3. All is Not Well
-4. Hourglass(   Читать дальше...   )Жанр: Metalcore, HardcoreПродолжительность: 00:33:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E75C47F67CBF2DECB2666313D15A074990811B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

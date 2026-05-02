@@ -1,25 +1,22 @@
-###  Публикация: 1550023   (236408) от 09.05.2022
+###  Публикация: 1630100   (237962) от 28.04.2023
 
-Серг Усов | Превозмоганец-прогрессор (Книга 1) (2022) [MP3, Евгений Лебедев]
+IObit Smart Defrag Pro 8.4.0.262 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236408.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237962.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Наш современник попадает в магический средневековый мир, не получив ни знаний местных языков, ни магии, ни дополнительных способностей.
-
-Но с ним то, чему он научился в нашем мире.
-(   Читать дальше...   )Жанр: Боевое фэнтези, Героическое фэнтези, ПопаданцыПродолжительность: 09:05:49
+Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6D95A92EE696F83948B99F8F3C060E0BB4BEB4B3
+magnet:?xt=urn:btih:E13ABB18EA1633ADC79A2BC6A8F44AFD9B0827F3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640366   (236407) от 17.06.2023
+###  Публикация: 1446373   (237961) от 08.02.2021
 
-Distance of Thought - Edge of Forever (2023) [MP3|320 Kbps] <Progressive Power Metal>
+Xliff Editor 2.9.2 [Multi]
 
->>Rock, Alternative, Punk, Metal
->>Metal
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236407.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237961.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Blood Moon Rising
-02. Beside Myself
-03. Rise!
-04. Edge of Forever(   Читать дальше...   )Жанр: Progressive Power MetalПродолжительность: 00:51:46
+Xliff Editor- предоставляет простой способ редактирования ваших XLIFF-файлов. Больше не нужно разбираться с XML-форматом или беспокоиться о повреждении файла. Xliff Editor включает поддержку поиска, удобные сочетания клавиш и даже базовую поддержку чтения файлов SDLXliff!
+Файлы XLIFF основаны на стандартном формате XML и используются специально для обмена данными (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 08.02.2021Разработчик: SweetP Productions, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский? Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DA7507DF7572061DA10D9B2DE3EA6EE124523EE4
+magnet:?xt=urn:btih:3BE2F89B31A4F549AAEC47D4FF2C7CA41F9CB7EC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +51,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609474   (236406) от 03.02.2023
+###  Публикация: 1625142   (237960) от 09.04.2023
 
-The Swarm - Flawed Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Progressive, Melodic Death Metal>
+Soilent Green - Pussysoul (1994) [FLAC|Lossless|image + .cue] <Sludge, Death Metal, Grindcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236406.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237960.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Minds Eye
-02. Blood for Blood
-03. Always the Same...
-04. Faceless Faces(   Читать дальше...   )Жанр: Progressive, Melodic Death MetalПродолжительность: 00:48:43
+01. Thirteen Days A Week
+02. Slapfuck
+03. Falling Form A 65 Story Building
+04. Lips As So Of Blood(   Читать дальше...   )Жанр: Sludge, Death Metal, GrindcoreПродолжительность: 00:47:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03E944589C6ABC4F6A651E729C8867AC0242E322
+magnet:?xt=urn:btih:1CD81C5C295F3F5D625350DBD29D91AFF2AAFE05
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,164 +80,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568988   (236405) от 08.09.2022
+###  Публикация: 1581703   (237959) от 07.10.2022
 
-Человек божий / Man of God (2021) WEBRip [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об испытаниях и невзгодах, выпавших на долю Нектария Эгинского, одного из наиболее почитаемых православных святых. Это божий человек, который до конца оставался верным своим принципам, вдохновляя людей вокруг.Производство: Греция / Cinnamon Production, DNA LAB, Eurogroup, MP Film Production, Simeon Entertainment, Two Thirty Five, View Master FilmsЖанр: драма, биографияРежиссер: Елена ПоповичАктеры: Арис Серветалис,  Александр Петров,  Тония Сотиропулу,  Микки Рурк,  Яннис Станкоглу, Манос Гаврас,  Михалис Иконому,  Константин Симсирис,  Кристос Лулис,  Бабис Хоук КонстантинуПеревод: Дублированный (SoulPro)Язык озвучки: Русский, АнглийскийСубтитры: английские (forced, full, SDH)Продолжительность: 01:48:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58759077B91FE5CE2CEC09D3161BF6BD19B0F4D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457263   (236404) от 25.03.2021
-
-Qbserve 1.88 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Отслеживание рабочего времени с комфортом.
-Qbserve в автоматическом режиме отслеживает время потраченное на работу и помогает повысить производительность. Qbserve обнаруживает деятельность автоматически с постоянно расширяющейся базой данных (более 5500 сайтов , приложений и игр ) .
-Qbserve дает мгновенные ответы на вопросы о том, как вы проводите свое время за счет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: QotoQotПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:46C4E2E304424EAA0C93D10425C8BE54DE47C54E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505935   (236403) от 29.10.2021
-
-GlueMotion 2.0.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236403.jpg" />
-</div>
-
-
-###  Подробнее
-
-GlueMotion - идеальный инструмент для фотографов. Приложение позволяет редактировать пакетные Deflicker и собирать последовательности изображений в покадровые фильмы.
-GlueMotion был создан, чтобы сэкономить время и помочь вам в процессе работы. Благодаря использованию инструмента пакетного редактирования, нет необходимости использовать дополнительные приложения. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: NeededAppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D095493CF9BE2F00CDB672D3DE82B7707AB80DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629982   (236402) от 28.04.2023
-
-Алена Савченкова | Хамелеонша (Книга 1) (2022) [MP3, Наталья Мартынова]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236402.jpg" />
-</div>
-
-
-###  Подробнее
-
-В одном далеком-предалеком королевстве жила прекрасная девушка, которую злой брат продал на одну ночь ужасному королю. Вам уже ее жаль? Зря. Таких чудовищ, как я, еще поискать. И вообще-то мой брат самый лучший, король не так ужасен, а красивой называл лишь один мужчина – тот, кем одержима с самого детства. Но это моя история, поэтому рассказываться будет в том порядке (   Читать дальше...   )Жанр: Историческое фэнтезиПродолжительность: 19:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:722EEB224CE7F5C1CAAC1AF451899C12DCDDB4E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1641474   (236401) от 22.06.2023
-
-Jack Biilmann - Divided Mind (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hot Blood (3:45)
-02. Drink The Water (4:07)
-03. Trouble's Coming (3:33)
-04. Skipping Stone (3:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACD2E9231183B7343CFC957B2757A2C7E01E583
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640345   (236400) от 17.06.2023
-
-Disillusive Play - Songs for the Non-Existent (2023) [MP3|320 Kbps] <Symphonic, Progressive Metal, Female Vocal>
+Dying Alone - One Man Tragedy (2022) [FLAC|Lossless|WEB-DL|tracks] <Melodic Death Metal>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236400.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237959.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Enough
-02 - Why
-03 - Sisyphus
-04 - Life's scars(   Читать дальше...   )Жанр: Symphonic, Progressive Metal, Female VocalПродолжительность: 00:52:03
+01 - Reborn (05:52)
+02 - To The Gallows (04:58)
+03 - Disharmony (04:12)
+04 - Bend The Knee (05:07)(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 01:09:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E22D195868B22309AB119D02315036A9A5C46FB9
+magnet:?xt=urn:btih:B915FF6E01B53BF12EA480BD39644BF63B111F1D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -250,26 +109,131 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609341   (236399) от 03.02.2023
+###  Публикация: 1573703   (237958) от 01.09.2022
 
-Athentech Perfectly Clear Video for Mac 4.3.0 [En]
+Песочный человек / The Sandman (2022) WEB-DL [H.265/1080p] [HDR10, 10-bit] (сезон 1, серии 1-11 из 11) LostFilm, HDrezka Studio
+
+>>Зарубежные сериалы
+>>Сериалы DC Comics
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237958.jpg" />
+</div>
+
+
+###  Подробнее
+
+В результате тайного ритуала повелитель снов Морфей оказывается в плену у оккультиста. Спустя 70 лет ему удается бежать. В его отсутствие мир сильно изменился. Теперь Морфею предстоит вернуть былую силу, возродить свое царство и понять, как изменился он сам.Производство: Великобритания, США / DC Entertainment, The Blank Corporation, Warner Bros. TelevisionЖанр: ужасы, фэнтези, боевик, драмаРежиссер: Джейми Чайлдс, Андрес Байс, Луиз ХуперАктеры: Том Стёрридж, Бойд Холбрук, Пэттон Освальт, Вивьенн Ачеампонг, Kyo Ra, Мэйсон Александр Парк, Разан Джаммаль, Сандра Джеймс-Янг, Дэвид Тьюлис, Eddie KaranjaПеревод: Многоголосый профессиональный (LostFilm, HDrezka Studio)Язык озвучки: русский, английскийСубтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: ~00:54:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:037CFD4DE91D9E98888066709F6F10F859397093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629321   (237957) от 26.04.2023
+
+Aiseesoft Screen Recorder 2.7.18 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237957.jpg" />
+</div>
+
+
+###  Подробнее
+
+Получите самый простой, но профессиональный способ записывать экран и делать с него снимки. Aiseesoft Screen Recorder - лучшее программное обеспечение для записи экрана, позволяющее фиксировать любую активность на компьютере Mac или Windows. Он может работать как хороший рекордер видеоигр, захватывать видеозвонки и многое другое для захвата любой области экрана. (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAD7D69B4A800790873B459B118556C323A0F29F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492570   (237956) от 02.05.2022
+
+Черепашки навсегда / Turtles Forever (2009) WEBRip [H.264/720p-LQ] [Director's Cut]
+
+>>Мультфильмы
+>>Зарубежные Мультфильмы 21-го века (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Черепашки сериала встречаются со своими двойниками из мультсериала 1980-х годов, чтобы вместе одержать победу над двумя Шреддерами.Производство: США / 4 Kids Entertainment, Dong Woo Animation Co., Image Comics, Mirage Studios, Viacom InternationalЖанр: Рисованная анимация, Детский, Приключения, КомедияРежиссер: Рой БурдинАктеры: Майкл Синтерниклаас, Вейн Грэйсон, Сэм Ригел, Фрэнк Фрэнксон, Даррен Данстэн, Марк Томпсон, Вероника Тейлор, Скотти Рэй, Грег Кэри, Карен НилПеревод: Дублированный любительский, многоголосый любительскийСубтитры: Русские, английскиеПродолжительность: 01:20:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D81A52F74E49E52B2CF3F67D9BB4956E7FE0ECAD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630030   (237955) от 28.04.2023
+
+MSI Kombustor 4.1.24.0 [En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237955.jpg" />
+</div>
+
+
+###  Подробнее
+
+MSI Kombustor - бесплатный инструмент для тестирования производительности видеокарт MSI и не только. MSI Kombustor разработан командой Geeks3D совместно с компанией MSI и основан на приложении FurMark. В него входит несколько десятков тестов для проверки производительности графического процессора при максимальных нагрузках.
+
+MSI Kombustor поддерживает тестирование (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B60CE21677EDBA18040EF14E0690B6293C69543F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446261   (237954) от 08.02.2021
+
+AudioSwitcher 3.03 [En]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236399.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237954.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Откройте для себя возможности использования улучшенного Perfectly Clear’s AI Automatic Video Enhancement в своем бизнесе. Эта технология автоматического улучшения видео на основе искусственного интеллекта произвела революцию в отрасли, используйте ИИ для повышения качества вашего видео кадр за кадром.
-Если вы собираетесь улучшать видео с помощью Perfectly Clear’s (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.02.2023Разработчик: © 2022 EyeQ Imaging Inc.Поддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+AudioSwitcher - небольшая утилита, которая находится в строке меню и позволяет выбрать вход или выход источника аудио, с возможностью регулировки уровня громкости по выходу и уровня чуствительности по входу.Тип издания: macOS SoftwareРелиз состоялся: 07.02.2021Разработчик: Paul O'NeillПоддерживаемая ОС: macOS 11 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9959D9A812704DD6EED3AA19B4BA47EC39B685AF
+magnet:?xt=urn:btih:45703881B3F26B80EC6B313D6E3009C366CAC521
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -277,26 +241,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575207   (236398) от 08.09.2022
+###  Публикация: 1625127   (237953) от 09.04.2023
 
-Мариуполь. Русский город. Война за Донбасс (2022) WEB-DL [H.264/1080p]
+Spasm - Mystery Of Obsession (2021) [APE|Lossless|image + .cue] <Goregrind>
 
->>Документалистика и Телепередачи
->>Политика и пропаганда, публицистика и экономика
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236398.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237953.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Встречайте самый масштабный документальный фильм о битве за Мариуполь – город, который был взят в заложники вместе с собственными жителями.
-Это кино о людях, жестоких и милосердных; о жизнях, отнятых и спасённых; но, главное, о том, что те, кто был разлучён, рано или поздно обязательно будут вместе, несмотря ни на что.Телекомпания: Россия / АНО ТВ-НовостиЖанр: документальный, война, пропаганда, историяСубтитры: ОтсутствуютПродолжительность: 02:16:18
+01. Intro
+02. The Calm before Orgasm Storm
+03. Full of Pus
+04. Porn Boogie(   Читать дальше...   )Жанр: GoregrindПродолжительность: 00:26:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BF6CBA99B0E5B4595A73F43AF3198CD2C411EDFD
+magnet:?xt=urn:btih:4D106451878B8678526D14E2E0D1AC61E69833E1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -304,25 +270,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457126   (236397) от 25.03.2021
+###  Публикация: 1581825   (237952) от 07.10.2022
 
-BBEdit 13 v13.5.5 [En]
+Twiztid - Songs of Samhain, Vol. III: Cult of Night (2022) [FLAC|Lossless|WEB-DL|tracks] <Horrorcore Rap>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237952.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Moon Glow is Upon Us (0:50)
+02. Gospel (3:15)
+03. 10-31 (feat. Oh! the Horror) (3:26)
+04. Terrified No Fear (feat. Alla Xul Elu & Venomous 5) (4:10)(   Читать дальше...   )Жанр: Horrorcore RapПродолжительность: 00:44:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4AEBCB1924152DBE7EF313870ABF10A0C0EFDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1638387   (237951) от 08.06.2023
+
+Timer RH PRO  2.11.0 [En/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236397.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237951.jpg" />
 </div>
 
 
 ###  Подробнее
 
-BBEdit - популярный текстовый и HTML редактор. Эта программа специально разработана для удобного редактирования текста, поиска, трансформации, создания HTML-тегов, написания и правки кода программ в различных языках программирования. BBEdit создан непосредственно для программистов и разработчиков, то есть для людей, которым приходится иметь дело с кодами программ (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.03.2021Разработчик: Bare Bones Software, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
+Timer RH PRO - утилита для управления собственным временем.Тип издания: macOS SoftwareРелиз состоялся: 07.06.2023Разработчик: © 2014-2021 3bitlabПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский и Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A998C83C4B6E42A1B97958FBFE67CFD7F7C90479
+magnet:?xt=urn:btih:6C130C801B43F132EC0DB3644B5E5227826832AA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -330,26 +325,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550172   (236396) от 09.05.2022
+###  Публикация: 1541815   (237950) от 01.09.2022
 
-Проекты - VideoHive - Epic Old Book - 23583028 [AEP]
+Анна Аксёнова | В помощь младшему школьнику. Необычный тренажер [8 тетрадей] (2018) [PDF]
 
->>Проекты
->>Слайдшоу (проекты)
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Рабочие тетради, прописи и разукрашки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236396.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237950.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Epic Old Book» - стильный элегантный проект для создания слайд шоу в эпическом стиле старой книги.
-Многие оценят по достоинству.Формат: AEP
+Тренажёр содержит упражнения по русскому языку, соответствующие программе 1-го класса. Отличительной особенностью этого тренажёра является проверка правильности решения через восстановление рисунка из фрагментов. Такой подход обеспечивает дополнительную игровую составляющую в обучении, что повышает мотивацию школьника к успешному выполнению заданий. Эти упражнения (   Читать дальше...   )Жанр: Рабочая тетрадь, Развивающая литература для дошкольниковФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:38B181016857024F11184B7CEE93437D180FF9A6
+magnet:?xt=urn:btih:C7AC83AEEBD13FA1BBCADD2B7C867C07BA5CB349
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,28 +351,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629913   (236395) от 28.04.2023
+###  Публикация: 1446275   (237949) от 08.02.2021
 
-Underworld - Change The Weather (1989) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip] <Electronic, Pop>
+MiniNote Pro 5.9 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237949.jpg" />
+</div>
+
+
+###  Подробнее
+
+MiniNote Pro — очень простое и удобное приложение (замечательная замена нативным заметкам), которое находиться в строке меню и по горячей клавише всегда под рукой. Симпатичный интерфейс, темы, которые можно менять (только в версии Pro), а простой поиск быстро найдет любой текст, даже, если заметок очень много.
+В версии Pro можно воспользоваться возможностью форматированного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 07.02.2021Разработчик: FIPLAB LtdПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF1E72B5A3073C4BFBAF4C21F5FDD84D4D3CF58
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1629336   (237948) от 26.04.2023
+
+Psiphon 3 build 178 (26.04.2023) Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237948.jpg" />
+</div>
+
+
+###  Подробнее
+
+Psiphon - это новый инструмент обхода интернет-цензуры от Psiphon Inc.. Он использует технологии VPN, SSH и HTTP прокси для решения проблемы доступа к заблокированным ресурсам. Программный клиент Psiphon автоматически получает данные о новых серверах и таким образом увеличивает ваши шансы на обход цензуры. Psiphon предназначен для предоставления вам открытого доступа (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E97CB035410F23C8A95BCA0AAB59E12FBEC9F914
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623870   (237947) от 28.04.2023
+
+Дорога в Сингапур / Road to Singapore (1940) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Двух друзей Джорджа Маллона и Эйса Ванигана принуждают жениться. Одного деятельная невеста, мечтающая получить вместе с мужем богатства семейства Маллон, другого влиятельная семья Черри. Но парни, дав, друг другу клятву, что больше не будут заглядываться на девушек, сбегают в Сингапур. Однако именно в Сингапуре они встречают танцовщицу Мимму и оба влюбляются в нее. (   Читать дальше...   )Производство: США / Paramount PicturesЖанр: мюзикл, мелодрама, комедияРежиссер: Виктор ШерцингерАктеры: Бинг Кросби, Дороти Ламур, Боб Хоуп, Чарльз Коберн, Джудит Баррет, Энтони Куинн, Джерри Колонна, Элвия Оллман, Джонни Артур, Бобби БарберПеревод: Многоголосый профессиональный (DVD Магия)Язык озвучки: русский, английскийСубтитры: английскиеПродолжительность: 01:25:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F699367CA61D7AD52F5A4C5B4B8C6FB79977C696
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150283   (237946) от 02.05.2022
+
+Валерий Леонтьев - Песни Раймонда Паулса (1984, 1986) 2LP Reissue [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Soul, Disco>
 
 >>HD Audio и Многоканальная Музыка
 >>Vinyl-Rip и Hand-Made
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236395.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237946.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Change The Weather
-A2 Stand Up
-A3 Fever
-A4 Original Song(   Читать дальше...   )Жанр: Electronic, PopПродолжительность: 00:36:30
+A1 Гиподинамия · Hypodynamics
+A2 Притяжение Любви · Attraction Of Love
+A3 Три Минуты · Three Minutes
+A4 Карусель · Merry-Go-Round(   Читать дальше...   )Жанр: Pop, Soul, DiscoПродолжительность: 00:36:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B2623DCC96EA8789D4F7D9C132CC461ED1AFC7B5
+magnet:?xt=urn:btih:33D5ADDF7308AA30995A703AF22BFAD4D0C85D26
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,54 +459,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1506097   (236394) от 29.10.2021
+###  Публикация: 1638377   (237945) от 08.06.2023
 
-EazyDraw 10.7.0 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236394.jpg" />
-</div>
-
-
-###  Подробнее
-
-EazyDraw от Dekorra Optics – графическая программа, созданная специально для macOS. Она будет полезна при работе над многими проектами, включая чертежи, иллюстрации, иконки, логотипы и стилизованные тексты.Тип издания: macOS SoftwareРелиз состоялся: 28.10.2021Разработчик: Dekorra Optics, LLCПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Немецкий, Французский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8DE1DB644E9626E38AA25CD9D2AE9C0FA90E4D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640434   (236393) от 17.06.2023
-
-Steve Gadd, Eddie Gomez, Ronnie Cuber - Center Stage (2022) Leopard [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Jazz Fusion, Big Band>
+Ike Quebec - Four Classic Albums (1961, 1962) 2CD, 2018, Avid Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Bossa Nova>
 
 >>Jazz, Blues, Soul
 >>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236393.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237945.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Signed, Sealed, Delivered [7:17]
-02. Watching the River Flow [8:04]
-03. I Can't Turn You Loose [5:15]
-04. Che Ore So [6:14](   Читать дальше...   )Жанр: Jazz-Rock, Jazz Fusion, Big BandПродолжительность: 00:56:17
+01. Acquitted [5:40]
+02. Just One More Chance [5:50]
+03. Que's Dilemma [4:31]
+04. Brother Can You Spare A Dime [5:29](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Bossa NovaПродолжительность: 02:36:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:44F24CE0B6C99BF84807E09A22286669D5287B7D
+magnet:?xt=urn:btih:938A41EAF60C70303F91BE82AB24BEBDD815F32F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -441,28 +488,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457202   (236392) от 25.03.2021
+###  Публикация: 1625163   (237944) от 09.04.2023
 
-Network & Battery 12.2.5 [Multi]
+Kjellerbandet - Mingus Schmingus (2004) Sonor Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Big Band, Vocal Jazz>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236392.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237944.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Следите за скоростью сети в реальном времени прямо в строке меню, смотрите ежедневное использование данных и узнавайте о состоянии аккумулятора MacBook.
-Потрясающий пользовательский интерфейс:
-• Простой и понятный дизайн.
-• Поддержка виджетов Today и Big Sur.(   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.03.2021Разработчик: yicai yangПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
+01. A Chair in the Sky [6:31]
+02. Moanin' [7:57]
+03. Ecclusiastics [7:17]
+04. Invisible Lady [6:58](   Читать дальше...   )Жанр: Hard Bop, Big Band, Vocal JazzПродолжительность: 00:50:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:21734AFD0C05184966195D1C21632BD48D337DC8
+magnet:?xt=urn:btih:242E166D4ED51B84B962A8C7B2BE94843A3D3425
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -470,165 +517,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550006   (236391) от 09.05.2022
+###  Публикация: 1581827   (237943) от 07.10.2022
 
-Матрица / The Matrix (1999 - 2003) WEB-DL [H.264/1080p] [Трилогия] [Open Matte]
-
->>Коллекции / *логии
->>Зарубежное кино (коллекции / *логии)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236391.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Матрица» - американская научно-фантастическая медиафраншиза в жанре киберпанк. Началась с фильма «Матрица», снятого в 1999 году братьями Эндрю и Ларри Вачовски. Позднее, в 2003 году, вышло два продолжения: «Матрица: Перезагрузка» и «Матрица: Революция». В том же 2003 году был выпущен аниме-сериал «Аниматрица». Также по мотивам фильмов были выпущены сборники веб-комиксов (   Читать дальше...   )Производство: США / Warner Bros., Village Roadshow PicturesЖанр: фантастика, боевикРежиссер: Эндрю Вачовски, Ларри ВачовскиАктеры: Киану Ривз, Лоренс Фишбёрн, Кэрри-Энн Мосс, Хьюго Уивинг, Глория Фостер, Джо Пантольяно, Маркус Чонг, Джулиан Араханга, Мэтт Доран, Белинда МакКлори, Моника Беллуччи, Брюс Спенс, Джада Пинкетт Смит, Хэролд Перрино, Гарри Дж. Ленникс, Хельмут БакайтисПеревод: ДублированныйСубтитры: русские, английскиеПродолжительность: 02:16:41 / 02:17:00 / 02:09:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0F79CF330425CA8D43EF2C411FF1040AE6049D8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630075   (236390) от 28.04.2023
-
-Журнал | Архивы ХХ века №11 (ноябрь 2022) [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236390.jpg" />
-</div>
-
-
-###  Подробнее
-
-В каждом выпуске газеты "Архивы ХХ века" опытные журналисты рассказывают о исторических персонажах, публикуют захватывающие материалы про самые интересные события и героев мировой истории. Вас ждут захватывающие сюжеты о людях и событиях, до недавнего времени известных только узкому кругу лиц. Статьи издания написаны не только журналистами - читатели газеты (   Читать дальше...   )Жанр: историяФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C6BA94FB19804832C26BC88FB87337E07DF2CA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505929   (236389) от 29.10.2021
-
-Find Any File (FAF) 2.3.2 b3 [Multi]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Find Any File - утилита для быстрого поиска любого файла на вашем Mac
-Find Any File не содержит никаких подменю с настройками, быстро справляется с задачей и удобна в использовании. Все что нужно - написать ключевое слово (или слова) в окне поиска без предварительных настроек меню. Но если вам необходимо усложнить поиск, то Find Any File имеет множество подменю делающих (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.10.2021Разработчик: Thomas TempelmannПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A3C5B75F52AC383450177787A08112E1DE2EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1609459   (236388) от 03.02.2023
-
-ОгнеДар (экс Цианид) - 5 Relises (2022-2023) [MP3|320 Kbps] <Pagan Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236388.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-Огнедар - 2022 - Русские топоры
-Огнедар - 2022 - Старые и новые песни
-Огнедар - 2022 - Территория правды(   Читать дальше...   )Жанр: Pagan Folk RockПродолжительность: 5 CD, 03:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA4C2E41A77C797604C17534AC6EBA127F1EDF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631170   (236387) от 04.05.2023
-
-Bebe Rexha - Bebe (2023) [FLAC|Lossless|WEB-DL|tracks] <Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Wants What It Wants
-02. Miracle Man
-03. Satellite (feat. Snoop Dogg)
-04. When It Rains(   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:37:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C1F0FCE0ADE530AB7854A7A8E8F9C8498446895
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1640319   (236386) от 17.06.2023
-
-Queens Of The Stone Age - In Times New Roman... (2023) [FLAC|Lossless|tracks + .cue] <Stoner Rock, Alternative Rock>
+Order in Chaos - S(K)In (2022) [FLAC|Lossless|WEB-DL|tracks] <alternative rock, goth rock, new wave>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_236386.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237943.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Obscenery (4:23)
-02. Paper Machete (3:23)
-03. Negative Space (3:53)
-04. Time & Place (4:26)(   Читать дальше...   )Жанр: Stoner Rock, Alternative RockПродолжительность: 00:47:41
+01. Close My Eyes [00:05:19]
+02. S(k)in [00:06:26]
+03. Soul Sick [00:05:32]
+04. Unholy Flesh [00:05:29](   Читать дальше...   )Жанр: alternative rock, goth rock, new waveПродолжительность: 01:05:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:555DDE097523A2ABCF92F7A040EA3085F205BC20
+magnet:?xt=urn:btih:CDE8843BE47396DFBFA775316CD9C8C75DA2FDF5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -636,28 +546,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1629906   (236385) от 28.04.2023
+###  Публикация: 1446189   (237942) от 08.02.2021
 
-Taj Mahal - Savoy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+James Moody - 1948 - 1949 (2000) Classics [FLAC|Lossless|tracks + .cue] <Bop>
 
 >>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237942.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stompin at the Savoy
-02. I'm Just a Lucky So and So
-03. Gee Baby Ain't I Good to You
-04. Summer Time(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:36
+01. The Fuller Bop Man [2:58]
+02. Workshop [3:17]
+03. Oh Henry [2:31]
+04. Moodamorphosis [3:01](   Читать дальше...   )Жанр: BopПродолжительность: 01:07:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9384723895036AE8B894F99EA110EFAB3CFB308A
+magnet:?xt=urn:btih:B3B6E4A62E5514ADB7D890CA70EC0C583AA1E470
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,25 +575,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1457179   (236384) от 25.03.2021
+###  Публикация: 1629962   (237941) от 28.04.2023
 
-Live Performer 1.0.1 [En]
+Icecream PDF Editor Pro 2.71 [Multi/Ru]
 
->>Программы для macOS
->>Аудио и видео редакторы для macOS
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237941.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Live Performer - это новый хост аудиоустройства для macOS, предназначенный для записи вашего музыкального произведения.Тип издания: macOS SoftwareРелиз состоялся: 04.05.2017Разработчик: Nebula SRLПоддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+Icecream PDF Editor PRO - программа для поистине простого редактирования PDF файлов. Получите доступ ко всем инструментам и режимам редактирования PDF сразу с помощью "умной" панели инструментов. Вы можете редактировать текст, добавлять заметки, защищать файлы паролем, управлять страницами и многое другое с нашим PDF редактором. Узнайте, как редактировать (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E112DB9CD105964E22FF0D5575975A989B0F3F19
+magnet:?xt=urn:btih:84E95A4F16CE391EED65532F58D91F603A33B2AD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -691,25 +601,107 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631201   (236383) от 04.05.2023
+###  Публикация: 1629454   (237940) от 26.04.2023
 
-Убей меня нежно / Killing Me Softly (2002) BDRip [H.264/720p]
+Aiseesoft Data Recovery 1.6.10 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_236383.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237940.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм снят по одноимённому роману 1999 года английской писательницы Никки Френч. Встреча с неотразимым и загадочным парнем изменила размеренную жизнь Элис. Расставшись с надёжным другом, она бросается в объятия Адама, чувствуя, что нашла вторую половину. И лишь после свадьбы она осознаёт, что ничего не знает о супруге. Вскоре анонимные письма с угрозами, таинственная (   Читать дальше...   )Производство: США, Великобритания, Metro-Goldwyn-Mayer (MGM), The Montecito Picture Company, Noelle EntertainmentЖанр: драма, мелодрама, детектив, триллерРежиссер: Кайгэ ЧэньАктеры: Хезер Грэм, Джозеф Файнс, Наташа МакЭлхоун, Ульрих Томсен, Иэн Харт, Джейсон Хьюз, Кика Маркам, Эми Роббинс, Ясмин Баннерман, Ребекка Р. ПалмерПеревод: профессиональный двухголосыйЯзык озвучки: русский, английскийСубтитры: русские, английскиеПродолжительность: 01:40:24
+Aiseesoft Data Recovery - это мощное и безопасное программное обеспечение для восстановления данных. Оно может помочь вам восстановить почти все удаленные / потерянные файлы, такие как фотографии, документы, электронные письма, аудио, видео и многое другое с компьютера, жесткого диска, флэш-накопителя, карты памяти, цифровой камеры и так далее.
+Aiseesoft Data Recovery (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98DC84FE06C8F1FB572FC67D4292D8FFBC7833AC
+magnet:?xt=urn:btih:58769A503CEE4FD31C1AFD9CB2549BDD5087D064
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1547608   (237939) от 02.05.2022
+
+Развёртывание орбитальной группировки ГЛОНАСС нового поколения началось
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_237939.jpg" />
+</div>
+
+
+###  Подробнее
+
+Роскосмос начал развёртывание орбитальной группировки ГЛОНАСС нового поколения. Об этом сообщил генеральный директор Роскосмоса Дмитрий Рогозин, а затем подтвердила пресс-служба Роскосмоса.Как сообщают источники, навигационный спутник нового поколения «Глонасс-К» после лётных испытаний сегодня днём заработал в составе орбитальной группировки ГЛОНАСС.Спутник «Глонасс-К» (   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1625449   (237938) от 09.04.2023
+
+Stan Bush & Barrage - Stan Bush & Barrage (1987) [FLAC|Lossless|image + .cue] <AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Temptation
+02. Love Don't Lie
+03. Primitive Lover
+04. Heart Vs. Head(   Читать дальше...   )Жанр: AORПродолжительность: 00:43:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4AA65A8066CBE7F21519DDB43F5BB41030117952
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1570822   (237937) от 01.09.2022
+
+Этот мех норки / That Touch of Mink (1962) WEBRip [MVO]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_237937.jpg" />
+</div>
+
+
+###  Подробнее
+
+Он работает финансистом, «пожирающим» компании, она — аккуратная девочка, бегающая своими длинными ножками по Манхэттэну в поисках работы. Всё начинается с того, что его лимузин обрызгал её грязной водой из лужи...Производство: США / Arwin Productions, Granley Company, Nob Hill Productions Inc.Жанр: мелодрама, комедияРежиссер: Делберт МаннАктеры: Кэри Грант,  Дорис Дэй,  Гиг Янг,  Одри Медоуз,  Алан Хьюит,  Джон Эстин,   Дик Сарджент,  Джои Фэй,  Лори Митчелл,   Джон ФидлерПеревод: Многоголосый профессиональный (студия СВ-Дубль)Язык озвучки: Русский, АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:39:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B305CAF1D0D180F74863389EC0C0D77D04096C9
 ```
 
 https://mybot314.ru/tekegram_catalog/

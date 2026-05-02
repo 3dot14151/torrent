@@ -1,3 +1,61 @@
+###  Публикация: 966020   (222727) от 16.12.2015
+
+Miles Davis - So What? (1947-1962) 3CD, 2014, Le Chant Du Monde[FLAC|tracks+.cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222727.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01.Mile Stone [02:42]
+02.Half Nelson [02:49]
+03.Move [02:37](   Читать дальше...   )Жанр: Hard BopПродолжительность: 01:16:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F70CD9B8454D13554A53F63914FF0BBC0FC9DBF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425182   (222722) от 20.11.2020
+
+Beegie Adair - Best Of Beegie Adair: Jazz Piano Christmas Perform (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_222722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Frosty The Snowman (3:28)
+02. It's The Most Wonderful Time Of The Year (4:25)
+03. The Little Drummer Boy (5:04)
+04. The Christmas Waltz (2:44)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D477E38D10B51AE6F7F45F471140F7E0F8800805
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1342821   (222694) от 03.12.2019
 
 Елена Шеремет - Sax It Easy (2006) [APE|Lossless|image + .cue] <Instrumental, Smooth Jazz>
@@ -687,64 +745,6 @@ Low Kick Collective - Coma Berenices (2022) [FLAC|Lossless|Web-DL|tracks] <Dark 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3C3659028865F2DEA4DA4D51D99DA4016A91680C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1343128   (220270) от 05.12.2019
-
-Alessio Menconi - Standard Trio (2005) Abeat Records [FLAC|Lossless|image + .cue] <Post-Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_220270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Without a Song [5:05]
-02. I Fall in Love Too Easily [8:06]
-03. If I Should Lose You [6:47]
-04. Just One of Those Things [6:51](   Читать дальше...   )Жанр: Post-Bop, Guitar JazzПродолжительность: 01:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55CDB5A8DC7E313AEFB75E918CABCFABA9AD4C81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651802   (220267) от 08.08.2023
-
-Hampton Hawes - The Sermon (1958) 2002, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_220267.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down by the Riverside [4:45]
-02. Just a Closer Walk with Thee [5:03]
-03. Swing Low, Sweet Chariot [4:55]
-04. Nobody Knows the Trouble I've Seen [4:55](   Читать дальше...   )Жанр: Bop, Hard Bop, Piano JazzПродолжительность: 00:41:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C384191AF0A4101B4EFEC55D492727C963568B7
 ```
 
 https://mybot314.ru/tekegram_catalog/

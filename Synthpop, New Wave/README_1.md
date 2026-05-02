@@ -1,3 +1,32 @@
+###  Публикация: 1107892   (864642) от 24.02.2017
+
+Let Em Riot - Lines (2016) EP [MP3|320 Kbps] <Electropop, Synthwave, Dreamwave>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_864642.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Manual 04:05
+02. Reader 04:05
+03. We Were Young 03:57
+04. Sun Flares 04:33(   Читать дальше...   )Жанр: Electropop, Synthwave, DreamwaveПродолжительность: 00:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25211268E1725659A3D4D1972E082A4B5CB52C9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376108   (862042) от 16.04.2020
 
 Pet Shop Boys - I Don't Wanna (2020) EP [MP3|320 Kbps] <Synthpop>
@@ -717,35 +746,6 @@ Testpattern - Apres-Midi (1982) Reissue CD, 1990, Yen Records [MP3|320 Kbps] <El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9A15C000088FF5020069F58110C405C5C5782A92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011417   (796662) от 27.04.2016
-
-Зодиак (Zodiac) - Pacific Time (2014) [MP3|320 кб/с] <Electronic, Synth-pop, Disco>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_796662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. New Zodiac (04:11)
-02. Pacific Time (04:31)
-03. Disco In The Province (04:47)
-04. Distant Galaxy (05:43)(   Читать дальше...   )Жанр: Electronic, Synth-pop, DiscoПродолжительность: 00:48:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8FE80862DB5826289A34A6F7C4EC3591299B619
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,29 @@
+###  Публикация: 1025806   (707514) от 13.06.2016
+
+Проекты - VideoHive - Inspirational Slideshow - 14261553 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_707514.jpg" />
+</div>
+
+
+###  Подробнее
+
+Inspirational Slideshow - с этим проектом вы сможете создать идеальное фото/видео слайд-шоу, трейлер к фильму с последовательностью названий, видео-журнал, и даже видео-ролики к специальным мероприятиям.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EFE36533C4B666064B2EE96B52BA86E87A7880B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1025835   (707303) от 13.06.2016
 
 Проекты - VideoHive - Drawing Promo - 12872127 [AEP]
@@ -653,33 +679,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8D05F094EA14C454858A7AE89E16B2E22C183738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026786   (701820) от 16.06.2016
-
-Проекты - Pond5 - Lensflare-Transitions [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_701820.jpg" />
-</div>
-
-
-###  Подробнее
-
-Lensflare-Transitions - это проект с переходами-вспышками для оформления слайд-шоу.
-Шаблон полностью настраиваемый.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3515CF00A449705548544A5B44F2E7179BFC61B1
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,206 @@
+###  Публикация: 1694473   (120310) от 29.01.2024
+
+VA - There With Me: Intimate Soundtracks for Lovers (2024) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Easy Listening, Jazz>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120310.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Classical Piano Academy - Sensual Keys of Desire (3:36)
+02. Jazz Music Lovers Club - Passionate Moonlit Whispers (3:02)
+03. Sexual Piano Jazz Collection - In Your Tender Arms (3:08)
+04. Classical Piano Academy - Eternal Sensual Serenade (4:02)(   Читать дальше...   )Жанр: Instrumental, Easy Listening, JazzПродолжительность: 01:23:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CB019057DBB21BE329A0A47EC24FA3C5F9D7187
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695292   (119942) от 31.01.2024
+
+Paul Mauriat - Amapola (1984) [OGG Vorbis|480 Kbps] <Jazz, Pop, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119942.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  I Can Wait Forever
+02.  Almost Paradise (Love theme from 'Footloose')
+03.  Against All Odds (Take a Look at Me Now)
+04.  Flashdance... What a Feeling(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:39:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97631FF043B6B40235AE75181529028C6B6F95E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696155   (119829) от 01.02.2024
+
+VA - Александр Зацепин. 31 июня (2021) [FLAC|Lossless|tracks + .cue] <Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оркестр п/у М. Фадеева - Вступление
+02. Жанна Рождественская - Песня леди Джейн
+03. Лариса Долина - Драконография
+04. Татьяна Анциферова - Чарльстон(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E9E3D1AC97CFE02876DFC3758A9746CC92C5FA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695385   (119798) от 01.02.2024
+
+Paul Mauriat - White Christmas (1977) Reissue, 1984, Philips [OGG Vorbis|480 Kbps] <Pop, Easy Listening, Holiday>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  White Christmas
+02.  Vive Le Vent 'Jingle Bells'
+03.  Mon Beau Sapin
+04.  Rudolph, The Red-Nosed Reindeer(   Читать дальше...   )Жанр: Pop, Easy Listening, HolidayПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5830B3A7E5AE3C040750478F0614EB75E2E71F40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695551   (119780) от 01.02.2024
+
+Ashley Ryan - Too Far Gone (2024) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119780.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hush Little Baby [00:02:54]
+02. Too Far Gone [00:02:55]
+03. Just a House [00:03:12]
+04. One Tractor Mind [00:03:30](   Читать дальше...   )Жанр: Contemporary CountryПродолжительность: 00:26:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7B3B1A10A604486CA06AB9C2DA560DB79255DCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1695618   (119639) от 02.02.2024
+
+Paul Mauriat - Windy (1986) [OGG Vorbis|480 Kbps] <Classical>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Windy
+02.  That's What Friends are For
+03.  Nikita
+04.  Saving All My Love for You(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4E5EA0903CA97B4CAB63CBE78C411D56144A906
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1696601   (119517) от 03.02.2024
+
+VA - Александр Зацепин. 31 июня (2021) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_119517.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Оркестр п/у М. Фадеева - Вступление
+02. Жанна Рождественская - Песня леди Джейн
+03. Лариса Долина - Драконография
+04. Татьяна Анциферова - Чарльстон(   Читать дальше...   )Жанр: <Soundtrack>Продолжительность: 01:17:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F08E2E23990C9FAC124C894B4B7477B99288CC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1696488   (119484) от 03.02.2024
 
 Владимир Девятов - Матушка Россия (2024) [MP3|320 Kbps] <Folk, Pop>
@@ -542,209 +745,6 @@ Meldis - Отдохни, волшебник (2006) [FLAC|Lossless|image + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BCD7F125A7A3FF1C24453563256BFA0A6ABC306D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1700804   (115503) от 26.02.2024
-
-Meldis - Арфография (2007) [FLAC|Lossless|image + .cue] <Folk, Celtic Harp>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115503.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wherever he goes
-02. Rambe's to Cashel/Planxty Captain O'Kane
-03. Cruel Sister
-04. Lorient(   Читать дальше...   )Жанр: Folk, Celtic HarpПродолжительность: 00:36:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4A401247DCA26E78F08EA43C3F2EB9B8813E7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1702517   (115011) от 29.02.2024
-
-VA - The Orient Collective: Mithras (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_115011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sylva Drums & Tibetania - Virupaksha Temple (Original Mix) (7:29)
-02. Tadej Jaki & Tibetania - Ksenos (Original Mix) (6:56)
-03. Behind The Green Door & Tibetania - Wizer (Original Mix) (8:00)
-04. Mikhail Catan & Tibetania - Delirium (Diego Galloso & Noam Garcia Remix) (6:38)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:34:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C7241AF6B86479836959643551AFC677CB17064
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703064   (114849) от 01.03.2024
-
-VA - The Orient Collective: Mystic Dunes (2023) FLAC Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114849.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tibetania - Nigora (5:58)
-02. Juantxo Munoz - Tibet (5:10)
-03. DaDa Sound Project - Sevemedim (Downtempo Mix) (5:24)
-04. DaDa Sound Project - Sevemedim (Dawa Su Beat Mix) (5:20)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:20:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EEE747DC8E5C609051D8FE870842FEB46A98E18A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1703088   (114831) от 01.03.2024
-
-VA - The Orient Collective: The Caravan (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114831.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darles Flow, José Sierra & Tibetania - Sahra (6:06)
-02. Project Blue Sun & Tibetania - Desert Girl (Dacosta Remix) (5:46)
-03. Tibetania & Hansonic - Streets of Khartoum (6:40)
-04. The Mystic & Tibetania - Johera (6:45)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:08:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B8BAC9B36BD1963844A7820922EB504E79AEAE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704225   (114180) от 05.03.2024
-
-Syntheticsax - Silhouettes (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Indie>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_114180.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Silhouettes
-2.Silhouettes (Romantic Version)
-3.Silhouettes (Extended Mix No Sax)
-4.Silhouettes (Backing Track No Sax)(   Читать дальше...   )Жанр: Alternative, IndieПродолжительность: 00:31:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90888D30DB669067EA4A6D59073B1DFAECBD9A80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1705039   (113915) от 08.03.2024
-
-Shamanic Chants - Forest Whispers Shamanic Journey (2024) [MP3|320 Kbps] <Native American, New Age, Electro>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113915.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Horse [02:12]
-02. Secret Tribe [04:14]
-03. The Awakening [04:40]
-04. Inner Peace [03:04](   Читать дальше...   )Жанр: Native American, New Age, ElectroПродолжительность: 00:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:780E188EAAE5794922FE985649702E45A644791A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1706699   (113294) от 17.03.2024
-
-Johnny Whitehorse - Riders of the Healing Road (2009) [FLAC|Lossless|tracks + .cue] <Native American>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113294.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Ceremony Begins
-02. Blood Medicine
-03. Saint Sara
-04. Moving Chi(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:52:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:24918B763C369A44FB5D03D5C4F93CAFCD4B776F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1143313   (635255) от 18.06.2017
+
+Apoptygma Berzerk - Rocket Science (2009) [FLAC|Lossless|image + .cue] <Alternative Rock, Electronic Rock, Synthpop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_635255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weight Of The World
+02. Apollo (Live On Your TV)
+03. Asleep Or Awake?
+04. Incompatible(   Читать дальше...   )Жанр: Alternative Rock, Electronic Rock, Synthpop, Post-Punk, Futurepop, New WaveПродолжительность: 00:57:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C82D30A8CC7AFBF139DF5DB2C6498CFE24EA990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1542933   (633825) от 09.04.2022
+
+Ska-P - Live In Woodstock Festival (2016) [FLAC|Lossless|tracks + .cue] <Ska, Ska-punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Intro
+02 Full Gas
+03 Estampida
+04 Niño Soldado(   Читать дальше...   )Жанр: Ska, Ska-punkПродолжительность: 01:06:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7820DCA04EF34C6E70434360E902E7F1AEA7F47A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1293817   (633752) от 05.04.2019
 
 Meat Puppets - Dusty Notes (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie>
@@ -687,64 +745,6 @@ Jeff Beck - Loud Hailer (2016) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B681081847FB3FDCFABEC1EE9EB049384B2D55DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295344   (618816) от 13.04.2019
-
-PUP - Morbid Stuff (2019) [FLAC|Lossless|tracks + .cue] <Punk Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618816.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morbid Stuff (02:44)
-02. Kids (03:30)
-03. Free At Last (02:34)
-04. See You At Your Funeral (03:40)(   Читать дальше...   )Жанр: Punk Rock, Pop PunkПродолжительность: 00:36:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81D2206A62F1C7D4B799560560B9A42B4B4EDAAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1295527   (618815) от 13.04.2019
-
-Shovels And Rope - By Blood (2019) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Indie>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_618815.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Comin' Out (03:43)
-02. Mississippi Nuthin' (03:52)
-03. The Wire (02:56)
-04. C'mon Utah! (03:46)(   Читать дальше...   )Жанр: Alternative Rock, IndieПродолжительность: 00:38:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD55BAF1352C23B58C030C92534C9ABE96671FD0
 ```
 
 https://mybot314.ru/tekegram_catalog/

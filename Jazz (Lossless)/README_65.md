@@ -1,3 +1,61 @@
+###  Публикация: 1119217   (809601) от 27.03.2017
+
+John Coltrane - The Best Of John Coltrane (1959, 1960) 1992, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809601.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.My Favorite Things [13:44]
+ 02.Naima [04:23]
+ 03.Giant Steps [04:47]
+ 04.Equinox [08:35](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:41:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7342D85B8873E36611BC76C9BE0197EC3C51C99B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1119316   (809460) от 27.03.2017
+
+Miles Okazaki - Trickster (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_809460.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kudzu (5:20)
+02. Mischief (3:24)
+03. Box In A Box (5:47)
+04. Eating Earth (6:43)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:44:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8F5E6F7C2B974585993030EAF08CD1D63A44B42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119220   (809131) от 27.03.2017
 
 Caro Emerald - Acoustic Sessions Parts 1 & 2 (2017) [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop Jazz>
@@ -687,64 +745,6 @@ Chet Baker - Baby Breeze (1965) 2002, Universal [FLAC|Lossless|tracks + .cue] <C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CE8755352FDBF5B76A8EE2FB9D5E91970F8840F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119823   (806061) от 29.03.2017
-
-John Pizzarelli with The George Shearing Quintet - The Rare Delight of You (2002) Telarc [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.If Dreams Come True [03:51]
- 02.The Lady's In Love With You [02:44]
- 03.Everything Happens To Me [03:47]
- 04.Lulu's Back In Town [02:57](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F23EED3F66181E1016B1840934871F35C400ECA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1505213   (804622) от 27.10.2021
-
-Sadao Watanabe - Go Straight Ahead 'n Make A Left (1997) Verve Records [FLAC|Lossless|tracks + .cue] <Crossover Jazz, Post Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_804622.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walk Around the Corner [4:10]
-02. Maji [5:57]
-03. Nightly Yours [4:15]
-04. Episode [5:45](   Читать дальше...   )Жанр: Crossover Jazz, Post BopПродолжительность: 00:45:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41CB40FB7889B470DD3EF8259F8865EB60CD468B
 ```
 
 https://mybot314.ru/tekegram_catalog/

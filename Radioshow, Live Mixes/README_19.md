@@ -1,3 +1,58 @@
+###  Публикация: 1828339   (193405) от 24.10.2025
+
+VA - Ori Uplift - Uplifting Only Episode 663 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_193405.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cedric Paul – Harmonic Skies (Intro Mix)
+02. Roger Shah & RAM ft. Natalie Gioia – For The One You Love
+03. Nick Parker – True Love (Plutian Sentimental Take) (Orchestral Uplifting Classic)
+04. Jericho Frequency & Amélie Mae – Hide In Plain Sight(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:10:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B55D9E923B1DC5C5C5F865AC0EFA0E7F002EAE9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1659063   (190617) от 10.09.2023
+
+Ed Rush & Optical - Classic Essential Mix 1999 (Rebroadcast 03.09.2023) [MP3|287 Kbps (VBR V0)] <Drumnbass>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190617.jpg" />
+</div>
+
+
+###  Подробнее
+
+Classic Essential Mix - это еженедельное радиошоу, где в эфир возвращаются выпуски оригинального шоу01. Optical & Ryme Tyme - HeadhuntersЖанр: DrumnbassПродолжительность: 02:00:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B96F339776E2354E569EC0EC13B4FF3641ACF579
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827337   (186356) от 21.10.2025
 
 Cosmic Gate - Live @ Tomorrowland Store Rooftop Ibiza, Spain (2025-09-16) [MP3|320 Kbps] <Trance, Melodic House, Techno>
@@ -687,64 +742,6 @@ Trance Wax Tracklist:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:368AD930D0D10E2CD660DCACF6E42393D15619FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825387   (152036) от 17.10.2025
-
-VA - Ori Uplift - Uplifting Only Episode 662 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152036.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. REX.W – Across the Desert (Intro Mix) (Breakdown Of The Week)
-02. C-Systems & Neev Kennedy – Between The Lines
-03. Mike van Fabio & Cherry – Fable (Mhammed El Alami Remix) (Uplifting Classic)
-04. Etasonic – ShakeratoЖанр: Trance, Uplifting TranceПродолжительность: 02:05:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11A15F7AF1A40AC47AFE8A84A6494A711D0250BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1825386   (152026) от 17.10.2025
-
-VA - Armin van Buuren - A State Of Trance 1247 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_152026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ARTY x RHODES – Never Be The Same
-02. YOUNA – Serotonin (Progressive Pick)
-03. M.A.N.D.Y. vs. Booka Shade – Body Language (Helsloot Remix)
-04. Baset – Drift(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:03:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25CCB436FC07D16F0525E9C0B37FCEE1E4EB708B
 ```
 
 https://mybot314.ru/tekegram_catalog/

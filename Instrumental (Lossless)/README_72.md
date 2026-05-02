@@ -1,3 +1,125 @@
+###  Публикация: 1069290   (373992) от 04.11.2016
+
+Bryce Janey - Delta Road (2015) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| Keep Marchin' On   (06:12) 
+  02| This Old Guitar   (05:10) 
+  03| Delta Road   (04:40) 
+  04| Shake the Walls (With Foot Stompin' Music)   (05:26) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3340C3AD62D64A0D39F2A16231382AC7427B2DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 574704   (373302) от 13.11.2012
+
+Craig Erickson - Galactic Roadhouse (2012) [FLAC|Lossless]<Blues-rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_373302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Back at the Roadhouse (3:57)
+02. Torrential Download Blues (5:42)
+03. River of Tears (6:03)
+04. Rivertown (4:15)
+05. Earthquakes & Hurricanes (4:01)
+06. You Can't Keep a Good Man Down (5:01)
+07. Peace and Love (7:24)
+08. Engine #7 (5:30)
+09. It's Rough All Over (4:23)
+10. Prodigal (3:53)(   Читать дальше...   )Жанр: Blues-rockПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176375   (372039) от 21.10.2017
+
+Ray Bonneville - Solid Ground (1997) [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_372039.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Nothing to lose   (03:49) 
+02.  Blue Guitar   (04:19) 
+03.  If your love is strong   (03:21) 
+04.  Love in danger   (04:40) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC2D92FA002D5E5AF9DC65FBA9681AAF35698E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1070053   (371695) от 05.11.2016
+
+Mark May And The Agitators - Call On The Blues (1995) [FLAC|Lossless|image + .cue] <Blues Rock, Texas Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371695.jpg" />
+</div>
+
+
+###  Подробнее
+
+01| You're Leaving Baby   (05:59) 
+  02| Wound Up   (04:58) 
+  03| You Can Call On The Blues   (06:31) 
+  04| All For You   (04:19) (   Читать дальше...   )Жанр: Blues Rock, Texas BluesПродолжительность: 00:55:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:791395F02E02B93110F8D29CC22DE8EB16719B80
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1575991   (370946) от 12.09.2022
 
 Drew Foust - Good Thing (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -635,122 +757,6 @@ The Dig 3 - The Dig 3 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3F0F4B3F7BAA2B620CB4D1BC57B57F55CBCDB2F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576464   (366489) от 14.09.2022
-
-The C J Smith Band - Coming Home Again (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Coming Home Again (3:12)
-02. One Golden Dream (4:43)
-03. Riding That Train (4:40)
-04. Let the River Carry Me Home (5:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:04:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:179ACA458CE83370C3497D1DDC3F1772E5DC3FE4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576458   (366488) от 14.09.2022
-
-Stone Free - Stone Free (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366488.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stone Free (5:15)
-02. Angel (3:58)
-03. Izabella (3:39)
-04. Little Wing (3:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4911886C3FC4BAA9E8932A2563BD942F7DCB9CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576465   (366487) от 14.09.2022
-
-The Curve - Revelation (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366487.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sinner (Remastered) (4:50)
-02. Ride My Pony (2022 Radio Edit) (3:09)
-03. I Came Alone (3:37)
-04. Dark Gospel (4:17)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:24:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B95FC70D7F857AF2A142DDCD254A6772D14EB136
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1576472   (366486) от 14.09.2022
-
-The Peanuts - Dawn (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366486.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cage (4:33)
-02. Homesick (2:43)
-03. Graduate Somehow (4:17)
-04. Solitude (4:41)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A58DA3C29FB4B8B842D9D2B61B7294C0C83AF525
 ```
 
 https://mybot314.ru/tekegram_catalog/

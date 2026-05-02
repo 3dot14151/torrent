@@ -1,3 +1,61 @@
+###  Публикация: 1523545   (749794) от 12.01.2022
+
+Skillet - Dominion (2022) [FLAC|Lossless|tracks] <Alt.Rock, Christian Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749794.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Surviving The Game (3:58)
+02. Standing in the Storm (4:17)
+03. Dominion (3:51)
+04. Valley of Death (4:27)(   Читать дальше...   )Жанр: Alt.Rock, Christian MetalПродолжительность: 00:45:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:31A1079B44DF41891D71FE2A2BBD1383C9E0FC0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282046   (746789) от 11.02.2019
+
+Jake Shears - Jake Shears (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746789.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction (00:24)
+02. Good Friends (03:30)
+03. Big Bushy Mustache (03:35)
+04. Sad Song Backwards (04:17)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BBC5FE3C9092813E419DDA2D0BC87030E158AC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396609   (745512) от 16.07.2020
 
 Faith No More - Angel Dust (1992) London [FLAC|Lossless|image + .cue] <Alt.Rock, Avantgarde>
@@ -685,61 +743,6 @@ Garbage - The Absolute Collection (2012) [FLAC|Lossless|image + .cue] <Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FB647B1988E97D06D7A409D05B71A95E3005E259
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1127166   (731726) от 21.04.2017
-
-The HardKiss - Perfection Is a Lie (2017) [APE|Lossless|tracks + .cue] <Alternative Rock, Prog Rock, Experimental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Organ (3:19)
-02. Tony, Talk! (3:35)
-03. Doctor Thomases (4:07)
-04. Rain (3:27)(   Читать дальше...   )Жанр: Alternative Rock, Prog Rock, Experimental RockПродолжительность: 00:43:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F36FDBD24819CE8E871D8078B086E2ACF69BE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 666452   (731657) от 09.06.2013
-
-Suede - Bloodsports (2013) /Japan/ [FLAC|Lossless]<Alternative Rock, Glam Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_731657.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Alternative Rock, Glam RockПродолжительность: 00:47:49
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

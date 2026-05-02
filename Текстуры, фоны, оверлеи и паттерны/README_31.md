@@ -1,3 +1,29 @@
+###  Публикация: 1790961   (21754) от 11.04.2025
+
+Фоны - Resource Boy - 1000 Gradient Backgrounds Vol. 02 [JPG]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21754.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатные фоны. Материал раздаётся с официальной документацией.Формат: JPGРазрешение файлов: 3840 x 2160
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:87228DE2AB7A9663A9E74507D834D2C60F0EC11B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1790861   (21744) от 11.04.2025
 
 Текстуры - Artnoy - Creative Fabrica - Digital Paper Glitter Iridescent Texture [JPG]
@@ -642,32 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC773C857BB35D788F8B7076885E58045C5D1CDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1792341   (21012) от 18.04.2025
-
-Фоны - Creative Fabrica - Unicorn Background Digital Paper Pack [JPG, PNG, PDF]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21012.jpg" />
-</div>
-
-
-###  Подробнее
-
-Набор цифровой бумаги с фэнтезийными фонами.Формат: JPG, PNG, PDFРазрешение файлов: 3600 x 3600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A16BE4CF0528083E860494410D268E0F9CFF22A
 ```
 
 https://mybot314.ru/tekegram_catalog/

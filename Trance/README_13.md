@@ -1,3 +1,148 @@
+###  Публикация: 1210694   (778234) от 05.03.2018
+
+VA - Soul Contact Vol.1 (Mixed by Sam Laxton) (2018) [MP3|320 Kbps] <Uplifting Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dan Thompson feat. Natalie Gioia  -  Be In Love (Sam Laxton's Soul Contact Remix)  3:54
+02.  Andy Moor feat. Michele C  -  We Can Be Free (Evan Pearce Remix)  6:33
+03.  Temple One  -  The 42nd Parallel (Extended Mix)  7:48
+04.  Sam Laxton feat. Noire Lee  -  Thunderstorm (Extended Mix)  5:30(   Читать дальше...   )Жанр: Uplifting Trance, Vocal TranceПродолжительность: 02:21:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC3EDE494EE27CC3E85E5EC1E37768A64DC102D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1210945   (778193) от 05.03.2018
+
+VA - Future Sound of Egypt 500 (2018) [MP3|320 Kbps] <Trance,Progressive House>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778193.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Danito & Athina - City Lights (Stereo Underground Remix) 07:14
+02. Kamilo Sanclemente - The White City 03:53
+03. Paul Thomas & Jerome Isma-Ae - Tomorrow (Paul Thomas & White-Akre Remix) 05:25
+04. Aly & Fila & Paul Thomas - UV (Matan Caspi Remix) 04:39(   Читать дальше...   )Жанр: Trance,Progressive HouseПродолжительность: 06:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C38F8443493B3DB444A21912929B214C8B2F56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211312   (777592) от 07.03.2018
+
+VA - Dark Miami (2018) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777592.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Gamma & Attila Syah feat. Cari  -  Every Goodbye (Extended Mix)  7:18
+02.  Jan Miller & Steve Dekay  -  Melodrama (Original Mix)  3:32
+03.  Roman Messer feat. Betsie Larkin  -  Unite (Extended Full Fire Mix)  5:46
+04.  Axel Walters  -  Line (Extended Mix)  5:52(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:27:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECC1DC003BA179083316B4BE0DCC3F98EA27FBB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211526   (777282) от 08.03.2018
+
+VA - Progressive Trance Vol.2 (2018) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_777282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
+02.  LTN  -  Wind & Cloud (Extended Mix)  6:53
+03.  Weared  -  Coliseum (Extended Mix)  5:40
+04.  Adip Kiyoi & VIKA  -  Soul In The Dark (Extended Mix)  5:25(   Читать дальше...   )Жанр: TranceПродолжительность: 01:28:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:075C9957E2A8B74F03812A04A1F44515F2AA8888
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1211362   (777247) от 08.03.2018
+
+VA - Vocal Anthems Miami (2018) [MP3|320 Kbps] <Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_777247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Roman Messer feat. Christina Novelli  -  Fireflies (Original Mix)  3:58
+02.  Gamma & Attila Syah feat. Cari  -  Every Goodbye (Extended Mix)  7:18
+03.  Adip Kiyoi feat. Vika  -  Soul In The Dark (Extended Mix)  5:25
+04.  Aelyn  -  Water & Fire (Ruslan Radriges Extended Remix)  5:34(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 01:57:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3286C7B1435E2BE1BEFC7A0FEFDD5E08CC1BD2C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1211756   (776554) от 10.03.2018
 
 VA - Festival Anthems Vol.3 (2018) [MP3|320 Kbps] <Trance>
@@ -600,151 +745,6 @@ VA - Progressive Miami (2018) [MP3|320 Kbps] <Progressive Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71FEC14319C96101D64B17F5CB66DF73F6D8F7A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279950   (764597) от 31.01.2019
-
-VA - Festival Anthems Vol.4 (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764597.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer - New Era (Suanda 150 Anthem) (Extended Mix)
-02. Frainbreeze - #Dvrk5ide (Extended Mix)
-03. Ruslan Radriges - Revival (Extended Mix)
-04. Adip Kiyoi - Start With A Dream (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3AA4D9B6C5DE90A8FD3BAF3E954D85CF11E87891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1279959   (764592) от 31.01.2019
-
-VA - Nicholson - Glorious (The Album) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764592.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nicholson - Toward The Light (Feat. Jennie Osborn) (Original Mix)
-02. Nicholson - Society (Original Mix)
-03. Nicholson & Emoiryah - In The Need (Original Mix)
-04. Nicholson - Shut Them Down (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D497DFE00126DDEF837B82F6F3A814C74B54D72E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394234   (764513) от 04.07.2020
-
-VA - Dream Dance Vol.89 (2020) 3CD  Box Set [MP3|320 Kbps] <Trance, Progressive, Dance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764513.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Dream Dance Alliance - Under The Moonlight (Edit) 2:55
-02. Armin Van Buuren & Brennan Heart feat. Andreas Moe - All On Me 2:59
-03. Martin Garrix feat. John Martin - Higher Ground 3:27(   Читать дальше...   )Жанр: Trance, Progressive, DanceПродолжительность: 03:40:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7F836EC1FE1FE64035C6512182A1D0D450687BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1126785   (764473) от 19.04.2017
-
-Physical Dreams - Dreams Trance (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764473.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Surrender  10:13
-02.  Feel  9:26
-03.  Baroque V  8:49
-04.  Back Home  8:49(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7625795EF7C2A95C12CA0A6CE26F92B00449B012
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1214686   (764143) от 22.03.2018
-
-VA - Infrasonic Winter Selection (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764143.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Evaa Pearl - Westfold (Original Mix)
-02. Sector7 - Cyclone (Extended Mix)
-03. Make One - Reborn (Extended Mix)
-04. WeToo - Karma (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:13:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE2C2D3D63F48D8586BDA1A70A296AE3895F9EE5
 ```
 
 https://mybot314.ru/tekegram_catalog/

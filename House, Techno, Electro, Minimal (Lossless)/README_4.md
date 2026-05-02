@@ -1,3 +1,32 @@
+###  Публикация: 1452452   (1027758) от 06.03.2021
+
+Kaskade - Reset (2021) [FLAC|Lossless|WEB-DL|tracks] <House, Progressive Trance, Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kaskade, Ella Vos - Miles To Go (03:18)
+02. Kaskade, Will K - Flip Reset (03:08)
+03. Kaskade - Closer (04:41)
+04. Kaskade - Solid Ground (03:20)Жанр: House, Progressive Trance, Progressive HouseПродолжительность: 00:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D88379D0C9A4874ED4718DB78293F659865040D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1453199   (1027247) от 09.03.2021
 
 VA - Oslated 5th Anniversary Compilation (2021) Oslated [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient>
@@ -711,35 +740,6 @@ Ferrein - Openclose (2012) Farver [FLAC|Lossless|WEB-DL|tracks] <Dub Techno, Dow
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:77226741911A0A82C32C69704E4EC302C2527E17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1462331   (1021137) от 14.04.2021
-
-VA - Monstercat Instinct Vol. 7 (2021) [FLAC|Lossless|WEB-DL|tracks] <Electro House, Dance-Pop, Dubstep>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kaskade, Will K - Flip Reset (03:08)
-02. Slushii - All I Need (03:46)
-03. Vicetone - No Rest (03:29)
-04. Tokyo Machine, Weird Genius, LIGHTS - Last Summer (02:53)(   Читать дальше...   )Жанр: Electro House, Dance-Pop, DubstepПродолжительность: 02:47:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9C9AA524027F772FA639BF01BB08A55E656101F
 ```
 
 https://mybot314.ru/tekegram_catalog/

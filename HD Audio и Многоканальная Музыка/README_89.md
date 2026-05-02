@@ -1,3 +1,177 @@
+###  Публикация: 1693037   (122003) от 19.01.2024
+
+Dred Buffalo - The Dark Age (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Psychedelic Blues, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hermit's Headroom [00:02:33]
+02. Shaman's Discipline [00:03:34]
+03. Heat [00:04:46]
+04. The Morrigan [00:03:26](   Читать дальше...   )Жанр: Hard Rock, Psychedelic Blues, Female VocalПродолжительность: 00:48:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6DA7D3DDA333A175E1BCFCCB94B95C66F9C5494
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693182   (121994) от 19.01.2024
+
+Good Mood Music Academy - Sunny Winter Jazz Instrumental December Good Mood and Positive Vibes  (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121994.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Last December (3:39)
+02. Play Me Like a Guitar (3:16)
+03. Her Hazle Eyes (3:29)
+04. Morning Fun Jazz (3:01)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:50:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4594B593688397CE6FCA2DC502F086F71FC4A2EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693177   (121983) от 19.01.2024
+
+Dred Buffalo - Dred Buffalo (2020) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Psychedelic Blues, Female Vocal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Fella [00:02:56]
+02. Malign and I [00:02:30]
+03. Gloo Canoe [00:03:28]
+04. Today [00:03:20](   Читать дальше...   )Жанр: Hard Rock, Psychedelic Blues, Female VocalПродолжительность: 00:30:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E3DE111CFDFF2F86794E4804B2F27D135986012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693322   (121872) от 20.01.2024
+
+Hollywood Undead - Studio Albums (9 releases) (2008-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Rap-Rock, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121872.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hollywood Undead — американская рок-группа из Лос-Анджелеса, основанная в 2005 году. Творчество коллектива базируется на смешении рок-музыки с хип-хопом и, соответственно, в основном классифицируется как рэп-рок.2008 - Swan Song
+2011 - American Tragedy
+2013 - Notes From The Underground Unabridged
+2015 - Day Of The DeadЖанр: Rap-Rock, Nu MetalПродолжительность: 08:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7F364EDC6C81AB98F58314991D16178074C8D413
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693481   (121833) от 20.01.2024
+
+Rosalba Piccinni - Rosa che s'inchina (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Unica rosa (00:02:23)
+02 - Anche un uomo (00:05:29)
+03 - Amor mio (00:05:14)
+04 - Ancora ancora ancora (00:04:05)(   Читать дальше...   )Жанр: Jazz, PopПродолжительность: 00:57:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AC1B835842CB06C7E846B486F5E2964A56AC11DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549494   (121761) от 21.01.2024
+
+Saxon - Дискография (33 releases) (1979-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121761.jpg" />
+</div>
+
+
+###  Подробнее
+
+Saxon — английская рок-группа, одна из ярких представителей новой волны британского хэви-метал. Существует с 1977 года. Группа считается классикой метала и оказавшей большое влияние на другие группы в этом жанре, такие как Metallica, Mötley Crüe, Pantera, Sodom.1979 - Saxon
+1980 - Wheels of Steel
+1980 - Strong Arm of the Law
+1981 - Denim and LeatherЖанр: Heavy Metal, Hard RockПродолжительность: 36:29:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C38FAAC544AD9051D3A177815806307F29EDF9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693618   (121708) от 21.01.2024
 
 30 Seconds to Mars - Stuck (TroyBoi Remix) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative rock>
@@ -569,180 +743,6 @@ Lazarus Dream - Lifeline (2022) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C07E85A422C89CD70D5DEDF451A7402C4E65CCE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693961   (121291) от 23.01.2024
-
-Rhino Bucket - Studio Albums (7 releases) (1990-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121291.jpg" />
-</div>
-
-
-###  Подробнее
-
-Rhino Bucket — американская хард-рок-группа из Ван-Найс, Лос-Анджелес, образованная в 1988 году. Звучание группы часто сравнивают со звучанием AC/DC.1990 - Rhino Bucket
-1992 - Get Used To It
-1994 - Pain
-2006 - And Then It Got UglyЖанр: Hard RockПродолжительность: 05:35:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12FCD7D81A5651985721345FE607624644F1DCE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693460   (121290) от 23.01.2024
-
-Restaurant Jazz Music Collection, Jazz Ambiental para Hotels - Dining in Jazz Harmony Jazz Background Grooves for the Hotel Restaurant (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121290.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Cozy Inn (4:40)
-02. Morning Brunch (2:59)
-03. Jazz for Boutique Hotels (2:57)
-04. Cocktail Cafe (3:25)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:52:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CEBD112FFA7530459A95B60986BFF2063AE6A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693455   (121289) от 23.01.2024
-
-Jazz Guitar Club, Jazz Guitar Music Zone - Sunset Guitar Session Smooth Guitar Jazz for Chill and Relax (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz, Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Higher (6:18)
-02. Big Dreams (3:37)
-03. Inspiring me (3:29)
-04. Should We Try (4:03)(   Читать дальше...   )Жанр: Jazz, Chill Out, Smooth JazzПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B8E1009A58993739F60529D7AC73F41443DB89FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693456   (121284) от 23.01.2024
-
-Lounge Cafe, Classical Jazz Guitar Club - Hotel Café Guitar Jazz BGM (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Chill Out, Smooth Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121284.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fly Higher (6:18)
-02. Big Dreams (3:37)
-03. Inspiring me (3:29)
-04. Should We Try (4:03)(   Читать дальше...   )Жанр: Chill Out, Smooth JazzПродолжительность: 00:59:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70A939B178CF18E2A7FBC3514D580D4CB2B647DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1694159   (121281) от 23.01.2024
-
-Dragonforce - Astro Warrior Anthem (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121281.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Astro Warrior Anthem [00:06:50]
-02. Doomsday Party (feat. Elize Ryd) [00:05:15]
-03. Power of the Triforce [00:03:53]
-04. Doomsday Party [00:05:14]Жанр: Power MetalПродолжительность: 00:21:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49898CF6FE0AC4CD526150D86B57EA73F4387584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693178   (121279) от 23.01.2024
-
-Cafe Piano Music Collection, Relaxation Jazz Music Ensemble - Tea Café: Relaxing Jazz Ambience (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Vintage Cafe (3:02)
-02. Chill Jazz Sessions (3:39)
-03. Afternoon Tea (4:37)
-04. Jazz in the Night (3:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75BE9CAEC2DB5C40402A2D9834C32E55FBFF4F1A
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1598727   (161925) от 20.12.2022
+
+VA - Music To Watch Girls By (2019) 3xCD, Compilation [FLAC|Lossless|image + .cue] <Easy Listening, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161925.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Music to Watch Girls By - Andy Williams
+02. Fly Me to the Moon - Julie London
+03. Wives and Lovers - Jack Jones(   Читать дальше...   )Жанр: Easy Listening, LoungeПродолжительность: 03:50:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1D355F2E814F122313D1ED02EBBBF04D435C39E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517700   (161680) от 17.12.2021
+
+James Ryan - The Best Of Lounge: L.A. Lounge (2001) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161680.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Seemless (4:00)
+02. Jupiter (5:02)
+03. Contraflow (4:41)
+04. The Beauty Of Then (3:49)(   Читать дальше...   )Жанр: Latin Jazz, LoungeПродолжительность: 01:05:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D19D042D07FCBD107CF6EC32304F6962F1B2F217
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517702   (161671) от 17.12.2021
+
+Vangarde feat. XXL - The Best Of Lounge: Buddha Lounge (2001) [FLAC|Lossless|tracks + .cue] <Latin Jazz, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161671.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 2 2 Tango (4:12)
+02. Club Zero (5:52)
+03. Pure Magic (4:11)
+04. Love Attack (4:12)(   Читать дальше...   )Жанр: Latin Jazz, LoungeПродолжительность: 00:57:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:944535990E60F979C3338829A1EBF1C2B6471C3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1517692   (161666) от 17.12.2021
+
+Levantis & Friends - The Best Of Lounge: Classic Lounge (2001) [FLAC|Lossless|tracks + .cue] <Classical, Lounge>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_161666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Waltz (From Sleeping Beauty) (4:23)
+02. Morgenstimmung (4:51)
+03. Flower Duet (Sous Le Dome Epaos) (4:55)
+04. Meditation (From Thais) (3:51)(   Читать дальше...   )Жанр: Classical, Easy Listening, LoungeПродолжительность: 01:00:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB304A89BFBAEE08CAF91108109A0FD780E6C4D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1517697   (161664) от 17.12.2021
 
 Peter Ellis - The Best Of Lounge: New York Lounge (2001) [FLAC|Lossless|tracks + .cue] <Downtempo, Lounge>
@@ -629,122 +745,6 @@ VA - Winter Spirits: Chillout Your Mind (2020) [FLAC|Lossless|WEB-DL|tracks] <Ba
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:28E767BB0F094B99DE21AEEE6A4EA9FFB20388B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 968966   (151126) от 25.12.2015
-
-Jens Buchert - Electronic Space Odyssey-Transcending Lounge Music (2009) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Desert Taxi (04:24)
- 02. Sanso Sheep (05:22)
- 03. Jelly Fish (03:58)
- 04. Wendy (04:48)(   Читать дальше...   )Жанр: Downtempo, Ambient |Продолжительность: 01:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85CE4D33C70D675E6026DE66C42D4622599D4347
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677615   (150537) от 18.11.2023
-
-Blank & Jones - Chilltronica EP 5 (2023) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Downtempo, Chill out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150537.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breathe
-02. Sleepless
-03. Lux Aeterna
-04. Above EarthЖанр: Electronic, Downtempo, Chill outПродолжительность: 00:23:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A8FB69C9795AE1BEE653B17AD1794A0550D713
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1677869   (149088) от 19.11.2023
-
-V.A. - Buddha Bar by Christos Fourkis & Ravin (2023) [FLAC|Lossless|WEB-DL|tracks] <Downtempo, Lounge, Chill Out>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_149088.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. ThroDef - Lawrence
-02. Christos Fourkis - Kismet
-03. Chris Madem - Amor Mio(   Читать дальше...   )Жанр: Downtempo, Lounge, Chill Out |Продолжительность: 02:38:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:909AD22732EF0B5A0C5A2198CA08D2EC2F4B742E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1519334   (148702) от 24.12.2021
-
-VA - Lo-Fi to Chill: Chillout Your Mind (2021) [FLAC|Lossless|WEB-DL|tracks] <Balearic, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_148702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Living Room – Holy Moly - That's A Groove (03:07)
-02. Dellasollounge – Can't See You (original mix) (02:48)
-03. Patiotic – Not An Exit (02:36)
-04. Lemongrass – Sur La Mer (04:31)(   Читать дальше...   )Жанр: Balearic, DowntempoПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD13CF232441B9FC3923DF2B4DA74A790ABFC57
 ```
 
 https://mybot314.ru/tekegram_catalog/

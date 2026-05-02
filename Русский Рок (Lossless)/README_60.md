@@ -1,3 +1,32 @@
+###  Публикация: 1273158   (139011) от 30.12.2018
+
+Владимир Кузьмин - Вечные Истории. Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139011.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Карма
+02. Перекрёсток
+03. Зависим
+04. Ведьма(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:558087CCE76A1057EBACEC3189E2567333594D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1521184   (138065) от 31.12.2021
 
 Rakoth - Superstatic Equilibrium (1998) 2xCD, Reissue, Remastered, 2020, OldWise Records [FLAC|Lossless|image + .cue] <Progressive Metal, Experimental Black Metal>
@@ -721,35 +750,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:59A16300EED8BD5CFC9060596BB15494259857D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682072   (131880) от 06.12.2023
-
-Коса - Плодуродие (2022) [FLAC|Lossless|image + .cue] <Punk, Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лихие дни 3:54
-02. Стонут 3:48
-03. Весна неизбежна 3:04
-04. В братских могилах 4:10(   Читать дальше...   )Жанр: Punk, Black MetalПродолжительность: 00:38:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:688D553BB36BD472EFBECCFDBA6E25A5E37C1B43
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,29 +1,3 @@
-###  Публикация: 1338292   (269699) от 15.11.2019
-
-Tim Seeley, Steve Seeley | Артбук по миру Хи-Мен и властелины вселенной / The Art of He-Man and the Masters of the Universe (2015) [CBR] [EN]
-
->>Комиксы и Артбуки
->>Артбуки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269699.jpg" />
-</div>
-
-
-###  Подробнее
-
-Артбук содержит рисунки по миру "Хи-Мен и властелины вселенной"Жанр: АртбукФормат: CBR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C63052D53883A4AF1BA833626474904638290D68
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1338263   (269694) от 15.11.2019
 
 Stan Sakai | Артбук по комиксу Usagi Yojimbo / The Art of Usagi Yojimbo: 20th Anniversary Edition (2004) [CBZ] [EN]
@@ -668,6 +642,32 @@ Ink Stains Games | Артбук по игре 12 is Better Than 6 / 12 is Better
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3A24BA308DD8A8DCF60ED6E2F2ED555F9464AAA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623480   (243674) от 01.04.2023
+
+Bulwark Studios | Артбук по игре IXION / The Art of IXION (2022) [PDF] [EN]
+
+>>Комиксы и Артбуки
+>>Артбуки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Артбук содержит эскизы и концепт-арты по игре IXION.Жанр: АртбукЯзык: АнглийскийФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E5B54673336F7A513C0DC4F14A2774200EF0FF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

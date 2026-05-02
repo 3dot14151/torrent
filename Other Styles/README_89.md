@@ -1,3 +1,200 @@
+###  Публикация: 358281   (584798) от 03.07.2011
+
+Гарри Поттер и Дары смерти: Часть 2 / Harry Potter And The Deathly Hallows Part 2 (2011) [MP3|320 kbp/s]<Score,Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584798.jpg" />
+</div>
+
+
+###  Подробнее
+
+2011Жанр: SoundtrackПродолжительность: 01:08:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1459E7E68C2DCDA5DB2C805B2925D62793BBF1B7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 358304   (584742) от 03.07.2011
+
+OST Daft Punk - Tron Legacy (2010) [MP3|320 kbp/s]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584742.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: OSTПродолжительность: 01:11:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7CEC3F53A69A134C28B52A3210DE66E19FAC15E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1040864   (584260) от 07.08.2016
+
+VA - Suicide Squad / Отряд самоубийц (The Album) (2016) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584260.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Skrillex & Rick Ross - Purple Lamborghini (03:36)
+02. Lil Wayne, Wiz Khalifa & Imagine Dragons - Sucker For Pain (with Logic, Ty Dolla $ign & X Ambassadors) (04:03)
+03. twenty one pilots - Heathens (03:16)
+04. Action Bronson, Mark Ronson & Dan Auerbach of The Black Keys - Standing In the Rain (03:22)(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 00:51:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80D89690821D611D38F602C876B45048545017EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919429   (584030) от 18.07.2015
+
+Marcus Viana - Pleiadian Connections (2015) [MP3|320 кб/с]<New Age, Instrumental, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Orion Calls
+02. No Tempo
+03. Pleione
+04. A Fonte das Estrelas(   Читать дальше...   )Жанр: New Age, Instrumental, MeditationПродолжительность: 00:59:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC8A15BC90C44DDF365129D6EBF5EC833AE0535A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 918961   (583968) от 18.07.2015
+
+Zhang Yi - Strings Of Love (2015) [FLAC|Lossless]<New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maple Love
+02. Mythos
+03. The Unforgettable Love Affair
+04. Prayer(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:388F5857B04A3558244B361976F47D67141F3AC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 919207   (583840) от 18.07.2015
+
+Daisuke Minamizawa - Solo Guitar no Shirabe - Studio Ghibli Sakuhinshu (2000) [FLAC|tracks]<OST anime>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583840.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nausicaa Of The Valley Of Wind (Opening) - from Nausicaa (2:24)
+02. Nausicaa Requiem - from Nausicaa (1:09)
+03. Bird Person (Ending) - from Nausicaa (1:35)
+04. Nausicaa Of The Valley Of Wind - from Nausicaa (1:36)(   Читать дальше...   )Жанр: OST animeПродолжительность: 01:04:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4AFD585826E045E3498188F980FC5252B3F018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1041089   (583448) от 08.08.2016
+
+Michel Pepe - Offrandes (Best Of 2008-2015) (2016) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583448.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Myriades de lumière [00:05:41]
+02. Eternelle gratitude [00:04:49]
+03. Vision de l'ame [00:04:15]
+04. Beauté elfique [00:05:57](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:13:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB6D6DBC6D9E6277637C6C5CFF7074F81D5648A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1041233   (583406) от 08.08.2016
 
 Vigilante 8 - 2nd Offense (2000) [MP3|320 кб/с]<OST>
@@ -536,211 +733,6 @@ Yogeshwara - 2 albums (1997, 2003) [MP3|112-256 kbps]<New age, Meditative, Mantr
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED10BB6A1F21BDACDBA52DBFE66CC611FB7B4541
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921143   (577161) от 24.07.2015
-
-VA - Simply Spa Chill (2010) 4CD[FLAC|image+.cue]<New Age, Meditative, Peaceful Relaxation, Tranquility, Eastern Chill>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577161.jpg" />
-</div>
-
-
-###  Подробнее
-
-Даже на AllMusic (что для портала совсем не характерно) не решились определить жанр этого сборника. Peaceful Relaxation, что означает в народе - полная расслабуха, думаю, очень даже подойдет. А в связи с приближающимися выходными так и просто очень актуально.01. Orient Expressions - Tranquility  (8:10)
-02. Memories of Goa - Dawn Meditation  (7:33)
-03. Beyond Bombay - Adagio  (8:36)
-04. Prem Gulshan - Relax  (6:28)(   Читать дальше...   )Жанр: New Age, Meditative, Peaceful Relaxation, Tranquility, Eastern ChillПродолжительность: 04:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3B9581BFD6CDF8270D54151A2AF35025181C8D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303112   (576311) от 19.05.2019
-
-Jamestown Revival - San Isabel (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576311.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Crazy World (Judgement Day) (04:40)
-2. This Too Shall Pass (04:29)
-3. Killing You, Killing Me (05:50)
-4. Who Hung the Moon (05:02)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:48:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B57AA23C5EB58C2F2821F2859A82ACA0DE49D99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1233991   (576179) от 02.07.2018
-
-Michael Forster - Piano Chill (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age, Modern Classical>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Another love
-02. Let her go
-03. Helium
-04. Vladimir s blues(   Читать дальше...   )Жанр: Instrumental, Piano, New Age, Modern ClassicalПродолжительность: 01:01:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C26B3EEDBCB3C035718ED7CE181CB1B7D615A7E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554452   (575764) от 31.05.2022
-
-Vartra - Basma (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Doom Metal>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575764.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Aina [00:05:54]
-02 - Jerovine [00:06:01]
-03 - Inanna [00:04:41]
-04 - Hajd u Kam [00:05:13](   Читать дальше...   )Жанр: Dark Folk, Ethereal, Doom MetalПродолжительность: 00:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB36687E5C7E950E8FC7DFE524A19C431B43A864
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 921210   (575419) от 25.07.2015
-
-Ennio Morricone - Allonsanfan (1978) [FLAC|image+.cue]<OST>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575419.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rabbia e Tarantella
-02. Ritorna a Casa
-03. Dirindindin
-04. Frammenti di Sonata(   Читать дальше...   )Жанр: OSTПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9E4B18F085F2AF8F5FE8F0EF606907BF71BAE05
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 527692   (574719) от 27.07.2012
-
-Acoustic Sound Orchestra - World Hits Instrumental Vol.1-4 (1994) [MP3|320 кб/с]<Instrumental, Easy Listening>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574719.jpg" />
-</div>
-
-
-###  Подробнее
-
-World Hits Instrumental Vol.1
-
-01. The Lady in Red (04:00)
-02. Blue Eyes (03:22)
-03. Bilitis (02:50)
-04. The Phantom of The Opera (04:16)
-05. A Day Without You (03:51)
-06. Le Reve (03:44)
-07. My Way 04:30Жанр: Instrumental, Easy ListeningПродолжительность: 00:51:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8B31C2B5AB839259B1EB4D28AE35D499FE96B70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 361927   (574712) от 11.07.2011
-
-VA - Romantic & SAX (2011) [MP3|320 kbps]<Instrumental / saxophone>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Instrumental / saxophoneПродолжительность: 03:31:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BFD8EAF296C8490010521E5F9FE296BB20DFD790
 ```
 
 https://mybot314.ru/tekegram_catalog/

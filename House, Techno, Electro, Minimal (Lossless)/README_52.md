@@ -1,3 +1,32 @@
+###  Публикация: 1081974   (280754) от 11.12.2016
+
+VA - Mixmag Germany Presents Kittball (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280754.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paji & Juliet Sikora - Dimension (original mix) (05:57)
+02. KANT - Never U Mind (original mix) (06:30)
+03. Purple Disco Machine - Walls (original mix) (06:38)
+04. Tube & Berger - Set Free (feat Ghost Loft) (06:50)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:30:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22FF990C5E12F629142AF8581BBCF9B228A88ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 272153   (280522) от 18.12.2010
 
 Opus III - Guru Mother (1994) [APE|Lossless]<Vocal House, Ambient, Electronica>
@@ -711,35 +740,6 @@ VA - Total Disco House, Vol. 1 (2019) [FLAC|Lossless|WEB-DL|tracks] <House, Nu-D
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:06B7F42DF38810C9796D4700B5799E82E62A5B1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1189537   (270421) от 06.12.2017
-
-Tale of Us - Endless Remixes (2017) Deutsche Grammophon [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270421.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Definizione dell'impossibile (Monoloc Remix) (05:16)
-02. Alla sera (Kettenkarussell's Triangle Player Rework) (06:56)
-03. Ricordi (Rødhåd Remix) (06:40)
-04. Oltre la vita (SCB Introspection) (10:49)(   Читать дальше...   )Жанр: Techno, Ambient, Dub TechnoПродолжительность: 01:30:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11340B7E20CF9B4396F872B825D224E3981772EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

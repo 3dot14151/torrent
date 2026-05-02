@@ -1,3 +1,61 @@
+###  Публикация: 992347   (902521) от 01.03.2016
+
+VA - Liquid Bass Drive (2016) [MP3|320 кб/с] <Drum and Bass, Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902521.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Fred V & Grafix - Constellations
+002. Mob Tactics - Get Dirty
+003. Mob Tactics - Shark Tank
+004. Krakota - Lust Thrust(   Читать дальше...   )Жанр: Drum and Bass, DubstepПродолжительность: 09:53:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BC18B3B01E6B0043DBA01678EF4B433F5FBCC2D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1492087   (902476) от 30.08.2021
+
+VA - Beatport Hardstyle: Sound Pack #336 (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance, Core Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902476.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Watchmen - Hostile
+002. B-Freqz - Rebirth
+003. Hirohiro - Not This Time
+004. Marlo & Matrick - This Way(   Читать дальше...   )Жанр: Hardstyle, Hard Dance, Core DanceПродолжительность: 09:39:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B78A924DDBD67BEA36E0D55DCD5D2C92E60B8BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1492121   (902474) от 30.08.2021
 
 VA - Guided By The Heart (2021) [MP3|320 Kbps] <Alternative, rock indie>
@@ -690,64 +748,6 @@ VA - Promo DJ Top 100 Remixes Winter 2017 (2017) [MP3|320 Kbps] <House, Big Room
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42F5F9B474ED9C08E10B9E98B02955CE9402533E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369891   (900321) от 25.03.2020
-
-VA - Hypnotic City Mix (2020) [MP3|320 Kbps] <Techno, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900321.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Claudia C. - Black Space
-002. Angel Romario - The Biggest Change
-003. Hernan Cerbello - Bolder (Original Mix)
-004. Bash Markov - Moon (After Mix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 09:31:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DE3176E61841B08FD9560705EE4797EAFA66237
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100505   (899865) от 04.02.2017
-
-VA - Empire Records - Golden Drum (2017) [MP3|320 Kbps] <Dubstep, Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drumsound & Bassline Smith - Through the Night (Club Mix)
-02. Sia - Unstoppable (DJ Noiz DnB Remix)
-03. Kent Funkshun - Catch That Moment
-04. Flux Pavilion - Standing on a Hill (Original Mix)(   Читать дальше...   )Жанр: Dubstep, Drum & BassПродолжительность: 01:36:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F32D7462509E8381FD27B86588B181333C42F88
 ```
 
 https://mybot314.ru/tekegram_catalog/

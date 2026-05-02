@@ -1,3 +1,206 @@
+###  Публикация: 1336010   (282064) от 05.11.2019
+
+Labrinth - Euphoria / Эйфория (Original Score from the HBO Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_282064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New Girl (01:03)
+02. Formula (01:32)
+03. Preparing For Call (00:29)
+04. Forever (03:23)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA99D0B94EC18FD04C602DBAE10D28BACD2BA69
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 423717   (281862) от 17.12.2011
+
+Paul Mauriat - The Russian Album (1993) [FLAC|Lossless]<Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Plaine, ma Plaine (3:02)
+02. Les deux Guitares (3:35)
+03. Le Sarafan Rouge (2:53)
+04. Katioucha (2:03)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264369   (281089) от 23.11.2018
+
+Евгений Алексеев - Piano Tribute to Гражданская Оборона (2018) [FLAC|Lossless|image + .cue] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издательство Bull Terrier Records представляет первый в истории официальный инструментальный трибьют Егору Летову и группе ГРАЖДАНСКАЯ ОБОРОНА! 12 треков, исполненных Евгением Алексеевым на концертном рояле Steinway & Sons Model D, записаны в студии SuperSizeRecording (Будапешт, Венгрия). Средства для записи и производства альбома были собраны благодаря сотням (   Читать дальше...   )01. Моя Оборона (3:17)
+02. Со Скоростью Мира (2:48)
+03. Всё Как У Людей (3:16)
+04. Без Меня (3:24)(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 00:44:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BD22F2D13287B3240B446EB7D1793F754E4128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081760   (280909) от 11.12.2016
+
+Dr. Mary Anderson - Meditations for the Journey Within (2016) [MP3|320 Kbps] <New Age, Meditation>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280909.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 -  Introduction [00:02:00]
+02 -  Love [00:11:02]
+03 -  Faith [00:10:02]
+04 -  Trust [00:10:02](   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 01:14:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F70A4539F951CBF451C87A1C14D3E2FEDEFD7D4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1081398   (280899) от 11.12.2016
+
+VA - Christmas Shooting Stars: The Finest Chillout and Lounge Music (2016) [MP3|320 Kbps] <Soundtracks>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280899.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vechigen – Christmas Shooting Stars
+ 02. The Rex-Factor – Dog Ate My Shoe – Chill Mix
+ 03. Stars Over Foy – Until We Meet Again in Heaven
+ 04. Jamie Duvel – Ballroom – Piano Room Mix(   Читать дальше...   )Жанр: SoundtracksПродолжительность: 01:08:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80F06827F2FA6D96605597A69225109127A5FFC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336424   (280808) от 06.11.2019
+
+Steven Price - The Aeronauts / Аэронавты (Original Motion Picture Soundtrack) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280808.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. She's Late (02:24)
+02. We Will Break That Record (02:33)
+03. Anything Can Happen In This Weather (02:08)
+04. You'll Get Your Chance (01:55)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:03:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:690C85E6A005A8C35C7C343691BC5CA937B2561B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336447   (280802) от 06.11.2019
+
+Tyler Bates, VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw (Original Score + Original Soundtrack) (2019) [MP3|320 кб/с] <Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280802.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. YUNGBLUD - Time In A Bottle (04:36)
+02. The Heavy - Better as One (02:56)
+03. Logic feat. Wale Folarin (as Wale) & John Lindahl - 100 Miles and Running (05:53)
+04. A$ton Wyld - Next Level (02:18)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 01:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A37A8E6316B679033448105FCF3F4170A702461
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336449   (280676) от 06.11.2019
 
 VA - Форсаж: Хоббс и Шоу / Fast & Furious Presents: Hobbs & Shaw (Unofficial Soundtrack) (2019) [MP3|320 кб/с]<Soundtrack>
@@ -533,205 +736,6 @@ Various Artists - Наши песни - Песни Победы (2001) [APE|loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9851A021B636A2C72DE7C8F2F7A1C572F908118E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1336104   (278955) от 07.11.2019
-
-Мiръ Духа - Путь (2016) [MP3|320 Kbps] <New age, World music, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278955.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вдох Творения
-02. Искры Богов
-03. Сквозь Миры
-04. Новое начало(   Читать дальше...   )Жанр: New age, World music, AmbientПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB21ADDE019B4CEEED196533D7D466FB1CB25EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082124   (278762) от 12.12.2016
-
-VA - Office Christmas Party (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Calvis - Intro (00:11)
-02. DJ Calvis - Deck Da Club Intro (00:05)
-03. Ying Yang Twins - Deck Da Club (03:41)
-04. The Struts - Kiss This (02:57)(   Читать дальше...   )Жанр: Soundtrack,Продолжительность: 00:44:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FCD94613006A1DAEE4294EE25D6C9150EC62898
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082373   (278755) от 12.12.2016
-
-VA - Suicide Squad (Unofficial Soundtrack) (2016) [MP3|320 кб/с]<Hip-Hop, Rock, R&B>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ConfidentialMX - I Started a Joke (feat. Becky Hanson) (03:11)
-02. Grace - You Don't Own Me (feat. G-Eazy) (03:20)
-03. Sweet - Ballroom Blitz (04:01)Жанр: Soundtrack, Hip-Hop, Rock, R&B •Продолжительность: 01:37:56 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFDF62859174C56B1E6B0887D17B75FA8F24218B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1187692   (278721) от 29.11.2017
-
-Sean Evenett - My Peaceful Heart (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278721.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Peaceful Heart (3:31)
-02.  Spirituality & Happiness (3:53)
-03.  Energy of Life (3:45)
-04.  Magic Relaxation (3:53)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:17:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB36A06A99834EAA452C100A9796F1D9D9CE1335
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081844   (278632) от 12.12.2016
-
-Leonard Cohen - The Essential Leonard Cohen (2002) 2CD, Compilation [FLAC|Lossless|image + .cue] <Folk, Rock>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ain't No Cure for Love (4:52)
-02. Take This Waltz (5:59)
-03. First We Take Manhattan (5:52)
-04. Dance Me to the End of Love (live) (6:06)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 02:36:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:578B3A6A9E6C0E62E19BF8FBD76F18ACF81EF88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1082350   (278529) от 12.12.2016
-
-Atlantida Project - Bezdna (2016) [MP3|320 Kbps] <Cyberfolk / Electronic / Ethnic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278529.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Бездна (02:54)
-02. Бхавани дайани (05:04)
-03. Красная королева (03:35)
-04. Ничего нового (feat. Noize MC) (04:31)(   Читать дальше...   )Жанр: Cyberfolk / Electronic / Ethnic / RockПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4EE5F6404BBE81043050313A939AB055AD56ED6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 272752   (278284) от 19.12.2010
-
-Goran Bregovic - Discography (1989..2008) [MP3|320 kbps]<Balkan Ethno, World Music>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278284.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Balkan Ethno, World MusicПродолжительность: 16:05:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:249B7FD2ED0003BD3C953234B57C6EE9D92675A6
 ```
 
 https://mybot314.ru/tekegram_catalog/

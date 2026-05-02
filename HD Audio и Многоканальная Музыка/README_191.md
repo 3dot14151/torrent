@@ -1,3 +1,177 @@
+###  Публикация: 1787269   (68828) от 24.03.2025
+
+Dawn Brothers - Cry Alone (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Do Me Wrong (3:53)
+02.  Can't Let You In, Can't Let You Out (3:33)
+03.  I Will Never Hold Your Heart Again (4:45)
+04.  I Cry Alone (3:31)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:47:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652CEEE426439FA8F04436D629FFD9484DEE8CB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787308   (68827) от 24.03.2025
+
+The Lewis Express featuring Chip Wickham - Doo-Ha! (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68827.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk On (4:47)
+02. Run Tell That (5:37)
+03. Cold Catch (5:46)
+04. Slice, Diced and Fried Twice (3:29)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C406A6EB58186ABE5E912EA9DC1C3CA9C3D8BF00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787293   (68826) от 24.03.2025
+
+Defender - Dying to Live (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68826.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walk to the Gate [00:01:17]
+02. Dying to Live [00:03:06]
+03. Survivor [00:03:03]
+04. Time for Freedom [00:04:55](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFBC6062CD544D38A17BA039A8AFF18430926250
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787273   (68825) от 24.03.2025
+
+Kenny Wayne Shepherd & Bobby Rush - Young Fashioned Ways (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues, Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68825.jpg" />
+</div>
+
+
+###  Подробнее
+
+09. Who Was That (4:13)
+01. 40 Acres (How Long) (5:41)
+02. Hey Baby (What Are We Gonna Do) (3:59)
+03. Uncle Esau (4:44)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:48:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C447070C37D605D4DA2E2D2AA5A40538F943ED9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787049   (68823) от 24.03.2025
+
+Aska - Knight Strike (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68823.jpg" />
+</div>
+
+
+###  Подробнее
+
+• 01. 1944 (6:48)
+• 02. Queen of Mirrors (4:30)
+• 03. Soul Stealer (4:40)
+• 04. Love Then Oblivion (5:21)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:58:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9550EF7E8398234EFA1C47C61CB642D555C3413C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1787260   (68820) от 24.03.2025
+
+Manic Street Preachers - Critical Thinking (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Rock, Rock, Indie Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68820.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Critical Thinking [3:02]
+02 - Decline & Fall [3:43]
+03 - Brushstrokes of Reunion [3:36]
+04 - Hiding in Plain Sight [3:35](   Читать дальше...   )Жанр: Alternative Rock, Rock, Indie Rock, Pop RockПродолжительность: 00:41:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A721CBD8AAF5CDA4B40836800A826F05EDDCD3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1787279   (68817) от 24.03.2025
 
 Prisoners Unite - Aegis and valor (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -571,180 +745,6 @@ Massimo Rosner - Long Rest (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Free Ja
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA3CE4972D0E4CE3841693279889B6E2EAE27F57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787666   (68723) от 26.03.2025
-
-Geraint Watkins and The Mosquitoes - Here and There (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68723.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Deep In The Heart Of Texas (3:50)
-02.  House On The Prairie (3:09)
-03.  Go West (3:45)
-04.  Rollin' Man (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:45DA9700352E609E2AD2A34C2F2759ED5FCB97C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787669   (68720) от 26.03.2025
-
-Horse Drawn Cadillac - Mapless (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Kinda (3:22)
-02.  Chasing (5:11)
-03.  I'm Still Holding Beers (4:03)
-04.  Copyright Wrong (7:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A39E85CA637C85F4090BFDAF49E582E12343EF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787662   (68718) от 26.03.2025
-
-Diem Gartopolus - Nor Th (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  New York (3:45)
-02.  Detroit (3:19)
-03.  New Orleans (3:42)
-04.  San Luis (3:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C78FFBC82B399017CB50642F05BA08508B494AA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787677   (68717) от 26.03.2025
-
-Huckleberry - Huck it (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68717.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  You're only foolin' (2:17)
-02.  Sorry (3:54)
-03.  Sweet thing (3:33)
-04.  Everybody else (5:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40BEA449A8D7C3D25EA446EA0358491C5D4F5734
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787655   (68716) от 26.03.2025
-
-Albert White - The Definitive Albert White (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68716.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Let's Go (2:45)
-02.  Untie Me (2:56)
-03.  Little Mixed Up (3:36)
-04.  Gypsy Woman (2:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297ADCFEE710739FCB6ECEE439C049D97A637AC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1787830   (68707) от 27.03.2025
-
-Ancient Silence - The 1st Album (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Italo-Disco, Euro-Disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hunter of the Night (3:14)
-02. Heart Survivor (4:23)
-03. Good Love (4:18)
-04. You're My Heartbeat Melody (3:21)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72A1867488D4B20F14CE8A05A267ACEC13F0465
 ```
 
 https://mybot314.ru/tekegram_catalog/

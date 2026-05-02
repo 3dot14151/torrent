@@ -1,3 +1,61 @@
+###  Публикация: 1560982   (517714) от 02.07.2022
+
+Markus Schulz - Global DJ Broadcast (Sunrise Set) (2022-06-30) [MP3|320 Kbps] <Progressive House, Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517714.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jon Hopkins - Love Flows Over Us in Prismatic Waves
+02. Chicane - Offshore (Disco Citizens Evolution Mix)
+03. Marsh - Free
+04. Nora En Pure - Thermal(   Читать дальше...   )Жанр: Progressive House, TranceПродолжительность: 02:00:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:645F8A983F787DFA265C286AB8013FCF29E4A247
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1560899   (517661) от 02.07.2022
+
+Tiesto - Tomorrowland Friendship Mix (2022-06-30) [MP3|320 Kbps] <Electro Pop, Big Room, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_517661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tiësto & Charli XCX - Hot In It
+02. Alesso & Tove Lo vs. Galantis & Becky Hill - Heroes (We Could Be) vs. Run (Ango & Luke Alexander Edit)
+03. Sigala - Melody (Tiësto Remix)
+04. DallasK & Dark Heart - Time (Sevek Remix)(   Читать дальше...   )Жанр: Electro Pop, Big Room, Bass HouseПродолжительность: 01:00:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2BA1C96A19E5258A76C71851AE7A77E3FE4C8501
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1315132   (513629) от 19.07.2019
 
 Aly & Fila - Future Sound Of Egypt 607 (John '00' Fleming Takeover) (2019-07-17) [MP3|320 Kbps] <Trance>
@@ -681,64 +739,6 @@ Vintage Culture - BBC Radio 1 Essential Mix (Hï Ibiza, Spain) (2022-07-30) [MP3
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CAF2BF9090BCF7C872FCFA1043805C56D6E4746
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1568332   (464084) от 07.08.2022
-
-Swedish House Mafia - BBC Radio 1 Essential Mix (Ushuaia Beach Club Ibiza, Spain) (2022-08-06) [MP3|~245 Kbps (V0)] <Electro House, Tech House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464084.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Swedish House Mafia - Can U Feel It
-02. Swedish House Mafia - It Gets Better vs. Greyhound (Swedish House Mafia Mashup) w/Swedish House Mafia - Can U Feel It (Acappella)
-03. Swedish House Mafia ft. Tinie Tempah - Miami 2 Ibiza (Swedish House Mafia 2022 Rework) w/Swedish House Mafia - Can U Feel It (Acappella)
-04. Shadow Child - Space Riot(   Читать дальше...   )Жанр: Electro House, Tech HouseПродолжительность: 01:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4ACE4267E480B8C63C5A12976E2D91F98E1A3AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162375   (459217) от 01.09.2017
-
-VA - Aly & Fila - Future Sound Of Egypt 511 (2017) [MP3|320 Kbps] <Trance, Progressive Trance, Progressive House>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459217.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Super Flu - Mygut (Solomun Remix)
-02.Estiva - Doorlopen
-03.Dousk - Whisper Unit
-04.Alikast - Winter Rain(   Читать дальше...   )Жанр: Trance, Progressive Trance, Progressive HouseПродолжительность: 01:58:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D82A6F125F7CDC7498CDF8A094B137E843194598
 ```
 
 https://mybot314.ru/tekegram_catalog/

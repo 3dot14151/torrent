@@ -1,3 +1,61 @@
+###  Публикация: 1311837   (538305) от 01.07.2019
+
+Dinah Washington - Jazz Profile (1962 - 1963) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538305.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destination Moon [2:33]
+02. The Blues Ain't Nothin [3:45]
+03. Lover Man [3:00]
+04. Don't Say Nothin' at All [2:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A8FEBA2C1F57554DF9598E80FE4259979589E0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1311828   (538304) от 01.07.2019
+
+Count Basie - Jazz Profile (1959 - 1961) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Little Tempo Please [3:07]
+02. Corner Pocket [5:14]
+03. I Needs to Be Be'd With [4:22]
+04. Segue in C [8:19](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:939FB65F1CCEA7F53FCB2BBA6907E0B6CB7FA6A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1050552   (538082) от 08.09.2016
 
 Keiko Matsui - Journey To The Heart (2016) [FLAC|Lossless|image + .cue] <Smooth-Jazz, Pop Jazz Modern>
@@ -687,64 +745,6 @@ Lester Bowie's Brass Fantasy - The Fire This Time (1992) [FLAC|Lossless|image + 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B5C63A960DDC255FB631FB4146F4FD46DD6F66A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154680   (535422) от 02.08.2017
-
-Members Of The Woody Herman Orchestra - A Tribute To Woody Herman (1997) Green Hill [FLAC|Lossless|image + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535422.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Four Brothers [03:23]
-02. Woodchopper's Ball [04:53]
-03. Apple Honey [03:34]
-04. Goosey Gander [03:41](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:30:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76DB95F0096A68D3751EF492422FE75D847798B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154953   (535416) от 02.08.2017
-
-Weather Report - This Is This (1986) [FLAC|Lossless|image + .cue] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_535416.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. This Is This (7:08)
-02. Face The Fire (2:34)
-03. I'll Never Forget You (7:51)
-04. Jungle Stuff, Part I (4:44)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:45:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC95C2DFE037013342B9039B4360EC01FFC41DD8
 ```
 
 https://mybot314.ru/tekegram_catalog/

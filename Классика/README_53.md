@@ -1,3 +1,32 @@
+###  Публикация: 1724574   (55929) от 20.05.2024
+
+VA - The Essentials: Classical Crossover (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Классика (сборники) (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55929.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Lieder aus Franz Schubert's Schwanengesang, S. 560 No. 7, Ständchen (6:04)
+02. Sergey Bryukhno - Cinematic (2:47)
+03. Sergey Bryukhno - Harpsichord Concerto No. 5 in F Minor, BWV 1056 II. Largo (2:46)
+04. The AI Consort - Canon and Gigue in D Major, T. 377 I. Canon (4:16)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:15:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17765DFA5EFED270B60973D57F46512548917916
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728332   (54154) от 06.06.2024
 
 VA - Best Classical Music: 50 Masterpieces (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -713,35 +742,6 @@ Secret Garden - Songs In The Circle Of Time (2024) [FLAC|Lossless|WEB-DL|tracks]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:25FE0C67C61A2E9F80EC9B362D23E979D8D4B421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750897   (42724) от 22.09.2024
-
-VA - Classical Piano Masters (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Axel Gillison - 3 Gymnopédies No. 1, Lent et douloureux (3:52)
-02. Henrik Måwe - Nocturnes, Op. 9 No. 2 in E-Flat Major. Andante (4:07)
-03. Axel Gillison - Suite Bergamasque, L. 75 III. Clair de lune (5:56)
-04. Henrik Måwe - Gnossiennes No. 1, Lent (3:08)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:33:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7DFEB8DC50EF5182C643B6D1871507A7A0ECA9E0
 ```
 
 https://mybot314.ru/tekegram_catalog/

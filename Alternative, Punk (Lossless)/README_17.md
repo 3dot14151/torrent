@@ -1,3 +1,61 @@
+###  Публикация: 1278721   (768528) от 26.01.2019
+
+The Cure - 4:13 Dream (2008) Geffen Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768528.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Underneath The Stars (6:18)
+ 02. The Only One (3:57)
+ 03. The Reasons Why (4:35)
+ 04. Freakshow (2:30)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, New WaveПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B3D21E4000BB102F441FBA85258451C7D06A7F5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1278552   (768474) от 26.01.2019
+
+Steve Gunn - The Unseen in Between (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768474.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. New Moon (05:10)
+02. Vagabond (05:01)
+03. Chance (04:25)
+04. Stonehurst Cowboy (03:41)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:44:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D67F2FFCFCF3A0FBA48E01D540DA3927D20E331D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1125499   (768053) от 15.04.2017
 
 Cold War Kids - La Divine (2017) [FLAC|Lossless|tracks + .cue] <Indie Rock>
@@ -687,64 +745,6 @@ Papa Roach - Who Do You Trust? (2019) E7M [FLAC|Lossless|tracks + .cue] <Alterna
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8849924AEBB8ED7B74E62FE23DB1D72F1EF9C822
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1523545   (749794) от 12.01.2022
-
-Skillet - Dominion (2022) [FLAC|Lossless|tracks] <Alt.Rock, Christian Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749794.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Surviving The Game (3:58)
-02. Standing in the Storm (4:17)
-03. Dominion (3:51)
-04. Valley of Death (4:27)(   Читать дальше...   )Жанр: Alt.Rock, Christian MetalПродолжительность: 00:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31A1079B44DF41891D71FE2A2BBD1383C9E0FC0C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282046   (746789) от 11.02.2019
-
-Jake Shears - Jake Shears (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746789.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction (00:24)
-02. Good Friends (03:30)
-03. Big Bushy Mustache (03:35)
-04. Sad Song Backwards (04:17)(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:45:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BBC5FE3C9092813E419DDA2D0BC87030E158AC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

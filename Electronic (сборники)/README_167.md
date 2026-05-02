@@ -1,3 +1,61 @@
+###  Публикация: 1419899   (335714) от 30.10.2020
+
+VA - Interior Lounge Sounds Vol.05 (2020) [MP3|320 Kbps] <Lounge, Background, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335714.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bastian Clark - Mister Key
+002. Lounge Ibiza Cafè - Coffee
+003. Stepo Del Sol - Touch My Soul
+004. Daniel Ray - Wrapped Around(   Читать дальше...   )Жанр: Lounge, Background, DowntempoПродолжительность: 09:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A8BD21B33DD8C3862DB3A6AAC3C65F619C55075
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1419584   (335700) от 30.10.2020
+
+VA - The Secret Nightly Ride (2020) [MP3|320 Kbps] <Chillout, Relax, Ambient>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335700.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Free South Project - In The Front Row
+002. J. R. Haim - Yasmin
+003. Hidden Rivers - Rosunn
+004. Vip Pass - Love Is (Soft Chill Mix)(   Читать дальше...   )Жанр: Chillout, Relax, AmbientПродолжительность: 08:43:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9A54418A3B31D6CC380DFAEAFA82CF6D00C60268
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1419974   (335607) от 30.10.2020
 
 VA - Fresh Sound Trance Mix (2020) [MP3|320 Kbps] <Trance>
@@ -693,64 +751,6 @@ Meteora - Gradients (2015) [MP3|320 кб/с]<Spacesynth, New wave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF69BC39DAE1432C882FEB68BA90FC106E114246
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331449   (332160) от 15.10.2019
-
-VA - Best tracks of Transitions by John Digweed on Kiss 100. 2005 - 2006 Volume 3 (2019) Compiled by Firstlast [MP3|192-320 Kbps] <Progressive House, Techno House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Grid - Floatation (1992) (7:02)
-02. Merz - Mentor (Caged Baby 'Italian Baby Sauce' remix) (5:37)
-03. Depeche Mode - Precious (Michael Mayer Balearic Mix) (7:18)
-04. Trentemoller - Prana (5:14)(   Читать дальше...   )Жанр: Progressive House, Techno House, Deep HouseПродолжительность: 09:04:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60CBEEE7E53E87CB70112BD20973A07365488CD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1331413   (332159) от 15.10.2019
-
-VA - Groove Techno Tools (2019) [MP3|320 Kbps] <Techno, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332159.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Volunteer - Levitating Stones
-002. Greyhead - Llantos Del Desierto
-003. B-Front - Undiscovered
-004. Devin Wild - Mind Bending(   Читать дальше...   )Жанр: Techno, ElectroПродолжительность: 09:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:122522658401E7A71598A110C0B8F9B167692CF1
 ```
 
 https://mybot314.ru/tekegram_catalog/

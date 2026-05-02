@@ -1,4 +1,62 @@
 https://t.me/izofen
+###  Публикация: 1868441   (1067637) от 
+
+The Black Keys - Peaches! (2026) [FLAC|Lossless|WEB-DL|tracks] <Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where There's Smoke, There's Fire (05:01)
+ 02. Stop Arguing Over Me (04:02)
+ 03. Who's Been Foolin' You (03:44)
+ 04. It's a Dream (03:37)(   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:44:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9DE6DCD3D6596C451D1C3530F9C2C7F6CC683598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866043   (1065904) от 
+
+Levellers - Mouth To Mouth (1997) [FLAC|Lossless|image + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1065904.jpg" />
+</div>
+
+
+###  Подробнее
+
+1		Dog Train	4:30
+2		Beautiful Day	4:03
+3		Celebrate	4:03
+4		Rain And Snow	1:37(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0FD945C4D017B1AEAA0CAA1826AF4981283E310
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1865378   (1065218) от 15.04.2026
 
 Flickerstick - Welcoming Home The Astronauts (2001) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -688,64 +746,6 @@ Anti-Flag - Lies They Tell Our Children (2023) [FLAC|Lossless|WEB-DL|tracks] <Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C722AD6CA8673E4998DA92D7DF766CD3C8442398
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606292   (1044543) от 21.01.2023
-
-Nina Hagen – Love (1987) [FLAC|Lossless|tracks + .cue]<New Wave, Punk, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zarah ( Ich Weiss, Es Wird Einmal Ein Wunder Geschehn )
-02. Smack Jack
-03. TV-Glotzer ( White Punks On Dope )
-04. Universelles Radio(   Читать дальше...   )Жанр: New Wave, Punk, Pop RockПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FB2A10D95F58EAC16872F9AE377C026899CB46E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606735   (1044331) от 23.01.2023
-
-New Found Glory - Make The Most Of It (2023) [FLAC|Lossless|tracks + .cue] <Pop Punk, Alt Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044331.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Dream Born Again (04:21)
-2. Mouth To Mouth (04:12)
-3. Get Me Home (03:30)
-4. Watch the Lilies Grow (04:33)(   Читать дальше...   )Жанр: Pop Punk, Alt RockПродолжительность: 00:56:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C886316A8CFECADC6E20526A5D7C65EFD249A470
 ```
 
 https://mybot314.ru/tekegram_catalog/

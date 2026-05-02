@@ -1,3 +1,38 @@
+###  Публикация: 528637   (568191) от 30.07.2012
+
+J.J. Cale - Дискография (26 альбомов)(1967-2011)[MP3|320 kbps]<Blues|Americana|Swamp Rock|Red Dirte>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568191.jpg" />
+</div>
+
+
+###  Подробнее
+
+В 2000-х Джей Джей Кейл неоднократно сотрудничал с Эриком Клэптоном по инициативе последнего. В 2004 году Клэптон организовал в Далласе гитарный фестиваль «Crossroads», где выступил и Кейл. Там зародилась идея совместного альбома. Альбом «The Road To Escondido» был записан в августе 2005 года в Калифорнии. Оба музыканта совместно продюсировали этот проект, пели и играли в нем. 11 из 14 композиций диска написал Кейл, одну — Клэптон («Three Little Girls»), одну — Джон Майер, а еще одним треком стала версия классического блюза «Sporting Life Blues». Весной 2008 года этот альбом получил премию «Грэмми» в категории «Лучший альбом в стиле Современный блюз».
+
+Продолжительность: 00:57:05
+
+Треклист:
+01. Danger (5:34)
+02. Heads In Georgia (4:12)
+03. Missing Person (4:26)
+04. When This War Is Over (3:49)
+05. Sporting Life Blues (3:31)(   Читать дальше...   )Жанр: Blues, Americana, Swamp Rock, Red DirteЖанры: Americana, кейджн, блюз, свомп-рок, рэд дёртПродолжительность: 23:35:34
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1044185   (567295) от 19.08.2016
 
 Harvey Mandel - Cristo Redentor (1968) Remastered 2003, Raven Records [MP3|320 Kbps] <Blues, Psychedelic Rock>
@@ -716,35 +751,6 @@ Christ Ruest & Gene Taylor - It's Too Late Now (2017) [MP3|320 Kbps] <Chicago Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2BD1B93D474E809FDDAABEFEF8C270C99493AEED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1050044   (540645) от 07.09.2016
-
-VA - Nighttime Lovers Vol.25 (2016) [MP3|320 Kbps] <Electronic, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_540645.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. George Duke - Shine On
-2. Jeffrey Osborne - I Really Don't Need No Light
-3. Cat Miller - Ready Or Not
-4. Deja – Serious (Extended Version)(   Читать дальше...   )Жанр: Electronic, SoulПродолжительность: 01:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F4E91E18F259D43CB0F1B5D0ED3B945C7B13964
 ```
 
 https://mybot314.ru/tekegram_catalog/

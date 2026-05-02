@@ -1,3 +1,212 @@
+###  Публикация: 1092076   (940302) от 11.01.2017
+
+VA - Waiting For Chillout (2017) [MP3|320 Kbps] <Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940302.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Zero Feedback - Rien ne va plus - Don Gorda Project Remix
+02. Don Gorda Project - Do That Again
+03. Enrico Donner - I Need A Love
+04. Lazypojke - Ta en fika(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:28:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6C6F2B2837931A8C02A68EA2A8ECCE211BD183A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 175505   (939275) от 15.02.2010
+
+VA - House Vip (09.02.10) [MP3|128 - 320 kbps]<Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Spencer - Let's Rock (Scotty Remix) (5:24)
+02. David Guetta feat Kid Cudi - Memories (Armand Van Helden Vocal Remix) (5:29)
+03. Dirty Disco Youth - Minds...Off (4:52)
+04. Dj Cargo Pres. Kei Morton - Get Back (Easy Tech Extended Remix) (5:04)
+05. DJ Ivan Flash - Spin Around (Original Mix) (4:38)
+06. Flo Rida - Sugar(Electrical Brothers Radio Edit 2010) (5:17)
+07. Franco Maldini - This Is A Journey (STFU Remix) (6:10)
+08. Martin Solveig feat. Dragonette - Boys & Girls (Alex Astero & Evan Sax Club Mix) (6:01)
+09. MasterBlaster - Come Clean (Electrical Brothers Remix) (6:50)
+10. Ne!tan - 2night (Scott And Dave Remix) (3:39)(   Читать дальше...)Жанр: Electro House
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092731   (937425) от 13.01.2017
+
+VA - Best Release Of The Season (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937425.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  2 Man On Road - The Way (Original Mix)  4:48
+02.  Alex Nail - Evil Noise (Original Mix)  4:08
+03.  Alexey Suvorov - Our Dreams Come True (Original Mix)  7:25
+04.  Alien Craft - Raven Hunter (Original Mix)  3:18(   Читать дальше...   )Жанр: HouseПродолжительность: 02:20:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F47A2661346FFFA00B4D0D6966C0010197D241C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092832   (937419) от 13.01.2017
+
+VA - House Seduction  Vol.11 (2017) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Tsaho - Love in da House  3:55
+02.  E.M.C.K. - Can We Go (Club Mix)  4:40
+03.  Jeremy Bass & Rio Dela Duna - Tropicana  4:34
+04.  DJ Sign & Vince La Monica - Going Crazy  4:32(   Читать дальше...   )Жанр: HouseПродолжительность: 01:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E94870C866195D14E07D85086E609FD5FA99E31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092776   (937417) от 13.01.2017
+
+Will Fast - The Greatest Hits (2017) [MP3|320 Kbps] <Funky, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Will Fast & Major Lover - First Life (6:11)
+02.  Will Fast & Major Lover - I'll Be Back (5:24)
+03.  Touch Me  (4:43)
+04.  You & I  (4:25)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 00:50:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FFD971B053E7DDF3A3440B65B844E8129A98E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092890   (937411) от 13.01.2017
+
+VA - Candybeach Compilation 2016 (2017) [MP3|320 Kbps] <House, Tech House, Deep House, Electronic, Progressive, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937411.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alkalino - Distant Future [6:42]
+02. Ritmo Du Vela - It's Good [6:00]
+03. Dany Cohiba - Just Be Real [6:24]
+04. Twism & B3rao - Don't Hold Back [6:46](   Читать дальше...   )Жанр: House, Tech House, Deep House, Electronic, Progressive, DanceПродолжительность: 03:57:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41D51D6B0D2CF5D4DB3BFE0B11022352F767B0F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1093056   (937328) от 13.01.2017
+
+VA - Bodybuilding Girly Edition 2016 Top 50 (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Voice Output - Fastest
+02. Xenias - Banana
+03. Ulric Hopz - Provoi
+04. Xort Base - Useful(   Читать дальше...   )Жанр: HouseПродолжительность: 02:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3DFCC87C7F43E3713D036CC5F84452255D92012
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364434   (936406) от 03.03.2020
 
 VA - Lifting Makes You Strong Check into the Gym (2020) [MP3|320 Kbps] <House, Tech House, Deep House>
@@ -542,209 +751,6 @@ VA - Sirup Miami 2020 [MP3|320 Kbps] <House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:289B6EFD910A3A9BB6BD8B5E1344341A16E3DC9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366284   (924129) от 11.03.2020
-
-VA - Machine Prototype 12 (2019) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Daniel Hecke - Acid (Joe De Renzo Remix) [06:34]
-02. Callibry - Bubbles (Instrumental Mix) [05:33]
-03. Mountain P - The Groove (Miguel Serrano Remix) [06:35]
-04. Simone Cerquiglini - Inside The Box (Jack Liberto Remix) [05:32](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 03:45:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E5E6781A1CD5B87F7C6D72B4DA07819C4DDCE34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1366285   (924121) от 11.03.2020
-
-VA - Machine Prototype 13 (2020) [MP3|320 Kbps] <House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ernesto Ortega - Deep Thought (Joe De Renzo Remix) [06:15]
-02. Big Bunny - Atom (Sergii Petrenko Remix) [06:40]
-03. DJ Ex - Soze Ngiphinde (feat. Imasterz) (Radio Edit) [03:25]
-04. Denys Victoriano - Piece Of Your Heart (Radio Edit) [03:18](   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E04E3678EFB2088A514EF32CBF62B03C1DFB53D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095846   (922877) от 22.01.2017
-
-VA - Black Hole House Music 01-17 (2017) [MP3|320 Kbps] <House, Progressive, Vocal>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Marc Lee ft Angelika Borof - Something Inside Me  5:40
-02.  Frigid Armadillo ft Natalie Major - Electric Hearts (Original Mix)  6:44
-03.  The Overview Effect ft Luke Chable - Sweetness + Light  3:38
-04.  Quinten 909 & Andrey Exx ft Diva Vocal - U Got the Love (Max Lyazgin & Hugobeat Remix)  5:40(   Читать дальше...   )Жанр: House, Progressive, VocalПродолжительность: 01:17:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A571668C039C86E99CEC7060AAF2348CF1681F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096065   (922588) от 22.01.2017
-
-VA - Into The Wildness (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922588.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Branzei - I'll Never Be Free (original mix) (07:05)
-02. Dogus Cabakcor - Trouble (original mix) (04:20)
-03. Love Vibes & Valentina - Show Me (Deepjack & Altaci remix) (05:52)
-04. Andrey Keyton & Chunkee - Want Your Love (original mix) (05:19)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:34:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6204121A48D37306307FECB1E3088D188CB692C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095911   (922526) от 22.01.2017
-
-Vitalic - Voyager (2017) [MP3|320 Kbps] <Electro House, Nu-Disco>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922526.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Viaje (01:34)
-02. Waiting For The Stars (Feat. David Shaw) (03:52)
-03. Levitation (05:40)
-04. Hans Is Driving (Feat. Miss Kittin) (04:33)(   Читать дальше...   )Жанр: Electro House, Nu-DiscoПродолжительность: 00:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CE1B9C3E613DFF27CC9A4F465E1ECD07A476ED99
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096268   (920980) от 23.01.2017
-
-VA - Cinematic Chillout: Wintertime Collection (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Don Gorda Project - Dreamscape  6:11
-02.  Enrico Donner - Where the Sun Rises (Feat. Ali Rouass)  7:07
-03.  DJ Riquo - Deep Winds  5:08
-04.  Cane Garden Quartet - Sea Jam  5:24(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:29:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E0D788B2D5AB357A91C33E322ABDA670CF20C47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 988608   (920950) от 20.02.2016
-
-VA - Ibiza Fitness Music (2016) [MP3|320 кб/с] <Club, Progressive, Future House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex Phunk - Swept Away (Ibiza Workout Remix) 04:50
-02. We:Us - For The Night (Tropical House Fitness Edit) 04:20
-03. American Groove Junkies - Reach You (Sexy & Fit Mix) 03:34
-04. Summer Beats - Hold On (Dancefloor Fitness Mix) 04:06(   Читать дальше...   )Жанр: Club, Progressive, Future HouseПродолжительность: 02:54:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7A3D70BDE58A7D47174480C97B51C62AEA2C025
 ```
 
 https://mybot314.ru/tekegram_catalog/

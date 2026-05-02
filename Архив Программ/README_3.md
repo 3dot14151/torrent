@@ -1,3 +1,29 @@
+###  Публикация: 1604794   (1045155) от 15.01.2023
+
+AVS Audio Software 10.3.2.19 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045155.jpg" />
+</div>
+
+
+###  Подробнее
+
+AVS Audio Software представляет собой комплект из двух программ для обработки аудио файлов от AVS4YOU: AVS Audio Editor 10.3.2.567 и AVS Audio Converter 10.3.2.634.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F831731789508B7EDE75FB1880EEA0F792CE5930
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1604754   (1045154) от 15.01.2023
 
 Start Everywhere 1.3.5.31 (x64) Portable [Multi/Ru]
@@ -643,32 +669,6 @@ Windows 11 Manager - это универсальная утилита специ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9741F67F16155A5F323131A1281A5DD34F1FD4EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1605335   (1044947) от 17.01.2023
-
-WonderFox HD Video Converter Factory Pro 26.0 RePack (& Portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1044947.jpg" />
-</div>
-
-
-###  Подробнее
-
-HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B043FBF8CCB9FDF3B2CA4CBBFFB2CC71FC3EA154
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1039504   (594798) от 02.08.2016
+
+Zoot Sims - Choice (1954, 1959) Remaster, 2002, Toshiba[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.I'll Remember April [04:25]
+ 02.Flamingo [02:32]
+ 03.There Will Never Be Another You [05:05]
+ 04.Red Door [07:22](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 00:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:74AA24516198E8978A9A8A4B8E593DD80C755D13
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1039910   (594796) от 02.08.2016
+
+Charlie Mariano Quartet - Portrait Of France (2002) [FLAC|Lossless|tracks] <Jazz, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_594796.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Mer    04:40
+02. C'est Si Bon    05:48
+03. Les Parapluies De Cherbourg    05:17
+04. La Vie En Rose    04:42(   Читать дальше...   )Жанр: Jazz, BopПродолжительность: 00:55:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75C58B670984062669CBA3BBA6D99063F3115213
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039509   (594794) от 02.08.2016
 
 Sonny Stitt Quartet With Don Patterson - Low Flame & Feelin's (1962) 2013, Essential Jazz Classics[FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
@@ -687,64 +745,6 @@ Ron Miles - Rainbow Sign (2020) Blue Note Records [FLAC|Lossless|tracks + .cue] 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2DCBFD8D66FF57A7DF68623D18E6A7F9F6246070
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550977   (591238) от 13.05.2022
-
-Simone Graziano Frontal - Sexuality (2019) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kinkali - 5:04
-02. Afror - 8:42
-03. Unsleepers - 5:06
-04. Buran  - 8:55(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:43:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6AEAAFB6530623EF609969B00FB0D32E416F11D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1550910   (591237) от 13.05.2022
-
-Rufus Reid Quintet - The Gait Keeper (2003) Sunnyside [FLAC|Lossless|image + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_591237.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Meddler [8:31]
-02. Ode to Ray [6:10]
-03. Whims of the Bluebird [10:09]
-04. Falling in Love [7:51](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:836C40AE7A3A0D272E79313F7F4DF1323C87AD16
 ```
 
 https://mybot314.ru/tekegram_catalog/

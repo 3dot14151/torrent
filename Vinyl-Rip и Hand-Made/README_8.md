@@ -1,3 +1,158 @@
+###  Публикация: 616296   (976088) от 09.02.2013
+
+U2 - Achtung Baby (1991) [FLAC 2.0 24/192|tracks (Vinyl-Rip)]<Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_976088.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Zoo Station 4:30
+A2. Even Better Than the Real Thing 4:04
+A3. One 3:54
+A4. Until The End Of The World 5:31
+A5. Who's Gonna Ride Your Wild Horses 4:31
+A6. So Cruel 4:21
+B1. The Fly 4:38
+B2. Mysterious Ways 3:42
+B3. Tryin' to Throw Your Arms Around the World 4:37
+B4. Ultraviolet (Light My Way) 4:40(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36A890FFA649118C5568151D5A8EE3EDC5439569
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 743561   (974369) от 09.01.2014
+
+Patricia Kaas - Mademoiselle Chante... (1988) [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop, Chanson>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_974369.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mon Mec A Moi   (4:20)
+02.  Venus Des Abribus   (3:55)
+03.  D'Allemagne   (4:25)
+04.  Des Mensonges En Musique   (4:18)(   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:34:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4569D68A1729E88EBF9C677A6815528BCCFFE8D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974946   (973279) от 14.01.2016
+
+Максим Леонидов - Проплывая Над Городом (1997) [FLAC 2.0|16/44,1|image+.cue (MC-Rip)] <Rock & Roll, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973279.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1	Видение
+A2	(В Её Глазах) Хали-Гали
+A3	Девочка С Карибских Берегов
+A4	Дождь(   Читать дальше...   )Жанр: Rock & Roll, Pop RockПродолжительность: 00:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05DBF7039DE6573EEC563F9086F6E36F72D8AEE4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 617097   (973019) от 11.02.2013
+
+Queen - 13 Студийных альбомов + Mr. Bad Guy, Barcelona (1973-1992) [FLAC 2.0 24/192|image + .cue|tracks (Vinyl-Rip)]<Classic Rock>
+
+>>След.
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_973019.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Barcelona 5:40
+A2. La Japonaise 4:50
+A3. The Fallen Priest 5:47
+A4. Ensueno 4:21
+B1. The Golden Boy 6:06
+B2. Guide Me Home 2:40
+B3. How Can I Go On 4:02
+B4. Overture Piccante 6:43Жанр: Classic RockПродолжительность: 00:40:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:336438EA30105DCE5C9EB29D9EE3EDC5049C727D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 975609   (971775) от 15.01.2016
+
+Iron Maiden - The Number Of The Beast (1982) Reissue, 1987, Fame [FLAC 2.0 24/96|image (Vinyl-Rip)]<Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_971775.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Invaders (3:23)
+A2. Children Of The Damned (4:35)
+A3. The Prisoner (6:02)
+A4. 22.Acacia Avenue (6:36)(   Читать дальше...   )Производство: EMI / Fame - FA 3178Жанр: Heavy MetalПродолжительность: 00:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:672DDC282EB12BDF71CEBA73C1D3783DF4BC4E36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976326   (968655) от 18.01.2016
 
 Аквариум - 3 альбома (Белый альбом; Радио Африка; Равноденствие) (1987-1988) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Rock>
@@ -597,151 +752,6 @@ A4. Stay by Me (6:26)(   Читать дальше...   )Производств�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2F90EFB35DE2E7ADE63B7B4637B29FD79445BDAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 859025   (947050) от 12.01.2015
-
-Phil Collins - ...But Seriously (1989)  Incomplete version /1992, DRT/ [FLAC 2.0 24/96|image (Vinyl-Rip)]<Pop-Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_947050.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. That's Just The Way It Is (5:21)
-A2. Do You Remember? (4:36)
-A3. Something Happened On The Way To Heaven (4:53)
-A4. I Wish It Would Rain Down (5:26)(   Читать дальше...   )Жанр: Pop-RockПродолжительность: 00:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83C0E242383563370901987D24639BC1F65DDE0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1090723   (945504) от 07.01.2017
-
-VA - RETROспектива, часть V: Эстрадные оркестры V (1929-1966) [FLAC 1.0|48/24|tracks|Vinyl-Rip] <Retro, Instrumental>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01  Гос. эстрад. орк. п.у. Л. Утесова - Быстрый вальс (вальс)
-02. Гос. эстрад. орк. п.у. Л. Утесова - Бальная полька (танец)
-03. Дух. орк. МО СССР п.у. Г. Ф. Запорожца - Над волнами (вальс)
-04. Эстрад. орк. ВР п.у. Б. П. Карамышева - Оборванные струны (старинный вальс)(   Читать дальше...   )Жанр: Retro, InstrumentalПродолжительность: 00:57:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F64EC1438CFF672E72B126F86D5C54F55209E3FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983407   (943614) от 06.02.2016
-
-Black Sabbath - Группа Блэк Саббат (1989) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Hard Rock, Psychedelic Rock, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943614.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Black Sabbath · Черная суббота  6:16
-2. N.I.B. · Эн.Ай.Би.  6:04
-3. Behind The Wall Of Sleep · За стеной сна  3:40(   Читать дальше...   )Жанр: Hard Rock, Psychedelic Rock, Heavy MetalПродолжительность: 00:40:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B4F7CA1DFB055F827D8A4D5B3632AE2936C4CE02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 983450   (943612) от 06.02.2016
-
-Dire Straits - Dire Straits (1978) Phonogram [FLAC 2.0|192/24|image+cue|Vinyl-Rip] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Down To The Waterline
-02 - Water Of Love
-03 - Setting Me Up
-04 - Six Blade Knife(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AB81131B695136D0A311CD203087858A122DDC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1091572   (942728) от 09.01.2017
-
-Supertramp - The Very Best Of (1992) [FLAC 2.0|192/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942728.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goodbye Stranger (5:48)
-02. The Logical Song (4:10)
-03. Bloody Well Right (4:33)
-04. Breakfast In America (2:42)(   Читать дальше...   )Производство: Ладъ - LD 238016Жанр: Progressive RockПродолжительность: 00:54:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:765744893737E078A9B71E1425439F59545B8026
 ```
 
 https://mybot314.ru/tekegram_catalog/

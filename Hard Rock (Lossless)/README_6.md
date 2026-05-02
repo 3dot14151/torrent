@@ -1,3 +1,119 @@
+###  Публикация: 1448934   (1030243) от 20.02.2021
+
+Natural Born Machine - Human (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moonchild
+02. Machine
+03. Won't Be Friends
+04. Monster(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:39:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AFAF65F58145AE8E79849717CB298D5C9F1FF1B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1449094   (1030240) от 20.02.2021
+
+Raw Silk - The Borders Of Light (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Lifetime
+02. Nobody Fills The Loneliness
+03. Chimera
+04. Night Time Angels(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:279B9146A705AC2D6D17023D166120BAC5C9DFA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448894   (1030207) от 20.02.2021
+
+Silo - Glitter & Gold (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Country Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030207.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Start The Show
+02. Glitter & Gold
+03. War Paint
+04. After Midnight(   Читать дальше...   )Жанр: Hard Rock, Country MetalПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B80EA67BEAE8A23920B2F80A79B395C1B1438DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1000421   (1029954) от 29.03.2023
+
+Rainbow - 8 Studio Albums, 12 Live, 7 Compilations, 1 Box Set (1975 - 2018) 86 CD [FLAC|Lossless|image + .cue|tracks + .cue] <Hard Rock>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029954.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весной 1975 года, недовольный фанковыми пристрастиями своих коллег, Ричи Блэкмор  ушел из "Deep Purple". Чтобы идти свои путем и играть ту музыку, которую ему хотелось, гитарист организовал новую команду, получившую название "Rainbow". Партнерами Ричи по этому проекту стали музыканты группы "Elf", разогревавшей в свое время "Deep (   Читать дальше...   )Список альбомов:
+1975 - Ritchie Blackmore's Rainbow
+1976 - Rising
+1977 - On StageЖанр: Hard RockПродолжительность: 63:52:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB3ECC45661A010AAB5EF27A480A5745FA5F0FE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1449874   (1029569) от 23.02.2021
 
 Boys From Heaven - The Great Discovery (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -631,122 +747,6 @@ Rock Boulevard - Stand And Fight (1987) Remastered, 2020, Metallic Blue Records 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB49D1ACD23DC1E488F08559F7B3435D2BA4CD8D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451476   (1028379) от 02.03.2021
-
-Epitaph - Lоng Аgо Тоmоrrоw (2019) [FLAC|Lossless|tracks + .cue] <Progressive Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028379.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Keep Standing Like A Rock
-02. Going Fishing
-03. Cross The Borderline
-04. Long Ago Tomorrow(   Читать дальше...   )Жанр: Progressive Hard RockПродолжительность: 00:58:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDCBA06AECFEC89B1249F931078643F79DC0E97B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1451376   (1028372) от 02.03.2021
-
-Black Paisley - Rambler (2020) [FLAC|Lossless|image + .cue] <Hard Rock, AOR, Blues-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1028372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Damned (4:00)
-02. Without Us (4:15)
-03. Higher Love (3:38)
-04. Save The Best (3:53)(   Читать дальше...   )Жанр: Hard Rock, AOR, Blues-RockПродолжительность: 00:31:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3E351FD5124BFC262C620827551CE576C415FC9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452127   (1027775) от 06.03.2021
-
-White Lion - Wait (1988) CDS, Single, Japan [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wait (Extended Remix) (06:28)
-02. Tell Me (04:31)
-03. Broken Heart (Live) (03:53)
-04. Wait (Live) (04:00)Жанр: Hard RockПродолжительность: 00:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:147B49FAD49806405DD4966E55E1BC48DFDF99BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1452505   (1027768) от 06.03.2021
-
-Guardian - Miracle Mile (1993) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1027768.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Dr. Jones & The Kings Of Rhythm
-02. Shoeshine Johnny
-03. Long Way Home
-04. I Found Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:57:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638DB731CCB9172B5F431DB5DFCA8D713A6AE898
 ```
 
 https://mybot314.ru/tekegram_catalog/

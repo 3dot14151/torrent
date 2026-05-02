@@ -1,3 +1,61 @@
+###  Публикация: 1663513   (186595) от 22.09.2023
+
+Renee Rosnes - And The Danish Radio Big Band (2001) 2003, Blue Note Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Modern Big Band, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186595.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ancestors [9:02]
+02. Bulldog's Chicken Run [7:55]
+03. In This Moment [9:17]
+04. Black Holes [9:19](   Читать дальше...   )Жанр: Post-Bop, Modern Big Band, Piano JazzПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACCE1E68B59D56DF7677BB7697D7936A729AC0BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1663730   (186490) от 23.09.2023
+
+Sahib Shihab - Summer Dawn (1963) 2008, Rearward [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_186490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lillemor [7:59]
+02. Please Don't Leave Me [9:47]
+03. Waltz for Seth [6:20]
+04. Campi's Idea [8:27](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:38:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30AA929E44AD1D3C4CA85114EE8F1FE72F4416D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1663734   (186481) от 23.09.2023
 
 Renee Rosnes - As We Are Now (1997) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Winifred Atwell - The Winifred Atwell Collection (1994) BMG Australia [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3FF8DD851E722E682F31F46468FCAF0BC4A3439A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664915   (183895) от 28.09.2023
-
-Lori Williams - Behind the Smiles (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_183895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deja Vu 04:39
-02. It's Love 04:30
-03. Save Your Love for Me 05:26
-04. You Make Me Feel Alright 03:26(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5114BD6D04AD305D1E1FE921C2E5829801F4E708
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1427441   (183577) от 28.11.2020
-
-Kenny Dorham - Jerome Kern Showboat (1960) 1990, Bainbridge Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_183577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Why Do I Love You? [6:02]
-02. Nobody Else But Me [5:41]
-03. Can't Help Lovin' Dat Man [6:37]
-04. Make Believe [5:50](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D3CD5F322EF879840232504679B109772C0808F
 ```
 
 https://mybot314.ru/tekegram_catalog/

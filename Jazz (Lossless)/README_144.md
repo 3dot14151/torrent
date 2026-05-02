@@ -1,3 +1,61 @@
+###  Публикация: 1151071   (576245) от 17.07.2017
+
+Julie London - The Essential Recordings (1955 - 1962) 2CD, 2016, Primo [FLAC|Lossless|image + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576245.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Cry Me A River [02:54]
+02. I'm In The Mood For Love [02:33]
+03. Can't Help Lovin' Dat Man [03:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:773066343A7A6C8BB621F61A0860CECA2CA54168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1151056   (576241) от 17.07.2017
+
+Dean Martin - This Time I'm Swingin'! (1960) 2013, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Believe That You're in Love with Me [02:27]
+02. True Love [02:34]
+03. You're Nobody 'Til Somebody Loves You [02:15]
+04. On the Street Where You Live [03:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF042DF664A703646D0799C4FB83536C7239AB00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1554652   (575779) от 31.05.2022
 
 Theo Croker - Blk2life, A Future Past (2021) [FLAC|Lossless|tracks + .cue] <Jazz-Funk, R&B, Contemporary Jazz>
@@ -687,64 +745,6 @@ Bill Charlap Trio - Uptown, Downtown (2017) Impulse [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BBD2D695ABDDFB8D61B250741C88F82663771476
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1234369   (572810) от 04.07.2018
-
-Nina Lynn - 2am Kinda Night (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572810.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chasing The Moon
-02. Threads
-03. My Little Love
-04. Running(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 00:41:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF34D595756A7DBA9BF666CD061EEF33A8C7F06
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1043384   (572705) от 16.08.2016
-
-Incognito - In Search Of Better Days (2016) [FLAC|Lossless|image + .cue] <Funk, Rhythm & Blues, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_572705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love Born In Flames
-02. Just Say Nothing
-03. Everyday Grind
-04. Racing Through The Bends(   Читать дальше...   )Жанр: Funk, Rhythm & Blues, SoulПродолжительность: 01:15:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:212E7C141FE879C347D97FB87952A79032D1CBDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

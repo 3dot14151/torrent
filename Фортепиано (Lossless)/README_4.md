@@ -1,3 +1,38 @@
+###  Публикация: 586472   (135570) от 22.12.2012
+
+Sviatoslav Richter in Prague [FLAC|Lossless]<Classical, Sonata, Fantasy, Variations, Etude>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135570.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: classical, pianoПродолжительность: 01:03:17
+
+Composer: Franz Schubert (1797-1828)
+Composer: Franz Liszt (1811-1886)
+Performer: Sviatoslav Richter - piano
+
+Tracklist:
+Piano Sonata No. 21 in B flat major, D. 960:
+01. Molto moderato    (25:50)
+02. Andante sostenuto    (09:57)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682341   (131821) от 06.12.2023
 
 Carl Philipp Emanuel Bach, Keith Jarrett - Carl Philipp Emanuel Bach (2023) [FLAC|Lossless|image + .cue] <Classical, Fortepiano>
@@ -710,35 +745,6 @@ VA - Легкая музыка (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6558099A91551E38503366B41C14F1EC9330F202
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1720009   (57951) от 01.05.2024
-
-VA - Deep Sleep Classical Piano Music (2024) [FLAC|Lossless|WEB-DL|tracks] <Classical>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_57951.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sergey Bryukhno - Sonnet in C Major (1:25)
-02. Jonathan Yandel - Dawn (2:27)
-03. Sergey Bryukhno - Hope (1:29)
-04. Sergey Bryukhno - Passing Through the Memories (1:37)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2660FCFC3C276C20577A10608585237A067A26FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

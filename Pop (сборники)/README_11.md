@@ -1,3 +1,119 @@
+###  Публикация: 751571   (944309) от 31.01.2014
+
+Falco - 25 Best Songs (2014) [MP3|245 кб/с]<Europop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944309.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Me Amadeus 1985
+02. Der Kommissar 1982
+03. Vienna Calling 1985
+04. Wiener Blut 1988(   Читать дальше...   )Жанр: EuropopПродолжительность: 01:45:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D1A37B40D121444A765CD3A976468515352864D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983436   (943734) от 06.02.2016
+
+VA - Драйвовый жаркий музон (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943734.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Базиль - Ищи Другого
+02. Zara Larsson - Lush Life
+03. T - Pain - Coming Home
+04. Олеся Астапова & Jahroom - Ты(   Читать дальше...   )Жанр: PopПродолжительность: 06:17:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE5A1499F28F5FDFD8CA2494DC77763F036DB2D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091099   (943150) от 09.01.2017
+
+VA - Singles Chart Hot 100 Billboard (17 December) (2016) [MP3|128-320 Kbps] <Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943150.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. The Weeknd - Party Monster 04:09
+002. The Weeknd Feat. Daft Punk - Starboy 03:50
+003. The Chainsmokers Feat. Halsey - Closer 04:06
+004. Ariana Grande Feat. Nicki Minaj - Side To Side 03:46(   Читать дальше...   )Жанр: DanceПродолжительность: 06:15:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A35068AD9A2B8C9AC133B9FD80C75C9CFEB5BDE6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091090   (943142) от 09.01.2017
+
+VA - Singles Chart Hot 100 Billboard (31 December) (2016) [MP3|32-320 Kbps] <Pop , Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943142.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Rae Sremmurd feat. Gucci Mane - Black Beatles 4:52
+002. The Weeknd feat. Daft Punk - Starboy 3:51
+003. The Chainsmokers feat. Halsey - Closer 4:06
+004. Bruno Mars - 24k Magic 3:47(   Читать дальше...   )Жанр: Pop , DanceПродолжительность: 06:31:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60D5504CD4F7FF0091EE5990DEAEB9B18F63A3BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1091569   (943110) от 09.01.2017
 
 VA - New Year Jelly (2016) [MP3|320 Kbps] <Dance, Technodance, Euro-House>
@@ -626,122 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:21C11EC462CF93E4B6A15449467283F643983516
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364172   (937943) от 02.03.2020
-
-VA - The Dance Riot (2020) [MP3|320 Kbps] <Dance, Disco, EDM>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937943.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Donny And Delano Mendoza - Can't Get This Beat Out Of My Head
-002. Sigala & Becky Hill - Wish You Well
-003. Nora En Pure - Heart Beating
-004. Los Reggaetronics - Taki Taki(   Читать дальше...   )Жанр: Dance, Disco, EDMПродолжительность: 11:54:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:81DA368960C3E9A036C6BB5E6CBDCCA7B7B6C8A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364297   (937731) от 02.03.2020
-
-Donna Summer - Queen of Disco (2020) 2CD Compilation [MP3|320 Kbps] <Pop, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Once Upon A Time
-02. Mystery Of Love
-03. Work That Magic
-04. Cold Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7810074557D882617A1C5BD8387D443F21D150D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984782   (937139) от 10.02.2016
-
-VA - Evolution of Disco - CD2 (1964-2015) [MP3|192-320 кб/с] <Funk,Disco,House>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Debonair - Tell You More  06:14
-02. Oliver Cheatham - Get Down Saturday Night (special extended)  07:34
-03. Dj Steef - It's Cool  06:48
-04. Phats And Small - Turn Around  03:45(   Читать дальше...   )Жанр: Funk,Disco,HouseПродолжительность: 05:20:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13015E19BE7429459EFF76FF6D6C88ABFF54FDA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985004   (937036) от 10.02.2016
-
-VA - German dance hits №3 (2016) [MP3|256-320 kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937036.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Coldplay - Adventure of a Lifetime
-002. Sido - Astronaut (feat. Andreas Bourani)
-003. K.I.Z. - Hurra die Welt geht unter
-004. Shawn Mendes - Stitches(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4E5A23BF62994A577F3B2A153F07AE24C181F73
 ```
 
 https://mybot314.ru/tekegram_catalog/

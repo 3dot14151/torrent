@@ -1,3 +1,119 @@
+###  Публикация: 1594562   (178202) от 01.12.2022
+
+D. K. - Above The Clouds (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178202.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Whiskey And The Blues (3:49)
+02. Housekeeping Blues (4:06)
+03. Stay A Little While (3:58)
+04. When I Die (4:03)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CE57EB9838B9A1713304A6F74140629E7910F2FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594494   (178163) от 01.12.2022
+
+Karma Jack - Lights Out Ep. 1 (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178163.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I'm On Fire (3:56)
+02. Fallen Man (3:41)
+03. Lights Out (4:13)
+04. Days of Old (4:32)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:23:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:679F38B8D5308A3C297689C440FA9087BC5D8731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594510   (178161) от 01.12.2022
+
+Nidaros Blueskompani - Live in Nidaros studio (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's allright, it's all good. (Live) (3:11)
+02. Stick with me baby. (Live) (4:25)
+03. Cool rockin' grandpa. (Live) (4:20)
+04. Tuff little cookie. (Live) (3:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D6571544986F61591845E6D74C24219F8E56A20
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1594482   (178159) от 01.12.2022
+
+Sara Bae - Deep South (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_178159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deep South (3:16)
+02. King of love (3:21)
+03. Moon and sun (3:21)
+04. Mama bear (3:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:38:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F1B16011F1E3D8944763D22AE11D52725D4EA3C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1594576   (178139) от 01.12.2022
 
 The Wicked Lo-Down - We Hot (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -629,122 +745,6 @@ Bridget Kelly Band is a high-energy electric blues band that rocks the house wit
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EED7DBDAD34C055BA7C287C3FF905DCD6E86B02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429972   (175165) от 08.12.2020
-
-VA - The R&B and SOUL Room (2020) [FLAC|Lossless|WEB-DL|tracks] <Soul, Funk, R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175165.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Papik - Sunny (Sunrise edit) (03:14)
-02. The Tangram - Awesome (03:48)
-03. Giorgia Zantei - Daughters (03:35)
-04. Lehmanns Brothers - I Wanna Be (05:00)(   Читать дальше...   )Жанр: Soul, Funk, R&BПродолжительность: 01:18:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6798AA6820FB732E4236A211B723F8D03FB60576
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285725   (175015) от 10.10.2023
-
-Bill Perry - 9 Albums (1996 - 2011) 13 CD [FLAC|Lossless|tracks + .cue|image + .cue] <Modern Electric, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175015.jpg" />
-</div>
-
-
-###  Подробнее
-
-Bill Perry (Уильям Сэнфорд Пэрри) родился и вырос в Честере, штат Нью-Йорк (25.12.1957 - 17.07.2007) - выдающийся американский блюзовый гитарист, певец, автор многочисленных песен, широко известный и гастролировавший по США и странам Европы. Билл начал играть на гитаре с 5 лет, в 13 лет уже участвовал в конкурсах талантов, играл в школьных группах, а к 1988 году (   Читать дальше...   )Список альбомов:
-1996 - Love Scars
-1998 - Greycourt Lightning
-2001 - Fire It UpЖанр: Modern Electric, Blues-RockПродолжительность: 11:33:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD67B02F73C709B96D0C096AFCFD1D9AA366C1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595890   (174153) от 08.12.2022
-
-Mick Kolassa - For The Feral Heart (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174153.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running To You (2:46)
-02. Elegant Angel (3:58)
-03. Feeling Alright (6:11)
-04. Love Ain’t Supposed to Make You Cry (4:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:679864AE92701CAA4F1FBB1C8728D01072BC4E97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595868   (174141) от 08.12.2022
-
-Blue Largo - Got to Believe (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues,  Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_174141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A World Without Soul (6:08)
-02. Got to Believe (4:27)
-03. Soul Meeting (6:57)
-04. What We Gotta Do (5:33)(   Читать дальше...   )Жанр: Blues,  SoulПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B72B7470400F7D1B74EEECA4C18BA0A65A690C7C
 ```
 
 https://mybot314.ru/tekegram_catalog/

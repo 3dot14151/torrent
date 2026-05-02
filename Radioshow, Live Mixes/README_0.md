@@ -1,3 +1,61 @@
+###  Публикация: 1852225   (1055870) от 06.02.2026
+
+Markus Schulz - Global DJ Broadcast (Global DJ Broadcast World Tour, In Search Of Sunrise, HERE at Outernet London (2026-02-05) [MP3|320 Kbps] <Trance, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz x BLR - Ten Seconds Before Sunrise
+02. Robert Nickson pres. RAHB - Heliopause 2025
+03. Markus Schulz & Matt Fax - The New World
+04. Markus Schulz - Remember This (ID Remix)(   Читать дальше...   )Жанр: Trance, TechnoПродолжительность: 02:00:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BD10CDB48059921378A0493B1E34741AA52E56
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851951   (1055733) от 05.02.2026
+
+MORTEN - Live In Lisbon, Portugal (2026-01-30) [MP3|320 Kbps] <Melodic House, Techno>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055733.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta & MORTEN ft. Trippie Redd - Locked In
+02. Prophecy - Suelta
+03. MORTEN & Rafael Cerato - Backstage Pass
+04. MORTEN & David Guetta - Lucky(   Читать дальше...   )Жанр: Melodic House, TechnoПродолжительность: 01:01:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AE5E570188AE7C82508FB47A53F88AFF9BF1937D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1852181   (1055613) от 06.02.2026
 
 VA - Ori Uplift - Uplifting Only Episode 678 (2026) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -686,64 +744,6 @@ VA - Ori Uplift - Uplifting Only Episode 672 (Ori's Top 52 Vocal Uplifters of 20
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A11B0C76C02DB683C5CBD4DD432348CBD6F80CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1844409   (1050110) от 26.12.2025
-
-VA - Armin van Buuren - A State Of Trance 1257 (Yearmix 2025) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050110.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Armin van Buuren & Bon Jovi – Take The Leap (A State Of Trance Year Mix 2025 Intro)
-002. Armin van Buuren ft. JAI RYU – Let It Be For Love
-003. Armin van Buuren & Omnia – Love
-004. Ruben de Ronde & Amber Revival – Illuminate(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B787F9C082E8B56064EAC082D1E4AFA61BEF7A79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1843219   (1049244) от 19.12.2025
-
-VA - Ori Uplift - Uplifting Only Episode 671 (Ori’s Top 50 Instrumental Uplifters of 2025 [Part 2]) (2025) (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1049244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cedric Paul – Harmonic Skies (Intro Mix)
-02. Phil Dinner – The Battle
-03. Ruslan Khatmullin – Romantic Wave
-04. Shadows&Nightmares – Hallucinogen(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B1E56047820EFF0ABD10F12E60A49DAD552FB59B
 ```
 
 https://mybot314.ru/tekegram_catalog/

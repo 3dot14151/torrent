@@ -1,3 +1,61 @@
+###  Публикация: 765965   (871828) от 14.03.2014
+
+The Jazz Modes - The Most Happy Fella (1957) /2013 Remastered/ [FLAC|Lossless]<Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871828.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Standing on the Corner [03:46]
+02. Joey, Joey, Joey [03:57]
+03. Warm All Over [04:59]
+04. Happy to Make Your Acquaintance [04:29](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3BC21EBADFAEF81C9D1A30ED4E36C2C95C6720CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106780   (871806) от 20.02.2017
+
+Slide Hampton - Mellow-Dy (1968) 1992, LRC Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Lament [04:14]
+ 02.Impossible Waltz [07:10]
+ 03.Chop Suey [12:14]
+ 04.Mellow-Dy [05:15](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:54:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3118EAC5B9EE48520047E8857C0EB80E6B91227
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106777   (871805) от 20.02.2017
 
 The Slide Hampton Octet - Somethin' Sanctified (1960) Remaster, 2013, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -685,64 +743,6 @@ Harry Allen & Randy Sandke witn The Rias Big Band - Turnstile: Music Of The Trum
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:42869398EBD442F95225D3B06B90A1381C449C97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998807   (868601) от 20.03.2016
-
-Dr. Lonnie Smith - The Healer (2012) Pilgrimage Productions[FLAC|Lossless|tracks + .cue] <Jazz Fusion, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Backtrack [13:18]
- 02.Mellow Mood [08:23]
- 03.Dapper Dan [07:18]
- 04.Chelsea Bridge [09:42](   Читать дальше...   )Жанр: Jazz Fusion, Hammond OrganПродолжительность: 01:01:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1DCE767F4407BCE748C1ECB22880BB2D0275BCFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 998714   (868599) от 20.03.2016
-
-Kenny Barron Trio - Book Of Intuition (2016) Universal[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_868599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Magic Dance [07:54]
- 02.Bud Like [05:31]
- 03.Cook's Bay [06:03]
- 04.In The Slow Lane [06:35](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85484E5547AA3A3430D8BF90A034C0BA42635AFF
 ```
 
 https://mybot314.ru/tekegram_catalog/

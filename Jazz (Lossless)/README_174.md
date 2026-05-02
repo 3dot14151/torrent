@@ -1,3 +1,61 @@
+###  Публикация: 1567683   (470318) от 04.08.2022
+
+Johnathan Blake - Homeward Bound (2021) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470318.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In the Beginning Was the Drum [1:00]
+02. Homeward Bound (For Ana Grace) [9:13]
+03. Rivers & Parks [8:00]
+04. Shakin' the Biscuits [4:52](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70825B549D2617C8DD89841083DF14EED566F1E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1245706   (470179) от 07.09.2018
+
+Eric Reed - Here (2006) MaxJazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stablemates [7:44]
+02. Kokomo [2:03]
+03. I C H. N. (For Herbie Nichols) [4:49]
+04. Hymn [1:28](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B913B06BB9822C6F531139B3FD7E4727FD0DFAA8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1245563   (470178) от 07.09.2018
 
 Lars Jansson - Giving Recieving (2001) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz>
@@ -709,64 +767,6 @@ Wynton Kelly - Piano (1958) /2004, Riverside/ [FLAC|tracks+.cue]<Hard Bop, Piano
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97B695585B820A427EDB01C45B9BC7BC5C132BAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940630   (467191) от 25.09.2015
-
-Billie Holiday - Jazz Masters (1996) /Mandarim Records/[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467191.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Let's Do It [02:58]
-02.Georgia On My Mind [03:20]
-03.Love Me Or Leave Me [03:21]
-04.St. Louis Blues [02:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4ECE1204F8C2237CA3E5CE776FAD6E56751D94D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1407367   (466726) от 07.09.2020
-
-Ali Auger - Soft & Furry (2001) 2006, Castle Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466726.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lady's in Love with You [3:06]
-02. Soft & Furry [3:50]
-03. Too Darn Hot [2:27]
-04. You Go to My Head [5:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CE74460184262D7D73EA7FCD322221811993E53
 ```
 
 https://mybot314.ru/tekegram_catalog/

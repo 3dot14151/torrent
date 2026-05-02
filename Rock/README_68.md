@@ -1,3 +1,32 @@
+###  Публикация: 1421437   (319904) от 04.11.2020
+
+Esabuc - Taciturn (2020) [MP3|320 Kbps] <Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319904.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. City Of Lights (10:38)
+ 02. Puppets Meeting (11:35)
+ 03. Mental Valley (06:08)
+ 04. The Shattering (05:39)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:14:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82ABFD97CCAC8B0FA3CC1822F0759459F2B60E2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 407892   (319872) от 28.11.2013
 
 Toh Kay - 2 альбома (2010-2011) [MP3|320 kbps] <Rock, Acoustic, Ska>
@@ -716,35 +745,6 @@ Roxette - Joyride (1991) [OGG Vorbis|480 Kbps] <Rock, Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C5F6B0E381CC47BBA33C06F50F1FD012DCADDAE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1583142   (314504) от 13.10.2022
-
-Roxette - Crash! Boom! Bang! (1994) [OGG Vorbis|480 Kbps] <Rock, Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_314504.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Harleys & Indians (Riders In The Sky)
-02. Crash! Boom! Bang!
-03. Fireworks
-04. Run To You(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 01:06:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3274B9666615A82C84D71EA4DF492935AFA623BA
 ```
 
 https://mybot314.ru/tekegram_catalog/

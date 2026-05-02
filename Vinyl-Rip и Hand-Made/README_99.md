@@ -1,3 +1,177 @@
+###  Публикация: 1749811   (26880) от 21.02.2025
+
+Killswitch Engage - Studio Albums (9 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26880.jpg" />
+</div>
+
+
+###  Подробнее
+
+Killswitch Engage - американская металкор-группа из города Уэстфилд, штат Массачусетс, образовалась в 1999 году.2000 - Killswitch Engage
+2002 - Alive Or Just Breathing
+2004 - The End Of Heartache
+2006 - As Daylight DiesЖанр: MetalcoreПродолжительность: 07:25:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17A5B8651102B65C38EB8D4B251FD663898FA4C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1575781   (26439) от 26.02.2025
+
+Ozzy Osbourne - Studio Albums (14 releases) (1980-2022) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26439.jpg" />
+</div>
+
+
+###  Подробнее
+
+О́ззи О́сборн (англ. Ozzy Osbourne; настоящее имя — Джон Майкл О́сборн, англ. John Michael Osbourne; род. 3 декабря 1948, Марстон Грин, Бирмингем) — британский рок-певец, музыкант, один из основателей и участник группы Black Sabbath, оказавшей значительное влияние на появление таких музыкальных стилей, как хард-рок и хеви-метал. Успешность его карьеры (   Читать дальше...   )1980 - Blizzard Of Ozz
+1981 - Diary Of A Madman
+1983 - Bark At The Moon
+1986 - The Ultimate Sin(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 14:59:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4E3479F1C0AA90019C6C2C0EAA0F7D384EDD9A3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1664217   (26300) от 27.02.2025
+
+Staind - Studio Albums (8 releases) (1996-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Hard Rock, Post-grunge>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26300.jpg" />
+</div>
+
+
+###  Подробнее
+
+Staind — американская метал-группа из города Спрингфилд, штат Массачусетс, основанная в 1995 году.1996 - Tormented
+1999 - Dysfunction
+2001 - Break The Cycle
+2003 - 14 Shades of GreyЖанр: Nu Metal, Hard Rock, Post-grungeПродолжительность: 07:23:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6867D2B0DA72A7759B6C1321B93F57D38B21BC0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745353   (26279) от 27.02.2025
+
+Brainstorm - Studio Albums (14 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26279.jpg" />
+</div>
+
+
+###  Подробнее
+
+Brainstorm — немецкая пауэр-метал-группа. Создана в 1989 году. Лицом группы является вокалист Энди Б. Франк, также известный участием в Symphorce и прогрессив-группе Ivanhoe. Brainstorm отличается более «тёмным» стилем музыки от большинства пауэр-метал-команд.1997 - Hungry
+1998 - Unholy
+2000 - Ambiguity
+2001 - Metus Mortis(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 14:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:638AE89B856511491E3A4D32058B37398926C717
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1606286   (26268) от 27.02.2025
+
+A Day to Remember - Studio Albums (8 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Post-hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26268.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Day to Remember (ADTR) — американская пост-хардкор группа, образованная в городе Окала в 2003 году и основанная гитаристом Томом Дэнни и барабанщиком Бобби Скраггзом. Известна своим необычным звучанием, которое представляет собой смесь металкора, пост-хардкора и поп-панка.2005 (2008) - Old Record (And Their Name Was Treason Re-Release)
+2007 (2008) - For Those Who Have Heart (Re-Release)
+2009 - Homesick
+2010 - What Separates Me From YouЖанр: Metalcore, Post-hardcoreПродолжительность: 06:15:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21600B84F1F1F1AAE937F53CA5930EA643736D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1651765   (26195) от 28.02.2025
+
+Tobias Sammet (Edguy; Avantasia) - Studio Albums (21 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26195.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тобиас Заммет (нем. Tobias Sammet, 21 ноября 1977) — немецкий музыкант, лидер и вокалист немецких пауэр-метал-групп Edguy и Avantasia.1997 - Kingdom Of Madness
+1998 - Vain Glory Opera
+1999 - Theater Of Salvation
+2000 - The Savage PoetryЖанр: Power MetalПродолжительность: 25:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD0416D70E041545A2709C58E38683D5FE96630B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1705259   (25749) от 04.03.2025
 
 Thundermother (& The Gems) - Studio Albums (7 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Hard Rock>
@@ -568,180 +742,6 @@ SIDE A:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F771D4E12B44871361A56B3B2C0A9AB46ABA41E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1598761   (21968) от 09.04.2025
-
-Sunstorm - Studio Albums (8 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Heavy Metal/Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21968.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sunstorm — американский музыкальный проект AOR , первоначально в котором участвовали ведущий вокалист Джо Линн Тернер, басист/вокалист Деннис Уорд , клавишник Йохен Вейер, а также гитарист Уве Рейтенауэр и барабанщик Крис Шмидт. В альбомах также участвовали такие исполнители, как Дэнн Хафф и Джим Петерик , в качестве дополнительных авторов песен.2006 - Sunstorm
-2009 - House Of Dreams
-2012 - Emotional Fire
-2016 - Edge Of Tomorrow(   Читать дальше...   )Жанр: Melodic Heavy Metal/Hard RockПродолжительность: 06:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:08EF47E75616750593AA285C5DC4B01C4B91E422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1551047   (21792) от 11.04.2025
-
-Epica (& Simone Simons) - Studio Albums (13 releases) (2003-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_21792.jpg" />
-</div>
-
-
-###  Подробнее
-
-Epica — нидерландская группа, образована в 2003 году ритм-гитаристом и вокалистом Марком Янсеном после его ухода из After Forever. Визитной карточкой Epica являются женский вокал в сочетании с мужским гроулингом и скримингом. Также в группе используется струнный оркестр и хор.2003 - The Phantom Agony
-2005 - Consign To Oblivion
-2007 - The Divine Conspiracy
-2009 - Design Your Universe(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 16:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEE55D1D117A0951BA575A8AB0A4F50CAD457BF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1791518   (21109) от 17.04.2025
-
-Giovanni Pierluigi da Palestrina, Czech Philharmonic Chorus, Josef Veselka - The Song Of Songs (1986) Repress, Quadraphonic [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Classical, Renaissance>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_21109.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Osculetur Me	2:55
-A2 Trahe Me	2:50
-A3 Nigra Sum, Sed Formosa	4:25
-A4 Vineam Meam Non Custodivi	2:50(   Читать дальше...   )Жанр: Classical, RenaissanceПродолжительность: 01:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DE0C8427675FD79E66C2AB4E67F0EBB79FA3CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1548427   (20958) от 19.04.2025
-
-Arch Enemy - Дискография (17 albums) (1996-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20958.jpg" />
-</div>
-
-
-###  Подробнее
-
-Arch Enemy (от англ. arch-enemy — заклятый враг) — шведская группа, играющая в стиле мелодичный дэт-метал. Была основана в 1996 году братьями Майклом и Кристофером Эмоттами.1996 - Black Earth
-1998 - Stigmata
-1999 - Burning Bridges
-2001 - Wages of SinЖанр: Melodic Death MetalПродолжительность: 15:29:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C21199E5141DDE66AE81B10185873A6AABFE05A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603407   (20464) от 24.04.2025
-
-Cradle of Filth - Studio Albums (26 releases) (1994-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black/Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Cradle of Filth — английская метал-группа, основанная в 1991 году вокалистом Дэниелом Ллойдом Дэви, выступающим под псевдонимом Дэни Филт. Стиль группы менялся от альбома к альбому, но в среднем представляет собой смесь симфонического блэк-метала и готик-метала.1994 - The Principle Of Evil Made Flesh
-1996 - Dusk And Her Embrace
-1998 - Cruelty And The Beast
-2000 - MidianЖанр: Death Metal, Symphonic Black Metal, Extreme Gothic MetalПродолжительность: 33:53:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D1816D9F39B4FFBF4B7C60D68773544DAABED03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1535212   (20431) от 24.04.2025
-
-Machine Head - Studio Albums (15 releases) (1994-2025) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Groove/Thrash Metal, Nu-Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_20431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Machine Head — американская грув-метал-группа, образованная гитаристом и вокалистом Роббом Флинном 12 октября 1991 года в Окленде, Калифорния1994 - Burn My Eyes
-1997 - The More Things Change
-1999 - The Burning Red
-2001 - SuperchargerЖанр: Thrash/Groove Metal, Nu-MetalПродолжительность: 18:18:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C40BFEAF2C79B77DD98732F7E83D1A8B3D2C8F
 ```
 
 https://mybot314.ru/tekegram_catalog/

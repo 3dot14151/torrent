@@ -1,3 +1,61 @@
+###  Публикация: 1433799   (154706) от 22.12.2020
+
+Gare du Nord - Lifesexy: Live in Holland (2012) [FLAC|Lossless|tracks + .cue] <Jazz-Pop, Lounge, Acid Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154706.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Somethin' in My Mouth (4:07)
+02. I Want Love (6:32)
+03. Marvin & Miles (4:14)
+04. You're My Medicine (4:17)(   Читать дальше...   )Жанр: Jazz-Pop, Lounge, Acid JazzПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E6ED09956A938371B9FF475382449EC03F60512
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1676836   (154705) от 15.11.2023
+
+Willis Jackson - Nuther'n Like Thuther'n (1963, 1964) 2002, Prestige [FLAC|Lossless|tracks + .cue] <Hard Bop, Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_154705.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pool Shark [3:59]
+02. Somewhere Along the Way [4:19]
+03. Stuffin' [7:14]
+04. Nuther'n Like Thuther'n [7:37](   Читать дальше...   )Жанр: Hard Bop, Soul-JazzПродолжительность: 01:07:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F82DD44BE3BECAFE65C04958FFA598C4D24B5D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1676839   (154688) от 15.11.2023
 
 Pat Martino - Footprints (1972) 2003, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Guitar Jazz>
@@ -687,64 +745,6 @@ The Trombones, Inc. - The Trombones, Inc. (1958) Remaster, 2013, Warner[FLAC|Los
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AC4362BF7EA291588D5A1F70AC017678FD37192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086341   (153585) от 24.12.2016
-
-Terry Gibbs And His Big Band - Swing Is Here! (1960) 2009, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153585.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.The Song Is You [02:33]
- 02.It Might As Well Be Swing [03:14]
- 03.Dancing In The Dark [03:09]
- 04.Moonglow [02:45](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 00:34:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F16A5D8259BA9CC005C03E96532F79A4562E6940
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1086352   (153568) от 24.12.2016
-
-VA - Jazz Moods Volume 1 (1993) Jazz World[FLAC|Lossless|image + .cue] <Swing, Bop, Hard Bop, Post-Bop, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_153568.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wynton Marsalis & Art Blakey's Jazz Messengers - Moanin' [09:32]
-02. Joe Williams & Claude Bolling Orchestra - Blues In My Heart [03:11]
-03. Ben Webster Quartet - Londonderry Air [04:35]
-04. Toots Thielemans & The Louis Vandyke Trio - Have You Met Miss Jones [03:06](   Читать дальше...   )Жанр: Swing, Bop, Hard Bop, Post-Bop, Vocal JazzПродолжительность: 01:06:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:293548DF310BC5B54507304D03EF36D0FF51BF1D
 ```
 
 https://mybot314.ru/tekegram_catalog/

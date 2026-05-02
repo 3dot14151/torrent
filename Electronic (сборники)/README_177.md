@@ -1,3 +1,61 @@
+###  Публикация: 962546   (293145) от 05.12.2015
+
+VA - Charming Bourgeois Vol 4 (2015) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Panorama - Fantastic Road - Original Mix
+02. Purechill - Un Attimo - Original Mix
+03. Philippe Martin - Orgoglio - Original Mix
+04. Michel Haimann - Rain - Original Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:26:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5AE9F45F24D3705E0E9AE8894024A1F36B53B537
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 962682   (292255) от 05.12.2015
+
+VA - Extra House: Bonus [03] (2015) [MP3|320 кб/с]<House, Deep House, Club House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_292255.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kygo feat. Maty Noyes - Stay (Original Mix) (03:59)
+02. Anturage & Amnesia Haze - Sentimentos (Original Mix) (06:17)
+03. Chris Fortier - Losing Wait (One Of Them Remix) (06:25)
+04. Rober Gaez - Lay On You (Mark Lower Remix) (06:10)(   Читать дальше...   )Жанр: House, Deep House, Club HouseПродолжительность: 00:54:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5ABBA8FEFDD742300B4485A7C584EACC0AB4CD98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1079907   (292225) от 05.12.2016
 
 VA - Beatport Trance Pack (05.12.) (2016) [MP3|320 Kbps] <Trance, Harmonic, Energy, Emotional, Uplifting, Progressive>
@@ -687,69 +745,6 @@ VA - Record Super Chart 562 (2018) [MP3|320 Kbps] <House, Club, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF4154C1C8AC657C3E34317C2D5328AFE1B3BC4A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1335069   (289213) от 01.11.2019
-
-VA - Hits of My Soul Vol. 51 (2019) [MP3|320 кб/с]<Darkwave, Synthwave>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289213.jpg" />
-</div>
-
-
-###  Подробнее
-
-Hits of My Soul - сборник электронной и инструментальной музыки разных жанров.
-Его должен услышать каждый, кто хочет насладиться: яркими, эмоциональными, красивыми и атмосферными треками.
-Состоит из треков, каждый из которых уже успел порадовать слушателей своим отличным звучанием.
-Сборник вобрал в себя исключительно качественную музыку.01. Sau5 Bau5 - The Circus Imperfect (03:16)
-02. VHS Glitch - They Are Coming (02:58)
-03. Brothercom - Tunnel Visions (03:30)
-04. Chamber Yellow - Ash Eater (03:19)(   Читать дальше...   )Жанр: Darkwave, Synthwave, New WaveПродолжительность: 01:04:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:361901ABBE117F1B62D27BC660221630366FE695
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 962749   (289064) от 07.12.2015
-
-JSC - Hits Collection & 4Mix  (3CD) (2015) [MP3|192-320 кб/с]<Spacesynth, Spacedisco>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_289064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Собрание композиций нидерландского композитора Jan Shipper, пишущего в стиле Spacesynth, Spacedisco и других стилях.
-JSC - название проекта, которым подписывается Jan Shipper.
-На диске 3 (CD3) собраны четыре микса на произведения автора.1. Dreamers Of Dreams
-2. Dutch Rebels
-3. In Cyber Space (Album Version)
-4. 11th Hour(   Читать дальше...   )Жанр: Spacesynth, SpacediscoПродолжительность: 02:08:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:629471FEF0E1E9317B1E6C1A01F2C306A15811FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

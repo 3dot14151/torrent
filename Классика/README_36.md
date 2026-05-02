@@ -1,3 +1,32 @@
+###  Публикация: 570791   (386772) от 07.11.2012
+
+Knud Vad - J.S. Bach: Complete Organ Works (2005) Box Set 18SACD [DST 5.1, 2.0|1bit/2.8 MHz |SACD-R]<Classical>
+
+>>Классика
+>>Классика (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_386772.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD 1 SONATAS, BWV 525–529
+SONATA NO. 1 IN E FLAT MAJOR, BWV 525 : 1. I. Allegro (3:19) • 2. II. Adagio (6:08) • 3. III. Allegro
+(3:58) • SONATA NO. 2 IN C MINOR, BWV 526 : 4. I. Vivace (4:20) • 5. II. Largo (4:01) • 6. III.
+Allegro (4:28) • SONATA NO. 3 IN D MINOR, BWV 527 : 7. I. Andante (6:20) • 8. II. Adagio e dolce(   Читать дальше...   )Жанр: ClassicalПродолжительность: 01:05:12:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3476A8BC029D9BC6D142B5A1D3480D9C81C32634
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1067160   (386482) от 29.10.2016
 
 J.S.Bach - Ouvertures (The 4 Orchestral Suites) (Bach Collegium Japan, Masaaki Suzuki) (2005) [DST64 2.0, DST64 5.0|64(2,8 MHz/1 Bit|ISO|SACD-R] <Classical>
@@ -717,35 +746,6 @@ Beethoven - Complete Piano Sonatas, Kurfursten Sonatas, Sonatinas: Peter Takacs 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C3154FE2D773054B95E04E7F8838AB90B63A6422
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1255649   (363264) от 18.10.2018
-
-2Cellos - Let There Be Cello (2018) [MP3|320 Kbps] <Symphonic, Neoclassical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Concept2
-02. Eye of the Tiger
-03. Pirates of the Caribbean
-04. Cadenza(   Читать дальше...   )Жанр: Symphonic, NeoclassicalПродолжительность: 00:42:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14A2DBF834DA619BF8076239C81862524C670A55
 ```
 
 https://mybot314.ru/tekegram_catalog/

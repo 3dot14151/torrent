@@ -1,3 +1,57 @@
+###  Публикация: 964584   (229516) от 12.12.2015
+
+Проекты - VideoHive - Retro Tv 70´s [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229516.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект - ретро заставка в стиле 70-х.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85AFDF5B7D89EA1BB00E50D099C358C2AEE3BD66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 965591   (225255) от 14.12.2015
+
+Проекты - VideoHive - Freelancer Portfolio - Hi, My Name is... [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225255.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания портфолио.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02660C359E63F27E83BAAED36BA9B03039F73BD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 965559   (224934) от 14.12.2015
 
 Проекты - VideoHive - Fashion Promo 4 - 545315 [AEP]
@@ -623,58 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5233AA23B56248AA1A705A2936893943FF3C46DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087323   (145811) от 27.12.2016
-
-Проекты - VideoHive - Dynamic Fashion Package - 19164699 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_145811.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dynamic Fashion Package - пакет анимированных динамических элементов, выполненный в современном, модном стиле, может стать украшением вашего следующего проекта!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ABC4C3E5C7249DB5543082CE73BCF2916E9A77D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1087748   (144188) от 28.12.2016
-
-Проекты - Motion Array - Glitch Promo - 22031 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_144188.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания промо или презентации с потрясающей и динамической анимацией и эффектом глюка.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88AF44F4DFB192FB7D7A1EA7537A7151C6BE78DA
 ```
 
 https://mybot314.ru/tekegram_catalog/

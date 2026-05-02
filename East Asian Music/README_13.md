@@ -1,3 +1,35 @@
+###  Публикация: 833389   (384705) от 22.10.2014
+
+Draw the Emotional - 7 альбомов (2010-2012) Touhou Vocal, Vocaloid /Doujin/ [FLAC|Lossless] <Metalcore>
+
+>>East Asian Music
+>>Doujin Music (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_384705.jpg" />
+</div>
+
+
+###  Подробнее
+
+2010.02.07 For a Sick Boy
+2010.08.14 (YYYP-0003) Collapse of the sky (C78)
+2010.09.06 Solitude Freak
+2011.01.16 Planetary Suicide
+2011.05.08 (YYYP-0005) Funny party in the Fog (Reitaisai 8)
+2011.12.30 (YYYP-0007) Ghost and your heart (C81)
+2012.12.30 (YPFE-0001) Seated With Liquor (C83)Тип издания: DoujinЖанр: MetalcoreФормат: Touhou Vocal, VocaloidПродолжительность: 00:04:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF924BE3D952614E7A0CD4FC8DE4C4CF2D83F910
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 833391   (384431) от 22.10.2014
 
 Foreground Eclipse - 13 альбомов (2009-2013) Touhou Vocal /Doujin/ [FLAC|Lossless] <Metalcore>
@@ -766,32 +798,6 @@ Masayoshi Takanaka - The Rainbow Goblins (1981) 2013, Universal [FLAC|Lossless|t
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1CF70A6911249D874FCA8DA52F9A936DADA0C15C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577664   (345000) от 24.11.2012
-
-Koda Kumi - 10 альбомов, 5 компиляций, 6 Remix Albums, 58 синглов (2000-2012) [MP3|128-320 кб/с]<J-Pop, J-R&B>
-
->>East Asian Music
->>Asian Pop
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_345000.jpg" />
-</div>
-
-
-###  Подробнее
-
-AlbumsЖанр: J-Pop, J-R&BПродолжительность: 00:07:06
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

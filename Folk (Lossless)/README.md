@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1866962   (1066732) от 24.04.2026
+
+David Wilcox - Big Horizon (1994) [FLAC|Lossless|tracks + .cue] <Pop, Folk, World, & Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066732.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. New World (3:27)
+02. Someday Soon (4:12)
+03. That's What the Lonely Is For (3:40)
+04. Show the Way (3:44)(   Читать дальше...   )Жанр: Pop, Folk, World, & CountryПродолжительность: 55:06.333 (145 809 300 samples)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FE4E9E0D3AF4B5DA4707AB816302ABDF1D85DB7C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864023   (1062939) от 08.04.2026
 
 Maura O’Connell - Helpless Heart (1989) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
@@ -715,35 +744,6 @@ Firefall - Great Collection (2021) [FLAC|Lossless|image + .cue] <Country Rock, P
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5620FD7C08872F56873DB9D0D5E010995C2A5CF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 607094   (994701) от 22.01.2013
-
-VA - Союз нерушимый... - Песни и танцы народов СCCP (5 CD) (2007) [FLAC|Lossless] <Retro/Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_994701.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Retro/Folk |Продолжительность: 00:50:14
-
-01. Государственный гимн Советского Союза Оркестр Государственного Академического Большого Театра СССР, Юрий Симонов
-02. Государственный гимн Украинской ССР Хор и оркестр Государственного академического театра оперы и балета имени Т.Шевченко, Стефан Турчак(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

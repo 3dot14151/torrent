@@ -1,3 +1,61 @@
+###  Публикация: 1729697   (53519) от 12.06.2024
+
+VA - Electronic compilation part 86 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53519.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Davit Barqaia - Bring Me Back
+02. Muvi - Depression
+03. Davbo - Dreams
+04. Davbo - Endless Love(   Читать дальше...   )Жанр: ElectronicПродолжительность: 02:20:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CC042A0C4B954635FDBC37FEBFC29C7FA4E4EB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730437   (53125) от 16.06.2024
+
+VA - Electronic compilation part 87 (2024) [MP3|320 Kbps] <Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53125.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Menda - Believe
+02. Kasimoff - Cold Without You
+03. Afrasiab - Don't Let Go
+04. Hamidshax - Drama(   Читать дальше...   )Жанр: ElectronicПродолжительность: 01:49:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3434CF92291D8D7BD18E25523365FFB011669333
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1730846   (52902) от 18.06.2024
 
 VA - Easy Lounge & Chill Music (2024) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
@@ -687,64 +745,6 @@ Dj Polkovnik - Compilation (2024) [MP3|320 Kbps] <Electronic, Instrumental, Tran
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CC0D78A86B256E63D8815FA6D0B2D3C17F6CAEBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743876   (46470) от 18.08.2024
-
-VA - Крутые пушки Лето 2024 [MP3|320 Kbps] <Club, Dance, Other>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46470.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bob Sinclar - World Hold On (FISHER Rework) (5:32)
-002. DJ Snake x Ozuna x Akon x Lady Bee - Slow No Dancer (DJ Timbark 100-105 Partybreak) (5:08)
-003. Bagardi, Monatik, Morgenshtern, Daddy Ya - Baby Stop Family Vecherinochka (Dj Salamandra Mash-Up) (4:59)
-004. Öwnboss, Schillist, Silque - Tudum (Extended Mix) (4:58)(   Читать дальше...   )Жанр: Club, Dance, OtherПродолжительность: 06:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:69159536FDEFC9D63E4AE4CF6D84EBE1B3C22204
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1744629   (45774) от 24.08.2024
-
-VA - TOP Non-Stop 2010-2019 - Deep House. Volume 5 (2024) [MP3|192-320 Kbps] <Deep House, Progressive House, Techno House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Deep Hertz - Ocean Drive (2016) (5:15)
-02. Zone + - Neenar (2019) (6:43)
-03. Robert R. Hardy - Haydina (2014) (6:55)
-04. RBert - Vagabundo (2018) (7:07)(   Читать дальше...   )Жанр: Deep House, Progressive House, Techno HouseПродолжительность: 09:09:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3FFF9BAA50DC2173F58BB9C32F1E8EE492DE128F
 ```
 
 https://mybot314.ru/tekegram_catalog/

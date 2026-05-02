@@ -1,3 +1,55 @@
+###  Публикация: 600797   (998680) от 09.01.2013
+
+[Wallpapers] A selection of beautiful girls Pack 18
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998680.jpg" />
+</div>
+
+
+###  Подробнее
+
+Разрешение файлов: 1920x1080 - 2560х1600
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEC96F7E402D59C997921136197A93BF9B4BA0BD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 600600   (998678) от 09.01.2013
+
+HQ Wallpapers Perfect Women (06.01.13) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D82DA3292DA357D5F127746CF51494F0217C9C43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 599033   (998677) от 09.01.2013
 
 Paul van Dyk - Vonyc Sessions 332 (04-01-2013) [MP3|192 кб/с]<Trance, Progressive House>
@@ -647,67 +699,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C7F928F65C6E5A97F5126FAF4053EEA3CE92703
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600888   (998621) от 09.01.2013
-
-Moolen Rouge - Мельница (2012) [MP3|320 кб/с]<Rap, Hip-hop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998621.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Мельница (3:18)
-2. Как дела (2:21)
-3. Кокосы (3:21)
-4. "Give me more" При уч. Victory (No comment's) (NoComm Rec.) (3:55)
-5. Водка (2:56)
-6. Пьяная (при уч. шум bgdd) (3:41)
-7. Попами двигайте (2:57)
-8. Привет командиру (2:42)
-9. Get Down (2:41)
-10. Февраль (NoComm Rec.) (1:52)(   Читать дальше...   )Жанр: Rap, Hip-hopПродолжительность: 00:51:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49A002817DBF7DE6EED01A97AC8A4883EC669355
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 600628   (998615) от 09.01.2013
-
-Фотография - Фотограф Pavel Kiselev
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_998615.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фотография - Фотограф Pavel Kiselev
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23420770A81506860FC5C000B6CA4196441BE4C0
 ```
 
 https://mybot314.ru/tekegram_catalog/

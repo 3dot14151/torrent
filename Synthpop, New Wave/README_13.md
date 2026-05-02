@@ -1,3 +1,32 @@
+###  Публикация: 1697262   (118955) от 06.02.2024
+
+Laserdance - Around The Planet (1988) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_118955.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Shotgun (Into The Night) (Remix)
+02.  Battle Cry (Remix)
+03.  You & Me (Remix)
+04.  Mars Invaders (Remix)(   Читать дальше...   )Жанр: Electronic, Spacesynth, SynthpopПродолжительность: 00:49:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D41F526634D89D9132DCE42476A8905107D6FA6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1697397   (118929) от 06.02.2024
 
 Laserdance - Technological Mind (1992) [OGG Vorbis|480 Kbps] <Electronic, Spacesynth, Synthpop>
@@ -734,41 +763,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E8979805EB29322ED11BDF52B283B0E9C32DCB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469436   (83246) от 20.03.2012
-
-Bertine Zetlitz - Electric Feet (2012) [MP3|320 кб/с]<Synth-Pop, Acid Jazz, Electro Pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One In A Million (04:10)
-02. Electric Feet (Featuring Samsaya) (03:53)
-03. Pop Pop Pop (03:20)
-04. Get Me Out Of Bed (04:20)
-05. Bittersweet Embrace (03:28)
-06. Stuck In Reverse (03:21)
-07. Starlight (04:03)
-08. Pretend To Dance (03:23)
-09. Wrap Me ´Round Your Finger (03:03)
-10. Wrong (03:59)(   Читать дальше...   )2012Жанр: Synth-Pop, Acid Jazz, Electro PopПродолжительность: 00:40:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F298D2BD57B278C6E162E36F6ED5237D78B67C8C
 ```
 
 https://mybot314.ru/tekegram_catalog/

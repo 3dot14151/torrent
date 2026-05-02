@@ -1,3 +1,32 @@
+###  Публикация: 911888   (612990) от 25.06.2015
+
+Reno Bo - Lessons from a Shooting Star (2015) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweetheart Deal (3:35)
+02. How Do You Do (3:02)
+03. Just Say Go (3:05)
+04. Strange Maps (4:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E313149A9867F459530EFF1347E87B6D8027A72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911364   (612921) от 25.06.2015
 
 Marco Minnemann - Celebration (2015) [MP3|320 кб/с]<Progressive Rock, Fusion>
@@ -716,35 +745,6 @@ Not Drowning, Waving - Claim (серия "Другие восьмидесяты�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E25C842DC017E64F6B2C590D27CA08B0C82EA5D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297272   (604049) от 22.04.2019
-
-The Skys - Automatic Minds (2019) [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604049.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Get Rid Of This (4:03)
-02. Automatic Minds (4:40)
-03. The Guardian Of The Water Tower (5:19)
-04. Singing Tree (3:17)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:42:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC98051F3F938D97DE48B471F384B2D85C87819D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1615770   (1037292) от 27.02.2023
+
+Sophie Milman - Her Very Best... So Far (2013) Linus Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Agua de Beber (Water to Drink) [3:58]
+02. I Concentrate on You [4:19]
+03. Speak Low [4:28]
+04. Be Cool [4:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B016263B00C0D2C76C6A1F1FB84AC50149E26425
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1615614   (1037288) от 27.02.2023
+
+VA - Chilly Intimate Love Smooth Playlist for You & Me (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Easy Listening, Lounge>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chillaxing Jazz Kollektion - Riding on a Cloud (5:15)
+02. Kool&Klean - Sunrise (5:12)
+03. Konstantin Klashtorni - Humble and Kind (4:06)
+04. Chillaxonic - Iridescent (5:09)(   Читать дальше...   )Жанр: Smooth Jazz, Easy Listening, LoungeПродолжительность: 02:16:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:525914E0AE1068E7749EA1518BBC51A7C5025487
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1615946   (1036991) от 28.02.2023
 
 Freddie Hubbard - The Artist Selects (1960 - 1966) 2005, EMI [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -684,64 +742,6 @@ Dinah Washington - The Queen Sings Jazz: Jazz Archives № 145 (1943 - 1948) 199
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A3CA3A41D7BA29C78D62706F22F9BB69BE4DF4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443253   (1035775) от 28.01.2021
-
-Mary Lou Williams - Black Christ Of The Andes (1963) 2006, Universal [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz, Gospel>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Christ of the Andes [6:36]
-02. It Ain't Necessarily So [4:45]
-03. The Devil [4:05]
-04. Miss D.D. [2:32](   Читать дальше...   )Жанр: Bop, Piano Jazz, GospelПродолжительность: 00:39:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9D642DB20C6143B927B9CD8BD643011BBF689CC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617060   (1035624) от 05.03.2023
-
-Dinah Washington - After Hours With Miss "D" (1953, 1954) 2004, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blue Skies (edited version) [7:52]
-02. Bye Bye Blues [6:59]
-03. Am I Blue? [3:14]
-04. Our Love Is Here to Stay [2:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:900D9D59BCA8FE1518184C5D1A7D3073568D66FC
 ```
 
 https://mybot314.ru/tekegram_catalog/

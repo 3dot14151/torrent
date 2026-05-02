@@ -1,3 +1,29 @@
+###  Публикация: 1595189   (175999) от 04.12.2022
+
+Thenx v4.29 Mod by  Alex.Strannik [En]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_175999.jpg" />
+</div>
+
+
+###  Подробнее
+
+Удобный инструмент для доступа к обширной базе упражнений и тренировок от Chris Heria. Видеоинструкции.Тип издания: PremiumРелиз состоялся: 02.11.2022Разработчик: ThenxПоддерживаемая ОС: Android 4.4+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:280A080A13B9F5D1AACE5141609EC42198DD2D42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1665219   (175052) от 10.10.2023
 
 Simple Gallery v6.28.1 [Ru/Multi]
@@ -650,32 +676,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF983FF1F6148D6549B33186C696B1863D5D924D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1670209   (171859) от 21.10.2023
-
-Moon+ Reader Pro v8.5 (build 805000) Mod by Balatan, Mixroot,  Lucky Las [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_171859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 17.10.2023Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F2510A61667AF32075FFF9CF37B16C44A10E3D31
 ```
 
 https://mybot314.ru/tekegram_catalog/

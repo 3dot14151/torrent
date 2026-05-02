@@ -1,3 +1,235 @@
+###  Публикация: 1770279   (32408) от 31.12.2024
+
+Wings - Wings At The Speed Of Sound (1976) Japanese Edition, SHM-CD, Reissue, 2024, Universal Music LLC [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32408.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let ’em In
+02. The Note You Never Wrote
+03. She’s My Baby
+04. Beware My Love(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC2AB0D8DD96D2C2CA16D4604AD0258D93D8B2CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770513   (32322) от 01.01.2025
+
+Wings - Wings Greatest (1978) Japanese Edition, SHM-CD, Compilation, Reissue, 2024, Universal Music LLC [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul McCartney / Another Day
+02. Silly Love Songs
+03. Live and Let Die
+04. Junior’s Farm(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:54:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB526047FCF62240DFEC71AF065BCEC800F6C630
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770495   (32292) от 01.01.2025
+
+VA - Joggen 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32292.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Disclosure - You & Me (Rivo Remix) (3:28)
+02. Meduza - Fire (Official UEFA EURO 2024 Song) (2:48)
+03. Martin Garrix - Told You So (3:07)
+04. MC Menor JP - Menina de Vermelho (HUGEL Version) (2:23)(   Читать дальше...   )Жанр: PopПродолжительность: 03:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:35653C1AFFF3E216E1A8E19D16FB4689065B04A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770641   (32197) от 02.01.2025
+
+Wings - Wings Over America (1976) 2xCD, Japanese Edition, SHM-CD, Reissue, 2024, Universal Music LLC [FLAC|Lossless|image + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32197.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Part One - UICY-80472:
+01. Venus and Mars / Rock Show / Jet
+02. Let Me Roll It
+03. Spirits of Ancient Egypt(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:55:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27C35969D6409C973A13BE781B487393D321BA76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1770919   (32028) от 04.01.2025
+
+VA - 70s Memories (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Rock, RnB, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32028.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gerry Rafferty - Right down the Line - 04:28
+02. Fleetwood Mac - Go Your Own Way (2018 Remaster) - 03:39
+03. Chicago - If You Leave Me Now - 03:54
+04. Rod Stewart - Da Ya Think I’m Sexy - 05:31(   Читать дальше...   )Жанр: Pop, Rock, RnB, DanceПродолжительность: 04:55:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CD9A0C1DC4A7E36DB60D6BB3396477E0A97591A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771292   (31891) от 05.01.2025
+
+VA - Morning Chill Lounge Vibes (Relaxing Background Music) (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Kóstja - Horses (4:06)
+02.  Paolo Sessa - Because Of You (3:34)
+03.  Diego Damiani - Bookworm (2:04)
+04.  Francesco Montisano - Growing Up (2:00)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:18:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FE57F4D8F335C185F79509B44810C9EE6AE82D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771295   (31887) от 05.01.2025
+
+VA - Songs To Make You Sweat (2025) [FLAC|Lossless|WEB-DL|tracks] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bruno Mars - APT. (2:50)
+02.  Dua Lipa - Falling Forever (3:43)
+03.  Lena Sue - Drum (feat. Lena Sue) (2:50)
+04.  Ava Max - Spot a Fake (2:48)(   Читать дальше...   )Жанр: DanceПродолжительность: 01:13:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:08A6C1CD0503A0F4A66F8213FC5F5561AF472943
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1771291   (31879) от 05.01.2025
+
+VA - Hello, 2025 (The Ultimate Party Mix) (2024) [FLAC|Lossless|WEB-DL|tracks] <Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31879.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Magnus - Lascivious (3:43)
+02.  Colette Van Sertima - The Drop (5:00)
+03.  Brain Purist - Shine Tonight (3:38)
+04.  Guy Scheiman - Feel You (3:04)(   Читать дальше...   )Жанр: DanceПродолжительность: 02:23:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A00E9C349DF11E7D7526C987A44E7863A2854BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1774537   (30219) от 21.01.2025
 
 VA - Top Songs - Hits 2025 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -513,238 +745,6 @@ Patricia Kaas - 1987 - 2025 Une vie (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, F
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA1E7FB5BE2EBF7CA051A53DFC54662375CA732D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1794845   (19681) от 01.05.2025
-
-VA - 90s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19681.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Madonna - Vogue (4:49)
-02. THE GOO GOO DOLLS - Iris (4:49)
-03. Diddy - I’ll Be Missing You (feat. Faith Evans & 112) (5:06)
-04. Alanis Morissette - Ironic (3:48)(   Читать дальше...   )Жанр: PopПродолжительность: 04:50:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89C8DB3F53F1ACF684879E1EF4DEB0F0E4B7FD17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795323   (19490) от 03.05.2025
-
-Thomas Anders - … Sings Modern Talking: Let's Talk About Love (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19490.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cheri Cheri Lady (Thomas' Version) (3:45)
-02. With a Little Love (Thomas' Version) (3:17)
-03. Wild Wild Water (Thomas' Version) (4:23)(   Читать дальше...   )Жанр: PopПродолжительность: 01:22:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE64BD8FA1B26A3FEF35A4A5939A149E86408FD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795224   (19447) от 03.05.2025
-
-Suzanne Vega - Flying with Angels (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Speakers' Corner
-02. Flying with Angels
-03. Witch
-04. Chambermaid(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 00:37:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9D2368EA84081300B019E02CB102EA158D13B00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795458   (19164) от 06.05.2025
-
-VA - Like, Omigod! The '80s Pop Culture Box (Totally) (2002) 7 x CD, Compilation, Remastered Box Set [FLAC|Lossless|tracks + .cue] <Pop Rock, Synth-pop, New Wave, Hip Hop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_19164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bananarama - Venus (3:50)
-02. Bangles - Walk Like an Egyptian (3:24)
-03. Art of Noise - Paranoimia (3:19)
-04. Orchestral Manoeuvres in the Dark - If You Leave (4:26)(   Читать дальше...   )Жанр: Pop Rock, Synth-pop, New Wave, Hip HopПродолжительность: ~09:14:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AFA29ED278D41D6253CC6B687A552AA67CFFAEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1796620   (18606) от 11.05.2025
-
-V.A. - 00s Love Songs (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_18606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Blunt – You’re Beautiful
-02. Coldplay – Fix You
-03. Jason Mraz – I’m Yours (Radio Edit)
-04. Paramore – The Only Exception(   Читать дальше...   )Жанр: PopПродолжительность: 02:57:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FB048D9CE503E176F77B21CC03D3DFB305610A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797592   (17989) от 17.05.2025
-
-Britney Spears - Oops!... I Did It Again (2000) 25th Anniversary Edition, 2025, Sony Music [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17989.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oops!...I Did It Again [00:03:31]
-02. Stronger [00:03:23]
-03. Don't Go Knockin' on My Door [00:03:43]
-04. (I Can't Get No) Satisfaction [00:04:25](   Читать дальше...   )Жанр: PopПродолжительность: 01:20:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B26AC0EC9D2E5339C34AFDD292086835E68829
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797684   (17970) от 17.05.2025
-
-VA - 50s Best Hits (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_17970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Little Anthony & The Imperials - Tears on My Pillow [00:02:19]
-02 - Cliff Richard - Livin' Lovin' Doll (1997 Remaster) [00:02:07]
-03 - Frankie Lymon & The Teenagers - Who Put the Bomp (In the Bomp Bomp Bomp) [00:02:59]
-04 - Ray Charles - What'd I Say, Pt. 1 & 2 [00:05:07](   Читать дальше...   )Жанр: PopПродолжительность: 02:35:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3376696C6E4FB2FE74355BD3CC82B16DE2DA5173
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810123   (17675) от 02.08.2025
-
-V.A. - Pop Summer Hits 2025 (2025) [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17675.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Morena Rezzolata - Fever (Original Mix)
-02. Chelina Giordano - Wanna Know You (Original Mix)
-03. Boogie Signs - Tell Me (Original Mix)
-04. Daniel Locatelli - Shadows (Original Mix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 00:54:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C44B75E4FCC8E3DB1191B83F4200BE724928FC5
 ```
 
 https://mybot314.ru/tekegram_catalog/

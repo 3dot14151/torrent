@@ -1,3 +1,61 @@
+###  Публикация: 954675   (340103) от 08.11.2015
+
+VA - Bassleader (07.11.2015) [MP3|320 кб/с]<Techno, Hardstyle>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340103.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Psyko Punkz - Frozen Planet (Official Bassleader 2015 Anthem) (Extended Mix) 05:59
+02. Max Enforcer And Coone - Love X Hate (Radio Version) 03:50
+03. Psyko Punkz - Like A Loco (Extended Version) 04:44
+04. Noisecontrollers - Wolfs (Radio Version) 03:03(   Читать дальше...   )Жанр: Techno, HardstyleПродолжительность: 10:26:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:329084195A4132638D4C550CA3891711F527601F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954652   (340097) от 08.11.2015
+
+VA - Resident Advisor Top 50 Charted Tracks October (2015) [MP3|320 кб/с]<Electronica, Techno, Minimal, Tech House, Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_340097.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tale Of Us & Mind Against - Astral (Original Mix) 06:43
+02. Blue Mondays - Everything (Soulphiction Remix) 06:18
+03. Jimmy Edgar - Let Me Tell U (Original Mix) 07:16
+04. Butch - Dope (Original Mix) 08:30(   Читать дальше...   )Жанр: Electronica, Techno, Minimal, Tech House, Deep HouseПродолжительность: 06:01:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:694F1C55CF1EB772637C6971B80F85E1EF0983FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1180724   (340023) от 04.11.2017
 
 VA - 150 Dubstep Miscellany (2017) [MP3|320 Kbps] <Dubstep, Electro>
@@ -705,64 +763,6 @@ VA - Autumn Club Beats (2020) [MP3|320 Kbps] <Club, Dance, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA72D55DBD558609CB947124FD12FC8EF303693F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419899   (335714) от 30.10.2020
-
-VA - Interior Lounge Sounds Vol.05 (2020) [MP3|320 Kbps] <Lounge, Background, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335714.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bastian Clark - Mister Key
-002. Lounge Ibiza Cafè - Coffee
-003. Stepo Del Sol - Touch My Soul
-004. Daniel Ray - Wrapped Around(   Читать дальше...   )Жанр: Lounge, Background, DowntempoПродолжительность: 09:34:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A8BD21B33DD8C3862DB3A6AAC3C65F619C55075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419584   (335700) от 30.10.2020
-
-VA - The Secret Nightly Ride (2020) [MP3|320 Kbps] <Chillout, Relax, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_335700.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Free South Project - In The Front Row
-002. J. R. Haim - Yasmin
-003. Hidden Rivers - Rosunn
-004. Vip Pass - Love Is (Soft Chill Mix)(   Читать дальше...   )Жанр: Chillout, Relax, AmbientПродолжительность: 08:43:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9A54418A3B31D6CC380DFAEAFA82CF6D00C60268
 ```
 
 https://mybot314.ru/tekegram_catalog/

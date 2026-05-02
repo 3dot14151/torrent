@@ -1,3 +1,32 @@
+###  Публикация: 1031217   (668504) от 03.07.2016
+
+Nick Johnston - Atomic Mind (2014) [MP3|320 Kbps] <Instrumental Guitar Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668504.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Atomic Mind
+02. Ghost of the Robot Graveyard
+03. Last Deals of Dead Men
+04. Silver Tongued Devil(   Читать дальше...   )Жанр: Instrumental Guitar RockПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F1D7B52889D09CA080482BDBF870B35E9D3FF27
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1224095   (668178) от 08.05.2018
 
 Bias (feat. Rick Lambe) - Ships In The Night (1978-1981) Remastered, 2014, WEB [MP3|320 Kbps] <Soft Prog-Rock>
@@ -720,35 +749,6 @@ Muse - Drones Singles (2015) [MP3|320 кб/с]<Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B202485325B22EB66053D88428DFD2CDFE1141B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139102   (657701) от 04.06.2017
-
-Roger Waters - Is This the Life We Really Want? (2017) [MP3|320 Kbps] <Progressive Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_657701.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When We Were Young (01:38)
-02. Deja Vu (04:27)
-03. The Last Refugee (04:12)
-04. Picture That (06:47)(   Читать дальше...   )Жанр: Progressive Rock, Classic RockПродолжительность: 00:54:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3DD7547F487ADBD1C23A05F425CD2694A926C8CC
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1168185   (410558) от 23.09.2017
+
+Val Starr & The Blues Rocket - I Always Turn The Blues On (2017) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. High Time To Go (04:27)
+02. I Always Turn The Blues On (04:25)
+03. What Happens After Midnight (Nothin' Good) (05:31)
+04. Whether Blues (05:16)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05BDA7AA580760F2C22B3AD995F37DC5FB7003E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1413315   (409995) от 03.10.2020
 
 Ben Granfelt - True Colours (2020) [MP3|320 Kbps] <Blues Rock>
@@ -716,35 +745,6 @@ Rory Gallagher - The Best Of (2020) 2CD [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9EB3EBBDCF08604990C574EFE8F13175BE99CABD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1253924   (379419) от 11.10.2018
-
-Eric Clapton - Happy Xmas (2018) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_379419.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. White Christmas
-  2. Away In A Manger (Once In Royal David's City)
-  3. For Love On Christmas Day
-  4. Everyday Will Be Like A Holiday(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 00:56:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3A72CB7115BF0CDC70422F8280B1DBD83EC8D97
 ```
 
 https://mybot314.ru/tekegram_catalog/

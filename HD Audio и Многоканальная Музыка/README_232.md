@@ -1,3 +1,177 @@
+###  Публикация: 1683069   (38381) от 03.11.2024
+
+Stahlmann (& Sundenklang) - Studio Albums (11 releases) (2010-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Neue Deutsche Härte, Industrial, EBM>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38381.jpg" />
+</div>
+
+
+###  Подробнее
+
+Stahlmann — немецкая группа, играющая в стилях Neue Deutsche Härte, Industrial, EBM, в своих композициях группа соединяет жесткое гитарное звучание и глубокий вокал.2010 - Stahlmann
+2012 - Quecksilber
+2013 - Adamant
+2015 - Co2Жанр: Neue Deutsche Harte, Electronic, RockПродолжительность: 07:02:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E12B4A8E9366687124EE01321F9E81CC932E2FB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720053   (38364) от 03.11.2024
+
+Ensiferum - Studio Albums (11 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Epic Folk Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38364.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ensiferum (лат. «меченосец», «вооружённый мечом») — финская фолк-метал-группа, основанная в 1995 году. Участники группы характеризуют свой стиль как «мелодичный фолк-метал».2001 - Ensiferum
+2004 - Iron
+2008 - Victory Songs
+2009 - From AfarЖанр: Epic Folk MetalПродолжительность: 08:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09DEFB0CAB02688004CA7F950EF249D9BEB75D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690702   (38296) от 04.11.2024
+
+Vision Divine - Studio Albums (9 releases) (1999-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Progressive Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38296.jpg" />
+</div>
+
+
+###  Подробнее
+
+Vision Divine — итальянская пауэр-метал-группа, образованная в 1998 году. Многие участники коллектива так или иначе были связаны с другой итальянской пауэр-метал-группой Labyrinth.1999 - Vision Divine
+2002 - Send Me An Angel
+2004 - Stream Of Consciousness
+2005 - The Perfect MachineЖанр: Power/Progressive MetalПродолжительность: 08:21:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C2A7313DF0C0AD47EB459EECD38503B0A76631F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758692   (38278) от 04.11.2024
+
+РадаР - Это всё неинтересно (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock, Ska, Punk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Сон [00:03:57]
+02 - Пьяный и злой [00:02:58]
+03 - Когда закончатся дожди [00:03:55]
+04 - Страшно и чудовищно [00:03:11](   Читать дальше...   )Жанр: Rock, Ska, PunkПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1EF3D9324ABB442DD1775D831796689AFF750956
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758818   (38277) от 04.11.2024
+
+NonExist - Studio Albums (4 releases) (2002-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Thrash/Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38277.jpg" />
+</div>
+
+
+###  Подробнее
+
+Nonexist — шведская мелодик-дэт/трэш-метал группа, созданная бывшим вокалистом Arch Enemy Йоханом Лиивой в феврале 2000 года.2002 - Deus Deceptor
+2012 - From My Cold Dead Hands
+2015 - Throne of Scars
+2020 - Like The Fearless Hunter(   Читать дальше...   )Жанр: Melodic Death/Thrash MetalПродолжительность: 03:06:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDC85D1A1E11A4EE9A9CDD983F2279786F8BC1D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1758840   (38276) от 04.11.2024
+
+VA - Can’t Steal My Fire The Songs of David Olney (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues, Folk>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_38276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lucinda Williams - Deeper Well (5:40)
+02. Steve Earle - Sister Angelina (3:18)
+03. The McCrary Sisters - Voices on the Water (3:27)
+04. Buddy Miller - Jerusalem Tomorrow (4:36)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 01:09:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6B4F16A8FAA41942BAC3D3246F708D5392EC929
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1758835   (38275) от 04.11.2024
 
 Southern Hospitality - Yard Sale (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
@@ -574,179 +748,6 @@ Astral Doors — шведская хеви-метал-группа, основа
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:722C79342F8CBDFF4720B923B4FEE2E896A76563
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1544792   (37910) от 08.11.2024
-
-Eldest 11 - Studio Albums (10 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Modern Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37910.jpg" />
-</div>
-
-
-###  Подробнее
-
-Eldest 11 - группа загадка. Группа, не дающая концерты и интервью. Группа, от года к году не меняющая свое звучание, при этом умудряющийся оставаться самобытной и уникальной в плане создаваемой атмосферы и эмоций.2009 - Worst Part of a Decade
-2010 - Lovers & Haters
-2011 - Message to U
-2013 - The Morning StarЖанр: Nu Metal, Modern RockПродолжительность: 09:08:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CB08FBBC9AE4A5F325A7CBDB28010A4DFCD20D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759398   (37877) от 08.11.2024
-
-Neal Morse - No Hill For A Climber (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Progressive Rock, Symphonic Prog, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37877.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eternity in Your Eyes (20:56)
-02. Thief (5:22)
-03. All the Rage (5:34)
-04. Ever Interceding (6:31)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic Prog, Hard RockПродолжительность: 01:07:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC95906993A737F60DDE4C0D9AD26F960ABE1611
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613178   (37797) от 09.11.2024
-
-Delain - Studio Albums (11 releases) (2006-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37797.jpg" />
-</div>
-
-
-###  Подробнее
-
-Delain — нидерландская группа, исполняющая музыку в стиле симфоник-метал. Коллектив был основан в 2002 году Мартейном Вестерхольтом, бывшим клавишником Within Temptation.2006 - Lucidity
-2009 - April Rain
-2012 - We Are The Others
-2013 - Interlude (Compilation)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 11:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FBC5BC3AC9D0E497883D3A3F4BE7C621DB8C686
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1696895   (37774) от 09.11.2024
-
-Depressive Witches - Studio Albums (3 releases) (2021-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Black Metal/Black 'n' Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37774.jpg" />
-</div>
-
-
-###  Подробнее
-
-Блэк-метал группа Depressive Witches была основана в 2018 году в Пикардии, Франция2021 - Bad Flask
-2022 - Distant Kingdoms
-2024 - Lost, Forgotten and HeartbrokenЖанр: Black Metal/Black 'n' RollПродолжительность: 01:57:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18795B0E9A75DA019FE904BCA4104F41352A33F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1721063   (37759) от 09.11.2024
-
-Paragon - Studio Albums (13 releases) (1995-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power/Speed Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Paragon — немецкая метал-группа из Гамбурга, играющая в стиле пауэр-метал. Была основана в 1990 году Мартином Кристианом.1995 - World Of Sin
-1998 - The Final Command
-1999 - Chalice Of Steel
-2001 - SteelboundЖанр: Power/Speed MetalПродолжительность: 11:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:290C6BEDC1568C3E6DF61492DB572AFBEFA44F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1759549   (37757) от 09.11.2024
-
-Jean Michel Jarre - Zoolook (1984) 40th Anniversary - new mastering, 2024, Sony Music Catalog [FLAC 24/48|Lossless|WEB-DL|tracks] <Techno>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_37757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ethnicolor (new mastering) [00:11:41]
-02. Diva (new mastering) [00:07:31]
-03. Zoolook (new mastering) [00:03:52]
-04. Wooloomooloo (new mastering) [00:03:18](   Читать дальше...   )Жанр: TechnoПродолжительность: 00:40:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDE332D503D227C9315936977E2CE9B9331A7F3C
 ```
 
 https://mybot314.ru/tekegram_catalog/

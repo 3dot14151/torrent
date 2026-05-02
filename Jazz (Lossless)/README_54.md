@@ -1,3 +1,61 @@
+###  Публикация: 1002894   (847008) от 01.04.2016
+
+Ceu - Tropix (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Pop, Soul>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_847008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Perfume Do Invisivel
+02. Arrastarte-Ei
+03. Amor Pixelado
+04. Varanda Suspensa(   Читать дальше...   )Жанр: Vocal Jazz, Pop, SoulПродолжительность: 00:48:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C12B319FB6335B2E218A14D695DE7127F8025560
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1111742   (846806) от 06.03.2017
+
+Isham Jones - 1929-1934 (2008) Jazz Oracle [FLAC|Lossless|tracks + .cue] <Early Jazz, Dance Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846806.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When My Sugar Walks Down The Street [03:06]
+ 02.Jealous [03:31]
+ 03.Miss Hannah [03:09]
+ 04.There's A Wah-Wah Gal In Agua Caliente [03:11](   Читать дальше...   )Жанр: Early Jazz, Dance BandПродолжительность: 01:14:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14148B77A6F835E9388EFFACA827769540B52A5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1111801   (846805) от 06.03.2017
 
 Jackie McLean - Strange Blues (1957) 1989, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -686,64 +744,6 @@ Straight No Chaser - 2 Album (2015 - 2016) [FLAC|Lossless|image + .cue] <Acapell
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E246222DD36E5A30C5750EFC49E9F82E6412F37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1111912   (845226) от 07.03.2017
-
-Erroll Garner - The Real... Erroll Garner (2016) 3CD [FLAC|Lossless|tracks + .cue] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845226.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-1. When You're Smiling
-2. Lover
-3. The Way You Look Tonight(   Читать дальше...   )Жанр: JazzПродолжительность: 02:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0E919A10836E07509BF334827D74DBFE8495F273
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1003105   (845199) от 02.04.2016
-
-Tuba Skinny - Blue Chime Stomp (2016) [FLAC|Lossless|WEB-DL|tracks] <New Orleans Jazz, Dixieland, Street Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845199.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maple Leaf Rag
-02. Running Down My Man
-03. Oh Papa
-04. Blue Chime Stomp(   Читать дальше...   )Жанр: New Orleans Jazz, Dixieland, Street BandПродолжительность: 01:01:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30D9DEE854A26A92359525312E31D782218E900E
 ```
 
 https://mybot314.ru/tekegram_catalog/

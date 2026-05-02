@@ -1,3 +1,119 @@
+###  Публикация: 802468   (613264) от 13.07.2014
+
+Диана Арбенина - Мальчик На Шаре (2014) [MP3|320 кб/с]<Rock / Acoustic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613264.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Брамс
+02. Адреналин
+03. Горыгоры
+04. Ma vie(   Читать дальше...   )Жанр: RockПродолжительность: 00:53:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DCD2E1C822B3BA7E36E87B86054173C11275E73B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1545455   (613162) от 20.04.2022
+
+Bastard Folk - Трактир на перекрестке (2022) [MP3|320 Kbps] <Folk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_613162.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Эй, налей [00:03:20]
+02 - Раз весёлый каннибал [00:02:20]
+03 - Ведьмина вода [00:02:53]
+04 - Кот за дрот [00:03:21](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:24:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1DC543665B4105FF1168F908350F2AE907E63D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 910839   (612579) от 25.06.2015
+
+Strike - Паранойя (2015) EP [MP3|320 кб/с]<Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612579.jpg" />
+</div>
+
+
+###  Подробнее
+
+Семь новых песен - семь новых историй из нашей жизни. Разминаясь перед созданием большого релиза, мы решили порадовать наших поклонников новыми песнями. Мы творим, находясь в полной свободе от контрактов и обязательств. Наши песни - это отражение нашего мироощущения. Мы приложили все усилия к их созданию и нам чертовски нравится результат!!1. Паранойя
+2. На одной волне
+3. Кто?
+4. Дальний свет(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:22:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:622D27EE38DF3DF2106ED352B57AC6969B6B54BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 912260   (612402) от 25.06.2015
+
+Antillia (Антиллия) - Древние Силы (2015) [MP3|320 кб/с]<Symphonic Power Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_612402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Последний звездопад
+02. Тайна
+03. Рассвет
+04. Штурм(   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 01:01:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438D32CDB2BD7ABA5234B18369BB2355AAC66635
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 911781   (612357) от 25.06.2015
 
 Юта - Лучшие песни (2009) [MP3|320 кб/с]<Rock, Pop>
@@ -628,119 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60930054C4BF6985348610756529112FAD17CC57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1297827   (603079) от 24.04.2019
-
-Олег Гаркуша (АукцЫон) - 23 (2019) [MP3|320 kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Понимаешь (04:06)
-02. Испорченный Вид (03:14)
-03. Золотые Колесницы (03:21)
-04. Фантазия (05:02)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C687F8637A534E7D801B8B1C1A0AD56B7A73ABB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1148984   (602916) от 08.07.2017
-
-Annodomini - Небо надо мной (2016) [MP3|320 Kbps] <Gothic Love Metal, Modern Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не надо слов (03:27)
-02. Километры (03:39)
-03. Плохие девочки (03:52)
-04. Отпусти (03:51)(   Читать дальше...   )Жанр: Gothic Love Metal, Modern MetalПродолжительность: 00:39:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4B49955CCA87B0D270B531B43565E53089D9044
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232186   (602740) от 22.06.2018
-
-Alexander Sitkovetsky - Full House (2016) 2CD [MP3|320 Kbps] <Instrumental Rock, Art-Rock, Classical>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602740.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sinfonia (5:20)
-02. Full House (5:34)
-03. Canyon Fog. in F (5:38)
-04. Numero Cuatro (4:47)(   Читать дальше...   )Жанр: Instrumental Rock, Art-Rock, ClassicalПродолжительность: 01:26:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47006B3EE950C70C3526BDF401C8C4EDB528EB10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232097   (602739) от 22.06.2018
-
-7Б - Ночное лето (2018) Single [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602739.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ночное летоЖанр: RockПродолжительность: 00:03:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D51CECC6752CA2873566A49F4355E70273F2039F
 ```
 
 https://mybot314.ru/tekegram_catalog/

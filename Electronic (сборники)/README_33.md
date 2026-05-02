@@ -1,3 +1,61 @@
+###  Публикация: 1369891   (900321) от 25.03.2020
+
+VA - Hypnotic City Mix (2020) [MP3|320 Kbps] <Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_900321.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Claudia C. - Black Space
+002. Angel Romario - The Biggest Change
+003. Hernan Cerbello - Bolder (Original Mix)
+004. Bash Markov - Moon (After Mix)(   Читать дальше...   )Жанр: Techno, Tech HouseПродолжительность: 09:31:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DE3176E61841B08FD9560705EE4797EAFA66237
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1100505   (899865) от 04.02.2017
+
+VA - Empire Records - Golden Drum (2017) [MP3|320 Kbps] <Dubstep, Drum & Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drumsound & Bassline Smith - Through the Night (Club Mix)
+02. Sia - Unstoppable (DJ Noiz DnB Remix)
+03. Kent Funkshun - Catch That Moment
+04. Flux Pavilion - Standing on a Hill (Original Mix)(   Читать дальше...   )Жанр: Dubstep, Drum & BassПродолжительность: 01:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5F32D7462509E8381FD27B86588B181333C42F88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1100509   (899784) от 04.02.2017
 
 VA - Empire Records - Romantic Drum (2017) [MP3|256-320 Kbps] <Dubstep, Drum & Bass>
@@ -705,64 +763,6 @@ Spring Party - Hits For Your Car N3 (2016) [MP3| 191-320 кб/с] <Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB88CE725F88A437FACC987831A00B45409069D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493665   (894122) от 04.09.2021
-
-VA - Best New DnB Hype (2021) [MP3|320 Kbps] <D&B, Bassline, Electro Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894122.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Krusty - Friction
-002. Psyek, Spoi - Graham's Number
-003. Alcemist - Repression
-004. Radist - Paralel(   Читать дальше...   )Жанр: D&B, Bassline, Electro BassПродолжительность: 11:59:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:835C803523E8BABE5AE8CDC1F07C438BFB8CE9B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1493689   (894088) от 04.09.2021
-
-VA - NRW: Clubbing Future House (2021) [MP3|320 Kbps] <House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_894088.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Eugenio Tokarev - Time
-002. Kiral - Again
-003. Eskuche - The Sun
-004. Storgards - Be Kind(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 11:57:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFD26C64F2AA092C6AAB1C53CDF43A9F1004E654
 ```
 
 https://mybot314.ru/tekegram_catalog/

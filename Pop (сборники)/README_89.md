@@ -1,3 +1,131 @@
+###  Публикация: 559834   (406847) от 14.10.2012
+
+VA - D-скач 90-х Russian Dance Mix (2012) [MP3|256 кб/с]<Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406847.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. MC Zali - Кайф (DFM Version)
+ 002. Иванушки International - Тополиный пух (Андрей Харченко Remix)
+ 003. Юра Шатунов - Розовый вечер (URAL DJS Dance Mix)
+ 004. Саша Зверева (ex. Demo) - Солнышко (Free Djs Rework)
+ 005. Дискотека Авария & Жанна Фриске - Малинки
+ 006. Анжелика Варум - Зимняя вишня (URAL DJS Ritm Vers)
+ 007. Руки Вверх - Студент (Free Dj's Rework)
+ 008. Чай Вдвоем - А ты все ждешь
+ 009. Shura - Don-don-don (DJ Fisun Remix)
+ 010. Вирус - Счастье (Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 13:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3DFFCB696CD2E5D29768C433DDFA397F82F8F71F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1413984   (406685) от 06.10.2020
+
+VA - Лучшие новинки сезона Vol.4 (осень 2020) (2020) [MP3|320 Kbps] <Club, Dance, Synth Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406685.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Мишель - Соль (Original Radio Edit) (03:16)
+002. Артем Качер & Ирина Дубцова - Под Дождем (Dj Prezzplay) (04:03)
+003. Nataliya - Бармен, Налей (Original) (02:38)
+004. Саша Wave & Илага - Мой Сон (D-wave Remix) (03:53)(   Читать дальше...   )Жанр: Club, Dance, Synth PopПродолжительность: 05:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:554B797CEFF4EAB7ACFE867C33A3C27C94195E6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 561025   (406396) от 16.10.2012
+
+VA - The Official UK Top 40 Singles Chart (14-10-2012) [MP3|320 кб/с]<Pop, Rok, R&B>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_406396.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжаю традицию регулярной публикации UK Singles Chart — официального хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Составляется с 1952 года как аналог американского Billboard Hot 100.
+Существует и «братский» хит-парад альбомов — UK Albums Chart.
+Во все треки вшиты обложки альбомов.Жанр: Pop, Rok, R&BПродолжительность: 02:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B1749BE1E1884CADE0B3078F6E118618D9C3C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 563581   (405075) от 21.10.2012
+
+VA - Позитивная музыкальная энергия (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_405075.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вера Брежнева и DJ Smash - Любовь На Расстоянии
+02. Юлия Беретта - Такси
+03. Orbital - Where Is It Going (Live Style Mix)
+04. Иракли - Осень
+05. DJ HaLF & Женя Юдина - Два Сердца (Extended Mix)
+06. Cranksters - My First Love (Radio Edit)
+07. Arash feat. Sean Paul - She Makes Me Go
+08. Mariya (Мария) - Ты Тот (Kapler Remix)
+09. DJ Niki feat. SODA - Я это ты (cover radio remix)
+10. Leven Mervox - Waiting The Past (Running Man Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 08:12:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF9C1AED135BE60CC72A695819F990580AD21694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 563000   (405024) от 21.10.2012
 
 VA - Муз-тв Хитовая 100-ка (2012) [MP3|256 кб/с]<Поп>
@@ -731,146 +859,6 @@ VA - Сливки Русского радио: Лучшие песни 9 (2012) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:650C9BEEE7C8F53848915584E58161866257FA45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564013   (402999) от 23.10.2012
-
-VA - На Радиоволнах Хит FM (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402999.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Анна Семенович - Любовь Под Облаками
-002. Will.I.Am feat. Nicole Scherzinger - Hoola Hoop
-003. Вера Брежнева и DJ Smash - Любовь На Расстоянии
-004. Alexandra Shine - Play That Game
-005. Дима Билан и Ева - Малыш
-006. Enrique Iglesias feat. Sammy Adams - Finally Found You (Vice Radio Edit)
-007. Митя Фомин - Наглый Ангел
-008. Khaled feat. Pitbull - Hiya Hiya
-009. Ёлка - Хочу
-010. Rico Bernasconi feat. Oraine & Ski - Undercover Lover (Radio Mix)(   Читать дальше...   )Жанр: PopПродолжительность: 11:48:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:440F70FE19DC37F01B71FB7FDA174980065E9E4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564400   (402991) от 23.10.2012
-
-VA - Осенний Top MTV (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402991.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kerli - The Lucky Ones
-002. Girls Aloud - Something New
-003. Leona Lewis - Glassheart
-004. Pitbull - I'm Off That
-005. Kesha - Die Young
-006. Christina Aguilera - Your Body
-007. Alexis - Good Bye My Love (Radio Edit)
-008. Ashley Walters feat. Alesha Dixon - Your Love
-009. Magic Deejays - Close To Me (Radio Edit)
-010. Allexinno feat. Starchild - Joanna (Radio Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:03:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96DB88140CC2075A0603E4DF675044D49168D688
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564427   (402990) от 23.10.2012
-
-VA - Мобильная 200-ка Интернета (2012) [MP3|128 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402990.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Руки Вверх! - Я тебя люблю
-002. DJ Smash feat. Вера Брежнева - Любовь на расстоянии
-003. Samo'L - Двигаем Телами
-004. Тимур Родригез - Я верю в твою любовь
-005. Глюкоза - Возьми меня за руку
-006. Даша Суворова - На лондонских стеклах
-007. Марсель - Настроение осень
-008. El Ray & Марина Алиева - Вселенная Любви
-009. Дима Билан - Все ускорилось
-010. Елка - Хочу(   Читать дальше...   )Жанр: PopПродолжительность: 12:06:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A47D7FC491128A9B569C7E1583D4648FB96E226
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564829   (402433) от 24.10.2012
-
-VA - Осенний Муз-Paradise (2012) [MP3|256 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Светлана Лобода - 40 Градусов
-02. Маша Вебер - Все для тебя
-03. Светлана Разина и Наталья Гулькина - Женщине верить нельзя!
-04. Полина Гагарина - Спектакль окончен
-05. Горячий Шоколад - За Тобой
-06. MMDance feat. Dj Smash - Суббота
-07. Дарья Ярцева - Дай Мне
-08. Artik & Asti - Облака (DFM mix)
-09. Денис Клявер - Твои руки
-10. B.K. - Просто Забудь(   Читать дальше...   )Жанр: PopПродолжительность: 06:00:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8445486D257E34338C901EEA39C9A432197BDC3E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1014306   (776331) от 07.05.2016
+
+Любэ - Рассея (2005) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776331.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. От Волги До Енисея
+02. Русские
+03. Батька Махно
+04. Ясный Сокол(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F0079D15F42306778E2E3E4B501EAC96921E9A4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1277579   (775090) от 22.01.2019
 
 Подиум - Любовь зла (2018) [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -708,35 +737,6 @@ Nu Virgos (ВИА Гра) - Stop! Stop! Stop! (single) (2003) [FLAC|Lossless|ima
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:63AEDB788CAED5B7CA433285B263B660EB3332AF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023411   (723838) от 05.06.2016
-
-Александр Малинин - Звездная серия (1997) [FLAC|Lossless|image + .cue] <Pop, Romance>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723838.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Поручик Голицын
-02. Черная гвоздика
-03. Коррида
-04. Белый конь(   Читать дальше...   )Жанр: Pop, RomanceПродолжительность: 01:13:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2F74EC1652078A95AD5640252074D2911967B7F
 ```
 
 https://mybot314.ru/tekegram_catalog/

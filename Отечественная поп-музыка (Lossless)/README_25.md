@@ -1,3 +1,32 @@
+###  Публикация: 1737826   (49489) от 19.07.2024
+
+Serebro - 11 (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Song [00:03:38]
+02. Сладко [00:03:59]
+03. Не время [00:03:54]
+04. Давай держаться за руки [00:04:16](   Читать дальше...   )Жанр: PopПродолжительность: 01:12:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EC16BA4050B8C1930684B5662FAB13D16CA6AB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1741903   (47354) от 09.08.2024
 
 Reflex - Blondes 126 (2008) [WavPack|Lossless|image + .cue] <Pop>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AAE27FC164BEE4B1BE23D7E91DDE4EB9DE6DFCC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1779050   (27978) от 11.02.2025
-
-VA - Давид Тухманов – Притяжение Земли. Лучшие Песни 70х и 80х гг. (1997) Compilation, Remastered [FLAC|Lossless|image + .cue] <Pop>
-
->>Pop
->>Отечественная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_27978.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Лев Лещенко - Соловьиная Роща
-02. Геннадий Белов - Звездная Песня Неба
-03. Лев Лещенко - Вечное Движение
-04. Владимир Макаров - Последняя Электричка(   Читать дальше...   )Жанр: PopПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FF6CB6554E6DF2FAE1D57555B7D7AE0E0DF78CAE
 ```
 
 https://mybot314.ru/tekegram_catalog/

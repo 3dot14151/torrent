@@ -1,3 +1,177 @@
+###  Публикация: 1802242   (66088) от 15.06.2025
+
+Larry McCray - Heartbreak City (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66088.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Try To Be A Good Man (4:18)
+02.  Heartbreak City (7:24)
+03.  Bye Bye Blues (4:54)
+04.  Bright Side (5:37)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99964EC9A39AC0CCA8EE7281DBCEFCB0C611B8DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802263   (66085) от 15.06.2025
+
+Tres Pistoleros e Dona Kay - On another level (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blues Is The Mother (4:09)
+02.  Setup For Disaster (3:29)
+03.  Jaded Like Me (2:57)
+04.  Walk In The Sunshine (2:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4831D61C073499E933AEE393E2998E0009F570BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802246   (66084) от 15.06.2025
+
+Van Morrison - Remembering Now (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Down To Joy (3:38)
+02.  If It Wasn’t For Ray (3:17)
+03.  Haven’t Lost My Sense Of Wonder (5:28)
+04.  Love, Lover and Beloved (5:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C00F15B345B1B03760804B52EDD02F5799A274F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802256   (66078) от 15.06.2025
+
+RPS - Annihilation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66078.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sky Rider (4:28)
+02.  Only Waitin' (2:30)
+03.  The Feelings Grown (2:07)
+04.  Save It For Me (5:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA15E51A2DC513901F53D1B986F45C045646510
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802249   (66072) от 15.06.2025
+
+Little Barrie & Malcolm Catto - Electric War (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66072.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Electric War (5:16)
+02.  Zero Sun (3:28)
+03.  Spektator (3:46)
+04.  Creaky (7:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C235038F9E5F989C6D9C17CC4DCF123A2CCDEC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802240   (66071) от 15.06.2025
+
+KinKobra - Kobra's Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66071.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  29 and Wasted To Tha Bone (3:09)
+02.  Serial (3:29)
+03.  The Bravest One Of All (3:02)
+04.  Planet Boom (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C389D0E3640E19D9095B7AC3198403080995C22F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1802254   (66069) от 15.06.2025
 
 Pleasure Business - Pleasure Business (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
@@ -570,179 +744,6 @@ War Of Ages - Eternal (2010) 15th Anniversary Rerecorded Version, 2025, Facedown
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B046F3CB540A5DB48963625125A77FF403DC8004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802953   (65968) от 20.06.2025
-
-DannyLux - Leyenda (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Latin America Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. TRISTEZA DE LUX [00:02:48]
-02. DIME BB [00:02:40]
-03. MELANCOLÍA [00:03:49]
-04. SIRENA [00:04:13](   Читать дальше...   )Жанр: Latin America PopПродолжительность: 01:03:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:768F353FE2C43C033F264877F686060810A46EFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802909   (65967) от 20.06.2025
-
-Letters From The Colony - Studio Albums (3 releases) (2011-2018) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Post-Metal, Progressive Metal, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65967.jpg" />
-</div>
-
-
-###  Подробнее
-
-Letters From The Colony - метал-группа из Бурленге, Швеция. Основана в 2010 году.2011 - Letters From The Colony
-2014 - Galax (EP)
-2018 - VignetteЖанр: Post-Metal, Progressive Metal, MetalcoreПродолжительность: 01:46:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:336F322A182CBC9AE5FEA5FF47B910EAB0FFB082
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1803019   (65964) от 20.06.2025
-
-Bambii - Infinity Club II (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Drum & Bass, Electronic>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65964.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. INFINITY CLUB II [00:00:24]
-02. Remember (feat. Ravyn Lenae & Scrufizzer) [00:02:45]
-03. Blue Sky (feat. LYZZA & SadBoi) [00:02:22]
-04. Mirror (feat. Jessy Lanza & Yaeji) [00:02:48](   Читать дальше...   )Жанр: Drum & Bass, ElectronicПродолжительность: 00:24:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5F54DDB58781953FD2116C1F50F07C8119B1F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802931   (65959) от 20.06.2025
-
-Aesthetic Perfection - Closer to Human (2025) Limited Edition [FLAC 16,24/44.1|Lossless|WEB-DL|tracks] <Dark Electro, EBM, Futurepop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65959.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Human
-02 – Belong
-03 – Beautiful
-04 – Surface(   Читать дальше...   )Жанр: Dark-Electro, EBM, FuturepopПродолжительность: 01:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117C539968455639542B4D9B8D7E7AC2E86803AE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802949   (65958) от 20.06.2025
-
-Soft Cell - Non-Stop Ecstatic Dancing (1981) Deluxe Edition, 2025, UMC [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthpop, Electronic, Powerpop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Memorabilia (The Hacker 808 Remix) [00:06:39]
-02. A Man Could Get Lost (Jon Pleased Wimmin Remix) [00:05:48]
-03. Torch (MHC 2001 Remix) [00:08:42]
-04. Insecure Me (Hifi Sean Remix) [00:06:17](   Читать дальше...   )Жанр: Synthpop, Electronic, PowerpopПродолжительность: 01:19:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9AF2EADF2995779240C3824FE9E5D92979E3CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802922   (65957) от 20.06.2025
-
-Haim - I quit (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Indie Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65957.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Gone
-02 – All over me
-03 – Relationships
-04 – Down to be wrong(   Читать дальше...   )Жанр: Indie PopПродолжительность: 00:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4E7AD9A58E34DA3D3847841EFFA6F8CC401115
 ```
 
 https://mybot314.ru/tekegram_catalog/

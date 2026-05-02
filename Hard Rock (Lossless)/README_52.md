@@ -1,3 +1,119 @@
+###  Публикация: 1572491   (419456) от 28.08.2022
+
+Sunstorm - Brothers In Arms (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419456.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brothers In Arms (4:43)
+02. Games We Play (3:59)
+03. I'll Keep Holding On (4:23)
+04. I Will Remember (4:05)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:48:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B114B32DDDAA59BF3A2E67BFA61F14459CB6604
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1572486   (419326) от 28.08.2022
+
+Restless Spirits - Second To None (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419326.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Need A Lil' White Lie (5:00)
+02. Hey You (4:05)
+03. Dreams Of The Wild (5:21)
+04. Until The End Of Time (5:12)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:01:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8423B7F09172341D60CEF13CBCD102449DAEFA53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1065411   (418585) от 23.10.2016
+
+July Reign - Here Comes The Flood (2016) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418585.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro   (00:35) 
+02. Inferno   (04:24) 
+03. Rage Of Pain   (05:01) 
+04. Rest In Ruins   (04:16) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2777063B70F21762F964177BC8C8286B29226A30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1167239   (417417) от 20.09.2017
+
+Ohrenfeindt - Zwei Fauste Fur Rock'n'Roll (2017) [FLAC|Lossless|tracks + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417417.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Deine Mudder Singt Bei Lordi   (03:18) 
+02.  Starkstrom-Baby   (03:38) 
+03.  Wanda Wondergirl   (03:27) 
+04.  König Und Rebell   (03:04) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A05BA01A35751A133188466019E0223FEC51386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065964   (417051) от 24.10.2016
 
 Ray Gillen - 5th Anniversary Memorial Tribute (1998) [APE|Lossless|image + .cue] <Hard Rock>
@@ -636,122 +752,6 @@ Deep Purple - Machine Head (1972) 4 Remastered CD Box Set /2012, EMI Records/ [W
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170167   (398515) от 02.10.2017
-
-UFO - The Salentino Cuts (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_398515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heartful Of Soul
-02. Break On Through (To The Other Side)
-03. River Of Deceit
-04. The Pusher(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B82A0D3949035805A5CA7986385F8C08B90C36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1170787   (397437) от 03.10.2017
-
-Survivor - 8 Albums, 5 Compilations, 1 Live (1979 - 2006) 36 CD [FLAC|APE|Lossless|image + .cue|tracks + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_397437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Survivor — американская рок-группа. Стиль группы можно определить как типичный американский хард-рок, выдержанный в энергичном темпе, с агрессивной мелодикой, однако весьма насыщенный клавишными, и в результате сведённый до уровня AOR.Список альбомов:
-1979 - Survivor
-1981 - Premonition
-1982 - Eye of the Tiger(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 26:07:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96E43CF7BC19D66757F14CFE735F00BF8CE87C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1171731   (394725) от 06.10.2017
-
-Jimi Jamison (Target, Cobra and Solo Albums) - 9 Albums (1976 - 2012) [FLAC|APE|Lossless|image + .cue|tracks + .cue] <Classic Rock, Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_394725.jpg" />
-</div>
-
-
-###  Подробнее
-
-Джими Уэйн Джемисон - Является рок-вокалистом и автором песен. Наибольшую популярность приобрел в Survivor. Родился 23 августа 1951 года в Миссиссипи. Родившийся в Миссиссипи Джемисон переезжает со своей матерью в Мемфис, штат Теннесси. С тех самых пор он считает себя уроженцем Мемфиса. Уже в школьные годы он участвует в рок группах. Позже он становится вокалистом (   Читать дальше...   )Список альбомов:
-1976 - Target
-1977 - Captured
-1983 - First Strike(   Читать дальше...   )Жанр: Hard Rock, AORПродолжительность: 08:06:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F3ECB04324B3816F604BA0451F3148FFF34F7B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1574285   (388047) от 04.09.2022
-
-Nordic Union - Animalistic (2022) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_388047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. On This Day I Fight (3:02)
-02. In Every Waking Hour (3:27)
-03. If I Could Fly (3:46)
-04. Riot (3:51)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1C91CD62CBBE1264B7D91D94B4A41667D083AA6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

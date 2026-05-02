@@ -1,3 +1,32 @@
+###  Публикация: 1189537   (270421) от 06.12.2017
+
+Tale of Us - Endless Remixes (2017) Deutsche Grammophon [FLAC|Lossless|WEB-DL|tracks] <Techno, Ambient, Dub Techno>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270421.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Definizione dell'impossibile (Monoloc Remix) (05:16)
+02. Alla sera (Kettenkarussell's Triangle Player Rework) (06:56)
+03. Ricordi (Rødhåd Remix) (06:40)
+04. Oltre la vita (SCB Introspection) (10:49)(   Читать дальше...   )Жанр: Techno, Ambient, Dub TechnoПродолжительность: 01:30:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:11340B7E20CF9B4396F872B825D224E3981772EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1189501   (270409) от 06.12.2017
 
 Fingers In The Noise - 11 Releases (2011-2017) [FLAC|Lossless|tracks+.cue, tracks] <Dub Techno, Ambient, Downtempo>
@@ -714,35 +743,6 @@ Marla Singer - Center Of Subconscious (2017) Nachtstrom Schallplatten [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7117753AFC579D5D39A3150890FA000F21FB5C5E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838935   (261606) от 25.11.2025
-
-VA - Autum Hits 2025 (Deep Strips) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DominiNiobe - I'm Not Afraid (4:02)
-02. Kanette - Real Life (5:17)
-03. Gorbunoff - Somebody To Love (2:12)
-04. Nikita Marasey - Lost Tonight (Radio Edit) (2:28)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E43A7AD956D139A9E4B5DF8E53967F0E500DC67
 ```
 
 https://mybot314.ru/tekegram_catalog/

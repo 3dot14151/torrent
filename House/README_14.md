@@ -1,3 +1,206 @@
+###  Публикация: 1380814   (831363) от 04.05.2020
+
+VA - Summer Deephouse Megamix 2020 (2020) [MP3|320 Kbps] <House, Deep House, Club House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831363.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DJ Mix - Summer Deephouse Megamix 2020 Pt. 1 1:15:12
+02. DJ Mix - Summer Deephouse Megamix 2020 Pt. 2 1:18:13
+03. Ben Delay - Something Special (Extended Mix) 4:49
+04. Carlisle - On Your Skin (Original Club Mix) 3:37(   Читать дальше...   )Жанр: House, Deep House, Club House, Progressive, Electronic, DanceПродолжительность: 09:48:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E9DFDACB21F14A8FCDE66B38CB9507F94998C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1005748   (831065) от 10.04.2016
+
+JIN SHI - My Digital Madness (2013) [MP3|320 кб/с] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_831065.jpg" />
+</div>
+
+
+###  Подробнее
+
+00. JIN SHI - My Digital Madness (continuous DJ mix) (01:17:35)
+01. Four Tet - Lion (Jamie XX Remix) (5:25)
+02. Erdbeerschnitzel - Cushion (Original Mix) (4:40)
+03. Archie Pelago feat. Becca Stevens - Avocado Roller (Original Mix) (3:34)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:35:03 (01:17:35 + 01:17:28)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6ADBE694E89110B5518C721631FAFAC804C44E52
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114919   (830070) от 16.03.2017
+
+VA - Never Miss A Beat (25 Crazy Deep-House Tunes) Vol.2 (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830070.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  House Vicious - Summer Leaves (Original Mix)  3:19
+02.  Chada - Through The Bar Line (Original Mix)  3:06
+03.  Julian Smith - Lacetti (Original Mix)  11:41
+04.  Tommy Harmond - Stay Together Forever (Extended Mix)  3:32(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 02:07:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:375D04956B4F0A6737F6DB54AD0F0B0E1FEDBBBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114910   (830065) от 16.03.2017
+
+VA - Best Of Deep House 2017 Vol.02 (2017) [MP3|320 Kbps] <House, Deep House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Justin Oh - Good Morning (Claes Rosen Remix)  6:51
+02.  Dezza - Brit  5:49
+03.  Eskai - Tides  5:16
+04.  Dan Sieg - Everything U Need  5:56(   Читать дальше...   )Жанр: House, Deep HouseПродолжительность: 01:35:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BD91578171B0727CDCFAC0E9CE6DD5B7C086A45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1114856   (830063) от 16.03.2017
+
+VA - The Fitness Series Vol. 2 (2017) [MP3|320 Kbps] <Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_830063.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Norgzki - Butterfly Effect (Original Mix) 06:54
+02. Oliver Marks - Night Lover (Original Mix) 07:49
+03. Dark By Design - Words Are Not Enough (Original Mix) 06:47
+04. Cut-Up - Time To Rock (Original Mix) 06:17(   Читать дальше...   )Жанр: Hard HouseПродолжительность: 05:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25C003A5E6739A6ECE659587AD84F059F1DC8147
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115317   (828257) от 17.03.2017
+
+VA - Black Hole House Music 03-17 (2017) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Andy Moor & Michele C - We Can Be Free (VENIICE Extended Mix)  4:10
+02.  The Overview Effect - Sweetness + Light (feat Luke Chable)  3:38
+03.  Eskai & SNR - Find Yourself (Declan James Remix)  4:57
+04.  Mardven - Level Up!  4:09(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:15:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A02F9FAA4FC481EAED4F3DCC83186CD786AC6EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1115261   (828048) от 17.03.2017
+
+Brooklyn Bounce - Best Of The 90s (2017) [MP3|320 Kbps] <House, Eurohouse, Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_828048.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Intro  1:03
+02.  The Theme (Of Progressive Attack) (Trip Mix (Radio Edit))  3:39
+03.  Take A Ride (Radio Mix)  3:40
+04.  The Real Bass (Radio Mix)  3:42(   Читать дальше...   )Жанр: House, Eurohouse, Hard HouseПродолжительность: 02:06:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B63EF4A181BC013958D9559A2945C82A56DB6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1381515   (826242) от 07.05.2020
 
 VA - Ibiza Opening Party 2020 (2020) [MP3|320 Kbps] <House, Club House, Electronic, Dance>
@@ -548,209 +751,6 @@ VA - Re:Recommended - Progressive House Edition Vol.7 (2016) [MP3|320 кб/с] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:53956C12AE2485FE2E834A7657E45B19FA83A120
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1116809   (821174) от 21.03.2017
-
-VA - Beats For Life Vol 1 (20 House Machines) (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821174.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Donna Alma Rouge - I Swear (Francesco Baldi Summer Remix) 07:00
-02. Dani B., Nicola Veneziani - Pump The Bass (Alex Barattini Remix) 06:10
-03. Luca Bisori - Do You Wanna Funk 06:57
-04. The Switch - Beautiful Monster (Feat. Johnny B.) 04:35(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:710A49129DF3EAD1BD9FD80B454E91670E6598C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007844   (819902) от 16.04.2016
-
-VA - Progressive House Components (2016) [MP3|320 кб/с] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819902.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quadran - Rumour (Thorin Remix) 07:18
-02. Fulagie - Tantrina 05:44
-03. LucianZ - Beautiful Moments (Club Mix) 06:41
-04. Lolo - Travel the World in 10 Minutes (Chris M Progressive Mix) 10:00(   Читать дальше...   )Жанр: House, ProgressiveПродолжительность: 02:53:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18A78ABCD29EBB23F93D86A0A6C78ABDDCEAC223
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007754   (819900) от 16.04.2016
-
-VA - Venera Music Vol.4 (2016) [MP3|320 кб/с] <House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Skvortsov - Into the Unknown 06:45
-02. Alex Greenhouse - Everyday U Need a 5un5hine 09:02
-03. Anton Seim - Pleasure Time (Manchus Remix) 07:00
-04. Argonautica - Counterpoison 05:13(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:07:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D43E96ED01C9977155597B16CC34BE9E0459E92
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007819   (819899) от 16.04.2016
-
-VA - Urban Dance Battle Nation (2016) [MP3|320 кб/с] <House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819899.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mykel Mars - White Beach (DJ Absinth EDM Edit) 03:20
-02. Tony Wong - Born for EDM (Muscle Mix) 03:37
-03. The Betatesters - Drop That (EDM Cardio Mix) 03:24
-04. Robby Schulz - Breathtaking (EDM Workout Anthem) 04:32(   Читать дальше...   )Жанр: House, Progressive, DanceПродолжительность: 02:02:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:256FBBBD829D6636AC224537A1BD9401F41E6A61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007883   (819898) от 16.04.2016
-
-VA - The Best Progressive Hits Vol.5 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819898.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Luck Out - Asylum of Love 06:20
-02. Jimmy Roqsta - Eavesdropping of Aliens 05:37
-03. Ivanshee - Clarity 07:21
-04. Haxxy - You Not See, but They Do Exist 10:28(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:905F3598057C5474077BFE4DE6BA0B6183896E44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007942   (819895) от 16.04.2016
-
-VA - Black Hole House Music 04 - 16 (2016) [MP3|320 кб/с] <House, Progressive House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bassanova ft Austin Massirman - Fire Escape (Evil Twin Remix) 06:28
-02. Myon & Shane 54 with Haley - Round We Go (Extended Mix) 05:08
-03. Manufactured Superstars ft Iossa - Carry You Home (Jaguar Nights Remix) 06:20
-04. Eve Belle & Brian Laruso - Solace (M-22 Remix) 04:43(   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:25:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7606067E3DEC189C354CF8E3357BFDAA3C8AF068
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117353   (819378) от 22.03.2017
-
-VA - In Between Worlds Vol.2 (2017) [MP3|320 Kbps] <House, Progressive House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819378.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sendoo - Drinks At The Bar  3:42
-02.  Breeze - Spectral Sonic (Extended Mix)  4:06
-03.  Jay Benson - Touch  5:31
-04.  Premeson - Save Me (The Ironix Remix)  5:49(   Читать дальше...   )Жанр: House, Progressive House, Electro HouseПродолжительность: 01:56:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15226BDAC63AA02C6B72AB226548D33629B4ABEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

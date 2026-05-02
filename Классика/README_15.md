@@ -1,3 +1,32 @@
+###  Публикация: 1004514   (836423) от 07.04.2016
+
+Dvorak / Дворжак - Violin Concerto, Cello Concerto (Ricci, Nelsova, Susskind-SLSO) (2007) [MP3|320 кб/с] <Classical, Concerto>
+
+>>Классика
+>>Оркестровая
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_836423.jpg" />
+</div>
+
+
+###  Подробнее
+
+Violin Concerto in A minor, op. 53
+01. (1) Allegro ma non troppo - Adagio ma non troppo
+02. (2) Finale. Allegro giocoso
+(   Читать дальше...   )Жанр: Classical, ConcertoПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F0B92B02B4628614A278816D18C75FC68581C5C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004539   (836417) от 07.04.2016
 
 Dvorak / Дворжак - Symphonies nos. 8 & 9 "From the New World" (Sawallisch - Philadelphia Orchestra) (2012) [MP3|320 кб/с] <Classical, Concerto>
@@ -722,41 +751,6 @@ VA - Essential Classical Piano (2021) [FLAC|Lossless|WEB-DL|tracks] <Classical>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CB6DE383589D15CA10FE881F9128D4720DFDB40C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 653376   (821213) от 12.05.2013
-
-Ансамбль Мадригал, Андрей Волконский - Cерия Тысяча лет музыки (после 1981) 16 LP [FLAC|Lossless]<Сlassic>
-
->>Классика
->>Камерная (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_821213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. У. БЁРД (1543—1623): Месса для пяти голосов (24.32)
-- Kyrie eleison
-- Gloria in excelsis
-- Credo
-- Sanctus
-- Benedictus
-- Agnus Dei
-02. У. БЁРД (1543—1623): Callino Casturame, вариации для клавесина (3:55)
-03. Дж. ДОУЛЕНД (1562—1626): What if I never speede, мадригал (2:44)
-04. Дж. ДОУЛЕНД (1562—1626): If my complaints, песня (3:36)(   Читать дальше...   )Жанр: classicПродолжительность: 0:43:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36201740E449FA53B87A89E1EE7B8B0F764066A8
 ```
 
 https://mybot314.ru/tekegram_catalog/

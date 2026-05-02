@@ -1,3 +1,32 @@
+###  Публикация: 1683630   (128225) от 12.12.2023
+
+Cavandish - Лицемерие (2023) [FLAC|Lossless|image + .cue] <Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128225.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.	Умерли все	04:19
+02.	Тайный орден	05:24
+03.	Они 2	06:39
+04.	Серый цикл	04:29(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB63934B9794F5FFAAAF3E38F70BBB51E96F4D0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683632   (128222) от 12.12.2023
 
 Dramaturg - Darkness (2022) [FLAC|Lossless|image + .cue] <Melodic Black Metal>
@@ -716,35 +745,6 @@ Natalie Antares - Выдохнуть (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10A6CA17562FA44B5B1E0141B18F11842F5DEC5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685899   (126858) от 20.12.2023
-
-Кризалис - Колодцы (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126858.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Колодцы [00:04:34]
-02. Цунами [00:03:55]
-03. Оставь меня [00:05:09]
-04. Написали по пьяни хз чё получилось [00:03:19](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A441B0CCDCE05946B4D4B1D7BD1A20E72A787C7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1206935   (781308) от 16.02.2018
+
+Tonight Alive - Underworld (2018) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Pop Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781308.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Book Of Love (03:09)
+02. Temple (03:29)
+03. Disappear (feat. Lynn Gunn) (03:42)
+04. The Other (03:53)(   Читать дальше...   )Жанр: Alternative Rock, Pop PunkПродолжительность: 00:47:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D61BA9F6FC96695E45D9B73A1C3DEBB3284F445
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1206868   (781287) от 16.02.2018
+
+U2 - The Unforgettable Fire (1984) [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_781287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Sort Of Homecoming (05:28)
+02. Pride (03:49)
+03. Wire (04:19)
+04. The Unforgettable Fire (04:56)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:42:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63439F7DF627AFC2B61E026B10136AA3A41D8AD7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209226   (779395) от 26.02.2018
 
 The Monochrome Set - Maisieworld (2018) [FLAC|Lossless|tracks + .cue] <Indie Pop>
@@ -687,64 +745,6 @@ ROME - Le Ceneri di Heliodoro (2019) [FLAC|Lossless|tracks + .cue] <Neofolk, Dar
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9576FA86B7D331260CAEDF057C2E3CAFA558DF58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278721   (768528) от 26.01.2019
-
-The Cure - 4:13 Dream (2008) Geffen Records [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Punk, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768528.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Underneath The Stars (6:18)
- 02. The Only One (3:57)
- 03. The Reasons Why (4:35)
- 04. Freakshow (2:30)(   Читать дальше...   )Жанр: Alternative Rock, Post-Punk, New WaveПродолжительность: 00:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B3D21E4000BB102F441FBA85258451C7D06A7F5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278552   (768474) от 26.01.2019
-
-Steve Gunn - The Unseen in Between (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_768474.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. New Moon (05:10)
-02. Vagabond (05:01)
-03. Chance (04:25)
-04. Stonehurst Cowboy (03:41)(   Читать дальше...   )Жанр: Indie RockПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D67F2FFCFCF3A0FBA48E01D540DA3927D20E331D
 ```
 
 https://mybot314.ru/tekegram_catalog/

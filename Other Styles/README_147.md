@@ -1,3 +1,235 @@
+###  Публикация: 494113   (249210) от 09.05.2012
+
+Stormfagel - 3 albums (2005-2010) [FLAC|Lossless] <Neofolk, Martial Industrial, Neoclassical>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_249210.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hall Lagan Klar! (05:54)
+02. Den Bergtagna (06:15)
+03. Tichborne's Elegy (05:05)
+04. The Dying Christian to his Soul (04:26)
+05. Der Mensch ist bald vergessen (04:25)
+06. I am the Pillar (05:19)
+07. Min Sangmo (04:38)
+08. Epitaph on a Army of Mercenaries (05:11)
+09. God appears, and God is Light (04:56)
+10. Epigram CLXIII (05:16)(   Читать дальше...   )2005-2010Жанр: Neofolk, Martial Industrial, NeoclassicalПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492536   (248943) от 08.05.2012
+
+Various Artists - Музыка миров Fallout и BioShock (1920-1960) [MP3|128-320 кб/с]<Jazz / Vocal jazz / Blues>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Al Bowlly - Twentieth Century Blues [03:30]
+Andrews Sisters - Beat Me Daddy, Eight to the Bar [02:51]
+Annette Hanshaw - Daddy, Won't You Please Come Home [02:58]
+Artie Shaw & His New Music - Nightmare [02:49]
+Benny Goodman - The Devil And The Deep Blue Sea [02:49]
+Benny Goodman & His Orchestra & Martha Tilton - Bei mir bist du schön [02:31]
+Billie Holiday - God Bless The Child [03:01]
+Billie Holiday - Night and Day [02:58]
+Billie Holiday & Her Orchestra - Night and Day [02:58]
+Billy Grammer - Gotta Travel On [02:30](   Читать дальше...   )1920-1960Жанр: Jazz / Vocal jazz / BluesПродолжительность: 12:16:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EC45185581300CC2E718DAF2D9FB6083087E5D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 490996   (248289) от 06.05.2012
+
+Разделитель / The Divide - Jean Pierre Taieb (2011) [MP3|320 кб/с] <Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_248289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - The Divide - Jean Pierre Taieb (02:57)
+02 - Theme 2 (The Divide) - Jean Pierre Taieb (02:10)
+03 - Eva's Fear - Jean Pierre Taieb (00:30)
+04 - The Hidden Gun - Jean Pierre Taieb (01:25)
+05 - Sam & Bobby's Dance - Jean Pierre Taieb (02:28)
+06 - What's Left - Jean Pierre Taieb (00:47)
+07 - Some Love - Jean Pierre Taieb (02:11)
+08 - Eva Is In Danger - Jean Pierre Taieb (00:59)
+09 - Haircut - Jean Pierre Taieb (02:10)
+10 - Butcher's Party - Jean Pierre Taieb (02:37)(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:03:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96316092AE5F4D9F2840E8F6CEBB7E4EF9FBDDC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491700   (246615) от 04.05.2012
+
+David Lynch - 8 albums (1998-2011) [FLAC|Lossless] <Ambient, Alternative Rock, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Day Today (04:38)
+02. I Know (04:04)
+03. Good Day Today (Radio Edit) (04:17)
+04. Good Day Today (Underworld Classic Remix) (08:39)
+05. Good Day Today (Boys Noize Remix) (06:16)
+06. Good Day Today (diskJokke Remix) (08:39)
+07. I Know (Sasha Remix) (08:56)
+08. I Know (Skream's Not So Ravey Remix) (05:05)
+09. I Know (Ratcliffe 'Hedz In Dark' Remix) (06:01)
+10. I Know (Jon Hopkins Remix) (04:59)1998-2011Жанр: Ambient, Alternative Rock, ExperimentalПродолжительность: 01:01:37
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 492009   (246489) от 04.05.2012
+
+Cawatana - 4 albums (2003-2010) [mp3|192-320 kbps] <Neofolk, Apocalyptic Folk, Neoclassical>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_246489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. We Live Silently (04:00)
+02. Regret (04:37)
+03. The Purpose (04:32)
+04. In The Final Hour (04:55)
+05. Sacrifice In Vain (02:28)
+06. Over Stray Thoughts (03:42)
+07. Unburied Hopes (04:14)2003-2010Жанр: Neofolk, Apocalyptic Folk, NeoclassicalПродолжительность: 00:28:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85008F1DD00A0DA3C38DBE9D3C1697E53E98C429
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 491661   (246380) от 03.05.2012
+
+Bain Wolfkind (+ Novo Homo) - 7 albums (2004-2012) [mp3|192-320 kbps] <Dark Folk, Blues, Alternative Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_246380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tri-State Blues (03:04)
+02. In The Shadows Of The Slaughterhouse (03:39)
+03. Drinkin' At The Crowbar (03:20)
+04. 3 String Guitar (03:52)
+05. Down Down Down (04:13)
+06. My Love's Shotgun (03:20)2004-2012Жанр: Dark Folk, Blues, Alternative RockПродолжительность: 00:21:29
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1623479   (245702) от 03.04.2023
+
+Uncle Noking - Время историй (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark neofolk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245702.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мёртвые приходят [00:05:05]
+02. Явления поздней весны (feat. Vivita) [00:04:02]
+03. В тумане [00:04:10]
+04. Время историй [00:10:59](   Читать дальше...   )Жанр: Dark neofolkПродолжительность: 00:50:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0831A7768CA506CB84F71AB477BA201C88700546
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1622256   (245601) от 03.04.2023
 
 Teufelstanz - Camera Obscura (2017) [FLAC|Lossless|image + .cue] <Medieval Folk, Bagpipe>
@@ -542,209 +774,6 @@ John Barcanic - Time Between Times (2017) [MP3|320 Kbps] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9C39A855FA21504E42CEF9614DD562271975DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624964   (241449) от 11.04.2023
-
-Atahualpa - Atahualpa Rock (2020) [MP3|320 Kbps] <Native American, Rock, World>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. En Altamar, Punales [04:47]
-02. Inerte [03:58]
-03. La Senda de Enfrente [02:44]
-04. No Sabe Perder [04:54](   Читать дальше...   )Жанр: Native American, Rock, WorldПродолжительность: 00:28:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62D5B0AE4946DD078D2115D7AE8318B769F8E595
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119559   (241208) от 29.03.2017
-
-VA - Bathtub Relax: Ambient and Chillout Music for Relaxing Moments (2017) [MP3|320 Kbps] <New Age, Relax, Instrumental>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241208.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christophe Goze – Take a Breath – Main
- 02. Yves Touati – Celtic Dream
- 03. Adam Fielding – Going Home
- 04. Christophe Lebled – Flying Clouds – Main(   Читать дальше...   )Жанр: New Age, Relax, InstrumentalПродолжительность: 00:52:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C632DC29577637C54C0E28697A9114E1B11B18E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1120749   (241061) от 02.04.2017
-
-Meditation Music Zone - Footprints in the Sand (2017) [MP3|320 Kbps] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_241061.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gates Are Open [00:03:14]
-02. Changing Skies [00:03:00]
-03. Parting Ways [00:02:04]
-04. No Way Out [00:03:01](   Читать дальше...   )Жанр: New AgeПродолжительность: 01:34:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:570DB04974A57FF3C9EBA5C66EFE08C25AB27E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636507   (240860) от 30.05.2023
-
-Teodor Wolgers - Dialogues (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Film Soundtracks>
-
->>Other Styles
->>OST (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reconnaissance Without End (3:54)
-02. The Pleasure Principal (2:38)
-03. The Art of Conversation (3:12)
-04. Nocturne (3:34)(   Читать дальше...   )Жанр: Film SoundtracksПродолжительность: 00:48:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72C09B453C00DAF1B43B3BB42E52AE528F34DCEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636437   (240763) от 30.05.2023
-
-Shirley Collins - Archangel Hill (2023) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Folk, Americana>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fare Thee Well My Dearest Dear (3:17)
-02. Lost in a Wood (3:00)
-03. The Captain with the Whiskers (2:47)
-04. June Apple (1:53)(   Читать дальше...   )Жанр: Folk, AmericanaПродолжительность: 00:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4150BBA32A7376A834E1C4FB9C22BEED1145D6F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1636447   (240755) от 30.05.2023
-
-Blick Bassy - Madiba (2023) [FLAC 24/48|Lossless|WEB-DL|tracks] <Africa>
-
->>Other Styles
->>Folk (Hi-Res)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240755.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bengue (3:33)
-02. LoBa (4:02)
-03. Ndomè (2:51)
-04. Li Yanga (2:43)(   Читать дальше...   )Жанр: AfricaПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCE937C855DC299B1B3D10D18584B17B78AFF65E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1625923   (240728) от 12.04.2023
-
-ZVENTA SVENTANA - Звента Свентана (2023) [MP3|320 Kbps] <Folk, Electronic>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240728.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. На улице дождь поливает
-2. Да кого нет, того больно жалко
-3. Христина Анатольевна, расчинай!
-4. Кумушки пьют(   Читать дальше...   )Жанр: Folk, ElectronicПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E48CDE94B82104B8AE9C02D73B2B520AC98DE9D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

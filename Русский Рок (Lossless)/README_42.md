@@ -1,3 +1,32 @@
+###  Публикация: 1618777   (249798) от 14.03.2023
+
+Brave Rockets - Привет (2023) [FLAC|Lossless|WEB-DL|tracks] <Ska Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_249798.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Гудбай [00:03:00]
+02. Бой с самим собой [00:03:03]
+03. Бег в мешках [00:05:15]
+04. Быть, а не казаться [00:04:00](   Читать дальше...   )Жанр: Ska Punk-RockПродолжительность: 00:29:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFA1919AB610AAD69E5055426D6E8AB0862AC7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618693   (249777) от 14.03.2023
 
 Колдстрим (София Карева) - Новогодний онлайн концерт, часть 1-2 (2023) Live, 2CD [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
@@ -722,35 +751,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E35218E078A1BBA4D747CB271C3031D4A57BB71
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1401744   (243773) от 04.08.2022
-
-Ауткаст - Ультра (2020) 2CD, Limited Edition [FLAC|Lossless|tracks + .cue] <Nu Metal, Alternative Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2020 (1:43)
-02. Не забывай (4:09)
-03. Один из нас (3:54)
-04. Невесомость (4:41)(   Читать дальше...   )Жанр: Nu Metal, Alternative RockПродолжительность: 01:20:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC15DD4EC33B8C577504A522B9844412838D68D6
 ```
 
 https://mybot314.ru/tekegram_catalog/

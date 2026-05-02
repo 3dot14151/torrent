@@ -1,3 +1,119 @@
+###  Публикация: 1768154   (101136) от 24.12.2024
+
+Blurred Edge - Volume: 1 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101136.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Too Early to Be Too Late (5:21)
+02. China Town (4:08)
+03. Ain't I Been Good to You? (3:54)
+04. Cold Inside (4:11)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7543E25DB61CADA7EEB8850508514D6E43224C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768163   (101135) от 24.12.2024
+
+John G Willis - Misfortune Cookie (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101135.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sister Sarah Says (3:57)
+02. Hope (4:15)
+03. You Can't Get It Wrong (3:35)
+04. 20 Days (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C37F37DC367BCD704C74C5155921682F06137DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768166   (101134) от 24.12.2024
+
+John McDonald & Mark Maxwell - Feeling Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Go by Feel (4:30)
+02. Ain't No Sunshine (4:38)
+03. Poison Ivy (2:53)
+04. Evil Twin (5:29)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C003D26B2F1802522C2102424E71A7F6855134A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768142   (101133) от 24.12.2024
+
+2 Shots of Hennessy - The Process is the Result (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101133.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dirt Rust & Stone (feat. Dylan Hennessy) (3:46)
+02. Depresso (feat. Dylan Hennessy & Travis Furlong) (3:24)
+03. The World is Not as Sweet (3:11)
+04. Allman Milk (feat. Dylan Hennessy & Redmond Kang) (2:26)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36BCECDC2016BE2749F259904DE857BCFDC802FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1768190   (101132) от 24.12.2024
 
 Sean Taylor - The End Of The Rainbow (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -665,146 +781,6 @@ Hurricane Ruth - The Power Of The Blues...Feel Like Hurricane (2011) [FLAC|Lossl
 06. No Worries (4:04)
 07. I Want to Take You Higher (4:47)
 08. The Lesson (5:06)2011Жанр: Rockin' BluesПродолжительность: 00:36:48
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475565   (98077) от 30.03.2012
-
-Daddy Mack Blues Band - Pay The Piper (2012) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98077.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Showtime (4:05)
-02. Best In Town (3:30)
-03. Como (5:10)
-04. Pay The Piper (5:00)
-05. Workin' Man (2:58)
-06. Let's Get Together (4:59)
-07. Sugar Daddy (4:50)
-08. Black & Blue (3:10)
-09. Trickle Down Blues (3:25)
-10. Woman Do Right (4:14)(   Читать дальше...   )2012Жанр: BluesПродолжительность: 00:50:22
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475032   (98057) от 30.03.2012
-
-Anthony Gomes - Up 2 Zero (2012) [FLAC|Lossless]<Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Back To The Start  (3:34)
-02. One Last Time  (4:55)
-03. Love Sweet Love  (3:30)
-04. Fly Away  (3:40)
-05. Darkest Before The Dawn  (3:53)
-06. Room 414  (2:47)
-07. Voodoo Moon  (4:16)
-08. Anywhere You Run  (3:57)
-09. Last Bluesman Gone  (2:10)
-10. Up 2 Zero  (3:13)(   Читать дальше...   )2012Жанр: Blues-RockПродолжительность: 00:39:29
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475686   (98052) от 30.03.2012
-
-Jeff Cascaro - The Other Man (2012) [FLAC|Lossless]<Soul, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gettin' Started (0:49)
-02. Roots (4:58)
-03. The Other Man (4:11)
-04. The Girl Who Got Away (Back In The Days) (4:10)
-05. Stop! (3:59)
-06. Beale Street (4:34)
-07. You (5:25)
-08. Swing Thing (4:22)
-09. Going Home (4:03)
-10. Give It To Me (5:15)(   Читать дальше...   )2012Жанр: Soul, Vocal JazzПродолжительность: 00:51:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475036   (98040) от 30.03.2012
-
-145 th Street - Where the Blues Lives (2012) [FLAC|Lossless]<Chicago Blues, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98040.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where the Blues Lives (5:18)
-02. Tell Me, Baby (4:45)
-03. Before Its Time (6:26)
-04. Your Little Show (5:35)
-05. Blues Never Sleeps (5:43)
-06. What Am I S'posed to Do (7:38)
-07. Make Love to You (5:48)
-08. Seven Days (4:40)
-09. Good Mornin' Blues (5:45)
-10. Give Her What She Wants (6:10)2012Жанр: Chicago Blues, Electric BluesПродолжительность: 00:57:47
 
 ## Скачать торент
 ```bash

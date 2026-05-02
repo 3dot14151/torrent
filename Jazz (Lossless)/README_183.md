@@ -1,3 +1,61 @@
+###  Публикация: 944521   (440679) от 07.10.2015
+
+The Phil Woods Quartet - Warm Woods (1957) /2014, Sony Music/[FLAC|tracks+.cue]<Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440679.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.In Your Own Sweet Way [08:06]
+02.Easy Living [04:56]
+03.I Love You [04:51]
+04.Squire's Parlor [05:41](   Читать дальше...   )Жанр: BopПродолжительность: 00:46:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:02A9489436580950CC81DB8BE90CACE19A3EB096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 944339   (440666) от 07.10.2015
+
+Leon Spencer - Bad Walking Woman (1972) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hammond Organ>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440666.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hip Shaker [03:05]
+02.Down On Dowling Street [05:01]
+03.In Search Of Love [05:00]
+04.If You Were Me And I Were You [06:04](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hammond OrganПродолжительность: 00:38:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7F755CEBED1F6EFAE13DC814223E1DE6FE9737E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 944507   (440375) от 07.10.2015
 
 VA - Music For A Bachelor's Den Vol. 7: Sex Kittens In Hi-Fi - The Blondes (1996) /DCC Compact Classics/[FLAC|tracks+.cue]<Vocal Jazz, Easy Listening>
@@ -688,64 +746,6 @@ Stan Getz Quartet 1960 - Live In Amsterdam, Dusseldorf & Zurich (1960) Remaster,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:37A36308B60F7693C17715AE5A6F64FA593D69D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062987   (437834) от 15.10.2016
-
-Peggy Lee - Things Are Swingin' & Jump For Joy (1959) 1996, EMI[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.It's A Wonderful World [02:14]
- 02.Things Are Swingin' [02:11]
- 03.Alright, Okay, You Win [02:53]
- 04.Ridin' High [02:08](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25BD9A53D0529E080CC6F5EE4A6C3FB3EC7C848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062763   (437833) от 15.10.2016
-
-Artie Shaw - What Is This Thing Called Love (1945, 1946) 1997, President Records[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_437833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Let's Walk [03:00]
- 02.Love Of My Life [03:08]
- 03.How Deep Is The Ocean? [02:55]
- 04.The Glider [02:49](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:14:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E14B9C4C229C17A63F7D8A90E94E4D164BCF4A1B
 ```
 
 https://mybot314.ru/tekegram_catalog/

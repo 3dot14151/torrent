@@ -1,3 +1,87 @@
+###  Публикация: 1823575   (125845) от 11.10.2025
+
+Scooter - Live in Hamburg (2012) WEBRip [H.264/1080p] [hand made upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125845.jpg" />
+</div>
+
+
+###  Подробнее
+
+Концерт прошёл 22 марта в рамках тура "The big mash up tour 2012" в концертном зале "02 World".01. Intro (The big mash up tour '12)
+02. Faster Harder Scooter / Ramp! (The logical song)
+03. Sugary dip
+04. The only one(   Читать дальше...   )Производство: Германия, ABC EntertaimentЖанр: Techno, Happy Hardcore, JumpstyleРежиссер: Jens TheleАктеры: H.P. Baxxter, Rick J. Jordan, Michael SimonПродолжительность: 02:09:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CBE758BA43907011C6EE7612EA2A15FC7F4FBC3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1687848   (125492) от 27.12.2023
+
+Pet Shop Boys – Performance (1991) DVDRip [H.264/1080p] [Handmade Upscale AI]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_125492.jpg" />
+</div>
+
+
+###  Подробнее
+
+В фильме-концерте Эрика Уотсона представлено живое выступление Британского поп-дуэта Pet Shop Boys во время их революционного мирового турне 1991 года. Создан совместно с режиссером Дэвидом Олденом и дизайнером Дэвидом Филдингом, наиболее известными своими авангардными оперными постановками.1 Intro
+2 This Must Be The Place I Waited Years To Leave
+3 It's A Sin
+4 Losing My Mind(   Читать дальше...   )Производство: Великобритания / Pet Shop Boys Partnership, PMI, EMI Records Ltd.Жанр: Pop, ElectronicРежиссер: Eric WatsonПеревод: ОтсутствуетПродолжительность: 01:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1733D721BE2D1361998978B8B595AF938E873F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691089   (120733) от 27.01.2024
+
+Роджер Уотерс - This Is Not a Drill / Roger Waters - This Is Not A Drill - Live at O2 Arena (2023) HDTVRip [1080p/H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120733.jpg" />
+</div>
+
+
+###  Подробнее
+
+Только в эту ночь, 25 мая 2023 года, в кинотеатрах по всему миру Роджер Уотерс, участник золотого состава группы Pink Floyd, представил свой прощальный тур "This Is Not A Drill", Live from Prague. Эта кинематографическая феерия стала потрясающим обличением корпоративной антиутопии, в которой мы все боремся за выживание. Концерт состоял из 20 классических (   Читать дальше...   )Жанр: RockРежиссер: Sean EvansПродолжительность: 02:14:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F69C3B7201A20F3427CE0136B0137745AF05CAAB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1691714   (120718) от 27.01.2024
 
 Легенды Ретро FM (2023) HDTV [H.264/1080i]
@@ -612,91 +696,6 @@ BAND-MAID — японская хард-рок-группа, сформиров�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E85226131D511E0F8CF4DABFC439049E9546C892
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1734377   (107125) от 03.07.2024
-
-Keane – Glastonbury (2024) HDTVRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107125.jpg" />
-</div>
-
-
-###  Подробнее
-
-Выступление английской группы Keane на ежегодном фестивале современного искусства в Glastonbury, Англия. Группа Кин заслужила множество похвал от фанатов во время выступления на фестивале в Гластонбери 2024 года, а вокалист Том Чаплин покорил сердца тысяч своих поклонников.  Альтернативная рок-группа вышла на сцену Pyramid в субботу днем 29 июня во 2-й день фестиваля. (   Читать дальше...   )01. Keane - Bend And Break
-02. Keane - Silenced By The Night
-03. Keane - Nothing In My Way
-04. Keane - We Might As Well Be Strangers(   Читать дальше...   )Производство: Великобритания / BBCЖанр: Alternative rock, rock, post-BritpopУчастники: Tom Chaplin, Richard Hughes, Tim Rice-Oxley, Jesse QuinПродолжительность: 00:39:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0DF7AC50027CD44D288154167207A614A326591B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1738166   (106390) от 21.07.2024
-
-Scooter - Live in Hamburg (2010) BDRip [H.265/2160p] [hand made upscale AI]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106390.jpg" />
-</div>
-
-
-###  Подробнее
-
-Живой концерт группы с её лучшими хитами, который состоялся 12 марта 2010 года в концертном зале Гамбурга "Color Line Arena" (ныне "Barclays Arena").01. Intro
-02. J'adore Hardcore
-03. Posse (I Need You On The Floor)
-04. The Sound Above My Hair(   Читать дальше...   )Производство: ГерманияЖанр: Happy Hardcore, Techno, Trance, JumpstyleРежиссер: Jens TheleУчастники: H.P. Baxxter, Rick J. Jordan, Michael SimonСубтитры: Русские, английскиеПродолжительность: 01:35:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1418371F70FBBB21EC14EDFD4B09E3926FD3A375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1741558   (105592) от 10.08.2024
-
-МузЛофт-подкаст / МузLoft. Торнике Квитатиани (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Концерты (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105592.jpg" />
-</div>
-
-
-###  Подробнее
-
-Торнике Квитатиани. Как борец стал вокалистом. Про Выжить в Дубае, Голос и КВН.
-Многогранный артист сегодня у нас в подкасте. Торнике расскажет про сложности в мире селебрити, желание написать хит, как случайно попал в команду к Борцам и пооткровенничает о шоу «Выжить в Дубае». Усаживайтесь поудобнее!Производство: Россия | Y-GenerationУчастники: Торнике КвитатианиПродолжительность: 01:25:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4DB8279A6E6BC760A8BA5DFCEC5B5CBB9F8AC46
 ```
 
 https://mybot314.ru/tekegram_catalog/

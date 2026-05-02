@@ -1,3 +1,238 @@
+###  Публикация: 472346   (97546) от 23.03.2012
+
+VA - XXXL Best Russian DJ (2012) [MP3|192 kbps]<Club | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97546.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. SNEЖNO - Я был лишь твой (extended version)
+02. БэбиSкул & Max DeLmar & Katy Soul - Одинокие (club edit)
+03. Чи-Ли - Кошка (Sergei Karpov Minimal Pop remix)
+04. Женя Юдина - Дыши (DJ Южанин remix)
+05. Анна Седокова - Love U (DJ Vengerov & DJ Nick Nova radio mix)
+06. Света - Супер спортсмен (DJ Jump remix)
+07. Stephane Coker - Без Тебя (Dj Nejtrino Club Edit Unreleased)
+08. DJ Sandro Escobar & Katrin Queen vs. Reflex - Non Stop (extended mix)
+09. Shyma - Ветрами (Flashtronica remix)
+10. IKA - Дорогой мой (DJ Vengerov remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 07:37:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C35DA812E9A30BEFFFA4296A0E0CC9DCA1DF1C8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471913   (97545) от 23.03.2012
+
+Иван Московский - Старик Стамбул (2011) [MP3|320 кб/с]<Шансон>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97545.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Интро (1:19)
+02. Старик Стамбул (3:18)
+03. Виноградная косточка (5:48)
+04. Ночной Арарат (3:12)
+05. Ты прекрасна (4:23)
+06. Заклинатель змей (3:40)
+07. Вай! Джан! (3:36)
+08. Полёт Влюблённых (4:19)
+09. Деньги (2:53)
+10. Иисус Христос (5:03)(   Читать дальше...   )2011Жанр: ШансонПродолжительность: 00:54:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:271C86E8A88E6240F92744EDC796E30234B0E5EA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472073   (97543) от 23.03.2012
+
+[Wallpapers] Sexy Girls Wallpapers pack (23.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97543.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CF2D41044D362C542F4A771EEC7C7EA8EA7C15CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 470413   (97542) от 23.03.2012
+
+Земля Тургенева (1981) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97542.jpg" />
+</div>
+
+
+###  Подробнее
+
+О загадках жизни и творчества замечательного русского писателя И.С. Тургенева. Фильм снят в родных местах этого мастера словаЖанр: ДокументальныйРежиссер: Д. ЛуньковПродолжительность: 00:57:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:22E6B97D8B980E5ABBEE2D6084DAB4F306381783
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472049   (97541) от 23.03.2012
+
+[Wallpapers] Girls Wallpapers Mix (22.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97541.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE6A688D3668EE4AB2DEFF58FF6EC7563E3DAAD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 472048   (97539) от 23.03.2012
+
+[Wallpapers] Sexy Girls Wallpapers (22.03.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97539.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C790B284E590678D95A0E301350A875E5B6CF489
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471803   (97532) от 23.03.2012
+
+Сирена / The Siren (2000) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97532.jpg" />
+</div>
+
+
+###  Подробнее
+
+Джун-ву - влюбленный пожарный, которого всегда преследует опасность. Хьюн полагает, что рациональное суждение - единственный способ спасти людей в опасности. Первый день на их месте работы, Джун-ву, забегает в огонь, чтобы спасти оставшихс людей в здании, несмотря на приказ об эвакуации, а Хбюн пытается остановить его. Начинается борьба. Между тем, Е-рин любит Джун-ву больше, чем он любит самого себя ...Жанр: ДрамаРежиссер: Джу Еоб ЛиАктеры: Хен Чжун Син, Чон Чун Хо, Чан Чжин ЁнПеревод: Одноголосый закадровыйПродолжительность: 01:42:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:48CC3EC35A000AF8F01A1E96AA932A723695194E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471882   (97530) от 23.03.2012
+
+VA - Luxurious Cold Lounge (2012) [MP3|320 kbps]<Lounge | Ambient | chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97530.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Abhay Yamuna - The Three Worlds
+02. Aelyn - In And Out Of Love (Deluxe Summer Mix)
+03. Aelyn - Your Love (Downtempo Mix)
+04. Almadrava - If You Could See My Eyes
+05. Amanaska - Border Crossing
+06. Anna Luca - Desperatly Trying
+07. Arabian Nights - Nardis
+08. Banda Do Sul Feat. Natascha - Sweet Chid O'mine
+09. Beautiful Island (Hotel Sunset Edit) - Vivian Lacoste
+10. Beegie Adair And David Davidson - Autumn Leaves(   Читать дальше...   )2012Жанр: Lounge | Ambient | chilloutПродолжительность: 07:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F8F2CD843B0D0BE1A8174B362C7DE0CA82CC836
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 471981   (97529) от 23.03.2012
 
 VA - XXXL Шоферской Весна (2012) [MP3|256 кб/с]<Шансон>
@@ -511,238 +746,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:519D9F7343694A10307D45D7F288DC3798BC40F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472091   (97494) от 23.03.2012
-
-Claudio Merlini - Enchantment WEB (2012) [FLAC|Lossless]<Electronic, New Age, Chill Out, Ambient>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97494.jpg" />
-</div>
-
-
-###  Подробнее
-
-Claudio Merlini - Enchantment WEB (2012)
-Год: 2012
-Жанр: Electronic, New Age, Chill Out, Ambient
-Продолжительность: 01:18:37Кодек: FLAC
-Битрейт: Lossless
-Тип рипа: tracks + .cueТрек лист:
-01. Desire (3:40)
-02. Portraits (3:50)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B3DBA0ABE2D3CDCA976E7638574089887C0BD7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472193   (97492) от 23.03.2012
-
-Журнал | Империя вкуса №2 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97492.jpg" />
-</div>
-
-
-###  Подробнее
-
-Специализированное издание, посвященное алкогольным и безалкогольным напиткам, а также ресторанному бизнесу, удачно сочетающее профессиональную и популярную подачу материалов, полезную и интересную информацию.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1756D55CC8D2B0B88F54411C07BAFBFE4EF63198
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 471959   (97491) от 23.03.2012
-
-VA - XXXL Блатной Весна (2012) [MP3|256 кб/с]<Шансон>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Анатолий Полотно и Федя Карманов - За друзей!
-02. Александр Новиков - Три дня
-03. Ирина Круг - Любить не страшно
-04. Кира Дымов и Любовь Успенская - Берегу и Кораблю
-05. Афина и Кронштадт - Голос
-06. Ляля Размахова и Джалал Аббасов - Хочется
-07. Андрей Федосеев - Вошла несмело
-08. Семен Канада - Как мне быть
-09. Алена Андерс - Рябина
-10. Михаил Загот - Не закрывай глаза2012Жанр: ШансонПродолжительность: 06:04:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D10E37FE112433B263FC5B3CD3B8B931D11CA4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472413   (97490) от 23.03.2012
-
-[Wallpapers] HD Pictures №8
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97490.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] HD Pictures №8
-Название: HD Pictures №8
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 4000х3000
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E095870BA53047A9F376006D0D5E1D7E12870743
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472076   (97489) от 23.03.2012
-
-[Wallpapers] Girls Wallpapers (23.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97489.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:718B15E6A13E31FCFCDDB9151ED783DF717519F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472417   (97488) от 23.03.2012
-
-[Wallpapers] Green Wallpapers 2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97488.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Green Wallpapers 2
-Название: Green Wallpapers 2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0AADC260185796E0E93E11FA777B67CD0BEDA3CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472267   (97487) от 23.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (24.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97487.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E84069836F16B43C288CB1D5ECC0657C608F423A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 472439   (97486) от 23.03.2012
-
-Формула 1. Гран-При Малайзии. 1-ая свободная практика (2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_97486.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Малайзии — второй этап чемпионата Мира по автогонкам в классе Формула-1 2012 года. Гран-при Малайзии проводится с 1999 года на трассе Сепанг. Спонсором этапа является нефтяная компания Petronas.Жанр: СпортПродолжительность: 01:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4EA46EFBA73774396301ADA253AAF413A6B739B
 ```
 
 https://mybot314.ru/tekegram_catalog/

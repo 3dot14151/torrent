@@ -1,3 +1,134 @@
+###  Публикация: 594131   (133675) от 26.12.2012
+
+VA-Самые сливки танцевальные 11  (2012) [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133675.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Oceana - Endless Summer (UEFA Euro 2012 oficial song) [03:29]
+02. Dan Balan - Не любя [03:15]
+03. Alex Ferrari - Bara Bara Bere Bere [03:39]
+04. Митя Фомин - Хорошая песня [03:02]
+05. Loreen - Euphoria (WINNER of EUROVISION 2012-SWEDEN) [03:00]
+06. Стая - Сердце [03:06]
+07. Junior Caldera feat.Natalia Kills & Far East Movement - Lights Out [03:08]
+08. Artik feat.Asti - Облака [03:39]
+09. Tonic feat.Erick Gold - Lead The Way [03:35]
+10. A-Dessa - Fire [03:14](   Читать дальше...   )Жанр: PopПродолжительность: 01:19:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82B2D329EBA259ECBB5DBF2BCF4948763F5C5B99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593080   (133597) от 26.12.2012
+
+VA - Супер Свежачок от Снегурочки (2012) [MP3|160 - 320 кб/с]<pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133597.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: popПродолжительность: 05:38:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E5AC584E29280B788FFF07FA78968443762CE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 593900   (133582) от 26.12.2012
+
+VA-New Year Party 2013  (2012) [MP3|320 кб/с]<Dance, Pop, House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133582.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Brennan Heart - We Can Escape (Intents 2012 Anthem) [04:20]
+ 02. Dada Life - Feed The Dada [03:01]
+ 03. Flo Rida - I Cry (Radio Edit) [03:36]
+ 04. Stereo Palma ft. Craig David - Our Love (Radio Edit) [03:06]
+ 05. Mia Martina - Burning (Radio Edit) [03:20]
+ 06. Carlprit - Fiesta [03:52]
+ 07. Keen'V - Elle t'a Mate (Fatoumata) [02:49]
+ 08. Pitbull ft. Christina Aguilera - Feel This Moment [03:46]
+ 09. Inna ft. Play & Win - INNdiA [03:31]
+ 10. Akcent ft. Sandra N. - I'm Sorry (Radio Edit) [03:32](   Читать дальше...   )Жанр: Dance, Pop, HouseПродолжительность: 04:22:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C959E901C03960B86FADE0D4F73559276528D9CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 594559   (133492) от 26.12.2012
+
+VA - Новогодняя Авто Дискотека DFM 50+50 - (2012) [MP3|256 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_133492.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Raquel, Diddy, Dorrough & Yo Gotty - Touch (David May Edit Mix)
+02. Alexey Romeo & Smoky Mo - На своей волне (Radio Mix)
+03. DJ Antoine vs. Mad Mark - Broadway (DJ Antoine vs Mad Mark 2k12 Radio Edit)
+04. Sasha Dith & Steve Modana feat. Nadya - Улечу
+05. G & G Feat. Gary Wright & Baby Brown - My My My (Coming Apart) 2K12 (Radio Edit)
+06. Настя Любимова - Любовь моя
+07. Empyre One - Moonlight Shadow 2K12 (Godlike Music Port Edit)
+08. Lalo Project feat. Wegmix - Живу тобой
+09. Xonia - Remember (Radio Edit)
+10. B.K. - Sex (DJ Zhukovsky Official Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 05:59:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:923E6C307DE53D6ACEC53CB39449778BC147867F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 594899   (133112) от 27.12.2012
 
 VA-Новогодний АвтоХит от Деда Мороза 2013 (2012)  [MP3|256 кб/с]<Pop>
@@ -693,122 +824,6 @@ Emma Peters - Compilation (2023) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8818A3920999E942A3E2AF80ED906B0AEC5A7810
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1685986   (126762) от 21.12.2023
-
-Elyanna - Compilation (2023) [MP3|320 Kbps] <Pop, Alternative Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Sokkar
- 02.  Ahwak
- 03.  Al Kawn Janni Maak
- 04.  Ala Bali(   Читать дальше...   )Жанр: Pop, Alternative PopПродолжительность: 00:31:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:978367F42AEEDD7CE3B938FE4B2192B5DADD1C5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686315   (126659) от 22.12.2023
-
-VA - Музыка для машины Vol.58 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alan Walker Feat. & Ali Gatie - Yesterday (00:02:41)
-02. Lp - Wild (Addal Remix) (00:02:38)
-03. Indi Edilbayeva - Not For Fun (00:02:10)
-04. Misha Levkin - Колыбельная (00:02:48)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:38:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:536470030D4B013B6E266A2EFBA30F652BAEB7E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1686381   (126545) от 23.12.2023
-
-VA - Свежий Русский Хит от ALEXnROCK часть 14 (2023) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126545.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поздравляю всех С Наступающим Новым Годом! Всем любви и удачи! В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2023 год. Это 14я часть. Приятного прослушивания. Да пребудет с нами энергия музыки! Все лучшее для вас. ALEXnROCK001. Шаман - Мы
-002. Денис Клявер feat. DJ DimixeR - Если Не Рядом Ты
-003. Маша Шейх - Красивые молодые
-004. Ольга Серябкина  - Начнём всё сначала(   Читать дальше...   )Жанр: PopПродолжительность: 04:39:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83B119465197F0628749DF523492FBCE84905399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1687018   (126015) от 25.12.2023
-
-VA - Музыка для машины Vol.60 (2023) [MP3|320 Kbps] <Pop, Dance, Rock, Shanson, Rap>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Grinkevich - Стала Стервой (02:36)
-02. Killteq & D.Hash Feat. & Мария Евдокимова - Хищница (02:38)
-03. Medkova Feat. & Alex Sed - Танцуй (03:20)
-04. Blvnk - Terrified (02:30)(   Читать дальше...   )Жанр: Pop, Dance, Rock, Shanson, RapПродолжительность: 02:34:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3031C35057197BD4C36570067FA50C7AAFF96D6C
 ```
 
 https://mybot314.ru/tekegram_catalog/

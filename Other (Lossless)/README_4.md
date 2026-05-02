@@ -1,3 +1,62 @@
+###  Публикация: 62985   (321528) от 03.11.2020
+
+Kevin Kern - 8 альбомов (1996 - 2005) [APE|Lossless|image + .cue] <New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_321528.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ке́вин Ке́рн (англ. Kevin Kern; род. 22 декабря 1958) — американский композитор и пианист. Кевин Керн родился пятым из шести детей в семье хирурга и домохозяйки в Детройте, штат Мичиган, США.
+Начал учиться играть на фортепиано с четырёх лет, с восьми стал писать музыку. В 14 он уже выступал с группой, которую основал сам. Кевин был полон решимости стать (   Читать дальше...   )Альбомы:
+1996 - In the Enchanted Garden
+1997 - Beyond the Sundial
+1998 - Summer Daydreams(   Читать дальше...   )Жанр: New AgeПродолжительность: 06:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BCE60C49FFDDA24CE055FCF84A4CC7174EE1405F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422800   (304158) от 11.11.2020
+
+VA - Classic Christmas (2020) [FLAC|Lossless|WEB-DL|tracks] <Christmas Music>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_304158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elton John - Step Into Christmas (4:32)
+02. Bob Seger - Little Drummer Boy - Remastered (3:32)
+03. Frank Sinatra - Have Yourself A Merry Little Christmas - Remastered (3:26)
+04. Bobby Helms - Jingle Bell Rock - Single Version (2:11)(   Читать дальше...   )Жанр: Christmas MusicПродолжительность: 01:00:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:547C7AEBA2ACC62F7A00D17EEABD9D4E00845626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960437   (303089) от 30.11.2015
 
 VA - Emmanuelle (The Original Soundtrack Music) (1974) [FLAC|image + .cue]<Soundtrack>
@@ -742,70 +801,6 @@ Yanni - Live at The Acropolis (1994) [APE|Lossless|image + .cue] <New Age>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:10D951B4D52FBCB31F90BFA6F9770B20FE998FDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 587873   (219534) от 11.12.2012
-
-Two Steps From Hell - Two Steps From Heaven/SkyWorld (2012) /WEB/ [FLAC (tracks)|Lossless]<Trailer Music>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_219534.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Is Hell That Ends Well
-02. Titan Dream
-02-1. Titan Dream (No Solo Voice)
-02-2. Titan Dream (No Choir)
-03. Skyworld
-04. El Dorado
-05. The End Is The Beginning
-05-1. The End Is The Beginning (No Choir)
-06. All The Kings Horses
-07. Realm Of Power(   Читать дальше...   )Жанр: Trailer MusicПродолжительность: 02:26:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1654716   (205013) от 22.08.2023
-
-VA - The Orient Collective: Echoes of the East (2023) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_205013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Michael Simon - Natalia (8:16)
-02. Mikhail Catan - Lucid Dream (6:30)
-03. Marga Sol - Hidden Tribes (A X L Remix) (5:36)
-04. Efrén Atienza - Apollonia (Stephane Salerno Remix) (6:03)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:22:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D13457E7D0FA5076B12457C66E91092975BA7D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

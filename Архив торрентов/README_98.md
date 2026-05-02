@@ -1,3 +1,59 @@
+###  Публикация: 1448348   (1030982) от 17.02.2021
+
+Airy 3.22 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030982.jpg" />
+</div>
+
+
+###  Подробнее
+
+Airy — YouTube загрузчик. Если вам очень понравилось видео на YouTube и вы хотели бы, чтобы доступ к нему не зависел от вашего подключения к Интернет - вам поможет Airy. Airy - это YouTube загрузчик для Mac номер один, который с легкостью сохранит любое YouTube видео прямо на ваш компьютер.
+Простой и аккуратный Mac YouTube загрузчик с возможностью одновременного (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2021Разработчик: Eltima SoftwareПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABE82D251D58EA7E02CB76D1131164110700ADC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448375   (1030981) от 17.02.2021
+
+Marc Hartman - Fortune Fairytales (2020) [FLAC|Lossless|WEB-DL|tracks] <Lounge, Ambient, Chillout>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cinderella (5:18)
+02. Crystal Sea (5:16)
+03. Blue Moon (4:38)
+04. Kite (A Song For Nico Schoonhoven) (3:03)(   Читать дальше...   )Жанр: Lounge, Ambient, ChilloutПродолжительность: 01:16:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F8170AFCE22C974495015EEC44C0E8BB663EB169
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1448439   (1030980) от 17.02.2021
 
 TextSniper - OCR simplified 1.5.0 [En]
@@ -622,59 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:74AA2E4E9343AB1F046E3DE0669CC958B39522B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448403   (1030859) от 17.02.2021
-
-Microsoft Visual C++ 2005-2008-2010-2012-2013-2019 Redistributable Package Hybrid x86 & x64 (17.02.2021) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030859.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пакет Microsoft Visual C++ Redistributable Package устанавливает компоненты среды выполнения библиотек Visual C++, необходимых для запуска приложений, разработанных с помощью Visual C++, на компьютере без установленной среды Visual C++.
-Способ интеграции - SVCPACK (T13) и также можно устанавливать на "живую" систему.Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6262CB733B839FEE860E6BCB6861B29143442A4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448298   (1030851) от 17.02.2021
-
-Auslogics Anti-Malware 1.21.0.5 RePack (& Portable) by TryRooM [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030851.jpg" />
-</div>
-
-
-###  Подробнее
-
-Auslogics Anti-Malware предлагает дополнительную защиту для вашего основного антивируса, установленного в системе. Утилита, совместимая с другими программами безопасности, поможет проверить ваш компьютер на наличие распространенных вредоносных программ и опасных изменений в критических областях системы Windows, потенциальных угроз безопасности ваших данных и потенциально (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AC9AD59EA2E1C79FDE29ADC4A635C9BF53D5EA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

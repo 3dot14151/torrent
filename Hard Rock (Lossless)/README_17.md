@@ -1,3 +1,125 @@
+###  Публикация: 1366812   (920715) от 13.03.2020
+
+Jerry-Kelly - Somebody Else's Dream (1978) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_920715.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerry-Kelly - Settle Down 04:33
+02. Jerry-Kelly - Magic 03:14
+03. Jerry-Kelly - Silly Boy 03:53
+04. Jerry-Kelly - Dear Love 04:10(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:266E7E47AB29EF7731DA9F3D0E6EA662BCD627FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1366815   (920577) от 13.03.2020
+
+Dakota - 9 альбомов 11CD (1980-2015) [FLAC|Lossless|image + .cue] <Westcoast, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920577.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1980 - Dakota
+1980 - Dakota (Remastered 2012)
+1984 - Runaway (Remastered 2012)(   Читать дальше...   )Жанр: Westcoast, AORПродолжительность: 09:50:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C18737A325F9857507AA9AD484BC40A202D6C22B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 289067   (920475) от 30.01.2011
+
+Bonfire - Branded (2011) [FLAC|Lossless]<Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_920475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Deadly Contradiction 05.45
+02. Just Follow The Rainbow 03.49
+03. Save Me 05.17
+04. Let It Grow 05.12
+05. Better Days 07.10
+06. Do Or Die 06.00
+07. Close To The Edge 04.51
+08. Crazy 04.24
+09. Loser’s Lane 03.19
+10. Hold Me Now 05.42(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:59:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 757245   (919423) от 15.02.2014
+
+Def Leppard - Slang (Deluxe Edition) (2014) 2CD /Scene/ [FLAC (tracks)|Lossless]<Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_919423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Turn To Dust (1st Draft – Phil Verse Vocal)
+02. Raise Your Love
+03. All I Want Is Everything (1st Draft)
+04. Work It Out (1st Draft)(   Читать дальше...   )Жанр: Hard Rock |Продолжительность: 02:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1E055D3C4ABB85900F15640ACEBD1A301BF0C38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1490353   (919052) от 20.08.2021
 
 Steel Rhino - Steel Rhino (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -631,119 +753,6 @@ Black Star Riders - Heavy Fire (2017) Limited Edition [FLAC|Lossless|tracks]<Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6948EC239AF45DF30B46A99B5A3B937617A326CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992102   (902583) от 01.03.2016
-
-Tony Carey  - Retrospective: 1982-1999 (2000) [FLAC|Lossless|image + .cue]<Classic Rock, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902583.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Classic Rock, Hard RockПродолжительность: 01:10:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F0F4515A6C18837C7376A720798790F207C3BD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 991947   (902435) от 01.03.2016
-
-Gorky Park ‎ - The Best (1999) Compilation [FLAC|Lossless|image + .cue] <Rock , Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	Stare 	05:02
-02. 	I'm Going Down 	04:33
-03. 	My Generation 	04:50
-04. 	Don't Make Me Stay 	05:40(   Читать дальше...   )Жанр: Rock , Hard RockПродолжительность: 01:09:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:843AFDE62EA2EDB82025305ED122689BB0734428
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100383   (899860) от 04.02.2017
-
-FM - Indiscreet 30 (2016) Reissue [FLAC|Lossless|image + .cue] <AOR, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899860.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  That Girl  (04:32) 
-02|  Other Side Of Midnight  (04:09) 
-03|  Love Lies Dying  (05:23) 
-04|  I Belong To The Night  (04:31) (   Читать дальше...   )Жанр: AOR, Arena RockПродолжительность: 01:17:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E178B71066253806108BD05A39E25B578447D54F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1100398   (899548) от 04.02.2017
-
-Dario Mollo's Crossbones - Rock The Cradle (2016) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Red  (04:36) 
-02|  Take Me High  (04:09) 
-03|  Navigation  (04:09) 
-04|  Rock The Cradle  (04:30) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:53:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A6EABBC3AFF7D98F3D1F8F9C3BA2E2FD01BF4767
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,196 +1,18 @@
-###  Публикация: 515938   (654818) от 27.06.2012
+###  Публикация: 515109   (656948) от 25.06.2012
 
-VA - Дискотека Ultrahit vol.2 (2007) [MP3|320 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654818.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Don't Walk Away - Michael Mind
-02 Feel AliveЖанр: PopПродолжительность: 01:17.08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29275DFFE0BABE6B1ECC91DA529E533301D5CE23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514005   (654817) от 27.06.2012
-
-Giperboreia - Глубина глаз (2012) [MP3|256 кб/с]<Underground Rap>
+Суперкласико / SuperClasico (2011) [720p] BDRip
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив Видео. Кино, Театра
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654817.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656948.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ленивый
-02. Отбросы общества п.у. Small
-03. Глубина глаз
-04. Паршивый
-05. Сквозь сон п.у. Женя Ка Поник, Jeqan
-06. Выходит
-07. До корня
-08. Не жалуюсь п.у. Small, Прохожий (Златый базар )
-09. Слепо
-10. Шалфей п.у. Parkerr(   Читать дальше...   )Жанр: Underground RapПродолжительность: 60 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B855726F422352BEA71CED698CF6823B72E6A411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515231   (654816) от 27.06.2012
-
-Артем Александрович Черепко | Двое [2012] [DOC]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: DOC
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:91EE38CDF3A0FB8C59311CC29F8605FE3B33131C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 516206   (654815) от 27.06.2012
-
-VA - Vocal Trance Volume 36 (2012) [MP3|320 кб/с]<Vocal Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654815.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Andrew Rayel - 550 Senta (Aether Mix)
-002. Andre Visior - Angels (Grey & Frost Club Mix)
-003. DNS Project feat. Madelin Zero - Another Day (Original Mix)
-004. DJ Hashish feat. 3PM - Be Careful (My Love) (Summer Nights Mix)
-005. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix)
-006. Dash Berlin feat. Jonathan Mendelsohn - Better Half Of Me (Rave CHannel Remix)
-007. Beat Service feat. Neev Kennedy - But I Did (Extended Mix)
-008. Armin Van Buuren feat. Ana Criado - Down to Love (Kyau & Albert Remix)
-009. Cerf, Mitiska & Jaren - Down To You (Pulser Vocal Mix)
-010. Arnej feat. Sally Saifi - Free Of You (8 Wonders Vocal Mix)(   Читать дальше...   )Жанр: Vocal TranceПродолжительность: 03:00:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93DBF180B5B2793DF5B5D39A592D5AA786322B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515787   (654814) от 27.06.2012
-
-[Wallpapers] Best HD Wallpapers Pack (27.06.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654814.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EFB41FFC7397E71B460FC0AB1D12855C57486075
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 343815   (654802) от 31.05.2011
-
-VA - Worldwide 001 (Mixed And Compiled by Matrix & Futurebound) - 2011 /MTRVPR002LP/ [MP3|320 kbps]<Drum'n'Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_654802.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Drum'n'BassПродолжительность: 02:23:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BAA1BDB82041E9AE4BBB0A94AF2A2B84459DFD49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226552   (654793) от 21.05.2018
-
-Monolith - Sub-System (2004) Daft Records [FLAC|Lossless|tracks+.cue] <Industrial, Techno, Acid>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Amplitude (04:39)
- 02. God Forgive Us (05:34)
- 03. Futurama (05:40)
- 04. Coitus Interuptus (03:54)(   Читать дальше...   )Жанр: Industrial, Techno, AcidПродолжительность: 00:49:38
+Кристиану следует признать: налаженная жизнь катится к черту, сын-подросток, как многие в его возрасте, не желает общаться с отцом, а торговля элитными винами летит в пропасть из-за того, что чаще всего он сам потребляет свой товар. Но самое главное — от Кристиана ушла жена. И не просто ушла, а собирается замуж за… звезду мирового футбола, супермена, машину для секса! Какой мужчина в состоянии пережить это и не сойти с ума? В отчаянной попытке вернуть жену герой отправляется в Буэнос-Айрес…Жанр: комедияРежиссер: Оле Кристиан МадсенАктеры: Паприка Стин, Анес В. Бертэльсен, Себастьян Эстебанес, Адриана Машалино, Джэми Мортон, Dafne Schiling, Мигель Дедович, Микаэл БертелсенПеревод: Профессиональный многоголосыйПродолжительность: 01:37:49
 
 ## Скачать торент
 ```bash
@@ -202,23 +24,89 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226641   (654792) от 21.05.2018
+###  Публикация: 514736   (656947) от 25.06.2012
 
-Maxthon Browser 5.2.2.2000 + Portable [Multi/Ru]
+Gigi D'Agostino - Put on your red shoes (2002) [MP3|320 кб/с]<House, Euro House, Italodance>
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656947.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Maxthon — это бесплатный веб-браузер для Windows, Linux и OS X, разработанный в Китае компанией Maxthon Ltd.
-MX5 - новая версия веб-браузера от Maxthon для Windows наглядно показывает прогресс продукта, который превратился из классического браузера в персонального ассистента для всех видов онлайн активности.
-MX5 развивает заложенную предшественником концепцию и планирует (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+1. Put on your red shoes-RMX (5:51)
+2. Che cosa strana (5:48)
+3. Souvenir (8:00)
+4. La passion (6:45)
+5. Un giorno credi (4:23)
+6. L'amour toujour (6:26)
+7. Chartsengrafs (3:45)
+8. Baci&Abbraci (4:50)
+9. Technofes (4:34)
+10.Musikakeparta (3:16)(   Читать дальше...   )Жанр: House, Euro House, ItalodanceПродолжительность: 01:20:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:49C93A0EF7B8DA4221CD6A218F662EECDBA2F525
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514686   (656946) от 25.06.2012
+
+Louis Spohr - Double Quartets: St.Martin-in-the-Fields Chamber Ensemble (1998) 2CD [APE|Lossless]<Classical>
+
+>>Классика
+>>Оркестровая (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656946.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Double Quartet #3 In E Minor, Op. 87 - 1. Adagio; Allegro [13:17]
+02. Double Quartet #3 In E Minor, Op. 87 - 2. Andante Con Variazioni [08:38]
+03. Double Quartet #3 In E Minor, Op. 87 - 3. Scherzo: Allegro [06:59]
+04. Double Quartet #3 In E Minor, Op. 87 - 4. Finale: Allegro Molto [07:15]
+05. Double Quartet #4 In G Minor, Op. 136 - 1. Allegro [07:23]
+06. Double Quartet #4 In G Minor, Op. 136 - 2. Larghetto [05:34]
+07. Double Quartet #4 In G Minor, Op. 136 - 3. Scherzo: Moderato; Trio [06:47]
+08. Double Quartet #4 In G Minor, Op. 136 - 4. Finale: Vivace [05:59]Жанр: ClassicalФормат: 2CDПродолжительность: 01:01:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C773C88EBC291296164289326B653E2DFF977CCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514806   (656944) от 25.06.2012
+
+Вальс Мефистофеля / Der Mephisto-Waltzer / The Mephisto Waltz (1971) DVDRip
+
+>>Архив торрентов
+>>Архив Классики кино и Старых фильмов до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656944.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пишущий о музыке журналист Майлс Кларксон живет вполне счастливой семейной жизнью с красавицей-супругой Полой и милой дочкой. Однако весь привычный порядок вещей нарушается после его знакомства со смертельно больным пианистом Дунканом Илаем и его эксцентричной дочерью Роксаной. Дункан и Роксана просто очаровали Майлса, заставили его, давно забросившего карьеру пианиста, поверить в свои силы, поверить в то, что он может великолепно играть, и они забрали его тело. В ту ночь, когда умер Дункан Илай, Майлс стал другим. Поначалу Пола не понимала истиной причины изменений его привычек и поведения, но последующие трагические события открыли ей страшную правду: Дункан и Роксана - сатанисты, чьи души уже давно переходят из одного тела в другое.Жанр: Ужасы, Триллер, МистикаРежиссер: Пол УэндкосАктеры: Алан Алда, Жаклин Биссет, Барбара Паркинс, Брэдфорд Диллман, Уильям Уиндом, Кэтлин Уиддоуз, Памелин Фердин, Курд Юргенс, Курт Лоуэнс, Грегори МортонПеревод: Одноголосый закадровыйПродолжительность: 01:48:40
 
 ## Скачать торент
 ```bash
@@ -230,28 +118,114 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226583   (654791) от 21.05.2018
+###  Публикация: 514995   (656942) от 25.06.2012
 
-VA - Hard Trance Legends, Vol.1 (2018) [MP3|320 Kbps] <Trance, Hard Dance>
+Н. Я. Ипполитова | Декоративное оформление участка [1991] [PDF]
+
+>>Разное (категория книг)
+>>Сад, огород, животноводство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656942.jpg" />
+</div>
+
+
+###  Подробнее
+
+В книге даны советы о том, как лучше спланировать приусадебный участок, озеленить его, оборудовать места для отдыха. Умение все делать своими руками - очень ценное качество. В место того чтобы со всякой мелочью обращаться к специалисту, хороший хозяин многое может сделать сам или с помощью членов своей семьи.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C02DB5543DAE4A702102C64D39393C3C1BA95A40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515294   (656941) от 25.06.2012
+
+Среда обитания. Волшебные пузыри (2012) SATRip
+
+>>Документалистика и Телепередачи
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656941.jpg" />
+</div>
+
+
+###  Подробнее
+
+Как только наступает летняя жара, продажи минеральной воды, соков и газировки возрастают в несколько раз. Правда, не все прохладительные напитки утоляют жажду и приносят пользу здоровью.Жанр: ТелепередачаПродолжительность: 00:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71DFA74F67119A88C3C0BC012E365EF1D2E95AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514996   (656940) от 25.06.2012
+
+Энтони Рейнольдс | Серия "Warhammer 40000" [2007-2011] [FB2]
+
+>>Художественная литература
+>>Книги вне издательств, самиздат (все жанры)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656940.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Печать Хаоса
+Ценой невероятных жертв Империи удалось одержать победу в Великой Войне против Хаоса. Воинство Хаоса под предводительством Асавара Кула было разгромлено, и гибель полководца внесла смятение в его ряды. Эльфы спрятали тело Кула, а с ним и бесценный меч - Убийцу Королей, заключающий в себе великого демона У'зула. Тот, кому Темные Боги дозволят владеть этим мечом, объединит племена Хаоса и станет Князем Демонов Кхорна. Вот тогда-то мир и потонет в крови!!!
+
+2. Темное кредо
+Третья книга цикла о Несущих Слово. Обединенный флот пяти Темных Апостолов атакует систему Боросс Прим, являющегося точкой выхода стабильного варп-маршрута, который ведет прямиком на Терру. Ключом к победе является регулятор связей, добытый Мардуком. С помощью артефакта Несущие Слово изолируют систему от Империума и начинают вторжение.Формат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0741DE41EA979B8383F70C7D792A7F70949AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 515132   (656939) от 25.06.2012
+
+VA - Cream Ibiza (Mixed By Above & Beyond) (2012) [MP3|320 кб/с]<Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656939.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jay P - The Ride (Criostasis Remix)
-02. 100mg - Yarg (Original Mix)
-03. Unit 13 - Rocked (T-Factor Remix)
-04. Sarah C - Need Your Lovin' (Original Mix)(   Читать дальше...   )Жанр: Trance, Hard DanceПродолжительность: 06:18:59
+ VA - Cream Ibiza (Mixed By Above & Beyond) (2012)
+
+Год: 2012
+Жанр: Trance
+Продолжительность:06:29:26Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:
+ 01. Cosmic Gate & Andrew Bayer - Nothing Ever Lasts (07:14)(   Читать дальше...   )
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:912F2F2ED0DA3472A8568EBD7CF5CB9B7BF9481C
+magnet:?xt=urn:btih:876BED5075D8CDFC21782B67A33D88227C4BC847
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -259,25 +233,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226598   (654790) от 21.05.2018
+###  Публикация: 514832   (656937) от 25.06.2012
 
-Transmit 5.1.3 [En]
+Franz Ignaz Beck - Symphonies: Nicolas Ward & Northern Chamber Orchestra (1996) [FLAC|Lossless]<Classical, Symphony>
 
->>Архив торрентов
->>Архив 4Apple
+>>Классика
+>>Оркестровая (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654790.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656937.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Transmit представляет собой отличный FTP (File Transfer Protocol), SFTP, S3 (Amazon.com файл-хостинг) и iDisk / WebDAV клиент, который позволяет загружать, выгружать и удалять файлы через Интернет, с продуманным, простым и интуитивно-понятным интерфейсом, высокой скоростью передачи/приема файлов, прекрасной стабильностью. Теперь Transmit подключается к 10 новым облачным (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 2018Разработчик: Panic IncПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
+Symphony in B flat major, op.12, No.4
+01. Allegro (03:59)
+02. Largo (07:27)
+03. Allegro (01:56)
+
+Sinfonia in D major, Callen 30
+04. Allegro    (04:25)
+05. Andante (03:49)
+06. Minuetto (02:34)
+07. Presto (02:23)(   Читать дальше...   )Жанр: Classical, SymphonyПродолжительность: 58:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C101BC30C886F6AEE1A56B1E3074099AC16C20A4
+magnet:?xt=urn:btih:311F258088C219AD1D02F6D406E2B3AA4C9F0FB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -285,28 +268,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226601   (654789) от 21.05.2018
+###  Публикация: 515244   (656933) от 25.06.2012
 
-Хоккей. Чемпионат мира 2018. Матч за 3-е место. США – Канада (20.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+Саров. Между огнём и водой (2003) DVD5
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Документалистика и Телепередачи
+>>Религии и культы (Док/TV)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654789.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656933.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 мая 2018 года, воскресенье. 16:45 МСК
-82-й Чемпионат мира по хоккею с шайбой 2018 года
-Матч за 3-е место.
-США – Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:17
+Мужской монастырь Свято-Успенская Саровская пустынь был официально открыт в 1706 году и за два века приобрел славу академии монашества на Русской земле. В 1927 году монастырь был закрыт и разорен, большая часть храмов взорвана и уничтожена. Впервые о возрождении саровских святынь заговорили в 1993 году, когда был освящен приходской храм Всех Святых (бывшая кладбищенская церковь Саровской пустыни).
+В 2002 году был передан и в 2003 году освящен Святейшим Патриархом Московским и всея Руси Алексием II храм преподобного Серафима Саровского (храм над келлией). В это время начал обсуждаться вопрос о возрождении монастыря в Сарове. 17 июля 2006 года, после 80-летнего запустения, в год 300-летия Саровской пустыни, Священный Синод благословил возрождение монашеской жизни в обители. Наместником Свято-Успенской Саровской пустыни был назначен иеромонах Варнава (Баранов).
+К святыням Саровской пустыни относятся пещеры, где жили первые монахи еще при первоначальнике Иоанне, которые простилались на несколько километров, теперь (   Читать дальше...   )Жанр: ДокументальныйРежиссер: А. ЛаринПродолжительность: 00:44:40
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:053355057254D21AF6449B005917D83EA8A14263
+magnet:?xt=urn:btih:67C6F39ECF028B8CB5D7DC011D7404625B72693F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -314,28 +296,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226623   (654788) от 21.05.2018
+###  Публикация: 1140296   (656932) от 05.06.2017
 
-Ernesto vs. Bastian - Best Of Ernesto vs. Bastian (2012) [FLAC|Lossless|WEB-DL|tracks] <Trance>
+Журнал | Профиль №21 (1001) (июнь 2017) [PDF]
 
->>Electronic
->>Trance (Lossless)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654788.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656932.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ernesto vs. Bastian - Who's The Starter (Original Mix) (7:42)
-02. DJ Ernesto - Urban Cowboy (Original Mix) (7:38)
-03. DJ Ernesto - In Me (Danjo & Styles Remix) (9:45)
-04. DJ Ernesto - In Me (Ernesto vs. Bastian Remix) (8:16)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:17:17
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой-аналитическийФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BE10049A4CFCAD8A0184E2E3F73BAC4DE759EB8E
+magnet:?xt=urn:btih:ED4C919DBB7470457FE26A94E26B1B5BE75CEC43
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -343,28 +323,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226600   (654787) от 21.05.2018
+###  Публикация: 1140217   (656931) от 05.06.2017
 
-Хоккей. Чемпионат мира 2018. Матч за 3-е место. США – Канада (20.05.2018) IPTVRip [H.264/1080p-LQ]
+VA - The Best Of Trance 56 (2017) [MP3|320 Kbps] <Trance>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Неофициальные сборники
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654787.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656931.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 мая 2018 года, воскресенье. 16:45 МСК
-82-й Чемпионат мира по хоккею с шайбой 2018 года
-Матч за 3-е место.
-США – Канада(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:49:09
+01.  NoMosk - Black Cloud (Extended Mix) 6:23
+02.  Solarstone & Meredith Call - I Found You (Giuseppe Ottaviani Remix) 6:51
+03.  PureNRG - Cala Blanca 7:53
+04.  Roman Messer - Lost (Extended Mix) 6:21(   Читать дальше...   )Жанр: TranceПродолжительность: 05:48:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2FA5537C022BA1B47EF13961C45B1C02D1F8C81D
+magnet:?xt=urn:btih:EFAF25D9C15096CFC20772D6A392F57A15F78D83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -372,57 +352,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226549   (654786) от 21.05.2018
+###  Публикация: 1140240   (656930) от 05.06.2017
 
-Karsten Pflum - No Noia My Love (2011) Hymen Records [FLAC|Lossless|tracks+.cue] <Drum & Bass, IDM, Dubstep>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hand (07:11)
- 02. Lov Dog (05:39)
- 03. Muntermacher (07:17)
- 04. Dansk Notebook Center (07:36)(   Читать дальше...   )Жанр: Drum & Bass, IDM, DubstepПродолжительность: 01:15:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3153669B7D9CF5A66448AB674C90E6C5032E0CF4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226587   (654785) от 21.05.2018
-
-Steve Angello - HUMAN (2018) [MP3|320 Kbps] <Electronic, House, Midtempo>
+VA - Ibiza Deep House (2017) [MP3|320 Kbps] <Deep House>
 
 >>Electronic
 >>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654785.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656930.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Rejoice (feat. T.D. Jakes) (07:35)
-02. Breaking Kind (feat. Paul Meany) (03:21)
-03. Flashing Lights (feat. Highly Sedated) (03:34)
-04. Glory (03:35)(   Читать дальше...   )Жанр: Electronic, House, MidtempoПродолжительность: 01:31:27
+01. Jamie L Ward - All Night Long (Original Mix) 06:49
+02. Traumton - Brooklyn (Original Mix) 07:48
+03. Deephenomena - Ganja (Original Mix) 07:40
+04. Funkabit - Blue Moon (Broke One Remix) 06:07(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:55:43
+Лейбл: Essential Session - ESR 166
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1372A05D8AC7BFA4BCC790BD6931B6C729D5B4BB
+magnet:?xt=urn:btih:B520233F63051049E385528E04530AA3C7FF5602
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -430,28 +382,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226503   (654784) от 21.05.2018
+###  Публикация: 1140221   (656929) от 05.06.2017
 
-VA - Eli's Tears (2018) [MP3|320 Kbps] <Heavy, Death Metall>
+И. Широков, Р. Янковский (ред.) | Материалистическая диалектика [Часть 1] (1932) [DJVU]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656929.jpg" />
+</div>
+
+
+###  Подробнее
+
+Материалистическая диалектика» выходит в двух частях.
+
+Работа авторов по первой части распределялась следующим образом: Материализм и идеализм — Г. Тымянский; Диалектика как теория познания; практика как основа познания, практика как критерий познания, буржуазная практика и познание, практика пролетариата как основа и критерий материалистической диалектики — П. Кучеров; (   Читать дальше...   )Жанр: История, политология, философия, логика, науковедениеФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5349D4EDCFAEAD97A1554162FA1521A6CD47634E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140169   (656928) от 05.06.2017
+
+VA - Empire Records - Club Hit 14 (2017) [MP3|320 Kbps] <House, Club, Dance>
 
 >>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654784.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656928.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Отсутствие адреналина? Хочется «потяжелее»? Мечтаете разрушать и устроить настоящий дестрой? Тогда композиции сборника «Eli's Tears» специально для вас. Они помогут поддержать нужный настрой, выпустить пар и насладиться мощными треками популярных исполнителей.001. Fates Warning - Something From Nothing
-002. Exit Eden - Question Of Time
-003. Nocturnal Rites - A Song For You
-004. Goatwhore - Forsaken(   Читать дальше...   )Жанр: Heavy, Death MetallПродолжительность: 12:51:14
+01.  Volkan Uca feat. Rose - You Don't Care 3:40
+02.  Klaas - Don't Talk (Chris Gold Edit) 3:41
+03.  Matthew Koma - Kisses Back (DJ Kapral Remix) 4:31
+04.  Afsheen - Pull Me From The Waves (feat. Nisha) (Extended Mix) 3:48(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:23:32
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CDDB5C8C3871E8CC003B323A7DF2908DD4ED7C55
+magnet:?xt=urn:btih:19858681379B93B4999496A634EA46947627678A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -459,28 +439,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226613   (654783) от 21.05.2018
+###  Публикация: 1140204   (656927) от 05.06.2017
 
-Хоккей. Чемпионат мира 2018. Финал. Швеция – Швейцария (20.05.2018) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+С. Людкевич (ред.) | Фашистская Германия (1934) [DJVU]
 
->>нет
->>нет
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654783.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656927.jpg" />
 </div>
 
 
 ###  Подробнее
 
-20 мая 2018 года, воскресенье. 21:15 МСК
-Финальный матч Чемпионата мира по хоккею с шайбой 2018 года
-Швеция – Швейцария
-Стадион: Роял-Арена (Копенгаген, Дания), 12490 зрителей (100 % при вместимости 12500)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: Русский, ИнтершумСубтитры: отсутствуютПродолжительность: 02:38:17
+Помещенные в этом сборнике небольшие рассказы, очерки десяти немецких революционных писателей, вводят нас в повседневный быт фашистской Германии.
+
+Большинство этих товарищей уже много лет участвуют в рабочем движении Германии. Они были связаны по работе, вместе пережили все ужасы фашистского террора, впитали в себя чувства и мысли рабочего класса. Об этом они говорят (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:A6062F3A8744043534D07682D9E5AECDB1E78878
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,25 +467,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226563   (654782) от 21.05.2018
+###  Публикация: 1097985   (656926) от 05.06.2017
 
-Жан Беливо | В поисках себя. История человека, обошедшего Землю пешком (2018) [MP3]
+Check Off - A Task Manager 5.5.2 [En]
 
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654782.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656926.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В 45 лет в кризисной для себя ситуации Жан Беливо неожиданно сам для себя отправился в пешее кругосветное путешествие почти без денег, бросив налаженный быт. За 11 лет он обогнул планету и вернулся домой совсем другим человеком. В книге собраны его впечатления от стран, которые он прошел на своих двоих.Жанр: Путешествия и географияПродолжительность: 12:11:11
+Check Off  представляет собой приложение для управления задачами, которая работает как автономное приложение или в строке меню.
+
+Особенности:
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 02 июня 2017Разработчик: ChromeDome SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:541019E544BF61197E1C04B6A786D19293A65498
+magnet:?xt=urn:btih:59D4D6BD2360A0C8F094759118FC5015205A4256
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -514,28 +496,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226487   (654781) от 21.05.2018
+###  Публикация: 1140191   (656925) от 05.06.2017
 
-Lee Aaron - Diamond Baby Blues (2018) [FLAC|Lossless|image + .cue] <Hard Rock, Blues Rock>
+Steve Kipner - Knock the Walls Down (1979) [FLAC|Lossless|tracks + .cue] <Pop Rock, Soft Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656925.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Diamond Baby (3:29)
-02. Mistreated (7:11)
-03. American High (4:12)
-04. I'm A Woman (4:27)(   Читать дальше...   )Жанр: Hard Rock, Blues RockПродолжительность: 00:51:03
+01. The Beginning (2:32)
+02. Knock the Walls Down (4:13)
+03. Lovemaker (3:15)
+04. School of Broken Hearts (4:00)(   Читать дальше...   )Жанр: Pop Rock, Soft RockПродолжительность: 00:35:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D0E3B9B2F78630CD42DB36FC9B928FC9726CFB20
+magnet:?xt=urn:btih:FAC8F014E6DD37F879128E65EE0E41CAA4ED1F07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,28 +525,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226481   (654780) от 21.05.2018
+###  Публикация: 1140070   (656924) от 05.06.2017
 
-Tonschatz - DAO - Follow Your Heart (2018) [FLAC|Lossless|image + .cue] <Euro-Disco, Europop, Synth-pop>
+VA - Proximity Suspense: Synthwave Music (2017) [MP3|320 Kbps] <Synthwave, Synthpop>
 
->>Pop
->>Disco, Italo-Disco, Euro-Disco, Hi-NRG (Lossless)
+>>Неофициальные сборники
+>>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654780.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656924.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Follow Your Heart (Reset Your Life) (4:03)
-02. Midlife Dreams (3:26)
-03. Odyssey (You Can Change Your Life) (4:16)
-04. Columbus (3:26)(   Читать дальше...   )Жанр: Euro-Disco, Europop, Synth-popПродолжительность: 00:28:52
+001.  Damokles - Proximity Suspense 4:48
+002.  D.Notive - Second Chances 6:00
+003.  Erasure - Still It's Not Over 4:03
+004.  THYX - Loyalty 3:55(   Читать дальше...   )Жанр: Synthwave, SynthpopПродолжительность: 07:33:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:651B76ABB8F6ABD91CAECA012FE0D95C084D0C6A
+magnet:?xt=urn:btih:0A7207C39C98D4E06315F948C4255C01DACB4850
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,27 +554,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226569   (654779) от 21.05.2018
+###  Публикация: 1140139   (656923) от 05.06.2017
 
-Джон Грин | Черепахи – и нет им конца (2018) [FB2]
+Мы покупаем пожарную машину / Wir kaufen eine Feuerwehr (1970) DVD5
 
->>Художественная литература
->>Современная поэзия и проза
+>>Видео, Кино и Сериалы для детей и родителей
+>>Зарубежные Фильмы и Сериалы для детей (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654779.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656923.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пропал миллиардер Рассел Пикет, и за любую помощь в его поисках объявлено солидное вознаграждение. Именно тогда Дейзи вместе с лучшей подругой Азой Холмс решают найти его во что бы то ни стало.
-
-Но для Азы это приключение грозит стать настоящим испытанием. Ведь ей придется общаться с людьми – а наедине с собой быть куда приятнее. Думать о других – но ей сложно отделаться (   Читать дальше...   )Жанр: Современная зарубежная литератураФормат: FB2
+Шестилетний Матти очень одинок. В школу его ещё не приняли, в детский сад он уже не ходит. Отец бывает дома редко, мать с утра до вечера занята маленькими близнецами. Вот почему Матти решил написать объявление: «Ищу друга на полный рабочий день». Таким другом оказался старый слесарь — дядя Клазен… Детский фильм, без элементов безнравственности и легкомыслия, присущих (   Читать дальше...   )Производство: ГДР, студия DEFAЖанр: семейный, детскийРежиссер: Ганс КратцертАктеры: Эрвин Гешоннек , Ларс Пелшус , Фридель Новак , Петра Келлинг , Яки Шварц , Мадлен Лирк, Карин Полони , Хольгер Малих , пёс Кикки и очень старая пожарная машинаПеревод: Профессиональный (дублированный) к/ст. "Ленфильм"Качество: DVD-5Продолжительность: 00:59:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03BC089F49C6EFD90AA6BECDD89A87C12DF21D9A
+magnet:?xt=urn:btih:225C4504DC8AB93A96A0696870C545BE24396A21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -600,28 +580,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226573   (654778) от 21.05.2018
+###  Публикация: 1140173   (656922) от 05.06.2017
 
-Diana Krall - Wallflower: The Complete Sessions (2014) Universal [FLAC|Lossless|image + .cue] <Vocal Jazz, Pop>
+Paice Ashton Lord - Malice In Wonderland (1976) Remastered, 2001, Purple Records [MP3|320 Kbps] <Rock, Rhythm & Blues>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654778.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656922.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. California Dreamin' [03:18]
-02. Desperado [03:33]
-03. Superstar [04:18]
-04. Alone Again ( Naturally)(duet with Michael Buble) [03:51](   Читать дальше...   )Жанр: Vocal Jazz, PopПродолжительность: 01:14:29
+1. Ghost Story
+2. Remember The Good Times
+3. Arabella (Oh Tell Me)
+4. Silas & Jerome(   Читать дальше...   )Жанр: Rock, Rhythm & BluesПродолжительность: 01:18:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FE316FF6FFC964360D00EC9A1D07A1727691D55D
+magnet:?xt=urn:btih:AE53B58898FFE5E5840E37E699AEF847687C14F4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -629,25 +609,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140701   (654777) от 07.06.2017
+###  Публикация: 1140162   (656921) от 05.06.2017
 
-Bulk Crap Uninstaller 3.9.0 + Portable [Multi/Ru]
+VA - Empire Records - Dance Nudisco 17 (2017) [MP3|320 Kbps] <Nu Disco, House, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Jones & Brock feat. Anica - Join Me (Hang Mos & Alexx Slam Remix) 5:01
+02.  Lisitsyn & MBNN feat. Alateya - Call Me Now (Namatria Remix) 5:07
+03.  Elena Karakash - Kisses (Original Mix) 5:14
+04.  Syntheticsax & Johnny Ex - Gentleman Of Music (Sax Version) 4:24(   Читать дальше...   )Жанр: Nu Disco, House, DanceПродолжительность: 01:42:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6432CB4CC83050A5CEBAAD8659768CFDF8A5606B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140313   (656920) от 05.06.2017
+
+Permute 2.4.6 [Multi/Ru]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656920.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Bulk Crap Uninstaller (BCUninstaller) - деинсталлятор программ, который позволит удалить без следов и остатков любое приложение на Вашем компьютере. Как известно, любая программа в процессе работы заполняет ПК некими данными: записи в реестре, созданные папки, файлы и т.д. Если Вы просто удаляете потом такое приложение, то некий мусор все равно остается в системе, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Permute: Универсальный конвертер видео, аудио и изображений
+Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 05 июня 2017Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: macOS 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:53CD6FC2F850BC3B94E2FC7117461A901EAB59D2
+magnet:?xt=urn:btih:3C0DFDCF76C26A6B219FE028828CEB8D7179E2FB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,28 +665,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226537   (654776) от 21.05.2018
+###  Публикация: 1140198   (656919) от 05.06.2017
 
-Raging Slab - Raging Slab (1989) Reissue, 2001, Spitfire Records [MP3|320 Kbps] <Southern Hard Rock>
+Escape 2 v2.0.0 [En]
 
->>нет
->>нет
+>>Программы для macOS
+>>Офис, Интернет для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_654776.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656919.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. Don't Dog Me
-2. Joy Ride
-3. Sorry's All I Got
-4. Waiting For The Potion(   Читать дальше...   )Жанр: Southern Hard RockПродолжительность: 00:37:44
+Если вы тратите 1 час в день на социальные сети, каждый день, это 45 рабочих дней в году.
+Escape - это утилита, которая работает в фоновом режиме и продолжает подсчет.
+Escape показывает таблицу ваших наиболее часто используемых веб-сайтов, сколько раз вы использовали их и сколько минут вы проводили там.
+(   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 31 мая 2017Разработчик: Median Tech, s.r.o.Поддерживаемая ОС: OS X 10.11 +Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:6770BD75DA0E34FEBD8A48940F0084B14341407C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,25 +694,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1139964   (654775) от 07.06.2017
+###  Публикация: 1139735   (656918) от 05.06.2017
 
-BBC: Секретные войны (Тайные войны) / The Secret War (1977-1978) DVDRip [H.264] (7 серий из 7)
+Viasat Nature: Тайны заливного леса – национальный парк Дунай / Secrets of the Flooded Forest - Danube National Park (2011) HDTVRip [H.264/720p-LQ]
 
 >>Документалистика и Телепередачи
->>Вторая Мировая война
+>>Клуб кинопутешествий
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654775.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656918.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Во время Мировых Войн, которые вело человечество, наряду с непосредственными боевыми действиями, сражавшиеся стороны вели другие - «тайные», - войны силами своих ученых и инженеров. Считается, что Первую Мировую войну выиграли химики; Вторую Мировую войну - физики. Документальный сериал ВВС «Секретная война» откроет Вам самые яркие и захватывающие страницы истории (   Читать дальше...   )Телекомпания: British Broadcasting Corporation (BBC)Жанр: Документальный, война, историяПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 7 х ~ 00:50:06
+Документальный фильм рассказывает о национальном природном парке, расположенном на реке Дунай, которая протекает через территории десяти стран центральной Европы. Биоразнообразие парка огромно, в состав многочисленных представителей флоры и фауны заповедника входят орлы и другие редкие птицы, обитающие в лесах, а также бобры, строящие на реке дамбы. Река пролегает (   Читать дальше...   )Производство: Австрия, ORFЖанр: Документальный, фауна, флораРежиссер: Франц ХафнерПеревод: Одноголосый закадровый, профессиональный (SDI Media)Субтитры: отсутствуютПродолжительность: 00:52:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5DC973BD98EA3C586B6035941039B1855BC3FC3D
+magnet:?xt=urn:btih:5A64E50A2E53973C882821B06FA03D06E63B24A0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,25 +720,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226577   (654774) от 21.05.2018
+###  Публикация: 1140321   (656917) от 05.06.2017
 
-WinCatalog 2018 18 RePack by вовава [Ru/En]
+Антон Туркул | Дроздовцы в огне (2012) [MP3]
 
->>Архив торрентов
->>Архив Программ
+>>Художественные аудиокниги и публицистика
+>>Другие аудиокниги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_654774.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656917.jpg" />
 </div>
 
 
 ###  Подробнее
 
-WinCatalog - это простая в использовании программа-каталогизатор, предназначенная для каталогизации дисков, файлов и папок. Приходилось ли Вам когда нибудь просматривать содержимое десятков CD в поисках нужной программы или песни? Используя WinCatalog Вам больше никогда не придется тратить время на поиск. Достаточно один раз добавить Ваши диски в WinCatalog и поиск (   Читать дальше...   )Язык интерфейса: Русский, Английский
+В книге собраны мемуары не только очевидцев, но и непосредственных участников белого движения в России. Генерал Антон Туркул (1892-1957) и прапорщик Георгий Венус (1898-1919) - так называемые "дроздовцы". Михаил Дроздовский был одним из организаторов и руководителей белой армии... Генерал Туркул в 1937 г. написал воспоминания о Гражданской войне — эту книгу (   Читать дальше...   )Жанр: Мемуары, биографияПродолжительность: 08:53:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1CAD2AED4468AA20C1F7C9DADEC1BD5653054F52
+magnet:?xt=urn:btih:A71C24D96063CD37632719ACBD407769E9540D01
 ```
 
 https://mybot314.ru/tekegram_catalog/

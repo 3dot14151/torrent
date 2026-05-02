@@ -1,164 +1,22 @@
-###  Публикация: 1723740   (109443) от 16.05.2024
+###  Публикация: 1718261   (110989) от 24.04.2024
 
-Elvellon - Ascending in Synergy (2024) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109443.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unbound (5:51)
-02. A Vagabond's Heart (5:21)
-03. My Forever Endeavour (5:08)
-04. Ocean Of Treason (5:00)(   Читать дальше...   )Жанр: Symphonic MetalПродолжительность: 00:56:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55EA452F12EA3B563E2CD0E8E790BDE11490C0E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723572   (109442) от 16.05.2024
-
-Intelligent Music Project - VIII: Miracles Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109442.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro
-02. Thunder
-03. Days Rollin'
-04. For You(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCDCFEE9EAF01CD3232D2028ACA26E4B5DDACFBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723600   (109441) от 16.05.2024
-
-Господа из Санте / Ces messieurs de la Sante / These Gentlemen of Health (1934) BDRip [H.264] [VO]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109441.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм по одноимённой пьесе Поля Армона и Леопольда Маршана (1931)... Хитрый финансист, заключённый в тюрьму по обвинению в мошенничестве, сбегает оттуда, берёт вымышленное имя и работает разнорабочим в магазине корсетов. Преуспев в бизнесе своей покровительницы, он быстро оказывается во главе экономической империи...Производство: Франция / Pathé-NatanЖанр: комедияРежиссер: Пьер КоломбьеАктеры: Ремю, Люсьен Бару, Поль Амио, Жорж Молау, Пьер Стефан, Полин Картон, Ивонн Эбер, Моника Роллан, Эдвиж ФёйерПеревод: любительский одноголосыйЯзык озвучки: русский, французскийСубтитры: русские, английскиеПродолжительность: 01:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFB132879CCB73819B7A27B39E048A50303E328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723679   (109440) от 16.05.2024
-
-Demon - Invincible (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109440.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:27)
-02. In My Blood (4:40)
-03. Face The Master (4:26)
-04. Ghost From The Past (5:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:763A47989109B044945457FC24669BB32799624F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723204   (109439) от 16.05.2024
-
-Jazz Guitar Club, Background Instrumental Music Collective, Romantic Love Songs Academy - Passion And Pomegranate: Best Romantic Guitar Music of All Time (2024) [FLAC 24/48|Lossless|WEB-DL|tracks]  ...
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109439.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Passion And Pomegranate (3:35)
-02. Romantic Love Songs Academy - Absolute Satisfaction (3:02)
-03. Background Instrumental Music Collective - Morning Kiss (3:39)
-04. Savage Feeling (3:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E2876508710FE5315CC8D63275B04E4333CC836
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723515   (109438) от 16.05.2024
-
-Газета | Аргументы и Факты. Москва №20 (15-21 мая 2024) [PDF]
+Газета | Народный совет №17 (16 апреля 2024) [PDF]
 
 >>Журналы
 >>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109438.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110989.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Еженедельная газета «Аргументы и Факты Москва» - одно из самых популярных изданий в России и за рубежом. Основные темы: информация о событиях в России и за рубежом, политика, культура, экология, социальные проблемы и многое другое. В 1990 году за самый большой тираж в мире (33,5 млн. экземпляров) была внесена в книгу рекордов Гиннеса. Еженедельник «АиФ» рассчитан (   Читать дальше...   )Жанр: Популярное изданиеИздательство: АО "Аргументы и Факты"Формат: PDFКачество: Обработанный скан
+Издание помогает читателям узнать свои права, решить проблемы, добиться справедливости! Уникальный справочник и надежный советчик по юридическим вопросам, здоровью и домашнему хозяйству. Консультации лучших специалистов, написанные простым и понятным языком с пошаговыми рекомендациями.Жанр: ПознавательныйИздательство: Александр ИоффеФормат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C28AB96D73AF1C3A4CF232C5ADA35BB2003F1AE7
+magnet:?xt=urn:btih:9D90D3E997AFD28F0C1813A9558BBC84AA14ACE8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,459 +24,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723521   (109437) от 16.05.2024
+###  Публикация: 1718372   (110988) от 24.04.2024
 
-GForce - impOSCar 3 1.0.0 STANDALONE, VSTi, VSTi 3, AAX (x64) RePack by TCD [En]
-
->>Мультимедиа и Графика
->>Аудио Граббинг, Мастеринг, Обработка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109437.jpg" />
-</div>
-
-
-###  Подробнее
-
-В основе imOSCar3 от GForce лежит дизайн легендарного британского аппаратного синтезатора OSCar®.
-Как и оригинал, его гибридная архитектура сочетает в себе точность цифровых генераторов с теплотой аналоговых фильтров, обеспечивая широкий спектр звуковых возможностей.
-Создавайте обширные, пышные, темные или эмбиентные пэды, резонансные колокольчики и точные соло с (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74CFC4C88C88DA50BCD4C07578ADFB19A06AE123
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723687   (109436) от 16.05.2024
-
-QuickEdit Text Editor Pro 1.11.0 Mod by Balatan [Ru/Multi]
-
->>Программы, Игры и прочее
->>ПО для Android
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109436.jpg" />
-</div>
-
-
-###  Подробнее
-
-QuickEdit Text Editor Pro - полноценный и многофункциональный текстовый редактор в котором вы сможете хранить свои записи. Так же он поддерживает функцию автозаполнения, и будет предлагать варианты для вставки. Его скорость работы и время реакции гораздо лучше, чем у имеющихся в настоящее время в Google Play приложений для редактирования текстов. Он может использоваться (   Читать дальше...   )Тип издания: Pro (Patched)Релиз состоялся: 14.05.2024Разработчик: Rhythm SoftwareПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский, Английский, Немецкий и т.д.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5AB20C08DD28E95456F5B350CB8E4A40A00BB0AA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723651   (109435) от 16.05.2024
-
-George Shearing - Mellow Moods (1989) Pair Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109435.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Have You Met Miss Jones? [2:09]
-02. Laura [2:56]
-03. I Could Write a Book [2:09]
-04. I'll Take Romance [2:42](   Читать дальше...   )Жанр: Mainstream Jazz, Piano JazzПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E1FA6A398B3C8594F87AF315C0A78D83837A848
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723563   (109434) от 16.05.2024
-
-Kalac - Odyssee (2024) [FLAC|Lossless|WEB-DL|tracks] <space rock, fuzz, kraut>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109434.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arguenon [00:06:53]
-02. Céleste [00:06:54]
-03. Conscience [00:04:47]
-04. II [00:07:15](   Читать дальше...   )Жанр: space rock, fuzz, krautПродолжительность: 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:00E8F9F2B741EEAE7772F6F7C84DCA098BDBDED5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723701   (109433) от 16.05.2024
-
-Luther Vandross - Luther (1976) Remaster, 2024, Legacy Recordings [MP3|320 Kbps] <R&B>
-
->>Pop
->>Зарубежная поп-музыка
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Funky Music (Is A Part Of Me) [00:05:29]
-02 - The 2nd Time Around [00:06:25]
-03 - I'll Get Along Fine [00:04:09]
-04 - Everybody Rejoice (From the Tony Award Winning Musical, _The Wiz_) [00:03:24](   Читать дальше...   )Жанр: R&BПродолжительность: 00:45:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48F8149BD8E0AA755B4E218D76A06B8233E21D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723535   (109432) от 16.05.2024
-
-Shokran - Duat (2024) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109432.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Khonsu: The Traveler from Thebes [00:03:54]
-02. Set: The Shark in the Womb [00:05:01]
-03. Thoth: The Silent Witness [00:04:41]
-04. Amon-Ra: The Battle for Tomorrow [00:04:00](   Читать дальше...   )Жанр: Progressive MetalcoreПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FFC3473C49BEA3DAAC799DA0D2090DB3D9D41438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723650   (109431) от 16.05.2024
-
-Wayne Shorter - The Soothsayer (1965) 1990, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109431.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lost [7:16]
-02. Angola [4:51]
-03. Angola (alternate take) [6:43]
-04. The Big Push [8:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:50:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E590E3A18A2AF9572A6B9F6B25E4E8F894AB4C84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723374   (109430) от 16.05.2024
-
-Winifred Atwell - The Best of Winifred Atwell (1999) Spectrum Music [FLAC|Lossless|tracks + .cue] <Ragtime, Boogie-Woogie, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109430.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Poor People of Paris [2:01]
-02. Britannia Rag [2:13]
-03. The Black and White Rag [2:37]
-04. Flirtation Waltz [2:16](   Читать дальше...   )Жанр: Ragtime, Boogie-Woogie, Piano JazzПродолжительность: 00:45:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:89B61F5EA433D74938F1492F8107FA641FD7BC5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723653   (109429) от 16.05.2024
-
-Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars At Charlie's Georgetown (1982) 1994, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Where or When [4:37]
-02. New Orleans [6:47]
-03. When the Saints Go Marching In [3:14]
-04. Change Partners [3:59](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:48:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E479B792287BB113D02BE63B9A5B4DF0DDC92A42
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723655   (109428) от 16.05.2024
-
-Charlie Byrd, Barney Kessel, Herb Ellis - Great Guitars At The Winery (1980) 1992, Concord Jazz [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Broadway [5:44]
-02. Air Mail Special [4:54]
-03. Body and Soul [4:51]
-04. You Took Advantage of Me [2:53](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:44:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:380ACA0DA3CFEE80E86CCC4BD5E3EF9E84BDE2E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723532   (109427) от 16.05.2024
-
-Stonehand - Алхимия (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Дикий пёс [00:03:28]
-02. Без тормозов [00:03:51]
-03. У Времени нет времени [00:04:15]
-04. Долгий путь домой [00:05:04](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3318E6807BEA3ECC224027B864B37727CC21C131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723675   (109426) от 16.05.2024
-
-Demon - Invincible (2024) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109426.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (1:27)
-02. In My Blood (4:40)
-03. Face The Master (4:26)
-04. Ghost From The Past (5:08)(   Читать дальше...   )Жанр: Heavy Metal, Hard RockПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FD570D23EFFD31E30B2F421C884F9D445FA090
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723587   (109425) от 16.05.2024
-
-VA - Metal Massacre 02 (1982) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash, Glam, Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109425.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 - Armored Saint - Lesson Well Learned
-A2 - 3rd Stage Alert - Mind Invader
-A3 - Surgical Steel - Rivit Head
-A4 - Obsession - Shadows Of Steel(   Читать дальше...   )Жанр: Thrash, Glam, Heavy MetalПродолжительность: 00:45:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35C1617AB2EE576FD0036BA5EF3A22255F71FF36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723517   (109424) от 16.05.2024
-
-Рассвет - Воин (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Воин [00:03:26]
-02. Шторм [00:04:03]
-03. Рассвет [00:04:13]
-04. Осколки [00:04:22](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:41:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA040539613EC4C5544BF4C6D5134921D2D41518
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723463   (109423) от 16.05.2024
-
-The Neal Morse Band - Innocence & Danger (2021) [FLAC|Lossless|tracks + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109423.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Innocence:
-1. Do It All Again - 8:53
-2. Bird On A Wire - 7:23
-3. Your Place In The Sun - 4:13(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:39:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1F2FEC41D8790CEAD5AD2152F1CF3961431CDB37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723544   (109422) от 16.05.2024
-
-Night Hearth - La noche de los sueños perdidos (2024) [MP3|320 Kbps] <Power Metal>
+Knightfall - Destiny Calling (2024) [MP3|320 Kbps] <Melodic Power Metal>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109422.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110988.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - La Hora de las Sombras [00:01:38]
-02 - La Noche de los Sueños Perdidos [00:06:59]
-03 - La Senda de la Revolución [00:04:52]
-04 - Donde Llegue el Viento [00:06:02](   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:40:21
+01 - Children of Time [00:05:57]
+02 - Warcries [00:04:24]
+03 - Remembe My Name [00:04:35]
+04 - The Hero Walks Alone [00:03:42](   Читать дальше...   )Жанр: Melodic Power MetalПродолжительность: 01:00:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D319E6E0084A7832E7558C090BC0A7BB58E27C7B
+magnet:?xt=urn:btih:742635AEE82848B3E63E28DC514272C6C204F5C6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -626,28 +53,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723339   (109421) от 16.05.2024
+###  Публикация: 1718414   (110987) от 24.04.2024
 
-VA - Nothing But... Trancetopia Vol. 14 (2024) [MP3|320 Kbps] <Trance>
+Skype 8.118.0.205 RePack (& Portable) by elchupacabra [Multi/Ru]
 
->>Electronic
->>Trance
+>>Архив торрентов
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109421.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110987.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vokoglok - Night Flight (Extended Mix) [7:01]
-02. Masaru Hinaiji - May 1st, Fine (Intro Mix) [6:19]
-03. Forbidden Mind - Wanderer (Extended Mix) [6:23]
-04. Fros7novA - Renegade (Extended Mix) [6:28](   Читать дальше...   )Жанр: TranceПродолжительность: 02:13:54
+Skype - бесплатная программа для текстового, голосового и видеообщения с друзьями по всему миру. Сеть Skype использует протокол MSNP24 для соединения с другими пользователями и отличается высоким качеством передачи данных. Помимо превосходного качества звука, Skype предоставляет максимальную конфиденциальность - все общение между клиентами зашифровано и не может (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:14F5D8FA727E6FDC062F83CEB019048C78500436
+magnet:?xt=urn:btih:F63EC00BB42E128438D4855FD798537BB4A83348
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -655,28 +79,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723614   (109420) от 16.05.2024
+###  Публикация: 1718299   (110986) от 24.04.2024
 
-The Yum Yums - Poppin' Up Again (2024) [FLAC|Lossless|WEB-DL|tracks] <Power-Pop, Rock>
+Журнал | Садовод и огородник №8 (523) (апрель 2024) [PDF]
 
->>Pop
->>Зарубежная поп-музыка (Lossless)
+>>Журналы
+>>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109420.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110986.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Vitamin U [00:03:01]
-02. Got Me Good [00:02:47]
-03. Do You Like Me [00:02:44]
-04. Baby Doll [00:03:22](   Читать дальше...   )Жанр: Power-Pop, RockПродолжительность: 00:39:40
+«Садовод и огородник» — журнал для начинающих и опытных садоводов и огородников, владельцев загородных участков и сельских жителей, всех желающих добиться максимального урожая с минимальными затратами. Журнал знакомит своих читателей с современными технологиями и народным опытом выращивания овощных, плодовых, ягодных и лекарственных культур, разнообразием садовых (   Читать дальше...   )Жанр: Сад, огородИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1F7343241531784D299828F44E94B4C85C01EBE0
+magnet:?xt=urn:btih:B1D395C2731798DF7DE83E4BFB91DB9503D0BEBC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -684,28 +105,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723641   (109419) от 16.05.2024
+###  Публикация: 1718270   (110985) от 24.04.2024
 
-VA - Dance Anthems Spring 2024 (2024) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+Лаэртский и Карабас - Как будто пришли в гости (2024) [FLAC|Lossless|image + .cue] <Rock>
 
->>Electronic
->>House
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109419.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110985.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Basic Stuff - I Know (02:43)
-02. Sonya Bexter - My Move (02:51)
-03. AC Scamp - Upside (02:29)
-04. Liza Jones - No Choice (03:22)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:21:08
+01. Заклинило
+02. Певица
+03. Вязьма
+04. Мутанты(   Читать дальше...   )Жанр: RockПродолжительность: 00:32:56
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:75DAF1C7EDA181996EF67FB2F3330C41246D2EA7
+magnet:?xt=urn:btih:F56101FA40AA1600A2ADA99CA520E4647DE8F787
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -713,26 +134,602 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1723593   (109418) от 16.05.2024
+###  Публикация: 1718259   (110984) от 24.04.2024
 
-НХЛ. Кубок Стэнли 2024 (Плей офф. 2-й раунд. 5-й матч) Колорадо Эвеланш - Даллас Старз (15.05.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+Strom - En Orkan Pa Var Sida (2024) [MP3|320 Kbps] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110984.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. En Orkan Pa Var Sida (04:12)
+ 02. Blodsprangda Ogon (03:35)
+ 03. Aristokrat (04:20)
+ 04. Kicken (04:08)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2FFCEE02E69A8021989A12780C2E50ADB02C767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718342   (110983) от 24.04.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 2-й матч) Колорадо Эвеланш - Виннипег Джетс (23.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_109418.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110983.jpg" />
 </div>
 
 
 ###  Подробнее
 
-16 мая 2024, четверг. 03:00 МСК. 1/2 финала - Запад. 5-й матч. Стадион: Американ Эйрлайнс-центр (Даллас, США), 18 532 зрителя (98% при вместимости 18 889)
-Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Гарретт Рэнк (Эльмира, Канада); Линейный: Кил Марчисон (Кловердейл, Канада); Линейный: Брэндон Гаврилетц (Трэил, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:41
+24 апреля 2024, среда. 04:30 МСК. 1/4 финала - Запад. 2-й матч. Стадион: Канада Лайф-центр (Виннипег, Канада), 15 225 зрителей (99% при вместимости 15 325)
+Главный судья: Стив Козари (Пентиктон, Канада); Главный судья: Кайл Реман (Стеттлер, Канада); Линейный: Мишель Кормье (Трой-Риверес, Канада); Линейный: Биван Миллс (Суррэй, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:13
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DD63C1378F92A2A868BC163A93A611722D242D1C
+magnet:?xt=urn:btih:946FB2A05418462ADF63ACB8CE0E0F736D8DDEE2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718279   (110982) от 24.04.2024
+
+Bronze - In Chains and Shadows (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110982.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fool (00:03:47)
+02 - Time Covers No Lies (00:02:42)
+03 - In Chains and Shadows (00:03:47)
+04 - Maze of Haze (00:03:14)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:733B43CF1254403D835EA18CCC20EC871D19147E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718278   (110981) от 24.04.2024
+
+Archiac Torse - Sneak Attack (1992) Reissue, 2022, Vic Records [FLAC|Lossless|WEB-DL|tracks] <Thrash, Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110981.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beyond the Great Divide
+02. The Value of Your Soul
+03. Message to No One
+04. Snuff(   Читать дальше...   )Жанр: Thrash, Death MetalПродолжительность: 00:51:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B5B4582CA20B010600D18C69003861A71A5ECAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718311   (110980) от 24.04.2024
+
+Scott H. Biram - The One & Only Scott H. Biram (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110980.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No Man’s Land (4:19)
+02. High & Dry (3:15)
+03. Easy Rider (3:58)
+04. I’ll Still Miss Ruby (3:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5B1ECBED4A5EF328FBF4EEDC06935FC89CEAFAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718348   (110979) от 24.04.2024
+
+Chris Flory - City Life (1993) Concord Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110979.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alexandria, VA [4:27]
+02. Besame Mucho [4:05]
+03. S'posin' [5:26]
+04. Tin Tin Por Tin Tin [4:09](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:58:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6F3BDE6F5D56FA50B26393830E4A28611C7BC4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718305   (110978) от 24.04.2024
+
+Nicholas Alexander - Lil Hoochie (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (2:00)
+02. Popcorn (2:50)
+03. Dial Your Number (4:55)
+04. Outskirts Of Town (5:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:678FD50C01330E90A5135F538F32AD77B63B1EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718262   (110977) от 24.04.2024
+
+Brian Stoltz - New World Rising (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110977.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Can Never Die (3:11)
+02. Mirror Mirror (6:34)
+03. One Angel (4:22)
+04. All That Binds (7:01)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86147B18398F304813AC7B6AC03CC570A0353B1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718350   (110976) от 24.04.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 2-й матч) Нэшвилл Предаторз - Ванкувер Кэнакс (23.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110976.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 апреля 2024, среда. 05:00 МСК. 1/4 финала - Запад. 2-й матч. Стадион: Роджерс-Арена (Ванкувер, Канада), 18 960 зрителей (100% при вместимости 18 910)
+Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Тревор Хансон (Ричмонд, Канада); Линейный: Стив Бартон (Ванклик Хилл, Канада); Линейный: Кайл Флемингтон (Паркхилл, Канада)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED3703AD99684824541B89F4094CE2302CAB3B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718322   (110975) от 24.04.2024
+
+Winter Blues Band - Tale of a Lone Lil' Boy (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110975.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tumblin' Down (3:15)
+02. Furiosa (3:47)
+03. The Weight of Things (5:35)
+04. Lazy Blue Line (4:36)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:03:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:036200C90D50A935D70E7276611ECB16697EA320
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718301   (110974) от 24.04.2024
+
+Mike Fisher - 12 Days of Blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Me (3:50)
+02. Hellhound (2:54)
+03. The Bog (3:58)
+04. Old Dog Blues (3:46)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:42:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C00FD6EFFF48D6D532D69FE2B0E3FAA8312F97D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718346   (110973) от 24.04.2024
+
+НХЛ. Кубок Стэнли 2024 (Плей офф. 1-й раунд. 2-й матч) Тампа-Бэй Лайтнинг - Флорида Пантерз (23.04.2024) WEB-DLRip [H.264/720p] [hand made 60fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110973.jpg" />
+</div>
+
+
+###  Подробнее
+
+24 апреля 2024, среда. 02:30 МСК. 1/4 финала - Восток. 2-й матч. Стадион: Амерант Банк Арена (Санрайз, США), 19 484 зрителя (100% при вместимости 19 434)
+Главный судья: Крис Ли (Сейнт Джон, Канада); Главный судья: Фредерик Л'Экюйе (Сен-Тит, Канада); Линейный: Скотт Черри (Дрэйтон, Канада); Линейный: Либор Суханек (Стод, Чехия)Телекомпания: ESPNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D1B67413546E2C9C6BF279B5782CD5CB8A847B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718263   (110972) от 24.04.2024
+
+Grackles - Grackles (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110972.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. It's Comin To Ya (4:39)
+02. San Antone (3:54)
+03. Eternal Return Blues (3:43)
+04. Near or Too Far (4:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:848823398AC1A991EF2B8A8D0F6C15852DDC77F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718315   (110971) от 24.04.2024
+
+The Roy Poulton Blues Band - Bluesbeard (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110971.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. With a Little Help From My Friends (5:50)
+02. Born Under a Bad Sign (3:14)
+03. Pride and Joy (3:42)
+04. Hoochie Coochie Man (4:26)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F97BE995B670297CDC8F85FC6B6FBE4CEA5BD9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718264   (110970) от 24.04.2024
+
+Jean-Jacques Milteau - Key To The Highway (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110970.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maggie's Farm (3:25)
+02. Chain Of Fools (3:15)
+03. New Key To The Highway (3:06)
+04. Rainy Night in Georgia (4:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:34:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B15948604CCDD1D9658B9578849F746E13A7EB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718256   (110969) от 24.04.2024
+
+Strom - En Orkan Pa Var Sida (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110969.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - En Orkan Pa Var Sida (04:12)
+02 - Blodsprangda ogon (03:34)
+03 - Aristokrat (04:19)
+04 - Kicken (04:07)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:744D716415AB051DB473854C77676F458163287C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718265   (110968) от 24.04.2024
+
+U.D.O. - Mission No. X (2005) Released, 2012, Night Of The Vinyl Dead Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Embarkation
+02. Mission No. X
+03. 24/7
+04. Mean Streets(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:47:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A55D62CA8AC5044E4A2B73413159B02A1B037
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718333   (110967) от 24.04.2024
+
+Baker Gurvitz Army - Hearts On Fire (1976) Japanese Edition, Reissue, 2005, Strange Days Records [FLAC|Lossless|image + .cue] <Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110967.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hearts On Fire
+02. Neon Lights
+03. Smiling
+04. Tracks Of My Life(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:37:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5D99251DE941D2CF96EAD057E284F1B4677EDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718237   (110966) от 24.04.2024
+
+The Biarritz Boys - Inside Clean Waves (2023) [FLAC|Lossless|image + .cue] <Surf>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shogun (3:29)
+02. The Spy Who Pechaan'd Me (2:50)
+03. Surf Wind From The North (3:06)
+04. Livorno Ferris Wheel Of Italian Chess (2:21)(   Читать дальше...   )Жанр: SurfПродолжительность: 00:32:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A63E870809A24898A26441D8E6179EB93A3A6F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718260   (110965) от 24.04.2024
+
+Brace For War - Chromium Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110965.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chromium Blues (4:20)
+02. Monterey Blues (4:47)
+03. Seraphim Blues (2:59)
+04. Too Far Gone (5:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:174AB42CD44F94D3B14F84A4A9B0CAA6257E3C24
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1718387   (110964) от 24.04.2024
+
+Blue Sun - Festival (2006) [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Prog Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110964.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Festival 2:48
+02. Katedralen 4:26
+03. Pa Fjeldet 3:22
+04. Kaere Irene 2:14(   Читать дальше...   )Жанр: Jazz-Rock, Prog RockПродолжительность: 01:14:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B934B6C5CD1EFD6B5AC83045D3ADDDFF1D99494
 ```
 
 https://mybot314.ru/tekegram_catalog/

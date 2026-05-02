@@ -1,3 +1,38 @@
+###  Публикация: 469663   (82796) от 18.03.2012
+
+George Strait - [41 альбом] Дискография (1981 - 2009) [MP3|~192 kb/s]<Country Rock/Rock`n`Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_82796.jpg" />
+</div>
+
+
+###  Подробнее
+
+1981 - 2006Жанр: Country Rock/Rock`n`RollПродолжительность: 00:42:10
+
+01. Twang
+02. Where Have I Been All My life
+03. I Gotta Get To You
+04. Easy As You Go
+05. Living For The Night
+06. Same Kind Of Crazy
+07. Out Of Sight Out Of Mind
+08. Arkansas Dave(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C01CED82220A2F68D0E20566438CD391F9E6D9F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 467654   (82040) от 14.03.2012
 
 Альберт Артемьев - 5 альбомов (2003-2008) [MP3|256-320 кб/с]<Pop-Rock, Rock>
@@ -738,35 +773,6 @@ Oasis - Time Flies… (1994 - 2009) (2010) Remastered, 2025, Big Brother Recordi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B5B06511BD8F09091941DCF0B44938C8B45D1CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802431   (66047) от 17.06.2025
-
-Neil Young - Talkin to the Trees (2025) [MP3|320 Kbps] <Country Rock, Roots Rock, Folk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Family Life [2:51]
-02 - Dark Mirage [5:40]
-03 - First Fire of Winter [4:44]
-04 - Silver Eagle [3:18](   Читать дальше...   )Жанр: Country Rock, Roots Rock, Folk RockПродолжительность: 00:37:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CA7FE9FF9BD04302DF6377A3CD24AB9E213578D
 ```
 
 https://mybot314.ru/tekegram_catalog/

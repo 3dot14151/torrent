@@ -1,3 +1,61 @@
+###  Публикация: 1443253   (1035775) от 28.01.2021
+
+Mary Lou Williams - Black Christ Of The Andes (1963) 2006, Universal [FLAC|Lossless|tracks + .cue] <Bop, Piano Jazz, Gospel>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035775.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Christ of the Andes [6:36]
+02. It Ain't Necessarily So [4:45]
+03. The Devil [4:05]
+04. Miss D.D. [2:32](   Читать дальше...   )Жанр: Bop, Piano Jazz, GospelПродолжительность: 00:39:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9D642DB20C6143B927B9CD8BD643011BBF689CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617060   (1035624) от 05.03.2023
+
+Dinah Washington - After Hours With Miss "D" (1953, 1954) 2004, Verve Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blue Skies (edited version) [7:52]
+02. Bye Bye Blues [6:59]
+03. Am I Blue? [3:14]
+04. Our Love Is Here to Stay [2:31](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:900D9D59BCA8FE1518184C5D1A7D3073568D66FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617059   (1035621) от 05.03.2023
 
 Dinah Shore - Fascination: The Encore Collection (1950-e) 1997, BMG Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Giorgi Mikadze - Georgian Microjamz (2020) [FLAC|Lossless|tracks + .cue] <Jazz, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0D6341A3B98987A792612BC68D98A97B7803D70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1444773   (1034185) от 03.02.2021
-
-Buddy De Franco (DeFranco) - Blues Bag (1964) 2000, Koch Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034185.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blues Bag [5:34]
-02. Rain Dance [5:41]
-03. Straight No Chaser [3:49]
-04. Cousin Mary [4:46](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:37:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DAF8D341BB36A54912950ED6697D9B1B53501BC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1618399   (1034176) от 11.03.2023
-
-Sun Ra - The Complete Remastered Recordings On Black Saint & Soul Note (1986 - 1992) 4CD, 2014, CAMJazz [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034176.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Only Time Will Tell [5:33]
-02. Satin Doll [8:02]
-03. Deep Purple [6:25]
-04. Bugle Blues [2:53](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 03:25:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A74DF46032D7F5EE807B2D429710AD350B3F85E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

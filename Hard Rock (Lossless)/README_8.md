@@ -1,3 +1,120 @@
+###  Публикация: 1455490   (1025678) от 19.03.2021
+
+Butterfly - Doorways of Time (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025678.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Desert Chase (4:43)
+02. Climbing a Mountain (3:52)
+03. Doorways of Time (6:19)
+04. The Night is in its Way (2:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50B8027B0C72BA8254B4D1A700013C3A0B92E898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1455258   (1025482) от 20.03.2021
+
+Krokus - Headhunter / Alive And Screamin' (1999) Unofficial Release [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Headhunter (Apr. 1983 Arista)
+
+01. Headhunter
+02. Eat The Rich(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:19:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56BC5C474A83CD28752B3B4E7060293304DA6C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456103   (1025294) от 21.03.2021
+
+Warrant - Cherry Pie (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Glam>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1025294.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherry Pie
+02. Uncle Tom's Cabin
+03. I Saw Red
+04. Bed Of Roses(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:41:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB797025F3956E38F0519E1C46C59C02883258B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1456733   (1024915) от 23.03.2021
+
+Def Leppard - The Two Arm Years (2021) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1024915.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wasted (Live At The New Theatre Oxford, UK / 1979) 04:53
+02. Rock Brigade (Live At The New Theatre Oxford, UK / 1979) 02:58
+03. Let It Go 04:43
+04. Mirror Mirror (Look Into My Eyes) 04:07(   Читать дальше...   )Жанр: Hard Rock
+Страна: UKПродолжительность: 00:19:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFEDA23DBAE45EA808E237D56F9738AB9FFAADE1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1457380   (1024420) от 26.03.2021
 
 Adrian Smith, Ritchie Kotzen - Smith-Kotzen (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +746,6 @@ The Treatment - Waiting For Good Luck (2021) [FLAC|Lossless|WEB-DL|tracks] <Hard
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3DF3EAC800462CDFBBB4EFE3916E9ADD2A66D225
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 395302   (1021651) от 10.04.2021
-
-Cheap Trick - 20 Studio, 5 Live, 7 Compilations, 1 Box Set (1977 - 2021) 83 CD [FLAC|Lossless|image+.cue|tracks+.cue]<Hard Rock, Power Pop, Arena Rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021651.jpg" />
-</div>
-
-
-###  Подробнее
-
-Часто бывает так, что музыкант по полной программе выкладывается в своих первых работах, а дальше записывает один невнятный альбом за другим и если остается в строю, то лишь в уважение былых заслуг. С американской командой Cheap Trick дела обстоят совершенно противоположным образом. Пройдя через долгий и мучительный поиск своего лица, «трюкачи» стали настоящими рок-звездами (   Читать дальше...   )Список альбомов:
-1977 - Cheap Trick
-1977 - In Color
-1978 - Heaven TonightЖанр: Hard Rock, Power Pop, Arena RockПродолжительность: 71:34:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:936AC6BDB1959E44D45E6713D5A3E4C934AB7035
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461668   (1021638) от 11.04.2021
-
-Bride - Scarecrow Messiah (1994) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beast
-02. Place
-03. Murder
-04. Scarecrow(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109AB6DBB5E5F55CE2E1EB96A44B102CE5493641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461672   (1021631) от 11.04.2021
-
-Harem Scarem - Mood Swings (1993) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Saviors Never Cry
-02. No Justice
-03. Stranger Than Love
-04. Changes Come Around(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D891DD4FD8A0CC0CFF2075FDAD7B58D4D392AD09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461700   (1021623) от 11.04.2021
-
-Sons Of Angels - Sons Of Angels (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1021623.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cowgirl
-02. Spend The Night
-03. Look Out For Love
-04. Lonely Rose(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2D15C560E9FDD55EA6E0B24974913BA79908E77
 ```
 
 https://mybot314.ru/tekegram_catalog/

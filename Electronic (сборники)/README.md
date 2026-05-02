@@ -1,4 +1,91 @@
 https://t.me/izofen
+###  Публикация: 1868152   (1067348) от 
+
+VA - Techno Bunker 6 (2026) [MP3|320 Kbps] <Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067348.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Charlotte de Witte - Hymn (8:13)
+02. Age Of Love, Charlotte de Witte, Enrico Sangiuliano - The Age Of Love (8:09)
+03. Bianka Banks - Skyfall (7:24)
+04. Eats Everything, Charlotte de Witte - Space Raiders (7:18)(   Читать дальше...   )Жанр: TechnoПродолжительность: 05:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CB663D8A9C690723274223E3150ACA328F8AD00B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1867488   (1066937) от 25.04.2026
+
+VA - Party Time 3.0 (mixed by Dj V) (2026) [MP3|320 Kbps] <Club House, Funky House, Dance, Nu Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Frankie goes to Hollywood vs Sparkling Attitude - Relax (Royal Funk-eee-dit)
+02-Claptone & Mylo - Drop The Pressure (Purple Disco Machine Remix)
+03-DE SOFFER - Everybody's Free (To Feel Good) (Extended Mix)
+04-Cedric Gervais & Nile Rodgers - We Are Family (Extended Mix)(   Читать дальше...   )Жанр: Club House, Funky House, Dance, Nu DiscoПродолжительность: 01:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D4756A151600352B135953D388E18840C422905
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1866573   (1066440) от 22.04.2026
+
+VA - Lenivo. Soviett Chill (2022) [MP3|320 Kbps] <Chillout, Downtempo, Nu-Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066440.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Standub - When I See Your Smile (8:31)
+002. Diskette - Rame (3:34)
+003. Ksky - Balada (4:39)
+004. Ujif# - Увидимся (3:11)(   Читать дальше...   )Жанр: Chillout, Downtempo, Nu-DiscoПродолжительность: 09:47:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CAF64CC39D96AFCFF94F049DEF04194D024FB09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1864595   (1064795) от 
 
 VA - 60 minutes. Old School Dance Music vol.36 (special 00's) (mixed by Dj V) (2025) [MP3|320 Kbps] <Club House, Disco House, Dance, Pop>
@@ -253,35 +340,6 @@ VA - Deep Night Deep House 8 (2026) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A860011E2FD190C90610DB83DA3BC6CF488D8D9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1857896   (1060043) от 07.03.2026
-
-VA - Узоры (mixed by Dj V) (2026) [MP3|320 Kbps] <Organic House, Melodic House, Folk Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1060043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-Белолуна - Русалки (Extended Mix)
-02-Amonita - Улетай (Alexey Union & ETNE Remix)
-03-Ranta, Katya Olszewska - Сказка (Original Mix)
-04-Krasa Rosa & M.O.S. - Соловей (Extended Mix)(   Читать дальше...   )Жанр: Organic House, Melodic House, Folk DanceПродолжительность: 01:01:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CDBBC0F4D400346A3CF97D9665B2A5A9D5FB1BF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -688,64 +746,6 @@ VA - Yello & Dieter Meier & Boris Blank best (1980-2024) [MP3|320 Kbps] <electro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:15EB4C14D706289674F648F28EC92C09C223F0FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849999   (1054052) от 25.01.2026
-
-Jupiter Panic - Collection [MP3|320 Kbps] <New Age, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054052.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sunrise (3:38)
-02. Time Surfer (5:59)
-03. Departure (4:07)
-04. Synthetique (4:53)(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 04:15:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05B678CCD23B786461B3CA1715DC21A33B18B641
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1849556   (1053747) от 23.01.2026
-
-CosmoDance - Collection (2026) [MP3|320 Kbps] <Spacesynth, Synthdance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053747.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chaotic Move (3:55)
-02. Rainbow (5:51)
-03. Galactic Racer (5:27)
-04. Rendezvous (6:23)(   Читать дальше...   )Жанр: Spacesynth, SynthdanceПродолжительность: 03:11:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FDBB27FDF0E1D3B4CDD0A6BF459275B4D0598BE
 ```
 
 https://mybot314.ru/tekegram_catalog/

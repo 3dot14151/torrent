@@ -1,3 +1,61 @@
+###  Публикация: 1215593   (758108) от 26.03.2018
+
+VA - Ori Uplift & Baco - Uplifting Only 267 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grande Piano - Only Mine (Intro Mix)
+02. FAN FAVORITE: Dreamlife & Blue Moon - Last Farewell (George Crossfield Emotional Remix)
+03. Alex Wright - Mnemba
+04. Etasonic & Dany G - Flying in a Dream (RAM & Cari Remix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:59:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B64153098A3480FBE46F970F4C826D3E323C28B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1522754   (757025) от 08.01.2022
+
+Laidback Luke - Yearmix 2021 (2021-12-16) [MP3|320 Kbps] <Electro Pop, Tech House, Bass House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757025.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleepnet - Unravel
+02. Shouse - Love Tonight (Vintage Culture & Kiko Franco Remix)
+03. SHM. vs. BBE. - Lifetime (DJs From Mars Mashup)
+04. BLVD & Laidback Luke - Cielo w/DaBaby, Roddy Ricch - Rockstar (Acappella)(   Читать дальше...   )Жанр: Electro Pop, Tech House, Bass HouseПродолжительность: 00:59:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4FB41D55BACC1C75DA15754C67176CDDB564703
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215783   (756509) от 27.03.2018
 
 VA - A State Of Trance Episode 850 – Ultra Music Festival, Miami (2018) [MP3|~256 - 320 Kbps] <Trance,Progressive Trance,House,Progressive House>
@@ -684,64 +742,6 @@ Aly & Fila - Future Sound Of Egypt 493 (Live from Open To Close, Panama Amsterda
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE7438A4199A97215D3610AB91EE501DBE9510A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531563   (720758) от 16.02.2022
-
-W&W - Rave Culture Live 003 (2022-02-12) [MP3|320 Kbps] <Big Room, Hard Dance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NWYR - ID
-02. Robin S - Show Me Love (KEVU Remix)
-03. W&W - São Paulo ID
-04. Drive With Beats & Beachbag - Speed Of Light (AXMO Remix)(   Читать дальше...   )Жанр: Big Room, Hard DanceПродолжительность: 01:10:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A482C2CC508BEF3BA998567F4854893327FD442
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285659   (719154) от 27.02.2019
-
-VA - Markus Schulz - Global DJ Broadcast (Two Hour Studio Mix) (2019) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_719154.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Brian Eno - An Ending (Ascent)
-02. Cosmic Gate & Foret - Need to Feel Loved
-03. Marshmello featuring Bastille - Happier (Markus Schulz Festival Mix)
-04. Andrew Bayer featuring Alison May - In My Last Life (In My Next Life Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C405A924F0F4651B7FE76844E1F175E34613603
 ```
 
 https://mybot314.ru/tekegram_catalog/

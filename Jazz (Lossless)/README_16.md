@@ -1,3 +1,61 @@
+###  Публикация: 1472925   (1014061) от 27.05.2021
+
+Benny Goodman - Florida Sessions (1959) 1992, MusicMasters Jazz [FLAC|Lossless|tracks + .cue] <Swing, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sleep [3:05]
+02. Sometimes I'm Happy [4:02]
+03. Rosetta [4:27]
+04. Dark Shadows [4:21](   Читать дальше...   )Жанр: Swing, Mainstream JazzПродолжительность: 00:50:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6846B46B3C7B8851EB67CF34E96145184FA93940
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1473245   (1013888) от 28.05.2021
+
+Dawda Jobarteh - Northern Light Gambian Night (2011) [FLAC|Lossless|tracks + .cue] <World Fusion, Ethnic Jazz, Afro-Beat>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1013888.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Namo
+02.  Tama Silo
+03.   Bamba Bojang
+04.   Sama Kebbalu(   Читать дальше...   )Жанр: World Fusion, Ethnic Jazz, Afro-BeatПродолжительность: 01:05:39.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7BCDE1EB367A66F5A7CEC7B5F5919FB5767C519
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1473162   (1013884) от 28.05.2021
 
 Ella Fitzgerald - Ella Fitzgerald At Mister Kelly's 1958 (2017) 2CD, Essential Jazz Classics [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Madeline Bell & The Swingmates - Girl Talk (1995) [FLAC|Lossless|image + .cue] <
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D988776FA554C7629AAC6AFB485D1108427318F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1477782   (1010639) от 17.06.2021
-
-Melody Gardot - Sunset In The Blue (2021) Deluxe Version [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010639.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. If You Love Me (4:35)
-02. C’est Magnifique (feat. Antonio Zambujo) (4:53)
-03. There Where He Lives In Me (5:49)
-04. Love Song (3:58)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:18:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:82EBD3ADA8BE2164B6666EC8A695EDB684E70E4B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1478268   (1010355) от 19.06.2021
-
-Jennifer Porter - Sun Come And Shine (2021) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Blues, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1010355.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sun Come And Shine (4:00)
-2. Show Me Your Love (3:53)
-3. When It's All Been Said And Done (3:14)
-4. Satin Shoes (6:30)(   Читать дальше...   )Жанр: Vocal Jazz, Blues, SoulПродолжительность: 00:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92E932BBCFEA32819290FCF0025C885015D6F9A3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1409892   (440966) от 19.09.2020
+
+Conditions - Fluorescent Youth (2010) 10 Year Anniversary, 2020, Good Fight Music [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The End of Progression [00:03:37]
+02. Better Life [00:03:40]
+03. Natural Competition [00:03:46]
+04. When It Wont Save You [00:03:46](   Читать дальше...   )Жанр: Metalcore, Post-HardcoreПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94BB4C4A30FECFF643BABB188A5B48B2F7B297D9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1410002   (440960) от 19.09.2020
+
+The Inhibitor - The End Is Hear (2019) [FLAC|Lossless|WEB-DL|tracks] <Experimental Industrial Death Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440960.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Prologue [00:02:28]
+02. Till I'm Alive [00:03:56]
+03. The Great Fall [00:05:07]
+04. Catalyze the Inhibitor [00:04:28](   Читать дальше...   )Жанр: Experimental Industrial Death MetalПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD40B694D079519EC62F18989260978E1B4B4285
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409901   (440743) от 19.09.2020
 
 Armor for Sleep - What to Do When You Are Dead (2005) 15th Anniversary, 2020, Equal Vision Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
@@ -687,64 +745,6 @@ Foo Fighters - Concrete And Gold (2017) [FLAC|Lossless|tracks + .cue] <Alternati
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D7DCC46F4941993F3003095672447F5A905E63F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1324940   (418983) от 12.09.2019
-
-Good Charlotte - Generation Rx (2018) [FLAC|Lossless|tracks + .cue] <Pop-Rock, Post-Punk, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418983.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Generation Rx (2:07)
- 02. Self Help (3:24)
- 03. Shadowboxer (3:05)
- 04. Actual Pain (3:44)(   Читать дальше...   )Жанр: Pop-Rock, Post-Punk, MetalcoreПродолжительность: 00:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6713493783FF08F914B8BACCF2FB51A78A9BE04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1251227   (417609) от 01.10.2018
-
-Billy Idol - Vital Idol: Revitalized (2018) Remixes [FLAC|Lossless|WEB-DL|tracks] <Punk Rock, New Wave>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417609.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. White Wedding (CRAY Remix) (03:28)
-02. Dancing With Myself (RAC Remix) (03:33)
-03. Eyes Without A Face (Tropkillaz Remix) (03:50)
-04. Rebel Yell (The Crystal Method Remix) (05:23)(   Читать дальше...   )Жанр: Punk Rock, New WaveПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:363D6A875F89607B122FC4A6AD4C6732D027F772
 ```
 
 https://mybot314.ru/tekegram_catalog/

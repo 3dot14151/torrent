@@ -1,3 +1,82 @@
+###  Публикация: 986739   (928661) от 15.02.2016
+
+Проекты - VideoHive - water splash logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928661.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания логотипа.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F938B4AB811A97D71B1DC089D2D5700CD459793B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094568   (928648) от 18.01.2017
+
+Проекты - VideoHive - Trailing Particles Logo Reveal - 19266145 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928648.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очень современный и стильный шаблон, что бы продемонстрировать логотип Вашей компании.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C707E0363A62D64731EC4F6C228978E4A0449F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1094498   (928644) от 18.01.2017
+
+Проекты - VideoHive - Gaming Logo Intro - 18960251 [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_928644.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для быстрой и стильной демонстрации игрового логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F3C3E1D79A8F0EDF4E0709B0826A824322B1FDAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1094816   (927344) от 19.01.2017
 
 Проекты - VideoHive - Golden Luxury Logo Reveal - 19276515 [AEP]
@@ -599,86 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6E8CEC547F1949BBB7BF3BB61CD1078B52753BFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 992001   (903940) от 29.02.2016
-
-Проекты - VideoHive - Vibrant Particles Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903940.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C0CE43D69BA87674B8005508B4ED04808F55F89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099657   (902976) от 02.02.2017
-
-Проекты - Motion Array - Folding Logo Reveal - 22718 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902976.jpg" />
-</div>
-
-
-###  Подробнее
-
-Чистый и элегантный проект для демонстрации Вашего логотипа и слогана.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53CAEB0B36F94CA04FEBF4E884D52853AB216F94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099732   (902746) от 02.02.2017
-
-Проекты - VideoHive - Gourmet Coffee - 19328986 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_902746.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации Вашего логотипа.
-Начните свое утро с чашечки ароматного крепкого кофе!Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B407B9801823B3CA5DAAD90E9420900FB0506F96
 ```
 
 https://mybot314.ru/tekegram_catalog/

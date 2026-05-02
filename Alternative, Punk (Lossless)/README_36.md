@@ -1,3 +1,61 @@
+###  Публикация: 1319603   (481223) от 13.08.2019
+
+Mermaidens - Look Me In The Eye (2019) [FLAC|Lossless|tracks + .cue] <Indie Rock, Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481223.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crying in the Office (04:25)
+02. Sleeptalker (04:17)
+03. Millennia (04:06)
+04. I Might Disappear (03:06)(   Читать дальше...   )Жанр: Indie Rock, Alternative RockПродолжительность: 00:36:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8ECEFE41ED37F7E8249023407B919CA6F346D0F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1319523   (481215) от 13.08.2019
+
+Chumbawamba - Tubthumper (1997) [FLAC|Lossless|tracks + .cue] <Folk Rock, Pop Rock, Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_481215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tubthumping (4:39)
+02. Amnesia (4:08)
+03. Drip Drip Drip (5:09)
+04. The Big Issue (4:38)(   Читать дальше...   )Жанр: Folk Rock, Pop Rock, PunkПродолжительность: 01:08:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4A38296765764092D813B145BF277D230A399F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1056731   (479610) от 26.09.2016
 
 Taking Back Sunday - Tidal Wave (2016) [FLAC|Lossless|tracks + .cue] <Alt. Rock>
@@ -687,64 +745,6 @@ Eskimo Callboy - MMXX (2020) EP [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DAC8F048D2FBB907DC27DF93029D5970B7D02F78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408025   (457853) от 11.09.2020
-
-Skillet - Victorious: The Aftermath (2019) Deluxe Edition, 2020 [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock, Modern Rock, Christian>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457853.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Legendary [00:04:04]
-02. You Ain't Ready [00:03:18]
-03. Victorious [00:04:05]
-04. This Is the Kingdom [00:03:27](   Читать дальше...   )Жанр: Alt. Rock, Modern Rock, ChristianПродолжительность: 01:17:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F3B7EEE4732AD63825757A793580D0654F509FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 550209   (457412) от 22.09.2012
-
-Green Day - iUno! (2012) [FLAC|Lossless] <Punk>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_457412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Nuclear Family (3:03)
-02. - Stay The Night (4:37)
-03. - Carpe Diem (3:26)
-04. - Let Yourself Go (2:57)(   Читать дальше...   )Жанр: PunkПродолжительность: 00:41:48
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

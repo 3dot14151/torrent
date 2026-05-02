@@ -1,3 +1,119 @@
+###  Публикация: 1691798   (123131) от 13.01.2024
+
+Nobody's Fool - Time (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123131.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Cherie
+02. So Wrong
+03. Time
+04. Eye for an Eye(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30B0B116AA344CA400034BAE667FE417EE9A041E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691743   (123089) от 13.01.2024
+
+Jim Peterik And World Stage - Roots & Shoots - Volume One (2024) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123089.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dangerous Combination (ft. Kevin Cronin & REO Speedwagon)
+02. Before Anyone Knows We're Gone (ft. Colin Peterik)
+03. Last Dream Home (ft. Don Barnes)
+04. Forever's The Last Place You Look (ft. Paul Childers)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:42:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C37C4022CC0634C9E3F8E6674E9744B1A2A6170
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1691721   (123061) от 13.01.2024
+
+Ravenstine - 2024 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard & Heavy>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123061.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black Is The Brightest Color
+02. Easy Come Easy Go
+03. Fly Eagle Fly
+04. Signs By The Roadside(   Читать дальше...   )Жанр: Hard & HeavyПродолжительность: 00:44:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83D3A4562E95E9EFCF8B168F4C89052851D1EEC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1692043   (122912) от 14.01.2024
+
+Dead Fish - Labirinto da Memória (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_122912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Adeus Adeus [00:02:40]
+02. Dentes Amarelos [00:02:35]
+03. 49 [00:03:34]
+04. Avenida Maruípe [00:03:46](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C55A275589BAAD707C4F0BB0A20F90E5AE1761A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1692037   (122898) от 14.01.2024
 
 dUg Pinnick - Naked (2013) Remastered, 2024, Rat Pak Records [FLAC|Lossless|WEB-DL|tracks] <Hard-Rock, Progressive Metal>
@@ -629,122 +745,6 @@ Cesare Verdacchi - Psychotrip (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C8D14C49EF9D2F7332AD1252E2C473802CFC4604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699904   (117382) от 15.02.2024
-
-Always Naked - Just Bones (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117382.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Not Your Baby (2:32)
-02. Do I (2:35)
-03. Hope You Die (One More Time) (2:14)
-04. Where Is My Mind / Under Your Spell (3:57)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0EE1A3E68CC83B4B91A2CAB38A6451038DE9102
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701214   (116501) от 20.02.2024
-
-Motorowl - This House Has No Center (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116501.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Night (1:43)
-02. All Bells Ring (5:13)
-03. Lie to the Creator (5:01)
-04. Fences (2:18)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:413A7D10D12201339F20DC7504B1AFA72EC4EAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701213   (116497) от 20.02.2024
-
-Eynomia - Break Free (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116497.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cleansing (5:00)
-02. Someday Maybe (4:14)
-03. Till We Meet Again (5:32)
-04. Break Free (4:53)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D3A68083F61873120FD2F7FBDECEC159D72FAFFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1701745   (116168) от 22.02.2024
-
-Danny Steel - Diamond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_116168.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take Me High (3:55)
-02. Stop in the Middle (5:29)
-03. Bad Boy (3:58)
-04. Diamond (6:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E165C7D004345272E8DEC5A4287AE9BA374486ED
 ```
 
 https://mybot314.ru/tekegram_catalog/

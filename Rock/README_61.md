@@ -1,3 +1,32 @@
+###  Публикация: 1326998   (380921) от 22.09.2019
+
+The Rings - The Rings (серия "Другие восьмидесятые") (1981) Vinyl, LP, Album [MP3|320 Kbps] <Pop Rock, Power Pop, New Wave>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_380921.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Opposites Attract
+A2. Who's She Dancin' With
+A3. This One's for the Girls
+A4. Let Me Go(   Читать дальше...   )Жанр: Pop Rock, Power Pop, New WaveПродолжительность: 00:35:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3145DB3A8A9B7798AB260619706781D88517C6BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 572902   (380845) от 10.11.2012
 
 Peter Gabriel - Greatest Hits (2008) [MP3|320 кб/с]<Rock>
@@ -725,35 +754,6 @@ Queen - On Air (2016) Live [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29D7DD34E1966CE6FEEF31356682FB107D76D79A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575855   (373364) от 11.09.2022
-
-Stratovarius - Twilight Time (1992) Remastered, 1993, Victor [OGG Vorbis|485 Kbps] <Rock, Heavy Metal, Power Metal>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373364.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.		Break The Ice	4:42
-02.		The Hands Of Time	5:35
-03.		Madness Strikes At Midnight	7:19
-04.		Metal Frenzy	2:20(   Читать дальше...   )Жанр: Rock, Heavy Metal, Power MetalПродолжительность: 00:42:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:05AF427BDB3360B115C808F2D9EDBA66981416CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

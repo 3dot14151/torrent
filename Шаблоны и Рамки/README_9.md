@@ -1,3 +1,29 @@
+###  Публикация: 1498934   (852529) от 29.09.2021
+
+Шаблоны - Creative Market - Food Safe Paper Mockup (tortilla) - 6405424 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Шаблоны и Рамки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_852529.jpg" />
+</div>
+
+
+###  Подробнее
+
+Профессиональные и простые в использовании макеты упаковки для фотошопа.Формат: PSDРазрешение файлов: 6000x4000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A3DAF73E73AC4FDEC4877A98C6D9CDF726DF84C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110804   (851653) от 03.03.2017
 
 Шаблоны - GraphicRiver - Black & White Artistic Photo Manuolation [PSD]
@@ -642,33 +668,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3AF73E3B223E0B1383F0D226429D64C46B3C40BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008423   (814982) от 18.04.2016
-
-Шаблоны - Фотокнига - Romantic photobook love beautiful [PSD]
-
->>Материалы для мультимедиа и дизайна
->>Шаблоны и Рамки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814982.jpg" />
-</div>
-
-
-###  Подробнее
-
-Романтическая фотокнига.
-Автор: FotcaФормат: PSDРазрешение файлов: 7205x3602 / 300dpi
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:850F74E9B33869EFC1752CC5629CBFB7927A170B
 ```
 
 https://mybot314.ru/tekegram_catalog/

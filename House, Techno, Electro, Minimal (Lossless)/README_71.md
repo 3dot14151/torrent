@@ -1,3 +1,32 @@
+###  Публикация: 1794589   (19842) от 29.04.2025
+
+VA - Summer Pool Party 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_19842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ilnurg - Mind (3:03)
+02. V.O.P. - Tell Me That (2:43)
+03. Jayanth Ak - I Wanna Lose Control (2:12)
+04. Fly - Night Pulse (5:12)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 01:48:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A835630627286BE7F8C6DC15C5888C18F14BE9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1794738   (19763) от 30.04.2025
 
 VA - Chill Electronica (Deep Strips Records) (2025) [FLAC|Lossless|WEB-DL|tracks] <House, Dance>
@@ -710,35 +739,6 @@ VA - Ibiza Lounge 2025 (Deep Strips Records) [FLAC|Lossless|WEB-DL|tracks] <Hous
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:47C00FC1355551DE17BCFE37066E2AEC4DA0FFC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813156   (7213) от 17.08.2025
-
-VA - Locked Radio: Happy 808 Day (2025) [FLAC|Lossless|Web-DL|tracks] <Electro, Techno, Juke>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7213.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anderdog – Dubby Dog (4:21)
-02. ICES-003 – Foil Hat (3:58)
-03. Exascale – Headspin (4:41)
-04. Jetelmen – 808 Hype Funk (3:07)(   Читать дальше...   )Жанр: Electro, Techno, Juke, IDM, HouseПродолжительность: 01:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE9FE68F30C3C89AD38CC23827EBEB74E2D657E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

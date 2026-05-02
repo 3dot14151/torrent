@@ -1,3 +1,32 @@
+###  Публикация: 910003   (624240) от 19.06.2015
+
+Brilleaux - Pictures Of The Queen (2015) [MP3|320 кб/с]<Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ellas McDaniels (3:10)
+02. Hand Me Downs (3:52)
+03. Strapped For Cash (5:19)
+04. Jack The Lad (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:50DDDAC2B8EFEA08D8259A4DA662396AD926CF0B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144958   (623794) от 24.06.2017
 
 Thornetta Davis - Honest Woman (2016) [MP3|320 Kbps] <Detroit Blues>
@@ -718,35 +747,6 @@ Last Chance Saloon - Last Chance Saloon (2015) [MP3|320 кб/с]<Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B3E4517917E152C3A6A6F31AFBD5CC66FC334C08
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 912609   (610773) от 26.06.2015
-
-Curtis Mayfield - Jazz & Blues collection (1995) [MP3|320 кб/с]<Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_610773.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Little Child Runnin' Wild (5:25)
-02.  Pusherman (5:04)
-03.  Freddie's Dead (5:28)
-04.  Junkie Chase (1:39)(   Читать дальше...   )Жанр: Funk / SoulПродолжительность: 01:02:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F31B5CF030BD39C2B03E185AA8C10D9073F7ADE
 ```
 
 https://mybot314.ru/tekegram_catalog/

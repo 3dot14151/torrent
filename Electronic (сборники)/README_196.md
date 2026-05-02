@@ -1,3 +1,61 @@
+###  Публикация: 1628733   (199337) от 24.04.2023
+
+VA - Night Rider 6 (2023) [MP3|320 Kbps] <House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_199337.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tyga, YG, Santana - Mamacita (Vex & Myers Remix) (3:44)
+02. Zvika Brand & Mankeys vs Alex Mistery - Potahat Tik (Neiro & Vex Radio Edit) (1:40)
+03. 50 Cent & Fenk - Candy Shop (VeX & Myers Booty Mix Radio Edit) (3:20)
+04. Tube & Berger - All I Want (feat. Goatchy) (3:44)(   Читать дальше...   )Жанр: HouseПродолжительность: 05:44:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:628420FD0FD95D4C7CA6443BAD1D759A645E7ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1630520   (199010) от 01.05.2023
+
+VA - Deep Night Deep House 5 (2023) [MP3|320 Kbps] <Deep House, House, G-House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_199010.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rendow - Burn (2:42)
+02. OSLM - More Than One Night (2:36)
+03. Malserc - Next Life (2:47)
+04. Leav3l8ke - Umbrella (2:50)(   Читать дальше...   )Жанр: Deep House, House, G-HouseПродолжительность: 04:46:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3204F1C55D3A52F0E9E1712F5BE680C51103E756
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1630916   (198899) от 03.05.2023
 
 VA - Techno Bunker 3 (2023) [MP3|320 Kbps] <Techno>
@@ -687,64 +745,6 @@ VA - 60 minutes. Old School Dance Music vol.13 (mixed by Dj V) (2022) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B82A10F2DDBB269810CA6866669E3ECA6175B590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590395   (188745) от 14.11.2022
-
-Imazee - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188745.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Away
-02. You Tell Me
-03. Me and You
-04. Only You(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 02:52:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:675E70D565B6EAB2DAB9DC110D785E8CA136CC51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1661509   (188446) от 15.09.2023
-
-VA - Deep House, Baby 6 (2023) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188446.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Lock - Let It Out (Original Mix) (3:54)
-02. Enrique Iglesias - Ring my bells (Deep House By Afrasiâb Remix) (3:14)
-03. МОНЭ' - ТАТУ И ВЕТЕР (4:46)
-04. CamisheMax Oazo - Every Breath You Take (3:32)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:41:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D78060483245744E619F444D5B220AEE516EEF3
 ```
 
 https://mybot314.ru/tekegram_catalog/

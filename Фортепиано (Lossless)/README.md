@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1866460   (1066159) от 20.04.2026
+
+VA - The Best of Classical Piano (2026) [FLAC|Lossless|WEB-DL|tracks] <Classical>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1066159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Katya Kramer-Lapin - Piano Sonata No. 16 in C Major, K. 545 Sonata semplice I. Allegro (3:08)
+02. Katya Kramer-Lapin - Pavane, Op. 50 (Arr. for Piano by Chris Sennett) (5:35)
+03. Katya Kramer-Lapin - Goldberg Variations, BWV 988 Aria (5:28)
+04. Sergey Bryukhno - Dans la lumière I. Modéré et calme (1:26)(   Читать дальше...   )Жанр: ClassicalПродолжительность: 03:18:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77C9350D0C088477D8CB6B45ED9A44E6D4F4EBF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1605988   (1044431) от 22.01.2023
 
 Hélène Grimaud - Hélène Grimaud plays Rachmaninoff and Shostakovich (2023) [FLAC|Lossless|WEB-DL|tracks] <Classical>
@@ -733,35 +762,6 @@ Chopin - 4 Ballades, Prelude, 4 Scherzi (Ashkenazy) (2000) [FLAC|Lossless|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:608B83D840200BAE6750B5C1BD98672F9BD6011E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002037   (850257) от 30.03.2016
-
-Стравинский, Шостакович, Каретников - Piano Music (Анатолий Ведерников) (2005) [FLAC|Lossless|tracks] <Classical, Piano>
-
->>Классика
->>Фортепиано (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_850257.jpg" />
-</div>
-
-
-###  Подробнее
-
-Стравинский - Piano Sonata no. 2
-01 -1- q=112
-02 -2- Adagietto
-03 -3- q=112(   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5D87792FEE8F9661116014DC413581FC8DE2393
 ```
 
 https://mybot314.ru/tekegram_catalog/

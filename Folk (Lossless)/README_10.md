@@ -1,3 +1,32 @@
+###  Публикация: 1081844   (278632) от 12.12.2016
+
+Leonard Cohen - The Essential Leonard Cohen (2002) 2CD, Compilation [FLAC|Lossless|image + .cue] <Folk, Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ain't No Cure for Love (4:52)
+02. Take This Waltz (5:59)
+03. First We Take Manhattan (5:52)
+04. Dance Me to the End of Love (live) (6:06)(   Читать дальше...   )Жанр: Folk, RockПродолжительность: 02:36:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:578B3A6A9E6C0E62E19BF8FBD76F18ACF81EF88F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336803   (277184) от 08.11.2019
 
 Baguette Quartette - 5 Albums (1995-2010) [FLAC|Lossless|WEB-DL|tracks] <Folk, World, & Country>
@@ -716,35 +745,6 @@ Faith Hill - It Matters To Me (1995) Warner W2 45872 [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C6D0F606A43E7539030EAF62CF8AA1AA61B0CBED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1652021   (219500) от 09.08.2023
-
-Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acoustic Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219500.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Drang
-02. Unruhe
-03. Jagd
-04. Freitanz(   Читать дальше...   )Жанр: Dark Acoustic FolkПродолжительность: 02:12:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CCAD725236867EB21D91CD25D4999DF74069CA3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1599154   (160183) от 22.12.2022
+
+Приятели Покойного - 2 Albums (2019-2022) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160183.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Введение [00:02:31]
+02. Мы любим петь [00:03:07]
+03. Мало места [00:03:40]
+04. Днём с огнём [00:02:57](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:775D75CEA49AFCAF1B1EA88C0B9A998EBE4FBFB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599692   (159657) от 24.12.2022
+
+CREATOR'S - Состояние (2022) [MP3|320 Kbps] <Metalcore, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Тень (Глава первая) [00:03:48]
+02 - Темной тропой (Глава первая) [00:01:08]
+03 - Вера (Глава первая) [00:04:15]
+04 - Пропасть (Глава вторая) [00:04:19](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:43:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD7BD34497A3EF4349533732A6E1787CDE6BA255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1599707   (159630) от 24.12.2022
+
+Неоткрытая Авоська - 1 Album, 2 Singles (2022) [MP3|320 Kbps] <Punk-Rock, Ska>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159630.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2022 - Дальневосточная (Неоткрытая Авоська feat. Голос Омерики) (Single)
+2022 - Морж роман (Single)
+2022 - Панк-кабареЖанр: Punk-Rock, SkaПродолжительность: 3 CD, 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:65E08E8452289E8A10F35B73DCEBF59E64ED2389
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1590484   (159287) от 25.12.2022
+
+Саблезубый Тигр - 11 Albums (2011-2023) [MP3|320 Kbps] <Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159287.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2011 - Ваши ёжики видны
+2011 - Девушка с кокосами
+2016 - Нам не хватает на портвейн(   Читать дальше...   )Жанр: Punk RockПродолжительность: 11 CD, 05:31:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3C6751378AD1F2009B33A29E93D9DF4FC0D1C633
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1599306   (159273) от 25.12.2022
 
 Кино - 12_22 (2022) [OGG Vorbis|480 Kbps] <Rock>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E4A88F3D3B64A0627C83FE61DEF1E8106CFB09FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1433698   (156683) от 21.12.2020
-
-Дора - Боже, храни кьют-рок (2020) [MP3|320 Kbps] <Pop Rock, Indie Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156683.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - втюрилась [00:02:03]
-02 - быть с тобой [00:02:58]
-03 - больше [00:02:24]
-04 - осень пьяная [00:02:51](   Читать дальше...   )Жанр: Pop Rock, Indie RockПродолжительность: 00:26:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6EAAFB4FFBA1773AF28FFFD44201CDDAEC7490C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600642   (156105) от 28.12.2022
-
-Sila Slona - 3 Albums (2017-2022) [MP3|320 Kbps] <Contemporary Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156105.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2017 - Sila Slona
-2019 - Это всё не по-настоящему
-2022 - Бесконечная красотаЖанр: Contemporary PunkПродолжительность: 3 CD, 01:32:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ABE56F3745145A165C446CCAFAD6AB85163C394
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600644   (156079) от 28.12.2022
-
-ктопоможет - 2 Albums (2019-2022) [MP3|320 Kbps] <Art Punk, Industrial Metal, Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_156079.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. О цветах и песнях (Intro) [00:03:36]
-02. Отблеск слезы [00:04:21]
-03. В чернеющем лесу (Skit) [00:01:36]
-04. По испуганным следам [00:04:52](   Читать дальше...   )Жанр: Art Punk, Industrial Metal, Psychedelic RockПродолжительность: 2 CD, 02:02:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2192523B8047B2BBE457C2FBE328AD8E39DAA9EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1600666   (155979) от 28.12.2022
-
-One Last Day - Прости, что так (2022) [MP3|320 Kbps] <Alternative Rock, Ravecore>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_155979.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Шепот улиц [00:02:19]
-02 - Система [00:03:04]
-03 - Трип [00:02:49]
-04 - Завтра [00:02:28](   Читать дальше...   )Жанр: Alternative Rock, RavecoreПродолжительность: 00:34:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC9079525652180A054C9D6BB392E6605767C38C
 ```
 
 https://mybot314.ru/tekegram_catalog/

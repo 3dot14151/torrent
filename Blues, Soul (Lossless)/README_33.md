@@ -1,3 +1,119 @@
+###  Публикация: 1108958   (860997) от 26.02.2017
+
+Sharon Lewis & Texas Fire - Grown Ass Woman (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860997.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Can't Do It Like We Do (4:20)
+02. Hell Yeah! (3:29)
+03. Chicago Woman (4:34)
+04. They're Lying (5:08)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:57:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC4EA1E3F7C48C18919A085B5933DB619875C5C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1108963   (860943) от 26.02.2017
+
+Aaron Keylock - Cut Against The Grain (2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860943.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ну, понеслось. Пошло, поехало. Миру (миру блюза для точности) явили нового гения, вундеркинда. Зовут его Аарон Кэйлок, англичанин, ему семнадцать лет – это первый его альбом. Знатоки тут же кинулись искать аналогии и без труда нашли их – американец Джонни Ланг свой первый альбом Lie To Me выпустил вообще в шестнадцать лет, и тот альбом стал платиновым. Еще, конечно, (   Читать дальше...   )01. All The Right Moves (3:32)
+02. Down (4:34)
+03. Medicine Man (3:10)
+04. Falling Again (3:25)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:47:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ABF6EDCD4ACB4357AD176A544AC79286117172F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109221   (860847) от 26.02.2017
+
+Robert Randolph & The Family Band - Got Soul (2017) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860847.jpg" />
+</div>
+
+
+###  Подробнее
+
+Robert Randolph & The Family Band - американская фанк- и соул-группа во главе гитаристом Робертом Рэндольфом. Также в состав группы входят: Маркус Рандольф - барабанщик, Даниэль Морган - бас-гитарист, Ленеша Рэндольф - вокалист, Бретт Э. Хаас - клавишник и гитарист. Роберт Рэндольф входит в 100-ю величайших гитаристов. Первый альбом Robert Randolph & The (   Читать дальше...   )01. Got Soul (3:32)
+02. She Got Soul (5:28)
+03. Love Do What It Do (3:42)
+04. Shake It Off (4:01)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:45:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10FBCF2FF1611550AF742F2FD7843273D5A0C884
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1109446   (859211) от 27.02.2017
+
+Lee Thomas Band - 40 Miles of Bad Road (2000) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859211.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take A Little Time (4:21)
+02. Just Pretend (5:31)
+03. Pack My Bags (9:16)
+04. Tides Of Life (4:28)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:17:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2D2F240251E24235BE6B5079901ADF7C191A65E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1109440   (859163) от 27.02.2017
 
 Baker Street Blues - Turn Up the Heat (2016) [FLAC|Lossless|image + .cue] <Blues>
@@ -622,121 +738,6 @@ C.W. Stoneking - Gon' Boogaloo (2014) [FLAC|Lossless|tracks + .cue] <Acoustic Bl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43A5E13F1AB3F21111A16FDBDD4AB6C6DE9CFEE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500377   (841076) от 06.10.2021
-
-Chris Rea - Blue Guitars VI - Chicago Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_841076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm Moving Up (4:33)
-02. Maxwell Street (4:39)
-03. Bob Taylor (5:15)
-04. She's a Whole Heap of Trouble (2:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:64D80BF40A4D62413EF6F10C2C91DED705660483
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 309893   (840796) от 16.03.2011
-
-Joe Bonamassa - Dust Bowl (2011) [FLAC|Lossless]<Blues, Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840796.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slow Train (6:49)
-02. Dust Bowl (4:32)
-03. Tennessee PlatesЖанр: Blues, Blues-RockПродолжительность: 01:02:53
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1113144   (840104) от 10.03.2017
-
-Danny Del Toro - Bad Beat (2017) [FLAC|Lossless|WEB-DL|tracks + .cue] <Acoustic Blues, Harmonica>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Going Down To Brownsville (Feat. Little G Weebil) (3:37)
-02. That's Alright (Feat. Marco Cinelli) (3:17)
-03. Spoonful (Feat. Fast Eddie Nelson) (3:43)
-04. Blues Before Sunrise (Feat. Big Mama Montse) (3:55)(   Читать дальше...   )Жанр: Acoustic Blues, HarmonicaПродолжительность: 00:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:057E64C2C16EAE4734D85D2E189C7F6F1E426802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1500940   (839826) от 07.10.2021
-
-Chris Rea - Blues Guitars VIII - Gospel Soul Blues & Motown (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_839826.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sweet Love (4:12)
-02. Break Another Piece of My Heart (4:19)
-03. Ball and Chain (4:55)
-04. Gospel Trail (4:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24C4505611E17EAC450EFACA257B9E96FE50C28
 ```
 
 https://mybot314.ru/tekegram_catalog/

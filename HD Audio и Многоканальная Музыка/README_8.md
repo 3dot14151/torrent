@@ -1,3 +1,155 @@
+###  Публикация: 662473   (987714) от 22.01.2020
+
+Guns N' Roses – 9 Альбомов (1986-2008) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Hard Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987714.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+1986 - Live Like A Suicide (EP First US Pressing)
+1987 - Appetite For Destruction (First US Pressing)
+1988 - G N' R Lies (EP First US Pressing)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 08:59:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993453754ABF40BD554628D4FE192E72A1E62189
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 721311   (986817) от 23.01.2020
+
+Машина Времени - Time Machine (2007) Germany Limited Edition [WavPack 2.0 24/192|image (Vinyl-Rip)] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986817.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Полный Контакт [4:27]
+A2. Улетай [3:36]
+A3. Старый Самолёт [3:54]
+A4. То, Чего Больше Нет [4:55](   Читать дальше...   )Жанр: RockФормат: Vinyl, LP, Album, Limited EditionПродолжительность: 00:55:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:566AC8209A8F3F4C4E24E6FF3FA2C67015900D6E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 609963   (986556) от 01.02.2013
+
+BONEY M. - Два альбома (1977-1978) [FLAC 2.0 24/192 | image (Vinyl-Rip)]<Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_986556.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Nightflight To Venus [05:51]
+A2. Rasputin [06:08]
+A3. Painter Man [03:19]
+A4. He Was A Steppenwolf [06:56]
+A5. King Of The Road [02:37]
+B1. Rivers Of Babylon [04:22]
+B2. Voodoonight [03:32]
+B3. Brown Girl In The Ring [04:04]
+B4. Never Change Lovers In The Middle Of The Night [05:23]
+B5. Heart Of Gold [04:07]Жанр: Pop, DiscoПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 680927   (985968) от 24.01.2020
+
+Planet P Project – Planet P (1983) [APE 2.0 24/192|tracks (Vinyl-Rip)]<Progressive Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985968.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Static [4:10]
+A2. King For A Day [3:55]
+A3. I Wont Wake Up [3:45]
+A4. Top Of The World [4:33](   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:40:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED5AB61891CAA9D775D72B75817588B02CE65779
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 970826   (985764) от 03.01.2016
+
+VA - Кубинская эстрадная оркестровая музыка 60-х годов (1961) [FLAC 2.0 24/96|tracks (Vinyl-Rip)] <Pop, Retro>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_985764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Маленький ансамбль - Оркестр Э. Лекуона
+02. Мама Инес - Оркестр Э. ГренетаЖанр: Pop, RetroПродолжительность: 00:04:41
+
+Страна-производитель: USSR
+Издатель (лейбл): Пластмасс(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A1C7680908B3B23444F48E7FC6B6274AC089F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 613874   (982375) от 04.02.2013
 
 Depeche Mode - 2 альбома (1987, 1990) [1st, US press] [FLAC 2.0 24/192|image + .cue (Vinyl-Rip)]<Synth-pop>
@@ -629,151 +781,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977789   (965548) от 21.01.2016
-
-The Alan Parsons Project - The Turn Of A Friendly Card (1980) [FLAC 2.0|96/24|image + .cue|Vinyl-Rip]<Progressive Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965548.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. May Be A Price To Pay (5:01)
-A2. Games People Play (4:22)
-A3. Time (5:15)
-A4. I Don't Wanna Go Home (4:51)(   Читать дальше...   )Производство: Arista Records - 203 000-320Жанр: Progressive RockПродолжительность: 00:40:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1883993E489AEE3F250B83A177995D57B6A4DB6E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 978515   (962043) от 24.01.2016
-
-Агата Кристи - Декаданс (1991) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962043.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Щекотно
-02 - Мотоциклетка
-03 - Его там не было
-04 - Эпидемия(   Читать дальше...   )Жанр: RockПродолжительность: 00:40:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D24917008C646FD9D006309704719CF3F8041296
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 747132   (958184) от 27.01.2016
-
-Deep Purple - The House Of Blue Light (Дом голубого света) (1987) [FLAC 2.0|192/24|traсks|Vinil-Rip]<Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958184.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-1. Плохое отношение (Bad Attitude)  4:44
-2. Неписаный закон (The Unwritten Law)  4:36
-3. Зов предков (Call Of The Wild)  4:52(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:09F36FFF8B65C0DB540D2481BD2AEE6CF8BFF4D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 278226   (957828) от 05.01.2011
-
-George Harrison - My Sweet Lord / Isn’t It A Pity (1970) [FLAC 2.0 24/96|tracks (Vinyl-Rip)]<Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957828.jpg" />
-</div>
-
-
-###  Подробнее
-
-Side 1
-A - My Sweet Lord (04:35)
-Side 2
-B - Isn’t It A Pity (6:59)Жанр: RockПродолжительность: 00:11:38
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 980168   (957106) от 28.01.2016
-
-Fleetwood Mac - Tusk (Deluxe edition) (1979/2015) [DTS 5.1|44.1 /16|image+cue|Audio-DVD] <rock>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_957106.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Over & Over
-02. The Ledge
-03. Think About Me
-04. Save Me a Place(   Читать дальше...   )Жанр: rockПродолжительность: 01:15:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE1A6969BD57D60149B9E0812459073E383B41F
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,73 @@
+###  Публикация: 472159   (83835) от 23.03.2012
+
+Great Jazz Trio - Standard Collection Vol.1 - Summertime (1988) [FLAC|Lossless]<Jazz,Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83835.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. After You've Gone (5:38)
+02. Summertime (5:47)
+03. The Days Of Wine and Roses (4:08)
+04. As Time Goes By (7:20)
+05. You'd Be So Nice To Come Home To (4:34)
+06. Summer Knows (4:48)
+07. Georgia On My Mind (5:05)
+08. Prelude To A Kiss (3:16)
+09. St. Louis Blues (5:51)
+10. Danny Boy (7:39)1988Жанр: Jazz,Post-BopПродолжительность: 00:54:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 471880   (83677) от 22.03.2012
+
+Esperanza Spalding - Radio Music Society (2012) [FLAC|Lossless]<Contemporary Jazz, Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_83677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Radio Song
+02. Cinnamon Tree
+03. Crowned & Kissed
+04. Land Of The Free
+05. Black Gold
+06. I Can't Help It
+07. Hold On Me
+08. Vague Suspicions
+09. Endangered Species
+10. Let Her(   Читать дальше...   )2012Жанр: Contemporary Jazz, FusionПродолжительность: 00:57:58
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 469380   (82810) от 18.03.2012
 
 VA - RCA Victor: 80th Anniversary (1997)[9CD Box Set] [FLAC|Lossless]<Jazz>
@@ -762,64 +832,6 @@ Enrico Pieranunzi Trio - New Visions (2019) Storyville [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9582FFF17E0616D257CAEA256E4584AFA4FD6FA7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773180   (71724) от 14.01.2025
-
-Lowell Hopper - Never Too Late (2025) [FLAC|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Breath of Fresh Air (4:32)
-02.  Magic Lady (5:02)
-03.  Just As You Are (3:39)
-04.  Every Now and Then (4:26)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9CB3CABABA5E7E8AFE8E6939926CBDE21C6FA15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1773371   (71715) от 15.01.2025
-
-Enrico Pieranunzi Jazz Ensemble - Time's Passage (2020) Abeat Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_71715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time's Passage [5:23]
-02. Valse pour Apollinaire [4:17]
-03. Biff [4:36]
-04. In the Wee Small Hours of the Morning (Quartet Version) [5:08](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:46:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D8411225E6CF4B40839385ABCADDB2765943E33D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1584768   (224787) от 19.10.2022
+
+Silver Nightmares - 2 Albums (2020-2022) [MP3|320 Kbps] <Crossover Prog, Prog-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_224787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Saphiens [00:04:29]
+02. Nefertiti [00:04:28]
+03. Etemenanki [00:04:26]
+04. Sea of Sikelia [00:03:48](   Читать дальше...   )Жанр: Crossover Prog, Prog-MetalПродолжительность: 2 CD, 01:12:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1114011523A755DB74008ADB63CD1E0153A92508
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1584333   (224758) от 19.10.2022
 
 Red Mess - 2 Albums (2017-2022) [MP3|320 Kbps] <Heavy Rock, Stoner, Psych,>
@@ -716,35 +745,6 @@ Roger Waters - Live American Radio Broadcast (2020) 3CD [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A533F26FDDE5D02EFB047478FCB36B244C6B17EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342992   (221065) от 04.12.2019
-
-BrainStorm - Sbornik, Vol.1 (2019) [MP3|320 Kbps] <Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_221065.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ветер
-2. Контакты
-3. Выходные
-4. Thunder Without Rain(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:58:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02791F0884CBFC096A160F913C1B9B81E22F7CA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

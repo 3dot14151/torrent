@@ -1,3 +1,119 @@
+###  Публикация: 1120972   (800602) от 02.04.2017
+
+VA - Любимые хиты весны. Версия № 7 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800602.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Cash'u - Хочу 3:29
+002. Дискотека Авария & Филипп Киркоров - Яркий Я 3:28
+003. Aksioma Project - Мечтай 4:30
+004. Виталий Козловский - Мое Желание 3:31(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57FA96A6A2F11006F977680DD9EDCEE57DBD8D96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120988   (800601) от 02.04.2017
+
+VA - Лучшая дискотека на Europa Plus. Выпуск № 5 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800601.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Vavan Aka Вова Селиванов - Хулиганка 3:36
+002. Мария Миа - Я Буду 2:50
+003. Mainstream One - Нам Солнце Светит Ярче 3:00
+004. Регина Тодоренко - Не Обижу 2:58(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61DCB313235FADCA32EA74F871DFE7F8887E9DDC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1120971   (800555) от 02.04.2017
+
+VA - Музыкальный подарок от Европы Плюс. Сборник № 3 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800555.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ирма Нойман - Я Буду 2:51
+002. Ольга Орлова - Девушка Простая 3:35
+003. А-Студио - Только С Тобой 4:19
+004. Майк Павлов - Лайки 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:82BFFFDAED399C0AECEFB3902FC50B1A3733000C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121171   (800545) от 02.04.2017
+
+VA - German Top 100 Single Charts 03.04.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800545.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran – Shape of You
+002. Burak Yeter – Tuesday (feat. Danelle Sandoval)
+003. Kygo Selena Gomez – It Ain’t Me
+004. Jax Jones – You Don’t Know Me (feat. Raye)(   Читать дальше...   )Жанр: PopПродолжительность: 05:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:34E3F069607124EF6445328D864B97B8CBE76561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121290   (800502) от 02.04.2017
 
 VA - Весенняя 100-ка популярных треков выпуск № 2 (2017) [MP3|320 Kbps] <Pop>
@@ -629,122 +745,6 @@ VA - 100 Greatest 00s Pop Hits (2020) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:13BA672502C2D894F6A39E6B6BA65BAB7672660A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012156   (795415) от 29.04.2016
-
-VA - Новая Русская Дискотека - 2 (2016) [MP3|320 кб/с] <Поп, Диско, Танцевальный>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795415.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Синти Тайм - Жду Тебя
-02. Студия-80 - Я не жалею
-03. M.D.Project & Gurcan Erdem - Зима Достала (M.D.Project Italo Disco mix)
-04. Аркадиас - Художник(   Читать дальше...   )Жанр: Поп, Диско, ТанцевальныйПродолжительность: 05:33:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:13B7223E3810C84F45E865D3AF074729097CBE58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1200728   (795383) от 21.01.2018
-
-VA - Итоговый Еврохит TOP-100 от Европа Плюс за 2017 год (2018) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795383.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rag'n'Bone Man - Human (03:19)
-002. Kaleo - Way Down We Go (03:40)
-003. Luis Fonsi feat. Daddy Yankee - Despacito (03:48)
-004. Ed Sheeran - Shape Of You (03:54)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:46:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C3F9076BB4BE79963A767BE3CE6B8F8063E1657F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386239   (795271) от 28.05.2020
-
-VA - Beatport Hard Dance: Sound Pack #96 (2020) [MP3|320 Kbps] <Hard Dance, Hardcore>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795271.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Rob Iyf - Yade
-002. Francesco Zeta - Different Side
-003. Radical Redemption - Born Killers
-004. Vandal!Sm - Drums Of War(   Читать дальше...   )Жанр: Hard Dance, HardcoreПродолжительность: 08:38:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A6C994F706B613F0552AE859E8B9EF48F7667BE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1386180   (795230) от 28.05.2020
-
-VA - Europop Music Sound: Nonstop FM Radio (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_795230.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. All Saints - Never Ever
-002. David Delabrosse - Burn Out
-003. Liza Sherdom - My Style
-004. Countdown Singers - If I Can't Have You(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 12:06:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E29DAD479DC97E4CAF8971C2CE602A879BB73506
 ```
 
 https://mybot314.ru/tekegram_catalog/

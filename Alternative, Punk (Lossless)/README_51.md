@@ -1,3 +1,61 @@
+###  Публикация: 1549098   (240732) от 06.05.2022
+
+Reflections - The Fantasy Effect (2022) Redux [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Metalcore, Deathcore, Math Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240732.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Ceilings (Redux)
+2. Ms.Communication (Redux)
+3. Good Push (Redux)
+4. An Artifact (Redux)(   Читать дальше...   )Жанр: Alternative, Progressive Metalcore, Deathcore, Math MetalПродолжительность: 00:47:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C705C1E67D21EE0BBE4B5C8F2CEC777D4611376F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549103   (240718) от 06.05.2022
+
+Us in Motion - Death Poems (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_240718.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Luna
+2. Curses & Maledictions
+3. Let the Dead Bury the Dead
+4. Hiraeth (feat. Othertones)(   Читать дальше...   )Жанр: Alternative, Post-HardcoreПродолжительность: 00:31:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6A1DA2A4F786EA8A30BF69C7F3034A98F4EBAED0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549100   (240704) от 06.05.2022
 
 Saviour - Shine & Fade (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Progressive Metalcore>
@@ -684,64 +742,6 @@ Blackgold - Blackgold (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Rapcore, Nu-Metal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A21383C8371FF6944A380AB73DCBDC23CE52F6B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577479   (238801) от 19.09.2022
-
-Myosotis - The Sky Between Us (2022) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metalcore, Progressive Nu-Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Nox [00:01:20]
-02. Lunar [00:04:16]
-03. Chiron [00:03:52]
-04. Skyseeker [00:05:09](   Читать дальше...   )Жанр: Progressive Metalcore, Progressive Nu-MetalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:604D5A13D38E8802D6E0B34B14220C8162873790
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622970   (238793) от 31.03.2023
-
-Bury Tomorrow - The Seventh Sun (2023) [FLAC|Lossless|WEB-DL|tracks] <Melodic Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_238793.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Seventh Sun
-02. Abandon Us
-03. Begin Again
-04. Forced Divide(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:42:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDBCA71AFDD9214EBDD117BAFDDBBDBECF1210E2
 ```
 
 https://mybot314.ru/tekegram_catalog/

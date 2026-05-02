@@ -1,3 +1,61 @@
+###  Публикация: 1014706   (776149) от 08.05.2016
+
+VA - Beatport Top 100 Tech House April (2016) [MP3|320 кб/с] <Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776149.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.CamelPhat - Make 'Em Dance (Original Mix) (5:45)
+002.Superlover - The Talking Machine (Original Mix) (7:06)
+003.Dennis Cruz - See Line (Wade Remix) (6:15)
+004.Mark Knight vs LVD - Fall Down On Lee (Original Mix) (6:43)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 11:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C31029DFBF4D5B88B6FB281DEA706CF872D04E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1212339   (776136) от 11.03.2018
+
+VA - Progressive Tech House: Club Essentials (2018) [MP3|320 Kbps] <Progressive House, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776136.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bontan - Personal Question (Original Mix) 06:22
+002. Joscha Rickert - Wing 03:06
+003. Ramit - Rendz-evous 05:39
+004. Joel Fuel - Jazz 03:06(   Читать дальше...   )Жанр: Progressive House, Tech HouseПродолжительность: 08:23:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12CED9A3B32827FFEBDE887D72E8281B996B6F7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1212314   (776124) от 11.03.2018
 
 VA - The Official UK Top 40 Singles Chart 09.03.2018 [MP3|320 Kbps] <Pop, Dance, Other>
@@ -685,64 +743,6 @@ VA - Ibiza Love Injection Trance Box Edition (2018) [MP3|320 Kbps] <Progressive,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:36941893033E05EE9A5128DAD852C5D49B1DD552
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1125048   (773326) от 13.04.2017
-
-VA - Relax to House Vol. 7 (2017) [MP3|320 Kbps] <House, G-House, Chillout, NuDisco, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 2Disco - My World (Roman Depthsound Remix)
-02. Above & Beyond feat. Gemma Hayes - Counting Down The Days (MiRo Remix)
-03. Abriviatura IV - Never Gonna Say Goodbye (Hugobeat Remix)
-04. Acidbro - Hold You (Original Mix)(   Читать дальше...   )Жанр: House, G-House, Chillout, NuDisco, TrapПродолжительность: 15:35:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67281EB77E45F9B34E57E9B62470BEE9ED7DA841
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015957   (773270) от 12.05.2016
-
-VA - Future Trance Energy 002 May TOP (2016) [MP3|320 кб/с] <Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773270.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Roman Messer Ft. LJ Ayrten - Break The Ice (Aimoon Remix) 6:35
-02. Accelerator & Johnny The Boy - Tears in the Rain (Ciro Visone mix) 6:42
-03. Alex Shevchenko - Dreamlands of Kadath (Original Mix) 8:45
-04. Ciro Visone - Trust (Original Mix) 8:04(   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:54C6479359FFFA8F2E1EF719F42E7124D69691E3
 ```
 
 https://mybot314.ru/tekegram_catalog/

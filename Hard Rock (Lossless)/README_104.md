@@ -1,3 +1,119 @@
+###  Публикация: 1729938   (53410) от 13.06.2024
+
+Black Country Communion - V (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53410.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Enlighten (5:20)
+02. Stay Free (4:30)
+03. Red Sun (6:33)
+04. Restless (5:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E5909324A8F52DA812CE78C50B7E7B358E72F23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730059   (53304) от 14.06.2024
+
+Human Zoo - Echoes Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gun 4 A While
+02. In My Dreams
+03. To The Ground
+04. Ghost In Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72AEF73450300653A3981C58A072823A2CDA6DFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1730559   (53006) от 17.06.2024
+
+Led Zeppelin - Remasters (1990) Japanese Edition, 2 x CD, Compilation, Reissue, Remastered, Atlantic [FLAC|Lossless|image + .cue] <Blues Rock, Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53006.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Communication Breakdown 02:29
+02. Babe I'm Gonna Leave You 06:40
+03. Good Times Bad Times 02:44(   Читать дальше...   )Жанр: Blues Rock, Hard Rock, Heavy MetalПродолжительность: 02:25:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D9853180FFA715664535CC107803A3064D68B4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195776   (52551) от 22.06.2024
+
+Magnum | Bob Catley | Hard Rain - 39 albums, 68 CD (1978-2024) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock, AOR>
+
+>>След.
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52551.jpg" />
+</div>
+
+
+###  Подробнее
+
+Magnum — британская рок-группа, образованная в 1972 году в городе Бирмингеме. В течение многих лет своего существования знала и периоды успеха, и времена забвенья. Базирующаяся вокруг одарённого композитора и гитариста Тони Кларкина (Tony Clarkin), группа нашла свою нишу в современной музыке, отличаясь великолепными и легко запоминающимися композициями. MAGNUM собрали (   Читать дальше...   )--------------------------
+
+01. Run into the Shadows (5:22)
+02. Here Comes the Rain (4:37)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Progressive Rock, AOR |Продолжительность: 2d 12:57:01 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36BD39DBAB7D17B1132011DAAE342B784BFD01E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1209415   (52550) от 22.06.2024
 
 Axel Rudi Pell - 43 albums, 54 CD (1984-2024) [FLAC|Lossless|image + .cue] <Hard Rock, Neoclassical Metal>
@@ -630,122 +746,6 @@ Human Zoo - Echoes Beyond (2024) [FLAC|Lossless|image + .cue] <Melodic Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1899C4435F50E330B9951C07C85C2CEA3C54A46F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1747423   (44511) от 05.09.2024
-
-Neil Young & Crazy Horse - Fu##in’ Up (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44511.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. City Life (Country Home) 6:38
-2. Feels Like a Railroad (River of Pride) (White Line) 2:58
-3. Heart of Steel (Fuckin’ Up) 5:52
-4. Broken Circle (Over and Over) 9:05(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E4A4B332F47740ADE657B602654A134598F87E9D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748199   (44198) от 08.09.2024
-
-Thin Lizzy - 1976 (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_44198.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Running Back (Demo) [00:04:41]
-02. Johnny The Fox Meets Jimmy The Weed (4 Track Demo) [00:07:22]
-03. Suicide (Live On 100.7FM WMMS Cleveland Radio Broadcast / 11th May 1976) [00:05:16]
-04. Don't Believe A Word (Alternate Version 2) [00:02:18](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F02C2382589833C81C7B55DEE1AFE040B28DEE3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748687   (43882) от 11.09.2024
-
-The Many Colored Death - The Comfort In Telling (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wolves (6:03)
-02. Paralyze (4:03)
-03. Ashes (3:32)
-04. Out of Time (4:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB008BD63EF165CCFA67CEE03C37C9F474FCC72A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748683   (43880) от 11.09.2024
-
-One More Shot - Railroad to Hell (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One More Shot (4:00)
-02. Oh Girl! (6:11)
-03. S (3:28)
-04. U Care (8:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5A78D9D60A3AEA6F1C867D5DEAE2758E7D5DBB4
 ```
 
 https://mybot314.ru/tekegram_catalog/

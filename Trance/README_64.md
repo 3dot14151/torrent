@@ -1,3 +1,148 @@
+###  Публикация: 1781030   (70328) от 21.02.2025
+
+VA - Ori Uplift - Uplifting Only Episode 628 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70328.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. LR Uplift – Sunrise (Victor Special Intro Remix)
+02. DreamLife & Grande Piano feat. Agness – Just You And Me (Fan Favorite 627)
+03. Ciaran McAuley – Permission To Exhale (Uplifting Mix)
+04. tranzLift – G-String Air 9Fan Favorite 626)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 02:02:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BF7FA5B1DC5F5DFC6D6B84D99351DC9EC6FE0D1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781421   (70215) от 23.02.2025
+
+VA - Trance Fusion Vol. 08 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Victor Special & Nikai - Find The Light (Extended Mix) (06:03)
+02. Winterborn - Starplex (Extended Mix) (05:39)
+03. Peter Miethig - Storm (03:22)
+04. Alexander Komarov - Arabian Night (Extended Mix) (05:54)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:93445873C5E317C3E43D7803F89FCB7BE662DB2A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781817   (70120) от 26.02.2025
+
+VA - Trance Your Mind, Vol. 1 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70120.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kirax - Heaven's Call [03:35]
+02. ImDylanD & SYREX - Your Heart [05:32]
+03. Angel Ace - Nuova Vita (Martyn Symes Remix) [06:26]
+04. DreamMan;York - Moonrise on the Beach (Vokoss Club Mix) [06:31](   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E90C6B23B6B2C663B8E80124F20401D01EC0DA6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1782061   (70109) от 26.02.2025
+
+VA - Best of Gallant Synthax 2024 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70109.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Deere, Milad E & Anna Renae - Not Over Yet (Extended Mix) (05:16)
+02. Sinova & Ocien - If You Find Me (Extended Mix) (05:56)
+03. Dust (UK) - Home (Extended Mix) (07:07)
+04. SYONA - Nothingness (Extended Mix) (06:27)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:57:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FF38D11D385806F7A1ACE9144EA8CA1FE20CA3AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1781973   (70092) от 26.02.2025
+
+VA - YORK Mini Mix (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_70092.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. York - On The Beach (Mauro Picotto's Extended CRW Remix) (06:40)
+02. DJ Sakin & Friends - Nomansland (David's Song) (Extended Mix) (05:56)
+03. DJ Sakin & Friends - Dragonfly (Extended Mix) (04:57)
+04. York - Fields Of Love (feat ATB - YORK dub Extended Mix) (07:20)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:20:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5410A45F18F527B50A6646CAB39A88BEB87370E4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1782445   (70035) от 28.02.2025
 
 VA - The Sound of 2025, Chapter 2: Madrid (Day Mix) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -600,149 +745,6 @@ VA - Redux Selection, Vol. 4 / 2025 (2025) [MP3|320 Kbps] <Trance, Uplifting Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:82AB4DE6D5C59EA61A655D0CC6925779DA5950D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1788759   (68427) от 01.04.2025
-
-VA - 25 Years Of Anjuna Mixed By Nourey (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 (01:08:27)
-01. Nourey – Intro (25 Years Of Anjunabeats)Жанр: Trance, Progressive, ElectronicПродолжительность: 03:44:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:517831B7439EAE7965AD24335D6D9CFBC8E84FAC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789237   (68334) от 03.04.2025
-
-VA - Budapest Session 2025 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68334.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aleksey Litunov - Keep Your Dreams (06:13)
-02. Korenevskiy - Ice Voyage (05:18)
-03. MayroN - First Round (03:21)
-04. OBSIDIAN Project - Night Life (03:40)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:52:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:972D0925F6F2FEEA5792AAF21F421A98BFAA3D22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789426   (68324) от 04.04.2025
-
-VA - The Sound of 2025, Chapter 3: London (Night Mix) (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68324.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hårek - Tonight (F4T4L3RR0R Edit - Mixed) (04:49)
-02. PRODGY - Control (Original Mix - Mixed) (02:56)
-03. Aumak - Little Love (Lexenn Remix - Mixed) (03:13)
-04. AR7ANIS - Korhal (Original Mix - Mixed) (03:24)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 02:13:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74D6D8ADB42D88CF3BE8809DD689F67DA8735339
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790156   (68184) от 07.04.2025
-
-VA - Vocal Trance Legends - Esmee Bor Stotijn (2025) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68184.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Trance Classics & Esmee Bor Stotijn - Janeiro (Original Mix) [3:50]
-02. Trance Classics & Esmee Bor Stotijn - It's Time (Stargazers Remix) [3:31]
-03. Trance Classics & Esmee Bor Stotijn - Till The Sky Falls Down (Original Mix) [3:00]
-04. ShoXeRr & Esmee Bor Stotijn - Forever Of Light Years (Original Mix) [3:22](   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:02:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:884053E7AEB4E45D99F3BACFABDFBD29CC982AD2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1789878   (68141) от 07.04.2025
-
-VA - Nothing But... Trancetopia, Vol. 24 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68141.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darren Porter - Neon Dreams (Extended Mix) [05:42]
-02. Khoursa Tera - Up & Down [03:53]
-03. Van Yorge - Reflection [03:50]
-04. Dmpv & Born 87 - Avenue (Extended Mix) [05:47](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E1726FC1C9BBF591A8FE376B83FB7345774D87
 ```
 
 https://mybot314.ru/tekegram_catalog/

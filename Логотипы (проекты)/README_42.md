@@ -1,3 +1,84 @@
+###  Публикация: 954147   (344069) от 06.11.2015
+
+Проекты - VideoHive - 3D Logo Layers [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344069.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления вашего логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32E53EA1C8A7CACA88299A1CEF81AFAAD55CEB18
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 954072   (344059) от 06.11.2015
+
+Проекты - VideoHive - Futuristic Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_344059.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления вашего логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5F4489B54A7BAB2DB19696A0D9969DA9E241671
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 953953   (343931) от 06.11.2015
+
+Проекты - VideoHive - 3D Transformer Logo [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343931.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для эффектного представления вашего логотипа.
+Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CCD160A869D608E664D5678CAFBCDD0BF3E6FC1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 954265   (341683) от 07.11.2015
 
 Проекты - VideoHive - Dark Circles Logo Reveal [AEP]
@@ -607,86 +688,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9E5CB616887868D73F2E496C56B5124E30661BAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955841   (332092) от 12.11.2015
-
-Проекты - VideoHive - 3D text design [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332092.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86B77E8015568F7377619CB6DC6D4AA0120F1A4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 955809   (332090) от 12.11.2015
-
-Проекты - VideoHive - Particle Swirl Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_332090.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для эффектного представления вашего логотипа.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:959437F9BB7CC43D34699AF74482BC753B2B006C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419779   (331914) от 01.11.2020
-
-Проекты - VideoHive - Funny Character - Logo Reveal Bundle - 15310411 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331914.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C2035A765C3F1604C49856D847E96BA9FB3200E
 ```
 
 https://mybot314.ru/tekegram_catalog/

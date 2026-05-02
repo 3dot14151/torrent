@@ -1,3 +1,61 @@
+###  Публикация: 1720610   (110217) от 04.05.2024
+
+Jolly Jackers - Welcome to the Grind (2024) [FLAC|Lossless|WEB-DL|tracks] <Celtic Punk, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110217.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Welcome to the Grind [00:02:54]
+02. Feed the cat [00:02:32]
+03. I'm not drunk [00:03:14]
+04. Dance in the madness [00:03:47](   Читать дальше...   )Жанр: Celtic Punk, FolkПродолжительность: 00:32:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:685E7E2BB31E63F041BCAE17BDFF90FEBFF6F934
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1720808   (110159) от 05.05.2024
+
+Contention - Artillery From Heaven (2024) [FLAC|Lossless|WEB-DL|tracks] <Metallic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_110159.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Contention [00:01:12]
+02. I.C.B.M. [00:02:03]
+03. Ousted From Eden [00:02:55]
+04. Inflict My Will [00:02:24](   Читать дальше...   )Жанр: Metallic HardcoreПродолжительность: 00:21:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FFA1884BFF4BB8A09160279EACA8B22B50BE0DCA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1720886   (110093) от 06.05.2024
 
 Keith Wallen - Infinity Now (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt. Rock>
@@ -687,64 +745,6 @@ Bolu2 Death - OBRAVIVA, Vol. 1 & 2 (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalco
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B4C49EC5E1B6F0BD193919FDC182874E64AF380C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1728785   (108230) от 09.06.2024
-
-Terminal Zero - Brace for the End (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt Metal, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108230.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forever [00:03:41]
-02. Brace [00:03:28]
-03. Turn the World Around [00:03:26]
-04. Sirens [00:03:25](   Читать дальше...   )Жанр: Alt Metal, Hard RockПродолжительность: 00:37:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:83D08723FE6D69EE37CC69E321D9390D34F3A548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1731127   (107750) от 20.06.2024
-
-Psychic Graveyard - Wilting (2024) [FLAC|Lossless|WEB-DL|tracks] <synth punk, industrial rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_107750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Your Smile is a Hoax [00:02:43]
-02. Eyes Are Turning [00:02:08]
-03. Stuffed With Secrets [00:03:13]
-04. Sword Through My Neck [00:03:53](   Читать дальше...   )Жанр: synth punk, industrial rockПродолжительность: 00:35:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A479739D9330867B55C55415743786F295D31BCF
 ```
 
 https://mybot314.ru/tekegram_catalog/

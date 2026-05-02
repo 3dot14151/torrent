@@ -1,3 +1,61 @@
+###  Публикация: 1750766   (104119) от 22.09.2024
+
+Frank Sinatra - Sinatra 80th: Live In Concert (1995) Capitol Records [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104119.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You Are The Sunshine Of My Life [2:37]
+02. What Now My Love [2:41]
+03. My Heart Stood Still [3:29]
+04. What's New [2:38](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:58:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B9B8D956B3AB626781D0697CD079A8D394363F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751634   (104058) от 26.09.2024
+
+Sonny Stitt - & The Top Brass (1962) 1998, Atlantic [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Souls Valley [4:31]
+02. Coquette [3:19]
+03. On a Misty Night [4:04]
+04. Stittsie [5:57](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:35:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADD70DD985D5AC9C73B88459DC29E593FFB8ACDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1751603   (104054) от 26.09.2024
 
 Cannonball Adderley - Paris Jazz Concert: Salle Pleyel, Olympia (1960, 1961,1969) 2CD, 2002, LaserLight [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -685,64 +743,6 @@ Joe Pass - True Virtuoso (2005) Victor [FLAC|Lossless|tracks + .cue] <Bop, Mains
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B66EA3BF73BDD7A8F48092B65B75460B18DE8D67
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754780   (103684) от 12.10.2024
-
-VA - Summer Bossa Nova (Relaxing Brazilian Jazz Bossa) (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Bossa Nova>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103684.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulstance - Summer Memories (4:16)
-02. Lo Greco Bros - Borboleta da Cidade (4:15)
-03. Giuseppe Milici - Passos De Esperança (3:15)
-04. DJ Rodriguez - Nao Para (5:34)(   Читать дальше...   )Жанр: Jazz, Bossa NovaПродолжительность: 01:41:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:890308A708D5A34165B0923347262FC64CFDE004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754823   (103662) от 12.10.2024
-
-Ted Heath & His Music - Listen To My Music (2003) Living Era [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103662.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Opus 1 [2:50]
-02. East of the Sun [3:23]
-03. Bakerloo Non-Stop [2:48]
-04. Donegal Cradle Song [2:35](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:17:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44652EC3936A741ADBA5D1B9CACB9C52FECD3179
 ```
 
 https://mybot314.ru/tekegram_catalog/

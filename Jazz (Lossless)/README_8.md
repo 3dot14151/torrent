@@ -1,3 +1,61 @@
+###  Публикация: 1444773   (1034185) от 03.02.2021
+
+Buddy De Franco (DeFranco) - Blues Bag (1964) 2000, Koch Jazz [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034185.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Bag [5:34]
+02. Rain Dance [5:41]
+03. Straight No Chaser [3:49]
+04. Cousin Mary [4:46](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAF8D341BB36A54912950ED6697D9B1B53501BC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1618399   (1034176) от 11.03.2023
+
+Sun Ra - The Complete Remastered Recordings On Black Saint & Soul Note (1986 - 1992) 4CD, 2014, CAMJazz [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034176.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Only Time Will Tell [5:33]
+02. Satin Doll [8:02]
+03. Deep Purple [6:25]
+04. Bugle Blues [2:53](   Читать дальше...   )Жанр: Avant-Garde JazzПродолжительность: 03:25:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A74DF46032D7F5EE807B2D429710AD350B3F85E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1618405   (1034175) от 11.03.2023
 
 Dinah Washington - Mad About the Boy: 25 Classics (2000) Delta Entertainment [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Eddie Condon - 1944 - 1946 (1998) Classics [FLAC|Lossless|image + .cue] <Dixiela
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E0058867764AFE2504EA61E3E8FD50AD886AD0E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 937624   (1032729) от 09.02.2021
-
-Anthony Braxton - Five Compositions (1986)1993, Black Saint [APE|image+.cue]<Avant-Garde Jazz, Free Improvisation>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032729.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Composition - No. 131 [07:10]
-02. Composition - No. 88 (+ 108C) [05:56]
-03. Composition - No. 124 (+ 108D + 96) [09:08]
-04. Composition - No. 122 (+ 108 + 96) [09:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:43:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ADF1761A1BC61D206F7B557969231D0373E2EEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1446675   (1032599) от 10.02.2021
-
-Jimmie Noone - 1929 - 1930 (1992) Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032599.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Anything You Want [3:22]
-02. Birmingham Bertha [3:13]
-03. Am I Blue? [3:29]
-04. My Daddy Rocks Me (With One Steady Roll) [3:08](   Читать дальше...   )Жанр: New Orleans JazzПродолжительность: 01:14:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:53966F15F3C235F27AADB7923F6A56FE8F7DD665
 ```
 
 https://mybot314.ru/tekegram_catalog/

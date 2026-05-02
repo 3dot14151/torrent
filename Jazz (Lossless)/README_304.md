@@ -1,3 +1,61 @@
+###  Публикация: 1690624   (123792) от 08.01.2024
+
+Kay Starr - Cocktail Hour (1940-e - 1950-e) 2CD, 2000, Allegro [FLAC|Lossless|tracks + .cue] <Vocal Jazz, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123792.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Them There Eyes [2:03]
+02. Don't Worry About Me [3:39]
+03. It's Whatcha Do with Whatcha Got [2:07]
+04. All of Me [2:27](   Читать дальше...   )Жанр: Vocal Jazz, SwingПродолжительность: 01:12:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8213F8C1B00E8EEC4DC6B6586C5906E5D127ABA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1690810   (123690) от 09.01.2024
+
+Bessie Smith - BD Jazz (1923 - 1933) 2CD, 2006, Nocturne [FLAC|Lossless|tracks + .cue] <Early Jazz, Classic Female Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_123690.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jazzbo Brown from Memphis Town [3:26]
+02. The Gin House Blues [3:18]
+03. Baby Doll [3:04]
+04. Back Water Blues [3:20](   Читать дальше...   )Жанр: Early Jazz, Classic Female BluesПродолжительность: 02:25:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46DFFC23C1BB56F45F345EF4911BB969F32E736D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1690873   (123635) от 09.01.2024
 
 Brian Simpson - Soul Connection (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz>
@@ -687,64 +745,6 @@ Howard Alden & Jack Lesberg - No Amps Allowed (1988) Chiaroscuro Records [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B1C04383BF153AEBF66AC6B943CCDD17C5F7EAD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693565   (121707) от 21.01.2024
-
-Aaron Diehl & The Knights - Zodiac Suite (2023) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Modern Creative>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aries [2:11]
-02. Taurus [2:41]
-03. Gemini [2:08]
-04. Cancer [3:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Modern CreativeПродолжительность: 00:37:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59CB367BDF5BB141E337F906960F9FFD721259C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1693609   (121700) от 21.01.2024
-
-V.A. - Chillout Covers Collection Vol.6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Pop Jazz, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alfredo Bochicchio,Marcello Sirignano,Papik - Air On The G-string / A Wither Shade Of Pale (From The Movies "Seven / The Big Chill")
-02. Danny Losito,Slamtwisted - Something About You
-03. Hotter Skank,David Florio - Enjoy The Silence
-04. Papik,Nadia Straccia - The Logical Song(   Читать дальше...   )Жанр: Nu Jazz, Pop Jazz, Easy ListeningПродолжительность: 01:24:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CA484BE2120150FD85BE753D949BA108782676D
 ```
 
 https://mybot314.ru/tekegram_catalog/

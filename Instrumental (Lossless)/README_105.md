@@ -1,3 +1,137 @@
+###  Публикация: 1825055   (136838) от 16.10.2025
+
+Renato Rocchinotti - Black Shadows in the Dark (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_136838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Two of Us (4:08)
+02.  Place to Be (4:40)
+03.  Frozen Champagne (5:05)
+04.  Night Dreams (3:47)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:318910858839D1F8D66F5D232D230BC9EBE134D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 591891   (136271) от 20.12.2012
+
+Various Artists - Texas Bluesmen (1993) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_136271.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby Don't Work - Robert Ealey
+02. Tell Me The Reason Why - Robert Ealey
+03. Part Time Love - Robert Ealey
+04. I Want Your Love - Robert Ealey
+05. Mambo Jambo - Robert Ealey
+06. Love My Baby - Robert Ealey
+07. Everyday I Have The Blues - Curly Barefoot Miller
+08. Outskirts Of Town - Curly Barefoot Miller
+09. Mardis Gras - Curly Barefoot Miller
+10. Bartender - Curly Barefoot Miller(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:07
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592323   (135978) от 21.12.2012
+
+Various Artists - Gentle Blues (2004) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Honest I do - Junior Wells
+02. I'll play the blues for you - Albert King
+03. As the years go passing by - George Thorogood
+04. Don't mistake kindness for weakness - Albert Collins
+05. A quitter never wins - Tinsley Ellis
+06. The things (that) I used to do - Stevie Ray Vaughan
+07. Am I losing you? - Sherman Robertson
+08. Love's name - John Campbell
+09. Suicider's blues - Blues Cousins
+10. The change is on - Duke Robillard(   Читать дальше...   )Жанр: BluesПродолжительность: 01:19:45
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 592332   (135941) от 21.12.2012
+
+Various Artists - The Alligator Records Christmas Collection (1992) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_135941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Merry Merry Christmas - Koko Taylor
+02. Christmas Time In The Country - Kenny Neal
+03. I'm Your Santa - Lil Ed & the Blues Imperials
+04. Deck The Halls With Boogie Woogie - Katie Webster
+05. Please Let Me Be Your Santa Claus - William Clarke
+06. Santa Claus Wants Some Lovin' - Tinsley Ellis
+07. Boogie Woogie Santa Claus - Charles Brown
+08. Lonesome Christmas - Son Seals
+09. Christmas On The Bayou - Lonnie Brooks
+10. Santa Claus - Little Charlie & The Nightcats(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:24
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 592327   (135901) от 21.12.2012
 
 Various Artists - Paint It Blue - Songs of the Rolling Stones (1997) [FLAC|Lossless]<Blues>
@@ -673,122 +807,6 @@ Tom MacLear - The Big Blue Mac (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3E7BF0C51B063E97E36B83BD106D0D658A906FC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682290   (131527) от 07.12.2023
-
-Proud Outsiders - Anything To Offer? (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131527.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Glow & Fire (3:55)
-02. The Calling (3:28)
-03. Better Without You (4:10)
-04. Anything to offer? (4:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10462367A50A6977D8783EA8686BBE5829E5A6E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682297   (131525) от 07.12.2023
-
-Eric B Turner - IT AIN'T EASY (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131525.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ian Eylanbekov - BLUES TUTOR (3:51)
-02. 1997 - IT AIN'T EASY (3:50)
-03. Alexander Please - LOVE HER WITH A FEELIN (3:27)
-04. BLINDSIDE (3:38)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E4BB327A689AF248FFBF6D1BEF76A89C9DFA22E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682295   (131523) от 07.12.2023
-
-Tony Voltaggio - Scratchings (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131523.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Road Turnin' (5:03)
-02. Crossroads (3:30)
-03. Border Blues (3:34)
-04. Down by the River (5:34)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4541085CA9EE2DB00EAE767D393487B5C7F8A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1682287   (131515) от 07.12.2023
-
-Matthew Scott - Mirrors (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131515.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Whisper (4:59)
-02. Where You Been (3:45)
-03. Bury the Tracks (3:08)
-04. Mirrors (4:11)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6BB49B0C8782533FE314874764FCA393DDC68364
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,176 @@
+###  Публикация: 1747655   (104700) от 06.09.2024
+
+Rex Orange County - Who Cares? (2022) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative, Indie Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KEEP IT UP [00:03:03]
+02. OPEN A WINDOW [00:03:38]
+03. WORTH IT [00:02:44]
+04. AMAZING [00:03:29](   Читать дальше...   )Жанр: Alternative, Indie RockПродолжительность: 00:34:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F45E76B5A46D5A29AF7FCF7A8F05EF861A00553
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747629   (104698) от 06.09.2024
+
+These Are They (Novembers Doom members) - Studio Albums (3 releases) (2009-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104698.jpg" />
+</div>
+
+
+###  Подробнее
+
+These Are They - американская дэт-метал группа, состоящая из участников Novembers Doom2009 - Who Linger
+2010 - Disposing Of Betrayers
+2014 - At The Feast Of Seven FuneralsЖанр: Death MetalПродолжительность: 02:42:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8578DD76EFCCFA26004BF8F7BABC13736034BED5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747728   (104692) от 07.09.2024
+
+blink-182 - One More Time... (2023) (Deluxe Edition) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop Punk, Rock, Alternative Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104692.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Anthem Part 3 [3:34]
+02 - Dance With Me [3:09]
+03 - Fell In Love [2:19]
+04 - Terrified [2:49](   Читать дальше...   )Жанр: Pop Punk, Rock, Alternative RockПродолжительность: 00:50:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B1F0AF9F63A7537F306BE470FBCFF001E7D9CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747962   (104657) от 07.09.2024
+
+The Dead Daisies - Light 'Em Up (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104657.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light 'Em Up (3:40)
+02. Times Are Changing (3:13)
+03. I Wanna Be Your Bitch (3:16)
+04. I'm Gonna Ride (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:567B8FA382B865AF1A8E7E8FBC76C2897207AF12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747796   (104653) от 07.09.2024
+
+Banco De Gaia - Trauma (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Downtempo, Ambient, Tribal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104653.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mir [00:04:02]
+02. A Bee Song [00:05:47]
+03. Draig Ddu [00:05:59]
+04. War [00:07:15](   Читать дальше...   )Жанр: Downtempo, Ambient, TribalПродолжительность: 00:52:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91C5DE1CDB02DDBABD7B446996925F88C5B2D233
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1747917   (104647) от 07.09.2024
+
+Negative - Studio Albums (6 releases) (2003-2010) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Glam Rock, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104647.jpg" />
+</div>
+
+
+###  Подробнее
+
+Negative — финская глэм-рок-группа, основанная в конце 1997. Уже на первых ступенях своего пути Negative получила репутацию живой группы, которая даёт публике запоминающиеся мелодии и риффы гитары. Звучание группы сравнимо с ранними исполнителями глэм-рока и группами как David Bowie и Queen. Сама группа называет свой стиль «эмоциональный rock’n’roll». В последние (   Читать дальше...   )2003 - War Of Love
+2004 - Sweet And Deceitful
+2006 - Anorectic
+2008 - Karma KillerЖанр: Glam Rock, Hard RockПродолжительность: 05:32:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:948BD338B140A8C9D9C3640F2E188864C84A6699
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1747867   (104613) от 07.09.2024
 
 Aviations - Studio Albums (4 releases) (2012-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Prog/Art Rock, Progressive Metal>
@@ -566,180 +739,6 @@ CD-1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1D499D5BED89D8E8CA2DC5FA72DDF05F6F4CA580
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749411   (104327) от 14.09.2024
-
-Snow Patrol - The Forest Is The Path (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Indie Pop, Indie Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104327.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All (4:19)
-02. The Beginning (3:31)
-03. Everything's Here And Nothing's Lost (4:06)
-04. Your Heart Home (3:40)(   Читать дальше...   )Жанр: Indie Pop, Indie RockПродолжительность: 00:50:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8AEA972F8D11416CFF5CB35EBF2C67C992F45D38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749473   (104326) от 14.09.2024
-
-A Killer's Confession - Victim 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Alternative Metal, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104326.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tongue (3:41)
-02. Sun (3:48)
-03. Greed (3:43)
-04. Voices (3:39)(   Читать дальше...   )Жанр: Alternative Metal, Nu MetalПродолжительность: 00:35:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC8B99D0DB7D67EDF9CF9B596E43BE1883F93E9B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749738   (104274) от 16.09.2024
-
-The Nail - The Nail (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Thrash Menal, Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104274.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hit & Run (4:04)
-02. The Nail (4:28)
-03. No Time To Burn (4:15)
-04. Broken (4:28)(   Читать дальше...   )Жанр: Thrash Menal, Hard RockПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D2846BB5216D1527BD6DBAE6F0EFD155697CF4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749737   (104272) от 16.09.2024
-
-Ryan Keberle - Bright Moments (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104272.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Quintessence (6:19)
-02. Stillness Within (5:44)
-03. All Ears (5:37)
-04. Sisters Of Mine (6:24)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:56:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD8A05E26B29E06C0E21B1783EB7BF926F005D14
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749730   (104271) от 16.09.2024
-
-Mike Stern - Echoes and Other Songs (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Connections (8:10)
-02. Echoes (7:31)
-03. Stuff Happens (6:56)
-04. Space Bar (6:55)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17C328B8571CA3845A9C7863A8D658E14903F700
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749724   (104269) от 16.09.2024
-
-Blues Bizarre - Blues Bizarre (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electric Blues>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_104269.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gonna Be Fine (5:48)
-02. Good Memories (5:03)
-03. Poor Boy (8:29)
-04. Don't Go Blamin' on Me (3:53)(   Читать дальше...   )Жанр: Electric BluesПродолжительность: 00:44:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14B48CCDA2710B7E7DC21675EFEDB9350CC4C83D
 ```
 
 https://mybot314.ru/tekegram_catalog/

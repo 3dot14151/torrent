@@ -1,3 +1,61 @@
+###  Публикация: 1259660   (316772) от 05.11.2018
+
+VA - Record Super Chart 560 (2018) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316772.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fisher - Losing It 4:08
+02. Summer Cem - Tamam Tamam 2:27
+03. Gaulin - Moonlight 2:54
+04. Rompasso - Ignis 3:32(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:53:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8987634ADF642E22E74EDDE9E2D881BD577515F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1076066   (316572) от 24.11.2016
+
+VA - EDM Pro Chord Fast Life 001 (2016) [MP3|241~320 Kbps] <House, Progressive, Bigroom, Electro, Funky, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_316572.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. W&W - Thunder (Original Mix) 4:58
+02. Axwell - Center Of The Universe (Dyro Remix) 4:49
+03. Marco V & Stefano Pain - Slidez (Original Mix) 4:19
+04. Black Legend Project & Damon Grey - This Is Me (Original Mix) 6:32(   Читать дальше...   )Жанр: House, Progressive, Bigroom, Electro, Funky, Club, DanceПродолжительность: 07:03:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:21AB3ED69FB79A23E27C699E64F85446C22829D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1075978   (316566) от 24.11.2016
 
 VA - Dance Meteor Fitness Hits (2016) [MP3|241~320 Kbps] <House, Beat, Bass, Bigroom, Drum & Bass, Funky, Club>
@@ -727,69 +785,6 @@ Mayah - Feel for Real (2016) Remix [MP3|256 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC30F03B1C69818854A1E18EE6DBE88D4C74B792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1260086   (313448) от 06.11.2018
-
-VA - Самые Горячие Хиты Дискотек (2018) [MP3|320 Kbps] <Club, House, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313448.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Newclaess Feat. Adanna Duru - Where Are You
-02. Deep Divas & Sexycools - Baby Baby (Perfect Pitch Edit)
-03. Hollywood Hustlers - One Kiss (Bonkerz Remix)
-04. W&W X Darren Styles Feat. Giin - Long Way Down(   Читать дальше...   )Жанр: Club, House, DanceПродолжительность: 03:45:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5A4A6ACF6E61FA72C4A449E96E3F8CA7BE1C78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 583436   (313082) от 02.12.2012
-
-Swedish House Mafia - DJ Mag Top 100 (2012) [MP3|320 кб/с]<House / progressive house / electro house>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_313082.jpg" />
-</div>
-
-
-###  Подробнее
-
-1.Swedish House Mafia feat. Usher – Euphoria (Original Mix)
-2.Swedish House Mafia feat. Tinie Tempah – Miami 2 Ibiza (Original Mix)
-3.Swedish House Mafia feat. John Martin – Save The World (Original Mix)
-4.Swedish House Mafia feat. John Martin  – Dont You Worry Child (Extended Mix)
-5.Swedish House Mafia and Laidback Luke feat. Deborah Cox – Leave The World Behind (Original Mix)
-6.Swedish House Mafia – One (Original Mix)
-7.Swedish House Mafia – Greyhound (Original Mix)
-8.Knife Party vs. Swedish House Mafia  – Antidote
-9.Coldplay – Every Teardrop Is A Waterfall (Swedish House Mafia Remix)Жанр: House / progressive house / electro houseПродолжительность: 00:56:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FBC1D8BD9F9C73727EEFC4D96C95A823392CFDF
 ```
 
 https://mybot314.ru/tekegram_catalog/

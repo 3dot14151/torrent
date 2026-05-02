@@ -1,3 +1,239 @@
+###  Публикация: 503800   (260148) от 31.05.2012
+
+No-Man - 18 albums (1993-2012) [FLAC/APE|Lossless] <Progressive Rock, Ambient, Art Rock, Abstract, Experimental>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_260148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Revange on Seattle (06:02)
+02. Time Travel in Texas (04:50)
+03. All the Blue Changes (06:10)
+04. Pretty Genius (03:58)
+05. Lighthouse (08:15)
+06. Beaten by Love (03:57)
+07. Wherever There Is Light (05:08)
+08. Mixtaped (09:27)
+09. Things Change (08:24)Жанр: Progressive Rock, Ambient, Art Rock, Abstract, ExperimentalПродолжительность: 00:56:14
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 504065   (259841) от 31.05.2012
+
+Mato Grosso - Native Indian's Music (2006) [MP3|320 кб/с]<Native American, Panflute, Instrumental, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Day's Beginning
+02. Night Song
+03. In The Midst Of The Path
+04. The Caller
+05. Dancing Under The Moon
+06. Ghost Dance
+07. Buffalo Trail
+08. Spot Song
+09. The Last Of The Mohicans
+10. Return Jornet(   Читать дальше...   )Жанр: Native American, Panflute, Instrumental, New AgeПродолжительность: 01:15:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:743D14347AD3E09C04738C19586263EAA04D521E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503192   (259626) от 30.05.2012
+
+VA - Sgt. Pepper's Lonely Heart Club Band - Original Sound track (1978) [APE|Lossless]<OST/Rock>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259626.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. "Got To Get You Into My Life" - Earth, Wind and Fire [03:36]
+   02. "Strawberry Fields Forever" - Sandy Farina [03:31]
+   03. "When I'm Sixty Four" - Frankie Howerd and Sandy Farina [02:40]
+   04. "Mean Mr. Mustard" - Frankie Howerd/Steven Tyler, The Bee Gees and [02:46]
+   05. "Fixing a Hole" - George Burns [02:25]
+   06. "Because" - Alice Cooper and The Bee Gees [02:45]
+   07. The Death of Strawberry [03:24]
+          "Golden Slumbers" - Peter Frampton [01:39]
+          "Carry That Weight" - The Bee Gees [01:45]
+   08. "Come Together" - Aerosmith [03:46](   Читать дальше...   )1978Жанр: OST/RockПродолжительность: 00:41:55
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 503774   (259588) от 30.05.2012
+
+CHAVEneeZ - Great Spirit (2006) [FLAC|Lossless]<Native American Ethno, New Age>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maht Jchi [05:28]
+02. Lakota lullaby [05:49]
+03. Haya-haya-ho [05:02]
+04. First cry [03:19]
+05. Dela dela [04:39]
+06. Drum song [04:45]
+07. Weyo ho "Woman's honor chant" [04:35]
+08. Song for Sean [04:25]
+09. Amanecer andino [05:27]
+10. Wamanchallay [04:41](   Читать дальше...   )2006Жанр: Native American Ethno, New AgeПродолжительность: 00:56:59
+собственный рип
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501810   (259315) от 29.05.2012
+
+Nicole feat: Brulé - Passion Spirit (2001) [MP3|192 кб/с]<Native American, New Age, Flute>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_259315.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Beyond The Trail Of Tears 3:37
+2. World Dance 4:14
+3. Rez Road 2:55
+4. Dawn Of Awakening 2:58
+5. Ghost Drive 3:50
+6. Ancestor's Cry 7:03
+7. Black Mountain 5:18
+8. Chidhood's Mystery 3:26
+9. A New Enlightening 2:52
+10. Dakota Rain 2:45(   Читать дальше...   )2001Жанр: Native American, New Age, FluteПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1378A7B602606DB1ED3FEA9D8F9FBD079302D1DF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 500727   (258503) от 26.05.2012
+
+Багренье - Ты раздольице мое широкое (2003) [MP3|320 кб/с]<Folk Казачья песня>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258503.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk Казачья песняПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:751BF11E08C2AE9B98C3B36E16DD244A742ADFC5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 501735   (258491) от 26.05.2012
+
+VA - Celtic Spirit (2001) [MP3|320 кб/с]<New Age, Celtic Music, Ambient, Lounge>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_258491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Lorena MCKennit – The Mumers Dance
+02 The Corrs – Runaway
+03 Clannad & Bono – In a Life Time
+04 Kate Bush – Mna Na H-Eireann
+05 Luar Na Luore – Romeiro Ao Lonnxe
+06 Mike Oldfield – The Inner Child
+07 Maire Brennan – Perfect Time
+08 Mary Black – No Frontiers
+09 Christy Moore – Ride On
+10 Clannad – Theme From Harry´s Game(   Читать дальше...   )2001Жанр: New Age, Celtic Music, Ambient, LoungeПродолжительность: 01:15:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C10A0A42E50312BEB246EFFFA80775FEA5DBFC3A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 501216   (258342) от 25.05.2012
 
 Willie Nelson - The Very Best Of Willie Nelson (2008) [MP3|320 кб/с]<Country>
@@ -603,218 +839,6 @@ VA - American Tribal Songs (2011) [MP3|320 Kbps] <Native American, New Age, Inst
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D274D638DC396C0554067F0809FADC43443B0CF1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1626330   (255076) от 17.04.2023
-
-David Arkenstone - Ambient Space Music (2023) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_255076.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Breath Of the Universe (12:46)
-02. Parallel World (5:52)
-03. Island Of Stars (8:21)
-04. Red Sun (4:44)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:40:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE3467A1789EE25D745276CDC89EA076EE9EFDBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 175676   (254762) от 26.04.2023
-
-VA - Инструментальная музыка - Лучшие мировые хиты. (7 томов) (1997) 14 CD [APE|Lossless|tracks] <Instrumental>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. R. Clayderman - The Phantom of the Opera (04:26)
-02. F. Goya - Romance De Amour (03:17)
-03. Ocarina - Moonlight Reaggae (04:34)
-04. E. Morricone - Chi Mai (05:05)(   Читать дальше...   )Жанр: InstrumentalПродолжительность: 17:18:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF85689DDE560C8E4AE06B25A0BD9E889C62D540
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1630872   (254613) от 03.05.2023
-
-R. Carlos Nakai & AmoChip Dabney - Edge Of The Century (2001) [FLAC|Lossless|tracks + .cue] <Native American>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Mystery
-02. York
-03. Queztalcoatl
-04. Spirit Sharing(   Читать дальше...   )Жанр: Native AmericanПродолжительность: 00:48:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4120CF7E95A5AD0C5190AC9C2F3B7784676DDF6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1631902   (254533) от 07.05.2023
-
-Delerium - Signs (2023) [FLAC|Lossless|image + .cue] <New Age, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_254533.jpg" />
-</div>
-
-
-###  Подробнее
-
-Signs — это шедевр гипнотических ритмов и обволакивающей атмосферы с потрясающими вокальными партиями Мими Пейдж, Филдел, Инны Уолтерс и KANGA. Уникальный голос каждого певца возвышает Знаки, добавляя новые уровни болезненной красоты и романтизма.01. Falling Back To You (feat. Mimi Page)
-02. Rain
-03. Coast To Coast (feat. Phildel)
-04. Sun Storm(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D30AFE2F4ACC66B835CCA1C7FD34793DC58127
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497661   (253546) от 16.05.2012
-
-Казачий круг - Антология  (2005 - 2007) [MP3|224-256 кб/с]<Folk Казачья песня>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253546.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Folk  Казачья песняПродолжительность: 00:50:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC2B7298514C7F75EBAED6AB91A5F2DAD8B40342
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 497342   (253475) от 16.05.2012
-
-VA - Cтаринные русские романсы. Золотая коллекция (2005) [FLAC|Lossless]<Vocal, classical>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_253475.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Константин Огневой - Утро туманное
-02. Петр Топчий - Я помню вальса звук прелестный
-03. Валентина Кочур - Не пробуждай воспоминаний
-04. Николай Кондратюк - Я встретил вас
-05. Евгений Зубко - Астры осенние
-06. Петр Топчий - Калитка
-07. Галина Мурзай - Темно-вишневая шаль
-08. Анатолий Кочерга - Забыли Вы
-09. Виктор Титкин - В минуту признанья
-10. Тамара Концевая - О, позабудь былые увлеченья(   Читать дальше...   )2005Жанр: Vocal, classicalПродолжительность: 01:08:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 496032   (252972) от 14.05.2012
-
-Paul Mauriat - Best Of France (1988) [FLAC|Lossless]<Instrumental, Easy Listening>
-
->>Other Styles
->>Other (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_252972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Way (Comme D'habitude) (4:29)
-02. If You Go Away (Ne Me Quitte Pas) (3:26)
-03. Fascination (3:50)
-04. Sous Le Ciel De Paris (3:00)
-05. Autumn Leaves (Les Feuilles Mortes) (3:51)
-06. La Vie En Rose (3:47)
-07. What Now My Love (Et Maintenant) (3:18)
-08. Cerisiers Roses Et Pommiers Blancs (2:28)
-09. She (Tous Les Visages De L'amour) (3:13)
-10. Parlez - Moi D'amour (2:41)(   Читать дальше...   )Жанр: Instrumental, Easy ListeningПродолжительность: 00:36:40
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

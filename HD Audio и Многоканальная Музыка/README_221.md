@@ -1,3 +1,177 @@
+###  Публикация: 1731304   (52684) от 20.06.2024
+
+The Rolling Stones - 12 X 5 (1964) Remastered, 2005, Abkco Music [FLAC 24/176.4|Lossless|WEB-DL|tracks] <Rock, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Around And Around (00:03:03)
+02 - Confessin' The Blues (00:02:48)
+03 - Empty Heart (00:02:38)
+04 - Time Is On My Side (Mono Version 1 - Organ Intro) (00:02:54)(   Читать дальше...   )Жанр: Rock, Pop RockПродолжительность: 00:32:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53FE56BA57A65A1DC06501A4F3CCCFE170AD8A9C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1582250   (52614) от 21.06.2024
+
+Anthrax - Studio Albums (12 releases) (1983-2016) hand made [restored, declipped] <Thrash/Groove Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Anthrax — американская метал-группа, играющая трэш-метал, спид-метал, а также грув-метал (позднее творчество). Основана в 1981 году в Нью-Йорке. Вместе с такими группами, как Slayer, Metallica и Megadeth, Anthrax входит в «большую четвёрку трэш-метала».1983 - Fistful Of Metal
+1985 - Spreading The Disease
+1987 - Among The Living
+1988 - State Of EuphoriaЖанр: Thrash/Groove MetalПродолжительность: 13:02:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66C8D96A2A4136E21CFCA3EB687AF621513C0360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821310   (52288) от 01.10.2025
+
+Dying Wish - Flesh Stays Together (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Melodic Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Don't Belong Anywhere
+02. A Curse Upon Iron
+03. I'll Know You're Not Around
+04. Revenge In Carnage(   Читать дальше...   )Жанр: Melodic MetalcoreПродолжительность: 00:35:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F1142F8C498DF9C149014E6EA09F0E3A99CF2C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821333   (52240) от 01.10.2025
+
+Michael Schenker Group - Don't Sell Your Soul (2025) earMUSIC [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don't Sell Your Soul(5:04)
+02. Danger Zone(3:38)
+03. Eye of the Storm(3:57)
+04. Janey the Fox(3:12)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE568C26BCEFA2694D45E86B943C145D54AF6168
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1732267   (52221) от 24.06.2024
+
+Babbba - Cabaret Conversation (Vol 2) (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heart's Confess (3:22)
+02. I Found My Place (3:15)
+03. J Manouche (2:27)
+04. Jazzy Arpy Waves (3:58)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:50:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98AF705A55AF752BE1F9830E3C676150104587BF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1673285   (52084) от 02.10.2025
+
+Havok - Studio Albums (7 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Havok — американская трэш-метал группа из Денвера, штат Колорадо. Основана в 2004 году.2009 - Burn
+2011 - Time Is Up
+2013 - Unnatural Selection
+2017 - ConformicideЖанр: Thrash MetalПродолжительность: 04:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC5911D7DEC647FFBAABEF25AFC6494DF00F3F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1568153   (52083) от 02.10.2025
 
 Within Temptation - Studio Albums (10 releases) (1997-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Symphonic Metal>
@@ -568,180 +742,6 @@ Apocalyptica - Plays Metallica, Vol. 2 (2024) [FLAC 24/48|Lossless|WEB-DL|tracks
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2E1000B0B082BB47DB7C33E66AE4DB1B9FA0D3F1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1736660   (50117) от 13.07.2024
-
-VA - В стиле Шансон от Arhangel Music (2024) [FLAC 2.0|44.1/16|Lossless|tracks] <Pop, Rock, Disco, Techno, Electronic, Chanson>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_50117.jpg" />
-</div>
-
-
-###  Подробнее
-
-[3:06] 01. Вступление + Золотые Купола (Techno Vers)
-[2:32] 02. Белый теплоход (Rock vers)
-[2:53] 03. Владимирский Централ (Vers.1)
-[4:28] 04. Баллада об уходе в рай(   Читать дальше...   )Жанр: Pop, Rock, Disco, Techno, Electronic, ChansonПродолжительность: 01:16:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3EE97F3F685851DE59B6D454C05F27F51CE848B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737473   (49718) от 17.07.2024
-
-Jack Magnet Science, Peter Erskine - Future Forecast (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49718.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wild Card (3:17)
-02. Space Pasadena (6:53)
-03. Dreams of Delphi (4:21)
-04. Extra Polation (3:39)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:30:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BE5E416992EFFC5754357538C4A72A0588F770B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737540   (49631) от 18.07.2024
-
-Love Music Zone, Smooth Jazz Music Ensemble - Charming Nights: Sensual Collection of Erotic Instrumental Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49631.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sexually Twisted (3:14)
-02. Ignite The Spark (3:26)
-03. Provocative Girl (3:35)
-04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:438604DD7F02ACBA8D54221A9F340BC39379C4E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737607   (49616) от 18.07.2024
-
-Babbba - Cabaret III (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A night in cabaret (17:35)
-02. A brush of light (17:42)
-03. Trodden pathways (18:49)
-04. So discreet (18:09)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 01:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E59EDFE5FC2C3463B7728643866157EF60FF96B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737542   (49614) от 18.07.2024
-
-Sexual Music Collection, Romantic Piano Ambient - Forbidden Jazz for Night Pleasures (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Porn Star Jazz (3:18)
-02. Guru of The Lounge (3:05)
-03. Trigger My Mind (3:06)
-04. I Get Deeper Into Vibe (3:11)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:310275C4CDFCEB4B7293EAF642E665E7E1DACAD5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737609   (49612) от 18.07.2024
-
-Babbba - Extended Cabaret (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Swing>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_49612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Smooth walking (2:58)
-02. Feels right (2:06)
-03. We're just dancing (2:47)
-04. Feel the groove (2:41)(   Читать дальше...   )Жанр: Jazz, SwingПродолжительность: 00:58:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:248601F5E9743AAB197F0560070A5B3FB1AE79D8
 ```
 
 https://mybot314.ru/tekegram_catalog/

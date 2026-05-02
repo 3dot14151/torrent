@@ -1,3 +1,61 @@
+###  Публикация: 1659188   (190158) от 11.09.2023
+
+Osaka Punch - Mixed Ape (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Funk Rock, Jazz Fusion>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_190158.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Heat Death Ray [00:05:26]
+02. Hall of Shame [00:04:34]
+03. How We Operate [00:04:31]
+04. Slink [00:01:11](   Читать дальше...   )Жанр: Alternative Rock, Funk Rock, Jazz FusionПродолжительность: 00:40:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:248F12733BFF2033CA0D2421DDAB78848C0B6D0A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589489   (189924) от 10.11.2022
+
+Garbage - Anthology 1995-2022 (2022) 2 x CD, Compilation, Remastered [FLAC|Lossless|tracks + .cue] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_189924.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Vow
+02. Subhuman
+03. Only Happy When It Rains(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 02:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:055E8BCF84C1F61F94096BE3A592DF6A9FEEA46A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1590747   (188537) от 15.11.2022
 
 Ever Since Eve - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
@@ -684,64 +742,6 @@ Alanis Morissette - Jagged Little Pill (1995) Maverick 9362-45901-2 [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A8F01958206FF05C34FC6669DFC99F428A30340
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151876   (182693) от 23.11.2022
-
-Nickelback - 10 Albums (1996-2022) Full Studio Discography [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. San Quentin (3:31)
-02. Skinny Little Missy (3:38)
-03. Those Days (3:39)
-04. High Time (3:55)(   Читать дальше...   )Жанр: Alternative Rock, Post-Grunge, Hard Rock |Продолжительность: 00:55:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B70A3D5E0BFC37754B470B5C2CF9DBC6AC9292E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1592872   (181988) от 25.11.2022
-
-Vain Louie - Time Devours Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodic Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181988.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Tragedy Unfolds
-2. The Death of Existence
-3. The Sum Of Our Perceptions
-4. Persistence of Vision(   Читать дальше...   )Жанр: Metalcore, Melodic HardcoreПродолжительность: 00:40:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7426820E307876D6615E587BD86E16323BD4AC66
 ```
 
 https://mybot314.ru/tekegram_catalog/

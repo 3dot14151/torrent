@@ -1,3 +1,61 @@
+###  Публикация: 1817784   (3134) от 12.09.2025
+
+David Guetta - Live @ Galactic Circus, [UNVRS] Ibiza, Spain (2025-08-15) [MP3|320 Kbps] <Dance, Electro Pop>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3134.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. David Guetta ft. Bebe Rexha - I'm Good (Blue) (Cedric Gervais Remix)
+02. Flo Rida ft. David Guetta - Club Can't Handle Me (From The Step Up 3D Soundtrack) (David Guetta & DJs From Mars Bootleg)
+03. David Guetta & Audio Bullys & DJs From Mars - Things I Haven't Told You
+04. Hel:sløwed & Nina de Koning vs. Dada Life - Give It To Me vs. Kick (   Читать дальше...   )Жанр: Dance, Electro PopПродолжительность: 03:31:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC2C0AF1EA7DB817621749B5BFF59DB168A7BDDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1817680   (3124) от 12.09.2025
+
+VA - Ori Uplift - Uplifting Only Episode 657 (2025) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3124.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. DreamLife & Grande Piano ft. Agness – Just You And Me
+02. Andy Moor & Somna & LINNEY – More Than Love (Craig Connelly Remix)
+03. Anton By & AV ft. Natune – Bring Me Back To Life (Sergey Salekhov Remix) (Fan Favorite)
+04. Dmitriy Kuznetsov – Limerence (Orchestral Uplifting Classic)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:59:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A639B7306B1985640210DCA03DEF69C813D27059
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1817679   (3110) от 12.09.2025
 
 VA - Armin van Buuren - A State Of Trance 1242 (2025) [MP3|320 Kbps] <Trance, Progressive, Electronic>

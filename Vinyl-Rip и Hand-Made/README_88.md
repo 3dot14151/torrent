@@ -1,3 +1,175 @@
+###  Публикация: 1792958   (67499) от 24.04.2025
+
+Soulfly - Primitive (2000) [FLAC|24/192|image + .cue|Vinyl-Rip] <Thrash Metal, Nu Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67499.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Back To The Primitive
+A2. Pain
+A3. Bring It
+A4. Jumpdafuckup(   Читать дальше...   )Жанр: Thrash Metal, Nu MetalПродолжительность: 00:52{33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CA8B0D0700FFB19EC69B448304603F53A3E0990
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792937   (67498) от 24.04.2025
+
+Samael - Blood Ritual (1992) Reissue, 2011, Floga Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67498.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Epilogue
+A2 Beyond The Nothingness
+A3 Poison Infiltration
+A4 After The Sepulture(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:41:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ECCF188262971A46E1F542335356873E7D982DE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793414   (67497) от 24.04.2025
+
+System Shock - Studio Albums (3 releases) (2004-2008) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67497.jpg" />
+</div>
+
+
+###  Подробнее
+
+System Shock - группа из Норрчёпинга, Швеция. Основана в 2003 году.2004 - Arctic Inside
+2006 - Escape
+2008 - Urban RageЖанр: Melodic Death MetalПродолжительность: 02:04:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC6080A6E0A9083B2BBB289CB07A8EE4AF827E72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793246   (67496) от 24.04.2025
+
+Hilastherion - Studio Albums (3 releases) (2007-2019) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hilastherion - метал-группа из Ваасы, Финляндия, основана в 2003 году.2007 - Taken From Darkness
+2014 - Signs Of The End
+2019 - Psalm 59 (EP)Жанр: Melodic Death MetalПродолжительность: 02:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F29F081AB93076B68DF849FC02E47D19B6AEA357
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1793385   (67494) от 24.04.2025
+
+Darkness By Oath - Studio Albums (4 releases) (2005-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Darkness By Oath - испанская метал-группа. Основана в 2002 году в г. Аррасате.2005 - Confidential World Of Lies
+2009 - Fear Yourself
+2012 - Near Death Experience
+2014 - Seeds Of DesolationЖанр: Melodic Death MetalПродолжительность: 02:45:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D9CC669AC4F7ED6ACA7CC188939FC64EB106332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1792906   (67493) от 24.04.2025
+
+Fractal Gates - Studio Albums (4 releases) (2009-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Melodic Death Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Fractal Gates - французская метал-группа, образована в Париже в 2007 году.2009 - Altered State Of Consciousness
+2013 - Beyond The Self
+2018 - The Light That Shines
+2024 - One With DawnЖанр: Progressive Melodic Death MetalПродолжительность: 03:31:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB10FA859A3C6C71F719489FD8DD642742800F85
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1793663   (67467) от 25.04.2025
 
 Dream Theater - Images And Words (1992) Reissue, 2025, ATCO Records [DSD256|tracks|Vinyl-Rip] <Progressive Metal>
@@ -570,180 +742,6 @@ Ghost Brigade - метал-группа из Ювяскюля, Финлянди�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:632E934776AC7C54D18B00736CE482D66E4EC978
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795131   (67140) от 03.05.2025
-
-All for Metal - Gods of Metal (Year of the Dragon) (2024) [FLAC|24/192|tracks|Vinyl-Rip] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67140.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Cry For Help (Intro)
-A2 Gods Of Metal
-A3 Year Of The Dragon
-A4 The Way Of The Samurai(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:832D0DE88865E1AF3087BC25EADA79B86759BB03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795268   (67112) от 03.05.2025
-
-Ancient Wisdom - For Snow Covered the Northland (1996) Released, 2022, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Atmospheric Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67112.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. A Hymn to the Northern Empire (02:59)
-A2. In the Land of the Crimson Moon (05:51)
-A3. They Gather Where Snow Falls Forever (06:04)
-A4. Through Rivers of the Eternal Blackness (05:45)(   Читать дальше...   )Жанр: Atmospheric Black MetalПродолжительность: 00: 47:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E874CBFBFE98CEC1D763DD6E19606CC20AEFB379
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795109   (67110) от 03.05.2025
-
-Circle Of Chaos - Studio Albums (4 releases) (2010-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67110.jpg" />
-</div>
-
-
-###  Подробнее
-
-Circle Of Chaos - метал-группа из Стокгольма, Швеция, основана в 2008 году.2010 - Black Oblivion
-2012 - Twoheaded Serpent (EP)
-2014 - Crossing the Line
-2022 - Forlorn ReignЖанр: Melodic Death MetalПродолжительность: 02:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:68FA22AFDCBA7604BBF09A7274585E5B3178449F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795280   (67091) от 04.05.2025
-
-Metallica - 72 Seasons (2023) [DSD128|Lossless|tracks + .cue|Vinyl-Rip]<Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67091.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1. 72 Seasons (07:44)
-A2. Shadows Follow (06:11)
-A3. Screaming Suicide (05:30)
-B1. Sleepwalk My Life Away (06:55)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2A02C3C5CAD8F6E0A1B172F0D850B27646EC733
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795331   (67089) от 04.05.2025
-
-Souldrainer - Studio Albums (4 releases) (2007-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67089.jpg" />
-</div>
-
-
-###  Подробнее
-
-Souldrainer - метал-группа из Остерсунда, Швеция, основана в 1999 году.2007 - Reborn
-2011 - Heavens gate
-2014 - Architect
-2022 - DepartureЖанр: Melodic Death MetalПродолжительность: 03:16:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:760D7F93ED04DF444399E2ACCC0E9560CCE2F032
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1795297   (67080) от 04.05.2025
-
-Arch Enemy - Deceivers (2022) [FLAC|24/96|tracks|Vinyl-Rip] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_67080.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Handshake With Hell
-02 - Deceivers, Deceivers
-03 - In The Eye Of The Storm
-04 - The Watcher(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4462BA1B631DF2D8E68FCFE6C155D06431F4DFE4
 ```
 
 https://mybot314.ru/tekegram_catalog/

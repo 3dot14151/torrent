@@ -1,3 +1,175 @@
+###  Публикация: 1768554   (33037) от 25.12.2024
+
+Ill Niño (Ill Nino) - Studio Albums (7 releases) (2002-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Metalcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33037.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ill Niño — американская ню-метал-группа латиноамериканского происхождения, основанная в 1998 году в Нью-Джерси.2002 - revolution revolucion
+2003 - Confession
+2005 - One Nation Underground
+2008 - EnigmaЖанр: Nu Metal, MetalcoreПродолжительность: 06:32:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C15CBA43A2A3A582F9B0602323E1970E1BE22065
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 125709   (32244) от 02.01.2025
+
+Андрей Сапунов и группа «Лотос» - Лотос - 1987, FLAC
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32244.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Белый день (А. Сапунов / С. Андреев)
+2. Немного счастья на двоих (А. Сапунов / И. Фрадкина)
+3. Евпатория (А. Сапунов / И. Фрадкина)
+4. Свежий ветер (А. Сапунов / И. Фрадкина)(   Читать дальше...   )Жанр: RockПродолжительность: 33:54 + допись 07:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4D5BFEA2D03555F715280E87ADC472F26DC420F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1586614   (32066) от 04.01.2025
+
+Accept - Studio Albums (23 releases) (1979-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32066.jpg" />
+</div>
+
+
+###  Подробнее
+
+Accept — немецкая рок-группа, играющая в стиле хэви-метал. Отличительными особенностями музыки группы являются оригинальный вокал, плотность и насыщенность звука, мелодичность и виртуозность гитарных соло. Подчёркнуто брутальная, агрессивная ритмическая основа, в сочетании с хард-роковой, зачастую пронизанной классическими ходами, мелодикой гитарной партии и уникальным (   Читать дальше...   )1993 - Objection Overruled
+1994 - Death Row
+1996 - Predator
+2010 - Blood of the Nations(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 23:35:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0A78E145EA4DE94AFA9F99235D87EEB381B90619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1633122   (31813) от 06.01.2025
+
+Umbra Et Imago - Studio Albums (14 releases) (1992-2017) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Darkwave, Neue Deutsche Härte>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31813.jpg" />
+</div>
+
+
+###  Подробнее
+
+Umbra et Imago (лат. «Тень и образ») — немецкая готик-металлическая группа Neue Deutsche Härte, образованная осенью 1991 года.1995 - Gedanken Eines Vampires
+1996 - Mystica Sexualis
+1998 - Machina Mundi
+2000 - Mea CulpaЖанр: Gothic Rock, Darkwave, Neue Deutsche HärteПродолжительность: 14:42:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D332B390E9FE188060DFE9CF740266275C6BB10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772076   (31478) от 09.01.2025
+
+Atreyu - Studio Albums (12 releases) (2001-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31478.jpg" />
+</div>
+
+
+###  Подробнее
+
+Atreyu — американская группа из округа Ориндж, штат Калифорния, США, образованная в 1998 году. Первоначально группа называлась «Retribution», но позже была переименована в «Atreyu» в честь одного из героев фильма «Бесконечная история».2001 - Fractures In The Facade Of Your Porcelain Beauty (EP)
+2002 - Suicide Notes And Butterfly Kisses
+2004 - The Curse
+2006 - A Death-Grip On YesterdayЖанр: Metalcore, Hard RockПродолжительность: 09:02:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0DEF3DBD049D016F76E5CA9945AD101DD6633FC8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1772105   (31474) от 09.01.2025
+
+Conquer Divide - Studio Albums (2 releases) (2015-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_31474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Conquer Divide - металкор/пост-хардкор-группа, образованная в 2013 году в Мичигане, США.2015 - Conquer Divide
+2024 - Slow BurnЖанр: Metalcore, Hard RockПродолжительность: 02:15:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9FB123D138774B2872581C8BDBFE4D52E6C0644F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1772119   (31472) от 09.01.2025
 
 Theatres Des Vampires - Studio Albums (12 releases) (1996-2021) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Gothic Metal>
@@ -568,180 +740,6 @@ Tristania — симфо-готик-метал-группа из Норвеги�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D9FDB3371A7D6D454B1BEB9695414FB66375469D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1749811   (26880) от 21.02.2025
-
-Killswitch Engage - Studio Albums (9 releases) (2000-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26880.jpg" />
-</div>
-
-
-###  Подробнее
-
-Killswitch Engage - американская металкор-группа из города Уэстфилд, штат Массачусетс, образовалась в 1999 году.2000 - Killswitch Engage
-2002 - Alive Or Just Breathing
-2004 - The End Of Heartache
-2006 - As Daylight DiesЖанр: MetalcoreПродолжительность: 07:25:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17A5B8651102B65C38EB8D4B251FD663898FA4C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1575781   (26439) от 26.02.2025
-
-Ozzy Osbourne - Studio Albums (14 releases) (1980-2022) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26439.jpg" />
-</div>
-
-
-###  Подробнее
-
-О́ззи О́сборн (англ. Ozzy Osbourne; настоящее имя — Джон Майкл О́сборн, англ. John Michael Osbourne; род. 3 декабря 1948, Марстон Грин, Бирмингем) — британский рок-певец, музыкант, один из основателей и участник группы Black Sabbath, оказавшей значительное влияние на появление таких музыкальных стилей, как хард-рок и хеви-метал. Успешность его карьеры (   Читать дальше...   )1980 - Blizzard Of Ozz
-1981 - Diary Of A Madman
-1983 - Bark At The Moon
-1986 - The Ultimate Sin(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 14:59:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E3479F1C0AA90019C6C2C0EAA0F7D384EDD9A3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1664217   (26300) от 27.02.2025
-
-Staind - Studio Albums (8 releases) (1996-2023) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Hard Rock, Post-grunge>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26300.jpg" />
-</div>
-
-
-###  Подробнее
-
-Staind — американская метал-группа из города Спрингфилд, штат Массачусетс, основанная в 1995 году.1996 - Tormented
-1999 - Dysfunction
-2001 - Break The Cycle
-2003 - 14 Shades of GreyЖанр: Nu Metal, Hard Rock, Post-grungeПродолжительность: 07:23:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6867D2B0DA72A7759B6C1321B93F57D38B21BC0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1745353   (26279) от 27.02.2025
-
-Brainstorm - Studio Albums (14 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26279.jpg" />
-</div>
-
-
-###  Подробнее
-
-Brainstorm — немецкая пауэр-метал-группа. Создана в 1989 году. Лицом группы является вокалист Энди Б. Франк, также известный участием в Symphorce и прогрессив-группе Ivanhoe. Brainstorm отличается более «тёмным» стилем музыки от большинства пауэр-метал-команд.1997 - Hungry
-1998 - Unholy
-2000 - Ambiguity
-2001 - Metus Mortis(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 14:09:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:638AE89B856511491E3A4D32058B37398926C717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1606286   (26268) от 27.02.2025
-
-A Day to Remember - Studio Albums (8 releases) (2005-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore, Post-hardcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26268.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Day to Remember (ADTR) — американская пост-хардкор группа, образованная в городе Окала в 2003 году и основанная гитаристом Томом Дэнни и барабанщиком Бобби Скраггзом. Известна своим необычным звучанием, которое представляет собой смесь металкора, пост-хардкора и поп-панка.2005 (2008) - Old Record (And Their Name Was Treason Re-Release)
-2007 (2008) - For Those Who Have Heart (Re-Release)
-2009 - Homesick
-2010 - What Separates Me From YouЖанр: Metalcore, Post-hardcoreПродолжительность: 06:15:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:21600B84F1F1F1AAE937F53CA5930EA643736D12
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1651765   (26195) от 28.02.2025
-
-Tobias Sammet (Edguy; Avantasia) - Studio Albums (21 releases) (1997-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_26195.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тобиас Заммет (нем. Tobias Sammet, 21 ноября 1977) — немецкий музыкант, лидер и вокалист немецких пауэр-метал-групп Edguy и Avantasia.1997 - Kingdom Of Madness
-1998 - Vain Glory Opera
-1999 - Theater Of Salvation
-2000 - The Savage PoetryЖанр: Power MetalПродолжительность: 25:48:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD0416D70E041545A2709C58E38683D5FE96630B
 ```
 
 https://mybot314.ru/tekegram_catalog/

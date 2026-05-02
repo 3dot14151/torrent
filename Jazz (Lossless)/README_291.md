@@ -1,3 +1,61 @@
+###  Публикация: 1271340   (150249) от 23.12.2018
+
+VA - Christmas Lights - Smooth Jazz Instrumental Music (2018) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150249.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 Spider Fly feat. Cecilia Stalin - G Muranyi, Jason Piccioni 03:49
+2 Tam Tam - Aqualise, Jean Toussaint 08:56
+3 Riverman (Vezio Bacci Remix) - Hardage, Berenice Scott 04:29
+4 La Fete - Luis Bacalov 03:13(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EBDA8354922578B7FC0B3D3457B8F8DBE06993A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1086745   (150079) от 25.12.2016
+
+V.A. - Electro Swing Elite Compilation (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Nu Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_150079.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wolfgang Lohr & Alice Francis - Still Can Kiss...
+02. Jazzotron & Manivi - Ain't No Man
+03. Extra Medium - Mental Note
+04. Sound Nomaden & MSP - Locomotive Swing(   Читать дальше...   )Жанр: Electro Swing, Nu JazzПродолжительность: 01:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:872E3ED1AB3EA89CE7EB9D9D6B2B9E10870C89C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1434570   (149945) от 25.12.2020
 
 Etienne Charles - Creole Christmas (2015) [FLAC|Lossless|tracks + .cue] <Afro-Caribbean Jazz, Calypso, Christmas>
@@ -686,64 +744,6 @@ Guy Lafitte & Andre Persiany - Les Classiques du Jazz (1955, 1957) 2018, Fresh S
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7305A7AE71A030ED7794E258D03BE55C00711277
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271772   (147783) от 25.12.2018
-
-Gene Krupa Big Band - Drummer Man (1956) Verve [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let Me Off Uptown [3:24]
-02. Rockin' Chair [3:19]
-03. Opus 1 [3:36]
-04. Fish Fry [3:07](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:39:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:19A4E1D33637F7BF3EC50378F835083B83BD59F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1271904   (147770) от 25.12.2018
-
-Michel De Villers - Low Reed: Complete Small Groups Sessions 1946-1956 (2018) Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_147770.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. How High the Moon [3:01]
-02. Sweet Lorraine [2:45]
-03. Shuffin' at the Hollywood [2:50]
-04. Blues at Eleven [2:54](   Читать дальше...   )Жанр: Swing, Big Band, Mainstream JazzПродолжительность: 01:14:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E904A1BE2D7B82C5EA970647669DAF07AD191E56
 ```
 
 https://mybot314.ru/tekegram_catalog/

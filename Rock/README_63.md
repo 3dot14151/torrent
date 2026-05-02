@@ -1,3 +1,32 @@
+###  Публикация: 1416035   (367501) от 16.10.2020
+
+ZZ Top - ZZ Top FM Broadcast June 1980 (2020) [MP3|320 Kbps] <Blues Rock, Southern Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_367501.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Thank You (Live)
+02. Jesus Just Left Chicago (Live)
+03. I'm Bad, I'm Nationwide (Live)
+04. Low Down In The Street (Live)(   Читать дальше...   )Жанр: Blues Rock, Southern Rock, Classic RockПродолжительность: 00:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9ACA10101817645C27B3EE9171F608C2033EE0F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1416537   (367348) от 16.10.2020
 
 VA - Hard Rock Anthems (2020) [MP3|320 Kbps] <Rock>
@@ -719,35 +748,6 @@ Jonah Whale - VI (2020) [MP3|320 Kbps] <Progressive Rock, Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29F32D11E09A45AC584F5E2495764A284448308B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1071729   (356816) от 11.11.2016
-
-Pink Floyd - Cre/ation: The Early Years 1967 - 1972 (2016) 2CD [MP3|320 Kbps] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_356816.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1:
-01. Arnold Layne
-02. See Emily Play
-03. Matilda Mother (2010 Mix)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 01:52:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3F633930459FC90F9ADBFBC3792659BEEF5AC3EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

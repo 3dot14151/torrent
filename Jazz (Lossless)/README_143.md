@@ -1,3 +1,61 @@
+###  Публикация: 1233739   (578169) от 01.07.2018
+
+V.A. - The Smooth Jazz Cruise: The Greatest Party At Sea (2018) [FLAC|Lossless|image + .cue] <Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578169.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Peter White - Smile
+02. Rick Braun - Kisses in the Rain
+03. Richard Elliot - License To Chill
+04. Marcus Miller - Blast!(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B99151A370F1E0E9B37B03135959AF7A817D3838
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150908   (578148) от 16.07.2017
+
+Nat Adderley Sextet - Work Song: Live at Sweet Basil (1990) 1993, Sweet Basil Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Work Song [10:43]
+02. High Fly [13:06]
+03. In a Sentimental Mood [10:52]
+04. Jive Samba [11:00]Жанр: Hard BopПродолжительность: 00:45:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4935EAA28AEB01777E35D72625BD5EE11C5F1550
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1150946   (578143) от 16.07.2017
 
 Bireli Lagrene - Foreign Affairs (1988) [FLAC|Lossless|tracks + .cue] <Contemporary Jazz,Fusion>
@@ -702,64 +760,6 @@ Jamie Cullum & Friends - Devil May Care! (2010) Candid [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0D7AEEBC0CBAF54A106E1F5AD5C41AB7CBB11FA6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151071   (576245) от 17.07.2017
-
-Julie London - The Essential Recordings (1955 - 1962) 2CD, 2016, Primo [FLAC|Lossless|image + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576245.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Cry Me A River [02:54]
-02. I'm In The Mood For Love [02:33]
-03. Can't Help Lovin' Dat Man [03:15](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:46:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773066343A7A6C8BB621F61A0860CECA2CA54168
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151056   (576241) от 17.07.2017
-
-Dean Martin - This Time I'm Swingin'! (1960) 2013, Mobile Fidelity Sound Lab [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576241.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Can't Believe That You're in Love with Me [02:27]
-02. True Love [02:34]
-03. You're Nobody 'Til Somebody Loves You [02:15]
-04. On the Street Where You Live [03:43](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:34:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF042DF664A703646D0799C4FB83536C7239AB00
 ```
 
 https://mybot314.ru/tekegram_catalog/

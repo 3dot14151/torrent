@@ -1,3 +1,29 @@
+###  Публикация: 1507241   (798511) от 03.11.2021
+
+Проекты - ProShow Producer - Impossible Opener [PSH, PXT]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798511.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Огненное" слайдшоу. Просто вставьте фотографии и подпишите их... Дерзайте!Формат: PSH, PXT
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F87E3E8803B3E3F5E48A2D7A8E16E4EDC20F59F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1385357   (797747) от 24.05.2020
 
 Проекты - VideoHive - Wedding - 24310524 [AEP]
@@ -651,33 +677,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AF78C8B5FAB7E937F1BDD26FA291FE6E8479456C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012206   (794456) от 30.04.2016
-
-Проекты - VideoHive - Cinematic Parallax [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_794456.jpg" />
-</div>
-
-
-###  Подробнее
-
-Слайд шоу.
-Проект для использования в After Effect.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1E5EC5980C00B858D61784D4DF7C1C7D2BF9C5D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1059301   (461257) от 04.10.2016
+
+VA - Electric For Life Top 10: September 2016 (2016) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_461257.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gareth Emery ft Christina Novelli - Save Me (Alex Ender Remix) (4:03)
+02. Gareth Emery ft Lawson - Make It Happen (Nicolas Haelg Remix) (2:58)
+03. Luke Bond ft Georgia Mason - Alone (3:25)
+04. Gareth Emery ft Alex & Sierra - We Were Young (Mhammed El Alami Remix) (3:13)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:34:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAE778F910CDEEDBDC0820D5EABE062D353F8E1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941739   (460045) от 28.09.2015
+
+Paul van Dyk - Reflections (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul van Dyk feat. Second Sun - Crush (Original Mix) (7:46)
+02. Paul van Dyk feat. Vega4 - Time of Our Lives (Original Mix) (4:23)
+03. Paul van Dyk feat. Jan Johnston - Like a Friend (Original Mix) (3:53)
+04. Paul van Dyk - Reflections (Original Mix) (7:27)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:12:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B887FDFDFEF6EAEC0E4198034DF165924D746F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941741   (459903) от 28.09.2015
+
+Paul van Dyk - Out There and Back (2015) [MP3|320 кб/с]<Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459903.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vega (Original Mix) (6:05)
+02. Pikes (Original Mix) (6:59)
+03. Another Way (Original Mix) (5:24)
+04. Travelling (Original Mix) (7:10)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B589B7E7AE1D0DC0F9DD15F784BEC0FE263FDCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1059917   (459699) от 05.10.2016
+
+VA - Epic Emotional Uplifting Trance (2016) [MP3|320 Kbps] <Trance ,Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459699.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 illitheas - Last Forever (Intro Mix) [05:53]
+02 Ikerya Project - Neo Terra (Original Mix) [08:05]
+03 Artisan - I Follow (F.G. Noise Remix) [07:36]
+04 Kaimo K - Why Can't You Love Me (Original Mix) [06:50](   Читать дальше...   )Жанр: Trance ,Uplifting TranceПродолжительность: 03:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28CBD7D2A92B41E0FC27C19D6B7E0360E58DC446
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1568762   (459615) от 09.08.2022
+
+VA - Dream Dance Vol 93 (2022) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dream Dance Alliance - Chasing Stars (Extended Mix) (3:19)
+02. Armin van Buuren & Florentin feat. Jordan Grace - Echoes (Extended Mix) (5:41)
+03. Cosmic Gate & Olivia Sebastianelli - We Got The Fire (Extended Mix) (7:04)
+04. Paul van Dyk & Troels Hammer - Alternative Sphere (Paul van Dyk's SHINE Remix) (5:46)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 07:24:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28F612373110A65832DB38791F299FC2F7BA51DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1162397   (459148) от 01.09.2017
 
 Frainbreeze - A Year With Suanda (2017) [MP3|320 Kbps] <Vocal Trance>
@@ -604,151 +749,6 @@ VA - Vocal Dance Vol.4 (2018) [MP3|320 Kbps] <Trance,Vocal Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDA3FF733634FD35EF3461E962ED4E57FDA1217A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1247799   (448807) от 17.09.2018
-
-VA - Progressive Ibiza (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448807.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Eranga - The Reason (Eximinds Remix)
-02. Roman Messer - For You (Original Mix)
-03. LTN - Wind & Cloud (Denis Sender Remix)
-04. Alexander Spark - Nothing Like The Sun (Original Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:35:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C03075BE41D4AA729685CA3EBD695AC825A45244
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570178   (445102) от 16.08.2022
-
-VA - FSOE Ibiza (2022) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_445102.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila vs The Noble Six - Moonlit (Extended Mix)
-02. Sunlounger & Susie Ledge - Sail Away (FSOE 734) (Roger Shah & Yelow Remix)
-03. Aly & Fila vs Scott Bond & Charlie Walker - Shadow (Paul Thomas Extended Remix)
-04. Aly & Fila - Sunrise At Cala Bassa (Ferry Tayle Extended Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 03:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C9CE9BC382CD0BD293D36A0237D266BD0DF16DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248308   (444929) от 19.09.2018
-
-VA - Nothing But... Total Trance Selections Vol.05 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444929.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NyTiGen - Renessance (Progressive Mix)
-02. Serious Stan - Winged (Original Mix)
-03. Like It Lite - The Ridge (Lumin-8 Uplifting Remix)
-04. Sven E - Tell Me (Brent Rix Remix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:30:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A84DBD0ADA372B5B02C0612B46220002BBF12B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1248330   (444925) от 19.09.2018
-
-VA - Epic Trance Vol.3 (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444925.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Photographer - Infinity (Original Mix)
-02. Attila Syah - B29 (Extended Mix)
-03. Elite Electronic - Heaven Song (Extended Mix)
-04. Ahmed Helmy - Helena (Extended Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 02:11:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF42D6D43364C16EC9A144C38E508575FA4F5F29
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1409727   (443264) от 18.09.2020
-
-VA - Female Vocal Trance Vol. 2 (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443264.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Suncatcher & Exolight feat. Ellie Lawson - Let It Shine (Original Mix)
-02. Phillip J feat. Kim Casandra - Ocean's Call (Original Mix)
-03. Craving feat. Manon Polare - When Oceans Collide (Original Mix)
-04. Costa & Ana Criado - The Secret Garden (Original Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:05:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85E46C5FA41C631FBABC324D8BF8B7920E72ECFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

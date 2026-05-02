@@ -1,90 +1,3 @@
-###  Публикация: 1423429   (300089) от 13.11.2020
-
-Bumble Beezy - Nosebleed (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300089.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Круче, чем ты запланировал (Interlude) [00:30]
-02. Perk [02:50]
-03. Остап Бендер [02:42]
-04. Switch [02:05](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E4E13E4AAA9E9C8BA308B85526B5217B5AA423C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423435   (299940) от 13.11.2020
-
-ST1M, СД - Аггро 2.0 (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299940.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Только Mic и я [02:20]
-02. Моби Дик [03:37]
-03. В бой идут одни старики (feat. Schokk & Czar) [03:54]
-04. Эсперанто [03:17](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:17:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:733879A1B11C22D4CC7A666C5154C07E9C7FB604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1423442   (299800) от 13.11.2020
-
-Kizaru - BORN TO TRAP (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_299800.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro [01:52]
-02. Что за бизнес сука? [03:25]
-03. Block Baby [03:28]
-04. G Shit [03:20](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:52:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:466D1A4886409A33B22684BBD13106BF7E51C9CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1423439   (299668) от 13.11.2020
 
 Тимати - Транзит (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -745,6 +658,93 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA43DDED9694F8C424613BEE505356BAFD185D0F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511414   (245817) от 21.11.2021
+
+bollywoodFM - Магия (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245817.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 3 в 1 [01:48]
+02. Дождь (feat. Kasha) [02:28]
+03. Магия [01:50]
+04. Хочу быть как все (feat. Бакей) [01:51](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:34:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2B46556536D604014EB5C803DD19173932F1B00
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1624526   (242092) от 06.04.2023
+
+L'One - Дом (2023) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242092.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Я готов ко всему
+2. Летать
+3. Она одна
+4. Верну до темноты(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:45:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19C1E3C94C6D4E4C5B1EB20E514E48022F5C58BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1372032   (242064) от 03.04.2020
+
+ГАМОРА - THE BAD (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_242064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Вставляет нормально [04:55]
+02. Лови [06:07]
+03. Убойный камень [03:22]
+04. Решай неспеша [03:39](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:23:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:650E2E51CF6796034EA89698BEA34B6D564A00EB
 ```
 
 https://mybot314.ru/tekegram_catalog/

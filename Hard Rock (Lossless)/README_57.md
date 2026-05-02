@@ -1,3 +1,119 @@
+###  Публикация: 955682   (333699) от 11.11.2015
+
+Def Leppard - Def Leppard (2015) Limited Edition Fanpack [FLAC|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_333699.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы назвали новый альбом Def Leppard, в честь группы, потому что это название в полной мере отражает звучание альбома. Он не похож ни на одну эру группы Def Leppard, он похож на группу в целом. В нём есть всё. Вы послушаете его и подумаете, что он звучит, как Def Leppard, потом послушаете ещё и поймёте, что в нём есть что-то от Led Zeppelin или Queen, что-то похожее (   Читать дальше...   )01. Let's Go
+02. Dangerous
+03. Man Enough
+04. We Belong(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:03:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2383C6E3290221C888B525E8F9A6C95C8173045
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580237   (331839) от 30.09.2022
+
+Suzi Quatro - Uncovered (2022) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331839.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Moon Rising [00:02:19]
+02. Midnight Hour [00:02:25]
+03. I Feel The Earth Move [00:02:52]
+04. Walking The Dog [00:02:34](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 00:17:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE51470F3630F2536E77CF137EE3A5AB72C81173
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1580203   (331838) от 30.09.2022
+
+Alice Cooper - Live from the Astroturf (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331838.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Eighth Wonder of the World... (Intro) (1:00)
+02. Caught in a Dream (3:19)
+03. Be My Lover (3:31)
+04. Whatever He's Doing It's Illegal (Banter) (0:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ABB6A030F36B3BAA8AAF6F9D45DF39B20A4024D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1420867   (331287) от 02.11.2020
+
+Perfect Plan - Time For A Miracle (2020) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_331287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time For A Miracle
+02. Better Walk Alone
+03. Heart To Stone
+04. Fighting To Win(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:00:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:012DBE665291ED2028AB8A011FE36BAAE315C7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1580249   (330880) от 01.10.2022
 
 The Dead Daisies - Radiance (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -632,128 +748,6 @@ Platinum Overdose - Back For The Thrill (2020) [FLAC|Lossless|image + .cue] <Gla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6D94FAC0948D061B128A5658FE010881F0A0686B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 727831   (319581) от 28.11.2013
-
-Scorpions - World Wide Live (1985) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_319581.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Countdown [00:43]
-02. Coming home [02:47]
-03. Blackout [04:35]
-04. Bad boys running wild [03:53](   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:07:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD11B611B14711A5E1033CC0B4C62CA57D11A446
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582699   (318927) от 11.10.2022
-
-Magical Heart - Heartsonic (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Habits
-02. Heartsonic
-03. My Own Way
-04. Waiting For So Long(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:41:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:98DAE8F4230A2025E6F1229B4479916092A23A66
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 958307   (318867) от 23.11.2015
-
-Scorpions - Savage Amusement (1988) 50th Anniversary Deluxe Edition, Remastered, 2015 [FLAC|image+.cue]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Stop At The Top 4:04
-02. Rhythm Of Love 3:50
-03. Passion Rules The Game 4:00
-04. Media Overkill 3:34(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:00:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A41CF8A65DEEB93DD624D4AFD796FEBFE42BB49B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 582458   (317510) от 30.11.2012
-
-Bon Jovi - This Left Feels Right (2003) Hybrid SACD [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_317510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wanted Dead Or Alive (3:44)
-02. Livin' On A Prayer (3:41)
-03. Bad Medicine (4:27)
-04. It's My Life (3:42)
-05. Lay Your Hands On Me (4:27)
-06. You Give Love A Bad Name (3:30)
-07. Bed Of Roses (5:38)
-08. Everyday (3:45)
-09. Born To Be My Baby (5:28)
-10. Keep The Faith (4:12)(   Читать дальше...   )Жанр: Rock/Hard RockПродолжительность: 00:51:14
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

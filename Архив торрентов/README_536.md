@@ -1,3 +1,55 @@
+###  Публикация: 1364255   (937820) от 02.03.2020
+
+Freemake Video Converter 4.1.10.522 RePack (& Portable) by elchupacabra [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937820.jpg" />
+</div>
+
+
+###  Подробнее
+
+Freemake Video Converter - это бесплатное универсальное приложение, которое предлагает вниманию пользователей инструменты для быстрого конвертирования видеоматериалов в распространенные форматы, их последующего редактирования и записи на оптические носители. С помощью Freemake Video Converter энтузиасты также смогут выполнять некоторые другие действия, например, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:83A81D6C657152FAE514EF417F0D0FDAD191ADAE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364262   (937817) от 02.03.2020
+
+Hard Disk Sentinel PRO 5.60.1 Build 11483 Beta [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937817.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hard Disk Sentinel — отличная программа для мониторинга состояния HDD/SSD носителей. Сейчас как никогда важна информация, хранящаяся на них. Сам неоднократно сталкивался со случаями, когда пользователи не делали резервных копий важных файлов, а потом сильно расстраивались из-за их потери. Сами подумайте - работа, семейный архив фото/видео, а также другая информация, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D1786B0CFA6BFD583371D84AC0FA2B96E9C5850
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1364310   (937803) от 02.03.2020
 
 Auslogics BoostSpeed Pro 11.4.0.2 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -653,76 +705,6 @@ VA - House Vip [15.01.2011] (2011) [MP3|320 kbps]<Electro House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F4DFA4B51A11DBD5CEB4309696E9B4A9199731BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284452   (937494) от 19.01.2011
-
-Pedro Del Mar - Mellomania Vocal Trance Anthems 140 (17-01-2011) [MP3|256 kbps]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937494.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Avicii vs. Kings Of Leon - Abow vs. Sex On Fire (Avicii's Bootleg)
-02. Sherry Flavour & Tara Mcdonald - The Grand (Extended Mix)
-03. First State & Sarah Howells - Reverie (Jeziel Quintela, Jquintel & Manufactured Superstar)
-04. Jozhy K & Angel - I Won't Be Crying For You (Jon Median Remix)
-05. Nadia Ali - Point The Finger (Lost Stories Extended Mix)
-06. Eximinds feat. Aelyn - I Feel You
-07. Tucandeo feat. Jennifer Hershman - Only We Know (Estiva Remix)
-08. Lost Witness - Fade Away (Full Vocal Mix)
-09. Randy Boyer feat. Cari Golden - Fragile (Jonas Hornblad Remix)
-10. Novaline feat. Anthya - SirenЖанр: TranceПродолжительность: 01:02:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47CBF6791ED6062F27A47C899F30A319D256CC5F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 284522   (937493) от 19.01.2011
-
-VA - House Vip [16.01.2011] (2011) [MP3|320 kbps]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937493.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. AUtOdiDakT & Electro Ferris - Chainsaw (Dj Antention Remix) (4:51)
-2. BeatauCue - Disque Oh! (High Rankin Remix) (4:24)
-3. Briana - Life keeps on Going (DJ Solovey remix) (5:15)
-4. Chris Decay - Like That (Bigroom Mix) (5:37)
-5. Dj Viduta - You are ready (5:12)
-6. E-Bonit vs. Mike McPower - Set Free (Party NoiserZ & Sound Stylez Remix) (6:07)
-7. Herd & Fitz feat. Abigail Bailey - I Just Can't Get Enough (Audio Brothers Remix) (4:48 )
-8. Kesha - We R Who We R (Fred Falke Club Mix) (6:56)
-9. Manyus & Paolo Di Miro - Midnight (P. Di Miro Elektrorock Mix) (6:07)
-10. The Noisy Freaks - Fast Chased (Drivepilot Remix) (5:00)Жанр: Electro HouseПродолжительность: 00:54:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E193D35531FBB43E97450F7404B89746E365C4B8
 ```
 
 https://mybot314.ru/tekegram_catalog/

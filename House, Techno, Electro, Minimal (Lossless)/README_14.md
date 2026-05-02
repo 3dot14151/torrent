@@ -1,3 +1,32 @@
+###  Публикация: 1103663   (883538) от 13.02.2017
+
+Deep Dish - Junk Science (1998) [APE|Lossless|image + .cue] <Deep House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_883538.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro - Morning Wood
+02. The Future Of The Future (Stay Gold)
+03. Summer's Over
+04. Mohammed Is Jesus...(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:17:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE47D1C246381C1B2E73EF626A831219BA70C6F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 995837   (882839) от 12.03.2016
 
 Dusty Kid - III (2014) [FLAC|Lossless|tracks] <Techno, Acid, Tech Trance>
@@ -713,35 +742,6 @@ VA - Ethereal Techno #003 (2017) [FLAC|Lossless|WEB|tracks] <Techno, Tech House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:51D24B33B8B0A964375A6A3D0A058DA85CE34481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375956   (862271) от 16.04.2020
-
-Lagowski - Secret Of Numbers (2020) Zoharum [FLAC|Lossless|WEB-DL|tracks] <Electro, Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. RUR (07:06)
- 02. Bomkele (08:50)
- 03. Pulse (06:51)
- 04. Huhu 5 mix 1b (12:20)(   Читать дальше...   )Жанр: Electro, TechnoПродолжительность: 01:16:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:508FE6CDF43DD89EDF9D6E3653E5320FE0608CB5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1143228   (637469) от 17.06.2017
+
+VA - Empire Records - Space Disco 3 (2017) [MP3|320 Kbps] <House, Nu-Disco>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_637469.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Natasha Baccardi - Voices (Dub Mix)  5:51
+02.  Platinum Monkey - Heavenly Garden (Original Mix)  5:56
+03.  Tube & Berger feat. Kingdom - Burning Road (Original Mix)  5:07
+04.  Kris O'Neil & Eric Rose - Heroic (Haxxy Remix)  5:15(   Читать дальше...   )Жанр: House, Nu-DiscoПродолжительность: 01:54:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9BD9D29264588E66DCFD05BB3D960871B1D1BBD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1033515   (636342) от 12.07.2016
+
+VA - Generation Trance Shadows (2016) [MP3|320 Kbps] <Trance, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_636342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kyau & Albert -  Be There 4 U (Ferry Tayle Radio Edit) 3:06
+02. Project 8 -  Injector (Original Mix) 7:00
+03. Jorn Van Deynhoven -  Flashback 3:15
+04. Sean Tyas & Darren Porter -  Relentless (Extended Mix) 6:56(   Читать дальше...   )Жанр: Trance, Energy, ProgressiveПродолжительность: 03:33:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FA1D4F440F9A401A4AA67B85B3C4BF30B6FB15A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1033761   (636274) от 12.07.2016
 
 VA - These Are Tuned 235 One Shots (2016) [MP3|320 Kbps] <House, Trance, Dance>
@@ -698,76 +756,6 @@ VA - Vocal Trance Collection Vol. 135 (2015) [MP3|320 кб/с]<Trance, Vocal Tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:170C8CE10A0CC38AC2BC93BAF8EB86A0FED52C1B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519882   (633881) от 08.07.2012
-
-VA - Club 86 Recordings Ibiza 2012 (2012) [MP3|320 кб/с]<House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arcuda - Musicbox (Original Mix)
-02. Johny S - Let Your Soul Fly (Original Mix)
-03. Steve Lade - Bongo Drums (Chantola Remix)
-04. Neo Neo - The Way Of The Cobra (Original Mix)
-05. Aurinkovuo - Sunday Massive (Original Mix)
-06. Timothy Night - Saft (Original Mix)
-07. Tallzzy - Do Not Disturb It (Original Mix)
-08. Kajis & Lade - Frisco (Klaukenberg Remix)
-09. Burdan - Back & Forth (Original Mix)
-10. Saarre - Wood & Pecker (Original Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 02:51:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5CA78E9D4EA616EC5550D89B061A6B8558488351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 519097   (633880) от 08.07.2012
-
-VA - Passion Paradise (2012) [MP3|320 кб/с]<Trance, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_633880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sean Bay & Tiff Lacey - Moon In The Dark (Original Mix) 05:47
-02. Daniel Ocean & Photographer - Underground (Original Mix) 08:12
-03. Philip Mayer - Bright Eclipse (Original Mix) 07:42
-04. Dave202 - Purple Drops (Radio Mix) 04:13
-05. Aleksey Zhahin - Catching The Time 09:03
-06. Carl Fath - Into The Vortex! 07:11
-07. Digital X - Odyssey (Original Mix) 05:50
-08. Tritonal Feat Jeza - Can't Keep It In (Tritonal Club Mix) 06:40
-09. Daniel Kandi - Insert Generic Title (Daniel Kandi Vs Dennis Pedersen Remix) 06:04
-10. Boxer - Fathom (Ltn Remix) 07:01(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 03:20:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32E33B1E0FD84032B9AAC13DF55FB881C0ED8079
 ```
 
 https://mybot314.ru/tekegram_catalog/

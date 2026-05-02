@@ -1,3 +1,177 @@
+###  Публикация: 1798276   (66640) от 21.05.2025
+
+Charlie Musselwhite - Look Out Highway (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Look Out Highway (3:31)
+02.  Sad Eyes (3:40)
+03.  Storm Warning (4:05)
+04.  Baby Won't You Please Help Me (3:45)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28659F85C6759E588639BDFF536E9CF04C658BE9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798281   (66639) от 21.05.2025
+
+Elles Bailey - Beneath the Neon Glow (Reimagined) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66639.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  1972 (Reimagined) (3:11)
+02.  Ballad of a Broken Dream (Reimagined) (5:17)
+03.  If This Is Love (Reimagined) (3:07)
+04.  Turn off the News (Reimagined) (4:09)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FFB9A7B6A2B67A94A347944316A4A346452746B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798277   (66637) от 21.05.2025
+
+Inka Inka - Reconsider (1992) Special Edition, 2025, [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Roots Reggae, Ska>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66637.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reasoning Heavy (2025 Remaster) [00:04:36]
+02. Tension (2025 Remaster) [00:04:30]
+03. Words (2025 Mix) [00:03:52]
+04. Family Matters (2025 Remaster) [00:05:03](   Читать дальше...   )Жанр: Roots Reggae, SkaПродолжительность: 01:26:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12979D4E76DE1C54010220A838B122BD56A90A95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798602   (66620) от 22.05.2025
+
+Degenerate - Rituals Of Rage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Servitor (03:49)
+ 02 - Xenon Equilibrium (03:24)
+ 03 - The Cult (03:41)
+ 04 - Illuminate (03:31)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C361C53339682D8EECB95A7F04445B4137A08F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798606   (66615) от 22.05.2025
+
+...and Oceans - The Regeneration Itinerary (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66615.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Inertiae (04:30)
+ 02 - Fornyelse i Tre Akter (05:07)
+ 03 - Chromium Lungs, Bronze Optics (04:29)
+ 04 - The Form and the Formless (03:32)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B28AFB8FFCA50E5A203E4CA1F1EC71CEDEB524A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1798604   (66613) от 22.05.2025
+
+Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - A Miracle (05:38)
+ 02 - Stormy (04:26)
+ 03 - Chandelier (04:59)
+ 04 - Don't Fool Me (04:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD0BAEEE4399FE2CB6AF34D389923B11F5C6E10
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1798480   (66608) от 22.05.2025
 
 Anoraak - Golden Hour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <synthpop, synthwave, disco>
@@ -569,180 +743,6 @@ A3 V. Neckar - Kdyz Ti Nejsem Hezkej(   Читать дальше...   )Жанр
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:78179059599895D004686FC802C19D04CDB126A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799927   (66321) от 31.05.2025
-
-(hed) p.e. - New And Improved (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Experimental, Hardcore Hip-Hop, Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66321.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Every Breath You Take [00:02:41]
-02. Just Can't Get Enough [00:03:01]
-03. Always On My Mind [00:02:44]
-04. Red Red Wine [00:04:26](   Читать дальше...   )Жанр: Experimental, Hardcore Hip-Hop, MetalcoreПродолжительность: 00:50:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58D8228A5ACD6C37DB65D9E17953F38B3CBE2FCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799917   (66320) от 31.05.2025
-
-Heidi Montag - Heidiwood (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66320.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Thank Me [00:02:17]
-02. Heidiwood (feat. Chase Icon) [00:02:11]
-03. WET HOT SUMMER [00:02:09]
-04. Prototype [00:02:25](   Читать дальше...   )Жанр: PopПродолжительность: 00:56:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BEF8AF6C7C49D90DFEA88861FDECBAC79718A63
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800581   (66280) от 04.06.2025
-
-The Duskfall - Studio Albums (5 releases) (2002-2014) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66280.jpg" />
-</div>
-
-
-###  Подробнее
-
-The Duskfall — шведская метал-группа из Лулео, образованная в 1999 году.2002 - Frailty
-2003 - Source
-2005 - Lifetime Supply Of Guilt
-2007 - The Dying Wonders Of The World(   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 03:21:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F906BF469317365DF56F49634C6531B5C7416A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800850   (66271) от 07.06.2025
-
-СЛОТ - 15 (The Best Of) (2017) [FLAC 24/48|Lossless|WEB-DL|tracks] <Alternative Rock, Nu Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66271.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Хаос (Demo 2002) [3:25]
-02 - Одни [3:12]
-03 - 2 войны [3:45]
-04 - 7 звонков [4:45](   Читать дальше...   )Жанр: Alternative Rock, Nu MetalПродолжительность: 01:13:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B8141F98ACCF2597CC9894058E3644276DDF15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800907   (66257) от 07.06.2025
-
-Ice Nine Kills - I Heard They Kill Live 2 (2025) Live in Lowell 2022 [FLAC 24/48|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66257.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Funeral Derangements (Live in Lowell / 2022) [4:28]
-02 - Wurst Vacation (Live in Lowell / 2022) [3:53]
-03 - Hip To Be Scared (Live in Lowell / 2022) [4:09]
-04 - IT Is The End (Live in Lowell / 2022) [5:06](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, Alternative MetalПродолжительность: 00:48:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7AC83A9DC9AB4B7134EF8E0D2CA93F05F79F1B48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1800977   (66246) от 07.06.2025
-
-Jimmy Barnes - DEFIANT (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66246.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's What You Do For Love
-02. New Day
-03. Beyond the River Bend
-04. Never Stop Loving You(   Читать дальше...   )Жанр: RockПродолжительность: 00:44:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F93DC6ECB307BB72A70815EC1E9C04C61E67F06D
 ```
 
 https://mybot314.ru/tekegram_catalog/

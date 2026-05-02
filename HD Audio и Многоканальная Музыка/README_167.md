@@ -1,3 +1,177 @@
+###  Публикация: 1761223   (103074) от 18.11.2024
+
+Mark Farner - Closer To My Home (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Classic Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103074.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anymore (3:12)
+02. The Prisoner (4:14)
+03. Same Game (2:51)
+04. Facade (3:07)(   Читать дальше...   )Жанр: Classic RockПродолжительность: 00:44:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C041DC2C6FC42CA5DCA4E6EDBEEF7801E69F4858
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761365   (103066) от 19.11.2024
+
+Ernesto J. Ponce - In-Between Times (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103066.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stop, Drop, & Roll (2:40)
+02. Don't Mean a Thing (3:32)
+03. In-Between Times (4:41)
+04. The Last Time (5:35)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:20:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40176D7674E5ADDD5EF334158A8EC7607341311C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761297   (103065) от 19.11.2024
+
+Kreator - Live in Chile (April 2023) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103065.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sergio Corbucci is Dead (Live) (1:00)
+02. Hate Über Alles (Live) (4:03)
+03. People of the Lie (Live) (5:44)
+04. Awakening of the Gods (Live) (1:13)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 01:20:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0D48B918FAD7B4EE9C974F90FD5AC81272D9A5C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761362   (103064) от 19.11.2024
+
+Dreamscapes - Lost and Found (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. A Time for Forgiveness (3:04)
+02. Shattered Vows (3:29)
+03. Lost in This Sadness (2:12)
+04. Emotions on Hold (2:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:37:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29E7335EE00861C2F5D6FE701CF53E493CE89CA6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761370   (103060) от 19.11.2024
+
+Joe Grushecky & The Houserockers - Can't Outrun A Memory (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103060.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is Who We Are (4:12)
+02. Here In '68 (4:37)
+03. Can't Outrun A Memory (4:28)
+04. Just Drive (3:55)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:11:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14F74BB02B0F9B43A68BE9B309D8997566EAC732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1761368   (103059) от 19.11.2024
+
+J. Boss Blues Band - White Cats Play The Blues (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103059.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Baby What You Want Me To Do (4:13)
+02. Steady Rollin' Man (5:21)
+03. It Takes a Lot Of Love, It Takes A Train To Cry (6:33)
+04. I Can't Hold Out (4:36)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D869AA9AEF240DF4ADE6AE84D15517756302E4D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1761323   (103058) от 19.11.2024
 
 Rauw Alejandro - Cosa Nuestra (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop, Reggaeton, R&B, Trap>
@@ -570,180 +744,6 @@ Rival Sons - Pair of Aces, Pt. 1 (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Har
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:289265A2098FA9F0640D77E1D932307E43BF37DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762026   (102998) от 23.11.2024
-
-Crossbone Skully - Evil World Machine (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102998.jpg" />
-</div>
-
-
-###  Подробнее
-
-• 01. Evil World Machine (Extended) (6:11)
-• 02. The Boom Went The Boom (feat. Phil Collen) (3:40)
-• 03. Money, Sex, or God (3:39)
-• 04. Flip The Bird (3:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:51:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9D62A0EAEF0B1424DABEF49A38A7A4ED34013EB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762212   (102970) от 24.11.2024
-
-Егор Крид - Меньше чем три (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Выше облаков [00:02:48]
-02. Время [00:01:50]
-03. <3 / Забудь меня [00:02:39]
-04. Pusto.mp3 [00:02:25](   Читать дальше...   )Жанр: PopПродолжительность: 00:41:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC8FB2C61FB099D43AB6D7C6AD81235EEE399462
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762131   (102969) от 24.11.2024
-
-Father John Misty - Mahashmashana (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative & Indie>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mahashmashana [00:09:19]
-02. She Cleans Up [00:04:26]
-03. Josh Tillman and the Accidental Dose [00:05:12]
-04. Mental Health [00:06:28](   Читать дальше...   )Жанр: Alternative & IndieПродолжительность: 00:50:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CC8E638EC98BD2C4129E036746B28564EEF7087
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762080   (102968) от 24.11.2024
-
-Aeon Gods - King Of Gods (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102968.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sun-God [00:04:00]
-02. King Of Gods [00:04:25]
-03. Aeon Gods [00:05:23]
-04. Babylon Burning [00:05:00](   Читать дальше...   )Жанр: Symphonic Power MetalПродолжительность: 00:45:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD30B040E380C4FD5808D59C9F248ADDF5B578DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762078   (102958) от 24.11.2024
-
-Talia Hoit - Oceans (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Symphonic Metal, Female Vocal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102958.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Castaway [00:03:46]
-02. Unanchored [00:04:23]
-03. Ocean [00:04:25]
-04. Beautiful [00:04:01](   Читать дальше...   )Жанр: Symphonic Metal, Female VocalПродолжительность: 00:44:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA91F0B4E11C16BC58A1D3A731396068B5F325BA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762185   (102955) от 24.11.2024
-
-WoodScream - Studio Albums (4 releases) (2010-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Folk Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102955.jpg" />
-</div>
-
-
-###  Подробнее
-
-WoodScream - фолк-метал группа из Санкт-Петербурга, Россия, основана в 2006 году.2010 - Pentadrama (EP)
-2014 - Octastorium
-2020 - Варево
-2024 - Чёрные птицыЖанр: Folk MetalПродолжительность: 02:10:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F706457ED67CA3E25B467667BBE9EB07109DDA9C
 ```
 
 https://mybot314.ru/tekegram_catalog/

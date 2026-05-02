@@ -1,22 +1,22 @@
-###  Публикация: 514969   (656072) от 26.06.2012
+###  Публикация: 827270   (658385) от 30.05.2015
 
-[Wallpapers] The Best Mixed Wallpapers (25.06.12)
+Middle-earth Shadow of Mordor / Средиземье Тени Мордора (2014) [Ru/Multi] (1.0.1951.27/dlc) SteamRip Let'sPlay [Game of the Year Edition]
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>3
+>>9
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656072.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658385.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+«Средиземье: Тени Мордора» — игра нового поколения, события которой происходят в знаменитом Средиземье. Вас ждет захватывающая история о мести и искуплении. Исполните роль следопыта Талиона, чья семья погибла от рук прислужников Саурона. Талион и сам не избежал жестокой участи, однако Дух отмщения вернул его к жизни и наделил сверхъестественными силами. Теперь вернувшемуся (   Читать дальше...   )Тип издания: SteamRipРазработчик: Monolith Productions, Inc.Жанр: RPG (Rogue/Action) / 3D / 3rd PersonЯзык озвучки: Английский, Французский, Итальянский, Немецкий, Испанский, Бразильский португальскийЯзык субтитров: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский, Бразильский португальскийЯзык интерфейса: Русский, Английский, Французский, Итальянский, Немецкий, Испанский, Польский, Бразильский португальский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:369B252CE2040802656504EBCD99DE35C8CD597F
+magnet:?xt=urn:btih:866B50E7888324FAB58FB2BC085E7B9FC321EA6C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,202 +24,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515860   (656071) от 26.06.2012
+###  Публикация: 340188   (658374) от 28.05.2011
 
-Журнал | Секреты кухни №6 (58) [июнь 2012] [PDF]
-
->>Журналы
->>Домоводство (журналы)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656071.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимый герой «СК» - Михалыч – поделится своим кулинарным опытом, расскажет о том, что происходит в мире кулинарии и, конечно же, даст дельные советы и рецепты.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A25DDE6D129C9942ECE32B13268602C59F2ACFE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 513989   (656068) от 26.06.2012
-
-VA - Caribe - Grandes Êxitos (2011) [MP3|320 кб/с]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656068.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1 - Caribe Hits:Жанр: DanceПродолжительность: 04:22:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C00F98E7BE7C78700A3289DB2F13631433B8D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515715   (656067) от 26.06.2012
-
-Жадность. Рыбный день (2012.06.26) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656067.jpg" />
-</div>
-
-
-###  Подробнее
-
-ЖАДНОСТЬ — производная страха. Помните — скупой платит дважды. «Жадность» — потребительское расследование. Каждый выпуск посвящен группе товаров и услуг, максимально востребованных покупателем. От сосисок до ОСАГО, от перемороженных продуктов до вредного воздействия бытовой химии... «Жадность» рассказывает о том, как не стать жертвой мошенников. Программа «Жадность» не пугает — она помогает быть бдительным! Как выбирать еду, напитки, обувь, одежду, лекарства? Зачем продавцам салатов нужна туалетная бумага, а продавцам мяса — марганцовка? Даже в самых проверенных магазинах можно найти нарушения прав потребителей. «И основа всего этого — жадность, — уверен директор дирекции документально-публицистических программ Михаил ТУКМАЧЕВ. — С одной стороны — это жадность продавца, который стремится из самой гнилой картошки выбить свой рубль прибыли, а с другой стороны — это жадность покупателя, который стремится купить дорогостоящий товар за минимальные деньги. И наша программа каждую неделю будет наглядно показывать и доказывать, (   Читать дальше...   )В выпуске: Что за рыба продаётся в наших магазинах? И почему не стоит покупать рыбные полуфабрикаты и крабовые палочки?Жанр: ТелепередачаПродолжительность: ~ 00:45:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A0BD37E2ECF6D16F8FC6782C082AAEAB5C43E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515508   (656065) от 26.06.2012
-
-VA - Premier League House Vol.7 (2012) [MP3|320 кб/с]<House, Electro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656065.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Max Franklin - Watching (Feat. Dave Watson) - Max Franklin Mix (6:17)
-02. Gabry Sangineto - Sound of Freedom - Provenzano Remix (6:19)
-03. Full House - Blom (5:38)
-04. Etienne Ozborne - Been a Long Time (Feat. Paula B.) - Upjeet Remix (6:30)
-05. Eugene Noiz - Get Up! (Feat. Mc Shayon) - Fine Touch Remix (6:06)
-06. Chris Montana - Music - Sean Finn Remix (6:33)
-07. Daniel Harrison - If (We Go Deep) (5:41)
-08. 2 Limits - This Is What It Is (Feat. Lauren Neko) - Ivan Fillini Remix (5:21)
-09. Jasper Jinx - The Sun - Ibiza Sunset Mix (7:06)
-10. Michael Fall - Ghetto Blaster - A.C.K. & Groovebox Remix (6:36)(   Читать дальше...   )Жанр: House, Electro HouseПродолжительность: 02:10:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:297D8A00FF166AC3886BBEAF21B47BE583C6B0EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 514868   (656064) от 26.06.2012
-
-[Wallpapers]Cool Mixed HQ Colorful Wallpapers 02
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656064.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDE4650FFE863313A798B6DC61A4ECF4ED216CF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515403   (656062) от 26.06.2012
-
-VA - US Hot Top 40 Singles Charts (2012) [MP3|~320 кб/с (V0)]<Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656062.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Gotye - Somebody That I Used To Know [04:04]
-2. Carly Rae Jepsen - Call Me Maybe [03:14]
-3. Maroon 5 - Payphone (Ft. Wiz Khalifa) [03:49]
-4. Fun. Feat. Janelle Monae - We Are Young [04:11]
-5. Nicki Minaj - Starships [03:30]
-6. One Direction - What Makes You Beautiful [03:18]
-7. Flo Rida Feat. Sia - Wild Ones [03:53]
-8. Justin Bieber - Boyfriend [02:52]
-9. Rihanna - Where Have You Been [04:02]
-10. The Wanted - Glad You Came [03:18](   Читать дальше...   )Жанр: DanceПродолжительность: 02:26:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EC01268BA760E71ECC7EA1E3C99699CF46A1759
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515766   (656056) от 26.06.2012
-
-Primal Scream – (I'm Gonna) Cry Myself Blind (1994) CD Single [FLAC|Lossless]<Leftfield, Indie Rock>
+VA - Electro Face (03.05.2011) [MP3|320 kbps]<House, Electro-House>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656056.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_658374.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Primal Scream («Праймэл Скрим») - шотландская рок-группа, основанная Бобби Гиллеспи и Джимом Битти в 1982 году. В отличие от многих других альтернативных групп девяностых, в которых особое внимание уделяется эволюции фундамента, заложенного ещё Sonic Youth, Primal Scream идут по иному пути. По сути, Primal Scream - ревизионеры жанров. Группа комбинирует модные стилевые направления рок-музыки XX века.1. (I'm Gonna) Cry Myself Blind :: 4:32
-2. Rocks :: 3:56
-3. I'm Losing More Than I'll Ever Have :: 4:50
-4. Struttin' (Back In Our Minds) :: 9:55Жанр: Leftfield, Indie RockФормат: CD, SingleПродолжительность: 00:23:11
+Жанр: House, Electro-HouseПродолжительность: 12:11:27
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:404B93B5A7690B47277063A4EA237F9BC935BDC9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -227,219 +50,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515652   (656054) от 26.06.2012
+###  Публикация: 341547   (658364) от 28.05.2011
 
-VA - Lo-Fi light (2012) [MP3|320 kbps]<Lo-Fi|Downtempo>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656054.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Justicious - Rooftops (Original Mix)
-02.Jasmon - Tinka (Original Mix)
-03.Lemongrass - Streets Of Yokohama (Original Mix)
-04.Michiko - Right There (Original Mix)
-05.DJ Karko - Snivam (Original Ambient Version)Жанр: Lo-Fi|DowntempoПродолжительность: 04:34:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA0644B662B0B9379AC9976244A32170141DAD9C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1346111   (656053) от 27.03.2022
-
-Умка на ёлке (2019) WEB-DL [H.264/720p-LQ]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656053.jpg" />
-</div>
-
-
-###  Подробнее
-
-Маленький белый медвежонок с большим сердцем Умка однажды отправился на поиски уехавшего друга. Покинув маму, Умка преодолел долгий путь, но не забыл о своем обещании вернуться домой. Студия «Союзмультфильм» представляет заключительную часть знаменитой зимней мульттрилогии о приключениях самого очаровательного медвежонка на всем Северном полюсе. Пятьдесят лет прошло (   Читать дальше...   )Производство: Россия / СоюзмультфильмЖанр: Детский, Компьютерная анимацияРежиссер: Александр ВоробьевАктеры: Лариса Брохман, Андрей Тенетко...Перевод: Не требуется (русский)Продолжительность: 00:07:17
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539004   (656052) от 27.03.2022
-
-The Rolling Stones - Sticky Fingers (1971) Reissue 1990, Series: Nice Price [FLAC 2.0|192/24|image+.cue] <Blues Rock, Pop Rock, Classic Rock>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656052.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Brown Sugar
-A2 Sway
-A3 Wild Horses
-A4 Can't You Hear Me Knocking(   Читать дальше...   )Жанр: Blues Rock, Pop Rock, Classic RockПродолжительность: 00:46:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539865   (656051) от 27.03.2022
-
-Хоккей. НХЛ 2021-2022. Каролина Харрикейнз - Сент-Луис Блюз (26.03.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656051.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 марта 2022, воскресенье. 03:00 МСК
-Стадион: Энтерпрайз-центр (Сент-Луис, США), 18 096 зрителей (91% при вместимости 19 808)
-Главный судья: Тревор Хансон (Ричмонд, Канада); Главный судья: Гислейн Эбер (Батерст, Канада)Телекомпания: BSMWЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:42:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DFFDA7D2F05DAF6AF3EBCCCDB6944DF936720EDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539953   (656050) от 27.03.2022
-
-Томас Зюндер, Андреас Борта | Во все уши. Про многозадачный орган, благодаря которому мы слышим, сохраняем рассудок и держим равновесие (2020) [FB2]
-
->>Научная и техническая литература
->>Научно-популярная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656050.jpg" />
-</div>
-
-
-###  Подробнее
-
-Томас Зюндер, автор этой книги, провел более 500 свадеб, он диджей. Все 12 лет он обожал свою работу – до тех пор, пока постепенная потеря слуха не стала серьезно сказываться на общем самочувствии: у него начались сильные приступы головокружений прямо на рабочем месте, в самый разгар вечеринок. Поняв, что карьера окончена, Томас направил все силы на изучение небольшого, (   Читать дальше...   )Жанр: Анатомия и физиология, Научно-популярная литератураПеревод: Ю. С. КнышФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:965C98F85F5686B3A71833C3F94650B8B91E3F69
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539282   (656049) от 27.03.2022
-
-Один шанс на двоих / 1 chance sur 2 (1998) BDRip [H.265/1080p] [10-bit]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656049.jpg" />
-</div>
-
-
-###  Подробнее
-
-Тебе — 20 лет, ты красива, с лёгкостью угоняешь машины и только что вышла из тюрьмы. Они — два претендента в твои папаши, легко собирающие «Магнум» с завязанными глазами и имеющие немалый опыт обращения со взрывчаткой. Когда вы вместе — вам не страшны ни французская полиция, ни русская мафия…Производство: Франция / Centre National de la Cinématographie, Les Films Christian Fechner, TF1 Films Production, Union Générale Cinématographique (UGC)Жанр: боевик, драма, комедия, приключенияРежиссер: Патрис ЛеконтАктеры: Жан-Поль Бельмондо, Ален Делон, Ванесса Паради, Эрик Дефосс, Александр Яковлев, Валерий Гатаев, Мишель Омон, Жак Роман, Филипп Маньян, Оливье ПарентиПеревод: многоголосый профессиональный, авторскийЯзык озвучки: русский, французскийСубтитры: русскиеПродолжительность: 01:49:03
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539099   (656048) от 27.03.2022
-
-The Rolling Stones - Exile On Main St (1972) 2LP, Reissue 1983 [FLAC 2.0|192/24|image+.cue|Vinyl-Rip] <Blues Rock, Rock & Roll>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656048.jpg" />
-</div>
-
-
-###  Подробнее
-
-A1 Rocks Off
-A2 Rip This Joint
-A3 Shake Your Hips
-A4 Casino Boogie(   Читать дальше...   )Жанр: Blues Rock, Rock & RollПродолжительность: 01:08:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92D764B8614852AE8D4CF9E037F0249B66EE2618
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539843   (656047) от 27.03.2022
-
-IObit Smart Defrag Pro 7.4.0.114 RePack (& Portable) by TryRooM [Multi/Ru]
+Pedro Del Mar - Mellomania Deluxe 488 (23-05-2011) [MP3|256 kbps]<Trance>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656047.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658364.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Smart Defrag - дефрагментатор, позволяющий довести производительность жёсткого диска до максимально возможной. Созданная на основе новейшего дефрагментирующего механизма фирмы IObit и технологии «дефрагментация диска при загрузке системы», программа Smart Defrag занимает ведущие позиции среди средств дефрагментации. Она не только дефрагментирует файлы, но и грамотно (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+PEDRO DEL MAR IN THE MIX:
+
+01. the 808s - lights out (nick galea remix)Жанр: TranceПродолжительность: 02:01:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81AF611D0A1D8288410E5010523366EA19450C67
+magnet:?xt=urn:btih:1DE636F09C6623648F7A7D1DDA0CC81D40A18125
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -447,26 +78,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1470176   (656046) от 27.03.2022
+###  Публикация: 340950   (658349) от 28.05.2011
 
-Видеть музыку (2014) WEBRip [H.264/720p-LQ]
+Bruno Sanfilippo - Subliminal Pulse (2011) [MP3|320 kbps]<Ambient>
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656046.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_658349.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Видеть музыку - Познавательный мультфильм для детей.
-Эта история о том, как родители привели своих детей на прослушивание классической музыки. И когда наступил антракт, дети не пошли в буфет, а запрыгнули в оркестровую яму. И что тут началось! Дети перепробовали все инструменты, какие то из них даже сломали. Но тут явился сверчок - Антонио Иннокентьевич Сверчинский! (   Читать дальше...   )Производство: Россия / Метроном ФильмЖанр: Детский, Рисованная анимация, РазвивающийРежиссер: Елена КурковаСубтитры: АнглийскиеПродолжительность: 00:26:00
+01. The Third Geometry (5:42)Жанр: AmbientПродолжительность: 01:06:24
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:F3C89405AE8AC1FF972090E32F2C40F549F587CF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -474,25 +104,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539954   (656045) от 27.03.2022
+###  Публикация: 341024   (658305) от 28.05.2011
 
-Я - Четвёртый / I Am Number Four (2011) BDRip [H.264/1080p-LQ]
+VA - Ibiza Summer Trance (2011) [MP3|320 kbps]<Trance>
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656045.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_658305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обычный с виду подросток Джон Смит на самом деле - один из последних выживших обитателей далёкой планеты. Джон вынужден скрываться от страшных врагов, посланных уничтожить его. Ему приходится менять имена, постоянно переезжая с места на место со своим опекуном Генри. В разных городках и в разных школах Джон всегда был новичком без прошлого, но однажды он нашёл место, (   Читать дальше...   )Производство: США, Индия / Bay Films, DreamWorks Pictures, Imagenation Abu Dhabi FZ, Media Rights CapitalЖанр: фантастика, боевик, триллер, приключенияРежиссер: Ди Джей КарузоАктеры: Алекс Петтифер, Тимоти Олифант, Тереза Палмер, Дианна Агрон, Каллэн МакОлифф, Кевин Дюран, Джейк Эйбел, Джефф Хочендонер, Патрик Сибис, Грег ТаунлейПеревод: ДублированныйСубтитры: Русские (forced, full), английскиеПродолжительность: 01:49:34
+01. Sebastian Weikum - Adem (Original)Жанр: TranceПродолжительность: 02:21:07
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:36123C546618CD567F8C76FFD06CC73E340DD3CA
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -500,28 +130,502 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539844   (656044) от 27.03.2022
+###  Публикация: 514584   (658299) от 24.06.2012
 
-Kraftwerk - Remixes (2022) 2CD [FLAC|Lossless|tracks + .cue] <Electronic, Synthpop>
+VA - TMP: Clear Sky 077 (2012) (2012) [MP3|320 кб/с]<Trance, Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658299.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Sean Bay - At The End Of The World (Sean Bay Remix)
+002. Steve Brian & Cressida - Cambodia (Original Mix)
+003. Scott Lowe & Duncan Brewer feat. Dan Winter - City Lights (Original Mix)
+004. Soulforge - Ferris Wheel (Original Mix)
+005. Rene Ablaze feat. Synthesia - Inner Touch (Verum Remix)
+006. Rene Martens - Point of No Return
+007. Solarstone - Ultraviolet (Tucandeo Dream Mix)
+008. Ronny K. - Unstoppable (Original Mix)
+009. Richard Durand feat. Progressive Brothers - Veda (Richard Durand vs. the World Collab Mix)
+010. Running Man - Your Rules (Original Mix)2012Жанр: Trance, Vocal TranceПродолжительность: 01:18:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96960CE151F2C6FBB3A85223523B664CD2B17CD2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514565   (658298) от 24.06.2012
+
+Газета | Готовим вкусно № 2 [2012] [DJVU]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658298.jpg" />
+</div>
+
+
+###  Подробнее
+
+"Готовим вкусно" - газета для тех, кто любит вкусно приготовить, вкусно поесть, вкусно угостить друзей. Красочное издание для радушных хозяек. В нем рассказывается, как принимать гостей и сервировать стол. В каждом номере кулинарные рецепты изысканных и повседневных блюд.2012Формат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E2084E168FD1A7E7ED220D26FBC0D3A74CAF2D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514190   (658296) от 24.06.2012
+
+Veronica Falls - Veronica Falls (2011) [MP3|279-310 кб/с]<Indie, Indie Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658296.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Found Love In A Graveyard
+02. Right Side Of My Brain
+03. The Fountain
+04. Misery
+05. Bad Feeling
+06. Stephen
+07. Beachy Head
+08. All Eyes On You
+09. The Box
+10. Wedding Day(   Читать дальше...   )Жанр: Indie, Indie PopПродолжительность: 00:36:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D897E9C5D8967EE9066AEA4356CDA510D1FDE93C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514589   (658295) от 24.06.2012
+
+VA - Trance Desire Volume 21 (2012) (2012) [MP3|320 кб/с]<Vocal Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658295.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Andrew Rayel - 550 Senta (Aether Mix)
+002. Andy Woldman vs. Nicole Ambresi & DJ Leo D feat. Kuku Sky - Always (Shane Cross Remix)
+003. Pedro Del Mar & illitheas - Bahia Del Sol (Illitheas Mix)
+004. Ana Criado - Can't Hold Back The Rain (Stuart Trainer Remix)
+005. Lost Witness vs. Antillas & Dankann feat. Sarah Jane Neild - Chasing Rainbows (Antillas & Dankann Dark Mix)
+006. tyDi feat. Protoculture & Meighan Nealon - Criminal (Album Mix)
+007. ATB feat. Melissa Loretta - If It's Love (Jeziel Quintela, Jquintel & Manufactured Superstars Remix)
+008. Coldplay feat. Raphael Pujol - Paradise (Mike Foyle & X-Vertigo Vocal Mix)
+009. Goldenscan - Sunrise 2011 (Original Mix)
+010. Full Tilt feat. Deirdre McLaughlin - Surrender (Original Mix)2012Жанр: Vocal TranceПродолжительность: 01:08:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C05334E38E03AEB7697F0DEA40C3C5177B3A5329
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514514   (658292) от 24.06.2012
+
+Байя / Baja (1995) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658292.jpg" />
+</div>
+
+
+###  Подробнее
+
+После сделки с наркодельцами запахло жареным и парочка молодых людей отправляются в бега. Но в небольшом мексиканском городке Баха их настигает хладнокровный наемный убийца и начинается смертельная игра…Жанр: Триллер, Драма, КриминалРежиссер: Курт ВоссАктеры: Молли Рингуолд, Донал Лог, Крис Ширер, Нельсон Лион, Майкл Никлз, Корбин Бернсен, Вейн Дюваль, Карен С. Греган, Лэнс ХенриксенПеревод: Профессиональный (двуголосый, закадровый)Продолжительность: 01:28:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C00284007CB7183CF4D4CE6B8A29FFA63DEE94F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514340   (658290) от 24.06.2012
+
+VA - Зарубежные клубные новинки vol.23 (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658290.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Addict DJs feat. Ellenyi - Walk Away (Original Mix) (7:00)
+02. Alfred Rooseniit & Carl Hedstrom - Rise (Original Mix) (5:33)
+03. Andrew Bennett & Strobe - Magnolia (Original Mix) (7:07)
+04. ATB feat. Ramona Nerra - Never Give Up (Club Mix) (6:44)
+05. Audien Ft. Ruby Prophet - These Are The Days (Original Mix) (6:30)
+06. Brown Sugar - Let The Bass Kick (Original Mix) (6:36)
+07. Carita La Nina & Mark Simmons - That Melody (Original Mix) (6:22)
+08. Chuckie & Promise Land feat. Amanda Wilson - Breaking Up (Original Club Mix) (6:18)
+09. Cutee B feat. Jarell Perry - Fantasy (Bob Sinclar Remix) (6:19)
+10. Dimitri Vangelis & Wyman - Russia (Original Mix) (6:26)2012Жанр: Club, DanceПродолжительность: 04:42:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FACD14430E18F40A108619B8900D3F29FDD3A6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514379   (658289) от 24.06.2012
+
+DJ Kocmoc - Euphoria Summer Dance vol.2 (12.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658289.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Daddy Yankee vs Dave Kurtis vs Luca Cassani - Everybody Gasolina (CDJ Slider Mash-Up)
+ 2. Lowboys - Wind Of Change (Original Mix)
+ 3. Adele - Rolling In The Deep (Emelyanov & Stitch Bootleg)
+ 4. Daniel Portman & Stanley Ross - The Flow (Original Mix)
+ 5. Depeche mode-Enjoy the silence (Dj Martynoff mashup)
+ 6. Jennifer Lopez & A-One - Get Right (Dj Shummi Mash-Up)
+ 7. Britney Vs. Maison & Dragen - Criminal De Janeiro (Elkana pAz Mash-Up)
+ 8. Martin Solveig - Ready 2 Go (Tamudo's ''World'' Mash-up)
+ 9. Electro Music Shop - Kinky Girl (Club Mix)
+ 10. Erick Decks, DJ Sign & Felice - Running 2012 (Felice House Mix)(   Читать дальше...   )12.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17B33B2A0F71FFE3DC8B91460AD2EE5B2B3EA542
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514576   (658288) от 24.06.2012
+
+Газета | Сеньор Помидор №6 [июнь 2012] [PDF]
+
+>>Журналы
+>>Домоводство (журналы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658288.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Сеньор Помидор» - издание о выращивании томатов. Большинство статей выпуска посвящено органическому земледелию – это не дань моде, а необходимость восстановить естественное плодородие.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94C639A72534E1CC17395D07A7B64F7DF6CD3EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514383   (658286) от 24.06.2012
+
+DJ Kocmoc - Euphoria Summer Dance vol.3 (21.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658286.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Dj Sergey Fisun - Aura
+ 2. Chris Montana Ely Yabu - Rehab (Kutalek Biedermann Remix)
+ 3. Alex Tasty - Sweet Truth (Original Mix)
+ 4. Jose Uceda - Lost & Alone Song Of Valikirien Feat Lily Day (Original Remastered Mix)
+ 5. Jefferson Airplane & Dj Martynoff - Somebody ( Dj Armilov & Dj S-Nike Mash Up )
+ 6. Erick Decks - Daft Disco (Brown Sneakers Remix)
+ 7. Alen Sforzina - Ur Funk (Original Mix)
+ 8. Eddy Wata - I Like The Way (Danny Burn & Sasha Gulin Bootleg Rework)
+ 9. Duffy - Well, Well, Well (Artistic Raw Bootleg)
+ 10. Denny Berland & Dawn Tallman - Happiness (Club Mix)(   Читать дальше...   )21.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6140A8F3674F56AA9A7429199AA44FFE2D7B2287
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514378   (658283) от 24.06.2012
+
+DJ Kocmoc - Euphoria Summer Dance vol.1 (9.06.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658283.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Linkin Park - What I've Done (Dj Fisun Remix)
+ 2. Rihanna - We Found Love Luis Erre Found The Love Klub Mix (Get-Tune.net)
+ 3. Avicii - Levels (Sprtn Remix)
+ 4. David Guetta - The World Is Mine (Dj Solovey Remix 2012)
+ 5. Ian Carey & Rosette Feat. Timbaland & Brasco - Amnesia (Firebeatz Remix)
+ 6. Erick Decks, Dj Sign & Felice - Running 2012 (Dj Sign Dirty Bass Mix)
+ 7. Daniel Harrison - House Thang (Dave Kurtis Remix)
+ 8. Electric Soulside - Somewhere In Nevada (Mike Balance Remix)
+ 9. Michel Telo - Ai Se Eu Te Pego (Andre Rizo & Sebastian Crayn Remix)
+ 10. Nikola Vujicic - She Was Made For Dancin (Muzikfabrik Remix)(   Читать дальше...   )9.06.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:14:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDC6FE3866E5F126640ED9A97FEE1BB04821E1DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513540   (658282) от 24.06.2012
+
+VA - Arisa Audio Goes Ibiza Vol.1 (2012) [MP3|320 кб/с]<Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Evan London - Desire (Domenico Cascarino & Luca Lombardi Chillout Mix)
+02. Tucandeo - Blue Shores (Mango pres Shoreliners remix)
+03. Ciro Visone - Midnight (Type Ibiza Remix)
+04. Vitodito - Napoli (Sunn Jellie Remix)
+05. Total Sound - Temptation
+06. Invisible Sounds - In The Summer
+07. Vitodito - Ancient Whisper (Luiz B Remix)
+08. Sunset - Beautiful Life (Dmitry Bessonov Remix)
+09. Plathysma - Para Siempre (Invisible Sounds Remix)
+10. Ciro Visone - Immenso (Luca Lombard mix)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 03:19:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07F2E5A85C89C3606669A0DD2F2C5A7A192F7969
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139760   (658281) от 04.06.2017
+
+Баскетбол. НБА 2016-2017. Восток. 1/2 Финала. 6-й матч. Вашингтон Уизардс – Бостон Селтикс (12.05.2017) IPTV [H.264/1080p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658281.jpg" />
+</div>
+
+
+###  Подробнее
+
+13 мая 2017, суббота. 03:00 МСК
+НБА 2016-2017. Восточная конференция. Плей-офф.
+1/2 Финала. 6-й матч
+Вашингтон Уизардс – Бостон Селтикс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: Русский, АнглийскийСубтитры: отсутствуютПродолжительность: 02:32:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75F5E1F4EA22223AE5B2DBE1FDE040F1B6273E1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139718   (658280) от 04.06.2017
+
+Волейбол. Чемпионат мира среди клубов 2017. Женщины. Группа A. 2-й тур. Хисамицу Спрингс (Япония) — Динамо (Россия) (10.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658280.jpg" />
+</div>
+
+
+###  Подробнее
+
+10 мая 2017 года
+Чемпионат мира среди клубов 2017. Женщины. Предварительный раунд
+Группа A. 2-й тур.
+Хисамицу Спрингс (Кобе, Япония) — Динамо (Москва, Россия)(   Читать дальше...   )Телекомпания: Матч ТВ HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:23:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FACF2BDC2DE15450405B594DC95E51F01A5D976
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139745   (658279) от 04.06.2017
+
+Баскетбол. НБА 2016-2017. Восток. 1/2 Финала. 5-й матч. Бостон Селтикс – Вашингтон Уизардс (10.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658279.jpg" />
+</div>
+
+
+###  Подробнее
+
+11 мая 2017, четверг. 03:00 МСК
+НБА 2016-2017. Восточная конференция. Плей-офф.
+1/2 Финала. 5-й матч
+Бостон Селтикс – Вашингтон Уизардс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:40:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC9103114BEB5969C29C49C71CE15DB439EB6FC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140003   (658278) от 04.06.2017
+
+Die Entweihung - The Hallucinations (2010) [FLAC|Lossless|image + .cue] <Raw Depressive Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658278.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Life Has No Right To Be
+02. Reflections About…
+03. A Slumber Did My Spirit Seal
+04. The HallucinationsЖанр: Raw Depressive Black MetalПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3AE7D4F94C382879F26269D57EA197CFB6B64535
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140163   (658277) от 04.06.2017
+
+VA - Strong Stuff (2017) [MP3|320 Kbps] <Progressive House>
 
 >>Electronic
->>Synthpop, New Wave (Lossless)
+>>House
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656044.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658277.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Треклист CD1:
-01. Non Stop
-02. Robotnik (Kling Klang Mix)
-03. Robotronik (Kling Klang Mix)(   Читать дальше...   )Жанр: Electronic, Synthpop |Продолжительность: 02:05:44
+01. Following Light - Intention (Michael A Remix) 06:29
+02. Magnetic Brothers - Morning Feelings (K Nass Remix) 07:03
+03. Ewan Rill - Scanners 06:32
+04. Platunoff - Secret 07:09(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:51:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:86F622E9831D324EF8A1796FC4A9E2C2DEB85542
+magnet:?xt=urn:btih:E2D90A49FBCEF789A7FB01FDF54F1060A0A8AF8B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -529,25 +633,86 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539857   (656043) от 27.03.2022
+###  Публикация: 1139995   (658276) от 04.06.2017
 
-InControl 1.0.2 Portable [En]
+VA - Lounge System Vol.4 (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658276.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Acqua Panna - Too Much Heaven 4:12
+02.  Oscar Walker - Reflex (Beach Edit) 3:12
+03.  Richie Alverez - One More Time 5:30
+04.  Jack Funk - Best Love 11:33(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:14:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F65B350CC108A25399FA1437F36F73C8D40F509
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139989   (658275) от 04.06.2017
+
+VA - Endless Music - Balearic Ibiza Grooves Vol.2 (Compiled By Paul Lomax) (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658275.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Oceanvs Orientalis - Revenge Of The Wankers 9:04
+02.  Matt Correa - Euphony (feat. Alexey) 6:46
+03.  Mika Olson - What I Need (feat. Jermaine Fleur) 7:35
+04.  Popart - Florescent Love (Miguel Campbell Remix) 5:43(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:05:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DEDE6973BF019D5D55384FA856C9077C1856141
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139755   (658274) от 04.06.2017
+
+Баскетбол. НБА 2016-2017. Запад. 1/2 Финала. 6-й матч. Хьюстон Рокетс – Сан-Антонио Спёрс (11.05.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656043.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658274.jpg" />
 </div>
 
 
 ###  Подробнее
 
-InControl контролирует систему автоматического обновления/апгрейда Windows и предотвращает автоматическое обновление вашей версии Windows. Microsoft любит подгонять обновления функций для своей ОС и все настойчивее просит пользователей наконец-то бесплатно перейти на Windows 11. Однако, поскольку это не всегда желательно, вы можете предотвратить обновление с помощью (   Читать дальше...   )Язык интерфейса: Английский
+12 мая 2017, пятница. 03:00 МСК
+НБА 2016-2017. Западная конференция. Плей-офф.
+1/2 Финала. 6-й матч
+Хьюстон Рокетс – Сан-Антонио Спёрс(   Читать дальше...   )Телекомпания: Viasat Sport HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:32:43
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:908B8BD680D04FF9E1CF35709381C16ABD46709F
+magnet:?xt=urn:btih:9E99B50FB1F7667BE5A7902C9664FA953B856633
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -555,160 +720,55 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539869   (656042) от 27.03.2022
+###  Публикация: 1139886   (658273) от 04.06.2017
 
-Хоккей. НХЛ 2021-2022. Эдмонтон Ойлерз - Калгари Флэймз (26.03.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>Спорт и активный отдых
->>Хоккей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656042.jpg" />
-</div>
-
-
-###  Подробнее
-
-27 марта 2022, воскресенье. 05:00 МСК
-Стадион: Скотиабанк Саддлдом (Калгари, Канада), 19 289 зрителей (100% при вместимости 19 289)
-Главный судья: Горд Дуайер (Галифакс, Канада); Главный судья: Крис Ли (Сейнт Джон, Канада)Телекомпания: CBCЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9C9067B44C13EDC4634AFE3775D7563D999F647
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539697   (656041) от 27.03.2022
-
-Это случилось в милиции (1963) TeleCine [H.264/1080p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Отечественные Фильмы (HD, FHD, UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656041.jpg" />
-</div>
-
-
-###  Подробнее
-
-Николай Васильевич Сазонов всю жизнь работает в милиции. Начальство ценит его за прошлые заслуги, а кадровик считает, что майору пора уходить на пенсию. Новое дело, за которое берется Сазонов, многим сослуживцам кажется безнадежным: он пытается разыскать человека, который пропал во время блокады Ленинграда 18 лет назад…Производство: СССР, МосфильмЖанр: драмаРежиссер: Виллен АзаровАктеры: Всеволод Санаев, Марк Бернес, Вячеслав Невинный ст., Александр Белявский, Олег Голубицкий, Зоя Фёдорова, Вова Дубинский, Валентина Владимирова, Сергей Курилов, Лидия Смирнова, Владимир МуравьёвПродолжительность: 01:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37D9F5708BBC6A2EA602B46B0312D417FAA266C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539902   (656040) от 27.03.2022
-
-Хищники Атлантиды / I predatori di Atlantide (1983) BDRip [H.264] [VO]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656040.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главные герои отправляются путешествовать на яхте и в море проходят страшную бурю. Вернувшись на берег они узнают, что на Флориду обрушилось цунами, а тихий спокойный городок теперь выглядит так, будто там разверзлись врата ада - сожжённые и разрушенные дома, все жители безжалостно истреблены. Разгадка не заставила себя долго ждать: на улицах появляется банда до (   Читать дальше...   )Производство: Италия, Филиппины / Regal Films, Regency ProductionsЖанр: Фантастика, БоевикРежиссер: Руджеро ДеодатоАктеры: Кристофер Коннелли, Джойа Скола, Тони Кинг, Стефано Мингардо, Иван Рассимов, Джанкарло Прати, Брюс Барон, Джордж Хилтон, Майк Монти, Микеле СоавиПеревод: Одноголосый любительский, С. ЛебедевСубтитры: АнглийскиеПродолжительность: 01:32:23
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539808   (656039) от 27.03.2022
-
-Московские каникулы (1995) VHSRip [H.264]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656039.jpg" />
-</div>
-
-
-###  Подробнее
-
-Богатая итальянка Лучана Фарини едет в Россию на родину предков, где хочет похоронить свою любимую собачку. Легкая детективная интрига, нелепости российского быта и... любовь с первого взгляда.Производство: Россия, Flite Bank, Мавр, Роскомкино, TVT Corporation, Здункевич и КоЖанр: мелодрама, комедияРежиссер: Алла СуриковаАктеры: Ирина Селезнёва, Леонид Ярмольник, Наталья Гундарева, Олег Табаков, Армен Джигарханян, Леонид Якубович, Александр Адабашьян, Михаил Мишин, Марина Дюжева, Сергей Никоненко, Наталья КрачковскаяПродолжительность: 01:27:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538929   (656038) от 27.03.2022
-
-Eric Bibb - Blues, Ballads & Work Songs (2011) [DSD64 2.0|1bit/2822,4kHz |SACD-R] <Folk blues>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656038.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Goin' Down the Road Feelin' Bad 3:07
-02. John Henry 3:53
-03. Take This Hammer 3:07
-04. Cocaine Blues 2:38(   Читать дальше...   )Жанр: Folk bluesПродолжительность: 00:48:20
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539747   (656037) от 27.03.2022
-
-R-Studio Network Edition 9.0 Build 190296 RePack (& portable) by TryRooM [Multi/Ru]
+Meta 1.6.6 [Multi]
 
 >>Архив торрентов
->>Архив Программ
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656037.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658273.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Восстановление возможно даже в случаях, когда разделы диска были повреждены или удалены, а также в случаях, когда диск был отформатирован, использовалась команда FDISK, был поврежден MBR, данные потеряны в результате атаки вирусов. Есть возможность создания имиджа диска для дальнейшего восстановления данных. Воссоздает поврежденный RAID. Возможность восстановления (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+Meta поможет Вам управлять постоянно растущей коллекцией цифровой музыки.
+С Meta вы можете легко редактировать информацию, такую как автор песни, название, альбом, обложки альбома и т.д. Он поддерживает редактирование большинства аудио форматов, такие как MP3, MP4, M4A, FLAC, OGG, OGA, SPX, WAV, AIFF, и разнообразие форматов метаданных, включая ID3v1, ID3v2.3, ID3v2.4, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03 июня 2017Разработчик: Benjamin JaegerПоддерживаемая ОС: OS X 10.8+Язык интерфейса: Английский, Французский и Немецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C74311B0F9D6D85207DBC1784AC55176D5B34E5
+magnet:?xt=urn:btih:752DAA5F42619237761B0ADD90909C9A2666033F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140010   (658272) от 04.06.2017
+
+VA - Monaco Night Tales - The Best Of Mediterranean Chillout Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Electronic
+>>Easy listening
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658272.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Santo Smokes - Sunset Surf 5:54
+02.  Amakipkip - Royal Summer Lounge 5:28
+03.  Ambient Grooves - Marina Cruise 5:39
+04.  Dragonfly - Rue Des Fleurs 3:29(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 02:38:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0BF3413835671A293BF8B8B34F09DBE2682F4B58
 ```
 
 https://mybot314.ru/tekegram_catalog/

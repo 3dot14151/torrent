@@ -1,3 +1,119 @@
+###  Публикация: 1440254   (1039017) от 16.01.2021
+
+Ngguitarboy Project Band - Ten Years (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039017.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Clouds on Me (5:00)
+02. Steps (2:54)
+03. Listen (3:42)
+04. She (5:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:938056BD73B7DD29B327FE0C44D65C7C17CBEA1F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440250   (1039013) от 16.01.2021
+
+Michael Allman - Blues Travels Fast (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039013.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blues Travels Fast (4:22)
+02. Goin' Back to Daytona (4:32)
+03. New Minglewood Blues (4:20)
+04. Midnight Blues (3:23)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966D10DC9B5209A10447F1A4DC6B1456C45AC114
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1440233   (1038992) от 16.01.2021
+
+Brad Palmer - Street Sessions Vol. 3 (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038992.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Risin' Moon (5:04)
+02. 'Bout the Break of Day (6:26)
+03. Catalina (6:32)
+04. Won't Let the Blues (5:13)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:57:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4544D69B91E6296BC10573F62E48C4BFEBE60476
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1614317   (1038825) от 21.02.2023
+
+Imperial Crowns - The Calling (2016) [FLAC|Lossless|image + .cue] <Blues, Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1038825.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Gotta Right (3:16)
+02. The Calling (3:41)
+03. Grace Under Pressure (5:04)
+04. Wasn't Love At First Sight (4:37)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:49:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:425955931A5E36BDF1E5ECD42F4DD272497E9110
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1440227   (1038737) от 17.01.2021
 
 Andy Lindquist - Blues Soul Groove (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Laura Cox - Head Above Water (2023) [FLAC|Lossless|image + .cue] <Blues Rock, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D3C6F5F289C624D77977C15035EC19324033AEF3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1617149   (1035292) от 06.03.2023
-
-Among Lynx - Once In A Blue Moon (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Female Vocal>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035292.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Put Your Love In Me [00:03:42]
-02. Someone's Gotta Go [00:03:22]
-03. The Bridge [00:04:43]
-04. Once In a Blue Moon [00:04:49](   Читать дальше...   )Жанр: Blues Rock, Female VocalПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6B353EE5BAB698EC3D7577CB501C73E7D302192
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443901   (1034890) от 31.01.2021
-
-Beiztegui - Back to Groove Town (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034890.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Sweet Liquor (feat. Manuel Moreno Garrido)  [3:08]
- 2. It's Hurt to Live Keeling Down Before This Scum [3:36]
- 3. Dog and Cat Blues [2:32]
- 4. Hot Stew Blues (feat. Antonio Mellado Sánchez) [3:09](   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:25:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D926076490144F9969F852CCC4C85EF20C1FAEDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443909   (1034880) от 31.01.2021
-
-Cotton Belly's - Kingfisher's Session (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034880.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tried (3:47)
-02. I Won't Lie (6:54)
-03. Wild Camels (4:11)
-04. Nineteen Forty Nine (4:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:31:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C8396449815729D9802A653A7B7018FDE5E0AC4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1443905   (1034879) от 31.01.2021
-
-Black Ink River - Through the Unknown (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034879.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through the Unknown (1:06)
-02. Sulphur Sky (Album Remix) (2:30)
-03. No No No (Album Remix) (4:18)
-04. Midnight Cowboy (6:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBEC960CBD145B3F19EB33918991AEF774AC7FB8
 ```
 
 https://mybot314.ru/tekegram_catalog/

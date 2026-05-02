@@ -1,3 +1,61 @@
+###  Публикация: 1113921   (835304) от 13.03.2017
+
+VA - Yoga Springtime Relaxation: Best of Chillout and Beach Cafe Music (2017) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835304.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcade Lounge - Angels - Faith in Love Mix
+02. System of Prime - Riding the Waves - Miami Now Mix
+03. Helen Taylor - Ibiza Del Mar - Lights Down Low Mix
+04. Off The Road - Slowmotion - A Reason to Shop in Pink Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:09:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D1F944750205310FBE38E3E7CC684BD5C1053D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1501596   (835197) от 10.10.2021
+
+VA -  Motown In the Mix (Classic Mixes) Vol.6 (2021) [MP3|320 Kbps] <Electronic, Funk, Soul, Disco, Dance-pop>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_835197.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marvin Gaye - Cellarful Of Marvin Mix (Rod Layman Mix)
+02. Lionel Richie & Trijntje Oosterhuis - Face In The Crowd (Lucien Vrolijk Overcrowded Remix)
+03. Various - Retro Mix 5 - Steve Wonder (Kevin Sweeney)
+04. Various - Motown Funk Disco Mix (Mixed By Rod Layman)(   Читать дальше...   )Жанр: Electronic, Funk, Soul, Disco, Dance-popПродолжительность: 01:16:14 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BEA1FF98EAA436F43AA93547E9D29BD4B24A98C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1501532   (835124) от 10.10.2021
 
 VA - Record Super Chart 09.10.2021 [MP3|320 Kbps] <Pop, Dance>
@@ -691,64 +749,6 @@ VA - Miami Beach Weapons (2016) [MP3|320 кб/с] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5EB73D5245A0A98196402B12A4104E8283BAEC51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005395   (832829) от 09.04.2016
-
-VA - Lounge Music for Your Senses (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832829.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don Gorda Project - Mild and Quiet
-02. Enrico Donner - Deep Rooted
-03. Oscar Stringz - I Miss You Michael
-04. Cane Garden Quartet - Love Goddess(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:28:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B39DAACA8127BDCF5D37C051AF9F18CFEC58C802
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1005353   (832465) от 09.04.2016
-
-VA - Workout Mix vol.4 (mixed by Dj V) (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive House, Trap>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_832465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01-The Black Eyed Peas  - Lets Get It Started (PRIDE & CHIPPON Remix)
- 02-Dr. Dre & Snoop Dogg ft. San Holo vs Maz & Rascal - Next Talking (Krasovsky Mash Up)
- 03-Kolya Funk & Eddie G vs BrainDeaD - Spread Out (JOHN ROCKS & DIMA HOUSE MASH UP)
- 04-Teo Moss x Party Favor - Booty Loose (Yuri Rider & Dj Alex Trapleg)(   Читать дальше...   )Жанр: Club House, Electro House, Progressive House, TrapПродолжительность: 01:00:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B79A2EB27621B86B2001F5BF19D6E3EC215753D3
 ```
 
 https://mybot314.ru/tekegram_catalog/

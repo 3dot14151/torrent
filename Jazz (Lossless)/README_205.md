@@ -1,3 +1,61 @@
+###  Публикация: 1576683   (364281) от 15.09.2022
+
+Espen Eriksen Trio featuring Andy Sheppard - In The Mountains (2022) Rune Grammofon [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_364281.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 1974 [8:42]
+02. Anthem [8:17]
+03. Suburban Folk Song [9:30]
+04. In the Mountains [9:26](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Piano JazzПродолжительность: 01:00:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7C93920FC22507130B92140ABE43A3E4AB93472
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 951420   (363884) от 29.10.2015
+
+Martial Solal Trio - Balade du 10 Mars (1999) /Soul Note/[APE|image+.cue]<Post-Bop, Modern Creative, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Night And Day [05:48]
+ 02.Gang of Five [06:40]
+ 03.Softly, As in a Morning Sunrise [04:54]
+ 04.'Round About Midnight [07:08](   Читать дальше...   )Жанр: Post-Bop, Modern Creative, Piano JazzПродолжительность: 00:48:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52079084C6A1A1F2981F1A9312BBA532EEAFEC36
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951411   (363882) от 29.10.2015
 
 Mark Whitecage's Other Other Quartet - Research on the Edge (1999) /CIMP/[APE|image+.cue]<Avant-Garde Jazz, Free Improvisation>
@@ -685,64 +743,6 @@ Ray Barretto & New World Spirit - Trancedance (2000) 2001, Circular Moves [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4A6F1DF1A0B47BFB0050E0F36A3C887E1E6629C4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417092   (360693) от 19.10.2020
-
-Duke Ellington - Love Songs (1948 - 1962) 2001, Sony Music [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360693.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Satin Doll [2:45]
-02. Do Nothing Till You Hear From Me [3:06]
-03. I Got It Bad (And That Ain't Good) [3:09]
-04. Body and Soul [4:50](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:02:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C2CC603D3DD327DC90ACE700BE49A68B06FAAB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1417185   (360613) от 19.10.2020
-
-Herbie Hancock - Riot: The Newly Discovered Takes from Blue Note Sixties Sessions (1999) Toshiba-EMI [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_360613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Riot (first alternate take) [4:57]
-02. Riot (second alternate take) [4:41]
-03. Blind Man, Blind Man (alternate take) [8:33]
-04. Mimosa (alternate take) [10:07](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58A8B4EB70CC39E576125519F73ECF52A9FE203F
 ```
 
 https://mybot314.ru/tekegram_catalog/

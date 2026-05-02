@@ -1,3 +1,119 @@
+###  Публикация: 1130384   (714050) от 02.05.2017
+
+Deep Purple - Infinite (2017) +6 bonus tracks [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714050.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Time For Bedlam 04:35
+02. Hip Boots 03:23
+03. All I Got Is You 04:42
+04. One Night In Vegas 03:23(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:11:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E2CFED80ABB755D7593449F130FE464DB5F6958
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1129997   (714045) от 02.05.2017
+
+Dire Straits & Mark Knopfler - Private Investigations (The Best Of) (2005) [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714045.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sultans of Swing [05:48]
+02. Love Over Gold [06:18]
+03. Romeo & Juliet [06:00]
+04. Tunnel of Love [08:10](   Читать дальше...   )Жанр: RockПродолжительность: 01:17:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:98F813F2FE58ADAE8A2ECC10C64D6A4F37323394
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219453   (713781) от 14.04.2018
+
+Bonfire - Temple of Lies (2018)  [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. In The Beginning
+02. Temple Of Lies
+03. On The Wings Of An Angel
+04. Feed The Fire (Like The Bonfire)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:09:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:928CCBC9668FA417B96C0D93A44128A2F9D979A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532491   (713105) от 20.02.2022
+
+Enuff Z'Nuff - Hardrock Nite (2021) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713105.jpg" />
+</div>
+
+
+###  Подробнее
+
+Кавер-версии "Битлз"01. Magical Mystery Tour (5:07)
+02. Cold Turkey (4:07)
+03. Eleanor Rigby (4:19)
+04. Live and Let Die (3:52)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C53FA047B3736C0E1891FA8FF9E671834867F97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1532404   (713034) от 20.02.2022
 
 Vega - Anarchy And Unity (2021) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
@@ -630,122 +746,6 @@ DeVicious - Reflections (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B75A5BE1F7365BA2687550CFE3A52487E7D827B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1133037   (697113) от 11.05.2017
-
-Mean Mother - No Rest For The Wasted (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697113.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Rocker (4:48)
- 02. Blackout! (4:02)
- 03. Knife in Hand (5:29)
- 04. Blood in the South (3:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:052936267464B73F16235E2DA6ED4C7ACC4AB373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1156422   (695558) от 17.08.2020
-
-Blindstone / Martin Jepsen Andersen - 11 albums (2003-2020) Discography [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695558.jpg" />
-</div>
-
-
-###  Подробнее
-
-Датское трио , сформированный 2002 в Thisted, Дания. Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Jesper и барабанщика Бенджамина Хова. Они выпустили дебютный альбом группы, «Манифест», в апреле 2003. Хов был заменен Андерсом Хвидтфелдтом в августе 2003. С тех пор группа выпустила в общей сложности 9 альбомов (включая переиздание «Манифеста» и зальный (   Читать дальше...   )--------------------------
-
-01. World Of Trouble (4:27)
-02. Stick To Your Guns (3:29)(   Читать дальше...   )Жанр: Hard Rock, Heavy Blues Rock |Продолжительность: 10:03:20 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CEDD8BA3B01DFE5840343F12B8334CCFE8753166
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534465   (694002) от 02.03.2022
-
-Scorpions - Rock Believer (2022) Deluxe Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694002.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gas In The Tank (3:41)
-02. Roots In My Boots (3:17)
-03. Knock 'em Dead (4:11)
-04. Rock Believer (3:57)Жанр: Hard RockПродолжительность: 01:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:158A5E1B1E3DFD48E453034206FBE5BA9BC6E587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403391   (692349) от 19.08.2020
-
-Tokyo Motor Fist - Lions (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Youngblood (03:29)
-02. Monster In Me (04:33)
-03. Around Midnight (02:48)
-04. Mean It (04:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB682B7BC267BD6C853D816B920F34882B657D17
 ```
 
 https://mybot314.ru/tekegram_catalog/

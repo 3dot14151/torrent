@@ -1,3 +1,206 @@
+###  Публикация: 1135609   (679379) от 20.05.2017
+
+VA - Chris Montana & Dj Soulstar - 20 Years Perfect Lovers (2017) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_679379.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jerome Robins & Dolly Rockers - Everybody Dance (Slideback remix) (04:35)
+02. Mazai & Dolly Rockers - One More Time (original mix) (05:22)
+03. DJ Dan & Jerome Robins - Good For Me (original mix) (06:31)
+04. Carl Hanaghan - Strings Of Life (original mix) (07:00)(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 03:41:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43875797F613FE52C0ACE2928737B09104D8AB8F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029747   (678610) от 28.06.2016
+
+VA - The Best of House on the Beach - 30 Sexy Chillout Tunes (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rockhouse Crew - Love Extensions - Balearic Remix
+02. Patrick Blasa - Loose - Henrik Schwarz Remix
+03. Julia Messenger - Give This Up
+04. Christian Weiland - Tokyo Nights(   Читать дальше...   )Жанр: HouseПродолжительность: 03:16:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:334157F12F5EB5F774F495F8643895994B73C920
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1290575   (678477) от 20.03.2019
+
+Third Party - Together (2019) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Higher
+02. Free
+03. Remember
+04. Together(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C093CDBA6D55F4D79988B57D250F8E76D6AE588A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029663   (678465) от 28.06.2016
+
+VA - Energizing Workout Hits (2016) [MP3|320 Kbps] <House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alex Newell And Jess Glynne And Dj Cassidy - Kill The Lights (Audien Remix)
+02. Andy Vayel - Pleasant Pain (Original Mix)
+03. Anthony Vince - Want To Dance (Radio Mix)
+04. Antoine Clamaran Feat. Lulu Hughes - Hallelujah (Extended Mix)(   Читать дальше...   )Жанр: HouseПродолжительность: 08:20:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CC429F0B588EDC5978087045F327BF3F0867B23
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1029843   (678317) от 28.06.2016
+
+VA - Balkan Connection Summer 2016 (2016) [MP3|320 Kbps] <Deep House, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_678317.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Subconscious Tales - Helligkeit [07:51]
+02. Praveen Achary, Vlada D'Shake - Public Secret (Praveen Achary Remix) [06:48]
+03. Matter, Jorgio Kioris - Pushin' (Matter's Pushin Too Hard Remix) [08:37]
+04. Rick Pier O'Neil, Dio S, Desaturate - Nonchalance (Rick Pier O'Neil & Desaturate Remix) [07:23](   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 06:33:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE67F30AC0A7F5A94C1EDB8D435BD2372476FFD1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1223286   (677395) от 03.05.2018
+
+VA - Mma Cardio Training (2018) [MP3|320 Kbps] <Minimal, Tech House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677395.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Kacper Kirtz - Funkmaster 03:12
+02. Joscha Rickert - Whitesea 03:09
+03. Gilbert Nouls - Honored 03:09
+04. Georg Miller - Formance 03:09(   Читать дальше...   )Жанр: Minimal, Tech HouseПродолжительность: 01:22:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36F2B50D680C8D99252DED011709ED3770D23362
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135935   (677386) от 21.05.2017
+
+Rick Tedesco - Style Clash Vol. 2 (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677386.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Disillusioned  3:51
+2. Afterglow  8:05
+3. Fall Embrace  6:25
+4. West Winds  6:43(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:08:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90141B690DAA36901B7AE8C60F1BFE44BF7849DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135785   (677302) от 21.05.2017
 
 VA - Black Hole House Music 05-17 (2017) [MP3|320 Kbps] <House, Progressive House>
@@ -542,209 +745,6 @@ VA - Miami Deep House (2019) [MP3|320 Kbps] <House, Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0CED4BC7494E6723722D177880B83D4A4A353985
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1291432   (670573) от 24.03.2019
-
-VA - Miami Sessions 2019 (Mixed by Milk & Sugar) (2019) [MP3|320 Kbps] <House, Progressive House, Afro House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_670573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Milk & Sugar - That Body (Original Mix) 5:16
-02. Sugarstarr & GOH feat. Redman & Method Man - I Used To Be (Milk & Sugar Club Edit) 4:48
-03. Seductive Souls feat. Onita Boone - Ain't Nobody (Mousse T.'s Ain't No Good Man Mix) 5:17
-04. Purple Disco Machine - Walls (Original Mix) 6:39(   Читать дальше...   )Жанр: House, Progressive House, Afro House, Electronica, DowntempoПродолжительность: 05:28:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D66902193100372D04D778D7C6F5D5CD2B53DD61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137255   (669407) от 25.05.2017
-
-VA - Stefano Maschio - Deep Lovely Precious Love (2017) [MP3|320 Kbps] <Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669407.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stefano Maschio - Barbacoa (Latin mix) (04:19)
-02. Stefano Maschio - Albatros (04:18)
-03. Stefano Maschio - Black Sheep (Spiritual Soul Cut remix) (03:51)
-04. Spiritual Soul - City Lights (05:12)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 01:51:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0867B48362564E7042CEF99B48B96D645137548
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1136976   (669302) от 25.05.2017
-
-VA - The Art of Electronic Music: Deep House Edition (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CamelPhat - Siren Song - Radio Edit
-02. AMinusLex - Nepal - Radio Edit
-03. E.M.C.K. - Be Yourself - Radio Edit
-04. Paris Avenue - Better Day (In Lifetimes) - Radio Edit(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:04:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B09D0C49D9C2E8BD2B279C47BB4FBEEA3FFF72D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1537142   (669239) от 15.03.2022
-
-VA - Hardstyle XXL Megamix 2022 [MP3|320 Kbps] <House, Club House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_669239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gunz For Hire - Ongedierte van de Nacht
-02. D-block & S-te-fan - Twilight Zone (Headhunterz Remix)
-03. Ran-DSound RushLePrince - We Are the Storm (Radio Edit)
-04. JDXSander Nijbroek - Tides (Performance Mix)(   Читать дальше...   )Жанр: House, Club House, ProgressiveПродолжительность: 03:40:08 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47A58868CFA388DB9301D5083D734F664E711ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031368   (668783) от 03.07.2016
-
-VA - Future House 2016-03 (2016) [MP3|320 Kbps] <House, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668783.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hugel & Jasmine Thompson -  Where We Belong (Calvo Remix) 4:27
-02. Cedric Gervais -  Make Me Feel 3:28
-03. Destructo -  4 Real (Joyryde Swurve Mix) 4:35
-04. Felix Leiter -  BWU 3:07(   Читать дальше...   )Жанр: House, Club HouseПродолжительность: 01:30:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A058B09E24F8EC498082A1FEB316FB84260D315F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1031299   (668782) от 03.07.2016
-
-VA - Girl Power #1 (2016) [MP3|320 Kbps] <House, Electro House, Vocal House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_668782.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Groove Coverage -  Tell Me (Club Mix) 4:05
-02. Vio -  One Girl (Stephan F Extended) 4:45
-03. Deeplow -  Limelight (DJane HouseKat Remix) 4:45
-04. Fucking Role Models -  Leave Me Alone (Feat. Adeena) (Extended Mix) 4:52(   Читать дальше...   )Жанр: House, Electro House, Vocal HouseПродолжительность: 02:38:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99CF45DA0B996397BC7B4CF925C6F858FFC30426
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1137498   (667934) от 26.05.2017
-
-VA - Beach House Anthems Volume 2 (2017) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_667934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sante Cruze - Get So High (feat Sante Cruze) (06:50)
-02. Camilo Franco & Alexandra Prince - World Hold On (extended mix) (06:49)
-03. Crazibiza, Frank Caro & Alemany - Fresh (original mix) (04:46)
-04. Charles J - Corrida (original mix) (04:43)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:52:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD30E4594F98D3C8A9EDAEA698320CC469573AE2
 ```
 
 https://mybot314.ru/tekegram_catalog/

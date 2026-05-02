@@ -1,3 +1,61 @@
+###  Публикация: 1445960   (1033303) от 07.02.2021
+
+VA - Minimal Jam: Techno Clubbing Set (2021) [MP3|320 Kbps] <Minimal, Techno, Tech House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033303.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отличная подборка клубного электро техно от известных ди-джеев европы. Лонгплей наверняка будет интересен поклонникам жанра и просто слушателям, которые находятся в постоянном поиске чего-нибудь нового из мира электронной музыки.001. Jks - Emergence
+002. Lorenzo Colombini - Pasec
+003. Melt - Centrum Beats
+004. Pure Infinity - Pulse(   Читать дальше...   )Жанр: Minimal, Techno, Tech HouseПродолжительность: 11:40:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5C2BB69DF0827DD0C7862B338FC208E1A1F2F2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1445880   (1033301) от 07.02.2021
+
+VA - Flash Dance Hit: Set Electro House (2021) [MP3|320 Kbps] <Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1033301.jpg" />
+</div>
+
+
+###  Подробнее
+
+Неиссякаемое число звуковых инструментальных проигрышей, легкое и не утомляющее звучание глубоких басов и чувственный вокал, которому на альбоме предоставляется не последняя роль. Музыкальный микс "Flash Dance Hit" затронет струны души слушателя своей "танцевальностью" и позитивным настроем.001. Urban Life - Love City
+002. Bart B More And Tai - Night Bus
+003. Superfitness - Only You
+004. Albert Breaker - Birdo(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 09:49:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:222E137E82DC4918EB63615F2A54FDEE7B22EDDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445879   (1033297) от 07.02.2021
 
 VA - Funky House: Crazy Disco Party (2021) [MP3|320 Kbps] <Funky House, Disco House, Dance>
@@ -687,64 +745,6 @@ VA - Beatport Electro House: Sound Pack #244 (2021) [MP3|320 Kbps] <House, Elect
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:89BA96348482BA630222C7B0653C8FED36F5E60A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450194   (1029200) от 25.02.2021
-
-VA - Beatport Deep House: Electro Sound Pack #245 (2021) [MP3|320 Kbps] <Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам интересна глубокая, продуманная музыка, которая балансирует на грани мелодизма и прогрессии, то 245-й релиз от Beatport определенно для вас! Музыка лонгплея безукоризненна полностью в плане инструментала, а каждая композиция имеет четкую структуру и грани, которые в совокупности преподносят интригующую музыкальную картину.001. Alberto Blanco - Dinamica (Original Mix)
-002. Revival Agents - Uphill (Original Mix)
-003. Doki - Astral (Original Mix)
-004. Acin - Clotho (Original Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 11:35:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9C77EDF959A863C06E55E3083D148F1E9AA3039
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1450193   (1029198) от 25.02.2021
-
-VA - Electropop: Event Of The Season (2021) [MP3|320 Kbps] <Electropop, Synthpop, Futurepop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029198.jpg" />
-</div>
-
-
-###  Подробнее
-
-Музыка, где музыкальный синтезатор на все сто процентов в звуковом ряду композиций служит исполнителю. Где вокал и просто музыкальная идея оборачивается в дорогую обёртку звукового сопровождения001. Yello - Big Boy's Blues
-002. John Foxx & The Maths - Last Time I Saw You
-003. Lorenzo Pantani - Meravigliosa Creatura
-004. Stephen Paul Taylor - Dr. Deutschland(   Читать дальше...   )Жанр: Electropop, Synthpop, FuturepopПродолжительность: 10:32:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DB2315345EFCB9D6EF332911F4833147FCCBBDD2
 ```
 
 https://mybot314.ru/tekegram_catalog/

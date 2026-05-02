@@ -1,3 +1,60 @@
+###  Публикация: 941718   (460289) от 28.09.2015
+
+Elvin Jones - In Europe (1991) /2005, Enja/ [FLAC|tracks+.cue]<Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460289.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Ray [17:41]
+02.Doll Of The Bride [32:46]
+03.Island Birdie [13:03]Жанр: Post-BopПродолжительность: 01:03:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EE298CFEE9BD6EA8E8C0C475BEEB83E8DC5492C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 941469   (460288) от 28.09.2015
+
+Karin & Mike Kelleher - Melange (2015) [FLAC|image+.cue]<Vocal Jazz, Classical>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beautiful Pain
+02. Jeannot
+03. Ancka's Dolphin Dance
+04. Black Is The Color(   Читать дальше...   )Жанр: Vocal Jazz, ClassicalПродолжительность: 00:50:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7533EEE9E8047EF7B6FCB35814BA55081AD24ED3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1408043   (460230) от 10.09.2020
 
 VA - Signora Ward Records - Doom Jazz/Dark Jazz/Funeral Jazz vol. 1 (2020) [FLAC|Lossless|Web-DL|tracks] <Doom Jazz, Dark Jazz, Funeral Jazz>
@@ -692,64 +749,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BF7AB554C6F0374C48ADF6209B553E2C435079A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1162622   (456975) от 02.09.2017
-
-Quincy Jones - The Quincy Jones ABC / Mercury Big Band Jazz Sessions (1959 - 1961) 5CD, 2007, Mosaic Records [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456975.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Walkin' [10:42]
-02. A Sleepin' Bee [04:41]
-03. Sermonette [05:58](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 05:38:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28A283E451DB57759AB5FBD4CC5807AE188491B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1408525   (456129) от 12.09.2020
-
-Lionel Hampton - Paris Session (1956) 1989, EMI [FLAC|Lossless|image + .cue] <Mainstream Jazz, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_456129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Panama [6:30]
-02. Blues for Lorraine [6:03]
-03. Genevieve [8:47]
-04. Le Piege [4:48](   Читать дальше...   )Жанр: Mainstream Jazz, SwingПродолжительность: 01:06:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:749C2AF0938A376C64FF5DFF55E6F5430BCDF053
 ```
 
 https://mybot314.ru/tekegram_catalog/

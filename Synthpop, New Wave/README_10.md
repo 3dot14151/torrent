@@ -1,3 +1,32 @@
+###  Публикация: 1266709   (269175) от 03.12.2018
+
+Mi-Sex - 5 Studio Albums (1979-2016) Collection [MP3|320 Kbps] <New Wave, Pop Rock, Synth-pop>
+
+>>Electronic
+>>Synthpop, New Wave
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269175.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ново-зеландская группа новой волны, возглавляемая Стивом Гилпиноном (вокал). Так же в состав вошли Кевин Стэнтон как гитарист и автор песен и Дон Мартин как басист. Популярность получили у себя на родине и в Австралии благодаря таким хитам как "Computer Games", "People". Их первые два альбома достигли в Новой Зеландии топ-10: "Graffiti Crimes" (   Читать дальше...   )Список альбомов:
+1979 - Graffiti Crimes
+1980 - Space Race
+1981 - Shanghaied(   Читать дальше...   )Жанр: New Wave, Pop Rock, Synth-popПродолжительность: 03:18:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BC9D3BD6740E99A7E05526CF7BD9C1003419B8E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1266739   (268389) от 04.12.2018
 
 W O L F C L U B - W O L F C L U B (2017) [MP3|320 Kbps] <Synthpop, New Wave>
@@ -716,35 +745,6 @@ Brian Hamilton - Metro Man (1984) LP [MP3|320 Kbps] <Rock, New Wave, Lo-Fi, Elec
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ED239190475CB134DC124439FBA534BD937657B5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1342077   (227221) от 30.11.2019
-
-Harry Thumann - Andromeda (1982) LP [MP3|320 Kbps] <Electronic, Rock, Synth-pop>
-
->>Electronic
->>Synthpop, New Wave
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227221.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andromeda (7:50)
-02. I'm Happy To Be In The Sun (5:32)
-03. Out Of Tune , Welcome Back, Jolette (7:28)
-04. Bitch (3:38)(   Читать дальше...   )Жанр: Electronic, Rock, Synth-popПродолжительность: 00:36:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:842578BB8B8146B5766DA4A3924198321AB9C4B6
 ```
 
 https://mybot314.ru/tekegram_catalog/

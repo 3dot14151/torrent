@@ -1,3 +1,61 @@
+###  Публикация: 1756262   (103502) от 20.10.2024
+
+The Art Farmer Quartet - To Sweden With Love (1964) 2013, Atlantic [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103502.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Va de du? [5:24]
+02. De salde sina hemman [6:13]
+03. Den motstravige brudgummen [5:53]
+04. Och hor du unga Dora [5:51](   Читать дальше...   )Жанр: Hard Bop, CoolПродолжительность: 00:32:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:832169EA9E7B1EC7CE4FDEB0337B9CC324046C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1756886   (103483) от 24.10.2024
+
+VA - Jazz For Halloween (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_103483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Philly Joe Jones Sextet - Blues For Dracula (8:15)
+02. Louis Armstrong - The Skeleton In The Closet (Single Version) (3:11)
+03. Vince Guaraldi - The Great Pumpkin Waltz (Reprise) (2:40)
+04. Ornette Coleman - The Disguise (2:51)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5EAD6B5E7EC67FDEDF0ED7FF09ADA358C117ED31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1756881   (103478) от 24.10.2024
 
 Bunkiman - Electro Swing Festival (2024) [FLAC|Lossless|WEB-DL|tracks] <Electro Swing, Jazz>
@@ -687,64 +745,6 @@ Stan Getz - The Complete 1952-1954 Small Group Sessions, Vol.2 (1953) Blue Moon 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A26BD72F2773AA3D1598CCC187ABCC476A87DE37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762059   (102935) от 24.11.2024
-
-Teddy Wilson - 1947 - 1950 (2002) Classics [FLAC|Lossless|tracks + .cue] <Swing, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Sheik Of Araby [2:39]
-02. Limehouse Blues [2:54]
-03. After You've Gone [2:41]
-04. Georgia On My Mind [3:09](   Читать дальше...   )Жанр: Swing, Piano JazzПродолжительность: 01:00:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61F1A160DD29FB9D0E21ECBF7ABCF2F8A47F3D0B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1762169   (102934) от 24.11.2024
-
-Stu Williamson - Stu Williamson Plays (1956) 1989, Fresh Sound [FLAC|Lossless|image + .cue] <Bop, Mainstream Jazz, Cool>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_102934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Lady Is a Tramp [4:16]
-02. Stu's Due Blues [5:42]
-03. The Things We Did Last Summer [2:52]
-04. Yardbird Suite [3:52](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, CoolПродолжительность: 00:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:105F1E39D0D4A3FFFF0438419D8DE780577A973D
 ```
 
 https://mybot314.ru/tekegram_catalog/

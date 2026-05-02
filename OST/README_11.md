@@ -1,3 +1,67 @@
+###  Публикация: 906894   (641624) от 10.06.2015
+
+Michael Giacchino - Мир Юрского периода / Jurassic World (Original Motion Picture Soundtrack) (2015) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bury the Hatchling (01:56)
+02. The Family That Strays Together (01:00)
+03. Welcome to Jurassic World (02:08)
+04. As the Jurassic World Turns (05:30)(   Читать дальше...   )Жанр: Soundtrack (Score)Продолжительность: 01:17:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9B752D0EBDC7F62614A0818AA3BB54C0559FC45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 517966   (639259) от 05.07.2012
+
+Miss Congeniality / Мисс Конгениальность (1-2 части) (2000-2005) [MP3|320 кб/с]<Score, OST>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_639259.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли саундтреки из фильма Мисс Конгениальность, а также музыка и песни со второго фильма Мисс Конгениальность 2: Прекрасна и опасна.1. Esthero - Wikked Lil' Grrrls (4:17)
+ 2. Natasha Bedingfield - I'm a Bomb (3:42)
+ 3. Pink - Trouble (3:12)
+ 4. Spiderbait - Black Betty (3:26)
+ 5. Paul Anka - (You're) Having my Baby (2:32)
+ 6. Carl Carlton - She's a Bad Mama Jama (3:54)
+ 7. Ohio Players - Fire (4:31)
+ 8. Thelma Houston - Don't Leave me This Way (5:39)
+ 9. Staple Singers - I'll Take You There (4:38)
+ 10. Ike & Tina Turner - Proud Mary (3:28)(   Читать дальше...   )Жанр: Score, OSTПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3C0E1850EA919601FE185B496ADAFABC772C0E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 518974   (639111) от 05.07.2012
 
 Sex And The City 2 / Секс в большом городе 2 (2010) [MP3|320 кб/с]<OST>
@@ -735,64 +799,6 @@ Atom Music Audio - Mechanize, Vol. 2 Epic Dramatic Rock Tracks (2018) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CE1AEC102A73C568A9EFF3EE5841C6FB7C6FEBDC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231744   (603182) от 21.06.2018
-
-Atom Music Audio & Alexandros Nikolaidis - Andromeda (2017) [MP3|320 Kbps] <Soundtrack, Instrumental, Epic Orchestral>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603182.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Andromeda [03:09]
-02. Visitors from the Stars [02:38]
-03. Ancestors [03:08]
-04. A Million Years Journey [03:13](   Читать дальше...   )Жанр: Soundtrack, Instrumental, Epic OrchestralПродолжительность: 00:14:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B494F55DD309505B083D7F2EA2B1F635660AE1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1232014   (602223) от 23.06.2018
-
-VA - Deadpool 2 / Дэдпул 2 (2018) [MP3|320 Kbps] <Pop, Rap, Electronic>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602223.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Celine Dion - Ashes
-02. Diplo, French Montana & Lil Pump - Welcome to the Party (feat. Zhavia Ward)
-03. DJ Shadow - Nobody Speak (feat. Run The Jewels)
-04. Peter Gabriel - In Your Eyes(   Читать дальше...   )Жанр: Pop, Rap, ElectronicПродолжительность: 00:43:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D33A213F8CD1FB8FD9AF407CB8C03A901FF45748
 ```
 
 https://mybot314.ru/tekegram_catalog/

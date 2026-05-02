@@ -1,3 +1,32 @@
+###  Публикация: 1495490   (880810) от 12.09.2021
+
+Башаков Band - #ПатроновДоХрена (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock, Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_880810.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Патроны - Сергей Галанин, Сергей Чиграков, Евгений Маргулис, Алексей Романов (04:28)
+02. Быть знаменитым - Сергей Чиграков (03:45)
+03. Богиня - Алексей Романов (04:43)
+04. Карман - Сергей Галанин (05:44)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:23:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B10ADFBE9B6247674BB5EBB2754D72B5C481C2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1114198   (880145) от 06.04.2020
 
 Arcane Grail - Mysteries Of The Ancient Charnel (2006) [FLAC|Lossless|image + .cue] <Symphonic Black Metal, Melodic Death Metal>
@@ -708,35 +737,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2D02FA77C052345BA8D7295727E5CB44BC95DBB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 999928   (862548) от 23.03.2016
-
-Евгений Маргулис - Пой как Маргулис. Лучшее (2016) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_862548.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мой друг лучше всех играет блюз
-02. Шанхай-блюз
-03. Дороги наши разошлись
-04. Старые песни(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:714BB71BF26512E8557FE4DDA668506D4CD20314
 ```
 
 https://mybot314.ru/tekegram_catalog/

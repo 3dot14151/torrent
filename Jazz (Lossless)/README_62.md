@@ -1,3 +1,61 @@
+###  Публикация: 1196916   (819351) от 05.01.2018
+
+Marcus Roberts Trio - In Honor Of Duke (1999) Columbia [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rickitick Tick [06:03]
+02. There It Is [08:50]
+03. The Feeling Of Something New [09:09]
+04. Take A Chance [05:13](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:13:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97171544A3D3A8C28DFD4C839B7D57711B008DB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382413   (819279) от 11.05.2020
+
+Diana Krall - When I Look In Your Eyes (1999) [FLAC|Lossless|image + .cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819279.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Let's Face The Music And Dance (05.18)
+02. Devil May Care (03.20)
+03. Let's Fall In Love (04.19)
+04. When I Look In Your Eyes (04.32)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4B9EB7F299C14111A741D9E4832CE92E6CF30C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1382601   (819278) от 11.05.2020
 
 V.A. - Tales Of Wonder: A Jazz Celebration Of Stevie (2020) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -687,64 +745,6 @@ Kaylene Peoples - My Man (2015) Boogsey Music[FLAC|Lossless|image + .cue] <Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:80B20306768ADEDDCAEA0A709E8ADA3DE0649730
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1503922   (815969) от 21.10.2021
-
-Norah Jones - I Dream Of Christmas (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Jazz, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815969.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christmas Calling (Jolly Jones)
-02. Christmas Don't Be Late
-03. Christmas Glow
-04. White Christmas(   Читать дальше...   )Жанр: Jazz, SoulПродолжительность: 00:44:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:107A74024CB6562682D8C370114CE583325B3399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1197409   (815919) от 07.01.2018
-
-Geri Allen - Maroons (1992) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815919.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Feed The Fire 1 [01:33]
-02. No More Mr. Nice Guy [07:07]
-03. And They Partied [05:33]
-04. Number Four [04:39](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:12:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA47B896E9BB418ABC24084D01534583E8E5AE04
 ```
 
 https://mybot314.ru/tekegram_catalog/

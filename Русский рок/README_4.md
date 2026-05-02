@@ -1,3 +1,119 @@
+###  Публикация: 1612394   (1040385) от 15.02.2023
+
+Behrosth - Проделки поганого черта (2023) [MP3|320 Kbps] <Black'N'Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040385.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Бесопарк [00:05:10]
+02 - Имя Его - Война [00:08:29]
+03 - Преступление Без Выгоды [00:03:06]
+04 - Проделки поганого чёрта [00:03:57](   Читать дальше...   )Жанр: Black'N'RollПродолжительность: 00:32:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2EB6ACA091253F8491DB86F788E4CA686DBD27FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612675   (1040182) от 16.02.2023
+
+Олег Барабаш - 2 Albums (2021-2023) [MP3|320 Kbps] <Trip-Hop, Spoken Word>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Кости [00:02:06]
+02. Конечная [00:02:43]
+03. Чёрная книжка [00:06:44]
+04. Несу [00:04:11](   Читать дальше...   )Жанр: Trip-Hop, Spoken WordПродолжительность: 2 CD, 00:51:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F3FEC61DE247F1E61AE2A8E42B26ED676B9E76E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612514   (1040177) от 16.02.2023
+
+Путь Солнца - 15 Дорог К Солнцу (2023) [MP3|320 Kbps] <Heavy Metal, Pagan Thrash Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1040177.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Знак Солнца - Знак Победы (feat. Лекс / Мастер)
+02.Северная Страна (feat. Лазарь / Аркона)
+03.Гулять Будем (feat. Ксения Маркевич / Калевала)
+04.Победа Или Смерть (Руслан Пурген VS Мирон)(   Читать дальше...   )Жанр: Heavy Metal, Pagan Thrash MetalПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88A06E9D8B96E985C6A71A05FFCC5968209E3A57
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1612799   (1039913) от 17.02.2023
+
+LASCALA - El Dorado (2023) [MP3|320 Kbps] <Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039913.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. АН-2 (2022)
+2. Sex, Rock'n'Roll & Alcohol (2022)
+3. Жалость неуместна (2022)
+4. Пятница (Edit)(   Читать дальше...   )Жанр: AlternativeПродолжительность: 00:57:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03E3046AF8BFF1F6E928921FA81C044778224D46
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613391   (1039407) от 19.02.2023
 
 Shattered Embrace - 2 Albums (2022-2023) [MP3|320 Kbps] <Melodic Metalcore, Modern Metal>
@@ -626,120 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66E1CBE337C83E929EE50A70614E8B49AD386CEB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615996   (1037009) от 28.02.2023
-
-2nd Day - 2 Albums (2017-2020) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037009.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Не потеряй себя [00:02:27]
-02. Доширак [00:01:21]
-03. Fender [00:02:10]
-04. Нас-рать [00:03:39](   Читать дальше...   )Жанр: Punk RockПродолжительность: 2 CD, 01:00:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D9BC59DCFBB5FFB8427FD22E0C19407D8A1F6457
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616034   (1037006) от 28.02.2023
-
-Last Trial - Хронос (2023) [MP3|320 Kbps] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1037006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Триумф [00:02:00]
-02 - Хронос. Акт I_ А время шло [00:03:51]
-03 - Короли [00:04:37]
-04 - Вавилон Н. Э [00:04:22](   Читать дальше...   )Жанр: MetalПродолжительность: 00:37:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4899080921281DE6778AE1B1B8B3EB45A221CA44
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616076   (1036997) от 28.02.2023
-
-Beyond the Body - Station Hate (2023) [MP3|320 Kbps] <Melodic Death Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Immersion (Instrumental) [00:00:58]
-02. Beyond The Body (Instrumental) [00:04:55]
-03. Eternal Struggle (Instrumental) [00:04:45]
-04. Memory Laceration (Instrumental) [00:08:18](   Читать дальше...   )Жанр: Melodic Death MetalПродолжительность: 00:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E09D560B1845EAD79F9E4E5A824A4233E49E5B9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442438   (1036593) от 25.01.2021
-
-The Matrixx - EP2021 (2021) [MP3|320 Kbps] <Alternative>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036593.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Каменное дно
-2. Лежу в палате наркомановЖанр: AlternativeПродолжительность: 00:08:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D8DDBA16D915280DF797EBB5DBE95CF4443E3BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

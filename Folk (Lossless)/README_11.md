@@ -1,3 +1,32 @@
+###  Публикация: 1652021   (219500) от 09.08.2023
+
+Dornenreich - In Luft geritzt (2008) 3CD [FLAC|Lossless|image + .cue] <Dark Acoustic Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_219500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drang
+02. Unruhe
+03. Jagd
+04. Freitanz(   Читать дальше...   )Жанр: Dark Acoustic FolkПродолжительность: 02:12:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1CCAD725236867EB21D91CD25D4999DF74069CA3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1652015   (218761) от 10.08.2023
 
 Die Schnitter - Saat und Ernte (2000) [FLAC|Lossless|image + .cue] <Folk Punk>
@@ -716,35 +745,6 @@ Faith Hill - Faith (1998) Warner 9 46790-2 [FLAC|Lossless|image + .cue]<Contempo
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5FA7968F442058A7981E66E3B8CA0C01DA7D8619
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1672723   (167975) от 29.10.2023
-
-Люди Леса - Другие шепоты, другие тени (2023) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167975.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sadness Horn 5:17
-02. Talisman 6:14
-03. White Stone 4:38
-04. Voron 4:27(   Читать дальше...   )Жанр: Dark FolkПродолжительность: 00:55:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AB0363EDC9B93165569D2BD0502B84FD0D03345
 ```
 
 https://mybot314.ru/tekegram_catalog/

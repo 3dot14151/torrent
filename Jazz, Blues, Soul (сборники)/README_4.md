@@ -1,3 +1,32 @@
+###  Публикация: 1370152   (898367) от 26.03.2020
+
+VA - The Blues Mystery (2020) [MP3|320 Kbps] <Blues, Rock Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_898367.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eric Clapton - Cocaine
+002. Slim Butler - Coconut Monster
+003. Richard Thompson - Parchman Farm
+004. Keb' Mo' - When The Children Sing(   Читать дальше...   )Жанр: Blues, Rock BluesПродолжительность: 07:40:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B932A10DB9F6CC6D0206CC08D417AC05E7C339
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 993658   (895534) от 05.03.2016
 
 VA - Smooth and Sexy - Premium Jazz Grooves (2016) [MP3|320 кб/с] <Jazz, Chill Out, Lounge>
@@ -713,35 +742,6 @@ VA - Whiskey Blues - Blues Soldier (2020) 3CD [MP3|320 Kbps] <Blues, Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7C618EE3A793069BAEFA097B0B3DAF8AD3F2A9E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109988   (855403) от 01.03.2017
-
-Muddy Waters - 30 most slow Blues (2017) [MP3|320 Kbps] <Blues>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855403.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Night Long
-02. Mannish Boy
-03. Come to Me Baby
-04. Goodbye Newport Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 01:32:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76760E4B9785AA5C317302C983624491F1570A87
 ```
 
 https://mybot314.ru/tekegram_catalog/

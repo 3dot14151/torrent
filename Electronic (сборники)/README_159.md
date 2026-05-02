@@ -1,3 +1,61 @@
+###  Публикация: 1328298   (366373) от 29.09.2019
+
+VA - Hedkandi: Summer Trance Set (2019) [MP3|320 Kbps] <Trance, Electro, Compilation>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366373.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Miroslav Vrlik - Rise (Extended Mix)
+002. Dj 156 Bpm - Bring It Up!
+003. Harry Square - Affinity (Extended Mix)
+004. Paul Courbet - Isolation (Extended Mix)(   Читать дальше...   )Жанр: Trance, Electro, CompilationПродолжительность: 13:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:39E313DC7CD82392FEB2D1D252C874F8B448EBB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328361   (366238) от 29.09.2019
+
+VA - Hedkandi: Summer House Set (2019) [MP3|320 Kbps] <House, Dance, Club>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366238.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Juan Diaz - Illusion
+002. Costel Van Dein - Speaker From The Jungle
+003. Fedde Le Grand - Like We Do (Extended Mix)
+004. Melo.Kids & Indox - There 4 U (Extended Mix)(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 12:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A8FF5C6087F92DAFBCAE649922D4BAC9B9E6CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 951045   (366195) от 28.10.2015
 
 VA - More Than Ever (2015) [MP3|320 кб/с]<Uplifting Trance, Club, Electro>
@@ -713,64 +771,6 @@ VA - Music For Everyone - Chillstep & Dubstep Vol.5 (2017) [MP3|320 Kbps] <Chill
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29B1991B19ED554B8E87153CBFB11AD4D621AE7C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416733   (363020) от 18.10.2020
-
-VA - Exotic Chillout Sounds (Vol.02) (2020) [MP3|320 Kbps] <Chillout, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363020.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Lounge Groove Avenue - Sunset Soul
-002. John Abbruzzese - Analogical Fit
-003. Sean Norvis - Our Life - La Primavera
-004. L' Art Mystique - Beautiful Things(   Читать дальше...   )Жанр: Chillout, Downtempo, AmbientПродолжительность: 09:23:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7BE18470EDB249558F509B53484A02EFC6B2E116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1416731   (363016) от 18.10.2020
-
-VA - Euronics Big Room Electro House (2020) [MP3|320 Kbps] <Club, Dance, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363016.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Chart - Freaky
-002. Manuel De Diego - You're In The Army Now
-003. Shytsee - Departure (Original Mix)
-004. Sound Of Venice - Save The Rhythm(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 07:55:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:877719A71CE68207BDB1D33243417FF12D521F1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

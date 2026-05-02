@@ -1,3 +1,61 @@
+###  Публикация: 1424265   (229596) от 16.11.2020
+
+Helmut Zacharias und sein Orchester (1948 - 1959) 2011, 2CD, Membran Music [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Violin Jazz, Instrumental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_229596.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Schoner Gigolo:
+01. Swing 48 [2:48]
+02. Helmy's Be Bop # 1 [1:48]
+03. St. Louis Blues [2:51](   Читать дальше...   )Жанр: Mainstream Jazz, Violin Jazz, InstrumentalПродолжительность: 02:15:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:90D5759004BEE246A7A2F20347F49E30596C8522
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1649333   (229412) от 28.07.2023
+
+Claude Williamson - 'Round Midnight (1956) 2000, Bethlehem [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_229412.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stella By Starlight [4:03]
+02. Somebody Loves Me [3:07]
+03. I'll Know [3:21]
+04. The Surrey With The Fringe On Top [2:54](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Piano JazzПродолжительность: 00:38:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:557590197B6F676A675A632F17C94F4034CE929D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512756   (229366) от 26.11.2021
 
 Elek Bacsik - The Electric Guitar Of The Eclectic Elek Bacsik (1962) 1989, Fontana [FLAC|Lossless|tracks + .cue] <Bop, Cool, Guitar Jazz>
@@ -687,70 +745,6 @@ VA - Jazz Lullaby (2008) [FLAC|Lossless|tracks + .cue] <Jazz, Children>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8798E9083E4F4B700773FA44E94DB98DC258E7EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341906   (227570) от 30.11.2019
-
-Louis Armstrong - Swing That Music 1935 - 1939 (1990) Jazz Archives [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shoe Shine Boy [3:20]
-02. La Cucaracha [2:47]
-03. Thanks A Million [2:40]
-04. Solitude [3:02](   Читать дальше...   )Жанр: New Orleans Jazz, Dixieland, SwingПродолжительность: 00:47:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:767A07F117AA0C4D2B2175895EDC008A6706B402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 586962   (227192) от 09.12.2012
-
-V.A. - Chill-Out Jazz (2009) [FLAC|Lossless]<Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227192.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beady Belle - Closer
-02. Don Menza - Morning Song
-03. George Shearing - Killing Me Softly With His Song
-04. Francy Boland & the Orchestra - Autumn In New York
-05. Eugen Cicero - Im Mondenschein
-06. James Brown - Home At Last
-07. Jim Hall - In A Sentimantal Mood
-08. Shirley Horn - Return To Paradise
-09. Meshell Ndegeocello feat. Sabina Sciubba - Aquarium
-10. Sidsel Endresen - Traveling Still(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:38
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

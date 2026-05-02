@@ -1,3 +1,119 @@
+###  Публикация: 1286659   (711325) от 03.03.2019
+
+VA - German Top 50 Official Dance Charts 01.03.2019 (2019) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_711325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Niels Van Gogh - Pulverturm (Tiësto's Big Room Remix)
+02. Calvin Harris - Giant
+03. Hugel - WTF (feat. Amber Van Day)
+04. Picco - Cubano(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 02:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:30DD2E61EA86FEF8B8677EE266258094AEA7F00E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1532708   (710891) от 21.02.2022
+
+VA - Happy Pop Dance Party (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710891.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marnik & Alfons - Harry Potter Style
+02. Victor Ark - More Physical
+03. Charli Xcx - Good Ones
+04. Max Coveri - I Don't Wanna Break Your Heart(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 07:55:05 hrs
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C0859BDA41D52D3D1A2DE0EF9C030F4B1B1AE2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1131153   (710661) от 04.05.2017
+
+Mark Ashley - Mp3 Play (2017) [MP3|320 Kbps] <EuroDisco, Synthpop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_710661.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Valerie
+02. Lover Why
+03. Stay
+04. It's All Over(   Читать дальше...   )Жанр: EuroDisco, SynthpopПродолжительность: 04:56:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2AE4CB1494819203E2F8E4AA49E75CA3F211CBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1219851   (709956) от 16.04.2018
+
+VA - Экспресс русских хитов на Hit FM (7) (2018) [MP3|256 Kbps] <Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_709956.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Елена Василевская - Мальчишка С Серыми Глазами
+002. Tsar - Улетим
+003. Альберт Ибраев - Я Встретил Девушку
+004. Fargo - Второе Имя(   Читать дальше...   )Жанр: ПопПродолжительность: 06:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8B8208FC8A9A2DA4C51070A9A8FE51EE66549E30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1219850   (709952) от 16.04.2018
 
 VA - Extended Parts Dance Mix (2018) [MP3|320 Kbps] <Dance, Pop>
@@ -626,122 +742,6 @@ VA - Ишь ты, масленица (2019) [MP3|320 Kbps] <Pop, Pop-Folk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A00FA239DE3E617B936DB8EB3FDAC261E62AD097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533135   (706935) от 23.02.2022
-
-VA - Good Feeling 70s (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fleetwood Mac - Go Your Own Way (2004 Remaster)
-02. Elton John - Tiny Dancer (Remastered)
-03. The Four Seasons - December, 1963 (Oh What a Night!)
-04. Eagles - Take It Easy (2013 Remaster)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:11:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1FFB81C86DB5794A485812DF4501F6C31ACCC4DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533142   (706933) от 23.02.2022
-
-VA - Good Feeling 90s (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706933.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Faith Hill - This Kiss
-02. Spice Girls - Stop
-03. Go West - The King of Wishful Thinking
-04. Tina Turner - The Best (Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:44:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED3A2163482D6C40CF985C03E196305387C24ECE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1533139   (706571) от 23.02.2022
-
-VA - Good Feeling 80s (2022) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bruce Springsteen - Dancing In the Dark
-02. Lionel Richie - Dancing On The Ceiling
-03. George Michael - Faith (Remastered)
-04. Fleetwood Mac - Everywhere (2017 Remaster)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:09:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:917E909521AC0218E2EB92D84BE4B366D18E4479
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220115   (705884) от 18.04.2018
-
-Sandra - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705884.jpg" />
-</div>
-
-
-###  Подробнее
-
-В сборник вошли лучшие треки певицы. Весь материал взят с оригинальных CD альбомов, в некоторых на слух наверное есть ремастеринг, хотя и написано что оригиналные CD. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK01 Maria Magdalena
-02 The Skin I'm In
-03 We'll Be Together
-04 Forever(   Читать дальше...   )Жанр: PopПродолжительность: 03:34:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E66C220BF5885ED49BB01A13B7EFE02CAA684F5A
 ```
 
 https://mybot314.ru/tekegram_catalog/

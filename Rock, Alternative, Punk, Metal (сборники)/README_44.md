@@ -1,3 +1,61 @@
+###  Публикация: 1272521   (141153) от 29.12.2018
+
+VA - Amaranthine: Hard Rock & Metal Collection (2018) [MP3|320 Kbps] <Hard Rock, Metall>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141153.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Mindwars - The Fourth Turning
+002. Splendidula - Dollywood
+003. Flipzyde - Witness The Sickness
+004. Heavy Kind - Sneaky Moves(   Читать дальше...   )Жанр: Hard Rock, MetallПродолжительность: 09:51:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FBAD7E1CBC4DE130C533D644B0AB3AD40E0488DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1195116   (141150) от 29.12.2017
+
+VA - Русский Рок. Лучшее 2017 (2017) [MP3|320 Kbps] <Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_141150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 7Б - Солнцу решать
+02. СерьГа - Сказочный лес
+03. 25-17 - Она не такая, как все
+04. Casual - Сквозь дым(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5254B0B0080BAA630451A5C318F8D9B12E4BCB2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 970585   (140513) от 30.12.2015
 
 VA - Best of Rock Collection (1980-1989) (2015) [MP3|320 кб/с] <Rock, Metal>
@@ -693,64 +751,6 @@ VA - Hard Rock 60’s What does he look like (2024) [MP3|320 Kbps] <Rock, Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:266936F67F1AED6CF7B2B82A10EB2FC4D24ED4A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699376   (117715) от 14.02.2024
-
-VA - Rock 'n' Roll 50s (2024) [MP3|320 Kbps] <Rock 'n' Roll>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117715.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Elvis Presley - Hound Dog [02:17]
-02. Bill Haley & His Comets - Rock Around The Clock [02:15]
-03. Jerry Lee Lewis - Great Balls of Fire [01:55]
-04. Carl Perkins - Blue Suede Shoes [02:16](   Читать дальше...   )Жанр: Rock 'n' RollПродолжительность: 01:56:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3CBB021E90667F625493BFA9C68152E9544235D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1699624   (117712) от 14.02.2024
-
-VA - It's Glam Rock (2024) [MP3|320 Kbps] <Rock, Glam Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117712.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alice Cooper - School's Out [03:30]
-02. T. Rex - 20th Century Boy [03:41]
-03. Elton John - Saturday Night’s Alright (For Fighting) (Remastered) [04:55]
-04. Queen - Killer Queen (Remastered 2011) [03:00](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 03:11:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D22F435DAE6C03DA1E9EEED707CAFD3280D6C248
 ```
 
 https://mybot314.ru/tekegram_catalog/

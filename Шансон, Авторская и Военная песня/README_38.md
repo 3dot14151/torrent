@@ -1,3 +1,90 @@
+###  Публикация: 958453   (318862) от 23.11.2015
+
+Mireille Mathieu - Noel (2015) [MP3|320 кб/с]<French Chanson>
+
+>>Шансон, Авторская и Военная песня
+>>Зарубежный Шансон
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318862.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Colombe De Noel (03:00)
+02. Petit Papa Noel (03:26)
+03. Noel Blanc (03:41)
+04. Douce Nuit (03:13)(   Читать дальше...   )Жанр: French ChansonПродолжительность: 00:54:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2E4A33D84D2DE37B064781C779E44D7C45CBD48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1259610   (318781) от 04.11.2018
+
+VA - Застольные песни от Донского казака (2007) [FLAC|Lossless|image + .cue]<Сhanson, Folk>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_318781.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Атаман ( К.Ундров )
+02. Конь вороной ( В.Цыганова )
+03. Дедушка Азов ( К.Ундров )
+04. Не для меня ( Славянский ход )(   Читать дальше...   )Жанр: Сhanson, FolkПродолжительность: 01:14:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D03F515028F964616AF350A1B3B573347DDF08D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1421831   (315423) от 06.11.2020
+
+VA - Русская блатная тридцатка 14 (2007) [FLAC|Lossless|tracks + .cue]<Шансон>
+
+>>Шансон, Авторская и Военная песня
+>>Русский Шансон (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. А. Маршал - Парусник
+02. С. Михайлов - Берег мечты
+03. Журга и О. Алябин - С тобой хочу
+04. В. Ясень - Старый год(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:17:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2921DF74A3568C968CCAEDB04FAD7B8576FE0DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422010   (312861) от 07.11.2020
 
 Александр Марцинкевич - Не уезжай (2020) [MP3|320 Kbps] <Шансон>
@@ -691,93 +778,6 @@ Helene (Hélène) Rolles - Je m’appelle Hélène (1993) [FLAC|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE642B19B7A3DB6F4779DF5C2D3F283E692F76D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333688   (301160) от 26.10.2019
-
-Helene (Hélène) Rolles - Le miracle de l'amour (1994) [FLAC|Lossless|WEB-DL|tracks] <Chanson>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_301160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moi aussi je vous aime (4:06)
- 02. Imagine (4:38)
- 03. À force (3:42)
- 04. Toujours par amour (2:49)(   Читать дальше...   )Жанр: ChansonПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A349903A43C475482858DBA84D5395CEA27C652
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 960187   (300801) от 01.12.2015
-
-VA - Afisha Hold Music (2004) [FLAC|tracks+.cue]<Chanson, Ballad, Schlager>
-
->>Шансон, Авторская и Военная песня
->>Зарубежный Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_300801.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Françoise Hardy - Comment te dire adieu (2:26)
-02. Jeanette - Le temps de mon pere (3:21)
-03. Nino Ferrer - Madame Robert (3:06)
-04. Dori Ghezzi - Casatschok (2:53)(   Читать дальше...   )Жанр: Chanson, Ballad, SchlagerПродолжительность: 01:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5AB22436B79F3C6ECB210FD212A32F9E656C28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1334006   (298834) от 27.10.2019
-
-Михаил Бондарев и Вилли Токарев - Снегопады (2007) [FLAC|Lossless|tracks + .cue]<Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_298834.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Снегопады"
-02. Песенка о Москве
-03. Я нумер уно...
-04. Мой маленький Джамбул(   Читать дальше...   )Жанр: ШансонПродолжительность: 00:59:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FDCF5EA54EE8A8CE6E947D8097390B9E8549B07F
 ```
 
 https://mybot314.ru/tekegram_catalog/

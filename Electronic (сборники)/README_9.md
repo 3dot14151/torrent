@@ -1,3 +1,61 @@
+###  Публикация: 1465894   (1018829) от 28.04.2021
+
+VA - Specific techno Electronic (2021) [MP3|320 Kbps] <Techno, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018829.jpg" />
+</div>
+
+
+###  Подробнее
+
+Вашему вниманию релиз самых интересных треков в стиле техно электроники "Specific Techno Electronic". Хиты, которые будоражат сознание любителей электронной музыки уже ждут Вас!001. Art Frequency - Evolution
+002. Atilla The Hvn - Tasi Beni Cehenneme
+003. Watboman - Insomniac
+004. Dj Mell G - Work That Shit Out!(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 10:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:839F4FA249D214B88491076043E876AC052B7093
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1465871   (1018815) от 28.04.2021
+
+VA - Beatport Future House: Electro Sound Pack #278 (2021) [MP3|320 Kbps] <Electro, Tech House, Future House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1018815.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сегодня мы порадуем Вас отличным миксом в стиле Future House с подачи Beatport. Представленные треки пусть не всегда, но периодически достигают верхних позиций европейских радиостанций и чартов, да и просто знакомы широкой аудитории, для которой словосочетание "электронная музыка" — это не пустой звук!001. Elated - Absolute Zero
+002. Kenshi Kamaro - We Are Ready
+003. Hedowiec - Bedouin
+004. Rick Pier O’neil - Rebrox(   Читать дальше...   )Жанр: Electro, Tech House, Future HouseПродолжительность: 10:31:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0472F4896AAFC6573F54391354E0C77D7B52B09A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1465879   (1018807) от 28.04.2021
 
 VA - Chillout Zone: Ambient Electronic Sounds (2021) [MP3|320 Kbps] <Ambient, Chillout, Downtempo, Relax>
@@ -687,64 +745,6 @@ VA - Balearic Dawn (2021) [MP3|320 Kbps] <Chillout, Ambient, Downtempo, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:31180398B2B3A2BE1ACFAC52A228FE69B319237D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472650   (1014139) от 26.05.2021
-
-VA - Options Remake 125 Tracks New May (2021) [MP3|320 Kbps] <Funky, Soulful, Progressive, Future House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014139.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Booka Shade, Felix Raphael - Follow
-002. Brascon - Yeah
-003. Katarina Dariy - The Sun (Extended Mix)
-004. Jay Frog & Sunny Marleen - For You (BlackBonez Extended Remix)(   Читать дальше...   )Жанр: Funky, Soulful, Progressive, Future HouseПродолжительность: 12:17:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E01B0A09B979D56329864D0708C832BCC0F0EBB4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1472590   (1014058) от 27.05.2021
-
-VA - Beatport Clubbing House: Electro Sound Pack #283 (2021) [MP3|320 Kbps] <Club, Dance House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1014058.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Roman Novelrain - She & Me
-002. Inner Sinner - Just Like B4
-003. Groove Control - Real Love
-004. Twenty Six - Consequences(   Читать дальше...   )Жанр: Club, Dance HouseПродолжительность: 08:21:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E92FCD856516D9E258AF85C1DC826F142D7F0A
 ```
 
 https://mybot314.ru/tekegram_catalog/

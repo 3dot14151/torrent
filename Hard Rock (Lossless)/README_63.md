@@ -1,3 +1,119 @@
+###  Публикация: 1624558   (245113) от 07.04.2023
+
+Coiotes S.A. - Daqui Pra Frente Eh Nois (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Stoner Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqueles Olhos [00:03:31]
+02. Cola Com Nois [00:03:46]
+03. Longe Sem Mais Dor [00:03:48]
+04. Última Gota [00:05:17](   Читать дальше...   )Жанр: Heavy Rock, Stoner MetalПродолжительность: 00:38:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3FE45C5B24E20B33B84610BB82B10F03EEB2DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631372   (245051) от 05.05.2023
+
+Winger - Seven (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245051.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Proud Desperado
+02. Heaven's Falling
+03. Tears Of Blood
+04. Resurrect Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D42F77609DD4D49E064E05A1E053353BEDD83D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1631385   (245030) от 05.05.2023
+
+Tygers Of Pan Tang - Bloodlines (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_245030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Edge Of The World
+02. In My Blood
+03. Fire On The Horizon
+04. Light Of Hope(   Читать дальше...   )Жанр: Hard Rock, Melodic Heavy MetalПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBFC619C8081DCB53DA523F02D791701E4D625C9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1451098   (244883) от 28.02.2021
+
+Hardline - Double Eclipse (1992) Japan [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_244883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Life's a Bitch (04:22)
+02. Dr. Love (05:31)
+03. Love Leads the Way (04:05)
+04. Rhythm from a Red Car (03:41)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:56:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0FC170A5415B44029E90A400EFCE681BF63BFC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1624764   (244853) от 08.04.2023
 
 Viva - Das ist die Wahrheit (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Melodic Punk Rock, Deutschrock>
@@ -630,122 +746,6 @@ Circus Of Rock - Come One, Come All (2021) [FLAC|Lossless|image + .cue] <Hard Ro
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8628F8D75E91942D10553337E0FD088532F61009
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538054   (243543) от 19.03.2022
-
-The Neptune Power Federation - Le Demon De L'amour (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Stoner, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_243543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Weeping On The Morn 08:09
-02. My Precious One 02:59
-03. Baby You're Mine 04:08
-04. Loving You Is Killing Me 04:29(   Читать дальше...   )Жанр: Hard Rock, Stoner, Female VocalПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F58986C60BB01F9ACB1B90F78BF66966F03EF4F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1538333   (243375) от 20.03.2022
-
-Perblind - The Dead And The Living (2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243375.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Through The Night 05:07
-02. Letting The Fires Glow 03:39
-03. Speed Of Time 04:07
-04. Falling Down 04:46(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:800A048F18ACAA991D58FC5D9C607005521AAC09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456112   (243343) от 21.03.2021
-
-Warrant - Dirty Rotten Filthy Stinking Rich (1989) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Glam>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243343.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 32 Pennies
-02. Down Boys
-03. Big Talk
-04. Sometimes She Cries(   Читать дальше...   )Жанр: Hard Rock, GlamПродолжительность: 00:37:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:640EE764356D39DC17D89303DD228B75BAA184BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1456088   (243338) от 21.03.2021
-
-Warrant - Dog Eat Dog (1992) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_243338.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Machine Gun
-02. The Hole In My Wall
-03. April 2031
-04. Andy Warhol Was Right(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:49:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AA9A07ACCCE96E02AAD33D4A990B9BC081E80B6F
 ```
 
 https://mybot314.ru/tekegram_catalog/

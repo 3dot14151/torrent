@@ -1,3 +1,119 @@
+###  Публикация: 1602151   (1046216) от 04.01.2023
+
+Beggars & Thieves - Beggars & Thieves (1990) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock, Arena Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046216.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. No More Broken Dreams
+02. Billy Knows Better
+03. Waitin' For The Man
+04. Your Love Is In Vain(   Читать дальше...   )Жанр: Hard Rock, Arena RockПродолжительность: 00:54:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCF7F8EC3D000FD01E068A288815A162E2C9AC71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602143   (1046215) от 04.01.2023
+
+Falcon - Mystery (1995) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046215.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me Away
+02. Addiction
+03. Takin' It Over
+04. Motorcycle(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:41:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:60B328ED40556D76A46BC346E6B2D67339F89C14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602430   (1046149) от 05.01.2023
+
+Legend - Legend (1992) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Friendly Fire
+02. Don't Believe It
+03. Angela
+04. After The Fall(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:42:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:941CA50BEEEA820FF7DB412F32910C415E91DD4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602350   (1046145) от 05.01.2023
+
+Ignition - Ignition (2003) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1046145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Down on My Luck
+02. Tell Me Your Mine
+03. Father (Save Me)
+04. Fire With Fire(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A3B21825F858DC8A8FFF0D35D6D8CCE73290794
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1602364   (1046090) от 05.01.2023
 
 Euler - Lurking in the Dark (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -631,122 +747,6 @@ Uriah Heep - Chaos & Colour (2023) [FLAC|Lossless|WEB-DL|tracks] <Classic Hard R
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:17132CB7FCCA0E5C53CEEA5EB2DF6B82B07408C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608054   (1043843) от 28.01.2023
-
-Ronnie Romero - Raised On Heavy Radio (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard 'n' Heavy>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Battle Rages On (Deep Purple cover)
-02. Metal Daze (Manowar cover)
-03. Turbo Lover (Feat. Nozomu Wakai) (Judas Priest cover)
-04. Hallowed Be Thy Name (Iron Maiden cover)(   Читать дальше...   )Жанр: Hard 'n' HeavyПродолжительность: 01:04:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59979A7A1CF7DD38927E3DC8E248A8455E01083E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608147   (1043758) от 29.01.2023
-
-Landfall - Elevate (2022) Jараnеsе Еditiоn [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043758.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Surrender (5:02)
-02. Two Strangers (4:33)
-03. Waterfall (5:10)
-04. Rescue Me (4:02)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:55:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2772894A8C91F59AB7F81586F868D7FB75FE30B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608154   (1043757) от 29.01.2023
-
-Sabu - Banshee (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043757.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blinded Me (4:37)
-02. Banshee (4:31)
-03. Kandi (4:05)
-04. Love Don't Shatter (5:17)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BDE8B8EBC511078EAB1E3A6DF85F6462B95601C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1608214   (1043658) от 30.01.2023
-
-KLEE Project - Living in Confusion (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1043658.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'll Break it Down (2:56)
-02. I Believe in You (2:59)
-03. Still Waiting (4:07)
-04. What Can I Do (3:01)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2FAB6B6DC4396F9E2B355F66EB001ACE222C9EE
 ```
 
 https://mybot314.ru/tekegram_catalog/

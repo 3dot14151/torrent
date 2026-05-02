@@ -1,3 +1,81 @@
+###  Публикация: 1020060   (746487) от 25.05.2016
+
+Проекты - VideoHive - Energy Logo Reveal [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746487.jpg" />
+</div>
+
+
+###  Подробнее
+
+Energy Logo Reveal - яркий , энергичный, красочный проект для вашего логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A621645C113A3B895B0F284AE59738F7F3B04F83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020020   (746353) от 25.05.2016
+
+Проекты - VideoHive - Digital Identity [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746353.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания эффектной демонстрации логотипа из медиа заполнителей.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BD48F10DE2EE6A0962E7246D0257855A5A204136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1020280   (746053) от 25.05.2016
+
+Проекты - VideoHive - LOGO BULLET [AEP]
+
+>>Проекты
+>>Логотипы (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746053.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для демонстрации логотипа.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B8B33258814896193698A123AAFF51BA5C9B9AFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1020123   (746046) от 25.05.2016
 
 Проекты - VideoHive - Colorful Butterfly Logo Reveal [AEP]
@@ -594,85 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A7F4FA4B05658763FC53AABE1E9432E1C7A22E73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1021011   (741640) от 28.05.2016
-
-Проекты - VideoHive - Strong & Clean Corporate 3D Embossed Logo [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741640.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для демонстрации логотипа или слогона.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E4DC1AE59E76DD0C465B4C0EC1E83F997964DEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020992   (741562) от 28.05.2016
-
-Проекты - VideoHive - Futuristic Hi Tech Logo Reveal [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741562.jpg" />
-</div>
-
-
-###  Подробнее
-
-Футуристический и динамический проект для демонстрации логотипа.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B010E8F5D370791CCAE2026B6098187D9AEB5DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283056   (740757) от 15.02.2019
-
-Проекты - VideoHive - Fly With Us - Airplane Logo - 4319334 [AEP]
-
->>Проекты
->>Логотипы (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_740757.jpg" />
-</div>
-
-
-###  Подробнее
-
-Fly With Us - это очень реалистичный самолет с вашим логотипом. Добавьте свои логотипы и измените цвета из включенных пресетов.
-Произведите впечатление на ваших клиентов и выделитесь из толпы.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D20B5DF3FB00251793578D429824F6F781F21CDE
 ```
 
 https://mybot314.ru/tekegram_catalog/

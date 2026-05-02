@@ -1,3 +1,58 @@
+###  Публикация: 614562   (980947) от 05.02.2013
+
+Ashampoo Burning Studio 12 12.0.5.0 Final RePack (& Portable) by KpoJIuK [MULTi / Русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Ashampoo Burning Studio - новая версия программы для записи CD-RW, DVD-RW, DVD RW и Blu-ray дисков. Утилита позволяет создавать проекты и записывать CD/DVD (в том числе MP3-CD, VCD, S-VCD и Blu-ray). Программа поддерживает длинные имена файлов (127 знаков для DVD и Blu-ray и 64 для CD), автоматическую настройку параметров, сохранение и загрузку проекта, создание образов, простое управление файлами с помощью DragandDrop и многое другое. Работает совместно с большинством записывающих устройств. Никогда еще не было так легко превратить ваши файлы в DVD диски, которые можно проигрывать на любом DVD-плеере.Название программы: Ashampoo Burning Studio 12Язык интерфейса: русский, английский, украинский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 972830   (980906) от 07.01.2016
+
+Футбол. Чемпионат Италии 2015-2016. 18 тур. Эмполи - Интер (06.01.2016) HDTVRip [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980906.jpg" />
+</div>
+
+
+###  Подробнее
+
+06 января 2016, среда. 20:00 МСК
+18-й тур
+Стадион: Карло Кастеллани (Эмполи, Италия) , вместимость: 19847
+Главный судья: Доменико Чели (Камбобассо, Италия)(   Читать дальше...   )Телекомпания: Футбол 3 HDЖанр: СпортПродолжительность: 1:47:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1E0B4F31E7199248C82CFE86161F015470F8457B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 972741   (980905) от 07.01.2016
 
 Футбол. Чемпионат Италии 2015-2016. 18 тур. Удинезе - Аталанта (06.01.2016) HDTVRip [H.264/720p-LQ]
@@ -667,64 +722,6 @@ VA - Soul Waves Music: Best Of 2015 (2015) [MP3|320 кб/с] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8324E0C95D94ECFA9B0675197C7FFDE12311B5C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 973012   (980779) от 07.01.2016
-
-VA - Perfecto Records: Best Of 2015 (2015) [MP3|320 кб/с] <Trance, Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980779.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paul Oakenfold feat. Tiff Lacey - Hypnotized (Markus Schulz Remix) (05:41)
-02. Paul Oakenfold feat. Angela McCluskey - You Could Be Happy (Paul Oakenfold Future House Mix) (04:03)
-03. Greg Downey & Bo Bruce - These Hands I Hold (07:02)
-04. DedRekoning feat. Sophie Ellis-Bextor - Only Child (Paul Oakenfold Deep Down Mix) (04:42)(   Читать дальше...   )Жанр: Trance, Progressive HouseПродолжительность: 01:39:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3986775E43E10214850702D51ABE6CFE946D70BC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 972930   (980778) от 07.01.2016
-
-VA - Abora Recordings Best of 2015 (Mixed by Ori Uplift) (2016) [MP3|320 кб/с] <Trance , Uplifting Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alex van Reeve - Hope (Intro Edit) (feat. Geert Huinink & Kim Kiona) (6:43)
-02. Ikerya Project - Family (Original Mix) (6:32)
-03. Kelly Andrew - Xanadu (Orchestral Trance Mix) (8:34)
-04. Afternova - Into The Sky (2015 Remake) (7:18)(   Читать дальше...   )Жанр: Trance , Uplifting TranceПродолжительность: 02:59:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0ED5F1C19A5EB017CB11C8E9F2491541F8E27CA9
 ```
 
 https://mybot314.ru/tekegram_catalog/

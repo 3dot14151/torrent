@@ -1,3 +1,177 @@
+###  Публикация: 1706253   (113652) от 12.03.2024
+
+The Arthouse Tomatoes - On The Vine (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113652.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wildflower (3:19)
+02. Gunfighter's Heart (3:02)
+03. Driving Across the Desert (2:29)
+04. Kinda Miss the Heartbreak (3:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:33:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:223C2C785A3A43D8CD8D6E7D352907C14762CF97
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706403   (113645) от 12.03.2024
+
+S.O.D - Speak English or Die (1985) Reissue, 2016, Megaforce Records [FLAC|24/192|image + .cue|Vinyl-Rip] <Hardcore, Speed Metal, Thrash>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113645.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 March Of The S.O.D.
+A2 Sargeant D & The S.O.D.
+A3 Kill Yourself
+A4 Milano Mosh(   Читать дальше...   )Жанр: Hardcore, Speed Metal, ThrashПродолжительность: 01:16:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F1C0DC43523F75025E56E39A7FF97DE4443737
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706377   (113642) от 12.03.2024
+
+S.O.D - Speak English or Die (1985) [WavPack|32/96|image + .cue|Vinyl-Rip] <Thrash, Hardcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113642.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. March Of The S.O.D.
+A2. Sargeant D & The S.O.D.
+A3. Kill Yourself
+A4. Milano Mosh(   Читать дальше...   )Жанр: Thrash, HardcoreПродолжительность: 00:28:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:00F5387B593C58308B580708704B1BCF20331AD3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706247   (113632) от 12.03.2024
+
+Dani Bischoff - Cedars Boulevard (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113632.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Good Old Wheels (2:59)
+02. All Comes Easy (4:25)
+03. Out of This Train (2:51)
+04. Nothing but the Blues (4:30)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:39:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CBF6BA5CDEDA43AA5692CB68F7B67D9BD7F3A51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706436   (113629) от 12.03.2024
+
+Darkthrone - Soulside Journey (1991) Reissue, 2012, Peaceville [FLAC|24/192|image + .cue|Vinyl-Rip] <Death Metal, Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113629.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Cromlech
+A2 Sunrise Over Locus Mortis
+A3 Soulside Journey
+A4 Accumulation Of Generalization(   Читать дальше...   )Жанр: Death Metal, Black MetalПродолжительность: 00:41:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2523D09A782DCF7C877C9AFF55E5B43EF46400EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1706250   (113624) от 12.03.2024
+
+Ibai García - Chasing the blues (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113624.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Don´t leave me alone tonight (4:54)
+02. A one and only soul (6:20)
+03. I still care (4:07)
+04. Never coming down (4:09)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF0753716BB03DC0F3FFD1EC8FBC179B0B3C7028
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1706248   (113623) от 12.03.2024
 
 Glenn Marais and The Mojo Train - Red, Hot and Blue (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues Rock>
@@ -571,180 +745,6 @@ Justin Timberlake - Everything I Thought It Was (2024) [FLAC 24/48|Lossless|WEB-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:436A5A2AF1AB3BF7FBF5DB8E46955AEBB7B0507A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707113   (113363) от 16.03.2024
-
-Kid Kapichi - There Goes The Neighbourhood (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113363.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Artillery [3:26]
-02 - Let's Get To Work [3:02]
-03 - Tamagotchi [3:35]
-04 - Can EU Hear Me? [2:59](   Читать дальше...   )Жанр: RockПродолжительность: 00:37:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11D25A4279A574F6460F3D8EAE62537FE589314
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707328   (113362) от 16.03.2024
-
-VA - Маскарад (1986) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113362.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Маскарад (И. Саруханов — О. Писаржевская, А. Монастырев) — 5.07
-И. Саруханов
-02. Предсказание (Д. Тухманов — Г. Кантор) — 2.53(   Читать дальше...   )Жанр: PopПродолжительность: 00:34:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:044D48609E12F54357734761AFF866778E03BBEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707333   (113360) от 16.03.2024
-
-Владимир Мигуля и группа "Земляне" - Песни В. Мигули (1981) [FLAC 24/96|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113360.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1.
-01 - Поезд. (Н.Олев)
-02 - В саду играет музыка. (М.Танич)
-03 - Танцуем "диско". (А.Дементьев)(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12CC2ABCA3284B62DB9CE190F52CCAAA5EDCE547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707109   (113359) от 16.03.2024
-
-VA - С Новым Годом! (1983) [FLAC 24/192|Lossless|tracks] <Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Чокло (А. Вильельдо)
-Танго-квартет
-02. Завируха (Э. Ханок — Г. Буравкин)
-Ансамбль «Верасы»(   Читать дальше...   )Жанр: PopПродолжительность: 00:38:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D71F315A617AB89E38525C3AD9C3DFA51656663
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707331   (113357) от 16.03.2024
-
-Владимир Кузьмин - Ромео и Джульетта (1989) [FLAC 24/192|Lossless|tracks] <Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113357.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1
-01. Ромео И Джульетта — 4.12
-02. Долгая ночь — 4.17
-03. Блеск в ее глазах — 3.49(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:38:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA63FB4BC55C24217C33839E48C65BE7D452F97F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1707344   (113351) от 16.03.2024
-
-Геннадий Белов - Геннадий Белов (1977) [FLAC 24/192|Lossless|tracks] <Pop, Retro>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_113351.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сторона 1:
-01. Травы, травы (В.Шаинский - И.Юшин)
-02. Шумят хлеба (А.Пахмутова - С.Гребенников)
-03. Черноглазая казачка (М.Блантер - И.Сельвинский)(   Читать дальше...   )Жанр: Pop, RetroПродолжительность: 00:36:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E1F1EEA7EAD75F272EFAFCAC28FA6141FACE8065
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1049583   (542381) от 06.09.2016
+
+Ivan 'Boogaloo Joe' Jones - Snake Rhythm Rock & Black Whip (1972, 1973) 1992, BGP[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542381.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Hoochie Coo Chickie [05:28]
+ 02.Snake Rhythm Rock [05:31]
+ 03.The First Time Ever I Saw Your Face [05:49]
+ 04.He's So Fine [06:33](   Читать дальше...   )Жанр: Jazz-Funk, Hard BopПродолжительность: 01:11:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2056C423140E39DEBA902B6BFFC8C4C732B8516
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049503   (542376) от 06.09.2016
+
+Charlie Hunter - Everybody Has A Plan Until They Get Punched In The Mouth (2016) GroundUP Music[FLAC|Lossless|tracks + .cue] <Jazz-Funk, Modern Jazz, Jazz Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542376.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Everybody Has A Plan Until They Get Punched In The Mouth [05:02]
+ 02.(Looks Like) Somebody Got Ahead Of Schedule On Their Medication [07:33]
+ 03.Leave Him Lay [04:03]
+ 04.We Don't Want Nobody Nobody Sent [05:32](   Читать дальше...   )Жанр: Jazz-Funk, Modern Jazz, Jazz BluesПродолжительность: 00:52:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CBD0580504689EAD81B591950198ED03E410948
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1049824   (542259) от 06.09.2016
 
 Bill Evans - Momentum, Vol. 1 (1972) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -691,64 +749,6 @@ James Williams - Alter Ego (1984) 1986, Nippon [FLAC|Lossless|tracks + .cue] <Ha
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E12A54433D91A2AEBA9292C1EDC54FF8F8CF8F2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311837   (538305) от 01.07.2019
-
-Dinah Washington - Jazz Profile (1962 - 1963) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538305.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Destination Moon [2:33]
-02. The Blues Ain't Nothin [3:45]
-03. Lover Man [3:00]
-04. Don't Say Nothin' at All [2:35](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10A8FEBA2C1F57554DF9598E80FE4259979589E0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311828   (538304) от 01.07.2019
-
-Count Basie - Jazz Profile (1959 - 1961) 1997, Blue Note [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Little Tempo Please [3:07]
-02. Corner Pocket [5:14]
-03. I Needs to Be Be'd With [4:22]
-04. Segue in C [8:19](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:49:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:939FB65F1CCEA7F53FCB2BBA6907E0B6CB7FA6A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

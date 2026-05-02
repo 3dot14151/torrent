@@ -1,3 +1,119 @@
+###  Публикация: 1658384   (191323) от 08.09.2023
+
+Craver - Torch Of Wisdom (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191323.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dreams Of The Night [00:03:55]
+02. Harbor Lane [00:04:49]
+03. Sign Of The Circle [00:04:22]
+04. Sweet Flame [00:04:32](   Читать дальше...   )Жанр: Hard Rock, Heavy MetalПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1786B343AB66CF7CB09249E0982E9495FD019342
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1658403   (191322) от 08.09.2023
+
+Montra - Against All Odds (2023) [FLAC|Lossless|WEB-DL|tracks] <Southern Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_191322.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gone Too Long [00:03:55]
+02. Good Times & Rock N' Roll [00:05:06]
+03. Old Dixie Hwy [00:04:26]
+04. Warning [00:05:03](   Читать дальше...   )Жанр: Southern Rock, Hard RockПродолжительность: 00:39:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319739D29A06E8C9048AFB4D07F3DD7AC0B6BEB9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1588783   (191101) от 06.11.2022
+
+Gathering Of Kings - Enigmatic (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock, AOR>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_191101.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Galacticus (1:11)
+02. Vagabond Rise (4:04)
+03. Here Be Dragons (4:38)
+04. Firefly (4:31)(   Читать дальше...   )Жанр: Melodic Hard Rock, AORПродолжительность: 00:53:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6E9C8F8D2DA3D2D76ACFD0DE670B7B729F0076B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1589009   (190912) от 07.11.2022
+
+Burning Sister - Mile High Downer Rock (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Doom>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_190912.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leather Mistress [00:06:31]
+02. Acid Night Vision [00:07:11]
+03. The Messenger [00:01:57]
+04. Cloven Tongues [00:07:25](   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, DoomПродолжительность: 00:46:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B4B497F325621C0DCF7820EA80B855095040F53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1588948   (190901) от 07.11.2022
 
 Stryper - The Final Battle (2022) [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Metal>
@@ -629,122 +745,6 @@ Void Cruiser - 3 Albums (2015-2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Stoner 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F71322990B297786FEB3D9C2387CD70F18C2AA1C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590741   (188550) от 15.11.2022
-
-Pieces Of Molly - Pieces Of Molly (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock'n'Roll, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188550.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Atomic Fuzz
-02 I Don't Wanna
-03 Banshee
-04 Don't Shine A Light Into The Dark(   Читать дальше...   )Жанр: Heavy Rock'n'Roll, StonerПродолжительность: 00:26:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BCC04CBECCBF11F21B6514378EA6444E244AB25D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590742   (188547) от 15.11.2022
-
-Hydranaut - 2 Albums (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock'n'Roll, Psych, Stoner>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188547.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock n Roll Rabbit hole [00:01:51]
-02. Sweller [00:02:32]
-03. Who put the gutter here? [00:03:32]
-04. Chaser [00:02:52]Жанр: Heavy Rock'n'Roll, Psych, StonerПродолжительность: 2 CD, 00:39:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A435C615A2D6AFDD59F29645E821BEC2E1CB44B1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590651   (188543) от 15.11.2022
-
-Jerky Dirt - Chirality (2022) [FLAC|Lossless|WEB-DL|tracks] <Heavy Rock, Psych, Stoner, Grunge>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188543.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adrift On Synaptic Seas
-02. Through The Mirror
-03. This Seems Familiar
-04. Another Life(   Читать дальше...   )Жанр: Heavy Rock, Psych, Stoner, GrungeПродолжительность: 00:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F520D838B9E6C03543A083135FDDF9F661F943F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590744   (188540) от 15.11.2022
-
-Desert Dragon - 3 Albums (2012-2022) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188540.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bad Luck [00:03:51]
-02. God Bless Miss America [00:04:42]
-03. Swamp Thing [00:04:53]
-04. What It Means to Me [00:04:46](   Читать дальше...   )Жанр: Hard RockПродолжительность: 3 CD, 01:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB2AE3061CB7B7ACE3D8B5A2321CE17F56348A8A
 ```
 
 https://mybot314.ru/tekegram_catalog/

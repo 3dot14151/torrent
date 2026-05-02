@@ -1,3 +1,32 @@
+###  Публикация: 918867   (584886) от 17.07.2015
+
+Big James And The Chicago Playboys - The Big Payback (2012) [MP3|320 кб/с]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_584886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  The Blues Will Never Die (4:51)
+02.  Big Payback (5:28)
+03.  Coldest Man I Ever Knew (4:26)
+04.  All Your Love (4:19)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CFFABAAFB4CC513BB9653297C99FEC02F00399C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 918914   (584881) от 17.07.2015
 
 Maria Muldaur - Meet Me At Midnight (1994), Reissue/2005, Shout! Factory LLC/ [MP3|320 кб/с]<Blues Rock>
@@ -728,41 +757,6 @@ Marvin Gaye - Les Genies du Rock - Live (1993) [MP3|320 кб/с]<Soul,Funk,R&B>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94988D0AE896166157C2EFEBA0E803C1CAB9212A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 528637   (568191) от 30.07.2012
-
-J.J. Cale - Дискография (26 альбомов)(1967-2011)[MP3|320 kbps]<Blues|Americana|Swamp Rock|Red Dirte>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568191.jpg" />
-</div>
-
-
-###  Подробнее
-
-В 2000-х Джей Джей Кейл неоднократно сотрудничал с Эриком Клэптоном по инициативе последнего. В 2004 году Клэптон организовал в Далласе гитарный фестиваль «Crossroads», где выступил и Кейл. Там зародилась идея совместного альбома. Альбом «The Road To Escondido» был записан в августе 2005 года в Калифорнии. Оба музыканта совместно продюсировали этот проект, пели и играли в нем. 11 из 14 композиций диска написал Кейл, одну — Клэптон («Three Little Girls»), одну — Джон Майер, а еще одним треком стала версия классического блюза «Sporting Life Blues». Весной 2008 года этот альбом получил премию «Грэмми» в категории «Лучший альбом в стиле Современный блюз».
-
-Продолжительность: 00:57:05
-
-Треклист:
-01. Danger (5:34)
-02. Heads In Georgia (4:12)
-03. Missing Person (4:26)
-04. When This War Is Over (3:49)
-05. Sporting Life Blues (3:31)(   Читать дальше...   )Жанр: Blues, Americana, Swamp Rock, Red DirteЖанры: Americana, кейджн, блюз, свомп-рок, рэд дёртПродолжительность: 23:35:34
-
-## Скачать торент
-```bash
-нет
 ```
 
 https://mybot314.ru/tekegram_catalog/

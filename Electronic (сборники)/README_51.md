@@ -1,3 +1,61 @@
+###  Публикация: 1505577   (802743) от 28.10.2021
+
+VA - The Delicate Deep House (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802743.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Darren Studholme - Pieces
+002. Juno Valdez - This Is Your Life
+003. Alex Poet feat. Michelle Weeks - Where Do I Begin
+004. Rony Seikaly - Frontin'(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:41:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3248BA494717F50B779F3EF74729CC38F62A352A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1505541   (802729) от 28.10.2021
+
+VA - Agoraphobia: Techno Electronic Party (2021) [MP3|320 Kbps] <Techno, Electronic, Minimal>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_802729.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Serenace - Reflex Dub
+002. Rewach - Tronic
+003. Fruhwerk - Walking Robot
+004. Oscar Sanchez - Gumede(   Читать дальше...   )Жанр: Techno, Electronic, MinimalПродолжительность: 11:11:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9FA10F75F0074BD1969C85E0A65E8C73E11257E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1505778   (802487) от 28.10.2021
 
 VA - Deep House, Baby 2 (2021) [MP3|320 Kbps] <Deep House>
@@ -684,64 +742,6 @@ VA - Hi Games Vol.7 (Chiptune, Electro House Edition) (2020) [MP3|320 Kbps] <Chi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:67A8560085AC673D6298D900726D7B693885924F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385119   (800276) от 23.05.2020
-
-VA - Beatport Progressive Trance: Electro Sound Pack #89 (2020) [MP3|320 Kbps] <Progressive Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800276.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Kamil Brandt - Reunited (Extended Mix)
-002. Defcon Audio - Trailblazer
-003. Telepatica - Level Of Scale
-004. Bdh - Unity (Original Mix)(   Читать дальше...   )Жанр: Progressive TranceПродолжительность: 09:00:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5A6F3F155CBE3C4FB239487457EC248348380A17
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1385068   (800203) от 23.05.2020
-
-VA - Beatport Future House: Electro Sound Pack #97 (2020) [MP3|320 Kbps] <Electro House, Tech House, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_800203.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Futur-E - Eccentric Orchestra
-002. Yuki Tosaya - Voices From Tokyo
-003. Deepshader - Departe
-004. Leonard Marcucci - Day Off (Party Mix)(   Читать дальше...   )Жанр: Electro House, Tech House, ProgressiveПродолжительность: 09:14:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4CA32CD804F30804901C9A26FC650CF2C8EFC1F
 ```
 
 https://mybot314.ru/tekegram_catalog/

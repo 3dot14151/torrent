@@ -1,3 +1,32 @@
+###  Публикация: 972679   (980674) от 07.01.2016
+
+Gunter - Pleasureman (2004) 2005 Танцевальный Рай [FLAC|Lossless|tracks + .cue] <Euro House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_980674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Golddiggers (3:36)
+02. Ding Dong Song (4:04)
+03. Teeny Weeny String Bikini (4:00)
+04. Touch Me (3:39)(   Читать дальше...   )Жанр: Euro HouseПродолжительность: 00:37:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2FDDAA2312DB8517095A7E31FCC09BD2786E11EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1356348   (979114) от 30.01.2020
 
 Gabriel & Dresden - Remedy (2020) Anjunabeats [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Pop-Trance, Deep House, Downtempo>
@@ -713,35 +742,6 @@ VA - Cirque du Son: 5th Anniversary Compilation (2017) [FLAC|Lossless|WEB-DL|tra
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:65D6CDCA37576EE404AD3217B368623494867C77
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363454   (942601) от 28.02.2020
-
-Tim Dash - Afterlight 001 (2020) [FLAC|Lossless|image + .cue] <Deep Techno, Progressive House, Melodic Techno>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_942601.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Novakk - Hela (Ivory Hypnotic Treatment) (5:40)
-02. Booka Shade - Atlantic Beam (5:56)
-03. Enamour & Nox Vahn - Sleep Paralysis (5:39)
-04. Nico Morano & Radeckt - Resilio (Night Talk Remix) (6:44)(   Читать дальше...   )Жанр: Deep Techno, Progressive House, Melodic TechnoПродолжительность: 01:07:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D76BD224A4A37445A75F70F271EC286AFAE0C3BD
 ```
 
 https://mybot314.ru/tekegram_catalog/

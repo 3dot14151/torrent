@@ -1,3 +1,119 @@
+###  Публикация: 1432240   (164434) от 17.12.2020
+
+Мистер Гро… - Не бойся огня (2020) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164434.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. В космос! [00:03:27]
+02. Сибирь [00:02:54]
+03. Деревянный макинтош [00:03:54]
+04. Таран [00:04:27](   Читать дальше...   )Жанр: Rock, Heavy MetalПродолжительность: 00:44:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4102C01F2B2BD7ABA83D96CBDFB59465CD14039
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432249   (164422) от 17.12.2020
+
+ЛМД - Когда идёт дождь (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Когда идёт дождь [00:04:02]
+02 - Ток [00:03:54]
+03 - Свинцовый дирижабль [00:05:23]
+04 - Выходи танцевать [00:03:25](   Читать дальше...   )Жанр: RockПродолжительность: 00:57:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:52FE83FFA0954FF14DFAFAEFD57DD93C56C9EFA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1597947   (164247) от 17.12.2022
+
+Котик ДжеймS - 2 Albums (2021-2022) [MP3|320 Kbps] <Soft punk,  Alternativo, Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164247.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Мечты [00:03:51]
+02. Королева [00:04:23]
+03. Муравей [00:05:00]
+04. Наркоман [00:03:10](   Читать дальше...   )Жанр: Soft punk,  Alternativo, RockПродолжительность: 2 CD, 00:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:962F0545285FF0C13ED45A1AAB4F43F980DCF72D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1432403   (164234) от 17.12.2020
+
+Торба-на-Круче - Ветер дует из Макондо (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_164234.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Лето
+2. Осень
+3. Зима
+4. ВеснаЖанр: RockПродолжительность: 00:21:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A27D452E085E1ED8495117107F04A81B78DBB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597757   (164042) от 17.12.2022
 
 И.Л.И. - 3 Albums (2022) [MP3|320 Kbps] <Alternative>
@@ -629,122 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C4237E8F58186AEFEB010E3EA670E941D2F852A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599154   (160183) от 22.12.2022
-
-Приятели Покойного - 2 Albums (2019-2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_160183.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Введение [00:02:31]
-02. Мы любим петь [00:03:07]
-03. Мало места [00:03:40]
-04. Днём с огнём [00:02:57](   Читать дальше...   )Жанр: RockПродолжительность: 2 CD, 01:14:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:775D75CEA49AFCAF1B1EA88C0B9A998EBE4FBFB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599692   (159657) от 24.12.2022
-
-CREATOR'S - Состояние (2022) [MP3|320 Kbps] <Metalcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159657.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Тень (Глава первая) [00:03:48]
-02 - Темной тропой (Глава первая) [00:01:08]
-03 - Вера (Глава первая) [00:04:15]
-04 - Пропасть (Глава вторая) [00:04:19](   Читать дальше...   )Жанр: Metalcore, ElectronicПродолжительность: 00:43:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD7BD34497A3EF4349533732A6E1787CDE6BA255
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1599707   (159630) от 24.12.2022
-
-Неоткрытая Авоська - 1 Album, 2 Singles (2022) [MP3|320 Kbps] <Punk-Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159630.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2022 - Дальневосточная (Неоткрытая Авоська feat. Голос Омерики) (Single)
-2022 - Морж роман (Single)
-2022 - Панк-кабареЖанр: Punk-Rock, SkaПродолжительность: 3 CD, 00:41:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65E08E8452289E8A10F35B73DCEBF59E64ED2389
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1590484   (159287) от 25.12.2022
-
-Саблезубый Тигр - 11 Albums (2011-2023) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_159287.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-2011 - Ваши ёжики видны
-2011 - Девушка с кокосами
-2016 - Нам не хватает на портвейн(   Читать дальше...   )Жанр: Punk RockПродолжительность: 11 CD, 05:31:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C6751378AD1F2009B33A29E93D9DF4FC0D1C633
 ```
 
 https://mybot314.ru/tekegram_catalog/

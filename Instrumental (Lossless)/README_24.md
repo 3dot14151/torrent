@@ -1,3 +1,119 @@
+###  Публикация: 1092248   (940350) от 11.01.2017
+
+Shane Henry - Deliverance (2004) [FLAC|Lossless|image + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940350.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Deliverance  (03:43) 
+02|  In too deep  (03:19) 
+03|  40 Days and Forty Nights  (03:25) 
+04|  Lost Angelo  (04:05) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:42:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1CCE374411202B4D9B44D3827C0B9897EF705F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092178   (940267) от 11.01.2017
+
+The Robert Cray Band - Too Many Cooks (1980) 1989, TOMATO, авторская раздача [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940267.jpg" />
+</div>
+
+
+###  Подробнее
+
+Самое смешное случилось с Robert Cray после завершения этого его первого релиза в 1980 году: он стал звездой! Он что называется оседлал  волну музыкального признания. Для тех, кто знал работу Крея в конце 70-х годов, кто следил за его ранним карьерным путем в качестве современного и самостоятельного блюзмена, не было ничего удивительного. Ведь он не просто продолжил (   Читать дальше...   )01. Too Many Cooks  (2:50)
+02. The Score  (4:08)
+03. When The Welfare Turns Its Back On You  (3:21)
+04. That's What I'll Do  (2:38)(   Читать дальше...   )Релиз состоялся: 1980, на LP под названием Who's Been Talkin'Жанр: BluesПродолжительность: 00:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:776697E4BB56DA006462DB96735830D1FA40D104
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1092397   (938945) от 12.01.2017
+
+Mark 'Mississippi Slide' Jeghers - The Bluez Projekt (2016) WEB [FLAC|Lossless|tracks + .cue] <Blues / Blues-Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938945.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Sadie (06:22)
+2. Down in the Bottom (04:59)
+3. Goin' Down South (04:48)
+4. Bromophenol Blues (06:13)(   Читать дальше...   )Жанр: Blues / Blues-RockПродолжительность: 01:16:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FA0A99A7C300674198AF9CDB9F82FE2D73CF05B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984601   (938845) от 09.02.2016
+
+VA - Love's Greatest Hits (2006) [FLAC|Lossless|tracks + .cue] <Funk, Soul, Contemporary Jazz >
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938845.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harold Melvin & The Blue Notes - If You Don't Know Me By Now (3:27)
+02. Diana Ross & Lionel Richie - Endless Love (4:25)
+03. Marvin Gay & Tammi Terrell - You're All I Need To Get By (2:51)
+04. Peabo Bryson & Robert Flack - Tonight, I Celebrate My For For You (3:30)(   Читать дальше...   )Жанр: Funk, Soul, Contemporary Jazz, Soft JazzПродолжительность: 01:16:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D5DF6A38E3A922F74FDB51BC46CBD1979B1B3D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092915   (937239) от 13.01.2017
 
 Ryan McGarvey - 3 Альбома (2007 - 2014) [FLAC|Lossless|image + .cue] <Blues Rock>
@@ -633,122 +749,6 @@ Mojo Radio - блюз-рок группа из Висконсина, США. Ч�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86E14B2BBDB600AB0C9987F4FF0A16B89145B5FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1489432   (925282) от 16.08.2021
-
-Thorbjorn Risager & Emil Balsgaard - Taking The Good With The Bad (2021) [FLAC|Lossless|image + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_925282.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Insomniac Boogie (2:56)
-02. I Know You Rider (4:48)
-03. It Ain?t Right (3:06)
-04. If I Could (4:08)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9054E713C8AB598A10F69CF43AEEC422F8CF77EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095214   (924564) от 21.01.2017
-
-Alastair Greene - Through The Rain (2011) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924564.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  Before The Storm  (00:43) 
-02|  Through The Rain  (04:28) 
-03|  By The Way  (04:21) 
-04|  Get Your Evil On  (04:37) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7D13CDD3988AE5B9543B3D60A5377EFC2305659
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095304   (924555) от 21.01.2017
-
-Skinny Blue - Skinny Blue (2017) [FLAC|WEB-DL|Lossless|tracks + .cue] <Blues, Alternative Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924555.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Where Ya Been (02:39)
-02 No Surprise (03:08)
-03 You Feel It Too (04:58)
-04 Hit The Gas (04:01)(   Читать дальше...   )Жанр: Blues, Alternative Blues RockПродолжительность: 00:29:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F8D510F2D76150BC086EDD2A6A62AA12E0F68736
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095216   (924553) от 21.01.2017
-
-Mark Cook - An Evening With The Blues (2000) [FLAC|Lossless|image + .cue] <Blues Rock, Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_924553.jpg" />
-</div>
-
-
-###  Подробнее
-
-01|  All Your Lovin'  (03:20) 
-02|  Nasty Old Feeling  (05:02) 
-03|  Bad Reputation  (03:05) 
-04|  Let it Go  (04:04) (   Читать дальше...   )Жанр: Blues Rock, Electric BluesПродолжительность: 00:49:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2CD677A3A55A6F43664F99AC96F2212B724268CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,278 @@
+###  Публикация: 480288   (99079) от 09.04.2012
+
+Величайшие автомобили: Порше / Great Cars: Porsche (2004) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Для многих это только мечта. Мечта однажды сесть за руль одного из самых легендарных спорткаров в истории - ПОРШЕ. Эти автомобили-мечты стали всемирными эталоном стильного и скоростного спорткара. Это азартные, мощные и качественные машины, созданные для людей которые страстно любят водить.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:24:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40309E6F252AFBBCC49AF6C043317C4F30C8B41D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480567   (99075) от 09.04.2012
+
+[Wallpapers] Desktop Wallpapers Pack 44
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99075.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 44 
+Название:  Desktop Wallpapers Pack 44 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1680х1050 - 4292х3192
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46D5093AB2392FEBA4928BDD7F2F5C9A67D30B6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480728   (99071) от 09.04.2012
+
+[Wallpapers] Nature Pictures №39
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99071.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Nature Pictures №39
+Название: Nature Pictures №39
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1280х1024 - 3428х2284
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07353B72D7461A8486430EF3990D3EF66D1F0614
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 478617   (99068) от 09.04.2012
+
+VA - XXXL Максимальный размер удовольствия 6 (2012) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99068.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Алсу - Там, Где Я
+ 02. Total - Здравствуй, мой день!
+ 03. Верка Сердючка, Лайма Вайкуле И Потап - Караганда
+ 04. Serebro - Mama Lover (Radio Rip)
+ 05. Ани Лорак - Не Дели Любовь
+ 06. Ирина Билык - Коробочки
+ 07. Plazma - Angel Of Snow
+ 08. Vesna - Лучший поцелуй
+ 09. Ika - Задыxаюсь Без Тебя
+ 10. Катя Лель - Не Могу Забыть2012Жанр: PopПродолжительность: 05:45:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7E639BA10D4FA17427C2ABDB7B8FAC975A13E5CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480650   (99064) от 09.04.2012
+
+4Minute - Volume Up (2012) [H.264/1080р] WEBRip
+
+>>Архив торрентов
+>>Архив Музыкального Видео
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99064.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 00:04:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43F8051BF10ACE8D617DAAD0702C6CD1BC913251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480165   (99061) от 09.04.2012
+
+[Wallpapers] Desktop Wallpapers №15
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99061.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers №15
+Название: Desktop Wallpapers №15
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1440х900 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B90B060910B17895DA465F04D2D9372685EAC7AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480159   (99060) от 09.04.2012
+
+VA - Клубная хитовая волна (2012) [MP3|160-320 кб/с]<Club>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99060.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Смысловые Галлюцинации - Волна (Dj Nejtrino & Dj Stranger Remix) (4:34)
+2. Milena & MaXimA - Города (3:27)
+3. Руки Вверх И Гости Из Будущего - Он Тебя Целует (Ural Djs Edit Full Version) (5:42)
+4. Maison & Dragen - Rio De Janeiro (Radio Edit) (3:03)
+5. Яна Кэй - Ты И Я (Dj Grant & Dj Johnny Clash Electro Remix) (5:00)
+6. Женя Юдина - Дыши (DJ Южанин remix) (5:03)
+7. Maxigroove - Поцелуи без слов (club mix) (3:56)
+8. Klaas Feat. Carlprit - Do What You Do (Bodybangers Remix Edit) (3:32)
+9. Groove Coverage Feat. Rameez - Think About The Way (Extended Mix) (4:36)
+10. Richard Durand feat. Hadley - Run To You (8:04)2012Жанр: ClubПродолжительность: 08:25:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1268BCA0176A29BEAF49FF0591309A4B306A4437
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479937   (99058) от 09.04.2012
+
+Sarcophagy - The Summoning (2012) [MP3|320 кб/с]<Brutal Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99058.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro 01:10
+ 02. Truncate The Pedophile 03:55
+ 03. Cut To Pieces 04:49Жанр: Brutal DeathПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EEAC44FEA239D1DA42B971E9A0F07CFE50BC9E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 479047   (99057) от 09.04.2012
+
+VA - Klubnye novinki Vol.62 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99057.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Albat Ross feat. Bryan Adams - Tonight We Have The Stars (Original Mix)
+02 Ana Criado feat. Ronski Speed - Afterglow (Ronski Speed Remix)
+03 Andrew Bayer & Matt Lange feat. Kerry Leva - In And Out Of Phase (Club Edit)
+04 Andrew Bennett , Strobe - Cataleya (Original Mix)
+05 Andrew Bennett feat. Shena - Alright (Original Mix)
+06 Armin van Buuren presents Gaia - Stellar (DNS Project Remix)
+07 Audio Killers - Sigo Aqui (Original Mix)
+08 Beat Service feat. Neev Kennedy - But I Did (Xtigma Remix)
+09 Bob Sinclar feat. Sophie Ellis-Bextor - Fuck With You (Club Mix)
+10 Boogie Pimps - 24Seven (Muzzaik Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 05:37:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78C3C39845331D6981D135CB2640B53ADC384490
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 480166   (99056) от 09.04.2012
 
 [Wallpapers] Desktop Wallpapers №16
@@ -421,32 +696,6 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 480060   (99014) от 08.04.2012
-
-[Wallpapers] Подборка к дню космонавтики
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99014.jpg" />
-</div>
-
-
-###  Подробнее
-
-Космос-такой манящий и опасный
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 479787   (99012) от 08.04.2012
 
 Twin Vi - Крестовый Поход (2012) [MP3|320 кб/с]<Rap>
@@ -505,245 +754,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0F50194C3120FB95130FE788A8CE05288810507B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479816   (99009) от 08.04.2012
-
-Smoke DZA - Cuz I Felt Like It Ep (2012) [MP3|320 кб/с]<Rap>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99009.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 2 AM Monday Night
-2. Hollywood Smoke Hogan
-3. E.T s Finger Feat Jae Millz
-4. Spottieottiedopajetshit
-5. Less Smoking More Rapping
-6. Two One Two
-7. Imaginary Member
-8. Cuz I Felt Like It Feat Den102012Жанр: Rap, Hip-HopПродолжительность: 00:16:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC02FF549B24F19148DFC39E8281D6AF94ED98EC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479693   (99005) от 08.04.2012
-
-VA - Paul Oakenfold DJ Box - April (2012) (2012) [MP3|320 кб/с]<Trance, Progressive, Uplifting>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99005.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Oakenfold, Paul/Varios - Glow In The Dark (original mix)[07:37]
-2. Senadee - Life Support Machine (16 Bit Lolitas remix)[08:35]
-3. Cold Blue - Coconut (radio edit)[03:40]
-4. Paul Oakenfold - Pop Star (feat Robert Vadney - Eximinds remix)[06:54]
-5. Remy Le Duc, The EC Twins, Zen Freeman - In Motion (feat Shakeh - original mix)[06:29]
-6. Magnus - Hypnotic (original mix) [08:09]
-7. AJ Myst & Red Ant - Dune (Too Dusty remix)[05:19]
-8. Way Out West - Killa (Orkidea 2011 remix)[07:41]
-9. Rebels Without A Cause & York - Red Violin (Mario Hammer Lonely Robot remix)[07:57]
-10. Oliver Prime - Hello World (take 1)[07:35](   Читать дальше...   )2012Жанр: Trance, Progressive, UpliftingПродолжительность: 01:12:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:15190C295DE5FE427EDCF4FD2CB9FCA5C4BD8B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480010   (99004) от 08.04.2012
-
-Величайшие автомобили. Самые старые автомобили / Great Cars: Oldest cars (Michael Rose) (2005) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99004.jpg" />
-</div>
-
-
-###  Подробнее
-
-Едва появившись автомобили сразу же привлекли внимание людей по всему миру - этим сказочным аппаратам предстояло заменить лошадей и преобразить мир. Автомобильные первооткрыватели торопили время, им приходилось преодолевать громадные препятствия - нужно было убедить публику, что автомобили это не просто мечты. Они шли этим путем, учась на своих ошибках, чтобы наконец посадить всех нас за руль.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:747BC471BCCFFD6C20717B1F0DFB031E50767ECF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478833   (99003) от 08.04.2012
-
-Eric Sneo - Polarity (2012) [MP3|320 кб/с]<Techno>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99003.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Polarity (The Intro)
-2. Polarity
-3. Sensation (feat. Marq Figuli)
-4. Apoptose
-5. Omnipotent Nights 2012
-6. Sao Paulo
-7. Inside Shadows
-8. Woodpacker From Mars
-9. Quantum Reality
-10. Morningsun(   Читать дальше...   )2012Жанр: TechnoПродолжительность: 01:27:57
-
-Широкий диапазон электронной музыки и эмоции были отражены в новом альбоме художника электронных звуков - Eric Sneo. "Polarity" наполнен мелодичной последовательностью Technoid Peaktime, атмосферным углублением и тяжёлой драм-машиной. Это своего рода уникальная комбинация, которая ещё не была использована ни кем из современных музыкантов.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F94CBFFDC9CA65966127B4D5026EEB1D186FE80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479612   (99000) от 08.04.2012
-
-Биатлон. "Гонка чемпионов" в Москве. Мужчины / Масс-старт (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мужской масс-старт на "Гонке Чемпионов" в Москве.Жанр: Спорт / БиатлонПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:25:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:20F32667E27E23A41ACC8912379805D8BCE2EA2D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479842   (98999) от 08.04.2012
-
-[Wallpapers] Avto Desktop Wallpapers Pack 5
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98999.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Avto Desktop Wallpapers Pack 5 
-Название:  Avto Desktop Wallpapers Pack 5 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1680х1050 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD4EC4C61B150750220F89F7B14C7114315C6E30
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479617   (98996) от 08.04.2012
-
-Биатлон. "Гонка чемпионов" в Москве. Женщины / Масс-старт (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98996.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женский масс-старт на "Гонке Чемпионов" в Москве.Жанр: Спорт / БиатлонПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:29:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73450AEC8DE398A269AAFE80AAAF429ADC44BCDA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 480050   (98995) от 08.04.2012
-
-Величайшие автомобили: Вольво / Great Cars: Volvo (2004) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98995.jpg" />
-</div>
-
-
-###  Подробнее
-
-На латинском слово "Вольво" обозначает "Я качусь". Но для большинства людей "Вольво" - синоним "безопасности"...Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00.24.59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C1D1360B928E663054C5A69249268519B81F7512
 ```
 
 https://mybot314.ru/tekegram_catalog/

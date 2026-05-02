@@ -1,3 +1,61 @@
+###  Публикация: 1215019   (761927) от 24.03.2018
+
+Frank Socolow - Sounds By Socolow (1956) 1999, Toshiba [FLAC|Lossless|tracks + .cue] <Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Miss Finegold [03:04]
+02. But Not For Me [03:14]
+03. Swing Low Sweet Socolow [02:58]
+04. How About You [03:59](   Читать дальше...   )Жанр: BopПродолжительность: 00:37:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB7D78EE20CE043E4BAE1867995601280B5C731
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1214882   (761926) от 24.03.2018
+
+Bud Freeman - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_761926.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I've Found A New Baby [02:44]
+02. Easy To Get [02:47]
+03. China Boy [02:41]
+04. The Eel [02:45](   Читать дальше...   )Жанр: SwingПродолжительность: 01:08:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0B3BB2445A15328F43717C30ACB205463DAF1AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1215022   (761925) от 24.03.2018
 
 Phillip Johnston Transparent Quartet - The Needless Kiss (1998) Koch Jazz [FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Modern Creative>
@@ -686,64 +744,6 @@ Bill Evans - Symbiosis 1974 (1994) MPS Records [FLAC|Lossless|tracks + .cue] <Po
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:486A795A6DD89560425B9A86054E32C57920AAD1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394996   (758854) от 08.07.2020
-
-Phil Woods - Musique Du Bois 1974 (2002) 32 Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Samba du Bois [7:02]
-02. Willow Weep for Me [10:12]
-03. Nefertiti [8:27]
-04. The Last Page [9:12](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:54:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:880768954C085B2C78C2A84BD27A3A8314C5D6DC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1394997   (758852) от 08.07.2020
-
-The Bill Evans Trio - Quiet Now 1969 (1994) Charly Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_758852.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Very Early [5:10]
-02. Sleeping Bee [4:49]
-03. Quiet Now [5:26]
-04. Turn Out of the Stars [4:56](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:30:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30379C3819F75D93AD701655B92DEC2949DC744F
 ```
 
 https://mybot314.ru/tekegram_catalog/

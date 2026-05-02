@@ -1,3 +1,177 @@
+###  Публикация: 1813301   (7033) от 18.08.2025
+
+El Jetta - Monkeys Do What They See (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7033.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Spiteful Man (3:53)
+02.  Sleep On (5:30)
+03.  Monkeys Do What They See (4:49)
+04.  Blot Out (3:44)(   Читать дальше...   )Жанр: RockПродолжительность: 00:30:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B2C7A81C43625D12C88AE6DD7FC48E92BFB6096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813232   (7032) от 18.08.2025
+
+Byzantine - Studio Albums (8 releases) (2004-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Groove/Thrash Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7032.jpg" />
+</div>
+
+
+###  Подробнее
+
+Byzantine — американская метал-группа из Чарльстона, Западная Вирджиния, образована в 2000 году.2004 - The Fundamental Component
+2005 -...and They Shall Take Up Serpents
+2008 - Oblivion Beckons
+2013 - ByzantineЖанр: Groove/Thrash MetalПродолжительность: 06:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:030FD15EB786615F6D0333359BC4EEC8000E4BDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813297   (7031) от 18.08.2025
+
+Caden Morland - World Stays the Same (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7031.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  World Stays the Same (2:09)
+02.  Out of Place (1:33)
+03.  Full No Bluff (2:47)
+04.  Daisy (2:35)(   Читать дальше...   )Жанр: RockПродолжительность: 00:36:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:186F35BD11CDE0581142936CF00E0EFE9A8FA4FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813327   (7030) от 18.08.2025
+
+Motiff - Heading for the Weekend (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7030.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Make My Day (3:27)
+02.  Run for Cover (3:45)
+03.  I Like It (4:47)
+04.  Heading for the Weekend (3:54)(   Читать дальше...   )Жанр: RockПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3C97812DC90F39A911A72390518CA492F94EEA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813236   (7028) от 18.08.2025
+
+Thurisaz - Studio Albums (6 releases) (2004-2020) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Atmospheric Death/Black Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7028.jpg" />
+</div>
+
+
+###  Подробнее
+
+Thurisaz - бельгийская метал-группа из Вервика, образовалась в мае 1997 года под названием Modilium и сменила название на Thurisaz в 2000 году.2004 - Scent Of A Dream
+2007 - Circadian Rhythm
+2011 - The Cimmerian Years
+2015 - Live & AcousticЖанр: Atmospheric Death/Black MetalПродолжительность: 05:00:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B42B41AC13B2F390DE248327652A0150734D2B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1813309   (7027) от 18.08.2025
+
+Firstborne - Lucky (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock, Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_7027.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Again (3:38)
+02.  Rescue Me (3:46)
+03.  Shine (4:19)
+04.  Wake Up (3:07)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 00:36:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEB36DC005A349559FF64C03B842E7CEC5D98A42
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1813314   (7026) от 18.08.2025
 
 Harmonic Tension - Roxy Vaine Yin Yang (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
@@ -568,178 +742,6 @@ JP LeBlanc - All In My Blood / Je l'ai dans l'sang (2025) [FLAC 24/44.1|Lossless
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BA3D5320E75072B721B2364066A786C37895F0F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813814   (6582) от 21.08.2025
-
-Dashiell Royston - Soul and Beyond (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6582.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Another Round (4:13)
-02.  Seeking Romance (4:26)
-03.  Dead Zone (3:46)
-04.  Blues Be Gone (4:22)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:55:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:27B2E47B2C086FAC4DBF603B4B08D18BC8AC79AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1582401   (6505) от 22.08.2025
-
-Deftones - Studio Albums (12 releases) (1995-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Nu Metal, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6505.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deftones — рок-группа из Сакраменто, Калифорния, США. Первый их альбом «Adrenaline» вышел в 1995 году, на год позже дебютного диска Korn. Эти группы считаются основателями жанра «нью-метал», но Deftones играли намного раньше Korn, в конце 80-ых — андерграундные странствия без издателя. Хотя Korn и остаются куда более коммерчески выгодным проектом, однако стилистика (   Читать дальше...   )1995 - Adrenaline
-1997 - Around The Fur
-2000 - White Pony
-2003 - DeftonesЖанр: Nu Metal, Alternative MetalПродолжительность: 10:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8A4775F3E5855982F91B52D7CA83A426C8AED52
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1704390   (6498) от 22.08.2025
-
-Burning Witches - Studio Albums (6 releases) (2017-2025) hand made [restored, declipped] [FLAC|16/44.1|tracks +.cue] <Heavy/Power Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6498.jpg" />
-</div>
-
-
-###  Подробнее
-
-Burning Witches — метал-группа, основанная гитаристкой Романой Калкуль в Бругге, Аргау, Швейцария.2017 - Burning Witches
-2018 - Hexenhammer
-2020 - Dance With The Devil
-2021 - The Witch Of The NorthЖанр: Heavy/Power MetalПродолжительность: 05:39:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:74A45862329C724F1E269750EF7A5A238494E397
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615148   (6484) от 22.08.2025
-
-Meshuggah - Studio Albums (15 releases) (1991-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Technical Groove/Thrash Metal, Djent, Math Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6484.jpg" />
-</div>
-
-
-###  Подробнее
-
-Meshúggah — шведская метал-группа, играющая в направлении мат-метал и являющаяся основателем этого жанра. Образована в 1987 году в городе Умео. Название группы являет собой вошедшее в английский язык из идиша слово משוגע (сумасшедший)1991 - Contradictions Collapse
-1995 - Destroy Erase Improve
-1998 - ChaosphereЖанр: Technical Groove/Thrash Metal, Djent, Math MetalПродолжительность: 14:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:758FE6A67DB2A881237F6EA2FEF344DB89A233FF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1697282   (6475) от 22.08.2025
-
-Blackbriar - Studio Albums (6 releases) (2017-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Rock, Symphonic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6475.jpg" />
-</div>
-
-
-###  Подробнее
-
-Blackbriar — голландская метал-группа из Ассена, основана в 2012 г.2017 - Fractured Fairytales (EP)
-2018 - We'd Rather Burn (EP)
-2019 - Our Mortal Remains (EP)Жанр: Gothic Rock, Symphonic MetalПродолжительность: 03:30:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C6B52FAD296F3167B8834BDBCC38D98A4C2AC097
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1813869   (6425) от 22.08.2025
-
-Deftones - Private Music (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Nu-Metal, Shoegaze, Alternative Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_6425.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - My Mind Is A Mountain [00:02:50]
-02 - Locked Club [00:02:52]
-03 - Ecdysis [00:03:28]
-04 - Infinite Source [00:03:32](   Читать дальше...   )Жанр: Nu-Metal, Shoegaze, Alternative MetalПродолжительность: 00:42:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:312185FD02C38ECE339DF2D88BA2D037814D851E
 ```
 
 https://mybot314.ru/tekegram_catalog/

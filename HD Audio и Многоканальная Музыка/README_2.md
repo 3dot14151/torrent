@@ -1,3 +1,148 @@
+###  Публикация: 1850341   (1054140) от 27.01.2026
+
+The Boomtown Rats - Dave (1984) [FLAC|Lossless|image + .cue] <Rock, New Wave, Synth-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054140.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dave (LP Version)
+A2 Hard Times
+Lazun Gemmun - The Boomtown Rats Live
+B1 Banana Republic(   Читать дальше...   )Жанр: Rock, New Wave, Synth-popПродолжительность: 00:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A1A298C245597DDF30D165D36C4C78016994747D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849912   (1054120) от 25.01.2026
+
+Manuel - This Is Manuel. 14 Tracks From His Fabulous Full-Price Albums (1971) Compilation, , Sampler [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Pop, Easy Listening, Instrumental>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054120.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Honeymoon Song
+A2 Intermezzo
+A3 A Man And A Woman
+A4 The Shadow Of Your Smile(   Читать дальше...   )Жанр: Pop, Easy Listening, InstrumentalПродолжительность: 00:43:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B26BC68B8BA429C86224CDAF6A2859C09433044
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850141   (1053960) от 26.01.2026
+
+VA - Party Mood. The Tremeloes, Anita Harris, Tony Bennett, Louis Armstrong and other (1967) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Jazz, Pop, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053960.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 New Christy Minstrels - Green, Green
+A2 Anita Harris - Don't Sit Under The Apple Tree
+A3 Tony Bennett - Let's Face The Music And Dance
+A4 Percy Faith - The Girl From Ipanema(   Читать дальше...   )Жанр: Jazz, Pop, Easy ListeningПродолжительность: 00:34:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58F98397BC520059E590539FD14AC2F7FEA0A4A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849692   (1053643) от 24.01.2026
+
+Jean-Michel Jarre - The Concerts In China (1982) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Modern Classical, Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053643.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 The Overture
+A2 Arpegiator
+A3 Equinoxe IV
+B1 Fishing Junks At Sunset(   Читать дальше...   )Жанр: Electronic, Modern Classical, AmbientПродолжительность: 01:19:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB63BC1A83628DBC73999CE6922756D257B0660
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1849804   (1053571) от 24.01.2026
+
+Franck Pourcel And His Orchestra - This Is Pourcel. 14 Tracks From His Fabulous  Full-Price Albums (1972) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Soundtrack, Theme, Easy Listening>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053571.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Dancing In The Sun (Un Rayo Del Sol)
+A2 A Man Without Love
+A3 Love At First Sight (Je T'aime Moi Non Plus)
+A4 Abacachi(   Читать дальше...   )Жанр: Soundtrack, Theme, Easy ListeningПродолжительность: 00:42:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:79E2EB7C07B3A7AE5F3CDB5ABC19AE915918628C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849484   (1053468) от 23.01.2026
 
 Serenity In Murder - Studio Albums (5 releases) (2011-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Black/Death Metal>
@@ -594,147 +739,6 @@ Dew-Scented — метал-группа из немецкого города Б�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA4E6028878DF71FFA70447919DFEAFD2C049EA3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1846433   (1051342) от 07.01.2026
-
-Entwine - Studio Albums (8 releases) (1999-2015) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051342.jpg" />
-</div>
-
-
-###  Подробнее
-
-Entwine - финская рок-группа из Лахти, основанная в 1997 году.1999 - The Treasures Within Hearts
-2001 - Gone
-2002 - Time Of Despair
-2004 - DiEversityЖанр: Gothic MetalПродолжительность: 06:19:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BEF360E09BBD9913A8B8D5D7E86A3C5BA741D3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845776   (1051000) от 03.01.2026
-
-Miss May I - Studio Albums (9 releases) (2007-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Metalcore>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1051000.jpg" />
-</div>
-
-
-###  Подробнее
-
-Miss May I - американская метал-группа из города Трой, штат Огайо. Основана в 2007 году.2007 - Vows for a Massacre (EP)
-2009 - Apologies Are For The Weak
-2011 - Monument
-2012 - At HeartЖанр: MetalcoreПродолжительность: 05:49:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85FA17A1B59F9927BDBEBD12ECB9E23405D36F74
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845545   (1050835) от 
-
-Sinamore - Studio Albums (2 releases) (2006-2007) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Gothic Metal/Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050835.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sinamore - финская метал-группа, основанная в 2004 году, из участников которой впоследствии была сформирована группа Kaunis Kuolematon2006 - A New Day
-2007 - Seven Sins a SecondЖанр: Gothic Metal/RockПродолжительность: 01:31:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3C7FE65827C0D5AEDF52D9631CD1D02431B9D179
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845558   (1050827) от 
-
-End of Aeon - Studio Albums (2 releases) (2012-2016) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050827.jpg" />
-</div>
-
-
-###  Подробнее
-
-End of Aeon - финская метал-группа, участники которой также входят в состав групп Sinamore и Kaunis Kuolematon2012 - Ever
-2016 - Through Infant EyesЖанр: Melodic Doom/Death MetalПродолжительность: 01:32:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32C1C3607B2C5BC7F0B53B9EEE2BAA777E8BF4FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1845291   (1050570) от 30.12.2025
-
-Kaunis Kuolematon - Studio Albums (5 releases) (2014-2025) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Melodic Doom/Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1050570.jpg" />
-</div>
-
-
-###  Подробнее
-
-Kaunis Kuolematon - метал-группа из Финляндии, образованная в 2012 году.2014 - Kylma kaunis maailma
-2017 - Vapaus
-2020 - Syttykoon Toinen Aurinko
-2023 - Mielenvalta(   Читать дальше...   )Жанр: Melodic Doom/Death MetalПродолжительность: 04:47:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CDA80B9E86F4B9D53C56471ECB828D1554A44EF
 ```
 
 https://mybot314.ru/tekegram_catalog/

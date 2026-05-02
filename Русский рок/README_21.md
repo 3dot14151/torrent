@@ -1,3 +1,117 @@
+###  Публикация: 1262949   (875592) от 15.09.2021
+
+Мураками - 10 Альбомов, 4 Сингла (2006-2021) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875592.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российская рок-группа, образованная в ноябре 2004 года, в городе Казань. Участники фестиваля «Нашествие» с 2011 года. Начиная с 2010 года, с песен «0 км», «Бред» коллектив получил широкую известность, возглавляя известные «тематические» хит-парады и чарты.
+Осенью 2004 года музыканты казанской группы «Солнце-Экран» пригласили финалистку телепроекта «Народный артист-2» (   Читать дальше...   )2006 - Чайки
+2009 - Телеграмма
+2011 - Верь...
+2013 - МояЖанр: RockПродолжительность: 06:23:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:45AFB29837A61944AA01CCA29AA88D6154CE3C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374255   (875093) от 09.04.2020
+
+Samaji - Гранж каньон (2020) ЕР [MP3|320 Kbps] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_875093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Подари себя [00:03:28]
+02 Кислота  [00:02:51]
+03 Течь [00:02:40]
+04 Ушла из дома  [00:02:14](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:14:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0E1BECA11182E78F6F9DBF43E2F43B1F8ED7825A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374344   (874726) от 09.04.2020
+
+Kruger - Nurnberg (2020) Single [MP3|320 Kbps] <Thrash Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Kruger - Nurnberg (Single)Жанр: Thrash Heavy MetalПродолжительность: 00:06:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A190A3D2EF4AC030F2BB482C0B8C48D7BDFD4D7F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374364   (874709) от 09.04.2020
+
+Oi!Beer!Alles! - Парни с городских окраин (2017) [MP3|320 Kbps] <быдло-Oi!>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_874709.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Oi!Beer!Alles! [00:01:19]
+02 - Рабочий Класс [00:02:03]
+03 - Про добро [00:01:33]
+04 - Бери перо [00:01:55](   Читать дальше...   )Жанр: быдло-Oi!Продолжительность: 00:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D156108DDDC5C543F863F7EB7B77225252F30B3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1374178   (874195) от 09.04.2020
 
 Kruger - XXX (2019) 3CD [MP3|320 Kbps] <Heavy Metal>
@@ -622,121 +736,6 @@ VA - Иллюминатор (Песни на стихи Ильи Кормиль�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:790809F07BF275A629556BEAF03BA9673ABB2285
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1107785   (865687) от 23.02.2017
-
-Владимир Кузьмин - Рокер 3 / Закрытие сезона (2017) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865687.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Папа подарил мне мотоцикл
-02. Я валяю дурака
-03. Харлей Кришна
-04. Весна – мотоциклетная пора(   Читать дальше...   )Жанр: RockПродолжительность: 00:58:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7457CCE3D18F4ADE2466132DB08802ADDDB82533
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1103321   (865482) от 23.02.2017
-
-Пилот - Двадцатничек! (2017) 2CD [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865482.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Небо
-2. Сердце машин
-3. Белый снег
-4. Нет вестей с небес(   Читать дальше...   )Жанр: RockПродолжительность: 01:30:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94BBCAC59C92398F0D48394B8E28F188F37DD06C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375518   (865379) от 14.04.2020
-
-Lumen - 3 Singles (2020) [MP3|320 Kbps] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865379.jpg" />
-</div>
-
-
-###  Подробнее
-
-(2020) Смерч (Single)
-(2020) Хороший царь и знакомая вонь (Single)
-(2020) Весна (Single)Жанр: Alternative, RockПродолжительность: 00:12:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2BB64D25439E23F3B97833CEFD155A08247A71EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1375510   (865249) от 14.04.2020
-
-nobody.one - Mercy, Please Mercy! (2020) [MP3|320 Kbps] <Instrumental Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_865249.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Jaguar
-2. Tribe Solder
-3. Sombrero
-4. Mercy(   Читать дальше...   )Жанр: Instrumental RockПродолжительность: 00:50:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:483D55A1D98B05ACF4C4F849ABB91B62F8531994
 ```
 
 https://mybot314.ru/tekegram_catalog/

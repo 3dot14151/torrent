@@ -1,3 +1,116 @@
+###  Публикация: 356778   (597045) от 29.06.2011
+
+VA - Мамы Дома Нет (2011) [MP3|128 kbps]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_597045.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: PopПродолжительность: 11:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:47E9971BB7E5624F21407109EAC21B9F88CBB1CF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1150013   (596332) от 13.07.2017
+
+VA - MTV Top 100 Single Charts (2017) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596332.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Luis Fonsi feat. Daddy Yankee - Despacito  3:48
+002.  Robin Schulz - Ok (feat. James Blunt)  3:09
+003.  Jonas Blue feat. William Singe - Mama  3:03
+004.  DJ Khaled - Wild Thoughts (feat. Rihanna & Bryson Tiller)  3:25(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:53:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C9787B35312D3D000B5C5DDC77A318A9629170A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1548637   (596194) от 04.05.2022
+
+Jennifer Rush - Compilation (2022) [MP3|320 Kbps] <Pop, Synth-Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596194.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. More Than Words
+02. A Touch of Paradise
+03. A Broken Heart
+04. Nights in White Satin(   Читать дальше...   )Жанр: Pop, Synth-PopПродолжительность: 02:07:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E751F2134E9C44ABDD5322287C134946BB301733
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1299772   (596059) от 03.05.2019
+
+VA - Top 100 UK Chart 01.05.2019 (2019) [MP3|320 Kbps] <Pop, Dance, Euro>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_596059.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stormzy - Vossi Bop
+002. Lil Nas X - Old Town Road
+003. Lewis Capaldi  Pete Kelleher  Tom Barnes  Phil Cook  Benjamin Kohn - Someone You Loved
+004. Billie Eilish - bad guy(   Читать дальше...   )Жанр: Pop, Dance, EuroПродолжительность: 05:33:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6803DF0F0E36DC9D2EF8FE529662064EC3CB2674
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1039472   (595947) от 01.08.2016
 
 VA - Летний Maximum Mix 50/50 (2016) [MP3|256 Kbps] <Pop>
@@ -635,110 +748,6 @@ VA - Лучшие Хиты ВКонтакте 50+50 (2015) [MP3|320 кб/с]<Pop
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:281C0B62EC7AC788EDA312A0161468E832DA8FFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357026   (588215) от 30.06.2011
-
-VA - XXXL Летний Чудо Mix-Парад №30 50/50 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588215.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:47:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0352E114FFCD9AAC43060A08051CEC1C689A30EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357141   (588206) от 30.06.2011
-
-VA - Улетное лето (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588206.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:13:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5DFFEEE8BC3773106488754C0719E6FEEE6C8A8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 357036   (588203) от 30.06.2011
-
-VA - Взрывной звездный хит (2011) [MP3|256 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588203.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 06:16:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA5F3EAECC084745ABD46DEA1629CAA5D877D969
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 356976   (588199) от 30.06.2011
-
-VA - Супер популярный летний Europa Plus 50/50 (2011) [MP3|128 kbps]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588199.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: PopПродолжительность: 12:24:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ABF8616E5CF05DB6B0EE895F0CD14F144E5718D
 ```
 
 https://mybot314.ru/tekegram_catalog/

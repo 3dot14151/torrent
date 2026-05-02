@@ -1,3 +1,119 @@
+###  Публикация: 1364172   (937943) от 02.03.2020
+
+VA - The Dance Riot (2020) [MP3|320 Kbps] <Dance, Disco, EDM>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937943.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Donny And Delano Mendoza - Can't Get This Beat Out Of My Head
+002. Sigala & Becky Hill - Wish You Well
+003. Nora En Pure - Heart Beating
+004. Los Reggaetronics - Taki Taki(   Читать дальше...   )Жанр: Dance, Disco, EDMПродолжительность: 11:54:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81DA368960C3E9A036C6BB5E6CBDCCA7B7B6C8A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1364297   (937731) от 02.03.2020
+
+Donna Summer - Queen of Disco (2020) 2CD Compilation [MP3|320 Kbps] <Pop, Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937731.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Once Upon A Time
+02. Mystery Of Love
+03. Work That Magic
+04. Cold Love(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 01:34:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7810074557D882617A1C5BD8387D443F21D150D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 984782   (937139) от 10.02.2016
+
+VA - Evolution of Disco - CD2 (1964-2015) [MP3|192-320 кб/с] <Funk,Disco,House>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Debonair - Tell You More  06:14
+02. Oliver Cheatham - Get Down Saturday Night (special extended)  07:34
+03. Dj Steef - It's Cool  06:48
+04. Phats And Small - Turn Around  03:45(   Читать дальше...   )Жанр: Funk,Disco,HouseПродолжительность: 05:20:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13015E19BE7429459EFF76FF6D6C88ABFF54FDA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 985004   (937036) от 10.02.2016
+
+VA - German dance hits №3 (2016) [MP3|256-320 kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_937036.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Coldplay - Adventure of a Lifetime
+002. Sido - Astronaut (feat. Andreas Bourani)
+003. K.I.Z. - Hurra die Welt geht unter
+004. Shawn Mendes - Stitches(   Читать дальше...   )Жанр: PopПродолжительность: 06:01:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4E5A23BF62994A577F3B2A153F07AE24C181F73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 984765   (936772) от 10.02.2016
 
 VA - Русская дискотека. Энергия хитов (2016) [MP3|256 kbps] <Pop>
@@ -628,123 +744,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AFA0D631E7D41F3DC0D66C2F3DF7272E7ACC24D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1094333   (930852) от 17.01.2017
-
-VA - Полный отрыв. Зимние хиты. Сборник № 4 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930852.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Steven A. Clark & Ape Drums - Can't Have 3:37
-002. Shami Feat. Арни Saveolla - Танцуем 5:13
-003. Сати Казанова - Happiness Hey 3:19
-004. Shapeshifter Feat. Anika Moa - Blazer 5:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0CB5C1D1222060E020505BDF73B78A2F4D42014
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 986640   (930451) от 14.02.2016
-
-VA - Дискотека 80-90 годов по - новому от Виталия 72 ( Зарубежный выпуск - 23 ) (2016) [MP3|192-320 кб/с] <Eurodance, Dance, Disco>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930451.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kate Rayan - Voyage ( George Airbullet Original Remix Master) (06:50)
-02. Lazarus - Wait (Remix) (06:39)
-03. Lipps Inc. Vs. Tom Jones - Funkytown Kiss (Rick Wain) (03:27)
-04. Modern Talking - Arabian Gold ( Ext.Dance Mix By Marc Eliow) (12:37)(   Читать дальше...   )Жанр: Eurodance, Dance, DiscoПродолжительность: 04:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE3654B984BBE48881EC9F151A629993EBD20304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365195   (930408) от 07.03.2020
-
-Shakin' Stevens - From Christmas To Christmas (The Best) (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_930408.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rockin' Little Christmas
-02. Love Me Tonight
-03. Hot Dog
-04. Tear It Up(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 00:43:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE7497658D1DA396767972FA9C068C00CAE3C304
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1365406   (929881) от 07.03.2020
-
-VA - Свежий Русский Хит от ALEXnROCK часть 1 (2020) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_929881.jpg" />
-</div>
-
-
-###  Подробнее
-
-Всю прекрасную половину человечества С наступающим женским днём! Всё что делаем мы мужчины, всё для вас и ради вас. Вы наше вдохновение и стимул для новых вершин! Всем любви и удачи!
-В сборник вошли наиболее хитовые и достойные треки от отечественных исполнителей за 2020 год.01. Михаил Бублик — Дует Ветер
-02. Эдуард Хуснутдинов — Красавица Востока
-03. Красавцы Love Radio — Рандеву (D. Anuchin Radio Edit)
-04. Ани Лорак & Миша Марвин — Ухожу(   Читать дальше...   )Жанр: PopПродолжительность: 05:04:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0F063500391A65111EBDC199267A37738303AA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

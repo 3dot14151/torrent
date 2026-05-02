@@ -1,3 +1,30 @@
+###  Публикация: 610951   (987842) от 31.01.2013
+
+RusLiveFull RAM 4in1 27/01/2013 by NIKZZZZ cd|dvd [Rus/Eng]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987842.jpg" />
+</div>
+
+
+###  Подробнее
+
+Windows RusLive - одна из самых быстрых Live CD. Программы грузятся в оперативную память. Не все программы будут запускаться при указанном минимуме памяти. Сборка автоматически поддерживает мультиядерные процессоры, USB3.0, актуальные SATA/RAID/SCSI -контролеры, файловые системы (ФС) EXT2/EXT3/EXT4/exFAT/UDFS, GPT, шифрованные ФС.
+В загрузочном меню присутствуют разделы программ и утилит: Tests, Acronis, Terabyte, Security, GeeXBoX, Disk Utilities, Ruslive-RAM (загрузка в память, выбор вариантов: Mini, Lan, Multimedia), Ruslive-RAM Micro (загрузка в память, 128 Мб), Ruslive (вариант Micro, 128 Мб, miniNT), MsDos, Plop Boot Manager.Разработчик: NIKZZZZЯзык интерфейса: Русский + Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 611472   (987835) от 31.01.2013
 
 SONY Movie Studio Platinum 12.0.755 / 12.0.756 (x86/x64) Portable by punsh [Английский / Русский]
@@ -649,32 +676,6 @@ KCleaner - эффективный и быстрый, бесплатный инс
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81E764212B0676B2CDD264586C0326CDD8C0381F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 971336   (987095) от 02.01.2016
-
-WebBrowserPassView 1.70 Portable [Ru/En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_987095.jpg" />
-</div>
-
-
-###  Подробнее
-
-WebBrowserPassView - небольшая программа для восстановления паролей, которая показывает пароли, сохраненные в браузерах. Программа поддерживает следующие браузеры: Internet Explorer (версии 4.0 - 11.0), Mozilla Firefox (все версии), Google Chrome, Safari и Opera. Может использоваться для восстановления утерянных/забытых паролей любого веб-сайта, в том числе таких (   Читать дальше...   )Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:170ABFB49D157B7021B90526E26F2FE329BEC967
 ```
 
 https://mybot314.ru/tekegram_catalog/

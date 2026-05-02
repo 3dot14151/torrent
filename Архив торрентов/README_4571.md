@@ -1,3 +1,248 @@
+###  Публикация: 460805   (95161) от 02.03.2012
+
+По версии Барни / Barney's Version (2010) [1080p] BDRemux
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_95161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Весельчак и балагур Барни Панофски сначала женился, затем еще раз женился, и только потом встретил свою самую настоящую любовь.
+С виду обычный парень, Барни прожил крайне насыщенную и необычную жизнь. Его приключения, происходившие на двух континентах, включали брак с тремя разными женщинами, совершенно чокнутого отца и несметное количество чудаковатых друзей. Жизнь по версии Барни она такая: яркая, искренняя, бескомпромиссная, на полную катушку.Жанр: ДрамаРежиссер: Ричард Дж. ЛьюисАктеры: Пол Джаматти, Розамунд Пайк, Минни Драйвер, Скотт Спидман, Дастин Хоффман, Рашель Лефевр, Брюс Гринвуд, Маша Гренон, Анна Хопкинс, Джэйк ХоффманПеревод: Профессиональный (многоголосый, закадровый)Продолжительность: 02:14:19
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461023   (95154) от 02.03.2012
+
+National Geographic: Профессия - разрушитель / National Geographic: Blowdown (2008) HDTV[720p]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95154.jpg" />
+</div>
+
+
+###  Подробнее
+
+Этот цикл передач посвящён американской семье демонтажников, которая специализируется на внутренних взрывах. Они могут разрушить самые крупные сооружения, и их услуги пользуются спросом по всему миру.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 4 х ~ 00:47:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BEE62E2D9EDB85FF649AF855CC600E22076966FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 460633   (95144) от 02.03.2012
+
+[EN] Монстры в лесу / Monsters in the Woods (2012) DVDRip
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95144.jpg" />
+</div>
+
+
+###  Подробнее
+
+Съемочная группа одного малобюджетного хоррора выбирается в дикую местность для съемок одного из эпизодов этого фильма. Однако, вскоре они оказываются сами героями самого настоящего фильма ужасов, т. к. их начинает преследовать стая чудовищ, обитающих в этом лесу.Жанр: УжасыРежиссер: Джейсон ХортонАктеры: Гленн Пламмер, Ли Перкинс, Линда Белла, Эдвард Хендершотт, Клаудия ПереаПеревод: ОтсутствуетПродолжительность: 01:23:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D88DE71CE90476B8C40BE4DEB8056AFA794F668
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461080   (95122) от 02.03.2012
+
+Главное - не грешить! (2008) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95122.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первое интервью архимандрита Амвросия, игумена Болгарского на Афоне монастыря Зограф по широкому кругу церковных вопросов.Жанр: ДокументальныйРежиссер: С. СерюбинПродолжительность: 01:22:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFA7E05C1F426A6B898863105748273748995FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459870   (95115) от 02.03.2012
+
+Dutch - A Bright Cold Day (2010) [MP3|320 кб/с]<Folk, Trip-Hop, Downtempo, Indie>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95115.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (00:37)
+02. Just Before The Rain (03:59)
+03. Pearls (04:46)
+04. 2,000 Leagues Under My Keyboard (04:27)
+05. Warm Like The Wind (03:37)
+06. Charlotte (02:45)
+07. California Cloaked In Wool (04:03)
+08. Tristessa (03:52)
+09. Cerulean (04:28)
+10. Beyond All Walking (04:17)(   Читать дальше...   )2010Жанр: Folk, Trip-Hop, Downtempo, IndieПродолжительность: 00:42:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69A6074DCA171D1C57DC2DC18127986DF524B3A2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461254   (95114) от 02.03.2012
+
+Психогенератор - Будь Собой! (2010) [MP3|320 кб/с]<punk - rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95114.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выбор (3:44)
+ 2. Хочу Тебя (3:25)
+ 3. Будь Собой! (3:38)
+ 4. Система (4:32)
+ 5. Правила Игры! (2:45)
+ 6. Сквозь Дыру В Моей Голове (ремейк Гр.Об.) (2:47)
+ 7. Собственность - Это Кража! (2:44)
+ 8. Вчера (3:19)
+ 9. Неудачник (4:22)
+ 10. Они И Вы (2:27)(   Читать дальше...   )2010Жанр: punk - rockПродолжительность: 00:39:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44769098DAB2DECC99FB782A8AF7CA469785D106
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 459770   (95113) от 02.03.2012
+
+Igor Pumphonia - Euphonia (2012) [MP3|320 кб/с]<Chill Out, Lounge>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aqua Pure (Intro) 05:54
+ 02. Memories Of The Future 07:12
+ 03. Life 05:51
+ 04. Thinking Out Loud 05:19
+ 05. Pleasure 04:34
+ 06. Emotion 05:22
+ 07. Impulse 04:26
+ 08. Euphoria 08:21
+ 09. Millenium 04:49
+ 10. Elixir Of The Soul 09:33(   Читать дальше...   )2012Жанр: Chill Out, LoungeПродолжительность: 02:04:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1AC312BBBB5DB53862D4F4A8C85CCECF246DDD4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 461348   (95108) от 02.03.2012
+
+DJ LEV - Night Style (2012) [MP3|320 кб/с]<Electro House, Dutch House>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_95108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bingo Players, Lil Jon - Mutate Rattle (Base Music, DJ Zarubin Mash-Up)
+02. Chuckie - Who Is Ready To Jump (Dada Life Remix)
+03. The Sleepover & Reece Low & Meltek - Disco Slut (D-Jastic Remix)
+04. Spencer & Hill - I Want You (The Koch Remix)
+05. David Guetta - Stay (Johan K Horny Bootleg)
+06. MC Zali - Girls Made In Russia (DJ Melnikoff Remix)
+07. Adrian P & Carl Novy - Sensation (Sferlazzo Remix)
+08. Sasha Veter - Proletayut Dni (DJ Prado & DJ Timakoff Remix)
+09. LMFAO - Sexy And I Know It (Blood Dance Project Remix)
+10. Enrique Iglesias - Tonight (Blood Dance Project Remix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B5A88DCED50FB29A13E50B90F6FB286886D8FF0D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 460964   (95094) от 02.03.2012
 
 VA - Face Disco (2011) [FLAC|Lossless]<Psychedelic / Progressive>
@@ -573,266 +818,6 @@ VA - Mystic India (Vol.2) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73EBC70228E801597A42A83CD3C14E91CD85BFDB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459429   (94947) от 29.02.2012
-
-David Guetta - DJ Mix 085 (11.02.2012) [MP3|~224 кб/с]<House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94947.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. DJ Mix - Intro (00:28 )
- 02. Zedd - Stars Come Out (Lazy Rich Remix) (05:42)
- 03. Michael Woods - Airborne (05:25)
- 04. Starkillers & Dmitry KO - Don't Hold Back (04:43)
- 05. D-Mad - 1961 (03:49)
- 06. Quintino - We Gonna Rock (05:27)
- 07. Steve Aoki feat. Wynter Gordon - Ladi Dadi (Tommy Trash Remix) (04:18 )
- 08. John Dahlback - Life (05:35)
- 09. EDX & Nadia Ali - This Is Your Life (05:30)
- 10. Moguai - Mpire (04:11)(   Читать дальше...   )11.02.2012Жанр: HouseПродолжительность: 00:57:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4BA8251F95E7D38D87446BCA4B9D87D63FA2B50
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459912   (94946) от 29.02.2012
-
-Журнал | Любимая дача [Украина] №3 [март 2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94946.jpg" />
-</div>
-
-
-###  Подробнее
-
-Любимая дача - популярный иллюстрированный журнал о загородной жизни круглый год. Информация на любой вкус: советы и рекомендации о том, как обустроить дачный участок, как построить дом; инструкции для тех, кто стремится сделать дачный ландшафт красивым и уютным.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60D919580C4CA92D001D5411FFC16FEF3FCD095B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458651   (94930) от 29.02.2012
-
-Cosmic Tone - Uniting Forces (2011) [FLAC|Lossless]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94930.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cosmic Tone - Dance Time (with Noga) [8:47]
-02. Cosmic Tone - Are U Ready [7:22]
-03. Cosmic Tone - Pink (with Noga) [7:30]
-04. Cosmic Tone - Modulator (Edit) [8:05]
-05. Cosmic Tone - Toxic [8:11]
-06. Cosmic Tone - Rhythm Is The Power [7:38]
-07. Cosmic Tone - Open Your Mind [7:16]
-08. Cosmic Tone - Give Me Sound [7:03]
-09. Zikimoto - Maniac (Cosmic Tone remix) [7:54]2011Жанр: Psychedelic / Full OnПродолжительность: 01:09:45
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459528   (94921) от 29.02.2012
-
-Flowjob - Support Normality (2006) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_94921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Run Baby Run (The Big Escape Version) - (10:14)
-02 - Everland Airport - (07:45)
-03 - Flangers In The Night - (08:20)
-04 - Have Fun & Survive - (09:00)
-05 - Wannafrisbee - (09:04)
-06 - They Are Not Alone - (08:17)
-07 - Mood Food - (07:56)
-08 - Wadley - (09:32)
-09 - Glitter - (07:48)2006Жанр: Psychedelic / ProgressiveПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 460005   (94916) от 29.02.2012
-
-VA - Mystic India (Vol.3) (2003) [MP3|320 кб/с]<New Age, Meditative, Relax>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94916.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. James Asher - Temple Gates (08:06)
-02. Tulku - Shanti Puja (06:37)
-03. Galactic Agents - Buddha Of Compassion (05:08)
-04. Chinmaya Dunster - Chidambaram (05:28)
-05. Tya - The Mosque (06:12)
-06. James Asher - Pemulwuy Returns (05:47)
-07. Shamiana - Buddha In Town (05:34)
-08. Bhakta - In Between Moments (04:57)
-09. Chinmaya Dunster - Purnima Namaskar (08:33)
-10. Namaste - Aum Shree Ram (05:50)(   Читать дальше...   )2003Жанр: New Age, Meditative, RelaxПродолжительность: 01:08:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D976CBA82E803930D23606F6D569659EE7C316E5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458765   (94914) от 29.02.2012
-
-Alexandre Mospan - tootamixa radio radioshow (2011) [MP3|320 кб/с]<Progressive House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94914.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Deepfunk - Monday
-2. Underset-Berlin (Original Mix)
-3. Gabriel Cazali-Altas Expectativas
-4. Felix Dofenbeck - Me and You
-5. Shant - Garinet (Juan Deminicis Remix)
-6. Kassey Voorn - A Rock.
-7. kassey voorn - garrys kitty
-8. Jody Wisternoff - Vintage
-9. Tom Glass - Time
-10. kobb-sea2011Жанр: Progressive HouseПродолжительность: 00:59:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:712960474C88D602E5F9BDE29949336E9C655EB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 458644   (94913) от 29.02.2012
-
-VA - House Vip (25.02.2012) [MP3|320 кб/с]<Electro House>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94913.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artem Fortiz - Level Up (Original Mix) (4:45)
- 02. Chris Lake - Build Up (Original Mix) (6:22)
- 03. Christian Falero, Adrian Villaverde - Big Jerk (Original Mix) (6:31)
- 04. Chuckie - Together (Original Club Mix) (6:20)
- 05. Cyberpunkers - Epic (Original Mix) (5:23)
- 06. Defunct, Mr Eyez - Make You Dance (Original Mix) (5:34)
- 07. DJ Marbrax - Hollywood (Laurent H Remix) (5:58)
-08. Jack Holiday & Mike Candys - Children (Steam Loco Mix) (4:55)
- 09. L2 - Insomnia (Jump Smokers Club Remix) (6:12)
- 10. Luca Cassani, Dario Maffia - Rrrock It (Abel Ramos Italy With Love Remix) (7:36)25.02.2012Жанр: Electro HouseПродолжительность: 00:59:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2E1799CA65CE19D1D3E13EDBA752D49489D1798D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 459273   (94894) от 28.02.2012
-
-Журнал | Автомир [Россия] №9 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_94894.jpg" />
-</div>
-
-
-###  Подробнее
-
-АвтоМир — единственный в России еженедельный автомобильный журнал. Самые свежие новости из мира автомобилей. Сравнительные тест-драйвы автомобилей-одноклассников. В каждом номере представляем: автомобиль недели — лидер российских продаж. Концепт-кар — авто будущего. Российские и международные автомобильные выставки и автогонки. Лучшие московские автосалоны и официальные (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:77A9ACEDDCFEF19CDCF0B8055AFBC5159F6C20AE
 ```
 
 https://mybot314.ru/tekegram_catalog/

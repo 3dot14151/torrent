@@ -1,3 +1,61 @@
+###  Публикация: 1148146   (604402) от 05.07.2017
+
+Hank Mobley, Al Cohn, John Coltrane, Zoot Sims - Tenor Conclave (1956) 2014, Analogue Productions [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tenor Conclave [11:06]
+02. Just You, Just Me [09:29]
+03. Bob's Boys [08:19]
+04. How Deep Is the Ocean? [15:08]Жанр: Mainstream Jazz, Hard BopПродолжительность: 00:44:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9217415928770AE86AF0E8D7DC3E8F24AFCD479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1148021   (604319) от 05.07.2017
+
+Harry Allen, Scott Hamilton, New York Sextet - Swing Brothers (2005) [FLAC|Lossless|image + .cue] <Mainstream Jazz, Cool>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604319.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 My Lean Baby [7:58]
+02 Flying Home [7:06]
+03 Danny Boy [5:38]
+04 Shiny Stockings [6:23](   Читать дальше...   )Жанр: Mainstream Jazz, CoolПродолжительность: 01:08:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F4ACEAA4EF3964F401B2673E6672E63C9067A44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1065514   (604250) от 25.04.2022
 
 Cesaria Evora - Cafe Atlantico (1999) [APE|Lossless|image + .cue] <Jazz, Latin, Afro-Cuban>
@@ -687,64 +745,6 @@ Dean Martin - Everybody Loves Somebody (1998) Prism Leisure [FLAC|Lossless|image
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:ABF467E4C2CB874C6C2628464FF28C14302B74B4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1547171   (603422) от 27.04.2022
-
-Dave Brubeck - Take Five: Portrait Of A Legend (1946 - 1960) 10CD, 2014, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Cool, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603422.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD01 - Dave Brubeck Octet:
-01. The Way You Look Tonight [3:02]
-02. Love Walked In [2:39]
-03. What Is This Thing Called Love? [2:43](   Читать дальше...   )Жанр: Mainstream Jazz, Cool, Piano JazzПродолжительность: 10:21:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:85A6D665B0AA42E2A04079A33A5E5E5F9B9EA44E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1231804   (603278) от 21.06.2018
-
-Jimmie Lunceford - 1935 - 1937 (1990-1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_603278.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Blue Heaven [3:15]
-02. I'm Nuts About Screwy Music [3:06]
-03. The Best Things In Life Are Free [3:24]
-04. The Melody Man [3:04](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BED613775048D0C9DD13931815650068CE9E77D
 ```
 
 https://mybot314.ru/tekegram_catalog/

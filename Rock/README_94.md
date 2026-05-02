@@ -1,3 +1,32 @@
+###  Публикация: 1699953   (117233) от 16.02.2024
+
+Pink Floyd - Live At Vienna Stadthalle, Austria, 13 October 1973 (2023) [MP3|320 Kbps] <Progresive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_117233.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Obscured By Clouds (Live At Vienna Stadthalle, Austria, 13 October 1973) [05:11]
+02. When You’re In (Live At Vienna Stadthalle, Austria, 13 October 1973) [08:10]
+03. Set The Controls For The Heart Of The Sun (Live At Vienna Stadthalle, Austria, 13 October 1973) [12:59]
+04. Careful With That Axe, Eugene (Live At Vienna Stadthalle, Austria, 13 October 1973) [13:46](   Читать дальше...   )Жанр: Progresive RockПродолжительность: 02:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC426C6A543F53C4CFAB71C56A3D04C0C946916A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1699817   (117219) от 16.02.2024
 
 AC/DC - AC/DC A Touch Too Music Live In Maryland 1979 (Live) (2021) [MP3|320 Kbps] <Rock, Hard Rock>
@@ -716,35 +745,6 @@ Mud - 6 Albums (1974-1983) Collection [MP3|320 Kbps] <Rock, Pop Rock, Glam>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F0141776ABF7BB1827A9A7E9F7D7E2FC8D7105C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1725656   (108935) от 25.05.2024
-
-Antennaes - She's A Winner... (2024) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_108935.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Holes In The Road (04:49)
- 02. Eat Crow (The Weatherman Song) (03:56)
- 03. Gun Powder (02:50)
- 04. Stick To Whiskey (03:28)(   Читать дальше...   )Жанр: RockПродолжительность: 00:56:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43C8E1CFC30CCA8F6D5195E8957B18CCC6E46C3A
 ```
 
 https://mybot314.ru/tekegram_catalog/

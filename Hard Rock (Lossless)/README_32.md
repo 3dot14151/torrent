@@ -1,3 +1,119 @@
+###  Публикация: 1133037   (697113) от 11.05.2017
+
+Mean Mother - No Rest For The Wasted (2017) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_697113.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Rocker (4:48)
+ 02. Blackout! (4:02)
+ 03. Knife in Hand (5:29)
+ 04. Blood in the South (3:55)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:052936267464B73F16235E2DA6ED4C7ACC4AB373
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1156422   (695558) от 17.08.2020
+
+Blindstone / Martin Jepsen Andersen - 11 albums (2003-2020) Discography [FLAC|Lossless|image + .cue] <Hard Rock, Heavy Blues Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_695558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Датское трио , сформированный 2002 в Thisted, Дания. Оригинальный состав состоял из Мартина Дж. Андерсена, Койки Jesper и барабанщика Бенджамина Хова. Они выпустили дебютный альбом группы, «Манифест», в апреле 2003. Хов был заменен Андерсом Хвидтфелдтом в августе 2003. С тех пор группа выпустила в общей сложности 9 альбомов (включая переиздание «Манифеста» и зальный (   Читать дальше...   )--------------------------
+
+01. World Of Trouble (4:27)
+02. Stick To Your Guns (3:29)(   Читать дальше...   )Жанр: Hard Rock, Heavy Blues Rock |Продолжительность: 10:03:20 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CEDD8BA3B01DFE5840343F12B8334CCFE8753166
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1534465   (694002) от 02.03.2022
+
+Scorpions - Rock Believer (2022) Deluxe Limited Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694002.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gas In The Tank (3:41)
+02. Roots In My Boots (3:17)
+03. Knock 'em Dead (4:11)
+04. Rock Believer (3:57)Жанр: Hard RockПродолжительность: 01:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:158A5E1B1E3DFD48E453034206FBE5BA9BC6E587
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1403391   (692349) от 19.08.2020
+
+Tokyo Motor Fist - Lions (2020) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_692349.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Youngblood (03:29)
+02. Monster In Me (04:33)
+03. Around Midnight (02:48)
+04. Mean It (04:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:47:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB682B7BC267BD6C853D816B920F34882B657D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133726   (691303) от 14.05.2017
 
 Warrant - Louder Harder Faster (2017) [FLAC|Lossless|tracks]<Hard Rock, Glam Metal>
@@ -633,122 +749,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BE60A5CF454B1BAAEDE0EA4ABE520F67C18FCC70
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290249   (680433) от 19.03.2019
-
-Heart - Live In Atlantic City`2018 (2019) [FLAC|lossless|image + .cue] <Hard Rock, Classic Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680433.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bebe Le Strange (with Dave Navarro) (04:13)
-02. Straight On (with Dave Navarro) (05:05)
-03. Crazy On You (with Dave Navarro) (03:27)
-04. Lost Angel (06:51)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, RockПродолжительность: 01:07:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BEE664AB7F37CDE05F73E9578A320A0048ABDE8A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1290102   (680315) от 19.03.2019
-
-Thunder - Please Remain Seated (2019) 2CD [FLAC|Lossless|tracks + .cue] <Rock, Acoustic, Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_680315.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-1. Bigger Than Both of Us [00:04:10]
-2. Future Train [00:06:11]
-3. Girl's Going Out of Her Head [00:04:40]Жанр: Rock, Acoustic, Hard RockПродолжительность: 01:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DCF7E712B96132229D6E98F2B2A6010E9E7A20C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 898752   (677164) от 17.05.2015
-
-Whitesnake - The Purple Album (2015) [FLAC|Lossless]<Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_677164.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Burn  (6:56)
-02. You Fool No One  (Interpolating "Itchy Fingers") (6:23)
-03. Love Child  (4:13)
-04. Sail Away  (Featuring "Elegy For Jon") (4:54)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:13:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459B3A9E5B3CF5439A07DB84B415127F7BA99FF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135571   (676991) от 21.05.2017
-
-Michael Ernst (with Alan Parsons & Chris Thompson) - Excalibur (2003) [FLAC|Lossless|image + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_676991.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The King Of Swords
-02. Excalibur
-03. Magic
-04. A Long, Long Time Ago(   Читать дальше...   )Жанр: RockПродолжительность: 00:49:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:029B701458510691F05C6CF6FED050581ADD46DC
 ```
 
 https://mybot314.ru/tekegram_catalog/

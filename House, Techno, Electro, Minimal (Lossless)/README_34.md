@@ -1,3 +1,32 @@
+###  Публикация: 1144421   (627613) от 22.06.2017
+
+Philip Anders - My Kind Of Car (2017) [FLAC|Lossless|WEB-DL|tracks] <Tech House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627613.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Exhaust (06:57)
+2. Disco Balls (07:03)
+3. Happy Feet (06:38)
+4. Transformers (feat Leif Hatfield) (06:00)(   Читать дальше...   )Жанр: Tech HouseПродолжительность: 01:11:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B2F2C9ADD8E78243D013DB582173749F0B37D22C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1294505   (627320) от 08.04.2019
 
 Imperfect - Flow (2016) [FLAC|Lossless|WEB-DL|tracks] <Electro, Breaks, IDM, Synthwave>
@@ -715,32 +744,6 @@ VA - 538 Dance Smash 2016 Festival Edition (2016)2CD [FLAC|Lossless|image + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A5443F9182DCA43E92DC594090543B2A62459B1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1147273   (609720) от 02.07.2017
-
-VA - InFine Pres: Tomorrow Sounds Better With You (2017) [FLAC|Lossless|WEB-DL|tracks] <Progressive House, Indie Dance, Ambient, Techno, Electronic>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_609720.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: Progressive House, Indie Dance, Ambient, Techno, ElectronicПродолжительность: 01:45:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58C1AF786F6C75795809C406DC658A07E3903C12
 ```
 
 https://mybot314.ru/tekegram_catalog/

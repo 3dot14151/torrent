@@ -1,3 +1,119 @@
+###  Публикация: 1132643   (698872) от 10.05.2017
+
+VA - Звездная тусовочка. Сборник № 10 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698872.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bahari - I Miss You 3:13
+002. Alicia Keys - Pawn It All 3:10
+003. Miela - Города 4:18
+004. Анжелика Варум & Игорь Крутой - Опоздавшая Любовь 4:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C94A22A149459792EB273CEB66D6A99691F2526B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132965   (698860) от 10.05.2017
+
+VA - Топовая сотня весенняя от Хит FM. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698860.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Наташа Турбина - Маша 3:09
+002. Иван Тетенов - Море Магнит 3:20
+003. Ласковый Шепот - Не Говори Мне 4:47
+004. Константин Легостаев - Религия Любви 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B4C83224D5BB9AA3515C1E008E77F8C08D48946
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1132647   (698791) от 10.05.2017
+
+VA - 100-ка популярных весенних хитов от Европы Плюс. Версия № 9 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698791.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alex Belak - Невыносимая 2:58
+002. Галамартовна - Ермакова 3:12
+003. Андрей Леницкий - Она 4:10
+004. Helena Shadia - Не Верь Мне 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29DD7AABF8EAA33254FDA33CF40A8A35E7C55F1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1221123   (698610) от 22.04.2018
+
+VA - EUROMANIA: Slow Hits vol. 1-3 (2016) [MP3|320 Kbps] <Eurodance, Euro-House, Technopop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698610.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Masterboy - And I Need You (5:37)
+02. Army Of Lovers - Lit De Parade (3:16)
+03. Ace Of Base - All That She Wants (3:31)
+04. 2 Unlimited - Nothing Like The Rain (4:42)(   Читать дальше...   )Жанр: Eurodance, Euro-House, TechnopopПродолжительность: 06:01:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B921F24F2A96F096974F4D6E436709F49AA8ADE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1220942   (698403) от 22.04.2018
 
 VA - Русское радио: Хит-парад Золотой граммофон (Апрель) (2018) [MP3|320 Kbps] <Поп>
@@ -626,119 +742,6 @@ CD1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33A5CCFABBCAAFCC6CA62412357BD82C6FC975D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534354   (694242) от 02.03.2022
-
-VA - NOW Yearbook Extra 1984 (2022) 3CD [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694242.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Queen - Radio Ga Ga
-02. Eurythmics - Sexcrime (Nineteen Eighty-Four)
-03. Sade - Smooth Operator(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:22:29 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A56FDB39E1F4709ED67B34C8B18B8A3C68B92AB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1288542   (694192) от 12.03.2019
-
-VA - German Top 100 Single Charts 18.03.2019 [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694192.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Shirin David - Gib Ihm
-002. KC Rebell - DNA (feat. Summer Cem & Capital Bra)
-003. Ava Max - Sweet but Psycho
-004. Lady Gaga & Bradley Cooper - Shallow(   Читать дальше...   )Жанр: PopПродолжительность: 05:31:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B51B266A6856A3EF620FD9F27308BE087C47B47
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1534349   (694139) от 02.03.2022
-
-VA - NOW Yearbook Extra 1983 (2021) 3CD [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_694139.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1
-01. Wham! - Wham Rap! (Enjoy What You Do?)
-02. Paul McCartney, Michael Jackson - Say Say Say
-03. Elton John - I Guess That's Why They Call It The Blues(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 01:12:15 hrs
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1570D481C44EC78708DF8CA20C2EF41ABE9F1B19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 333197   (693975) от 07.05.2011
-
-VA - Лучшая подборка майских хитов Europa Plus (2011) [MP3|320 kbps]<Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_693975.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: DanceПродолжительность: 06:30:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51A8BDE6D40A07A3D8E745F571672BF0E687D0FF
 ```
 
 https://mybot314.ru/tekegram_catalog/

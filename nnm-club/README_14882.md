@@ -1,50 +1,20 @@
-###  Публикация: 1061803   (444778) от 12.10.2016
+###  Публикация: 1409272   (447495) от 16.09.2020
 
-Count Basie & His Orchestra - Do You Wanna Jump...? (1938) 1989, Hep[FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444778.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Georgianna [02:38]
- 02.Blues in the Dark [03:07]
- 03.Sent for You Yesterday [02:57]
- 04.Every Tub [03:19](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:56:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:533F8F34EE2D321C76C026B28B4ABA6D01DF86CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062027   (444777) от 12.10.2016
-
-Mel Torme - Mel Torme's California Suite (1957) 1999, Avenue Jazz[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Downie 4 v4.1.5 [Multi/Ru]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444777.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447495.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.The Territory (The Soil Was Good) [02:58]
- 02.West Coast Is The Best Coast [01:43]
- 03.La Jolla [03:05]
- 04.Coney Island [02:46](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:36:29
+Downie – это простейший видео-загрузчик.
+Downie поддерживает более 1,000 популярных сайтов, таких как YouTube (в том числе 4K видео), Vimeo, MetaCafe, iView, Facebook и многие другие.
+Выберите качество и формат скачиваемого файла и наслаждайтесь любимыми видео.Тип издания: macOS SoftwareРелиз состоялся: 16.09.2020Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.12 и вышеЯзык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
@@ -56,108 +26,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062040   (444776) от 12.10.2016
+###  Публикация: 1409199   (447494) от 16.09.2020
 
-VA - Beatport Trance Pack  (12.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444776.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Manuel Rocca - Against The Wind (Braulio Stefield Remix)  7:36
-02. Ferry Corsten & Cosmic Gate - Event Horizon (Extended Mix)  5:40
-03. Denis Kenzo & Angel Falls - Run Away (Original Mix)  6:06
-04. Francisco Echeverria - Galapagos (Original Mix)  7:36(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 06:25:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DD2E0CEFB263216BF024E41C35A9349225738D61
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061820   (444775) от 12.10.2016
-
-James Moody - Young At Heart (1996) Warner[FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444775.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Young at Heart [04:15]
- 02.Love and Marriage [05:28]
- 03.Nancy (With the Laughing Face) [04:27]
- 04.That Old Black Magic [06:30](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:55:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:86E910CD0DB10EF7A3FF51D762C9DFBBEF5EE219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062057   (444774) от 12.10.2016
-
-VA - Sound 155 Version Relentless (2016) [MP3|236~320 Kbps] <House,  Electro, Bigroom, UK Garage, Funky, Progressive, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444774.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mary G. feat. Ricardo Munoz - You & I (Bodybangers Radio Edit)  3:23
-002. Bodybangers Feat. Tony T. - Break My Stride (Extended Mix)  4:05
-003. Finger & Kadel - Kalinka (Club Mix Edit)  3:16
-004. Firebeatz - Wonderful  5:37(   Читать дальше...   )Жанр: House,  Electro, Bigroom, UK Garage, Funky, Progressive, ClubПродолжительность: 13:20:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6F441162ACE7E0C58FEB69B928385B5EB53CF4F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062242   (444773) от 12.10.2016
-
-Вести в 20-00. Большие Вести. Россия 1 (12.10.2016) SATRip
+Rogue Amoeba Farrago 1.5.2 [En]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444773.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Вечерний выпуск «Вестей» посвящен главным событиям дня. «Вести» — информационная телевизионная программа Всероссийской государственной телерадиокомпании. Выходит в эфир на каналах «Россия-24», «Россия-1», «РТР-Планета» и «РТР-Беларусь». Производятся Дирекцией информационных программ Государственной телекомпании «Россия». Самые последние новости в России и в мире (   Читать дальше...   )Телекомпания: Россия 1Жанр: ТелепередачаПродолжительность: 00:51:22
+Farrago предоставляет лучший способ быстрого воспроизведения звуковых фрагментов, звуковых эффектов и музыкальных клипов на вашем Mac. Подкастеры могут использовать Farrago для включения музыкального сопровождения и звуковых эффектов во время записи, в то время как театральные специалисты могут запускать аудио для живых выступлений. Farrago готов обеспечить быстрый (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.09.2020Разработчик: Rogue AmoebaПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -169,82 +52,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062054   (444772) от 12.10.2016
+###  Публикация: 1409268   (447493) от 16.09.2020
 
-VA - Stay a While and Dance (2016) [MP3|320 Kbps] <Funky, Progressive, House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Simon Sims And Tymers - I Feel You (Extended Mix) (Feat. Luny) 04:38
-02. Ibiza Bitches - Be Happy (Radio Version) 03:22
-03. Claudio Mordax - U Can I Know 06:28
-04. Danny Sinatra - Glimpse Of Light (Single Version) 04:08(   Читать дальше...   )Жанр: Funky, Progressive, HouseПродолжительность: 03:40:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4B4D782E8A9C7F8546AF47C1D085D37EF8B16D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062032   (444771) от 12.10.2016
-
-Peggy Lee - Black Coffee with Peggy Lee (1953, 1956) Remaster, 1999, Universal[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444771.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Black Coffee [03:11]
- 02.I've Got You Under My Skin [02:33]
- 03.Easy Living [02:48]
- 04.My Heart Belongs to Daddy [02:11](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C05F121F91762CA7FA7866C8B6C02A0795D57792
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062026   (444770) от 12.10.2016
-
-VA - Beatport Trance Pack  (11.10.) (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
+VA - Redux Presents: The Vocal Selection (2020) [MP3|320 Kbps] <Trance, Vocal Trance>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Andromehda - Mood Swings (Original Mix)  8:05
-02. Denis Kenzo & Angel Falls - Run Away (Dub Mix)  6:06
-03. Manuel Rocca - Against The Wind (Aimoon Remix)  6:40
-04. Ronski Speed & Syntrobic Ft. Elisabeth Egan - Reflection (Original Mix)  7:56(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 08:04:09
+01. Christopher Corrigan & Angel Falls - All I Have (Extended Mix)
+02. Dory Badawi & Roxanne Emery - Weapon Of Choice (Extended Mix)
+03. Rezwan Khan & Robin Vane - Space Of Emptiness (KaltFlut Extended Remix)
+04. S.H.O.K.K. & Bodo Kaiser & Jennie Osborn - Fever 2019 (Extended Mix)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:06:22
 
 ## Скачать торент
 ```bash
@@ -256,24 +81,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062083   (444769) от 12.10.2016
+###  Публикация: 1409350   (447492) от 16.09.2020
 
-Richard ''Groove'' Holmes - Super Soul (1967) 2004, Prestige[FLAC|Lossless|tracks + .cue] <Organ, Soul-Jazz>
+Outside 3.1.9 [En]
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Why Don't You Do Right? [03:46]
- 02.Ain't That Peculiar [03:14]
- 03.In Between The Heartaches [03:24]
- 04.Function At The Junction [03:18](   Читать дальше...   )Жанр: Organ, Soul-JazzПродолжительность: 01:18:33
+Outside - это погодное приложение, которое отображает правильную информацию о погоде тогда, когда она вам нужна больше всего. Приложение использует местоположение вашего Mac, чтобы определить точный прогноз погоды для вашего региона.Тип издания: macOS SoftwareРелиз состоялся: 15.09.2020Разработчик: Jonathan WukitschПоддерживаемая ОС: macOS 10.11.4+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
@@ -285,21 +107,24 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061705   (444768) от 12.10.2016
+###  Публикация: 1409185   (447491) от 16.09.2020
 
-Покрытие из "программируемого" материала защитит роботов и беспилотники при ударах и столкновениях
+The Air of Hiroshima - 3 Albums (2017-2020) Deluxe Edition [MP3|320 Kbps] <Post-Rock>
 
 >>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Судьи и зрители, наблюдавшие за проведением финала соревнования DARPA Robotics Challenge в 2015 году, заметили, что большинство из роботов имело щитки, защищающие от повреждений их конечности, приводы и другие критические узлы при ударах и падениях. Щитки, конечно, являются проверенным универсальным средством, однако их использование делает конструкцию робота более (   Читать дальше...   )
+01. Человеку [00:03:35]
+02. Дом [00:04:12]
+03. Море [00:03:40]
+04. Полпути [00:03:34](   Читать дальше...   )Жанр: Post-RockПродолжительность: 3 CD, 04:29:42
 
 ## Скачать торент
 ```bash
@@ -311,28 +136,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062046   (444767) от 12.10.2016
+###  Публикация: 1409062   (447490) от 16.09.2020
 
-Nancy Wilson - Like In Love & Something Wonderful (1959, 1960) 2003, EMI Records[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+Iron Angel - Emerald Eyes (2020) [MP3|320 Kbps] <Speed, Heavy Metal>
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>нет
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444767.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.On The Street Where You Live [01:43]
- 02.Night Mist [02:35]
- 03.You Leave Me Breathless [02:28]
- 04.The More I See You [02:12](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:55:41
+01. Sacred Slaughter (04:23)
+ 02. Descend (04:06)
+ 03. Sands Of Time (03:25)
+ 04. Demons (04:06)(   Читать дальше...   )Жанр: Speed, Heavy MetalПродолжительность: 00:46:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDBCD301A3BA355ADAFE232B781AA79EF3CD1846
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -340,28 +165,83 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062107   (444766) от 12.10.2016
+###  Публикация: 1409353   (447489) от 16.09.2020
 
-CalcPad - Notepad and Calculator. Reinvented 1.0.2 [En]
+Raven - Metal City (2020) [MP3|320 Kbps] <Speed, Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Power (03:54)
+ 02. Top of the Mountain (03:36)
+ 03. Human Race (04:00)
+ 04. Metal City (03:28)(   Читать дальше...   )Жанр: Speed, Heavy MetalПродолжительность: 00:38:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FCAF1CD61DD2232E13447A373729CEA4F1784103
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409405   (447488) от 16.09.2020
+
+Mythos - 3 Albums (1978-1980) Reissue CD [MP3|320 Kbps] <Electronic, Krautrock, Prog Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447488.jpg" />
+</div>
+
+
+###  Подробнее
+
+Группа Mythos образована в 1969 году в Берлине, Германия. В раздаче представлены альбомы одной направленности, соответствующей указанному жанру.Список альбомов:
+1978 - Strange Guys (R-CD 1997)
+1979 - Concrete City (R-CD 1999)
+1980 - Quasar (R-CD 2012)(   Читать дальше...   )Жанр: Electronic, Krautrock, Prog RockПродолжительность: 02:00:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D61EFEB394E6EABDCE5AC746BF3C7506B52C952E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409344   (447487) от 16.09.2020
+
+Cisdem PDFMaster 4.0.0 [Multi/Ru]
 
 >>Архив торрентов
 >>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444766.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447487.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CalcPad - приложение для ведения заметок с встроенным  мощным калькулятором.
- Он может выполнять основные вычисления, а также конверсии комплекс единиц, преобразования валют в режиме реального времени и проценты. Он даже может обрабатывать переменные и пользовательские функции, если вы в них нуждаетесь.
-
-С помощью удобной иконки в  Menubar, глобального ярлыка доступа (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 09 октября 2016Разработчик: Kovan LTDПоддерживаемая ОС: OS X 10.9 +Язык интерфейса: Английский
+PDFMaster - это полное программное решение для работы с PDF, которое позволяет редактировать файлы PDF, конвертировать обычные или отсканированные файлы PDF, подписывать, разделять, объединять, сжимать, извлекать и шифровать файлы PDF. Поставляется с интуитивно понятным интерфейсом, который предоставляет часто используемые функции у вас под рукой, вы быстро станете (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 14.09.2020Разработчик: Cisdem Inc.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1731DD0B73DD6018BF1625F6B0E9995F77698665
+magnet:?xt=urn:btih:5169125F7C6CA728C3EC7AB94654E1FCA439CFB8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -369,26 +249,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062086   (444765) от 12.10.2016
+###  Публикация: 1409280   (447486) от 16.09.2020
 
-Permute 2.2.8 [Multi/Ru]
+Peter Parcek - Mississippi Suitcase (2020) [MP3|320 Kbps] <Blues Rock>
 
->>Архив торрентов
->>Архив 4Apple
+>>Jazz, Blues, Soul
+>>Blues, Soul
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444765.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447486.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Permute: Универсальный конвертер видео, аудио и изображений
-Проблема конвертации видео и аудио для iPhone/iPad все еще не утратила своей актуальности.  Permute это самый простой в использовании, обладающий Drag & Drop интерфейсом, конвертер медиа файлов, не требующий настроек для преобразования контента.  Возможности по кодированию довольно неплохие, но не стоит (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 11 октября 2016Разработчик: Charlie Monroe SoftwareПоддерживаемая ОС: OS X 10.11 +Язык интерфейса: Русский, Английский, Итальянский и др.
+Peter Parcek (Питер Парчек) — блюзовый гитарист из Бостона. Уникальный стиль «соул-гитары» Parcek сочетает в себе самое лучшее из блюза, как древнего, так и современного. Гитарные работы Parcek были сравнены с Бадди Гай, Эрик Клэптон и Питер Грин! "Ты так плох, как Эрик Клэптон и я знаю, Эрик Клэптон" заметил Бадди Гай.01. The World Is Upside Down (04:18)
+ 02. Everybody Oughta Make a Change (05:30)
+ 03. Beyond Here Lies Nothin (04:21)
+ 04. The Supernatural (03:21)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:53:39
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9A3CF3FE26F9DBBB28CAABAD43DE1BDE947EADCD
+magnet:?xt=urn:btih:1A2857A08AA851F0B1FD001678C7946FC14579B5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -396,213 +278,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062019   (444764) от 12.10.2016
+###  Публикация: 1409321   (447485) от 16.09.2020
 
-Петр Сигунов | Таёжные незабудки (1978) [DJVU]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444764.jpg" />
-</div>
-
-
-###  Подробнее
-
-Рассказы геолога о встречах с дикими обитателями тайги. Книга воспитывает в читателях любознательность, доброе отношение к живой природе, к тому. что составляет часть большого понятия — Родина.Жанр: Детская прозаФормат: DJVU
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062171   (444763) от 12.10.2016
-
-Sunao Wada, Ushio Sakai, George Otsuka - Blues For Bird (1975) Remaster, 2000, Three Blind Mice[FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_444763.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Now's The Time [21:13]
- 02.Moss [10:08]
- 03.Blue Bird [12:02]
- 04.Now's The Time [26:33]Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:09:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943914   (444762) от 05.10.2015
-
-Taylor Davis - Taylor Davis (2015) [MP3|320 кб/с]<Instrumental, Neo-Classical>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444762.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Soulbound
-02. Reflections
-03. Awakening
-04. Mystic Forest(   Читать дальше...   )Жанр: Instrumental, Neo-ClassicalПродолжительность: 00:45:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4D7B9B9DA590FC76F2B83E23D5EC4AF516C8623B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943645   (444761) от 05.10.2015
-
-Консьерж / Любовь или деньги / For Love Or Mone (1993) BDRip [H.264]
-
->>Зарубежное кино
->>Зарубежные Фильмы (SD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444761.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жизнь Дага (Майкл Дж. Фокс) проходит в непрестанной суете. Будучи консьержем роскошного отеля, он рад страраться перед богатыми постояльцами, за что получает приличные чаевые. У Дага две заветные цели: заполучить руку и сердце очаровательной Энди (Габриэлль Анвар) и построить собственный отель по собственному проекту. Но, как это бывает, в конце концов ему придется (   Читать дальше...   )Производство: США /  Universal PicturesЖанр: Комедия, МелодрамаРежиссер: Барри ЗонненфельдАктеры: Майкл Дж. Фокс, Габриель Анвар, Энтони Хиггинс, Боб Бэлабан, Майкл Такер, Айзек Мизрахи, Патрик Брин, Удо Кир, Саймон Джонс, Дайян БриллПеревод: Дублированный, профессиональный (многоголосый, закадровый), авторский (одноголосый, закадровый)Субтитры: отсутствуютПродолжительность: 01:35:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0BA4421F9B306E047C226E3607E982737EDE20E1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944081   (444760) от 05.10.2015
-
-Poweramp Remote 4 Android Wear 1.29 [Ru] - Управление плеером Poweramp с помощью часов.
-
->>Архив торрентов
->>Архив КПК и Мобильных устройств
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444760.jpg" />
-</div>
-
-
-###  Подробнее
-
-Управление плеером Poweramp с помощью часов.Тип издания: ПираткаРелиз состоялся: 05.10.15Разработчик: NeFa StudioПоддерживаемая ОС: Android 4.3 +Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B184E4A6AC8C8F31E1259D414CBCB1836197E8C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941105   (444759) от 05.10.2015
-
-День, когда ограбили английский банк / The Day They Robbed The Bank Of England (1960) DVD5
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444759.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ирландская Республиканская Армия в 1901 году планирует ограбить Английский банк в Лондоне, чтобы получить деньги для закупки оружия. Их главарь Норгат, находит слабое место в защите банка: забытую канализационную трубу прямо под подвалом. Но грабителям приходится иметь дело с с гвардейским лейтенантом Монти Фитчем, возглавляющим Банковский Караул...Производство: Англия Metro-Goldwyn-MayerЖанр: Драма, криминалРежиссер: Джон ГиллерминАктеры: Альдо Рэй, Элизабет Селларс, Питер О’Тул, Кирон Мур, Альберт Шарп, Джозеф Томелти, Вульф Фрис, Джон Ле Мезюрье, Майлз Маллесон, Колин ГордонПеревод: Многоголосый закадровыйСубтитры: НетПродолжительность: 01:24:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C29C51117AA30C03E4735FFD3C50967FD314670C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 942457   (444758) от 05.10.2015
-
-КВН-2013. Высшая лига (2013) HDTVRip [H.264/720p] [Весь сезон]
-
->>Юмор (ТВ)
->>КВН
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444758.jpg" />
-</div>
-
-
-###  Подробнее
-
-КВН — телевизионные юмористические игры, в которых команды различных коллективов соревнуются в юмористических ответах на заданные вопросы, импровизациях на заданные темы, разыгрывании заранее заготовленных сцен и т. д.Телекомпания: Первый каналЖанр: Тв-шоу, юморПродолжительность: Каждая игра х 01:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0138AC452514B5B990E580C249C7C2A569DC8C34
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943161   (444757) от 05.10.2015
-
-Генри Лайон Олди | Королева Ойкумены (2015) [MP3]
+Bregnev и др. | Страшные истории [Сборник № 2] (2019 - 2020) [OGG]
 
 >>Художественные аудиокниги и публицистика
 >>Фантастика, Фэнтези (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444757.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447485.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Регина ван Фрассен - о подарок судьбы! - родилась телепатом. Да, космический мир Ойкумены ценит своих менталов, как редчайшее сокровище, но и термосиловая броня не оградит тебя от ледяных поцелуев реальности. Танцуй на холмах, женщина с флейтой! Молодость закончилась, и надо идти дальше - в зрелость, полную очередных сюрпризов. Любовь и война, мудрость и предательство… (   Читать дальше...   )Жанр: ФантастикаПродолжительность: 09:05:25
+Короткие рассказы от Андрея Балдука aka Абаддона № 2...Жанр: Мистика, ужасыПродолжительность: 00:52:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:81FFF1CDEF1DABF15531580F6D2B7A2F3C943CDE
+magnet:?xt=urn:btih:062F5B128745C99C6EAD4683F7AC8B3D046A9A08
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -610,54 +304,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 943955   (444756) от 05.10.2015
+###  Публикация: 1409255   (447484) от 16.09.2020
 
-Chris Norman - Good Songs (2015) [MP3|320 кб/с]<Rock, Pop>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444756.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. American Girl
-02. Too Many Hearts Have Been Broken
-03. Oh Colette
-04. Who Can Make Me Laugh(   Читать дальше...   )Жанр: Rock, PopПродолжительность: 06:36:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9EEA3CD0FD02BAF5C85F4108A0A8C9B8E1E07644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 943972   (444755) от 05.10.2015
-
-Михаил Задорнов. Неформат 75. ИГИЛ, Сирия, Путин в ООН (2015.10.03) WEB-DLRip [H.264/720p-LQ]
+Q-Dir 8.91 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Юмора
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444755.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447484.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Неформат вернулся! Михаил Задорнов вновь расскажет вам всю правда о самых актуальных событиях в стране и за ее пределами. В этом свежем выпуске Неформата смотрите: рейтинг Путина падает, часы Пескова, УДО Васильевой и многое другое!Телекомпания: Юмор FMЖанр: ЮморПродолжительность: ~ 01:54:33
+Файловый менеджер с оригинальным четырехпанельным интерфейсом и широкими возможностями по работе с файлами. Работает с любого съемного устройства. Многоязычный интерфейс.
+Q-Dir позволяет получать быстрый доступ к часто используемым папкам с помощью ссылок "Quick-Link's", поддерживает функцию drag&drop, работает с буфером обмена, поддерживает следующие (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:7E277207F684776F19B6B0AC0F454FD10FB73405
+magnet:?xt=urn:btih:E000416F2759BBA54760F0E9055F00AA4945562B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -665,28 +331,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 943921   (444754) от 05.10.2015
+###  Публикация: 1409396   (447483) от 16.09.2020
 
-Metallica - Live in Moscow at Olimpiyskiy Arena (2015) [MP3|320 кб/с]<Heavy Metal, Trash Metal>
+Gazpacho - Fireworker (2020) [MP3|320 Kbps] <Progressive Rock, Atmospheric Rock>
 
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444754.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Fuel
- 02. For Whom the Bell Tolls
- 03. Battery
- 04. King Nothing(   Читать дальше...   )Жанр: Heavy Metal, Trash MetalПродолжительность: 02:11:09
+01. Space Cowboy (19:41)
+02. Hourglass (04:15)
+03. Fireworker (04:41)
+04. Antique (06:24)(   Читать дальше...   )Жанр: Progressive Rock, Atmospheric RockПродолжительность: 00:50:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C9B1DADECB8E560280C030CCA10440B8F0D89E01
+magnet:?xt=urn:btih:EC318F4764EFACC3CEA246505C39A2E16B5D6014
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,25 +360,343 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 943710   (444753) от 05.10.2015
+###  Публикация: 1409330   (447482) от 16.09.2020
 
-Неподкупный (2015) WEB-DLRip [H.264/720p-LQ] (серии 1-16 из 16)
+Zoner Photo Studio X 19.2009.2.272 RePack (& Portable) by Dodakaedr [Ru/En]
 
->>Отечественные сериалы
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Zoner Photo Studio - приложение, созданное для качественной обработки цифровых снимков. Одной из функций программы является извлечение из снимков информации о местонахождении фотографа во время совершения съемки и соотношение этих данных с картографическими программами. PhotoStudio работает с самыми различными моделями цифровых камер и содержит средства для редактирования (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B674D0147BC3627884625F21ED5B39291F98DBDE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409230   (447481) от 16.09.2020
+
+Дамир Брэди | Пять букв Альфа (2020) [MP3, Чёрный Рик]
+
+>>нет
 >>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_444753.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447481.jpg" />
 </div>
 
 
 ###  Подробнее
 
-История завязывается в начале в 80-х годов ХХ века, накануне Олимпиады в СССР. Юрий Градов, будучи еще следователем астраханской городской прокуратуры, раскрывает крупную махинацию по незаконному производству и сбыту черной икры. После этого дела Градова переводят в Генеральную прокуратуру СССР в Москве.Производство: Россия / "Свэлл Фильм"Жанр: криминалРежиссер: Александр Даруга, Марат КимАктеры: Владимир Епифанцев, Ирина Розанова, Владимир Юматов, Марина Коняшкина, Андрей Носков, Жанна Эппле, Михаил Тарабукин, Мария Козлова, Иван Мацкевич, Алексей Даруга и др.Продолжительность: ~00:45:00 серия
+Город N, 19** год. Ведётся расследование серии кровавых и жестоких убийств. По следам маньяка идёт сотрудник убойного отдела капитан Алексей Фёдоров. Помощь расследованию пытается оказать брат оперативника, некогда сам ставший жертвой садиста-извращенца...Жанр: Детектив, триллерПродолжительность: 02:11:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B9E8FE207020A78E22A152FDFA51D7D689A560E7
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409200   (447480) от 16.09.2020
+
+Brass & Congas - Brass & Congas (1979) LP [MP3|320 Kbps] <Electronic, Funk Soul, Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447480.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lion  (4:36)
+02. Highwayman  (2:41)
+03. New-York  (3:15)
+04. Radio On  (4:59)(   Читать дальше...   )Жанр: Electronic, Funk Soul, DiscoПродолжительность: 00:31:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAFDFD66DB677BB7D1EFF4BA1AD3512B142EE812
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409375   (447479) от 16.09.2020
+
+Эмили Боун | Энциклопедия для малышей. Поезда (2017) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447479.jpg" />
+</div>
+
+
+###  Подробнее
+
+Книга расскажет много интересного о поездах: что перевозят в цистернах, а что в открытых товарных вагонах, как поезда забираются на крутые склоны, проходят через горы, под землёй и над шоссе, кто управляет составом, а кто переключает сигналы семафоров и чем электровоз отличается от тепловоза и паровоза.Жанр: Энциклопедия/Познавательная литература/Развлечения для детейФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F2CFD70002ADD9BA32E6B2709DBB1B03936E0B62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409270   (447478) от 16.09.2020
+
+Eric Johanson - Below Sea Level (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Buried Above Ground (03:25)
+ 02. Down to the Bottom (03:46)
+ 03. Changes the Universe (04:06)
+ 04. Never Tomorrow (02:51)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:43:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1024DF67A17CE2FBCA1BF39382802AE1361EBE83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409249   (447477) от 16.09.2020
+
+K-Lite Codec Pack Update 15.7.3 [En]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_447477.jpg" />
+</div>
+
+
+###  Подробнее
+
+K-Lite Codec Pack - пакет кодеков, фильтров DirectShow и инструментов связанных с ними. Данный набор отличается от других подобных пакетов, отсутствием конфликтов между кодеками, легкостью установки и использования, что вполне заслуженно делает его самым популярным. Компоненты этого набора позволяют делать просмотр и прослушивание всех популярных и большого количества (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943510   (447476) от 04.10.2015
+
+Футбол. Чемпионат Испании 2015-16. 7 тур. Liga BBVA. Севилья – Барселона (2015) HDTVRip [H.264/720p] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат Испании 2015-16, Liga BBVA. 6 тур. Севилья – Барселона.Телекомпания: НТВ+ Футбол 2 HDЖанр: Спорт, ТелепередачаПродолжительность: 00:51:30 + 00:53:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56F814B7811A6FFDE70F984E0BD1D0BA6D41C365
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943470   (447475) от 04.10.2015
+
+Футбол. Чемпионат России 2015-2016. 11 тур. РФПЛ. Зенит - Ростов (2015) IPTV [H.264/720p-LQ]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447475.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чемпионат России 2015-2016, 11 тур. Зенит - Ростов.Телекомпания: НТВ+ Наш Футбол HDЖанр: Спорт, ТелепередачаФормат: TSПродолжительность: 01:09:36 + 01:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10D8FED572BABFCE22CEEFB0E01227DFE04561A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943714   (447474) от 04.10.2015
+
+Воскресное время - Первый канал (04.10.2015) SATRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447474.jpg" />
+</div>
+
+
+###  Подробнее
+
+Информационно-аналитическая программа Первого канала, выходящая в эфир каждое воскресенье (кроме праздников) с начала сентября по начало июля в 21:00 с хронометражем в 1 час. Рубрик не имеет. Состоит из двух частей примерно по полчаса каждая, разделенных рекламным блоком. Производится Дирекцией информационных программ ОАО «Первый канал».Телекомпания: Первый каналЖанр: ТелепередачаПродолжительность: 01:34:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9520A87A3F4DA044C37751A969F8D21FE8F47503
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943680   (447473) от 04.10.2015
+
+Точка с Максимом Шевченко (04.10.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Каждое воскресенье на НТВ — новый еженедельный итоговый авторский проект известного российского журналиста Максима Шевченко. На чем стоит современный мир? Что движет политикой? От чего зависит наша жизнь и будущее? «Точка» с Максимом Шевченко внимательно, дотошно и внятно исследует эти вопросы. Главными темами итоговой авторской программы станут самые важные и обсуждаемые (   Читать дальше...   )В этом выпуске: Мало не покажется: Россия бомбит халифат террористов. Ради чего мы открыли сирийский фронт? Вы что сговорились: секретный протокол о торговых соглашениях. Как Америка и Европейский союз пытаются нарушить нормы ВТО? И все это за спиной России и ее партнеров. Дефолт по-русски: набрать долгов и не заплатить. Теперь любой в России может объявить себя банкротом и избежать (   Читать дальше...   )Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:55:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73CBD958F6DB41DAB7CEAB9BB2548545A0D83D89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943545   (447472) от 04.10.2015
+
+Леонид Завадовский | В тайге (1926) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказ для младшего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:035A4B5F11C3EE85E49EED9761921484DAE09B71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943587   (447471) от 04.10.2015
+
+Сто к одному (04.10.2015) SATRip
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447471.jpg" />
+</div>
+
+
+###  Подробнее
+
+Цель участников игры ‘Сто к одному’ состоит в том, чтобы угадать наиболее распространённые ответы людей с улицы на предложенные вопросы, на которые невозможно дать однозначный объективный ответ, например, ‘Какую еду больше всего любят французы?’. Ответы бывают порой совершенно непредсказуемы и очень забавны. К примеру, на вопрос ‘Кто поддерживает порядок в стране?’ (   Читать дальше...   )Телекомпания: Россия 1Жанр: Тв-ШоуПродолжительность: 00:38:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A240A3B752260C516ED341EBCF25AC261FDBF72
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 943542   (447470) от 04.10.2015
+
+И. Горюнов | Рассказы про вас (1930) [DJVU]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_447470.jpg" />
+</div>
+
+
+###  Подробнее
+
+Рассказы для младшего школьного возраста.Жанр: Детская прозаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:647471473353F735E0E634F1592ADC39BE3BC450
 ```
 
 https://mybot314.ru/tekegram_catalog/

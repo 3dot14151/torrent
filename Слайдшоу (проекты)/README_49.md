@@ -1,3 +1,29 @@
+###  Публикация: 1032937   (641565) от 09.07.2016
+
+Проекты - VideoHive - Minimal Big Titles Slides - 16702739 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641565.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания слайдшоу. Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:68D90639034BADB25EF2C322D312F4E839204D71
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 800679   (639939) от 29.06.2014
 
 Проекты - VideoHive - Photo Wall Gallery - 5909183 [AEP]
@@ -652,32 +678,6 @@ Wonderland (Glitch Art Slideshow) - Этот шаблон идеально по�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E8BAA9CD485450D17539DA7E5D6624BF99C37F46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1034297   (634033) от 13.07.2016
-
-Проекты - VideoHive - Emotional Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_634033.jpg" />
-</div>
-
-
-###  Подробнее
-
-Emotional Slideshow - эмоциональное слайд-шоу с эффектом параллакса.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73FD626DEE6DC452325BF0355E4A0CE26DE8E206
 ```
 
 https://mybot314.ru/tekegram_catalog/

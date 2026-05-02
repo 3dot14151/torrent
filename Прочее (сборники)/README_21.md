@@ -1,3 +1,264 @@
+###  Публикация: 1090688   (945984) от 07.01.2017
+
+VA - Dance & Club Vol.1 (2017) [MP3|320 Kbps] <Electro, Vocal, Hands Up, Funky, Nu Disco, UK Garage, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_945984.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 3LOGY - The Banjo (Dj Desving Refresh) 4:50
+002. Orca - The Power (P!Crash Remix Edit) 3:13
+003. Scooter - Weekend (Dj Jurbas Remix) 4:36
+004. Will Fast - You & I (Original Mix) 4:23(   Читать дальше...   )Жанр: Electro, Vocal, Hands Up, Funky, Nu Disco, UK Garage, TranceПродолжительность: 08:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6B7BC3F063863A2281D9EDFFF05655DDD1B2F3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1090971   (944859) от 08.01.2017
+
+VA - Dance Of Fire Salamanders (2017) [MP3|320 Kbps] <Club, Dance, House>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944859.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. ACDC - T.N.T (DJ Zarubin DUB Remix)
+002. Agent Greg & Sean Angel - Sweet Dreams (DJ Sky & DJ Zak Mash-Up)
+003. Breach - Jack (DJ Stylezz & DJ Kirillich Remix)
+004. Charlie Puth feat. Selena Gomez - We Don't Talk (Andrey Exx & Sharapov Radio Remix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 09:55:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:157B5E1D315E02775A2F06436949C726E4B39ECC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091119   (944856) от 08.01.2017
+
+VA - Piano Collection 2 (2017) [MP3|320 Kbps] <Classical, Piano>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944856.jpg" />
+</div>
+
+
+###  Подробнее
+
+01|  Roberto Cacciapaglia - Times  (03:41) 
+02|  Roberto Cacciapaglia - Nuvole di luce  (03:08) 
+03|  Ernesto Cortazar - Don't Let Me Fall  (02:29) 
+04|  George Winston - Montana Glide  (04:19) (   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 03:03:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3B1061FC65CE360B8C125C8060026B5E62D2EB5B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1091067   (944605) от 08.01.2017
+
+VA - Winter Hits. Hot Dance Continues (2016) [MP3|320 Kbps] <Dance , Hands Up , Eurodance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_944605.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Stamen - What I Want (Extended Mix)
+002. Zhasmin - Tri Tochki Tire (Ryan Sayers Remix)
+003. Lunar feat. Martin Silence - My World (Extended)
+004. JJ & Baz - Eternity (Original Mix)(   Читать дальше...   )Жанр: Dance , Hands Up , EurodanceПродолжительность: 05:37:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DD23555EEA443C28F92364556A98664FF98BE64
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983336   (943941) от 06.02.2016
+
+VA - HighLife Masters Ultimate Spire (2016) [MP3|192-320 кб/с] <Club, Bounce, Fidget House, Tropical, Nu Disco, Bigroom>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943941.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mobin Master - Do Me Right (Original Mix) 05:09
+02. Dave202 Feat. Yono - Golden Child (Club Mix) 06:24
+03. Andy B. Jones - Make A Move (Club Mix) 04:40
+04. Alan-Lee - Give It Up (Edit) 03:39(   Читать дальше...   )Жанр: Club, Bounce, Fidget House, Tropical, Nu Disco, BigroomПродолжительность: 14:11:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B222D0697C2B64AADD252BD7F28DF6922B6804F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983366   (943742) от 06.02.2016
+
+VA - Dance Зарубежка.Top 150 (2016) [MP3|256-320 кб/с] <Club, Dance, Remix>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943742.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Eurythmics - Sweet Dreams (DJ Vengerov Remix)
+002. Misha Pioner feat Annet - Addicted (Serge Devant Cover) (Original Mix)
+003. Panjabi MC - Mundian To Bach Ke (DJ Bandit Remix)
+004. D.Matrosov - Like That(   Читать дальше...   )Жанр: Club, Dance, RemixПродолжительность: 10:41:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D79CA87E632F21DD9CB555D6DCD28F85C6201251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983373   (943735) от 06.02.2016
+
+VA - 100% Рок Billboard (2016) [MP3|320 кб/с] <Pop, Pop-Rock, Electro, Dance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943735.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Muse – Mercy
+2. Panic! At the Disco – Hallelujah
+3. Iamx – Happiness
+4. Apostol Feat. Mc Davi & Swed - Deal the final blow(   Читать дальше...   )Жанр: Pop, Pop-Rock, Electro, DanceПродолжительность: 01:33:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BE2F14ABE63971DD7A6C40401EA08106F3D7E386
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 983496   (943694) от 06.02.2016
+
+VA - Italo Disco Hits Vol.9 (2016) [MP3|197-320 кб/с] <Italo Disco>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943694.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eurotix - Life As It Slips Away (04:33)
+02. The Sweeps - Love Shines (03:50)
+03. Lichtenfels - Sounds Like A Melody (08:01)
+04. Fancy - Forever Magic (02:25)(   Читать дальше...   )Жанр: Italo DiscoПродолжительность: 06:23:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BA7B706B5758C7761E1D3F9ADC543DB210A4BBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 981887   (943524) от 06.02.2016
+
+VA - Радио ENERGY (NRJ) часть 1 (2009-2016) [MP3|128-320 кб/с] <Dance, Pop, House, Trance>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Afrojack & Martin Garrix - Turn Up The Speakers (02:47)
+02. Andero - Spectrum (Original Mix) (04:53)
+03. Anise K feat. Bella Blue - Walking On Air (03:36)
+04. A-Roma feat. Nicki Minaj & Shawn Lewis - Invincible Now (Radio Edit) (03:34)(   Читать дальше...   )Жанр: Dance, Pop, House, TranceПродолжительность: 05:33:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17C6D1AAC856402B4426325C712703D1A5B75698
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 983154   (943421) от 06.02.2016
 
 VA - Guitar Collection 2 (2016) [MP3|320 кб/с] <Instrumental, Metal, Rock>
@@ -490,267 +751,6 @@ VA - Мир Волшебной Музыки (Sound Clinic - Just Relax Edition) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:199C5195292F52B9064026E8AE67D70633A6A6DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1363880   (939602) от 01.03.2020
-
-VA - The Official UK Top 40 Singles Chart 28.02.2020 [MP3|320 Kbps] <Pop, Dance, Other>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939602.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Weeknd - Blinding Lights
-02. Billie Eilish - No Time To Die
-03. Roddy Ricch - The Box
-04. SAINt JHN - Roses (Imanbek Remix)(   Читать дальше...   )Жанр: Pop, Dance, OtherПродолжительность: 02:15:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6072D5CCB748EACF074BEE7B4F66200C2B7A2FEC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092097   (939459) от 11.01.2017
-
-VA - Dance Hits Collection Vol.8 (2017) [MP3|320 Kbps] <Eurodance , House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. E Motion Feat. Tino - Get Up (Radio Version)
-02. Solid Base - Mirror, Mirror (Radio Mix)
-03. Libra - A Second Chance (Factory Team Mix)
-04. Masterjam - I Wanna Know(   Читать дальше...   )Жанр: Eurodance , HouseПродолжительность: 05:31:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3BF57D776528461EDB4AAC4B07754F07D7C280A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1364006   (939143) от 01.03.2020
-
-VA - The Ultimate Love Songs Playlist (2020) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939143.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Prince - Kiss 3:46
-002. Jason Mraz - I Won't Give Up 4:00
-003. Maisie Peters - Feels Like This 3:43
-004. Ed Sheeran - Thinking Out Loud 4:42(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 06:31:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C672C28670653187E58B65AF148DC6B0613DAF46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984561   (938923) от 09.02.2016
-
-VA - Xtreme Sounds: Original Mix (2016) [MP3|320 кб/с] <Club, Dance, House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938923.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Artful Dodger - Re-Rewind (feat. Craig David)
-002. DYKANE - Lost Summer (Original Mix)
-003. Daniel Bedingfield - Gotta Get Thru This (D'N'D Radio Edit)
-004. Benny Camaro - Something Inside (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, HouseПродолжительность: 08:59:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4C1CE65B542994D57C858CD9C878782F44CB4FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984653   (938921) от 09.02.2016
-
-VA - Модный жаркий зимний хит (2016) [MP3|256 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938921.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lca & Melo D Bright - Rainbow 03:41
-02. Lx24 - Время-Предатель 03:32
-03. Kristina Si - Не Обижай Меня 03:01
-04. Jacquie Lee - Tears Fall 03:35(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:04:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:611D7F0EC41E592E1C15190A675563F211BB4704
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984422   (938843) от 09.02.2016
-
-VA - Зимние Новинки Интернета 50+50 (2016) [MP3|320 кб/с] <Pop, Dance, Rock, Chanson>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938843.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Егор Крид - Будильник (Sunset Live Remix)
-02. Turbotronic - Booty Shake (Original Mix)
-03. Ленинград - Экспонат
-04. Lea Rue - I Cant Say No (Broiler RmX)(   Читать дальше...   )Жанр: Pop, Dance, Rock, ChansonПродолжительность: 06:08:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:944B886B90121BCAF5F8B31A2BF37D0636B449A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092468   (938761) от 12.01.2017
-
-VA - Pumpingland Vol. 92 (2017) [MP3|128-320 Kbps] <Club, Dance, House, Electro House>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938761.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alan Walker - Alone
-002. Ariana Grande vs. Will Sparks vs Bob Sinclar - Bounce This Party (R3dLine & Serge Mash-Up)
-003. ATB - Till I Come (SaberZ KEVU Bootleg)
-004. ATC vs. RAKURS vs. Max Methods - My Heart Beats Like A Drum (Andrey Kiselev Mash-Up)(   Читать дальше...   )Жанр: Club, Dance, House, Electro HouseПродолжительность: 05:11:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4D5559B20A64E8A6951DF8479FD5A3D498FDDF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092396   (938646) от 12.01.2017
-
-VA - Gold Italo Disco: New Generation (2017) [MP3|320 Kbps] <Disco, Pop>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938646.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Amaya - Trapped (Vocal Version) 4:49
-002. Miko Mission - Universal Feeling (Vocal Version) 5:57
-003. Ryan Paris - Parisienne Girl (Eddy Remix) 7:43
-004. Savage - Save Me (Vocal Remix) 7:26(   Читать дальше...   )Жанр: Disco, PopПродолжительность: 11:05:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E68766559996B907F6F6871C1C811DAC8AA79323
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092577   (938632) от 12.01.2017
-
-VA - Our Musical Life Generation (2017) [MP3|212-320 Kbps] <Club, Hard House, Nu Disco, Dance, Bassline, Funky>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_938632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Human Life & Anabel Englund - El Diablo (Adana Twins Remix) 07:45
-02. Rene Amesz - City Streets (Original Mix) 06:46
-03. A & P - We All Go (Radio Edit) 03:35
-04. Blusoul - Code Talkers 08:28(   Читать дальше...   )Жанр: Club, Hard House, Nu Disco, Dance, Bassline, FunkyПродолжительность: 06:34:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3D198B6A4DE6B26AE9CC93CC922BAFD00FEC427
 ```
 
 https://mybot314.ru/tekegram_catalog/

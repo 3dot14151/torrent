@@ -1,3 +1,61 @@
+###  Публикация: 1191367   (264524) от 13.12.2017
+
+Tim Warfield - Jazz Is ... (2001) Criss Cross Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264524.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Silence - The Angels Are Crying [11:56]
+02. Origins [08:15]
+03. My Shining Hour [10:25]
+04. The Magic Bag [09:33](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 01:10:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75BF4488B1C4D65FF1188674610951FDACD1FCAC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1191381   (264523) от 13.12.2017
+
+Toshiko Akiyoshi - Interlude (1987) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_264523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Interlude [04:42]
+02. I Know Who Loves You [04:58]
+03. Blue and Sentimental [04:54]
+04. I Ain't Gonna Ask No More [05:41](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:39:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E481E5FE1920D91269630CDAE1CF5159F11831C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1191359   (264522) от 13.12.2017
 
 Pat Martino - Formidable (2017) HighNote [FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -688,64 +746,6 @@ George Benson - Pacific Fire (1983) Japan, 2017 [FLAC|Lossless|tracks + .cue] <J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D59546D2895ECB63331596F9EBEB0F41DAFD5194
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192133   (263396) от 16.12.2017
-
-Seal - Standards (2017) Japan SHM-CD [FLAC|Lossless|image + .cue] <Vocal Jazz, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263396.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Luck Be A Lady
-02 Autumn Leaves
-03 I Put S Spell On You
-04 They Can't Take That Away From Me(   Читать дальше...   )Жанр: Vocal Jazz, Funk, SoulПродолжительность: 00:55:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:062D9D8FA4A8C4FEA93AC5E5C072DFFD0BE7D837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340706   (263302) от 25.11.2019
-
-Farmers Market - Slav to the Rhythm (2012) [FLAC|Lossless|tracks + .cue] <Jazz Rock, Experimental>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263302.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Slav to the Rhythm (07:13)
-02. You're the Prototypical (06:04)
-03. Friend (01:31)
-04. Dusty Traditions (05:23)(   Читать дальше...   )Жанр: Jazz Rock, ExperimentalПродолжительность: 00:53:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB9110B32C6F803AE18C72C663E8EAF531C0AE37
 ```
 
 https://mybot314.ru/tekegram_catalog/

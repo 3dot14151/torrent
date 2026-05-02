@@ -1,25 +1,80 @@
-###  Публикация: 1810032   (64545) от 02.08.2025
+###  Публикация: 1802280   (66087) от 15.06.2025
 
-Reneé Rapp - BITE ME (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Pop>
+Каппадокия: полет на воздушном шаре, подземный город, сырное печенье и турецкая лазанья | «Поедем, поедим!» (14.06.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Клуб кинопутешествий
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66087.jpg" />
+</div>
+
+
+###  Подробнее
+
+Федерико Арнальди в Каппадокии взмыл под облака на воздушном шаре, спустился в подземный город, погулял в музее под открытым небом, посетил пещерный монастырь, а еще полакомился традиционным десертом с сырным печеньем и острым перцем и научился готовить мини-манты и турецкую лазаньюТелекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94DCAFCA729593EE19177B104EAD49A7276BC35A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802082   (66086) от 15.06.2025
+
+Van Morrison & The Chieftains - Irish Heartbeat (1988) CD, Album [FLAC|Lossless|tracks] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66086.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Star of the County Down    [0:02:42.15]
+02. Irish Heartbeat    [0:03:51.65]
+03. Tá Mo Chleamhnas Déanta    [0:03:31.35]
+04. Raglan Road    [0:04:56.25](   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:36:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2689FFC7BFC786A5832CCD905593CE567ED7490E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802263   (66085) от 15.06.2025
+
+Tres Pistoleros e Dona Kay - On another level (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>HD Audio и Многоканальная Музыка
 >>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64545.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66085.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Leave Me Alone (02:22)
- 02 - Mad (02:55)
- 03 - Why Is She Still Here_ (02:30)
- 04 - Sometimes (03:04)(   Читать дальше...   )Жанр: PopПродолжительность: 00:33:30
+01.  Blues Is The Mother (4:09)
+02.  Setup For Disaster (3:29)
+03.  Jaded Like Me (2:57)
+04.  Walk In The Sunshine (2:38)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:31:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8ED9BD24F43AB9B3B117C0EB3B35E1E3DBD3A12
+magnet:?xt=urn:btih:4831D61C073499E933AEE393E2998E0009F570BB
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +82,111 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810063   (64544) от 02.08.2025
+###  Публикация: 1802246   (66084) от 15.06.2025
 
-VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 12 (2025) [MP3|320 Kbps] <Trance, Progressive>
+Van Morrison - Remembering Now (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66084.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Down To Joy (3:38)
+02.  If It Wasn’t For Ray (3:17)
+03.  Haven’t Lost My Sense Of Wonder (5:28)
+04.  Love, Lover and Beloved (5:14)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:08:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C00F15B345B1B03760804B52EDD02F5799A274F6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802284   (66083) от 15.06.2025
+
+Sabbrabells - Sabbrabells Complete Box (2018) Japanese Edition, Box Set, 9XCD, Compilation, Limited Edition [WavPack|Lossless|image + .cue] <Heavy Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66083.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Sabbrabells (1983)
+02 Dog Fight Ep (1985)
+03 Sailing on the Revenge (1986)
+04 Live! (1986)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 07:21:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32D680676158FB82EDE0605E78F45EE79BAA9D6A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802215   (66082) от 15.06.2025
+
+Своя игра (15.06.2025) WEBRip [H.264/1080p]
+
+>>Документалистика и Телепередачи
+>>Интеллектуальные шоу
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66082.jpg" />
+</div>
+
+
+###  Подробнее
+
+Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «2В Медиа»Жанр: Интеллектуальная играУчастники: Иван Усольцев, Виталий Захарик, Варвара АртюшинаСубтитры: РусскиеЯзык: РусскийПродолжительность: 00:41:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:70897536471CB62D1BE304AB1DB1143F6C44D8F1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1802107   (66081) от 15.06.2025
+
+Duran & Aytek - In Sight E.P. (2005) [FLAC|Lossless|WEB-DL|tracks] <Progressive Trance, Progressive Breaks>
 
 >>Electronic
->>Trance
+>>Trance (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64544.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66081.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Northern Project - Brand New Sky (Original Mix) [3:30]
-02. Gary Afterlife - Waiting For The Sunrise (Original Mix) [6:50]
-03. Hypersia vs. Saman Mehmani & Parsa Q - Unity (Original Mix) [5:24]
-04. Cloudchaser - Mango (Original Mix) [6:00](   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:30:07
+01 First Sight (Original Mix) 8:29
+02 Second Sight (Original Mix) 7:00
+03 Catalepsy (Original Mix) 6:28Жанр: Progressive Trance, Progressive BreaksПродолжительность: 00:21:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A8F42B5D9067182CC028CAEA7DDA189179BC97D5
+magnet:?xt=urn:btih:F0B6B93153E47ED9C46A226FE393C294B72F6584
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,25 +194,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809916   (64543) от 02.08.2025
+###  Публикация: 1802190   (66080) от 15.06.2025
 
-Андрей Ткачев, Findroid | Проклятый ранкер (Книги 1-4) (2022-2023) [MP3, Вадим Пугачев]
+Первая передача на НТВ. Автомобильная передача (15.06.2025) WEBRip [H.264/720p]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Документалистика и Телепередачи
+>>За рулем
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64543.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66080.jpg" />
 </div>
 
 
 ###  Подробнее
 
-После “Дня скорби” наш мир изменился. Бездна раскрыла проход в себя, обещая несметные богатства и силу. Именно так появились Пробужденные - Сверхлюди, способные сражаться против монстров Бездны. Но... я не один из них. Тот день не принес мне ни силу, ни славу, только боль и обещание скорой смерти. Когда я оказался на грани отчаяния, мне предложили сделку, возможность (   Читать дальше...   )Жанр: фэнтезиИздательство: ИДДКПродолжительность: 33:04:33
+Создание преступного сообщества, взятки, злоупотребление должностными полномочиями: какой приговор вынесли бывшему начальнику ГИБДД Ставропольского края?
+ Квадроцикл для подростка — что можно и что нельзя?
+ Гараж, который помещается в багажнике: можно ли такой пузырь надуть во дворе многоэтажки?
+ Осмотр авто для независимой экспертизы: как оценить ущерб, если страховая (   Читать дальше...   )Телекомпания: НТВЖанр: АвтопередачаПродолжительность: 00:24:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2B73AD7579F5526CCAED2156B5CBE8AF5A01F26
+magnet:?xt=urn:btih:4856B269175655CD450C3C89FBE6DA9A2199C759
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,83 +223,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810055   (64542) от 02.08.2025
+###  Публикация: 1802204   (66079) от 15.06.2025
 
-VA - Trancendence, Vol. 03 (2025) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64542.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mostly Cloudy & Toby Hill - SMR (Extended Mix) [4:46]
-02. Midnight Evolution - Silence (Extended Mix) [6:32]
-03. JXR - Hold It Off (Radio Edit) [2:56]
-04. DJ Spaceman & Dj X-Tromic - Regulus (Radio Mix) [4:02](   Читать дальше...   )Жанр: TranceПродолжительность: 02:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BFCFBE37DA0E5260B65FC39BEEDC5828C8C5B4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809927   (64541) от 02.08.2025
-
-Фриц Лейбер | Сага о Фафхрде и Сером Мышелове (Книга 4). Мечи против колдовства (2025) [MP3, Илья Усачев]
-
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64541.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мечи против колдовства. Фафхрд и Серый Мышелов – два легендарных искателя приключений, чьи пути пересеклись в загадочном городе Ланкмар. Один – могучий северянин с мечом, другой – ловкий и хитроумный вор с кинжалом. Вместе они отправляются в невероятные путешествия, сражаются с колдунами, чудовищами и силами тьмы, раскрывая тайны древних руин и волшебных земель. (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: Азбука-АттикусПродолжительность: 08:27:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C0A45465798BD6DCE6ACB9FBE0AD650C6349A1F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809984   (64540) от 02.08.2025
-
-Nighthawk - Six Three O (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+Ritos Paganos - Eternal Hate (2025) [MP3|320 Kbps] <Death, Thrash Metal, Hardcore>
 
 >>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64540.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66079.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Hard Rock Fever
-02. Wrong Side Of Desire
-03. Home Tonight
-04. Angel Of Mine(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:33:01
+01. Eternal Hate
+02. No Pensar
+03. Ritos Paganos
+04. Empty Skull(   Читать дальше...   )Жанр: Death, Thrash Metal, HardcoreПродолжительность: 00:27:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0C20C73FD82EAB724C3E06AA8BE1D06B3BCBCB6B
+magnet:?xt=urn:btih:C522D9ED996E78344C918DFE318B217B1DF3A671
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -166,28 +252,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810069   (64539) от 02.08.2025
+###  Публикация: 1802256   (66078) от 15.06.2025
 
-VA - Trance Fusion, Vol. 12 (2025) [MP3|320 Kbps] <Trance>
+RPS - Annihilation (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Electronic
->>Trance
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64539.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66078.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Semper T. - Parallel Universe (Original Mix) [6:42]
-02. Stefano Negrini & Alaera - Your Loving Angel (Original Mix) [4:18]
-03. Young Hu - Cry Cry Cry (Fros7novA Remix) [4:45]
-04. Masaru Hinaiji & Orie Yoko - Silent Fountain (Original Mix) [4:21](   Читать дальше...   )Жанр: TranceПродолжительность: 02:15;26
+01.  Sky Rider (4:28)
+02.  Only Waitin' (2:30)
+03.  The Feelings Grown (2:07)
+04.  Save It For Me (5:10)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:40:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A22C63BDC49B8EEC0FE2F2FF4783A0BA01FD768D
+magnet:?xt=urn:btih:8CA15E51A2DC513901F53D1B986F45C045646510
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -195,25 +281,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809921   (64538) от 02.08.2025
+###  Публикация: 1802166   (66077) от 15.06.2025
 
-Фриц Лейбер | Сага о Фафхрде и Сером Мышелове (Книга 1). Мечи и черная магия (2025) [MP3, Илья Усачев]
+Военная тайна с Игорем Прокопенко (14.06.2025) WEBRip [H.264]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Документалистика и Телепередачи
+>>Политика и пропаганда, публицистика и экономика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64538.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-За многие десятилетия до «Ведьмака» и Джорджа Мартина вселенной меча и магии правил Фриц Лейбер. Фэнтезийный дуэт – антигероев грандмастера – варвара-рубаки, умеющего недурно петь, и пронырливого воришки, владеющего приемами магии, изначально задуманный автором в качестве тонкой пародии на говардовского Конана, быстро обрел собственную уникальную судьбу и столь же (   Читать дальше...   )Жанр: Фэнтези, приключенияИздательство: Азбука-АттикусПродолжительность: 06:59:18
+«Военная тайна» — одна из старейших программ на нашем канале, которая имеет очень устойчивую аудиторию и которой нет аналогов на отечественном телевидении. Её содержание полностью соответствует интригующему названию: своими секретами с ведущим и корреспондентами программы делятся военные и политики, разведчики, шпионы и диверсанты, террористы и сотрудники спецслужб. (   Читать дальше...   )Телекомпания: РЕНЖанр: ДокументальныйСубтитры: ОтсутствуютПродолжительность: 02:34:01
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1696F899277AF8CFE4E23A86926C4C9926836B68
+magnet:?xt=urn:btih:993B3761A48C18EA64F0B8557FDD78FCF8BC7F9E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -221,25 +307,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809896   (64537) от 02.08.2025
+###  Публикация: 1802171   (66076) от 15.06.2025
 
-Findroid | Возвращение демонического мастера (Книга 7) (2025) [MP3, Алексей Воскобойников]
+НХЛ. Кубок Стэнли 2025. Финал. 5-й матч. Флорида Пантерз - Эдмонтон Ойлерз (14.06.2025) HDTVRip [H.264/720p]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Спорт и активный отдых
+>>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64537.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Возвращение демонического мастера» – роман, седьмая книга одноименного цикла, жанр героическое фэнтези. Нейт всё-таки достиг дома Контер, где узнал, что теперь он его глава, а сам дом практически уничтожен сектой Несокрушимого Алмазного Солнца. Пришло время Костяному палачу на руинах прошлого дома основать свой собственный, но вначале предстоит разобраться с врагами.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 08:56:35
+15 июня 2025, воскресенье. 03:00 МСК
+Стадион: Роджерс Плэйс (Эдмонтон, Канада), вместимость: 18641
+Финал. 5-й матч. Эдмонтон Ойлерз (Эдмонтон) — Флорида Пантерз (Санрайз)
+Главный судья: Вес Макколи (Джорджтаун, Канада)Телекомпания: Setanta Sports 2Жанр: Спорт, хоккейЯзык озвучки: русский, английскийПродолжительность: 03:01:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:781C1D7FAA02F776CB65B99CA52BB02A6AB1FF70
+magnet:?xt=urn:btih:A3023290AF6BC9EE1AF868D277CEC8FD111F5068
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -247,25 +336,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809903   (64536) от 02.08.2025
+###  Публикация: 1802084   (66075) от 15.06.2025
 
-Findroid | Возвращение демонического мастера (Книга 3) (2024) [MP3, Алексей Воскобойников]
+The Kinks - Come Dancing With The Kinks: The Best of The Kinks 1977–1986 (1986) [FLAC|Lossless|tracks + .cue] <Rock>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64536.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Возвращение демонического мастера» – роман, третья книга одноименного цикла, жанр героическое фэнтези. Испытания храма Дракона Горного Источника осталось позади. Впереди школа. Новые друзья и враги, а ещё попутчик от которого невозможно отвязаться…«Возвращение демонического мастера» – роман, третья книга одноименного цикла, жанр героическое фэнтези.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 10:09:59
+01. You Really Got Me (live)    [0:03:36.32]
+02. Destroyer    [0:03:47.48]
+03. (Wish I Could Fly Like) Superman    [0:03:36.62]
+04. Juke Box Music    [0:03:46.55](   Читать дальше...   )Жанр: RockПродолжительность: 01:09:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A06B1C2592D5B835FAB5C53E9B4FF9D41E5998B8
+magnet:?xt=urn:btih:76E6BFAA4E860A87419132C974E64912741C820B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -273,25 +365,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809898   (64535) от 02.08.2025
+###  Публикация: 1802162   (66074) от 15.06.2025
 
-Findroid | Возвращение демонического мастера (Книга 6) (2025) [MP3, Алексей Воскобойников]
+Кое-что из губернской жизни (1983) DVD5
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64535.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Возвращение демонического мастера" – роман, шестая книга одноименного цикла, жанр героическое фэнтези.Нейту предстоит путь вместе с навязанной попутчицей в дом Контер, и он ещё не знает, что за Юл уже идет вернувшийся из Ада Безумный Демон Сотни Звезд.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 09:24:45
+Отечественное искусство знавало много попыток экранизировать прозу Чехова. Режиссерам всегда казалось мало того, что Антон Павлович создал достаточно пьес. Простота и острота его рассказов всегда была необоримым соблазном – воплотить их на экране. Удавалось это с большим или меньшим успехом. «Кое-что из губернской жизни» - образец подобной попытки. Литературной основой (   Читать дальше...   )Производство: СССР, ТО «Экран»Жанр: комедияРежиссер: Борис ГалантерАктеры: Лия Ахеджакова, Андрей Миронов, Юрий Богатырев, Александр Калягин, Татьяна Догилева, Лев Дуров, Татьяна Шмыга, Олег ТабаковСубтитры: отсутствуютПродолжительность: 01:27:09
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3519B611B21C953B7C4167149B6275CFC1CEF3A3
+magnet:?xt=urn:btih:3BF765B921540D1222A01C1EDFF2BF068F2EEECD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,25 +391,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1809899   (64534) от 02.08.2025
+###  Публикация: 1802150   (66073) от 15.06.2025
 
-Findroid | Возвращение демонического мастера (Книга 5) (2025) [MP3, Алексей Воскобойников]
+Формула 1. Сезон 2025. Этап 10. Гран-при Канады. Квалификация (14.06.2025) WEBRip [H.264/720p-LQ] [50fps] F1TV
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Спорт и активный отдых
+>>Формула 1
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64534.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66073.jpg" />
 </div>
 
 
 ###  Подробнее
 
-«Возвращение демонического мастера» – роман, пятая книга одноименного цикла, жанр героическое фэнтези. Внешние витки остались позади, теперь путь Нейта лежит в шестой виток.Жанр: фэнтезиИздательство: ИДДКПродолжительность: 08:59:29
+14 июня 2025 суббота. 23:00 МСК этап 10, Монреаль. Арена: Автодром имени Жиля Вильнёва. Гран-при Канады. КвалификацияТелекомпания: F1TVЖанр: АвтоспортЯзык озвучки: Русский (Алексей Попов, Наталья Фабричнова)Продолжительность: 01:23:26
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EA4C44D5CE3210D4854AA780324FFF3695EA30A1
+magnet:?xt=urn:btih:95ACCA2E9E4C6E9F2C76777BF90D2B28F1A00493
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,25 +417,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810361   (64533) от 04.08.2025
+###  Публикация: 1802249   (66072) от 15.06.2025
 
-Process Lasso 16.0.1.16 [Multi/Ru]
+Little Barrie & Malcolm Catto - Electric War (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64533.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66072.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+01.  Electric War (5:16)
+02.  Zero Sun (3:28)
+03.  Spektator (3:46)
+04.  Creaky (7:32)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D0992F2BF504A9598612141A32BDDEF3959562A
+magnet:?xt=urn:btih:4C235038F9E5F989C6D9C17CC4DCF123A2CCDEC8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -351,25 +446,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810668   (64532) от 05.08.2025
+###  Публикация: 1802240   (66071) от 15.06.2025
 
-YT Downloader 9.15.2 RePack (& Portable) by Dodakaedr [Ru/En]
+KinKobra - Kobra's Forever (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64532.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66071.jpg" />
 </div>
 
 
 ###  Подробнее
 
-YTDownloader – простая в использовании программа для загрузки и просмотра видео с популярных сервисов. Программа позволяет скачивать видео контент из таких сервисов, как YouTube, Facebook, Google Video, Yahoo Video и тому подобных. YTD дает возможность конвертировать видео в форматы MP4, AVI, 3GP, WMV и в форматы для просмотра на iPod, iPhone, PSP и других устройствах. (   Читать дальше...   )Язык интерфейса: Русский, Английский
+01.  29 and Wasted To Tha Bone (3:09)
+02.  Serial (3:29)
+03.  The Bravest One Of All (3:02)
+04.  Planet Boom (3:46)(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0627B57EFF17FEC23A034253327B77B3ECC30F3A
+magnet:?xt=urn:btih:C389D0E3640E19D9095B7AC3198403080995C22F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -377,25 +475,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790831   (64531) от 06.08.2025
+###  Публикация: 1802201   (66070) от 15.06.2025
 
-Неверный путь / Pa villspor / The Wrong Track (2025) WEBRip [DVO] [AD]
+Nostrum - Infernal Tomb (2017) [FLAC|Lossless|WEB-DL|tracks] <Death, Doom, Sludge Metal>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64531.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66070.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшабашная мать-одиночка Эмилия снова оказывается в тяжёлом положении и просит брата о помощи. У него появляется блестящая идея: записать сестру на лыжный марафон.Производство: Норвегия / Rubicon TV AS, iProduksjonЖанр: комедияРежиссер: Халлвар ВитсёАктеры: Ада Эйде, Тронд Фауса Аурвааг, Кристиан Рубек, Мари Блокхус, Shana Mathai, Дениз Кая, Saga Meisfjordskar, Nils Bendik Kvissel, André Sørum, Idun Daae Alstad и д.р.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:56Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+01. Ember to Ash
+02. ILL WILL
+03. Gravedigger
+04. Sickness of the Mind(   Читать дальше...   )Жанр: Death, Doom, Sludge MetalПродолжительность: 00:44:07
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D73FA661096E5078E528CEE22E4401485C79C463
+magnet:?xt=urn:btih:7BF98646B467F3800FC4C18273233FB97488EBE3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -403,25 +504,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1790830   (64530) от 06.08.2025
+###  Публикация: 1802254   (66069) от 15.06.2025
 
-Неверный путь / Pa villspor / The Wrong Track (2025) WEBRip [H.264/1080p] [DVO] [AD]
+Pleasure Business - Pleasure Business (2025) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64530.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66069.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бесшабашная мать-одиночка Эмилия снова оказывается в тяжёлом положении и просит брата о помощи. У него появляется блестящая идея: записать сестру на лыжный марафон.Производство: Норвегия / Rubicon TV AS, iProduksjonЖанр: комедияРежиссер: Халлвар ВитсёАктеры: Ада Эйде, Тронд Фауса Аурвааг, Кристиан Рубек, Мари Блокхус, Shana Mathai, Дениз Кая, Saga Meisfjordskar, Nils Bendik Kvissel, André Sørum, Idun Daae Alstad и д.р.Перевод: Профессиональный двухголосый (ViruseProject)Язык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:32:56Реклама: Присутствуют 2 видео вставки рекламы и 2 баннера
+01.  Nightwalk (4:19)
+02.  This Time Around (3:55)
+03.  Closed for the Summer (3:14)
+04.  Lucky Hands (5:20)(   Читать дальше...   )Жанр: RockПродолжительность: 00:55:08
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A54D4EE45299F8B859F6D010A33BC2019E0F50B8
+magnet:?xt=urn:btih:71FE66C8E7089C731A0245F6EC6A2FDC501FD436
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -429,25 +533,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1810913   (64529) от 07.08.2025
+###  Публикация: 1802261   (66068) от 15.06.2025
 
-Fort Firewall 3.18.11 + Portable [Multi/Ru]
+SM Society - Conster(nation) (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Программ
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64529.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66068.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Fort Firewall - простой и бесплатный брандмауэр для Windows, с помощью которого вы сможете контролировать сетевой и интернет трафик, блокировать приложениям доступ к интернету или ограничивать им скорость соединения, а также настраивать правила фильтрации по IP-адресам.Язык интерфейса: Русский, Английский и другие
+01.  Universe (3:29)
+02.  Fatality (1:44)
+03.  Consternation (4:03)
+04.  Raging Bull (2:03)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:35:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:97254C14C6CD3C2F2D54FB76046E46B4FC6C5113
+magnet:?xt=urn:btih:1DCBF8C7AF4A4ADD133B7DA8C42769309FDD04C8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -455,25 +562,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811389   (64528) от 09.08.2025
+###  Публикация: 1802149   (66067) от 15.06.2025
 
-Notification Widget v1.5.186 Mod by Alex.Strannik [Ru/Multi]
+Toad the Wet Sprocket - Fear (1991) [FLAC|Lossless|tracks + .cue] <Rock, Alternative Rock>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64528.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66067.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Весьма удобное приложение-виджет для отображения полученных уведомлений. Поддерживает множество раздельных настроек внешнего вида установленных виджетов. В наличии возможность отображения времени, даты, заряда батареи на установленном виджете. Четко отображает уведомления из верхней панели в виджете с быстрым ответом в разговорах или элементами управления медиаплеером. (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 08.08.2025Разработчик: Milan VyšataПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+01. Walk on the Ocean    [0:03:00.07]
+02. Is It for Me    [0:03:24.73]
+03. Butterflies    [0:04:26.22]
+04. Nightingale Song    [0:02:03.20](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:46:37
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B7CB66321FF17A2B46D4FF51EFE18A90296B6A6
+magnet:?xt=urn:btih:A9C8D754913CA8664AFA6DDE8672AD1D6CEDD836
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -481,25 +591,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811394   (64527) от 09.08.2025
+###  Публикация: 1802136   (66066) от 15.06.2025
 
-Notification Dots v1.2.69 Mod by Alex.Strannik [Ru/Multi]
+Khold - Du Dommes Til Dod (2024) [FLAC|Lossless|image + .cue] <Black Metal>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64527.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66066.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшое приложение для предоставления быстрого доступа к уведомлениям, посредством создания настраиваемых плавающих кнопок, отображаемых поверх интерфейса приложений. Просто и удобно. Нажатие плавающей кнопки вызывает диалог с текстом уведомлений, позволяя оптимизировать процесс взаимодействия с уведомлениями приложений для удобства в организации вашего рабочего (   Читать дальше...   )Тип издания: ProРелиз состоялся: 08.08.2025Разработчик: Milan VyšataПоддерживаемая ОС: Android 6.0+Язык интерфейса: Русский / Мульти
+01. Myrdynk 04:03
+02. Vanviddfaren 03:35
+03. Heks (Du dømmes til død) 04:04
+04. Skoggangsmann 03:38(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:32:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1C3DE592B68980DA59E2A4FB47AC6DBED56352F5
+magnet:?xt=urn:btih:80EE3545DEA70B4D7C41FAB7CC40A1FBCCE09D68
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -507,25 +620,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811493   (64526) от 10.08.2025
+###  Публикация: 1802250   (66065) от 15.06.2025
 
-Dog Scanner: Породы собак v22.0.3-G Mod by PieMods [Ru/Multi]
+North Mississippi Allstars - Still Shakin' (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64526.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66065.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Приложение Dog Scanner надежно идентифицирует породу вашей собаки всего за несколько секунд! Помимо фотосъемки, вы можете записать видео или загрузить изображение из своей галереи. Узнать собаку так же легко, как и получить! Несмотря на небольшой размер приложения, вы получите все возможности и сможете идентифицировать породу собаки или получить доступ к нашей обширной (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.08.2025Разработчик: Siwalu Software GmbHПоддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+01.  Preachin’ Blues (3:35)
+02.  Stay All Night (5:48)
+03.  My Mind is Ramblin' (4:11)
+04.  Pray for Peace (4:04)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:48:06
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BC40CA9EDFDC407AE12F22185A8E2165CADFAADD
+magnet:?xt=urn:btih:B6F036FCD3A6FE543AD59CBC7F7E8768A6E8398A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -533,25 +649,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811508   (64525) от 10.08.2025
+###  Публикация: 1802234   (66064) от 15.06.2025
 
-Auto Reply: автоответчик v5.5 Mod by Alex.Strannik [Ru/Multi]
+Greye - VII (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64525.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66064.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшой и удобный автоответчик, поддерживающий работу с Facebook, WhatsApp и Skypе. Позволяет создавать шаблоны ответных сообщений и  отвечать  в групповые чаты. Поддерживает фильтрацию по контактам. Включите автоматический ответ одним касанием, нет необходимости устанавливать сложные требования. Автоответчик отправляет автоматический ответ всем, кто обращается к (   Читать дальше...   )Тип издания: PremiumРелиз состоялся: 10.08.2025Разработчик: TechInnate SolutionsПоддерживаемая ОС: Android 5.1+Язык интерфейса: Русский / Мульти
+01.  Hold My Own (3:34)
+02.  Famous Last Words (3:41)
+03.  Losing My Mind (3:46)
+04.  Diamonds (3:29)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9AE64BE7FD58630A649DBA691857282C43827979
+magnet:?xt=urn:btih:546B965C658D4A80EB371EA953A2894ACE0B2197
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -559,25 +678,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1811502   (64524) от 10.08.2025
+###  Публикация: 1802229   (66063) от 15.06.2025
 
-Сканворды на русском v1.4.2 Mod от Alex.Strannik [Ru]
+Deadcode - Nothing And Nowhere (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
 
->>Архив торрентов
->>Архив КПК и Мобильных устройств
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64524.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66063.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Великолепный сборник разнообразных сканвордов. Более тысячи хороших сканвордов. Возможность использования подсказок. Ведение статистики разгаданных головоломок. Удобный и простой интерфейс. Поддерживается, работает без интернет.Тип издания: ModРелиз состоялся: 09.08.2025Разработчик: FgCos GamesПоддерживаемая ОС: Android 5.0+Жанр: Словесные игрыЯзык интерфейса: Русский
+01.  Don't Let Me Go (4:33)
+02.  Fight Or Flight (4:54)
+03.  Leave It All Behind (3:51)
+04.  Destabilize (4:00)(   Читать дальше...   )Жанр: RockПродолжительность: 00:45:59
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5C6307FDB739831B76634E9261FE2042C05DD3AE
+magnet:?xt=urn:btih:2DB0E02F9A69FE10C05E7F99AECE977864694EE5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -585,107 +707,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474072   (64523) от 02.10.2025
+###  Публикация: 1802228   (66062) от 15.06.2025
 
-В поисках приключений / The Quest (1996) BDRip [H.264/1080р-LQ]
+88 and gone - Spiders (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>Архив торрентов
->>Архив Видео. Кино, Театра
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64523.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66062.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Было время, когда в мире еще хватало места для пиратской резни, ловушек контрабандистов, работорговцев и древних тайн загадочного Востока. Когда настоящие мужчины могли отправиться на поиски невероятных приключений. Уличный преступник отправляется в путешествие в поисках своего прошлого и будущего.
-Его одиссея проходит через самые экзотические страны и живописнейшие (   Читать дальше...   )Жанр: боевик, триллер, приключенияРежиссер: Жан-Клод Ван ДаммАктеры: Жан-Клод Ван Дамм, Роджер Мур, Джеймс Римар, Джанет Ганн, Джек МакГи, Аки Алеонг, Абдель Кисси, Луис Мэндилор, Чанг Чинг Пенг Чаплин, Райан КутронаПеревод: Многоголосый закадровыйСубтитры: Английские, РусскиеПродолжительность: 01:34:35
+01.  INTRO (2:08)
+02.  SPIDERS (3:58)
+03.  WISHBONE (3:20)
+04.  AGENDA (2:45)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:55:47
 
 ## Скачать торент
 ```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570996   (64522) от 02.10.2025
-
-В поисках приключений / The Quest (1996) Blu-Ray [H.264/1080p]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64522.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было время, когда в мире еще хватало места для пиратской резни, ловушек контрабандистов, работорговцев и древних тайн загадочного Востока. Когда настоящие мужчины могли отправиться на поиски невероятных приключений. Уличный преступник отправляется в путешествие в поисках своего прошлого и будущего.
-Его одиссея проходит через самые экзотические страны и живописнейшие (   Читать дальше...   )Жанр: Приключения, БоевикРежиссер: Жан-Клод Ван Дамм / Jean-Claude Van DammАктеры: Жан-Клод Ван Дамм (Christopher Dubois), Роджер Мур (Lord Edgar Dobbs), Джеймс Римар (Maxie Devine), Джанет Ганн (Carrie Newton), Джек МакГи (Harry Smythe), Аки Алеонг (Khao), Абдель Кисси (Khan, (Mongolian Fighter)), Луис Мэндилор (Riggi), Чанг Чинг Пенг Чаплин (Master Tchi), Райан Кутрона (Officer O'Keefe), Шейн Майер (Red), Мэтт Лион (Billy)Перевод: 2x Профессиональный |многоголосый закадровый ОРТ, ТК "Россия"| + 2x Профессиональный |двухголосый закадровый Twister, ТВЦ| + Одноголосый закадровый |Ю.Живов, А.Гаврилов, А.Кашкин|Продолжительность: 01:34:35
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 396068   (64521) от 02.10.2025
-
-В поисках приключений / The Quest (1996) [720p] HDTVRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64521.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было время, когда в мире еще хватало места для пиратской резни, ловушек контрабандистов, работорговцев и древних тайн загадочного Востока. Когда настоящие мужчины могли отправиться на поиски невероятных приключений. Уличный преступник отправляется в путешествие в поисках своего прошлого и будущего.
-Его одиссея проходит через самые экзотические страны и живописнейшие (   Читать дальше...   )Жанр: Боевик, Приключения, ТриллерРежиссер: Жан-Клод Ван ДаммАктеры: Жан-Клод Ван Дамм, Роджер Мор, Джеймс Римар, Джанет Ганн, Джек МакГи, Аки Алеонг, Абдель Кисси, Луис Мэндилор, Чанг Чинг Пенг Чаплин, Райан КутронаПеревод: Многоголосый закадровый, Профессиональный (двухголосый закадровый)Субтитры: Русские, UTF-8, Английские,  UTF-8Формат: MKVПродолжительность: 01:34:26
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477037   (64519) от 02.10.2025
-
-В поисках приключений / The Quest (1996) BDRip [H.264]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64519.jpg" />
-</div>
-
-
-###  Подробнее
-
-Было время, когда в мире еще хватало места для пиратской резни, ловушек контрабандистов, работорговцев и древних тайн загадочного Востока. Когда настоящие мужчины могли отправиться на поиски невероятных приключений. Уличный преступник отправляется в путешествие в поисках своего прошлого и будущего.
-Его одиссея проходит через самые экзотические страны и живописнейшие (   Читать дальше...   )Производство: Universal Pictures / СШАЖанр: Боевик, Триллер, ПриключенияРежиссер: Жан-Клод Ван ДаммАктеры: Жан-Клод Ван Дамм, Роджер Мур, Джеймс Римар, Джанет Ганн, Джек МакГи, Аки Алеонг, Абдель Кисси, Луис Мэндилор, Чанг Чинг Пенг Чаплин, Райан КутронаПеревод: Многоголосый закадровый, ПрофессиональныйЯзык субтитров: Русские, АнглийскиеПродолжительность: 01:34:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:941D0F49E8C201E87326782ED227011D9B094162
+magnet:?xt=urn:btih:EE108B623A171DB463B1609E5D824D1F11AC6329
 ```
 
 https://mybot314.ru/tekegram_catalog/

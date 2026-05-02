@@ -1,3 +1,61 @@
+###  Публикация: 1363287   (943765) от 27.02.2020
+
+VA - EDM Immersion (2020) [MP3|320 Kbps] <Dance, Club, Techno, House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943765.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Nick Henley - Progression
+002. Ruddek - Boring Talk (Extended Mix)
+003. Plurthlings - On Shrooms
+004. Mi Ni - Power Of You(   Читать дальше...   )Жанр: Dance, Club, Techno, HouseПродолжительность: 08:07:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E5A24A5F257FA83DDC6CB4D80EA7030BFAABBC4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1363292   (943759) от 27.02.2020
+
+VA - Breathe Fire: Beach Dance Classics Radio (2020) [MP3|320 Kbps] <Club, Dance, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_943759.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bramd - Home (Dance Radio Edit)
+002. Chris Burke - Freak
+003. Stuart Mcniven - 3rd Inferno
+004. Louder - Leo In Space(   Читать дальше...   )Жанр: Club, Dance, Electro HouseПродолжительность: 07:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7BB34A93A4A348ECCD79BC01D5A28888DD9788CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1363289   (943707) от 27.02.2020
 
 VA - City Life: Extended Trance Party (2020) [MP3|320 Kbps] <Trance, Electro>
@@ -687,64 +745,6 @@ VA - Sun Goes Down: Chillout Party (2017) [MP3|320 Kbps] <Chillout, Lounge, Down
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1D3DF2F6707906CC58BA86FCBFBC86CA672112F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1092085   (940286) от 11.01.2017
-
-VA - Magic Wind: Psychedelic Trance Mix (2017) [MP3|320 Kbps] <Psy, Goa Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940286.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Norma Project - Day For Dance
-002. Galactrixx - Supernova
-003. Electit - Sweet Bitches
-004. Bionic Delay - Tetrahedron Grid(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 13:12:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B047E25E416B38A585B9A89EB2AE78F254A21670
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 984218   (940285) от 08.02.2016
-
-VA - SuperBomb Club Music Pack 52 (2016) [MP3|320 кб/с] <Club, Electro House, Progressive House, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_940285.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Allen & Envy - Virtuous (Original Mix) (8:47)
-02. Andy Moor - Resurrection (Mike Saint-Jules Interstellar Mix) (6:27)
-03. APA - Johnny (Original Mix) (4:00)
-04. Audio Bastardz - Unicorn (Original Mix) (5:37)(   Читать дальше...   )Жанр: Club, Electro House, Progressive House, TranceПродолжительность: 03:09:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8243D0367B4CBCF514C538193E175B2E5DD14006
 ```
 
 https://mybot314.ru/tekegram_catalog/

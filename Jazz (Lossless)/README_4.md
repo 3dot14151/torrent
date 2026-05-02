@@ -1,3 +1,61 @@
+###  Публикация: 1611149   (1041674) от 10.02.2023
+
+The Fusion Syndicate - The Fusion Syndicate (2012) [FLAC|Lossless|tracks + .cue]<Jazz Rock>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041674.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Random Acts Of Science  07:54
+02. Stone Cold Infusion  07:32
+03. Molecular Breakdown  07:20
+04. Particle Accelerations  07:39(   Читать дальше...   )Жанр: Jazz RockПродолжительность: 00:52:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DAA61B35389FED9C595AA283917A544EDB224096
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1611081   (1041650) от 10.02.2023
+
+VA - Ladies In Love (1929 - 1953) 2CD, 2003, Nocturne [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1041650.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1 - Ladies in Love:
+01. June Christy - Make Love to Me (4:01)
+02. Sarah Vaughan - Corner to Corner (2:59)
+03. Mildred Bailey - Tears in My Heart (3:07)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 02:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C3DBEE66A27C071F80C0FD66A0235ED4F576D09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1438088   (1041496) от 07.01.2021
 
 VA - Jazz On Broadway: The Greatest Musicals (1956 - 1962) 10CD, 2019, The Intense Media [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Cool>
@@ -686,64 +744,6 @@ Sun Ra - Jazz in Silhouette & Sound Sun Pleasure!! (1959) 2011, Phoenix Records 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2EB37125DE7BE2C8F9EC94D98BF9FD75C4ADA2EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613937   (1039135) от 20.02.2023
-
-Sonny Rollins - Work Time (1955) 2004, Prestige [FLAC|Lossless|tracks + .cue] <Bop, Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039135.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. There's No Business Like Show Business [6:20]
-02. Paradox [4:59]
-03. Raincheck [6:02]
-04. There Are Such Things [9:29](   Читать дальше...   )Жанр: Bop, Hard BopПродолжительность: 00:32:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D11E39A1DAE35190276033F0CFEDCBB96306968F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1613965   (1039104) от 20.02.2023
-
-Bobby Watson - Advance (1984) 1997, Enja [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. But Not for Me [10:16]
-02. Karita [8:05]
-03. Round Midnight [7:58]
-04. You're Lucky to Me [5:15](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:39:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D54D0D255E2165991E8586B86DD2963F3EA9AC1
 ```
 
 https://mybot314.ru/tekegram_catalog/

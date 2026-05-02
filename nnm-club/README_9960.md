@@ -1,106 +1,25 @@
-###  Публикация: 1539974   (656036) от 27.03.2022
+###  Публикация: 1139202   (658271) от 04.06.2017
 
-BBC. Как построить ядерную электростанцию / How to Build a Nuclear Power Station (2021) WEBRip [H.264/1080p] (серии 1-2 из 2)
-
->>Зарубежные TV-бренды
->>BBC
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный фильм о строительстве первой, за несколько десятилетий, атомной электростанции в Великобритании.Производство: Великобритания, BBC, WindfallfilmsЖанр: документальный, научно-популярныйРежиссер: Мэт СтимпсонПеревод: одноголосый профессиональныйСубтитры: отсутствуютПродолжительность: 2x ~00:58:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99AD490E81C26F2405AACEC03631944CE313AC54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539826   (656035) от 27.03.2022
-
-Павел Яншевский | Недвижимость на каждый день. Как строить, продавать и покупать (2022) [PDF]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656035.jpg" />
-</div>
-
-
-###  Подробнее
-
-Полезные и важные знания о недвижимости: от планирования покупки и стратегий инвестирования до управления такой собственностью.
-Книга задумана как инструмент для решения личных и бизнес-задач, связанных с недвижимостью. Она адресована в первую очередь непрофессионалам. Автор рассказывает обо всех этапах девелопмента, о том, как планировать приобретение недвижимости (   Читать дальше...   )Жанр: Менеджмент, маркетингФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539858   (656034) от 27.03.2022
-
-Хоккей. НХЛ 2021-2022. Нью-Йорк Айлендерс - Бостон Брюинз (26.03.2022) WEB-DL [H.264/720p-LQ] [hand made 60fps] [EN]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656034.jpg" />
-</div>
-
-
-###  Подробнее
-
-26 марта 2022, суббота. 19:30 МСК
-Стадион: Ти-Ди Гарден (Бостон, США), 17 850 зрителей (100% при вместимости 17 850)
-Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Главный судья: Джейк Бренк (Детройт Лейк, США)Телекомпания: NESNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:55:28
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226178   (656033) от 20.05.2018
-
-Angantyr - Sejr (2004) [APE|Lossless|image + .cue] <Black Metal>
+Madder Lake - Stillpoint (1973) Reissue, 1991,  Mushroom [MP3|320 Kbps] <Progressive Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Rock
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656033.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658271.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. En Falden Kriger 07:58
-02. Niddingdåd 06:33
-03. Solverpilens Kald 06:42
-04. Hadets Sorte Flamme 06:00(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:54:26
+1. Salmon Song
+2. On My Way To Heaven
+3. Helper
+4. Listen To The Morning Sunshine(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:36:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D84AB7A9A3A52CFB8DABD2025CE877BC527E9F32
+magnet:?xt=urn:btih:999DF1833B02C3FC91A18662F45F053BE61B0613
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -108,28 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226195   (656032) от 20.05.2018
+###  Публикация: 1139933   (658270) от 04.06.2017
 
-Armaggedon - I.N.R.I. (I, Nazarene, Recognize My Impurity) (2009) [APE|Lossless|image + .cue] <Black Metal>
+Я. С. Павлов | В. И. Ленин и партизанское движение (1975) [DJVU]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Научная и техническая литература
+>>Историческая литература
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656032.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658270.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Brutal Panzer Assault 03:54
-02. Kill The Koward Khrist 03:27
-03. 6 (66) Millions de Survivants 04:27
-04. Judeocide 05:07(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:40:08
+В настоящей работе автор обобщил основные методологические критерии ленинского учения о партизанской войне. Главное внимание уделено анализу всего нового, что внес В. И. Ленин в марксистское наследие об освободительном партизанском движении. В монографии раскрывается деятельность партии большевиков по активному использованию партизанских выступлений трудовых масс (   Читать дальше...   )Жанр: История, политологияФормат: DJVU
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:6B8DB8154E37E21367ADCCC71C6CC7CE6477D2CC
+magnet:?xt=urn:btih:9CDB14B1CC281D0DCF09D85852EA86CDBF7B0AD3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -137,225 +53,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226194   (656031) от 20.05.2018
+###  Публикация: 1139465   (658269) от 04.06.2017
 
-Armaggedon - Imperium wird durch das Blut wieder aufleben (2005) [APE|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkness & Hate 04:16
-02. Crushing The Bastard 04:14
-03. Open The Gates Of Hell 03:21
-04. Fullmoon Apocalypse 03:20(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:31:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02078A5577E33DEBBCC250C18680D58474E0A037
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226193   (656030) от 20.05.2018
-
-Arkaik - Reflections Within Dissonance (2010) [FLAC|Lossless|image + .cue] <Technical Death Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656030.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Transcendent Spectral Path
-02. Reflections Within Dissonance
-03. Paradigm
-04. Obscured Luminosity(   Читать дальше...   )Жанр: Technical Death MetalПродолжительность: 00:40:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226169   (656029) от 20.05.2018
-
-Alatyr - Alatyr (2007) [APE|Lossless|image + .cue] <Pagan Black Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656029.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Alatyr (Intro)	04:29
-02.	Burka	08:36
-03.	Popol	07:36
-04.	Priepast	07:38(   Читать дальше...   )Жанр: Pagan Black MetalПродолжительность: 00:48:31
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226347   (656028) от 20.05.2018
-
-Mitchell and Ruff - Brazilian Trip & Campus Concert (1957, 1968) 2002, Collectables [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz, Brazilian Jazz>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656028.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tanto Canto [06:11]
-02. Deixa Pra La [03:32]
-03. Nao Deixa [05:28]
-04. Chuva [03:53](   Читать дальше...   )Жанр: Bop, Mainstream Jazz, Brazilian JazzПродолжительность: 01:16:13
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226166   (656027) от 20.05.2018
-
-Ad Hominem - Napalm for All (2018) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_656027.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. 	AMSB 				04:04
-02. 	I Am Love 			03:13
-03. 	Consecrate the Abomination 	03:50
-04. 	Napalm for All 			01:51(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:43:15
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1226369   (656026) от 20.05.2018
-
-Floe - Attributes (2018) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656026.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Floe & Edvarvhile – Introspection 2018 (Album Mix)
-02. Denis Sender & Floe – Charisma (Album Mix)
-03. Floe – Constitution (Album Mix)
-04. DJ T.H., Floe & Angel Falls – Only Time (Album Mix)(   Читать дальше...   )Жанр: TranceПродолжительность: 00:42:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:87E18A19A68230D3623E7F7E26F09ED696173F7F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515318   (656025) от 26.06.2012
-
-Брена Сильвия, Страффи Иджинио | Дилогия "Майя Фокс" [2010-2011] [FB2]
-
->>Художественная литература
->>Фантастика, Фэнтези
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656025.jpg" />
-</div>
-
-
-###  Подробнее
-
-Формат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F44412F8AE1127615BC8E80013B65422EDAAEA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 515647   (656023) от 26.06.2012
-
-VA - Музыкальный сюжет лета (2012) [MP3|192 кб/с]<Pop>
+VA - Vocal Trance Vol 2 (2017) [MP3|320 Kbps] <Uplifting Trance>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656023.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658269.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: PopПродолжительность: 05:59:05
+1. CubeTonic - So Strong (feat Dilara Gadel - Saad Ayub remix) (07:25)
+2. Russian Dolls & Nathia Kate - Always (feat Robin Vane - Ruslan Radriges remix) (03:43)
+3. Roman Messer & Armos - Higher (feat Angel Falls - original mix) (06:30)
+4. Eximinds & Lucid Blue - A Higher Love (original mix) (05:32)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 01:02:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D802D39C6082C6AA9F471BEE0FE8550BC0CD2E84
+magnet:?xt=urn:btih:F30F705D8000492595038298B92E4C610AAEF192
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -363,34 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515241   (656017) от 26.06.2012
+###  Публикация: 1139078   (658268) от 04.06.2017
 
-VA - Dance Club Party (2012) [MP3|256 kbps]<Club|Dance>
+Джеки без Джека / Jackie without Jack (Jackie sans Kennedy) (2013) HDTVRip [H.264/720p-LQ]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Документалистика и Телепередачи
+>>Тележурналистика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656017.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658268.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Tiesto feat. Kay - Work Hard, Play Hard (Andrew Rayel Hard Remix)
-02. Disco Superstars Feat. Seventy7 - Right Now (Eddy Remix)
-03. Riktam & Bansi - Haloween (Aerofeel5 Remix)
-04. Jovani - Burning Man (Original Mix)
-05. Porn Stars & Jay Jacob - Time To Party (Ftampa Remix)
-06. Amr Diab - Wayah (DJ Fisun remix)
-07. Cheeky D - Boogie Bitch (Original Mix)
-08. Adstedt & Alaa Feat. Lina Harriette - Illusion (Andy Harding Remix)
-09. Eximinds Ft. Dragana - I Want To Fly Again (Original Mix)
-10. Timo Graf feat. Mia Moore - Prometteur (Original Mix)(   Читать дальше...   )Жанр: Club|DanceПродолжительность: 09:38:27
+Знаменитый режиссер Патрик Жеди получил доступ к серии разговоров, записанных несколько месяцев спустя после того, как муж Джеки Кеннеди был убит в Далласе 22 ноября 1963 года. Молодая вдова, которой на тот момент было 34 года, рассказывает о своей жизни со своим мужем Джоном Кеннеди. Это разговоры об истории в целом и о ее личной жизни, включая интимные секреты (   Читать дальше...   )Производство: Франция, What's up FilmsЖанр: Документальный, история, биографияРежиссер: Патрик ЖедиПеревод: ДублированныйПродолжительность: 00:52:34
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F2CE5CCD51C644FCE15DD78BAAFE6F1AC8BAAC50
+magnet:?xt=urn:btih:57F62D779FC1016250FC33EAFB6C11F36BF66C25
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -398,25 +108,64 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 513967   (656016) от 26.06.2012
+###  Публикация: 342676   (658266) от 28.05.2011
 
-[EN] Этот тёмный мир / Higher Ground (2011) DVDRip
+Lightning In a Bottle - A One Night History of the Blues (2003) DVDRip
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658266.jpg" />
+</div>
+
+
+###  Подробнее
+
+Документальный фильм о концерте "A Salute to the Blues", который состоялся 7 февраля 2003 года, в Radio City Music Hall (Rockefeller Center, Manhattan, New York City, New York, USA) и был посвящен началу Года Блюза в США.
+ Вступительное слово - Мартин Скорцезе.01.“First Time I Met The Blues”
+02.“Zelie”
+03.“See That My Grave is Kept Clean”
+04.“Gamblin’ Man”(   Читать дальше...   )Жанр: Концерт, документальныйПродолжительность: 01:45:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:721567617D57D739DD34BD716048F814A5165EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 339695   (658262) от 28.05.2011
+
+Linda Perry - два альбома (1996,1999)[FLAC|Lossless]<Female Vocalists/Indie/Rock>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656016.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_658262.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Фильм охватывает почти три десятилетия жизни Кэролин Бриггс, кульминацией которой стала дорожная авария, где чуть не погибла ее маленькая дочь. После этого Кэролин и ее муж рок-музыкант уверовали в божественное провидение и в результате стали членами религиозной коммуны. Однако происходящие в жизни события наносят удары по вере Кэролин, приводя к конфликту между семьей и верой, любовью к своей семье и Богу.Жанр: ДрамаРежиссер: Вера ФармигаАктеры: Джошуа Леонард, Норберт Лео Батц, Майкл Чернус, Вера ФармигаПеревод: ОтсутствуетПродолжительность: 01:51:40
+01. The Garden	4:40
+    02. Jackie	5:13
+    03. Sunny April Afternoon	4:04
+    04. Lost Command	5:12
+    05. Get It While You Can	4:31
+    06. Bang The Drum	4:02
+    07. Some Days Never End	3:32
+    08. New Dawn	5:17
+    09. Fly Away	5:44
+    10. Let Me Ride	3:50(   Читать дальше...)Жанр: Female Vocalists/Indie/RockПродолжительность: 00:59:10
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:92DDBAA3F61FDF4B6A86723D5C843E366E28483C
+нет
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -424,25 +173,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515637   (656015) от 26.06.2012
+###  Публикация: 514479   (658247) от 24.06.2012
 
-[Графика] Художник - иллюстратор Митченко Юлия (2012)
+Koma & Bones - Shutterspeed (2003) [MP3|320 кб/с]<Breakbeat, Breaks>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656015.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658247.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Художник - иллюстратор Митченко Юлия
+1. Take Me Back 6:57
+2. Donkey Spanner 6:54
+3. Questo É Sporc 6:15
+4. Bootabang 6:59
+5. Pusherman 4:02
+6. Twisted Streets 6:14
+7. Slalom 6:55
+8. Flip Flop 1:12
+9. Black Satsuma 6:21
+10. Nu Born 6:06(   Читать дальше...   )Жанр: Breakbeat, BreaksПродолжительность: 01:05:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E3BEC9348A67E55E0E8AE521E0835D5C3DFFA8A2
+magnet:?xt=urn:btih:D2DFC73B147A01C7E82794054A69A127E684710E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -450,25 +208,61 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515368   (656014) от 26.06.2012
+###  Публикация: 513728   (658246) от 24.06.2012
 
-Л. Сигельбаум | Машины для товарищей. Биография советского автомобиля [2011] [PDF]
+VA - Солнечный Top 100 (2012) [MP3|256 кб/с]<Pop>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658246.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Пачуля - Жаркое Лето (Fidel Wicked Radio Edit) (3:21)
+2. Арина И Размер Project - My Moscow Love (2:50)
+3. Ани Лорак - Я буду солнцем (3:43)
+4. Real O - Луна (Я в белом платьице) (3:28)
+5. Алена Высотская - Опять неудача (3:52)
+6. Анна Гуричева - Моя Москва (3:39)
+7. Aslan feat. Misty - Знаю, Знаю (3:27)
+8. Макс Барских - Dance (3:20)
+9. Виталий Козловский - Целую (3:15)
+10. МакSим - Одиночка (2:26)2012Жанр: PopПродолжительность: 06:01:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BCAED02B92396FB32E6ACF9706BFFA9F3BE4651
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514887   (658243) от 24.06.2012
+
+Г.Н.Докучаева | Здоровье эндокринной системы [2007] [FB2]
 
 >>Архив торрентов
 >>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656014.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658243.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга Л. Сигельбаума - это история российского и советского автомобиля с дореволюционных времен до наших дней. Как объект индивидуальных желаний машина — в сущности, мобильная частная территория — всегда находилась в противоречии с коллективистской идеологией коммунистической партии. В последние годы существования СССР эти желания превратились в настойчивые требования. (   Читать дальше...   )Формат: PDF
+Описаны болезни эндокринной системы и наиболее распространенные добавки, которые могут быть рекомендованы при этих заболеваниях.
+Подробно рассказано о всех компонентах описанных биологически активных добавок: природных или идентичных природным биологически активных веществах, об их пользе для организма человека.Формат: FB2
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E63D3BE3CBA9DB11BA4918425C18C680E021EFCA
+magnet:?xt=urn:btih:957FB26810A58F1DA20D1A62D2515FC8F53C0B2B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -476,32 +270,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515554   (656013) от 26.06.2012
+###  Публикация: 514504   (658241) от 24.06.2012
 
-Arnej - Unreleased (2012) [MP3|320 кб/с]<Progressive House / Trance>
+VA - The Spanish Guitar (2002) 2CD [FLAC|Lossless]<Classical Guitar>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656013.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658241.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Arnej - Unreleased (2012)
-
-Год: 2012
-Жанр: Progressive House / Trance
-Продолжительность:01:44:47Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта:CBRТрек лист:
- 01. Arnej - Intro (02:16)(   Читать дальше...   )
+01. Tarrega - Recuerdos de la Alhambra [04:19]
+02. Sor - Theme & Variations, Op.11 [06:11]
+03. Granados - Danze Espanola No.1 [03:08]
+04. Ruiz-Pipo - 3 Estancias I [01:59]
+05. Ruiz-Pipo - 3 Estancias II [01:59]
+06. Ruiz-Pipo - 3 Estancias III [02:11]
+07. Jose - Sonata: Allegro Moderato [05:59]
+08. Rodrigo - Concierto de Aranjuez - Adagio [10:34]
+09. Castelnuovo-Tedesco - Escarraman: I - Gallarda [03:49]
+10. Castelnuovo-Tedesco - Escarraman: II - El Canario [03:30](   Читать дальше...   )2002Жанр: Classical GuitarФормат: 2 CDПродолжительность: 01:09:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2613DFF6B5FCCD35C7321672A25C012CE725CB30
+magnet:?xt=urn:btih:A6A0BB1850833FA4C4318FB4D124F0FA6B28F209
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -509,25 +305,62 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515593   (656011) от 26.06.2012
+###  Публикация: 514731   (658240) от 24.06.2012
 
-[Wallpapers] Comic Book Wallpapers (26.06.12)
+VA - Billboard Hot 100 (23.06.2012) [MP3|320 кб/с]<House, Club, Funky, Dance, Vocal>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eminem Ft. Rihanna - Love The Way You Lie [04:23]
+ 02. Taio Cruz - Dynamite [03:24]
+ 03. Taylor Swift - Mine [03:51]
+ 04. Katy Perry Ft. Snoop Dogg - California Gurls [03:56]
+ 05. Enrique Iglesias Ft. Pitbull - I Like It [04:03]
+ 06. B.o.B. Ft. Hayley Williams & Eminem - Airplanes [05:17]
+ 07. Mike Posner - Cooler Than Me [03:34]
+ 08. Usher Ft. Pitbull - DJ Got Us Fallin' In Love [03:41]
+ 09. Katy Perry - Teenage Dream [03:47]
+ 10. Jason Derulo - Ridin' Solo [03:36](   Читать дальше...   )Жанр: House, Club, Funky, Dance, VocalПродолжительность: 06:31:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:221984B34E4EBBD78AE30C2E6C4CB48745315810
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514822   (658239) от 24.06.2012
+
+Чистосердечное признание . Дай дорогу дураку (2012.06.24) SATRip
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Документалистики и TV
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656011.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658239.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Программа существует уже более 10 лет. Все это время в ней показывали только эксклюзивы — материалы, которые невозможно увидеть где-либо еще. Разнообразные темы и, конечно же, чистосердечные признания. Герои передачи доверяют зрителям самые сокровенные тайны. Корреспонденты и продюсеры программы — профессионалы, способные, оставаясь за кадром, заставить нас взглянуть на многие вещи и события под новым углом. Это документальная программа только о том, что действительно интересно. Здесь все реально, все эмоционально и обязательно актуально.В выпуске: Две беды — дураки и дороги.
+Что творят за рулем наши звезды и почему на дорогах все друг другу хамят?
+Блондинки против брюнеток, женщины против мужчин и пешеходы против водителей.Жанр: ДокументальныйПродолжительность: ~ 00:34:55
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A57256E8DA668980AE488F0E64C1D1E87041D523
+magnet:?xt=urn:btih:7ABF820750178B037F833E175F3E652D67F54DE6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -535,25 +368,60 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515502   (656010) от 26.06.2012
+###  Публикация: 513749   (658238) от 24.06.2012
 
-Безрукий / Armless (2010) SATRip
+VA - Asia Lounge Vol.2 (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Прочее (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658238.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Govinda - Dervish (6:03)
+2. Niyaz - Iman (3:32)
+3. Aaliyah Zulfiqar - Sublime In You (5:12)
+4. Bahramji Ft Mashti - My Life (5:19)
+5. Roman Bunka & Hammond Schneider - Ifra (4:47)
+6. Niyaz - Vafa (5:40)
+7. Danny Cudd - Timelessly Free (8:55)
+8. Govinda - Clear With Fantasy (Ft. Gaelle Richard) (3:07)
+9. Omar Faruk Tekbilek - Shashkin (5:07)
+10. Mystic Beats - Medit (8:52)2012Жанр: Downtempo, Lounge, ChilloutПродолжительность: 04:34:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:03F7A488A02B826FFDA49DABB79357F1B33E63BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 513802   (658237) от 24.06.2012
+
+VA - Irreversibility Vol. 1 (2012) [MP3|320 кб/с]<Abstract, Glitch, IDM, Dark Ambient, Downtempo, Experimental>
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656010.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658237.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В голове Джона полно странных идей. Он, например, собирается изменить свое тело радикальным образом, — избавиться от собственных рук, и всерьёз ищет врача, готового произвести ампутацию. У Джона есть жена, и ей приходится нелегко…Жанр: КомедияРежиссер: Хабиб АзарАктеры: Дэниэл Лондон, Джанель Молони, Мэтт Уолтон, Зои Листер Джонс, Лори Кеннеди, Кит Пауэлл, Энджел Синг, Эйвери Пирсон, Джеймс ЛампеПеревод: Профессиональный двухголосыйПродолжительность: 01:21:43
+Жанр: Abstract, Glitch, IDM, Dark Ambient, Downtempo, Experimental |Продолжительность: 02:20:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EF02BD2A61D7A6771B6A00C3191D81F51F84AF72
+magnet:?xt=urn:btih:88D8E10CAD9899CDA22899674A01FAB45447B9B8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -561,30 +429,56 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515603   (656009) от 26.06.2012
+###  Публикация: 514737   (658235) от 24.06.2012
 
-Mel Torme & Cleo Laine - Nothing Without You (1992) [FLAC|Lossless]<Jazz>
+Манфред Кох-Костерзитц | 400 советов любителю собак [1991] [DJVU]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Разное (категория книг)
+>>нет
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_656009.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I'm Nothing Without You (Coleman, Zippel) [03:04]
-02. I Thought About You (Mercer, VanHeusen) [03:51]
-03. Where or When (Hart, Rodgers) [05:09]
-04. I Wish I Were in Love Again (Hart, Rodgers) [03:11]
-05. Girl Talk (Hefti) [05:09]
-06. After You've Gone (Creamer, Layton) [04:44]
-07. Brazil/Bahia (Barroso, Russell) [04:19]
-08. Birdsong (Sambalaya) (Dankworth) [02:53]
-09. Isn't It a Pity? (Gershwin, Gershwin) [04:04]
-10. Love You Madly (Ellington) [03:34](   Читать дальше...   )Жанр: JazzФормат: *.flacПродолжительность: 00:55:23
+Книга немецкого автора содержит 400 полезных советов тем, кто имеет собаку. Лаконично и убедительно в ней рассказывается о том, как ухаживать за четвероногим другом. Книга дает ответ почти на любой вопрос, интересующий любителя собак. Многочисленные остроумные рисунки делают книгу особенно привлекательной. Перевод выполнен по 9-му изданию (1980 г.). Книга рассчитана (   Читать дальше...   )Жанр: Практическое руководствоФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:209EAA3D60AC0F2BBCBD32A6C2D163564289E6F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514726   (658230) от 24.06.2012
+
+VA - Will Holland Presents Enhanced Best Of 2011 The Year Mix (2011) [FLAC|Lossless]<Trance, Progressive Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_658230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Will Holland feat. Jeza - Start Again (Original Intro Mix) (8:26)
+02. Ad Brown feat. Kerry Leva - Memorial (You Were Loved) (Maor Levi Club Mix) (8:37)
+03. A.M.R. - Sand Dunes (Estiva Remix) (8:12)
+04. Tritonal feat. Cristina Soto - Still With Me (Club Mix) (7:56)
+05. Temple One - Zebra (Nuera Remix) (7:49)
+06. Jan Martin feat. Hysteria! - Save Me Now (Beat Service Proglifting Remix) (8:32)
+07. Tritonal feat. Cristina Soto - Lifted (Mat Zo Remix) (7:51)
+08. Tritonal feat. Meredith Call - Broken Down (Shogun Remix) (7:54)
+09. Norin & Rad Vs. Recurve - The Gift (Original Mix) (8:01)
+10. Arty feat. Tania Zygar - The Wall (Arty Remode Mix) (6:16)(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 06:49:31
 
 ## Скачать торент
 ```bash
@@ -596,25 +490,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 514734   (656007) от 26.06.2012
+###  Публикация: 514697   (658229) от 24.06.2012
 
-[EN] Бродяги / Bindlestiffs (2012) HDRip
+Pride & Prejudice: Hidden Anthologies (P) [En] 2012
+
+>>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Игра создана по мотивам книги известной писательницы Джейн Остин "Гордость и предубеждение". Этот роман выдержал испытание временем, но на этот раз мы сможем не только прочитать, но и поучаствовать в создании моментов, которые вдохновленно описывала Джейн. Игра воплощена в прекраснейшем живописном стиле со множеством красивых сцен.(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EACABF663D3083256BAE46972EF2E376A430C833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 514849   (658228) от 24.06.2012
+
+Лариса Романовская |  Московские Сторожевые [2012] [FB2][TXT][JAVA (jar+jad)]
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Книг и обучающих материалов
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656007.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658228.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Три студента Андрей, Люк и Джон отстранены от занятий в школе на одну неделю за нанесение граффити на стенах ванной комнаты в знак протеста против запрета в школе произведения "Над пропастью во ржи". Имея массу свободного времени подростки решили весело провести время. Это значит совершить путешествие, остановиться в комнате мотеля, а там наркотики, женщины...Жанр: КомедияРежиссер: Эндрю ЭдисонАктеры: Джон Карна, Люк Лофтин, Эндрю Эдисон, Уилл Фордайсе, Морган АлександрПеревод: ОтсутствуетПродолжительность: 01:19:22
+Быт простой столичной ведьмы — штука веселая, но довольно опасная. Только соберешься омолодиться и начать новую жизнь, как вокруг немедленно начинают происходить всякие загадочные и не всегда приятные вещи. То замуж приходится срочно выходить, то сопровождать труп коллеги, которому требуется как можно скорее воскреснуть. Ну и как можно нормально работать в такой обстановке?! Однако главной героине этой книги, Лене Ириновне Субботиной, оказавшейся в самом эпицентре вышеупомянутых событий, к нестандартным жизненным раскладам не привыкать. Недаром она уже почти сто лет работает в должности московской сторожевой ведьмы…Формат: FB2,TXT,JAVA (jar+jad).
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:61A5DF654BFA51F2BA63FB2F2DDEC3D881D5E255
+magnet:?xt=urn:btih:A81B29EF5E89F5E578A6F369C4FD637ECBD5CE21
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -622,34 +542,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 515747   (656006) от 26.06.2012
+###  Публикация: 1139889   (658227) от 04.06.2017
 
-VA - Жаркая летняя дискотека (2012) [MP3|256 кб/с]<Pop>
+В. С. Выгодский | Экономическое обоснование теории научного коммунизма (1975) [DJVU, PDF]
 
->>Неофициальные сборники
->>Pop (сборники)
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_656006.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658227.jpg" />
 </div>
 
 
 ###  Подробнее
 
-1. АЖУР - Город (Remix) (3:05)
-2. Пропаганда & MC Джимми - Хабиби (3:06)
-3. Ани Лорак - Обними Меня (3:20)
-4. Амина - Дни-Недели (DJ Nariman Mix) (3:50)
-5. Aslan Feat. Misty - Знаю, Знаю (3:28)
-6. Потап И Настя Каменских - Не Хватило Воздуха (3:26)
-7. Бьянка - Весна-Лето 3 (3:13)
-8. Инфинити - Где Ты (Alex Menco 2012 Remix) (5:27)
-9. Афродита - Освободи Свой Телефон (3:37)
-10. Serebro - Давай Держаться За Руки (4:13)Жанр: PopПродолжительность: 06:07:49
+Доктор экономических наук В. С. Выгодский многие годы занимался подготовкой к публикации черновых экономических рукописей К. Маркса, детально изучал историю создания «Капитала». Это дало возможность автору книги провести исследование экономического обоснования Марксом теории научного коммунизма.
+
+Главное внимание в монографии уделяется анализу положения и борьбы (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU, PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:65727871A4A451AAEB026FC332BE75192B49CEEA
+magnet:?xt=urn:btih:24C5B114E9DBEFFF477234FA2782E2EF670C37EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -657,28 +570,54 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140468   (655985) от 06.06.2017
+###  Публикация: 1139875   (658226) от 04.06.2017
 
-Mike Cuozzo - Mighty Mike (1955) 1993, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
+Л. Ф. Ильичев | О произведении Ф. Энгельса «Анти-Дюринг» (1952) [DJVU, PDF]
+
+>>Научная и техническая литература
+>>Гуманитарные науки и искусство
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Марксизм оказал на всемирную историю такое всестороннее и могучее влияние, какого не оказывала и не могла оказать ни одна другая система общественных взглядов. Марксизм ознаменовал революционный переворот в научном понимании явлений природы и общества.  С тех пор — более ста лет назад, — как Маркс и Энгельс обосновали свое учение, революционное движение пролетариев (   Читать дальше...   )Жанр: История, политология, экономика, философияФормат: DJVU, PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:720B4397F0335E74E0D49EFBBBD440F1B3BB3F8A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1140006   (658225) от 04.06.2017
+
+The Robbie McIntosh Band - Emotional Bends (2000) [APE|Lossless|image + .cue] <Blues Rock>
 
 >>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655985.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658225.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. There Will Never Be Another You [03:57]
-02. What Is This Thing Called Love [04:48]
-03. Nancy [04:54]
-04. Walk Up [05:12](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 00:34:38
+01. Scarecrow  (04:45) 
+02. Joe And Me  (03:47) 
+03. Hang Me On The Line  (06:12) 
+04. Emotional Bends  (03:54) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D44C5178D2675DD9912CB0DFA55A5DC588751D55
+magnet:?xt=urn:btih:FDDA9359D8CCB704E418E9A70F998FFEA9B9B666
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -686,54 +625,143 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1140472   (655984) от 06.06.2017
+###  Публикация: 1139896   (658224) от 04.06.2017
 
-Don Friedman Quartet - Dreams And Explorations (1964) 1998, Original Jazz Classics [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655984.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Episodes [05:36]
-02. Exploration [06:26]
-03. Park Row [05:41]
-04. Blizzard [05:30](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:42:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:294948449E6F9D8E0BA5BE1897B7469A8BA6A49E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1539958   (655983) от 27.03.2022
-
-AIMP 5.02 build 2369 RePack (& Portable) by elchupacabra [Multi/Ru]
+Spark - Dichotomy (2010) [FLAC|Lossless|Web-DL|tracks] <Abstract Hip-Hop, Electronic>
 
 >>Архив торрентов
->>Архив Программ
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_655983.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658224.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский и другие
+01. The Fat Caps (1:01)
+02. Robot Power Moves (3:51)
+03. Misshapen Time Travel (3:03)
+04. Hypnotic Ghost Loop (6:50)(   Читать дальше...   )Жанр: Abstract Hip-Hop, ElectronicПродолжительность: 01:16:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5E25FF840379625862EC0411D7DE25B5FF8D734B
+magnet:?xt=urn:btih:898C5C00415FA83FD38B94229220801B1A3DE1B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139937   (658223) от 04.06.2017
+
+А. М. Некрич | Политика английского империализма в Европе [октябрь 1938 - сентябрь 1939] (1955) [DJVU]
+
+>>Научная и техническая литература
+>>Историческая литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Английская политика в Европе накануне второй мировой войны — такова тема книги. Ее хронологические рамки ограничены двумя событиями, которым суждено надолго остаться в памяти человечества: мюнхенским сговором империалистических государств 30 сентября 1938 г. и нападением фашистской Германии на Польшу 1 сентября 1939 г.
+
+Рассматривая эту работу как исследование лишь (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D0EC81C12B1F72B705B4E8597C5B001823268F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139646   (658222) от 04.06.2017
+
+The Bullets - Somethin` Real Good! (2017) [MP3|320 Kbps] <Rockabilly>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Put a spell on me (02:25)
+02. Do what I did (01:57)
+03. Somethin' real good (02:48)
+04. Don't regret me (02:43)(   Читать дальше...   )Жанр: RockabillyПродолжительность: 00:38:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:14CC1AE42393C5981896982BBAF6A588544E00EC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139902   (658221) от 04.06.2017
+
+Spark - Ramble (2012) EP [FLAC|Lossless|Web-DL|tracks] <Abstract Hip-Hop, Electronic>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658221.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Glitch (1:46)
+02. Nightmares On Canvas (3:20)
+03. Saudade (In Memory of...) (4:24)
+04. Doubt (1:16)(   Читать дальше...   )Жанр: Abstract Hip-Hop, ElectronicПродолжительность: 00:35:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:263EEDF3469EADB35AD60625707D725FD18F3978
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1139998   (658220) от 04.06.2017
+
+Sandi Thom - Merchants And Thieves (2010) [FLAC|Lossless|tracks + .cue] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_658220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Maggie McCall  (03:47) 
+02. Runaway Train  (04:25) 
+03. Gold Dust  (03:48) 
+04. Let It Stay  (04:35) (   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:45:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:130DCA0343E0BC94D885A99C25870E90019AF7FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

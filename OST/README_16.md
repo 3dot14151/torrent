@@ -1,3 +1,58 @@
+###  Публикация: 1323509   (427335) от 08.09.2019
+
+VA - Scream Collection 1-4 / Крик 1-4 (1996-2011) [MP3|320 Kbps] <Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_427335.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: SoundtrackПродолжительность: 03:07:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E32617DDEBDCE72C7AFBFD0C7C54C8DFBF35AFF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1064325   (426080) от 20.10.2016
+
+VA - Gears of War (Collection Original Soundtrack) (2007-2016) [MP3|320 кб/с]<Soundtrack, Score>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_426080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gears of War (04:31)
+02. 14 Years After E-Day (02:55)
+03. Jacinto Prison (02:50)
+04. Attack of the Drones (02:08)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 05:28:09 •
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:05B2B883710722466940001F5D6F9A3C0E780C88
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1250600   (424608) от 28.09.2018
 
 Henry Jackman - Хищник / The Predator (2018) [MP3|320 Kbps] <Score>
@@ -700,64 +755,6 @@ Various Artists - Pretty Woman (1990) [MP3|320 Kbps] <Soundtrack>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C210D2B00847842A8999B9F28F9A38AFCCDEA02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169632   (401596) от 29.09.2017
-
-Rolfe Kent - Kate & Leopold (2001) [MP3|320 Kbps] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401596.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Clock in New York
-02 - I Want Him Resplendent
-03 - Leopold Chases Stuart to Brooklyn
-04 - That Was Your Best_(   Читать дальше...   )Жанр: ScoreПродолжительность: 00:42:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:034EAA79C1BAD3B3BF50B1ACFE40A180D1EE5738
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1169619   (401554) от 29.09.2017
-
-Various Artists - Lock, Stock & Two Smoking Barrels (Expanded) (1999) [MP3|320 Kbps] <Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401554.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Ocean Colour Scene - Hundred Mile High City
-02 - Tom, Nick & Ed - 'It's a Deal, It's a Steal'
-03 - James Brown - The Boss
-04 - Skanga - Truely, Madly, Deeply(   Читать дальше...   )Жанр: SoundtrackПродолжительность: 01:03:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A5D69D0AEC8478570FE3D98138817750088CA7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

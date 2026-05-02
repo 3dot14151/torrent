@@ -1,3 +1,350 @@
+###  Публикация: 1187946   (275640) от 01.12.2017
+
+The Rolling Stones - On Air (2017) Deluxe Edition [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275640.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Come On (Saturday Club, 1963) 2:03
+02.  (I Can't Get No) Satisfaction (Saturday Club, 1965) 3:47
+03.  Roll Over Beethoven (Saturday Club, 1963) 2:19
+04.  The Spider And The Fly (Yeah Yeah, 1965) 3:14(   Читать дальше...   )Жанр: RockПродолжительность: 01:24:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:529654531F5353A6C494AE3B0B028955AA17F210
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 425676   (275288) от 21.12.2011
+
+Rush - Sectors (1974-1989) 15CDs Box Set, remastered /2011, Anthem/ [FLAC|Lossless]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_275288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro (0:53)
+02. The Big Money (5:58)
+03. Subdivisions (5:22)
+04. Marathon (6:39)(   Читать дальше...   )Жанр: Progressive Rock / Hard RockПродолжительность: 01:14:18
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083204   (274841) от 15.12.2016
+
+Danny B. Harvey & Mysti Moon - Hell Cat Stomp (2014) [FLAC|Lossless|image + .cue] <Rockabilly, Jump Blues>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274841.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (This Train Is Going) Straight To Hell (3:32)
+02. Black Betty (3:13)
+03. Shake It On Down (3:35)
+04. When The Levee Breaks (4:10)(   Читать дальше...   )Жанр: Rockabilly, Jump BluesПродолжительность: 00:43:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB6D741ABE4AA40CFC1AC03803EAF1C7AA15AA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188531   (274728) от 02.12.2017
+
+Graham Gouldman - Play Nicely And Share (2017) E.P. [FLAC|Lossless|image + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274728.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если имя Graham Gouldman вам ничего не говорит, значит вам никогда не нравились композиции 10сс, потому как самыми мелодичными своими вещами они обязаны именно ему. К сожалению сольная его карьера очень небольшая, а уж на трекере он почти не представлен. Отреставрированный мной специально по этому случаю диск сможете найти по ссылке внизу. Ну и я уверен, что если (   Читать дальше...   )01. Let's Get Lost  (3:18)
+02. Come To Mine  (3:24)
+03. Do You Wanna' Go  (3:10)
+04. Rave On  (3:22)(   Читать дальше...   )Релиз состоялся: 22 сентября 2017 годаЖанр: RockПродолжительность: 00:20:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3EF3D5F649E5412C84B33099A056FF50497948E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1188193   (274511) от 02.12.2017
+
+U2 - Songs Of Experience (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274511.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Is All We Have Left 02:41
+02. Lights Of Home 04:16
+03. You're The Best Thing About Me 03:45
+04. Get Out Of Your Own Way 03:58(   Читать дальше...   )Жанр: Pop RockПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E3EE25134AE4DC86F1E42B6AC98ED672F913052
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 545518   (274450) от 02.12.2017
+
+Graham Gouldman - Love And Work (2012) [FLAC|Lossless]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_274450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Грэм Кит Гулдман (родился 10 мая 1946) — английский композитор и музыкант, который является давним членом британской группы 10cc. В 60-х годах он написал целую серию хитов для британских команд вроде Yardbirds, Hollies, Herman's Hermits. В 70-х был ключевой фигурой в составе прекрасных арт-поп-рокеров 10сс. В 80-х создал яркий нововолновый проект Wax. В 90-х возрождал (   Читать дальше...   )01. The Halls Of Rock 'n' Roll - 3:20
+02. Daylight - 3:58
+03. Ariella - 3:54
+04. Then It’s Gone - 2:50(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DFCF5CD14FB1D1CF1588772DCA8ADEB6645B112C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 580754   (273950) от 28.11.2018
+
+The Beatles - Red & Blue Albums (1962-1970) Japanese Edition, Remastered, 2010 [FLAC|Lossless|image + .cue] <beat, pop rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273950.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сборник представляет собой антологию лучших композиций The Beatles за период 1962-1970...
+
+Битлы принимали активное участие в подборке песен для обоих - как Красного, так и Синего альбомов, а также при разработке дизайна, подборе цветов и фотографий.Жанр: beat, pop rockПродолжительность: 02:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D0B2C0F8ED37F8B4D8CA47310CE84C3999E21846
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1337620   (273765) от 11.11.2019
+
+The Presidents of the United States of America - Kudos to You (2014) [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_273765.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Slow Slow Fly (3:26)
+02. Crappy Ghost (2:26)
+03. Good Morning Tycoon (2:30)
+04. Poor Little Me (2:40)(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C809B58EC747121AFBDFB5671451E0AB8755B000
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1083715   (272325) от 17.12.2016
+
+King Crimson - Teatro Toniola, Mestre Venice, Italy (1995) 2010 [FLAC|Lossless|tracks] <Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_272325.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Indiscipline (07:20)
+02. Improv Two Sticks (0118)
+03. Elephant Talk (06:15)
+04. Prism (02:31)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 01:46:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7C370E5C5E90B98DF7CC60F991BE83F4E3AB4BFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1084135   (271361) от 18.12.2016
+
+King Crimson - Teatro Carlo Felice, Genova, Italy (2003) 2006 [FLAC|Lossless|tracks] <Progressive rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271361.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Dangerous Curves (05:54)
+02 - Larks' Tongues In Aspic Pt IV (12:49)
+03 - The Power To Believe III (08:56)
+04 - Three Of A Perfect Pair (04:08)(   Читать дальше...   )Жанр: Progressive rockПродолжительность: 02:04:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CAF536149BE0DE273C42EEDD4C3BCCDD8921E938
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1265868   (271003) от 01.12.2018
+
+Neil Young - Songs for Judy (2018) Live album [FLAC|Lossless|WEB-DL|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_271003.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Songs for Judy (Intro) (3:25)
+02. Too Far Gone (3:15)
+03. No One Seems to Know (2:29)
+04. Heart of Gold (2:53)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AF9042EB52E5F95706468BAB05A7C031C9A93F74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1189551   (270352) от 06.12.2017
+
+Bob Seger - I Knew You When (2017) Deluxe Edition [FLAC|Lossless|tracks + .cue] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_270352.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gracile (02:48)
+02. Busload of Faith (04:32)
+03. The Highway (03:38)
+04. I Knew You When (03:53)(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8016EFEF6843D82BBE29309C9C60B9725FE025C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 388954   (270120) от 06.12.2017
 
 SuperHeavy - SuperHeavy (2011) Deluxe Edition [FLAC|Lossless|tracks + .cue]<Rock, Soul, Reggae>
@@ -398,354 +745,6 @@ Marc Bolan - Electronic Musik (2019) [FLAC|Lossless|WEB-DL|tracks] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:73C5383CFA94C3425C338AA3E777B0FF62F0C268
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1340662   (263611) от 24.11.2019
-
-Birtha - Birtha / Can't Stop The Madness (1997) [FLAC|Lossless|image + .cue] <Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Birtha
-01. Free Spirit (2:57)
-02. Fine Talkin' Man (6:00)
-03. Tuesday (3:26)(   Читать дальше...   )Жанр: Rock, Classic RockПродолжительность: 01:18:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6CD27B572C83474837E964FED53F0BD161A2F590
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192263   (263486) от 16.12.2017
-
-Taproban - Per Aspera Ad Astra (2017) [FLAC|Lossless|image + .cue] <Progressive Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263486.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Outside Nowhere (15:07)
-2. Fragments of Life (1:26)
-3. Il Difficile Equilibrio Tra Sorgenti d'Enegia (8:16)
-4. Ves Ml' TaHghach (4:48)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:50:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0C1A1ACFB710957E71AA0759A0A31713F2680F4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192110   (263447) от 16.12.2017
-
-Yes - Close To The Edge (1972) Reissue, Remastered, 1998, Atlantic [FLAC|Lossless|image + .cue] <Rock, Art Rock, Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263447.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Close to the Edge(18:41)
-1.I The Solid Time Of Change
-1.II Total Mass Retain
-1.III Get Up I Get Down(   Читать дальше...   )Жанр: Rock, Art Rock, Prog RockПродолжительность: 00:37:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1AE8A9F45BC04FA260B7B5F3DB0C6AC3F562148
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192168   (263394) от 16.12.2017
-
-Bryan Adams - Ultimate (2017) Compilation [FLAC|Lossless|tracks + .cue] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_263394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go Down Rockin' (2:59)
- 02. Can't Stop This Thing We Started (3:16)
- 03. Run To You (3:53)
- 04. Ultimate Love (3:32)(   Читать дальше...   )Жанр: RockПродолжительность: 01:19:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C754E893EEC50D686293E399E3A52F191E7D100E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192751   (262804) от 18.12.2017
-
-Spirit - Spirit (1968) remaster, 2017, Audio Fidelity [WavPack|Lossless|image + .cue] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262804.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fresh-Garbage (3:13)
-02. Uncle Jack (2:45)
-03. Mechanical World (5:17)
-04. Taurus (2:38)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 01:03:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0034EDCCE1FC89AC9418F5AF6D5103B066C277DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1192768   (262797) от 18.12.2017
-
-Spirit - The Family That Plays Together (1969) remaster, 2017, Audio Fidelity [WavPack|Lossless|image + .cue] <Psychedelic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262797.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I Got a Line on You (2:39)
-02. It Shall Be (3:00)
-03. Poor Richard (2:32)
-04. Silky Sam (3:45)(   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 00:56:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A22BECC53E994345E1D387E40E68792A265CC9F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341039   (262632) от 27.11.2019
-
-The Parlour Band ‎ - Is A Friend? (1972) [FLAC|Lossless|image + .cue] <Prog Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262632.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgotten Dreams (2:43)
-02. Pretty Haired Girl (2:51)
-03. Spring's Sweet Comfort (5:05)
-04. Early Morning Eyes (3:53)(   Читать дальше...   )Жанр: Rock, Prog RockПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:273A75209A3CC36B13EA3912E1A71F366126B815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1341041   (262629) от 27.11.2019
-
-The Pillbugs - Happy Birthday (2004) [FLAC|Lossless|image + .cue] <Rock, Psychedelic Pop>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_262629.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Birthday (4:04)
-02. Life As It Happens Pt 1 (0:32)
-03. The World's Most Harmless Villain (4:09)
-04. Your Taste Is Mellow (2:32)(   Читать дальше...   )Жанр: Rock, Psychedelic PopПродолжительность: 01:02:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:283CC0888804C2A133965DCCC8E765BF5006B7FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1193335   (262110) от 21.12.2017
-
-Alannah Myles - Alannah Myles (1989) [FLAC|Lossless|image + .cue] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_262110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Still Got This Thing (4:37)
- 02. Love Is (3:40)
- 03. Black Velvet (4:49)
- 04. Rock This Joint (4:02)(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FA29B54228795E67B61A16C2359D265D4C8C94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1839017   (261628) от 26.11.2025
-
-Queen - Queen On Fire (Live At The Bowl) (2004) 2 x CD, SHM-CD, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Classic Rock, Arena Rock, Pop Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_261628.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc1:
-01. Flash
-02. The Hero
-03. We Will Rock You(   Читать дальше...   )Жанр: Classic Rock, Arena Rock, Pop RockПродолжительность: 01:43:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A61147FD49926C66E56ECF444DCC3C54A49A731
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838759   (261299) от 24.11.2025
-
-Queen - Live Magic (1986) Japanese Edition, SHM-CD, Reissue, 2024, EMI, Limited Edition [FLAC|Lossless|image + .cue] <Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_261299.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. One Vision
-02. Tie Your Mother Down
-03. Seven Seas of Rhye
-04. A Kind of Magic (full live version)(   Читать дальше...   )Жанр: Rock, Arena RockПродолжительность: 00:49:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F73653D7218B28D5B13DCD83F639A4D3C88F665B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1838532   (260786) от 23.11.2025
-
-The Beatles - Anthology Collection (2025) 8CD Boxset [FLAC|Lossless|tracks + .cue] <rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_260786.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hey Bulldog (Take 4 – instrumental) (3:14)
- 02. Good Night (Take 10 with a guitar part from Take 5) (2:31)
- 03. While My Guitar Gently Weeps (Third Version – Take 27) (3:18)
- 04. (You're So Square) Baby I Don't Care (Studio jam) (0:43)(   Читать дальше...   )Жанр: rock |Продолжительность: 08:34:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:49D0FA3144560C63EBF90CF4C8853314E2218720
 ```
 
 https://mybot314.ru/tekegram_catalog/

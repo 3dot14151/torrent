@@ -1,3 +1,177 @@
+###  Публикация: 1744376   (46081) от 21.08.2024
+
+Errol Linton - Love Gone Cold (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46081.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Gone Cold (3:25)
+02. Shake 'Em Down (3:11)
+03. Kisses Sweet (3:38)
+04. Neck Bone Soup (2:22)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:596DB8758DAE907737ECFCE043708E29AF9B06E5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744145   (46080) от 21.08.2024
+
+Manatee Commune - Simultaneity (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Electronic>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46080.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Love Tone [00:02:24]
+02. Mosaic [00:05:08]
+03. Cast [00:04:38]
+04. Path [00:03:12](   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:39:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CD2B2361DB8D568F9E9744CE15412F45DC76E73
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744366   (46076) от 21.08.2024
+
+Rose Royce - Jump Street (1981) [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Disco, Funk, Soul>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46076.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Jump Street
+A2 Illusions
+A3 R.R. Express
+B1 Famous Last Words(   Читать дальше...   )Жанр: Disco, Funk, SoulПродолжительность: 00:40:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B4D775DAD19BCFE67295A9254C1554AFDBC690AD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744342   (46070) от 21.08.2024
+
+Ansamble «Vitamiin» - Ансамбль «Витамин II» (1984) [FLAC 2.0|192/24|image +.cue|Vinyl-Rip] <Electronic, Jazz, Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_46070.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Draama • Драма
+A2 Elukuunal • Свеча жизни
+A3 Uneta Oo • Бессонная ночь
+A4 Kutse Tantsule • Популярный танец(   Читать дальше...   )Жанр: Electronic, Jazz, PopПродолжительность: 00:36:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A0BE810D56ADA08238F37E9107503F8EC4F6CBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1744820   (45763) от 24.08.2024
+
+Pet Shop Boys - Feel (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <House, Techno, Synth-pop, Schlager, Parody>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Feel (radio edit) [00:03:31]
+02. Everybody will dance [00:04:34]
+03. Schlager-Hitparade (Deutsche Demo) [00:03:08]
+04. Loneliness (Floorplan remix) [00:06:40](   Читать дальше...   )Жанр: House, Techno, Synth-pop, Schlager, ParodyПродолжительность: 00:23:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:96A22C8DC46D0BE51AA32B393D87C62D2E92C17A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1745743   (45483) от 27.08.2024
+
+Алиса - Гойда (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_45483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Шестой конвой
+02. Гoйда
+03. Меч
+04. Мастер лжи(   Читать дальше...   )Жанр: RockПродолжительность: 01:21:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:005563C489C03334C4522EB83AC76388AF9CF2BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1746085   (45248) от 29.08.2024
 
 Holy Tongue & Shackleton - The Tumbling Psychic Joy of Now (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Disco, Nu-Disco, House>
@@ -559,181 +733,6 @@ David Gilmour - Luck and Strange (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Roc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A4E20562FC005D08A741771231217EDF32AB8837
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1665537   (43972) от 10.09.2024
-
-Edge of Sanity - Studio Albums (12 releases) (1991-2024) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Death Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43972.jpg" />
-</div>
-
-
-###  Подробнее
-
-Edge of Sanity — шведская дэт-метал группа, которая, наряду с Opeth, считается первой, кто соединил такие стили экстремального металла, как дэт и блэк-метал, с прогрессивным роком. Группа была основана Дэном Свано в 1989 году и прекратила свое существование в 1999 году.
-Вокалист и композитор Дэн Свано в 2003 году записал альбом "Crimson II", который представлял (   Читать дальше...   )1991 - Nothing But Death Remains
-1992 - Unorthodox
-1993 - The Spectral Sorrows
-1994 - Purgatory AfterglowЖанр: Progressive Death MetalПродолжительность: 09:12:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AEA51837582D69D011DD82B2499482A76BE7DFDF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748647   (43900) от 11.09.2024
-
-¥$, Kanye West & Ty Dolla $ign - Vultures 1 (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hip-Hop, Hip House, Rap, Alternative R&B, R&B, Trap Soul>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43900.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Stars [1:56]
-02 - Keys To My Life [2:55]
-03 - Paid [3:16]
-04 - Talking [3:06](   Читать дальше...   )Жанр: Hip-Hop, Hip House, Rap, Alternative R&B, R&B, Trap SoulПродолжительность: 00:52:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4BDC6DE457456E6E0350888419F3F61578BDE6EF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748630   (43884) от 11.09.2024
-
-Tim Montana - Savage (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternative Rock, Post Grunge, Singer-Songwriter>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43884.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Devil You Know [3:00]
-02 - Savage [3:16]
-03 - Ashes [3:04]
-04 - Die Today [3:02](   Читать дальше...   )Жанр: Alternative Rock, Post Grunge, Singer-SongwriterПродолжительность: 00:33:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2774902881794B5E3BB1FB9123E2BE7D441958C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748837   (43881) от 11.09.2024
-
-The The - Ensoulment (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Alternatif, Inde>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43881.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cognitive Dissident [00:03:06]
-02. Some Days I Drink My Coffee by the Grave of William Blake [00:04:03]
-03. Zen & the Art of Dating [00:04:30]
-04. Kissing the Ring of Potus [00:03:33](   Читать дальше...   )Жанр: Alternatif, IndeПродолжительность: 00:45:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCAEA675D5BED21D256296C54C6D2180B93553D4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1748555   (43875) от 11.09.2024
-
-Lenny Kravitz - Human (Remixes) (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Pop, Dance>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43875.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Human (LF SYSTEM Remix Extended) [4:49]
-02 - Human (Paul Woolford Remix) [6:36]
-03 - Human (Paul Woolford Classic Club Mix) [5:35]
-04 - Human (Dave Audé Remix Extended) [5:57](   Читать дальше...   )Жанр: Electronic, Pop, DanceПродолжительность: 00:45:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:47892C4010472C475CED363C18AE4351143B94BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1549031   (43838) от 12.09.2024
-
-Threshold - Studio Albums (22 releases) (1993-2022) hand made [restored, declipped] [FLAC |16/44.1|tracks +.cue] <Progressive Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_43838.jpg" />
-</div>
-
-
-###  Подробнее
-
-Threshold — английская рок-группа, играющая в стиле «прогрессивный метал». Основана в 1988 году в городе Суррей (Англия). Одна из ведущих групп прогрессив-металла, которая существует уже более 30 лет.1993 - Wounded Land
-1994 - Psychedelicatessen
-1997 - Extinct Instinct
-1998 - CloneЖанр: Progressive MetalПродолжительность: 26:49:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0A73AB675DF523219182943257FC0061880EE38A
 ```
 
 https://mybot314.ru/tekegram_catalog/

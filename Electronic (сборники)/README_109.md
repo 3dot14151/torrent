@@ -1,3 +1,61 @@
+###  Публикация: 1231639   (604076) от 19.06.2018
+
+VA - Club Dance Ambience Vol.152 (2018) [MP3|256-320 Kbps] <Dance, Club House, Electro House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604076.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 4aKkyboy - Ула ла (Original Mix)
+002. 10Digits & Mellow Dee - Closer (feat. Mellow Dee) (Original Mix)
+003. Adassiya - La Vida (Original Mix)
+004. Addal - Lies (Original Mix) (Original Mix)(   Читать дальше...   )Жанр: Dance, Club House, Electro HouseПродолжительность: 07:41:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF717C96F9C5820BCC15EB2D0288871551DC65B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1297329   (604041) от 22.04.2019
+
+VA - Hits of My Soul Vol. 46 (2019) [MP3|320 кб/с]<DubStep, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_604041.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Apollo 440 - Ain't Talkin' 'Bout Dub (04:30)
+02. Flight Facilities - Crave You (Adventure Club Dubstep Remix) (03:58)
+03. Steve Aoki feat. Wynter Gordon - Ladi Dadi (04:46)
+04. T.I. feat. Christina Aguilera - Castle Walls (Fauxs Dub Step Remix) (05:15)(   Читать дальше...   )Жанр: DubStep, Electronic •Продолжительность: 03:35:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B27B0CB7938EC6F762946663FB94AFB10C09443
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1148397   (603935) от 06.07.2017
 
 VA - Inspirations Uplifting Trance Hymns (2017) [MP3|256-320 Kbps] <Uplifting, Vocal Trance>
@@ -690,64 +748,6 @@ VA - Beatport Top 100 House June (2017) [MP3|320 Kbps] <House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2AF567E0D5A2363A25C6793F8DA37B8E1DE8BA43
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 913460   (600995) от 30.06.2015
-
-Moby - Best275z (1992-2013) [MP3|320 кб/с]<Electronic, Downtempo, Ambient>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Go
-02. Electricity
-03. Bad Days.
-04. Sound(   Читать дальше...   )Жанр: Electronic, Downtempo, AmbientПродолжительность: 05:33:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:063A33547E6C383639A4E45A3C92558FFE102556
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1149464   (600976) от 10.07.2017
-
-VA - Record Super Chart #494 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_600976.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Tiesto & Sevenn - Boom  3:03
-02.  Yellow Claw & Moksi feat. Jonna Fraser - Open  3:31
-03.  C-BooL - Never Go Away  3:49
-04.  Scooter - Bora! Bora! Bora!  4:00(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 02:14:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DDD82CE593F13FE1B651AC65E097A0E060818824
 ```
 
 https://mybot314.ru/tekegram_catalog/

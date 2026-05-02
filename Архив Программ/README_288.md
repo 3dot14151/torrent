@@ -1,3 +1,29 @@
+###  Публикация: 1367807   (913815) от 17.03.2020
+
+GOM Player Plus 2.3.50.5314 RePack (& Portable) by Dodakaedr [Ru/En]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913815.jpg" />
+</div>
+
+
+###  Подробнее
+
+GOM Player Plus - мультимедийный плеер со множеством функций, обеспечивающих высокий уровень воспроизведения. С GOM Player Вы сможете воспроизводить даже повреждённые или не до конца загруженные / переписанные AVI файлы. GOM Player поддерживает все современные видео и аудио форматы, включая видео мобильных устройств и цифровых камер, а также воспроизведение интернет (   Читать дальше...   )Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4ABBFE2196E7DA9E340F9A84F4BA4BD2DEDB6C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1367912   (913803) от 17.03.2020
 
 Serif Affinity Designer 1.8.2.620 RePack by KpoJIuK [Multi/Ru]
@@ -646,34 +672,6 @@ CPUID HWMonitor Pro - расширенная версия утилиты, пре
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:46A6C386954ACE599CEA89F90557086EAECD2F86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1083690   (913472) от 27.01.2017
-
-JetBrains ReSharper Ultimate 2016.3.2 [En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913472.jpg" />
-</div>
-
-
-###  Подробнее
-
-ReSharper – это расширение для Microsoft Visual Studio, помогающее повысить эффективность разработки и автоматизировать большинство рутинных процедур.
-Поддерживая C#, VB.NET, XAML, XML, ASP.NET, ASP.NET MVC, JavaScript, HTML и CSS, ReSharper делает программирование в Microsoft Visual Studio намного более быстрым и эффективным.
-Используя ReSharper, вы сможете создавать (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:80A863BA0FD1EC8437D53DB924F28B0901E38513
 ```
 
 https://mybot314.ru/tekegram_catalog/

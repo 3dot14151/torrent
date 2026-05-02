@@ -1,3 +1,32 @@
+###  Публикация: 978916   (962154) от 24.01.2016
+
+Zucchero - Una Rosa Blanca (2013) (2 CD) [MP3|320 кб/с] <Pop, Rock, Folk, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_962154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ave Maria No Morro
+02. Diamante
+03. Pronto
+04. Bacco Perbacco(   Читать дальше...   )Жанр: Pop, Rock, Folk, BluesПродолжительность: 01:53:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E53F27C74FBCEA936AD35266E098988DCF907024
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 979295   (959784) от 26.01.2016
 
 George Thorogood & The Destroyers - 2120 South Michigan Ave. (2011) [MP3|320 кб/с] <Blues Rock, Rockabilly>
@@ -716,35 +745,6 @@ Gin Soaked Boy - Blues in Your Bones (2020) [MP3|320 Kbps] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6A0235D1E058735C32C60FCB7CA0104143D3AA4C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1095935   (922821) от 22.01.2017
-
-8 Ball Aitken - 8 Ball Aitken (2016) [MP3|320 Kbps] <Blues Rock, Country>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_922821.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. She's Going To Mexico, I'm Going To Jail (03:18)
-02. Seven Bucks An Hour In A Chicken Suit (04:03)
-03. Shut The Front Door (02:39)
-04. Girl In A Million (03:40)(   Читать дальше...   )Жанр: Blues Rock, CountryПродолжительность: 00:41:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:23CF1F05D7CA68B545675912CBFB38322AEF43C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

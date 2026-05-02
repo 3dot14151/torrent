@@ -1,3 +1,64 @@
+###  Публикация: 1179196   (351402) от 30.10.2017
+
+VA - Hits Cocktail Vol.14 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351402.jpg" />
+</div>
+
+
+###  Подробнее
+
+001.  Dmitrii G feat. Misha Klein - Rainbow Girl 5:09
+002.  Sick Individuals feat. Greyson Chance - Walk Away 3:18
+003.  Burak Yeter - Echo (Rocket Fun Remix) (Original Mix) 3:45
+004.  Teknova - Spaceships (Original Mix) 3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5DF99A53AC4E0B5522C89FF8AB2A43E0D647C003
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 579264   (350998) от 22.11.2012
+
+VA - Trancern 38.3: Official Compilation (November 2012) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350998.jpg" />
+</div>
+
+
+###  Подробнее
+
+VA - Trancern 38.3: Official Compilation (November 2012) (2012)
+Год: 2012
+Жанр: Trance, Vocal Trance, Uplifting Trance
+Продолжительность: 03:01:39Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист:001. Beat Service feat. Gemma Pavlovic - Masquerade (Original Mix)
+002. Chicane - Going Deep (Club Mix)(   Читать дальше...   )
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12978500C9C7609A20426A99D3BFEDBD8CA53AD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 579259   (350870) от 22.11.2012
 
 VA - Trance. Vocal Fascination 37 (2012) [MP3|320 кб/с]<Uplifting Trance, Vocal Trance>
@@ -709,64 +770,6 @@ VA - DeepEmotions - Car Dubstep Vol. 6 (2011) [MP3|320 кб/с]<Dubstep>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8090D3F7220B7C93465D90109DBFCCA38A82A67C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1073155   (347946) от 15.11.2016
-
-VA - Desire To Live: Soulful Mix (2016) [MP3|192~320 Kbps] <Downtempo, Chillout, Lyric>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347946.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Al L Bo - Around The World (Laszlo Nikulin Remix) 4:53
-002. Delerium - Ghost Requiem (Original Mix) 5:45
-003. Soul Bossa Trio - Butterfly (Afro Mystik Remix) 9:30
-004. Jinco - Clocktower (Feat. Mia Vaile) 3:53(   Читать дальше...   )Жанр: Downtempo, Chillout, LyricПродолжительность: 09:43:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4743296A089306A6410E65957E660F54302ACB83
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1577816   (347927) от 22.09.2022
-
-VA - HarDD NRG OverDoZZe 10 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance, Hardstyle, Breaks>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_347927.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Crystal Method - Keep Hope Alive (Trip Hope Mix) (CITY OF ANGELS,1995)
-02. Under This - Battlefield (Original Mix) (iBREAKS,2014)
-03. Under This - Let Yourself Go (Original Mix) (iBREAKS,2014)
-04. Arc In The Sky - Kissed (Narthex Remix) (DISCOVER DARK,2005)(   Читать дальше...   )Жанр: Trance, Hard Trance, Hardstyle, BreaksПродолжительность: 04:00:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E69D6D78072C603602BCAC625E640C279F000F85
 ```
 
 https://mybot314.ru/tekegram_catalog/

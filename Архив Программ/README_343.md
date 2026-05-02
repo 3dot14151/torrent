@@ -1,3 +1,29 @@
+###  Публикация: 996821   (877089) от 15.03.2016
+
+Aiseesoft PDF Converter Ultimate 3.2.62 RePack (& Portable) by TryRooM [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_877089.jpg" />
+</div>
+
+
+###  Подробнее
+
+Aiseesoft PDF Converter Ultimate - это мощная программа, которая поможет вам конвертировать PDF файлы в Word, Excel, текстовые файлы, изображения (JPEG, PNG, GIF, BMP, PCX, TGA, TIFF), в формат электронных книг (ePub) и формат HTML. Программа поддерживает режимы пакетного и частичного преобразования, имеет приятный и понятный интерфейс.Язык интерфейса: Русский, Английский, и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F2A22F5C823936840D4BEA66E5EACE0DBED923F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 997026   (877086) от 15.03.2016
 
 AnyMP4 Video Enhancement 1.0.16 RePack (& Portable) by TryRooM [Multi/Ru]
@@ -645,32 +671,6 @@ Aiseesoft Video Converter Ultimate - одна из лучших программ
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:48155565316D2EB494E98CD6F539738EFBD27740
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997159   (876658) от 15.03.2016
-
-Internet Download Manager 6.25 Build 14 RePack by KpoJIuK [Multi/Ru]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_876658.jpg" />
-</div>
-
-
-###  Подробнее
-
-Internet Download Manager (IDM) – удобный инструмент, позволяющий увеличить скорость загрузки, поддерживающий докачку и загрузку по расписанию. Согласно мнениям пользователей, Internet Download Manager – отличная программа, позволяющая загружать ваше любимое программное обеспечение, игры, cd, dvd и mp3-музыку, фильмы, бесплатные и условно бесплатные программы намного (   Читать дальше...   )Язык интерфейса: Русский | Английский | Украинский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A016789AF856EE68154F2125EFC6686D2037DED
 ```
 
 https://mybot314.ru/tekegram_catalog/

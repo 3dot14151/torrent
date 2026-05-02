@@ -1,3 +1,113 @@
+###  Публикация: 990120   (913664) от 24.02.2016
+
+Mlada Fronta - Outrun + Outrunner (2016) M-Tronic [FLAC|Lossless|WEB-DL|tracks|24Bit] <Electro, IDM>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913664.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Melt Into The Road (04:34)
+02. 200MPH (04:51)
+03. Speed For Life (04:48)
+04. Straight Ahead (05:08)(   Читать дальше...   )Жанр: Electro, IDMПродолжительность: 01:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5610869D1C7186520784CD9C931D46AE78DC6375
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 990152   (913628) от 24.02.2016
+
+Tut Tut Child - Come To The End: Then Stop (2016) [MP3|320 кб/с] <Melodic Dubstep, Drumstep, Breaks>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913628.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. On the Riverbank
+02. Fell Down (feat. Holly Drummond)
+03. Talking of Axes (feat. Jim Davies)
+04. Queen of Your Heart (feat. Augustus Ghost)(   Читать дальше...   )Жанр: Melodic Dubstep,ChillStep, Drumstep, Breaks, Future Bass, Electro HouseПродолжительность: 00:40:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBBD3168AEBEA00374DA25EDC7427BF53BD870D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490981   (913624) от 23.08.2021
+
+Охотники за привидениями / Ghostbusters (2016) BDRip [H.264/720p] [Extended Cut]
+
+>>Архив торрентов
+>>Архив Видео. Кино, Театра
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913624.jpg" />
+</div>
+
+
+###  Подробнее
+
+Тридцать лет назад охотники за привидениями спасли Нью-Йорк от нашествия призраков, но теперь городу вновь угрожает опасность. Былые герои не могут стать на его защиту, но находятся и другие отважные люди, всю свою жизнь посвятившие изучению паранормальных явлений. Эбби Йейтс объединяется с Эрин Гилберт, пожалуй лучшим специалистом в квантовой физике, и вместе они (   Читать дальше...   )Производство: США, Австралия / Columbia Pictures, Feigco Entertainment, Ghostcorps, LStar Capital, Pascal Pictures, The Montecito Picture Company, Village Roadshow PicturesЖанр: фантастика, фэнтези, боевик, комедияРежиссер: Пол ФигАктеры: Мелисса МакКарти, Кристен Уиг, Кейт МакКиннон, Лесли Джонс, Крис Хемсворт, Сесили Стронг, Энди Гарсиа, Нил Кэйси, Чарльз Дэнс, Майкл МакДональд, Мэтт Уолш, Майкл Кеннет Уильямс, Зак Вудс, Джон Милхайзер, Каран Сони, Бесс РоусПеревод: Дублированный (Лицензия Blu-ray CEE)Субтитры: русские (Forced, Full), английские (Full, SDH)Продолжительность: 02:13:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A32361F52F5B17534585CED51A46B999CF168A9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1097449   (913622) от 27.01.2017
+
+Lyrics Finder 1.4.2 Build 1701 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913622.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатная программа, которая поможет найти тексты песен. Достаточно добавить файлы и она начнет поиск по различным источникам и автоматически запишет тексты найденных песен. Программа работает в режиме добавления и никогда не перезаписывает существующие тексты песен.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5C8D27E62E5742BD4E282F91353B12BFFA65D883
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097590   (913613) от 27.01.2017
 
 Импровизация / Камеди Клаб / Комеди Клаб / Comedy Club (2017.01.27) SATRip (сезон 2, выпуск 3)
@@ -571,119 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1B1CFA0169B1E044869B81EEF4470D5A920FC4B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 289778   (913423) от 03.02.2011
-
-Легенды Осени / Legends Of The Fall (1994) HDRip
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913423.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Некоторые люди очень ясно слышат свой внутренний голос, и живут так, как он им подсказывает. Такие люди или сходят с ума, или становятся легендами". Так начинается история семьи Ладлоу — стремительный и романтический рассказ о трех братьях, их отце и молодой женщине, которая роковым образом изменяет жизнь каждого из них. С детства трое братьев неразлучны, однако они еще не подозревают, по какой тропе страстей и насилия поведет жизнь каждого из них. Сквозь ужасы Первой Мировой, сквозь потерянные годы, последовавшие за войной, через любовь и потери, предательство и надежду проведет их судьба, давая в замен понимание истинных ценностей, рост и мужание души.Жанр: Драма, Мелодрама, ВоенныйРежиссер: Эдвард Цвик / Edward ZwickАктеры: Брэд Питт, Энтони Хопкинс, Эйдан Куинн, Джулия Ормонд, Генри Томас, Карина Ломбард, Гордон ТутусисПеревод: Многоголосый закадровыйПродолжительность: 2:07:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C30AF1EADA972D9611CA55AABDB1E1CA26634195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367930   (913413) от 17.03.2020
-
-SoftMaker Office Professional 2018 rev S976.0313 RePack (& portable) by elchupacabra [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913413.jpg" />
-</div>
-
-
-###  Подробнее
-
-Программный офисный пакет Softmaker Office 2018, основная разработка компании Softmaker GmbH, является отличной заменой для Microsoft Office. Пакет офисных программ в том или ином составе необходим и в организациях и дома на персональном компьютере для улучшения, оптимизации, облегчения процессов документирования, контроля и учета, автоматизации офисной работы. Вы, (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8E72EB4F98A17732A17D818D9BC775AA13EF01E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1367639   (913405) от 17.03.2020
-
-Windows 10, Version 1909 with Update [18363.720] AIO 20in2 (x86-x64) by adguard (v20.03.12) [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Сборка сделана на основе оригинального образа от MSDN. Были интегрированы обновления по 12 марта 2020 года, а также интегрирован SmartFix 2.2.6 и Microsoft DaRT. В ней нет никаких косметических изменений и ничего не вырезано!Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22E74D5A1023BE72D93E4348E1B7954074E32C51
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 634045   (913381) от 24.03.2013
-
-Butterfly - Favorite Colors Episode 076 (23.03.2013) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Olan Mill -  Selva (Rurre) (Intro Original Mix)
-02. Artak -  Take Me To Heaven (Millaway Remix)
-03. Oliver V. -  Washington DC (Original Mix)
-04. Toby Hedges -  Sukha (Original Mix)
-05. Aaron Camz & Alana Aldea -  Lead To You (Original Dub Mix)
-06. Marc Simz feat. Emma Lock -  Angels (Original Mix)
-07. Dreamy -  Akira (Feri Remix)
-08. Ocean Boulevard -  Empty Nights (French Skies Remix)
-09. Akku -  Infinito (ASKII Cinematic Remix)
-10. Trilucid -  Departures (Yuri Kane Remix)Жанр: Progressive Trance, Melodic TranceПродолжительность: 00:59:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC5628D986E3E3BA64E49BB8967FF3FC55D92CA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

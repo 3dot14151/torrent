@@ -1,3 +1,119 @@
+###  Публикация: 1026448   (704156) от 15.06.2016
+
+Tom Killner - Hard Road (2015) [FLAC|Lossless|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_704156.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Coming Home    02:46
+02. Ain't No Rest for the Wicked    04:56
+03. Feeling Good    05:31
+04. Fake It    02:49(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:52:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA91D035E56C3968E107315F1EA161A747C46D40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1402125   (703944) от 13.08.2020
+
+Al Basile - B's Hot House (2019) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. So-Called Storyteller (04:49)
+02. Five Roads (03:51)
+03. Razor Wire (04:30)
+04. Try One (02:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:58:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DCE3DC4D1E050CC03EC0078E515EF18F0B62851
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026778   (702424) от 16.06.2016
+
+Thomas David Gibson - The Way She Change (2016) [FLAC|Lossless|tracks] <Blues-Rock, Soft Rock, Acoustic>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702424.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Way She Change    04:33
+02. House of Cards    02:36
+03. Soul Shine    03:23
+04. Let Me Sleep    03:16(   Читать дальше...   )Жанр: Blues-Rock, Soft Rock, AcousticПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEBF0985583F69DCFF393076FC29B4BD918E1076
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1026704   (702422) от 16.06.2016
+
+Albert King With Stevie Ray Vaughan - In Session (1999) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_702422.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Call It Stormy Monday
+02. "Old Times"
+03. Pride And Joy
+04. Ask Me No Questions(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C91C73AC9DF150750FD6FCD8E8CF27B7ED3D4327
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1132557   (701137) от 09.05.2017
 
 The Marvin Sewell Group - The Worker's Dance (2005) [FLAC|Lossless|tracks + .cue] <Blues>
@@ -635,122 +751,6 @@ Drew Sterchi - Left Here With The Blues (2012) [FLAC|Lossless]<Blues, Blues Rock
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 897273   (687750) от 12.05.2015
-
-Jeff Golub - The Vault (2015) [FLAC|Lossless]<Blues, Funk, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Funky Is As Funky Does
-02. One More Excuse to Play the Blues
-03. Open Up
-04. Gimmie Some(   Читать дальше...   )Жанр: Blues, Funk, SoulПродолжительность: 00:47:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B7491107E3F71044E909A0C219923003A2C6F6FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289135   (686636) от 16.03.2019
-
-VA - Memory Motel: Inside the World of Keith Richards (2019) [FLAC|Lossless|tracks + .cue] <Blues, Soul, Funk>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686636.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Funkadelic – Lunchmeataphobia (Think! It Ain't Illegal Yet) (04:12)
-2. Buckwheat Zydeco – The Wrong Side (04:28)
-3. Benny Spellman – Fortune Teller (02:11)
-4. Dion – The Wanderer (03:10)(   Читать дальше...   )Жанр: Blues, Soul, FunkПродолжительность: 00:45:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72E716C6897D904A6C1AFE53DC4EAB37923CA02E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1403872   (686580) от 22.08.2020
-
-Neal Black And The Healers - A Little Boom Boom Boom (2020) [FLAC|Lossless|image + .cue] <Modern Electric Blues, Texas Blues, Harmonica Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686580.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Follow Me There (05:31)
-02. Why Do People Act Like That (04:13)
-03. All For Business (04:55)
-04. Green Bean Swing (03:23)(   Читать дальше...   )Жанр: Modern Electric Blues, Texas Blues, Harmonica BluesПродолжительность: 00:56:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A83A4E21060F99E910F3767319ECF7EB97D91702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1289410   (686474) от 16.03.2019
-
-VA - I Wanna Sex You Up - R'n'B For Lovers (2018) [FLAC|Lossless|WEB-DL|tracks] <R&B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_686474.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Color Me Badd - I Wanna Sex You up (Single Version)
-02. Silk - Freak Me
-03. Keith Sweat - I'll Give All My Love to You (Single Version)
-04. En Vogue - Hooked On Your Love(   Читать дальше...   )Жанр: R&B, SoulПродолжительность: 01:52:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:474B7463C73957373F7BF237A0581548A1EBA0F7
 ```
 
 https://mybot314.ru/tekegram_catalog/

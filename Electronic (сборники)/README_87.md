@@ -1,3 +1,61 @@
+###  Публикация: 1133610   (691657) от 14.05.2017
+
+VA - Damned Thoughts: Drumm And Bass Mix (2017) [MP3|320 Kbps] <Drumm and Bass>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691657.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Concord Dawn - The Fuzz 5:14
+002. Curtis B - Residual Pixie Dust 4:02
+003. Dj Magic Mike - Eruption 5:33
+004. Dolphin - Snow Hill Massacre 5:13(   Читать дальше...   )Жанр: Drumm and BassПродолжительность: 04:35:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6216733B5D09D481B7A979173033E542940C90F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1133608   (691649) от 14.05.2017
+
+VA - Inner Harmony (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_691649.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Arms And Sleepers - Miami 3:38
+002. Amure - First Contact 6:40
+003. Alkemx - Time To Lounge 4:49
+004. Amateur Dance - Love System 7:16(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 07:50:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:20BF2D307ED70B0F740F787FA17DCD3464DEFC40
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1133949   (691553) от 14.05.2017
 
 VA - Cosmotronica Vol.1 [Compiled by Zebyte] (2017) [MP3|320 Kbps] <Dub House, Dub Techno>
@@ -687,64 +745,6 @@ VA - Just For Fun: Spring Deep House Party (2017) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA9DE5A027CCB861419B2F0E5CA169B379D97825
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1222175   (687491) от 28.04.2018
-
-VA - Ibiza Kickoff (2018) [MP3|320 Kbps] <House, Funky, Club House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687491.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. David Jay - Your Own Way (feat. Sarah Brickel)
-02. Danceheat - I'll Be by Your Side (Extended Mix)
-03. Loungeside - No Longer Used (Alternative Mix)
-04. Tiziara - Save Me (Extended Mix)(   Читать дальше...   )Жанр: House, Funky, Club HouseПродолжительность: 04:54:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DF281FE7A15E0C206460A325CD8BA419A70637B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1134563   (687451) от 16.05.2017
-
-VA - Under The Influence New Trance Music (2017) [MP3|320 Kbps] <Vocal, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_687451.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Delta - Back In My Life (DJ Osip Radio Edit)
-002. Jaren - Man On The Run
-003. Dave Pearce & Farius - Sundar (Original Mix)
-004. Illitheas - Last Forever (Original Mix)(   Читать дальше...   )Жанр: Vocal, Uplifting TranceПродолжительность: 08:18:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:455457A0F678282C0A857BC260B651676E3CA90D
 ```
 
 https://mybot314.ru/tekegram_catalog/

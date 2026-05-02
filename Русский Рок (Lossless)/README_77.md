@@ -1,3 +1,32 @@
+###  Публикация: 1770875   (31987) от 04.01.2025
+
+Vismut - 13 (2012) [FLAC|Lossless|image + .cue] <Metal, Progressive hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31987.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Прелюдия
+02. Просто такая судьба
+03. Модный приговор
+04. Немного о себе(   Читать дальше...   )Жанр: Metal, Progressive hardcoreПродолжительность: 00:50:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33CE0A8D6776CC9F651A9FAD5092777119B2E9C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1770885   (31981) от 04.01.2025
 
 Kaizen - Любим делать красиво (2011) [FLAC|Lossless|tracks] <Alternative>

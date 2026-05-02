@@ -1,3 +1,61 @@
+###  Публикация: 1504826   (810351) от 24.10.2021
+
+VA - Record Super Chart 23.10.2021 [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810351.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alok - It Don't Matter (Feat. Sofi Tukker, Inna) (2:53)
+02. Calvin Harris feat. Tom Grennan - By Your Side (3:09)
+03. Minelli - Rampampam (3:20)
+04. Tiesto & KAROL G - Don't Be Shy (2:20)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:36:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:079254DCF7C7A088A4A71611AFEDEEED9DBC015D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009547   (810173) от 21.04.2016
+
+VA - Beatport Trancce 100 April (2016) [MP3|320 кб/с] <Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810173.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 2nd Phase - Short Circuit (Original Mix) 07:23
+002. Above & Beyond - A.I. (OM) 06:29
+003. Airbase - Lachrymose (Original Mix) 06:59
+004. Alan Morris - Elation (Extended Mix) 07:04(   Читать дальше...   )Жанр: TranceПродолжительность: 11:09:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1577722C83E6D6ADE0489D680CACE69E04C16376
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1197947   (810103) от 10.01.2018
 
 VA - Best Chillout vol.35 (2018) [MP3|320 Kbps] <Chillout, Downtempo, Lounge>
@@ -687,64 +745,6 @@ VA - Best of Deep-House. Volume 2. Spectral Life [Compiled by Firstlast] (2017) 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D1D462429EA1A0A718005B31DC5C751B0DCCDED4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1384041   (805732) от 18.05.2020
-
-VA - Beatport Tech House: Sound Pack #81 (2020) [MP3|320 Kbps] <Tech, Deep House, Electro>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805732.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Subground - North Side
-002. Dave Allister - Panorama (Original Mix)
-003. Thomas Fehlmann - Triggerism
-004. Jack Liberto - Red Circle (Original Mix)(   Читать дальше...   )Жанр: Tech, Deep House, ElectroПродолжительность: 09:42:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A5D555723393D90A99A60E33E1B0928024F5F232
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119777   (805605) от 29.03.2017
-
-VA - Best of Chill House 2017. Volume 1. Leave The Past [Compiled by Firstlast] (2017) [MP3|320 Kbps] <Chill House, Deep-House, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805605.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lamliki - La Renaissance (4:51)
-02. Dr. Feelx - Deep Is Love (Alex Barattini Sunset Mix) (5:55)
-03. Maxim Buldakov - Sunset (6:28)
-04. Solanos - Infinite Fields (5:24)(   Читать дальше...   )Жанр: Chill House, Deep-House, LoungeПродолжительность: 04:46:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AD7CAD27CDC3B25C4A3E072773F8B372F58984E7
 ```
 
 https://mybot314.ru/tekegram_catalog/

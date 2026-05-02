@@ -1,3 +1,55 @@
+###  Публикация: 1560709   (518569) от 01.07.2022
+
+Microsoft Visual C++ 2015-2022 Redistributable 14.32.31332.0 [Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518569.jpg" />
+</div>
+
+
+###  Подробнее
+
+Распространяемый компонент Visual C++ устанавливают компоненты среды выполнения, необходимые для выполнения приложений C++, которые разработаны с помощью Visual Studio.Язык интерфейса: Русский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94F1CF77D4CC72E99E1F49985E5E59D3ACACFAC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 929566   (518499) от 20.08.2015
+
+Icecream Slideshow Maker 1.29 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518499.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бесплатная, простая и эффективная утилита для создания презентаций и слайдшоу. Позволяет оживить набор фотографий с помощью большого количества эффектов и наложения музыки.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FA5AB4AC417D4E90C0F0443DBFA2141558CE732
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 929567   (518498) от 20.08.2015
 
 Icecream Image Resizer 1.23 [Multi/Ru]
@@ -616,58 +668,6 @@ Network Password Recovery 1.34 Portable [Ru/En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:86D85CEC5E4C90D372C7EBB6027B8C62F60B9C5A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929558   (518200) от 20.08.2015
-
-Reg Organizer 7.16 Final RePack (& Portable) by KpoJIuK [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518200.jpg" />
-</div>
-
-
-###  Подробнее
-
-Reg Organizer® - это многофункциональная программа для комплексного обслуживания системного реестра операционных систем Micorosft Windows XP, Vista, 7 и 8. Позволяет проводить чистку реестра, его сжатие и дефрагментацию. Имеет мощный редактор системного реестра и расширенную функцию поиска и замены данных. С помощью утилиты Reg Organizer можно осуществлять предварительный (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D944D1105BEFDB6EE9407569EB2A27D89EF292DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 929461   (518196) от 20.08.2015
-
-Xilisoft Media Toolkit Deluxe 7.8.8.20150402 [Multi]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_518196.jpg" />
-</div>
-
-
-###  Подробнее
-
-Четырехкратно мощное и полезное мультимедийное программное обеспечение 14 программ в одной упаковке: Видео Converter Ultimate, Video Converter Smart, DVD Converter Ultimate, Blu-Ray, Video Converter, DVD Creator, Blu-Ray Creator, DVD Copy Express, аудио конвертер Pro, YouTube Video Converter, видео  редактор, Movie Maker, фотография Home DVD Maker, слайд-шоу маркет (   Читать дальше...   )Язык интерфейса: Английский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:353EF52D0BE1AC9F07F63F2848F1C298AA46F9CB
 ```
 
 https://mybot314.ru/tekegram_catalog/

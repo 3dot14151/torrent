@@ -1,3 +1,32 @@
+###  Публикация: 1623461   (1029238) от 02.04.2023
+
+Автоматические удовлетворители - Любимые песни мамы (2023) [FLAC|Lossless|WEB-DL|tracks] <Funeral Punk Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ерунда [00:02:38]
+02. Буржуи [00:03:14]
+03. Юнкера [00:04:37]
+04. Крюк [00:04:37](   Читать дальше...   )Жанр: Funeral Punk RockПродолжительность: 00:43:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DA99D534758B4B518C37AE8D88B7009A6282F8CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1450284   (1029011) от 26.02.2021
 
 Слот - Инстинкт выживания (2021) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
@@ -716,35 +745,6 @@ Lyrics by – В. Дюнин/ Music by – Ю. Антонов(   Читать д
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DFD21AFAE3591B1246A2699D4760482A16054F80
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1412282   (1020801) от 16.04.2021
-
-КерамикА - 5 EP / 2 Single (2011-2021) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1020801.jpg" />
-</div>
-
-
-###  Подробнее
-
-2011 - Zaprava (EP)
-2019 - Калейдоскоп любви (EP)
-2019 - Три в одном (EP)
-2020 - Люберцы (Single)Жанр: RockПродолжительность: 01:16:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:109236FB0B1795F68982628B6B150CF0AD6C01C5
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1411004   (429614) от 24.09.2020
+
+VA - National Pop Music (Vol.04) (2020) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429614.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Echt Tirol - I Woas Es No, Wie's Frueher War
+002. Howside - Venus Missing
+003. Dédé Saint Prix - Etiw
+004. DJ Mimi - Dance A Ou(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 07:43:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:468688CD1418CEB46760AD995B834E556D4C59B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 945959   (429284) от 12.10.2015
+
+Amanda Lear - Good Songs (2015) [MP3|160 кб/с]<Pop, Shanson>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429284.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Alligator (1977)
+002. Alphabet (1977)
+003. Blood and Honey (1977)
+004. Blue Tango (1977)(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 10:04:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09B1778EB3A33E4FC804987FB2B1B32A8D7987DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1411073   (429203) от 24.09.2020
+
+VA - Осень на Love Radio (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429203.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alok & Thrdl!fe - Hear Me Tonight (3:08)
+02. Ava Max - Who's Laughing Now (2:59)
+03. BTS - Dynamite (3:19)
+04. DaBro - Юность (3:39)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:01:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E4C824DF00B5AFE85677EABBBF2A4431038D12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 946210   (429176) от 12.10.2015
+
+Dalida - Good Songs (2015) [MP3|128 кб/с]<Pop, Shanson>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_429176.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. A chaque fois j'y crois
+002. A ma maniere
+003. Aba daba honey moon
+004. Alabama song(   Читать дальше...   )Жанр: Pop, ShansonПродолжительность: 12:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58875F8539292BA106FEA14689E871530E89A4BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 946152   (428954) от 12.10.2015
 
 C.C. Catch - Good Songs (2015) [MP3|320 кб/с]<Eurodisco, Pop>
@@ -630,122 +746,6 @@ VA - Горячий хитовый драйв. Сборник 3 (2016) [MP3|256 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E241EC4C0EEC670F3B0C54672D45ABA714923077
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1572542   (419137) от 28.08.2022
-
-Scott Bradlee's Postmodern Jukebox - Compilation (2022) [MP3|320 Kbps] <Pop, Jazz Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_419137.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young Dumb & Broke
-02. All of Me
-03. Far Away
-04. Straight Up(   Читать дальше...   )Жанр: Pop, Jazz PopПродолжительность: 07:16:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA2F71BD6D48CD6E5B50A9215B67FEFECF5D2452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1065786   (418578) от 23.10.2016
-
-VA - Твой голос. Русский сборник поп музыки (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418578.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Aisha - Сильно Сильно
-002.Alas Lito Feat. Vingilevskiy - Белица
-003.Alisher - Покемон
-004.Arti - Параллели(   Читать дальше...   )Жанр: PopПродолжительность: 06:05:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7D91AFFF0E227FAE3CAEBB38C882D00CE6DC9B79
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947653   (418263) от 17.10.2015
-
-Ruth Lorenzo - Planeta Azul (2015) [MP3|320 кб/с]<Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_418263.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Planeta Azul
-02. 99
-03. Echo
-04. Gigantes(   Читать дальше...   )Жанр: PopПродолжительность: 01:11:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:819D5AE4316649B189112FD88CB391E212645CEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 947371   (417972) от 17.10.2015
-
-Diana Ross - Good Songs (2015) [MP3|192 кб/с]<Pop, Disco, Soul, R&B>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_417972.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lovin Livin And Givin (Unedited T.G.I.F. Mix)
-02. Lovin Livin And Givin (Instrumental)
-03. Lovin Livin And Givin (1979)
-04. Lovin Livin And Givin (1978)(   Читать дальше...   )Жанр: Pop, Disco, Soul, R&BПродолжительность: 03:35:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:920F7233E3F2CF0294821E108E605AAF26EA5ADC
 ```
 
 https://mybot314.ru/tekegram_catalog/

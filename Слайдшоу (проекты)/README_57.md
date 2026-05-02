@@ -1,3 +1,29 @@
+###  Публикация: 922510   (566309) от 30.07.2015
+
+Проекты - VideoHive - Around the noise [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_566309.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания трейлера. Проект предназначен для редактирования в AE.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AE206AC7F04401F891C0E2EB55C821DC6377D0C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 922859   (566253) от 30.07.2015
 
 Проекты - VideoHive - The Good Time Memories [AEP]
@@ -647,32 +673,6 @@ Videohive - Photo Gallery Slideshow - 6347738 [AEP]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:61C9D86341A6E0995E197B3552F6E72DD0B073CD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 924291   (558876) от 03.08.2015
-
-Проекты - Motion Array - Square Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_558876.jpg" />
-</div>
-
-
-###  Подробнее
-
-Если вам нужно создать большое слайд-шоу с изображениями или видео этот шаблон для вас. Это действительно простой в использовании проект, просто добавьте ваши фотографии или видео, измените цвет и визуализации.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:201C0BE0C4CB1A3D46FC0E468350913F04BAD458
 ```
 
 https://mybot314.ru/tekegram_catalog/

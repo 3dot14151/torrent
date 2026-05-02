@@ -1,3 +1,61 @@
+###  Публикация: 1019561   (750180) от 23.05.2016
+
+VA - Spacesynth 4ever (mCITY Edition) (2016) [MP3|320 кб/с] <Electronic, Spacesynth>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750180.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. MindXpander - Sea Of Stars (Xpanderland Version)
+02. Mr.Ed Vink - E-Space
+03. Oblivion - Exclusion Area (Radioactivity Theme)
+04. P89 - Starfall(   Читать дальше...   )Жанр: Electronic, SpacesynthПродолжительность: 02:11:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C33413EAB9BF8794FAB92751FEAB2B08288F3767
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1396012   (750066) от 13.07.2020
+
+VA - Record Super Chart 644 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750066.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. twocolors - Lovefool (3:10)
+2. Topic feat. A7S - Breaking Me (2:46)
+3. Zivert feat. NILETTO - Fly 2 (3:25)
+4. Dynoro & Fumaratto - Me Provocas (2:27)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:37:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97328CE8338802DA5B3542898ACF1DF928577F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396300   (748680) от 14.07.2020
 
 VA - Soft Emotion: Background Music (2020) [MP3|320 Kbps] <Lounge, Downtempo, Background>
@@ -687,64 +745,6 @@ VA - DubStep Pro V.01 [Compiled by GvertO] (2018-2019) [MP3|320 Kbps] <DubStep, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C201479EDCB57E2944958D141A4B26847EE17CCD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216923   (746132) от 02.04.2018
-
-VA - The Voice Of Morpheus (2018) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746132.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Jamie Lancaster - Get Here
-002. Mephia - Sequoia Symposium (Original Mix)
-003. Solaroid - Awa's Dream
-004. John Dahlback - Walking With Shadows (Acoustic Version)(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 10:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:66E0F56EDD7EECDCC08687BB3B2FB38B852D26C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1216918   (746119) от 02.04.2018
-
-VA - Deep House Collection Vol.164 (2018) [MP3|320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746119.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alberto Costas  - Deep Melody (Sayko Kalahashi Remix)
-002. Alexey Union - Kalahari (Original Mix)
-003. Alexey Union - Melegim  (Original Mix)
-004. Amy Guess - Sorry  (Grotesque Remix)(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 15:21:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30DCA6D1A184B2DD9E039DD53EAD66D45C66468E
 ```
 
 https://mybot314.ru/tekegram_catalog/

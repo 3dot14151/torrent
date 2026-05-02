@@ -1,3 +1,245 @@
+###  Публикация: 477492   (98525) от 03.04.2012
+
+Sumatra PDF 2.0 Final + Portable [Мульти, есть русский]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98525.jpg" />
+</div>
+
+
+###  Подробнее
+
+Sumatra PDF — это программа для просмотра файлов в формате PDF с минималистическим интерфейсом и только самыми необходимыми функциями. Основным приоритетом и достоинством программы является простота и высокая скорость работы. Остается добавить, что помимо прочих достоинств Sumatra PDF еще и полностью бесплатен и распространяется, в том числе, и на основе открытых исходных кодов.Название программы: Sumatra PDFЯзык интерфейса: Мульти, есть русский
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477438   (98522) от 03.04.2012
+
+[Wallpapers] Easter  Desktop Wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98522.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Easter  Desktop Wallpapers 
+Название:  Easter  Desktop Wallpapers 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 2560х1600
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:910CD88D6CF66204D97D83B01D6C73CBC5A4770F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477327   (98520) от 03.04.2012
+
+[Wallpapers] Retro AVTO Collection
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98520.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Retro AVTO Collection 
+Название:  Full Retro AVTO Collection 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1200
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC55A726118716AA2C3E73A152EA068B8303990F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477342   (98515) от 03.04.2012
+
+[Wallpapers] Desktop Wallpapers Pack 35
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98515.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 35 
+Название:  Desktop Wallpapers Pack 35 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1024х768 - 5000х3000
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:399513C2F821A815CF4986B85512B2A01528AE61
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477411   (98514) от 03.04.2012
+
+[Wallpapers] Spring Desktop Wallpapers
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98514.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Spring Desktop Wallpapers 
+Название:  Spring Desktop Wallpapers 
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920х1080 - 4152х2757
+Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE4CF0A4716F41F60499AE4945CB4BC685E0502E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477812   (98510) от 03.04.2012
+
+Земля-Космос-Земля (1962) DVDRip
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98510.jpg" />
+</div>
+
+
+###  Подробнее
+
+О работе системы космовидения, о полетах космических кораблей типа "Восток", о летчиках-космонавтах СССР Ю.А.Гагарине, Г.С.Титове, А.Г.Николаеве, П.Р.Поповиче.Жанр: ДокументальныйРежиссер: М. ВолодарскийПродолжительность: 00:24:32
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477525   (98509) от 03.04.2012
+
+VA - Klubnye novinki Vol.61 from GvertO (2012) [MP3|320 кб/с]<Club, Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98509.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Adele - Set Fire To The Rain (The Perez Brothers Remix)
+02 Alexandra Burke feat. Erick Morillo - Elephant (Wideboys Club Mix)
+03 Alex M.O.R.P.H. feat. Sylvia Tousun vs. Gaia - An Angels Tuvan (Coleman Hamilton 'Stryker Memorial' Mashup)
+04 Armin Van Buuren - Orbion (Max Graham, Protoculture Remix)
+05 Betsie Larkin & Sied Van Riel - The Offering (Extended Mix)
+06 Betsie Larkin & Sied Van Riel - The Offering (Save The Robot Remix)
+07 Courtney Argue & J.Greene feat. Pitbull - Make It Rain (RLS & 2Frenchguys Extended Remix)
+08 Daddy's Groove & Little Nancy - It's Not Right, But It's Okay (Extended Mix)
+09 Damon Paul Feat Patricia Banks - Without You (Sven & Olav Mix)
+10 Deep Voices feat. Alexander K.G. Klaus - Because The Rain (Space RockerZ Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 5:43:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:321DD25D117258DA552BAFB6024932E2BE8CB588
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 477001   (98508) от 03.04.2012
+
+Distorted - Voices from Within (2008) [WavPack|Lossless]<Gothic Metal,Melodic Death,with Middle Eastern influences>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98508.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. One Last Breath 05:36
+02. What Remains 03:45
+03. Voices From Within 05:28
+04. Fading 03:49
+05. A Soft Whisper 04:14
+06. Reveal My Path 03:41
+07. Escaping the Mind-Grid 06:03
+08. Obscure 03:24
+09. Theom 01:22
+10. Consistent Duality 05:22(   Читать дальше...   )Жанр: Gothic Metal,Melodic Death,with Middle Eastern influencesПродолжительность: 00:52:53
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 477660   (98504) от 03.04.2012
 
 [Wallpapers] Computer Desktop Wallpapers Collection (04.04.12)
@@ -532,245 +774,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3680E452B1C780BC15482CD09D80838DD772E054
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476381   (98468) от 02.04.2012
-
-VA - Русские Новинки 9 (2012) [MP3|256 kbps]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98468.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 Елка - Знаки вопроса
-002 Глюкоза - Кошка
-003 Юрий Шатунов - Это лето
-004 Балаган Лимитед - Гуси-лебеди
-005 Валерия и Александр Буйнов - Сердце
-006 Григорий Лепс - Водопадом (new version)
-007 Наталья Подольская Интуиция
-008 Алексей Воробьев - За твою любовь (Hitretz and Sergei Karpov Remix)
-009 Юлия Савичева - Юлия
-010 Мистер Кредо и Олеся Слукина - Тебя я помню...(   Читать дальше...   )2012Жанр: PopПродолжительность: 05:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0715220438BE501A9675DFBBD13BABCF43FA4ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476310   (98464) от 02.04.2012
-
-Yes - Yesshows (1980) 2 CD Digitally Remastered [FLAC|Lossless]<Progressive rock, Symphonic rock, Art rock, Psychedelic rock>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98464.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc One 
-01. Parallels (7:07)
-02. Time And A Word (4:06)
-03. Going For The One (5:22)
-04. The Gates Of Delirium (22:41)Жанр: Progressive rock, Symphonic rock, Art rock, Psychedelic rockПродолжительность: 01:18:55
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475617   (98462) от 02.04.2012
-
-[Фото] Мисс России-2012
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98462.jpg" />
-</div>
-
-
-###  Подробнее
-
-Мисс Россия 2012 — конкурс красоты Мисс Россия, финал которого состоялся 3 марта 2012 года в концертном зале «Барвиха Luxury Village». В финале конкурса приняли участие 50 участниц из разных регионов России. В этом году конкурс отпраздновал 20-летний юбилей.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BF57AFB7E7EC11625279A48ED94D59FA3972C57
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476965   (98459) от 02.04.2012
-
-VA - Клубный АвтоЗвук Весна (2012) [MP3|256 kbps]<Club | Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98459.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Afrojack & R3hab - Prutataaa (Original Mix)
-02. Macromism - Groover (Original Mix)
-03. Agaric - Who Made Up The Rules (Josh Wink Remix)
-04. Shlomi Aber - Create Balance (Steve Lawler Remix)
-05. Maya Jane Coles - Little One (Original Mix)
-06. Deniz Koyu - Tung (Original Mix)
-07. Savino Martinez - Piano Is Not Over (Dino Lenny Rework)
-08. Marco Lys - Go (Original Mix)
-09. Sergio Fernandez And David Lara - Big Room Stories (Original Mix)
-10. Noir, Haze - Around (Solomun Vox Remix)(   Читать дальше...   )2012Жанр: Club | DanceПродолжительность: 11:21:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5309237905F83348979D45ED302955D4B937FEA5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476804   (98455) от 02.04.2012
-
-Wise Disk Cleaner v7.16 build 473 Final + Portable [Multi(Rus)]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98455.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название программы: Wise Disk CleanerЯзык интерфейса: Multi(Rus)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476213   (98452) от 02.04.2012
-
-The Soul Snatchers - Scratch My Itch (2012) [MP3|320 кб/с]<Soul, Funk>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98452.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Do You Wanna Get Down
-2. Who I Am
-3. Now That You've Got It
-4. Good To Me
-5. Scratch My Itch
-6. The Right Track
-7. Show Me Love
-8. Finish What You Started
-9. Judge of Love
-10. The Lick(   Читать дальше...   )Жанр: Soul, FunkПродолжительность: 00:46:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C48EECB21F0AB629FD96874ED3F11B6FD526DCED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476820   (98451) от 02.04.2012
-
-Wise Registry Cleaner 7.12 build 448 Final + Portable [Multi(Rus)]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98451.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название программы: Wise Registry CleanerЯзык интерфейса: 
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 477115   (98446) от 02.04.2012
-
-[Картинки] Фото знаменитости/Пас Вега/Paz Vega
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98446.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пас Вега (исп. Paz Vega; урождённая Пас Кампос Триго (исп. Paz Campos Trigo); родилась 2 января 1976 года в Севилье, Андалусия) — испанская киноактриса.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3D79436E1D89483C0A0DB03B13054DB31BFB9CA7
 ```
 
 https://mybot314.ru/tekegram_catalog/

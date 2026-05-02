@@ -1,3 +1,29 @@
+###  Публикация: 1810340   (17418) от 03.08.2025
+
+Текстуры - Creative Market - BLASTER Retro Gradient Textures - 5003913 [PSD]
+
+>>Материалы для мультимедиа и дизайна
+>>Текстуры, фоны, оверлеи и паттерны
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_17418.jpg" />
+</div>
+
+
+###  Подробнее
+
+Набор градиентов BLASTER – набор абстрактных ретро-градиентных фонов со стильной зернистой текстурой для веб-сайтов, цифровых сервисов, дизайна продуктов, шаблонов социальных сетей и новых брендов.Формат: PSDРазрешение файлов: 4700x3130
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D5E106F7056E51EB500CCE53E7FDFAFC8CAB612F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797971   (17137) от 24.05.2025
 
 Фоны - Tatiana Lapina - Behance - Abstract Liquid Texture Backgrounds -197553059 [JPG, PSD]
@@ -645,33 +671,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B8A226339D8144DEF7953A1026C2D32DC286D28C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1802706   (14202) от 18.06.2025
-
-Текстуры - Veila - Metal Flow - Envato - Liquid Metal Background Textures - 6XM23SU [JPG, PSD]
-
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_14202.jpg" />
-</div>
-
-
-###  Подробнее
-
-Металлические текстуры в трех цветовых вариациях.
-Материал раздаётся с официальной документацией.Формат: JPG, PSDРазрешение файлов: 4500 x 3000
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A13DAFD1F4B5B080F92C7775D967F17D994D253A
 ```
 
 https://mybot314.ru/tekegram_catalog/

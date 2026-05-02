@@ -1,3 +1,61 @@
+###  Публикация: 1683212   (128558) от 10.12.2023
+
+Lisa Hilton - Paradise Cove (2022) Ruby Slippers Productions [FLAC|Lossless|tracks + .cue] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128558.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Birks' Works [4:14]
+02. Fast Time Blues [3:54]
+03. Blues Vagabond [4:58]
+04. Another Simple Sunday with You [6:29](   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 00:49:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:18459E336D4E663D71969075CDCCACD2EA12DEB4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1683214   (128554) от 10.12.2023
+
+Terri Lyne Carrington - Money Jungle: Provocative In Blue (2013) Concord Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128554.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Money Jungle [6:21]
+02. Fleurette Africain [5:57]
+03. Backward Country Boy Blues [6:01]
+04. Very Special [4:11](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Jazz FusionПродолжительность: 01:02:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BBE0315A946F64F0ED0B666CBB33FE7B421EE687
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1683210   (128550) от 10.12.2023
 
 Jessica Williams - Arrival (1994) Jazz Focus [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Toshiko Akiyoshi - Finesse (1978) 1990, Concord Jazz [FLAC|Lossless|tracks + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:8E1B45C06B7D21B373AAEEAE43E23D6F018DADC2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684620   (127612) от 16.12.2023
-
-Erotic Jazz Music Ensemble, Erotic Stimulation Academy - Jazz for Erotic Night (2023) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127612.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Check It Out (4:29)
-02. Kinda Sexy (4:19)
-03. Sexy Lounge Suit (3:40)
-04. Seductive Sexcapade (3:41)(   Читать дальше...   )Жанр: JazzПродолжительность: 01:02:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:634265CD58B5E4C8D81BF78A67DA1B02244ED6F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1684642   (127556) от 16.12.2023
-
-Monty Alexander - Solo (1980, 1987) 1998, Kingston World [FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_127556.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Song for Susan [4:48]
-02. Mango Song [4:25]
-03. My One and Only Love [4:12]
-04. Tricotism [3:31](   Читать дальше...   )Жанр: Mainstream Jazz, Hard Bop, Piano JazzПродолжительность: 00:43:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2433988695D7EF09E18FA81B89DDB2F1380DDCFE
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1737428   (106529) от 17.07.2024
+
+Bad Boys - Turn On The Radio (2020) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106529.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bad Boy
+02. More Than She Can Handle
+03. Love Me Tonight
+04. Turn On The Radio(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6EB7A76B65DA2BD52CADD17E7263B2BB80ED5F78
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1737269   (106524) от 17.07.2024
+
+Kadavar - 7 albums, 10 CD (2012-2021) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Psychedelic Rock, Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106524.jpg" />
+</div>
+
+
+###  Подробнее
+
+Kadavar - немецкая рок группа из Берлина, основанная в начале 2010 года. Выбрав для названия своей группы немного измененное латинское слово «Cadaver» — переводится как «зомби» или нечто неживое, но выполняющее действия, свойственные живому существу, Kadavar отправились покорять музыкальный олимп. Черпая своё вдохновение в звучании рок-н-рола 70-х годов, группа воссоздала (   Читать дальше...   )--------------------------
+
+01. From Deep Within (9:33)
+02. In The Way (5:39)(   Читать дальше...   )Жанр: Vintage Hard Rock, Psychedelic Rock, Acid Rock, Stoner Rock |Продолжительность: 07:58:18 |
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7A9924E445BDCE80F2FBB06941191C5AD7694A6B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738281   (106373) от 21.07.2024
+
+The Black Crowes - Happiness Bastards (2024) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106373.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bedside Manners
+02. Rats And Clowns
+03. Cross Your Fingers
+04. Wanting And Waiting(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C519163C767D6DECD17DA86A2ADBCD5BE6F7B6C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1738420   (106327) от 22.07.2024
+
+Hard Power - Hard Power (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106327.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Crawling in the Dust (4:37)
+02. Live Once (5:23)
+03. City (5:05)
+04. All These Years (5:11)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEF6ABF659E4F040858DC7699D1B967DDF9377BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1738529   (106272) от 23.07.2024
 
 Mine Road - Tomorrow's Sky (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -629,122 +745,6 @@ Femme Fatale - Live + Demos (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Gla
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B7E99F4453B9E0F9075EE2B928B65AC5E450C760
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743276   (105428) от 15.08.2024
-
-Roulette - Now! (2019) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105428.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Never Enough
-02. Keep On Dreaming
-03. Soldiers Of Love
-04. We Can Make It(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:37:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F046E29FF9803EC0340CD12BFC5DBC8EC16E649F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743580   (105388) от 16.08.2024
-
-Cold Chisel - 50 Years - The Best Of (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock, Classic Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Standing On The Outside (2011 Remastered) [00:02:56]
-02. Cheap Wine (2011 Remastered) [00:03:25]
-03. When The War Is Over (2011 Remastered) [00:04:25]
-04. All For You [00:04:57](   Читать дальше...   )Жанр: Hard Rock, Classic RockПродолжительность: 01:36:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3860C49F287DA3C26213D23374D45D2FF5096E65
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743853   (105356) от 18.08.2024
-
-April Fool - Playin' To Win (1989) Reissue, Remastered, 2024, Heaven And Hell Records [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105356.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Cover Girls (5:12)
-02. Playin' To Win (5:53)
-03. Take Away The Heartache (4:18)
-04. Bahama Mama (4:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 01:08:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2F08015E40045C92C529C71F073D0A90B1FBAAB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1743855   (105355) от 18.08.2024
-
-Bad Boy - Private Party (1981) Limited Edition, Reissue, Remastered, 2024, Pride & Joy Music [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105355.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Introduction / Run From Yourself (3:44)
-02. Don´t Pretend (4:06)
-03. Can´t You See (3:05)
-04. Have I The Right (2:44)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F517803E7BD269B18CA371BFCB670A81CBABC4FE
 ```
 
 https://mybot314.ru/tekegram_catalog/

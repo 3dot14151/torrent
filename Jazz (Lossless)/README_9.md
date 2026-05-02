@@ -1,3 +1,61 @@
+###  Публикация: 937624   (1032729) от 09.02.2021
+
+Anthony Braxton - Five Compositions (1986)1993, Black Saint [APE|image+.cue]<Avant-Garde Jazz, Free Improvisation>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Composition - No. 131 [07:10]
+02. Composition - No. 88 (+ 108C) [05:56]
+03. Composition - No. 124 (+ 108D + 96) [09:08]
+04. Composition - No. 122 (+ 108 + 96) [09:33](   Читать дальше...   )Жанр: Avant-Garde Jazz, Free ImprovisationПродолжительность: 00:43:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ADF1761A1BC61D206F7B557969231D0373E2EEE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446675   (1032599) от 10.02.2021
+
+Jimmie Noone - 1929 - 1930 (1992) Classics [FLAC|Lossless|tracks + .cue] <New Orleans Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032599.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anything You Want [3:22]
+02. Birmingham Bertha [3:13]
+03. Am I Blue? [3:29]
+04. My Daddy Rocks Me (With One Steady Roll) [3:08](   Читать дальше...   )Жанр: New Orleans JazzПродолжительность: 01:14:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53966F15F3C235F27AADB7923F6A56FE8F7DD665
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446683   (1032594) от 10.02.2021
 
 Mary Lou Williams - 1944 - 1945 (1998) Classics [FLAC|Lossless|tracks + .cue] <Bop, Swing, Piano Jazz>
@@ -687,64 +745,6 @@ Erskine Hawkins - 1940 - 1941 (1993) Classics [FLAC|Lossless|tracks + .cue] <Swi
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A965F8EC6A31E9CE5ACCD8D0377EAE0B9D35B6DF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447833   (1031406) от 15.02.2021
-
-Django Reinhardt - 1939 - 1940 (1995) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031406.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Melancholy Baby [2:50]
-02. Japanese Sandman [3:08]
-03. Tea for Two [3:14]
-04. I Wonder Where My Baby Is Tonight? [2:48](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 01:03:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:841FBD348EC40726019A3D038BC1CC1C04DA3199
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447839   (1031404) от 15.02.2021
-
-Django Reinhardt - 1937 - 1938 (1994) Classics [FLAC|Lossless|tracks + .cue] <Swing, Gypsy, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031404.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. It Had to Be You [2:45]
-02. Sweet Sue, Just You [2:30]
-03. Honeysuckle Rose [2:55]
-04. Sweet Georgia Brown [3:09](   Читать дальше...   )Жанр: Swing, Gypsy, Guitar JazzПродолжительность: 01:07:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B25ACAB0C9492EB0AEEADFAA62A1D849B372194B
 ```
 
 https://mybot314.ru/tekegram_catalog/

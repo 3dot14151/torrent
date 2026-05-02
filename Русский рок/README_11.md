@@ -1,3 +1,119 @@
+###  Публикация: 1477267   (1011174) от 14.06.2021
+
+Menk - 2 Albums (2019-2021) [MP3|320 Kbps] <Psychedelic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011174.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Свет [00:00:31]
+02. Глаза [00:07:24]
+03. Блажь [00:06:13]
+04. Тень [00:04:20](   Читать дальше...   )Жанр: Psychedelic RockПродолжительность: 2CD, 01:31:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DC61CC83A674B04E6D646E7F83AD5CF44EA6E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477298   (1011165) от 14.06.2021
+
+Nishubert - Молодости не будет (2021) [MP3|320 Kbps] <Русский пост-панк>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Молодости не будет [00:03:06]
+02 - VHS [00:03:27]
+03 - Площадь [00:03:31]
+04 - Лето прошло [00:04:00](   Читать дальше...   )Жанр: Русский пост-панкПродолжительность: 00:21:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:424C7201AAB37589C3E3B25516B8BA8DA888F8C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477311   (1011150) от 14.06.2021
+
+Teach Every Mary - Сотня фунтов за голову Тича (2021) [MP3|320 Kbps] <Heavy Metal, Folk Metal, Pirate Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Баба на корабле [00:03:31]
+02 - Сотня фунтов за голову Тича [00:03:10]
+03 - Слава Безумцам! [00:03:23]
+04 - Королева пиратов [00:03:39](   Читать дальше...   )Жанр: Heavy Metal, Folk Metal, Pirate MetalПродолжительность: 00:31:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F52EDDC4D3ADCC8A6D61EEBAAAAF94C60CB516C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1477318   (1011137) от 14.06.2021
+
+Капитан Лис - Портовые Шлюхи, 2CD (2021) [MP3|320 Kbps] <Folk Rock, Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1011137.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Портовые Шлюхи (Rock Edition) [00:02:22]
+02. Нахер Шторм! (Rock Edition) [00:02:08]
+03. Чарка Рома (Rock Edition) [00:02:23]
+04. Горизонт (Rock Edition) [00:02:28](   Читать дальше...   )Жанр: Folk Rock, Folk MetalПродолжительность: 2CD, 00:40:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8F79CA5905BDAF162C910A2C645AB63CD26A8EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1477265   (1011092) от 14.06.2021
 
 Вадим Самойлов - Полуострова (Ч. 1-2) (2003-2006) [MP3|320 Kbps] <Rock>
@@ -624,119 +740,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:041D404CC8F6A523548DE844E480BEFEA28F27E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1486290   (1004889) от 30.07.2021
-
-Narkomfin - Всё складывается идеально (2021) [MP3|320 Kbps] <Punk Rock, Pop Punk>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004889.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Фьюче симпл
-2. Карма
-3. Аккорд
-4. Будто призрак(   Читать дальше...   )Жанр: Punk Rock, Pop PunkПродолжительность: 00:21:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F70E0E0E3EA73D9B522AE2127A5E55DD590373
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1349550   (1004438) от 01.01.2020
-
-Ленинград - Компромисс (2019) Single [MP3|320 Kbps] <Rock, Ska>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1004438.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. КомпромиссЖанр: Rock, SkaПродолжительность: 00:01:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:79127DCC6364A9A556D03F8D43B198EEC779C83C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1487321   (1003820) от 04.08.2021
-
-Красная плесень - Best 2 (2001-2004) (2021) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003820.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Гимн космонавтики (New Version)
-2. Зa рулем пизда (New Version)
-3. Регулировщик (New Version)
-4. А сейчас выступает... (New Version)(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:34:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7B016E489252C804C39D9507C1E75633DB0C0B36
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1350250   (1003438) от 05.01.2020
-
-Монгол Шуудан - Гуляй Поле Реанимация (2020) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1003438.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Intro
-2. Гуляй Поле
-3. На Белом Коне
-4. Свобода Или Смерть(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:53:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3627F2B890C35C4FCF3B12D484BD8D429836C03E
 ```
 
 https://mybot314.ru/tekegram_catalog/

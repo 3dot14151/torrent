@@ -1,3 +1,30 @@
+###  Публикация: 984322   (939986) от 08.02.2016
+
+Проекты - Pond5 - Dubstep Presentation [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_939986.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания Вашего фото-слайдшоу.
+Используется в Adobe After Effects.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:015CED2395384BEBFF4CD7036D3E29017A00D1F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1092195   (939943) от 11.01.2017
 
 Проекты - Fashion Nebula [AEP]
@@ -663,33 +690,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AC24626718602A4D14E638E50F00F0F7E3F5F9CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 985148   (936661) от 10.02.2016
-
-Проекты - VideoHive - InstaShots - 2257134 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_936661.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B2134EBCAB88457D0A5D6EFC506BC6E4B01923F
 ```
 
 https://mybot314.ru/tekegram_catalog/

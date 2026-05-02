@@ -1,404 +1,31 @@
-###  Публикация: 468680   (96826) от 16.03.2012
+###  Публикация: 482140   (99494) от 13.04.2012
 
-VA - Звездная Дискотека. Зарубежный (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Прочее (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96826.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. DJ Sava feat. Andreea D & J. Yolo - Money maker
- 002. Dj Antoine Feat. The Beat Shakers - Ma Cherie (Dj Antoine Vs. Mad Mark 2k12 Radio t)
- 003. Linkin Park - Wretches And Kings
- 004. Sandro Monte feat. Mischa Daniels & J-Son - Simple man
- 005. Nicole Scherzinger - Try With Me (Cahill Radio Edit)
- 006. Housemaxx Project - Let The Music Play (Radio Edit)
- 007. Lady Tom - All I Ever Needed
- 008. Sasha Lopez Feat. Broono & Ale Blake - Weekend (Radio Version)
- 009. Big City Angels - Top Of The Stars (Justin Corza Meets Greg Blast remix)
- 010. Chuckie feat. Gregor Salto - What happens in vegas(   Читать дальше...   )2012Жанр: Pop, DanceПродолжительность: 06:59:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E57A07BAAAF9D0FD92C6A395561218C6B14D3B3B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 469016   (96825) от 16.03.2012
-
-[Wallpapers] Summer Desktop Wallpapers
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96825.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Summer Desktop Wallpapers 
-Название:  Summer Desktop Wallpapers 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8CC37B8A34964679E7A3C09DD3BC414CA06713E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468662   (96820) от 16.03.2012
-
-The Lefty Collins Band - The Lost and Found (2012) [FLAC|Lossless]<Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pretty Little Woman (3:21)
-02. Light of Day (3:26)
-03. A Cold Rain (5:47)
-04. 2nd St Funk (3:25)
-05. Get Up (4:34)
-06. I Can't Go Back (4:37)
-07. I Love these Blues (4:39)
-08. The Lost and Found (3:53)2012Жанр: BluesПродолжительность: 33:42
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468637   (96819) от 16.03.2012
-
-Подборка журналов | Учет в сфере образования [01-03 2012, 11,12 2011] [PDF]
-
->>Журналы
->>Другие журналы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96819.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ежемесячный отраслевой журнал, содержащий только самую свежую и актуальную информацию об особенностях ведения бухгалтерского и налогового учета в сфере образования. Журнал посвящен вопросам учета и налогообложения образовательных учреждений (как бюджетных, так и внебюджетных). В нем рассматриваются все вопросы, актуальные для профессиональной деятельности бухгалтера. (   Читать дальше...   )Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E60C3AF0F10A69770EBFA89EB05C92A3C8D39C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468996   (96818) от 16.03.2012
-
-[Wallpapers] Anime Desktop Wallpapers Pack
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96818.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Anime Desktop Wallpapers Pack 
-Название:  Anime Desktop Wallpapers Pack 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 6970х4764
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA9146DB94A18AF015043AB526D066A1FFB4385E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468531   (96817) от 16.03.2012
-
-Эрл Стэнли Гарднер | Честная игра [2010] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96817.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл «Приключения Пола Прая» The Adventures of Paul Pry
-Честная играЖанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2271600727F3E93A05D4DD6850A2D904BF0CCBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468972   (96816) от 16.03.2012
-
-Формула 1. Гран-При Австралии. 1-ая свободная практика (2012) HDTV [1080i]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96816.jpg" />
-</div>
-
-
-###  Подробнее
-
-Гран-при Австралии 2012 года — автогонка чемпионата мира «Формулы-1», проходит с 16 по 18 марта 2012 года на трассе Альберт-Парк, Мельбурн, Австралия.
-Эта гонка отрывает сезон 2012 Формулы-1. Длинна трасы составляет 5303 м., на ней 16 поворотов из них 10 правых и 6 левых.Жанр: СпортПродолжительность: 01:29:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BA332975A8BB211C5101D3A11C30E98ABA7A74E7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 465542   (96815) от 16.03.2012
-
-Soulfly - World Scum (2012) HDRip [720p]
-
->>Архив торрентов
->>Архив Музыкального Видео
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96815.jpg" />
-</div>
-
-
-###  Подробнее
-
-Soulfly-группа,созданная Максом Кавалерой в 1997 году,после его ухода из группы Sepultura в 1996 году на пике её популярности.World Scum-клип бразильских металлистов на 1-й сингл с альбома Enslaved (2012).Песня посвящена различным жутким историческим событиям-войнам,тюрьмам,убийствам и прочему"мировому скаму".Жанр: Thrash MetalПеревод: ОтсутствуетПродолжительность: 00:04:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67E0CBD3D2EF65AA1FD342289B1AED5BADB48219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468534   (96814) от 16.03.2012
-
-[Wallpapers] Animals Full HD Wallpapers Pack
-
->>Графика, Арт, Разное
->>Обои для рабочего стола
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96814.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Animals Full HD Wallpapers Pack 
-Название:  Animals Full HD Wallpapers Pack 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3A07B6013A2EAE5F490C072B51E5AEB5E58FC5D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468820   (96813) от 16.03.2012
-
-А.Е. Тарас | История торпедных катеров XIX - XX вв [2005] [DJVU]
-
->>Научная и техническая литература
->>Военная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96813.jpg" />
-</div>
-
-
-###  Подробнее
-
-Класс торпедных катеров зародился во второй половине XIX в. и существовал до конца 90-х годов XX в. В книге подробно изложена история появления и технической эволюции этого класса малых боевых кораблей. В ней приведены сведения о всех типах экспериментальных и серийных торпедных катеров, построенных в разных странах мира в течении более чем 120 лет. Они отображены на многочисленных иллюстрациях (фотографиях, проекциях, схемах) в большинстве своем не известных широкой аудитории. По степени охвата тематики книга не имеет аналогов, как на русском, так и на других языках.2005Формат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:904F94D5196412D1A4A2F54822CC7A40531D4A58
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468990   (96810) от 16.03.2012
-
-[Wallpapers] Sexy Girl Wallpapers Pack 30
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96810.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Sexy Girl Wallpapers Pack 30
-Название: Sexy Girl Wallpapers Pack 30
-Тип раздаваемого: Wallpapers
-Разрешение файлов: от 1920x1080 до 2560х1600
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5E9111784F751FD33711792A7F6B36F32EF0838
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468490   (96806) от 16.03.2012
-
-Эрл Стэнли Гарднер | Жонглер преступлениями [2010] [MP3]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96806.jpg" />
-</div>
-
-
-###  Подробнее
-
-Цикл «Приключения Пола Прая» The Adventures of Paul Pry
-Жонглер преступлениямиЖанр: Детектив
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7BE2F08BC1ADC10393322863BD448C51D6B156
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467093   (96804) от 16.03.2012
-
-Рамонский сахарный завод (2011) HDTV [720p]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Фильм рассказывает об истории и нелёгкой судьбе Рамонского сахарного завода, о его славе и его разрушении. Мы так сказать, воронежские сталкеры туда залезли, ну и на основании отснятого фото и видеоматериала я решил сделать небольшой документальный фильмЖанр: ДокументальныйПродолжительность: 00:11:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:06311FE9C3489238A0A6AD1D926CAF44ADF252E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468503   (96801) от 16.03.2012
-
-Juliette Katz - Tout Va De Travers (2012) [MP3|320 кб/с]<Chanson, Pop, French>
+Exumer - Fire & Damnation (2012) [MP3|320 кб/с]<Speed / Thrash Metal>
 
 >>Архив торрентов
 >>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96801.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99494.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Tout Va De Travers
-02 Tout Le Monde
-03 Les Yeux Des Mouches
-04 J'Partage Ma Vie Avec Moi
-05 Vague A L'Ame
-06 On Tourne En Rond
-07 Pourquoi Tu Dors
-08 L'Antidote
-09 Je T'Aime Idiot (Meme Si.)
-10 Efface-Toi(   Читать дальше...   )Жанр: Chanson, Pop, FrenchПродолжительность: 00:41:58
+01. Fire & Damnation (03:16)
+ 02. Vermin of the Sky (03:17)
+ 03. The Weakest Limb (03:50)
+ 04. New Morality (03:08)
+ 05. Waking The Fire (03:13)
+ 06. Fallen Saint (03:54)
+ 07. Crushing Point (03:01)
+ 08. Devil Chaser (02:42)
+ 09. I Dare You (03:40)
+ 10. Tribal Furies (03:28)2012Жанр: Speed / Thrash MetalПродолжительность: 00:33:33
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8C60BEC267C0CFB8AFA66DA1A923B0668723075A
+magnet:?xt=urn:btih:4920E535311EF50D74708E27BCF8EB2C94923973
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -406,26 +33,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468523   (96800) от 16.03.2012
+###  Публикация: 482520   (99493) от 13.04.2012
 
-Эрл Стэнли Гарднер | Переделка в которую попал Уайкер [2010] [MP3]
+[Wallpapers] Super Girls Wallpapers (14.04.12)
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96800.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99493.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цикл «Приключения Пола Прая» The Adventures of Paul Pry
-Переделка в которую попал УайкерЖанр: Детектив
+Обои для рабочего стола
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:862C4CE0CB03EACFD0E5A70081B9178F9CE3A37F
+magnet:?xt=urn:btih:E7CD9705B2BB6DB270FAAD139B8B325300DA4101
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,21 +59,114 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 466135   (96798) от 16.03.2012
+###  Публикация: 482686   (99492) от 13.04.2012
 
-Девушка и волки / La jeune fille et les loups / The Maiden and the Wolves (2008) [1080p] BDRemux
+[Wallpapers] Нравятся! Сотня № 004 (1920х1080-2560х1600)
 
 >>Архив торрентов
->>Архив Видео. Кино, Театра
+>>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Начало 20-го века. Мэр французской деревушки Эмиль Гарсин мечтает проложить на живописных альпийских просторах железную дорогу и построить там горнолыжный курорт. Но его корыстным и амбициозным планам мешают полоумный горец Джузеппе и стая диких волков, приводящих в ужас жителей окрестностей. И только юная Анжель готова пойти на все, чтобы спасти этих красивых и отважных зверей…Жанр: Драма, семейныйРежиссер: Жилль ЛегранАктеры: Летиция Каста, Жан-Поль Рув, Стефано Аккорси, Миглен Миртчев, Мишель Галабрю, Патрик Шенэ, Лоран Дойч, Дидье Бенюро, Юрбен Канселье, Лоран ГамелонПеревод: Многоголосый закадровыйПродолжительность: 01:50:24
+Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
+Хотя на вкус и цвет...
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:42D31CF2F4925D5362D2B2D0B65F2A9A16818DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481843   (99491) от 13.04.2012
+
+Amongst The Deceit - Tribulations Of Man (2011) [MP3|320 кб/с]<Brutal Death>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99491.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Inceptum 1:26
+ 02. Inferior Lives 4:08
+ 03. Dark Science 4:33
+ 04. Dawn Of The Martyr 4:41Жанр: Brutal DeathПродолжительность: 00:38:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EDD4F0C6BBE039F7786672B9365D7E775E5CFBE7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 480892   (99490) от 13.04.2012
+
+Trifixion - A Utopia For The Damned (2011) [MP3|~245 кб/с (V0)]<Brutal Technical Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99490.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Human Construct (Intro) (01:53)
+ 02. Fucked In Gutteral Vortex (03:56)
+ 03. Delta 9 Messiah (04:10)
+ 04. In Nomine Patris (03:56)Жанр: Brutal Technical DeathПродолжительность: 00:47:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72F2FB8ED4C0014EF8E33E529D47E0FCF30BD3CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481590   (99489) от 13.04.2012
+
+220v - Overcharged (2008) [FLAC|Lossless]<Psychedelic / Full-On>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99489.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 220v - Overcharged [08:17]
+ 02. 220v - Friday [06:49]
+ 03. 220v - Insane To The Brain [07:22]
+ 04. 220v - Keeping The Music Real [08:10]
+ 05. 220v - Swinguin Beat [07:54]
+ 06. Eskimo - Every single sound (220V Remix) [07:54]
+ 07. 220v - Kizuna [08:12]
+ 08. 220v - The Future Shock [07:22]
+ 09. 220v - Turn The Beat Back [06:44]2008Жанр: Psychedelic / Full-OnПродолжительность: 01:08:42
 
 ## Скачать торент
 ```bash
@@ -459,29 +178,99 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 469004   (96797) от 16.03.2012
+###  Публикация: 482164   (99488) от 13.04.2012
 
-[Wallpapers] Girls Desktop Wallpapers Pack 6
+VA - MAXI. Популярные новинки Раdio Плюс (2012) [MP3|256-320 kbps]<Pop | Dance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99488.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bahh Tee - Я Наверное
+02. Frisco Disco ft. Ski - One Way Ticket (Original Club Mix)
+03. Lia Love feat. Chaddi - Down Down (Kriss Raize Radio Edit)
+04. T1One feat. U'Lee (44) - Всё Будет Как Прежде
+05. Макsим - Небо-самолёты
+06. A-VIA & Extasy Project - Мама-Любовь
+07. Katy Perry - Wide Awake
+08. Spencer & Hill feat. Ari - Surrender (Radio Edit)
+09. Людмила Соколова - Дарю Тебе Счастье
+10. Оксана Почепа - Стаи птиц (DJ Audiophil Remix)(   Читать дальше...   )2012Жанр: Pop | DanceПродолжительность: 05:16:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B73ACAADD045E4568220F6E9A18C07F96FA6423A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482758   (99486) от 13.04.2012
+
+VA - Trance Maniacs Party: Trancefer Wave #96 (13.04.2012) [MP3|320 кб/с]<Trance, Uplifting Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99486.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Solesystem presents Mel-O-Maniacs - A Little Big Planet (Basil O'Glue Remix)
+002. Santerna - Aquamarine
+003. Radion 6 - B U Tiful (Original Mix)
+004. Patric la Funk - Baltic (Original Mix)
+005. Ralphie B - Bullfrog (Original Mix)
+006. Veracocha - Carte Blanche (Dabruck & Klein Remix)
+007. Marcel Woods - Champagne Dreams (W&W Remix)
+008. Ummet Ozcan - Cocoon (Original Mix)
+009. Matt Bowdidge - Crossing North (Original Mix)
+010. Mark Burton - Delusion (Original Mix)(   Читать дальше...   )13.04.2012Жанр: Trance, Uplifting TranceПродолжительность: 03:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24D9BAB52FF711E9861F50BF0B9E5287973EE9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482682   (99483) от 13.04.2012
+
+[Wallpapers] HD Wallpapers №10
 
 >>Архив торрентов
 >>Архив Медиа-Диз-Графика
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99483.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers Pack 6 
-Название:  Girls Desktop Wallpapers Pack 6 
+[Wallpapers] HD Wallpapers №10
+Название: HD Wallpapers №10
 Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+Разрешение файлов: 1600x1200/1680x1050 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A675A14C3B21A6DDF0807008DDEA5AAF79C7CE53
+magnet:?xt=urn:btih:C49978FCF3B11DFB99CA646FA9F2F098880C80D9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -489,33 +278,29 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467862   (96796) от 16.03.2012
+###  Публикация: 481989   (99480) от 13.04.2012
 
-VA - Trance Maniacs Party: Melody Of Heartbeat #77 (2012) [MP3|320 кб/с]<Trance>
+Jeff Hughell (ex-Brain Drill) - I Came To Hate [EP] (2009) [MP3|320 кб/с]<Technical Instrumental>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96796.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99480.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. tyDi feat. Sarah Howells - Acting Crazy (Tom Fall Remix)
-002. Andy Van Kayne - Azure Dreamland (Original Mix)
-003. Van Dresen - Back To Start (Orjan Nilsen ReChunk Mix)
-004. Cosmic Gate & Emma Hewitt - Be Your Sound (Extended Mix)
-005. JES & Andy Duguid - Before You Go (Taxigirl Edit)
-006. Mark Eteson - Blackboard (Original Mix)
-007. Ana Criado - Can't Hold Back The Rain (Stoneface & Terminal Remix)
-008. Sander Van Doorn - Drink To Get Drunk (Extended Version)
-009. Andy Moor feat. Sue McLaren - Fight The Fire (Stoneface & Terminal Remix)2012Жанр: TranceПродолжительность: 03:33:07
+01. I Came To Hate
+ 02. Elbowed Back To Life
+ 03. Fuck You All
+ 04. Classicaly
+ 05. Black Label Bongo Thrash2009Жанр: Technical InstrumentalПродолжительность: 00:18:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F601EC93447DC50D5EEC5EFFDAC31955AE0FDFCE
+magnet:?xt=urn:btih:498971FAC13080EF6ACEF2D0839969C2A376225C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -523,29 +308,355 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468352   (96795) от 16.03.2012
+###  Публикация: 482550   (99476) от 13.04.2012
 
-Zyce And Flegma - 8 Cell (2011) [FLAC|Lossless]<Psychedelic / Progressive>
+Derelict - Perpetuation (2012) [MP3|~295 кб/с]<Technical Progressive Death>
 
->>нет
->>нет
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96795.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99476.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Zyce And Flegma - Snapshot [08:07]
- 02. Zyce And Flegma - Fallen Idols [10:09]
- 03. Zyce And Flegma Feat. Spinney Lainey - Puls (RMX) [08:38]
- 04. Zyce And Flegma - Fun Gun [07:58]
- 05. Zyce And Flegma - Reanimation [07:34]
- 06. Zyce And Flegma - Pusher [07:57]
- 07. Zyce And Flegma - Orison [06:26]
- 08. Zyce And Flegma - Dum Spiro, Spero [07:11]
- 09. Zyce And Flegma - Submersion [06:33]Жанр: Psychedelic / ProgressiveПродолжительность: 01:10:37
+01. Perpetuation 3:05
+ 02. Spoils Of War 3:37
+ 03. Expiry 2:55
+ 04. Digital Birthright 3:25
+ 05. Intricate Decay 4:38
+ 06. Olympic 3:26
+ 07. Ergogenic 3:32
+ 08. Recreated 3:06
+ 09. Yours To Surpass 2:34
+ 10. Shackles Of Indoctrination 4:48(   Читать дальше...   )2012Жанр: Technical Progressive DeathПродолжительность: 00:43:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8E182DD163A8DBAA74A81BC0736B98A107DA8F60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482712   (99475) от 13.04.2012
+
+[Wallpapers] HD Wallpapers №12
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99475.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] HD Wallpapers №12
+Название: HD Wallpapers №12
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:72ED6EFC203C01ADF00E1A5C77911BCF8D1D6B8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482435   (99474) от 13.04.2012
+
+Журнал | 5 колесо №3 (март 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99474.jpg" />
+</div>
+
+
+###  Подробнее
+
+«5 колесо» - интерактивное издание об автомобилях, которое создается в сотрудничестве с читателями, что позволяет знакомить аудиторию не только с мнениями профессионалов, но и с опытом многочисленных автолюбителей. В каждом номере вы найдете зарубежные и российские автоновости, информацию от официальных дилеров, рассказы о новинках автомобилестроения, тест-драйвы, (   Читать дальше...   )Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1DA6B8FF9EDAD852F29BD1DEC825B758C7C2C1A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482513   (99473) от 13.04.2012
+
+[Wallpapers] Scotland (Шотландия) wallpaper | для БориСКА47
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99473.jpg" />
+</div>
+
+
+###  Подробнее
+
+Релиз подготовлен по просьбеРазрешение файлов: 1280x840 - 1600х1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E308BB5B9E1E119EB2B872DF9445FD064ACB77C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481984   (99471) от 13.04.2012
+
+Taenya - Contaminate [EP] (2011) [MP3|~275 кб/с (V0)]<Slamming Brutal Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99471.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+ 02. Parasite
+ 03. Mensonges
+ 04. People
+ 05. Cadaveric Slam
+ 06. Amnésie
+ 07. Hate My Face
+ 08. All Star
+ 09. Anal Evil
+ 10. Armes de Sang Froid2011Жанр: Slamming Brutal DeathПродолжительность: 00:29:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7894AFF7D4032B8A3A08EDB6BDDF2295546FA6D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481846   (99467) от 13.04.2012
+
+I’ll Eat Your Face - Hot Brains Terror (2011) [MP3|320 кб/с]<Death Metal / Grindсore>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99467.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Weasel Tank Slime (01:08)
+ 02. Acid Worm Monsoon (01:37)
+ 03. Brainwolf: Revenge of the Priest (01:53)
+ 04. Drowning Dogs in a Swamp (03:32)
+ 05. Enslaved by the Prawnmaster (01:18)
+ 06. Reverse Eagle Embeastment (02:13)
+ 07. The Eels of Love Lake (02:10)
+ 08. Castle of Vomiting Owls (01:48)
+ 09. Forever Sealed in the Electric Brains’ Melting Slug-Ray (05:16)2011Жанр: Death Metal / GrindсoreПродолжительность: 00:21:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8C4EB3D02112D6B7D1A2F1C97CA45B961EE5024C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482064   (99465) от 13.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (12.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99465.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A39A7C28B2DFCC1C692CA45DA6FA8EA45D830864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481178   (99464) от 13.04.2012
+
+Infestdead - 3 альбома - Discography (1995 - 1999) [MP3|320 кб/с]<Death Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99464.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Death MetalПродолжительность: 01:22:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0EFDAAC34B836075448B536C1791C2288F56A74C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481995   (99462) от 13.04.2012
+
+A Million Dead Birds Laughing - Force Fed Enlightenment (2011) [MP3|~275 кб/с (V0)]<Experimental Grindcore / Technical Death>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99462.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Conduit - 01:04
+ 2. Void - 01:47
+ 3. Forcefed - 01:11
+ 4. Edge - 01:44
+ 5. Requiem - 01:30
+ 6. Defiants - 02:37
+ 7. Purpose - 01:21
+ 8. Willow - 01:09
+ 9. Oracle - 02:49
+ 10. Leech - 02:26(   Читать дальше...   )Жанр: Experimental Grindcore / Technical DeathПродолжительность: 00:24:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94391266783DF4CDCBE7FFA59D272B091153A0E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482526   (99460) от 13.04.2012
+
+[Wallpapers] Best HD Wallpapers (14.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:46F36852AF17C7DF1D8B29391D8BD69F3AE41ADA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 482519   (99459) от 13.04.2012
+
+[Wallpapers] Computer Desktop Wallpapers Collection (14.04.12)
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99459.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D22ED87B38CE754111DEF9CEE51C199092D5B8C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 481810   (99457) от 12.04.2012
+
+The Cardigans - Life (2005) /2008 Japan SHM-CD Edition/ [FLAC|Lossless]<Pop Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Carnival [03:37]
+02. Gordon's Gardenparty [03:20]
+03. Daddy's Car [03:35]
+04. Pikebubbles [03:02]
+05. Tomorrow [03:03]
+06. Beautiful One [03:27]
+07. Travelling with Charley [04:09]
+08. Fine [03:09]
+09. Sunday Circus Song [03:54]
+10. Hey! Get Out of My Way [03:30](   Читать дальше...   )2008Жанр: Pop RockФормат: CD, Album, ReissueПродолжительность: 01:03:11
 
 ## Скачать торент
 ```bash
@@ -557,30 +668,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 467287   (96793) от 16.03.2012
+###  Публикация: 481888   (99456) от 12.04.2012
 
-Подборка журналов | Учет в туристической деятельности [2012 01-03, 2011 11,12] [PDF]
+Inspector Magnusson: Murder on the Titanic (P) [En] 2012
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Win Игры
+>>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99456.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В журнале публикуются материалы о налоговом и бухгалтерском учете расходов и доходов у туроператоров и турагентов, рассматриваются вопросы, связанные с различными видами туризма и турпродуктов, «горящими» путевками и рекламными акциями. Уделено внимание спорам, касающимся разрешения претензий туристов, возврата путевок и расчетов с авиаперевозчиками, гостиницами, иностранными партнерами.
-В каждом номере журнала:
-Новое в отраслевом учете
-Чиновники комментируют поправки и изменения, внесенные в действующее законодательство, которые касаются хозяйственной деятельности туристических компаний - как турагентов, так и туроператоров.
-Советы по бухгалтерскому и налоговому учету
-Консультации практикующих аудиторов и других экспертов, специализирующихся в сфере туризма. Официальные разъяснения «из первых уст». Даны проверенные практикой решения сложных специфических ситуаций, с которыми сталкиваются бухгалтеры и руководители турфирм.2012, 2011Формат: PDF
+Спустя месяц после гибели Титаника экипаж рыболовного судна "Plymouth" обнаружил тело Ричарда Гринфилда Бартоломью ІІІ. Тело идентифицировать не удалось, но экипаж рыболовного судна заинтересовал документ, найденный на теле, в котором сообщалось о плане собрать деньги на страхование от гибели лайнера "Олимпик".(   Читать дальше...   )Тип издания: ПираткаЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: n/a (отсутствует)Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A0552D98F04EDDBB120DE451A895406DBD316ABF
+magnet:?xt=urn:btih:4EBCDDF434D27F16DDACABB9352FDBCC9746E17A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -588,26 +694,30 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468526   (96792) от 16.03.2012
+###  Публикация: 481534   (99455) от 12.04.2012
 
-Эрл Стэнли Гарднер | Двойная сделка с бриллиантами [2010] [MP3]
+Dj VoJo - STYLE vol.2: В Ж...ПУ ПАФОС (07.04.2012) [MP3|320 кб/с]<Electro House>
 
 >>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96792.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99455.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Цикл «Приключения Пола Прая» The Adventures of Paul Pry
-Двойная сделка с бриллиантамиЖанр: Детектив
+Dj VoJo - STYLE vol.2:  В Ж...ПУ ПАФОС (07.04.2012)Год: 07.04.2012
+Жанр: Electro House
+Продолжительность: 01:05:13
+Кодек: MP3
+Битрейт: 320 кб/с
+Тип битрейта: CBRТрек лист: N/AВремя раздачи: (24/7 - круглосуточно)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49B6113402C550A5C92A6F461374036008A191F8
+magnet:?xt=urn:btih:C9DC9375B29EA3DE59B9AB659E2C5E9E3E67ED8C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -615,116 +725,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468541   (96791) от 16.03.2012
+###  Публикация: 481348   (99452) от 12.04.2012
 
-[Wallpapers] Girls Desktop Wallpapers Pack
+До первого снега / First Snow (2006) DVD9
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Зарубежное кино
+>>Зарубежные Фильмы (DVD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96791.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_99452.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers Pack 
-Название:  Girls Desktop Wallpapers Pack 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1440
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:11FBD8FBBBF0518F8E095E93068E1338330A2291
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 468827   (96789) от 16.03.2012
-
-Биатлон. Кубок Мира 2011-12. 9-й этап. Ханты-Мансийск (Россия). Мужчины. Спринт 10км (2012) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96789.jpg" />
-</div>
-
-
-###  Подробнее
-
-Спринтерская мужская гонка на 9 этапе кубка мира по биатлону в Ханты-Мансийске.Жанр: СпортПеревод: Одноголосый закадровый, профессиональный (Дмитрий Губерниев)Продолжительность: 01:32:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2944AD01392F92AC793E1717D6B26FA9F8870880
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467997   (96785) от 16.03.2012
-
-[Wallpapers] Desktop Wallpapers Pack 7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96785.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Desktop Wallpapers Pack 7 
-Название:  Desktop Wallpapers Pack 7 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1200
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1087BBC68E2C340440796D798631B610A22010A3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 467706   (96784) от 16.03.2012
-
-Cindy Blackman - Someday... (2001) [FLAC|Lossless]<Hard Bop>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_96784.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Funny Valentine (4:51)
-02. Call To the Ancentors (1st Interlude) (1:13)
-03. Someday My Prince Will Come (5:46)
-04. Walkin' (4:20)
-05. Heaven Sent (7:02)
-06. Call To the Ancentors (2nd Interlude) (1:23)
-07. Eternal Justice (10:31)
-08. Peebow's Vibe (3:34)
-09. Glass Slippers (6:12)
-10. Paradise Island (8:29)(   Читать дальше...   )2001Жанр: Hard BopПродолжительность: 00:57:27
+Пока чинили машину Джимми, так некстати сломавшуюся посреди дороги, он, чтобы скоротать время, решил зайти к старику-предсказателю. От него Джимми узнал, что вскоре дела его пойдут в гору, а самому ему суждено умереть - сразу после того, как выпадет первый снег. Джимми не воспринял слова старика всерьез, но каково же было его смятение, когда предсказания начали сбываться! (   Читать дальше...   )Производство: СШАЖанр: Триллер, драмаПеревод: Профессиональный (многоголосный, закадровый)Субтитры: РусскиеФормат: DVD9Продолжительность: 01:37:33
 
 ## Скачать торент
 ```bash
@@ -736,29 +751,34 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 468558   (96781) от 16.03.2012
+###  Публикация: 481728   (99451) от 12.04.2012
 
-[Wallpapers] Girls Desktop Wallpapers Pack 3
+VA - Milchbar Seaside Season 4 Compiled by Blank & Jones (2012) [MP3|320 кб/с]<Electronic, Downtempo, Lounge>
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_96781.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_99451.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers Pack 3 
-Название:  Girls Desktop Wallpapers Pack 3 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 2560х1920
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Blank & Jones with Til Schweiger - Sonnenuntergang
+02. Blue Six - Aquarian Angel
+03. Chicane - Low Sun
+04. Josete Ordonez - Piedras y Rosas (Blank & Jones Balearic Chill Remix)
+05. Nikonn - Sunday
+06. Bliss - Blissful Moment
+07. Cantoma - Katja
+08. Blank & Jones with Mike Francis - Survivor
+09. Afterlife - Smooch
+10. sinan mercenk - He Say (Blank & Jones Smooth & Chilled Revisit)(   Читать дальше...   )Жанр: Electronic, Downtempo, LoungeПродолжительность: 02:07:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0CE813C78E28CEEDA8E4136EB1D61446D70DCD3A
+magnet:?xt=urn:btih:ACAA8F6F7F282F8435318D928933226B05D8351B
 ```
 
 https://mybot314.ru/tekegram_catalog/

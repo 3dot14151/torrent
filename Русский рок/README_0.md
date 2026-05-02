@@ -1,3 +1,118 @@
+###  Публикация: 1852066   (1055744) от 07.02.2026
+
+ЗакЛинания & popCup - Песни "Неспящего Пи..." (2026) tribute [MP3|320 Kbps] <Punk>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055744.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Грязь обетованная 2:48
+02 - Демоны 5:51
+03 - Жертва Аборта 4:01Жанр: PunkПродолжительность: 00:12:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600A4228D278DC7F73B3CD6110D7C2D80893C7A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851733   (1055237) от 03.02.2026
+
+Би-2 - Сердцебиение (2026) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055237.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Би-2 feat. Лу Геворкян (Louna) - Никто не спросит
+2. Чулпан Хаматова - Это не игра
+3. Би-2 - Как будто падает
+4. Би-2 feat. Данила Козловский - Он повернулся(   Читать дальше...   )Жанр: RockПродолжительность: 00:51:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1E14158128AFAA4C00CD097C4E8E42AD189AFA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1851337   (1055108) от 02.02.2026
+
+Вадим Гареев - Пропади,тухляк! (2026) [MP3|320 Kbps] <Punk-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055108.jpg" />
+</div>
+
+
+###  Подробнее
+
+01-Пропади,тухляк! [00:01:45]
+02-Быки [00:01:54]
+03-Асоциальная (Позор семьи) [00:02:45]
+04-Панк-рок-жизн [00:02:11](   Читать дальше...   )Жанр: Punk-RockПродолжительность: 00:16:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EB5C3C44CC72682C302F2EF76322BB8BFCD1556B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1850026   (1054042) от 25.01.2026
+
+Алкоголь После Спорта (АПС) - Весёлые истории (2026) [MP3|320 Kbps] <Alternative, Russian-Rap, Hip-Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054042.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Весёлые истории [00:02:07]
+02. Как в старые добрые [00:02:24]
+03. Диванные войска [00:02:24]
+04. Тост [00:03:07](   Читать дальше...   )Жанр: Alternative, Russian-Rap, Hip-HopПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEEC06EBE5E83B50B6A9C8C81857DE9847E63BA4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1849475   (1053485) от 23.01.2026
 
 Ясвена - Концерт с оркестром Глобалис (2026) Live [MP3|320 Kbps] <Rock>
@@ -626,122 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:50462B4633D2642CD875059ABAB09ACDC425F108
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841538   (1048114) от 12.12.2025
-
-Diaclast - violence originates violence (2025) [MP3|320 Kbps] <brutal-death-metal, death-metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048114.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Infected zombie [00:02:32]
-2. Homicidal desire [00:04:11]
-3. Violence originates violence [00:03:59]
-4. Bloodborn [00:03:27](   Читать дальше...   )Жанр: brutal-death-metal, death-metalПродолжительность: 00:33:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:57AE4DAC72F0D6CC7E55D8C0B1EA3C9F9D4E6378
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841375   (1048016) от 11.12.2025
-
-Звери - Акустика 2025 (Live) (2025) [MP3|320 Kbps] <Pop-Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048016.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Я с тобой (Акустика 2025, Live) [00:04:27]
-02. Синий трамвай (Акустика 2025, Live) [00:02:44]
-03. Для тебя (Акустика 2025, Live) [00:03:26]
-04. Маленькая _с_ (Акустика 2025, Live) [00:04:00](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:43:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E91A41E8923E2BC926ADA62C40223AB86C3CD2EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840723   (1047494) от 06.12.2025
-
-Вася Обломов - Как всё было на самом деле (2025) [MP3|320 Kbps] <Rock, Rap, Alternative Сhanson>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047494.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В национальных интересах
-2. Где никто не хочет войны
-3. Стояли люди на ветру
-4. Молодость(   Читать дальше...   )Жанр: Rock, Rap, Alternative СhansonПродолжительность: 01:03:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532631657DB0DFBBCE1B873AFCB25AC18E7702D0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1840071   (1047033) от 02.12.2025
-
-Ангел НеБес - ВРЕМЯ УХ….. ПОСЛЕСЛОВИЕ (2025) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047033.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. СО МНОЙ (Всегда)
-2. КОЛОКОЛЬНЫЕ ЗВОНЫ
-3. ГУЛЯЕТ ВОРОН (По коридорам)
-4. В СЕРДЦАХ(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:531975334845F13F28F238A4C094091F65437E8D
 ```
 
 https://mybot314.ru/tekegram_catalog/

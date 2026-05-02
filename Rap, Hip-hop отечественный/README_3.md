@@ -1,90 +1,3 @@
-###  Публикация: 1378255   (848266) от 24.04.2020
-
-Mnogoznaal - Круг Ветров (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848266.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. План "Перехват" (feat. ЯАVЬ) [01:33]
-02. Антигерой [02:12]
-03. Дуга [02:28]
-04. Ветра [03:11](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:28:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9B1D1549105E960072E035F878CBCCAC34C3E19
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378042   (848178) от 24.04.2020
-
-Лигалайз - ALI (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/009/save_picture_848178.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Серебряков [02:25]
-02. ЗАСТОЙ 2.0 [05:35]
-03. ПЫЛАЮЩИЙ [04:19]
-04. MY PHILOSOPHY [02:06](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:55:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F1CF345A78679E1CEB8BD947DD7A3A77391CBE8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378679   (844635) от 26.04.2020
-
-Гио ПиКа - Мацони (2020) [MP3|320 Kbps] <Rap, Hip-Hop>
-
->>Rap, Hip-hop, RnB, Reggae
->>Rap, Hip-hop отечественный
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_844635.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Яг Морт интро (Дух тайги) [00:59]
-02. Питер блюз [02:16]
-03. Не бойся не верь не проси [02:29]
-04. Славься брат (feat. SH Kera) [02:38](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:21:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FD9BBC1993319B25AF2298103A1A9F68A5985C96
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1112961   (839526) от 10.03.2017
 
 Krec - Обелиск16 (2017) [MP3|320 Kbps] <Rap, Hip-Hop>
@@ -745,6 +658,93 @@ Mnogoznaal - Гостиница Космос (2018) [MP3|320 Kbps] <Rap>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:106251D9EE91AEF0F583C0773A3DE7ECF1422DFB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1509704   (793860) от 13.11.2021
+
+Oxxxymiron - miXXXtape III: Смутное Время (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_793860.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Мох
+2. Погружение
+3. Flashback
+4. Reality(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 01:04:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:687E7CEA448887E0A00CE16BAC7C9DD2BE825F82
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1510919   (789710) от 19.11.2021
+
+Noize MC - Выход в город (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789710.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Выход в город
+2. Миокард
+3. Сельма Лагерлёф
+4. Двадцатые годы(   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:35:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0625C38AEBDD6DBE6AE046EC8F15F3D57EB1FDB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1511190   (789465) от 20.11.2021
+
+Макулатура - большая мечта (2021) [MP3|320 Kbps] <Rap, Hip-Hop>
+
+>>Rap, Hip-hop, RnB, Reggae
+>>Rap, Hip-hop отечественный
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_789465.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. из зтм [01:20]
+02. папа [03:19]
+03. дьявол (feat. Михаил Енотов) [04:58]
+04. отмена [02:50](   Читать дальше...   )Жанр: Rap, Hip-HopПродолжительность: 00:13:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28A0F9DC6792DA186B51EF4E79AA3E2D49E6E43C
 ```
 
 https://mybot314.ru/tekegram_catalog/

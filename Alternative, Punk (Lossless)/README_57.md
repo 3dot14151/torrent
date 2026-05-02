@@ -1,3 +1,61 @@
+###  Публикация: 1638971   (211659) от 12.06.2023
+
+Poisonous Reflection - Time Is Not on Our Side (2023) [FLAC|Lossless|WEB-DL|tracks] <Grindcore, Crust, Powerviolence>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_211659.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Destroy Capital Greed 666 (feat. T.L- Mares of Thrace) [00:04:38]
+02. Gas Bill Blues [00:03:00]
+03. World Beyond Redemption (feat. Al- Void Me) [00:04:19]
+04. Beyond Decay [00:03:16](   Читать дальше...   )Жанр: Grindcore, Crust, PowerviolenceПродолжительность: 00:41:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:560FC7ABEEBC8BCBE32078BC573BACF78141B6F2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1602337   (210819) от 05.01.2023
+
+Iggy Pop - Every Loser (2023) Scene [FLAC|Lossless|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_210819.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 Frenzy (3:01)
+ 02 Strung Out Johnny (4:14)
+ 03 New Atlantis (4:08)
+ 04 Modern Day Rip Off (3:29)(   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:36:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:99FB1CA86F976A16B45BDCD99C7B1D12E1CF3D32
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1642428   (210373) от 27.06.2023
 
 Element Eighty - A.D. (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt. Metal, Nu Metal>
@@ -686,64 +744,6 @@ Empire State Bastard - Rivers Of Heresy (2023) [FLAC|Lossless|WEB-DL|tracks] <Ch
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6C86DA9073BB7AAFBD18593A587BACAEED05B381
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1656766   (202737) от 01.09.2023
-
-Escape The Fate - Out Of The Shadows (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-Hardcore, Alt.Rock>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_202737.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Forgive Me [00:05:03]
-02. Choke [00:03:13]
-03. LOW [00:03:14]
-04. Rather Be Dead [00:02:36](   Читать дальше...   )Жанр: Post-Hardcore, Alt.RockПродолжительность: 00:38:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D96FADED00322164B252D802D0DC8ECF85D59DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1624750   (200218) от 08.04.2023
-
-Linkin Park - Meteora (2003) 3CD, 20th Anniversary Edition [FLAC|Lossless|image + .cue] <Alternative Rock, Nu Metal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_200218.jpg" />
-</div>
-
-
-###  Подробнее
-
-Список альбомов:
-CD1 - Original Album
-CD2 -  LPU Rarities 2.0
-CD3 - Live Rarities 2003-2004Жанр: Alternative Rock, Nu MetalПродолжительность: 3 CD, 02:19:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12D744AAE7FA507D2C5B35BEF4E29EC537DF5E4A
 ```
 
 https://mybot314.ru/tekegram_catalog/

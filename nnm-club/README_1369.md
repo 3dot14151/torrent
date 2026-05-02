@@ -1,25 +1,22 @@
-###  Публикация: 1449791   (1029588) от 23.02.2021
+###  Публикация: 1448236   (1031176) от 16.02.2021
 
-Erell Ranson - MOA1201 (2020) Móatún 7 [FLAC|Lossless|WEB-DL|tracks] <IDM, Leftfield, Ambient>
+Numi 3.30 [Multi/Ru]
 
->>Electronic
->>IDM (Lossless)
+>>Программы для macOS
+>>Утилиты для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029588.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031176.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. One Month To Wait (04:22)
- 02. Unexpected Bleeding (05:01)
- 03. Emma (05:16)
- 04. Oxygen Desaturation (06:05)(   Читать дальше...   )Жанр: IDM, Leftfield, AmbientПродолжительность: 00:43:37
+Numi - необычный калькулятор, который "общается" с вами на обычном языке - понимает единицы измерения, слова и имеет очень простой интерфейс. Numi может работать с валютами и различными единицами измерения. Чтобы конвертировать одну валюту в другую, нужно ввести сумму строку перевода в нужную валюту, например, $9 в евро — ответ показывается справа автоматически. (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.02.2021Разработчик: Dmitry NikolaevПоддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский, Немецкий и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CFD2FB7ADBDCD079E2D0CBEA39B8467143CC1EC6
+magnet:?xt=urn:btih:B01547C8EE6F1B84A009556EAB2794FDF81547B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,28 +24,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449821   (1029587) от 23.02.2021
+###  Публикация: 1448222   (1031175) от 16.02.2021
 
-Duke Ellington - Live And Rare (1965 - 1973) 3CD, 2002, Bluebird [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+n-Track Studio Suite 9.1.3 [Multi/Ru]
 
->>Jazz, Blues, Soul
->>Jazz (Lossless)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029587.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031175.jpg" />
 </div>
 
 
 ###  Подробнее
 
-CD1:
-01. The Piano Player [2:57]
-02. Creole Love Call [4:29]
-03. Don't You Know I Care? [4:28](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 03:49:01
+Программа для обеспечения студийного качества записи, редактирования и микширования.
+Программа n-Track Studio привносит профессиональное качество аудио файлов и облегчает рабочий процесс.Тип издания: macOS SoftwareРелиз состоялся: 12.02.2021Разработчик: n-Track S.r.lПоддерживаемая ОС: macOS 10.8+Язык интерфейса: Русский, Английский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0F6B4F1B7D2D4B90B4C559884FE121BC210CD9E8
+magnet:?xt=urn:btih:D04BE7CDC56016B2BBD255853DB4785C7FA0608D
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -56,28 +51,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449695   (1029586) от 23.02.2021
+###  Публикация: 1448207   (1031174) от 16.02.2021
 
-Harakiri For The Sky - Mære (2021) [FLAC|Lossless|WEB-DL|tracks] <Post-Black Metal>
+Павел Бажов | Сказы Павла Бажова. Выпуск 2. Голубая змейка, Про Великого Полоза (1972) [Сборник] [MP3]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Аудио для детей и родителей
+>>Аудиокниги для детей и родителей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029586.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031174.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. I, Pallbearer [00:07:02]
-02. Sing for the Damage We've Done [00:08:05]
-03. Us Against December Skies [00:08:21]
-04. I'm All About the Dusk [00:11:09](   Читать дальше...   )Жанр: Post-Black MetalПродолжительность: 01:24:37
+В 1939 году в журнале «Красная новь» появились первые сказы Бажова – «Дорогое имечко», «Хозяйка Медной горы», «Про великого Полоза», впоследствии вошедшие в «Малахитовую шкатулку». Настоящий волшебник слова, маг и чародей, Бажов развернул перед глазами читателей сказочно-прекрасную страну – Урал. Самоцветными камнями заиграли старинные побывальщины, отшлифованные (   Читать дальше...   )Жанр: Детская литература. РадиоспектакльПродолжительность: 00:48:20
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8F4E3ECAC638E5BFBA0BA6E0685DCA7596AC5A1D
+magnet:?xt=urn:btih:FD05B626F69AE37672AFF1B8C1F206A5214FE0F1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,28 +77,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449699   (1029585) от 23.02.2021
+###  Публикация: 1448151   (1031173) от 16.02.2021
 
-Volter - High Gain Overkill (2021) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
+Flyer Design – Flyer Templates for Pages 1.0 [En]
 
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029585.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031173.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. High Gain Overkill
-02. The Road Is Mine
-03. Kiss My Ass
-04. Black Skies(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:37:48
+Флаеры - эффективные инструменты для продвижения, независимо от того, используются ли они для бренда, бизнеса или мероприятия. Эти рекламные материалы легко распространять и с меньшими усилиями доходят до широкой аудитории. Раздайте их в местах с интенсивным пешеходным движением, таких как метро, ​​торговые центры и продуктовые магазины. Flyer Design (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 29.12.2016Разработчик: xin jinПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CF50D28A5EA4746A7D88EDF60315D02211A64D05
+magnet:?xt=urn:btih:4B90ED8ADF146425FDF0C238492289EE64BA931F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -114,454 +103,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449939   (1029584) от 23.02.2021
+###  Публикация: 1448116   (1031172) от 16.02.2021
 
-Alan Waters - Пластилин: первый набор цветов (2021) [MP3|320 Kbps] <Alternative, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029584.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пластилиновые сны (Пролог)
-2. Пластилин
-3. Блокпост
-4. Роспись ветра(   Читать дальше...   )Жанр: Alternative, ElectronicПродолжительность: 00:53:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CE78059D339804058454EECBF1FE2E996A59A27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449761   (1029583) от 23.02.2021
-
-Broken Silence - Shout It Out Loud (1994) [FLAC|Lossless|image + .cue] <Rock, AOR, CCM>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029583.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Finish What You Started
-02. Shout It Out Loud
-03. Carry The Torch
-04. All I Wanna Say(   Читать дальше...   )Жанр: Rock, AOR, CCMПродолжительность: 00:52:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7FBD481CCD94CFEA8C426FFD2B0303F975CE697C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449965   (1029582) от 23.02.2021
-
-Лариса Иванова | Энциклопедия подготовки к школе. Мир растений (2015) [PDF]
-
->>Литература и прочие Обучающие материалы для детей и родителей
->>Энциклопедии и Познавательная литература для детей
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029582.jpg" />
-</div>
-
-
-###  Подробнее
-
-Энциклопедии предназначены для развития любознательности и воображения, формирования представлений о себе, о других людях, об объектах и свойствах окружающего мира, получения начальных сведений о родине, об отечественных традициях и праздниках, о планете Земля как общем доме людей, о богатстве ее природы.
-
-Серия является незаменимым пособием для увлекательной подготовки (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12E9DC21DD71383F70FDA91CDD7DC93594D67D00
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449952   (1029581) от 23.02.2021
-
-Карло Фруттеро, Франко Лучентини | Дама появилась в воскресенье (2013) [MP3, Вячеслав Герасимов]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029581.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну что может быть общего между виллами  и трущобами Турина? Однако все эти невидимые перегородки легко ломаются, уравнивая перед законом представителей высшего света, проституток и прочее отребья городского «дна», стоит лишь произойти убийству.
-Погиб известный в Турине архитектор. Способ его убийства по сути банален, однако предмет, каким был умерщвлен бедняга, необычен (   Читать дальше...   )Жанр: ДетективПродолжительность: 15:09:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D23FD7AAFE34FEC40DF47802A781328C1B1CD2A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449737   (1029580) от 23.02.2021
-
-Евгений Любимцев - На причале (2019) [FLAC|Lossless|tracks + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029580.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Соня Михельсон
-2. Осенняя любовь
-3. Бежит дорога
-4. Разбросала осень листья по аллеям(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:11:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88A60D0437606A70FD5BD7DD67906B94A1F70908
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449847   (1029579) от 23.02.2021
-
-VA - Soul Diary Chapter.1 (2021) [FLAC|Lossless|WEB-DL|tracks] <Tech House, Deep House, Progressive>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029579.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rory Gallagher & Arzuk - Soul De Anima (Thomas Gandey Last Communication edit)
-02. Hypersleep - Reason With The Sky (original mix)
-03. Ben Weber - Jetzt (original mix)
-04. Westseven - The Promise (feat Gabriel Lynch - Hypersleep remix)(   Читать дальше...   )Жанр: Tech House, Deep House, ProgressiveПродолжительность: 01:06:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDC4F622EA47730A4C4BFC67B1D5DE6E404A9604
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449825   (1029578) от 23.02.2021
-
-Эд Макбейн | 87-й полицейский участок (Книга 22). Легавые (2021) [MP3, Валерий Стельмащук]
-
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029578.jpg" />
-</div>
-
-
-###  Подробнее
-
-Виртуозный преступник шантажирует детективов 87-го участка. Звонок оказывается началом цепочки детективных событий, и сотрудникам участка придется здорово побегать в попытках разобраться, что к чему. Параллельно с этим Стив Карелла пытается отловить пару негодяев, развлекающихся поджиганием уличных бродяг.Жанр: ДетективПродолжительность: 06:39:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7854B6F84E2034FB19445B927B4BE0585A6D48C8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449940   (1029577) от 23.02.2021
-
-Зиновий Бельский - Жизнь, подари мне счастье (2014) [FLAC|Lossless|tracks + .cue] <Шансон>
-
->>Шансон, Авторская и Военная песня
->>Русский Шансон (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029577.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Вступление
-02. Сторонка
-03. Берёзонька
-04. В долине золотой(   Читать дальше...   )Жанр: ШансонПродолжительность: 01:05:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C8A5A06937358F8E270100292BBCFBB47920F424
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449747   (1029576) от 23.02.2021
-
-Marbin - Russian Dolls (2020) [FLAC|Lossless|WEB-DL|tracks] <Fusion,Jazz-Rock>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029576.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When There Becomes Here. 6:00
-02. Yellow Roman Candles. 2:57
-03. The Great Rosegray. 8:13
-04. Years That Ask Questions. 3:36(   Читать дальше...   )Жанр: Fusion,Jazz-RockПродолжительность: 00:35:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:042C812F5487D79CAB02D64C4EA101DC47358D46
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449779   (1029575) от 23.02.2021
-
-Monument Banks - Old Flame EP (2020) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
-
->>Electronic
->>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029575.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Monument Banks - Old Flame (04:58)
-02. Monument Banks, Shannon Farmer - Box Fresh (05:18)
-03. Monument Banks - Miscommunication (05:20)
-04. Monument Banks - Loop Thinking (04:55)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 00:25:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BDD74988747E448B8F3051AABBAEE1EA0EC5E393
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449924   (1029574) от 23.02.2021
-
-Talisha Karrer - Acoustic Covers (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029574.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Run (04:05)
-02. My Favourite Game (03:35)
-03. Apologize (02:48)
-04. You Have Been Loved (04:26)(   Читать дальше...   )Жанр: PopПродолжительность: 00:44:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D0E5D81B5234960CF500F9AE7E1C5781ECA547C2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449818   (1029573) от 23.02.2021
-
-Своя игра (22.02.2021) WEBRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Интеллектуальные шоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Российский вариант всемирно известной телеигры Jeopardy!. Это одна из немногих по-настоящему интеллектуальных игр на российском телевидении. «Своя игра» — отличный способ проверить свои знания, открыть для себя что-то новое и понаблюдать за азартной борьбой интеллектуалов!Производство: Россия | «Студия 2В»Телекомпания: «НТВ»Жанр: Интеллектуальная играСубтитры: ОтсутствуютПродолжительность: 00:41:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2558F8237ABA0F959A342D261B2283911CF2C018
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449782   (1029572) от 23.02.2021
-
-VA - Carbon Synthwave Sound (2021) [MP3|320 Kbps] <Synthwave, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029572.jpg" />
-</div>
-
-
-###  Подробнее
-
-Новаторский подход в электронной музыке особенно прослеживается на треках сборника "Carbon Synthwave Sound" своей неповторимой подачей, включающий в себя глубокий, порой академический саунд, виртуозную работу с различными музыкальными эффектами и превосходные мелодии, которые сразу сразу привлекают внимание к себе.001. Mr Xyborg - Homo Prototypum
-002. Wxlter - Resonance
-003. Bubaleh - Fireworks
-004. Binaural - Undo(   Читать дальше...   )Жанр: Synthwave, ElectronicПродолжительность: 10:23:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5C35A5159193BD2166C5BF65365D3DF374D71CCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449609   (1029571) от 23.02.2021
-
-VA - Armada Chill 002 (2015) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Downtempo, Ambient>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029571.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Chicane, Lisa Gerrard - Orleans (Sunrise Edit) (04:21)
-02. Disco Fries, Niko The Kid - The Light (Acoustic Version) (03:20)
-03. Maison & Dragen, Toni Nielson - Immortal Love (Orion & J.Shore Classical Remake) (03:29)
-04. Rezonate - Elemental (Radio Edit) (03:20)(   Читать дальше...   )Жанр: Deep House, Downtempo, AmbientПродолжительность: 01:19:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:63EF0B3D02B88152E9E14BB9BD54ECC5C158064C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449599   (1029570) от 23.02.2021
-
-Электрофорез - 505 (2021) [MP3|320 Kbps] <Electronic, Synth Pop, Darkwave, Experimental>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029570.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ходынка [00:02:09]
-02. 505 (Легко сойти с ума) [00:03:05]
-03. Опоздал [00:02:55]
-04. Первоцвет [00:03:21](   Читать дальше...   )Жанр: Electronic, Synth Pop, Darkwave, ExperimentalПродолжительность: 00:43:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CACB0111D26A488D2BBF77A235439C39B58B01A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449874   (1029569) от 23.02.2021
-
-Boys From Heaven - The Great Discovery (2020) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
+Atlas - Parallel Love (2020) [FLAC|Lossless|image + .cue] <AOR, Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
 >>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029569.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031172.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. The Ascent
-02. Green Fields
-03. Sunshine Soul
-04. Burning Like A Flame(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:49:46
+01. The Fever (4:34)
+02. Without You (4:35)
+03. In Your Head (3:38)
+04. Weathered Heart (3:36)(   Читать дальше...   )Жанр: AOR, Hard RockПродолжительность: 00:49:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ABAF072E23082B04A6D21D7BE6C1600CEC70F9DD
+magnet:?xt=urn:btih:0CC74E9EE00908545235002127EAA70668EB86B2
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -569,28 +132,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449781   (1029568) от 23.02.2021
+###  Публикация: 1448108   (1031171) от 16.02.2021
 
-VA - Fresh Beats: Hard Dance Compilation (2021) [MP3|320 Kbps] <Hardstyle, Hard Dance>
+VA - Beatport Deep House: Electro Sound Pack #239 (2021) [MP3|320 Kbps] <Deep House, Electro>
 
 >>Неофициальные сборники
->>Pop (сборники)
+>>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029568.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031171.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Самая жесткая хардкорная танцевальная музыка, от лучших представителей жанра в сборнике "Fresh Beats". Лучшие хардкорные диджеи собрались на лонгплее, чтобы разорвать ваши колонки бешенной музыкой.001. War Of Noize - Hurricaine
-002. Audio Damage - Protect
-003. Brennan Heart - Outcasts
-004. Bass Modulators - Live And Let Die(   Читать дальше...   )Жанр: Hardstyle, Hard DanceПродолжительность: 08:32:35
+Лейбл Beatport популярен во всех странах и отличается тем, что постоянно транслирует только самые свежие, качественные и оригинальные композиции в исполнении талантливых исполнителей. В сборнике вас ждет 100 популярных композиций в коммерческом жанре Deep House с направленностью на ритмичный бит и энергетику танца. С такой музыкой всегда встретишь хорошее утро и (   Читать дальше...   )001. Nocui - Learn How To Love
+002. Fresen - Forest Rain
+003. Øyvind - Light
+004. Fuenka - Vega (Extended Mix)(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:58:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E5AA77418E4A02239019F2D750A62A3582441994
+magnet:?xt=urn:btih:43C673615FEE6F9739FF7A55143F9B2FBBF49206
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,28 +161,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449712   (1029567) от 23.02.2021
+###  Публикация: 1448175   (1031170) от 16.02.2021
 
-Art Of Illusion - X Marks The Spot (2021) [FLAC|Lossless|WEB-DL|tracks] <Melodic Rock>
+Upchurch - Hideas: The Album (2021) [FLAC|Lossless|WEB-DL|tracks] <Hardcore Hip-Hop, Rap, Trap>
 
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
+>>Архив торрентов
+>>Архив Музыки
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029567.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031170.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Wild And Free
-02. Run
-03. My Loveless Lullaby
-04. Waltz For The Movies(   Читать дальше...   )Жанр: Melodic RockПродолжительность: 00:52:01
+01. Hideas 1 (2:53)
+ 02. Hideas 2 (2:56)
+ 03. Hideas 3 (2:48)
+ 04. Hideas 4 (3:16)(   Читать дальше...   )Жанр: Hardcore Hip-Hop, Rap, TrapПродолжительность: 00:31:15
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B0ADB77C29D745BBC517C86B211BFF59A8A0250E
+magnet:?xt=urn:btih:C6BDFA63BD762434C20C307F4AFD4F95CC14A987
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -627,25 +190,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449915   (1029566) от 23.02.2021
+###  Публикация: 1448138   (1031169) от 16.02.2021
 
-Правдивая история о Караваджо / La vera storia di Caravaggio (2013) DVB
+Flyer Creator - Poster Design 1.3 [En]
 
->>Документалистика и Телепередачи
->>Посвящение искусству
+>>Программы для macOS
+>>Графика для macOS
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029566.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031169.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Блистательный художник, один из крупнейших представителей барокко, Караваджо не раз бросал вызов и судьбе и окружающим. Он не щадил ни себя, ни тех, кому он был дорог. Враги клеймили его убийцей и развратником. Но что же двигало врагами Караваджо? За что его так поносили? Правда ли, что от его картин часто отказывались, а он все равно получал новые заказы?Производство: ИталияЖанр: Документально-постановочный, биография, история, искусствоРежиссер: Алессандра ДжигантеПеревод: Двуголосый закадровый, профессиональный (ИГМАР)Субтитры: отсутствуютПродолжительность: 00:57:15
+Листовки или как сейчас принято называть - Флаеры - это наиболее эффективное и ценное средство для рекламных кампаний и продвижения брендов, бизнеса и мероприятий с целью увеличения их видимости для широкой публики или целевой аудитории. Это наиболее экономически выгодное промежуточное звено между компанией и зрителем. Принимая во внимание, что бренд может даже увеличить (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.06.2020Разработчик: Tausif AkramПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4E636A4DF16C9C6470308173F9418CDE6FB25009
+magnet:?xt=urn:btih:622D71742331C12F3C2A87055FE701F6FE1D71F6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -653,27 +216,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449964   (1029565) от 23.02.2021
+###  Публикация: 1448209   (1031168) от 16.02.2021
 
-Иван Кудишин | Детская энциклопедия РОСМЭН. Корабли (2014) [PDF]
+Петр Волцит, Георгий Граубин | Почемучке обо всём на свете. Как меняется погода? (2016) [PDF]
 
 >>Литература и прочие Обучающие материалы для детей и родителей
 >>Энциклопедии и Познавательная литература для детей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029565.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031168.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Без мореплавания было бы невозможно существование современной цивилизации. Эта книга знакомит юных читателей с удивительным миром кораблей древних и современных, больших и маленьких, торговых и военных.
-
-Здесь рассказывается об истории развития флота, о различных типах судов и самых известных кораблях, о пиратах и знаменитых флотоводцах. Читатель откроет для себя (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+Книжка популяризаторов науки Волцита П.М. (Что такое погода?) и Граубина Г.Р. (Листопад) «Как меняется погода?» расскажет читателям о том, откуда берутся тучи, дожди, туман, роса, ветер, гром, молния, град, снег и многие другие атмосферные явления. Что такое давление, циклоны и антициклоны, как можно предсказать погоду и как вести себя при грозе. Также юных читателей (   Читать дальше...   )Жанр: Познавательная литература для детейФормат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93BD4975E7F18B3D0B177B9A5EBFBCF613A16797
+magnet:?xt=urn:btih:5A766B540FD80270F410B22D256A85213A96B8E3
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -681,28 +242,188 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449908   (1029564) от 23.02.2021
+###  Публикация: 1448241   (1031167) от 16.02.2021
 
-Soen - 5 Studio Albums (2012-2021) 5xCD [FLAC|Lossless|image + .cue] <Progressive Metal>
+ON1 Photo RAW 2021.1 v15.1.0.10093 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031167.jpg" />
+</div>
+
+
+###  Подробнее
+
+ON1 Photo RAW 2021 включает в себя ключевые обновления для быстрого недеструктивного механизма обработки снимков в формате RAW. Теперь у фотографов появился инструмент с быстрым управлением фотографиями, точная обработка фотографий, сотни настраиваемых фотоэффектов, удобная и красивая склейка HDR, панорамы, маскировка и корректировки смешивания, работа со слоями (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2021Разработчик: ON1, Inc.Поддерживаемая ОС: macOS 10.12+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37023BE7A4A4E8C5B76664A967EB04E9102A8983
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448078   (1031166) от 16.02.2021
+
+Bartender 4 v4.0.37 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031166.jpg" />
+</div>
+
+
+###  Подробнее
+
+Bartender - утилита для простой организации иконок приложений в статус баре.
+Данное приложение поможет навести порядок в значках на панели меню. Принцип работы Bartender очень прост. В строке меню появляется иконка приложения, нажатие на которую открывает подменю, в котором будут прятаться все "лишние" иконки. В настройках приложения можно указать, какие (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 15.02.2021Разработчик: Surtees Studios LtdПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AEA73152C351939FD63E1E337761442B8DB223EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448082   (1031165) от 16.02.2021
+
+Patchwork, Mike Moore Company, Cosmic Angel - Patchwork Party (1978) LP [MP3|320 Kbps] <Electronic, Easy Listening, Cosmic Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031165.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patchwork - Sweet Sabrina (Patchwork Party) (3:18)
+02. Mike Moore Company - A Woman Like You (3:43)
+03. Patchwork - Jacaranda (3:05)
+04. Mike Moore Company - Father Time (2:56)(   Читать дальше...   )Жанр: Electronic, Experimental, Easy Listening, Cosmic DiscoПродолжительность: 00:37:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE256BC2765B0E085D38EC6B042EE8B1FE171C53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448077   (1031164) от 16.02.2021
+
+Reeder 5 v5.0.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031164.jpg" />
+</div>
+
+
+###  Подробнее
+
+Приложения для чтения новостей на Mac с поддержкой различных сервисов синхронизации.Тип издания: macOS SoftwareРелиз состоялся: 12.02.2021Разработчик: Silvio RizziПоддерживаемая ОС: macOS 10.15 и вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A9F4C9A2D6C2A3E52D04D1FCEFE3982E4CC882E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448021   (1031163) от 16.02.2021
+
+Протоиерей Григорий Дьяченко | Искра Божия. Сборник рассказов и стихотворений для чтения в христианской семье и школе для девочек (2018) [PDF, FB2, EPUB]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Детская литература
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта книга является переизданием вышедшего в 1903 г. популярного сборника «Искра Божия», составленного известным духовным писателем, протоиереем Григорием Дьяченко. «Искра Божия» ориентирована на религиозно-нравственное воспитание девочек, девиц и жен и явилась первым в российской педагогической литературе опытом создания собственно книги для девочек. Её цель (   Читать дальше...   )Жанр: Православие. Проза. Поэзия. Духовно-просветительное изданиеФормат: PDF, FB2, EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9681AF48C9AA96EFAA99FEC82753144B65626FF2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448120   (1031162) от 16.02.2021
+
+Mirror for LG TV 3.6.2 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031162.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отображение экрана для телевизоров LG. Приложения для зеркального отображения экрана вашего Мака на любом Смарт-ТВ LG. Никаких проводов и дополнительных аппаратных средств не требуется. Приложение работает на любой модели Смарт-ТВ LG с 2012 и новее. При использовании приложения, будет возникать задержка в несколько секунд (обычно между 1 и 3 секундами). Поэтому данное (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.02.2021Разработчик: AirBeamTV BVПоддерживаемая ОС: macOS 10.10 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1D8129F5104A7C9878E58598DF25D018062859C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448140   (1031161) от 16.02.2021
+
+Stone Fury - Burns Like A Star (1984) Limited Edition, Reissue, 2013, Geffen Records [FLAC|Lossless|image + .cue] <Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029564.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031161.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Soen - супергруппа, объединившая в самом начале своего становления таких столпов мировой метал-сцены, как Мартин Лопеc (Opeth, Аmon Amarth), Стив ДиДжиорджио (Sadus, Testament, Death, Iced Earth), Джоел Экелёф (Willowtree) и Ким Платбарздис. Первоначально команда была сформирована Мартином Лопесом и Кимом Платбарздисом в 2004 году. Впервые она была официально представлена (   Читать дальше...   )2012 - Cognitive
-2014 - Tellurian
-2017 - Lykaia
-2019 - Lotus(   Читать дальше...   )Жанр: Progressive MetalПродолжительность: 04:21:29
+01. Break Down The Walls
+02. I Hate To Sleep Alone
+03. Life Is Too Lonely
+04. Don't Tell Me Why(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:38:54
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9054EA6600CACA4E1AFFEC1D88946CB50DA82D76
+magnet:?xt=urn:btih:5EBEA361010B0D36E25346E2D44551B4220DEAF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,27 +431,273 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1449951   (1029563) от 23.02.2021
+###  Публикация: 1448027   (1031160) от 16.02.2021
 
-Бенедикт Джэка | Участь (2019) [MP3]
+VA - The Unknown Collection Vol 2 (2021) [FLAC|Lossless|WEB-DL|tracks] <Drum & Bass>
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Electronic
+>>Drum'n'Bass, Jungle, Breaks, Breakbeat (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1029563.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Первый роман цикла «Алекс Верус».
-
-Алекс Верус – тридцатилетний маг-прорицатель – владеет собственным оккультным магазинчиком и живет затворником в Лондоне. Его напарница, двадцатилетняя Лона носит на себе родовое проклятие, но не унывает и добывает на местных барахолках всякие занятные вещицы для своего приятеля-колдуна. Однажды Лона приносит Алексу странную находку (   Читать дальше...   )Жанр: Героическое фэнтези, Городское фэнтези, Зарубежное фэнтезиПродолжительность: 11:33:45
+01. Jungle (04:54)
+02. The Other Side (05:44)
+03. Feels Like Summer (05:14)
+04. Lovely (05:42)(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 02:32:24
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0705A0A4249606E577AB6B6BD4F2EF2680081EF0
+magnet:?xt=urn:btih:55ED3A526E9D5E1C6D6A35CC90F0A775E354E9C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448153   (1031159) от 16.02.2021
+
+Flyer Design – Flyer Templates for Word 1.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031159.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флаеры - эффективные инструменты для продвижения, независимо от того, используются ли они для бренда, бизнеса или мероприятия. Эти рекламные материалы легко распространять и с меньшими усилиями доходят до широкой аудитории. Раздайте их в местах с интенсивным пешеходным движением, таких как метро, ​​торговые центры и продуктовые магазины. Flyer Design (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 22.12.2016Разработчик: xin jinПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78A97E8E32B22C2534418F9D6BBCA1EA52E0FB67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448081   (1031158) от 16.02.2021
+
+Национальный лес Блэк-Хиллз / Black Hills National Forest (2019) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031158.jpg" />
+</div>
+
+
+###  Подробнее
+
+Национальный лес Блэк-Хиллз, расположенный в западной части Южной Дакоты, занимает 1,2 миллиона акров бесподобной красоты.Производство: СШАЖанр: Документальный, видовойРежиссер: Братья ПаттисПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:03:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C04BB1CEC135BE729B09AD262B3AB3F2B060C018
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448218   (1031157) от 16.02.2021
+
+Ульяна Вольная | Женщина-Волшебство (2020) [EPUB]
+
+>>Художественная литература
+>>Современная поэзия и проза
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031157.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проституция – это не жизнь, а поле боя, которое травмирует женщин ничуть не меньше, чем война мужчин.
+Так считает главная героиня книги, которая волею судьбы была вынуждена освоить древнейшую профессию и сквозь призму этой деятельности познать людей с их достоинствами и пороками. Будучи на волосок от побоев, болезней и унижений, девушка пытается разобраться в самой (   Читать дальше...   )Жанр: Современная русская литератураФормат: EPUB
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:77EB2BE54C8A7FDC57ABF9A5FBEB7D5A00066B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448115   (1031156) от 16.02.2021
+
+VA - Weightless Rain (2021) [MP3|320 Kbps] <Chillout, Chill House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031156.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отрешитесь от суеты и растворитесь в мелодиях прекрасной музыки музыкального сборника с говорящем о себе названии "The Weightless Rain". Музыка проникающая глубоко в душу, порождающая невесомые, благородные чувства, дозволяя не только наслаждаться звуком музыкальных инструментов, но и осознать всю свою жизнь, излечить сердце, забыть о суете и погрузиться (   Читать дальше...   )001. Byron The Aquarius - End Of Time
+002. Rue - Eva
+003. Lin Q - Fall In Love Again
+004. Addex - Spiral(   Читать дальше...   )Жанр: Chillout, Chill HouseПродолжительность: 11:59:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73160A44ABA2F96913A93307CF4026C0CAEB334F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448036   (1031155) от 16.02.2021
+
+Boy George And Culture Club - Life (2018) [FLAC|Lossless|tracks + .cue] <Pop Rock>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031155.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. God & Love (04:13)
+02. Bad Blood (03:25)
+03. Human Zoo (03:21)
+04. Let Somebody Love You (03:45)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E6A8C74B0118E2051662109B6C17F48229142E33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448220   (1031154) от 16.02.2021
+
+К.А. Залесский (ред.) | Иллюстрированная энциклопедия для мальчиков (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031154.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой энциклопедии собраны самые разнообразные и интересные факты по истории нашей страны, военной истории, истории техники, авиации, различным видам спорта и многом другом. Тысячи фактов и почти
+3000 красочных рисунков и фотографий позволят юным читателям лучше ориентироваться в материале и получать удовольствие от чтения.Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FABF96074D991847C1AAB7A4B830A511EA2395C4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448213   (1031153) от 16.02.2021
+
+А.В. Чудова (ред.) | Иллюстрированная энциклопедия для девочек (2011) [PDF]
+
+>>Литература и прочие Обучающие материалы для детей и родителей
+>>Энциклопедии и Познавательная литература для детей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031153.jpg" />
+</div>
+
+
+###  Подробнее
+
+В этой энциклопедии собраны самые разнообразные интереснейшие сведения по биологии, архитектуре, литературе, музыке, изобразительному искусству, кулинарии, географии, дизайну и многому другому. Статьи энциклопедии, сопровождаемые прекрасными рисунками и фотографиями, позволят читателям лучше ориентироваться в материале. Все темы расположены по алфавиту, что значительно (   Читать дальше...   )Жанр: Энциклопедия/Познавательная литератураФормат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B08A97B4DD4ED8F8F718D769F5DE26BE2D23FF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448145   (1031152) от 16.02.2021
+
+Flyer Design – Flyer Templates for illustrator 1.0 [En]
+
+>>Программы для macOS
+>>Графика для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031152.jpg" />
+</div>
+
+
+###  Подробнее
+
+Флаеры - эффективные инструменты для продвижения, независимо от того, используются ли они для бренда, бизнеса или мероприятия. Эти рекламные материалы легко распространять и с меньшими усилиями доходят до широкой аудитории. Раздайте их в местах с интенсивным пешеходным движением, таких как метро, ​​торговые центры и продуктовые магазины. Flyer Design (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.12.2016Разработчик: xin jinПоддерживаемая ОС: macOS 10.10+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC1B1F9F5085319CFF6A1E29CA37BFEA98313F4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1448114   (1031151) от 16.02.2021
+
+VA - The Black Lavender (2021) [MP3|320 Kbps] <Rock, Alternative>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031151.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сильный и монументальный вокал, гармонирующий с традиционными музыкальными инструментами и электронной музыкой – изрядная редкость. Оригинальные, атмосферные, трогательные и в то же время напористые композиции были специально отобраны и включены в релизе «The Black Lawender», в котором представлены музыкальные жанры рока и рок альтернативы.001. Coast To Coast - Be Kind (Alternative)
+002. Cymatica - Hours
+003. American Hi-Fi - Oliver's Army
+004. Good Tiger - Animal Mother(   Читать дальше...   )Жанр: Rock, AlternativeПродолжительность: 10:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1C02FF9920E2C0A5750F17F5039D621741E386E4
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 939307   (473560) от 22.09.2015
+
+Donna Hightower - Take One! & Gee, Baby, Ain't I Good To You? (2009) [FLAC|tracks+.cue]<Jazz, Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473560.jpg" />
+</div>
+
+
+###  Подробнее
+
+Donna Hightower "Take One!" with Sid Feller's All-Star Group (Capitol T 1133)
+01. Perfidia (Albert Dominguez-Milton Leeds) (02:30)
+02. Maybe You'll Be There (Rube Bloom-Sammy Gallup) (02:49)
+03. Lover Come Back To Me (Sigmund Romberg-Oscar Hammerstein II) (01:59)(   Читать дальше...   )Жанр: Jazz, Vocal JazzПродолжительность: 01:00:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:19E0CC0CC9D4CABFD33A6D384027802982EBCE30
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 939539   (473464) от 22.09.2015
+
+Fourplay - Silver (2015) [FLAC|Lossless|WEB-DL]<Smooth Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_473464.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Quicksilver
+02. Horace
+03. Sterling
+04. A Silver Lining(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:59:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D4FED083390A57A0DD4BD9E590CB766AF174E8E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1057849   (473432) от 29.09.2016
 
 Eric Reed - Groovewise (2014) Smoke Sessions Records[FLAC|Lossless|tracks + .cue] <Post-Bop>
@@ -688,64 +746,6 @@ CD - 3: Evening Ember EvocationsЖанр: Contemporary Jazz, Jazz-Funk, Smooth J
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DF0C9B63329EAE4EC25887FD726A989C5004F411
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1567683   (470318) от 04.08.2022
-
-Johnathan Blake - Homeward Bound (2021) Blue Note [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470318.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. In the Beginning Was the Drum [1:00]
-02. Homeward Bound (For Ana Grace) [9:13]
-03. Rivers & Parks [8:00]
-04. Shakin' the Biscuits [4:52](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:43:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70825B549D2617C8DD89841083DF14EED566F1E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1245706   (470179) от 07.09.2018
-
-Eric Reed - Here (2006) MaxJazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_470179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Stablemates [7:44]
-02. Kokomo [2:03]
-03. I C H. N. (For Herbie Nichols) [4:49]
-04. Hymn [1:28](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B913B06BB9822C6F531139B3FD7E4727FD0DFAA8
 ```
 
 https://mybot314.ru/tekegram_catalog/

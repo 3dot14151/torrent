@@ -1,3 +1,61 @@
+###  Публикация: 705698   (448911) от 30.09.2013
+
+VA - Cocktail Jazz (2008) Jazzclub [FLAC|Lossless|image + .cue]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mel Torme - 'Round Midnight [3:15]
+02.  Blossom Dearie - Manhattan [4:19]
+03.  Count Basie - Watermelon Man [3:13]
+04.  Shirley Horn - Hit The Road, Jack [3:11](   Читать дальше...   )Жанр: JazzПродолжительность: 01:07:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A619214A19ABF5ADE5B1DE898EE2530D6398CE28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061451   (448870) от 10.10.2016
+
+Carlos Santana - Blues For Salvador (1987) [FLAC|Lossless|image + .cue] <Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448870.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bailando/Aquatic Park (5:47)
+02. Bella (4:29)
+03. I'm Gone (3:09)
+04. 'Trane (3:10)(   Читать дальше...   )Жанр: FusionПродолжительность: 00:45:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:67C7821E186C94595C908731EDEDDA123A100358
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061439   (448867) от 10.10.2016
 
 Herbie Hancock - The Very Best Of (1991) [FLAC|Lossless|image + .cue] <Jazz-Funk, Jazz-Rock, Fusion>
@@ -712,64 +770,6 @@ Mel Torme - The Mel Torme Collection 1944-1985 (1996) BoxSet 4CD[FLAC|Lossless]<
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1163861   (446213) от 07.09.2017
-
-Charlie Parker - Chasin' The Bird (1940-e - 1950-e) 4CD, 2005, Proper Records [FLAC|Lossless|tracks + .cue] <Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446213.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1 - Bird Takes Off:
-01. Cherokee [02:51]
-02. I'm Forever Blowing Bubbles [04:00]
-03. Sweet Georgia Brown [07:44](   Читать дальше...   )Жанр: BopПродолжительность: 05:15:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:31373C4E2BD441D2D304873892F20363647B27D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1061530   (446146) от 11.10.2016
-
-Norah Jones - Little Broken Hearts [SHM-CD] [Limited Pressing] [Japan Bonus Track] (2016) [FLAC|Lossless|image + .cue] <Vokal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446146.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD: Norah Jones - ...Little Broken Hearts
-01. Good  Morning [0:03:17.55]
-02. Say Goodbye [0:03:27.34]
-03. Little Broken Heart [0:03:12.16](   Читать дальше...   )Жанр: Vokal JazzПродолжительность: 00:48:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59916E743E8C23EDA1B4641C4F64B8C094F4B879
 ```
 
 https://mybot314.ru/tekegram_catalog/

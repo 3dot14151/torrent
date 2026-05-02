@@ -1,3 +1,206 @@
+###  Публикация: 1237519   (551478) от 24.07.2018
+
+Andre Gagnon - Les Jours Tranquilles (1993) [FLAC|Lossless|tracks + .cue] <Instrumental, Piano, New Age>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_551478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Un Piano Sur La Mer
+02. Chanson Du matin
+03. Photo Jaunie
+04. Souvenir Lointain(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:49:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:901EEE9DD7FEADCCDC26B9C69E7FB52171E84855
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1046486   (550941) от 28.08.2016
+
+Dolly Parton - Pure & Simple (2016) UK Edition [MP3|320 Kbps] <Country, New Wave>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550941.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1: Pure & Simple
+
+01. Pure and Simple [02:43]
+02. Say Forever You'll Be Mine [02:48](   Читать дальше...   )Жанр: Country, New WaveПродолжительность: 01:40:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06BAADA5F1D5286D1F809BDAA8DD3F18F031974D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047068   (550938) от 28.08.2016
+
+Shabala - Shabala (1998) [MP3|320 Kbps] <World, Tribal, Dance>
+
+>>Other Styles
+>>Other
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550938.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mandala (3:04)
+02. Yeka Yeka (3:21)
+03. Samana (5:44)
+04. Santana (3:29)(   Читать дальше...   )Жанр: World, Tribal, DanceПродолжительность: 00:50:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:319E61BF907F16EE9F4D1BE5C623F46FE63775DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237750   (550552) от 25.07.2018
+
+Nigel Stanford (John Stanford) - Discography (1999-2017) [MP3|320 Kbps] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550552.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Watchers (9:26)
+02. Deep Space (8:09)
+03. Aurora (9:58)
+04. Sea Of Tranquility (7:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 04:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DE99E2BEC1CD1A1705E14BB32A0962BF633EBBB8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1237756   (550380) от 25.07.2018
+
+Nigel Stanford (John Stanford) - Discography (1999-2017) [FLAC|Lossless|tracks + .cue] <Downtempo, Ambient, New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550380.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Watchers (9:25)
+02. Deep Space (8:09)
+03. Aurora (9:58)
+04. Sea Of Tranquility (7:42)(   Читать дальше...   )Жанр: Downtempo, Ambient, New AgeПродолжительность: 04:06:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1AEFF98B64521A3EEBA49BEC6C952C488284CDA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047221   (550094) от 29.08.2016
+
+Liz Longley - Weightless (2016) [FLAC|Lossless|tracks] <Country, Alt Country>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550094.jpg" />
+</div>
+
+
+###  Подробнее
+
+1 - Swing (4:09)
+2 - Weightless (3:20)
+3 - Say Anything You Want (3:05)
+4 - Rescue My Heart (3:11)(   Читать дальше...   )Жанр: Country, Alt CountryПродолжительность: 00:33:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C981C55F1D31716CA4DFEE1E64014C042A3A575C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1047215   (550029) от 29.08.2016
+
+Courtney Marie Andrews - Honest Life (2016) [FLAC|Lossless|tracks] <Country, Americana>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_550029.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Rookie Dreaming (3:28)
+02 - Not the End (2:27)
+03 - Irene (3:47)
+04 - How Quickly Your Heart Mends (3:46)(   Читать дальше...   )Жанр: Country, AmericanaПродолжительность: 00:36:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2825629EFDA3A516C081FB09EDEA5B4A5692EF16
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1047219   (550013) от 29.08.2016
 
 Aenigmatica - Sanctum (2016) [MP3|320 Kbps] <Ambient, New Age>
@@ -539,209 +742,6 @@ Hong Kong Virtuosi Folk Ensemble - Four Virtuosi Plays Chinese Traditional Music
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7850F5F526B73F14B6AF36341C9537C6E32E6C2C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 925019   (543086) от 05.08.2015
-
-Ivonne Alexander - Benevolence (2015) [MP3|320 кб/с]<Electronic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543086.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rebirthing Earth
-02. Summoning the Power of Woman
-03. Awakening the Goddess Within
-04. AH Prayer Description(   Читать дальше...   )Жанр: Electronic, New AgeПродолжительность: 00:40:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDB7FAA0D64E031E54E6FA027DE6507C56E81610
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 365365   (543031) от 20.07.2011
-
-Suren Asaduryan - Horovel (2005) [MP3|320 kbps]<Instrumental, Duduk>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_543031.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Horovel
-02. Duanmerez
-03. Oror
-04. Rast(   Читать дальше...   )Жанр: Instrumental, DudukПродолжительность: 00:55:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B142419C160A5DF67C47F3474B56FE08D1E65E4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153969   (542654) от 29.07.2017
-
-Brian Tyler - Мумия / The Mummy (2017) Dеluхе Еditiоn [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542654.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Mummy (4:30)
-02. The Secret of the Mummy (4:42)
-03. Nick's Theme (2:04)
-04. Prodigium (2:51)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 02:04:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4C248E98BBA3A3FC46CE0A66196AB16F0A80ECD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154063   (542653) от 29.07.2017
-
-Артель Роса - Ляпота (2017) EP [MP3|320 Kbps] <Russian Urban Folk>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542653.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ляпота
-02. Тюря
-03. Чучело
-04. Ляпота (Instrumental)(   Читать дальше...   )Жанр: Russian Urban FolkПродолжительность: 00:20:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F15966906DFEE4A5322E7534A61DFEFE7834EB6D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1154183   (542536) от 29.07.2017
-
-VA - Best of Cuba (2017) [MP3|320 Kbps] <Latin Music, Cuban>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542536.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tumbao Cubacao - El sonero del barrio soy magou
-02. Mario Mayito Rivera - Son pa' Shakira
-03. Combinacion Latina Salsa - Estoy pegado
-04. Mario Mayito Rivera - Harley Davidson de Cuba(   Читать дальше...   )Жанр: Latin Music, CubanПродолжительность: 01:16:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:58090DD16AD40E8B768032A41ACE72EA0B0B830A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1153629   (542524) от 29.07.2017
-
-VA - Latino Brazilian Party (Top Hits) (2017) [MP3|320 Kbps] <Latin Music>
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542524.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Latin Band - Ai Se Eu Te Pego
-02. Roland - Danza Kuduro
-03. Latin Band - Waka Waka
-04. Krizia - On The Floor(   Читать дальше...   )Жанр: Latin MusicПродолжительность: 03:42:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:75CDF946AD99E98A14BDF8B0880CD711FCEA142F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1239123   (542424) от 03.08.2018
-
-Simon Daum - Awaited (2018) [MP3|320 Kbps] <Instrumental, Piano, New Age>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_542424.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 – Call of the Mountains
-02 – Are You Really Gone?
-03 – Falling Leaves
-04 – Life Changers(   Читать дальше...   )Жанр: Instrumental, Piano, New AgeПродолжительность: 00:50:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FC9A866705FC0CE2AE584195EEB1932A23D2FBEF
 ```
 
 https://mybot314.ru/tekegram_catalog/

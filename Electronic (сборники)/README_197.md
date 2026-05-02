@@ -1,3 +1,61 @@
+###  Публикация: 1590395   (188745) от 14.11.2022
+
+Imazee - Compilation (2022) [MP3|320 Kbps] <Instrumental, Electronic>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188745.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Running Away
+02. You Tell Me
+03. Me and You
+04. Only You(   Читать дальше...   )Жанр: Instrumental, ElectronicПродолжительность: 02:52:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:675E70D565B6EAB2DAB9DC110D785E8CA136CC51
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1661509   (188446) от 15.09.2023
+
+VA - Deep House, Baby 6 (2023) [MP3|320 Kbps] <Deep House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_188446.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Paul Lock - Let It Out (Original Mix) (3:54)
+02. Enrique Iglesias - Ring my bells (Deep House By Afrasiâb Remix) (3:14)
+03. МОНЭ' - ТАТУ И ВЕТЕР (4:46)
+04. CamisheMax Oazo - Every Breath You Take (3:32)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 06:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6D78060483245744E619F444D5B220AEE516EEF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1827473   (188098) от 21.10.2025
 
 VA - Deep House Female Vocal 2 (2025) [MP3|320 Kbps] <House>
@@ -687,64 +745,6 @@ VA - Oriental Deep 4 (2023) [MP3|320 Kbps] <Deep House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:43CBF25C072E5BB78E0C2B80881392A6A57981D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429844   (175178) от 08.12.2020
-
-VA - Beatport Tech House: Electro Sound Pack #205 (2020) [MP3|320 Kbps] <Edm, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175178.jpg" />
-</div>
-
-
-###  Подробнее
-
-Текст001. Uhlenhorst - Panamera
-002. Dannyo - Smoke And Mirrors
-003. Johnny Electro - Acid Rain
-004. Maurice Myers - Supermod(   Читать дальше...   )Жанр: Edm, Tech HouseПродолжительность: 12:52:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A050D7B4D7A439A172C2664F89E8A70EF3E98D86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1429839   (175149) от 08.12.2020
-
-VA - Beatport Deep House: Electro Sound Pack #206 (2020) [MP3|320 Kbps] <Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_175149.jpg" />
-</div>
-
-
-###  Подробнее
-
-В созвучии наступившей зимы  с её морозным дыханием предлагаем вам новую подборку Дип Хаус музыки в 206-м миксе от Beatport. Треки сборника даруют вам долю отличного настроя и скрасят ваш вечер великолепной клубной музыкой.001. Black Garden - So Close To Me
-002. Sensorica - Lullaby Jet
-003. Sam (Col) - Concept Of People
-004. Oscar G - Warehouse Girl(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:48:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E05529CF01B33D7666488F97014639EBEF29BC9
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,177 @@
+###  Публикация: 1739582   (105986) от 28.07.2024
+
+Marcus Anderson - The Vibe (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Smooth Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105986.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Anyway You Want It (3:58)
+02. The Vibe (4:29)
+03. Vibe Out (4:20)
+04. Farewell (5:05)(   Читать дальше...   )Жанр: Smooth JazzПродолжительность: 00:46:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:43E7C623AA96E2B60F1A27A0AC9C8A3774D339F7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739921   (105962) от 31.07.2024
+
+Empire Of The Sun - Ask That God (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electropop, Synth-pop, Indie Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105962.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Changes [00:03:38]
+02. Cherry Blossom [00:03:27]
+03. Music On The Radio [00:02:56]
+04. The Feeling You Get [00:04:16](   Читать дальше...   )Жанр: Electropop, Synth-pop, Indie PopПродолжительность: 00:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:080B261677B6430A3AE0E5DD67053684DA9EA9DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740039   (105956) от 31.07.2024
+
+VA - XXXL 3. Танцевальный Размер (2000) Unofficial Release [FLAC 2.0|48/24|image +.cue|MC-Rip] <Europop, Dance-pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105956.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона А:
+A1 Тату – Я Сошла С Ума (Remix)
+A2 Жуки – Танкист (Remix)
+A3 Дискотека ''Авария'' – Новогодняя 2001(   Читать дальше...   )Жанр: Europop, Dance-popПродолжительность: 01:17:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:33985487BFFF65198EFA6E2744B08B10A86C2AA2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740125   (105924) от 31.07.2024
+
+Slaughter to Prevail - Kostolom (2021) Released, 2022, Sumerian Records [WavPack|Lossless|image + .cue] <Deathcore>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bonebreaker
+02. Demolisher
+03. Baba Yaga
+04. Made In Russia(   Читать дальше...   )Жанр: DeathcoreПродолжительность: 00:48:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DD9F79DE075BDAA586E8B9EAE79829324ED6BB15
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1739898   (105922) от 31.07.2024
+
+Train - Live At Royal Albert Hall (2024) [FLAC 24/96|Lossless|WEB-DL|tracks] <Pop-Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AM Gold (Live At Royal Albert Hall) [04:57]
+02. Calling All Angels (Live At Royal Albert Hall) [04:42]
+03. Get to Me (Live At Royal Albert Hall) [05:03]
+04. Save Me, San Francisco (Live At Royal Albert Hall) [04:36](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:35:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3549AE8AE7E81628D0D9E26BAD472645E4B57C9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1740085   (105921) от 31.07.2024
+
+Villano Antillano - Miss Misogyny (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105921.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. CamGirl >.< !!! [00:02:35]
+02. 1-800-CRISTAL [00:02:41]
+03. Super Hoe [00:02:11]
+04. Clonazepamela [00:02:10](   Читать дальше...   )Жанр: PopПродолжительность: 00:26:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8D5AD6DD02C5B33959E06DDF22F8B7750506EF22
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1739905   (105916) от 31.07.2024
 
 Gun - Hombres (2024) Damaged Edition [FLAC 16,24/44.1,48|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -565,180 +739,6 @@ The Jive Aces - Keeping the Show on the Road (2024) [FLAC 24/96|Lossless|WEB-DL|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6B81E5A5E9C9F57C65759B76F89B6C180C2E16ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740836   (105739) от 04.08.2024
-
-Papa Roach - Leave a Light On (Talk Away The Dark) (2024) EP [FLAC 16/44.1, 24/48, 24/44.1|Lossless|WEB-DL|tracks] <Rock, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105739.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Leave a Light On (Talk Away The Dark) [3:07]
-02 - Leave a Light On (Talk Away The Dark) [3:08]
-03 - Scars (feat. Chris Daughtry) [3:52]
-04 - Leave a Light On (Talk Away The Dark) (Piano Vocal) [3:07](   Читать дальше...   )Жанр: Rock, Alternative RockПродолжительность: 00:20:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B698FD5314AFCC68FF23AA52F5CAD753475C195
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740973   (105734) от 04.08.2024
-
-Roberto Giaquinto - Ground Floor (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105734.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Turkish Flower (3:56)
-02. Scissors (0:28)
-03. The Phoenix (2:44)
-04. Ground Floor (3:22)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 01:03:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D095A432F34C5D86825459FD830E3673C5F6BB45
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740963   (105733) от 04.08.2024
-
-Joseph Marcus - Beyond The Dome: The Remixes (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105733.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Arrival of the Giants (Wonky Logic Remix) (3:42)
-02. Beyond the Dome (Ben Nobuto Remix) (3:43)
-03. Morning Affirmation (Scott Xylo Remix) (2:57)
-04. Challenge Day (NikNak Remix) (3:34)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:30:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C7536538B7E1B7CCEDA718AD397D14F80CA4804
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740968   (105732) от 04.08.2024
-
-Mai-Liis - Kaleidoscope (2024) [FLAC 24/88.2|Lossless|WEB-DL|tracks] <Vocal Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105732.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Book (5:01)
-02. Wash Away the Wrong (5:01)
-03. What If I Met You Then (5:00)
-04. New Year's Ditty (3:21)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:39:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:543869B5B682F6122A38646CECA35B3D6107AC84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740977   (105731) от 04.08.2024
-
-Soren (Søren) Lee, Jakob Dinesen, Victor Jones - Hope (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Contemporary Jazz>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105731.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Moving On (5:21)
-02. Hope (7:09)
-03. Like Tears in The Rain (5:15)
-04. Let's Go (4:34)(   Читать дальше...   )Жанр: Contemporary JazzПродолжительность: 00:49:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6BC667F47D3CF91E01081D8927D30DDD3A34858
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1740970   (105730) от 04.08.2024
-
-Nils Landgren Funk Unit - Raw (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Jazz, Funk>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_105730.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raw (3:06)
-02. If You Like It (4:15)
-03. In Your Skin (4:50)
-04. On the One (3:42)(   Читать дальше...   )Жанр: Jazz, FunkПродолжительность: 00:45:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010584796175160D78B45DDF0E4F2BB24B7D21DF
 ```
 
 https://mybot314.ru/tekegram_catalog/

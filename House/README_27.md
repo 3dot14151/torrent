@@ -1,3 +1,206 @@
+###  Публикация: 1020648   (745390) от 26.05.2016
+
+Gregory Esayan - Pilgrim's Diary (2016) [MP3|320 кб/с] <Progressive House , Breaks>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_745390.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Healer (Intro) (5:02)
+02. Changes (Original Mix) (7:29)
+03. Make a Wish (Original Mix) (7:33)
+04. Healer (Original Mix) (8:59)(   Читать дальше...   )Жанр: Progressive House, BreaksПродолжительность: 01:21:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE1F83CCE554549F80A15D71E50F86C1E12854B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1217115   (744872) от 03.04.2018
+
+The Soundlovers - People (1997) [MP3|320 Kbps] <Euro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744872.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Run a Way (Intro) (1:16)
+02. People (3:31)
+03. She Hates Love (3:32)
+04. Murder in Berlin (4:53)(   Читать дальше...   )Жанр: Euro-HouseПродолжительность: 00:45:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:804038E1388EBB67B4668605E8B26B97228EA0CA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1282766   (743843) от 13.02.2019
+
+Hi_Tack - Say Say Say (Waiting 4 U) (2006) Enhanced [MP3|~245 Kbps (V0)] <House, Electro>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_743843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Say Say Say (Wayting 4 U) (2:50)
+02. Oh la la (feat. Morandi) (6:12)
+03. Love Sensation (feat. Loleatta Holloway) (3:01)
+04. Somebodys Watching Me (feat. Beatfreakz) (2:44)(   Читать дальше...   )Жанр: House, ElectroПродолжительность: 01:14:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ACB76FA9465303266D36E4DC07E8BA3CFB74201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1397311   (741362) от 19.07.2020
+
+VA - Tokyo Kick Boxing Hits 2020 Session [MP3|320 Kbps] <House, Dance>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741362.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dj Hush - Good Vibrations (3:25)
+02. Orlando - Singing In The Rain (4:06)
+03. Heartclub - Super Trouper (3:53)
+04. DJ Kee - Mamma Mia (3:53)(   Читать дальше...   )Жанр: House, DanceПродолжительность: 00:58:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69750BC0797E214135DE1A7F7D7DED212F7C3251
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1283139   (741232) от 15.02.2019
+
+BK - Klub Kollaborations (2003) [MP3|320 Kbps] <House, Hard House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. BK & Christopher Lawrence - Warp (7:23)
+02. BK & EJ Doubell - Butterflies (7:46)
+03. BK & Tom Harding - Raucous (2:56)
+04. BK & Dave Randall - Tiptronic (5:25)(   Читать дальше...   )Жанр: House, Hard HouseПродолжительность: 01:14:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:680F533C78B26AAB6770A5DC385318B16707A37C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126698   (741182) от 20.04.2017
+
+VA - Beach Party Sunset (2017) [MP3|320 Kbps] <Electro House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bsharry - Adagio 06:11
+02. Josh Nor - Space Sea 05:30
+03. Forever 80 - Automa D 05:05
+04. James Black Pitch - Origins 07:22(   Читать дальше...   )Жанр: Electro HouseПродолжительность: 01:44:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:769370AD0A9EEACAC190F0EF251EADCE9DA0A1E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126798   (741114) от 20.04.2017
+
+VA - Deep Ibiza Opening Party (2017) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741114.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sean Norvis - Over - Radio Edit 03:27
+02. Tony Vegas - Soul Mates - Maury J Remix Edit 03:34
+03. Franky D.P. - Magic Sax 04:33
+04. Spikaa - Never Be Afraid - Radio Edit 03:04(   Читать дальше...   )Жанр: Progressive HouseПродолжительность: 01:29:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CFE70AD2FDEB68ECAA49C6EDA03283BA0B0524E7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1021465   (741068) от 29.05.2016
 
 VA - Intricate Rec 4 Year Anniversary (2016) [MP3|320 кб/с] <House, Progressive>
@@ -540,206 +743,6 @@ VA - Believe In Deep Vol.2 (2019) The Groove Edition [MP3|320 Kbps] <House, Deep
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6CDC03A6082B33268E7FC0059273C599E8D11C09
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284534   (728962) от 21.02.2019
-
-VA - Workout House Bangers (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728962.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Uniting Nations - Out of Touch (Extended Mix) 6:19
-02. David Morales & The Face feat. Juliet Roberts - Needin' U (Original Mistake Mix) 7:55
-03. Jeremy Sylvester - Whine Ya Bumper (Club Mix) 6:52
-04. Indo - R U Sleeping (Bump 'N' Flex Remix) 5:04(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 01:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6435E0B92FBDAD853E135EC2EDB9DED39F9A72F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128349   (728865) от 24.04.2017
-
-VA - I Love Jango (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_728865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jaques Le Noir – The Rainbow In The Sign
-02. Blake Tree – Master
-03. Morgan Dora – EveryBody
-04. Tony Colangelo – The Truth – Club Mix(   Читать дальше...   )Жанр: HouseПродолжительность: 01:57:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:30A1D574FCF9E9709C3BC794683DA85774D9FC3A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022679   (727854) от 03.06.2016
-
-VA - The Annual Festival Sessions (2016) [MP3|320 кб/с] <Club House, Electro House, Progressive>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727854.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Phorsicht - Phreude (3:36)
-02. Prash - Bring That Bass (Extended Mix) (4:48)
-03. Sebastien Nox - O_B_O (4:46)
-04. Jamie My Angel - Runaway with Me (Radio Version) (3:35)(   Читать дальше...   )Жанр: Club House, Electro House, ProgressiveПродолжительность: 04:28:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A3084B39C0F7F8EC73B2A265D19D503186698E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284527   (727847) от 22.02.2019
-
-VA - Melodic House Sessions, Vol.12 (2019) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727847.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gregor - The Winter Carnival (Original Mix) 8:24
-02. Koffee & AmFlow - Raw Uncut (UnCut HardCore Instrumental) 5:15
-03. Alex Lem - Siren (Original Mix) 3:48
-04. Polyakk - Boom (Original Mix) 2:24(   Читать дальше...   )Жанр: HouseПродолжительность: 02:15:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:61DA5D0FCA00EBA46C8D59F50DE971C2A68F40ED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284673   (727844) от 22.02.2019
-
-VA - Ibiza Overload '19 (2019) [MP3|320 Kbps] <Funky, Club House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727844.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Jack Drake - Treasure (Original Mix)
-02. Nadia A Lee - Feeling Fine (Original Mix)
-03. Gustavo Mendez - Acid Jack (Original Mix)
-04. Frank Delgado - Ibiza Vibe (Original Mix)(   Читать дальше...   )Жанр: Funky, Club HouseПродолжительность: 02:09:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F055AFFB0410623F05434E6ECE592AE5FC379B03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022776   (727788) от 03.06.2016
-
-VA - House Traxx (Tracks 4 DJ's) (2016) [MP3|320 кб/с] <House, Tech House, Deep House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727788.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fashion Lovers - Vaquero's Vow (5th Avenue House Mix) (5:42)
-02. Modell & Mercier - Taming of the Shrew (House Progression Mix) (5:42)
-03. Victor Montreal - Close the Eyes Simple (Gilda's Vocal Mix) (5:43)
-04. House Fly - Leather Stocking (Reference Mix) (5:42)(   Читать дальше...   )Жанр: House, Tech House, Deep HouseПродолжительность: 01:54:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C5670FAA10F944A291EB47712363034CBDC24B27
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1128410   (727668) от 25.04.2017
-
-VA - Mantra House Vol. 1 (2017) [MP3|320 Kbps] <House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727668.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Body Dymension - Shake Your Ass (feat. Alex D.)Жанр: HouseПродолжительность: 01:02:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B737B6F13F1EDCB3175F26855EC16155E02407C
 ```
 
 https://mybot314.ru/tekegram_catalog/

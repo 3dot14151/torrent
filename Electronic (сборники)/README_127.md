@@ -1,3 +1,61 @@
+###  Публикация: 1157089   (525867) от 10.08.2017
+
+VA - Bolero By Trance: Uplifting And Vocal Trance (2017) [MP3|320 Kbps] <Uplifting, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_525867.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Harri Kakoulli - The Moon Trick
+002. Frainbreeze - Black Eagle (Radio Edit)
+003. Adagio Sensus - Easy For You (Frainbreeze Radio Edit)
+004. Pondora - Hello Coco(   Читать дальше...   )Жанр: Uplifting, Vocal TranceПродолжительность: 10:10:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66EBAD5ECC4040226AF024A4F06C349CBAB70136
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1157812   (524767) от 13.08.2017
+
+VA - The Whisper Of The Ocean: Classic Chillout (2017) [MP3|320 Kbps] <Downtempo, Lounge, Chillout>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_524767.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ambient Grooves - Breaking Free
+002. Koda - The Last Stand (Stray Theories Remix)
+003. The Sura Quintet - I Won't Forget You
+004. Meg Birch - Your Song(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 09:19:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D20CDAF6D1E8EA8A19C762F38EC354FE5D7AB9E8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1240561   (524534) от 12.08.2018
 
 VA - Record Super Chart 548 (2018) [MP3|320 Kbps] <House, Club, Dance>
@@ -693,64 +751,6 @@ VA - Synth Psychedelic (2019) [MP3|320 Kbps] <Electronic, Psychedelic, Psy Tranc
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:04BE602678D016871C784EA636884C17E61F9BD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1314086   (521321) от 12.07.2019
-
-VA - Beyond Magination: Future Trance Music (2019) [MP3|320 Kbps] <Trance, Progressive, Uplifting, Vocal>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521321.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Mark Tonderai - Cool Change (Original Mix)
-002. Mohamed Ragab - Groundbreaker
-003. Natterum - Burning Industrial
-004. Dj Geri - Storm Waves(   Читать дальше...   )Жанр: Trance, Progressive, Uplifting, VocalПродолжительность: 09:34:32
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02BBFC515186D36C15037A78A840D441CF647452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1241228   (521267) от 16.08.2018
-
-VA - Analogue Dream (2018) [MP3|320 Kbps] <Psy, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_521267.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. E-Mantra - Above the Skies
-002. 2012 - Say My Name
-003. Acidbots - Udaan (Fly High)
-004. Acidprojekt - Analysis Paralysis(   Читать дальше...   )Жанр: Psy, ElectronicПродолжительность: 11:36:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:230A2994DA6051A1C17A5C42DEF9BF7D9060C39D
 ```
 
 https://mybot314.ru/tekegram_catalog/

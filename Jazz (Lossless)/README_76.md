@@ -1,3 +1,61 @@
+###  Публикация: 1123503   (786416) от 08.04.2017
+
+Eddie Shu / Bob Hardaway - Jazz Practitioners (1954, 1955) 2001, Toshiba [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786416.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.It's Sand, Man! [02:59]
+ 02.Tom, Dick And Jim [03:15]
+ 03.Day By Day [02:09]
+ 04.Blues For Baby [02:21](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:50:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:04C97AB8D1571E5B262AC29998C8A249FCAC9573
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1123563   (786414) от 08.04.2017
+
+Valery Ponomarev - Trip To Moscow (1988) Reservoir [FLAC|Lossless|image + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_786414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Same Place, Same Time [08:15]
+ 02.Gettin' to Bolshoi [07:52]
+ 03.Gorky Park [08:13]
+ 04.Trip to Moscow [09:21](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:55:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EED0405FDD7644B1314D91FD87B6FEA8FE5C383F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1123567   (786411) от 08.04.2017
 
 Ben Webster - Ben Webster's Finest Hour (1934-1964) 2000, Verve [FLAC|Lossless|tracks + .cue] <Mainstream Jazz>
@@ -685,64 +743,6 @@ Disc 1
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FE294690F85CC8814A39B3EE829C7326443D1CCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1124696   (785636) от 12.04.2017
-
-Thomas Hardin Trio - Moonlight Cafe (1999) Victor Entertainment [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785636.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Romantse ‘Second Movement from Eine Kleine Nachtmusik’ [04:23]
- 02.Ave Maria [04:48]
- 03.Variations on Twinkle 'Twinkle Little Star' [03:26]
- 04.Serenade [04:01](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:53:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2AF74B5A362906399CEC74012B7D748C55018521
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277406   (785480) от 20.01.2019
-
-Art Farmer - The Complete Albums Collection 1958-1961 (2016) 4CD, Enlightenment [FLAC|Lossless|tracks + .cue] <Hard Bop, Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_785480.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Back In The Cage [5:08]
-02. Stablemates [4:36]
-03. The Very Thought Of You [5:44](   Читать дальше...   )Жанр: Hard Bop, Cool, Mainstream JazzПродолжительность: 05:13:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:983F7310C16ACDB1BD0F033D60E5528323F94386
 ```
 
 https://mybot314.ru/tekegram_catalog/

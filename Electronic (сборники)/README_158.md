@@ -1,3 +1,61 @@
+###  Публикация: 1176433   (371939) от 21.10.2017
+
+VA - Record Super Chart #508 (2017) [MP3|320 Kbps] <House, Club, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371939.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  CamelPhat & Elderbrook - Cola (Denis First Remix)  2:30
+02.  Twoloud vs. DJ Kuba & Ne!tan - Mirror On The Wall  2:30
+03.  EKTONIX - Vuono Matyn  2:30
+04.  Mari Ferrari feat. Miss Mary - Maria Maria  3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 01:53:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6085F1522D0E3A368B6810735461CDA36CD46C89
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176167   (371919) от 21.10.2017
+
+VA - Miss Caramelle: Classic Vocal House (2017) [MP3|320 Kbps] <Vocal House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371919.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Solid Stone & Michael Gin - Xonic
+002. Disco Fries - Moving On (Original Mix)
+003. One Second For Chill - We See the Light
+004. Forerunners - Watercolour(   Читать дальше...   )Жанр: Vocal HouseПродолжительность: 08:59:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:73FFC8F1F01746D1409167D280E982D5C34A9C62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1415551   (371901) от 14.10.2020
 
 Виктор Аргонов Project - Русалочка (2013) (+bonus) [MP3|320 Kbps] <Trance, Techno>
@@ -697,64 +755,6 @@ VA - Have A Good Time: Electropop Compilation (2019) [MP3|320 Kbps] <Synyhpop, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:654B469F09DC30F5E318694021F5034655251AFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328298   (366373) от 29.09.2019
-
-VA - Hedkandi: Summer Trance Set (2019) [MP3|320 Kbps] <Trance, Electro, Compilation>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366373.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Miroslav Vrlik - Rise (Extended Mix)
-002. Dj 156 Bpm - Bring It Up!
-003. Harry Square - Affinity (Extended Mix)
-004. Paul Courbet - Isolation (Extended Mix)(   Читать дальше...   )Жанр: Trance, Electro, CompilationПродолжительность: 13:04:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:39E313DC7CD82392FEB2D1D252C874F8B448EBB9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1328361   (366238) от 29.09.2019
-
-VA - Hedkandi: Summer House Set (2019) [MP3|320 Kbps] <House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_366238.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Juan Diaz - Illusion
-002. Costel Van Dein - Speaker From The Jungle
-003. Fedde Le Grand - Like We Do (Extended Mix)
-004. Melo.Kids & Indox - There 4 U (Extended Mix)(   Читать дальше...   )Жанр: House, Dance, ClubПродолжительность: 12:47:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F6A8FF5C6087F92DAFBCAE649922D4BAC9B9E6CA
 ```
 
 https://mybot314.ru/tekegram_catalog/

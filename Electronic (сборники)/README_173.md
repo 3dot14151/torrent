@@ -1,3 +1,61 @@
+###  Публикация: 1077044   (308865) от 27.11.2016
+
+VA - Ibiza 2016. Best of Funky-House and Disco-House [Compiled by Mistik] (2016) [MP3|320 Kbps] <Funky House, Disco House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Off Da Hook - Journey To Paradise (Johan S Vocal Mix) (8:10)
+02. Kevin McKay - What U Want (J Paul Getto Classic mix) (7:12)
+03. Antonio Giacca & Fort Arkansas - What U Know (Original Mix) (5:19)
+04. Micky More & Andy Tee - I'm Another Man (Right To Life Remix) (6:14)(   Читать дальше...   )Жанр: Funky House, Disco HouseПродолжительность: 06:18:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A91D43D8855A5DB6FD3870387ABB018729CD1CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422575   (308696) от 09.11.2020
+
+VA - Beatport Psy Trance: Electro Sound Pack #197 (2020) [MP3|320 Kbps] <Psy, Goa Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_308696.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Solar Walker - Shapeshifter
+002. Lost & Found - Hands (Remix)
+003. Atomizers - Is There A Future
+004. Visua - Atomic Gathering(   Читать дальше...   )Жанр: Psy, Goa TranceПродолжительность: 12:28:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFEADB62323CFE6E0427210B2724D7EEEBDE9A1C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1422573   (308694) от 09.11.2020
 
 VA - Beatport Drum And Bass: Electro Sound Pack #199 (2020) [MP3|320 Kbps] <Drum & Bass, Bassline, Dubstep>
@@ -709,64 +767,6 @@ VA - Ceremonial Psychedelic (2017) [MP3|195-320 Kbps] <Psy Acid, Psychedelic, El
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4F3E501DD7D9443D77BC5C155183190E5197D396
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333202   (305514) от 24.10.2019
-
-VA - Sunday Voyage: EDM Party (2019) [MP3|320 Kbps] <House, Techno, Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305514.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yako Beatz - Streets
-002. Kernel Existence - Skorn
-003. Elian West - Sunshine (Original Mix)
-004. Stad - Good Time(   Читать дальше...   )Жанр: House, Techno, TranceПродолжительность: 11:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E39D385D15E37DC0CB80F293A18F2D89B39FF0F7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1333207   (305511) от 24.10.2019
-
-VA - Follow Up: Techno Electronic Set (2019) [MP3|320 Kbps] <Techno, Electronic>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_305511.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Juan Campos - Rk-4
-002. Davis Parr - Talk (Original Mix)
-003. Manast - Stayed
-004. Rudosa & Hush & Sleep - Syncopation(   Читать дальше...   )Жанр: Techno, ElectronicПродолжительность: 13:10:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D7EC4DD57571A132579F1082C2F88B3715C0CDFB
 ```
 
 https://mybot314.ru/tekegram_catalog/

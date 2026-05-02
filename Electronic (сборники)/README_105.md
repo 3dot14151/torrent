@@ -1,3 +1,61 @@
+###  Публикация: 910776   (620360) от 21.06.2015
+
+VA - Extra House (episode 3) (2015) [MP3|320 кб/с]<House, Club House, Deep House, Dance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_620360.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Moby ft. Damien Jurado - Almost Home  (Sebastien 2015 Radio Edit) (03:35)
+02. Exoplanet - Crystal Garden (Mindaugas Jak Remix) (08:39)
+03. Frosun - Endless Road (Original Mix) (07:22)
+04. Julian Dep - Facing The Abyss (Rick Pier O'Neil Remix) (07:07)(   Читать дальше...   )Жанр: House, Club House, Deep House, DanceПродолжительность: 02:04:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0388D7406C7C2E28C4DD80713D5A51A92950B1CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1145635   (619815) от 26.06.2017
+
+VA - Empire Records - Trap (2017) [MP3|320 Kbps] <Trap>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_619815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Louis The Child feat. Ashe – World On Fire
+02. Dennis Kruissen – Falling in Love (De Hofnar Remix)
+03. Kendl – Drive Slow (Original Mix)
+04. Martin Garrix, Bebe Rexha – In The Name Of Love (Original Mix)(   Читать дальше...   )Жанр: TrapПродолжительность: 01:25:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0407A64DA52A9D4B4542F606B8E6B97961AF9230
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1036787   (619334) от 21.07.2016
 
 VA - The Ingredient Of Intellect Psy Trance (2016) [MP3|320 Kbps] <Trance, Psy-Trance, Goa>
@@ -699,70 +757,6 @@ VA - Uplifting Trance Collection - Episode One (2016) [MP3|320 Kbps] <Trance, Up
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7D2A50E3FF68304F0A14F090136C89490B6DA177
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 520970   (615427) от 17.07.2012
-
-VA - Dub step from evolinte vol.1 (2011) [MP3|320 кб/с]<Dub Step>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615427.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Bare - Thugs In The Hood (Feat. Messinian)
-02.Benny Benassi - Satisfaction Remix (J.Rabbit dubstep Bootleg)
-03.Cookie Monsta - Fat Girl Rodeo
-04.Cookie Monsta - Skills (Messiah Remix)
-05.Crystal Fighters - Swallow (Funtcase Remix)
-06.Datsik - Quantum
-07.Dj Ss - We Came To Entertain (Mark Instinct Remix)
-08.Feed Me - Blood Red (Original mix)
-09.Funtcase - So Vexed (Crissy Criss Edition)
-10.J. Rabbit - Spanish Fly(   Читать дальше...   )Жанр: Dub StepПродолжительность: 01:30:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9390FC0663739BB207F553CBF245DFA576EE11A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1037065   (615276) от 23.07.2016
-
-VA - Лучшие хитовые треки 2016 - Drum And Bass №1 (2016) [MP3|320 Kbps] <Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_615276.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Above Beyond ft. Richard Bedford - Sun Moon (Zardonic Remix)
-02. Agressor Bunx - Battlespace
-03. Andy Pain & Z - Connection - Asteroid Belt
-04. Anile ft. Blu Mar Ten - Lyssakses(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 08:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D18D00F04D8A771654CEEAA7D8EA987C5F241DC8
 ```
 
 https://mybot314.ru/tekegram_catalog/

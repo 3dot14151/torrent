@@ -1,3 +1,61 @@
+###  Публикация: 1735878   (106762) от 10.07.2024
+
+Ray Brown, Monty Alexander, Sam Most - A Ray Brown 3 (1982) 2002, Victor Entertainment [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106762.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Wish You Love [6:02]
+02. I Can't Stop Loving You [4:57]
+03. Jamento [3:09]
+04. Blue Monk [4:41](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:37:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:770CC80B52F77312BE82FA719BF0213481BEF597
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1736111   (106720) от 11.07.2024
+
+Leo Parker - Rollin' With Leo (1961) 2009, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106720.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lion's Roar [4:55]
+02. Bad Girl [6:17]
+03. Rollin'  With Leo [6:25]
+04. Music Hall Beat [4:57](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:43:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6311719A6A8B0587ADFD5B8EB4C0AB03D05B5C4A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1736431   (106710) от 12.07.2024
 
 VA - Funky Italian  Songs (2024) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Funk, Soul>
@@ -687,64 +745,6 @@ T.S. Monk - Changing Of The Guard (1993) Blue Note [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F057EA184207B9C1F758BE196C930ED55ADB0C86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737702   (106479) от 19.07.2024
-
-Lorne Lofsky, Guido Basso, Joey DeFrancesco, Vito Rezza - Alma Records Presents One Take, Vol. 1 (2004) Alma Records [FLAC|Lossless|image + .cue] <Cool, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106479.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Romance [9:53]
-02. If I Were a Bell [8:40]
-03. My Funny Valentine [5:24]
-04. Someday My Prince Will Come [8:30](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:59:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFF266890E06E619902F531A785ED03418BB8CDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1737888   (106441) от 20.07.2024
-
-T.S. Monk - The Charm (1995) Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_106441.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Budini [6:54]
-02. The Dealer Takes Four [4:40]
-03. Jean Marie [6:32]
-04. Marvelous Marvin [4:38](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 00:56:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E0921BCA5CCE1685F788B0CCB435E8AD0A1C0A1
 ```
 
 https://mybot314.ru/tekegram_catalog/

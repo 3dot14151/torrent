@@ -1,3 +1,61 @@
+###  Публикация: 1252419   (409427) от 05.10.2018
+
+VA - Markus Schulz - Global DJ Broadcast - World Tour Tokyo (2018) [MP3|320 Kbps] <Trance, Progressive Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_409427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Markus Schulz - The Awakening (Transmission 2018 Theme)
+02. Pink vs. Vincent de Moor - What About Flying Away (Markus Schulz Mashup)
+03. R3hab & Skytech - Hyperspace
+04. Artento Divini - Hypercube(   Читать дальше...   )Жанр: Trance, Progressive TranceПродолжительность: 01:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:58EF21F8AC0ECCCA02622FCEBBD62A7D00C16556
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1169859   (401588) от 29.09.2017
+
+VA - Aly & Fila - Future Sound Of Egypt 515 (2017) [MP3|320 Kbps] <Trance,Uplifting Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_401588.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Audiofly & Patrice Baumel - Atacama (Original Mix)
+02. Tale Of Us & Vaal - Monument (Stephan Bodzin Remix)
+03. Luke Sambe - Becoming (GMJ Remix)
+04. Paul Thomas - Alpha Papa (Extended Mix)(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:58:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:16226DCF5E6494B64377ACA49215B3A8CAD1A72C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1169880   (400611) от 30.09.2017
 
 VA - Ori Uplift & Ahmed Romel - Uplifting Only 242 (2017) [MP3|320 Kbps] <Uplifting Trance>
@@ -687,64 +745,6 @@ VA - Aly & Fila - Future Sound of Egypt 521 (2017) [MP3|320 Kbps] <Trance, Uplif
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:511DE0A7908D1EC37F976FED045BDC2DD1E729E9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1182327   (317147) от 10.11.2017
-
-VA - Markus Schulz & Davey Asprey - Global DJ Broadcast (2017) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317147.jpg" />
-</div>
-
-
-###  Подробнее
-
-Markus Schulz
-01. Markus Schulz presents Dakota - The Spirit of the Warrior (Transmission 2017 Theme)
-02. Ayla - Ayla (Ben Nicky & Luke Bond Remix)
-03. DIM3NSION & ZAA - Cielo(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6634B45ABE12E4D39F4CAD7BCC6A3F7C6680D76
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1422443   (310707) от 08.11.2020
-
-Armin van Buuren - Live @ Amsterdam Music Festival, Netherlands (2020-11-07) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310707.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ID - ID
-02. Armin van Buuren ft. Jake Reese VS ARTBAT & Sailor & I - Need You Now vs Best of Me (Armin Van Buuren Mashup)
-03. Fabrication & Assaf ft. Nathan Nicholson -  Dustpig vs. Lost Souls (Armin Van Buuren Mashup)
-04. Cubicore ft. K.I.R.A. - Circles(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2F6C563BFEDB8B8CDAE8C3648DCB22CABF81F45
 ```
 
 https://mybot314.ru/tekegram_catalog/

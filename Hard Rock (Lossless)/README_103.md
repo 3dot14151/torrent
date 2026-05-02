@@ -1,3 +1,119 @@
+###  Публикация: 1805130   (65510) от 04.07.2025
+
+Joe Stump's Tower Of Babel - Days Of Thunder (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65510.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dominum 00:56
+02. Rules Of Silence 04:36
+03. Days Of Thunder 05:11
+04. Blind Are Your Eyes 06:41(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:48:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:94969D44369DE375080CAD346CE1A422AD057BB6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1807949   (65082) от 21.07.2025
+
+Jettblack - Raining Rock (2012) [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_65082.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Intro
+02. Raining Rock
+03. Less Torque, More Thrust
+04. Prison Of Love(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:54:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:739B469C628156897A2B87D765A3D3398A2F2408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808592   (64951) от 25.07.2025
+
+Roulette - Go! (2025) [FLAC|Lossless|WEB-DL|tracks] <Melodic Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64951.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Answer To My Prayers
+02. Fire In Your Eyes
+03. We Remember You
+04. Strangers(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:35:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0CFDB6321E534B1C283260B6D61D49AA8D4613F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1808999   (64787) от 27.07.2025
+
+In Theory - Retribution (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_64787.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Retribution (04:08)
+ 02 - Stain On My Soul (03:38)
+ 03 - The River (04:09)
+ 04 - Get Me Higher (feat. Vinny Appice) (04:23)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:44:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9464F0BA57984C70D91F754EB865833B387F3FF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1809211   (64754) от 29.07.2025
 
 Bloody Dice - 2 (2025) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
@@ -632,122 +748,6 @@ Deep Purple - Pictures of You (2024) EP [FLAC|Lossless|WEB-DL|tracks] <Hard Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3D76ACEA2BB24A402D26D3B238F5285FD6BE0925
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1729938   (53410) от 13.06.2024
-
-Black Country Communion - V (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Enlighten (5:20)
-02. Stay Free (4:30)
-03. Red Sun (6:33)
-04. Restless (5:43)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:50:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E5909324A8F52DA812CE78C50B7E7B358E72F23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730059   (53304) от 14.06.2024
-
-Human Zoo - Echoes Beyond (2024) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53304.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gun 4 A While
-02. In My Dreams
-03. To The Ground
-04. Ghost In Me(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:72AEF73450300653A3981C58A072823A2CDA6DFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730559   (53006) от 17.06.2024
-
-Led Zeppelin - Remasters (1990) Japanese Edition, 2 x CD, Compilation, Reissue, Remastered, Atlantic [FLAC|Lossless|image + .cue] <Blues Rock, Hard Rock, Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53006.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Communication Breakdown 02:29
-02. Babe I'm Gonna Leave You 06:40
-03. Good Times Bad Times 02:44(   Читать дальше...   )Жанр: Blues Rock, Hard Rock, Heavy MetalПродолжительность: 02:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D9853180FFA715664535CC107803A3064D68B4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1195776   (52551) от 22.06.2024
-
-Magnum | Bob Catley | Hard Rain - 39 albums, 68 CD (1978-2024) [FLAC|Lossless|image + .cue | tracks + .cue] <Hard Rock, Classic Rock, AOR>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52551.jpg" />
-</div>
-
-
-###  Подробнее
-
-Magnum — британская рок-группа, образованная в 1972 году в городе Бирмингеме. В течение многих лет своего существования знала и периоды успеха, и времена забвенья. Базирующаяся вокруг одарённого композитора и гитариста Тони Кларкина (Tony Clarkin), группа нашла свою нишу в современной музыке, отличаясь великолепными и легко запоминающимися композициями. MAGNUM собрали (   Читать дальше...   )--------------------------
-
-01. Run into the Shadows (5:22)
-02. Here Comes the Rain (4:37)(   Читать дальше...   )Жанр: Hard Rock, Classic Rock, Progressive Rock, AOR |Продолжительность: 2d 12:57:01 |
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36BD39DBAB7D17B1132011DAAE342B784BFD01E8
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,25 +1,275 @@
-###  Публикация: 1798512   (66628) от 22.05.2025
+###  Публикация: 1790046   (68169) от 07.04.2025
 
-VA - Trance In Motion Vol.388 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
+VA - 25 Years Of Anjuna Mixed By Eli & Fur (2025) [MP3|320 Kbps] <Progressive House, Melodic House & Techno, Deep House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68169.jpg" />
+</div>
+
+
+###  Подробнее
+
+Disc 1 (01:07:55)
+01. Eli & Fur – Feel The Fire (Journeyman Remix (Mixed)) (06:56)
+02. Dee Montero – Headspace (feat. Meliha) (Mixed) (06:05)
+03. M.O.S. – Khimiya (Mixed) (04:50)(   Читать дальше...   )Жанр: Progressive House, Melodic House & Techno, Deep House, ElectronicПродолжительность: 03:03:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A0E3B0AE57BD63ED3029F25181AB91DFF7816B14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790140   (68168) от 07.04.2025
+
+Mr. Jazzek - Swing Control (2025) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Electro Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Bad Habit (2:41)
+02.  Alanna Lyes - Stay (2:48)
+03.  Break It Up (2:28)
+04.  Bukovina (2:54)(   Читать дальше...   )Жанр: Jazz, Electro SwingПродолжительность: 01:06:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:806FA25FC3C11FED9CDFA4A7A18DB9C253377377
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789855   (68167) от 07.04.2025
+
+Журнал | Эксперт №2 (14) (февраль 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68167.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Эксперт» — одно из самых влиятельных еженедельных деловых аналитических изданий России. За 14 лет своего существования в непростых политических и экономических условиях изданию удалось не только выжить и сохранить своих читателей, но и расширить их круг, заслужив репутацию несомненного лидера российской деловой журнальной прессы. Все наши знания и опыт нацелены (   Читать дальше...   )Жанр: Экономика, политикаИздательство: ООО "Эксперт.Медиа"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8376D0FBB33739F0D8685F905005F57AE8CC4F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790059   (68166) от 07.04.2025
+
+Manowar - Into Glory Ride (1983) [FLAC|24/192|image + .cue|Vinyl-Rip] <Heavy Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68166.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Warlord
+02. Secret of Steel
+03. Gloves of Metal
+04. Gates of Valhalla(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D02F775B466B95E010A29E6106B235F5B197E988
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790105   (68165) от 07.04.2025
+
+Журнал | Профиль №13-14 (251) (апрель 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68165.jpg" />
+</div>
+
+
+###  Подробнее
+
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDEDBBF7433066C0046AB9ED97605B197D136598
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790141   (68164) от 07.04.2025
+
+VA - EDM Dance 2025 (2025) [MP3|320 Kbps] <Dance, Club, House, Electronic>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68164.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. JLUIS - Pray For Me (03:09)
+02. 90bangerz - Lost In Time (02:28)
+03. Stephan F & YA-YA - In Your Arms (03:00)
+04. Dani Corbalan - Out of Time (02:55)(   Читать дальше...   )Жанр: Dance, Club, House, ElectronicПродолжительность: 01:03:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76A3C55E824E1870BD9939AA245CB9FF275DEC1A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789857   (68163) от 07.04.2025
+
+Журнал | Эксперт №3 (15) (март 2025) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68163.jpg" />
+</div>
+
+
+###  Подробнее
+
+Журнал «Эксперт» — одно из самых влиятельных еженедельных деловых аналитических изданий России. За 14 лет своего существования в непростых политических и экономических условиях изданию удалось не только выжить и сохранить своих читателей, но и расширить их круг, заслужив репутацию несомненного лидера российской деловой журнальной прессы. Все наши знания и опыт нацелены (   Читать дальше...   )Жанр: Экономика, политикаИздательство: ООО "Эксперт.Медиа"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:090F88969455D09F8FAECC33FCBE983E0C0131BC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790101   (68162) от 07.04.2025
+
+Вениамин Каверин | Литератор: Дневники и письма (1988) [DJVU]
+
+>>Разное (категория книг)
+>>Публицистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68162.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своей книге В.Каверин рассказывает о встречах с М.Горьким и другими известными писателями (В.Шкловским, Е.Шварцем, К.Симоновым, В.Быковым), с историками литературы (Б.Н.Эйхенбаумом, Ю.Г.Оксманом), с режиссерами (А.Я.Таировым, Вс.Мейерхольдом). Его дневники и переписка охватывают время от 20-х до 80-х годов, воспроизводя не только литературно-художественную атмосферу, (   Читать дальше...   )Жанр: Биографии и мемуарыИздательство: Советский писательФормат: DJVUКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8006117214D396C5291EF6A97655C08E71538FC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789967   (68161) от 07.04.2025
+
+Otto Dix - Классика (2025) [FLAC|Lossless|WEB-DL|tracks] <DarkWave, New Age, Акустика, Alternative>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68161.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Аквариус (Акустика) [00:04:23]
+02. Анима (Акустика) [00:05:19]
+03. Глазами бабочек (Акустика) [00:05:40]
+04. Каменный ангел (Акустика) [00:04:10](   Читать дальше...   )Жанр: DarkWave, New Age, Акустика, AlternativeПродолжительность: 00:44:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DC232F87646F04C4C24B38D12F7D4EA1E366439
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789780   (68160) от 07.04.2025
+
+VA - Trance In Motion Vol.387 (2025) [MP3|320 Kbps] [MP3|320 Kbps|image + .cue] <Trance, Uplifting Trance>
 
 >>Неофициальные сборники
 >>Electronic (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66628.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68160.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. DIM3NSION - Revelation (Extended Mix)
-02. Ciaran McAuley with Zara Taylor - Stay (Extended Mix)
-03. BIXX & Susana - Believe In Me (Extended Mix)
-04. Cygnus X - Superstring (Nilsix Extended Remix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:25:58
+01. Adam Ellis & Dettech & Kate Louise Smith - We Gather (Extended Mix)
+02. Eric de la Vega & Alaera - Cuando El Amor Acaba (Extended Mix)
+03. Georgio Safo - Ancestors (Extended Mix)
+04. Darren Porter - Daylight (Extended Mix)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:31:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AF86651B4A9D925211D8DDA20BBD5FAD59691ACD
+magnet:?xt=urn:btih:EF9F181E922F9438A6B2D68B8A61AF3114082435
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -27,25 +277,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798563   (66627) от 22.05.2025
+###  Публикация: 1790107   (68159) от 07.04.2025
 
-Гайчи (1938) WEBRip [H.264/1080p]
+Журнал | Главбух №7 (апрель 2025) [PDF]
 
->>Видео, Кино и Сериалы для детей и родителей
->>Отечественные Фильмы и Сериалы для детей (HD, FHD, UHD)
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66627.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68159.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В тайге остается на зимовку научная экспедиция. Шифрованные материалы, имеющие важное оборонное значение, отправляются с инженером Саповым в сопровождении бывшего партизана Олони, который должен посадить инженера на самолет. На одной из стоянок к Сапову неожиданно является инспектор Петров, который в действительности является бывшим белогвардейцем Яныгой и в настоящее (   Читать дальше...   )Производство: СССР / СоюздетфильмЖанр: детский, приключения, шпионскийРежиссер: Владимир ШнейдеровАктеры: Ердык Манджиев, Георгий Субботин, Виктор Третьяков, В. Толгаев, Юлия Цай, Ю. Фей-Бустрем, Петр СавинСубтитры: русские (пояснительные интертитры), в некоторых эпизодахПродолжительность: 01:01:13
+Журнал «Главбух» – это издание №1 бухгалтерского мира. В «Главбухе» практические ответы на злободневные вопросы бухгалтерского учета, расчета налогов и зарплаты. Примеры, образцы и готовые решения о том, как поступать в неоднозначной ситуации. Новости бухучёта и налогообложения. Консультации экспертов. Правовая база. Бланки налоговых деклараций, расчётов и др. документов, (   Читать дальше...   )Жанр: Бухгалтерский учетИздательство: ООО "Актион-пресс"Формат: PDFКачество: Изначально электронное (ebook)
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:273E236AF723252CAE3B3095C49D08ACF8EF5834
+magnet:?xt=urn:btih:78DE98AAFEDF34C8BB82EA63B45DF7EDBA8EE6B1
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,216 +303,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798459   (66626) от 22.05.2025
+###  Публикация: 1790132   (68158) от 07.04.2025
 
-VA - The Wedding Singer: Music From the Motion Picture (1997) CD, Compilation [FLAC|Lossless|tracks + .cue] <New Wave, Electro, Pop Rock>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66626.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Presidents of the United States of America / Video Killed the Radio Star    [0:03:21.30]
-02. Culture Club / Do You Really Want to Hurt Me    [0:04:19.60]
-03. The Police / Every Little Thing She Does Is Magic    [0:04:18.55]
-04. The Smiths / How Soon Is Now?    [0:06:41.73](   Читать дальше...   )Жанр: New Wave, Electro, Pop RockПродолжительность: 00:57:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:111B29578A100FE43C253C185513C9D19400B5DB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798473   (66625) от 22.05.2025
-
-Танцуй, Вини / Vini Jr. (2025) WEBRip [H.264/1080p] [MVO] [AD]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66625.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Vini Jr.», документальный фильм о жизни Винисиуса Жуниора, одного из самых перспективных нападающих в футболе. Обладая впечатляющими показателями, Вини-младший является звездой сборной Бразилии, и сюжет следует за ним в решающий год 2024. Победитель Лиги чемпионов УЕФА и с возможностью выиграть награду FIFA The Best. Также признанный за его мужество в борьбе с расизмом, (   Читать дальше...   )Производство: Бразилия / Conspiração FilmesЖанр: документальный, спорт, биографияРежиссер: Эмилио Домингос, Андруша УоддингтонУчастники: Винисиус ЖуниорПеревод: Многоголосый (1win Studio)Язык озвучки: русскийСубтитры: русские (forced hardsub)Продолжительность: 01:48:33Реклама: присутствует пара вставок видеорекламы и статичный логотип
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:739B7C5631EB3AA70F1F4D6DC53CA7E18A5E8D1A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798509   (66624) от 22.05.2025
-
-Стромболи, земля божья / Stromboli (Terra di Dio) (1950) BDRip [H.264/720p] [MVO]
-
->>Классика кино и Старые фильмы до 90-х
->>Зарубежная Классика (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66624.jpg" />
-</div>
-
-
-###  Подробнее
-
-Литовская беженка Карин в ходе Второй мировой войны оказывается в итальянском лагере для перемещённых лиц и там, чтобы получить гражданство и вид на жительство, выходит замуж за рыбака Антонио. Супруги отправляются жить на малую родину Антонио остров Стромболи. Однако это удалённое от цивилизации местечко сразу же разочаровывает привыкшую к большим городам Карин. (   Читать дальше...   )Производство: Италия, США / Berit Films, RKO Radio Pictures Inc.Жанр: драмаРежиссер: Роберто РосселлиниАктеры: Ингрид Бергман, Марио Витале, Ренцо Чезана, Марио Спонцо, Джетано Фамуларо, Роберто ОноратиПеревод: профессиональный многоголосыйЯзык озвучки: русский, итальянскийСубтитры: русские, английскиеПродолжительность: 01:40:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:01CC805DF9E4C99246D8C97A22C556D88F72272E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798419   (66623) от 22.05.2025
-
-Неуязвимый / Invincible (2023) WEB-DL [H.264/1080p] (сезон 2, серии 1-8 из 8) Condor Films Studio, RHS, Flarrow Films, TVShows, LostFilm, HDRezka, NewComers
-
->>Мультфильмы
->>Зарубежные Мультсериалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66623.jpg" />
-</div>
-
-
-###  Подробнее
-
-17-летний Марк Грэйсон узнаёт, что его отец является самым могучим супергероем на Земле. Теперь подростку предстоит совладать с силами, которые достались ему по наследству. Основано на комиксах Роберта Киркмана, автора серии комиксов «Ходячие мертвецы» (2003-2019).Производство: США / Amazon Studios, Image Comics, Skybound EntertainmentЖанр: мультфильм, ужасы, фантастика, фэнтези, боевик, триллер, драма, приключенияРежиссер: Джефф АлленАктеры: Сандра О, Дж.К. Симмонс, Стивен Ян, Зази Битц, Уолтон Гоггинс, Гиллиан Джейкобс, Джейсон Манцукас, Грэй Гриффин, Кевин Майкл Ричардсон, Закари КуинтоПеревод: Дублированный (Condor Films Studio, Red Head Sound, Flarrow Films), многоголосый (TVShows, LostFilm, HDRezka, NewComers)Субтитры: Русские (Full), украинские, английские (Full, SDH)Продолжительность: ~00:45:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E0C1404CF660810443C0AF407B9346C191B129F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798588   (66622) от 22.05.2025
-
-Microsoft Visual Studio 2022 Enterprise 17.14.1 (Offline Cache) [Ru/En]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66622.jpg" />
-</div>
-
-
-###  Подробнее
-
-Visual Studio Enterprise 2022 - Интегрированное комплексное решение для групп любого размера с высокими требованиями к качеству и масштабу. Воспользуйтесь полным набором инструментов и служб для разработки, создания сложных корпоративных приложений и управления ими.Язык интерфейса: Русский, Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:70AB5EDF0B051A3E6A232E71A05E332DEC3CF717
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798420   (66621) от 22.05.2025
-
-Владимир Пресняков – Только ты никогда (2024) WEBRip [H.264/1080p]
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66621.jpg" />
-</div>
-
-
-###  Подробнее
-
-Владимир Пресняков - Только ты никогда (Official Video)
-
-Песня «Только ты никогда» основана на реальных событиях. Она о самом большом и светлом чувстве, которое будет, несмотря ни на что, всегда жить в сердце родителей.Производство: РоссияЖанр: PopРежиссер: Надя Михалкова, Артемий АбрамовАктеры: Анастасия Тарасова, Иван Бровин, Самсонова Софья, Первакова НадеждаПродолжительность: 00:04:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0E4F35D7ED6E581183A0643392BA4B8F0831D54
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798602   (66620) от 22.05.2025
-
-Degenerate - Rituals Of Rage (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Servitor (03:49)
- 02 - Xenon Equilibrium (03:24)
- 03 - The Cult (03:41)
- 04 - Illuminate (03:31)(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6C361C53339682D8EECB95A7F04445B4137A08F3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798551   (66619) от 22.05.2025
-
-НХЛ. Кубок Стэнли 2025. Запад - Финал. 1-й матч. Эдмонтон Ойлерз - Даллас Старз (21.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+НХЛ 2024-2025. Питтсбург Пингвинз - Чикаго Блэкхоукс (06.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66619.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68158.jpg" />
 </div>
 
 
 ###  Подробнее
 
-22 мая 2025, четверг. 03:00 МСК, 1/2 финала. 1-й матч. Стадион: Американ Эйрлайнс-центр (Даллас, США), 18 532 зрителя (98% при вместимости 18 889)
-Главный судья: Вес Макколи (Джорджтаун, Канада); Главный судья: Франсис Шаррон (Оттава, Канада); Линейный: Трент Кнорр (Пауэлл Ривер, Канада); Линейный: Скотт Черри (Дрэйтон, Канада)Телекомпания: Setanta Storts 2Жанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 03:08:55
+7 апреля 2025, понедельник. 01:00 МСК. Стадион: Юнайтед-центр (Чикаго, США), 20 487 зрителей (91% при вместимости 22 428)
+Главный судья: Крис Шленкер (Медисин-Хат, Канада); Главный судья: Грейди Хэмилтон (Канада); Линейный: Бен О'Куинн (Вудсток, Канада); Линейный: Райан Дейзи (Мансфилд, США)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:46:47
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:1D6C1A5B8F327D8918955AA26181949AABDED313
+magnet:?xt=urn:btih:FF346329376D5427289B562A97871E53A9786B83
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -270,28 +330,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798571   (66618) от 22.05.2025
+###  Публикация: 1790135   (68157) от 07.04.2025
 
-Салехард - Заочница (2025) [MP3|320 Kbps] <Chanson>
+Okay Alright - soften my eyes after sleepless nights (deluxe) (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues, Folk>
 
->>Шансон, Авторская и Военная песня
->>Русский Шансон
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66618.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68157.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 - Заочница [00:03:33]
-02 - Я тебя позову [00:04:50]
-03 - Финочка [00:03:53]
-04 - По той дороге [00:05:27](   Читать дальше...   )Жанр: ChansonПродолжительность: 00:38:55
+01.  redwoods (4:05)
+02.  u always saw the best in me (3:17)
+03.  misty (2:46)
+04.  ides of march (3:57)(   Читать дальше...   )Жанр: Blues, FolkПродолжительность: 00:44:28
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C198A2B8FADFCDEEDA7613C4D98D52AFF1D8B7DA
+magnet:?xt=urn:btih:68B2E8594CEBFF8B87FC325B587920D03BC7BC10
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -299,398 +359,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798477   (66617) от 22.05.2025
+###  Публикация: 1790119   (68156) от 07.04.2025
 
-Savage Oath - Divine Battle (2024) [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66617.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Knight Of The Night (7:20)
-02. Wings Of Vengeance (6:51)
-03. Blood For The King (6:45)
-04. Smoke At Dawn (2:55)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:43:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D54CF95F88248AFB07B78327619783FB3CA6C963
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798071   (66616) от 22.05.2025
-
-Grails - Miracle Music (2025) [FLAC|Lossless|tracks + .cue] <Post Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66616.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Silver Bells (5:10)
- 02. Primeval Lite I-III (6:35)
- 03. Earthly Life (4:44)
- 04. Homemade Crucifix (3:19)(   Читать дальше...   )Жанр: Post RockПродолжительность: 00:40:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:641879210C51A84805BDF4B694CAF9BEBD2B0946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798606   (66615) от 22.05.2025
-
-...and Oceans - The Regeneration Itinerary (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Symphonic Black Metal>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66615.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Inertiae (04:30)
- 02 - Fornyelse i Tre Akter (05:07)
- 03 - Chromium Lungs, Bronze Optics (04:29)
- 04 - The Form and the Formless (03:32)(   Читать дальше...   )Жанр: Symphonic Black MetalПродолжительность: 00:54:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1B28AFB8FFCA50E5A203E4CA1F1EC71CEDEB524A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798300   (66614) от 22.05.2025
-
-VA - EZ Ridin’ (2002) CD, Compilation [FLAC|Lossless|tracks + .cue] <Pop Rock, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66614.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Steppenwolf - Born to Be Wild    [0:03:29.72]
-02. Lynyrd Skynyrd - Call Me the Breeze    [0:05:08.68]
-03. Elvin Bishop - Rollin’ Home  [0:04:58.07]
-04. Bachman–Turner Overdrive - Free Wheelin’ (instrumental)    [0:03:46.38](   Читать дальше...   )Жанр: Pop Rock, RockПродолжительность: 00:41:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7614EFD7ED7BCF4F23B5BA964EAEA21FD9621B8E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798604   (66613) от 22.05.2025
-
-Holler - Next In Line (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66613.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - A Miracle (05:38)
- 02 - Stormy (04:26)
- 03 - Chandelier (04:59)
- 04 - Don't Fool Me (04:40)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:52:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BD0BAEEE4399FE2CB6AF34D389923B11F5C6E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798516   (66612) от 22.05.2025
-
-Николай Лесков | Привидение в Инженерном замке. Маленькая ошибка (1993) [MP3, Вадим Лобанов]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66612.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Звучащая библиотека. Малая проза.
-Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
-Рассказы (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: ТРК «Петербург – Пятый канал»Продолжительность: 00:59:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5253B4838A8D4A0195BBF4CF6732EE1656D88101
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798490   (66611) от 22.05.2025
-
-Tokyo Blade - Knights Of The Blade (2017) 4 x CD, Compilation, Remastered, Hear No Evil Recordings [FLAC|Lossless|image + .cue] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66611.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1 - Tokyo Blade:
-1-1 Powergame 4:13
-1-2 Break The Chains 5:08
-1-3 If Heaven Is Hell 6:05(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 03:18:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3E25EA0B7B6585441169EAC085349B54ED88AB86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798521   (66610) от 22.05.2025
-
-Николай Лесков | Зверь (2021) [MP3, Юрий Елагин]
-
->>Художественные аудиокниги и публицистика
->>Классика (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66610.jpg" />
-</div>
-
-
-###  Подробнее
-
-Серия/Цикл: Литературные чтения.
-Николай Семёнович Лесков (1831–1895) – русский писатель. Его называли самым национальным из писателей России, он вошёл в литературу как величайший знаток духовной и бытовой жизни народа. Он был блестящим автором, имитировавшим язык восемнадцатого века, любившим красочный стиль и умевшим писать и изысканно просто.
-«Зверь» – рассказ (   Читать дальше...   )Жанр: Русская литература, классика, рассказИздательство: Радио России – Санкт-ПетербургПродолжительность: 00:55:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:017AE624740473EC3DC42CE7B2BB8D60E1E50B23
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1797565   (66609) от 22.05.2025
-
-Willie Nelson - Oh What A Beautiful World (2025) [FLAC|Lossless|tracks + .cue] <Folk, World, & Country>
-
->>Other Styles
->>Folk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66609.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. What Kind of Love (3:42)
-2. Banks of the Old Bandera (3:26)
-3. The Fly Boy & The Kid (3:51)
-4. Forty Miles from Nowhere (4:27)(   Читать дальше...   )Жанр: Folk, World, & CountryПродолжительность: 47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC1FB5FB1D06118D027170D17A2F462D37D2FCEE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798480   (66608) от 22.05.2025
-
-Anoraak - Golden Hour (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <synthpop, synthwave, disco>
-
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Reasoning Heavy (2025 Remaster) [00:04:36]
-02. Tension (2025 Remaster) [00:04:30]
-03. Words (2025 Mix) [00:03:52]
-04. Family Matters (2025 Remaster) [00:05:03](   Читать дальше...   )Жанр: synthpop, synthwave, discoПродолжительность: 01:26:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4DF3A8D4F15FC6C2A075DF388A062BA7F8EE0E0F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798560   (66607) от 22.05.2025
-
-Евгения Калина - Кокон (2025) [MP3|320 Kbps] <Авторская песня>
-
->>Шансон, Авторская и Военная песня
->>Авторская и Военная песня
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66607.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Здравствуй [00:02:42]
-02 - Я прячу тело под мутоном [00:01:41]
-03 - В вашем городе [00:01:16]
-04 - Мука [00:00:17](   Читать дальше...   )Жанр: Авторская песняПродолжительность: 00:43:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B024DC36F1823455279C275DFFF7F012ECE0C6F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798482   (66606) от 22.05.2025
-
-PinkPantheress - Fancy That (2025) Mixtape [FLAC|Lossless|tracks + .cue] <Dance-pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66606.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Illegal (02:29)
-02. Girl Like Me (02:24)
-03. Tonight (02:56)
-04. Stars (02:21)(   Читать дальше...   )Жанр: Dance-popПродолжительность: 00:20:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:73279A498F681767F10D029B673A6459AF5DD19E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798780   (66605) от 23.05.2025
-
-Восток есть восток / East is East (1916) WEBRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66605.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лирическая и забавная история. Восток, упоминаемый в названии - это Ист-Энд, восточный район Лондона. Район самый простецкий, может и не совсем нищенские трущобы, но что-то близкое к этому. И вот живет в этом районе девочка, каких там полно - рано лишилась родителей, ходит в драных чулках, подрабатывает на сборе урожая, но шустра, мила, сообразительна. А дальше, (   Читать дальше...   )Производство: Великобритания / Florence Turner ProductionsЖанр: драма, мелодрама, немое киноРежиссер: Генри ЭдвардсАктеры: Флоренс Тернер, Генри Эдвардс, Рут Маккэй, У.Г. Саундерс, Эдит ЭвансПеревод: немой с интертитрами (В. Сачков)Субтитры: английские (интертитры), русскиеПродолжительность: 01:11:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FE1ECF0AA95F8757654BE2B7E88DF5C1DCAABD9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798741   (66604) от 23.05.2025
-
-НХЛ. Кубок Стэнли 2025. Восток - Финал. 2-й матч. Флорида Пантерз - Каролина Харрикейнз (22.05.2025) HDTVRip [H.264/720p] [hand made 50fps]
+НХЛ 2024/2025. Регулярный чемпионат. Нью-Йорк Айлендерс - Вашингтон Кэпиталз (06.04.2025) WEB-DL [H.264/720p]
 
 >>Спорт и активный отдых
 >>Хоккей
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66604.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68156.jpg" />
 </div>
 
 
 ###  Подробнее
 
-23 мая 2025, пятница. 03:00 МСК, 1/2 финала. 2-й матч. Стадион: Леново Центр (Роли, США), 18 971 зритель (100% при вместимости 19 041)
-Главный судья: Дэн О'Рурк (Калгари, Канада); Главный судья: Эрик Фурлатт (Тройс-Ривьерс, Канада); Линейный: Райан Дейзи (Мансфилд, США); Линейный: Райан Гиббонс (Ванкувер, Канада)Телекомпания: Setanta Storts 2Жанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: Русский, английскийСубтитры: ОтсутствуютПродолжительность: 02:47:11
+06 апреля 2025, воскресенье. 19:30 МСК
+Стадион: Ю-Би-Эс-Арена (Элмонт, США), 17 255 зрителей (100% при вместимости 17 255)
+НХЛ - Регулярный сезон. Нью-Йорк Айлендерс (Нью-Йорк) — Вашингтон Кэпиталз (Вашингтон)
+Главный судья: Жан Эбер (Монктон, Канада)Телекомпания: Eurosport 1 HDЖанр: Спорт, хоккейЯзык озвучки: русскийПродолжительность: 02:03:12
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:98B6DCF3A52737F7FAA6B3BEE75D12F192F30145
+magnet:?xt=urn:btih:1545A694D0CFF69A4ED539A1E482A77DFB2A5E75
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -698,28 +388,347 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1798740   (66603) от 23.05.2025
+###  Публикация: 1790149   (68155) от 07.04.2025
 
-Lila Tirando A Violeta - Dream of Snakes (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Abstract, Ambient, Experimental, Deconstructed Club>
+Tony Slone - Tony Slone (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>HD Audio и Многоканальная Музыка
->>WEB-DL-Audio
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66603.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68155.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Unworthy Praise [00:03:38]
-02. New Flesh [00:02:37]
-03. Ostrich/Ñandú [00:03:27]
-04. Heavy is the Soul [00:03:41](   Читать дальше...   )Жанр: Abstract, Ambient, Experimental, Deconstructed ClubПродолжительность: 00:41:56
+01.  The Last Kiss Goodnight (3:32)
+02.  Give Her Your Heart (3:49)
+03.  Prisoners Prayer (4:00)
+04.  Cold Day (3:58)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:22:38
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:DE90468FC8BC08527F4033178919EAE266FFD250
+magnet:?xt=urn:btih:BD697A90A7B5F73292D8F72A9599397ACC27D3FE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790134   (68154) от 07.04.2025
+
+Mike Dangeroux - Empty Chair (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68154.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  End Like This (3:26)
+02.  Money Back (3:45)
+03.  Play My Cards Right (4:16)
+04.  No Good for Me (4:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:24:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F9EAB792F43658B69753676E64DF5B7BCB437DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790142   (68153) от 07.04.2025
+
+PS & Co - I brennandi husi (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68153.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Í brennandi húsi (6:29)
+02.  Krossgötur (3:51)
+03.  Súperegóblús (2:52)
+04.  Veiðiblús (6:52)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7481C859228651390AA82309F25D49D86B7DBE86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790131   (68152) от 07.04.2025
+
+Marcos Ottaviano - Marcos Ottaviano And His Blues Band: Celebrando 35 Anos De Carreira (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68152.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  When the Music Stops (3:48)
+02.  Trouble in Mind (3:33)
+03.  Got to Move (3:46)
+04.  Come Back Home (3:54)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:30:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:41C6420F1881CDE90C921303502F09125E3A247E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790147   (68151) от 07.04.2025
+
+Tim Hain - Tales of Timeless Tim (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68151.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Sister Rosetta (3:38)
+02.  Bone Age (3:46)
+03.  Love Lives On (4:40)
+04.  Last Drop (4:32)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:40:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DBE3EEB6752CFDC62D162939C8C3E16181F89E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790143   (68150) от 07.04.2025
+
+Richard Davies & The Dissidents - High Times & Misdemeanours (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68150.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Keep Your Fires Burning (2:35)
+02.  Soldier of Fortune (2:58)
+03.  Human on the Inside (3:30)
+04.  Born to Drown (3:06)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0976EFAF1ED990A8BCD655469D989FBEB0E424B2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790153   (68149) от 07.04.2025
+
+Wildan Kusnadi - Highway (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68149.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Wanna Know (3:22)
+02.  Smell of Whiskey (3:51)
+03.  My Dreams (3:14)
+04.  Mistake (3:08)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1ED8B4F4100F806824C33339920048D2A2DD3894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790157   (68148) от 07.04.2025
+
+Wildmen Bluesband - Troubled Soul (2025) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68148.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  King Bee (4:00)
+02.  Conversation With The Devil (5:08)
+03.  Troubled Soul (6:51)
+04.  Blues Rocking Body (4:00)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7604A094B4D4AB3CA0113A31137C91FFA0562EEF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790122   (68147) от 07.04.2025
+
+НХЛ 2024-2025. Вашингтон Кэпиталз - Нью-Йорк Айлендерс (06.04.2025) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68147.jpg" />
+</div>
+
+
+###  Подробнее
+
+6 апреля 2025, воскресенье. 19:30 МСК. Стадион: Ю-Би-Эс-Арена (Элмонт, США), 17 255 зрителей (100% при вместимости 17 255)
+Главный судья: Жан Эбер (Монктон, Канада); Главный судья: Митч Даннинг (Текумсе, Канада); Линейный: Си Джей Мюррей (Питтсбург, США); Линейный: Дэн Келли (США)Телекомпания: TNTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:11:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6353994385919CF8BD472224F4304BFC152B3865
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789890   (68146) от 07.04.2025
+
+Stealth - Metal Force (2025) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal, Speed Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68146.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jail (Intro) [00:01:06]
+02. Metal Force [00:03:44]
+03. Release the Fire [00:03:14]
+04. Downtime [00:03:26](   Читать дальше...   )Жанр: Heavy Metal, Speed MetalПродолжительность: 00:30:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C372666E204844613EC505F8D4C53A4E39118408
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1789899   (68145) от 07.04.2025
+
+Calyces - Fleshy Waves of Probability (2025) [FLAC|Lossless|WEB-DL|tracks] <Progressive Metal, Stoner>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68145.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Swirling Towards the Light (00:04:55)
+02 - Boneshatter (00:04:41)
+03 - Wastelands (00:04:40)
+04 - Lost in Phrase (00:05:43)(   Читать дальше...   )Жанр: Progressive Metal, StonerПродолжительность: 00:39:45
+bandcamp
+Fleshy Waves of Probability - bandcamp
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:135297A8508066EF9E2E0FFA60ED41E752384D59
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1790047   (68144) от 07.04.2025
+
+Fear Factory - Demanufacture (1995) Reissue, 2007, Cargo Records [FLAC|24/192|tracks|Vinyl-Rip] <Death Metal, Groove, Industrial Metal>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_68144.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1. Demanufacture
+A2. Self Bias Resistor
+A3. Zero Signal
+B1. Replica(   Читать дальше...   )Жанр: Death Metal, Groove, Industrial MetalПродолжительность: 00:55:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1634BEE1E7A644DF8A7A6686DBE07CBB0A70BBFC
 ```
 
 https://mybot314.ru/tekegram_catalog/

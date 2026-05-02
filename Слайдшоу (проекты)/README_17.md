@@ -1,3 +1,30 @@
+###  Публикация: 1495339   (882077) от 11.09.2021
+
+Проекты - VideoHive - Slideshow - 16541148 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_882077.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Slideshow» - простенький шаблон для создания красивого слайд-шоу.
+Добавьте своё изображение или видео, отредактируйте текст и наслаждайтесь результатом!Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5615A249AA8AAA51D0AAC8B55F00EE483BF014C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1373071   (881870) от 05.04.2020
 
 Проекты - MotionElements - Beach Memories Slide 2 - 11242641 [AEP]
@@ -645,33 +672,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DA05A16C9964358D2155AB9BE8A8B0D4844925C0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 997274   (875258) от 16.03.2016
-
-Проекты - Creativity Unbound Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_875258.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания фото-видео сладшоу. Так же подойдет для корпоративного видео и видео-презентаций.
-Используется в Adobe After Effects.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D42F2F0302AFA770AA09EB7649020808CBBEA35D
 ```
 
 https://mybot314.ru/tekegram_catalog/

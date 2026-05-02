@@ -1,3 +1,61 @@
+###  Публикация: 1182327   (317147) от 10.11.2017
+
+VA - Markus Schulz & Davey Asprey - Global DJ Broadcast (2017) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_317147.jpg" />
+</div>
+
+
+###  Подробнее
+
+Markus Schulz
+01. Markus Schulz presents Dakota - The Spirit of the Warrior (Transmission 2017 Theme)
+02. Ayla - Ayla (Ben Nicky & Luke Bond Remix)
+03. DIM3NSION & ZAA - Cielo(   Читать дальше...   )Жанр: TranceПродолжительность: 02:00:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B6634B45ABE12E4D39F4CAD7BCC6A3F7C6680D76
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1422443   (310707) от 08.11.2020
+
+Armin van Buuren - Live @ Amsterdam Music Festival, Netherlands (2020-11-07) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_310707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ID - ID
+02. Armin van Buuren ft. Jake Reese VS ARTBAT & Sailor & I - Need You Now vs Best of Me (Armin Van Buuren Mashup)
+03. Fabrication & Assaf ft. Nathan Nicholson -  Dustpig vs. Lost Souls (Armin Van Buuren Mashup)
+04. Cubicore ft. K.I.R.A. - Circles(   Читать дальше...   )Жанр: TranceПродолжительность: 00:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D2F6C563BFEDB8B8CDAE8C3648DCB22CABF81F45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1183328   (310221) от 13.11.2017
 
 VA - Ori Uplift & Nick Turner - Uplifting Only 248 (2017) [MP3|320 Kbps] <Trance, Uplifting Trance>
@@ -687,64 +745,6 @@ Markus Schulz:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:27B7D62A8F5FB6783AE5CE41C72FF20F4B7519E4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264334   (281240) от 23.11.2018
-
-VA - Markus Schulz – Global DJ Broadcast (2 Hour Studio Mix) (2018) [MP3|320 Kbps] <Trance,Progressive Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281240.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Markus Schulz vs. Jam El Mar – The Lotus
-02. Ilan Bluestone ft. Ellen Smith – Rival (Rafaël Frost Remix)
-03. Raito – Dark Ritual
-04. Sam Laxton & Noire Lee – Thunderstorm (GXD Remix)(   Читать дальше...   )Жанр: Trance,Progressive TranceПродолжительность: 01:59:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FAA60187C52833AE6BC07964D478FEDA2724304C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1264336   (281235) от 23.11.2018
-
-VA - Ori Uplift - Uplifting Only 302 (2018) [MP3|320 Kbps] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Radioshow, Live Mixes
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_281235.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. FAN FAVORITE & PRE-RELEASE PICK: Playme - The Great Bay (Intro Mix)
-02. Mhammed El Alami & Emma Horan - Warriors (Extended Mix)
-03. Brian Flinn & Type 41 - Back to Yesterday
-04. Mike van Fabio & Kim Kiona - Don't Run Away(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:58:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9E8E4B2B03ED621B02E36AACAD472792A997FE7D
 ```
 
 https://mybot314.ru/tekegram_catalog/

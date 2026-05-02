@@ -1,3 +1,61 @@
+###  Публикация: 1409682   (443342) от 18.09.2020
+
+Mel Torme - The Essentials (1946 - 1962) 2002, Warner [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443342.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Willow Road [3:02]
+02. It Happened in Monterey [2:51]
+03. There's No Business Like Show Business [2:56]
+04. (It's) Easy to Remember [3:01](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:35:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40C0899BCC2DFBCCF8F4789ED538C8273D3F42E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1409685   (443341) от 18.09.2020
+
+Kenny Burrell - Giants of Jazz (2004) Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz, Guitar Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_443341.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. All Blues [10:05]
+02. St. Thomas [3:48]
+03. You and the Night and the Music [4:40]
+04. Listen to the Dawn [5:40](   Читать дальше...   )Жанр: Hard Bop, Mainstream Jazz, Guitar JazzПродолжительность: 00:56:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EC8659F11A14579FB68A545DC6B08F4F1C0ABCC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1409683   (443338) от 18.09.2020
 
 June Christy - The Ballad Collection (50-e - 60-e) 2000, Capitol Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Art Van Damme - So Nice! (1979) 2009, Jazzclub Originals [FLAC|Lossless|tracks +
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D28D5A6392E496E1F786C6546F789DA045223351
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944521   (440679) от 07.10.2015
-
-The Phil Woods Quartet - Warm Woods (1957) /2014, Sony Music/[FLAC|tracks+.cue]<Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440679.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.In Your Own Sweet Way [08:06]
-02.Easy Living [04:56]
-03.I Love You [04:51]
-04.Squire's Parlor [05:41](   Читать дальше...   )Жанр: BopПродолжительность: 00:46:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:02A9489436580950CC81DB8BE90CACE19A3EB096
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 944339   (440666) от 07.10.2015
-
-Leon Spencer - Bad Walking Woman (1972) /2014, Universal/[FLAC|tracks+.cue]<Jazz-Funk, Soul-Jazz, Hammond Organ>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_440666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Hip Shaker [03:05]
-02.Down On Dowling Street [05:01]
-03.In Search Of Love [05:00]
-04.If You Were Me And I Were You [06:04](   Читать дальше...   )Жанр: Jazz-Funk, Soul-Jazz, Hammond OrganПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7F755CEBED1F6EFAE13DC814223E1DE6FE9737E
 ```
 
 https://mybot314.ru/tekegram_catalog/

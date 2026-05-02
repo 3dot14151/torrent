@@ -1,3 +1,30 @@
+###  Публикация: 1262571   (293500) от 16.11.2018
+
+Jacob Singer - Elohim (2018) EP [FLAC|Lossless|WEB-DL|tracks] <Progressive House>
+
+>>Electronic
+>>House, Techno, Electro, Minimal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_293500.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Elohim (Original Mix)
+02. The Book Of Enoch (Original Mix)Жанр: Progressive HouseПродолжительность: 00:14:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92FA980DB4F96820799092268BA6D046CEE4D5AC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 960899   (292839) от 05.12.2015
 
 VA - Terry Lee Brown jr. - Terry's Cafe vol. 1-14 (1997-2012) [FLAC|Lossless|tracks+.cue]<House, Deep House, Tech House>
@@ -716,35 +743,6 @@ Hardwell - United We Are Remixed (Extended Mixes) (2015) [FLAC|Lossless|WEB-DL]<
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9DA4D765E240BF670F048D696CBB9957230E54C1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1081974   (280754) от 11.12.2016
-
-VA - Mixmag Germany Presents Kittball (2016) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
-
->>Electronic
->>House, Techno, Electro, Minimal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_280754.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paji & Juliet Sikora - Dimension (original mix) (05:57)
-02. KANT - Never U Mind (original mix) (06:30)
-03. Purple Disco Machine - Walls (original mix) (06:38)
-04. Tube & Berger - Set Free (feat Ghost Loft) (06:50)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 03:30:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22FF990C5E12F629142AF8581BBCF9B228A88ADC
 ```
 
 https://mybot314.ru/tekegram_catalog/

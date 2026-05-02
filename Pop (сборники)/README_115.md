@@ -1,3 +1,119 @@
+###  Публикация: 1515836   (167691) от 09.12.2021
+
+VA - National Pop Dance Music Vol.27 (2021) [MP3|320 Kbps] <Pop, Dance, Folk>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167691.jpg" />
+</div>
+
+
+###  Подробнее
+
+Очередной 27-й сборник лучших хитов народной попсы в проекте National Pop Dance Music уже готов к прослушиванию. Как полагается Вас ожидает 150 самых популярных песен с различных уголков мира, которые непременно создадут вам хорошее настроение и подарят целых девять часов самой классной музыки001. Kizz Daniel - Pipa
+002. Truck Stop - Morgen Gleich Morgen
+003. Tunng - Woman
+004. Jack Symes - Good Morning(   Читать дальше...   )Жанр: Pop, Dance, FolkПродолжительность: 09:02:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6B56964123C10322D923A649D4443B8C146C0DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431453   (167653) от 13.12.2020
+
+VA - National Pop Dance Music Vol.12 (2020) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167653.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это активная, бодрящая, воодушевляющая музыка, ведомая силой и духом. Её можно использовать на тренировке в спортзале или при пробежке в парке. Она поможет ощутить яркую бурлящую жизнь внутри себя, единство силы и воли для достижений и побед в спорте.001. Vize X Imanbek - Brother Louie
+002. Lucky Luke - Cooler Than Me
+003. Showtek, Spree Wilson - The Weekend
+004. Regard - Secrets(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 08:05:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D53769FC9FEECF077E13C8C3283A65D1FD3805F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1345413   (167306) от 14.12.2019
+
+VA - German Top 100 Single Charts 13.12.2019 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_167306.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nimo & Hava - KEIN SCHLAF
+02. Samra - COLT
+03. Tones and I - Dance Monkey
+04. Apache 207 - Roller(   Читать дальше...   )Жанр: PopПродолжительность: 05:20:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1F5B35D3D07B157134044C1320A97600F0EA41E1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1431746   (165559) от 15.12.2020
+
+VA - Old Disco Drive (2020) [MP3|320 Kbps] <Disco>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_165559.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда на смену открытым танцплощадкам пришли дискотеки с зеркальными шарами - мы узнали о существовании Диско. Синтезатор вытеснил пианино из наших квартир. Выходных ждали, что бы зажечь на танцполе. Ритм 120 ударов в минуту - становился комфортным. Мы хотели быть похожими на звезд в стиле диско. Добавьте блеска и бесшабашности в свою жизнь. Слушайте и непременно (   Читать дальше...   )001. Sneaky Sound System - Can't Help
+002. Stewart Birch - Like The Rays From The Sun
+003. Phenomenal Handclap Band - Judge Not
+004. Finger Lips - Pink(   Читать дальше...   )Жанр: DiscoПродолжительность: 10:39:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F0A32ECF5680860B60F3E8C6B8B4D8B0459CF60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1597852   (164891) от 16.12.2022
 
 VA - Top Dance Hits (2022) [MP3|320 Kbps] <Synthpop, Disco, Electro Pop, Indie Dance>
@@ -629,122 +745,6 @@ VA - Soft Pop Hits (2023) [MP3|320 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:406DB6152816B2C368174BE86D577592C990B3BF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967131   (158638) от 20.12.2015
-
-VA - Best Of 2015 - Die Hits des Jahres (2015) [MP3|320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158638.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ellie Goulding - Love Me Like You Do (From Fifty Shades Of Grey) (04:13)
-02. Sido - Astronaut (03:59)
-03. Felix Jaehn - Ain't Nobody (Loves Me Better) (Original Version) (03:07)
-04. Sarah Connor - Wie Schon Du Bist (03:39)(   Читать дальше...   )Производство: PolystarЖанр: Pop, DanceПродолжительность: 02:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D19CA770B229132457D4C4D321AB7ED375FA8AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 967361   (158352) от 21.12.2015
-
-VA - Like FM. Слушай, что нравится! (2015) [MP3|320 кб/с] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_158352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Adam Lambert - Ghost Town (03:29)
-02. Imany - Don't Be So Shy (Filatov & Karas Remix) (03:11)
-03. Kygo feat. Conrad Sewell - Firestone (04:34)
-04. Gorgon City feat. Katy Menditta - Imagination (03:39)(   Читать дальше...   )Производство: SBA ProductionЖанр: Pop, DanceПродолжительность: 01:37:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B6FBB87781161DADAC8E32880C22E8F4E65D40D1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270168   (157699) от 19.12.2018
-
-VA - German Top 50 Official Dance Charts 14.12.2018 (2018) [MP3|320 Kbps] <Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157699.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fatboy Slim - Praise You (Purple Disco Machine Remix)
-02. Robin Schulz, Erika Sirola - Speechless (feat. Erika Sirola)
-03. Chic - Le Freak (Oliver Heldens Remix)
-04. Calvin Harris, Sam Smith - Promises (David Guetta Remix)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2288DC3EAB5CE3994CFC9A62D2D9263CCEBCC310
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1270502   (157487) от 19.12.2018
-
-VA - Cristmas Sexy Dance (2018) [MP3|320 Kbps] <Pop, Dance, Club>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_157487.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Adrenaline Depart - Feel The Heat
-002. 7Oast And Ifl And Roomp - In Lovemotion (Original Mix)
-003. Love Junkeez - Anywhere (Radio Edit)
-004. Manuel Santini - Caliente(   Читать дальше...   )Жанр: Pop, Dance, ClubПродолжительность: 10:26:31
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:452EC37ED2BE4C1CEA0B701E0DA886C5D239B636
 ```
 
 https://mybot314.ru/tekegram_catalog/

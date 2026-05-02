@@ -1,3 +1,119 @@
+###  Публикация: 1841538   (1048114) от 12.12.2025
+
+Diaclast - violence originates violence (2025) [MP3|320 Kbps] <brutal-death-metal, death-metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048114.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Infected zombie [00:02:32]
+2. Homicidal desire [00:04:11]
+3. Violence originates violence [00:03:59]
+4. Bloodborn [00:03:27](   Читать дальше...   )Жанр: brutal-death-metal, death-metalПродолжительность: 00:33:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57AE4DAC72F0D6CC7E55D8C0B1EA3C9F9D4E6378
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1841375   (1048016) от 11.12.2025
+
+Звери - Акустика 2025 (Live) (2025) [MP3|320 Kbps] <Pop-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1048016.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Я с тобой (Акустика 2025, Live) [00:04:27]
+02. Синий трамвай (Акустика 2025, Live) [00:02:44]
+03. Для тебя (Акустика 2025, Live) [00:03:26]
+04. Маленькая _с_ (Акустика 2025, Live) [00:04:00](   Читать дальше...   )Жанр: Pop-RockПродолжительность: 01:43:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E91A41E8923E2BC926ADA62C40223AB86C3CD2EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840723   (1047494) от 06.12.2025
+
+Вася Обломов - Как всё было на самом деле (2025) [MP3|320 Kbps] <Rock, Rap, Alternative Сhanson>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047494.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. В национальных интересах
+2. Где никто не хочет войны
+3. Стояли люди на ветру
+4. Молодость(   Читать дальше...   )Жанр: Rock, Rap, Alternative СhansonПродолжительность: 01:03:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:532631657DB0DFBBCE1B873AFCB25AC18E7702D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1840071   (1047033) от 02.12.2025
+
+Ангел НеБес - ВРЕМЯ УХ….. ПОСЛЕСЛОВИЕ (2025) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1047033.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. СО МНОЙ (Всегда)
+2. КОЛОКОЛЬНЫЕ ЗВОНЫ
+3. ГУЛЯЕТ ВОРОН (По коридорам)
+4. В СЕРДЦАХ(   Читать дальше...   )Жанр: RockПродолжительность: 00:43:48
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:531975334845F13F28F238A4C094091F65437E8D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1839575   (1046600) от 29.11.2025
 
 ДДТ (DDT) - Бокс №2. 6 Альбомов (2025) Remastered [MP3|320 Kbps] <Rock>
@@ -627,122 +743,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3551B1A09B71F934882734D0BD2619DCC4F2CB62
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1602918   (1045941) от 07.01.2023
-
-Без Билета - The Best, Pt. 1 (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045941.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Здравствуй, мой друг
-2. Байконур 66
-3. Танцуй
-4. Две лодки(   Читать дальше...   )Жанр: RockПродолжительность: 00:57:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D2ACF4E7BBBFB22EEDC83DA0204C5D28017C6402
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1603479   (1045719) от 09.01.2023
-
-Гнилой Район - Легенды Русского Рока (2022) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045719.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Гнилой Район
-2. Судьба Быть Легендой
-3. Повелитель Сна
-4. Ария Лешего(   Читать дальше...   )Жанр: Punk RockПродолжительность: 01:05:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D85AB96B6B8D3CB9A54DD2BA798B381C6C02BE5B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604931   (1045225) от 15.01.2023
-
-para bellvm - Трава забвения (2023) [MP3|320 Kbps] <Gothic Rock, Dark Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 - Слишком (Пролог) [00:03:13]
-02 - Радио Судного Дня [00:02:58]
-03 - Прогулка [00:04:41]
-04 - Золотой гребень [00:04:16](   Читать дальше...   )Жанр: Gothic Rock, Dark RockПродолжительность: 00:37:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28439A8C36584005777358D99A89C38426B90587
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1604885   (1045170) от 15.01.2023
-
-VA - После России / After Russia (2023) [MP3|320 Kbps] <Alternative, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1045170.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Ногу свело! - Ледяной поход / The Ice March
-2. Королев Попова - Пули / Shot
-3. НАИВ - Пулемёт / Machine Gun
-4. Миша Дымов и Мила Варавина - Уходящий берег / Fading shore(   Читать дальше...   )Жанр: Alternative, RockПродолжительность: 00:48:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4CDBB2EFCF643AD6AD93FED843F48B3D5D3F1E23
 ```
 
 https://mybot314.ru/tekegram_catalog/

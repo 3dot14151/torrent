@@ -1,3 +1,61 @@
+###  Публикация: 1693565   (121707) от 21.01.2024
+
+Aaron Diehl & The Knights - Zodiac Suite (2023) Mack Avenue [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz, Modern Creative>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121707.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aries [2:11]
+02. Taurus [2:41]
+03. Gemini [2:08]
+04. Cancer [3:47](   Читать дальше...   )Жанр: Post-Bop, Contemporary Jazz, Modern CreativeПродолжительность: 00:37:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:59CB367BDF5BB141E337F906960F9FFD721259C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1693609   (121700) от 21.01.2024
+
+V.A. - Chillout Covers Collection Vol.6 (2024) [FLAC|Lossless|WEB-DL|tracks] <Nu Jazz, Pop Jazz, Easy Listening>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_121700.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alfredo Bochicchio,Marcello Sirignano,Papik - Air On The G-string / A Wither Shade Of Pale (From The Movies "Seven / The Big Chill")
+02. Danny Losito,Slamtwisted - Something About You
+03. Hotter Skank,David Florio - Enjoy The Silence
+04. Papik,Nadia Straccia - The Logical Song(   Читать дальше...   )Жанр: Nu Jazz, Pop Jazz, Easy ListeningПродолжительность: 01:24:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CA484BE2120150FD85BE753D949BA108782676D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1693564   (121668) от 21.01.2024
 
 Susannah McCorkle - How Do You Keep The Music Playing? (1985) 2000, The Jazz Alliance [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Caro Emerald & The Grandmono Orchestra - Live In Concert (At The Heineken Music 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1191274533FA9C40357D756DC3E33EBA2D76CE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695195   (120412) от 28.01.2024
-
-JD Allen - Toys / Die Dreaming (2020) Savant [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You're My Thrill [9:33]
-02. The G Thing [6:41]
-03. Die Dreaming [5:58]
-04. Red Label [6:30](   Читать дальше...   )Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A8D5AFD95C59CA64D80C6735B8E0409404AE4374
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1695187   (120410) от 28.01.2024
-
-Mel Torme & Carmen McRae - Ralph J Gleason's Jazz Casual (1962, 1964) 2001, Koch Jazz [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_120410.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. We've Got a World That Swings [2:10]
-02. Interview [7:24]
-03. Comin' Home Baby [2:31]
-04. Mel Speaks [1:20](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:57:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E62A1C218FC83FEE3C881EE7DC459984C9F8EF5C
 ```
 
 https://mybot314.ru/tekegram_catalog/

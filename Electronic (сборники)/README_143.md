@@ -1,3 +1,61 @@
+###  Публикация: 1163645   (448422) от 06.09.2017
+
+VA - Digital Tech House (2017) [MP3|320 Kbps] <Tech House, Minimal Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_448422.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Boris Brejcha - Anthurie
+002. Trump - Noteam
+003. Cut N Glue - Headliner
+004. Topmodel - Major(   Читать дальше...   )Жанр: Tech House, Minimal ElectroПродолжительность: 10:16:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:25A8C94315F634FC72B70CC4D4162F0724A08EA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1061722   (446763) от 11.10.2016
+
+VA - Trance Floor Astronomical (2016) [MP3|320 Kbps] <Trance, Melodic, Emotional, Energy, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_446763.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Alan Morris & Trance Arts - Innetic (Original Mix)  6:10
+02. Frainbreeze & Lucid Blue - Light My Way (Original Mix)  5:43
+03. Sean Tyas & Darren Porter - Relentless (Radio Edit)  3:40
+04. Binary Finary - The Annex (Original Mix)  7:50(   Читать дальше...   )Жанр: Trance, Melodic, Emotional, Energy, ProgressiveПродолжительность: 05:49:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A6DFB38888B8C2F20BABCA8DABDDF16DA73C20EF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1061791   (446750) от 11.10.2016
 
 VA - Mystical n Sexy Lounge (2016) [MP3|256-320 Kbps] <Downtempo, Chillout, Lounge>
@@ -717,61 +775,6 @@ VA - Trance 100 Best Of (2015) [MP3|320 кб/с]<Trance, Uplifting Trance, Vocal
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EC251C501EFCEE118E615D2FD23F4E2CFCF13CBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1570319   (442881) от 17.08.2022
-
-VA - HarDD NRG OverDoZZe 9 (2022) Mixed by aQuaLuna [MP3|320 Kbps] <Trance, Hard Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442881.jpg" />
-</div>
-
-
-###  Подробнее
-
-(+*CUE)
-01 Photonic - Obscure (Jay Welsh Remix) (BLACK ICE,1999)
-02 Jay Welsh - Four Horsemen (Original Vox) (METHOD,2001)
-03 Sasha vs. Underworld - Xpanding Girl (DJ Orkidea Remix) (Not On Label,2005)(   Читать дальше...   )Жанр: Trance, Hard TranceПродолжительность: 02:00:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:07CDF6AB44CDABD69A2B8724239183FB7A643421
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1062402   (442463) от 13.10.2016
-
-VA - Lucid Moments Vol 7 (2016) [MP3|320 Kbps] <Chillout, Downtempo, Trip-Hop>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_442463.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Klartraum & Thalstroem - Flight To BerlinЖанр: Chillout, Downtempo, Trip-HopПродолжительность: 05:00:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:62B2C818B2F552C7A1402F401B844D6E3822D2C6
 ```
 
 https://mybot314.ru/tekegram_catalog/

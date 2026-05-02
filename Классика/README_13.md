@@ -1,3 +1,32 @@
+###  Публикация: 1001066   (855344) от 27.03.2016
+
+Ludovico Einaudi - Taranta Project (2015) [FLAC|Lossless|tracks + .cue] <Modern Classical, Piano>
+
+>>Классика
+>>В обработке/Classical Crossover/Neoclassical (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_855344.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introductio ad Regnum Tarantulae [04:20]
+02. Taranta [04:21]
+03. Fimmene [04:17]
+04. Nazzu Nazzu [05:35](   Читать дальше...   )Жанр: Modern Classical, PianoПродолжительность: 01:04:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:07C7C9546A5849C32C49418F94BC5D330962BAC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1000545   (855337) от 27.03.2016
 
 Edvard Grieg - Piano Concerto & Lyric Pieces (Javier Perianes, BBC Symphony Orchestra, Sakari Oramo) (2015) [FLAC 2.0|96/24|Lossless|tracks] <Classical>
@@ -713,35 +742,6 @@ Elina Garanca - Mozart - Opera & Concert Arias (2005) [FLAC|Lossless|image + .cu
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EB65A6EAA79C2A4AF0A5CDF3B47F1F3CBB93ADE8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002315   (848608) от 31.03.2016
-
-Elina Garanca - Meditation (2014) [FLAC|Lossless|image + .cue] <Classical, Opera>
-
->>Классика
->>Вокал (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_848608.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Charles Gounod - Sanctus  5:39
-02.  Charles Gounod - Repentir (O Divine Redeemer)  6:34
-03.  Ugjis Praulinjsh - Dievaines  6:25
-04.  Pietro Mascagni - Regina coeli laetare  5:56(   Читать дальше...   )Жанр: Classical, OperaПродолжительность: 01:11:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65968525AFAFE447E341A7BBE839179E4BDD3E59
 ```
 
 https://mybot314.ru/tekegram_catalog/

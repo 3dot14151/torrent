@@ -1,3 +1,119 @@
+###  Публикация: 1343155   (218383) от 06.12.2019
+
+Chris Rea - Hofner Blue Notes (2003) Reissue 2019 [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_218383.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Spy 5:05
+2. Expectations 3:59
+3. Hofner Blue Notes 2:52
+4. Paris In Minneapolis 5:05(   Читать дальше...   )Жанр: BluesПродолжительность: 00:50:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A651E15D42FAB096C5606DBC0705712583430DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1425926   (218230) от 22.11.2020
+
+VA - Funky Blues (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jonny Lang - Before You Hit The Ground (Album Version)
+02. Etta James - Welcome To The Jungle (Album Version)
+03. Robben Ford - Supernatural
+04. Jimmy Thackery And The Drivers - Blues for Sale(   Читать дальше...   )Жанр: BluesПродолжительность: 01:47:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EEA5B5F8425CF943946BAD7AD7B2BAFF61D39F86
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343194   (218187) от 06.12.2019
+
+Chris Rea - Blue Street (Five Guitars) (2003) Reissue 2019 [FLAC|Lossless|tracks + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218187.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Blue Miles 6:18
+2. Blue Street 7:04
+3. Big C 5:49
+4. Big C Bid Sea 2:42(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EAEE5D41A5464C862F74C9C3332C81E279312918
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1343250   (218100) от 06.12.2019
+
+Chris Rea - Still So Far To Go...The Best Of Chris Rea (2009) 2CD [FLAC|Lossless|image + .cue] <Blues, Pop Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_218100.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Fool (If You Think It's Over)
+02. On The Beach
+03. Let's Dance(   Читать дальше...   )Жанр: Blues, Pop RockПродолжительность: 02:33:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:86B41FF2D3FB92B4FAF039A145D57B1462DEA041
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1586330   (217331) от 26.10.2022
 
 Randy Crocker - Don't Forget the Wine (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -636,122 +752,6 @@ Mikey Junior - Blues in the Barn, Vol. 2 (2023) [FLAC|Lossless|WEB-DL|tracks] <B
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6AFCB5462AA974757AC42FC1BA2F5C6F1585F359
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653860   (213760) от 18.08.2023
-
-Gato Gordo - Sobreviviente (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213760.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Sin nada que hacer (Spanish) (4:12)
-02. God Bless You New Orleans (5:17)
-03. Let me Out (8:35)
-04. The Hucklebuck (5:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:53:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DC959E4D5501473A7C182C9C841F948218122FB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653865   (213750) от 18.08.2023
-
-Nic Clark - Everybody's Buddy (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213750.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Laughing At The Rain (3:38)
-02. It'll Be Alright (3:34)
-03. Try To Understand (3:50)
-04. Good Advice (3:57)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:46:04
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:459D0E955A3C00CE96A97E48BA4B521D85CC9A03
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653862   (213724) от 18.08.2023
-
-Kristy Lee - The Olive Tree (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213724.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Olive Tree (4:45)
-02. Time (3:18)
-03. Expired (3:23)
-04. Fake Friend (3:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:35:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C2CE9AEDAB513B5667FC3FCD06AFB50A4144E447
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1653868   (213714) от 18.08.2023
-
-Ross Cirri - Don't Mean Nothin (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_213714.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Livin in a House of Blues (4:58)
-02. Jumpin Jehoshaphat (5:53)
-03. These Blues (4:18)
-04. Welcome to the Blues (4:37)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D040AAFE53DBF1BA0D536DE51DD38C4BB0EFADF
 ```
 
 https://mybot314.ru/tekegram_catalog/

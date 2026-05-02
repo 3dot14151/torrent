@@ -1,3 +1,61 @@
+###  Публикация: 1229318   (628222) от 05.06.2018
+
+Sammy Davis, Jr. & Carmen McRae - Boy Meets Girl & Porgy and Bess (1957, 1959) 2005, Verve [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628222.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Happy to Make Your Acquaintance [3:15]
+02. Tea for Two [2:37]
+03. They Didn't Believe Me [2:57]
+04. You're the Top [3:05](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 01:17:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2621682E0305B6D21F2C756B7C03C0DD31BF0B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1144547   (627911) от 22.06.2017
+
+Jerome Sabbagh - Plugged In (2012) Bee Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627911.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Drive [05:23]
+02. Special K [03:58]
+03. Aisha [07:10]
+04. Jeli [05:21](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:05:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5171A59C686281232BA70DA1DA51D93B12308FD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1144545   (627906) от 22.06.2017
 
 Idrees Sulieman & Benny Bailey - Swiss Radio Days: Jazz Live Trio Concert Series, vol.25 (1970, 1975, 1982, 1983) 2011, TCB [FLAC|Lossless|image + .cue] <Hard Bop, Mainstream Jazz>
@@ -711,64 +769,6 @@ Benny Waters - From Paradise (Small's) To Shangri-La (1989) Muse Records [FLAC|L
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A1D15E65EA55BADEFF793ECD27BF6E1736DE13B8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1145075   (624034) от 24.06.2017
-
-Jenny Scheinman - Mischief & Mayhem (2012) Tzadik [FLAC|Lossless|tracks + .cue] <Modern Creative, Violin Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_624034.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Ride with Polly Jean [06:22]
-02. Sand Dipper [04:24]
-03. Blues for the Double Vee [03:57]
-04. Devil's Ink [07:42](   Читать дальше...   )Жанр: Modern Creative, Violin JazzПродолжительность: 00:43:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:551A620943B37336F443B5D85E9C76BD33A821DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294952   (623980) от 10.04.2019
-
-Anthony Wilson - Anthony Wilson (1997) Mama Foundation [FLAC|Lossless|image + .cue] <Hard Bop, Guitar Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_623980.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Fargas Shuffle [6:51]
-02. The Parisian Knights [5:59]
-03. Karaoke [10:09]
-04. Leila [7:03](   Читать дальше...   )Жанр: Hard Bop, Guitar JazzПродолжительность: 01:14:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93D9C25614FAF74D12D55D1372538B3139AFD825
 ```
 
 https://mybot314.ru/tekegram_catalog/

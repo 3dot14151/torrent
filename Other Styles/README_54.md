@@ -1,3 +1,206 @@
+###  Публикация: 1125453   (765535) от 18.04.2017
+
+The Gordon Brothers - Yoga Planet (2008) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765535.jpg" />
+</div>
+
+
+###  Подробнее
+
+1.  Gliding In Azure (7:22)
+2.  Cante Libre (5:35)
+3.  Dream Wave (6:06)
+4.  Asana Lounge (8:13)(   Читать дальше...   )Жанр: New AgeПродолжительность: 01:05:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1D676ABAA85425254983F4772E49C49DDF53EDAA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1125948   (765533) от 18.04.2017
+
+Vin Downes - When The Sea Lets Go (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765533.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entwined and Lost
+02. Evening in Berkeley
+03. Morning Red
+04. Dust and Drag(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:45:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4DA9651B332D174ABC779767E1BF2C87A6BBD270
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1393560   (765432) от 03.07.2020
+
+Jim Brickman - Piano Tributes: Songs Of Carole King (2020) [FLAC|Lossless|WEB-DL|tracks] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_765432.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. You've Got A Friend
+02. So Far Away
+03. Up On The Roof
+04. Tapestry(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:36:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7228FA7FEF5299D855635BB0B3F51D80EC78D35
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1279729   (764544) от 31.01.2019
+
+Ulver - Svidd Neger (Original Motion Picture Soundtrack) (2003) [FLAC|Lossless|tracks + .cue] <Electronic, Soundtrack, Modern Classical>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764544.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Preface (1:42)
+02. Ante Andante (0:53)
+03. Comedown (2:19)
+04. Surface (3:17)(   Читать дальше...   )Производство: Jester Records – TRICK030Жанр: Electronic, Soundtrack, Modern Classical, Score, AmbientПродолжительность: 00:32:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:133A35C1E4AE0C925F4557605C541C2B9FB80E62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126635   (764479) от 19.04.2017
+
+The Essence - Enigma Lounge (2003) [FLAC|Lossless|tracks + .cue] <Enigmatic, New age>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Wholeness Of The Essence (04:38)
+02. True Sensuality (05:02)
+03. Essence (04:02)
+04. La Vie Rouge (04:04)(   Читать дальше...   )Жанр: Enigmatic, New ageПродолжительность: 01:04:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C1C57950BAC6E7E800C0950B1FA8B126BA41D81B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1126599   (764330) от 19.04.2017
+
+Blonker - Fantasia (1980) Remastered, 1994 [FLAC|Lossless|image + .cue] <New Age, Ambient, Rock>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_764330.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Aranjuez (4:48)
+ 02. Sidewalk Cafe (3:16)
+ 03. Pavane (4:05)
+ 04. Anak (4:36)(   Читать дальше...   )Жанр: New Age, Ambient, RockПродолжительность: 00:42:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DEE5916A2D96AEDF1BC7CB426B352FBF0088ECA5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1394272   (763729) от 05.07.2020
+
+Willie Nelson - First Rose of Spring (2020) [MP3|320 Kbps] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_763729.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. First Rose of Spring (03:40)
+ 02. Blue Star (04:35)
+ 03. I ll Break Out Again Tonight (02:50)
+ 04. Don t Let the Old Man In (03:08)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:41:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CFE4B2E220989655B6CB53D61D2350A0985CD31
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1394455   (763716) от 05.07.2020
 
 VA - Sons of Anarchy - The Complete Fantasy Playlist (2016) [FLAC|Lossless|WEB-DL|tracks] <Rock, Stage & Screen, Soundtrack>
@@ -542,209 +745,6 @@ Willie Nelson - First Rose Of Spring ‎ (2020) [FLAC|Lossless|tracks + .cue] <C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:A9C1C3FA0CE554D0C7A92BB2F02F17BA04A529D8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 205091   (757704) от 28.05.2010
-
-Русская дружина - Русские народные песни (2003) [MP3|320 kbps]<Folklore>
-
->>Other Styles
->>Folk
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ой, ты, Россия-матушка
-02. Гуляю я, гуляю
-03. Зародилась красна ягодка
-04. Ах ты, Дуня(   Читать дальше...   )Жанр: FolkloreПродолжительность: 01:04:08
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1017687   (757563) от 19.05.2016
-
-Jon Brion - Паранорман, или Как приручить зомби / ParaNorman (2012) [MP3|320 кб/с] <Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_757563.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Zombie Attacks in the Eighties
-02. Norman at the Piano / Main Title
-03. Norman's Walk
-04. Alvin Attacks(   Читать дальше...   )Жанр: ScoreПродолжительность: 01:05:42
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BB4333D78484C30477DF82DFFCB8E0EAF02E24BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522785   (756765) от 08.01.2022
-
-OVA - Дискография (2011-2012) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, Ambient>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756765.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Доброе утро (1:32)
-02. Ты где-то рядом (2:47)
-03. Встреча (3:27)
-04. Весна в твоих глазах (3:21)(   Читать дальше...   )Жанр: Instrumental, Piano, AmbientПродолжительность: 00:55:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F3EE7951814A72E216DA8B5494C43849A986FC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922038   (756436) от 05.02.2019
-
-Юлия Славянская - шесть альбомов (2002-2016) [MP3|320 кб/с]<Православная духовная музыка> [Обновлено 04.02.2019]
-
->>Other Styles
->>Other
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756436.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. За окном вагона (02:56)
-02. Стихи на снегу (03:19)
-03. За Россию! (03:58)
-04. Помолись за меня (03:35)(   Читать дальше...   )Жанр: Православная духовная музыкаПродолжительность: 04:41:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8D495584F85B81270E1BE7042F8B543763A39FB2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1215791   (756349) от 27.03.2018
-
-Gregorianika - Ora et Labora (2009) [FLAC|Lossless|tracks + .cue] <New Age, Gregorian Chant>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756349.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	In Spiritu Sancti	2:58
-02.	Ave Verum	2:43
-03.	Believe In You	4:31
-04.	Ave Maria	2:17(   Читать дальше...   )Жанр: New Age, Gregorian ChantПродолжительность: 00:41:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:88D5B965958397DD27E51779AE0CD1F77CF9D6E2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018055   (755820) от 20.05.2016
-
-VA - In Too Deep (Original Motion Picture Soundtrack) (1999) [FLAC|Lossless|tracks + .cue] <Hip-Hop, Funk, Soul>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. NAS & Nature - In Too Deep (3:42)
-02. Method Man & Redman - Tear If Off (4:13)
-03. Ali Vegas - The Specialist (3:32)
-04. R Kelly - Use To Me Spending (5:03)(   Читать дальше...   )Жанр: Hip-Hop, Funk, Gangsta, Neo Soul, R'n'B, Soundtrack, Thug RapПродолжительность: 01:01:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B310BA4518177D3D41C10B76D71E69EDAF0220AC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018615   (755677) от 20.05.2016
-
-Douglas Blue Feather - Rhythms of the Night (2015) [FLAC|Lossless|WEB-DL|tracks] <New Age>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755677.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Long Ride [5:49]
- 02. Eagle And Condor [4:52]
- 03. Cool Breeze [6:59]
- 04. Rhythms Of The Night [3:51](   Читать дальше...   )Жанр: New AgeПродолжительность: 00:49:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:17F99F30187B963CDAD21875A97395E5F88BB877
 ```
 
 https://mybot314.ru/tekegram_catalog/

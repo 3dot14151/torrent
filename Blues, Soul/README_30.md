@@ -1,3 +1,32 @@
+###  Публикация: 950564   (365853) от 28.10.2015
+
+Dana Gillespie - Where Blue Begins (1991) [MP3|320 кб/с]<British Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_365853.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where Blue Begins (03:52)
+02. I Wanna Make Love To You (03:58)
+03. A Man Size Job (04:15)
+04. Up Your Sleeve (04:50)(   Читать дальше...   )Жанр: British BluesПродолжительность: 00:48:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B04AB06B9A92F4C6E5C1AF5100E31311025F0C67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950782   (363878) от 29.10.2015
 
 VA - Genuine Houserockin' Music, Vol. 2 (1987) [MP3|320 кб/с]<Blues>
@@ -716,35 +745,6 @@ Affonsinho - Bluesing (2015) [MP3|320 кб/с]<Modern Electric Blues, Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:0A0DABEAAEDA2CA5CF38AD9EA7B6B40CAFF6A5D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1257674   (343128) от 27.10.2018
-
-Bob Daisley & Friends - Moore Blues For Gary (2018) [MP3|320 Kbps] <Blues, Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_343128.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. That's Why I Play The Blues (4:04)
-02. The Blues Just Got Sadder (Feat. Joe Lynn Turner & Steve Lukather) (3:36)
-03. Empty Rooms (Feat. Neil Carter) (6:10)
-04. Still Got The Blues (Feat. Danny Bowes, John Sykes & Don Airey) (6:23)(   Читать дальше...   )Жанр: Blues, Blues RockПродолжительность: 01:01:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CAF24A275C33B24EA0D99215C5CAC1342F8EB74F
 ```
 
 https://mybot314.ru/tekegram_catalog/

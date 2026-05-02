@@ -1,3 +1,58 @@
+###  Публикация: 1069434   (373682) от 04.11.2016
+
+James Newton Howard - Fantastic Beasts and Where to Find Them / Фантастические твари и где они обитают (Original Motion Picture Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_373682.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Main Titles - Fantastic Beasts and Where to Find Them (02:55)
+02. There Are Witches Among Us / The Bank / The Niffler (06:54)
+03. Tina Takes Newt In / Macusa Headquarters (01:57)
+04. Pie or Strudel / Escaping Queenie and Tina’s Place (03:06)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:12:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FEC783B8217B130F3EC14A8A9C8429B36FEB1B3E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1415367   (371566) от 14.10.2020
+
+Hans Zimmer - Eclipse (From Dune: Original Motion Picture Soundtrack) [Trailer Version] (2020) Deep Purple cover [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_371566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Eclipse (From Dune - Original Motion Picture Soundtrack)Жанр: SoundtrackПродолжительность: 00:01:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:795F54AB66CD149E53EEBD9FED64F05053E76019
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 252174   (370985) от 01.11.2010
 
 VA - Музыка Экрана. Коллекция Ридерз Дайджест (2008) 3CD [MP3|320 kbps] <Soundtrack, Classical>
@@ -699,67 +754,6 @@ Atom Music Audio - Underworld (2018) [MP3|320 Kbps] <Soundtrack, Instrumental, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CEBA0762BDF061FB6A2F9E51057B5EA4284B9A11
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580404   (342465) от 25.11.2012
-
-Jack Wall & Trent Reznor - Call of Duty: Black Ops II (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342465.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ScoreПродолжительность: 01:12:25
-26. Symphony No. 40 in Gminor, K550 (Allegro Molto) (8:37)
-27. Dockside (2:48)
-28. Go Home Gringos (1:59)
-29. The Invasion of Panama (1:47)
-30. Nexus Target (1:41)
-31. Panic Attack / P.T.S.D. (1:43)
-32. Cordis Die (2:29)
-33. Farid (6:10)
-34. Mason Enters / Yemenite Fight (2:48)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EA8FD26E3DD2706D31F4CA8950DF9D8CAD96872A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 580499   (342036) от 25.11.2012
-
-Сумерки. Сага. Рассвет: Часть 2 - The Twilight Saga: Breaking Dawn - Part 2 (2012) [MP3|320 кб/с]<Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_342036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: ScoreПродолжительность: 01:12:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:95CED7840C080661537127A26D01C9249CA09051
 ```
 
 https://mybot314.ru/tekegram_catalog/

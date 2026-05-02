@@ -1,3 +1,61 @@
+###  Публикация: 1407492   (464263) от 08.09.2020
+
+VA - After Office: Clubbing Techno Set (2020) [MP3|320 Kbps] <Techno, Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464263.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Einox - Symptom
+02. Reznik & Mikesh - Overlooked
+03. Lasawers - Your DJ
+04. Delpezzo - Saxy (Original Mix)(   Читать дальше...   )Жанр: Techno, Tech House, ElectroПродолжительность: 08:02:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C7507080A25794081BD1B4B7DBC2B1D6B3A52DD6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407490   (464261) от 08.09.2020
+
+VA - Sunset Chillout Party (2020) [MP3|320 Kbps] <Chillout, Ambient, Downtempo>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_464261.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Dead Melodies - The Genesis Flood
+002. Sandro Gentile - Too Much Talk
+003. Xspance - A Place Amongst The Stars
+004. Be Jam - Osmotic Motion(   Читать дальше...   )Жанр: Chillout, Ambient, DowntempoПродолжительность: 09:42:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8CA78665DD8E6A57042F5ECAE7E63588FC147813
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1407494   (464122) от 08.09.2020
 
 VA - Beatport Electro House: Sound Pack #171 (2020) [MP3|320 Kbps] <Electro House>
@@ -699,70 +757,6 @@ VA - Enhanced Techno Electronic (2019) [MP3|320 Kbps] <Techno, Electronic, EDM>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:2C02BEB74BE2DFBBDB528AAF902DA64B9A2200BB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1321310   (459077) от 24.08.2019
-
-VA - My Own Litle Paradise (2019) [MP3|320 Kbps] <Chillout, Lounge, Relax>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_459077.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Ialaz - Blonde Hurricane
-002. Allume - Adams
-003. Msh - In Every Life
-004. Mareekmia - Grace & Misery(   Читать дальше...   )Жанр: Chillout, Lounge, RelaxПродолжительность: 07:28:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6E8CA0C5B6FBE028B655DE74D84B7C1E27F9B5E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 549675   (458516) от 22.09.2012
-
-VA - B-Side - Smash It Up Mix (2011) [MP3|192 кб/с]<Breaks, Ghetto Funk, Hip Hop,Drum & Bass>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_458516.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Public Service - B-Side
-02. Ike's School - Featurecast
-03. Crowd Murder - Stickybuds
-04. Shimmy Shimmy Ya (WBBL remix) - ODB
-05. Insane In The Brain (B-Side edit) - Cypress Hill
-06. Ooooh! - Featurecast
-07. Two Blue - B-Side
-08. Massive Jungle (demo) - B-Side
-09. All The Girls - B-Side
-10. Yeah! (demo) - B-Side(   Читать дальше...   )Жанр: Продолжительность: 00:58:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4AADAB9E5587468C50AC028D82BDA9F5CB765880
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1264569   (279576) от 24.11.2018
+
+Norio Maeda & Jiro Inagaki - This Is Jazz-Rock (1968) 2008, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Jazz-Rock, Jazz Fusion>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279576.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pata Pata [3:41]
+02. Mercy, Mercy, Mercy [2:52]
+03. Day Tripper [3:12]
+04. Snap Shot [3:29](   Читать дальше...   )Жанр: Jazz-Rock, Jazz FusionПродолжительность: 00:38:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB603F5A6CEACBD49C9A3EDA86EA217939178747
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1264566   (279575) от 24.11.2018
+
+Minoru Muraoka - Harlem Nocturne: Bamboo Flute Miracle Sounds (1967) 2012, Nippon Columbia [FLAC|Lossless|tracks + .cue] <Cool, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_279575.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Harlem Nocturne [3:09]
+02. Taboo [3:27]
+03. Yesterday [3:16]
+04. Baby Elephant Walk [3:06](   Читать дальше...   )Жанр: Cool, Mainstream JazzПродолжительность: 00:37:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6F9E9799D7A88226F7C82D37893B782DFC7BC180
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1336673   (279256) от 07.11.2019
 
 Allegra Levy - Looking At The Moon (2018) SteepleChase [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
@@ -687,64 +745,6 @@ Tad Shull Quartet - In the Land of the Tenor (1993) [FLAC|Lossless|image + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:EF56F78BE429F45CB0223A12612196337FF5378E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337054   (276381) от 09.11.2019
-
-Terell Stafford - This Side Of Strayhorn (2011) MaxJazz [FLAC|Lossless|image + .cue] <Post-Bop, Trumpet Jazz, Straight-Ahead Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Raincheck [7:56]
-02. Smada [8:58]
-03. My Little Brown Book [7:20]
-04. Lush Life [7:44](   Читать дальше...   )Жанр: Post-Bop, Trumpet Jazz, Straight-Ahead JazzПродолжительность: 01:09:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B8984366A9CB081B3296385C3760CD95FD39976
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1337046   (276380) от 09.11.2019
-
-Emil Viklicky Quartet - 'Round Midnight (1991) Arta Records [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_276380.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Overflown [6:28]
-02. Little Rootie Tootie [5:20]
-03. Not Yet [5:36]
-04. Bradley's Blues [4:40](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9806BA9BD48778A86A24CE5EE21A922FEE539DF9
 ```
 
 https://mybot314.ru/tekegram_catalog/

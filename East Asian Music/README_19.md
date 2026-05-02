@@ -1,3 +1,32 @@
+###  Публикация: 1689788   (124364) от 04.01.2024
+
+Electric Asturias - Dimensions (2023) [FLAC|Lossless|tracks + .cue] <Progressive Rock, Symphonic Rock>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124364.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. La Porte de l'Enfer (Gate Of Hell) 6:53
+02. Stone Circle 5:07
+03. Karma 7:55
+04. Shippuu Jinrai 4:03Жанр: Progressive Rock, Symphonic RockПродолжительность: 00:50:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D662FFDF77D14E7B6F189D17C520D3896CD7D81
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1694177   (121301) от 23.01.2024
 
 Ryujin - Ryujin (2024) [FLAC|Lossless|tracks + .cue] <Melodic Death Metal>
@@ -752,35 +781,6 @@ Dasu - Nakakapagpabagabag (2020) [FLAC|Lossless|WEB-DL|tracks] <Electronic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BD39DA29F4BA57D5F306CDC75574C3C40F56E7EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1817345   (3445) от 10.09.2025
-
-Sigh - I Saw The Worlds End / Hangman's Hymn MMXXV (2025) Japanese Edition [FLAC|Lossless|image + .cue] <Black Metal, Avantgarde>
-
->>East Asian Music
->>Asian Rock, Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_3445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный Hangman's Hymn, вероятно, один из моих любимых релизов в уникальном и стилистически обширном творчестве Sigh, и, как и у каждого их релиза, у него есть свои явные, хотя и очаровательные, недостатки. Я был особенно удивлен объявлением об этой перезаписи, учитывая их послужной список нераскаявшихся "странностей" на фронтах продакшена и микширования, (   Читать дальше...   )Act1
-01. Introitus / Kyrie 4:30
-02. Inked in Blood 3:13
-03. Me-Devil 3:19Жанр: Black Metal, AvantgardeПродолжительность: 00:57:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8BDBE7C71A553B9FF2D24AAAB374B32974B1B10A
 ```
 
 https://mybot314.ru/tekegram_catalog/

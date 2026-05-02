@@ -1,3 +1,61 @@
+###  Публикация: 941342   (463127) от 27.09.2015
+
+Jack Jeffer's New York Classics Big Band - New York Dances (1996) /MapleShade/[FLAC|image+.cue]<MapleShade>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463127.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.DUOF March [05:18]
+02.Mood Indigo [04:53]
+03.Say Amen, Brother [06:08]
+04.First Time At Last [03:49](   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 01:05:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8202A9D45DC32BA3B97B4F4EE32DAE45A9402DE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 940991   (463121) от 27.09.2015
+
+Rosemary Clooney - Dedicated To Nelson Riddle (1956-1957) /1996, ООО "Галактис"/[FLAC|tracks+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463121.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.A Foggy Day [03:19]
+02.We're in the Money [02:50]
+03.It's So Peaceful in the Country [04:10]
+04.Limehouse Blues [02:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D811B0438DE445CA70150493057673798716832A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 941329   (463120) от 27.09.2015
 
 Dusko Goykovich - Balkan Blue (1996) 2CD /Enja/[FLAC|image+.cue]<Post-Bop>
@@ -705,63 +763,6 @@ Paul Quinichette - On The Sunny Side (1957) /1996, OJC/ [FLAC|tracks+.cue]<Mains
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:D2BC15EB0DEF344441F530B81886C64CA9AFEA28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941718   (460289) от 28.09.2015
-
-Elvin Jones - In Europe (1991) /2005, Enja/ [FLAC|tracks+.cue]<Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460289.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ray [17:41]
-02.Doll Of The Bride [32:46]
-03.Island Birdie [13:03]Жанр: Post-BopПродолжительность: 01:03:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EE298CFEE9BD6EA8E8C0C475BEEB83E8DC5492C9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941469   (460288) от 28.09.2015
-
-Karin & Mike Kelleher - Melange (2015) [FLAC|image+.cue]<Vocal Jazz, Classical>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_460288.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Beautiful Pain
-02. Jeannot
-03. Ancka's Dolphin Dance
-04. Black Is The Color(   Читать дальше...   )Жанр: Vocal Jazz, ClassicalПродолжительность: 00:50:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7533EEE9E8047EF7B6FCB35814BA55081AD24ED3
 ```
 
 https://mybot314.ru/tekegram_catalog/

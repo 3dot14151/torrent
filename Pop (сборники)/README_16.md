@@ -1,3 +1,119 @@
+###  Публикация: 990240   (911428) от 25.02.2016
+
+VA - Лучшие хиты дискотек. 50/50 (2016) [MP3|256 кб/с] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911428.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. 30.02 - Я Верю
+002. Flo Rida - My House
+003. Лера Туманова Feat. Dj Alex Mathew - Не Бойся Люби
+004. Lawson - We Are Kings(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6A7023E8DFB21A4965ECFFB28DF3BBA3E70CE3F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 634731   (911095) от 25.03.2013
+
+VA - The Official UK Top 40 Singles Chart (24-03-2013) [MP3|320 кб/с]<Pop, Dance, Club, Rock, R&B, Trance, House, Other>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_911095.jpg" />
+</div>
+
+
+###  Подробнее
+
+Публикую очередной UK Singles Chart — официальный хит-парада синглов Великобритании, отсортированных по результатам продаж за неделю.
+Составляется с 1952 года как аналог американского Billboard Hot 100.
+Существует и «братский» хит-парад альбомов — UK Albums Chart.
+Во все треки вшиты обложки альбомов.Жанр: Pop, Dance, Club, Rock, R&B, Trance, House, OtherПродолжительность: 02:36:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:75E518443CA0E6564D0E4AA750B36B44D5110891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098091   (910918) от 29.01.2017
+
+VA - Музыкальное потрясение зимы на Русском радио выпуск № 4 (2017) [MP3|256 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910918.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. M.A.R.S Sounds - Как В  Первый Раз 2:53
+002. Ирма Нойман - Я Буду 2:51
+003. Доминика Feat. Suncreepers - Океаны 3:04
+004. Митя Фомин Feat. Fomka - Мобилка 2:52(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D827EBBEF0ED734687DD820BD111AA5107AB3E06
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1098223   (910888) от 29.01.2017
+
+VA - German Top 100 Single Charts 27.01.2017 [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_910888.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Ed Sheeran - Shape of You
+002. Clean Bandit - Rockabye (feat. Sean Paul & Anne-Marie)
+003. Ed Sheeran - Castle on the Hill
+004. Alan Walker - Alone(   Читать дальше...   )Жанр: PopПродолжительность: 05:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8DF2BA77C40E817449F27C4C17466377FC4CF332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1097973   (910635) от 29.01.2017
 
 VA - 100 пудовые зимние хиты на Europa Plus. Версия 6 (2017) [MP3|256 Kbps] <Pop>
@@ -626,122 +742,6 @@ VA - Radio NRJ: Top Hot [21.03] (2020) [MP3|320 Kbps] <Pop, Dance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:05ACA5FE95FB910D9D641917AB7B451FCA89D249
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099486   (904936) от 01.02.2017
-
-VA - Музыкальные новинки. Only Best Hits. Версия № 8 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904936.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Olisha - Не Трави 3:53
-002. Bruno Mars - Versace On The Floor 4:21
-003. Dельфина - Привет От Одиноких 3:44
-004. Dnce - Naked 3:56(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:778722837AC3226E4CB831CB80D712EF6777A711
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099508   (904927) от 01.02.2017
-
-VA - Звездная вечеринка. Выпуск №10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904927.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Руки Вверх - Когда Мы Были Молодыми 4:33
-002. Stephen - Sincerely 4:47
-003. Lemaitre - Day Two 3:59
-004. Aisha - Сильно Сильно 3:36(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D165242B3B49F56262BBE19B807AFAE93D54C7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1099494   (904861) от 01.02.2017
-
-VA - Автозвук. Отборный зимний хит. Версия №3 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904861.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Юлианна Караулова - Так Близко 3:42
-002. Placebo - Life's What You Make It 5:19
-003. Алена Жданова - Вот И Все Прошло 4:26
-004. Dave Till Feat. Big Dawg - Real Love 3:41(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A6B4E5C835665D8545C0114AB8FE8A508ECF294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1369102   (904539) от 22.03.2020
-
-VA - Radio DFM: Top D-Chart [21.03] (2020) [MP3|320 Kbps] <Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_904539.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Artik & Asti - Девочка танцуй (DJ Prezzplay & Kolya Dark Remix) 4:10
-02. Billie Eilish - Everything I Wanted (Kolya Dark & Alex Shik Radio Edit) 3:59
-03. The Weeknd - Blinding Lights 3:22
-04. Макс Барских - Лей не жалей (Lavrushkin & Max Roven Remix) 3:43(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 01:35:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B0734CF4009A5D43430B883C2D9868666E35D496
 ```
 
 https://mybot314.ru/tekegram_catalog/

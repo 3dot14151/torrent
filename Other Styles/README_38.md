@@ -1,3 +1,206 @@
+###  Публикация: 1117154   (819093) от 22.03.2017
+
+Canda & Guru Atman - Healing Yoga Mantras (2017) [MP3|320 Kbps] <New Age>
+
+>>Other Styles
+>>New Age/Meditative/Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819093.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Feel the Breath (Opening) (2:11)
+02.  Om Ah Hum - Hold My Hand (Vajra Guru Mantra) (7:56)
+03.  Hey Shivaya - Welcome Shiva (Shiva Mantra) (7:41)
+04.  Sarvesham - May We All Feel Free (Shanti Mantra) (7:18)(   Читать дальше...   )Жанр: New AgeПродолжительность: 00:51:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:63E3AD1324026A9D53A447DB5AE11E4B43782B79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382604   (818983) от 11.05.2020
+
+Danheim - Hringrás (Hringras) (2019) [FLAC|Lossless|Web-DL|tracks] <Dark Folk, Nordic Folk, Ambient Folk>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818983.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Vaftrudner (4:17)
+02. Óðinn (Danheim & Gealdýr) (5:34)
+03. Hringrás (5:23)
+04. Lifa & Dauðr (6:07)(   Читать дальше...   )Производство: Danheim Self-releasedЖанр: Dark Folk, Nordic Folk, Ambient Folk, Viking MusicПродолжительность: 00:48:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D04AD5D99AA467D74A0FB23681C6C73F6917A010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116882   (818944) от 22.03.2017
+
+Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack Album) (2017) [MP3|320 кб/с]<Soundtrack>
+
+>>Other Styles
+>>OST
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818944.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nameless Order (04:27)
+02. Prologue (01:49)
+03. What A Wall (03:46)
+04. The Great Wall (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3A77CEE5E7D312409665A64BEF79813F275BADC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1116883   (818937) от 22.03.2017
+
+Ramin Djawadi - The Great Wall / Великая стена (Original Soundtrack Album) (2017) [FLAC|Lossless|tracks + .cue]<Soundtrack>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818937.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nameless Order (04:27)
+02. Prologue (01:49)
+03. What A Wall (03:46)
+04. The Great Wall (04:30)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0760446D40FC873A9383FFB96B580FEF10932A08
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1197044   (818897) от 05.01.2018
+
+Mezzo Piano - Love Has a Name (2017) [MP3|320 Kbps] <Instrumental, Piano>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818897.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Halls of Heaven
+02. Let Our Faith Become a Mountain
+03. Weight of Heaven
+04. Love Has a Name(   Читать дальше...   )Жанр: Instrumental, PianoПродолжительность: 01:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC0564779883251707B7038090C43640A40626AA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1382495   (818687) от 11.05.2020
+
+Tommy Emmanuel - The Best Of Tommysongs (2020) [FLAC|24/44.1|Lossless|WEB-DL|tracks] <Fingerstyle, Acoustic Guitar>
+
+>>Other Styles
+>>Instrumental (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Endless Road
+02. Song for a Rainy Morning
+03. Angelina
+04. Luttrell(   Читать дальше...   )Жанр: Fingerstyle, Acoustic GuitarПродолжительность: 01:18:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:528984AF94D8D24319B8C046CC7B0F68768C8AE0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1007542   (818019) от 17.04.2016
+
+Monte Wang - The Wandering Accordion (2003) [FLAC|Lossless|tracks] <New Age, Instrumental>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_818019.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Twilight    01:34
+02. As Dino Saluzzi as Morning    04:46
+03. Macchiato Floating    04:58
+04. The Subway    01:11(   Читать дальше...   )Жанр: New Age, InstrumentalПродолжительность: 00:45:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3458B877352BB3B8044DDFF4DAF1F745B0A0A3F0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1008137   (817949) от 17.04.2016
 
 Stamatis Spanoudakis - Bathed in the Sun (2016) [FLAC|Lossless|tracks] <New Age, World>
@@ -540,206 +743,6 @@ Rejean Paquin - Erotic Music (2006) [MP3|320 Kbps] <New Age, Enigmatic, Erotic>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E9ED2A7BDA9B3D2DD98A4939F0EC40E764DEBF49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1008485   (815372) от 18.04.2016
-
-Mark Knopfler & Evelyn Glennie - Altamira (2016) [FLAC|Lossless|WEB-DL|tracks] <Soundtrack, Score>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815372.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Altamira (2:59)
-02. Maria (3:34)
-03. Dream Of The Bison (2:53)
-04. By The Grave (2:00)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:26:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EF6B2EA78E3938E49323F05A4A129F023F5A2219
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117638   (815347) от 24.03.2017
-
-Martian Love - You, Never Sleep (2016) [FLAC|Lossless|WEB-DL|tracks] <Electronic, Ambient>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815347.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You, Never Sleep [00:04:05]Жанр: Electronic, AmbientПродолжительность: 00:04:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D474B80A90C85A7A200DE904C3D56DBACEFA1EFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117536   (815336) от 24.03.2017
-
-Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенков темнее (Original Score) + (Original Deluxe Soundtrack) (2017) [MP3|320 кб/с]<Score, Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815336.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZAYN & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) (04:07)
-02. Halsey - Not Afraid Anymore (03:47)
-03. JRY feat. Rooty - Pray (03:22)
-04. Tove Lo - Lies In The Dark (03:42)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:01:36 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F5D273C273679A882E8B6B8D271451FE88823BFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117538   (815195) от 24.03.2017
-
-Danny Elfman, VA - Fifty Shades Darker / На пятьдесят оттенков темнее (Original Score) + (Original Deluxe Soundtrack) (2017) [FLAC|Lossless|tracks/tracks + .cue]<Score, Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. ZAYN & Taylor Swift - I Don't Wanna Live Forever (Fifty Shades Darker) (04:07)
-02. Halsey - Not Afraid Anymore (03:47)
-03. JRY feat. Rooty - Pray (03:22)
-04. Tove Lo - Lies In The Dark (03:42)(   Читать дальше...   )Жанр: Score, Soundtrack •Продолжительность: 02:01:36 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43505F62FFCA6131AFEA8929485DA3614260B866
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117860   (814918) от 24.03.2017
-
-John Paesano - Mass Effect: Andromeda (Original Score) (2017) [MP3|320 кб/с]<Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814918.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. A Better Beginning (04:26)
-02. Memories (02:49)
-03. Exaltation (04:59)
-04. A Trail Of Hope (02:44)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:02:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DADB9DBF2A198AED276EF022B8293D3CADD8B25C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1007836   (814834) от 18.04.2016
-
-Максим Фадеев - Oil plant (2016) [MP3|320 кб/с] <Chillout, Electronic>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814834.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. #1 11:21
-2. #2 04:09
-3. #3 07:28
-4. #4 03:12(   Читать дальше...   )Жанр: Chillout, ElectronicПродолжительность: 01:02:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DE02EB91B8CAB9809CF0DF0876AD913888B08E82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1117940   (814761) от 24.03.2017
-
-VA - Horizon Zero Dawn (Original Soundtrack) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_814761.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Flight - The Spreading Eclipse - Part 4 - Secrets Of The Earth (05:36)
-02. The Flight - The Demon Remade - Part 4 - Secrets Of The Earth (01:26)
-03. Joris de Man - Force Multiplication - Part 4 - Secrets Of The Earth (04:00)
-04. The Flight - Buried Shadow - Part 4 - Secrets Of The Earth (00:57)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 04:00:35 •
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:3529BF234314CEA4A2E74057835E2844736A868F
 ```
 
 https://mybot314.ru/tekegram_catalog/

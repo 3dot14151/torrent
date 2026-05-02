@@ -1,3 +1,61 @@
+###  Публикация: 1490512   (917374) от 21.08.2021
+
+VA - HGM: Deep House Season (2021) [MP3|320 Kbps] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917374.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Budrick - Starfish
+002. Vince Guidotti - Luftzug
+003. Tolero - Parabens
+004. Dego - This Is Message To You(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 12:00:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D417680A9A8D099D52F191F28841FAC685B25898
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1490515   (917369) от 21.08.2021
+
+VA - Ocean Sound: Actual Trance Set (2021) [MP3|320 Kbps] <Trance, Electro, Progressive>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_917369.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Euphoric Heart - Our Homeworld
+002. Marcell Stone And Floe - Sensory
+003. Global Mind - Moving Sky
+004. Rodrigo Deem - Mighty(   Читать дальше...   )Жанр: Trance, Electro, ProgressiveПродолжительность: 10:15:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A4941BF3F309F4007061A2C8CE0F9DFAF028A622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 989075   (917337) от 22.02.2016
 
 VA - Super Bomb Electro - Classic (2016) [MP3|320 kbps] <Electro House, Electro>
@@ -687,64 +745,6 @@ VA - Top50: Tracks Deep House Ver.19 (2020) [MP3|320 Kbps] <House, Deep House, E
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:33FFFB5687889BDAE78917A4A0725D544632ABF5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 989192   (913172) от 24.02.2016
-
-VA - Лучшая клубная музыка ANDRS vol.34 (2016) [MP3|320 кб/с] <Club, Dance, Electro, House, Electro-House, Deep House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913172.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Unknown - Unknown
-02. Dan Farber - Don't Touch (Original Mix)
-03. SOTL - Deep House Mix vol.24 (June 2015) - Track 3
-04. Puka - Hey Sister Go (Original Mix)(   Читать дальше...   )Жанр: Club, Dance, Electro, House, Electro-House, Deep HouseПродолжительность: 01:16:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B30AED4A196221F6A64F3C5B634CC0005938CA8C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1096730   (912579) от 28.01.2017
-
-VA - Club Dance Ambience Vol.99 (2017) [MP3|320 Kbps] <Dance, Club, Club House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_912579.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 2Elements x Crew 7 - California Dreamin' (DJ Miller x DJ Alex Milano Bootymix) 4:14
-002. Aaron North - I Wanna Be (Original Mix) 5:33
-003. Agent Smith - Завалю Снегом (Kosmos) (A-Mase 2X17 Remix) 5:38
-004. Alan Walker - Alone (Extended Mix) 3:55(   Читать дальше...   )Жанр: Dance, Club, Club House, HouseПродолжительность: 07:58:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:110C763CDFB0139FC3C5262B72CED6DC89609320
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 969005   (151188) от 25.12.2015
+
+Борис Гребенщиков - Борис Гребенщиков поет песни Булата Окуджавы (1999) [FLAC|Lossless|image + .cue] <Rock, Авторская песня>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_151188.jpg" />
+</div>
+
+
+###  Подробнее
+
+Песни Булата Окуджавы - девятый студийный альбом Бориса Гребенщикова. Составлен из песен русского поэта и барда Булата Окуджавы.01. «Горит Пламя, Не Чадит...»
+02. Песенка О Ваньке Морозове
+03. Петухи
+04. «Эта Женщина! Увижу И Немею...»(   Читать дальше...   )Жанр: Rock, Авторская песняПродолжительность: 00:31:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:91DE40B3DC8ACDEBB8483D8684066A0BE7F51DF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1601169   (150974) от 31.12.2022
 
 In Depth Of My Mind - Reflection of Self-Destruction (2022) 2CD [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C9006E7046E4CDB139F4C4494A65D2DA0B2C2E9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1273158   (139011) от 30.12.2018
-
-Владимир Кузьмин - Вечные Истории. Collection (2018) [FLAC|Lossless|WEB-DL|tracks] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_139011.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Карма
-02. Перекрёсток
-03. Зависим
-04. Ведьма(   Читать дальше...   )Жанр: RockПродолжительность: 01:04:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:558087CCE76A1057EBACEC3189E2567333594D0C
 ```
 
 https://mybot314.ru/tekegram_catalog/

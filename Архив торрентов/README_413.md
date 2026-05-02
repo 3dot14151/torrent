@@ -1,3 +1,59 @@
+###  Публикация: 976030   (969723) от 17.01.2016
+
+Brainstorm - Scary Creatures (2016) Limited Edition [FLAC|Lossless|image+.cue] <Power Metal>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969723.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 .The World to See
+02. How Much Can You Take
+03. We Are...
+04. Where Angels Dream(   Читать дальше...   )Жанр: Power MetalПродолжительность: 00:54:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:36C3D287EB4CCB1DAAA77724BDC24CDC35E08C48
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 976008   (969722) от 17.01.2016
+
+Fleetwood Mac - Gypsy (1982) [FLAC 2.0 24/192] image + .cue (Vinyl-Rip) <Pop Rock>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969722.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Gypsy
+02 - Cool WaterЖанр: Pop RockПродолжительность: 00:07:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C20A57E32FA1FB1F37319A442C1DB2C3DCF67723
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 976394   (969710) от 17.01.2016
 
 Raheem Devaughn - Love Sex Passion (2015) [FLAC|Lossless|WEB-DL|tracks] <R'n'B>
@@ -639,58 +695,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B59522211B31148B9242A8AAB8A1A0ED447E5294
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976161   (969447) от 17.01.2016
-
-CocCoc 53.2.119 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969447.jpg" />
-</div>
-
-
-###  Подробнее
-
-CocCoc Browser - браузер, который является продуктом вьетнамской компании Cốc Cốc. Браузер основан на открытом исходном коде проекта Chromium, поэтому браузер очень похож на Google Chrome.Язык интерфейса: Русский, Английский и Другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FE5B41F8D30292D627FCEFD89F06512E741B4D81
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976324   (969445) от 17.01.2016
-
-Кассета_13 / Tape_13 / Breakpoint (2014) BDRip [H.264/1080p] [AVO]
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_969445.jpg" />
-</div>
-
-
-###  Подробнее
-
-Молодая пара Энн и Геро путешествуют на машине по Европе. Где-то в горном немецком регионе Эйфель они заблудились и вынуждены заночевать в одиноком лесном домике в компании нескольких случайных встречных молодых людей. Но с приходом темноты начинают происходить необъяснимые и страшные явления...Производство: Германия / Rat Pack Filmproduktion GmbHЖанр: Ужасы, ДетективРежиссер: Аксель ШтайнАктеры: Надин Петри, Ларс Штайнхёфель, Кристина ду Рего, Соня Герхардт, Ларс Уолтер, Пит Буковски, Уве РодеПеревод: Одноголосый закадровый, авторский (Андрей Дольский)Язык субтитров: ОтсутствуютПродолжительность: 01:19:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EE100DA1989953736C90DBFFE6B343FE3AF7070
 ```
 
 https://mybot314.ru/tekegram_catalog/

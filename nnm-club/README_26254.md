@@ -1,298 +1,25 @@
-###  Публикация: 1771551   (31712) от 07.01.2025
+###  Публикация: 1768029   (33245) от 23.12.2024
 
-Grand Theft Auto: The Trilogy (2021) [Ru/Multi] (1.112.48699928) Repack FitGirl [The Definitive Edition]
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31712.jpg" />
-</div>
-
-
-###  Подробнее
-
-Пять лет назад Карл Джонсон бежал из Лос-Сантоса (штат Сан-Андреас) - города преступлений, наркотиков и коррупции, где даже кинозвезды и миллионеры вынуждены любыми способами защищаться от вымогателей и бандитов. Начало 1990-х годов. Карл возвращается домой. Его мать убита, семья распалась, друзья попали в беду, а против него самого выдвинуто сфабрикованное обвинение (   Читать дальше...   )Тип издания: RepackРазработчик: Rockstar GamesЖанр: Action (Shooter), Racing (Cars), 3D, 3rd PersonЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский и другиеЯзык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9154E52E835B89043CD5FDFAAD3008D1987A44C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771451   (31711) от 07.01.2025
-
-Project Tower (2025) [Ru/Multi] (1.0) Repack Let'sРlay
-
->>Win Игры
->>Action (TPS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31711.jpg" />
-</div>
-
-
-###  Подробнее
-
-Project Tower - это шутер от третьего лица, который сочетает в себе интенсивные бои с множеством пуль с уникальным механизмом морфинга. Во Вселенной, подвергающейся угрозе со стороны Хикс, выжившие человечества являются заключенными, вынужденными сражаться в башнях в рамках "Project Tower". Вы играете за одного из этих заключенных, стремясь достичь вершины, (   Читать дальше...   )Тип издания: RepackРазработчик: Yummy GamesЖанр: Экшены, Приключенческие игры, ИндиЯзык озвучки: АнглийскийЯзык субтитров: Русский, Английский, Французский, Немецкий и другиеЯзык интерфейса: Русский, Английский, Французский, Немецкий и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F71142CAF1CBDBBA3FB351CFDFA8E8AD18AE5DD6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1763928   (31710) от 07.01.2025
-
-Следствие ведёт КГБ (2022-2024) WEBRip [H.264/1080p] (фильмы 1-20 из 20)
-
->>Документалистика и Телепередачи
->>Отечественная история
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31710.jpg" />
-</div>
-
-
-###  Подробнее
-
-Документальный цикл "Следствие ведёт КГБ".
-Самая драматичная шпионская история СССР. Тайная война двух могущественных разведок.Телекомпания: ТВЦЖанр: документальный, историяРежиссер: Юлия СатароваУчастники: Сергей УгрюмовЯзык озвучки: русскийСубтитры: отсутствуютПродолжительность: ~00:40:00 серия
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9471AFCF98178D8E7C9DA2CA05C52113873DFE10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766706   (31709) от 07.01.2025
-
-Эпидемия. Новое заражение / Новая жизнь / New Life (2022) BDRemux [H.264/1080p]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31709.jpg" />
-</div>
-
-
-###  Подробнее
-
-После того как Джессика становится свидетельницей убийства, она вынуждена пуститься в бега. Она уверена, что ее разыскивают за это преступление. Однако девушка не подозревает, что стала носителем смертельно опасного вируса, который может привести к гибели всего человечества. Агент секретной спецслужбы любой ценой должен найти ее и остановить новое заражение.Производство: США / American Storyworks, Great Lakes Vacuum Supplies UnlimitedЖанр: ужасы, триллерРежиссер: Джон РосманАктеры: Соня Уолгер, Хейли Эрин, Тони Амендола, Джеб Беррье, Айанна Беркшир, Бетти Мойер, Блейн Палмер, Kevin-Michael Moore, Lisa Cross, Ник ДжорджПеревод: Дублированный (Lucky Production)Язык озвучки: Русский, АнглийскийСубтитры: Русские, АнглийскиеПродолжительность: 01:24:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:924A37B361D31234DB323EFF3EBEFEAA22D2B20B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1419422   (31708) от 07.01.2025
-
-VA - Vocal Anthems Amsterdam (2020) [MP3|320 Kbps] <Trance, Vocal-Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31708.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Christian Burns & Roman Messer feat. Twin View - Dancing In The Dark (Extended Mix) [6:12]
-02. Key Lean feat. Kyler England - Infinity (Extended Mix) [5:39]
-03. Eximinds - Starlight (Extended Mix) [5:10]
-04. Feel feat. Alexandra Badoi - We Are One (Steve Allen Extended Remix) [5:25](   Читать дальше...   )Жанр: Trance, Vocal-TranceПродолжительность: 01:49:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4135FB40CEB969BEC4E92A59AB049E6FA47FEE28
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771591   (31707) от 07.01.2025
-
-Atri: My Dear Moments | Atri -My Dear Moments- | Атри [2024, TV, 13 из 13] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31707.jpg" />
-</div>
-
-
-###  Подробнее
-
-В будущем большая часть цивилизации уступила натиску поднимающегося океана. Потерявший в результате несчастного случая ногу Нацуки живёт в старом катере бабушки, безуспешно пытаясь расплатиться с долгами. Однажды, спустившись под воду на батискафе в поисках сокровищ, он обнаруживает капсулу с роботом, удивительно похожим на человека.Производство: TroycaЖанр: приключенияРежиссер: Като МакотоЯзык озвучки: Японский, русский (Anilibria, Studio Band, AniDub Online)Субтитры: Русские, английские (Crunchyroll)Продолжительность: 13 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC07C0033B3B8FA406FCD44FE0AC10AC79291891
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771608   (31706) от 07.01.2025
-
-Джеймс Бонд 007: Квант милосердия / James Bond 007: Quantum of Solace (2008) WEB-DL [H.265/2160p] [4K, Dolby Vision TV, Profile 5, 10-bit]
-
->>Зарубежное кино
->>Зарубежные Фильмы (UHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31706.jpg" />
-</div>
-
-
-###  Подробнее
-
-После предательства Веспер, агент 007 борется с желанием превратить последнее задание в личную вендетту. В поисках истины, Бонд и М допрашивают Мистера Уайта, от которого узнают, что шантажировавшая Веспер Организация намного сложнее и опаснее, чем можно было подумать.Производство: США, Великобритания / Columbia Pictures, Danjaq Productions, Eon Productions Ltd., Metro-Goldwyn-Mayer (MGM)Жанр: боевик, триллер, детектив, приключенияРежиссер: Марк ФорстерАктеры: Дэниэл Крэйг, Ольга Куриленко, Матье Амальрик, Джуди Денч, Джанкарло Джаннини, Джемма Артертон, Джеффри Райт, Дэвид Харбор, Джеспер Кристенсен, Анатоль ТаубманПеревод: Дублированный, многоголосый, авторскийЯзык озвучки: русский, украинский, английскийСубтитры: русские (forced, full), украинские (forced, full), английские (full, SDH)Продолжительность: 01:46:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A6EDC4BBD8979A96CA8D37B84E12FA977789D01
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1102759   (31705) от 07.01.2025
-
-VA - Vocal Trance Vol.1 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31705.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  Frainbreeze - Stronger (Radio Edit)  4:11
-02.  Moonlight Tunes - Where Are We Going (feat. 3PM) (Radio Edit)   4:19
-03.  Lucid Blue - Eyes Wide Open (Frainbreeze Remix)  5:55
-04.  Feel & Johnny Norberg - One Dream (Original Mix)  4:58(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 01:18:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AFA56D0B45E27B37F066E8A13F538C1E6C7C3C15
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771623   (31704) от 07.01.2025
-
-KAT Blue & The True Believers - Start Believin'... (2024) [MP3|320 Kbps] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31704.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rock Me Right 04:40
-02. Close To My Fire 05:07
-03. Hard Times 03:39
-04. Bad Woman Blues 03:28(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:47:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:93EEA1D164573DC99E930865595C8DB61D02F9E8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1012720   (31703) от 07.01.2025
-
-VA - Pure Vocal Trance Hits Vol. 2 (2016) [MP3|320 кб/с] <Trance, Vocal Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31703.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Denis Kenzo & Vika -  What I See (Radio Edit)  3:34
-02. Formal One & Sarah Lynn -  In Winter (Original Mix)  3:09
-03. Philippe El Sisi & Sarah Russell -  Into The Flame (Ram Radio Edit)  2:52
-04. Eranga Ft. Tricia Mcteague -  My Heart Won't Let Me Down (Radio Edit)  3:34(   Читать дальше...   )Жанр: Trance, Vocal Trance, Uplifting TranceПродолжительность: 01:10:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8F8DD783009D72D0D1AD70E855A2AE9087B8D61A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771678   (31702) от 07.01.2025
-
-KAT Blue & The True Believers - START BELIEVIN' (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues, Rock>
+Mississippi MacDonald - I Got What You Need (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
 
 >>Jazz, Blues, Soul
 >>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31702.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33245.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Rock Me Right (4:40)
-02.  Close To My Fire (5:08)
-03.  Hard Times (3:39)
-04.  Bad Woman Blues (3:29)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 00:47:06
+01.  I Got What You Need (3:58)
+02.  We're Gonna Make It (4:06)
+03.  Stop! Think About It! (4:29)
+04.  3.35AM (2:29)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:35:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:62D10247BF4E313F0337D56509442A37A8584D75
+magnet:?xt=urn:btih:B1265E92AF42C4E3BE39661F9AFA5D082079C4C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -300,28 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771599   (31701) от 07.01.2025
+###  Публикация: 1768060   (33244) от 23.12.2024
 
-Саша Токсик | Цикл "Мои большие файерболы" [2 книги] (2021-2022) [FB2] (Обновляемая)
+Moonset - Dim the Lights and Go (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 
->>Художественная литература
->>Книги вне издательств, самиздат (все жанры)
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31701.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33244.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Мир как мир. Эльфы… гномы. Орки пошаливают. Нежить копит силы. Про гламур тут никто не слышал, сервис отстойный, постоялые дворы даже на одну звезду не тянут.
-
-Но даже эта дикость не безнадежна. Особенно, если героям здесь ставят лайки, а подвиги транслируются на стриме.
-(   Читать дальше...   )Жанр: Боевое фэнтези, ЛитРПГ, ПриключенияИздательство: СамиздатФормат: FB2Качество: Изначально электронное (ebook)
+01.  (Just a Little) Nora (3:42)
+02.  Save My Breath (3:33)
+03.  Wither (4:25)
+04.  Ghosts (2:55)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:76E4B1A332BCC024B16B102C9495F79FFFE78BBA
+magnet:?xt=urn:btih:62DFFBAEAA1EA3CC3DCF4AD8C6334FDB0FEC21C7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -329,28 +56,228 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 715430   (31700) от 07.01.2025
+###  Публикация: 1768079   (33243) от 23.12.2024
 
-VA - Pure Bliss Vocals Volume 5 (2013) [MP3|320 кб/с]<Trance>
+Russell Ballantine - Delta Days (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33243.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Delta Days (3:26)
+02.  Lonesome Highway Blues (3:34)
+03.  Killing Floor (4:11)
+04.  Chatbot Blues (5:50)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF2F047EA9C725B39DEE4F5DC4C05911C96FC360
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768074   (33242) от 23.12.2024
+
+Paweł Szymanski - Good Morning Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33242.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  How Much More (2:51)
+02.  Long Distance Call (3:50)
+03.  Take A Little Walk With Me (3:13)
+04.  John The Revelator (2:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:76BC7B85E73510E88C80B27C7EB0058AAFB4E79C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768075   (33241) от 23.12.2024
+
+Randy Lee Riviere - Concrete Blues (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33241.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mania (4:00)
+02.  The Wayside (3:14)
+03.  Change Is Strange (4:29)
+04.  Just Trying to Get Back Home (3:48)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6B831A427EBBD1C719683AE95528DFB4E55D0650
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768077   (33240) от 23.12.2024
+
+Richie Arndt - Tennessee & Alabama - Songs Along the Road #2 (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33240.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Meet Me in Memphis (3:45)
+02.  Graceland (4:50)
+03.  Tennessee (3:14)
+04.  Nutbush City Limits (3:12)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:43:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9F738835957A91A9679B6DEDC3D0A799BD30EA7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768073   (33239) от 23.12.2024
+
+Nabil Najem - Blues Women (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33239.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Blueswomen (3:19)
+02.  Behind The Mirror (4:00)
+03.  Merciless Occupier (3:50)
+04.  To The End (3:40)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:26:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9928C0E63C5D992CBDB6BF58DD866504E639A6DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768078   (33238) от 23.12.2024
+
+Rockabilly Steve and Br3 - Lonely Thursday Night (2024) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33238.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Where You Been So Long (4:44)
+02.  Lonely Thursday Night (5:13)
+03.  Ooo Wee Baby (3:27)
+04.  I Love To Ride My Bicycle (3:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:48:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:260EA91F019B0EA9E8E6EFA83F1664C2CE75B5D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768002   (33237) от 23.12.2024
+
+Тайна спящей смерти / The Mystery of the Sleeping Death (1914) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33237.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мистическая история. Страшная. На ночь не смотреть. Лиззи, известная как «лучшая маленькая взломщица сейфов в городе», грабит дом Харрисона, молодого миллионера. Харрисон обнаруживает девушку за работой, но великодушно позволяет ей сбежать. Час спустя Лиззи находят без сознания на улице. Дворецкий Харрисона находит своего хозяина в том же состоянии. Миллионера и (   Читать дальше...   )Производство: США / Kalem CompanyЖанр: короткометражный, драма, немое киноРежиссер: Кениан БьюэлАктеры: Элис Джойс, Том Мур, Роберт Уолкер, Генри Халлам, Harry F. Millarde, Бенжамин РоссПеревод: немой с интертитрамиСубтитры: голландские (интертитры), русские отдельным файломПродолжительность: 00:31:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6618736B88230A62F282B08682A51C58A70E8C99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767927   (33236) от 23.12.2024
+
+VA - The Best Releases 2024 of Your Melodies (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31700.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33236.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Stoneface - One Heart - Radio Edit
-02. Venom One - Crashed & Burned - Club Edit
-03. Gal Abutbul - You Have Realised - Radio Edit
-04. DJ Feel - Illuminate - Radio Edit(   Читать дальше...   )Жанр: TranceПродолжительность: 01:18:44
+01. Iberian - Trust Me (Original Mix) (06:09)
+02. Ocoro - Honjaya (Original Mix) (07:52)
+03. Juan Almiñana Obando & Poetry Maiden - Never Again (Original Mix) (07:04)
+04. SounEmot, Arcvalx & Elyssandre - Don't Let Them Take Away Your Light (Original Mix) (05:26)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:06:03
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8AA155EE25AF9C9B29DBAACC541476A566DF3D79
+magnet:?xt=urn:btih:B06B3B4D9FCD535AE4F8CD03A140E6F5DA1FA91B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -358,25 +285,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771567   (31699) от 07.01.2025
+###  Публикация: 1766995   (33235) от 23.12.2024
 
-Фоны - Wall Scenes [JPG]
+Carlita - Sentimental (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Electronic, Deep House, Indie Dance>
 
->>Материалы для мультимедиа и дизайна
->>Текстуры, фоны, оверлеи и паттерны
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31699.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33235.jpg" />
 </div>
 
 
 ###  Подробнее
 
-149 качественных, премиальных фонов в виде "сцен" из сервиса shutterstock.com. Оригинальные имена сохранены и при желании можно найти любой из файлов в shutterstock.comФормат: JPGРазрешение файлов: 4000x4174 - 7700x7268
+• 01. DJ Tennis, Carlita - Trouble Symphony (3:56)
+• 02. Carlita, Cleo Simone - Planet Blue (2:55)
+• 03. Carlita, SG Lewis - The Moment (3:31)
+• 04. Carlita - TV Disco (3:46)(   Читать дальше...   )Жанр: Electronic, Deep House, Indie DanceПродолжительность: 00:47:27
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:49654A4177E570124A5B9533695663CDE9F5A741
+magnet:?xt=urn:btih:46A8C840FA99658C0DB194DB9679BB8C4CAABF23
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -384,28 +314,112 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 672757   (31698) от 07.01.2025
+###  Публикация: 1767540   (33234) от 23.12.2024
 
-VA - Pure Bliss Vocals Vol. 3 (2013) [MP3|320 кб/с]<Vocal Trance, Uplifting Trance>
+Diatera - В разных мирах (2016) [MP3|320 Kbps] <Melodic Metal, Gothic Metal, Female Vocal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Осколки времени
+02. Вечность
+03. Высота
+04. В отражении(   Читать дальше...   )Жанр: Melodic Metal, Gothic Metal, Female VocalПродолжительность: 00:29:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9AB167D648D038F5A31DFE8272469D37EF728DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767988   (33233) от 23.12.2024
+
+Газета | Загадки истории №51 (626) (2024) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33233.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Загадки истории» расскажет много нового об известных исторических персонажах, раскроет истинную подоплеку событий изменивших мир от древних времен до конца ХХ века. Статьи издания написаны журналистами, писателями-историками и учеными. Читайте о загадках истории и они перестанут быть для вас тайнами!Жанр: Научно-популярный, историяИздательство: ООО "ИД "Пресс-Курьер"Формат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1381C9A8B9060FC064B5A2C91DBF6C30CD019F6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767922   (33232) от 23.12.2024
+
+Romantica De La Guitarra, Romantic Time - Sensual Jazz (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Jazz>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sexually Twisted (3:14)
+02. Ignite The Spark (3:26)
+03. Provocative Girl (3:35)
+04. Seductive Mind (3:23)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4C3FD72ADB6B23487C8504A043FF4A632EA5CB54
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767978   (33231) от 23.12.2024
+
+VA - The Best Releases 2024 of High Emotions (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
 >>Electronic
 >>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31698.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33231.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Cathy Burton - Heaven - DNS Project Radio Edit (03:31)
-02. Beat Service - Not This Time - Radio Edit (03:56)
-03. Will Holland - Every Heartbeat - Beat Service Edit (04:02)
-04. Johan Vilborg - Never Changing - Nitrous Oxide Radio Edit (03:15)(   Читать дальше...   )Жанр: Vocal Trance, Uplifting TranceПродолжительность: 01:24:13
+01. DJ Dani - Lay Down Near Me (Original Mix) (06:49)
+02. Lost States - Echoes of the Soul (Original Mix) (06:22)
+03. Maxim Kovalskiy - Lost in Translation (Original Mix) (05:30)
+04. DeeAnork - Gladius (Original Mix) (06:34)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 03:04:31
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C90A93100FD05C2CB0415636E83E18BE137CB2C3
+magnet:?xt=urn:btih:C8D8872551015D62D4C6BF8F30F78491DD56E46F
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -413,25 +427,239 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771560   (31697) от 07.01.2025
+###  Публикация: 1767009   (33230) от 23.12.2024
 
-Night Shift Nurses (2024) [Multi] (1.0.0) Scene Tenoke
+Женя Белоусова - Верила (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Отечественная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Верила [00:02:54]
+02. Целуй [00:03:00]
+03. Ну вот и пятница [00:03:13]
+04. Ты и я [00:03:22](   Читать дальше...   )Жанр: PopПродолжительность: 00:32:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC9E23710E47121B387E83A320BF82172DC79165
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767917   (33229) от 23.12.2024
+
+Christmas Stories 13: Clara and the Guiding Star (2024) [En] (1.0) Unofficial [Collector's Edition]
 
 >>Win Игры
+>>Adventure/Quest (Casual)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33229.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продолжение рождественских историй Christmas Stories. Юная Клара - искусная мастерица, но в глубине души еще и искательница приключений. И ей предстоит раскрыть мрачную тайну. Отец Клары становится жертвой нападения злого существа из темного измерения и превращается в безжизненную игрушку. С верным помощником Щелкунчиком Клара должна раскрыть тайны прошлого, настоящего (   Читать дальше...   )Тип издания: UnofficialРазработчик: Elephant GamesЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D659374A59E1D5F795B09A166328B242B4979622
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767481   (33228) от 23.12.2024
+
+Ясвена - Ветер (2012) [FLAC|Lossless|tracks] <Rock, Folk-Rock, Dream-Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33228.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Город (02:59)
+2. Трубадур (02:53)
+3. Туман (02:43)
+4. Венера (03:17)(   Читать дальше...   )Жанр: Rock, Folk-Rock, Dream-RockПродолжительность: 00:24:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EA8BB43F4D3B6AC7DB95933905E31559111B7DC6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1767979   (33227) от 23.12.2024
+
+Летающий шкаф / L'armoire volante (1948) BDRip [H.264]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33227.jpg" />
+</div>
+
+
+###  Подробнее
+
+Альфред Пюк, добросовестный налоговый инспектор, живёт в одной квартире со своей пожилой тётей. Когда в одно зимнее утро мадам Лоближуа отправляется на грузовике в Клермон-Ферран, чтобы забрать оставшуюся мебель из проданного дома. На обратном пути тётя внезапно умирает, и водители грузовика, чтобы избежать проблем с полицией, помещают её тело в платяной шкаф. По (   Читать дальше...   )Производство: Франция / Compagnie Industrielle et Commerciale Cinématographique (CICC)Жанр: комедия, криминалРежиссер: Карло РимАктеры: Фернандель, Берт Бови, Жермен Кержан, Альбер Динан, Максимильен, Поль Деманж, Луи Флоранси, Жан Тулу, Полин Картон, Андре БервильПеревод: профессиональный многоголосый (ТРК - Петербург, 2006 г.)Язык озвучки: русский, французскийСубтитры: английскиеПродолжительность: 01:36:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C6F4E4505774E9C0696171FB457E289289299E1D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1764485   (33226) от 24.12.2024
+
+Другой мир: Год волка / Werewolves (2024) WEB-DLRip [H.264] [звук с TS] [AD]
+
+>>нет
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33226.jpg" />
+</div>
+
+
+###  Подробнее
+
+Человечество переживает новую эпидемию, которая раз в два года превращает обычных людей в оборотней. Миллиарды уже заражены, и делается все, чтобы сохранить тех, кого еще не коснулся вирус. Близится еще одна судная ночь, когда каждый может оказаться в свете Кровавой Луны и превратиться в чудовище из древних легенд.Производство: США / Burke Management, Monty the Dog Productions, Solution Entertainment GroupЖанр: ужасы, боевикРежиссер: Стивен С. МиллерАктеры: Фрэнк Грилло, Катрина Ло, Ильфенеш Хадера, Джимми Каммингс, Лу Даймонд Филлипс, Kamdynn Gary, Лидия Стайслингер, Daniel Fernandez, Джеймс Кайсон Ли, Бетси ЛэндинПеревод: Дублированный (Велес) звук с TSЯзык озвучки: РусскийСубтитры: ОтсутствуютПродолжительность: 01:29:42Реклама: Присутствуют вставки видео рекламы, баннер.
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728461   (33225) от 24.12.2024
+
+Ничего / Nada / Nothing (2023) WEB-DL [H.264/1080p] (сезон 1, серии 1-5 из 5) NewStudio
+
+>>Зарубежные сериалы
+>>нет
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33225.jpg" />
+</div>
+
+
+###  Подробнее
+
+Пожилой ресторанный критик Мануэль переживает смерть своей горничной, которая заботилась о нем больше сорока лет. Аргентинец нанимает неопытную молодую помощницу из Парагвая — и это приводит к постоянному столкновению двух культур и поколений. Винсент — известный нью-йоркский писатель и старый друг Мануэля — навещает товарища в Буэнос-Айресе и вместе с ним дегустирует (   Читать дальше...   )Производство: Аргентина / Metrovisión Producciones, Star Original ProductionsЖанр: драма, комедияРежиссер: Мариано Кон, Гастон Дюпра, Джеронимо КаррансаАктеры: Луис Брандони, Роберт Де Ниро, Majo Cabrera, Сильвия Кутика, Энрике Пиньейро, Daniel Miglioranza, Белен Шаванн, Гастон Кокьярале, Мария Роза Фугацот, Victoria CantarelliПеревод: Многоголосый профессиональный (NewStudio)Язык озвучки: Русский, испанскийСубтитры: Русские (Full), английские (Full, SDH)Продолжительность: ~00:28:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:92034D6D2475803370963BA89CBC068282D92FCD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766670   (33224) от 24.12.2024
+
+В. Ликсо | Дроны и робототехника. Большая энциклопедия (2024) [PDF]
+
+>>Разное (категория книг)
+>>На досуге
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33224.jpg" />
+</div>
+
+
+###  Подробнее
+
+Эта большая энциклопедия посвящена новейшим техническим устройствам, созданным благодаря человеческому гению, — беспилотным системам и роботизированным комплексам, предназначенным для выполнения специализированных задач в экстремальных условиях. В книге широко представлены разведывательные и ударные беспилотные летательные аппараты, специальные роботизированные наземные (   Читать дальше...   )Жанр: Хобби и досугИздательство: АСТФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:06D452AC698BDF29BD942630FEF2A71F2929C800
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768185   (33223) от 24.12.2024
+
+Defender Tools 1.15 b10 Portable by Ratiborus [Ru/En]
+
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33223.jpg" />
+</div>
+
+
+###  Подробнее
+
+Defender Tools — это небольшая утилита от Ratiborus, которая по исходному замыслу должна позволять быстро и полностью отключить Защитник Windows, а также программа даёт возможность добавить или удалить папку или файл в исключения Windows Defender. Данная версия имеет только возможность управления исключениями.Язык интерфейса: Русский, Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1290562C87E05D9D1A5DA04D76B42C825B3BEB49
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1751620   (33222) от 24.12.2024
+
+Resident Evil 3 (2000) [Multi] (1.0hf3) License GOG
+
+>>Win Старые Игры
 >>Adventure/Quest
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31697.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33222.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Бывший подопытный снова нанимает сумасшедшего доктора, который мошенничает и просит превратить ее больницу в коррумпированную мельницу для сбора пожертвований. Воспользуется ли он этим вторым шансом, чтобы воплотить в жизнь свое собственное видение «науки», или его многочисленные неудачи снова потянут его ко дну в этом псевдомедицинском визуальном романе?Тип издания: SceneРазработчик: ShiravuneЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
+Джилл Валентайн, бывшая сотрудница спецназа S.T.A.R.S., пытается спастись бегством из руин Ракун-Сити... На ее пути - сотни кровожадных зомби, злобных мутантов и безжалостное создание Немезида, самый совершенный монстр, когда-либо появлявшийся в застенках корпорации Umbrella. Выжить в этом аду - практически невыполнимая задача даже для самых опытных бойцов.Тип издания: LicenseРазработчик: Capcom, GOGЖанр: Экшны, ХоррорЯзык озвучки: АнглийскийЯзык субтитров: Английский, Немецкий, Испанский, Французский и другиеЯзык интерфейса: Английский, Немецкий, Испанский, Французский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:48CF2287B51AA7576FAB17D37EF407D060470E86
+magnet:?xt=urn:btih:502A0F7FFDB5A355CC126F2225F4FB0535BF66A9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -439,26 +667,27 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771518   (31696) от 07.01.2025
+###  Публикация: 1768342   (33221) от 24.12.2024
 
-Б.А. Колчин | Техника обработки металла в древней Руси (1953) [PDF]
+РУНО, Алексей Козлов | Microsoft Excel 2016/2019. Уровень 1+2+3. От новичка до эксперта (2022) WEB-DL [AD] [RU]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Обучающие видеоматериалы
+>>IT, Компьютерные видеокурсы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31696.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33221.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В книге рассмотрена история металлургии и кузнечного ремесла в древней Руси
-Настоящая работа составлена главным образом на основании данных, полученных археологическими экспедициями, участником которых был автор. Многочисленные находки остатков печей, инструментария, всевозможных изделий домашнего и производственного обихода показывают высокий уровень мастерства (   Читать дальше...   )Жанр: история ремеселИздательство: МашгизФормат: PDFКачество: Необработанный скан
+✅Освоите профессиональные приемы работы в программе: Основные операции с листами, ввод, редактирование данных, автозаполнение ячеек с помощью маркера автозаполнения
+✅Получите инструменты для вычисления: простейшие формулы, относительные и абсолютные ссылки, создание связей внутри книги и между книгами, Мастер функций: СУММ, МИН, МАКС, СРЗНАЧ
+✅Получите (   Читать дальше...   )Производство: РУНОЖанр: ВидеокурсЯзык озвучки: РусскийПродолжительность: 21:26:24Реклама: Присутствуют сторонние вставки и наложения
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FCF8B9C07BDD5ED38A687F4003529ED431CFAD5E
+magnet:?xt=urn:btih:BD63A6B38E848147189E54BB3DC4B70F7B61965B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -466,234 +695,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771633   (31695) от 07.01.2025
+###  Публикация: 1768113   (33220) от 24.12.2024
 
-TapinRadio 2.16.002 RePack (& Portable) by elchupacabra [Multi/Ru]
+Анора / Anora (2024) WEB-DL [H.265/2160p] [4K, SDR, 8-bit] [MVO]
 
->>Архив торрентов
->>Архив Программ
+>>Горячие новинки
+>>Зарубежные Новинки (HD, FHD, UHD, 3D)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31695.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33220.jpg" />
 </div>
 
 
 ###  Подробнее
 
-TapinRadio - интернет радио от компании RaimerSoft (разработчика известной программы RarmaRadio) предоставляет своим пользователям широчайший ассортимент радиостанций. Данная программа дает возможность прослушивать 15 тысяч радиостанций разного направления и стиля музыки.
-Для более удобного поиска любимых станций можно создавать свой список часто прослушиваемых радиостанций, (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
+Молодая стриптизерша из Бруклина внезапно выходит замуж за сына русского олигарха. Узнав об этом, родители парня тотчас вылетают из Москвы в Нью-Йорк. Они готовы на все, лишь бы расстроить брак.Производство: США / Cre Film, FilmNation EntertainmentЖанр: драма, мелодрама, комедияРежиссер: Шон БэйкерАктеры: Майки Мэдисон, Марк Эйдельштейн, Юра Борисов, Карен Карагулян, Ваче Товмасян, Алексей Серебряков, Дарья Екамасова, Линдси Нормингтон, Айви Волк, Пол ВайсманПеревод: Многоголосый профессиональный (TVShows)Язык озвучки: Русский, английскийСубтитры: Русские (Full, SDH), английские (Forced, Full, SDH)Продолжительность: 02:18:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B80CD537737AA997E875B93D95B6D3CE5A2DE0A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771515   (31694) от 07.01.2025
-
-Process Lasso Pro 15.0.4.22 [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31694.jpg" />
-</div>
-
-
-###  Подробнее
-
-Process Lasso позволяет вручную или автоматически манипулировать запущенными на компьютере процессами, что позволяет добиться максимального быстродействия и стабильности системы. Process Lasso наблюдает за программами, активно загружающими центральный процессор и ограничивает их, тем самым улучшая системный отклик. Также она может автоматически снизить приоритет (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:940CEED7AB5840DF7D4F3F08FBC72AA3915B6452
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771627   (31693) от 07.01.2025
-
-Нина Тарасова | Десерты родом из детства (2023) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31693.jpg" />
-</div>
-
-
-###  Подробнее
-
-Иногда здорово посмотреть на традиционное под новым углом и переоткрыть привычное. Даже если это десерты! В новой книге известный российский кондитер и телеведущая Нина Тарасова делится рецептами классических сладостей: первая половина книги — «те самые» десерты из детства, а вторая — творческое переосмысление советского наследия. Привычные вкусы с новыми формами, (   Читать дальше...   )Жанр: КулинарияИздательство: Хлеб-сольФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:910F0F05C9340542B377231E778A620657E6992B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771713   (31692) от 07.01.2025
-
-Imagine 1.7.3 + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31692.jpg" />
-</div>
-
-
-###  Подробнее
-
-Imagine - это бесплатный просмотрщик изображений для Windows. Это отличная альтернатива многим другим популярным бесплатным вьюерам, таким как IrfanView, XnView или FastStone Image Viewer. Это приложение с низким использованием ресурсов, которое будет работать на всех версиях ОС Windows.Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:948708E70DA6EFC4CDC2C08C415D75F7DCE0F702
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766026   (31691) от 07.01.2025
-
-Зачарованная / Enchanted (2007) WEB-DLRip [AV1/2160p] [4K, SDR, 10-bit] [Open Matte] [Локализованная версия] [hand made Upscale AI]
-
->>Остальное
->>hand made * video
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31691.jpg" />
-</div>
-
-
-###  Подробнее
-
-Юная девушка из мультипликационного мира влюбилась в прекрасного принца, чем немало разозлила его мачеху. С помощью черной магии королева отправляет несчастную в единственное место во Вселенной, где нет любви — современный Манхэттен. Вчерашней мультяшке придется как-то выживать в реальности.Производство: США, Алжир, Новая Зеландия / Andalasia Production, Josephson Entertainment, Right Coast Productions, Walt Disney PicturesЖанр: комедия, фэнтези, мюзикл, мелодрама, семейный, мультфильмРежиссер: Кевин ЛимаАктеры: Эми Адамс, Патрик Демпси, Джеймс Марсден, Тимоти Сполл, Сьюзен Сарандон, Идина Мензел, Рэйчел Кови, Джули Эндрюс, Джефф Беннетт, Кевин ЛимаПеревод: Дублированный (Невафильм)Язык озвучки: Русский, АнглийскийСубтитры: русские (forced, full), английскиеПродолжительность: 01:47:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D70ED4CA8F32E727AA812799ED51EEBB48F453DA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1750704   (31690) от 07.01.2025
-
-Blue Lock | Синяя тюрьма: Блю Лок [ТВ-1] [2022, TV, 24 из 24] BDRip 1080p HEVC 10-bit raw+rus
-
->>Аниме с озвучкой
->>Аниме с озвучкой (FullHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31690.jpg" />
-</div>
-
-
-###  Подробнее
-
-Осознав плачевное состояние японского футбола, национальная ассоциация решается на отчаянный шаг и нанимает Дзимпати Эго. Теперь на плечах этого загадочного и эксцентричного тренера лежит неподъёмная ответственность — привести Японию к победе на чемпионате мира по футболу. Полагая, что залог завоевания выигрыша — это агрессивный нападающий, Дзимпати организовывает (   Читать дальше...   )Производство: 8bit, Aura StudioЖанр: спортРежиссер: Ватанабэ ТэцуакиЯзык озвучки: Японский, русский (Studio Band, AniLibria)Субтитры: Русские (Crunchyroll)Продолжительность: 24 эп. по 25 мин.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1BB25B9D59F5160B8C6C18CC6A4F19283DF8A2B6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771522   (31689) от 07.01.2025
-
-В.Н. Шухардин | Лесная аптека (1968) [PDF]
-
->>Разное (категория книг)
->>Нетрадиционная медицина
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31689.jpg" />
-</div>
-
-
-###  Подробнее
-
-В. Н. Шухардин с 1932 года изучает растительный мир Пермского края, в частности дикорастущие лекарственные растения. В данной работе он описывает 100 видов растений, используемых в научной и народной медицине. Охарактеризованы внешние признаки растений, оказано о том, какие части растений используются в медицине и чем они ценны, даны практические советы по сбору (   Читать дальше...   )Жанр: справочное пособиеИздательство: Пермское книжное издательствоФормат: PDFКачество: Обработанный скан + OCR
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E2292DCBCA0E891D40673640130F1E0E831CC410
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771642   (31688) от 07.01.2025
-
-Firefox Browser ESR 128.6.0 [Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31688.jpg" />
-</div>
-
-
-###  Подробнее
-
-Mozilla Firefox - быстрый, полнофункциональный веб-браузер нового поколения от Mozilla Foundation. Браузер прост в использовании и имеет множество интересных функций, включая блокировку всплывающих окон, вкладок, усовершенствованные функции конфиденциальности, автоматическое обновление и многое другое. Простой и лаконичный интерфейс позволяет освоить программу за (   Читать дальше...   )Язык интерфейса: Русский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6C66050D1E9E1A62188C5C5398BA4E394C82AEF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1771553   (31687) от 07.01.2025
-
-Night Shift Nurses (2024) [Multi] (1.0.0/dlc) License GOG
-
->>Win Игры
->>Adventure/Quest
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_31687.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бывший подопытный снова нанимает сумасшедшего доктора, который мошенничает и просит превратить ее больницу в коррумпированную мельницу для сбора пожертвований. Воспользуется ли он этим вторым шансом, чтобы воплотить в жизнь свое собственное видение «науки», или его многочисленные неудачи снова потянут его ко дну в этом псевдомедицинском визуальном романе?Тип издания: LicenseРазработчик: ShiravuneЖанр: Приключенческие игрыЯзык озвучки: ЯпонскийЯзык субтитров: Английский, Китайский (упрощенный, традиционный)Язык интерфейса: Английский, Китайский (упрощенный, традиционный)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C956EADF704C00700F982CA12D988DBF52B0944
+magnet:?xt=urn:btih:E51B4B37489C0843C98D711011EB7C40B1990763
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1151876   (182693) от 23.11.2022
+
+Nickelback - 10 Albums (1996-2022) Full Studio Discography [FLAC|Lossless|tracks + .cue] <Alternative Rock, Post-Grunge, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_182693.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. San Quentin (3:31)
+02. Skinny Little Missy (3:38)
+03. Those Days (3:39)
+04. High Time (3:55)(   Читать дальше...   )Жанр: Alternative Rock, Post-Grunge, Hard Rock |Продолжительность: 00:55:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B70A3D5E0BFC37754B470B5C2CF9DBC6AC9292E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1592872   (181988) от 25.11.2022
+
+Vain Louie - Time Devours Everything (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Melodic Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_181988.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Tragedy Unfolds
+2. The Death of Existence
+3. The Sum Of Our Perceptions
+4. Persistence of Vision(   Читать дальше...   )Жанр: Metalcore, Melodic HardcoreПродолжительность: 00:40:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7426820E307876D6615E587BD86E16323BD4AC66
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1592937   (181972) от 25.11.2022
 
 Her Anxiety - No Land in Sight (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore>
@@ -684,64 +742,6 @@ In Search of Solace - The Endless Ache (2022) [FLAC|Lossless|WEB-DL|tracks] <Met
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:9F6535DCCECBFF3C216AB3C58F7AF078A4FAD78B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1595135   (176283) от 04.12.2022
-
-Synestia - Maleficium (2022) [FLAC|Lossless|WEB-DL|tracks] <Symphonic Deathcore, Metalcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_176283.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Maleficium
-2. Burial Hymn (feat. Alan Grnja)
-3. Empyrean Skies (feat. Dan Tucker)
-4. Scarlet Moon(   Читать дальше...   )Жанр: Symphonic Deathcore, MetalcoreПродолжительность: 00:48:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E43A812FCF5024C64A3156186568EAC9503A72CE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1667505   (176092) от 09.10.2023
-
-Killing Joke - The Great Gathering - Live At Brixton Academy (2016) [FLAC|Lossless|WEB-DL|tracks] <Post-Punk, Industrial>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_176092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Hum (Live) [00:04:46]
-02. Love Like Blood (Live) [00:06:16]
-03. Eighties (Live) [00:02:47]
-04. Autonomous Zone (Live) [00:06:09](   Читать дальше...   )Жанр: Post-Punk, IndustrialПродолжительность: 01:32:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:583DEBEB7FE6BA57284055E00CCF1CFA6D0D0B87
 ```
 
 https://mybot314.ru/tekegram_catalog/

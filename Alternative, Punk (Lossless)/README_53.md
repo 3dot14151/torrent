@@ -1,3 +1,61 @@
+###  Публикация: 1617818   (235677) от 08.03.2023
+
+Aight Bet - Stop Playin (2023) [FLAC|Lossless|WEB-DL|tracks] <Hoodcore, Beatdown, Hip Hop>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235677.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Hol' Up [00:02:01]
+02. Southside Slugga [00:01:48]
+03. Fish N' Chips [00:03:50]
+04. Universal Chess Move [00:02:46](   Читать дальше...   )Жанр: Hoodcore, Beatdown, Hip HopПродолжительность: 00:21:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1585410953D33FE2F8D67FCB1DF97C75D19E35F5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617865   (235629) от 08.03.2023
+
+Needle Grey - Seasons Past (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Modern Metal, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_235629.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Grey [00:04:31]
+02. Drown Them [00:04:06]
+03. Executioner [00:04:13]
+04. Lighthouse [00:04:04](   Читать дальше...   )Жанр: Modern Metal, MetalcoreПродолжительность: 00:27:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA20688D70EF79412D7537768EA51E8C0E230B4C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1617885   (235588) от 08.03.2023
 
 Fracturus - Versus the Void (2023) EP [FLAC|Lossless|WEB-DL|tracks] <Deathcore>
@@ -687,64 +745,6 @@ Harm - a song you can't feel anymore (2023) [FLAC|Lossless|WEB-DL|tracks] <Post-
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CCF00185C4D5B0834F32318B26A99E415B4EDAC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642230   (233359) от 26.06.2023
-
-Rain City Drive - Rain City Drive (2022) Deluxe Edition, 2023, Thriller Records [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock, Post-Hardcore>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233359.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting on You (3:16)
-02. Gardens of Misery (3:22)
-03. Dreams (3:24)
-04. Dying For (3:05)(   Читать дальше...   )Жанр: Alternative Rock, Post-HardcoreПродолжительность: 00:54:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7634D5824DEAE7CA13396FB5F1CD794D2DB81FE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1642109   (233351) от 26.06.2023
-
-Honey Revenge - Retrovision (2023) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Pop-Rock, Female Vocal>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_233351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Airhead [00:02:43]
-02. Seeing Negative (Disappointment) [00:03:15]
-03. Are You Impressed? [00:03:07]
-04. Favorite Song [00:02:42](   Читать дальше...   )Жанр: Alt.Rock, Pop-Rock, Female VocalПродолжительность: 00:36:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A1DA8FDC18B672B4FEB46579965C9ADCB3FB617
 ```
 
 https://mybot314.ru/tekegram_catalog/

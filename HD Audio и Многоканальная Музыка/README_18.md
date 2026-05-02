@@ -1,3 +1,154 @@
+###  Публикация: 1210840   (778047) от 05.03.2018
+
+Алла Пугачёва - Виниловая коллекция (1977-1991) [FLAC 2.0|96/24|image+.cue|Vinyl-Rip] <Pop, Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_778047.jpg" />
+</div>
+
+
+###  Подробнее
+
+A1 Iceberg
+A2 The Rope-Dancer · Канатоходка
+A3 Leningrad · Ленинград
+A4 A Woman Who Sings · Женщина Которая Поeт(   Читать дальше...   )Жанр: Pop, Pop RockПродолжительность: 10:06:51 (общая)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F99F729BD77B67D57886CDFD2742E31DB8E336C3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 659107   (775423) от 22.05.2013
+
+Dead Can Dance - In Concert (2013) [FLAC 2.0 16/44.1|Tracks (Web-DL)]<Rock / Darkwave / Ambient>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775423.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Children Of The Sun (7:33)
+02. Anabasis (6:43)
+03. Rakim (6:15)
+05. Lamma Bada (4:19)
+06. Agape (6:18)
+07. Amnesia (6:16)
+08. Sanvean (5:25)
+09. Nierika (4:35)
+10. Opium (5:36)
+11. The Host Of Seraphim (6:13)(   Читать дальше...   )Жанр: Rock, Darkwave, ambient.Продолжительность: 01:29:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:81BB7570030DC04447DF5925D8A4125BDE24ADE3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196134   (774876) от 13.03.2018
+
+Сергей Минаев - ЛомБаба (Нон-Стоп) (1989) [DSD2.0|5,64MHz/1bit|image+.cue|МС-Rip] <Pop, Disco>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774876.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. ЛомБаба (03:31)
+02. 22 притопа (03:32)
+03. Ты крутила мной (Ломбада) (03:37)
+04. Анжелика (04:01)(   Читать дальше...   )Жанр: Pop, DiscoПродолжительность: 00:30:32
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2CD66E8A5ED1CFFE72699A595E97ABF2795062F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1015595   (774042) от 11.05.2016
+
+Мирей Матье (Mireille Mathieu) – Французская коллекция (1986) [FLAC 2.0|192/24|tracks|Vinyl-Rip] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774042.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Браво, ты выиграл (Bravo Tu As Gagne)  4:40
+2. Влюбленная женщина (Une Femme Amoureuse - Woman In Love)  4:10
+3. У голубой реки (A Blue Bayou)  3:58(   Читать дальше...   )Жанр: PopПродолжительность: 00:41:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4B170818E4BB94D80B712BDFC4BE6C5DB9DDD178
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 949781   (773924) от 11.05.2016
+
+The Beatles - Let It Be (1970) [FLAC 2.0|192/24|tracks|Vinyl-Rip]<Pop Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>Vinyl-Rip и Hand-Made
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_773924.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+1. Two Of Us  3:36
+2. Dig A Pony  3:54
+3. Across The Universe  3:48(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:35:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B1F26D630AF5C5EB577FAF4E2AB95463A30728F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1269706   (772790) от 21.06.2020
 
 Кино - Атаман (2018) [FLAC 2.0|48/24|image+.cue|Vinyl-Rip] <Rock>
@@ -592,149 +743,6 @@ Coldplay - 4 альбома (Vinil-rip 24 Bit/96 kHz) (2000-2008) [FLAC|Lossless
 ## Скачать торент
 ```bash
 нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1018245   (757465) от 19.05.2016
-
-Mando Diao - Aelita (2014) [LPCM 2.0 96/24|DTS 5.1 96/24|Audio-DVD5|BD-Audio] <Electronic, Rock, Pop>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_757465.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Black Saturday 03:22
-02. Rooftop 04:57
-03. Money Doesn't Make You A Man 05:06
-04. Sweet Wet Dreams 04:41(   Читать дальше...   )Жанр: Electronic, Rock, PopПродолжительность: 00:54:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AE1C38E4E59F242F14A156FC0D194763CD734471
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522655   (756639) от 08.01.2022
-
-Queen Of The Damned OST (2002) hand made [restored, declipped][FLAC 2.0|Lossless|44/16|tracks + .cue] <Stage & Screen, Nu Metal, Alternative Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Оригинальный саундтрек к фильму Queen Of The DamnedCD1 - Queen Of The Damned (original score by Richard Gibbs)
-CD2 - Queen Of The Damned (songs by Jonathan Davis)Жанр: Stage & Screen, Nu Metal, Alternative RockПродолжительность: 01:30:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DA11032AC2BC113E20A228B5C04D805E31CA55F9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1089641   (756572) от 05.02.2019
-
-Metallica - Master Of Puppets (1986) [WavPack 2.0|192/32|image + .cue|Vinil-Rip] <Thrash Metal>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_756572.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Battery 5:14
-02 Master Of Puppets 8:34
-03 The Thing That Should Not Be 6:36
-04 Welcome Home (Sanitarium) 6:30(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:54:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D29BC2D7BE47F2CAF87841F007B6A668FA38004
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1395360   (755577) от 10.07.2020
-
-Fish - Something In The Air (1992) 45 RPM, Single [FLAC|Lossless|tracks] <Prog Rock, Pop Rock>
-
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_755577.jpg" />
-</div>
-
-
-###  Подробнее
-
-A Something In The Air (Teddy Bear Mix)
-(John Keene)
-B1 Something In The Air (Album Mix)
-(John Keene)(   Читать дальше...   )Жанр: Prog Rock, Pop RockПродолжительность: 00:16:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F438428D44C3DCE881E4A56F966E3AA90ABFDB7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1522966   (754943) от 09.01.2022
-
-Aaron Neville - Devotion (2000) [DTS 5.1 CD-Audio|44.1/16|image+.cue|DVD-Audio] <Funk/Soul, Pop>
-
->>HD Audio и Многоканальная Музыка
->>DTS-Audio
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_754943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Devotion — последний полноформатный диск Аарона Невилла, посвященный спиричуэлсу. Очень мягкий, "сахарный" голос не только хорошо подходит к традиционным спиричуэлс "Banks of River Jordan," "Jesus Loves Me," "Mary Don't You Weep", но и в каверах рок-классики - "I Shall Be Release", "Morning Has Broken" и (   Читать дальше...   )01. Morning Has Broken
-02. Mary Don't You Weep
-03. By Heart, by Soul (Guest Vocals by Avalon)
-04. Bridge over Troubled Water(   Читать дальше...   )Жанр: Funk/Soul, PopПродолжительность: 00:50:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A399BA1DDF90B8AB81B913996596E6E8D209B16C
 ```
 
 https://mybot314.ru/tekegram_catalog/

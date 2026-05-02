@@ -1,274 +1,23 @@
-###  Публикация: 1508452   (797513) от 08.11.2021
+###  Публикация: 1507009   (799095) от 02.11.2021
 
-Dark Reader for Safari 1.4.4 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797513.jpg" />
-</div>
-
-
-###  Подробнее
-
-Dark Reader for Safari Это расширение для ухода за глазами позволяет создавать ночные режимы темных тем для веб-сайтов на лету. Dark Reader инвертирует яркие цвета, делая их высококонтрастными и удобными для чтения ночью. Это идеально подходит для системного темного режима.
-Настройте яркость и контрастность в соответствии с вашим экраном, выберите между режимами (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 26.09.2021Разработчик: © 2021 Alexander ShutauПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:510990C92C857D2D14C4E9C13A66CD2A3F23EBDE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508509   (797512) от 08.11.2021
-
-Monarch Trail - Wither Down (2021) [FLAC|Lossless|image + .cue] <Progressive Rock, Symphonic Prog>
-
->>Rock, Alternative, Punk, Metal
->>Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797512.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Wither Down (10:54)
-2. Echo (6:00)
-3. Canyon Song (6:32)
-4. Waves of Sound (11:01)(   Читать дальше...   )Жанр: Progressive Rock, Symphonic ProgПродолжительность: 00:56:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C9617B87EBE208705DAA9176EA17452731AE0C41
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508396   (797511) от 08.11.2021
-
-ON1 Photo RAW 2022 v16.0.1.11212 fix [Multi/Ru]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797511.jpg" />
-</div>
-
-
-###  Подробнее
-
-ON1 Photo RAW включает в себя ключевые обновления для быстрого недеструктивного механизма обработки снимков в формате RAW. Теперь у фотографов появился инструмент с быстрым управлением фотографиями, точная обработка фотографий, сотни настраиваемых фотоэффектов, удобная и красивая склейка HDR, панорамы, маскировка и корректировки смешивания, работа со слоями и многое (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.10.2021Разработчик: © ON1, Inc.Поддерживаемая ОС: macOS 10.14+Язык интерфейса: Русский, Английский и др.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9ED50C34E2BBCD3912376CBBDF282E7037F336A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508430   (797510) от 08.11.2021
-
-Nitrate - Renegade (2021) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797510.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Danger Zone
-02. Renegade
-03. You Think You've Got It
-04. Big City Lights(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 00:50:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5D711D73CDCC0A1BD37080B6234106EFB58A5E48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508395   (797509) от 08.11.2021
-
-Evile - Hell Unleashed (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797509.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Paralysed
-02. Gore
-03. Incarcerated
-04. War of Attrition(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:41:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94381DA993FA393D0541CA7FE8B04E8D9AAD2376
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508398   (797508) от 08.11.2021
-
-Gorky Park - Ballads (2021) [AAC|~339 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797508.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. All Roads (Remastering 2021) (5:09)
-02. Within Your Eyes (Remastering 2021) (4:54)
-03. Two Candles (Remastering 2021) (4:21)
-04. Stranger (Remastering 2021) (4:51)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:76AB5631047DB98CAF1303EBCDCD34E56BDCCDF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508446   (797507) от 08.11.2021
-
-zGallery – Image Viewer 4.51 [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797507.jpg" />
-</div>
-
-
-###  Подробнее
-
-zGallery - это элегантное программное обеспечение, которое показывает, просматривает и редактирует изображения и фотографии в вашей папке и на диске.
-zGallery - это действительно быстрая загрузка и отображение изображений, а также важные функции редактирования.
-Знакомый интерфейс, такой как дерево папок и просмотр эскизов, позволяет быстро находить изображения или (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 23.09.2021Разработчик: woojooinПоддерживаемая ОС: macOS 10.7+Язык интерфейса: Английский и Корейский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:55702C2629288F9EA56DFEFF102F895D8156DC4D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508481   (797506) от 08.11.2021
-
-Париж, когда там жара / Paris - When It Sizzles (1964) BDRip [H.264/720p]
-
->>Классика кино и Старые фильмы до 90-х
->>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797506.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ричард Бенсон, сценарист, получил новый заказ от голливудского продюсера. Вместо того чтобы погрузиться в работу, он праздно проводил время, пил и, в итоге, ничего не написал. До приезда продюсера остаётся всего пара дней, за которые Ричарду необходимо придумать сюжет будущего фильма и напечатать сценарий. Чтобы ускорить процесс, он нанимает стенографистку Габриэлль (   Читать дальше...   )Производство: США, George Axelrod Productions, Richard Quine ProductionsЖанр: мелодрама, комедияРежиссер: Ричард КуайнАктеры: Уильям Холден, Одри Хепберн, Грегуар Аслан, Раймон Бюссьер, Тони Кертис, Кристиан Дувалекс, Мишель Томасс, Доминик Бошеро, Эви Маранди, Ноэл КауардПеревод: профессиональный многоголосый (Paramount Channel), профессиональные двухголосые (НТВ+, DVD Magic)Субтитры: английскиеПродолжительность: 01:50:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D7026E8B978FF4EFD2EDACD40C436224BCBD19F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508399   (797505) от 08.11.2021
-
-Gorky Park - Alternative and Progressive (2021) [AAC|~345 Kbps] <Rock>
-
->>Аудио и Видео
->>Музыка (AAC)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. UFOria (Remastering 2021) (3:03)
-02. Five Wheel Drive (Remastering 2021) (4:27)
-03. Liar (Remastering 2021) (4:18)
-04. Taiga (Instrumental) (Remastering 2021) (3:20)(   Читать дальше...   )Жанр: RockПродолжительность: 01:00:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:417B344F91F1DD894734C1E276CECA535E929C6C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508407   (797504) от 08.11.2021
-
-AIMP 5.00.2342 RePack (& Portable) by TryRooM [Multi/Ru]
+Privacy Eraser Free 5.17.0 Build 4067 + Portable [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797504.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799095.jpg" />
 </div>
 
 
 ###  Подробнее
 
-AIMP – проигрыватель, включающий в себя множество дополнительных модулей: CD-Ripper, Tag Editor, Audio-player, аудио конвертер, запись аудио и дисков с данными и т.д. Воспроизводит множество аудиоформатов, включая WAV, MP3, MP2, MP1, OGG, WMA, UMX, не нуждаясь в дополнительных кодеках. Имеет стильный многоязычный интерфейс.Язык интерфейса: Русский, Английский, другие
+Privacy Eraser Free - комплексный инструмент для защиты приватности путем удаления истории вашей активности в Интернете и других следов деятельности на ПК. Поддерживает основные параметры системы Windows, популярные браузеры и приложения. Ускоряет интернет-серфинг, повышает производительность и стабильность ПК.
+Буквально одним щелчком мыши Privacy Eraser стирает (   Читать дальше...   )Язык интерфейса: Русский, Английский, другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:C66C18762CA30EAD86282ABECDF0761C42A4B6B2
+magnet:?xt=urn:btih:D21F41772AEF5180C01D10DBA39E4365466CD94E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -276,25 +25,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508382   (797503) от 08.11.2021
+###  Публикация: 1507052   (799094) от 02.11.2021
 
-Боб Дилан: Всякая Всячина / Bob Dylan: Odds and Ends (2021) WEB-DL [H.264/1080p] [VO]
+Dropzone 4 Pro v4.2.1 [En]
 
->>Документалистика и Телепередачи
->>Посвящение искусству
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797503.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799094.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Архивные интервью, рекламные видео ролики и документальные съемки Боба Дилана. Подробности самых ярких моментов карьеры легендарного музыканта. Боб Дилан — американский автор-исполнитель, художник, писатель и киноактёр, одна из самых влиятельных фигур в поп-музыке на протяжении последних шестидесяти лет.Производство: СШАЖанр: Документальный, музыка, биографияРежиссер: Дженнифер Лебо, Джон ХиллкоутПеревод: Двуголосый любительский (Pazl Voice)Субтитры: АнглийскиеПродолжительность: 01:56:04
+Dropzone - удобная утилита для автоматизация рутинных действий.
+Каждый пользователь Mac, особенно перешедший с платформы PC, не только чувствует разницу в скорости работы, но и наслаждается тем, насколько красива, надёжна и удобна новая система. Несмотря на то, что macOS заслуживает самых лестных отзывов, даже в этой ОС есть определённые вещи, т.е. какие-либо программные (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 Aptonic LimitedПоддерживаемая ОС: macOS 10.13 или вышеЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:83A85D7D0E6BCFEE3972751DDE22140DD2AC8DCE
+magnet:?xt=urn:btih:6FF801C50382AFF7543E1B375B1F56064D0D713B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -302,54 +52,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1508324   (797502) от 08.11.2021
+###  Публикация: 1506964   (799093) от 02.11.2021
 
-Various Artists - Metal Art CD Compilation. The Art Of Extreme Music. Vol.1 (2007) [FLAC|Lossless|image + .cue] <Metal>
-
->>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797502.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Жанр: MetalПродолжительность: 01:19:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B9685861F69788104F7606B5FC9875D878D1E21E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199849   (797501) от 18.01.2018
-
-VA - Aly & Fila - Future Sound of Egypt 531 (2018) [MP3|320 Kbps] <Trance,Uplifting Trance>
+Charlotte de Witte - DJ Mag Alternative Top 100 DJs Winner Set (2021-10-27) [MP3|320 Kbps] <Techno>
 
 >>Electronic
 >>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797501.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799093.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Jody Wisternoff ft. Hendrik Burkhard - For All Time
-02. Wellenrausch & Gai Barone - Heroes Of Light (Jerome Isma-Ae & Alastor Remix)
-03. Pablo Artigas - Daybreak
-04. Kastis Torrau - Glice Glice(   Читать дальше...   )Жанр: Trance,Uplifting TranceПродолжительность: 01:57:59
+01. ID - ID
+02. ID - ID
+03. Quisan - Cumulos
+04. ID - ID(   Читать дальше...   )Жанр: TechnoПродолжительность: 01:03:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03E76CBAC77B47F5EF9B55BCBB9B0AEE6EBA7DCE
+magnet:?xt=urn:btih:B5C75864C5735C451108FB489D18C0968728E010
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -357,28 +81,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199834   (797500) от 18.01.2018
+###  Публикация: 1506889   (799092) от 02.11.2021
 
-Метанойя - Гомункул (2012) [MP3|320 Kbps] <Art Rock, Art Punk>
+VA - Relaxing Therapy Session with José Sierra (Pt 2) (2021) [AAC|~326 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Rock, Alternative, Punk, Metal
->>Русский рок
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797500.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799092.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Intro: ещё есть
-02. Водолазы облаков
-03. Офелия
-04. Харон(   Читать дальше...   )Жанр: Art Rock, Art PunkПродолжительность: 00:55:58
+01. Dualsong - Memories in Time (Original Mix) (5:35)
+02. Magmatunes - Visions (4:19)
+03. Dharma Frequency - The Vision (Original Mix) (3:15)
+04. Firas Tarhini - Dream Away (Original Mix) (4:50)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 03:12:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47712ACE54D586C2BA0649C819F56C786C9AD94E
+magnet:?xt=urn:btih:A0B26ED4ADFFFFC968632747A21BC1CB93DD8BEC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -386,28 +110,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199773   (797499) от 18.01.2018
+###  Публикация: 1506803   (799091) от 02.11.2021
 
-VA - Back To The Future, Vol. 6 (2018) [FLAC|Lossless|WEB-DL|tracks] <Deep House, Tech House>
+Qrion - I Hope It Lasts Forever (2021) [FLAC|Lossless|WEB-DL|tracks] <EDM, Deep House, Chill House>
 
 >>Electronic
 >>House, Techno, Electro, Minimal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797499.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799091.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Sasse - On My Mind (Metrica Remix) (05:32)
-02. Benny Grauer - Falling (Markus Homm Remix) (07:18)
-03. Frankey, Sandrino - Cephei (Locked Groove Remix) (09:13)
-04. Ben La Desh - 2912 (Original Mix) (07:28)(   Читать дальше...   )Жанр: Deep House, Tech HouseПродолжительность: 02:28:58
+01. Pitch Dark (4:54)
+ 02. Proud (3:56)
+ 03. Jones St. (4:52)
+ 04. Fireworks (4:25)(   Читать дальше...   )Жанр: EDM, Deep House, Chill HouseПродолжительность: 01:06:44
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:A4EC2D2E634A739539FF1BB439CE73E9956A781C
+magnet:?xt=urn:btih:7B8982B4F3BB9040DD349A415EAAE0975B0A5B92
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -415,112 +139,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199901   (797498) от 18.01.2018
+###  Публикация: 1506577   (799090) от 02.11.2021
 
-VA - Conarium (Compiled by DJ Rezuk) (2017) [MP3|320 Kbps] <Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797498.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inner Path To Outer Space - The Self Is An Illusion (Original Mix)
-02. Smoke Sign & Ghost Wire - A Prayer For The Frogs (Live Mix)
-03. Space Organ - Like A Sapiens (Original Mix)
-04. Woogie Boogie - Rejected Prototype (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:528828050651C52474E165F4822FF5539D113564
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199870   (797497) от 18.01.2018
-
-Монах Моисей Святогорец | Как убить страсти (2016) [PDF]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797497.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Мужество состоит в том, чтобы победить свои страсти» - это слова одной из пяти бесед, которые включены в этот сборник. Они принадлежат афонскому старцу Моисею (1952-2014). Эти беседы - о разрушительности для души греховных страстей, борьбе с ними и о стяжании Духа Святого - главной цели жизни каждого христианина. Простой язык автора и его верность святоотеческий (   Читать дальше...   )Жанр: ПравославиеФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A53CFA508D87AFFB394B1B4DF3441B184927FC4F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199955   (797496) от 18.01.2018
-
-Psytatyx - Double View (2018) [MP3|320 Kbps] <Psy-Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797496.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Intro (Original Mix)
-02. Double View (Original Mix)
-03. Feel Sick (Original Mix)
-04. Whuahua (Original Mix)(   Читать дальше...   )Жанр: Psy-TranceПродолжительность: 01:13:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ABE97D17A00B89B23A190D998DC4DFBAF882BE0A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199867   (797495) от 18.01.2018
-
-VA - German Top 100 Single Charts 19.01.2018 [MP3|320 Kbps] <Pop>
+VA - Halloween Pop (2021) [MP3|320 Kbps] <Pop>
 
 >>Неофициальные сборники
 >>Pop (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797495.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799090.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Ed Sheeran - Perfect
-002. Bausa - Was du Liebe nennst
-003. Eminem - River (feat. Ed Sheeran)
-004. Camila Cabello - Havana (feat. Young Thug)(   Читать дальше...   )Жанр: PopПродолжительность: 05:40:36
+01. M.I.A. - Bad Girls (3:47)
+02. Billie Eilish - bad guy (3:13)
+03. Nelly Furtado - Maneater (4:25)
+04. Rockwell - Somebody's Watching Me (Single Version) (3:56)(   Читать дальше...   )Жанр: PopПродолжительность: 01:35:52
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F5110B41EA195A75600BB4AFC852542230EBD59
+magnet:?xt=urn:btih:663C94A04ECBF1192C62FEBB73301617A80E7ACF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -528,25 +168,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199946   (797494) от 18.01.2018
+###  Публикация: 1507063   (799089) от 02.11.2021
 
-Восемнадцать лун (2002) WEBRip
+TechSmith Camtasia 2021 Studio 2021.0.6 [En]
 
->>Отечественное кино
->>Отечественные Фильмы (SD)
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797494.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799089.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Главные герои этой драматической истории любви — старшеклассники, выпускники школы. Первая любовь, первая измена, первое чувство ревности и нежелание смириться с тем, что ты ничего не можешь изменить. Во внезапно образовавшемся любовном треугольнике страдают все его участники и совершают отчаянные безумные поступки. Главной героине приходится делать выбор: один — (   Читать дальше...   )Производство: РоссияЖанр: Драма, мелодрамаРежиссер: Ильдар ИсламгуловАктеры: Светлана Малюкова, Иван Глубоков, Светлана Фатина, Дмитрий Рыбин, Бари Кит, Дмитрий КуповыхСубтитры: ОтсутствуютПродолжительность: 01:32:20
+Camtasia for Mac — эффективное приложение для создания различных видеороликов: от наглядных презентаций до видеоуроков и демонстрационных слайдов для выступлений. Camtasia for Mac делает процесс создания и редактирования видео еще быстрее и удобнее. С новыми удобными программными инструментами время на производство роликов сокращается на 40-60%, а само видео имеет (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: TechSmith CorporationПоддерживаемая ОС: macOS 10.14+Язык интерфейса: Английский, Немецкий
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1FC99CC541CF25D97F5DC8EC04002FDBAEFA7F2
+magnet:?xt=urn:btih:D7A70B71C653F1090AD4F37E0D8B8B8AF2AF9AA8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -554,28 +194,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199818   (797493) от 18.01.2018
+###  Публикация: 1506977   (799088) от 02.11.2021
 
-VA - Relax Traveling (2017) [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
+Рю Мураками | Пирсинг (2021) [MP3, Юрий Гуржий]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Художественные аудиокниги и публицистика
+>>Проза, Поэзия (аудиокниги)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797493.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799088.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Schwarz & Funk - Sesenta Y Seis
-002. Jakes Trash - Drunky Fesch
-003. Han Tronic - Tea Del Mar
-004. John Soultek - Let the Music Talk(   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 13:03:06
+Рю Мураками в своем неповторимом стиле исследует тему семейного насилия над детьми. Главный герой - горожанин, человек интеллектуального труда, пребывает в состоянии дикого страха. Он боится, что зарежет свою крошечную дочку. Его сознание искалечено было в детстве издевательствами матери. Он должен убить... И если жертва не его собственный ребенок, кто тогда?Жанр: Cовременная зарубежная литератураПродолжительность: 04:26:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:326219AA98985DE02F3C7AF4D896195F8F003CC1
+magnet:?xt=urn:btih:F2D54E6F98F6895EF61768C6E59881B1602D281B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -583,25 +220,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199637   (797492) от 18.01.2018
+###  Публикация: 1506469   (799087) от 02.11.2021
 
-В популярном торрент-клиенте нашли лазейку для вредоносного ПО
+Fatboy Slim - Everybody Loves A Mixtape Podcast (2021) [MP3|192 Kbps] <house, tech house, disco house, electronic, funky house, edm>
 
->>Поговорим
->>Новости
+>>Electronic
+>>Radioshow, Live Mixes
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_797492.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799087.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В Transmittion, одной из самых популярных в мире программ-клиентов для скачивания файлов по протоколу BitTorrent, была найдена критическая уязвимость, которая позволяет злоумышленникам дистанционного исполнить вредоносный код и завладеть контролем над компьютером. По словам эксперта проекта Google Project Zero Тэвиса Орманди, к атаке могут быть восприимчивы и другие (   Читать дальше...   )
+Жанр: house, tech house, disco house, electronic, funky house, edmПродолжительность: 11:58:36
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:3C3E8713E6CECBA582438613E46F4629BD76052C
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -609,25 +246,267 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199807   (797491) от 18.01.2018
+###  Публикация: 1506892   (799086) от 02.11.2021
 
-FreeFileSync 9.7 [Multi/Ru]
+Свобода / Svoboda (2021) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799086.jpg" />
+</div>
+
+
+###  Подробнее
+
+Свобода - это славянское слово, связанное с выражением свободы. Спортсмен по маунтинбайку Алекс Волохов передаёт это чувство творчества через свою собственную езду и построение трасс, а его ценности ещё больше укоренились в нём после значительного времени, которое он провёл с покойным Джорди Ланном.Производство: КанадаЖанр: Документальный, видовойРежиссер: Лиам МалланиПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:02:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6845F1AEEFA2F763A11B825F7AE79B630DE8764D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507011   (799085) от 02.11.2021
+
+Motörhead - Everything Louder Forever - The Very Best Of (2021) [AAC|~347 Kbps] <Hard Rock, Metal>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799085.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ace of Spades (2:47)
+02. Louie Louie (2:45)
+03. Bomber (3:41)
+04. Iron Fist (2:53)(   Читать дальше...   )Жанр: Hard Rock, MetalПродолжительность: 01:07:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7D6255DB29688BDFF678A253322BEAAB293DFB5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506849   (799084) от 02.11.2021
+
+The Doobie Brothers - Liberte (2021) [FLAC|Lossless|image + .cue] <Soft Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799084.jpg" />
+</div>
+
+
+###  Подробнее
+
+Оказывается они все еще записывают музыку и выпускают новые альбомы. Встречайте Liberté - 15-й студийный альбом от classic southern rock band THE DOOBIE BROTHERS, новая работа с абсолютно оригинальным материалом за последние 7 лет! На пластинке есть пара треков в стиле старого southern rock, однако в целом - это разноплановый альбом с разнообразными по стилю (   Читать дальше...   )01. Oh Mexico (3:21)
+02. Better Days (3:22)
+03. Don't Ya Mess With Me (3:32)
+04. Cannonball (3:44)(   Читать дальше...   )Жанр: Soft Rock, Classic RockПродолжительность: 00:42:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:17E2E5C3E1251D7167CCFE17EFCA6A9B750F5B9F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506980   (799083) от 02.11.2021
+
+MacBooster 8 Pro 8.1.0 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799083.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacBooster поможет настроить и ускорить работу macOS. Эта программа умеет высвобождать оперативную память и оптимизировать список загрузки и систему в целом. MacBooster также удаляет ненужные файлы, чтобы освободить место на жестком диске. Попробуйте программу в деле, чтобы узнать обо всех ее возможностях!Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: © 2021 IObitПоддерживаемая ОС: macOS 10.9+Язык интерфейса: Русский, Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5CB6FEABD7522866D506A6861CFA134FE8559D9E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506841   (799082) от 02.11.2021
+
+Из пепла / From The Ash (2020) WEBRip [H.264/2160p]
+
+>>Документалистика и Телепередачи
+>>Релакс / Relax
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799082.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Из пепла» - это визуальная метафора движения вперёд, когда мир, казалось бы, рушится вокруг вас.Производство: КанадаЖанр: Документальный, видовойРежиссер: Райан ГиббПеревод: Не требуется (нет диалогов и комментариев)Субтитры: отсутствуютПродолжительность: 00:04:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:002FF79387CFABE52D802DDAA2D85890FA554619
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506930   (799081) от 02.11.2021
+
+Первый человек / Le premier homme (2011) BDRip [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799081.jpg" />
+</div>
+
+
+###  Подробнее
+
+Летом 1957 года известный писатель Жак Кормери, возвращается в Алжир, где прошло его детство, пытаясь примирить прошлое и настоящее как в истории своей собственной семьи, так и в истории страны.
+Это повествование о простых и важных вещах: детстве, отрочестве, силе солнца и моря, мучительной любви сына к его матери, поиске потерянного отца… Но также оно — и об истории (   Читать дальше...   )Производство: Франция, Италия, Алжир / Cattleya & Soudaine CompagnieЖанр: драмаРежиссер: Джанни АмелиоАктеры: Мишель Кремадес, Жак Гамблен, Mickaël Batret, Jean Benoit Souilh, Николас Лаблин, Florent Chesné, Франк Меркадаль, Александр Мишель, Бенуа Бертран де Баланда, Катрин СолаПеревод: Одноголосый авторскийСубтитры: Русские (полные), английские (полные)Продолжительность: 01:46:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:438B3086416E986AF60898F7924A53D3A05BF55E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506899   (799080) от 02.11.2021
+
+MacX Video Converter Pro 6.5.9 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799080.jpg" />
+</div>
+
+
+###  Подробнее
+
+MacX Video Converter Pro — скачивайте и конвертируйте видео в формат iPhone и iPad
+MacX Video Converter Pro — приложение, которое автоматически конвертирует видеофайлы в нужный конкретному устройству формат. Пользователь вправе выбирать из более чем 350 вариантов настроек, соответствующих самым разным устройством, включая даже смартфоны и планшеты не самой первой (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.11.2021Разработчик: Digiarty Software, Inc.Поддерживаемая ОС: macOS 10.6+Язык интерфейса: Английский, Немецкий, Французский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9D0F68A81BCBCDA3DAD59E6BA0FC0A120C9A48C2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1507040   (799079) от 02.11.2021
+
+Movavi Video Suite for Mac 2022 v22.0.1 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799079.jpg" />
+</div>
+
+
+###  Подробнее
+
+Movavi Video Suite 2022 - все для монтажа видео на macOS: создание видеороликов, конвертация файлов, запись экрана и многое другое. Удобный инструмент дистанционной работы и обучения.Тип издания: macOS SoftwareРелиз состоялся: 02.11.2021Разработчик: Movavi Software Limited.Поддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5BA2D7711CB1FD6B64721369C2F328EE30FE83E2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121690   (799078) от 04.04.2017
+
+Азиатский связной / The Asian Connection (2016) BDRip [H.264/1080p-LQ]
+
+>>Зарубежное кино
+>>Азиатское кино (HD, FHD, UHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799078.jpg" />
+</div>
+
+
+###  Подробнее
+
+Американские эмигранты, Джек и Сэм, грабят банки в Юго-Восточной Азии и случайно крадут деньги принадлежащие наркобарону, после чего они стали объектом мести местной преступной группировки. Вскоре Сэма убивают и Джек разыскивает Пом, любовь всей жизни, вместе они становятся современными Бонни и Клайд, в одиночку пытающиеся противостоять банде наркоторговцев.Производство: Таиланд, США / Kaos Entertainment Inc., Parkside Pictures, Tadross Media GroupЖанр: Боевик, Триллер, Драма, КриминалРежиссер: Дэниэл ДзириллиАктеры: Стивен Сигал, Майкл Джей Уайт, Пим Бубеар, Дэймон Уитакер, Джон Ли, Рон Смуренбург, Байрон Гибсон, Сахайак Бунсанакит, Натали Лоренс, Оуэн О’Брайен, Дин Александру, Брайан БирнПеревод: Многоголосый закадровый, любительский (Parovoz Production)Субтитры: АнглийскиеПродолжительность: 01:31:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FD26691C14729FBD4E7B28FB493FB8204DD2B9D4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506994   (799077) от 02.11.2021
+
+WonderFox HD Video Converter Factory Pro 24.2 RePack (& Portable) by elchupacabra [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797491.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799077.jpg" />
 </div>
 
 
 ###  Подробнее
 
-FreeFileSync - это утилита, которая была разработана для синхронизации файлов в указанных пользователем каталогах. Реализовано сравнение файлов не только по размеру и дате, но и по содержимому (побайтовое сравнение). Отличительной чертой приложения следует считать простой и понятный графический интерфейс. К синхронизируемым файлам могут применены фильтры, с помощью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+HD Video Converter Factory Pro - удобный конвертер всех наиболее популярных HD форматов видео (M2TS, MKV, AVCHD, HDTV BDAV и MPEG-TS). Кроме того имеется возможность преобразования видео в форматы, оптимизированные для воспроизведения на различных портативных устройствах, как например iPad, iPhone, iPod, Apple TV, BlackBerry, Sumsung, Nexus, HTC, Nokia, Microsoft (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F5B7DEC2E8F4C6FFC5CFA7E25E8DD65027693291
+magnet:?xt=urn:btih:92704CA661207A005FEB28E39A8D8A2387EC04D7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -635,28 +514,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199846   (797490) от 18.01.2018
+###  Публикация: 1121376   (799076) от 04.04.2017
 
-VA - Cosmotronica & Space Disco Vol.6 (2018) [MP3|320 Kbps] <Synthwave, Ambient, House>
+Великая стена / The Great Wall (2016) WEBRip [H.264] [MP4|1024x428] [AD]
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Мультимедиа и прочее
+>>Мобильное Видео
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797490.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799076.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.  Earmake  -  In Your Dreams  3:15
-02.  Liquid Crystal  -  Floating With Treasures  5:04
-03.  York & DreamMan  -  Moonrise On The Beach (Vokoss Ambient Trance Symphony)  6:46
-04.  Playme  -  The Silver Tree (Bart Panco Remix)  4:58(   Читать дальше...   )Жанр: Synthwave, Outrun, Retrowave, Chillout, Ambient, HouseПродолжительность: 05:05:26
+Великую стену воздвигли, чтобы оградить Поднебесную от любых угроз, но с таким врагом не сталкивались даже самые отважные ее защитники. Если вторжение не остановить — мир будет уничтожен.Производство: США, Китай, Гонконг, Австралия, Канада, Legendary East, Atlas Entertainment, China Film GroupЖанр: фэнтези, боевик, триллер, приключенияРежиссер: Чжан ИмоуАктеры: Мэтт Дэймон, Цзин Тянь, Уиллем Дефо, Энди Лау, Педро Паскаль, Чжан Ханьюй, Лухан, Кенни Линь, Эдди Пэн, Хуан СюаньПеревод: Многоголосый закадровый (Синема УС)Субтитры: Корейские (вшитие неотключаемые)Продолжительность: 01:43:50Реклама: Присутствуют аудио и видео вставки рекламы.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:CD166D2BFFA7F74D3C79840001A30349F45367A0
+magnet:?xt=urn:btih:1DED68E65893462DEEE4BD62EED6B300BD8A7C73
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -664,25 +540,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199950   (797489) от 18.01.2018
+###  Публикация: 1506982   (799075) от 02.11.2021
 
-Иван Александрович Ильин | Аксиомы религиозного опыта (2002) [PDF, DJVU]
+Первый человек / Le premier homme (2011) BDRip [H.264] [VO]
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Зарубежное кино
+>>Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797489.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799075.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Данное издание предлагает вниманию читателей самое знаменитое произведение известного русского религиозного мыслителя и обществен­ного деятеля И.А. Ильина (1882—1954) — «Аксиомы религиозного опыта». Эта книга, вышедшая в Париже в 1953 г., даже в ряду многочисленных трактатов по философии религии привлекает внимание своей неординар­ностью и самобытностью. Главное (   Читать дальше...   )Жанр: ФилософияФормат: PDF, DJVU
+Фильм по мотивам неоконченного автобиографического одноимённого романа Альбера Камю. Летом 1957 года известный писатель Жак Кормери возвращается в Алжир, где прошло его детство, пытаясь примирить в душе прошлое и настоящее как в истории своей собственной семьи, так и в истории страны...Производство: Франция, Италия, Алжир, Canal+ (fr), Cattleya, Cofinova 6, Cofinova 7, Eurimages, France 3 CinémaЖанр: драмаРежиссер: Джанни АмелиоАктеры: Мишель Кремадес, Жак Гамблен, Mickaël Batret, Jean Benoit Souilh, Николас Лаблин, Florent Chesné, Франк Меркадаль, Александр Мишель, Бенуа Бертран де Баланда, Катрин СолаПеревод: любительские одноголосые (Вячеслав Прошин, Денис Строев)Субтитры: русские (Д. Крейслер, Dimon и Thoma), английскиеПродолжительность: 01:46:21
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:496B97CE699DB5FDC46C42519898B6626477C578
+magnet:?xt=urn:btih:7422D685B28343F09BB26750FAF89AB00ED61646
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -690,25 +566,132 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1199949   (797488) от 18.01.2018
+###  Публикация: 1122145   (799074) от 04.04.2017
 
-Газета | Тайны ХХ века №3 (январь 2018) [PDF]
+The Unseen Fears: Body Thief / Невидимые страхи: Свежеватель (2017) [Ru] (1.0) Unofficial [Collector's Edition / Коллекционное издание]
 
->>Журналы
->>Другие журналы
+>>Win Игры
+>>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797488.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799074.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Издание - "Тайны ХХ века", рассказывающее о загадочных силах природы, истории великих изобретений и жизни необыкновенных людей. Поиски сокровищ, исчезнувших без следа кораблей и самолетов, интервью с экстрасенсами и рассказы очевидцев о встречах с внеземным разумом. Каждую неделю на страницах журнала вас ждут новые загадки мироздания и новые потрясающие (   Читать дальше...   )Жанр: Популярный журналФормат: PDF
+Старый друг просит вашей помощи в расследовании серии недавних убийств. У последней жертвы не хватало всего лишь одной детали - собственной кожи! Как только вы начинаете заниматься расследованиями, вы попадаете в мир темной магии и таинственных существ. Есть ли у вас все необходимое, чтобы найти убийцу вовремя, или вы станете его следующей жертвой? Выясните это прямо (   Читать дальше...   )Тип издания: UnofficialРазработчик: GrandMA StudiosЖанр: Hidden ObjectЯзык озвучки: АнглийскийЯзык субтитров: РусскийЯзык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4273BFACED2C39F7633DAF8D4EDFE3B270AF5E45
+magnet:?xt=urn:btih:FF0FF3A5DE7D1F29F772B6E67ABCB5444414E18D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506911   (799073) от 02.11.2021
+
+Prizmo 4 Pro Scanning + OCR v4.2 [Multi/Ru]
+
+>>Программы для macOS
+>>Офис, Интернет для macOS
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799073.jpg" />
+</div>
+
+
+###  Подробнее
+
+Prizmo 4 - это современное приложение для сканирования, поддерживающее оптическое распознавание символов (OCR) с широкими возможностями редактирования, проговаривание текста, а также синхронизацию с iCloud.
+Неважно, каким устройством Вы пользуетесь - Prizmo отсканирует и распознает любой документ. Он работает с Вашими iPhone и iPad, цифровыми камерами, документами, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 03.06.2021Разработчик: Creaceed SPRLПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Русский, Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A50F764EB969B302D58CE5B16407A5BBD1675C79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122178   (799072) от 04.04.2017
+
+Борис Батыршин | Попутчики (2017) [FB2]
+
+>>Художественная литература
+>>Фантастика, Фэнтези
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799072.jpg" />
+</div>
+
+
+###  Подробнее
+
+Первый роман цикла «Крымская война».
+
+Министерство обороны Российской Федерации проводит масштабный эксперимент по изменению прошлого. В 1854 го­ду на Крымскую войну должен отправиться батальон морпехов на большом десантном корабле. Но что, если что-то пойдет не так и в воронку времени угодят попутчики – гидрокрейсер «Алмаз» и миноносец «Заветный» из 1916 года? Англо-франко-турецкое (   Читать дальше...   )Жанр: Боевая фантастика, ПопаданцыФормат: FB2
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:95C6BDF7A292995ADFA97B404CAD936EA4C355A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1506906   (799071) от 02.11.2021
+
+Фантоцци / Fantozzi (1975) BDRip [H.264/720p] [Unrated Cut]
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799071.jpg" />
+</div>
+
+
+###  Подробнее
+
+Бухгалтер средних лет Уго Фантоцци живёт в бедно обставленной квартире с нелюбимой женой и уродливой дочерью. Его жизнь полна неудач и разочарований, несчастья сыплются на него, как из ведра. Однако Фантоцци не лишён самоиронии и чувства собственного достоинства... Экранизация книг Паоло Виладжио «Фантоцци» и «Вторая трагическая книга Фантоцци». Первая часть декалогии.Производство: Италия / Rizzoli Film S.p.a.Жанр: комедияРежиссер: Лучиано СалчеАктеры: Паоло Вилладжо, Анна Маццамауро, Жижи Редер, Джузеппе Анатрелли, Умберто Д’Орси, Лью Босисио, Дино Эмануэлли, Плинио Фернандо, Паоло Паолони, Елена ТриколиПеревод: профессиональные многоголосые (ОРТ и Мастер Тейп), авторские (Николай Золотухин (А. Яблоков) и Сергей Козлов)Субтитры: итальянские (SDH), английские (SDH)Продолжительность: 01:48:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:164E95F6B1B9838B5C2E964A4A26A6756FE27414
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1122029   (799070) от 04.04.2017
+
+Новогодний корпоратив / Office Christmas Party (2016) Blu-ray [H.264/1080p]
+
+>>Зарубежное кино
+>>Зарубежные Фильмы (HD, FHD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799070.jpg" />
+</div>
+
+
+###  Подробнее
+
+Когда сестра героя, вице-президент компании, угрожает брату закрыть его филиал, он устраивает грандиозную рождественскую вечеринку, чтобы заполучить большого клиента и спасти фирму. Однако праздник выходит из-под контроля.Производство: США / Bluegrass Films, DreamWorks SKG, FROSCH Entertainment, Paramount Pictures, Reliance EntertainmentЖанр: КомедияРежиссер: Джош Гордон, Уилл СпекАктеры: Джейсон Бейтман, Оливия Манн, ТиДжей Миллер, Дженнифер Энистон, Кейт МакКиннон, Кортни Б. Вэнс, Джиллиан Белл, Роб Кордри, Ванесса Байер, Рэндолл ПаркПеревод: Дублированный (BD EUR)Субтитры: Русские, Английские, Китайские, Итальянские, Японские, Малайские, ТайскиеПродолжительность: 01:45:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:40AFD8DC10D70B553E1831B0BFC4B8F062172F38
 ```
 
 https://mybot314.ru/tekegram_catalog/

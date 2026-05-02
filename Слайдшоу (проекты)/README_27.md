@@ -1,3 +1,29 @@
+###  Публикация: 1119373   (806947) от 28.03.2017
+
+Проекты - Motion Array - Elegant Glamour [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_806947.jpg" />
+</div>
+
+
+###  Подробнее
+
+Elegant Glamour - это красивый шаблон, который идеально подойдет для вашего следующего профессионального и потрясающего видео. Проект имеет 7 заполнителей фото/видео и 10 редактируемых заполнителей для текста. Просто перетащите ваши медиа, измените текст и приступайте к визуализации.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:32A6369D2FEDE88A1C77DD12EBA7F8FFA064A894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119517   (806839) от 28.03.2017
 
 Проекты - VideoHive - Modern Opener PRX [AEP]
@@ -647,32 +673,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AA1F1C5011C7DFE7C2776608B7F9951CB7B01EBF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1507241   (798511) от 03.11.2021
-
-Проекты - ProShow Producer - Impossible Opener [PSH, PXT]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_798511.jpg" />
-</div>
-
-
-###  Подробнее
-
-"Огненное" слайдшоу. Просто вставьте фотографии и подпишите их... Дерзайте!Формат: PSH, PXT
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F87E3E8803B3E3F5E48A2D7A8E16E4EDC20F59F3
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1121871   (799691) от 03.04.2017
+
+The Buddy DeFranco (De Franco) Quartet - Jazz Tones (1954) Remaster, 2012, Universal [FLAC|Lossless|tracks + .cue] <Bop, Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799691.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.When Your Lover Has Gone [06:33]
+ 02.The Things We Did Last Summer [08:04]
+ 03.Jack The Field Stalker [03:08]
+ 04.If I Should Lose You [04:25](   Читать дальше...   )Жанр: Bop, Mainstream JazzПродолжительность: 00:39:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:97C30F5F598118DAA203F53BC01BFDE6818211AF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1121843   (799689) от 03.04.2017
+
+Art Pepper & Ted Brown - The Complete Free Wheeling Sessions (1956) 2006, Lone Hill Jazz [FLAC|Lossless|tracks + .cue] <Cool, West Coast Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_799689.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Aretha [05:03]
+ 02.Long Gone [04:54]
+ 03.Once We Were Young [03:52]
+ 04.Foolin Myself [04:37](   Читать дальше...   )Жанр: Cool, West Coast JazzПродолжительность: 01:17:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2C9175CADB4718623E4D60CE8691D7DFF3DDA5E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1121758   (799685) от 03.04.2017
 
 Mary Lou Williams - Plays In London (1953, 1954) 2016, Sony Music [FLAC|Lossless|image + .cue] <Bop, Piano Jazz>
@@ -687,64 +745,6 @@ Cymande - Arrival (2009) [FLAC|Lossless|tracks + .cue] <Funk>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7E9EAFD12EFBC326732FE7844CD73F8ED3815DAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1011029   (797702) от 26.04.2016
-
-George Adams & Don Pullen Quartet - Decisions (1984) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Avant-Garde Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Trees And Grass And Thangs [09:08]
- 02.His Eye Is On The Sparrow [04:29]
- 03.Message Urgent [08:17]
- 04.Decisions [07:12](   Читать дальше...   )Жанр: Avant-Garde Jazz, Post-BopПродолжительность: 00:44:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2EB0ED782B234B315E2F5AD1CBA5D8727EB07E32
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1010980   (797700) от 26.04.2016
-
-The Hal Galper Quintet Live - Redux '78, 1991, Concord Jazz(1991) [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_797700.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Introduction/Triple Play [12:28]
- 02.My Man's Gone Now [05:24]
- 03.Another Jones [08:54]
- 04.I'll Never Stop Loving You [09:44](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:07:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65B3450DA001543E0049DB85CBDC7E28435CA559
 ```
 
 https://mybot314.ru/tekegram_catalog/

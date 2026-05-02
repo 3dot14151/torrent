@@ -1,3 +1,55 @@
+###  Публикация: 974722   (975582) от 12.01.2016
+
+Wise Disk Cleaner 8.91.626 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975582.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрая, удобная и простая в использовании утилита для очистки жестких дисков от ненужных, временных и неиспользуемых файлов. Определяет более 50 типов мусорных файлов, а также можно самостоятельно добавлять новые форматы. После сканирования системы на наличие нежелательных файлов можно просмотреть подробную информацию о каждом и самостоятельно решить, что удалять.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:918953FE775F67EB3A439FA0FF46FDFCA2686F98
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 974564   (975573) от 12.01.2016
+
+Глюконавты / Tripped (2015) HDTV [H.264/720p-LQ] (сезон 1, серии 1-4 из 4) AlexFilm
+
+>>Архив торрентов
+>>Архив Сериалов и Архив Старого многосерийного кино до 90-х
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975573.jpg" />
+</div>
+
+
+###  Подробнее
+
+Твой друг детства неожиданно решает остепениться и завязать с травкой, выпивкой и прочим непотребством. Он женится, а ты даже не его шафер на свадьбе. Лучшее, что ты можешь придумать, это с горя расслабиться дома на диванчике с травкой и грибочками, но ни с того ни с сего из воздуха в твоей квартире возникает другой Дэнни, в доспехах и с мечом. А потом появляется (   Читать дальше...   )Производство: Великобритания / Mammoth ScreenЖанр: комедияРежиссер: Джейми Магнус СтоунАктеры: Джорджина Кэмпбелл, Джэми Деметриу, Блейк Харрисон, Джордж Уэбстер, Тони Гарднер, Филлип Риз, Доминик Грант, Ли Николас Харрис, Дэйв Мунфилд и лр.Перевод: Многоголосый закадровый, профессиональный - AlexFilmПродолжительность: ~00:37:00 серия
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E833C6320C2BB10FBCF9D4D7C3C4863BE912CCE5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 974767   (975568) от 12.01.2016
 
 Actual Window Manager 8.6.2 [Multi/Ru]
@@ -629,67 +681,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5A168E772EB5D734E6445AC6B842319A28B11481
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616852   (975363) от 10.02.2013
-
-С. Жарков | Дерево жизни Рита V2 [2013] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975363.jpg" />
-</div>
-
-
-###  Подробнее
-
-РИТА - это ретроспективно-интегральная терапия. Она объединяет целительство рук с игрой на приставке. Рита развивает скорость реакции и способствует занятиям бодибилдингом.Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9CA283FE4516AD2ED397F0771835CCE4C53DC375
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 616206   (975362) от 10.02.2013
-
-Butterfly - Favorite Colors Episode 070 (09.02.2013) [MP3|320 кб/с]<Progressive Trance, Melodic Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_975362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SaffronKeira -  Endless Agony of Being Sick (Intro Original Mix)
-02. Arisen Flame -  Chords (Original Mix)
-03. Denis Kenzo feat. Sveta B. -  Lullaby Lonely (Progressive Mix)
-04. Mimax -  Global Event (Original Mix)
-05. illitheas -  Forgiven (Original Mix)
-06. Leolife -  Pegasus (Erik Iker Remix)
-07. Richard Sander -  Divorced People (ReOrder Remix)
-08. EDU -  Red Planet (Original Mix)
-09. Ciro Visone -  A Better Future For Us (Original Mix)
-10. Alexander One & Davide Battista pres. The Cosmic Doors -  The Cosmic Doors (Original Mix)(   Читать дальше...   )Жанр: Progressive Trance, Melodic TranceПродолжительность: 01:00:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC0FE726FB81D06F37C50E435B832DCCD2110852
 ```
 
 https://mybot314.ru/tekegram_catalog/

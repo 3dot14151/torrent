@@ -1,3 +1,58 @@
+###  Публикация: 1217172   (744356) от 03.04.2018
+
+Григорий Лепс - Лучшее от ALEXnROCK (2018) [MP3|320 Kbps] <Rock, Shanson>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744356.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли лучшие песни самого мощного отечественного вокалиста. Весь материал взят с оригинальных CD альбомов. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK001 Люди (Полный вперед!)
+002 Парус
+003 Бессонница
+004 Водопад(   Читать дальше...   )Жанр: Rock, ShansonПродолжительность: 05:05:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2A65DDD83FA7BD3C24B71AAA3E603F03D7FB0E25
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 783349   (744054) от 05.05.2014
+
+VA - Alterportal HITS 14 Vol. 68  - April (2014) [MP3|128-320 кб/с] <Alternative, Metal, Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744054.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Alternative, Metal, RockПродолжительность: 02:06:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC102DE24102E57BEE9E52964EAE243ECD76DCBB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1282694   (743389) от 13.02.2019
 
 Pink Floyd - Pink Floyd Deep Cuts (2019) [MP3|320 Kbps] <Progressive & Art-Rock>
@@ -691,64 +746,6 @@ Second Breath - Unknown Bands Vol.9 (2016) [MP3|123-320 кб/с] <Alt.Metal / Al
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:41585D6E90AC08147DE4FAF33789097CCA29E60E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1023584   (724253) от 05.06.2016
-
-VA - Alterportal HITS 16 Vol. 93 - May (2016) [MP3|128-292 кб/с] <Alternative, Metal, Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724253.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Secret Circus - No Cigar
-02. 3 Pill Morning - Electric Chair
-03. Phrenia - Moonshine
-04. The Hypothesis - Eye for an Eye(   Читать дальше...   )Жанр: Alternative, Metal, RockПродолжительность: 01:43:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1624AC1BB150FAB6480071A627B2FAF2400DBA5D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1218433   (723223) от 09.04.2018
-
-VA - Metal Tuning Fork (2018) [MP3|320 Kbps] <Metal, Hard Rock>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_723223.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Duskmourn - Ancient Whispers
-002. Slow - Aurore
-003. Cripper - Pressure
-004. All Out War - Burn These Enemies(   Читать дальше...   )Жанр: Metal, Hard RockПродолжительность: 08:01:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1AE856014DE4119B70661B2114183C107F136140
 ```
 
 https://mybot314.ru/tekegram_catalog/

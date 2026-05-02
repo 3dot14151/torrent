@@ -1,3 +1,119 @@
+###  Публикация: 1336691   (278702) от 07.11.2019
+
+АнимациЯ - ВО! (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278702.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Красиво
+2. Белая берёза
+3. Голая зима
+4. Утопаем(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ADBDB12A5FF385A3B79CA336B148BC87B497562D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336591   (278687) от 07.11.2019
+
+Гарик Сукачёв - 246 (2019) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_278687.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. 246
+02. Маленькая девочка
+03. Танго Gitanes
+04. Научи меня жить(   Читать дальше...   )Жанр: RockПродолжительность: 00:42:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D3E51863E214AF2254BFB9F71F2406F09BCE0BF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1336852   (277332) от 08.11.2019
+
+Чёрный обелиск - DISCO 2020 (2019) [MP3|320 Kbps] <Heavy Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277332.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Танцы
+2. Так и живём
+3. Параллельно
+4. Карусель(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:32:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6BDBE2EC35398522E078F559FFCF9E585135927B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1187959   (277064) от 30.11.2017
+
+Грай - Ashes (2017) [MP3|320 Kbps] <Folk Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_277064.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Haze
+02. Song of Dead Water
+03. A Water Well
+04. Darkness with Me(   Читать дальше...   )Жанр: Folk MetalПродолжительность: 00:45:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:993C6418314EC69BCB98556A8CC61B306027E3CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1265191   (276596) от 26.11.2018
 
 para bellvm - Почти оружие (2018) [MP3|320 Kbps] <Gothic Rock, Indie Rock>
@@ -626,121 +742,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC980491E140CD465C79A7BED0AAE6C67B94FF9A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1266755   (269149) от 03.12.2018
-
-Конец фильма - Город Грехов (2018) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_269149.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. В эту ночь
-2. Зомбилэнд
-3. Город Грехов
-4. Любовь(   Читать дальше...   )Жанр: RockПродолжительность: 00:35:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8A5EABE812B99012E589BFAEE1C8953B7A8F9121
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190069   (268655) от 08.12.2017
-
-Сектор Газовой Атаки - Округ - Не Колумбия (2017) [MP3|320 Kbps] <Punk Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_268655.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мы идём
-02. Ночь
-03. Пожалей
-04. Камасутра(   Читать дальше...   )Жанр: Punk RockПродолжительность: 00:38:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BF32B35C97DCE8967C1C668D126996A3CBD157A6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190287   (267958) от 09.12.2017
-
-Лампасы - Тяжесть и радость (2017) [MP3|320 Kbps] <Ska Punk, Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267958.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Песня протеста
-2. К плечу плечом
-3. Общий враг
-4. Посвящение другу(   Читать дальше...   )Жанр: Ska Punk, RockПродолжительность: 00:24:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC4496BDF9F70A198569289BF5242A3BD535A008
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1190290   (267862) от 09.12.2017
-
-Сергей Бобунец - Пока танцуют ангелы (2017) EP [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_267862.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Пока танцуют ангелы
-2. Глубина
-3. УлыбайсяЖанр: RockПродолжительность: 00:11:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CCFCA3C615970461896C3F6ED04A54F7AEE58832
 ```
 
 https://mybot314.ru/tekegram_catalog/

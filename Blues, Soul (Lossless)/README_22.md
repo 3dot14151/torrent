@@ -1,3 +1,143 @@
+###  Публикация: 602886   (997282) от 14.01.2013
+
+Eddie Turner - Miracles & Demons (2010) [APE|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_997282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Booty Bumpin'
+02. I'm a Good Man
+03. Say
+04. Because of You
+05. Ride a Painted Pony
+06. Miracles & Demons, Pt. 1
+07. I Remember
+08. Blues Fall Down Like Rain
+09. Monkey See, Monkey Do
+10. In The Morning(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:01
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605156   (995924) от 19.01.2013
+
+Eddie and Vaan Shaw - Naked (2009) [FLAC|Lossless]<Blues,Acoustic>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995924.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Me And My Boy
+02. Lick Skillet
+03. Greedy Man
+04. Voices Crying
+05. Mississippi Sax
+06. Greenville Bound
+07. My Friend Roscoe
+08. Black Eyed Peas
+09. Pickin' Cotton
+10. Motel 6(   Читать дальше...   )Жанр: Blues, AcousticПродолжительность: 00:51:35
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605174   (995922) от 19.01.2013
+
+Elliott and the Untouchables - Danger Zone (1997) [FLAC|Lossless]<Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995922.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Little Woman
+ 02. Ain't No Big Thing
+ 03. More Than That
+ 04. Empty Heart
+ 05. Where Were You
+ 06. Check Out Time
+ 07. Crazy 'Bout You
+ 08. Why Baby Why
+ 09.  J.T.'s Groove
+ 10. Danger Zone(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:56
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 605163   (995914) от 19.01.2013
+
+Eddie Baytos & The Nervis Bros. - Take Some Mambo Time (1991) [FLAC|Lossless]<Blues-Zydeco>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_995914.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Blind Suspicion
+ 02. Painted Dream
+ 03. Don't Beat Yourself Up
+ 04. Come Together
+ 05. Do Sumpin'
+ 06. Lonely Man
+ 07. Post Man
+ 08. I Ain't Drunk
+ 09. Take Some Mambo Time
+ 10. Loiusanne(   Читать дальше...   )Жанр: Blues-ZydecoПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 605624   (995642) от 20.01.2013
 
 Endless Boogie - Full House Head (2010) [FLAC|Lossless]<Blues-Rock, Psychedelic>
@@ -696,122 +836,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:769228292D76E2B40181633A012C9D0F8D4DE74D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 976988   (967791) от 19.01.2016
-
-Ray Charles - Original Motion Picture Soundtrack (2004) Rhino[FLAC|tracks+.cue] <Blues, R&B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_967791.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Mess Around [02:42]
- 02.I've Got a Woman [02:53]
- 03.Hallelujah I Love Her So (live) [03:06]
- 04.Drown in My Own Tears [03:22](   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 00:54:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C95722C6E07DFBF9E398C3420083DABD1789092E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 977585   (965682) от 21.01.2016
-
-Ray Charles - The Birth Of Soul (1952-1959) 2CD, 2004, Atlantic Records[FLAC|tracks+.cue] <Blues, R&B, Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_965682.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.The Sun's Gonna Shine Again [02:40]
-02.Roll With My Baby [02:38]
-03.The Midnight Hour [03:02](   Читать дальше...   )Жанр: Blues, R&B, SoulПродолжительность: 02:31:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7405F5CD55FE6D1A249623E4933A50D3955C0A1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1360522   (960931) от 15.02.2020
-
-Tino Gonzales - Nuke The World (2003) [FLAC|Lossless|image + .cue] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_960931.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Heart Full Of Sorrow
-02. You're Not The One
-03. Nuke The World
-04. How Do You Play The Blues(   Читать дальше...   )Жанр: BluesПродолжительность: 00:54:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:ED0F2F97B3C378E4904C02320A004FA1F2A175FC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 856230   (958982) от 04.01.2015
-
-Vargas Blues Band - From The Dark (2014) [FLAC|Lossless]<Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_958982.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bye Bye Zombie
-02. Let It Go
-03. Moon Light Blues
-04. Run Away(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:50:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBF054290F4242B5AC880F5B223ED623823AD64E
 ```
 
 https://mybot314.ru/tekegram_catalog/

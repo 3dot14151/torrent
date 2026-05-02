@@ -1,3 +1,30 @@
+###  Публикация: 1075938   (315678) от 24.11.2016
+
+Arturo Benedetti Michelangeli - Ludwig van Beethoven - Konzert fur Klavier und Orchester Nr.1 & 3 (1980 - 1987) 1997 Deutshe Grammophon [FLAC|Lossless|image + .cue] <Classical, Piano>
+
+>>Классика
+>>Фортепиано (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_315678.jpg" />
+</div>
+
+
+###  Подробнее
+
+Юношески лучезарный, полный энергичного движения Первый концерт C-dur, Op. 15 (1796) привлекает поэтическим преломлением народнопесенных жанров и интонаций. В Третьем концерте c-moll (1800) обращает на себя внимание трагический пафос первой части.
+   В концертах Бетховена чрезвычайно велика роль развитых виртуозных солирующих инструментов. Они придают музыке блеск, (   Читать дальше...   )Жанр: Classical, PianoПродолжительность: 01:16:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:088E8EC80CE2EB183AF7D04ED7E6F439DD7CCEDB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1260080   (313978) от 06.11.2018
 
 VA - Classical Romance, Vol. 2 (Famous Classical Music) (2018) [FLAC|Lossless|WEB-DL|tracks] <Classical, Instrumental, Easy Listening>
@@ -741,35 +768,6 @@ Symphony No. 1 in C minor, Op. 68
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:94AF953C4196504BF52849E284470470B991EEA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 961019   (303231) от 30.11.2015
-
-Rachmaninov - Complete Works for Piano and Orchestra (Rafael Orozco & Royal Philharmonic Orchestra) (2CDs) (1993) [FLAC|image +.cue]<Classical, Romantic Period, Post-Romantic, Concerto, Vari ...
-
->>Классика
->>Концерты (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_303231.jpg" />
-</div>
-
-
-###  Подробнее
-
-Piano Concerto No. 1 in F sharp minor, Op. 1
-01. Vivace - Moderato (12:44)
-02. Andante (06:29)
-03. Allegro vivace (07:59)(   Читать дальше...   )Жанр: Classical, Romantic Period, Post-Romantic, Concerto, Variations, RhapsodyПродолжительность: 02:29:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99DDB8FF3194D95479E7463FC17C32B92745E68D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,61 @@
+###  Публикация: 1048947   (544974) от 04.09.2016
+
+VA - Open Melody Highest (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic, Emotional>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544974.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dmitry Strochenko  -  Maybe (Original Mix)  6:14
+02. Craig Johnstone  -  Nano  7:19
+03. Guy Alexander  -  Poppy (Original Mix)  6:42
+04. Bjorn Akesson  -  Desert Style (Radio Edit)  3:52(   Читать дальше...   )Жанр: Trance, Melodic, Harmonic, EmotionalПродолжительность: 02:41:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B025CBAF3A4CDB23E71309E7AB930C4646B01E67
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049089   (544968) от 04.09.2016
+
+VA - Mainstream Sounds Trance Spirit (2016) [MP3|320 Kbps] <Trance, Melodic, Harmonic, Emotional>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544968.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Arcania  -  This Means War  6:24
+02. Super8 & Tab Ft. Julie Thompson  -  Patience (Extended Mix)  6:12
+03. R3dub And Carlos De La Garza  -  Outsider (Original Mix)  8:14
+04. UDM  -  Tornado (Original Mix)  6:37(   Читать дальше...   )Жанр: Trance, Melodic, Harmonic, EmotionalПродолжительность: 08:28:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9DBD86B37F5D40BBD87ACBF828E6897AFB28E70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1310864   (544583) от 27.06.2019
 
 VA - Life Beyond: Extended Techno Mix (2019) [MP3|320 Kbps] <Techno>
@@ -687,68 +745,6 @@ VA - Beatport Top 100 EDM Songs & DJ Tracks August (2016) [MP3|320 Kbps] <House,
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:45B95B8E438F7ABFBD602B245EBB51A244FB6043
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1311059   (538110) от 01.07.2019
-
-Infected Mushroom - Artificial Visualisation (2004) Unreleased [FLAC|Lossless|tracks] <Psy-Trance, Dubstep, Electro House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538110.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ministry of Angels (feat Yahel)
-02.Expose (feat Space Cat)
-03.Blue Rythmic Night (feat I.Zen)
-04.Zahadum(   Читать дальше...   )Жанр: Psy-Trance, Dubstep, Electro HouseПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D744BF81AC540889672EB838C702F08BE6EECE82
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 532421   (538068) от 07.08.2012
-
-VA - Chill & Dub (vol.8) (2012) [MP3|320 кб/с]<Chillout/DubStep>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_538068.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Adventure Club - Wait (Kannamix Remix)
-02.Aly & Fila feat. Jwaydan - Together We Control The SunLight
-03.Ayo - Better Days (Yashar Gasanov dubstep remix)
-04.Bingo Players - Don't Blame The Party (Culture Code Remix)
-05.Drumsound & Bassline Smith - Through The Night (Horx & P3000 Remix)
-06.Funny Kid Project - When You're Away
-07.Havana Brown - One Way Trip
-08.Helios - In Heaven (Shem Remix)Жанр: Chillout/DubStepПродолжительность: 01:44:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBEEEDC2E3887CD7FC919ECC082EACE1E2A99171
 ```
 
 https://mybot314.ru/tekegram_catalog/

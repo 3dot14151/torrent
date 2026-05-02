@@ -1,3 +1,61 @@
+###  Публикация: 1285108   (724472) от 24.02.2019
+
+Dexter Gordon - The Squirrel (1967) 2001, Blue Note [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724472.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Introduction [0:11]
+02. The Squirrel [15:13]
+03. Introduction [0:20]
+04. Cheese Cake [20:23](   Читать дальше...   )Жанр: Hard Bop, Post-BopПродолжительность: 01:06:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:714D358562FBCEC5EDC5F90D1DEE48333E815580
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531139   (724427) от 14.02.2022
+
+Louis Jordan And His Tympany Five - 1946 - 1947 (1998) Classics [FLAC|Lossless|tracks + .cue] <Swing, Jump Blues>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_724427.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Reet Petite And Gone [2:45]
+02. Sure Had A Wonderful Time [3:01]
+03. I Know What You're Puttin' Down [3:08]
+04. Open The Door Richard! [2:33](   Читать дальше...   )Жанр: Swing, Jump BluesПродолжительность: 01:03:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AA67951BFC56E2AA0F0C77ABF2A6D63B29C79AF7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1023439   (724416) от 05.06.2016
 
 Andy Williams - The Best Of (1992) [APE|Lossless|image + .cue] <Jazz, Vocal>
@@ -687,64 +745,6 @@ Victor Lewis - Eeeyyess! (1997) Enja Records [FLAC|Lossless|tracks + .cue] <Post
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:97F899503E188C9781FBE6A38F499D93F003B287
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285519   (721195) от 26.02.2019
-
-Humphrey Lyttelton - Classic Years (2005) Delta Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721195.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Georgia on My Mind [3:03]
-02. Travellin' Blues [2:59]
-03. Wolverine Blues [3:05]
-04. Blues for an Unknown Gypsy [3:11](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:18:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A2D523CC12752B675F8256FC221791ED0A4B8E84
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1531633   (720833) от 16.02.2022
-
-Johnny Hodges And His Orchestra - Perdido & Creamy (1955) 2010, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720833.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rose Room [6:52]
-02. Blues For Basie [6:22]
-03. Mood Indigo [6:22]
-04. Squatty Roo [6:52](   Читать дальше...   )Жанр: SwingПродолжительность: 01:19:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CBD4FC954F798BA6370AA3D2086C7336F7A0434F
 ```
 
 https://mybot314.ru/tekegram_catalog/

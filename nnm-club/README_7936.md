@@ -1,22 +1,25 @@
-###  Публикация: 1396512   (746959) от 15.07.2020
+###  Публикация: 1281751   (750009) от 09.02.2019
 
-Путешествие по британским каналам (Эр Калдер - Трент и Мерси) / Britain's Best Canals With John Sergeant (2014) HDTVRip [H.264/720p-LQ]
+John Diva & The Rockets Of Love - Mama Said Rock Is Dead (2019) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
 
->>нет
->>нет
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_746959.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750009.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом выпуске гид Джон приглашает посетить пивоваренную столицу Британии - Бертон Абен Тренд, путешествие начнётся на реке Хамбер, продолжится на реке Аус и завершится в городе ЛидсПроизводство: Великобритания, Alaska TVЖанр: Документальный, познавательный, путешествияРежиссер: Клайв МалтбиПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:22
+[3:31] 1 - Whiplash
+[3:48] 2 - Lolita
+[4:02] 3 - Rock'n'roll Heaven
+[3:58] 4 - Wild Life(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:46:43
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:ED3150175A0BCDE53AF141FA67FFA88288363E30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,28 +27,140 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020023   (746958) от 25.05.2016
+###  Публикация: 998287   (750008) от 09.02.2019
 
-Футбол. Чемпионат России 2015-2016. Переходные матчи. Первый матч. Кубань - Томь (24.05.2016) HDTVRip [H.264/720p-LQ]
+Solar Bears - Discography 8 Releases (2010-2016) Planet Mu, Sunday Best [FLAC|Lossless|tracks+.cue, tracks] <IDM, Downtempo, Electro, Ambient>
+
+>>Electronic
+>>IDM (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Separate From The Arc (Andrew Weatherall Mix 1) (04:45)
+ 02. Separate From The Arc (Andrew Weatherall Mix 2) (05:42)
+ 03. Separate From The Arc (04:41)Тип издания: CD, WEBЖанр: IDMПродолжительность: 00:15:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ACEC855C5B0CACCC107DA17437F2E7D7B639E85D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1281729   (750007) от 09.02.2019
+
+VA - Direct Ministry Tracks Dance 2019 (2019) [MP3|320 Kbps] <Dance, Hands Up>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750007.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ynkkx Feat. Cammie Robinson - Happy Ending (Original Mix)
+02. Will G. Feat. A. Voltage - Celebrate (Radio Mix)
+03. Yuhniversia - Dark (Flemming Dalum Remix)
+04. Zhr And Batl - Rain (Original Mix)(   Читать дальше...   )Жанр: Dance, Hands UpПродолжительность: 05:56:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4BADD8CC6FF193D6DEC43E1148956B4C5E5A4E83
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523559   (750006) от 12.01.2022
+
+VA - Wunderwerk 1 Connected Souls (2021) [AAC|~336 Kbps] <Deep House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750006.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nadja Lind - Limbus (Hernan Cattaneo & Soundexile Remix 1) (7:29)
+02. Helmut Ebritsch - Das Ermoeglichen (8:00)
+03. Klartraum, Nadja Lind, Helmut Ebritsch - Manifestation (Dapayk Solo Remix) (6:34)
+04. Klartraum, Nadja Lind, Giuliano Rodrigues - I Can't Believe (Klartraum Remix) (8:02)(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 02:23:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CC8E4EB48F27D61291A4B9A37F3A219A3963B7CC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523562   (750005) от 12.01.2022
+
+VA - Melodica 2021 (2021) [AAC|~324 Kbps] <Chill Out, Downtempo, Organic House>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750005.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Andrew Holt - Marrakech Dreaming (Stephane Salerno Remix) (7:40)
+02. Marga Sol - Sacred Passage (Jack Essek Remix) (7:31)
+03. Jose Solano - Jangal (8:02)
+04. Stefan Alexander Thomas - Ozone (Majed Salih Remix) (7:34)(   Читать дальше...   )Жанр: Chill Out, Downtempo, Organic HouseПродолжительность: 02:24:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A44C2AE236F933F405E121704D2C6A023AE4405
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523581   (750004) от 12.01.2022
+
+Smooze Pro 2.0.8 [En]
 
 >>Архив торрентов
->>Архив Документалистики и TV
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746958.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750004.jpg" />
 </div>
 
 
 ###  Подробнее
 
-24 мая 2016, вторник. 19:45 МСК
-Переходные матчи. 1-й матч
-
-Стадион: Кубань (Краснодар, Россия) , вместимость: 35200(   Читать дальше...   )Телекомпания: Футбол 1 HDЖанр: СпортЯзык озвучки: Русский (Дерябкин)Продолжительность: 02:12:22
+Smooze одушевляет ваш скролл и добавляет функциональность к вашей не оригинальной Apple мыши (прокрутки колеса мыши).Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2017 Segev SherryПоддерживаемая ОС: macOS 10.15+Язык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:798300189311B761951E3A539BDC83B4A29BEA7B
+magnet:?xt=urn:btih:BFC5F164638DB8D2E9649DCCE0240CA911BEDE47
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -53,28 +168,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020194   (746957) от 25.05.2016
+###  Публикация: 1523533   (750003) от 12.01.2022
 
-Хоккей. НХЛ 2015-2016. Плей-офф. Финал - Восток. Тампа Бэй - Питтсбург. 6-й матч (24.05.2016) HDTVRip [H.264/720p-LQ]
+VA - Travel & Living Lounge, Vol. 3 (2018) [AAC|~314 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746957.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750003.jpg" />
 </div>
 
 
 ###  Подробнее
 
-25 мая 2016, среда. 03:00 МСК
-Финал - Восток. 6-й матч
-
-Стадион: Амали-Арена (Тампа, США) , 19 092 зрителя (98 % при вместимости 19 500)(   Читать дальше...   )Телекомпания: Игра HDЖанр: СпортЯзык озвучки: Русский (Владимир Гучек, Сергей Борисов)Продолжительность: 02:20:45
+01. Prana Tones - Lost in Japan (Original Mix) (4:51)
+02. Sami Sivananda - Kundalini (Original Mix) (2:45)
+03. Airstream - Electra (Religion Cut) (6:12)
+04. Island Sun - Loosing Again (Boombastic Cut) (5:43)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:22:23
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:93046DBE795842536EE00CED1268334D3213BF8C
+magnet:?xt=urn:btih:F645E2D0A46E67FE41DAB70B09CDBD0401238F02
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -82,28 +197,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019464   (746956) от 25.05.2016
+###  Публикация: 1523530   (750002) от 12.01.2022
 
-Хоккей. Чемпионат мира 2016. Финал. Финляндия - Канада (22.05.2016) HDTV [H.264/1080i] (Матч! Игра HD)
+VA - Travel & Living Lounge, Vol. 2 (2016) [AAC|~327 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746956.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750002.jpg" />
 </div>
 
 
 ###  Подробнее
 
-22 мая 2016, воскресенье. 20:45 МСК
-Финал
-
-Стадион: ВТБ Ледовый дворец (Москва, Россия) , 11 509 зрителей (92 % при вместимости 12 500)(   Читать дальше...   )Телекомпания: Матч! Игра HDЖанр: СпортПродолжительность: 02:35:17
+01. Alexander Muratovsky - External World (3:53)
+02. Cj Rcm - Serenity (5:46)
+03. Philip Aniskin - Rainy Fairy Tale (5:16)
+04. Alex Field, Natune - Wake Me (Bryan Milton Remix) (5:31)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:41:36
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:22ADD15522F0402C98B55479F3A568F8E950D2DC
+magnet:?xt=urn:btih:BDB416B58304466145BB2D6BF27EB160D9C8B2CD
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -111,269 +226,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020192   (746955) от 25.05.2016
+###  Публикация: 1523498   (750001) от 12.01.2022
 
-Место встречи. Россия-перед выбором?  (25.05.2016) SATRip
-
->>Документалистика и Телепередачи
->>Телешоу
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746955.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каждый день по будням гости в студии вместе с ведущими будут в прямом эфире разбирать наиболее актуальные темы, которые подбрасывает сама жизнь. Все, что волнует зрителей, — от сезонных эпидемий до военной операции в Сирии — может стать поводом для обсуждения.В этом выпуске: На президентском Экономическом совете выбирают, по какому пути развития пойдет Россия. Какая модель развития выгодна стране? Лучше затянуть на время пояса или запустить денежный станок? Когда Россия наконец слезет с нефтяной иглы и в каком возрасте мы будем уходить на пенсию?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:58:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9C84E298D63237C2AF775D7818B3011B7C5E2536
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1019809   (746954) от 25.05.2016
-
-А. В. Луначарский | Проблемы народного образования [Сборник статей] (1925) [PDF]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746954.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предисловие:
-
-Разбирая вместе с В. Д. Зельдовичем напечатанные в разное время статьи и стенограммы речей моих по вопросам народного образования, мы выделили некоторое количество таких, которые вряд ли можно признать устаревшими, несмотря на то, что некоторые из них относятся к первым годам революции.
-(   Читать дальше...   )Жанр: История, политология, педагогикаФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1A00A2B2A307E62702E30B238B01ECEAD30451F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1020045   (746953) от 25.05.2016
-
-Серафим Мелюхин | Можно ли предвидеть будущее? (1966) [FB2]
-
->>Разное (категория книг)
->>Религиозная литература
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746953.jpg" />
-</div>
-
-
-###  Подробнее
-
-Каким образом предшествующие явления связаны с последующими, в какой степени прошлое предопределяет будущее и можно ли на основе знания всех причинных связей в настоящем определить все возможные следствия на будущее? Все эти и аналогичные им вопросы возникали с незапамятных времен, и их обсуждение всегда стояло в центре внимания науки и практики.Жанр: Научная литература, История, ФилософияФормат: FB2
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CDCEE19DFF34A01D0EEAD4162A62A7CC89B22456
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 323530   (746938) от 15.04.2011
-
-Звездная жизнь / Зіркове життя (2010) SATRip
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746938.jpg" />
-</div>
-
-
-###  Подробнее
-
-Лучший проект о звездах в Украине. Над «Звездной жизнью» работают шесть съемочных групп. Каждый из фильмов – это месяцы творческой работы. Перед проектом стояла амбициозная цель – показать с непривычной, закрытой для широкой публики стороны, частную жизнь звёзд. А чтобы было интересней, авторы посвятили каждую передачу отдельной теме – эпатажу, стилю, вредным привычкам, «звездным» бракам и «звездным» детям.Жанр: ТелепередачаПеревод: Передача идет на русском и украинском языках.
-Голос за кадром украинский, герои говорят на русском!!!Продолжительность: Один выпуск 00:50:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2DE325C34D386004E5A638D63C2DEC4F44C934A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396534   (746932) от 15.07.2020
-
-Lane 8 - Summer 2020 Mixtape 2020-06-30  [MP3|320 Kbps] <Deep House, Progressive House>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_746932.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lane 8 & Massane - ID
-02. Jerro - ID
-03. Monkey Safari - Safe
-04. Massane - ID(   Читать дальше...   )Жанр: Deep House, Progressive HouseПродолжительность: 04:00:00
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396434   (746931) от 15.07.2020
-
-Ramen Daisuki Koizumi-san | Ms. Koizumi Loves Ramen Noodles | Коидзуми любит рамэн [2018, TV, 12 из 12] BDRip 1080p raw
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_746931.jpg" />
-</div>
-
-
-###  Подробнее
-
-Коидзуми — загадочная и привлекательная старшеклассница, но некоторые знают, что на самом деле она — мастер-едок рамэна, всегда находящаяся в поисках отличных мест, подающих рамэн. Каждый день Коидзуми выходит на охоту за заведениями, в которых подают лучший рамэн и искусно поглощает огромные миски вкусной лапши, удивляя всех вокруг.Производство: Studio Gokumi / Studio五組, AXsiZ / アクシズЖанр: комедия, повседневностьРежиссер: Сэто КэндзиПеревод: CrunchyrollЯзык озвучки: ЯпонскийСубтитры: РусскиеПродолжительность: 12 эп. по 25 мин.
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396457   (746930) от 15.07.2020
-
-Путешествие по британским каналам. Лидс, Ливерпуль и Бирмингем / Britain's Best Canals With John Sergeant (2014) HDTVRip [H.264/1080p-LQ]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746930.jpg" />
-</div>
-
-
-###  Подробнее
-
-Система каналов пересекает всю Британию, они проходят в самых живописных местах страны, путеводитель Джон приглашает в увлекательное путешествие от запада Шотландии до юго-запада АнглииПроизводство: Великобритания, Alaska TVЖанр: Документальный, познавательный, путешествияРежиссер: Клайв МалтбиПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:94D86147A52F571BD3BD2B0A16169CD4625BC1C6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396554   (746929) от 15.07.2020
-
-Греция от моря до Олимпа. Эпир / Greece From the Mountains to the Shoreline. Epirus (2016) HDTV [H.264/1080i]
-
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746929.jpg" />
-</div>
-
-
-###  Подробнее
-
-Добро пожаловать в Элладу. Мы приглашаем Вас в путешествие по местам греческой античной мифологии, корням западной истории, месту рождения культуры Запада. Культурное наследие Греции - это не только античность, но и двадцатипятивековая история перекрестка, где сошлись Восток и Запад. Главный её ресурс - жители, а также красота пейзажей, где живописные домики белеют (   Читать дальше...   )Производство: Германия, Греция, 2K Films, Taglicht Media, ZDF&ARTEЖанр: Документальный, природа, путешествияРежиссер: Йоханес БакесПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E9DCB269C1F74F6444D235CAFAED057D0FD14151
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396542   (746928) от 15.07.2020
-
-Путешествие по британским каналам (Стаффордшир-Ворчестершир-Рочдейл) / Britain's Best Canals With John Sergeant (2014) HDTVRip [H.264/720p-LQ]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_746928.jpg" />
-</div>
-
-
-###  Подробнее
-
-Водные каналы Британии протянулись на более чем 2000 тысячи миль, ведущий программы Джон приглашает посмотреть самые живописные маршруты, познакомится с интересными людьми и их историейПроизводство: Великобритания, Alaska TVЖанр: Документальный, познавательный, путешествияРежиссер: Клайв МалтбиПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:43:41
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396428   (746927) от 15.07.2020
-
-Alestorm - Curse of the Crystal Coconut (2020) [FLAC|Lossless|image + .cue] <Folk Metal, Heavy Metal>
+Converge - Axe To Fall (2009) [FLAC|Lossless|image + .cue] <Chaotic Hardcore, Metalcore>
 
 >>Rock, Alternative, Punk, Metal
 >>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746927.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_750001.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Treasure Chest Party Quest  04:18
-02. Fannybaws  04:16
-03. Chomp Chomp  03:35
-04. Tortuga  03:24(   Читать дальше...   )Жанр: Folk Metal, Heavy MetalПродолжительность: 00:44:17
+01. Dark Horse
+02. Reap What You Sow
+03. Axe To Fall
+04. Effigy(   Читать дальше...   )Жанр: Chaotic Hardcore, MetalcoreПродолжительность: 00:42:11
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:05238B9C6B6E17021EDDEF9BE91F32571D1FC0AC
+magnet:?xt=urn:btih:0F145F91D380EA2FD2682B969FBA8F2CCBA5954B
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -381,25 +255,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396588   (746926) от 15.07.2020
+###  Публикация: 1523536   (750000) от 12.01.2022
 
-Греция от моря до Олимпа. Фессалия / Greece From the Mountains to the Shoreline. Thessaly (2016) HDTV [H.264/1080i]
+VA - Travel & Living Lounge, Vol. 5 (2020) [AAC|~325 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746926.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_750000.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этом эпизоде мы отправимся из Халкиды к горе Олимп к впечатляющему плато с горными монастырями, потом вернёмся на морское побережье и далее к заливу Волос и горе Пелион.Производство: Германия, Греция, 2K Films, Taglicht Media, ZDF&ARTEЖанр: Документальный, природа, путешествияРежиссер: Йоханес БакесПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:51:36
+01. Marga Sol - I've Been Waiting (Original Mix) (5:53)
+02. Triangle Sun - Summer of Our Love (Original Mix) (4:16)
+03. The Soul Crusaders - Share My Song (4:39)
+04. Schwarz & Funk - Ease (Original Mix) (5:47)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:09:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:08CA5CA506B0DB70185767536E55E7603B2CD89B
+magnet:?xt=urn:btih:CBC5E508A02DC8931FB1719C243E18C9C2D9D600
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -407,25 +284,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396493   (746925) от 15.07.2020
+###  Публикация: 1523574   (749999) от 12.01.2022
 
-Путешествие по британским каналам (Пик Форест-Бирмингем) / Britain's Best Canals With John Sergeant (2014) DVB [H.264]
+GarageSale 8 v8.4.1 [Multi]
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746925.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749999.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Сеть каналов Великобритании - настоящее национальное достояние со своей уникальной историей. В этой познавательной программе, путеводитель Джон отправляется в увлекательное путешествие по лучшим каналам Британии, погружаясь в их прошлую и настоящую жизнь.Производство: Великобритания, Alaska TVЖанр: Документальный, познавательный, путешествияРежиссер: Клайв МалтбиПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:44:17
+Управлять своими аукционами на всемирно известной торговой площадке EBay теперь проще простого. Приложение GarageSale для Mac OS открывает пользователю доступ ко всем необходимым функциям этого популярного сайта. Теперь не нужно проходить через все утомительные процедуры на сайте, чтобы начать аукцион. Все, что вам нужно – это приобрести новую версию приложения и (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2022 iwascoding GmbHПоддерживаемая ОС: OS X 10.12 +Язык интерфейса: Английский, Немецкий, Французский и Итальянский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D8EA4E1A633611AE1E754E515C60BEBB7FEA2FA8
+magnet:?xt=urn:btih:9DE7685A33D7197E4AAA040982B98EED36F20834
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -433,28 +310,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396499   (746924) от 15.07.2020
+###  Публикация: 1523535   (749998) от 12.01.2022
 
-VA - EDM Hawaii Party (2020) [MP3|320 Kbps] <EDM, House, Tech House, Trance>
+VA - Travel & Living Lounge, Vol. 4 (2019) [AAC|~319 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746924.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749998.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Drival - Clockwise (Original Mix)
-002. Dmak - Go
-003. Der Hon - La Premiere
-004. Savant - Monster(   Читать дальше...   )Жанр: EDM, House, Tech House, TranceПродолжительность: 08:50:11
+01. Eskadet - Un Songe (Original Mix) (6:30)
+02. DMTunes - Ser Mio (Original MIx) (4:42)
+03. Gary B - All I Long For (Original Mix) (4:00)
+04. Weathertunes - Long Beach (Original Mix) (5:22)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:24:17
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D1DA3EC96E3DF6E6AB9D608A1E03E1924C2A72B0
+magnet:?xt=urn:btih:E201C201D94641DD7956BDF5D5A4D4756CC45DF0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -462,25 +339,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396448   (746923) от 15.07.2020
+###  Публикация: 1523537   (749997) от 12.01.2022
 
-Джозеф Уэмбо | Ночи беглеца (2020) [MP3, Юрий Заборовский]
+VA - Travel & Living Lounge, Vol. 6 (2021) [AAC|~328 Kbps] <Lounge, Chill Out, Downtempo>
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746923.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749997.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Пальмы и песчаные бури, великосветские загородные клубы и особняки миллионеров, кинозвезды, контрабандисты, торговцы наркотиками и сыщики. Все это есть в романе Джозефа Уэмбо, одного из самых популярных американских писателей.Жанр: ТриллерПродолжительность: 12:11:32
+01. Beamy - Twisted Soul (M-Sol Project Laidback Mix) (4:51)
+02. Digby Jones, Funkdust - Ah Negresco (3:27)
+03. Living Room - Brasil Sunset (2:34)
+04. Ibiza Chilled - Naked Nova (Original Mix) (6:32)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 01:11:45
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FB9965B204194BD03FDDBCB1A99F4E1045043741
+magnet:?xt=urn:btih:B4E74115E15323562EDAFA8192D5AE2AFB6C5842
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -488,28 +368,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396481   (746922) от 15.07.2020
+###  Публикация: 1523565   (749996) от 12.01.2022
 
-Billie Holiday - Billie Holiday (1975) Mono [FLAC 1.0|96/24|image +.cue|Vinyl-Rip] <Jazz, Blues>
+VA - Winter Lofi Chill (2022) [AAC|~305 Kbps] <Lo-Fi, Lounge, Chill Out>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746922.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749996.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 I Don't Stand A Ghost Of A Chance With You
-A2 Please Don't Talk About Me When I'm Gone
-A3 Nice Work If You Can Get It
-A4 God Bless The Child(   Читать дальше...   )Жанр: Jazz, BluesПродолжительность: 00:40:54
+01. Hybro, Chillmob, Christoph Israel, Swonderful Orchestra, Catherine Larsen-Maguire - Have Yourself A Merry Little Christmas (Lofi Edit) (2:21)
+02. Pueblo Vista - The Beginning Of The End (2:06)
+03. Sam Cross, Pueblo Vista - Dream In Motion (1:45)
+04. Lamar Azul, Pueblo Vista - Slowheal (2:08)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 02:14:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:313CBB8C30B09244837A7887109597C4D942DA18
+magnet:?xt=urn:btih:A662ADDE33B53FA702ED202B26E58B86A76492C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -517,25 +397,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396466   (746921) от 15.07.2020
+###  Публикация: 1523583   (749995) от 12.01.2022
 
-Обитаемый остров. Внешние Гебридские острова / The Island Diaries. Outer Hebrides (2018) HDTV [H.264/1080i]
+System Toolkit 5.2.1 [Multi]
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Архив торрентов
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746921.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749995.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Суровые и неприступные Гебридские острова - царство ветра и волн, но это на первый взгляд. Внимательный путешественник найдет здесь особую романтику и красоту.Производство: Канада, TV5Жанр: Документальный, природа, путешествияРежиссер: Кристина Кларк, Этьен ДезиреПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:47:31
+System Toolkit - приложение «все-в-одном» для мониторинга информации и профилактики, разработанное для macOS.Тип издания: macOS SoftwareРелиз состоялся: 11.01.2022Разработчик: © 2017-2022 Sascha SimonПоддерживаемая ОС: macOS 11.5 +Язык интерфейса: Английский, Немецкий, Упрощенный Китайский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:70CEB37A03A11C700BBF3FAF246545ABDB8E4D98
+magnet:?xt=urn:btih:4E0193463858A94D2D383BE486D2D0A193EC0061
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -543,28 +423,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396520   (746920) от 15.07.2020
+###  Публикация: 1523529   (749994) от 12.01.2022
 
-Lift - Lift (1977) Russian text on labels [FLAC 2.0|96/24|image +.cue|Vinyl-Rip] <Art Rock, Krautrock>
+VA - Travel & Living Lounge, Vol. 1 (2014) [AAC|~323 Kbps] <Lounge, Chill Out, Downtempo>
 
->>HD Audio и Многоканальная Музыка
->>Vinyl-Rip и Hand-Made
+>>Аудио и Видео
+>>Музыка (AAC)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746920.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749994.jpg" />
 </div>
 
 
 ###  Подробнее
 
-A1 Wasser Und Wein
-A2 ...Fallt Der Erste Reif
-A3 Und Es Schuf Der Mensch Die Erde
-A4 Jeden Abend(   Читать дальше...   )Жанр: Art Rock, KrautrockПродолжительность: 00:41:08
+01. Project Blue Sun - All I Need (Original Mix) (5:24)
+02. Eriq Johnson & AVO - Mistical Desire (3:09)
+03. Triangle Sun - Secret Letter (Original Mix) (4:55)
+04. Wav-E - Invisible Oasis (4:19)(   Читать дальше...   )Жанр: Lounge, Chill Out, DowntempoПродолжительность: 02:46:25
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:95D3BCDADD3CAACA5CA9B3EB783667458A8E77B5
+magnet:?xt=urn:btih:E43C0B990B187D72149E94522C60103DCACC5F30
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -572,25 +452,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396461   (746919) от 15.07.2020
+###  Публикация: 1523560   (749993) от 12.01.2022
 
-Астротуризм. Охота на солнечное затмение в Индонезии / The Borderless Sky. Hunting the Solar Eclipse in Indonesia (Sternenjager - Abenteuer Nachthimmel) (2017) HDTV [H.264/1080i]
+Xenos - The Dawn Of Ares (2021) [FLAC|Lossless|image + .cue] <Thrash Metal>
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Rock, Alternative, Punk, Metal
+>>Metal (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746919.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749993.jpg" />
 </div>
 
 
 ###  Подробнее
 
-В этой части два астрофотографа из Германии и Франции отправляются в Индонезию чтобы запечатлеть солнечное затмениеПроизводство: Германия, Taglicht Media, ZDF/ArteЖанр: Документальный, природа, путешествияРежиссер: Себастиан КентерПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:50:58
+1. I Am the Machine
+2. All Shall Fall
+3. The Dawn Of Ares
+4. Circle of Lies(   Читать дальше...   )Жанр: Thrash MetalПродолжительность: 00:44:48
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8611BE8CECECBD51449A75A56A7BC21079CA9F88
+magnet:?xt=urn:btih:29EE7BB9AEF34DF93549FEFCCEA8FC8F76196AAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -598,25 +481,136 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396487   (746918) от 15.07.2020
+###  Публикация: 1523647   (749992) от 12.01.2022
 
-RegScanner 2.55 Portable [Ru/En]
+Dropshare 5.19 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749992.jpg" />
+</div>
+
+
+###  Подробнее
+
+DropShare позволяет быстро передавать файлы больших объемов через интернет. Отправитель просто перетягивает его на значок программы, и файл выгружается на сервер. Остается сообщить ссылку получателю, чтобы он мог открыть ее в своем браузере.
+Dropshare - приложение строки меню для Drag & Drop загрузки файлов, снимков экрана и даже каталогов на собственный сервер, (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 16.12.2021Разработчик: DropshareПоддерживаемая ОС: OS X 10.10 или вышеЯзык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6E0853A765485B10AA71DF6130806D061CDA73A0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523634   (749991) от 12.01.2022
+
+Charlie Ventura - East Of Suez (1945, 1947) 2000, Savoy [FLAC|Lossless|tracks + .cue] <Swing, Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749991.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Synthesis [2:52]
+02. Blue Champagne [3:02]
+03. Stop 'n' Go [2:44]
+04. Soothe Me [3:03](   Читать дальше...   )Жанр: Swing, BopПродолжительность: 00:35:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BA4239E0A9D1719CF69668CBD30352C40E6D21D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523527   (749990) от 12.01.2022
+
+Michel Le Fleur - Isla Del Mar (Ibiza Sunset) (2022) [AAC|~342 Kbps] <Lo-Fi, Lounge, Chill Out>
+
+>>Аудио и Видео
+>>Музыка (AAC)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749990.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. For love (4:46)
+02. Isla Del Mar (6:33)
+03. So Good (4:39)
+04. Red Moon (3:29)(   Читать дальше...   )Жанр: Lo-Fi, Lounge, Chill OutПродолжительность: 01:13:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:88C7528CF379401766AA8F270AA059ABC9100DD8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1523668   (749989) от 12.01.2022
+
+TinkerTool System 7 v7.8 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749989.jpg" />
+</div>
+
+
+###  Подробнее
+
+TinkerTool System - утилита для управления скрытыми настройками операционной системы Mac OS X. Приложение позволяет выполнять циклические сценарии администрирования нажатием одной кнопки, восстанавливать права системных файлов, повторять процесс оптимизации системной производительности по окончании инсталляции приложений, удалять содержимое кэша популярных веб-браузеров (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 12.01.2022Разработчик: © 2022 Marcel BresinkПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CDAAEB9BB7DA160487F5225D492A096753361255
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 889462   (749978) от 17.04.2015
+
+Vivaldi 1.0.156.2 Technical Preview [Multi/Ru]
 
 >>Архив торрентов
 >>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746918.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749978.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Небольшая программа, которая позволяет сканировать реестр Windows, находить нужные значения реестра, соответствующие указанным критериям поиска, и отображать их в одном списке. RegScanner в дополнение к стандартным параметрам может работать с REG_SZ, REG_DWORD и т.д., поддерживает юникод, может различать регистр букв, а также имеет ряд других полезных улучшений.Язык интерфейса: Русский, Английский
+Интернет-браузер, созданный компанией Vivaldi Technologies на основе свободного браузера Chromium и движка Blink. Ряд функций, такие как боковая панель, режим отображения картинок на веб-странице, заметки, визуальные вкладки, корзина с закрытыми вкладками и многие другие были перенесены из последней версии браузера Opera 12, сделанного на движке Presto. Внешний вид браузера Vivaldi также напоминает Opera 12.Язык интерфейса: Русский, Английский, др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3A81099F606275C544FDCE7288C60227D5B2FC23
+magnet:?xt=urn:btih:B33E73BB7535986F0450732011ADA2869480AA66
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -624,25 +618,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396420   (746917) от 15.07.2020
+###  Публикация: 889358   (749969) от 17.04.2015
 
-О Канаде - с высоты птичьего полета / Canada Over the Edge (2011) HDTV [H.264/720p]
+Demon Archive: The Adventure of Derek (2015) [En] Unofficial
 
->>Документалистика и Телепередачи
->>Клуб кинопутешествий
+>>Win Игры
+>>Adventure/Quest (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746917.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749969.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Новая Шотландия - провинция на юго-востоке Канады, одна из трёх так называемых приморских территорий. Столица и крупнейший город Галифакс. Более трёхсот километров живописного атлантического побережья со своими загадками и тайнами.Производство: Канада, Nova Scotia FilmЖанр: Документальный, природа, путешествияРежиссер: Эндрю КеллавейПеревод: Двуголосый закадровый, профессиональныйСубтитры: отсутствуютПродолжительность: 00:49:59
+18 век, Франция. Известного детектива вызвали для расследования загадочной смерти графа Энтони. Будьте готовы к жутким видениям, напоминающим литературного персонажа, созданного Кристофером Марло - Доктора Фауста. Следуйте за своим инстинктом и отправляйтесь в мистическое приключение, где Вас ждут великолепные локации, сложные мини-игры и каверзные головоломки. Будьте осторожны - Вас поджидают Монстры с уникальными способностями прятаться в самых неожиданных местах! Сможете ли Вы спасти графиню Меллису от Демона (   Читать дальше...   )Тип издания: Неофициальное изданиеРазработчик: TwinСatsЖанр: Квест, Логическая, Я ищу, КазуальнаяЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:11558A89FBEBC2911221D3810BA07338DAFD7ECE
+magnet:?xt=urn:btih:CB97A89AEF25951F1A80D1A34309543A0CB45FD9
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -650,25 +644,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396502   (746916) от 15.07.2020
+###  Публикация: 1019625   (749968) от 23.05.2016
 
-Альфред Ван Вогт | Банка краски (2020) [MP3]
+Проекты - VideoHive - FireString Logo [AEP]
 
->>Художественные аудиокниги и публицистика
->>Фантастика, Фэнтези (аудиокниги)
+>>Проекты
+>>Логотипы (проекты)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746916.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749968.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Какие только тесты на разумность не придумывали друг для друга земляне и инопланетяне! А венериане поставили условием контакта — всего лишь управиться с банкой светящейся краски…Жанр: Юмористическая фантастика.Продолжительность: 00:49:47
+FireString Logo - современный и элегантный проект для демонстрации логотипа.Формат: AEP
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EC65E4A37AD6A043E5AA9C8E5531CB58AE05CECD
+magnet:?xt=urn:btih:59142B0CE6F93AED1FF7F1E801D97AEDD1868420
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -676,28 +670,51 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1396500   (746915) от 15.07.2020
+###  Публикация: 1019535   (749967) от 23.05.2016
 
-VA - Beach Dance Classic Radio: Deep House Party (2020) [MP3|320 Kbps] <Deep House>
+Теперь добавьте мёд / Now Add Honey  (2015) BDRip [H.264/1080p] [EN]
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Зарубежное кино
+>>Фильмы в оригинале (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_746915.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749967.jpg" />
 </div>
 
 
 ###  Подробнее
 
-001. Pete Ello - Moon
-002. Steven Stone - Let It Go
-003. Danny Hay - Rage
-004. Be Beats - Saturday(   Читать дальше...   )Жанр: Deep HouseПродолжительность: 08:06:15
+Нормальная жизнь семьи, живущей в пригороде, меняется, когда к ним приезжает двоюродная сестра.Производство: Австралия, GristmillЖанр: комедияРежиссер: Уэйн ХоупАктеры: Люси Фрай, Порша де Росси, Энгус Сэмпсон, Эдди Бару, Бен Лосон, Робби Магасива, Дэвид Филд, Филиппа Култхард, Эрик Томсон, Хамиш Блейк, Робин Батлер, Люк МакГрегорПеревод: ОтсутствуетЯзык озвучки: АнглийскийПродолжительность: 01:37:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B46647CE372F51E2496655E6471F3918826ABF37
+magnet:?xt=urn:btih:F95773D41C2185221606E29FDE148E97FAA65694
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1018154   (749966) от 23.05.2016
+
+Клоуны / I clowns (1970) DVDRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Зарубежная Классика (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_749966.jpg" />
+</div>
+
+
+###  Подробнее
+
+Фильм о цирке, где царит атмосфера игры и казни, праздника и бойни, изящества и безумия и — КЛОУНЫ! Могущественный Белый Клоун и Рыжий — воплощение покорности. В картине клоуны делают все, что им хочется: ломают, поджигают, катаются по полу, а зритель лишь восхищается и аплодирует... Музыку к этому замечательному фильму написал - Нино Рота.Производство: Италия, Франция, Германия (ФРГ)Жанр: КомедияРежиссер: Федерико ФеллиниАктеры: Федерико Феллини, Риккардо Билли, Тино Скотти, Фанфулла, Данте Маджо, Галлиано Сбарра, Нино Терцо, Джакомо Фурия, Карло Риццо, Джиджи Редер, Альваро Витали, Анита Экберг, Пьер Этекс, Анни Фрателлини, Чарли Ривель, Анна Лина Алберти, Этторе Бевилакуа, Ширли Корригэн ...Перевод: Профессиональный многоголосыйСубтитры: ОтсутствуютПродолжительность: 01:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F90D0AFC49F6F666BE62980B85219299792CA04
 ```
 
 https://mybot314.ru/tekegram_catalog/

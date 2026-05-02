@@ -1,3 +1,61 @@
+###  Публикация: 1529932   (731865) от 08.02.2022
+
+Low Kick Collective - Kafka (2022) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Future Jazz, Experimental>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731865.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Escalation (4:58)
+02. Relapse (4:12)
+03. Blue Lips (4:02)
+04. Crust (4:28)(   Читать дальше...   )Производство: b4 recЖанр: Dark Jazz, Future Jazz, ExperimentalПродолжительность: 00:29:30
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:701CA5707F7B5B664B7AA07D644B696857AD2466
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1127596   (731160) от 22.04.2017
+
+Kenny Barron Quartet - Invitation (1991) [WavPack|Lossless|image + .cue] <Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_731160.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Namely You (9:17)
+2. And Then Again (5:25)
+3. Dew Drop (4:41)
+4. Invitation (7:51)(   Читать дальше...   )Жанр: Jazz, Post-BopПродолжительность: 00:57:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C38530F949E4806D092C1C6258DEFBD8847D058C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1127772   (731157) от 22.04.2017
 
 Clark Terry - Clark Terry's Big-B-A-D-Band: Live! At Buddy's Place (1976) Universe [FLAC|Lossless|image + .cue] <Mainstream Jazz, Big Band>
@@ -686,64 +744,6 @@ Mankunku Quartet - Yakhal' Inkomo (1968) 2017, Jazzman [FLAC|Lossless|tracks + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5CC259C5ADF8A419D904071C9FE594304FFE4FD4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1284550   (727882) от 22.02.2019
-
-John Pizzarelli Trio - For Centennial Reasons: 100 Year Salute to Nat King Cole (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727882.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Straighten Up and Fly Right
-02. A Hundred Years from Now
-03. The Very Thought of You
-04. (I Would Do) Anything for You(   Читать дальше...   )Жанр: JazzПродолжительность: 00:51:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5BC6869FE57F6F30175BDCA86B2546AE67DB755C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1022793   (727862) от 03.06.2016
-
-The Modern Jazz Disciples (1959) Remaster, 2013, Universal[FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_727862.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.After You've Gone [06:05]
- 02.Disciples Blues [07:16]
- 03.Slippin' & Slidin' [05:10]
- 04.Little Taste [06:43](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:40:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BC9FCCD708C9973C323D1F19EBD088BAAA4EA952
 ```
 
 https://mybot314.ru/tekegram_catalog/

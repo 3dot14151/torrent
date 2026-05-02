@@ -1,3 +1,119 @@
+###  Публикация: 1549787   (592963) от 08.05.2022
+
+Ready For The World - Ruff 'N' Ready (1988) [FLAC|Lossless|tracks + .cue] <Soul, R&B, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592963.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. My Girly Riley, Valentine 5:30
+02. Shame Potts 4:56
+03. Cowboy Riley, Valentine 4:29
+04. Gently Riley 5:30(   Читать дальше...   )Жанр: Soul, R&B, FunkПродолжительность: 00:56:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F96C87FD2E8666F2A1DDA2FA3DAD595FC693BAB5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549779   (592927) от 08.05.2022
+
+James Brown - Duets (1989) [FLAC|Lossless|tracks + .cue] <Soul, R&B, Funk>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592927.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. James Brown & Marva Withney - Think (Live At the Apollo Theatre, 1967)
+02. James Brown & Bea Ford - You've Got The Power (1960)
+03. Yvonne Fair (with James Brown) - You Can Make It If You Try (1962)
+04. Anna King & Bobby Byrd - Baby, Baby, Baby (1964)(   Читать дальше...   )Жанр: Soul, R&B, FunkПродолжительность: 00:52:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D86B1A1E5744DA2051A097543C5A508FCD1D0481
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549979   (592623) от 09.05.2022
+
+Lew Jetton & 61 South - Déjà Hoodoo (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592623.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Two Lane Road (3:24)
+02. Mexico (5:08)
+03. Waffle House Woman (2:48)
+04. Homegrown Tomato (4:33)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:61664F9B75C193560A73B88E8287FB3D7E13C19D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1549976   (592619) от 09.05.2022
+
+Frank Schaap Quartet - The Lost Session (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_592619.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Truckin' Your Blues Away (3:44)
+02. Come Back Baby  (3:47)
+03. Black and Tan (5:49)
+04. Diddy Wah Diddy  (3:27)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9904286182C3892150CDA03762F02D3938CA6776
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1549983   (592618) от 09.05.2022
 
 8 Ball Aitken - Heart and Soul (2022) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -632,122 +748,6 @@ Luke Walter Jr - Back To Normal (1996) [FLAC|Lossless|tracks + .cue] <Blues Rock
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B0FD7959BE1275873C4DA5F9EB82851AC13DC815
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1041320   (583381) от 08.08.2016
-
-Gov't Mule - The Tel-Star Sessions (2016) [FLAC|Lossless|tracks + .cue] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583381.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Blind Man In The Dark
-02. Rocking Horse
-03. Monkey Hill
-04. Mr. Big(   Читать дальше...   )Жанр: Blues RockПродолжительность: 01:01:28
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B84398017482E4189465A3636119AE08CA146A24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302008   (583277) от 13.05.2019
-
-Happy Day Singers - The Joy Of Gospel (2007) [FLAC|Lossless|image + .cue] <Gospel, Funk / Soul>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_583277.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 1
-01. Swing Low (2:14)
-02. He´s Got The Whole World (1:51)
-03. Kumbaya (3:17)(   Читать дальше...   )Жанр: Gospel, Funk / SoulПродолжительность: 02:09:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:648E384F90009892E38AE5433AE30C98D6D7A8A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1302114   (582201) от 14.05.2019
-
-Dan Bubien & The Delta Struts - Thieves & Yesterdays (2019) [FLAC|Lossless|tracks + .cue] <Blues Rock, Americana, Roots>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582201.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Falling to the Ground (4:18)
-02. Gotta Hold On Me (4:51)
-03. Thieves & Yesterdays (3:48)
-04. Shake That Thing (5:34)(   Читать дальше...   )Жанр: Blues Rock, Americana, Roots RockПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A0421BA78F6CC15F93BAF83CB821282424E1DCB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 506156   (582162) от 09.08.2016
-
-Gary Moore - 73 Альбома (1971-2014) Studio 23, Live 12, Compilation 23, Collaboration 12, Singles 1, Tributes 2 [FLAC, APE|Lossless]<Blues, rock, hard rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582162.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Murder In The Sky (Live) (5:34)
-02. Military Man (Live) (6:25)
-03. White Knuckles (Live) (3:51)
-04. Empty Rooms (Live) (8:27)(   Читать дальше...   )Жанр: Blues, rock, hard rockФормат: FLAC, APE (image,tracks+cue+scans)Продолжительность: 01:16:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CB5DFDF6650C31014D99D93278238A71099F8714
 ```
 
 https://mybot314.ru/tekegram_catalog/

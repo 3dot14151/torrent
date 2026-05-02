@@ -1,3 +1,61 @@
+###  Публикация: 1041391   (582398) от 09.08.2016
+
+Blue October - Sway (2013) [FLAC|Lossless|tracks + .cue] <Alternative Rock, Modern Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_582398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Breathe, It.s Over    01:12
+02. Sway    04:45
+03. Angels in Everything    04:23
+04. Bleed Out    03:52(   Читать дальше...   )Жанр: Alternative Rock, Modern RockПродолжительность: 00:56:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:339996E66B6523A0B0F26839AA86A60426CF6C39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1553531   (581970) от 26.05.2022
+
+Of Rituals - Trauma (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Metalcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_581970.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Spit on my Grave
+2. Purge
+3. National Kill a Pedophile Day
+4. Burning Chapters(   Читать дальше...   )Жанр: Alternative, MetalcoreПродолжительность: 00:46:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D07805E6B332039388DE530F083E8EDAE917FB12
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1553549   (581968) от 26.05.2022
 
 Fatal - Karmageddon (2022) [FLAC|Lossless|WEB-DL|tracks] <Alternative, Russian Beatdown Hardcore>
@@ -687,64 +745,6 @@ Vampire Weekend - Father of the Bride (2019) Japanese Edition / Scene [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E449F33A733993448D8B87443C9D393224B2AFAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555508   (569068) от 04.06.2022
-
-Akuma Six - Akuma No Sekai (2022) [FLAC|Lossless|WEB-DL|tracks] <Nu Metalcore, Trap Metal, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569068.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Godinjection
-2. Akuma
-3. Clubsugar
-4. Harakiri(Endgame)(   Читать дальше...   )Жанр: Nu Metalcore, Trap Metal, ElectronicПродолжительность: 00:31:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6A7AAEC9B6C274F8AD34E3126916E7282E65078F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555504   (568901) от 04.06.2022
-
-Memphis May Fire - Remade In Misery (2022) [FLAC|Lossless|WEB-DL|tracks] <Metalcore, Post-Hardcore, Electronic>
-
->>Rock, Alternative, Punk, Metal
->>Alternative, Punk (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_568901.jpg" />
-</div>
-
-
-###  Подробнее
-
-Треклист:
-01 Blood & Water [00:03:50]
-02 Bleed Me Dry [00:03:22]
-03 Somebody [00:03:20](   Читать дальше...   )Жанр: Metalcore, Post-Hardcore, ElectronicПродолжительность: 00:37:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E75EDC756B9331B52F872FB4DF7464B94F7E37E
 ```
 
 https://mybot314.ru/tekegram_catalog/

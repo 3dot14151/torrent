@@ -1,3 +1,32 @@
+###  Публикация: 1376444   (860384) от 17.04.2020
+
+David Bowie - ChangesNowBowie (2020) [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860384.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. The Man Who Sold The World (ChangesNowBowie Version)
+2. Aladdin Sane (ChangesNowBowie Version)
+3. White Light/White Heat (ChangesNowBowie Version)
+4. Shopping For Girls (ChangesNowBowie Version)(   Читать дальше...   )Жанр: RockПродолжительность: 00:31:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A9FC9D26A66DCB195AE3B013C7F5D11E78F09006
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1376415   (860261) от 17.04.2020
 
 Paul McCartney & Wings - Wings Greatest (1978) Remastered, 2020, Paul McCartney Catalog [MP3|320 Kbps] <Rock>
@@ -716,35 +745,6 @@ The Steepwater Band - Shake Your Faith (2016) [MP3|320 кб/с] <Southern Rock, 
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5AC845B57B25C6D3E42112FBAFA04653E80D83F8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1004191   (840013) от 05.04.2016
-
-VA - Nuggets (Original Artyfacts From The First Psychedelic Era 1965-1968) (1998) [MP3|320 кб/с] <Garage Rock, Psychedelic Rock, Rock & Roll>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Electric Prunes - I Had Too Much To Dream (Last Night) (2:58)
- 02. Standells - Dirty Water (2:48)
- 03. Strangeloves - Night Time (2:32)
- 04. Knickerbockers - Lies (2:43)(   Читать дальше...   )Жанр: Garage Rock, Psychedelic Rock, Rock & RollПродолжительность: 05:09:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FE475765CA41F8F43AE2717B68A4DD2AC51357
 ```
 
 https://mybot314.ru/tekegram_catalog/

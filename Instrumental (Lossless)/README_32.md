@@ -1,3 +1,118 @@
+###  Публикация: 1374553   (872698) от 10.04.2020
+
+Mungo Jerry - Touch The Sky (2020) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock, Pop Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872698.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Touch the Sky
+02. You'll Be Sorry
+03. Rhythm is a Healer
+04. I'll Be a Hippy 'Til I Die(   Читать дальше...   )Жанр: Blues Rock, Pop RockПродолжительность: 00:49:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8A52B34E8DA6C1D8150EEBA429D3535BAD4811C1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1374252   (872696) от 10.04.2020
+
+Shakura S'Aida - Brown Sugar (2010) [APE|Lossless|image + .cue] <Jazz, Funk / Soul, Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872696.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Mr. Right
+02.  Walk Out That Door
+03.  Gonna Tell My Baby
+04.  Break Your Heart(   Читать дальше...   )Жанр: Jazz, Funk / Soul, BluesПродолжительность: 00:55:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53A8FDAA067EB77054518297A65750A592BE1E94
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 998073   (872036) от 18.03.2016
+
+Gregor Hilden - In Phase (2015) [FLAC|Lossless|tracks + .cue] <Modern Electric Blues, Jazzy Blues, Instrumental Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_872036.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mr. Magic (05:45)
+02. In Phase (04:11)
+03. On Flow (04:14)
+04. Rock-Zabern (05:11)(   Читать дальше...   )Жанр: Modern Electric Blues, Jazzy Blues, Instrumental BluesПродолжительность: 00:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FB91DE822DAB9FDFA9591B8C3FF61C074C40198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1106764   (871803) от 20.02.2017
+
+Chris Belleau - 2 Album (2012, 2016) [FLAC|Lossless|image + .cue] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_871803.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+2012 - Knee Deep In The Blues
+2016 - Swamp FeverЖанр: BluesПродолжительность: 01:34:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0727F40703EDF664AC2BB86BEB7D97C0ADF92424
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1106661   (871795) от 20.02.2017
 
 Elmor James Jr. - Old School Lover (2012) [FLAC|Lossless|image + .cue] <Electric Chicago Blues>
@@ -629,122 +744,6 @@ Joe Bonamassa - Blues Of Desperation (2016) [FLAC|tracks+.cue] <Blues Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:60042D392A40EFA67421B789A08E9F153BE3CE6A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108958   (860997) от 26.02.2017
-
-Sharon Lewis & Texas Fire - Grown Ass Woman (2016) [FLAC|Lossless|image + .cue] <Modern Electric Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860997.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Can't Do It Like We Do (4:20)
-02. Hell Yeah! (3:29)
-03. Chicago Woman (4:34)
-04. They're Lying (5:08)(   Читать дальше...   )Жанр: Modern Electric BluesПродолжительность: 00:57:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC4EA1E3F7C48C18919A085B5933DB619875C5C3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1108963   (860943) от 26.02.2017
-
-Aaron Keylock - Cut Against The Grain (2017) [FLAC|Lossless|image + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860943.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ну, понеслось. Пошло, поехало. Миру (миру блюза для точности) явили нового гения, вундеркинда. Зовут его Аарон Кэйлок, англичанин, ему семнадцать лет – это первый его альбом. Знатоки тут же кинулись искать аналогии и без труда нашли их – американец Джонни Ланг свой первый альбом Lie To Me выпустил вообще в шестнадцать лет, и тот альбом стал платиновым. Еще, конечно, (   Читать дальше...   )01. All The Right Moves (3:32)
-02. Down (4:34)
-03. Medicine Man (3:10)
-04. Falling Again (3:25)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:47:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1ABF6EDCD4ACB4357AD176A544AC79286117172F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109221   (860847) от 26.02.2017
-
-Robert Randolph & The Family Band - Got Soul (2017) [FLAC|Lossless|tracks + .cue] <Blues-Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_860847.jpg" />
-</div>
-
-
-###  Подробнее
-
-Robert Randolph & The Family Band - американская фанк- и соул-группа во главе гитаристом Робертом Рэндольфом. Также в состав группы входят: Маркус Рандольф - барабанщик, Даниэль Морган - бас-гитарист, Ленеша Рэндольф - вокалист, Бретт Э. Хаас - клавишник и гитарист. Роберт Рэндольф входит в 100-ю величайших гитаристов. Первый альбом Robert Randolph & The (   Читать дальше...   )01. Got Soul (3:32)
-02. She Got Soul (5:28)
-03. Love Do What It Do (3:42)
-04. Shake It Off (4:01)(   Читать дальше...   )Жанр: Blues-RockПродолжительность: 00:45:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10FBCF2FF1611550AF742F2FD7843273D5A0C884
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1109446   (859211) от 27.02.2017
-
-Lee Thomas Band - 40 Miles of Bad Road (2000) [FLAC|Lossless|WEB-DL|tracks + .cue] <Blues, Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_859211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Take A Little Time (4:21)
-02. Just Pretend (5:31)
-03. Pack My Bags (9:16)
-04. Tides Of Life (4:28)(   Читать дальше...   )Жанр: Blues, RockПродолжительность: 01:17:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B2D2F240251E24235BE6B5079901ADF7C191A65E
 ```
 
 https://mybot314.ru/tekegram_catalog/

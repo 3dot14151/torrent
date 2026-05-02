@@ -1,3 +1,85 @@
+###  Публикация: 1851900   (1055686) от 05.02.2026
+
+Наталья Макаркина | Простые рецепты из тыквы (2025) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055686.jpg" />
+</div>
+
+
+###  Подробнее
+
+Почему именно тыква? Этот универсальный овощ не только вкусен, но и невероятно полезен. Она богата витаминами, минералами и антиоксидантами, придавая вашему рациону свежесть и яркость. С помощью нашей книги вы освоите проверенные и простые рецепты, которые легко готовить и которые не требуют значительных затрат времени и усилий.
+В книге вы найдете:
+- Разнообразные (   Читать дальше...   )Жанр: КулинарияИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E16E2917D3716DE78AD9A78E68BF98280D0E440D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852200   (1055614) от 06.02.2026
+
+Луи Жиро | Праздник вкуса. Блюда на каждый день (2025) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055614.jpg" />
+</div>
+
+
+###  Подробнее
+
+Отныне раздумья о том, что приготовить по тому или иному случаю, останутся в прошлом – это уникальное издание предложит вам более 60 пошаговых рецептов вкуснейших, при этом несложных блюд, в сопровождении ярких иллюстраций и оригинальных советов. Быстрые завтраки, сытные обеды и роскошные ужины – здесь найдется все необходимое для ежедневного меню: начните утро с (   Читать дальше...   )Жанр: КулинарияПеревод: Ангелина ПушкинаИздательство: КоЛибриФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:56E032549A94614A839F2AF8C204406D59E80DAF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1852171   (1055611) от 06.02.2026
+
+Никита Игошев | Книга рецептов (2025) [PDF]
+
+>>Разное (категория книг)
+>>Кулинария
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055611.jpg" />
+</div>
+
+
+###  Подробнее
+
+Мы все хотим есть вкусные блюда и при этом оставаться стройными.
+Так и появилась книга рецептов Никиты Игошева — дипломированного фитнес-тренера и нутрициолога, автора курса по похудению. Здесь он собрал свои лучшие рецепты, придуманные в процессе собственного похудения.
+Эта книга не о диетах и ограничениях, а о рациональном подходе: готовьте быстро из доступных (   Читать дальше...   )Жанр: КулинарияИздательство: СамиздатФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9EF6EE57E7C42B82BCD88402E8868FD420958CB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1851561   (1055361) от 04.02.2026
 
 Е.В. Бурова | Будет меренговый рулет (2025) [PDF]
@@ -6,7 +88,7 @@
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055361.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055361.jpg" />
 </div>
 
 
@@ -35,7 +117,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055360.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055360.jpg" />
 </div>
 
 
@@ -61,7 +143,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055355.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055355.jpg" />
 </div>
 
 
@@ -90,7 +172,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055350.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055350.jpg" />
 </div>
 
 
@@ -119,7 +201,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1055250.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1055250.jpg" />
 </div>
 
 
@@ -148,7 +230,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054750.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1054750.jpg" />
 </div>
 
 
@@ -174,7 +256,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1054600.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1054600.jpg" />
 </div>
 
 
@@ -200,7 +282,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1053206.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1053206.jpg" />
 </div>
 
 
@@ -226,7 +308,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052894.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1052894.jpg" />
 </div>
 
 
@@ -252,7 +334,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052867.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1052867.jpg" />
 </div>
 
 
@@ -278,7 +360,7 @@ https://mybot314.ru/tekegram_catalog/
 >>Кулинария
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_1052797.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1052797.jpg" />
 </div>
 
 
@@ -603,88 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:71BDB33FCA7537261D3C31AB2B0C97DCCCD9845A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841477   (1047985) от 11.12.2025
-
-Маша Соколова | Приготовить просто. Полезные завтраки, обеды и ужины на каждый день (2021) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047985.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Хочу питаться правильно, но…» — эти «но» я слышу от большинства своих учеников, подписчиков или знакомых. Одних останавливают мысли, что здоровая еда — это пресно и безвкусно, другие представляют, что не смогут найти нужных ингредиентов или будут вынуждены платить за них вдвое больше.
-А ЕСЛИ Я СКАЖУ, ЧТО ПП — ЭТО НЕ ТОЛЬКО ПРАВИЛЬНО, НО И ПРОСТО?
-Представлю проверенное (   Читать дальше...   )Жанр: КулинарияИздательство: БомбораФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:354145DBCD3A7E954AEBC1C229EE503BBCCEE771
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841476   (1047984) от 11.12.2025
-
-О. Ивенская | Готовим в аэрогриле. Сборник лучших рецептов (2025) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047984.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ваш кулинарный путеводитель по компактному гаджету для приготовления множества аппетитных блюд с румяной корочкой. Узнайте лайфхаки, чтобы аэрогриль прослужил дольше и вы могли использовать весь его потенциал на вашей кухне. А рецепты помогут освоить разные режимы и открыть многообразие блюд и продуктов, которые возможно приготовить в аэрогриле.
-Аэрогриль поможет (   Читать дальше...   )Жанр: КулинарияИздательство: ЭксмоФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A87285E4F31696864ADC9405C236AEE16578B9A4
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1841475   (1047983) от 11.12.2025
-
-Елена Ландэ | Точно готовим! 50 топовых рецептов Вкусвилл (2025) [PDF]
-
->>Разное (категория книг)
->>Кулинария
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_1047983.jpg" />
-</div>
-
-
-###  Подробнее
-
-Привет, друзья! Я — Елена Ландэ, бренд-шеф ВкусВилла и ваш надежный гид в увлекательном мире вкусов. В руках вы держите мою новую книгу «Точно готовим!», где я поделюсь с вами лучшими из лучших рецептов, созданными с любовью и страстью к кулинарии.
-Это не просто кулинарная книга, а настоящее сафари по вкусовым ощущениям, где каждое блюдо, однажды бывшее новинкой, (   Читать дальше...   )Жанр: КулинарияИздательство: АСТФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92FD09BDFD47E5524F2CC11FB4E339F6C37DD9F0
 ```
 
 https://mybot314.ru/tekegram_catalog/

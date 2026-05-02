@@ -1,3 +1,61 @@
+###  Публикация: 1454252   (1026440) от 14.03.2021
+
+Art Pepper - Unreleased Art, Vol.11: Atlanta (1980) 2CD, 2020, Widow's Taste [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026440.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+01. Blues for Blanche [10:25]
+02. Talk: Band Intros [2:00]
+03. The Trip [11:25](   Читать дальше...   )Жанр: Post-BopПродолжительность: 01:51:35
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1285B4F1C84E36B9FC9CBC80FDF2B8C40D264DA1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1454539   (1026268) от 15.03.2021
+
+Ahmad Jamal - Tranquility & Outertimeinnerspace (1968, 1972) 2015, Universal [FLAC|Lossless|tracks + .cue] <Hard Bop, Post-Bop, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1026268.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Say A Little Prayer [2:28]
+02. The Look Of Love [2:50]
+03. When I Look In Your Eyes [4:20]
+04. Illusions Opticas [2:31](   Читать дальше...   )Жанр: Hard Bop, Post-Bop, Piano JazzПродолжительность: 01:15:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E640ABAE897963F3E76C53CAF78B048F8D7BCB4F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1454675   (1026136) от 16.03.2021
 
 Bob Baldwin - Newurbanjazz 3 - an Urbansmooth Suite (2021) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
@@ -687,64 +745,6 @@ Arcing Wires - Prime (2020) [FLAC|Lossless|image + .cue] <Jazz-Rock, Heavy Prog>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3259ADAE0891BB32A85D3DDD488D58622447321A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461118   (1022132) от 08.04.2021
-
-Sasi Shalom - Nedyaj (2021) [FLAC|Lossless|WEB-DL|tracks] <Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022132.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nedyaj - 05:30
-2. Monkey - 05:37
-3. The Way I See It - 05:25
-4. For The Smile - 04:31(   Читать дальше...   )Жанр: FusionПродолжительность: 01:01:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40C9A18D4631CF293E19691D6D3E9BCF74D19A73
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1461119   (1022131) от 08.04.2021
-
-Jonny King - In From The Cold (1994) Criss Cross [FLAC|Lossless|tracks + .cue] <Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1022131.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. El Jefe [8:29]
-02. Fire and Brimstone [7:01]
-03. In From the Cold [9:39]
-04. The Giant and the Dwarf [6:35](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:58
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D46B09713769337A1601E25A7D03B0750B529A7B
 ```
 
 https://mybot314.ru/tekegram_catalog/

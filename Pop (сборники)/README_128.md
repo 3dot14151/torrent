@@ -1,3 +1,119 @@
+###  Публикация: 1751260   (42520) от 24.09.2024
+
+VA - Music Without Borders (2024) [MP3|320 Kbps] <Pop, Dance, RnB>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42520.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Taylor Swift Feat. Ed Sheeran - Everything Has Changed
+002. Oakman - I Am Floating...
+003. Dj Sava Feat. Dj Dark & Md Dj & Iova - Magical Place
+004. Pabllo Vittar - Pra Te Esquecer(   Читать дальше...   )Жанр: Pop, Dance, RnBПродолжительность: 12:11:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A52494396271CE7401D585D7A7C2DF0FEE35DE8C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752226   (42009) от 29.09.2024
+
+VA - Dance-Charts Top 100 (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_42009.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Basti M - Dangerous Habit (2:22)
+02. CARSTN - Bad Liar (Basti M & Blaikz Remix) (2:40)
+03. Bob Shepherd - You And Me (3:34)
+04. Mario Beck - Correlation (2:55)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 05:13:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF6CC164D7D8225CA9A9B0803AAD830CD41EA4D7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752556   (41792) от 01.10.2024
+
+VA - Billboard Global 200 Singles Chart (28.09.2024) (2024) [MP3|320 Kbps] <Pop, Dance, Rock>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41792.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Lady Gaga - Die With A Smile - (04:12)
+ 002. Billie Eilish - BIRDS OF A FEATHER - (03:30)
+ 003. Sabrina Carpenter - Taste - (02:37)
+ 004. Sabrina Carpenter - Espresso - (02:55)(   Читать дальше...   )Жанр: Pop, Dance, RockПродолжительность: 11:01:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15EA26A364044A152684AEDC722766AFB5EA7527
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1752710   (41721) от 02.10.2024
+
+VA - Summer Pop Coctail Party Vol. 02 (2024) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41721.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Papik - Gente Distratta - (05:29)
+ 002. Michaela May - Ultraviolet - (03:25)
+ 003. Banners - Have You Ever Loved Someone - (03:19)
+ 004. Benson Boone - Beautiful Things - (03:00)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 10:31:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D7849F0D30E834E5D3BFAF98EB9AE50EB14243F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1752698   (41717) от 02.10.2024
 
 VA - German Top100 DJ Charts 27.09.2024 (2024) [MP3|320 Kbps] <Pop, Dance>
@@ -629,122 +745,6 @@ VA - Новогодние песенки для малышей (2024) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B11884EA421C750C1B421189F9873BB6B5A3A9E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1766226   (33895) от 17.12.2024
-
-VA - Новогодняя Ночь (2024) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_33895.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Беларусинки - Новогодняя Овечка [02:33]
-02. Божья Коровка - Застольная (Ностальгия Версия) [03:47]
-03. Игорь Николаев, Юлия Проскурякова, Вероника Николаева - Я Люблю Эту Зиму [03:05]
-04. Натали - Будут Танцы [03:21](   Читать дальше...   )Жанр: PopПродолжительность: 05:01:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A93807AAD477C519CF330C2C697FECCB834F8B94
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768559   (32967) от 26.12.2024
-
-VA - Новогодняя ночь хитов (2024) [MP3|320 Kbps] <Pop, Christmas>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32967.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Александр Добронравов, Варвара - Белая зима [03:24]
-002. Альфия Тагирова - Полёт В Новый Год [02:09]
-003. Игорь Николаев, Юлия Проскурякова, Вероника Николаева - Я люблю эту зиму [03:05]
-004. Константин Кожевников - Девушка Хочет Дедушку (feat. МПВ Бэнд) [03:10](   Читать дальше...   )Жанр: Pop, ChristmasПродолжительность: 05:20:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:25B7985585E924566B4C95FDAD7D0050532D7DA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1768759   (32879) от 27.12.2024
-
-VA - 100 Пудовый хит (2024) [MP3|320 Kbps] <Pop, Rock>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32879.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bryan Adams - Back To You
-002. Полина Гагарина - Кукушка
-003. Depeche Mode - Ghosts Again
-004. Кристина Орбакайте - Будь со мной(   Читать дальше...   )Жанр: Pop, RockПродолжительность: 12:45:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1143A6697BF2E034B1E7AAEF574949C0EB6C7CC0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1770054   (32445) от 31.12.2024
-
-Adriano Celentano - Compilation (1958-2021) [MP3|320 Kbps] <Pop, Disco, Rock 'n' Roll>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_32445.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prisencolinensinainciusol (& Mina) (Le Migliori 2016)
-02. Ti Penso E Cambia Il Mondo. live (& Gianni Morandi) (Adriano (Adriano Live-Arena di Verona 2012) 2013)
-03. Solo Da Un Quarto D' Ora. live (Il Cuore, La Voce 2001)
-04. A Un Passo Da Te (& Mina) (Le Migliori 2016)(   Читать дальше...   )Жанр: Pop, Disco, Rock 'n' RollПродолжительность: 14:19:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:117734D703082133F6C7F01F2BF5C97619B2482B
 ```
 
 https://mybot314.ru/tekegram_catalog/

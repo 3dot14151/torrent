@@ -1,4 +1,33 @@
 https://t.me/izofen
+###  Публикация: 1868083   (1067398) от 
+
+VA - Electronic Lullaby, Vol. 1 (2026) [MP3|320 Kbps] <Chillout, Balearic, Downtempo, Electronic>
+
+>>Electronic
+>>Downtempo, Trip-Hop, Lounge
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1067398.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Gian Delly - Detroit Morning 04:47
+02. Jane Maximova - Clouds (Aleksey Beloozerov Remix) 04:15
+03. Steen Thottrup - Solitary 04:19
+04. Joe Le Blanc - Limon & Sugar (Extended Mix) 06:56(   Читать дальше...   )Жанр: Chillout, Balearic, Downtempo, ElectronicПродолжительность: 02:14:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:78F25F5855670209B192B0137EB1EA908F877392
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1843895   (1049794) от 23.12.2025
 
 VA - The Best Of Suanda Chillout 2025 (2025) [MP3|320 Kbps] <Downtempo, Chillout, Electronic>
@@ -717,35 +746,6 @@ VA - The Orient Collective - Collection (2023) 8 Relise [MP3|320 Kbps] <Electron
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1F619A6313234779EABFD2EAF97D67A10F98998D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1668718   (173180) от 14.10.2023
-
-VA - Redux Chill Out Moments 2023 [MP3|320 Kbps] <Chillout, Lounge, Downtempo>
-
->>Electronic
->>Downtempo, Trip-Hop, Lounge
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_173180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. a.m.c. - One Flower (Extended Mix) [5:16]
-02. Harmonium - Arcturus (Extended Mix) [8:57]
-03. Rene Ablaze & Frank Dattilo - You And I Forever (Rezwan Khan Remix) [6:56]
-04. Adam Francis - Leila (Extended Mix) [6:51](   Читать дальше...   )Жанр: Chillout, Lounge, DowntempoПродолжительность: 01:40:01
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E5E18A72E2E532052F973B8DFE7FEE3E3120FF03
 ```
 
 https://mybot314.ru/tekegram_catalog/

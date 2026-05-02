@@ -1,288 +1,25 @@
-###  Публикация: 473100   (98144) от 31.03.2012
+###  Публикация: 1822229   (100891) от 07.10.2025
 
-VA - Against Humanity (2011) [MP3|~249 кб/с (V0)]<Psy-Prog, Full On>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98144.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Generic - Atmosphere 07:24
-02. Faders vs Audiotec - Voices (original mix) 07:00
-03. Hi Profile - Against Humanity 08:06
-04. Neelix - 7th Grade 06:03
-05. Erotic Dream - She Wants A Wash Machine 06:30
-06. Ticon - Balkan Tourist (Paul Thomas And Myke Smith remix) 06:06
-07. Ital - Conimi 07:16
-08. Shinouda - Hamy Influences 07:14
-09. Orion Signs vs Pyro - Light For The Blind 07:26
-10. Kularis - Foxtrott Lessons (original mix) 06:45(   Читать дальше...   )2011Жанр: Psy-Prog, Full OnПродолжительность: 02:17:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28D8B565300B3D7B8C8F6D47F8E055F77473F96A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475936   (98143) от 31.03.2012
-
-[Wallpapers] Best HD Wallpapers Pack (31.03.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98143.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A815480EC3DFDE6BDE107FA77121D46448308EC1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475996   (98141) от 31.03.2012
-
-VA - Зажигательная Дискотека Non-Stop №15 (2012) [MP3|256 кб/с]<Pop,Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98141.jpg" />
-</div>
-
-
-###  Подробнее
-
-001 DJs From Mars & Fragma - Insane (In da brain)
-002 Митя Фомин - Хорошая Песня (Жизнь Одна, Хочется Жить)
-003 Bryce feat. J-Malik - Nothing can hold us back
-004 Каникулы В Мексике - Мексикана-Мама (Radio Version)
-005 Dev - In the dark
-006 Дядя Жора - Губки Уточкой
-007 DJ Bobo - Everybodys gonna dance (Bryce remix edit)
-008 Vshoke - Весна
-009 David Guetta - Without you (feat. Usher)
-010 Лавика - В Городе Весна (DJ Melloffon Remix)2012Жанр: Pop,DanceПродолжительность: 05:53:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FA6E91B896C42385395BB7AB5351DAEE3C213ACF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476158   (98140) от 31.03.2012
-
-[Wallpapers] Best Wallpapers Pack 12
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98140.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Best Wallpapers Pack 12
-Название: Best Wallpapers Pack 12
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 3504х2190
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5E23F25A925691A0D58CB2B61716382C69B80E10
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475957   (98139) от 31.03.2012
-
-VA - Клубная 100-ка (2012) [MP3|160-320 kbps]<Club>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98139.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ural Djs & Letichev Sky Feat. Aruba Ice - Пленники Любви (Dj Solovey Remix)
-02. A.Shine - Я к тебе (House Massive mix)
-03. IKA - Задыхаюсь без тебя (DJ NIGHT remix)
-04. Гости Из Будущего - Мой Baby (Ruslan Maiamix Remix)
-05. Javi Reina & Syntheticsax - Oig (DJ V1t & Fast Food remix)
-06. Mixi - До Рассвета (Dj Solovey Remix)
-07. DJ Sandro Escobar & Katrin Queen vs. Reflex - Non Stop (extended mix)
-08. Movetown feat. Nana - Lonely (DJ Klubbingman Meets Raindropz! Remix Edit)
-09. Serenity & Spyer Feat. Tevin - Club Rockin Beats (Ti-Mo Remix Remix Edit)
-10. Fillin - Добрый Вечер Мой Город (Dj Xm Electro Remix)(   Читать дальше...   )2012Жанр: ClubПродолжительность: 07:44:52
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BBBB217C8C599001F9C6F49DDD1C6AF767064EE5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 476134   (98138) от 31.03.2012
-
-Журнал | Благоустройство №2 [2012 март] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98138.jpg" />
-</div>
-
-
-###  Подробнее
-
-Журнал для тех, кто создает уют. Основная цель — помочь сориентироваться потребителю на рынке товаров и услуг в области благоустройства жилья, то есть — посоветовать, направить, разъяснить, дать оценку и помочь при выборе. Для этого мы привлекаем к сотрудничеству экспертов в области ремонта, строительства и дизайна.2012 мартФормат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4B161308A18FEA8941E86EFDBAA0B88A31FCFB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 474244   (98137) от 31.03.2012
-
-DJ Kocmoc - Electro Sensation vol.22 (12.03.2012) [MP3|320 кб/с]<Electro House, Electro Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98137.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Nero – Guilt (DallasK Remix)
-2. Felguk - Bassive (Original Mix)
- 3. 2-4 Grooves feat. Amina - Melodie (Extended Mix)
-4. Inna feat. Flo Rida - Club Rocker (Mike Candys Extended Mix)
-5. Flo Rida - Good Feeling (J.O.B. Remix)
-6. DJ Antoine - Welcome To St.Tropez (Mike Candys After Summer Bootleg Mix)
- 7. DJ Antoine - Every Breath You Take 2012 (Voodoo & Serano Remix)
- 8. Marq Aurel & Beatbreaker feat. Nate Monoxide - Road Rat (Major Tosh Remix)
-9. Pitbull feat. Ne-Yo & Nayer - Give Me Everything Tonight (Danny Rush Remix)
- 10. Sean Finn - Show Me Love 2012 (Rockstroh Remix)(   Читать дальше...   )12.03.2012Жанр: Electro House, Electro ProgressiveПродолжительность: 01:30:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:156C1CCEEAEF8A5C6CE81A84854BD493A968FBFB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 473571   (98136) от 31.03.2012
-
-Shadowgarden - Ashen (2010) [FLAC|Lossless]<Gothic Dark Metal>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98136.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Shadowplay 03:48
-02. Last Summer 03:26
-03. With Love and a Bullet 04:27
-04. The Withering of Mine 03:16
-05. Sorrow´s Kitchen 04:50
-06. 1:40 AM 04:07
-07. Murky Waters 04:34
-08. Way Down Low 03:33
-09. Empty Days 03:27
-10. Slowmotion Apocalypse 06:312010Жанр: Gothic Dark MetalПродолжительность: 00:49:39
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475796   (98135) от 31.03.2012
-
-VA - Clubber.RU (2012) [MP3|320 кб/с]<Dance, Club>
+VA - Musical kaleidoscope part 55 Assorted (2025) [MP3|320 Kbps] <Electronic, Easy listening, Instrumental, Sax>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98135.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100891.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Dj Vengerov Feat. Рома Жуков & Паола - Переливы (Club Remix)
-02. Dj Цветкоff & Оля Милакса - Белая Ночь (Dj Solovey Remix)
-03. Geegun И Юлия Савичева - Отпусти (Dj Stylezz Remix)
-04. Katrin Moro - Давай Любить ( Vova Baggage Remix )
-05. Ligalize - Будущие Мамы (Dj Paulbass & Dj Gorodnev Hot Mix 2012)
-06. Maksim - Kaк Летать (Dj Shevtsov Alex & Menco Extended Mix)
-07. Mixi - До Рассвета (Dj Solovey Remix)
-08. Mixi - Между Мной И Тобой (Dj Andy Wait Remix)
-09. Mixi Feat. Young Zeke - Текила (Alex Neo Remix)
-10. Noggano - Застрахуй (Dj Viduta Remix)2012Жанр: Dance, ClubПродолжительность: 04:15:55
+01 - Novi - Keep on Dreaming
+02 - Dj Lava - Shadows From Dream
+03 - Yenra - Neon Reflections
+04 - Dj Polkovnik - Vibrations for Positive(   Читать дальше...   )Жанр: Electronic, Easy listening, Instrumental, SaxПродолжительность: 00:55:41
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:D9DECD66D2F6D091B2B218B6318B1EC740DE2C3F
+magnet:?xt=urn:btih:1DA223A758F34BFAEE874F83002557D9F40CC9B6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -290,34 +27,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475831   (98133) от 31.03.2012
+###  Публикация: 1822661   (100890) от 07.10.2025
 
-Firebrand Super Rock - Firebrand Super Rock (2012) [MP3|320 кб/с]<Heavy Metal (Female Vocals)>
+Мой отец — герой, моя мать — дух, а я переродилась их дочерью | Chichi wa Eiyuu, Haha wa Seirei, Musume no Watashi wa Tensei-sha. [2025, TV, 1 из 12] WEBRip 1080p Raw+Rus
 
->>Архив торрентов
->>Архив Музыки
+>>Аниме с озвучкой
+>>Онгоинги с озвучкой
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98133.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100890.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. River Of The Dead 05:44
- 02. Into The Black 04:08
- 03. Wheel Of Pain 03:39
- 04. Iron Void 04:38
- 05. The Unborn 05:15
- 06. Hells Mouth 06:51
- 07. Beneath The Nameless City 01:57
- 08. Falling Down 03:33
- 09. Born To Die 07:09
- 10. Cleansed By Fire 05:19(   Читать дальше...   )2012Жанр: Heavy Metal (Female Vocals)Продолжительность: 00:48:16
+Современный японский учёный после смерти перевоплощается в восьмилетнюю девочку Эллен, которая живёт в фэнтезийном мире. У девочки есть способности изменять состав и структуру веществ. А ещё у неё непростые родители: её отец — Ровель, легендарный герой, и мать — Ориджин, королева духов. Однако её брат, принц Рависел, замыслил захватить силу духов, поэтому Эллен приходится (   Читать дальше...   )Производство: Япония / Студия J.C. StaffЖанр: Приключения, фэнтези.Режиссер: Фукусима ТосинориЯзык озвучки: Русский (Deep (ТО Дубляжная)), (Deep (AniStar)); ЯпонскийСубтитры: Русские / Английские (софтсаб полные) CrunchyrollПродолжительность: 12 серий по 24 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:47F1730DFC8A0674E6677AD6CB192D28416E8E83
+magnet:?xt=urn:btih:54F9F6D71EA9EFF496C9754FA3889EEA9E28124A
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -325,170 +53,21 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475729   (98131) от 31.03.2012
+###  Публикация: 1821764   (100889) от 07.10.2025
 
-VNP - Trance Traveling 24 (2012) [MP3|320 кб/с]<Trance>
+Signal выставил ультиматум Европе из-за планов по тотальной слежке за перепиской
 
->>Архив торрентов
->>Архив Музыки
+>>3
+>>4
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98131.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_100889.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Ashley Wallbridge feat Kobalt Infusion - Kopanang
-02. Trilucid feat. Sophie Tusnelda - Bring You The Sun (D-Mad Remix)
-03. Armin van Buuren feat Ana Criado - Suddenly Summer
-04. Ummet Ozcan - Miami Sundown (Original Mix)
-05. B-Fairy & Pluton vs. Yuri Kane - Opened Sense & Right Back (Turn Mashup)
-06. Ernesto vs. Bastian - Bonanza (Original Mix)
-07. Hydrogenio - 777 (Ben Gold Remix)
-08. Paul Oakenfold - Glow In The Dark (Original Mix)
-09. Indecent Noise - Civitanova (Nick Callaghan & Will Atkinsons Dark Sessions Remix)
-10. Bart Panco - Rising Sun (Lkerya Project Remix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:12:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41839DF44E411AC820C8F819B6AC956FFD49AB97
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475635   (98130) от 31.03.2012
-
-Spectro Senses - Power Core (2012) [MP3|320 кб/с]<Psychedelic / Full On>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98130.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Power Core 06:37
- 02. Crazy Carousel 06:50
- 03. Side Impact 06:24
- 04. Run To Paradise 07:13
- 05. Frequency Drive 06:21
- 06. It's Not A Game 07:43
- 07. Master Blaster (Spectro Senses Remix) 06:24
- 08. Take Control 07:13
- 09. Magic World 06:37
- 10. Freak House 06:472012Жанр: Psychedelic / Full OnПродолжительность: 01:01:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F41B48E1BD2E7C8A25EDF5B20EE8EB4543065FB1
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475989   (98129) от 31.03.2012
-
-VA - Территория Звезд (2012) [MP3|256 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98129.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Вероника Захарова (Vero) - Я Свободна (3:46)
-2. Wendel Kos feat. DJ San - Kiss of life (3:18)
-3. Sevenlee - Мир Без Тебя (Valentin Rich Club Version) (7:06)
-4. Инфинити - Ты мой герой (3:42)
-5. Пропаганда - Нет-Да (Dance Version) (3:52)
-6. The Disco Boys - Around the world (2:55)
-7. T.O.T.A.L. И Антитла - Весна-Любовь (4:25)
-8. Крылья - Сердца Pin-Code (3:46)
-9. Klaas & Bodybangers - I like (Bodybangers mix) (4:55)
-10. Fonzerelli - Moonlight party (3:37)2012Жанр: PopПродолжительность: 05:52:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773951AC3F540158A7A7533FB51D46F116F5931C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475497   (98126) от 31.03.2012
-
-VA - Клубные Новинки Vol.56 from AGR (2012) [MP3|320 кб/с]<Club, Dance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98126.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Serge Devant feat. Hadley - Dice (Original Mix)
-02. Rave Channel - Illusion (Original Mix)
-03. Max Graham feat. Susana - Down To Nothing (Johan Malmgren Remix)
-04. Stan Kolev - Sebai Kekade (Original Mix)
-05. Lissat & Voltaxx – Trying To Hold Me (Tomcraft Remix)
-06. Alexander-Popov - When The Sun (Club Mix)
-07. Nitrous Oxide - Ipeople (Space Rockerz Remix)
-08. Omnia feat. Melissa Loretta - Halo (Dan Stone Remix)
-09. John Acquaviva, Olivier Giacomotto - Feel Awright (Original Mix)
-10. Alan Banks - Illusion (Ex-Driver Remix)(   Читать дальше...   )2012Жанр: Club, DanceПродолжительность: 04:21:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A9AF18F6C7E334F90AFA2D331DEC8C1F8F007BC3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 475625   (98123) от 30.03.2012
-
-Михаил Рожков - Русская исполнительская школа - Таланты России (1995) [FLAC|Lossless]<Фольклор>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ивушка - (автор музыки: Геннадий Пономаренко)
-02. Пассакалия - (автор музыки: Георг Гендель)
-03. Венгерский народный танец "Чардаш"
-04. Болеро - (автор музыки: Н. Шульман)
-05. Старинный романс "Я встретил Вас"
-06. Романс из кинофильма "Овод" - (автор музыки: Дмитрий Шостакович)
-07. Мазурка - (автор музыки: Владимир Андреев)
-08. Танец с саблями из балета "Гаянэ" - (автор музыки: Арам Хачатурян)
-09. Испанский танец - (автор музыки: Мориц Мошковский)
-10. Гротеск и размышление - (автор музыки: Е. Тростянский)(   Читать дальше...   )1995Жанр: ФольклорПродолжительность: 01:10:34
+В Европе вновь обострилась дискуссия о так называемой «Chatkontrolle» — планах ввести обязательные механизмы для автоматического поиска запрещённых материалов в мессенджерах. На фоне этих обсуждений глава Signal Мередит Уиттакер заявила, что если Евросоюз примет закон, обязывающий встраивать подобные системы в приложения, компания уйдёт с европейского рынка.По её (   Читать дальше...   )
 
 ## Скачать торент
 ```bash
@@ -500,29 +79,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475438   (98121) от 30.03.2012
+###  Публикация: 1768745   (100888) от 26.12.2024
 
-[Wallpapers] Space Wallpapers Pack 3
+Bill Harris - Holiday Improvisations (1998) Daddy Jazz Records [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98121.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100888.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Space Wallpapers Pack 3 
-Название:  Space Wallpapers Pack 3 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 6000х3750
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Happy Holiday [2:46]
+02. Christmas Song (Chestnuts Roasting on an Open Fire) [4:42]
+03. O Tannenbaum [3:50]
+04. White Christmas [2:57](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:52:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:551548FEB913A9C3651FAA065312A6B414B4D8F8
+magnet:?xt=urn:btih:FDF8B4B40D44F0EC15621E9573DEBD1657A60CC0
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -530,25 +108,167 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475800   (98120) от 30.03.2012
+###  Публикация: 1768701   (100887) от 26.12.2024
 
-Журнал | Домой. Строительство и ремонт №11 [2012 март] [JPEG]
+Rencontre Nocturne - Recap 2024 (2024-12-18) [MP3|320 Kbps] <Progressive House>
+
+>>Electronic
+>>Radioshow, Live Mixes
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100887.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Matisse & Sadko, Sentinel - Once Again w/Jay Robinson - Free Again (Acapella) w/Sebastian Ingrosso & Alesso - Calling (Lose My Mind)Жанр: Progressive HouseПродолжительность: 00:42:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:27F60272E6907963CBBC9DB88CA12259A2BE1C92
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768744   (100886) от 26.12.2024
+
+Dave Koz & Friends - Christmas Ballads: 25th Anniversary Collection (2022) Just Koz Entertainment [FLAC|Lossless|tracks + .cue] <Smooth Jazz, Jazz-Pop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100886.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Christmas Waltz [3:34]
+02. Away in a Manger/Silent Night [2:57]
+03. Happy Xmas (War Is Over)/Imagine (feat. Rebecca Jade) [4:57]
+04. Greensleeves [3:41](   Читать дальше...   )Жанр: Smooth Jazz, Jazz-PopПродолжительность: 00:40:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC5DBCFA264657399240E82E65B597CB926DF0C6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768639   (100885) от 26.12.2024
+
+Coheed and Cambria - Claudio Covers (2024) [FLAC|Lossless|WEB-DL|tracks] <Alt.Rock, Post-Hardcore>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100885.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Just Like Heaven [00:03:14]
+02. Welcome To New York [00:04:08]
+03. Your Love [00:04:51]
+04. Pompeii [00:03:56](   Читать дальше...   )Жанр: Alt.Rock, Post-HardcoreПродолжительность: 00:30:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5AD5F078F7E76CCEA6579FEC242477AD2A69E8B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768678   (100884) от 26.12.2024
+
+VA - Evolving Horizons: Progressive Trance Chronicles, Vol. 07 (2024) [MP3|320 Kbps] <Trance, Progressive>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100884.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. AaYmin - By Your Light (For Saylee) (Extended Mix) (05:53)
+02. Liudicrous & Nini - Comical (Cosmaks Remix) (05:20)
+03. Toffk - Remoted (Mark Van Rijswijk Remix) (06:57)
+04. Pavel Koreshkov - New Regeneration (Mixed) (03:41)(   Читать дальше...   )Жанр: Trance, ProgressiveПродолжительность: 02:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7BC09A27646541B1FD9B28B94555B2E2375608B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768800   (100883) от 26.12.2024
+
+Lynyrd Skynyrd - Comin' Down (Live Mountain View 1988) (2023) [MP3|320 Kbps] <Southern, Blues Rock, Classic Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100883.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Workin' For MCA (Live 1988) [00:04:56]
+02 - I Ain't The One (Live 1988) [00:03:52]
+03 - Saturday Night Special (Live 1988) [00:05:29]
+04 - The Needle And The Spoon (Live 1988) [00:04:25](   Читать дальше...   )Жанр: Southern, Blues Rock, Classic RockПродолжительность: 01:34:41
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2D52F7C0204DF85673E6947ACE312B1A97EE76C7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768804   (100882) от 26.12.2024
+
+Подшивка журнала | Психология и Я №7-12 (июль-декабрь 2024) [PDF]
 
 >>Журналы
->>Домоводство (журналы)
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98120.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100882.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Специализированный рекламный журнал «ДОМОЙ. Строительство и Ремонт» – это полноцветный еженедельный журнал о строительных, отделочных материалах, мебели и интерьере.2012 мартФормат: JPG
+Журнал для тех, кто любит жизнь, стремится к гармонии с окружающим миром и с самим собой. Главная тема каждого номера – взаимоотношения между мужчиной и женщиной, родителями и детьми. С помощью профессиональных психологов и жизненного опыта самих читателей Вы найдете ответы на сложные жизненные вопросы. В каждом номере Вас ждут советы и рекомендации, которые помогут (   Читать дальше...   )Жанр: ПсихологияИздательство: ООО "Издательский дом "Толока"Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E23690A864177A978B36EEE4D92FBFF55C6CCC23
+magnet:?xt=urn:btih:00BECD2DD7AC62CF9EFBF394BBEA0D56EE7A65EE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -556,25 +276,26 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475019   (98117) от 30.03.2012
+###  Публикация: 1768944   (100881) от 26.12.2024
 
-Айседора Дункан | Моя жизнь [2006] [MP3]
+Журнал | Профиль №47-48 (243) (декабрь 2024) [PDF]
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Журналы
+>>Другие журналы
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98117.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100881.jpg" />
 </div>
 
 
 ###  Подробнее
 
-"Моя жизнь" - автобиографический роман о яркой и драматичной жизни одной из известнейших женщин начала ХХ века. В этой книге неповторимая Айседора Дункан рассказывает о себе, о конце XIX века - времени рождения нового, изменения привычных форм. Она смело ломала признанные каноны рафинированного искусства балета, создавая невиданный доселе танец. Духовная свобода, способность выразить в танце внутренние переживания - вот чем жила эта удивительная женщина. Страстные романы, трагическая гибель детей, приезд в Советскую Россию, жизнь ради творчества и одинокое препровождение долгих дней – судьба Айседоры, как и ее танец, напоминала костер на ветру...Жанр: Автобиография, мемуары
+Актуальная и эксклюзивная информация, аналитические материалы, обзоры и рейтинги в области политики и общества, экономики и бизнеса, финансов и инвестиций.
+На страницах журнала вы найдете эксклюзивные репортажи, аналитические прогнозы, рейтинги и обзоры по различным темам (экономика, политика, финансы, бизнес, промышленность, инвестиции), социологические опросы и (   Читать дальше...   )Жанр: Деловой, аналитическийИздательство: ООО «ИДР»Формат: PDFКачество: Обработанный скан
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:FA6C3D2015FCE6414254B200136BC5799B3B5240
+magnet:?xt=urn:btih:35F97BAA76201E555CD33052307E93B5DE47A747
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -582,29 +303,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475441   (98115) от 30.03.2012
+###  Публикация: 1768662   (100880) от 26.12.2024
 
-[Wallpapers] Girls Desktop Wallpapers Pack 15
+Андрей Картавцев - Музыка моей души (2024) [FLAC|Lossless|WEB-DL|tracks] <Pop, Chanson>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Pop
+>>Отечественная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98115.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100880.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Girls Desktop Wallpapers Pack 15 
-Название:  Girls Desktop Wallpapers Pack 15 
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920х1080 - 1920х1440
-Расширение (тип) файлов: jpgСкриншоты:Время раздачи: 24/7 - круглосуточно
+01. Не рви мне душу [00:04:12]
+02. Никто из нас не виноват [00:04:15]
+03. Обманщица [00:03:22]
+04. Она не ты [00:04:37](   Читать дальше...   )Жанр: Pop, ChansonПродолжительность: 00:38:57
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:B206E7AC953552A8A66E289EB99C38D309F89DA7
+magnet:?xt=urn:btih:3B2D692915D17FA6932653B49B6822B9A20BC22E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -612,27 +332,135 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475198   (98113) от 30.03.2012
+###  Публикация: 1768785   (100879) от 26.12.2024
 
-Музыкальный коллектив Петра Налича, концерт в клубе Б1 MAXIMUM (2009) DVD5
+Журнал | Вязаная одежда для солидных дам №4 (август 2024) [PDF]
 
->>Театр и Музыкальное видео
->>Концерты (DVD)
+>>Журналы
+>>Хобби (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98113.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100879.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Жанр: Авторская песняРежиссер: Gala-recordsАктеры: МКПН
+Модели вязаной одежды для пышных дам: жакеты, жилеты, пуловеры, болеро, пальто, а также аксессуары – для работы и отдыха, загородных прогулок и вечерних мероприятий.Жанр: ВязаниеИздательство: ООО "Издательство "Газетный мир"Формат: PDFКачество: Обработанный сканРеклама: Водяной знак сайта-источника
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E7F2091FD03CDDECC0E45DA42F3CD6C5E72B29FB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768858   (100878) от 26.12.2024
+
+AlimkhanOV A. - Black (The 4th Album) (2024) [MP3|320 Kbps] <Italo-Disco, Euro-Disco>
+
+>>Pop
+>>Disco, Italo-Disco, Euro-Disco, Hi-NRG
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100878.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Black (Intro) (3:47)
+02. One More Night (3:57)
+03. Follow Me Baby (5:30)
+04. One Two Three (3:59)(   Читать дальше...   )Жанр: Italo-Disco, Euro-DiscoПродолжительность: 01:10:58
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5A64BEC4D256BF702D6D4122F2442F683DD3BD45
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1768895   (100877) от 26.12.2024
+
+Мечтатели (1934) WEBRip
+
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Отечественные Фильмы (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100877.jpg" />
+</div>
+
+
+###  Подробнее
+
+Об интернациональном отряде, сражавшемся в годы гражданской войны в Донбассе. О том, как люди разных национальностей, мечтавшие о мирной жизни, начинают восстановление разрушенного хозяйства.Производство: СССР / МоскинокомбинатЖанр: драма, историяРежиссер: Давид МарьянАктеры: Алла Тарасова, Николай Плотников, Лев Свердлин, Иван Кудрявцев, Михаил Жаров, Сергей Вечеслов, Владимир Гардин, Сергей Комаров, Николай Чаплыгин, Борис МедведевСубтитры: отсутствуютПродолжительность: 01:33:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:772F28CAC7F2A2F767AF647E14A14F8B8F3F482C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822211   (100876) от 05.10.2025
+
+Macrorit Partition Expert 8.6.0 Technician Edition RePack by KpoJIuK [Multi/Ru]
+
+>>Утилиты, Офис, Интернет
+>>Диагностика и обслуживание hardware
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100876.jpg" />
+</div>
+
+
+###  Подробнее
+
+Macrorit Partition Expert Unlimited Edition – предоставляет мощные функции по работе с разделами жесткого диска, которые позволяют пользователям расширять системный раздел, изменять размеры, перемещать разделы, создавать, форматировать, удалять разделы с легкостью; кроме того, он также обладает уникальной технологией защиты данных и лучшим алгоритмом перемещения (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CCF843E2495DAAECF0D9186F465F8E7E9F61850F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822215   (100875) от 05.10.2025
+
+Spy x Family 3 / Семья шпиона 3 [2025, TV, 1 из ?] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100875.jpg" />
+</div>
+
+
+###  Подробнее
+
+Третий сезон Spy x Family.
 
-Обложку DVD нарисовал, как всегда, сам Пётр. На самом диске есть бонусыПродолжительность: 01:16:32 (концерт - 58:32, интервью - 8:41, ролики - 8:24)
+Описание на первый сезон:
+Над миром нависла страшная угроза! Шпиону «Сумраку» предстоит выполнить сложнейшую миссию в своей карьере… стать примерным семьянином. Под видом любящего мужа и отца он должен проникнуть в элитную школу и сблизиться с верхами мира политики. На первый взгляд прикрытие вышло великолепное, во только его жена — наёмная (   Читать дальше...   )Жанр: приключения, комедия.Режиссер: Имай ЮкикоЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:EDCFD76BB20BBCA6735850FEC05C03293F02DD04
+magnet:?xt=urn:btih:C14E7DC78BF779A6CC938B540DDAF403E87D8BAE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -640,25 +468,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475351   (98112) от 30.03.2012
+###  Публикация: 1822216   (100874) от 05.10.2025
 
-Н.И. Яковкина | История русской культуры. XIX век [2002] [RTF]
+Nageki no Bourei wa Intai Shitai 2 / Let This Grieving Soul Retire! 2 / Скорбящий пpизpaк хочет уйти в отставку 2 [2025, TV, 1 из 13] WEBRip 720p raw
 
->>Научная и техническая литература
->>Гуманитарные науки и искусство
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98112.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100874.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Книга посвящена наиболее яркому и плодотворному периоду культурной жизни России - XIX веку, освещает развитие образования, литературы, изобразительного искусства, театра. Особое место в изложении уделяется Петербургу, как крупнейшему культурному центру того времени.2002Формат: RTF
+Второй сезон Nageki no Bourei wa Intai Shitai.
+
+Описание на первый сезон.Наступил золотой век для кладоискателей, которые в поисках славы, несмотря на опасности, совершают набеги на хранилища сокровищ по всему миру. Неизмеримые богатства, слава и власть ждут тех, кто одержит победу.
+«Давайте станем охотниками за сокровищами!»(   Читать дальше...   )Жанр: приключения, фэнтези.Режиссер: Таката МасахироЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: 13 серий по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:932C344E1CF7201CB9F06DEDC95CF30D97DBCF4B
+magnet:?xt=urn:btih:B858257F8D7A08668E225490CE4155FEB033E816
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -666,25 +497,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474864   (98111) от 30.03.2012
+###  Публикация: 1822214   (100873) от 05.10.2025
 
-Дикий Юг. Дикие цветы / Wild South. Wild Flowers (1990-1999) IPTVRip
+StartAllBack 3.9.16 StartIsBack++ 2.9.20 (2.9.1) StartIsBack + 1.7.6 RePack by KpoJIuK [Multi/Ru]
 
->>Архив торрентов
->>Архив Документалистики и TV
+>>Утилиты, Офис, Интернет
+>>Разное (Утилиты, Офис, Интернет)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98111.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100873.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Жанр: ДокументальныйПеревод: Одноголосый закадровый, профессиональныйПродолжительность: 00:27:20
+StartAllBack - привычная для нас программа, которая возвращает в Windows 11 полнофункциональную кнопку запуска меню Пуск. StartAllBack существенно улучшает удобство использования рабочего стола и делает новый экран упорядоченным, наиболее удобным.Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:3D724308DB949674C9A4879570E9A8DFA1F46E8A
+magnet:?xt=urn:btih:52302FC5C8C7A8D9F0895803E739FDDF76304AFF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -692,25 +523,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475807   (98110) от 30.03.2012
+###  Публикация: 1675340   (100872) от 05.10.2025
 
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №20 (2012.03.30) SATRip
+Я делаю шаг (2023) WEBRip [H.264/1080p]
 
->>Документалистика и Телепередачи
->>Телешоу
+>>Отечественное кино
+>>Отечественные Фильмы (HD, FHD, UHD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98110.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100872.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:12:03
+Саша Макаров мечтает работать в Москве, в престижной школе, а вынужден, как он считает, «прозябать» в Пскове. Причем в той же школе, где когда-то учился сам. Ученики — наглецы, завуч Сашу ненавидит, а сам он никому не доверяет, кроме одного человека — подруги детства. Или уже больше, чем подруги? Любовь лечит любые раны, но она требует и честности. А Саше есть что (   Читать дальше...   )Производство: Россия, Окапи ПродакшнЖанр: мелодрамаРежиссер: Ольга АкатьеваАктеры: Сергей Новосад, Мария Аронова, Равшана Куркова, Анастасия Талызина, Денис Синявский, Милана Бру, Александр Югов, Михаил Полицеймако, Ирина Розанова, Денис ШведовПеревод: Не требуется (Русский)Субтитры: РусскиеПродолжительность: 01:54:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:517A276376F170621A7DC265D2FDA3C46A4EC107
+magnet:?xt=urn:btih:B378A72DC183CE84FC1B8821CD436A5910A3BAA7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -718,25 +549,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475451   (98109) от 30.03.2012
+###  Публикация: 1236542   (100871) от 05.10.2025
 
-В.Н. Удилов | Теракты и диверсии в СССР: стопроцентная раскрываемость [2011] [FB2, RTF]
+GNOG (2018) [Ru/Multi] (1.0.7) License GOG [VR]
 
->>Разное (категория книг)
->>нет
+>>Win Игры
+>>Board/Puzzle/Logic (Casual)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98109.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100871.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Теракты с массовыми человеческими жертвами случались в центре Москвы и в относительно безмятежные советские («застойные») времена. Так 8 января 1977 года на улицах столицы СССР и в московском метро прогремели три смертоносных взрыва, организованных подпольной группой армянских националистов во главе с Затикяном. В обезвреживании и разоблачении этой антисоветской террористической организации непосредственно участвовал автор представляемой книги, контрразведчик Вадим Удилов. Его мемуары в основном посвящены борьбе Комитета государственной безопасности с диверсантами, террористами, действовавшими на территории Советского Союза в 50-70-е годы XX века.2011Формат: FB2, RTF
+GNOG - тактильная игра с трехмерными паззлами, в ходе которой появляются причудливые головы монстра, таящие в себе секретные миры. Игра отличается запоминающимся дизайном, живым взаимодействием, богатым реактивным саундтреком, головы ручной работы воплощаются в жизнь пока вы складываете, поворачиваете, тянете, - то есть, с интересом собираете каждое по-своему очаровательное (   Читать дальше...   )Тип издания: LicenseРазработчик: KO_OPЖанр: Приключение, Головоломка, ФэнтезиЯзык субтитров: Русский, Английский, Немецкий, Испанский и другиеЯзык интерфейса: Русский, Английский, Немецкий, Испанский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:2767CA68D385C4D44EBD61646EBA2B77FFC19692
+magnet:?xt=urn:btih:A28A89F6B5F8F1CC7A4371509B5D91D2D2D387C4
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -744,26 +575,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 474311   (98106) от 30.03.2012
+###  Публикация: 1822221   (100870) от 05.10.2025
 
-Нейо Марш | Премьера убийства [2008] [MP3]
+Boku no Hero Academia Final Season | My Hero Academia Final Season | Моя геройская академия [ТВ-8] [2025, TV, 1 из 12] WEBRip 720p raw
 
->>Художественные аудиокниги и публицистика
->>Детектив, Боевик (аудиокниги)
+>>Аниме с субтитрами
+>>Онгоинги
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98106.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100870.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Серия: Инспектор Родерик Аллейн
-Оригинальное название:2008Жанр: Детектив
+Если большинство людей владеет суперспособностями, то и воинов правосудия надо много. Школы для одаренных есть везде – а вот Идзуку Мидории, истовому фанату геройских дел, способностей не досталось, о чем он очень жалеет. Но ничего, судьба и храброе сердце однажды свели Мидорию с Всемогущим, сильнейшим героем на свете. Ветерану парень понравился – настолько, что (   Читать дальше...   )Производство: Bones FilmЖанр: приключения, фэнтезиРежиссер: Nagasaki KenjiПеревод: официальный (Crunchyroll)Язык озвучки: ЯпонскийСубтитры: Русские, АнглийскиеПродолжительность: 12 эп. по 25 мин.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ECBA7A578406F095640F1F05C76B3569D19C493B
+magnet:?xt=urn:btih:B6F77FC3088A419B0E3EBE0498590F62576C20E7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -771,25 +601,104 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 475209   (98104) от 30.03.2012
+###  Публикация: 1822192   (100869) от 05.10.2025
 
-Дикий Юг. Погибшие корабли / Wild South. Shipwrecks A Natural History (1990-1999) IPTVRip
+Мультфильмы v294 Mod by clubtime2009 [Ru]
 
->>Документалистика и Телепередачи
->>Живая природа
+>>Программы, Игры и прочее
+>>ПО для Android
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98104.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100869.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Документальная программа, в которой рассказывается о дикой природе заповедников, тропических лесов, горных массивов, островов. Описывается жизнь во всех ее проявлениях: под землей Тасмании, в рифах Новой Зеландии, в дюнах Северного моря, степях Австралии и даже подо льдом.Перевод: Одноголосый закадровый, профессиональныйПродолжительность: 00:26:16
+Смотрите любимые Мультфильмы и Сказки онлайн прямо сейчас. Хотите всегда иметь доступ к анимационному контенту Мультфильмов и Сказок и получать новинки каждый день?Тип издания: AdfreeРелиз состоялся: 05.10.2025Разработчик: Мульт твПоддерживаемая ОС: Android / Android TV 5.0Язык интерфейса: Русский
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:BB3C957DFB2F623BB71B12CCC086843470D2890A
+magnet:?xt=urn:btih:E49FF2F8B48F7B5984E91B33F8CB6E89C4D3A188
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822188   (100868) от 05.10.2025
+
+Moon+ Reader Pro v10.2 (b1002000) Mod by Lucky Las [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100868.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 03.10.2025Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CA31A7C96C053CA446C0BB97B51F8D01E7690042
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822191   (100867) от 05.10.2025
+
+Moon+ Reader Pro v10.2 (b1002001) Mod by Balatan [Ru/Multi]
+
+>>Программы, Игры и прочее
+>>ПО для Android
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100867.jpg" />
+</div>
+
+
+###  Подробнее
+
+Moon+reader относится к категории универсальных читалок, поддерживающих большое количество форматов и станет хорошим дополнением для вашего Android смартфона или планшета. Приложение поддерживает форматы EPUB, PDF, DJVU, AZW3, MOBI, FB2, PRC, CHM, CBZ, CBR, UMD, DOCX, ODT, RTF, TXT, HTML, MD(MarkDown), WEBP, RAR, ZIP и OPDS. Наличие голосового движка в платной версии (   Читать дальше...   )Тип издания: Pro / ModРелиз состоялся: 03.10.2025Разработчик: Moon+Поддерживаемая ОС: Android 5.0+Язык интерфейса: Русский / Мульти
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600FD16BA4983279E744A84837E08BA8D26404A5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1822222   (100866) от 05.10.2025
+
+Tomodachi no Imouto ga Ore ni dake Uzai / My Friend's Little Sister Has It In for Me! / Младшая сестра друга меня так раздражает! [2025, TV, 1 из ?] WEBRip 720p raw
+
+>>Аниме с субтитрами
+>>Онгоинги
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_100866.jpg" />
+</div>
+
+
+###  Подробнее
+
+Если девушка дразнит тебя, значит, ты ей нравишься!
+К сожалению, Акитеру по собственному опыту известно, что это не так. Потому что все девушки, с которыми он общается, относятся к нему с презрением, и ни одна из них не согласилась пойти с ним на свидание! К счастью, он больше озабочен тем, чтобы обеспечить себе и своим друзьям-разработчикам игр место в компании (   Читать дальше...   )Жанр: комедия, романтика.Режиссер: Кога КадзуомиЯзык озвучки: ЯпонскийЯзык субтитров: РусскийПродолжительность: ? серий по 25 мин.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:51CE0BF26B535EC29908EBE2A3F5C10A2AD2C82E
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,83 +1,23 @@
-###  Публикация: 479700   (98822) от 07.04.2012
+###  Публикация: 1765851   (101311) от 15.12.2024
 
-[Wallpapers] Anime Wallpaper (08.04.12)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98822.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D16F16A6A4501B465E48D27681373BF7B345D02
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478461   (98820) от 07.04.2012
-
-Various Artists - Tranceffect 18 (2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98820.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Tomas Heredia- Hurricane (Radio Edit)
- 02. Max Graham feat. Susana-Down To Nothing ({am} Extended Mix)
- 03. Solarstone & Haris C-Ultraviolet (Haris C Mix)
- 04. Meridian vs. Arctic Moon vs. ReOrder-Smile In Biscay Bay (LarSson & Lucas Comes Mashup)
- 05. Running Man & Ahmed Romel-Azure (Running Man Edit)
- 06. John OCallaghan-Psychic Sensor (Indecent Noise Remix)
- 07. Talla 2XLC-Salvation (Club Mix)
- 08. Keelin Temple vs Heatbeat-Iridescent (Reach & Height Rosary Mashup)
- 09. Skylight-Autumn Wonderland (Aero 21 Remix)
- 10.  7 Baltic-Hidden Life (Original Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:19:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:67B83DE5352DEAD7699A1ED299127BA658B8211D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479466   (98819) от 07.04.2012
-
-[Wallpapers] Best Wallpapers (07.04.12)
+Balabolka 2.15.0.884 + Portable [Multi/Ru]
 
 >>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Архив Программ
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98819.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101311.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+Балаболка (Balabolka) - программа предназначена для чтения вслух текстовых файлов. Для воспроизведения звуков человеческого голоса могут использоваться любые речевые синтезаторы, установленные на компьютере.
+Воспроизведение речи можно контролировать при помощи стандартных кнопок, подобных тем, что присутствуют в любой мультимедийной программе ("воспроизвести/приостановить/остановить"). (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:32C871BB0F09C4A26B020C6354F348C7AC498522
+magnet:?xt=urn:btih:61D717A2F7405C8E95F806D565EA9D69A02026AC
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -85,29 +25,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479679   (98816) от 07.04.2012
+###  Публикация: 1765898   (101310) от 15.12.2024
 
-[Wallpapers] Desktop Wallpapers №5
+Heart 2 Heart - Alley Of Dreams (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98816.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101310.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers №5
-Название: Desktop Wallpapers №5
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. The Arrival (0:21)
+02. Alley Of Dreams (4:08)
+03. 2.000 Miles (3:55)
+04. Stay (4:22)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:43:05
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0467081298E42C9E6F930623C1E5B3E49DFAE429
+magnet:?xt=urn:btih:6F856738B453A7B9C4661FA7F9257F1885905A27
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -115,29 +54,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479683   (98815) от 07.04.2012
+###  Публикация: 1766002   (101309) от 15.12.2024
 
-[Wallpapers] Desktop Wallpapers №7
+Mr Mountain - Mr Mountain (Remixed & Remastered 2024) (2024) [FLAC 24/192|Lossless|WEB-DL|tracks] <Blues Rock>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98815.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101309.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers №7
-Название: Desktop Wallpapers №7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Mary Jane  (3:39)
+02. Refuse To Shine  (4:47)
+03. One Day Baby  (3:50)
+04. See You Go  (3:56)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:56:42
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:ED07577EAA4D376DBA2B972775530E3EA48DC967
+magnet:?xt=urn:btih:211F9DCEE31E8B989B54C7721C0380B0C07AFF07
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -145,29 +83,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479732   (98814) от 07.04.2012
+###  Публикация: 1765906   (101308) от 15.12.2024
 
-[Wallpapers] Desktop Wallpapers №11
+Pleasureland - Pleasureland (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98814.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101308.jpg" />
 </div>
 
 
 ###  Подробнее
 
-[Wallpapers] Desktop Wallpapers №11
-Название: Desktop Wallpapers №11
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+01. Before I Die (4:00)
+02. Hardly Believe It (3:52)
+03. The Game (5:07)
+04. City Of Rain (3:27)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:47:51
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:0AB3FC1EB44CFE4186286C62B0A11114176969DC
+magnet:?xt=urn:btih:D729D900D2D16C1B7BCB37BF67C2FF88EF69DFCE
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -175,26 +112,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479579   (98812) от 07.04.2012
+###  Публикация: 1765889   (101307) от 15.12.2024
 
-Совершеннолетие Рунета: 7 апреля 2012 года доменной зоне .Ru исполнилось 18 лет
+Atom Stone - Take Me To The Fire (2023) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
->>Поговорим
->>Новости
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98812.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101307.jpg" />
 </div>
 
 
 ###  Подробнее
 
-
-7 апреля домен .Ru празднует 18-летие. Именно в этот день в 1994 году состоялось официальное открытие национальной доменной зоны. Первый зарегистрированный ресурс 1-9-9-4.ru. До этого все отечественные сетевые ресурсы размещались на международных доменах и в зоне Советского союза .SU. В свое совершеннолетие домен продолжает удерживать позицию самого популярного в России, уверенно перешагнув отметку в 3,5 миллиона регистраций. В честь дня рождения Рунета ведущий аккредитованный регистратор доменных имен REG.Ru напомнил об основных этапах становления доменной зоны.Активная регистрация доменных имен коммерческого назначения началась еще в 1996 году, но сегодня старожилов почти не осталось – основную часть регистраций (почти 40%) составляют домены, зарегистрированные в зоне .RU менее года назад. Старейшим действующим доменом в национальной зоне .Ru признан сайт nostalgie.ru.С 2006 по 2008 год зона .Ru динамично развивалась: если в 2006 году число зарегистрированных доменов составляло чуть более 718 тысяч, то уже (   Читать дальше...   )
+01. I Believe (3:57)
+02. Take Me To The Fire (3:40)
+03. Hate Love (3:44)
+04. Watch Me Die (4:26)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:39:14
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:927A3D06553060AF8ADB53AAD1AFE36DF73475D6
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -202,34 +141,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478466   (98811) от 07.04.2012
+###  Публикация: 1765895   (101306) от 15.12.2024
 
-Various Artists - Tranceffect 13 (2012) [MP3|320 кб/с]<Trance>
+Daytona - Garder La Flamme (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
->>Неофициальные сборники
->>Electronic (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98811.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101306.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01.Se.Ra.Phi (2007)- After The Last Breath (Se.Ra.Phics Epic Version)
- 02. Stuart Trainer-Surrender (Original Mix)
- 03. Rene Ablaze & Tonerush-Sulaco ({am} Extended Mix)
- 04. Endre (2004)-Kallocain (Robert Nickson Remix)
- 05. Dorius-One Day In Tuva (Original Mix)
- 06.  Aly & Fila-200 (Fsoe 200 Anthem) (Original Mix)
- 07. Max Braiman-Origins (Amir Farhoodi Remix)
- 08. Lisko-End Of Summer (Peter Plaznik & Tech Trek Remix)
- 09.  Subimpact-End Of An Age (Vahab Bandari Remix)
- 10.  Subimpact-Rockin (Original Mix)(   Читать дальше...   )2012Жанр: TranceПродолжительность: 01:20:17
+01. Welcome To The Real World (4:18)
+02. Kelly (3:46)
+03. Through The Storm (4:12)
+04. Downtown (3:25)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:47:58
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:278C968CC144B35FC3880994D48753F76201A5A0
+magnet:?xt=urn:btih:BBFAC8D75812C980C72718C48918333B2870AAD8
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -237,120 +170,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478648   (98806) от 06.04.2012
+###  Публикация: 1765986   (101305) от 15.12.2024
 
-VA - High Heels Feeling Vol 3: Finest Lounge Music For Intimate Relaxation & Pleasure (2012) [MP3|320 кб/с]<Downtempo, Chillout, Lounge>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98806.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Solanos - Palabras y Sentimientos
-02. Blue Wave - Falling Skies
-03. The Sura Quintet - Walking On the Sand
-04. Don Gorda Project - Take a Rest
-05. Enrico Donner - Temptalizing Me (Feat. Judy Georges)
-06. Christian Hornbostel - Schakunta - Bossamba Mix
-07. Cane Garden Quartet - Love Goddess
-08. Diario - What I Would Miss About You
-09. Arrojas - The Last Day of Summer
-10. Aquarius - Dissonant Looks(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 01:25:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E136F225F69DC810C214186EE3B7EE0382DEDCC6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479244   (98805) от 06.04.2012
-
-VA - Dash Berlin Top 20 April (2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98805.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Dash Berlin Top 20 April (2012)Год: 2012
-Жанр:Trance
-Продолжительность: 02:35:16Кодек: MP3
-Битрейт:320 кб/с
-Тип битрейта: CBRТрек лист:
-1. James Dymond - Sunset Bench (Original Mix) (8:28)
-2. Cerf, Mitiska & Jaren with Rank 1 - Witness (Tomas Heredia Remix) (7:37)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478787   (98804) от 06.04.2012
-
-Природа зверя / The Nature of the Beast (1995) DVD5
-
->>Архив торрентов
->>Архив Видео. Кино, Театра
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98804.jpg" />
-</div>
-
-
-###  Подробнее
-
-Бизнесмен Джек подбирает в окрестностях Невады «бродягу» Эдриана. Эдриен оказывается слишком назойливым попутчиком, и Джек хочет избавиться от него. Но Эдриена не так-то просто потерять из виду, потому что он знает один страшный секрет Джека и грозится сообщить об этом в полицию.
-
-В это время по радио в машине передают криминальные новости: в районе орудует серийный убийца по прозвищу Рубщик. Возможно, или Эдриен или Джек, и есть убийца, но природа зверя раскроется лишь к концу фильма…Жанр: Ужасы, Триллер, ДетективРежиссер: Виктор СэлваАктеры: Эрик Робертс, Лэнс Хенриксен, Саша Дженсон, Ана Гэбриэл, Илой Касадос, Брайон Джеймс, Лайла Гэрретт, Фрэнк Новак, Элиза Робертс, Эрл Теро, Уильям Э. Темпл, Холлэс Колберн, Лин Шэй, Сэра Янг, Боб МэйПеревод: Одноголосый закадровый (Михаил Иванов)Язык субтитров: английский, испанскийПродолжительность: 01:30:33
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478657   (98798) от 06.04.2012
-
-Каникулы в Мексике - 2. Ночь на вилле. Выпуск №24 (2012.04.05) SATRip
+Своя игра (15.12.2024) WEBRip [H.264/1080p]
 
 >>Документалистика и Телепередачи
->>Телешоу
+>>Интеллектуальные шоу
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98798.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101305.jpg" />
 </div>
 
 
 ###  Подробнее
 
-11 свободных, сексуальных парней и девушек на шикарной вилле Жанны Фриске у океана. Море коктейлей, вечеринки, звезды шоубиза... MTV им устроил идеальные каникулы! Но чтобы задержаться в мексиканском раю, нужно найти себе пару. Кто останется один, собирает чемоданы и - адьос, мачос и мучачос! - едет домой, где текилу придется покупать уже за свои деньги. Кто влюбится по-настоящему, а кто будет врать и плести интриги? Кто дойдет до финала и получит приз 1 миллион рублей - самый искренний или самый хитрый? На что пойдут участники, чтобы продлить свои "Каникулы в Мексике" на MTV?Жанр: ТВ-ШоуПродолжительность: ~ 00:11:26
+2024 год близится к завершению, как и турнир "Своей игры". 14 декабря начались финальные игры, в которых участников ждут три третьфинала и финал. В финальных играх принимают участие игроки, которые показали лучший результат за год.Производство: Россия, ООО "2В МЕДИА" по заказу АО "Телекомпания НТВ"Жанр: Интеллектуальная играЯзык озвучки: русскийСубтитры: русскиеПродолжительность: 00:41:00
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:13854D1DF1633D6D63537FC6F5C9363A40F7AF81
+magnet:?xt=urn:btih:03795581579796E3FB10FC595ACDC0D8C4EC5BC7
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -358,86 +196,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478597   (98797) от 06.04.2012
+###  Публикация: 1765893   (101304) от 15.12.2024
 
-LibreOffice 3.5.2 Final [Мульти, Русский]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98797.jpg" />
-</div>
-
-
-###  Подробнее
-
-LibreOffice - новое имя пакета офисных приложений OpenOffice.org. Разработчики пакета программ OpenOffice объявили о создании независимой организации The Document Foundation, в рамках которой они продолжат разрабатывать свои приложения, но уже под названием LibreOffice. Программы OpenOffice.org - это бесплатный набор программ, сходный по функционалу с пакетом Microsoft Office: Writer – текстовый процессор; Calc – электронные таблицы; Impress - создание и просмотр мультимедийных презентаций; Draw - редактор векторной графики; Math – редактор математических формул. Одно из крайне положительных качеств - возможность работы всех этих приложений с соответствующими документами форматов MS Office.Название программы: LibreOfficeЯзык интерфейса: Мульти, Русский
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478936   (98795) от 06.04.2012
-
-Wise Registry Cleaner 7.14 build 451 Final + Portable [Multi(Rus)]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98795.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название программы: Wise Registry CleanerЯзык интерфейса: Multi(Rus)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478450   (98793) от 06.04.2012
-
-Nothgard - Warhorns Of Midgard (2011) [FLAC|Lossless]<Viking Folk Metal>
+Brinker - Alloy Rock (1986) Reissue, Remastered, 2023, MelodicRock Classics [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
 
 >>Rock, Alternative, Punk, Metal
->>Metal (Lossless)
+>>Hard Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98793.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101304.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Lex Talionis (4:38)
-02. Arminius (5:14)
-03. Under The Serpent Sign (4:08)
-04. Einherjer (5:33)
-05. Shadows Arise (2:09)
-06. Blackened Sky (6:02)
-07. Victory (3:57)
-08. Warhorns of Midgard (5:29)
-09. Spirit (3:38)
-10. Ancient Heritage / Modern Warriors (5:08)(   Читать дальше...   )Жанр: Viking Folk MetalПродолжительность: 00:55:51
+01. Your Love (4:13)
+02. Just Missing You Tonight (4:09)
+03. Dreams And Yesterday (3:51)
+04. Feelin' (4:10)(   Читать дальше...   )Жанр: Melodic Hard RockПродолжительность: 01:18:03
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:1ADF6700E0CA182D2A17030B3A648CA003DD6423
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -445,210 +225,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478922   (98790) от 06.04.2012
+###  Публикация: 1765901   (101303) от 15.12.2024
 
-Журнал | Звёзды и совет № 9 [март 2012] [JPEG]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98790.jpg" />
-</div>
-
-
-###  Подробнее
-
-Женский журнал, в котором можно почитать о жизни звезд, а так же их советы на различные темы.март 2012Формат: JPEG
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9216A87DAFB3079FF65B43B7D3CF4526072CE8AD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478972   (98787) от 06.04.2012
-
-Forodwaith - Nirnaeth Arnediad (2010) [MP3|320 кб/с]<Fantasy/Folk/Melodic Death Metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98787.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. - Intro (03:10)
-02. - Nirnaeth Arnediad (07:41)
-03. - Morgoth (04:45)
-04. - Stone Guardian (04:39)
-05. - Saga (06:52)
-06. - Death And Beer (04:22)
-07. - The White Tower (04:01)
-08. - Horn Of Gondor (05:11)
-09. - Revenge Of Mjolnir (04:51)
-10. - Valhalla Feast (05:41)2010Жанр: Fantasy/Folk/Melodic Death MetalПродолжительность: 00:51:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D5742F82D34552230855A9D9153D23CCEB32467
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 479136   (98782) от 06.04.2012
-
-Журнал | АиФ. Спецвыпуск. Общество №4 [2012] [PDF]
-
->>Архив торрентов
->>Архив Книг и обучающих материалов
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98782.jpg" />
-</div>
-
-
-###  Подробнее
-
-Люди с ограниченными возможностями - такие же полноправные члены общества, как и все. И в то же время у инвалидов есть свои права, которые полезно знать, и даже свои льготы.
-Что могут инвалиды? На какую поддержку они вправе рассчитывать? Как меняется социальная среда с учетом их потребностей? Об этом в нашем спецвыпуске расскажут юристы, официальные лица и активисты общественных организаций.
-Также вы прочитаете удивительные истории мужественных людей, которые, несмотря на травмы и болезни, смогли состояться в профессии, стать полезными другим людям и обрести счастье.2012Формат: PDF
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9282A0D61E4C4FD4C0A03107AC27595D6A331284
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478753   (98774) от 06.04.2012
-
-VA - Big City Trance Volume 24 (05.04.2012) [MP3|320 кб/с]<Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98774.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Squarz Kamel - Crystal (Original Mix)
- 02. DJ Mikas & DJ Sage - Shaken Not Stirred (Original Mix)
- 03. Dave Horne - Light & Dark (Original Mix)
- 04. Artento Divini - Adhd (Original Mix)
- 05. Des McMahon - Raven (Original Mix)
- 06. Avion - Brilliant (Original Mix)
- 07. David Forbes - Yasai (Original Mix)
- 08. Euphoric Feel - Trip To India (Original Mix)
- 09. Erick Strong - Stars
- 10. Dart Rayne - Luminescence (Original Mix)(   Читать дальше...   )05.04.2012Жанр: TranceПродолжительность: 02:25:15
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5B22E36ECBE23FDE758940862B66E6CC315129EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478635   (98773) от 06.04.2012
-
-Wise Disk Cleaner v7.17 build 474 Final + Portable [Multi(Rus)]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98773.jpg" />
-</div>
-
-
-###  Подробнее
-
-Название программы: Wise Disk CleanerЯзык интерфейса: Multi(Rus)
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478106   (98772) от 06.04.2012
-
-VA - French Plaisir - compiled by Drenan (2008) [FLAC|Lossless]<Psychedelic / Progressive>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_98772.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Time In Motion - Magic Corner 08:20
-02. Kularis - Uf7 06:36
-03. Mute - Space N Time 08:42
-04. Dualism VS. Meeloo - Rest In Panic (Xahno Rmx) 07:29
-05. Davina - Special Sakaya 08:35
-06. Cyklones - Find Your Own Reality 07:04
-07. Midimal - Over & Out (Klopfgeister Rmx) 07:46
-08. Badbug - Beating Wood 07:50
-09. Phaxe - Secret Effects 08:322008Жанр: Psychedelic / ProgressiveПродолжительность: 01:10:54
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 478848   (98771) от 06.04.2012
-
-Black Sheep Wall - No Matter Where It Ends (2012) [MP3|320 кб/с]<Sludge Post-Metal / Hardcore>
+Lionville - Supernatural (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
 >>Rock, Alternative, Punk, Metal
->>Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98771.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101303.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Agnostic Demon (8:39)
- 02. Liminality (6:27)Жанр: Sludge Post-Metal / HardcoreПродолжительность: 00:59:58
+01. Heading For A Hurricane (4:32)
+02. Supernatural (3:57)
+03. Gone (4:45)
+04. Breakaway (4:51)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:52:04
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:9FE8F84871D57103ACBDC136FBB1F62E4789F894
+magnet:?xt=urn:btih:5046A9C6284E23349E55E944D18AE45F9B37168E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -656,25 +254,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478706   (98770) от 06.04.2012
+###  Публикация: 1765915   (101302) от 15.12.2024
 
-[Wallpapers] Computer Desktop Wallpapers Collection (06.04.12)
+Ultraboss - Slow Motion Rider (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Synthwave>
 
->>Архив торрентов
->>Архив Медиа-Диз-Графика
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98770.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101302.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Обои для рабочего стола
+01 - Ultraboss - Get The Heart In [00:04:13]
+02 - Ultraboss - Calling On Forever [00:03:27]
+03 - Ultraboss - Vienna Nightdrive [00:02:31]
+04 - Ultraboss - Slow Motion Rider [00:05:00](   Читать дальше...   )Жанр: SynthwaveПродолжительность: 00:54:18
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:E0640CD762F89935CFF4CC433834717727A0E3D4
+magnet:?xt=urn:btih:178E98C8911255467CC9A556A93E5F89D8BDA383
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -682,27 +283,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 479032   (98769) от 06.04.2012
+###  Публикация: 1765913   (101301) от 15.12.2024
 
-Журнал | АиФ. Спецвыпуск. Здоровье №3 [2012] [PDF]
+The LA Cowboys - Endless Summer (1993) Reissue, Remastered, 2024, Pride & Joy Music [FLAC|Lossless|image + .cue] <Pop Rock, AOR, Soft Rock>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98769.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101301.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Весна - это время, когда каждая женщина начинает с особым интересом и пристрастием разглядывать себя в зеркале. Хочется быть ещё более ухоженной, красивой, желанной. А что для этого необходимо? "АиФ" знает ответы на все вопросы и всегда старается помогать читателям.
-Сегодняшний спецвыпуск полностью посвящён вопросам ухода за собой. В нём вы найдёте ответы самых именитых врачей-косметологов на вопросы читателей "Аргументов и фактов".
-Что нужно для того, чтобы встретить весну во всеоружии? Подробности читайте в этом номере!2012Формат: PDF
+01. Tokyo Woman (5:20)
+02. Endless Summer (4:59)
+03. Aubree's Melody (4:38)
+04. Say You Love Me (4:35)(   Читать дальше...   )Жанр: Pop Rock, AOR, Soft RockПродолжительность: 00:44:46
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:F094B9CEB9C21A1123041FA8E34158CB1D81979A
+magnet:?xt=urn:btih:6EDD6CA8A8A46636CC02E4B118B6C4EA3B3BCF62
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -710,34 +312,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478831   (98768) от 06.04.2012
+###  Публикация: 1765903   (101300) от 15.12.2024
 
-VA - The Chillout Lounge (2012) [MP3|320 kbps]<Chillout | Downtempo | Lounge>
+Mason - I Can't Wait (2024) [FLAC|Lossless|image + .cue] <Melodic Rock, AOR>
 
->>Неофициальные сборники
->>Прочее (сборники)
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98768.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101300.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01 Rio Sound System - Over & Over
-02 Rafael Lopez - Gypsy Drums
-03 Court Out - My World (feat Mary Lee - d&b mix)
-04 Smokey Tone - Luna Generosa
-05 Losing Genius - Changing World
-06 Uru Mystic Quartet - After Hours
-07 Diego Clamente - Glimpse Of Home
-08 Iboshim Sounds - Sunset On The Water
-09 Brothers Moreno - Time Tracking
-10 Modern Science - Sax Control(   Читать дальше...   )2012Жанр: Chillout | Downtempo | LoungeПродолжительность: 04:51:26
+01. One Life (4:04)
+02. I Can't Wait (4:06)
+03. I'ts Okay To Cry (4:29)
+04. Turn Me Around (3:46)(   Читать дальше...   )Жанр: Melodic Rock, AORПродолжительность: 00:42:50
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:4F60EFD72478EA1DA5C8ACB5CE11196392E059F5
+magnet:?xt=urn:btih:587B51127F2E244291BA77B3FBFCE253B835B60E
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -745,25 +341,394 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 478800   (98763) от 06.04.2012
+###  Публикация: 1766005   (101299) от 15.12.2024
 
-Журнал | СтройПодряд №11 [апрель 2012] [PDF]
+VA - Redux Presents: The Finest Selection (Mixed by DJ Jayel) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
 
->>Архив торрентов
->>Архив Книг и обучающих материалов
+>>Electronic
+>>Trance
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_98763.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101299.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Еженедельный иллюстрированный рекламно-информационный журнал, на страницах которого Вы найдете статьи и интервью о строительстве и обустройстве дома, наглядные идеи по дизайну интерьера, полезные рекомендации и советы по выбору материалов и инструментов, пошаговые инструкции по ремонту, уходу за домом и участком, а также много полезной информации о новинках рынка, товарах и услугах по ремонту и строительству.апрель 2012Формат: PDF
+01. Petereese - Redrasoew (Extended Mix) (06:32)
+02. Cj Mover - 1st In Space (Extended Mix) (07:05)
+03. Lele Palmieri - Supernatural (Extended Mix) (07:01)
+04. Stnx - Remedy (Extended Mix) (06:32)(   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 05:38:49
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:03E5E80518A1ACD9FBCBD50BB2C16E47EE901517
+magnet:?xt=urn:btih:61C3486B6BFA3C268CE46BF4CD106151A093AB09
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765885   (101298) от 15.12.2024
+
+Gotus - Gotus (2024) Japanese Edition [FLAC|Lossless|image + .cue] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101298.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take Me To The Mountain (3:49)
+02. Beware Of The Fire (3:57)
+03. Love Will Find Its Way (5:52)
+04. Undercover (3:30)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FC069D68A35BD8E2D69009141949DC661869FFA0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765989   (101297) от 15.12.2024
+
+Ермак! - 3 Albums (2024) [FLAC 16,24/44.1,96|Lossless|WEB-DL|tracks] <Post-Hardcore, Emo-Core>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101297.jpg" />
+</div>
+
+
+###  Подробнее
+
+Список альбомов:
+Ермак! - 2024 - Дневник памяти FLAC (16,24bit-44.1,96kHz)
+Ермак! - 2024 - Не забывай (Ремиксы) FLAC
+Ермак! - 2024 - Русы валят рептилоидов (Ремиксы) FLACЖанр: Post-Hardcore, Emo-CoreПродолжительность: 3 CD, 01:07:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3CABD9F8644DF27C53899A007E6B25058E7AC82D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1766007   (101296) от 15.12.2024
+
+Четыре Апреля - Бездна (2021) [FLAC|Lossless|tracks] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101296.jpg" />
+</div>
+
+
+###  Подробнее
+
+✧ 01 - Это игра (00:03:29)
+✧ 02 - Выбора нет (00:04:05)
+✧ 03 - Летала душа (00:04:48)
+✧ 04 - Что будет с нами- (00:03:43)(   Читать дальше...   )Жанр: RockПродолжительность: 00:39:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1005FB74786F2AEA1284067F8ED552F8F05AB9C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765892   (101295) от 15.12.2024
+
+VA - The Orient Collective: Skylands (2024) [FLAC|Lossless|WEB-DL|tracks] <World, Ethnic, Oriental Folk>
+
+>>Other Styles
+>>Other (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101295.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Marco Da Mata - Aich (5:42)
+02. Indiano - Meditation (10:28)
+03. Kalico Jak - Sunlight Through the Treetops (9:04)
+04. 4Moon Music - Sofy (7:48)(   Читать дальше...   )Жанр: World, Ethnic, Oriental FolkПродолжительность: 01:14:20
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5FED498FA70FA3B38E35B48E0E0A0A357D4100E9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765944   (101294) от 15.12.2024
+
+Чудо техники с Сергеем Малозёмовым (15.12.2024) WEBRip [H.264/720p]
+
+>>Документалистика и Телепередачи
+>>Тележурналистика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101294.jpg" />
+</div>
+
+
+###  Подробнее
+
+Утепляемся технологично! В чем секрет одежды и обуви с мембраной? В каких случаях дорогая куртка не оправдает надежд покупателя? Большой тест гаджетов с подогревом для рук, ног и всего тела! Кокосовое масло: реклама обещает удивительную универсальность, но стоит ли на него тратиться?Телекомпания: НТВЖанр: ТелепередачаПродолжительность: 00:41:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E5B15FEB9C21489BAAA8B6564F5F5BAB9B2FE864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765939   (101293) от 15.12.2024
+
+Морис Монтегю | Интимная жизнь монархов. Король без трона (2009) [MP3, Игорь Мурашко]
+
+>>Художественные аудиокниги и публицистика
+>>Классика (аудиокниги)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101293.jpg" />
+</div>
+
+
+###  Подробнее
+
+Серия/Цикл: Интимная жизнь монархов.
+Морис Монтегю (1855–1911) – французский журналист и романист.
+Романы серии «Интимная жизнь монархов» пользовались большой популярностью в России конца XIX – начала XX века. Захватывающее переплетение подлинных исторических событий и подробное, «живое» описание известных исторических личностей, невероятные интриги всемогущих фаворитов (   Читать дальше...   )Жанр: Зарубежная литература, классика, авантюрно-исторический романПеревод: Елена СербинаИздательство: Нигде не купишьПродолжительность: 09:43:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8435C61B583D6671155CFD18BF730880C8105CE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765969   (101292) от 15.12.2024
+
+Смешанные единоборства. UFC on ESPN 63: Ковингтон vs. Бакли  / UFC on ESPN 63: Covington vs. Buckley (14.12.2024) HDTVRip [H.264/720p]
+
+>>Спорт и активный отдых
+>>Единоборства, Бои без правил
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101292.jpg" />
+</div>
+
+
+###  Подробнее
+
+Main card турнира "UFC on ESPN 63", прошедшего в Amalie Arena in Tampa, Florida, United States.Телекомпания: Матч!Жанр: Спорт, смешанные единоборстваЯзык озвучки: русскийПродолжительность: 02:54:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E2DD317345CEBB9D482432B13D9650D5785AFCC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765797   (101291) от 15.12.2024
+
+VA - The Remixes Chapter 1 (2024) [MP3|320 Kbps] <House, Progressive House>
+
+>>Electronic
+>>House
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101291.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. K Loveski & Gorkiz - Echos of Eons (Greenage Remix) [06:57]
+02. Andre Moret - Waltz of the Dew (Subandrio Remix) [07:56]
+03. Mind Echoes - Cold Forest (Dowden Remix) [07:23]
+04. Fel C - Suspension (Evegrem Remix) [07:04](   Читать дальше...   )Жанр: House, Progressive HouseПродолжительность: 01:53:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9414A5C40B617F50CC8C6FDFFDBCD157C05F81EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765936   (101290) от 15.12.2024
+
+НХЛ 2024-2025. Баффало Сэйбрз - Вашингтон Кэпиталз (14.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101290.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 декабря 2024, воскресенье. 03:00 МСК. Стадион: Кэпитал Уан-Арена (Вашингтон, США), 18 573 зрителя (100% при вместимости 18 573)
+Главный судья: Ти Джей Люксмор (Тимминс, Канада); Главный судья: Митч Даннинг (Текумсе, Канада); Линейный: Килиан МакНамара (Лейк Уорт, США); Линейный: Дерек Нансен (Оттава, Канада)Телекомпания: MNMTЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 01:58:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0835EE7C8282CAEE4C9C1DC2DE4CA6801DBBD73D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765934   (101289) от 15.12.2024
+
+НХЛ 2024-2025. Питтсбург Пингвинз - Оттава Сенаторз (14.12.2024) WEB-DLRip [H.264/720p] [hand made 60 fps] [EN]
+
+>>Спорт и активный отдых
+>>Хоккей
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101289.jpg" />
+</div>
+
+
+###  Подробнее
+
+15 декабря 2024, воскресенье. 03:00 МСК. Стадион: Канадиен Тайр-центр (Оттава, Канада), 18 892 зрителя (92% при вместимости 20 500)
+Главный судья: Брайан Почмара (Детройт, США); Главный судья: Майкл Маркович (Скарборо, Канада); Линейный: Биван Миллс (Суррэй, Канада); Линейный: Бен О'Куинн (Вудсток, Канада)Телекомпания: PITSNЖанр: Спорт, хоккейПеревод: ОтсутствуетЯзык озвучки: АнглийскийСубтитры: ОтсутствуютПродолжительность: 02:03:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2C852E13A19F7CD5AEB9CBD50ADD38C040E4CF4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765962   (101288) от 15.12.2024
+
+Deep South - Entering Deep (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Entering Deep (4:39)
+02. Waking Deep (4:17)
+03. Craig Bloxom - Heading Deep (5:07)
+04. Thinking Deep (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:36:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B7E36DCCC2B87BFC2F9A2EA79D8B40C48A6B2835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765991   (101287) от 15.12.2024
+
+Godless men - Awakened by the wolves (2024) [FLAC 24/48|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101287.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Where dark waters meet (4:14)
+02. Heads will roll (3:52)
+03. Awakened by the wolves (4:38)
+04. Masquerade (3:34)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B10288D3856C6E5C427CA281AE13AF5B5FB24E6F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1765961   (101286) от 15.12.2024
+
+BJ Ryan - Down the Rabbit Hole (2024) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_101286.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ride Away (4:11)
+02. Here We Go Again (3:58)
+03. Withstand It All (4:11)
+04. New Front Door (2:51)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:51:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:943E9B9600E78A3FEAE3A7254EFC3E6A1E51E70C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,148 @@
+###  Публикация: 1725094   (55606) от 23.05.2024
+
+VA - Trance 100 - 2024 [MP3|320 Kbps] <Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55606.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin van Buuren, Ferry Corsten, Rank 1 & Ruben De Ronde - Destination (A State Of Trance 2024 Anthem) (Extended Mix) (6:15)
+002. Ferry Corsten x Marsh - Fulfillment (Extended Mix) (7:02)
+003. Aly & Fila x Lostly - The Unknown (Extended Mix) (6:08)
+004. ARTBAT & Armin van Buuren - Take Off (Extended Mix) (5:55)(   Читать дальше...   )Жанр: Uplifting TranceПродолжительность: 09:57:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:719C1B93C59EF6FE41B4AF189DECB7C9013262B6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1729485   (53613) от 11.06.2024
+
+VA - Top 7 May 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53613.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ruslan Aschaulov & Sam Fletcher - Awakening (Original Mix) [7:53]
+02. D.J.G. & M.I.K! vs. Iain Mitchell - Watt If (Original Mix) [5:46]
+03. Andy Newtz & Olya Gram - Take Me To The Stars (Gayax Remix) [5:53]
+04. DJ Tranceair - Gilgamesh (Original Mix) [5:44](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:43:06
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FA5D247F66C77E74911F22F7ADC1F8911AA7DF1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1731292   (52683) от 20.06.2024
+
+VA - Costa - Vocal Trance Hits, Vol. 2 (2024) [MP3|320 Kbps] <Trance, Vocal Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52683.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Nicholas Gunn & Alina Renae - Older (Costa Remix) (03:32)
+02. Costa & Stine Grove - Higher Ground (Costa & Aurosonic Remix) (03:44)
+03. Costa & Stine Grove - Mirror of My Dreams (03:58)
+04. Costa & Cathy Burton - Far Beyond (Extended Mix) (07:07)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 04:29:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F362A690220DA8122BD09F8E11AD16B78832C074
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1821324   (52226) от 01.10.2025
+
+VA - Redux Selection, Vol. 10 / 2025 (2025) [MP3|320 Kbps] <Trance>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52226.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Sweet Euphoria - Dreamer (Extended Mix) [5:53]
+02. Damian Wasse - Rise Of Nation (Betibwe Extended Remix) [6:30]
+03. Christopher Maison - No Way Home (Extended Mix) [6:48]
+04. DJ Hollowbase - Naked Dreamer 77 (Extended Mix) [5:37](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:14:11
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC04D64391F750FF3E17BCC1F2A3DA5F47E7C7B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1733523   (51625) от 29.06.2024
+
+VA - Markus Schulz - Sunrise Set 2024 (Emotional Dance Mix) (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
+
+>>Electronic
+>>Trance
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_51625.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chicane - Early (Sunrise Set 2024) (Symphonic Rehearsal Mix) [2:09]
+02. Markus Schulz - Summer Of '99 (Sunrise Set 2024) [3:36]
+03. Stu McNally - Innerversions (Sunrise Set 2024) [3:51]
+04. Estiva - Mesa (Sunrise Set 2024) [3:36](   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 04:00:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C006817FDFEF04E43524B4EF39E8A93413BE1128
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1737115   (49804) от 16.07.2024
 
 VA - A State Of Trance Radio Top 50 - 2024, Vol. 2 (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
@@ -597,151 +742,6 @@ VA - Entrance Music Legends Top 25 (2024) [MP3|320 Kbps] <Trance>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:477E6E0433C233E09358FDA07C6AFF8E235BAA37
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1752817   (41702) от 02.10.2024
-
-VA - Top 10 August 2024 Emotional and Uplifting Trance (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_41702.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. SME - I Miss You (Original Mix) [4:51]
-02. D.J.G. & M.I.K! - Who You Are (Original Mix) [4:11]
-03. Kvaii - Iridescent (POINoir Remix) [7:00]
-04. Stereorandom - Paradise (Original Mix) [6:15](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 00:57:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F882051E5C561B308E1B8084DC78BE91AF95CD3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1754230   (40872) от 09.10.2024
-
-VA -  Dance to Trance Amsterdam 2024 (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40872.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Djcincinati & NELLY TGM - Your Silence [7:38]
-02. Irregular Ratio - The Way Out (Extended Mix) [5:03]
-03. Ray Van Miles & Landi - Stars (Extended Mix) [6:46]
-04. W A T T O - Activate [3:54](   Читать дальше...   )Жанр: TranceПродолжительность: 03:09:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:35A25661396F03EAB7C17BDA91F896316F9AF7E6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755596   (40169) от 16.10.2024
-
-VA - FSOE ADE Compilation (2024) [MP3|320 Kbps] <Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40169.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Aly & Fila & Philippe El Sisi & Omar Sherif with Jaren - Count On Me (Extended Mix) [8:57]
-02. Billy Gillies - Closed Eyes (Extended Mix) [6:11]
-03. Paul Denton - The Code (Extended Mix) [6:39]
-04. Alex M.O.R.P.H. - Arcadia (Extended Mix) [6:10](   Читать дальше...   )Жанр: TranceПродолжительность: 02:16:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DC40B19E76FFECBEDB70A7B92A23DC1BAE831175
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1755762   (40093) от 17.10.2024
-
-VA - Uplifting Only Top 15: October 2024 (Extended Mixes) (2024) [MP3|320 Kbps] <Trance, Uplifting Trance>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_40093.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Darkingz - Stay Forever (Intro Mix) [5:45]
-02. William Silva & NELLY TGM - I Belong To Heaven (Extended Mix) [5:52]
-03. Dmitriy Kuznetsov - Elven Wind (Extended Mix) [6:31]
-04. Db Mokk & DNY'L - I Still Breathe (Extended Mix) [5:55](   Читать дальше...   )Жанр: Trance, Uplifting TranceПродолжительность: 01:41:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F3A3BE2678AED940AF9FDAA131497FB6BCBDCA48
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1756588   (39573) от 22.10.2024
-
-Kyau & Albert - All in Good Time (2024) [MP3|320 Kbps] <Trance, Progressive, Electronic>
-
->>Electronic
->>Trance
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_39573.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Kyau & Albert - Morning Glimmer (04:11)
-02. Kyau & Albert & Steve Brian - Dreaming Awake (DJ Version) (05:32)
-03. Kyau & Albert - All in Good Time (DJ Version) (06:12)
-04. Kyau & Albert - Chimera (DJ Version) (05:53)(   Читать дальше...   )Жанр: Trance, Progressive, ElectronicПродолжительность: 01:28:18
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0C6006842C0F5B6F8BDCA0656C13CBB06DF9F70B
 ```
 
 https://mybot314.ru/tekegram_catalog/

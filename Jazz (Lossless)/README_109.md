@@ -1,3 +1,61 @@
+###  Публикация: 1135030   (685231) от 17.05.2017
+
+Duke Ellington - Play 22 Original Big Band Hits (1946 - 1947) 1987, Hindsight Records [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685231.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Take the 'A' Train (Theme) [03:04]
+02. Crosstown [02:49]
+03. Passion Flower [03:34]
+04. Perdido [02:26](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:09:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9CB7DC8FF0414325F036D10B09FE713491C7B738
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1135026   (685230) от 17.05.2017
+
+Duke Ellington - Ellington '56 (1986) Charly [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_685230.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. East St. Louis Toodle-Oo [03:32]
+02. Creole Love Call [03:48]
+03. Stompy Jones [03:54]
+04. The Jeep Is Jumpin' [02:27](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 01:04:01
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BD9098495D2E1A24EB0BB365141CEEC16801CC0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1135046   (685228) от 17.05.2017
 
 Duke Ellington - Never-Before-Released Recordings (1965 - 1972) 1991, Limelight [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
@@ -690,64 +748,6 @@ CD1:
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FA8E42D81955E56DF1C1898D16AD1E58CFFAE943
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135276   (683058) от 18.05.2017
-
-Steve Kuhn Trio - At This Time... (2017) Sunnyside [FLAC|Lossless|tracks + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683058.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. My Shining Hour [06:33]
-02. Ah Moore [09:20]
-03. The Pawnbroker [06:10]
-04. All the Rest is the Same [07:34](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 00:58:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:599DACBBEA1602BA9A14BE57AE001F089420C584
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1135244   (683053) от 18.05.2017
-
-Duke Ellington - The Best of Duke Ellington (1991) Pablo [FLAC|Lossless|tracks + .cue] <Swing, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_683053.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Bateau [05:27]
-02. Sophisticated Lady [05:02]
-03. Goof [03:16]
-04. Black Butterfly [03:44](   Читать дальше...   )Жанр: Swing, Big BandПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DABE563DC666929257B19494C197C55B60BA4B12
 ```
 
 https://mybot314.ru/tekegram_catalog/

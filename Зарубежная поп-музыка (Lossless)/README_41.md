@@ -1,3 +1,235 @@
+###  Публикация: 1292937   (643068) от 31.03.2019
+
+VA - 538 Hitzone 88 (2019) [FLAC|Lossless|tracks + .cue] <Pop, Rock, Folk, World>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_643068.jpg" />
+</div>
+
+
+###  Подробнее
+
+Достаточно давно на трекере не появлялись релизы этой популярной Нидерландской студии Радио 538. Продолжаем в этом году серию новым выпуском свеженьких новинок популярной музыки. Как указано на их сайте все хиты с этих дисков должны пополнить вашу коллекцию.01. Mark Ronson - Nothing Breaks Like A Heart  (3:37)
+02. Nielson - IJskoud  (3:31)
+03. Rita Ora - Let You Love Me  (3:11)
+04. Panic! At The Disco - High Hopes  (3:12)(   Читать дальше...   )Релиз состоялся: 01 марта 2019 г.Жанр: Pop, Rock, Folk, WorldПродолжительность: 01:17:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:389FC4854CB0969A789B24324A88F820FAEA05B8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142245   (642977) от 14.06.2017
+
+Billy Ocean - Suddenly (Japanese Pressing) (1984) 1989,  JRCD 8213 [APE|Lossless|image + .cue] <Funk, Soul, Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642977.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Caribbean Queen (No More Love On The Run) [0:07:55.55]
+2. Mystery Lady [0:05:02.70]
+3. Syncopation [0:05:22.25]
+4. The Long And Winding Road [0:04:43.62](   Читать дальше...   )Жанр: Funk, Soul, PopПродолжительность: 44:57:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D45CDA6CE5B4C3FC395C0D9996A60F4BCDDBA056
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1142210   (642829) от 14.06.2017
+
+Supermax - Spirits Of Love (1996) [APE|Lossless|image + .cue] <Disco, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_642829.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Loversnight [05:43.62]
+02. Love Is Deeper [03:51.38]
+03. I Need You [04:24.50]
+04. I Wonder Why [04:33.50](   Читать дальше...   )Жанр: Disco, ReggaeПродолжительность: 00:54:27
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B27DA998D3C7BBF8E8095E01D9D21EA75248306
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032730   (641902) от 09.07.2016
+
+Shura - Nothing's Real (2016) [FLAC|Lossless|WEB-DL|tracks] <80's Synthpop, Indietronica, Female Vocal>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641902.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. (i)
+02. Nothing's Real
+03. What's It Gonna Be?
+04. Touch(   Читать дальше...   )Жанр: 80's Synthpop, Indietronica, Female VocalПродолжительность: 00:58:39
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2E1AC73824F65761388CF6A79EBA771DF78AFA2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906303   (641623) от 10.06.2015
+
+The Supremes - At The Copa: Expanded Edition (2012) 2CD [FLAC|Lossless]<Pop, Soul>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641623.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1
+ORIGINAL STEREO LP (1965)
+1. Opening Introduction
+2. Put On A Happy Face(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 02:01:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C56DFA77C95BBBED1FCAC309C38D00816C5E7CCF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 905846   (641520) от 10.06.2015
+
+Tom Jones - Delilah (2015) [FLAC|tracks+.cue]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641520.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Delilah
+02. Help Yourself
+03. She's A Lady
+04. What's New Pussycat(   Читать дальше...   )Жанр: PopПродолжительность: 00:30:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29F6BAAF62C249BD93E450365DE54E004D516E44
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 906976   (641476) от 10.06.2015
+
+Rick Astley - The Best Of (2014) [FLAC|Lossless]<Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_641476.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Never Gonna Give You Up
+02. Whenever You Need Somebody (Radio Edit)
+03. When I Fall In Love
+04. My Arms Keep Missing You(   Читать дальше...   )Жанр: PopПродолжительность: 01:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:44F17E5BFE9E8F2A58FB70424974BB96AB8956A6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1228082   (640932) от 29.05.2018
+
+Charles Aznavour - Mélodies inoubliables (2018) [FLAC|Lossless|WEB-DL|tracks] <French Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_640932.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Je m'voyais deja
+02. Jezebel
+03. Heureux avec des riens
+04. Il faut savoir(   Читать дальше...   )Жанр: French PopПродолжительность: 00:57:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FB5F16B730FA2C862D873A7CF408072206F31E95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1541936   (640872) от 05.04.2022
 
 Bananarama - Discomania (2005) [FLAC|Lossless|tracks + .cue] <Pop>
@@ -516,238 +748,6 @@ Britney Spears feat. G-Eazy - Make Me (2016) Single [FLAC|Lossless|WEB-DL|track]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1264EE03FD48E4EA2F89233B33E689B4025FD14D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294512   (628361) от 08.04.2019
-
-Lena - Only Love, L (2019) [FLAC|Lossless|WEB-DL|tracks] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628361.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. dear L
-02. thank you
-03. private thoughts
-04. scared(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 00:45:29
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:40901233AD7C2311037FD84C2A3A9F3EAD3E4F4E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1294642   (628251) от 08.04.2019
-
-Bonnie Tyler - Between The Earth And The Stars (2019) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_628251.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hold On
-02. Battle Of The Sexes (Feat. Rod Stewart)
-03. Slow Walk
-04. Seven Waves Away(   Читать дальше...   )Жанр: PopПродолжительность: 00:48:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:56AC673E73AED26F165703F145DB3448A24DD88F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1229347   (627943) от 05.06.2018
-
-Lana Del Rey - Lust for Life (2017) [FLAC|Lossless|image + .cue] <Pop, Indie Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627943.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Love (04:33)
-02. Lust for Life (feat. The Weeknd) (04:23)
-03. 13 Beaches (04:55)
-04. Cherry (03:00)(   Читать дальше...   )Жанр: Pop, Indie PopПродолжительность: 01:12:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C4202545827974172382308AC54CBEB6AEA09299
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144616   (627491) от 22.06.2017
-
-Neil Sedaka - The Real... Neil Sedaka (The Ultimate Collection) (2014) 3CD [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627491.jpg" />
-</div>
-
-
-###  Подробнее
-
-Disc 1
-01. The Diary
-02. I Go Ape
-03. Oh! Carol(   Читать дальше...   )Жанр: PopПродолжительность: 02:29:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:532DC503B934305442A2AC53ED012E27E179B53F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144438   (627489) от 22.06.2017
-
-All Time Low - Last Young Renegade (2017) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627489.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Last Young Renegade
-02. Drugs & Candy
-03. Dirty Laundry
-04. Good Times(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:36:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C83138A56D51917A057A4B79C6F10E732660A1F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1144390   (627234) от 22.06.2017
-
-Katy Perry - Witness (Japanese Deluxe Edition) (2017) [FLAC|Lossless|tracks + .cue] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_627234.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Witness (4:11)
-02. Hey Hey Hey (3:35)
-03. Roulette (3:19)
-04. Swish Swish (4:03)(   Читать дальше...   )Жанр: PopПродолжительность: 01:05:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:210857D1A52F8811311A78CD4D768B9360958440
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035236   (626710) от 17.07.2016
-
-Dicte - Perfume (2016) [FLAC|Lossless|tracks + .cue] <Pop, Soul>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626710.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Don't Wanna Lie
-2. All I Want Is You
-3. Mama Said
-4. Stronger(   Читать дальше...   )Жанр: Pop, SoulПродолжительность: 0:38:16
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:92A3A5547956D83C1026C658679AF509141919D5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1035580   (626505) от 17.07.2016
-
-Arabesque - Greatest Hits Volume 1 (1993) Unofficial Release [APE|Lossless|image + .cue] <Disco>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_626505.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hello Mr. Monkey
-02. Fly High Little Butterfly
-03. Buggy Boy
-04. Friday Night(   Читать дальше...   )Жанр: DiscoПродолжительность: 01:06:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4F2E5E8C05BC74F307B5E666A10DDE023DB8FCE
 ```
 
 https://mybot314.ru/tekegram_catalog/

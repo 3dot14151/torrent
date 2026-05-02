@@ -1,3 +1,32 @@
+###  Публикация: 970300   (143843) от 29.12.2015
+
+Polydeluxe - Behind The Backdoor (2015) [MP3|320 кб/с] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_143843.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Backdoor (04:12)
+02. Runaway (03:41)
+03. Memphis (05:05)
+04. Pack Of Lies (03:57)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB40ECBAF09FE4F58A7405BA0DB90B2962FCCFC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 969815   (143765) от 29.12.2015
 
 Child - Child (1969) [MP3|320 кб/с] <Psychedelic Rock>
@@ -773,41 +802,6 @@ Raccomandata Ricevuta Ritorno - Il Pittore Volante (2010) [MP3|320 кб/с]<Prog
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5E5B93E6B7BE850D9E20C44BAC919B987853F3F0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 489029   (129239) от 28.04.2012
-
-Winter In Eden - Echoes Of Betrayal (2012) [MP3|256 кб/с]<Symphonic/Gothic Metal/Female Vocals>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_129239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. For The Few 04:51
- 02. Possession 04:46
- 03. The Awakening: Chapter III-Regret 05:12
- 04. The Awakening: Chapter IV-Torment 04:34
- 05. The Awakening: Chapter V-Descension 03:55
- 06. Trapped 04:42
- 07. Lies 03:22
- 08. Suffer In Silence 04:48
- 09. Eyes Of A Child 03:12
- 10. Whan We Leave Behind 04:37(   Читать дальше...   )2012Жанр: Symphonic/Gothic Metal/Female VocalsПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4E776C4CE8F58B975186A1A880304C266096B05D
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,253 @@
+###  Публикация: 570249   (391266) от 04.11.2012
+
+[Wallpapers] Avto Desktop Wallpapers Pack 4
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391266.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Avto Desktop Wallpapers Pack 4
+Название: Avto Desktop Wallpapers Pack 4
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1200
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2DB0D3BBABEC420EA53727B2F8EE9E8A83B38FBC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570063   (391262) от 04.11.2012
+
+Журнал | Самая. Спецвыпуск №6 Звёздная любовь (ноябрь 2012) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391262.jpg" />
+</div>
+
+
+###  Подробнее
+
+Спецвыпуск посвящен знаменитым людям и рассказывает о том, как складывались их семейные отношения.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FC93D02897ED1779631A1F4C540717B0AE55404
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173120   (391238) от 10.10.2017
+
+Comodo Dragon 58.0.3029.115 + Portable [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391238.jpg" />
+</div>
+
+
+###  Подробнее
+
+Быстрый браузер на базе технологии Chromium с дополнительными функциями, повышающими безопасность. Обеспечивает повышенную конфиденциальность, имеет технологию проверки доменов, которая идентифицирует и выделяет превосходящие сертификаты SSL из низших, останавливает куки и другие веб-шпионы, а также предотвращает все прослеживания загрузки браузера.Язык интерфейса: Русский, Английский, др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EACEA34533389DD766DC4E8C5F1A74A226CBCE4B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172769   (391237) от 10.10.2017
+
+Спортивная гимнастика. Чемпионат Мира 2017. Монреаль (Канада). Женщины. Личное многоборье. Финал (06.10.2017) HDTVRip [H.264/720p-LQ] [hand made 50fps]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391237.jpg" />
+</div>
+
+
+###  Подробнее
+
+07 октября 2017 года, суббота. 02:00 МСК
+Чемпионат Мира по спортивной гимнастике 2017. Монреаль (Канада)
+Женщины. Личное многоборье. Финал
+Стадион: 	Олимпийский (Монреаль, Канада)Телекомпания: Матч! Арена HDЖанр: СпортЯзык озвучки: РусскийСубтитры: отсутствуютПродолжительность: 01:59:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1B7930B78C7854E2CEFC048936106B307C7CC7BE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173080   (391235) от 10.10.2017
+
+GoodSync Enterprise 10.6.2.4 RePack (& Portable) by elchupacabra  [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391235.jpg" />
+</div>
+
+
+###  Подробнее
+
+GoodSync - программа из серии высоконадежного, удобного и простого в использовании программного обеспечения от компании Siber Systems - разработчика RoboForm. Программа автоматически синхронизирует и делает резервные копии документов, фотографий, музыкальных файлов, электронных писем. Синхронизация производится между любыми носителями, как подключенными непосредственно (   Читать дальше...   )Язык интерфейса: Русский, английский, украинский, белорусский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3D7CD513937E2A71C8EC1EB482103BD5AB81084D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1172387   (391234) от 10.10.2017
+
+VA - Just Dance, The Dance (2017) [MP3|320 Kbps] <Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Veselin Tasev - Blue Sky (Extended Club Mix)  6:03
+02.  ToneArt - Star Chime (Original Mix)  7:11
+03.  Van der Karsten - Take Me Home (Single Edit)  3:41
+04.  Cryostasis - Never Ever (Enhanced Radio Edit)  3:04(   Читать дальше...   )Жанр: TranceПродолжительность: 06:06:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:190B2A05986DAD9BEC63F0C9FDAF3AABC90AD5CD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1173064   (391231) от 10.10.2017
+
+Hands Off! 3.2.4 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391231.jpg" />
+</div>
+
+
+###  Подробнее
+
+Hands Off! - контроль доступа в Интернет
+Этот функциональный и простой в использовании инструмент для платформы OS X может использоваться для мониторинга активности приложений, способных устанавливать подключение к Интернету. Благодаря Hands Off! пользователь сможет своевременно обнаружить признаки вредоносной или потенциально опасной деятельности, исключить вероятность (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09.10.2017Разработчик: One Periodic Inc.Поддерживаемая ОС: macOS 10.9.5 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A16362F2633C557E6E46D0D0B053DAE8B1F9F1E6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 717249   (391207) от 01.11.2013
+
+Журнал | Тайны ХХ века [Украина] №42 (октябрь 2013) [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391207.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9F33665F2AF1B9C6CD19DF382CF610930F006F8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 570059   (391201) от 04.11.2012
+
+[Wallpapers] Desktop Wallpapers Pack 19
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391201.jpg" />
+</div>
+
+
+###  Подробнее
+
+[Wallpapers] Desktop Wallpapers Pack 19
+Название: Desktop Wallpapers Pack 19
+Тип раздаваемого: Wallpapers
+Разрешение файлов: 1920x1080 - 2560х1600
+Количество:
+Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CACF5DF5571735E590909767B42C93A7D05BA96E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 570029   (391200) от 04.11.2012
 
 HQ Wallpapers Perfect Women (03.11.12) [Wallpapers 16+]
@@ -479,274 +729,6 @@ Serial Box 11-2013 [En]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:384B88BDD0A33DDED8AFE1C7E2945020DC85C1F6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570064   (391054) от 04.11.2012
-
-Michael Brant Demaria - Solace (2012) [MP3|320 кб/с]<New age, Relax>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391054.jpg" />
-</div>
-
-
-###  Подробнее
-
-(7:38) 01. Healing Heart
-(4:22) 02. Twilight
-(6:04) 03. Ja-neb'a
-(5:24) 04. Spring of Solace
-(4:52) 05. Gaia
-(5:30) 06. Journey Within
-(9:17) 07. Anam Cara
-(3:30) 08. Danu
-(8:38) 09. The Way Beyond
-(4:44) 10. Asase YaaЖанр: New age, RelaxПродолжительность: 00:59:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B69E04D76994BCB3B56BF1A95F0C1DF9A95DBB9E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570252   (391052) от 04.11.2012
-
-[Wallpapers] Anime Desktop Wallpapers Pack 6
-
->>Архив торрентов
->>Архив Аниме
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391052.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Anime Desktop Wallpapers Pack 6
-Название: Anime Desktop Wallpapers Pack 6
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х900 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:41C80650525E706F00652669AD61856239171EF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569893   (391048) от 04.11.2012
-
-VA - Armada Top 15 (2011-2012) [MP3|320 кб/с]<Trance>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391048.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Orjan Nilsen - Go Fast (Original) (8:54)
-02. Matisse & Sadko - Hi Scandinavia (Original) (6:28)
-03. Shogun ft Emma Lock - Run To My Rescue (7:55)
-04. Sean Tyas - Banshee (Original) (7:36)
-05. Solid Globe - North Pole (Giuseppe Ottaviani Remix) (6:47)
-06. Adham Ashraf & Manny Suarez - Mind Seduction (StoneBridge Re-Edit) (5:49)
-07. Mike Foyle pres Statica - Head Rush (Original) (9:00)
-08. The King & The Thief - The Blacksmith (Klauss Goulart Remix) (7:21)
-09. Bas van Essen - Memento (Original) (6:09)
-10. Roger Shah & Ross Lara ft Todd Wright - Lay Down (Roger Shah Mix) (7:12)(   Читать дальше...   )Жанр: TranceПродолжительность: 01:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D286D5B4EDB1EF47C87AFD11278DA8CD12F66593
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 569584   (391047) от 04.11.2012
-
-Greyson Chance - Hold On 'Til The Night (2011) [MP3|320 кб/с]<Pop>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391047.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Waiting Outside the Lines
-02. Unfriend You
-03. Home Is In Your Eyes
-04. Hold On ‘Til The Night
-05. Heart Like Stone
-06. Little London Girl
-07. Cheyenne
-08. Summertrain
-09. Stranded
-10. Take A Look At Me NowЖанр: PopПродолжительность: 00:36:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4A1F379F9C692DFC188D7E276BBD92685505D8CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 570260   (391037) от 04.11.2012
-
-Континентальные Наземные Силы / Continental Ground Forces (04.11.12) [Графика]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391037.jpg" />
-</div>
-
-
-###  Подробнее
-
-Разные Фото Разных Стран которые принимали участие в боевых операций в разных континентов.
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:50D30D1639636EC41F0B710966140D1092138A3C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173176   (391036) от 10.10.2017
-
-Adobe Flash Player 27.0.0.159 Final [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391036.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:625FDE2A7F106F15E8441FFE57EED85F2684BDA0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173148   (391032) от 10.10.2017
-
-Opera 48.0.2685.39 Stable RePack (& Portable) by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391032.jpg" />
-</div>
-
-
-###  Подробнее
-
-Веб-браузер Opera - это один из самых быстрых, безопасных и простых в использовании из имеющихся в распоряжении пользователей браузер. Браузер Opera удовлетворит все ваши потребности – будь то эффективная работа, интересные развлечения или самовыражение. Веб-браузер Opera отличается богатым набором готовых функций, которые и привлекают пользователей, которые хотят (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E833E74C18B3FEA7E954E564DF74A08720B3F7A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173036   (391031) от 10.10.2017
-
-Adobe Flash Player 27.0.0.159 Final [3 в 1] RePack by D!akov [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391031.jpg" />
-</div>
-
-
-###  Подробнее
-
-Adobe® Flash® Player - плагин для браузеров Internet Explorer, AOL, Firefox, Mozilla, Netscape и Opera, позволяющий проигрывать Flash-ролики (файлы SWF). Без этой программы браузер будет некорректно отображать веб-страницы и интерактивные веб-элементы, разработанные по технологии Flash. Adobe® Flash® Player — это межплатформенная среда выполнения на основе браузера (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9AB745910B59160FDFE697288B38EA8F919BF80F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1173094   (391024) от 10.10.2017
-
-DaVinci Resolve Studio 14.0.1+ easyDCP [En]
-
->>Архив торрентов
->>Архив 4Apple
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_391024.jpg" />
-</div>
-
-
-###  Подробнее
-
-Самый современный набор инструментов для монтажа, цветокоррекции и обработки звука в одном приложении
-В производстве художественных фильмов и телесериалов систему DaVinci Resolve используют чаще других программных продуктов, потому что она позволяет выполнить грейдинг на исключительно высоком уровне.
-
-Сравнительно недавно в нее были добавлены средства профессионального (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 09 октября 2017Разработчик: Blackmagic DesignПоддерживаемая ОС: macOS 10.12 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7870EC38A8579F01D7C464D5C79729AF3813E37E
 ```
 
 https://mybot314.ru/tekegram_catalog/

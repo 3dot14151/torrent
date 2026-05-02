@@ -1,3 +1,61 @@
+###  Публикация: 1013132   (776958) от 06.05.2016
+
+Davina and The Vagabonds - Nicollet and Tenth (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz, Blues, Folk, New Orleans>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Knock Me a Kiss
+02. Black Cloud
+03. Sunshine
+04. Ain't That a Shame(   Читать дальше...   )Жанр: Vocal Jazz, Blues, Folk, New OrleansПродолжительность: 01:06:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C49CB0932EA6F87B33852E998B0AEFC7089A5E5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1013775   (776949) от 06.05.2016
+
+VA - Jazzland of New Orleans (2016) [FLAC|Lossless|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_776949.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rodriguez Jose - Chattanooga Choo Choo (Live) 2:20
+02. New Set Music - Pohlkranzchen 4:56
+03. Piet Gorecki - Same Old Story / Escape - Trio 6:10
+04. Horst Grabosch Quintett - Changing the Bars 7:14(   Читать дальше...   )Жанр: JazzПродолжительность: 01:51:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C4A64C4FBF8A4820D613E2BC86EE7245BBB7B011
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1013129   (776940) от 06.05.2016
 
 Cheryl Bentyne - Lost Love Songs (2016) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
@@ -687,64 +745,6 @@ Lyn Stanley - Interludes (2015) [FLAC|Lossless|WEB-DL|tracks] <Vocal Jazz>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F3C8FD55A0B7E837DF97549DF4D239BF390E8F24
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1277804   (775164) от 22.01.2019
-
-John Coltrane - Gold (1957 - 1964) 2CD, 2006, Hip-O Records [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_775164.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01. Blue Train [10:44]
-02. Giant Steps [4:46]
-03. Naima [4:24](   Читать дальше...   )Жанр: Hard BopПродолжительность: 02:05:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D545C53983D62F142B0E00E33B1A9322D7C62CED
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1015416   (774995) от 10.05.2016
-
-Curtis Fuller - Four On The Outside (1978) Remaster, 2015, Solid Records[FLAC|Lossless|tracks + .cue] <Hard Bop, Mainstream Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_774995.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Four On The Outside [04:55]
- 02.Suite Kathy [13:05]
- 03.Hello Young Lovers [05:12]
- 04.Little Dreams [07:50](   Читать дальше...   )Жанр: Hard Bop, Mainstream JazzПродолжительность: 00:46:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6D9F25541F2A336606429D5259A67324E3847188
 ```
 
 https://mybot314.ru/tekegram_catalog/

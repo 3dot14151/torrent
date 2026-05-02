@@ -1,3 +1,201 @@
+###  Публикация: 1383549   (810122) от 16.05.2020
+
+Daniel Waples & Friends (Hang In Balance) - 'Lisn (2013) [FLAC|Lossless|Web-DL|tracks] <Experimental, Chillout, Hang Drum>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810122.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Petit Son (5:59)
+02. Hang Out Back (featuring Martin Cradick) (3:50)
+03. Lago (5:29)
+04. Bello Revive (5:26)(   Читать дальше...   )Производство: Street RitualЖанр: Experimental, Chillout, World Music, Hang DrumПродолжительность: 00:46:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B1711633D528E741473BE0B76C11E50D93F6182
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009106   (810040) от 21.04.2016
+
+Myristica - Waiting for Yesterday (2014) [FLAC|Lossless|tracks] <New Age, Ambient>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_810040.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Existence    03:20
+02. Once Upon a Dream    05:43
+03. When the Wind Blows    03:16
+04. Soul Searcher    03:53(   Читать дальше...   )Жанр: New Age, AmbientПродолжительность: 00:51:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BB661F4CD47B99250FCDD3B3F62823F4FB3BB3D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 210245   (809667) от 21.04.2016
+
+Медвежий Угол - Доза тепла (2005) [MP3|320 kbps]<Folk-Rock>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_809667.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Folk-RockПродолжительность: 42:28
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383807   (808139) от 17.05.2020
+
+The Soft Music Box - Classic Piano Lullabies - U.S. Edition (2020) [FLAC|Lossless|WEB-DL|tracks] <Piano, Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808139.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Are You Sleeping
+02. Hush Little Baby
+03. All The Pretty Little Horses
+04. Incy Wincy Spider(   Читать дальше...   )Жанр: Piano, Instrumental, Easy ListeningПродолжительность: 00:48:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:861C82C5FEF96ED4AD2FA15B1E7FD7FBF7560C5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1009475   (808110) от 22.04.2016
+
+Trailer Radio - Country Girls Ain't Cheap (2016) [MP3|320 кб/с] <Country>
+
+>>Other Styles
+>>Folk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_808110.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Granny's Got the Baby (Cause Mama's Doin' Time) (03:42)
+02. Country Girls Ain't Cheap (04:09)
+03. Dirt Queen (04:30)
+04. Woe Is Me (04:23)(   Читать дальше...   )Жанр: CountryПродолжительность: 00:35:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED64DA8CF560CCFE48C11718DACD410B2CDB1F79
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1383507   (807999) от 17.05.2020
+
+Dr. Jeffrey Thompson - Ambient Music For Sleep (2004) [FLAC|Lossless|tracks + .cue] <New Age, Ambient, Healing>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807999.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ambience (29:32)
+02. Ethereal Dreams (30:23)Жанр: New Age, Ambient, HealingПродолжительность: 00:59:54
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:69B332EF11C5B2803A37E48ECA7C1AE52F46EAD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 732511   (807566) от 17.05.2020
+
+The Greatest Saxophone Hits Ever - Golden Saxophone (1994) [FLAC|Lossless] <Easy Listening, Instrumental>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_807566.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Y Volvere 			(04:11)
+02. Senora Bonita		(02:31)
+03. Sombras 			(02:32)
+04. Sin Ti 			(03:56)(   Читать дальше...   )Жанр: Easy Listening, InstrumentalПродолжительность: 00:36:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1BDA68C6341FB0F27A5E4FB08F1FCC7FFCE787B4
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1119439   (807489) от 28.03.2017
 
 VA - Cafe India Lounge (Retail 2006) (2006) [MP3|~190 Kbps (V2)] <New Age, Lo-Fi, Lounge>
@@ -541,209 +739,6 @@ Lele Marchitelli, VA - The Young Pope / Молодой Папа (Original Soundt
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:644964A2545F3E1E2B8008CC5274DF58AFB5D634
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119942   (805362) от 29.03.2017
-
-VA - Acoustic Covers The Album (2017) [MP3|320 Kbps] <Downtempo, Chillout, Instrumental>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805362.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Alexa Goddard - Say You Won't Let Go
-02. Adam Christopher - Shape of You
-03. Sleeping At Last - As Long as You Love Me
-04. John Adams - I'm Like a Bird(   Читать дальше...   )Жанр: Downtempo, Chillout, InstrumentalПродолжительность: 01:04:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5F7D03C102FFB15A9825D571B33FB6CBAA872AB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119732   (805255) от 29.03.2017
-
-Jeff Russo - Legion / Легион (Original Television Series Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805255.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Young David (05:06)
-02. David in Clockworks (00:46)
-03. 174 Hours (08:47)
-04. Seeing Things Hearing Things (04:53)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:15:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F954D1F9F3B78163727397FED7865EB79D418399
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119630   (805242) от 29.03.2017
-
-Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805242.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survival of the Fittest (02:24)
-02. Baby Brother (03:58)
-03. Welcome to Baby Corp (03:12)
-04. You Can't Get Away from Johnny Law (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FBA47AB3D833458B7F3FFB2421A8021A107A898E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119767   (805123) от 29.03.2017
-
-Clinton Shorter - The Expanse / Пространство - Season One (Original Television Soundtrack) (2016) [MP3|320 кб/с]<Soundtrack>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805123.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Expanse (01:04)
-02. Hostage (03:13)
-03. Signal (02:10)
-04. Welwala (02:17)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 00:46:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F0D34BC278818AABA31C62F21E7D9C621222A4A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119632   (805015) от 29.03.2017
-
-Hans Zimmer & Steve Mazzaro - The Boss Baby / Босс-молокосос (Music From the Motion Picture) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805015.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Survival of the Fittest (02:24)
-02. Baby Brother (03:58)
-03. Welcome to Baby Corp (03:12)
-04. You Can't Get Away from Johnny Law (02:12)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:06:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:28F9D3FB3C4F89AF53ECFAC62E50A92AB33754D3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119978   (805013) от 29.03.2017
-
-VA - Kong: Skull Island / Конг: Остров черепа (Unofficial Soundtrack) (2017) [MP3|320 кб/с]<Rock, Rock & Roll, Jazz>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805013.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Chambers Brothers - Time Has Come Today (11:02)
-02. Minh Xuan & Phuong Hoang - Mat Troi Den (Black Sun) (03:03)
-03. Jefferson Airplane - White Rabbit (02:31)
-04. The Hollies - Long Cool Woman (In A Black Dress) (03:18)(   Читать дальше...   )Жанр: Rock, Rock & Roll, JazzПродолжительность: 00:39:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E36BBEDDCB291A1E6208848EDB4E2C9FB48178E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1119784   (805006) от 29.03.2017
-
-Alain Johannes - Tom Clancy's Ghost Recon Wildlands (Original Game Soundtrack) (2017) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_805006.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Wildlands (04:05)
-02. Night Encounters (05:35)
-03. Koani Salt Flats (00:53)
-04. Hunting La Santera (03:25)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:40:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB40C1AF89EF560FC9072B84A1BA72631F28F15B
 ```
 
 https://mybot314.ru/tekegram_catalog/

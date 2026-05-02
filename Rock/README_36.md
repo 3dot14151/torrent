@@ -1,3 +1,32 @@
+###  Публикация: 906300   (645881) от 08.06.2015
+
+Terramater - Protheus (2015) [MP3|320 кб/с]<Progressive Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_645881.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Chief (4:29)
+02. Destiny (3:49)
+03. Queen (3:11)
+04. War (6:34)(   Читать дальше...   )Жанр: Progressive RockПродолжительность: 00:45:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8EDB89BD12F04B0A4B29689FF7CADD92A5B30640
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 906301   (645880) от 08.06.2015
 
 Ambrotype - The Revelations (2015) [MP3|320 кб/с]<Progressive Metal>
@@ -734,37 +763,6 @@ Jethro Tull - Greatest Hits (2011) 2CD [MP3|320 kbps] <Progressive rock - Folk r
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:81E5ECF3DBD61FC76838A22D04E955CC0EBDC438
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1142234   (638585) от 16.06.2017
-
-Океан Эльзы (Океан Ельзи) - 10 albums, 3 compilations, 3 projects (1998-2016) [MP3|320 Kbps] <Folk Rock, Indie Rock>
-
->>След.
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_638585.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Океан Ельзи» — украинская рок-группа. Создана 12 октября 1994 года во Львове. Лидером и вокалистом группы является Святослав Вакарчук.
-Океан Ельзи многократно признаны публикой и критиками как лучшая рок-группа и лучшая live-группа СНГ и Восточной Европы.
-Океан Ельзи – это экспрессивный, самоотверженный концертный драйв, уникальное сочетание мелодичности с мощной (   Читать дальше...   )1998 - Там де нас нема
-2000 - Янанебiбув
-2001 - Модель
-2003 - Суперсиметрiя(   Читать дальше...   )Жанр: Folk Rock, Indie RockПродолжительность: 14:55:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:51CAC986B01460BC1D536FE5F4A98CAE99C52C50
 ```
 
 https://mybot314.ru/tekegram_catalog/

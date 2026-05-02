@@ -1,3 +1,32 @@
+###  Публикация: 1682072   (131880) от 06.12.2023
+
+Коса - Плодуродие (2022) [FLAC|Lossless|image + .cue] <Punk, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_131880.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Лихие дни 3:54
+02. Стонут 3:48
+03. Весна неизбежна 3:04
+04. В братских могилах 4:10(   Читать дальше...   )Жанр: Punk, Black MetalПродолжительность: 00:38:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:688D553BB36BD472EFBECCFDBA6E25A5E37C1B43
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1682237   (131871) от 06.12.2023
 
 Атака Сверху - Одинокая дорога к совершенству (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative>
@@ -717,35 +746,6 @@ Grimorium Verum - Reall (2022) [FLAC|Lossless|image + .cue] <Black Metal, Sympho
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:734623A5E2DD65F4B86A6438F339D429508FD7B3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1683630   (128225) от 12.12.2023
-
-Cavandish - Лицемерие (2023) [FLAC|Lossless|image + .cue] <Black Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_128225.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.	Умерли все	04:19
-02.	Тайный орден	05:24
-03.	Они 2	06:39
-04.	Серый цикл	04:29(   Читать дальше...   )Жанр: Black MetalПродолжительность: 00:37:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:AB63934B9794F5FFAAAF3E38F70BBB51E96F4D0B
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,31 @@
+###  Публикация: 1083690   (913472) от 27.01.2017
+
+JetBrains ReSharper Ultimate 2016.3.2 [En]
+
+>>След.
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_913472.jpg" />
+</div>
+
+
+###  Подробнее
+
+ReSharper – это расширение для Microsoft Visual Studio, помогающее повысить эффективность разработки и автоматизировать большинство рутинных процедур.
+Поддерживая C#, VB.NET, XAML, XML, ASP.NET, ASP.NET MVC, JavaScript, HTML и CSS, ReSharper делает программирование в Microsoft Visual Studio намного более быстрым и эффективным.
+Используя ReSharper, вы сможете создавать (   Читать дальше...   )Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:80A863BA0FD1EC8437D53DB924F28B0901E38513
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 990139   (913453) от 24.02.2016
 
 oCam Screen Recorder 231.0 Portable by CheshireCat [Multi/Ru]
@@ -642,32 +670,6 @@ USB Disk Security - инновационное программное обесп
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:336D76E50CC803E6313152C03123EDB34D74E328
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 865734   (912741) от 02.02.2015
-
-KMSpico 10.0.5 Alpha [En]
-
->>След.
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_912741.jpg" />
-</div>
-
-
-###  Подробнее
-
-KMSpico - оффлайн активатор для продуктов Microsoft Windows и Microsoft Office. KMSpico это самый быстрый, безопасный и простой способ для активации ОС Windows 8.1 и Office 2013. Большой плюс состоит в том, что активатору не требуется подключение к Интернету. KMSpico активирует всю новую линейку продуктов корпорации Microsoft: Windows 8.1 и Office 2013, включая все (   Читать дальше...   )Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8E2DDD4A68A68BE3239DE3B7D01913D276635301
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1533135   (706935) от 23.02.2022
+
+VA - Good Feeling 70s (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706935.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Fleetwood Mac - Go Your Own Way (2004 Remaster)
+02. Elton John - Tiny Dancer (Remastered)
+03. The Four Seasons - December, 1963 (Oh What a Night!)
+04. Eagles - Take It Easy (2013 Remaster)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 03:11:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1FFB81C86DB5794A485812DF4501F6C31ACCC4DC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533142   (706933) от 23.02.2022
+
+VA - Good Feeling 90s (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706933.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Faith Hill - This Kiss
+02. Spice Girls - Stop
+03. Go West - The King of Wishful Thinking
+04. Tina Turner - The Best (Edit)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:44:21
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:ED3A2163482D6C40CF985C03E196305387C24ECE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1533139   (706571) от 23.02.2022
+
+VA - Good Feeling 80s (2022) [MP3|320 Kbps] <Pop, Dance>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_706571.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bruce Springsteen - Dancing In the Dark
+02. Lionel Richie - Dancing On The Ceiling
+03. George Michael - Faith (Remastered)
+04. Fleetwood Mac - Everywhere (2017 Remaster)(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 04:09:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:917E909521AC0218E2EB92D84BE4B366D18E4479
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1220115   (705884) от 18.04.2018
+
+Sandra - Collection от ALEXnROCK (2018) [MP3|320 Kbps] <Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_705884.jpg" />
+</div>
+
+
+###  Подробнее
+
+В сборник вошли лучшие треки певицы. Весь материал взят с оригинальных CD альбомов, в некоторых на слух наверное есть ремастеринг, хотя и написано что оригиналные CD. Да пребудет с нами качественная музыка! Все лучшее для вас. ALEXnROCK01 Maria Magdalena
+02 The Skin I'm In
+03 We'll Be Together
+04 Forever(   Читать дальше...   )Жанр: PopПродолжительность: 03:34:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E66C220BF5885ED49BB01A13B7EFE02CAA684F5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1131799   (705403) от 07.05.2017
 
 VA - Драйвовый молодежный весенний музон выпуск № 6 (2017) [MP3|256 Kbps] <Pop>
@@ -629,122 +745,6 @@ VA - Свежий Русский Хит от ALEXnROCK часть 1 (2019) [MP3|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD48C2C5969D30435798B2D5D190BBB735E4EFFA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132643   (698872) от 10.05.2017
-
-VA - Звездная тусовочка. Сборник № 10 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698872.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Bahari - I Miss You 3:13
-002. Alicia Keys - Pawn It All 3:10
-003. Miela - Города 4:18
-004. Анжелика Варум & Игорь Крутой - Опоздавшая Любовь 4:17(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:53
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C94A22A149459792EB273CEB66D6A99691F2526B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132965   (698860) от 10.05.2017
-
-VA - Топовая сотня весенняя от Хит FM. Часть № 6 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698860.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Наташа Турбина - Маша 3:09
-002. Иван Тетенов - Море Магнит 3:20
-003. Ласковый Шепот - Не Говори Мне 4:47
-004. Константин Легостаев - Религия Любви 3:22(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4B4C83224D5BB9AA3515C1E008E77F8C08D48946
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1132647   (698791) от 10.05.2017
-
-VA - 100-ка популярных весенних хитов от Европы Плюс. Версия № 9 (2017) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698791.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Alex Belak - Невыносимая 2:58
-002. Галамартовна - Ермакова 3:12
-003. Андрей Леницкий - Она 4:10
-004. Helena Shadia - Не Верь Мне 4:07(   Читать дальше...   )Жанр: PopПродолжительность: 06:03:06
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:29DD7AABF8EAA33254FDA33CF40A8A35E7C55F1D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1221123   (698610) от 22.04.2018
-
-VA - EUROMANIA: Slow Hits vol. 1-3 (2016) [MP3|320 Kbps] <Eurodance, Euro-House, Technopop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_698610.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Masterboy - And I Need You (5:37)
-02. Army Of Lovers - Lit De Parade (3:16)
-03. Ace Of Base - All That She Wants (3:31)
-04. 2 Unlimited - Nothing Like The Rain (4:42)(   Читать дальше...   )Жанр: Eurodance, Euro-House, TechnopopПродолжительность: 06:01:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6B921F24F2A96F096974F4D6E436709F49AA8ADE
 ```
 
 https://mybot314.ru/tekegram_catalog/

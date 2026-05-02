@@ -1,22 +1,25 @@
-###  Публикация: 1326005   (408409) от 17.09.2019
+###  Публикация: 1573727   (410492) от 01.09.2022
 
-ProShow Producer - Colorful Memories [PSH]
+Trial (swe) - Feed the Fire (2022) [MP3|320 Kbps] <Heavy Metal>
 
->>Проекты
->>Слайдшоу (проекты)
+>>Rock, Alternative, Punk, Metal
+>>Metal
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408409.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410492.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Красочное и современное слайдшоу... Дерзайте!Формат: PSH
+01. Tria Prima (1:14)
+02. Sulphery (4:40)
+03. Thrice Great Path (4:49)
+04. In the Highest (5:15)(   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:46:29
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:5D4B9884BB8BEDC0E93387898BB4A8678BABC2C7
+magnet:?xt=urn:btih:2D846F061541B785BDD430D4D2E1C9A8AAFCC9C5
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -24,496 +27,28 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325940   (408408) от 17.09.2019
+###  Публикация: 1573671   (410491) от 01.09.2022
 
-3D сцены - Blender Cloud - Art Gallery - Gleb Alexandrov [BLEND]
-
->>Материалы для мультимедиа и дизайна
->>3D модели и материалы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408408.jpg" />
-</div>
-
-
-###  Подробнее
-
-3D сцены Глеба Александрова с сайта Blender Cloud:
-- Locomotives
-- Light Trails
-- Attic(   Читать дальше...   )Формат: BLEND
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9822C7F63864F6EC477B13D0A41A63865E5AA023
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325231   (408407) от 17.09.2019
-
-В этом мире я больше не чувствую себя как дома / I Don't Feel at Home in This World Anymore (2017) WEB-DL [H.264/1080p] [MVO]
-
->>Зарубежное кино
->>Зарубежные Фильмы (HD, FHD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408407.jpg" />
-</div>
-
-
-###  Подробнее
-
-Этот мир — сущий бардак. Люди ведут себя как хотят — мусорят, сквернословят, автомобилисты не уступают дорогу пешеходам. В дом к чувствительной и слегка депрессивной Рут залезли хулиганы. И украли бабушкины ложки. Полиция не воспринимает жалобу женщины всерьёз, тогда Рут объединяется с немного сумасшедшим соседом, чтобы поставить хулиганов на место.Производство: США, Film Science, XYZ FilmsЖанр: Комедия, криминал, драма, триллерРежиссер: Мэйкон БлэрАктеры: Элайджа Вуд, Мелани Лински, Дэвид Йоу, Девон Грайе, Джейн Леви, Гари Энтони Уильямс, Кристин Вудс, Роберт Лонгстрит, Ли Эдди, Майрон НэтвикПеревод: Двухголосый профессиональный, авторский одноголосыйСубтитры: Русские (ненормативная лексика), английские, французские, немецкие, итальянские, испанские, китайскиеПродолжительность: 01:36:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:43DDDC34B212163BE2D7D9DB73B7B49573F2BC38
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325811   (408406) от 17.09.2019
-
-Очередное достижение: 3 PB+ отданного трафика от DOMKPAT
-
->>3
->>4
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408406.jpg" />
-</div>
-
-
-###  Подробнее
-
-Очередное достижение: 3 PB+ отданного трафика от DOMKPAT!!!Друзья! - совсем недавно мы поздравляли нашего  товарища-одноклубника перешагнувшего планку 2 PB отданного Видео контента, а теперь есть повод поздравить его с очередным достижением!!!(   Читать дальше...   )
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325883   (408405) от 17.09.2019
-
-Nantucket (2018) [En] (1.4c/dlc) License PLAZA
-
->>Win Игры
->>Strategy Tactical (RTS/TBS)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408405.jpg" />
-</div>
-
-
-###  Подробнее
-
-Поохотьтесь на Моби Дика и поживите в золотой век охоты на китов в этой игре морской стратегии. Проплывите по семи морям, управляя своим кораблем и своей командой, а также поживите жизнью Измаила, единственного, кому удалось выжить с судна «Пекод», несколько лет после событий, рассказанных Мелвиллом в его шедевре.Тип издания: LicenseРазработчик: Picaresque StudioЖанр: Adventure, Strategy, RPGЯзык озвучки: АнглийскийЯзык субтитров: АнглийскийЯзык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CD722D2E6BCF6EECCC7B7BAE78E0CBB2DAF1957C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325851   (408404) от 17.09.2019
-
-Борис Акунин | Семейный альбом (Книга 4). Трезориум (2019) [MP3, Александр Клюквин]
-
->>Художественные аудиокниги и публицистика
->>Проза, Поэзия (аудиокниги)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408404.jpg" />
-</div>
-
-
-###  Подробнее
-
-Неспешно перелистывая старый семейный альбом, мы продолжаем рассматривать снимки, хранящиеся в нем. С пожелтевших от времени фотографий на нас смотрят уже знакомые по предыдущим страницам лица и лица тех, кого мы никогда не видели прежде. На сей раз они ведут свой молчаливый рассказ о еще одной значимой и трагической дате в истории нашей страны, в истории миллионов (   Читать дальше...   )Жанр: Современная прозаПродолжительность: 10:44:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B559B993F4B89A563BC9EEBD11E73339308EE161
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1325321   (408403) от 17.09.2019
-
-Супер 30 / Super 30 (2019) WEB-DLRip [MVO] [AD]
-
->>Остальное
->>Фильмы с Рекламой
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408403.jpg" />
-</div>
-
-
-###  Подробнее
-
-Главный герой фильма Ананд Кумар открыл школу для одарённых студентов, где могут учиться только самые лучшие. Он вложил в этот проект много труда и начал реализовывать его в рамках программы «Супер 30». Ананд собирается сделать эту школу лучшей в стране, и он не остановится, пока не достигнет поставленной цели. Много лет назад главный герой был простым рабочим, зарабатывавшим (   Читать дальше...   )Производство: Индия / HRX Films, Nadiadwala Grandson Entertainment, Phantom FilmsЖанр: драма, биографияРежиссер: Викас БальАктеры: Ритик Рошан, Мрунал Тхакур, Nandish Singh, Вирендра Саксена, Садхана Сингх, Адитья Шривастав, Санкет Дешпанде, Панкадж Трипати, Ваибхав Гупта, Али ХажиПеревод: МногоголосыйСубтитры: русские (вшитые, на песни)Продолжительность: 02:33:55Реклама: логотип
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:499F06308BA6E2A2F43119B9E2B436F54551852A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948855   (408402) от 22.10.2015
-
-Футбол. Лига Чемпионов 2015-16. Группа E. 3 тур. Байер 04 Леверкузен (Германия) - Рома (Италия) (2015) HDTVRip [H.264/720p-LQ] [hand made 50fps]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408402.jpg" />
-</div>
-
-
-###  Подробнее
-
-Групповой этап Лиги Чемпионов Группа E. 3 тур. Байер 04 Леверкузен (Германия) - Рома (Италия).Телекомпания: НТВ+, Футбол 1 HDЖанр: Спорт, ТелепередачаПродолжительность: 01:43:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B71BB70C9E85B742E686E3560F647124278FC1C5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948712   (408401) от 22.10.2015
-
-Й. Сигети | Дени Дидро - выдающийся представитель воинствующего материализма XVIII века (1963) [DJVU]
-
->>Научная и техническая литература
->>Гуманитарные науки и искусство
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408401.jpg" />
-</div>
-
-
-###  Подробнее
-
-В связи с 250-летием со дня рождения Дидро Издательство иностранной литературы публикует на русском языке книгу видного венгерского философа-марксиста, директора Института философии Венгерской Академии наук Йожефа Сигети. В книге Сигети дается анализ философских и атеистических взглядов Дидро, анализируются его естественнонаучные представления. Много внимания уделяет (   Читать дальше...   )Жанр: История, философияФормат: DJVU
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DBB24B0B88373D491AC94D67ACB2BD9198CFAFAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948836   (408400) от 22.10.2015
-
-Хоккей. НХЛ Сезон 2015-16. Флорида Пантерз - Питсбург Пингвинз (20.10.2015) WEB-DL [H.264/720p-LQ]
-
->>Архив торрентов
->>Архив Документалистики и TV
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408400.jpg" />
-</div>
-
-
-###  Подробнее
-
-Матч регулярного чемпионата NHL сезон 2015-16 (Florida Panthers vs. Pittsburgh Penguins) (эфир от 20.10.2015)Телекомпания: ROOT SportsЖанр: СпортПродолжительность: 02:06:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9554F9679650565AC63DB85BFBA52E5B1A7E7157
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 949095   (408399) от 22.10.2015
-
-VA - Aquarell Herbst (2015) [MP3|320 кб/с]<Lounge, Downtempo, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408399.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Walnut Grooves - Secret Escapes - Buddha Cafe Lounge Mix (05:31)
-002. Jive Ass Sleepers - Life In The Slow Lane (03:49)
-003. Summer Witch Music - Lazy Summer Days (02:03)
-004. Hansel Steiner - Epiphany (05:23)(   Читать дальше...   )Жанр: Lounge, Downtempo, ChilloutПродолжительность: 07:34:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FDB6DF4CDCBC091ABE1CE93280D979D03BF23CF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 948938   (408398) от 22.10.2015
-
-Grant Green - Visions (1971) /2009, EMI Music/[FLAC|tracks+.cue]<Hard Bop, Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408398.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Does Anybody Really Know What Time It Is [05:13]
- 02.Maybe Tomorrow [04:56]
- 03.Mozart Symphony #40 In G Minor, K550, 1st Movement [04:08]
- 04.Love On A Two Way Street [04:48](   Читать дальше...   )Жанр: Hard Bop, Soul JazzПродолжительность: 00:37:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:99099527530BBCB45A6DB9927D1D6D4F5E8E4E78
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067079   (408397) от 28.10.2016
-
-VA - Осенняя позитивная 100-ка. Сборник 6 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408397.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Yana Beliz - Влюблена
-002. Geo Da Silva - I Love U Baby
-003. Слава - 2 Л 2 Ю
-004. Chris Brown - Little More(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:57
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7F78FEACD03DD0095D5697D1FC2D9368CB56899F
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067323   (408396) от 28.10.2016
-
-Templates for Pages 5.1 [En]
-
->>Программы для macOS
->>Офис, Интернет для macOS
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408396.jpg" />
-</div>
-
-
-###  Подробнее
-
-Templates for Pages - красивые и полезные шаблоны для Apple’s Pages.
-Коллекция включает в себя различные, более 2100 типов шаблонов, от визитных карточек и брошюр для плакатов и приглашений. Современные и профессиональные макеты в сочетании с Вашей творческой составляющей будут безошибочно указывать идентичность.
-
-Некоторые шаблоны состоят до 6 различных страниц, (   Читать дальше...   )Тип издания: OS X SoftwareРелиз состоялся: 27 октября 2016Разработчик: Graphic NodeПоддерживаемая ОС: OS X 10.10 +Язык интерфейса: Английский
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7467E8C6A08B74CB790CF8BEA0C672CB981D723C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067287   (408395) от 28.10.2016
-
-И. А. Байкалов | Ленин и Сталин о печати (1933) [PDF]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408395.jpg" />
-</div>
-
-
-###  Подробнее
-
-История человеческого общества является историей борьбы классов. На более высокой ступени развития борьба между враждебными классами становится борьбой политической. В. И. Ленин говорил, что «самым цельным, полным и оформленным выражением политической борьбы классов является борьба партий.
-
-В процессе этой борьбы каждая партия выковывает необходимое оружие, которое (   Читать дальше...   )Жанр: История, политология, литературоведениеФормат: PDF
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067223   (408394) от 28.10.2016
-
-Nat King Cole - Top Pops (1963) 2007, Collectors' Choice Music[FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408394.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Somewhere Along The Way [02:53]
- 02.Walkin' My Baby Back Home [02:39]
- 03.Faith Can Move Mountains [03:13]
- 04.Funny [02:58](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:46:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0EB85475BC70354A498A553DF911516CB3A5B764
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067275   (408393) от 28.10.2016
-
-VA - Популярный драйвовый хитовичок. Выпуск 8 (2016) [MP3|256 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408393.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.Alex Mica - Afrodita 3:39
-002.Andre Tay - Детство 4:05
-003.Arti - Параллели 3:39
-004.Auryn Feat. Anastacia - Wh's Loving You 3:39(   Читать дальше...   )Жанр: PopПродолжительность: 06:06:33
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:37090EBF160D1174C2D8DB3ABB4386288F0970A2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067352   (408392) от 28.10.2016
-
-LSB - Content LP (2016) [MP3|320 Kbps] <Drum & Bass>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408392.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Lydian (feat. Millie Watson)
- 02. Pandora (feat. Sense MC)
- 03. Missing You (feat. Tyler Daley & DRS)
- 04. The Optimist(   Читать дальше...   )Жанр: Drum & BassПродолжительность: 01:05:41
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B73167D7C380E09F522BE5D2526ACC74D8084547
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1066747   (408391) от 28.10.2016
-
-VA - Promo Only Dance Radio October (2016) [320] <Tropical, Indietronica, Club, Progressive>
+VA - Re:Commended - Nu Disco Edition Vol. 17 (2022) CD, Compilation [MP3|320 Kbps] <Funky, Soulful, Nu Disco, Indie Dance>
 
 >>Неофициальные сборники
 >>Прочее (сборники)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408391.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410491.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Britney Spears F./G-Eazy - Make Me (Marc Stout & Tony Arzadon Radio Edit) 03:56
-02. Cash Cash & Digital Farm Animals F./Nelly - Millionaire (Ftampa Remix - Clean) 02:40
-03. Christina Aguilera - Telepathy (Rare Candy Radio Edit) 03:11
-04. Deorro F./Pitbull & Elvis Crespo - Bailar (Remix) 02:37(   Читать дальше...   )Жанр: Tropical, Indietronica, Club, ProgressiveПродолжительность: 01:04:01
+01. The Groove Orchestra - Pulp Fusion (Original Mix)
+02. Mike Chenery - London Bound (Original Mix)
+03. Furious George - Come on and Groove (Original Mix)
+04. Studio 21 - Destiny (Original Mix)(   Читать дальше...   )Жанр: Funky, Soulful, Nu Disco, Indie DanceПродолжительность: 01:46:49 hrs
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:15DAEFFD2CF03AE7156B93F23063874D65B6BBB4
+magnet:?xt=urn:btih:C04A3D3D88A3BFCA21BFEEA513C26ECE9BAC26EF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -521,28 +56,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067375   (408390) от 28.10.2016
+###  Публикация: 1573732   (410490) от 01.09.2022
 
-VA - Department Of Classics - Trance (2016) [MP3|320 Kbps] <Trance>
+Эрнст Любич. Мейер из Берлина / Meyer aus Berlin (1919) WEBRip [H.264]
 
->>нет
->>нет
+>>Классика кино и Старые фильмы до 90-х
+>>Старые Зарубежные Фильмы (SD)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408390.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410490.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01. Above and Beyond Vs Andy Moor - Air For Life (4:03)
-02. Ferry Corsten Vs Armin Van Buuren - Brute (3:33)
-03. Jurgen Vries - The Theme (3:08)
-04. Svenson - Clubbin On Sunshine (Abnea Remix) (3:02)(   Читать дальше...   )Производство: Armada Music BundlesЖанр: TranceПродолжительность: 03:00:51
+Берлинец Салли Мейер, бабник и хитрец, уговаривает своего доктора убедить жену в том, что он болен и ему необходим отпуск на природе, где он на самом деле собирается развлекаться с другими женщинами. Мейер отправляется в Баварские Альпы, где встречает Китти, молодую привлекательную женщину, взявшую такой же отпуск от своего мужа...Производство: Германия, Projektions-AG Union (PAGU)Жанр: Комедия, немое киноРежиссер: Эрнст ЛюбичАктеры: Эрнст Любич, Этель Орфф, Хайнц Ландсманн, Труде Тролл, Осси Освальда, Эрих ШёнфельдерПеревод: Немой с интертитрамиСубтитры: Немецкие интертитры, русские встроенные отключаемыеПродолжительность: 00:58:45
 
 ## Скачать торент
 ```bash
-нет
+magnet:?xt=urn:btih:334B1EFDF1AF326A681BD2C27B5242D20B3BBCDF
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -550,143 +82,25 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067266   (408389) от 28.10.2016
+###  Публикация: 1573606   (410488) от 01.09.2022
 
-VA - Beatport Halloween Special (2016) [MP3|320 Kbps] <Deep House, Drum & Bass, House>
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408389.jpg" />
-</div>
-
-
-###  Подробнее
-
-Deep House
-01. 11.Off - Distant Times
-02. Sons of Aoide - Mirage (Original Mix)
-03. Pete Oak - Askja(   Читать дальше...   )Жанр: Deep House, Drum & Bass, HouseПродолжительность: 18:16:52
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067090   (408388) от 28.10.2016
-
-VA - Night Star An Evening: Full of Emotions (2016) [MP3|320 Kbps] <Deep House, Chill House>
-
->>Electronic
->>House
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408388.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Modell - Do You Remember a Time - Deep Elements Mix
-02. Yolette Mercure - Pretty Amper - Cinosa Mix
-03. South Soul - Light Passion for Beauty - Beach & Fashion Mix
-04. Parfait Deblois - Heat Wave - On The Moon Mix(   Читать дальше...   )Жанр: Deep House, Chill HouseПродолжительность: 01:10:17
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3EF515D0A713ED603FF5090E7ECF1A48784E687
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067240   (408387) от 28.10.2016
-
-French Cookin' - If You Wanna (2016) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408387.jpg" />
-</div>
-
-
-###  Подробнее
-
-01| How You Talkin'   (03:02) 
-  02| It Just Ain't Right   (02:55) 
-  03| How Happy Am I   (03:27) 
-  04| If You Wanna   (03:27) (   Читать дальше...   )Жанр: BluesПродолжительность: 00:49:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9BA08D5672D7ED7EF5055EB9C0FF75A228E5C91C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067127   (408386) от 28.10.2016
-
-А. И. Тюменев | История античных рабовладельческих обществ (1935) [DJVU]
-
->>нет
->>нет
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_408386.jpg" />
-</div>
-
-
-###  Подробнее
-
-«История античных рабовладельческих обществ» А. И. Тюменева представляет собой очерк возникновения, развития и крушения рабовладельческих обществ древней Греции, элли­нистического Востока и Рима и предназначена для широких кругов советских читателей.
-
-Интерес к истории и историческому знанию необычайно возрос за последние годы, и его необходимо надлежащим образом (   Читать дальше...   )Жанр: История, политология, экономикаФормат: DJVU
-
-## Скачать торент
-```bash
-нет
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067061   (408385) от 28.10.2016
-
-Paradise - Do Or Die (1992) [APE|Lossless|image + .cue] <Hard Rock>
+Color UI 2.2.5 [Multi]
 
 >>Архив торрентов
->>Архив Музыки
+>>Архив 4Apple
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408385.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410488.jpg" />
 </div>
 
 
 ###  Подробнее
 
-01| Nightmares   (05:14) 
-  02| Voices   (04:33) 
-  03| Firin'  Line   (04:15) 
-  04| Fever   (03:46) (   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:43:48
+Color UI — это приложение для изучения ярких цветов и преобразования их в различные форматы. Специально для нужд дизайнеров и разработчиков.Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2016–2022 IXEAUПоддерживаемая ОС: macOS 11.0+Язык интерфейса: Английский, Испанский и др.
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:AEC13296412046C46D0D8B59397FB0ADF9550E7D
+magnet:?xt=urn:btih:CFBB3EC925ABDB45BF74148D050C8D85EE0D5D56
 ```
 
 https://mybot314.ru/tekegram_catalog/
@@ -694,25 +108,593 @@ https://mybot314.ru/tekegram_catalog/
 
 
 ---------------------------------------------------------------------------------------------------------------
-###  Публикация: 1067151   (408384) от 28.10.2016
+###  Публикация: 1573595   (410486) от 01.09.2022
 
-Журнал | Добрые советы. Цветы в доме №11 (ноябрь 2016) [PDF]
+PhotosRevive 2.0.7 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410486.jpg" />
+</div>
+
+
+###  Подробнее
+
+PhotosRevive автоматически раскрашивает ваши старые черно-белые фотографии. Приложение использует революционный искусственный интеллект, который добавит цвета ультра-реалистичным способом. Приложение очень простое в использовании. Сканируй или импортируй свою фотографию и все. Приложение раскрасит его без каких-либо усилий с вашей стороны.Тип издания: macOS SoftwareРелиз состоялся: 09.08.2022Разработчик: © 2021 NeededAppsПоддерживаемая ОС: macOS 11.0 +Язык интерфейса: Английский, Немецкий и др.
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1AFBE66C479C0AC0ACE891EC86D4B1862AF45DFF
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573715   (410485) от 01.09.2022
+
+Novelists FR - Déjà Vu (2022) [MP3|320 Kbps] <Post-Hardcore, Alt. Metal, Electronic>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410485.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Smoke Signals (3:34)
+02. Mae (1:45)
+03. Heretic (feat. LANDMVRKS) (3:22)
+04. Colas (2:21)(   Читать дальше...   )Жанр: Post-Hardcore, Alt. Metal, ElectronicПродолжительность: 00:34:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:FAC67270936D4CBD5247507FDD9E46897EDEAA14
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573663   (410484) от 01.09.2022
+
+Tony Carey - Room With A View (1988) [OGG Vorbis|485 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410484.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Room With A View (Long Version)  4:59
+02. Reprise	(11:14)Жанр: RockПродолжительность: 00:16:13
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C71F03B9D58513DC9F4FE66C78B7698C6D9622AE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573456   (410483) от 01.09.2022
+
+Soft Machine - Bundles (1975) Remastered And Expanded Edition, 2022, 2CD [FLAC|Lossless|WEB-DL|tracks] <Progressive Rock, Canterbury Scene>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410483.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Bundles (Live, Nottingham University, 1975 2022 Remaster) [00:03:27]
+02. Land Of The Bag Snake (Live, Nottingham University, 1975 2022 Remaster) [00:04:00]
+03. Out Of Season (Live, Nottingham University, 1975 2022 Remaster) [00:06:14]
+04. The Man Who Waved At Trains (Live, Nottingham University, 1975 2022 Remaster) [00:06:02](   Читать дальше...   )Жанр: Progressive Rock, Canterbury SceneПродолжительность: 2CD, 02:01:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B04B30268AA6EAE001EEC703023F3846768E332
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573581   (410482) от 01.09.2022
+
+Cisdem Duplicate Finder 6.0.0 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410482.jpg" />
+</div>
+
+
+###  Подробнее
+
+Cisdem Duplicate Finder - поиск дубликатов и их удаление, что позволяет восстанавливать свободное место на жестком диске. Cisdem DuplicateFinder легкое и ориентированное на пользователя приложение, которое обеспечивает необходимые инструменты и функции для поиска и удаления дубликатов файлов с жесткого диска.
+После того как папки для поиска будут выбраны, Вы сможете (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 31.08.2022Разработчик: © 2022 Cisdem Inc.Поддерживаемая ОС: macOS 10.11+Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:15997E445A5FC42D66D2892987D7C2C353AC0FBA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573747   (410481) от 01.09.2022
+
+MWeb Pro 4.3.5 [Multi]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410481.jpg" />
+</div>
+
+
+###  Подробнее
+
+MWeb: Markdown редактор, ведение заметок и генератор статических блогов.
+MWeb поддерживает расширенный синтаксис Github: TOC, Table, Fenced code block, LaTex,Task lists, Footnote и др. MWeb имеет красиво оформленную темную тему и предлагает интересные функции, как прокрутка, папки Drag & Drop, вставку изображения и др. MWeb поддерживает LaTex Просмотр в on-редакторе! (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 2021 CoderForArt IncПоддерживаемая ОС: macOS 10.13+Язык интерфейса: Английский, Упрощенный китайский, Традиционный китайский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6C369769A02F608643DD65A4996B17E1204ADBD5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573568   (410480) от 01.09.2022
+
+Сергей Лазарев | Диагностика кармы (Книга 10). Продолжение диалога 2005-2007 (2022) [MP3, Сергей Лазарев]
+
+>>Обучающие аудиоматериалы
+>>Популярная психология и саморазвитие (аудиоматериалы)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410480.jpg" />
+</div>
+
+
+###  Подробнее
+
+В своих книгах я рассказываю о попытках познать в себе Божественное. Я пытаюсь затрагивать и те области, где являюсь дилетантом, но, осознавая это, я все-таки буду продолжать эти попытки. Надеюсь, что дальнейшее развитие приведет меня к правильному пониманию. И потому все написанное мною лучше воспринимать не как конкретные советы, а как рассказ о моем личном опыте. (   Читать дальше...   )Жанр: Психология, эзотерикаПродолжительность: 18:00:15
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F225B3332B501B5329FBC2EFCD8A6765C39EAE8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573589   (410479) от 01.09.2022
+
+Concerto Moon - Tears Of Messiah (2017) Japanese Edition [FLAC|Lossless|image + .cue] <Heavy Metal, Power Metal>
+
+>>East Asian Music
+>>Asian Rock, Metal (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410479.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Light In The Shadow 04:28
+02. Noah’s Ark 04:35
+03. Tears Of Messiah 04:48
+04. Lift My Life 03:47(   Читать дальше...   )Жанр: Heavy Metal, Power MetalПродолжительность: 00:45:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:890CF6F059E8AC535F584EDAAE98401C9B079A5A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573724   (410478) от 01.09.2022
+
+Aeternam - Heir of the Rising Sun (2022) [MP3|320 Kbps] <Symphonic Melodic Death Metal, Folk>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410478.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Osman's Dream
+02. Beneath The Nightfall
+03. Irene
+04. Nova Roma(   Читать дальше...   )Жанр: Symphonic Melodic Death Metal, FolkПродолжительность: 00:46:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4253BAEBA14ABC1F3FDC5683165A1DE64CE99010
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573524   (410477) от 01.09.2022
+
+Machine Head - ØF KINGDØM AND CRØWN & Bonus Tracks (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Groove, Thrash Metal, Nu-Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Metal (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410477.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Exterøceptiøn (4:46)
+02. Arrøws In Wørds Frøm The Sky (Acoustic) (5:54)Жанр: Groove, Thrash Metal, Nu-MetalПродолжительность: 01:10:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B9B7C3125FC26D9098C17F51DDD2181A17AA4155
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573610   (410476) от 01.09.2022
+
+Jettison 1.8.5 [En]
+
+>>Архив торрентов
+>>Архив 4Apple
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410476.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jettison - размонтирование внешних дисков перед сном Mac. macOS X имеет свою философию и некоторые вещи в системе происходят несколько иначе, чем в других ОС. К этому можно просто привыкнуть, но можно и упростить себе жизнь используя простые утилиты или приложения.
+«Думаю, всем знакомы надоедливые системные баннеры с уведомлением о том, что один из ваших дисков был (   Читать дальше...   )Тип издания: macOS SoftwareРелиз состоялся: 01.09.2022Разработчик: © 1996-2022 St. Clair SoftwareПоддерживаемая ОС: macOS 10.9 +Язык интерфейса: Английский
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:887AEA8B743E4710ED3773DE8D8EA5617E67B626
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1573604   (410475) от 01.09.2022
+
+Teen Suicide - honeybee table at the butterfly feast (2022) [FLAC 2.0|48/24|WEB-DL|tracks] <Pop, Rock, Alternative & Indie>
+
+>>Rock, Alternative, Punk, Metal
+>>Alternative, Punk (Hi-Res)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410475.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. you were my star [00:01:01]
+02. death wish [00:02:44]
+03. get high, breathe underwater (#3) [00:03:51]
+04. unwanted houseguest [00:03:33](   Читать дальше...   )Жанр: Pop, Rock, Alternative & IndieПродолжительность: 00:49:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F5A5B36E06763CC7093FC9106AA00FB26327ECF8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 831928   (410472) от 19.10.2014
+
+Гражданская оборона. Выпуск 8 (2014.10.14) SATRip [RUS/UKR]
+
+>>Архив торрентов
+>>Архив Документалистики и TV
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410472.jpg" />
+</div>
+
+
+###  Подробнее
+
+Несколько месяцев назад жизнь украинцев кардинально изменилась – мы ежедневно следим за тем, что происходит на Востоке Украины, в наш словесный оборот устойчиво вошли определенные военные и политические термины. Однако достаточно ли знают украинцы о том, что читают, говорят и думают? Военные и политические тайны, которые, так или иначе, касаются Украины, неизвестные до сих пор исторические факты и события настоящего раскроет зрителям информационно-публицистическая программа «Гражданская оборона».
+Скрытая война, (   Читать дальше...   )Жанр: ДокументальныйПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:600EB3FE0AB430915CC1B8BCE069EF30CA56FE21
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 832631   (410454) от 19.10.2014
+
+Журнал | Тайны ХХ века [Украина] №41 (октябрь 2014) [PDF]
+
+>>Журналы
+>>Другие журналы
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410454.jpg" />
+</div>
+
+
+###  Подробнее
+
+Еженедельное популярное издание, увлекательно рассказывающее о тайнах космоса, аномальных зонах, необычных существах, авариях и глобальных катастрофах, приключениях, истории и личностях. Популярно о реальном и мистическом!Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C0328ED4CEEE49A4EE3E97C023AF5CA8B37B21F3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559291   (410453) от 12.10.2012
+
+Women Wallpaper (12.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410453.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 8800х5848
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BA4F7102090C8AC49C3E07B9924D2076F559BB3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559262   (410452) от 12.10.2012
+
+Hot Girls Wallpapers (11.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410452.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1280х1024 - 3280х2000
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DAE985D85E07600D5578F3330169F6BE0A3A894
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559278   (410451) от 12.10.2012
+
+Nature Wallpapers (12.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410451.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:09E57343B48E9E6F12E6565AD3651EAC348F432E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559304   (410450) от 12.10.2012
+
+Журнал | Мебель info №№4, 9 [апрель, сентябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410450.jpg" />
+</div>
+
+
+###  Подробнее
+
+Издание о cовременных стилях и направлениях дизайна интерьеров, о новинках и модных тенденциях динамично растущей строительной и интерьерной индустрии, о рынке мебели, отделочных материалов и элементах декора, а также реализованные проекты дизайнеров и архитекторов, которые делают нашу жизнь уютной, комфортной и функциональной.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:6DF6A90785707F7AD4E2586CEE93A872D485D477
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559255   (410449) от 12.10.2012
+
+HQ Wallpapers Perfect Women (11.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410449.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600 x 1200 ~ 1920 x 1200
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF20021A31B0F3236212F1928C90909F7560317B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559290   (410447) от 12.10.2012
+
+Hot Girls Wallpapers (12.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410447.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 5440х4080
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A55E531EF46B9681DFE08F38648A1DECAE7FE95B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559548   (410445) от 12.10.2012
+
+Журнал | Даша. Рецепты на любой вкус №11 [ноябрь 2012] [PDF]
+
+>>Архив торрентов
+>>Архив Книг и обучающих материалов
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410445.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Даша. Рецепты на любой вкус» — ежемесячный кулинарный журнал. Традиционные блюда и эффектные кулинарные идеи на основе самых знакомых и доступных продуктов. Меню для праздничного застолья и полноценный семейный обед. Уютная домашняя выпечка и нарядные кондитерские шедевры. Блюда на скорую руку и аппетитные изыски.Формат: PDF
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1A79866B4C38E7128DBEFDCB8999F67577D4339B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 559637   (410440) от 12.10.2012
+
+Журнал | Телескоп. Вкусно! №10 [октябрь 2012] [PDF]
 
 >>Журналы
 >>Домоводство (журналы)
 
 <div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_408384.jpg" />
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_410440.jpg" />
 </div>
 
 
 ###  Подробнее
 
-Основная часть издания — письма читателей, в которых они делятся своим опытом по выращиванию цветов, защите их от болезней и вредителей, обустройству балкона, террасы и зимнего сада. Выбор растений для интерьера, лечение и меры по защите растений, паутинная лилия, перец на подоконнике. И другие письма с рекомендациями по уходу за комнатными растениями - в номере.Жанр: ЦветоводствоФормат: PDF
+Вкусно! - специальное кулинарное приложение журнала Телескоп. Хозяйки найдут здесь очень много интересной информации. Вы узнаете секреты приготовления различных блюд.
+Тема номера: выпечка.Формат: PDF
 
 ## Скачать торент
 ```bash
-magnet:?xt=urn:btih:8D422391E9ABA25DFC0A6A44DEDAB1D15217F78B
+magnet:?xt=urn:btih:B6A4A63FDE250A607915BACE489F687004789AA1
 ```
 
 https://mybot314.ru/tekegram_catalog/

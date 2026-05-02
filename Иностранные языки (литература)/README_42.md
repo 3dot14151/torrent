@@ -1,3 +1,139 @@
+###  Публикация: 1726156   (55212) от 27.05.2024
+
+Dorling Kindersley | Ultimate Visual Dictionary (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_55212.jpg" />
+</div>
+
+
+###  Подробнее
+
+The Ultimate Visual Dictionary is a visual dictionary of over 33,000 frequently explored places and things, from the origins of the universe to modern technology.
+The section is divided into 14 main sections, including Animals, Railroads and Railroads, Music, and others, each with its own table of contents, allowing readers to find a graphic definition of an object (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: Penguin Random HouseФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5919DAF4906ABAD2B49F2F5565FB303D929771C5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726852   (54882) от 30.05.2024
+
+Adrian Wallwork | Jokes: Have a Laugh and Improve Your English (2017) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54882.jpg" />
+</div>
+
+
+###  Подробнее
+
+Jokes are a perfect format for learning vocabulary, idiomatic expressions, and grammar.
+The book also contains exercises designed to reveal whether you have understood the joke or not:
+A joke is presented to you but with the paragraphs mixed up. Your task is to put them in the correct order.
+Several two-line jokes are presented together. The task is to match the (   Читать дальше...   )Жанр: учебная литератураЯзык: английскийИздательство: SpringerФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4F0C8B10CACA9783AE7E843C22F10698452DAF11
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1726925   (54797) от 31.05.2024
+
+Jean Yates | Practice Makes Perfect English Vocabulary for Beginning ESL Learners. Practice Makes Perfect (2021) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54797.jpg" />
+</div>
+
+
+###  Подробнее
+
+The go-to guide for learning and reinforcing American English vocabulary for beginning ESL learners—now enhanced with audio recordings through the McGraw-Hill Language Lab app
+English Vocabulary for Beginning ESL Learners helps you develop your vocabulary and comprehension skills with practice in word building, analyzing new words, and using them in conversation. (   Читать дальше...   )Жанр: учебникЯзык: английскийИздательство: McGraw-HillФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:3E3BE40541807CF9D0FBAA1ACD0A5E25B54278B0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1727238   (54674) от 01.06.2024
+
+Mark Lester | English Verb Tenses Up Close (2012) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54674.jpg" />
+</div>
+
+
+###  Подробнее
+
+Solve the mysteries of English verbs.
+Practice Makes Perfect: English Verb Tenses Up Close puts the spotlight on this tricky grammar trouble spot. It boasts plenty of opportunities for practicing your language skills, as well as extensive examples based on a conversational style that will keep you engaged. The book also features a unique answer key that gives you (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: PDFКачество: Изначально электронное (ebook)
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B57E0AE5B603547218B4EBCCC97F45D964F1CE3B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1728053   (54238) от 05.06.2024
+
+Andrew Scott Conning | The Kodansha Kanji Learner's Course (2013) [PDF] [EN]
+
+>>Научная и техническая литература
+>>Иностранные языки (литература)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_54238.jpg" />
+</div>
+
+
+###  Подробнее
+
+A Step-by-Step Guide to Mastering 2300 Characters is a complete guide to mastering all the kanji needed for genuine literacy in Japanese. It anchors a comprehensive kanji learning system, supported by the KLC Graded Reading Sets, the KLC Green Book, the KLC Wall Chart, and keystojapanese.com (a user-support website for forming study groups, exchanging tips, and tracking (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Kodansha USAФормат: PDFКачество: Обработанный скан
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:966F8A8F12270C65B46E2D9C6A025081819171D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1728127   (54173) от 06.06.2024
 
 Angeles Gavira, Christine Stroyan, Angela Wilkes (еditors) | Spanish English Bilingual Visual Dictionary (2017) [PDF] [EN]
@@ -560,141 +696,6 @@ Perfect Phrases for ESL: Conversation Skills is filled with hundreds of ready-to
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:C2661A4E7EFBA18BB25142FAB0F89B7D42636116
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730355   (53196) от 15.06.2024
-
-Joseph M. Williams, Joseph Bizup | Style. The Basics of Clarity and Grace. Fifth edition (2019) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53196.jpg" />
-</div>
-
-
-###  Подробнее
-
-The concise clarity of this book makes it a handy reference for anyone interested in good writing-as well as a quick and ideal guide for freshman composition courses, writing courses across the disciplines, and as a supporting text in courses that require clear and direct writing. Style: The Basics covers the elemental principles of writing that will help students (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: PearsonФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E416F10F811A7EE26633C8CECD81EF672328FEAB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730316   (53194) от 15.06.2024
-
-Rob Franek (editor) | Cracking the SAT Premium Edition with 7 Practice Tests (2018) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53194.jpg" />
-</div>
-
-
-###  Подробнее
-
-Comprehensive subject review for every section of the exam
-Valuable practice with complex reading comprehension passages and higher-level math problems
-7 full-length practice tests (4 in the book, 3 online) with detailed answer explanations
-Drills for each test section—Reading, Writing and Language, and Math(   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Princeton ReviewФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0FCB5541A39C10234C661E1A1A261CAF8AF245A0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730568   (53105) от 16.06.2024
-
-Eliane Kurbegov | Practice Makes Perfect. French Conversation. Third edition (2021) [EPUB] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53105.jpg" />
-</div>
-
-
-###  Подробнее
-
-French Conversation is the go-to guide for expanding conversational fluency. Organized into 11 units, it presents realistic everyday dialogues, followed by helpful instruction on correct syntax and word usage, as well as lots of conversation-ready phrases.
-Inside... you'll learn how to Engage in dialogues that illustrate practical conversations. Expand your French (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: McGraw-Hill EducationФормат: EPUBКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:169305A21791C4BDDC6BFCECB93B7CE5BF8563D2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730512   (53100) от 16.06.2024
-
-Helen Gubby | English Legal Terminology Legal Concepts in Language. Fourth edition (2016) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_53100.jpg" />
-</div>
-
-
-###  Подробнее
-
-Legal English is a professional language. This book is designed for law students who have followed their law studies in a language other than English. Textbooks on English law are too detailed for those who want to understand English legal terminology rather than English law itself. Legal dictionaries are useful but, as the words are ordered alphabetically, terms (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: Eleven International PublishingФормат: PDFКачество: Изначально электронное (ebook)
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:18755FDA78A431A8EC3EBCF7450AE1F988BD0387
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1730899   (52888) от 18.06.2024
-
-Rod Ellis, Natsuko Shintani | Exploring Language Pedagogy through Second Language Acquisition Research (2013) [PDF] [EN]
-
->>Научная и техническая литература
->>Иностранные языки (литература)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_52888.jpg" />
-</div>
-
-
-###  Подробнее
-
-The ideal text for all students studying language teaching methods, language teacher education, English teaching methodology and second language acquisition modules in advanced undergraduate and postgraduate/graduate TESOL and Applied Linguistics courses.
-Routledge Introductions to Applied Linguistics is a series of introductory level textbooks covering the core (   Читать дальше...   )Жанр: учебное пособиеЯзык: английскийИздательство: RoutledgeФормат: PDFКачество: Обработанный скан
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2D675F018449AB15F3393460208713F89F87A093
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,32 @@
+###  Публикация: 1685899   (126858) от 20.12.2023
+
+Кризалис - Колодцы (2023) [FLAC|Lossless|WEB-DL|tracks] <Alternative Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский Рок (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_126858.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Колодцы [00:04:34]
+02. Цунами [00:03:55]
+03. Оставь меня [00:05:09]
+04. Написали по пьяни хз чё получилось [00:03:19](   Читать дальше...   )Жанр: Alternative RockПродолжительность: 00:48:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A441B0CCDCE05946B4D4B1D7BD1A20E72A787C7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1685911   (126855) от 20.12.2023
 
 Tears Of Asclepius - Город призрак (2023) [FLAC|Lossless|WEB-DL|tracks] <Horror Metal, Industrial Metal>
@@ -716,35 +745,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4160A44E75AD2E1B511D78EAF35509F4EAB5682D
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1689182   (124855) от 31.12.2023
-
-Эффект Лесли - Инструкция по применению (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Metal>
-
->>Rock, Alternative, Punk, Metal
->>Русский Рок (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_124855.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Мопассан [00:04:30]
-02. 6/4 [00:04:27]
-03. 1995 [00:03:20]
-04. Монах [00:04:50](   Читать дальше...   )Жанр: Heavy MetalПродолжительность: 00:42:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7665CE0109CBD9A43F38850B96179C271616D22E
 ```
 
 https://mybot314.ru/tekegram_catalog/

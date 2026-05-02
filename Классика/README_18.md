@@ -1,3 +1,32 @@
+###  Публикация: 1203972   (784019) от 08.02.2018
+
+Beethoven - Alexander Gauk  Violin Concerto In D Major, Op. 61 (1955-1960)  [FLAC|Lossless|tracks] <Classical>
+
+>>Классика
+>>Концерты (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_784019.jpg" />
+</div>
+
+
+###  Подробнее
+
+Violin Concerto In D Major, Op. 61
+
+A	Allegro Ma Non Troppo
+B	Larghetto(   Читать дальше...   )Жанр: ClassicalПродолжительность: 00:41:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8FD81D856603513F877B78470B07969038E58A38
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1205369   (783464) от 10.02.2018
 
 Yann Tiersen - EUSA (2016) [FLAC|Lossless|tracks + .cue] <Neoclassical, Contemporary, Piano>
@@ -708,35 +737,6 @@ Wataru Sato - midnight solitude (2017) [FLAC|Lossless|WEB-DL|tracks] <Piano, Amb
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:79ED2E7545E8EF6708A7A8A06548A0FD8333114E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1278958   (767671) от 27.01.2019
-
-Vangelis - El Greco (1998) [FLAC|Lossless|image + .cue] <Modern Classical>
-
->>Классика
->>В обработке/Classical Crossover/Neoclassical (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767671.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Movement I
-02. Movement II
-03. Movement III
-04. Movement IV(   Читать дальше...   )Жанр: Modern ClassicalПродолжительность: 01:13:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:048749AA29970C89FBF4B63C9D5C1A696C5D731C
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,119 @@
+###  Публикация: 1613239   (1039655) от 18.02.2023
+
+The Rolling Stones - GRRR Live! (2023) SHM-CD, 2xCD, Japanese Edition [FLAC|Lossless|tracks + .cue] <Hard Rock, Rock and Roll>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039655.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD - 1:
+01. Get Off My Cloud (03:53)
+02. The Last Time (04:14)
+03. It's Only Rock 'n' Roll (But I Like ItЖанр: Hard Rock, Rock and RollПродолжительность: 02:28:07
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9BB5642CEB08EB648CF17557CB9F9784B5E3217C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613345   (1039620) от 18.02.2023
+
+The Sweet - At The Beeb: The BBC Radio Sessions (Remastered 2023) (2023) [FLAC|Lossless|WEB-DL|tracks] <Rock, Glam Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039620.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lollipop Man (Live at Radio One Club, 18.09.1969) (Remastered 2023) [00:02:24]
+02. Time (Live at Radio One Club, 18.09.1969) (Remastered 2023) [00:01:52]
+03. The Juicer (BBC Session, 11.02.1970) (Remastered 2023) [00:02:40]
+04. All You'll Ever Get From Me (Live at Dave Cash, 11.02.1970) (Remastered 2023) [00:02:28](   Читать дальше...   )Жанр: Rock, Glam RockПродолжительность: 00:47:43
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:12D394393DF9C68D35E5EA240B8A70A326D56EFC
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613727   (1039403) от 19.02.2023
+
+Pelegrin - Ways of Avicenna (2023) [FLAC|Lossless|WEB-DL|tracks] <Heavy Psychedelic, Progressive Stoner Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039403.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Madrassa [00:05:04]
+02. Thunderstorm [00:07:25]
+03. Reach for the Sun [00:06:07]
+04. Disgrace [00:02:35](   Читать дальше...   )Жанр: Heavy Psychedelic, Progressive Stoner RockПродолжительность: 00:35:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:1725456B71A90441A0FD5D53977CE9D857220C93
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1613723   (1039402) от 19.02.2023
+
+Those Damn Crows - Inhale/Exhale (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Hard Rock (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1039402.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Fill The Void (00:03:43)
+02 - Takedown (00:03:05)
+03 - Man On Fire (00:03:48)
+04 - Wake Up (Sleepwalker) (00:03:28)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:37:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F7D46BCF829814C078E08126EF9F94970322D8DB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1613690   (1039398) от 19.02.2023
 
 Michael Bormann's Jaded Hard - Power To Win (2022) [FLAC|Lossless|image + .cue] <Melodic Hard Rock>
@@ -629,122 +745,6 @@ Whitesnake - Slip Of The Tongue (1989) Reissue, 1996, Geffen Goldline [FLAC|Loss
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F64E77D0EC3086D1CC2AA35C46A057B71A3FB313
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1442074   (1036874) от 24.01.2021
-
-Europe - Gold (2021) 3 CD, Compilation [FLAC|Lossless|image + .cue] <Melodic Hard Rock, Arena Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036874.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD - 1:
-01. The Final Countdown (4:00)
-02. Rock The Night (4:06)
-03. Carrie (4:31)(   Читать дальше...   )Жанр: Melodic Hard Rock, Arena RockПродолжительность: 03:04:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D105E569A153E05CB4145FEDF622EEA6B816C4D6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 372251   (1036639) от 01.03.2023
-
-Ian Gillan - 33 Albums (1976 - 2019) 52 CD [FLAC|Lossless|tracks + .cue, image + .cue]<Hard Rock>
-
->>След.
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036639.jpg" />
-</div>
-
-
-###  Подробнее
-
-Ian Gillan - британский рок-музыкант, вокалист и автор текстов песен. Наиболее известен как участник группы Deep Purple. Гиллан также исполнил партию Иисуса в оригинальной версии рок-оперы «Иисус Христос — суперзвезда» Эндрю Ллойд Вебера и Тима Райса и пел в течение года в Black Sabbath. Считается одним из мастеров грудного вокала в рок-музыке с диапазоном голоса (   Читать дальше...   )Список альбомов:
-1976 - Ian Gillan Band - Child In Time
-1977 - Ian Gillan Band - Clear Air Turbulance
-1977 - Ian Gillan Band - ScarabusЖанр: Hard RockПродолжительность: 54:47:27
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:36F907B43E45F3B74AABA0FD803B4631A61ED9B2
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1615640   (1036429) от 02.03.2023
-
-Whitesnake - 1987 (1987) Reissue, 1988, CBS/Sony [FLAC|Lossless|image + .cue] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036429.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Crying in the Rain (5:36)
-02. Bad Boys (4:07)
-03. Still of the Night (6:40)
-04. Here I Go Again (4:35)(   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:42:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EC589B83659692A8684833070CA97C6F62C8F930
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1616884   (1035867) от 04.03.2023
-
-Ravenstine - Ravenstine (2023) [FLAC|Lossless|WEB-DL|tracks] <Hard Rock>
-
->>Rock, Alternative, Punk, Metal
->>Hard Rock (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035867.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ravenstine [00:04:02]
-02. Lady Luck [00:04:01]
-03. Freedom Day [00:04:56]
-04. Still Alive [00:05:10](   Читать дальше...   )Жанр: Hard RockПродолжительность: 00:45:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1CC37DD1FE6CE0CE07B50D3290048082C8222DF0
 ```
 
 https://mybot314.ru/tekegram_catalog/

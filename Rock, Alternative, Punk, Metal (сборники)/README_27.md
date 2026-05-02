@@ -1,3 +1,61 @@
+###  Публикация: 1304920   (559921) от 28.05.2019
+
+VA - Right To Life: Punk Rock Collection (2019) [MP3|231-320 Kbps] <Punk Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_559921.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Bad Religion - The Kids Are Alt
+002. Nations Afire - I'm A Brick In The Ocean
+003. Bye Bye California - Imperio
+004. Camiches - Damariz(   Читать дальше...   )Жанр: Punk RockПродолжительность: 06:00:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:37469F444C70CF16F9400E9135F6C160A37DE401
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 924716   (557307) от 04.08.2015
+
+VA - Музыка Нашествия 2015 (2015) [MP3|320 кб/с]<Rock>
+
+>>Неофициальные сборники
+>>Rock, Alternative, Punk, Metal (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_557307.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.25-17 - Просыпайтесь! (02:48)
+02.7000$ - Хозяин леса feat. Noize MC, Staisha (03:45)
+03.7Б - Холодно (vs. Влад Демьян) (04:26)
+04.Brainstorm - Эпоха (03:19)(   Читать дальше...   )Жанр: RockПродолжительность: 04:49:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EF515C226C0BA282D849EA3062FC4C315F445835
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1305301   (557045) от 30.05.2019
 
 VA - Sermon On The Rocks (2019) [MP3|320 Kbps] <Rock, Alternative>
@@ -687,64 +745,6 @@ Joe Satriani - Collection (2022) [MP3|320 Kbps] <Rock>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:1E1662D3D9636092BBE0F2F4DF525E20A5BFC80C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312255   (534388) от 03.07.2019
-
-VA - Erozion: Metal Collection (2019) 2CD [MP3|320 Kbps] <Death, Black Metal>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534388.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD 01:
-001. Autovoid Redemption - My Choice
-002. Brainoil - Preface To Madness
-003. Leo - Hold The Line(   Читать дальше...   )Жанр: Death, Black MetalПродолжительность: 15:05:26
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:773F4A39DD32FA328CF62B22491EEAEB7864C570
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1312303   (534293) от 03.07.2019
-
-VA - Retribution Therapy: Hard Rock Aggregation (2019) [MP3|320 Kbps] <Hard Rock, Alternative>
-
->>Неофициальные сборники
->>Rock, Alternative, Punk, Metal (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_534293.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. D'alva - Vazio
-002. The Fibs - Morning Train Slide
-003. The Flaming Lips - Riding To Work
-004. The Glorious Sons - Shapeless Art(   Читать дальше...   )Жанр: Hard Rock, AlternativeПродолжительность: 10:20:54
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1885AB7B836B7652137DB0BF2DADB37A62C9CACD
 ```
 
 https://mybot314.ru/tekegram_catalog/

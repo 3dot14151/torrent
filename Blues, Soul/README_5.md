@@ -1,3 +1,32 @@
+###  Публикация: 1004332   (840313) от 05.04.2016
+
+Lisa Lystam Family Band - Give You Everything (2016) [MP3|320 кб/с] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_840313.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Give You Everything (04:37)
+02. Changes (04:27)
+03. Mean Man (03:53)
+04. Worship Me (04:20)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:47:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D76990D05088C1FC402BDCC7DFB6217A345F9D62
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1004184   (840187) от 05.04.2016
 
 Colin Pollock - Three Cherries Red (2014) [MP3|320 кб/с] <Blues, Rockin' Blues>
@@ -716,35 +745,6 @@ Bluebone - Devil Keep Chewin' (2009) [MP3|320 кб/с] <Modern Electric Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:99307AC841740D879FC3AED6B32D7CC0907F2EFF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382995   (815449) от 13.05.2020
-
-VA - I Feel Blues In My Roots (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_815449.jpg" />
-</div>
-
-
-###  Подробнее
-
-01 Richie Milton - Running Outa Dreams (2:36)
-02 Bobby Cole - Dirty Blues Music (2:58)
-03 Last Chance Saloon - Riding With The Blues (3:10)
-04 J Goldfinger - Laughing Devil (2:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:03:59
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8B7AF115FFDDB3811BFC5248DB0A634EC60CED80
 ```
 
 https://mybot314.ru/tekegram_catalog/

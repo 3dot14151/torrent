@@ -1,3 +1,61 @@
+###  Публикация: 940630   (467191) от 25.09.2015
+
+Billie Holiday - Jazz Masters (1996) /Mandarim Records/[FLAC|tracks+.cue]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_467191.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.Let's Do It [02:58]
+02.Georgia On My Mind [03:20]
+03.Love Me Or Leave Me [03:21]
+04.St. Louis Blues [02:50](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:42:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E4ECE1204F8C2237CA3E5CE776FAD6E56751D94D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1407367   (466726) от 07.09.2020
+
+Ali Auger - Soft & Furry (2001) 2006, Castle Music [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_466726.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Lady's in Love with You [3:06]
+02. Soft & Furry [3:50]
+03. Too Darn Hot [2:27]
+04. You Go to My Head [5:45](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:50:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2CE74460184262D7D73EA7FCD322221811993E53
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 824746   (466620) от 24.09.2014
 
 Tony Bennett & Lady Gaga - Cheek To Cheek [18 tracks version] (2014) [FLAC|Lossless]<Jazz>
@@ -712,64 +770,6 @@ ILL CONSIDERED - ILL CONSIDERED 8 (2019) [FLAC|Lossless|Web-DL|tracks] <Free Jaz
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B6726F745CD8ECF1C84E7881780AEB2C373E1ADA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 941342   (463127) от 27.09.2015
-
-Jack Jeffer's New York Classics Big Band - New York Dances (1996) /MapleShade/[FLAC|image+.cue]<MapleShade>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463127.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.DUOF March [05:18]
-02.Mood Indigo [04:53]
-03.Say Amen, Brother [06:08]
-04.First Time At Last [03:49](   Читать дальше...   )Жанр: Big Band, Post-BopПродолжительность: 01:05:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E8202A9D45DC32BA3B97B4F4EE32DAE45A9402DE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 940991   (463121) от 27.09.2015
-
-Rosemary Clooney - Dedicated To Nelson Riddle (1956-1957) /1996, ООО "Галактис"/[FLAC|tracks+.cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_463121.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.A Foggy Day [03:19]
-02.We're in the Money [02:50]
-03.It's So Peaceful in the Country [04:10]
-04.Limehouse Blues [02:32](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:51:46
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D811B0438DE445CA70150493057673798716832A
 ```
 
 https://mybot314.ru/tekegram_catalog/

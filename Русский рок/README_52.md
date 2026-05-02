@@ -1,3 +1,113 @@
+###  Публикация: 1049165   (544855) от 04.09.2016
+
+Satarial - Blessed Brigit (2016) [MP3|320 Kbps] <Folk Metal, Black Metal>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544855.jpg" />
+</div>
+
+
+###  Подробнее
+
+Чёрный дым от костра спиралью поднимается и, ничуть не рассеиваясь, уходит высоко в небо. Костёр горит уже три дня и три ночи. Ровно столько длится обряд, и сегодня, в последнюю ночь - в ночь новолуния он завершится. Боги будут умилостивлены обильной кровавой данью.01. Manifest of paganism
+02. Horned God (The Charge Of The God)
+03. Chaos
+04. Yarns of Fate(   Читать дальше...   )Жанр: Folk Metal, Black MetalПродолжительность: 00:40:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4CC17CACDA6B5C3358EAF4A2E8F40F921A2D4F99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1048969   (544756) от 04.09.2016
+
+Метанойя - Новый позывной (2015) [MP3|320 Kbps] <Acoustic Art Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544756.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dauerschlaf
+02. Новый позывной
+03. Птица в груди
+04. Человек, растерявший сон(   Читать дальше...   )Жанр: Acoustic Art RockПродолжительность: 00:56:17
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:28286C5A4DCBC3196CA4E877E6F4E148B030D0DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 650587   (544097) от 27.06.2019
+
+Високосный Год - 3 Альбома (2002-2007) [MP3|320 кб/с]<Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_544097.jpg" />
+</div>
+
+
+###  Подробнее
+
+«Високосный Год» — рок-группа из подмосковного Фрязино. Критики отмечают её близость отечественной эстраде, теплоту, сентиментальную лиричность, «редкую душевность и доверительность песен «Високосного Года», среди которых особую известность получили «Лучшая песня о любви», «Метро», «Тихий огонёк», «Кино» и др. Фраза «Это мы придумали Windows, это мы объявили дефолт» (   Читать дальше...   )Жанр: RockПродолжительность: 00:30:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5E405D8A7375BF1695F01AF7BEED4E7240D6B35D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1049928   (541594) от 06.09.2016
+
+Ленинград - Сиськи (2016) Single [MP3|320 Kbps] <Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Русский рок
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_541594.jpg" />
+</div>
+
+
+###  Подробнее
+
+Это – первая композиция коллектива, вокальные партии которой отданы вокалисткам, пришедшим на смену Алисе Вокс-Бурмистровой. Первое публичное исполнение произведения состоялось 25 августа 2016 года на концерте в московском зале «Известия Hall».01. СиськиЖанр: RockПродолжительность: 00:03:00
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B12D59EA82D12D9779CBE2427A5F018B6BF33F68
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1557442   (541019) от 15.06.2022
 
 Плейлист Венкова - Дневник для героя (2022) [MP3|320 Kbps] <Rock>
@@ -631,122 +741,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7ADBC672C84767DB7C3C04569714DF8E019FFA89
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1558696   (529905) от 21.06.2022
-
-VA - Мы вышли из Кино 2. Трибьют Кино (2022) [MP3|320 Kbps] <Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529905.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. 25/17 - Апрель
-2. Комсомольск - Ночь
-3. Диктофон - Печаль
-4. Стереополина - Разреши мне...(   Читать дальше...   )Жанр: RockПродолжительность: 01:51:24
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:03A6BDEEF313CF6DB47A052EA6F696C701869C2B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 915156   (529624) от 12.08.2015
-
-Liorinkarmic - 6 альбомов (2014-2015) [MP3|320 кб/с]<Post-rock, Experimental, Minimal>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_529624.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The lost forgotten girl [05:16]
-02. Tecollection [05:24]
-03. Double black death butterfly [03:52]
-04. Jealous of the kind and lovely [02:49]Жанр: Post-rock, Experimental, MinimalПродолжительность: 03:44:37
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7C139AC2D887F600A8C82960FE87409FEEA3C412
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240421   (528741) от 11.08.2018
-
-Вертепъ - СтополСта (2017) [MP3|320 Kbps] <Rock, Blues Rock, Blues>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528741.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Белая сплошная
-02. Правда
-03. Стополста
-04. Три чернушечки(   Читать дальше...   )Жанр: Rock, Blues Rock, BluesПродолжительность: 00:48:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E682BD43A183C512F872390258D7E3A5C6673EE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1240369   (528673) от 11.08.2018
-
-Вертепъ - Снег (2018) [MP3|320 Kbps] <Rock, Blues Rock>
-
->>Rock, Alternative, Punk, Metal
->>Русский рок
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_528673.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Тремор
-02. Косяк
-03. Озноб и лихорадка
-04. Всё(   Читать дальше...   )Жанр: Rock, Blues RockПродолжительность: 00:39:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F9C8FF67DB84237D4FAE27F5BAA6732D2864BB4D
 ```
 
 https://mybot314.ru/tekegram_catalog/

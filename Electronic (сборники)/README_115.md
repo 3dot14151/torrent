@@ -1,3 +1,61 @@
+###  Публикация: 1042446   (578457) от 13.08.2016
+
+VA - Chillout August 2016 Top 10 August Relaxing Chill Out and Lounge Music (2016) [MP3|320 Kbps] <Downtempo, Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578457.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Leesa – Cafe Enigma – Chillout Mix
+ 02. Bryan Milton – Sunny Day – Chillout Mix
+ 03. Soty – Reunion – Chillout Mix
+ 04. LastEDEN – Vision – Chillout Mix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:24403B8474994A55CC2CB8C917F6C23CF7BC19BB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233610   (578189) от 01.07.2018
+
+DJ AFRO - MundialAfroStars (2018) [MP3|320 Kbps] <Tech House, Techno>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_578189.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Alexey Lisin - Junk (Original Mix)
+2. Silvano Del Gado - Dun da Da
+3. Mauro_Picotto - The Whistle
+4. Luna City Express - Victims of the Funk(   Читать дальше...   )Жанр: Tech House, TechnoПродолжительность: 01:11:49
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E8850E201ADD0A7DFCFFF12D6F3B9AE03B4C58A1
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1233686   (578154) от 01.07.2018
 
 VA - Record Super Chart 543 (2018) [MP3|320 Kbps] <House, Dance, Club>
@@ -699,64 +757,6 @@ VA - The Best of Melodic Trance (Compiled by Zebyte ) (2016) [MP3|320 Kbps] <Mel
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1081C6A168816072BA85771C177909FBFB46266
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1151337   (574179) от 18.07.2017
-
-VA - Vocal Trance Collection Vol.3 (2017) [MP3|320 Kbps] <Trance, Vocal Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574179.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Ej - One More Night (Extended Mix)
-02. Radion6 & Katty Heath - Beautiful Nothing (Radio Edit)
-03. Mark Sherry & Dark Fusion Feat. Jan Johnston - Deja Vu (James Dymond Extended Remix)
-04. Mike Shiver & Shannon Hurley - A Little Rain (Allen & Envy Edit)(   Читать дальше...   )Жанр: Trance, Vocal TranceПродолжительность: 10:25:51
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:010EFBCB0A5042E9BB048BA064D099F739BB9FCE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 908663   (574145) от 20.05.2019
-
-VA - Chillout - 100 Original Hits (2015) [MP3|320 кб/с]<Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574145.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Brian Eno - Under Stars [04:21]
-002. London Philharmonic Orchestra, Karl Jenkins, Adiemus - Adiemus [04:01]
-003. Michael Nyman - The Heart Asks Pleasure First The Promise (Edit) [03:13]
-004. Roxy Music - Avalon [04:15](   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 07:44:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:692A95422CD84573A700548F8820AB6CEA5B139B
 ```
 
 https://mybot314.ru/tekegram_catalog/

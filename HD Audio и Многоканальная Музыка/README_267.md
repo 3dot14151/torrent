@@ -1,3 +1,177 @@
+###  Публикация: 1820693   (288) от 28.09.2025
+
+Kate Bush - Best Of The Other Sides (2025) [FLAC 24/96|Lossless|WEB-DL|tracks] <Art rock, Progressive rock, Alternative rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_288.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Experiment IV (Remastered 2025)
+02. You Want Alchemy (Remastered 2025)
+03. Rocket Man
+04. Walk Straight Down The Middle (Remastered 2025)(   Читать дальше...   )Жанр: Art rock, Progressive rock, Alternative rockПродолжительность: 00:45:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:568845F965880FE0164A5DBEFFDAF90126336B75
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820685   (282) от 28.09.2025
+
+Mariah Carey - Here For It All (2025) [FLAC 24/44.1, 16/44.1|Lossless|WEB-DL|tracks] <Pop>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_282.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mi
+02. Play This Song (feat. Anderson .Paak)
+03. Type Dangerous
+04. Sugar Sweet (feat. Shenseea & Kehlani)(   Читать дальше...   )Жанр: PopПродолжительность: 00:39:52
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D9AA6512C2B6A862989155E5FAD8D9EB3F8E3606
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820656   (273) от 28.09.2025
+
+Creed - The Best Of Creed (Remastered 2025) (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_273.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Higher (Radio Edit / Remastered 2025) (4:45)
+02.  One Last Breath (Remastered 2025) (4:00)
+03.  My Own Prison (Radio Edit / Remastered 2025) (4:15)
+04.  Overcome (Remastered 2025) (3:48)(   Читать дальше...   )Жанр: RockПродолжительность: 00:52:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EA102FFAC85AC50E0B13405322A4654F58FA5D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820675   (236) от 28.09.2025
+
+Willow Suns - All out of Time (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Blues>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_236.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Dear Light (4:20)
+02.  I Don't Know (3:34)
+03.  Roll with Me (4:00)
+04.  Running Around After You (4:04)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:45:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4A966C987EC18B62C46D7375B5350851173E6B2F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820660   (235) от 28.09.2025
+
+Devil of a Woman - Last Call for Freedom (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_235.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Last Call for Freedom (4:06)
+02.  Change of Poison (4:18)
+03.  Midnight Dancer (4:10)
+04.  Hot Trap (4:23)(   Читать дальше...   )Жанр: RockПродолжительность: 00:27:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C5DF404390CC259826470038DDEB86A884A4F617
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1820627   (234) от 28.09.2025
+
+Angelwreck - Pieces Of My Heart (2025) [FLAC 24/44.1|Lossless|WEB-DL|tracks] <Rock>
+
+>>HD Audio и Многоканальная Музыка
+>>WEB-DL-Audio
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_234.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Misfit (4:52)
+02.  Super Sleuth (2:28)
+03.  Summertime Magic (3:25)
+04.  Puzzle Pieces (3:39)(   Читать дальше...   )Жанр: RockПродолжительность: 00:41:19
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0AF2F6C334DF722D9FA01B6EAFA9BCDC5276F5F9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1820639   (231) от 28.09.2025
 
 Biffy Clyro - Futique (2025) [FLAC 24/48|Lossless|WEB-DL|tracks] <Rock>

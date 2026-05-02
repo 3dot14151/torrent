@@ -1,3 +1,61 @@
+###  Публикация: 1797252   (66831) от 15.05.2025
+
+Lewis Nash - Stompin' At The Savoy (2005) M&I Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66831.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Stompin' at the Savoy [5:22]
+02. Delilah [7:07]
+03. Get Happy [4:27]
+04. I Thought About You [4:50](   Читать дальше...   )Жанр: Post-BopПродолжительность: 00:56:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0B69BD407C8AF69693B73BE9B006ECD866306A60
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1797447   (66801) от 16.05.2025
+
+Brother Jack McDuff - Gin And Orange (1969) 2008, Dusty [FLAC|Lossless|tracks + .cue] <Soul-Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66801.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mac-Duffin [3:04]
+02. The Electric Surfboard [5:02]
+03. On the Case [3:00]
+04. Channel One [5:57](   Читать дальше...   )Жанр: Soul-JazzПродолжительность: 00:38:33
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E03F50DD5D7F0C83718F580A1015679B108CD26C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1797851   (66708) от 18.05.2025
 
 Ahmed Abdul-Malik - Four Classic Albums (1958 - 1962) 2CD, 2017, Avid Jazz [FLAC|Lossless|tracks + .cue] <World Fusion, Hard Bop>
@@ -687,64 +745,6 @@ Lavay Smith & Her Red Hot Skillet Lickers - Miss Smith To You (2009) Fat Note Re
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE23BEABC8B681A757A4B79ADEA4C280FC0F595B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799762   (66412) от 29.05.2025
-
-VA - In Noir We Trust (2024) Signora Ward Records [FLAC|Lossless|Web-DL|tracks] <Ambient Jazz, Dark Jazz, Doom Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66412.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Detour Doom Ensamble - Black side (7:56)
-02. Detour Doom Project - Bay City Doom Jazz (5:22)
-03. Last Call at Nightowls - Humeda (6:29)
-04. Macelleria Mobile di Mezzanotte -Heavy Clouds Like The Skyline of Your Heart (5:14)(   Читать дальше...   )Жанр: Ambient Jazz, Dark Jazz, Doom JazzПродолжительность: 00:40:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E61680293D8D6773F72C0AC2F3C0EE2FCAC6DBE6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1799755   (66401) от 29.05.2025
-
-VA - Coffee Funk (Feel the Heat of Acid Jazz Funk) (2025) [FLAC|Lossless|WEB-DL|tracks] <Funk Soul Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/002/save_picture_66401.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.  The Smoke Orchestra - Urano's Solitude (4:42)
-02.  Soulstance - Popping The Beat (5:22)
-03.  Papik - Speed Date (3:28)
-04.  Yuts and Culture - 400 days (2:59)(   Читать дальше...   )Жанр: Funk Soul JazzПродолжительность: 01:26:48
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8C4040935E826A757AB1B43EACF1197B01D6FCAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,67 @@
+###  Публикация: 1341906   (227570) от 30.11.2019
+
+Louis Armstrong - Swing That Music 1935 - 1939 (1990) Jazz Archives [FLAC|Lossless|tracks + .cue] <New Orleans Jazz, Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227570.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shoe Shine Boy [3:20]
+02. La Cucaracha [2:47]
+03. Thanks A Million [2:40]
+04. Solitude [3:02](   Читать дальше...   )Жанр: New Orleans Jazz, Dixieland, SwingПродолжительность: 00:47:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:767A07F117AA0C4D2B2175895EDC008A6706B402
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 586962   (227192) от 09.12.2012
+
+V.A. - Chill-Out Jazz (2009) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_227192.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Beady Belle - Closer
+02. Don Menza - Morning Song
+03. George Shearing - Killing Me Softly With His Song
+04. Francy Boland & the Orchestra - Autumn In New York
+05. Eugen Cicero - Im Mondenschein
+06. James Brown - Home At Last
+07. Jim Hall - In A Sentimantal Mood
+08. Shirley Horn - Return To Paradise
+09. Meshell Ndegeocello feat. Sabina Sciubba - Aquarium
+10. Sidsel Endresen - Traveling Still(   Читать дальше...   )Жанр: JazzПродолжительность: 01:17:38
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1268053   (227172) от 10.12.2018
 
 Stan Getz - Master Of The Sax (1946 - 1957) 10CD, 2010, Intense [FLAC|Lossless|tracks + .cue] <Cool, Bop, Mainstream Jazz>
@@ -687,64 +751,6 @@ Alexandra Shakina - Mood Indigo (2021) Japanese Edition [FLAC|Lossless|image + .
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FDBC8529A7B3F0C9DAADCFE7F1DCF7A40596F7A5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1584130   (225620) от 18.10.2022
-
-Andre Previn & David Rose - Like Blue (1959) 2010, Hallmark [FLAC|Lossless|tracks + .cue] <Cool, Easy Listening>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/005/save_picture_225620.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. You and the Blues [2:46]
-02. The Blue Room [2:13]
-03. Serenade in Blue [3:09]
-04. Blue Holiday [2:23](   Читать дальше...   )Жанр: Cool, Easy ListeningПродолжительность: 00:33:38
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1E196AA8BED0E85A62CDE8B2231FEFC4FD3198BD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1650630   (225458) от 02.08.2023
-
-Brian Bromberg - The Magic of Moonlight (2023) [FLAC|Lossless|WEB-DL|tracks] <Smooth Jazz, Contemporary Jazz, Fusion>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_225458.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. The Magic of Moonlight
-02. Nico’s Groove
-03. A New Dawn
-04. So, You Think You’re All That?(   Читать дальше...   )Жанр: Smooth Jazz, Contemporary Jazz, FusionПродолжительность: 01:07:14
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2355A27B9A8553551D882D3F8142611C7D9D0C54
 ```
 
 https://mybot314.ru/tekegram_catalog/

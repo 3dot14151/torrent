@@ -1,3 +1,61 @@
+###  Публикация: 1285864   (716950) от 28.02.2019
+
+Dale Cooper Quartet & The Dictaphones - Astrild Astrild (2017) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Dark Ambient>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716950.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Mia Outarde Bondon (5:56)
+02. Pemp Ajour Imposte (10:26)
+03. Son Mansarde Roselin (18:02)
+04. Five Clenche Bouscarte / Ocho Accenteur (7:03)(   Читать дальше...   )Производство: Denovali Records – DEN282Жанр: Dark Jazz, Doom Jazz, Drone, Dark Ambient, ExperimentalПродолжительность: 01:12:12
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4FED0F8AB7A0541D82B6D4BC508070F14AED55EB
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1130252   (716890) от 01.05.2017
+
+Summit Jazz Orchestra featuring Clark Terry - The Knight's Golden Trumpet (2000) 2003, Ermatell Records [APE|Lossless|image + .cue] <Big Band, Mainstream Jazz, Post-Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716890.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Walkin Tiptoe [06:26]
+02. Clark [18:04]
+03. Two Sides [06:13]
+04. I Want A Little Girl [06:18](   Читать дальше...   )Жанр: Big Band, Mainstream Jazz, Post-BopПродолжительность: 00:59:10
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2ED9F51167B53635A7BEDB848FC3E1FCC9D6F2C8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1285921   (716809) от 28.02.2019
 
 Seiko Matsuda - Seiko Jazz 2 (2019) [FLAC|Lossless|WEB-DL|tracks] <Jazz, Vocal Jazz>
@@ -690,64 +748,6 @@ Putney Dandridge - 1936 (1996) Classics [FLAC|Lossless|image + .cue] <Swing, Big
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:BC642D59D2D0AFEEFC6C871E69B61C8513C22444
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286198   (713279) от 02.03.2019
-
-Andrew Hill - Verona Rag (1987) Soul Note [WavPack|Lossless|image + .cue] <Post-Bop, Avant-Garde Jazz, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Retrospect [14:29]
-02. Darn That Dream [6:17]
-03. Verona Rag [16:38]
-04. Tinkering [4:25](   Читать дальше...   )Жанр: Post-Bop, Avant-Garde Jazz, Piano JazzПродолжительность: 00:48:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A0B95B294C2B086268356CA602923771DC2597EE
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1286439   (713211) от 02.03.2019
-
-Jan Johansson - 8 Bitar & Innertrio (1961, 1962) 1994, Heptagon Records [FLAC|Lossless|tracks + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713211.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Prisma [3:03]
-02. She's funny that way [5:01]
-03. Skobonka [2:18]
-04. De salde sina hemman (Emigrantvisa) [3:40](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:16:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:BE6E67ABFE3A9C3441C1A4BF987ADEB477EADDAA
 ```
 
 https://mybot314.ru/tekegram_catalog/

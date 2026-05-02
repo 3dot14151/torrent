@@ -1,3 +1,32 @@
+###  Публикация: 1276312   (788549) от 15.01.2019
+
+VA - Empire Records - Bar (2019) [MP3|320 Kbps] <Blues>
+
+>>Неофициальные сборники
+>>Jazz, Blues, Soul (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_788549.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. John Lee Hooker - You Know I Love You
+02. Greyhounds - Late Night Slice
+03. Jerimiah Marques And The Blue Aces - What Will Lucy Do
+04. Harbor Drive Hookup - Summer Heat(   Читать дальше...   )Жанр: BluesПродолжительность: 02:47:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B82793454380402B2666D59CAB96BA74648C1B74
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1512362   (787377) от 24.11.2021
 
 VA - Flyin Bye: Sensual Blues And Jazz (2021) [MP3|320 Kbps] <Blues, Rock Blues, Jazz>
@@ -716,35 +745,6 @@ Ronnie Earl - 30 most slow Blues (2017) 2CD [MP3|320 Kbps] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:29430C004561FE13F635CD77FDF4CF20255D8B59
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1393503   (767594) от 30.06.2020
-
-VA - Sexy Bedtime Instrumental (2020) 2CD [MP3|320 Kbps] <Easy Listening, Jazz>
-
->>Неофициальные сборники
->>Jazz, Blues, Soul (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_767594.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Relaxing Instrumental Jazz Ensemble - The Weight of a Moonbeam (Beautiful Dreams)
-02. The Erotic, Sexy, Smooth Jazz, Romantic Saxophone, Love Making Music Band - Music for Lovers
-03. Orchester Anthony Ventura - If I Only Had Time / Save the Last Dance for Me
-04. Relaxing Instrumental Jazz Ensemble - Zephyr's Waltz (Relaxing Sleep Music)(   Читать дальше...   )Жанр: Easy Listening, JazzПродолжительность: 09:19:02
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E3C300A999782DDE25FD86E23BBECBA58400CA9F
 ```
 
 https://mybot314.ru/tekegram_catalog/

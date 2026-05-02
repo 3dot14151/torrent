@@ -1,3 +1,61 @@
+###  Публикация: 1031463   (651804) от 04.07.2016
+
+VA - Trance Collection Vol.47 (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651804.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Armin Van Buuren Pres. Rising Star Feat. Betsie Larkin -  Again (Armin van Buuren Extended Remix) 6:11
+002. Talla 2XLC & Jilliana Danise -  What Could Be Better (Original Mix) 6:23
+003. Bobina & Kyle Richardson -  Love Is the Answer (Dimension Remix) 5:11
+004. Mhedi Belkadi -  Leiki (Original Mix) 5:14(   Читать дальше...   )Жанр: Trance, Uplifting Trance, Vocal TranceПродолжительность: 11:04:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DDA34A8304C67A49747DEC41157F6A26A6FD7504
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1031660   (651802) от 04.07.2016
+
+VA - Record Super Charts # 443 (2016) [MP3|320 Kbps] <House, Electro House, Progressive House>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_651802.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. KSHMR feat. Sidnie Tipton -  Wild Card (Original Mix) 3:18
+02. DBSTF -  Afreaka (Extended Mix) 4:01
+03. Martin Garrix & Third Party -  Lions In The Wild 3:32
+04. Headhunterz & Skytech -  Kundalini (Extended Mix) 4:08(   Читать дальше...   )Жанр: House, Electro House, Progressive HouseПродолжительность: 02:06:24
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:38785F1ECD3DAA15048EA8819BAD960822B6F891
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1031611   (651792) от 04.07.2016
 
 VA - Uplifting Trance Free Producer (2016) [MP3|320 Kbps] <Trance, Uplifting Trance, Vocal Trance>
@@ -684,70 +742,6 @@ VA - Funky House: Disco Party (2018) [MP3|320 Kbps] <Funry, Disco, House>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:16B6922D59E7332A2448EC7B124DED79E66634E3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032004   (648018) от 06.07.2016
-
-VA - Amazing Vocal Sound — Summer (2016) [MP3|320 Kbps] <Progressive House, House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_648018.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Calvin Harris & Rihanna — This Is What You Came For (Original Mix) (3:42)
- 02. Disciples & David Guetta — No Worries (Original Mix) (3:28)
- 03. DVBBS & Shaun Frank feat. Delaney Jane — La La Land (Extended Mix) (3:36)
- 04. Flume feat. Tove Lo — Say It (Original Mix) (4:22)(   Читать дальше...   )Жанр: Progressive House, HouseПродолжительность: 02:02:44
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:DF0A24DC473579C9F11A51E860C1B93440625EB3
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 517260   (647914) от 01.07.2012
-
-VA - Beach Chill Las Salinas. The Ibiza Chill Out Album (2012) [MP3|320 кб/с]<Downtempo, Lounge, Chillout>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647914.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Monodeluxe - At the Beach - Original Version
-2. Cosmic Funk - I'll Never Stop - Axel B. Sunset Mix
-3. Treasure Room - Nobody - Original Mix
-4. Stereo Mutants - I Wanna Go - Afterlife Remix
-5. Twentyeight - Hope - Original Mix
-6. Michael E - Barcelona - Original Version
-7. Marc Ozz - Bondai Beach - Original Mix
-8. Lady White - Let Me Try - Original Mix
-9. Mauro Mondello - Bamboja - After Teneriffa Mix
-10. Bang Bang - Hate Fleeting - Da Sunlounge Remix(   Читать дальше...   )Жанр: Downtempo, Lounge, ChilloutПродолжительность: 02:41:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:38925B07592F95BFBA4A01193E521B8144B2E642
 ```
 
 https://mybot314.ru/tekegram_catalog/

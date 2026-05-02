@@ -1,3 +1,61 @@
+###  Публикация: 906064   (647956) от 07.06.2015
+
+Laura Teller - Three Sides To Everything (2015) [FLAC|Lossless|WEB-DL]<Vocal Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647956.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Jeremy (5:50)
+02. City Livin' People (3:52)
+03. Stillness Of A Kiss (3:23)
+04. Two Steps Closer (4:01)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:41:36
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DF18D7C8141E1873B0C5AB0AD1B9EA41ADA721D6
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1032125   (647908) от 06.07.2016
+
+Emil Viklicky Trio - Kafka On The Shore: Tribute To Haruki Murakami (2011) Japan Edition [FLAC|Lossless|image + .cue] <Contemporary Jazz, Piano Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_647908.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Afterdark    07:08
+02.  Dolphine Dance    07:16
+03.  Eleanor Rigby    03:58
+04.  Peacocks    06:16(   Читать дальше...   )Жанр: Contemporary Jazz, Piano JazzПродолжительность: 01:12:45
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B43D7C834D9F927518E663CB28B0D8AE801BA833
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1032255   (647904) от 06.07.2016
 
 Lee Morgan - Midtown Blues (1957, 1960) 2CD, 2011, Not Now Music[FLAC|Lossless|image + .cue] <Hard Bop>
@@ -693,64 +751,6 @@ Rodney Jones - When You Feel The Love (1980) Remaster, 2015, Solid Records[FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DD95083A679FA56624E4F9BAFC5322FA57F05DAA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032704   (644111) от 08.07.2016
-
-Francy Boland & The Orchestra - Blue Flame / Red Hot / White Heat (1972) 2CD, 2008, Universal[FLAC|Lossless|tracks + .cue] <Mainstream Jazz, Big Band>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644111.jpg" />
-</div>
-
-
-###  Подробнее
-
-CD1:
-01.All The Things You Are [07:19]
-02.Clair Obscure [05:59]
-03.Dancing In The Dark [06:10](   Читать дальше...   )Жанр: Mainstream Jazz, Big BandПродолжительность: 01:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E7717D55A59B52FAA5220DB31F83AAA0BC1DF17B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1032688   (644104) от 08.07.2016
-
-Sinne Eeg - Don't Be So Blue (2011) Japan Edition [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_644104.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Don't Be So Blue (Eeg) [5:22]
-02. Highway One (Eeg-Freeman) [4:54]
-03. The Writing on the Wall (Eeg) [4:42]
-04. Last Ride (Eeg) [3:36](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:246F244BFBE0B67632D0B558C312CB905DB830A7
 ```
 
 https://mybot314.ru/tekegram_catalog/

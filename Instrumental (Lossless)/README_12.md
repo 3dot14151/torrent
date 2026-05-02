@@ -1,3 +1,119 @@
+###  Публикация: 1446232   (1032978) от 08.02.2021
+
+Jumpin' Jacks - Summertime Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032978.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Girls Girls Girls (2:58)
+02. I Got a Girls (2:43)
+03. Mess Around (3:15)
+04. Summertime Blues (2:49)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7B7F11754511CC1C3704EFEE624010C8087D5C33
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619493   (1032961) от 16.03.2023
+
+Bai Kamara Jr. and The Voodoo Sniffers - Traveling Medicine Man (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032961.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Shake It, Shake It, Shake It (2:37)
+02. Surrounded (3:28)
+03. Good, Good Man (3:57)
+04. If You Go (4:02)(   Читать дальше...   )Жанр: BluesПродолжительность: 01:01:31
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B9C0FD220941A7C460F8495A90FBB081BA1C897
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1619499   (1032958) от 16.03.2023
+
+Jenn Howard - Valiant Women (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032958.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Better Than You Think (3:53)
+02. Take A Hand (3:23)
+03. Microphone (3:12)
+04. Hold On (5:16)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:41:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C3BBD21D146BC69C7C60C22730FE25266023A5A7
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1446263   (1032954) от 08.02.2021
+
+BoogieBunker - Special Guests Simone Roerade & Wouter Kiers (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues R&B>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032954.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Little by little (3:41)
+02. Everytime I roll the dice (4:09)
+03. Tennessee whisky (4:23)
+04. Dr. Feelgood (love is a serious business) (5:09)(   Читать дальше...   )Жанр: Blues R&BПродолжительность: 00:27:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5592137E6B4DAEEC52F46BEBF03B889685B8E226
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1446250   (1032949) от 08.02.2021
 
 Marco Pasetto & Renato Bonato - Birth of the Blues (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
@@ -629,122 +745,6 @@ Kat Danser - One Eye Open (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:259D302563A573DB93DF4F852E798497FEF086D9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447169   (1032057) от 12.02.2021
-
-Early Times and the High Rollers - The Corner (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues Rock>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032057.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Come On, Let's Ride (2:42)
-02. On the Corner (3:55)
-03. Do What She Do (2:58)
-04. She's About to Lose Her Mind (3:58)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:36:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1D966FAAB7E3AC18CD66CF66219C10D1B59E8D5C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447147   (1032051) от 12.02.2021
-
-Joyann Parker - Out of the Dark (2021) [FLAC|Lossless|WEB-DL|tracks] <Blues R&B>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1032051.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Gone so Long (4:12)
-02. Carry On (4:26)
-03. Bad Version of Myself (3:25)
-04. What Did You Expect (3:10)(   Читать дальше...   )Жанр: Blues R&BПродолжительность: 00:41:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A08F5D1EF82D93AC8B0583DB68C1D135A523085B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620691   (1031868) от 21.03.2023
-
-Deb Callahan - Backbone (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031868.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. What I'm Workin With (3:34)
-02. Crazy Ride (4:05)
-03. Big Girl Pants (3:54)
-04. Rogue (4:20)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:47:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F865658C85B08148F52073E924AEDD497DD2D04
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1620670   (1031865) от 21.03.2023
-
-Ain’t No Square - Taking Time (2023) [FLAC|Lossless|WEB-DL|tracks] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031865.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Belly Dancing (4:26)
-02. Millionaire (5:34)
-03. What Goes Around comes around (5:04)
-04. Happy Day (3:31)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:32:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:44F82DC55B3BE3DA8DCBE3295061676B8914E02F
 ```
 
 https://mybot314.ru/tekegram_catalog/

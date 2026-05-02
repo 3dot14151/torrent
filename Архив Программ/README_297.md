@@ -1,3 +1,29 @@
+###  Публикация: 1368788   (907417) от 21.03.2020
+
+Soft4Boost Document Converter 6.2.5.435 [Multi/Ru]
+
+>>Архив торрентов
+>>Архив Программ
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_907417.jpg" />
+</div>
+
+
+###  Подробнее
+
+Легкий и функциональный инструмент для просмотра и конвертации документов в PDF, DOC, DOCX, RTF, TXT, ODT, HTML, JPEG, TIFF и другие форматы.Язык интерфейса: Русский, Английский, другие
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9B7A20C5A6456BBE403870BA32CD7C67E5F8CA95
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1368888   (907408) от 21.03.2020
 
 R-Studio Network Edition 8.13 build 176037 RePack (& Portable) by elchupacabra [Multi/Ru]
@@ -649,33 +675,6 @@ Download Master эффективно решает 3 главных пробле�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:3B236C0EA87FCB2E470FBD14E8F92EF814A267CA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1491931   (906903) от 27.08.2021
-
-Sumatra PDF 3.4.14076 Pre-release + Portable [Multi/Ru]
-
->>Архив торрентов
->>Архив Программ
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_906903.jpg" />
-</div>
-
-
-###  Подробнее
-
-Sumatra PDF — свободная программа, предназначенная для просмотра и печати документов в форматах: PDF, DjVu, FB2, ePub, MOBI, CHM, XPS, CBR/CBZ для Windows. Программа разрабатывается на базе движка MuPDF, имеет открытый исходный код и свободно распространяется на условиях лицензии GNU GPL.
-Sumatra PDF — мощная, небольшая программа с простым интерфейсом и высокой скоростью (   Читать дальше...   )Язык интерфейса: Русский, Английский и другие
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7A44E81DADCA47CF2FA3FDB004DAB316DED918D
 ```
 
 https://mybot314.ru/tekegram_catalog/

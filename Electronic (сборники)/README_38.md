@@ -1,3 +1,61 @@
+###  Публикация: 1106401   (873523) от 19.02.2017
+
+VA - Record Super Chart #475 (2017) [MP3|320 Kbps] <House, Club, Danc>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873523.jpg" />
+</div>
+
+
+###  Подробнее
+
+01.  Ofenbach - Be Mine (Amice Remix)  3:23
+02.  Klaas - Riot (Extended Mix)  4:00
+03.  DJ Sava & Irina Rimes - I Loved You (Denis First Remix)  3:20
+04.  Грибы - Копы (Vincent & Diaz Remix)  4:10(   Читать дальше...   )Жанр: House, Club, DancПродолжительность: 02:13:50
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:B1E1748728C2B4588263552370CE1250A843C9FD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1496439   (873353) от 17.09.2021
+
+VA - Sound Of Quasicrystal (2021) [MP3|320 Kbps] <Techno, Minimal, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_873353.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Emmanuel - Era
+002. Fourm - Pylons
+003. Perdu - Rise Of F5
+004. Poima - Triglau(   Читать дальше...   )Жанр: Techno, Minimal, ElectroПродолжительность: 12:34:22
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:66863600DA6B861EC7B77961889A453E5854EB39
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1496413   (873223) от 17.09.2021
 
 VA - NRW: Ethnic Electro House (2021) [MP3|320 Kbps] <House, Electro, Ethnic Dance>
@@ -687,64 +745,6 @@ VA - Beatport Electronic: Sound Pack #45 (2020) [MP3|320 Kbps] <Synthwave>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E002A39653674919058A56BCA837947D3CCF0910
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1106917   (869840) от 21.02.2017
-
-VA - Deep House Collection Vol.109 (2017) [MP3|217-320 Kbps] <Deep House, Club House, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869840.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. 181 Degree - Ghost (Original Mix) 8:36
-002. A.D.S.R. feat. Moji - Operate (Original Mix) 5:24
-003. Aaron McClelland - Let's Get Physical (Touch & Go Laidback Dub) 5:33
-004. Ace Of Base - Cruel Summer  (Otter Berry Bootleg) 3:28(   Читать дальше...   )Жанр: Deep House, Club House, Tech HouseПродолжительность: 14:55:55
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C73C8CBDC9C1F74B539B3798B7414F3043D77589
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1496862   (869800) от 19.09.2021
-
-VA - Beatport Tech House: Sound Pack #350 (2021) [MP3|320 Kbps] <Club, Tech House>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_869800.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Losless - Second Life
-002. Angelo Ferreri - Drunk To Get Funk
-003. Electrypnose - Crooked House
-004. Andreas - Dune(   Читать дальше...   )Жанр: Club, Tech HouseПродолжительность: 11:35:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F4E6485C7FF2722C6E261433AAE52938AD0C9FED
 ```
 
 https://mybot314.ru/tekegram_catalog/

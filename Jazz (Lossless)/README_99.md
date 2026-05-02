@@ -1,3 +1,61 @@
+###  Публикация: 1285519   (721195) от 26.02.2019
+
+Humphrey Lyttelton - Classic Years (2005) Delta Music [FLAC|Lossless|tracks + .cue] <Dixieland, Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_721195.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Georgia on My Mind [3:03]
+02. Travellin' Blues [2:59]
+03. Wolverine Blues [3:05]
+04. Blues for an Unknown Gypsy [3:11](   Читать дальше...   )Жанр: Dixieland, SwingПродолжительность: 01:18:28
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A2D523CC12752B675F8256FC221791ED0A4B8E84
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1531633   (720833) от 16.02.2022
+
+Johnny Hodges And His Orchestra - Perdido & Creamy (1955) 2010, Fresh Sound Records [FLAC|Lossless|tracks + .cue] <Swing>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_720833.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rose Room [6:52]
+02. Blues For Basie [6:22]
+03. Mood Indigo [6:22]
+04. Squatty Roo [6:52](   Читать дальше...   )Жанр: SwingПродолжительность: 01:19:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:CBD4FC954F798BA6370AA3D2086C7336F7A0434F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1129599   (720806) от 29.04.2017
 
 Cannonball Adderley Quintet - Cannonball In Japan (1966) 2004, Capitol [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -687,64 +745,6 @@ Dale Cooper Quartet & The Dictaphones - Quatorze Pièces De Menace (2013) [FLAC|
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:E45EF586926973DBF96044FE09D534BE280457F5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1285864   (716950) от 28.02.2019
-
-Dale Cooper Quartet & The Dictaphones - Astrild Astrild (2017) [FLAC|Lossless|Web-DL|tracks] <Dark Jazz, Doom Jazz, Dark Ambient>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716950.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Mia Outarde Bondon (5:56)
-02. Pemp Ajour Imposte (10:26)
-03. Son Mansarde Roselin (18:02)
-04. Five Clenche Bouscarte / Ocho Accenteur (7:03)(   Читать дальше...   )Производство: Denovali Records – DEN282Жанр: Dark Jazz, Doom Jazz, Drone, Dark Ambient, ExperimentalПродолжительность: 01:12:12
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4FED0F8AB7A0541D82B6D4BC508070F14AED55EB
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1130252   (716890) от 01.05.2017
-
-Summit Jazz Orchestra featuring Clark Terry - The Knight's Golden Trumpet (2000) 2003, Ermatell Records [APE|Lossless|image + .cue] <Big Band, Mainstream Jazz, Post-Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_716890.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Walkin Tiptoe [06:26]
-02. Clark [18:04]
-03. Two Sides [06:13]
-04. I Want A Little Girl [06:18](   Читать дальше...   )Жанр: Big Band, Mainstream Jazz, Post-BopПродолжительность: 00:59:10
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2ED9F51167B53635A7BEDB848FC3E1FCC9D6F2C8
 ```
 
 https://mybot314.ru/tekegram_catalog/

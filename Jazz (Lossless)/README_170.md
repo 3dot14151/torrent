@@ -1,3 +1,67 @@
+###  Публикация: 544511   (484643) от 10.09.2012
+
+Nicki Parrott - 3 альбома (2011-2012) [FLAC|Lossless]<Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484643.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Too Darn Hot [03:51]
+02. That Sunday, That Summer [03:39]
+03. Indian Summer  [04:11]
+04. The Summer Wind  [04:10]
+05. Midnight Sun  [05:45]
+06. On The Sunny Side Of The Street  [04:20]
+07. Estate  [03:43]
+08. Here Comes The Sun  [03:06]
+09. In The Heat Of The Night  [04:57]
+10. When The Sun Comes Out  [05:15](   Читать дальше...   )Жанр: JazzПродолжительность: 00:59:59
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1566199   (484414) от 28.07.2022
+
+V.A. - Guitar and Piano Jazz (2022) [FLAC|Lossless|WEB-DL|tracks] <Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_484414.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Instrumental Music Ensemble - Smoothly Chilling (3:21)
+02. Relax Time Zone - Round Midnight (3:22)
+03. Jazz Night Music Paradise - This Summer Breeze (2:52)
+04. Instrumental Music Ensemble - New Morning (3:06)(   Читать дальше...   )Жанр: JazzПродолжительность: 00:49:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E33E5F09B1F9A675D1F52BE2F7D63E906D756E28
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1159292   (484226) от 20.08.2017
 
 Milt Buckner & His Alumni (1976) 2000, Black And Blue [FLAC|Lossless|image + .cue] <Swing, Mainstream Jazz>
@@ -704,64 +768,6 @@ Jaki Byard - Freedom Together! (1966) /1997, OJC/ [FLAC|tracks+.cue]<Post-Bop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:CA33AE43A963E05984090872EF09661EF94D2CAD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 938774   (480092) от 19.09.2015
-
-Phillip Bent - The Pressure (1993) /GRP Records/[FLAC|image+.cue]<Smooth, Pop-Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480092.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Do For You [03:56]
-02.The World Is A Ghetto [04:59]
-03.Swing It [05:00]
-04.One Man And His Music [05:29](   Читать дальше...   )Жанр: Smooth, Pop-JazzПродолжительность: 00:49:07
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D1B2BAC8474A67C96812E6176E0644404A13EAF6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1159890   (480085) от 22.08.2017
-
-Bill Carrothers - Home Row (2008) Pirouet [FLAC|Lossless|image + .cue] <Post-Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_480085.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. When Will The Blues Leave [05:57]
-02. Jesus' Last Ballad [12:24]
-03. A Squirrel's Tale [06:21]
-04. Hope Song [05:45](   Читать дальше...   )Жанр: Post-Bop, Piano JazzПродолжительность: 01:01:45
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:22EC6B0A1E9D108339EB3AAE0B875A1027177F04
 ```
 
 https://mybot314.ru/tekegram_catalog/

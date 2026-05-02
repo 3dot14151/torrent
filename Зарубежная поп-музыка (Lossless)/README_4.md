@@ -1,3 +1,234 @@
+###  Публикация: 1442831   (1036347) от 26.01.2021
+
+VA - sad shower (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1036347.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Lewis Capaldi - Someone You Loved (03:02)
+02. Calum Scott - You Are The Reason (03:24)
+03. Dean Lewis - Be Alright (03:16)
+04. Alessia Cara - Scars To Your Beautiful (03:50)(   Читать дальше...   )Жанр: PopПродолжительность: 01:00:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9E62CA0F5F58F11C515F1C8F91B3FE94A6569561
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1616900   (1035815) от 04.03.2023
+
+Thomas Anders - The Journey of Life (2023) Single [FLAC|Lossless|WEB-DL|tracks] <Pop, Dance>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035815.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Journey Of Life
+02. The Journey Of Life (Ballad Version)
+03. The Journey Of Life (Instrumental)Жанр: Pop, DanceПродолжительность: 00:10:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F4AFCC696013FD2E6C5F79B1C6619BEC78BCB8C0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443361   (1035758) от 28.01.2021
+
+VA - Calming Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035758.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Karizma Duo - The Tracks of My Tears (02:54)
+02. Logan York - Norwegian Wood (This Bird Has Flown) (03:35)
+03. Shannon & Keast - When I Was Your Man (03:42)
+04. Nora & Will - Watermelon Sugar (03:00)(   Читать дальше...   )Жанр: PopПродолжительность: 00:51:05
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8CCC301CC0C56664DABB54899436F2046958D17
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617221   (1035558) от 05.03.2023
+
+Various - Here It Is: A Tribute To Leonard Cohen (2022) [FLAC|Lossless|image + .cue] <Pop, Ballad>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035558.jpg" />
+</div>
+
+
+###  Подробнее
+
+Продюсер Ларри Кляйн отдает дань уважения своему другу Леонарду Коэну, выпустив альбом, который представляет потрясающие новые исполнения композиций легендарного певца и автора песен в исполнении экстраординарного состава вокалистов.01. Norah Jones — Steer Your Way
+02. Peter Gabriel — Here It Is
+03. Gregory Porter — Suzanne
+04. Sarah McLachlan — Halleluja(   Читать дальше...   )Жанр: Pop, BalladПродолжительность: 00:59:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8AE33E170C44A58EBCD0961721604CA4946B0B9A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1617573   (1035008) от 07.03.2023
+
+Grace Jones - Hurricane (2008) [FLAC|Lossless|tracks + .cue] <Pop, Reggae>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1035008.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. This Is
+02. Williams’ Blood
+03. Corporate Cannibal
+04. I’m Crying (Mother’s Tears)(   Читать дальше...   )Жанр: Pop, ReggaeПродолжительность: 00:48:44
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:4EE2C1183C7586915E04949EF0B084F0455D9048
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444048   (1034931) от 31.01.2021
+
+Michelle - Tabu (2018) [FLAC|Lossless|image + .cue] <Pop, Schlager>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034931.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Tabu [3:35]
+ 02. Meine Welt [3:55]
+ 03. Lieben, Lieben, Lieben [3:38]
+ 04. Wenn ich was gelernt hab [3:29](   Читать дальше...   )Жанр: Pop, SchlagerПродолжительность: 01:00:47
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:020DFC73257DBD4867EFC60332BA43C63719594F
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1443703   (1034886) от 31.01.2021
+
+Mylene Farmer - En Concert (2xCD) (1989) Reissue, Remastered, 2019, Polydor [FLAC|Lossless|tracks + .cue] <Chanson, Synth-pop>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034886.jpg" />
+</div>
+
+
+###  Подробнее
+
+CD1:
+1.Prologue (5:49)
+2.L'Horloge (4:46)
+3.Plus grandir (4:46)(   Читать дальше...   )Жанр: Chanson, Synth-popПродолжительность: 01:53:26
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:8F43EAA9334DFBEC3399F96051322DA5658EE6FA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1444411   (1034684) от 01.02.2021
+
+Dave Dee, Dozy, Beaky, Mick & Tich - Zabadak (1995) [FLAC|Lossless|image + .cue] <Beat, Pop Rock, Oldies>
+
+>>Pop
+>>Зарубежная поп-музыка (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1034684.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. The Legend of Xanadu (3:38)
+02. Bend It (2:33)
+03. Save Me (3:01)
+04. Mr. President (3:16)(   Читать дальше...   )Жанр: Beat, Pop Rock, OldiesПродолжительность: 00:52:46
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:335AFDF5A539D186FC217A65596995DAE0995198
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1444417   (1034678) от 01.02.2021
 
 VA - Valentine's Day 2021 [FLAC|Lossless|WEB-DL|tracks] <Pop>
@@ -513,238 +744,6 @@ VA - The Glory Of Love: A 1990 Super Popgala (1990) [FLAC|Lossless|tracks + .cue
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:B91FAD2BB15E5B9DD09B3D20A1D866A33515C2DD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447601   (1031659) от 14.02.2021
-
-VA - Easy 80s Acoustic (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031659.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Karizma Duo - La Isla Bonita (02:59)
-02. Talisha Karrer - Only You (02:45)
-03. Shannon & Keast - Arthur’s Theme (Best That You Can Do) (03:17)
-04. Talisha Karrer - Live to Tell (04:48)(   Читать дальше...   )Жанр: PopПродолжительность: 00:47:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:908C62821A21DC07DFE131A0C61E024D60D5C70B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447797   (1031544) от 14.02.2021
-
-Dua Lipa - Future Nostalgia (The Moonlight Edition) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031544.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Future Nostalgia (3:04)
-02. Don't Start Now (3:03)
-03. Cool (3:29)
-04. Physical (3:13)(   Читать дальше...   )Жанр: PopПродолжительность: 01:01:39
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:14F94B268CCA8F6FAB69CE555063C6AFA8D33169
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447872   (1031352) от 15.02.2021
-
-Pentatonix - The Lucky Ones (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031352.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Happy Now
-02. Love Me When I Don’t
-03. Coffee In Bed
-04. Be My Eyes(   Читать дальше...   )Жанр: PopПродолжительность: 00:36:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:90FD2381D6D787FDA34F29BF284F75566FB8077E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447880   (1031329) от 15.02.2021
-
-Sia - Music (Songs From And Inspired By The Motion Picture) (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031329.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Together
-02. Hey Boy
-03. Saved My Life
-04. Floating Through Space (feat. David Guetta)(   Читать дальше...   )Жанр: PopПродолжительность: 00:49:30
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:B38BCB79C193C1CCDEEC3054094B4D8D1E79386A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448036   (1031155) от 16.02.2021
-
-Boy George And Culture Club - Life (2018) [FLAC|Lossless|tracks + .cue] <Pop Rock>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031155.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. God & Love (04:13)
-02. Bad Blood (03:25)
-03. Human Zoo (03:21)
-04. Let Somebody Love You (03:45)(   Читать дальше...   )Жанр: Pop RockПродолжительность: 00:43:11
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E6A8C74B0118E2051662109B6C17F48229142E33
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1447995   (1031129) от 16.02.2021
-
-VA - Новорічні та Різдвяні пісні 2018 (Ukrainian Folk Songs) (2017) [FLAC|Lossless|WEB-DL|tracks] <Pop, Folk>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1031129.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Діля, Astarta, Edwin - Різдвяна (02:58)
-02. Наталка Карпа - Різдвяна ніч (02:53)
-03. Віктор Павлік - Добрий вечір тобі (03:36)
-04. Go-A, Katya Chilly - Щедрий вечір (03:03)(   Читать дальше...   )Жанр: Pop, FolkПродолжительность: 01:04:25
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:60DABD2B964BFC813B92D8DAC31382905A08E644
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1621338   (1030970) от 25.03.2023
-
-Meg Myers - TZIA (2023) [FLAC|Lossless|WEB-DL|tracks] <Indie Pop, Female Vocal>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030970.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. CHILDREN OF LIGHT II (3:45)
-02. A NEW SOCIETY (3:42)
-03. HTIS (feat. Luna Shadows & Carmen Vandenberg) (3:15)
-04. ME (2:41)(   Читать дальше...   )Жанр: Indie Pop, Female VocalПродолжительность: 00:50:47
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:59F0381B76B9A8E3D3CE4DCE40B8D4ABC5D27816
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1448368   (1030934) от 17.02.2021
-
-Helene Segara - Romance (2021) [FLAC|Lossless|WEB-DL|tracks] <Pop, French pop>
-
->>Pop
->>Зарубежная поп-музыка (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_1030934.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. L'amour est un soleil
-02. La vie avec toi
-03. Vivre
-04. Parlez moi de nous(   Читать дальше...   )Жанр: Pop, French popПродолжительность: 00:22:36
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FB9B3F85386E8C0A0A3F302000366B62128DC4
 ```
 
 https://mybot314.ru/tekegram_catalog/

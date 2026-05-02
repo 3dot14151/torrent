@@ -1,3 +1,60 @@
+###  Публикация: 1196457   (822557) от 03.01.2018
+
+Harold Ashby Quartet - What Am I Here For? (1990) 1992, Criss Cross Jazz [FLAC|Lossless|image + .cue] <Mainstream Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822557.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. I Can't Get Started [05:32]
+02. What Am I Here For? [07:36]
+03. Mood Indigo [05:09]
+04. Frankie And Johnny [07:42](   Читать дальше...   )Жанр: Mainstream JazzПродолжительность: 01:09:18
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:137F8CA84B78CBC0251243A8B168C3F5292FCB5D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1196550   (822556) от 03.01.2018
+
+Billy Harper Quintet - Love On The Sudan (1977) 2009, Denon Jazz [FLAC|Lossless|tracks + .cue] <Post-Bop, Contemporary Jazz>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/006/save_picture_822556.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Awakening [13:53]
+02. Priestess [11:37]
+03. Love On The Sudan [17:08]Жанр: Post-Bop, Contemporary JazzПродолжительность: 00:42:37
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2F9F166F2CB1E958CC4498DEB4DF63F3798040DD
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1196545   (822543) от 03.01.2018
 
 Maynard Ferguson - The One And Only Maynard Ferguson (2007) Maynard Ferguson Trust [FLAC|Lossless|tracks + .cue] <Big Band, Mainstream Jazz, Post-Bop>
@@ -686,64 +743,6 @@ Mark Murphy - Song For The Geese (1997) RCA Victor [FLAC|Lossless|tracks + .cue]
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:DE823C634946E146DD9D7DCAD0CDFFF61AD754FD
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1196916   (819351) от 05.01.2018
-
-Marcus Roberts Trio - In Honor Of Duke (1999) Columbia [FLAC|Lossless|image + .cue] <Hard Bop, Piano Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819351.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Rickitick Tick [06:03]
-02. There It Is [08:50]
-03. The Feeling Of Something New [09:09]
-04. Take A Chance [05:13](   Читать дальше...   )Жанр: Hard Bop, Piano JazzПродолжительность: 01:13:21
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:97171544A3D3A8C28DFD4C839B7D57711B008DB5
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1382413   (819279) от 11.05.2020
-
-Diana Krall - When I Look In Your Eyes (1999) [FLAC|Lossless|image + .cue]<Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_819279.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Let's Face The Music And Dance (05.18)
-02. Devil May Care (03.20)
-03. Let's Fall In Love (04.19)
-04. When I Look In Your Eyes (04.32)(   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:54:35
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A4B9EB7F299C14111A741D9E4832CE92E6CF30C7
 ```
 
 https://mybot314.ru/tekegram_catalog/

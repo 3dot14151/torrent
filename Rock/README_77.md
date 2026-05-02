@@ -1,3 +1,32 @@
+###  Публикация: 1580595   (238168) от 02.10.2022
+
+Def Leppard - The Early Years 79 - 81 (2020) (5 CD), Reissue, Remastered, 2020, UMC [OGG Vorbis|484 Kbps] <Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/004/save_picture_238168.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rock Brigade
+02. Hello America
+03. Sorrow Is A Woman
+04. It Could Be You(   Читать дальше...   )Жанр: Rock, Hard RockПродолжительность: 04:25:14
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C441DB505805C522DD8906ABE941794932408FC9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1445777   (238011) от 07.02.2021
 
 Adam Sherman - Triangle Sky (2021) [MP3|320 Kbps] <Classic Rock, Pop Rock>
@@ -713,35 +742,6 @@ Ray Temple - II (2023) [MP3|320 Kbps] <Heavy Rock, Psych, Stoner, Garage, Bluesy
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:306E831B5F0930B2E13318CC7DA325D4C440926B
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1622837   (234160) от 30.03.2023
-
-WyndRider - WyndRider (2023) [MP3|320 Kbps] <Psych Stoner Doom, Bluesy>
-
->>Rock, Alternative, Punk, Metal
->>Rock
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/003/save_picture_234160.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Pit Witch
-02. Snake Children
-03. Creator
-04. Strangled By Smoke(   Читать дальше...   )Жанр: Psych Stoner Doom, BluesyПродолжительность: 00:43:20
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:C7E34DFA5EB63F36DFB861E3F018CE4A00CA5FED
 ```
 
 https://mybot314.ru/tekegram_catalog/

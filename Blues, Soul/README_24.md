@@ -1,3 +1,32 @@
+###  Публикация: 1404047   (495182) от 24.08.2020
+
+Blues Pills - Holy Moly! (2020) [MP3|320 Kbps] <Blues Rock>
+
+>>Jazz, Blues, Soul
+>>Blues, Soul
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_495182.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Proud Woman (03:34)
+02. Low Road (03:18)
+03. Dreaming My Life Away (02:43)
+04. California (03:10)(   Читать дальше...   )Жанр: Blues RockПродолжительность: 00:41:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A73584CC7A18CCD13A51DD402386035729353201
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 936796   (494452) от 12.09.2015
 
 Jay Willie Blues Band - Johnny's Juke Joint (2015) [MP3|320 кб/с]<Electric Blues, Rockin' Blues>
@@ -716,35 +745,6 @@ Amphibious Zoo Music - Bayou Blues: Southern Fried Guitar Jams (2013) [MP3|320 K
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:6FAB4FE99E2E15A09539A8093559A677B748DFF0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1405647   (483383) от 30.08.2020
-
-Bobby Rush - Rawer Than Raw (2020) [MP3|320 Kbps] <Blues>
-
->>Jazz, Blues, Soul
->>Blues, Soul
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_483383.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Down in Mississippi (03:23)
- 02. Hard Times (03:51)
- 03. Let Me in Your House (05:17)
- 04. Smokestack Lightning (04:48)(   Читать дальше...   )Жанр: BluesПродолжительность: 00:44:56
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:10C0D5E01C775B9DCFC96A0FB82730F60E04BF80
 ```
 
 https://mybot314.ru/tekegram_catalog/

@@ -1,3 +1,59 @@
+###  Публикация: 1001350   (853860) от 28.03.2016
+
+VA - Cookies With A Smile: Ibiza Deep House (2016) [MP3|320 кб/с] <Deep House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853860.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Muovo - Green Granada 07:55
+002. Benny Camaro - Cуmo Suena 05:51
+003. Ernesto vs Bastian - Dark Side Of The Moon (Axwell & Sebastian Ingrosso Re-Mode) (feat. Susana) 05:46
+004. Hardwell - Storage 08:02(   Читать дальше...   )Жанр: Deep House, ElectroПродолжительность: 10:14:51
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:096108DBCCCB88B2F2945E3DC96EC72922AD0772
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1001485   (853784) от 28.03.2016
+
+VA - Dubstep 100 Top Hits Bass Blast DJ Mix (2016) [MP3|320 кб/с] <Dubstep>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_853784.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Dubster Spook & Dj Random - Dubstep 100 Top Hits Bass Blast (Trap DnB DrumStep 2hr DJ Mix 2016)
+02. K Theory - The Tower (Dubstep Bass Blast 2016 Remix DJ Edit)Жанр: DubstepПродолжительность: 10:54:03
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:53DFD301148E36C4F428475ACCBF5B60A936C739
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1110309   (853771) от 02.03.2017
 
 VA - Music For Everyone - Tropical House Vol.1 (2017) [MP3|320 Kbps] <House, Tropical House>
@@ -680,64 +736,6 @@ VA - Lets Get Fit Running Music (2016) [MP3|320 кб/с] <House, Progressive, Cl
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:32A896F62AEE3ADC3E454B7C58CEADB37D28AFBA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1378289   (846612) от 25.04.2020
-
-VA - Beatport Electro House: Sound Pack #69 (2020) [MP3|320 Kbps] <Electro House, Dance, Club>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_846612.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Innellea - Imignie
-002. Marek Hemmann - Roundabout
-003. The Loco - Too Demanding
-004. Madmotormiquel - Daddy Are You Proud(   Читать дальше...   )Жанр: Electro House, Dance, ClubПродолжительность: 10:42:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8007C39A9DEC404EBFF49033279F41B11931CB86
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1002917   (845399) от 02.04.2016
-
-VA - Spring Vocal Chillout (2016) [MP3|320 кб/с] <Downtempo, Chillout, Lounge>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_845399.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Iris Dee Jay - Xray Eyes - S.A.T & Seven24 Remix
-02. Seven24 - The Meaning - S.A.T Remix
-03. Alex Field - Wake Me - Bryan Milton Remix
-04. Seven24 - Performance - Moonnight Remix(   Читать дальше...   )Жанр: Downtempo, Chillout, LoungeПродолжительность: 00:48:22
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9B29B24598B717D862595D4DCD4CB536E1FC0F75
 ```
 
 https://mybot314.ru/tekegram_catalog/

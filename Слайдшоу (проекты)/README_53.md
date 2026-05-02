@@ -1,3 +1,29 @@
+###  Публикация: 1149105   (602349) от 09.07.2017
+
+Проекты - VideoHive - 3D Photo Pop Out - Timeline Story - 20021234 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_602349.jpg" />
+</div>
+
+
+###  Подробнее
+
+Создаем фото-шоу из Ваших памятных фотографий на любую тематику, красочно - с объемными 3D эффектами с записью в видео файл.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D6C2407196AA01F9646350DF84EB45213A1D8CB2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1149369   (600955) от 10.07.2017
 
 Проекты - Motion Array - Photo Exhibition - 36779 [AEP]
@@ -654,33 +680,6 @@ Bright Summer Opener – это яркий, летний проект для н�
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:AD4E4F64C4E0DCF5B8E189A6862A5422F607060E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1039983   (588288) от 03.08.2016
-
-Проекты - VideoHive - 3D Split Slideshow [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_588288.jpg" />
-</div>
-
-
-###  Подробнее
-
-Проект для создания слайд шоу.
-Проект предназначен для редактирования в AE.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:32F8E800C3B5BF87BD0C734E46D87B394E1A2AB2
 ```
 
 https://mybot314.ru/tekegram_catalog/

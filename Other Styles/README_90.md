@@ -1,3 +1,208 @@
+###  Публикация: 921143   (577161) от 24.07.2015
+
+VA - Simply Spa Chill (2010) 4CD[FLAC|image+.cue]<New Age, Meditative, Peaceful Relaxation, Tranquility, Eastern Chill>
+
+>>Other Styles
+>>New Age/Meditative/Relax (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_577161.jpg" />
+</div>
+
+
+###  Подробнее
+
+Даже на AllMusic (что для портала совсем не характерно) не решились определить жанр этого сборника. Peaceful Relaxation, что означает в народе - полная расслабуха, думаю, очень даже подойдет. А в связи с приближающимися выходными так и просто очень актуально.01. Orient Expressions - Tranquility  (8:10)
+02. Memories of Goa - Dawn Meditation  (7:33)
+03. Beyond Bombay - Adagio  (8:36)
+04. Prem Gulshan - Relax  (6:28)(   Читать дальше...   )Жанр: New Age, Meditative, Peaceful Relaxation, Tranquility, Eastern ChillПродолжительность: 04:19:02
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E3B9581BFD6CDF8270D54151A2AF35025181C8D8
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1303112   (576311) от 19.05.2019
+
+Jamestown Revival - San Isabel (2019) [FLAC|Lossless|tracks + .cue] <Folk Rock>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576311.jpg" />
+</div>
+
+
+###  Подробнее
+
+1. Crazy World (Judgement Day) (04:40)
+2. This Too Shall Pass (04:29)
+3. Killing You, Killing Me (05:50)
+4. Who Hung the Moon (05:02)(   Читать дальше...   )Жанр: Folk RockПродолжительность: 00:48:25
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5B57AA23C5EB58C2F2821F2859A82ACA0DE49D99
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1233991   (576179) от 02.07.2018
+
+Michael Forster - Piano Chill (2018) [FLAC|Lossless|WEB-DL|tracks] <Instrumental, Piano, New Age, Modern Classical>
+
+>>Other Styles
+>>Instrumental (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_576179.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Another love
+02. Let her go
+03. Helium
+04. Vladimir s blues(   Читать дальше...   )Жанр: Instrumental, Piano, New Age, Modern ClassicalПродолжительность: 01:01:59
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:0C26B3EEDBCB3C035718ED7CE181CB1B7D615A7E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1554452   (575764) от 31.05.2022
+
+Vartra - Basma (2022) [FLAC|Lossless|WEB-DL|tracks] <Dark Folk, Ethereal, Doom Metal>
+
+>>Other Styles
+>>Folk (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575764.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - Aina [00:05:54]
+02 - Jerovine [00:06:01]
+03 - Inanna [00:04:41]
+04 - Hajd u Kam [00:05:13](   Читать дальше...   )Жанр: Dark Folk, Ethereal, Doom MetalПродолжительность: 00:46:16
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AB36687E5C7E950E8FC7DFE524A19C431B43A864
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 921210   (575419) от 25.07.2015
+
+Ennio Morricone - Allonsanfan (1978) [FLAC|image+.cue]<OST>
+
+>>Other Styles
+>>OST (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_575419.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Rabbia e Tarantella
+02. Ritorna a Casa
+03. Dirindindin
+04. Frammenti di Sonata(   Читать дальше...   )Жанр: OSTПродолжительность: 00:37:38
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F9E4B18F085F2AF8F5FE8F0EF606907BF71BAE05
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 527692   (574719) от 27.07.2012
+
+Acoustic Sound Orchestra - World Hits Instrumental Vol.1-4 (1994) [MP3|320 кб/с]<Instrumental, Easy Listening>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574719.jpg" />
+</div>
+
+
+###  Подробнее
+
+World Hits Instrumental Vol.1
+
+01. The Lady in Red (04:00)
+02. Blue Eyes (03:22)
+03. Bilitis (02:50)
+04. The Phantom of The Opera (04:16)
+05. A Day Without You (03:51)
+06. Le Reve (03:44)
+07. My Way 04:30Жанр: Instrumental, Easy ListeningПродолжительность: 00:51:53
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:D8B31C2B5AB839259B1EB4D28AE35D499FE96B70
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 361927   (574712) от 11.07.2011
+
+VA - Romantic & SAX (2011) [MP3|320 kbps]<Instrumental / saxophone>
+
+>>Other Styles
+>>Instrumental
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_574712.jpg" />
+</div>
+
+
+###  Подробнее
+
+Жанр: Instrumental / saxophoneПродолжительность: 03:31:29
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:BFD8EAF296C8490010521E5F9FE296BB20DFD790
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1234072   (574417) от 03.07.2018
 
 Deep Forest, Gaudi - Epic Circuits (2018) [MP3|320 Kbps] <New age, Enigmatic>
@@ -553,209 +758,6 @@ Shelby Lynne - Just A Little Lovin' (2008) [FLAC|Lossless|image + .cue] <Folk, C
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:66FA2B120C8CD5C314CF0916D7CE9102E4D3AC88
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303521   (570666) от 22.05.2019
-
-Vyanah - Zen Relaxation (2019) [MP3|320 Kbps] <New Age, Meditation>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570666.jpg" />
-</div>
-
-
-###  Подробнее
-
-01.Ancient Spirit (5:08)
-02.Echoes of Life (6:24)
-03.The River of Wisdom (5:38)
-04.Silent Mind (4:40)(   Читать дальше...   )Жанр: New Age, MeditationПродолжительность: 00:56:23
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:007BD0616FE446106D698AFA5A11DAE3B435ACD8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554702   (570367) от 03.06.2022
-
-TagTraumer - Zuviel ist nicht genug (2001) [MP3|320 Kbps] <Enigmatic, New Age>
-
->>Other Styles
->>New Age/Meditative/Relax
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570367.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Tausend Tage
-02. Ich vermisse Dich
-03. Träumen und Hoffen
-04. Für immer(   Читать дальше...   )Жанр: Enigmatic, New Age
-Страна: GermanyПродолжительность: 00:54:34
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:EAD127F635E61401AF66D2935104CBD2BA1FE0EA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1554891   (570249) от 03.06.2022
-
-Angel X (Andy Jonas) - 8 Relises (1993-2021) [FLAC|Lossless|WEB-DL|tracks|tracks + .cue] <Enigmatic, Pop Rock, Synth Pop>
-
->>Other Styles
->>New Age/Meditative/Relax (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570249.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Light the Stars [00:02:59]
-02. Return to Innocence [00:03:07]
-03. I Will Never Let You Go [00:03:18]
-04. Reach Your Heart [00:02:58](   Читать дальше...   )Жанр: Enigmatic, Pop Rock, Synth PopПродолжительность: 8 CD, 02:32:50
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CA4F757954FCF4EC42D70BDA43A35BF134467074
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1555393   (570244) от 03.06.2022
-
-Olga Stankevich - Дискография (2010-2014) [FLAC|Lossless|WEB-DL|tracks] <Instrumental Pop, Piano>
-
->>Other Styles
->>Instrumental (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570244.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Inspiration (3:40)
-02. Inspiration (Justin Fry Extended Club Mix) (6:14)
-03. Inspiration (Justin Fry Radio Edit) (4:00)Жанр: Instrumental Pop, PianoПродолжительность: 02:00:19
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2A2F6C47C00312DEEA287EDD248BD55C346DC2A7
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303459   (570187) от 22.05.2019
-
-Ramin Djawadi - Game of Thrones / Игра престолов: Season 8 (Music from the HBO Series) (2019) [FLAC|Lossless|WEB-DL|tracks]<Soundtrack>
-
->>Other Styles
->>OST (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570187.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Main Title (From Game Of Thrones: Season 8) (01:52)
-02. The Rains of Castamere (03:44)
-03. Arrival at Winterfell (03:44)
-04. Flight of Dragons  (02:52)(   Читать дальше...   )Жанр: Soundtrack, ScoreПродолжительность: 01:59:49
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:6FAAEB3E9129D16814E9250102FF6826B60ADEA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1303546   (570180) от 22.05.2019
-
-Ramin Djawadi, VA - Game of Thrones / Игра престолов: Season 1-8 (Collection Music from the HBO Series) (2011-2019) [MP3|320 кб/с] <Soundtrack, Score>
-
->>Other Styles
->>OST
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_570180.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Maren Morris - Kingdom of One (03:36)
-02. SZA, The Weeknd, Travis Scott – Power is Power (03:31)
-03. The Lumineers - Nightshade (03:01)
-04. Ellie Goulding - Hollow Crown (02:51)(   Читать дальше...   )Жанр: Soundtrack, Score •Продолжительность: 11:37:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D5FE723375E976B262D49ACE38CEAEDFA5E1567C
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 922026   (569802) от 28.07.2015
-
-Jean Michel Jarre - Cities In Concert Houston Lyon (2014) Live [MP3|320 кб/с]<Electronic>
-
->>Other Styles
->>Instrumental
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_569802.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Oxygene Part 5 (1:16)
-02. Ethnicolor (9:39)
-03. Magnetic Fields Part 1 (4:35)
-04. Souvenir Of China (3:32)(   Читать дальше...   )Жанр: ElectronicПродолжительность: 00:48:13
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:04B5D6E16D10E1C169AD52FCC221461F1CCB762F
 ```
 
 https://mybot314.ru/tekegram_catalog/

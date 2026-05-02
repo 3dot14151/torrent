@@ -1,3 +1,61 @@
+###  Публикация: 1178867   (353966) от 29.10.2017
+
+VA - Jazz About Lounge (2017) [MP3|320 Kbps] <Chillout, Lounge>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353966.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Ingo Herrmann – A New Day
+ 02. Roto Moto – Phat Flannel
+ 03. Zero Groove – Cavazzo
+ 04. Five – Thurio(   Читать дальше...   )Жанр: Chillout, LoungeПродолжительность: 01:29:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:970D8D1E677E4D163CB011151F84A98CB099B89E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1256536   (353868) от 22.10.2018
+
+VA - Parametric Tech House (2018) [MP3|320 Kbps] <Tech House, Electro>
+
+>>Неофициальные сборники
+>>Electronic (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_353868.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Big Bunny - Astonishing
+002. Adicted - Dream Machine (Original Mix)
+003. Waganetka - Of Millions
+004. Terranova - Underverse(   Читать дальше...   )Жанр: Tech House, ElectroПродолжительность: 11:02:23
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:EC539D5CEF855E939A226D8A62D9E2D1730C67EE
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1178643   (353707) от 29.10.2017
 
 VA - Record Super Chart #509 (2017) [MP3|320 Kbps] <House, Club, Dance>
@@ -693,67 +751,6 @@ VA - Club House October Mix (2018) [MP3|320 Kbps] <Electro, House, Dance, Club>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:4925B994E67EB0AF1167BA9A833C1CC97D153A35
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1179196   (351402) от 30.10.2017
-
-VA - Hits Cocktail Vol.14 (2017) [MP3|320 Kbps] <House, Club, Dance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_351402.jpg" />
-</div>
-
-
-###  Подробнее
-
-001.  Dmitrii G feat. Misha Klein - Rainbow Girl 5:09
-002.  Sick Individuals feat. Greyson Chance - Walk Away 3:18
-003.  Burak Yeter - Echo (Rocket Fun Remix) (Original Mix) 3:45
-004.  Teknova - Spaceships (Original Mix) 3:31(   Читать дальше...   )Жанр: House, Club, DanceПродолжительность: 06:35:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:5DF99A53AC4E0B5522C89FF8AB2A43E0D647C003
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 579264   (350998) от 22.11.2012
-
-VA - Trancern 38.3: Official Compilation (November 2012) (2012) [MP3|320 кб/с]<Trance, Vocal Trance, Uplifting Trance>
-
->>Неофициальные сборники
->>Electronic (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_350998.jpg" />
-</div>
-
-
-###  Подробнее
-
-VA - Trancern 38.3: Official Compilation (November 2012) (2012)
-Год: 2012
-Жанр: Trance, Vocal Trance, Uplifting Trance
-Продолжительность: 03:01:39Кодек: MP3
-Битрейт: 320 кб/с
-Тип битрейта: CBRТрек лист:001. Beat Service feat. Gemma Pavlovic - Masquerade (Original Mix)
-002. Chicane - Going Deep (Club Mix)(   Читать дальше...   )
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:12978500C9C7609A20426A99D3BFEDBD8CA53AD5
 ```
 
 https://mybot314.ru/tekegram_catalog/

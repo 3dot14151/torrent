@@ -1,3 +1,243 @@
+###  Публикация: 712924   (402563) от 20.10.2013
+
+VA - Mellomania 23 (2013) [FLAC|Lossless]<Trance>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402563.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pedro Del Mar & Hoyaa - Club 23Жанр: TranceПродолжительность: 06:58:57
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:F6D646BA1985527B6C1380FE6672D56EE773B082
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 713014   (402540) от 20.10.2013
+
+Varios - Колокольные звоны - The Chimes (1980) [FLAC 2.0 24/96|traks(Vinil-Rip)]<Church bells/Russian Falc>
+
+>>Архив торрентов
+>>Архив Музыки
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402540.jpg" />
+</div>
+
+
+###  Подробнее
+
+Сторона 1
+Троице-Сергиева лавра:
+1. Звонница Духовской церкви  5.38
+2. Большая Лаврская колокольня  12.02
+3. Колокольня Ново-Девичьего монастыря  3.20
+Сторона 2
+1. Звонница Псково-Печерского монастыря  21.34Жанр: Church bells/Russian FalcПродолжительность: 00:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7EA1367B21226442B9F0C0E7224A1B260E72BDF3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564553   (402498) от 24.10.2012
+
+Wallpapers Sexy Girls (22.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402498.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680х1050 - 5616х3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:A295215D70B060C70E5E76FBA6800CEF7B34C895
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564552   (402497) от 24.10.2012
+
+Wallpapers Sexy Girls Pack (22.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402497.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1680x1050 - 3000x2009
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:10A0F9D6A3CC1CE3A2E78C1E046C185EEBC1777D
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564555   (402496) от 24.10.2012
+
+Gilrs Wallpaper (22.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402496.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 5760х3840
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:57784BE4017C8A603DD0948AF071C15286BA6E9B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564554   (402495) от 24.10.2012
+
+Gilrs Wallpaper Collection (22.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402495.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 6000х4500
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:652E663A2E4926B269517C19867447F9947C38B9
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564531   (402494) от 24.10.2012
+
+Gilrs Wallpaper (21.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402494.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600х1200 - 4000х2666
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:29A2A4059FC29875C3AAA8AB6BF3038A40A80421
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564571   (402493) от 24.10.2012
+
+Nature Wallpapers (23.10.12) [Wallpapers]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402493.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего стола
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:64EAEC7FE8CF5D530D74AB589AA9C6351AA354D2
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 564550   (402492) от 24.10.2012
+
+Sexy Girls Pack Wallpapers (22.10.12) [Wallpapers 16+]
+
+>>Архив торрентов
+>>Архив Медиа-Диз-Графика
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402492.jpg" />
+</div>
+
+
+###  Подробнее
+
+Обои для рабочего столаРазрешение файлов: 1600x1200 - 5616x3744
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:13849A38719F314160E01C9E39656BB7FA036A7B
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 564530   (402491) от 24.10.2012
 
 Gilrs Wallpaper Collection (21.10.12) [Wallpapers 16+]
@@ -445,250 +685,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:F1E101EF401459FF372D37A9937C13B918A1CDAF
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564578   (402437) от 24.10.2012
-
-Sports Wallpaper (23.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402437.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:CFB16CFEEB0FD0F568A8925E9BCF348F08FD806A
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564908   (402436) от 24.10.2012
-
-[Wallpapers] Nature Wallpapers №7
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402436.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Nature Wallpapers №7
-Название: Nature Wallpapers №7
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1920x1080 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:42419FE9FEF24745930F30B06335D884F7C53EA8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564582   (402435) от 24.10.2012
-
-Gilrs Wallpaper (23.10.12) [Wallpapers 16+]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402435.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего столаРазрешение файлов: 1680х1050 - 2880х1770
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:699445BA9E3C2F681097FFDEE06DD60DD4A6F814
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564517   (402434) от 24.10.2012
-
-Nature HD Wallpapers (21.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402434.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:E19C5ECDDE69B881D8551BA15706FAD4FE3E1DF8
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564907   (402432) от 24.10.2012
-
-[Wallpapers] Animals Wallpapers №2
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402432.jpg" />
-</div>
-
-
-###  Подробнее
-
-[Wallpapers] Animals Wallpapers №2
-Название: Animals Wallpapers №2
-Тип раздаваемого: Wallpapers
-Разрешение файлов: 1600х1200/1680х1050 - 2560х1600
-Расширение (тип) файлов: jpgВремя раздачи: С 07:00 до 22:00
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:A46D4F60103BC7E69A26D4C700819AF8B5AA43B0
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564523   (402431) от 24.10.2012
-
-Thy Catafalque - 4 альбома (1999-2009) [MP3|320 кб/с]<Avant-garde metal>
-
->>Архив торрентов
->>Архив Музыки
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402431.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: Avant-garde metalПродолжительность: 04:25:03
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9DD628A734D345F69A400A08881782247C8D7BFC
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564570   (402430) от 24.10.2012
-
-Best HD Wallpapers Pack (23.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402430.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2C6C38046551903865FE311D54EB905A18D62E22
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 562283   (402428) от 24.10.2012
-
-[Wallpapers] Нравятся! Сотня № 082 (1920х1080-2560х1600)
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402428.jpg" />
-</div>
-
-
-###  Подробнее
-
-Предлагаемые обои отобраны для этой серии раздач, как наиболее красивые, прикольные, часто используемые на рабочих столах.
-Большое спасибо неизвестным авторам этих работ.
-Хотя на вкус и цвет...Разрешение файлов: от 1920х1080 до 2560х1600
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:7E74FBFFFE5061FD876A14C99D446C843C873CB6
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 564547   (402427) от 24.10.2012
-
-Nature HD Wallpapers (22.10.12) [Wallpapers]
-
->>Архив торрентов
->>Архив Медиа-Диз-Графика
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_402427.jpg" />
-</div>
-
-
-###  Подробнее
-
-Обои для рабочего стола
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:FB8921B2CC812D800AB803A297C2770531EE09D9
 ```
 
 https://mybot314.ru/tekegram_catalog/

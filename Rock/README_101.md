@@ -1,3 +1,32 @@
+###  Публикация: 1786695   (23842) от 22.03.2025
+
+Rush - Rush 50 (2025) Anniversary Super Deluxe [MP3|320 Kbps] <Progressive Rock, Hard Rock>
+
+>>Rock, Alternative, Punk, Metal
+>>Rock
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/001/save_picture_23842.jpg" />
+</div>
+
+
+###  Подробнее
+
+01 - One Little Victory (Remixed) [00:05:08]
+02 - Cygnus X-1 (Live At Maracana Stadium, Rio de Janeiro, Brazil - 11_23_2002) [00:03:12]
+03 - The Seeker [00:03:24]
+04 - Between The Wheels (Live At Festhalle Frankfurt, Frankfurt, Germany - 9_24_2004) [00:06:17](   Читать дальше...   )Жанр: Progressive Rock, Hard RockПродолжительность: 4 CD,  04:33:56
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:C8014F9A89365630C718D48DCF0C564C23188921
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1792734   (20275) от 25.04.2025
 
 T. Rex - Bolan B-Sides (2025) [MP3|320 Kbps] <Rock, Classic Rock, Glam>

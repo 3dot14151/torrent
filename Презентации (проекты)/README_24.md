@@ -1,3 +1,55 @@
+###  Публикация: 670042   (714780) от 19.06.2013
+
+Проекты - Promotion With Alfred [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_714780.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания уникальной презентации с Альфредом.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:108F450C1F6B12B7DCE8BC03E532F9F3EAAFD8B5
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1024909   (713802) от 10.06.2016
+
+Проекты - VideoBlocks - Security Breach Promo [AEP]
+
+>>Проекты
+>>Презентации (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_713802.jpg" />
+</div>
+
+
+###  Подробнее
+
+Проект для создания промо-ролика.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7FD752D9DF3BA2574962E5C65F47DEC3EB81695A
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1024847   (713404) от 10.06.2016
 
 Проекты - VideoHive - Kinetic Typography Engine V2 4K [AEP]
@@ -626,58 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:FF7514E9C51A6866AB5467FDEB06301F9D298295
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1220539   (703872) от 19.04.2018
-
-Проекты - VideoHive - Hi-Tech Corporate Slideshow - 13498261 [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703872.jpg" />
-</div>
-
-
-###  Подробнее
-
-Высокотехнологичный проект для корпоративного видео или презентации.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:1467CE4D66AEE44BCBAEE8F67B3F5ABFB235FB95
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1026333   (703573) от 15.06.2016
-
-Проекты - VideoHive - Flat Corporate Motion Design [AEP]
-
->>Проекты
->>Презентации (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_703573.jpg" />
-</div>
-
-
-###  Подробнее
-
-Flat Corporate Motion Design - пакет для создания неповторимых корпоративных презентаций.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F984651019255EC7786EC4199C41DC96D5444E86
 ```
 
 https://mybot314.ru/tekegram_catalog/

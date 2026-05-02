@@ -1,3 +1,90 @@
+###  Публикация: 1255406   (363460) от 18.10.2018
+
+Rammstein - 100 Jahre Rammstein, Arena Berlin (1996) VHSRip [H.264]
+
+>>Театр и Музыкальное видео
+>>Концерты (SD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363460.jpg" />
+</div>
+
+
+###  Подробнее
+
+Rammstein - культовая немецкая рок-группа, образованная в январе 1994 года в Берлине. Музыкальный стиль группы относится к жанру индастриал-метала (конкретно - его немецкой сцене Neue Deutsche Härte).1. Rammstein
+2. Herzeleid
+3. Bestrafe mich (demo)
+4. Der Meister(   Читать дальше...   )Жанр: Rock, Metal, IndustrialСубтитры: отсутствуютПродолжительность: 01:16:04
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:7AEBB49EC17C870262B58F629230786D2590C8DA
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1328499   (363376) от 30.09.2019
+
+Квартирник НТВ у Маргулиса. Группа Мегаполис (28.09.2019) WEB-DL [H.264/1080p-LQ]
+
+>>Театр и Музыкальное видео
+>>Концерты (HD, FHD, UHD, 3D)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363376.jpg" />
+</div>
+
+
+###  Подробнее
+
+В эту субботу на «Квартирник НТВ у Маргулиса» пришла рок-группа «Мегаполис». Музыканты исполнили песни «Ангел», «Все не кончится старость», «Влажная ложь» и многие другие, а солист Олег Нестеров в первый раз в России исполнил композицию «Ёжик» и рассказал, почему не мог спеть ее раньше.
+Также Олег Нестеров рассказал, что в юности подражал в манере исполнения Андрею (   Читать дальше...   )Производство: НТВЖанр: КонцертСубтитры: ОтсутствуютПродолжительность: 00:58:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:AFFE5ABD7D3DFE66D304B493807E80EEEFE41E2C
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 1176843   (363138) от 25.10.2017
+
+Masami Okui - GIGS 2006 evolution (2007) 2xDVD5
+
+>>Театр и Музыкальное видео
+>>Концерты (DVD)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_363138.jpg" />
+</div>
+
+
+###  Подробнее
+
+Запись концерта Masami Okui - World tour 2006 evolution, прошедшего в Shibuya O-East 22 октября 2006. В качестве бонуса присутствует запись концерта в Шанхае (Xintiandi ARK) за 4 ноября 2006. Сам DVD был выпущен 1 октября 2007.
+
+Источник: perfect darkDISC-1
+
+OP OPENING Movie ~Fever~
+1. SOLDIER〜Love Battlefield〜(   Читать дальше...   )Производство: Япония, dwango AG Entertainment / evolutionЖанр: J-Pop, J-RockСубтитры: отсутствуютПродолжительность: 00:50:29 + 00:55:55
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:DC888681F89733345C1DE2EA58617556125B88A3
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 950966   (363077) от 29.10.2015
 
 Mike Oldfield - Tubular Bells III Live (1998) DVDRip [hand made 60fps]
@@ -607,87 +694,6 @@ Robbie Williams - Candy (2012) [1080p] HDTVRip
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7450B2FCCB47F86EEB5713D95247FAC404BD0289
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577924   (358211) от 19.11.2012
-
-Pitbull - Get It Started ft. Shakira (2012) [H.264/1080p]  WEB-DLRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358211.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: POP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:96CD23A2DE62CEE880D1715E5AACCE13A8AC99FA
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1177822   (358124) от 27.10.2017
-
-Celebrating Jon Lord. Live at The Royal Albert Hall (2014) 2хDVD9
-
->>Театр и Музыкальное видео
->>Концерты (DVD)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358124.jpg" />
-</div>
-
-
-###  Подробнее
-
-Celebrating Jon Lord - волшебная ночь памяти великого человека и музыканта. Включает DEEP PURPLE, BRUCE DICKINSON, GLENN HUGHES, PAUL WELLER, RICK WAKEMAN и многих других. Концерт состоялся и был записан 5 апреля 2014 года в Royal Albert Hall в Лондоне. Великий копмозитор и музыкант Джон Лорд, к сожалению, скончался в 2012 году. Ян Пэйс вспоминает о "Celebrating (   Читать дальше...   )Disc 1 "The Composer"
-01. Fantasia
-02. Durham Awakes
-03. All Those Years Ago feat.Steve Balsamo & Micky Moody(   Читать дальше...   )Производство: Германия, earMUSICЖанр: Рок
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:9273700461D86785D08506391D25CEDA7D79AD1E
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 577526   (358056) от 19.11.2012
-
-No Doubt - Push And Shove ft. Busy Signal, Major Lazer (2012) [H.264/1080p] HDTVRip
-
->>Театр и Музыкальное видео
->>Музыкальные клипы
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_358056.jpg" />
-</div>
-
-
-###  Подробнее
-
-Жанр: РОР
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:8FC21FF70F15E98B5B3E1442D766A2856620D43F
 ```
 
 https://mybot314.ru/tekegram_catalog/

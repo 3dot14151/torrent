@@ -1,3 +1,61 @@
+###  Публикация: 1216972   (744636) от 03.04.2018
+
+Tommy Flanagan with the Wilbur Harden Quartet - Plays The Music of Rodgers & Hammerstein (1958) 1990, Savoy Jazz [FLAC|Lossless|tracks + .cue] <Hard Bop>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744636.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Getting To Know You [04:05]
+02. My Lord And Master [04:15]
+03. Shall We Dance [06:10]
+04. Something Wonderful [02:35](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:47:40
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9C0D135A4675E6EA7BF8A11972925B0086C1A3D0
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 665474   (744220) от 06.06.2013
+
+Frank Sinatra & Count Basie - The Complete Reprise Studio Recordings (2011) [FLAC|Lossless]<Vocal Jazz, Big Band>
+
+>>Jazz, Blues, Soul
+>>Jazz (Lossless)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_744220.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Pennies From Heaven (3:29)
+02. Please Be Kind (2:42)
+03. (Love Is) The Tender Trap (2:36)
+04. Looking At The World Thru Rose Colored Glasses (2:30)(   Читать дальше...   )Жанр: Vocal Jazz, Big BandПродолжительность: 01:00:03
+
+## Скачать торент
+```bash
+нет
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1396858   (744200) от 17.07.2020
 
 Elvin Jones - And Then Again (1965) 2017, Warner [FLAC|Lossless|tracks + .cue] <Hard Bop>
@@ -687,64 +745,6 @@ Benny Goodman - Stompin' At The Savoy (1935 - 1938) 1989, Jazz Hour [FLAC|Lossle
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:7AF0C5079A3D8B0B2EDAB2D06C04D769C84144A9
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1283108   (741239) от 15.02.2019
-
-John Coltrane - Jazz Classics (1959, 1960) 2006, Flashback [FLAC|Lossless|tracks + .cue] <Hard Bop>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741239.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Giant Steps [4:46]
-02. Naima [4:22]
-03. My Shining Hour [4:52]
-04. Central Park West [4:14](   Читать дальше...   )Жанр: Hard BopПродолжительность: 00:41:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D14F1E0EE2177A5AE2E3FDDDD81130F505F76A49
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1282874   (741238) от 15.02.2019
-
-Carmen McRae - You're Lookin' At Me (1983) 1986, King Record [FLAC|Lossless|tracks + .cue] <Vocal Jazz>
-
->>Jazz, Blues, Soul
->>Jazz (Lossless)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_741238.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. I'm an Errand Girl for Rhythm [3:33]
-02. Beautiful Moons Ago [3:11]
-03. The Frim Fram Sauce [3:59]
-04. Come in out of the Rain [3:13](   Читать дальше...   )Жанр: Vocal JazzПродолжительность: 00:37:09
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:4F823DDDCD4C255CF4EF58CA92AFA4BCA52E5B98
 ```
 
 https://mybot314.ru/tekegram_catalog/

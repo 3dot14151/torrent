@@ -1,3 +1,143 @@
+###  Публикация: 541674   (500232) от 01.09.2012
+
+VA - 100 Canzonissime Italiane (2000) BoxSet 7CD [MP3|320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_500232.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Patty Pravo - La Bambola [02:59]
+02. Massimo Ranieri - Vent'Anni [02:54]
+03. Camaleonti - Perchи Ti Amo [03:12]
+04. Riccardo Fogli - Storie Di Tutti I Giorni [04:15]
+05. Jimmy Fontana - La Nostra Favola [03:13]
+06. Giardino Dei Semplici - Tu Ca Nun Chiagne [03:45]
+07. Formula 3 - Questo Folle Sentimento [03:08]
+08. Alberto Camerini - Rock' N 'Roll Robot [03:11]
+09. Viola Valentino - Comprami [03:55]
+10. Vasco Rossi - Vado Al Massimo [04:07](   Читать дальше...   )Жанр: PopФормат: BoxSet 7CDПродолжительность: 00:50:08
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:85DC5468A706E6FB272107F7BBC84CE88A96F547
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542296   (499506) от 02.09.2012
+
+VA - US Top 40 Single Charts (01-09-2012) [MP3|96-320 кб/с]<Pop>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499506.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Taylor Swift - We Are Never Ever Getting Back Together
+02. Flo Rida - Whistle
+03. Ellie Goulding - Lights
+04. Carly Rae Jepsen - Call Me Maybe
+05. Katy Perry - Wide Awake
+06. fun. - Some Nights
+07. Maroon 5 - Payphone (feat. Wiz Khalifa)
+08. Justin Bieber - As Long As You Love Me (feat. Big Sean)
+09. Maroon 5 - One More Night
+10. David Guetta - Titanium (feat. Sia)(   Читать дальше...   )Жанр: PopПродолжительность: 02:42:34
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:9367E8344CBD2FE934DC5A53164AC7E9A241193E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 541547   (499000) от 02.09.2012
+
+VA - Подарок любимой женщине / Подарунок коханій жінці (2011) [MP3|256 кб/с]<Поп>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_499000.jpg" />
+</div>
+
+
+###  Подробнее
+
+01. Бізнес леді - С.Гіга
+02. Моє літо - С.Весна
+03. Теща - О.Гаврилюк
+04. Святкова - О.Лукашова
+05. Без тебе - М.Армаш
+06. Ода матері - М.Поплавський
+07. Більше розлук не буде - І.Попович
+08. Вишенька - черешенька - Квартет "Гетьман"
+09. Для всіх - В.Павлік
+10. Лебеді кохання - Лебеді Кохання(   Читать дальше...   )Жанр: ПопПродолжительность: 06:34:09
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:5D044D677F54F9B262E263925CAA4826AB93BF5E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
+###  Публикация: 542018   (498998) от 02.09.2012
+
+VA - Золотая 200-ка Дорожное Радио (2012) [MP3|128 кб/с]<Шансон>
+
+>>Неофициальные сборники
+>>Pop (сборники)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_498998.jpg" />
+</div>
+
+
+###  Подробнее
+
+001. Игорь Васильев - Все в го-но
+002. Анатолий Полотно - Метелица
+003. Сева Оболонский - Школа бальных танцев
+004. Карен - Люблю тебя
+005. Катерина Голицына - Дикая яблоня
+006. Эдо - Орлиная песня
+007. Александр Маршал - Эх, Вернуться Бы Мне Домой
+008. Арсен Сафарян - Тома - Тамара
+009. Марина Александрова - Собирайся На Войну
+010. Таисия Повалий - Люблю тебя(   Читать дальше...   )Жанр: ШансонПродолжительность: 12:41:42
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:2B8943F56CA6DFBBD3DF614D1D456FE7BCD2900E
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1317893   (498573) от 03.08.2019
 
 VA - Empire Records - Church 3 (2019) [MP3|320 Kbps] <Pop>
@@ -654,140 +794,6 @@ VA - Семь морей (2016) [MP3|256 Kbps] <Pop>
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:679BB0546FDF13AE50EF5CB59601F48347780131
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1243640   (490102) от 28.08.2018
-
-VA - Pop Summer Candy (2018) [MP3|320 Kbps] <Pop>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_490102.jpg" />
-</div>
-
-
-###  Подробнее
-
-001. Michael Head - Something Like You
-002. Dynoro - In My Mind
-003. Laura Veirs - Margaret Sands
-004. Aris - S.O.S. (DJ Antonio Remix)(   Читать дальше...   )Жанр: PopПродолжительность: 11:35:40
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:2748BFAC916C524F4C9CCBE1FE6D75A1C1639947
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543958   (489331) от 08.09.2012
-
-VA - Радио Шторм - Русский Шторм - 71 (2012) [MP3|320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489331.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. All Davaj & Mika - Это Любовь (Radio Edit)
-2. Bahh Tee - Я Наверное (Mike Crystal Remix)
-3. Bass Ace & Dj Skazka - Твоё Лето (3:32)
-4. Dan Balan Dj Favorite - Не Любя (Alex Life S Mash Up)
-5. Danila Rastv Ft. Alexey Sender - Ядами
-6. Di Bronks I Natali - Все Пройдет (Dj Garik Vertuha Remix 2012)
-7. Erika (Erika) - Последний Раз
-8. F. Jay & Олеся - Любовь
-9. Hi-Fi - Земляничный Дождь
-10. Jandro - Не УходиЖанр: Pop, DanceПродолжительность: 02:26:43
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:65899F330D4BC0D62EE4CAE892B698B582687436
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 543963   (489325) от 08.09.2012
-
-VA - Радио Шторм - NeРусский Шторм - 72 (2012) [MP3|128-320 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489325.jpg" />
-</div>
-
-
-###  Подробнее
-
-1. Adrian Sina - Hypnotised (Original Edit)
-2. Annagrace - Alive (Radio Edit)
-3. Chanee - Fallen
-4. Ciara - Livin It Up
-5. Clinton Sparks feat. Pitbull And The Disco Fries - Watch You
-6. Connect-R - Love Is The Way
-7. Deejaymas feat. Any & Catalin D - Don't Break My Heart (Extended Version)
-8. Devin - Un Amor (Ai Le Le Song) (Radio Edit)
-9. Dj Dark And Shidance Ft. Violet - Turn It Up (Radio Edit)
-10. Dyland And Lenny feat. Pitbull And Beatriz Luengo - Sin TiЖанр: Pop, DanceПродолжительность: 02:38:05
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:D6317D9F7822376A4C7A93991C3A886CB3BE4309
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 544665   (489227) от 08.09.2012
-
-VA - Горячая Сотка Новинок 50/50 (2012) [MP3|256 кб/с]<Pop, Dance>
-
->>Неофициальные сборники
->>Pop (сборники)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/008/save_picture_489227.jpg" />
-</div>
-
-
-###  Подробнее
-
-01. Hi-Fi - Земляничный Дождь (Новая Версия)
-02. Maroon 5 - One More Night
-03. Galla - NY Лето (Нью-Йоркское Лето)
-04. Mc Lion - Breathing (Dance Mix)
-05. Ksenona - Далеко-Далеко
-06. Nas feat. Mary J. Blige - Reach Out
-07. Pulse - Ты Убиваешь Меня
-08. Rita Ora - Roc The Life
-09. Vetra-N - Долго Нельзя
-10. The Cataracs - Roll The Dice(   Читать дальше...   )Жанр: Pop, DanceПродолжительность: 06:11:08
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:F7FD5A64E91D3C879347FA2F4156B0A7587C040C
 ```
 
 https://mybot314.ru/tekegram_catalog/

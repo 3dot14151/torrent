@@ -1,3 +1,29 @@
+###  Публикация: 1099932   (903110) от 02.02.2017
+
+Проекты - Motion Array - Quick Slideshow - 20996 [AEP]
+
+>>Проекты
+>>Слайдшоу (проекты)
+
+<div id="header" align="center">
+  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_903110.jpg" />
+</div>
+
+
+###  Подробнее
+
+Хорошо организованный проект для создания слайд-шоу. Шаблон имеет модульную структуру, что позволит Вам с легкостью расширить его и добавить новые сцены.Формат: AEP
+
+## Скачать торент
+```bash
+magnet:?xt=urn:btih:E9AFB9AAED2F9CB14182DD6B33D88C2F2CD9BC96
+```
+
+https://mybot314.ru/tekegram_catalog/
+
+
+
+---------------------------------------------------------------------------------------------------------------
 ###  Публикация: 1369476   (903090) от 23.03.2020
 
 Проекты - VideoHive - Beauty Trends - 23310642 [AEP]
@@ -652,32 +678,6 @@ https://mybot314.ru/tekegram_catalog/
 ## Скачать торент
 ```bash
 magnet:?xt=urn:btih:5D380ABE6BEF39FED09E9939CEB6024B63655D39
-```
-
-https://mybot314.ru/tekegram_catalog/
-
-
-
----------------------------------------------------------------------------------------------------------------
-###  Публикация: 1370006   (899692) от 25.03.2020
-
-Проекты - VideoHive - Watercolor Ink Story - 20375614 [AEP]
-
->>Проекты
->>Слайдшоу (проекты)
-
-<div id="header" align="center">
-  <img src="https://mybot.cloudpub.ru/picture_torrent/007/save_picture_899692.jpg" />
-</div>
-
-
-###  Подробнее
-
-«Watercolor Ink Story» - Простой в использовании проект After Effects для создания романтического слайд-шоу с эффектом акварельных чернил.Формат: AEP
-
-## Скачать торент
-```bash
-magnet:?xt=urn:btih:0D8D8846759B278E67766FB22F989871D8228A2D
 ```
 
 https://mybot314.ru/tekegram_catalog/
